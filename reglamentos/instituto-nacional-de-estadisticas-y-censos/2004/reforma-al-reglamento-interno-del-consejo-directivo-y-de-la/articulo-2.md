@@ -1,0 +1,3 @@
+Artículo 2°—Adicionar dos incisos al articulo 5 del Reglamento Interno del Consejo Directivo y La Gerencia:
+“n- Autorizar al Gerente. Subgerente, Auditor Interno y Subauditor. licencias con o sin goce de salario, permisos, vacaciones, entre otros, que soliciten, conforme a los mismos alcances que se encuentran dispuestos en el Reglamento Autónomo de Servicios del INEC, para los funcionarios regulares.
+o- Requerir del Gerente, Subgerente. Auditor Interne y Subauditor, cuando el Consejo Directivo lo considere necesario, informes sobre el uso de equipos, mobiliario, vehículos y demás activos del INEC, que les haya sido asignados para el desempeño de las labores propias de su cargo”
