@@ -1,0 +1,1 @@
+Artículo 6°.- Recibido que fuere por el Director del Registro de la propiedad el mandamiento, con la referida acta ordenará que se proceda, sin más trámite, a la inscripción que interesa y se devolverá el documento a la oficina de origen con indicación de las citas de inscripción respectivas.

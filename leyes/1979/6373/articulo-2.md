@@ -1,0 +1,1 @@
+Artículo 2°.- Sólo podrán beneficiarse con esta ley, quienes hayan poseído sus respectivas proporciones en forma quieta, pública, ininterrumpida, a título de dueño durante por lo menos diez años, y que hayan destinado a vivienda suya y de su familia.

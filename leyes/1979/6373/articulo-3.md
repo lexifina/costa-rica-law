@@ -1,0 +1,3 @@
+Artículo 3°.- El procedimiento iniciará con la inscripción en la Dirección de Catastro Nacional, a nombre del interesado, del plano que se pretende titular.
+Para tales efectos el interesado podrá recurrir a los servicios de un agrimensor o topógrafo de la respectiva Municipalidad, si lo hubiere, o del Instituto Nacional de Vivienda y Urbanismo. En este último caso la solicitud de servicios deberá presentarse por medio del Ejecutivo Municipal, a petición del o los interesados.
+Los servicios de agrimensura se presentarán en forma gratuita para el interesado y quedan obligados a presentarlos la Municipalidad o, en su defecto, el INVU.
