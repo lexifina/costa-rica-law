@@ -1,0 +1,1 @@
+Artículo 2°-La Proveeduría es el único ente institucional autorizado para conducir todos los trámites relacionadas con el proceso de adquisiciones de bienes y servicios, independientemente de su modalidad. Se exceptúa de lo anterior las adquisiciones que se hacen por medio de caja chicl1 que se regirán de acuerdo con su reglamento.

@@ -1,0 +1,1 @@
+Artículo 29.-La adjudicación de las contrataciones indicadas en los artículos 15 y 16 de este reglamento estará a cargo de los solicitantes y de la Dirección General previa recomendación de la Proveeduría.

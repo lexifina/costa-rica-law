@@ -1,0 +1,3 @@
+Artículo 23.-La Comisión tendrá a su cargo el estudio, análisis y recomendación de las Licitaciones Públicas, por Registro y Restringidas. Una vez analizadas las ofertas y efectuadas las recomendaciones pertinentes, la Comisión presentará su dictamen ante la Junta Administrativa para su adjudicación. El dictamen será firmado por todos los funcionarios participantes en la reunión.
+En todos los casos, una vez que se haya tomado el acuerdo de adjudicación, la Proveeduría retomará el procedimiento de contratación para lo que corresponda.
+La Comisión será convocada por la sección de Proveeduría, una vez que ésta haya realizado los estudios y observaciones de rigor.

@@ -1,0 +1,1 @@
+Artículo 21.-Las solicitudes para la compra directa de equipos, programas, accesorios, servicios profesionales y todo lo que se relacione con la actividad de cómputo, debe contar con la aprobación de la Comisión de Informática.

@@ -1,0 +1,1 @@
+Artículo 38.-Cuando se le aplique la sanción de suspensión para contratar con la administración, con apego a las regulaciones que sobre la materia contenga el ordenamiento jurídico, tal circunstancia se hará constar en el Registro de Proveedores, a efecto de dar cumplimiento con el fin legal previsto.

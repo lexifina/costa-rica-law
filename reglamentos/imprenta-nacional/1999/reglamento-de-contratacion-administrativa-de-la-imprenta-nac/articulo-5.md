@@ -1,0 +1,1 @@
+Artículo 5°-Las solicitudes deben hacerse con la suficiente antelación, salvo en casos de emergencia. Cuando se trata de licitaciones, la petición debe realizarse con al menos tres meses de anticipación.

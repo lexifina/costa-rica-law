@@ -1,0 +1,1 @@
+Artículo 28.-La adjudicación de las licitaciones públicas, por registro y restringidas, la hará el máximo órgano jerárquico de la institución, es decir la Junta Administrativa, tal y como está previsto en el artículo 106 de la Ley de Contratación Administrativa.

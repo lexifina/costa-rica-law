@@ -1,0 +1,1 @@
+Artículo 16.-En las compras directas cuyo valor sea menor al ¢1.000.000,00, el inicio del proceso de contratación estará a cargo de la Dirección, Subdirección y Jefes de Departamentos. Para que el trámite de estos últimos funcionarios sea admitido por la Proveeduría, la solicitud debe contar con el visto bueno del superior jerárquico inmediato.
