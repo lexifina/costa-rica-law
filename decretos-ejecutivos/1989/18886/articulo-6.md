@@ -1,1 +1,0 @@
-Artículo 6º.- No se permitirá el expendio de artefactos pirotécnicos, en todo caso de autorizarse reventar bombas de dos o tres truenos o explosivos, el tubo que se utilice deberá estar ajustado a un hueco y en tierra firme.

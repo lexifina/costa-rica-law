@@ -1,1 +1,0 @@
-Artículo 7º.- Queda prohibida la elaboración de alimentos en el lugar de la actividad. Solamente se autorizará la venta de productos debidamente empacados y con la respectiva licencia del Ministerio de Salud.

@@ -1,1 +1,0 @@
-Artículo 8º.- Los espectáculos al aire libre deberán ubicarse en áreas que no perturben la tranquilidad de las casas y locales circunvecinos, y deberá sujetarse a las disposiciones sobre capacidad sonora permitida.

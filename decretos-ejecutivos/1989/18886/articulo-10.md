@@ -1,1 +1,0 @@
-Artículo 10.- Todo lugar con basureros en cantidades suficientes y debidamente ubicados, también la empresa se responsabilizará de la disposición final de los residuos en forma correcta, asimismo estará obligada a instalar letrinas de libre acceso al público.
