@@ -1,15 +1,19 @@
 Ley sobre Arrendamiento de Locales Municipales
-Artículo 1º.- El precio para prorrogar el arrendamiento de locales,
-tramos o puestos de los Mercados Municipales, será fijado por la
-Municipalidad respectiva, previo el dictamen de una Comisión
-Recalificadora integrada por cuatro miembros y nombrada por aquélla al
-efecto. Los inquilinos de cada mercado, representados por su Asociación
-debidamente legalizada o en su falta por la mayoría de ellos, en memorial
-debidamente autenticado, tendrán derecho a presentar hasta el 15 de
-setiembre del año que corresponda, una lista de la cual se elegirá dos de
-los miembros de la Comisión Recalificadora. La Municipalidad por nota
-certificada y otros medios que estime convenientes, avisará con quince
-días de anticipación a todos los inquilinos el derecho que tienen de
-hacer tal presentación; si pasare ese plazo sin haber sido presentada esa
-lista, la Corporación Municipal nombrará la Comisión sin intervención de
-los arrendatarios.
+Artículo 1º.- La tarifa para prorrogar el arrendamiento de locales,
+tramos o puestos de los mercados municipales, será fijada por la
+municipalidad respectiva, previo dictamen de la Comisión Recalificadora.
+La Comisión estará integrada por cuatro miembros: dos regidores
+municipales y dos inquilinos de cada mercado. Los inquilinos estarán
+representados por la correspondiente asociación legalizada o, en su
+defecto, por la mayoría de ellos, según un memorial autenticado por un
+abogado, que presentarán.
+Los arrendatarios tendrán derecho a presentar, hasta el 15 de
+setiembre del año que corresponda, a dos de los miembros que integrarán
+la Comisión Recalificadora. La municipalidad estará obligada a comunicar
+a todos los inquilinos, mediante nota certificada o por otro medio
+directo, por escrito, con treinta días de anticipación, el derecho que
+tienen a hacer tal presentación. Si transcurriere el término sin que se
+haya presentado esa lista, la municipalidad nombrará la Comisión, sin
+representación de los arrendatarios.
+(Así reformado por el artículo 1º de la Ley Nº 7027 de 4 de abril de
+1986).

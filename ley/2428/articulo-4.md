@@ -1,16 +1,3 @@
-Artículo 4º.- Aprobada por la Municipalidad la recalificación de
-alquileres, será comunicada a cada inquilino en nota certificada,
-otorgándole un plazo no menor de treinta días naturales para que
-manifieste si acepta el alquiler fijado o bien opta por hacer dejación
-del local, tramo o puestos municipales. En los casos de respuesta
-afirmativa, automáticamente se tendrá prorrogado sin necesidad de remate
-ni licitación el correspondiente contrato de arrendamiento con la
-Municipalidad, por un período de cinco años contados a partir del primero
-de enero de 1960 y renovándose con igual procedimiento las
-recalificaciones y contratos cada cinco años, sin que pueda variarse
-durante la vigencia de los mismos - salvo convenio especial - el precio
-del arrendamiento fijado para todo el período. Dentro de los primeros
-quince días de los treinta de que habla este artículo, el inquilino tiene
-derecho a argumentar ante la Municipalidad acerca del alquiler que se le
-haya fijado, y la Municipalidad debe resolver su alegato en los
-subsiguientes quince días.
+Artículo 4º.- La municipalidad respectiva comunicará la recalificación de alquileres a cada inquilino, mediante nota certificada, y le otorgará un plazo de hasta treinta días hábiles, después de recibido el comunicado, para que manifieste si acepta el nuevo alquiler fijado u opta por dejar el local, puesto o tramo municipal. En caso de respuesta afirmativa, el alquiler se tendrá por prorrogado, por el término de cinco años, sin necesidad de remate ni licitación. Por igual procedimiento, se renovarán los contratos y recalificaciones cada cinco años, sin que el alquiler pueda variarse durante la vigencia de los contratos o recalificaciones, salvo convenio especial, pactado en el contrato por ambas partes. Dentro de los primeros quince días de los treinta señalados en este artículo, el inquilino disconforme tendrá derecho a apelar (*), ante el concejo municipal, el alquiler que se le haya fijado. El concejo deberá resolver la apelación en los siguientes quince días.
+(Así reformado por el artículo 1º de la Ley Nº 7027 de 4 de abril de 1986 y modificado su texto por Resolución de la Sala Constitucional Nº 4675-97 de las 15:45 horas del 13 de agosto de 1997).
+(*) Interpretado el término "apelar", en el considerando IV, de la Resolución 4675-97 antes citada, en el sentido de que “cuando el artículo 4 de la ley sobre arrendamiento de locales municipales utiliza el término "apelar" o "apelación", el concepto jurídico ha de entenderse, a la luz de lo que establece el inciso 2) del artículo 173 de la Constitución Política y con la aplicación de los criterios de razonabilidad y proporcionalidad de la norma, como una simple revocatoria o reconsideración de lo actuado, pero no como un verdadero recurso de apelación, pues tal y como se analizó, esa instancia queda reservada a los trámites que se siguen ante el Tribunal Superior Contencioso Administrativo…”
