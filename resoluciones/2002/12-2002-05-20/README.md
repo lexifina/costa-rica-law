@@ -14,3 +14,4 @@ Dirección General del Servicio Civil emite resoluciones DG-88-2002, DG-091-2002
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-06 | la propia norma |
+| 2 | 2002-06-17 | Resolución 15 (2002-06-17) |
