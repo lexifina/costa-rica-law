@@ -1,0 +1,1 @@
+Artículo 55.- Determinados la colonización, parcelación o arrendamiento de tierras, el Instituto dará curso a las solicitudes presentadas, a fin de efectuar las adjudicaciones procedentes. Las solicitudes podrán ser presentadas en cualquier agencia de esa Institución.

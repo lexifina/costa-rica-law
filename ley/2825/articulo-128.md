@@ -1,0 +1,1 @@
+Artículo 128.- Facúltase al Sistema Bancario Nacional y a las otras instituciones de crédito, de seguros y de fomento de la producción para que, con arreglo a sus leyes orgánicas, y previa consulta al Instituto, proporcionen ayuda económica a los poseedores en precario que se hubieren acogido a las disposiciones de esta ley.

@@ -1,0 +1,1 @@
+Artículo 125.- El Juez a cuyo cargo estuvo el conocimiento de las diligencias de intercambio de tierras establecidas al amparo de la ley Nº 88 antes citada, declarará de oficio la deserción en aquellas que hubieren sido abandonadas por más de seis meses antes de entrar en vigencia la ley Nº 1294 de 1º de junio de 1951.

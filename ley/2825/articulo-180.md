@@ -1,0 +1,1 @@
+Artículo 180.- Queda autorizado el Ministerio de Economía y Hacienda para exonerar de todo impuesto las herramientas, maquinarias, implementos y cualesquiera otros materiales que utilicen las cooperativas y los agricultores que se acojan a esta ley, para la explotación de su empresa.

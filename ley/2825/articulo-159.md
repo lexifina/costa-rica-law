@@ -1,0 +1,2 @@
+Artículo 159.- En la construcción de viviendas rurales, el Instituto y los organismos afines, procurarán que se utilice en la medida de lo posible los materiales de la región, y la mano de obra de los propios beneficiarios.
+El adjudicatario no podrá enajenar ni gravar las viviendas sin el previo consentimiento del Instituto, el que tendrá derecho preferente de adquisición en igualdad de circunstancias.

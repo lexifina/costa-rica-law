@@ -1,0 +1,1 @@
+Artículo 2º.- (Transitorio) Los terrenos que de conformidad con el artículo transitorio anterior, se puedan inscribir en el futuro, estarán sujetos a las condiciones y obligaciones que señalaban las leyes en virtud de las cuales fueron adquiridos.

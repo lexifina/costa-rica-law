@@ -1,0 +1,1 @@
+Artículo 23.-La Junta Directiva ejercerá sus funciones con absoluta independencia y bajo su exclusiva responsabilidad, dentro de las normas establecidas por la Constitución Política, las leyes, los reglamentos y los principios técnicos aplicables.

@@ -1,0 +1,1 @@
+Artículo 183.- El Instituto podrá vender tierras situadas en los alrededores de donde haya realizado planes de parcelación o colonización y favorecidas con la valorización provocada por los mismos, a efecto de recoger ahorro de parte de finqueros particulares y encauzarlo a los fines de esta ley.

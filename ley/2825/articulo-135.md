@@ -1,0 +1,7 @@
+Artículo 135.-El servicio de crédito agrícola se orientará por las normas siguientes:
+a) Se consideran sujetos con derecho a estos créditos, fundamentalmente, las cooperativas agrícolas o pecuarias debidamente constituidas, los pequeños y medianos agricultores, sean o no beneficiarios de dotaciones realizadas de acuerdo con esta ley, y las colonias formadas con base en leyes especiales.
+Tendrán igualmente carácter de sujetos con derecho al crédito y a la asistencia técnica del Estado, las empresas comunitarias de autogestión campesina agrícolas y pecuarias por pequeños productores que, por reunir los requisitos mínimos de organización conforme a los respectivos reglamentos, hayan sido reconocidos por el Instituto y se encuentren debidamente inscritos en el Registro que al efecto llevará esa Institución. Dichas empresas contarán con personalidad jurídica y podrán celebrar toda clase de contratos y actos necesarios para el cumplimiento de sus fines, con las condiciones y limitaciones legales y reglamentarias que les fueren aplicables.
+(Así adicionado por el artículo 1º de la ley Nº 5496 de 30 de marzo de 1974).
+b) La concesión de estos créditos será oportuna y con un plazo adecuado a la capacidad productiva de la explotación; y
+c) Los créditos no podrán devengar un interés mayor anual, para las cooperativas, del 6%; para los pequeños propietarios, colonos y empresas comunitarias de autogestión campesina agrícola y pecuarias del 8% anual.
+(Así reformado por el artículo 3º de la ley Nº 5496 de 30 de marzo de 1974).

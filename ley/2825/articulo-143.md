@@ -1,0 +1,1 @@
+Artículo 143.- Procederá la expropiación, cuando en el lugar de las dotaciones o en los centros rurales o de colonias que trate de fundar o fomentar el Instituto, no existan tierras baldías, o sean éstas insuficientes, o no sean económicamente explotables, al libre criterio del Instituto y no se puedan adquirir, por otro medio, tierras suficientes económicamente explotables.

@@ -1,0 +1,1 @@
+Artículo 27. -En caso de ausencia o de impedimento transitorio del Presidente, lo sustituirá el Vicepresidente. Cuando en alguna sesión estuvieren ambos ausentes, la Junta Directiva designará a uno de sus miembros como Presidente ad-hoc.

@@ -1,0 +1,2 @@
+Artículo 124.-La posesión ininterrumpida, pacífica y como dueño, por diez años o más, contados con posterioridad a la vigencia de la Ley Nº 88 de 14 de julio de 1942, dará derecho a que se declare con lugar, en favor del adjudicatario demandado de conformidad con el artículo 123, la excepción de prescripción positiva, y a que éste se acoja a la ley respectiva para inscribir su derecho.
+( Así reformado por el artículo 1º de la ley Nº 3336 de 31 de julio de 1964 ).

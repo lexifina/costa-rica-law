@@ -1,0 +1,1 @@
+Artículo 113.- El propietario de los derechos a que se refiere el artículo anterior se dirigirá por escrito al Instituto, pidiendo que se le otorgue el correspondiente título de propiedad, a efecto de lo cual tendrá un término de seis meses, contados a partir de la vigencia de esta ley.

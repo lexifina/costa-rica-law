@@ -1,0 +1,1 @@
+Artículo 71.- En cada centro agrario se crearán grupos de estudios agropecuarios y las escuelas establecidas destinarán capítulo importante a la formación de trabajadores agrícolas aptos para llenar sus funciones orientadas hacia los objetivos de la presente ley, insistiendo, fundamentalmente, en los beneficios del cooperativismo.

@@ -1,0 +1,1 @@
+Artículo 181.- Se faculta al Banco Central de Costa Rica para que haga las gestiones conducentes a obtener líneas de crédito hasta por la suma de veinte millones de dólares ($ 20.000,000.00), en bancos o agencias del exterior, destinados a financiar los programas agrarios del Instituto de Tierras y Colonización, conforme a las disposiciones de esta ley.

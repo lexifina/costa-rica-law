@@ -1,0 +1,1 @@
+Artículo 146.- Los medianos y pequeños propietarios cuyos fundos hayan sido expropiados totalmente, tendrán derecho, una vez establecida la respectiva organización agraria, a obtener en propiedad, a título oneroso, una parcela adecuada a sus necesidades y a la zona.
