@@ -1,0 +1,1 @@
+Artículo 9°-Se autoriza al Instituto Geográfico Nacional para que interprete los límites señalados y se declaran oficiales los mapas que de esos distritos prepare en su oportunidad el mismo Instituto.

@@ -1,0 +1,1 @@
+Artículo 8°-El nombre de los distritos y de los poblados señalados en los artículos anteriores, sólo podrán ser variados si se presentaran conflictos toponímicos, previo informe de la Comisión Costarricense de Nomenclatura, creada por ley N° 3535.
