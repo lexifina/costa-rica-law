@@ -1,0 +1,2 @@
+Artículo 11.—De la exportación y liquidación: Concluido el contrato, los bienes importados objeto del presente Reglamento, deberán depositarse en un almacén fiscal en un plazo máximo de un mes y se podrá
+gestionar la liquidación de los tributos exonerados, de conformidad con lo establecido en el artículo 45, párrafo II de la Ley No 7293, o bien la exportación, salvo los que por su naturaleza sean fungibles o consumibles.

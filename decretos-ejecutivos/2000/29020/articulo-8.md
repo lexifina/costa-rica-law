@@ -1,0 +1,4 @@
+Artículo 8°—Trámite para la obtención de las exoneraciones:
+Una vez que el interesado obtenga su respectiva acreditación de beneficiario, cada vez que desee tramitar una exoneración de equipo, maquinaria, vehículos, para el trabajo de campo, los instrumentos, los repuestos, los materiales y otros bienes y servicios importados, deberá presentar los siguientes documentos:
+a) Solicitud de exención de impuestos, en el formulario de que se trate, ya sea para exonerar impuestos de compras en el mercado nacional o impuestos de importación.
+b) Presentar ante el Departamento de Exenciones del Ministerio de Hacienda el formulario de exención debidamente refrendado por el Ministerio del Ambiente y Energía y los demás requisitos que defina dicho departamento en el instructivo que se confeccionará para tal efecto.

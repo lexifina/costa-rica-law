@@ -1,0 +1,1 @@
+Artículo 9°—De los plazos: El MINAE, dispondrá de diez días hábiles para revisar la solicitud y pronunciarse sobre la misma y el Ministerio de Hacienda, deberá resolver la solicitud de exención en un término máximo de ocho días hábiles a partir del recibo de esta en forma completa en el Departamento de Exenciones.
