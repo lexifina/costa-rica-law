@@ -1,0 +1,4 @@
+POPULAR SOCIEDAD DE FONDOS DE INVERSIÓN S. A.
+En sesión ordinaria de Junta Directiva Nº 69, artículo 4°, celebrada el 5 de mayo del 2003, se acordó por unanimidad aprobar: Reglamento Complementario de Contratación Administrativa de Popular Sociedad de Fondos de Inversión S. A.
+REGLAMENTO COMPLEMENTARIO DE CONTRATACIÓN ADMINISTRATIVA DE POPULAR SOCIEDAD DE FONDOS DE INVERSIÓN SOCIEDAD ANÓNIMA
+Artículo 1º—Fundamento. El presente Reglamento se dicta de conformidad con lo establecido en el artículo 109 de la Ley de Contratación Administrativa, el artículo 188 del Código de Comercio, el artículo 8 del Decreto Nº 27503-H "Reglamento para la Constitución de Puestos de Bolsa, Sociedades Administradoras de Fondos y Operadoras de Pensiones Complementarias de los Bancos Públicos y del Instituto Nacional de Seguros y el artículo 55 de la Ley Reguladora del Mercado de Valores.

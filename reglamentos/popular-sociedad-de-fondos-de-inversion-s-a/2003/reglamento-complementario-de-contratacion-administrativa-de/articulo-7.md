@@ -1,0 +1,2 @@
+Artículo 7º—Confección de carteles. En las contrataciones que promueva Popular Sociedad de Fondos de Inversión Sociedad Anónima, el área usuaria deberá hacer llegar a la Unidad de Compras una descripción clara y precisa de los bienes o servicios por adquirir, plazos y demás requisitos necesarios para identificar el objeto de la contratación.
+Cuando la publicación consista en un extracto del cartel, ésta contendrá, al menos, lo indicado en los numerales 45.1.1 a 45.1.4 del Reglamento General de Contratación Administrativa.
