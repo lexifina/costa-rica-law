@@ -1,0 +1,2 @@
+Artículo 34.- Las obligaciones a cargo del propietario se exigirán directamente a éste, aunque no esté ocupando personalmente el piso o departamento. En este caso, cuando el propietario no sea quien lo habite, quienes ocupen los departamentos o pisos, responderán de las infracciones sin perjuicio de la responsabilidad civil subsidiaria del propietario.
+La infracción reiterada en que incurra el inquilino u ocupante de un departamento, será causal de desahucio, y esta acción lo podrá plantear también el administrador.

@@ -1,0 +1,3 @@
+Artículo 8º.- El propietario que se proponga construir en su terreno un edificio dividido en pisos o departamentos, puede, mediante declaración ante notario en ese sentido, hacer que el edificio proyectado se regule por el régimen establecido en esta ley, desde el momento en que el terreno y el edificio por construir se den en garantía de un crédito o desde que se venda o se prometa vender cualquiera de las divisiones proyectadas.
+Cuando se termine la edificación, se hará constar así en el Registro, dando fe el Notario de ese hecho con vista de la constancia que expedirá la Municipalidad correspondiente.
+En la escritura se consignarán, en lo pertiente, los requisitos exigidos por el artículo anterior.
