@@ -1,3 +1,0 @@
-Artículo 27.-Los reos que hubieren sido condenados á inhabilitación absoluta ó especial perpetua para cargos y oficios públicos, derechos políticos ó profesiones titulares, pueden solicitar su rehabilitación después de haberla sufrido cuatro años á lo menos, si esa pena hubiere sido impuesta como principal; si lo hubiere sido como accesoria, no podrá pedirse rehabilitación sino cuando hubiere sido descontada la pena principal, ó cuando se hubiere indultado toda la pena principal.
-En ningún caso se otorgará la rehabilitación si el penado no hubiere mostrado con su conducta, arrepentimiento y enmienda.
-Puede concederse la rehabilitación total ó solamente parcial.

@@ -1,4 +1,0 @@
-Artículo 2°.-Unicamente podrán pedir gracia el propio delincuente, ó su cónyuge, ó cualquiera de sus ascendientes ó descendientes legítimos ó naturales notoriamente conocidos, ó cualquiera de sus hermanos legítimos.
-No se admitirá ninguna solicitud hecha por persona distinta del reo, si no se acompaña prueba del parentesco que ligue al petente con el reo, ó de ser el petente su cónyuge.
-La prueba puede ser una simple certificación de la autoridad política ó judicial del lugar de donde es vecino el petente, puesta al pie del escrito, ó en documento separado, en que asegure, por el conocimiento de los interesados ó por informes fidedignos, que el petente ó presunto petente está ligado con el reo por matrimonio, ó por parentesco que le da derecho á solicitar la gracia, expresando cuál es el grado de parentesco que los une.
-Lo dicho en este artículo no es aplicable al caso en que un indulto es recomendado por el tribunal sentenciador.
