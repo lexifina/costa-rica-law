@@ -1,1 +1,2 @@
-Artículo 16.-La Comisión Consultiva y de Coordinación para el Fomento Industrial creada por e! artículo 14 de la Ley de Protección y Desarrollo Industrial deberá reunirse para conocer los proyectos sobre las actividades enumeradas en el artículo 3° del Convenio Centroamericano de Incentivos Fiscales para e! Desarrollo Industrial.
+Artículo 16.-La Comisión Consultiva y de Coordinación para el Fomento Industrial creada por el artículo 14 de la Ley de Protección y Desarrollo Industrial, se reunirá únicamente cuando sea convocada por el Director General de Industrias.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 1003 del 15 de mayo de 1970).

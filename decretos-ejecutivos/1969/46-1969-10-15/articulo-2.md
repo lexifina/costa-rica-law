@@ -1,3 +1,2 @@
-Artículo 2°-Con excepción del Director General de Industrias y del Director General de Integración y Comercio los demás miembros serán nombrados por un período de dos años.
-Todos los miembros podrán ser sustituidos en sus ausencias temporales u ocasionales. Para acreditar esta sustitución, bastará comunicación escrita del ente representado.
-El delegado del Sistema Bancario Nacional será nombrado por la Junta Directiva del Banco Central, de tina terna que le presente la Comisión de Coordinación Bancaria.
+Artículo 2°-Con excepción del Director General de Industrias y del Director General de Integración Económica y Comercio, todos los demás delegados pueden ser sustituidos libremente por las entidades que representan. Para acreditar por ausencias representaciones transitorias, temporales y ocasionales de los delegados propietarios, bastará comunicación escrita del ente representado.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 1003 del 15 de mayo de 1970).
