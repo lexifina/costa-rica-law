@@ -1,0 +1,9 @@
+# Crea Plaza de Guarda Almacén en Aduana Principal
+
+Ley N° 49 del 1931-04-21. SINALEVI, ficha 37434: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37434&param2=39467&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1931-04-21 | Ley 49 | 1931-04-21 |
