@@ -2,10 +2,6 @@ CAPITULO VI
 Procedimientos de contratación
 Sección primera
 Generalidades
-ARTICULO 27.- ANULADO por Resolución de la Sala Constitucional Nº
-998-98 de las 11:30 horas de 16 de febrero de 1998.
-(NOTA: Este artículo se reforma mediante ley N° 8251 de 29 de abril del 2002, con
-el siguiente texto, sin embargo entra en vigencia hasta el día 1 de enero del 2003:
 Artículo 27.—Determinación del procedimiento.
 Cuando la ley no disponga un procedimiento específico en función del tipo de contrato, el procedimiento se determinará de acuerdo con las siguientes pautas:
 a) Las administraciones cuyo presupuesto autorizado para el período, específicamente lo que se contempla para respaldar sus necesidades de contratar bienes y servicios no personales, sea superior a treinta mil millones de colones (¢ 30.000.000.000,00), utilizarán la licitación pública para las contrataciones superiores a ciento ochenta millones de colones (¢ 180.000.000,00); la licitación por registro para las contrataciones entre ciento ochenta millones de colones (¢180.000.000,00) y ochenta millones de colones (¢ 80.000.000,00); la licitación restringida para las contrataciones entre ochenta millones de colones (¢80.000.000,00) y veinticinco millones de colones (¢25.000.000,00) y la contratación directa para las contrataciones inferiores a veinticinco millones de colones (¢25.000.000,00).
@@ -23,3 +19,4 @@ Para establecer dicho monto, deberá considerarse el promedio de las sumas presu
 Los ministerios y los órganos que hayan desconcentrado sus servicios de proveeduría, se considerarán como unidades separadas, para los efectos de la clasificación correspondiente.
 En todo caso, la Proveeduría Nacional se clasificará de acuerdo con el monto que arroje la suma de los presupuestos para respaldar las necesidades de contratar bienes y servicios no personales de los ministerios cuya actividad contractual sea desarrollada por dicha entidad.
 Las sumas establecidas en este artículo se ajustarán cada año, tomando como referencia, entre otros, la variación porcentual del índice general de precios al consumidor. A más tardar en la segunda quincena de febrero de cada año, la Contraloría General de la República dictará una resolución que incorpore los incrementos y especifique los parámetros vigentes para cada órgano y cada ente comprendidos en esta Ley.)
+(Así refromado por el artículo 1 de la Ley N° 8251 de 29 de abril del 2002)
