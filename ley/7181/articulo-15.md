@@ -1,6 +1,6 @@
 ARTICULO 15.- Por las actividades que se citan a continuación, los
-patentados pagarán el impuesto de patentes conforme con el criterio que se
-indica para cada una de ellas.
+patentados pagarán el impuesto de patentes conforme con el criterio que
+se indica para cada una de ellas.
 Cuando en un mismo establecimiento se realicen conjuntamente
 diferentes actividades de las señaladas en este artículo, el monto de la
 imposición se determinará de acuerdo con lo que establece el artículo 12.
