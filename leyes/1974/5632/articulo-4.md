@@ -1,2 +1,2 @@
-ARTICULO 4.- El Poder Ejecutivo reglamentará la presente ley, en un
-plazo máximo de sesenta días.
+ARTICULO 4º.- La forma y fiscalización de estas recaudaciones serán
+determinadas por la Contraloría General de la República.
