@@ -1,0 +1,1 @@
+Artículo 26.- Las recomendaciones generales de este Departamento para mejorar las dependencias públicas, serán presentadas al Presidente de la República por medio del Director de Planificación, a efecto de que se les dé el trámite que corresponda.
