@@ -1,1 +1,0 @@
-Artículo 10.- Se autoriza a las instituciones autónomas y semiautónomas del Estado a conceder empréstitos y a éstas y a los Poderes del Estado a hacer donaciones a la Junta, para el mejor cumplimiento de los propósitos de esta ley.

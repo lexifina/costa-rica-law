@@ -1,1 +1,0 @@
-Artículo 16.- Queda autorizada la Dirección Nacional de Comunicaciones para administrar y dar en arriendo los apartados postales en todo el territorio nacional, en beneficio de la Junta Administrativa para las necesidades propias del correo.
