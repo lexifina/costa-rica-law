@@ -1,2 +1,2 @@
-Artículo 17.-Todos aquellos trabajos que se realicen con la maquinaria municipal a los grupos citados anteriormente, deberán cancelar a la Municipalidad la suma asignada por el Concejo.
-(Así reformado mediante sesión N° 64 del 02 de abril de 1991).
+Artículo 17.-Las sanciones al incumplimiento de este reglamento serán de acuerdo con el Código Municipal.
+(Así corrida su numeración mediante reforma publicada en el Alcance N° 21 a La Gaceta N° 59 del 25 de marzo de 1999, que lo traspasó del anterior artículo 18 al 17 actual).
