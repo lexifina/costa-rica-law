@@ -15,3 +15,4 @@ Reglamento General de Contratación Administrativa
 | --- | --- | --- |
 | 1 | 1996-03-28 | la propia norma |
 | 2 | 1996-03-28 | SINALEVI (sin norma nombrada) |
+| 3 | 2001-04-04 | SINALEVI (sin norma nombrada) |
