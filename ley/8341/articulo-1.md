@@ -16,3 +16,4 @@ ADMINISTRACIÓN TRIBUTARIA, ASÍ COMO REUNIR LAS PRUEBAS
 REQUERIDAS PARA CONFORMAR LOS EXPEDIENTES RELATIVOS
 A LAS INFRACCIONES TRIBUTARIAS Y DELITOS TRIBUTARIOS.").
 (Véase el artículo 1° del decreto ejecutivo N° 31174 de 21 de abril de 2003, el cual modifica el presente numeral)
+(Modificado por el artículo 1° del decreto ejecutivo N°31213 de 05 de junio de 2003, publicado en La Gaceta No. 122 de 26 de junio de 2003.)
