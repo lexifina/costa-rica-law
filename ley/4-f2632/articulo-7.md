@@ -1,0 +1,1 @@
+Artículo 7°-La jurisdicción para conocer de las predichas infracciones corresponde a los Agentes Principales de Policía en las capitales de provincia y a los Jefes Políticos en los cantones menores, debiendo hacerse el juzgamiento de conformidad con lo expuesto en el título II libro V del Código de Procedimientos Penales.
