@@ -1,0 +1,1 @@
+Art 3° La enseñanza será esencialmente práctica, gradual y adecuada a las condiciones sociales del país y a las particulares de cada localidad. Su índole, extensión y desarrollo, serán determinados en los programas oficiales.

@@ -1,0 +1,1 @@
+Art 5° Las materias señaladas para las escuelas de tercer orden, constituyen el mínimum de instrucción primaria obligatoria; el excedente, atribuido a las de primero y segundo orden, se considera como enseñanza complementaria.
