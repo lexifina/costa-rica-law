@@ -14,3 +14,4 @@ Reglamento para Venta de Lotes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-29 | la propia norma |
+| 2 | 1998-12-10 | Reglamento 4851 (1998-12-10) |

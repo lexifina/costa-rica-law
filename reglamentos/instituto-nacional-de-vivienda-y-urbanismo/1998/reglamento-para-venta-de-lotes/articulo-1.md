@@ -4,4 +4,5 @@ El Instituto Nacional de Vivienda y Urbanismo en Sesión N°4787, Artículo XII,
 INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
 REGLAMENTO PARA VENTA DE LOTES
 De conformidad con el artículo 25, inciso f) de la Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo, número 1788 de 24 de agosto de 1954. la Junta Directiva del Instituto Nacional de Vivienda y Urbanismo, emite el siguiente reglamento que regulará la venia de lotes con y sin servicios (excluyendo los que se manejen como programa), de fondos de palio, de reservas y comerciales.
-Articulo 1o—El Instituto Nacional de Vivienda y Urbanismo en cumplimiento de la función social con que fue concebido y para la consecución de sus fines tiene como parte de su actividad ordinaria la venta de lotes con o sin servicios, de fondos de palio, de reserva no utilizables y comerciales.
+Artículo 1°—El Instituto Nacional de Vivienda para la consecución de sus fines tiene como parte de su actividad la venta de lotes con o sin servicios, de lotes filiales de propiedad horizontal, de fondos de patio, de reserva no urbanizabas y comerciales. Constituye actividad ordinaria la venta de lotes residenciales con o sin servicios.
+(Así reformado mediante sesión N° 4851, artículo V, inciso 4) del 10 de diciembre de 1998, del Instituto Nacional de Vivienda y Urbanismo.)

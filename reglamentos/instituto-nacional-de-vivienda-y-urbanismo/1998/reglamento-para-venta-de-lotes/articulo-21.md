@@ -1,0 +1,2 @@
+Artículo 21.—Los lotes cuyas ventas no se formalizarán por las circunstancias indicadas podrán ser nuevamente solicitados, por una única vez, sin necesidad de acuerdo previo de la Junta directiva y bajo las mismas condiciones de venia, con excepción del precio en el caso de que la vigencia del avalúo haya expirado.
+(Así adicionado mediante sesión N° 4851, artículo V, inciso 4) del 10 de diciembre de 1998, del Instituto Nacional de Vivienda y Urbanismo.)

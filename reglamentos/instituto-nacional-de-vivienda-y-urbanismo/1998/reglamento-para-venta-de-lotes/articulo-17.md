@@ -1,1 +1,3 @@
-Artículo 17.—De existir ofertas de igual monto, se otorgará el bien atendiendo el principio de que se satisfaga más adecuadamente el interés publico perseguido por el Instituto con el procedimiento de policitación.
+Articulo 17.—De existir ofertas de igual monto, se otorgará el bien, atendiendo el principio de que se satisfaga más adecuadamente el interés público perseguido por e! Instituto con el procedimiento de policitación.
+Dicho interés público se definirá de acuerdo a las características del sitio, del comercio a desarrollar y de las condiciones de los distintos elementos de la oferta, según la relación que para tal electo se haga en el cartel respectivo de la policitación que se trate.
+(Así reformado mediante sesión N° 4851, artículo V, inciso 4) del 10 de diciembre de 1998, del Instituto Nacional de Vivienda y Urbanismo.)

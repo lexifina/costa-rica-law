@@ -1,1 +1,2 @@
-Artículo 15.—Se procederá por policitación y la apertura de un expediente administrativo, debidamente foliado, calificado de conformidad con el cartel publicado v la normativa aplicable, como de todas aquellas ofertas que se premiaron durante el proceso.
+Artículo 15.—Se procederá para la policitación a la apertura de un expediente administrativo, debidamente foliado y calificado de conformidad con el cartel publicado en la forma indicada en el artículo anterior y la normativa aplicable, constarán de todas aquellas ofertas que se presenten durante el proceso.
+(Así reformado mediante sesión N° 4851, artículo V, inciso 4) del 10 de diciembre de 1998, del Instituto Nacional de Vivienda y Urbanismo.)
