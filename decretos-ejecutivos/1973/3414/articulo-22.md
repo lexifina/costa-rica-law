@@ -1,2 +1,7 @@
-ARTICULO 22.- El trámite para solicitar el reconocimiento de laespecialidad será el siguiente:
-El profesional presentará solicitud por escrito a la DirecciónEjecutiva, para que se reconozca como ingeniero o arquitecto especialista,adjuntando original y copia de los atestados que respalden su petición.
+ARTICULO 22.- El trámite para solicitar el reconocimiento de especialidad será el siguiente:
+a) El profesional miembro activo del Colegio Federado, presentará su solicitud por escrito a la Dirección Ejecutiva, adjuntando original y copia de los atestados que respaldan su petición, y recibo que certifique el pago de los derechos que el Colegio Federado haya establecido para cubrir los gastos de este trámite.
+b) La Dirección Ejecutiva entregará los atestados al Colegio o colegios correspondientes para su evaluación, una vez comprobado que la documentación requerida está completa.
+c) La Junta Directiva del Colegio a que corresponda la especialidad. enviará la solicitud a la Comisión Evaluadora de Atestados nombrada para tal efecto, la cual podrá recurrir al asesoramiento que considere pertinente y deberá recomendar a aquella el otorgamiento o denegatoria de la especialidad. Asimismo, comunicará sobre dicha petición a los demás miembros del Colegio Federado por medio del Boletín Informativo o en su defecto mediante una circular, para que estos presenten sus objeciones si las hubiera, dentro de los quince días hábiles siguientes a la comunicación.
+ch) La Junta Directiva del Colegio correspondiente conocerá el informe de la Comisión y elevará su pronunciamiento a la Junta Directiva General para su resolución final.
+d) En el caso de ser rechazada la solicitud de reconocimiento de especialidad, el interesado podrá presentar una nueva solicitud un año después de la denegatoria.
+(Así reformado por Acuerdo de Sesión Nº 3 de 19 de octubre de 1982)

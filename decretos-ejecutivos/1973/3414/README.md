@@ -15,3 +15,4 @@ Reglamento Interior General Colegio Federado Ingenieros y Arquitectos
 | --- | --- | --- |
 | 1 | 1973-12-13 | la propia norma |
 | 2 | 1973-12-13 | Decreto Ejecutivo 13072 (1981-10-29) |
+| 3 | 1982-10-19 | Reglamento 3 (1982-10-19) |
