@@ -1,0 +1,1 @@
+Artículo 4º—Los recursos del Fondo de Asistencia Técnica exclusivamente deberán ser utilizados para el apoyo de proyectos de asistencia técnica privada, de capacitación, proyectos de adaptación tecnológica, estudios específicos y apoyo a la labor de supervisión y seguimiento de proyectos, de conformidad con el Reglamento Operativo para el funcionamiento del Comité.

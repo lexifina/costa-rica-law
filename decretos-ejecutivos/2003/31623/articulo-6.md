@@ -1,0 +1,1 @@
+Artículo 6º—Los recursos del Fondo de Asistencia Técnica serán invertidos en cualquiera de las instituciones públicas de intermediación financiera, debidamente autorizadas y supervisadas por la SUGEF, ello con la finalidad de obtener el mejor rendimiento con la mayor seguridad, según las normas legales existentes y aplicables en la materia.
