@@ -1,0 +1,11 @@
+BANCO HIPOTECARIO DE LA VIVIENDA
+La Junta Directiva del Banco Hipotecario de la Vivienda en su sesión 25-2004, artículo 14º, del 29 de abril del presente año, tomó el acuerdo Nº 10, que indica lo siguiente:
+"Acuerdo Nº 10:
+Considerando:
+A) Que mediante acuerdo número 1 de la sesión 13-94 del 10 de febrero de 1994, publicado en La Gaceta Nº 46 del 7 de marzo de ese mismo año, la Junta Directiva de este Banco aprobó las "Normas operativas sobre la preparación, redacción, ejecución y control de acuerdos de Junta Directiva". El artículo 11 de dichas Normas establece que la entrega de copias o certificaciones de las actas y acuerdos de la Junta Directiva que hayan sido requeridas por cualquier persona, debe ser autorizada por la Junta Directiva.
+B) Que en virtud de que este tipo de documentos son de carácter público, esta Junta Directiva estima conveniente modificar el artículo 11 de las referidas Normas, en el sentido de establecer que las copias y certificaciones de las actas y acuerdos sean entregados por la Secretaría de Junta Directiva a los interesados, sin que para ello medie un acuerdo expreso de autorización, pero requiriendo a la Secretaría de Junta Directiva que informe a este Órgano sobre los documentos que se han solicitado por parte del solicitante.
+Por tanto:
+Se acuerda:
+1º—Modificar y adicionar el artículo 11 de las "Normas operativas sobre la preparación, redacción, ejecución y control de acuerdos de Junta Directiva", aprobadas mediante acuerdo número 1 de la sesión 13-94 del 10 de febrero de 1994, para que se lea como sigue:
+"Artículo 11.—Copias y certificaciones. Con excepción de aquellos casos que restrinja la Ley, cualquier persona podrá obtener de la Secretaría de la Junta Directiva copia o certificación de parte o la totalidad del contenido de las actas y acuerdos, una vez que estos se encuentren firmes.
+Presentada una solicitud de copia o certificación, la Secretaría procederá de conformidad, entregando los documentos solicitados, con excepción de los que restrinja la ley, informando posteriormente a la Junta Directiva, en la siguiente sesión ordinaria. El costo de las copias y certificaciones correrá por cuenta del solicitante, si su volumen así lo amerita a criterio de la Secretaría de Junta Directiva."
