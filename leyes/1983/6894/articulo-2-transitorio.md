@@ -1,0 +1,1 @@
+Transitorio II.-El capital social mínimo que deberá suscribirse y pagarse para que pueda funcionar BANCOOP, R. L. será el que al momento del traspaso pertenezca al Banco Costarricense de la Cooperación , S. A., siempre y cuando se capitalice la totalidad de las utilidades, hasta alcanzar el monto mínimo establecido por la ley número 6813 del 29 de setiembre de 1982.
