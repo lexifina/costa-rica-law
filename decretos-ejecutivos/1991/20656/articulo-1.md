@@ -5,6 +5,7 @@ En uso de las facultades y atribuciones que les confieren el artículo 140, inci
 DECRETAN:
 Artículo 1°-Modifíquense los artículos 3°, 4°, 5°, 6°, 7°, 8°, 10, 11, 12 y 13 del decreto ejecutivo N° 20217-MOPT, Régimen Tarifario para la Prestación de Servicios y Facilidades Aeroportuarias, para que en adelante se lean:
 (NOTA: mediante el artículo 1° del Decreto Ejecutivo N° 22861 se reforma el Decreto N° 21852 en cual a su vez reformaba este decreto, por lo que se reproduce el texto de dicha reforma, posteriormente mediante el artículo 1° del Decreto Ejecutivo N° 23007 de 07/03/1994, que reforma al N° 22861 se indica que la reforma del inciso h) del artículo 12 rige a partir del 1° de octubre de 1993).
+(NOTA DE SINALEVI: Este artículo fue reformado por el numeral 1° del Decreto Ejecutivo N° 24168 de 27 de marzo de 1995, que reformó el decreto N° 22861, no obstante, el Juzgado Contencioso Administrativo y Civil de Hacienda mediante Sentencia N° 312 de las trece horas del 23 de mayo de dos mil uno, declaró nulo el decreto N° 24168, indicando la vigencia del decreto N° 22861. Dicha sentencia fue confirmada por la Sección Segunda del Tribunal Contencioso Administrativo del Segundo Circuito Judicial de San José por sentencia No. 561 de 21 de noviembre de 2003).
 “Artículo 3°--Los derechos aplicables a aquellas aeronaves que efectúan aterrizajes en los aeropuertos internacionales del país serán los siguientes:
 Rangos de PMD | Tarifa por Tonelada Métrica
 | Cuando el servicio se origine en vuelos locales. | Cuando el servicio se origine en vuelos internacionales.
@@ -48,11 +49,11 @@ Artículo 8°—EI derecho de estacionamiento se aplicará a aquellas aeronaves 
 En caso de los servicios cargueros se podrá descontar tres horas para efecto de !a operación de carga y descarga y en el caso de servicios de pasajeros, se descontaron 90 minutos para la operación de abordaje y desabordaje.
 La tarifa se aplicará por cada hora o fracción mayor de 30 minutos a razón de 13,00 por cada tonelada métrica de PMD cuando se trate de servicios locales y US $ ), 10 cuando se trate de servicios internacionales.
 Las operaciones de servicios regulares realizadas entre las 18:00 y las 6:00 horas que deban pernoctar en la terminal aérea se le aplicará una reducción de un 50% con especto a la tarifa establecida.
-Artículo 10: Por el uso de las instalaciones y servicios de los Aeropuertos Internacionales, a los pasajeros de vuelos internacionales se les cobrará a través del Comprobante de Pago Unificada (CPU),lo siguiente:
-Nacionales $ 6,00
-No nacionales $ 15,00
-El Banco Central de Costa Rica se encargará de realizar los ajustes correspondientes para la distribución de dichos montos.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 24144 de 27 de marzo de 1995).
+Artículo 10.*-Por el uso de las instalaciones y servicios de Aeropuertos Internacionales, a los pasajeros de vuelos internacionales se les cobrará lo siguiente:
+Nacionales y extranjeros miembros de delegaciones culturales y deportivas que viajen en representación del país, con la aprobación del Ministerio de Cultura, Juventud y Deportes $ 6,00.
+Extranjeros $ 15,00.
+Dicho cobro se realizará una vez que el Banco Central de Costa Rica tenga a disposición los timbres correspondientes.
+*(Así reformado por el artículolo 1° del Decreto Ejecutivo N° 24203 de 21 de abril de 1995).
 Artículo 11°.—Los derechos de seguridad, se cobrarán a toda empresa de transporte aéreo que opere en los aeropuertos internacionales. El derecho se establece como contraprestación a los servicios de inspección de pasajeros y equipaje, así como los de vigilancia en la terminal siendo su monto el siguiente:
 a. Pasajeros en vuelos internacionales: 11,00 por pasajero
 b. Pasajeros en vuelos locales: 11,00 por pasajero
