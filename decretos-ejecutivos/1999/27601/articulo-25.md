@@ -1,0 +1,3 @@
+CAPITULO VIII
+De la declaración de bienes.
+Artículo 25.- Periodicidad de la declaración de bienes inmuebles. La Administración Tributaria, deberá poner a disposición de los contribuyentes de su cantón un formulario de declaración de bienes inmuebles y su instructivo. Mediante resolución debidamente publicada en el Diario Oficial establecerá el período para la distribución y recepción de las declaraciones del impuesto sobre bienes inmuebles, lo que no implica la aceptación del monto declarado por el sujeto pasivo, pudiendo ser corregido según lo establecido en los artículos 15 inciso c) y 16 de la Ley del Impuesto sobre Bienes Inmuebles.

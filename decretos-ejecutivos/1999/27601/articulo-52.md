@@ -1,0 +1,1 @@
+Artículo 52.- Derogatoria. Derógase el Decreto Ejecutivo Nº 24857-H que se publicara en "La Gaceta" Nº 244 del 26 de diciembre de l995; deróguese todo lo establecido en el Decreto Ejecutivo Nº 27014-H de 27 de abril de l998 publicado en el Alcance Nº 19 a "La Gaceta" Nº 103 del 29 de mayo de l998, que se oponga al presente reglamento.

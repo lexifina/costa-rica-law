@@ -1,0 +1,2 @@
+Artículo 39.—Sobre los pagos efectuados en forma tardía. El pago efectuado fuera del plazo acordado por la municipalidasd, (trimestres, semestre, anual), produce la obligación de pagar junto con el tributo adeudado, los intereses que señala el artículo 57 del Código de Normas y Procedimientos Tributarios .
+La condonación de intereses procederá mediante resolución administrativa, y solo cuando se demuestre que éstos tuvieron como causa, error imputable a la Administración Tributaria .

@@ -1,0 +1,1 @@
+Artículo 3º- Del hecho generador. El hecho generador del Impuesto sobre Bienes Inmuebles es la propiedad o tenencia de un bien inmueble en los términos establecidos en la Ley , al primero de enero de cada año.

@@ -1,0 +1,1 @@
+Artículo 42.—Responsabilidad de los funcionarios municipales. A los funcionarios municipales que dejen prescribir este impuesto, se les aplicará la sanción que establece el artículo 73 del Código Municipal.

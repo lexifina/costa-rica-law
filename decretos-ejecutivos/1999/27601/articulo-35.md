@@ -1,0 +1,1 @@
+Artículo 35.—Apelación por inadmisión. Denegada una apelación de derecho por el Concejo Municipal, el interesado podrá acudir ante el Tribunal Fiscal Administrativo y apelar por inadmisión. En la substanciación y trámite de dicha apelación se deben aplicar en lo pertinente las disposiciones de los artículos 157 del Código Tributario y 583 a 590 del Código Procesal Civil.

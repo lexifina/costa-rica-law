@@ -1,0 +1,1 @@
+Artículo 15.—De la notificacion. Todo sujeto pasivo propietario o poseedor de un inmueble, al que la Administración Tributaria le haya realizado un avalúo individual o una valoración general, deberá ser notificado del mismo.
