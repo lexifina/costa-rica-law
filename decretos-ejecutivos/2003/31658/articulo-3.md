@@ -1,0 +1,4 @@
+Artículo 3º—Se modifica el inciso 1 del artículo 56, para que en adelante su texto se lea de la siguiente forma:
+"Artículo 56.—Selección y Adjudicación.
+56.1 Dentro de los cinco días hábiles siguientes al acto de apertura, la Administración realizará el análisis de los aspectos formales de las ofertas, y concederá un plazo de hasta tres días hábiles, para que se subsane cualquier defecto formal o se supla cualquier información o documento trascendente omitido, siempre que con ello no se modifique su contenido en cuanto a las características de las obras, bienes o servicios ofrecidos, el precio, los plazos de entrega ni las garantías de los productos. Esta prevención podrá realizarse de oficio, por señalamiento de alguno de los participantes o a solicitud de parte interesada. Luego de finalizada esta etapa, la Administración conserva su facultad de solicitar de oficio cualquier subsanación que no hubiese advertido durante el plazo antes indicado."
+(...)

@@ -1,0 +1,15 @@
+Nº 31658-H
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE HACIENDA
+Con fundamento en las facultades establecidas en los artículos 140, incisos 3) y 8) y 146 de la Constitución Política, en los artículos 27 inciso 1) y 28 inciso b) de la Ley General de la Administración Pública, y la Ley No. 7494 del 2 de mayo 1995, denominada Ley de Contratación Administrativa.
+Considerando:
+1º—Que por Decreto Ejecutivo Nº 25038 del 6 de marzo del 1996, publicado en el Diario Oficial La Gaceta N° 62, de fecha 28 de marzo de 1996, el Poder Ejecutivo promulgó el denominado "Reglamento General de Contratación Administrativa"
+2º—Que con la aplicación del citado Reglamento, la Administración ha podido comprobar que los plazos para llevar a cabo los procedimientos de contratación ordinaria son sumamente extensos, lo que va no sólo en detrimento de lo que establece el artículo 182 de la Constitución Política, sino los principios que inspiran la contratación administrativa y el fin público.
+3º—Que otra de las razones que impulsan esta reforma es la modificación introducida por la Ley 8131 "Ley de la Administración Financiera de la República y Presupuestos Públicos", la que en el inciso d) del artículo 5º, establece el principio de anualidad del presupuesto (el presupuesto regirá durante cada ejercicio económico que irá del 1 de enero al 31 de diciembre) Asimismo, el artículo 46 contempla los compromisos presupuestarios e indica que los gastos comprometidos pero no devengados al 31 de diciembre de cada año, se afectarán automáticamente en el ejercicio económico siguiente y se imputaran a los créditos disponibles para este ejercicio, motivo por el que los procesos de contratación deben adaptarse a estos nuevos plazos, con el objetivo de que la mayor cantidad de procedimientos de contratación se ejecute dentro del período presupuestario respectivo.
+4º—Que es importante destacar que, con la presente modificación lo que se pretende básicamente es reducir los plazos establecidos para llevar a cabo los procedimientos de contratación administrativa, y permitir a la Administración que durante el período presupuestario pueda ejecutar los procesos de contratación para adquirir los insumos necesarios para lograr sus objetivos y metas. Por tanto:
+DECRETAN:
+Modificación al Decreto Ejecutivo Nº 25038 del 6 de marzo del 1996, publicado en el Diario Oficial La Gaceta N° 62, de fecha 28 de marzo de1996, denominado "Reglamento General de Contratación Administrativa"
+Artículo 1º—Se modifican los incisos 1 y 3 del artículo 47, para que en adelante su texto se lea de la siguiente forma:
+"Artículo 47.—Modificaciones y Aclaraciones al Cartel.
+47.1 Las modificaciones a las condiciones o especificaciones del cartel deberán anunciarse por los mismos medios que se cursó la invitación, con al menos tres días hábiles de anticipación al vencimiento del plazo para recibir ofertas.
+(...)
+47.3 Cuando se trate de simples aclaraciones a solicitud de parte o acordadas de oficio, que no impliquen modificación, es deber de la Administración incorporarlas de inmediato al expediente y darles una adecuada difusión dentro de las 24 horas siguiente."
