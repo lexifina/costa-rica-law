@@ -1,0 +1,1 @@
+Artículo 22.—Los ministerios y entidades públicas deberán brindar las facilidades para que MIDEPLAN verifique, según los procedimientos metodológicos establecidos, los datos aportados en los informes de evaluación remitidos a dicha Cartera.

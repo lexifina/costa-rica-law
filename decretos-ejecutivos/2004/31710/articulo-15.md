@@ -1,0 +1,1 @@
+Artículo 15.—De conformidad con lo establecido en el artículo 121, inciso 15) de la Constitución Política, los contratos de préstamo con el exterior, de los ministerios, entidades públicas y demás órganos, incluyendo aquellos garantizados con la responsabilidad general del Prestatario (Garantía Genérica), requerirán de la aprobación de la Asamblea Legislativa.
