@@ -1,0 +1,3 @@
+Artículo 2°-Facúltase al Poder Ejecutivo para que en el curso de los tres años próximos, en la época y extensión que el estado del Tesoro Público permita, se invierta la cantidad indicada con los fines expresados.
+AL PODER EJECUTIVO.
+Dado en el Salón de Sesiones del Palacio Nacional, en San José, á los diez días del mes de Julio de mil ochocientos noventa y nueve Secretario.-INOCENTE MORENO, Prosecretario. GONZÁLEZ VÍQUEZ, Vicepresidente.-JOSÉ JOAQUÍN TREJOS, Palacio Nacional.-San José, á diez y nueve de Julio de mil ochocientos noventa y dos.-Ejecútese. JOSÉ J. RODRÍGUEZ. El Secretario de Estado en el despacho de Beneficencia,-MANUEL V. JIMÉNEZ.
