@@ -1,0 +1,1 @@
+Artículo 3º—Del diseño y fabricación del casco. Los cascos a que se refiere el artículo 1º que se comercialicen en el país, deberán estar diseñados para proteger contra impactos en la cabeza de quien los usa, por lo que deberán estar fabricados mediante procesos y materiales que brinden niveles de seguridad de protección a la cabeza ante choques directos de hasta 40 km/h.

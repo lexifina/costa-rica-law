@@ -1,0 +1,1 @@
+Artículo 2º—Uso de casco en otros vehículos. No se permitirá el uso de casco en otros vehículos de motor diferentes a los del artículo 1º, salvo las excepciones estipuladas en este reglamento, cuando se circule por vía terrestre, pública o abierta al uso del público.

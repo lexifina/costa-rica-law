@@ -1,0 +1,19 @@
+Nº 31945
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES.
+En el ejercicio de las atribuciones conferidas por los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; y con fundamento en lo establecido en el Acuerdo Centroamericano sobre Circulación Carretera, Ley N° 3148, publicada en el Alcance N° 39 a La Gaceta N° 207 del 13 de setiembre de 1963; la Ley de Creación del Ministerio de Obras Públicas y Transportes, N° 4786 del 5 de julio de 1971 y sus reformas; la Ley General de Caminos Públicos, N° 5060 del 22 de agosto 1972 y sus reformas; la Ley General de la Administración Pública, N° 6227 del 2 de mayo de 1978 y sus reformas; la Ley de Tránsito por Vías Públicas Terrestres, N° 7331 del 13 de abril de 1993 y sus reformas y restantes disposiciones del ordenamiento jurídico vigente.
+Considerando:
+1º—Que el inciso q) del artículo 132 de la Ley de Tránsito por Vías Públicas Terrestres, Ley N° 7331 del 13 de abril de 1993, y sus reformas establece una multa de dos mil colones, sin perjuicio de la imposición de sanciones conexas, al conductor que viole las disposiciones del artículo 103 de la misma Ley.
+2º—Que el artículo 103 de la citada Ley estipula la obligación de portar casco correctamente sujetado cuando se circule por vías públicas terrestres o abiertas al uso del público conduciendo motocicletas y bicimotos, y que dicho casco debe cumplir con los requisitos que se estipulen en su respectivo reglamento.
+3º—Que tal disposición obligatoria es necesario ampliarla para la conducción de aparatos similares a motocicletas y bicimotos, tal es el caso de los cuadraciclos, y aún cuando no siendo el conductor, se viaja en el aparato como acompañante, de manera que los ocupantes de estos vehículos estén igualmente protegidos.
+4º—Que a pesar de que a la fecha no existe un reglamento técnico específico sobre esta materia, existe suficiente información internacional sobre fabricantes, diseño, fabricación, componentes y homologación de estos cascos para que los distribuidores se responsabilicen de comercializar en el país los cascos que mejor protejan a la persona que hace uso de ellos.
+5º—Que el nivel de seguridad de un casco no está necesariamente unido a su fabricación ni a sus prestaciones (peso, economía, aerodinámica, etc.), sino más bien a proteger la cabeza de la persona que lo utilice.
+6º—Que el uso de cascos y en particular de ciertos tipos de estos se presta para que personas inescrupulosas cometan acciones delictivas circulando en diferentes vehículos de motor, dificultando a las autoridades policiales la identificación de sospechosos de tales actos. Materia sobre la que se ha pronunciado a este respecto el Director General del Organismo de Investigación Judicial (OIJ).
+7º—Que es obligación de las autoridades de gobierno velar por la protección y seguridad de los habitantes de la República.
+8º—Que en el artículo 103 de la Ley de Tránsito se estipula que el casco debe cumplir con los requisitos que se estipulen por reglamento y que cualquier pasajero debe cumplir también con ello.
+9º—Que fundamentado en todo lo anterior es preciso dictar algunas disposiciones reglamentarias básicas para el uso de estos cascos cuando se circule por vías terrestres públicas o abiertas al uso del público. Por tanto,
+DECRETAN:
+siguiente,
+Reglamento de disposiciones básicas para el uso de casco al circular por vías terrestres públicas
+o abiertas al uso del público
+Artículo 1º—Obligatoriedad del uso del casco. Toda persona que se desplace por vía terrestre, pública o abierta al uso del público, en calidad de acompañante o conduciendo motocicleta, bicimoto, cuadraciclo o cualquier otro vehículo de motor, en donde la humanidad o el cuerpo de sus ocupantes se encuentre expuesto a cielo abierto, deberá utilizar casco protector de la cabeza.

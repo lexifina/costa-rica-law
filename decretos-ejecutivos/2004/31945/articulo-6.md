@@ -1,0 +1,1 @@
+Artículo 6º—Sanción. De conformidad con lo estipulado en el artículo 132, inciso q) de la Ley de Tránsito se impondrá una multa de dos mil colones al conductor de bicimoto o motocicleta que viole las disposiciones del artículo 103 de dicha Ley.
