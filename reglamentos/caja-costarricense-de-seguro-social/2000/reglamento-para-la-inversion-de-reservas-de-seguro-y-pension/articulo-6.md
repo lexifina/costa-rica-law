@@ -1,0 +1,1 @@
+Artículo 6°—La rentabilidad promedio de las inversiones deberá cumplir con lo establecido en el artículo 1 de este Reglamento, y será al menos concordante con el indicador de rendimiento fijado por la Dirección Actuarial y de Planificación Económica. Ese indicador se fijará mensualmente teniendo en cuenta las condiciones del mercado financiero.
