@@ -1,0 +1,1 @@
+Artículo 24.- Para los efectos del artículo anterior, todos los puestos de la Dirección General de Educación Física y Deportes serán clasificados en armonía con el sistema de clasificación que prescribe el Estatuto de Servicio Civil.
