@@ -13,3 +13,4 @@ Declara Interés Público XX Conferencia Rotaract e Interact y XVIIIConferencia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-12-22 | la propia norma |
+| 2 | 1993-12-22 | SINALEVI (sin norma nombrada) |
