@@ -1,0 +1,1 @@
+Artículo 2°—Las autoridades superiores de la Institución realizarán las actividades y [acciones que tiendan a la celebración adecuada de dicha actividad dentro del respeto y promoción a la imagen del funcionario público y la institucionalidad civilista y democrática del país.
