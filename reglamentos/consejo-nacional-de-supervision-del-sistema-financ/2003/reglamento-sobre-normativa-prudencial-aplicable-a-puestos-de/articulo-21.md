@@ -1,0 +1,2 @@
+Artículo 21.—Potestades del Superintendente. Sin perjuicio de las obligaciones de información establecidas en este Reglamento, el Superintendente podrá solicitar a los puestos de bolsa y a las bolsas de valores la información que estime necesaria para un adecuado control del cumplimiento de la normativa prudencial.
+Igualmente podrá establecer las medidas precautorias que estime necesarias para asegurar la estabilidad del sistema, de conformidad con lo dispuesto en el artículo 155 de la Ley Reguladora del Mercado de Valores.

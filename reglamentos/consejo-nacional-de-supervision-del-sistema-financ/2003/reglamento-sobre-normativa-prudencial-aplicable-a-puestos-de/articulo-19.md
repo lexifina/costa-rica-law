@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Control de cumplimiento de la normativa prudencial
+Artículo 19.—Obligaciones de información de los puestos de bolsa. Los puestos de bolsa deberán presentar a la Superintendencia un informe mensual sobre el cumplimiento de la normativa establecida en el presente Reglamento, en el plazo, con el contenido y por los medios que indique el Superintendente.
+Sin perjuicio de lo anterior, estarán obligados a informar a la Superintendencia al día inmediato siguiente al que ocurran, los faltantes en los recursos propios que presenten, de conformidad con lo establecido en el artículo 3º de este Reglamento, cuando estos sean iguales o superiores a un 20% del requerimiento.
+En los casos en que exista un incumplimiento a la normativa establecida en el presente Reglamento, conjuntamente con el informe mensual el puesto de bolsa deberá presentar el plan de corrección correspondiente, el cual deberá incluir un detalle de las medidas concretas que propone para ajustarse a la normativa prudencial. Dicho plan estará sujeto a la aprobación del Superintendente. Todo ello sin perjuicio de la instrucción de los procedimientos administrativos que correspondan.

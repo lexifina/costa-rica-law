@@ -1,0 +1,1 @@
+Artículo 4º—Modificación de porcentajes aplicables a la cobertura de riesgos. El Superintendente General de Valores podrá modificar los porcentajes de recursos propios exigibles establecidos en este Reglamento hasta en un 50% por un plazo máximo de 60 días, cuando por las condiciones del mercado esto sea necesario.

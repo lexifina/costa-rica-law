@@ -1,0 +1,4 @@
+Artículo 14.—Requerimientos para la inversión de los recursos propios disponibles. Los recursos propios disponibles de los puestos de bolsa a excepción de los aportes para los fondos de garantías para la liquidación financiera de las operaciones con valores, deberán mantenerse en efectivo o invertidos en valores de oferta pública de emisores nacionales o extranjeros que de conformidad con la normativa vigente puedan ser utilizados para la cobertura del coeficiente de liquidez, al menos en la siguiente proporción:
+a) El 100% de los requerimientos de recursos propios definidos en los artículos 10 y 13 de este Reglamento.
+b) El 50% de los demás requerimientos de recursos propios.
+Para el control de los requerimientos de inversión contenidos en este Artículo, deberá restarse al saldo de las cuentas corrientes la sumatoria de los dineros por pagar a los clientes y a las carteras administradas.

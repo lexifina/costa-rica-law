@@ -1,0 +1,1 @@
+Artículo 22.—Informe al Consejo Nacional de Supervisión del Sistema Financiero. El Superintendente General de Valores presentará trimestralmente al Consejo Nacional de Supervisión del Sistema Financiero, un informe acerca del cumplimiento de la normativa prudencial por parte de los puestos de bolsa.
