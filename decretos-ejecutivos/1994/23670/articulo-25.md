@@ -1,0 +1,2 @@
+Asesoría de Divulgación y Prensa
+Artículo 25.- Corresponde a esta Asesoría, la programación, divulgación y desarrollo de proyectos, investigaciones, programas técnicos y administrativos, relacionados con las actividades que lleva a cabo el Fondo a nivel inter e intrainstitucional con el propósito de optimizar no sólo los recursos con que cuenta el Fondo sino el mejoramiento y la imagen entre los distintos usuarios del mismo.

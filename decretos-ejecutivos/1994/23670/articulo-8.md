@@ -1,0 +1,1 @@
+Artículo 8º.-Las instituciones del Estado que soliciten financiamiento del Fondo deberán presentar los proyectos de los programas y sus presupuestos en la fecha que establezca la DESAF, con el propósito de que está en coordinación con el Ministerio de Planificación, en el caso de los proyectos de inversión, los estudie y les o de el tramite que la ley establece.

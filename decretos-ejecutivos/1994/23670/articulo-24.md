@@ -1,0 +1,1 @@
+Artículo 24.-El Director Nacional evaluará periódicamente junto con el subdirector y los jefes de las otras Areas, la eficiencia de la gestión administrativa de la cual mantendrá informados al Ministro de Trabajo y Seguridad Social y a la Segunda Vicepresidencia de la República.

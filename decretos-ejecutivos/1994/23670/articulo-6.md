@@ -1,0 +1,1 @@
+Artículo 6º.-El Ministro de Trabajo y Seguridad Social establecerá, conforme con la ley y dentro del Plan del Area Social del Poder Ejecutivo, las prioridades y directrices que rijan la asignación de los recursos del Fondo. Para tal efecto, la DESAF le presentará los estudios y atestados correspondientes.

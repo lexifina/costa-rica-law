@@ -1,0 +1,1 @@
+Artículo 3º.-El Ministro de Trabajo y Seguridad Social es el superior jerárquico de la DESAF. Como tal, ejerce las potestades que la ley Nº 5662 le encomienda y las demás atribuciones que la Ley General de la Administración Pública y la Constitución Política establecen.
