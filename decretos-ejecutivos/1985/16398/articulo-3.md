@@ -1,0 +1,1 @@
+Artículo 3°-Los informes y documentos internos de la Dirección de Inteligencia y Seguridad se consideran secretos de Estado y todos los asuntos que se le encarguen se considerarán estrictamente confidenciales.
