@@ -1,0 +1,1 @@
+Artículo 2°—Un año después de la fecha indicada en el artículo anterior, las Municipalidades tendrán igualmente el derecho de percibir para sus propios fondos, la totalidad del impuesto de destace de ganado vacuno para el abasto público, con excepción de la parte que por la ley general de Educación común corresponde á los fondos escolares.
