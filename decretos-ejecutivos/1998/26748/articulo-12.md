@@ -1,1 +1,0 @@
-Artículo 12º- La AFE suscribirá un convenio con alguna de las empresas recicladoras de plásticos del país, el cual deberá suscribirse en un plazo no mayor de dos meses a partir de la publicación de la presente.

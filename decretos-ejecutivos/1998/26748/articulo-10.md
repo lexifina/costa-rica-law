@@ -1,1 +1,0 @@
-Artículo 10º- El funcionario de control responsable del uso de la llave, estará visitando la industria forestal cada quince días con el fin de recoger las placas utilizadas. Al retirar las placas, deberá levantar un acta donde se informe la fecha de visita y el número de placas recogidas, firmando en el acto el funcionario y el responsable de la industria.

@@ -1,1 +1,0 @@
-Artículo 8°- Será responsabilidad del dueño de la industria forestal velar porque la madera en troza se mantenga con las placas respectivas hasta el momento en que la troza sea colocada en el cano del aserradero.
