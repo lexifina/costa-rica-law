@@ -1,0 +1,1 @@
+Artículo 2°-El Ministerio de Economía y Hacienda sólo dará trámite a la exoneración cuando la Municipalidad haya comprobado mediante certificación expedida por la Contraloría General de la República, que cuenta con los recursos necesarios para cubrir la obligación autorizada por la presente ley.
