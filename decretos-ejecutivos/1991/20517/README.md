@@ -14,3 +14,4 @@ Créase el Bosque Nacional Diriá (Actualmente " Parque Nacional Diriá" )
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-07-09 | la propia norma |
+| 2 | 1992-03-03 | Decreto Ejecutivo 21221 (1992-03-03) |
