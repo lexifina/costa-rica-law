@@ -1,0 +1,1 @@
+Art 4°.- Queda vigente todo lo dispuesto hasta ahora acerca de mixtelas extranjeras.- Al Consejo Representativo.- Dado en San José a los veinticinco días del mes de enero de mil ochocientos treinta y uno.-Sala de Consejo.- San José Febrero 2 de mil ochocientos treinta y uno.-Por tanto: Ejecutese.- San José Febrero tres de mil ochocientos treinta y uno.
