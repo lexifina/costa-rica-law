@@ -6,3 +6,5 @@ b) Aportar timbres fiscales por un valor de ciento cuarenta colones y de diez co
 c) Visto bueno de la Oficina de la Cruz Roja del lugar en que conste la manera en que esta Unidad atenderá las emergencias durante el evento.
 d) Póliza del Instituto Nacional de Seguros sobre riesgos que satisfaga y cubra los posibles acontecimientos del evento.
 e) Contrato de alquiler o de préstamo del inmueble en que se realizara el evento y si se trata del propietario deberá presentar copia de la escritura y copia del plano catastrado para la respectiva ubicación del inmueble en relación con el Reglamento de Zonifícación de esta Municipalidad.
+f) Autorización de la Asociación de Compositores y Autores Musicales, para el uso del repertorio musical.
+(Así ampliado por el artículo 34 de la sesión N° 3, celebrada el 2 de mayo del 2002)
