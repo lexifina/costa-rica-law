@@ -1,0 +1,2 @@
+Art 10° Además de las sumas que anualmente se incluyan en el presupuesto para sueldos y otros gastos en la enseñanza primaria se presupondrá otra para distribuirla con convenientemente, como premios a los maestros que más se hayan esmerado y mas adelantamiento hayan obtenido en la mayoría de sus discípulos a juicio todo del Poder Ejecutivo.
+Los maestros de las escuelas privadas de instrucción primaria son relativamente acreedores a participar de los premios anuales, por las mismas razones y bajo las mismas reglas establecidas para los maestros de enseñanza pública.

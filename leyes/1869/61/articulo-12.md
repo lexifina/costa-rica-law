@@ -1,0 +1,1 @@
+Art 12° Los sueldos de que deben gozar los directores de las escuelas superiores, los de los maestros, y los de los ayudantes serán señalados por las Municipalidades con aprobación del Poder Ejecutivo.

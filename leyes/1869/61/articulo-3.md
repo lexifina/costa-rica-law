@@ -1,0 +1,1 @@
+Art 3° Se establecerán también en las cabeceras de Provincia y de Cantón, escuelas para niñas, en las cuales se enseñarán los mismos ramos que en las primarias de niños; y además de costuras y el bordado.

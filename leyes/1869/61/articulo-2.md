@@ -1,0 +1,1 @@
+Art 2° Los ramos de enseñanza en la escuela primaria elemental, serán; lectura, escritura, religión, moral, gramática castellana, aritmética, geografía, historia sagrada e historia de Costa Rica. Explicarán las mismas materias con mayor elevación y amplitud; y además se enseñarán: geometría elemental, geometría práctica y dibujo natural, lineal y de adorno.

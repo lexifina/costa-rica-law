@@ -1,0 +1,1 @@
+Art 11° Las vacaciones, la forma y tiempo de los exámenes y todo lo demás relativos a la enseñanza, régimen, disciplinas y policía interior, serán materia de los reglamentos que determinen y ordenes las Municipalidades, las cuales quedan facultadas para dictarlos sujetándolos a la aprobación del Poder Ejecutivo.

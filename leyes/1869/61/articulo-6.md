@@ -1,0 +1,2 @@
+Art 6° Los padres de familia y los tutores, en su caso, tienen la obligación de hacer asistir a la escuela pública a sus hijos y pupilos desde la edad de siete hasta la de catorce años, siempre que sus habitaciones no disten de ella más de media legua, o que no justifiquen que les dan educación privada.
+Los Gobernadores y Jefes Políticos impondrán multas desde veinticinco hasta cien centavos a los padres a tutores que falten a este deber, atendiendo a las circunstancias del culpable y a la reincidencia de las faltas.
