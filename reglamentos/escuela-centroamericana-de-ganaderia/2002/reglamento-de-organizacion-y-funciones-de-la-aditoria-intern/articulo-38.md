@@ -1,0 +1,1 @@
+Artículo 38.—Del conocimiento del Reglamento. Ningún funcionario alegará desconocimiento del presente Reglamento, quedando como obligación y responsabilidad de todas las Jefaturas de la Escuela, hacerlo del conocimiento al personal a su cargo. La Auditoría Interna facilitará los ejemplares del reglamento que requiera cada Director Gerencial.

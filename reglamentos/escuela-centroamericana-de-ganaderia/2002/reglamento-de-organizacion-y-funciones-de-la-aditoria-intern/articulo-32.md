@@ -1,0 +1,1 @@
+Artículo 32.—De las modificaciones al Reglamento. Las modificaciones que se estimen conveniente a este Reglamento serán propuestas a la máxima autoridad de la Escuela, al respecto, se deberá solicitar el criterio del Auditor General, previo a la toma de la decisión.

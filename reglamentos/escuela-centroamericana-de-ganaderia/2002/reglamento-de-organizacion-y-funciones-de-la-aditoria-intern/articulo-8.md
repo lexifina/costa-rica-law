@@ -1,0 +1,1 @@
+Artículo 8º—De la facultad de organización. El Auditor General organizará y dirigirá la Unidad de Auditoría Interna según la técnica en la materia y en la forma que considere más apropiada para el desempeño de su cometido, conforme con las disposiciones legales y reglamentarias vigentes y las disposiciones o normas dictadas por la Contraloría General de la República.

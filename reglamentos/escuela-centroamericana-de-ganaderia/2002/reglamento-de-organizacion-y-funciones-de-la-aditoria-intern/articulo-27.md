@@ -1,0 +1,2 @@
+Artículo 27.—De la supervisión. El Auditor General deberá supervisar la labor que realice la Unidad de Auditoría Interna, deberá guiar a los auditores en la ejecución del trabajo asignado.
+Esta supervisión tendrá como finalidad verificar el cumplimiento de los requisitos de calidad de trabajo, establecidos tanto por la Contraloría General de la República como por las normas de auditoría generalmente aceptadas.

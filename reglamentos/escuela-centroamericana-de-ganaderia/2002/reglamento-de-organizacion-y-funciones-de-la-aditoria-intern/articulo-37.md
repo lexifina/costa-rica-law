@@ -1,0 +1,1 @@
+Artículo 37.—De la capacitación y formación. Dentro del Plan anual de trabajo y en el Proyecto de presupuesto de la Auditoría Interna, se deberá incluir una previsión de tiempo y recursos respectivamente, para desarrollar las actividades de formación, de entrenamiento técnico y de capacitación profesional para los funcionarios de la Unidad.
