@@ -14,3 +14,4 @@ Crea Comisión Nacional de la Papa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-05-30 | la propia norma |
+| 2 | 1986-03-11 | Decreto Ejecutivo 16949 (1986-03-11) |
