@@ -1,0 +1,1 @@
+Artículo 2º—Acciones previas: De previo a realizar el procedimiento del concurso público que indica la Ley Nº 8292 y los lineamientos indicados en el artículo 1° de este reglamento, para el nombramiento del auditor interno, se requerirá de la existencia de un acuerdo tomado por el Concejo Municipal, nombrando al funcionario responsable o funcionarios responsables del proceso.
