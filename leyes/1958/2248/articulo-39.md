@@ -1,0 +1,1 @@
+Artículo 39.- Valor formal de la cotización. Para determinar el número de cuotas mensuales pagadas que sirvan de sustento al cumplimiento del requisito correlativo, se tendrá como cumplida la cuota pagada en cada mes calendario, independientemente del tiempo laborado en el mes y del número de cotizaciones realizadas en él, por razón de la forma de pago o del pluriempleo.

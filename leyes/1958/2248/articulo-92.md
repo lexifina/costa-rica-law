@@ -1,0 +1,3 @@
+Artículo 92.- Apelación. Contra el acto final cabrá recurso de apelación, el cual deberá ser interpuesto ante la misma Junta, dentro de los cinco días siguientes a la debida notificación del acto impugnado.
+Recibido el recurso de apelación, la Junta perderá toda competencia sobre la gestión del recurrente, salvado el caso exclusivo de la tramitación del recurso y, dentro de los tres días siguientes a la interposición, deberá elevar el expediente y el recurso, ante el Tribunal Superior de Trabajo, que resolverá en alzada administrativa.
+En la tramitación de la alzada, la Junta deberá atenerse a lo dispuesto en el artículo 349.2 de la Ley General de la Administración Pública.

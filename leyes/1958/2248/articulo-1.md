@@ -1,18 +1,16 @@
 N° 2248
-(Nota de Sinalevi: Mediante decreto ejecutivo No. 22009 del 2° de marzo de 1993, “Reglamento a la Ley que Reforma Integralmente la Ley de Pensiones y Jubilaciones del Magisterio Nacional”, se reglamentó la Ley No. 7268, que a su vez es una reforma integral de esta Ley.)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 La siguiente
 LEY DE PENSIONES Y JUBILACIONES
 DEL MAGISTERIO NACIONAL
-(Nota de Sinalevi: El texto de esta Ley fue reformado parcialmente y reproducido su texto en forma íntegra por el artículo 1° de la ley N° 7268 del 14 de noviembre de 1991 y se reproduce a continuación:)
-CAPÍTULO I
-DEL REGIMEN DE PENSIONES Y JUBILACIONES
-De los beneficiarios
-Artículo 1º.- Estarán protegidos por los alcances y beneficios de esta Ley las personas que se desempeñen en el Magisterio Nacional, específicamente:
-a) Quienes sirvan en cargos docentes, tal y como lo define el artículo 54 de la Ley de Carrera Docente, en instituciones educativas públicas o privadas de enseñanza preescolar, enseñanza general básica, educación diversificada y en las instituciones de educación superior estatal.
-(Así reformado el inciso anterior por el artículo 40 de la Ley Régimen General de Pensiones con Cargo al Presupuesto Nacional (Marco), N° 7302 del 8 de julio de 1992)
-b) El personal administrativo del Ministerio de Educación Pública y de los centros de educación antes indicados.
-c) Los funcionarios del Instituto Nacional de Aprendizaje, que ejerzan actividades docentes.
-ch) Quienes ya gozan de pensión o jubilación al amparo de esta Ley.
-Los beneficios de esta Ley sólo se concederán en el caso de que, efectivamente, se hayan pagado las cuotas obreras y patronales al Fondo de Pensiones y Jubilaciones del Magisterio Nacional según se establece en el artículo 11.
+(Nota de Sinalevi: Mediante decreto ejecutivo No. 22009 del 2° de marzo de 1993, “Reglamento a la Ley que Reforma Integralmente la Ley de Pensiones y Jubilaciones del Magisterio Nacional”, se reglamentó la Ley No. 7268, que a su vez es una reforma integral de esta Ley.)
+(Nota de Sinalevi: Mediante el artículo 1º de la Ley No. 7531, del 10 de julio de 1995, se reformó integralmente la Ley No. 7268 del 14 de noviembre de 1991, reformando íntegramente la presente ley de la siguiente forma:)
+"TITULO I
+Disposiciones Generales
+Artículo 1.- Campo de aplicación. Esta ley regula lo relativo a las pensiones y jubilaciones correspondientes a los funcionarios del Magisterio Nacional.
+El Sistema de Pensiones y Jubilaciones del Magisterio Nacional está compuesto por:
+a) El régimen de pensiones otorgadas al amparo de la Ley No. 2248, del 5 de setiembre de 1958, y sus reformas, excepto la reforma integral realizada mediante la Ley No. 7268, del 14 de noviembre de 1991.
+b) El régimen de pensiones otorgadas al amparo de la reforma introducida por la Ley No. 7268, del 14 de noviembre de 1991.
+c) El Régimen transitorio de reparto, regulado en el Título III de la presente ley.
+d) El Régimen de capitalización de pensiones y jubilaciones, regulado en el Título II de esta ley.

@@ -1,0 +1,1 @@
+Artículo 85.- Curso del procedimiento. El procedimiento administrativo para la declaratoria del derecho a la jubilación o pensión, se ajustará a lo dispuesto en este Capítulo y a las disposiciones del Libro Segundo de la Ley General de la Administración Pública y, particularmente, a las referidas al proceso sumario.

@@ -1,6 +1,8 @@
-Artículo 29.- Los recursos del Fondo que se crea en el artículo 28, se utilizarán únicamente para los siguientes fines:
-1.- Para cubrir las dietas de los miembros de la Junta, los salarios de su personal y en general, sus gastos administrativos. Para este propósito, no podrá destinarse una suma superior a una tercera parte de lo que ingrese al Fondo por concepto de las deducciones a que se refiere el artículo 28.
-2.- Para cubrir las obligaciones de carácter financiero que se deriven de los convenios que la Junta firme con las entidades financieras y sociales del Magisterio Nacional.
-3.- Para realizar préstamos directos a los pensionados a fin de que satisfagan necesidades personales, de acuerdo con lo que al respecto establezcan los reglamentos internos del Régimen.
-4.- Para realizar préstamos directos a los pensionados a fin de que éstos financien actividades de pequeña empresa, de acuerdo con los reglamentos que al respecto emita la Junta.
-5.- Para invertir en valores financieros, que deberán ser de primer orden en cuanto a rendimiento y seguridad.
+TITULO III
+Régimen Transitorio de Reparto
+CAPITULO I
+Ambito de protección
+SECCION I
+Adscripción
+Artículo 29.- Naturaleza del Régimen. El Régimen de Reparto es transitorio, especial y sustitutivo del seguro obligatorio de Invalidez, vejez y muerte, creado por la Ley No. 17, del 22 de octubre de 1943, y su Reglamento y administrado por la Caja Costarricense de Seguro Social.
+Por su naturaleza excepcional, serán restrictivas tanto la aplicación como la interpretación de las normas del presente Título. En caso de duda, se aplicará o interpretará en favor del Régimen y no en favor del pensionado o del funcionario pretendiente, quien, por principio, está cubierto por el régimen general indicado en el párrafo anterior.

@@ -1,1 +1,2 @@
-Artículo 21.- Sólo se podrán acumular dos derechos de sucesión, completos o en partes, en una misma persona, siempre que la suma por pagar no sobrepase el tope que establece el artículo 9 de la presente Ley.
+Artículo 21.- Clases de títulos. La inversión deberá realizarse en títulos exclusivamente nacionales, tanto de renta fija como de renta variable, inscritos de conformidad con la Ley reguladora del mercado de valores. Sólo se invertirá por medio de las bolsas de valores legalmente autorizadas en Costa Rica.
+Queda absolutamente prohibido a la Junta invertir en títulos de emisores extranjeros, así como colocar todos los fondos o parte de ellos en bolsas de valores extranjeras

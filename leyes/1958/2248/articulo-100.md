@@ -1,0 +1,1 @@
+Artículo 100.- Abstenciones y recusaciones. Los miembros de la Junta Directiva deberán abstenerse y, en su caso, podrán ser recusados, de conformidad con lo dispuesto en los artículos 230 a 238 de la Ley General de la Administración Pública.

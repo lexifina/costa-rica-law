@@ -1,5 +1,1 @@
-De la cotización
-Artículo 11.- La cuantía de las jubilaciones se cubrirá en la siguiente forma:
-a) Un treinta y tres punto treinta y tres por ciento (33.33%) a cargo de los servidores activos, jubilados y pensionados cubiertos por el sistema.
-b) Un treinta y tres punto treinta y tres por ciento (33.33%) será cubierto mediante las cuotas patronales.
-c) Un treinta y tres punto treinta y tres por ciento (33.33%) restante lo cubrirá el Estado.
+Artículo 11.- Requisitos de elegibilidad. La Junta de Pensiones y Jubilaciones del Magisterio Nacional determinará, según los estudios técnicos actuariales correspondientes, los requisitos que deberán cumplirse para la declaratoria de los beneficios.
