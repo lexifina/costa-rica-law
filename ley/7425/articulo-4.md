@@ -1,0 +1,3 @@
+ARTÍCULO 4.- Derechos del intervenido.
+Al ejecutar el registro, el secuestro o el examen, el Juez o el funcionario designado notificará y entregará copia de la orden judicial que lo autoriza, a quien le sean registrados, secuestrados o examinados los documentos. De esto se levantará un acta de la cual también se le entregará una copia, al finalizar la diligencia.
+El interesado, dentro de los tres días posteriores a la ejecución de la medida, podrá solicitar su reconsideración y que se le restituyan los documentos secuestrados. La resolución de la anterior solicitud se sustanciará dando audiencia, por tres días a las partes. Contra lo resuelto por el Juez cabrá recurso de apelación.
