@@ -1,0 +1,1 @@
+Artículo 3°—Expresar a los Ilustrados Gobiernos de los Estados Unidos de América, Israel y la India, por la vía diplomática, las sentidas condolencias del Gobierno y del pueblo de la República de Costa Rica, extensivas a las familias de los astronautas fallecidos en la tragedia.
