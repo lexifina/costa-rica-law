@@ -1,2 +1,0 @@
-Confidencialidad de la Cuenta Corriente
-Artículo 4º.- Las cuenta corrientes bancarias son inviolables y los Bancos sólo podrán suministrar información sobre ellas a solicitud o con autorización escrita del dueño, o en juicio a solicitud de autoridad competente. Se exceptúa la intervención que el cumplimiento de sus funciones determinadas por la ley haga la Auditoría General de Bancos. Queda prohibida la revisión de cuentas corrientes por las autoridades fiscales.

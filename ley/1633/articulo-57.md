@@ -1,2 +1,0 @@
-Carácter Ejecutivo de los Cheques
-Artículo 57.- Los cheques no pagados producen acción ejecutiva contra el girador y endosante. La ejecución se despachará con vista del cheque con la razón de no haber sido pagado, la que deberá extenderse por el Banco en el mismo documento, en boleta adjunta o en la nota aparte, y copia del aviso de no pago, enviado a los interesados por parte del tenedor del cheque.

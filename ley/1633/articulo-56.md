@@ -1,2 +1,0 @@
-Aviso por Falta de Pago
-Artículo 56.- El protesto por falta de pago no es necesario, pero el tenedor debe avisar a sus garantes haber presentado el cheque y no haber sido pagado. Dicho aviso deberá darse por escrito a más tardar el segundo día después de vencido el plazo de presentación fijado en el artículo 58 de esta ley. La omisión del aviso librará de responsabilidad a los endosantes pero no al girador.

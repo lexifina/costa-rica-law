@@ -1,2 +1,0 @@
-Endoso Restrictivo
-Artículo 31.- El endoso restrictivo es aquel en que el endosante establece una condición de esta naturaleza, por medio de frases tales como: sin responsabilidad; para su cobro; para crédito de mi cuenta corriente; para crédito de la cuenta corriente de...; poniendo a continuación el nombre de una persona, u otras similares. Este endoso puede, según el caso, limitar o modificar la responsabilidad del endosante; o bien, darle un destino especial a los fondos que el cheque representa.

@@ -1,2 +1,0 @@
-Negativa de Extender un Duplicado de un Cheque Perdido
-Artículo 52.- Si en el caso contemplado en el artículo anterior el girador se negare a extender un duplicado el que hubiere perdido el cheque, podrá solicitarle a juez competente que ordene su emisión, siempre que el solicitante en juicio declarativo compruebe su propiedad, y que la mismo tiempo rinda la garantía a que se refiere el artículo anterior.
