@@ -1,0 +1,1 @@
+Artículo 3°─ Todas las funciones, definiciones y regulaciones en lo referente a Parques Nacionales y Reservas equivalentes establecidas en la ley N° 4465 del 25 de noviembre de 1969, Ley Forestal, quedarán a cargo de la Nueva Dirección General de Parques Nacionales.
