@@ -1,0 +1,1 @@
+Artículo 5°─ Cada Bono llevará adjuntos ochenta cupones que tendrán el número del bono, la fecha de pago y, por el anverso y el reverso, el número de orden correspondiente. Cada cupón representará los intereses de un trimestre y llevará firmado en facsímil la firma del Ministro de Hacienda.
