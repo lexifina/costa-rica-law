@@ -16,3 +16,4 @@ Constitución del Sector Industria, Energía y Minas
 | 1 | 1983-04-25 | la propia norma |
 | 2 | 1984-01-20 | Decreto Ejecutivo 15290 (1984-01-20) |
 | 3 | 1984-07-16 | Decreto Ejecutivo 15658 (1984-07-16) |
+| 4 | 1992-06-03 | Decreto Ejecutivo 21351 (1992-06-03) |

@@ -1,3 +1,4 @@
+(NOTA DE SINALEVI: Mediante el decreto ejecutivo N° 21351 del 3 de junio de 1992, se Constituye el Sector Recursos Naturales, Energía y Minas y artículo 63 establece que se derogue el presente decreto únicamente en lo que resulte incompatible con el decreto N° 21351, en razón de la especialidad de la materia de Recursos Naturales, Energía y Minas)
 N° 14434
 EL PRESIDENTE DE LA RE PUBLICA
 Y EL MINISTRO DE INDUSTRIA, ENERGIA Y MINAS Y EL MINISTRO DE PLANIFICACION NACIONAL Y POLITICA ECONOMICA,
