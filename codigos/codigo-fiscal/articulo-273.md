@@ -12,6 +12,8 @@ Artículo 273.- En la aplicación del impuesto de timbre se observarán las regl
 10) En los contratos relativos a servidumbre, la base será el valor estimativo dado a éstas;
 11) En los escritos de transacción o arreglo entre litigantes, el impuesto lo regulará la cuantía de la acción fijada en el juicio;
 12) Los vales o pagarés satisfarán el impuesto, a razón de cinco céntimos por cada diez colones o fracción sobre el monto de la obligación principal. El mínimo que se pagará será de diez colones (¢10,00) de timbre.
+(*)Los vales o pagarés estarán exentos de impuestos.
+(*) (Así adicionado el párrafo anterior por el artículo 190 de la Ley Reguladora del Mercado de valores, N° 7732 del 17 de diciembre de 1997)
 (Así reformado el inciso anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
 13) Por las fórmulas de cheques de cuentas corrientes de cualquiera de los bancos establecidos en en país, se pagará un impuesto de treinta céntimos de colón, el cual será cobrado por el banco respectivo en el momento de entregar los talonario. Del monto recaudado se girará a la Junta Administrativa del Archivo Nacional, lo indicado en los artículos 7º y 8º de la ley Nº 5574 del 17 de setiembre de 1974, según ahí se señala.
 (Así reformado el inciso anterior por el artículo 9 de la Ley de Presupuesto Extraordinario, N° 6962 del 26 de julio de 1989)
@@ -65,4 +67,6 @@ un colón (¢ 1,00) por cada millar o fracción."
 29)Los testimonios o certificaciones de instrumentos o documentos públicos, no sujetos a inscripción en el Registro Público, que se soliciten para hacerlos valer como tales o como títulos ejecutivos, pagarán el timbre que corresponda al acto de origen; pero, si fueren a aducirse únicamente como prueba o por orden de los tribunales para ese fin, deben satisfacer únicamente el timbre que indica el inciso 21) de este artículo.
 (Así adicionado el inciso anterior por el 4° de la ley N° 6145 del 18 de noviembre de 1977)
 (Corrida la numeración del inciso anterior por el artículo 1° de la ley N° 6450 del 15 de julio de 1980, que lo traspaso del antiguo inciso 28) al 29)
+30) Se exceptúa del pago de impuestos de timbres fiscales la inscripción, cancelación, cesión o modificación de garantías hipotecarias y prendarias, solicitadas para la consecución de un préstamo.
+(Así adicionado el inciso anterior por el artículo 190 de la Ley Reguladora del Mercado de valores, N° 7732 del 17 de diciembre de 1997)
 (Así reformado por el artículo 1° de la ley N° 2041 del 31 de julio de 1956)
