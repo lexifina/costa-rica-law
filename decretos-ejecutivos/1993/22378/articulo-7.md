@@ -1,0 +1,1 @@
+Artículo 7°.-El SINEM será financiado de su parte técnica y operativa por las instituciones ejecutoras y su administración será financiada por la Comisión Nacional de Emergencias, quién será la responsable de velar por su adecuado funcionamiento y de la continuidad de su operación.
