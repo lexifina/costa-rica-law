@@ -1,0 +1,1 @@
+Art. 2. Los tenedores de pesetas de dicha clase, las presentaràn á la casa de moneda dentro del preciso término de sesenta dias contados desde esta fecha, para que sean reconocidas y habilitadas mediante una marca especial que el Gobierno dispondrá al efecto.

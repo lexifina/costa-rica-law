@@ -1,0 +1,1 @@
+Art. 7. Las piezas Norte Americanas de cinco centavos, el cuarto de franco frances, los cuartos de peseta española y los medios de moneda provisional de la Nueva Granada, que poco mas ó ménos son como nuestro medio comun, se computarán dos por tres cuartillos.

@@ -1,0 +1,1 @@
+Art. 6. Las piezas Norte-Americanas de á diez centavos, los medios francos franceses, las medias pesetas españolas de Isabel Il y los reales provisionales de la Nueva Granada acuñados con la ley de ocho dineros que todos proximamente se acercan al tamaño y peso de nuestro real comun, correrán á razon de tres cuartillos de real cada uno.

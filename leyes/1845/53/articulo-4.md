@@ -1,0 +1,1 @@
+Art. 4. El Gobierno cuidará de amortizar, tan luego como lo permitan las circunstancias del erario, la porcion de pesetas españolas, que hubiesen sido habilitadas conforme al art° 2° pagándolas por el mismo valor con que se permiten ahora circular.

@@ -1,0 +1,1 @@
+Art. 5. Las piezas Norte-Americanas de a veinte centavos, los francos enteros franceses, las pesetas españolas de Isabel II, y los doses de moneda provisional recientemente acuñados en la Nueva Granada que todas se acercan próximamente à nuestra pieza de à dos reales comun, correran à razon de real y medio.
