@@ -1,0 +1,2 @@
+Artículo 187.—Desistimiento de la prueba admitida. Sin necesidad de resolución que así lo indique, se prescindirá de la prueba testimonial que luego de haberse admitido, no se hiciera presente a la correspondiente convocatoria, salvo que su deposición sea esencial para la determinación de la verdad real, a criterio del órgano director.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)

@@ -1,2 +1,4 @@
-Artículo 172.- En un plazo no mayor de treinta días naturales, el Organo Director, contados desde la interposición de la denuncia, emitirá el informe que trasladará al Viceministro, con las recomendaciones disciplinarias que considere aplicable, quien resolverá en definitiva.
+Artículo 172.—Confidencialidad de la investigación. Se prohíbe a los funcionarios del Ministerio divulgar información sobre el contenido de las denuncias presentadas o en proceso de investigación, así como de las resoluciones o actos finales adoptados en materia de acoso u hostigamiento sexual.
+No implicará inobservancia de esta prohibición, los informes que por mandato legal o jurisdiccional deban remitirse a los órganos e instancias competentes. Cualquier infidencia grave o malintencionada respecto a las actuaciones substanciadas dentro de una causa disciplinaria, será considerada como falta grave en el desempeño de sus funciones.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 24538 del 31 de julio de 1995)

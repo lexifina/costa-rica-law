@@ -1,8 +1,3 @@
-Artículo 167.- De las manifestaciones del hostigamiento sexual.
-Serán tipificadas como manifestaciones del acoso sexual las siguientes:
-1.- a) Promesa implícita o explícita de un trato preferencial, respecto de la situación actual o futura, de empleo o de estudio de quien la reciba.
-b) Amenazas explícitas o implícitas, físicas o morales, de daños o castigos referidos a la situación, actual o futura, de empleo o de estudio de quien las reciba.
-c) Exigencia de una conducta cuya sujeción o rechazo sea, en forma explícita o implícita, condición para el empleo o estudio.
-2.- Uso de palabras de naturaleza sexual, escritas u orales, que resulten hostiles, humillantes y ofensivas para quien las reciba.
-3.- Acercamientos corporales u otras conductas físicas de naturaleza sexual, indeseados y ofensivos para quien los reciba.
+Artículo 167.—Política de Divulgación de la Ley y del presente capítulo del Reglamento. La prevención del hostigamiento sexual y la divulgación de la Ley y del presente Capítulo del Reglamento, corresponderá a la Dirección de Recursos Humanos y a la Dirección de la Fuerza Pública, para cuya tarea deberán coordinar con las Jefaturas de cada Unidad Policial del país. Podrá solicitarse además, la colaboración y participación de todos aquellos funcionarios que en razón de su cargo, puedan coadyuvar en el proceso de difusión.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 24538 del 31 de julio de 1995)

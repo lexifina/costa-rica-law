@@ -1,0 +1,2 @@
+Artículo 189.—Prueba para mejor resolver. Finalizada la recepción de las pruebas admitidas a las partes, el órgano director podrá, de oficio o a petición de parte, solicitar o hacer traer al expediente las pruebas que estime necesarias en procura de la averiguación de la verdad real, para lo cual se dará audiencia a las partes.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)

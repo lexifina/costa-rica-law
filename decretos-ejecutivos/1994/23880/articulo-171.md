@@ -1,2 +1,3 @@
-Artículo 171.- Se dará traslado de la denuncia a la persona denunciada, concediéndole un plazo de cinco días hábiles para que se refiera a todos y cada uno de los hechos que se le imputan y ofrezca los medios de prueba en descargo de los mismos. Si el denunciado no ejerce su defensa se continuará con el proceso hasta el dictado de la resolución, por parte del Organo Director.
+Artículo 171.—Deber de colaboración. Toda dependencia o funcionario del Ministerio está en la obligación de brindar su colaboración cuando le sea solicitada por el órgano director, dentro de los parámetros del debido proceso, para la debida tramitación del procedimiento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 24538 del 31 de julio de 1995)

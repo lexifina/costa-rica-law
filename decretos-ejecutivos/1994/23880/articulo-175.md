@@ -1,6 +1,4 @@
-CAPITULO XXI
-De las disposiciones finales
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 24538 del 31 de julio de 1995, que lo pasó del anterior Capítulo XX al Capítulo XXI actual)
-Artículo 175.- En lo no regulado en el presente Reglamento se aplicará supletoriamente, las disposiciones de la Ley General de Policía, la Ley General de la Administración Pública, Código de Trabajo, (*)Reglamento Autónomo de Servicio del Ministerio de Seguridad Pública y demás disposiciones que resulten aplicables.
-(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 24792 del 9 de octubre de 1995).
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 24538 del 31 de julio de 1995, que lo pasó del anterior artículo 166 al 175 actual)
+Artículo 175.—Otras faltas disciplinarias. Incurrirá en falta en el desempeño de su cargo y dará mérito para la aplicación del régimen disciplinario, el servidor que:
+1) Injustificadamente, entorpezca o atrase la investigación o el curso de un procedimiento por supuesto acoso sexual, se negare a declarar o a brindar información sobre los supuestos denunciados o bien omitiere dar trámite a la denuncia.
+2) Incumpla con los deberes de denuncia oportuna, confidencialidad y colaboración contemplados en los artículos 170, 171 y 172 de este Reglamento.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 31377 del 23 de setiembre de 2003)
