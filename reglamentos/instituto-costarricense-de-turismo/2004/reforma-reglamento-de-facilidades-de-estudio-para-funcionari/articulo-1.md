@@ -1,0 +1,3 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+En sesión ordinaria de Junta Directiva Nº 5288, artículo 5, inciso IV, celebrada el día 3 de febrero del 2004. Se acuerda: a) Aprobar la adición al artículo 32 del Reglamento de Facilidades de Estudio para Funcionarios del Instituto Costarricense de Turismo, según oficio G-157-2004 de la Gerencia General, para que se lea de la siguiente manera:
+Artículo 32.—“En el caso de que un funcionario esté recibiendo una beca u otra facilidad de capacitación y se presente, por necesidad institucional, debidamente justificada, la participación de ese mismo funcionario en determinado adiestramiento, la Gerencia valorará y resolverá sobre el mismo”.
