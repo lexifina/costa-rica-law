@@ -1,0 +1,1 @@
+Artículo 11: Se reputa como inquilinos a quienes resulten adjudicatarios de un local o derecho y los cesionarios o causahabientes del adjudicatario que hayan firmado el contrato respectivo y se encuentren al día en el pago previo por el arrendamiento.
