@@ -1,6 +1,6 @@
 # Ley Orgánica del Instituto Costarricense de Turismo (ICT)
 
-Ley N° 1917 del 1955-07-30. SINALEVI, ficha 5468: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5468&param2=91545&param3=1>.
+Ley N° 1917 del 1955-07-30. SINALEVI, ficha 5468: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5468&param2=91547&param3=1>.
 
 Publicada en La Gaceta N° 175 del 1955-08-09.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 13 | 1955-08-09 | Ley 1917 | 1955-07-30 |
 | 2 de 13 | 1992-04-03 | SINALEVI (10 normas) | 1955-07-30 |
 | 3 de 13 | 1992-04-03 | Ley 2723 | 1961-02-20 |
+| 4 de 13 | 1992-04-03 | Ley 2763 | 1961-06-22 |
