@@ -14,3 +14,4 @@ Reglamento al artículo 5 inciso b) de la Ley de Simplificación y Eficiencia Tr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-19 | la propia norma |
+| 2 | 2004-07-22 | Decreto Ejecutivo 32044 (2004-07-22) |

@@ -1,7 +1,8 @@
 Artículo 10.—Integrantes. Esta Junta estará integrada por los siguientes miembros, quienes fungirán ad honorem:
 a) El Alcalde, quien la presidirá.
 b) Un miembro del Concejo.
-c) El Ingeniero Director o Ingeniero Subdirector de la Sede Regional del Ministerio de Obras Públicas y Transportes.
+c) El Ingeniero Director de la Macroregión o Región o en su defecto el Ingeniero en que éste delegue dihca responsabilidad.
+(Así reformado mediante artículo 4 del Decreto 32044 del 22 de julio del 2004, publicado en la gaceta N° 200 del 13 de octubre del 2004)
 d) Un representante de los Consejos de Distrito, nombrado en Asamblea de estos.
 e) Un representante de las Asociaciones de Desarrollo Integral del cantón, que será seleccionado por el Concejo, por medio de una terna que al efecto remitirá la Asamblea de la Unión Cantonal de Asociaciones de Desarrollo Comunal.
 f) Un representante de las cámaras del sector privado con sede en el Cantón nombrado por el Concejo, de la terna nominada al efecto en asamblea pública y abierta de estas organizaciones, convocada por las cámaras.
