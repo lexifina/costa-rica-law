@@ -1,0 +1,1 @@
+Artículo 7°. -Las juntas populares serán instaladas la primera vez por la Autoridad Política local y por la que ésta designe; y nombrado el directorio cesará inmediatamente la presidencia de la misma Autoridad, a menos que la persona que la ejerza resulte designada para algún oficio del mismo directorio.

@@ -1,0 +1,1 @@
+Artículo 46.-Para el caso desde la publicación de este decreto, se proceder a formar los registros de que hablan los artículos 3° y 4° del mismo, obrándose con tal puntualidad que todo esté preparado oportunamente.

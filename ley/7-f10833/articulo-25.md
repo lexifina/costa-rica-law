@@ -1,0 +1,1 @@
+Artículo 25.-En todo el tiempo que se recibe la votación por el Directorio, se observará el mejor orden, circunspección y respeto: no se permitirán conversaciones que distraigan la atención de los concurrentes, ni se podrá tratar de otro asunto inconexo del acto electoral.

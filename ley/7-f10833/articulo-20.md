@@ -1,0 +1,1 @@
+Artículo 20.-Antes de procederse a la elección, el Presidente preguntará si algún ciudadano tiene que exponer sobre fuerza, cohecho y soborno en los sufragantes y en su caso se observará lo dispuesto en los dos artículos anteriores.

@@ -1,0 +1,1 @@
+Artículo 10.-Al individuo que ejerza las funciones de Presidente corresponde hacer guardar el orden en la junta: a los Secretarios recibir la votación y extender la acta; y a los Escrutadores llevar el registro de los sufragantes, presenciar la elección y verificar el escrutinio en unión del Presidente y Secretario.

@@ -1,0 +1,1 @@
+Artículo 6°. -Las juntas populares ser n organizadas por un directorio compuesto de un Presidente, dos Escrutadores y un Secretario, que sepan leer y escribir, electos de entre los primeros treinta individuos que concurran; entendiéndose que en los pueblos donde se carezca de personas que reúnan aquella calidad, el Secretario por lo menos debe tenerla.
