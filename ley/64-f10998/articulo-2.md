@@ -1,0 +1,1 @@
+Art. 2° Los Jefes políticos gozarán del sueldo mensual que se les designa en la forma siguiente: el de la Capital de la República veinticinco pesos: el de Cartago veinte: el de Heredia y el de Alajuela quince; el de Guanacaste diez; y cinco el de cada uno de los otros Cantones de las Provincias.
