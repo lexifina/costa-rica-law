@@ -1,0 +1,1 @@
+Artículo 2°-Interprétase el párrafo final del artículo 7° de la ley del Impuesto sobre la Renta, N° 837 de 20 de diciembre de 1946 y su reforma N° 1789 de 18 de setiembre de 1954, en el sentido de que el impuesto sobre la diferencia obtenida en el precio de la venta, no se pagará sino una vez que esa diferencia se perciba.
