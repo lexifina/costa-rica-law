@@ -13,3 +13,4 @@ Formas de conservación de los recursos hidrobiológicos y garantizar una explot
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-04 | la propia norma |
+| 2 | 2004-08-05 | Acuerdo 362 (2004-08-05) |
