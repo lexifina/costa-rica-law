@@ -1,0 +1,1 @@
+Artículo 17.—La gira efectuada sin el cumplimiento de los requisitos que señalan los párrafos anteriores, será por cuenta y riesgo del propietario; y este, en ningún caso podrá reclamar el reconocimiento de pago por kilometraje recorrido.

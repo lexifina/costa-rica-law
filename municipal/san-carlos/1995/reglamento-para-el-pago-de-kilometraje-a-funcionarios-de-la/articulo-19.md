@@ -1,0 +1,1 @@
+Artículo 19.—No existirá obligación para la Municipalidad de garantizar un mínimo de kilómetros por recorrer y remunerar; de manera que sólo se reconocerán aquellos que hayan sido efectivamente recorridos y se ajusten a las tablas vigentes o se encuentren debidamente justificados.

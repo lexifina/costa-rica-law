@@ -1,0 +1,1 @@
+Artículo 13.—Periódicamente la Municipalidad por medio del Ejecutivo Municipal someterá a revisiones de funcionamiento a los vehículos que están en el sistema, también revisará de la misma forma las pólizas que cubren dichos vehículos.

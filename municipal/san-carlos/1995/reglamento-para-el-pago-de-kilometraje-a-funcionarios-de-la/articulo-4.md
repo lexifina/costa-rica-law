@@ -1,0 +1,1 @@
+Artículo 4°—La posibilidad de arrendar su vehículo y percibir remuneración por pago de kilometraje, está vedada para el Ejecutivo Municipal, quien por su condición y para estos efectos, está excluido de la aplicación de este reglamento. Igual prohibición opera para quienes se desempeñan como Regidores y Síndicos Municipales, titulares o suplentes.

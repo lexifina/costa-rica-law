@@ -1,0 +1,1 @@
+Artículo 29.—Toda modificación al presente Reglamento es potestad exclusiva del Concejo Municipal y para su aplicación debe obtenerse la autorización de la Contraloría General de la República y publicarse en el Diario Oficial “La Gaceta”.

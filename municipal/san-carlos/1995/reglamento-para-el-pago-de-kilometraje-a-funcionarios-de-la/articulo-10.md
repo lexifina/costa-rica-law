@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad deberá tener debidamente actualizada una tabla de distancias de las localidades del país, por las diversas rutas, a efecto de chequear al regreso de la gira las coincidencias con la registrada en el odómetro.

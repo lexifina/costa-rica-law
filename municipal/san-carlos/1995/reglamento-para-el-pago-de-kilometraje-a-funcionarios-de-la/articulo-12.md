@@ -1,0 +1,1 @@
+Artículo 12.—Corresponde a las oficinas de Contabilidad de la Municipalidad efectuar el control contable pertinente y el registro de los reportes y pagos, para lo cual se utilizará los formularios de pagos y tarjetas que se confeccionarán al efecto.

@@ -1,0 +1,1 @@
+Artículo 26.—El propietario del vehículo deberá dar preferencia a las necesidades de la Municipalidad y cuando los requerimientos de esta indiquen que en una misma gira deba transportarse otros servidores, que no excedan en número el cupo autorizado del vehículo, el propietario deberá transportarlos bajo los términos del contrato.

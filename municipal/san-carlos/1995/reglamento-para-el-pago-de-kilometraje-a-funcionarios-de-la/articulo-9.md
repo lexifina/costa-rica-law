@@ -1,0 +1,1 @@
+Artículo 9°—Una vez revisada la solicitud de ingreso al sistema por parte de la unidad encargada, se le comunicará al solicitante la decisión adoptada, de resultar aprobada, se encargará a la unidad de Asesoría Jurídica la preparación del respectivo contrato, el cual deberá ser suscrito por el Ejecutivo Municipal y el propietario.
