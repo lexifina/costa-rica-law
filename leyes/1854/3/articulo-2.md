@@ -1,0 +1,1 @@
+Art 2°.- Será obligación del Traductor servir de interprete cuan sea llamado por algún juez o Tribunal para el esclarecimiento de algún Juez o Tribunal para el esclarecimiento de algún negocio verbal que se ventile por personas que no hablan el idioma español, sino inglés o francés.
