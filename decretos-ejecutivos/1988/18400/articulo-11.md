@@ -1,0 +1,1 @@
+Artículo 11.- Los funcionarios públicos que incumplieren u obstaculizaren el uso del sistema de cobro mediante tiquetes, serán acreedores a las sanciones administrativas, civiles y penales que resultaren aplicables.

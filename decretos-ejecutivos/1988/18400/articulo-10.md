@@ -1,0 +1,1 @@
+Artículo 10.- El inspector que compruebe la infracción cometida por un conductor deberá retirarle la licencia y remitirla a la Comisión Técnica de Transportes con un reporte sobre las causas que motivaron su decisión.

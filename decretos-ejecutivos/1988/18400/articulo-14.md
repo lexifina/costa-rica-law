@@ -1,0 +1,1 @@
+Artículo 14.-El presente reglamento es de orden público y en beneficio directo del usuario del transporte colectivo y del empresario. garantizándose así el cobro de la tarifa justa y mediante un sistema racional y acorde con las necesidades actuales del servicio de transporte en el sector metropolitano.
