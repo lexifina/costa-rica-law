@@ -1,0 +1,1 @@
+Artículo 3°—Cabe, también, esta clase de seguro para garantizar el pago .de derechos, impuestos y multas; el cumplimiento de contratos, concesiones y licitaciones; las obligaciones de litigantes, y, en general, toda clase de obligaciones contraídas con el Estado, Municipio, Junta o Dependencia del Estado.
