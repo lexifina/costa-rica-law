@@ -1,0 +1,2 @@
+Artículo 109.- Secretaría de los órganos de la Unión.
+La Secretaría de los órganos de la Unión estará a cargo de la Oficina Internacional bajo la responsabilidad del Director General. Enviará todos los documentos publicados en oportunidad de cada reunión a las Administraciones postales de los miembros del órgano, a las Administraciones postales de los Países que, sin ser miembros del órgano, colaboren en los estudios emprendidos, a las uniones restringidas, así como a las demás Administraciones postales de los Países miembros que los soliciten.

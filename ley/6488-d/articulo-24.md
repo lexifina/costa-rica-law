@@ -1,0 +1,2 @@
+Artículo 124.- Pago de suministros de la Oficina Internacional.
+Los suministros que la Oficina Internacional efectúe a título oneroso a las Administraciones postales deberán ser pagados en el plazo más breve posible y a más tardar dentro de los seis meses a partir del primer día del mes siguiente al del envío de la cuenta por dicha Oficina. Transcurrido este plazo, las sumas adeudadas redituarán intereses a favor del Gobierno de la Confederación Suiza, que la anticipó, a razón del 5 por ciento anual a contar desde el día de la expiración de dicho plazo.

@@ -1,0 +1,16 @@
+REGLAMENTO GENERAL DE LA UNIÓN POSTAL UNIVERSAL
+Los infrascritos, Plenipotenciarios de los Gobiernos de los Países miembros de la Unión, visto el artículo 22, párrafo 2, de la Constitución de la Unión Postal Universal, firmada en Viena el 10 de julio de 1964, han decretado en el presente Reglamento General, de común acuerdo y bajo reserva del artículo 25, párrafo 3, de dicha Constitución, las disposiciones siguientes que aseguran la aplicación de dicha Constitución y el funcionamiento de Unión.
+CAPITULO I
+Funcionamiento de los órganos de la Unión
+Artículo 101.- Organización y reunión de los Congresos, Congresos extraordinarios, Conferencias administrativas y Comisiones especiales.
+1. Los representantes de los países miembros se reunirán en Congreso a más tardar cinco años después de la fecha de entrada en vigor de las Actas del Congreso precedente.
+2. Cada País miembro se hará representar en el Congreso por uno o varios plenipotenciarios, provistos por su Gobierno, de los poderes necesarios. Podrá, si fuere necesario, hacerse representar por la delegación de otro país miembro. Sin embargo, se establece que una delegación no podrá representar más que a un solo País miembro además del suyo.
+3. En las deliberaciones cada País miembro dispondrá de un voto.
+4. En principio, cada Congreso designará el país en el cual deba realizarse el Congreso siguiente. Si esta designación resultare ser inaplicable o inoperante, corresponderá al Consejo Ejecutivo designar el país en el cual el Congreso celebrará sus reuniones, previo acuerdo con
+este último país.
+5. Previo acuerdo con la Oficina Internacional, el Gobierno invitante fijará la fecha definitiva y el lugar exacto del Congreso. En principio, un año antes de esta fecha, el Gobierno invitante enviará una invitación al Gobierno de cada País miembro. Esta invitación podrá ser dirigida ya sea directamente, por intermedio de otro gobierno o por mediación del Director General de la Oficina Internacional. El Gobierno invitante también se encargará de notificar a todos los Gobiernos de los Países miembros las resoluciones adoptadas por el Congreso.
+6. Cuando deba reunirse un congreso sin que hubiere un Gobierno invitante, la Oficina Internacional, con el consentimiento del Consejo Ejecutivo y previo acuerdo con el Gobierno de la Confederación Suiza, tomará las disposiciones necesarias para convocar y organizar el Congreso en el país sede de la Unión. En este caso, la Oficina Internacional ejercerá las funciones de Gobierno invitante.
+7. Previo acuerdo con la Oficina Internacional, los Países miembros que hubieran tomado la iniciativa del Congreso extraordinario fijarán el lugar de reunión de ese Congreso.
+8. Por analogía se aplicarán los párrafos 2 a 6 a los congresos extraordinarios.
+9. Previo acuerdo con la Oficina Internacional, las administraciones postales que hubieran tomado la iniciativa de una Conferencia administrativa fijarán el lugar de reunión de la misma. Las convocatorias serán transmitidas por la administración postal del País sede de la Conferencia.
+10. Las Comisiones especiales serán convocadas por la Oficina Internacional previo acuerdo, dado el caso, con la Administración postal del País miembro donde deban reunirse esas Comisiones especiales.

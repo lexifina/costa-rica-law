@@ -1,0 +1,2 @@
+Artículo 127.- Proposiciones relativas a los Acuerdos con la Organización de las Naciones Unidas.
+Las condiciones de aprobación indicadas en el artículo 126 se aplicarán igualmente a las proposiciones tendientes a modificar los Acuerdos celebrados entre la Unión Postal Universal y la Organización de las Naciones Unidas en la medida en que estos acuerdos no determinen las condiciones de modificación de las disposiciones que contienen.
