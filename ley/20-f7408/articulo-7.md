@@ -1,0 +1,1 @@
+Art. 7°-Los derechos de Aduana se pagarán al contado hasta que se extinga la cantidad de trescientos sesenta y nueve mil-trescientos cuarenta y un pesos ochenta y dos centavos ($ 369,341-82 cs.), valor de los billetes privilegiados actualmente en circulación, según lista que se publicará.
