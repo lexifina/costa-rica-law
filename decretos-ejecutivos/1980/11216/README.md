@@ -13,3 +13,4 @@ Vigencia de los Indices de Precios de Productos Carreteras y Puentes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-04-25 | la propia norma |
+| 2 | 1980-04-25 | SINALEVI (sin norma nombrada) |

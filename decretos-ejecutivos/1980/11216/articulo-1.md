@@ -19,9 +19,9 @@ Economía, Industria y Comercio un índice elaborado por ellos.
 Ministerio de Economía, Industria y Comercio, ha dispuesto autorizarlos,
 mientras éste calcula sus propios índices.
 Por tanto,
-En uso de las facultades conferidas por los incisos 3) y 18) del
-artículo 140 de la Constitución Política y de conformidad con los leyes
-Nº 5501 y Nº 5518 de 7 de mayo de 1974 y su reglamento.
+En uso de las facultades conferidas por los incisos 3) y 18) del artículo
+140 de la Constitución Política y de conformidad con los leyes Nº 5501 y Nº 5518
+de 7 de mayo de 1974 y su reglamento.
 DECRETAN:
 Artículo 1º.- Poner en vigencia los "índices de precios de los
 renglones de pago de sus elementos" elaborados por la Cámara de

@@ -1,7 +1,8 @@
 Artículo 5º.- El reajuste por el procedimiento analítico será el
 siguiente:
 El estado reconocerá los aumentos que se produzcan durante la ejecución
-de las obras contratadas mediante licitación pública, en los siguientes insumos:
+de las obras contratadas mediante licitación pública, en los siguientes
+insumos:
 a) Tubos de alcantarilla de concreto o metálicos.
 b) Acero de refuerzo, acero de alta tensión, miembros de acero
 estructural y barandas que no sean de concreto convencional, y pilotos de
