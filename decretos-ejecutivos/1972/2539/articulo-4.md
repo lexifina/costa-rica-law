@@ -1,1 +1,0 @@
-Artículo 4°—La Comisión podrá celebrar sesiones extraordinarias, las cuales podrán ser convocadas a iniciativa del Presidente o a solicitud conjunta de dos de sus miembros. Las convocatorias tanto para sesiones ordinarias como extraordinarias deberán ser notificadas a los integrantes, por lo menos con 48 horas de anticipación.

@@ -1,1 +1,0 @@
-Artículo 9°—El Secretario preparará la agenda, tomará la minuta de las sesiones, redactará el Acta, contestará la correspondencia, será responsable de los expedientes de la Comisión, y tendrá las demás atribuciones que le fije este Reglamento.
