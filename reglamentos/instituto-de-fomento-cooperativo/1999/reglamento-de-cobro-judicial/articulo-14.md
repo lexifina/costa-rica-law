@@ -1,0 +1,1 @@
+Artículo 14.—Al día siguiente del remate, el abogado director del juicio deberá informa a la Dirección Ejecutiva sobre el resultado del mismo. La inobservancia de lo anterior será responsabilidad del abogado director.

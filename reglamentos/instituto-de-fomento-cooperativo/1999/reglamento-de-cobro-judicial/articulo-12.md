@@ -1,0 +1,1 @@
+Artículo 12.—Cuando una obligación ha entrado en cobro judicial y por cualquier circunstancia se suspende su trámite, deberá así comunicarse de inmediato al abogado director, indicándole la fecha en la cual vence la suspensión. El juicio continuará automáticamente una vez transcurrido el plazo.

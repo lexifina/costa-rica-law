@@ -1,0 +1,1 @@
+Artículo 23.—En caso de un juicio con sentencia, en el cual se compruebe la falta de bienes embargables o ausencia de posibilidades de pago, el abogado director deberá comunicar esta circunstancia a la Dirección Ejecutiva para que proceda de inmediato de conformidad con el artículo 86 y siguientes de la Ley de Asociaciones Cooperativas.

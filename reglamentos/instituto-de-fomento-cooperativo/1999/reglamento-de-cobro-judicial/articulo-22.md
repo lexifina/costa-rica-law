@@ -1,0 +1,2 @@
+Artículo 22.—No podrá el abogado encargado de un cobro, recibir pagos o abonos a la deuda o hacer arreglos con el deudor sin autorización expresa de la Dirección Ejecutiva del INFOCOOP.
+Asimismo, todo pago, excepto el relativo a las costas personales, deberá hacerse en la tesorería del INFOCOOP o mediante depósito bancario a nombre de éste, debiendo especificarse todos los datos necesarios para la mejor identificación del asunto, así como los conceptos por los que se hace el depósito.

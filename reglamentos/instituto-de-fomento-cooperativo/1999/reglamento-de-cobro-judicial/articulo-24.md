@@ -1,0 +1,1 @@
+Artículo 24.—Todos los abogados encargados de la atención y tramitación de juicios tendrán una copia de este reglamento y firmarán contra la entrega del mismo por parte de la Dirección Ejecutiva, haciendo constar tal circunstancia, así como su conformidad con todas las estipulaciones del mismo.

@@ -1,0 +1,1 @@
+Artículo 25.—El presente reglamento rige a partir de su publicación en el Diario Oficial "La Gaceta" y podrá ser interpretado o modificado por la Junta Directiva del INFOCOOP, con la aprobación de por lo menos cinco de sus miembros.

@@ -1,0 +1,6 @@
+CAPITULO TERCERO
+Del procedimiento de cobro judicial
+Artículo 7°—El cobro judicial será entendido como las gestiones cobratorias que se realicen por la vía judicial.
+Una vez concluido el periodo de cobro administrativo, tratándose de las operaciones en estado irregular por atraso en amortizaciones y/o intereses, el Departamento de Crédito previa anuencia de la Dirección Ejecutiva hará el traspaso y entrega del legajo de documentación a quien corresponda.
+Una vez que la demanda respectiva haya sido presentada ante la Autoridad competente, se deberá contabilizar en forma separada de los demás créditos ordinarios del INFOCOOP, en una cuenta con nombre apropiado, la cual podrá tener las subcuentas que se consideren necesarias. Los abogados directores deberán presentar en un plazo máximo de 10 días, copia del legajo de documentos al Departamento de Finanzas con copia al Departamento de Crédito.
+Cada tres meses el Departamento Legal presentará un informe individualizado en cada caso a la Dirección Ejecutiva sobre el estado de las operaciones en cobro judicial con el propósito de medir el resultado de las acciones cobratorias, copia de este informe se hará llegar al Departamento de Crédito.

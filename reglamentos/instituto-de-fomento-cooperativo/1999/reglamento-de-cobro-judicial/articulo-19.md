@@ -1,0 +1,1 @@
+Artículo 19.—En los juicios ejecutivo simples el INFOCOOP debe proceder a practicar el embargo de los bienes correspondientes a fin de tener el pleno control sobre ellos antes de que se realice el remate y poder así tomar las medidas necesarias para su protección y conservación.

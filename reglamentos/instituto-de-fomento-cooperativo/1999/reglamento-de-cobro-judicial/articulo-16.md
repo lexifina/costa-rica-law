@@ -1,0 +1,1 @@
+Artículo 16.—Si rematado el bien, su producto no alcanzare a cubrir costas, intereses y principal, establecido el monto total de la obligación a cargo del deudor, se deducirá el valor del producto del remate y una vez que quede firme la resolución que fíje el saldo en descubierto, se procederá a embargar otros bienes de los obligados para hacer efectivo ese saldo.
