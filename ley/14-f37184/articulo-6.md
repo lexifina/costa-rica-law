@@ -1,0 +1,1 @@
+Art. 6°—Cuando una casa ó edificio gravados estuviere desocupado, ó se hallare ausente el locatario al tiempo de hacerse el cobro de la contribución, se reclamará ésta del propietario como si fueren deudores de mancomún et insólidum.

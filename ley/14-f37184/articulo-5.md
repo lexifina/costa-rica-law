@@ -1,0 +1,1 @@
+Art. 5°—Los impuestos se pagarán por trimestres adelantados, dentro de los ocho primeros días de cada uno de ellos, y se exigirán de los que se hallen en posesión de los fondos afectos á dichos impuestos, cualquiera que sea el título por que posean.

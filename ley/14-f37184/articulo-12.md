@@ -1,0 +1,1 @@
+Art. 12°—La Municipalidad, en vista de los informes que le pase la Tesorería con los correspondientes documentos, podrá declarar libre de responsabilidad al Inspector de Rentas y Recaudador por las cantidades no colectadas, ó mandar hacerla efectiva si la cobranza no hubiese tenido efecto por omisión ó descuido de estos empleados.

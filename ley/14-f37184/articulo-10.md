@@ -1,0 +1,2 @@
+Art. 10°— Si del producto del remate resultare algún sobrante, se restituirá á su dueño, y en caso contrario, se embargará otra prenda que cubra el valor del déficit.
+Cuando el Juez, por razones de justicia absolviere al contribuyente, deberá el Recaudador ó Inspector de Rentas, en su caso, pedir certificado de la absolución, para satisfacer con él á la Tesorería y para que ésta pueda informar á la Municipalidad con todos los antecedentes sobre las cantidades que no hayan podido colectarse.
