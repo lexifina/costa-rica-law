@@ -1,0 +1,3 @@
+ARTICULO 34.- Conforme con lo estipulado en el artículo 24 del decreto ejecutivo Nº 16821-J del 27 de diciembre de 1985, la Junta Administrativa del Registro Nacional reintegrará al fondo general del Gobierno de la República, las sumas que haya cobrado y que recaude hasta el 31 de diciembre de 1988, por medio del timbre del Registro Nacional, por
+concepto de impuestos de papel y timbre fiscal.
+Los recursos señalados en el párrafo anterior serán utilizados por el Gobierno para complementar el pago de la revaloración salarial decretada para el sector público, correspondiente al segundo semestre de 1988. La incorporación de esos recursos al Presupuesto Nacional, así como su asignación y distribución, la hará el Ministerio de Hacienda por medio de decreto ejecutivo.

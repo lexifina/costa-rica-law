@@ -1,0 +1,1 @@
+ARTICULO 26.- Desaféctanse del dominio público las propiedades inscritas en el partido de San José, tomo 2464, folio 397, número 253422, asiento l, y tomo 2719, folio 579, Nº 214.317, asiento l, para que, de conformidad con el artículo 16, inciso 39 de la ley Nº 7097, estos inmuebles sean destinados a programas de vivienda para las organizaciones que la misma ley indica.

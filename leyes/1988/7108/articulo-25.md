@@ -1,0 +1,2 @@
+ARTICULO 25.- Declárase patrimonio nacional la propiedad registrada en el tomo 1095, folio 220, asiento l, número 90552, a nombre de la Municipalidad del Cantón de Desamparados, ubicada en el distrito de San Juan de Dios de Desamparados. En este inmueble funcionarán la Casa de la Cultura, la Biblioteca Pública y los Grupos Scouts.
+Se autoriza a la Municipalidad de Desamparados para que traspase esta propiedad al Ministerio de Cultura, Juventud y Deportes. El traspaso se hará libre de todo gravamen y estará exento del pago de todo tipo de impuestos, derechos y timbres.

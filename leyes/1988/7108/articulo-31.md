@@ -1,0 +1,1 @@
+ARTICULO 31.- El Instituto Costarricense de Puertos del Pacífico (INCOP) aportará la suma de diez millones de colones (10.000.000), de sus propios recursos, para que, en un plan conjunto con la Municipalidad y con las instituciones afines de Puntarenas, se proceda a realizar trabajos de limpieza en la playa, desde el Barrio El Carmen hasta Boca de Barranca de Puntarenas.

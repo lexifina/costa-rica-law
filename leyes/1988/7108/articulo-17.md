@@ -1,0 +1,1 @@
+ARTICULO 17.- Los remanentes de compras al exterior para atender el diferencial cambiario se incorporarán al Presupuesto Nacional por medio de la respectiva modificación presupuestaria, que deberá ser presentada a la Asamblea Legislativa para el correspondiente trámite.
