@@ -13,3 +13,4 @@ Interés Público Congreso Avances y Desafíos Administrac. Recursos Hum.a Inici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-02 | la propia norma |
+| 2 | 1999-07-02 | SINALEVI (sin norma nombrada) |
