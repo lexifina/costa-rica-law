@@ -1,0 +1,1 @@
+Artículo 43.—La CRPF emitirá cada tres años la constancia de la recertificación al farmacéutico que hubiere cumplido con los requisitos establecidos, previo pago de la cuota establecida para tal fin por la Junta Directiva.

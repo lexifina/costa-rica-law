@@ -1,0 +1,1 @@
+Artículo 10.—El Colegio de Farmacéuticos de Costa Rica garantizará la transparencia, la oportunidad y la eficacia de todos los procesos que se desarrollen en el Sistema de Recertificación Profesional Farmacéutica.

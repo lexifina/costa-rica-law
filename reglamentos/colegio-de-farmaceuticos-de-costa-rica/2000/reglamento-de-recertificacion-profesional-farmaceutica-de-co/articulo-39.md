@@ -1,0 +1,1 @@
+Artículo 39.—El farmacéutico presentará anualmente los certificados (original y copia) de las actividades de EFC que tomó durante el año. La presentación la deberá realizar un mes antes de cumplir el año de la fecha de inscripción al Sistema.

@@ -1,0 +1,1 @@
+Artículo 11.—El Colegio de Farmacéuticos de Costa Rica organizará y dotará de los recursos necesarios, una unidad de recertificación profesional farmacéutica, para dar el apoyo administrativo a la CRPF.

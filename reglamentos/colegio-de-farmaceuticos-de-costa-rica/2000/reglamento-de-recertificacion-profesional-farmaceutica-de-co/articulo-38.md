@@ -1,0 +1,1 @@
+Artículo 38.—Para la primera recertificación el profesional farmacéutico debe documentar que obtuvo un mínimo de 30 créditos durante los tres años anteriores. Cada año el farmacéutico debe obtener 10 créditos. Los créditos no son acumulables de un año para otro.

@@ -1,0 +1,1 @@
+Artículo 6º—El profesional farmacéutico activo tiene total libertad de ingresar o no al Sistema de Recertificación Profesional Farmacéutica de Costa Rica. Este sistema no califica para ejercer o no la profesión de Farmacia en Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 14.—Los miembros de la CRPF durarán en sus funciones dos años y podrán ser reelectos en forma sucesiva una única vez. Se renovarán anualmente de la siguiente manera: un año dos miembros y el año siguiente tres.
