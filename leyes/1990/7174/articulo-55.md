@@ -1,0 +1,6 @@
+SECCIÓN I
+Del aprovechamiento del recurso forestal en terrenos del
+Estado y demás organismos de la Administración Pública
+Artículo 55.- El aprovechamiento de las reservas forestales, zonas protectoras y demás terrenos del patrimonio forestal del Estado, excepto en los parques nacionales y reservas biológicas, se podrá realizar de la siguiente forma:
+a) Cuando una persona privada, física o jurídica, solicite una concesión para aprovechar una reserva forestal o una zona protectora, parte de éstas, o cualquier otra área del patrimonio forestal del Estado, la preparación del plan de manejo correrá por su cuenta. En este caso, una vez aprobado el plan de manejo por la Dirección General Forestal, previa licitación, esta persona tendrá preferencia para ejecutarlo, si su oferta está, al menos, en igualdad de condiciones con la mejor que se reciba. Si el solicitante perdiere la licitación, el adjudicatario deberá reembolsarle los gastos efectuados en el plan de manejo.
+b) Cuando no se presenten solicitudes por parte del sector privado, la Dirección General Forestal podrá elaborar los respectivos planes de manejo en forma directa o por contrato, licitarlos, o bien, ejecutarlos directamente y vender por licitación los productos que obtenga en la etapa de producción.

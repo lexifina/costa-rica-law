@@ -1,0 +1,1 @@
+Artículo 26.- Quedan autorizadas las instituciones del Estado para incluir en sus presupuestos las partidas anuales que estimen convenientes para contribuir a los proyectos de la Dirección General Forestal que sean financiados por el Fondo.

@@ -1,0 +1,1 @@
+Artículo 97.- Toda industria o persona que adquiera materia prima para realizar sus actividades, deberá comprobar que el producto forestal está amparado por el respectivo permiso de aprovechamiento otorgado por la Dirección General Forestal, y que están cancelados los impuestos correspondientes.

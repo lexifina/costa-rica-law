@@ -1,0 +1,1 @@
+Artículo 112.- La Dirección General Forestal deberá prestar especial atención en sus programas de manejo, a los requerimientos de dendroenergía de la población rural, particularmente en aquellos sitios en que no existan fuentes alternativas o en que la población esté acostumbrada a depender del bosque para ello.

@@ -1,0 +1,1 @@
+Artículo 54.- Para efectos de la calificación de terrenos de aptitud agropecuaria o forestal, se tendrá como base general la metodología que el Ministerio de Recursos Naturales, Energía y Minas declare como la oficial.
