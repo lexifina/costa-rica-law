@@ -1,0 +1,1 @@
+Artículo 5º—Los regidores propietarios perderán las dietas cuando no se presenten dentro de los quince minutos inmediatos posteriores a la hora elegida. Para comenzar la sesión o cuando se retiren antes de finalizada la sesión.

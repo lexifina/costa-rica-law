@@ -1,0 +1,1 @@
+Artículo 3º—Las sesiones extraordinarias se pagarán en orden cronológico, pagándose solo las dos primeras sesiones extraordinarias del mes, de manera que el regidor que no asista a estas dos primeras sesiones extraordinarias, pero si asiste a alguna posterior a ésta no tendrá derecho a dieta por esas sesiones.

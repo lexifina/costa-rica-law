@@ -1,0 +1,1 @@
+Artículo 8º—La secretaria del Concejo llevará el control adecuado e informará a la Contabilidad para la liquidación de las dietas en la primera semana del mes posterior al que se realizaran las sesiones.
