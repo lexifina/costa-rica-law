@@ -1,0 +1,1 @@
+Artículo 9°.- El Comité de Educación y bienestar Social, deberá presentar por escrito ante la Asamblea general un informe detallado de las actividades realizadas durante el año, junto con el respectivo desglose de gastos.

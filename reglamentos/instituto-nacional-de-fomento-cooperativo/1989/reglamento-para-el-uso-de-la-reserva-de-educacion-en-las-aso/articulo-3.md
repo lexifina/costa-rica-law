@@ -1,0 +1,1 @@
+Artículo 3°.- El Comité de Educación para cada período, elaborará un plan de trabajo que junto con el presupuesto respectivo remitirá al Consejo de Administración para su conocimiento y asignación de recursos, siempre que estos estén dentro de la suma acumulada en la Reserva de Educación.

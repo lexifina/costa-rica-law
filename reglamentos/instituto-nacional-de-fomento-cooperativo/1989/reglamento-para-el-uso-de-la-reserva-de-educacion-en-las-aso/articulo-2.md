@@ -1,0 +1,1 @@
+Artículo 2°.- El Comité de Educación y Bienestar Social en cada cooperativa, será el ente responsable de la programación y ejecución de los planes de educación, capacitación y divulgación cooperativa que se proyecte tanto de la misma como del movimiento a nivel local, regional y nacional.

@@ -1,0 +1,1 @@
+Artículo 4°.- Una vez armonizado el plan de trabajo y el presupuesto con el Consejo de Administración y la Gerencia, el Comité de Educación, deberá divulgarlo entre asociados, otros comités y empleados de la cooperativa.
