@@ -1,0 +1,1 @@
+Artículo 3° — El Museo de Biología Marina dependerá, administrativa y financieramente de la Escuela de Ciencias Biológicas de la Universidad Nacional. La Dirección General de Museos le brindará al Museo la asesoría profesional en su campo, la promoción, divulgación y apoyo financiero de acuerdo con sus posibilidades.
