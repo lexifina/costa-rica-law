@@ -1,0 +1,1 @@
+Artículo 21.—El propietario y el ingeniero o arquitecto, o responsable del diseño de la edificación responderá de los datos que se indiquen en el proyecto o diseño. La Municipalidad será responsable únicamente por los datos que se refieran a alineamiento y niveles.

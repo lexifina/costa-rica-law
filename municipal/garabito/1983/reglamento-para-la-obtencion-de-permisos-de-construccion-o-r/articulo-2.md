@@ -1,0 +1,1 @@
+Articulo 2°—Este Reglamento rige en todo el cantón, por lo tanto no podrá ser construido, ampliado, remodelado, reparado o demolido ningún edificio instrucción si no se han llenado los trámites y cumplido las disposiciones contenidas en el mismo.

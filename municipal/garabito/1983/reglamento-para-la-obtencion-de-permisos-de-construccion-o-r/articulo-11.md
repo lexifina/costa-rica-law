@@ -1,0 +1,1 @@
+Artículo 11.—Realizadas las anteriores gestiones y firme la resolución que indica el alineamiento y nivel respectivos, se procederá a extender el permiso correspondiente, el que deberá ser firmado por el Ingeniero Municipal, el Ejecutivo y por el funcionario encargado de la supervisión de la obra.

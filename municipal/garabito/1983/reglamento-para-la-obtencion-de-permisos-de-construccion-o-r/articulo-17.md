@@ -1,0 +1,1 @@
+Artículo 17.—En ningún caso podrá ser traspasada la línea de construcción indicada por la Oficina de Ingeniería municipal. El ingeniero municipal o el funcionario encargado de supervisar la construcción velará porque la anterior disposición se cumpla y por lo tanto de que no se altere la línea dada, ni se varíe la altura del nivel.

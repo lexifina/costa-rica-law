@@ -1,0 +1,1 @@
+Artículo 7°—Si la Oficina de Ingeniería, encontrare algún defecto o considere que algún aspecto técnico en los planos debe modificarse, lo comunicará al interesado, a efecto de que proceda a hacer las enmiendas señaladas.
