@@ -1,0 +1,1 @@
+Artículo 23.-Los profesores ordinarios no tendrán voto en aquellos asuntos de administración general ó puramente económicos de la Escuela, ni en aquellos en que estén interesados. Deberán, sin embargo, asistir á todas las reuniones á que fueren convocados

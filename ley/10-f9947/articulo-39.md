@@ -1,0 +1,1 @@
+Artículo 39.-El Consejo puede dispensar de la enseñanza prevenida en el artículo 32 de esta ley á los estudiantes que justifiquen, por examen ó por documentos estimados suficientes, los conocimientos literarios ó científicos equivalentes.

@@ -1,0 +1,1 @@
+Artículo 46.-Cuando los presupuestos de cada Escuela excedieren del monto disponible del fondo destinado especialmente á su sostenimiento, se reunirán en Consejo los Presidentes de los respectivos Consejos y los Directores de las Escuelas, presididos por el Ministro de Instrucción Pública, para discutir las partidas solicitadas por cada una de ellas.

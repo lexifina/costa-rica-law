@@ -1,0 +1,1 @@
+Artículo 40.-El Consejo de cada Escuela, confiere, previo examen, los grados de Bachiller, Licenciado y Doctor, y expide los certificados Y los títulos profesionales de las varias Escuelas especiales.
