@@ -13,7 +13,12 @@ Considerando:
 DECRETAN:
 Artículo 1º—Modifíquese la estructura orgánica, organizativa y funcional del Consejo de Seguridad Vial, la cual estará constituida de la siguiente manera:
 1.1 Junta Directiva: Auditoría Interna
-1.2 Dirección Ejecutiva -Asesoría Legal -Asesoría en Técnicas de Información
-1.3 Dirección de Logística -Departamento de Gestión y Desarrollo Humano -Departamento de Servicio al Usuario -Departamento de Suministros -Departamento de Servicios Generales
-1.4 Dirección de Proyectos
-1.5 Dirección Financiera: -Departamento de Tesorería -Departamento de Presupuesto -Departamento de Contabilidad.
+1.2 Dirección Ejecutiva -Asesoría Legal -Asesoría en Tecnología de la Información-Contraloría de Servicios
+(Así reformado por el decreto ejecutivo N° 31230 de 11 de junio de 2003)
+1.3 Dirección de Logística -Departamento de Gestión y Desarrollo Humano -Departamento de Infracciones -Departamento de Proveeduría -Departamento de Servicios Generales.
+(Así reformado por el decreto ejecutivo N° 31230 de 11 de junio de 2003)
+1.4 Dirección de Proyectos.-Departamento de Investigación.
+-Departamento de Planificación y Evaluación. -Departamento de Promoción y Comunicación Institucional.
+(Así ampliado este inciso por el decreto ejecutivo N° 31230 de 11 de junio de 2003)
+1.5 Dirección Financiera: -Departamento de Tesorería -Departamento de Presupuesto -Departamento de Contabilidad- Departamento de Análisis Financiero.
+(Así ampliado este inciso por el decreto ejecutivo N° 31230 de 11 de junio de 2003)

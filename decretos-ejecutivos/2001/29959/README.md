@@ -14,3 +14,4 @@ Determina nueva estructura orgánica, organizativa y funcional del Consejo de Se
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-19 | la propia norma |
+| 2 | 2003-06-11 | Decreto Ejecutivo 31230 (2003-06-11) |
