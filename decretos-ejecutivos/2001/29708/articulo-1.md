@@ -1,0 +1,13 @@
+Nº 29708-MP-MCM
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE LA PRESIDENCIA
+Y DE LA CONDICIÓN DE LA MUJER
+De conformidad con las facultades que les confieren el artículo 140 incisos 3) y 18) de la Constitución Política en concordancia con lo establecido en la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978 y,
+Considerando:
+1º—Que las mujeres en condiciones de pobreza tradicionalmente han sido discriminadas negativamente en cuanto a su acceso de oportunidades de desarrollo humano y social, por cuanto han tenido que combinar las demandas de sus papeles como productoras, reproductoras y agentes sociales en sus respectivas familias y comunidades, con lo que las posibilidades para lograr la equidad entre hombres y mujeres encuentra aún importantes limitaciones.
+2º—Que las mujeres pobres generalmente están insertas en actividades productivas de carácter marginal y baja rentabilidad, con menores oportunidades para acceder a la tecnología, crédito, tierra y formación para su inserción exitosa en el mercado laboral y productivo.
+3º—Que este Gobierno ha demostrado su interés en abrir espacios de desarrollo y promoción social a las mujeres en condiciones de pobreza, mediante el desarrollo de programas estratégicos para la capacitación, apoyo, financiamiento y seguimiento de las mujeres pobres, jefas de hogar, productoras, aquellas afectadas por la violencia doméstica y las adolescentes embarazadas y madres.
+4º—Que el Instituto Mixto de Ayuda Social, en su condición de parte de la Red Social de la Organización de Estados Americanos se ha constituido en anfitriona del evento "Mujeres, Pobreza y Derechos Humanos: Con voz Propia", el cual está destinado a analizar, reflexionar, conocer y compartir experiencias en el Combate de la Pobreza.
+5º—Que el Instituto Nacional de las Mujeres como institución rectora de las políticas públicas para la igualdad y equidad de género y en su condición de coordinador regional de la Red Latinoamericana y del Caribe de Oficinas Gubernamentales y Mecanismos Nacionales de la Mujer, está convocando conjuntamente con la Red Social de la Organización de Estados Americanos al evento. Por tanto,
+Decretan:
+Artículo 1º—Se declara de interés Nacional y Público las actividades del evento "Mujeres, Pobreza y Derechos Humanos: Con voz Propia", organizado por el Instituto Nacional de las Mujeres como integrante de la Red Latinoamericana y del Caribe de Organismos Gubernamentales o Mecanismos Nacionales de la Mujer y por el Instituto Mixto de Ayuda Social en su condición de parte de la Red Social de la Organización de Estados Americanos, a efectuarse los días 22 al 24 de agosto del 2001 en nuestro país.

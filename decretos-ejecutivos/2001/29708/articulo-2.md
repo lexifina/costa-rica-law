@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza el sector público centralizado y descentralizado, para contribuir al desarrollo de las actividades del indicado evento con recursos humanos, materiales, financieros y técnicos, dentro del marco legal respectivo, y sin perjuicio del cumplimiento de sus propios objetivos.
