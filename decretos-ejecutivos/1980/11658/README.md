@@ -13,3 +13,4 @@ Crea Comisión Nacional Pro-Año Internacional Impedidos (Minusválidos)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-07-17 | la propia norma |
+| 2 | 1980-07-17 | Decreto Ejecutivo 12119 (1980-12-12) |
