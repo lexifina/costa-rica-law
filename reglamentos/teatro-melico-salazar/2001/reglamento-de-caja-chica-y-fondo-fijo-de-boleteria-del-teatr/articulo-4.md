@@ -1,0 +1,1 @@
+Artículo 4°—El fondo de Caja Chica deberá ser usado única y exclusivamente para el gasto en las partidas de materiales, suministros y servicios no personales, indispensables y urgentes que justifican el pago fuera de los trámites ordinarios establecidos y el fondo fijo de Boletería será únicamente para dar cambio en las funciones de aquellos programas que así lo requieran.

@@ -1,0 +1,1 @@
+Artículo 15.—Todo pago por medio de Caja Chica, estará respaldado por una factura comercial debidamente emitida. El adelanto para el gasto de transporte a empleados, se requerirá utilizar el formulario de "Liquidación de Gastos de Transporte y otros Gastos en el Interior del país", de conformidad con el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.

@@ -1,0 +1,1 @@
+Artículo 19.—Al funcionario que tenga pendiente una liquidación de un anticipo de dinero, para la adquisición de bienes y servicios no le será entregado otro anticipo hasta que no liquide el que tiene pendiente.

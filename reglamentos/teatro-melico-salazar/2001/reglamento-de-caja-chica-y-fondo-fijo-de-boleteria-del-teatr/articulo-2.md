@@ -1,0 +1,1 @@
+Artículo 2°—El fundamento de este Reglamento se encuentra en la Ley de Creación del Teatro Popular Mélico Salazar como ente adscrito al Ministerio de Cultura, Juventud y Deportes No 7023 del 13 de marzo de 1986 y en el Manual de Normas Técnicas de Control Interno para la Contraloría General de la República y las Entidades y Órganos sujetos a su fiscalización.

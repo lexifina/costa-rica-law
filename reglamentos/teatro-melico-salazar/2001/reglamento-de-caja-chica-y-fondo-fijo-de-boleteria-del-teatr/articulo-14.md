@@ -1,0 +1,2 @@
+Artículo 14.—De todos los arqueos que se realicen deberá constar evidencia escrita, en original y una copia. Los arqueos deberán ser firmados por la persona encargada de la Caja Chica y por quien los realiza.
+El original será archivado como parte de los documentos del Departamento Financiero Contable del Teatro Popular Mélico Salazar y la copia será entregada a la persona encargada de la Caja Chica o de la Boletería.

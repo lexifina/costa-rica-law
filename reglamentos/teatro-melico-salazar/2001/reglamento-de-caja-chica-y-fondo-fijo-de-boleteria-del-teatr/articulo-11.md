@@ -1,0 +1,1 @@
+Artículo 11.—Todo pago por medio de Caja Chica deberá contar con su correspondiente contenido presupuestario y será responsabilidad del funcionario que supervisa la Caja Chica y el encargado de la misma, velar por el cumplimiento de esta disposición.

@@ -1,0 +1,1 @@
+Artículo 13.—Todo arqueo de Caja Chica y de Boletería se realizará en presencia de la persona responsable del fondo. Esta tendrá el derecho a pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.
