@@ -1,0 +1,1 @@
+Art. 3. El presente Decreto se pondrá en conocimiento de la próxima Asamblea ordinaria, y para sus efectos imprímase, circúlese y publíquese –Dado en San José á los cinco días del mes de enero de mil ochocientos cuarenta y cuatro. –José María Alfaro. –Al Ministro general del DESPACHO Señor Joaquin Bernardo Calvo.”.
