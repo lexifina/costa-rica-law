@@ -1,4 +1,1 @@
-Artículo 3º.- La Dirección General de Bibliotecas y el Teatro
-Nacional estarán adscritos al Ministerio que por esta ley se crea. El
-Poder Ejecutivo dispondrá, por medio de decretos, cuáles otros
-departamentos u organismos formarán el nuevo Ministerio.
+Artículo 3º.- La Dirección General de Bibliotecas y el Teatro Nacional estarán adscritos al Ministerio que por esta ley se crea. El Poder Ejecutivo dispondrá, por medio de decretos, cuáles otros departamentos u organismos formarán el nuevo Ministerio.
