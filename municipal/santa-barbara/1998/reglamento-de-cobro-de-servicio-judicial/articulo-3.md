@@ -1,6 +1,2 @@
-Artículo 3°—En caso de cobro judicial ya presentado los honorarios para la suspensión del proceso serán:
-0 a 10.000 2.000.00
-10.000 a 20.000 4.000.00
-20.000 a 50.000 8.000.00
-50.000 a 100.000 12.500.00
-de 100.000 en adelante: el 12.5% de la suma a cobrar
+Artículo 3°— Los profesionales debidamente contratados cobrarán honorarios profesionales en aquellos casos asignados, en los que se llegue a un arreglo judicial o extrajudicial, posterior a la presentación de la demanda y antes del dictado de la sentencia, en cuyo caso la tarifa a aplicar es: el arancel del Colegio de Abogados, fijada en el Decreto Nº 20307-J, publicado en La Gaceta Nº 64 del 4 de abril de 1991.
+(Así reformado por Acuerdo de Sesión Nº 225 celebrada el 11 de junio de 2002)
