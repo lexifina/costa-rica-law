@@ -1,0 +1,2 @@
+Artículo 19.-Comprobado el hecho de haber un reo condenado á extrañamiento ó confinamiento quebrantado su condena, la autoridad competente declarará revocada la conmutación y dispondrá que el reo cumpla la parte de pena primitiva no descontada aún, con las agravaciones que proceden según el artículo 100 del Código Penal.
+Cualquiera autoridad judicial, de oficio ó por denuncia del Ministerio Público, de autoridades de policía ó de particulares, levantará la información correspondiente con audiencia del Agente Fiscal, y la pasará donde proceda.

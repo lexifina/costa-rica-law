@@ -1,0 +1,3 @@
+Artículo 22.-El indulto se entenderá dado bajo la condición de que quedará sin efecto, si el penado delinquiere de nuevo. La sentencia que lo condene de nuevo hará la revocatoria y ordenará que se sume á la nueva pena la perdonada con anterioridad.
+El indulto se entenderá siempre concedido sin perjuicio de terceros interesados en cuanto á responsabilidad civil y no quita al favorecido el carácter de condenado para los efectos de reincidencia, agravantes y demás que determinen las leyes.
+Cuando el delito por que hubiere sido condenado el reo fuere de los que solamente se persiguen á instancia de parte, no se concederá indulto si antes no se ha obtenido el perdón del agraviado y si no se acompaña prueba satisfactoria de tal perdón.

@@ -1,0 +1,2 @@
+Artículo 15.-El Ejecutivo podrá conceder el cambio de lugar de un confinamiento, sea ‚ésta la pena directa, sea el resultado de una conmutación, cuando á su juicio hubiere una razón poderosa para disponerlo. Pero en todo caso deberá observarse lo prescrito por el artículo 45 del Código Penal, respecto á distancia entre el lugar del confinamiento y el del delito.
+Para conceder el cambio, no es preciso oír el parecer de la Corte Suprema de Justicia, pero sí deberá cumplirse el requisito de publicación del acuerdo en el periódico oficial.
