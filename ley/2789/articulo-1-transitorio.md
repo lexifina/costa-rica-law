@@ -1,0 +1,1 @@
+Transitorio I.-Hasta tanto no se instale la Municipalidad que se elija en las elecciones de febrero de 1962, este cantón se seguirá rigiendo, en lo municipal, como distrito segundo del cantón central de Heredia.
