@@ -1,0 +1,1 @@
+Artículo 4°-Las construcciones que se realicen en este lote para nueva formación de religiosas, deben hacerse de acuerdo con planos específicos refrendados debidamente por el Departamento de Ingeniería y Planeamiento de la Dirección General de Asistencia Médico-Social.
