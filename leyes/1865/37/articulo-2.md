@@ -1,0 +1,1 @@
+Artículo 2°. -El Administrador General respectivo, debe recoger oportunamente las que hayan llevado los Administradores o Receptores que de ‚l dependan, y presentarlas como comprobante o contraste de la suya a la expresada Contaduría.

@@ -1,0 +1,1 @@
+Artículo 3°-Dichas cuentas parciales deben examinarse al mismo tiempo que la general que contrastan, respondiendo de los reparos el subalterno contra quien se deduzcan, y recayendo sobre el todo de la cuenta un solo fallo o un solo finiquito, sin dividir la continencia de ella.
