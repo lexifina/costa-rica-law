@@ -1,0 +1,1 @@
+Art 4°.- No se hará, ni esta, ni otra siembra de Tabaco sin que el número necesario de cosecheros se allane con la Factoría a permitir el registro que haga el resguardo de los ranchos que se plantan en el lugar de las siembras cuando este lo tenga a bien, sin formalidad alguna durante el tiempo de la cosecha.
