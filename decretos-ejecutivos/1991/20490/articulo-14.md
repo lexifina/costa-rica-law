@@ -1,0 +1,1 @@
+Artículo 14.-El Ministro de Recursos Naturales, Energía y Minas, extenderá a los miembros de los COVlRENAS, el carné y el distintivo de inspector forestal o de fauna ad honórem que los acredite como tales. Dicho carné tendrá una vigencia de hasta un año.

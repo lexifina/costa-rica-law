@@ -1,0 +1,1 @@
+Artículo 19.-Deróguese el artículo 6° del decreto ejecutivo número 15403-MAG y sus reformas, y el artículo 89 del decreto ejecutivo número 19886-MIRENEM, así como cualquier otra disposición de igualo menor rango que se oponga al presente.

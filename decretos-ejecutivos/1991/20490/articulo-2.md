@@ -1,0 +1,1 @@
+Artículo 2°-Dicho cuerpo estará formado por personas que prestarán sus servicios sin recibir retribución material de ninguna especie, e interesadas en la conservación y vigilancia de los recursos naturales del país; siendo sus cualidades fundamentales: la honradez, la disciplina, la dedicación y la abnegación.

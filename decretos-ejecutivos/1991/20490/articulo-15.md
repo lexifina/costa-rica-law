@@ -1,0 +1,1 @@
+Artículo 15.-Los inspectores forestales y de fauna ad honórem, serán responsables por sus actos, al tenor de lo dispuesto en la Ley General de la Administración Pública, cuando se extralimiten en sus funciones, especialmente si su actuación ha comprometido o perjudicado a la Administración.
