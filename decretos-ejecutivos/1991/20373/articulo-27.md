@@ -1,5 +1,1 @@
-ARTICULO 27.- Las personas que desobedecieran las disposiciones
-emanadas por los órganos de control de espectáculos públicos o se nieguen
-a cumplir lo dispuesto por el artículo 20 del presente reglamento, serán
-denunciados ante las autoridades competentes, si se llegare a considerar
-que con su negativa ha violado el ordenamiento jurídico.
+ARTICULO 27.- ANULADO. (Anulado por Resolución de la Sala Constitucional Nº 1156-94 de las 15:45 horas del 1º de marzo de 1994)

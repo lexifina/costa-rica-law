@@ -13,3 +13,4 @@ Reglamento Espectáculos Públicos, Cine, Radio, Televisión, Revistas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-04-29 | la propia norma |
+| 2 | 1991-04-29 | SINALEVI (sin norma nombrada) |

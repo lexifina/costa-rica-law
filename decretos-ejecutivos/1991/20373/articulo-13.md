@@ -1,4 +1,1 @@
-ARTICULO 13.- La Comisión estará presidida por el Director Ejecutivo
-del Consejo, quien para efectos de deliberación y votación tendrá la misma
-calidad de los restantes miembros, únicamente, en caso de empate tendrá
-derecho a voto de calidad.
+ARTICULO 13.- La Comisión estará presidida por el Director Ejecutivo del Consejo, quien para efectos de deliberación y votación tendrá la misma calidad de los restantes miembros, únicamente, en caso de empate tendrá derecho a voto de calidad.
