@@ -3,7 +3,7 @@ Si los procesos son de materias diferentes de la civil o la
 mercantil, la Junta liquidadora asignará los asuntos a uno o más
 profesionales especialistas en la respectiva materia, de los que integran
 la lista elaborada por ella, previo concurso de antecedentes.
-Confeccionará esa lista según lo establecido en el artículo 13 (*) de la
+Confeccionará esa lista según lo establecido en el artículo 13(*) de la
 presente Ley con, por lo menos, veinte profesionales de diversas
 especialidades, de los cuales diez deberán ser penalistas. Los honorarios
 se pagarán de acuerdo con la modalidad de horas profesionales de trabajo
