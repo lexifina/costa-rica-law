@@ -1,8 +1,3 @@
-Artículo 5º.- El producto del impuesto asignado a la educación
-técnica, a cargo del Ministerio de Educación Pública, se distribuirá de
-acuerdo con la recomendación de este Ministerio, en consulta con la
-Dirección de Educación Técnica, entre los institutos de tercer ciclo y de
-educación diversificada, en todo el país, en las ramas técnicas:
-industrial; agropecuaria y comercial y será destinado a satisfacer las
-necesidades de tierra, planta física, equipo, herramientas, materiales y
-servicios.
+Artículo 5º.- El producto del impuesto asignado a la educación técnica agropecuaria, se distribuirá de acuerdo con la recomendación del Ministerio de Educación Pública, el cual consultará a la Dirección de Educación Técnica, a los institutos de tercer ciclo y de educación diversificada en la rama técnica agropecuaria, de todo el país, y a la Escuela Centroamericana de Ganadería.
+Este porcentaje se destinará a satisfacer las necesidades de equipo y herramientas de la educación técnica agropecuaria.
+(Así reformado por el artículo 35 de la Ley Nº 6735 de 29 de marzo de 1982).
