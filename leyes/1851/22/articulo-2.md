@@ -1,0 +1,1 @@
+Art. 2. Tambien acompañara el pretendiente, al atestado de que habla el artículo anterior, una informacion de vita el móribus, en la cual depondrán tres vecinos principales de la ciudad, que el Juez nombrará al efecto.
