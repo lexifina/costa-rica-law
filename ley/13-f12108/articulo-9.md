@@ -1,0 +1,1 @@
+Art. 10. –Los Juzgados Civiles y de Comercio en 1a Instancia de la República, tendrán cada uno un notificador con el sueldo que el Poder Ejecutivo tenga a bien asignarle. Dicho notificador hará fe pública en su oficio.
