@@ -14,3 +14,4 @@ Comunica resolución de la Dirección General de Servicio Civil (DG-055-97, Manu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-07-07 | la propia norma |
+| 2 | 2001-05-09 | Resolución 5 (2001-05-09) |
