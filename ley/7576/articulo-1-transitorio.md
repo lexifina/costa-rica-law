@@ -1,0 +1,1 @@
+TRANSITORIO I.- Mientras no se cree el Juzgado de Ejecución de las Sanciones, el Juez Penal Juvenil será el encargado de controlar la ejecución de las sanciones y demás competencias que le correspondan a este Juzgado.

@@ -1,0 +1,1 @@
+TRANSITORIO III.- La Corte Suprema de Justicia podrá trasladar los recursos que, hasta la entrada en vigencia de esta ley, conforman la Jurisdicción Tutelar de Menores, a fin de constituir los Tribunales establecidos en esta ley.

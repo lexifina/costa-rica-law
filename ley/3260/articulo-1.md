@@ -1,4 +1,6 @@
+(Derogado)
 Ley Nº 3260
+(Esta norma fue derogada por el artículo 143 de la Ley de Justicia Penal Juvenil, N° 7576 del 8 de marzo de 1996)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 (Nota de Sinalevi: El texto de esta norma fue reformado en forma integra por el artículo 1° de la ley N° 7383 del 16 de marzo de 1994 , por lo que se reproduce a continuación)
