@@ -1,0 +1,1 @@
+Artículo 6º—Sujetos beneficiarios: De acuerdo con los objetivos de este Reglamento, los permisos de artesanía, venta de servicios turísticos y transportes a turistas, podrán ser otorgados a personas físicas y jurídicas, sean estas últimas organizaciones sociales, fundaciones, asociaciones, cooperativas o sociedades mercantiles.

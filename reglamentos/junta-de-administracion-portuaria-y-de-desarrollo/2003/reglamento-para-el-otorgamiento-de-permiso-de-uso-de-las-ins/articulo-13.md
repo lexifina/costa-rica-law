@@ -1,0 +1,2 @@
+Artículo 13.—Terminación del permiso. La autorización termina en forma normal por las condiciones del artículo 4º de este Reglamento.
+El permiso podrá ser revocado, sin responsabilidad para la administración, en caso de que el permisionario incumpla las obligaciones establecidas en este Reglamento, dicho procedimiento lo instruirá la Unidad de Cruceros; y que lo elevará al Consejo de Administración para la revocatoria del permiso.

@@ -1,0 +1,2 @@
+Artículo 5º—Autoridad encargada: La Unidad de Cruceros de JAPDEVA recomendará el número de permisos en coordinación con la Superintendencia de las Terminales Portuarias y se encargará de que se cumpla el presente reglamento:
+Dentro de sus funciones, la Unidad de Cruceros analizará y recomendará a la Gerencia Portuaria de JAPDEVA, el otorgamiento de los permisos de uso de las instalaciones para la venta temporal de artesanía; servicios turísticos y transporte de turistas, para la aprobación por parte del Consejo de Administración (art. 17 de la Ley Orgánica de JAPDEVA).

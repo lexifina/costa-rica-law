@@ -1,0 +1,1 @@
+Artículo 18.—El Consejo de Administración a solicitud de la Unidad de Cruceros de JAPDEVA, de la Comisión de Cruceros y/o la Gerencia Portuaria, podrá por motivos de organización de la actividad portuaria, revocar unilateralmente los permisos otorgados al amparo de este Reglamento, sin responsabilidad para la Administración.
