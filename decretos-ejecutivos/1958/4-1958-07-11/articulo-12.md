@@ -1,0 +1,1 @@
+Artículo 12.- La caución se extingue un año después de que el funcionario o empleado termine su período o cese en sus funciones; más si hubiere juicios pendientes de responsabilidad contra él, la garantía quedará afectada a la que en ellos se declare.

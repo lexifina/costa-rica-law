@@ -1,0 +1,1 @@
+Artículo 6º.- Si el fiador propuesto careciere de bienes inscritos, se deberá indicar de qué otra clase de propiedades es dueño aquél a fin de poder fundamentar el bastanteo de su solvencia económica.

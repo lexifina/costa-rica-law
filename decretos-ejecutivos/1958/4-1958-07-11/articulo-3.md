@@ -1,0 +1,3 @@
+Artículo 3º.- Cuando la caución consista en hipoteca no será admitida si la finca ofrecida en garantía tiene ya otro gravamen hipotecario o si no tiene un valor doble de la cantidad que se trata de garantizar.
+La caución consistente en fianza no será admitida si el fiador propuesto tiene otorgadas otras fianzas o hipotecas a favor del Fisco o de particulares, por valores que excedan de la mitad de los bienes que poseyere. Para los efectos pertinentes habrá de mediar manifestación expresa de la persona ofrecida como garante bajo la fe del juramento, en los términos indicados.
+Tampoco será admisible la caución fiduciaria si el fiador no es persona de reconocido crédito y no tiene bienes que cubran, por lo menos tres veces la cantidad que debe garantizar.

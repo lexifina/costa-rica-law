@@ -1,0 +1,2 @@
+Artículo 15.- Este decreto rige a partir de su publicación y deroga y sustituye para todos los efectos el Nº 10 de 19 de agosto de 1914. Deroga asimismo toda otra disposición reglamentaria que se le opusiere y modifica las demás existentes a la fecha en los términos que en él se especifican.
+Dado en la Casa Presidencial.-San José, a los once días del mes de julio de mil novecientos cincuenta y ocho.

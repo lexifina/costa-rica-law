@@ -1,0 +1,1 @@
+Artículo 13.- Cuando la caución se hubiere rendido para garantizar otras responsabilidades, ella no se cancelará sino después de que hubiere transcurrido un año desde que cesaren o desaparecieren las causas que le dieron origen.

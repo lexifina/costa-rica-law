@@ -1,0 +1,2 @@
+Artículo 10.- Cuando disminuya la garantía prestada o se extinga por algún motivo, la Procuraduría General de la República prevendrá al interesado la complete o la cambie dentro del término de quince días que se contará a partir de la fecha en que se hiciere la prevención.
+Transcurrido el plazo anterior sin que se hubiere completado o renovado la garantía, la Procuraduría General de la República lo comunicará así a los organismos correspondientes considerándose, para los efectos legales del caso, como si no se hubieran garantizado las responsabilidades consiguientes.

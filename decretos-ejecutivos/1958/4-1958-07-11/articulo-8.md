@@ -1,0 +1,1 @@
+Artículo 8º.- Una vez devueltas las diligencias al Ministerio de Economía y Hacienda, éste calificará definitivamente la garantía ofrecida y si la aceptare, librará oficio a la Procuraduría General de la República para que otorgue la escritura del caso, en la cual se deberá hacer inserción literal del mismo.
