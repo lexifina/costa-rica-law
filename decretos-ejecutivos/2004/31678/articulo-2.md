@@ -1,0 +1,1 @@
+Artículo 2º—Que las órdenes de compra que fueron emitidas al amparo de estas declaratorias de emergencias y que actualmente están en ejecución las obras contratadas se mantendrán vigentes hasta el finiquito de la misma. Las órdenes de compra que presenten saldos pendientes se mantendrán vigentes hasta que se presenten los finiquitos o liquidaciones respectivas de las obras.
