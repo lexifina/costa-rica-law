@@ -1,0 +1,1 @@
+Art. 2. En consecuencia, todas las armas que han depuesto y presentaren las fuerzas sublevadas, y las demas, con los pertrechos de guerra existentes en dicho departamento, seràn recojidas y trasportadas à los almacenes de la capital, no quedando en esta ciudad de Alajuela, mas que el corto número de fusiles preciso para conservar el órden.
