@@ -22,3 +22,4 @@ Reforma Establece las Reservas Indígenas Chirripó, Guaymi de Coto Brus, La Est
 | 7 | 1985-05-16 | Decreto Ejecutivo 16306 (1985-05-16) |
 | 8 | 1985-05-16 | Decreto Ejecutivo 16307 (1985-05-16) |
 | 9 | 1985-05-16 | Decreto Ejecutivo 16308 (1985-05-16) |
+| 10 | 1985-09-25 | Decreto Ejecutivo 16571 (1985-09-25) |

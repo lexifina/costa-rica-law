@@ -51,7 +51,9 @@ N 388 525 | E 540 875 | (cerro Quichocälä, 1 558 m, llamado por error en el ma
 N 385 525 | E 536 775 | (vértice Iski, 1 545 m, fila Casirijubata).
 De este punto, a la confluencia del río Broi (Broy) con el río Telire, en coordenadas N 384 650 E 532 300, punto inicial de la presente descripción.
 Superficie de la Reserva Indígena Cabécar de Telire: 16 260 hectáreas.
-(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 16308 del 16 de mayo de 1985, se modifican los límites de la presente reserva indígena y artículo 3° indica que la Reserva Indígena Cabécar de Telire incluye los caseríos siguientes :
+(NOTAS DE SINALEVI:
+(1. Mediante el artículo 1° del decreto ejecutivo N° 16308 del 16 de mayo de 1985, se modifican los límites de la presente reserva indígena y artículo 3° indica que la Reserva Indígena Cabécar de Telire incluye los caseríos siguientes :
 1. Alto Telire (Talire Táwá), que corresponde a los territorios situados al oeste y al sur de la fila dzesqira (Lleskila) y hasta la boca del río Dzey (Llei).
 2. Telire Bley (Talire Bley), situado al este del primero y al norte de los ríos Chiquei (Xiqey) y Quei (Tqey); incluye al poblado de Rangalle (Bi-cáláfitey).
 3. Telire Tqey, situado al sur de los ríos Chiquei (Xiqey) y Quei (Tqey)).
+(2. Mediante el artículo 1° del decreto ejecutivo N° 16571 del 25 de setiembre de 1985, se modifica en lo conducente este decreto de manera que las áreas correspondientes al Parque Nacional La Amistad (Parque Nacional Cordillera de Talamanca) y a la Reserva Biológica de Hitoy, que fueron incluidas en la demarcación de la Reserva Indígena Cabécar de Telire permanecerán bajo el régimen de Parques Nacionales hasta que la Asamblea Legislativa apruebe el proyecto de ley, presentado por el Servicio de Parques Nacionales y la CONAI, por el cual estas áreas se segregarán definitivamente de los mencionados parques y se incluirán en la Reserva Indígena Cabécar de Telire).
