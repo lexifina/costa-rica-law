@@ -33,3 +33,4 @@ TOTAL AUMENTAR 5.000.000
 (Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31301 de 16 de julio de 2003, publicado en La Gaceta No. 155 de 13 de agosto de 2003.)
 (Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31384 de 24 de setiembre de 2003, publicado en La Gaceta No. 196 de 13 de octubre de 2003.)
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 10 de la Ley No. 8374 de 13 de agosto de 2003, publicado en La Gaceta No. 161 de 28 de agosto de 2003, Alcance 43.)
+(Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31384 de 24 de setiembre de 2003, publicado en La Gaceta No. 196 de 13 de octubre de 2003.)
