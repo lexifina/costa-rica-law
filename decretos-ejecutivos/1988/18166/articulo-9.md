@@ -1,1 +1,0 @@
-Artículo 9°-El Comité de Informática se reunirá ordinariamente cada dos meses y extraordinariamente cuando el Secretario Ejecutivo de Informática lo convoque. a petición de la COPOIN, a petición de dos o mas de sus miembros, o por iniciativa propia.

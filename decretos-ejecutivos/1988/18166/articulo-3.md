@@ -1,2 +1,0 @@
-Artículo 3°-La COPOIN se reunirá ordinariamente, convocada por el Ministro de Ciencia y Tecnología. cada seis meses. Extraordinariamente cuando el Ministro lo considere conveniente. o por petición de tres o más de sus miembros. al considerar que algún tema debe ser sometido con prontitud a análisis. '
-El "modus-operandi" de las sesiones será el que dispone la Ley General de la Administración Pública en sus artículos 49 y concordantes.
