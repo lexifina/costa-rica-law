@@ -1,0 +1,1 @@
+ARTÍCULO 9°.-El Secretario de la Corte servir y hará de escribano en los Juzgados de vista y revista, su dotación ser la de doscientos pesos anuales, y le pertenecerán además los derechos que se causen cuando se le manden exigir y llevar.

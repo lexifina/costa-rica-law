@@ -1,0 +1,1 @@
+ARTÍCULO 8°.-En las causas en tercera instancia el que conozca de ellas, dar cuenta a la Corte Plena para que ‚esta le nombre dos adjuntos o colegas Abogados Bachilleres en derecho, y si no hubieren, dos hombres de probidad, que en calidad de conjueces conozcan y fallen con ‚l tan solo en el acto de la sentencia.

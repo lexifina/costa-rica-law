@@ -1,0 +1,1 @@
+ARTÍCULO 12.-Sancionado que sea este decreto, las juntas electorales de partido proceder n a sufragar por los individuos de que habla el art¡culo 3§ y a la mayor brevedad se remitir n a la Asamblea los pliegos de votaciones, y entre tanto permanecer la Corte actual ejerciendo sus funciones.
