@@ -1,4 +1,4 @@
-Artículo 1º- Ratíficase el Convenio entre el Gobierno de los Estados
+Artículo 1º- Ratifícase el Convenio entre el Gobierno de los Estados
 Unidos de América y el Gobierno de Costa Rica, para la venta de productos
 agrícolas, suscrito en San José, el 22 de noviembre de 1983, cuyo texto es
 el siguiente:
@@ -6,33 +6,31 @@ el siguiente:
 DE AMERICA Y EL GOBIERNO DE COSTA RICA PARA
 LA VENTA DE PRODUCTOS AGRICOLAS
 El Gobierno de los Estados Unidos de América y el Gobierno de Costa
-Rica;
+Rica,
 Reconociendo la conveniencia de ampliar el comercio de productos
 agrícolas entre los Estados Unidos de América (que en adelante se denomina
 el país exportador) y Costa Rica (que en adelante se denomina el país
-importador), así como otros países amigos, de una manera que no desplace
-la comercialización usual del país exportador en estos productos ni altere
-indebidamente los precios mundiales de los productos agrícolas o las
-normas usuales del intercambio comercial con países amigos;
-Considerando la importancia que para los países en desarrollo
-revisten sus esfuerzos por ayudarse a sí mismos, a fin de alcanzar un
-mayor grado de autosuficiencia, incluye los esfuerzos encaminados a
-solucionar sus problemas de producción de alimentos y crecimiento de
-población;
+importador), así como otros países amigos, de una manera que no desplace la
+comercialización usual del país exportador en estos productos ni altere
+indebidamente los precios mundiales de los productos agrícolas o las normas
+usuales del intercambio comercial con países amigos;
+Considerando la importancia que para los países en desarrollo revisten
+sus esfuerzos por ayudarse a sí mismos, a fin de alcanzar un mayor grado de
+autosuficiencia, incluye los esfuerzos encaminados a solucionar sus
+problemas de producción de alimentos y crecimiento de población;
 Reconociendo la política del país exportador de utilizar su
 productividad agrícola para combatir el hambre y la desnutrición en los
 países en vías de desarrollo, estimular a estos países a mejorar su propia
-producción agrícola., y prestarle asistencia en su desarrollo económico;
+producción agrícola; y prestarle asistencia en su desarrollo económico;
 Reconociendo el empeño del país importador de mejorar su propia
 producción, almacenaje y distribución de productos agrícolas alimenticios,
-inclusive la reducción de desperdicios en todas las etapas de este
-proceso;
+inclusive la reducción de desperdicios en todas las etapas de este proceso;
 Deseosos de establecer las bases de entendimiento que regirán las
-ventas de los productos agrícolas al país importador, de conformidad con
-lo dispuesto en el Título I de la ley de Asistencia y Desarrollo del
-Comercio Agrícola, con sus enmiendas (denominada en adelante la Ley), y
-las medidas que los dos Gobiernos adoptarán individual y colectivamente
-para fomentar las políticas antes mencionadas;
+ventas de los productos agrícolas al país importador, de conformidad con lo
+dispuesto en el Título I de la ley de Asistencia y Desarrollo del Comercio
+Agrícola, con sus enmiendas (denominada en adelante la Ley), y las medidas
+que los dos Gobiernos adoptarán individual y colectivamente para fomentar
+las políticas antes mencionadas;
 Han convenido lo siguiente:
 CAPITULO I
 Disposiciones Generales
@@ -66,7 +64,7 @@ del mercado de exportación especificado para dicho producto y tipo de
 financiación en el Capítulo II. El Gobierno del país exportador podrá
 limitar el valor total de cada producto a incluirse en las autorizaciones
 de compra para un tipo específico de financiación, según lo requieren las
-bajas de precio u otros factores del mercado, en forma tal que las
+bajas de precios u otros factores del mercado, en forma tal que las
 cantidades de dicho producto vendidas conforme a un determinado tipo de
 financiación no excedan sustancialmente de la cantidad máxima aproximada
 aplicable especificada en el Capítulo II.
@@ -83,49 +81,35 @@ no tendrá responsabilidad alguna de reembolsar al Gobierno del país
 exportador para cubrir el diferencial de costo de transporte marítimo
 sufragado por el Gobierno del país exportador.
 G. Tan pronto como se haya contratado espacio de carga en barcos de
-bandera de los Estados Unidos para el transporte de los productos que
-deban ser llevados en barcos de dicha bandera y, a más tardar, hasta la
-presentación de los barcos para cargar, el Gobierno del país importador o
-los compradores autorizados por el mismo abrirán una carta de crédito en
-dólares de los Estados Unidos, por el costo estimado del transporte
-marítimo de tales productos.
-H. Cualquiera de los dos Gobiernos puede dar por terminados la
-financiación, compra, venta y entrega de los productos comprendidos en
-este Convenio si tal Gobierno considera que, como consecuencia del cambio
-de condiciones, es innecesario o inconveniente continuar tal financiación,
-compra, venta o entrega.
-ARTICULO II
-A. Pago inicial
-El Gobierno del país importador pagará o hará pagar el pago inicial
-que se especifique el Capítulo II de este Convenio. El importe de este
-pago será la proporción del precio de compra (excluyendo cualquier costo
-de transporte marítimo que pueda haberse incluido en el mismo) igual al
-porcentaje especificado como pago inicial en el Capítulo II, y el pago se
-hará en dólares de los Estados Unidos, de conformidad con la autorización
-de compra correspondiente.
+bandera de los Estados Unidos para el transporte este Convenio. El
+importe de este pago será la proporción del precio de compra (excluyendo
+cualquier costo de transporte marítimo que pueda haberse incluido en el
+mismo) igual al porcentaje especificado como pago inicial en el Capítulo
+II, y el pago se hará en dólares de los Estados Unidos, de conformidad con
+la autorización de compra correspondiente.
 B. Fondos de contrapartida
-El Gobierno del país "importador" pagará o hará pagar, a solicitud
-del Gobierno del país exportador, en las cantidades que éste determine,
-pero en ningún caso más tarde que un año después del desembolso final por
-parte de la Commodity Credit, Corporation, efectuado al amparo de este
-Convenio, o al finalizar el período de entregas, de las dos fechas la que
-ocurra después, el pago que se especifique en el Capítulo II de este
-Convenio de conformidad con la Sección 103 (b) de la ley (en adelante
-denominados Fondos de Contrapartida). Los Fondos de Contrapartida
-constituirán la porción de la cantidad financiada por el país exportador
-igual al porcentaje especificado para Fondos de Contrapartida en el
-Capítulo II. El pago se hará de conformidad con el párrafo H y para los
-propósitos especificados en los apartados (a), (b) (e) y (h) de la
-Subsección 104 de la ley, según se estipula en el Capítulo II de este
-Convenio. Tal pago descontará (a) del monto del pago de los intereses de
-cada año pagaderos durante el período anterior a la fecha de vencimiento
-de la primera amortización, comenzando con el primer año y (b) de los
-pagos combinados del principal e interés, comenzando con la primera
-amortización, hasta tanto se haya contrarrestado el valor de los Fondos de
-Contrapartida. A menos que en el Capítulo II se especifique lo contrario,
-el Gobierno del país exportador no presentara solicitudes de pago antes
-del primer desembolso por parte de la Commodity Credit Corporation del
-país exportador al amparo de este Convenio.
+El Gobierno del país "importador" pagará o hará pagar, a solicitud del
+Gobierno del país exportador, en las cantidades que éste determine, pero en
+ningún caso más tarde que un año después del desembolso final por parte de
+la Commodity Credit Corporation, efectuado al amparo de este Convenio, o al
+finalizar el período de entregas, de las dos fechas la que ocurra después,
+el pago que se especifique en el Capítulo II de este Convenio de
+conformidad con la Sección 103 (b) de la ley (en adelante denominados
+Fondos de Contrapartida). Los Fondos de Contrapartida constituirán la
+porción de la cantidad financiada por el país exportador igual al
+porcentaje especificado para Fondos de Contrapartida en el Capítulo II.
+El pago se hará de conformidad con el párrafo H y para los propósitos
+especificados en los apartados (a), (b) (e) y (h) de la Subsección 104 de
+la ley, según se estipula en el Capítulo II de este Convenio. Tal pago se
+descontará (a) del monto del pago de los intereses de cada año pagaderos
+durante el período anterior a la fecha de vencimiento de la primera
+amortización, comenzando con el primer año y (b) de los pagos combinados
+del principal e intereses, comenzando con la primera amortización, hasta
+tanto se haya contrarrestado el valor de los Fondos de Contrapartida. A
+menos que en el Capítulo II se especifique lo contrario, el Gobierno del
+país exportador no presentara solicitudes de pago antes del primer
+desembolso por parte de la Commodity Credit Corporation del país exportador
+al amparo de este Convenio.
 C. Tipo de financiación
 Las ventas de los productos especificados en el Capítulo II se
 financiarán de acuerdo con el tipo de financiación allí indicado. En el
@@ -140,39 +124,38 @@ incluir los costos del transporte marítimo) menos cualquier porción del
 pago inicial pagadero al Gobierno del país exportador. El principal se
 pagará de conformidad con el plan de pagos enunciado en el Capítulo II de
 este Convenio. La primera amortización vencerá y será pagadera en la
-fecha en que se especifica en el capítulo II des este Convenio. Las
-amortizaciones subsiguientes vencerán y serán pagaderas con un intervalo
-de un año a partir de entonces. Cualquier pago de principal podrá
-efectuarse antes de la fecha de vencimiento.
+fecha en que se especifica en el capítulo II de este Convenio. Las
+amortizaciones subsiguientes vencerán y serán pagaderas con un intervalo de
+un año a partir de entonces. Cualquier pago de principal podrá efectuarse
+antes de la fecha de vencimiento.
 2. Los intereses sobre el saldo del principal adeudado al Gobierno del
 país exportador en concepto de productos entregados en cada año civil,
 serán pagados en la forma siguiente:
 a) En el caso del Crédito Dólares, los intereses comenzarán a
 devengarse en la fecha de la última entrega de estos productos en cada año
-civil.
-Los intereses se pagarán a más tardar en la fecha de vencimiento de
+civil. Los intereses se pagarán a más tardar en la fecha de vencimiento de
 cada amortización del principal excepto que si la fecha de la primera
 amortización es más que un año desde la fecha de la última entrega, el
-primer pago de intereses se hará a más tardar en la fecha aniversario
-de tal última entrega y subsiguientemente el pago de los intereses se
-efectuará anualmente y a más tardar en la fecha de vencimiento de
-cada amortización del principal.
+primer pago de intereses se hará a más tardar en la fecha aniversario de
+tal última entrega y subsiguientemente el pago de los intereses se
+efectuará anualmente y a más tardar en la fecha de vencimiento de cada
+amortización del principal.
 b) En el caso del Crédito en Moneda Local Convertible, los intereses
-comenzarán a devengarse en la fecha del desembolso en dólares efectuado
-por el Gobierno del país exportador. Tales intereses se pagarán
-anualmente comenzando un año después de la fecha de la última entrega de
-productos en cada año civil, excepto que si las amortizaciones en concepto
-de estos productos no vencen en algún aniversario de tal fecha de
-la última entrega todo interés devengado en la fecha de vencimiento de
-la primera amortización será pagadero en la misma fecha en que vence la
-primera amortización y subsiguiente tales intereses se pagarán en las
-fechas de vencimiento de las amortizaciones siguientes.
+comenzarán a devengarse en la fecha del desembolso en dólares efectuado por
+el Gobierno del país exportador. Tales intereses se pagarán anualmente
+comenzando un año después de la fecha de la última entrega de productos en
+cada año civil, excepto que si las amortizaciones en concepto de estos
+productos no vencen en algún aniversario de tal fecha de la última entrega
+todo interés devengado en la fecha de vencimiento de la primera
+amortización será pagadero en la misma fecha en que vence la primera
+amortización y subsiguiente tales intereses se pagarán en las fechas de
+vencimiento de las amortizaciones siguientes.
 3. Para el período desde la fecha en que comienzan los intereses hasta
 la fecha de vencimiento de la primera amortización, los intereses se
-computarán con base en la tasa inicial de intereses que se especifica en
-el Capítulo II de este Convenio. Subsiguientemente, los intereses se
-computarán con base en la tasa continuada de intereses que se especifica
-en el Capítulo II de este Convenio.
+computarán con base en la tasa inicial de intereses que se especifica en el
+Capítulo II de este Convenio. Subsiguientemente, los intereses se
+computarán con base en la tasa continuada de intereses que se especifica en
+el Capítulo II de este Convenio.
 E. Depósito de los pagos
 El Gobierno del país importador efectuará o dispondrá que se efectúen
 los pagos al Gobierno del país exportador en las monedas, cantidades y a
@@ -183,8 +166,8 @@ Corporation, United States Departament of Agriculture, Washington, D. C
 2. Los pagos en la moneda local del país importador (de aquí en
 adelante denominada moneda local) se depositarán a nombre del Gobierno de
 los Estados Unidos de América, en cuentas que devenguen intereses en
-bancos elegidos por el Gobierno de los Estados Unidos de América en el
-país importador.
+bancos elegidos por el Gobierno de los Estados Unidos de América en el país
+importador.
 F. Ingresos devengados de las ventas
 La cantidad total de ingresos devengados por el país importador de la
 venta de productos financiados de conformidad con este Convenio, que han de
@@ -201,7 +184,7 @@ importador, o su agente autorizado, vende divisas por moneda local en
 relación con la importación comercial de iguales productos. Cualesquiera
 ingresos así devengados que sean dados en préstamos por el Gobierno del
 país importador a organizaciones privadas o no gubernamentales serán
-prestamos a tasas de interés aproximadamente equivalentes a aquellas
+prestamos a tasas de interés 0 aproximadamente equivalentes a aquellas
 cobradas por préstamos comparables en el país importador. El Gobierno del
 país importador proporcionará, de conformidad con sus procedimientos
 administrativos respecto del presupuesto para el año fiscal, en las
@@ -210,20 +193,20 @@ una frecuencia no inferior a la anual, un informe sobre la recepción y el
 desembolso de los ingresos, certificado por la correspondiente autoridad
 fiscal del Gobierno del país importador y, en el caso de erogaciones, por
 el sector del presupuesto en el que se hubieren utilizado dichos ingresos.
-G. Cómputo
-El cómputo del pago inicial, de los Fondos de Contrapartida y de
-todos los pagos de principal e intereses de conformidad con este Convenio,
-se efectuará en dólares de los Estados Unidos.
+G. Cómputos
+El cómputo del pago inicial, de los Fondos de Contrapartida y de todos
+los pagos de principal e intereses de conformidad con este Convenio, se
+efectuará en dólares de los Estados Unidos.
 H. Pagos
 Todos los pagos se efectuarán en dólares de los Estados Unidos o, si
-el Gobierno del país exportador optare ello:
-1) los pagos se harán en monedas fácilmente convertibles de terceros
+el Gobierno del país exportador optare por ello:
+1) Los pagos se harán en monedas fácilmente convertibles de terceros
 países a un tipo de cambio mutuamente convenido, y serán usados por el
-Gobierno del país exportador para el pago de sus obligaciones, o en el
-caso de Fondos de Contrapartida, serán usados para los propósitos
-establecidos en el Capítulo II de este Convenio; o
-2) los pagos se harán en moneda local, al tipo de cambio aplicable que
-se especifique en el apartado G del artículo III del capítulo I, de este
+Gobierno del país exportador para el pago de sus obligaciones, o en el caso
+de Fondos de Contrapartida, serán usados para los propósitos establecidos
+en el Capítulo II de este Convenio; o
+2) Los pagos se harán en moneda local, al tipo de cambio aplicable que se
+especifique en el apartado G del artículo III del capítulo I, de este
 Convenio, en vigor en la fecha del pago y, a opción del Gobierno del país
 exportador, serán convertidas en dólares de los Estados Unidos al mismo
 tipo de cambio, o serán utilizados por el Gobierno del país exportador
@@ -233,23 +216,23 @@ Convenio, en el país importador.
 ARTICULO III
 A. Comercio mundial
 Los dos Gobiernos tomarán las máximas precauciones para asegurar que
-las ventas de productos agrícolas conforme a este Convenio no desplacen
-las transacciones usuales del país exportador en estos productos ni
-alteren indebidamente los precios mundiales de productos agrícolas o las
-normas habituales de intercambio comercial con los países que el Gobierno
-del país exportador considera como naciones amigas (denominadas en este
-Convenio naciones amigas). Para poner en práctica esta disposición el
-Gobierno del país importador deberá:
+las ventas de productos agrícolas conforme a este Convenio no desplacen las
+transacciones usuales del país exportador en estos productos ni alteren
+indebidamente los precios mundiales de productos agrícolas o las normas
+habituales de intercambio comercial con los países que el Gobierno del país
+exportador considera como naciones amigas (denominadas en este Convenio
+naciones amigas). Para poner en práctica esta disposición el Gobierno del
+país importador deberá:
 1. Asegurar que el total de las importaciones procedentes del país
 exportador y de otras naciones amigas al país importador y pagadas con
 recursos del país importador sea por lo menos iguales a las cantidades de
 productos agrícolas que se determinan en el cuadro de comercialización
 usual indicado en el Capítulo II, durante cada período de importación
-determinado en el cuadro y durante cada período comparable subsiguiente,
-en que estén entregado productos financiados conforme a este Convenio.
-Las importaciones de productos para satisfacer estos requerimientos
-usuales de comercialización para cada período de importación será
-adicionales a las compras financiadas de conformidad con este Convenio.
+determinado en el cuadro y durante cada período comparable subsiguiente, en
+que estén entregando productos financiados conforme a este Convenio. Las
+importaciones de productos para satisfacer estos requerimientos usuales de
+comercialización para cada período de importación será adicionales a las
+compras financiadas de conformidad con este Convenio.
 2. Adoptar medidas para asegurar que el país exportador obtenga una
 participación justa en cualquier incremento de las compras comerciales de
 productos agrícolas por parte del país importador.
@@ -262,10 +245,10 @@ Gobierno de los Estados Unidos de América).
 4. Adoptar todas las medidas posibles para impedir la exportación de
 cualquier producto, de origen nacional o extranjero, que se defina en el
 capítulo II de este Convenio, durante el período de limitación de las
-exportaciones, que se especifica en le cuadro de las exportaciones, que
-figura en el capítulo II (excepto según se especifique en el capítulo II
-o cuando tal exportación haya sido específicamente aprobada por el el
-Gobierno de los Estados Unidos).
+exportaciones, que se especifica en el cuadro de las exportaciones, que
+figura en el capítulo II (excepto según se especifique en el capítulo II o
+cuando tal exportación haya sido específicamente aprobada por el Gobierno
+de los Estados Unidos).
 B. Comercio particular
 Al llevar a la práctica las disposiciones de este Convenio, los dos
 Gobiernos procurarán asegurar condiciones de comercio que permitan a los
@@ -274,9 +257,9 @@ C. Autoayuda
 El Capítulo II describe el programa que el Gobierno del país
 importador está emprendiendo para mejorar su producción, almacenamiento y
 distribución de los productos agrícolas. El Gobierno del país importador
-proporcionará en la forma y en la fecha que el Gobierno del país
-exportador solicite, un informe del progreso que el Gobierno del país
-importador está realizando para llevar a cabo dichas medidas de autoayuda.
+proporcionará en la forma y en la fecha que el Gobierno del país exportador
+solicite, un informe del progreso que el Gobierno del país importador está
+realizando para llevar a cabo dichas medidas de autoayuda.
 D. Informes
 Además de cualesquiera otros informes convenidos entre los dos
 Gobiernos, el Gobierno del país importador suministrará, por lo menos
@@ -291,16 +274,17 @@ estado en que se recibió;
 2) Una declaración que indique el progreso alcanzado para satisfacer las
 demandas normales del mercado;
 3) Una declaración relativa a las medidas que se han adoptado para poner
-en práctica las disposiciones contempladas en la sección A, incisos 2) y
-3) de este artículo; y
+en práctica las disposiciones contempladas en la sección A, incisos 2) y 3)
+de este artículo; y
 4) Datos estadísticos sobre las importaciones y exportaciones realizadas
 por país de origen o de destino, respectivamente, de los productos que son
 iguales o similares a los importados conforme al Convenio.
 E. Procedimientos para la conciliación y ajuste de cuentas
 Cada uno de los Gobiernos establecerá procedimientos apropiados para
 facilitar el ajuste de sus respectivas cuentas de las cantidades
-financiadas con respecto los productos entregados durante cada año civil.
-La Commodity Credit corporation del país exportador y el Gobierno del
+financiadas con respecto a los productos entregados durante cada año
+civil.
+La Commodity Credit Corporation del país exportador y el Gobierno del
 país importador podrán realizar en las cuentas de crédito los ajustes que
 mutuamente convengan son apropiados.
 F. Definiciones
@@ -330,19 +314,19 @@ de cambio único el tipo de cambio aplicable será el tipo al cual la
 autoridad monetaria central del país importador o su agente autorizado
 venda divisas para moneda local.
 2) Si no mantiene un tipo de cambio único, el tipo aplicable será aquel
-(según convenga mutuamente los dos Gobiernos) que cumpla con los
-requisitos de la primera frase de esta sección G.
+(según convenga mutuamente los dos Gobiernos) que cumpla con los requisitos
+de la primera frase de esta sección G.
 H. Consultas
 Los dos Gobiernos, a petición de cualquiera de ellos, se consultará
-respecto de cualquier asunto que se plantee en virtud del presente
-Convenio inclusive la aplicación de los arreglos que se lleve a cabo de
-conformidad con el mismo.
+respecto de cualquier asunto que se plantee en virtud del presente Convenio
+inclusive la aplicación de los arreglos que se lleve a cabo de conformidad
+con el mismo.
 I. Identificación y publicidad
 El Gobierno del país importador adoptará las medidas que se hayan
 convenido mutuamente antes de la entrega, para la identificación de los
-productos alimenticios en los lugares de distribución en el país
-importador y para fines de publicidad, en la forma prevista en el Apartado
-(1) de la Subsección 103 de la ley.
+productos alimenticios en los lugares de distribución en el país importador
+y para fines de publicidad, en la forma prevista en el Apartado (1) de la
+Subsección 103 de la ley.
 CAPITULO II
 Disposiciones particulares
 PUNTO I. TABLA DE PRODUCTOS
@@ -354,11 +338,11 @@ exportación será el año fiscal de Estados Unidos 1984 o cualquier año
 fiscal de Estados Unidos posterior durante el cual los productos
 financiados bajo este Convenio están siendo importados o utilizados.
 B. Los productos a los cuales se aplican las limitaciones de
-exportación son: Para los propósitos del Capítulo I, Artículo III, A (4)
-de este Convenio, los productos que no pueden ser exportados son: trigo /
-harina de trigo, - trigo, harina de trigo, trigo molido, semolina, harina
-y bulgur (o los mismos productos bajo nombres diferentes). Para el maíz
-/ sorgo - maíz, harina de maíz, cebada, sorgo en grano, centeno, avena y
+exportación son: Para los propósitos del Capítulo I, Artículo III, A (4) de
+este Convenio, los productos que no pueden ser exportados son: trigo /
+harina de trigo, - trigo, harina de trigo, trigo molido, semolina, harina y
+bulgur (o los mismos productos bajo nombres diferentes). Para el maíz /
+sorgo - maíz, harina de maíz, cebada, sorgo en grano, centeno, avena y
 cualquier otro grano para alimento de animales incluyendo alimentos de
 animales mezclados que contengan predominantemente tales granos.
 PUNTO V. MEDIDAS DE AUTOAYUDA
@@ -374,13 +358,13 @@ financieros, técnicos y administrativos para su ejecución:
 1. Políticas de fijación de precios:
 A. Continuar vendiendo las mercaderías que se importen con
 financiamiento de este programa a precios que cubran por lo menos el costo
-adquisición del Consejo Nacional de Producción (CNP), el transporte
+adquisición del Consejo Nacional de Producción (CNP), el transporte,
 manejo y gastos administrativos que se le relacionen. Para aplicar estas
 medidas de autoayuda, los costos incurridos en dólares, y en otras divisas
-extranjeras, serán cambiados a colones a la tasa que la autoridad
-monetaria central de país importador, o su agente autorizado, vende
-divisas por moneda local en relación con la importación comercial de los
-mismos productos.
+extranjeras, serán cambiados a colones a la tasa que la autoridad monetaria
+central de país importador,o su agente autorizado, vende divisas por moneda
+local en relación con la importación comercial de los mismos
+productos.
 B. El CNP deberá continuar operando en 1984 sin incurrir en déficits.
 C. El Ministerio de Planificación y Política Económica (MIDEPLAN)
 realizará una evaluación de la metodología que aplican actualmente el
@@ -409,15 +393,15 @@ responsabilidades en el sector público y privado.
 3. Investigación y extensión:
 A. Crear un fondo equivalente a quinientos mil dólares que será
 administrado por el Ministerio de Planificación y Política Económica
-(MIDEPLAN), el cual será usado para hacer donaciones a asociaciones
-nuevas o existentes controladas por el sector privado, incluyendo centros
-agrícolas cantonales (CACs) con el propósito de fortalecer las funciones
-de diseminación de tecnología agrícola y funciones relacionadas con
-aspectos de producción de dichas asociaciones.
+(MIDEPLAN), el cual será usado para hacer donaciones a asociaciones nuevas
+o existentes controladas por el sector privado, incluyendo centros
+agrícolas cantonales (CACs) con el propósito de fortalecer las funciones de
+diseminación de tecnología agrícola y funciones relacionadas con aspectos
+de producción de dichas asociaciones.
 B. Para junio de 1984, fortalecer el sistema de diseminación de
 tecnología agrícola en los cantones de Upala y Guatuso en la provincia de
-Alajuela fomentado la creación de un centro agrícola cantonal en Upala
-y otro en Guatuso.
+Alajuela fomentado la creación de un centro agrícola cantonal en Upala y
+otro en Guatuso.
 4. Planificación de política agrícola:
 A. Llevar a cabo, para mayo de 1984, un censo nacional agropecuario
 como parte de los censos nacionales; y compilar, cotejar, evaluar y
@@ -428,11 +412,11 @@ tardar en junio de 1985; y compilar, cotejar, evaluar y publicar los
 resultados de la primera encuesta a más tardar en diciembre de 1985. Para
 la realización de dichas encuestas, el Ministerio de Economía y Comercio
 (MEC) queda facultado para abrir una cuenta especial en un banco del
-Sistema Bancario Nacional en la cual se depositarán los fondos
-provenientes del programa P.L. 480 Título I.
+Sistema Bancario Nacional en la cual se depositarán los fondos provenientes
+del programa P.L. 480 Título I.
 5. Promoción de exportación:
-Construir, para junio de 1984, en el Puerto de Moín en Limón y en
-el Aeropuerto Internacional Juan Santamaría, por lo menos tres (3) cámaras
+Construir, para junio de 1984, en el Puerto de Moín en Limón y en el
+Aeropuerto Internacional Juan Santamaría, por lo menos tres (3) cámaras de
 fumigación de 600 metros cúbicos cada una y sus respectivas estructuras de
 carga y descarga para el tratamiento de pre-exportación de frutas y
 vegetales frescos.
@@ -441,22 +425,22 @@ UTILIZAR LOS INGRESOS ACUMULADOS POR EL PAIS IMPORTADOR
 A. Los ingresos acumulados por el país importador provenientes de las
 ventas de productos financiados bajo este Convenio serán usados para la
 financiación de las medidas de autoayuda establecidas en el Convenio, y
-también para el desarrollo en el sector de desarrollo agropecuario, de
-modo que facilite la obtención a las personas de escasos recursos en el
-país recibidor de alimentos adecuados y nutritivos en forma estable.
+también para el desarrollo en el sector de desarrollo agropecuario, de modo
+que facilite la obtención a las personas de escasos recursos en el país
+recibidor de alimentos adecuados y nutritivos en forma estable.
 B. En el uso de los ingresos para estos propósitos, directamente se
-dará énfasis al mejoramiento de la vida de las personas mas pobres del
-país recibidor y de su capacidad para participar en el desarrollo del país
-de ellos.
+dará énfasis al mejoramiento de la vida de las personas mas pobres del país
+recibidor y de su capacidad para participar en el desarrollo del país de
+ellos.
 C. Para este fin, se dará prioridad a la asignación de contribuciones
-en moneda local, necesaria para proyectos en los campos de la
-alimentación, nutrición y desarrollo rural tal como se identifican en el
-Memorandum de Entendimiento del 22 de noviembre de 1983 entre el Gobierno
-de Estados Unidos y el Gobierno de Costa Rica para el uso de ingresos de
-ventas de productos agrícolas financiado bajo este Convenio y tal como se
+en moneda local, necesaria para proyectos en los campos de la alimentación,
+nutrición y desarrollo rural tal como se identifican en el Memorandum de
+Entendimiento del 22 de noviembre de 1983 entre el Gobierno de Estados
+Unidos y el Gobierno de Costa Rica para el uso de ingresos de ventas de
+productos agrícolas financiado bajo este Convenio y tal como se
 identificará en cualquier enmienda subsiguiente al Memorandum de
 Entendimiento citado. El Gobierno de Costa Rica conviene en crear
-asignaciones adecuadas par el financiamiento puente para proyectos
+asignaciones adecuadas para el financiamiento puente para proyectos
 identificados en el Memorandum de Entendimiento a partir de la fecha de la
 entrada en vigor de este Convenio y la generación real de moneda local por
 medio de la venta de los productos del P.L. 480, Título I.
@@ -468,34 +452,35 @@ mercado de exportación de 20 millones de dólares, como se indica en el
 Capítulo II, Punto I de este Convenio. Sujeto a las disposiciones de este
 Convenio, el Gobierno del país exportador puede subsiguientemente emitir
 autorizaciones de compras, de acuerdo a este convenio, en un incremento de
-hasta 8 millones de dólares, para un valor total del mercado de
-exportación que no excederá 28 millones de dólares.
+hasta 8 millones de dólares, para un valor total del mercado de exportación
+que no excederá 28 millones de dólares.
 B. En la ejecución del incremento, el Gobierno del país importador
-puede proponer modificaciones a la Tabla de Productos conforme se indica
-en el Capítulo II, Punto I de este Convenio y solicitar autorizaciones de
+puede proponer modificaciones a la Tabla de Productos conforme se indica en
+el Capítulo II, Punto I de este Convenio y solicitar autorizaciones de
 compra, las cuales el Gobierno del país exportador tendrá la opción (en
 cuanto a su monto y a los productos) de emitir o de no emitir. El
 incremento y la modificación de la Tabla de Productos acordada, tomará la
-forma de un intercambio de Notas Diplomáticas entre el país exportador y
-el país importador.
+forma de un intercambio de Notas Diplomáticas entre el país exportador y el
+país importador.
 La ejecución del incremento puede ocurrir, no obstante el Capítulo I,
-Artículo I C, en cualquier momento previo a, perno después del Período de
+Artículo I C, en cualquier momento previo a, pero no después del Período de
 Suministro indicado en el Capítulo II, Parte I de este Convenio.
 CAPITULO III
 Disposiciones Finales
 A. Este Convenio puede ser terminado por cualquiera de los dos
 Gobiernos mediante una notificación de terminación al otro Gobierno, por
 cualquier motivo y por el Gobierno del país exportador si determinase que
-el programa de autoayuda descrito en el Convenio no se desenvuelve en
-forma adecuada. Una renuncia tal no reducirá ninguna de la obligaciones
-financieras contraídas por el Gobierno del país importador a la fecha de
-su renuncia.
+el programa de autoayuda descrito en el Convenio no se desenvuelve en forma
+adecuada. Una renuncia tal no reducirá ninguna de la obligaciones
+financieras contraídas por el Gobierno del país importador a la fecha de su
+renuncia.
 Este Convenio entrará en vigencia en el momento en que el país
 importador notifique al país exportador que sean cumplido todos los
 requisitos constitucionales.
 B. EN FE DE LO CUAL, los respectivos representantes, debidamente
 autorizados para el efecto, han suscrito el presente Convenio.
-DADO EN San José, en duplicado, el día 22 de noviembre de 1983.
+DADO EN San José, en duplicado, el día 22 de noviembre de
+1983.
 MEMORANDUM DE ENTENDIMIENTO ENTRE EL GOBIERNO
 DE LOS ESTADOS UNIDOS DE AMERICA Y EL GOBIERNO
 DE COSTA RICA PARA DEFINIR LAS RESPONSABILIDADES
@@ -504,22 +489,22 @@ DE LOS INGRESOS GENERADOS COMO RESULTADO DE LA VENTA
 DE PRODUCTOS AGRICOLAS BAJO EL CONVENIO DE LA LEY
 PUBLICA Nº 480 TITULO I, FIRMADO EL 22 DE NOVIEMBRE DE 1983
 A. Introducción
-Este Memorandum de Entendimiento (de aquí en adelante "Memorandum
-de Entendimiento") entre el Gobierno de los Estados Unidos de América (de
-aquí en adelante "los Estados Unidos ") y el Gobierno de Costa Rica (de
-aquí en adelante "Costa Rica") establece el acuerdo de los Estados Unidos
-y Costa Rica sobre las responsabilidades de las instituciones
-participantes del GCR y los usos que se le darán a los ingresos acumulados
-por Costa Rica como resultado de la venta de los productos financiados
-bajo el Convenio de fecha 22 de noviembre de 1986 entre los Estados Unidos
-y Costa Rica para la venta de productos agrícolas (de aquí en adelante "el
-Convenio de Venta"), de acuerdo con los fines de desarrollo económico y
-prioridades del Punto VI, Parte II del Convenio de Venta.
+Este Memorandum de Entendimiento (de aquí en adelante "Memorandum de
+Entendimiento") entre el Gobierno de los Estados Unidos de América (de aquí
+en adelante "los Estados Unidos ") y el Gobierno de Costa Rica (de aquí en
+adelante "Costa Rica") establece el acuerdo de los Estados Unidos y Costa
+Rica sobre las responsabilidades de las instituciones participantes del GCR
+y los usos que se le darán a los ingresos acumulados por Costa Rica como
+resultado de la venta de los productos financiados bajo el Convenio de
+fecha 22 de noviembre de 1983 entre los Estados Unidos y Costa Rica para la
+venta de productos agrícolas (de aquí en adelante "el Convenio de Venta"),
+de acuerdo con los fines de desarrollo económico y prioridades del Punto
+VI, Parte II del Convenio de Venta.
 B. Propósitos
 1. Los Estados Unidos y Costa Rica acuerdan que los ingresos acumulados
-por Costa Rica como resultado de la venta de los productos financiados
-bajo el Convenio de Venta (el valor total FOB de las importaciones) se
-utilizará para contribuir con moneda local en las actividades que aparecen
+por Costa Rica como resultado de la venta de los productos financiados bajo
+el Convenio de Venta (el valor total FOB de las importaciones) se
+utilizarán para contribuir con moneda local en las actividades que aparecen
 en la lista adjunta, la cual forma parte de este Memorandum de
 Entendimiento, y en aquellas otras actividades que se acuerden mutuamente
 de conformidad con las condiciones y procedimientos establecidos en este
@@ -528,35 +513,45 @@ necesarias para financiar provisionalmente las actividades de la lista
 adjunta a este Memorandum de Entendimiento durante el período comprendido
 entre la firma de este acuerdo y la generación real de moneda local
 mediante la venta de los productos financiados bajo el Convenio de Venta.
-C. Ministerio de Planificación Nacional y Política (MIDEPLAN)
+C. Ministerio de Planificación Nacional y Política
+(MIDEPLAN)
 1. Se designa al Ministerio de Planificación Nacional y Política
 Económica (MIDEPLAN) como agente del Gobierno de Costa Rica para coordinar
 todos los aspectos que se relacionen con el Programa Título I y para el
 propósito de cumplir con las estipulaciones del Capítulo I, Artículo II,
-Secciones F y H, y; Artículo III, Sección C, E y H del Convenio de Venta;
-y de planear, promover, supervisar, informar y asegurar el cumplimiento
-de la totalidad de las medidas de autoayuda descritas en el Capítulo II,
-Punto V del Convenio de Venta.
-2. Costa Rica acuerda mantener dentro de MIDEPLAN una Unidad Ejecutora
-especial para que lleve a cabo las funciones descritas en le párrafo
-anterior. La Unidad Ejecutora también será responsable de programar,
-presupuestar, administrar, contabilizar e informar sobre el uso de la
-moneda local que se genere bajo el Convenio de Venta. La Unidad Ejecutora
-se financiará en parte con recursos originados en este Convenio, para lo
-cual faculta a MIDEPLAN para incorporar dichos recursos al fondo del Plan
-Nacional de Desarrollo.
+Secciones F y H, y; Artículo III, Sección C, E y H del Convenio de Venta; y
+de planear, promover, supervisar, informar y asegurar el cumplimiento de la
+totalidad de las medidas de autoayuda descritas en el Capítulo II, Punto V
+del Convenio de Venta.
+2. Costa Rica acuerda mantener dentro de MIDEPLAN una Unidad
+Ejecutora especial para que lleve a cabo las funciones descritas en el
+párrafo anterior. La Unidad Ejecutora también será responsable de
+programar, presupuestar, administrar, contabilizar e informar sobre el uso
+de la moneda local que se genere bajo el Convenio de Venta. La Unidad
+Ejecutora se financiará en parte con recursos originados en este Convenio,
+para lo cual faculta a MIDEPLAN para incorporar dichos recursos al fondo
+del Plan Nacional de Desarrollo.
 3. MIDEPLAN continuará enviando a la Misión de la AID en Costa Rica
-informes del progreso logrado en la consecución de las medidas de
-autoayuda tal y como se identifican en el Convenio de Venta. También
-deberá suministrar informes trimestrales hasta que la Misión USAID le
-notifique a MIDEPLAN, por escrito, que no es necesario continuar
-informando sobre determinada (s) medida (s) de autoayuda.
+informes del progreso logrado en la consecución de las medidas de autoayuda
+tal y como se identifican en el Convenio de Venta. También deberá
+suministrar informes trimestrales hasta que la Misión USAID le notifique a
+MIDEPLAN, por escrito, que no es necesario continuar informando sobre
+determinada(s) medida(s) de autoayuda.
 D. Consejo Nacional de Producción (CNP)
 1. Se designa al Consejo Nacional de Producción (CNP) como agente del
 GCR para cumplir con las estipulaciones del Capítulo I, Secciones C, F y
 G; Artículo III, Secciones A, B, D e I; y de aquellas medidas de autoayuda
-que se enumeran en le Capítulo II, las cuales se relacionan con su
-mandato.
+que se enumeran en el Capítulo II, las cuales se relacionan con su mandato.
 2. Con relación al Capítulo I del Convenio de Venta, Artículo III,
 Secciones A, B, D, el CNP debe suministrar informes de cumplimiento a la
-Embajada de los Estados Unidos, a má
+Embajada de los Estados Unidos, a más tardar dentro de los treinta días
+siguientes a la fecha de cierre de cada trimestre.
+3. En cumplimiento con el Capítulo I, Artículo del Convenio de Venta, el
+CNP debe dar publicidad, a través de los principales medios de
+comunicación, al arribo de los principales embarques de productos
+importados.
+E. Otras instituciones
+1. Las instituciones beneficiadas que reciben recursos de moneda local
+generadas deberán suministrar, a solicitud de MIDEPLAN, la información
+necesaria para que MIDEPLAN cumpla efectivamente con las provisiones de la
+Secció
