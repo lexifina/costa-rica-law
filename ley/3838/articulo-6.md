@@ -1,4 +1,2 @@
-Artículo 6º.- Para poder ejercer la profesión de optometrista, es
-necesario estar inscrito en el Colegio como miembro. Todo establecimiento
-de óptica debe contar con la regencia de un optometrista debidamente
-incorporado al Colegio.
+Artículo 6º.- Para poder ejercer la profesión de optometrista, es necesario estar inscrito en el Colegio como miembro. Todo establecimiento de óptica debe contar con la regencia de un optometrista debidamente incorporado al Colegio.
+(La Sala Constitucional mediante resolución N° 6696 del 21 de diciembre de 1993, estableció que no es aplicable a los oftalmólogos inscritos en el Colegio de Médicos y Cirujanos de Costa Rica el impedimento para ejercer la regencia de los establecimientos de óptica, a que se refiere la frase final del presente artículo que dice: "Todo establecimiento de óptica debe contar con la regencia de un optometrista debidamente incorporado al Colegio".)
