@@ -1,0 +1,1 @@
+Artículo 26.-En las fiestas o actos de cualquier naturaleza en los que hubiere conjuntos musicales, se ejecutará el Himno Nacional de Costa Rica al presentarse y retirarse el señor Presidente de la República.

@@ -1,0 +1,3 @@
+Artículo 10°.-Los Encargados de Negocios con Cartas de Gabinete, solicitarán a su llegada, audiencia del señor Ministro de Relaciones Exteriores, por escrito, incluyendo copia de su título. El día que fije para ello, el Director de Protocolo lo acompañará, desde su domicilio, al Despacho del Subsecretario al Oficial Mayor. Luego serán presentados al Ministro de Estado por ambos funcionarios.
+Oportunamente, los referidos Diplomáticos solicitarán por escrito al titular de la Cartera ser presentados al señor Presidente de la República, que cumplirá el Director de Protocolo.
+Para estos actos, el traje usual será el de media etiqueta.

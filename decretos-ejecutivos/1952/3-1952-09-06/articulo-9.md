@@ -1,0 +1,1 @@
+Artículo 9°-EI traje para las ceremonias que en los artículos anteriores se mencionan, será chaqué para los civiles y uniforme de gala para los militares. Los Diplomáticos que así 10 desearen podrán usar uniforme.

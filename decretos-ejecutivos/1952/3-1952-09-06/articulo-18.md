@@ -1,0 +1,1 @@
+Articulo 18.-Los Agentes Confidenciales o las personas extranjeras que desearen tratar con el señor Presidente de la República, o con el señor Ministro de Relaciones Exteriores, determinados asuntos de interés público concernientes a Costa Rica y de sus respectivos países, sólo podrán obtener audiencia mediante solicitud del representante Diplomático respectivo.

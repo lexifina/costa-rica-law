@@ -1,0 +1,1 @@
+Artículo 13.-Los Consejeros, Secretarios y Agregados, deberán ser presentados por el Jefe de Misión al Ministro de Relaciones Exteriores, a su llegada al país. Los Agregados Militares, lo serán también al Secretario de la Comandancia en Jefe.

@@ -1,0 +1,2 @@
+Ceremonias Fúnebres
+Artículo 45.Si falleciere el Jefe de Estado de una nación que tenga Representante Diplomático en la República, se hará visita de pésame al Jefe de la Misión, por el Ministro de Relaciones Exteriores y por el Secretario de la Comandancia en Jefe, acompañados de un Oficial de la Dirección de Protocolo, y se izará a media asta la Bandera Nacional en la Casa Presidencial y en el Ministerio de Relaciones Exteriores, durante tres días.

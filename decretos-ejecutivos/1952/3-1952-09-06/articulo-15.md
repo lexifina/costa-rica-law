@@ -1,0 +1,1 @@
+Artículo 15 -Una vez efectuadas las visitas antes mencionadas, el nuevo Jefe de Misión acompañado de su señora esposa si la tuviere, deberá hacer una visita particular al señor Presidente de la Republica y a su señora esposa, para la cual obtendrá la audiencia correspondiente por medio de la Dirección de Protocolo.

@@ -1,0 +1,1 @@
+Articulo 17.-Los Jefes de Misión tramitarán sus solicitudes de audiencia al señor Presidente de la República por medio de la Dirección de Protocolo, indicando en cada caso, específicamente, el objeto que las motiva. En casos excepcionales, sólo los Embajadores podrán dirigirse para igual solicitud a la Secretaría de la Presidencia.

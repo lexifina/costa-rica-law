@@ -1,0 +1,1 @@
+Artículo 41.-El día fijado para esa visita oficial, el Cuerpo Diplomático será recibido por el Director de Protocolo, quien procederá a la presentación del nuevo Ministro de Relaciones Exteriores. La precedencia en esta ceremonia es la establecida en los artículos 37 y 38.

@@ -1,0 +1,1 @@
+Artículo 29. -En las invitaciones oficiales deberá indicarse el traje que se usará en cada acto, Cuando no se indique, se entenderá que el traje es de media etiqueta, sea cual fuere el motivo de la recepción.

@@ -1,0 +1,2 @@
+Artículo 32. -Pasada la Transmisión de Mando, el nuevo Jefe de Estado ofrecerá en el Ministerio de Relaciones Exteriores, una recepción en la cual le serán presentadas las Misiones Diplomáticas.
+En la recepción la precedencia la determinará la llegada al Ministerio de Relaciones Exteriores de cada una de las Misiones, las cuales serán presentadas al señor Presidente de la República por el Director y demás auxiliares de la Dirección de Protocolo.

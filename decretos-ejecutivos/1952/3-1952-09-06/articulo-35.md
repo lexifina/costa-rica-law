@@ -1,0 +1,2 @@
+Precedencias
+Artículo 35 .-La fecha de presentación de credenciales determinará la precedencia de los Embajadores y Ministros; la presentación de las Cartas de Gabinete, la de los Encargados de Negocios de esa categoría y la fecha de la nota en que se comunique al Ministerio de Relaciones Exteriores su designación, por el Jefe de Misión, la de Encargados de Embajada y de Legación. Las Misiones Especiales precederán a las Misiones Permanentes.

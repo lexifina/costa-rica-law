@@ -1,0 +1,1 @@
+Artículo 51. -Si se hiciere necesaria la declaración de un Cónsul en juicio civil o criminal, podrá ser citado sin intervención del Ministerio de Relaciones Exteriores o en la forma que establezcan los tratados vigentes.

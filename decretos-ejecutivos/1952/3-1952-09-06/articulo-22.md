@@ -1,0 +1,1 @@
+Artículo 22.-Las invitaciones al señor Presidente de la República, deberán hacerlas personalmente los Jefes de Misión, quienes, cuando se trate de un banquete en honor del Primer Magistrado de la Nación, proporcionarán al Director de Protocolo, con la debida anticipación, los nombres de las personas invitadas y copia del discurso a pronunciarse, si lo hubiere.

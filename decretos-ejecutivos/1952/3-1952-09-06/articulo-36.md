@@ -1,0 +1,1 @@
+Artículo 36.-El Gobierno de Costa Rica concede el Decanato del Cuerpo Diplomático al Nuncio Apostólico, sin considerar el tiempo que tenga de ejercer sus funciones como tal en el país. En su defecto, corresponderá a quien ostente mayor jerarquía y antigüedad en su cargo.

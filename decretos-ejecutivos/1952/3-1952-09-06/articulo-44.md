@@ -1,0 +1,1 @@
+Artículo 44. --Cuando se nombre nuevo Subsecretario u Oficial Mayor. o Director de Protocolo del Ministerio de Relaciones Exteriores, se comunicará por nota su nombramiento al Cuerpo Diplomático. por conducto del Decano. Tanto uno como otro visitarán personalmente al hacerse cargo de sus funciones, a cada uno de los Jefes de Misiones.

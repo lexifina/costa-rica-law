@@ -1,0 +1,2 @@
+Categorías Diplomáticas
+Artículo 54.-Para los efectos de este Reglamento, los funcionarios diplomáticos acreditados ante el Gobierno de la República, pueden tener las siguientes categorías: Nuncio, Embajador Extraordinario y Plenipotenciario, Internuncio, Enviado Extraordinario y Ministro Plenipotenciario, Ministro Residente, Encargado de Negocios con Cartas de Gabinete, Encargado de Negocios Interino, Consejero, Primer Secretario, Segundo Secretario, Tercer Secretario, Agregados Civiles, Agregados Comerciales, Agregados Militares, por graduación.

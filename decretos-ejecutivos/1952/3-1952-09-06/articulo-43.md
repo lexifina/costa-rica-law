@@ -1,0 +1,1 @@
+Artículo 43.-Cuando los Representantes extranjeros deseen ser recibidos en audiencias especiales, fuera de los días señalados por el Ministro de Relaciones Exteriores, se servirán solicitarlo previamente por nota verbal.

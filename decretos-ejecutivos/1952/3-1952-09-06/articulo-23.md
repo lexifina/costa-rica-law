@@ -1,0 +1,1 @@
+Artículo 23.-El Presidente de la República concurrirá Únicamente a los banquetes y fiestas que se ofrezcan en la Sede de las Misiones, cuando en tales actos hayan de estar presentes los Jefes de las mismas.

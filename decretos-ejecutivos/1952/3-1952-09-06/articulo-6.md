@@ -1,0 +1,3 @@
+Artículo 6°-Para la presentación de Credenciales de un Embajador, el Director de Protocolo se constituirá en la sede de la Misión, acompañado del ,séquito civil y militar que se requiera. El automóvil en que aquél se traslade al Ministerio de Relaciones Exteriores, será escoltado por el personal militar en uniforme de gala, que designe la superioridad. (La Comandancia en Jefe.)
+Si la comitiva requiriese el uso de varios automóviles, el Embajador y el Director de Protocolo ocuparán el último y la comitiva los que le preceden.
+Al llegar al Ministerio de Relaciones Exteriores, una banda militar tocará el Himno Nacional de Costa Rica y un Cuerpo de la Guardia Civil rendirá al Embajador los honores correspondientes a su alto rango.

@@ -1,0 +1,1 @@
+Artículo 27. -En el caso excepcional de que el señor Presidente de la República quiera visitar algún barco de guerra extranjero, el Ministerio de Relaciones Exteriores y el Jefe de la Misión respectiva, convendrán previamente las formalidades de la visita.

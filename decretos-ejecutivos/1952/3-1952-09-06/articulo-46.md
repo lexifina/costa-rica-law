@@ -1,0 +1,1 @@
+Articulo 46.-Cuando falleciere un alto funcionario del Estado, el Ministerio de Relaciones Exteriores lo comunicará oficialmente al Cuerpo Diplomático, por conducto del Decano. con indicación del ceremonial que deberá observarse.
