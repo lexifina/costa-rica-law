@@ -1,0 +1,1 @@
+Artículo 9°—Los Directores de las Instituciones Educativas están en la obligación de comunicar a su superior inmediato las faltas cometidas por los trabajadores de comedores escolares, en el término de tres días contados a partir de aquel en que se cometió la falta o en que se conocieren los hechos correspondientes, cuando ameriten la suspensión o el despido.

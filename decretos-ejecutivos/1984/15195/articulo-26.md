@@ -1,0 +1,1 @@
+Artículo 26.—En aquellas instituciones cuya matrícula haya determinado que las funciones sean atendidas en dos o tres turnos y como consecuencia de ello se sobrepase la jornada de ocho horas el Director fijará un horario de trabajo a fin de que en ningún caso la jornada de estas pase de las ocho horas, distribuyendo las labores con base en principios de justicia y equidad.

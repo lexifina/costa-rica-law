@@ -1,0 +1,1 @@
+Artículo 7°—Corresponde al Director de la Institución, dentro del término de un mes contado a partir del momento en que ocurrieron los hechos o tuvo conocimiento de la comisión de la falta, sancionar al trabajador de comedores escolares cuando la sanción deba consistir en una amonestación verbal o escrita. Si fuere escrita, enviará copia al Director del Departamento de Personal.

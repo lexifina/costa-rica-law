@@ -1,0 +1,1 @@
+Artículo 2º- Este Reglamento se aplicará en todos los establecimientos les del Ministerio de Educación Pública donde funcione el servicio del Comedor Escolar que brinda el Programa de Asignaciones Familiares.

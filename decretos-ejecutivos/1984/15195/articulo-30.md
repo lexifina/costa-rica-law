@@ -1,0 +1,1 @@
+Artículo 30.—En casos muy calificados, que no se contemplen en este reglamento, queda a juicio del Director justificar hasta tres ausencias q» por enfermedad comprobada, para efectos de evitar la sanción que ello implique obligación al pago de salario.

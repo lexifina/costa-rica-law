@@ -1,0 +1,1 @@
+Artículo 21.—Tanto en el caso de licencia por enfermedad como en las licencias por maternidad a que se refieren los artículos anteriores por salario completo se entiende la parte del mismo cubierto por el Programa de Asignaciones Familiares, más el subsidio del Seguro Social, si el servidor estuviere protegido por éste.

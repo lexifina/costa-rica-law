@@ -1,0 +1,1 @@
+Artículo 29.—Las ausencias al trabajo por enfermedad deberá justificarlas el servidor incapacitado mediante un certificado médico extendido por la Caja Costarricense de Seguro Social, o por el Instituto Nacional de Seguros, según corresponda.

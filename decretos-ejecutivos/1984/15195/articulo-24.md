@@ -1,0 +1,1 @@
+Artículo 24.—No interrumpirán, para efectos del disfrute de vacaciones, la continuidad del trabajo las licencias sin goce de sa1ario. la enfermedad justificada del servidor, ni ninguna otra causa de suspensión legal de la relación de trabajo.

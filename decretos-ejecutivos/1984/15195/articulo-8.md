@@ -1,0 +1,1 @@
+Artículo 8°—Contra la resolución que imponga una amonestación escrita cabe el recurso de apelación ante el Director de Personal, el cual deberá inter-ponerse en el término de cinco días contados a partir del día siguiente en que le fue formalmente comunicada.
