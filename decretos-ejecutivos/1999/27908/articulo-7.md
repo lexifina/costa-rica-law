@@ -1,0 +1,2 @@
+Artículo 7°—Sesiones de las Comisiones. Las diferentes comisiones en que opere el CONADES, funcionarán con los reglamentos y lineamientos que al efecto dicte el CONADES, o los que emitan mismas comisiones si esa decisión se delega en ellas.
+El quorum de estas comisiones para sesionar válidamente, será de mayoría simple de sus integrantes, y los acuerdos deberán ser adoptados por mayoría simple de los presentes.

@@ -1,0 +1,3 @@
+CAPITULO VI
+Medidas de colaboración
+Artículo 15.—Constitución de Comisiones Técnicas. El CONADES y sus Comisiones podrán establecer "comisiones técnicas", para que les asesoren en asuntos específicos. Estas comisiones técnicas estarán integradas por funcionarios del Estado y por expertos del sector privado, académico y sociedad civil, y tendrán un coordinador, quien actuará como enlace ante el CONADES, las Comisiones, el Comité Directivo y la Agencia Ejecutiva. Quienes formen parte de estas comisiones técnicas actuarán en forma gratuita; sin embargo excepcionalmente los expertos del sector privado podrán ser remunerados.
