@@ -8,6 +8,9 @@ Considerando para las máquinas de juegos permitidas. Con fundamento en el Regla
 a) iluminación suficiente que permita tener una visión clara y completa de lo que acontece en la sala.
 b) Amplitud suficiente para permitir libertad de movimiento a las personas participantes.
 c) Condiciones de higiene y sanitarias, las que serán verificadas por las autoridades del Ministerio de Salud.
+d) Deberán estar totalmente divididas las estructuras de cualquier otra actividad comercial y contar con el acceso independiente.
+e) No se permitirá la instalación de ningún tipo de máquinas de juegos de las reguladas por la Ley de Juegos y su Reglamento, dentro de casas de habitación.
+(Así ampliados los puntos d) y e) mediante el Acuerdo Municipal consignado en el artículo V, inciso 5, acta No. 76, del 16 de diciembre del 2004.)
 4- Estas máquinas de juegos, sólo pueden ser operadas por personas mayores de (12) años.
 5- Estas máquinas podrán funcionar en un horario de las dieciséis horas a las veintidós horas en días lectivos, en día de asueto escolar, feriados y domingos, de las trece horas a las veintitrés horas.
 6- Queda prohibida la instalación de máquinas de cualquier tipo de juegos, en lugares en donde se expenda licores, ni en la vía pública. Salvo las autorizadas temporalmente por el Concejo Municipal, en casos de ferias, turnos, festejos y similares.

@@ -14,3 +14,4 @@ Lista de requisitos a cumplir para obtener una patente municipal para operar má
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-07 | la propia norma |
+| 2 | 2004-12-16 | Acuerdo municipal 76 (2004-12-16) |
