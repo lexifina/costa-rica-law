@@ -1,0 +1,1 @@
+Art. 51. Los que obtengan títulos de Maestros y se dediquen á la enseñanza, prévio exámen y la correspondiente justificacion de buena conducta, quedan exentos de todo servicio civil y militar, y serán los únicos que deben considerarse con derecho á optar al Majisterio en cualquiera punto de la República.

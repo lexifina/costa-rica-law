@@ -1,0 +1,3 @@
+. CAPITULO VII.
+De los Exámenes.
+Art. 40. . Habrá dos clases de exámenes: los unos particulares y los otros públicos, Los primeros se practicarán cada tres meses ante los profesores de la escuela, presididos por el Director. Los segundos se verificarán á principios de Diciembre. y serán presididos por el Secretario de Instruccion Pública, ó por la persona que este designe. Los exámenes serán orales y durarán media hora para cada alumno, haciendo cada uno de los réplicas las preguntas que estime convenientes. Cada alumno presentará muestra de su letra, si fuere posible, dictada en el acto por un profesor, así como las láminas de los dibujos que hubiere hecho. Los cuadernos de análísis, composicion y problemas resueltos; serán rubricados por el respectivo profesor.

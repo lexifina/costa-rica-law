@@ -1,0 +1,1 @@
+Art. 22. Estará á cargo del Director la enseñanza de Pedagojía y de Gramática castellana; y la direccion de la escuela central de la Capital; si la Municipalidad lo juzga conveniente; al del segundo, la de Relijion y Moral, Aritmética Aljebra y Geometría; al del tercero, la de Lectura y Escritura, Geografía é Historia; y al del cuarto, la de Dibujo.

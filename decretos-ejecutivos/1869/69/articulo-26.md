@@ -1,0 +1,2 @@
+Del Material.
+Art. 26. Se destina para el servicio de la escuela normal, una de las casas nacionales, en conformidad con lo dispuesto en el artículo 17 de la ley de 29 de Setiembre último: en el mismo local debe ha ber habitacion capaz para el Director y su familia, y para el portero sirviente; deberá así mismo tener las salas necesarias para las esplicaciones de los profesores, y el menaje y útiles precisos é indispensables para la enseñanza en todos sus diversos ramos.

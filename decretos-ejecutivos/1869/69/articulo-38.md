@@ -1,0 +1,1 @@
+Art 38. Los Maestros alumnos asistirán á la clase y ejercicios que tengan por conveniente segun la instruccion que necesiten recibir. Los niños de otras escuelas prácticas y los adultos, asistirán á las horas y darán las lecciones que se prevengan en sus respectivos programas; y tanto estos como los formados por los profesores, deberán hacerse antes de empezar el curso.

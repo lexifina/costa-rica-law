@@ -1,0 +1,1 @@
+Art. 3° La instruccion primaria superior se dará en las escuelas centrales y en la normal. Las primeras estarán como las de instruccion primaria inferior, bajo la inmediata dependencia de las Municipalidades, con las mismas reglas establecidas en el artículo anterior; y la segunda solo dependerá en el todo del Poder Ejecutivo,

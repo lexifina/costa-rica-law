@@ -1,0 +1,1 @@
+Art. 4° La instruccion secundaria se dará en los Colejios establecidos ó que en adelante se establezcan. Estos Colejios estarán bajo la inmediata vijilancia y dependencia de las respectivas Municipalidades. Serán costeados con fondos municipales, y deben sujetarse, para su réjimen y policía interior, a los reglamentos que dicte el Poder Ejecutivo.

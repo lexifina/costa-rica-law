@@ -1,0 +1,1 @@
+Art. 9° El Inspector Jeneral depende esclusivamente del Ministerio de Instruccion Pública. Tendrá, de los fondos destinados anualmente por las Cámaras Lejislativas para la instrucion, los ausilios necesarios al desempeño de sus funciones.

@@ -1,0 +1,1 @@
+Art. 5° La. instruccion universitaria y profesional, se dará en la Universidad de Santo Tomas con arreglo á los Estatutos y reglamentos que para este establecimiento dicte el Poder Ejecutivo. Será costeada. con los fondos propios de la Universidad, con las donaciones que á ella se hagan, y con las cantidades que á ella destine el Poder Lejislativo.

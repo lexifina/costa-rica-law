@@ -1,0 +1,1 @@
+Art. 21. El personal de la escuela normal se compondrá: de un primer Maestro Director: de un segundo: de un tercero; y de un cuarto auxiliares, debiendo el mas jóven hacer las veces de Secreta. rio: tendrá tambien un portero sirviente.

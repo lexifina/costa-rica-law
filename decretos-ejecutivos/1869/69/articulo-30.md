@@ -1,0 +1,1 @@
+Art. 30. Los alumnos de esta clase que quieran matricularse, sufrirán previamente un exámen de las materias que abraza la primera enzeñanza elemental, sin cuyo requisito y sin la correspondiente aprobacion, no podrán ser matriculados.

@@ -1,0 +1,1 @@
+Art. 7° Para ser Inspector Jeneral, se requiere: 1° Ser mayor de treinta años: 2° Ser y haber sido de notoria buena conducta: y 3° Haber adquirido un grado científico y dirijido con provecho alguna escuela superior. Los que hayan ganado títulos honoríficos de Maestros, gozarán de la preferencia en el nombramiento de Inspector Jeneral.

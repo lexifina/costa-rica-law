@@ -1,0 +1,1 @@
+Art. 64. Las puertas del establecimiento estarán constantemente abiertas, no solo para las autoridades y padres de los alumnos, sino también para toda persona que quiera visitar1o, dispensándose un favor especial á su Director con cualquiera advertencia que tenga por objeto la mejora de la educacion y enseñanza.

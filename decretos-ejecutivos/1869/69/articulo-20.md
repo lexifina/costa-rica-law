@@ -1,0 +1,1 @@
+Art.20. La edad que deben tener los alumnos para poder ingresar á la escuela no será menos de dieziseÍs años, ni excederá de veinticinco, á no ser por circunstancias especiales y con permsio del Poder Ejecutivo.

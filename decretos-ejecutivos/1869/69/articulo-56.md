@@ -1,0 +1,1 @@
+Art. 56. El alumno que cometiere quince fallas sin la justificacion de los motivos que las produjeron, Será barrado de la matrícula de Maestros y se dará cuenta de ello al padre, tutor ó encargado. Cuando las faltas fueren involuntarias se tolerarán hasta treinta; pero para ello será preciso justificar la causal antes del tercer dia de la falta.

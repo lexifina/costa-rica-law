@@ -1,0 +1,1 @@
+Art. 13. El que pidiere la remocion del Inspector, está obligado á rendir la prueba de la falta: en caso de no probarla, el empledado continuará en el ejercicio de su destino y el acusador será condenado en costas, daños y perjuicios.

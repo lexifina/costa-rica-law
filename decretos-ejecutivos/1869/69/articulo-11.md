@@ -1,0 +1,1 @@
+Art. 11. El Inspector tendrá las mismas excepciones que mas adelante se acuerdan á los Maestros; pero cuando haya envejecido en servicio de la educacion y sus circunstancias pecuniarias reclamen el auxilio de la Nacion, tendrá el derecho de acudir al Congreso con los documentos justificativos, á fin de que este le otorgue una pension proporcionada, vitalicia ó temporal.

@@ -1,0 +1,1 @@
+Art. 31. Todo alumno que por su desaplicación, ineptitud o mala conducta se muestre indigno de pertenecer el prefesorado, será declarado como tal, no merecedor del majisterio, y por consiguiente no se le podrá espedir título. Con el espediellte que en justificacion de estas causales debe formarse, se dará cuenta al Poder Ejecutivo para su aprobacion, improbacion ó reforma.

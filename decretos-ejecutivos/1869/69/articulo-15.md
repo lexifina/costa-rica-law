@@ -1,0 +1,1 @@
+Art. 15. El Director de la escuela normal deberá entenderse directamente con la Secretaria de Instruccion Pública. A esta escuela vendrán de las Provincias los jóvenes que quieran dedicarse al profesorado y rejentear la instruccion primaria en sus respectivas Provincias, bajo las reglas que en adelante se expresarán.

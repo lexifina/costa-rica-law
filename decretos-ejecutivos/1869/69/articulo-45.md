@@ -1,0 +1,1 @@
+Art. 45. Los aspirantes a Maestros que terminen felizmente sus estudios, recibirán un documento que lo acredite así, el cual acompañarán á la solictiud de exámen para título, y se agregará al expediente. A los que solo cursaren algunas asignaturas, si fueren aprobados, se les espedirá también el correspondiente certificado.

@@ -1,0 +1,1 @@
+Art.49. Uno de los profesores ejercerá las funciones de Secretario, y llevará todos los rejistros que sean necesarios para el buen órden de la escuela: hará tambien las matrículas y espedirá las certificaciones con el "Visto Bueno" del Director.

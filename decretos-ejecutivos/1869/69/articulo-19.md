@@ -1,0 +1,1 @@
+Art.19. En esta escuela se admitirán alumnos estemos y libres: los primeros deben cursar todas las asignaturas y están en un todo sujetos á la disciplina del establecimiento: lo segundos podrán cursar las asignaturas que estimen convenientes, sujetándose tambien en sus respectivos casos al órden del establecimiento.
