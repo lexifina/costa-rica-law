@@ -1,5 +1,5 @@
-Artículo 16.- Para la mayor eficiencia administrativa, la
-Junta estará organizada en departamentos y secciones. Cada uno de
-los departamentos tendrá un jefe responsable ante la Gerencia y
-cada sección, a su vez, contará con un jefe de sección directamente
-responsable ante el Jefe de Departamento correspondiente.
+Artículo 16.- El quórum para las sesiones del Consejo de
+Administración se formará con cuatro miembros y los acuerdos se tomarán
+por simple mayoría de los votos presentes, salvo disposiciones especiales
+que demanden mayor número; en caso de empate que preside tendrá doble
+voto.
