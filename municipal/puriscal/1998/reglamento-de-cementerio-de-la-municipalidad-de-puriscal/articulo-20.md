@@ -1,0 +1,1 @@
+Artículo 20.—Bajo ninguna circunstancia se apartarán parcelas a ninguna persona, la construcción de bóvedas debe ser en línea continua, no se deben dejar espacios entre una y otra, además de lo señalado en este reglamento.

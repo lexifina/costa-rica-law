@@ -1,0 +1,1 @@
+Artículo 26.—No se permitirá colocar sobre la bóveda imágenes, esculturas, lápidas y placas que sus estructuras excedan el metro de altura sobre el nivel de la losa, ni que perjudiquen el ornato general del cementerio. Deberá contar previamente con la autorización de la administración.

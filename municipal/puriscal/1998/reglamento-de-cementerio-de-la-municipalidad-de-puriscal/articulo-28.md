@@ -1,0 +1,1 @@
+Artículo 28.—Toda cruz debe tener visiblemente el nombre de la persona sepultada, con letra imprenta, mayúscula y con pintura negra de fondo blanco. La que no tiene nombre, será retirada y se podrá disponer del espacio salvo que se revalide el pago de inhumación y se ponga acorde al reglamento.

@@ -1,0 +1,1 @@
+Artículo 24.—No se permitirá la construcción de bóvedas si el constructor no utiliza una canoa para preparar el concreto, una vez finalizada la obra deberá retirar todos los sobrantes de materiales, debiendo dejar en perfecto estado de limpieza.

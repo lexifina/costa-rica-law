@@ -1,0 +1,1 @@
+Artículo 12.—Toda solicitud para inhumación debe ser presentad por lo menos con ocho horas de anticipación con el fin de que el emplead revise los registros y pueda determinar el lugar en que se hará 1 inhumación.

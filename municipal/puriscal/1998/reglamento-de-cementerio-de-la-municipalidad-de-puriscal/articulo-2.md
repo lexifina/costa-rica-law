@@ -1,0 +1,1 @@
+Artículo 2°—La vigilancia, conservación y administración del cementerio de Santiago de Puriscal, bienes y fondos estará a cargo de la Municipalidad de Puriscal, quien velará por el estricto cumplimiento de este Reglamento.

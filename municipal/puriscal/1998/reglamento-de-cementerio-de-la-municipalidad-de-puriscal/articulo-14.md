@@ -1,0 +1,1 @@
+Artículo 14.—Las fosas para inhumaciones se excavarán hasta 2,C metros del plano superficial del cementerio. Deben medir 2,10 metros de largo por 80,00 cm. de ancho. Entre las fosas contiguas se dejará una distancia de por lo menos 30,00 cm. entre una y otra fosa.

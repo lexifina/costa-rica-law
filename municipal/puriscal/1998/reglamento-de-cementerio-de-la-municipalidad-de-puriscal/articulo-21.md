@@ -1,0 +1,1 @@
+Artículo 21.—Por razones de orden se establece el sistema uniforme de bóvedas de 4 nichos horizontales como máximo, 2 nichos verticales sobre el nivel del suelo. En el fondo de los dos primeros se dejará de antemano un hoyo de 20 cm. x 50 cm. x 20 cm., el cual servirá de osario para después de 5 años o mas en caso de exhumación.

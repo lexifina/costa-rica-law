@@ -1,0 +1,1 @@
+Artículo 29.—La Dirección Ejecutiva tendrá a su competencia, velar por el fiel cumplimiento de las disposiciones contenidas en el presente Reglamento, entre otras. En cuanto a la recaudación de derechos y tasas municipales, trámite de permiso para construcción y pendiente de cobro le corresponde al Departamento de Rentas y Catastro.

@@ -1,0 +1,1 @@
+Artículo 9°—Como son prohibidos los entierros después de las 6,00 p. m., se advierte que no deben hacerse los funerales después de las 18,00 horas, caso contrario el interesado pagará al empleado del cementerio el tiempo extraordinario.

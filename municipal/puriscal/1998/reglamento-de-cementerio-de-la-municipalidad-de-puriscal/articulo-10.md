@@ -1,0 +1,1 @@
+Artículo 10.—Todas las bóvedas, plataformas, nichos, criptas y otros elementos decorativos serán de color blanco. Todo lo que se pinte dentro del cementerio, tendrá que ser blanco y con pintura antihongos. La rotulación de los elementos antes mencionados será con pintura negra

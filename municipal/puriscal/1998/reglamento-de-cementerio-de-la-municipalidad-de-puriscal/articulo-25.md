@@ -1,0 +1,1 @@
+Artículo 25.—En caso de reparación de bóvedas, el interesado deberá solicitar el respectivo permiso a la administración, se hará la inspección ocular, el mismo hará un informe y las respectivas recomendaciones para considerar si se concede o niega el permiso.

@@ -1,0 +1,1 @@
+Artículo 18.—Cuando se hagan exhumaciones para llevar a o cementerio se levantará un acta del caso ante dos testigos, con origina dos copias (original para la administración, copia para el interesado y encargado).
