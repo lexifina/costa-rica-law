@@ -1,0 +1,2 @@
+Disposiciones Generales
+Art 19.- Las asignaciones que proceden son la compensa del servicio que presten los empleados públicos, y por consiguiente no disfrutarán de ellas cuando por causa justa se les suspenda de sus destinados. Tampoco gozarán de sueldo los que en virtud de licencia se separasen de ellos temporalmente; aunque sea por poco tiempo; más si la separación fuere causada por alguna enfermedad que en concepto de dos facultativos impida al empleado la asistencia a su oficina, se le abonará la tercera parte de su sueldo respectivo.

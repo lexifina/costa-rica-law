@@ -1,0 +1,1 @@
+Artículo 37°.- Las dotaciones que antes se pagaban de la masa de diezmos a los Padres Reductores de los Pueblos Indígenas, y a los Curatos incongruos de la República se seguirán cubriendo del Tesoro Nacional conforme a las disposiciones y órdenes anteriores.

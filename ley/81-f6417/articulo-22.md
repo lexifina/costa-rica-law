@@ -1,0 +1,1 @@
+Artículo 22°.- Los Generales y Coroneles cuando estén en servicio de guarniciones en tiempo de paz o desempeñando alguna comisión, disfrutarán de las dos terceras partes del sueldo que les está asignado.

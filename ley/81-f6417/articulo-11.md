@@ -1,0 +1,2 @@
+Administración general de licores
+Art 11.- El Administrador general gozará del sueldo de novecientos pesos anuales. El Contador del de setecientos pesos. El guarda vista del de trescientos cuarenta pesos. El escribiente del de trescientos ochenta pesos. El Portero Conserje del de trescientos setenta y dos pesos. El ayudante vista del de ciento ochenta pesos. El Portero Conserje del de trescientos setenta y dos pesos. El ayudante vista del de ciento ochenta pesos.

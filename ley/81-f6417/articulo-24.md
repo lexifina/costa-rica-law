@@ -1,0 +1,2 @@
+Art 24.- La provisión interina de algún destino no causa propiedad, y por lo mismo el empleado que lo sirva disfrutará solamente de las dos terceras partes de la dotación señalada al propietario, a no ser que el Gobierno disponga de otra manera.
+Único. La traslación que haga el Gobierno de sus empleados se considera como nombramiento en propiedad y produce el derecho de percibir integra la dotación que corresponda al destino.

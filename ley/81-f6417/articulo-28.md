@@ -1,0 +1,3 @@
+Artículo 28°: No debiéndose conceder en lo sucesivo ninguna clase de jubilaciones por servicios prestados, tampoco se hará a los empleados descuento alguno de los sueldos que se les ha asignado.
+&i Sin embargo, los correos matriculados que hayan servido sin interrupción en las carreras del exterior el tiempo de veinte años podrán retirarse con la pensión de diez pesos mensuales; y si el servicio alcanzare a treinta años, con la de veinte pesos mensuales por todo el tiempo su vida.
+$2. Los empleados públicos que hayan prestado largos servicios a su patria, y se envejecieren o inutilizaren para trabajar, quedando sin recursos con que mantenerse, lo representaran así al Gobierno para que este recabe del Excelentísimo Congreso la resolución que convenga.
