@@ -1,0 +1,8 @@
+INSTITUTO DE FOMENTO Y ASESORIA MUNICIPAL
+MODIFICACIONES REGLAMENTO DE PROVEEDURIA
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal, mediante acuerdo quinto, artículo seis de la Sesión Ordinaria N° 2762, celebrada a las 13,30 horas del día 14 de enero de 1998, resolvió modificar el Reglamento de Proveeduría en la siguiente forma:
+Artículo ocho e incisos A), B) y C). "Cuando exista en el registro de proveedores una persona, física o jurídica, calificada para la prestación se procederá a su selección directa. En el caso de que no exista o que en el mismo registro se cuente con un número menor de oferentes, la contratación de bienes y servicios atenderán las siguientes disposiciones:
+a.- Para las compras menores o iguales a cien mil colones (100.000,00) se podrá invitar a un solo proveedor.
+b.- Para compras directas mayores a cien mil colones (100.000,00) y hasta un millón de colones (¢1.000.000,00) se invitará a tres proveedores.
+c.- Para compras directas mayores a un millón de colones (1.000.000,00) y hasta tres millones quinientos mil colones (3.500.000, 00) se invitará a cinco proveedores".
+Artículo veinte: "Las órdenes de compra por un monto máximo de trescientos mil colones (300.000.00) deberán ser firmadas por el proveedor del Instituto y el Director de Administración Interna. Montos superiores al indicado, hasta dos millones de colones (2.000.000.00), deberán contar con la aprobación del Director Ejecutivo o de la Presidencia Ejecutiva. Los montos superiores a dos millones de colones (2.000.000,00) hasta tres millones quinientos mil colones (3.500.000, 00) deberá autorizarlos la Junta Directiva."
