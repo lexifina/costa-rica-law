@@ -1,0 +1,1 @@
+Artículo 11.-Los Diputados podrán tomar en préstamo fuera de la Biblioteca los libros que estimen convenientes para sus estudios y los funcionarios, empleados y público en general un libro cada vez, excepto cuando sean trabajos de investigación relacionados con la Oficina.

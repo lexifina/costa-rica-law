@@ -1,0 +1,1 @@
+Artículo 28.-La Biblioteca mantendrá un préstamo interbibliotecario sujeto a las reglamentaciones acordadas con las Bibliotecas participantes, siempre y cuando no contraviniere lo establecido por el presente Reglamento.

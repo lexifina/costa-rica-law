@@ -1,0 +1,1 @@
+Artículo 26.-La Biblioteca extenderá un recibo al interesado por las sumas que reciba en concepto de lo establecido en este reglamento. Dichas sumas servirán para aumentar el acervo de la Biblioteca o para remediar necesidades urgentes de la misma.

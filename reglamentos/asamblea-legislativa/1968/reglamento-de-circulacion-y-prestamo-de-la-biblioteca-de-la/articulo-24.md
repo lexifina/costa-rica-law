@@ -1,0 +1,1 @@
+Artículo 24.-Cuando el Secretario Ejecutivo de una Comisión deje sus funciones temporal o definitivamente, estará obligado a entregar por inventario a la Biblioteca los libros que retenga en su local para renovar el préstamo con el nuevo funcionario.

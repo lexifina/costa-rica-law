@@ -1,0 +1,1 @@
+Artículo 9°-La duración del préstamo será por el tiempo que fije la Biblioteca y hasta por un lapso no mayor de quince días. El lector está en la obligación de devolver los libros en la fecha de vencimiento del préstamo.

@@ -1,0 +1,1 @@
+Artículo 21.-Las Comisiones que deseen tener Códigos, Reglamentos, ejemplares de la Colección de Leyes, etc., en su propio local, harán la solicitud correspondiente al Director de la Biblioteca o al Jefe Departamental.

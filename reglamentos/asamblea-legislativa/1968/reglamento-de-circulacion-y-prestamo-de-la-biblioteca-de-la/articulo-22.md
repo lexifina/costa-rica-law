@@ -1,0 +1,1 @@
+Artículo 22.-El Bibliotecario encargado de la Sección de Préstamos (Director), visitará las Comisiones al vencer el plazo de préstamos de los libros que tienen en su local, para realizar un inventario y renovarlo por un período igual.

@@ -1,0 +1,1 @@
+Artículo 14.-El prestatario que devolviere deteriorado los libros, deberá cubrir el valor de restauración y en caso de pérdida pagará la suma que le corresponda, según lo establecido en los artículos 8°, 13 y 15 de este reglamento.

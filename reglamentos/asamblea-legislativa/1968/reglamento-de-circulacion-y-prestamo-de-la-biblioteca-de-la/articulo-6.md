@@ -1,0 +1,1 @@
+Artículo 6°-Tendrán acceso a los depósitos únicamente el personal de la Biblioteca. Los Diputados y Director Ejecutivo tendrán acceso a los depósitos cuando así lo solicitaren al Bibliotecario, a quien entregarán el material una vez terminada la consulta.

@@ -1,0 +1,1 @@
+Artículo 19.-La selección de libros, publicaciones periódicas, etc., estará a cargo de la Comisión nombrada al efecto por el Directorio en colaboración del Jefe Departamental y del Director de la Biblioteca.

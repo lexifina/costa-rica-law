@@ -1,0 +1,1 @@
+Artículo 10.-Cuando el lector no devuelva los libros en la fecha de vencimiento del préstamo se le enviarán dos avisos. Si éstos no fueran atendidos se notificará al Director Ejecutivo. Mientras tanto, le serán suspendidos los servicios de préstamo de libros para llevar fuera de la Biblioteca.

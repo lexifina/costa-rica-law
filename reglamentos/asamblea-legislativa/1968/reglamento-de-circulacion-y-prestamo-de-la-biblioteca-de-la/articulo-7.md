@@ -1,0 +1,1 @@
+Artículo 7°-El público podrá hacer uso de los materiales de la Biblioteca únicamente en la Sala de Lectura. Se exceptúan de esta disposición a las personas que por circunstancias especiales obtengan de la Dirección Ejecutiva permiso para llevar libros fuera de la Biblioteca.

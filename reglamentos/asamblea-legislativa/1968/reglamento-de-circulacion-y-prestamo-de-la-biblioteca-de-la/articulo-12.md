@@ -1,0 +1,1 @@
+Artículo 12.-El préstamo podrá renovarse siempre y cuando el libro no haya sido solicitado por otro lector. Es requisito para hacer esta renovación presentar el libro y firmar de nuevo la tarjeta de préstamo.

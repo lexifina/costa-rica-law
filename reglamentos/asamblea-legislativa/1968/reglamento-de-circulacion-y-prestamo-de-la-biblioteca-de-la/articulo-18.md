@@ -1,0 +1,1 @@
+Artículo 18.-EI personal de la Biblioteca que le toca atender al público debe concretarse a prestar los libros sin realizar comentarios que puedan ofender al prestatario o atrasarlo en su correspondiente estudio.
