@@ -1,0 +1,1 @@
+Artículo 19.-Por conducto del Ministerio de Relaciones Exteriores se recabará de los funcionarios diplomáticos y consulares obtener de las autoridades sanitarias de los países en donde ejerzan sus funciones, la remisión periódica de los boletines de Sanidad Animal al Ministerio de Agricultura.
