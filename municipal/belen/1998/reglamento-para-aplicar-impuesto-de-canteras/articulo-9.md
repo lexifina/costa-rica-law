@@ -1,0 +1,1 @@
+Artículo 9°—Pago del tributo. El impuesto deberá ser cancelado únicamente en la Tesorería Municipal o en las cajas recaudadoras debidamente autorizadas por la Municipalidad, a más tardar el último día hábil del mes en que fue presentada la declaración jurada correspondiente al mes anterior.

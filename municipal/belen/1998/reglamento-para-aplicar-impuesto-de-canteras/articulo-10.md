@@ -1,0 +1,1 @@
+Artículo 10.—Dación de pago. El Concejo Municipal, previa solicitud del interesado, podrá autorizar la compensación del monto correspondiente al impuesto que el contribuyente adeuda a la Corporación, con materiales extraídos en la cantera respectiva, los cuales podrán ser retirados por la Municipalidad en cualquier momento, sin límite de plazo.
