@@ -1,0 +1,1 @@
+(NOTA DE SINALEVI: este acuerdo fue derogado mediante sesión N°540 del 24 de noviembre del 2005, la cual empezará a regir el 09 de octubre del 2006, por lo que la derogación será efectuada en la fecha indicada).
