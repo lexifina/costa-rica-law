@@ -1,0 +1,1 @@
+Art. 2° De consiguiente, jamas en ningun caso dichas Repúblicas se harán la guerra.-Si ocurriere alguna diferencia entre ellas, se darán previamente las esplicaciones debidas, y si estas no alcanzasen a zanjar las dificultades y restablecer la buena inteligencia ocurrirán en toda eventualidad al arbitramento de una nación amiga.

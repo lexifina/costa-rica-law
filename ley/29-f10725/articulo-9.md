@@ -1,0 +1,1 @@
+Art. 9° Si emigrados por motivos políticos de una de las partes contratantes se acojieren al territorio de la otra gozarán del asilo que el Gobierno respectivo debe concederles, pero en este caso es obligacion de la parte que dá el asilo, cuidar de que éste no se convierta en perjuicio de la otra.

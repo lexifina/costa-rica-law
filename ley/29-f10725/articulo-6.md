@@ -1,0 +1,1 @@
+Art. 6° Los actos judiciales, títulos académicos y documentos públicos de cualquiera naturaleza, otorgados ó estendidos en una de las dos Repúblicas conforme á sus propias leyes, valdrán en la otra y merecerán toda fé, presentándose con la autenticidad debida.

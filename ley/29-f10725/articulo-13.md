@@ -1,0 +1,1 @@
+Art. 13. Los doce artículos precedentes, serán perpetuamente obligatorios para las dos partes contratantes; pero ellas de comun acuerdo, podrán reformarlos ó adicionarlos, cuando lo tengan por conveniente.
