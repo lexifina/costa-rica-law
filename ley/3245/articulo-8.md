@@ -1,0 +1,1 @@
+Artículo 8º.- El Colegio de Abogados, para efectos de la percepción de estos fondos, está obligado a emitir los timbres respectivos, y podrá expenderlos por medio de los Bancos del Estado y conceder descuentos hasta del 6% en ventas mayores de ¢ 25.00.
