@@ -1,0 +1,1 @@
+Artículo 103.-A los encargados del Poder Ejecutivo, a los Ministros de Estado y a los Ministros Jueces de la Corte Suprema de Justicia, solo puede exigirles la responsabilidad el Congreso, quién decidirá por el voto unánime de las dos terceras partes de los Representantes si admite o no la acusación; y en caso que la admita, queda suspenso el acusado.

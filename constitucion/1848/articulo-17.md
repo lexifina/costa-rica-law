@@ -1,0 +1,1 @@
+Artículo 17.-El nombramiento de los electores que correspondan a cada distrito parroquial, se hará a pluralidad relativa de votos de los sufragantes parroquiales del distrito que concurran a dar su voto para dicho nombramiento; y cada sufragante votará por dos electores correspondientes al distrito, uno en clase de propietario y otro en la de suplente.

@@ -1,0 +1,1 @@
+Artículo 75.-En los casos de muerte, renuncia o de cualquier otra falta temporal, accidental o perpetua del Presidente, ejercerá el Poder Ejecutivo el Vice-Presidente de la República , y cuando por iguales causas falte este, lo ejercerá el Vice-Presidente del Congreso; y en su falta ó incompetencia, el Diputado que este Cuerpo nombre en su lugar.

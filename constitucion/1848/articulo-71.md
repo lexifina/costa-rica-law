@@ -1,0 +1,1 @@
+Artículo 71.-Los seis años de duración en sus destinos de Presidente y Vice-Presidente de la República se cuentan desde el día en que hubiesen tomado posesión de ellos; y concluidos que sean, cesan por el mismo hecho en sus funciones.

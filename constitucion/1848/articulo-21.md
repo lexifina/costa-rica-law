@@ -1,0 +1,1 @@
+Artículo 21.-La ley determinará el tiempo dentro del cual deban hacerse estos nombramientos, la autoridad que deba verificar el escrutinio y todo lo demás que convenga para arreglar dicho nombramiento.

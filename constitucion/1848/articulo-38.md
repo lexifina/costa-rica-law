@@ -1,0 +1,1 @@
+Artículo 38.-La duración de los Representantes será de seis años, y serán renovados por mitad cada tres años; decidiendo la suerte, por la primera vez, los que deben salir, y renovándose en los sucesivo los mas antiguos que hubiesen quedado.
