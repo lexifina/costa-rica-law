@@ -1,0 +1,1 @@
+Artículo 9°—El Concejo Municipal, previo informe de la Comisión cancelará los beneficios de beca a aquellos estudiantes con un bajo rendimiento académico, o a los que no retiraron la beca en el término de dos meses.

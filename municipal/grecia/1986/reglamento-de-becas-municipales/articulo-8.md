@@ -1,0 +1,1 @@
+Artículo 8°—Los becados deberán presentar a la Comisión, fotocopia del informe de calificaciones, por cada período en que lo rinda la institución respectiva. Para tal efecto la fotocopia deberá ser entregada a la Secretaría Municipal para que posteriormente la Comisión autorice la entrega de la beca.

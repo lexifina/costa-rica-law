@@ -1,0 +1,1 @@
+Artículo 2°—La Comisión de Becas que en adelante se denominará "La Comisión", la nombrará el Presidente Municipal procurando dar participación en ella a los profesionales del proceso de enseñanza-aprendizaje, que forman parte del Concejo. La Comisión dará prioridad a aquellas solicitudes para estudios vocacionales, agropecuarios y superiores.
