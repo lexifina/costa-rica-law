@@ -1,0 +1,1 @@
+2°—Que para el seguimiento que deberá realizar el Concejo Municipal de los gastos autorizados por el Alcalde Municipal, deberá presentar éste, en los primeros ocho días de cada mes, un informe de los egresos del mes anterior.
