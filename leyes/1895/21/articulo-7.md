@@ -1,0 +1,1 @@
+Art 7°.- Si un Agente Fiscal estuviere impedido para intervenir en un asunto, lo sustituirá el otro de la misma provincia; y si fuere único, el Juez que conozca del negocio nombrará un Procurador Fiscal.

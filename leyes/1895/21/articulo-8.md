@@ -1,0 +1,1 @@
+Art 8°.- El promotor Fiscal puede en cualquier momento apersonarse en todo negocio en que intervenga el Ministerio Público, sin perjuicio de la representación especial encomendada á sus Agentes subalternos.
