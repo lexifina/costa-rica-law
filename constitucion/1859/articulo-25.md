@@ -1,0 +1,1 @@
+Artículo 25.-Le propiedad es inviolable: a ninguno puede privarse de la suya sino es por interés público legalmente comprobado, y previa indemnización a justa tasación de peritos nombrados por las partes, quienes no solo deben estimar el valor de la cosa que se tome, sino también el de los daños consiguientes que se acrediten.

@@ -1,0 +1,1 @@
+Artículo 72.-La duración de los Senadores será de cuatro años, debiendo ser renovados cada dos años por mitades, y pudiendo ser reelectos indefinidamente. La suerte designará en el primer período de la renovación, los individuos que deben dejar sus asientos.

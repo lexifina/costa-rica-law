@@ -1,0 +1,1 @@
+Artículo 93.-Los proyectos aprobados en la Cámara de su origen se pasarán a la otra, con expresión de los días en que haya sido sometidos a discusión, y esta deberá observar para su aprobación, los mismos requisitos establecidos en el artículo anterior.

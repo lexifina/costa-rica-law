@@ -1,0 +1,1 @@
+Artículo 107.-Cuando por muerte, renuncia u otra causa vacare el destino de Presidente de la República, se procederá a elección extraordinaria, siempre que falte mas de una año para concluir el período constitucional.

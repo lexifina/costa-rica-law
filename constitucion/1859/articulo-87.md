@@ -1,0 +1,1 @@
+Artículo 87.-Los Senadores y Representantes tiene este carácter por la nación, y no por la Provincia que los ha nombrado: ellos no recibirán órdenes ó instrucciones, ni de las Asambleas que los nombran, ni de otra autoridad alguna.
