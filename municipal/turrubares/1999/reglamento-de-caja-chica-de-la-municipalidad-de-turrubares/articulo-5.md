@@ -1,0 +1,1 @@
+5°-Los egresos que se realicen por Caja Chica, se tramitan a través de la formula denominada comprobante de pago por Caja Chica, que prepara el Alcalde Municipal en original y una copia. El diseño de esta formula se encuentra en el Manual de Procedimientos para la Contabilidad Municipal.
