@@ -1,4 +1,4 @@
-Artículo octavo.-Al personal del Banco comprendido dentro de los
+Artículo octavo.- Al personal del Banco comprendido dentro de los
 beneficios a que se contrae el presente Convenio le será proporcionado un
 carnet especial o tarjeta de identidad que certifique su vinculación con el
 Banco y de que goza de todas las prerrogativas e inmunidades reconocidas
