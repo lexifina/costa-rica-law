@@ -1,0 +1,1 @@
+Artículo 2°-Exonérase del pago de todo tipo de impuestos la compra de un vehículo tipo rural, con motor de diésel, ensamblado en el país, que será rifado por el Club de Leones de la Ciudad de Grecia. El producto de la rifa se destinará a la construcción y acondicionamiento de un salón para usos varios, en el Distrito Central del Cantón de Grecia.
