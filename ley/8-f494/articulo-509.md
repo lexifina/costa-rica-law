@@ -1,1 +1,4 @@
-Art 509.-La propiedad de los terrenos es trasmisible, por título gratuito u oneroso, a costarricenses o extranjeros. No pueden enajenarse los terrenos comprendidos en una zona de una milla de latitud a lo largo de las costas de ambos mares, y orillas de ríos navegables.
+Artículo 509- DEROGADO.
+(Derogado por Ley General sobre Terrenos Baldíos y su Reglamento.
+Ley Nº 13 de 10 de enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril
+de 1940).

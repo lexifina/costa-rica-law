@@ -1,1 +1,3 @@
-Art. 76.-EI guarda que estuviere á bordo del buque deberá entregar al jefe de la lltncha una mi nuta de la carga que ésta conduzca á tierra, previa, confrontación de la nota del capitán del buque.
+Artículo 76.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

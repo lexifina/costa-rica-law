@@ -1,1 +1,3 @@
-Art 551.-Se prohíbe destruir, tanto en los bosques nacionales como en los de particulares, los árboles situados a menos de setenta metros de los manantiales que nazcan en los cerros, o a menos de cincuenta metros de los que nazcan en terrenos planos.
+Artículo 551.- DEROGADO.
+(Derogado por la Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939)

@@ -1,1 +1,3 @@
-Art 350.-Son papeles de negocios los expedientes judiciales, las actas de todo género que emanen de empleados del Ministerio Público, las guías de carga, los conocimientos y las facturas consulares.
+Artículo 350- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

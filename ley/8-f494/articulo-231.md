@@ -1,1 +1,3 @@
-Art. 231.-Si el acusador ó el reo quisieron rendir pruebas, se concederá el término de ocho días, prorrogables hasta quince cuando fuere absolutamente necesario, y dentro de él se recibirán las pruebas ofrecidas por las partes, con las mismas formalidades y requisitos que se observan en los juicios comunes.
+Artículo 231.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

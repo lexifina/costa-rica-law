@@ -1,3 +1,2 @@
-Art 619.-A la Cartera de Marina corresponde:
-1º.-La Capitanía de los puertos.
-2º.-La subvención a las compañías de vapores.
+Artículo 619- DEROGADO.
+(Derogado por la ley Nº 200 de 6 de setiembre de 1945).

@@ -1,1 +1,3 @@
-Art 203.-Los derechos de Aduana se pagarán en la Tesorería Nacional, dando la mitad al contado y la otra mitad á tres meses de plazo, con intereses del uno por ciento mensual.
+Artículo 203.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

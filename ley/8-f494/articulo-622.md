@@ -1,3 +1,2 @@
-Art 622.-A la explotación de monopolios corresponde:
-1º.-La compra de especies.
-2º.-Los gastos de operarios y elaboración de la especie.
+Artículo 622- DEROGADO.
+(Derogado por la ley Nº 200 de 6 de setiembre de 1945).

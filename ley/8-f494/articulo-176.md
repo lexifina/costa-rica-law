@@ -1,1 +1,3 @@
-Art. 176.-' Es obligación de los porteadores estivar la carga en los almacenes de la Aduana.
+Artículo 176.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

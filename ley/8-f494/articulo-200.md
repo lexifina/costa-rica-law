@@ -1,1 +1,3 @@
-Art. 200.-Visada la liquidación de derechos por la Contaduría Mayor, ésta pasará copia al introductor ó comerciante para que use de sus derechos. Todo reclamo debe ser ventilado y fenecido sumariarnente dentro de ocho días para los comerciantes de las comarcas, seis para los de las provincias, y cuatro para los de la capital de la República.
+Artículo 200.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

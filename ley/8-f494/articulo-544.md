@@ -1,1 +1,3 @@
-Art 544.-Cuando por el trascurso del tiempo hubieren desaparecido los mojones de terrenos poseídos en propiedad a virtud de ventas hechas por el Estado, el propietario podrá solicitar ante el Juez de Hacienda la medida de los terrenos que poseyere, o el avivamiento de mojones.
+Artículo 544- DEROGADO.
+(Derogado por la Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

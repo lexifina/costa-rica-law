@@ -1,1 +1,3 @@
-Art 145.-El Administrador, o por sí, ó por medio de algunos de los empleados de la Aduana revisará á la llegada del tren los demás carros que por venir abiertos, no deban conducir mercaderías destinadas al consumo interior.
+Artículo 145.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

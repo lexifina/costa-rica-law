@@ -1,3 +1,1 @@
-CAPÍTULO II
-De la cancelación
-Art. 279.-EI timbre se colocará en la misma cara ó faz del papel en que se halle la firma, de modo que no impida leer lo escrito, y queden enteramente visibles las estampillas que se empleen.
+Artículo 279.- Cuando en la escritura matriz o instrumento original, constare que no se otorgaron primeros testimonios ni certificaciones, los segundos que se expidan llevarán timbre por valor doble del que les correspondía. En todo otro caso, el segundo testimonio pagará ese doble impuesto salvo que el primero aparezca inscrito o utilizado en juicio.

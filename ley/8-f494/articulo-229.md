@@ -1,1 +1,3 @@
-Art. 229.-Los juicios por contrabando, fraude ó infracción, se sustanciarán por el Juzgado de Hacienda Nacional aplicando las' disposiciones de esta ordenanza y leyes vigentes. Cuando se presentare un caso no previsto, se aplicarán, por analogía las penas correspondientes, conforme á las leyes.
+Artículo 229.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,2 @@
-Art 296.-Toda autoridad de Policía está en el deber de dar al Inspector General de Hacienda todos los informes que pida y los auxilios que requiera para la persecución de los delitos de que trata este capítulo.
+Artículo 296.- DEROGADO.
+(Derogado por el artículo 9 de la Ley Nº 5259 de 30 de julio de 1973).

@@ -1,1 +1,3 @@
-Art. 164.-Extcudida la matricula, el Administrador dará constancia de ella al interesado, para que se le tenga como porteador matriculado por el carro, carros, ó número de acémilas á que aquélla se refiera, entregándole también las respectivas placas de metal en que esté grabado el número que corresponda á cada carro ó acémila. Por la matrícula no se exigirá á. porteadore más que el justo valor de la placa ó placas que se les entreguen.
+Artículo 164.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art 535.-La zona de doscientos cincuenta metros a orillas del camino y veredas se dividirá en lotes de doscientos cincuenta metros de frente y todo el fondo de la zona: estos lotes se reservarán para adjudicarlos a cultivadores, según las disposiciones de los artículos precedentes.
+Artículo 535- DEROGADO.
+(Derogado por el artículo 9º de la ley Nº 11 de 22 de octubre de
+1926).

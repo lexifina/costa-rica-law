@@ -1,1 +1,3 @@
-Art.136-Si el pedimento estuviere conforme con los manifiestos respectivos y con los asientos del libro de almacenes, el Administrador concederá el permiso mandando que se reciban los bultos en los almacenes, para despacharlos cuando llegue su turno, según el número de orden que les corresponda por la fecha de su entrada en el depósito.
+Artículo 136.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

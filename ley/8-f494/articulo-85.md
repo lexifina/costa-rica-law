@@ -1,1 +1,3 @@
-Art. 85.-Esta visita podrá repetirse cuantas veces lo disponga el Administrador de laAduana.
+Artículo 85.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,6 @@
-Art 14- Una vez que los capitanes de buque hayan pagado los derechos que quedan mencionados, no se les podrá cobrar contribución ni gratificación de ninguna clase, ni por los marineros de las Capitanías de puerto, ni por los oficiales de sanidad, ni por los guardas ó dependientes de las aduanas; salvo el justo valor del servicio de gobierno, cuando hubieren pedido práctico.
+Artículo 14- Una vez que los capitanes de buque hayan pagado los
+derechos que quedan mencionados, no se les podrá cobrar contribución ni
+gratificación de ninguna clase, ni por los marineros de las capitanías
+de puerto, ni por los oficiales de sanidad, ni por los guardas o
+dependientes de las aduanas; salvo el justo valor del servicio de
+gobierno, cuando hubieren pedido práctico.

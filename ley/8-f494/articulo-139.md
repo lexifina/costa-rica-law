@@ -1,1 +1,3 @@
-Art. 139.-Abiertos éstos por el Contador y el Alcaide, depositarios del duplicado de llaves de los respectivos candados, se procederá á la descarga con las mismas formalidades señaladas para el despacho en el artículo 132.
+Artículo 139.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

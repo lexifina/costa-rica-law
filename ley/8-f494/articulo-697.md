@@ -1,1 +1,7 @@
-Art 697- Toda caución se propondrá al Ministro de Hacienda, el cual calificará y admitirá si reúne los requisitos de ley. Para calificar las cauciones, el Fiscal de Hacienda debe tomar previamente los informes que estime convenientes, con el objeto de averiguar la solvencia de los fiadores propuestos, y mandar, siempre qu lo crea necesario, hacer avalúo de las fincas, comisionando al efecto a los jefes políticos o a persona de su confianza.
+Artículo 697- Toda caución se propondrá al Ministro de Hacienda, el
+cual calificará y admitirá si reúne los requisitos de ley.
+Para calificar las cauciones, el Fiscal de Hacienda debe tomar
+previamente los informes que estime convenientes, con el objeto de
+averiguar la solvencia de los fiadores propuestos, y mandar, siempre que
+lo crea necesario, hacer avalúo de las fincas, comisionando al efecto a
+los jefes políticos o a persona de su confianza.

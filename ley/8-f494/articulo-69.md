@@ -1,1 +1,3 @@
-Art 69.- El manifiesto por mayor será cancelado por el Administrador, cuando haya sido recibida en los almacenes de la Aduana del puerto la carga que él mismo indique.
+Artículo 69.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

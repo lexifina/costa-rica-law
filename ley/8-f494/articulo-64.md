@@ -1,1 +1,3 @@
-Art. 64.- El empleado que reciba el manifiesto por mayor, ó los conocimientos en su caso, deberá dar recibo al capitán del buque, y anotar al pie de dicho documento el día y hora de su recibo, pasándolo inmediatamente después al Administrador de la Aduana del puerto.
+Artículo 64.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

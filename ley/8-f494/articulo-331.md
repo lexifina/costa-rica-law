@@ -1,1 +1,1 @@
-Art 331.- A fin de cada mes, el Procurador remitirá al Ministerio de Hacienda un conocimiento detallado de las entradas del Registro y á fin de año rendirá cuenta general.
+Artículo 331.- (Derogado por Decreto Ejecutivo Nº 10 de 23 de octubre de 1914).

@@ -1,1 +1,3 @@
-Art 550.-Se prohíbe destruir en los bosques nacionales los árboles que estén situados en las pendientes, orillas de las carreteras y demás vías de comunicación, lo mismo que los árboles que puedan explotarse sin necesidad de cortarlos, como el hulero, el liquidámbar, el bálsamo, etc.
+Artículo 550.- DEROGADO.
+(Derogado por la Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939)

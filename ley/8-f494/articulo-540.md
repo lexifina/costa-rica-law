@@ -1,1 +1,3 @@
-Art 540.-El baldío denunciado podrá denunciarse nuevamente por otra persona, cuando el primer denunciante hubiere dejado pasar seis meses, contados desde la última diligencia practicada, sin activar el curso del expediente de denuncia; pero mientras no hubiere nuevo denunciante, el primero puede siempre activar el curso de expediente.
+Artículo 540- DEROGADO.
+(Derogado por el artículo 9º de la ley Nº 11 de 22 de octubre de
+1926).

@@ -1,1 +1,2 @@
-Art 465- Extendida la matricula se dará certificación al solicitante para que la fije en su establecimiento
+Artículo 465- Extendida la matricula se dará certificación al solicitante para que la fije en su establecimiento
+(Nota de Sinalevi: Véase el artículo 5° del Decreto Legislativo N° 3 del 12 de agosto de 1886, “Declara abolido el Monopolio del Tabaco y libre el cultivo en toda la República”, el cual ordena derogar en cuanto se opongan a dicho Decreto Legislativo, todas las disposiciones Fiscales sobre Tabaco que contiene el Código Fiscal)

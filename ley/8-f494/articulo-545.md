@@ -1,1 +1,3 @@
-Art 545.-Si de la medida practicada resultare que el interesado posee una extensión de terreno mayor que la expresada en el título primitivo, se le adjudicará sin necesidad de subasta por el valor que tengan según las reglas y términos antes establecidos.
+Artículo 545- DEROGADO.
+(Derogado por la Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

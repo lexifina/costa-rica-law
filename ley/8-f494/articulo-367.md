@@ -1,1 +1,3 @@
-Art 367.-Los contratistas de correos serán responsables del deterioro o extravío de cualquiera pieza, siempre que apareciera fracturada la valija o no hubieren tomado las precauciones necesarias para resguardar su contenido, salvo caso fortuito o fuerza mayor.
+Artículo 367- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

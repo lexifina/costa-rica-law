@@ -1,1 +1,3 @@
-Art. 150-El guarda-almacenes deberá pesar los bultos que se desalmacenen, sentando en el libro de almacenes el número, marca y peso de cada bulto, el nombre del dueño ó consignatario, el del porteador y el número de carros ó acémilas.
+Artículo 150.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art 348.-Los impresos o papeles de negocios, se remitirán bajo fajilla o sobre abierto.
+Artículo 348- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

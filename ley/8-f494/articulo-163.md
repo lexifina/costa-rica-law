@@ -1,1 +1,3 @@
-Art. 163.Con vista de esta certificación, el Director General de Aduanas mandará extender la matrícula en el libro respectivo, sentándose la co- rrespondiente partida, con expresión de las circunstancias á que se refiere el artículo anterior, y del número de orden del carrro, carros, ó acémilas matriculadas. Las certificaciones de los Alcaldes se conservarán en la Aduana, coleccionadas, como comprobantes.
+Artículo 163.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

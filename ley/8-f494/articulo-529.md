@@ -1,1 +1,6 @@
-Art 529.-Aprobado el remate y pagado el precio, si la compra fuere al contado, o pagada la primera anualidad de intereses si la compra fuere a plazos, procederá el Juez previa aprobación del Poder Ejecutivo, a otorgar la correspondiente escritura de venta, que servirá de título de propiedad al rematario.
+(Derogados los artículos 529 al 531 por Ley General sobre Terrenos
+Baldíos Nº 13 de 10 de enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de
+abril de 1940).
+Artículo 529- DEROGADO.
+(Derogado por Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

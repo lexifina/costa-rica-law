@@ -1,6 +1,2 @@
-Art 611.-A la Cartera de Relaciones Exteriores corresponde:
-1º.-El Ministro y sus dependientes.
-2º.-Las Legaciones al exterior.
-3º.-La suscripción a periódicos y formación de la biblioteca
-del Ministerio.
-4º.-Los eventuales.
+Artículo 611- DEROGADO.
+(Derogado por la ley Nº 200 de 6 de setiembre de 1945).

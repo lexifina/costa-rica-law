@@ -1,4 +1,2 @@
-Art 623.-Al uso del crédito nacional corresponde:
-1º.-Los fletes de mar y tierra.
-2º.-Las comisiones, intereses sobre fondos consolidados,
-y del crédito de que la Nación haga uso.
+Artículo 623- DEROGADO.
+(Derogado por la ley Nº 200 de 6 de setiembre de 1945).

@@ -1,1 +1,3 @@
-Art. 194.-Si los pasajeros fueren artistua de algunacompañía de ópera, zarzuela, comedia, etc., se les permitirá también la introduccion libre de derecho de traje y adornos escénicos, con tal de que formando parte de su equipaje y no sean en cantidades excesivas.
+Artículo 194.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

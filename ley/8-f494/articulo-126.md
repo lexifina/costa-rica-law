@@ -1,1 +1,3 @@
-Art. 126.-Las mercaderías certificadas podrán entregarse á un tercero que presente la certificación endosada, con la expresión de valor recibido. Procediéndose, para el despacho y registro dé ellas, con las mismas formalidades establecidas para todas las mercaderías.
+Artículo 126.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

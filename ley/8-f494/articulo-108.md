@@ -1,1 +1,3 @@
-Art. 108.-En cualquier estado en que se encuentre expediente de remate, con tal que no se· haya verificado podráa el dueño ó consignatario recuperar las mercaderías, oblando en el acto la cantidad que adeuda y los gastos causados hasta aquel momento.
+Artículo 108.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

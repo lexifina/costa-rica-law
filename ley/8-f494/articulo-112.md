@@ -1,1 +1,3 @@
-Art. 112.-Si del roconocimiento que de dichas mercaderías mandaré hacer el jefe de la Aduana, resultare que el todo ó parte de ellas fueren inútiles, se pondrá por diligencia, y ordenará su destrucción, la cuál ha de hacerse en presencia del Contador, del Alcaide y de un guarda almacén, quienes firmarán la diligencia en que este hecho aparezca; pero si del reconocimiento anterior resultare que una parte Ó el todo de dichas mercaderías pueden servir para el consumo público,el jefe de la Aduana mandará entregarlas á la Administración del ramo, dando cuenta á Secretaría de Hacienda.
+Artículo 112.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

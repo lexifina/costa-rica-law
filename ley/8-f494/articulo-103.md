@@ -1,5 +1,7 @@
-TÍTULO IV
+TITULO IV
 RECIBO Y DESPACHO DE MERCADERIAS
-CAPÍTULO I
+CAPITULO I
 De los almacenes
-Art. 103-Todas las mercaderías que se desembarquen serán conducidas inmediata y directamente á los almacenes de la nación, para ser depositadas allí, ya para el reembarque ó va para la introducción á la República.
+Artículo 103.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

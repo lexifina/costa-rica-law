@@ -1,1 +1,3 @@
-Art. 130.- Las mercaderías serán conducidas directamente de los almacenes al carro ó carros que deban transportarlas, y concluida la carga se marchamarán los carros y se le cerrará con dos candados, de los cuales conservara una llave el Alcaide y otra el Administrador.
+Artículo 130.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art 521.-Si la medida obtuviere calificación favorable del revisor, o enmendados ya los defectos que éste señale, el Juez la aprobará y mandará que se proceda al valúo del terreno por dos peritos nombrados por el demandante y el representante del Fisco.
+Artículo 521- DEROGADO.
+(Derogado por Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

@@ -1,6 +1,2 @@
-Art 613.-A la Cartera de Beneficencia corresponde:
-1º.-Los hospitales.
-2º.-Los lazaretos.
-3º.-La conquista de las tribus salvajes.
-4º.-El Protomedicato.
-5º.-Los eventuales.
+Artículo 613- DEROGADO.
+(Derogado por la ley Nº 200 de 6 de setiembre de 1945).

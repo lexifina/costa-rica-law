@@ -1,1 +1,3 @@
-Art. 135.- Los que quieran despachar de Limón para la Aduana de Carrillo mercaderías extranjeras que se hallen ya fuera de almacenes ú que desde un principio no estuvieren destinadasá internarse, solicitarán por escrito permiso del Administrador, expresando los bultos que intenten despachar, sus números, marcas y contenido, y el nombre de la persona á quien van destinados.
+Artículo 135.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art 528.-Trascurridos diez y ocho meses desde el día en que se dictó el auto que aprueba el remate, sin que el rematario haya pagado los intereses de la primera anualidad, quedará por el mismo hecho, y sin necesidad de declaratoria especial, sin efecto el remate, y legalmente desierto el denuncio.
+Artículo 528- DEROGADO.
+(Derogado por el artículo 9º de la ley Nº 11 de 22 de octubre de
+1926).

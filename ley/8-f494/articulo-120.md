@@ -1,1 +1,3 @@
-Art. 120.-Los dueños ó consignatarios de las mercaderías destruidas en virtud de lo dispuesto en el artículo anterior, deberán satisfacer el derecho de depósito y el gasto que hubieren ocasionado las misma mercaderías.
+Artículo 120.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art. 60:-Cuando los capitanes de los buques entregaren conocimientos en vez del manifiesto por mayor, deberán acompañar una relación firmada de la carga no comprendida en los conocimientos y del rancho a bordo.
+Artículo 60.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

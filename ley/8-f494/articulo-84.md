@@ -1,2 +1,3 @@
-Art. 84.-Inmediatamente después de concluída la descarga de un buque, el Administrador, de la, Aduana ú otro empleado; nombrado por el mismo Administrador, practicará la visita del buque para averiguar si se encuentran á bordo los bultos manifestados en Transito, ó algunas mercaderías no comprendidas en el manifiesto por mayor.
-Inmediatamente después de concluida la descarga de un buque, el Administrador de la Aduana u otro empleado, nombrado por el mismo Administrador, practicar la visita del buque para averiguar si se encuentran a bordo los bultos manifestados en tránsito, o algunas mercaderías no comprendidas en el manifiesto por mayor.
+Artículo 84.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art 546.-Si de la medida practicada resultare que el interesado posee una extensión de terreno menor que la expresada en el título, no tendrá derecho a reclamo alguno.
+Artículo 546- DEROGADO.
+(Derogado por la Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

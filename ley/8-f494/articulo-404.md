@@ -1,1 +1,8 @@
-Art 404.-Los particulares tienen derecho a pedir respuesta libre de porte, advirtiendo esto en el tenor del parte; pero depositando en la oficina telegráfica cincuenta céntimos para responder por el valor de la contestación.
+Artículo 404- Los particulares pueden dejar cubierto el valor de la
+respuesta a su despacho, a cuyo efecto dirán el número de palabras que
+dejan pagado. Si la respuesta excediere el número indicado, la persona
+que conteste deberá cubrir el valor de la diferencia.
+La persona a quien se dirija un telegrama no firmado con firma
+completa puede pedir, si lo desea, que se le comunique ésta, pero deberá
+pagar previamente el telegrama que con ese fin se le envíe.
+(Así reformado por ley Nº 3 de 26 de octubre de 1929).

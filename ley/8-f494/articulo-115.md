@@ -1,2 +1,3 @@
-Art. 115.-Los Administradores de las Aduanas podrán permitir que los vinos y licores extranjeros envasados en pipas ó en barriles, puedan ser rellenados á presencia de uno de los guarda-almacenes, quienes al pie de la licencia harán constar el resultado de la operación, anotando el número de barriles y pipas
-que hubíeren quedado vacíos, los que podrán extraerse de los almacenes sin causar derecho alguno.
+Artículo 115.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

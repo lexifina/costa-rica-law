@@ -1,1 +1,3 @@
-Art.206.- Uno de los ejemplares de la declaración yla factura original quedan en la Dirección General de Aduanas y el otro y la copia de la factura, autorizada en conformidad con media firma del Alcaide, remitirá al respectivo Administrador de la Aduana de tránsito.
+Artículo 206.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,3 +1,6 @@
-CAPÍTULO III
+CAPITULO III
 Oficina principal
-Art 377.-La oficina principal se hallará en la capital de la República, y tendrá por jefe un telegrafista principal, que será el inmediato superior de todos los empleados, después del Director en Jefe.
+Artículo 377- La oficina principal estará en la capital de la República
+y tendrá dos jefes que se turnarán en el servicio y que tendrán el
+carácter de jefes de tráfico.
+(Así reformado por ley Nº 3 de 26 de octubre de 1929).

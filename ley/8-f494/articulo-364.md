@@ -1,1 +1,3 @@
-Art 364.-Cada fin de mes remitirán las oficinas de correos al Director General, la Correspondencia rezagada. El Director General, en cuanto a la correspondencia que proceda de los países adheridos a la Unión Postal, se ajustará a lo dispuesto en el artículo 362 de esta ley; y respecto a la interior y a la de los países no adheridos a dicha convención, se procederá a su destrucción de la manera siguiente.
+Artículo 364- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

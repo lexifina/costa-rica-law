@@ -1,1 +1,2 @@
-Art 581.-Toda orden de pago visada por los Secretarios de Estado, será presentada al Jefe de Sección para que éste la compare con la lista o presupuesto respectivo, y una vez que la encuentre de conformidad la sellará con el sello en blanco y la pasará, por medio del interesado, al Oficial Mayor de la Secretaría de Hacienda, para que éste recabe el «Páguese» del Ministerio de Hacienda.
+Artículo 581- DEROGADO.
+(Derogado por ley Nº 4 de 7 de abril de 1941).

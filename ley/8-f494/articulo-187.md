@@ -1,1 +1,3 @@
-Art.- 187-En el caso de que el Adminisstrador ó el Contador tuviesen duda sobre la apreciación del Alcaide, ó de que el interesado reclamare contra ella, el Administrador nombrará dos peritos, y cotra lo que aquél resuelva, fundándose en el dictamen de ambos peritos ó de uno de ellos, queda el recurso ante el Juzgado de Hacienda.
+Artículo 187.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

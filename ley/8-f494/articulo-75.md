@@ -1,1 +1,3 @@
-Art. 75.-Los capitanes de los buques deberán remitir nota exacta del número y marca de los bultos de mercaderías que en cada lancha se envian á tierra.
+Artículo 75.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

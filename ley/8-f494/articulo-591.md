@@ -1,1 +1,2 @@
-Art 591.-Cuando se pase al Tenedor de Libros alguna orden de pago a plazo, tomará razón de ella, expresando los pormenores relativos a la orden o letra.
+Artículo 591- DEROGADO.
+(Derogado por la ley Nº 200 de 6 de setiembre de 1945).
