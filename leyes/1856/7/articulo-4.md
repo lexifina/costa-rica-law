@@ -1,0 +1,1 @@
+Art 4°.- Todas las Autoridades de la Provincias, Cantones y Distritos tienen obligación estrecha de proveer de los recursos que necesite el Gobierno para sostener al ejército en la campaña que se prepara, y los pueblos deben proporcionar sin demora las provisiones que les pidan, cualesquiera que sean.
