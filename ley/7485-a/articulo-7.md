@@ -1,0 +1,1 @@
+Artículo 7.- El presente Instrumento queda abierto a la adhesión de las Repúblicas del Istmo Centroamericano que no lo suscriban originalmente, de acuerdo con las normas de los Convenios mediante los cuales se disponga su vinculación a la Integración Económica Centroamericana.

@@ -1,4 +1,6 @@
+(Derogado)
 Nº 3421
+(Esta norma fue derogada por el artículo 8° del Protocolo de Modificación al Código Aduanero Uniforme Centroamericano II, N° 7485 del 6 de abril de 1995)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1º.- Apruébase el Protocolo al Tratado General de Integración Económica Centroamericana "Código Aduanero Uniforme Centroamericano", suscrito el 13 de diciembre de 1963 en la ciudad de Guatemala, y cuyo texto es el siguiente:
@@ -21,4 +23,4 @@ TÍTULO I
 GENERALIDADES
 CAPÍTULO I
 Finalidades
-Artículo 1.- El presente Código Aduanero Uniforme Centroamericano establece las disposiciones básicas de la legislación aduanera común de los países signatarios para la organización de sus servicios aduaneros y la regulación de la administración, conforme a los requerimientos del Mercado Común Centroamericano y de la Unión Aduanera a que se refiere el Artículo I del Tratado General de Integración Económica Centroamericana.
+Artículo 1.- El presente Código Aduanero Uniforme Centroamericano establece las disposiciones básicas de la legislación aduanera común de los países signatarios para la organización de sus servicios aduaneros y la regulación de la administración, conforme a los requerimientos del Mercado Común Centroamericano y de la Unión Aduanera a que se refiere el Artículo I de l Tratado General de Integración Económica Centroamericana.
