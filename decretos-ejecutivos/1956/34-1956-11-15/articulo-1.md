@@ -1,5 +1,5 @@
 (Derogado)
-(Este decreto ejecutivo fue derogado por el artículo 29 de la ley N° 5251 del 11 de julio de 1973. No obstante ha sido afectado por el decreto ejecutivo N° 13570 del 30 de abril de 1982)
+(Este decreto ejecutivo fue derogado por el artículo 29 de la ley N° 5251 del 11 de julio de 1973. No obstante ha sido afectado por los decretos ejecutivos N° 13570 y N° 13571, ambos del 30 de abril de 1982)
 N° 34
 EL PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA
 De conformidad con lo dispuesto por el artículo 4° del Decreto Ejecutivo N° 45 de fecha de 3 de diciembre de 1945, 7 y en uso de la facultad que le brinda el párrafo final del artículo 8° de la Ley General de Terrenos Baldíos N° 13 del 1° de enero de 1939,
@@ -19,5 +19,6 @@ Sur, Quebrada Cebros, Quebrada Pita, Río Brujo y Río Mosca;
 Este, Cerros de Chin, río Mosca; y
 Oeste, división de agua de los afluentes de los Ríos Ceibo y Volcán; luego, un afluente de este último, aguas abajo; camino de Buenos Aires a Salitre en parte; Quebrada Cebros y varios afluentes del río Brujo.
 Este Lote comprende: Ujarrás, Salitre y Cabagra; está situado en la Provincia de Puntarenas.
+(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 13571 del 30 de abril de 1982, se divide la Reserva Indígena de Ujarrás-Salitre-Cabagra, en tres Reservas Indígenas distintas con las denominaciones oficiales de Cabécar de Ujarrás, Bribrí de Salitre y Bribrí de Cabagra y los artículos 2°, 3° y 4° establecen sus delimitaciones correspondientemente).
 LOTE III
 (NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 13570 del 30 de abril de 1982, se derogó el Lote III del presente artículo, el cual establece la Reserva Indígena de China Kicha).
