@@ -1,0 +1,6 @@
+Artículo 3º—Las Comisiones tendrán las siguientes funciones:
+a) Proponer las reformas legales, los cambios institucionales, las coordinaciones y enlaces interinstitucionales y otras acciones pertinentes para incorporar el enfoque de género en la dinámica regular de cada institución y del sector correspondiente.
+b) Dar seguimiento a las políticas, programas y proyectos dirigidos a institucionalizar el enfoque de género.
+c) Elaborar y coordinar la ejecución de un plan de acción estratégico, que establezca plazos y responsables, mecanismos y para que las acciones formen parte en el Plan Anual Operativo (PAO) y cuenten con la debida asignación presupuestaria.
+d) Formular, implementar y evaluar al menos tres acciones estratégicas institucionales para mejorar la situación de las mujeres en el país, que se inscriban como Compromisos de Resultado (CDR) en el Sistema Nacional de Evaluación, SINE.
+e) Instalar mesas de trabajo como mecanismos para conseguir el aporte de la sociedad civil a estos procesos, y en ellas se asegurará la integración y participación de las mujeres en la discusión, resolución y propuesta sobre temas de su interés, con apoyo de las Oficinas de Equidad de Género y de acuerdo a la realidad de cada institución.

@@ -1,0 +1,1 @@
+Artículo 7º—Las comisiones contarán con el apoyo técnico y político necesarios para que la readecuación de los modelos de atención institucional estén impregnados del enfoque de género y para que se conviertan en parte del quehacer cotidiano de las Unidades y Servicios que prestan las instituciones en todo el país.

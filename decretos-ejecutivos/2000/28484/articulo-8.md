@@ -1,0 +1,1 @@
+Artículo 8º—El Consejo de Gobierno se encargará de vigilar el cumplimiento de los avances concretos obtenidos por la comisión durante el período, el cual se podrá realizar mediante informes que serán solicitados a los jerarcas de las instituciones.

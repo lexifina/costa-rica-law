@@ -1,0 +1,1 @@
+Artículo 2º—Estarán integradas por la cantidad, que se determine, de personas funcionarias de las instituciones y que posean facultades para la toma de decisiones estratégicas. Serán nombradas por el o la jerarca de la institución por medio de acuerdo.
