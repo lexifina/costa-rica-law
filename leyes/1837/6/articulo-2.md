@@ -1,0 +1,1 @@
+Art 2°.- La Intendencia General, de toda preferencia, solicitará a comisionara persona inteligente, para que a la mayor posible brevedad haga aquella obra, y llevando cuenta y razón exacto de los gastos necesarios para ella, hará se satisfagan en la Tesorería General.

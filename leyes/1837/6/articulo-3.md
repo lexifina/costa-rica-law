@@ -1,0 +1,1 @@
+Art 3°.- Para la designación del mejor punto es que debe situarse aquel edificio y demás preciso arreglos de la población en el nuevo Puerto, se comisiona al C. Santiago Millet e igualmente para conceder y demarque los primeros solares a los que quieran hacer allí sus casas..
