@@ -1,0 +1,2 @@
+ARTICULO 62.-(Vetado)Los programas del título 107 del Ministerio de Relaciones Exteriores y Culto, 080,-Administración central, y 081,- Servicio Exterior, establecidos por la ley No. 7111 del 12 de diciembre de 1988, así como los mismos programas antes citados de la presente ley, no deberán ser afectados por la ley No. 7106 del 4 de noviembre de 1988, ni por el reglamento No. 19026-P del 31 de mayo de 1989.
+(El presente artículo fue Vetado por la Presidencia de la República el 16 de agosto de 1989. Dicho Veto puede ser consultado al final de la presente norma).

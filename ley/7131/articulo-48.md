@@ -1,0 +1,1 @@
+ARTICULO 48.-Derógase el artículo 71 de la ley No. 6975 del 30 de noviembre de 1984, por cuanto la autorización concedida en dicho artículo resulta contraria al artículo 121, inciso 14, de la Constitución Política.

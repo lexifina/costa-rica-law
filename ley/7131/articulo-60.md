@@ -1,0 +1,2 @@
+ARTICULO 60.-Adiciónase el siguiente párrafo al artículo 52 de la ley No. 7097 del 1 de setiembre de 1988:
+"La aplicación de la presente norma será reglamentada por decreto ejecutivo que deberá ser publicado en un plazo no mayor de tres meses después de la vigencia de la ley (plan de gastos extraordinarios), y en él se contemplarán procedimientos para certificar la donación y fiscalizar la ejecución del gasto.
