@@ -1,0 +1,2 @@
+Transitorio I.- Se autoriza a la Municipalidad de San José, para que una vez cumplidos los fines que establece la presente ley, de construcción de un mercado y una terminal de autobuses, suscriba directamente con los ocupantes actuales, sin sujeción a la Ley de Administración Financiera, los contratos de arrendamiento necesarios para legalizar la ocupación.
+(Así adicionado por el artículo 1° de la ley N° 5319 del 17 de agosto de 1973)
