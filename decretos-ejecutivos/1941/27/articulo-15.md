@@ -1,1 +1,1 @@
-Artículo 15.-En toda reunión ordinaria o extraordinaria, formará quórum la mitad de los miembros inscritos que estén al día en sus cuotas, para lo cual el Tesorero tendrá siempre lista la nómina consiguiente al empezar cada reunión. Se tendrá como presentes a los socios que se hagan representar por carta-poder, no pudiendo cada uno de los asistentes tener la representación de más de diez ausentes.
+Artículo 15.--(Derogado por el artículo 2° del decreto ejecutivo N° 6981 del 13 de abril de 1977)

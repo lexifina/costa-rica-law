@@ -1,1 +1,1 @@
-Artículo 20.-En los cantones con Patronato, la Directiva estará integrada por un Presidente, un Secretario y cinco Vocales propietarios elegidos como 1°, 2°, 3°, 4° y 5°, y tres Vocales suplentes: 1, 2° y 3° . Y en los cantones sin Patronato estará integrada por un Presidente, un Secretario y tres Vocales propietarios y dos suplentes nombrados todos por el Poder Ejecutivo, oído el parecer de la Dirección General de Asistencia y Protección Social.
+Artículo 20.--(Derogado por el artículo 2° del decreto ejecutivo N° 6981 del 13 de abril de 1977)

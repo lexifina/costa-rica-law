@@ -1,1 +1,1 @@
-Artículo 18.-El Presidente y el Secretario de la Junta Directiva desempeñarán esas funciones en las Asambleas Generales. Los Vocales por su orden de nominación los suplirán cuando fuese necesario. La votación de acuerdos en dichas Asambleas ee hará tomando en cuenta las representaciones de los miembros ausentes y se resolverán por mayoría absoluta de los presentes y sus representados.
+Artículo 18.--(Derogado por el artículo 2° del decreto ejecutivo N° 6981 del 13 de abril de 1977)

@@ -1,1 +1,1 @@
-Artículo 11.-Todo miembro de un Patronato será provisto de una tarjeta de identidad; con ella será admitido a las sesiones de asamblea general que se celebren y a los establecimientos que la Junta administra. Este derecho de visita no incluye las salas de cirugía ni los cuartos de pensionistas ni donde se hallen pacientes de enfermedades infecto-contagiosas. De la misma tarjeta de identidad será provisto el delegado de la Dirección General de Asistencia y Protección Social.
+Artículo 11.-(Derogado por el artículo 2° del decreto ejecutivo N° 6981 del 13 de abril de 1977)
