@@ -1,0 +1,1 @@
+Artículo 2°—Se creará por parte del Concejo Municipal una comisión que se llamará “Comisión de Becas”, para que ella se encargue de determinar los favorecidos entre estudiantes que solicitaron beca. La Comisión de Becas informará al Concejo cuales estudiantes fueron los favorecidos, cumpliendo con los requisitos que el presente Reglamento establece.

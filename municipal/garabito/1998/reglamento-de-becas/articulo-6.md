@@ -1,0 +1,1 @@
+Artículo 6°—El becario deberá presentar trimestralmente la fotocopia de la tarjeta de calificación al retirar su cheque para que los miembros de la Comisión de Becas a su vez, informen al Concejo lo que corresponda,
