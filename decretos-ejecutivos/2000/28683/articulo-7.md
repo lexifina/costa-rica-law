@@ -1,0 +1,1 @@
+Artículo 7°—Los jurados conocerán y considerarán todos los trabajos de investigación de los concurrentes, que hayan publicado en el país o en el extranjero, durante los últimos dos años y documentación diversa que le sea remitida por los interesados.

@@ -1,0 +1,1 @@
+Artículo 9°—Los jurados deberá entregar al Ministerio de Cultura, Juventud y Deportes y al Ministerio de Ciencia y Tecnología las actas de los respectivos fallos, la última semana de enero de cada año para otorgar el premio correspondiente al año anterior. Los fallos de los jurados serán inapelables.

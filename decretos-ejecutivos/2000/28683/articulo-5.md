@@ -1,0 +1,1 @@
+Artículo 5°—Para la integración de los jurados, las instituciones en ellos representadas deberán enviar las ternas respectivas, una terna para el jurado del área de investigación científica y otra para el de investigación tecnológica, al Ministerio de Cultura Juventud y Deportes y al Ministerio de Ciencia y Tecnología, a más tardar la tercera semana del mes de enero de cada año.

@@ -1,0 +1,1 @@
+Artículo 8°—La recepción de trabajos estará a cargo del Ministerio de Ciencia y Tecnología y se cerrará el último día hábil del mes de octubre del año que corresponde premiar. Los interesados deberán presentar original y siete copias en idioma español.
