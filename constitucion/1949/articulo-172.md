@@ -1,3 +1,3 @@
-ARTÍCULO 172.- Cada distrito estará representado ante la
-Municipalidad del respectivo cantón por un Síndico propietario y un
-suplente, con voz pero sin voto.
+ARTÍCULO 172.- Cada distrito estará representado ante la municipalidad por un síndico propietario y un suplente con voz pero sin voto.
+Para la administración de los intereses y servicios en los distritos del cantón, en casos calificados las municipalidades podrán crear concejos municipales de distrito, como órganos adscritos a la respectiva municipalidad con autonomía funcional propia, que se integrarán siguiendo los mismos procedimientos de elección popular utilizados para conformar las municipalidades. Una ley especial, aprobada por dos tercios del total de los diputados, fijará las condiciones especiales en que pueden ser creados y regulará su estructura, funcionamiento y financiación.
+(Así reformado por el artículo 1 de la Ley N° 8105 de 31 de mayo del 2001)
