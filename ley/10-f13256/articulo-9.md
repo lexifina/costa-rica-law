@@ -1,0 +1,1 @@
+ARTÍCULO 9°. -A la Secretaría del Culto corresponden: Obispo. -Cabildo Eclesiástico. -Colegio Seminario. -Curia Eclesiástica. -Curato de Puntarenas. - Curato de Esparza. -Curato de Bagaces. -Curato de Orosi. -Curato de Turrialba. -Curato de Tucurrique. -Curato de Boruca. -Curato de Térraba. Curato de Cañas. -Curato de Liberia.-Curato de Golfo Dulce.-Eventuales.

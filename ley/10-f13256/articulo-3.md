@@ -1,0 +1,2 @@
+ARTICULO 3°. -A la Secretaría de Policía corresponden:
+Policía en San José‚. -Policía en Cartago. -Policía en Limón. -Policía en Heredia. -Policía en Alajuela. - Policía en Puntarenas. -Policía en Guanacaste. Policía del Ferrocarril. -Serenos en San José. - Casa de reclusión de mujeres. -Cárcel de hombres. Presidio de San Lucas. -Subsidio a la Policía de San José. -Serenazgo de edificios nacionales. -Eventuales. -Gastos de Oficina en esta Secretaría.
