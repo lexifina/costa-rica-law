@@ -1,0 +1,1 @@
+Artículo 2°—El producto se destinará a cubrir las, subvenciones que el Gobierno se ha obligado a aportar al Instituto Costarricense de Electricidad, al Instituto Nacional de Vivienda y Urbanismo, al Servicio Nacional de Acueductos y Alcantarillado, para el proyecto del Plan Vial, y a satisfacer otros proyectos específicos de desarrollo económico.
