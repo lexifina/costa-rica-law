@@ -14,3 +14,4 @@ Reglamento de Arreglos de Pago de las Operaciones de Crédito.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-11-10 | la propia norma |
+| 2 | 2000-08-07 | Reglamento 3745 (2000-08-07) |
