@@ -1,0 +1,2 @@
+Articulo 6°—Se podrá conceder únicamente una licencia por familia para estos tipos de actividad. En caso de muerte o incapacidad que prive a! concesionario mantener su condición como tal. el cónyuge, compañera (o) o alguno de sus hijos, deberá solicitar una nueva licencia o patente temporal dentro el término de un mes, en caso de mantenerse la actividad comercial siempre y cuando reúna las condiciones que menciona el articulo 4°.
+No se otorgará ni se permitirá, más de una licencia o patente temporal a un mismo núcleo familiar.

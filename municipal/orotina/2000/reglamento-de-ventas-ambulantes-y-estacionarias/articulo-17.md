@@ -1,0 +1,2 @@
+Artículo 17.—El diseño de los puestos, por uniformidad y estética será el que apruebe el Concejo Municipal y será de carácter obligatorio, cuyas dimensiones máximas serán de 75 cm de ancho por uno y medio de largo y cuya altura mínima debe ser de dos metros, incluyendo alero.
+El área ocupa un puesto no podrá ampliarse de ninguna forma ni siquiera con toldos o plásticos o cualquier otro objeto que tienda a la protección del mismo contra la lluvia o luz solar.

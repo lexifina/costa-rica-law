@@ -1,0 +1,1 @@
+Artículo 27.— La Municipalidad de Orotina se reserva el derecho de reubicar los puestos, cuando las condiciones del tránsito o necesidades de los peatones lo ameriten, la construcción de obras nuevas lo requieran y cualquier otra causa ajuicio de la Municipalidad de Orotina.

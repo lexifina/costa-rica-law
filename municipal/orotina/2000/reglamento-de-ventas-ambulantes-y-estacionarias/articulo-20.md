@@ -1,0 +1,1 @@
+Articulo 20.—La ubicación de los puestos estacionarios será de un máximo de ocho por manzana o dos puestos por cuadra, siempre y cuando las condiciones !o permitan a juicio de la Municipalidad de Orotina y el presente Reglamento, sin considerar a los vendedores de chances, lotería, periódicos y revistas.

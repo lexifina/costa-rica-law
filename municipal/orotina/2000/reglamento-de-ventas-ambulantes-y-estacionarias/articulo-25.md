@@ -1,0 +1,1 @@
+Articulo 25.—En caso de caducidad o renuncia de una licencia por cualquier motivo la Municipalidad de Orotina procederá a la adjudicación de la licencia. Entre las solicitudes pendientes de licencia por falla de lugares comerciales para el ejercicio de la actividad.

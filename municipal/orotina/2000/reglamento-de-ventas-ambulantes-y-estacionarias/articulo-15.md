@@ -1,0 +1,1 @@
+Articulo 15.—Los vendedores de lotería y chances, flores, periódicos y revistas, limpiadores de calzado deberán solicitar la respectiva licencia, pero se eximirán de los requisitos del inciso b) del articulo 4°.

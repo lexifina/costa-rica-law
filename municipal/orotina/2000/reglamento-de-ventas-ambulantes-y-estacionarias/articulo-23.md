@@ -1,0 +1,1 @@
+Artículo 23.—Queda terminantemente prohibido la cesión, donación, venta, remate o cualquier forma de traspaso de los puestos estacionarios y ambulantes y sus licencias. Al que se le comprobare tal se le cancelará la licencia.
