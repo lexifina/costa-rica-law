@@ -3,7 +3,7 @@ articulo-2.md
 articulo-3.md
 articulo-4.md
 articulo-4-bis.md
-articulo-4-bis~2.md
+articulo-4-ter.md
 articulo-4-quater.md
 articulo-5.md
 articulo-5-bis.md

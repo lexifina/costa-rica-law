@@ -1,3 +1,4 @@
+(NOTA: Mediante decreto ejecutivo N° 24409 del 13 de junio de 1995, la República de Costa Rica se adhiere al presente Convenio)
 ARTICULO 1.- Aprobación.
 Se aprueban la adhesión de la República de Costa Rica al Convenio
 de París para la Protección de la Propiedad Industrial, del 20 de marzo
