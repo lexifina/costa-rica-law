@@ -1,0 +1,1 @@
+2. La Dirección Ejecutiva, será la encargada de administrar para todos los efectos, trámites y procedimientos el Registro de Proveedores. Para ello implantará la organización que se estime necesaria con el apoyo de los medios tecnológicos y los recursos que garanticen la eficiencia y la eficacia del registro.

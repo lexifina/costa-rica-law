@@ -1,0 +1,3 @@
+15. La Liga de Municipalidades de Guanacaste y Upala, se reserva el derecho de modificar, ampliar o adicionar cualquier otra norma de este Reglamento y para su validez y eficacia bastará con la publicación en el Diario Oficial "La Gaceta".
+En sesión extraordinaria 10-96 de la Liga de Municipalidades del día 17 de octubre de 1996, celebrada en Cañas, Guanacaste se acordó en firme y definitivamente. El Reglamento de Inscripción en el Registro de Proveedores de la Liga de Municipalidades de Guanacaste y que se publique en "La Gaceta". Dicho acuerdo aparece en el Acta 10-96 en el artículo 11: Asuntos varios y punto 2.
+Cañas, Guanacaste, 4 de noviembre de 1996.
