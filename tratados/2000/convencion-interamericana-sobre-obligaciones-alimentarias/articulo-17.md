@@ -1,0 +1,2 @@
+Artículo 17
+Las resoluciones interlocutorias y las medidas provisionales dictadas en materia de alimentos, incluyendo aquellas dictadas por los jueces que conozcan de los procesos de nulidad, divorcio y separacion de cuerpos, u otros de naturaleza similar a estos, ser n ejecutadas por la autoridad competente aun cuando dichas resoluciones o medidas provisionales estuvieran sujetas a recursos de apelacion en el Estado donde fueron dictadas.

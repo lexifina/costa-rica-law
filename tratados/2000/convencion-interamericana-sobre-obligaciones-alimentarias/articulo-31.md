@@ -1,0 +1,2 @@
+Artículo 31
+La presente Convencion entrar en vigor el trigésimo día a partir de la fecha en que haya sido depositado el segundo instrumento de ratificacion. Para cada Estado que ratifique la Convencion o se adhiera a ella despues de haber sido depositado el segundo instrumento de ratificacion, la Convencion entrar en vigor el trigesimo dia a partir de la fecha en que tal Estado haya depositado su instrumento de ratificacion o adhesion.

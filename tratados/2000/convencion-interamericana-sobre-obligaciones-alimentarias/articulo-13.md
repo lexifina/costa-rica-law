@@ -1,0 +1,2 @@
+Artículo 13
+El control de los requisitos anteriores corresponder directamente al juez que deba conocer de la ejecucion, quien actuar en forma sumaria, con audiencia de la parte obligada, mediante citacion personal y con vista al Ministerio Publico, sin entrar en la revision del fondo del asunto. En caso de que la resolucion fuere apelable, el recurso no suspender las medidas provisionales ni el cobro y ejecucion que estuvieren en vigor.

@@ -1,0 +1,2 @@
+Artículo 29
+Entre los Estados Miembros de la Organizacion de los Estados Americanos que fueren Partes de esta Convencion y de las Convenciones de La Haya del 2 de octubre de 1973 sobre Reconocimiento y Eficacia de Sentencias relacionadas con Obligaciones Alimentarias para Menores y sobre la Ley Aplicable a Obligaciones Alimentarias, regir la presente Convencion. Sin embargo, los Estados Parte podr n convenir entre ellos de forma bilateral la aplicacion prioritaria de las citadas Convenciones de La Haya del 2 de octubre de 1973.

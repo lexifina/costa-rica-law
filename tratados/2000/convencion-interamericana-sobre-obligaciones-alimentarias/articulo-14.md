@@ -1,0 +1,2 @@
+Artículo 14
+Ningun tipo de caucion será exigible al acreedor de alimentos por la circunstancia de poseer nacionalidad extranjera, o tener su domicilio o residencia habitual en otro Estado. El beneficio de pobreza declarado en favor del acreedor en el Estado Parte donde hubiere ejercido su reclamacion, ser reconocido en el Estado Parte donde se hiciere efectivo el reconocimiento o la ejecucion. Los Estados Parte se comprometen a prestar asistencia judicial gratuita a las personas que gocen del beneficio de pobreza.

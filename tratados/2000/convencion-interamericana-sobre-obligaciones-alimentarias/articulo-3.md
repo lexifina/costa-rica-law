@@ -1,0 +1,2 @@
+Artículo 3
+Los Estados al momento de suscribir, ratificar o adherir a la presente Convencion, asi como con posterioridad a la vigencia de la misma, podran declarar que esta Convencion se aplicar a las obligaciones alimentarias en favor de otros acreedores; asimismo, podran declarar el grado de parentesco u otros vinculos legales que determinen la calidad de acreedor y deudor de alimentos en sus respectivas legislaciones.

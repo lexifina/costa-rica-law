@@ -1,0 +1,2 @@
+Artículo 32
+La presente Convencion regirá indefinidamente, pero cualquiera de los Estados Parte podrá denunciarla. El instrumento de denuncia ser depositado en la Secretaria General de la Organizacion de los Estados Americanos. Transcurrido un año, contado a partir de la fecha de deposito del instrumento de denuncia, la Convencion cesar en sus efectos para el Estado denunciante, quedando subsistente para los demas Estados Parte.
