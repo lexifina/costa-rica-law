@@ -1,0 +1,1 @@
+Artículo 24.-El Secretario del Consejo Nacional Forestal deberá presentar la agenda con anterioridad a sus miembros junto con todo el material requerido, dicha agenda tendrá un capítulo para mociones de los directivos.

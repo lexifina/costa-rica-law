@@ -1,0 +1,1 @@
+Artículo 125.-Serán separados de sus cargos, sin responsabilidad de ninguna índole para el Estado, los funcionarios de la Dirección General Forestal y autoridades, que contravengan las disposiciones de la ley y del presente Reglamento, o que amparen actos o acciones que vayan en perjuicio de las finalidades establecidas por la misma.

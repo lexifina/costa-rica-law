@@ -1,0 +1,1 @@
+Artículo 126.-Los funcionarios que están bajo el Régimen de Servicio Civil, que contravengan las disposiciones de la ley y de este Reglamento, serán separados de sus cargos, siguiendo los trámites en el Estatuto de Servicio Civil y su reglamento.

@@ -1,0 +1,1 @@
+Artículo 33.-Para el decomiso de vehículos, instrumentos, armas y utensilios, los funcionarios de la Dirección General Forestal que estén investidos de autoridad deben proceder conforme a lo que establece el artículo 13 de la Ley Forestal.

@@ -1,0 +1,1 @@
+Artículo 29.-Los gastos en que incurra el Consejo Forestal Nacional en desempeño de sus funciones serán cubiertos por el Ministerio de Agricultura y Ganadería siempre que cuente con la aprobación de la Dirección General Forestal.

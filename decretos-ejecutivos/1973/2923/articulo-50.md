@@ -1,0 +1,2 @@
+Artículo 50.-EI impuesto general será tasado por las empresas (aserraderos, establecimientos industriales y cualquier otra empresa destinataria de la madera), al momento de recibir las respectivas trozas, mediante la cancelación de los timbres correspondientes en la "Guía de Transportes de Productos Forestales".
+Entendiéndose por cancelación al pagar al original de la guía, firmar y sellar los timbres correspondientes.

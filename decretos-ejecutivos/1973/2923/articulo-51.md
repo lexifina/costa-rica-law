@@ -1,0 +1,1 @@
+Artículo 51.-Se declara a las empresas mencionadas en el inciso k) del artículo 50 como legalmente responsables por cualquier irregularidad e insuficiencia en la tasación, cobro y cancelación de timbres.

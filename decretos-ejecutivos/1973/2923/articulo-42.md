@@ -1,0 +1,1 @@
+Artículo 42. -A partir de la vigencia del decreto que crea un parque nacional, reserva forestal u otros similares, la Dirección General Forestal notificará, mediante acta notarial a los propietarios u ocupantes en precario, la suspensión de los trabajos que estuvieren realizando en sus respectivas propiedades, incluidas según el decreto.

@@ -1,0 +1,1 @@
+Artículo 3°-La Dirección General Forestal dictará las medidas que considere pertinentes, las cuales serán publicadas a través de Decretos Ejecutivos con miras a salvaguardar las especies animales y vegetales que se encuentren en peligro de extinción o por las que se tenga algún interés especial en su protección.

@@ -1,0 +1,1 @@
+Artículo 15.-De acuerdo con el artículo 14 de la Ley Forestal, en el Ministerio de Agricultura y Ganadería funcionará un Consejo Forestal Nacional, como organismo asesor del Poder Ejecutivo en lo referente a la protección, aprovechamiento, conservación y fomento de los recursos forestales.

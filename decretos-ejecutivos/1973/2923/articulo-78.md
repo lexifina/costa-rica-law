@@ -1,0 +1,1 @@
+Artículo 78.-El monto de este depósito estará de acuerdo a lo establecido en la nota previa que el Inspector Forestal le entregue y en la que se establece el nombre del concesionario, localización de la finca y el detalle de la medición de la madera. Copia de esta notificación será enviada al Departamento de Aprovechamientos Forestales.

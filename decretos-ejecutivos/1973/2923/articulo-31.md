@@ -1,0 +1,1 @@
+Artículo 31.-Conforme a la política Agropecuaria Forestal del Ministerio de Agricultura y Ganadería, la Dirección General Forestal descentralizará su acción en regiones forestales, de acuerdo con el establecimiento de los Centros Agrícolas Regionales.

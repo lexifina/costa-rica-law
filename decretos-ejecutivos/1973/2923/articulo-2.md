@@ -1,0 +1,1 @@
+Artículo 2°-Para los efectos de este Reglamento se entiende por "uso múltiple de los recursos naturales renovables", la administración técnica basada en el aprovechamiento de los diferentes recursos, en una combinación tal, que satisfaga las necesidades de la nación sin menoscabo de los mismos.

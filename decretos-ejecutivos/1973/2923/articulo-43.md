@@ -1,0 +1,1 @@
+Artículo 43. -Para dar cumplimiento a lo que estatuye el artículo 28 de Ley Forestal los organismos de la Administración Pública deberán solicitar al Ministerio de Agricultura y Ganadería la clasificación de los terrenos rurales a su cargo.

@@ -1,0 +1,1 @@
+Artículo 70.-Una vez otorgada la concesión, los trabajos deben iniciarse la siguiente manera: corto plazo, al mes siguiente; mediano plazo, los primeros tres meses después y largo plazo, dentro de un año después.

@@ -1,0 +1,1 @@
+Artículo 18.-La Directiva del Consejo se integrará en la primera sesión de cada año y estará constituida por un Presidente que será el Ministro de Agricultura y Ganadería o su representante, un Vicepresidente y un Secretario; los demás miembros serán vocales. Cualquier miembro de la Directiva, podrá ser reelecto en sus funciones.

@@ -1,0 +1,1 @@
+Artículo 74.-Previo al establecimiento de todo contrato para aprovechamientos forestales, debe dictarse una resolución firmada por el Jefe del Departamento de Aprovechamientos Forestales en el caso de que se trate de un “permiso" o "concesión" a corto plazo.

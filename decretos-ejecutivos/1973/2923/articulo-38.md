@@ -1,0 +1,1 @@
+Artículo 38.-Para el traspaso de terrenos de aptitud agrícola al Instituto de Tierras y Colonización se seguirán las normas establecidas en los respectivos convenios, y se hará mediante Decreto Ejecutivo, así como cuando se trate de traspaso de tierras a otras entidades.

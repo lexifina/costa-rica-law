@@ -1,0 +1,1 @@
+Artículo 6°-Con el fin de conservar e incrementar la fauna silvestre se seguirán las disposiciones contenidas en la legislación respectiva así como las recomendaciones técnicas del Departamento de Pesca y Vida Silvestre.

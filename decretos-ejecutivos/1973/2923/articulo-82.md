@@ -1,0 +1,1 @@
+Artículo 82.-Los permisos para explotación de carbón se darán únicamente en áreas que hayan sido concedidas para explotación de la madera con el fin de que para la elaboración del carbón se utilice los residuos de la madera.

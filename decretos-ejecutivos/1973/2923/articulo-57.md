@@ -1,0 +1,1 @@
+Artículo 57. -La exención del impuesto a que se refiere el inciso e) del articulo 32 de la Ley Forestal , se hará efectiva siempre que se trate de mejoras que contribuyan a la producción agropecuaria de la finca. Para el cumplimiento de esta disposición se solicitará a la Dirección General Forestal, por escrito la correspondiente exención.

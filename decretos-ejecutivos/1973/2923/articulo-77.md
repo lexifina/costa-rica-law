@@ -1,0 +1,1 @@
+Artículo 77.-Para el pago de los derechos forestales (por área y volumen) el beneficiario, una vez medida su madera, o cualquier otra clase de producto forestal, deberá hacer el correspondiente depósito en la Cuenta del Fondo Forestal, en uno de los Bancos del Sistema Bancario Nacional.

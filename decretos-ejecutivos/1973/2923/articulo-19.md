@@ -1,0 +1,1 @@
+Artículo 19.-En ausencia del Presidente y Vicepresidente se nombrará un Presidente ad-hoc. En ausencia con permiso, de uno de los representantes permanentes la entidad representada enviará nota al Ministerio comunicando el nombre del sustituto quien fungirá mientras dure la ausencia del titular.

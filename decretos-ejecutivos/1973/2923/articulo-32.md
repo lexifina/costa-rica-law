@@ -1,0 +1,1 @@
+Artículo 32. -Todo funcionario de la Dirección General Forestal, para ser investido de autoridad, deberá hacer la correspondiente solicitud ante la Dirección General Forestal, la que a su vez la remitirá al Director de la Guardia de Asistencia Rural, para su trámite.

@@ -1,0 +1,1 @@
+Artículo 40.-Cuando se trata de calificar áreas mayores de 100 hectáreas su traspaso al Instituto de Tierras y Colonización, se debe solicitar el asesoramiento por lo menos de dos técnicos de manejo o uso de suelos del Ministerio de Agricultura y Ganadería. La decisión final contemplará las opiniones de los técnicos del Instituto de Tierras y Colonización.

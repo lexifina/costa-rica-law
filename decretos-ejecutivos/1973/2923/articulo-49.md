@@ -1,0 +1,1 @@
+Artículo 49.-EI impuesto general se recaudará por medio de timbres forestales, los que serán emitidos por el Banco Central de Costa Rica, con los siguientes valores: ¢ 0.05, ¢ 0.10, ¢ 0.25, ¢ 0.50, ¢1.00, ¢ 2.00, ¢ 5.00, ¢ 10.00, ¢20.00, ¢50.00 y ¢ 100.00.

@@ -1,0 +1,1 @@
+Artículo 17.-Los miembros que integrarán el Consejo Forestal Nacional escogidos por el señor Ministro de Agricultura y Ganadería de temas enviadas por las Instituciones representadas y fungirán por un período de dos años pudiendo ser reelectos.

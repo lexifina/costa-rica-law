@@ -1,0 +1,1 @@
+Artículo 129.-Al reincidente específico por delito cometido contra las disposiciones de la ley o de este Reglamento, se le impondrá por la primera reincidencia la pena en el máximo, y por la segunda y demás, en el extremo mayor.

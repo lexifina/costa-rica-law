@@ -1,0 +1,1 @@
+Artículo 79. -La tramitación de todo permiso de aprovechamiento de cáscara de mangle, palmito, carbón, o leña y otros se sujetará a lo dispuesto en los incisos a), b), c), d), e) y f) del artículo 60 y lo establecido en los artículos 61 y 62 de este Reglamento.

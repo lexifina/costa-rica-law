@@ -1,0 +1,1 @@
+Artículo 22.-El Consejo Forestal Nacional se reunirá bimestralmente en sesión ordinaria y extraordinariamente cuando sea convocado por su Presidente, Dirección General Forestal o cuatro de sus miembros. El quórum se formará por cuatro miembros.

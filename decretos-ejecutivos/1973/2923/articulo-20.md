@@ -1,0 +1,1 @@
+Artículo 20.-Dejará de ser miembro del Consejo Forestal Nacional, el que falta a dos sesiones consecutivas sin justa causa. El Presidente del Consejo Nacional pedirá a la Institución respectiva que envíe la terna para el nombramiento del sustituto.

@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 2923
+
+Reglamento Ley Forestal
+
+- Tipo: Decreto Ejecutivo
+- Número: 2923
+- Fecha: 1973-01-22
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 76 del 1973-04-24, Alcance 47
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=18955&param2=20217&param3=1 (ficha 18955)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1973-04-24 | la propia norma |

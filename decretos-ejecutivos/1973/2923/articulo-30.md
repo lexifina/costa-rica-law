@@ -1,0 +1,1 @@
+Artículo 30.-Para una mejor administración de los recursos forestales del país, el Ministerio de Agricultura y Ganadería contará con la ayuda de otros organismos nacionales, provinciales y municipalidades, quienes prestarán su colaboración cuando así se requiera.

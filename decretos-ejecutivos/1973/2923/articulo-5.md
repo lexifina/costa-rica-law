@@ -1,0 +1,1 @@
+Articulo 5°-Para la adquisición de bosques y terrenos forestales, así como para cumplir con los fines que persigue la Ley Forestal , la Dirección General Forestal, en representación del Ministerio de Agricultura y Ganadería gestionara la adquisición directa de los terrenos que sean necesarios mediante compra expropiación de acuerdo a las leyes vigentes.

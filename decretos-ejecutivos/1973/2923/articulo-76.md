@@ -1,0 +1,1 @@
+Artículo 76.-Tanto la caducidad de la concesión o del permiso, como la retención de la totalidad de la garantía serán declaradas por el Director General Forestal basado en el informe del Departamento de Aprovechamientos Forestales, previa notificación y audiencia de las partes interesadas.

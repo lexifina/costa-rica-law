@@ -1,0 +1,1 @@
+Artículo 52.-EI incumplimiento de la disposición del artículo 51 será penado de acuerdo con lo que establece la Ley Forestal en el capítulo de infracciones, sanciones y procedimientos o bien las penas previstas por el Código Fiscal.

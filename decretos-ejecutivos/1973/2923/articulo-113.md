@@ -1,0 +1,1 @@
+Artículo 113.-Una vez concedido el permiso para las instalaciones de industria e iniciadas las operaciones, el concesionario deberá presentar un informe mensual a la Dirección General Forestal que incluya cantidad y especies de productos forestales.

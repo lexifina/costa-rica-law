@@ -1,0 +1,1 @@
+Artículo 128.-Las infracciones indicadas en el presente Reglamento, se consideran delitos y su juzgamiento corresponde a los Alcaldes o Jueces, de acuerdo con lo dispuesto en el Código Penal y la Ley Orgánica del Poder Judicial.

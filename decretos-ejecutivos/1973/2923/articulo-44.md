@@ -1,0 +1,1 @@
+Artículo 44.-Para delegar en otras instituciones del Estado la administración de parte de su patrimonio forestal, la Dirección General Forestal deberá establecer un convenio o acuerdo escrito en el cual se especifique duración, área, beneficios y descripción del inmueble. Se podrá hacer inspecciones varias o cancelar los términos del contrato cuando éste sea contravenido.
