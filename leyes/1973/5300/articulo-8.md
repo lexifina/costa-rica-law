@@ -1,0 +1,1 @@
+Artículo 8°—La Dirección General Forestal del Ministerio de Agricultura y Ganadería podrá cobrar tarifas de admisión al Monumento y de uso de sus instalaciones. Igualmente podrá recibir los ingresos que deban pagar los concesionarios en base de los contratos respectivos. Estos ingresos pasarán a formar parte del Fondo Forestal.

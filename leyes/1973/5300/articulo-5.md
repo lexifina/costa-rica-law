@@ -1,0 +1,1 @@
+Artículo 5°—La Dirección General Forestal del Ministerio de Agricultura y Ganadería gestionará la adquisición de terrenos particulares, vecinos al Monumento, que sean necesarios para incorporar al mismo áreas de interés científico, histórico, arqueológico o escénico, o para lograr una mejor protección de los recursos del Monumento.
