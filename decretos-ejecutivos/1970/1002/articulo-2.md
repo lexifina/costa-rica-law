@@ -1,0 +1,1 @@
+Artículo 2°-Se ratifican todos los movimientos de personal, resoluciones y actos administrativos dictados por el Ministerio de Seguridad Pública a partir de las doce horas del día 8 de mayo próximo pasado hasta hoy y que han afectado la Inspección General de Hacienda Fiscal.
