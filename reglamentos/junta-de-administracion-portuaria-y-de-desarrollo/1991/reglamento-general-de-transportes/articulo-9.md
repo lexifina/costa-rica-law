@@ -1,0 +1,2 @@
+Artículo 9°—Queda terminantemente prohibido utilizar los vehículos de uso administrativo fuera de las jornadas ordinarias de trabajo, sin el correspondiente permiso escrito.
+El incumplimiento de la disposición comprendida en el presente artículo acarreará la suspensión del cargo que ocupa el funcionario infractor y en caso de reincidencia, la separación definitiva de su parte sin responsabilidad patronal.

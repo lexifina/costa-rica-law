@@ -1,0 +1,2 @@
+Artículo 3°—Se entiende por vehículo discrecional aquellos asignados a funcionarios de nivel gerencial, es decir, aquellos que ocupen un nivel jerárquico superior dentro de la Institución, quienes podrán hacer uso de los mismos para el mejor cumplimiento de las funciones propias de su cargo. Dichos vehículos estarán sujetos al presente reglamento en lo que les resulte aplicable (obligaciones) así como a los deberes de los conductores, asignación de combustible, normas relativas a accidentes de tránsito, etc.
+Estos vehículos circulan con placas particulares.

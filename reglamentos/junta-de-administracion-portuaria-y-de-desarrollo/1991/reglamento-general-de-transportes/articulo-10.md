@@ -1,0 +1,1 @@
+Artículo 10.—Para circular fuera de las horas de jornada ordinaria de trabajo en vehículos de uso administrativo, el conductor debe portar autorización escrita (Fórmula de permiso de circulación) específica para el caso, la cual no podrá ser de carácter permanente y deberá ser firmada por el gerente respectivo.

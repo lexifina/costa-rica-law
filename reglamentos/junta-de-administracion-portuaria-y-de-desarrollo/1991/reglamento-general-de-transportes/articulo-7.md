@@ -1,0 +1,1 @@
+Artículo 7°—Excepto los vehículos de uso discrecional, todos los vehículos que se encuentran al servicio de la Institución deberán portar en un lugar visible el logotipo de JAPDEVA, placas oficiales, la leyenda "Solo para uso oficial" y además deberán estar pintados con los colores distintivos de la Institución.

@@ -1,0 +1,1 @@
+Artículo 18.—Antes de realizar cada gira se deberá tomar las previsiones necesarias a fin de contar con el combustible suficiente en el tanque del vehículo para todo el recorrido. No se permitirá el retiro de combustible en pichingas u otros recipientes.

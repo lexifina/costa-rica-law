@@ -1,0 +1,1 @@
+Artículo 5°—Se considerarán vehículos de uso administrativo todos aquellos que se mantienen bajo la custodia y administración de la Sección" de Transportes (Portuario y Desarrollo), para solventar las necesidades de transporte en las diferentes dependencias de la Institución.

@@ -1,0 +1,1 @@
+Artículo 8°—Cuando los vehículos no estén prestando servicios durante las horas no hábiles y días feriados, deberán permanecer en las instalaciones de JAPDEVA, para tal efecto cada gerencia deberá definir claramente el lugar donde se concentren los vehículos, a fin de poder ejercer el control y vigilancia de los mismos.
