@@ -14,3 +14,4 @@ Reglamento para el Uso de Espacios de Estacionamiento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-12-27 | la propia norma |
+| 2 | 1999-12-27 | Ley 7 |
