@@ -1,0 +1,1 @@
+Artículo 2°—El objetivo primordial de esta área será la protección del suelo, de las cuencas hidrológicas, las maderas y otros productos del bosque, con énfasis en la regulación del régimen hidrológico.
