@@ -1,0 +1,1 @@
+Art 5°.- Se exigirá a demás con el mismo destino dos reales por cada trapiche que esté en uzo, dos reales mensuales por cada estanquillo o venta de aguardiente y medio real por cada mesa, o tienda de venta de ropa en los días de mercados.
