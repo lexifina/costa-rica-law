@@ -1,0 +1,2 @@
+Artículo 26.—Del procedimiento para proceder a suspender la visita.
+De presentarse alguna causa de las contempladas en este reglamento que ameriten suspender el ingreso de una persona en calidad de visitante, la oficina que se encargue de los asuntos comunitarios, rendirá ante la Dirección del Centro un informe indicando los motivos por los que la suspensión resulta aplicable, ante lo que se determinará la procedencia de la suspensión, garantizando de previo el debido proceso a los interesados.
