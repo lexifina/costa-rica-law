@@ -1,0 +1,1 @@
+Art. 3. Si se averiguase que el que recibe alguna moneda falsa, no la inutiliza en el acto, y la devuelve ó pasa á otra mano, incurrirá en la multa del tres tantos en favor del fondo de propios respectiva---Dado en la ciudad de San José, á los once djas del mes de noviembre de mil ochocientos cincuenta.”
