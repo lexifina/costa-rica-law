@@ -1,0 +1,9 @@
+Artículo 22.- Dentro de sus respectivas órbitas de acción, las
+Direcciones Generales deberán estimular y fomentar las organizaciones y
+servicios asistenciales y de bienestar para la madre y el niño, el
+magisterio nacional, los jóvenes y adultos, etc. Con tal objeto se
+interesarán por la instalación de comedores, roperos, clínicas y
+botiquines, colonias veraniegas, campamentos de reposo, seguro y ahorro,
+bibliotecas, campos de trabajo, centros cívicos, hogares para niños
+abandonados, cines, servicio médico dental y toda clase de actividad que
+tienda a mejorar las condiciones de vida de estos grupos sociales.
