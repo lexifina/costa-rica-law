@@ -1,0 +1,1 @@
+Artículo 6°-Los funcionarios que deban prestar servicio en los centros penitenciarios el día de las elecciones, no podrán ser nombrados como miembros de las juntas receptoras de votos que se instalen en éstos.

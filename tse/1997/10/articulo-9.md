@@ -1,0 +1,1 @@
+Artículo 9°--Las personas a las que se refiere el artículo anterior, que en virtud de sus funciones deban ingresar a las juntas electorales ubicadas en los centros penitenciarios, deberán observar y respetar las medidas de seguridad y directrices generales que giren las autoridades respectivas.

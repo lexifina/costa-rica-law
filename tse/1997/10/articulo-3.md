@@ -1,0 +1,1 @@
+Artículo 3°-El Ministerio de Justicia deberá coadyuvar con el Tribunal Supremo de Elecciones en la designación de los lugares idóneos para la instalación de la junta o juntas receptoras de votos dentro de los centros penitenciarios. comprometiéndose a que esos lugares cuenten con las medidas de seguridad apropiadas para el adecuado funcionamiento de las juntas.

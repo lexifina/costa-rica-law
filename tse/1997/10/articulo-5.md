@@ -1,0 +1,1 @@
+Artículo 5°-Compete en forma exclusiva a los funcionarios responsables del Ministerio de Justicia establecer las medidas de seguridad que crean oportuno y conveniente mantener en la comparecencia de las personas privadas de libertad a emitir el voto, pero tales medidas en modo alguno pueden lesionar el derecho fundamental de éstos al secreto de su voto.

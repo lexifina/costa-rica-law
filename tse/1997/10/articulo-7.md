@@ -1,0 +1,1 @@
+Artículo 7°-Los partidos políticos tienen derecho a realizar propaganda político-electoral dentro de los centros penitenciarios, pero respetando las directrices que sobre el particular les gire la autoridad responsable de cada uno de éstos, quien está obligada a dar igualdad de trato y de oportunidades a todos los partidos políticos.
