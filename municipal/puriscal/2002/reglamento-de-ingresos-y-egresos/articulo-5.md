@@ -1,0 +1,3 @@
+TÍTULO 3
+Egresos
+Artículo 5º—Todos los egresos por la adquisición de bienes y servicios se tramitarán por medio de orden de compra, obligatoriamente, acatando lo dispuesto en la Ley de Contratación Administrativa Nº 7794 y su Reglamento, con excepción de los siguientes: Salarios y otras remuneraciones de los funcionarios de la institución, dietas a regidores, gastos de energía eléctrica, teléfono, servicio de telemática o similares, alquileres, transferencias hechas a entidades según leyes específicas, los cancelados a través del fondo de caja chica, retenciones a empleados y aportes obligatorios de la institución, pago de la deuda municipal (amortización e intereses), comisiones bancarias, pago de pensiones, devoluciones.

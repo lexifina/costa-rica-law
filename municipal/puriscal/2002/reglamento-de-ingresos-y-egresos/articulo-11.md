@@ -1,0 +1,1 @@
+Artículo 11.—Retenciones a empleados y aportes legales de la Institución: Su pago se hará con base en la orden de pago, elaborada por la Alcaldía Municipal, adjuntándose la documentación de respaldo correspondiente. No se requerirá de acuerdo de pago por parte del Consejo.

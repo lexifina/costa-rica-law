@@ -1,0 +1,1 @@
+Artículo 22.—Este Reglamento constituye un capítulo del Manual de Procedimiento relativas a los asuntos financieros contables de la Municipalidad de Puriscal y rige a partir de su publicación en el Diario Oficial La Gaceta.

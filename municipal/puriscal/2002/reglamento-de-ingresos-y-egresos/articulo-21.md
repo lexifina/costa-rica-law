@@ -1,0 +1,1 @@
+Artículo 21.—Los sistemas de pago, establecidos en este Reglamento, podrán ser adecuados por la Administración Municipal, cuando se establezcan medios de pagos electrónicos, siempre que se mantengan los controles adecuados.
