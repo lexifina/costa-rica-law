@@ -1,0 +1,1 @@
+Art. 4. El presente Decreto se pondrá en conocimiento de la Asamblea tan luego como se reuna. –Dado en San José, á 19 de Mayo de 1842. – Francisco Morazan. – Al Ministro general del Despacho Sr. General José Miguel Saravia.

@@ -1,0 +1,1 @@
+Art. 2. Queda en consecuencia en todo su vigor y fuerza la ordenanza general del Ejército, sobre el modo de conocer y sentenciar las causas civiles y criminales de los individuos que gozan el fuero de guerra.
