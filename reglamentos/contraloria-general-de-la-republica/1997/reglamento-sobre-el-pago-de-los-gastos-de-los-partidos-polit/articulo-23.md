@@ -1,0 +1,1 @@
+Artículo 23.—Se reconocerán los gastos de viaje y de transporte dentro del país (viáticos) a los partidos políticos, siempre que en su trámite se cumplan las disposiciones del "Reglamento de gastos de viaje y de transporte para funcionarios públicos", emitido por la Contraloría General de la República, en cuanto sean aplicables.

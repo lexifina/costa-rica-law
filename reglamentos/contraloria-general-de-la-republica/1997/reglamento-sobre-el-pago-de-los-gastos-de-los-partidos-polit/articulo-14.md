@@ -1,0 +1,1 @@
+Artículo 14.—Para el reconocimiento de los gastos con cargo al aporte estatal, el partido deberá cancelar esos montos por medio de una cuenta corriente bancaria, excepto los que correspondan pagar por caja chica, de conformidad con lo establecido en el artículo 20, inciso b) de este Reglamento.

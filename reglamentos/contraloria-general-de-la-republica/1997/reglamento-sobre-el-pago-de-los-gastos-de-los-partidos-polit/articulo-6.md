@@ -1,0 +1,1 @@
+Artículo 6°—Los partidos políticos deberán informar, 7 meses antes del día de las elecciones, a la Contraloría General de la República, mediante certificación del Registro Civil, sobre la integración de su Comité Ejecutivo Nacional o Provincial, así como sobre cualquier modificación del mismo.

@@ -1,0 +1,1 @@
+Artículo 19.—Tanto los justificantes como los comprobantes deben presentarse sin alteraciones, borrones, raspaduras o cualquier otro elemento que dé lugar a dudas sobre su autenticidad y procedencia o a interpretaciones erróneas.

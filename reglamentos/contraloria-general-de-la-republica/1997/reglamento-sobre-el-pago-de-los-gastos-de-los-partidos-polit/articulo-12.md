@@ -1,0 +1,1 @@
+Artículo 12.—El presupuesto de los partidos políticos deberá incluir únicamente gastos enmarcados dentro de los conceptos de organización , dirección, censo y propaganda, desglosados de acuerdo con las subcuentas establecidas en el Manual de Cuentas dictado por la Contraloría General de la República. (Ver Anexo 1).
