@@ -14,3 +14,4 @@ Reglamento de la Biblioteca Municipal de Santo Domingo de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-01-22 | la propia norma |
+| 2 | 1996-12-06 | Reglamento municipal 103 (1996-12-06) |
