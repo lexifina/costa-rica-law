@@ -1,0 +1,1 @@
+Art. 4-Queda autorizado el Poder Ejecutivo para hacer en los diferentes ramos y oficinas de su absoluta dependencia y dentro del círculo de sus facultades, las economías y modificaciones que creyere indispensables; pero en ningún caso podrá exceder el gasto presupuesto para cada Cartera.
