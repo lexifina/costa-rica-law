@@ -1,0 +1,1 @@
+Artículo 7°—El funcionario que apruebe el pago de gastos de representación contraviniendo las disposiciones establecidas en este reglamento estará sujeto a la Responsabilidad Civil , Penal y Disciplinaria del Servidor, en cuanto resulten aplicables.

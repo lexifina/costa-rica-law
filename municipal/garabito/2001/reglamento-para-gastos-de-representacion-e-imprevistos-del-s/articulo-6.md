@@ -1,0 +1,1 @@
+Articulo 6o- Si por dolo o culpa grave el ejecutante del gasto consigue datos falsos en la documentación relacionada con el cobro de este tipo de gastos, se aplicará lo dispuesto en los regímenes de responsabilidad Civil, Penal y Disciplinaria del Servidor, cu cuanto resulten aplicables.
