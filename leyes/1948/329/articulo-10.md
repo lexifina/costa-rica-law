@@ -1,2 +1,0 @@
-Articulo 10. -Las penas contempladas en este Decreto-Ley se harán efectivas siguiendo el procedimiento establecido en el Titulo Segundo, Capitulo Único, el Libro Quinto del Código de Procedimientos Penales, que se refiere al juzgamiento de faltas de policía.
-Dado en el Salón de Sesiones de la Junta Fundadora de la Segunda República. -San José, a los veintinueve días del mes de diciembre de mil novecientos cuarenta y ocho.-
