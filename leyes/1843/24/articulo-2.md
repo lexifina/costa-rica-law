@@ -1,0 +1,1 @@
+Art. 2. En el caso del artículo anterior, no es necesaria la firma del escritor, si no para cubierto de la imprenta, quedando así reformado el artículo 474 de la 2° parte del Código general; pero cuando se haya planteado el nuevo orden constitucional, será del todo insubsistente dicho artículo.
