@@ -1,0 +1,2 @@
+Artículo 11.- Todos los escolares deberán, durante el período de su enseñanza primaria, preparar un trabajo sobre reforestación o análisis de los beneficios del bosque. En las escuelas rurales el trabajo deberá ser práctico e incluirá la plantación y cuido de árboles durante un período prolongado en común, o la plantación y cuido de diez árboles por alumno durante los primeros dos ciclos de escuela.
+El Ministerio de Agricultura y Ganadería colaborará con el Ministerio de Educación en estos programas.

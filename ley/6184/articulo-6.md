@@ -1,0 +1,1 @@
+Artículo 6º.- La garantía de estos préstamos estará constituida por los árboles y cualquier otra garantía a satisfacción del Banco y una póliza especial que deberá otorgar el Instituto Nacional de Seguros.

@@ -1,0 +1,2 @@
+Artículo 3º.- En ningún caso se financiará a una misma persona o empresa con un monto mayor al que represente el uno por ciento (1%) de la suma asignada por el Banco Central a los fines de la presente ley.
+El crédito se aplicará a parcelas no menores de una hectárea y la Dirección General Forestal será la que califique las tierras aptas para este tipo de plantación. El Banco Central de Costa Rica incluirá los recursos del caso en sus programas anuales de crédito.
