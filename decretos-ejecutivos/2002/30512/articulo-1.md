@@ -1,0 +1,17 @@
+N° 30512-H
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y LA MINISTRA DE HACIENDA
+En ejercicio de las facultades que le confieren tos artículos 140, incisos 7, 8, 18 y 20, y 46 de la Constitución Política; 27 y 113 incisos 2) y 3) de la Ley General de la Administración Pública y primer párrafo del artículo 21 de la Ley 8131, Ley de Administración Financiera de la República y Presupuestos Públicos.
+Considerando:
+1º—Que Mediante Decreto Ejecutivo N° 30464 publicado en La Gaceta N° 99 del 24 de mayo del 2002, se establecen una serie de regulaciones de índole presupuestaria y de aplicación para los Ministerios y sus Órganos adscritos.
+2º—Que en el artículo 1º del Decreto Ejecutivo se establece que los Ministerios y sus Órganos adscritos reducirán el gasto en las subpartidas ahí indicadas, contenidas en la Ley de Presupuesto Ordinario y Extraordinario de la República para el año 2002, en un cuarenta (40 %) del saldo disponible al quince de mayo del dos mil dos.
+3º—Que dicha disposición responde al interés prioritario del Gobierno, para lograr la austeridad en el gasto público, procurando un mejor ordenamiento fiscal, por medio de la reducción y racionalización del gasto público con cargo al Presupuesto de la República.
+4º—Que la actividad de los Órganos del Estado deberá estar sujeta en su conjunto a los principios fundamentales del servicio público, para asegurar su continuidad y su eficiencia.
+5º—Que para medir el buen resultado de la limitación al gasto, en el citado Decreto se encargó a la Autoridad Presupuestaria, como órgano asesor del Presidente de la República, para que ejerza control y seguimiento sobre las medidas señaladas e informar a la Presidencia de la República de los resultados obtenidos.
+6º—Que algunos Ministerios y Órganos adscritos han indicado que tienen problema para reducir el porcentaje señalado en el artículo citado, en ciertas subpartidas pues en unos casos tenían compromisos contractuales o adquiridos en firme, y algunas otras manifiestan que existen subpartidas de las señaladas en el Decreto que están directamente relacionadas con la naturaleza del Órgano y por ende la reducción podría afectar la buena prestación del servicio público.
+7º—Que por ser política de esta Administración que la necesaria reducción del gasto no debe incidir en la prestación del servicio público, ni afectar la ejecución de programas sociales, es necesario modificar el artículo 1º del Decreto Ejecutivo Nº 30464-H adicionando un último párrafo que permita a la Autoridad Presupuestaria, previo estudio técnico, considerar y modificar el porcentaje de reducción y el detalle de las subpartidas especificadas en dicho Decreto Ejecutivo. Por tanto,
+DECRETAN:
+Artículo 1º—Modifíquese el artículo 1º del Decreto Ejecutivo N° 30464-H, publicado en La Gaceta N° 99 del 24 de mayo del 2002, adicionando un último párrafo que se lea:
+"En aquellos casos de las subpartidas sujetas a reducción del gasto, en que el Ministerio u Órgano adscrito tuviere impedimento para cumplir con lo establecido, por existir compromisos adquiridos en firme o contractuales, o cuya reducción afecte el servicio público, la Autoridad Presupuestaria podrá considerar la modificación del porcentaje establecido o el detalle de subpartidas ahí contempladas, previo estudio técnico, siempre y cuando el Ministerio u Órgano adscrito, suministre una propuesta de compensación.
+La Autoridad Presupuestaria incluirá en los informes al Presidente de la República, los casos de aplicación de esta disposición".
