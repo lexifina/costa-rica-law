@@ -12,3 +12,4 @@ Reglamento de la Junta Nacional de Turismo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1931-09-29 | la propia norma |
+| 2 | 1949-01-14 | Ley 347 |
