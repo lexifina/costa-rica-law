@@ -1,1 +1,0 @@
-Artículo 7°-EI Presidente de la República nombrará como responsable por la coordinación de cada' sector de actividad a un Ministro de Gobierno, el cual será escogido atendiendo las características de cada sector en particular.
