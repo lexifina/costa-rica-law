@@ -1,0 +1,15 @@
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 11º de la sesión 7672, celebrada el 24 de julio del 2002, dispuso reformar los artículos 29, 30 y 40 del Reglamento del Seguro de Salud, en los siguientes términos:
+REGLAMENTO DEL SEGURO DE SALUD
+"Artículo 29.—Del derecho a subsidios por incapacidad. Tiene derecho a subsidios el trabajador asegurado activo, asalariado o independiente, portador de una enfermedad común, que produzca incapacidad para el trabajo, debidamente declarada por los médicos de la Caja o por médicos de otros sistemas o proyectos especiales aprobados por la Junta Directiva. La homologación de una incapacidad extendida por un médico particular en el ejercicio liberal, la puede hacer el director médico si la gestión se presenta dentro de las 48,00 horas siguientes a la su extensión; el director regional de servicios médicos o el director de un hospital nacional desconcentrado, si la gestión se hace dentro de los quince días siguientes; y el Gerente de la División Médica, si la gestión se presenta después de vencido los plazos antes indicados. Lo anterior, sin perjuicio de las normas sobres prescripción que fueran aplacables.
+Se tomará en cuenta, para los efectos de valoración de cada caso, el historial previo del asegurado en materia de incapacidades, las reincidencias específicas del trabajador y la imposibilidad material en que estuvo el asegurado de recibir los servicios médicos de la Caja.
+Artículo 30.—De la finalización del derecho a subsidios. El derechos al pago de subsidios, finaliza:
+a) Por muerte del trabajador asegurado activo, asalariado o independiente.
+b) Por la terminación del periodo de incapacidad o de licencia.
+c) Por cumplimiento del plazo máximo de pago señalado en este Reglamento (artículo 34º).
+d) Por prescripción, una vez transcurridos 6 meses contados a partir de la finalización del período de incapacidad.
+e) Por abandono injustificado del tratamiento, de las prescripciones y recomendaciones dadas al asegurado (artículo 37º).
+f) Por incurrir en las prohibiciones o negativas a que se refieren los artículos 37º y 44º de este Reglamento.
+g) Por cesantía. En este caso el derecho concluye con el pago de la incapacidad o licencia que se hubiere otorgado antes de la cesantía.
+Artículo 40.—De la licencia por maternidad. Con motivo de la maternidad, a toda trabajadora asegurada directa, asalariada o independiente se le extenderá una licencia hasta por cuatro meses; período que incluye el pre y post parto, conforme se establece en las leyes generales y especiales que se apliquen a los diferentes grupos.
+El centro médico de adscripción o de atención, según corresponda, extenderá un solo documento, tomando en cuenta tanto la fecha probable del parto como las previsiones legales especiales, todo dentro del período ya citado de cuatro meses.
+El subsidio que corresponda se pagará conforme el lugar de adscripción de la asegurada, pero en todos los casos el cargo presupuestario corresponderá al centro asistencial que emite el documento".
