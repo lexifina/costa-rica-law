@@ -1,0 +1,1 @@
+ARTÍCULO 8°.-Cada Municipalidad en su territorio cobrar esta contribución, y el 15 de Diciembre ser obligada a entregarla al Jefe departamental, siendo sus individuos responsables por ella: los Jefes departamentales en todo el mes de Diciembre, harán el entero en la Tesorería general, siendo también individualmente responsables por toda la suma que debe producir el Departamento.

@@ -1,0 +1,1 @@
+Artículo 10.-La Intendencia, la Contaduría mayor y la tesorería, fiscalizar n el registro general, debiendo la primera, instruir o hacer instruir los expedientes por fraude u omisión, y hacer las prevenciones necesarias a los Jefes departamentales, a fin de establecer el mejor orden y arreglo en el cobro de esta contribución.
