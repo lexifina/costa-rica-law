@@ -1,0 +1,1 @@
+ARTÍCULO 11.-Se prohíbe a bordo de los vapores dar voces de mando en otro idioma que el español, y en el mismo se pondrán todas las comunicaciones, presupuestos, etc., que correspondan al servicio de los vapores.

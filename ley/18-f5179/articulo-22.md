@@ -1,0 +1,1 @@
+ARTÍCULO 22.-El Administrador de correos de Puntarenas llevará cuenta exacta de pasaje y fletes y gozará de un 10 % de honorario sobre las cantidades que colecte. Con el producto dará cuenta al Administrador General de correos
