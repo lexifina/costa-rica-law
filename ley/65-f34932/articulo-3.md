@@ -1,1 +1,0 @@
-Artículo 3°—El producto neto de los Bonos Nacionales Oro que reciba el Banco de acuerdo con lo dispuesto en el artículo anterior será abonado a la cuenta que el Gobierno adeuda a dicha institución bancaria.

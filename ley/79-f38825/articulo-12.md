@@ -1,1 +1,0 @@
-Artículo 12.—El Banco Internacional presentará al Congreso, tan pronto le sea posible, las sugestiones que juzgue convenientes, en caminadas a modificar la ley que creó las Juntas de Crédito Agrícola, a fin de hacer de estas Juntas un mecanismo que preste más efectiva y pronta ayuda al agricultor en pequeño, en el mayor número de secciones del país.

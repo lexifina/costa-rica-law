@@ -1,1 +1,0 @@
-Artículo 12.—Toda construcción en cualquier estado en que se encuentre, junto con el solar en que está ubicada deberá responder con título de primera hipoteca a favor del Banco por valor del crédito concedido.

@@ -1,1 +1,0 @@
-Artículo 7°—El Banco Internacional efectuará los préstamos a que se refiere el artículo 2° de la presente ley con el producto de la colocación de cédulas, y sólo en caso de que no tuviere fondos provenientes de tal colocación, los efectuará con las mismas cédulas.

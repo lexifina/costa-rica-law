@@ -1,1 +1,0 @@
-Artículo 42.—Los Bonos que vuelvan al Banco en pago anticipado de deudas, según el artículo 7°. de la ley que se reglamenta, se considerarán amortizados, y no pueden volver a entrar en circulación, ni entrarán en los sorteos para su redención.

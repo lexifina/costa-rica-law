@@ -1,2 +1,0 @@
-Artículo 9°—La amortización de las cédulas se hará por sorteas trimestrales, por su valor nominal, con el remanente del fondo fijado, en relación con el valor de las cédulas colocadas, una vez deducida la suma necesaria para el pago de los intereses. El Banco podrá hacer sorteos extraordinarios cuando lo crea oportuno.
-Las cédulas sorteadas serán retiradas definitivamente de la circulación e incineradas.
