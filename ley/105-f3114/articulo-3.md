@@ -1,0 +1,1 @@
+3°-Los dirigentes y militantes de las organizaciones prohibidas en los artículos anteriores incurrirán por el hecho de serlo en la comisión del delito que preve y pena el articulo 354 del Código Penal.
