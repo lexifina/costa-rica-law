@@ -1,0 +1,1 @@
+Articulo 5°—Le corresponde al Concejo Municipal fijar el precio único que tendrán los locales por el tiempo de explotación. El que resultare beneficiado con un local deberá tener cancelado el importe correspondiente antes de explotarlo.

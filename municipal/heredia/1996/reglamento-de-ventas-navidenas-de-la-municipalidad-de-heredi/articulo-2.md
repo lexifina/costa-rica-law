@@ -1,0 +1,1 @@
+Articulo 2°—Únicamente se consideraran autorizaciones Temporales para ventas navideñas las dadas para el periodo comprendido entre el 1° de noviembre al 8 de enero del ano siguiente de los años correspondientes, según el procedimiento que en este Reglamento se indica.
