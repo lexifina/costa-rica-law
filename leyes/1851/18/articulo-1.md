@@ -1,0 +1,5 @@
+DECRETO XVIIL
+Nombra Magistrados propietarios y suplentes.
+"Juan Rafael Mora Presidente de la República de Costa Rica,- Por cuanto el Excelentisimo Congreso constitucional ha decretado lo siguiente:
+-El Excelentísimo Congreso constitucional de la República de Costa Rica, en cumplimiento de lo díspuesto en el final del decreto número 15 que este cuerpo emitió el dia de ayer, decreta.
+Artículo único. Se nombra Magistrado propietario dé la Excelentísima Corte de Justicia al Señor Licenciado Don Vicente Herrera; y para suplentes á los Señores Don Rafael Ugalde, Don Juan Bautista Bonilla, Bachiller Don Luz Blanco y Don Pedro Mayorga. -Al Poder Ejecutivo, - Dado en el Palacio de los Supremos Poderes en San José à los dos dias del mes de julio de mil ochocientos cincuenta y uno.-Francisco Maria Oreamuno, Presidente.-Miguel Mora, Secretario.-Manuel Zamora, Secretario.-Por Zamora; -Por tanto: EJECUTESE. Palacio Nacional. San José julio cuatro de mil ochocientos cincuenta y uno. -Juan Rafael Mora,-El Ministro de Estado en el Despacho de Gobernacion Joaquin Bernardo Calvo,"
