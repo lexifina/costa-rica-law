@@ -20,3 +20,4 @@ Establece el monto de dietas a la Junta Nacional de Pensiones y otros Consejos.
 | 5 | 1995-03-03 | Decreto Ejecutivo 24108 (1995-03-03) |
 | 6 | 1996-09-03 | Decreto Ejecutivo 25549 (1996-09-03) |
 | 7 | 1996-12-20 | Decreto Ejecutivo 25817 (1996-12-20) |
+| 8 | 1998-03-11 | Decreto Ejecutivo 26872 (1998-03-11) |
