@@ -1,0 +1,1 @@
+Artículo 5°—Las obligaciones por tributos municipales, constituye hipoteca legal preferente sobre los bienes inmuebles propiedad d contribuyente, moroso, tal y como lo establece el artículo 70 del Código Municipal.
