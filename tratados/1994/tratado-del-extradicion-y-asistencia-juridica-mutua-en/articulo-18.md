@@ -1,0 +1,6 @@
+Artículo 18
+1.- En caso de urgencia, las autoridades competentes de la Parte requirente podrán solicitar la detención preventiva del individuo reclamado. La solicitud de detención preventiva indicará la existencia de una de las resoluciones mencionadas en el apartado b) del artículo 14 y la intención de formalizar la solicitud de extradición. Mencionará igualmente el delito, el tiempo, el lugar en que ha sido cometido y los datos que permiten establecer la identidad y nacionalidad del individuo reclamado.
+2.- La solicitud de detención preventiva será transmitida a las autoridades competentes de la Parte requerida por la vía más rápida, pudiendo utilizar cualquier medio de comunicación siempre que deje constancia escrita.
+3.- Al recibo de la solicitud a que se refiere el apartado 1, la Parte requerida adoptará las medidas conducentes a obtener la detención del reclamado. La Parte requirente será informada del curso de su solicitud.
+4.- La detención preventiva deberá revocarse si en el plazo de dos meses la Parte requirente no ha formalizado la solicitud de extradición aportando los instrumentos mencionados en el artículo 14.
+5.- La revocación de la detención preventiva no impedirá el curso normal del procedimiento de extradición si la solicitud y los documentos mencionados en el artículo 4 llegan a recibirse posteriormente.

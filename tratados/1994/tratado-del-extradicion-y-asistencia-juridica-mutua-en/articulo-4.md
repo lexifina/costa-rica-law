@@ -1,0 +1,3 @@
+Artículo 4
+1.- La extradición no será concedida por delitos considerados como políticos por la parte requerida o conexos con delitos de esta naturaleza. A los fines de la aplicación de este Tratado, el homicidio u otro delito contra la vida, la integridad física o la libertad de un Jefe de Estado o de Gobierno o de un miembro de su familia no serán considerados como delito político.
+2.- Tampoco se concederá la extradición si la Parte requerida tiene motivos para suponer que la solicitud de extradición motivada por un delito común ha sido presentada con la finalidad de perseguir o castigar a un individuo a causa de su raza, religión, nacionalidad u opiniones políticas o bien que la situación de este individuo pueda ser agravada por estos motivos.

@@ -1,0 +1,3 @@
+Artículo 33
+1.- El testigo o perito, cualquiera que sea su nacionalidad, que como consecuencia de una citación comparezca ante las autoridades de la Parte requirente, no podrá ser perseguido o detenido en este Estado por hechos o condenas anteriores a su salida del territorio de la Parte requerida.
+2.- La inmunidad prevista en el precedente apartado cesará cuando el testigo o perito estando en libertad de abandonar el territorio permaneciere más de cuarenta y cinco días en el territorio de la Parte requirente después del momento en que su presencia ya no fuere exigida por las autoridades judiciales de dicha Parte.

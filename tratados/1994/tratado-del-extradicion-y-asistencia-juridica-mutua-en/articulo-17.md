@@ -1,0 +1,2 @@
+Artículo 17
+Salvo en el caso previsto en el párrafo b) del apartado 1 del artículo 16, la reextradición en beneficio de un tercer Estado será otorgada con el consentimiento de la Parte que ha concedido la extradición. Esta podrá exigir el envío previo de la documentación prevista en el artículo 14, así como un acta que contenga la declaración razonada del reclamado sobre si acepta la extradición o se opone a ella.
