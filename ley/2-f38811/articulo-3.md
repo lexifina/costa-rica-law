@@ -1,0 +1,2 @@
+Art. 3° -El presente decreto se someterá al conocimiento del Congreso Constitucional en la siguiente reunión ordinaria.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones,-Palacio Nacional, en San José, á seis de febrero de mil ochocientos ochenta y tres.-A. DE JEsús SoTo, Presidente. VICENTE C. SEGREDA, Secretario. -Ejecútese. -Dado en la ciudad de Puntarenas, a los ocho días del mes de febrero de mil ochocientos ochenta y tres.-P. FERNANDEZ-El Secretario de Estado en el Despacho de Fomento.-BERNARDO SOTO.
