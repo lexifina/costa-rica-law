@@ -1,0 +1,2 @@
+Artículo 6º—Funcionamiento, obligaciones y sanciones. Los
+servicios de seguridad privados que presten las personas físicas o jurídicas para proteger la vida y los bienes de otras, solo podrán suministrarse previa autorización de la Dirección de los Servicios de Seguridad Privados. Prohíbese la existencia o el funcionamiento de grupos particulares armados, de cualquier índole, que no estén autorizados ni cumplan los requisitos ordenados por estas normas.

@@ -1,0 +1,1 @@
+Artículo 26.—Uniforme. Los agentes de seguridad privada que brinden seguridad física, deberán vestir el uniforme y el distintivo previamente inscrito ante la Dirección, así como portar visiblemente el carné de agente de seguridad privada emitido por la Dirección.

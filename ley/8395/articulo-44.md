@@ -1,0 +1,2 @@
+Artículo 44.—Servicio a terceros. Prohíbese a las personas físicas o jurídicas que tengan su propio servicio de seguridad para protección patrimonial y transporte de valores, prestar dicho servicio de seguridad a terceros o cualquier otro de los servicios de seguridad regulados en esta Ley, salvo que estén autorizadas para tal efecto.
+Exceptúanse de esa prohibición en cuanto al transporte de valores, las empresas corporativas, los bancos y las instituciones financieras.
