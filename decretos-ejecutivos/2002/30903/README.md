@@ -14,3 +14,4 @@ Reforma Reglamento a la Ley de Administración Financiera y Presupuestos Públic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-30 | la propia norma |
+| 2 | 2003-08-25 | Decreto Ejecutivo 31337 (2003-08-25) |
