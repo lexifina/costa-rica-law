@@ -1,0 +1,1 @@
+Artículo 25.—Antes de tener inscrito el título de propiedad en la forma que adelante se dispone, el denunciante no podrá vender, ni ceder, ni gravar, ni dar en arrendamiento o en administración el lote, ni su derecho a él, o a las mejoras y maderas, ni podrán serle embargados a perseguidos en ninguna forma esos bienes.

@@ -1,0 +1,1 @@
+Artículo 28.—Si el resultado de la información fuere satisfactorio, el Juez ordenará que se mida el lote por un agrimensor público, conforme a lo dispuesto en los artículos 2, 3 y 4 de la ley de 6 de agosto de 1892, y con citación, indispensablemente de los colindantes.

@@ -1,0 +1,1 @@
+Artículo 18.—Si pasados treinta días después de la última publicación del edicto, no se hubiere presentado nadie a reclamar contra el denuncio, el Juez autorizará al denunciante para entrar en la posesión del lote.
