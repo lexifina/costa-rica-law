@@ -1,1 +1,5 @@
-ARTICULO 4.- Rige a partir de su publicación.
+ARTICULO 4
+El Consejo se regirá por el presente Convenio, así como por los
+reglamentos, acuerdos y resoluciones que emita la Reunión Conjunta.
+CAPITULO II
+OBJETIVOS
