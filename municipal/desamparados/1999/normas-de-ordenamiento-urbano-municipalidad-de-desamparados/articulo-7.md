@@ -1,0 +1,3 @@
+Artículo 7º—Se exigirá estudio de impacto urbano y vialidad para aquellos proyectos:
+a) Que sean mayores a cincuenta (50) viviendas en urbanización o condominio o a 10.000 (diez mil) metros cuadrados, la condición que se cumpla primero. Sin embargo, la Municipalidad de Desamparados mediante informe técnico que así lo determine se reservará el derecho de exigir el estudio de impacto urbano y vialidad en aquellos proyectos menores a los rangos indicados cuando sean consecuencia o etapa subsiguiente de un proyecto anterior y exista causa razonable en favor de la seguridad e interés público.
+b) Que ocasione un mayor desequilibrio en la oferta de servicios sanitarios (Centro de Salud, EBAIS o similar) y educativos (Escuela o Colegio más próximo).

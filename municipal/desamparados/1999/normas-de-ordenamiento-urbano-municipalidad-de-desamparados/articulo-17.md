@@ -1,0 +1,1 @@
+Artículo 17.—Las solicitudes para la tramitación de etapas subsiguientes de todo proyecto, que así halla sido gestionado ante la Municipalidad de Desamparados, queda condicionado al cumplimiento pleno y satisfactorio de la etapa previamente aprobada, en caso contrario el municipio procederá a su rechazo.

@@ -1,0 +1,1 @@
+Artículo 4º—Los ríos, quebradas o acequias no incluidos en el artículo anterior, se regirán por las normas y disposiciones vigentes. Asimismo la Municipalidad de Desamparados podrá modificar los retiros así establecidos en el artículo anterior cuando mediante informe técnico que así lo dictamine determine que existe riesgo de inundación o deslizamiento sobre la finca en cuestión.
