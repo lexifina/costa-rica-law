@@ -1,0 +1,1 @@
+Artículo 3º.-La Comisión Nacional de Emergencia, designará como Unidad Ejecutora al Ministerio de Obras Públicas y Transportes y a las demás instituciones públicas, que estime pertinentes para la ejecución de las políticas, obras y demás medidas necesarias que se acuerden para el cumplimiento del plan regulador general que se elabore.
