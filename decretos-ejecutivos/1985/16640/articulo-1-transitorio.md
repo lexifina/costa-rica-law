@@ -1,0 +1,2 @@
+Transitorio I.- Las personas físicas o jurídicas que hubieren suscrito contratos forestales con el estado antes de la fecha de vigencia del presente Decreto, computarán los porcentajes de las cuotas pendientes de diferimiento, que correspondan a los ejercicio fiscales número 85 y siguientes, sobre la base de ¢ 70.000.00 (setenta mil colones), por hectárea reforestada.
+Dado en la Presidencia de la República.- San José, a los veintisiete días del mes de setiembre de mil novecientos ochenta y cinco.
