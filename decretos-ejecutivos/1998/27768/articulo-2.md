@@ -1,0 +1,1 @@
+Artículo 2º—Todo beneficiador que reciba café artificialmente madurado con etileno (ácido 2 cloro etil fosfórico) o cualquier otro madurante artificial deberá considerar la entrega como si fuera de café verde y así lo especificará en el recibo que extienda.

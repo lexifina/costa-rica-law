@@ -1,0 +1,1 @@
+Artículo 3º—El uso de madurantes artificiales en contravención con lo dispuesto por este Decreto facultará al Ministerio de Agricultura y Ganadería a gestionar ante los Tribunales comunes la imposición de las sanciones, que prevé la Ley de Protección Fitosanitaria y sus reglamentos, para el uso de productos químicos nocivos para los cultivos.
