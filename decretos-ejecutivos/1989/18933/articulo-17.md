@@ -1,0 +1,1 @@
+II.—El personal de la Sección y el Departamento a que hace referencia la disposición transitoria anterior, se reubicará sin mengua alguna de los derechos y garantías que actualmente ostentan en su relación de servicio.

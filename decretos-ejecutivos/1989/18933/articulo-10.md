@@ -1,0 +1,1 @@
+Artículo 10.—El director ejecutivo asistirá a las sesiones del Consejo Directivo con derecho a voz. Deberá rendir un informe trimestral del desarrollo de los planes, programas y proyectos en ejecución.
