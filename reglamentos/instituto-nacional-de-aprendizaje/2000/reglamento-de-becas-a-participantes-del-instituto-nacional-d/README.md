@@ -14,3 +14,4 @@ Reglamento de Becas a Participantes del Instituto Nacional de Aprendizaje (El In
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-09 | la propia norma |
+| 2 | 2001-05-07 | Reglamento 3863 (2001-05-07) |

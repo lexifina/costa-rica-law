@@ -1,29 +1,9 @@
 CAPÍTULO XVII
 Disposiciones transitorias
-Transitorio 1°—Becas Complementarias-Programa INA-BID. El programa INA-BID, podrá otorgar becas para capacitación, de acuerdo a su disponibilidad de recursos, las cuales pueden ser complementarias, que otorga el INA, y orientadas fundamentalmente, a los procesos integrales que desarrolla el Programa, de la siguiente manera:
--A mujeres jefas de hogar, cuya situación económica lo requiera, según recomendación de la persona de trabajo social, y que el proceso de capacitación sea igual o mayor a cuatro meses y con un mínimo de 100 horas. El monto máximo corresponderá a un 50% del monto de hospedaje, según la Tabla de Cuantificación de Becas del INA.
--Por alto rendimiento académico, a las mujeres que tuvieran un promedio general, igual o superior a 9, en cursos mayores de cuatro meses y que matriculen una nueva acción formativa. Para esta nueva acción se le otorgará la beca por un monto igual al 100% del monto indicado para hospedaje según la Tabla de Cuantificación de Becas del INA. Esta beca no tiene relación con su situación socioeconómica.
--A mujeres que ingresen a acciones formativas con altos componentes tecnológicos, en las cuales la matrícula femenina no sobrepase un 25% del total de la matrícula. El monto a becar es un 50% del monto de hospedaje, según la Tabla de Cuantificación de Becas del INA. Las acciones formativas a incluir se definirán con la persona encargada de gestión tecnológica en cada núcleo.
-TABLA DE CUANT1F1CAC1ÓN DE AYUDA
-ECONÓMICA PARA EL AÑO 2001
-UNIDADES | CONCEPTOS
-ALIMENTACIÓN | HOSPEDAJE | GASTOS PERSONALES
-REGIONAL HUETAR ATLÁNTICA | ¢15.000,00 | ¢46.000,00 | ¢5.000,00
-REGIONAL BRUNCA | ¢15.000,00 | ¢43.000,00 | ¢5.000,00
-REGIONAL CHOROTEGA | ¢15.000,00 | ¢46.000,00 | ¢5.000,00
-REGIONAL HUETAR NORTE | ¢15.000,00 | ¢43.000,00 | ¢5.000,00
-REGIONAL CENTRAL OCCIDENTAL | ¢15.000,00 | ¢43.000,00 | ¢5.000,00
-REGIONAL CENTRAL ORIENTAL | ¢15.000,00 | ¢43.000,00 | ¢5.000,00
-REGIONAL PACIFICO CENTRAL | ¢15.000,00 | ¢46.000,00 | ¢5.000,00
-Los conceptos de Ayuda Extraordinaria y otros se regirán por lo que indique el Reglamento al respecto.
-El monto por compensación salarial, en ningún caso será superior al establecido en el Decreto de Salarios Mínimos para la categoría de Trabajador no calificado, vigente en el momento en que deba otorgarse esta ayuda.
-Los señores directores después de un amplio intercambio de opiniones sobre el tema, por unanimidad acuerdan:
-Considerando:
-1°—Que el proyecto de Reglamento de Becas presentado por la Subgerencia Técnica na sido ampliamente consultado a las diferentes instancias del Instituto.
-2°—Que es necesaria la actualización del mismo en función de las nuevas características de la población participante en actividades de formación del Instituto.
-3°—Que la Tabla de Cuantificación de Gastos no ha sido actualizada recientemente.
-4°—Que existe una propuesta específica de apoyo al sistema de Becas por parte del Programa INA-BID. Por tanto,
-SE ACUERDA:
-Aprobar el Reglamento de Becas a Participantes en Acciones de Capacitación y Formación Profesional del Instituto Nacional de Aprendizaje. Asimismo la Tabla de Cuantificación de Gastos que regirá a partir de enero del 2001.
-Acuerdo firme por unanimidad.
-San José, 13 de diciembre del 2000.—
+Transitorio 1°- Becas Complementarias-Programa INA-BID. "El programa INA-BID, podrá otorgar becas para capacitación, de acuerdo a su disponibilidad de recursos, las cuales pueden ser complementarias con las que otorga el INA, y orientadas fundamentalmente, a los procesos integrales que desarrolla el programa, de la siguiente forma:
+A mujeres jefas de hogar, cuya situación económica lo requiera, según recomendación de la persona de trabajo social, y que en el proceso de capacitación sea igual o mayor a 100 horas, con una asistencia mínima de seis horas por semana, el monto mensual corresponderá a un 50 % del monto del hospedaje según la tabla de cuantificación de becas de INA".
+Por alto rendimiento académico, las mujeres que tuvieran un promedio general, igual o superior a 90, en una escala de 0 a 100, y que el proceso de capacitación sea igual o mayor a 100 horas, con una asistencia mínima de 6 horas por semana y que matriculen una nueva acción formativa. Para esta nueva acción formativa, no serán requisito las condiciones de duración, ni asistencia mínima, la beca se le otorgará por un máximo mensual igual al 50 % del monto indicado para hospedaje según la tabla de cuantificación de becas del INA.
+Esta beca no tiene relación con su situación socioeconómica".
+A mujeres que ingresen a acciones formativas con altos componentes tecnológicos o no tradiciones, que tengan una duración o mayor a 100 horas, con una asistencia mínima de 6 horas por semana, en las cuales la matrícula femenina no sobrepase un 25 % del total de la matrícula. El monto máximo mensual a becar es de 50 % del monto de hospedaje, según la tabla de cuantificación de becas del INA. Las acciones formativas a incluir se definirán con las personas encargadas de los Centros de Formación o de la Unidad Regional.
+Esta beca no tiene relación con la situación socioeconómica.
+(Así reformado mediante sesión N° 3863 del 7 de mayo de 2001)
