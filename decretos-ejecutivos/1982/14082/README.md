@@ -41,3 +41,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 26 | 1993-12-20 | Decreto Ejecutivo 22788 (1993-12-20) |
 | 27 | 1993-12-21 | Decreto Ejecutivo 22800 (1993-12-21) |
 | 28 | 1994-11-09 | Decreto Ejecutivo 23785 (1994-11-09) |
+| 29 | 1995-11-15 | Decreto Ejecutivo 24748 (1995-11-15) |
