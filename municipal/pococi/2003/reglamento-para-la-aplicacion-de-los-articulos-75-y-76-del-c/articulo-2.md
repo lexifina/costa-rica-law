@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Este reglamento incluye todo lote o área pública o privada, ubicada dentro de toda el área del cantón de Pococí que se preste para incurrir en omisiones detalladas en el artículo primero del presente reglamento.

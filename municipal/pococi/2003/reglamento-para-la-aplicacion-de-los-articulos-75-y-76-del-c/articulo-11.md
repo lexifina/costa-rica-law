@@ -1,0 +1,1 @@
+Artículo 11.—La Municipalidad de Pococí coordinará acciones con los síndicos, Concejos de Distrito, Asociaciones de desarrollo y Comités de vecinos, para garantizar el cumplimiento de los deberes de los propietarios, establecidos en este reglamento.

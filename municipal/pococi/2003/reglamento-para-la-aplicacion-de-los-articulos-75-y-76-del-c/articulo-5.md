@@ -1,0 +1,1 @@
+Artículo 5º—Responsable de la revisión del procedimiento. El responsable de la revisión de este procedimiento será el área de Control Urbano conjuntamente con el departamento legal y la coordinación de Hacienda Municipal de la institución.
