@@ -1,4 +1,6 @@
+(Derogado)
 N° 6713
+(Esta norma fue Derogada por el artículo 7 de la ley Impuestos Municipales de Coto Brus, N° 7113 del 18 de enero de 1989)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 Decreta:
 AUTORIZANSE LOS SIGUIENTES IMPUESTOS A LA MUNICIPALIDAD DEL CANTÓN DE COTO BRUS
