@@ -1,2 +1,1 @@
-Artículo 2°Para atender la erogación que demanda la aplicación del artículo transitorio de la presente ley, aumentase el impuesto a que se refiere la ley N° 5672, del 8 de abril de 1975, en un uno por ciento (1%) de la totalidad de los premios pagados al público, excepto las terminaciones de la lotería nacional.
-La Junta de Protección Social de San José, girará este monto, conforme lo disponga el respectivo reglamento, deduciéndolo de la renta de la lotería nacional, previamente a la distribución prevista en la ley N° 1152 del 13 de abril de 1950 y sus reformas.
+Artículo 2°-(Derogado por el artículo 2° de la ley N° 7851 del 24 de noviembre de 1998)
