@@ -1,0 +1,1 @@
+ARTICULO 20.- Los procedimientos establecidos en esta Ley, para el cobro del impuesto de patentes, no excluyen las actividades sujetas a licencia que, por características especiales, sean objeto de gravámenes impositivos creados por leyes de alcance nacional.
