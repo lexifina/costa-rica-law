@@ -14,3 +14,4 @@ Reglamento de capacitación para los funcionarios de la Autoridad Reguladora de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-04 | la propia norma |
+| 2 | 1998-04-21 | Reglamento 73 (1998-04-21) |
