@@ -15,3 +15,4 @@ Reglamento de Juntas de Crédito Local
 | --- | --- | --- |
 | 1 | 2000-05-25 | la propia norma |
 | 2 | 2002-07-09 | Reglamento 4023 (2002-07-09) |
+| 3 | 2002-07-23 | Reglamento 4028 (2002-07-23) |
