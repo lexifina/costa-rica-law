@@ -1,0 +1,1 @@
+Art. 6. Satisfechos el Cura y Receptor, se dividirá el sobrante en dos partes iguales dedicándose una á la fábrica de la Iglesia, y la otra al tesoro comun eclesiastico, y enseñanza departamental por mitades.
