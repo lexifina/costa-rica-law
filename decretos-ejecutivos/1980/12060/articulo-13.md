@@ -1,1 +1,0 @@
-ARTICULO 13.- La falta de envío de los reportes durante tres meses seguidos, dará derecho a la Junta Directiva para cancelar la regencia, en cuyo caso no se le podrá autorizar para el ejercicio de una nueva regencia hasta que hayan transcurrido seis meses a partir de la fecha en que se hace efectiva la cancelación.

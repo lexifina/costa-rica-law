@@ -1,1 +1,0 @@
-ARTICULO 15.- La falta de pago durante tres meses de las cuotas de regencia, faculta a la Junta Directiva del Colegio de Ingenieros Agrónomos, para cancelar el nombramiento del regente de que se trate por un período de seis meses. En cuyo caso el propietario del negocio deberá proceder al nombramiento de un nuevo regente de conformidad con lo establecido en este reglamento.
