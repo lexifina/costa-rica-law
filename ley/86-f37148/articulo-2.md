@@ -1,0 +1,1 @@
+Art 2°.- El Gobierno Político hará que desde luego se proceda a elegir y posesionar allí una Municipalidad compuesta de un Alcalde, un Regidor y un Procurador, cuyas atribuciones y deberes serán los mismos que tienen las de los demás Pueblos.
