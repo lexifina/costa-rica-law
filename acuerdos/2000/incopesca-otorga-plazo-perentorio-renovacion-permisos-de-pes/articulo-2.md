@@ -1,0 +1,1 @@
+2. —Los permisos o licencias de pesca artesanal que al término del plazo otorgado por el artículo primero, se encuentren vencidos según los expedientes respectivos y no conste solicitud o trámite de renovación, quedarán cancelados de pleno derecho, para lo cual el Departamento de Protección y Registro, levantará el listado correspondiente para su publicación en el Diario Oficial.
