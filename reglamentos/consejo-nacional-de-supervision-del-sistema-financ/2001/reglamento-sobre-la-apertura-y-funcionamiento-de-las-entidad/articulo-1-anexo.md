@@ -1,4 +1,5 @@
 ANEXO 1
+DEROGADO EXPRESAMENTE por la Sesión N° 319-2002, celebrada el 20 de agosto de 2002, publicada en La Gaceta N° 166 de 30 de agosto de 2002.
 METODOLOGÍA PARA MEDICIÓN Y CÁLCULO
 DE LA RENTABILIDAD DEL FONDO
 1. Rentabilidad del Fondo
