@@ -1,0 +1,1 @@
+Artículo 2°—La anterior disposición rige para el trabajo que realicen los supracitados empleados para la impresión de las papeletas para los procesos electorales del 2002 y a partir de la presente fecha.
