@@ -14,3 +14,4 @@ Reglamento de la Ley Orgánica del Colegio de Biólogos de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-05-20 | la propia norma |
+| 2 | 1994-10-10 | Decreto Ejecutivo 23801 (1994-10-10) |
