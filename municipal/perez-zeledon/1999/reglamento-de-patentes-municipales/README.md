@@ -14,3 +14,4 @@ Reglamento de Patentes Municipales.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-25 | la propia norma |
+| 2 | 2002-05-02 | Reglamento municipal 3 (2002-05-02) |

@@ -52,4 +52,5 @@ Categoría | Puntaje | Número Empleado | Ubicación | Inv. Inicial en colones
 8 | 30 | De 5 a 8 | No aplica | De más de 1 mili a 2.5 mill
 9 | 20 | De 3 a 4 | No aplica | De más de 500 mil a 1 mill 10
 10 | 10 | Hasta 2 | No aplica | Hasta 500 mil
-Una vez determinado el puntaje obtenido por la actividad se procederá a cobrar el impuesto de acuerdo a lo que señala la tabla de tarifas genéricas del articulo 15 de la Ley de Patentes.
+Una vez determinado el puntaje obtenido por la actividad se procederá a evaluar el monto resultante basado en la tabla de tarifas genéricas del artículo 15 de la Ley de Patentes. Si se confirma que el monto obtenido es excesivo en comparación al cancelado por otras actividades similares ubicadas en la misma zona; el monto calculado podrá ser revaluado, con la finalidad de cumplir con el principio de la justicia tributaria.
+(Así ampliado por el artículo 27 de la sesión ordinaria N° 3, celebrada el 2 de mayo del 2002)
