@@ -1,0 +1,1 @@
+Art. 19. El Presidente Municipal, asociado de dos vecinos nombrados por él, que tengan las cualidades requeridas para ser sufragantes Parroquiales, presidirá las elecciones y recibirá los votos de los sufragantes; mas los enunciados vecinos prestaràn previamente, en manos del Presidente Municipal, el juramento prevenido por la Constitucion.

@@ -1,0 +1,1 @@
+Art. 30. Declarada la vacante, ó admitida la escusa, el Presidente Municipal y sus dos asociados llamarán al que deba llenarla, si aún no hubieren pasado los registros al Jefe Politico, mas si los hubieren pasado ya, le participarán la vacante para que él haga el llamamiento.

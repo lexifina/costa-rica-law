@@ -1,0 +1,1 @@
+Art. 29. Corresponde igualmente al Presidente Municipal y à sus dos asociados, declarar la vacante que resulte por muerte de alguno de los electores nombrados, ó por haber perdido despues de su nombramiento alguna de las cualidades requeridas por la Constitucion, para ser Elector.

@@ -1,0 +1,1 @@
+Art. 44. Las Juntas calificadoras de Provincia haràn el escrutinio de las elecciones de Representantes principales y suplentes. Al efecto, el Presidente de la Junta le dará cuenta de los registros de cada Canton que haya recibido, y si faltaren algunos, el mismo Presidente los reclamará, ya sean los principales, ó los duplicados que deben existir en poder de los Jefes Políticos.

@@ -1,0 +1,1 @@
+Art. 61. El Presidente del Congreso participará el resultado al electo para que tome posesion de su destino el dia señalado por la Constitucion; y al encargado del Poder Ejecutivo para su cono miento.

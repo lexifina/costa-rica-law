@@ -1,0 +1,1 @@
+Art. 56. Cualquier miembro del Congreso, apoyado por otros dos mas, podrá entonces pedir que se declare que no hay eleccion, si creyere que el que ha reunido la expresada pluralidad de votos no tiene las cualidades requeridas por la Constitucion. En este caso se procederá como queda dispuesto en artìculo 53 de esta ley.

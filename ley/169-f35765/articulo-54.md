@@ -1,0 +1,1 @@
+Art. 54. Los escrutadores formarán tambien la cuenta del nùmero de Electores que hayan concurrido á las Asambleas, cuyas votaciones no se han declarado nulas por el Congreso, y anunciarán á éste cual es su número total, y cual el que forma su pluralidad absoluta.

@@ -1,0 +1,1 @@
+Art. 62. Cuando haya de hacerse eleccion de algun Ministro de la Corte Suprema, cada miembro del Congreso dará su voto por medio de una papeleta en que esté escrito el nombre y apellido del individuo por quién vota, y se procederá á lo demas conforme á los parágrafos 1° y 2° del artìculo 60.
