@@ -1,0 +1,1 @@
+Artículo 3°—La Administración del Refugio de Vida Silvestre, categoría Privado, Río Piro, le corresponde al propietario, en coordinación con el Sistema Nacional de Áreas de Conservación, quien la ejercerá a través del Área de Conservación Osa, del Ministerio del Ambiente y Energía, quien determinará las políticas y los procedimientos a seguir para este objetivo.
