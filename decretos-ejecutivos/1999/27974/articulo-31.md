@@ -1,0 +1,1 @@
+Artículo 31.—Continuación de la comparecencia. Si no hubiere sido posible concluir la comparecencia oral, se podrá reanudar en días siguientes, según sea necesario para satisfacer el debido proceso, la averiguación de la verdad real, o corregir las actuaciones procesales defectuosas.

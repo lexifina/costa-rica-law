@@ -1,0 +1,2 @@
+Artículo 9°—Facultad para ampliar el objeto del procedimiento.
+Cuando los actos u omisiones irregulares señaladas en una Relación de Hechos puedan dar lugar, simultáneamente, a responsabilidades de orden administrativo, civil, o a la declaratoria de nulidad absoluta de un acto o contrato administrativos, la resolución que ordene la apertura del procedimiento administrativo lo advertirá así a efecto de que se conozcan en un solo procedimiento, y en un mismo acto final podrán declararse las responsabilidades y nulidades que correspondan.

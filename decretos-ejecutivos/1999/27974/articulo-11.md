@@ -1,0 +1,4 @@
+SECCIÓN SEGUNDA
+De las partes
+Artículo 11.—Órgano Director. La Contraloría General de la República estará representada por el respectivo órgano director, el cual podrá integrarse con miembros en calidad de suplentes -en caso de ausencia temporal de los propietarios- y con los asesores que sean necesarios para la buena marcha y correcta resolución del procedimiento.
+La Unidad que hubiere emitido la Relación de Hechos, por medio de su titular o por quien éste designe al efecto, podrá apersonarse, de oficio o a petición del órgano director, dentro del procedimiento para contradecir los alegatos de las partes, solicitar prueba, asistir a la comparecencia oral y privada, interrogar y repreguntar a testigos, solicitar peritajes y formular las observaciones o aclaraciones que estime necesarias para la obtención de la verdad real únicamente.

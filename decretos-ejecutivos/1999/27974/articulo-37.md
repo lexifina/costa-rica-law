@@ -1,0 +1,1 @@
+Artículo 37.—Expresión de agravios. Si la revocatoria fuere rechazada, se emplazará a las partes para que expresen agravios dentro del plazo del quinto día hábil ante el Contralor General de la República.

@@ -1,0 +1,4 @@
+Artículo 33.—Acto final. Cumplido lo anterior, el procedimiento quedará listo para dictar el acto final, lo cual deberá hacerse dentro de los veinte días hábiles siguientes.
+Dentro de ese plazo podrá notificarse a las partes únicamente la parte dispositiva de la resolución que se dicte, pero dentro del quinto día hábil siguiente deberá notificarse el texto íntegro. Será a partir de este último momento en que comenzarán a correr los plazos de impugnación.
+En casos de especial complejidad, atendiendo las circunstancias del caso, dicho plazo podrá prorrogarse a juicio del titular de la unidad correspondiente.
+Los autos podrán ser devueltos al órgano director para subsanar cualquier defecto procesal que pudiere originar nulidad absoluta, indefensión a las partes, o quebranto del principio de verdad real por una inadecuada instrucción.

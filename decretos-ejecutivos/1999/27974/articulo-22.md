@@ -1,0 +1,1 @@
+Artículo 22.—Intimación. El órgano director dará traslado de la Relación de Hechos acompañando copia de ella, e intimidará los cargos que estime apropiadamente apoyados en la misma, señalando con precisión y claridad la naturaleza y alcances de las responsabilidades a que podrían dar lugar. Si se tratare de responsabilidades en el orden civil, se indicará su estimación.

@@ -1,0 +1,1 @@
+Artículo 24.—Derecho de defensa. El derecho de defensa se concederá al presunto responsable en la forma prescrita por la Ley General de la Administración Pública, salvo que se estime necesaria su comparecencia personal.

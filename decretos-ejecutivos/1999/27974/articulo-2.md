@@ -1,0 +1,4 @@
+Artículo 2°—Ambito de aplicación. Las disposiciones del presente Reglamento serán aplicables a las siguientes atribuciones de la Contraloría General de la República:
+a) Trámite y resolución de los procedimientos administrativos relacionados con la responsabilidad civil y administrativa en que pudieran haber incurrido los funcionarios públicos en materia de Hacienda Pública y la responsabilidad civil de los sujetos privados por el uso y administración de los fondos públicos que se les hubieran entregado.
+b) Trámite y resolución de los procedimientos administrativos para declarar la nulidad absoluta de actos y contratos administrativos que consagra el numeral 28 de la Ley Orgánica de la Contraloría General.
+c) Trámite y resolución de los recursos de apelación, como contralor jerárquico impropio, en materia de contratación administrativa.
