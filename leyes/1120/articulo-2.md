@@ -1,1 +1,0 @@
-Artículo 2°.- Mientras dure la suspensión a que se refiere el anterior artículo, ninguna persona física o jurídica podrá efectuar trabajos, de ninguna clase, en las minas situadas en el citado cantón.
