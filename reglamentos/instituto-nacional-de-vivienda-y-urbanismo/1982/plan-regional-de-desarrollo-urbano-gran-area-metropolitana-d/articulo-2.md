@@ -1,0 +1,1 @@
+Artículo 2°__Establecer en el área anterior una "Zona Especial de Protección" de conformidad con el artículo 25 de la Ley de Planificación Urbana y una "Zona de Crecimiento Urbano", según plano que se publica con este acuerdo y cuyo original puede ser consultado en el INVU, OFIPLAN y municipalidades correspondientes.
