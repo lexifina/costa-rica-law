@@ -1,0 +1,1 @@
+Artículo II.-Condecórase á dicho señor Aguilar y Murillo con una medalla de oro que tendrá la leyenda siguiente: (en el anverso) "Á Nicolás Aguilar Murillo. La Patria agradecida por su heroísmo. (En el reverso.) República de Costa Rica. Campaña Nacional de 1856-1857."
