@@ -1,0 +1,1 @@
+Artículo 3°—El Ministerio de Gobernación y Policía, a través de la Dirección de Migración y Extranjería, establecerá por vía de reglamento los requisitos, lugares de recepción y aspectos operativos del Régimen.
