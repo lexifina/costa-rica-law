@@ -1,0 +1,51 @@
+ACUERDO ENTRE LA REPUBLICA DE COSTA RICA Y LA
+REPUBLICA DE CHILE SOBRE PREVENCION, CONTROL,
+FISCALIZACION Y REPRESION DEL USO INDEBIDO Y
+TRAFICO ILICITO DE ESTUPEFACIENTES Y SUSTANCIAS
+PSICOTROPICAS Y SUS PRECURSORES
+PRODUCTOS QUIMICOS ESPECIFICOS
+ARTICULO 1.- Se aprueba el Acuerdo entre la República de Costa Rica
+y la República de Chile sobre prevención, control, fiscalización y
+represión del uso indebido y tráfico ilícito de estupefacientes firmado en
+Santiago, el 6 de marzo de 1992, cuyo texto es el siguiente:
+"ACUERDO ENTRE LA REPUBLICA DE CHILE Y LA REPUBLICA DE
+COSTA RICA SOBRE PREVENCION, CONTROL, FISCALIZACION Y
+REPRESION DEL USO INDEBIDO Y TRAFICO ILICITO DE
+ESTUPEFACIENTES Y SUSTANCIAS PSICOTROPICAS Y SUS
+PRECURSORES PRODUCTOS QUIMICOS ESPECIFICOS
+El Gobierno de la República de Chile y el Gobierno de la República de
+Costa Rica, en adelante denominados las Partes Contratantes,
+CONSCIENTES de que el cultivo, producción, extracción, fabricación,
+transformación y comercio ilegales de estupefacientes y sustancias
+psicotrópicas, así como la organización, facilitación y financiamiento de
+actividades ilícitas relacionadas con estas sustancias y sus materias
+primas, tienden a socavar sus economías y poner en peligro la salud de sus
+pueblos, en detrimento de su desarrollo socio-económico.
+REAFIRMANDO los compromisos que ambos Estados han contraído como
+partes de la Convención Unica sobre Estupefacientes del 30 de marzo de
+1961, enmendada por el Protocolo del 25 de marzo de 1972, y en la
+Convención sobre Sustancias Psicotrópicas del 21 de febrero de 1971.
+CONVENCIDOS de la necesidad de adoptar medidas complementarias para
+combatir todos los tipos delictivos y actividades conexas relacionadas con
+el uso y el tráfico ilícito de estupefacientes y sustancias psicotrópicas.
+CONSIDERANDO la conveniencia de establecer una fiscalización rigurosa
+en la producción, distribución y comercialización de los estupefacientes
+y sustancias psicotrópicas, como así también sobre las materias primas
+incluidos los precursores y los productos químicos esenciales utilizados
+en la elaboración y transformación ilícita de dichas sustancias.
+INTERESADOS en establecer medios que permitan una comunicación
+directa entre los organismos competentes de ambos Estados y el intercambio
+de informaciones permanentes, rápidas y seguras sobre el tráfico y sus
+actividades conexas. Y
+TENIENDO en cuenta sus disposiciones constitucionales, legales y
+administrativas y el respeto a los derechos inherentes a la soberanía de
+ambos Estados, acuerdan lo siguiente:
+ARTICULO I
+Las Partes Contratantes se comprometen a emprender esfuerzos
+conjuntos, armonizar políticas y realizar programas específicos para el
+control, la fiscalización y la represión del tráfico ilícito de
+estupefacientes y sustancias psicotrópicas y de las materias primas
+utilizadas en su elaboración y transformación, para contribuir a la
+erradicación de su producción ilícita. Asimismo, los esfuerzos conjuntos
+se realizarán en el campo de la prevención del uso y tratamiento y
+rehabilitación de los toxicómanos.
