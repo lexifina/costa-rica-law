@@ -12,3 +12,4 @@ Banco Nacional Seguros Asume Monopolio Riesgos No Especificados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1943-08-27 | la propia norma |
+| 2 | 1943-08-27 | Ley 8 |
