@@ -1,0 +1,4 @@
+CAPÍTULO XIII
+Mermas, subproductos y desperdicios
+Artículo 79.—En cumplimiento de lo dispuesto por el artículo 16 de la ley 7210 y sus reformas, los beneficiarios que decidan desechar mermas, subproductos y desperdicios deberán comunicarlo por escrito a la municipalidad del cantón donde se ubiquen. La municipalidad deberá presentarse a retirar las mermas, subproductos y desperdicios dentro de un plazo de tres días contados a partir de la comunicación, levantando un acta que deberá ser firmada por el funcionario del puesto de aduana.
+En caso de que la municipalidad no se presente dentro de ese plazo, o que manifieste no tener interés en obtener dichos bienes, el beneficiario puede donarlos, destruirlos o nacionalizarlos previo pago de los impuestos de conformidad con lo dispuesto en este Capítulo

@@ -1,0 +1,1 @@
+Transitorio VI.—El Ministerio de Hacienda comunicará a las empresas y entidades públicas o privadas, proveedoras de los servicios públicos, el no requerimiento del uso de la nota genérica para efectos de la exención del impuesto general sobre las ventas, según lo disponen los artículos 9 de la ley que regula este impuesto y 23 de la Ley 7210 y sus reformas.

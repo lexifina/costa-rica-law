@@ -1,0 +1,1 @@
+Artículo 68.—Procomer proveerá los formularios de Declaración Aduanera de Zona Franca, los cuales deben ser numerados consecutivamente. Procomer llevará un registro de fórmulas suplidas, utilizadas y nulas, si las hubiera, por beneficiario.

@@ -1,0 +1,1 @@
+Artículo 17.—Desde la presentación de la solicitud inicial y luego de dictada la resolución final por el Poder Ejecutivo, Procomer deberá mantener los expedientes relativos a las solicitudes del régimen de zonas francas, debidamente ordenados y foliados.

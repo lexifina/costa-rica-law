@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 29606
+
+Reglamento a la Ley de Régimen de Zonas Francas.
+
+- Tipo: Decreto Ejecutivo
+- Número: 29606
+- Fecha: 2001-06-18
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 121 del 2001-06-25
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=46562&param2=49217&param3=1 (ficha 46562)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2001-06-25 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 56.—Previo a la realización de estas ventas, la empresa beneficiaria deberá remitir a Procomer un detalle de la proyección de ventas que se realizarán durante el período correspondiente, en el formato establecido para tal efecto.

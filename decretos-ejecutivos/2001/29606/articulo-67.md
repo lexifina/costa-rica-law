@@ -1,0 +1,2 @@
+Artículo 67.—Para cualquier trasiego de materias y mercancías que involucre un trámite aduanero, se exigirá la Declaración Aduanera de Zona Franca, excepto para las donaciones y la adquisición de servicios. Copia de esa declaración deberá ser remitida por la empresa o la aduana, según corresponda, a Procomer.
+Asimismo, se requerirá el uso de los marchamos suplidos por Procomer, salvo en el caso de que se trate de internamientos temporales, donaciones, subcontrataciones, compras locales y traslados o ventas entre empresas localizadas en el mismo parque industrial.

@@ -1,0 +1,1 @@
+Artículo 63.—La empresa beneficiaria del régimen de zonas francas será responsable por el pago de cualquier obligación tributario-aduanera, generada por el incumplimiento de los términos de la subcontratación.

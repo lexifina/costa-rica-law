@@ -1,0 +1,1 @@
+Artículo 74.—Los beneficiarios pueden internar temporalmente al territorio aduanero nacional materias y mercancías para efectos de la subcontratación, en los términos de la Sección III del Capítulo XI de este reglamento, sin perjuicio de lo dispuesto en el artículo anterior.

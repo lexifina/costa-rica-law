@@ -1,0 +1,1 @@
+Artículo 65.—Si la empresa beneficiaria subcontratante no presenta el informe al que hace referencia el artículo anterior o no ha cumplido con los términos en que fue autorizada la subcontratación, Procomer podrá revocar la autorización e informará al Ministerio de Comercio Exterior para el inicio del procedimiento correspondiente.

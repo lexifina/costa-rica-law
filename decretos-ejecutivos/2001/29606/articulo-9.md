@@ -1,0 +1,16 @@
+CAPITULO III
+Requisitos, evaluación y trámite de las solicitudes
+para obtener el régimen de zonas francas
+Artículo 9º—Las empresas interesadas en obtener el régimen de zonas francas deben presentar una solicitud ante Procomer, en el formulario oficial que Procomer debe elaborar y tener a disposición de los interesados. La solicitud debe contener:
+a) Datos del solicitante.
+b) Certificación de inscripción y personería, en el caso de personas jurídicas.
+c) Descripción detallada de las actividades que se propone realizar al amparo del régimen, así como un detalle de los productos y subproductos que producirá, un detalle de las materias primas y mercancías que serán incorporadas en el proceso productivo y la proyección de las mermas y desperdicios.
+d) Descripción detallada de la ubicación y características del proyecto.
+e) Información sobre antecedentes y experiencia si la hubiere, de la compañía en actividades equivalentes o similares a las que se propone realizar al amparo del régimen.
+f) Información detallada sobre la contaminación que producirá el proceso productivo y sus desechos, o bien, copia del formulario presentado ante la instancia respectiva del Ministerio de Ambiente y Energía en relación con el estudio de impacto ambiental, cuando corresponda según las leyes y reglamentos aplicables.
+g) Descripción del monto de la inversión nueva inicial en activos fijos, así como la inversión total prevista y el nivel de empleo.
+h) Proyección del Valor Agregado Nacional que se comprometerá a mantener la empresa. Este Cálculo se hará con base en la fórmula establecida para tal efecto en este reglamento.
+i) Declaración jurada de no ser beneficiario de otros regímenes de incentivos.
+j) Lugar para notificaciones dentro de la ciudad de San José.
+k) Cualquier otro documento o información que solicite Procomer y que resulte pertinente.
+La firma del solicitante debe presentarse autenticada.

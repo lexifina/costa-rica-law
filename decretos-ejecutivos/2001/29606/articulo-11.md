@@ -1,0 +1,5 @@
+Artículo 11.—Procomer, para efectos del cálculo de Valor Agregado Nacional (VAN) o Contenido Nacional aplicable al otorgamiento del Régimen de Zonas Francas, interpreta el término VAN como: Exportaciones FOB (X FOB) menos Importaciones CIF (M CIF), más Variación en Inventarios ( Inv), menos remesas, menos Impuestos netos (T).
+VAN = X FOB – M CIF + D Inv –R – T
+Entendiendo que: las importaciones CIF ( M CIF) son aquellas que corresponden a materia prima; la Variación de Inventarios ( Inv) será el resultado del inventario final menos inventario inicial en términos monetarios; el término remesas ( R ) se refiere al monto correspondiente al envío de divisas al extranjero o repatriación de capital y los impuestos netos (T) será el monto por concepto de cualquier tipo de impuesto cancelado al Estado.
+Cuando se trate de empresas de servicios, administradoras y comercializadoras, el término exportaciones deberá entenderse como Ventas totales.
+En el caso de empresas de servicios y administradoras el inventario se considerará igual a cero (0).

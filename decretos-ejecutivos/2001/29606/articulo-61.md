@@ -1,0 +1,1 @@
+Artículo 61.—El plazo autorizado para la subcontratación será fijado por Procomer de acuerdo con las necesidades del interesado y podrá prorrogarse si Procomer estima que las razones que motivaron la autorización se mantienen. En todo caso el plazo máximo, incluyendo las prórrogas, no podrá superar un año.

@@ -1,0 +1,1 @@
+Artículo 16.—Contra la resolución del Poder Ejecutivo, denegando u otorgando el régimen de zonas francas a la empresa solicitante, cabrá el recurso de reposición en los términos de la Ley Reguladora de la Jurisdicción Contencioso-Administrativa.

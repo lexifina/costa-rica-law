@@ -1,0 +1,1 @@
+Artículo 15.—Si el Poder Ejecutivo resuelve no otorgar el régimen de zonas francas a la empresa solicitante, se procederá a emitir la resolución correspondiente, la cual será notificada por Procomer al interesado.

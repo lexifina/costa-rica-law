@@ -1,0 +1,3 @@
+CAPÍTULO XV
+De las Fusiones
+Artículo 84.—Aquellas empresas beneficiarias del régimen de zonas francas que deseen fusionarse entre sí, lo comunicarán a Procomer, de previo a formalizar la fusión. En tal gestión indicarán los niveles de empleo e in versión que pretenden mantener. De llegar a determinarse que con motivo de la fusión, la empresa resultante se encuentra bajo las condiciones del artículo 20 bis de la Ley de Régimen de Zonas Francas, para efectos del disfrute de los beneficios fiscales sujetos a plazo, se mantendrá el otorgado en el acuerdo ejecutivo de la empresa de ingreso más reciente al régimen; de no ser así, se le aplicará el plazo de la empresa con mayor antigüedad en el régimen.
