@@ -1,2 +1,1 @@
-Artículo 5°—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los diecisiete días del mes de abril de mil novecientos noventa.
+Artículo 5°—El personal que actualmente labora en los Talleres Mecánicos que brindan servicio de reparación y mantenimiento a la flota de vehículos oficiales de carácter policial, así como también los repuestos, maquinaria, equipo y demás activos existentes en éstos, deberán reubicarse en “El Taller” de conformidad con un plan que para tal efecto elabore el Consejo Directivo de “El Taller”, en coordinación con los Ministerios participantes. Lo anterior de conformidad con la normativa vigente que rige la materia sobre traslados de personal.

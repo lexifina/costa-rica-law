@@ -14,3 +14,4 @@ Créase "Taller Policial Interministerial" (Posteriormente se cambia su nombre a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-05-30 | la propia norma |
+| 2 | 1994-02-04 | Decreto Ejecutivo 22881 (1994-02-04) |
