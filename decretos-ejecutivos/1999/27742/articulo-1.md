@@ -20,3 +20,8 @@ Sobre valor
 1006.10 Arroz con cáscara (arroz "paddy"):
 1006.10.90 otros 35
 De conformidad con el numeral 3° del decreto ejecutivo antes referido está prórroga tendrá una vigencia del 1° de julio al 31 de octubre de 1999. Vencido dicho plazo, regirán de nuevo los derechos arancelarios vigentes antes de la modificación realizada en el decreto 27742-MEIC-COMEX-MAG, sin perjuicio de la potestad del Poder Ejecutivo de modificar este decreto antes de dicho plazo si lo estima pertinente)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 28214 del 25 de octubre de 1999, se acordó prorrogar hasta el 31 de diciembre de 1999, la modificación realizada a este decreto ejecutivo por decreto ejecutivo N° 27958-MEIC-COMEX-MAG sobre los derechos arancelarios a la importación contemplados en el Arancel Centroamericano de Importación en los rubros que a continuación se detallan:
+Código SAC | Descripción | DA")I
+10.06 | Arroz |
+1006.10 | Arroz con cáscara (paddy) |
+1006.10.90 | Otros |

@@ -15,3 +15,4 @@ Modifica derechos arancelarios de importación al arroz
 | --- | --- | --- |
 | 1 | 1999-03-24 | la propia norma |
 | 2 | 1999-06-23 | Decreto Ejecutivo 27958 (1999-06-23) |
+| 3 | 1999-10-25 | Decreto Ejecutivo 28214 (1999-10-25) |
