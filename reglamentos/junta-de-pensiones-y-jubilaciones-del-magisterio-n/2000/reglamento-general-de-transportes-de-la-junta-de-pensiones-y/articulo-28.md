@@ -1,0 +1,1 @@
+Artículo 28.—El (La) Director (a) Ejecutivo (a) decidirá sobre la aplicación de las sanciones que considere pertinentes a los (a las) funcionarios que incumplan el programa de mantenimiento. Para el caso de los (las) directores (as), competerá a Junta Directiva el establecer las correcciones pertinentes.

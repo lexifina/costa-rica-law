@@ -1,0 +1,1 @@
+Artículo 41.—Ningún (a) conductor (a) de la Institución está autorizado para efectuar arreglos extrajudiciales en caso de accidentes con vehículos de la JUNTA, únicamente deberá indicarle al particular que se apersone o comunique con el Departamento Administrativo para efectuar las gestiones pertinentes.

@@ -1,0 +1,2 @@
+Artículo 4°—Son vehículos de uso discrecional los asignados al Director (a) Ejecutivo (a), al (a la) Presidente (a) de la Junta Directiva, así como los que en tal condición se dispusiere por acuerdo de Junta Directiva para los restantes integrantes del cuerpo colegiado o funcionarios (as) administrativos (as) del máximo nivel jerárquico.
+En el caso de la Dirección Ejecutiva y demás funcionarios (as), bajo ningún supuesto se entenderá que la asignación constituye salario en especie.

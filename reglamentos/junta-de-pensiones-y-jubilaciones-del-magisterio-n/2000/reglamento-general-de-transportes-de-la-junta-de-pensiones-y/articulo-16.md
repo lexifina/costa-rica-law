@@ -1,0 +1,1 @@
+Artículo 16.—Cuando por razones especiales no haya sido posible programar el servicio de transporte y/o se requiera en días y horas no hábiles, sólo podrá ser autorizado por la Presidencia o Dirección Ejecutiva, según corresponda.

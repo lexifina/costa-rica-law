@@ -1,0 +1,1 @@
+Artículo 37.—El (La) conductor (a) que con conocimiento de un daño causado al vehículo, propiedades o personas lo oculte, asumirá la responsabilidad legal que por ello pueda imputársele, sin perjuicio de otras sanciones penales y administrativas.

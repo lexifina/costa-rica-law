@@ -1,0 +1,1 @@
+Artículo 29.—El Departamento Administrativo deberá recomendar la venta o canje de unidades, que por alguna circunstancia han dejado de ser útiles o convenientes para la Junta. Anualmente en el mes de agosto presentara un informe al respecto a la Comisión de Asuntos Económicos y Administrativos".

@@ -1,0 +1,1 @@
+Artículo 10.—Todos los vehículos deberán cumplir con los programas de mantenimiento preventivo y correctivo; así como el control de abastecimiento de combustibles y lubricantes, de kilometraje y diligencias en caso de accidente de transito. El mantenimiento de estos vehículos será responsabilidad directa del Departamento Administrativo.

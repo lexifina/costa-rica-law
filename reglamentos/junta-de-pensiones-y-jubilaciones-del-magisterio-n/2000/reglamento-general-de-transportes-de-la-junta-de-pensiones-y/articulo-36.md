@@ -1,0 +1,1 @@
+Artículo 36.—Los (Las) conductores (as) no deben estacionar los vehículos en lugares donde se coloque en peligro su seguridad personal o del automotor, como tampoco en lugares y locales cuyas características riñan con la moral y las buenas costumbres.

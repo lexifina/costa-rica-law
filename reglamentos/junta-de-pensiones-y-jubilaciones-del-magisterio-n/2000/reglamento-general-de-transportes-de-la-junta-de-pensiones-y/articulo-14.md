@@ -1,0 +1,1 @@
+Artículo 14.—Corresponderá al Departamento Administrativo determinar, de acuerdo con la solicitud presentada, el tipo de vehículo que mejor se adapte a las condiciones del servicio requerido, en coordinación con la Dependencia o instancia solicitante.

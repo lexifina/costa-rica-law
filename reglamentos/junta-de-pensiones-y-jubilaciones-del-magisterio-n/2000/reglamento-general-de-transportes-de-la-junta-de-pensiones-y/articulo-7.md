@@ -1,0 +1,1 @@
+Artículo 7°—La Junta podrá contratar servicios de transporte o reconocer el pago de kilometraje a los (las) directores (as) y funcionarios (as). El pago de kilometraje se regirá por lo que estipule la Contraloría General de la República, según corresponda por acuerdo de Junta Directiva.

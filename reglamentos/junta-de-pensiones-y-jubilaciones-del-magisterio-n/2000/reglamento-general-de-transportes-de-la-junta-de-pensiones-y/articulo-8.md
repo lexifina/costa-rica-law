@@ -1,0 +1,2 @@
+De la identificación de los vehículos
+Artículo 8°—Los vehículos de uso administrativo deberán llevar rótulos visibles en sus costados, mediante los cuales se indiquen claramente las siglas "JUNTA DE PENSIONES Y JUBILACIONES DEL MAGISTERIO NACIONAL", o bien con su logotipo oficial y demás frases de los signos externos debidamente registrados. Se exceptúan de rotulación los vehículos de uso discrecional.

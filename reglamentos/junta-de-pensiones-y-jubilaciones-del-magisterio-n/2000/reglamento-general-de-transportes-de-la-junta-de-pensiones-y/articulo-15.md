@@ -1,0 +1,1 @@
+Artículo 15.—El formulario "Solicitud de Vehículo" deberá autorizarse por los (las) Jefes de Departamento o cualquier otro Jerarca superior según corresponda; quienes podrán delegar por escrito esa autorización cuando la naturaleza de las funciones o las condiciones así lo requieran.
