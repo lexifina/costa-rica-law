@@ -1,0 +1,1 @@
+Artículo 2°-Facultar a la Dirección General de Servicio Civil para que con rige 1° de enero de 1991, reasigne las plazas mencionadas en el artículo 1° a clases de puestos acorde con las necesidades de la administración del Programa.
