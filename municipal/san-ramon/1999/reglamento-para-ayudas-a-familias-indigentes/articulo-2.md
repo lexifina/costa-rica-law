@@ -1,0 +1,1 @@
+Segunda: Las ayudas que brinde la Municipalidad, van orientadas a solucionar problemas socioeconómicos, alimentarios, de vivienda, de salud o de cualquier otro tipo de calamidad que afronten vecinos de escasos recursos económicos del cantón.
