@@ -1,0 +1,1 @@
+Artículo 10.—El Instituto Nacional de Música y la Dirección General de Bandas, pondrán a disposición de sus estudiantes y profesores, el servicio de biblioteca y el repertorio musical de ambos programas.

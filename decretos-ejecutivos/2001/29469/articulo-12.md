@@ -1,0 +1,1 @@
+Artículo 12.—El Instituto Nacional de Música, a solicitud del interesado, expedirá la respectiva certificación de estudios, con el fin que se presente en la Universidad Estatal a Distancia, para efectos de reconocimiento de los estudios realizados en dicho Instituto, a nivel universitario.

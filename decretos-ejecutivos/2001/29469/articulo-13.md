@@ -1,0 +1,1 @@
+Artículo 13.—La Dirección General de Bandas brindará la oportunidad para que estudiantes avanzados del Instituto Nacional de Música, se presenten como solistas en los recreos, conciertos dominicales y especiales, que realicen las Bandas Nacionales.

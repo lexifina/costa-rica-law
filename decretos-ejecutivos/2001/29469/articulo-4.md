@@ -1,0 +1,1 @@
+Artículo 4º—Los permisos a los que se refiere el artículo anterior, serán otorgados en las horas correspondientes a ensayos de las distintas Bandas Nacionales, no siendo factible conceder permiso durante el tiempo destinado a las presentaciones de éstas.

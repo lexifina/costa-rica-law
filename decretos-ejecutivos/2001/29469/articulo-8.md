@@ -1,0 +1,1 @@
+Artículo 8º—Los músicos que participan en el programa de estudios del Instituto Nacional de Música, deben entregar semestralmente a la Dirección General de Bandas con copia a su jefe inmediato, el reporte de las notas obtenidas en cada curso.
