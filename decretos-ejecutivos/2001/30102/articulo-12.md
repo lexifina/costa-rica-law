@@ -1,0 +1,6 @@
+Artículo 12.—Zona 2. (Alajuela, Heredia) Se prohibe la caza mayor y menor con arco y flecha, arma de fuego, cuchillo y perro, según se detalla en los siguientes incisos:
+a) Con excepción de los siguientes días: 1º, 5, 6, 19 y 20 de enero; 2, 3, 16 y 17 de febrero; 2, 3, 16 y 17 de marzo; 6, 7, 11, 20 y 21 de abril; y 1, 4, 5, 18 y 19 de mayo.
+b) En el cantón de Grecia y en los distritos de Piedades Norte, Los Ángeles, Santiago, Piedades Sur, San Rafael y Zapotal del cantón de San Ramón; el distrito de Monterrey del cantón de San Carlos.
+c) En la zona comprendida entre la carretera que conduce de San Ramón a la Fortuna entre los ríos la Esperanza y Río Burro, margen izquierda hasta colindar con El Bosque Eterno de los Niños en los distritos de La Tigra de San Carlos y San Isidro de Peñas Blancas del Cantón de San Ramón.
+d) 100 mts. en ambas márgenes del Río San Rafael en Muelle de San Carlos, entre el puente sobre la carretera que comunica la comunidad de Muelle con Pital y la desembocadura del Río San Rafael en el río San Carlos
+e) Un kilómetro en la margen derecha aguas abajo del Río Virilla, en la zona comprendida entre el Puente sobre la autopista General Cañas y el Puente de Piedras Negras en la carretera que comunica Puriscal con Turrúcares de Alajuela.
