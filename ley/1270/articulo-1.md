@@ -1,4 +1,6 @@
+(Derogado)
 N° 1270
+(Mediante el artículo 1° de la Ley N° 1897 del 7 de julio de 1955, se dispuso prorrogar hasta el 30 de junio de 1960, la vigencia del presente contrato)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
 Artículo único.-Apruébase el contrato N° 19 de fecha 31 de diciembre de 1950, celebrado entre el Gobierno de Costa Rica, representado por el Ministerio de Agricultura, y el Instituto de Asuntos Interamericanos, y que literalmente dice:
