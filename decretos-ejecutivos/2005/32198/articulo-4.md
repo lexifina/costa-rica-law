@@ -1,0 +1,1 @@
+Articulo 4°—Se consideraran beneficiarios de la acción del IMAS los trabajadores registrados en la ultima planilla presentada ante la Caja Costarricense del Seguro Social por cada empresa o patrono. ‘

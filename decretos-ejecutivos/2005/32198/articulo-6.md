@@ -1,0 +1,1 @@
+Articulo 6°—Los funcionarios del IMAS podrán requerir información’ complementaria o condicionar el beneficio al potencial beneficiario, únicamente en aquellos casos en que conste por algún medio informático o documental, que este si posee ingresos adicionales dentro de su núcleo familiar.
