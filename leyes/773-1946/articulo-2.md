@@ -1,0 +1,10 @@
+Artículo 2º.- Inaplicable. (La Corte Suprema de Justicia, mediante resolución de las 8:00 horas del 07 de noviembre de 1979 (expediente N° 0021 BIS-1979, promovido por la Compañía Estiba, Sociedad Anónima) declaró inaplicable este artículo cuyo texto disponía textualmente así: “Agréguese al artículo 366 del Código de Trabajo lo siguiente:
+"Cuando la huelga pueda afectar a cualquiera de las empresas que se refiere el inciso c) del artículo 369, previamente a su declaratoria deberán observarse los siguientes términos:
+a) Se llenarán las exigencias señaladas en este mismo artículo para las huelgas en general;
+b) Una vez declarada legal la huelga el Tribunal respectivo lo comunicará así a la Secretaría de Trabajo, dentro de las 48 horas siguientes al momento en que la resolución quede firme.
+Recibida la comunicación, la Secretaría procederá a integrar un Tribunal Investigador y Conciliador compuesto de tres personas: un representante del patrono o patronos, otro de los trabajadores y un tercero del Estado.
+El Tribunal deberá integrarse, a más tardar, dentro de los tres días siguientes al momento en que la Secretaría hubiere sido notificada de la declaratoria legal para la huelga;
+c) El Tribunal entrará en funciones inmediatamente después de juramentado; estudiará los puntos de vista de ambas partes y tratará de llegar a una conciliación. Este trabajo deberá ser realizado en un plazo improrrogable de ocho días. Vencidos éstos el Tribunal informará por escrito a la Secretaría de
+Trabajo del resultado de sus gestiones dentro de las 24 horas siguientes;
+d) Si el Tribunal Conciliador no consiguió entendimiento entre las partes capaz de poner fin al conflicto, la Secretaría de Trabajo lo hará saber así a las mismas, acompañando a cada una copia del informe del Tribunal. Al mismo tiempo les dará un nuevo plazo de ocho días para que intenten un nuevo acuerdo.
+Vencido este nuevo plazo sin que se haya llegado a un arreglo, la huelga será permitida, pero el Sindicato respectivo no podrá llevarla a cabo sin haber dado aviso de su decisión a la Secretaría de Trabajo con 72 horas de anticipación a la iniciación de la misma”.)
