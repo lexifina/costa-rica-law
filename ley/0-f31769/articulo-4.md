@@ -1,0 +1,2 @@
+CUARTA. Para llenar las faltas de los Magistrados, se sortearán Conjueces entre las personas que reúnan las mismas calidades requeridas para ser Magistrado, que no sean subalternos de la Corte ni empleados de los otros Supremos Poderes, y que no residan á más de veinticinco kilómetros de la capital.
+Quedan así reformados los artículos 3 y 127 de la Constitución, y el 10 del decreto de 26 de abril de 1882 en lo que se refiere á los artículos 120 y 123 de la Constitución.
