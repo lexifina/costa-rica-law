@@ -1,0 +1,1 @@
+Articulo 4°—El pago de la contribución a que se refiere el articulo segundo de este Reglamento deberá hacerse dentro de los ocho días hábiles siguientes al día ultimo del mes a que corresponde el aporte.

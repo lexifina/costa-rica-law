@@ -1,0 +1,1 @@
+Articulo 5°—Los empresarios que estén o llegaren a estar cubiertos por el sistema de planillas pre-elaboradas de la Caja Costarricense de Seguro Social, deberán pagar el aporte correspondiente dentro de los últimos ocho días hábiles del mes siguiente a que corresponda la cuota.

@@ -1,0 +1,1 @@
+Artículo 2° —Los empresarios privados de todas las actividades del país, son obligados a dar un aporte al IMAS, del medio por ciento mensual, sobre las remuneraciones. sean salarios o sueldos, ordinarios y extraordinarios que paga a los trabajadores de sus respectivas empresas.
