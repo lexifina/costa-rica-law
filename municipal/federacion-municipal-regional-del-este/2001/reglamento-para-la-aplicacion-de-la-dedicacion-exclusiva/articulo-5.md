@@ -1,0 +1,1 @@
+Artículo 5°—Esta compensación económica se les pagará a los funcionarios que califiquen según lo estipulado en el articulo 3° de este reglamento, y si existe contenido en el presupuesto federativo para los casos en que no sea requisito obligatorio.

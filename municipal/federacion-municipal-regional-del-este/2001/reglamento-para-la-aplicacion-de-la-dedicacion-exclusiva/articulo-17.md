@@ -1,0 +1,4 @@
+Artículo 17.—El incumplimiento de las disposiciones que rigen el presente reglamento o el respectivo contrato, por parle del profesional que disfruta del beneficio de la dedicación exclusiva, tiene como consecuencia:
+a) La rescisión inmediata del contrato de dedicación exclusiva.
+b) El reintegro a la Federación Municipal Regional del Este por parte del profesional de las sumas que haya recibido por este concepto a partir de la fecha en que incurrió en el incumplimiento.
+c) El incumplimiento por parte del beneficiario de lo establecido en el presentó Reglamento en cuanto a la Dedicación Exclusiva se considerará como infracción grave a la relación laboral y por cuanto será causal de despido sin responsabilidad patronal, adicional a los contemplados en el articulo 81, del Código de Trabajo, sin perjuicio de la responsabilidad penal y administrativa que pudiera generarse con base en dicho reglamento.

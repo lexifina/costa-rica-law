@@ -1,0 +1,1 @@
+Artículo 19.—La Federación Municipal Regional del Este, a través de la Auditoria Interna verificará cuando lo considere necesario, conveniente y de conformidad con los procedimientos que al respecto establece el fiel cumplimiento de todas las disposiciones de este Reglamento.
