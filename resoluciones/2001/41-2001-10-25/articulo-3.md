@@ -1,0 +1,2 @@
+Artículo 3°—Los formularios podrán ser adquiridos en las entidades autorizadas por la Dirección General de Tributación, al mismo precio que los formularios utilizados para la declaración y/o pago de otras obligaciones tributarias.
+El formato e instrucciones de los formularios anexos a esta resolución podrán ser modificados por la Administración Tributaria conforme a sus necesidades, por la simple puesta en circulación del nuevo formato, sin requerir al efecto una resolución que los implemento.
