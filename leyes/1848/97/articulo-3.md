@@ -1,0 +1,1 @@
+Art. 3. En caso contrario, el mismo ejército hará uso del poder de sus armas, siendo responsables los facciosos por la sangre que se derrame por las otras desgracias y perjuicios que reciban los costaricenses fieles á la autoridad y à la ley.
