@@ -14,3 +14,4 @@ Reglamento de Gestión de Cobro Administrativo y Judicial a Patronos Morosos del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-04-02 | la propia norma |
+| 2 | 2004-07-22 | Reglamento 54 (2004-07-22) |

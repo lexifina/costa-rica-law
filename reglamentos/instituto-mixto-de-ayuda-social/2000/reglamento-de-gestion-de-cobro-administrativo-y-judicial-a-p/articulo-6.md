@@ -8,4 +8,6 @@ Artículo 6°—De las funciones de la Comisión Institucional de Cobro. Serán 
 7. Preparar, en coordinación con otras unidades administrativas, las normas y procedimientos que permitan hacer más eficaz el proceso de inspección y recaudación de tributos.
 8. Cualquier otra que le asigne el Consejo Directivo, el Presidente Ejecutivo o Gerente General.
 9. Recomendar la resolución o rescisión de cualquier relación contractual que se genere con motivo de la gestión de cobro
+10. Proponer al Consejo Directivo las políticas sobre administración, percepción y fiscalización de tributos que deberá implementar el Instituto Mixto de Ayuda Social.
+(Así Adicionado mediante el Acuerdo N° 297 del acta No. 054-04 del 22 de Julio del 2004)
 En aquellos casos en que la Comisión Institucional de Cobro conozca en alzada de algún aspecto resuelto por la Unidad de Gestión de Cobro, el responsable de esta última deberá abstenerse de resolver al respecto como integrante de dicho cuerpo colegiado.

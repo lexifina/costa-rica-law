@@ -1,5 +1,7 @@
-Articulo 5°—De la Comisión Institucional de Cobro. La Comisión estará integrada por los siguientes funcionarios:
-1. El Gerente Administrativo Financiero o su representante.
-2. El Coordinador del Área de Apoyo y Asesoría Financiera.
-3. El Asesor Jurídico General o su representante.
-4. El responsable de la Unidad de Gestión de Cobro
+Articulo 5°—De la Comisión Institucional de Cobro. Se crea una Comisión Permanente de Administración Tributaria, la cual estará conformada por los siguientes funcionarios:
+a) El (la) Gerente(a) General, quien fungirá como Coordinador.
+b) El (la) Subgerente(a) Administrativo- Financiero.
+c) El (la) Coordinador (a) del Área de Apoyo y Asesoría Financiera
+d) El (la) Asesor Jurídico General.
+e) El (la) Profesional Responsable Unidad de Administración Tributaria
+(Así Reformado mediante el Acuerdo N° 297 del acta No. 054-04 del 22 de Julio del 2004)
