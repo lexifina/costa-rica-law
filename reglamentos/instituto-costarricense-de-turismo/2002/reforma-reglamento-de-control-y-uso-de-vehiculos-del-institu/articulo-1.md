@@ -1,0 +1,6 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+En sesión ordinaria de Junta Directiva Nº 5217, artículo 5, inciso IX, celebrada el día 3 de diciembre del 2002.
+a) Se acuerda: Aprobar y adicionar la reforma al artículo 19 del Reglamento Interno de Uso de Vehículos, a efectos de que no exista problema para los choferes asignados a los máximos jerarcas de la Institución en el uso de los vehículos discrecionales respectivos, según oficio DL-1343-2002 de la Dirección Legal, en los siguientes términos:
+"Artículo 19.—Son vehículos de uso discrecional aquellos asignados para el uso exclusivo de los funcionarios autorizados por la Ley de Tránsito Nº 7331; a efectos de facilitar el desempeño de funciones propias de su cargo, dentro o fuera de la jornada laboral ordinaria, en días hábiles o inhábiles.
+Queda expresamente prohibido el uso del vehículo de uso discrecional para personas diferentes al funcionario al cual se le asignó el mismo, salvo en casos de los choferes al servicio de cada uno de los jerarcas, o cuando para situaciones especiales y mantenimiento del vehículo, el Departamento Administrativo asigne un chofer con la anuencia del funcionario autorizado.
+El funcionario al cual se le haya asignado un vehículo de uso discrecional, velará por su custodia, uso, conservación y mantenimiento".
