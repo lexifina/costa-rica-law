@@ -1,0 +1,1 @@
+Artículo 15.—Se deroga el Decreto Nº 28828-S del 17 de agosto del 2000, "Reglamento General de Habilitación de Establecimientos de Salud y Afines", y el Decreto Nº 24600-S del 14 de septiembre de 1995, "Reglamento para la Atención PreHospitalaria de Pacientes de Cota Rica".

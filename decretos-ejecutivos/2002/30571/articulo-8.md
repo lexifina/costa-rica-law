@@ -1,0 +1,1 @@
+Artículo 8º—Todos los establecimientos de salud y afines, independientemente del grupo en que hayan sido o sean clasificados, deberán cumplir con la normativa sanitaria ambiental vigente, so pena de perder la Habilitación concedida o de hacerse acreedores a las medidas sanitarias especiales establecidas en la Ley General de Salud.
