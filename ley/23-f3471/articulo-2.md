@@ -1,0 +1,2 @@
+Artículo 2°.- Los hijos menores de veintiún años, de padre costarricense que hubiere perdido la nacionalidad, podrá al ser mayores, reclamar la calidad de costarricense declarándolo ante los agentes diplomáticos o cónsules de la República, si residieren fuera de ella o ante la Secretaría de Relaciones Exteriores si residieren en territorio nacional, se les considerará como costarricenses, sin necesidad de más formalidades.
+Lo mismo se entenderá de los hijos naturales de madre costarricense que hubiere perdido su nacionalidad y que hayan sido reconocidos por padre extranjero.

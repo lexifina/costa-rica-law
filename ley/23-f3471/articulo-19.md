@@ -1,0 +1,2 @@
+Artículo 19.- Quedan a salvo sobre ciudadanía, extranjería, naturalización, derechos y obligaciones de los extranjeros, las estipulaciones de los tratados internacionales.
+Al Poder Ejecutivo.- Dado en el salón de sesiones del Palacio Nacional, en San José, a los veinte días del mes de diciembre de mil ochocientos ochenta y seis.- San José, a veintiuno de diciembre de mil ochocientos ochenta y seis-
