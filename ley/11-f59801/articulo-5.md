@@ -1,0 +1,1 @@
+Art. 5° Los seis Conjueces de que habla el art. 1° de esta ley, quedan sujetos en las recusaciones, escusas, deberes y prerogativas á lo que disponen las leyes, respecto á los Conjueces natos del Tribunal.
