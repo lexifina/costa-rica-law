@@ -1,0 +1,1 @@
+Artículo 16.—Los directores y demás miembros asesores y funcionarios que participen de las sesiones guardarán absoluta reserva acerca de las deliberaciones y votaciones que han dado motivo a la resolución de fondo.
