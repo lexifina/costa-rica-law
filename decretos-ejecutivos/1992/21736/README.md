@@ -26,3 +26,4 @@ Establece el monto de dietas a la Junta Nacional de Pensiones y otros Consejos.
 | 11 | 1999-10-01 | Decreto Ejecutivo 28234 (1999-10-01) |
 | 12 | 2000-05-03 | Decreto Ejecutivo 28660 (2000-05-03) |
 | 13 | 2000-05-03 | Decreto Ejecutivo 28661 (2000-05-03) |
+| 14 | 2001-01-19 | Decreto Ejecutivo 29359 (2001-01-19) |
