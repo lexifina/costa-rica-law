@@ -1,0 +1,6 @@
+Artículo 32.-Para eI debido cumplimiento de los fines que justifican su establecimiento, conforme a lo estipulado en el articulo 4° de esta Ley, la Caja tendrá a su cargo las siguientes obligaciones:
+1) Efectuar el servicio de intereses y amortización de la deuda interna de la República , de acuerdo con las estipulaciones vigentes.
+2) Atender el servicio de intereses y amortización de las obligaciones contraídas por la República con el Export-Import Bank of Washington, D. C., en las condiciones establecidas en los respectivos contratos.
+3) Efectuar, cuando la Junta lo considere posible y conveniente y se promulgue al efecto una ley especial, el servicio de intereses y amortización de la deuda externa de la República , conforme a los términos y condiciones que dicha ley establezca.
+4) Atender el servicio de intereses y amortización de las deudas de las Municipalidades y de las demás Instituciones autónomas del Estado, en los términos y condiciones que se determinen en los contratos que al efecto celebre la Caja con los referidos organismos.
+5) Cumplir todas las demás obligaciones impuestas en el texto de la presente ley y que sean necesarias o convenientes para el mejor logro de sus propósitos, así como las que contraiga en virtud de disposiciones contractuales celebradas de acuerdo con esta ley.

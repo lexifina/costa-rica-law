@@ -1,0 +1,1 @@
+Artículo 15. -Cuatro miembros de la Junta formarán quórum en sesión ordinaria o extraordinaria, y sus acuerdos se tomarán, salvo disposición legal en contrario, por mayoría de votos presentes; en caso de empate resolverá el Presidente en funciones.
