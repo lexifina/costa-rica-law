@@ -1,0 +1,1 @@
+Artículo 17.—Recursos: La denegación motivada de una solicitud de permiso para la prestación del servicio de suministro de agua potable a los buques que atracan en los puertos ubicados en Limón y Moín, tendrán recurso de reposición, cuya resolución agotará la vía administrativa.

@@ -1,0 +1,1 @@
+Artículo 3°—Servicio público: El servicio de suministro de agua potable a los barcos en las terminales portuarias se rigen por los principios de servicio público: continuidad, eficiencia, adaptación a todo cambio en el respectivo régimen legal, o en la necesidad social que satisfacen, e igualdad de oportunidad y trato a los usuarios.

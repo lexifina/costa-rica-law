@@ -1,0 +1,11 @@
+IV.—Obligaciones del permisionario:
+-Artículo 18.- El permisionario deberá cumplir con las siguientes obligaciones:
+a. Prestar el servicio dentro de los más altos principios éticos y de sana competencia, bajo óptimas condiciones de seguridad, higiene, calidad, eficiencia, economía y competitividad. Para que JAPDEVA pueda verificar estas condiciones, el permisionario deberá suministrarle, dentro del plazo que se le señale, la información que le fuere solicitada, así como permitir la toma de muestras de agua para análisis en cualquier momento.
+b. Contratar la prestación del servicio con los usuarios, sin establecer ningún tipo de discriminación entre éstos, que atente contra los principios del servicio público.
+c. Cancelar a JAPDEVA el canon por derecho de uso de las instalaciones portuarias, cuyo pago deberá realizarse dentro de los tres días hábiles siguientes a la prestación del servicio.
+d. Cancelar el canon correspondiente a la Autoridad Reguladora de los Servicios Públicos (ARESEP), según su ley orgánica y reglamento.
+e. Acatar todas aquellas medidas operativas que JAPDEVA disponga para optimizar las labores de suministro de agua potable a los buques que atracan en los puertos de Limón y Moín.
+g. Respetar rigurosamente los planes de trabajo y enmiendas que la Administración Portuaria de JAPDEVA elabore. A efecto de logra la debida coordinación en la elaboración y ejecución de esto; planes, nombrará un representante ante la Gerencia Portuaria de JAPDEVA.
+h. Responder por los daños y perjuicios que ocasione, tanto a lo; usuarios como a los terceros, con motivo de sus actividades, y ante JAPDEVA por los que cause a las instalaciones portuarias, utillaje 3 maquinarias. Los permisionarios no podrán establecer limitaciones a los usuarios sobre la cobertura de esta responsabilidad.
+i. Asegurar a su personal contra riesgos profesionales y cumplir cor todas las obligaciones que impone el Código de Trabajo y leyes conexas.
+j. Brindar un informe mensual a la Gerencia Portuaria de JAPDEVA relativo al personal activo en sus operaciones, al igual que informal dentro de los tres días hábiles siguientes, sobre la cesación por cualquier causa de algún integrante de su personal y devolver los carnets de los trabajadores cesados.

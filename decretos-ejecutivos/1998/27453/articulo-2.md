@@ -1,0 +1,1 @@
+Artículo 2°—El órgano competente: Corresponde al Consejo de Administración- de JAPDEVA, en su carácter de Autoridad Portuaria aprobar en definitiva las solicitudes de permisos para la prestación del servicio de suministro de agua potable a los buques que atracan en los muelles ubicados en Limón y Moín.

@@ -1,0 +1,1 @@
+Artículo 15.—Análisis de la solicitud: La Gerencia Portuaria someterá a riguroso análisis las solicitudes presentadas. Dentro del plazo de cinco días hábiles, la Gerencia Portuaria elevará al Consejo de Administración de JAPDEVA el informe técnico y la recomendación respectiva.

@@ -1,0 +1,1 @@
+Artículo 6°—Plazo: Los permisos se otorgarán por el plazo de un año, que a su vencimiento podrá prorrogarse por períodos iguales, previo acuerdo escrito entre las partes. El plazo de vigencia de cada permiso empezará a correr a partir de la notificación legal del acuerdo del acto firme del otorgamiento del mismo.

@@ -1,0 +1,1 @@
+Artículo 7°—Oportunidad de presentar la solicitud: JAPDEVA mantendrá abierta la posibilidad de recibir solicitudes para la prestación del servicio de suministro de agua potable a los barcos en las terminales portuarias de Limón y Moín.
