@@ -1,0 +1,1 @@
+Artículo 57.—Existen dos tipos de votación: Nominal y Secreta. Es nominal la votaci6n cuando cada uno de los miembros de la Junta Directiva exprese en forma oral su voto; es secreta aquella votación que se baga mediante el uso de papeletas o por cualquier otro medio a juicio del organismo.

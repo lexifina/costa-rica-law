@@ -1,0 +1,1 @@
+Artículo 100.—Para estimular a los dirigentes, atletas y entrenadores, el Comité Cantonal nombrará una Comisión integrada por tres miembros, que escogerá al mejor atleta, mejor entrenador y mejor dirigente deportivo.

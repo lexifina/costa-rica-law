@@ -1,0 +1,1 @@
+Artículo 56.—Los acuerdos y fallos quedan firmes con votación de mayoría simple de los miembros del Comité, igual cantidad de votos x requiere para modificar un artículo o fallo que haya quedado firme.

@@ -1,0 +1,1 @@
+Artículo 6º—El Comité Cantonal y los Órganos que él designe son los encargados del deporte y la recreación en el cantón de Guácimo, según los planes Municipalidades y nacionales que en esta materia dicten la Municipalidad y el ICODER de acuerdo a las leyes vigentes.

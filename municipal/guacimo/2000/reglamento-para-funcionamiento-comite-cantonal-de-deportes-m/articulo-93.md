@@ -1,0 +1,1 @@
+Artículo 93.—Los directivos del Comité Cantonal no podrán formar parte o integrar los Comités Comunales, los Distritos Deportivos y estos a su vez los Subcomités de Deportes de Recreación y Sub-comités Administrativos de Campos, según la estructura organizativa contenida en este Reglamento.

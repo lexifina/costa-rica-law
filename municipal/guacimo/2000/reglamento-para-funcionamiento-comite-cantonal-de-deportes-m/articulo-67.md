@@ -1,0 +1,1 @@
+Artículo 67.—Corresponde al Conserje realizar las labores misceláneas que le encomienda la Administración, mantener limpias las oficinas, entregar la correspondencia emitida por el Comité y realizar los trabajos de polígrafo y fotocopia que se requieran y cualquier otra función que se le asigne.

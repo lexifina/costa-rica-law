@@ -1,0 +1,16 @@
+# Reglamento municipal (2000-03-01)
+
+Reglamento para Funcionamiento Comité Cantonal de Deportes, Municipalidad de Guácimo
+
+- Tipo: Reglamento municipal
+- Número: 9
+- Fecha: 2000-03-01
+- Ente emisor: Municipalidad de Guácimo
+- Publicación: La Gaceta N° 141 del 2000-07-21
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44508&param2=46931&param3=1 (ficha 44508)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2000-07-21 | la propia norma |
