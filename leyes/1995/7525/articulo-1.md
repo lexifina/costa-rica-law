@@ -1,3 +1,4 @@
+(NOTA: Mediante decreto ejecutivo N° 24665 del 30 de agosto de 1995, la República de Costa Rica se adhiere a la presente Convención)
 APROBACION DE LA CONVENCION SOBRE LA PROHIBICION DE
 UTILIZAR TECNICAS DE MODIFICACION AMBIENTAL CON
 FINES MILITARES U OTROS FINES HOSTILES
