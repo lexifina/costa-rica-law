@@ -1,0 +1,1 @@
+Artículo 4º—La Dirección General de Informática del Ministerio de Hacienda asignará a los funcionarios de los órganos que recomienden el otorgamiento de exenciones y a los funcionarios del Departamento de Exenciones las claves de acceso para realizar las gestiones relacionadas con la recomendación y autorización de las exenciones tributarias por medio de EXONET.

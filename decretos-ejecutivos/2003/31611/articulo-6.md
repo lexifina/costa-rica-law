@@ -1,0 +1,1 @@
+Artículo 6º—Los funcionarios del Departamento de Exenciones y de los Órganos que recomienden el otorgamiento de exenciones que faciliten o presten su código o clave de acceso asignado para ingresar a EXONET serán sancionados conforme lo establecen los artículos 96 y 97 del Código Tributario, según sea el caso.

@@ -1,0 +1,2 @@
+Artículo 5º—Transcurrido un año a partir de la inscripción del administrado en EXONET, este debe actualizar su información y documentación respectiva y el Departamento de Exenciones deberá registrar dicha información a efectos de que el registro de beneficiarios de EXONET se mantenga actualizado.
+Cuando surja alguna duda sobre la veracidad de la misma y la autenticidad de la documentación se deberá prevenir al administrado a efecto de que éste aporte lo requerido, bajo el perjuicio de ser excluido de EXONET de no cumplir con lo solicitado.
