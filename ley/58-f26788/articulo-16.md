@@ -1,0 +1,1 @@
+Art. 16. Si llamado el Suplente por haberse dado declaratoria de haber lugar á la formacion de causa contra el propietario, quedare este absuelto en el juicio, será inmediatamente repuesto á su empleo.

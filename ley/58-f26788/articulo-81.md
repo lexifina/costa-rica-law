@@ -1,0 +1,1 @@
+Art. 81. Cuando el Tribunal necesitare aclaraciones ú oir de nuevo al que rindió las cuentas ó autoridad que las revisó, lo exigirà por los mismo órganos que vinieron, expresando los objetos, ó artículos sobre que lo desea; y aquellos lo verificaràn, y devolverán al Tribunal.

@@ -1,0 +1,1 @@
+Art. 53. Los empleados de la Secretaria asistiran à ella precisamente en los dias en que se reuna el Consejo, á las ocho de la mañana, y de las tres de la tarde á las seis, sin perjuicio de aumentar las horas del trabajo, segun estime el Presidente, siempre que ocurran asuntos que lo exijan.

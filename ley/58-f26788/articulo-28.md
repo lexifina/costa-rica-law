@@ -1,0 +1,1 @@
+Art. 28. El Gefe Supremo del Estado asistirá tambien al Consejo cuando lo estime necesario, ó lo exija la importancia de algun negocio. En estos casos se colocaràn dos asientos bajo el docel, tomarà el primero el Gefe Supremo, y el segundo el Presidente del Consejo; pero aquel no podrá hallarse presente en el debate, ni concurrir a la votación.

@@ -1,0 +1,1 @@
+Art. 9. El Presidente podrá licenciar con causa legìtima à los Consejeros para que se ausenten por tres dias, sin sueldo, siempre que no haya asuntos graves y urgentes ò que se reponga la falta con otro individuo del Cuerpo: en el caso que previene el art. 4° de la citada ley, podràn alternarse los Consejeros por el tiempo que juzgue conveniente el mismo Presidente.

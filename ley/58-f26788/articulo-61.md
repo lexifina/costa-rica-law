@@ -1,0 +1,1 @@
+Art. 61. Los gastos de escritorio de la Secretaría del Consejo se cubrirán por el Tesoro del Estado, debiendo la misma dar cuenta de estos y de los que expresa en su última parte el artìculo 4° presentándola en fin de año al Consejo, para su exàmen y aprobacion.

@@ -1,0 +1,1 @@
+Art. 86. El Tribunal todos los años en el curso de las Sesiones ordinarias de la Legislatura, presentarà à esta, un cuadrante ó estado de las cuentas de todos los ramos con especificacion de la ecsistencia de sus caudales, y de las que no se hayan aprobado, ó presentado con la razon de su causal.

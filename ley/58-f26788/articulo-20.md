@@ -1,0 +1,1 @@
+Art. 20. Deberá el Consejo reunirse en sesion extraordinaria siempre que lo exija algun asunto de urgencia, el mas pronto despacho de los negocios, ò sea convocado por el Ejecutivo, pudiendo en este caso ser diarias á juicio del Presidente.

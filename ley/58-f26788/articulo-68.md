@@ -1,0 +1,1 @@
+Art. 68. El acusado podrá recusar un Juez de los que deban componer el Tribunal, manifestando la causa dentro de veinticuatro horas, si los documentos en que se funde ó los testigos que hayan de acreditarla existieren en el lugar, y si lo fueren unos, ú otros fuera de él, dentro el termino que los mismos Jueces designen para el efecto.
