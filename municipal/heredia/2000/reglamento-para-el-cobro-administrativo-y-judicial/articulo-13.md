@@ -1,2 +1,0 @@
-Artículo 13°.-Los abogados deberán tener experiencia en la tramitación de cobros judiciales y debidamente incorporados al colegio respectivo y devengarán honorarios que pagará el contribuyente moroso, de acuerdo con la tarifa y normas indicadas en el artículo 29 de este Reglamento.
-Entre la Municipalidad y el profesional no existe ninguna relación de servicio y no genera responsabilidades de tipo laboral. La relación contractual que se establezca será regida por los términos dispuestos en la Ley de Contratación Administrativa.
