@@ -1,10 +1,4 @@
-ARTÖCULO 1§.-Cuando se probare que el ganado
-ha salido de los potreros ¢ solares en que se hallaba
-sin culpa de su due¤o, quedar ‚ste libre de
-la multa que establece el art¡culo 207 del citado Reglamento;
-mas si el ganado se encontrare en las sementeras
-¢ plantaciones, ser responsable su due¤o
-los da¤os y perjuicios que causare no ser que
-hubiese salido por culpa de alguna persona que no
-fuere sirviente del mismo due¤o, en cuyo caso esta
-ser la responsable.
+DECRETO XXIII
+Reforma los artículos 207 y 210 del Reglamento de Policía número 20 de 30 de octubre de 1849, el 6° del número 7 del 31 de mayo de 1855 y la orden suprema número 01 del 13 de octubre de 1864.
+El Senado y la Cámara de Representantes de la República de Costa Rica, reunidos en Congreso, Considerando: que la experiencia ha demostrado la necesidad de reformar en un sentido equitativo los artículos 207 y 210 del Reglamento de Policía número 20 de 30 de octubre de 1849, 6° de la ley número 7 del 31 de mayo de 1855, y orden Suprema n° 61 de 13 de octubre de 1864, Decretan:
+Artículo 1°-Cuando se probare que el ganado ha salido de los potreros solares en que se hallaba sin culpa de su dueño, quedar ‚esté libre de la multa que establece el artículo 207 del citado Reglamento; más si el ganado se encontrare en las cementeras plantaciones, ser responsable su dueño los daños y perjuicios que causare no ser que hubiese salido por culpa de alguna persona que no fuere sirviente del mismo dueño, en cuyo caso esta ser la responsable.
