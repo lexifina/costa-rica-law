@@ -1,0 +1,2 @@
+Artículo 3°-Los miembros del Comité serán nombrados por el Poder Ejecutivo por períodos de dos años, los miembros señalados en los incisos d), g) e i) del artículo anterior, serán escogidos en una terna enviada por las instituciones respectivas al señor Ministro de Salud. Los miembros del Comité podrán ser reelectos.
+Se nombrará un miembro suplente respecto de cada titular, a fin de que lo reemplace en casos de ausencia. Los cargos serán obligatorios y ad honorem.

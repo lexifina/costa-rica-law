@@ -1,0 +1,1 @@
+Artículo 15.-Se derogan los decretos N° 15373 S de 12 abril de 1984 y N° 15886 S del 3 de diciembre de 1984, así como cualquier otra disposición reglamentaria que se oponga a las contenidas en el presente Decreto.

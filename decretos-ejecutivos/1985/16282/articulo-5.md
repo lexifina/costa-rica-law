@@ -1,0 +1,1 @@
+Artículo 5°-El Comité celebrará una sesión ordinaria mensual, pero podrá ser convocado a reuniones extraordinarias por el Presidente, por simple decisión de él o a solicitud de dos de sus miembros, con no menos de cuarenta y ocho horas de antelación.

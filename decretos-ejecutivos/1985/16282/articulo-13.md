@@ -1,0 +1,1 @@
+Artículo 13.-A los alumnos que resulten aprobados finalizado el programa, se les otorgará un certificado que los acreditará como Auxiliares de Enfermería, facultándolos para trabajar bajo la supervisión de una Enfermera Graduada, un médico cirujano o un odontólogo, en ausencia de estas.

@@ -1,0 +1,1 @@
+Artículo 8°-Contra los acuerdos que adopte el Comité, los interesados podrán interponer los recursos de revocatoria y apelación ante la Presidencia Ejecutiva de la Caja Costarricense de Seguro Social, dentro de los cinco días posteriores a su notificación.

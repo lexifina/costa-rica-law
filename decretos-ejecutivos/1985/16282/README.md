@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 16282
+
+Reglamento general de los programas de formación para auxiliares de enfermería
+
+- Tipo: Decreto Ejecutivo
+- Número: 16282
+- Fecha: 1985-05-16
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 113 del 1985-06-17
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6880&param2=7353&param3=1 (ficha 6880)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1985-06-17 | la propia norma |
