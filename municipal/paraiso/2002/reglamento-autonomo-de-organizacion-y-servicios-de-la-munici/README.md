@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de Paraís
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-19 | la propia norma |
+| 2 | 2004-11-12 | Reglamento municipal 497 (2004-11-12) |
