@@ -1,0 +1,1 @@
+Artículo 14.-Respecto al procedimiento establecido en este Reglamento para la subasta pública, regirá supletoriamente en lo que fuese aplicable, lo dispuesto en cuanto al apremio en el Código de Procedimientos Civiles, capítulo IV.

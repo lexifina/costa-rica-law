@@ -1,0 +1,2 @@
+Artículo 6°-No habiendo postor, queda facultada la Dirección General Forestal para sacar de nuevo los bienes a pública subasta por una única vez dentro del mes siguiente, con un precio de base rebajado en un 10% si se trata madera de tipo A y B, y en un 25 % las tipo C.
+Si tampoco hubiese postores, la citada Dirección pondrá a la orden de la autoridad judicial que está conociendo el asunto, para que nombre como depositario de la misma al Ministerio de Agricultura y Ganadería.
