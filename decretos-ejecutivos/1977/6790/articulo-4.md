@@ -1,0 +1,1 @@
+Artículo 4°.- Además contará el Comité con un Secretario-Coordinador, encargado de convocar a sesiones; de llevar las actas; de atender la correspondencia; de ejecutar los acuerdos del Comité y de realizar cualquier otra función que se le encomiende.

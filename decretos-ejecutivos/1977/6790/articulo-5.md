@@ -1,0 +1,1 @@
+Artículo 5°.- El Comité se reunirá ordinariamente un vez por mes y extraordinariamente las veces que fuera necesario y formarán quorum la mitad más uno de sus miembros. El Secretario-Coordinador tendrá voz y voto en las sesiones del comité

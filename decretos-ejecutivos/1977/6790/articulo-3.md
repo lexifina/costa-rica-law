@@ -1,0 +1,1 @@
+Artículo 3°.- El Comité estará integrado por un funcionario del sector de salud y su respectivo suplente en cada una de las siguientes disciplinar; Medicina; Enfermería; Servicios Administrativos; Servicio de mantenimiento y de Educación en Salud. Estos cargos se desempeñarán “ad-honorem”.

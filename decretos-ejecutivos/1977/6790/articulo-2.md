@@ -1,0 +1,1 @@
+Artículo 2°.- Para el cumplimiento de sus fines el relacionado Comité podrá integrar Comités a nivel regional y local para asegurar el proceso de aplicación de estas normas, los cuales tendrán la misma estructura del comité central.
