@@ -14,3 +14,4 @@ Modifica la Integración de la Junta de Desarrollo Portuario del Cantón de Golf
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-16 | la propia norma |
+| 2 | 2002-09-10 | Decreto Ejecutivo 30744 (2002-09-10) |

@@ -1,4 +1,6 @@
+(Derogado)
 Nº 30567-MOPT
+(DEROGADO por el artículo 3 del Decreto Ejecutivo N° 30744 de 3 de octubre del 2002)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
 En el ejercicio de las facultades y prerrogativas conferidas en el artículo 140, incisos 3) y 18) de la Constitución Política; asimismo con fundamento en los numerales 1, 2 y 3 de la Ley de Creación del Ministerio de Obras Públicas y Transportes Nº 4736; los artículos 4, 1, 27, 28, incisos 1) y 2), ítemes a) y b) de la Ley General de la Administración Pública Nº 6227 y el numeral 48 de la Ley Nº 7040.
