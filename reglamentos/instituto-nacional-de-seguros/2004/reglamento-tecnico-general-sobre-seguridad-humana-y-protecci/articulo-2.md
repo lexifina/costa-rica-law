@@ -1,0 +1,1 @@
+Artículo 2º—Disposiciones complementarias. El Cuerpo de Bomberos, mediante disposiciones de la Gerencia del Instituto Nacional de Seguros dictará el Manual de normas técnicas complementarias a que se refiere este reglamento. Las versiones surgidas por las revisiones anuales que realice el Cuerpo de Bomberos serán aprobadas por la Gerencia.
