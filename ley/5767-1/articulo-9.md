@@ -1,0 +1,3 @@
+ARTICULO 9°
+Comunicaciones
+El CIME goza en Costa Rica, para sus comunicaciones oficiales, de un trato no menos favorable que el acordado por el Gobierno a cualquier otro gobierno, inclusive sus misiones diplomáticas, u organismos internacionales, en cuanto a prioridades, tarifas, tasas, contribuciones e impuestos aplicables a la correspondencia, cables, telegramas, radiogramas, telex, telefotos, teléfonos y otras comunicaciones, y de tarifas especiales para las informaciones destinadas a la prensa, la radio y la televisión, siempre que ese trato no sea incompatible con lo dispuesto en convenciones internacionales.
