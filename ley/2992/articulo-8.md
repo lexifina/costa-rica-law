@@ -1,0 +1,1 @@
+Artículo 8°-Este Tratado será sometido a ratificación constitucional en los tres Estados contratantes y durará el término de diez años a partir de la última ratificación. Sin embargo, tendrá vigencia bilateral por ese mismo término, si sólo lo ratifican dos de las tres partes contratantes.

@@ -1,0 +1,2 @@
+Disposiciones Generales
+Artículo 7°-Las diferencias que pudieran surgir sobre la interpretación o aplicación de cualquiera de las cláusulas de este Tratado, deberán resolverse fraternalmente entre las partes contratantes. Caso de no llegarse a un acuerdo, las partes correspondientes se comprometen a nombrar y aceptar el fallo de una Comisión interamericana de Arbitraje. Mientras el fallo no se produzca, los efectos del punto en divergencia quedarán en suspenso.
