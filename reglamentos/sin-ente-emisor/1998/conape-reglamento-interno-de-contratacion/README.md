@@ -13,3 +13,4 @@ CONAPE: Reglamento Interno de Contratación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-12-15 | la propia norma |
+| 2 | 2001-07-19 | Reglamento 28 (2001-07-19) |
