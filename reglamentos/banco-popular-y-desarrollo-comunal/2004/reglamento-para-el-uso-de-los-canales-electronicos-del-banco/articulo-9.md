@@ -1,0 +1,1 @@
+Artículo 9º—De la validez jurídica de las manifestaciones. Toda utilización que haga el usuario al elegir cualquiera de las opciones habilitadas en los canales electrónicos referidos, se entenderá como expresión de su voluntad que tendrá fuerza obligatoria y plena validez jurídica.

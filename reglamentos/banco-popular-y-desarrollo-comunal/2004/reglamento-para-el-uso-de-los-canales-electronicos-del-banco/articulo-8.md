@@ -1,0 +1,1 @@
+Artículo 8º—De la inaccesibilidad a los canales electrónicos. El Banco no asumirá responsabilidad alguna cuando el usuario no pueda accesar a los servicios o productos que éste ofrece a través de los canales electrónicos. No obstante, el Banco pone a disposición la prestación de servicios por los medios usuales y alternos, en las diferentes oficinas ubicadas en todo el país.

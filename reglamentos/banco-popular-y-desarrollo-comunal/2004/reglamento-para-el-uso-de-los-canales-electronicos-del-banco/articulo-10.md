@@ -1,0 +1,1 @@
+Artículo 10.—Pago por servicios a terceros. Cuando el usuario realice pagos por servicios a terceros por medio de los canales electrónicos, las relaciones del usuario y dichos terceros se regirán por los contratos celebrados para dichos efectos, por lo que el Banco no asumirá responsabilidad sobre la calidad de la prestación del servicio o insuficiencia en el pago.

@@ -1,0 +1,1 @@
+Artículo 4º—Del acceso a los servicios a través de los canales electrónicos. Para ingresar a los servicios y productos por medio de los canales electrónicos, es indispensable ser titular de una cuenta cliente y contar con la tarjeta de débito del Banco.

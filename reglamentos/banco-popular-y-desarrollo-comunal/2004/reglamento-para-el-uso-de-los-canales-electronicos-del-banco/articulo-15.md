@@ -1,0 +1,1 @@
+Artículo 15.—De los servicios que ofrece. Los cajeros automáticos pueden ser accedidos los 365 días del año, las 24 horas del día, por los usuarios de Tarjeta de Débito Popular, Tarjeta de Crédito Visa Banco Popular y Tarjetas de Débito de Marca Compartida. Además permite el procesamiento de Tarjetas VISA PLUS, VISA ELECTRÓN y otras que el Banco integre a futuro.

@@ -1,0 +1,3 @@
+Artículo 19.—Del acceso a través de las redes de cajeros automáticos, propiedad de terceros, subcontratadas por el Banco. El usuario o titular de una cuenta cliente podrá acceder las redes de cajeros automáticos pertenecientes a otras entidades, con los cuales el Banco cuente con un convenio de interconexión vigente. En las mismas el usuario podrá realizar las siguientes transacciones, los cuales se enlistan de manera enunciativa y no limitativa:
+a) Consulta de saldos de la Cuenta cliente Primaria de Ahorro Voluntario a la vista.
+b) Retiros de efectivo de la Cuenta cliente Primaria de Ahorro Voluntario a la vista en colones.

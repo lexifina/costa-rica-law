@@ -1,0 +1,1 @@
+Artículo 30.—De la interrupción de los canales electrónicos. El usuario libera de toda responsabilidad al Banco, por la interrupción parcial o total de los canales electrónicos cuando estos se originen en razones técnicas, administrativas, caso fortuito, fuerza mayor o motivos legales.

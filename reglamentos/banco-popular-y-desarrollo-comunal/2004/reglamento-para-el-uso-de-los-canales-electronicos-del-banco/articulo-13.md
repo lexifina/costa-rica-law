@@ -1,0 +1,1 @@
+Artículo 13.—De las comisiones. El Banco podrá cobrar al usuario o titular de la cuenta cliente una comisión por el uso de los canales electrónicos, de conformidad con lo establecido en Reglamento de Tarifas y Comisiones.

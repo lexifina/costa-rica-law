@@ -1,0 +1,6 @@
+Artículo 27.—Condiciones de utilización de los servicios de Banca Fácil. El canal electrónico de Banca Fácil, podrá ser utilizado bajo las siguientes condiciones:
+1. El monto máximo autorizado para realizar transferencias mediante Banca Fácil, serán determinadas por el Banco.
+2. El uso del número de tarjeta y clave es exclusivo del usuario, quien asume toda la responsabilidad si por su descuido, decisión o por acciones de terceros, fueren del conocimiento de otras personas; eximiendo al Banco de toda responsabilidad por los daños que esto pudiera causar.
+3. El usuario podrá acceder todos los productos y servicios disponibles por medio de Banca Fácil, en el tanto conozca y aplique en forma correcta las instrucciones de operación que el sistema le irá indicando, por lo que exime de responsabilidad al Banco por los daños que el mal uso de este canal pudiera provocar.
+4. El uso del número de tarjeta y la contraseña de acceso, es la huella indeleble de que el usuario accedió al sistema y que todas las operaciones realizadas a través de este medio han sido aceptadas consciente y voluntariamente por él.
+5. El usuario aceptará como comprobante de los movimientos o transacciones realizados en el sistema, la bitácora que para tal efecto se genera.

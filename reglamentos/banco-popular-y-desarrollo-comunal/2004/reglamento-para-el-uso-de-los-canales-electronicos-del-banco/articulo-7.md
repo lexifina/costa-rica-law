@@ -1,0 +1,1 @@
+Artículo 7º—De la responsabilidad del Banco. El canal electrónico actuará respondiendo a las instrucciones dadas electrónicamente por el usuario y por las personas autorizadas por éste. El Banco no se hace responsable por errores, retrasos, daños, pérdidas, gasto o cobro que se deriven de las instrucciones dadas electrónicamente por el usuario.
