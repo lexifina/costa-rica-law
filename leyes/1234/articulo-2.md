@@ -1,0 +1,2 @@
+Artículo 2º.- En vez de lo que actualmente percibe el Colegio de Abogados por concepto de timbre forense, de conformidad en el artículo 14 de la ley Nº 176 de 17 de agosto de 1944, recibirá una subvención anual fija de treinta mil colones, que se girará mensualmente en la proporción debida al Tesorero de dicho Colegio.
+De la misma manera, la Universidad de Costa Rica recibirá una subvención anual fija de veintidós mil colones, en lugar del producto del timbre universitario que actualmente pagan las cancelaciones de cédulas hipotecarias.
