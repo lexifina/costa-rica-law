@@ -1,0 +1,3 @@
+Artículo 10.—
+a) Con la aprobación previa del Alcalde, la Dependencia Administrativa de la Municipalidad encargada del área de transportes, podrán delegar parcialmente en otra dependencia institucional, la ejecución de las funciones indicadas en el artículo anterior, toda vez que con ello se logre una mayor oportunidad y eficiencia en la prestación del servicio, sin que esto implique la duplicación de funciones y la pérdida en el control administrativo sobre los vehículos.
+b) La dependencia administrativa de la Municipalidad encargada del área de transportes podrá solicitar a quien corresponda los informes que estime convenientes.

@@ -1,0 +1,1 @@
+Artículo 67.—Las discrepancias o diferencias de criterio que surjan en la aplicación de este Reglamento por parte de la Dependencia Administrativa de la Municipalidad encargada del área de transportes, serán resueltas por el Alcalde Municipal.

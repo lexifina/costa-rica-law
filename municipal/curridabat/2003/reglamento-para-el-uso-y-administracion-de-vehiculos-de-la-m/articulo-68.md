@@ -1,0 +1,3 @@
+Artículo 68.—Las infracciones a este Reglamento, serán sancionadas de acuerdo a la gravedad de las faltas y conforme a lo dispuesto en la Ley de Tránsito, Ley General de la Administración Pública, la Ley Orgánica de la Contraloría General de la República, el Código Municipal, el Código de Trabajo, el Reglamento Autónomo de Servicios de la Municipalidad, y demás disposiciones vigentes, sin perjuicio de las responsabilidades civiles o penales que debe asumir el infractor.
+El presente reglamento rige a partir de su publicación.
+Curridabat, 11 de agosto del 2003.—
