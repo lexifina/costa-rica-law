@@ -1,0 +1,1 @@
+Artículo 26.- Presentará cada mes al Congreso un estado general de entradas y salidas de caudales de Hacienda Publica, otro de la fuerza armada, y una lista de los empleados en exercicio, suspensos, y sesantes con designacion de los sueldos que disfrutan mensuales.
