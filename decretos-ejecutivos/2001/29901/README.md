@@ -14,3 +14,4 @@ Crea la Comisión Nacional de Seguridad Transfusional, como órgano asesor del M
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-30 | la propia norma |
+| 2 | 2002-10-01 | Decreto Ejecutivo 30802 (2002-10-01) |

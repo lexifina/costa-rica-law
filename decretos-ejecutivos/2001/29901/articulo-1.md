@@ -19,4 +19,5 @@ d) Un representante del Colegio de Enfermeras de Costa Rica.
 e) Un representante de la Dirección Técnica de Servicios de Salud, de la Caja Costarricense de Seguro Social.
 f) Un representante de la Comisión Institucional de Medicina Transfusional de la Caja Costarricense de Seguro Social.
 g) Un representante del Banco Nacional de Sangre.
-h) Un representante de cada una de las dos Asociaciones relacionadas con la Medicina Transfusional.
+h) Un representante de cada una de las dos Asociaciones relacionadas con la Terapia Transfusional.
+(Así modificado el término "Medicina Transfusional" por el término "Terapia Transfusional", por el artículo 1 del decreto ejecutivo N° 30802 de 1 de octubre del 2002)
