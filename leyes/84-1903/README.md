@@ -1,0 +1,9 @@
+# Crea Cantón de Jiménez y de Turrialba
+
+Ley N° 84 del 1903-08-19. SINALEVI, ficha 36061: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36061&param2=38020&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1903-08-19 | Ley 84 | 1903-08-19 |
