@@ -1,0 +1,1 @@
+Artículo 2º—Este decreto rige a partir de su publicación y por el período mencionado en el artículo anterior, sin demérito de las potestades del Poder Ejecutivo para efectuar las modificaciones o revisiones que se consideren oportunas.
