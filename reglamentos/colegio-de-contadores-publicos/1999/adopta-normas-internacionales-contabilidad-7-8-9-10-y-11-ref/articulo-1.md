@@ -1,4 +1,6 @@
+(Derogado)
 COLEGIO DE CONTADORES PÚBLICOS DE COSTA RICA
+(Mediante acuerdo tomado en sesión N° 18 de 21 de setiembre de 1999, se derogan éstas normas, para efectos prácticos y no crear confusión en relación con las nuevas normas adoptadas)
 Colegio de Contadores Públicos de Costa Rica, Junta Directiva, Sesión Ordinaria 05-99, 23 de marzo de 1999, Acuerdo Número 3.1
 Considerando
 1° Que la Junta Directiva ha definido una clara política de adopción y armonización de las Normas Internacionales de Contabilidad, con el propósito de fomentar la transparencia y claridad en la forma de presentar los estados financieros de las empresas.
