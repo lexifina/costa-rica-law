@@ -1,5 +1,7 @@
 No 8351
 Establece Reserva Biológica Hitoy-Cerere
+(Modificada su denominación por el artículo 1° del decreto ejecutivo N° 13393 del 26 de febrero de 1982 estableciendo que se denominará Reserva Biológica de Hitoy").
+(Mediante artículo 1° de la Ley N° 6794 de 25 de agosto de 1982, se ratifica como Ley de la República este Decreto).
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERA
 De conformidad con lo dispuesto en los artículos 2°, inciso b) y 22) de la Ley Forestal, No 4465 de 25 de noviembre de 1969, lo establecido por la ley N° 6084 de 24 de agosto de 1977, y
@@ -9,7 +11,7 @@ Considerando:
 3°—Que dicha área, enclavada entre las reservas indígenas de Estrella, Talamanca y Telire y con sólo un desagüe hacia el Valle de Estrella, todo lo cual facilita su vigilancia, constituye un bolsón cuadrangular rodeado por cerros escarpados que le dan la calidad de una unidad geográfica natural.
 Por tanto,
 DECRETAN:
-Artículo 1°—Establécese la Reserva Biológica Hitoy-Cerere, que comprende el territorio cuyo perímetro está definido por los vértices que se indican a continuación mediante sus coordenadas, según los mapas básicos del Instituto Geográfico Nacional, escala 1:50.000, Estrella 3545-II y Telire 3544-T:
+Artículo 1°—Establécese la Reserva Biológica Hitoy*, que comprende el territorio cuyo perímetro está definido por los vértices que se indican a continuación mediante sus coordenadas, según los mapas básicos del Instituto Geográfico Nacional, escala 1:50.000, Estrella 3545-II y Telire 3544-T:
 COORDENADAS
 180 | 550 | 629 | 925 | 186 | 350 | 639 | 150
 181 | 850 | 630 | 175 | 185 | 475 | 641 | 050

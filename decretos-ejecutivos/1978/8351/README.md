@@ -15,3 +15,4 @@ Establece Reserva Biológica Hitoy-Cerere (Ahora Reserva Biológica de Hitoy)
 | --- | --- | --- |
 | 1 | 1978-04-27 | la propia norma |
 | 2 | 1982-02-26 | Decreto Ejecutivo 13390 (1982-02-26) |
+| 3 | 1982-02-26 | Decreto Ejecutivo 13393 (1982-02-26) |
