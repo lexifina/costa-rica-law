@@ -1,0 +1,1 @@
+Artículo 4-Se derogan el Acuerdo N° 16 del 9 de febrero de 1987 publicado en "La Gaceta" N° 63 del 1° de abril de 1987, así como el Decreto N° 19954-RE del 12 de setiembre de 1990 publicado en "La Gaceta" N° 195 del 16 de octubre de 1990, que lo modifica.
