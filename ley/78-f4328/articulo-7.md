@@ -1,0 +1,1 @@
+ARTÍCULO 7°. -El día último del próximo mes de agosto cesarán todos los Jefes Políticos de los Cantones de las Provincias y, formándose liquidación de sus sueldos hasta aquel día, cesar también de allí en adelante el pago que se les ha hecho por el tesoro nacional y por el municipal de los Cantones.
