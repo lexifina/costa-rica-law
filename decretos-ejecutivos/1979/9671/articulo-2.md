@@ -1,0 +1,1 @@
+Artículo 2°—Créase la Comisión Nacional encargada de organizar el 14° Simposio Internacional de Percepción Remota del Ambiente, la cual deberá, por lo tanto, coordinar y dirigir la participación del sector público y privado, tanto en, las actividades científicas y culturales, como en cualesquiera otras que se lleven á cabo en la celebración de este evento.
