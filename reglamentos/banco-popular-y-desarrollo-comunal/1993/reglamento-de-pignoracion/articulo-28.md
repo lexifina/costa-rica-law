@@ -1,0 +1,1 @@
+Artículo 28.—El Banco establecerá un fondo de protección de hasta ¢ 50.000,00 semestrales, acumulativo y de liquidación anual para las transacciones de alhajas y prendas, con el objeto de cubrir las pérdidas que sufran las prendas por la depreciación, por las inclemencias del tiempo o por cualquier otra eventualidad.

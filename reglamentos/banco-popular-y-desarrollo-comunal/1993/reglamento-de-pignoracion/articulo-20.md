@@ -1,0 +1,1 @@
+Artículo 20.—Las propuestas deben cubrir por lo menos la base señalada. El Corredor Jurado debe advertir de esta condición a lodos los asistentes. SÍ la persona a quien se adjudique un bien no hace su pago en el mismo acto, deberá repetirse el remate.

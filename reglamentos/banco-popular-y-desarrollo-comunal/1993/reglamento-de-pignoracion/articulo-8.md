@@ -1,0 +1,1 @@
+Articulo 8°—El retiro del bien pignorado sólo podrá hacerlo la persona a nombre de quien se emitió el comprobante con la presentación de la cédula de identidad y otra persona con autorización escrita. En caso de duda se exigirá la autenticación de un ahogado.

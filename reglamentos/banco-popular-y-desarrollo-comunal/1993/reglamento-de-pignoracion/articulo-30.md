@@ -1,0 +1,1 @@
+Artículo 30.—De conformidad con el artículo No. 467 del Código de Comercio, el Departamento de Pignoración no se responsabilizará por el estado de los artículos vendidos, ni dará garantía alguna después de efectuada la venta. Esta condición hará constar en el documento correspondiente.

@@ -1,0 +1,1 @@
+Artículo 23.—Cualquier excedente obtenido respecto a la deuda pertenece al deudor, tales saldos se publicarán en el Diario Oficial, con la única cita del número del contrato del préstamo, para que los interesados se presenten a hacer sus retiros. Para estos electos se seguirá el plazo de prescripción mercantil.

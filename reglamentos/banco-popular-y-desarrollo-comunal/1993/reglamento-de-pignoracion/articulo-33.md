@@ -1,0 +1,1 @@
+Artículo 33.—Este Reglamento deroga todos los anteriormente aprobados, así como cualquier otro acuerdo que en la materia de este Reglamento hubiere tomado la Junta Directiva Nacional del Banco Popular, anteriormente a la aprobación del presente Reglamento.
