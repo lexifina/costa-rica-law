@@ -14,3 +14,4 @@ Estatuto Orgánico de la Orquesta Sinfónica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-13 | la propia norma |
+| 2 | 1998-05-18 | Decreto Ejecutivo 27083 (1998-05-18) |

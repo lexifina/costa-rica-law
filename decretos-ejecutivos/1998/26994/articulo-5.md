@@ -8,3 +8,4 @@ a) El Ministro de Cultura, Juventud y Deportes o su representante, quien la pres
 b) Un representante de los funcionarios de los cuatro programas de la Orquesta Sinfónica Nacional, nombrado por Asamblea reunidos para tal fin.
 c) Un miembro de libre nombramiento del Poder Ejecutivo.
 En caso de vacante por muerte, renuncia o incapacidad el que sustituye lo hará por el resto del periodo del miembro saliente.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 27083 del 18 de mayo de 1998)
