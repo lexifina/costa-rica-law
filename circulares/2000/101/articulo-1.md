@@ -1,0 +1,9 @@
+.
+N° 101-2000
+(Esta circular fue reiterada mediante circular N° 006 del 22 de enero de 2009, publicada en el Boletín Judicial N° 24 del 04 de febrero del 2009. Posteriormente mediante circular N° 193-08, publicada en el Boletín Judicial N° 22 del 02 de febrero del 2009 se reitera nuevamente la presente circular)
+ASUNTO: Casos en los que es innecesario remitir cuerpos a la Morgue Judicial.
+A LOS FUNCIONARIOS JUDICIALES QUE TRAMITAN LA MATERIA PENAL
+SE HACE SABER QUE:
+El Consejo Superior en sesión N° 73-2000, celebrada el 14 de setiembre del 2000, artículo LI, acordó ponerles en conocimiento el informe del Magistrado González, Presidente de la Comisión de Penales, que literalmente dice:
+"De conformidad con el numeral 191 del Código Procesal Penal, cuando existe muerte violenta o cuando se sospeche que una persona falleció a consecuencia de un delito es el juez del procedimiento preparatorio (y no otro funcionario) e/llamado a practicar la inspección en el lugar de los hechos, disponer el levantamiento del cadáver y el peritaje correspondiente para establecer la causa y la manera de muerte. Ahora bien, si en la jurisdicción existe un perito que cumple con los requerimientos necesarios para rendir el mencionado dictamen y está en disposición de hacerlo, el traslado del cuerpo a la Morgue Judicial, sita en San Joaquín de Flores, Heredia, se hace innecesario. En síntesis, es el tribunal de la etapa preparatoria el que valorando las circunstancias que revisten cada caso concreto, debe decidir sobre la remisión del cuerpo al Complejo Médico Forense, ello porque lo que la norma citada supra le ordena al Juzgador es disponer la realización de una pericia que dé razón sobre la causa y manera de muerte más no, corno algunos han entendido, el envío obligatorio de los cuerpos al Complejo antes indicado.”
+San José, 23 de octubre del 2000.
