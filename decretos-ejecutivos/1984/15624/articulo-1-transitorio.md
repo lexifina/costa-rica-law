@@ -1,0 +1,2 @@
+Transitorio único.—Para los efectos del artículo 9° del presente reglamento, tanto las personas físicas como las jurídicas que en la actualidad se encuentren prestando este servicio, deberán gestionar en un plazo no mayor de tres meses contados, a partir de la publicación del presente Reglamento, el permiso de explotación correspondiente.
+Dado en la Presidencia de la República.—San José, a los veintiocho días del mes de agosto de mil novecientos ochenta y cuatro.

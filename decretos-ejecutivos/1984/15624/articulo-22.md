@@ -1,0 +1,1 @@
+Articulo 22.—El Poder Ejecutivo, al través del Ministerio de Obras Públicas y Transportes, fomentará el establecimiento de estaciones terminales de carga públicas y privadas, que puedan contribuir a racionalizar los flujos de carga locales y de comercio exterior, lo mismo que las operaciones relacionadas con esa actividad.

@@ -1,0 +1,1 @@
+Artículo 23.—Los permisos para los servicios de reparto urbano se regirán por lo que al efecto establecen los Decretos Ejecutivos números 11017-T, 12431-T y por las disposiciones del presente reglamento en lo que fuere aplicable.

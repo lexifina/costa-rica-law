@@ -1,0 +1,1 @@
+Artículo 10.—El permiso será un documento que no podrá ser transferido en ningún caso y estará sujeto a las demás limitaciones y sanciones del derecho administrativo. Su vigencia será de dos años y podrá ser renovado si, a juicio del Ministerio, el permisionario hubiera cumplido con sus requisitos y con lo estipulado en el presente Reglamento y demás legislación aplicable.

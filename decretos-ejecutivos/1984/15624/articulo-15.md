@@ -1,0 +1,1 @@
+Artículo 15.—La Dirección General de Transporte Automotor llevará un "Registro de Permisos y Permisionarios de Transporte Automotor de Carga Local", de acuerdo con la clasificación básica a que se refiere el articulo 14.

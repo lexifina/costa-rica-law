@@ -1,0 +1,1 @@
+Artículo 18.—De acuerdo con el tipo de servicio de que se trate, las tarifas serán fijadas por tonelada-kilómetro, por metro cúbico-kilómetro o por contrato entre las partes cuando el tipo de servicio o características de la mercancía no se presta para la fijación de un flete normalizado.

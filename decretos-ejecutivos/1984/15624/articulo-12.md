@@ -1,0 +1,1 @@
+Artículo 12.—Las empresas extranjeras de transporte internacional multimodal, estarán obligadas a contratar con empresas nacionales según se definen en el artículo 7°, los servicios de movilización de los furgones o contenedores dentro del territorio nacional.
