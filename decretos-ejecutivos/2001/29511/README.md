@@ -46,3 +46,4 @@ Directrices Generales de Política Presupuestaria del 2002 para los Ministerios,
 | 31 | 2002-04-15 | SINALEVI (sin norma nombrada) |
 | 32 | 2002-04-20 | Decreto Ejecutivo 30403 (2002-04-15) |
 | 33 | 2002-04-20 | SINALEVI (sin norma nombrada) |
+| 34 | 2002-04-20 | Decreto Ejecutivo 30401 (2002-04-15) |
