@@ -1,0 +1,1 @@
+Art 8. La municipalidad y demás Autoridades de esta ciudad y de los pueblos, en cuyo territorio toque la fuente indicadá, darán a la Dirección en los casos que ocurran los auxilios y protección que corresponde para llevar á efecto la obra que se emprende.
