@@ -1,0 +1,1 @@
+Artículo 7°.- Todas las Tesorerías, Inspecciones y Fiscalías de la República le están subordinadas para el efecto de rendirle ordinariamente informes trimestrales de su gestión relativa al movimiento de fondos; y, en especial, cada vez que el Centro los requiera, o pida concretamente datos o comprobantes.

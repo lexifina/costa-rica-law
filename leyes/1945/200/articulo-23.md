@@ -1,0 +1,2 @@
+Artículo 23.- Es indispensable en la adjudicación de alquileres, contratos de construcción, suministros y demás servicios o provisiones que demande el Estado mediante licitaciones públicas, la intervención de un delegado del Centro de Control y la conformidad de éste, en acatamiento al artículo 24 de la Ley de Tesorería y Proveeduría.
+Los contratos sólo pueden adjudicarse mediante licitación; privada si su valor es de 1000 colones o menos; pública en los demás casos.

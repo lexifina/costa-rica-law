@@ -1,0 +1,3 @@
+Artículo 36.- Toda persona física o legal que contrate con el Estado o con cualquiera entidad pública, deberá garantizar el cumplimiento del contrato y los daños y perjuicios eventuales. La garantía deberá ser calificada y aceptada previamente por el Centro de Control y se otorgará dentro del texto del contrato, bajo pena de nulidad de éste.
+El monto de la garantía no podrá ser inferior al 10% del precio total estipulado.
+En contratos de ejecución de obras será requisito ineludible el derecho de retención de un 10% de todo pago y que no será entregado al contratista sino una vez recibida la obra a entera satisfacción, pues en otro caso quedará definitivamente en poder del Estado o entidad contratante a cuenta de daños y perjuicios.

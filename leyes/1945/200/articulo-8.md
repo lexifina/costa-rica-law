@@ -1,0 +1,1 @@
+Artículo 8°.- Los funcionarios que en razón de su desempeño intervengan en el manejo, aplicación y cobro de fondos públicos, o de procedencia comunal o asistencial, lo mismo que en el manejo de caudales encomendados al resguardo y atención oficial, quedan igualmente sometidos a remitirle informes periódicos, según determine el Centro, o cuando los pida y exija comprobantes.

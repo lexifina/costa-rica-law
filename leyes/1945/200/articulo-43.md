@@ -1,0 +1,1 @@
+Artículo 43.- Ha de proceder el Centro a la mejora de las disposiciones de esta ley y sus reglamentos, con arreglo a las experiencias que lo aconsejen; y al efecto enviará las debidas peticiones al Congreso, oportunamente.

@@ -1,0 +1,5 @@
+Artículo 40.- El Jefe de Control elevará al Congreso Constitucional, en las primeras sesiones ordinarias de cada legislatura, memoria explicativa del movimiento financiero del año transcurrido, incorporando copia de los contratos celebrados por las distintas Carteras, con informe de su ejecución y cumplimiento. Hará especial capítulo de los gastos cuya publicación está dispensada, e incluirá la liquidación del presupuesto al tenor de los artículos 27 a 30 de la ley que lo rige.
+El Congreso, por medio de Comisión de su seno, hará estudio minucioso de la memoria e informes, planteando las objeciones que fuere del caso o aceptándolos en definitiva.
+Si cuentas estrictamente numéricas no fueren aprobadas, pasarán al Tribunal de Apelaciones, estatuído en el artículo 31 de esta ley, para su resolución final.
+Cuando cese en sus funciones el Jefe del Centro de Control, sólo rendirá las cuentas no abarcadas en las memorias anteriores.
+La resolución acerca de esta materia ha de recaer durante las sesiones ordinarias.

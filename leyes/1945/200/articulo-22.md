@@ -1,0 +1,5 @@
+Artículo 22.- El Centro de Control verificará el cumplimiento de lo ordenado en el artículo segundo de la Ley de Presupuesto.
+Si considera que alguna erogación es objetable legalmente, ha de pronunciarse por escrito a ese respecto, en el perentorio término de tres días, a partir de la fecha de recibo.
+A pesar de la oposición del Centro, al Poder Ejecutivo le asiste el Recurso de Insistencia, si viene respaldado por el Consejo de Gobierno y si concreta los fondos que habrán de aplicarse especialmente al gasto objetado. En esas condiciones, el Centro dará el pase, siempre que además el decreto se contraiga a gastos inaplazables provocados por conmoción interna, disturbios, agresión exterior, epidemias, hambre u otras calamidades públicas que hagan ineludible la medida.
+De previo a su ejecución ha de quedar publicado el decreto en el Periódico Oficial, junto con los motivos de resistencia del Jefe del Control y las razones que hayan originado el recurso y obliguen al Ejecutivo a mantenerlo.
+Al propio tiempo dará cuenta al Congreso, esté o no reunido.
