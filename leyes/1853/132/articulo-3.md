@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-Los Jefes de Policía, cada tres meses, exigir n informes de sus subalternos acerca de los niños de ambos sexos que carezcan de tutores a quienes no se enseñen buenas costumbres, a leer y escribir y algún oficio honesto para proveer de remedio oportuno en vista de dichos informes y de acuerdo con los artículos citados del Código y del Reglamento de Policía.

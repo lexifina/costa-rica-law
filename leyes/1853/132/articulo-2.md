@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Las funciones que encomendaban los artículos 215 y 216 de la 1 parte del Código general a los Jueces y Alcaldes de los pueblos, son del cargo de dichos Jefes de Policía, quienes gubernativamente las ejercerán en todos los casos que ocurran.
