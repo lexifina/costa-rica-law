@@ -1,0 +1,2 @@
+Artículo 141.- Los derechos y obligaciones inherentes a la patria potestad no pueden renunciarse. Tampoco pueden modificarse por acuerdo de partes, salvo lo dispuesto para la separación y divorcio por mutuo consentimiento, en cuanto se refiera a la guarda, crianza y educación de los hijos.
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 128 al 141)

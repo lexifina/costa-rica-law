@@ -1,0 +1,1 @@
+Artículo 80.- La posesión notoria de estado del hijo consiste en que sus padres lo hayan tratado como tal, dándole sus apellidos, proveyendo sus alimentos y presentándolo con ese carácter a terceros; y éstos y el vecindario de su residencia, en general, lo hayan reputado como hijo de aquéllos.

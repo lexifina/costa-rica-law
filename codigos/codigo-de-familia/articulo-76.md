@@ -1,0 +1,1 @@
+Artículo 76.- El derecho de los hijos para vindicar el estado que les pertenece es imprescriptible. Por muerte de los hijos ese derecho pasa a los nietos y respecto a ellos también es imprescriptible.

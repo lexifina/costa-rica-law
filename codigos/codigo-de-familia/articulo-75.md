@@ -1,0 +1,1 @@
+Artículo 75.- El hijo nacido después de trescientos días de la disolución del matrimonio, o de la separación de los cónyuges judicialmente decretada o de la declaratoria de ausencia del marido, se tendrá como habido fuera del matrimonio, salvo prueba en contrario.

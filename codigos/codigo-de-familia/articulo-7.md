@@ -1,0 +1,1 @@
+Artículo 7º.- Para hacer valer los derechos consignados en este Código, quienes carecieren de asistencia legal y de recursos económicos para pagarla, tienen derecho a que el Estado se la suministre conforme a la ley.

@@ -1,0 +1,1 @@
+Artículo 52.- No procede el divorcio si ha habido reconciliación o vida marital entre los cónyuges después del conocimiento de los hechos que habrían podido autorizarlo, o después de la demanda; mas si se intenta una nueva acción de divorcio por causa sobrevenida a la reconciliación, el Tribunal podrá tomar en cuenta las causas anteriores.

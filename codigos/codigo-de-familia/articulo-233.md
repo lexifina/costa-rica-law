@@ -1,0 +1,2 @@
+Artículo 233.- El Tribunal puede, en cualquier estado del juicio de interdicción, nombrar un administrador interino de los bienes del incapaz; este administrador cesará en sus funciones cuando se declare que no existe la incapacidad o cuando declarada ésta, el inhábil está provisto de curador que administre sus bienes.
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 220 al 233)

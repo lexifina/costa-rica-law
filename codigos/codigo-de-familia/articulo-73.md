@@ -1,0 +1,2 @@
+Artículo 73.- La acción del marido para impugnar la paternidad podrá intentarse en cualquier tiempo y deberá plantearse en la vía ordinaria. Se exceptúa el caso en que el hijo estuviere en posesión notoria de estado, en cuyo supuesto la acción deberá intentarse dentro del año siguiente a la fecha en que el marido tuvo conocimiento de los hechos que le sirven de fundamento para la impugnación. Este plazo no corre contra el marido incapaz mental que careciere de curador.
+(Así reformado por el artículo 1º de la ley Nº 5895 de 23 de marzo de 1976).

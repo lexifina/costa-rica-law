@@ -1,0 +1,1 @@
+Artículo 22.- Tratándose de menores sujetos a tutela, el tutor dará el consentimiento. Cuando los motivos en que el tutor funde su negativa no fueren razonables, el consentimiento podrá ser suplido por el Tribunal en la forma prevista en el artículo anterior.

@@ -1,0 +1,2 @@
+Artículo 46.- Los beneficios y privilegios de los cuatro anteriores artículos se otorgarían al inmueble urbano con una cabida no mayor de mil metros cuadrados, o al rural cuya extensión no exceda de diez mil metros cuadrados. Asimismo, a la parcela rural destinada a la subsistencia de la familia, en el tanto que no exceda esta última extensión. En caso de derechos indivisos, deberá previamente procederse a la localización de ellos, de acuerdo con la ley.
+(Así reformado por el artículo 1º de la ley Nº 5895 de 23 de marzo de 1976).

@@ -1,0 +1,4 @@
+Artículo 154.- La administración de los bienes de los hijos menores será suspendida de pleno derecho cuando los padres contraigan nuevas nupcias con persona distinta al otro progenitor, aun cuando conserven los demás derechos y obligaciones inherentes a la patria potestad.
+Podrán ser autorizados para ejercer nuevamente tal administración por el Tribunal. Este podrá ordenar, si estima necesario, caución satisfactoria para responder de los daños y perjuicios que pudieren ocasionar a los menores y en este caso si no se da tal caución, se nombrará un administrador de dichos bienes, con participación del Patronato Nacional de la Infancia.
+Para la garantía, administración y cuentas se observará lo establecido para la tutela.
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 141 al 154)

@@ -1,0 +1,2 @@
+Artículo 74.- Si el marido muere antes de vencer el término en que puede desconocer al hijo, podrán sus herederos hacerlo. La acción de los herederos no será admitida después de dos meses contados a partir del día en que el hijo hubiere entrado en posesión de los bienes del presunto padre, o desde el día en que los herederos fueron perturbados en la posesión de la herencia por el presunto hijo.
+(Así reformado por el artículo 1º de la ley Nº 5895 de 23 de marzo de 1976).

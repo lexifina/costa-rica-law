@@ -1,0 +1,1 @@
+Artículo 68.- Lo dispuesto para el divorcio y la separación judicial se observará también respecto a la nulidad del matrimonio en cuanto fuere aplicable y no contrario a lo determinado en este capítulo.

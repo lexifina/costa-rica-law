@@ -1,0 +1,6 @@
+Artículo 203.- La garantía consistirá en depósito en dinero efectivo, hipoteca, póliza de fidelidad del Instituto Nacional de Seguros o bonos del Estado y sus instituciones, apreciados estos últimos en su valor comercial, según certificación de un corredor jurado. El monto de la garantía deberá cubrir ampliamente las responsabilidades del tutor, de acuerdo con el artículo 188 (*) y en cualquier momento en que se depreciare su valor deberá ser completado.
+Sin embargo, se admitirá garantía fiduciaria o simple caución juratoria cuando el tutor sea de notoria buena conducta y la suma que deba garantizar no exceda de cinco mil colones.
+En el caso de bonos, se depositarán en la institución bancaria que administra los depósitos judiciales y el garante podrá, con autorización del Tribunal, sustituir los que resultaren sorteados o vencidos por otros de igual clase y valor, y retirar y hacer efectivos los cupones de intereses vencidos.
+El Tribunal podrá también, si lo estimare necesario para el mejoramiento de la garantía, que el importe de los bonos vencidos o que fueren sorteados y el de los cupones de intereses vencidos, se deposite a su orden como parte de la garantía.
+(*) (Actual artículo 201)
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 190 al 203)

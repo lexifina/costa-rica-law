@@ -1,0 +1,3 @@
+Artículo 116.-Declaratoria en vía administrativa.
+Siempre que no exista oposición de terceros, en vía administrativa, el PANI podrá declarar en estado de abandono al expósito y al menor huérfano de padre y madre que no esté sujeto a tutela. De existir oposición, la declaratoria deberá tramitarse en la vía judicial. En todo caso, la resolución administrativa definitiva, se elevará siempre en consulta ante el Juez de Familia, quien deberá resolver en un plazo no mayor de quince días, contados a partir del recibo del expediente administrativo.
+(Así reformado por el artículo 2 de ley No.7538 del 22 de agosto de 1995)

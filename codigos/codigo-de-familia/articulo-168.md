@@ -1,0 +1,3 @@
+Artículo 168.- Mientras se tramita la demanda alimentaria, comprobado el parentesco, el juez podrá fijar una cuota provisional a cualquiera de las personas indicadas en el artículo siguiente, guardando el orden preferente ahí establecido. Esta cuota se fijará prudencialmente en una suma capaz de llenar, de momento, las necesidades básicas de los alimentarios y subsistirá mientras no fuere variada en sentencia.
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 155 al 168)
+(Así reformado por el artículo 65 de la Ley Nº 7654 de 19 de diciembre de 1996, “Ley de Pensiones Alimentarias”)

@@ -1,0 +1,2 @@
+Artículo 66.- El matrimonio declarado nulo o anulado produce todos los efectos civiles en favor del cónyuge que obró de buena fe y de los hijos y las consecuencias que este Código fija en perjuicio del cónyuge que obró de mala fe.
+La buena fe se presume si no consta lo contrario y en ningún caso la nulidad del matrimonio perjudicará a tercero si no desde la fecha en que se inscriba la declaratoria en el Registro.

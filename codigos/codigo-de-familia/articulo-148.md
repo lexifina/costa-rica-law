@@ -1,0 +1,4 @@
+Artículo 148.- Quien ejerza la patria potestad entregará a su hijo mayor o emancipado o a la persona que lo reemplace en la administración cuando ésta concluya por otra causa, todos los bienes y frutos que pertenezcan al hijo y rendirá cuenta general de dicha administración.
+Cuando procediere el nombramiento de un administrador de bienes, el Tribunal, atendidas las circunstancias, señalará el honorario que haya de cobrar aquél.
+En el caso de que la administración de los bienes del menor esté a cargo de personas distintas de aquella que tuviere la guarda, crianza y educación del mismo, el Tribunal autorizará la suma periódica que debe ser entregada para su alimentación.
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 135 al 148)

@@ -1,0 +1,1 @@
+Artículo 6º.- Quedan exentos de los impuestos del papel sellado y timbre fiscal todos los actos jurídicos, solicitudes y actuaciones de cualquier clase, que se tramiten o realicen ante los órganos administrativos o judiciales, con motivo de la aplicación de las normas de este Código.

@@ -1,0 +1,2 @@
+Artículo 196.- Los parientes llamados a la tutela, que por su culpa no la ejerzan, que sean removidos por mala administración, o condenados por dolo en el juicio de cuentas, pierden el derecho de heredar al pupilo si muere sin testamento, dentro o fuera de la minoridad, quedan obligados al pago de daños y perjuicios y del daño moral causado.
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 183 al 196)

@@ -1,0 +1,1 @@
+Artículo 2º.- La unidad de la familia, el interés de los hijos, el de los menores y la igualdad de derechos y deberes de los cónyuges, han de ser los principios fundamentales para la aplicación e interpretación de este Código.

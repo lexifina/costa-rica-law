@@ -1,0 +1,2 @@
+Artículo 77.- Los herederos de los hijos o de los nietos en su caso, pueden continuar las acciones de vindicación pertinentes; y solamente podrán comenzarlas en caso de que el hijo o nieto falleciere antes de llegar a la mayoridad, o si al entrar en ella estuviere incapacitado mentalmente y muriere en ese estado.
+La acción de los herederos prescribe en cuatro años, contados desde la muerte del hijo o nieto.

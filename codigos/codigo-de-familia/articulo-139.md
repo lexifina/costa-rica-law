@@ -1,0 +1,4 @@
+Artículo 139.- Revelación de los asientos.
+Cuando se trate de personas menores de edad, el Registro Civil solo podrá revelar o certificar la relación entre ambos asientos mediante orden judicial o solicitud expresa de la Dirección Ejecutiva del PANI. Los notarios no podrán emitir certificaciones ni otros documentos relativos a estos asientos. El incumplimiento de lo prescrito hará incurrir al responsable en lo establecido en el artículo 329 del Código Penal.
+Transitorio.- Los expedientes, de adopción plena o simple, pendientes de resolución ante los Tribunales de Justicia a la vigencia de esta ley, seguirán tramitándose conforme a la legislación anterior, salvo que los solicitantes quieran tramitarla según la presente ley, únicamente en el caso de adopción plena.
+(Así adicionado por el artículo 2 de ley No.7538 del 22 de agosto de 1995)
