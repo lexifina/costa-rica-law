@@ -1,0 +1,1 @@
+Art 40°. – Son Bienhechores del Hospital y Lazareto todos los que hagan donaciones o legados que bajen de quinientos pesos, y en consecuencia se considerarán también como individuos natos de la Hermandad con voz y voto en las deliberaciones y a su fallecimiento los fondos del Hospital les donarán el sitio que deba ocupar su mausoleo en el Panteón de San Juan de Dios.

@@ -1,0 +1,1 @@
+Art 10° La Junta de Gobierno celebrará sus sesiones ordinarias los domingos 1° y 3° de cada mes, y extraordinariamente siempre que fuese convocada por el Presidente. El local para la reunión debe estar en el Hospital.

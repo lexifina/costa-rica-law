@@ -1,0 +1,1 @@
+Art 32° Estas rentas serán destinadas primariamente al mantenimiento y curación de los enfermos y leprosos, cuando haya sobrantes, se podrán destinar a las mejoras de unos y otro Hospicio, así en los formal como en lo material, conforme el tiempo y las circunstancias lo demanden.

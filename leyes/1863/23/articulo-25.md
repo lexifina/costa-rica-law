@@ -1,0 +1,2 @@
+Art 25- El médico debe visitar diariamente el Hospital, y una vez cada quince días el Lazareto.
+En cada visita examinará el estado de cada uno de los enfermos, prescribiendo los medicamentos que deben usar y régimen de que haya observarse. Debe así mismo inspeccionar, siempre que lo creyese necesario, la naturaleza y calidad de los alimentos de que se usa en el establecimiento, corrigiendo los abusos que note. Es de su incumbencia, también el cuidado y conservación de la botica, mientras no haya boticario nombrado.

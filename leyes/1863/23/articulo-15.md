@@ -1,0 +1,1 @@
+Art 15° Toca al segundo Vocal a más de la obligación de asistencia y visitas que al primero, intervenir especialmente en la conservación y mejoras de la fábrica material del Hospital y Lazareto, a cuyo fin propondrá a la Junta lo que a éste respecto juzgue oportuno.

@@ -1,0 +1,2 @@
+Art 30° Esta Junta se compone de cuatro señoras, que deben elegirse por la Hermandad al mismo tiempo y en igual forma establecida para la de Gobierno, teniendo cada una su respectiva suplente y la elección recaerá en las que pertenecen a la Hermandad o en otras señoras de afuera.
+(Nota del Sinalevi: En la publicación de este reglamento, se consignó por error el número de artículo, del análisis se deduce que en realidad corresponde al artículo N°20)

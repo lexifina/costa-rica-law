@@ -1,0 +1,2 @@
+Art. 3° Son atribuciones de la Hermandad:
+1° Nombrar de entre sus individuos la Junta de Gobierno y la de señoras, compuestas de los miembros que después se determinará: 2" Disponer los gastos extraordinarios que deban hacerse: 3° oír el informe que la Junta de Gobierno dé de sus trabajos en el (6) año y discutir con vista de los datos que se le suministren lo conveniente, acordando las mejoras posibles para el año siguiente: 4°Aprobar el presupuesto de gastos ordinarios que la misma Junta le presente; y 5° Velar que la Junta de Gobierno que se nombre cumpla con sus deberes.
