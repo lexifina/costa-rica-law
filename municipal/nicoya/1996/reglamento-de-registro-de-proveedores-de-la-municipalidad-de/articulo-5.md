@@ -1,0 +1,1 @@
+Artículo 5°-En lo fundamental el Registro Computarizado o Manual, deberá contener como mínimo un sistema de información que abarque lo relativo a los datos generales y antecedentes que brinde el mismo, conforme a su solicitud de inscripción.

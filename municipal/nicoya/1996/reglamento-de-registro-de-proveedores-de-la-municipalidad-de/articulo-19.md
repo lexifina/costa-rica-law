@@ -1,0 +1,1 @@
+Artículo 19.-Salvo que la exclusión del Registro de Proveedores se fundamente en la manifestación expresa del interesado, o por muerte o extinción, en los demás que conlleve a esa sanción deberá levantarse la información administrativa correspondiente.

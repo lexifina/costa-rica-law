@@ -1,0 +1,1 @@
+Artículo 7°-En cuanto a los bienes o servicios se indicará los que ofrece cada proveedor inscrito ya cada uno de ellos se les asignará un código de proveedor que lo identificará para todos los efectos.

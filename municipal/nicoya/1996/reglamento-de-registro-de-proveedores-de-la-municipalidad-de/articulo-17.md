@@ -1,0 +1,1 @@
+Artículo 17.-Serán excluidos del Registro de Proveedores, aquellas personas físicas o jurídicas que en tres ocasiones continuas, no respondan al llamado o concurso efectuado por la municipalidad. En caso de no mostrar interés, deberá de presentar una justificación por cualquier medio, ante la Proveeduría Municipal, antes de la recepción de las ofertas.

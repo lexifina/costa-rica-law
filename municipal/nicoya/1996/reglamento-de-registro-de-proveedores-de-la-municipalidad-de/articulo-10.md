@@ -1,0 +1,1 @@
+Artículo 10.-En cualquier tiempo las personas físicas o jurídicas interesadas podrán solicitar su incorporación al Registro. En caso de un proveedor no registrado que requiera ser inscrito, para participar en un concurso deberá lograr la formalización de la inscripción antes del vencimiento del plazo para presentar ofertas.

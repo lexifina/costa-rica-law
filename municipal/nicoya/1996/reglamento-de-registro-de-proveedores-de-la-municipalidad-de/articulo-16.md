@@ -1,0 +1,1 @@
+Artículo 16.-La Municipalidad tiene la facultad de excluir del Registro de Proveedores a la persona física o jurídica cuando constate su muerte o extinción, por manifestación expresa del interesado, por carencia de interés para seguir contratando determinado bien o servicio, por la interposición de sanciones, o por cualquier otra causa establecida en la Ley o este Reglamento.
