@@ -1,0 +1,2 @@
+Artículo 15.—Recurso de Revocatoria. La resolución que deniegue o apruebe la solicitud de permiso tendrá Recurso de Revocatoria dentro de quinto día para ante el mismo Departamento de Rentas y Cobranzas. Deberá presentarse en escrito motivado en que consten los antecedentes del caso, los hechos, los argumentos, criterios, opiniones y fundamentos legales y probatorios del recurso.
+La resolución que resuelve a este recurso deberá contener los mismos requisitos formales que se describen en el artículo 14 de este Reglamento.

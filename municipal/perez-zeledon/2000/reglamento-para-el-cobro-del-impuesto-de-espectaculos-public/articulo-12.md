@@ -1,0 +1,1 @@
+Articulo 12.—Si no se hiciere la declaración y se procediere a realizar la actividad la Municipalidad podrá tasar de oficio este impuesto de acuerdo a lo que señalan los artículos siguientes de este Reglamento y el Código de Normas y Procedimientos Tributarios, que es de aplicación supletoria en estos casos.

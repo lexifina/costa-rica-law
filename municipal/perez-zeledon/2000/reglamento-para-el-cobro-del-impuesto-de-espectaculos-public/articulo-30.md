@@ -1,0 +1,1 @@
+Articulo 30.—Apoyo de la Fuerza Pública. Los funcionarios municipales responsables de la efectiva recaudación del impuesto, coordinaran con la Guardia de Asistencia Civil o de cualquier otro órgano de la Fuerza Pública, a fin de obtener la colaboración de éstos en la aplicación de este Reglamento y de hacer cumplir este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 25.—Identificación de los funcionarios municipales. Los inspectores de espectáculos públicos, contaran con una identificación extendida y firmada por el Alcalde Municipal, la cual llevará impresa el sello municipal.

@@ -1,0 +1,1 @@
+Artículo 31.—Informes acerca de sujetos sancionados. Los informes sobre las personas físicas o jurídicas que se hagan acreedoras de la sanción del articulo 21, serán presentados por la Unidad de Rentas y Cobranzas, los inspectores municipales, la Guardia Rural, la Guardia Civil y canalizados por el Asesor Legal de la Municipalidad.
