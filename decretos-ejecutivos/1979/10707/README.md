@@ -14,3 +14,4 @@ Establece Caserío Indígena de Quitirrisí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-11-08 | la propia norma |
+| 2 | 2001-03-21 | Decreto Ejecutivo 29452 (2001-03-21) |
