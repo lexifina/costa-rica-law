@@ -1,0 +1,1 @@
+Artículo 16.—Del incumplimiento de las normas de este Reglamento. El cliente que irrespete cualquiera de las normas contenidas en el presente reglamento, será expulsado inmediatamente del Balneario por los guardas debidamente destacados en el complejo.

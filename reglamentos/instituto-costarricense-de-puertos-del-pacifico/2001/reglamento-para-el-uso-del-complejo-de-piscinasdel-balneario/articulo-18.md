@@ -1,0 +1,1 @@
+Articulo 18.—De la suspensión del ingreso al Balneario. Cuando un cliente reincide en la violación de las normas de este articulado, la administración del Balneario podrá suspender su ingreso al complejo de forma indefinida.

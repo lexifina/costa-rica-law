@@ -1,0 +1,1 @@
+Artículo 9°—De las emergencias. El balneario debe contar con una sala de primeros auxilios, provista de un botiquín de emergencias, que deberá ser manejado por los salvavidas, debidamente acreditados.
