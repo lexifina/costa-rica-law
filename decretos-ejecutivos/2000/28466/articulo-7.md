@@ -1,0 +1,3 @@
+Artículo 7º—Con excepción de su propio representante, quien será libremente designado, los restantes miembros del Consejo, serán escogidos y designados por el Ministro, entre una terna que a su petición sometan los organismos representados en un plazo no mayor de dos semanas. Los miembros designados durarán en sus cargos por un periodo de un año y podrán ser reelectos.
+El acuerdo de nombramiento, será suscrito por el Ministro y el Presidente de la República, debiendo ser publicado en el Diario Oficial.
+Cuando se produzca una vacante definitiva de un miembro, el Ministro solicitará al organismo representado, el envío en el plazo de dos semanas, de una nueva terna para proceder a su nombramiento por el resto del periodo.

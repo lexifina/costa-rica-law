@@ -1,0 +1,2 @@
+Artículo 38.—Los empaques primarios de tabletas, cápsulas, supositorios y óvulos, deberán rotularse conteniendo como mínimo el nombre genérico y el de marca (si procede), la potencia, el número de lote, la fecha de vencimiento y el nombre del fabricante o dueño del producto y en el caso de óvulos, preparaciones inyectables y supositorios indicar además la vía de administración.
+Los medicamentos de venta libre deberán ser rotulados bajo la modalidad de unidosis en el empaque primario.

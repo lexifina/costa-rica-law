@@ -1,0 +1,2 @@
+Artículo 20.—Para interponer cualquiera de esos recursos la parte interesada cuenta con cinco días hábiles a partir del día siguiente a aquel en que se recibió la notificación.
+El recurso interpuesto extemporáneamente será inadmisible y rechazado de plano, sin embargo, quedará a juicio del Consejo la tramitación oficiosa de los hechos que estime de interés, caso en el cual no estará sujeto a plazo para emitir su decisión.

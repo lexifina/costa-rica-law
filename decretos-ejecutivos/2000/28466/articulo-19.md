@@ -1,0 +1,1 @@
+Artículo 19.—Los recursos de revocatoria deberán presentarse en la Secretaría del Consejo, y contendrán las razones que justifican la impugnación. La firma del recurrente o su representante que conste en el escrito, deberá ser autenticada por abogado, a menos que la presentación se haga en forma personal.

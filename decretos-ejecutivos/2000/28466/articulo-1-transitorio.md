@@ -1,0 +1,1 @@
+Transitorio I.—Los estudios in vivo a que hace mención el artículo 29 entrarán a regir a los doce meses y los estudios in vitro a los seis meses, después de la publicación de las listas a que hace referencia el artículo 30 y de la normativa que regula los estudios correspondientes.

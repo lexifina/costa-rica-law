@@ -1,0 +1,3 @@
+Artículo 15.—Los miembros del Consejo podrán solicitar y exigir que en el acta se deje constancia de su voto contrario al acuerdo o resolución adoptada, así como los motivos que justifiquen su posición. En estos casos, deberán firmar el acta correspondiente.
+Asimismo, cualquier miembro del Consejo puede interponer recurso de revisión antes de ser conocida o aprobada el acta de la sesión en que fue adoptado algún acuerdo o resolución. El recurso será resuelto cuando se discuta y conozca en acta de esa sesión, o bien, en caso de urgencia y a juicio del Presidente en sesión extraordinaria previamente convocada para tales efectos.
+Simples observaciones de forma relacionados con la redacción de los acuerdos adoptados no serán consideradas como recursos de revisión.

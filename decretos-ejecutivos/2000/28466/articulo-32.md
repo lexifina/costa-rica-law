@@ -1,0 +1,1 @@
+Artículo 32.—Toda solicitud de registro, prórroga o modificación, deberá ser resuelta por el Consejo dentro del término de treinta días hábiles contados a partir de la fecha de recibo de la solicitud con la documentación completa.

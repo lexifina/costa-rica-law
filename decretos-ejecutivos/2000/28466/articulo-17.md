@@ -1,0 +1,2 @@
+Artículo 17.—Los actos de alcance general que emita el Consejo serán publicados en el Diario Oficial.
+Los actos concretos que emite el Consejo que afecten particularmente a una persona física o jurídica, serán debidamente notificados mediante entrega con razón de recibo de copia de lo resuelto por el Consejo, pudiendo también hacerse mediante envío de carta certificada o por el sistema de fax, en el sitio previamente señalado por el interesado, en su defecto, en el sitio que conste en el escrito.

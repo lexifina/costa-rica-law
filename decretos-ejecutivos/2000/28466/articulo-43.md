@@ -1,0 +1,1 @@
+Artículo 43.—En caso de la importación de materia prima para la fabricación de medicamentos, el importador o la droguería debe estar registrado y vigente. Además, debe presentar la solicitud con original y copia de la factura firmada por el regente.

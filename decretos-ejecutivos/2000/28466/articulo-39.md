@@ -1,0 +1,2 @@
+Artículo 39.—De conformidad con el Artículo 346 de la Ley, el Ministerio de Salud podrá recolectar en cualquier momento que lo considere pertinente, ejemplares con el objeto de determinar que los medicamentos se encuentren conforme a las condiciones en que le fue otorgada su inscripción.
+Si se demuestra inseguridad o ineficacia se cancelará el registro en cualquier momento y se podrán aplicar las medidas especiales establecidas en la Ley.

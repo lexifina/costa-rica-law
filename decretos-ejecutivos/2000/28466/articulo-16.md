@@ -1,0 +1,1 @@
+Artículo 16.—Todo acuerdo o resolución del Consejo que imponga obligaciones o límite, suprima, deniegue derechos subjetivos, así como los que resuelven recursos o se aparten del criterio seguido en actuaciones precedentes o de dictámenes rendidos por órganos consultivos, además de ser debidamente comunicados, deberán ser suficientemente fundamentados y motivados.

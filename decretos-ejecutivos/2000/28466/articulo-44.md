@@ -1,0 +1,1 @@
+Artículo 44.—Se autoriza la importación de ejemplares originales necesarios para el proceso de registro, previa inscripción del laboratorio fabricante. La solicitud respectiva deberá estar firmada por el regente farmacéutico.

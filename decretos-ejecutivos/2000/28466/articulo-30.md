@@ -1,0 +1,1 @@
+Artículo 30.—Cuando el Consejo apruebe la lista de productos farmacéuticos o medicamentos multiorigen de riesgo sanitario, dicha lista será publicada en el Diario Oficial. La lista será revisada y actualizada cada año. La ampliación de la lista entrará a regir un año después de esa publicación.

@@ -1,0 +1,2 @@
+Artículo 34.-La renovación del registro deberá gestionarse antes de su vencimiento, debiendo presentar el Formulario de Solicitud de Inscripción de Medicamentos y acompañado de los documentos que se citan en los incisos a), b), c), e) i) y j) del artículo 27 del presente reglamento.
+En caso de medicamentos clasificados como productos farmacéuticos o medicamentos multiorigen de riesgo sanitario, deben cumplir además, los requisitos del artículo 29 del presente reglamento.
