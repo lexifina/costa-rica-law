@@ -1,0 +1,5 @@
+Artículo 111.—Requisitos para el depósito de placas
+Para que el Registro proceda a admitir el depósito de las placas deberán observarse los siguientes requisitos:
+a) Deberá presentarse solicitud del propietario registral previa presentación de su cédula de identidad o autenticación de la misma, si el trámite no se hace en forma personal, indicando los motivos que justifican el depósito y la prueba pertinente.
+b) Deberá verificarse que el vehículo no soporta gravámenes judiciales o prendarios pendientes de cancelación. En este último caso procederá el depósito si el acreedor pignoraticio manifiesta su consentimiento al efecto.
+c) Deberá aportarse el último comprobante de cancelación de derechos de circulación o el último marchamo que tuvo el automotor. En caso de no ser posible presentar estos documentos por razón de extravío o pérdida, deberá aportarse certificación del Instituto Nacional de Seguros del último marchamo y en última instancia declaración jurada ante Notario relativa estos extremos.

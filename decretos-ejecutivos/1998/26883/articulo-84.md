@@ -1,0 +1,2 @@
+Artículo 84.—Base de la publicidad registral
+La publicidad registral está constituida por la información contenida en el sistema de procesamiento electrónico de datos, digitalización y la microfilmación de los documentos. Debe existir entre esos sistemas una estrecha relación, siendo ambos auxiliares recíprocos y complementarios, con el fin de garantizar la unidad, seguridad y congruencia de la información registral.

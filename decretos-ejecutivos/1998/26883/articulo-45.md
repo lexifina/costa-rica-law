@@ -1,0 +1,11 @@
+Artículo 45.—Requisitos formales de anotación e inscripción de documentos
+Para que los documentos mencionados en el artículo 42 anterior puedan ser inscritos, deberán reunir los siguientes requisitos:
+a) En los casos indicados en el inciso a) artículo 40 de este Reglamento, estar constituidos en escritura pública, ejecutoria u otro documento auténtico expresamente autorizado por la ley para este efecto.
+b) No tener raspaduras, tachaduras, emborronaduras o enmiendas, salvo que estuvieren salvadas por nota al pie o en hoja adicional al testimonio o documento privado que se trate. En este caso deberán ir respaldadas por las firmas de las personas que suscriben el documento, debidamente autenticadas por un notario público.
+c) Los documentos destinados a inscribirse no deben contener abreviaturas, salvo cuando la ley autorice su uso o el de siglas y casos similares, y deben expresar los números y cantidades en letras. Se exceptúan de estos requisitos los documentos provenientes de las aduanas.
+d) Consignar los nombres y calidades de las partes, con dirección exacta de su domicilio y su número de cédula de identidad o el de cédula de persona jurídica, si interviene una de estas entidades, en cuyo caso debe también indicarse la cita de personería del representante que comparece y su vigencia a la fecha de celebración del acto, lo que debe certificar el Notario o el funcionario autorizado. Si se tratare de extranjeros se expresará el lugar de residencia en el territorio nacional y la clase de documento de identificación y su número. En caso de menores costarricenses debe darse las citas de inscripción de su nacimiento con vista del Registro Civil.
+e) Haber satisfecho los impuestos y derechos que indique la ley.
+f) Si se tratare de bienes exonerados de impuestos debe aportarse la nota del Ministerio de Hacienda relativa al tipo de exoneración.
+g) En caso de vehículos debe aportarse constancia de haberse cancelado gravámenes provenientes de multas de tránsito.
+h) Estar claramente identificados e individualizados conforme el artículo 39 de este Reglamento.
+i) En los casos del inciso c) del artículo 42 de este Reglamento, consignar en el contrato la razón de fecha cierta para los efectos del artículo 380 del Código Procesal Civil.

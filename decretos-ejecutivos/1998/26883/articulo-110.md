@@ -1,0 +1,2 @@
+Artículo 110.—Del depósito de las placas
+Siempre que se solicite la desinscripción de un vehículo, a interés del propietario o por motivo de refaccionamiento, pérdida, destrucción total o por motivo de salida del país del vehículo para nacionalizarlo en otro país, deberá depositarse la placa provisional o definitiva ante el Registro, el que procederá a su destrucción, previo levantamiento de un acta.

@@ -1,0 +1,2 @@
+Artículo 90.—Valor de las certificaciones
+La plenitud, limitación o restricción de los derechos inscritos, la libertad de disposición, así como cualquier información relacionada con el Registro, podrá acreditarse auténticamente, con relación a terceros por las certificaciones emitidas por esta Institución, o por aquellas autorizadas al efecto, por medio de su red externa, las cuales irán firmadas por aquellos funcionarios autorizados legalmente para ello.

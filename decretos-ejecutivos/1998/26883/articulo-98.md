@@ -1,0 +1,2 @@
+Artículo 98.—Emisión de permisos por medio de la red externa del registro
+El Registro por medio del Departamento de Informática del Registro Nacional, a través del Programa de Descentralización de Servicios, podrá coordinar con las Municipalidades del País u otras instituciones, a fin de que se puedan emitir en esas Dependencias los permisos de salida de los vehículos en las clases que se crea conveniente, conforme lo dispuesto en el Decreto Ejecutivo N° 26515-J de 18 de diciembre de 1997.

@@ -1,0 +1,2 @@
+Artículo 8.—Del Área de Servicios
+El Área de Servicios estará integrada por el Departamento de Consulta, Recepción y Entrega de Documentos y el Departamento de Certificaciones, y estará bajo la jefatura de una coordinación general de servicios, quien deberá velar por la buena marcha de todas las unidades a su cargo. Dicho coordinador deberá nombrar un funcionario encargado de cada unidad, quién podrá designarse rotativamente y por períodos determinados, a fin de que coordine en forma inmediata la realización de las labores.

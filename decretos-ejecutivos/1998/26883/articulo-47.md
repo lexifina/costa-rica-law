@@ -1,0 +1,2 @@
+Artículo 47.—Cambio de características
+Todo cambio de características básicas de un vehículo, aeronave o buque, deberá ser informado al Registro por escrito y por su propietario o representante legal, y en caso de que se incorporen partes nuevas, tales como el motor o el chasis, deberá adjuntarse los documentos respectivos que demuestren la causa adquisitiva de las mismas. Como características básicas se tendrán todas las que exige el artículo 39 para efectos de, inscribir dichos bienes.
