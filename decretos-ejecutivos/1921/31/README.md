@@ -21,3 +21,4 @@ Reglamento Interior del Servicio Postal
 | 7 | 1950-04-28 | Decreto Ejecutivo 37 (1950-04-28) |
 | 8 | 1974-03-30 | Decreto Ejecutivo 3660 (1974-03-30) |
 | 9 | 1987-11-30 | Ley 7088 |
+| 10 | 1994-01-25 | SINALEVI (sin norma nombrada) |
