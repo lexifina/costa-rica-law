@@ -14,3 +14,4 @@ Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-09 | la propia norma |
+| 2 | 1999-04-09 | Decreto Ejecutivo 27826 (1999-04-09) |
