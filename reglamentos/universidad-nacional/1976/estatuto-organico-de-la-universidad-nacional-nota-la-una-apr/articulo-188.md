@@ -1,0 +1,1 @@
+Artículo 188.—El personal académico de la Universidad Nacional será objeto de una evaluación integral de su quehacer, en la que participarán los estudiantes. Esta evaluación se efectuará de acuerdo a las normas y objetivos emanados del Consejo Universitario y a las particularidades de cada Unidad Académica.

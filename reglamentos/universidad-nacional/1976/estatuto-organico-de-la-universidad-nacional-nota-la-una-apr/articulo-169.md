@@ -1,0 +1,1 @@
+Artículo 169.—Cuando el inculpado fuere un profesor, se aplicarán, adicionalmente, las disposiciones del Reglamento de Carrera Académica; cuando fuere un administrativo, se le aplicarán en forma adicional, las disposiciones del Reglamento Interno de Trabajo y de Carrera Administrativa.

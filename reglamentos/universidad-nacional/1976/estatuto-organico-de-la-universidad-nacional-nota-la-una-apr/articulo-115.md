@@ -1,0 +1,1 @@
+Artículo 115.—Las Unidades Administrativas: Departamento Financiero, Departamento de Personal, Departamento de Publicaciones, Departamento de Servicios Generales y las Direcciones Administrativas de cada una de las Facultades y Centros, prestarán los servicios indispensables para el buen funcionamiento de la Universidad.

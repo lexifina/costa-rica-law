@@ -1,0 +1,1 @@
+Artículo 4°—La Universidad Nacional organiza su labor conforme al principio de excelencia académica, que permite a sus integrantes adquirir, perfeccionar y producir una sólida cultura al propiciar un ambiente de rigor científico y de creatividad. Por medio de un esfuerzo colectivo de explicación y transformación de la realidad buscará respuestas a las necesidades de desarrollo.

@@ -1,0 +1,1 @@
+Artículo 241.—El funcionario u organismo ante quien se presenta el recurso, pro-cederá a calificar los requisitos de presentación y en su caso, prevendrá al recurrente sobre el cumplimiento de las formalidades omitidas, dentro de un término de ocho días hábiles posteriores a la notificación de la prevención.

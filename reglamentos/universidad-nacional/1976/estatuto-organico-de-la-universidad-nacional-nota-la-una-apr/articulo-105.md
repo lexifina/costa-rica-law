@@ -1,0 +1,1 @@
+Artículo 105.—Al frente de cada Sección Regional habrá un Director, electo mediante el mismo procedimiento y con los mismos requisitos que los Directores de Unidades Académicas. En cuanto a las atribuciones, permanencia y remoción del cargo se aplicarán las normas establecidas para los Directores de esas Unidades.

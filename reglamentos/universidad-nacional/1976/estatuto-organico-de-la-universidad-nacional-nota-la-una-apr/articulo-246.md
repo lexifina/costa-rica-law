@@ -1,0 +1,1 @@
+Artículo 246.—La apelación será considerada por el superior sólo en lo desfavorable al recurrente. No podrá, por lo tanto, enmendar p revocar la resolución en la parte que no es objeto del recurso, salvo que la variación en la parte que comprenda al recurso, requiera necesariamente modificar o revocar otros puntos de la resolución apelada.

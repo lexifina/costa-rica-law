@@ -1,0 +1,1 @@
+Artículo 70.—Los Consejos Directivos se reunirán ordinariamente una vez por semana y extraordinariamente cuando los convoque el respectivo Decano a iniciativa propia, instancia superior o a pedido de por lo menos una tercera parte de sus componentes. Estas convocatorias se harán con un mínimo de veinticuatro horas de antelación.

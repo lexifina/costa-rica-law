@@ -1,0 +1,1 @@
+Artículo 113.—El Consejo de Servicios Comunes estará integrado por el Vicerrector de Administración, quien lo preside, por los Directores de Unidades Para-Académicas y Administrativas, por los Directores Administrativos de las Facultades y por un representante administrativo de la Vicerrectoría de Vida Estudiantil.

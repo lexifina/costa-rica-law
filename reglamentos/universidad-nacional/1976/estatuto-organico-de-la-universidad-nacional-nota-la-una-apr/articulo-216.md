@@ -1,0 +1,1 @@
+Artículo 216.—En todo convenio que se firme se deberá estipular que la Universidad estará en capacidad de hacer las transformaciones de fondos, o modificaciones presupuestarias, que considere necesarias, siempre que no se aparte de los objetivos del convenio.

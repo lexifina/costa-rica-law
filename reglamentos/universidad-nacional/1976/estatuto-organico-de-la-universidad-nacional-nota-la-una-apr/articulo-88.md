@@ -1,0 +1,1 @@
+Artículo 88.—La Asamblea de Unidad Académica se reunirá cada vez que la convoque el Director, el Consejo Directivo de Unidad o a petición del 30% de sus miembros o a instancias superiores. La asistencia es obligatoria.

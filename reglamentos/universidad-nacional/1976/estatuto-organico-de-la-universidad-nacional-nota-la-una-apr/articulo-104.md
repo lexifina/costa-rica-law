@@ -1,0 +1,1 @@
+Artículo 104.—El Consejo Directivo de las Secciones Regionales estará formado por el Director de la Sección Regional, quien lo preside, los coordinadores de los distintos programas que se desarrollen en ésta y la representación estudiantil y administrativa correspondiente. Cuando el Coordinador de Secciones Regionales esté presente, será él quien presida con derecho a voz y voto.

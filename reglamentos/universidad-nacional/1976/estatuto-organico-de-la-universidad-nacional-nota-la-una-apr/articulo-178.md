@@ -1,0 +1,1 @@
+Artículo 178.—El Rector presentará a más tardar el 30 de junio de cada año, al Consejo Universitario para su aprobación, el Plan Académico correspondiente al año lectivo siguiente. El Consejo Universitario deberá pronunciarse sobre el mismo dentro de los treinta días siguientes a su presentación.

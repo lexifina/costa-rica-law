@@ -1,0 +1,1 @@
+Artículo 63.—Los Centros y Facultades, en ejercicio de la autonomía universitaria, podrán extender Certificados, Diplomas y Títulos Académicos y Profesionales que facultarán para el ejercicio de cada profesión, según lo establecido en el artículo 191.

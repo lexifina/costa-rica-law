@@ -1,0 +1,1 @@
+Artículo 28.—El Consejo Universitario se regirá por un Reglamento Interno que sólo podrá ser modificado por dos tercios de los votos de sus componentes, a propuesta de cualquiera de sus integrantes, después de conocer el informe favorable escrito de la Comisión que estudió la modificación.

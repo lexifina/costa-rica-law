@@ -1,0 +1,1 @@
+Artículo 22.—Los miembros del Consejo Universitario que representan a la comunidad nacional, tendrán una retribución que fijará el mismo Consejo, en sesión a la que se excusarán de asistir los interesados.

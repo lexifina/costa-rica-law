@@ -1,0 +1,1 @@
+Artículo 46.—Los Vicerrectores y el Director de la Oficina de Programación serán nombrados por el Consejo Universitario, por un período de tres años, a través de ternas presentadas por el Rector. Los Vicerrectores y Director de la Oficina de Programación podrán ser removidos por el Consejo Universitario, previa solicitud razonada del Rector.

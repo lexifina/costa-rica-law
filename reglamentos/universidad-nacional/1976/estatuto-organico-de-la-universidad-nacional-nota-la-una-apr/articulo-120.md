@@ -1,0 +1,1 @@
+Artículo 120.—Todos los asuntos oficiales de la Universidad Nacional serán difundidos, oportunamente, en los órganos de comunicación colectiva de la Universidad Nacional, sin que ésto impida la divulgación en otros medios.

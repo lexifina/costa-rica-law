@@ -1,0 +1,1 @@
+Artículo 39.—El Secretario General podrá ser removido por las mismas causas y en la misma forma indicada en cuanto al Rector. Lo dispuesto por el artículo 32 de este Estatuto, será también aplicable al caso.

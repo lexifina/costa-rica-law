@@ -1,0 +1,1 @@
+Artículo 215.—Cuando la finalidad fuere realizar investigaciones científicas o trabajos de tipo artístico o intelectual, la Universidad podrá firmar los acuerdos respectivos de conformidad a las políticas de la misma. La ejecución de los convenios deberá ajustarse a las disposiciones del reglamento referido, el cual deberá ser aprobado por el Consejo Universitario.

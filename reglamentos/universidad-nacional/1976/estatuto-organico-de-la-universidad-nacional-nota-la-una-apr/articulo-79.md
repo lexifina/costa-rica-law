@@ -1,0 +1,1 @@
+Artículo 79.—Las Escuelas, Institutos y Departamentos, denominados genéricamente Unidades Académicas, estarán constituidas por el conjunto de profesores, alumnos y personal administrativo regidos por sus Asambleas y Directores respectivos.

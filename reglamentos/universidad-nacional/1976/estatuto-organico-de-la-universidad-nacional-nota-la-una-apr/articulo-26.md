@@ -1,0 +1,2 @@
+Artículo 26.—El título de Doctor Honoris Causa se otorgará sólo en casos excepcionales. La solicitud, por parte de varios miembros del Consejo Universitario, deberá hacerse razonada debidamente y con indicación precisa de los méritos del candidato propuesto.
+Una Comisión especial de tres miembros del Consejo dictaminará en el término de treinta días. Se concederá el honor si al menos dos tercios de los componentes del Ganselp., en velación secreta, así lo acuerdan. En caso contrario,, no se de tara en actas ninguna mención del asunto.

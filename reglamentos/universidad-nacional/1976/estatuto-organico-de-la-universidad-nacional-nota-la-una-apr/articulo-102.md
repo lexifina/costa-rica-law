@@ -1,0 +1,1 @@
+Artículo 102.—Las funciones del Coordinador de Secciones Regionales serán establecidas por un Reglamento que aprobará el Consejo Universitario, a propuesta de la Rectoría, previa consulta a las Asambleas de las Secciones Regionales.

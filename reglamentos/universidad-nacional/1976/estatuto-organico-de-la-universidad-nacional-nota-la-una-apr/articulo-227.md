@@ -1,0 +1,1 @@
+Artículo 227.—Toda votación que se haga en la Universidad Nacional en la que se decida sobre personas, será secreta. La persona encargada de presidir o que sirviere como Secretario, deberá excusarse de hacerlo, si fuere candidato en la elección para la que ha sido convocada la sesión.

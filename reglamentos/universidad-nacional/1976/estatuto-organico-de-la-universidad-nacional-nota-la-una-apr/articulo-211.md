@@ -1,0 +1,1 @@
+Artículo 211.—Las Unidades Coordinadoras de Extensión son los núcleos que organizan, orientan e impulsan todos los aspectos relativos a la Extensión en cada Centro, Facultad, Sección Regional o Unidad Para-Académica.

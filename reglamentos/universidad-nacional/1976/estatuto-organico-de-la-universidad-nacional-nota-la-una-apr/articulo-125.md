@@ -1,0 +1,2 @@
+Artículo 125.—La Universidad Nacional, por medio del Reglamento de Carrera Académica jerarquizará a los servidores docentes en: Profesor Instructor, Profesor I, Profesor II y Catedrático. Para ingresar al Régimen de Carrera Académica se debe ganar concurso de antecedentes. Además de las categorías mencionadas, la Universidad Nacional tendrá profesores visitantes, eméritos y jubilados.
+El Reglamento de Carrera Académica regulará derechos, obligaciones y actividades que le son propias.

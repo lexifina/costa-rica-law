@@ -1,0 +1,1 @@
+Artículo 101.—Las actividades desarrolladas por la Universidad Nacional a través de Secciones Regionales, se regirán por su propia Asamblea y Consejo Directivo, bajo la jurisdicción de la Rectoría, ejercida por el Coordinador de Secciones Regionales.

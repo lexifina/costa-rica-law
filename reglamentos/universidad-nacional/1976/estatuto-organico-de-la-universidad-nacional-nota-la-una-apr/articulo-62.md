@@ -1,0 +1,1 @@
+Artículo 62.—En cada Centro o Facultad podrán funcionar Escuelas, Institutos, Departamentos, Unidad Coordinadora de Investigación y Programación, Unidad Coordinadora de Extensión y Unidad Coordinadora de Ciclos Básicos de Facultad.

@@ -1,0 +1,1 @@
+Artículo 106.—La admisión de estudiantes y los requisitos para alcanzar grados o títulos en las Secciones Regionales, se ajustarán a los mismos principios que estén vigentes en la Sede Central. La admisión se ejecutará a través de la Sección Regional, tomando en cuenta las necesidades de la zona.

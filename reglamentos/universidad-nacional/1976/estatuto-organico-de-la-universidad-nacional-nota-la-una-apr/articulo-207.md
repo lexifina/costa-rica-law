@@ -1,0 +1,1 @@
+Artículo 207.—La Extensión es una actividad básica del quehacer universitario, en la cual deberán participar los miembros académicos conforme a lo dispuesto en el artículo 124 de este Estatuto. Se contemplará en el Plan Académico del Rector y particularmente en los planes anuales de los Centros, Facultades, Secciones Regionales y Unidades Para-Académicas.

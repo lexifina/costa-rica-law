@@ -1,0 +1,1 @@
+Artículo 132.—Los derechos de propiedad e inamovilidad de los profesores, garantizan jurídicamente la libertad de cátedra y los derechos laborales de los servidores académicos de la Universidad Nacional.

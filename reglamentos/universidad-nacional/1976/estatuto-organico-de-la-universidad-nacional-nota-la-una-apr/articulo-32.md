@@ -1,0 +1,1 @@
+Artículo 32.—En caso de renuncia, remoción, jubilación, incapacidad permanente, impedimento definitivo o muerte del Rector, el Consejo Universitario convocará a Asamblea Universitaria, dentro de los quince días siguientes de producida la vacante, para elegir nuevo Rector por un período legal completo.

@@ -1,0 +1,1 @@
+Artículo 84.—Los Departamentos son aquellas Unidades Académicas que se dedican a cultivar un campo especializado del saber básico, para desarrollar sus propios programas de docencia, investigación y extensión y ofrecen servicios académicos, en su área específica, a las demás Unidades.

@@ -1,0 +1,4 @@
+Artículo 168.—El despido se efectuará sin responsabilidad para la Universidad, en los siguientes casos:
+a) Cuando el profesor o administrativo, de cualquier categoría, incumpla las obligaciones a que se refieren los artículos 130 y 149, siguiendo los trámites establecidos en los artículos 164 a 167 de este Estatuto Orgánico, o incurra en alguna de las faltas a que hacen expresa referencia los artículos 133 a 137 y 139 de este Estatuto, o cuando tratándose de administrativos, incumplan las disposiciones del Reglamento Interno de Trabajo, sancionadas con despido.
+b) Cuando el servidor, habiéndosele impuesto por tres ocasiones, sanción disciplinaria de apercibimiento escrito o suspensión del trabajo sin goce de salario hasta por quince días, incurra en causal para una cuarta sanción, dentro de un período de tres meses.
+c) Cuando el profesor o administrativo incurra en alguna de las causales previstas en el artículo 81 del Código de Trabajo.

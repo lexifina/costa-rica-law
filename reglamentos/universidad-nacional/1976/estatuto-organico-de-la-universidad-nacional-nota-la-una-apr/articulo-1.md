@@ -1,0 +1,22 @@
+UNIVERSIDAD NACIONAL
+(Nota: La Universidad Nacional en Asamblea Universitaria mediante referéndum realizado el 10 de marzo de 1993, según los resultados oficiales transcritos por el Tribunal Electoral de la Universidad Nacional mediante el comunicado oficial 03-93, aprobó el nuevo Estatuto Orgánico de la Universidad Nacional publicado en La Gaceta N° 71 del 15 de abril de 1993)
+El Consejo Universitario en su sesión ordinaria N° 81, del 5 de agosto de 1976, acordó la publicación en el Diario Oficial, "La Gaceta", del Estatuto Orgánico de la Universidad Nacional, aprobado por su Asamblea Universitaria celebrada durante los meses de mayo y junio de 1976, para los efectos del transitorio VII de dicho Estatuto Orgánico que determina su vigencia a partir de su publicación.
+ESTATUTO ORGÁNICO DE LA UNIVERSIDAD NACIONAL
+PREÁMBULO
+La Universidad Nacional entiende que su misión y vocación histórica consiste en promover la transformación social. El inscribir la Universidad Nacional en el marco de una sociedad subdesarrollada y delimitar su papel en el seno de esta sociedad, significan definir la orientación de su quehacer en cuanto a qué intereses sociales concretos la Universidad va a servir y qué modelo de organización de la sociedad ella va a reproducir o generar.
+La investigación sistemática de los problemas nacionales implica una necesidad ética de ofrecer alternativas rea/es de acción. Por eso la función social asumida por la Universidad Nacional trasciende la concepción tradicional de conciencia crítica de la sociedad, al constituirse la Universidad en generadora y formuladora de un conjunto de aspiraciones nacionales y de una nueva unidad de cultura que propone a la sociedad. Para esto trata de inculcar a los miembros de la comunidad universitaria una firme resolución de compromiso con un esfuerzo común de transformación nacional, que sea capaz de producir una sociedad más próspera, justa y libre.
+El crecimiento de la producción, el uso racional de los recursos, la democratización como participación amplia en la toma de decisiones y en el acceso de bienestar y la nacionalización del proceso, definen el desarrollo deseado para nuestra sociedad y legitiman la misión de la Universidad.
+La investigación constituye un elemento central de los actividades universitarias. Alimenta la docencia y la extensión al diagnosticar la realidad nacional, al proponer nuevas alternativas de desarrollo y al plasmar/as en estrategias académicas. Mediante esta acción, con/unta y combinada, la Universidad Nacional dirige su principal quehacer hacia la eliminación del subdesarrollo.
+La Universidad Nacional comprometida con tal fin, en ejercicio pleno de su libertad y autonomía y consecuente con la Declaración Universal de los Derechos Humanos de las Naciones Unidas, devela y formula los problemas fundamentales del pueblo costarricense para que, plasmados en un programa de acción y compromiso común, puedan ser correctamente resueltos.
+La Universidad Nacional está estructurada sobre la existencia de procedimientos democráticos para la toma de decisiones, sin menoscabo del respeto a las minorías, que se garantiza plenamente.
+La Universidad Nacional mantiene su fe en la concepción democrática como el mejor sistema de convivencia humana, dentro del cual se puede lograr, en mayor grado y más eficazmente, la realización integral de todos los individuos y de todos los sectores de la sociedad, por medio de un desarrollo autónomo y equilibrado del país.
+TITULO I
+Fines y Funciones
+CAPITULO I
+De los Fines y de las Funciones
+Artículo I°—La Universidad Nacional es una institución autónoma de cultura superior que tiene como fines fundamentales:
+a) Contribuir a la definición de una nueva unidad cultural y de un conjunto de aspiraciones nacionales, que caracterizan el proceso de desarrollo.
+b) Crear, cultivar, difundir y conservar las ciencias, las letras y las artes.
+c) Propiciar el desarrollo integral de los miembros de la comunidad universitaria y brindarles una formación humanística, basada en el estudio de la realidad nacional y a la luz de los temas y logros de la cultura universal,
+ch) Promover la transformación social y el desarrollo económico del país, contribuyendo a la formación de una sociedad más próspera, justa y libre.
+d) Contribuir al perfeccionamiento de la democracia y fomentar una participación más amplia de los sectores populares en la toma de decisiones y en los beneficios del des arrollo.

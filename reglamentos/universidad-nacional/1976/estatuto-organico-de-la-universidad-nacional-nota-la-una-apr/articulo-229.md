@@ -1,0 +1,1 @@
+Artículo 229.—La elección del Rector, del Secretario General y de los miembros electivos del Consejo Universitario, se hará por mayoría relativa superior al 40% de los votos válidos emitidos. Los votos en blanco y los emitidos a favor de quien no pueda ser válidamente electo, serán sumados al candidato que obtenga simple mayoría, Son inadmisibles los votos por representación.

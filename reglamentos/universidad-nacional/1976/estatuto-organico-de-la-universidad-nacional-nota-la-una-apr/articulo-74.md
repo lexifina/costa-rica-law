@@ -1,0 +1,2 @@
+Artículo 74.—Los Decanos serán electos por Asamblea de Centro o Facultad. Previo a la elección, los candidatos deberán presentar programas concretos de su futura gestión. El cargo será por tres años, reelegible consecutivamente por una sola vez. Su dedicación a la Universidad deberá ser de tiempo completo, salvo autorización expresa del Consejo Universitario.
+En caso de renuncia, jubilación, remoción, incapacidad o muerte de Decano la vacante se ocupará con una nueva elección dentro de los quince días siguientes para un período legal completo.

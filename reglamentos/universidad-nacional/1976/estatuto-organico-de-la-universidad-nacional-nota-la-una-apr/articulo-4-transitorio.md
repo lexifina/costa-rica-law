@@ -1,0 +1,1 @@
+Transitorio IV.—Los integrantes del Tribunal Universitario, Consejo Editorial, Comisión de Carrera Académica y Consejo de Post-grado, serán nombrados dentro del término de 30 días posteriores a la publicación del presente Estatuto.

@@ -1,0 +1,2 @@
+Artículo 128.—Los profesores estarán adscritos a una área específica del saber y podrán ser asignados a diversas unidades académicas. Cualquier cambio que se introduzca en la asignación a una unidad académica, se hará de mutuo acuerdo entre los Decanos y Directores respectivos y el profesor interesado.
+En caso de que no hubiere mutuo acuerdo, se respetará el área específica para la que fue contratado.

@@ -1,0 +1,1 @@
+Artículo 148.—El personal administrativo de la Universidad Nacional, después de tres meses de prueba, no podrá ser despedido, salvo que incurra en las causales de despido consideradas en el Código de Trabajo y el Reglamento Interno de Trabajo de la Universidad Nacional. Este principio deberá contemplarse en el respectivo Reglamento de Carrera Administrativa.

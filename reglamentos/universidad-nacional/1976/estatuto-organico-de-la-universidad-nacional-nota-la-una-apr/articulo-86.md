@@ -1,0 +1,1 @@
+Artículo 86.—La Asamblea es el organismo supremo de cada Unidad Académica y estará integrada por el Director quien preside, el personal académico, las representaciones estudiantiles y administrativas, en el mismo porcentaje que fija este Estatuto para la Asamblea Universitaria y en la forma que lo establece el artículo 65 del mismo,

@@ -1,0 +1,1 @@
+Artículo 109.—El Consejo Universitario propondrá a la Asamblea Universitaria la creación o clausura de una Sección Regional, previo estudio del Consejo Académico y la Oficina de Programación y una recomendación del Consejo Nacional de Rectores.

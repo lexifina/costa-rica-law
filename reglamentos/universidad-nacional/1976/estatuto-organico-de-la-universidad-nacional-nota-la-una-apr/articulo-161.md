@@ -1,0 +1,2 @@
+Artículo 161.—La Federación de Estudiantes manejará sus estados financieros de acuerdo a sus organismos, Estatutos y Reglamentos. Someterá, sin embargo, un informe semestral de sus finanzas al Departamento Financiero de la Universidad.
+La Auditoría de la Universidad podrá realizar auditorajes sobre los rubros que se refieren a los fondos suministrados por los estudiantes o la Universidad, por propia iniciativa o a petición de un organismo representativo estudiantil, o por gestión de un cinco por ciento (5%), del total de los estudiantes.

@@ -1,0 +1,1 @@
+Artículo 17.—El Consejo Universitario es el órgano superior en administración universitaria y de sus resoluciones cabe apelación ante la Asamblea Universitaria, según lo indica el artículo 9? de este Estatuto.

@@ -1,0 +1,1 @@
+Artículo 160.—La Federación de Estudiantes de la Universidad Nacional, contará con un presupuesto correspondiente al cero punto tres por ciento (0.3%) del total del presupuesto general de la Universidad Nacional, más las cuotas correspondientes por derecho de matrícula y otros.

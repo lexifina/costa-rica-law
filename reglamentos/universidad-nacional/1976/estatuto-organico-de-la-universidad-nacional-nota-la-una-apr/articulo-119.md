@@ -1,0 +1,3 @@
+Artículo 119.—El Consejo de Comunicación yv Difusión Cultural de la Universidad Nacional estará integrado por los Directores de cada órgano de comunicación colectiva y difusión cultural, junto con el Vicerrector de Extensión.
+El Consejo de Comunicación y Difusión Cultural coordinará todas las actividades específicas, de acuerdo con la política general establecida por el Consejo Universitario y su aplicación pertinente contemplada en el artículo 207.
+El Consejo de Comunicación y Difusión Cultural nombrará entre sus miembros un presidente que podrá ser reelecto. El Consejo de Comunicación y Difusión Cultural emitirá su propio reglamento que deberá ser aprobado por el Consejo Universitario.

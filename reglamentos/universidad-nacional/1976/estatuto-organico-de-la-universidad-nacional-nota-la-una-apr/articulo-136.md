@@ -1,0 +1,1 @@
+Artículo 136.-—La Asamblea de Unidad Académica, previo informe elaborado de acuerdo al Reglamento de Carrera Académica sobre el desempeño de sus funciones por votación secreta de la mitad más uno del total de sus miembros, podrá emitir juicio sobre la pérdida de inamovilidad por un profesor.

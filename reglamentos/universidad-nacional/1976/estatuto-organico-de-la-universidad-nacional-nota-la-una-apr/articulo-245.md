@@ -1,0 +1,1 @@
+Artículo 245.—El interesado, vencido en parte de sus pretensiones, podrá adherirse a la apelación en tiempo y forma planteada por otro interesado con el mismo asunto y dentro de los ocho días de la citación y emplazamiento ante el superior. Sin embargo, no podrá hacerlo si el recurso ya ha sido rechazado por las autoridades y organismos al que recurre.

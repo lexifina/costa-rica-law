@@ -1,0 +1,1 @@
+Artículo 80.—Las Unidades Académicas definirán su función principal y sus servicios complementarios de acuerdo con las normas que apruebe el Consejo Universitario. Estas Unidades podrán ser eliminadas por el Consejo Universitario, por dos tercios de sus votos, previa recomendación de la Asamblea respectiva.

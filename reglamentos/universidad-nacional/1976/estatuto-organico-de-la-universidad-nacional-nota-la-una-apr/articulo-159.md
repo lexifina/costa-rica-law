@@ -1,0 +1,1 @@
+Artículo 159.—La representación estudiantil en los diferentes organismos, instancias de administración y comisiones, será de un 25% del total de los miembros de cada uno de ellos. Para su elección, la FEUNA se regirá por lo establecido al respecto en sus propios Estatutos y Reglamentos.

@@ -1,0 +1,1 @@
+Artículo 177.—El Plan Académico será elaborado sobre la base de las propuestas que cada Centro, Facultad, Sección Regional, Unidad Administrativa y Para-Académica, deberán obligadamente presentar al Rector a más tardar el primero de mayo de cada año.

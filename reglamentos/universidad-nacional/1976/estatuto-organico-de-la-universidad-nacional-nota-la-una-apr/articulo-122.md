@@ -1,0 +1,3 @@
+Artículo 122.—El Consejo Editorial estará compuesto por seis miembros de la comunidad universitaria, uno de los cuales será el Director de Investigaciones y otro un representante de la Federación de Estudiantes. Los cuatro restantes serán miembros del claustro, nombrados por el Consejo Universitario y representarán diversas áreas del saber.
+El Consejo Editorial nombrará entre sus miembros un Presidente que podrá ser reelecto. Todos los miembros permanecerán tres años en sus funciones y serán sustituidos en forma rotativa, para mantener la continuidad de labores.
+El Consejo emitirá su reglamento, que deberá ser aprobado por el Consejo Universitario .

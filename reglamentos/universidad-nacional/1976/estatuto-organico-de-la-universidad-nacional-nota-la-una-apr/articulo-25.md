@@ -1,0 +1,1 @@
+Artículo 25.—Para el estudio particular de asuntos de su competencia, el Consejo Universitario integrará comisiones asesoras, las que tendrán la condición de permanentes o temporales y su labor estará determinada por las normas que señale el propio Consejo.

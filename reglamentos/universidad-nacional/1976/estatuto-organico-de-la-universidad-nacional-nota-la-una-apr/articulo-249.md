@@ -1,0 +1,1 @@
+Artículo 249. — Cualquier interesado podrá pedir ante la autoridad u organismo que tome una resolución, adición y aclaración de la misma, dentro de los ocho días hábiles siguientes a aquél en la que la misma se notificó por escrito.

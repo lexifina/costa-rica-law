@@ -1,0 +1,1 @@
+Artículo 94.—Cuando el Director faltare gravemente a las obligaciones de su cargo podrá ser destituido. Su remoción se efectuará por el voto de dos terceras partes de la Asamblea de Unidad Académica ampliada.

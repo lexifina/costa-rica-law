@@ -1,0 +1,1 @@
+Artículo 173.—Para dirimir asuntos de difamación u ofensas entre miembros de la comunidad universitaria, no contempladas en el presente Estatuto, funcionará un Tribunal de Honor cuyo nombramiento y reglamentación estará a cargo del Consejo Universitario.

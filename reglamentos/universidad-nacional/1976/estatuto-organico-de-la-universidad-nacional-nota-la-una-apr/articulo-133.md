@@ -1,0 +1,3 @@
+Artículo 133.—Los servidores académicos de la Universidad, independientemente de su categoría, entrarán en propiedad de su cargo, tres meses después de haber sido contratados.
+La propiedad de su cargo estará fundamentada en el buen desempeño de su misión y sus funciones. Perderán este derecho cuando realicen sus labores en forma académicamente ineficiente, o incumplan gravemente sus obligaciones.
+Podrán también ser removidos de su cargo si incurrieren en las causales que determinan el Código de Trabajo, o en actos que impliquen infracción grave del presente Estatuto o del Reglamento Interno de Trabajo.

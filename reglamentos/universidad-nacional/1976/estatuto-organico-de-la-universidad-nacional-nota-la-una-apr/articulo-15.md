@@ -1,0 +1,1 @@
+Artículo 15.—Los acuerdos de Asamblea, no referidos a la elección de los funcionarios contemplados en el artículo 99, podrán derogarse por simple mayoría en posteriores sesiones ordinarias o extraordinarias, siempre que el asunto esté incluido en la convocatoria.

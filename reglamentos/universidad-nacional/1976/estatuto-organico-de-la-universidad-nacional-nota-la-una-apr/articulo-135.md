@@ -1,0 +1,1 @@
+Artículo 135.—La inamovilidad adquirida por el profesor I, II y Catedrático, con dos o más años de servicio en la Universidad Nacional, estará fundamentada en el buen desempeño de su misión y de sus funciones, tal y como se especifica en el Reglamento de Carrera Académica.

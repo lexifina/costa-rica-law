@@ -1,0 +1,1 @@
+Artículo 201.—El Consejo Central de Investigación estará integrado por el Vicerrector de Investigación y los Directores de las Unidades Coordinadores de Investigación de los Centros, Facultades y Secciones Regionales. Sus funciones y organización se regirán por un reglamento específico aprobado por el Consejo Universitario.

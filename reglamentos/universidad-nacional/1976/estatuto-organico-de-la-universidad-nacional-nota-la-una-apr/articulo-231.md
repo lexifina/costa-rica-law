@@ -1,0 +1,1 @@
+Artículo 231.—Cuando se trate de la elección de los funcionarios universitarios, a que se refiere el artículo 16, inciso ch) de este Estatuto, no podrá elegirse más de dos por Centro o Facultad y sólo uno por Sección Regional, Escuela. Instituto o Departamento Académico o Administrativo.

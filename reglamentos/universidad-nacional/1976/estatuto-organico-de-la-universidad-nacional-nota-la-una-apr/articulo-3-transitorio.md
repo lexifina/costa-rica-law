@@ -1,0 +1,1 @@
+Transitorio III.—Los actuales Directores de Docencia, Investigación, Administración y Vida Estudiantil continuarán en sus cargos por el período que fueron nombrados, con rango y funciones de Vicerrector, lo mismo que el Director de la Oficina de Programación, de conformidad con los artículos 41, 42 y 43.

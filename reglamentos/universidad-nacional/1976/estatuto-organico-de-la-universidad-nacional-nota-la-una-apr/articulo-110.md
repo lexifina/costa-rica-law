@@ -1,0 +1,2 @@
+Artículo 110.—En los lugares en que funcionen Secciones Regionales se procederá a nombrar un Patronato Universitario. Este estará integrado por miembros representativos de los grupos populares de la comunidad. Auspiciará el desarrollo de la Sección Regional y establecerá vínculos con las comunidades de la zona.
+El nombramiento y las funciones de este patronato, serán delineados por el Reglamento de Patronatos Universitarios que apruebe el Consejo Universitario.

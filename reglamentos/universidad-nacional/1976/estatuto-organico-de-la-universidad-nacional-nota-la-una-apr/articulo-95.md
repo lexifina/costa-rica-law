@@ -1,0 +1,1 @@
+Artículo 95.—Los Directores de Unidad Académica deberán mantenerse directamente vinculados al núcleo central de la vida académica, en labores de enseñanza, investigación o extensión, sujeta esta obligación a lo que establece el Reglamento de Carrera Académica.

@@ -1,0 +1,3 @@
+Artículo 147.—La elección de los representantes del Sector administrativo ante la Asamblea Universitaria, se hará en Asamblea de todos los trabajadores administrativos. La Asamblea elegirá el número de representantes que le asigne el Tribunal, según las normas de este Estatuto.
+Para elegir la representación ante las Asambleas de Centro o Facultad, se hará Asamblea de todos los trabajadores administrativos que presten servicios en esas Unidades. La representación ante los Consejos Directivos se elegirá entre los representantes ante la respectiva Asamblea.
+La representación administrativa se elegirá a principios del mes de febrero de cada año y fungirá por un año calendario, pudiendo ser reelecta.

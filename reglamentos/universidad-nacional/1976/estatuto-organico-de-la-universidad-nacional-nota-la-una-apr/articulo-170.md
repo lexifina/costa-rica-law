@@ -1,0 +1,1 @@
+Artículo 170.—En ausencia de disposiciones propias en este Estatuto, deberán tenerse como supletorias las del Código de Trabajo y demás leyes, decretos y reglamentos conexos de la materia que estén en vigencia.

@@ -1,0 +1,1 @@
+Artículo 83.—Los Institutos son aquellas Unidades Académicas que se ocupan fundamentalmente de tareas de investigación interdisciplinaria. Podrán ofrecer cursos de servicio, cursos especializados y estudios de Post-Grado.

@@ -1,0 +1,1 @@
+Artículo 175.—El Plan a corto plazo es el conjunto de objetivos, prioridades, políticas y formas de evaluación de la Universidad Nacional, para el período correspondiente. Este Plan constituye la fundamentación académica del presupuesto anual de la Universidad.

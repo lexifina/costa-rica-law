@@ -1,0 +1,1 @@
+Artículo 59.—El Consejo Académico estará presidido por el Vicerrector de Docencia y sesionará ordinariamente una vez por semana. En ausencia del Vicerrector de Docencia presidirá cualquier otro miembro nombrado por el mismo Consejo.

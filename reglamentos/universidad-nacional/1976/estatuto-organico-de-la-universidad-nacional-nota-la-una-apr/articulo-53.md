@@ -1,0 +1,1 @@
+Artículo 53.—Corresponde al Director de la Oficina de Programación actuar como Asesor Técnico del Rector y del Gabinete, en la evaluación y seguimiento de los proyectos que se lleven a cabo en la Universidad. Sus funciones específicas serán determinadas por el reglamento respectivo.

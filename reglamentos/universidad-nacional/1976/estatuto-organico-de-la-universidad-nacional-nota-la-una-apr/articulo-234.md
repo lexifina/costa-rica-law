@@ -1,0 +1,1 @@
+Artículo 234.—El organismo elector correspondiente, podrá levantar los impedimentos de los aspirantes a candidatos a puestos de elección, por votación de al menos la mayoría absoluta. El Tribunal Electoral normará este procedimiento en el Reglamentó respectivo.

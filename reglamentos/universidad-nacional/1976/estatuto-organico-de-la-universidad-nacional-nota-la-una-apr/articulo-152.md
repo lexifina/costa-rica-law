@@ -1,0 +1,1 @@
+Artículo 152.—El profesor que cumpla 70 años, que es la edad máxima de servicio, tendrá la obligación de jubilarse. Sin embargo, podrá continuar en el ejercicio de sus labores hasta la conclusión del año lectivo en curso.

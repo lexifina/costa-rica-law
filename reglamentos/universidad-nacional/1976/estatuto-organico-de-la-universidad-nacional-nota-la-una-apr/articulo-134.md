@@ -1,0 +1,1 @@
+Artículo 134.—Corresponderá al Consejo Directivo de Facultad, previo informe razonado del Consejo de Unidad Académica y por votación secreta no menor de la mitad del total de sus miembros, declarar la pérdida del derecho de propiedad.

@@ -1,0 +1,1 @@
+Transitorio II.—A fin de cumplir con lo dispuesto en el artículo 16 del presente Estatuto y sin perjuicio de lo dispuesto ya en artículo nuevo, el sector administrativo elegirá el miembro de ese sector ante el Consejo Universitario, quien fungirá por el mismo período del resto de los actuales miembros

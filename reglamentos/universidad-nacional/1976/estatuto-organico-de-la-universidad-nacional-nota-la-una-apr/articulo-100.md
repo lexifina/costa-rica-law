@@ -1,0 +1,2 @@
+Artículo 100.—Las actividades desarrolladas por la Universidad Nacional fuera de su sede central, a través de programas especializados, dependerán directamente de la Facultad que las realice y se someterán en todo a las disposiciones de la Universidad Nacional y de la Facultad correspondiente.
+Cuando estos programas se ofrezcan en lugares cercanos a una Sección Regional, se coordinarán con ésta y en ningún caso duplicarán los que ya ofrece dicha Sección Regional.

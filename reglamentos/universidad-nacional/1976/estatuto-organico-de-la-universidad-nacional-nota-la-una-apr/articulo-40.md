@@ -1,0 +1,1 @@
+Artículo 40.—En caso de ausencia temporal del Secretario General, será sustituido por la persona que designe el Consejo Universitario de entre sus miembros, teniendo las mismas atribuciones y responsabilidades del titular.

@@ -1,0 +1,1 @@
+Artículo 82.—Las Escuelas son aquellas Unidades Académicas cuya tarea esencial es ofrecer, por medio de la docencia, la investigación y la extensión, el núcleo básico de conocimientos aplicados que constituyen una o más carreras completas. Además, podrán ofrecer cursos de servicio para otras Unidades Académicas.

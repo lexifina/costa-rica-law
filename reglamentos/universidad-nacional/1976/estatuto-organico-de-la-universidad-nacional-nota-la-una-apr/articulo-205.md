@@ -1,0 +1,1 @@
+Artículo 205.—El Coordinador de Investigación de cada Unidad Académica será nombrado por la Asamblea de dicha Unidad, de acuerdo a sus propios reglamentos y tendrá las atribuciones que éstos le fijen. Será el responsable del desarrollo de la investigación en su Unidad y será miembro del Consejo Directivo de ésta.

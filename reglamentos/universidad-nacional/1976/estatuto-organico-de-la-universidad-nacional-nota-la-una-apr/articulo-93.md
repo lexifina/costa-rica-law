@@ -1,0 +1,1 @@
+Artículo 93.—El Director será electo por tres años, reelegible consecutivamente una sola vez. Su dedicación a la Universidad deberá ser a tiempo completo en su Unidad Académica, a partir de la fecha de elección.

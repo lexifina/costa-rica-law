@@ -1,0 +1,1 @@
+Artículo 71. —A fin de homologar los diversos reglamentos de Facultad y mantener la coherencia de los principios generales que rigen la Universidad Nacional, la Secretaría General podrá proponer al Consejo Directivo aquellas modificaciones pertinentes en cuanto a su reglamento que deberán ser aprobadas por la Asamblea de Facultad.

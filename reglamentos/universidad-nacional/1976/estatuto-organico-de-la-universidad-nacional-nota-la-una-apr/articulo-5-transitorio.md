@@ -1,0 +1,1 @@
+Transitorio V.—Dentro del término de sesenta días posteriores a la publicación del presente Estatuto se realizarán las elecciones de Decanos, Directores de Secciones Regionales y Directores de Unidades Académicas.

@@ -1,0 +1,1 @@
+Artículo 75.—Para sustituir al Decano en sus ausencias temporales, el Consejo Directivo del Centro o Facultad nombrará anualmente a uno de sus miembros como sustituto que debe reunir los requisitos pertinentes.

@@ -1,0 +1,1 @@
+Artículo 221.—Todos los ingresos de la Universidad, cualquiera que fuere su origen, deberán centralizarse en un fondo único. Las disposiciones de fondos y las inversiones deberán realizarse en estricta conformidad con el presupuesto que fuere aprobado.

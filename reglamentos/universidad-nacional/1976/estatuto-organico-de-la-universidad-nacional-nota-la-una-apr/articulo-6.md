@@ -1,0 +1,1 @@
+Artículo 6°—La dirección, gobierno y administración de la Universidad Nacional, estarán a cargo de la Asamblea Universitaria, del Consejo Universitario, de la Rectoría y de los otros órganos que establece este Estatuto.

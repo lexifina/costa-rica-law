@@ -1,0 +1,1 @@
+Artículo 21.—El Consejo Universitario se reunirá ordinariamente dos veces por semana y extraordinariamente cada vez que el Rector convoque por propia iniciativa o a pedido de tres o más miembros. La asistencia es obligatoria.
