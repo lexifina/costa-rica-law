@@ -1,0 +1,1 @@
+Art. 28.-En el caso de que, por inexactitud de la medida, recibiere el adjudicatario mayor extensión de terreno que la que se le adjudicó, el fisco gozará de la facultad que el Código Civil confiere al vendedor para reclamar la diferencia de precio, durante un año contado desde la fecha del remate.

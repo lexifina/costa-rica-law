@@ -1,0 +1,2 @@
+Art. 23.-El que se hallare en alguno de los casos señalados en los dos artículos anteriores, lo manifestará por escrito al Juez de Hacienda, quien nombrará dos peritos para que valoren las mejoras y cultivos del terreno de que se trate; y si resultare que el solicitante es acreedor á la gracia, lo declarará así, y mandará que se haga constar en la escritura, ó que se cancele ésta total o parcialmente, según el caso.
+Los honorarios de peritos y dietas de ocupación y leguaje serán de cargo del interesado.

@@ -1,0 +1,1 @@
+Art. 30.-Los terrenos baldíos que se vendan ó adjudiquen no quedan sujetos implícitamente á otras cargas, limitaciones ó servidumbres que las establecidas por las leyes civiles; y la propiedad de dichos terrenos se transfiere al interesado con todas sus anexidades y productos.
