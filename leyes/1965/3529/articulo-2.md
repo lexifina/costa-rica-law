@@ -1,0 +1,1 @@
+Artículo 2°-Autorizase a las Municipalidades de la provincia de Cartago para contribuir en la forma que estimen conveniente, a la construcción de la citada iglesia, previa autorización de la Contraloría General de la República.
