@@ -1,0 +1,1 @@
+Artículo 25.—Una vez asignado el Notario, por la Unidad de Control de Escrituras, esta, llenará un formulario, mediante el cual, le remite el expediente o expedientes, los que retirará contra su firma o la de quien autorice, para tal efecto.

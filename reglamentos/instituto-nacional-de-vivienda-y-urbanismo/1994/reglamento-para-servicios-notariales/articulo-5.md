@@ -1,0 +1,1 @@
+Artículo 5°—Los trámites previos, la recopilación de documentos y datos para la formalización de las escrituras, así como la determinación de los honorarios, los debe realizar el Departamento promovedor de cada sistema, según lo estipulado en los artículos 7, 8 y 11 siguientes, atendiendo las recomendaciones, que al respecto haga la Comisión de Notariado.

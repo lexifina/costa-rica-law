@@ -1,0 +1,1 @@
+Artículo 20.—Bimestralmente la Unidad de Control de Escrituras confeccionará un informe de operaciones asignadas a cada Notario, con detalle de los casos pendientes, para ser conocido por la Comisión de Notariado, la que procederá según corresponda.
