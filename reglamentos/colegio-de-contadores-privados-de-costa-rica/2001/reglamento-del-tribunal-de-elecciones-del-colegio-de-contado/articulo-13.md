@@ -1,1 +1,0 @@
-Artículo 13.—Una vez recibida la solicitud de inscripción, el Tribunal procederá a emitir la resolución correspondiente. Las tendencias o candidatos tendrán ocho días hábiles para corregir las deficiencias señaladas por el Tribunal de Elecciones. Las tendencias quedarán inscritas por un período electoral.

@@ -1,1 +1,0 @@
-Artículo 23.—Una vez emitido el voto, el Secretario de la junta receptora marcará, en el margen derecho, el registro de colegiados y, a la altura del nombre del colegiado, la frase "sí voto", lo cual hará constar el sufragio emitido.
