@@ -1,0 +1,1 @@
+Art 60.- Los Alcaldes llebaran para pago de papel y escribiente, dos reales por cada acto, determinación o conciliación no excediendo de una foxa y si pasare un real por cada una de ellas que exigirán de las partes por mitad, iguales derechos por las certificaciones que dieren de las partes que las pidan.

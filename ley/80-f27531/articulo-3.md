@@ -1,0 +1,1 @@
+Art 3°.- Ella formará el arancel de los derechos que deban llevarse en todos los Tribunales de Justicia y las ordenanzas para su régimen interior, y fixando en esta los días de su despacho con presencia de los asuntos en que deba ocuparse, las pasará con el arancel a la Asamblea para su aprovacion o reforma

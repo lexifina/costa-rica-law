@@ -1,0 +1,1 @@
+Art 26.- Será nombrado y examinado por ella misma y tendrá el sueldo de veinte y cinco pesos y los derechos de arancel, en los asuntos de parte, este autorizará como Escribano en el despacho de los negocios civiles y criminales y también hará de Secretario en los acuerdos del Tribunal,.

@@ -1,0 +1,1 @@
+Art 62°.- Podrán asi mismo conocer a instancia de parte en las cauzas que aunque contenciosas son urgentísimas y no dan lugar a a acudir al juez del Partido como la prevención de un inventario, la interposición de un retracto y otras de esta naturaleza, remetiendolas al Juez, evacuado que sea el objeto.

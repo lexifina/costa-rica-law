@@ -1,0 +1,1 @@
+Art 43.- Se llevarán dos libros, uno con el título de conciliaciones y otro con papel de oficio, en el primero se sentarán las providencias que dieren en negocios que según esta Ley puedan ventilarse en juicio escrito, y en el segundo las que no.

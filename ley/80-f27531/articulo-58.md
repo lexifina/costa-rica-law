@@ -1,0 +1,1 @@
+Art 58°.- A los juicios conciliatorios podrá asistirse por medio de procurador con poder especial, debiendo ser por escritura pública en los casos que la quantia exeda de cien pesos, y en un documento simple firmado con dos testigos en caso que sea por cantidad menor.

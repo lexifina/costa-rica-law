@@ -1,0 +1,1 @@
+Art 17°.- Quando las sentencias sean conformes solo se admitirá la tercera instancia exendiendo el interés de dos mil pesos, o presentándose nuevos instrumentos por alguna de las partes con juramento de no haberlos encontrado antes ni sabido de ellos a pesar de haber hecho las diligencias oportunas.

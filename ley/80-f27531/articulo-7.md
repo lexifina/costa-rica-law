@@ -1,0 +1,1 @@
+Art 7°.- Para fallar en revista se asociarán los dos Magistrados excluidos con el suplente, o suplentes que hayan quedado sin votar en vista, y con Letrados que nombrará la misma Corte o en defecto de estos Bachilleres en derecho, o Alcaldes hasta complementar el número de cinco Jueces.
