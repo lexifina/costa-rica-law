@@ -14,3 +14,4 @@ Reglamento para la Contraloría de Servicios de la Caja Costarricense de Seguro 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-03 | la propia norma |
+| 2 | 2001-06-14 | Reglamento 7556 (2001-06-14) |

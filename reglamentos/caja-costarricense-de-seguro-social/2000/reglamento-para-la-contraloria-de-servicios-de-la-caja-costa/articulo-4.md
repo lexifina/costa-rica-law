@@ -11,4 +11,5 @@ i) Canalizar las sugerencias que presenten los usuarios, en procura de que siemp
 j) Formular recomendaciones y sugerencias a los responsables de los servicios, con miras a que adopten políticas, normas y procedimientos que mejoren su eficiencia y eficacia.
 k) Llevar un registro de las reacciones de los usuarios frente a los servicios, que permita medir d grado de avance en el logro de los cometidos de mejoramiento continuo de la calidad.
 I) Elaborar guías de servicio a los usuarios.
-m) Informar semestral mente sobre las labores del periodo. El informe de las contralorías locales será presentado al de pan a mentó correspondiente, el que se ocupara de consolidarlo y remitirlo al Superintendente General de Servicios de Salud, quien lo hará del conocimiento de la Junta Directiva.
+m) Informar trimestralmente sobre las laboras del período. El informe de las contralorías locales será presentado a la Contraloría institucional, la que se ocupará de consolidarlo y remitirlo al Superintendente General de Servicios de Salud, quién lo hará del conocimiento de la Junta Directiva. "
+(Así reformado en sesión No. 7556 de 14 de junio de 2001).
