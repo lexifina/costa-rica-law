@@ -1,0 +1,1 @@
+Artículo 16.—Naturaleza de las sesiones. Las sesiones del Consejo Central son siempre privadas. No obstante, por unanimidad de sus integrantes presentes, puede acordarse que tenga acceso a ella el público general o bien ciertas personas previamente invitadas, concediéndoles o no el derecho a participar en las deliberaciones con voz pero sin voto.

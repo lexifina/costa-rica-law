@@ -1,0 +1,2 @@
+Artículo 20.—Excusas y recusaciones. Las excusas y recusaciones de las personas del Consejo Central deben ser conocidas y resueltas por éste, conforme a las disposiciones de los artículos 230 y siguientes de la Ley General de Administración Pública, aplicables en lo conducente.
+En caso de que la recusación sea declarada sin lugar, la persona que gestiona tiene derecho de interponer contra lo resuelto los recursos ordinarios de revocatoria o de apelación previstos en este Reglamento.

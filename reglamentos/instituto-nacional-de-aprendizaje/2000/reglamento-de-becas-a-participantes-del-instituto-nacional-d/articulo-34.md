@@ -1,0 +1,1 @@
+Artículo 34.—Determinación del monto a conceder. Dependiendo de las condiciones socioeconómicas de cada solicitante, los respectivos Comités Locales de Becas determinan el monto de beca a otorgar. En ese caso el monto a conceder puede sobrepasar el máximo señalado en la Tabla de Cuantificación de la Ayuda Económica, para la Unidad Regional o Tecnológica correspondiente.

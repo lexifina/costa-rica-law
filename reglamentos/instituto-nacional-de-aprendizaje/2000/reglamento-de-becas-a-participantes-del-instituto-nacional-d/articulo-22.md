@@ -1,0 +1,1 @@
+Artículo 22.—Acuerdos firmes. Cuando el Consejo Central sesione con mayoría absoluta de sus integrantes, puede declararse firme un acuerdo cuando el Consejo Central sesiones con cuatro o más de sus integrantes.

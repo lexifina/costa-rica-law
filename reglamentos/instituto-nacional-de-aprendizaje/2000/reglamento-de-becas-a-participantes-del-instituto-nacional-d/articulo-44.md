@@ -1,0 +1,1 @@
+Artículo 44.—Procedimiento para solicitar las ayudas extraordinarias. Las ayudas extraordinarias deberán solicitarlas cada persona ante el Comité Local de Becas, mediante el formulario elaborado para tales efectos y presentar al menos dos facturas proformas, salvo en casos de imposibilidad en que se acepta únicamente una.

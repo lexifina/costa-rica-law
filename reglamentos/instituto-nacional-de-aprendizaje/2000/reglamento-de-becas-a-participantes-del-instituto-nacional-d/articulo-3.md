@@ -1,0 +1,2 @@
+Artículo 3°—Participantes del Sistema. Pueden beneficiarse del sistema de becas, participantes de acciones formativas de cualquiera de las áreas y modalidades que ofrece el INA. Se entienden por incluidas aquellas personas que formen parte de programas de capacitación y formación profesional cuya ejecución sea convenida con otros entes públicos o privados, de conformidad con lo previsto por el artículo 3° inciso b) de la Ley Orgánica del INA.
+El beneficio de una beca para realizar estudios en un determinado sector requiere de una justificación y aprobación del Comité Local.

@@ -1,0 +1,8 @@
+Articulo 53.—Cancelación de beca. El Comité Local de Becas podrá cancelar una beca cuando la persona incumpliere algunas de las obligaciones contenidas en el artículo 50, incisos: c), d), h), i), j).
+Así como también si:
+a. Suministra información no veraz u omita información sobre su situación económica familiar o personal. En este caso no puede disfrutar de ninguna otra beca hasta transcurridos dos años a partir del conocimiento de los hechos. Asimismo quien incurra en esta falta debe rembolsar al INA el monto recibido por concepto de la beca otorgada en los anteriores términos.
+b. Pierda el módulo por bajo rendimiento académico o ausentismo, salvo cuando sea producto de situaciones propias de salud u otras de fuerza mayor.
+Si el módulo reprobado es requisito para el siguiente, puede realizar el trámite de solicitud nuevamente siempre y cuando lo haya aprobado con el promedio mínimo establecido en el presente reglamento. Cuando el módulo reprobado no es requisito del siguiente, la persona puede realizar el trámite de solicitud nuevamente una vez que el módulo que cursa haya sido aprobado con el promedio mínimo establecido en el presente reglamento.
+c. Pierda la beca por problemas disciplinarios y ausentismo originado por su indisciplina.
+En este caso no se le concede la beca nuevamente hasta transcurrido un año y que demuestre que la situación que originó la cancelación ha sido superada.
+Cuando la persona becada se le otorgó el beneficio únicamente en el rubro de hospedaje e incumple con uno de los incisos establecidos como motivo de cancelación pierde el 100% de la beca aprobada.

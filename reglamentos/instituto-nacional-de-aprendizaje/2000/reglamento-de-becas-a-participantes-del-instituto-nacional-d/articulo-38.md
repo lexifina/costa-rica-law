@@ -1,0 +1,1 @@
+Artículo 38.—De la alimentación. El beneficio de alimentación comprende el pago por concepto de desayuno, almuerzo o cena, para ello, se considera el horario de estudio de la persona y el tiempo de traslado de residencia al Centro de Formación y viceversa.

@@ -1,0 +1,2 @@
+Artículo 45.—Límite del monto y liquidación del gasto. El monto máximo que se otorgue con ocasión de la aplicación del artículo 43 no puede exceder el 100% de lo establecido para el rubro de hospedaje y tiene como máximo una vigencia de un año calendario. Este puede otorgarse en forma fraccionada y para atender las diferentes necesidades citadas en el mismo artículo.
+La persona participante que ha recibido los beneficios contemplados en el artículo 43, debe hacer una liquidación de gastos dentro de los ocho días hábiles posteriores de efectuado el giro.

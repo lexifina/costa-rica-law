@@ -1,0 +1,1 @@
+Artículo 4°—Plan del Programa de Becas. El Programa de Becas a Participantes se desarrolla con base en los planes anuales que elaboren las Unidades Regionales, Núcleos Tecnológicos y Centros de Formación.

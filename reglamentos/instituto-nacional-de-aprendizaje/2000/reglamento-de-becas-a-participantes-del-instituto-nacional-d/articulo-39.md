@@ -1,0 +1,1 @@
+Artículo 39.— Gastos personales. El INA puede otorgar a sus participantes un porcentaje para cubrir gastos personales. Este beneficio se jebe girar mensual o quincenalmente y el monto máximo a otorgar está definido en la “Tabla de Cuantificación de Ayuda Económica".

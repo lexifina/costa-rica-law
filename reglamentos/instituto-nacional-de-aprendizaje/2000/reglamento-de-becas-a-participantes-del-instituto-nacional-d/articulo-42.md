@@ -1,0 +1,2 @@
+Artículo 42.—Forma de pago de los beneficios. El pago de los beneficios indicados en este capítulo se hace mensual o quincenalmente, y se gira únicamente el monto correspondiente a los días en que la persona asistió a lecciones.
+Los beneficios de transporte, gastos personales, alimentación, ayuda para el cuido de dependientes, se pagarán calculando 22 días hábiles. En los casos en que el participante asiste menos de 5 días por semana se hará sobre esos días únicamente.
