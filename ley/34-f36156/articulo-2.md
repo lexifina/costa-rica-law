@@ -1,0 +1,1 @@
+Artículo segundo: Para la ejecución de lo dispuesto en el artículo anterior, habrá una Junta compuesta de los Presidentes Municipales de los cantones citados, la cual reglamentará la manera de hacer los trabajos, de acuerdo con la Dirección General de Obras Públicas y hará los nombramientos de los respectivos comisionados.
