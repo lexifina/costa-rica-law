@@ -1,0 +1,1 @@
+Artículo 25.—La Sección de Recursos a que se refiere el artículo anterior, estará organizada en tres unidades: Unidad de Publicaciones, Unidad de Biblioteca y Documentación y Unidad de Diseño y Producción.
