@@ -1,2 +1,3 @@
-Artículo 23.-Las declaraciones se presentarán durante los meses de octubre y noviembre de cada año y contendrán los datos correspondientes a la renta del año inmediato anterior, salvo las excepciones consignadas en el artículo precedente. El contribuyente está obligado a liquidar en la declaración el impuesto respectivo.
-(Así reformado por el artículo 1° de la ley N° 3063 del 14 de noviembre de 1962)
+Artículo 23.- Las declaraciones se presentarán durante los meses de octubre y noviembre de cada año y contendrán los datos correspondientes a la renta del año inmediato anterior, salvo las excepciones consignadas en el artículo 22. El contribuyente está obligado a liquidar en su declaración el impuesto respectivo.
+Se faculta al Poder Ejecutivo para establecer, mediante decreto, el sistema de presentación y pago simultáneo del impuesto o su saldo si lo hubiere, u otro sistema de pago que facilite la percepción del impuesto".
+(Así reformado por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)

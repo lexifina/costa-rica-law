@@ -14,9 +14,9 @@ Sobre el exceso de 150,000.00 Hasta 200,000.00 un 32% anual
 Sobre el exceso de 200,000.00 Hasta 250,000.00 un 38% anual
 Sobre el exceso de 250,000.00 Hasta 350,000.00 un 44% anual
 Sobre el exceso de 350,000.00 en adelante un 50% anual
-2) En el caso de sociedades de hecho o de derecho, así como en el de patrimonios hereditarios indivisos y en el de fideicomisos o encargos de confianza, se aplicará sobre la renta líquida obtenida la escala progresiva de tasas que sigue:
-Hasta ¢ 50,000.00 un 5% anual
-Sobre el exceso de ¢ 50,000.00 Hasta 180,000.00 un 20% anual
-Sobre el exceso de 180,000.00 Hasta 1.000,000.00 un 35% anual
-Sobre el exceso de 1.000,000.00 en adelante un 40% anual
+2) 2) En el caso de sociedades de hecho o de derecho, patrimonios hereditarios indivisos, fideicomisos o encargos de confianza, se aplicará sobre la renta líquida obtenida la escala progresiva de tasas que sigue:
+Sobre el exceso de doscientos mil hasta un millón de colones (¢200.000 hasta ¢ 1.000.000) cuarenta por ciento (40%) anual.
+Sobre el exceso de un millón de colones (¢ 1.000.000) en adelante cuarenta y cinco por ciento (45%) anual.
+A las personas jurídicas, sociedades de hecho, patrimonios hereditarios indivisos y fideicomisos o encargos de confianza, con renta líquida obtenida: hasta doscientos mil colones (¢ 200.000) se les aplicará la escala progresiva contenida en el inciso 1) de este artículo.
+(Así reformado el inciso 2) anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)
 (Así reformado por el artículo 20 de la ley N° 4961 del 11 de marzo de 1972)

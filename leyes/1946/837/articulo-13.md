@@ -1,11 +1,14 @@
 Artículo 13.- Además de las rebajas autorizadas por los artículos 8º., 10 y 12 el declarante, siempre que se trate de persona física domiciliada en el país, deducirá:
-1) Siete mil quinientos colones (¢ 7,500.00) por su persona;
-2) Tres mil colones (¢ 3,000.00) por el cónyuge cuando no haya separación legal. En caso de tener rentas independientes, la rebaja podrá ser hecha por cualquiera de ellos o entre ambos. Si los cónyuges viven separados, sólo se permitirá esta deducción a aquel a cuyo cargo está la manutención del otro;
-3) Dos mil quinientos colones (¢ 2,500.00) por cada hijo y mil quinientos colones (¢ 1,500.00) por cada persona, cuando sean dependientes del declarante. Se entiende por dependiente cualquier persona relacionada por parentesco de consanguinidad, afinidad o por adopción con el declarante, si hubiere recibido de éste durante el período de la deducción, más de la mitad de su sustento y mientras esté comprendida en alguno de los siguientes casos:
+1) Diez mil colones (¢ 10,000.00), por su persona.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)
+2) Cinco mil colones (¢ 5,000.00), por su cónyuge, cuando no exista separación judicial. En caso de tener rentas independientes, la rebaja podrá ser hecha por cualquiera de ellos o entre ambos. Si los cónyuges viven separados, sólo se permitirá esta deducción a aquél a cuyo cargo esté la manutención del otro.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)
+3) Tres mil quinientos colones (¢ 3,500.00), por cada hijo; y mil quinientos colones (¢ 1,500.00) por cada personas, hasta un máximo de tres, cuando sean dependientes del declarante. Se entiende por dependiente, cualquier persona relacionada por parentesco de consanguinidad, afinidad o por adopción del declarante, si hubiere recibido de éste, durante el período de la deducción, más de la mitad de su sustento y mientras esté comprendida en alguno de los siguientes casos:
 a) Que sea menor de edad;
 b) Que no pueda proveerse su propio sustento debido a incapacidad física o mental;
-c) Que siga estudios universitarios, sin haberse graduado y siempre que no fuere mayor de veinticinco años; y
-d) Que sea ascendiente del declarante;
+c) Que siga estudios universitarios, sin haberse graduado y siempre que no fuere mayor de treinta años; y
+d) Que sea ascendiente del declarante.
+(Así reformado el inciso 3) anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)
 4) Por concepto de otras deducciones personales, el quince por ciento (15%) de la renta bruta obtenida en el año a que se refiere el impuesto, hasta un máximo de quince mil colones (¢ 15,000.00).
 Podrán incluirse dentro de otras deducciones personales hasta alcanzar el máximo anteriormente señalado, las cuotas obreras a la Caja Costarricense de Seguro Social, las pensiones alimenticias por sentencia firme de autoridad competente, cuotas al fondo de Pensiones creado por ley especial, mutualidad de colegios profesionales, Impuesto Territorial, Impuestos Municipales, veinte por ciento (20%) de lo pagado a profesionales residente en el país, intereses pagados por deudas propias, remesas a dependientes para estudios en el extranjero que no puedan realizarse en el país y primas pagadas por seguros de incendio y otras deducciones que a juicio de la administración tributaria se justifique.
 En caso de que el declarante estime que el total de otras deducciones personales, citadas en este inciso, supera el quince por ciento (15%) de su rente bruta, puede reclamar un monto superior a ese quince por ciento (15%), siempre que la suma reclamada no exceda de ¢ 15,000.00. En este caso está obligado a probar, a requerimiento de la administración, las deducciones que permite el presente inciso;
@@ -13,6 +16,9 @@ En caso de que el declarante estime que el total de otras deducciones personales
 5) Las donaciones que se hagan para los fines indicados en el inciso 9) del artículo 8º, con las limitaciones que para su aceptación establece dicho inciso;
 6) Primas de vida pagadas al Instituto Nacional de Seguros, primas sobre títulos de capitalización del Sistema Bancario Nacional y las cuotas de ahorro y préstamo pagadas al Instituto de Vivienda y Urbanismo, de acuerdo con la ley Nº 1901 de 9 de julio de 1955, que reformó la Ley Orgánica del INVU, hasta un máximo conjunto de ocho mil colones (¢ 8,000.00).
 (Así reformado el inciso anterior por el artículo 1° de la ley N° 5610 del 20 de noviembre de 1974)
+7) Las sumas percibidas por concepto de aguinaldo o decimotercer mes; siempre que no exceda de la doceava parte de los salarios devengados en el año o a la proporción correspondiente en el lapso menor en que se hubiere trabajado.
+Cada vez que el aumento en el costo de la vida, según informe de la Dirección de Estadística y Censos, exceda de un diez por ciento (10%) al año, el Poder Ejecutivo, mediante decreto, podrá aumentar en la proporción correspondiente a ese aumento, los deducibles a que se refieren los incisos 1), 2) y 3) de este artículo, los cuales regirán para el período fiscal siguiente.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)
 No obstante los dispuesto en los incisos precedentes, toda persona física domiciliada en el país, podrá deducir de su renta bruta, sin necesidad de prueba, hasta veintiséis mil colones (¢ 26,000.00) en el año fiscal, como deducción única por todos los conceptos que autoriza este artículo.
 (Así reformado el párrafo anterior por el artículo 1° de la ley N° 5610 del 20 de noviembre de 1974)
 En caso de que el declarante estime que el total de deducciones, calculado conforme las normas de los incisos precedentes, supera la suma de quince mil colones... (¢ 15,000.00), puede reclamar un monto superior, en cuyo caso está obligado a probar, a requerimiento de la Administración, las deducciones que permite el presente artículo.
