@@ -1,5 +1,3 @@
-CAPITULO VII
-Los Delegados del Colegio
-Artículo 20.- El Colegio tendrá derecho a hacerse representar, en
-calidad de miembro examinador, en las pruebas de grado a que se sometan,
-en las Escuelas de Contabilidad del país, a sus alumnos.
+Artículo 20.- Son atribuciones de los Vocales:
+a) Asistir a las sesiones de la Junta Directiva; y
+b) Cooperar en todos los actos de la Junta Directiva.

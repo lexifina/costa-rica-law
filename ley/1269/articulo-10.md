@@ -1,13 +1,15 @@
-CAPITULO V
-La Junta Directiva
-Artículo 10.- La Junta Directiva estará integrada por un Presidente,
-dos Vicepresidentes, primero y segundo; dos Secretarios, primero y
-segundo; un Prosecretario; un Fiscal; un Tesorero y dos Vocales, primero
-y segundo. Los Vicepresidentes reemplazarán, por su orden, al Presidente
-y el Prosecretario a cualquiera de los Secretarios o a ambos.
-Durarán en sus funciones dos años, renovándose anualmente por
-mitades así: el primer año, se renovará un Vicepresidente en el orden de
-su elección, un Secretario en el orden de su elección, el Prosecretario,
-el Fiscal y un Vocal en el orden de su elección. Y en los siguientes los
-otros miembros por rotación. Pudiendo ser reelectos parcial o
-totalmente.
+Artículo 10.- La Asamblea General se reunirá ordinariamente, por lo
+menos una vez al año y extraordinariamente, cuando así lo resuelva la Junta
+Directiva o cuando lo solicite un grupo de miembros del Colegio no inferior
+al diez por ciento de la totalidad de sus componentes. En las Asambleas
+sólo se tratará de los puntos fijados en la respectiva convocatoria que se
+publicará en el Diario Oficial con una antelación mínima de quince días
+hábiles, en los cuales no debe contarse ni el día de la publicación ni el
+de la Asamblea.
+El quórum será fijado en el respectivo reglamento de esta ley. Cuando
+con la primera convocatoria no se pudiere reunir el quórum reglamentario,
+podrá convocarse por segunda vez y entonces será válida la reunión que se
+celebre con cualquier número de asistentes y los acuerdos se tomarán por
+mayoría relativa de los votos presentes. Podrá hacerse la primera y
+segunda convocatoria en un mismo acto pero para oportunidades que estén
+separadas, por lo menos, por el lapso de una hora.
