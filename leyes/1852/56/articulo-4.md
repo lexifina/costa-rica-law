@@ -1,0 +1,1 @@
+Art 4. Queda a y reprimido el mismo Reglamento y en, lo demas se cumplira puntualmente, con sus disposiciones, -Dado en el Palacio Nacional, en San José, a los veinticuatro dias del mes de marzo de mil ochocientos cincuenta y dos Juan Rafael Mora.- EI Ministro de Estado en el Despacho de Gobernación Joaquin Bernardo Calvo.”
