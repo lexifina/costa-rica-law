@@ -1,0 +1,3 @@
+Artículo 90.- El valor de las obras nuevas de pavimentación de calles, de construcción de nuevas vías, aceras, cordones de caño, cunetas, alcantarillado pluvial y sanitario, acueductos y distribución e iluminación eléctrica, realizadas por las municipalidades, deberá ser cubierto por los dueños de los inmuebles directamente beneficiados, proporcionalmente a su medida frontal.
+Corresponde a la Contraloría General de la República la aprobación del valor total de la obra y de cada contribución, quedando facultada para modificar los valores estimados por la municipalidad.
+Previamente a la aprobación, la Contraloría la publicará en el Diario Oficial, confiriendo audiencia a los interesados.

@@ -1,0 +1,1 @@
+Artículo 101.- Ningún traspaso de licencias municipales, incluso las de venta de licores al menudeo, afectará los intereses municipales, hasta tanto no sea aceptado por la municipalidad, aceptación que se dará si el adquirente es persona hábil para explotar el establecimiento y si ambas partes están al día en el pago de tasas, contribuciones e impuestos municipales.

@@ -1,0 +1,1 @@
+Artículo 18.- Las municipalidades quedan facultadas para realizar congresos regionales o nacionales, a fin de considerar problemas comunes y acordar políticas uniformes. Estas facultades incluyen la de contribuir a los gastos de tales congresos.

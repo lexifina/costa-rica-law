@@ -1,0 +1,6 @@
+Artículo 174.- Los recursos de revocatoria y de apelación, deberán interponerse dentro del quinto día y en memorial razonado.
+Si se interpusiere únicamente apelación, se entenderá también interpuesta revocatoria, limitada, en cuanto a motivos, a los mismos en que se funde la apelación.
+La apelación podrá establecerse sólo por ilegalidad, en tanto que la revocatoria podrá estar fundada también en la inoportunidad del acto. La revocatoria deberá conocerla el Concejo en la sesión siguiente ordinaria a su presentación.
+En el caso de revocatoria con apelación subsidiaria, si aquélla no se resuelve transcurridos ocho días desde la sesión en que debió haberse conocido, y el expediente no ha llegado a la autoridad que deba conocer de la apelación, el interesado podrá pedir a ésta que ordene el envío, previniendo al funcionario de las sanciones que la Ley Reguladora de la Jurisdicción Contencioso Administrativa establece en su artículo 40.
+Lo dispuesto en el párrafo anterior tendrá aplicación también en el caso de que interpuesta exclusivamente apelación el expediente no llegue dentro del octavo día de presentada a la autoridad competente para resolverla.
+La apelación será de conocimiento del Juzgado Contencioso Administrativo.

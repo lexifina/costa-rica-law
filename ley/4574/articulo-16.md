@@ -1,0 +1,1 @@
+Artículo 16.- Los Gobiernos Municipales del Area Metropolitana de San José y los de cualquier otra área que lleguen a tener similares características, deberán tomar las providencias que a su juicio convengan para adoptar un estatuto cooperativo que coordine sus programas de obras y servicios públicos.

@@ -1,0 +1,2 @@
+Artículo 69.- Las municipalidades quedan autorizadas para otorgar becas para la realización de estudios exclusivamente en el país, distintos a los de nivel primario.
+Las becas deberán ser adjudicadas a estudiantes de escasos recursos económicos, vecinos del cantón y de probada capacidad para el estudio, con base en la recomendación razonada de la Junta Administrativa del Centro donde se cursarán los estudios.

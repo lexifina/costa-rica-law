@@ -1,0 +1,3 @@
+Artículo 134.- Todo pago municipal lo ordenará el Ejecutivo y se hará por medio de cheque que expedirá el Contador, el cual llevará las firmas del Ejecutivo y del Tesorero. Y el visto bueno del Auditor, en su caso.
+A través de las Tesorerías Auxiliares, podrán hacerse pagos en efectivo.
+Los Concejos podrán autorizar el funcionamiento de una Caja Chica al cuidado del Tesorero, por medio de la cual se podrán adquirir bienes y servicios, y pagar viáticos y gastos de viaje hasta por un valor de quinientos colones. Todo egreso de Caja Chica deberá ser autorizado por el Ejecutivo. Las Cajas Chicas se regirán por las normas que dicte la Contraloría General de la República.
