@@ -1,0 +1,2 @@
+Artículo 3º—Adiciónese al último párrafo del artículo 336 del Decreto Ejecutivo N° 25270-H, del 14 de junio de 1996, Reglamento a la Ley General de Aduanas, promulgado mediante Decreto Ejecutivo N° 25270-H y publicado en La Gaceta N° 123, de 28 de junio de 1996, lo siguiente:
+"Artículo 336.—(...) Tratándose de empresas del Estado, el plazo será de 30 días naturales, bajo el entendido de que dicho plazo no se podrá prorrogar."
