@@ -1,0 +1,1 @@
+Artículo 16.—Denuncia penal. Cuando dicho incumplimiento implique además responsabilidades penales por parte de los administradores de la institución beneficiada, la Municipalidad estará obligada a interponer la denuncia penal correspondiente.

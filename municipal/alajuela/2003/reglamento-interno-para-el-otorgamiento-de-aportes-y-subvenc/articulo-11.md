@@ -1,0 +1,1 @@
+Artículo 11.—Suscripción de convenio. Acordado el otorgamiento de una subvención por parte del Concejo, las partes suscribirán un convenio, en el cual el beneficiario se compromete a cumplir las condiciones señaladas en el artículo 9º de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 7º—Partida presupuestaria. La Municipalidad incluirá anualmente en el presupuesto ordinario de la institución, la partida necesaria para cubrir los aportes que se autoricen al amparo de este Reglamento. Bajo ninguna circunstancia se autorizarán aportes de ningún tipo sin sustento presupuestario.

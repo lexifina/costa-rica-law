@@ -1,0 +1,1 @@
+Artículo 17.—Suspensión de subvenciones. Cuando la Municipalidad determine el incumplimiento por parte del beneficiario, de las condiciones y obligaciones establecidas en el respectivo convenio para el otorgamiento de determinada subvención, suspenderá de inmediato los beneficios otorgados y lo notificará así al interesado.

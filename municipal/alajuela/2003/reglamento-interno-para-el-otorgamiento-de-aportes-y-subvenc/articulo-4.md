@@ -1,0 +1,6 @@
+Artículo 4º—Solicitudes para la obtención de aportes. Para que las instituciones beneficiarias puedan obtener aportes conforme al presente Reglamento deberán cumplir con los siguientes requisitos:
+Solicitud formal dirigida al Alcalde y suscrita por quien funja como representante legal de la respectiva organización, en la cual se indique en forma clara y precisa el objeto y los fines para los cuales se requiere la ayuda, con indicación y justificación de la obra o proyecto que se pretende realizar, costo, tiempo estimado para su realización, factibilidad y cualquiera otra información adicional que se considere de interés.
+Certificación de personería con no más de un mes de emitida, en la que se acredite la capacidad del firmante para representar a la organización solicitante.
+Copia de la cédula jurídica de la organización y de la cédula de identidad de su representante.
+Copia certificada del acta constitutiva de la organización solicitante, en la que se acrediten sus fines. Se exceptúan de este requisito, los establecimientos de educación pública y las asociaciones de desarrollo comunal.
+Los demás requisitos adicionales a que se refiere la circular contenida en el oficio 1/4299 del 18 de diciembre del 2001, de la Contraloría General de la República.
