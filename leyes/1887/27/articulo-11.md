@@ -1,0 +1,2 @@
+XI.
+El señor V. Cuenca Creus se compromete á depositar dentro de seis meses en el Banco de la Unión, domiciliado en esta capital, la cantidad de 35,000 francos ó su equivalente en moneda del país, para garantizar el establecimiento del cable. Dicha cantidad quedará en favor del Gobierno de la República, como indemnización de daños y perjuicios en el caso de que conforme con lo dispuesto en la cláusula novena se declarare la caducidad de este contrato. Si el depósito mencionado no se hiciere en el plazo dicho, el Gobierno podrá declarar caduco este contrato sin más trámite.
