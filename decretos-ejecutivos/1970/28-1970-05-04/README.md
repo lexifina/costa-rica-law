@@ -14,3 +14,4 @@ Crea distritos 1° Upala; 2° Aguas Claras; 3°San José; 4° Bijagua; 5° Delic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-05-13 | la propia norma |
+| 2 | 1970-06-22 | Decreto Ejecutivo 1061 (1970-06-22) |
