@@ -1,2 +1,2 @@
-Artículo 17.-Todas aquellos trabajos que realicen los vehículos para los organismos o grupos citados anteriormente, a la Municipalidad deberán cancelar la cuota asignada por el Concejo que es la siguiente: f/t 1.800,00 hora retroexcavador; ¢500,00 hora vagoneta y ¢300,00 hora tractor de llantas (chapulín).
-Los precios antes señalados quedan sujetos a la inflación, pudiendo ser aumentados mediante acuerdo municipal.
+Artículo 17.-Todos aquellos trabajos que se realicen con la maquinaria municipal a los grupos citados anteriormente, deberán cancelar a la Municipalidad la suma asignada por el Concejo.
+(Así reformado mediante sesión N° 64 del 02 de abril de 1991).

@@ -14,3 +14,4 @@ Reglamento para el Uso de los Vehículos Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-10-25 | la propia norma |
+| 2 | 1991-04-02 | Reglamento municipal 64 (1991-04-02) |
