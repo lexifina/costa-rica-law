@@ -1,0 +1,1 @@
+Artículo 7°.-Autorizase al Poder Ejecutivo para que mande hacer la colección de pesos y medidas que deban servir de modelo; para que emita los correspondientes reglamentos, y dicte todas las disposiciones necesarias implantar el nuevo sistema.

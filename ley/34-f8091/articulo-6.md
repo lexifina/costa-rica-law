@@ -1,0 +1,1 @@
+Artículo 6°.-El Poder Ejecutivo cuidará de hacer formar y publicar oportunamente las correspondientes tablas de equivalencia de este sistema con el anteriormente usado, sobre la base de que la vara equivale ochocientos treinta y seis milímetros.
