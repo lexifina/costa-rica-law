@@ -1,0 +1,1 @@
+Artículo 2°-La estimación de las fajas de terreno es de ¢2.334.98 (dos mil trescientos treinta y cuatro colones, noventa y ocho céntimos) que corresponden al total de la suma a pagar de conformidad con la resolución número 139 "A" de las diez horas, diez minutos del veintiocho de abril de mil novecientos setenta, del Tribunal Fiscal Administrativo.
