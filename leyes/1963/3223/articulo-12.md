@@ -1,1 +1,0 @@
-Artículo 12.- Todo nuevo empleado será nombrado por el Directorio de la Asamblea Legislativa, escogiéndolo de una Terna que par el efecto solicitará a la Dirección General del Servicio Civil, reformándose a la conducente el artículo 2º de la ley Nº 1430 de 14 de marzo de 1950, reformada a la vez por la ley Nº 1505 de 17 de octubre de 1952.
