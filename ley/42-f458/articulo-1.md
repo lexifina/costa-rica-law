@@ -1,5 +1,6 @@
 (Derogado)
-DECRETO N§ 42
+N°42
+(Esta norma fue derogada por el artículo 29 de la Ley sobre la contribución territorial, N° 72 del 18 de diciembre d 1916)
 (de 8 de agosto)
 Ley de contribuci¢n para caminos.
 EL CONGRESO CONSTITUCIONAL DE LA
