@@ -39,6 +39,7 @@ Cuando no existiere información sobre el valor de un determinado vehículo en e
 ( Así reformado por el artículo único de la ley Nº 7665 de 8 de abril de 1997)
 2) Por vehículos dedicados al transporte remunerado de personas se pagarán ocho mil colones (¢ 8.000,00) anuales.
 3) Por camiones de carga, excluidos los "pick-ups" se pagarán anualmente ocho mil colones (¢ 8.000,00).
+(NOTA DE SINALEVI: El parágrafo 3) anterior, ha sido interpretado por la Dirección General de Tributación Directa en su Resolución 19-04 del 07 de octubre del 2004, indicando que el concepto "caminones de carga" se refiere a aquellos cuyo tonelaje inscrito en el Registro Público de la Propiedad es igual o superior a ocho toneladas. Asimismo, consultar transitorio único de dicha resolución respecto a vehículos no inscritos o cuyo tonelaje no coincide con el establecido en el Registro Público de la Propiedad.")
 4) Por motocicletas se pagará de la siguiente manera:
 De hasta 90 cc... ... ... ... ... ... ... ... ¢ 700.00
 De 91 cc hasta 125 cc.. ... ... ... ... ... . 1.500.00
