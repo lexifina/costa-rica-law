@@ -1,0 +1,1 @@
+Articulo 7°—El Órgano Director del Procedimiento tramitará la denuncia mediante la aplicación de los procedimientos administrativos contenidos en el Libro Segundo de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Articulo 11.—Una vez que se haya cerrado la investigación en la Institución , quien no esté satisfecho con el resultado al que se llegue, puede presentar la denuncia correspondiente ante los tribunales de Trabajo, dentro del termino de prescripción que señala el Titulo X, Sección I del Código de Trabajo.
