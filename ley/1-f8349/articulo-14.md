@@ -1,0 +1,1 @@
+Art. 14. El comprador poseedor que dentro del mismo término de quince dias corrientes desde aquel en que se le hubiere avisado por la Municipalidad, de la calificacion y valor del terreno, no pagase los costos y derechos expresados en el artículo 11, perderá los que le competen como poseedor y quedará el terreno sujeto á la licitacion.

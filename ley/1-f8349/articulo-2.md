@@ -1,0 +1,1 @@
+Art. 2. Dichas Municipalidades encargarán a algunos Agrimensores de la República el reconocimiento y medida de cada una de las partes de que constan los espresados ejidos, cuyos terrenos deben designarse por de 1° 2ª y 3a clase segun su mérito.
