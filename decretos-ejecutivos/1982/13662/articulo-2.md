@@ -1,4 +1,4 @@
-Artículo 2º.- La Secretaría de Información y Comunicación tiene los
+ARTICULO 2º.- La Secretaría de Información y Comunicación tiene los
 siguientes fines:
 a) Contribuir a la promoción y difusión de los valores del sistema
 democrático.

@@ -12,3 +12,4 @@ Crea Secretaría Información y Comunicación de Presidencia República
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-05-31 | la propia norma |
+| 2 | 1982-05-31 | SINALEVI (sin norma nombrada) |

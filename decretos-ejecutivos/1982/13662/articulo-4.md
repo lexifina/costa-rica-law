@@ -1,4 +1,4 @@
-Artículo 4º.- Se crea un Consejo de Información y Comunicación,
+ARTICULO 4º.- Se crea un Consejo de Información y Comunicación,
 presidido por el Presidente de la República, y en su ausencia o por
 delegación de éste, por el Primer Vicepresidente de la República, e
 integrado por los siguientes Ministros:

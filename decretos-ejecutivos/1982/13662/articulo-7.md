@@ -1,4 +1,4 @@
-Artículo 7º.- La Secretaría de Información y Comunicación ejercerá
+ARTICULO 7º.- La Secretaría de Información y Comunicación ejercerá
 las siguientes atribuciones y funciones:
 a) Elaborar y someter a la consideración del Consejo de Información
 y Comunicación, las políticas, los planes y programas en relación con sus
