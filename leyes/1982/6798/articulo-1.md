@@ -1,4 +1,7 @@
+(Derogado)
 Ley Nº 6798
+La presente norma ha sido DEROGADA EN SU TOTALIDAD por el artículo 20 de la Ley N° 8235 de 02 de abril de 2002,
+Ley de Patentes del Cantón de Liberia.
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 Decreta:
 AUTORÍZANSE LOS SIGUIENTES IMPUESTOS A LA MUNICIPALIDAD DE LIBERIA
@@ -83,8 +86,8 @@ d) Billares y similares: Por cada mesa ¢ 85,00 trimestrales.
 e) Salones de diversión permitidos por ley, que explotan juegos de habilidad o aleatorios, o ambos:
 Primera categoría ... ... ... ... ... ... ... ¢ 5.000,00 trimestrales
 Segunda categoría ... ... ... ... ... ... ... 3.000,00 trimestrales
-Tercera categoría ... ... ... ... ... ... ... 2.000,00 trimestrales
-Mínima ... ... ... ... ... ... ... ... ... ............ 500,00 trimestrales
+Tercera categoría ... ... ... ... ... ... ..... 2.000,00 trimestrales
+Mínima ... ... ... ... ... ... ... ... .... ............. 500,00 trimestrales
 La Municipalidad establecerá estas categorías tomando en cuenta la ubicación, el número de mesas de juego o similares, la calidad y presentación del local y la circunstancia de si el salón es exclusivo para la actividad, o si es complementario de otras principales dentro del mismo edificio.
 f) Servicios de almacenaje (almacenes de depósito y similares): cero coma cinco por ciento (0,5%) anual sobre la entrada bruta del año anterior, pagadero a cuatro tractos iguales por trimestre.
 g) Estacionamientos comerciales para automotores:
@@ -95,8 +98,8 @@ i) Agencias de publicidad: Pagarán trimestralmente la tarifa que les correspond
 j) Servicios de transporte remunerado de personas: Pagarán trimestralmente las tarifas siguientes por cada vehículo:
 Servicio interprovincial ... ... ... ... ... ... ... ... ... ¢ 250,00
 Servicio intercantonal ... ... ... ... ... ... ... ... ... ... 150,00
-Servicio distrital ... ... ... ... ... ... ... ... ... ... ... ..... 100,00
-Servicio de taxi de pasajeros ... ... ... ... ... ... ... 150,00
+Servicio distrital ... ... ... ... ... ... ... ... ... ... .......... 100,00
+Servicio de taxi de pasajeros ... ... ... ... ... ... .. 150,00
 Servicio de taxi de carga ... ... ... ... ... ... ... ... ... 100,00
 k) Aceras sin construir o en mal estado, en el área urbana, cuando exista cordón y caño o cuneta, por cada metro lineal ¢ 10,00 por trimestre.
 Artículo 16.—Los establecimientos que se dediquen principalmente al hospedaje momentáneo, se regirán conforme con la siguiente clasificación:
