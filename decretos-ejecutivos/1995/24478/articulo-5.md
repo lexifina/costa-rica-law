@@ -1,3 +1,0 @@
-Artículo 5º.—Corresponderá a la Comisión del Programa, aprobar el plan de acción; dar seguimiento a la ejecución del Programa; autorizar la incorporación al programa de los proyectos; autorizar la compensación o pago de las obligaciones de los beneficiarios del Programa; definir los requisitos y documentos que deben presentarse con los proyectos o beneficiarios propuestos; definir los requisitos aplicables a los beneficiarios del Programa respetando las normas jurídicas vigentes.
-Al Coordinador corresponde representar la Comisión, conjuntamente con el Secretario firmar las actas, y en caso de empate poseerá doble voto.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 25481 del 24 de julio de 1997)

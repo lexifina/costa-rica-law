@@ -1,2 +1,0 @@
-Artículo 2º.—Forman parte del Programa de Compensación Social las siguientes entidades: el Ministerio de Vivienda y Asentamientos Humanos, el Instituto Mixto de Ayuda Social, el Instituto Nacional de Vivienda y Urbanismo, el Instituto Costarricense de Acueductos y Alcantarillados, el Instituto de Desarrollo Agrario, la Dirección General de Desarrollo Social y Asignaciones Familiares.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 27019 del 6 de mayo de 1998)
