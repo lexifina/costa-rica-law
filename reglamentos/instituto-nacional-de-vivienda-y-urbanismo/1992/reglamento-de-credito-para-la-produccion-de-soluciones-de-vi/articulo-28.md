@@ -1,3 +1,2 @@
-Artículo 28.—Este Reglamento deroga los anteriores y sus reformas.
-Rige a partir de su publicación.
-(Así corrida su numeración según reforma publicada en La Gaceta N° 149 de 8 de agosto de 1994, que lo traspasó del anterior artículo 17 al 28 actual).
+Artículo 28.- Los miembros de la Junta Directiva del Grupo Organizado deben tener su nombramiento vigente y elegidos de acuerdo a lo establecido por la Ley de Asociaciones, debiendo presentar al INVU el acta certificada en la que se acordó dichos nombramientos.
+(Así adicionado en sesión N°4695 de 14 de mayo de 1992).

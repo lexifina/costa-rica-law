@@ -1,2 +1,4 @@
-Artículo 23.—En este tipo de proyectos no existirá reajuste de precios por cuanto se cancela sobre obra realizada.
+Artículo 23.—La Asociación o Grupo Organizado o un Desarrollador de un proyecto, para compensar los costos inflacionarios ocurridos durante ia construcción de éste, podrá solicitar al INVU, una recalificación de precios de! proyecto. En este caso, se aplicarán los índices de Precios que elabora el Ministerio de Economía, Industria y Comercio. Esta recalificación se hará una sola ve/, para el caso de proyectos pequeños donde exista una única etapa. Para el caso de proyectos grandes, donde existan varias etapas, e! proyecto se recalificará para cada etapa.
+Se advierte que la aplicación de este artículo, queda supeditado a lo que resuelva la Sala Constitucional, en Acción de Inconstitucionalidad, que se ha ejercido contra la normativa de reajuste de precios.
+(Así reformado en sesión N°4695 de 14 de mayo de 1997).
 (Así adicionado y publicado en La Gaceta N° 149 de 8 de agosto de 1994).

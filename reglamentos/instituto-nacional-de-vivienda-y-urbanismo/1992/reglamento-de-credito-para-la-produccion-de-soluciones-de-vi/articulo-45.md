@@ -1,0 +1,3 @@
+Artículo 45.—Este Reglamento es parte integrante del Contrato de Préstamo, al igual que los demás documentos contractuales que rigen lo concerniente al sistema de financiación, por lo que en cada contrato deberán protocolizarse y se entregarán las copias respectivas a los interesados, las que deben ser firmadas por las partes. El incumplimiento de tales documentos dará derecho al Instituto para dar por vencida y exigible la obligación. Acuerdo firme.
+(Así corrida su numeración según reforma publicada en La Gaceta N° 149 de 8 de agosto de 1994, que lo traspasó del anterior artículo 16 al 27 actual).
+(Así reformado y corrida su numeración, en sesión N° 4695 de 14 de mayo de 1997, que lo traspasó del anterior artículo 27 al 45 actual).

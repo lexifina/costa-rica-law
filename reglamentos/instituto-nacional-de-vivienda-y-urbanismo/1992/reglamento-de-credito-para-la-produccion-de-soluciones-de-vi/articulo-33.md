@@ -1,0 +1,2 @@
+Artículo 33.—La Directiva de la Asociación no podrá comprometerse por ningún motivo a la inclusión de posibles beneficiarios, en un número superior a lo establecido en el convenio de Financiamiento firmado con dicha Asociación y que será establecido por el INVU, según la capacidad de la finca. No será oponible a! INVU documento alguno que consigne condiciones contrarias a lo establecido en este artículo.
+(Así adicionado en sesión N° 4695 de 14 de mayo de 1997).

@@ -1,0 +1,2 @@
+Artículo 37.—En caso que la Asociación excluya alguno de sus afiliados, potenciales beneficiarios del proyecto, debe la Junta Directiva presentar al Departamento de Trabajo Social del INVU por escrito y formalmente la exclusión de dichos afiliados, indicando las causas de la exclusión y presentar copia certificada del acta en la que se tomó el acuerdo respectivo.
+(Así adicionado en sesión N° 4695 de 14 de mayo de 1997).

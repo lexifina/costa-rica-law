@@ -1,0 +1,2 @@
+Artículo 40.—El estar incluido en la lista de potenciales Beneficiarios del proyecto de vivienda no implica ninguna obligación para el INVU, en caso que la familia no cumpla con todos los requisitos establecidos para la calificación definitiva de! proyecto. Esta calificación será potestad del INVU a través de sus departamentos especializados.
+(Así adicionado en sesión N° 4695 de 14 de mayo de 1997).

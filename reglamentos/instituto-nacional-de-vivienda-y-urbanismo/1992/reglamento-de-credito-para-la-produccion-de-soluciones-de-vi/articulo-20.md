@@ -1,2 +1,3 @@
-Artículo 20.—El INVU tendrá derecho a nombrar un funcionario responsable de la fiscalización del proyecto, conforme lo indican las normas y especificaciones sobre ejecución de proyectos aprobado por la Junta Directiva del Instituto.
+Artículo 20.—En todo contrato de financiamiento, el INVU asignaiá un profesional de planta que actuará como Administrador de Proyecto, encargado de dirigir, supervisar y coordinar todos los aspectos del proyecto: Civil, administrativo, social, financiero, etc. Dependiendo de la escala del proyecto, podrá cargarse al monto del financiamiento, la contratación de uno o varios profesionales que conjuntamente con el Administrador del Proyecto conformarán verdaderas Unidades Ejecutoras con personal de apoyo tales como asistentes de Ingeniería y Arquitectura, maestros de obra, etc.
+(Así reformado en sesión N°4695 de 14 de mayo de 1997).
 (Así adicionado y publicado en La Gaceta N° 149 de 8 de agosto de 1994).

@@ -1,0 +1,2 @@
+Artículo 36.—Los estudios socioeconómicos, solicitudes y recepción de documentos relacionados con este campo, estarán a cargo exclusivamente del Departamento de Trabajo Social del INVU, para lo cual los profesionales de este Departamento se encargarán de contactar directamente con las familias. Todo documento o compromiso que contravenga las disposiciones de este reglamento no tendrá validez alguna y se tendrá como inexistente para todo efecto de frente a las prerrogativas y/u obligaciones de INVU.
+(Así adicionado en sesión N° 4695 de 14 de mayo de 1997).
