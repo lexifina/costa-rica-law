@@ -1,8 +1,8 @@
-ARTICULO 14.- Por todas las actividades lucrativas que seguidamente se
-señalan, comprendidas en la clasificación internacional de actividades
+ARTICULO 14.- Por todas las actividades lucrativas que seguidamente
+se señalan, comprendidas en la clasificación internacional de actividades
 económicas, los patentados pagarán conforme con lo dispuesto en los
-artículos 3 y 4 de esta ley, con excepción de las señaladas en su artículo
-15.
+artículos 3 y 4 de esta ley, con excepción de las señaladas en su
+artículo 15.
 a) Agricultura, ganadería, silvicultura y pesca.
 Sólo en los casos en que estén sujetas a la obtención de licencias
 municipal.
@@ -15,19 +15,19 @@ domicilios. También incluye la creación de productos, los talleres de
 reparación y acondicionamiento. Comprende, además, la construcción, la
 reparación o la demolición de todo tipo de edificios, las instalaciones,
 las vías de transporte, las imprentas editoriales y los establecimientos
-similares. En general, se refiere a mercaderías, construcciones y bienes
-muebles e inmuebles.
+similares. En general, se refiere a mercaderías, construcciones y
+bienes muebles e inmuebles.
 c) Comercio.
 Comprende la compra y la venta de toda clase de bienes, mercaderías,
 propiedades, títulos valores, moneda y otros. Además, los actos de
 valoración de bienes económicos según la oferta y la demanda, esto es,
 casas de representación, comisionistas, agencias, corredores de bolsa,
 instituciones bancarias y de seguros, instituciones de crédito y, en
-general, todo lo que involucre transacciones de mercado de cualquier tipo,
-excepto estatales.
+general, todo lo que involucre transacciones de mercado de cualquier
+tipo, excepto estatales.
 ch) Servicios.
 Comprende los servicios prestados al sector privado, al sector
 público, o a ambos, que sean atendidos por organizaciones o personas
-privadas. Incluye el transporte, el almacenaje, las comunicaciones y los
-establecimientos de enseñanza privada autorizados por el Ministerio de
-Educación Pública y los de esparcimiento.
+privadas. Incluye el transporte, el almacenaje, las comunicaciones y
+los establecimientos de enseñanza privada autorizados por el Ministerio
+de Educación Pública y los de esparcimiento.
