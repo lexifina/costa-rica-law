@@ -1,0 +1,2 @@
+Art 5°.- La cantidad con que la Administración de tabacos debía auxiliar cada mes a la Tesorería de la Universidad se continuará pagando hasta fin de diciembre del corriente año, en cuya fecha se habrá concluido el edificio material de la Universidad; y desde aquel día quedarán terminados los efectos del art 2° del decreto n°10 de 27 de junio de 1849.
+.-Dado en San José, a los dieziseis días del mes de octubre de mil ochocientos cincuenta y cuatro.
