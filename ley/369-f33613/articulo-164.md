@@ -1,1 +1,0 @@
-Artículo 164.- Al que ponga en manos o deje al alcance de un enajenado mental arma peligrosa, materia explosiva o sustantiva venenosa, se le impondrá arresto de uno a treinta días o multa de dos a sesenta colones.

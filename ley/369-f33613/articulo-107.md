@@ -1,1 +1,0 @@
-Artículo 107.-Al reincidente, sea que antes haya sido condenado por un hecho de la misma clase, sea que lo haya sido por el delito de merodeo, se le impondrá, por la primera reincidencia, la pena de ciento ochenta días de arresto inconmutable, y por la segunda y demás, esa misma pena y multa de ciento ochenta a trescientos sesenta colones.

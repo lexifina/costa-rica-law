@@ -1,1 +1,0 @@
-Artículo 112.-El que con fines de anuncio o propaganda y sin permiso del dueño o poseedor, escribiere, trazare dibujos o emblemas, o fijare papeles o carteles en la parte exterior de una construcción, casa o pared, será castigado con multa de dos a sesenta colones.

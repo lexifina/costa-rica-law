@@ -1,1 +1,0 @@
-Artículo 50.-Cuando estuviere comprobado que el reo es toxicómano habitual, podrán las autoridades de policía disponer, en la sentencia condenatoria y previo dictamen médico, que sea internado el culpado en un departamento de toxicómanos para su curación.

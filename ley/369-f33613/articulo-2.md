@@ -1,1 +1,0 @@
-Artículo 2.-La ley posterior que en cualquier forma favorezca al reo, se aplicará de oficio si no se hubiere dictado el fallo, y a solicitud de parte interesada, dirigida a la autoridad sentenciadora, si ya existiere sentencia firme.

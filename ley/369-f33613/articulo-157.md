@@ -1,7 +1,0 @@
-Artículo 157.-Serán castigados con arresto de uno a sesenta días o multa de dos a ciento veinte colones:
-1.-El que arrojare a la vía pública o en parajes públicos piedras, materiales, aguas, objetos o sustancias de cualquier clase que puedan causar daño o molestia, aunque no los produzcan.
-2.-El que en virtud de autorización obstruyere o en alguna forma dificultare el tránsito en las vías públicas o sus aceras, con materiales, escombros o cualesquiera objetos, o las cruzare con vigas, alambres o cosas análogas, sin valerse de los medios que el caso requiera para evitar daño o molestia a los transeúntes.
-Si tales objetos se hubieren puesto sin licencia de la autoridad, la pena será de tres a noventa días de arresto o de seis a ciento ochenta colones de multa.
-3.-El que omitiere colocar las señales o avisos ordenados por la ley, los reglamentos o la autoridad, para precaver a las personas en un lugar de tránsito público, o removiere dichos avisos o señales, o apagare una luz colocada como señal.
-4.-El que sin autorización abriere pozos o hiciere excavaciones en las calles, caminos, paseos y demás lugares públicos, o con autorización, sin tomar las precauciones necesarias para evitar cualquier peligro para las personas o los bienes.
-5.-El que infringiere las leyes o los reglamentos sobre apertura, conservación o reparación de vías de tránsito público, cuando el hecho no tenga señalada sanción más grave.

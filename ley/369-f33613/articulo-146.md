@@ -1,1 +1,0 @@
-Artículo 146.-Será castigado con multa de dos a noventa colones el que habiendo adquirido, sin conocer su procedencia, dinero u otras cosas provenientes de delito, omitiere dar aviso a la autoridad, después de conocerla.

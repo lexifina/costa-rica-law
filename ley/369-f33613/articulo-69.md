@@ -1,1 +1,0 @@
-Artículo 69.-Sufrirán la pena de dos a noventa días de arresto o multa de cuatro a ciento ochenta colones, todos los que en riña tumultuaria hubieren acometido al lesionado, cuando las lesiones producidas no constituyan delito y no fuere conocido su autor.

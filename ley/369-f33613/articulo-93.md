@@ -1,1 +1,0 @@
-Artículo 93.-El que en sitio o establecimiento público ocasionare maliciosamente la embriaguez a otro, o suministrare o sirviere bebidas alcohólicas a una persona ya ebria o en estado anormal por debilidad o alteración de sus facultades mentales, será castigado con multa de cuatro a sesenta colones.

@@ -1,1 +1,0 @@
-Artículo 57.-EI perdón del ofendido no dará derecho a la restitución de las sumas pagadas como multa, y en cuanto a terceros, respecto de los hurtos y estafas a que se. refiere e! inciso 59 de! artículo 54, las cosas volverán al mismo estado que tenían antes de la iniciación del juzgamiento, sin perjurio de lo que la ley civil disponga.

@@ -1,1 +1,0 @@
-Artículo 103.-El que usurpare el nombre de otro, sufrirá arresto de uno a noventa días o multa de dos a ciento ochenta colones, sin perjuicio de la pena que pueda corresponderle por la injuria o el ultraje que el hecho implique, en razón de los actos ejecutados con el nombre usurpado o por la defraudación que de tal manera se haya cometido.

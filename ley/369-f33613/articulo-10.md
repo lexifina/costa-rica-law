@@ -1,1 +1,0 @@
-Articulo 10.-No eximen de responsabilidad la ignorancia de la ley penal o el error acerca de ella; pero si se tratare de faltas de mera creación legal, o de contravenciones a leyes de carácter puramente preventivo, los juzgadores podrán, según las circunstancias, apreciar la ignorancia o el error como eximente.

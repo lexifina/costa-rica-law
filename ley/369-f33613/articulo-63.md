@@ -1,1 +1,0 @@
-Artículo 63.-EI que sometiere a cualquier persona a experiencias de hipnotismo con fines de lucro en públicas exhibiciones, o en privado sin recabar antes dictamen facultativo en que conste que e! procedimiento es inofensivo para el sujeto que se somete a él, será castigado con arresto de uno a treinta días o multa de dos a sesenta colones.
