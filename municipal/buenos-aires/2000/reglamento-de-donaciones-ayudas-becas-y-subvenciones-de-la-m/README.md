@@ -14,3 +14,4 @@ Reglamento de Donaciones, Ayudas, Becas y Subvenciones de la Municipalidad de Bu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-28 | la propia norma |
+| 2 | 2002-08-12 | Reglamento municipal 0 (2002-08-12) |

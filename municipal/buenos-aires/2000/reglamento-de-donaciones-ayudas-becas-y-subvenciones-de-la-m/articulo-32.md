@@ -1,1 +1,2 @@
-Artículo 32.—Del control de los expedientes: La Sección de Comisiones conformará un expediente en que consten todos los datos y documentos que acrediten el comportamiento y resultados de los estudios del becario.
+Artículo 32.—Del control de los expedientes: La Comisión de Becas y Asistencia Social conformará un expediente en que consten todos los datos y documentos que acrediten el comportamiento y resultados de los estudios del becario.
+(Mediante sesión de fecha 12 de agosto del 2002, la denominación Secretaria de Sección de Comisiones" o "Sección de Comisiones" por "Comisión de Becas y Asistencia Social").
