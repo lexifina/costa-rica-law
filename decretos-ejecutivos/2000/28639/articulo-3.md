@@ -8,3 +8,4 @@ La Autoridad Presupuestaria realizará las modificaciones necesarias en el proce
 (Modificados los límites de gasto corriente presupuestario y gasto corriente efectivo, mediante el artículo 2 del Decreto Ejecutivo N° 29792 de 24 de agosto del 2001)
 Modificados los límites de gasto corriente presupuestario y gasto corriente efectivo, mediante el artículo 2 del Decreto Ejecutivo N° 29821 de 13 de setiembre del 2001)
 Modificados los límites de gasto corriente presupuestario y gasto corriente efectivo, mediante el artículo 2 del Decreto Ejecutivo N° 29835 de 18 de setiembre del 2001)
+Modificados los límites de gasto corriente presupuestario y gasto corriente efectivo, mediante el artículo 2 del Decreto Ejecutivo N° 29875 de 01 de octubre del 2001)
