@@ -1,0 +1,2 @@
+XVIII- Valoraciones corporales en delitos sexuales.
+Las Autoridades Judiciales que envíen solicitudes de valoración corporal de niños, niñas o adolescentes víctimas de abuso sexual, deberán asegurarse que las mismas sean necesarias para la averiguación de la verdad real de los hechos, de tal manera que bajo ninguna circunstancia se les exponga a un examen genital, cuando los hechos denunciados no lo ameriten.

@@ -1,0 +1,2 @@
+III. Derecho de información.
+Con su lenguaje sencillo y coloquial, el niño, niña o adolescente, deberá ser debidamente informado desde el inicio del proceso y por parle de todas las autoridades correspondientes, de la naturaleza de su participación en todas las diligencias en que sea requerido. También deberán explicarle, de manera clara y sencilla, la función del juzgador, del defensor, del imputado y de los derechos que este posee, así como el objetivo y el resultado de la intervención de cada uno. Durante el debate el Juez deberá hacer . electivo este derecho.

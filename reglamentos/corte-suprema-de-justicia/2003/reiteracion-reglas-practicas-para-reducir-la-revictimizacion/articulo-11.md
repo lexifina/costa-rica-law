@@ -1,0 +1,2 @@
+XI- Derecho a la imagen.
+La autoridad o funcionario judicial encargado deberá controlar que la dignidad del niño, niña o adolescente testigo o víctima, no sea lesionada a través de publicaciones o cualquier exposición o reproducción de su imagen, o de cualquier otro dato personal que permita su identificación. Si se lesiona este derecho es obligación del funcionario denunciarlo de conformidad con los artículos 27, 188 y 190 del Código de la Niñez y la Adolescencia.

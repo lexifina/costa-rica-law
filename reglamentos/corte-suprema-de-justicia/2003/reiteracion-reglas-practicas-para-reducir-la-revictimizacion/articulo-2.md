@@ -1,0 +1,3 @@
+II- Privacidad de la diligencia judicial y auxilio pericial.
+En cualquier diligencia judicial en la que se requiera la presencia de una persona menor de edad víctima, independientemente de la etapa en la que se encuentre el proceso, esta deberá llevarse a cabo en forma privada y con el auxilio de peritos especializados, en los casos en que sea necesario. Deberán estar los padres o una persona de confianza durante la declaración, salvo cuando ello constituya un elemento negativo que pueda entorpecer el desarrollo de la diligencia.
+El niño, niña o adolescente víctima deberá indicar "quién es la persona de confianza". Su criterio prevalecerá.

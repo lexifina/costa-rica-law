@@ -1,0 +1,2 @@
+VIII-Asistencia profesional especializada.
+En todos aquellos momentos en que se requiera, la autoridad correspondiente deberá solicitar, con la prontitud debida, la colaboración de un profesional en Trabajo Social y/o Psicología del Poder Judicial ü, en su defecto, de otras instituciones. Se deberá poner especial atención en la familiarización del niño, niña o adolescente para enfrentar el proceso, en especial la etapa de debate o cualquier otra audiencia oral.

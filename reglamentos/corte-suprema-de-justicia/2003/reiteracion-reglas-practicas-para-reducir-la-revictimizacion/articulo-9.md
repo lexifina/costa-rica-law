@@ -1,0 +1,4 @@
+IX- Acondicionamiento del espacio físico.
+El funcionario judicial encargado deberá evitar el contacto directo de la víctima con el acusado o demandado. Para tal efecto, deberán destinarse los recursos necesarios para crear o acondicionar los espacios físicos que se requieran, así como recurrir a los medios disponibles como el uso de los biombos, especialmente en la etapa de juicio, para impedir el contacto directo de la víctima con el ofensor, garantizándose en todo momento el derecho de defensa.
+Se evitará señalar citas a la misma hora y lugar para el niño, niña o adolescente ofendido y su ofensor, con el fin de evitar su careo.
+Igualmente, se debe prever su ingreso y egreso de los edificios judiciales a diferentes horas o por distintos lugares. Los funcionarios judiciales podrán utilizar una vestimenta más informal, tamo en la sala de juicio como en otros despachos.

@@ -1,0 +1,2 @@
+XII- Derecho a la confidencialidad.
+La autoridad judicial encargada deberá velar porque en las carátulas de los legajos en que aparezcan niños, niñas o adolescentes víctimas, se registren únicamente sus iniciales y nunca su nombre y apellidos completos, ni el sobrenombre con que se le conozca, Igualmente, los auxiliares judiciales, a la hora de llamarlos a declarar o a cumplir con cualquier diligencia judicial evitaran hacer referencia a la causa o al delito que se investiga.

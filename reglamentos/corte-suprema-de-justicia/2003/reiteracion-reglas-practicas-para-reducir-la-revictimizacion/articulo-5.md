@@ -1,0 +1,2 @@
+V- Forma del interrogatorio.
+Durante las entrevistas al niño, niña /o adolescente víctima, las prevenciones y preguntas que se le realicen deben ser claras, con una estructura simple. Para ello deberá tomarse en consideración su edad, nivel educativo, grado de madurez, capacidad de discernimiento, así como sus condiciones personales y socioculturales, otorgándosele el tiempo necesario para contestar y asegurándose que ha comprendido la naturaleza de la prevención o pregunta.
