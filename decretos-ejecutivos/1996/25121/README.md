@@ -13,3 +13,4 @@ Crea Junta de Reconversión Productiva Organo Superior Adscrito al MAG
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-10 | la propia norma |
+| 2 | 1996-05-10 | SINALEVI (sin norma nombrada) |
