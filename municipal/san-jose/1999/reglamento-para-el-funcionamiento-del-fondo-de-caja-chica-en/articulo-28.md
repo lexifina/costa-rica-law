@@ -1,3 +1,5 @@
-CAPITULO SEXTO
-De las prohibiciones
-Artículo 28.-Por ningún motivo se tramitarán las adquisiciones o compras de bienes y servicios, cuando el Almacén Municipal mantenga existencias de los artículos solicitados o cuando la administración por medio de sus dependencias, se encuentre en capacidad de suministrar el artículo o servicio requerido a la dependencia que lo necesite.
+CAPITULO QUINTO
+De los reintegros
+Artículo 28.-Los egresos que se realicen por caja chica se tramitarán a través del correspondiente reintegro de caja chica, que preparará el encargado del fondo fijo en original y copia.
+(Así reformado mediante sesión N° 73 del 26 de abril de 1999).
+(Así corrida su numeración mediante sesión N° 73 del 26 de abril de 1999, que lo traspasó del anterior artículo 26 al 28 actual).

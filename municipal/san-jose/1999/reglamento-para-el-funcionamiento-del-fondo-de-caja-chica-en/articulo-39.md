@@ -1,3 +1,2 @@
-Artículo 39.-Rige a partir de su publicación".
-Acuerdo Firme N° 4, Artículo V, Sesión Ordinaria N° 61, del 1° de febrero de 1999.
-San José, 24 de febrero de 1999.-
+Artículo 39.-Las sanciones que correspondan, según lo dispuesto en el artículo anterior, serán aplicadas por el Despacho del Alcalde Municipal, a través de la Dirección de Recursos Humanos, conforme lo establece la Convención Colectiva, el Código Municipal, el Código de Trabajo y el Reglamento Autónomo de Organización y Servicio de esta Municipalidad.
+(Así corrida su numeración mediante sesión N° 73 del 26 de abril de 1999, que lo traspasó del anterior artículo 37 al 39 actual).

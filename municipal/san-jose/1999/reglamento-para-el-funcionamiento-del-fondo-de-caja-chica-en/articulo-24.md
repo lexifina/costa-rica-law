@@ -1,1 +1,2 @@
-Artículo 24.- Todo arqueo de Caja Chica se realizará en presencia del Tesorero Municipal, quien es el funcionario responsable del fondo, según lo dispuesto en el numeral 109 del Código Municipal o en presencia del funcionario que él designe para tales efectos. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.
+Artículo 24.- Todo arqueo de caja chica se realizará en presencia del Tesorero Municipal según lo dispuesto en el numeral 109 del Código Municipal o en presencia del funcionario que él designe para tales efectos. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.
+(Así reformado mediante sesión N° 73 del 26 de abril de 1999).

@@ -1,3 +1,2 @@
-CAPITULO SETIMO
-De las sanciones
-Artículo 36.- Todo funcionario que haga uso del fondo de caja chica, tiene la obligación de conocer el presente reglamento, el incumplimiento del mismo será sancionado conforme a los dispuesto en el artículo 126 y además conducentes del Reglamento Autónomo de Organización y Servicios de esta Municipalidad.
+Artículo 36.-Los encargados de las cajas chicas , no podrán guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para tal fin, y por ningún motivo podrán suplir con su dinero, compras o pagos que correspondan a la Municipalidad, salvo en casos emergentes, debiendo justificarse y razonarse el caso con el aval del Director de la dependencia de que se trate.
+(Así corrida su numeración mediante sesión N° 73 del 26 de abril de 1999, que lo traspasó del anterior artículo 34 al 36 actual).

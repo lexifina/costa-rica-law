@@ -1,1 +1,2 @@
-Artículo 37.-Las sanciones que correspondan, según lo dispuesto en el artículo anterior, serán aplicadas por el Despacho del Alcalde Municipal, a través de la Dirección de Recursos Humanos, conforme lo establece la Convención Colectiva, el Código Municipal, el Código de Trabajo y el Reglamento Autónomo de Organización y Servicio de esta Municipalidad.
+Artículo 37.-Ningún funcionario de la Municipalidad, con la excepción de quienes tengan en custodia los fondos de Caja Chica, podrá mantener en su poder fondos de Caja Chica por más de tres días.
+(Así corrida su numeración mediante sesión N° 73 del 26 de abril de 1999, que lo traspasó del anterior artículo 35 al 37 actual).

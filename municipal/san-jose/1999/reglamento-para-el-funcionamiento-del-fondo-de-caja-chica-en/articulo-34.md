@@ -1,1 +1,2 @@
-Artículo 34.-Los encargados de las cajas chicas , no podrán guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para tal fin, y por ningún motivo podrán suplir con su dinero, compras o pagos que correspondan a la Municipalidad, salvo en casos emergentes, debiendo justificarse y razonarse el caso con el aval del Director de la dependencia de que se trate.
+Artículo 34.-Por ningún motivo se podrá variar el objetivo inicial de una compra.
+(Así corrida su numeración mediante sesión N° 73 del 26 de abril de 1999, que lo traspasó del anterior artículo 32 al 34 actual).

@@ -1,1 +1,3 @@
-Artículo 29.-No se tramitarán por medio del fondo fijo de Caja Chica las compras que se hayan definido como artículo de uso común, los que deberán ser adquiridos por medio de los sistemas convencionales de compra que existan en la Municipalidad, según las disposiciones establecidas en la Ley de Contratación Administrativa y en el Reglamento General de la Contratación Administrativa.
+Artículo 29.-Se confeccionarán reintegros de caja chica cuando el efectivo disponible del fondo fijo no sea menor del 6%.
+(Así reformado mediante sesión N° 73 del 26 de abril de 1999).
+(Así corrida su numeración mediante sesión N° 73 del 26 de abril de 1999, que lo traspasó del anterior artículo 27 al 29 actual).

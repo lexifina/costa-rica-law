@@ -14,3 +14,4 @@ Reglamento para el Funcionamiento del Fondo de Caja Chica (En La Gaceta N° 201 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-08 | la propia norma |
+| 2 | 1999-04-26 | Reglamento municipal 73 (1999-04-26) |
