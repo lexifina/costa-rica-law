@@ -1,0 +1,5 @@
+ARTÍCULO 5º.- (La Sala Constitucional mediante resolución N° 1829-99 del 10 de marzo de 1999, anuló este artículo cuyo texto disponía textualmente: “Refórmese el artículo 54 actual y trasládese al final del Título IX, para que se lea así:
+"Artículo 54.- Las Sociedades de Gestión Colectiva, una vez inscritas como sociedades civiles en el Registro de Personas del Registro Público, y como requisito de funcionamiento, deberán presentar ante el Registro de Derechos de Autor y Derechos Conexos, una solicitud escrita para su autorización.
+El Registro de Derechos de Autor y Derechos Conexos verificará los requisitos legales y la existencia de contratos de representación.
+Aprobada la solicitud, podrán iniciar la gestión de los intereses representados.
+Igualmente deberán notificar al Registro Nacional de Derechos de Autor y Conexos las tarifas generales y sus modificaciones; las que simultáneamente deberán ser publicadas por la entidad recaudadora por una vez en el Diario Oficial La Gaceta y por una vez en uno de los Diarios de mayor Circulación Nacional."
