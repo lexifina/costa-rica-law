@@ -1,0 +1,3 @@
+Artículo 2§.-Naturaleza, controles.
+La Empresa será un organismo técnico auto-financiado y tendrá plena personalidad jurídica y patrimonio propio. En lo aspectos técnicos y financieros estará sujeta a las normas que le fijen el Ministerio de Salud Pública, el Instituto Costarricense de Electricidad, el Servicio Nacional de Acueductos y Alcantarillado, el Servicio Nacional de Electricidad y el Instituto de Fomento y Asesoría Municipal. Todo de acuerdo con las leyes constitutivas de esas instituciones:
+Además, estará sujeta a todos los controles que para los entes descentralizados establece la legislación vigente, salvo en todo aquello en que los mismos resulten modificados expresamente por la presente ley.
