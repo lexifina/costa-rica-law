@@ -1,5 +1,2 @@
-Artículo 35.- Sólo podrán autorizarse tarifas diferenciales cuando
-las ventajas que se ofrezcan puedan ser aprovechadas por todos los que se
-encuentren en las condiciones previamente determinadas, siempre que esas
-ventajas no sean excesivas o se presten para otorgar un beneficio a un
-usuario que no pueda ser aprovechado por otros.
+Artículo 35.- Sólo podrán autorizarse tarifas diferenciales cuando las ventajas que se ofrezcan puedan ser aprovechadas por todos los que se encuentren en las condiciones previamente determinadas, siempre que esas ventajas no sean excesivas o se presten para otorgar un beneficio a un usuario que no pueda ser aprovechado por otros.
+(Tácitamente derogado por el artículo 43, en relación con el 6º, de la Ley Nº 7404 de 3 de mayo de 1994 -Ley General de Concesión de Obra Pública-).

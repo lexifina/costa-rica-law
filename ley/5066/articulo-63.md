@@ -1,3 +1,1 @@
-Artículo 63.- Los particulares usuarios que violen las disposiciones
-de la presente ley y sus reglamentos, serán sancionados con una multa de
-cien a quinientos colones, o prisión de treinta a sesenta días.
+Artículo 63.- Los particulares usuarios que violen las disposiciones de la presente ley y sus reglamentos, serán sancionados con una multa de cien a quinientos colones, o prisión de treinta a sesenta días.
