@@ -1,0 +1,1 @@
+Transitorio 3º—A partir del año 2002 se convocará a asamblea general a más tardar el día 20 de noviembre en el entendido que los miembros del Comité Cantonal de Deportes y Recreación se elegirán cada dos años pudiendo ser reelectos.

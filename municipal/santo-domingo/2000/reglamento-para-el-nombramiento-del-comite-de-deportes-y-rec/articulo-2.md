@@ -1,0 +1,1 @@
+Artículo 2º—Toda organización deportiva, recreativa o comunal para participar en la asamblea, deberá de inscribirse en la Secretaría del Concejo Municipal de Santo Domingo de Heredia antes de la fecha límite indicada en las notificaciones que habla el artículo primero de este Reglamento.

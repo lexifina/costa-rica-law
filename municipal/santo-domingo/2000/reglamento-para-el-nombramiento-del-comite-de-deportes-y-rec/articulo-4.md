@@ -1,0 +1,1 @@
+Artículo 4º—El representante de cada organización debidamente inscrito, tendrá derecho a voz voto y a proponer candidatos a ocupar un puesto en el Comité Cantonal de Deportes y Recreación, en la reunión que le corresponda. La votación en cada reunión será secreta.

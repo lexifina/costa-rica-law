@@ -1,0 +1,2 @@
+Transitorio 1º—Para el nombramiento del Comité Cantonal de Deportes del año 2000 se procederá de la siguiente forma:
+Se convocará a asamblea general con la presencia de dos representantes de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en el cantón, a realizarse el día sábado 18 de noviembre del 2000, a las 3,00 p.m. en la Biblioteca Municipal de Santo Domingo de Heredia.

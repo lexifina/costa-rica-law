@@ -1,0 +1,1 @@
+Artículo 9º—En la primera sesión de instalación de la Junta Directiva del Comité Cantonal de Deportes y Recreación, nombrarán de su seno, un presidente, un vicepresidente, un tesorero, un secretario, un vocal y será dirigida por el Alcalde Municipal, o quién él delegue.
