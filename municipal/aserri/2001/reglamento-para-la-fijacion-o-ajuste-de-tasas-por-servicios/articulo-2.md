@@ -1,0 +1,1 @@
+Artículo 2°—Las objeciones del Concejo serán comunicadas a la Administración Municipal, y solo se podrán basar en criterios técnicos y Jurídicos. La Administración gozará de ocho días hábiles para contestar las objeciones del Concejo.
