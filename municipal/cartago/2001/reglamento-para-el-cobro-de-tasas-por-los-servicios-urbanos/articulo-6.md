@@ -1,0 +1,1 @@
+Artículo 6°—A los efectos anteriores se establece un período ordinario de pago de diez días hábiles, en otros términos el pago efectuado dentro de ese plazo no genera multas ni interés, caso contrario se aplicarán las mismas.

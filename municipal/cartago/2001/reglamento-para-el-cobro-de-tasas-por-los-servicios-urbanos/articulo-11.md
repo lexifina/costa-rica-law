@@ -1,0 +1,1 @@
+Artículo 11.—El atraso en el pago de las tasas a la Municipalidad generarán multas e intereses moratorios que se calcularán según lo establecido al efecto por el Código de Normas y Procedimientos Tributarios.

@@ -1,0 +1,1 @@
+Artículo 13.—La certificación expedida por el contador o Auditor Municipal, relativa a deudas por tasas a la Municipalidad por la prestación de servicios, constituirán título ejecutivo y en el proceso judicial correspondiente solo podrán oponerse las excepciones de pago o prescripción.
