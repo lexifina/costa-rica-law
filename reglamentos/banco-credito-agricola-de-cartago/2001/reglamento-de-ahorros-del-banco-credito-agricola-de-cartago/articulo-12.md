@@ -1,0 +1,2 @@
+Articulo 12.—Todo depósito constituido con cheques, lotería y otros documentos valores, se considerará en, gestión de cobro, no pudiéndose hacer retiros hasta tanto BANCRÉDITO no haya hecho efectivo esos valores.
+BANCRÉDITO no asume responsabilidad por demoras o negligencia de terceros, que se presenten en el cobro de esos valores y queda autorizado para cargar a la respectiva cuenta cualquier documento que resultare incobrable, así como también incluir los intereses y cargos por portes de correo u otros en que BANCRÉDITO incurra en la devolución de los mismos.

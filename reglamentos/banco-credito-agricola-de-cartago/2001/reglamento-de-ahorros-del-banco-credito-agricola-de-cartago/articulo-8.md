@@ -1,0 +1,2 @@
+Articulo 8°- Las cuentas de ahorro no podrán ser transferidas o cedidas a terceras personas, sin previo consentimiento de BANCREDITO.
+En caso de cederse el saldo de la cuenta de ahorros, el titular cedente deberá entregar a BANCREDITO, todos los medios electrónicos para efectuar transacciones bancarias y el original o copia del contrató de cesión debidamente autenticado por un abogado y en papel de seguridad.

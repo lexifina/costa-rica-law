@@ -1,0 +1,1 @@
+Articulo 4°—El depósito mínimo inicial para la apertura de una cuenta en colones o dólares, debe ser depositado en efectivo. Estos montos mínimos podrán ser variados por BANCREDITO en el momento que lo considere pertinente, de acuerdo al modelo de tarifas vigente por BANCREDITO.

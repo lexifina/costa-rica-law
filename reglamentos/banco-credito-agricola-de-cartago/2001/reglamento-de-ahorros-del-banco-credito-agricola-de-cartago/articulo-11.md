@@ -1,0 +1,2 @@
+Articulo 11.—Cuando una cuenta de ahorros en colones o dólares se mantenga sin movimiento por un período, igual o superior a 6 meses, se declarará como cuenta inactiva. RANCREDITO tendrá la facultad de cobrar comisiones por administración de la cuenta. Un el caso de una cuenta inactiva se cobrarán las comisiones hasta que el saldo sea cero, o bien que el cliente efectúe un nuevo depósito con el cual la cuenta recobra el estado de cuenta activa.
+Una cuenta con saldo cero, se cerrará al cabo de un año de no presentar movimiento.
