@@ -1,0 +1,2 @@
+Artículo 15.—La entidad docente se compromete a comunicar al Instituto Nacional de Seguros los requisitos que deben cumplir los aspirantes a las becas en los grados de Bachiller y Licenciatura en cualquiera de las carreras que imparte, excepto gastos de matrícula, pruebas de grado y gastos de graduación.
+Asimismo, la Entidad Docente deberá garantizarle al Instituto Nacional de Seguros un determinado número de becas para sus funcionarios, la cantidad de becas se determinara entre ambas partes y en forma anual.

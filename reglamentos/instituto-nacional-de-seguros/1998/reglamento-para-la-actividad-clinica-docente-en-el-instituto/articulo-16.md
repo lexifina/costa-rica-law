@@ -1,0 +1,1 @@
+Artículo 16.—La Entidad Docente se compromete a enviar estudiantes de otras materias, para que ayuden en proyectos relacionados en salud, educación para la salud, prevención, estadística, extensión y seguimiento al hogar, cuando el Instituto lo requiera.

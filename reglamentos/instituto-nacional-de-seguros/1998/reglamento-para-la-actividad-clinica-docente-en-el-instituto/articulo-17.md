@@ -1,0 +1,1 @@
+Artículo 17.—El horario de los programas académicos deberá cumplirse tal como fue aprobado por ambas partes. En caso de que fuere necesario algún cambio, deberá convenirse entre las partes (los jefes de servicio, los coordinadores de enseñanza de la entidad docente y el profesor) con al menos veinticuatro horas de anticipación.
