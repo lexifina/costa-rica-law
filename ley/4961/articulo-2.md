@@ -1,0 +1,2 @@
+Artículo 2º.- Se derogan los artículos 19, 36, 37 y 39 de la Ley de Impuesto sobre las Ventas, Nº 3914 de 17 de julio de 1967 y se reforma el artículo 38 de la misma ley, para que se lea así:
+"Artículo 38.-Se deroga la ley Nº 3282 de 21 de abril de 1964, salvo en lo que se refiere al impuesto que grava el artículo comprendido en el Decreto Ejecutivo Nº 36 de 29 de julio de 1964, el cual se establece como impuesto específico de consumo mínimo".
