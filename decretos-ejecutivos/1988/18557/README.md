@@ -14,3 +14,4 @@ Reglamento Autónomo de Trabajo y Ministerio de Recursos Naturales, Energía y M
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-11-18 | la propia norma |
+| 2 | 1993-11-23 | Decreto Ejecutivo 22700 (1993-11-23) |
