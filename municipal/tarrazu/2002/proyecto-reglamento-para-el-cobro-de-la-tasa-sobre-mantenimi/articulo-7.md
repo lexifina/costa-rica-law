@@ -1,0 +1,1 @@
+Artículo 7º—La Municipalidad, cobrará una tasa por concepto de mantenimiento de parque, zonas verdes y sus respectivos servicios, a todos los propietarios de inmuebles ubicados en cada uno de los distritos ubicados en su jurisdicción.

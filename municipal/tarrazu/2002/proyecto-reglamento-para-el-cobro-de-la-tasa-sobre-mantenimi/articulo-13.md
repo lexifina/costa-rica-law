@@ -1,0 +1,1 @@
+Artículo 13.—Quedarán exentos del pago de dicha tasa todos aquellas personas o instituciones que figuren como "parceleros", es decir que tengan a su cargo una parcela del parque central de San Marcos de Tarrazú, o en su momento de otros parques o zonas verdes del cantón de Tarrazú, siempre y cuando los costos de dicho mantenimiento corran por cuenta de dichos parceleros.

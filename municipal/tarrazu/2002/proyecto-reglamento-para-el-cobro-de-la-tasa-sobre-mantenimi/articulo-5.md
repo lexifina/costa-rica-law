@@ -1,0 +1,1 @@
+Artículo 5º—Es sujeto pasivo para los efectos de este Reglamento, toda aquella persona que sea propietaria de un inmueble quien por tal condición está obligada al pago de la tasa que cobra la Municipalidad, por mantenimiento de parque y zonas verdes, en los distritos del cantón.
