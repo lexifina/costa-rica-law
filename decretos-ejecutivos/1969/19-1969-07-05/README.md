@@ -14,3 +14,4 @@ Autoriza Dirección General Correos Venta Estampillas emite ONU
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1969-07-20 | la propia norma |
+| 2 | 1970-03-25 | Decreto Ejecutivo 20 (1970-03-25) |
