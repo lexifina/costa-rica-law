@@ -1,0 +1,4 @@
+ARTÍCULO XXI
+Reclamaciones contra el UNICEF
+1.- Habida cuenta de que, en virtud del presente Acuerdo, el UNICEF coopera en los programas en beneficio del Gobierno y el pueblo del país, el Gobierno asumirá todos los riesgos de las actividades que se realicen en el marco del Acuerdo, de conformidad con lo establecido en el plan general de actividades.
+2.- En particular, el Gobierno se hará cargo de todas las reclamaciones que dimanen de actividades realizadas en virtud del presente Acuerdo o sean directamente imputables a ellas y hayan sido interpuestas por terceros contra el UNICEF, funcionarios del UNICEF, expertos en misión y personas que presten servicios en nombre del UNICEF, los cuales quedarán exonerados de responsabilidad a menos que el Gobierno y el UNICEF convengan en que la demanda u obligación de que se trate obedece a negligencia grave o conducta dolosa.

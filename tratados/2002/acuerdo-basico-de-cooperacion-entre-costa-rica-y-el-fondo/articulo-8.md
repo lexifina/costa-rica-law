@@ -1,0 +1,4 @@
+ARTÍCULO VIII
+Derecho de propiedad intelectual
+1.- Las partes convienen en cooperar e intercambiar información en relación con los descubrimientos, inventos u obras que sean resultado de actividades de programas realizadas en virtud del presente Acuerdo con miras a velar por que el Gobierno y el UNICEF los utilicen y aprovechen en la forma más eficiente y efectiva, con arreglo al derecho aplicable.
+2.- Los derechos de patente, los derechos de autor y otros derechos similares de propiedad intelectual correspondientes a descubrimientos, inventos u obras realizadas con arreglo al párrafo 1 del presente artículo y que sean resultado de programas en los que coopere el UNICEF podrán ser facilitados por éste libres del pago de derechos a otros gobiernos con los que coopere para que los utilicen y aprovechen en programas.
