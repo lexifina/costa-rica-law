@@ -13,3 +13,4 @@ Ref. Reglamento Regencias y Norma Canon Anual a Colegio Ing. Agrónomos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-11-04 | la propia norma |
+| 2 | 1987-11-04 | SINALEVI (sin norma nombrada) |
