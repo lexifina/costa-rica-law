@@ -1,0 +1,1 @@
+Artículo 3°—En virtud de esta declaratoria de utilidad pública, cada vez que dicha Asociación desee hacer uso de franquicias y concesiones de orden administrativo y económico, deberá contar con la aprobación del Ministerio de Hacienda.
