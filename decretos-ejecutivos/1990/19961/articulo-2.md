@@ -1,0 +1,1 @@
+Artículo 2°-Serán unidades ejecutoras básicas de este proyecto el Catastro Nacional y la Dirección General de la Tributación Directa. El Ministerio de Justicia actuará como coordinador de las unidades ejecutoras.
