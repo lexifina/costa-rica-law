@@ -14,3 +14,4 @@ Reglamenta ley que declara de libre exportación el café cosechado en Guanacast
 | --- | --- | --- |
 | 1 | 1936-07-21 | la propia norma |
 | 2 | 1939-08-07 | Decreto Ejecutivo 18 (1939-08-07) |
+| 3 | 1964-12-12 | Decreto Ejecutivo 69 (1964-12-12) |
