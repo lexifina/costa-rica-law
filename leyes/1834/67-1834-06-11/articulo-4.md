@@ -1,0 +1,1 @@
+Art 4°.- Queda derogado el artículo 1° de la Ley de 15 de marzo de 832, ampliado el artículo 51 del reglamento de 23 de abril de 1832.-Al Consejo Representativo.- Dado en la ciudad de Alajuela á los cuatro días del mes de Junio de mil ochocientos treinta y cuatro.- Por tanto: Ejecútese.- Alajuela Junio once de mil ochocientos treinta y cuatro.

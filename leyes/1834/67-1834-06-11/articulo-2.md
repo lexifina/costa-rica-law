@@ -1,0 +1,1 @@
+Art 2.- El Consejo elegirá un Pro-Secretario con arreglo al artículo 51 de su reglamento de 23 de Abril de S32, que disfrutará del mismo sueldo que el propietario, cuando funja, y será den ausencia ó enfermedad de éste.
