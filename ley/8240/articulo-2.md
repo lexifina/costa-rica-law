@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con la documentación oficial que da fe de la renegociación efectuada, debe considerarse que, en lo referente a garantías y estipulaciones establecidas en el contrato de crédito, la garantía de NLG 400.000,00 le corresponderá al Estado costarricense.
