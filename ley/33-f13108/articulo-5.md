@@ -1,0 +1,2 @@
+V.
+La Compañía se obliga á poner anualmente á disposición del Gobierno de Costa Rica pasajes por valor de ($1,512-000) mil quinientos doce pesos oro norteamericano para cualquier puerto del continente en el litoral del Pacífico en que hagan escala ó arriben los vapores de la Compañía obligados por este contrato á tocar en el puerto de Puntarenas. El valor de los pasajes de que el Gobierno disponga, se computará, para el efecto de esta conseción, al precio corriente establecido por la Compañía su tarifa en general.
