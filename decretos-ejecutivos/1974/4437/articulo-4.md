@@ -1,0 +1,1 @@
+Artículo 4°—Las instituciones autónomas del Estado coordinarán sus actividades con las universidades, por medio de la Comisión de Enlace que por este decreto se crea y conforme a lo establecido en el artículo tercero del mismo.
