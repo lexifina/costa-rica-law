@@ -1,0 +1,1 @@
+Artículo 2°—Se autoriza el ingreso de los vehículos automotores y maquinaria mencionados, bajo e) régimen de importación temporal, de conformidad con las disposiciones que en tal sentido establecen el CAUCA y RECAUCA.
