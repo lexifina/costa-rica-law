@@ -1,4 +1,6 @@
+(Derogado)
 Ley Nº 5889
+(La presente norma fue derogada, en todo lo que se le oponga, por el artículo 34 de la Ley de Transformación de la Empresa de Servicios Públicos de Heredia N° 7789 del 30 de abril de 1998)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 DECRETA:
 LEY CONSTITUTIVA DE LA EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA
