@@ -1,0 +1,1 @@
+Artículo 5°—A la hora de elegir el Concejo de Distrito, es importante que se tomen en cuenta a personas de conocida capacidad de trabajo e integridad moral. Debe haber al menos dos representantes femeninas.

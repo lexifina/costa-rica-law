@@ -1,0 +1,1 @@
+Artículo 16.—Las sesiones ordinarias deben efectuarse en la cabecera del distrito o en la Municipalidad, en el día y hora indicados según el artículo 6 de este Reglamento, pudiendo celebrar sesiones extraordinarias en otros distritos del mismo cantón para tratar asuntos de interés interdistrital.
