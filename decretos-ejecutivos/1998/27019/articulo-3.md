@@ -1,0 +1,1 @@
+Artículo 3°—Con el propósito de facilitar y coordinar la transición del cambio de Gobierno se nombra al señor Rodolfo Montero Pacheco, cédula de identidad número 1-491-155, por un plazo de tres meses, como coordinador de la Comisión del Programa de Compensación Social y de la Comisión de Titulación de Tierras.
