@@ -15,3 +15,4 @@ Reglamento para el Uso de Espacios de Estacionamiento
 | --- | --- | --- |
 | 1 | 1999-12-27 | la propia norma |
 | 2 | 1999-12-27 | Ley 7 |
+| 3 | 2001-01-29 | Reglamento municipal 0 (2001-01-29) |
