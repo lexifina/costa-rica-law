@@ -1,0 +1,1 @@
+Articulo 3°—En el caso de karaoke recreativo, el acto será espontáneo, sin ensayar, y el interprete no recibirá premios o recompensas por su acción. El karaoke de concurso podrá ser espontáneo o programado y el participante podrá recibir premios o recompensas.
