@@ -1,6 +1,1 @@
-ARTÖCULO 41.- En las causas de instrucci¢n formal, los
-honorarios no
-ser n inferiores a treinta mil colones si hubiere debate,
-reduci‚ndose
-ese m¡nimo a la mitad cuando la causa concluya ante de esa etapa
-procesal.
+Artículo 41.—En las causas de instrucción formal, los honorarios no serán inferiores a treinta mil colones si hubiere debate, reduciéndose ese mínimo a la mitad cuando la causa concluya ante de esa etapa procesal.

@@ -1,7 +1,1 @@
-ARTÖCULO 40.- En las causas penales de citaci¢n directa y
-por
-delitos de acci¢n privada, en las que se celebrare debate, los
-honorarios
-profesionales m¡nimos ser n de veinte mil colones. Si
-concluyeren antes,
-los honorarios m¡nimos ser n de quince mil colones.
+Artículo 40.—En las causas penales de citación directa y por delitos de acción privada, en las que se celebrare debate, los honorarios profesionales mínimos serán de veinte mil colones. Si concluyeren antes, los honorarios mínimos serán de quince mil colones.

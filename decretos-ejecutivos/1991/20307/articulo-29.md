@@ -1,14 +1,1 @@
-ARTÖCULO 29.- En procesos contenciosos de divorcio,
-separaci¢n
-judicial, procesos de investigaci¢n de paternidad, suspensi¢n de
-patria
-potestad, reivindicaci¢n de estado y otros similares del Derecho
-de
-Familia, el abogado tendr derecho a un m¡nimo de veinte mil
-colones de
-honorarios por proceso terminado. Tales honorarios se
-incrementar n,
-cuando tuvieren trascendencia econ¢mica, en proporci¢n a esa
-trascendencia y conforme a la tarifa que se¤ala el art¡culo 17
-y de
-acuerdo con las etapas del art¡culo 18;
+Artículo 29.—En procesos contenciosos de divorcio, separación judicial, procesos de investigación de paternidad, suspensión de patria potestad, reivindicación de estado y otros similares del Derecho de Familia, el abogado tendrá derecho a un mínimo de veinte mil colones de honorarios por proceso terminado. Tales honorarios se incrementarán, cuando tuvieren trascendencia económica, en proporción a esa trascendencia y conforme a la tarifa que señala el artículo 17 y de acuerdo con las etapas del artículo 18;

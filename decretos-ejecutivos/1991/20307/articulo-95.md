@@ -1,5 +1,1 @@
-ARTÖCULO 95.- Reproducciones. Los segundos o ulteriores
-testimonios
-as¡ como certificaciones de instrumentos p£blicos expedidas con
-posterioridad a estos causar n honorarios m¡nimos ½ 1.500,00 cada
-reproducci¢n.
+Artículo 95.—Reproducciones. Los segundos o ulteriores testimonios así como certificaciones de instrumentos públicos expedidas con posterioridad a estos causarán honorarios mínimos ¢ 1.500,00 cada reproducción.

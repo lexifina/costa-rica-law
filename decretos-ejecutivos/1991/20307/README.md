@@ -14,3 +14,4 @@ Arancel de Profesionales en Derecho (Honorarios Abogados y Notarios)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-04-04 | la propia norma |
+| 2 | 1991-04-04 | SINALEVI (sin norma nombrada) |

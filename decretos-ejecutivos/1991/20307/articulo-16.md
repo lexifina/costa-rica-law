@@ -1,5 +1,1 @@
-ARTÖCULO 16.- Recurso de h beas corpus. Por la atenci¢n de
-un
-recurso de h beas corpus, el abogado devengar un honorario
-m¡nimo de
-diez mil colones.
+Artículo 16.—Recurso de hábeas corpus. Por la atención de un recurso de hábeas corpus, el abogado devengar un honorario mínimo de diez mil colones.

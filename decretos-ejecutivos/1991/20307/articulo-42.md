@@ -1,10 +1,1 @@
-ARTÖCULO 42.- Procesos de extradici¢n. En procesos de
-extradici¢n
-se cobrar un m¡nimo de treinta mil colones y cuando el proceso
-concluya
-antes de que se dicte sentencia la suma se reducir
-proporcionalmente de
-acuerdo con el trabajo realizado. En ning£n caso los honorarios
-ser n
-inferiores al 50% de lo que correspondiere en el proceso
-concluido.
+Artículo 42.—Procesos de extradición. En procesos de extradición se cobrará un mínimo de treinta mil colones y cuando el proceso concluya antes de que se dicte sentencia la suma se reducirá proporcionalmente de acuerdo con el trabajo realizado. En ningún caso los honorarios serán inferiores al 50% de lo que correspondiere en el proceso concluido.

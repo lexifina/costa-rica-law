@@ -1,5 +1,1 @@
-ARTÖCULO 58.- Por confecci¢n de un pagar‚, letra de cambio
-o prenda,
-se fija por concepto de honorarios un m¡nimo de 0,25% sobre el
-monto del
-documento.
+Artículo 58.—Por confección de un pagaré, letra de cambio o prenda, se fija por concepto de honorarios un mínimo de 0,25% sobre el monto del documento.

@@ -1,3 +1,1 @@
-ARTÖCULO 33.- En procesos de adopci¢n los honorarios m¡nimos
-ser n
-de quince mil colones.
+Artículo 33.- En procesos de adopción los honorarios mínimos serán de quince mil colones.
