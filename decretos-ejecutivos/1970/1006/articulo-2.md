@@ -1,0 +1,1 @@
+Artículo 2°-Los representantes del Poder Ejecutivo que hubiere en las instituciones autónomas, semi-autónomas y descentralizadas del Estado, tratarán de que éstas dicten resoluciones para uniformar los viáticos de su personal con la tabla que contiene él artículo anterior.
