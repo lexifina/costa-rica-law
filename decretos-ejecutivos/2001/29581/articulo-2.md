@@ -1,0 +1,1 @@
+Artículo 2º—La Casa Centroamericana será un gran espacio de intercambio de las expresiones artísticas y culturales, provenientes de la diversidad cultural de los pueblos centroamericanos, y tendrá como finalidad promover la creatividad y la creación artística, así como la protección, valoración y promoción del patrimonio cultural de la región.

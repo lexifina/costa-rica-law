@@ -1,0 +1,1 @@
+Artículo 3º—La Casa Centroamericana de nuestro país tendrá su sede en el Centro Nacional de la Cultura. Sin embargo, podrá hacer uso de otros espacios del territorio nacional, para realizar sus actividades.
