@@ -1,0 +1,3 @@
+CAPÍTULO I
+Del comité especial de crédito
+Artículo 1º—El Comité Especial de Crédito es el órgano creado dentro de este Reglamento y el Contrato de Fideicomiso respectivo al tenor de lo dispuesto en el inciso 7) del artículo 116 de la Ley Orgánica del Sistema Bancario Nacional, que estará integrado por: Un delegado de la Dirección Administrativa, un delegado de la Dirección Financiera, un delegado de la Dirección Académica, un representante de la Unidad de Vida Estudiantil y un representante del Banco Nacional de Costa Rica, estos dos últimos con voz, pero sin voto, todo de conformidad con lo que establece en el Contrato de Fideicomiso. Siendo los representantes de la ECAG nombrados por el Fideicomitente.

@@ -1,0 +1,1 @@
+Artículo 6º—Los acuerdos del Comité, adquirirán firmeza desde el momento mismo de su nacimiento, a menos que el Presidente del Comité Especial de Crédito o cualesquiera de sus integrantes, soliciten que la firmeza de dichos acuerdos quede sujeta a ratificación en la próxima sesión.

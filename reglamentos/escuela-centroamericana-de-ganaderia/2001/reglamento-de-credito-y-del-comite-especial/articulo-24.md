@@ -1,0 +1,3 @@
+De las garantías
+Artículo 24.—Los préstamos que se otorguen deberán garantizarse preferiblemente con garantías hipotecarias de primer grado. Sin embargo cuando el Comité Especial de Crédito lo estime necesario y conveniente, podrá solicitar otro tipo de garantías de acuerdo con lo establecido en las reglamentaciones del Fiduciario, asimismo los beneficiarios deberán suscribir una póliza de seguro de saldos deudores, cuyo valor podrá incorporarse como parte integral del plan de inversión del crédito.
+En relación con beneficiarios extranjeros, éstos deberán conceder cartas de crédito de un Banco de primer orden de su país de origen, como medio garante de los préstamos que obtengan.

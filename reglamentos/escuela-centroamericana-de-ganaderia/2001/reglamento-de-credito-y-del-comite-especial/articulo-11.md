@@ -1,0 +1,2 @@
+De la utilización de los recursos del programa
+Artículo 11.—Los recursos del crédito serán utilizados para el pago de los gastos de matrícula y mensualidad que por concepto de formación académica devenga el Fideicomitente. A juicio del Comité Especial de Crédito se determinarán las ayudas económicas en dinero efectivo, para la compra de material didáctico, materiales de vestuario, libros de texto y otros.

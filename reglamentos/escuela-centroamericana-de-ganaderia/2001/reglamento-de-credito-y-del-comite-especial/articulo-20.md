@@ -1,0 +1,1 @@
+Artículo 20.—Las tasas de intereses corrientes que se pacten para cada operación, serán revisadas anualmente a criterio del Fideicomitente y el pago de los montos correspondientes, será por mes vencido. Asimismo, considerando la naturaleza de los préstamos, el Comité podrá conceder períodos de gracia en el pago de intereses por plazo que este considere conveniente.
