@@ -1,0 +1,1 @@
+Art. 2° -La subvención á que se refiere el artículo anterior, tendrá efecto si los empresarios establecieren el alumbrado eléctrico dentro del término señalado por la ley que concedió al Señor Dengo el privilegio de su fundación.
