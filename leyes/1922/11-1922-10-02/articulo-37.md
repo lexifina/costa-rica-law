@@ -1,0 +1,1 @@
+ARTICULO 37.- La indemnización se pagar en los diez días que sigan a la notificación al asegurado del auto de sobreseimiento legalmente firme que a su favor haya recaído en la correspondiente sumaria.

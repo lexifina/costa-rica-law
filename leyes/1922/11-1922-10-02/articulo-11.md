@@ -1,0 +1,1 @@
+ARTICULO 11.- El asegurador puede en cualquier tiempo hacer asegurar por otro las cosas por él aseguradas. El premio del reseguro puede ser menor, igual o mayor que el premio del seguro, y sus condiciones pueden ser diversas de las de éste.

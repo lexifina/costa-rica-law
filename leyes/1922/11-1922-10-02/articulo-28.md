@@ -1,0 +1,1 @@
+ARTICULO 28.- La póliza de seguros contra accidentes corporales, debe contener además de los requisitos del artículo 18, una enumeración clara de los accidentes que cubre el aseguro y de la proporción en que se pagará la indemnización, en caso de lesiones que den lugar a una indemnización parcial.

@@ -1,0 +1,1 @@
+ARTICULO 35.- La valuación de los daños causados por el incendio se hará por peritos. Su nombramiento se hará ante el Juez, quien elegir perito tercero para el caso de discordia, si la póliza no dispusiere otra cosa. A los peritos se les dar certificación de su nombramiento y aceptación.

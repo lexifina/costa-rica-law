@@ -1,0 +1,1 @@
+ARTICULO 68.- La inscripción de cada póliza devengar , si los premios son menores de diez colones anuales, cincuenta céntimos; de diez a veinticinco colones, un colón, y las demás dos colones. Cualquiera otra operación referente a una póliza ya inscrita, pagar solamente un colón de registro.
