@@ -1,3 +1,2 @@
-Artículo 52.-En representación de la Junta Directiva asistirá a los sorteos el Presidente o la persona que éste designe, debiendo recaer esa designación, de preferencia, en un miembro del Patronato.
-También concurrirá el Jefe del Departamento de Loterías o un delegado suyo y en calidad de Inspector uno de los Alcaldes Penales del Cantón Central de San José. Todos deberán firmar el acta conteniendo la relación de las operaciones y el resultado del sorteo.
-(Asì reformado por el artìculo 1° del decreto ejecutivo N° 4 del 11 de setiembre de 1963)
+Artículo 52.-Los sorteos se efectuarán en un lugar que ofrezca acceso fácil al público a fin de que quien lo desee pueda vigilar las operaciones. Los aparatos mecánicos o los sistemas que se usen para efectuar los sorteos deberán ser reconocidos como de absoluta confianza para garantizar que únicamente el azar determina los números y sus correspondientes premios.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 13 del 18 de setiembre de 1965).

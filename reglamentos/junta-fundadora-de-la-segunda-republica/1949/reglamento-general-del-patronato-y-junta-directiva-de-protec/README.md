@@ -24,3 +24,4 @@ Reglamento General del Patronato y Junta Directiva de Protección Social de San 
 | 10 | 1963-02-15 | Decreto Ejecutivo 2 (1963-02-15) |
 | 11 | 1963-09-11 | Decreto Ejecutivo 4 (1963-09-11) |
 | 12 | 1965-04-08 | Decreto Ejecutivo 4 (1965-04-08) |
+| 13 | 1965-09-18 | Decreto Ejecutivo 13 (1965-09-18) |
