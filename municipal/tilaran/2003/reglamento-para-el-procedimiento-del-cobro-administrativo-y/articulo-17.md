@@ -1,0 +1,6 @@
+Artículo 17.—El abogado deberá realizar las siguientes gestiones:
+a) Presentar la demanda de cobro judicial, conteniendo las certificaciones correspondientes debidamente firmadas por los funcionarios municipales, en un plazo no mayor de tres días hábiles, posteriores a la fecha de remisión de la Oficina de Cobros. En caso de no hacerse en ese lapso, el abogado enviará una carta explicativa a la Oficina de Cobros, para su autorización. La presentación de la demanda debe testimoniarse con el sello y la fecha de recibido por parte del juzgado que recibió dicha demanda, siendo requisito imprescindible para el cobro de honorarios.
+b) Exigir a los Tribunales de Justicia donde se tramiten los casos, que se les sellen y firmen las copias de todos los escritos que se presenten, enviando copia de los mismos a la Oficina de Cobros.
+c) Realizar estudios de retenciones como mínimo cada tres meses en los procesos que estén bajo su dirección y solicitar cuando existe sentencia firme, la orden de giro correspondiente. Una vez dictada la sentencia de previo, y en el plazo no mayor de quince días naturales, deberá presentar al tribunal judicial respectivo, la liquidación de costas.
+d) En el escrito inicial de la demanda se señalará: para notificaciones,
+la Oficina de Cobros de la Municipalidad.

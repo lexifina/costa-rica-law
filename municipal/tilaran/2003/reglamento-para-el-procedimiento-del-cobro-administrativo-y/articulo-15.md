@@ -1,0 +1,1 @@
+Artículo 15.—Todos los abogados nombrados por la Municipalidad, deberán presentar informes de los casos asignados dentro de los primeros tres días posteriores al requerimiento de la Oficina de Cobros. El incumplimiento de esta disposición facultará a la oficina a suspender la entrega de nuevos casos de cuentas de contribuyentes morosos.

@@ -1,0 +1,1 @@
+Artículo 14.—Los abogados nombrados no podrán aceptar casos en contra de la Municipalidad. El incumplimiento de esta disposición hará que su nombramiento como abogado municipal, quede revocado automáticamente.

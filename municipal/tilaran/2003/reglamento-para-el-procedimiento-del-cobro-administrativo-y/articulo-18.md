@@ -1,0 +1,1 @@
+Artículo 18.—Para efectos de determinar si los juicios se encuentran al día, la Oficina de Cobros, revisará periódicamente con el personal calificado, el número de expedientes y registros que considere necesario; de las operaciones entregadas a cada abogado, tomando como base la documentación en poder de dicha Oficina.

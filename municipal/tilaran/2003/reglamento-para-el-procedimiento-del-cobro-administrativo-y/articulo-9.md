@@ -1,0 +1,1 @@
+Artículo 9º—A fin de que haya la mayor equidad posible, la Oficina de Cobros, hará la selección de cuentas por monto o por cantidad de períodos vencidos; debiendo indicarse en los informes correspondientes al plan para la auto evaluación del control interno, el método de selección aplicado o por aplicar, según corresponda.

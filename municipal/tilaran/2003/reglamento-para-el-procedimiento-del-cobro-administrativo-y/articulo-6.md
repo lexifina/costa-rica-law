@@ -1,0 +1,1 @@
+Artículo 6º—El control y seguimiento, tanto de las acciones como de las gestiones de cobro judicial, estarán a cargo de la Oficina de Cobros, pudiendo requerir el apoyo de la coordinación de Hacienda.

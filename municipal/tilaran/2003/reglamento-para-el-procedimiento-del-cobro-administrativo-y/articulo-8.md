@@ -1,0 +1,1 @@
+Artículo 8º—Agotadas las gestiones administrativas en la recuperación de las cuentas morosas, la Oficina de Cobros entregará la documentación necesaria de las cuentas en estado de morosidad, a los abogados designados por la Alcaldía Municipal para que procedan a su cobro vía judicial.
