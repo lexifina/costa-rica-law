@@ -1,0 +1,3 @@
+Artículo 41.—Áreas de trabajo: Las funciones de la Auditoría se definen en dos áreas de trabajo:
+a) Auditoría Financiera: Encaminada fundamentalmente a verificar la razonabilidad de los estados y la información financieros, evaluar los controles internos sobre ingresos, gastos e inventarios, y comprobar la correcta aplicación de normas y asignaciones presupuestarias.
+b) Auditoría Operativa: Encaminada fundamentalmente a evaluar el grado de eficiencia y eficacia en la organización, determinar el cumplimiento de las disposiciones legales y reglamentarias pertinentes, y promover el establecimiento y mejoramiento de normas de control interno.

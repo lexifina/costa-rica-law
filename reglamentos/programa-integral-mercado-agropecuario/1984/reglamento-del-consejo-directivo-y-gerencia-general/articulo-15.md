@@ -1,0 +1,1 @@
+Artículo 15.—Presidente ad-hoc: Cuando no estuvieren presentes el Presidente y Vicepresidente, los miembros asistentes nombrarán un Presidente ad hoc, que tendrá las mismas funciones y atribuciones establecidas en el artículo siete para efecto de las sesiones.

@@ -1,0 +1,1 @@
+Artículo 45.—Confidencialidad: Las informaciones obtenidas por el Auditor y sus subalternos en el ejercicio de sus funciones serán estrictamente confidenciales, hasta que se emita el dictamen, o informe pertinente.

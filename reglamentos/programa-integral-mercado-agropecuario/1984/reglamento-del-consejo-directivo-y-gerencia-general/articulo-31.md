@@ -1,0 +1,2 @@
+Artículo 31.—Nombramiento y Remoción: El Secretario es un funcionario de confianza cuyo nombramiento, régimen disciplinario y remoción corresponde aI Consejo Directivo.
+El Consejo Directivo elegirá al Secretario con base en un concurso público o privado. El Secretario deberá ser como mínimo estudiante avanzado de una carrera universitaria que lo faculte para el desempeño del cargo y tener experiencia en labores de secretario de actas y facilidad para la redacción.

@@ -1,0 +1,3 @@
+Artículo 46.—Recursos: Las conclusiones, dictámenes y observaciones de la Auditoria no son vinculantes hasta que las jefaturas. Gerencia o el Consejo Directivo —según corresponda— las tengan como base para un acto o decisión. En todo caso, las decisiones y dictámenes de la Auditoría serán recurribles por los funcionarios que se sientan lesionados de la siguiente forma:
+a) Recurso de revocatoria a presentar por escrito ante el Auditor en el término de tres días hábiles después de comunicado el asunto. El Auditor lo resolverá por escrito en un término máximo de cinco días.
+b) Recurso de apelación a presentar por escrito ante el Gerente o el Consejo Directivo —según corresponda— en el término de cinco días hábiles después de comunicada la resolución de la revocatoria.
