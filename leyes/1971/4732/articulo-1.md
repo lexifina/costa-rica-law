@@ -1,4 +1,6 @@
+(Derogado)
 N° 4732
+(Esta norma fue derogada por el artículo 29 de la ley N° 5251 del 11 de julio de 1973, “Creación de Comisión Nacional de Asuntos Indígenas (CONAI)”)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 Decreta:
 Artículo 1°- Se autoriza a los Poderes e Instituciones Autónomas y Semiautónomas del Estado, así como las municipalidades de la República, a donar al Instituto de Tierras y Colonización, de acuerdo con sus posibilidades económicas, fondos, bienes de capital, o servicios necesarios para la ejecución del proyecto de dotación de parcelas en propiedad a los pobladores indígenas de: Boruca-Térraba, Salitre-Cabagra y Ujarrás, en el cantón de Buenos Aires de la provincia de Puntarenas y de China-Kichá, en el cantón de Pérez Zeledón, en la provincia de San José.
