@@ -1,0 +1,1 @@
+Artículo 10: Los fondos que se recauden por concepto de venta del Timbre del Colegio de Contadores Privados de Costa Rica se destinarán al financiamiento de los gastos de su emisión y el resto a la educación continuada sobre el cumplimiento de lo dispuesto en el artículo 3 de la Ley No. 1269.

@@ -1,0 +1,1 @@
+Artículo 2: Los caracteres y leyendas del Timbre serán los que acuerde la Junta Directiva del Colegio. Los Timbres se emitirán por valores: dos, diez, veinticinco, cincuenta, cien y trescientos colones.
