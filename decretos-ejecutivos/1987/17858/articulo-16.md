@@ -1,0 +1,1 @@
+Artículo 16.—Las gobernaciones deberán contar con el número de funcionarios que fuere necesario para el buen cumplimiento de sus fines. En ese sentido el Poder Ejecutivo tomará las providencias necesarias para que, en los presupuestos correspondientes, se incluya el personal y equipo necesario.

@@ -1,0 +1,1 @@
+Artículo 9°—Cuando se trate de conceder permisos o autorizaciones de cualquier género, los gobernadores deben actuar con sentido restrictivo satisfaciendo primordialmente el interés público para lo cual deben observar estrictamente la doctrina del artículo 113 de la Ley General de la Administración Pública .

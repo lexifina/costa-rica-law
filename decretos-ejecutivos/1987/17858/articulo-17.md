@@ -1,0 +1,1 @@
+Artículo 17.—Los gobernadores están obligados a conocer y estudiar en detalle los problema'; de su provincia, especialmente los que inciden directa o indirectamente con la seguridad de las personas y las propiedades y con el orden público. Para la atención de los mismos actuarán de oficio o a petición de parte.

@@ -1,0 +1,1 @@
+Artículo 11.—El Consejo de Gobernadores estará presidido por el Ministro de Gobernación y Policía. Nombrará de su seno un secretario. El Presidente y el Secretario tendrán como funciones las señaladas por los artículos 49 y 50 de la Ley General de la Administración Pública respectivamente.

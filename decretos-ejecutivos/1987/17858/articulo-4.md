@@ -1,0 +1,1 @@
+Artículo 4°—En su provincia respectiva son los gobernadores representantes oficiales del Ministro de Gobernación y Policía y órgano de enlace con su Despacho para los asuntos propios de su Ministerio y no asignados a otras dependencias de la Administración.
