@@ -1,4 +1,6 @@
+(Derogado)
 N° 132
+(Esta ley fue derogada por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")
 LA JUNTA FUNDADORA DE LA SEGUNDA REPÚBLICA
 Que es obligación del Gobierno de la República tomar medidas encaminadas a proteger e incrementar la producción agrícola e industrial del país, ayudando de esa forma a solucionar problemas económicos tan serios como el de la desaocupación y la carencia de divisas extranjeras.
 Que uno de los medios más efectivos para la consecución ordenada de tales propósitos es el de facilitar la concesión de créditos a bajo tipo de interés y largo plazo de amortización para su inversión en la compra de implementos, maquinarias y materia prima.
