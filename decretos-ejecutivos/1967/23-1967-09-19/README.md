@@ -14,3 +14,4 @@ Reforma Decreto Referente Linderos de Tierras Otorgadas a Japdeva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1967-10-05 | la propia norma |
+| 2 | 1969-07-08 | Decreto Ejecutivo 19 (1969-07-08) |
