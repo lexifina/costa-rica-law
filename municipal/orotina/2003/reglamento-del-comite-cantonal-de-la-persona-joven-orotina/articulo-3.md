@@ -1,0 +1,1 @@
+Artículo 3º—El representante de la Municipalidad ante el Comité Cantonal de la Persona Joven, fungirá como Presidente del mismo a partir de la constitución de este, y durante el periodo que la Ley establezca. Deberá guardar los mismos requisitos que se establecen en el artículo sexto de este reglamento.

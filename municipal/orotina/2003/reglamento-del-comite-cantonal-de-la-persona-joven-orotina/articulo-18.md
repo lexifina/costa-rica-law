@@ -1,0 +1,1 @@
+Artículo 18.—Por consecuencia de las anteriores causales para perder la calidad de miembro de este Comité, se solicitará a la organización representada por el antiguo miembro que envíe otro (a) persona, cumpliendo con el Capítulo Cuarto y artículo undécimo de éste reglamento.

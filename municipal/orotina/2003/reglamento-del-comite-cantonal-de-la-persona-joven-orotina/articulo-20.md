@@ -1,0 +1,1 @@
+Artículo 20.—El Comité Cantonal sesionará ordinariamente como mínimo una vez al mes, durante los primeros lunes de cada mes, utilizando como sede las instalaciones de la Municipalidad de Orotina. Y sesionará extraordinariamente las veces que considere necesario, en lugar y hora que así se defina por mayoría de los presentes.

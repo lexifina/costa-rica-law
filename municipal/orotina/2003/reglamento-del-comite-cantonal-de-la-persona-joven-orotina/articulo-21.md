@@ -1,0 +1,1 @@
+Artículo 21.—Las sesiones deberán iniciarse dentro de los 15 minutos siguientes a la hora señalada, transcurrido este tiempo se dará inicio a la sesión. Si no están presentes al menos cuatro miembros del Comité Cantonal no se podrá realizar la sesión.

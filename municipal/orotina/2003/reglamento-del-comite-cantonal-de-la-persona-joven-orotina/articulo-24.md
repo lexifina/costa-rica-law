@@ -1,0 +1,1 @@
+Artículo 24.—Es objetivo fundamental de los Comités Cantonales de la Persona Joven, presentar, elaborar y ejecutar proyectos de desarrollo local, y promover propuestas que contribuyan a la construcción de las Políticas Públicas de la Persona Joven, bajo los principios que establece la "Ley General de la Persona Joven".

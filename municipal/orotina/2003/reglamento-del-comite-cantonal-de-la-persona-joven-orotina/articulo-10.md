@@ -1,0 +1,1 @@
+Artículo 10.—Este registro deberá ser actualizado cada año por las Organizaciones Juveniles interesadas. En caso contrario se considerará como no existente y por lo tanto no inscrita.
