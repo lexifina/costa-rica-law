@@ -1,6 +1,0 @@
-Artículo 8°—El Instituto podrá amonestar por escrito, suspender o cancelar la Declaratoria Turística, dependiendo de la gravedad de la falta, luego de realizarse el Procedimiento Administrativo previsto en la Ley General de la Administración Pública, en los casos de incumplimiento de las obligaciones a que hace referencia el artículo anterior y en los siguientes casos:
-a) En caso de incumplimiento o deficiencia en la calidad de los servicios ofrecidos por el programa de una excursión para el exterior o el interior del país.
-b) Cuando incumplan las obligaciones que les impone el Reglamento para el Control y Recaudación del Impuesto sobre el valor de los pasajes internacionales.
-c) Cuando no acaten las recomendaciones del Instituto después de haber sido apercibidas para ello por los medios pertinentes.
-d) Cuando se compruebe insuficiencia o ineptitud del personal para la atención de los usuarios.
-El Instituto determinará por acuerdo de Junta Directiva, el plazo de suspensión, el que en ningún caso será inferior a quince días, pudiendo ampliarse por el término que se estime conveniente para que la Agencia normalice la deficiencia que causó la suspensión. Las sanciones de suspensión y cancelación que se encuentren firmes, podrán ser comunicadas al público por el Instituto, a través de los medios de comunicación.

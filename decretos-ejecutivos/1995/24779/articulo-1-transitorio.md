@@ -1,1 +1,0 @@
-Transitorio.—Las agencias de viajes que a la fecha de entrada en vigencia de la Ley para la Promoción, contaban con el respectivo título-licencia otorgado por el Instituto, se les aplicará en forma automática la Declaratoria Turística prevista en este reglamento, y las disposiciones en él incluidas.

@@ -1,1 +1,0 @@
-Artículo 9°—Para la determinación de la gravedad de la falta, según lo establecido en el artículo anterior, se tomarán en cuenta, la gravedad del daño económico y moral sufrido por el usuario, las repercusiones en la imagen del país, el grado de intencionalidad y la reincidencia del infractor.

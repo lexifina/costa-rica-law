@@ -1,3 +1,0 @@
-CAPITULO III
-De la obtención de la declaratoria turística
-Artículo 4°—Las solicitudes para obtener la Declaratoria Turística de la Agencia de Viajes, se presentarán ante el Departamento Técnico del Instituto, suscrita por el interesado o por el representante legal en caso de personas jurídicas, cuya firma será debidamente autenticada por abogado. Dicha solicitud deberá de indicar en forma detallada las actividades que desarrollará la empresa, así como el lugar específico en donde esta operará, el nombre comercial que utilizará y el plazo en el cual iniciará operaciones, esto último en caso de tratarse de un proyecto.
