@@ -1,0 +1,1 @@
+Art. 4°. -Quedan derogados el artículo 63, Capítulo II, Sección V del Reglamento de Policía de 30 de octubre de 1849, el 51, Capítulo IX del Reglamento del Protomedicato de 27 de abril de 1872 y, las demás disposiciones que se opongan á la presente.
