@@ -12,3 +12,4 @@ Relación de puestos de sueldos para cargos fijos del gobierno central, para el 
 (Modificado respecto la relación de puestos de cargos fijos de la Defensoría de los Habitantes de la República, por el artículo 1 del Decreto Ejecutivo N° 30497 de 06 de junio del 2002)
 (Modificado respecto la relación de puestos de cargos fijos de la Asamblea Legislativa y del Tribunal Supremo de Elecciones, por el artículo 1 del Decreto Ejecutivo N° 30498 de 06 de junio del 2002)
 (Modificado respecto la relación de puestos cargos fijos de la Presidencia de la República y otros, por el artículo 1 del Decreto Ejecutivo N° 30543 de 11 de junio de 2002)
+(Modificado respecto la relación de puestos cargos fijos del Ministerio de Gobernación y Policía, por el artículo 1 del Decreto Ejecutivo N° 30577 de 26 de junio de 2002)
