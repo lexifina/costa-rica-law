@@ -1,0 +1,1 @@
+Transitorio: Las contrataciones que hubiere celebrado PROCOMER de previo a la aprobación del presente reglamento, se continuarán tramitando hasta su ejecución final con base en las disposiciones vigentes al momento de su inicio.

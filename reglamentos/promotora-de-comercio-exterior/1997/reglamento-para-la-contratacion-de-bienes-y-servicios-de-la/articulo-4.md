@@ -1,0 +1,1 @@
+Artículo 4°—Obligación de cumplimiento. PROCOMER está obligada a cumplir con todos los compromisos, adquiridos válidamente, en la contratación administrativa y a prestar colaboración para que el contratista ejecute en forma idónea el objeto pactado.
