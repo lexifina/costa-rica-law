@@ -1,0 +1,1 @@
+Artículo 2°- -Se prohíbe el registro, fabricación, importación, tránsito, almacenamiento, depósito, venta y uso agrícola, veterinario y doméstico de productos que contengan como ingrediente activo el insecticida heptacloro.
