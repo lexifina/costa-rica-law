@@ -1,0 +1,1 @@
+Art. 11. En cuanto á lo que no se arregla por el presente decreto tocante à la Cátedra de Farmacia, se observarán los referidos Estatutos de la Universidad de Santo Tomas.-Dado en la ciudad de San José a los diezisiete dias del mes de enero de mil ochocientos cuarenta y nueve.-José Maria Castro, EI Ministro de relaciones y gobernacion.-Joaquin Bernardo Calvo.
