@@ -1,1 +1,0 @@
-Art. 7- Se cumplirá en punto á capellanías que corresponden á esta Iglesia lo dispuesto en el artículo 3° párrafo 2° Seccion 3 ª. del Decreto de 10 de Diciembre del año pasado; quedando por consiguiente eximido el Cura de las cargas de CapeIlan.-Dado en San José, a veinte de Agosto de mil ochocientos cuarenta.-Braulio CarriIlo.-AI Secretario General del Despacho."
