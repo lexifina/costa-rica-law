@@ -20,6 +20,7 @@ Carnes frescas, refrigeradas o congeladas: |
 -de aves de corral………………………………… | 011-04-00
 -de caballo, aves y animales de caza………….. | 011-09-00
 -desperdicios comestibles de los animales arriba enumerados……………………………… | 011-09-00
+Carne molida a granel de cualqueir clase, que no contenga ningún preservante u otro aditivo. Incluye las tortas de cualquier clase de carne, sin preservantes, condimentos u otros aditivos. (Así adicionada la mercancía anterior por el artículo 1° del dcereto ejecutivo N° 18899 del 23 de febrero de 1989) |
 Calzado escolar, a juicio de la Administración Tributaria............................................................. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 851
 Calzado ortopédico............................................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 851
 Café sin tostar, en cereza, en pergamino, en oro o tostado en grano (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 16729 del 12 de noviembre de 1985) |
