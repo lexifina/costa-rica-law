@@ -1,1 +1,0 @@
-Articulo 29.—DISEÑO. Estas vías. según su ubicación y la magnitud de los flujos peatonales, deben dar la posibilidad de realizar recorridos peatonales a cubierto y contar con el correspondiente mobiliario urbano. Además deben prever las labores de carga y descarga y paso de vehículos de emergencia.

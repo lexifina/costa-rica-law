@@ -1,1 +1,0 @@
-Artículo 3°—VELOCIDAD. Constituirán las vías de más alta velocidad urbana: entre sesenta y ochenta kilómetros por hora, velocidad de diseño que se usará para el cálculo de las características técnicas de la vía. Se caracterizan por un elevado tráfico.

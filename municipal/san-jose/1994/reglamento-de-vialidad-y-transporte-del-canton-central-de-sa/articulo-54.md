@@ -1,1 +1,0 @@
-Artículo 54.—Para ello. la Municipalidad de San José y el MOPT, conforme los dispone el Mapa de Vialidad y Transporte, habilitarán aquellas áreas de dominio público o privado que aparecen reservadas a tal fin.

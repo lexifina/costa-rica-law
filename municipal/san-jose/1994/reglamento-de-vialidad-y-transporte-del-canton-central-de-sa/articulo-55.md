@@ -1,1 +1,0 @@
-Artículo 55.—El tránsito de autobuses será eliminado en el área central de San José. entre las calles: diez y nueve, y las avenidas: siete y ocho, en un radio de aproximadamente cuatrocientos metros con la excepción de posibles rutas regionales diametrales este - oeste y norte - sur.
