@@ -1,0 +1,1 @@
+Artículo 32.-Ningún conductor de la Municipalidad está autorizado para efectuar arreglos extra judiciales en casos de accidentes con vehículos municipales, únicamente debe indicarle al particular que se apersone o se comunique con la Municipalidad, la cual en coordinación con el Departamento Legal de la misma, será la única autorizada para efectuar las gestiones correspondientes.

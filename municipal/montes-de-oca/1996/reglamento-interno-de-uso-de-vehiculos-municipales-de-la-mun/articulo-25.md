@@ -1,0 +1,1 @@
+Artículo 25.-Los vehículos de la Municipalidad deben utilizarse únicamente por personal autorizado y exclusivamente para el desempeño de labores propias de la Corporación. Solamente procederá el transporte de particulares en situaciones especiales o con carácter de emergencia, para lo cual debe existir autorización escrita emitida por funcionario competente.

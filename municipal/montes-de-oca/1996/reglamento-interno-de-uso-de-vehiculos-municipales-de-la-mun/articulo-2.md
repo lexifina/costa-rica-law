@@ -1,0 +1,1 @@
+Artículo 2°-Las disposiciones contenidas en el presente Reglamento son aplicables a todos los funcionarios, que por razón de sus cargos, usen o controlen los recursos de tl"&nsporte de la Municipalidad de Montes de Oca, Ejecutivo Municipal y miembros del Concejo Municipal.

@@ -1,0 +1,5 @@
+Artículo 33.-Si la investigación de la Municipalidad o el fallo de la autoridad competente demuestran culpabilidad del conductor del servicio de la Municipalidad éste:
+a) Deberá pagar los costos no cubiertos por la póliza de Instituto Nacional de Seguros para este tipo de riesgos (deducibles, porcentuales, etc.).
+b) Los otros costos en que incurra la Municipalidad o las indemnizaciones que haga la Municipalidad a terceros afectados, mediante arreglos extra judiciales, cuando el costo del daño sea inferior al monto deducible.
+c) Cuando medie sentencia judicial se ejecutará de inmediato la misma, el funcionario que por cuya negligencia llegare a operarse prescripción de las sanciones disciplinarias, se hará acreedor del despido sin responsabilidad patronal, previa verificación del procedimiento administrativo correspondiente. Será igualmente responsable aquel que permitiere a otra persona conducir un vehículo de la Municipalidad sin causa justificada o sin la debida autorización.
+Lo aquí estipulado será aplicado sin perjuicio de las sanciones disciplinarias a que se haga acreedor el trabajador.

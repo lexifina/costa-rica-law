@@ -1,0 +1,1 @@
+Artículo 39.-La guardia del plantel municipal, llevará los registros que permitan conocer el estado de los vehículos antes y después de cada servicio y todos los datos necesarios para el adecuado control del uso de los mismos, informando a los departamentos correspondientes cualquier anomalía.

@@ -1,0 +1,3 @@
+CAPITULO IV
+De la utilización de los servicios
+Artículo 12.-Una vez concluidas las labores diarias, todos los vehículos municipales, con excepción del de uso discrecional descrito en el artículo 4° de este Reglamento, deben ser guardados en los lugares designados a ese efecto por la Municipalidad, previa revisión del guardia municipal. Las llaves de los vehículos guardados en el Plantel Municipal permanecerán bajo custodia del guardia de tumq, el cual será responsable por los daños ocurridos. Si el conductor ingresa después de la jornada ordinaria de la Institución, el conductor junto con el guarda de turno, suscribirá la fórmula de control de uso.

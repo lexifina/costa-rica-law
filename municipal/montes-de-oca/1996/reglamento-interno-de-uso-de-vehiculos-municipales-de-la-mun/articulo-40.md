@@ -1,0 +1,1 @@
+Artículo 40.-EI guarda del plantel municipal no entregará ningún vehículo en horas no hábiles a funcionarios de la Municipalidad, sin la autorización de la Dirección Ejecutiva o del Ejecutivo Municipal directamente.
