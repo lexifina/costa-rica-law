@@ -1,0 +1,10 @@
+Artículo 79.—Criterios de selección de estudios
+En los documentos de préstamo que se presenten a consideración del Comité Directivo del Fondo, Ministro-Director de OFIPLAN e Instituciones Nacionales Intermediarias debe constar un análisis breve que justifique la realización del estudio con base en criterios de selección pertinentes según se trate de proyectos del Sector Público o Privado.
+Los criterios económicos generales que se utilizarán para seleccionar los estudios de preinversión serán los siguientes:
+a) Que tengan relación con los programas de desarrollo del país en cualquiera de los aspectos nacional o regional;
+b) Que OFIPLAN haya asignado el estudio propuesto una alta prioridad en el caso de proyectos del sector público, y que sea consistente con las metas de planificación global, sectorial y regional, en el caso de proyectos del sector privado;
+c) Que cualquier estudio que se proponga tenga la más alta prioridad en comparación con otros estudios potenciales de carácter similar, sectorial o sub-sectorial, dentro del país o región.
+d) Que para la selección de un estudio general o de un estudio especifico de prefactibilidad exista suficiente evidencia que justifique su realización;
+e) Que para la selección de un estudio completo o parcial de factibilidad existan informes satisfactorios o bien estudios de prefactibilidad u otra evidencia que demuestren su alta prioridad y probable viabilidad, medida en términos de eficiencia económica (estimación preliminar beneficio-costo) o alternativa de menor costo; y
+f) Que para la selección de estudios de diseño finales exista un estudio de factibilidad positivo que arroje una tasa interna de retorno como mínimo del 10%, como también un plan tentativo para el financiamiento del proyecto de inversión.
+Los criterios señalados en los numerales (el), (e) y (f) anteriores pueden ser modificados para estudios o proyectos potenciales de inversión que sean de poca magnitud, a fin de reducir el costo del estudio de preinversión respectivo.

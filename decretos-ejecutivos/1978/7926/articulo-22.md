@@ -1,0 +1,1 @@
+Artículo 22.—La coordinación administrativa de los Grupos de Trabajo estará a cargo del Jefe del Departamento de Preinversión, quien quincenalmente presentará a la Secretaría General un estado de avance de los Grupos de Trabajo, con recomendaciones que permitan una mejor y más rápida ejecución de las labores.

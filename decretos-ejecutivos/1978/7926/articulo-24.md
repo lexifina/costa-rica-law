@@ -1,0 +1,1 @@
+Artículo 24.—Cuando el Grupo de Trabajo conceptúe favorablemente la solicitud y el Secretario General concuerde, el Jefe del Departamento de Preinversión notificará al solicitante para que éste proceda a la selección de consultores para la ejecución de los estudios.

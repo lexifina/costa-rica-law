@@ -1,0 +1,1 @@
+Artículo 70.—El beneficiario recibirá dichas propuestas y hará la calificación de los mismos, determinando su orden de elegibilidad atendiendo únicamente a la propuesta técnica, la cual comunicará al Fondo y si éste no objeta, iniciará las negociaciones con el consultor elegido en primer lugar.

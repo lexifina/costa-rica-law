@@ -1,0 +1,1 @@
+Artículo 46.—Los préstamos deberán ser amortizados en cuotas semestrales iguales, la primera de las cuales se hará efectiva el día hábil siguiente a la fecha ile terminación del período de gracia. En el respectivo Contrato de Préstamo se establecerán las fechas de las amortizaciones.

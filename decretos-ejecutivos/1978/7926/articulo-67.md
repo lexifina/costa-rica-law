@@ -1,0 +1,2 @@
+Artículo 67.—Para el Sector Público, cuando el costo total del estudio por servicios profesionales sea mayor del equivalente de US$ 100,000.00, se utilizará únicamente el procedimiento a) del artículo 66.
+El Sector Privado utilizará el procedimiento b) del artículo 66 para todos los estudios cuyo costo sea mayor del equivalente de ÚS$ 100,000.00; o los procedimientos b) o c) del artículo 66, cuando el costo del estudio sea menor del equivalente de US$ 100,000.00.

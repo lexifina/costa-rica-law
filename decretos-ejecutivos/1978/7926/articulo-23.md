@@ -1,0 +1,1 @@
+Artículo 23.—Integrado el Grupo, el Jefe del Departamento de Preinversión enviará a sus miembros copia de la solicitud de préstamo y del resumen aprobado por la Secretaría General y acordará un calendario de trabajo.

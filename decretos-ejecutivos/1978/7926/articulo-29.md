@@ -1,0 +1,1 @@
+Artículo 29.—Para hacer uso de los fondos que se le han otorgado en préstamo, el beneficiario deberá cumplir todas las condiciones y compromisos establecidos en el respectivo Contrato de Préstamo. Además deberá enviar a la Secretaría General o entidad intermediaria, una solicitud de desembolso de acuerdo a formularios que ésta le suministrará.

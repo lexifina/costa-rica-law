@@ -1,0 +1,1 @@
+Artículo 25.—Determinado el orden de elegibilidad de las firmas consultoras por parte del eventual beneficiario, y con la anuencia de la Secretaría General, el solicitante procederá a negociar las condiciones financieras para la ejecución del estudio.

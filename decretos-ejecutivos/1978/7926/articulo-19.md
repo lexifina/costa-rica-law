@@ -1,0 +1,1 @@
+Artículo 19.—Toda entidad pública o privada, interesada en obtener recursos del Fondo de Preinversión para la preparación de estudios, deberá presentar a la Secretaría General una “Solicitud de Financiamiento de Estudios”, según formulario preparado al efecto.

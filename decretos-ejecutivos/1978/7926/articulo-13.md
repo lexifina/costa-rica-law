@@ -1,0 +1,1 @@
+Artículo 13.—La Secretaría General suministrará al Agente copia de la documentación y correspondencia que éste requiera para el desempeño de sus funciones. El Agente presentará a la Secretaría General dentro de los primeros 15 días de cada trimestre, un informe contable de la situación de la cuenta del Fondo al último día del mes anterior.

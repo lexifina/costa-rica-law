@@ -1,0 +1,4 @@
+Artículo 90.—Los recursos de asistencia no reembolsable otorgados por el Banco sólo podrán destinarse a la realización de estudios básicos y/o específicos de factibilidad en el sector público que, además de los criterios generales de selección aceptables para el Banco, reúnan las siguientes características:
+a) Que sean destinados a la identificación o realización de proyectos de inversión que beneficien a poblaciones de menores ingresos o regiones geográficas económicamente deprimidas; y
+b) Que estén comprendidos en cualquiera de los siguientes sectores: agropecuario, salud, sanidad y educación.
+A estos efectos, el Fondo deberá someter a la consideración del Banco: la prioridad asignada por el Gobierno de Costa Rica a dichos estudios, su descripción y estimación de costo, los términos de referencia y la lista de los consultores que serán invitados a presentar propuestas, así como la justificación para financiar el estudio con recursos no reembolsables.
