@@ -1,0 +1,1 @@
+Artículo 8º—Que una vez entregado el dictamen de la comisión designada, al Concejo Municipal, éste conocerá del mismo, y someterá a discusión primero y aprobación después de dicho informe ante los señores regidores, quienes podrán aprobar o improbar dicho informe por mayoría simple.

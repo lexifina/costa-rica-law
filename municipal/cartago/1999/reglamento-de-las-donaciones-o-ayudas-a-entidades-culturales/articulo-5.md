@@ -1,0 +1,1 @@
+Artículo 5º—Que los personeros de la entidad solicitante de la ayuda, deberán de comprometerse a que los dineros o ayudas solicitadas se utilizarán integra, única y exclusivamente para lo que se solicita, en el caso de que la Municipalidad acuerde otorgarles la ayuda solicitada.

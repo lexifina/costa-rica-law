@@ -1,0 +1,1 @@
+Artículo 4º—Que deberán de indicar en formar clara en qué se irían a invertir los dineros donados por la Municipalidad o en qué se irían a utilizar las ayudas materiales que eventualmente la Municipalidad les llegaré a donar.
