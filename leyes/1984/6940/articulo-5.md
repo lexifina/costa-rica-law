@@ -1,0 +1,1 @@
+Artículo 5º- En anexos que forman parte del presente Acuerdo se registran, para los productos originarios y procedentes del territorio de las Partes, las preferencias arancelarias acordadas, las restricciones no arancelarias que hubieran sido declaradas al momento de la negociación, la vigencia de las concesiones y los demás términos de la negociación.
