@@ -1,0 +1,1 @@
+Artículo 7°.—Se reservan las porciones 10, 11, 18 y mitad occidental de la 20, para edificios públicos del Gobierno o Municipales y para plazas o Jardines públicos. El Poder Ejecutivo podrá además, reservar los lotes que juzgue necesarios para obras de puerto.
