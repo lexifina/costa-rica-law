@@ -1,4 +1,4 @@
-Artículo 2°—Modifíquense los linderos de la Reserva Indígena de Chirripó, establecida por el Decreto N° 5904-G del 14 de marzo de 1976, de tal manera que los nuevos límites sean los indicados a continuación:
+Artículo 2°-Modifíquense los linderos de la Reserva Indígena de Chirripó, establecida por el Decreto N° 5904-G del 14 de marzo de 1976, de tal manera que los nuevos límites sean los indicados a continuación:
 RESERVA INDÍGENA DE CHIRRIPÓ
 La Reserva Indígena de Chirripó, se encuentra en las hojas del Instituto Geográfico Nacional, Barbilla 3545-IV, Río Banano 3545-I, Matama 3544-IV, Chirripó 3545-III, Pejibaye 3445-II y Cuerici 3444-I, escala 1 : 50.000.
 La Reserva se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
@@ -84,4 +84,5 @@ S 05 43 W | 502,49 | 218 000 | 606 300
 S 85 02 E | 4 617,36 | 217 600 | 610 900
 Este último punto, es el inicio de la presente descripción.
 ÁREA DE LA RESERVA 59,037 Ha, 5 138 metros cuadrados.
-Además, la Reserva de Chirripó incluirá, como anexo administrativo, la "Reserva Indígena de Río Peje de Pacuare", su delimitación exacta será efectuada por el ITCO, en coordinación con la CONAI.
+Además, la Reserva de Chirripó incluirá, como anexo administrativo, la Reserva Indígena de Nimari-Bukeri"", su delimitación exacta será efectuada por el ITCO, en coordinación con la CONAI.
+(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 7267 del 9 de agosto de 1976. Anteriormente se indicaba: "Reserva Indígena de Río Peje de Pacuare")
