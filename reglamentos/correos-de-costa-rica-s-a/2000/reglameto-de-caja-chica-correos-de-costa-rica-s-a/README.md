@@ -14,3 +14,4 @@ Reglameto de Caja Chica, Correos de Costa Rica, S.A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-30 | la propia norma |
+| 2 | 2005-02-03 | Reglamento 568 (2005-02-03) |

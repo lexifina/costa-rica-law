@@ -1,5 +1,2 @@
-REGLAMENTOS
-REGLAMENTO DE CAJA CHICA
-CORREOS DE COSTA RICA, S. A.
-Artículo 1º—Disposiciones generales. Por las disposiciones de caja chica se regula todo lo concerniente al uso, funcionamiento y control de fondos que en efectivo ponga en operación Correos de Costa Rica, S. A. para resolver necesidades en la adquisición de bienes y servicios que, por su naturaleza, magnitud y urgencia requieran de un trato excepcional.
-La caja chica es la cantidad de dinero en efectivo asignada para la adquisición de bienes, servicios y pago de gastos de viaje y transporte que resulten necesarios para atender demandas específicas y excepcionales, que no excedan el monto máximo autorizado. Los montos máximos podrán ser variados por la Junta Directiva, previa solicitud expresa de la Gerencia General.
+(Nota: Este Reglamento fue reformado integralmente por acuerdo N° 3019, tomado en sesión ordinaria N° 568 del 03 de febrero del 2005, por lo que su texto corresponde al de dicha reforma integral)
+Artículo 1º—Del concepto. Se entiende por caja chica la suma de dinero autorizada conforme a este Reglamento y asignada al cuidado de un encargado. Los fondos de esta se utilizarán para suplir y atender compras y gastos urgentes, según sea el caso, o en su defecto que por su monto se justifique el pago fuera de los procedimientos establecidos en el Reglamento de Contratación. Las cajas chicas funcionarán bajo el sistema de fondo fijo.

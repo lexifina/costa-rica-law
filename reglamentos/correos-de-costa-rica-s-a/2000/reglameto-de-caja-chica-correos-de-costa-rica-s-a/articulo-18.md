@@ -1,5 +1,1 @@
-Artículo 18º—Nulidad de desembolsos. Serán nulos los desembolsos de dinero en efectivo de caja chica en los siguientes casos:
-a. Cuando se incurra en gastos sin previa autorización.
-b. Adquisición de bienes y servicios por conceptos diferentes de aquellos que fueron autorizados originalmente.
-c. Los realizados en contravención a este reglamento.
-En los casos anteriores el gasto deberá ser asumido por el trabajador que incurrió en dicho gasto.
+Artículo 18.—Del traslado. En caso de ausencia por vacaciones, permisos, enfermedad y renuncia entre otros, el empleado encargado de supervisar la caja chica de su dependencia, deberá elaborar un documento mediante el cual se consigne el traslado del fondo. Dicho documento deberá estar firmado por quien entrega, por quien recibe y por el jefe inmediato, remitiendo copia del mismo al Departamento de Tesorería y al Director o Gerente respectivo.

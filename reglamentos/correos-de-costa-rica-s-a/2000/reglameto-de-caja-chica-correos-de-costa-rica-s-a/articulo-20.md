@@ -1,2 +1,1 @@
-Artículo 20.—Vigencia. El presente Reglamento rige a partir de su publicación en La Gaceta.
-Lic. Germán Serrano Pinto.
+Artículo 20.—Del incumplimiento. Cuando la caja chica no cumpla su cometido, o bien se estén infringiendo las disposiciones contenidas en este Reglamento, podrá ser motivo suficiente para que la Gerencia de Administración y Finanzas recomiende el cierre de la misma y se apliquen las sanciones disciplinarias correspondientes.

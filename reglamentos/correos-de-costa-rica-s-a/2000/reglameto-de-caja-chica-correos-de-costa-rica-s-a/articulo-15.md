@@ -1,1 +1,3 @@
-Artículo 15.—Eficiencia de las cajas chicas. Es responsabilidad del encargado de caja chica mantener un eficiente servicio con apego a las disposiciones del presente reglamento. El trabajador que tenga pendiente una liquidación de un anticipo de dinero, no podrá solicitar otro hasta tanto no liquide el anterior.
+Artículo 15.—De los lineamientos de control. La Gerencia de Administración y Finanzas es responsable de dictar los lineamientos financieros específicos, implantar los controles necesarios y velar por la correcta utilización de las cajas chicas. Dichos lineamientos y controles serán de acatamiento obligatorio.
+La administración de las cajas chicas corresponderá a cada Gerencia, Dirección u oficina, o a quien el encargado delegue, según corresponda; así como mantener un estricto control sobre la procedencia del gasto.
+Es responsabilidad del encargado de caja chica mantener un eficiente servicio en apego a las disposiciones del presente Reglamento.
