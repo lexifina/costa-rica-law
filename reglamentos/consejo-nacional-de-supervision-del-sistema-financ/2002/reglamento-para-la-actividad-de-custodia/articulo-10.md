@@ -1,0 +1,2 @@
+Artículo 10.—Tarifas. Las entidades de custodia establecerán las tarifas aplicables por sus servicios básicos, así como por los servicios complementarios que presten.
+Las tarifas deberán ser informadas de previo a la suscripción del contrato de custodia respectivo y los cambios deberán ser notificados a los depositantes de las cuentas o en su caso a las sociedades administradoras de los fondos de inversión, con la antelación y por los medios que establezca el Superintendente.

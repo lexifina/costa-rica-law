@@ -1,0 +1,1 @@
+Artículo 9º—Contrato de custodia y folleto informativo. Las entidades de custodia deberán suscribir contratos de custodia con los depositantes. Esta obligación podrá cumplirse por medio de la suscripción de contratos específicos de custodia o bien por medio de la inclusión de las cláusulas correspondientes en los contratos generales que la entidad firme con el cliente.

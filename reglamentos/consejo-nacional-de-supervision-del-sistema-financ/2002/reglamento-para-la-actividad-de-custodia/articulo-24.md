@@ -1,0 +1,1 @@
+Artículo 24.—Conservación de la información. Las entidades de custodia conservarán la información de sus registros y respectivos movimientos, así como la documentación probatoria pertinente por un plazo no inferior a cinco años.

@@ -1,0 +1,2 @@
+Artículo 17.—Custodia de valores. La entidad de custodia designada deberá mantener los valores de cada fondo de inversión que custodie en una cuenta independiente de la cual el fondo respectivo será el titular.
+La entidad de custodia deberá conciliar diariamente los registros de su back office con los de la Central de Anotación en Cuenta y dejar evidencia de dichas conciliaciones, de conformidad con lo que establezca el Superintendente General de Valores.
