@@ -1,0 +1,1 @@
+Artículo 5°. -Visada una cuenta por cualquiera de los Contadores, a quienes exclusivamente corresponde hacerlo, si el que hubiese practicado su examen no encontrase reparos que hacerle, informar por escrito al Contador 1° y ‚este le mandar extender su aprobación al fin del libro manual respectivo, sin otro trámite, dando al empleado el pliego de fenecimiento.

@@ -1,0 +1,1 @@
+Artículo 8°.-Las sentencias del Contador 1° son apelables para ante una de las Salas de la Corte Suprema de Justicia, siempre que la sentencia declare responsabilidad en cantidad mayor de diez pesos, siguiendo los trámites establecidos en el fuero común, y sin perjuicio de afianzar como lo previene el artículo 33 del Reglamento de Hacienda de 30 de Julio de 1858.
