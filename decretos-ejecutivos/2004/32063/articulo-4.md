@@ -1,0 +1,1 @@
+Artículo 4º—Los miembros propietarios y suplentes serán nombrados por el Ministro de Salud, de la tema propuesta por cada una de las instituciones o agrupaciones que conforman la Comisión y durarán en sus funciones dos años, pudiendo ser reelectos por períodos iguales y sucesivos.

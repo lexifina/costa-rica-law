@@ -1,0 +1,1 @@
+Artículo 6º—Cuando se produzca la vacante definitiva de un miembro propietario, su puesto pasará a ocuparlo automáticamente el miembro suplente por el resto del período y se designará a un nuevo suplente.
