@@ -1,1 +1,0 @@
-Artículo 2°.—Corresponderá a la Comisión Calificadora del Servicio Exterior, tramitar y resolver las solicitudes de incorporación a la carrera presentada por los funcionarios enumerados en el artículo anterior.

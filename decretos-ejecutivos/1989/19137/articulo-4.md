@@ -1,1 +1,0 @@
-Artículo 4°—La incorporación a la carrera se aplicará exclusivamente a la persona que desempeñe en la sede del Ministerio o en el exterior funciones de naturaleza política, diplomática, consular, jurídica o periodística y que lleve por lo menos seis años ininterrumpidos de relación laboral con el Ministerio al entrar en vigor el presente Reglamento.
