@@ -5,7 +5,7 @@ relativos al otorgamiento, prórrogas, suspensiones, caducidad,
 revocatoria, modificación o cancelación de las concesiones de
 servicio público de transportes, por autobuses o taxis;
 b) Estudiar, tramitar y adjudicar las licitaciones sobre concesiones
-de servicio público, conforme a lo establecido por las leyes y sus
-reglamentos; y
+de servicio público, conforme a lo establecido por las leyes y
+sus reglamentos;
 c) Conocer, tramitar y resolver cualquier otro asunto que le someta
 el Ministro de Obras Públicas y Transportes.
