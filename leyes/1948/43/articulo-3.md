@@ -1,0 +1,1 @@
+3°—El presente decreto deroga las partes conducentes del artículo 6° de la Ley Constitutiva de la Caja Costarricense de Seguro Social, en tanto se opongan á las remociones acordadas y a los nombramientos efectuados; y
