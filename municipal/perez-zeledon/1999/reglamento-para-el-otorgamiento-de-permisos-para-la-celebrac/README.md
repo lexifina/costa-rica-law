@@ -15,3 +15,4 @@ Reglamento para el Otorgamiento de Permisos para la Celebración de Fiestas Cív
 | --- | --- | --- |
 | 1 | 2000-01-11 | la propia norma |
 | 2 | 2002-05-02 | Reglamento municipal 3 (2002-05-02) |
+| 3 | 2002-05-02 | Ley 8 |
