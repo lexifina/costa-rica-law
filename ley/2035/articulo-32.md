@@ -1,1 +1,1 @@
-Artículo 32.- El Gerente y el Subgerente tendrán indistintamente la representación judicial y extrajudicial del Consejo con las facultades que para los apoderados generalísimos determina el Código Civil.
+Artículo 32.- Podrán crearse en el Consejo las divisiones que se consideren convenientes y necesarias, las cuales se establecerán por la Junta Directiva con el voto de no menos de dos tercios de sus miembros, previo estudio técnico-económico-administrativo favorable. Estarán a cargo de directores de división que dependerán de la Gerencia General.

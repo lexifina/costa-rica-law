@@ -1,1 +1,3 @@
-Artículo 44.- Dentro de los primeros seis meses de cada año financiero, el Consejo publicará una memoria anual en la que dará a conocer su situación económica y las operaciones que hubiere efectuado en el curso del año anterior.
+CAPITULO VII
+Inversiones y Operaciones de Crédito Pasivas
+Artículo 44.- El Consejo podrá adquirir hasta el treinta por ciento de los certificados de aportación de asociaciones cooperativas agropecuarias o pesqueras, siempre que se determine que el funcionamiento de ellas pudiere contribuir al éxito de un plan aprobado por el Consejo, previo parecer favorable del Instituto de Fomento Cooperativo.

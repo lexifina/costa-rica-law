@@ -1,3 +1,1 @@
-CAPITULO VII
-Inversiones, Garantías y Operaciones de Crédito Pasivas
-Artículo 45.- El Consejo podrá hacer las inversiones necesarias para cumplir lo establecido en el artículo 5º de esta ley.
+Artículo 45.- La inversión a que se refiere el artículo anterior no podrá ser en cada caso superior al cinco por ciento del capital y reservas del Consejo, ni el total de inversiones de esta clase exceder del veinticinco por ciento de dicho capital y reservas. Para estas inversiones se requerirá el voto favorable de no menos de dos tercios del total de miembros de la Junta Directiva.
