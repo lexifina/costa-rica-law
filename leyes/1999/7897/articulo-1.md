@@ -4,6 +4,8 @@ DECRETA:
 APROBACIàN DEL QUINTO PROTOCOLO ANEXO AL ACUERDO
 GENERAL SOBRE EL COMERCIO DE SERVICIOS DE LA
 ORGANIZACIàN MUNDIAL DEL COMERCIO
+(Ratificado por la República de Costa Rica, mediante Decreto Ejecutivo N° 29075 de
+15 de mayo del 2000)
 ARTÖCULO éNICO.- Apru‚base, en cada una de sus partes, el
 Quinto
 Protocolo Anexo al Acuerdo General sobre el Comercio de Servicios
@@ -332,4 +334,3 @@ el Director General de la Organizaci¢n Mundial del Comercio.
 Director General
 Ginebra"
 Rige a partir de su publicaci¢n.
-
