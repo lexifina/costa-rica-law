@@ -14,3 +14,4 @@ Crea Comisión Ejecutiva de la Estación Experimental Los Diamantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-07-17 | la propia norma |
+| 2 | 1997-09-17 | Decreto Ejecutivo 26376 (1997-09-17) |
