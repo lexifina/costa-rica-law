@@ -1,0 +1,2 @@
+Artículo 2°—El incentivo consistirá en un porcentaje del salario base mensual, el cual será asignado por la Junta Administrativa del Centro Nacional de Prevención contra Drogas (CENADRO) y que se fijará de acuerdo con los siguientes parámetros: el nivel de riesgo, la confidencialidad en la información, la discrecionalidad y el grado de responsabilidad del funcionario.
+El porcentaje que la Junta Administrativa podrá asignar a cada funcionario se calculará dentro de un rango desde un 10% hasta un 45% del salario base mensual.
