@@ -1,0 +1,1 @@
+ARTICULO 2. Las funciones y atribuciones de las Direcciones Provinciales, se ejercerán dentro de los criterios de desconcentración y descentralización, en los grados que fije la ley y los respectivos reglamentos.

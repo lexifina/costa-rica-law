@@ -1,0 +1,1 @@
+ARTICULO 7. Las Direcciones Provinciales y las Direcciones Regionales tendrán como principios orientadores de su actividad, el reconocimiento de la educación como un derecho fundamental de? todo habitante del país, a cuya satisfacción concurren el Estado, la familia y la comunidad, para la consecución de los fines establecidos en el articulo 2 de la Ley Fundamental de Educación.

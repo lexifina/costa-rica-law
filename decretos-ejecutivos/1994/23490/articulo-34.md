@@ -1,0 +1,6 @@
+ARTICULO 34. No obstante lo dispuesto en el presente Reglamento el Ministerio de Educación Pública en sus actividades de investigación y planeamiento utilizará los criterios de regionalización contenidos en el Decreto Ejecutivo No 16068-PLAN de 15 de febrero de 1985 y sus reformas y al Plan Nacional de Desarrollo. Para estos efectos establecerá las relacione necesarias para coordinar la actividad de sus funcionarios.
+TRANSITORIOS
+I. Mientras se provee la planta física requerida para establecer la sede de la Dirección Regional de Educación San José Dos, según se define en el artículo 25 inciso b) de este Reglamento, la circunscripción territorial que abarca se administrará en la siguiente forma:
+a) Los cantones; Desamparados, Aserrí, Alajuelita y Acosta, asi como el Distrito de Rio Azul de la Unión de Cartago, por la Dirección Regional de Educación San José Uno.
+b) Los cantones; Tarrazú, Dota y León Cortés, por la Dirección Regional de Educación de Cartago.
+II. El cantón de Buenos Aires de la provincia de Puntarenas, se adscribe a la Dirección Regional de Educación de Pérez Zeledón, mientras no mejoren los sistemas de comunicación entre ése cantón y la sede de su Dirección Provincial.

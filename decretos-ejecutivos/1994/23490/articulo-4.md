@@ -1,0 +1,1 @@
+ARTICULO 4. Las Direcciones Provinciales y las Direcciones Regionales de Educación velarán por la efectiva participación en la prestación de los servicios educativas, de las autoridades públicas y políticas, las agencias de la comunidad de carácter cívico, de servicio, de desarrollo y todas aquellas organizaciones de padres de familia, de conformidad con las leyes y reglamentos.

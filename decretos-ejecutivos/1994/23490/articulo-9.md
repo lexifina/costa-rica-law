@@ -1,0 +1,2 @@
+ARTICULO 9. Las Direcciones Regionales de Educación para el cumplimiento de sus funciones contarán con los siguientes departamentos; Departamento de Desarrollo Educativo y Departamento de Desarrollo Administrativo, un Consejo de Asesores Supervisores, un Consejo Comunal de Educación y un Consejo Asesor.
+Estarán, a su vez, subdivididas en unidades territoriales menores que se denominarán circuito escalar y agruparán las instituciones educativas en ellos comprendidas.

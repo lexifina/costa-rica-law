@@ -1,0 +1,1 @@
+ARTICULO 20. El Consejo de Asesores Supervisores estará conformado por la totalidad de los Asesores Supervisores de la región. Será presidido por el Director Regional y conocerá de los asuntos que éste someta a su consideración y para deliberar sobre asuntos de interés común en el cumplimiento de sus funciones.

@@ -1,0 +1,1 @@
+ARTICULO 21. El Consejo Comunal de Educación estará integrado en la forma que indique el Reglamento y estará destinado a asegurar la integración del sistema escolar a la comunidad en el plano social y económico de la región.
