@@ -1,0 +1,2 @@
+Articulo 12.— Confección de Facturas. La emisión de facturas de la institución por venta de productos o servicios entrarán al fondo de Caja Auxiliar respectivo.
+El encargado de ésta deberá revisar la correcta aplicación de los precios de venia y de las operaciones aritméticas. En el caso de existir errores aritméticos o de precios, serán cancelados por el encargado de la Caja Auxiliar , y de existir un sobrante será reportado y depositado en la Caja General.

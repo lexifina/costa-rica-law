@@ -1,0 +1,1 @@
+Articulo 5°—Montos de los fondos de dinero. La asignación monto de cada fondo de dinero en efectivo lo establecerá la Dirección Administrativa , de acuerdo con el comportamiento de las transacción recomendación de los encargados de las cajas.

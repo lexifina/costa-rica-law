@@ -1,0 +1,1 @@
+Articulo 14. —Manejo del fondo. El fondo de dinero debe estar bajo la custodia de una sola persona, y en caso de ausencia del Encargado del Fondo, el jefe inmediato deberá asignar a un funcionario para ejercer la suplencia, previo arqueo de esos fondos, con la firma respectiva de los funcionarios involucrados.

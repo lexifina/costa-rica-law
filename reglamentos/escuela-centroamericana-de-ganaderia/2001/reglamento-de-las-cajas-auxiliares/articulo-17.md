@@ -1,0 +1,1 @@
+Articulo 17.—Control de Auditoria. La Auditoria Interna está facultada para efectuar las verificaciones o arqueos sorpresivos totales en cualquiera de los fondos existentes y en el momento que así lo considere.

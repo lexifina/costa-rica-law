@@ -1,0 +1,1 @@
+Articulo 2°—Utilización de los fondos de Cajas Auxiliares. Las Cajas Auxiliares se utilizarán básicamente para disponer de dinero efectivo en los lugares de venta de productos y servicios que ofrece la Escuela , con el único objetivo de disponer de dinero para hacer entrega de los "vueltos de dinero" por este concepto.

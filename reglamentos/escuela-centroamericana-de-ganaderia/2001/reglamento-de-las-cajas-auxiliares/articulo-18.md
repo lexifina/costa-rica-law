@@ -1,0 +1,2 @@
+Articulo 18.—Uso de los formularios. La Unidad de Recursos Financieros emitirá las directrices necesarias para la custodia, uso y control de los formularios que se utilicen en ocasión de las Cajas Auxiliares.
+El Encargado de la Caja Auxiliar debe remitir a la Oficina de Tesorería el dinero recolectado por concepto de la Venta de Bienes y Servicios durante el día, para tal efecto debe utilizar el formulario denominado "Remesa de Dinero".

@@ -1,0 +1,2 @@
+Articulo 10.—Monto para recepción de cheques. El monto máximo de un cheque para el pago de productos lo determinará la Oficina de Tesorería y deberá ir girado a nombre de la Escuela Centroamericana de Ganadería.
+Si se aceptan cheques superiores al monto fijado, será responsabilidad exclusiva del Encargado de la Caja Auxiliar y ante cualquier anomalía deberá reintegrar el respectivo monto de dinero.

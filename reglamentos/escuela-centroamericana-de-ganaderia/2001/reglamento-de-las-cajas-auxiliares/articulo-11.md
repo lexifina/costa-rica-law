@@ -1,0 +1,1 @@
+Artículo 11. —Utilización del fondo. El dinero de los fondos de las Cajas Auxiliares o el producto de la venta o servicios, no deben ser utilizadas para cancelar trámites ordinarios de la Institución.

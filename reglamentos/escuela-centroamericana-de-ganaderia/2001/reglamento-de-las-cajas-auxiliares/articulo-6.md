@@ -1,0 +1,1 @@
+Articulo 6°—Cierre. El cierre de un fondo de dinero en efectivo será responsabilidad exclusiva de la Dirección Administrativa , quien deberá elaborar un informe escrito para la Dirección General debidamente fundamentado con indicación clara de las razones que justifican el cierre.
