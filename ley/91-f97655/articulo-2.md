@@ -1,0 +1,3 @@
+Art. 2. Los Comandantes de los puertos, además de las funciones peculiares que les competen en materias de marina y de aduana, como Capitanes de ellos, reasumir n las de Gobernadores políticos, jueces de policía, jueces de comercio en negocios mercantiles, y Jueces de 1a Instancia en lo civil y criminal.
+Art. 2. Habrá tambien vigías y el numero de prácticos que según la concurrencia de buques sea necesario: para optar a la plaza de practico del número, debe proceder examen por inteligentes sobre las materias propias de su oficio.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°2)

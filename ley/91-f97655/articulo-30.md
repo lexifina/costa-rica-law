@@ -1,0 +1,5 @@
+CAPITULO V.
+Juegos.
+Art. 30.-No se permitir n los juegos de suerte o azar bajo ningún concepto. Los dueños de casa donde se encuentren, sufrir n de cinco a veinticinco pesos de multa, u otros tantos días de trabajos públicos, y cada uno de los concurrentes aun cuando no haya tomado parte en ellos, pagar de tres a doce pesos de multa o ser condenado a tres o doce días de trabajo.
+Art. 30.-Sumariada esta en el día, a uso campaña, sino lo estuviere por el apresador, y calificados los pasajeros forzados inocentes, toda la tripulación criminal voluntaria, será ahorcada, comenzando por su oficiales, con asistencia a la ejecución de las tripulaciones de los demás buques, y de los marinos del puerto. La hora será anunciada con tres cañonazos a intervalos, afianzándose desde el primero, en la plaza y en los buques, los pabellones nacionales respectivos. -La ejecución se hace, colgando a los delincuentes de los penoles del buque.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°30)

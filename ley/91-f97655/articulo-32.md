@@ -1,0 +1,3 @@
+Art. 32.-Las autoridades cuidarán siempre de aumentar la pena a proporcion de la riqueza y rango que los jugadores ocupen en la sociedad, hasta llegar al maximun que el Codigo señala capítulo 4° lib° 3° tit° 3° 2a parte.
+Art. 32.-A los ejecutados, aunque están fuera de la protección del derecho de gentes y de toda ley, se les prestarán los auxilios espirituales, debiéndose ejecutar dentro de tres horas después de calificados, o en la mañana del siguiente día. -Sus cadáveres permanecerán colgados, y al anochecer, se enjaularan sus cabezas y brazos en altas escarpias a la entrada del puerto, sepultándose en desierto los demás restos.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°32)

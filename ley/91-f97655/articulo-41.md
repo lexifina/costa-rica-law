@@ -1,0 +1,3 @@
+Art. 41.-Sin embargo, en la temporada en que se verifican los embarques de cafe, ser permitido salir a cualquiera hora del d¡a o de la noche, con tal que preceda licencia del Jefe del resguardo y que haya presenciado la carga un guarda nombrado por este, quien le dar la correspondiente guja o boleto a la embarcación que saliere.
+Art. 41.-Deberán observar el mayor aseo en el interior de sus habitaciones patios, solares y corredores, y no permitir jamas que se acumulen allí inmundicias que puedan ocasionar putrefaccion, pues deberan depositar en la orilla del estero todas las basuras, conchas y desechos, observando las indicaciones de la autoridad.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°41)

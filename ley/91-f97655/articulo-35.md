@@ -1,0 +1,3 @@
+Art. 35.-Se inventariará también cuanto queda fuera de escotillas, y se tenderán los toldos, custodiándose con la guarnición correspondiente, hasta que con igual formalidad se proceda a la descarga; siendo responsables, el Comandante del puerto y de la guarnición, los Ministros de hacienda y el guarda que debe existir abordo.-El expediente debe seguir su curso, conforme a las leyes.
+Art. 35.-Cualquiera disimulo o negligencia de parte de las autoridades en el cumplimiento de las obligaciones de este capítulo, será castigado con la destitucion del empleo; y producirá acción pública para que cualquiera persona acuse a los funcionarios negligentes o inexactos.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°35)
