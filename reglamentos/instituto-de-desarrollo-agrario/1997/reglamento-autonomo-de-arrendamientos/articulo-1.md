@@ -1,3 +1,5 @@
+(Derogado)
+(NOTA: Esta norma ha sido DEROGADA EN SU TOTALIDAD mediante acuerdo tomado en sesión N° 66 de 23 de setiembre del 2002)
 INSTITUTO DE DESARROLLO AGRARIO
 A fin de que se sirva proceder a su ejecución, me permito comunicarle el acuerdo tomado por la junta directiva en el artículo N° V de la sesión N° 065-97 celebrada el 9 de setiembre de 1997.
 Acuerdo N° 5.—Con fundamento en el artículo 6, párrafo 2; de la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978 y sus reformas y en el inciso g) del artículo 18 de la Ley de Creación del instituto de Desarrollo Agrario N° 6735 del 29 de marzo de 1982, se dicta el presente REGLAMENTO AUTÓNOMO DE ARRENDAMIENTOS que regulara los procedimientos para la adjudicación de los arrendamientos dé tierras en reserva nacional bajo jurisdicción del Instituto.

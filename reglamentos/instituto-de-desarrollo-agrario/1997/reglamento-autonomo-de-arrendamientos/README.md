@@ -14,3 +14,4 @@ Reglamento Autónomo de Arrendamientos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-10-13 | la propia norma |
+| 2 | 2002-09-23 | Reglamento 66 (2002-09-23) |
