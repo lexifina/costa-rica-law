@@ -13,3 +13,4 @@ Regula Exportación de Café previa cancelación de impuestos y otros derechos c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1952-12-05 | la propia norma |
+| 2 | 1955-12-24 | Decreto Ejecutivo 32 (1955-12-24) |
