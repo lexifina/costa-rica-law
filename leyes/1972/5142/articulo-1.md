@@ -56,9 +56,10 @@ Constituirán quórum nueve miembros del Colegio.
 Toda Asamblea debe verificarse, siempre que sea posible, en el edificio del Colegio.
 CAPITULO IV
 De la Junta de Gobierno o Directiva
-Artículo 16.- La Junta de Gobierno o Directiva, se compondrá de un Presidente, un Secretario, un Tesorero y cuatro Vocales.
-Los miembros de la Junta de Gobierno durarán en sus funciones dos años, no pudiendo ser reelectos para períodos sucesivos. Se renovarán anualmente por mitades así: un año el Presidente y dos Vocales; al año siguiente, el Secretario, el Tesorero y los otros dos Vocales. No podrán ser nombrados en la misma Directiva, personas unidas por parentesco de consanguinidad o afinidad hasta el segundo grado inclusive. Caso de resultar un nombramiento en contra de esta prohibición, se tendrá por no hecho el más reciente; y en igualdad de condiciones, en recaído en persona de menor edad.
-La fiscalización de los establecimientos farmacéuticos, la aplicación de las leyes conexas y el cumplimiento de las atribuciones que señala el artículo 21 de esta ley, estarán a cargo de un Fiscal, que deberá ser profesional farmacéutico y será nombrado por la Junta Directiva.
+Artículos 16.- La Junta Directiva estará integrada por un Presidente, un Vicepresidente, un Secretario, un Tesorero y tres vocales. Los miembros de la Junta Directiva durarán en sus funciones dos años, y podrán ser reelegidos hasta por dos períodos sucesivos, en el mismo cargo o en otro distinto. Se renovarán anualmente de la siguiente manera: Un año el Presidente, el Vicepresidente, el Secretario y un vocal; el año siguiente, el Tesorero y dos vocales.
+El Vicepresidente sustituirá al Presidente en sus ausencias temporales. Los vocales sustituirán al Vicepresidente, al Secretario y al Tesorero, en orden de su nombramiento.
+La fiscalización de los establecimientos farmacéuticos, la aplicación de las leyes conexas y el cumplimiento de las atribuciones que señala el artículo 21 de esta ley, estarán a cargo de un fiscal, que deberá ser profesional farmacéutico y que será nombrado por la Junta Directiva.
+(Así reformado el artículo anterior por el artículo 1° de la ley N° 6932 del 18 de noviembre de 1983)
 Artículo 17.- La Junta Directiva celebrará una sesión ordinaria cada dos semanas y todas las extraordinarias que se juzguen necesarias.
 Artículo 18.- El quórum lo constituyen cinco miembros y los acuerdos o resoluciones se tomarán por mayoría de los votos presentes. Las decisiones de la Junta Directiva serán apelables para ante la Junta General, dentro de los cinco días siguientes a su notificación.
 Artículo 19.- Son atribuciones de la Junta Directiva:
