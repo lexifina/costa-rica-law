@@ -1,0 +1,2 @@
+Artículo 2º—Adiciónese al Decreto Ejecutivo Nº 31256-H, publicado en La Gaceta Nº 137 de 17 de julio del 2003, un artículo cuyo texto dirá:
+“Artículo 2º BIS. Las modificaciones futuras del “Diccionario de imputaciones presupuestaria” estarán a cargo de la Dirección General de Presupuesto Nacional del Ministerio de Hacienda, las cuales se publicarán en su página electrónica y se comunicarán vía circular”.
