@@ -1,3 +1,0 @@
-Artículo 17.—Término para reclamos: En caso de que exista disconformidad por parte de algún jugador sobre el pago o no de un premio o sobre el monto respectivo que se haya pagado, se podrá presentar el respectivo reclamo, el cual debe dirigirse al Departamento de Tesorería de la Junta. La fecha límite para su presentación, lo es dentro del término de caducidad de la respectiva quiniela. La Junta atenderá, resolverá y comunicará al interesado su resolución, dentro del plazo de un mes posterior al recibo de la solicitud firmada por el reclamante.
-Se aprueba el presente reglamento según artículo IV), inciso 4) de la sesión Nº 02-2002 del 15 de enero del 2002.
-Este Reglamento rige a partir de la quiniela correspondiente al domingo 10 de febrero del 2002.

@@ -1,1 +1,0 @@
-Artículo 15.—Caducidad: El período de caducidad para el cobro de cualquier premio no acreditado en forma automática, es de sesenta días naturales contados a partir del día en que se registren los resultados de los eventos deportivos incluidos en la quiniela.

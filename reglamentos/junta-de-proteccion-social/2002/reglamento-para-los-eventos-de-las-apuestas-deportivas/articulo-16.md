@@ -1,1 +1,0 @@
-Artículo 16.—Premios prescritos: Los premios disponibles en cada evento deportivo, que se hayan determinado como acertados y que no hayan sido cambiados al finalizar el período de caducidad, se consideran premios prescritos, procediéndose a remitirlos al ICODER, el cual define el fin que daría a los mismos.
