@@ -1,0 +1,2 @@
+Articulo 2—Se adiciona el Reglamento con un nuevo artículo que dirá:
+"Artículo 63.—Establécese como requisito previo, indispensable para operar en los servicios de cabotaje a los que este Reglamento se refiere, la formalización de un Contrato-Concesión en el que se incluirán las condiciones y requisitos del cartel y especificaciones y las demás que para el caso específico considere el Ministerio de su conveniencia."
