@@ -1,0 +1,1 @@
+Artículo 23—La Dirección de Salud Animal para el cumplimiento de sus funciones contará con un (a) Director (a), un (a) Subdirector(a), y los departamentos de: Servicios Zoosanitarios Internacionales, Servicios Zoosanitarios Nacionales, de Control de Insumos Pecuarios, y de Diagnóstico Veterinario.
