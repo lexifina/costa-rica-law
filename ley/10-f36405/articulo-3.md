@@ -1,0 +1,1 @@
+Art. 3°-Cuando un funcionario administrativo se excusare indebidamente, cualquiera de los interesados puede reclamar el procedimiento, y contra la providencia que se dicte podrá hacer uso de los recursos legales. Si el inmediato superior declarare la excusa infundada, el funcionario mal excusado queda responsable á todos los daños y perjuicios.

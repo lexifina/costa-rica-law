@@ -1,0 +1,1 @@
+Art. 2°-Si el funcionario administrativo que se hallare en cualquiera de los casos expresados en el artículo anterior, no se declarare impedido, el interesado podrá pedirle que se excuse; y si á ello no asintiere, de la providencia negativa podrá quejarse ante el inmediato superior.
