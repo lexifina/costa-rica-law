@@ -1,4 +1,4 @@
-Artículo 1º.- Se aumentan los honorarios de abogado que establecen
+ARTÍCULO 1º.- Se aumentan los honorarios de abogado que establecen
 la ley 1128 del 17 de enero de 1950 y los artículos 1040 y 1041 del
 Código de Procedimientos Civiles (Ley 2859 de 14 de noviembre de 1961) en
 los juicios civiles, contencioso administrativos y actos de jurisdicción
