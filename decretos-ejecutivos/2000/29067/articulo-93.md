@@ -1,1 +1,0 @@
-Artículo 93.—Cualquier producto amparado por la denominación agricultura orgánica, podrá ser amparado a su vez por otra denominación de origen internacional, siempre que cumpla con lo establecido en los correspondientes Reglamentos.

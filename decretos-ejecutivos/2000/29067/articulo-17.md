@@ -1,1 +1,0 @@
-Artículo 17.—Queda prohibido cualquier almacenamiento en la unidad productiva, de las materias primas distintas de aquéllas cuya utilización sea compatible con las disposiciones del presente Reglamento.

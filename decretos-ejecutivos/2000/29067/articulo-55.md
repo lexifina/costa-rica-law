@@ -1,1 +1,0 @@
-Artículo 55.—En las etiquetas de los envases, empaques o embalajes, figurarán obligatoriamente de manera destacada, el nombre y sello o logotipo de la agencia certificadora orgánica, y además, los datos que son de carácter general que se determinen en la legislación aplicable.
