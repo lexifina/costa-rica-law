@@ -1,0 +1,1 @@
+Artículo 10.—La utilización de vehículos de uso administrativo, fuera de días y horas laborales, será únicamente en casos en que se amerite desarrollar una función específica de la institución, previa autorización por escrito, del Area operativa, o la Dirección Nacional, para que el Subproceso de Transportes, programe el servicio que se regirá por lo dispuesto en el Artículo 8.

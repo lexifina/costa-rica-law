@@ -1,0 +1,1 @@
+Artículo 24.—El Departamento de Servicios Generales, por medio del Subproceso de Transportes, llevará un registro de combustibles por vehículo, el cual se anotará en el formulario registrado para este fin.

@@ -1,0 +1,3 @@
+Artículo 2°—De acuerdo al artículo Nº 224, de la Ley de Tránsito, Nº 7331 los vehículos oficiales están clasificados en:
+- Vehículos de uso discrecional: no cuentan con las restricciones en cuanto a combustible, horario de operación, ni recorrido, características que asumirá bajo su estricto criterio el funcionario responsable de la unidad. Estos pueden portar placas particulares y no tienen marcas visibles que los distingan como vehículos oficiales y se regirá por la ley de tránsito.
+- Vehículo de uso administrativo: son los destinados a los servicios regulares de transporte, para el desarrollo normal de la Institución y deben estar sometidos a regulaciones especiales y se regirá por lo establecido en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 32.—Cuando el vehículo propiedad del funcionario que esté prestando un servicio y en atención de sus funciones, deba estacionarse en un parqueo público el ICODER podrá sufragar el costo del mismo, correspondiendo al Area Operativa autorizar el respectivo pago una vez que se presente el informe, justificación y la factura timbrada correspondiente.

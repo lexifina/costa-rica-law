@@ -1,0 +1,1 @@
+Artículo 31.—Para el reconocimiento del pago por concepto de kilometraje, el funcionario debe contar antes de su salida con una autorización del Area Operativa y cumplir con los requisitos que ésta le solicite, además de llenar debidamente la fórmula diseñada para este fin. Para el pago de dicho concepto serán utilizadas las tarifas establecidas por la Contraloría.

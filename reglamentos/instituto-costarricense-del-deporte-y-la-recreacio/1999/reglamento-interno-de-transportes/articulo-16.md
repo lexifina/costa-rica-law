@@ -1,0 +1,1 @@
+Artículo 16.—La omisión o alteración de datos en la Boleta de solicitud de transportes, especialmente en las casetillas de kilometraje y combustible por parte del chofer, se considerará como incumplimiento a las obligaciones de trabajo y se comisionará como falta grave, sancionándose de acuerdo al Reglamento Interno de Trabajo.

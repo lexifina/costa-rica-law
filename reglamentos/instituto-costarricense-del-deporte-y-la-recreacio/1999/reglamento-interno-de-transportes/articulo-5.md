@@ -1,0 +1,1 @@
+Artículo 5º—La asignación de los vehículos que sean solicitados para prestar servicios regulares y especiales, será realizada por el Subproceso de Transportes, del Proceso de Servicios Generales, previa autorización de la Jefatura de Area correspondiente y en ausencia de éstas por la Directora Nacional.

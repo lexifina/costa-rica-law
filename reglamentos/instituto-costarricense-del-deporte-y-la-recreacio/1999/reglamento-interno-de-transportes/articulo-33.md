@@ -1,0 +1,1 @@
+Artículo 33.—Cuando un funcionario utilice su vehículo personal para realizar funciones de su cargo, en caso de accidente de tránsito el ICODER no cubrirá los costos en que se incurra por el mismo, protegiendo únicamente al funcionario autorizado a conducir a través de la Póliza de Riesgos del Trabajo.
