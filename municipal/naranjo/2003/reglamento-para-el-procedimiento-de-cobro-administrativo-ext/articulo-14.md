@@ -1,0 +1,1 @@
+Artículo 14.—Es prohibido para los abogados hacer cualquier tipo de arreglo, con el deudor, recibir pagos de abonos a la deuda, los honorarios profesionales los cobrará el ahogado en su oficina, excepto de la condenación de honorarios, donde deberá mediar nota del ahogado de la Municipalidad.
