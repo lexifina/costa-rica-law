@@ -1,0 +1,1 @@
+Artículo 10.—La jornada ordinaria sumada a la extraordinaria podrá ser hasta de doce horas diarias según lo dispuesto por el artículo 140 del Código de Trabajo, por lo tanto el máximo que autorice la Comisión de Recursos Humanos será de cuatro horas diarias, salvo los días libres feriados o asuetos declarados por norma expresa en que se podrá un máximo de doce horas.

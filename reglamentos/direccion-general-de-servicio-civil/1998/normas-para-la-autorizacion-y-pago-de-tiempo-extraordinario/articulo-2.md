@@ -1,0 +1,1 @@
+Artículo 2°—Las instituciones, organismos y dependencias del sector público centralizado deben solicitar a la Comisión de Recursos de Recursos Humanos, autorización para que en ellas se trabaje tiempo ordinario. La jornada extraordinaria no puede prestarse si no se cuenta la citada autorización.

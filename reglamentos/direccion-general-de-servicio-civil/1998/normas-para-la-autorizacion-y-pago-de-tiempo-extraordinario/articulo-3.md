@@ -1,0 +1,1 @@
+Artículo 3°—Corresponde a la Comisión de Recursos Humanos autorizar la jornada extraordinaria en forma previa a la realización de los trabajos, no así el pago de horas ya laboradas. Salvo situaciones muy especiales a juicio de la Comisión se podrá autorizar la jornada posterior a realización de los trabajos, siempre y cuando éstos sean por motivos de fuerza mayor.
