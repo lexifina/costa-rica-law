@@ -1,0 +1,28 @@
+N° 28941-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE HACIENDA Y EDUCACIÓN PÚBLICA
+Considerando:
+1°—Que la Norma de Ejecución del Presupuesto No 17 contemplada en la Sección II del artículo 7° de la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2000, N° 7952 del 7 de diciembre de 1999, publicada en el Alcance N° 106 a La Gaceta N° 252 del 28 de diciembre de 1999, expresa textualmente en lo que interesa: "... El Poder Ejecutivo, a solicitud del Ministerio de Educación Pública y mediante decreto confeccionado por los Ministerios de Hacienda y de Educación Pública, podrá modificar, la relación de puestos de cargos fijos de los centros educativos de los subprogramas presupuestarios: 01-Enseñanza Preescolar, I y II Ciclos, 02-Tercer Ciclo y Educación Diversificada Académica, 03-Tercer Ciclo y Educación Diversificada Técnica, 04-Enseñanza Especial y 05-Educación para Jóvenes y Adultos, todos contenidos en el programa presupuestario 573- Implementación de la Política Educativa, considerando que:
+a) Fluctúe la matrícula de los centros educativos.
+b) Las condiciones de cada centro educativo ameriten ampliar la nómina de personal administrativo, administrativo docente, técnico docente y docente.
+c) Los cambios sean necesarios para dar continuidad a los programas prioritarios de la administración (Informática Educativa, Idioma Extranjero, Escuelas de Excelencia y Mejoramiento de la Educación Secundaria).
+d) Se necesite crear nuevos centros educativos para ampliar la cobertura de la educación en los diferentes niveles de enseñanza.
+e) La ampliación de la cierta educativa de los centros educativo y la emisión de un acuerdo de la Comisión Nacional de Nomenclatura ameriten cambiarles el nombre a las instituciones educativas.
+Para efectuar dichas modificaciones en la relación de puestos de cargos fijos de los centros educativos, será posible trasladar puestos y lecciones entre los centros educativos siempre que:
+i. El número de plazas y lecciones que se aumentan sea igual a las que se rebajan.
+ii. El traslado o cambio de puesto que se efectúe no perjudique los derechos adquiridos por los servidores.
+iii. Las plazas y lecciones se trasladen dentro de un mismo subprograma presupuestario.
+Con el fin de cumplir la ordenado por el inciso e) de esta norma, el cambio de nominación de los centros educativos, se incluirá como un artículo adicional en los decretos ejecutivos que se elaboren en el transcurso del año.
+Para efectos de la emisión de pagos y en garantía del control presupuestario de la relación de puestos de cargos fijos de los centros educativos, el Ministerio de Hacienda por medio de la Dirección General de Informática, aplicar en el Sistema de Pagos la relación de puestos y sus correspondientes modificaciones (decretos ejecutivos). Para ello utilizará la información documental y electrónica que el Departamento de Estudios y Programación Presupuestaria del Ministerio de Educación Pública le suministre para tal efecto.
+Por razones de conveniencia y oportunidad en el pago de los servidores del Ministerio de Educación Pública, se autoriza a la Dirección General de Personal, de dicha institución para que aplique al Sistema de Pagos del Gobierno Central, previo a su publicación en el Diario Oficial La Gaceta, los movimientos de personal derivados de los decretos ejecutivos."
+2°—Que la Norma de Ejecución del Presupuesto N° 6 contemplada en la Sección I de la legislación citada en el considerando anterior, faculta al "... Poder Ejecutivo, para que, mediante de decreto elaborado por el Ministerio de Hacienda realice lo siguiente:
+Traspase, dentro de cae a programa, recursos entre tas subpartidas y cree las subpartidas necesarias dentro del título 124, Servicio de la Deuda Pública.
+Traslade, previa autorización de la Contraloría General de la República, los sobrantes de las partidas de servicios personales y sus correspondientes cargas sociales de los programas presupuestarios y los regímenes de pensiones cargados al presupuesto nacional, al servicio de la deuda pública, a las partidas para pagar pensiones y prestaciones legales con cargo al Gobierno central o al pago por servicios personales en los programas presupuestarios que muestren faltantes. Dicho traslado podrá efectuarse también a la inversa."
+3°—Que el Gobierno de la República, en cumplimiento con el convenio suscrito con las Organizaciones Magisteriales, ha acordado hacer efectivo a los docentes y administrativo docentes, de Educación Preescolar, I y II Ciclos y Educación Especial, que ostenten como mínimo el grado académico de Bachiller Universitario en la especialidad; un incentivo económico por laboraren los centros educativos de esos niveles de enseñanza, ubicados en las zonas (distritos) de menor desarrollo socioeconómico niveles "Bajo" y "Muy Bajo", según lo estipula el decreto ejecutivo número 23893-PLAN.
+4°—Que la Dirección General del Servicio Civil, mediante resolución DG-86-2000, de fecha 28 de agosto del año en curso, regula lo pertinente al reconocimiento de ese incentivo.
+5°—Que se hace necesario incluir en la Relación de Puestos del subprograma 01: Educación Preescolar, I y II Ciclos, del programa 573:
+Implementación de la Política Educativa la coletilla 151, referente al incentivo por laborar en zonas de menor Desarrollo. Por tanto,
+DECRETAN:
+Artículo 1°—Modificase el artículo 2° de la Ley N° 7952 del 7 de diciembre de 1999, en la forma que se indica a continuación:
+REBAJAR
+(Ver en este sentido los programas 573 de Implementación de la Política Educativa, establecidos en la pág. 4 de La Gaceta N° 192 del 6 de octubre del 2000.)

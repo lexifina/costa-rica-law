@@ -1,0 +1,2 @@
+Articulo 3°—Modificase el Anexo N° 2 de la Ley de Presupuesto Ordinario y Extraordinario de la República para el año 2000, N° 7952 del 7 de diciembre de 1999 de conformidad con la Norma de Ejecución Presupuestaria No 17 contenida en el articulo 7° de la citada Ley.
+(Ver en este sentido la Relación de Puestos de Cargos Fijos para el 2000, establecidas en las páginas de 4 a 7 de La Gaceta N° 192 del 6 de octubre del 2000.)
