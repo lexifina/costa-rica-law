@@ -1,1 +1,2 @@
-Artículo 40.- Se impondrá suspensión de uno a seis meses, a quien nombrare o interviniere para que se nombren en cargos técnicos, que deban ser desempeñados por profesionales del Colegio Federado, a personas que no estén debidamente autorizadas para ejercer.
+Artículo 40.—Se impondrá suspensión de uno hasta doce meses, a quien siendo miembro de este Colegio Profesional nombrare o interviniere para que se nombren en cargos técnicos, que deban ser desempeñados por profesionales del Colegio Federado de Ingenieros y de Arquitectos, a personas que no estén debidamente autorizadas para ejercer.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Asamblea N° 03-02/03, realizada el 19 de junio de 2003, acuerdo N° 28, publicado en La Gaceta N° 146 de 31 de julio de 2003.)

@@ -1,0 +1,2 @@
+Artículo 22 bis.—Se podrá ampliar hasta veinticuatro meses, cualquier suspensión estipulada en todos los artículos incluidos en el Código de Ética Profesional si la acción o conducta pone en riesgo la salud, la vida o la integridad física de las personas.
+(Así ADICIONADO por la Asamblea N° 03-02/03, realizada el 19 de junio de 2003, acuerdo N° 34, publicado en La Gaceta N° 146 de 31 de julio de 2003.)

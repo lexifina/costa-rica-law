@@ -14,3 +14,4 @@ Código de Ética Profesional del Colegio Federado de Ingenieros y Arquitectos d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-11-03 | la propia norma |
+| 2 | 2003-06-19 | Reglamento 3 (2003-06-19) |
