@@ -16,14 +16,14 @@ f) Con ponderación del 100% las demás partidas del activo total, más las cuen
 Para efecto del cómputo de los activos riesgosos no se tendrán como parte de los activos totales aquellos que sean deducidos del capital.
 (Así reformado por acuerdo tomado en sesión 320 de 20 de agosto del 2002)
 g) Las inversiones en valores emitidos en el exterior serán ponderados de acuerdo con la siguiente tabla:
-AAA
-Calificación Hasta A BBB BB hasta Inferior a No
-AA B B calificado
-Ponderación 0% 20% 50% 100% 150% 100%
-de riesgo
+Calificación AAA A BBB BB o inferior, y no
+Hasta calificado
+A
+Ponderación
+de Riesgo 0% 20% 50% 100%
 Se aceptarán solamente las calificaciones de riesgo otorgadas por agencias calificadoras de riesgo autorizadas por la Superintendencia General de Valores o las siguientes agencias calificadoras internacionales: Standard & Poors, Moody’s, Fitch IBCA Duff & Phelps o Thompson Financial Bankwatch.
 Para los efectos de la aplicación del inciso 7), del artículo 61 de la "Ley Orgánica del Sistema Bancario Nacional" en los bancos comerciales, se entenderá como valores mobiliarios de primera clase, de absoluta seguridad y liquidez, aquellos valores emitidos en el exterior con una calificación de riesgo de BBB o superior. Los valores emitidos en el exterior con una calificación de riesgo inferior deberán tener una cobertura en estimaciones contables del 100%.
-(Así adicionado por acuerdo tomado en sesión 320 de 20 de agosto del 2002)
+(Así reformado mediante sesión N° 347 de 19 de diciembre de 2002)
 h) Las inversiones en valores provenientes de procesos de titularización aplicarán las siguientes ponderaciones de riesgo:
 AAA
 Calificación Hasta A BBB BB B o inferior o
