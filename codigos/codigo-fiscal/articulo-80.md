@@ -1,1 +1,3 @@
-Art. 80.-En la solicitud de licencia para trasbordo deberá expresarse el número, marca y contenido en general del bulto ó bultos que se intente trasbordar, el nombre del buque de donde deben extraerse y el del en que van á ser trasbordados.
+Artículo 80.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

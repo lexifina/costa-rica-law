@@ -1,1 +1,3 @@
-Art 534.-Nadie podrá adquirir simultáneamente, de la manera establecida en los artículos anteriores, una superficie mayor de cincuenta hectáreas.
+Artículo 534- DEROGADO.
+(Derogado por el artículo 9º de la ley Nº 11 de 22 de octubre de
+1926).

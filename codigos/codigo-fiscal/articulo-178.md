@@ -1,1 +1,3 @@
-Art. 178.-A los porteadores que hubieren sido castigados por conivencia en el cambio de mercaderías en tránsito, se les borrará del libro de matrículas y no les será permitido obtener nueva patente.
+Artículo 178.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

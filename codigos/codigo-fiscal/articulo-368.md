@@ -1,1 +1,3 @@
-Art 368.-Todos los empleados de correos quedan exentos de cargos concejiles y del servicio militar.
+Artículo 368- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

@@ -1,1 +1,3 @@
-Art. 87.-Podrá concederse licencia para carga tenga cuando el buqué bordo mercaderías que deben ser desembarcadas.
+Artículo 87.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art 579- Llevará además cuenta corriente a todos los agentes de ferrocarril, por los tiquetes que entregue, contrastándola diariamente con el estado que le remita el Contador de la división respectiva.
+Artículo 579- Llevará además cuenta corriente a todos los agentes de
+ferrocarril, por los tiquetes que entregue, contrastándola diariamente
+con el estado que le remita el Contador de la división respectiva.

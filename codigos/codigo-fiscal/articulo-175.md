@@ -1,1 +1,3 @@
-ArT 175,-Los porteadores deben conducirisus carros ó acémilas por el lado de. la carretera que quede á su derecha, no detenerse en puntos . donde impidan el paso, caminar siempre delante de sus bueyes para guiarlos, y llevar el chuzo de modo que no moleste ni pueda ofender á los transeuntes.-EI que infrinja cualquiera de las disposiciones de este artículo incurrirá, por cada vez, en multa de un peso, que le exigirán los guardas de la carretera, anotando el, hecho en la guía.
+Artículo 175.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

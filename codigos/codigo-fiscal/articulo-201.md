@@ -1,1 +1,3 @@
-Art. 201.-Trascurridos los términos de que habla el artículo anterior, sin reclamarse contra la liquidación, el Contador Mayor girará por la suma adecuada á favor de la Tesorería Nacional yá cargo de aquel á quien pertenezca la póliza.
+Artículo 201.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

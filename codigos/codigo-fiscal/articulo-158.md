@@ -1,3 +1,5 @@
-CAPÍTULO V
+CAPITULO V
 De los porteadores de mercaderías
-Artículo 158.- Los dueños y consignatarios de mercaderías extranjerasdepositadas en los almacenes de la Aduana de Carrillo ó de la de Puntarenas, tienen derecho a contratar el flete y designar el porteador que debe conducir sus mercaderías á la Aduana de Registro.
+Artículo 158.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

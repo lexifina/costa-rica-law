@@ -1,1 +1,3 @@
-Art.105.-El Gobierno ofrece sus almacenes al comercio en el estado en que se hallaren, y no es responsable de las mercaderías que en ellos se depositen, si no es por negligencia ó culpa de sus empleados.
+Artículo 105.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

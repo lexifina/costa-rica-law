@@ -1,1 +1,2 @@
-Art 335.-De cualquier falta o irregularidad en el servicio, es responsable únicamente el Director General, quien salvará su responsabilidad dando cuenta oportunamente al Secretario de Gobernación, de las causas que hayan motivado las faltas o irregularidades.
+Artículo 335.- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos Nº 7768 de 24 de abril de 1998)

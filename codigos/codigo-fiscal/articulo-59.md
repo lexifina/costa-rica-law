@@ -1,1 +1,3 @@
-Art. 59.-Los manifiestos por mayor deberán escribirse en castellano, y expresarán el nombre y arboladura del buque, su nacionalidad, las toneladas que midiere, e! nombre del capitán, el número de tripulantes que contenga, el puerto de su procedencía, el nombre de su consignatario, la cantidad, marea y número de los bultos de que se componga el cargamento, la clase genérica de las mercaderías contenidas en los bultos, el nombre de los cargadores ó remitentes, el de los consignatarios parciales, la fecha y firma del capitán y el detalle del rancho á bórdo. Estos 'documentos no serán admitidos si estuvieren en' distinta forma de la prevenida en este artículo, ó tuvieron borrones Ó enmendaduras.
+Artículo 59.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,2 @@
-Art 599.-De toda obligación a plazo, en contra o en favor del Tesoro Nacional, se tomará la correspondiente razón en la oficina de la contabilidad de Hacienda, sin cuyo requisito no podrá practicarse operación alguna de cualquiera otra oficina pública. Este requisito es absolutamente indispensable en los efectos de Aduana.
+Artículo 599- DEROGADO.
+(Derogado por la ley Nº 200 de 6 de setiembre de 1945).

@@ -1,1 +1,5 @@
-Art 738- Si el rematario no paga el precio en los tres días, se tendrá por insubsistente el remate; y en este caso y en cualquier otro en que por culpa del rematario no tuviere efecto el remate, perderá éste, a favor del fisco, la décima parte depositada, y se le exigirá por la vía ejecutiva en caso de que no hubiere hecho el depósito.
+Artículo 738- Si el rematario no paga el precio en los tres días, se
+tendrá por insubsistente el remate; y en este caso y en cualquier otro
+en que por culpa del rematario no tuviere efecto el remate, perderá
+éste, a favor del fisco, la décima parte depositada, y se le exigirá por
+la vía ejecutiva en caso de que no hubiere hecho el depósito.

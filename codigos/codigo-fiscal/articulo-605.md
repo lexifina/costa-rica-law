@@ -1,1 +1,2 @@
-Art 605.-A cada una de las agencias del ferrocarril se le llevará una cuenta especial, que servirá de contraste para el efecto de practicar la visación.
+Artículo 605- DEROGADO.
+(Derogado por la ley Nº 200 de 6 de setiembre de 1945).

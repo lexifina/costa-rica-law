@@ -1,1 +1,3 @@
-Art 56.- Las disposiciones relativas á los empleados de la Aduana General de Registro se observarán respecto de los empleados de las otras Aduanas en lo que fueren aplicables.
+Artículo 56.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art. 61.--Los trasportes que condujeren provisiones para las escuadras de las naciones amigas, serán considerados como buques de guerra, y como tales están exceptuados de presentar manifiesto por mayor; si además de la carga de sus' gobiernos, condujeron mercaderias para particulares, deberán presentar el manifiesto de todo su cargarnento.
+Artículo 61.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,6 +1,7 @@
-TÍTULO II
-De la organización de las Aduanas.
+TITULO II
+DE LA ORGANIZACION DE LAS ADUANAS
 CAPITULO I
 Aduana General de Registro
-Art 46.- Habrá una Aduana General de Registro en la capital de la República.
-Las Aduanas de Puntarenas y Carrillo y las demás qué en adelante convenga establecer, serán Aduanas de Tránsito.
+Artículo 46.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

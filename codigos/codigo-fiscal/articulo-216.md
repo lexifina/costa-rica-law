@@ -1,3 +1,3 @@
-Art 216.- Caeran en comiso por excesos, omisiones ó suplantaciones en el despacho y reconocimiento de las mercaderías:
-1. Las mercaderías que se encontrasen en un bulto presentado al registro, y que no estuvieren comprendidas en las facturas originales ni en las declaraciones respectivas.
-2. Las mercaderías que se suplanten en las declaraciones y facturas originales.
+Artículo 216.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

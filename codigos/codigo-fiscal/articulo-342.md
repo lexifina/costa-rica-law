@@ -1,1 +1,2 @@
-Art 342.-La correspondencia oficial no podrá retirarse del correo sin orden escrita del funcionario de quien proceda.
+Artículo 342.- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos Nº 7768 de 24 de abril de 1998)

@@ -1,5 +1,8 @@
-TÍTULO XVI
+TITULO XVI
 TERRENOS BALDIOS Y BOSQUES NACIONALES
 CAPITULO I
 Propiedad de los terrenos baldíos
-Art 508.-Son terrenos baldíos todos los comprendidos en los límites de la República, que no pertenezcan, con título legítimo a los particulares. Los terrenos baldíos, ya estén situados en las islas, ya en tierra firme, pertenecen al Estado.
+Artículo 508- DEROGADO.
+(Derogado por Ley General sobre Terrenos Baldíos y su Reglamento.
+Ley Nº 13 de 10 de enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril
+de 1940).

@@ -1,1 +1,6 @@
-Art 430- Los despachos llevados a una oficina telegráfica, deberán ir firmados por la persona que hace la comunicación; si el que los lleva no es la persona que los firma, y la firma es desconocida, el portador de ellos debe firmar al pie, expresando que los lleva por recomendación del firmante. En caso de que no sepa firmar, el telegrafista respectivo pondrá al pie del despacho constancia de esto.
+Artículo 430- Los despachos llevados a una oficina telegráfica, deberán
+ir firmados por la persona que hace la comunicación; si el que los lleva
+no es la persona que los firma, y la firma es desconocida, el portador
+de ellos debe firmar al pie, expresando que los lleva por recomendación
+del firmante. En caso de que no sepa firmar, el telegrafista respectivo
+pondrá al pie del despacho constancia de esto.

@@ -1,8 +1,17 @@
 CAPITULO II
 Uso de papel sellado
-Art. 240.-Se usará de la primera clase:
-l-En el primer pliego de los testimonios sacados de la matriz de las escrituras públicas, sobre cantidades y obligaciones cuyo valor principal exceda de quince mil pesos.
-2-En las ejecutorias que se libren por los juzgados y tribunales, de sentencias pronunciadas en juicios sobre valor excedente de quince mil pesos.
-3-En las patentes de buques de más de doscientas toneladas de porte.
-4- En los títulos de Doctor en cualquier facultad, expedidos en el país.
-5- En los títulos de General de División de las milicias de la República.
+Artículo 240- Se usará papel de oficio con reintegro de quinientos
+colones (¢ 500,00) en timbres fiscales:
+1) En el primer pliego de todo testimonio de instrumento o documento
+público, inscribible o no en el Registro Nacional, sobre cantidades y
+obligaciones cuyo principal exceda de un millón quinientos mil colones
+(¢ 1.500.000,00); y en el primer pliego del original de los documentos
+privados de contratos sobre esa cuantía.
+2) En el primer pliego de las ejecutorias no inscribibles en el
+Registro Nacional, de sentencias pronunciadas en juicio cuyo valor
+exceda de un millón quinientos mil colones (¢ 1.500.000,00).
+3) En las patentes de buques de más de doscientas toneladas de
+porte.
+4) En los títulos de Doctor de cualquier facultad expedido en el
+país.
+(Así reformado por el artículo 47 de la Ley Nº 6955 de 24 de febrero de 1984).

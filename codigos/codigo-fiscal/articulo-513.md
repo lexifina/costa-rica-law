@@ -1,1 +1,3 @@
-Art 513.-Cuando hubiere oposición, se resolverá previamente, tramitándola conforme a derecho, con audiencia e intervención del representante del fisco.
+Artículo 513- DEROGADO.
+(Derogado por Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

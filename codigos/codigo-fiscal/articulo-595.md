@@ -1,1 +1,2 @@
-Art 595.-Cuando el Tenedor de Libros lo crea conveniente, visitará e inspeccionará las oficinas de contabilidad, especialmente las agencias del ferrocarril, y dará las disposiciones que creyere necesarias para el buen servicio y para la mayor expedición de la contabilidad, dando cuenta oportunamente de todo al Ministro de Hacienda.
+Artículo 595- DEROGADO.
+(Derogado por la ley Nº 200 de 6 de setiembre de 1945).

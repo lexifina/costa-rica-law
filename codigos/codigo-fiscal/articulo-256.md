@@ -1,2 +1,2 @@
-Art 256- Los documentos públicos y actuados, que no estén escritos en el papel sellado correspondiente, son nulos y de ningún valor ni efecto, así en juicio como fuera de él; excepto los testamentos, cuando se hayan otorgado en papel común ó en pliego sellado de menos valor del que debe usarse conforme á la ley; pero al protocolizarse se hará constatar el reintegro del papel sellado correspondiente.
-Pasados cinco días fatales, sin que se haya verificado el reintegro, se pronunciará indefectiblemente la nulidad.
+Artículo 256.- El documento privado, de los gravados por esta ley, que no haya sido escrito en el papel sellado respectivo, no servirá para fundar en él acción alguna, mientras no se reintegre debidamente. Si hubiere sido recibido o admitido en los tribunales u oficinas públicas, seguirá el trámite establecido en el párrafo primero del artículo anterior.
+(Así reformado por Ley Nº 3665 de 10 de enero de 1966).

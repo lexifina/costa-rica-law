@@ -1,3 +1,5 @@
-CAPÍTULO III
+CAPITULO III
 De la correspondencia
-Art 354.-La correspondencia se divide en oficial y privada.
+Artículo 354- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

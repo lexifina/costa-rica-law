@@ -1,1 +1,2 @@
-Art 659.-todo giro que se expida para cancelara o abonar pagos, expresará el número de orden del pagaré, a favor de quien es éste, y las fechas del otorgamiento y vencimiento.
+Artículo 659- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

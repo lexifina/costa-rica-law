@@ -1,1 +1,3 @@
-Art. 188.- No podrá despacharse por partes el contenido de un bulto.
+Artículo 188.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art 547.-Aprobada la remedida del terreno y satisfecho en su caso el valor del exceso, se expedirá título adicional al interesado.
+Artículo 547- DEROGADO.
+(Derogado por la Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

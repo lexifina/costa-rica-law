@@ -1,1 +1,3 @@
-Art. 179.-La certificación á que se refiere él artículo 162 puede suplirse por una certificación de dos comerciantes establecidos en la ciudad puerto donde el porteador se presente á levantar carga, obligándose el porteador á reemplazar dicha certificación con la del Alcalde, para los fletes ó viajes ulteriores.
+Artículo 179.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

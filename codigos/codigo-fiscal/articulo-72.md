@@ -1,1 +1,3 @@
-Art. 72.-Los resguardos apresarán cualesquiera embarcaciones que contravengan a lo dispuesto en el artículo anterior; y tanto éstas como los efectos que contengan serán declarados en comiso por el Administrador de la Aduana, previa la comprobación de ley.
+Artículo 72.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,2 @@
-Art 704 El presupuesto general de lo que habla el artículo anterior, deberá contener todas las separaciones, divisiones y subdivisiones necesarias para que los gastos de cada departamento queden bien demarcados, y detallados los de cada una de las oficinas que lo componen.
+Artículo 704- (NOTA: La ley Nº 199 de 6 de setiembre de 1945 mantuvo
+insubsistente este artículo).

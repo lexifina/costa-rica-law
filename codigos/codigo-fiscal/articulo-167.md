@@ -1,1 +1,3 @@
-Art. 167.-Los porteadores deberán ser despachados por el orden en que hubieren llegado los carros ó acémilas en solicitud de carga.
+Artículo 167.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

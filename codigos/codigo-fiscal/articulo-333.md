@@ -1,4 +1,6 @@
 TÍTULO XI
-CORREOS
+Correos
 CAPÍTULO I
-Art 333.-El servicio postal depende de la Cartera de Gobernación, y estará a cargo de un Director General. El Director General es el jefe del ramo, y como tal, tiene la inspección y administración del servicio en todas sus partes.
+Disposiciones generales
+Artículo 333.- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos Nº 7768 de 24 de abril de 1998)

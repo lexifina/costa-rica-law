@@ -1,1 +1,3 @@
-Art.-197.-El Contador pasará diariamente al Administrador las liquidaciones que hubiere practicado, á efecto de que éste, pravia su rectificación, las pase á la Contaduría Mayor para su visación.
+Artículo 197.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

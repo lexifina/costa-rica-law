@@ -1,3 +1,5 @@
-CAPÍTULO IV
+CAPITULO IV
 Distribución de los valores de las confiscaciones y multas
-Art. 224.-Todo habitante tiene derecho de advertir á utoridad los casos en que por cualquier motivo se intente defraudar los derechos de la Hacienda Pública. Paro todos los empleados, hacer esa advertencia, es una obligación.
+Artículo 224.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

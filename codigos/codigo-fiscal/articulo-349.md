@@ -1,1 +1,3 @@
-Art 349.-Se consideran como impresos y circularán exentos de porte en todo el territorio de la República, los folletos y publicaciones periódicas.
+Artículo 349- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

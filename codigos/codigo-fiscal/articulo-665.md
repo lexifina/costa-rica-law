@@ -1,1 +1,2 @@
-Art 665.-El Tesorero que mande al Cajero pagar una orden sin los requisitos legales, es el único responsable; pero para que el Cajero salve su responsabilidad debe recoger orden escrita del Tesorero.
+Artículo 665- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

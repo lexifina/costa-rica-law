@@ -1,1 +1,3 @@
-Art. 221.-Las compañías ó empresas de carros ó de ferro-carriles serán responsables por las faltas ó abusos que cometieron sus empleados, en el trasporte de mercaderfas despachadas en sus carros.
+Artículo 221.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

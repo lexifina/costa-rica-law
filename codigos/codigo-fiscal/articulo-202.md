@@ -1,1 +1,3 @@
-Art. 202.-Los pedimentos de desalmacenaje, legalmente visados y aprobados, tendrán fuerza de sentencia ejecutoriada y pasada en autoridad de cosa juz- gada, para los intereses del fisco.
+Artículo 202.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

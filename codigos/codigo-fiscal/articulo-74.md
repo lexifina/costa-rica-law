@@ -1,1 +1,3 @@
-Art. 74.-Cuando el buque no atracare a los muelles el Administrador de la Aduana, antes de darse principio á la descarga, mandará situar á bordo un guarda para qne haga constar en un libro desti nado al efecto, la marca, el número de los bultos que cada lancha conduzca á tierra, anotando los bultos que fueren desembarcados en aparente mal estado.
+Artículo 74.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

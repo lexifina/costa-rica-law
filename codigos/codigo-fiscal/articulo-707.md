@@ -1,1 +1,2 @@
-Art 707- Una vez aprobado por el Congreso el presupuesto general de gastos,á él deberá ceñirse estrictamente el Gobierno.
+Artículo 707- (NOTA: La ley Nº 199 de 6 de setiembre de 1945 mantuvo
+insubsistente este artículo).

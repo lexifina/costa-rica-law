@@ -1,1 +1,5 @@
-Art. 284.-Cuando se haga uso de dos ó más estampillas para documentos y libros, no debe quedar ninguna sin cancelación legal. De lo contrario, se reputará el documento ó libro como falto en lo absoluto de estampillas.
+Artículo 284.- Pagarán también la contribución de timbre:
+1º- El tabaco en rama y el tabaco en hebra o picadura, importado del exterior, un céntimo por cada veinticinco gramos;
+2º- Los cigarros-puros extranjeros, un céntimo por cada unidad cuyo peso exceda de cuatro gramos; los demás, medio céntimo por cada cigarro pequeño; y
+3º- Los cigarrillos importados, un céntimo por cada paquete o cajetilla cuyo conjunto de cigarrillos no exceda de diez y seis unidades ni pese más de veinticinco gramos. La fracción excedente en cada paquete se considerará como cajetilla completa, y en todo otro caso el impuesto sobre cigarrillos extranjeros sueltos o en paquetes de más tamaño, se regulará en la proporción indicada.
+El pago del impuesto de timbre que este artículo establece, se hará pegando los sellos por valor de su importe al pedimento de desalmacenaje de la mercadería gravada, la cual no será entregada al dueño o consignatario, mientras el alcaide de la aduana no haya practicado el registro de los bultos y exigido el timbre del pedimento conforme con el número y peso neto de los tabacos.

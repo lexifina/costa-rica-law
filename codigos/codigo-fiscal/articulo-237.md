@@ -1,1 +1,3 @@
-Art. 237.-El jurado comercial, en los negocios que lleguen á su conocimiento, por consulta ó apelación, puede confirmar, revocar, enmendar el fallo del Administrador y lo resuelto en el jurado por mayoría.
+Artículo 237.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

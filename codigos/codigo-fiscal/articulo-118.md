@@ -1,1 +1,3 @@
-Art. 118.-Si trascurrido el término que señala el artículo anterior, los interesados no ocurrieren á sacar de los almacenes de las Aduanas las mercaderías dañadas, se venderán éstas en asta pública.
+Artículo 118.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

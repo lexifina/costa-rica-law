@@ -1,1 +1,3 @@
-Art. 140.-El Alcaide designará el almacén donde deban depositarse los efectos, y los guarda-almacenes recibirán la carga dentro de los almacenes, cuidando de que los porteadores la estiven con separación de marcas que han de quedar del lado visible.
+Artículo 140.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

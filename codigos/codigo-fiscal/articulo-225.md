@@ -1,1 +1,3 @@
-Art. 225.-El que hiciere la advertencia á que se refiere el artículo anterior, se considerará como denunciante y tendrá derecho de percibir la cuarta parte del líquido producto, pagados los derechos que corresponden á la Hacienda Pública, siempre que de dicha advertencia serultare que, conforme á lo dispuesto en esta ordenanza se imponga definitivamente el pago de una multa ó se declare el comiso.
+Artículo 225.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

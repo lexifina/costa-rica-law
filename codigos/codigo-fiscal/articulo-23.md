@@ -1,1 +1,5 @@
-Art 23- Si la consignación fuere hecha a varios individuos de mancomún, deberá suscribirse la renuncia de todos; si estuviesen nombrados en primero, segundo o tercer lugar, la renuncia del último en orden equivale a la de todos los que la anteceden, á no ser que la contradigan en tiempo hábil.
+Artículo 23- Si la consignación fuere hecha a varios individuos de
+mancomún, deberá suscribirse la renuncia de todos; si estuviesen
+nombrados en primero, segundo o tercer lugar, la renuncia del último en
+orden equivale a la de todos los que la anteceden, a no ser que la
+contradigan en tiempo hábil.

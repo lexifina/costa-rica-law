@@ -1,1 +1,2 @@
-Art 336.-Se autoriza al Director General para imponer a sus dependientes de uno a cinco pesos de multa en favor del Tesoro Público, por las faltas que note en el desempeño de las obligaciones que les están encomendadas.
+Artículo 336.- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos Nº 7768 de 24 de abril de 1998)

@@ -1,1 +1,3 @@
-Art 21- Si la falta de presentación en la factura y recibo consular fuere motivada por extravío ó demora del ejemplar del consignatario, habiendo recibido el suyo la Secretaría de Hacienda ó la Aduana respectiva, se procederá. Previa solicitud del consignatario á la Secretaría de Hacienda y la resolución correspondiente, al despacho de las mercaderías, sirviéndose del ejemplar de la aduana ó de una copia certificada de la recibida en el ministerio.
+Artículo 21- DEROGADO.
+( Los artículos 18 a 21 inclusive fueron derogados por ley Nº 48 de
+28 de julio de 1910 ).

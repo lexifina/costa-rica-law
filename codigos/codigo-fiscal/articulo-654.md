@@ -1,1 +1,2 @@
-Art 654.-Es prohibido el pago adelantado de sueldos, o el adelanto por cuenta de éstos, a no ser por orden especial del Presidente de la República, quien solo la dará en casos urgentes. El pago del sueldo de los oficiales militares se hará por quincenas vencidas, y el de tropa por semanas.
+Artículo 654- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

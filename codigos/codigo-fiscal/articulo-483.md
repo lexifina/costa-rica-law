@@ -1,1 +1,1 @@
-Art 483- Las monedas nacionales de oro, de plata y de cobre que se acuñen, serán de curso legal. Sin embargo, a nadie está obligado á recibir más de cien centavos en moneda de cobre, ni más de cien pesos en moneda de plata que no sean las de un peso, cincuenta y veinticinco centavos.
+Artículo 483- (Derogado por el artículo 22 de la Ley Nº 3 del 24 de octubre de 1896).

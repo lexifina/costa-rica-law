@@ -1,1 +1,2 @@
-Art 644.-Llevará también todos los libros auxiliares que sean indispensables para la mayor claridad y contraste de las cuentas.
+Artículo 644- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

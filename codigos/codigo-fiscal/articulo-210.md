@@ -1,1 +1,3 @@
-Art 210.- Después de extraídas las mercaderías de la Aduana, no se admitirá reclamo alguno por causa de avería.
+Artículo 210.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art 531.-Pasados tres años desde la ocupación, sin que se verifique el cultivo, o abandonado éste por un año, caducará el derecho, y vuelve el terreno a ser libremente denunciable.
+Artículo 531- DEROGADO.
+(Derogado por Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

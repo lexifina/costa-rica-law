@@ -1,1 +1,3 @@
-Art 144.-Cuando por ser hora incompetente no pudiere hacerse la descarga en seguida, quedaran los carros cerrados y marchamados, y el Administrador tomará las disposiciones necesarias para la seguridad.
+Artículo 144.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

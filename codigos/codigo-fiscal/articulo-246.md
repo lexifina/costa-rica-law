@@ -1,3 +1,2 @@
-Art. 246.-Se hará uso del papel de la sétima clase:
-1.-En los casos figurados en los números 1 y 2 del artículo 240, cuando la cuantía del negocio exceda de quinientos pesos y no pase de, setecientos cincuenta.
-2? En los casos determinados en el número 2 del artículo 245, cuando el valor del negocio exceda. de la cantidad de mil pesos y no supere la de cinco mil .
+Artículo 246.- Se usará papel de oficio con reintegro de veinte colones (¢ 20,00) en timbre fiscal en los casos previstos por los incisos 1) y 2) del artículo 240, cuando el valor del negocio sea mayor de veinticinco mil colones (¢ 25.000,00) y no exceda de setenta y cinco mil colones (¢ 75.000,00).
+(Así reformado por el artículo 47 de la Ley Nº 6955 de 24 de febrero de 1984).

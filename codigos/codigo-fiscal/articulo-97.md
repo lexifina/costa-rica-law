@@ -1,1 +1,3 @@
-Art 97.-EI permiso para embarcar mercaderías ó frutos en los puertos menores, será concedido por el Administrador de la Aduana del puerto' mayor dé que depende el respectivo puerto menor.
+Artículo 97.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,9 +1,5 @@
-CAPÍTULO II
-Aduanas de tránsito
-Art 54.- Las Aduanas de Puntarenas y Limón tendrán el personal siguiente:
-Un Administrador
-Un Contador
-Un Alcaide
-Dos guarda-almacenes.
-Un Conserje, y
-Tres guarda-playas.
+CAPITULO II
+Aduana de tránsito
+Artículo 54.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

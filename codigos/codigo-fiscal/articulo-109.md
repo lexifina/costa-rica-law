@@ -1,1 +1,3 @@
-Art. 109.- Del producto líquido de las especies rematadas se deducirá la suma que se adeuda al fisco, y el sobrante, si lo hubiere, quedará ú disposición de su dueño en la Tesorería Nacional.
+Artículo 109.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art. 78.-Cuando los guarda-playas advirtíeren que alguno de los bultosdesembarcados ha sidofracturado, darán aviso inmediatamente al Administrador, para que éste, en unión del Contador y á presencia de los interesados practique el registro del bulto fracturado, tomando todas las providencias necesarias para asegurar los intereses de la Hacienda pública y del dueño de las mercaderías.
+Artículo 78.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,2 @@
-Art 340.-De la misma manera se procederá cuando se encuentre algún periódico con notas manuscritas, de carácter personal.
+Artículo 340.- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos Nº 7768 de 24 de abril de 1998)

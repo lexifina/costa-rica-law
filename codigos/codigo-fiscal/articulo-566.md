@@ -1,1 +1,3 @@
-Art 566- Los billetes serán admitidos en todas las oficinas fiscales en pago de cualesquiera sumas y créditos a favor del fisco, y serán cambiados en la Tesorería Nacional, al presentarse con ese objeto.
+Artículo 566- Los billetes serán admitidos en todas las oficinas
+fiscales en pago de cualesquiera sumas y créditos a favor del fisco, y
+serán cambiados en la Tesorería Nacional, al presentarse con ese objeto.

@@ -1,3 +1,3 @@
-Art 530.-No son denunciables los terrenos reducidos a cultivo, y los ocupantes tienen derecho:
-1º.-A que se respete su posesión desde que cierren la porción que pretenden cultivar.
-2º.-A que una vez que hagan un cultivo estable y formal se les adjudique en propiedad el área cultivada.
+Artículo 530- DEROGADO.
+(Derogado por Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

@@ -1,1 +1,4 @@
-Art 370.-Las actuales líneas telegráficas de la República se dividen en cuatro secciones: la primera de Cartago a Puntarenas: la segunda, de Esparta a Liberia: la tercera, de Liberia a la frontera de Nicaragua; y la cuarta, de la capital al Puerto de Limón. Cada sección será provista de las oficinas y empleados que la seguridad y conveniencia pública demanden.
+Artículo 370- Las líneas telegráficas de la República se dividirán en
+tantas secciones como pida el menor servicio y cada sección estará
+provista de las oficinas y empleados que requiera el buen despacho.
+(Así reformado por ley Nº 3 de 26 de octubre de 1929).

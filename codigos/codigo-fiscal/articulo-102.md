@@ -1,1 +1,3 @@
-Art. 102.-Cuando un buque deba completar su cargamento en un puerto menor, el Administrador de la Aduana entregará abierto el registro al guarda encargado de presenciar el embarque, para que lo complete con la anotación de la carga embarcada en el puerto menor.
+Artículo 102.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

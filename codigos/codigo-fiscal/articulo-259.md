@@ -1,1 +1,2 @@
-Art. 259.-Los documentos que se expidan por funcionarios públicos costarricenses residentes en el extranjero, no tendrán fuerza en el país si no llevan unido papel de reintegro, por una cantidad igual al, valor del sellado que hubiera debido emplearse.
+Artículo 259.- DEROGADO.
+(Derogado por Ley Nº 56 de 6 de agosto de 1921).

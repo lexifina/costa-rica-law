@@ -1,1 +1,2 @@
-Art 347.-Las encomiendas que se despachen por correo deben acondicionarse de tal manera que no impida la inspección postal. En caso contrario serán consideradas como cartas.
+Artículo 347.- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos Nº 7768 de 24 de abril de 1998)

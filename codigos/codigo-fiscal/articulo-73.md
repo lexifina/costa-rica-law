@@ -1,1 +1,3 @@
-Art. 73.-Toda embarcaciónque se separe del costado de un buque surto en el puerto, debe irdirectamente ¡í tocar al desembarcadero de la Aduana, para ser allí registrada.· La que no lo verifique, caera en comiso, igualmente que los efectos que conténga; mas si viniere sin carga, no tendrá luzar el comiso y sólo se impondrá al patrón de la embarcación la péna que corresponde, conforme al Reglamento de Marina.
+Artículo 73.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

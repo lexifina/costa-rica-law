@@ -1,1 +1,4 @@
-Art 428- El día en que los telegrafistas hagan su entrega acompañarán las listas que correspondan al tiempo que abraza la entrega, debiendo ir sumada la columna que expresa el valor en las listas de telegramas despachados.
+Artículo 428- El día en que los telegrafistas hagan su entrega
+acompañarán las listas que correspondan al tiempo que abraza la entrega,
+debiendo ir sumada la columna que expresa el valor en las listas de
+telegramas despachados.

@@ -1,1 +1,3 @@
-Art 552.-Los propietarios de terrenos atravesados por ríos, arroyos u otros manantiales, en cuyas vegas se hayan destruido los bosques que les servían de abrigo, están obligados a sembrar árboles en las márgenes de los mismos ríos, arroyos y manantiales, en una extensión que no baje de diez metros de distancia de las expresadas aguas en todo el trayecto de su curso comprendido en la respectiva propiedad.
+Artículo 552.- DEROGADO.
+(Derogado por la Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939)

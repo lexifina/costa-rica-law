@@ -1,1 +1,3 @@
-Art. 211.- En los líquidos introducidos en envases de madera ó hierro, no se hará abono alguno por derrame ó cualquiera otra avería que altere el peso ó grado de los líquidos, al, ser trasladados de una Aduana á otra.
+Artículo 211.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

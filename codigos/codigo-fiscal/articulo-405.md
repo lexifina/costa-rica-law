@@ -1,1 +1,4 @@
-Art 405- No se trasmitirán los telegramas que contengan insultos, palabras obscenas o contrarias a las leyes y buenas costumbres. Los telegrafistas manifestarán al interesado el fundamento de su negativa, y para su resguardo conservarán el original del telegrama.
+Artículo 405- No se trasmitirán los telegramas que contengan insultos,
+palabras obscenas o contrarias a las leyes y buenas costumbres. Los
+telegrafistas manifestarán al interesado el fundamento de su negativa, y
+para su resguardo conservarán el original del telegrama.

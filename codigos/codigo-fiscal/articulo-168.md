@@ -1,1 +1,3 @@
-Art. 168.-Cuidarán los porteadores de que la guía que se les de esté conforme con la carga que se les entregue, porque son responsables de dicha carga como aparece en la guía; y caso de perderla, como aparece en los libros de la Aduana.
+Artículo 168.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,1 @@
-Art 326.-EI Oficial Mayor del Registro custodiará los recibos que expida él Tesorero, en conformidad con el párrafo 4 del artículo 24, y abrirá en sus libros una cuenta por las cantidades de esos recibos.
+Artículo 326.- (Derogado por Decreto Ejecutivo Nº 10 d de 23 de octubre de 1910).

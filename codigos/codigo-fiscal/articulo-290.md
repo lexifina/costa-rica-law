@@ -1,4 +1,5 @@
 TÍTULO VIII
-DEL IMPUESTO DE DESTACE
+Del impuesto de destace
 CAPÍTULO I
-Art 290.-Todo el que mate ganado vacuno, con el fin de abastecer al público, deberá pagar previamente un peso por cabeza.
+Artículo 290.- DEROGADO.
+(Derogado por el artículo 9 de la Ley Nº 5259 de 30 de julio de 1973).

@@ -1,1 +1,3 @@
-Art. 170.-También responde el porteador de las averías que procedan de caso fortuito ó de la naturaleza misma de los efectos que se trasporten si ocurrieren por negligencia ó culpa suya.
+Artículo 170.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

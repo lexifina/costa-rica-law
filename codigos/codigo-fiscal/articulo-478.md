@@ -1,5 +1,5 @@
-TÍTULO XV
+TITULO XV
 De las monedas
-CAPÍTULO I
+CAPITULO I
 De las monedas en general
-Art 478- Sólo la Nación por sí o por contratos con particulares, compañías o gobiernos extranjeros, puede acuñar la moneda nacional.
+Artículo 478- (Derogado por el artículo 22 de la Ley Nº 3 del 24 de octubre de 1896).

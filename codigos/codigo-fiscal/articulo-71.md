@@ -1,1 +1,3 @@
-Art. 71.-Es prohibido el desembarque de cualquiera clase de mercaderías, desde las seis de la tarde hasta las seis de la mañana.
+Artículo 71.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

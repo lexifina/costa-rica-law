@@ -1,6 +1,3 @@
-Artículo 47.- La Aduna General de Registro tendrá un Administrador Director General de Aduanas;
-Un Contador.
-Dos Alcaides
-Un Tenedor de libros.
-Dos guarda-almacenes,
-Y los escribientes y guardas que fueren necesarios.
+Artículo 47.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

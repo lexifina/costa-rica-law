@@ -1,1 +1,2 @@
-Art 747.-Todos los contratos que celebre el Gobierno, sea para la compra de materiales y especies, sea para la construcción de una obra o edificio, deberán ser precedidos de licitación publicada por la Secretaría de Estado correspondiente, en el periódico oficial. La licitación se publicará con quince días lo menos de anticipación al día señalado para cerrar el contrato, y explicará las condiciones en que el Gobierno desea celebrarlo. El Secretario de Estado, o la autoridad o funcionario que éste comisione, será quien reciba las propuestas escritas y firmadas, y quien el día señalado haga la adjudicación del contrato al mejor postor.
+Artículo 747- DEROGADO.
+( Derogado por ley Nº 201 de 6 de setiembre de 1945).

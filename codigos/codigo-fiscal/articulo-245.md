@@ -1,4 +1,2 @@
-Art. 245.-Se usará de la sexta clase:
-1.- En los casos determinados en los números 1 y 2 del artículo 240, cuando el valor del negocio sea mayor de setecientos cincuenta pesos y no exceda de mil.
-2.- En los escritos, pedimentos, pruebas y Sustanciación de negocios civiles contenciosos, ó de jurisdiccion voluntaria, en que la cuantía del negocio sea
-mayor de cinco mil pesos.
+Artículo 245.- Se usará papel de oficio con reintegro de veinticinco colones (¢ 25,00) en timbre fiscal en los casos previstos en los incisos 1) y 2) del artículo 240, cuando el valor del negocio pase de setenta y cinco mil colones (¢ 75.000,00) y no exceda de cien mil colones (¢100.000,00).
+(Así reformado por el artículo 47 de la Ley Nº 6955 de 24 de febrero de 1984).

@@ -1,1 +1,3 @@
-Art 515.-Si no hubiere oposición, o si las hechas se hubieren ya declarado sin lugar, por resolución ejecutoriada, el Juez mandará que se proceda a la medida del terreno.
+Artículo 515- DEROGADO.
+(Derogado por Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

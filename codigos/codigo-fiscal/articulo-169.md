@@ -1,1 +1,3 @@
-Art. 169.-Todas las averías que sobrevengan en las mercaderías durante su trasporte, son de cargo del porteador, salvo que dichas averías proviniesen de caso fortuito, fuerza mayor, ó de la naturaleza vicio propio de los géneros.
+Artículo 169.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

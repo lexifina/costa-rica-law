@@ -1,1 +1,3 @@
-Art. 125.-Los bultos de mercaderías certificadas deberan depositarse en almacén separado, y no podrán despacharse sin que antes se devuelva la cerfificación de depósito.
+Artículo 125.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

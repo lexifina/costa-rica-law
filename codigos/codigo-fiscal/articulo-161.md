@@ -1,1 +1,3 @@
-Art. 161.-El libro y registro general de la matrícula de porteadores se llevará en la Aduana de esta capital y en las de Puntnrenas y Carrillo.
+Artículo 161.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

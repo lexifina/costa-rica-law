@@ -1,1 +1,2 @@
-Art 649.-Los depósitos judiciales y los que se hagan para comprar especies fiscales o estancadas serán recibidas por la Tesorería Nacional, dando constancia al depositante.
+Artículo 649- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

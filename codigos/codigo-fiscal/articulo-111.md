@@ -1,1 +1,3 @@
-Art.111 –Si á los dueños ó consignatarios de las enunciadas especies estancadas no les conviniera pagar el almacenaje ni solicitar renovación del depósito, se entiende que abonan á éste su valor en las referidas especies y que las abandonan en favor del fisco. El Administrador hará la declaratoria con audiencia del interesado, dando en seguida aviso al Director General de Aduanas; para que éste ordene reconocimiento por peritos ó lo que juzgue más conveniente.
+Artículo 111.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

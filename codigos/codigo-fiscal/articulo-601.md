@@ -1,1 +1,2 @@
-Art 601.-La Contabilidad cerrará las operaciones para el público todos los días hábiles, a las dos de la tarde.
+Artículo 601- DEROGADO.
+(Derogado por la ley Nº 200 de 6 de setiembre de 1945).

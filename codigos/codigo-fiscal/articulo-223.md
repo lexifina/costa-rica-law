@@ -1,1 +1,3 @@
-Art. 223.-Las compañías ó empresas de ferro- carriles tendrán su derecho á salvo para reclamar, del causante del contrabando ó defraudación, el resarcimiento de las cantidades que por el delito hubieren satisfecho á la Hacienda Pública.
+Artículo 223.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,5 @@
-Art 739- Pagado el precio en la Tesorería Nacional, el funcionario vendedor mandará entregar al rematario los bienes vendidos y otorgará la correspondiente escritura. Los gastos de escritura y toma de posesión son de cuenta del rematario.
+Artículo 739- Pagado el precio en la Tesorería Nacional, el funcionario
+vendedor mandará entregar al rematario los bienes vendidos y otorgará la
+correspondiente escritura.
+Los gastos de escritura y toma de posesión son de cuenta del
+rematario.

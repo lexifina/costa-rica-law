@@ -1,1 +1,3 @@
-Art. 68.-Los buques mercantes que fondearon en los pnertos de la República por arribada forzosa, podrán permanecer en ellos sólo el tiempo necesario para su reparación ó para proveerse de vituallas, y durante su permanencia en el puerto estarán sujetos á la vigilancia de los empleados de la Aduana y de la Capitanía, pudiendoel Administrador y el Capitán de puerto ordenar al capitán del buque la presentación del manifiesto por mayor, ó mandar guardas que permanezcan a borbo por todo el tiempo que estimen necesario.
+Artículo 68.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

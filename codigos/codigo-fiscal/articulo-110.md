@@ -1,1 +1,3 @@
-Art 110.-Cuando venciere el año de término para el depósito de las mercaderías estancadas, los dueños ó consignatarios están obligados á pedir sin demora nuevo plazo, pagando el derecho impuesto de treinta centavos por cada cincuenta kilogramos.
+Artículo 110.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,6 @@
-Art 680- Los empleados cuyas cuentas se visan, durante esta operación pueden ser llamados por el contador a quien se hayan encomendado, para dar explicaciones, pudiendo también hacer las observaciones que crean justas. Asimismo tendrán el derecho de alegar cuanto fuere conveniente a su derecho, después de contestados los reparos y antes de pronunciarse la sentencia.
+Artículo 680- Los empleados cuyas cuentas se visan, durante esta
+operación pueden ser llamados por el contador a quien se hayan
+encomendado, para dar explicaciones, pudiendo también hacer las
+observaciones que crean justas. Asimismo tendrán el derecho de alegar
+cuanto fuere conveniente a su derecho, después de contestados los
+reparos y antes de pronunciarse la sentencia.

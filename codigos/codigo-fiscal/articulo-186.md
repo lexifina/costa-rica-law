@@ -1,1 +1,3 @@
-Art 186.-El Alcaide, al practicar el registro,' fíjará el aforo que corresponda, asentándolo el Administrador ó el Contador en el pedimento general.
+Artículo 186.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

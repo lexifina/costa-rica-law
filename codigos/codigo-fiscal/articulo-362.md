@@ -1,1 +1,3 @@
-Art 362.-Trascurrido un semestre después de estar en rezago la correspondencia procedente de los países adheridos a la Unión Postal Universal, se devolverá a la Administración de su procedencia.
+Artículo 362- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

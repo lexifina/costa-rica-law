@@ -1,1 +1,3 @@
-Art.104.-Las mercaderías almacenadas seran libres de todo derecho durante los dos primeros meses de depósito; mas pasado este término, los dueñosy consignatarios pagarán treinta centavos por cada cincuenta kilogramos, mensualmente, por el tiempo que allí pennanezcan no debiendo pasar este de un año.
+Artículo 104.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

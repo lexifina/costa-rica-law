@@ -1,1 +1,3 @@
-Art 519.-El agrimensor encargado de la medida determinará las vías del pasaje que fueren necesarias; y respeto de este punto se procederá con arreglo al decreto de 28 de noviembre de 1881.
+Artículo 519- DEROGADO.
+(Derogado por Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

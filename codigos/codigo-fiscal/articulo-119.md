@@ -1,1 +1,3 @@
-Art 119.-Los vinos, licores y comestibles que estuvieren corrompidos ó alterados de tal modo que sean nocivos á la salud, previo reconocimiento de expertos nombrados por el Administrador de la Aduana, serán destruidos derramándolos, quemándolos ó enterrándolos á presencia de los interesados, ó en su defecto, de dos testigos, y haciendo constar esta diligencia en un libro que se llevará al efecto.
+Artículo 119.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

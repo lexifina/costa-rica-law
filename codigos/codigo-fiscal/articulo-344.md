@@ -1,1 +1,2 @@
-Art 344.-Se prohíbe remitir por correo artículos sujetos al impuesto aduanero, o cualquier objeto que pueda causar algún deterioro a la correspondencia.
+Artículo 344.- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos Nº 7768 de 24 de abril de 1998)

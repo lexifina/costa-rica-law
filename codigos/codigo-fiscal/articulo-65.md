@@ -1,1 +1,3 @@
-Art.65.-El Contador de la Aduana del puerto confrontará los dos ejemplares del manifiesto por mayor; y si estuvieren conformes, hará una copia exacta, firmando tanto ésta como los dos ejemplares presentados por el capitán de buque.
+Artículo 65.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,7 +1,22 @@
-TÍTULO II
-DE LOS PROCEDIMIENTOS EN MATERIA CRIMINAL,Y DE LOS
-RESPONSABLES DE DELITOS
+TITULO II
+DE LOS PROCEDIMIENTOS EN MATERIA CRIMINAL,
+Y DE LOS RESPONSABLES DE DELITOS
 DE HACIENDA
-CAPÍTULO ÚNICO
-Art 713.-La sustanciación y fenecimiento de las causas criminales por delitos de Hacienda en toda la República, son de la competencia exclusiva del Juzgado de Hacienda Nacional en juicio escrito, y de la Alcaldía de Hacienda Nacional en juicio verbal.
-En la provincia de Guanacaste y comarcas de Puntarenas y Limón, las funciones del Juez y alcalde de Hacienda Nacional se jercerán respectivamente por los Jueces de 1 instancia y Alcaldes Constitucionales de las capitales de cada una de ellas, en ,los casos en que los primeros no pueden entrar inmediatamente en el conocimiento de la causa.
+CAPITULO UNICO
+Artículo 713- Las trasgresiones por licores, penadas con arresto en sus
+grados primero a tercero, y las demás, por delitos contra la propiedad,
+a que hace referencia el artículo anterior, calificadas como faltas
+según el Código de Policía, serán reputadas como faltas de Hacienda y su
+conocimiento y castigo corresponderán a los agentes judiciales de
+policía en las cabeceras de provincia y a los jefes políticos en los
+cantones menores, con los trámites que el Código de Procedimientos
+Penales determina para el juzgamiento de faltas.
+Los demás hechos punibles serán considerados como delitos de
+Hacienda y su conocimiento corresponderá al Juez Penal de Hacienda,
+excepto los de fabricación clandestina de licor, que lo serán de los
+alcaldes penales de la jurisdicción en que ocurran.
+Al Juez Penal de Hacienda y a los alcaldes penales corresponde
+instruir los sumarios por delitos de Hacienda, excepto en los casos de
+fabricación clandestina de licor, que serán instruidos solamente por los
+alcaldes.
+(Así reformado por ley Nº 3496 de 8 de febrero de 1965).

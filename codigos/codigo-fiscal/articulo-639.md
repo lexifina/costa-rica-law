@@ -1,1 +1,2 @@
-Art 639.-La oficina de la Tesorería Nacional estará abierta al público todos los días hábiles, de lunes a sábado, desde las diez de la mañana hasta las dos de la tarde
+Artículo 639- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

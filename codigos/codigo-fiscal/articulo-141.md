@@ -1,1 +1,3 @@
-Art. 141.-Los guarda-almacenes cuidarán también. de confrontar con las guías la marca, número y peso de cada bulto; y darán inmediato aviso al Administrador de las diferencias que observen en la carga'que reciban.
+Artículo 141.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

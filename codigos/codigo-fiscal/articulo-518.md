@@ -1,1 +1,3 @@
-Art 518.-Cuando el baldío que se hubiere de medir estuviere limitado por terrenos titulados de propiedad particular, se seguirán los linderos de éstos. Si sólo en parte lindare con terrenos titulados, los lados que de nuevo se formen serán rectilíneos, y los ángulos rectos en cuanto fuere posible. Y si el terreno estuviere limitado sólo por baldíos, la figura que se forme será precisamente un cuadrado o paralelogramo, salvo el caso de que se encuentren linderos que por su estabilidad sean preferibles para formar el límite del terreno. A uno y otro lado de caminos y veredas deberá dejarse fuera de medida la zona de doscientos cincuenta metros, la cual se reserva para ser adjudicada conforme al artículo 535.
+Artículo 518- DEROGADO.
+(Derogado por Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

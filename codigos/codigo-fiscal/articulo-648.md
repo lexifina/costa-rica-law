@@ -1,3 +1,2 @@
-CAPÍTULO VI
-Modo de hacer los ingresos
-Art 648.-Los ingresos que deban hacer en la Tesorería los Tesoreros especiales y demás empleados que recauden rentas, lo harán por medio de una orden de entero.
+Artículo 648- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

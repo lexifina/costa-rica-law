@@ -1,1 +1,3 @@
-Art 99.-EI Administrador dará certificación de la partida de registro al capitán del buque, una vezpagados los derechos, para solicitar con ella de la Capitanía del puerto el despacho del buque.
+Artículo 99.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

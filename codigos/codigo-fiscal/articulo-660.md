@@ -1,1 +1,2 @@
-Art 660.-Es prohibido incluir en una misma orden de pago contra el Tesoro Nacional, dos o más cuentas pertenecientes a distintos ramos, sino que para cada cuenta debe expedirse giro separado.
+Artículo 660- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

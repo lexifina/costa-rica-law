@@ -1,1 +1,2 @@
-Art 638.-El Gobierno podrá establecer en las provincias, cuando lo crea conveniente para el servicio público, agencias o sucursales de la Tesorería Nacional.
+Artículo 638- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

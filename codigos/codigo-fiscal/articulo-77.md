@@ -1,1 +1,3 @@
-Art. 77.-Los bultos que fueren desembarcados y no estuvieran comprendidos en el manifiesto por mayor; serán devueltos inmediatamente á costa del Capitán, a bordo del buque de donde proceden.
+Artículo 77.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art 51.- El segundo guarda-almacén lo nombrará el Administrador dentro de la terna que le proponga el primero, por ser ambos solidariamente responsables, y á ninguna hora y en ningún caso pueden los dos ausentarse al mismo tiempo de los almacenes.
+Artículo 51.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

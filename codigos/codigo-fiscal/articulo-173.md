@@ -1,1 +1,3 @@
-Art. 173.-EI porteador que llevare su carro, carros ú acémilas cargados, por otra calle ó camino que no fuere la carretera, que de cualquier modo infrinja las disposiciones de los artículos anteriores, responderá de las averías que sufra la carga; aunque sean por caso fortuito.
+Artículo 173.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

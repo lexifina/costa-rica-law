@@ -1,4 +1,6 @@
-CAPÍTULO II
+CAPITULO II
 Despacho de mercaderías de la Aduana de Limón
-á la Aduana de Carrillo
-Art. 129.- Los bultos de mercadería que vienen destinados para pasar á la Aduana de Carrillo, se remitirán a la Aduana de Limón, sin necesidad de que lo solicite el interesado, y guardando rigurosamente el orden en que hubieren entrado al depósito.
+a la Aduana de Carrillo
+Artículo 129.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

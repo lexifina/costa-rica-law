@@ -1,1 +1,3 @@
-Art 116. No podrá abrirse bulto alguno de mercaderías depositadas en los almacenes de las Aduanas, sino con orden y á presencia del Contador.
+Artículo 116.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

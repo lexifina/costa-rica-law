@@ -1,1 +1,2 @@
-Art 637.-Todo ingreso en la Tesorería Nacional deberá ser hecho por medio de orden de entero, y todo egreso en virtud de orden de pago.
+Artículo 637- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

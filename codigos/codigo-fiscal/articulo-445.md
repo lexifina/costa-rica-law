@@ -1,1 +1,2 @@
-Art 445- EL Gobierno puede introducir el tabaco para proveer a la venta; y también puede contratar con particulares la provisión de esa especie.
+Artículo 445- EL Gobierno puede introducir el tabaco para proveer a la venta; y también puede contratar con particulares la provisión de esa especie.
+(Nota de Sinalevi: Véase el artículo 5° del Decreto Legislativo N° 3 del 12 de agosto de 1886, “Declara abolido el Monopolio del Tabaco y libre el cultivo en toda la República”, el cual ordena derogar en cuanto se opongan a dicho Decreto Legislativo, todas las disposiciones Fiscales sobre Tabaco que contiene el Código Fiscal)

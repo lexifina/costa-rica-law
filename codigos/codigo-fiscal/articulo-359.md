@@ -1,1 +1,3 @@
-Art 359.-Los objetos certificados no se repartirán a domicilio: se avisará al interesado su llegada para que los retire o autorice su retiro por escrito, firmando en ambos casos el recibo del certificado por duplicado. El recibo del título se devolverá a la oficina remitente, la cual lo entregará al certificador, previa devolución de la boleta de depósito.
+Artículo 359- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)
