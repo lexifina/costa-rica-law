@@ -1,0 +1,1 @@
+Artículo 2°-.La Oficina de Presupuesto incluirá en los presupuestos anuales del Departamento de Educación Pública, las sumas necesarias para pagar el profesorado de la Institución que la presente crea.

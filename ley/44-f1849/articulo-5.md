@@ -1,0 +1,1 @@
+Artículo 5°-Los propietarios, concesionarios o rematarios de las agencias que expendan los licores y demás productos que se gravan por esta ley, quedan autorizados para aumentar en igual suma – diez céntimos de colón-, su precio.
