@@ -936,4 +936,3 @@ AID de Desarrollo de la infraestructura de la Zona Norte (AID Proyecto
 del Préstamo AID Nº 515-T-041, 20 nuevos proyectos, como mínimo, serán
 completados en los cantones de Guatuso, Upala, y el Distrito de Santa
 Cecilia en el Cantón de La Cruz. Además como mínimo, 40 nuevos proyectos
-de desarrollo comunitario ser
