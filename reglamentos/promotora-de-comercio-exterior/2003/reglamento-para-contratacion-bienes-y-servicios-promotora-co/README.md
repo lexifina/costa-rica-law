@@ -14,3 +14,4 @@ Reglamento para Contratación Bienes y Servicios Promotora Comercio Exterior.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-18 | la propia norma |
+| 2 | 2004-06-02 | Reglamento 132 (2004-06-02) |
