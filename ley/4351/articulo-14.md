@@ -14,3 +14,4 @@ h) Diez representantes del sector profesional.
 i) Diez representantes del sector de trabajadores independientes.
 Los miembros de la Asamblea durarán en sus cargos cuatro años. Podrán ser reelegidos por otro período.
 (Así reformado por el artículo 1° de la ley N° 7031 del 14 de abril de 1986)
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 1267 del 15 de marzo de 1996, se ordenó anular las frases: ndicalizados y un representante de las Asociaciones Integrales de Desarrolo de la Comunidad._ y _...los Sindicatos y las Asociaciones de Desarrollo Integral de la Región._ del segundo párrafo del numeral 14, de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, No. 4351 del 11 de julio de 1969, al no existir dichas frases no se realizó la anulación.)
