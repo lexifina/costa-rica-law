@@ -1,0 +1,4 @@
+Artículo 6º—Si el promotor aportare datos falsos a los clientes o al Banco, o realizare otros actos que causen perjuicio económico o puedan dañar la imagen del Banco, será desinscrito del Registro de Promotores de Venta de Bienes, sin perjuicio de la responsabilidad civil o penal en la que pueda incurrir.
+Con el fin de evitar lo anterior, toda certificación que el Registro de Promotores de Venta de Bienes emita, advertirá que la inscripción en el mismo no faculta al registrado a recibir dineros o cualquier bien en nombre del Banco Popular, ni a comprometer al Banco Popular mediante acto alguno, pues solamente lo faculta para lo indicado en éste Reglamento.
+Rige a partir de su publicación.
+San José, 13 de mayo del 2002.—Proceso Contratación Administrativa.—Lic. Giovanni Méndez Carmona, Coordinador.
