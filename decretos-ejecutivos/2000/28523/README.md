@@ -14,3 +14,4 @@ Ratifica Protocolo Centroamericano Protección Propiedad Industrial ( Marcas Nom
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-20 | la propia norma |
+| 2 | 2000-03-20 | Ley 7 |
