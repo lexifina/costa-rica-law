@@ -1,0 +1,1 @@
+Artículo 8.-Los plazos de los préstamos se fijarán en concordancia con la fuente de recursos que se esté utilizando, el tipo de inversión que se vaya a realizar con los recursos y las políticas que periódicamente fije la Junta Directiva General sobre el particular.

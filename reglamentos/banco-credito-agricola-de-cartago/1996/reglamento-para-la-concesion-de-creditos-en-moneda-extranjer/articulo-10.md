@@ -1,0 +1,1 @@
+Artículo 10.-En el financiamiento en dólares, toda hipoteca de bienes inmuebles, certificados de prenda, letras, pagarés y cualquier otro documento comercial que se reciban en garantía, deberán consignarse en dólares.

@@ -1,0 +1,4 @@
+Artículo 7°-Los documentos de formalización del crédito deberán consignarse en dólares, en donde se especificará las condiciones generales de este tipo de financiamiento y demás condiciones de aprobación.
+Una de las cláusulas de compromiso por parte del cliente, será la de atender en la misma moneda el servicio de la deuda, incluyendo intereses corrientes y moratorios, costos legales y procesales, que eventualmente se den en caso de ejecución.
+Se exceptúa del pago de la deuda en dólares, cuando la ley expresamente faculte al deudor a pagar en colones al tipo de cambio vigente y verdadero al momento de pago.
+Con el fin de asegurar la uniformidad y corrección de los documentos que se deban elaborar, la Sección Legal del Banco proveerá modelos de los tipos de documentos comunes y especiales, a los cuales deberán sujetarse las diferentes oficinas de formalización.
