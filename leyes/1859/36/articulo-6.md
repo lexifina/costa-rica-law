@@ -1,0 +1,1 @@
+Art. 6. Si por exigirlo así la enfermedad, o por llamamiento de parte del enfermo, tuviese que hacer el Médico varias visitas en el mismo día, se le pagará por la primera y segunda ocho reales y medio por cada una, y cuatro reales por cada una de las demás que hiciere en el día.

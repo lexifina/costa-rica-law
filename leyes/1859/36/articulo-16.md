@@ -1,0 +1,1 @@
+Art 16. Los empíricos autorizados ganarán, tanto por cada visita, como por las declaraciones, reconocimientos y cualesquiera otras operaciones que esté contenida entre los límites de su autorización, cuatro reales.

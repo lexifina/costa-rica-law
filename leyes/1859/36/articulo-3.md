@@ -1,0 +1,1 @@
+Art- 3. La misma cantidad será satisfecha por los reconocimientos y declaraciones, advirtiendo que, si tuviesen que salir fuera de poblado, la retribución será proporcional a la distancia donde tuvieren que ir.

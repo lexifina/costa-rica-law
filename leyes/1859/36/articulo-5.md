@@ -1,0 +1,1 @@
+Art. 5. El Médico ganará por cada visita que hiciere a un enfermo dentro de poblado, y de día, ocho reales y medio. Si en la misma casa hubiesen dos o más enfermos que tenga que visitar el Médico, cobrará entonces, además de los ocho reales y me, dio, cuantió reales por cada uno de los otros.
