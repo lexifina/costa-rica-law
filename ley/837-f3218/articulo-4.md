@@ -1,8 +1,5 @@
 CAPITULO II
 De las exenciones
-Artículo 4°-N o pagarán el impuesto:
-a)(Derogado por el artículo 2° de la ley N° 1135 del 14 de febrero de 1950);
-b) Las sociedades o instituciones que tengan por fin la beneficencia pública o la difusión de la cultura, siempre que el Poder Ejecutivo las reconozca como tales para los efectos de esta exención;
-c) Los representantes diplomáticos y consulares de naciones extranjeras, respecto de sus rentas oficiales u otras procedentes del país que los acredita;
-d) Las rentas de bonos que gocen de esta exención por disposición especial de la ley que autoriza su emisión; y
-e) Las Cámaras de Comercio, Agricultura e Industrias y los sindicatos debidamente registrados conforme a las disposiciones del Código de Trabajo.
+Artículo 4°-Sin embargo, cuando los porcentajes que quedan indicados, produzcan en conjunto una suma anual mayor de un millón de colones, el excedente sobre esa suma pasará a formar parte de las rentas nacionales y la Caja Costarricense de Seguro Social sólo tendrá derecho a reclamar el millón de colones indicado. La liquidación se hará anualmente.
+En cumplimiento de esta disposición el Presupuesto General de la Nacional incluirá a partir de 1953, una subvención fija para la Caja Costarricense del Seguro Social, Departamento de la Habitación, de un millón de colones (¢1.000,000.00).
+(Así reformado por el artículo 2° de la ley N° 1444 del 29 de mayo de 1952)
