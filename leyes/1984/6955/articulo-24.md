@@ -1,4 +1,1 @@
-Artículo 24.- Las instituciones y empresas públicas podrán jubilar a
-sus funcionarios cubiertos por el Régimen de Pensiones de la Caja
-Costarricense de Seguro Social, que tengan sesenta y cinco años de edad y
-que hayan cubierto las cuotas reglamentarias para pensionarse.
+Artículo 24.- (Anulado por Resolución de la Sala Constitucional Nº1146-90 del 21 de setiembre de 1990 y posteriormente derogado por el artículo 71 de la Ley Integral para la Persona Adulta Mayor, N° 7935 de 25 de octubre de 1999).

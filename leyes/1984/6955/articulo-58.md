@@ -1,4 +1,4 @@
-Artículo 58.- El personal nombrado para la vigilancia y
+ARTICULO 58.- El personal nombrado para la vigilancia y
 mantenimiento del orden público desempeñará, exclusivamente, las
 funciones propias de su cargo. A partir de la vigencia de la presente
 ley, los códigos presupuestarios de plazas para el servicio de la

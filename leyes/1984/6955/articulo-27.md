@@ -1,6 +1,2 @@
-Artículo 27.- Los funcionarios que se acojan a los beneficios del
-artículo 25, no podrán ocupar puesto alguno en ministerios, instituciones
-públicas o empresas donde el Estado tenga alguna participación de capital
-social, si no es cinco años después, contados a partir de la fecha de su
-renuncia. La Autoridad presupuestaria reglamentará los procedimientos
-para controlar lo que aquí se establece.
+Artículo 27.- Los funcionarios que se acojan a los beneficios establecidos en el artículo 25 de esta ley no podrán ocupar puesto alguno en la Administración Pública, centralizada o descentralizada, ni en las empresas públicas, sino después de siete (7) años contados a partir de la fecha de su renuncia. La Autoridad Presupuestaria reglamentará los procedimientos para controlar que se cumpla con esta disposición.
+(Así reformado por el artículo 1 de la ley No.7560 del 9 de noviembre de 1995)
