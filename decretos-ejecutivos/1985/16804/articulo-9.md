@@ -5,4 +5,5 @@ c) En la.Zona 3:
 c.1) Los 290 permisionarios de pesca con trasmallo, a la fecha de publicación del presente Decreto, se les autoriza la utilización del trasmallo con malla mínima de 8,90 cm.
 c.2) Los nuevos permisos que otorgue el Ministerio de Agricultura y Ganadería en esta zona, deberán utilizar trasmallo con malla mínima de 15,24 cm.
 d) Se declara veda durante los meses de mayo, junio y julio, para la utilización de trasmallo en las zonas 1 y 3 de la parte interior del Golfo de Nicoya.
+(Mediante el artículo 1° del decreto ejecutivo N° 16996 del 18 de abril de 1986, se suspende para el año 1986 la veda a que se refiere el inciso anterior)
 El Ministerio de Agricultura y Ganadería no podrá autorizar la sustitución de trasmallo con mallas menores a las autorizadas en la respectiva licencia.

@@ -13,3 +13,4 @@ Disposiciones Generales relativas a la Pesca Artesanal en Pequeña Escala
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-12-16 | la propia norma |
+| 2 | 1986-04-18 | Decreto Ejecutivo 16996 (1986-04-18) |
