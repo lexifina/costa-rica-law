@@ -1,0 +1,1 @@
+Art. 4. El presente decreto se imprimirà, circulará y publicarà para su cumplimiento. –Dado en la ciudad de San José, à primera del mes de julio de mil ochocientos cuarenta y seis, -José Maria Alfaro.--Al Ministro de relaciones y gobernacion."

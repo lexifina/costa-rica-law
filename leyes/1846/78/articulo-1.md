@@ -1,0 +1,5 @@
+DECRETO LXXVIII
+Manda que se acrediten dos comisionados de este Gobierno cerca del de Nicaragua para arreglar varios objetos de interes común.
+“El Jefe Supremo Provisorio del Estado libre de Costa Rica.
+Teniendo en consideracion: 1° que es de la mayor importancia para el Estado conferenciar y acordar con el de Nicaragua nuestro hermano y vecino; varios puntos de interés pùblico que dén por resaltado la mejor armonía, amistad é inteligencia entre los dos pueblos y Gobiernos: 2° que tan grande objeto no podrá obtenerse sinò es por medio del envio de una legacion cerca del Gobierno de dicho Estado de Nicaragua; y 3° que la conveniencia pública demanda que todo tenga efecto á la mayor brevedad posible, con dictamen de la Cámara de Senadores, decreta.
+Art. 1° El Gobierno de Costa Rica en uso de sus facultades acreditará cerca del de el Estado de Nicaragua dos comisionados que de mancomun é in sólidum promuevan, ajusten y arreglen con el último un convenio sobre los objetos á que se refieran las instrucciones que por separado se les dén.
