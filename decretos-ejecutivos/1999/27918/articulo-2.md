@@ -1,0 +1,1 @@
+Artículo 2°—Los funcionarios autorizados podrán realizar todas aquellas acciones necesarias para garantizar al usuario final la veracidad de la calidad declarada de los productos importados. Para tales fines los importadores deberán prestar toda la colaboración necesaria.
