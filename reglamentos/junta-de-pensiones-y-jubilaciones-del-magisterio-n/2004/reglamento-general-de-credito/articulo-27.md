@@ -1,0 +1,1 @@
+Artículo 27.—Pagos extraordinarios y cancelaciones anticipadas. El beneficiario podrá realizar pagos extraordinarios al crédito, o cancelar en forma anticipada cualquiera de los préstamos, sin que por ello deba pagar suma adicional alguna.

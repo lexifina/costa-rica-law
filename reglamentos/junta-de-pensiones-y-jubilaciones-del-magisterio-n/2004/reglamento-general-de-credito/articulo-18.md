@@ -1,0 +1,6 @@
+Artículo 18.—Desembolsos. La Junta de Pensiones, por medio del Área de Crédito del Departamento Financiero-Contable, se reserva el derecho de realizar desembolsos parciales, en los créditos por la línea de Microempresa.
+Por lo tanto, podrá solicitar a los deudores la presentación de facturas originales, facturas proforma, informes de avance, y en general, cualquier otro documento que permita comprobar el uso que se le ha dado a los recursos derivados de la operación crediticia.
+En el caso de la Línea de Magisalud, los desembolsos no serán girados a nombre del beneficiario, sino directamente a nombre de la persona u organización que prestó o prestará el servicio o que le será cancelada la deuda pendiente. Por la vía de la excepción el reintegro de facturas será girado al solicitante.
+En la línea de crédito para Entidades Sociales y Financieras del Magisterio Nacional, se aplicará lo que consigne el acuerdo de Junta Directiva que autorizó el préstamo.
+En el caso de la Línea de Urgencia, como regla general los desembolsos serán girados a nombre de la persona u organización que prestó o prestará el servicio o que le será cancelada la deuda pendiente, salvo que ello no fuere posible.
+Todo desembolso parcial generará intereses que correrán a partir de la fecha en que se efectúe la formalización de la operación crediticia.

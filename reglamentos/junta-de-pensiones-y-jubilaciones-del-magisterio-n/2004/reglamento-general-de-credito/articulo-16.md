@@ -1,0 +1,2 @@
+Artículo 16.—Sustitución de Garantías. La Junta de Pensiones se reserva el derecho de solicitar en cualquier momento la modificación o sustitución de cualquiera de las garantías que respalden los créditos otorgados. Lo anterior en procura de salvaguardar los intereses de la Institución.
+Cualquier sustitución de garantías debe ser aprobada expresamente por la Junta Directiva de la Institución, excepto lo concerniente a las líneas de crédito para Gastos Personales y Magisalud.

@@ -1,0 +1,1 @@
+Artículo 2º—Sujetos de crédito. Serán sujetos de crédito los pensionados directos que tengan declarada en su favor, una pensión ordinaria o extraordinaria del Régimen del Magisterio Nacional y las Entidades Financieras y Sociales del Magisterio Nacional.

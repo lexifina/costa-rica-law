@@ -1,0 +1,1 @@
+Artículo 23.—Cobro administrativo y judicial. En caso de morosidad, se iniciará el trámite de cobro administrativo y judicial, de conformidad con los términos indicados en el Manual de Procedimientos del Área de Cobro, con que cuenta el Departamento Financiero Contable.
