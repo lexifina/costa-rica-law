@@ -1,0 +1,2 @@
+Artículo 63.- Adiciónase un artículo 22, corriéndose la numeración a la ley Nº 5406 del 26 de noviembre de 1973, que dirá así:
+"Artículo 22.- Las placas o derechos de explotación de servicios que quedaren vacantes por caducidad, abandono o cualquier otra causa contemplada en esta ley o su reglamento, deberá ser adjudicadas prioritariamente a las cooperativas debidamente inscritas para talecto de conformidad con la legislación vigente."

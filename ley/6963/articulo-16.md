@@ -1,0 +1,1 @@
+Artículo 16.- Se faculta al comité que administra El Asilo de Ancianos de Puriscal para que adquiera un vehículo libre de todo tipo de impuestos, tasas, sobretasas y timbres, que será usado en ese centro.

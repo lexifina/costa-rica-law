@@ -1,0 +1,1 @@
+Artículo 20.- Se autoriza la exoneración de todo tipo de impuestos, sobretasa, tasas, impuestos consulares y de muellaje, sobre un vehículo donado por los Obispos alemanes ADVENIAT, para fines pastorales y trabajos de promoción popular de las misioneras de la Caridad del Centro Diocesano Pastoral de Dulce Nombre de La Garita de Alajuela.
