@@ -1,0 +1,2 @@
+Artículo 11.- El presupuesto de la Dirección será elaborado por el Consejo Constitutivo según anteproyecto que le presentará el Director General, y será sometido a la aprobación del Ministerio de Cultura, Juventud y Deportes. No podrá destinarse a gastos administrativos más de un 15% del presupuesto total.
+La Contraloría General de la República ejercerá sobre la Dirección General de Artes y Letras y su presupuesto, la vigilancia que ejerce sobre organismos similares adscritos al mismo Ministerio.
