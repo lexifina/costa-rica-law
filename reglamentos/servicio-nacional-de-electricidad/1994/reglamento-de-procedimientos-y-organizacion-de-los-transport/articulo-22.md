@@ -1,0 +1,1 @@
+Artículo 22.—En caso de gira el chofer está autorizado para comprar la combustible y lubricantes sin la respectiva orden de pedido, en cualquiera de lo lugares que sea necesaria la provisión, siempre que se haya observado el inciso c) de artículo 18 anterior. Las facturas por gastos de atención al vehículo deberá presentarla el conductor con el refrendo del jefe de la gira.

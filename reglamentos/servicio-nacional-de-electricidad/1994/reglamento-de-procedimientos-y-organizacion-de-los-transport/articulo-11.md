@@ -1,0 +1,1 @@
+Artículo 11.—Para lograr el mayor aprovechamiento de los vehículos de uso administrativo, deberán agrupar en el mismo viaje, siempre y cuando las circunstancias lo permitan, varias solicitudes de transporte que se generen hacia el mismo sitio o ruta, previo aviso oportuno a los interesados para lograr una adecuada coordinación de viajes.

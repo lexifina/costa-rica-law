@@ -1,0 +1,1 @@
+Artículo 56.—Para la solicitud y control de combustible tanto el encargado del vehículo como el jefe de gira deberán cumplir con lo indicado en los artículos 19, 20, 21, 22 y 23 del presente Reglamento.

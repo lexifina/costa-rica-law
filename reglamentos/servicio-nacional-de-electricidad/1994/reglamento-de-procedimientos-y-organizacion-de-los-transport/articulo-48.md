@@ -1,0 +1,1 @@
+Artículo 48.—Cada vez que el vehículo ingrese o salga de gira el funcionario reportará el kilometraje a la jefatura de transportes o al guarda de tumo si es después de las horas laborales o en días no hábiles. El jefe de transportes o el guarda de tumo deberá verificar y anotar la hora y el número de kilómetros recorridos, firmar el formulario y tomar una copia para archivar.

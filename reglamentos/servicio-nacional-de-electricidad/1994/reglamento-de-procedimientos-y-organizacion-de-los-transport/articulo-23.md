@@ -1,0 +1,1 @@
+Artículo 23.—Los vehículos de uso administrativo están obligados a entrega diariamente, al terminar la gira; las copias de las facturas de combustibles y lubricantes así como el reporte de kilometraje respectivo al jefe de transporte.

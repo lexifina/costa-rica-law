@@ -1,0 +1,1 @@
+Artículo 2°—Se considerarán vehículo del SNE aquellos que la Institución haya adquirido y se encuentran inscritos a su nombre en el Registro de la Propiedad de Vehículos Automotor y se regirán por las disposiciones del presente Reglamento en sus Capítulos I, II, III, IV, V, VI, VIII, y IX excepto el Cap. VII que rige lo correspondiente al pago de kilometraje.

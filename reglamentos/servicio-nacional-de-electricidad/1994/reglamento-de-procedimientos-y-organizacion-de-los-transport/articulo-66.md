@@ -1,0 +1,1 @@
+Artículo 66.—La Secretaría Administrativa y la Unidad de Transportes son las dependencias encargadas a nivel Institucional de velar porque se cumplan las disposiciones contenidas en este Reglamento, de acuerdo con las políticas dictadas por la Junta Directiva y la Dirección al respecto.

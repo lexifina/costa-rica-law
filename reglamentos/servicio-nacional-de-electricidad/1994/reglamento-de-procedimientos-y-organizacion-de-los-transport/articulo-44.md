@@ -1,0 +1,1 @@
+Artículo 44.—La Jefatura de Transportes verificará que el kilometraje reportado en cada servicio sea congruente con lo que indica la tabla de distancias del Ministerio de Obras Públicas y Transportes.

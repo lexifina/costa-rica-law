@@ -1,0 +1,1 @@
+Artículo 61.—Todo funcionario que conduzca vehículos de la Institución cuya licencia le fuera suspendida temperar o definitivamente por fallo judicial deberá informarlo de inmediato a la Unidad de Transportes con copia a sus respectivas jefaturas, para ser anotado en el “Registro de Conductores autorizados de la Institución”.

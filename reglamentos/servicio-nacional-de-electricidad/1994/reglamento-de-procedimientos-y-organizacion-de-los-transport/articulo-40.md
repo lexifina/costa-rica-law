@@ -1,0 +1,1 @@
+Artículo 40.—Una vez confirmados los puntos a, b, c, d del artículo 39 la Unidad de Transporte manifestará su conformidad a la Oficina de Servicios Legales para proceder a la redacción y posterior firma del Contrato de Arrendamiento del vehículo.

@@ -1,0 +1,1 @@
+Artículo 20.—Los choferes deberán solicitar al jefe de transportes la orden para el suministro de combustible, lubricantes y otros, la cual deberá presentarse a la estación de servicio que la Institución designe, debidamente firmada por el jefe de transportes o en su defecto el secretario administrativo o en ausencia de ambos, el Director o cualquiera de los dos subdirectores.

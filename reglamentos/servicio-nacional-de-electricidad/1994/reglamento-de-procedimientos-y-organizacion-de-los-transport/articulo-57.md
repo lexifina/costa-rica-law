@@ -1,0 +1,1 @@
+Artículo 57.—No se asignará en forma permanente ningún vehículo a determinada dependencia o funcionario, salvo las motocicletas asignadas al área de Inspecciones Eléctricas; pero siempre sujetas al control, evaluación y valoración por parte de la Unidad de Transportes.

@@ -1,0 +1,1 @@
+Artículo 43.—En virtud de la relación contractual, el propietario asumirá las responsabilidades civiles y penales que pudieran surgir con motivo del contrato, en consecuencia el SNE estará relevado de las mismas en cuanto afecten a terceros.

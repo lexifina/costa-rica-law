@@ -1,0 +1,1 @@
+Artículo 7°—Todos los vehículos de uso administrativo deberán ser utilizados por personas autorizadas y exclusivamente en el desempeño de funciones propias de la Institución. Es terminantemente prohibido utilizar el tiempo de trabajo y los vehículos de la Institución en servicios o usos particulares.

@@ -1,0 +1,1 @@
+Artículo 38.—Para que sea viable la contratación se requiere que el vehículo esté en perfectas condiciones de funcionamiento, que sea adecuado para la clase de trabajo que vaya a destinarse, que el odómetro funcione perfectamente, lo anterior según la revisión que realice la Unidad de Transportes.

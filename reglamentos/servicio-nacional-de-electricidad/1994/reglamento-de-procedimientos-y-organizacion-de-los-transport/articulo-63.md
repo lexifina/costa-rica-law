@@ -1,0 +1,1 @@
+Artículo 63.—Cualquier discrepancia que pudiere presentarse en cuanto a la interpretación o aplicación de este Reglamento a las atribuciones y jurisdicción de la jefatura de la Sección de Transportes y la “Comisión de Transportes del SNE”, será resuelta en última instancia por la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 6°—Se considerarán vehículos de uso administrativo todos aquellos que se mantienen bajo la custodia y administración de la Unidad de Transportes, para solventar las necesidades de transporte en las diferentes dependencias de la Institución.
