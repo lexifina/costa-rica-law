@@ -1,0 +1,1 @@
+Artículo 14.—El Instituto será responsable directo del cumplimiento de las obligaciones estipuladas en el contrato de seguro suscrito con el cliente, en los términos y condiciones en que emita la respectiva póliza.

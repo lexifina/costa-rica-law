@@ -1,0 +1,1 @@
+Artículo 30. — Los intermediarios autorizados de acuerdo con el irán sujetos a las regulaciones del presente reglamento, en lo que resulte aplicable y a las disposiciones que al efecto dicte la Gerencia.

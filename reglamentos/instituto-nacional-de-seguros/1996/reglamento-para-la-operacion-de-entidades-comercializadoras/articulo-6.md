@@ -1,0 +1,6 @@
+Artículo 6°—Para funcionar como agencias comercializadoras de seguros y fianzas, las sociedades deberán cumplir con los siguientes requisitos mínimos:
+a) Presentar al Instituto sus estatutos y personería debidamente inscritos y vigentes.
+b) Mantener un capital suscrito y pagado en dinero efectivo no menor de diez millones de colones. Este capital se fijará anualmente considerando el índice de inflación del Banco Central.
+c) Rendir garantía de cumplimiento a satisfacción del Instituto para responder por sus operaciones frente al Instituto y a sus clientes en un monto no menor al 5% del volumen de primas establecido en su Plan de Comercialización, así como suscribir una póliza de fidelidad para cubrir la manipulación y el trasiego de dineros, valores y documentos del Instituto.
+d) Contar con la infraestructura física, de equipo y tecnológica, requerida para una eficiente comercialización de los seguros, de acuerdo con los modelos que suministre el Instituto. La plataforma tecnológica informática de la Agencia Comercializadora deberá ser compatible con la del Instituto, de acuerdo con sus especificaciones.
+e) Contar con el número de agentes autorizados por el Instituto que se convengan en el respectivo contrato, necesarios para la realización de sus operaciones y en aquellos seguros que requieran de agente.

@@ -1,0 +1,1 @@
+Artículo 22.—La liquidación de las comisiones y primas devengadas en el mes calendario anterior por la respectiva agencia comercializadora, se liquidará a más tardar, el cuarto día hábil de cada mes por la Dirección de Mercadeo del Instituto de acuerdo con los procedimientos que se establezcan al respecto.
