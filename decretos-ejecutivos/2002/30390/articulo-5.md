@@ -1,0 +1,1 @@
+Artículo 5º—La Unidad de Control Interno estará adscrita al Departamento de Desarrollo Organizacional y Tecnológico, por ser éste el ente encargado de llevar a cabo la formulación, monitoreo y evaluación de planes, programas y proyectos en la institución.
