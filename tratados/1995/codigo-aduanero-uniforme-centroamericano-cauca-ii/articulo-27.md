@@ -1,4 +1,1 @@
-ARTICULO 27.- El reembarque es el envío de mercancías al exterior;
-solamente procederá si las mismas no han sido solicitadas para el consumo,
-no han caído en abandono ni han originado alguna infracción culposa o
-dolosa.
+ARTICULO 27.- El reembarque es el envío de mercancías al exterior; solamente procederá si las mismas no han sido solicitadas para el consumo, no han caído en abandono ni han originado alguna infracción culposa o dolosa.

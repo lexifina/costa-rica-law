@@ -1,4 +1,1 @@
-ARTICULO 49.- La declaración para que una mercancía pueda acogerse a
-este régimen la conocerá la Aduana con jurisdicción en la zona donde se
-encuentra el depósito y lo concederá por el plazo que señale la
-legislación nacional.
+ARTICULO 49.- La declaración para que una mercancía pueda acogerse a este régimen la conocerá la Aduana con jurisdicción en la zona donde se encuentra el depósito y lo concederá por el plazo que señale la legislación nacional.

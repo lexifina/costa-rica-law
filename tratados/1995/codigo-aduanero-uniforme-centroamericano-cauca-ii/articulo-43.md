@@ -1,4 +1,1 @@
-ARTICULO 43.- La importación temporal de vehículos de turistas o de
-empresas dedicadas al transporte de turistas se sujetará a lo dispuesto en
-los Convenios Internacionales en la materia suscritos por los Estados
-Contratantes y en su caso a la legislación nacional.
+ARTICULO 43.- La importación temporal de vehículos de turistas o de empresas dedicadas al transporte de turistas se sujetará a lo dispuesto en los Convenios Internacionales en la materia suscritos por los Estados Contratantes y en su caso a la legislación nacional.

@@ -1,3 +1,1 @@
-ARTICULO 11.- Mientras se encuentren dentro del territorio aduanero,
-todo medio de transporte, su cargamento, su tripulación y sus efectos, sus
-pasajeros y sus equipajes, estarán sometidos a la potestad aduanera.
+ARTICULO 11.- Mientras se encuentren dentro del territorio aduanero, todo medio de transporte, su cargamento, su tripulación y sus efectos, sus pasajeros y sus equipajes, estarán sometidos a la potestad aduanera.

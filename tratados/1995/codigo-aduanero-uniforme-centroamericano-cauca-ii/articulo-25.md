@@ -1,5 +1,1 @@
-ARTICULO 25.- El transbordo, es la transferencia de las mercancías
-del medio de transporte utilizado para su ingreso al país a aquel en el
-que continuarán a su destino. Esta transferencia será realizada bajo el
-control aduanero, luego de haber sido autorizada por el Administrador de
-la Aduana correspondiente.
+ARTICULO 25.- El transbordo, es la transferencia de las mercancías del medio de transporte utilizado para su ingreso al país a aquel en el que continuarán a su destino. Esta transferencia será realizada bajo el control aduanero, luego de haber sido autorizada por el Administrador de la Aduana correspondiente.

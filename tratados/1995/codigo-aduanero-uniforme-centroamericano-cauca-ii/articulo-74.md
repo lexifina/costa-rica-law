@@ -1,7 +1,1 @@
-ARTICULO 74.- La autoridad aduanera podrá prescindir del
-reconocimiento físico de las mercancías y determinar la obligación
-tributaria en base a las informaciones del interesado y de los documentos
-acompañados, cuando la declaración arancelaria se haya formulado
-correctamente, los valores sean los normales para la naturaleza de las
-mercancías solicitadas a despacho y la documentación acompañada sea clara
-e inequívoca.
+ARTICULO 74.- La autoridad aduanera podrá prescindir del reconocimiento físico de las mercancías y determinar la obligación tributaria en base a las informaciones del interesado y de los documentos acompañados, cuando la declaración arancelaria se haya formulado correctamente, los valores sean los normales para la naturaleza de las mercancías solicitadas a despacho y la documentación acompañada sea clara e inequívoca.

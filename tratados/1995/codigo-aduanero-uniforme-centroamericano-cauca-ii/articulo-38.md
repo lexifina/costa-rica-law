@@ -1,4 +1,1 @@
-ARTICULO 38.- El transportista es responsable por la entrega de las
-mercancías en la Aduana de Destino y responderá del cumplimiento de todas
-las obligaciones que el régimen le impone, incluso del pago de los
-tributos que adeude si las mercancías no llegan en su totalidad a destino.
+ARTICULO 38.- El transportista es responsable por la entrega de las mercancías en la Aduana de Destino y responderá del cumplimiento de todas las obligaciones que el régimen le impone, incluso del pago de los tributos que adeude si las mercancías no llegan en su totalidad a destino.

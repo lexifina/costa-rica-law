@@ -1,8 +1,1 @@
-ARTICULO 40.- La Autoridad Aduanera Competente podrá autorizar la
-importación temporal de mercancías extranjeras con suspensión parcial o
-total del pago de derechos e impuestos a la importación para fines
-específicos a condición de ser reexportadas por cualquier aduana dentro
-del término autorizado sin haber sufrido modificación o transformación
-alguna, con excepción de la depreciación normal de las mercancías como
-consecuencia del uso que se haga de las mismas. La legislación nacional
-establecerá las excepciones a este Régimen.
+ARTICULO 40.- La Autoridad Aduanera Competente podrá autorizar la importación temporal de mercancías extranjeras con suspensión parcial o total del pago de derechos e impuestos a la importación para fines específicos a condición de ser reexportadas por cualquier aduana dentro del término autorizado sin haber sufrido modificación o transformación alguna, con excepción de la depreciación normal de las mercancías como consecuencia del uso que se haga de las mismas. La legislación nacional establecerá las excepciones a este Régimen.

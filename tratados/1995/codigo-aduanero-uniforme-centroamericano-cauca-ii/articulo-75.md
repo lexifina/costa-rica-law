@@ -1,5 +1,1 @@
-ARTICULO 75.- El Aforo de las mercancías podrá efectuarse por los
-Agentes de Aduanas bajo la modalidad de la autodeterminación y liquidación
-de los tributos aduaneros y otros cargos fiscales, pagándose la cantidad
-autoliquidada en las Instituciones autorizadas y cumpliendo con las demás
-formalidades que para este efecto señale la legislación nacional.
+ARTICULO 75.- El Aforo de las mercancías podrá efectuarse por los Agentes de Aduanas bajo la modalidad de la autodeterminación y liquidación de los tributos aduaneros y otros cargos fiscales, pagándose la cantidad autoliquidada en las Instituciones autorizadas y cumpliendo con las demás formalidades que para este efecto señale la legislación nacional.

@@ -1,4 +1,1 @@
-ARTICULO 82.- La aceptación del abandono voluntario de las mercancías
-y la adjudicación de las mercancías legalmente abandonadas y las
-decomisadas a terceros, en la forma autorizada por la ley, extingue la
-obligación tributaria aduanera.
+ARTICULO 82.- La aceptación del abandono voluntario de las mercancías y la adjudicación de las mercancías legalmente abandonadas y las decomisadas a terceros, en la forma autorizada por la ley, extingue la obligación tributaria aduanera.

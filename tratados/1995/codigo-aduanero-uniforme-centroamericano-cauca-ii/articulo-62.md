@@ -1,6 +1,1 @@
-ARTICULO 62.- La importación de envíos urgentes, de mercancías que se
-deben despachar de inmediato y con preferencia por la naturaleza de las
-mismas, por constituir envíos de socorro o por responder a una urgencia
-debidamente justificada, se efectuará limitando el control de la Aduana al
-mínimo necesario para asegurarse de la naturaleza de las mercancías y la
-observancia de las normas que la Aduana debe verificar.
+ARTICULO 62.- La importación de envíos urgentes, de mercancías que se deben despachar de inmediato y con preferencia por la naturaleza de las mismas, por constituir envíos de socorro o por responder a una urgencia debidamente justificada, se efectuará limitando el control de la Aduana al mínimo necesario para asegurarse de la naturaleza de las mercancías y la observancia de las normas que la Aduana debe verificar.

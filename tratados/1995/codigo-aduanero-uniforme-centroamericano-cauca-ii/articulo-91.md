@@ -1,9 +1,2 @@
-ARTICULO 91.- Los países signatarios podrán crear el Tribunal
-Aduanero Nacional con las atribuciones y principios, que la legislación
-nacional le otorgue. El Tribunal Aduanero podrá sustituir o complementar
-las funciones y competencias del Comité Arancelario y del Comité de
-Valoración enunciados en los artículos anteriores de este Código.
-Cuando en cualquiera de los países signatarios funcione algún
-Tribunal Fiscal Administrativo o similar, el Tribunal Aduanero Nacional
-podrá constituirse en parte de su organización, adecuándose este hecho a
-la legislación interna.
+ARTICULO 91.- Los países signatarios podrán crear el Tribunal Aduanero Nacional con las atribuciones y principios, que la legislación nacional le otorgue. El Tribunal Aduanero podrá sustituir o complementar las funciones y competencias del Comité Arancelario y del Comité de Valoración enunciados en los artículos anteriores de este Código.
+Cuando en cualquiera de los países signatarios funcione algún Tribunal Fiscal Administrativo o similar, el Tribunal Aduanero Nacional podrá constituirse en parte de su organización, adecuándose este hecho a la legislación interna.

@@ -1,7 +1,2 @@
-ARTICULO 12.- En cumplimiento de sus facultades, la autoridad
-aduanera podrá citar e interrogar personas, recibir y certificar
-declaraciones, requerir la exhibición de libros, registros u otros
-documentos, levantar actas; realizar investigaciones y practicar
-reconocimientos en cualquier local, edificio o establecimiento de las
-personas naturales o jurídicas; para comprobar el cumplimiento de las
-obligaciones tributarias aduaneras y demás relativas al comercio exterior.
+ARTICULO 12.- En cumplimiento de sus facultades, la autoridad aduanera podrá citar e interrogar personas, recibir y certificar declaraciones, requerir la exhibición de libros, registros u otros documentos, levantar actas; realizar investigaciones y practicar reconocimientos en cualquier local, edificio o establecimiento de las personas naturales o jurídicas; para comprobar el cumplimiento de las obligaciones tributarias aduaneras y demás relativas al comercio exterior.
+(Nota de Sinalevi: Mediante el artículo 2° “Intervención de las autoridades aduaneras”, de la ley N° 7485 del 6 de abril de 1995 “Modificación del Código Aduanero Uniforme Centroamericano II del Tratado General de Integración Económica”, se establece que el Gobierno de la República entiende que las autoridades aduaneras podrán ejercer únicamente las facultades conferidas en el artículo 12 del Convenio, por medio de una orden judicial previa, y acompañadas de la autoridad judicial competente.”)

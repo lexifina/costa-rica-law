@@ -1,6 +1,2 @@
-ARTICULO 103.- Para los efectos de mantener la unidad y la constante
-y permanente compatibilidad del régimen, se faculta al Consejo Arancelario
-y Aduanero Centroamericano para que en base a las atribuciones que le
-confieren los artículos 6 y 7 del Convenio sobre el Régimen Arancelario y
-Aduanero Centroamericano, pueda aprobar y poner en vigencia las
-modificaciones que requiera el presente Código.
+ARTICULO 103.- Para los efectos de mantener la unidad y la constante y permanente compatibilidad del régimen, se faculta al Consejo Arancelario y Aduanero Centroamericano para que en base a las atribuciones que le confieren los artículos 6 y 7 del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, pueda aprobar y poner en vigencia las modificaciones que requiera el presente Código.
+(Nota de Sinalevi: Mediante el artículo 5° “Sujeción de facultades del Consejo Aduanero Centroamericano”, de la ley N° 7485 del 6 de abril de 1995 “Modificación del Código Aduanero Uniforme Centroamericano II del Tratado General de Integración Económica”, el Gobierno de la República entiende que las facultades conferidas al Consejo Aduanero Centroamericano, indicadas en este numeral y en el 3 de sus disposiciones transitorias del Convenio, están supeditadas a que la Asamblea Legislativa las apruebe y el Poder Ejecutivo las ratifique)

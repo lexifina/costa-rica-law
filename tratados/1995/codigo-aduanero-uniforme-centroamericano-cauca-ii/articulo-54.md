@@ -1,7 +1,1 @@
-ARTICULO 54.- La autorización para acogerse a este régimen la
-otorgará la autoridad aduanera correspondiente pudiendo exigir en forma
-previa al embarque de las mercancías, la presentación de una garantía
-conforme a lo que para el efecto establece la legislación nacional,
-liberándose esta exclusivamente con la reimportación de las mercancías en
-su mismo estado y dentro del plazo otorgado o con el cambio de régimen a
-exportación definitiva.
+ARTICULO 54.- La autorización para acogerse a este régimen la otorgará la autoridad aduanera correspondiente pudiendo exigir en forma previa al embarque de las mercancías, la presentación de una garantía conforme a lo que para el efecto establece la legislación nacional, liberándose esta exclusivamente con la reimportación de las mercancías en su mismo estado y dentro del plazo otorgado o con el cambio de régimen a exportación definitiva.

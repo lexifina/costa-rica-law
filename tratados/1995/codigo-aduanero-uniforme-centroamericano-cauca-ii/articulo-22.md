@@ -1,4 +1,1 @@
-ARTICULO 22.- La autoridad aduanera competente, a pedido del
-interesado podrá autorizar que mercancías destinadas a un puerto se
-desembarquen en otro habilitado, debiendo comunicarlo a las autoridades
-portuarias y aduaneras en que se desembarcarán y despacharán las mismas.
+ARTICULO 22.- La autoridad aduanera competente, a pedido del interesado podrá autorizar que mercancías destinadas a un puerto se desembarquen en otro habilitado, debiendo comunicarlo a las autoridades portuarias y aduaneras en que se desembarcarán y despacharán las mismas.

@@ -1,6 +1,1 @@
-ARTICULO 46.- Depósitos de aduanas, es el régimen mediante el cual el
-Estado permite, a través de una concesión, a una persona física o
-jurídica, el servicio de almacenamiento de mercancías, que serán
-destinadas posteriormente a la importación u otro régimen aduanero, bajo
-el control de la Aduana, con suspensión de la aplicación de los derechos
-y demás gravámenes correspondientes.
+ARTICULO 46.- Depósitos de aduanas, es el régimen mediante el cual el Estado permite, a través de una concesión, a una persona física o jurídica, el servicio de almacenamiento de mercancías, que serán destinadas posteriormente a la importación u otro régimen aduanero, bajo el control de la Aduana, con suspensión de la aplicación de los derechos y demás gravámenes correspondientes.

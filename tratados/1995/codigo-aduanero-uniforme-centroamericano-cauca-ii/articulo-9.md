@@ -1,5 +1,1 @@
-ARTICULO 9.- La Potestad Aduanera es el conjunto de derechos,
-facultades y competencia que este Código y demás disposiciones legales
-conceden al servicio de aduanas y que se ejercitan a través de sus
-funcionarios para que puedan regular el tráfico del comercio exterior y
-sancionar cuando corresponda el incumplimiento a dichas disposiciones.
+ARTICULO 9.- La Potestad Aduanera es el conjunto de derechos, facultades y competencia que este Código y demás disposiciones legales conceden al servicio de aduanas y que se ejercitan a través de sus sancionarios para que puedan regular el tráfico del comercio exterior y sancionar cuando corresponda el incumplimiento a dichas disposiciones.

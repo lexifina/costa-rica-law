@@ -1,4 +1,1 @@
-ARTICULO 50.- La legislación nacional establecerá la responsabilidad
-y sus límites, de toda pérdida o daño que sufran las mercancías durante su
-depósito, tanto en recintos públicos como privados, así como frente a los
-consignatarios de la mercancía dañada o perdida.
+ARTICULO 50.- La legislación nacional establecerá la responsabilidad y sus límites, de toda pérdida o daño que sufran las mercancías durante su depósito, tanto en recintos públicos como privados, así como frente a los consignatarios de la mercancía dañada o perdida.

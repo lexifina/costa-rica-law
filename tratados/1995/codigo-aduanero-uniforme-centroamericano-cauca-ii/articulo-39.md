@@ -1,4 +1,1 @@
-ARTICULO 39.- Toda mercancía que hubiese llegado manifestada en
-tránsito podrá ser destinada a cualquier otro régimen dentro del país,
-siempre que se cumplan todos los requisitos y formalidades legales y
-reglamentarias para dicho régimen.
+ARTICULO 39.- Toda mercancía que hubiese llegado manifestada en tránsito podrá ser destinada a cualquier otro régimen dentro del país, siempre que se cumplan todos los requisitos y formalidades legales y reglamentarias para dicho régimen.

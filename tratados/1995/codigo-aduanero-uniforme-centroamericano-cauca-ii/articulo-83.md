@@ -1,3 +1,1 @@
-ARTICULO 83.- Se extinguirá la obligación tributaria cuando la
-pérdida o destrucción de las mercancías sea total, ocurran durante el
-plazo de depósito fiscal, y que sean por caso fortuito o fuerza mayor.
+ARTICULO 83.- Se extinguirá la obligación tributaria cuando la pérdida o destrucción de las mercancías sea total, ocurran durante el plazo de depósito fiscal, y que sean por caso fortuito o fuerza mayor.

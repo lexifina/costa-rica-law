@@ -1,5 +1,1 @@
-ARTICULO 64.- La importación y exportación que se efectúe por los
-pobladores de las zonas limítrofes entre países; se podrá eximir total o
-parcialmente de los tributos que gravaren la importación o exportación
-para consumo, conforme Acuerdos o Negociaciones Bi o Multilaterales. Esta
-modalidad excluye su uso con fines comerciales o industriales.
+ARTICULO 64.- La importación y exportación que se efectúe por los pobladores de las zonas limítrofes entre países; se podrá eximir total o parcialmente de los tributos que gravaren la importación o exportación para consumo, conforme Acuerdos o Negociaciones Bi o Multilaterales. Esta modalidad excluye su uso con fines comerciales o industriales.
