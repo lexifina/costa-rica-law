@@ -1,0 +1,1 @@
+Art 372° Si se tratase de edificio o lugar público de los comprendidos en los números 1° y 3° del artículo 369, el Juez Instructor reclamará el permiso a la autoridad o jefe de que aquellos dependan en la misma población bastando que sea verbal en casos de urgencia.

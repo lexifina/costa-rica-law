@@ -1,0 +1,1 @@
+Art 323° Cuando la enajenación mental sobreviniere después de perpetrada el delito, concluido que sea el sumario se suspenderá el procedimiento respecto al que se halle en tal caso hasta que recobre la salud, pero se continuará con los demás procesados.

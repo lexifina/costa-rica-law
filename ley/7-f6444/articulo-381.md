@@ -1,0 +1,1 @@
+Art 381° Desde el momento en que el Juez Instructor acuerde la entrada y registro en cualquier edificio o lugar cerrado, adoptará las medidas de vigilancia convenientes para evitar que se defraude de algún modo el objeto de la diligencia, valiéndose para ello, de la fuerza pública si lo considerase necesario.

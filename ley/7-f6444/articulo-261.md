@@ -1,0 +1,2 @@
+Art 261° Las providencias de la Comandancia en Jefe o de la Corte Suprema de Justicia, que decidan sobre competencia, son inapelables con testimonio de la que se dicte, se remitirán competente y se pondrá lo acordado en conocimiento de la otra, conforme a lo prevenido en el artículo 258.
+El expediente de competencia se archivará en la Comandancia en Jefe o en el Supremo Tribuanal de Justicia según el caso.

@@ -1,0 +1,1 @@
+Art 441° Cuando se disponga la ampliación o práctica de nuevas diligencias, verificada que sea, volverá el juez instructor a remitir los autos a la autoridad judicial, para los efectos prevenidos en el artículo anterior.

@@ -1,0 +1,1 @@
+Art 104° El Jefe oirá a ambas partes, y si de la averiguación respectiva resultare que el Superior haya juzgado u obrado mal, el impondrá también una pena correspondiente a su falta. Mas si la queja resultare infundada, puede agravar la pena del que ha reclamado.

@@ -1,0 +1,1 @@
+Art 405° Cuando por falta de peritos, laboratorios o reactivos no fuere posible practicar un análisis químico en el territorio en que funciona el Tribunal, éste dispondrá que se practique en la ciudad de la República donde fuere posible hacerlo.

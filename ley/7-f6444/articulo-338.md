@@ -1,0 +1,2 @@
+Art 338° El Juez Instructor dará orden de citación para los testigos que tengan que comparecer ante él. La orden indicará su objeto, el día, hora y lugar de la comparecencia, y será firmada por el Juez Instructor y el Secretario, o por Sargentos o Cabos nombrados al efecto.
+En caso urgente o de delito flagrante, puede darse la orden y hacerse la citación verbalmente, dejándose de ello constancia en el proceso.

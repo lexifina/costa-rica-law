@@ -1,0 +1,1 @@
+Art 474° El Consejo, al penar el delito objeto de la causa, corregirá también las faltas incidentales que con él se relacionen, pero si encontrare que el hecho perseguido no es delito y si falta, observará al acusado del primero, y llamará la atención de la autoridad judicial respectiva, para que disponga lo procedente respecto a la última.

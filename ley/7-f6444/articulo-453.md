@@ -1,0 +1,1 @@
+Art 453° Luego que el Presidente y los Vocales hayan tomado asiento en sus respectivos puestos, el primero se pondrá de pie, así como los Vocales y concurrentes y prestará el juramento o la promesa de desempeñar fiel y concienzudamente sus funciones. En seguida recibirá igual promesa a los Vocales y declarará instalado el consejo y abierta la sesión.

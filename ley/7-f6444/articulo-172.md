@@ -1,0 +1,1 @@
+Art 172° El que ponga mano en arma ofensiva o ejecute actos o demostración con tendencia a ofender de obra a centinela, salvaguardia o fuerza armada, incurrida en la pena inmediata a la señalada al delito en los dos artículos anteriores, según los casos.

@@ -1,0 +1,1 @@
+Art 377° Los cafés, tabernas, posadas, fondas y otros establecimientos de índole análogo no se reputarán domicilio de los que se encuentren o residan en ellos, temporal o accidentalmente, y lo serán tan sólo de los dueños que se hallen al frente de los mismos y habiten con sus familias en la parte de edificio a este servicio destinada.

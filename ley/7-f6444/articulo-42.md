@@ -1,0 +1,1 @@
+Art 42° El Consejo de Guerra verbal se compondrá de tres Vocales en lugar de los cinco exigidos para los ordinarios o de Oficiales generales, respectivamente, a menos que la gravedad del caso requerida el número completo de Vocales y que lo haya en el lugar sin inconveniente.

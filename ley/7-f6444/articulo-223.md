@@ -1,0 +1,1 @@
+Art 223° El individuo de las clases de tropa que habiendo sido destinado por faltas a un cuerpo de disciplina reincida en cualquiera de las que puedan originar aquel castigo sufrirá la pena de prisión militar.

@@ -1,0 +1,2 @@
+Art 322° Cuando el Juez Instructor advirtiese en el procesado síntoma de enajenación mental, lo someterá a la observación de dos facultativos en unión del respectivo Cirujano del Ejercito, en el establecimiento en que estuviere detenido, o en otro público, si fuere más a propósito o se hallase en libertad.
+Recibirá además las declaraciones e informes que estime conducentes a la averiguación del estado mental del sometido a reconocimientos sin paralizar el curso de las actuaciones.

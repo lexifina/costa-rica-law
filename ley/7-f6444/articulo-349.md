@@ -1,0 +1,1 @@
+Art 349° Pero si se trata de delito infraganti, se procederá a tomar la declaración inmediatamente. No se leerá al procesado parte alguna del sumario a excepción de las declaraciones por él prestadas anteriormente, y en el caso de que así lo pidiere o el juez lo creyere conveniente.

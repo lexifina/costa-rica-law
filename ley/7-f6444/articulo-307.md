@@ -1,0 +1,1 @@
+Art 307° Cuando el delito sea de lesiones, hará constar el estado del herido y la ropa que tuviere puesta, disponiendo asimismo el reconocimiento del herido por el respectivo Cirujano de Ejercito, por profesores Médicos a falta de aquel, por empíricos a falta de éstos, y su traslación a donde pueda ser conveniente asistido.

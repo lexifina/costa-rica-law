@@ -1,0 +1,1 @@
+Art 351° Al procesado se le podrán de manifiesto los objetos que tengan relación con el delito. Se interrogará también acerca de la procedencia de los mismos, de su destino y de la razón de encontrarse en su poder los que le hubiesen sido ocupados.

@@ -1,0 +1,1 @@
+Art 64° Cuando algún individuo del Ejercito, separado de su Cuerpo falleciese en navegación, practicará las primeras diligencias de ab instestato el Comandante o Capitán del buque que lo condujere, entregándolas para su continuación a la autoridad competente del punto de arribada costarricense.

@@ -1,0 +1,2 @@
+Art 320° El que detuviere a alguien en concepto de culpable tomará las precauciones necesarias para evitar que haga en su persona o traje alteraciones que puedan dificultar su reconocimiento.
+Iguales precauciones tomarán los encargados de la custodia de los detenidos o presos, debiendo cuidar además de conservar los trajes que llevasen estos al ingresar en las prisiones que llevasen éstos al ingresar en las prisiones si por algún motivo tuviesen que usar otros.

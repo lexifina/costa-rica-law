@@ -1,0 +1,1 @@
+Art 462° No habiendo prueba que rendir o examinados los testigos, el Fiscal se podrá o examinados los testigos, el Fiscal se pondrá de pie y leerá su acusación, ratificación o modificación de palabra las calificaciones consignadas en ella en conformidad al artículo 442.

@@ -1,0 +1,2 @@
+Art 327° Cuando el declarante sea sordo mudo, si supiere leer, se le harán por escrito las preguntas que deba contestar, si supiere escribir, contestará a ellas por escrito, y si no supiere ni lo uno ni lo otro, se le nombrará un interprete cualquiera, que sepa comunicarse con el declarante.
+A presencia de éste y ante todo, prestará en ambos casos el interpreté juramento de conducirse bien y fielmente en el desempeño de su cargo.

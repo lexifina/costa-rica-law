@@ -1,0 +1,1 @@
+Art 419° Si el procesado fuere responsable no de delito sino de alguna de las faltas enumeradas en el Título XI, Libro II de este Código, se procederá con arreglo a lo dispuesto en el artículo 111 del mismo.

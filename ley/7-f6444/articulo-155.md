@@ -1,0 +1,2 @@
+Art 155° Al Jefe de la rebelión, si estuviere en servicio activo, se le aplicará la pena de deportación y si fuere miliciano, la pena de presidio.
+Con la de extramiento o confinamiento a los demás no comprendidos en el caso anterior, los que se adhieren a la rebelión en cualquiera forma que lo verifiquen y los que, validos del servicio oficial que desempeñen, propa en noticias o ejecuten actos que puedan contribuir a favorcerla.

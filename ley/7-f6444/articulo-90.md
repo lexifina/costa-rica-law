@@ -1,0 +1,1 @@
+Art 90° El Comandante Mayor tiene la misma competencia que el Capitán, pudiendo aumentar el tiempo de arresto con tres días mas, e imponer arresto de rigor por tres días. Este puede ser en la pieza o calabozo.

@@ -1,0 +1,6 @@
+Art 232° Incurre en la misma responsabilidad prevista en el artículo anterior, de individuo de las clases de tropa en los casos siguientes:
+1° Cuando hallándose con licencia temporal o en marcha de un punto a otro, deje presentarse en el de su destino en el término de cuatro días, si residiere dentro de la provincia y de ocho si estuviere fuera de ella.
+2° Cuando hallándose con licencia ilimitada deje de presentarse en los plazos respectivos del número anterior, a contar desde el día en que se hubiese notificado orden de presentación,
+3° Cuando citado legalmente para el servicio militar no acatare la orden superior de presentarse o que ausentándose evadiere el servicio cuando sea alistado para marchar.
+4° Cuando perteneciendo a la Reserva deje de presentarse en el término de ocho días a contar desde que se publique de ocho días a contar desde que se publique en cada provincia o comarca la orden de concentración colectiva.
+5° Cuando al recobrar la libertad como prisionero de guerra deje de presentarse a las autoridades competentes en el plazo de ocho días, si se hallare en el territorio nacional, si se hallare en el extranjero se empezará a contar el mismo plazo para declararle desertor ocho días después de no haber puesto los medios que tenga a su alcance para regresar a su patria.

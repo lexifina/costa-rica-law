@@ -1,0 +1,1 @@
+Art 41 Cuando el General o Comandante en Jefe tenga conocimiento de que se ha cometido un delito que, en su concepto, deba juzgarse en Consejo de Guerra verbal, hará esta declaratoria, ordenará la prisión del reo, si estuviere en libertad, y nombrará el Fiscal y los Vocales del Consejo, que se reunirá inmediatamente por medio de órdenes verbales.

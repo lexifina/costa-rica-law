@@ -1,0 +1,1 @@
+Art 295° Todo militar que presencie la perpetración de un delito del fuero de guerra, excepción de los delitos privados, deberá denunciarlo a la autoridad llamada a prevenir la formación del sumario, sin perjuicio de hacer la denuncia ante su superior jerárquico.

@@ -1,0 +1,1 @@
+Art 361° El Juez instructor cuidará de establecer todas las circunstancias personales del procesado que se relacionen con la calificación legal del delito, o que extingan, atenúen o agraven su responsabilidad.

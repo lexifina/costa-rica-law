@@ -1,0 +1,1 @@
+Art 49° Terminadas las cuatro horas, el Consejo oirá la acusación Fiscal y la exposición del defensor, y retirándose luego las personas extrañas al Tribunal, fallará la causa como en los demás Consejos.

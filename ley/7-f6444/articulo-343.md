@@ -1,0 +1,1 @@
+Art 343° Recibido el juramento, el testigo manifestará su nombre, apellidos, apodo si lo tiene, edad, estado, domicilio, profesión, arte u oficio, si conoce o no al procesado y al ofendido si tiene con alguno de ellos parentesco, amistad, enemistad o relaciones de cualquiera otra clase, o si tiene interés directo o indirecto en la causa.

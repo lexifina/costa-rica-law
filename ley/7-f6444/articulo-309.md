@@ -1,0 +1,1 @@
+Art 309° El facultativo encargado especialmente de la asistencia de un herido, dará parte del estado en los periodos que el Juez Instructor le designe pero en caso que sobreviene alguna novedad, la participará sin pérdida de tiempo a dicho instructor.

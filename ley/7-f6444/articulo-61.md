@@ -1,0 +1,1 @@
+Art 61° Los procedimientos contra individuos de tropa por primera deserción sin circunstancia agravante, se resolverán en la provincia o comarca en que los reos se presenten o hayan sido aprehendidos.

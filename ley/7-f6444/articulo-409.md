@@ -1,0 +1,1 @@
+Art 409° Si los detenidos lo hubiesen sido por orden del Juez instructor, y después no conceptuarse en libertad, dando conocimiento del hecho a la autoridad judicial con todas las explicaciones que justifiquen su proceder.

@@ -1,0 +1,1 @@
+Art 348° Al detenido se le recibirá su primera declaración dentro de tercero día a contar desde que fue puesto a disposición del Tribunal. Este término podrá prorrogarse por otros tres días, cuando causa graves impidiéndose tomar la declaración en el primer plazo.

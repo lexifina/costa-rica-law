@@ -1,0 +1,7 @@
+Art 5° Por razón de la persona responsable es competente la jurisdicción de Guerra para conocer de las causas que se instruyan por toda clase de delitos, salvo los exceptuados a favor de otras jurisdicciones:
+1° Contra los militares en servicio activo se hallen desempeñando sus cargos, en disponibilidad o con licencia temporal y cualquiera que se destino, siempre que figure en las escalas o cuadros de las armas cuerpos secciones institutos, establecimientos y academias del Ejercito, aunque sea con carácter eventual mientras dependan de la Secretaría de la Guerra o cobren sueldo o haber por el presupuesto del mismo;
+2° Contra los voluntarios nacionales o extranjeros que hayan ingresado al Ejercito.
+3° Contra los Oficiales y tropa milicia requeridos para el servicio de instrucción militar, desde que hayan sido citados, durante la instrucción y hasta que sean despedidos de las filas;
+4° Contra los Oficiales y tropa milicia requeridos para el servicio de instrucción militar, desde que hayan sido citados, durante la instrucción y hasta que sean despedidos de las filas.
+5° contra las personas que sigan voluntariamente al Ejercito en campaña, estando con él en conexión permanente, como los domésticos de los militares, los vivanderos y otros semejantes:
+6° Contra los que fingieren impedimento físico, se mutilaren o inutilizaren por examinarse del servicio militar, así como contra los médicos que al intento extendieren a sabiendas falsas certificaciones.

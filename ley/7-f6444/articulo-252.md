@@ -1,0 +1,2 @@
+Art 252. – En los delitos de violación y en los raptos, sólo procederán los tribunales militares a virtud de denuncia de la persona interesada, de sus padres, maridos, abuelos, hermanos, o tutores.
+Si la agraviada no tuviese por su edad estando moral, personalidad para comparecer en juicio y fuera, además, de todo punto desvalida careciendo de padres, marido, abuelos, hermanos tutor o curador que denuncien podrá verificarlo el representante del Ministerio Público.

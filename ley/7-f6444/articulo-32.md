@@ -1,0 +1,2 @@
+Disposición general a los capítulos anteriores
+Art 32° Los Generales con mando de tropas, las autoridades militares que no ejercen jurisdicción, los Comandantes militares de provincias o comarcas los jefes de Cuerpo o de establecimientos pertenecientes al Ejercito y todo Oficial que mande fuerzas destacadas, deberán prevenir la formación de causas por los delitos de la competencia de la jurisdicción de Guerra que se cometan en la circunscripción o fuerza de su respectivo autoridad o mando, y dar inmediato conocimiento a la autoridad judicial de quien dependa.

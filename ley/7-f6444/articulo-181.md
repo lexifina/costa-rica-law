@@ -1,0 +1,1 @@
+Art 181° Fuera de los casos comprendidos en el artículo anterior, el militar que desobedezca las órdenes de sus superiores relativas al servicio, será castigado con la pena de reclusión en celda o de prisión militar.
