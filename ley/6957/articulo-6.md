@@ -1,0 +1,1 @@
+Artículo 6º.- El Instituto Nacional de Fomento Cooperativo podrá otorgar créditos sobre los programas mencionados en el artículo 3º, los cuales garantizará con las estimaciones de los ingresos que les confiere el mismo artículo.

@@ -1,0 +1,2 @@
+Artículo 8º.- Quedan condonadas las deudas producto de los montos provenientes de las pérdidas cambiarias, cubiertos por el Gobierno de la República en los presupuestos nacionales para los años 1982, 1983 y 1984, por concepto de los crédito AID y BCIE enunciados en el artículo 4º de esta ley.
+Asimismo, se autoriza al INFOCOOP para financiar, en condiciones especiales, a cooperativas que se encuentren en problemas financieros ocasionados por el diferencial cambiario.
