@@ -1,1 +1,0 @@
-Articulo 4°—Las labores de Secretaria Técnica que la Comisión demande, serán desempeñadas por la Dirección General de Política Exterior del Ministerio de Relaciones Exteriores y Culto, y su Director fungirá como Secretario Ejecutivo de la Comisión.

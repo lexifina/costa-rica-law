@@ -1,1 +1,0 @@
-Artículo 6°—Los entes públicos suministrarán a la Comisión , los estudios, datos e informaciones que ésta les solicite, para el cabal desempeño de sus funciones. Asimismo, la Comisión podrá consultar y solicitar la colaboración del sector privado cuyas labores se relacionen con las materias que tengan interés para la Comisión.
