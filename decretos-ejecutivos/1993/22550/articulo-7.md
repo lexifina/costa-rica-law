@@ -1,0 +1,1 @@
+Artículo 7°—Queda totalmente prohibida cualquier actividad que vaya orientada a interrumpir el crecimiento normal del manglar como la construcción de diques que eviten el flujo de las mareas, el desecamiento, relleno o cualquier otra alteración que provoque eventualmente la eliminación del mismo.

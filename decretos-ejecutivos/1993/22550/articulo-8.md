@@ -1,0 +1,1 @@
+Artículo 8°-Deróguese el Decreto Ejecutivo N° 7210-A del 19 de julio de 1977, modificado por los Decretos Ejecutivos N° 10005-A del 8 de mayo de 1979; 15402-MAG del 23 de marzo de 1984 y 16852-MAG del 14 de febrero de 1986, y del decreto ejecutivo N° 19886 del 13 de setiembre de 1990, en el artículo 71 lo referente a la instalación de salinas y actividades de acuacultura.

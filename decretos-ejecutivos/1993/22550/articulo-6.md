@@ -1,0 +1,1 @@
+Artículo 6°—Los permisos y concesiones para la instalación de salinas y actividades de acuacultura otorgados por la Dirección General Forestal con anterioridad al presente decreto ejecutivo, se mantendrán vigentes hasta su vencimiento, bajo las mismas condiciones en que fueron otorgados.
