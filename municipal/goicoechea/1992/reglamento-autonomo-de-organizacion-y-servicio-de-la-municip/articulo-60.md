@@ -1,0 +1,1 @@
+Artículo 60.—Cuando se produzca una llegada tardía injustificada superior a quince minutos, contados a partir de la hora oficial de entrada fijada en el artículo 12 de este Reglamento, el trabajador acarreará la pérdida de la mitad de la jornada y esta falta para efectos de sanción se calificará y computará como media ausencia v no pago de salario.

@@ -1,0 +1,1 @@
+Artículo 6°—Pese a lo dispuesto en el artículo anterior, se presume la existencia del contrato de trabajo entre la Municipalidad y quienes le presten sus servicios personales, en forma subordinada y a cambio de una retribución o salario.

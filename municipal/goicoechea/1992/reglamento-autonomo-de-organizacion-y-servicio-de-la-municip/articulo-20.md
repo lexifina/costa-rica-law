@@ -1,0 +1,1 @@
+Artículo 20.—La forma de pago será por medio de dinero efectivo y se pagará directamente al funcionario o a la persona que éste autorice por escrito para el retiro del dinero durante la jornada de trabajo.

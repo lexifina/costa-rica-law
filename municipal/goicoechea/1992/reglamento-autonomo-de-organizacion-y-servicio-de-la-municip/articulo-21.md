@@ -1,0 +1,1 @@
+Artículo 21.—Los traslados y permutas entre puestos de igual clase y remuneración podrán ser acordados entre los Jefes de Departamento ante el Ejecutivo Municipal, por motivos de salud, desaveniencia o que medie causa justificada. Dichos traslados y permutas los ejecutará el Ejecutivo Municipal siempre que no causen evidente perjuicio al servidor.

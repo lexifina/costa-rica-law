@@ -1,0 +1,3 @@
+CAPITULO IV
+Categorías y salarios
+Artículo 18.—Las categorías de trabajadores y los salarios base correspondientes a las mismas, en ningún caso podrán ser inferiores a los mínimos legales establecidos por el Estado. Cuando las fijaciones de salarios mínimos sean modificados y afecte la valoración de puestos existentes en la Corporación, ésta iniciará los trámites respectivos de actualización de salarios en un lapso de 15 días hábiles posteriores a la publicación del decreto de salarios mínimos en el Diario Oficial, sometiendo al conocimiento y aprobación del Concejo Municipal las reformas que procedan para su posterior inclusión en la Modificación Presupuestaria respectiva.

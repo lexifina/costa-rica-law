@@ -1,0 +1,1 @@
+Artículo 76.—Cualquier otro permiso con goce de salario que se otorgue, no contemplado en este Reglamento o Convención Colectiva, será deducida del período vacacional del trabajador, conforme lo indicado en el artículo 150, inciso b) del Código Municipal.

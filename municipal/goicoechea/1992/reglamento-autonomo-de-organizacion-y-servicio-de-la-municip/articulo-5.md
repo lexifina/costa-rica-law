@@ -1,0 +1,2 @@
+Artículo 5°—Los contratos de trabajo se harán en tres tantos: uno para la Municipalidad, otro para el Ministerio de Trabajo y Seguridad Social y el otro que se entregará al trabajador interesado, quien contará con un plazo de cinco días hábiles para su estudio y firma, plazo que se prorrogará por tres días hábiles más cuando exista negativa injustificada del trabajador para firmarlo.
+Pasados esos tres días y de persistir la negativa injustificada de firmarlo la Municipalidad quedará facultada para proceder al despido sin responsabilidad patronal.

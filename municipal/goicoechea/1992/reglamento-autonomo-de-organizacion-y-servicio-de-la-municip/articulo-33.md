@@ -1,0 +1,1 @@
+Artículo 33—Cuando un trabajador sea incapacitado por las autoridades médicas del Instituto Nacional de Seguros, la Municipalidad para efecto del cálculo de aguinaldo tomará en cuenta tanto lo pagado por la institución aseguradora como lo pagado por la Municipalidad, de tal suerte, que el trabajador reciba su aguinaldo completo.

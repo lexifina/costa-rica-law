@@ -1,0 +1,21 @@
+CAPITULO IX
+Obligaciones de los trabajadores
+Artículo 35.—Conforme con lo dispuesto en otros artículos de este Reglamento, del Código Municipal y de acuerdo fon el Código de Trabajo y leyes conexas, son obligaciones de los trabajadores:
+a) Prestar los servicios personalmente en forma regular y continua, de acuerdo con el respectivo contrato o relación laboral, y dentro de la jornada de trabajo.
+b) Ejecutar el trabajo con la intensidad, cuidado, dedicación y esmero apropiados en la forma, tiempo y lugar convenidos.
+c) Restituir a la Municipalidad los materiales no usados y conservar en buen estado los instrumentos y útiles que se les faciliten para el trabajo, es entendido que no serán responsables por el deterioro normal ni del que se ocasione por el caso fortuito, fuerza mayor, mala calidad o defectuosa confección.
+d) Guardar absoluta reserva sobre los asuntos privados de la Municipalidad por el conducidos y cuya divulgación puede causar perjuicios a la misma.
+e) Desempeñar el servicio bajo la dirección del patrono o de sus representantes, a cuya autoridad estarán sujetos en todo lo concerniente al trabajo y ejecutar las labores que los mismos les encomienden dentro de la jornada de trabajo siempre que sean compatibles con sus aptitudes, estado y condición y que sean de , aquellas que formen parte del contrato o relación de trabajo.
+f) Observar durante el trabajo buenas costumbres y disciplina.
+g) Prestar los auxilios necesarios en caso de siniestro o riesgo inminente en que las personas o intereses del patrono, o algún compañero de trabajo estén en peligro, nada de lo cual les dará derecho a remuneración adicional.
+h) Guardar a sus jefes y compañeros de trabajo la debida consideración y respeto debidos de modo que no se origine queja justificada por maltrato e irrespeto.
+i) Guardar al público, en sus relaciones con él, motivadas por el trabajo, la consideración y respeto debidos de modo que no se origine queja justificada por el mal servicio, maltrato o falta de atención.
+j) Someterse a reconocimiento médico, sea al solicitar su ingreso al trabajo o durante éste, a solicitud del patrono, para comprobar que no padece alguna incapacidad permanente o enfermedad profesional, contagiosa o incurable o a petición de un organismo oficial de Salud Pública o Seguridad Social por cualquier motivo.
+k) Observar rigurosamente las medidas preventivas que acuerden la autoridades competentes y las que indique el patrono y la Comisión de Salud Ocupacional para la Seguridad y Protección personal de ellos, sus compañeros de trabajo o de lugares donde labora.
+l) Responder económicamente por los daños que causare intencionalmente o que se refieran a su negligencia a descuidos manifiestos y absolutamente inexcusables.
+m) Reportar al Ejecutivo, Dirección Administrativa, Jefe Inmediato, de los daños o imprudencias que otros compañeros causaren en perjuicio de la Municipalidad. Si descubren un robo, daño o imprudencia realizada por cualquier persona deben denunciarlo de inmediato ante el Jefe respectivo, n) Durante las horas de trabajo se deben vestir de forma correcta y utilizar el uniforme —según corresponda— otorgado por la Municipalidad durante la misma. Al trabajador que no utilice el uniforme entregado por la Municipalidad durante la jornada de trabajo se le tendrá la falta como ausencia injustificada haciéndose acreedor a la pérdida de la jornada así como cualquier otra sanción,
+ñ) Desarrollar las labores dentro de un ambiente de seriedad y arme lía, concentrando cada trabajador la atención en la labor que está realizando, a fin de que la misma resulte de la mejor calidad posible.
+o) Acatar y hacer cumplir las medidas que tiendan a accidentes de trabajo y enfermedades profesionales.
+p) No sobrepasar los límites de los descansos destinados a tomar alimentos y otros.
+q) En caso de incapacidad, entregar en el Departamento de Personal y dentro de las 24 horas subsiguientes la constancia que para tal sentido entregue la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros, ésto para justificación de ausencias y pago de subsidios
+r) Informar al Departamento de Personal y a su superior inmediato de cualquier accidente o riesgo tenido durante la jornada laboral.

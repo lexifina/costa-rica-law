@@ -1,0 +1,1 @@
+Artículo 3°—La aplicación del presente Reglamento corresponde al Ejecutivo Municipal, Director Administrativo, Director Financiero y Jefes de Departamento y Sección. Ante dudas en su aplicación o interpretación corresponde resolver al Ejecutivo Municipal.

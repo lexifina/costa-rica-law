@@ -1,0 +1,4 @@
+Artículo 23.—Para llenar una plaza vacante, la Municipalidad deberá convocar a concurso interno, siempre y cuando la Administración previo estudio determine que hay empleados municipales que reúnen todos los requisitos para el puesto señalado en el Manual Descriptivo de Puestos vigente.
+Para la realización del concurso interno, se concederán diez días hábiles para la presentación de ofertas. Para participar en un concurso interno se debe estar nombrado en propiedad en algún puesto de la Municipalidad.
+En el caso de recurrir a concurso externo, los candidatos deberán reunir necesariamente los requisitos que estipula para el puesto el Manual Descriptivo de Puestos vigente.
+En el caso de ascensos, los trabajadores deberán reunir los requisitos estipulados en el Manual Descriptivo de Puestos vigente.

@@ -1,0 +1,1 @@
+Artículo 22.—Cuando se acuerde expresamente el recargo de funciones, el inferior designado asumirá las funciones respectivas más las propias del puesto que desempeña. Para efecto de pago, el que sustituye recibirá a razón de la diferencia entre los salarios bases de los puestos en forma proporcional a los días en que efectuó el recargo de funciones.

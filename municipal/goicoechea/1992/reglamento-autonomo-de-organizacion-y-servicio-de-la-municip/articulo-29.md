@@ -1,0 +1,1 @@
+Artículo 29.—Aquellos trabajadores que tengan permisos para capacitación en áreas afines a sus puestos para efecto de vacaciones, se les concederán por el período que les corresponda y según la forma normal de otorgarlas. El trabajador tendrá opción de escoger si disfruta de sus vacaciones al final del curso o en el transcurso del mismo.

@@ -1,0 +1,1 @@
+Artículo 44.—No obstante lo dispuesto en el artículo anterior, dejará de imponerse la sanción disciplinaria si el trabajador que, por error marcó la tarjeta, o aquel a quien le marcaron, la tarjeta informa del hecho al Departamento de Personal, a más tardaren el curso de la jornada de trabajo siguiente a aquella en la que el hecho acaeció

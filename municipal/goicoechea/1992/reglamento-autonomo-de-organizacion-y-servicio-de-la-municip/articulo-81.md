@@ -1,0 +1,1 @@
+Artículo 81.—A faltta de disposiciones en este Reglamento aplicables a un caso determinado, deben tenerse como normas supletorias el Código de Trabajo, Convención Colectiva y demás Leyes y Reglamentos conexos a la materia.

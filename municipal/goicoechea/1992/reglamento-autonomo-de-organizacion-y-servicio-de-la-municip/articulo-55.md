@@ -1,0 +1,1 @@
+Artículo 55.—Cualquier funcionario que haya marcado la salida de labores ei la tarjeta de control de tiempo y permanezca en las instalaciones de la Municipalidad estará sujeto a las normas disciplinarias estipuladas en este Reglamento.

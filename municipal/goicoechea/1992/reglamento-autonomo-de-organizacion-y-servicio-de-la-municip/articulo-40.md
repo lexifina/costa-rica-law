@@ -1,0 +1,1 @@
+Artículo 40.—Las marcas en las tarjetas de asistencia deberán hacerse únicamente por el trabajador a quien corresponde, con cuidado, de manera que quede impresa con claridad, toda vez que las marcas defectuosas, manchadas, confusas, que no se deben a desperfectos del reloj, se tendrán por no hechas para efectos de sanción.

@@ -1,0 +1,1 @@
+Artículo 46.—Las asistencias al Seguro Social cuando sean en horas laborales, se consideran como licencias con goce de salario siempre y cuando se presente al Departamento de Personal la respectiva boleta de asistencia médica.

@@ -1,0 +1,1 @@
+Artículo 24.—Será responsabilidad del Departamento de Personal, en coordinación con la Dirección Administrativa, el mantener actualizado el Manual Descriptivo de Puestos y efectuar el análisis y ajustes del caso a la Escala de Sueldos. Ambos, Escala y Manual, deberán ser aprobados por el Concejo Municipal.
