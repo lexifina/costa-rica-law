@@ -2,5 +2,6 @@ Artículo 3º—Las disposiciones de los artículos 1° y 2° de estas directric
 - Autoridad Reguladora de Servicios Públicos
 - Junta Administrativa de Servicios Eléctricos de Cartago
 - Correos de Costa Rica.
-- Empresa de Servicios Públicos de Heredia.
+- Empresa de Servicios Públicos de Heredia. 4.468,1 millones de colones.
+(Así modificado por el Decreto Ejecutivo N° 31072 del 24 de febrero del 2003.)
 - Instituto Nacional de Aprendizaje

@@ -122,3 +122,5 @@ Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE): R
 (Así adicionado por artículo 2 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
 Junta Administradora del Servicio Eléctrico de Cartago (JASEC): Compra de Energía Eléctrica y Canon ARESEP.
 (Así adicionado por artículo 1° del Decreto Ejecutivo N° 31006 de 27 de enero de 2003)
+Empresa de Servicios Públicos de Heredia Sociedad Anónima (ESPHSA): Compra de energía eléctrica.
+(Así adicionado por artículo 1° del Decreto Ejecutivo N° 31072 del 24 de febrero de 2003)
