@@ -1,4 +1,4 @@
-Artículo 8º.- El Consejo Consultivo de Estadística, con asiento en
+ARTICULO 8º.- El Consejo Consultivo de Estadística, con asiento en
 la Capital de la República, consta de 12 miembros de nombramiento del
 Poder Ejecutivo, siendo uno de ellos el Director General de Estadística y
 Censos y los demás escogidos entre personas honorables vinculadas a

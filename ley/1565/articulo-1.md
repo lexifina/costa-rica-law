@@ -17,9 +17,9 @@ adapten a la realidad y necesidades actuales.
 Por tanto,
 DECRETA
 La siguiente
-Ley General de Estadística
+LEY GENERAL DE ESTADISTICA
 CAPITULO I
 Disposiciones Generales
-Artículo 1º.- La presente Ley General de Estadística se emite con el
+ARTICULO 1º.- La presente Ley General de Estadística se emite con el
 propósito de lograr la mayor eficiencia y coordinación de las
 estadísticas que elaboren todas las dependencias del Estado.

@@ -1,4 +1,4 @@
-Artículo 18.- Fuera de otras disposiciones de los Códigos Penal y de
+ARTICULO 18.- Fuera de otras disposiciones de los Códigos Penal y de
 Policía que sean aplicables, serán sancionados:
 a) Con la pena impuesta en el artículo 372 del Código Penal, el
 funcionario o empleado de los organismos a que esta ley se refiere
