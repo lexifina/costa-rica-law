@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de permiso de uso de las instalaciones portuaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-13 | la propia norma |
+| 2 | 2003-09-03 | Reglamento 0 (2003-09-03) |
