@@ -1,0 +1,1 @@
+Artículo 2°—Para los efectos del inciso d) del Artículo 2° del Decreto Ejecutivo N° 23629-PLAN de 29 de agosto de 1994. reformado por Artículo 1 del presente decreto, nómbrese a los señores Andrés Rodríguez Clare y Alberto Dent Zeledón. Presidirá la Comisión el asesor Rodríguez Clare.
