@@ -1,0 +1,3 @@
+Artículo 2º—
+a) El Concejo Municipal, con base en los artículos 164, 165 y 169 del Código Municipal, reglamentará el procedimiento de elección de los miembros del Comité Cantonal de Deportes y Recreación y el funcionamiento de este Comité.
+b) Todo reglamento o manual interno, que dicte el Comité Cantonal de Deportes y Recreación, antes de su vigencia, deberá ser sometido a consideración y aprobación del Concejo Municipal de Moravia, con las modificaciones que este Concejo considere pertinentes. De no suceder así, cualquier disposición reglamentaria que resuelva el Comité no tendrá eficacia ni validez alguna.

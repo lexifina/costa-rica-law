@@ -1,0 +1,1 @@
+Artículo 22.—El Comité Cantonal de Deportes y Recreación, deberá de reunirse con carácter ordinario, al menos una vez por semana. El quórum mínimo para sesión será de tres miembros. De no haber el quórum mínimo requerido para sesionar, después de 20 minutos de la hora señalada, ésta sesión se tendrá por suspendida. Se hará un acta consignando la situación acaecida.

@@ -1,0 +1,1 @@
+Artículo 27.—Los acuerdos tomados por el Comité quedarán aprobados y en firme, al existir votación unánime de los miembros presentes del Comité en dicha sesión, siempre que hayan asistido la totalidad de los miembros a la sesión.

@@ -1,0 +1,1 @@
+Artículo 5º—El Comité Cantonal de Deportes y Recreación, identificará, formulará y recomendará la ejecución de proyectos de obras de infraestructura deportiva y recreativa, y los presentará al conocimiento y aprobación del Concejo Municipal.

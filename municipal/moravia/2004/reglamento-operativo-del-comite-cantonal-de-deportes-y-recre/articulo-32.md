@@ -1,0 +1,1 @@
+Artículo 32.—Cada cuatro meses, como mínimo, el Comité Cantonal de Deportes y Recreación, convocará a todos los presidentes de los Comités Comunales del Cantón, y a los representantes de los grupos organizados señalados en el artículo 4º de este Reglamento a una reunión conjunta de seguimiento y evaluación del PAO, para tomar las acciones correctivas.
