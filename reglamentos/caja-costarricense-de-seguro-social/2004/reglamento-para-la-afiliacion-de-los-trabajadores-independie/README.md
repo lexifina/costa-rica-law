@@ -14,3 +14,4 @@ Reglamento para la Afiliación de los Trabajadores Independientes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-09 | la propia norma |
+| 2 | 2004-11-25 | Reglamento 7909 (2004-11-25) |
