@@ -4,6 +4,7 @@ articulo-3.md
 articulo-4.md
 articulo-5.md
 articulo-6.md
+articulo-6-bis.md
 articulo-7.md
 articulo-8.md
 articulo-9.md
@@ -45,6 +46,7 @@ articulo-44.md
 articulo-45.md
 articulo-46.md
 articulo-47.md
+articulo-47-bis.md
 articulo-48.md
 articulo-49.md
 articulo-50.md
@@ -94,6 +96,7 @@ articulo-93.md
 articulo-94.md
 articulo-95.md
 articulo-96.md
+articulo-96-bis.md
 articulo-97.md
 articulo-98.md
 articulo-99.md
@@ -249,9 +252,6 @@ articulo-248.md
 articulo-249.md
 articulo-250.md
 articulo-251.md
-articulo-6-bis.md
-articulo-47-bis.md
-articulo-96-bis.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md
