@@ -1,1 +1,1 @@
-Artículo 52.- Esta ley rige noventa días después de su publicación y deroga las disposiciones que se le opongan.
+Artículo 52.- El Poder Ejecutivo modificará en lo conducente el Reglamento del Registro Público.
