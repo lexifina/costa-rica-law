@@ -1,6 +1,10 @@
+(Derogado)
 Nº 24446-MOPT
 EL PRESIDENTE DE LA REPUBLICA Y
 EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES,
+(NOTA: Este decreto ha sido DEROGADO EN SU TOTALIDAD
+por el artículo 18 del decreto ejecutivo N° 30770 de 3 de octubre
+del 2002)
 En el ejercicio de las facultades y atribuciones que les confiere el
 artículo 140, incisos 3) y 18) de la Constitución Política y con
 fundamento en lo dispuesto por la Ley de Creación del Ministerio de Obras

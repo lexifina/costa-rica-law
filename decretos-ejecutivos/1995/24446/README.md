@@ -14,3 +14,4 @@ Reglamento a Permisos Especiales de Circulación AGV
 | --- | --- | --- |
 | 1 | 1995-07-26 | la propia norma |
 | 2 | 1995-07-26 | SINALEVI (sin norma nombrada) |
+| 3 | 2002-10-03 | SINALEVI (sin norma nombrada) |
