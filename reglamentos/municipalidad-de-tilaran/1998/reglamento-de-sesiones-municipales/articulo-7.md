@@ -1,0 +1,1 @@
+Artículo 7°- Las sesiones del Concejo se desarrollarán conforme a la Agenda del Día, previamente elaborada, la cual podrá ser modificada o alterada mediante moción aprobada por el Concejo por simple mayoría.
