@@ -24,12 +24,11 @@ iii. Los mecanismos de administración de carteras de títulos que mantienen los
 C. Tasas de encaje
 Las tasas de encaje mínimo legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
 (*) 1. El 10% sobre el total de los depósitos y obligaciones en moneda nacional, así como de las operaciones de captación de recursos en moneda nacional realizadas mediante fideicomisos o contratos de administración. Dicha tasa se aplicará con la siguiente gradualidad:
-Fecha | Tasa
-A partir del: |
-1° de marzo, 2000 | 12%
-1° de abril, 2001 | 11%
-1° de octubre, 2001 | 10%”
-(*) (Así reformado el numeral anterior en sesión N° 5024 del 9 de febrero de 2000)
+Fecha |
+A partir del: | Tasa
+1° de enero, 2001 | 11%
+1° de octubre, 2001 | 10%
+(*) (Así reformado el numeral anterior en sesión N° 5058 del 6 de diciembre de 2000)
 D. Excepciones y deducciones
 (*) 1. Se exceptúan del requerimiento de encaje mínimo legal las operaciones originadas en empréstitos externos, los préstamos otorgados por e! Banco Central de Costa Rica y los recursos recibidos por la banca estatal de entidades financieras privadas en cumplimiento de las condiciones establecidas, para estas últimas, para tener acceso al redescuento o poder captar depósitos en cuenta corriente, según lo estipulado en los artículos 52 de la Ley Orgánica del Banco Central de Costa Rica y 59 de la Ley Orgánica del Sistema Bancario Nacional.
 (*) (Así reformado el numeral anterior en sesión N° 5029 del 15 de marzo de 2000)

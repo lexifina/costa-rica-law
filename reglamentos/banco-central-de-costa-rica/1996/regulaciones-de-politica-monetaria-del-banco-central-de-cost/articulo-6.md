@@ -8,17 +8,15 @@ Disposiciones sobre la reserva de liquidez
 4. Las cooperativas de vivienda que realizan actividades de intermediación al amparo de la Ley del Sistema Financiero para la Vivienda y cuyo nivel de activos netos era al 31 de diciembre de 1995 inferior a ¢200,0 millones.
 5. Cualquier otra entidad que realice operaciones de intermediación financiera y que haya sido expresamente eximida del encaje por la Junta Directiva del Banco Central de Costa Rica.
 El porcentaje de reserva de liquidez que deberán mantener las entidades antes mencionadas es el siguiente:
-1. Para las operaciones en moneda nacional aplicará una tasa de reserva de liquidez del 10%, a la cual se adjuntarán con la siguiente gradualidad:
-Fecha | Tasa
-A partir del: |
-1° de marzo, 2000 | 12%
-1° de abril, 2001 | 11%
+Para las operaciones en moneda nacional aplicará una tasa de reserva de liquidez del 10%, a la cual se ajustarán con la siguiente gradualidad:
+Fecha |
+A partir del: | Tasa
+1° de enero, 2001 | 11%
 1° de octubre, 2001 | 10%
 2. Para las operaciones en moneda extranjera aplicará una tasa de reserva de liquidez del 5%.
-.
-(*) (Así reformado el literal A anterior en sesión N° 5024 del 9 de febrero de 2000)
-B. Las cooperativas de ahorro y crédito y las cooperativas de vivienda amparadas a la Ley del Sistema Financiero para la Vivienda, cuyos activos netos al 31 de diciembre de 1995 eran inferiores a los £200,0 millones y que lleguen a sobrepasar esa suma, serán incorporadas al control del encaje por parte del BCCR y de la SUGHF, para lo cual se observará lo acordado por el Consejo Directivo de la SUGEF mediante Artículo 21 de la Sesión 19-56, del 27 de junio de 1996.
-C. Las cooperativas de ahorro y crédito cuyos activos netos, al 31 de diciembre de 1996, fueron iguales o superiores a los 0200,0 millones deberán, para quedar eximidas del requisito de encaje, presentar semestralmente ante la SUGEF los atestados correspondientes de que no han realizado operaciones financieras con no asociados.
+(*) (Así reformado el literal A anterior en sesión N° 5058 del 6 de diciembre de 2000)
+B. Las cooperativas de ahorro y crédito y las cooperativas de vivienda amparadas a la Ley del Sistema Financiero para la Vivienda, cuyos activos netos al 31 de diciembre de 1995 eran inferiores a los ¢200,0 millones y que lleguen a sobrepasar esa suma, serán incorporadas al control del encaje por parte del BCCR y de la SUGHF, para lo cual se observará lo acordado por el Consejo Directivo de la SUGEF mediante Artículo 21 de la Sesión 19-56, del 27 de junio de 1996.
+C. Las cooperativas de ahorro y crédito cuyos activos netos, al 31 de diciembre de 1996, fueron iguales o superiores a los ¢200,0 millones deberán, para quedar eximidas del requisito de encaje, presentar semestralmente ante la SUGEF los atestados correspondientes de que no han realizado operaciones financieras con no asociados.
 D. Las reservas de liquidez en moneda nacional y en moneda extranjera deben calcularse por separado y, los respectivos fondos mantenerse en la moneda correspondiente.
 (*) E. La reserva de liquidez debe mantenerse invertida en títulos o instrumentos de depósito del Sistema Bancario Nacional, incluido el Banco Central de Costa Rica, o del Gobierno Central, de alta liquidez, segundad y rentabilidad. Para su administración deberá tenerse en cuenta lo siguiente:
 1. Las entidades cuya reserva de liquidez sea igual o inferior a ¢ 5 millones, no podrán mantener depositados en un solo banco comercial más del 50% de los recursos de la reserva.
