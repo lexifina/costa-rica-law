@@ -1,0 +1,1 @@
+Art. 2. Se reconoce como en el artículo 4° del Decreto de 25 de Octubre del año pasado de 1839, el capital y un seis por ciento del premio al año; y se hipotecan los ramos que están afectos á la amortización de vales, en los mismos términos que estos relacionan; pero si quieren los prestamistas indemnizarse con tierras baldías, se les rebajará de su valor un diez por ciento.
