@@ -1,0 +1,4 @@
+N° 4919
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
+DECRETA:
+Artículo 1°-Se autoriza a la Municipalidad del cantón de Osa para que otorgue títulos de propiedad, de su finca inscrita en el registro de Propiedad, Partido de Puntarenas, tomos 1177 y 1186, folios 421 y 203, número 7883 a aquellas personas que estén ejerciendo el derecho de posesión sobre un lote de terreno del cuadrante de la población de Puerto Cortés, adquirido por ocupación personal o por título traslativo de dominio y de buena fe, cuya posesión exceda de diez años. La comprobación de esos requisitos se hará mediante información sumarial que levantará el Ejecutivo Municipal a solicitud de los interesados. Los gastos que demande la adjudicación en cada caso serán por cuenta de los adjudicatarios. La medida de cada lotes se determinará mediante plano debidamente catastrado.
