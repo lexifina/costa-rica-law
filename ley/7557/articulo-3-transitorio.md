@@ -1,0 +1,2 @@
+TRANSITORIO III.- Las reclamaciones y los recursos interpuestos antes de la vigencia de esta ley, se tramitarán conforme a las disposiciones vigentes a la fecha de interponerlos.
+Dentro de un plazo de tres meses a partir de la fecha en que esta ley entre en vigor, deberá constituirse el Tribunal Aduanero Nacional. Hasta tanto, quedan vigentes las funciones del Comité Arancelario y del Comité Nacional de Valoración.

@@ -1,0 +1,2 @@
+TRANSITORIO X.- Para adquirir los recursos materiales y humanos y contratar los servicios que se requieran para la conformación efectiva del Órgano nacional de valoración aduanera, el Poder Ejecutivo deberá efectuar los ajustes presupuestarios correspondientes y tomar las medidas necesarias para que, en un plazo de tres meses contados a partir de la promulgación de la presente ley, el Órgano nacional de valoración aduanera inicie su funcionamiento.
+Dado en la Presidencia de la República.- San José, a los veinte días del mes de octubre de mil novecientos noventa y cinco
