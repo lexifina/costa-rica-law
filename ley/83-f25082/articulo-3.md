@@ -1,0 +1,1 @@
+Art 3°.- De qualesquiera resultado o contestación a su solicitud dara aviso el Gobierno a la Asamblea y entre tanto nada podrá gastar de la cantidad que se participe sin ordenar de la misma sino es en transporte o seguridades de los demás.
