@@ -1,0 +1,1 @@
+Art. 50.-El maestro formulará un reglamento interior de disciplina, que someter a la aprobación del Inspector provincial, y nombrará semanalmente de entre las niños un monitor que haga cumplir las disposiciones de aquél.

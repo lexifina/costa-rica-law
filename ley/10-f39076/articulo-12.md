@@ -1,0 +1,2 @@
+Art. 12.-Cuando la falta fuere por enfermedad, el maestro designará el sustituto, sujeto á la confirmación de la Junta ó del Inspector, en su caso. Si no se designare sustituto, lo nombrará la Junta, dando cuenta al Inspector.
+El maestro enfermo tendrá derecho á la tercera parte de su sueldo hasta por seis meses. Si la enfermedad fuere crónica ó pasase de seis meses, se considerará vacante la escuela.
