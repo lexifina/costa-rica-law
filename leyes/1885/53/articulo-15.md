@@ -1,0 +1,1 @@
+ART. 15.-La instrucción profesional da opción los títulos siguientes: perito agrimensor, perito mercantil, perito agrónomo, maestro de obras, constructor de puentes y caminos, ingeniero de minas, ingeniero topógrafo y farmacéutico.

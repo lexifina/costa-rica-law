@@ -1,0 +1,1 @@
+ART. 7°. -La instrucción de niñas, así primaria como complementaria, comprende las mismas asignaturas de los artículos 5° y 6°, con exención de la cartilla del ciudadano; y además, costura y aquellas labores mujeriles de mayor importancia y utilidad.

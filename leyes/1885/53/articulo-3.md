@@ -1,0 +1,1 @@
+ART. 3°.-Cualquiera costarricense ó extranjero es libre para dar ó recibir la instrucción que bien tenga, en los establecimientos que no sean costeados con fondos públicos Artículo 53 de la Constitución.

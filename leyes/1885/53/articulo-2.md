@@ -1,0 +1,1 @@
+ART. 2°.-La dirección ‚ inspección suprema de la instrucción pública corresponde al Ministerio del ramo, asistido por el Consejo superior de instrucción pública; la dirección inmediata corresponde las Municipalidades, conforme al artículo 52 de la Constitución.
