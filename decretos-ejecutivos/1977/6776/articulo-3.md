@@ -1,0 +1,1 @@
+Artículo 3°.- Solamente estarán exentos del pago de esta tasa, los vehículos de la Fuerza Pública, del Cuerpo de Bomberos, las ambulancias y los del Ministerio de Transportes que se dediquen al mantenimiento de la carretera. Se consideran vehículos de la Fuerza Pública, aquellos inscritos a nombre del Estado y que estén identificados como pertenecientes a ese cuerpo.
