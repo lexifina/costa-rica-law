@@ -14,3 +14,4 @@ Crea Comisión Ecológica para la Aplicación y Promoción de un Nuevo Orden Eco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-02-09 | la propia norma |
+| 2 | 1990-09-12 | Decreto Ejecutivo 19954 (1990-09-12) |
