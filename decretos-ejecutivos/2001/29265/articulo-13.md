@@ -1,0 +1,1 @@
+Artículo 13º—El agente de aduanas responsable del desalmacenaje de vehículos, debe consignar en la declaración aduanera una descripción detallada de las características de éstos, en los términos que disponga la Dirección General de Aduanas, conforme al artículo 86 de la Ley General de Aduanas

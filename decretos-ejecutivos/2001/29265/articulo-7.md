@@ -1,0 +1,1 @@
+Artículo 7º—El precio de venta estimado al consumidor final para los vehículos nuevos y usados se establecerá adicionando al precio de venta del importador, un margen de valor agregado del veinticinco por ciento (25%), estimado para la etapa entre éste y el consumidor final.

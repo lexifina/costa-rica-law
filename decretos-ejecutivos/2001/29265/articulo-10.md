@@ -1,0 +1,1 @@
+Artículo 10º—La Dirección General de Tributación realizará un primer estudio dentro de los siguientes noventa días a la publicación del presente decreto para actualizar el margen de valor agregado señalado en el artículo 7º y mediante resolución razonada modificará el citado margen, de ser procedente. Posteriormente, esos estudios serán semestrales.
