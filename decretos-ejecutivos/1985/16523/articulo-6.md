@@ -1,2 +1,0 @@
-Articulo 6°-Comité Técnico:
-La Secretaria Ejecutiva de Informática contará con el auxilio de un Comité Técnico en la materia como órgano de asesoría y consulta, el cual propondrá, sugerirá y asesorará toda clase de proyectos, actividades y políticas a COPOIN y a la Secretaria Ejecutiva para el cumplimiento de sus fines. Rendirá dictámenes y evaluaciones que le soliciten los órganos mencionados y podrá contar con los recursos técnicos y humanos, equipo, espacio físico y materiales requeridos para el cumplimiento de las labores del Comité Técnico.
