@@ -1,0 +1,1 @@
+Artículo 2°-A los efectos de la presente ampliación de la declaratoria, las dependencias competentes deberán proceder, en consecuencia al debido cumplimiento de lo que se dispone por el Decreto Ejecutivo N° 27402-MP-MOPT.
