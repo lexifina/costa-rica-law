@@ -14,3 +14,4 @@ Diccionario de Imputaciones Presupuestarias del Gobierno de la República.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-17 | la propia norma |
+| 2 | 2004-12-02 | Decreto Ejecutivo 32136 (2004-12-02) |
