@@ -1,0 +1,2 @@
+Art. 4°-Para el pago de los intereses y amortización del capital, se destina el producto del impuesto á que se refiere el artículo anterior, y además la cantidad de dos mil pesos que anualmente se tomará de los fondos municipales de la comarca de Limón.
+En caso de que el producto total de los fondos que se aplicarán á este objeto, no llegare á diez y seis mil pesos, el Tesoro Nacional completará cada año la diferencia.
