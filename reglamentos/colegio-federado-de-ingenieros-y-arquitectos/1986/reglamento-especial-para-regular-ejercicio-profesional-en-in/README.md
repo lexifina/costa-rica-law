@@ -14,3 +14,4 @@ Reglamento Especial para Regular Ejercicio Profesional en Instalaciones Mecánic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-02-15 | la propia norma |
+| 2 | 1995-12-14 | Reglamento 8 (1995-12-14) |

@@ -1,1 +1,1 @@
-Artículo 6°—Al presentar los planos para su sellado, según lo que se dispone en el artículo 54 de la Ley Orgánica del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, éstos deberán ser firmados por un ingeniero mecánico, un ingeniero civil, o un arquitecto, según corresponda, siendo obligación del profesional responsable, el velar porque lo anterior se cumpla.
+Artículo 6°—(DEROGADO, por la Junta Directiva General, en sesión N° 8-95/96-G.E., de fecha 14 de diciembre de 1995).

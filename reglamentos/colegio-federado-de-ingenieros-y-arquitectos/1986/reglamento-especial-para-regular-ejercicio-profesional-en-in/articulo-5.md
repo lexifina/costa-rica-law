@@ -1,2 +1,1 @@
-Artículo 5°—Todos los Sistemas Mecánicos indicados en el artículo 2° del presente Reglamento, deben ser diseñados, supervisados e inspeccionados por un ingeniero mecánico; todos los sistemas Hidráulico-Mecánicos indicados en el artículo 3° del presente Reglamento, deben ser diseñados, supervisados e inspeccionados por un Ingeniero mecánico o un ingeniero civil.
-Los sistemas Hidráulico-Mecánicos contemplados en los puntos a) y b) del artículo 3°, con hasta 10 unidades accesorias, podrán también ser diseñados, supervisados o inspeccionados por un arquitecto.
+Artículo 5°—(DEROGADO, por la Junta Directiva General, en sesión N° 8-95/96-G.E., de fecha 14 de diciembre de 1995).
