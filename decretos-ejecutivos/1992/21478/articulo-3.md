@@ -1,0 +1,10 @@
+Articulo 3°-Para facilitar y asegurar el cumplimiento de sus objetivos, se establecen las siguientes funciones:
+- Estudiar y analizar los problemas de tránsito y formular las políticas de administración de tránsito.
+- Estudiar y analizar las consecuencias ambientales y sociales del transito, tal como contaminación y accidentes y formular estrategias para resolverlas.
+- Elaborar normas, especificaciones y procedimientos, así como preparar diseños y pIanos operacionales para resolver los problemas de tránsito, reducir al máximo sus consecuencias ambientales y resolver los problemas de seguridad vial.
+- Elaborar políticas, normas y procedimientos sobre educación vial para todo el país e implantar el ordenamiento del tránsito que sea necesario con el fin de que haya una reducción de los accidentes, para ello coordinara lo que corresponda con el Ministerio de Educación Publica y formulará las normas de capacitación técnica para la policía de transito.
+- Diseñar y poner en ejecución programas referentes a la instalación de semáforos, señales viales, marcas sobre el pavimento y otros dispositivos para el control del tránsito, así como programas de operación de tránsito para incrementar la capacidad y la seguridad viales.
+- Revisar los programas, pIanos y diseños para la construcción o mejoramiento de la infraestructura del transporte vial, para garantizar su conformidad con las políticas y estrategias de la administración del tránsito y con las normas técnicas de la Ingeniería de Tránsito.
+- Planificar las rutas y servicios de transporte público, sobre la base del análisis de la demanda y formular recomendaciones para la organización y regulación de tales servicios.
+- Preparar y presentar a conocimiento del Consejo de Seguridad Vial los presupuestos de ingreso y egresos relativos al Fondo contemplado en el articulo 10 de la Ley de Administración Vial.
+- Todas aquellas otras relativas ala ingeniería de tránsito que sean asignadas por el Ministerio de Obras Públicas y Transportes.
