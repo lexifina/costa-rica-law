@@ -15,9 +15,7 @@ DIRECTRICES GENERALES DE POLITICA PRESUPUESTARIA DEL AÑO 2000 PARA LOS MINISTER
 CAPITULO I
 Del Límite Presupuestario y Efectivo
 Artículo 1º—El gasto presupuestario y el gasto efectivo total de las entidades públicas para el año 2000, no podrán exceder los siguientes montos:
-Entidad Monto
-en millones
-de colones
+Entidad Monto en millones de colones
 Academia Nacional de Ciencias 18.9
 Centro Costarricense de Prod. Cinematográfica 49.3
 Centro Cultural Histórico José Figueres Ferrer 15.9
@@ -117,3 +115,5 @@ Teatro Melico Salazar 239.2
 Teatro Nacional 260.6
 Unid. Ejec. - Pequ. Produc. Zona Norte 8.3
 Para ajustarse a los límites establecidos en este artículo, las entidades públicas realizarán los ajustes necesarios por programa completo, o proporcionales por partida dentro de cada programa.
+(Modificase el límite presupuestario y de gasto efectivo para el 2000, establecido a la Dirección General de Museos y al Museo Nacional de Costa Rica, según el artículo 1° del Decreto Ejecutivo Nº 28837- H del 21 de julio del 2000)
+(Modificase el límite presupuestario y de gasto efectivo para el 2000, establecido a la Dirección General de Museos y al Museo Nacional de Costa Rica, según el artículo 1° del Decreto Ejecutivo Nº 28841- H del 21 de julio del 2000)

@@ -14,3 +14,4 @@ Política Presupuestaria del 2000 para Ministerios y Entidades PúblicasCubierta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-19 | la propia norma |
+| 2 | 2000-07-21 | Decreto Ejecutivo 28837 (2000-07-21) |
