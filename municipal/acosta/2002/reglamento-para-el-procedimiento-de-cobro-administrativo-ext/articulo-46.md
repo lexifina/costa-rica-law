@@ -1,0 +1,3 @@
+Artículo 46.—Obligaciones de los abogados externos o empresa jurídica al finalizar la contratación. A1 finalizar por cualquier motivo la contratación de servicios profesionales, el abogado externo respectivo, deberá remitir la totalidad de los expedientes judiciales a la Sección de Cobros de la Municipalidad, con un informe del estado actual de los mismos, y el documento respectivo de renuncia de la dirección del proceso, para que sea presentado por el nuevo abogado externo que continuará con la dirección del mismo. La Sección de Cobros de la Municipalidad, deberá haber remitido el expediente al nuevo director del proceso, en un plazo no mayor de cinco días hábiles.
+CAPÍTULO IV
+Disposiciones finales
