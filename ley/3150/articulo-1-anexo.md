@@ -35,7 +35,7 @@ EL SALVADOR-COSTA RICA
 0901.2 | Café tostado | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
 22.07 2208.90.10 | Alcohol etílico esté o no desnaturalizado | Control de importación
 HONDURAS-NICARAGUA
-0901.2 | Café tostado | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
+0901.2 | *Café tostado (*Mediante resolución N° 03-2004 la cual fue aprobada mediante decreto ejecutivo N° 31962 del 26 de julio de 2004, se resuelve incorporar al libre comercio entre Honduras y Nicaragua el café tostado (subpartida 0901.2) y eliminarlo del Anexo A del Tratado General de Integración Económica Centroamericana) | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
 22.08 | Bebidas alcohólicas destiladas | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
 27.10 27.12 27.13 27.15 | Productos derivados del petróleo. Se exceptúan los solventes minerales, comprendidos en la subpartida 2710.11 y el asfalto de la subpartida 2713.20.00 (betún de petróleo) los cuales gozarán de libre comercio entre los estados Parte. | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
 HONDURAS-COSTA RICA
