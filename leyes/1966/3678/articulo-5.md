@@ -1,0 +1,1 @@
+Artículo 5º- Cuando deban pagarse prestaciones legales por despido de un Gobernador o un Jefe Político, las subvenciones que como ejecutivo municipal haya devengado, se computarán para efectos del cálculo de las prestaciones, que quedarán, en el tanto respectivo, a cargo de la Municipalidad interesada.
