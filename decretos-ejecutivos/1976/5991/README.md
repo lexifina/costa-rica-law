@@ -13,3 +13,4 @@ Crea Oficina de Programas para la Mujer y la Familia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-05-26 | la propia norma |
+| 2 | 1976-05-26 | SINALEVI (sin norma nombrada) |
