@@ -1,0 +1,1 @@
+Artículo 7°-Cuando se cuente con la información requerida, la Autoridad Central dictará una resolución, acordando o denegando la solicitud y la comunicará al interesado, a la Representación Diplomática o Consular del Estado Administrante, a la Dirección General de Migración y Extranjería y al Juzgado de Ejecución de la Pena de la Jurisdicción

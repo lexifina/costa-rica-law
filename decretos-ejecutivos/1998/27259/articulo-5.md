@@ -1,0 +1,1 @@
+Artículo 5°-Luego de completados los requisitos de la petición señalados en el artículo 3° de este Reglamento, se solicitará al Estado Administrante su manifestación expresa sobre si aprueba o no la repatriación del interesado.
