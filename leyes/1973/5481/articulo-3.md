@@ -1,0 +1,1 @@
+Artículo 3º.- El Poder Ejecutivo deberá enviar a conocimiento de la Asamblea Legislativa el Correspondiente presupuesto extraordinario, a fin de atender la erogación que significará esta ley durante el ejercicio económico del año 1974. Para los siguientes años deberá aumentar las partidas afectadas en el Presupuesto de gastos de la República.
