@@ -6,3 +6,4 @@ Toda donación de vehículos deberá respaldarse en documentos que así lo demue
 a) Que el vehículo (s) modelo superior a 1987 sea sustituido por dos o más unidades de trabajo, sin erogación adicional. Se exceptúan las radiopatrullas que podrán permutarse según conveniencia de la Administración.
 b) Que los vehículos a recibir no se destinen en su totalidad a uso discrecional.
 *(Así adicionado mediante el artículo 1° del decreto ejecutivo N° 21149 del 17 de marzo de 1992).
+(NOTA: Mediante el decreto ejecutivo N° 21696 del 3 de noviembre de 1992, se modifica lo dispuesto en el presente artículo, "en el sentido de que la Autoridad Presupuestaria podrá autorizar, excepcionalmente, la compra, y la sustitución de vehículos cuyo modelo sea superior a 1987 o 1988, cuando existan razones especiales y sumamente justificadas").

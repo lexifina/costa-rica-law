@@ -17,3 +17,4 @@ Lineamientos Generales de Política Presupuestaria para 1992
 | 2 | 1992-01-23 | Decreto Ejecutivo 21032 (1992-01-23) |
 | 3 | 1992-03-17 | Decreto Ejecutivo 21149 (1992-03-17) |
 | 4 | 1992-05-26 | Decreto Ejecutivo 21308 (1992-05-26) |
+| 5 | 1992-11-03 | Decreto Ejecutivo 21696 (1992-11-03) |
