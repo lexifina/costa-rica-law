@@ -1,0 +1,3 @@
+Artículo 2°-Las instituciones sujetas al pago del impuesto indicado que a la fecha no hayan presentado la declaración correspondiente al primer período fiscal previsto en la Ley 7722, sea desde el día de la vigencia, 15 de enero de 1998 y hasta el 30 de setiembre de ese mismo año, podrán presentar dicha declaración y pagar el respectivo impuesto en el plazo de amnistía en la ley 7900.
+Para los períodos sucesivos, las entidades públicas referidas podrán solicitar periodos especiales para el pago del impuesto de conformidad con lo establecido por la legislación tributaria.
+Dado en la Presidencia de la República.-San José, a los dieciséis horas del veintisiete de agosto de mil novecientos noventa y nueve.

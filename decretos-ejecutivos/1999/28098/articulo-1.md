@@ -1,0 +1,10 @@
+N° 28098-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las facultades que les conceden los incisos 3) y 18) del artículo 140 de la Constitución Política, y la Ley N° 7722 de 9 de diciembre de 1997.
+Considerando:
+I.-Que en virtud de la promulgación de la Ley N° 7722 denominada “Sujeción de Instituciones estatales al pago del impuesto sobre la renta” de 9 de diciembre de 1997, el legislador consideró conveniente que determinadas instituciones estatales y empresas públicas, contribuyeran al mejoramiento de la economía nacional sujetándolas al pago del impuesto sobre la renta.
+II.-Que es imperativo decretar las medidas pertinentes para el cumplimiento del artículo 3 de la Ley de tal forma que los recursos provenientes del pago del impuesto sobre la renta que se generen al aplicar la ley, se destinen a la amortización del capital y los intereses de la deuda interna. Por tanto,
+DECRETAN:
+Artículo 1°-A efecto de establecer el excedente sujeto al impuesto sobre la renta de las instituciones indicadas en la Ley N° 7722, se considerarán ingresos brutos los constituidos por el total de los ingresos o beneficios obtenidos por las entidades como consecuencia de sus servicios y de su actividad económica y financiera, independientemente que sean exentos o no por disposición de leyes anteriores. De los mismos únicamente podrá deducirse los costos, los gastos, así como reservas de inversión y fondos de desarrollo necesarios y pertinentes para producir tales ingresos. Para tales efectos deberán demostrar mediante prueba idónea a la Administración Tributaria, la procedencia o justificación de su deducción.
+Asimismo, únicamente serán deducibles de la renta bruta, las reservas y erogaciones autorizadas en la Ley de la Autoridad Reguladora de los Servicios Públicos, número 7593 de 9 de agosto de 1996 o autorizadas por las leyes orgánicas de las respectivas instituciones o empresas, que cumplan con la condición de ser necesarios y pertinentes para la obtención de los ingresos brutos.
