@@ -1,0 +1,1 @@
+Art 9° El 12 del mismo mes se procederá a elecciones parroquiales y permanecerán abiertas por seis días. Estas elecciones se arreglarán a los artículos 31, 37, 38, 39, 40, 41, 42 y 44 de la ley citada y su adicional con la propia limitación.
