@@ -1,0 +1,1 @@
+Art 5°.- Se señala el Lunes 14 del corriente para la posesión y juramento de los Magistros propietarios arriba expresados.- Comuníquese al Supremo Poder Ejecutivo para su cumplimiento, publicación y circulación.-Por tanto: Ejecutese.- San José octubre de mil ochocientos treinta y tres
