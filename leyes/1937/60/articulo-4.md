@@ -1,0 +1,1 @@
+Artículo 4°.-El producto de este impuesto será dedicado a cubrir los gastos que demande el asilamiento de mendigos e inválidos en el Hospicio de Incurables o en otra institución similar, en el tanto correspondiente a cada provincia.

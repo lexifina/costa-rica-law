@@ -1,0 +1,1 @@
+Artículo 3°.-Mensualmente los Gobernadores enviarán a la Secretaría de Gobernación y a la de Hacienda una nómina detallada de los pasaportes que expidan y de las visaciones hechas de acuerdo con los registros y duplicados que deben llevar necesariamente como respaldo auténtico de cada pasaporte o visación que hayan extendido.
