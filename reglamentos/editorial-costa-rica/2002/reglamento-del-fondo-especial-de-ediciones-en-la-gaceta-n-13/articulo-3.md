@@ -1,0 +1,1 @@
+Artículo 3º—El fondo especial será administrado por el Departamento Financiero, y la Gerencia de la Editorial velará porque el dinero sea utilizado de acuerdo con el fin para el cual fue dado cada aporte, y según las instrucciones del Consejo Directivo en cada caso.
