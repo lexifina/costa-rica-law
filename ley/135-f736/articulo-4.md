@@ -1,0 +1,2 @@
+Art 4°.- Los efectos extrangeros o artículos estancados, que este resguardado aprehenda, serán presentados, junto con el reo o reos, al Administrador de la referida Aduana, quien distribuirá aquellos entre los aprehensores con arreglo a las leyes y demás disposiciones gubernativas vigentes.-
+Dado en el Palacio de Gobierno de San José, a los catorces días del mes de noviembre de mil ochocientos cincuenta y tres.
