@@ -1,0 +1,3 @@
+DECRETO XLVIII
+Nombra consejeros del Ministro de la Guerra a los Generales Don Lorenzo Salazar y Don Máximo Blanco.
+Jesús Jiménez, Presidente Provisorio de la República de Costa Rica, En virtud del Decreto expedido en esta fecha disponiendo que la Comandancia General del Ejercito de la República quede reasumida en el Ministerio de Guerra. Acuerdo 1° Nombrase Consejeros del Ministro de la Guerra a los Generales Don Lorenzo Salazar y Don Máximo Blanco 2° Por el Ministerio respectivo se comunicará a los Señores nombrados. Dado en el Palacio Nacional de San José, a diez de diciembre de mil ochocientos sesenta y ocho.
