@@ -13,3 +13,4 @@ MSJOSE: Del Manejo Fondos Caja Chica Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-12-10 | la propia norma |
+| 2 | 1987-03-17 | Reglamento 122 (1987-03-17) |
