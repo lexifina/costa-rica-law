@@ -1,0 +1,1 @@
+Artículo 6°-La amortización y pago de intereses de los bonos lo hará el Poder Ejecutivo utilizando el producto a que se refiere la ley N° 3632 de 16 de diciembre de 1965. (Restauración del Teatro Nacional con el producto de los impuestos sobre espectáculos públicos). La amortización anual se hará por décima partes del valor total de la emisión de bonos.

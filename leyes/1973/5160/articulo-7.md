@@ -1,0 +1,1 @@
+Artículo 7°-Las fachadas de los edificios que se construyan en la manzana en donde se encuentra ubicado el Teatro Nacional, deberán contar con el visto bueno del Departamento de Urbanismo. del Instituto Nacional de Vivienda y Urbanismo y de la Junta Directiva del Teatro Nacional.

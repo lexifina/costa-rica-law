@@ -1,0 +1,11 @@
+N° 5160
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
+DECRETA:
+Artículo 1 °-Declárase de interés público la expropiación de los siguientes terrenos ubicados en la manzana del Teatro Nacional, cuyas características son:
+I Faja de terreno en el sector Norte contiguo al Teatro Nacional:
+a) Propiedad de la señora Alice André André de Tinoco, inscrita en el Registro Público de la Propiedad, partido de San José, al tomo 566, folio 227, número 19.440 que se describe así: terreno con construcciones con frente a la calle tercera de 11. 75 m., que colinda al Norte con Alice André André de Tinoco, con 34.35 m.; al Este con Isa Colombari B., con 14.56 m.; y al Sur con el Teatro Nacional (callejón en medio), con 33.83 m. Tiene una superficie de 437 m2. = 626 v2. ;
+b) Parte de la propiedad de la señora Isa Colornbari B., inscrita en el Registro de la Propiedad, Partido de San José, tomo 690, folio 448, número 38.424, que se describe así: terreno con construcciones que colinda al Norte, resto de la propiedad con 19.50 m.; al Este con el Anexo del Teatro Nacional con 14.60 m.; al Sur con el Teatro Nacional (callejón en medio) con 20. 10 m. ; y al Oeste con la de Alice André André de Tinoco con 14.56 m. Tiene una superficie de 287 m2. = 411 v2.; Y
+c) Propiedad de Farmacia Eos S. A. inscrita en el Registro de la Propiedad, Partido de San José, al tomo 780, folio 112, número 45.849 que se describe así: terreno con construcciones, con frente de 16.40 m. a la calle quinta, colinda al Sur con el Teatro Nacional (callejón en medio) con 11.80 m.; al Oeste con el Anexo del Teatro Nacional con 15.60 m.; y al Norte con Mateo Herrero Ltda. con 11.70 m. Tiene una superficie de 187 m2. = 268 v2
+II Terreno para dar acceso al Teatro Nacional desde la Avenida Central:
+a) Lote con frente a la Avenida Central, parte de la propiedad de la señora Isa Colombari B., inscrita en el Registro de la Propiedad, Partido de San José, tomo 690, folio 448, número 38.424, que se describe así: terreno con construcciones, con frente de 9 m. a la Avenida Central, colinda al
+Oeste con 32. 11 m. resto de la propiedad; al Este con 32. 11 m. con Mateo Herrero Ltda. y Anexo del Teatro Nacional y 9 m. ; al Sur con resto de la propiedad que se expropia de acuerdo con el aparte 1 inciso b) anterior. Tiene una superficie de 289 m2. = 414 v2.
