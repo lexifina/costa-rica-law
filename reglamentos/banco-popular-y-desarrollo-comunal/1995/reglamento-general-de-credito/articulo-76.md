@@ -1,1 +1,0 @@
-Artículo 76.—El Banco ejercerá su función de fiduciario en cada fideicomiso a través de un Comité Técnico Administrativo, formado por tres personas nombradas por la Gerencia uno de los cuales debe ser un profesional en la rama de la construcción. Contarán con la asesoría del profesional responsable de la obra y un representante de la Organización Social.

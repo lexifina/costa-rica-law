@@ -1,2 +1,0 @@
-Artículo 110.—Los desembolsos del crédito a la organización de primer piso serán programados por el nivel resolutivo correspondiente y efectuados por medio de fideicomiso que la organización solicitante deberá hacer uso de cuentas corrientes, cuenta de ahorros y otros servicios del Banco.
-(Así ADICIONADO por la Sesión Extraordinaria N° 3285, celebrada el 26 de noviembre de 1996, publicada en La Gaceta N° 23 de 03 de febrero de 1997.)

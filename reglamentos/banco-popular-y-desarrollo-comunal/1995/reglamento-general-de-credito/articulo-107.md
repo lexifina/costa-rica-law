@@ -1,2 +1,0 @@
-Artículo 107.—Los créditos que otorgue la organización de primer piso, con recursos prestados por el Banco, deberán cobrar tasas de interés variables y ajustables periódicamente para lo cual utilizará como referencia las que el Banco fija en sus operaciones directas.
-(Así ADICIONADO por la Sesión Extraordinaria N° 3285, celebrada el 26 de noviembre de 1996, publicada en La Gaceta N° 23 de 03 de febrero de 1997.)

@@ -1,1 +1,0 @@
-Artículo 79.—En la liquidación de cada fideicomiso el adjudicatario de la vivienda asumirá proporcionalmente la parte correspondiente a capital, a intereses y demás costos del proyecto, constituyéndose en deudor directo del Banco.

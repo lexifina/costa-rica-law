@@ -1,1 +1,0 @@
-Artículo 90.—Todo adjudicatario deberá identificarse debidamente. Si los pagos se hacen en efectivo se les entregarán las prendas. Si pagan con cheque las prendas se entregarán ocho días hábiles después. Si la persona a quien se adjudique un bien no hace su pago en el mismo acto deberá repetirse el remate.

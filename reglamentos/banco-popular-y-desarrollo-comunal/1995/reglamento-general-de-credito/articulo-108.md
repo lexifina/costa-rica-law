@@ -1,3 +1,0 @@
-Artículo 108.—El monto máximo a financiar a la organización de primer piso será el indicado en el artículo 10 de este Reglamento. El monto máximo a financiar al usuario final, cuando se trate de personas físicas, será el que indique este Reglamento, para el respectivo plan de inversión.
-En el caso que el usuario final sea una persona jurídica sin fines de lucro, en el respectivo convenio se regulará el monto máximo de financiamiento que podría obtener en todo caso. Las disposiciones del artículo 10 de este reglamento serán aplicables tanto a la deudora directa del Banco como al usuario final.
-(Así ADICIONADO por la Sesión Extraordinaria N° 3285, celebrada el 26 de noviembre de 1996, publicada en La Gaceta N° 23 de 03 de febrero de 1997.)

@@ -1,1 +1,0 @@
-Artículo 82.—Cuando se reciban lotes de alhajas o prendas en garantía de prestamos se deberá hacer una evaluación individual de los artículos que lo componen y esa información se consignará en un formulario confeccionado para tal efecto, debiendo quedar firmado por el deudor y quien el Banco designe.

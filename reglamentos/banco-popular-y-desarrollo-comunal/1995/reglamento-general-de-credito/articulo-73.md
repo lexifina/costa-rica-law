@@ -1,1 +1,0 @@
-Artículo 73.—Para el financiamiento de esta clase de proyectos deberá constituir un contrato de fideicomiso donde el Banco actuará como fiduciario desarrollador del proyecto y las Organizaciones Sociales como fideicomitente y fideicomisario y cuyo objeto siempre será al menos el inmueble sobre el cual se desarrollará el proyecto.

@@ -1,1 +1,0 @@
-Artículo 9°—Los préstamos a que se refiere este Reglamento se cancelarán en cuotas periódicas y consecutivas no mayores a un año y comprenderán amortización, intereses, pólizas y otros. Ajuicio del Nivel Resolutivo se podrán contemplar otras formas de pago.

@@ -1,1 +1,0 @@
-Artículo 95.—Solamente en casos excepcionales debidamente fundamentados por el Jefe del Departamento y por única vez podrá suspenderse el remate de un bien que esté respondiendo por un préstamo que presente un máximo de tres meses de atraso. En lodo caso el deudor siempre estará obligado a cubrir los gastos de remate y los intereses acumulados.

@@ -1,1 +1,0 @@
-Artículo 40.—Serán sujetos de crédito para esta línea únicamente personas físicas para actividades donde no se requiere presentar plan de inversión, con la opción de tener hasta un máximo de tres créditos dependiendo de su capacidad de pago. .

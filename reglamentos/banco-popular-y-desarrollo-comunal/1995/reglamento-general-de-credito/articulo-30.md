@@ -1,3 +1,0 @@
-Artículo 30.—Es potestad del Banco supervisar los créditos en todos sus aspectos, para lo cual los deudores deberán dar toda la información y colaboración que se les solicite.
-El Analista deberá verificar la existencia de la actividad a financiar, así como la razonabilidad de los documentos que Justifiquen los ingreso del obligado. realizando visitas de campo, cuando la naturaleza de la actividad dicha o de las garantías ofrecidas así lo exijan.
-Cuando así se requiera el Banco realizará el avalúo correspondiente por medio de sus empresas consultoras, y en casos de excepción éste podrá ser realizado por personal técnico del Banco, cuyo costo será cubierto por el solicitante.

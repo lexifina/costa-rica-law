@@ -1,1 +1,0 @@
-Artículo 37.—Se entenderá que todo deudor del Banco conoce las disposiciones de este reglamento y que el mismo formará parte del contrato que suscriba. Esta circunstancia se deberá consignar en el documento que se firme al efecto.

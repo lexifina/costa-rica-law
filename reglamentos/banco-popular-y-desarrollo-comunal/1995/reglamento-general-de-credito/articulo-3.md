@@ -1,1 +1,0 @@
-Artículo 3°—Las solicitudes de crédito superiores a ¢ 20.000.000, de quienes de conformidad con los lineamientos de la Auditoría General de Entidades Financieras, califiquen como clientes Categoría A, serán tramitadas por los Departamentos de Crédito Comercial y Organizaciones Sociales según corresponda de acuerdo con su calificación.

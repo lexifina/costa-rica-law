@@ -1,3 +1,0 @@
-Artículo 70.—En el caso de que se determine algún incumplimiento en el plan de inversión aprobado tanto en aspectos técnicos como administrativos u de otra índole, queda el Banco facultado para exigir la corrección. En caso contrario se podrá dar por vencida la obligación y proceder a su cobro.
-El plazo para corregir cualquier anomalía durante el período de construcción del proyecto será no mayor a quince días hábiles después de comunicado a la constructora, pudiendo ampliarse en 15 días hábiles más dependiendo de la gravedad del problema, a criterio de la Jefatura correspondiente.
-De no cumplirse las indicaciones en el período indicado, queda el Banco facultado a suspender los giros, denunciar las anomalías a las entidades correspondientes y proceder a su cobro,

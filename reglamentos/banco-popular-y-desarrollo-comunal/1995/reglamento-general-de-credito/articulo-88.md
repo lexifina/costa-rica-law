@@ -1,1 +1,0 @@
-Artículo 88.—La base para el remate de un artículo será el valor asignado al bien al momento de hacer el préstamo más los intereses acumulados, los gastos de avalúo, publicación y remate, así como otros.

@@ -1,2 +1,0 @@
-Artículo 54.—Serán sujetos de crédito para vivienda aquellas personas que tengan constituido un núcleo familiar o personas solas con capacidad de pago por sí mismas y que no hayan solucionado su necesidad de vivienda.
-En las líneas de crédito de vivienda únicamente se podrá tener vigente un crédito. Sin embargo, el Comité Gerencial podrá aprobar posteriores préstamos por razones de fuerza mayor, o bien para solventarla necesidad de vivienda del núcleo familiar al que pertenece el solicitante, en casos debidamente justificados y comprobados.

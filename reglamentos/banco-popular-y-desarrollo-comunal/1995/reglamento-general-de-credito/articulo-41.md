@@ -1,1 +1,0 @@
-Artículo 41.—Para el servicio de Crédito Automático, el cálculo de los préstamos se realizará considerando los saldos promedio del ahorro voluntario a la vista de los últimos 5 meses, multiplicado por cinco.
