@@ -1,1 +1,1 @@
-Artículo 34°- Para lo imprevisto en esta Ley, las sociedades anónimas laborales se regirán por las normas del Código de Comercio que les sean aplicables.
+Artículo 34°- El Ministerio de Planificación Nacional y Política Económica incluirá entre sus prioridades de cooperación técnica internacional, a partir de la vigencia de esta Ley, todo lo relativo a la financiación de programas para el desarrollo de las sociedades anónimas laborales.

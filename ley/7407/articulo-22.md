@@ -1,1 +1,2 @@
-Artículo 22°- Los miembros de la junta directiva de una sociedad anónima laboral con más de cincuenta socios, no podrán ser parientes entre sí hasta el segundo grado de consanguinidad o afinidad, inclusive; tampoco podrán tener relación de parentesco con el gerente o con sus principales administradores y contralores, incluido el auditor.
+Artículo 22°- Los negocios sociales serán administrados o dirigidos por una junta directiva o por un administrador único. La junta directiva estará formada por un mínimo de tres miembros, socios o no, que ostentarán las calidades de presidente, secretario o tesorero.
+Para la elección de la junta directiva, se aplicará el sistema de voto acumulativo establecido en el artículo 181 del Código de Comercio.

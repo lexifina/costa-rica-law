@@ -1,7 +1,4 @@
-Capítulo Cuarto
-De los Beneficios y los Incentivos
-Artículo 26°- Las sociedades anónimas laborales tendrán:
-a) Derecho a contratar la venta, la adquisición o la distribución de bienes y servicios, en igualdad de condiciones, preferentemente con el Estado.
-b) Derecho a obtener en forma prioritaria, todos los programas y los cursos impartidos por el Instituto Nacional de Aprendizaje, en las diferentes ramas de la producción.
-c) Derecho a que el Estado impulse nuevos programas de capacitación y asistencia técnica y les dé prioridad a las sociedades anónimas laborales. A estas también se les aplicará el régimen crediticio o impositivo más favorable vigente, para fomentar la microempresa y la pequeña industria.
-ch) Derecho a que su nombre lo registre de oficio y libre del pago de derechos, el Registro de la Propiedad Industrial; para los efectos del Convenio Centroamericano de Protección a la Propiedad Industrial, Ley No. 4543 del 18 de marzo de 1970, y de la Ley de Marcas No. 559, del 24 de junio de 1946 y sus reformas.
+Capítulo Tercero
+De las Nulidades y Sanciones
+Artículo 26°- Perderá la condición de sociedad anónima laboral la que, durante su funcionamiento, exceda los límites que, para la posesión de acciones y la participación en el capital social, se fijan en los artículos 1 y 5 de esta Ley, así como los correspondientes a la contratación de trabajadores asalariados a los que se refiere el artículo anterior.
+Una vez que el Ministerio de Trabajo y Seguridad Social, se entere de esa situación, lo advertirá a la sociedad anónima laboral para que ésta rectifique en un plazo no superior a los tres meses. Si la sociedad no rectifica, se dictará una resolución mediante la cual se ordenará descalificarla en el Registro de Sociedades Anónimas Laborales, y remitirá certificación de ello al Registro Mercantil y al Ministerio de Hacienda. Mediante una nota marginal, el Registro Mercantil hará constar la descalificación producida.

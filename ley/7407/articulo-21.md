@@ -1,2 +1,1 @@
-Artículo 21°- Los negocios sociales serán administrados o dirigidos por una junta directiva o por un administrador único. La junta directiva estará formada por un mínimo de tres miembros, socios o no, que ostentarán las calidades de presidente, secretario o tesorero.
-Para la elección de la junta directiva, se aplicará el sistema de voto acumulativo establecido en el artículo 181 del Código de Comercio.
+Artículo 21°- En segunda convocatoria, la asamblea extraordinaria se constituirá, válidamente, con la presencia de un tercio de las acciones representadas. Las resoluciones se tomarán por más de la mitad de los votos presentes.
