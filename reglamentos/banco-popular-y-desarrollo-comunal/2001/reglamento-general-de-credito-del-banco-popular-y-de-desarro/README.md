@@ -22,3 +22,4 @@ Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal.
 | 7 | 2004-02-02 | Reglamento 0 (2004-02-02) |
 | 8 | 2004-05-06 | Reglamento 4208 (2004-05-06) |
 | 9 | 2004-09-16 | Reglamento 4243 (2004-09-16) |
+| 10 | 2004-10-11 | Reglamento 4250 (2004-10-11) |
