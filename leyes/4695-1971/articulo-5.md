@@ -1,0 +1,1 @@
+Artículo 5º.- Al margen de los resúmenes el Registro anotará, mediante razones suscritas por el Jefe de la Oficina, las resoluciones de ésta o de los Tribunales o los acuerdos del Ministerio de Gracia que afecten los asientos.

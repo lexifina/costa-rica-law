@@ -1,0 +1,1 @@
+Artículo 15.- Toda solicitud de certificación contener los datos necesarios para que el Registro pueda identificar a la persona y determinar si aparece o no con juzgamientos y el Jefe de la Oficina podrá exigir los detalles que estime pertinentes con ese propósito.

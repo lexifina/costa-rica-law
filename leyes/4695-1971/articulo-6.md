@@ -1,0 +1,3 @@
+Artículo 6º.- El Juez o autoridad de la causa, háyase suspendido o no la condena, una vez firme la sentencia, remitirá un resumen de ésta al Registro Judicial, que comprenderá todos los datos indicados en el artículo 4º.
+El Registro devolverá a la oficina de origen los resúmenes que no contengan los datos fundamentales para la identificación de la persona sentenciada. La omisión o el retardo en el envío de tales resúmenes de sentencia, implicará para el Jefe del Registro la obligación de poner en conocimiento de la Corte Plena, la cual corregirá disciplinariamente al culpable de la falta.
+Para no incurrir en omisión o retardo, tendrá hasta treinta días improrrogables para el envío de los resúmenes.

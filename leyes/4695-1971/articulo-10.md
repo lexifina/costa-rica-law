@@ -1,0 +1,1 @@
+Artículo 10.- Cancelado un asiento o cuando se trate del correspondiente a sentencia donde se ha otorgado el beneficio de la suspensión condicional de la pena, no podrá certificarse, excepto que lo solicite expresamente una autoridad judicial con motivo de un nuevo proceso.
