@@ -12,6 +12,8 @@ las inversiones en el marco del Programa de Ajuste Estructural. Se
 integran al Convenio el Anexo A "El Programa y el proyecto" y el
 Anexo B "Procedimiento de adquisiciones para operaciones de ajuste
 sectorial", cuyos textos se anexan como parte de esta Ley.
+(NOTA: el artículo 3º de la ley No.7625 de 6 de setiembre de 1996
+señala un destino diferente para los fondos de este programa)
 ................................................................
 Préstamo Nº 742/OC-CR
 Resolución Nº DE-41/93

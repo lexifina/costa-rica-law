@@ -34,15 +34,13 @@ las municipalidades; uno de los servidores públicos y otro de las
 universidades públicas. Los miembros de la Junta Directiva no
 devengarán dietas ni percibirán ninguna remuneración adicional por
 su desempeño en relación con el Fondo.
-Los recursos que constituirán este Fondo provendrán del
-crédito aprobado en el artículo 2 de la presente Ley, por el monto
-equivalente en colones hasta de quince millones de dólares
-estadounidenses (US$15.000.000). De ellos, hasta cinco millones de
-dólares estadounidenses (US$5.000.000), provendrán del desembolso
-del primer tramo; hasta cinco millones de dólares estadounidenses
-(US$5.000.000), del desembolso del segundo tramo y hasta cinco
-millones de dólares estadounidenses (US$5.000.000), del desembolso
-del tercer tramo de ese crédito.
+Los recursos que constituirán este Fondo provendrán de la asignación
+presupuestaria, que el Poder Ejecutivo hará en los presupuestos
+ordinarios de la República correspondientes a los ejercicios de 1997 y
+1998, por una suma total de trescientos millones de colones
+(300.000.000,00).
+(Así reformado este párrafo por el artículo 1º de la ley No.7625
+de 6 de setiembre de 1996)
 Además, sus actividades podrán financiarse con donaciones y
 aportes.
 Los recursos de este Fondo se destinarán a financiar becas y

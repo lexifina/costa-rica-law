@@ -28,16 +28,19 @@ Ministro del sector y tres de los sectores más representativos de
 la provincia de Limón. Los miembros de la Junta Directiva no
 devengarán dietas ni percibirán ninguna remuneración adicional por
 su desempeño en relación con el Fondo.
-Los recursos que constituirán este Fondo provendrán del
-crédito aprobado en el artículo 2 de la presente Ley, por el monto
-equivalente en colones hasta de quince millones de dólares
-estadounidenses (US$15.000.000). De ellos, hasta tres millones de
-dólares estadounidenses (US$3.000.000) provendrán del primer
-desembolso; hasta seis millones de dólares estadounidenses
-(US$6.000.000), del segundo desembolso y hasta seis millones de
-dólares estadounidenses (US$6.000.000), del tercer desembolso de
-ese crédito. Además, sus actividades podrán financiarse con
-donaciones y aportes.
+Los recursos que constituirán este Fondo provendrán del crédito
+aprobado en el artículo 2 de la presente ley, por el monto equivalente en
+colones de diez millones de dólares estadounidenses (US$ 10.000.000,00),
+provenientes por partes iguales del primer y segundo desembolsos del
+contrato de préstamo 739/OC-CR. De tales recursos el fondo destinará la
+mitad (US$ 5.000.000,00) exclusivamente a constituir, por medio de uno de
+los bancos comerciales del Estado, un Fideicomiso para la promoción del
+desarrollo humano de la provincia de Limón, con el fin de conceder becas
+para estudiantes de la provincia, para lo cual se suscribirá un convenio
+de administración del programa de becas con la Comisión Nacional de
+Préstamos para la Educación (CONAPE).
+(Así reformado este párrafo sexto por el artículo 1º de la ley
+No.7910 de 3 de agosto de 1999)
 Por medio de escritura pública, la Procuraduría General de la
 República inscribirá la personería y la representación legal aquí
 establecidas.
