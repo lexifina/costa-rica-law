@@ -1,0 +1,1 @@
+Artículo 8º—Los miembros del Consejo de Administración del CECAP ejercerán funciones por un período de dos años, contados a partir de la fecha de su nombramiento, y se renovarán parcialmente de la siguiente manera: El presidente, el tesorero y el primer vocal, en el año par; el secretario, el segundo vocal y el fiscal, en el año impar.

@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros del Consejo de Administración del CECAP devengarán dieta por sesión a la que asistan, equivalente a 75% (setenta y cinco por ciento) del valor de la que perciben los miembros de la Junta Directiva del Colegio, de acuerdo con el puesto.
