@@ -1,0 +1,5 @@
+ARTICULO 17
+Cumplimiento de actos diplomáticos por funcionarios consulares
+1. En un Estado en que el Estado que envía no tenga misión diplomática y en el que no esté representado por la de un tercer Estado, se podrá autorizar a un funcionario consular, con el consentimiento del Estado receptor y sin que ello afecte a su status consular, a que realice
+actos diplomáticos. La ejecución de esos actos por un funcionario consular no le concederá derecho a privilegios e inmunidades diplomáticas.
+2. Un funcionario consular podrá, previa notificación al Estado receptor, actuar como representante del Estado que envía cerca de cualquier organización intergubernamental. En el cumplimiento de esas funciones tendrá derecho a gozar de todos los privilegios e inmunidades que el derecho internacional consuetudinario o los acuerdos internacionales concedan a esos representantes. Sin embargo, en el desempeño de cualquier función consular no tendrá derecho a una mayor inmunidad de jurisdicción que la reconocida a un funcionario consular en virtud de la presente Convención.

@@ -1,0 +1,3 @@
+ARTICULO 62
+Franquicia aduanera
+El Estado receptor, con arreglo a las leyes y reglamentos que promulgue, permitirá la entrada con exención de todos los derechos de aduana, impuestos y gravámenes conexos, salvo los gastos de almacenaje, acarreo y servicios análogos, de los siguientes artículos, cuando se destinen al uso oficial de una oficina consular dirigida por un funcionario consular honorario: escudos, banderas, letreros, timbres y sellos, libros, impresos oficiales, muebles y útiles de oficina y otros objetos análogos, que sean suministrados a la oficina consular por el Estado que envía, o a instancia del mismo.
