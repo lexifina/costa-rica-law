@@ -14,3 +14,4 @@ Reglamento General del Instituto sobre Alcoholismo y Farmacodependencia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-12-22 | la propia norma |
+| 2 | 1998-07-20 | Decreto Ejecutivo 27190 (1998-07-20) |
