@@ -1,0 +1,5 @@
+Capítulo Tercero
+De Las Nulidades y Sanciones
+Artículo 25°- Perderá la condición de sociedad anónima laboral la que, durante su funcionamiento, exceda los límites que, para la posesión de acciones y la participación en el capital social, se fijan en los artículos 1 y 5 de esta Ley, así como los correspondientes a la contratación de trabajadores asalariados a los que se refiere el artículo anterior.
+Una vez que el Ministerio de Trabajo y Seguridad Social, se entere de esa situación, lo advertirá a la sociedad anónima laboral para que ésta rectifique en un plazo no superior a los tres meses. Si la sociedad no rectifica, se dictará una resolución mediante la cual se ordenará descalificarla en el Registro de Sociedades Anónimas Laborales, y remitirá certificación de ello al Registro Mercantil y al Ministerio de Hacienda.
+Mediante una nota marginal, el Registro Mercantil hará constar la descalificación producida.

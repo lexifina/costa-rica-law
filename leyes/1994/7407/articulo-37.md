@@ -1,0 +1,2 @@
+Artículo 37°- Esta Ley es de interés público y regirá a partir de su publicación.
+TRANSITORIO UNICO.- Autorízase, al Poder Ejecutivo para contratar un empréstito con organismos internacionales, hasta por una suma equivalente a veinte millones de dólares estadounidenses (US$20.000.000), que se destinará a financiar líneas de crédito para las sociedades anónimas laborales. Estos recursos serán administrados por el Banco Popular y de Desarrollo Comunal.

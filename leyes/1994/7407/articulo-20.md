@@ -1,0 +1,1 @@
+Artículo 20°- En segunda convocatoria, la asamblea extraordinaria se constituirá, válidamente, con la presencia de un tercio de las acciones representadas. Las resoluciones se tomarán por más de la mitad de los votos presentes.

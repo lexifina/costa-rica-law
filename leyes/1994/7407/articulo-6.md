@@ -1,0 +1,3 @@
+Artículo 6°- El Estado y sus instituciones no podrán participar en el capital de las sociedades anónimas laborales cuando estas se establezcan para otorgar concesiones o contratar con el Estado la prestación de servicios menores o auxiliares.
+En las sociedades anónimas laborales que otorguen concesiones o contraten la prestación de servicios públicos fundamentales, el Estado o la institución competente podrá participar hasta con un veinte por ciento (20%) del capital social de la empresa, por un plazo máximo de tres años.
+Esa participación deberá venderse en las condiciones establecidas en el artículo 11, referente al traspaso de acciones en favor de terceros.

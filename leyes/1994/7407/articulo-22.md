@@ -1,0 +1,1 @@
+Artículo 22°- Los miembros de la junta directiva de una sociedad anónima laboral con más de cincuenta socios, no podrán ser parientes entre sí hasta el segundo grado de consanguinidad o afinidad, inclusive; tampoco podrán tener relación de parentesco con el gerente o con sus principales administradores y contralores, incluido el auditor.
