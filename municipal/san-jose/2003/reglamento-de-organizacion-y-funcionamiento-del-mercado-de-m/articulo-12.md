@@ -1,0 +1,1 @@
+Artículo 12.—En este mercado se permite el ingreso y circulación de carretas para el transporte de productos a los sitios de destino, conforme a las disposiciones que al efecto establezca el Administrador del Mercado. Una vez descargados los productos, los mismos deberán desalojar el área.

@@ -1,0 +1,4 @@
+La Municipalidad del Cantón Central de San José, de conformidad con las atribuciones que le confieren los numerales 169 y 170, de la Constitución Política, 1, 2, 3, 4, incisos a), c) y f), 13, inciso c) y 43, del Código Municipal y la Ley N° 4138, del 1° de julio de 1965, dicta el presente Reglamento de Organización y Funcionamiento del Mercado de Mayoreo, que se regirá por las siguientes disposiciones:
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Para su actuación en el Mercado de Mayoreo, la Municipalidad de San José, se regirá por lo establecido en los numerales 169 y 170, de la Constitución Política, el Código Municipal en lo que resulte aplicable, la Ley Nº 4138, del 1º de julio de 1965 y este Reglamento. Como normativa supletoria, se aplicará el Reglamento General de Mercados de la Municipalidad de San José, en todo lo no dispuesto en el texto de este reglamento y que sea compatible.

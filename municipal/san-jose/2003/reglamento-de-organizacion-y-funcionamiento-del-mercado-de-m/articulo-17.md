@@ -1,0 +1,1 @@
+Artículo 17.—Queda terminantemente prohibido a los pisohabientes construir o colocar estructuras fijas en los espacios que utilizan, dado que por la naturaleza jurídica del derecho de piso, solamente se les permite colocar estructuras no permanentes o portátiles.

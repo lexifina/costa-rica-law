@@ -1,0 +1,1 @@
+Artículo 11.—Como excepción de lo dispuesto en el artículo 10, en casos de fuerza mayor, caso fortuito o cuando a juicio de la Municipalidad, la medida sea aconsejable y necesaria, se podrá acordar la no prestación del servicio del mercado, sin previa notificación a los interesados, atendiendo el interés público.

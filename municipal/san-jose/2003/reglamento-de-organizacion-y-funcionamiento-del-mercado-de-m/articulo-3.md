@@ -1,0 +1,1 @@
+Artículo 3º—El Mercado se ubica en el inmueble, sito en la Ciudad de San José, avenida diez, contiguo al costado este del Edificio José Figueres Ferrer, el cual fue creado para la venta al por mayor de productos agropecuarios y de pesca, en San José, según lo dispuesto en la Ley Nº 4138, del 1º de julio de 1965.
