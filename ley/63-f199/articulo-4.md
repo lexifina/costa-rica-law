@@ -1,0 +1,2 @@
+Art. 4°-Autorízase al Poder Ejecutivo para que garantice el empréstito de que se ha hecho referencia.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintisiete días del mes de julio de mil ochocientos ochenta y ocho. -ANDRÉS VENEGAS.-MANUEL J. JIMÉNEZ, Secretario.-FÉLIX GONZÁLEZ, Prosecretario.-Palacio Presidencial.-San José, á los veintiocho días del y ocho.- mes de julio de mil ochocientos ochenta Ejecútese.-BERNARDO SOTO.-El Secretario de Estado en el despacho de lo Interior, P. PÉREZ ZELEDÓN
