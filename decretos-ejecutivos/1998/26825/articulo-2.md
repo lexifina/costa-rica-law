@@ -1,0 +1,1 @@
+Artículo 2°—Las áreas que de acuerdo con los estudios realizados por el Instituto Nacional de Vivienda y Urbanismo, estén comprendidas dentro de las áreas de uso urbano o tengan otro uso de acuerdo a planes reguladores, no estarán sometidas a las regulaciones del presente decreto.

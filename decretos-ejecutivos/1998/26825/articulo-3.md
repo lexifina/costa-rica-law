@@ -1,0 +1,1 @@
+Artículo 3°—Para realizar dentro del Refugio, un plan de aprovechamiento forestal, un proyecto de reforestación o que se pretenda dar un cambio de uso al suelo, se deberá elaborar el respectivo plan de manejo que deberá contar con la aprobación de la Dirección General Forestal, del Ministerio de Ambiente y Energía, a través del Área de Conservación OSA.
