@@ -1,0 +1,1 @@
+Artículo 16°.-La designación de los casos a los ahogados estará a cargo del Jefe del departamento de Rentas y Cobranzas o por el designado por la Alcaldía Municipal la cual ejercerá control estricto del rol y de que los abogados cumplan con la presentación de los informes respectivos. Sobre cualquier anomalía que se presente avisará oportunamente a la Dirección.

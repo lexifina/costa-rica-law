@@ -1,0 +1,1 @@
+Artículo 11°.-Por Cobro Judicial se entiende toda aquella gestión que se realice para la recuperación de las cuotas dejadas de pagar por los contribuyentes, una vez que la cuenta se le asigne al abogado.

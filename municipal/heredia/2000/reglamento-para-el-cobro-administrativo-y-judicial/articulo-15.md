@@ -1,0 +1,1 @@
+Artículo 15°.-Recibidas las certificaciones que constituyen el título ejecutivo, la Sección de Cobro Administrativo y Judicial las distribuirán entre los abogados, tomando en cuenta el rol alfabético que al efecto se establezca. La entrega de certificaciones a los profesionales se hará contra recibo en un libro que se llevará para esa finalidad.
