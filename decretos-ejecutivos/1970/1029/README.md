@@ -15,3 +15,4 @@ Reglamento del Comité Arancelario
 | --- | --- | --- |
 | 1 | 1970-07-04 | la propia norma |
 | 2 | 1971-09-29 | Decreto Ejecutivo 1990 (1971-09-29) |
+| 3 | 1981-06-22 | Decreto Ejecutivo 12714 (1981-06-22) |

@@ -1,2 +1,2 @@
-Artículo 13.-Los miembros propietarios del Comité o los suplentes, cuando actúen en vez de aquéllos, devengarán por sesión dietas de cien colones. Serán remuneradas únicamente las sesiones ordinarias y la partida para el pago correspondiente, deberá ser incluida en el Presupuesto Ordinario de la República de cada ejercicio fiscal.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 1990 del 29 de setiembre de 1971)
+Artículo 13.-Los miembros propietarios del Comité o los suplentes, cuando actúen en vez de aquéllos, lo mismo que el representante de la Cámara de Agentes de Aduana, devengarán por sesión dietas de trescientos colones. Serán remuneradas únicamente las sesiones ordinarias y la partida para el pago correspondiente deberá ser incluida en el Presupuesto Ordinario de la República de cada ejercicio fiscal .
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12714 del 22 de junio de 1981)
