@@ -1,0 +1,1 @@
+Artículo 4º—Una vez recibida la solicitud y su documentación en debida forma, la Dirección del SINAES la remitirá al Consejo Nacional de Acreditación para su conocimiento, a efecto de incorporar a la universidad interesada como adherente del SINAES.
