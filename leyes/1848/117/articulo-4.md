@@ -1,0 +1,1 @@
+Art. 4. Despues de transcurrido el término que fija el artículo 1° de este decreto no se atenderà reclamo alguno por perjuicios recibidos en el concepto dicho. -Dado en la ciudad de San José, primero de agosto de mil ochocientos cuarenta y ocho. -José Maria Castro. -Al Ministro de hacienda guerra y marina Señor Don Manuel José Carazo.
