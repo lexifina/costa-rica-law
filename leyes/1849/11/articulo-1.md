@@ -1,0 +1,5 @@
+DECRETO XI.
+Suspende la ejecucion del articulo 1° de la ley n° 40 de 19 de diciembre de 1848 que prohibe la venta de mercaderias en las calles y plazas. (2)
+(2) Ver el decreto n° 8 de 24 de agosto de este mismo año.
+Habiendo tomado en consideracion el escrito presentado por varios buhoneros solicitando se estienda tres meses mas el término señalado en el artículo 10 de la ley de 19 de diciembre último, y atendiendo á que por la actual escasez de numerarios dichos buhoneros no han podido realizar en el indicado término la mayor parte de sus géneros, ni llenar por esta causa sus compromisos contraidos con los mercaderes por mayor: deseoso de evitar unos y otros los perjuicios que en tales circunstancias les sobrevinieran por verificarse desde luego la supresion de las buhonerías, de acuerdo con la Comisión permanente y en uso de la facultad que me confiere el § 3 del artículo 77 de la Constitución, decreto:
+Art. único.-Se suspende, por el término improrogable de dos meses, la ejecucion del artículo 1° de la ley número 40 espedida por el Congreso de la República en 19 de diciembre de año próximo pasado.
