@@ -13,3 +13,4 @@ Reglamento a la Ley de Abanderamiento de Barcos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1971-10-02 | la propia norma |
+| 2 | 1971-10-02 | Decreto Ejecutivo 18354 (1988-06-22) |

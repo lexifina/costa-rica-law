@@ -1,4 +1,2 @@
-Artículo 1º.- De conformidad con las disposiciones de la ley Nº 12
-del 22 de octubre de 1941 y sus reformas, el presente Reglamento
-regulará el abanderamiento de barcos nacionales dedicados al servicio
-externo o tráfico internacional.
+(NOTA DE SINALEVI: Mediante artículo 1° del decreto ejecutivo N° 18354 de 22 de junio de 1988, se dispuso modificar este decreto, a fin de que se entienda que la competencia en materia de regulación y control de transporte marítimo internacional, de cabotaje y por vías de navegación interior, que en este decreto se atribuyen el Ministerio de Hacienda y a la Dirección General de Hacienda, corresponden en realidad al Ministerio de Obras Públicas y Transportes y a la Dirección General de Transporte por Agua, respectivamente.)
+Artículo 1º.- De conformidad con las disposiciones de la ley Nº 12 del 22 de octubre de 1941 y sus reformas, el presente Reglamento regulará el abanderamiento de barcos nacionales dedicados al servicio externo o tráfico internacional.
