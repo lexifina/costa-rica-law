@@ -1,0 +1,1 @@
+Artículo 21.—Se establece el Cupón de Registro de la Bitácora de Obra que será cancelado al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica junto con la inscripción de los contratos de consultoría de la siguiente manera: pagara quince céntimos por cada mil colones del monto del valor tasado.

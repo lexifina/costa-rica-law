@@ -1,11 +1,6 @@
-Artículo 20.—Se establece el cupón de registro de la bitácora de obra que será cancelado al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica junto con la inscripción de los contratos de consultoría:
-Monto del contrato | Valor del cupón
-Menos de ¢1.000.000,00 | ¢ 100,00
-De ¢1.000.000,00 a menos de ¢2.000.000,00 | 200,00
-De ¢ 2.000.000,00 a menos de ¢5.000.000,00 | 500,00
-De ¢5.000.000,00 a menos de ¢10.000.000,00 | 1.000,00
-De ¢10.000.000,00 a menos de ¢20.000.000,00 | 2.500.00
-Más de ¢20.000.000,00 |
-(Aprobado por la Junta Directiva General del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica. en sesión No 49-G.E. del 18 de octubre de 1988. Este Reglamento deroga el aprobado por Junta Directiva General en sesión No 45-G.E. del 27 de julio de 1982).
-Este Reglamento entrará en vigencia treinta días después de su publicación en "La Gaceta".
-San José, noviembre de 1988.
+Artículo 20.—Las anotaciones del Cuaderno de Bitácora debe concluir con las siguientes indicaciones:
+a) Fecha de conclusión
+b) Constancia de habérsele entregado al propietario un juego de planos conteniendo todos los cambios efectuados durante la construcción, de tal forma que los mismos reflejen el estado final de la obra. Los costos correrán por cuenta del propietario.
+c) Deberá dar constancia del correcto funcionamiento de todos los equipos y sistemas electromecánicos, que forman parte de la obra.
+d) Área o características principales de la construcción y su costo final.
+e) Que la bitácora tenga un cierre final, que la misma se firme por el dueño aceptando la obra y por él o los profesionales.

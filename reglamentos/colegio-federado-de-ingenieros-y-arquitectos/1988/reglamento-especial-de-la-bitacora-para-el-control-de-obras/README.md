@@ -14,3 +14,4 @@ Reglamento Especial de la Bitácora para el Control de Obras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-12-21 | la propia norma |
+| 2 | 1997-04-10 | Reglamento 22 (1997-04-10) |

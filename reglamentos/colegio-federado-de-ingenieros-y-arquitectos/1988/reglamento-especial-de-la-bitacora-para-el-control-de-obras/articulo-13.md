@@ -1,1 +1,1 @@
-Artículo 13.—Sólo las personas señaladas en los artículos 9°, 10, 11 y 12 de este Reglamento Especial y para los fines y propósitos indicados podrán consignar las observaciones pertinentes a su gestión.
+Artículo 13.—Sólo las personas señaladas en los artículos 9°, 10,11 y 12 de este Reglamento Especial para los fines y propósitos indicados, podrán consignar las observaciones pertinentes a su gestión. El profesional responsable de la Bitácora está en la obligación de vigilar que solamente las personas indicadas en este artículo utilicen la Bitácora.
