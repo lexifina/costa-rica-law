@@ -1,0 +1,1 @@
+Artículo 11.—Transmisión. Mediante endoso del título, el Procurador General de la República, o en su defecto, la persona debidamente autorizada por éste, entregará a la autoridad judicial la garantía solicitada para hacer frente al respectivo embargo preventivo.

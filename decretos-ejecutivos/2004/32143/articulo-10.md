@@ -1,0 +1,1 @@
+Artículo 10.—Registro contable. La Tesorería Nacional informará a la Contabilidad Nacional por los medios que resulten más eficientes de cada emisión realizada en atención al presente decreto, con el propósito de que realice el respectivo registro contable como parte de la deuda contingente.

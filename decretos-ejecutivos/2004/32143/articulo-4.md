@@ -1,0 +1,1 @@
+Artículo 4º—Tipo de título. La Tesorería Nacional emitirá, para tales efectos Títulos de Propiedad del Gobierno denominados “Cero Cupón”, los cuales se emiten sin cupones de intereses y están concebidos para ser negociados por descuento. Al efecto la Tesorería Nacional creará una serie específica y exclusiva para ser utilizada con los propósitos indicados.

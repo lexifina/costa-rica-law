@@ -1,0 +1,1 @@
+Artículo 2º—Del mecanismo a utilizar. Para efectos de cumplir con las garantías establecidas en el artículo 273 del Código Procesal Civil, la Tesorería Nacional emitirá títulos valores, de conformidad con las disposiciones del presente decreto, con fundamento en las solicitudes que le remita la Procuraduría General de la República.
