@@ -1,0 +1,9 @@
+ARTICULO 8
+Exención de Medidas Excepcionales
+Con respecto a las medidas excepcionales que puedan adoptarse contra
+la persona, los bienes o los intereses de nacionales o exnacionales de un
+Estado extranjero, los Estados Contratantes no aplicarán tales medidas a
+los apátridas únicamente por haber tenido la nacionalidad de dicho Estado.
+Los Estados Contratantes que en virtud de sus leyes no puedan aplicar el
+principio general expresado en este artículo, otorgarán, en los casos
+adecuados, exenciones en favor de tales apátridas.
