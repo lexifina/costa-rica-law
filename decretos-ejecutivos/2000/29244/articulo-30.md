@@ -1,0 +1,1 @@
+Artículo 30.—Defensas. Las excepciones deberán ser interpuestas con la contestación de la demanda. Las previas serán resueltas en la siguiente sesión del Tribunal. Las de fondo deberán ser resueltas en la resolución del acto final.

@@ -1,0 +1,1 @@
+Artículo 4º—Integración. El Tribunal Administrativo de Conflictos Deportivos, estará integrado por cinco miembros, profesionales en Derecho y de preferencia con experiencia en la tramitación de asuntos judiciales. Cada miembro será nombrado por el Consejo Nacional del Deporte y la Recreación.

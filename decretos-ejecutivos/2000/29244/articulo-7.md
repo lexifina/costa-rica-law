@@ -1,0 +1,1 @@
+Artículo 7º—Sustituciones. Las vacantes serán suplidas por personas designadas por el Consejo Nacional del Deporte y la Recreación mediante ternas sugeridas por el mismo Tribunal, debiendo cumplir los suplentes los mismos requisitos exigidos para los titulares.

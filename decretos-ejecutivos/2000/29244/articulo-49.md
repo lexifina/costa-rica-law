@@ -1,0 +1,1 @@
+Artículo 49.—Nulidad de actos posteriores. Anulado un acto procesal, serán nulos también todos los posteriores que de aquel dependan. Al hacer la declaratoria, el Tribunal establecerá a cuales alcanzará la nulidad y ordenara las diligencias necesarias con el fin de que sean repetidos o rectificados.

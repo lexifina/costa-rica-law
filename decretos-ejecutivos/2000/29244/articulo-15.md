@@ -1,0 +1,1 @@
+Artículo 15.—Voto contrario. Los miembros del Tribunal podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que los justifiquen, quedando en tal caso exentos de las responsabilidades que en su caso, pudieren derivarse de los acuerdos.

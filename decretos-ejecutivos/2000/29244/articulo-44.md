@@ -1,0 +1,1 @@
+Artículo 44.—Deserción. Se declarará desierto el proceso cuando no se hubiere instado su curso en el plazo de dos meses. Las gestiones que no tiendan a la efectiva prosecución no interrumpirán el plazo indicado. El denunciante no podrá pedir deserción.

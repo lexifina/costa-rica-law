@@ -1,0 +1,1 @@
+Artículo 10.—Sesiones. El Tribunal sesionará hasta un total de seis veces en un mes en las oficinas del ICODER, salvo circunstancias especiales a criterio del Tribunal. El Instituto brindará el apoyo necesario para el cumplimiento de las funciones.

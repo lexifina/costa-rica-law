@@ -1,0 +1,6 @@
+TÍTULO II
+Partes y Legitimación
+CAPÍTULO I
+De las partes
+Artículo 22.—Legitimación y partes. Podrá acudir al Tribunal Administrativo de Conflictos Deportivos todo aquel que tenga interés legítimo o un derecho subjetivo que pueda resultar directamente afectado o lesionado en materia deportiva, laboral deportiva y patrimonial de índole deportiva. Los entrenadores, jugadores, deportistas, atletas y dirigentes deportivos, sin perjuicio de poder acudir a las instancias previas establecidas por las respectivas asociaciones, federaciones o sociedad anónima deportiva, podrán plantear las diferencias patrimoniales que tengan, independientemente de la naturaleza jurídica de la relación contractual, siempre que se originen en obligaciones de carácter deportivo, laboral o patrimonial deportivo con una asociación, federación o sociedad anónima deportiva, reconocida como tal por el Consejo Nacional del Deporte y la Recreación y surgida con ocasión de la práctica del deporte y la recreación.
+En materia deportiva estarán obligados a agotar la vía interna como paso previo para solicitar la intervención del Tribunal, salvo que el conflicto sea de carácter laboral o patrimonial, en cuyo caso se podrá asistir directamente al Tribunal.

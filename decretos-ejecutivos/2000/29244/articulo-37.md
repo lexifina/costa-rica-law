@@ -1,0 +1,1 @@
+Artículo 37.—De la reclamación interpuesta se dará un plazo de una a tres horas, para que la parte recurrida presente sus descargos, salvo que el Tribunal determine un plazo mayor debido a las circunstancias de la litis. El recurrido contestará cumpliendo los mismos requisitos que el recurrente.

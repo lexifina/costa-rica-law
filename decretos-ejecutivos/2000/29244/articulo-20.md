@@ -1,0 +1,1 @@
+Artículo 20.—Nulidad de votación. Fuera de las relativas a la inhibición o separación, es nula cualquier resolución que dictare el Tribunal cuando concurra un integrante con impedimento, siempre que el motivo conste en el expediente respectivo o sea del conocimiento del integrante.

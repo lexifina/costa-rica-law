@@ -1,0 +1,1 @@
+Artículo 19.—Inhibición. En los procesos en que un miembro del Tribunal estuviere impedido conforme las causales establecidas en esta normativa, deberá el miembro inhibirse, para que los otros miembros del Tribunal, sin trámite alguno, lo declaren separado y procedan a reponerlo conforme se establece en este Reglamento.

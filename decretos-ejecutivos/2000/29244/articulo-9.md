@@ -1,0 +1,1 @@
+Artículo 9º—Dietas. Los miembros del Tribunal Administrativo de Conflictos Deportivos devengarán una dieta del 75 por ciento de las dietas percibidas por los miembros del Consejo Nacional del Deporte y la Recreación.

@@ -1,0 +1,1 @@
+Artículo 32.—Aplicación. El procedimiento establecido en los artículos precedentes se aplicará en el proceso ordinario. En casos excepcionales, a criterio del Tribunal, se aplicará el procedimiento sumario.

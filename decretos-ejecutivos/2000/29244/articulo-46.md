@@ -1,0 +1,1 @@
+Artículo 46.—Oportunidad para alegarla. La nulidad de los actos procesales no podrá reclamarla la parte que haya gestionado después de causada. La protesta deberá describir el defecto y proponer la solución correspondiente, dentro del plazo de tres días después de producida, si el motivo de la nulidad constare en el expediente o fuere del conocimiento de la parte.

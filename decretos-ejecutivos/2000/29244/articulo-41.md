@@ -1,0 +1,1 @@
+Artículo 41.—La resolución del acto final, agota la vía administrativa de previo para acudir a la vía judicial. No será necesario la consulta establecida en el Artículo 356 inciso 1 de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 51.—Recursos. Las resoluciones en las que se declare la nulidad y aquellas en las que se deniegue o se rechace de plano la nulidad, pero al mismo tiempo se ordene reponer un trámite o corregir una actuación, no tendrá más recurso que el de revocatoria.

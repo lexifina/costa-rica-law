@@ -1,0 +1,1 @@
+Artículo 3º—Competencia. El Tribunal será competente para conocer y resolver las diferencias que se presenten para su conocimiento, ya sea por acciones u omisiones que transgredan la materia deportiva o laboral y patrimonial de índole deportivo, como trámite previo para acudir a la vía judicial.

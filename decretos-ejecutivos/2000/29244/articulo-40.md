@@ -1,0 +1,1 @@
+Artículo 40.—En los procesos sumarios el Tribunal resolverá después de recibida la contestación, evacuando toda la prueba que se encuentre en el expediente. Esta resolución se dictará siempre y cuando las circunstancias lo permitan, en la siguiente sesión del Tribunal.

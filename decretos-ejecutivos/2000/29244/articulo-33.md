@@ -1,0 +1,1 @@
+Artículo 33.—Audiencia. Para evacuar la prueba, el Tribunal podrá dar una audiencia oral y privada a las partes, salvo en casos excepcionales a criterio del Tribunal en que se podrá dar más de una audiencia.

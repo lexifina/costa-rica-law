@@ -1,0 +1,1 @@
+Artículo 43.—Conciliación. Las partes podrán, en cualquier etapa del proceso, presentar ante el Tribunal los acuerdos conciliatorios u otra transacción, la cual será homologada por éste y producirá los efectos de cosa juzgada.
