@@ -1,0 +1,1 @@
+Artículo 4º—Se autoriza al Ministerio de Cultura, Juventud y Deportes, así como a los demás ministerios, instituciones y empresas públicas para destinar recursos o efectuar donaciones a las Municipalidades de la provincia de Guanacaste, con el objeto de celebrar y divulgar la fiesta nacional referida en esta ley.

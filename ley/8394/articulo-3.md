@@ -1,0 +1,1 @@
+Artículo 3º—Las Municipalidades de la provincia de Guanacaste podrán destinar fondos a fin de celebrar la fecha señalada en el artículo 1 de esta Ley; para esto necesitarán la aprobación de la Contraloría General de la República.

@@ -1,0 +1,2 @@
+Artículo 5º—Las Comisiones de Cultura de las Municipalidades de la provincia de Guanacaste serán las encargadas de coordinar la celebración oficial del Día del Sabanero en su respectivo cantón, debiendo presentar al consejo municipal, dentro de los noventa días posteriores a su celebración, un informe contable de lo recibido y utilizado en la realización de la citada festividad.
+Rige a partir de su publicación.
