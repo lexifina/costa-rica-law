@@ -1,0 +1,2 @@
+DECRETO XXIX
+En el Senado y la Cámara de Representantes de la República de Costa Rica, reunidos en Congreso, Decretan: Artículo único. – El Congreso Nacional cierra en esta fecha sus sesiones ordinarias. – Al Poder Ejecutivo. Dado en el Salón de Sesiones. – Palacio Nacional. – San José, a veintinueve de julio de mil ochocientos sesenta y ocho. Palacio Nacional, San José, a treinta y uno de julio de mil ochocientos sesenta y ocho.
