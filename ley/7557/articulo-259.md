@@ -1,5 +1,4 @@
-Artículo 259.- Aplicación del párrafo segundo del artículo 20 del Acuerdo relativo a la aplicación del artículo VII del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994
-El Poder Ejecutivo retrasará la aplicación del párrafo 2 b) iii) del artículo 1 y del artículo 6, ambos relativos a la determinación
-del valor en aduana mediante un valor reconstruido, por un período que no exceda de los tres años contados a partir del 1° de enero del año 2000, de conformidad con las disposiciones del segundo párrafo del artículo 20 del Acuerdo relativo a la aplicación del artículo VII del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994.
+Artículo 259.- Aplicación del párrafo segundo del artículo 20 del Acuerdo relativo a la aplicación del artículo VII del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994.
+El Poder Ejecutivo retrasará la aplicación del párrafo 2 b) iii) del artículo 1 y del artículo 6, ambos relativos a la determinación del valor en aduana mediante un valor reconstruido, por un período que no exceda de los tres años contados a partir del 1° de enero del año 2000, de conformidad con las disposiciones del segundo párrafo del artículo 20 del Acuerdo relativo a la aplicación del artículo VII del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994.
 El Poder Ejecutivo realizará la comunicación formal al Directo General de la Organización Mundial de Comercio.
-(Así adicionado por el artículo 1de la Ley N° 8013 del 18 de agosto del 2000)
+(Así adicionado por el artículo 1° de la ley N° 8013 del 18 de agosto del 2000)
