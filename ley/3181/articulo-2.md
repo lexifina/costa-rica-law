@@ -1,0 +1,1 @@
+Artículo 2°-Autorízase a la Municipalidad de Goicoechea a hipotecar al Banco de Costa Rica, hasta por la suma de cien mil colones (¢ 100,000.00), el inmueble que le pertenece, inscrito en el Registro Público de la Propiedad, Partido de San José, tomo 377, folio 405, número 26.636, asiento 1.
