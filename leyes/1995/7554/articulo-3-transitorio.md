@@ -1,0 +1,1 @@
+Transitorio III.- La Comisión interinstitucional de control y evaluación de estudios de impacto ambiental, creada mediante el Decreto Ejecutivo No. 23783- MIRENEM, del 28 de octubre de 1994, pasará a ser la Secretaría Técnica Nacional Ambiental que se crea mediante el artículo 83 de esta ley.

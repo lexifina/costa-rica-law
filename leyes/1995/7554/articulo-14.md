@@ -1,0 +1,6 @@
+ARTICULO 14.- Participación de medios de comunicación colectiva
+Los organismos estatales encargados de dictar las políticas
+ambientales promoverán la creación de los instrumentos necesarios para que
+los medios de comunicación colectiva, con base en la función social que
+ejercen, favorezcan la formación de una cultura ambiental hacia el
+desarrollo sostenible de los habitantes de la Nación.

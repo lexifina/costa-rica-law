@@ -1,0 +1,5 @@
+ARTICULO 67.- Contaminación o deterioro de cuencas hidrográficas
+Las personas, físicas o jurídicas, públicas o privadas, estarán
+obligadas a adoptar las medidas adecuadas para impedir o minimizar la
+contaminación o el deterioro sanitario de las cuencas hidrográficas, según
+la clasificación de uso actual y potencial de las aguas.

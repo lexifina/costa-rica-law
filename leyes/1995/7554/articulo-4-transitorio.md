@@ -1,0 +1,2 @@
+Transitorio IV.- Para cumplir con lo dispuesto en el artículo 88 de esta ley, cinco de los miembros nombrados cesarán en sus cargos cumplidos tres años de su nombramiento y los otros cinco permanecerán seis años. Todos podrán ser reelegidos y después de la reelección, serán nombrados por períodos de seis años.
+Dado en la Presidencia de la República.-San José, a los cuatro días del mes de octubre de mil novecientos noventa y cinco.

@@ -1,0 +1,4 @@
+ARTICULO 58.- Fuentes energéticas alternas
+Para propiciar un desarrollo económico sostenible, la autoridad
+competente evaluará y promoverá la exploración y la explotación de fuentes
+alternas de energía, renovables y ambientalmente sanas.
