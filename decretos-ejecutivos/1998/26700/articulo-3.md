@@ -1,0 +1,1 @@
+Artículo 3°—Durante el periodo de publicación del decreto y la fijación de los nuevos límites de gasto por parte de la Autoridad Presupuestaria, RACSA se regirá por los límites de gasto establecidos en el decreto ejecutivo N° 26006-H.
