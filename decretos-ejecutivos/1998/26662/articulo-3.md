@@ -1,0 +1,1 @@
+Artículo 3°—En el cumplimiento de esta modalidad de horario los servidores de la unidad administrativa en que laboran, deberán concurrir a prestar los servicios en forma simultánea en un período mínimo de cuatro horas diarias, sin dejar de cumplir el número de horas de servicio efectivo establecido en los Reglamentos Autónomos de Servicio respectivos.
