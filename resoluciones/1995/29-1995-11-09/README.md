@@ -14,3 +14,4 @@ Credito Fiscal por Adquisición de Cemento y Otros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-01 | la propia norma |
+| 2 | 1996-03-15 | Resolución 3 (1996-03-15) |

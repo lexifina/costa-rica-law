@@ -8,3 +8,4 @@ Producto | Factor
 6. Durpanel | 0.088794
 7. Pinturas y especialidades varias (locales, de Centroamérica y Panamá )(*) (*)(En el caso de la importación de pinturas y especialidades varias provenientes de Centroamérica y panamá el factor aplicable entre las fechas de 1° de marzo y 30 de junio ambas de 1995 es de 0.082979 y del 1° de julio al 18 de setiembre ambos de 1995 es de 0.088771. | 0.088771
 8. Pinturas y especialidades varias (resto del mundo) | 0.082979
+(Nota de Sinalevi: Mediante el artículo 2° de la resolución N° 03/96 del 15 de marzo de 1996, se establece lo siguiente: "... Asimismo quedan sin efecto los factores para cuantificar el crédito fiscal de las mercancías antes dichas que se incorporan en la fabricación de mercancías gravadas o exentas, estipulados en las Resoluciones No 29-95 y 30-95 de fecha 9 de noviembre de 1995, publicadas en "La Gaceta" No 226 del 28 de noviembre de 1995 y No 227 del 29 de noviembre de 1995, respectivamente...")
