@@ -1,0 +1,33 @@
+MUNICIPALIDAD DE SAN RAFAEL DE HEREDIA
+PERÍODO 1998-2002
+ADDEMDUM AL REGLAMENTO PARA EL COBRO DEL IMPUESTOS A CQNGESIONARIOS POR LA EXPLOTACIÓN DE TAJOS Y CANTERAS SITUADAS EN EL CANTÓN DE SAN RAFAEL DE HEREDIA
+Considerando:
+1°-Que conforme lo establece el artículo 36 del Código de Minería, todo concesionario de explotación de cantera, debe cancelar una tasa de 10% del valor en el mercado, por metro cúbico extraído de arena, piedra, lastre y derivados de éstos, a la Corporación Municipal, en cuya jurisdicción se encuentre la explotación.
+Cada seis meses, el concesionario deberá presentar al expediente administrativo, constancia extendida por la Municipalidad correspondiente indicando que se encuentra al día con el pago de la tasa indicada.
+2°-Que las tasas serán canceladas a favor de la tesorería de la corporación municipal, en el lugar y en la forma que ésta lo determine.
+La falta de pago de este impuesto se considerará como defraudación fiscal, sujeta a la penas establecidas en el Código Fiscal. Además, quien incurra en esta falta deberá pagar una multa, a favor de la Municipalidad correspondiente, equivalente a diez veces el valor de la suma defraudada.
+3°-Que el incumplimiento a lo anterior, será causal de cancelación de conformidad con el artículo 63 del Código de Minería, Ley N° 6797 del 4 de octubre de 1982, el cual establece "La concesión de explotación podrá ser cancelada, sí el titular no cumple con las condiciones estipuladas en la resolución de otorgamiento de acuerdo con esta ley y su reglamento". Por tanto,
+El Concejo Municipal de San Rafael de Heredia, acuerda ampliar los alcances de lo dispuesto en el Reglamento para el cobro del Impuesto a Concesiones por la Explotación de Tajos y Canteras Situadas en el Cantón y publicado en el Diario La Gaceta del viernes 22 de diciembre del 2000. Para que en adelante esta ampliación llevará el nombre de Resolución Addendum y se deberá cumplir en todos sus extremos.
+1- Determinación del valor de mercado. Para determinar el valor de mercado la Municipalidad realizará mensualmente por medio de su Notario Público o el que ella asigne, el levantamiento de una acta en por lo menos dos a tres tajos del Gran Área Metropolitana en donde se consigne el precio de venta de los productos que se extraen del tajo o cantera, como arena, lastre, piedra y derivados de éstos.
+2- Del pago del tributo
+a) En lo sucesivo y debido control del impuesto, el sujeto pasivo depositará en la caja recaudadora de la municipalidad o depositará en la cuenta corriente que se asigne para tal efecto en un Banco del Sistema Bancario Nacional, quien abrirá una cuenta corriente a nombre de la Municipalidad de San Rafael de Heredia, la cual se llevará con firmas mancomunadas estando en todos los caso el Alcalde y el Tesorero Municipal, esto para ajustamos al articulo 17 capítulo 11 de la Ley N° 1279 de la Administración Financiera que dice textualmente "Todo funcionario o persona que recaude fondos de cualquier naturaleza pertenecientes al Erario, deberá depositarios diariamente en el Banco que actúe como Cajero, o en la Tesorería Auxiliar de su jurisdicción. La suma bruta recaudada deberá depositarse sin rebajas ni deducciones de ninguna naturaleza. Son prohibidas las compensaciones de egresos con ingresos o viceversa."
+b) El contribuyente está en la obligación de enviar por fax al número que se le asigne, diariamente un detalle de lo extraído, número de metros cúbicos y tipo de material.
+3- Declaración de la cual estipula el artículo 6° del "Reglamento para el Cobro del Impuesto a Concesiones por la Explotación de Tajos y Canteras Situadas en el Cantón de San Rafael de Heredia".
+En adelante se tendrá por recibida por las siguientes vías:
+1- Correo certificado
+2- Entrega directamente a las oficinas de la Municipalidad a la secretaria del Alcalde, la cual recibirá y sellará anotando en el documento la hora y fecha de recibido, esta misma trasladará el documento donde corresponda para el respectivo cotejo, en el detalle el contribuyente deberá aportar copia de los enteros del Banco para determinar los pagos, o recibos de la municipalidad cuando se hayan realizado en la tesorería municipal.
+4- Del sistema de facturación y control.
+En lo sucesivo el sistema de facturación se realizará de la siguiente manera:
+1- Las facturas deberán estar timbradas o autorizadas por la
+Tributación Directa, conforme lo establece el articulo 3 de la Resolución DG784 del 28-9-88 de la Dirección General de Tributación Directa.
+2- Aportar copia ante el Alcalde o la persona que se asigne de la solicitud de la confección de las facturas de la imprenta manufacturera y copia de una factura sin llenar la cual se archivará para control interno de la municipalidad.
+3- En todos los casos el explotador de la cantera o tajo entregará copia de la factura timbrada o autorizada al inspector de unidades y medidas cuando el producto salga de la cantera o tajo.
+5- Registro especial. El concesionario está obligado a llevar un libro registro especial de extracciones o de compras, el mismo deberá presentarlo ante la municipalidad, especialmente a la secretaria del Alcalde, para sellar cada folio el cual deberá estar totalmente numerado y en todos los casos se sellará cada hoja. Además este auxiliar cuando se presente ante la secretaria se le sacará copia del mismo, a fin de evitarles atrasos al contribuyente, y con las copias se realizará el respectivo cotejo.
+La falta de este auxiliar implica que se pueda imponer una multa al concesionario de cinco salarios mínimos y serán cancelados en el Banco asignado o en la caja de la tesorería municipal.
+6- Falta de presentación de la declaración:
+a) Si la declaración es considerada incompleta o no es presentada, el Alcalde contratará un geólogo en minería a fin de determinar la cantidad de extracciones y conjuntamente con el acta del notario que indique el precio de mercado de los productos extraídos con
+b) Devengará intereses de mora en el pago de un dos por ciento mensual.
+c) Por la no presentación de la declaración se establece una multa de cinco salarios mínimos.
+d) La falta de presentación o pago de los impuestos municipales de la explotación del tajo o cantera es causa para dar por terminado el contrato de explotación y la municipalidad podrá poner en licitación la explotación del mismo, para esto no cabe ningún recurso de apelación ni subsidio por cuanto quien faltó al requerimiento fue el explotador del tajo o cantera y no el sujeto pasivo conforme al artículo 63 del Código de Minería.
+Rige a partir de diez días después de su publicación.
+San Rafael, 30 de agosto del 2001.
