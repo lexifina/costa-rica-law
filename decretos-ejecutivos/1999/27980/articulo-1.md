@@ -1,0 +1,9 @@
+27980-S
+EL PRESIDENTE DE LA REPUBLICA Y EL MINISTRO DE SALUD,
+En uso de las facultades que les confiere los artículos 140 incisos 3) y 18) de la Constitución Política; 25 inciso 1), 27 y 28 párrafo segundo inciso b) de la Ley Nº 6227 de 2 de mayo de 1978 "Ley General de la Administración Pública"; 1, 2, 4, 7, 196 y siguientes, de la Ley Nº 5395 de 30 de octubre de 1973 "Ley General de Salud", 2 inciso b) y 6 de la Ley Nº 5412 de 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud"; la Ley 7472 de 20 de diciembre de 1994 "Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor"; Ley Nº 7473 de 20 de diciembre de 1994 "Ley de Ejecución de los Acuerdos de la Ronda Uruguay"; Ley Nº 7474 de 20 de diciembre de 1994 "Ley de Aprobación del Tratado de Libre Comercio Estados Unidos Mexicanos-Costa Rica"; y la Ley Nº 7475 de 20 de diciembre de 1994 "Ley de Aprobación del Acta Final en que se Incorporan los Resultados de la Ronda Uruguay de Negociaciones Comerciales Multilaterales".
+Considerando:
+1°—Que la salud de la población es un bien de interés público tutelado por el Estado.
+2°—Que el mejor modo de proteger a los consumidores de los efectos tóxicos es con la ingestión de alimentos de buena calidad y en condiciones sanitarias.
+3º—Que varias investigaciones científicas realizadas en animales de laboratorio, han demostrado que la presencia de aflotoxinas en alimentos, en altas concentraciones, tienen un efecto cancerígeno, lo cual hace recomendable regular la cantidad presente en los alimentos. Por tanto,
+Decretan:
+Artículo 1º—El nivel máximo de aflotoxinas en el maíz (Zea mays); el arroz (Oryza sativa); el frijol (Phaseolus vulgaris); el trigo (Triticum aestivum) y otros cereales, oleaginosas y leguminosas en general, que se suministren al consumidor final y a las industrias productoras o fabricantes de alimentos no podrá superar los 20 ug/kg, de acuerdo con lo recomendado por el Codex Alimentarius.
