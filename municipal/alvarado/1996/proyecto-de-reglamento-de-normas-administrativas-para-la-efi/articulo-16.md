@@ -1,0 +1,1 @@
+Artículo 16.-La Municipalidad entregará los formularios durante el mes de setiembre. Los patentados deberán entregar la declaración a más tardar el 5 de diciembre en la Oficina de Rentas. Si esa fecha fuere día inhábil, se podrá entregar en el día hábil siguiente.

@@ -1,0 +1,2 @@
+Artículo 20.-Cuando dos o más personas físicas o jurídicas que para efectos del impuesto sobre la renta tengan responsabilidades, separadas y operen en un mismo local, con una única actividad y una patente, serán consideradas como responsables solidarios ante la Municipalidad.
+Cuando en un local dos o más personas realicen diferentes actividades, serán consideradas en forma separada para efectos del pago del tributo.

@@ -1,0 +1,1 @@
+Artículo 22.-Aquellas personas físicas o jurídicas cuya actividad en el Cantón tenga carácter subsidiario, deberán calcular los ingresos generados por esta actividad, deduciendo lo que ha declarado en los restantes cantones y en el cantón donde esté el centro de operaciones.

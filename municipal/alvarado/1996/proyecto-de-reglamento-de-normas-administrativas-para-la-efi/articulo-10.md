@@ -1,0 +1,1 @@
+Artículo 10.-Cuando el permiso de funcionamiento esté condicionado a un plazo fijo, el vencimiento del mismo obliga al interesado a la renovación de este, la cual deberá tramitarse conforme lo establecido en el Capítulo 11 de este Reglamento.

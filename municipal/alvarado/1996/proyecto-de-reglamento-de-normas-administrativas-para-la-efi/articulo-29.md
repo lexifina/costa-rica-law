@@ -1,0 +1,1 @@
+Artículo 29.-Cuando el patentado planteare ante la Dirección General de Tributación Directa o ante el Tribunal Fiscal Administrativo, un recurso relacionado con la declaración del impuesto sobre la Renta y el mismo fuere declarado con lugar, la administración deberá proceder a realizar cualquier ajuste que tal declaratoria implicare en relación con el impuesto de patentes.

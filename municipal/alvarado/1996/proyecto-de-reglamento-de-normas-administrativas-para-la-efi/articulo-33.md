@@ -1,0 +1,1 @@
+Artículo 33.-Para aquellas actividades que no hayan operado durante todo el período fiscal correspondiente a una declaración, se proyectarán las ventas brutas anuales con base en el promedio mensual desde el inicio de labores hasta el 30 de setiembre siguiente.
