@@ -1,1 +1,0 @@
-Artículo 4º.- Se considerará que no han asistido a la correspondiente sesión, los diputados que no concurran a formar el quórum, que abandonen su asiento sin autorización del Presidente, o que rompan el quórum necesario para sesionar.
