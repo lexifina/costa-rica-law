@@ -1,0 +1,1 @@
+Artículo 3º.-Se permitirá el uso de formulaciones específicas de insecticidas órganoclorados para el combate de hormigas zompopas, cuando dichas formulaciones estén debidamente autorizadas por el Ministerio de Agricultura y Ganadería.

@@ -1,0 +1,1 @@
+Artículo 4º.-Se prohíbe el uso de forrajes, granos u otros similares en la alimentación de animales cuando éstos han sido tratados durante su cultivo o en almacenamiento con insecticidas órganoclorados de alta persistencia.
