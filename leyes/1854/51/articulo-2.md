@@ -1,0 +1,1 @@
+Art 2°.- Las notificaciones deben hacerse en el término perentorio de veinticuatro horas, sea o no feriado el día, y en caso de no encontrarse la persona por la primera vez se observará lo dispuesto en los artículos 62 y 95 de la ley de enjuiciamiento.
