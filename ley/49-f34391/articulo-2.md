@@ -1,0 +1,2 @@
+Art. 2°-El Gobierno tiene el derecho de sacar cuantas copias necesite de dicha carta, quedando reservada al Señor Figueroa la propiedad de ella.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintinueve días del mes de julio de mil ochocientos ochenta y cuatro. -JN. M. CARAZO, Presidente.-MAURO FERNÁNDEZ, Secretario.-AND. SÁENZ, Pro-secretario. Palacio Presidencial. -San José, á veintinueve de julio de mil ochocientos ochenta y cuatro.-Ejecútese. P. FERNÁNDEZ. -El Secretario de Estado en el Despacho de Hacienda:-BERNARDO SOTO.
