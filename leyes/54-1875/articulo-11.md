@@ -1,0 +1,3 @@
+Artículo 11°
+La presente Convención será ratificada y las ratificaciones serán canjeadas en Roma en el término de doce meses, ó antes si fuese posible.
+En fe de lo cual los dos Plenipotenciarios lo han firmado y sellado por duplicado en liorna á seis de Mayo de mil ochocientos setenta y tres. (F.) Conde de Lindemann.—(F.) Visconti Venosta.—Al Poder Ejecutivo.— Dado en el Salón de sesiones.— Palacio Nacional. San José, Julio veinticuatro de mil ochocientos setenta y cinco.— Manuel A. Bonilla, Presidente.—Juan Rafael Mata, Secretario.—Juan J. Borbon. Secretario.— Palacio Nacional. San José, Setiembre catorce de mil ochocientos setenta y cinco.—ejecútese.—T. Guardia.—El Secretario de Estado en el Despacho de Relaciones Exteriores, Vicente Herrera.
