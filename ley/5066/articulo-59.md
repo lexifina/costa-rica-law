@@ -1,6 +1,1 @@
-Artículo 59.- Las personas que ocupen los carros en calidad de
-pasajeros deberán observar durante el viaje la compostura y orden debidos
-y acatar las disposiciones del conductor. Los viajeros tendrán derecho a
-que el conductor o policía hagan salir del tren a todo el que, por su
-falta de compostura, palabras o acciones, ofenda el decoro de los demás,
-altere el orden o produzca disturbios o disgustos.
+Artículo 59.- Las personas que ocupen los carros en calidad de pasajeros deberán observar durante el viaje la compostura y orden debidos y acatar las disposiciones del conductor. Los viajeros tendrán derecho a que el conductor o policía hagan salir del tren a todo el que, por su falta de compostura, palabras o acciones, ofenda el decoro de los demás, altere el orden o produzca disturbios o disgustos.

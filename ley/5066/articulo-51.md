@@ -1,4 +1,1 @@
-Artículo 51.- Ninguna empresa de ferrocarril podrá variar el curso de
-los ríos, canales, arroyos y fuentes, cuando construya, reconstruya o
-modifique una vía, excepto con autorización escrita de los organismos
-públicos competentes.
+Artículo 51.- Ninguna empresa de ferrocarril podrá variar el curso de los ríos, canales, arroyos y fuentes, cuando construya, reconstruya o modifique una vía, excepto con autorización escrita de los organismos públicos competentes.
