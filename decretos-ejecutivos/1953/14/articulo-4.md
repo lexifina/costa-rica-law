@@ -1,7 +1,8 @@
 CAPÍTULO II
 Funciones y Atribuciones
 Artículo 4°—Para ejercer la dirección general de la enseñanza y la cultura, el Consejo tendrá las siguientes atribuciones, de acuerdo con el artículo 4° de la ley:
-a) La planificación de los edificios escolares. Para ello podrá contar con la colaboración del Ministerio de Obras Públicas y, cuando sea oportuno, creará un departamento que tenga ese trabajo a su cuidado;
+a) La planificación de los edificios escolares. Para ello podrá contar con la colaboración de la Sección de Estudios de Edificios Escolares del Departamento de Investigación y Estadística del Ministerio;
+(Así reformado por el artículo 9° del decreto ejecutivo N° 3 del 23 de enero de 1967)
 b) Conocer de los proyectos relativos a la creación de nuevos tipos de escuelas y colegios. Para esto contará con el asesoramiento de las autoridades de Educación Pública, el de profesores y maestros cuando fuere oportuno y el de otras instituciones, cuya colaboración podrá solicitar si fuere necesario;
 c) Incrementar la Educación Pública, para lo cual podrá contar con el asesoramiento que estime necesario de los técnicos y de los funcionarios;
 d) Procurar la integración del sistema educativo del país—legislación, planes de estudio, programas, administración, etc.—. Para tal efecto podrá pedir a los funcionarios del ramo que formulen los proyectos y, si lo cree necesario, los llamará para oír informaciones;

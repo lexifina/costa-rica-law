@@ -14,3 +14,4 @@ Reglamento del Consejo Superior de Educación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1953-09-06 | la propia norma |
+| 2 | 1967-01-23 | Decreto Ejecutivo 3 (1967-01-23) |
