@@ -1,6 +1,6 @@
 TITULO II
-Protocolos
+PROTOCOLOS
 CAPITULO I
-Disposiciones generales
+Disposiciones Generales
 Artículo 29.- Los protocolos serán libros encuadernados de cien folios, con hojas de papel sellado de cincuenta céntimos cada una.
-La Administración Rentas Nacionales suministrará tales libros a los notarios previo el pago correspondiente.
+La Administración de Rentas Nacionales suministrará tales libros a los Notarios previo el pago correspondiente.
