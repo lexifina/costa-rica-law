@@ -1,0 +1,4 @@
+Artículo 86.- Queda terminantemente prohibido recurrir a cualquier
+medio o procedimiento de coacción moral o de otro género en la cobranza
+de las cuotas y sólo será dable valerse de medios persuasivos que en
+forma discreta ejerciten los Patronatos ante los contribuyentes.

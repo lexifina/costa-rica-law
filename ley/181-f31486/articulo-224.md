@@ -1,0 +1,9 @@
+Artículo 224.- Si todas estas penas fueren ineficaces para obligar
+al padre, tutor o encargado a cumplir con la obligación escolar, perderá
+la potestad que ejerciere sobre el niño, y se confiará a otra persona
+la guarda de éste.
+La declaración de pérdida de la potestad sólo puede hacerla el
+Gobernador de la Provincia, previo expediente en que se comprueben
+sumariamente los hechos con audiencia del reo. De la sentencia que
+recaiga habrá apelación, y en defecto de ésta, consulta para ante la
+Secretaría de Educación Pública.

@@ -1,0 +1,11 @@
+Artículo 244.- La Secretaría de Salubridad, por medio del Consejo
+Nacional de Nutrición organizará un servicio de desayuno gratuito para
+los alumnos de las escuelas de la República, especialmente en las de
+carácter rural más acentuado y en aquellas cuyos estudiantes pertenezcan
+a las clases más necesitadas.
+El desayuno escolar gratuito estará sobre todo integrado con los
+productos nacionales más convenientes a la salud y a la higiene de los
+escolares. Se dedicará especial atención a aquellos alimentos proteicos
+que se produzcan o puedan producirse con facilidad en el país y que no
+sean consumidos por desconocimiento del pueblo respecto de su verdadero
+valor nutritivo.

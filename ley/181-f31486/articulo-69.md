@@ -1,0 +1,7 @@
+Artículo 69.- Con el objeto de constituir en la forma determinada
+el Fondo Nacional de Educación, la Secretaría de Hacienda al finalizar
+cada trimestre en el año económico y apenas la Contabilidad Nacional
+determine la cantidad que en concepto de rentas de licores, aduanas y
+destace, corresponde a las Juntas de Educación en el respectivo
+trimestre, dará orden a la Administración de Rentas para que haga de la
+cuenta general del Tesorero Público, el traspaso respectivo.

@@ -1,0 +1,4 @@
+Artículo 92.- El Consejo Agrícola Escolar informará de sus
+actividades al Patronato, y cuando tuviere necesidad de recaudar y
+manejar fondos, lo hará por medio del Tesorero del Patronato y de
+acuerdo con las prescripciones establecidas por este decreto.

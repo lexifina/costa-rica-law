@@ -1,0 +1,7 @@
+Artículo 478.- Los asociados participan dentro de los fines de la
+Asociación de todas las ventajas de cualquier índole que de allí se
+deriven sin distinción alguna; y es obligación de ellos el estricto
+cumplimiento de los estatutos y de las reglamentaciones internas por lo
+que hace a los cuerpos que la constituyen, debiendo procurar por todos
+los medio a su alcance que la Asociación progrese día con día y se
+mantenga con la dignidad que compete a los educadores.

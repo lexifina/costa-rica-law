@@ -1,0 +1,5 @@
+Artículo 218.- Aparte del libro expresado en el artículo 215 se
+abrirá anualmente en cada escuela un registro de asistencia escolar, que
+contendrá las indicaciones necesarias sobre asistencia de los alumnos,
+grado de su clase, aprovechamiento, conducta y demás puntos que
+determinen los reglamentos.

@@ -1,0 +1,8 @@
+Artículo 418.- La Secretaría de Educación Pública recabará los
+informes que juzgue convenientes, y dictará resolución formal
+reconociendo la validez oficial solicitada, siempre que el Colegio de
+que se trata comprenda en su plan de estudios las asignaturas que
+considera fundamentales el artículo 272 anterior de este Código, con
+igual número de horas lectivas por asignaturas al que establece dicho
+artículo, y que cuente además con edificios amplios, higiénicos y
+adecuados para las necesidades de la segunda enseñanza.

@@ -1,0 +1,10 @@
+Artículo 36.- Las Juntas de Educación tienen plena personalidad
+jurídica para contratar y para comparecer ante los Tribunales de
+Justicia. El Presidente de las mismas es el representante legal nato
+de ellas, judicial y extrajudicialmente, y los contratos que celebre
+y actos en que intervenga a nombre de la Junta, serán válidos bajo su
+personal responsabilidad.
+Para la constitución de apoderado certificará el Presidente el
+nombramiento hecho por la Junta y la suma de atribuciones que haya
+concedido: la certificación ha de ser refrendada por el Secretario y
+debe llevar el cúmplase de la autoridad superior del cantón.

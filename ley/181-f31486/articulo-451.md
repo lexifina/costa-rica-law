@@ -1,0 +1,4 @@
+Artículo 451.- Las resoluciones del Patronato se tomarán por
+mayoría absoluta de votos de sus miembros, con excepción del caso
+indicado en el aparte 2º del artículo siguiente, en que se requiere la
+concurrencia de cinco votos para adjudicar las becas a que se refiere.

@@ -1,0 +1,5 @@
+Artículo 78.- Podrán los Patronatos establecer Reposterías
+Escolares para las necesidades de los alumnos. Los alimentos y bebidas
+que allí se vendan, estarán vigilados directamente por el Director de
+la escuela y, si fuere del caso por, la autoridad sanitaria, a fin de
+que se llenen los requisitos que prescribe la higiene.
