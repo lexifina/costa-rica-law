@@ -1,0 +1,1 @@
+Artículo 10.—Tanto los inspectores municipales como el señor Alcalde Municipal, tendrán derecho al libre acceso a las instalaciones donde se realizarán las actividades, con el fin de fiscalizar las mismas.

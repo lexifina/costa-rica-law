@@ -1,0 +1,1 @@
+Artículo 7º—Los interesados deberán cancelar en la Tesorería Municipal, antes del inicio de la actividad, la suma que el departamento de Rentas establezca por concepto de recolección de basura producto de la operación del local y la cantidad de dos mil colones por concepto de gastos administrativos.

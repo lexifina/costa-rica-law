@@ -1,0 +1,1 @@
+Artículo 5º—Previo a iniciar las actividades, los solicitantes deberán obligatoriamente contar con el permiso de funcionamiento sanitario, emitido por el Centro de Salud local, en caso contrario, no podrá funcionar dicha actividad.

@@ -1,0 +1,2 @@
+Artículo 12.—Según el artículo 33 de la Ley de Licores y la Jurisprudencia correspondiente, los días de festejos cívicos, patronales y otros días en que se celebren actividades aprobadas por el Concejo Municipal como ferias, turnos y otros afines, la venta de licor será sin límite de cierre para los patentados de licores donde se celebren actividades, con las salvedades de costumbre.
+También dicho beneficio será para los días 15 de setiembre, 24 y 31 de diciembre.

@@ -1,0 +1,1 @@
+Artículo 11.—En el caso de que un patentado de licores preste a una agrupación su patente de licores para la realizar las actividades mencionadas anteriormente, deberá ser aprobado por el Concejo Municipal y deberá cerrar su negocio por los días que dure la actividad.

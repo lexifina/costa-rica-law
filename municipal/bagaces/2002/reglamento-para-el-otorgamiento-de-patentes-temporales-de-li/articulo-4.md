@@ -1,0 +1,2 @@
+Artículo 4º—Los solicitantes, en todos los casos deberán adjuntar a la respectiva solicitud de patentes temporales de licores y actividades, un visto bueno de las autoridades de policía locales comprometiéndose a brindar la vigilancia necesaria, para garantizar el orden y tranquilidad de la actividad.
+Las patentes temporales de licores y las actividades pueden ser suspendidas sin responsabilidad alguna para la Municipalidad, en casos de quejas por escándalos o informes de hechos anómalos, emitidos por autoridad competente.
