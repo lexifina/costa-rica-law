@@ -1,4 +1,4 @@
-Art 26.
+Artículo 26.
 Autores de delito consumado o frustrado
 Se considerará como autores de delito consumado o frustrado:
 1°. A los que tomaren parte en los actos de consumación del hecho o que debían consumarlo.
