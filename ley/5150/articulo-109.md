@@ -1,6 +1,6 @@
-CAPITULO IV
-Del Servicio de Vuelos Especiales
-Artículo 109.- El Consejo Técnico de Aviación Civil otorgará
-certificado de explotación para el transporte remunerado de personas bajo
-el tipo o modalidad de vuelos especiales, para operación dentro y fuera
-del país.
+Artículo 109.- Todo servicio aéreo no comprendido o definido por
+esta ley deberá ser previamente autorizado por el Consejo Técnico de
+Aviación Civil.
+NOTA: Original 104: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

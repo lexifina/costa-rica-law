@@ -1,18 +1,11 @@
-Artículo 159.- Al ejercer el Consejo Técnico de Aviación Civil sus
-facultades respecto a la fijación de tarifas para el transporte aéreo,
-tomará en consideración, entre otros, los siguientes factores:
-a) El interés público de garantizar al transporte su ejecución adecuada,
-eficiente y con la máxima protección de seguridad posible para las
-personas y las mercancías.
-b) La obtención del menor costo del servicio compatible con las ventajas
-y condiciones inherentes al mismo
-c) Sus efectos en el volumen de tráfico.
-d) La índole y calidad del servicio que se suministre.
-e) El margen de utilidad que debe reconocerse a las empresas, tomando en
-cuenta una administración honrada, económica y eficiente.
-f) Las diferencias de capacidad económicas de las empresas que prestan
-el servicio internacional, pudiendo aprobar tarifas con una
-diferencia hasta del 20% entre las tarifas propuestas por compañía
-subdesarrollada y las plenamente desarrolladas económicamente y
-estableciendo un 20% más a las tarifas de todo transporte que se
-realice en aeronaves de retropropulsión.
+Artículo 159.- Cuando concurran solicitudes para la explotación de
+un servicio de transporte aéreo se dará preferencia al solicitante que
+garantice mayor seguridad, eficiencia y continuidad del servicio, de
+conformidad con las necesidades del público.
+Se entiende que hay concurrencia de solicitudes cuando se pretende
+establecer servicios de transporte aéreo entre puntos de una misma ruta o
+dentro de la misma zona, y las solicitudes posteriores se presenten
+dentro de los cinco días siguientes a la presentación de la primera.
+NOTA: Original 154: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

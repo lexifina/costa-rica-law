@@ -1,14 +1,6 @@
-TITULO SEXTO
-De la Responsabilidad, Infracciones y Penas
-CAPITULO I
-De la Responsabilidad Civil
-SECCION I
-Disposiciones Generales
-Artículo 243.- La responsabilidad civil de las empresas nacionales o
-extranjeras en el transporte aéreo internacional se regirá en orden
-sucesivo, por:
-a) Las disposiciones de este capítulo en los casos previstos.
-b) Los Convenios Internacionales aprobados y ratificados por la
-República.
-c) Las leyes comunes aplicables, cuando el accidente hubiere ocurrido en
-territorio costarricense.
+Artículo 243.- Sin el consentimiento expreso del acreedor prendario
+no podrán variarse las características de construcción o de
+motopropulsión de la aeronave.
+NOTA: Original 238: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

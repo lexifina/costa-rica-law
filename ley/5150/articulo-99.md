@@ -1,4 +1,5 @@
-Artículo 99.- Los fletes y las tarifas para la prestación de los
-servicios aéreos de transporte no regular serán fijados por la empresa y
-aprobados previamente por el Consejo Técnico de Aviación Civil,
-conjuntamente con las tarifas para los servicios aéreos regulares.
+Artículo 99.- El Poder Ejecutivo, en caso de guerra o emergencia
+nacional, previos los trámites legales, podrá cancelar o restringir la
+operación de cualquier aeródromo.
+NOTA: Original 94: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

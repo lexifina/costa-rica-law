@@ -1,5 +1,5 @@
-Artículo 58.- La tripulación comprende todo el personal que presta
-servicios a bordo de la aeronave. Son miembros de la tripulación el
-comandante de la aeronave o piloto al mando de ellas, los pilotos,
-copilotos, navegantes, mecánicos, radioperadores, aeromozos y auxiliares
-de a bordo.
+Artículo 58.- En caso de guerra o conmoción interior, el Estado
+podrá requisar, suspendidas las garantías, las aeronaves de matrícula
+costarricense.
+NOTA: Original 53: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

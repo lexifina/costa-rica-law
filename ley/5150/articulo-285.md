@@ -1,6 +1,7 @@
-Artículo 285.- La recepción del equipaje o carga sin protesta alguna
-por parte del pasajero o consignatario hará presumir que los recibe en
-buen estado y de conformidad con el contrato de transporte. No se
-presumirá tal cosa si en el momento de la recepción el pasajero o
-consignatario presentare un escrito, dirigido al porteador en el sentido
-de que el equipaje o la carga no han sido examinados.
+Artículo 285.- Si el abordaje se hubiere producido por caso fortuito
+o fuerza mayor cada uno de los operadores de las aeronaves soportará la
+responsabilidad en los límites y en las condiciones impuestas por ley; el
+que hubiere abonado una suma mayor de la que le corresponde, tendrá
+derecho a repetir por el excedente.
+NOTA: Original 280: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

@@ -1,8 +1,10 @@
-Artículo 152.- El Consejo Técnico de Aviación Civil, puede, a
-solicitud de parte interesada o por propia iniciativa, alterar, enmendar,
-modificar, suspender o cancelar cualquier certificado de explotación en
-todo o en parte, tomando en cuenta la necesidad y conveniencia de los
-interesados, debidamente comprobada.
-En todo caso la resolución se tomará con audiencia de las partes a
-quienes se concederá un término razonable, no mayor de quince días, a fin
-de que dentro del mismo aduzcan las pruebas respectivas.
+Artículo 152.- Otorgado el certificado de explotación, la empresa
+solo podrá iniciar operaciones si antes demuestra que tiene contratos de
+seguro garantes, de conformidad con esta ley, de la reparación de los
+daños y perjuicios causados tanto a los pasajeros y propietarios de la
+carga como a las personas o los bienes de terceros en la superficie.
+(Así reformado por el artículo 1º, inciso e), de la ley No.7864 de 22
+de febrero de 1999)
+(NOTA: Original 147: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991)

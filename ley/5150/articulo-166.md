@@ -1,4 +1,6 @@
-Artículo 166.- Se considera internacional el transporte aéreo
-realizado entre Costa Rica y un estado extranjero, o entre dos puntos del
-territorio costarricense con aterrizaje intermedio en un estado
-extranjero.
+Artículo 166.- Las tarifas, las rentas o los derechos aplicables a toda clase de servicios y facilidades aeroportuarias propiedad del Estado, serán fijados por el Consejo Técnico de Aviación Civil y aprobados por el Poder Ejecutivo, salvo los precios y las tarifas que deba fijar la Autoridad Reguladora de los Servicios Públicos en aplicación de su ley o como consecuencia de un tratado internacional suscrito por Costa Rica.
+Los fondos provenientes de dichas tarifas, rentas o derechos se destinarán solo al desarrollo de la aeronáutica civil, y la administración será regulada por el reglamento que, para tal efecto, promulgue el Poder Ejecutivo.
+La Contraloría General de la República fiscalizará la correcta inversión y gasto de los fondos percibidos con motivo de la aplicación de este artículo."
+(Así reformado por el artículo 1º de la ley Nº 5437 de 17 de diciembre de 1973 y posteriormente reformado por el artículo único de la Ley N° 8038 del 12 de octubre del 2000).
+NOTA: Original 161: corrida su numeración a la actual de conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-
+(La Procuraduría General de la República mediante pronunciamiento N° C-029-1999, del 02 de febrero de 1999, derogo tácitamente este artículo, de acuerdo a lo previsto por el artículo 12 del Acuerdo de Transporte Aéreo entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos de Norteamérica, Ley No. 7857 “en lo que respecta a la fijación de las tarifas del transporte aéreo por parte del Consejo Técnico de Aviación Civil…para el caso de los servicios aéreos prestados por líneas de nacionalidad costarricense hacia suelo norteamericano o de líneas norteamericanas hacia suelo costarricense… por lo que las tarifas relativas al transporte aéreo comercial de esas nacionalidades, podrían ser, tan sólo, notificadas a la autoridad aeronáutica respectiva, si así ésta lo requiere.”)

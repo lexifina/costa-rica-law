@@ -1,3 +1,6 @@
-Artículo 116.- El profesorado de las escuelas de aviación civil
-deberá ser autorizado por el Consejo Técnico de Aviación Civil en la
-forma que establezca el reglamento respectivo.
+Artículo 116.- El reglamento del servicio de vuelos especiales
+establecerá los requisitos que deben llenar las compañías que soliciten
+el respectivo certificado de explotación.
+NOTA: Original 111: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

@@ -1,7 +1,5 @@
-Artículo 301.- Las resoluciones del Consejo Técnico de Aviación
-Civil y de la Dirección General de Aviación Civil deberán expresar las
-razones de su fundamento y notificarse a todos los interesados,
-especialmente a quienes afecte de plano. Los reglamentos aéreos y los
-acuerdos del Consejo Técnico de Aviación Civil entrarán en vigor cuando
-ellos lo especifiquen y, a falta de tal indicación, al día siguiente de
-su publicación en el Diario Oficial o su notificación a los interesados.
+Artículo 301.- La aplicación de las sanciones establecidas por esta
+ley se hará de acuerdo con lo estipulado en el título sétimo de la
+presente ley, correspondiente a los procedimientos.
+NOTA: Original 296: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

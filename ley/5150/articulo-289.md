@@ -1,14 +1,13 @@
-Artículo 289.- Se impondrá multa de trescientos colones (¢ 300.00) a
-tres mil colones (¢ 3,000.00) al taller aeronáutico, propietario u
-operador de aeronaves civiles por permitir:
-a) Que la aeronave transite sin las marcas de nacionalidad y matrícula.
-b) Que la aeronave transite sin el certificado de aeronavagabilidad o de
-matrícula aun cuando hayan sido extendidos y se encuentren vigentes.
-c) Que las personas sin licencia o certificados de aptitud otorgados,
-por la Dirección General de Aviación Civil, se dediquen a labores
-propias del aeronauta.
-d) Por emplear en Aviación Civil, a quien no tenga las licencias
-exigidas por esta ley y sus reglamentos.
-e) Que la aeronave transite tripulada por personas que carezcan de la
-licencia aeronáutica correspondiente, otorgada por la Dirección
-General de Aviación Civil.
+Artículo 289.- En caso de pérdida, destrucción, avería o retraso de
+la carga o el equipaje facturado, la responsabilidad del porteador por
+concepto de indemnización, se limitará a la suma máxima de tres días de
+salario mínimo por cada kilogramo de peso bruto de carga.
+En caso de pérdida, destrucción, avería o retraso del equipaje de
+mano, la responsabilidad del porteador por concepto de indemnización al
+propietario del equipaje de mano, se limitará a la suma máxima equivalente
+a dos salarios mínimos.
+(Así reformado por el artículo 1º, inciso i), de la ley No.7864 de 22
+de febrero de 1999)
+(NOTA: Original 284: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991)
