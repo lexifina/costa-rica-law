@@ -1,4 +1,4 @@
-Artículo 14.- Las Institucione Autónomas y las Dependencias del
+ARTICULO 14.- Las Institucione Autónomas y las Dependencias del
 Estado, quedan obligadas a prestar los servicios, información o cualquier
 forma de colaboración que les sea requerida por la Comisión, dentro de sus
 facultades legales.

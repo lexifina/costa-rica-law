@@ -1,8 +1,8 @@
-Artículo 4º.- La Comisión estará integrada por siete miembros
-designados así: un Delegado del Ministerio de Relaciones Exteriores y
-Culto, un Delegado del Ministerio de Salud Pública, un Delegado del
-Ministerio de Agricultura y Ganadería, un Delegado del Ministerio de
-Industria y Comercio, y tres Delegados de la Universidad de Costa Rica.
-Deberán tener conocimientos especiales en energía atómica y ser
-costarricense por nacimiento o por naturalización con cinco años de
-residencia en el país, después de haber obtenido la nacionalidad.
+ARTICULO 4º.- La Comisión estará integrada por un delegado de cada
+una de las instituciones estatales de educación superior universitaria,
+un delegado del Ministerio de Relaciones Exteriores y Culto, un delegado
+del Ministerio de Salud, un delegado del Ministerio de Agricultura y
+Ganadería y un delegado del Ministerio de Economía, Industria y
+Comercio.
+(Así reformado por el artículo 1 de la ley No.6518 del 25 de
+setiembre de 1980)

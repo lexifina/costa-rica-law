@@ -1,4 +1,4 @@
-Artículo 46.- Esta ley rige a partir de su publicación.
+ARTICULO 46.- Esta ley rige a partir de su publicación.
 Transitorio.- Para la integración inicial de la Comisión qeu por la
 presente ley se crea, se observarán las reglas siguientes:
 Dos Delegados serán nombrados por un período de dos años;
