@@ -1,1 +1,0 @@
-Artículo 4: Constituirán los bienes de la Compañía Nacional de Teatro la subvención que anualmente le otorgue el Estado, el producto de las recaudaciones que logre en las funciones, las donaciones que reciba y el producto de las ventas que haga de programas, folletos, "recuerdos", discos y otros objetos similares.
