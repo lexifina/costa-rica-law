@@ -1,0 +1,1 @@
+Artículo 2°.- A fin de garantizar el mayor aprovechamiento de la beca respectiva y el mejor rendimiento del becario a su regreso, en la adjudicación de las becas la dependencia directamente interesada considerará los nombres de los empleados a su servicio que tengan mayor experiencia y mejor preparación en la materia.
