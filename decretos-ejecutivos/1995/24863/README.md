@@ -18,3 +18,4 @@ Reglamento Ley de Incentivos para el Desarrollo Turístico
 | 3 | 2001-01-19 | Decreto Ejecutivo 29215 (2001-01-19) |
 | 4 | 2001-07-04 | Ley 8114 |
 | 5 | 2004-09-16 | Decreto Ejecutivo 32219 (2004-09-16) |
+| 6 | 2004-10-28 | Decreto Ejecutivo 32093 (2004-10-28) |
