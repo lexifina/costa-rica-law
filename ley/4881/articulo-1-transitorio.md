@@ -1,0 +1,2 @@
+Transitorio l.-La Junta asumirá el servicio que por esta ley se le encarga, dentro de un plazo no mayor de cuatro meses a partir de la vigencia de esta ley.
+Por la prestación del servicio que por esta ley se confía a la Junta, y en tanto no se haga una nueva fijación, aquella continuará aplicando la tarifa que actualmente se encuentra en vigencia para el cobro a las Municipalidades a quienes ha servido, sin perjuicio de las facultades atribuidas al Servicio Nacional de Electricidad en el artículo 5°.
