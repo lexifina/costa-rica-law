@@ -1,0 +1,1 @@
+Art 2° Salvo las oposiciones hechas antes de la publicación de esta ley, las cuales deben llenar su objeto, las demás cátedras a cargo de los fondos de la Universidad que se hallan vacantes o vacaren, no se proveerán sino accidentalmente.
