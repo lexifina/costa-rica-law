@@ -1,0 +1,1 @@
+Art 2° el día treinta y uno de diciembre se cortarán todas las cuentas relacionados con los diversos ramos y operaciones del Tesoro Nacional y los balances de salida, remitidos a la Secretaría de Hacienda en todo el mes de enero inmediato.
