@@ -1,0 +1,1 @@
+Artículo 73 —Por regla general las licencias serán sin goce de sueldo, pero serán remuneradas cuando se otorguen por causa de enfermedad, o cuando tengan por causa la realización de trabajo que beneficien directamente al Ministerio, o de estudios que hayan dado mérito a licencias temporales.

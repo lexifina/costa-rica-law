@@ -1,0 +1,1 @@
+Artículo 84. A falta de disposición en el presente Reglamento, aplicables a un caso determinado, deberán tenerse como normas supletorias el Estatuto de servicio Civil y su reglamento, el Código de Trabajo, y demás leyes y reglamentos conexos.

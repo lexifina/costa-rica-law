@@ -1,0 +1,1 @@
+Artículo 78.—El Ministro no aprobará durante el siguiente período lectivo, nuevo contrato de licencia para estudios, si el servidor ha omitido presentar la certificación sobre las calificaciones obtenidas durante el curso lectivo anterior, o si e! servidor fuere reprobado en dos o más asignaturas.

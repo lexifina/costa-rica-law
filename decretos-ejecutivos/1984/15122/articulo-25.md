@@ -1,0 +1,1 @@
+Artículo 25.—Son hábiles para el trabajo todos los días del año menos los feriados y aquellos que el Poder Ejecutivo declare de asueto. Sin embargo, podrá trabajarse en tales días, siempre y cuando ello fuere posible en observancia de lo dispuesto por ley.

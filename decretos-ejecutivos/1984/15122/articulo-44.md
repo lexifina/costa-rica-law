@@ -1,0 +1,2 @@
+Artículo 44.—La llegada tardía que exceda de veinte minutos, contados a partir de la hora de ingreso estipulada y que a juicio del jefe superior inmediato carezca de justificación, acarreará al servidor la pérdida de la fracción de jornada, para efectos de rebajo de salario.
+La presentación, al trabajo después de dos horas de iniciadas las labores, se tomará como ausencia a la fracción de jornada respectiva.

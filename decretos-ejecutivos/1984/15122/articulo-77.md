@@ -1,0 +1,1 @@
+Artículo 77.—De conformidad con lo establecido por la ley N° 1810 del 15 de octubre de 1954, además de lo dispuesto por el artículo 37 y siguientes del Reglamento del Estatuto de Servicio Civil, el Ministro podrá conceder licencia para que los servidores regulares asistan a cursos de estudios o de adiestramiento, previa formalización del contrato.

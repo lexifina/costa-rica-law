@@ -1,0 +1,2 @@
+Artículo 59.—Las sanciones serán ejecutadas o impuestas, según el caso, por el Jefe de Personal del Ministerio, excepto el despido que se llevará a cabo, siguiendo los trámites que señala el artículo 43 del Estatuto de Servicio Civil.
+No obstante lo anterior, el apercibimiento verbal podrá ser impuesto directamente por el Director o jefe inmediato; quien podrá notificarlo por escrito a la Oficina de Personal a efecto de dejar constancia de la sanción impuesta.

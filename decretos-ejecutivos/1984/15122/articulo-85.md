@@ -1,0 +1,1 @@
+Artículo 85.—El presente Reglamento no perjudica los derechos adquiridos por los servidores del Ministerio. Se presumirá de conocimiento de estos y será de observancia obligatoria para todos desde el día de su vigencia, inclusive para los que en el futuro trabajen para él.
