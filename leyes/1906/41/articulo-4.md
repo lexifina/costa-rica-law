@@ -1,0 +1,1 @@
+Artículo 4°. —El Juzgado de lo Contencioso Administrativo procederá á la venta pública de los diferentes lotes con la base de cuatro colones por hectárea, una vez practicadas las medidas, localizados los lotes y hechos los planos.
