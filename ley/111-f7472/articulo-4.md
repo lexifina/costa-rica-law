@@ -1,0 +1,1 @@
+Art. 4° Es prohibida la introduccion de ron, cualquier otro aguardiente de caña. bajo las penas impuestas por las leyes. -Dado en la ciudad de San José á los cuatro dias del mes de diciembre de mil ochocientos cincuenta, -Juan Rafael Mora. EI Ministro de Estado en el Despacho de Hacienda y Guerra Manuel José Carazo.
