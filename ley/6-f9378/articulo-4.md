@@ -1,0 +1,1 @@
+Art 4.- El Gobierno seguir el temor del Decreto de 22 de marzo de 836, oportunamente nombrara otro comisionado para la concesión de solares gratis, y arreglo de la nueva población, en que deben ser las manzanas por todo frente de cien varas y las calles en perfecta rectitud y de veinte varas de ancho, intimando a los nuevos pobladores el artículo 1° del citado decreto.
