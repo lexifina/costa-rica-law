@@ -1,1 +1,0 @@
-Artículo 9°—En las áreas descritas en el artículo 6 de este Reglamento y en las áreas boscosas que se deseen proteger, los miembros de las Asociaciones Integrales de Desarrollo Indígenas tramitarán ante el Ministerio de Recursos Naturales Energía y Minas la obtención del “Certificado de Protección del Bosque” (CAFMA 2.000).
