@@ -1,0 +1,1 @@
+Artículo 21.—Toda solicitud para conducir vehículos del Consejo debe exponer las razones que la justifiquen, deberá ser firmada por el funcionario solicitante y avalada por su superior inmediato; adjuntando copia de la cédula de identidad y de la licencia para conducir vehículos.

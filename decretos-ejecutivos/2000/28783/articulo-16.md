@@ -1,0 +1,1 @@
+Artículo 16.—Todos los vehículos de uso administrativo general, con excepción de los que se encuentren en cumplimiento de giras a lugares distantes de las sedes del CONSEJO en misiones de trabajo, deberán permanecer al final de la jornada ordinaria en el estacionamiento o sitio que el Departamento de Transportes haya habilitado para tal efecto.

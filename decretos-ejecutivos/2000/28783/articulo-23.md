@@ -1,0 +1,1 @@
+Artículo 23.—Existirá una autorización especial mediante la tarjeta denominada "Autorización para que Vehículos Oficiales Circulen Fuera de la Jornada Ordinaria de Trabajo" para aquellos vehículos de uso administrativo general, que deben circular en horas y días no hábiles, que será expedida por el Encargado del Departamento de Transportes.

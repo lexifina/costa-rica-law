@@ -1,0 +1,1 @@
+Artículo 40.—El Proceso de Suministros del CONSEJO no se hará responsable de facturas de reparación de vehículos cuyo trámite no se llevó a cabo mediante el procedimiento imperante; asimismo, los servidores responsables de ellos se harán acreedores de las sanciones disciplinarias del caso según el "Reglamento Autónomo de Organización y Servicios del Consejo de Seguridad Vial".

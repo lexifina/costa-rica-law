@@ -1,0 +1,1 @@
+Artículo 15.—La circulación de vehículos de uso administrativo general en horas y días no hábiles estará restringida, estrictamente, a la realización de labores no postergables o a la atención de emergencias inherentes a la labor del CONSEJO; así como para la realización de las labores de las Unidades descritas en el artículo 8° de este reglamento.

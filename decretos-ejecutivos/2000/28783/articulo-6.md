@@ -1,0 +1,1 @@
+Artículo 6º—Vehículos para destino policial. Estos vehículos son los empleados en el cumplimiento de programas o proyectos de seguridad vial, en la Dirección General de la Policía de Tránsito, incluyendo radiopatrullas, vehículos tipo grúa y motocicletas.

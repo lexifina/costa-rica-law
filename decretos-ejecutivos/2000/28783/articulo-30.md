@@ -1,0 +1,1 @@
+Artículo 30.—Es responsabilidad exclusiva de cada operador y funcionario autorizado el cumplimiento de lo establecido en este capítulo; de ahí que si acata órdenes que contravengan dichas acciones, asumirá las consecuencias que se originen.

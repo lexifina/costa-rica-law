@@ -1,0 +1,1 @@
+Artículo 41.—El Departamento de Transportes establecerá en coordinación con el Proceso de Suministros y en la medida de lo posible, un programa de mantenimiento de la flotilla del CONSEJO, asimismo velará porque éste se ejecute.

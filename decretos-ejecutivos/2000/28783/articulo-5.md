@@ -1,0 +1,1 @@
+Artículo 5º—Vehículos de uso administrativo general: Estos vehículos son los destinados a los servicios regulares de transporte, para el desarrollo normal de las labores del Consejo y que deben estar sometidos a las regulaciones vigentes para el uso y control de los vehículos oficiales.

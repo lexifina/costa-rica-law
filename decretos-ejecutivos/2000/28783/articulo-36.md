@@ -1,0 +1,1 @@
+Artículo 36.—Para los vehículos de uso policial y los destacados en otras Direcciones Generales, deberán de respetarse igualmente las reglas precedentes, mediante una estricta coordinación entre las mismas y el Departamento de Transportes.

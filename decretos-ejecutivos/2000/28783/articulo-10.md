@@ -1,0 +1,1 @@
+Artículo 10.—El control y asignación de los vehículos de uso policial, será responsabilidad de la Dirección General de la Policía de Tránsito. No obstante, deberá comunicarse al Departamento de Transportes, toda modificación respecto de la ubicación geográfica de un automotor asignado de acuerdo a dicha circunstancia.

@@ -1,0 +1,1 @@
+Artículo 7º—La asignación de los vehículos para uso administrativo general y los vehículos para uso policial, es únicamente para facilitar el desarrollo de las actividades del Consejo; por ningún motivo será considerada como salario en especie, plus mejora salarial o beneficio, ni dar lugar a derechos laborales adquiridos en favor del funcionario.

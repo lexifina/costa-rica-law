@@ -1,0 +1,1 @@
+Artículo 32.—Ninguna persona autorizada para operar vehículos del CONSEJO podrá efectuar arreglos extrajudiciales, en caso de accidentes. En caso que se requiera, debe indicarle al conductor del vehículo con el que hubo colisión, que se apersone o comunique con el Departamento de Transportes, para efectuar las gestiones correspondientes.

@@ -1,0 +1,1 @@
+Artículo 17.—Cuando un vehículo se encuentre en gira, al finalizar la jornada ordinaria deberá permanecer en la sede más inmediata del MOPT o alguna de sus dependencias; o bien en un lugar seguro a juicio del funcionario autorizado o del operador y bajo su entera responsabilidad. En todo caso, siempre se deberá procurar retornar con el vehículo al plantel de la Institución.
