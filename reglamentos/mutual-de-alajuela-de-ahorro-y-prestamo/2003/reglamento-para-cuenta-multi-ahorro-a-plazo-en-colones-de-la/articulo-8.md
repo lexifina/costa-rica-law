@@ -1,0 +1,1 @@
+Artículo VIII.—Pago y cálculo de Intereses: Los intereses se calculan mensual y se acreditarán en la Cuenta Multi-Ahorro en forma mensual. La tasa de interés podrá ser variable y ajustable conforme a las directrices que dicte la Administración de la Mutual.

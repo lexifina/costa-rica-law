@@ -1,0 +1,1 @@
+Artículo VI.—Monto mínimo de la apertura: El monto mínimo para la apertura de una Cuenta Multi-Ahorro será por la suma pactada en el primer depósito, en ningún caso podrá ser menor al monto mínimo que disponga la administración de la Mutual.
