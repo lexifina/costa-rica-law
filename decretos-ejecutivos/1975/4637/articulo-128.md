@@ -13,7 +13,8 @@ b) Haber aprobado la enseñanza secundaria y tener conocimientos sobre:
 8. La performance de aeronaves de diferentes tipos, y en lo que ésta afecte las operaciones de control de tránsito aéreo.
 9. Fundamentos de los equipos de radar, su uso y limitaciones.
 c) Contar con la siguiente experiencia:
-1 . Haber completado recientemente, como mínimo, 12 meses de servicio satisfactorio en calidad de piloto comercial como mínimo, o de navegante.
-2. Haber completado, como mínimo, nueve meses de servicio satisfactorio dedicado al control efectivo del tránsito aéreo, bajo la supervisión de un controlador de tránsito aéreo debidamente habilitado.
+1.-Haber completado recientemente, como mínimo, 12 meses de servicio satisfactorio en calidad de piloto comercial como mínimo o de navegante; o bien,
+2.-Haber completado, como mínimo, nueve meses de servicio satisfactorio dedicado al control efectivo del tránsito aéreo, bajo la supervisión de un controlador de tránsito aéreo debidamente habilitado.
+(Así reformado el inciso c) anterior por el artículo 1° del decreto ejecutivo N° 6232 del 9 de agosto de 1976)
 d) Demostrar su aptitud psicofísica con el cumplimiento de los requisitos médicos establecidos en el Título V de este Reglamento y que para este caso serán: requisito psicofísico número 1, requisito visual número 1, requisito para la percepción de los colores y requisito auditivo número 1.
-Si el solicitante no puede cumplir con el requisito visual número 1, estará limitado a desempeñar actividades en una oficina de Aproximación o en Centro de Control de Area.
+Si el solicitante no puede cumplir con el requisito visual número 1, estará limitado a desempeñar actividades en una oficina de Aproximación o en Centro de Control de Área.

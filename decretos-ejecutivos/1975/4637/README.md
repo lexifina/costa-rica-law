@@ -15,3 +15,4 @@ Reglamento de licencias para el personal técnico aeronáutico
 | --- | --- | --- |
 | 1 | 1975-04-16 | la propia norma |
 | 2 | 1975-07-23 | Decreto Ejecutivo 5053 (1975-07-23) |
+| 3 | 1976-08-09 | Decreto Ejecutivo 6232 (1976-08-09) |
