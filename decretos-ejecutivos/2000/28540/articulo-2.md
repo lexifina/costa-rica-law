@@ -1,0 +1,1 @@
+Artículo 2º—Se solicita a las instituciones y empresas del Estado para que, en la medida de sus posibilidades, brinden facilidades y cooperación en la realización de los eventos que se llevarán a cabo en Costa Rica con motivo de las citadas actividades.
