@@ -1,0 +1,1 @@
+Artículo 38.-La Secretaría de Planificación Subsectorial de Recursos Naturales estará a cargo de un Director, nombrado y removido por el Presidente del Consejo Nacional Sectorial de Recursos Naturales, Energía y Minas, previa consulta al Consejo.

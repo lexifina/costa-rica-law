@@ -1,0 +1,1 @@
+Artículo 19.-EI Comité Técnico Sectorial de Recursos Naturales, Energía y Minas se reunirá ordinariamente cada tres meses y extraordinariamente cuando se considere necesario toda vez que sea convocado por el Secretario de la Secretaría Ejecutiva de Planificación Sectorial de Recursos Naturales, Energía y Minas quien presidirá dicho Comité.

@@ -1,0 +1,1 @@
+Artículo 17.-Le corresponderá a este Comité coordinar y promover el proceso de Planificación entre las distintas instituciones involucradas en las actividades del Sector Recursos Naturales, Energía y Minas, en apoyo de la Secretaría Ejecutiva, del Consejo Nacional Sectorial y del Ministro Rector.

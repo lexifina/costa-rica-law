@@ -1,0 +1,1 @@
+Artículo 57.-Las Instituciones Integrantes del Subsector proveerán a la Secretaría de Planificación Subsectorial, mediante convenio, los recursos humanos y técnicos necesarios para la realización de sus funciones, de conformidad con las disposiciones legales vigentes.
