@@ -13,3 +13,4 @@ Reglas prácticas que deben ser observadas por los Juzgado que tramitan la mater
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-12-13 | la propia norma |
+| 2 | 2002-03-03 | Circular 24 (2002-03-03) |
