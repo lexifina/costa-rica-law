@@ -1,10 +1,15 @@
-Artículo 4°—El Instituto pagará intereses al suscriptor, tanto sobre la cuotas ordinarias de Ahorro como sobre las extraordinarias, al tipo que en cada caso fije la Junta Directiva, que serán acreditados por trimestres vencidos y se computarán sobre loa saldos menores de cada mes.
-Los intereses devengados por las cuotas ordinarias de Ahorro, el 20% del importe de los pagos extraordinarios y los intereses devengados por éstos, serán acreditados al suscriptor en su cuenta de amortización de crédito, en el concepto de que el abono será compensado con una reducción equivalente en las últimas cuotas de amortización, en términos de tiempo. El suscriptor, si así lo desea, puede solicitar del Instituto el que la totalidad de las cuotas extraordinarias de ahorro sean compensadas de conformidad.
-La suscripción de varios contratos por una misma persona física no puede sobrepasar de ¢ 50,000.00.
-Varios contratos pertenecientes a distintos suscritores pueden ser aplicados a una misma unidad habitacional si la suma de sus montos está comprendida entre ¢ 50,000.00 y ¢ 100,000.00 y se cuenta al efecto con la autorización de la Comisión de Ahorro y Préstamo cuando los interesados son miembros de una misma familia, y de la Junta Directiva en los demás casos.
-Con la autorización de la Junta Directiva puede una misma persona física o jurídica suscribir dos o más contratos para ser destinados exclusivamente a la construcción de nuevas viviendas, bajo la expresa condición de que para ninguna de las unidades de vivienda se podrán suscribir más de ¢ 50,000.00.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 6 de 05 de mayo de 1960, publicado en La Gaceta N° 106 de 12 de mayo de 1960.)
-(Así REFORMADO PARCIAL Y TACITAMENTE por la Sesión N° 3509 de 27 de febrero de 1984, publicada en La Gaceta N° 71 de 10 de abril de 1984, la cual reforma la sesión No 3332 de 26 de abril de 1882 en que se reformó el artículo 4° del Reglamento de Ahorro y Préstamo, en el sentido de que cuando se trata de financiar:
-a) Compra de terreno y construcción; o
-b) Construcción en terreno propio.
-El límite por unidad habitacional se establece en ¢ 1.000.000,00 (un millón de colones).
+Artículo 4°—.La Junta Directiva por acuerdos generales previos fijará los montos máximos de los contratos y los topes de aplicación generales o por unidad de vivienda para los diversos planes de inversión autorizados, así como las condiciones para el cambio de un plan por otro o para que el plazo de amortización del crédito que se conceda al madurar los contratos sea ampliado.
+Los indicados acuerdos generales no perjudicarán a los contratos ya suscritos, en perjuicio de sus titulares.
+Las condiciones que regulen la los contratos de ahorro y préstamo serán las mismas cuando las viviendas a construir sean para uso propio o para alquiler.
+Sin perjuicio de los topes de aplicación para cada unidad de vivienda, no habrá limitación alguna para la suscripción de contratos, en cuanto a la cantidad que cada persona desea suscribir.
+Se toman las siguientes disposiciones generales:
+1a—Se señala como monto máximo de cada contrato la suma de doscientos cincuenta mil colones y se permite la suscripción sin límite de números de contratos por persona; se permite asimismo la aplicación sin límite de contratos por persona física o jurídica, pero se establece un límite de un millón de colones por unidad habitacional.
+2a—El suscritor que obtenga un crédito a través de los planes 2-4 y 3-6, está facultado para que se amplíe el plazo de cancelación de su préstamo hasta por tres años más, siempre que por cada año adicional de ampliación se aumente en el 1% del tipo de interés anual.
+3a—Es facultativo para el Instituto autorizar el cambio de contratos, en su período de ahorro, de planes largos a planes cortos hasta por el monto suscrito, condicionado a que:
+a) La fecha de madurez del contrato no sea menor a la mitad del período de ahorro del plan -corto al que se hace el cambio.
+b) Que se cubra, cuando proceda, la diferencia en cuotas entre el plan largo y el plan corto.
+c) Que se efectúe un pago de dinero efectivo que restituya al Instituto los intereses que este hubiera obtenido al invertir un préstamo los ahorros no percibidos en su oportunidad.
+ch) Que el plan al que se desee hacer el cambio esté vigente y se ajuste a los montos, topes o condiciones que para ello haya fijado el Instituto con el objeto de mantener el equilibro del sistema.
+d) Cuando el monto o número de contratos con solicitud de cambios por planes más cortos exceda de los montos o topes establecidos, el cambio se hará según el orden o principio de equidad que según el respectivo acuerdo administrativo se haga de previo.
+Las reformas y normas generales anteriores no modifican las variaciones en lo conducente y demás normas generales que se hayan emitido que no contradigan lo aquí acordado.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión N° 3573 de 29 de octubre de 1984, publicada en La Gaceta N° 244 de 21 de diciembre de 1984.)
