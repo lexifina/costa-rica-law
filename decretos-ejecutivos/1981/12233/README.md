@@ -14,3 +14,4 @@ Reforma Reserva Indígena Cabécar de Tayni, Estrella
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-02-05 | la propia norma |
+| 2 | 1984-12-03 | Decreto Ejecutivo 16058 (1984-12-03) |
