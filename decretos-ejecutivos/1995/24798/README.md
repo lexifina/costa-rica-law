@@ -13,3 +13,4 @@ Obligatoriedad de Carné que Acredite como Manipulador de Alimentos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-01-11 | la propia norma |
+| 2 | 2001-04-18 | Decreto Ejecutivo 29506 (2001-04-18) |
