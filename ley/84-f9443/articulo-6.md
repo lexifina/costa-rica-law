@@ -1,0 +1,1 @@
+Art 6° Los actuales Tesoreros Municipalidades harán formal entrega a los Tesoreros que nombren las Municipalidades Cantonales, de los fondos que a estas correspondan en el Estado que actualmente se encuentren a fin de evitar cuestiones que pueden acarrear funestas divisiones entre las Capitales y los mismos Cantones.

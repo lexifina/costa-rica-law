@@ -1,0 +1,1 @@
+Art 8° En los cantones donde haya deficiencia de fondos, las Municipalidades arbitrarias los recursos suficientes para atender a los gastos que ocurran y procurar las mejores que sean posibles por medio de contribuciones voluntarios o forzosos, pero estos dos últimos recursos solo podrán ejecutarse con aprobación del Poder Ejecutivo.
