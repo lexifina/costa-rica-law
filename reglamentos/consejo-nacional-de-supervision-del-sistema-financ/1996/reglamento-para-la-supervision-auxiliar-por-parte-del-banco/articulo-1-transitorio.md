@@ -1,1 +1,0 @@
-Transitorio Único.-Únicamente para el año 1996, el plan de trabajo indicado en este artículo será entregado en el plazo máximo de un mes a contar de la fecha de publicación de este Reglamento en el Diario Oficial "La Gaceta”.

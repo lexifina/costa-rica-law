@@ -1,1 +1,0 @@
-Artículo 16.-Corresponde a la SUGEF aplicar el régimen de sanciones a las entidades del Sistema Financiero Nacional para la Vivienda, conforme lo estipulado en la Ley Orgánica del Banco Central de Costa Rica .

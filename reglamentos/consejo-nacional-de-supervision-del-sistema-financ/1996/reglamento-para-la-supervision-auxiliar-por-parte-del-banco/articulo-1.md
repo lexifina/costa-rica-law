@@ -1,6 +1,0 @@
-BANCO CENTRAL DE COSTA RICA
-EI Consejo Directivo de la Superintendencia General de Entidades Financieras, mediante artículo 14, del acta de la sesión 30-96, celebrada el 24 de setiembre de 1996, y al tenor de lo que estipula el artículo 165 de la Ley Orgánica del Banco Central de Costa Rica, ley 7558 de 27 de noviembre de 1995, mediante el cual se reforma el artículo 90 de la Ley del Sistema Financiero para la Vivienda, ley 7052, del 13 de noviembre de 1986, dispuso, por mayoría, aprobar el "Reglamento para la Supervisión Auxiliar por parte del Banco Hipotecario de la Vivienda", cuyo texto se transcribe a continuación:
-REGLAMENTO PARA LA SUPERVISION AUXILIAR POR PARTE DEL BANCO HIPOTECARIO DE LA VlVIENDA"
-CAPITULO I
-Disposiciones generales
-Artículo 1°-EI presente Reglamento establece las normas generales por medio de las cuales el Banco Hipotecario de la Vivienda ejecutará sus funciones como ente supervisor auxiliar de la Superintendencia General de Entidades Financieras, en las entidades autorizadas del Sistema Financiero Nacional para la Vivienda, conforme con lo establecido en el artículo 90 de la ley 7052 del 13 de noviembre de 1986 y sus reformas, mediante la ley 7558, Ley Orgánica del Banco Central de Costa Rica.
