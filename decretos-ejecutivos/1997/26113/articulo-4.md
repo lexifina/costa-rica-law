@@ -1,0 +1,1 @@
+Artículo 4°—La posibilidad de arrendar su vehículo y percibir remuneración por pago de kilometraje, está vedada para el Ministro y Viceministro, quienes por su condición y para estos efectos, están excluidos de la posibilidad de aplicación de este Reglamento.
