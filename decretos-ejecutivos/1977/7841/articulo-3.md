@@ -4,14 +4,8 @@ productos forestales, se requiere la autorización previa del Ministerio
 de Agricultura y Ganadería, a través de la Dirección General Forestal o
 de la Dirección General de Recursos Pesqueros y Vida Silvestre, según sea
 el caso.
-Para deslindar con cercas, carriles, o en cualquier otra forma, se
-deberá obtener permiso de la municipalidad respectiva. Para la
-construcción de viviendas se requerirá la aprobación de los planos por el
-Ministerio de Salud Pública y el permiso de construcción de la
-municipalidad correspondiente. Para cualquier otro tipo de construcción,
-exceptuando las contempladas en el artículo 18 de la Ley se deberá seguir
-el procedimiento establecido en el aparte c) del Capítulo II de este
-reglamento.
+Para deslindar con cercas, carriles, o en cualquier otra forma, se deberá obtener permiso de la municipalidad respectiva. Para la construcción de viviendas, se requerirá la aprobación de los planos ante las oficinas locales del Ministerio de Salud y el permiso de construcción de la municipalidad correspondiente.
+(Así reformado por el Artículo 12 del decreto ejecutivo N° 29307 del 26 de enero del 2001)
 Para la explotación de minas y canteras deberá contarse con la
 autorización del Ministerio de Economía, Industria y Comercio y del
 Ministerio de Agricultura y Ganadería. Para extraer piedra, grava, arena
@@ -25,9 +19,4 @@ autorizar actividades mineras o extractivas en zonas turísticas. Siempre
 que una explotación de flora, fauna, o de recursos mineros pueda implicar
 riesgo de contaminar el ambiente, se deberá además contar con la
 autorización del Ministerio de Salud Pública.
-En todos los casos, las solicitudes para autorizaciones excepto las
-relativas a la construcción de viviendas y aquellas otras que solamente
-requieran de permiso municipal, deberán hacerse ante el ICT, el que se
-encargará de hacer llegar las mismas a las instituciones
-correspondientes; éstas, a su vez, enviarán copia de la resolución tomada
-al ICT.
+( El párrafo final de este artículo fue derogado por el artículo 13 del Decreto Ejecutivo N° 29307 del 26 de enero del 2001)

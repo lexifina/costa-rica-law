@@ -16,3 +16,4 @@ Reglamento a la Ley sobre la Zona Marítimo Terrestre
 | 1 | 1978-01-27 | la propia norma |
 | 2 | 1978-01-27 | SINALEVI (sin norma nombrada) |
 | 3 | 2000-11-03 | Decreto Ejecutivo 29059 (2000-11-03) |
+| 4 | 2001-01-26 | Decreto Ejecutivo 29307 (2001-01-26) |
