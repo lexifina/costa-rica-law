@@ -1,0 +1,1 @@
+Artículo 3°—La Dirección General Forestal en colaboración con la Director General de Investigaciones se encargará de la vigilancia y estudios tendientes al racional aprovechamiento de los recursos naturales de la reserva.

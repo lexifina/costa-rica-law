@@ -1,0 +1,1 @@
+Artículo 5°—La Dirección General Forestal delimitará una área dentro de la reserva la cual servirá para la instalación de un vivero y para el establecimiento de parcelas experimentales y demostrativas.
