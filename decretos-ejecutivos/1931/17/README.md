@@ -14,3 +14,4 @@ Reglamento general de cementerios
 | --- | --- | --- |
 | 1 | 1931-09-05 | la propia norma |
 | 2 | 1934-07-20 | Decreto Ejecutivo 33 (1934-07-20) |
+| 3 | 1976-07-06 | Decreto Ejecutivo 6111 (1976-07-06) |
