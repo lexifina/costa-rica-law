@@ -16,3 +16,4 @@ Reglamento a la Ley General de Aduanas
 | 1 | 1996-06-28 | la propia norma |
 | 2 | 1996-06-28 | Decreto Ejecutivo 25295 (1996-06-17) |
 | 3 | 1997-08-19 | Decreto Ejecutivo 26285 (1997-08-19) |
+| 4 | 1998-03-30 | Decreto Ejecutivo 26961 (1998-03-30) |
