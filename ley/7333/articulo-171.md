@@ -1,8 +1,7 @@
-ARTICULO 171.- La competencia de los árbitros se limita al
-asunto que expresamente les fuere sometido por la escritura o
-escrito de compromiso, y a los incidentes sin cuya resolución no
-fuere posible decidir el asunto principal.
-Cuando se propusiere la excepción de compensación, la
-sentencia que la admita no será eficaz en cuanto a la declaración
-del crédito del demandado, sino por la cantidad que importe la
-demanda.
+ARTICULO 171.- La competencia de los árbitros se limita al asunto
+que expresamente les fuere sometido por la escritura o escrito de
+compromiso, y a los incidentes sin cuya resolución no fuere posible
+decidir el asunto principal.
+Cuando se propusiere la excepción de compensación, la sentencia que
+la admita no será eficaz en cuanto a la declaración del crédito del
+demandado, sino por la cantidad que importe la demanda.

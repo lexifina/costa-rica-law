@@ -1,37 +1,15 @@
-ARTICULO 3.- La Justicia es administrada por:
-a) Alcaldías.
-b) Juzgados, actuarios y árbitros.
-c) Tribunales colegiados.
-ch) Tribunales superiores.
-d) Las Salas de la Corte Suprema de Justicia y la Corte
-Plena.
-En los juzgados, alcaldías de cualquier categoría y materia
-y en las agencias fiscales podrá haber uno o más jueces, alcaldes
-o agentes fiscales, según lo disponga el Consejo Superior del
-Poder Judicial, para el mejor servicio público. Cada uno de ellos
-tendrá competencia para conocer de los asuntos que la ley
-determina y actuará con un prosecretario, sin perjuicio de que
-también pueda hacerlo con el secretario.
-Cuando en un juzgado, alcaldía o agencia fiscal hubiere dos
-o más jueces, alcaldes o agentes fiscales, el jefe administrativo
-de la oficina será el funcionario con mayor tiempo de servicio y,
-en igualdad de condiciones, el de título más antiguo en el
-Catálogo del Colegio de Abogados.
-El juez, alcalde o agente fiscal que conozca de un proceso
-tendrá facultades para ordenar lo que corresponda, en el
-cumplimiento de sus funciones. En ese asunto y en relación con
-éste ejercerá el régimen disciplinario. En los demás casos, le
-corresponderá ejercer el régimen disciplinario al cuerpo de
-jueces, alcaldes o agentes fiscales. Los acuerdos se tomarán por
-mayoría y, si hubiere empate, el jefe administrativo tendrá doble
-voto para definir el punto.
-En las resoluciones y actuaciones deberá consignarse el
-nombre y los apellidos del funcionario que actúa en el proceso.
-En los tribunales colegiados habrá las secciones que sean
-necesarias; cada una estará compuesta por tres jueces, salvo en
-aquellos casos en los que por ley se disponga lo contrario.
-También podrán existir tribunales o secciones con cuatro o
-cinco jueces, cuando no sea indispensable crear nuevas secciones.
-En estos casos, tres de los jueces integrarán el tribunal para
-resolver cada asunto, todo conforme a la regulación que realice
-el Consejo Superior del Poder Judicial.
+ARTICULO 3.- Administran la justicia:
+1.-Juzgados y tribunales de menor cuantía, contravencionales y de asuntos sumarios.
+2.-Juzgados de primera instancia y penales.
+3.-Tribunales colegiados.
+4.-Tribunales de casación.
+5.-Salas de la Corte Suprema de Justicia.
+6.-Corte Plena.
+La Corte Suprema de Justicia establecerá el número de jueces tramitadores y decisores, así como de los otros servidores judiciales que deben tener los tribunales de cualquier categoría y materia; para ello, tomará en consideración las necesidades propias del despacho, en aras de la mejor realización del servicio público de la justicia.
+Cuando en un tribunal existan dos o más jueces, el coordinador del órgano será elegido internamente por sus iguales.
+Si los despachos jurisdiccionales se organizaren en un circuito judicial, los jueces nombrarán entre ellos al coordinador general.
+El juez que conozca de un proceso tendrá la facultad de ordenar lo que corresponda, para el cumplimiento de sus funciones y, en cada asunto, tendrá la potestad de ejercer el régimen disciplinario. En los demás casos, esa potestad le corresponde al cuerpo de jueces y los acuerdos se tomarán por mayoría; si hubiere empate, el coordinador tendrá doble voto.
+En las resoluciones y las actuaciones, deberán consignarse el nombre y los apellidos del funcionario a cargo del proceso.
+Los tribunales colegiados estarán conformados por el número de jueces que se requieran para el buen servicio público y actuarán individualmente o en colegios de tres de ellos, salvo que la ley disponga otra forma de integración.
+El coordinador distribuirá la carga de trabajo, aplicando los criterios que hayan fijado los jueces con anterioridad y buscando siempre la mayor equidad. Cuando no se pongan de acuerdo, el Consejo Superior del Poder Judicial o la Corte Suprema de Justicia, según corresponda, fijará las reglas.
+(Así reformado por el artículo 1º de la Ley de Reorganización Judicial No.7728 de 15 de diciembre de 1997)

@@ -1,6 +1,5 @@
 ARTICULO 220.- En el caso del artículo 217, el funcionario o
-tribunal hará constar en los autos, de forma lacónica, la falta
-cometida y, a continuación, dictará resolución fundamentada en la
-que impondrá la multa. La apelación que establezca el interesado,
-de acuerdo con el mencionado artículo, deberá interponerse dentro
-del tercer día.
+tribunal hará constar en los autos, de forma lacónica, la falta cometida
+y, a continuación, dictará resolución fundamentada en la que impondrá la
+multa. La apelación que establezca el interesado, de acuerdo con el
+mencionado artículo, deberá interponerse dentro del tercer día.

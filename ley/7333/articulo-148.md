@@ -1,7 +1,5 @@
 CAPITULO IV
 DEL ENCARGADO DE TESORERIA
-ARTICULO 148.- En los Despachos en que el Consejo Superior
-del Poder Judicial lo considere necesario, habrá un contador
-privado, debidamente incorporado, que tendrá a su cargo la
-contabilidad de los depósitos judiciales y el proceso de emisión
-de cheques.
+ARTICULO 148.- DEROGADO
+( Derogado por el artículo 23 de la Ley de Reorganización Judicial,
+Nº 7728 de 15 de diciembre de 1997).

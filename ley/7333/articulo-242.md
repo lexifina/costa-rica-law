@@ -1,18 +1,15 @@
-ARTICULO 242.- Los Magistrados del Tribunal Supremo de
-Elecciones y el Director del Registro Civil que antes de su
-elección hayan sido abogados funcionarios judiciales, con un
-servicio mayor de cinco años, podrán permanecer protegidos con el
-Plan de Jubilaciones y Pensiones de esta Ley, y el tiempo que
-sirvieren en esos organismos se les computará como si lo fuera en
-el Poder Judicial. Continuarán esos funcionarios contribuyendo en
-la forma que lo exige el artículo 236 de esta Ley. Dichos
-Magistrados tendrán los mismos beneficios que los Magistrados de
-la Corte Suprema de Justicia, y el Director del Registro, los
-beneficios señalados para los jueces, en igualdad de
-circunstancias.
-El Estado, en esos casos, debe pagar por esos funcionarios
-la cuota que señala el inciso 2 del artículo 236 citado, sobre la
-suma destinada en el presupuesto general de gastos para atender
-sus sueldos en el Tribunal Supremo de Elecciones y en el Registro
-Civil. Esta cuota será depositada conforme se indica en el
-referido inciso 2.
+ARTICULO 242.- Los Magistrados del Tribunal Supremo de Elecciones y
+el Director del Registro Civil que antes de su elección hayan sido
+abogados funcionarios judiciales, con un servicio mayor de cinco años,
+podrán permanecer protegidos con el Plan de Jubilaciones y Pensiones de
+esta Ley, y el tiempo que sirvieren en esos organismos se les computará
+como si lo fuera en el Poder Judicial. Continuarán esos funcionarios
+contribuyendo en la forma que lo exige el artículo 236 de esta Ley.
+Dichos Magistrados tendrán los mismos beneficios que los Magistrados de
+la Corte Suprema de Justicia, y el Director del Registro, los beneficios
+señalados para los jueces, en igualdad de circunstancias.
+El Estado, en esos casos, debe pagar por esos funcionarios la cuota
+que señala el inciso 2 del artículo 236 citado, sobre la suma destinada
+en el presupuesto general de gastos para atender sus sueldos en el
+Tribunal Supremo de Elecciones y en el Registro Civil. Esta cuota será
+depositada conforme se indica en el referido inciso 2.

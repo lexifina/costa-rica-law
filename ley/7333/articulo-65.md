@@ -1,8 +1,7 @@
-ARTICULO 65.- El Presidente de la Corte podrá, a solicitud
-del respectivo Presidente de Sala, llamar Magistrados suplentes
-al ejercicio del cargo, por determinados períodos, para que se
-desempeñen en las Salas en que estuvieren asignados, para
-colaborar cuando la Sala no se encontrare al día en la resolución
-de los asuntos de su conocimiento o fuere necesario dedicar,
-exclusivamente, a un titular para resolver asuntos de suma
-complejidad.
+ARTICULO 65.- El Presidente de la Corte podrá, a solicitud del
+respectivo Presidente de Sala, llamar Magistrados suplentes al ejercicio
+del cargo, por determinados períodos, para que se desempeñen en las Salas
+en que estuvieren asignados, para colaborar cuando la Sala no se
+encontrare al día en la resolución de los asuntos de su conocimiento o
+fuere necesario dedicar, exclusivamente, a un titular para resolver
+asuntos de suma complejidad.

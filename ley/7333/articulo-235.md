@@ -1,6 +1,6 @@
-ARTICULO 235.- Corresponde al Consejo, de oficio o a
-solicitud de interesado, conceder las jubilaciones o pensiones,
-vigilar el correcto aprovechamiento de las mismas y modificar o
-cancelar, en su caso, las otorgadas, para lo cual se le confieren
-todas las facultades necesarias, sin perjuicio de la
-fiscalización que corresponda a la jurisdicción común.
+ARTICULO 235.- Corresponde al Consejo, de oficio o a solicitud de
+interesado, conceder las jubilaciones o pensiones, vigilar el correcto
+aprovechamiento de las mismas y modificar o cancelar, en su caso, las
+otorgadas, para lo cual se le confieren todas las facultades necesarias,
+sin perjuicio de la fiscalización que corresponda a la jurisdicción
+común.
