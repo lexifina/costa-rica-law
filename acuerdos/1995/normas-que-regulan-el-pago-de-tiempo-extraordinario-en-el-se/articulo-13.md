@@ -1,0 +1,1 @@
+Artículo 13.-Es requisito para la autorización de tiempo extraordinario por parte de la Comisión de Recursos Humanos, que la institución solicitante haya enviado el Informe Trimestral correspondiente a los meses de julio, agosto y setiembre del presente año.

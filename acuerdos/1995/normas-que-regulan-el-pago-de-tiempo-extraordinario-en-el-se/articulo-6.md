@@ -1,0 +1,1 @@
+Artículo 6°-La Comisión de Recursos Humanos podrá recibir solicitudes adicionales para laborar tiempo extraordinario, siempre que las mismas sean previas a su realización y por razones de fuerza mayor, debidamente justificadas por el jerarca de la institución.

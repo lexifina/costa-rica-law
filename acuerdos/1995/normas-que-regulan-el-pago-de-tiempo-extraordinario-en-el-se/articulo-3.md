@@ -1,0 +1,1 @@
+Artículo 3°-Una vez extendida la autorización para el trabajo en tiempo extraordinario por parte de la Comisión de Recursos Humanos la Institución procederá a cancelar el tiempo extraordinario efectivamente laborado de cada funcionario.

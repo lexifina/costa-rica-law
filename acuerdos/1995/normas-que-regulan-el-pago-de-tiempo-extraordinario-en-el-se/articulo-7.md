@@ -1,0 +1,1 @@
+Artículo 7°-Toda solicitud deberá consignar para su estudio y aprobación por parte de la Comisión de Recursos Humanos la autorización respectiva del Ministro, Viceministro, u Oficial Mayor del Poder Ejecutivo y la del Gerente o Presidente Ejecutivo o Director Ejecutivo o máximo Jerarca en los casos de instituciones descentralizadas.

@@ -1,0 +1,1 @@
+Artículo 5°-En el periodo comprendido entre octubre, noviembre y diciembre, las instituciones del Sector Público deberán formular ante la Comisión de Recursos Humanos las solicitudes de tiempo extraordinario para el periodo siguiente con base en los planes anuales de trabajo.

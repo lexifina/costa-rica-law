@@ -1,0 +1,1 @@
+Artículo 16.-Quedan excluidos de la remuneración de tiempo extraordinario funcionarios acogidos a Dedicación Exclusiva, Prohibición del Ejercicio Liberal de la Profesión, Disponibilidad y aquellos que ocupen cargos de Jefatura formal de conformidad con el decreto N° 24131-H-PLAN.
