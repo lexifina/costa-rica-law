@@ -1,0 +1,1 @@
+Artículo 4º—Si se van a realizar corridas de toros, permiso sanitario de funcionamiento del redondel, póliza que garantice la estructura del redondel y daños a terceros, documento que garantice la participación de la Cruz Roja, documento que garantice la participación de la autoridad policial que atenderá la actividad, contrato taurino y programación del evento.

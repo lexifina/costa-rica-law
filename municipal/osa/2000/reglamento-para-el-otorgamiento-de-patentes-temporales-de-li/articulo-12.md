@@ -1,0 +1,1 @@
+Artículo 12.—La Municipalidad podrá suspender o cancelar en cualquier momento la patente temporal de licores, cuando en el local autorizado se produzcan escándalo o alteración del orden público o cuando se violen las disposiciones de este Reglamento, independientemente de las penas que pudieren imponer las autoridades judiciales correspondientes.

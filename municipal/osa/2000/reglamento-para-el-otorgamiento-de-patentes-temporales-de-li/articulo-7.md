@@ -1,0 +1,1 @@
+Artículo 7º—Las patentes temporales de licores se podrán otorgar hasta por un tiempo máximo de 8 días. Solo se permitirá el uso del derecho ya adquirido por patentados de cada distrito, según lo establece el artículo 17 del Decreto Ejecutivo Nº 17757-G sin excepción.

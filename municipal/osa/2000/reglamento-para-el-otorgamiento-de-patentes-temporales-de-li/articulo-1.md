@@ -1,0 +1,4 @@
+REGLAMENTO PARA OTORGAMIENTO DE PATENTES TEMPORALES DE LICORES
+Que de acuerdo a Decreto Ejecutivo Nº 17757-G, sección segunda, artículo 17, las Municipalidades por acuerdo firme, pueden conceder patentes temporales para el expendio de licores en fiestas cívicas y patronales, turnos, ferias y afines. La Municipalidad de Osa, en uso de las facultades que le otorga la Constitución Política y el Código Municipal ha confeccionado este Reglamento con el fin de regular la explotación de este tipo de patente.
+Debidamente aprobado por acuerdo firme tomado en sesión número cuarenta y dos, celebrada el día dieciocho de octubre del dos mil, en su capítulo IV, punto siete.
+Artículo 1º—La Municipalidad del Cantón de Osa, otorgará patentes temporales únicamente para fiestas cívicas y patronales, turnos, ferias y afines siempre y cuando cumplan con los permisos correspondientes para salvaguardar la seguridad ciudadana.

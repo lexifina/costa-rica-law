@@ -1,0 +1,1 @@
+Artículo 5º—En caso de uso de pólvora, juegos pirotécnicos, autorización del Departamento de Armas y Explosivos del Ministerio de Seguridad, póliza del INS y compromiso de utilizar un tubo de hierro ajustado a un hoyo en tierra firme, para las detonaciones.

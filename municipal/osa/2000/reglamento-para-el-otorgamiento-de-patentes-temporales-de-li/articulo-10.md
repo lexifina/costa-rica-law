@@ -1,0 +1,1 @@
+Artículo 10.—Si se fuere a utilizar una patente de algún patentado, deberá presentar una nota donde se comprometa a que su establecimiento estará cerrado en el tiempo que dure la actividad, lo que deberá negociar y manejar el grupo interesado.
