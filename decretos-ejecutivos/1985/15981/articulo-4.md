@@ -1,0 +1,1 @@
+ARTÍCULO 4°.-Todo extranjero, as¡ como los estudiantes, que cuentan con permiso de residencia al día y que se dediquen a alguna actividad no deportiva para su subsistencia, pueden participar libremente en las actividades deportivas y recreativas, no quedando sujetos a las disposiciones del artículo 1° de este Decreto.
