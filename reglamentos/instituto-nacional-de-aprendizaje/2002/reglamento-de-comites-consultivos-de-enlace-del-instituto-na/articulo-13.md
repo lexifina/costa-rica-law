@@ -1,0 +1,2 @@
+Artículo 13.—Designación. A solicitud del Jefe del Núcleo, las organizaciones empresariales y laborales de cada subsector así como las instituciones públicas atinentes, propondrán los representantes del Comité del respectivo Subsector.
+Posteriormente, el Jefe de Núcleo mediante resolución razonada, será responsable de presentar a la Gestión de Formación y Servicios Tecnológicos, el nombre de las personas designadas, para que esta última las recomendaciones que considere pertinentes. Con el objeto de que las someta a la Subgerencia Técnica para su escogencia.

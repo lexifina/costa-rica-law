@@ -1,0 +1,1 @@
+Artículo 3º—Naturaleza. Los Comités son órganos colegiados, de carácter consultivo, que coadyuvan a la consecución de los fines institucionales, integrados por funcionarios del INA y representantes de entidades externas.

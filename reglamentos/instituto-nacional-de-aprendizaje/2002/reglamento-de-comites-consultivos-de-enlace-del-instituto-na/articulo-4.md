@@ -1,0 +1,1 @@
+Artículo 4º—Creación. Corresponderá a la Junta Directiva aprobar la creación de los Comités, previa recomendación de la Presidencia Ejecutiva, a propuesta de la persona responsable de Gestión Tecnológica o de la Gestión Regional, según corresponda.

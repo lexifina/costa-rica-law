@@ -1,0 +1,3 @@
+Artículo 8º—Designación. A solicitud del INA, los representantes externos de los Comités de Cúpula de los sectores agropecuario, industrial y comercio y servicio, serán designados por las Cámaras Nacional de Agricultura y Agroindustria, de Industrias de Costa Rica y de Comercio de Costa Rica, respectivamente.
+Cada Cámara nombrará dos representantes propietarios y un suplente.
+También a pedido del INA, las organizaciones más representativas de la actividad sindicalista, cooperativista y solidarista, propondrán cada una, dos representantes propietarios y un suplente quien participará únicamente en caso de no poder hacerlo alguno de los titulares.
