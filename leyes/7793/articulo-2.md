@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Autorízase a la Municipalidad de Aguirre para girar al Fideicomiso que se crea en el artículo 1 de esta ley, el veinticinco por ciento (25%) de los fondos recaudados a la fecha de entrada en vigencia de esta ley, de acuerdo con lo establecido en el inciso a), del artículo 8 de la Ley de Reforma de la Ley de Creación del Parque Nacional Playas Manuel Antonio, No. 5804, de 24 de setiembre de 1975.
+Rige a partir de su publicación.
