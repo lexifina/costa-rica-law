@@ -14,10 +14,11 @@ N 233050 E 378500 Cerro Grande.
 N 233400 E 378375
 N 233900 E 378425 en río Potrero, sigue aguas abajo por la margen derecha hasta el punto N 233750 E 379350, continúa por el costado Sur del camino que conduce a Hondores, hasta N 233000 E 380000.
 N 233000 E 380325
-N 231400 E 380800
+N 232400 E 380800
 N 232750 E 381825
 N 232625 E 382150
 N 232325 E 382450
 N 232450 E 382750
-Se continúa con rumbo SE, hasta la naciente de la quebrada Ojo de Agua, siguiendo por ésta aguas abajo hasta un punto N 232075 E 382125, en el camino que lleva a Matambú, al NE, a la carretera Nicoya-Mansión. Se sigue por el costado Oeste hasta el punto inicial de la presente descripción en río Momollejo.
-Area aproximada: 1 710 hectáreas.
+Se continúa con rumbo SE, hasta la naciente de la quebrada Ojo de Agua, siguiendo por ésta aguas abajo hasta un punto N 232075 E 382125, en el camino que lleva a Matambú, al NE, a la carretera Nicoya-Mansión.
+Se sigue por el costado Oeste hasta el punto inicial de la presente descripción en río Momollejo.
+Área aproximada: 1 710 hectáreas.

@@ -1,2 +1,2 @@
 Artículo 6º.- Rige a partir de su publicación.
-Dado en la Casa Presidencial. -San José, a los dos días del mes de junio de mil novecientos ochenta.
+Dado en la Casa Presidencial.-San José, a los dos días del mes de junio de mil novecientos ochenta.

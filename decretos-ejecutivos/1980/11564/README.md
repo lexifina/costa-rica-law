@@ -14,3 +14,4 @@ Establece Caserío Indígena de Matambú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-06-18 | la propia norma |
+| 2 | 1980-06-18 | SINALEVI (sin norma nombrada) |
