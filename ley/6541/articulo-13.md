@@ -1,3 +1,1 @@
-Artículo 13.- Las instituciones reguladas por esta ley tendrán, como
-estructura administrativa mínima, un consejo directivo y un decano o
-director, a quien corresponderá la representación judicial y extrajudicial.
+Artículo 13.- Las instituciones reguladas por esta ley tendrán, como estructura administrativa mínima, un consejo directivo y un decano o director, a quien corresponderá la representación judicial y extrajudicial.

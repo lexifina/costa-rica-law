@@ -1,0 +1,1 @@
+Transitorio II.- Los colegios universitarios y aquellas otras instituciones que, en el momento de la promulgación de esta ley, tuvieran aprobadas carreras de nivel superior parauniversitario, quedarán comprendidas dentro de los alcances de ésta.

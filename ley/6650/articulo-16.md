@@ -25,3 +25,5 @@ Servicio intercantonal ………………………….. 150.00 c/u
 Servicio distrital .................................................... 100.00 c/u
 Servicio de taxi .................................................... 125.00 c/u
 i) Los lotes incultos en el área urbana pagarán trimestralmente ¢20,00 por metro lineal de frente. Quedarán exentos del pago de e:te impuesto los lotes que se mantienen debidamente cerrados y limpios de desechos, en el momento de la inspección correspondiente al trimestre del caso.
+j) Quienes expendan gasolina, diesel y canfín pagarán un monto fijo de ¢ 7.500 trimestrales.
+(Así adicionado el inciso j) anterior por el artículo 127 de la ley N° 7015 del 22 de noviembre de 1985 "Ley de presupuesto Extraordinario")
