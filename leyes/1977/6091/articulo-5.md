@@ -1,4 +1,4 @@
-Artículo 5º.- El Museo tendrá un Director nombrado libremente por el
+ARTICULO 5º.- El Museo tendrá un Director nombrado libremente por el
 Ministerio de Cultura, Juventud y Deportes, sobre la base de la
 experiencia administrativa y el conocimiento de la historia del arte
 costarricense en particular y del arte contemporáneo en general. El cargo
