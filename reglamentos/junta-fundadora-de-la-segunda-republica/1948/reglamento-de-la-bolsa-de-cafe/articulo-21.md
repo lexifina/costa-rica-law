@@ -1,1 +1,0 @@
-Articulo 21.-Para la inscripción de contratos de venta, consignaciones u ofertas de venta de café de consumo local, la Oficina aceptará, bajo las responsabilidades del beneficiador, un rendimiento provisional máximo de 110 libras por fanega.

@@ -1,1 +1,0 @@
-Artículo 13.-Además de la pérdida del depósito del 10 % referido en el artículo 12, el adjudicatario de una subasta que dejare de cumplir con los términos de la operación, incurrirá en las responsabilidades legales. La suspensión a que se refiere el artículo 9° podrá dictarse por un término de 30 a 90 días.

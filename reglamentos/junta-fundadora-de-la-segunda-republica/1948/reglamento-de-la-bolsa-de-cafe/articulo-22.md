@@ -1,2 +1,0 @@
-Articulo 22.-Los beneficiadores deben rendir un informe a la Oficina los días quince y último de cada mes, del café recibido en sus patios, con separación del propio y del comprado. Quienes dejen de hacerlo en los cinco días siguientes al vencimiento de cada quincena, no podrán registrar ninguna operación en los libros de la Oficina ni en los catálogos de la Bolsa, mientras no rindan el mencionado informe.
-La Oficina podrá constatar, cuando lo crea necesario, la veracidad de esos informes para conceder los permisos que se le soliciten.

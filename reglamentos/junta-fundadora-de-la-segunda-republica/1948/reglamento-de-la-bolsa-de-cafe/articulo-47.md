@@ -1,1 +1,0 @@
-Artículo 47.-Los Agentes Corredores deberán presentar referencias bancarias o otra índole, a satisfacción plena del Presidente de la Bolsa del Café, que atestigüen o acrediten su capacidad para garantizar el fiel cumplimiento de los contratos de venta que registren en su nombre, sin cuyo requisito no podrán ejercer las funciones dichas.

@@ -1,1 +1,0 @@
-Artículo 28.-Las certificaciones de inscripción de las actas de subasta y de los contratos de "venta en firme" y "para entrega futura", que sean precisas para la presentación de las cuentas pro-forma a la Junta de Liquidaciones del Café, serán extendidas de oficio por el Secretario de la Bolsa.

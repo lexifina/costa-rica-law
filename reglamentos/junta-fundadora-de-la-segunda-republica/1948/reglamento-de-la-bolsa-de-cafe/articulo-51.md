@@ -1,2 +1,0 @@
-Artículo 51.-Las operaciones de la Bolsa estarán sujetas al pago de una tasa, que estará a cargo por partes iguales, del comprador y del vendedor, fijada así : Ventas subasta, ¢1.00 por quintal. Por inscripción de contratos en el Registro de la Bolsa, el vendedor ¢ 0.10 y el comprador igual suma por cada quintal.
-(Nota de Sinalevi: Mediante el artículo 1° de la ley N° 3062 del 14 de noviembre de 1962, se indica derogar la tasa, indicada en este numeral)

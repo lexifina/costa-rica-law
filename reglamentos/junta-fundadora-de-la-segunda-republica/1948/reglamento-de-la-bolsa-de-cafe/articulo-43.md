@@ -1,1 +1,0 @@
-Artículo 43.-La Comisión Oficial de Peritos tiene a su cuidado examinar las diferencias que se produzcan en la ejecución y cumplimiento de las operaciones llevadas a término en la Bolsa, y pronunciarse acerca de las mismas.

@@ -1,1 +1,0 @@
-Artículo.-52.-Los beneficiadores están obligados a justificar las ventas correspondientes a la totalidad del café recibido y tratado en sus patios, por medio de los contratos que tengan celebrados para entregas en el exterior y de las actas de las subastas locales; ambos documento s debidamente registrados en la Bolsa del Café.

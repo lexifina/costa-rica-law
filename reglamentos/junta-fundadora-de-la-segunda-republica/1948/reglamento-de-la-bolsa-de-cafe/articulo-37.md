@@ -1,1 +1,0 @@
-Artículo 37.-Los honorarios de la Comisión Oficial de Peritos y del Tribunal de Arbitrajes, serán pagados en la proporción que fije la tabla elaborada por la Oficina del Café, por aquella de las partes que resultare responsable de la omisión o acto culpable según el veredicto o fallo.

@@ -1,1 +1,0 @@
-Artículo 36.-La falta de cumplimiento de las decisiones a que se contrae el artículo anterior, evidenciadas por el Presidente de la Bolsa a requerimiento escrito de los interesados, será sancionada con multa de ¢ 500.00 a ¢2.000.00.

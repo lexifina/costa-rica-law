@@ -1,1 +1,0 @@
-Artículo 33.-La intervención de la Comisión Oficial de Peritos y la instancia para arbitrar las diferencias resultantes de la ejecución o cumplimiento de un contrato, serán solicitadas al Presidente de la Bolsa, con una relación de los extremos de la operación que origina el desacuerdo.
