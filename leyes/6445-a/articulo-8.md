@@ -1,0 +1,19 @@
+ARTICULO VIII
+Desembolsos
+Sección 8.1. Desembolsos para Costos en Moneda Extranjera.
+(a) Después de cumplir con las condiciones previas el Prestatario podrá obtener desembolsos de fondos dentro del Préstamo para los Costos en Moneda Extranjera de bienes o servicios necesarios para el Proyecto, de conformidad con los términos de este Convenio por medio de algunos de los siguientes métodos que pueden ser elegidos de mutuo acuerdo:
+(i) presentando a la A.I.D. con los documentos justificativos necesarios prescritos en Cartas de Cumplimiento del Proyecto solicitudes para reembolsos por dichos bienes y servicios, o para que la A.I.D. adquiera bienes o servicios en nombre del Prestatario para el Proyecto, o
+(ii) solicitando que la A.I.D. emita Cartas de Compromiso por determinadas sumas a uno o más bancos de los Estados Unidos comprometiéndose la A.I.D. a reintegrar a dicho banco o bancos los pagos efectuados por éste o éstos a contratistas o proveedores con Cartas de Crédito u otros medios similares, por bienes o servicios o directamente a uno o más contratistas o proveedores comprometiéndose la A.I.D. a pagar a dichos contratistas o proveedores por tales bienes o servicios.
+(b) Los gastos bañe arios incurridos por el Prestatario en relación con las Cartas de Compromiso y las Cartas de Crédito serán financiadas dentro del Préstamo, a menos que el Prestatario indique a la A.I.D. lo contrario. Otros gastos, acordados por las Partes, también podrán ser financiados dentro del Préstamo.
+Sección 8.2. Desembolsos para Cos tos en Moneda Local.
+(a) Una vez satisfechas las condiciones previas, el Prestatario podrá obtener desembolsos de fondos del Préstamo para cubrir Costos en Moneda Local necesarios para el Proyecto, de conformidad con los términos de este Convenio, mediante la presentación a la A.I.D. de solicitudes para financiar tales costos, acompañadas de los documentos justificativos necesarios prescritos en las Cartas de Cumplimiento del Proyecto.
+(b) La moneda local necesaria para tales desembolsos se puede obtener de las siguientes maneras:
+(i) mediante la compra por parte de la A.I.D. de moneda local con dólares délos EE.UU., o
+(ii) solicitando la A.I.D. al Prestatario que haga disponible la moneda local para tales costos y reembolsándole de conformidad un monto de dólares estadounidenses igual en valor a la cantidad de moneda local que el Prestatario hiciere disponible.
+El equivalente en dólares estadounidenses de la moneda local que se haga disponible por este medio, será para el caso de la subsección (b) (i), la cantidad de dólares estadounidenses requeridos por la A.I.D. para obtener la moneda local adquirida por ésta y, en el caso de la subsección (b) (ii) la cantidad de dólares estadounidenses requeridos por la A.I.D. para reembolsar al Prestatario por la moneda local puesta a disposición.
+Sección 8.3. Otras Formas de Desembolso. Los desembolsos del Préstamo también pueden efectuarse de otras maneras acordadas por escrito por las Partes.
+Sección 8.4. Tipo de Cambio. Si los fondos suministrados bajo el Préstamo fueran introducidos en Costa Rica por la A.I.D. o cualquier dependencia pública o privada, para propósitos de llevar a cabo obligaciones de la A.I.D. bajo este Convenio, el Prestatario hará los arreglos que sean necesarios para que tales fondos puedan ser convertidos a moneda local al más alto tipo de cambio oficialmente establecido por el Banco Central de Costa Rica, vigente al momento que se efectúe la conversión.
+Sección 8.5. Fecha de Desembolso.
+Los desembolsos de la A.I.D. se considerarán como efectuados:
+(a) en la fecha en que la A.I.D. efectúe un desembolso al Prestatario o a su designado, o a un banco, a un contratista, o a un proveedor, de conformidad con una Carta de Compromiso, un contrato, o una orden de compra;
+(b) en la fecha en que la A.I.D. desembolse al Prestatario o a su designado la moneda local adquirida de conformidad con la Sección 3.2 (b) (i).

@@ -1,0 +1,4 @@
+ARTICULO II
+El Proyecto
+Sección 2.1. Definición del Proyecto. El Proyecto, que se describe con más detalles en el Anexo I, Descripción Ampliada del Proyecto, consistirá en brindar asistencia al Prestatario en el financiamiento de un programa diseñado para establecer el Proyecto de Ciencia y Tecnología, que fortalecerá la capacidad de Costa Rica para planear, llevar a cabo y aplicar a sus procesos productivos la investigación científica y tecnológica que tome en cuenta las necesidades de los grupos más pobres de Costa Rica y el uso racional de los recursos naturales de Costa Rica.
+Dentro de los límites de la definición anterior, se podrían cambiar algunos elementos de la descripción ampliada formulada en el Anexo I, mediante acuerdo escrito de los representantes autorizados de las Partes, que se mencionan en la Sección 9.2, sin necesidad de una enmienda formal a este Convenio .
