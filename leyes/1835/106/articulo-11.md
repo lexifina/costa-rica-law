@@ -1,0 +1,1 @@
+Art 11.- También se le dará noticia del papel que se selle, así como de todo objeto que se ponga en venta administración por cuenta de la Hacienda del Estado, y de todo arbitrio o caudal extraordinaria que entre a las Tesorerías o Administración por ordenes superiores.

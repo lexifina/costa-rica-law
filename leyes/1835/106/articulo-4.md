@@ -1,0 +1,1 @@
+Art 4.- El Contador hará las veces del Intendente cuando este se enferme o ausente, con licencia del Gobierno, en la inteligencia que esta art. Tendrá efecto luego que estén revisadas las cuentas atrasadas, y la Oficina en corriente.
