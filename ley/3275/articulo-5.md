@@ -1,0 +1,1 @@
+Artículo 5º.- El Consejo Técnico de Asistencia Médico Social, que tendrá personería jurídica para este efecto, administrará el funcionamiento de los sistemas de apuestas que lleguen a establecerse al amparo de esta ley, sometiendo en cada caso su reglamentación al Poder Ejecutivo.
