@@ -1,0 +1,1 @@
+Art 2°. - Para proveer, en lo sucesivo, las ventas de aguardiente del país, los Administradores de Licores dirigirán a la Secretaría de Hacienda una lista de las personas que, a su juicio, entre las solicitantes, reúnan las circunstancias necesarias para el buen servicio, y el Presidente de la República, con vista de ellas, hará los nombramientos que correspondan.
