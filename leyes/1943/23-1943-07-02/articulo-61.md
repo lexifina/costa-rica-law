@@ -1,0 +1,1 @@
+Artículo 61.-La Secretaría de Agricultura y Ganadería suministrará a las autoridades de policía los libros a que se refieren los artículos 44 y 52 y las fórmulas impresas para las licencias previstas en este último texto.

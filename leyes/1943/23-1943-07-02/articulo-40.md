@@ -1,0 +1,1 @@
+Articulo 40.-Cuando el inculpado acepte el cargo o la autoridad haya aportado prueba eficiente de éste, no desvirtuada, se dictará resolución ordenando la inscripción provisional del indiciado en el Registro General de Sospechosos, y la sentencia será apelable.

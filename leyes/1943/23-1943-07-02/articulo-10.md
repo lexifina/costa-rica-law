@@ -1,0 +1,1 @@
+Artículo 10.-Para conceder a los reos de delitos o faltas contra la agricultura la gracia de indulto de conformidad con las reglas comunes, es necesario el informe favorable de la Secretaría de Agricultura y Ganadería.

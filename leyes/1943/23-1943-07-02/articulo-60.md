@@ -1,0 +1,1 @@
+Artículo 60.-La Secretaría dé Agricultura y Ganadería difundirá en las masas campesinas el conocimiento de las normas fundamentales de esta ley por medio de avisos sugestivos, recomendaciones útiles y viñetas llamativas, y emprenderá una intensa campaña educativa en colaboración con la Secretaría de Educación Pública.

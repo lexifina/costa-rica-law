@@ -1,0 +1,1 @@
+Artículo 20.-Si quien transitare por predios ajenos cultivados estuviere inscrito en el Registro General de Sospechosos, sufrirá arresto de dos a cuatro meses, salvo que demostrare de modo evidente el motivo lícito de la entrada o el tránsito.

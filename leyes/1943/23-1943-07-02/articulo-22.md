@@ -1,0 +1,1 @@
+Artículo 22.-Quedan a salvo de lo dispuesto en los artículos que anteceden, las servidumbres así como las propiedades; en donde existan calles, caminos o senderos entregados por la ley o de hecho al servicio público o al de vecinos o propietarios de una localidad, siempre que el tránsito se haga exclusivamente por el sendero, camino o calle en servicio.

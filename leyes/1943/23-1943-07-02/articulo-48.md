@@ -1,0 +1,1 @@
+Artículo 48.-El pronunciamiento que conceda el aplazamiento condicional de las medidas preventivas quedará sin efecto en cualquier momento en que se justifique de nuevo, dentro del plazo de cinco años a partir de la inscripción, que el sospechoso ha observado mala conducta o que ha vuelto a la ociosidad.

@@ -1,0 +1,2 @@
+Sección 4°--De las faltas contra la inviolabilidad del predio ajeno
+Artículo 19.-El que entrare en fincas rústicas o huerta casera ajena o transitare por ella, sin permiso del dueño, arrendatario poseedor o encargado de su cuido, será castigado con arresto de diez a treinta días o con multa de veinte colones ( ¢ 20.00) a sesenta colon ( ¢ 60.00). Si .se tratare de terrenos bien cercados y cultivados o en vías de cultivo, la pena será necesariamente de veinte a cuarenta días de arresto inconmutable.

@@ -1,0 +1,1 @@
+Artículo 57.-El Poder Ejecutivo procederá, cuando las condiciones del Erario Público lo permitan, a crear una Guardia Rural para la persecución del merodeo en los campos, adscrita a la Secretaría de Agricultura y Ganadería.
