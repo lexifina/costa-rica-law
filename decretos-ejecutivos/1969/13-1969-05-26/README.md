@@ -15,3 +15,4 @@ Crea Consejo Nacional de Aguas
 | --- | --- | --- |
 | 1 | 1969-07-11 | la propia norma |
 | 2 | 1969-08-28 | Decreto Ejecutivo 20 (1969-08-28) |
+| 3 | 2002-08-13 | Decreto Ejecutivo 30653 (2002-08-13) |

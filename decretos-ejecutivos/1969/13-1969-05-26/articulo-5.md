@@ -1,1 +1,1 @@
-Artículo 5°—El Servicio Nacional de Electricidad tendrá a su cargo las funciones de Secretaria del Consejo Nacional de Aguas.
+Artículo 5°—DEROGADO por el artículo 2 del Decreto Ejecutivo N° 30653 de 13 de agosto del 2002.

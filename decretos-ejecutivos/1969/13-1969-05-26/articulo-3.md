@@ -1,1 +1,1 @@
-Artículo 3°—Los Miembros del Consejo a que se refieren los apartes h), i) v j) del articulo anterior durarán dos años en sus funciones, pudiendo ser reelectos.
+Artículo 3°—DEROGADO por el artículo 2 del Decreto Ejecutivo N° 30653 de 13 de agosto del 2002.

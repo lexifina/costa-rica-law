@@ -1,1 +1,1 @@
-Artículo 10.—El Consejo elegirá de su seno, un Presidente y un Vicepresidente, quienes durarán un año en sus funciones, pudiendo ser reelectos.
+Artículo 10.—DEROGADO por el artículo 2 del Decreto Ejecutivo N° 30653 de 13 de agosto del 2002.
