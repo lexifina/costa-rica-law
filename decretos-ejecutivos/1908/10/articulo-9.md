@@ -1,0 +1,4 @@
+Artículo 9°-El rematario ó cesionario de un derecho á denunciar baldíos, en virtud de la ley que se reglamenta por el presente, deberá notificar al jefe de la Contabilidad Nacional cualquiera cesión, total ó parcial, que hiciere de su derecho antes de practicar el denuncio, así como presentar original el certificado en que conste su derecho.
+El jefe dicho recogerá é inutilizará con perforador este certificado, y en lugar de éste librará los nuevos que fueren precisos, para que los interesados puedan denunciar. Estos certificados contendrán no sólo los datos que contenía la certificación del juez, sino además los de la cesión verificada y los de registro.
+El asiento primitivo será cancelado y se pondrán los nuevos que procedieren.
+Si la cesión se hiciere después de hecho el denuncio, el juez la comunicará por nota al Jefe de la Contabilidad Nacional para que proceda á la cancelación del asiento primitivo y á hacer el nuevo ó nuevos que requiera la cesión.

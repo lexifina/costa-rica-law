@@ -1,0 +1,2 @@
+Artículo 14. -Las municipalidades comunicarán á la Secretaría de Gobernación los acuerdos en que dispongan emplear el producto de los remates depositado en el Tesoro Público, á fin de que se vigile su correcta inversión.
+La Secretaría de Gobernación, á su vez, participará su decisión á la Secretaría de Hacienda para que ésta libre á favor del respectivo Tesorero Municipal los giros procedentes á cargo del Tesoro Público.

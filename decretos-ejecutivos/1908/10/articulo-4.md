@@ -1,0 +1,1 @@
+Artículo 4°~La Secretaría de Gobernación, una vez examinado el caso, aprobará, si procediere, el acuerdo municipal, y mandará publicar la aprobación, junto con el acuerdo aprobado, en el periódico oficial.

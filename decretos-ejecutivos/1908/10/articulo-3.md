@@ -1,0 +1,3 @@
+Artículo 3° -El acuerdo municipal que disponga la venta será comunicado, por el órgano competente, á la Secretaría de Gobernación.
+Al mismo tiempo, se le enviará copia ó referencia de la ley general ó especial que hubiere otorgado la concesión que quiera aprovecharse.
+Además, se le remitirá una constancia, en papel común, del Juez de lo Contencioso-Administrativo, en que aparezca que la Municipalidad agraciada no ha hecho antes uso del derecho en referencia, en todo ó en parte; ó bien, si hubiere denunciado terrenos baldíos, en ejercicio del derecho concedido por la ley correspondiente, que el denuncio hecho ha sido abandonado por desistimiento expreso.

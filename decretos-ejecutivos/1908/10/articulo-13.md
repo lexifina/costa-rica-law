@@ -1,0 +1,1 @@
+Artículo 13. -El dinero producido á las municipalidades por estos remates se depositará por el Juez en el Tesoro Nacional. El Juez hará saber por nota al Jefe de la Contabilidad Nacional el depósito hecho y el nombre del cantón á quien debe abonarse su monto.

@@ -1,0 +1,1 @@
+Artículo 5°-Hecha esta publicación, pero no antes, podrá la Municipalidad pedir al Juez de lo Contencioso Administrativo que señale día y hora para el remate. El Juez hará que se le presente, para agregar al expediente, un ejemplar del periódico oficial en que se hallen insertos el acuerdo municipal y el aprobatorio.
