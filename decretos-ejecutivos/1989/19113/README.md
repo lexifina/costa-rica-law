@@ -13,3 +13,4 @@ Reglamento Licencias Especiales Servidores Ministerio EducaciónPública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-07-28 | la propia norma |
+| 2 | 1991-02-15 | Decreto Ejecutivo 20269 (1991-02-15) |
