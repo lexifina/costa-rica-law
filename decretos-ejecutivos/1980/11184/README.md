@@ -13,3 +13,4 @@ Crea Comisión Nacional Cáncer Gástrico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-02-28 | la propia norma |
+| 2 | 1980-02-28 | SINALEVI (sin norma nombrada) |
