@@ -1,0 +1,1 @@
+Art 41°.- Las funciones de estos no son de abogar por los que los nombren, sino la de proponer al Juez medios coinciliatorios los más eficaces para cortar el progreso del pleito, y darle dictamen para resolver en las terminaciones vervales.

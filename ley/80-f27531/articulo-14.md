@@ -1,0 +1,1 @@
+Art 14°.- De las sentencias de 1ª Instancia solo se admitirá apelación en cauzas civiles sobre propiedad quando el interés del pleito exeda de ciento cincuenta pesos o sea incalculable y se exedan de mil o quando el interés es incalculable, si la sentencia de segunda Instancia no es confirmatorio de la primera.

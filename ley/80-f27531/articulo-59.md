@@ -1,0 +1,1 @@
+Art 59°.- Quando sean demandantes o demandados el Alcalde único, o todos los de un pueblo, se celebrará la conciliación ante el Regidor primero en orden y si lo fueren los Alcaldes y el Ayuntamiento en cuerpo, execerá las funciones de conciliador el Alcalde 1° del año ultimo, y se tratase de un negocio de interez común se ocurrirá al del Pueblo más inmediato que no lo tuviere.

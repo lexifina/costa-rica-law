@@ -1,0 +1,1 @@
+Art 38.- Se faculta a los jueces de la 1ª Instancia para imponer por sentencia la pena de tres meses de obras públicas previa instrucción de causa, sin confirmación de la Corte Superior, y multas que exedan de veinte y cinco pesos por delitos menores como heridas leves y hurtos que no lleguen a diez pesos no siendo de Ganados vacunos y caballaes.

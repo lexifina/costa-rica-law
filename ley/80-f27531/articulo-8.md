@@ -1,0 +1,1 @@
+Art.8.- Estos adjuntos deben tener las mismas qualidades que los Magistrados propietarios exepto la edad en que basta la mayoría y pueden ser recusados por las mismas causas establecidas por las Leyes que estos.

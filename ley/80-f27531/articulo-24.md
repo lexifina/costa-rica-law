@@ -1,0 +1,1 @@
+Art 24°.- Tampoco pueden sus individuos obtener comicion ni otro destino que no sea el despacho del Tribunal en los negocios de su conocimiento y es prohibido a qualquiera de ellos abogar, dirigir no manifestar su opinión en qualesquiera negocios judiciales pendientes.

@@ -1,0 +1,2 @@
+Art 52°.- La conciliación no es necesaria para entablar juicios verbales, ni tampoco en los concursos a capellantes colativas, ni otras cauzas colectivas en que no cabe previa avenencia de las partes.
+En esta última clase se comprenden las cauzas que interesan a la Hacienda pública, a los propios de los pueblos a los establecimientos públicos a los menores a los privados de la administración de sus bienes, y a las herencias vacantes.
