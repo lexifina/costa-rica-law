@@ -1,4 +1,3 @@
-Artículo 139.- La duración legal de los Bancos privados será de
-treinta años, contados desde su instalación, lapso que podrá prorrogarse
-por períodos sucesivos iguales, previa aprobación del Banco Central, dada
-de acuerdo con lo establecido en el artículo anterior.
+CAPITULO IV
+Otras operaciones Artículo 139.-
+Serán íntegramente aplicables a los Departamentos Hipotecarios las disposiciones del artículo 113 de la presente ley.

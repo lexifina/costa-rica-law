@@ -1,9 +1,4 @@
-Artículo 144.- La Junta Directiva de cada Banco privado nombrará,
-con el voto favorable de no menos de cuatro de sus miembros, un Gerente y
-uno o más Subgerentes que tendrán a su cargo la administración del Banco
-de acuerdo con la ley, los reglamentos, sus estatutos y las instrucciones
-que les imparta la Junta. Será extensivo a los Gerentes lo dispuesto
-para los Directores en el artículo anterior en lo que fuere racionalmente
-aplicable.
-Las disposiciones de los artículos 40 y 42 de esta Ley Orgánica
-regirán para los Gerentes de los Bancos privados.
+CAPITULO II
+Administración y vigilancia Artículo 144.-
+Cada banco privado estará bajo la dirección de una junta directiva, integrada por no menos de cinco miembros, quienes durarán en funciones el plazo establecido en los estatutos, el cual no podrá ser mayor de cinco años, y podrán ser reelegidos. Su nombramiento lo hará la asamblea general de accionistas. Los miembros de esa junta no podrán ser, al mismo tiempo gerentes, personeros o empleados del mismo banco, ni directores, gerentes, personeros o empleados de cualquier otra institución bancaria.
+( Así reformado por Ley Nº 7107 de 4 de noviembre de 1988, artículo 1º).

@@ -1,10 +1,4 @@
-Artículo 60.- Los Bancos del Estado podrán recibir depósitos de
-cualquier clase, en moneda nacional o extranjera, de cualquier persona
-natural o jurídica, los cuales quedarán sujetos a las disposiciones de
-esta ley y a los requerimientos de encaje mínimo legal y demás
-condiciones impuestas en la Ley Orgánica del Banco Central. Tales
-depósitos se regirán en lo demás por los preceptos de los reglamentos de
-los propios Bancos y por las disposiciones de las leyes comunes en lo que
-les fueren aplicables. Los depósitos de las secciones de capitalización
-de los Bancos del Estado se regirán, además, por las prescripciones
-especiales, que en cuanto a ellos establece la presente ley.
+Artículo 60.-
+Los bancos podrán recibir todo tipo de depósitos y otras captaciones, en moneda nacional o extranjera, de cualquier persona natural o jurídica, los cuales quedarán sujetos a las disposiciones de esta ley y a los requerimientos de encaje mínimo legal y demás condiciones impuestas en la Ley Orgánica del Banco Central.Tales depósitos y captaciones se regirán, en lo demás, por los preceptos de los reglamentos de los propios bancos y por las disposiciones de las leyes comunes en lo que les fueren aplicables. Los depósitos de las secciones de capitalización de los bancos se regirán, además, por las prescripciones especiales que, en cuanto a ellos, establece la presente ley.
+El Estado y las entidades públicas de carácter estatal, así como las empresas públicas cuyo patrimonio pertenezca, en forma mayoritaria, al Estado o a sus instituciones, solo podrán efectuar depósitos y operaciones en cuenta corriente y de ahorro por medio de los bancos comerciales del Estado.
+( Así reformado por el artículo 162, inciso d), de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 del 3 de noviembre de 1995)

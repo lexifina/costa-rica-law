@@ -1,6 +1,2 @@
-Artículo 130.- Los departamentos hipotecarios estarán obligados a
-recibir sus propios bonos, por su valor nominal, en pago de
-amortizaciones extraordinarias de capital que efectúen los deudores de
-sus créditos hipotecarios, siempre que la amortización o vencimiento de
-los bonos no exceda del plazo del crédito. A opción ellos podrán
-recibirlos en pago de cualesquiera obligaciones a su favor.
+Artículo 130.-
+El pago del principal, intereses, comisiones y otras cargas de los créditos concedidos por los Departamentos Hipotecarios, se pactará por cuotas fijas periódicas, pagaderas en períodos no inferiores a un mes ni mayores de un año, que comprenderán dichos pagos en forma proporcional conforme a las tablas matemáticas que para esos efectos calcularán los departamentos. A juicio de la Junta Directiva de cada banco, las cuotas se cobrarán por anticipado o bien por períodos vencidos. El deudor tendrá derecho a pagar anticipadamente el todo o parte de su deuda, pero los departamentos no estarán obligados a devolverle intereses, comisiones ni otras cargas que hubieren sido pagadas por anticipado.

@@ -1,5 +1,2 @@
-Artículo 155.- Los directores o gerentes que hubieren ordenado el
-pago de dividendos con infracción de las disposiciones anteriores, serán
-responsables, con su patrimonio personal, de la devolución al Banco del
-importe de los dividendos pagados ilegalmente, sin perjuicio de las demás
-sanciones legales que correspondan.
+Artículo 155.-
+Se aplicarán a los bancos privados, en relación con sus liquidaciones de ganancias y pérdidas, los preceptos de los artículos 10 y 14 de la presente ley.

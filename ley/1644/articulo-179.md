@@ -1,0 +1,2 @@
+Artículo 179.-
+Los bancos cooperativos que se constituyan formarán parte del Sistema Bancario Nacional y, por lo tanto, serán regulados por la presente ley, por la Ley Orgánica del Banco Central de Costa Rica y por la Ley de Asociaciones Cooperativas, número 6756 del 5 de mayo de 1982, en cuanto no contravenga las leyes anteriores. Los bancos cooperativos no estarán sujetos a los beneficios concedidos en el párrafo segundo del artículo 136 de la citada ley Nº 6756.

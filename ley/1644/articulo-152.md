@@ -1,4 +1,4 @@
-Artículo 152.- De la Reserva Legal no puede destinarse parte alguna
-al pago de dividendos, los cuales tampoco podrán ser pagados en forma de
-acciones; se cubrirán semestralmente y queda prohibido el pago intermedio
-de ellos con cargo a las Reservas o ganancias ya producidas.
+Artículo 152.-
+Las entidades financieras, fiscalizadas por la Superintendencia General de Entidades Financieras, podrán aumentar su capital mediante una modificación de su escritura social, pagando totalmente esos aumentos. También podrán reducir su capital, sin descender del mínimo legal establecido en el artículo anterior; todo previa autorización del Consejo Directivo de la Superintendencia General de Entidades Financieras, siempre y cuando cumpla con las normas de suficiencia patrimonial establecidas y siempre que, en el caso de una reducción, no se perjudiquen los intereses de los acreedores de la entidad financiera.
+Se establecen los siguientes honorarios profesionales, para el notario público que lleve a cabo la correspondiente protocolización de aumentos de capital de las entidades financieras, fiscalizadas por la Superintendencia General de Entidades Financieras: hasta diez millones de colones (¢10.000.000,00), el uno por ciento (1%) y sobre cualquier exceso de ese monto, un décimo por ciento (0,1%). Este monto se actualizará anualmente por medio de decreto ejecutivo, de conformidad con el índice de precios al consumidor.
+( Así reformado por el artículo 162, inciso ll), de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 del 3 de noviembre de 1995)

@@ -1,12 +1,6 @@
-Artículo 123.- Los departamentos hipotecarios podrán conceder los
-créditos enumerados en el artículo anterior tomando en cuenta la
-naturaleza de la operación financiada, sus posibilidades de recuperación
-y la capacidad de pago del respectivo deudor, en cualquiera de las formas
-siguientes:
-1) Como hipotecas a mediano plazo, con vencimientos menores de diez años.
-2) Como hipotecas a largo plazo, con vencimiento no menores de diez ni
-mayores de veinticinco años.
-Todos los créditos serán necesariamente garantizados con primera
-hipoteca, constituída con todas las formalidades legales, pudiendo
-aceptarse gravámenes de grado inferior únicamente cuando los anteriores
-sean obligaciones a favor del mismo Banco.
+TITULO V
+Operaciones de los bancos hipotecarios
+CAPITULO I
+Objetivos y recursos
+Artículo 123.-
+Las operaciones que se efectúen de acuerdo con las condiciones, privilegios y restricciones establecidas en este Título, sólo podrán efectuarse por el Departamento Hipotecario del Banco Nacional de Costa Rica, por los departamentos de esa naturaleza que llegaren a constituirse en los demás bancos del Estado y por las Secciones de Capitalización a que se refiere el Capítulo VI del Título III de esta ley.

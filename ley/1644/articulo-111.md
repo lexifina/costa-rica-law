@@ -1,5 +1,2 @@
-Artículo 111.- Los Bancos comerciales, podrán establecer libremente
-Almacenes Generales de Depósito, los cuales se regirán de acuerdo con las
-disposiciones de la ley de la materia, así como ejecutar operaciones
-similares de almacenamiento de productos y mercaderías en bodegas
-propias.
+Artículo 111.-
+Para efecto de las garantías a que se refieren los artículos 63 y 66, párrafo primero, de esta ley, los bancos comerciales deben tomar en cuenta necesariamente la capacidad técnica y de trabajo, así como las cualidades personales del dueño de la empresa, y no solamente las garantías que pueda ofrecer. Al calificar las garantías, los bancos comerciales deben tomar en cuenta que este tipo de préstamos llena no sólo fines económicos, sino también el fin social de proteger y fortalecer la pequeña empresa individual de tan importante función en nuestro país.
