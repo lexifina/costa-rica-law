@@ -1,0 +1,1 @@
+Artículo 5°-Corresponde al Concejo Municipal, mediante el correspondiente acuerdo que emane de su seno, variar el monto establecido para este fondo, según solicitud escrita y justificada que le haga el Jefe del Departamento de Tesorería Municipal o el Director Financiero.

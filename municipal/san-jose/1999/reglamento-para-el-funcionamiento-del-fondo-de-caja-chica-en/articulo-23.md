@@ -1,0 +1,1 @@
+Artículo 23.-Si realizado el arqueo, resulta una diferencia, ésta debe ser justificada por el responsable de la Caja Chica, quién además deberá en forma inmediata depositar el sobrante o reintegrar el faltante, según corresponda.
