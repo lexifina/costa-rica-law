@@ -13,3 +13,4 @@ Reglamento del Sistema de Apuestas Sobre Carreras de Caballos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-03-08 | la propia norma |
+| 2 | 1988-03-08 | SINALEVI (sin norma nombrada) |
