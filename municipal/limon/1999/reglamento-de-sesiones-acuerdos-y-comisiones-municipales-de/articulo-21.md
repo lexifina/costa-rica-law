@@ -1,0 +1,1 @@
+Artículo 21.—Para los efectos, le corresponde al Presidente del Concejo realizar la presentación de rigor, exponer los motivos de la presencia y conceder la palabra; procurando que la exposición sea breve y concreta

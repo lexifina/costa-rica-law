@@ -1,0 +1,1 @@
+Artículo 6.°—Transcurridos quince minutos, posteriores a la hora oficial de inicio de las sesiones, el Regidor que no se encuentre en su curul perderá el derecho a devengar la dieta correspondiente, aunque no hubiera sido sustituido por suplente.

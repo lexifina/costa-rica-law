@@ -1,0 +1,1 @@
+Artículo 13.—Son mociones incidentales, las que se presenten para regular el debate, o prorrogar el uso de la palabra. Si un Regidor tuviere opinión contraria a lo decidido por el Presidente, podrá apelar ante el pleno del Concejo Municipal, quien decidirá por simple mayoría de votos.

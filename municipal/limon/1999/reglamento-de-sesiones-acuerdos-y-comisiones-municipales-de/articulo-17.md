@@ -1,0 +1,3 @@
+CAPITULO IV
+De las Comisiones
+Artículo 17.—Toda comisión estará integrada hasta por cinco miembros, de los cuales dos como mínimo; serán del seno del Concejo Municipal, los restantes podrán ser funcionarios municipales o vecinos del Cantón. Una vez instalada - por el Presidente Municipal - en la primera sesión se nombrará el (la) Coordinador (a) y la (el) Secretaria (o), además. definirá: hora día y lugar de reunión semanal, lo que deberá comunicar al Concejo Municipal. La Secretaria Municipal elaborará el cronograma de reuniones de las Comisiones, el que será expuesto en esa dependencia. Todos sus integrantes tendrían derecho a voz y voto.

@@ -1,0 +1,2 @@
+Artículo 4°—La convocatoria a sesiones extraordinarias deberá ser notificada personalmente a los integrantes del Concejo Municipal en el lugar que designe para notificaciones. En ausencias de este, o que no pueda ser localizado, se dejará constancia en su casa de habitación de la convocatoria.
+Los regidores presentes, en la sesión en que se informe de una convocatoria a sesiones extraordinarias, se darán por convocados sin más trámite.

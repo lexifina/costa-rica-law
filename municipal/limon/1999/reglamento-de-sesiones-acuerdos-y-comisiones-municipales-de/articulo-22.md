@@ -1,0 +1,2 @@
+Artículo 22.—Finalizada la intervención, concederá el uso de la palabra a los integrantes del Concejo Municipal que la soliciten; con la finalidad de que puedan preguntar -a los particulares- sobre el asunto que se trate, agotado el tema procederá el Concejo a tomar los acuerdos respectivos.
+Se acuerda: Aprobar el Reglamento de Sesiones, Acuerdos y Comisiones Municipales de la Municipalidad del cantón Central de Limón. Aprobado por unanimidad.

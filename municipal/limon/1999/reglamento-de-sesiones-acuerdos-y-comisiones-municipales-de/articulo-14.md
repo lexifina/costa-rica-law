@@ -1,0 +1,1 @@
+Artículo 14.—Presentada una moción de orden, el Presidente concederá el uso de lapalabra, además del proponente, hasta a dos regidores con opción a favor y contraria que lo soliciten; por un máximo de tres minutos.

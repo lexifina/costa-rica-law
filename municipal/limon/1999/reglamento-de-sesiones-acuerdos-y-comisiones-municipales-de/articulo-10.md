@@ -1,0 +1,1 @@
+Artículo 10.—Cuando asistan -al Concejo- integrantes de los Supremos Poderes, invitados especiales, representantes de instituciones del Estado, se les recibirá a la hora fijada y posterior al saludo protocolario se les concederá el uso de la palabra.

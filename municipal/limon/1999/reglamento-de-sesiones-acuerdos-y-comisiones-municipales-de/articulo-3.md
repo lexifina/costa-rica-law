@@ -1,0 +1,1 @@
+Artículo 3°—Las personas interesadas en participar, en la sesión de atención del público deben comunicarlo a la Secretaría del Concejo con un mínimo de cuatro (4) días antes de la sesión llenando el formulario con los datos solicitados, que incluye el motivo de interés para participar.

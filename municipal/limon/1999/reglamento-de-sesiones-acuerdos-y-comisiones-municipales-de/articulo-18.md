@@ -1,0 +1,1 @@
+Artículo 18.—Las comisiones dictaminarán los asuntos encomendados en un plazo máximo de quince (15) días, prorrogables hasta por un término igual, a juicio del Presidente del Concejo, previa solicitud de la comisión. Se excepcionan los asuntos que la comisionarse se estableciera un término diferente.
