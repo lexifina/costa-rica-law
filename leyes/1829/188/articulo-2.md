@@ -1,0 +1,1 @@
+2°.- Se suprime en la Secretaria del Poder Executivo una plaza de los tres Escribientes con que está dotada, y tanto aquellos como los de la Secretaria de la Asamblea disfrutará en adelante el sueldo de ciento veinte pesos anuales.
