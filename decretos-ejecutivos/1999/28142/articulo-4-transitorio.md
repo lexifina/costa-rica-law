@@ -1,0 +1,1 @@
+Transitorio IV.—La Dirección General de Auditoría de este Ministerio realizará una auditoría en la Unidad Ejecutora para la administración del servicio sobre el río Tempisque, cuyo informe será remitido al Despacho del Ministro de Obras Públicas y Transportes, con copia a la Dirección General de Presupuesto Público de la Contraloría General de la República.

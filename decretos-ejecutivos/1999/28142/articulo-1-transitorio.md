@@ -1,0 +1,1 @@
+Transitorio I.—Para el año 1999, por última vez, la Unidad Ejecutora para la administración del Ferry del Tempisque sujetara a la aprobación del Despacho del Ministro de Obras Públicas y Transportes los gastos referentes a este período.

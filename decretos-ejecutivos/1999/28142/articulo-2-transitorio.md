@@ -1,0 +1,1 @@
+Transitorio II.—Las dependencias competentes de este Ministerio deberán iniciar de inmediato los procedimientos necesarios para traspasar el personal que actualmente labora para la Unidad Ejecutora en referencia, con el fin de que forme parte del presupuesto del Ministerio de Obras Públicas y Transportes.

@@ -1,0 +1,1 @@
+Artículo 12°—Vigencia: Rige a partir de su publicación y deroga, en lo que se le oponga, el Decreto Ejecutivo No 23723-MOPT del 10 de octubre de 1994 y sus reformas, así como cualquier otra norma de igual o inferior jerarquía.

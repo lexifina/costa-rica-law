@@ -1,0 +1,1 @@
+Transitorio V.—Durante el año 1999 deberá la Unidad Ejecutora efectuar cortes trimestrales de los ingresos y egresos derivados de la prestación del servicio, debiendo remitirlos al Despacho del Ministro de Obras Públicas y Transportes, con copia a la Dirección General de Presupuestos Públicos de la Contraloría General de la República.

@@ -1,0 +1,8 @@
+Artículo 5°—De las funciones y atribuciones: Sin perjuicio de las restantes funciones que conforme al ordenamiento jurídico resulten de su competencia, le corresponderá a la Unidad Ejecutora para la Administración del Ferry del río Tempisque, las siguientes facultades y obligaciones:
+a) Administrar el servicio público de transbordo de pasajeros, vehículos y carga por el río Tempisque, entre Puerto Alegre de Cañas y Puerto Moreno de Nicoya;
+b) Analizar y recomendar al Ministro de Obras Públicas y Transportes sobre el futuro de la prestación del servicio y de los bienes del Estado que se utilizan para la ejecución de la explotación de esa línea de cabotaje, así como los procedimientos para su logro;
+c) Tomar las medidas necesarias para la modernización, el adecuado servicio de mantenimiento y la óptima seguridad respecto al transbordador o ferry, su infraestructura y los restantes bienes que se utilizan para la prestación del servicio;
+d) Asumir las medidas necesarias en lo administrativo, financiero, operativo y técnico, con el fin de garantizar la prestación de un servicio público que resulte eficiente, continuo, seguro para los usuarios y acorde con la legislación vigente;
+e) Proseguir con la prestación del servicio de cabotaje hasta tanto no se haya construido el puente sobre el río Tempisque:
+f) Realizar cortes trimestrales de los ingresos y egresos, debiendo remitirlos al Despacho del Ministro de Obras Públicas y Transportes, copia de los cuales será en el mismo acto remitida a la Dirección General de Presupuesto Público de la Contraloría General de la República;
+g) Aquellas otras que le asigne el Ministro de Obras Públicas y Transportes.

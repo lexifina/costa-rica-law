@@ -1,0 +1,2 @@
+Artículo 2°—Del prestatario del servicio: Corresponderá a la Unidad Ejecutora para la Administración del Ferry del río Tempisque, como dependencia del Ministro de Obras Públicas y Transportes, la administración provisional del servicio de cabotaje o ferry a que se refiere el presente Decreto.
+La citada Unidad Ejecutora se encargara de la administración provisional del servicio hasta tanto no se construya y entre en funcionamiento el puente sobre el río Tempisque.

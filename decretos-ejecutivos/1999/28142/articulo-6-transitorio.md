@@ -1,0 +1,1 @@
+Transitorio VI.—A partir de enero del año 2000 la Unidad Ejecutora para la administración del Ferry Tempisque, por ser un órgano - persona adscrito al Ministerio de Obras Públicas y Transportes, deberá comportarse de acuerdo a la estructura administrativa y funcional de ese Ministerio y con las restantes normas integrantes del Ordenamiento Jurídico.

@@ -1,0 +1,1 @@
+Artículo 7°—De la remuneración: Deberá entenderse que la designación de los miembros integrantes de la Junta Directiva de la Unidad Ejecutora para la administración del ferry sobre el río Tempisque es ad honorem, no percibiendo remuneración alguna por el ejercicio de sus funciones.

@@ -1,0 +1,2 @@
+Artículo 4°—Vigencia de los nombramientos: Los funcionarios de este Ministerio a que se refieren los incisos 3.1 y 3.2, integrarán la Unidad Ejecutora para la administración del ferry sobre el río Tempisque de manera permanente.
+Los representantes comunales durarán en su cargo por el período improrrogable de un año. No pueden ser reelectos en forma inmediata. A su vencimiento, se designará un vecino de las comunidades que no se encuentren representadas en ese período.
