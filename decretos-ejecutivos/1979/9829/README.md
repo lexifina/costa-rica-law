@@ -15,3 +15,4 @@ Crea Comisión Asesora de Catastro
 | --- | --- | --- |
 | 1 | 1979-04-16 | la propia norma |
 | 2 | 1982-04-24 | Decreto Ejecutivo 13607 (1982-04-24) |
+| 3 | 1982-04-24 | Ley 8 |
