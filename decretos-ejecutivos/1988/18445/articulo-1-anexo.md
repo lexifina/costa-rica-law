@@ -64,10 +64,11 @@ efectuada de todos y cada uno de los bienes referidos a la producción de
 rentas gravables.
 2.2.- Base sobre la cual se calcula la depreciación.
 La base sobre la cual se calcula la depreciación de activos fijos es
-su costo original o el revaluado. El importe del costo del bien, cuando
+su costo original. El importe del costo del bien, cuando
 corresponda, debe incluir los gastos incurridos con motivo de la compra,
 transporte, instalación, montaje y otros similares, necesario para
 ponerlo en condiciones de uso o explotación.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 29791 de 4 de setembre del 2001)
 Las diferencias cambiarias que resulten de la compra de un activo
 depreciable, se cargarán a su costo cuando se generen en el período
 fiscal en el que se produjo su adquisición; las que se originen en
