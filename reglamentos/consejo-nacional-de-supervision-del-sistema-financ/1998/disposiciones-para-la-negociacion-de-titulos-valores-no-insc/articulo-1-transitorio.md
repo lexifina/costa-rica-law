@@ -1,2 +1,0 @@
-Transitorio
-Los títulos valores que se hubieren negociado al amparo del Artículo 33 de la Ley 7201 o del Artículo 22 de la Ley 7732 con anterioridad a la vigencia de estas disposiciones, podrán continuar negociándose en el mercado separado a que se refiere el Artículo 2 hasta su vencimiento, sujetos a los requerimientos de información dispuestos en el Artículo 3. Tales títulos no se tomarán en cuenta para los efectos del número máximo de títulos que establece el inciso c) del Artículo 1.
