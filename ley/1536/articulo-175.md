@@ -1,2 +1,3 @@
-Vigencia de esta Ley.- Derogatoria de las Anteriores
-Artículo 175.- Esta ley rige desde su publicación y deja sin efecto cualquier ley o disposición legal que se le oponga.
+Artículo 175.- Durante el año anterior al día en que deba tener lugar la elección de Presidente y Vicepresidentes de la República , el Poder Ejecutivo deberá tramitar en el término máximo de cinco días naturales, las solicitudes de mercancías y reservas de crédito que formule el Tribunal Supremo de Elecciones, sin entrar a calificar la conveniencia u oportunidad del gasto. Durante dicho lapso, a juicio del Tribunal, las adquisiones podrán hacerse mediante licitación privada que hará la Proveeduría Nacional , cualquiera que sea el monto de la adquisición. La adjudicación se hará sin dilación y sin más trámite, a la oferta que el Tribunal indique como la más conveniente y contra la resolución así recaída no cabrá recurso alguno.
+Tratándose de la labor de propaganda por la prensa, radio, televisión, folletos, carteles o afiches, volantes, el Tribunal podrá contratar directamente.
+(Así adicionado por el artículo 2° de la ley N° 4341 del 3 de junio de 1969)
