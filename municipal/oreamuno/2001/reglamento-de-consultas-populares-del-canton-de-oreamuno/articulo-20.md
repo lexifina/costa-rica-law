@@ -1,0 +1,1 @@
+Artículo 20.—Destitución de los alcaldes suplentes. El plebiscito de revocatoria del mandato podrá extenderse a los alcaldes suplentes, para lo cual se requerirá del acuerdo de tres cuartas partes de los regidores. En tal caso, la pregunta sobre la destitución de los suplentes será independiente de la del Alcalde Propietario.

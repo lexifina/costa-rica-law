@@ -1,0 +1,1 @@
+Artículo 9º—Ubicación de los recintos de votación. El Concejo Municipal deberá definir los lugares que serán utilizados como centros de votación, tomando en consideración las características geográficas y las vías de comunicación, dichos lugares se indicarán en el acuerdo de convocatoria.

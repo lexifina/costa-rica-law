@@ -1,0 +1,1 @@
+Artículo 4º—Del órgano encargado. El Concejo Municipal deberá nombrar una comisión especial, conformada por cinco miembros escogidos de la consulta. Esta comisión será provista de los recursos suficientes para el cumplimiento de su cometido.
