@@ -13,3 +13,4 @@ Registro de Bienes del Estado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1972-09-05 | la propia norma |
+| 2 | 1972-09-05 | SINALEVI (sin norma nombrada) |
