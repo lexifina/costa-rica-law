@@ -13,3 +13,4 @@ Reforma al Reglamento para el Control Nacional de Fraccionamientos y Urbanizacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-11-17 | la propia norma |
+| 2 | 1987-06-15 | Reglamento 3833 (1987-06-15) |

@@ -45,10 +45,11 @@ No de dormitorios | sin cloaca * | con cloaca | Conjuntos habitacionales
 _______ * Prueba de infiltración. | |
 Las regulaciones en cuanto a acueductos, alcantarillados sanitarios y drenaje pluvial se regirán por las normas que fije el Instituto Costarricense de Acueductos y Alcantarillados.
 III. 3.6.1 El urbanizador o fraccionador cederá gratuitamente para áreas verdes y equipamiento comunal el siguiente porcentaje de área urbanizable:
-III. 3.6.1.1 Urbanización o fraccionamiento residencial: El criterio a utilizar es el de densidad habitacional debiendo cederse (20) metros cuadrados por lote o 25 m unidad de vivienda. Esta cantidad en porcentaje no podrá ser menor de un 5% ni mayor de un 20% del área urbanizable, salvo en viviendas de interés social en cuyo caso el mínimo será del 10%.
+III. 3.6.1.1 Urbanización o fraccionamiento residencial: El criterio a utilizar es el de densidad habitacional debiendo cederse (20) metros cuadrados por lote o 20 m unidad de vivienda. Esta cantidad en porcentaje no podrá ser menor de un 5% ni mayor de un 20% del área urbanizable, salvo en viviendas de interés social en cuyo caso el mínimo será del 10%.
 — Comercial 10%
 — Industrial 10%
 — Turismo 15%
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión No. 3833 de 15 de junio de 1987, la cual modificó el punto III. 3.6.1.1 Urbanización o fraccionamiento residencial en lo referente a los 25 metros cuadrados lo rectificó por 20.)
 III.3.6.1.2 Derogado.
 III.3.7.1 En el caso de que se pretenda urbanizar fincas atravesadas por ríos o quebradas o que colinden con estos, deberá proveerse una franja de no construcción con un ancho mínimo de 10 m a lo largo del lecho máximo y medidos a cada lado del mismo, en la proyección horizontal. Esta franja será entregada al uso público en exceso de la indicada en el artículo III.3.6.3, para efectos de limpieza, rectificación de cauces, bosque urbano, colocación de infraestructura de aguas similares. Sin embargo, cuando esté integrado plenamente el área de parque o que siendo de pendiente no mayor del 25% en frente a una calle y no a fondos del lote, se podrá computar como área pública.
 La cesión del área para uso público se aplicará siempre que no exceda el 20% que fija la Ley de Planificación Urbana.
