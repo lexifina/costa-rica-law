@@ -25,3 +25,10 @@ de inquilinato vigentes No.680 de 3 de setiembre de 1946, que reformó el
 inciso c) del artículo 9º, y los artículos 12, 13, y 16 de la ley No.6 de
 21 de setiembre de 1939, modificada y adicionada por las leyes No.101 de
 16 de julio de 1942 y No.107 de 13 de agosto de 1943.
+(NOTA: la ley No.1343 del 28 de setiembre de 1951 interpreta el
+presente artículo en el sentido de que la inaplicabilidad que establece,
+se refiere única y exclusivamente a la ley Nº 680 de 3 de setiembre de
+1946, con excepción del artículo 7º de la misma)
+(DEROGADO tácitamente por los artículo 6 y 136 de la Ley de
+Arrendamientos Urbanos No.7527 del 10 de julio de 1995. Véanse las
+observaciones de la ley)
