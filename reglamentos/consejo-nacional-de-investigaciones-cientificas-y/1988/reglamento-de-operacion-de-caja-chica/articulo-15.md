@@ -1,4 +1,4 @@
 CAPITULO III
 Del control
-Artículo 15°—El fondo de caja chica estará sujeto a arqueos periódicos por el Departamento de Contabilidad, de la auditoria interna v de la Contraloría General de la República. El encargado de la caja chica está obligado a brindar la información requerida para estos efectos.
-En caso de encontrarse anomalías o situaciones irregulares será obligación de los que realicen los arqueos enviar copia del informe al director administrativo financiero.
+Artículo 15: El monto asignado a la caja chica será de c50.000,00 y sólo podrá ser variado con autorización de la secretaría ejecutiva.
+(Así REFORMADO TOTAL Y EXPRESAMENTE mediante Oficio N°1-515-98 del 18 de agosto de 1998, publicado en la Gaceta N° 187 del 25 de setiembre de 1998.)
