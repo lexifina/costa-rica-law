@@ -1,4 +1,0 @@
-Artículo 3°.- Para el cumplimiento de las funciones, esta Comisión tendrá como políticas principales las siguientes:
-a) Las acciones que se establezcan para atender la problemática de los incendios forestales y agrícolas, se desarrollarán dentro del contexto del manejo del fuego, al amparo de la estructura y perspectiva nacional integral interinstitucional de conservación del ambiente, dentro del marco del desarrollo sostenible.
-b) Buscar y promover la participación y el compromiso de las instituciones y organizaciones, además de reconocer el espacio para la integración de la sociedad civil.
-c) El conocimiento y la experiencia generada en relación al fortalecimiento y coordinación interinstitucional, investigación, capacitación, educación y comunicación, serán la base para la toma de decisiones.

@@ -1,1 +1,0 @@
-Artículo 6°.- Se insta a los Ministerios, entidades del Estado, Municipalidades y organismos privados Nacionales o Internacionales para que proporcionen a la Comisión Nacional sobre Incendios Forestales en la medida de sus posibilidades, el apoyo que ésta requiera para el cumplimiento de sus funciones.

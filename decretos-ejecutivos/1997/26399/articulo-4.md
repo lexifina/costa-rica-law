@@ -1,1 +1,0 @@
-Artículo 4°.- La Comisión Nacional sobre Incendios Forestales estará bajo la dirección y autoridad del Sistema Nacional de Áreas de Conservación, del Ministerio del Ambiente y Energía; quien aprobará, apoyará y supervisará las acciones que en materia de manejo del fuego sea necesario ejecutar.
