@@ -1,0 +1,1 @@
+Artículo 2º—Créase la Comisión encargada de llevar a término el Proyecto de Reconstrucción del Monumento Histórico Nacional La Casona del Parque Nacional de Santa Rosa, la cual estará integrada por el Ministro de Educación Pública, el Ministro de Cultura, la Ministra del Ambiente y Energía y la Segunda Vicepresidenta de la República, quien la presidirá.

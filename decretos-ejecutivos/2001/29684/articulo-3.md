@@ -1,0 +1,1 @@
+Artículo 3º—Para dar cumplimiento a su cometido, la Comisión tendrá facultades para llevar a cabo todos los trámites de orden legal y financiero necesarios a efecto de que se elaboren los planos constructivos y se lleven a término las obras de reconstrucción del Monumento Histórico Nacional La Casona.
