@@ -1,1 +1,1 @@
-Artículo 28.-Los Abogados contratados deberán tener oficina dentro del perímetro Judicial, a fin de facilitar el trámite de cobro judicial.
+Artículo 28.-(Así derogado mediante sesión N° 93 del 25 de febrero de 1999).
