@@ -1,0 +1,1 @@
+Art. 39.-Los documentos y objetos que se encontraren junto con un niño expósito ó abandonado, deben encarpetarse y conservarse en el archivo, marcándolos de una manera conveniente, para que puedan ser en todo tiempo reconocidos.

@@ -1,0 +1,1 @@
+Art. 56.-La inscripción de un fallecimiento debe contener: el nombre, apellido, estado, profesión y domicilio del difunto; la hora y el día en que se verificó; la clase de enfermedad que haya producido la muerte, en virtud de opinión facultativa, si fuere posible; y el cementerio en que haya de darse sepultura al cadáver.

@@ -1,0 +1,1 @@
+Art. 2°-Los Alcaldes en el territorio de la República, y los Agentes Diplomáticos ó Consulares en el extranjero, llevarán un registro en que aparezca el estado civil de los costarricenses y de los extranjeros domiciliados en Costa-Rica, en los casos y con arreglo las prescripciones que por esta ley se determinan. Este registro constará de cuatro secciones.

@@ -1,0 +1,1 @@
+Art. 68.-Las certificaciones de asiento del registro civil expedidas en debida forma, son documentos públicos: sólo ellas hacen prueba en cuanto al acto que se contraigan, salvas las excepciones, y con las reservas que en los siguientes artículos se determinan. Por cada certificación se abonarán los derechos que el reglamento fije.

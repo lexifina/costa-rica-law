@@ -1,0 +1,1 @@
+Art. 72.-La persona que impugne por falsedad ó error algún asiento del registro, ha de demostrar previamente el interés legítimo que la impugnación la mueve; pero si la falsedad de que se trata se ha cometido por el funcionario á cuyo cargo está el registro, ó tuviere cualquier otro carácter que afecte el orden público, es un delito denunciable para ante la autoridad competente.
