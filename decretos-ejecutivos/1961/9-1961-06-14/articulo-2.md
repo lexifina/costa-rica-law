@@ -1,1 +1,0 @@
-Artículo 2°-El Ministerio de Educación Pública integrará en enero de cada año una Comisión de Bachillerato por Madurez, que formará con cinco profesores espeiales en las respectivas áreas objeto de examen y un Secretario-Tesorero. La Comisión nombrará de su seno un Presidente, un Vicepresidente y tres vocales que serán los únicos miembros con voz y voto.

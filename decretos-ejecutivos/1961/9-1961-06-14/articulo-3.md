@@ -1,2 +1,0 @@
-Artículo 3°-Esta Comisión tendrá a su cargo la revisión de los respectivos programas, elaboración de guías, instrucciones, pruebas y calificaciones de éstas, para el cumplimiento efectivo de los propósitos del bachillerato por madurez.
-La evaluación de las pruebas estará a cargo de comisiones integradas por el Ministerio de educación, con el respectivo especialista y dos profesores de la asignatura.
