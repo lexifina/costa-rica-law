@@ -27,6 +27,9 @@ articulo-26.md
 articulo-27.md
 articulo-28.md
 articulo-29.md
+articulo-30.md
+articulo-31.md
+articulo-32.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md
