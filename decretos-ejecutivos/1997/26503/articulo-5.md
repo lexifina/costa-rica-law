@@ -31,7 +31,8 @@ e) Otras funciones:
 1. No permitir la venta de los productos que se reciban con problemas de envases, etiquetas, sellos de seguridad y otros, e informar inmediatamente al regente o asesor técnico de la casa distribuidora, para que se corrijan las anomalías en un plazo no mayor de ocho días hábiles; caso contrario deberá notificar tal situación a la Oficina Regional del Servicio Fitosanitario del Estado correspondiente.
 2. Hacer saber al representante legal o encargado del establecimiento regentado, que todo producto que se encuentre en el local se considera para la venta y por consiguiente debe ajustarse a la legislación que regula la materia.
 3. Cumplir aquellas otras funciones que se le asignen en la Ley Orgánica, este Reglamento y las leyes y reglamentos que regulan la actividad pertinente.
-II. CATEGORÍA B: Personas físicas o jurídicas que vendan, importen, registren, transvasen o diluyan con fines comerciales productos químicos de uso agrícola como los plaguicidas, fertilizantes, hormonas vegetales, coadyuvantes y otros similares para uso en la agricultura, sean éstos formulados o no, para venta a distribuidores, pudiendo tener venta directa al publico.
+II.—Categoría B: Personas físicas o jurídicas que registren, transvasen o diluyan con fines comerciales productos químicos de uso agrícola como plaguicidas, fertilizantes, hormonas vegetales, coadyuvantes y otros similares para uso en la agricultura y los que importen productos formulados listos para ser usados en la agricultura y las que no requieren procesos posteriores de fabricación de mezcla y formulación.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 2° del Decreto Ejecutivo N° 27914 de 24 de mayo de 1999, publicado en La Gaceta N° 106 de 02 de junio de 1999, Alcance 44.
 Serán funciones del regente o asesor técnico:
 a) En etiquetado:
 1. Elaborar y/o supervisar la elaboración de los artes finales de las etiquetas y panfletos de los productos a distribuir.
@@ -80,30 +81,10 @@ g) Otras funciones:
 4. Velar porque los productos provenientes de las aduanas o almacenes fiscales, se identifiquen de acuerdo a lo establecido en la legislación vigente.
 5. Efectuar las acciones necesarias para las correcciones y liberación de los productos retenidos por las autoridades competentes.
 6. Cumplir aquellas otras funciones que le asignen en la Ley Orgánica, este Reglamento y en las leyes y reglamentos que regulan la actividad pertinente.
-III. CATEGORÍA C: Personas físicas o jurídicas que imponen y/o registren productos químicos y/o biológicos de uso agrícola como los plaguicidas, fertilizantes, hormonas vegetales, coadyuvantes y otros similares para uso en la agricultura, sean éstos formulados o no, para su propio uso. Incluye a las organizaciones de pequeños productores agropecuarios que imponen, registren, y/o distribuyan dichos productos únicamente para uso de sus asociados, no teniendo locales destinados a la venta de los mismos.
-Serán funciones del regente o asesor técnico:
-a) Cumplir aquellas funciones pertinentes descritas en la CATEGORÍA CH.
-b) Velar porque el transporte y almacenamiento de los productos, se realicen adecuadamente y porque los equipos y bodegas que se utilicen para tal fin. cumplan las normas y requisitos que establece la legislación vigente.
-c) Recomendar el uso de equipos de protección de acuerdo con las normas definidas por las autoridades competentes.
-ch) Velar porque la empresa regentada cuente con lugares apropiados para el tratamiento de aguas residuales o de desecho contaminadas con plaguicidas y porque los mismos funcionen adecuadamente, cuando ello proceda.
-d) Brindar las instrucciones necesarias para el adecuado tratamiento de envases o empaques de desecho, así como para el derrame de productos.
-e) Coordinar o brindar la capacitación necesaria a los propietarios y personal encargado de las bodegas de la empresa regentada, en los diferentes aspectos atinentes a los productos que se utilizan.
-f) Recomendar que las personas que tienen relación con el manejo y uso de los plaguicidas, se sometan a los exámenes médicos y controles establecidos en la legislación vigente, cuyos costos deberán ser cubiertos por la empresa regentada.
-g) Velar porque los productos sean utilizados solo para fines propios de la empresa y porque no exista venta o comercio de los mismos.
-h) Cumplir otras funciones que compelen a la actividad regentada, así como aquellas que le asignen la Ley Orgánica, este Reglamento y las leyes y reglamentos que regulan dicha actividad.
-IV. CATEGORÍA CH: Personas físicas o jurídicas que registren o mantengan la representación de productos químicos y/o biológicos de uso agrícola corno los plaguicidas, fertilizantes, hormonas vegetales, coadyuvantes y otros similares para uso en la agricultura, que no tengan actividades de venta al público o distribución de los productos.
-Serán funciones del regente o asesor técnico:
-a) Cumplir las funciones para la actividad de registro descritas en la CATEGORÍA B.
-b) Elaborar o supervisar la elaboración de los artes finales de las etiquetas y panfletos correspondientes.
-c) Velar porque las etiquetas y panfletos de los productos de la empresa regentada, cumplan todos los requisitos y normas establecidas en la legislación vigente.
-ch) Velar porque se practiquen oportunamente las correcciones, modificaciones o cambios que sobre etiquetado, dicten las autoridades competentes.
-d) Coordinar y supervisar la elaboración de las etiquetas y panfletos de los productos que la empresa regentada endose a otras compañías.
-e) Revisar y respaldar los documentos requeridos para la importación y desalmacenaje de los productos, de manera que contengan todos los datos y las especificaciones respectivas para su firma y autorización.
-f) Brindar asesoría a la empresa regentada, en cuanto al tipo de producto a registrar, de manera que sean los más apropiados de acuerdo con las condiciones y características de la misma.
-g) Brindar asesoría a la empresa regentada, así como a las empresas a las cuales se les endosan los registros, sobre las cualidades, características, restricciones, manejo, almacenamiento, transporte y otros de los productos respectivos.
-h) Cumplir otras funciones que competen a la actividad regentada, así como aquellas que le asignen la Ley Orgánica, este Reglamento y las leyes y reglamentos que regulan dicha actividad.
-i) Conocer y apoyar los programas y trabajos que desarrolle la empresa regentada, en materia de investigación y validación de productos, para efectos de registro y presentación de anotaciones marginales al mismo.
-V. CATEGORÍA D: Personas físicas o jurídicas que fabriquen alimentos balanceados para animales con fines de venta o consumo propio, así como las que distribuyan, al por mayor, dichos alimentos.
+III. DEROGADO por el artículo 2° del Decreto Ejecutivo N° 27914 de 24 de mayo de 1999, publicado en La Gaceta N° 106 de 02 de junio de 1999, Alcance 44.
+IV. DEROGADO por el artículo 2° del Decreto Ejecutivo N° 27914 de 24 de mayo de 1999, publicado en La Gaceta N° 106 de 02 de junio de 1999, Alcance 44.
+VI.—Categoría E: Personas físicas o jurídicas que vendan o distribuyan productos biológicos y material genético de origen vegetal o las empresas dedicadas a la producción, procesamiento y comercialización de semillas y material vegetativo."
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 2° del Decreto Ejecutivo N° 27914 de 24 de mayo de 1999, publicado en La Gaceta N° 106 de 02 de junio de 1999, Alcance 44.)
 Serán funciones del regente o asesor técnico:
 a) En inscripción y etiquetado:
 1. Recopilar, revisar y avalar la información y documentación técnica, legal y de cualquier otra índole, requerida para la inscripción de las materias primas y alimentos balanceados ante la autoridad competente, la cual deberá ser suministrada por la empresa regentada.
@@ -153,35 +134,5 @@ h) Asesorar a los clientes de la empresa regentada en cuanto a las condiciones, 
 i) Velar porque se practiquen controles de calidad periódicos a los productos biológicos y al material genético de la empresa regentada, así como analizar los resultados y emitir las recomendaciones pertinentes que se puedan derivar de los mismos.
 j) No permitir la venta o distribución de los productos biológicos o del material genético, que no reúnan las condiciones o requisitos necesarios para ello.
 k) Cumplir otras funciones que competan a la actividad regentada, así como aquellas otras que le asignen la Ley Orgánica, este Reglamento y las leyes y reglamentos que regulan dicha actividad.
-CATEGORÍA G: Personas físicas o jurídicas que se dediquen a la aplicación de plaguicidas para el control de plagas de tipo doméstico.
-Serán las funciones del regente o asesor técnico:
-a) Velar porque se cumplan las normas de almacenamiento de plaguicidas definidas en la legislación vigente, así como las que al efecto emitan las autoridades competentes.
-b) Velar porque los productos a utilizar se encuentren debidamente inscritos ante las autoridades competentes.
-c) Velar porque el local de la empresa regentada, cumpla con las normas definidas por las autoridades competentes.
-ch) Velar porque la empresa cuente con los respectivos permisos de funcionamiento al día que conceden las autoridades competentes.
-d) Velar porque se cuente con un botiquín de primeros auxilios, con productos aplicables a intoxicaciones con plaguicidas, de acuerdo con lo establecido por las autoridades competentes.
-e) Asegurarse de que las personas que trabajan en la empresa regentada, cumplan con los requisitos definidos en el Código de Trabajo y se sometan además a los exámenes médicos y controles establecidos en la legislación vigente, cuyos costos deberá cubrir la persona física o jurídica regentada.
-f) Velar porque se cumplan las normas sobre transpone, carga y descarga de los productos que establece la legislación vigente y las que al efecto emitan las autoridades competentes.
-g) Velar porque las aguas de lavado de equipos y aquellas otras contaminadas con plaguicidas sean tratadas adecuadamente y se depositen en lugares autorizados por las autoridades competentes, de tal manera que no pongan en peligro el ambiente así como la salud humana, animal o vegetal.
-h) Velar porque las personas que participan en las operaciones de aplicación de los productos, cumplan las normas definidas en la legislación pertinente y utilicen además el equipo de protección y seguridad exigido.
-i) Brindar las instrucciones necesarias para el adecuado tratamiento de envases o empaques de desecho, así como para el derrame de productos.
-j) Brindar asesoría técnica a los propietarios y personal de la empresa, en cuanto a las formulaciones y mezclas de los productos a utilizar para el control de las plagas.
-k) Coordinar o brindar la capacitación necesaria al personal de la empresa regentada, en los diferentes aspectos atinentes a los productos que se utilizan.
-l) Brindar el asesoramiento requerido en cuanto a los métodos de aplicación de los productos, buscando que los mismos sean los más apropiados para la protección de la salud humana y el ambiente.
-m) Velar porque los equipos de aplicación utilizados sean los más adecuados y porque se mantengan siempre en perfecto estado de funcionamiento.
-n) Brindar las instrucciones relacionadas con la protección de los usuarios y animales domésticos, así como en lo referido al intervalo entre la aplicación y la entrada al área tratada y lugares adyacentes de posible contaminación, de acuerdo con las especificaciones relativas al uso de cada producto.
-ñ) Cumplir otras funciones que competen a la actividad regentada, así como aquellas que le asignen la Ley Orgánica, este Reglamento y las leyes y reglamentos que regulan dicha actividad.
-IX CATEGORÍA H: Personas físicas o jurídicas que se dediquen a otras actividades objeto de regencia, no contempladas en las categorías anteriores.
-Serán funciones del regente o asesor técnico:
-a) Recopilar, revisar y avalar la información y documentación técnica, legal y de cualquier otra índole, requerida para la inscripción o registro de los productos respectivos ante la entidad correspondiente; así como dar el seguimiento atinente a este proceso.
-b) Velar porque los productos cuenten con su respectiva etiqueta y planfeto y porque las mismas se ajusten a las normas y requisitos definidos en la legislación correspondiente.
-c) Velar porque se cumplan las normas de almacenamiento que establece la legislación vigente para los productos respectivos, así como las que al efecto emitan las autoridades competentes.
-ch) Velar porque se cumplan las normas emitidas por las autoridades competentes, atinentes a las condiciones de los locales destinados al manejo de los productos regentados y aspectos de seguridad.
-d) Velar porque el establecimiento cuente con los permisos de funcionamiento al día, que exigen las autoridades competentes.
-e) Asegurarse de que las personas que trabajan en el establecimiento regentado, cumplan con los requisitos definidos en el Código de Trabajo.
-f) Asesorar y capacitar constantemente al personal del establecimiento en aspectos relativos al uso, manejo y almacenamiento de los productos que se tienen.
-g) Velar porque se cumplan las normas sobre transporte, carga y descarga de los productos que establece la legislación vigente y las que al efecto emitan las autoridades competentes.
-h) Velar porque se practiquen a los productos los controles de calidad requeridos, bajo las normas que dicten las autoridades competentes.
-i) Brindar asesoría técnica y evacuar consultas a los clientes de la empresa regentada sobre diferentes aspectos de los productos que se manejan.
-j) No permitir la venta o distribución de productos, que no reúnan las condiciones o requisitos necesarios para ello.
-k) Cumplir otras funciones que competen a la actividad regentada, así como aquellas que le asignen la Ley Orgánica, este Reglamento y las leyes y reglamentos que regulan dicha actividad.
+VII DEROGADO por el artículo 2° del Decreto Ejecutivo N° 27914 de 24 de mayo de 1999, publicado en La Gaceta N° 106 de 02 de junio de 1999, Alcance 44.
+IX DEROGADO por el artículo 1° del Decreto Ejecutivo N° 27914 de 24 de mayo de 1999, publicado en La Gaceta N° 106 de 02 de junio de 1999, Alcance 44.

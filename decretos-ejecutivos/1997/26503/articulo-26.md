@@ -1,6 +1,3 @@
 CAPITULO VI
 De los horarios regenciales
-Artículo 26.—Para efecto del cumplimiento de las funciones que competen al regente o asesor técnico y de las responsabilidades que asume en el ejercicio de la actividad correspondiente, se establecen los siguientes horarios mínimos por categoría regencial para la contratación del profesional respectivo:
-a) CATEGORÍA A: Cada persona física o jurídica tendrá que contar con un regente o asesor técnico por cada local, el cual deberá dedicar como mínimo media jornada legal de trabajo a la actividad regencial.
-b) CATEGORÍA B: Cada persona física o jurídica tendrá que contar con un regente o asesor técnico que deberá dedicar una jornada legal de trabajo completa a la actividad regencial.
-c) CATEGORÍAS C. CH. D. E. F. G y H: Cada persona física o jurídica' tendrá que contar con un regente o asesor técnico, el cual deberá convenir previamente con el regentado el horario para la ejecución de la actividad regencial. tomando en cuenta las funciones, tamaño de la empresa y volumen de operación. Sin embargo, en ningún caso dicho horario podrá ser inferior a ocho horas mensuales, distribuidas en una visita semanal con una duración mínima de dos horas cada una. o una visita quincenal de cuatro horas como mínimo.
+Artículo 26.—DEROGADO por el artículo 4° del Decreto Ejecutivo N° 27914 de 24 de mayo de 1999, publicado en La Gaceta N° 106 de 02 de junio de 1999, Alcance 44.
