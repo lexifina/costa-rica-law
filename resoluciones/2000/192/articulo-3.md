@@ -28,18 +28,19 @@ V. NORMAS GENERALES
 A. Definiciones
 1. Se entiende por régimen de importación definitiva, la entrada de mercancías de procedencia extranjera, que cumpla con las formalidades y los requisitos legales, reglamentarios y administrativos para el uso y consumo definitivo dentro del territorio nacional.
 Se define como conocimiento de embarque, el "Titulo representativo de mercancías, que contiene el contrato celebrado entre el remitente y el transportista para transportarlas al territorio nacional y designa al consignatario de ellas. Para los efectos del régimen jurídico aduanero equivale a los términos Bill of Lading (B/L), guía aérea o carta de porte". (Artículo 251 de la Ley).
-B. Del examen previo de las mercancías
-2. De conformidad con los articules 84 y 86 de la Ley y 251 de su Reglamento, el examen previo de las mercancías, sólo podrá ser realizado por el declarante o su representante, con participación del depositario aduanero. Para tal efecto, deberá levantar un acto del resultado de dicho proceso, el que contendrá como mínimo los siguientes datos:
+(*) B. Del examen previo de las mercancías
+2. De conformidad con los artículos 84 y 86 de la Ley y 251 de su Reglamento, el examen previo de las mercancías, sólo podrá ser realizado por el declarante o su representante, con participación del depositario aduanero. Para tal efecto, deberá levantar un acta del resultado de dicho proceso, la que contendrá como mínimo los siguientes datos:
 - Número de declaración de tránsito o documento que ampara el ingreso de las mercancías al depósito o ubicación respectiva.
 - Nombre y calidades de las personas participantes.
 - Fecha y hora de realización del examen previo.
 - Cantidad, estado y descripción de los bultos revisados.
-- Cantidad, estado > descripción de las mercancías.
-- Fallantes o sobrantes detectados.
+- Cantidad, estado y descripción de las mercancías.
+- Faltantes o sobrantes detectados.
 - Firma de los participantes (Declarante o su representante y del responsable del depósito aduanero o ubicación respectiva).
-Según el artículo 254 del Reglamento a la Ley, cuando se determine la existencia de mercancías fallantes o sobrantes, daños o irregularidades respecto de las mercancías o sus embalajes, el responsable del examen deberá en forma escrita e inmediata, comunicarlo al Jefe del Departamento de Control de Agentes Externos de la aduana, a efecto de que éste adopte las medidas correspondientes.
-En el caso específico de los sobrantes, el responsable de la custodia de las mercancías en conjunto con el responsable del examen previo, deberá separar los bultos que contiene dichas mercancías sobrantes, inventariarlos, identificarlos como tales y ponerlos a disposición de la aduana.
-Para todos los efectos, el depositario aduanero o el responsable de la ubicación donde se encuentre en custodia la mercancía, dejará constancia de la irregularidad detectada en los documentos que amparan las mercancías objeto del examen previo.
+Según el artículo 254 del Reglamento, cuando se determine la existencia de mercancías faltantes o sobrantes, daños o irregularidades respecto de las mercancías o sus embalajes, el responsable del examen deberá en forma escrita e inmediata, comunicarlo al Jefe del Departamento de Control de Agentes Externos de la aduana, a efecto de que éste adopte las medidas correspondientes.
+En el caso especifico de los sobrantes, el responsable de la custodia de las mercancías en conjunto con el responsable del examen previo, deberá separar los bultos que contiene dichas mercancías sobrantes, inventariarlos, identificarlos como tales y ponerlos a disposición de la aduana.
+Para todos los efectos, el depositario aduanero o el responsable de la ubicación donde se encuentre en custodia la mercancía, dejara constancia de la irregularidad detectada en los documentos que amparan las mercancías objeto del examen previo.
+(*) (Así reformado mediante resolución DGA-256 del 07 de diciembre del 2000).
 C. De la presentación de la DAIM
 3. El declarante deberá presentar la DAIM mediante transmisión electrónica de datos utilizando la clave de acceso confidencial asignada por la DGA y que de conformidad con los artículos 105 de la Ley y 85 del Reglamento, utilizará para firmar y para todo efecto legal equivaldrá a la firma autógrafa. Asimismo, deberá cumplir con el formato de requerimientos para la integración al SIA (RIS).
 4. Una vez efectuada la transmisión, revisara el archivo del resultado de la "carga", de detectar algún error, deberá corregirlo y volver a transmitir. Si la "carga" es exitosa, el SIA aceptara en forma automática la DAIM siempre y cuando cumpla con los requisitos y obligaciones exigidas para el régimen y modalidad solicitados, asimismo definirá si corresponde algún tipo de verificación.
@@ -135,17 +136,19 @@ No obstante, en caso de prórroga o impugnación, la misma deberá actualizarse 
 F. De la importación de mercancías a granel
 29. La modalidad de importación definitiva a granel, se aplica a mercancías tales como granos, líquidos y otras, que por su volumen, peso y características, ingresan sin embalar y requieren sistemas especiales de almacenamiento, tales como silos o tanques de gran tamaño.
 30. Conforme con lo establecido en el artículo 334 del Reglamento, las empresas que requieran realizar importaciones definitivas bajo la modalidad a granel, deberán estar autorizadas por la Dirección y sólo podrán importar mediante esta modalidad, aquellas mercancías explícitamente señaladas en la resolución de autorización.
-31. El plazo de la garantía, que debe adjuntarse a la DAIM provisional para esta modalidad, no deberá ser inferior a 20 días hábiles, ni mayor a tres meses. La misma deberá ajustarse a las normas 24, 25 y 26, de este manual.
+31. El plazo de la garantía, que debe adjuntarse a la DAIM provisional para esta modalidad, no deberá ser inferior a 25 días hábiles, ni mayor a tres meses. La misma deberá ajustarse a las normas 25, 26 y 27, de este manual.
+(Así reformado el inciso anterior mediante resolución DGA-256 del 07 de diciembre del 2000).
 32. El declarante presentara una DAIM provisional antes del inicio de la descarga, la que deberá contener la información disponible en el momento, la descripción comercial y arancelaria de las mercancías y estimación en cuanto a peso, cantidad y valor, para calcular el monto de la garantía sobre los tributos a pagar. Esta garantía deberá ser entregada de previo a la transmisión de la DAIM provisional, a la unidad de contabilidad de la aduana, para su registro en el SIA y custodia.
 33. La autoridad portuaria o competente permitirá la descarga y el traslado de la mercancía a granel, hasta que la aduana autorice el levante de la mercancía y el declarante le presente la DAIM provisional que así lo demuestre. La autorización del levante y entrega de las mercancías, se efectuara de conformidad con las secciones C. D y G de este manual. Para la DAIM definitiva, se aplicaran las secciones C y E de este manual.
-34. Dentro de un plazo de 10 días hábiles, a partir de la fecha de autorización del levante de las mercancías, deberá presentar la DAIM definitiva efectuando los ajustes que fueren procedentes, la que deberá acompañarse de los siguientes documentos probatorios, según corresponda:
-- Reporte de inspección, para mercancías líquidas,
+34. Dentro de un plazo de 15 días hábiles, a partir de la fecha de autorización del levante de las mercancías, deberá presentar la DAIM definitiva efectuando los ajustes que fueren procedentes, la que deberá acompañarse de los siguientes documentos probatorios, según corresponda:
+- Reporte de inspección, para mercancías liquidas,
 - Inspección de calados, para mercancías en grano sujetas a peso.
 Estos documentos, deberán ser emitidos por empresas acreditadas ante el Ente Nacional de Acreditación (ENA), una vez que se establezca el fundamento legal que así lo exija.
 - Reporte de peso emitido por la autoridad portuaria para todas aquellas mercancías sujetas a peso.
-- Cuando por razones excepcionales las anteriores opciones no puedan aplicarse, la Gerencia de la Aduana analizara el caso especifico, para autorizar que se tomen los datos de peso o volumen consignados en la factura comercial o en el conocimiento de embarque.
-- Los demás documentos que correspondan, según la norma 13.
+- Cuando por razones excepcionales las anteriores opciones no puedan aplicarse, la Gerencia de la Aduana analizará el caso específico, para autorizar que se tomen los datos de peso o volumen consignados en la factura comercial o en el conocimiento de embarque.
+- Los demás documentos que correspondan, según la norma 12.
 Al importador que incumpla con la presentación de estos documentos, se le aplicará lo dispuesto en el articulo 337 del Reglamento, sin perjuicio de los procedimientos que correspondan.
+(Así reformado el inciso anterior mediante resolución DGA-256 del 07 de diciembre del 2000).
 G De la entrega de las mercancías
 35. El Depositario Aduanero, entregará la mercancía con la presentación de la copia de la DAIM denominada "Almacén fiscal" firmada en original por el declarante y previa consulta de la autorización del levante, para lo que deberá accesar su casillero en la aduana y verificar en el archivo de autorización del levante (el archivo se identificará con el numero de aceptación de la DAIM), los siguientes datos:
 - Número de la DAIM y fecha de la autorización del levante.
@@ -201,6 +204,12 @@ Peñas Blancas | 6 de noviembre del 2000
 Limón | 13 de noviembre del 2000
 Paso Canoas | 20 noviembre del 2000
 Santamaría | 27 de noviembre del 2000
-(NOTA DE SINALEVI: Mediante la resolución DGA-205 del 13 de octubre de 2000, se establece revocar parcialmente el presente numeral 2 relativo al cronograma de implementación de los procedimientos que en ella se aprueban).
+(NOTA DE SINALEVI: Mediante la resolución DGA-205 del 13 de octubre de 2000, se establece revocar parcialmente el presente numeral 2 relativo al cronograma de implementación de los procedimientos que en ella se aprueban. Posteriormente mediante la resolución DGA-256 del 07 de diciembre del 2000, se establece que la vigencia de los Manuales de Procedimientos aprobados en la presente resolución rigen en las jurisdicciones de cada aduana según el cronograma siguiente:
+ADUANA | RIGE A PARTIR DEL
+Caldera | 11 de diciembre del 2000
+Central y Paso Canoas | 08 de enero de 2001
+Peñas Blancas | 15 de enero de 2001
+Limón | 22 de enero de 2001
+Santamaría | 29 de enero de 2001).
 3°—Comuníquese a la División de Estadística. Registro y Divulgación para su correspondiente publicación en el Diario Oficial La Gaceta.
 [imagen]
