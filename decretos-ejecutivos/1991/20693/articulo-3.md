@@ -1,0 +1,2 @@
+Artículo 3°-la Procuraduría General de la República gestionará las diligencias expropiatorias del caso hasta su trámite final, en el correspondiente Juzgado Contencioso Administrativo, quedando facultada para dar a dicha autoridad judicial todos los informes y gestiones que sean necesarias para los propósitos del presnete decreto, así como para comparecer al otorgamiento de la escritura pública que sea del caso.
+Dado en la Presidencia de la República.-san José, a los tres días del mes de setiembre de mil novecientos noventa y uno.
