@@ -14,3 +14,4 @@ Reglamento General de los Riesgos del Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-04-07 | la propia norma |
+| 2 | 1983-01-27 | Decreto Ejecutivo 14317 (1983-01-27) |
