@@ -1,0 +1,1 @@
+Artículo 3º.- Cuando uno de los beneficiarios de esta ley desempeñare un cargo público remunerado, el Tesoro Público girará al beneficiario como pensión la diferencia que hubiera entre lo asignado por esta ley y el sueldo que devengue. Se reforma en lo conducente al artículo 49 de la ley Nº 1279 de 2 de mayo de 1951 (Administración Financiera).

@@ -1,0 +1,1 @@
+Transitorio II.- Las disposiciones de esta ley no se refieren a las pensiones de que actualmente gozan las hijas mayores solteras de los ex Presidentes, quienes disfrutarán de una pensión mensual de un mil colones (¢ 1,000.00), y se respetan los derechos de las viudas de los ex Presidentes, adquiridos por leyes anteriores.

@@ -1,0 +1,1 @@
+Artículo 2º.- El Tesoro Público girará mensualmente a los ex Presidentes de la República el monto de la pensión que por esta ley se les concede, sin necesidad de que éstos tengan que hacer solicitud o gestión alguna para ese objeto.
