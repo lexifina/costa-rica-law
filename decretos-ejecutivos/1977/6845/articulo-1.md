@@ -1,0 +1,15 @@
+N° 6845-MEIC
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE ECONOMIA, INDUSTRIA Y COMERCIO,
+Resultando:
+1°.- Que el señor Hugo Jiménez Monge, mayor, industrial, vecino de San José, cédula de identidad N° 1-164-195, en su calidad de Gerente de la firma “Industria Termoplástica Centroamericana, Sociedad Anónima”, según consta en la Sección Mercantil del Registro Público al tomo 169, folio 53, asiento 51, en escrito presentado el 2 de setiembre de 1976, solicita se le concedan los beneficios del Convenio Centroamericano de Incentivos fiscales al Desarrollo Industrial para la manufactura de productos de resina termoindurentes tales como: botones, hebillas, vajillas, envases, tapas, artículos para uso doméstico, partes componente de radios y televisores e instalaciones eléctricas. La empresa gozaba de beneficios fiscales según decreto ejecutivo N° 52-DGI-43/0, publicado en “La Gaceta” N° 79 del 18 de abril de 1970.
+2°.- Que la solicitud se tramitó de conformidad con el Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial y la Comisión Asesora Nacional del Ministerio de Economía, Industria y Comercio, en sesión N° 71/76 celebrada el 16 de diciembre de 1976, acordó recomendar al señor Ministro de Economía, Industria y Comercio que para los efectos del artículo 20 del convenio, que se clasifique la empresa petente en el Grupo “B” Existente y que se le concedan los beneficios estipulados en el artículo mencionado.
+Considerando:
+1°- Que la Contraloría General de la República según nota N° 272-L-77 del 9 de febrero de 1977, ha manifestado su conformidad con los beneficios que se estipulan en este decreto.
+2°- Que el señor Hugo Jiménez Monge en representación de la firma "Industria Termoplástica Centroamericana, Sociedad Anónima” aceptó en todos sus términos el presente decreto por escritura pública otorgada en las 8 :00 horas del 24 de febrero de 1977, ante el notario Francisco Morelli Cozza.
+3°- Que se ha cumplido con lo prescrito en el Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial.
+Por tanto,
+DECRETAN:
+Artículo 1°- Conceder a la firma "Industria Termoplástica Centroamericana, Sociedad Anónima ", para su planta industrial destinada a la manufactura de productos de resinas termoindurentes tales como: botones, hebillas, envases, vajillas, tapas, artículos para uso doméstico, partes componentes de radios y televisores e instalaciones eléctricas y concederle de acuerdo con el artículo 20 del Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial, el siguiente beneficio por el plazo que se indica:
+a) Exención total de impuestos arancelarios sobre la importación de maquinaria y equipo de planta. Este beneficio lo disfrutará durante cinco años contados a partir de la fecha en que la empresa realice la primera importación
+Es entendido que las franquicias aduaneras sobre importaciones las disfrutará el Empresario sujeto a las disposiciones del artículo IX del Tratado General de Integración Económica Centroamericana, así como a las disposiciones reglamentarias correspondientes a su aplicación.
