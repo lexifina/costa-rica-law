@@ -1,0 +1,55 @@
+CAPÍTULO IV
+DISPOSIONES RECTORAS DE APLICACIÓN DEL CONVENIO
+Artículo 17
+Obligaciones de las Autoridades Competentes
+De acuerdo con el derecho interno de cada Estado Parte, las
+autoridades competentes y, en especial, las dotadas de potestades de
+reglamentación y supervisión sobre las entidades de intermediación
+financiera, entre otras obligaciones, deberán:
+a) Otorgar, denegar, suspender o cancelar licencias o permisos para
+operar entidades de intermediación financiera y las que realicen
+actividades financieras, a que se refiere el artículo 10 del presente
+Convenio.
+b) Examinar, controlar o fiscalizar las entidades de intermediación
+financiera y las que realicen actividades financieras, relacionadas en el
+artículo 10 de este Convenio y reglamentar el cumplimiento efectivo de las
+obligaciones de registro y notificación establecidas en el presente
+Convenio.
+c) Verificar, mediante exámenes regulares, que las entidades de
+intermediación financiera y las que realicen actividades financieras, a
+que se refiere el artículo 10 antes referido, posean y apliquen los
+programas de cumplimiento obligatorio, a que se refiere el artículo 15 de
+este Convenio.
+d) Brindar a otras autoridades competentes la información obtenida
+de entidades de intermediación financiera y de las que realicen
+actividades financieras, a que se refiere el artículo 10 anteriormente
+mencionado, conforme a este Convenio, incluso las surgidas de un examen de
+cualquiera de ellas.
+e) Dictar instructivos o recomendaciones que ayuden a las entidades
+de intermediación financiera y a las que realicen actividades financieras,
+a que se refiere el artículo 10 antes mencionado, a detectar patrones
+sospechosos en la conducta de sus clientes. Estas pausas se desarrollarán
+tomando en cuenta técnicas modernas y seguras de manejo de activos y
+servirán como elemento educativo para el personal de estas entidades.
+f) Cooperar con las autoridades competentes y aportarles, en la
+medida de lo posible, asistencia técnica, en el marco de investigaciones
+y procesos referentes a los delitos contenidos en el artículo 2 de este
+Convenio y con los demás delitos de tráfico ilícito de drogas y delitos
+conexos.
+Las autoridades competentes y, en especial, las dotadas de potestades
+para reglamentar y supervisar las entidades de intermediación financiera,
+conforme al derecho interno de cada Estado Parte, deberán poner en
+conocimiento con prontitud, de las otras autoridades competentes cualquier
+información, recibida de entidades de intermediación financiera, relativa
+a transacciones o actividades sospechosas que puedan relacionarse con los
+delitos estipulados en el artículo 2 de este Convenio y los demás delitos
+de tráfico ilícito de drogas y delitos conexos.
+Las autoridades competentes y, en especial, las dotadas de potestades
+de reglamentación y supervisión sobre las entidades de intermediación
+financiera, conforme al derecho de cada Estado Parte, deberán prestar
+estrecha cooperación a las autoridades competentes de otros Estados en
+investigaciones, procesos y actuaciones relacionados con los delitos
+citados en el artículo 2 de este Convenio, los demás delitos de tráfico
+ilícito de drogas y delitos conexos, y con las infracciones de las leyes
+o reglamentos administrativos aplicables a las entidades de intermediación
+financiera.
