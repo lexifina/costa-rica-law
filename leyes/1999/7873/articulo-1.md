@@ -1,3 +1,4 @@
+(NOTA: Mediante decreto ejecutivo N° 27910 del 14 de mayo de 1999, la República de Costa Rica se adhiere a la presente Convención)
 APROBACIÓN DE LA ADHESIÓN A LA CONVENCIÓN
 PARA EL ARREGLO PACÍFICO DE DISPUTAS INTERNACIONALES,
 CONCLUIDA EN LA HAYA EL 18 DE OCTUBRE DE 1907
