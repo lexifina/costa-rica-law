@@ -1,0 +1,1 @@
+Artículo 3°—El Ministerio de Trabajo y Seguridad Social, en coordinación con el INFOCOOP, revisarán las guías que establecen las normas mínimas para los estudios de posibilidad, viabilidad y utilidad, o factibilidad que se requieran para la constitución de una cooperativa y elaborarán el respectivo reglamento en un plazo de noventa días.

@@ -1,0 +1,2 @@
+Transitorio único.—Se le aplicará lo dispuesto en el artículo 2 de este decreto, a aquellas organizaciones cooperativas que a la fecha de esta publicación, se encuentren en formación y esté pendiente su inscripción, por prevenciones de cumplimiento de requisitos no relacionados con lo dispuesto en el inciso d) artículo 32 de la referida ley 4179.
+Dado en la Presidencia de la República.—San José, a los quince días del mes de febrero de 1999.
