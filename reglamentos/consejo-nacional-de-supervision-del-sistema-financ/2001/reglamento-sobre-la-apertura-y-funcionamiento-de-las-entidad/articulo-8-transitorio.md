@@ -1,0 +1,2 @@
+Transitorio VIII. De la vigencia de la moneda local en los planes de los Regímenes de Capitalización Laboral y Pensión Obligatoria
+Los planes correspondientes a los Regímenes de Capitalización Laboral y de Pensión Obligatoria mantendrán su denominación en moneda local hasta el 31 de marzo del 2002. A partir del mes de abril de ese mismo año, los afiliados podrán convenir con la entidad autorizada la denominación en dólares estadounidenses para esos regímenes, de conformidad con lo que señala el Artículo 5 de este Reglamento.

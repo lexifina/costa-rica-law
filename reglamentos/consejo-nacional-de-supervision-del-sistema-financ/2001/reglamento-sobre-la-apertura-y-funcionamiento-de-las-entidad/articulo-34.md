@@ -1,0 +1,3 @@
+Artículo 34. Del patrocinio de actividades
+Es lícito el patrocinio publicitario, por el cual el patrocinado, a cambio de una ayuda económica para la creación, ejecución o difusión de su labor cultural, benéfica o deportiva, se compromete a colaborar en la publicidad de la entidad autorizada patrocinadora.
+No obstante, dicho patrocinio no podrá representar una ventaja directa para los afiliados de la empresa patrocinadora, consistente en una asistencia gratuita al evento patrocinado, en una rebaja en el valor de la entrada o en cualquier otro beneficio de similar índole, que no correspondan a los beneficios autorizados por la Ley 7983 y definidos dentro del plan suscrito.

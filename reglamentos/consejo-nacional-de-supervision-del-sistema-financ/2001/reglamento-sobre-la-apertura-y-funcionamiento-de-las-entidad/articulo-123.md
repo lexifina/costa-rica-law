@@ -1,0 +1,4 @@
+Artículo 123. Del procedimiento de auditoría
+Para la realización de auditorías externas, el auditor deberá aplicar las normas y procedimientos de auditoría adoptados por el Colegio de Contadores Públicos de Costa Rica, aplicables a las auditorías de las entidades autorizadas sujetas a este Reglamento. En ausencia de normativa del Colegio o del Consejo Nacional de Supervisión del Sistema Financiero, se aplicarán las normas de aceptación internacional.
+El auditor externo deberá evaluar que la entidad auditada cumpla con las normas de contabilidad adoptadas por el Colegio de Contadores Públicos de Costa Rica o, en su caso, por las regulaciones emitidas por el Consejo Nacional de Supervisión del Sistema Financiero.
+En el caso de empresas domiciliadas en el extranjero, el auditor deberá verificar que la empresa cumpla con las normas de contabilidad y otras regulaciones conexas aplicables en el país de origen.

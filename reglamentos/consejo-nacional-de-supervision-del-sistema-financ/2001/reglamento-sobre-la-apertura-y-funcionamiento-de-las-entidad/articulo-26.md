@@ -1,0 +1,5 @@
+Artículo 26. De la finalización del proceso
+Una vez autorizada la fusión, el Superintendente podrá solicitar a la entidad prevaleciente acreditar el cumplimiento de los requisitos de funcionamiento señalados en el Artículo 15 de este Reglamento, cuando así corresponda.
+Dentro del plazo máximo de 15 días hábiles a partir de la comunicación del acuerdo de autorización de la fusión, la entidad resultante debe realizar la comunicación a que se refiere el literal f. del Artículo 21 de este Reglamento. Este plazo podrá ser prorrogado por el Superintendente, hasta por un lapso igual, siempre y cuando la entidad solicite y justifique la prórroga con anterioridad al vencimiento del plazo original.
+Finalizado el proceso de fusión, la Superintendencia publicará un extracto de la resolución final en el Diario Oficial. Asimismo, informará al público en general, mediante publicación en un diario de circulación nacional. Ambas publicaciones correrán por cuenta de la entidad prevaleciente en la fusión.
+En el caso de fusión por absorción el Superintendente podrá solicitar a la entidad prevaleciente los requisitos necesarios para completar lo indicado en el Artículo 15.

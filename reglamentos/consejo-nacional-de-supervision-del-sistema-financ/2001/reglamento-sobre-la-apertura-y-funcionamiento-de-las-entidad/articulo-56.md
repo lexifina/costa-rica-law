@@ -1,0 +1,3 @@
+Artículo 56. Condiciones de custodia, liquidación y compensación
+En las transacciones realizadas con instrumentos del exterior deberá utilizarse los servicios de una entidad de custodia reconocida por la Superintendencia General de Valores.
+El contrato con la entidad de custodia debe especificar que esa entidad está en capacidad de brindar los servicios de liquidación, compensación y custodia física o electrónica de los valores a transar, asegurando la entrega contra pago, así como el acceso de la Superintendencia a la cuenta de la Entidad Autorizada, para hacer las consultas correspondientes.

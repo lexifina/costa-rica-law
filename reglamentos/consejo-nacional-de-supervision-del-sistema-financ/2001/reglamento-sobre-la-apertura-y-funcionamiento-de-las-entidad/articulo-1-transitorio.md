@@ -1,0 +1,4 @@
+TRANSITORIOS
+Transitorio I. Del período para ejercer el derecho de transferencia en el caso de la afiliación automática
+La Superintendencia publicará en un periódico de circulación nacional, en un plazo no mayor de quince días contados a partir de la fecha de recibo de la información por parte del SICERE, la lista de los trabajadores que hayan sido registrados automáticamente al Régimen Obligatorio de Pensión Complementaria y al Fondo de Capitalización Laboral.
+Las Entidades Autorizadas deberán registrar y administrar temporalmente en un Fondo denominado "De afiliación automática", los recursos de los trabajadores afiliados en forma automática. Dichas entidades podrán trasladar los afiliados al Fondo correspondiente una vez que hayan verificado que la información de esos afiliados cumple con las disposiciones reglamentarias respectivas.

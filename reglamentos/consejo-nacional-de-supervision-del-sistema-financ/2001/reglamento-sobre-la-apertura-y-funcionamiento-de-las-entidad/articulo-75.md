@@ -1,0 +1,2 @@
+Artículo 75. Del procedimiento de contratación
+Si el trámite de contratación de una renta vitalicia lo efectúa el afiliado, las partes contratantes tendrán un plazo de dos días hábiles después de la suscripción del contrato para informar por escrito a la entidad autorizada, la cual debe trasladar a la entidad aseguradora los recursos correspondientes para el pago de la prima, en un plazo máximo de cinco días hábiles.

@@ -1,0 +1,2 @@
+Artículo 131. De la cuota total mensual de los planes de pensiones
+En aquellos planes de pensiones con beneficios definidos, la cuota total mensual que paga el afiliado y el cotizante, de existir, considerará la sumatoria del conjunto de coberturas establecidas en cada contrato o reglamento. La configuración de cada contrato se establecerá de común acuerdo entre la entidad autorizada, el afiliado y eventualmente el cotizante.

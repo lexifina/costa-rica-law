@@ -1,0 +1,2 @@
+Artículo 92. De la equivalencia en la frecuencia de pago
+En los casos en que los aportes de los afiliados a un plan del Régimen Voluntario de Pensiones Complementarias se efectúen con frecuencias diferentes a la mensual, se deberá equiparar la frecuencia de pago utilizada a la de un sistema de cotización mensual, en función del aporte mínimo mensual establecido como condición por cada una de las entidades autorizadas para optar por un plan de dicho Régimen. También procede esta disposición para el caso de retiros anticipados.

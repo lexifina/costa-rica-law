@@ -1,0 +1,3 @@
+Artículo 109. De los criterios contables
+Los criterios contables que utilizarán las entidades autorizadas en la confección y presentación de los estados financieros serán aquellos que previamente se hayan determinado en el Manual de Cuentas o las normas de contabilidad generalmente aceptadas y las normas internacionales de contabilidad, cuando así lo disponga el Consejo Nacional de Supervisión del Sistema Financiero.
+Si hubiere algún cambio en los criterios contables en relación con los aplicados en el ejercicio anterior, y si este cambio tiene un efecto significativo, debe indicarse la naturaleza y efecto de tales cambios en el resultado neto y en los rubros de los estados financieros.

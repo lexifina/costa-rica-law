@@ -1,0 +1,2 @@
+Artículo 66. De la renta vitalicia con período garantizado
+Es aquella modalidad de pensión en la cual el asegurado pensionado contrata un plan por medio del cual la entidad aseguradora le girará pagos mensuales hasta su fallecimiento, pero que se incluye un período en el cual la aseguradora se compromete si el pensionado fallece antes de la finalización del período, a seguir otorgando los pagos periódicos hasta la finalización de dicho plazo.

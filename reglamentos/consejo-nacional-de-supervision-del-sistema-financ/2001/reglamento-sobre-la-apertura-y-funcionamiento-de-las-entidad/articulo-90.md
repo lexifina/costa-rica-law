@@ -1,0 +1,5 @@
+Artículo 90. De la recaudación
+Los aportes al Régimen Voluntario de Pensiones Complementarias y a planes de ahorro voluntario se realizarán por medio del Sistema Centralizado de Recaudación administrado por la CCSS, si así lo decide el afiliado, de acuerdo a lo establecido por los Artículos 14 y 58 de la Ley 7983 y el Artículo 31 de la Ley Orgánica de la CCSS. Podrá utilizarse cualquier medio electrónico que el Sistema Centralizado de Recaudación implemente para efectos de mejorar la recaudación y su control.
+En todo caso, a través del Sistema Centralizado de Recaudación únicamente se recaudará los aportes correspondientes a un plan voluntario de pensión y de un plan de ahorro voluntario. En estos casos, las Operadoras deberán cumplir con los procedimientos de afiliación establecidos por dicho Sistema.
+El Sistema Centralizado de Recaudación deberá trasladar los recursos a las entidades autorizadas en los términos establecidos en el literal b. del Artículo 86 de este Reglamento.
+El afiliado, sea o no trabajador asalariado, o el cotizante, podrán realizar sus aportes en forma directa a la entidad autorizada, por el medio que acuerden las partes.

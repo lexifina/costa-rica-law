@@ -1,0 +1,2 @@
+Artículo 5. De las monedas
+Los aportes al Fondo de Capitalización Laboral, al Régimen Obligatorio de Pensiones Complementarias, al Régimen Voluntario de Pensiones Complementarias y al Plan de Ahorro Voluntario podrán realizarse en colones costarricenses o en dólares estadounidenses. En todo caso, aquellos fondos que se constituyan en dólares estadounidenses únicamente deberán invertir en valores denominados en esa misma moneda.

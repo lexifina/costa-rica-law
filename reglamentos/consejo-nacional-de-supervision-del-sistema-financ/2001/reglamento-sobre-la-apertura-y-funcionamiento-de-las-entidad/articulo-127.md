@@ -1,0 +1,2 @@
+Artículo 127. Del informe complementario
+En adición al dictamen de auditoría, el auditor externo deberá presentar a la Superintendencia, junto con los estados financieros auditados, un informe complementario referente a la evaluación del auditor respecto de la entidad auditada, el cual deberá incluir como mínimo detalles sobre el resultado de la revisión de la estructura del control interno, cumplimiento de normativa aplicable en materia de pensiones, ajustes recomendados a estados financieros en fechas intermedias.

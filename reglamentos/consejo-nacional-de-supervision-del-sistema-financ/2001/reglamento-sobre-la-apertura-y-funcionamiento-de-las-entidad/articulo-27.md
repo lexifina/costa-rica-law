@@ -1,0 +1,4 @@
+Artículo 27. De los derechos de los afiliados
+La nueva entidad resultante o la entidad prevaleciente, según sea el caso, deberá respetar los derechos y obligaciones pactados originalmente con los afiliados por cada una de las entidades que se fusionaron.
+Los afiliados podrán solicitar la transferencia de sus recursos a otra entidad, aún cuando no haya transcurrido el plazo indicado en el Artículo 102 de este Reglamento.
+Para ejercer este derecho, el afiliado en un plazo máximo de 60 días naturales contados a partir de la comunicación respectiva en un periódico de circulación nacional, se presentará en las oficinas del Sistema Centralizado de Recaudación y cumplirá el trámite para las transferencias establecido en este Reglamento. Si transcurrido ese plazo, el afiliado no ha solicitado la transferencia, se entenderá que no ejercerá ese derecho sino hasta que le corresponda cumplir el plazo fijado de permanencia mínima en la entidad fusionada.

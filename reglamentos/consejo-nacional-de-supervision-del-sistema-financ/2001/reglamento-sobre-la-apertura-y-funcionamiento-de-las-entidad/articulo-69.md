@@ -1,0 +1,2 @@
+Artículo 69. Del retiro en el Régimen Voluntario de Pensiones Complementarias
+Los afiliados al Régimen Voluntario de Pensiones Complementarias podrán optar por el retiro total o parcial de los recursos acumulados en su cuenta de capitalización individual, de acuerdo con lo establecido en los contratos pero no antes de que el afiliado cumpla cincuenta y siete años de edad, con las excepciones establecidas en el Artículo 21 de la Ley 7983.

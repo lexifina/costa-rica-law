@@ -1,0 +1,5 @@
+Artículo 84. Del capital inicial
+El capital necesario para el retiro programado se calculará sobre la base del saldo total de la cuenta de capitalización individual o sobre el porcentaje que indique el afiliado pensionado al momento de la firma del contrato. Al fallecimiento del afiliado pensionado, la operadora deberá girar el remanente que quedare a los beneficiarios estipulados en el contrato original.
+La operadora de pensiones pondrá a disposición del afiliado pensionado toda la información para el cálculo de la anualidad, entre la que debe estar el concepto de valor actual de los pagos anuales iguales, durante el periodo en que se programe el retiro.
+La anualidad deberá ser calculada para efectuar retiros mensuales. El afiliado pensionado podrá optar por otra frecuencia menor de pago o por retirar una suma inferior, en cuyo caso deberá manifestarlo por escrito.
+Asimismo, como parte del retiro programado, la operadora de pensiones podrá comprometerse al pago de una perpetuidad, entendida ésta como el retiro mensual de los intereses generados por el capital, el cual se dejará en forma indefinida para su administración.
