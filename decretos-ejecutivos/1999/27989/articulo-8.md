@@ -1,0 +1,1 @@
+Artículo 8°.- El personal administrativo del Taller Nacional de Danza estará sujeto en su relación de trabajo a las disposiciones contenidas en el Reglamento Interior de Trabajo del Ministerio de Cultura, Juventud y Deportes.

@@ -1,0 +1,1 @@
+Artículo 11.- Los profesores deberán presentar un informe trimestral a la Dirección del Taller. Deberán además participar en actividades propias de la institución, tales como seminarios, talleres, coreografías, que estén dentro del plan de estudios y que sirven de promoción y experimentación.

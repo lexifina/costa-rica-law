@@ -1,0 +1,1 @@
+Artículo 5°.- Corresponderá a un Consejo Docente, integrado por tres profesores del Taller escogido por el Director, asesorar a la Junta del Teatro sobre los planteamientos académicos del programa, y participar en la elaboración de proyectos de programas que además del área docente, se refieran a la capacitación, asesoría y extensión cultural.
