@@ -1,0 +1,11 @@
+N° 31471
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146, de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227 o Ley General de la Administración Pública de 2 de mayo de 1978, Ley Nº 8131 o Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre de 2001, y la Ley N° 6588 o Ley que regula a la Refinadora Costarricense de Petróleo del 30 de julio de 1981.
+Considerando:
+1º—Que por medio de la Ley N° 6588, publicada en La Gaceta N° 154 del 13 de agosto de 1981, se ratifica el traspaso de la Refinadora Costarricense de Petróleo (RECOPE) al Estado y se faculta a la empresa a refinar, transportar, comercializar a granel el petróleo y sus derivados.
+2º—Que mediante el Decreto Ejecutivo Nº 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 marzo del 2003, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2004, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo el gasto presupuestario para el 2004, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+3º—Que RECOPE requiere incorporar recursos en el 2004, para mejorar la infraestructura necesaria para el mantenimiento de instalaciones en tanques, equipos de bombeo, oleoducto y planteles, con el fin de producir bienes y servicios con mayor productividad y mejor calidad.
+4º—Que mediante oficio STAP-CIRCULAR 0588-03 del 23 de abril del 2003, se comunicó a RECOPE el límite de gasto fijado para el año 2004.
+5º—Que por lo anterior, se hace necesario modificar el límite de gasto presupuestario a los efectos de incorporar dichos recursos. Por tanto:
+DECRETAN:
+Artículo 1°—Modifícase a la Refinadora Costarricense de Petróleo el límite de gasto presupuestario para el 2004, establecido en el artículo 1° del Decreto Ejecutivo N° 31092-H, publicado en La Gaceta N° 63 del 31 de marzo del 2003, y comunicado mediante STAP-CIRCULAR 0588-03 del 23 de abril del 2003, de manera que el gasto presupuestario no exceda la suma de ¢34.142,49 millones en ese período.
