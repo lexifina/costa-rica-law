@@ -1,0 +1,2 @@
+Artículo 18.- Las faltas temporales de los Actuarios, que excedan de ocho días, se llenarán por el Actuario interino que designe la Corte Plena, dentro de la terna respectiva; si no exceden del término dicho, el Jefe de oficina se hará cargo de la tramitación; pero si hubiere otro Actuario, éste continuará tramitando los diversos asuntos.
+Cuando la ausencia no exceda de dos meses el Jefe de la oficina puede ser sustituido por el Actuario, a juicio de la Corte Plena.
