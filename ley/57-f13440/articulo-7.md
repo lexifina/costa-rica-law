@@ -1,0 +1,1 @@
+Art. 7°. –En los pueblos que comprendan dos o más Secciones electorales, o fracciones de ellas, la Municipalidad respectiva comisionar a sus individuos para presidir las juntas populares y dejar instalados los Directorios, y a éstos se entregará en el acto copia del libro de registro formado que disponen los artículos 2° y 3° de esta ley.

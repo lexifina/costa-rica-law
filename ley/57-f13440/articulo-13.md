@@ -1,0 +1,1 @@
+Art. 13.-Cuando de la primera votación no resulte acabada la elección, se repetirá aquella entre los candidatos que hayan tenido más número de votos hasta obtener alguno la mayoría absoluta; y en los casos de empate, decidir la suerte, concluyéndose el acto, como previene el art° 82. de la Constitución.
