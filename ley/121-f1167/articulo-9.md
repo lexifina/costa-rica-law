@@ -1,0 +1,1 @@
+Artículo 9°.-Anualmente la Junta Directiva presentar al Congreso, por medio de la Secretaría de Agricultura, un proyecto de presupuesto detallado de los gastos para el año siguiente y una memoria completa sobre sus labores.

@@ -1,0 +1,1 @@
+Artículo 7°.-La Junta Directiva nombrar un Consejo Técnico, integrado por tres Ingenieros Agrónomos, del cual ser Jefe el Director del Centro Nacional de Agricultura, que desarrollar el plan científico enunciado en los propósitos del Instituto.
