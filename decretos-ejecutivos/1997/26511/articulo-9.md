@@ -1,0 +1,1 @@
+Artículo 9°—Incendios. En las áreas ubicadas dentro de los territorios indígenas en la medida de sus posibilidades otorgará los incentivos establecidos en la Ley Forestal, previa solicitud de la Asociación Integral de Desarrollo Indígena, cumpliendo para ello con los requisitos reglamentarios establecidos.

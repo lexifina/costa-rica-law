@@ -1,0 +1,1 @@
+Artículo 4°—Competencia. De previo a emitir la autorización respectiva el Inspector o Guarda Recurso debe presentar un informe técnico expedido a la Asociación de Desarrollo Indígena, donde recomiende la aprobación de la solicitud.

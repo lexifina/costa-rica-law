@@ -1,0 +1,1 @@
+Artículo 3°—De los Guarda Recursos. El Ministerio del Ambiente y Energía por medio del Sistema Nacional de Áreas de Conservación, ejecutará un plan de capacitación a los miembros de la comunidad indígena, a fin de brindarles la capacitación necesaria para que se desempeñen como Inspectores o Guarda Recursos.
