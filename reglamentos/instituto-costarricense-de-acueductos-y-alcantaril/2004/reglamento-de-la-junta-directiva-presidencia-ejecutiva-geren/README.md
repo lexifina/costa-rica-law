@@ -14,3 +14,4 @@ Reglamento de la Junta Directiva, Presidencia Ejecutiva, Gerencia y Subgerencia 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-08 | la propia norma |
+| 2 | 2005-01-11 | Reglamento 2 (2005-01-11) |
