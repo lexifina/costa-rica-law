@@ -14,3 +14,4 @@ Reglamento de Uso de Vehículos del Banco Hipotecario de la Vivienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-05-17 | la propia norma |
+| 2 | 1991-12-05 | Reglamento 93 (1991-12-05) |

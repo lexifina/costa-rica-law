@@ -1,4 +1,5 @@
-Artículo 3º-Son deberes del Departamento de Proveeduría:
+Artículo 3º-Son deberes del Departamento o Sección de Servicios Generales:
+(Así reformado el párrafo anterior en sesión Nº 93-91 del 5 de diciembre de 1991)
 a)Atender y tramitar los asuntos administrativos relativos al uso de vehículos a su cargo.
 b)Supervisar la labor de los conductores de planta.
 c)Llevar diariamente los registros necesarios para conocer el estado de los vehículos antes y después de cada servicio, y establecer las responsabilidades del caso cuando aparecieren daños.

@@ -1,5 +1,6 @@
 De la solicitud de servicios de transporte
-Artículo 4º-Todo servicio de transporte se solicitará ante el Departamento de Proveeduría mediante la "Fórmula de Solicitud y Control de Vehículo". La fórmula será llenada por el Departamento Usuario. Al Departamento de Proveeduría le corresponderá revisarlas, so pena de no dar trámite a fórmulas incompletas o mal confeccionadas.
+Artículo 4º-Todo servicio de transporte se solicitará ante el Departamento o Sección de Servicios Generales mediante la "Fórmula de Solicitud y Control de Vehículo". La fórmula será llenada por el Departamento Usuario. Al Departamento o Sección de Servicios Generales le corresponderá revisarlas, so pena de no dar trámite a fórmulas incompletas o mal confeccionadas.
+(Así reformado el párrafo anterior en sesión Nº 93-91 del 5 de diciembre de 1991)
 Quien solicite un vehículo, deberá consignar claramente en la fórmula, los siguientes datos:
 a)Nombre del conductor y número de cédula.
 b)Nombre del usuario del servicio y unidad a que pertenece.
