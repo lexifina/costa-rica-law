@@ -1,0 +1,1 @@
+Art 5° El sobrante que puede haber de la cantidad presupuestada para alguno de los Departamentos, no puede de ninguna manera aplicarse al déficit de otro Departamento, pero si hubiere superávit en otro capítulo del mismo. Departamento, ese sobrante podrá invertirse en cubrir dicho déficit.
