@@ -1,0 +1,11 @@
+ARTÍCULO 67.- Registro del nombre comercial
+El titular de un nombre comercial podrá solicitar la inscripción en
+el Registro de la Propiedad Industrial. El registro del nombre comercial
+tendrá duración indefinida y se extinguirá con la empresa o el
+establecimiento que emplea el nombre comercial. Podrá ser cancelado en
+cualquier tiempo, a pedido de su titular. Un nombre comercial se
+registrará ante el Registro de la Propiedad Industrial, sin perjuicio de
+las disposiciones relativas a la inscripción de los comerciantes y las
+sociedades civiles y mercantiles en los registros públicos
+correspondientes y sin perjuicio de los derechos resultantes de tal
+inscripción.

@@ -1,0 +1,17 @@
+ARTÍCULO 75.- Prohibiciones para el registro
+A petición de una persona con interés legítimo o de oficio, en el
+Registro de la Propiedad Industrial no podrá registrarse, como
+denominación de origen, un signo que:
+a) No se conforme a la definición de denominación de origen contenida
+en el artículo 2 de esta ley;
+b) Sea contrario a las buenas costumbres o el orden público o pueda
+inducir al público a error sobre la procedencia geográfica, la naturaleza,
+el modo de fabricación, las características o cualidades o la aptitud para
+el empleo o el consumo de los respectivos productos.
+c) Sea la denominación común o genérica de algún producto. Se estima
+común o genérica cuando sea considerada como tal por los conocedores de
+este tipo de producto y por el público en general.
+Podrá registrarse una denominación de origen acompañada del nombre
+genérico del producto respectivo o una expresión relacionada con este
+producto; pero la protección no se extenderá al nombre genérico ni a la
+expresión empleados.

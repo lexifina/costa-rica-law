@@ -1,0 +1,1 @@
+Artículo 29°- Adopción de una marca ajena como denominación social. Una persona jurídica no podrá constituirse ni inscribirse en un registro público con una razón o denominación social que incluya una marca registrada a nombre de un tercero, cuando el uso de esa razón o denominación pueda causar confusión, salvo que ese tercero dé su consentimiento escrito.

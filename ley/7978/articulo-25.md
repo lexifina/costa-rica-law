@@ -1,0 +1,13 @@
+CAPÍTULO IV
+Derechos, Obligaciones y Limitaciones Relativas al Registro
+Artículo 25°- Derechos conferidos por el registro. El titular de una marca de fábrica o de comercio ya registrada gozará del derecho exclusivo de impedir que, sin su consentimiento, terceros utilicen en el curso de operaciones comerciales, signos idénticos o similares para bienes o servicios iguales o parecidos a los registrados para la marca, cuando el uso dé lugar a la probabilidad de confusión. Por ello, el registro de una marca confiere, a su titular o a los derechohabientes, el derecho de actuar contra terceros que, sin su consentimiento, ejecuten alguno de los siguientes actos:
+a) Aplicar o colocar la marca o un signo distintivo idéntico o semejante sobre productos o servicios para los cuales fue registrada la marca o sobre productos, envases, envolturas, embalajes o acondicionamientos de esos productos relacionados con los servicios para los cuales se registró la marca.
+b) Suprimir o modificar la marca con fines comerciales después de haberla aplicado o colocado sobre los productos o servicios referidos en el literal precedente.
+c) Fabricar etiquetas, envases, envolturas, embalajes u otros materiales análogos, que reproduzcan o contengan la marca, así como comercializar o detentar tales materiales.
+d) Rellenar o volver a usar, con fines comerciales, envases, envolturas o embalajes identificados con la marca.
+e) Usar en el comercio un signo idéntico o similar a la marca, para productos o servicios, cuando tal uso pueda causar confusión o el riesgo de asociación con el titular del registro.
+f) Usar en el comercio un signo idéntico o similar a la marca para productos o servicios cuando tal uso pueda causarle al titular o al derechohabiente del registro un daño económico o comercial injusto, por una disminución de la fuerza distintiva, del valor comercial de la marca, o por el aprovechamiento injusto del prestigio de la marca o la clientela creada por su uso.
+Para los efectos de esta ley, se tiene como acto de uso de un signo en el comercio, ya sea que se realice dentro o fuera del territorio nacional, entre otros usos, los siguientes:
+a) Introducir en el comercio, vender, ofrecer para la venta o distribuir productos o servicios con el signo, en las condiciones que tal signo determina.
+b) Importar, exportar, almacenar o transportar productos con el signo.
+c) Utilizar el signo en publicidad, publicaciones, documentos comerciales o comunicaciones escritas u orales, sin perjuicio de las normas sobre publicidad aplicables.

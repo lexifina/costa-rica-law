@@ -1,0 +1,9 @@
+ARTÍCULO 65.- Nombres comerciales inadmisibles
+Un nombre comercial no podrá consistir, total ni parcialmente, en una
+designación u otro signo contrario a la moral o el orden público o
+susceptible de causar confusión, en los medios comerciales o el público,
+sobre la identidad, la naturaleza, las actividades, el giro comercial o
+cualquier otro asunto relativo a la empresa o el establecimiento
+identificado con ese nombre comercial o sobre la procedencia empresarial,
+el origen u otras características de los productos o servicios producidos
+o comercializados por la empresa.

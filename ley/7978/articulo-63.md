@@ -1,0 +1,7 @@
+ARTÍCULO 63.- Alcance de la protección
+La protección conferida por el registro de una expresión o señal de
+publicidad comercial abarca la expresión o señal en su conjunto y no se
+extiende a sus partes o elementos considerados por separado. Una vez
+inscrita, una expresión o señal de publicidad comercial goza de protección
+por tiempo indefinido; pero su existencia depende, según el caso, de la
+marca o el nombre comercial a que se refiera.
