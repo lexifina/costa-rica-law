@@ -1,25 +1,34 @@
-Artículo 90.-Las inversiones en trabajos de forestación y reforestación, a que se refiere el artículo 67 de la Ley Forestal, realizadas en los primeros cinco años contados a partir de la fecha que se indique en el respectivo contrato con el Estado, serán deducibles directamente del impuesto liquidado conforme al artículo 14 de la Ley del Impuesto sobre la Renta.
-Para los efectos anteriores, se consideran inversiones las siguientes:
-1) Costos operativos:
-a) Mano de obra para la siembra y mantenimiento de viveros y plantaciones;
-b) Materiales: semillas, plántulas, químicos, combustibles y lubricantes;
-c) Asistencia técnica forestal programada; y
-d) Otras inversiones debidamente comprobadas, que sean razonables a juicio de la Dirección General de la Tributación Directa, excepto las erogaciones por financiamiento que no son deducibles.
-2) Costos de capital
-a) Edificaciones: casas de peones y de administradores, oficinas, bodegas y talleres;
-b) Maquinaria, equipo y herramientas; y
-c) Otros costos de capital, incluyendo caminos forestales, cuando se trate de habilitar fincas.
-En ningún caso será deducible el valor de la tierra.
-Los bienes anteriormente citados, no podrán ser objeto de depreciación, para efectos del Impuesto sobre la Renta.
-(*) Las inversiones de los primeros cinco años a que se refieren los incisos 1) y 2), podrán ser deducidas por el dueño de la plantación bajo cualquiera de los siguientes procedimientos:
-a) En el período fiscal en que se efectúen las erogaciones; o
-b) Diferidas en un plazo máximo de cinco años, contados a partir de la fecha en que se realicen las inversiones, en cuotas iguales y consecutivas.
-La cuota no deducida o que se hubiere computado por un monto menor, no podrá ser rebajada en períodos posteriores.
-(*)(Así reformado el párrafo 5) anterior por el artículo 1° del decreto ejecutivo N° 15308 del 16 de febrero de 1984)
-(*)Una vez que el propietario haya adoptado cualquiera de los métodos de deducción anteriores, no podrá variarlo, salvo autorización expresa de la Dirección General de la Tributación Directa. Cuando dichas inversiones excedan de cincuenta mil colones (¢50.000,00) por hectárea, deberán respaldarse en su totalidad con los comprobantes respectivos; no obstante, la Dirección General de la Tributación Directa podrá rechazarlas total o parcialmente, cuando considere que no responden a la realidad. Dicha Institución podrán también autorizar deducciones adicionales para el mantenimiento de plantaciones hasta un máximo de cuatro mil colones ...(¢4.000,000), previa recomendación o dictamen de la Dirección General Forestal.
-(*)(Así reformado el párrafo 6) anterior por el artículo 1° del decreto ejecutivo N° 15308 del 16 de febrero de 1984)
-Cuando una persona adquiera una plantación sometida al régimen forestal cuyos trabajos de forestación o de reforestación queden a cargo de la vendedora, tendrá derecho a deducir las inversiones dichas, en el tanto en que la vendedora no hubiere hecho uso del beneficio.
-Para tener derecho a los beneficios fiscales anteriores, el propietario de la plantación, además de su obligación de cumplir con los requisitos establecidos en el artículo 85 de este reglamento, deberá suscribir contrato con el Estado, que estará representado por el Ministerio de Agricultura y Ganadería y el Ministerio de Hacienda. Igual obligación tendrá quien adquiera un bien que ya estuviera sometido al régimen forestal, para poder continuar con el disfrute de los beneficios concedidos por el contrato original.
-Las personas que se acojan a los beneficios comprendidos en este artículo, deberán continuar con el proyecto por lo menos diez años después de establecida la plantación. En caso de abandono de la plantación o de interrupción del proyecto, el beneficiario de los incentivos tributarios, deberá reintegrar al Fisco las deducciones hechas al amparo del respectivo contrato suscrito con el Estado.
-En caso de venta de plantaciones sometidas al régimen forestal, el comprador asumirá las responsabilidades que el párrafo anterior impone a quienes iniciaron la plantación o proyecto forestal y el vendedor responderá también cuando los trabajos de forestación o de reforestación continúen a su cargo.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 10531 del 13 de setiembre de 1979)
+Artículo 90.- Regulaciones para otorgar el beneficio fiscal establecido en el artículo 67 de la Ley Forestal :
+a) El propietario de bosques o terrenos forestales, para disfrutar del beneficio fiscal, deberá suscribir un contrato con el Estado, que estará representado por el Ministerio de Agricultura y Ganadería y el Ministerio de Hacienda. Igual obligación tendrá quien adquiera una finca ya sometida al régimen forestal, para poder continuar con el disfrute de los beneficios concedidos en el contrato original. Igualmente, el propietario se obliga a cumplir los requisitos establecidos en el artículo 85 de este Reglamento.
+b) El monto de las inversiones en trabajos de reforestación y forestación cuyo objetivo sea la obtención de materia prima para la industria del aserrío, será deducible directamente del impuesto liquidado conforme se establece en el artículo 14 de la Ley de Impuesto sobre la Renta , de acuerdo con los sistemas y métodos señalados en los incisos ch), d) y e), siguientes.
+c) Para efectos de la deducción, se consideran inversiones los siguientes gastos y costos de capital:
+i) Mano de obra empleada en viveros, siembra y mantenimiento de la plantación.
+ii) Adquisiciones de semillas, plántulas, agroquímicos y productos veterinarios.
+iii) Combustibles y lubricantes empleados en bienes usados directamente en la plantación.
+iv) Sueldos y salarios por asistencia técnica y para la administración, específicamente del administrador, capataces y choferes, que presten servicios en la propia finca o plantación.
+v) Las edificaciones para peones, administradores, bodegas, talleres y galerones de viveros o germinadores.
+vi) Maquinaria, equipo, herramientas y animales de tiro, todos de uso directo e indispensable en la plantación;
+vii) Los caminos, puentes, vados y cercas para habilitar la finca o plantación, ubicados dentro de ella, así como la rehabilitación de los caminos forestales de acceso; en este último caso, el contribuyente deberá indicar las razones y presentar las pruebas necesarias en la solicitud y ésta será resuelta en forma conjunta por la Dirección General de la Tributación Directa ; y
+viii) Los gastos de mantenimiento de los bienes indicados en los apartes v), vi), y vii), anteriores.
+En ningún caso se considerará inversión el valor de la tierra o las erogaciones por financiamiento. Asimismo, los bienes no podrán ser despreciados para efectos del impuesto sobre la renta.
+ch) La deducción de los costos y gastos considerados inversiones podrá efectuarse, una vez firmado por todas las partes el respectivo contrato, de acuerdo con los siguientes sistemas:
+i) deducción única;
+ii) ii) Deducción básica y adquisición de bienes de capital.
+d) Si el contribuyente se acoge al sistema de “deducción única” practicará las deducciones a partir del periodo fiscal en que realice la inversión y por un lapso de cinco ejercicios fiscales, aplicando, del monto correspondiente a la “deducción básica”, uno solo de los siguientes métodos porcentuales
+i) 60%, 15%, 5%, 5% y 15 %; e
+ii) 20%, 20%, 20%, 20% y 20%
+El contribuyente que adopte el sistema de “deducción única” no necesitará demostrar las erogaciones en que incurrió.
+e) Si el contribuyente utiliza el sistema de “deducción básica” y adquisición de bienes de capital podrá deducir:
+i) Los montos que corresponden por todos los conceptos señalados en los apartes i), ii), iii) del inciso c) anterior, de acuerdo con las condiciones y requisitos estipulados para el sistema de “deducción única”.
+ii) Las erogaciones provenientes de la adquisición de bienes señalados en los apartes v), iv) y vii), del inciso c) anterior, previa autorización expresa, en el aspecto técnico, emitida, por la Dirección General Forestal y el refrendo en el aspecto financiero, otorgado por la Dirección General de la Tributación Directa. El contribuyente deberá respaldar las adquisicones autorizadas con los comprobantes respectivos y suministrar el detalle correspondiente con su declaración del impuesto sobre la renta.
+f) El sistema de deducción, el método porcentual adoptado, así como el período fiscal a partir del cual se harán las inversiones, deberán quedar expresamente estipulados en el respectivo contrato.
+Las deducciones no practicadas en el período fiscal que les corresponde o que hubieren sido computadas por un monto menos, no podrán ser rebajadas en períodos fiscales posteriores; asimismo, la deducción no podrá ser superior al monto de impuesto que en el período le corresponderá pagar al contribuyente.
+La Dirección General de Tributación Directa queda facultada para rechazar total o parcialmente las deducciones, cuando considere que no se ajustan a las disposiciones del contrato, a la programación de siembra y al plan técnico de manejo aprobados por la Dirección General Forestal, o a los registros contables del contribuyente cuando corresponda.
+g) El beneficiario estará obligado a llevar a cabo el proyecto de forestación o reforestación, sujetándose al plan técnico de manejo y a la programación de siembra previamente aprobados por la Dirección General Forestal. Asimismo, estará obligado a contratar los servicios de un técnico forestal.
+El cumplimiento de las anteriores disposiciones serán causal de rescisión del contrato forestal, originando la obligación de devolver al Estado las sumas que hubieren deducido en períodos anteriores. Se exime de tal responsabilidad, cuando el incumplimiento provenga de causas de fuerza mayor o caso fortuito.
+h) La Dirección General Forestal y la Dirección General de la Tributación Directa podrán, mediante resolución conjunta, actualizar en el primer semestre de cada año, el monto correspondiente de la “deducción única”.
+Asimismo, conjuntamente podrán también autorizar, independientemente del sistema de deducción adoptado, a partir del sexto año de establecidas las plantaciones y durante cinco periodos fiscales consecutivos, una deducción para su mantenimiento, previa resolución de carácter general, en la que también se fijará el procedimiento para otorgar el crédito adicional.
+Para el ejercicio fiscal del impuesto sobre la renta número 86, se fija en ¢70.000.00 (setenta mil colones), el monto para la “deducción única”.
+i)Los contribuyentes que disfruten de los beneficios fiscales otorgados deberán continuar con el proyecto hasta su culminación, en estricto acatamiento de lo estipulado en el plan técnico de manejo forestal y demás recomendaciones que dicte la Dirección General Forestal. En caso de abandono o de interrupción del proyecto por causas a él imputables, el beneficiario de los incentivos fiscales deberá reintegrar al Fisco el monto de impuesto deducido. En estos casos, el ejecutor del proyecto será solidariamente responsable.
+j) Cuando una persona adquiera una plantación sometida al régimen forestal, tendrá derecho a deducir las inversiones realizadas en el tanto en que el anterior propietario no hubiese hecho uso del beneficio y que no hubieren transcurrido cinco años después de aquél en que quedó establecida la plantación. El nuevo propietario asumirá las obligaciones que se impuso a quienes originalmente iniciaron la plantación o proyecto forestal. El transmitente será solidariamente responsable cuando los trabajos de reforestación y forestación continúen a su cargo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 16640 del 27 de setiembre de 1985)
