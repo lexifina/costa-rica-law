@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-El Presidente del Consejo, ya sea el Vice-Jefe, uno de los vocales, disfrutar del sueldo de cincuenta pesos mensuales, observándose en las separaciones de este, lo prevenido para los demás individuos del Cuerpo.

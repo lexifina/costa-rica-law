@@ -1,0 +1,1 @@
+ARTÍCULO 19.-Para conceder estas jubilaciones, el Ejecutivo hará instruir el expediente necesario; y encontrando por el mérito de las probanzas que el interesado se halla en el caso de recibir la jubilación, el mismo Ejecutivo le declarar en el goce de la que le corresponde en conformidad de lo dispuesto en el artículo anterior.

@@ -1,0 +1,1 @@
+ARTÍCULO 29.-El Ejecutivo conceder con arreglo estas disposiciones el monte pio militar en los casos que ocurran: para esto hará instruir el expediente que corresponda, en el cual debe hacerse constar que la persona ¢ personas interesadas se hallan en el caso de percibirlo, y con mérito , hará la declaratoria correspondiente.

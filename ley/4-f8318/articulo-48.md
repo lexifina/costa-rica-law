@@ -1,0 +1,1 @@
+ARTICULO 48.-En las separaciones del Jefe de Estado, Ministro del Despacho, Jefes Superiores, Ministros principales de Hacienda y sus dependientes con licencia para ocuparse de sus negocios propios, no se abonar sueldo alguno: en las causadas por enfermedad comprobada que no pase de dos meses en cada un año se les abonar medio sueldo.

@@ -1,0 +1,1 @@
+ARTÍCULO 27.-Si el Oficial murió en acción de guerra de resultas de ella, tendrá derecho su viuda hijos, al tercio de la dotación del grado que obtenía al tiempo de la acción con despacho competente: si falleciese fuera de acción; pero en servicio de campaña tendrá por pensión la cuarta parte de la dotación de su grado.

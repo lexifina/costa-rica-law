@@ -1,0 +1,1 @@
+ARTÍCULO38.-En consecuencia no habrá en adelante depósitos ni separación de fondos, formándose de todos los ingresos sin distinción de ramo, una sola masa sufragando ‚esta, todas las atenciones y gastos que pertenecen al Estado.

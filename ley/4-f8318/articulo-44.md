@@ -1,0 +1,1 @@
+ARTÍCULO.-No obstante lo prevenido en el artículo anterior, se admitir n abonos por remates de tierras baldías: también se admitir n en amortización de la deuda de esclavos, como uno de los recursos establecidos por la ley nacional de 17 de Abril del año de 824.

@@ -1,0 +1,1 @@
+ARTÍCULO 30.-Es condición indispensable para obtener la gracia del monte pio, que la madre del Oficial, su viuda ¢ hijos han de observar sana conducta: en el caso de prostitución justificada en cualquiera concepto, pierden la pensión señalada.

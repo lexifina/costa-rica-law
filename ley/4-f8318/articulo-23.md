@@ -1,0 +1,1 @@
+ARTÍCULO 23.-El cesante queda obligado servir el destino que le llame el Gobierno siendo aquel en la forma que se ha dicho: si pesar de esto reusase desempañarlo, por el mismo hecho queda sin la pensión de cesante, menos que su negativa sea por causa legal; y mientras dura esta, que para ello tendrá que representarla y probarla ante el Gobierno.

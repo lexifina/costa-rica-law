@@ -1,0 +1,1 @@
+ARTÍCULO 36.-La Tesorería cada fin de mes deducir en los pagos la pensión del tres por ciento que queda establecía, y demostrar en el estado que debe rendir, el gasto efectivo causado de las tres listas; y por fin de año manifestar en el corte general, el monto resultado en todo ‚ con el nombre de ontribución de Estado.
