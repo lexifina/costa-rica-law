@@ -1,2 +1,0 @@
-Artículo 18.—Es obligación de la oficina que se indica en el artículo anterior verificar las existencias de los bienes inventariados a cargo de las distintas dependencias de la Administración Central y exigir el cumplimiento de las normas establecidas en este decreto o instrucciones que al efecto emanen de la Proveeduría Nacional.
-La verificación de existencias se hará mediante prueba selectiva periódica excepto en casos especiales qué ameriten una verificación total.

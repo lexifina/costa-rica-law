@@ -1,1 +1,0 @@
-Artículo 14.—Las proveedurías de los órganos del Poder Central deberán remitir, a la Proveeduría Nacional, informes periódicos de los inventarios. Dichos informes deberán remitirse a más tardar el 15 de enero y el 15 de julio de cada año.

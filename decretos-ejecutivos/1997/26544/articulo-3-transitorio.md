@@ -1,1 +1,0 @@
-TRANSITORIO III. El Ministerio de Hacienda dotará de los recursos humanos y financieros necesarios e indispensables a la Proveeduría Nacional con el objeto de que la misma asuma adecuadamente las funciones señaladas en el presente Decreto, para lo cual el Ministerio de Hacienda tomará las previsiones presupuestarias pertinentes.

@@ -1,1 +1,0 @@
-Artículo 19.—Para optimizar una efectiva y adecuada identificación y control de los bienes de la Administración Central, la Proveeduría Nacional establecerá los parámetros esenciales que deberán llevar los mismos de acuerdo con su naturaleza y características, para garantizar el máximo control.

@@ -1,2 +1,0 @@
-Artículo 16.— Para calcular el valor de los bienes muebles y semovientes con el único fin de incluirlo en los inventarios, se requiere , contar con un técnico idóneo en la materia o en su defecto contratar los servicios profesionales para dicho fin.
-En cuanto a los bienes inmuebles cuyo valor se desconozca o resulte inestimable y los bienes donados, se requerirá la intervención de los peritos evaluadores de la Dirección General de Tributación Directa para su valuación.

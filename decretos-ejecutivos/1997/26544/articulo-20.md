@@ -1,1 +1,0 @@
-Artículo 20.—La Proveeduría Nacional deberá establecer los procedimientos correspondientes para casos de Paitantes, Daño o Ingreso y Egreso de Bienes. En todo caso, los servidores o contratista a cuyo cargo estén los bienes deberán dar aviso inmediato a la Proveeduría Nacional de cualquier anomalía o acontecimiento que afecte los bienes a su cargo.
