@@ -1,4 +1,0 @@
-DE LA SECRETARIA EJECUTIVA DE PLANIFICACION SECTORIAL
-AGROPECUARIA (PLANIFICACION AGROPECUARIA)
-Artículo 6.
-La Secretaria Ejecutiva de Planificación Sectorial Agropecuaria (Planificación Agropecuaria) deberá contribuir a la orientación, ordenamiento, seguimiento, evaluación y conceptualización del desarrollo agropecuario del país, mediante la formulación de planes y políticas, el suministro de información para la toma de decisiones de los actores públicos y privados y la coherencia de las funciones de investigación, transferencia de tecnología, protección agropecuaria, comercialización y procesamiento de los productos. Coadyuvar a la generación de procesos dinámicos mediante la práctica de la planificación estratégica participativa, provocando un aumento de la calidad en la prestación de servicios.
