@@ -14,3 +14,4 @@ Reglamento Sobre Granjas Avícolas
 | --- | --- | --- |
 | 1 | 1994-01-27 | la propia norma |
 | 2 | 2002-04-02 | Decreto Ejecutivo 30293 (2002-04-02) |
+| 3 | 2002-04-02 | Ley 8 |
