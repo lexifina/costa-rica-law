@@ -1,1 +1,2 @@
-Artículo 46.—El Jefe de Tesorería, preserva y custodia las llaves y las combinaciones de las cajas de seguridad de CONAPE. Conjuntamente con la Jefatura del Departamento Financiero determina la necesidad de efectuar cambios a esas combinaciones. En ausencia del Jefe de la Sección de Tesorería, las cajas de seguridad serán abiertas por la Jefatura del Departamento Financiero, y en ausencia de ambos, corresponderá al Secretario Ejecutivo.
+Artículo 46.—El Jefe de Tesorería y el Asistente de Tesorería custodian y administran el Fondo de Caja Chica y el Fondo de Trabajo Diario de manera que se mantengan en forma separada.
+(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 44 al 46 actual).

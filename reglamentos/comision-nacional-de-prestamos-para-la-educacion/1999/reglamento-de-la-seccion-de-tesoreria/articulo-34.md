@@ -1,3 +1,2 @@
-CAPITULO IV
-De la custodia de valores
-Artículo 34.—La Tesorería custodia en las cajas fuertes y archivos de seguridad, los documentos de valor tales como contratos de préstamos, garantías prendarias, hipotecarias, certificados de inversión, libros de contabilidad de CONAPE, cheques emitidos, formularios de cheques no girados.
+Artículo 34.—El Asistente de Tesorería registra los cheques que emita la Tesorería en orden numérico y cronológico, según cada cuenta bancaria.
+(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 32 al 34 actual).

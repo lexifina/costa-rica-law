@@ -1,1 +1,2 @@
-Artículo 27.—El Asistente de Tesorería se cerciora de que los cheques u órdenes de pago por medio de transferencias bancarias sean debidamente firmados.
+Artículo 27.—La Jefatura de la Tesorería comprueba que las órdenes de pago incluyan el respectivo contenido presupuestario y estén firmadas por el Jefe de la Sección de Programación y Evaluación o por el funcionario designado por la Jefatura del Departamento de Planificación.
+(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 25 al 27 actual).

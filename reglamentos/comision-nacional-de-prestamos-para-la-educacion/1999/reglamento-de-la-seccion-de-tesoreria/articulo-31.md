@@ -1,1 +1,3 @@
-Artículo 31.—El Cajero entrega a los funcionarios de CONAPE, los cheques para pagos fuera de la Institución, mediante el uso del formulario de “Retiro de cheques” debidamente firmado.
+Artículo 31.—El Jefe de Tesorería verifica los requisitos para que el Cajero entregue los cheques a los proveedores respectivos, para lo cual deben mediar órdenes de compra, solicitudes de emisión de cheques, facturas proformas u originales y que contenga las firmas autorizadas, según lo establece el Reglamento de Contratación Administrativa de CONAPE.
+La entrega del cheque se realiza contra la presentación del respectivo original de la orden de compra y la respectiva, copia de la factura por parte del proveedor, un recibo de dinero debidamente sellado, firmado por quien lo recibe y la cédula de identidad del proveedor o de su representante.
+(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 29 al 31 actual).

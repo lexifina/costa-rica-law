@@ -1,3 +1,4 @@
-CAPITULO III
-Del control y emisión de cheques
-Artículo 24.—El Asistente de Tesorería emite los cheques o las transferencias bancarias con estricto apego a las indicaciones de las órdenes de pago emitidas por las Secciones Control y Ejecución de Crédito, Administrativa y Recursos Humanos.
+CAPÍTULO III
+De la apertura de cuentas bancarias, del control y emisión de cheques.
+Artículo 24.—La apertura de cuentas bancarias, solo podrá ser autorizada por el Consejo Directivo de CONAPE, de acuerdo con las leyes y reglamentos vigentes para las instituciones del sector público.
+(Así adicionado mediante sesión N° 43 del 18 de octubre de 2001)

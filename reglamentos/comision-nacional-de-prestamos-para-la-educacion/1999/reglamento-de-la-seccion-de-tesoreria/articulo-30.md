@@ -1,1 +1,5 @@
-Artículo 30.—Para efectos de Inversiones Transitorias, el Cajero entrega los cheques emitidos a nombre del Puesto de Bolsa, contra los documentos fehacientes cuando el funcionario del Puesto de Bolsa se identifique correctamente como tal.
+Artículo 30.—El Cajero verifica que los datos, la cédula de identidad, su vigencia y otros datos personales coincidan con los del cheque antes de entregarlo a la respectiva persona. Cuando el cheque es retirado por terceros, deberá solicitar:
+a) Una autorización por escrito en la que éste indique la fecha, el nombre y número de cédula del prestatario y la persona autorizada a retirar el cheque. Requiere las cédulas de identidad del prestatario y de la persona autorizada.
+b) En caso de que el prestatario requiera de apoderado legal, una copia del documento legal, debidamente inscrito en el registro de personas.
+c) Los cheques de prestatarios menores de 18 años, serán retirados por el tutor legal. En este caso, el Cajero solicitará una copia de la constancia de nacimiento con el visto bueno de la Seccionar Gestión de Crédito, en la que se indica el nombre y número de cédula de la persona autorizada para retirar el cheque.
+(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 28 al 30 actual).

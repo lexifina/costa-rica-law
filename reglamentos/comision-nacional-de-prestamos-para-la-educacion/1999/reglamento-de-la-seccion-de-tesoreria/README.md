@@ -14,3 +14,4 @@ Reglamento de la Sección de Tesorería.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-12-07 | la propia norma |
+| 2 | 2001-10-18 | Reglamento 43 (2001-10-18) |

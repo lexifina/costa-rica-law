@@ -1,3 +1,2 @@
-CAPITULO VI
-De los periodos para la ingesta de alimentos y suplencias del cajero
-Artículo 57.—El Cajero será sustituido por el asistente de tesorería durante sus periodos para la ingesta de alimentos, vacaciones, incapacidades y licencias, a quien se le asignará un fondo de trabajo que formará parte del Fondo Fijo de Trabajo, y su monto será fijado mediante resolución de la Secretaría Ejecutiva.
+Artículo 57.—El Asistente de la Tesorería imprime la nómina de cheques emitidos para el pago de dietas y salarios, por medio del Sistema de Recursos Humanos de CONAPE y la adjunta a éstos para el respaldo de las firmas giradoras.
+(Así corrida su numeración mediante sesión N° 43 del 18 de octubre del 2001, que lo traspaso del anterior artículo 55 al 57 actual).

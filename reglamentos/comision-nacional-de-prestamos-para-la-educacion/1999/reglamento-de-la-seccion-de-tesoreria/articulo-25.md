@@ -1,1 +1,2 @@
-Artículo 25.—La Jefatura de la Tesorería comprueba que las órdenes de pago incluyan el respectivo contenido presupuestario y estén firmadas por el Jefe de la Sección de Programación y Evaluación o por el funcionario designado por la Jefatura del Departamento de Planificación.
+Artículo 25.—El cierre de cuentas bancarias de la institución deberá ser autorizado por el Consejo Directivo de la institución, salvo situación de urgencia, en la cual el Secretario Ejecutivo podrá ordenar el cierre de cuentas corrientes e informar y justificar ante el Consejo Directivo, en la sesión inmediata posterior a la clausura de la actuación referida.
+(Así adicionado mediante sesión N° 43 del 18 de octubre del 2001)
