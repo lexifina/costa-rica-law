@@ -1,0 +1,1 @@
+Art. 14. En los asuntos de Corte Plena llevará la voz en estrados: no permitirá que se interrumpa à los Magistrados que hablen en el conocimiento de algun asunto, ni à los Abogados y partes que aleguen, y cuando algun Magistrado ò Específico dude algun hecho, harà que se le entere de èl.

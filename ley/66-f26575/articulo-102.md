@@ -1,0 +1,1 @@
+Art. 102. La sentencia deberà proferirse dentro de ocho dias, á mas tardar, desde aquel en que haya devuelto la causa el ultimo Magistrado; pero si alguna de las partes pidiese prórroga de dicho término para poder alegar en estrados, se le concederán hasta doce días à cada uno.

@@ -1,0 +1,1 @@
+Art. 13. Con este último objeto (previa la correccion que deberá hacerse por la primera vez) de acuerdo con los otros Magistrados, podrá imponer á dichos Subalternos multas, desde uno hasta veinte y cinco pesos; pero no se mandarà ejecutar, hasta que se revise, corrija ó apruebe en Corte Plena y en dia diferente.

@@ -1,0 +1,1 @@
+Art. 16. Le corresponde tambien, bajo su responsabilidad, cuidar de que en ellas observen los Magistrados la circunspeccion y compustura debida, no consintiendo sàtiras, sarcasmos, ni aun altercados entre ellos con voces altas é inmoderadas; pues las discusiones deberán hacerse con mansedumbre, buen tono, y palabras urbanas.

@@ -1,0 +1,1 @@
+Art. 120. Si se encontrare que la pena impuesta por el Juez de primera Instancia es menor que la que debe aplicarse al delincuente, se aumentarà según corresponda; pero el reo podrà suplicar sin causar instancia cuando se le notifique esta sentencia, y se segurà la segunda por los mismos tramites que debieran observarse si hubiera venido en apelacion.

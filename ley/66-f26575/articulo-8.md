@@ -1,0 +1,1 @@
+Art. 8. Señalarà dia para el juramento que deben prestar los Magistrados, Suplentes Especificos, Jueces de primera Instancia, Subalternos de la Corte, y exámen de estos con inclusión del de los Abogados.

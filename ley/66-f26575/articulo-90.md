@@ -1,0 +1,1 @@
+Art. 90. Cuando en la Sesion no sea necesario el Fiscal, podrà retirarse á su despacho, y lo mismo harán los otros Magistrados cuando no hubiere asuntos para continuar en ella, permaneciendo en el Edificio, hasta las doce de la mañana, en la substanciacion de los que tengan repartidos,

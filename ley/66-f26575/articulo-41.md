@@ -1,0 +1,1 @@
+Art. 41. Tendrà á demas todos los derechos que le pertenezcan conforme al arancel en todos los asuntos Civiles y Criminales, y de infraccion de ley, ó por abuso de los Jueces inferiores en el ejercicio de sus funciones, ó en cualquiera otro asunto que haya en la Corte; pero solamente podrá llevar dichos derechos cuando la Corte los mande tirar.

@@ -1,0 +1,1 @@
+Art. 129. Por estas causas de 3ª clase serán los Jueces depuestos de sus empleos, si incurren en las dos primeras; y si en la tercera depuestos ó suspensos por tiempo limitado, segun la gravedad de la culpa que contra ellos resulte, y lo mismo respectivamente à los Asesores.

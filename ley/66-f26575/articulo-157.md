@@ -1,0 +1,1 @@
+Art. 157. Si entre presos pertenecientes à la Corte ocurriese fuga, ò algun otro desorden que exíja tomar medidas del momento, y no se encuentre al Magistrado que conoce de las causas de ellos, se acudirà al que haya hecho la última visita de cárceles, y en defecto de éste á cualquiera de los tres Magistrados para que providencie la conveniente.

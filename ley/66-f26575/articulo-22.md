@@ -1,0 +1,1 @@
+Art. 22. En las causas criminales, ó de Hacienda en que el Fiscal haga las veces del actor ò coadyuve al derecho de este, hablará en estrados, antes que el defensor del reo, ò de la persona demandada.

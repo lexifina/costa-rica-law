@@ -1,0 +1,1 @@
+Art. 94. El término probatorio no podrá pasar de cuarenta dias, cuando las pruebas deban hacerse dentro del Estado. Cuando se hagan fuera de él, y dentro de la República, el maximun del término probatorio serà el de cien dias. Si hubiese que ocurrir fuera la Repùblica por probanzas ò justificaciones, señalarà la Corte el que estime competente.
