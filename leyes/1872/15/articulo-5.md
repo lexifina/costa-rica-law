@@ -1,0 +1,1 @@
+Art 5° Los Fiscales llevarán cuenta de los derechos que recauden y enteren, la cual presentarán cada año a la Contaduría Mayor para la visacion del caso, debiendo servir en ella de cargo el valor de los conocimientos que se les dirijan para el cobro, y data las sumas enteradas, honorario que se les asigna y cantidades que deben eliminarse por motivo justificado.

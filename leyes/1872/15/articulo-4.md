@@ -1,0 +1,1 @@
+Art 4° El trabajo de los Fiscales en el cobro de los derechos de que se viene hablando, será remunerado con el honorario de un doce por ciento, que deducirán aquellos en su favor, sobre las cantidades que recolecten y enteren en la Secretaria de Hacienda.
