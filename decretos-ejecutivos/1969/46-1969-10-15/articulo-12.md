@@ -1,0 +1,2 @@
+Artículo 12 .-Los miembros de la Comisión tienen derecho a intervenir en el análisis y discusión de los asuntos en trámite, están en la obligación de pronunciarse sobre éstos a través de la emisión de su voto o en su caso la expresión de las razones por las cuales se abstiene de votar.
+Los miembros de la Comisión se abstendrán de intervenir en la discusión y resolución de proyectos en que tengan interés personal o nexos de familia hasta tercer grado por consanguinidad o afinidad inclusive, con las personas promotoras o ejecutoras del proyecto.

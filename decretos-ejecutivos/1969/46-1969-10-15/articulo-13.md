@@ -1,0 +1,1 @@
+Artículo 13.-La Comisión recibirá asesoramiento del personal técnico del Ministerio de Industria y Comercio para el análisis de la evaluación de los productos, y tendrán servicio de coordinación y secretariado.

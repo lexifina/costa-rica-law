@@ -1,0 +1,1 @@
+Artículo 4°-El quórum de las sesiones se formará con cuatro miembros y los acuerdos se toman por mayoría de los presentes. Cuando exista empate en una votación de un asunto, la resolución definitiva se dejará para la sesión próxima inmediata; si en esta sesión persiste el empate, el Presidente tendrá doble voto.

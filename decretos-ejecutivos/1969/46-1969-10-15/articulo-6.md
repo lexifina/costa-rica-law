@@ -1,0 +1,1 @@
+Artículo 6°-El nombramiento de los delegados así como el de sustitución definitiva por el ente que representan, deberá ser comunicado al Ministerio de Industria y Comercio por escrito, a efecto de que se proceda a confeccionar el respectivo Acuerdo Ejecutivo de nombramiento.
