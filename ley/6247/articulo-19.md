@@ -1,0 +1,1 @@
+Artículo 19.- El Ministerio de Agricultura y Ganadería, por medio de la Dirección de Sanidad Animal, dictará y aplicará las normas sanitarias generales y operativas según las regulaciones vigentes, en todo cuanto concierna al procesamiento de carnes de exportación.

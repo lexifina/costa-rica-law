@@ -1,0 +1,1 @@
+Artículo 12.- El Consejo Nacional de Producción previamente a la exportación exigirá de parte del exportador el cumplimiento de su cuota en kilogramos de carne de ganado para consumo interno, proporcional a lo que se pretende exportar, bien sea en canal o como lo solicite el Consejo así lo requiera.
