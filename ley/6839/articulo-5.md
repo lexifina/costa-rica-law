@@ -1,0 +1,3 @@
+TITULO II
+Autorízase la donación de la propiedad donde está ubicado el Hotel Promotora del Sur, en Pérez Zeledón, distrito tercero, cantón 19, San José.
+Artículo 5º.- Se autoriza al Gobierno de Costa Rica para que adquiera, del Banco Crédito Agrícola de Cartago, la finca inscrita en el Registro de la Propiedad, Partido de San José, tomo 1651, folio 247, número 154.613, asiento 11, que es terreno para construir, actualmente con un edificio destinado al Hotel del Sur, hasta por la suma que represente la liquidaciónde las deudas que dieron origen al remate hasta el día del traspaso. Asimismo se autoriza la compra del equipo y mobiliario actualmente en uso de dicho inmueble.
