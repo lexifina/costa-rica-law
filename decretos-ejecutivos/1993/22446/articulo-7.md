@@ -1,0 +1,6 @@
+Artículo 7º.- En igualdad de condiciones, títulos, experiencia
+protesional y respollsabilidad y en observación al artículo 51 de la
+Constitución Política de Costa Rica. los Geólogos nacionales que estén
+laborando en una empresa nacional o extranjera, de engarán sueldos
+iguales a los Geólogos extranjeros residentes en el país, que presten
+servicios a la misma empresa.

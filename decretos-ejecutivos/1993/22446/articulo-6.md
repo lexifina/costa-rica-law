@@ -1,0 +1,4 @@
+Artículo 6º.- En ningún caso el Geólogo podrá cobrar una tarifa
+inferior a las aquí establecidas. E1 Geólogo que incurra en cobros
+inferiores a la tarifa mínima, será sancionado según el artículo 46 de la
+ley Orgánica del Colegio de Geólogos de Costa Rica.
