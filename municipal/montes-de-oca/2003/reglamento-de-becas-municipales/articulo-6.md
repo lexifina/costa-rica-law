@@ -1,0 +1,1 @@
+Artículo 6º—Los Concejos Distritales serán los responsables de recomendar: i) el monto que se entregará por beneficiario, ii) el calendario de desembolso a lo largo del curso lectivo, iii) la cantidad de becas a distribuir por distrito. Asimismo, buscará nuevos beneficiarios a quienes otorgarles las becas no retiradas.
