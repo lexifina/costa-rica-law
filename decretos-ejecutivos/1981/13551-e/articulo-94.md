@@ -1,0 +1,1 @@
+Artículo 94.- Corresponde al Consejo Superior de Educación el análisis y resolución de las situaciones no contempladas en este reglamento que a juicio del Ministro de Educación Pública exijan interpretaciones auténtica, impliquen aspectos sustanciales del mismo o se sitúen en el marco de las políticas educativas en materia de evaluación y normas de promoción.

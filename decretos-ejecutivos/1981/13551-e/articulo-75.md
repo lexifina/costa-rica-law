@@ -1,0 +1,1 @@
+Artículo 75.- La suspensión por el resto del curso lectivo podrá ser apelada, en última instancia, ante el Ministerio de Educación Pública dentro de los ocho días siguientes a la notificación, que se harpa al apelante, por correo certificado o personalmente, de la resolución del jefe inmediato del director zonal.

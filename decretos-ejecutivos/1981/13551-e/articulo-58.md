@@ -1,0 +1,1 @@
+Artículo 58.- En la educación diversificada el alumno reprobado por segunda vez deberá pasar otra modalidad o especialidad en casos muy calificados, podrá el director de la institución conceder una última oportunidad.

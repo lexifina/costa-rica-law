@@ -1,0 +1,1 @@
+Artículo 82.- Será responsabilidad de los educadores, padres de familia encargados o apoderados preocuparse permanentemente porque los alumnos no falten a lecciones i a las actividades o celebraciones escolares.

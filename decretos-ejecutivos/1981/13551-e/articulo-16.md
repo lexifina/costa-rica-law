@@ -1,0 +1,1 @@
+Artículo 16.- Para la resolución de los casos los comités de evaluación podrán requerir el asesoramiento de los funcionarios del nivel regional o del nivel central del Ministerio u otros organismos, personas o dependencias que considera convenientes para el mejor cumplimiento de su función.

@@ -1,0 +1,1 @@
+Artículo 60.- Cuando por razones plenamente justificadas las pruebas de aplazados no pudieren realizarse en las fechas prescritas, el Ministerio de Educación Pública dispondrá las modificaciones que consideren necesarias, sobre las cuales informará oportunamente a los interesados, por los medios que juzgue convenientes.

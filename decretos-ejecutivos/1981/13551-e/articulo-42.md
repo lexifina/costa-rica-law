@@ -1,0 +1,1 @@
+Artículo 42.- Para calificar el trabajo en clase, en el hogar (tareas) en el campo y en el laboratorio, se dividirá el porcentaje correspondiente entre cada uno de los aspectos señalados e el artículo 41, con una valor igual para cada uno de ellos.

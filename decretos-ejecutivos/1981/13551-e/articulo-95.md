@@ -1,0 +1,1 @@
+Artículo 95.- El presente reglamento rige a partir del primero de marzo de mil novecientos ochenta y dos y deroga los Decreto Ejecutivos número 6955-E y 5772-E del 4 de abril de 1977 y 15 de marzo de 1976, respectivamente, y su correspondiente reformas, así como toda otra disposición que se le oponga o contraríe en sus términos.

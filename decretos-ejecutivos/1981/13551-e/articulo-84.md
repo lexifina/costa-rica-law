@@ -1,0 +1,1 @@
+Artículo 84.- Tanto la solicitud de revisión como la apelación deberá ser presentada por el interesado en forma escrita y razonada dentro de los tres días hábiles siguientes l entrega de resultado de la prueba o del informe al hogar respectivo.

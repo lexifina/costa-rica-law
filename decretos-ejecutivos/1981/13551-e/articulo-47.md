@@ -1,0 +1,2 @@
+Artículo 47.- El alumno aplazado en I y II ciclo, que no apruebe sus asignaturas en las convocatorias ordinarias respectivas adquirirá la calidad de “reprobado” y deberá repetir el año escolar en todas las asignaturas.
+El alumno aplazado en el III ciclo y en la educación diversificada, que no apruebe la asignatura una vez realizada las convocatorias ordinarias respectiva, adquirirá la condición de “reprobado” en la asignatura correspondiente.

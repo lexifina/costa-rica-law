@@ -1,0 +1,1 @@
+Artículo 57.- El alumno reprobado de III ciclo y educación diversificada deberá cursar y aprobar únicamente las asignaturas no aprobadas, no obstante deberá asistir como oyente a las asignaturas ya aprobadas o a grupos de trabajo de diferente índole, previa organización y autorización del director de la institución.

@@ -1,0 +1,1 @@
+Artículo 49.- El requisito para ingresar a la educación diversificada será la aprobación de todas las asignaturas del plan de estudios del noveno año de la educación general básica, salvo en la situación prescrita en el artículo 61 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 81.- Las ausencias y llegadas tardías deben ser justificadas por escrito ante el funcionario correspondiente dentro de los tres días hábiles siguientes al hecho que las motivó. Dicha justificación se presentará firmada por uno de los padres del alumno o por el encargado o apoderado respectivo.

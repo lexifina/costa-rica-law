@@ -1,0 +1,1 @@
+Artículo 93.- Las actividades de asesoramiento en evaluación , que involucren personal de las instituciones educativas oficiales, deberán ser debidamente coordinadas con el Ministerio de Educación Pública.

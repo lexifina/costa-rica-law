@@ -1,0 +1,1 @@
+Artículo 70.- En el III ciclo de educación general básica y en la educación diversificada la calificación estará a cargo de un comité de comportamiento de la sección, integrado por el profesor guía, el orientador, el asistente administrativo y el presidente de la sección.

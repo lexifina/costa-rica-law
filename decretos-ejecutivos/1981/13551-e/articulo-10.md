@@ -1,0 +1,2 @@
+Artículo 10.- Antes de terminar el curso lectivo el director de cada institución designará a los educadores que integrarán el Comité de Evaluación, el que se instalará en el primer mes de labores de cada año.
+En aquellas instituciones donde laboren sólo tres educadores, los tres formarán el Comité de Evaluación. En el casos de las escuelas con menos de tres docente, el director zonal correspondiente nombrará un Comité de Evaluación por cada núcleo en que haya dividido la microrregión.

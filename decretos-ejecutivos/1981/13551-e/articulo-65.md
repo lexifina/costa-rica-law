@@ -1,0 +1,1 @@
+Artículo 65.- Para sus resoluciones, el Consejo de Promoción, además del rendimiento académico, podrá tomar en cuenta aspectos relativos a salud, familia, condición emocional, económica del alumno y participación en actividades cívicas, culturales, científicas, artísticas y deportivas.

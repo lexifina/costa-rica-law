@@ -1,0 +1,3 @@
+CAPITULO XI
+De la calificación del comportamiento y de régimen disciplinario estudiantil.
+Artículo 68.- El comportamiento individual, social y moral del educando se evaluará globalmente con fundamento en los aspectos como los siguientes: honradez, honestidad, veracidad y entereza; respeto y cortesía; colaboración; cumplimiento de deberes y obligaciones; hábitos de orden y aseo; presentación personal; asistencia y participación en actos cívicos y otras actividades institucionales y de la comunidad; y participación en actos cívicos y otras actividades institucionales y de la comunidad: respecto a la integridad moral y física de las personas y respeto a los bienes ajenos.

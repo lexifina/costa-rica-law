@@ -1,0 +1,2 @@
+Artículo 55.- En la educación diversificada el alumno que tengo la condición de “aplazado” tendrá derecho a dos pruebas ordinarias con el objeto de definir su promoción en la primera y tercera semana del mes de febrero.
+Los alumnos aplazados, del undécimo año en las ramas académicas y artísticas y del duodécimo año en la rama técnica, tendrán derecho a presentar pruebas ordinarias en la tercera semana del mes de diciembre y en la primera semana del mes de febrero.

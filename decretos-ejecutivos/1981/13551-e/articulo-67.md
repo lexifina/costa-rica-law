@@ -1,0 +1,1 @@
+Artículo 67.- El director de la institución, de oficio o a solicitud del profesor, del alumno o de su padre o encargado, podrá modificar los acuerdos del Consejo de Promoción cuando compruebe que están basados e información errónea o incompleta.
