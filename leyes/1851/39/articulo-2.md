@@ -1,0 +1,1 @@
+Art. 2. El Jefe político de Esparza será nombrado por el Gobernador de Puntarenas en las épocas señaladas por la ley, correspondiéndole todas las atribuciones que la misma confiere á los de los demás Cantones.

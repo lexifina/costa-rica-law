@@ -1,0 +1,1 @@
+Art. 3. La Municipalidad que hn de residir en Esparza se entenderá, por medio del Jefe político su Presidente, con el Gobernador de Puntarenas, y de este recibirá los órdenes y comunicaciones que correspondan.
