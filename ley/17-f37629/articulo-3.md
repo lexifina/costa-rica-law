@@ -1,0 +1,2 @@
+Art. 3°-El presente decreto se elevará al conocimiento de la Representación Nacional en el siguiente período legislativo ordinario.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los diez días del mes de diciembre de mil ochocientos ochenta y tres. -A. DE JESÚS SOTO, Presidente. -LEOVIGILDO CASTRO S., Secretario.-Palacio Presidencial.-San José, diez de diciembre de mil ochocientos ochenta y tres.-Ejecútese.-P. FERNÁNDEZ.-El Secretario de Estado en el Despacho de Gobernación.-VÍCTOR GUARDIA.
