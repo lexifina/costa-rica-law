@@ -1,0 +1,1 @@
+Art. 21. El presente decreto se elevará al alto conocimiento de la Asamblea Constituyente para su aprobación. (1). –Dado en la Ciudad de San José á los veinticinco días del mes de Noviembre de mil ochocientos cuarenta y tres. –José María Alfaro. –Al Ministro general del Despacho Señor Joaquín Bernardo Calvo.

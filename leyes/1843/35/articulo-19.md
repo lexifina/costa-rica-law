@@ -1,0 +1,1 @@
+Art. 19. Los Directores podrán nombrar cualquier número de auxiliares entre los socios; pero sin voto resolutivo en los acuerdos, mas al practicar la comisión la distribución de empréstitos, los auxiliares serán precisamente cuatro con voto.

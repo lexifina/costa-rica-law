@@ -1,0 +1,1 @@
+Art. 2. Componen el Cuerpo de propietarios y tendrá voz activa y pasiva en la junta general todos los hacendados de café cuya finca ascienda, á ocho mil matas frutales; y los traficantes en el mismo fruto cuyo capital en jiro sea el de mil pesos inclusive arriba.
