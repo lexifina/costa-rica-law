@@ -1,3 +1,7 @@
-Artículo 178.- Emitida la Ley General de Presupuesto Ordinario de la República que ha de regir durante el año que precede al de las elecciones, la Contraloría General de la República procederá a fijar, por resolución debidamente fundada, el monto total de la contribución que debe hacer el Estado a los gastos de los partidos políticos, de conformidad con el inciso a) del artículo 96 de la Constitución Política.
-Tan pronto se produzca la declaratoria de elección de Diputados por parte del Tribunal Supremo de Elecciones, la Contraloría General de la República dispondrá, por resolución debidamente fundada, la distribución de la suma que aporte el Estado entre los distintos partidos que obtuvieron un diez por ciento de los sufragios válidamente emitidos para la elección de Presidente y Vicepresidentes y Diputados, y en estricta proporción al número de votos obtenidos por cada uno de ellos.
+Artículo 178.- Para los efectos de ser considerados como gastos justificados dentro de la contribución del Estado al pago de la Deuda Política , no podrán presentarse cuentas que incluyan:
+a) El pago de más de dos páginas por edición o su equivalente en número e pulgadas en cada uno de los diarios nacionales;
+b) El pago de más de ocho horas diarias en todas las radioemisoras; y
+c) El pago de más de tres horas diarias en la televisión.
+Dentro de esos límites, los partidos políticos podrán distribuir su tiempo radial o televisado y su espacio en los órganos de publicidad, de acuerdo con su mejor criterio.
 (Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)
+(Así reformado por el artículo 1° de la ley N° 4794 del 16 de julio de 1971)

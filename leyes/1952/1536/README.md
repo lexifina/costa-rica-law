@@ -1,6 +1,6 @@
 # Código Electoral
 
-Ley N° 1536 del 1952-12-10. SINALEVI, ficha 64889: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64889&param2=75577&param3=1>.
+Ley N° 1536 del 1952-12-10. SINALEVI, ficha 64889: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=64889&param2=75581&param3=1>.
 
 Publicada en La Gaceta N° 10 del 1953-01-14.
 
@@ -22,3 +22,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 12 de 52 | 1965-11-07 | Ley 3556 | 1965-10-25 |
 | 13 de 52 | 1969-06-08 | Ley 4341 | 1969-06-03 |
 | 14 de 52 | 1969-07-16 | Ley 4352 | 1969-07-11 |
+| 15 de 52 | 1971-07-27 | Ley 4794 | 1971-07-16 |
