@@ -14,3 +14,4 @@ Reforma al Reglamento de Mercado Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-03 | la propia norma |
+| 2 | 2000-08-23 | Reglamento municipal 132 (2000-08-23) |
