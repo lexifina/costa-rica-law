@@ -1,0 +1,1 @@
+Artículo 9°—La Junta sólo autorizará la apertura de cartas de crédito comerciales y los pagos por anticipado, en aquellos casos en que a su exclusivo juicio sea absolutamente necesario y únicamente para facilitar la importación de artículos comprendidos en la primera categoría.
