@@ -1,0 +1,5 @@
+DECRETO LIX
+Reforma el Capítulo 9, sección 3° del Reglamento de hacienda, modificando las disposiciones que requieren la aprehensión real para comprobar los delitos del contrabando de licores.
+Tomas Guardia, General de División y Presidente Provisorio de la República de Costa Rica.
+Considerando: Que los contrabandos de licores en el país, se han multiplicado por la impunidad con que los clandestinarios cuentan, confiando en las disposiciones legales, que requieran condiciones difíciles para la comprobación del delito; con la mira de destruir un abuso tan contrario a los intereses fiscales, y hacer más eficaces otras medidas, que en conexión con la presente se han dictado.- para la persecución y descubrimiento de las ventas y destilaciones desautorizados previo dictamen del Consejo de Estado, decreto:
+Art 1° Para el efecto de los artículos 20, 21, 22 y 23 cap. V. sección 3 del Reglamento de Hacienda de 1858, es bastante la declaración de testigos de la manera determinada en el final del art 165 cap, XIX, sección 1° del mismo Reglamento.
