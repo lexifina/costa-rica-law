@@ -1,0 +1,1 @@
+Artículo 178.- Siendo los intereses particulares de los pueblos de diferente naturaleza de los generales del Estado, el Poder Municipal que los representa es independiente de otro alguno en tanto que no toque en ejecución de disposiciones generales: pero queda sujeto a la responsabilidad que en su caso declare el Senado.

@@ -1,0 +1,1 @@
+Artículo 94.- Una ley particular de la Asamblea Constituyente arreglará las elecciones sobre las bases establecidas con la tabla correspondiente, y acordará las medidas conducentes para asegurar la mayor concurrencia, publicidad y orden de estos actos.

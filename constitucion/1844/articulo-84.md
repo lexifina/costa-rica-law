@@ -1,0 +1,1 @@
+Artículo 84.- La Cámara de Representantes calificará las elecciones por sus formas y las calidades de los individuos electos, y resolverá los reclamos que ocurran sobre nulidad de ellas; mas para la primera legislatura ejercerá estos actos la Asamblea Constituyente respecto a la Cámara de Representantes.

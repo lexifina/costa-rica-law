@@ -1,0 +1,1 @@
+Artículo 81.- Las juntas populares procederán a elegir el Representante y suplente que les corresponde, y sufragar en actos distintos por Jefe, por Senadores y Magistrados, debiendo reunirse extraordinariamente cuando sean convocadas para la reposición de algún individuo de los Supremos Poderes.

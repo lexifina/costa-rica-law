@@ -1,0 +1,1 @@
+Artículo 4º.- Los funcionarios públicos no son dueños, sino depositarios de la autoridad, sujetos, y jamás superiores a las leyes legítimamente establecidas para garantizar los derechos individuales, y por su mantenimiento conservar el orden social que no es ni puede ser otra cosa, que la efectiva conservación de aquellos derechos.

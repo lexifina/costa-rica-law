@@ -1,0 +1,1 @@
+Artículo 129.- El día en que el Jefe Supremo del Estado cumpla el periodo de sus funciones, por el mismo hecho, el ejercicio del Poder Ejecutivo recaerá en el Senador que llame la ley sino estuviese nombrado el Jefe que haya de suceder.

@@ -1,0 +1,1 @@
+Artículo 131.- En los casos de muerte, deposición o absoluta imposibilidad del Jefe Supremo del Estado, a juicio de las Cámaras, se reunirán las secciones electorales a sufragar para la reposición, y entonces la Cámara de Representantes deberá reunirse para la calificación y posesión del electo.

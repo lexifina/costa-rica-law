@@ -1,0 +1,1 @@
+Artículo 83.- Concluida la votación para la elección de Jefe, Senadores y magistrados, los Directorios dirigirán también a la Cámara de representantes las listas que contengan los nombres de los sufragantes y los de los candidatos para dichos destinos.

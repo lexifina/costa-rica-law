@@ -1,0 +1,1 @@
+Artículo 90.- En caso de que un mismo ciudadano obtenga dos ó mas elecciones para Representante, preferirá la de su vecindad: no teniéndolo en alguna de las secciones que lo han electo, ó en alguno de los pueblos a que ellas corresponden, se estará al mayor número de votos populares, y en caso de empate decidirá la voluntad del electo.

@@ -1,0 +1,1 @@
+Artículo 60.- Son ciudadanos costarricenses todos los naturales del Estado ó naturalizados en él, que tengan veinte años cumplidos, ó dieciocho si fuesen casado ó profesores de alguna ciencia; y que unos y otros posean además alguna propiedad u oficio honesto, cuyos frutos ó ganancias sean capaces de mantenerlos con proporción a su estado.

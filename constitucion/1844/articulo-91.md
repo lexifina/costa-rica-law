@@ -1,0 +1,1 @@
+Artículo 91.- En los casos que en un mismo individuo concurra mayoría de sufragios para diversos destinos de los Supremos Poderes, se observará para la preferencia la escala siguiente: 1º el de Jefe: 2º el de Senador: 3º el de Representante y 4º el de Magistrado.

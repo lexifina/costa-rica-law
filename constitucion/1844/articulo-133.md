@@ -1,0 +1,1 @@
+Artículo 133.- Para ser Jefe Supremo del Estado se requiere: 1º ser ciudadano en ejercicio de sus derechos: 2º natural del Estado: 3º ser del Estado seglar: 4º tener la edad de treinta años cumplidos: 5º poseer en el Estado un capital raíz que no baje de dos mil pesos, ó una renta anual de trescientos.

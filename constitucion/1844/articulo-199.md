@@ -1,0 +1,1 @@
+Artículo 199.- La persona encargada del Poder Ejecutivo, el Presidente del Senado, y el Presidente de la Corte Suprema de Justicia harán el Juramento que queda prevenido ante las Cámaras reunidas, y los demás empleados y funcionarios ante sus respectivos Cuerpos ó Superiores.

@@ -1,0 +1,1 @@
+Artículo 102.- La Cámara de Representantes se reunirá todos los años en los días primero de Marzo, primero de Julio y primero de Noviembre, haya ó no convocatoria; y permanecerá en diez sesiones cada vez, pudiendo prorrogarse hasta quince. En el presente año las sesiones serán veinte, prorrogables hasta treinta, y la convocatorias señalará los días de reunión.

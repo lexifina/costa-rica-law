@@ -1,0 +1,1 @@
+Artículo 13.- Ningún poder podrá tomar la propiedad particular ni turbar absolutamente al propietario en el libre uso de sus bienes; sino es por una necesidad pública acreditada, y previa indemnización por un precio razonable convenido, ó a tasación de peritos nombrados por las partes.

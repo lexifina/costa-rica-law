@@ -1,0 +1,1 @@
+Artículo 164.- Pueden ser detenidos: 1º el indicado de delito cuyo cuerpo esté probado cuando la fuga se tema con fundamento: 2º el que sea encontrado en el acto de delinquir, y en este caso todos pueden aprehenderle para llevarle al Juez.

@@ -1,0 +1,1 @@
+Artículo 134.-En los recesos de la Cámara de Representantes, podrá ausentarse el Jefe Supremo del Estado sin salir fuera del territorio del mismo con permiso del Senado y por el término hasta de un mes en cada año; más después de haber concluido su encargo, no podrá salir del Estado si no es hasta que haya dado cuenta de su administración conforme se establece en el título XI.

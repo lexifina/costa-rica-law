@@ -1,0 +1,1 @@
+Artículo 163.- En asuntos criminales ninguno podrá ser preso sin que preceda orden por escrito de Juez competente para darla; y esta no podrá expedirse sin previa información sumaria, por la que conste un hecho que según la ley debe castigarse con pena mas que correccional y sin que resulte al menos por semiplena prueba quien es el delincuente.

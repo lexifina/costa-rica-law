@@ -1,0 +1,1 @@
+Artículo 15.- La facultad de decretar empréstitos, es inherente al Poder Legislativo; y no podrá imponerse ninguna contribución directa ó indirecta, sino por el mismo Poder y nunca sin una justa proporción a las facultades de cada individuo, ni haciendo pesar el gravamen sobre determinadas personas.

@@ -1,0 +1,1 @@
+Artículo 30.- Ningún delito, cualquiera que sea su naturaleza, podrá ser castigado con la pena de confiscación total ó parcial de bienes, ni a pretexto de indemnización de gastos y perjuicios, salvo los derechos de tercero.

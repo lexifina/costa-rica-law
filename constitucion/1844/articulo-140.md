@@ -1,0 +1,1 @@
+Artículo 140.- Los ministros darán, con anuencia del Poder Ejecutivo, a la Cámara de Representantes ó a la de Senadores por escrito ó de palabra, los informes que se les pidan en sus respectivos ramos.

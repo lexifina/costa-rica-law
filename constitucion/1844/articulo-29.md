@@ -1,0 +1,1 @@
+Artículo 29.- No se impondrá pena de muerte sino en los casos para los que la ley la establezca, y no podrá establecerse sino para el asesinato u homicidio premeditado ó seguro, y por los delitos que atenten directamente contra el orden público del Estado.

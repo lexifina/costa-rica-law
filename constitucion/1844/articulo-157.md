@@ -1,0 +1,1 @@
+Artículo 157.- Los Alcaldes Constitucionales ejercerán en sus respectivos pueblos el oficio de conciliadores en los asuntos civiles ó sobre injurias que puedan ventilarse en juicio escrito: serán los únicos Jueces en los verbales; y en uno y otro caso deberán acompañarse de un hombre bueno nombrado por cada parte, y oído su dictamen resolver lo que crean justo.

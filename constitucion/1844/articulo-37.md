@@ -1,0 +1,1 @@
+Artículo 37.- Es inviolable el secreto de las cartas, y las que se sustraigan de las oficinas de correos, de sus conductores, ó de cualquiera otro lugar, ó sean abiertas por otro que aquel a quien van dirigidas, no producen efecto legal, ni pueden presentarse en testimonio contra alguno.

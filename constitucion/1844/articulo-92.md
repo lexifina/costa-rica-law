@@ -1,0 +1,1 @@
+Artículo 92.- Los individuos que hayan ocupado algún destino en los Supremos Poderes, no podrán ser obligados a servir otro de elección popular, sino es que haya transcurrido el intervalo de dos años, ó quieran voluntariamente admitir.
