@@ -1,0 +1,1 @@
+Art. 27. –El Presidente no podrá poner el debe sobre las cuentas, boletos o planillas de gastos impendidos en las obras de Caminos sin que aparezca en ellas la firma o el visto bueno del Superintendente o encargado principal del trabajo a que se refieran.

@@ -1,0 +1,1 @@
+Art. 10.-Ningun vocal de los que residen en esta Capital, podrá excusarse a servir el cargo de Presidente; y así cualquiera que sea electo entrar en el acto a ejercer las funciones de tal; sin perjuicio de que, mediando razones justas pueda el elegido hacer dimisión formal de dicho destino por ante la misma Sociedad.

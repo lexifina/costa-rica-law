@@ -1,0 +1,1 @@
+Art. 36.-El Presidente puede librar directamente cualquiera cantidad sobre los Colectores; más estos no podrán cubrir ningún libramiento, sin que lleve la toma de razón correspondiente por parte del Tesorero, a quien se pasaron para este efecto semejantes libranzas u órdenes de pago.

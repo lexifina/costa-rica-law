@@ -1,0 +1,1 @@
+Art. 41.-Habrá un sirviente o mozo de oficio con salario, que desempeñe los deberes de tal, bajo la dirección del Presidente y Secretario; y que se mantenga a la puerta del lugar destinado a las Sesiones todo el tiempo que estas duren.

@@ -1,0 +1,1 @@
+Art. 13.-El Presidente no podrá ausentarse ni dejar de concurrir a una sola sesión, sin dar aviso previo al Vice-Presidente para que vaya a suplir sus veces; pero su falta de asistencia en tales casos, no exime al Presidente de la responsabilidad que participa por igual con todos los demás vocales en los actos que celebren durante su ausencia.

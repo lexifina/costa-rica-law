@@ -1,0 +1,1 @@
+Art. 32.-Dichos boletos no podrán presentarse al Tesorero, para que los pague, sino en los días Miércoles que se destinan a este objeto; ni el Presidente les pondrá el dese mientras no tenga a la vista la lista en que deben estar incluidos.

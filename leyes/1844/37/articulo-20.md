@@ -1,0 +1,1 @@
+Art. 20.-El Secretario obedecer a las instrucciones del Presidente, a quien está subordinado en todo cuanto concierne a su oficio; mas no podrá autorizar ninguna orden, comunicación ni documento oficial que está‚ en manifiesta contradicción con los acuerdos y disposiciones de la Sociedad o con las leyes vigentes.

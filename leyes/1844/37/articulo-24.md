@@ -1,0 +1,1 @@
+Art. 24.-Para suplir las faltas accidentales del Secretario, se nombrar entre los mismos vocales un Pro-Secretario, el cual deber como todos los demás empleados internos de la Sociedad, elegirse entre los miembros que residan en esta Ciudad.
