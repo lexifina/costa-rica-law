@@ -48,9 +48,11 @@ Nota: Las tolerancias para los valores nominales mayores de 3 000 mm, deberán s
 6.1.2 Espesor. Las láminas planas de fibro-cemento deberán fabricarse con espesores nominales desde 3 mm hasta 30 mm; sin embargo, podrán proveerse láminas con espesores mayores de 30 mm, si así se establece de común acuerdo, entre el comprador y el fabricante de las láminas.
 6.1.2.1 Tolerancias
 Las tolerancias para los espesores de hasta 30 mm serán las indicadas en la Tabla 2.
-(*) Tabla 2. Tolerancias para el espesor
-La tolerancia para espesores “hasta 8 mm” debe ser ± 10%.
-(*)(Así reformada la tabla anterior por el artículo 1° del decreto ejecutivo N° 23390 del 3 de junio de 1994, y a su vez corregida mediante Fe de Erratas publicada en La Gaceta N ° 134 del 14 de julio de 1994).
+(*)Tabla 2. Tolerancias para el espesor
+Espesor en milímetros | Tolerancias
+hasta 8 | ± 10%, del espesor nominal
+mayor de 8 hasta 30 | ± 0,9 mm, del espesor nominal
+(*) (Así reformada la tabla anterior por el artículo 1° del decreto ejecutivo N° 26899 del 2 de abril de 1998)
 Nota: Las tolerancias para valores nominales mayores de 30 mm, deberán ser establecidas de común acuerdo entre el comprador y el fabricante de las láminas.
 6.1.3 Tolerancias para la forma.
 6.1.3.1 Rectitud de los bordes. Cuando una lámina de fibro-cemento sea sometida al ensayo descrito en 8.1.4, cualquier desviación de los bordes de la lámina con la línea recta que une las esquinas correspondientes de la misma, no deberá exceder un valor de 3 mm/m para la longitud y el ancho de la lámina.

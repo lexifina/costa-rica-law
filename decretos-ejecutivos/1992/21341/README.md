@@ -15,3 +15,4 @@ Aprueba Norma NCR 193:1992. Láminas planas de fibro-cemento. Especificaciones
 | --- | --- | --- |
 | 1 | 1992-07-07 | la propia norma |
 | 2 | 1994-06-03 | Decreto Ejecutivo 23390 (1994-06-03) |
+| 3 | 1998-04-02 | Decreto Ejecutivo 26899 (1998-04-02) |
