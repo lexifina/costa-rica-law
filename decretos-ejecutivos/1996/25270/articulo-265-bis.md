@@ -1,2 +1,2 @@
-Artículo 265 bis.—Garantía. La autoridad aduanera está facultada para exigir al transportista aduanero o agente aduanero que haya declarado el transito, la rendición de un garantía que cubra la totalidad de la obligación tributaria aduanera, para aquellas mercancías que la Dirección General defina mediante resolución razonada.
+Artículo 265 bis.—(Derogado por el artículo 3° del decreto ejecutivo N° 29128 del 5 de diciembre de 2000)
 (Así adicionado por el artículo 12 del Decreto Ejecutivo N° 28976 de 27 de setiembre del 2000)

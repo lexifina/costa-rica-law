@@ -18,3 +18,4 @@ Reglamento a la Ley General de Aduanas
 | 3 | 1997-08-19 | Decreto Ejecutivo 26285 (1997-08-19) |
 | 4 | 1998-03-30 | Decreto Ejecutivo 26961 (1998-03-30) |
 | 5 | 2000-09-27 | Decreto Ejecutivo 28976 (2000-09-27) |
+| 6 | 2000-12-05 | Decreto Ejecutivo 29128 (2000-12-05) |

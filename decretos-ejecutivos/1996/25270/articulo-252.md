@@ -1,3 +1,2 @@
-Artículo 252.—Participación del depositario.
-El depositario aduanero deberá brindar las facilidades para la realización del examen previo, adoptar las medidas de seguridad que estime pertinentes para la conservación y custodia de las mercancías objeto de esta operación y participar en su realización. Del resultado del examen previo deberá levantarse un acta firmada por quien lo efectuó y por el depositario aduanero. En el caso que se determinen faltantes y sobrantes de mercancías, el depositario deberá efectuar los ajustes en la información transmitida a la aduana.
-(Así reformado por el artículo 10 del Decreto Ejecutivo N° 28976 de 27 de setiembre del 2000)
+Artículo 252.—Participación del depositario. El depositario aduanero deberá brindar las facilidades para la realización del examen previo, adoptar las medidas de seguridad que estime pertinentes para la conservación y custodia de las mercancías objeto de esta operación y participar en su realización. Del resultado del examen previo deberá levantarse un acta firmada por quien lo efectuó y por el depositario aduanero.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 29128 del 5 de diciembre de 2000)
