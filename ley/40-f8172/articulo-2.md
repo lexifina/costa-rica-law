@@ -1,0 +1,1 @@
+Art. 2. De los derechos de alcabala marítima que causen las introducciones de efectos extrangeros que se hagan desde la publicacion de este decreto, se cobrará en dinero la quinta parte, y las cuatro quintas restantes en billetes nacionales.
