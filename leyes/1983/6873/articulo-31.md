@@ -1,3 +1,2 @@
-CAPITULO IX
-Destino de los Bienes
-Trigésimoprimera: Cuando se termina el presente Contrato, se regresará al IICA los bienes dados en usufructo mencionados en la cláusula vigésimocuarta de este Contrato, junto con sus mejoras. Los bienes restantes se distribuirán entre el IICA, el Gobierno y los Miembros Regulares que al momento de la terminación fueren miembros activos, en proporción a sus aportes.
+Trigesimaprimera.- El CATIE establecerá su propia auditoría interna. Para ello, creará una unidad de auditoría servida por profesionales de alto nivel, seleccionados por concurso y nombrados por la Junta Directiva. La aprobación de su reglamento se regirá por lo dispuesto en el inciso k) de la Cláusula decimaquinta. De los informes que presente al Director General, se enviará copia a la Junta Directiva.
+Los auditores externos del IICA, serán los auditores externos del CATIE.

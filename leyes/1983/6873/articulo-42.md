@@ -1,0 +1,1 @@
+Cuadragesimasegunda.- Para la validez oficial de este Contrato, será necesaria la aprobación de la Asamblea Legislativa de Costa Rica, y entrará en vigencia una vez que cuente con la debida aprobación legislativa citada.

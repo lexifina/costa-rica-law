@@ -1,1 +1,3 @@
-Vigésimosétima: Corresponderá a la Auditoría Interna del IICA ejercer la fiscalización administrativa y financiera del CATIE y su auditoría; y los Auditores Externos del IICA serán los Auditores Externos del CATIE.
+CAPÍTULO V
+DEL PATRIMONIO Y DE LOS RECURSOS FINANCIEROS
+Vigesimasétima.- Para llevar a cabo sus fines y de acuerdo con la legislación vigente y la Cláusula Vigesimatercera anterior, el CATIE podrá comprar, vender, hipotecar, pignorar, arrendar o de cualquier otro modo, o por cualquier otro medio, adquirir, poseer y disponer libremente de toda clase de bienes muebles, inmuebles y semovientes, derechos reales personales, incluyendo títulos valores de cualquier índole: podrá recibir toda clase de bienes en garantía, depósitos, fideicomiso, donación, herencia o legado, obtener créditos; y en general estará facultado para celebrar toda clase de actos, contratos y operaciones con cualquier persona, física o jurídica, nacional o internacional.
