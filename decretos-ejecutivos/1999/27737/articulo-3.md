@@ -1,0 +1,1 @@
+Artículo 3°—El quórum para que sesione válidamente la Comisión Ad Hoc será el de mayoría simple de sus integrantes y el quórum para tomar acuerdos será el de mayoría simple de sus integrantes presentes.

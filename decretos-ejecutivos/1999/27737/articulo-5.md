@@ -1,0 +1,1 @@
+Artículo 5°—En lo no previsto, la Comisión Ad Hoc actuará en conformidad con las disposiciones contenidas en el Capítulo Tercero del Título Segundo del Libro Primero de la Ley General de la Administración Pública , en todo aquello que resulten compatibles.
