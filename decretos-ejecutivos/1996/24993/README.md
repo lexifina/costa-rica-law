@@ -1,0 +1,15 @@
+# Decreto Ejecutivo 24993
+
+Declara Interés Cultural Festival Internacional de las Artes FIA
+
+- Tipo: Decreto Ejecutivo
+- Número: 24993
+- Fecha: 1996-02-19
+- Publicación: La Gaceta N° 50 del 1996-03-11
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=39306&param2=41437&param3=1 (ficha 39306)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1996-03-11 | la propia norma |
