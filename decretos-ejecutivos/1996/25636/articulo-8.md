@@ -1,0 +1,1 @@
+Artículo 8°-Las comunidades interesadas en que sus playas sean evaluadas, deberán completar el “Formulario de Candidatura del Programa Bandera Azul Ecológica para playas de excelencia higiénico- sanitaria”, los cuales serán entregados en las oficinas centrales y regionales del MINAE y del Instituto Costarricense de Acueductos y Alcantarillados.

@@ -1,0 +1,1 @@
+Artículo 13.-El MINAE, con base en el decreto ejecutivo N° 25298~MINAE, llevará un Registro de auditores privados que podrán cumplir con las evaluaciones a que se refiere este decreto ejecutivo y que podrán ser utilizados por la “Comisión Bandera Azul Ecológica”.
