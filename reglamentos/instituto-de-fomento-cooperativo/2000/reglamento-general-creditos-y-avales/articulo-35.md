@@ -1,1 +1,4 @@
-Artículo 35.—El INFOCOOP cobrará una comisión desde el 1% hasta el 3% anual por períodos anticipados no mayores de un año, sobre los saldos anua es vigentes, entendiéndose como tales aquellos que se produzcan desde el día en que el aval se otorgue hasta el día en que la cooperativa demuestre a satisfacción del INFOCOOP el pago correspondiente.
+Artículo 35.—Para la definición de prioridades dentro de esta modalidad de financiamiento deberán considerarse aspectos como:
+a) El impacto local, regional, sectorial o nacional de la cooperativa en aspectos económicos, sociales y financieros y especialmente por su aporte a los procesos de integración.
+b) Aquellas cooperativas que por su situación de crisis, puedan tener una incidencia significativa en la estabilidad financiera institucional, en razón del volumen de recursos que adeudan al INFOCOOP.
+(Así adicionado por acuerdo de Junta Directiva de 27 de noviembre de 2001)

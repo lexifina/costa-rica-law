@@ -1,1 +1,3 @@
-Artículo 36.—Se considerará como garantía de avales que otorgue el INFOCOOP, todas aquellas garantías que establece para los créditos directos en los artículos 8 y 9 de este Reglamento.
+Artículo 36.—En caso de que la cooperativa tenga capital social pagado negativo, y en consecuencia se encuentre en causal de disolución, el INFOCOOP admitirá para estudio su solicitud de crédito o readecuación. El financiamiento se brindará a aquellas cooperativas en las que el estudio financiero demuestre que los flujos de efectivo esperados sean tales que el valor actual neto de éstos sea positivo.
+Cuando el capital social de la cooperativa solicitante de un nuevo crédito, sea negativo, los recursos solicitados podrán ser otorgados bajo la figura de "Capitalización de asociados", de manera que con la nueva inyección de recursos se recupere el capital social perdido.
+(Así adicionado por acuerdo de Junta Directiva de 27 de noviembre de 2001)

@@ -1,0 +1,3 @@
+Artículo 44.—El presente Reglamento podrá ser interpretado o modificado por la Junta Directiva del INFOCOOP, con la aprobación de por lo menos cinco de sus miembros. No obstante lo anterior, no procederá la modificación para resolver un asunto en particular.
+Las modificaciones al Reglamento General del Crédito y Avales, fueron aprobadas por la Junta Directiva del Instituto Nacional de Fomento Cooperativo en las sesiones Nos. 2832, artículo 1°, inciso 2.2 del 8 de abril de 1999, en sesión 2865, artículo 1°, inciso 3.1 del 7 de agosto de 1999 y 2.992, artículo primero, inciso 3.1 del 2 de octubre del 2000.
+(Así corrida su numeración por acuerdo de Junta Directiva de 27 de noviembre de 2001)

@@ -1,6 +1,13 @@
-Artículo 34.—Para los efectos de este Reglamento se entiende por "Aval" la garantía otorgada por INFOCOOP, del pago de letras de cambio u otros documentos de crédito.
-Las operaciones de aval constituyen una modalidad de crédito en que no media la entrega efectiva de las sumas de dinero garantizadas y quedarán sujetas a los preceptos legales, reglamentarios y de procedimiento, aplicables a la concesión del crédito.
-Para el trámite de un aval deberá seguirse el mismo procedimiento que para los créditos directos.
-El monto de los avalas que el INFOCOOP pueda otorgar a una misma cooperativa, es el mismo que establece para créditos directos los artículos 12 y 13 del presente Reglamento y dentro de esos límites le serán computadas las operaciones de crédito directo que le hayan sido otorgados y estén vigentes.
-El INFOCOOP no podrá otorgar avales que en conjunto excedan del 50% de su patrimonio, tomando éste al 31 de diciembre de cada año.
-La Junta Directiva fijara la disponibilidad anual para avales, en una de sus sesiones del mes de enero de cada año y considerará para ello el saldo de los avales vigentes.
+Artículo 34.—Para que una cooperativa pueda accesar las condiciones de financiamiento para cooperativas en crisis, deberá estar afectada por alguno de los siguientes factores y así deberá acreditarse en el informe técnico respectivo:
+a) Recesión de los mercados receptores de la producción de bienes y servicios que produce la cooperativa.
+b) Caída en los precios de los bienes y servicios en el ámbito internacional debido a factores estacionales, de sobreproducción o de obstrucción de los canales de comercialización.
+c) Problemas de abastecimiento de materias primas y otros suministros.
+d) Regulaciones adversas de índole fiscal o comercial, ya sean nacionales o de otros países, tales como medidas proteccionistas tomadas en los mercados consumidores.
+e) Recesión y deterioro de la capacidad de compra de los mercados locales, regionales y nacionales, o por deterioro de la capacidad de pago de las carteras de crédito.
+f) Situación de economía de guerra, situaciones de competencia desleal o intensiva y agresiva de parte de otros agentes económicos.
+g) Apertura de fronteras comerciales, sin que haya mediado un proceso adecuado de reconversión y de ajuste de las cooperativas nacionales que compiten con las importaciones.
+h) Emergencias nacionales.
+i) Problemas financieros derivados del caso fortuito o fuerza mayor.
+j) Problemas financieros producto de cambios en las políticas regulatorias o económicas del país.
+k) Retiro masivo de ahorros producto de crisis financieras o monetarias.
+(Así adicionado por acuerdo de Junta Directiva de 27 de noviembre de 2001)

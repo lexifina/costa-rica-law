@@ -14,3 +14,4 @@ Reglamento General Créditos y Avales.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-07 | la propia norma |
+| 2 | 2001-11-27 | Reglamento 0 (2001-11-27) |

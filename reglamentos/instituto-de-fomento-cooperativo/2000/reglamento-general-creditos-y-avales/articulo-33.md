@@ -1,1 +1,2 @@
-Artículo 33.—De conformidad con el inciso e) del artículo 157 de la Ley de creación del INFOCOOP N° 5185, del 20 de febrero de 1973 y sus reformas, este podrá otorgar avales, cuando sea necesario y conveniente, a las cooperativas, a los Organismos integrativos y auxiliares en los préstamos que contraten con entidades financieras.
+Artículo 33.- La modalidad de financiamiento para cooperativas en crisis se regirá por el presente reglamento, así como por las disposiciones especiales de los artículos 34 a 38 de éste y que a continuación se señalan.
+(Así adicionado por acuerdo de Junta Directiva de 27 de noviembre de 2001)
