@@ -17,3 +17,4 @@ Directrices Generales de Política Presupuestaria del 2003 para los ministerios,
 | 2 | 2002-04-15 | Decreto Ejecutivo 30401 (2002-04-15) |
 | 3 | 2002-08-27 | Decreto Ejecutivo 30693 (2002-08-27) |
 | 4 | 2002-10-02 | Decreto Ejecutivo 30784 (2002-10-02) |
+| 5 | 2002-10-07 | Decreto Ejecutivo 30832 (2002-10-07) |
