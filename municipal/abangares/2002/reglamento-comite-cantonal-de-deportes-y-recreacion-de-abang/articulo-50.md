@@ -1,0 +1,1 @@
+Artículo 50.—La integración y distribución de puestos en el Comité Comunal, será igual a la del CCDR, lo mismo que su vigencia y la posibilidad de ser reelectos. No recibirán remuneración alguna por su labor.

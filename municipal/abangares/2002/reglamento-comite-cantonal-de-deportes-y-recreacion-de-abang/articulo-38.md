@@ -1,0 +1,1 @@
+Artículo 38.—El CCDR, deberá presentar su presupuesto al Concejo Municipal, sujeto a las disposiciones de la Ley Orgánica de la Contraloría General de la República, según el artículo 172 del Código Municipal, en el mes de julio de cada año.

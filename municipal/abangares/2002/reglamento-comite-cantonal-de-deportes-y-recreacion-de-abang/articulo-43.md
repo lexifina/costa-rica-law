@@ -1,0 +1,1 @@
+Artículo 43.—Cada comisión estará constituida conforme a la actividad o evento que se requiera, preferiblemente con cinco miembros si fuere posible, para que se integre una Junta Directiva y llevar un libro de Actas y otro de Tesorería, debidamente refrendados por el CCDR y las sesiones las harán de acuerdo a la necesidad de la actividad de que se trate.

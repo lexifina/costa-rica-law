@@ -1,0 +1,1 @@
+Artículo 58.—Será expulsado y no podrá volver a integrar ninguna organización deportiva que sea parte del CCDR, durante un plazo no mayor de diez años, aquel dirigente que haga uso en beneficio propio o de terceros, de los bienes propiedad del CCDR y sus organizaciones, incluyendo el dinero que tengan bajo su administración o custodia.

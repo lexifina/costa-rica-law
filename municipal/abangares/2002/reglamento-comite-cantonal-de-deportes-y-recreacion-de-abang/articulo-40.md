@@ -1,0 +1,1 @@
+Artículo 40.—Para efecto de reconocimiento de los gastos de transporte, hospedaje y alimentación de personal y atletas, se utilizará hasta un máximo, los especificados según la tabla que para ese efecto establece la Contraloría General de la República, estos gastos deben ser aprobados en la reunión anterior de la gira para poder ser liquidados.

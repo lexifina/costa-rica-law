@@ -1,0 +1,1 @@
+Artículo 7º—Si fuere pertinente, el CCDR podrá, bajo su responsabilidad y dentro del rubro de gastos administrativos, contratar personal para el auxilio de las labores administrativas, con conocimientos de archivo, computación, contaduría, deportes y recreación.

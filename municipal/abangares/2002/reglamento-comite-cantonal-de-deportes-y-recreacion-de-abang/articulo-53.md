@@ -1,0 +1,1 @@
+Artículo 53.—Todas las organizaciones deportivas y recreativas de cada distrito, (equipos, clubes, grupos, etc.), deben afiliarse al CCDR para gozar de la colaboración y los beneficios que les pueda brindar el Comité. Deben tener una Junta Directiva responsable del acatamiento de los reglamentos respectivos y del gozo de los beneficios adquiridos.

@@ -1,0 +1,1 @@
+Artículo 22.—Las sesiones serán públicas, excepto las del presupuesto y otras que a criterio del Comité no lo sean. Deberán iniciarse a más tardar, quince minutos después de la hora fijada para que tengan validez.

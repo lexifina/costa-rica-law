@@ -1,0 +1,1 @@
+Artículo 61.—De la subvención recibida por el CCDR, por parte de la Municipalidad, podrá incluir en su presupuesto anual, conforme al Plan de Trabajo, una partida para la compra de terrenos aptos para el Deporte y la Recreación, así como para la construcción, reparación y mantenimiento de las instalaciones deportivas o recreativas.

@@ -1,0 +1,1 @@
+Artículo 46.—Las comisiones de apoyo, según sea el caso, deberán confeccionar o definir los respectivos reglamentos en los que se apoye su actividad, los que serán ratificados por el CCDR para su aplicación.

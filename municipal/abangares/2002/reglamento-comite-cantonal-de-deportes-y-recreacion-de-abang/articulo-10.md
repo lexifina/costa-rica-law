@@ -1,0 +1,1 @@
+Artículo 10.—Las personas que quieran integrar el CCDR, deben tener deseos de trabajar por el deporte y la recreación, ser muy prudentes en sus actos y actitudes personales, con dominio propio, que demuestren sus valores y calidad de personas, deben ser residentes del cantón y dispuestos a servir y ayudar.

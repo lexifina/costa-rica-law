@@ -1,0 +1,1 @@
+Artículo 54.—El CCDR, será el Superior en Grado de todos los Comités o Subcomités o Comisiones de Apoyo que se nombren y conocerá en alzada de los recursos de apelación que se interpongan en los mismos, conforme al procedimiento legal en que se apoyen.

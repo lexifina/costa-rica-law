@@ -1,0 +1,1 @@
+Artículo 12.—La sustitución de uno o más miembros del CCDR, por la causa que sea, será para completar el resto del período correspondiente al miembro sustituido, cuya sustitución se hará en persona idónea, conforme a la lista de suplentes.

@@ -1,0 +1,1 @@
+Artículo 5º—Los miembros del CCDR, serán juramentados en una sesión del Concejo Municipal. Asimismo, la Municipalidad, brindará al CCDR, toda la colaboración que en materia de deporte y recreación corresponda, conforme a la política nacional o local.

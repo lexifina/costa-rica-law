@@ -1,0 +1,1 @@
+Artículo 39.—Podrá el CCDR, incluir en su presupuesto, las partidas necesarias para la adquisición de implementos deportivos, siempre que estos se refieran a planes y programas previamente establecidos.

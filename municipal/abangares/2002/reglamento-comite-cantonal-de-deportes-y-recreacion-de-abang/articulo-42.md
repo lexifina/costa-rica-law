@@ -1,0 +1,1 @@
+Artículo 42.—El Comité, nombrará de entre los miembros de la comunidad, las personas idóneas, vecinos del cantón, para formar las comisiones, las cuales una vez constituidas, serán juramentadas para su labor, la que llevarán a cabo por el tiempo necesario mientras dure la actividad para la cual fue creada o convocada, sea deportiva o recreativa.
