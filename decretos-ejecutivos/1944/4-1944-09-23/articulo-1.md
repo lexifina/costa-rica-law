@@ -1,0 +1,1 @@
+(Este Decreto Ejecutivo fue considerado inaplicable mediante resolución de la Corte Suprema de Justicia de las 13:40 horas del 21 de octubre de 1947, correspondiente al expediente N° 0335-1947, en el cual compareció como recurrente el Sr. Victor Guardia Quirós, como apoderado especialísimo de Ricardo Steinvorth Ey.)
