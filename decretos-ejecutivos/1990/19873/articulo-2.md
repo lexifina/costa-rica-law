@@ -1,0 +1,1 @@
+Artículo 2°—Dado el carácter especialmente técnico de esta norma, esta queda sujeta a revisión por parte de Oficina Nacional de Normas y Unidades de Medida en el caso de que los usuarios, aportando la documentación correspondiente, así lo solicitaren.
