@@ -1,0 +1,1 @@
+Artículo 17.—La Caja mantendrá un margen permanente en el Fondo antes mencionado, a título de Reserva para Contingencias, equivalente al 2% (dos por ciento) de los gastos de operación del ejercicio anual, los cuales incluyen el costo de los beneficios y los servicios de administración, conforme con lo dispuesto en el artículo 5° de este Reglamento.

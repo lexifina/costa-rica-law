@@ -1,0 +1,1 @@
+Artículo 22.—La Gerencia de Pensiones, será la responsable de la administración de este régimen. Para este propósito y por medio del Departamento Régimen No Contributivo, establecerá los mecanismos de control y seguimiento de los beneficios otorgados, a efecto de que se cumpla con lo dispuesto en este Reglamento y el instructivo pertinente.
