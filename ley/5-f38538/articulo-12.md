@@ -1,0 +1,1 @@
+Artículo 12° Los libros de registro para la inscripción de la Propiedad Científica, Literaria y Artística se abrirán y cerrarán con una fórmula firmada por el Director General de las Bibliotecas Públicas y en que deberá constar la fecha en que se abre o cierra el libro de registro y el objeto a que se ha destinado.

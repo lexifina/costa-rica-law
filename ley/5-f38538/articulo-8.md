@@ -1,0 +1,1 @@
+Artículo 8° El Director General de las Bibliotecas Públicas recibirá los tres ejemplares que dispone la ley, debiendo remitir, a la mayor brevedad, uno a la Secretaría de Instrucción Pública y otro a la Biblioteca Nacional.

@@ -1,0 +1,1 @@
+Artículo 7° Inmediatamente que se haga la inscripción y depósito de una obra científica, literaria o artística el Director General de las Bibliotecas Públicas lo participará a la Secretaría de Instrucción Pública por medio de una nota.
