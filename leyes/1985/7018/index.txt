@@ -66,5 +66,3 @@ articulo-65.md
 articulo-66.md
 articulo-67.md
 articulo-68.md
-articulo-72.md
-articulo-126.md
