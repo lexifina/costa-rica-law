@@ -1,0 +1,1 @@
+Artículo 2°—Objetivo. El objetivo primordial de la disponibilidad es contar en cualquier momento con el personal profesional y técnicamente calificado para tomar decisiones jurisdiccionales de carácter urgente e impedir que los derechos de los ciudadanos se vean afectados o la Administración de Justicia menoscabada en su función.

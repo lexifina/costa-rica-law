@@ -1,0 +1,1 @@
+Artículo 16.—Partida presupuestaria. La Corte deberá reseñar en el proyecto del presupuesto ordinario anual o por medio de modificación presupuestaria, las partidas necesarias a fin de dar contenido económico al pago de la Disponibilidad, las horas extra que se generen con ocasión de trabajo efectivo y cualquier otro gasto que deba cubrirse a los servidores.

@@ -1,0 +1,1 @@
+Artículo 18.—Normativa supletoria. Lo no previsto en este Reglamento se ajustará a lo dispuesto en la Ley Orgánica del Poder Judicial, el Estatuto del Servicio Judicial, Ley Orgánica del Organismo de Investigación Judicial y demás normativa especial que rija el accionar de los despachos y oficinas judiciales, así como lo que resuelva la Corte.

@@ -1,0 +1,6 @@
+Artículo 12.—Deberes. El funcionario o servidor que labora bajo el régimen de Disponibilidad debe cumplir con lo siguiente:
+a) Presentarse sin dilación alguna al sitio donde se le requiera. Para ello deberá tomarse en cuenta la extensión territorial, las vías de comunicación y demás características topográficas del lugar en que se halle la jurisdicción respectiva.
+b) Facilitar a la Presidencia de la Corte, la Secretaría General, oficina de la localidad donde presta el servicio. Organismo de Investigación Judicial y Policía Administrativa, así como cualquier otra oficina que la Corte o el Consejo Superior eventualmente señale, el número de teléfono, dirección del domicilio o cualquier otro medio que haga posible su ubicación ágil y oportuna,
+c) Permanecer a una distancia no mayor de treinta kilómetros del asiento del tribunal u oficina judicial, siempre que la disponibilidad corresponda a la oficina donde labora ordinariamente.
+d) Mantenerse todo el tiempo en que se encuentre en disponibilidad en condiciones de absoluta sobriedad y en capacidad de atender con prontitud y eficiencia los asuntos que se presenten.
+e) Atender las directrices que acuerde la Corte y el Consejo Superior en relación con los roles de disponibilidad o con su cumplimiento.

@@ -1,0 +1,1 @@
+Artículo 6°—Requisitos. La Disponibilidad será retribuida a los funcionarios o servidores judiciales que se encuentren sujetos a ese régimen, por haberse dispuesto así en razón de la naturaleza de las funciones que realizan, de conformidad con el artículo 2 de este Reglamento.
