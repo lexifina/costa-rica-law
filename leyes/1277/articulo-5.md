@@ -1,1 +1,0 @@
-Artículo 5°.- En las zonas urbanas el derecho de línea no implica el de ruta. Toda ruta podrá ser variada por el Consejo Superior del Tránsito, creado por esta ley, según lo requieran las necesidades del servicio público, y sin responsabilidad alguna para el Estado.

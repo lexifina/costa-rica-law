@@ -1,1 +1,0 @@
-Artículo 20.- Los derechos de línea sólo podrán ser traspasados o arrendados con autorización del Consejo o adjudicados a título de herencia. No podrán ser objeto de embargo ni de gravamen alguno, salvo en los casos calificados a juicio del Consejo.
