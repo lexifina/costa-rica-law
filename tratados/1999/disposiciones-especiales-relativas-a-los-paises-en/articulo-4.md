@@ -1,0 +1,22 @@
+ARTÍCULO IV
+{Disposiciones comunes sobre licencias previstas en los Artículos II y
+III: 1. y 2. Procedimiento; 3. Indicación del autor y del título de
+la obra; 4. Exportación de ejemplares;
+5. Nota; 6. Remuneración}
+1.- Toda licencia referida al Artículo II o III no podrá ser concedida sino cuando el solicitante, de conformidad con las disposiciones vigentes en el país donde se presente la solicitud, justifique haber pedido al titular del derecho la autorización para efectuar una traducción y publicarla o reproducir y publicar la edición, según proceda, y que, después de las diligencias correspondientes por su parte, no ha podido ponerse en contacto con ese titular ni ha podido obtener su autorización. En el momento de presentar su petición el solicitante deberá informar a todo centro nacional o internacional de información previsto en el párrafo 2).
+2.- Si el titular del derecho no ha podido ser localizado por el solicitante, éste deberá dirigir, por correo aéreo certificado, copias de la petición de licencia que haya presentado a la autoridad competente, al editor cuyo nombre figure en la obra y a cualquier centro nacional o internacional de información que pueda haber sido designado, para ese efecto, en una notificación depositada en poder del Director General, por el gobierno del país en el que se suponga que el editor tiene su centro principal de actividades.
+3.- El nombre del autor deberá indicarse en todos los ejemplares de la traducción o reproducción publicados en virtud de una licencia concedida de conformidad con el Artículo II o del Artículo III. El título de la obra deberá figurar en todos esos ejemplares. En el caso de una traducción, el título original de la obra deberá aparecer en todo caso en todos los ejemplares mencionados.
+4.-
+a) Las licencias concedidas en virtud del Artículo II o del Artículo III no se extenderán a la exportación de ejemplares y no serán válidas sino para la publicación de la traducción o de la reproducción, según el caso, en el interior del territorio del país donde se solicite la licencia.
+b) Para los fines del subpárrafo a), el concepto de exportación comprenderá el envío de ejemplares desde un territorio al país que, con respecto a ese territorio, haya hecho una declaración de acuerdo al Artículo 1.5).
+c) Si un organismo gubernamental o público de un país que ha concedido una licencia para efectuar una traducción en virtud del Artículo II, a un idioma distinto del español, francés o inglés, envía ejemplares de la traducción publicada bajo esa licencia a otro país, dicho envío no será considerado como exportación, para los fines del subpárrafo a), siempre que se cumplan todas las condiciones siguientes:
+i) que los destinatarios sean personas privadas, nacionales del país cuya autoridad competente otorgó la licencia o asociaciones compuestas por esos nacionales;
+ii) que los ejemplares sean utilizados exclusivamente con fines escolares, universitarios o de investigación;
+iii) que el envío y distribución de los ejemplares a los destinatarios no tengan fines de lucro;
+iv) que el país al cual los ejemplares hayan sido enviados haya celebrado un acuerdo con el país cuyas autoridades competentes han otorgado la licencia para autorizar la recepción, la distribución o ambas operaciones y que el gobierno de ese último país lo haya notificado al Director General.
+5.- Todo ejemplar publicado de conformidad con una licencia otorgada en virtud del Artículo II o del Artículo III deberá contener una nota, en el idioma que corresponda, advirtiendo que el ejemplar se pone en circulación sólo en el país o en el territorio donde dicha licencia se aplique.
+6.-
+a) Se adoptarán medidas adecuadas a nivel nacional con el fin de asegurar:
+i) que la licencia prevea en favor del titular del derecho de traducción o de reproducción, según el caso, una remuneración equitativa y ajustada a la escala de cánones que normalmente se abonen en los casos de licencias libremente negociadas entre los interesados en los dos países de que se trate;
+ii) el pago y la transferencia de esa remuneración; si existiera una reglamentación nacional en materia de divisas, la autoridad competente no escatimará esfuerzos, recurriendo a los mecanismos internacionales, para asegurar la transferencia de la remuneración en moneda internacionalmente convertible o en su equivalente.
+b) Se adoptarán medidas adecuadas en el marco de la legislación nacional para garantizar una traducción correcta de la obra o una reproducción exacta de la edición de que se trate, según los casos.
