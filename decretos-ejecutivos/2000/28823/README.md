@@ -13,3 +13,4 @@ Determinación Exclusiva Valor Sobre Importaciones Agentes Aduaneros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-14 | la propia norma |
+| 2 | 2000-10-30 | Ley 7 |
