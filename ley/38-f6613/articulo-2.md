@@ -1,0 +1,1 @@
+Art. 2°. –Los que se hallen en el caso del artículo anterior; obtendrán asimismo el beneficio de sus mayorales y peones sean exonerados del servicio militar; y libre de todo derecho, aun de muellaje; la sal que introduzcan en piedra, destinada al uso del ganado.
