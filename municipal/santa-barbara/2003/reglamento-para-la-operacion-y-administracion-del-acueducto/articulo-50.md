@@ -1,0 +1,2 @@
+Artículo 50.—Varios. Las aguas potables de los ríos, vertientes y del subsuelo en cualquier parte del territorio nacional, cantonal y local, donde se encuentren, estarán dedicadas prioritariamente al servicio de un sistema de agua potable para las poblaciones, según lo disponga el Poder Ejecutivo. (Artículo 30 de la Ley de Aguas Nº 276 del 7 de agosto de 1942).
+La Municipalidad deberá estar a derecho, con respecto a la vigencia de las concesiones de aguas del cantón de Santa Bárbara, ante el Organismo Regulador, con el fin de garantizar el servicio a los abonados.

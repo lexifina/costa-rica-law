@@ -1,0 +1,1 @@
+Artículo 53.—Los comités de agua estarán conformados por nueve miembros como máximo y cinco como mínimo, mayores de edad, y vecinos del respectivo distrito y durarán en sus cargos un año y podrán ser reelegidos por otro periodo más.

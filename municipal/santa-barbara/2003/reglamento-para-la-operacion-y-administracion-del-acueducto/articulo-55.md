@@ -1,0 +1,1 @@
+Artículo 55.—Previo a entrar en funciones, los miembros del Comité deberán ser juramentados por el Concejo Municipal, debiendo quedar en actas la juramentación y se les extenderá su respectivo carné de identificación.

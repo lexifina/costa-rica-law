@@ -1,0 +1,4 @@
+CAPÍTULO II
+Del servicio en general
+Artículo 4º—Del servicio. La Municipalidad prestará el servicio de agua potable, tomando las medidas necesarias para asegurar la operación, mantenimiento, la adecuada calidad del agua potable, mejoras, desarrollo, e inversiones. Está obligada a prestar el servicio de agua a todos los propietarios y poseedores de inmuebles construidos, dedicados al trabajo o residencia de personas, cuando las redes del sistema pasen frente a las propiedades y los inmuebles cumplan con todos los requisitos de las leyes nacionales y reglamentos municipales.
+En lo que respecta a la calidad del agua, la Municipalidad seguirá las disposiciones contenidas en el Reglamento para la calidad del agua, Nº 5991-S, publicado en La Gaceta Nº 100 del 27 de mayo de 1997, que es parte integrante del presente reglamento. (verificar esta gaceta si se puede aplicar a esta Municipalidad)

@@ -1,0 +1,1 @@
+Artículo 10.—Todas las solicitudes serán debidamente registradas y conferidas en forma cronológica cuando ello proceda y sean realizados los ajustes en los departamentos indicados. Se registrarán y facturan las conexiones realizadas a partir del día de su instalación.

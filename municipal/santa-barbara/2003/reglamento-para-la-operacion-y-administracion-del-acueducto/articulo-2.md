@@ -1,0 +1,1 @@
+Artículo 2º—Alcance del presente Reglamento. Este Reglamento regulará la organización y funcionamiento municipal, en cuanto a la prestación, facturación, registro y cobro, así como establecer los derechos y deberes tanto de los abonados y de la Municipalidad.

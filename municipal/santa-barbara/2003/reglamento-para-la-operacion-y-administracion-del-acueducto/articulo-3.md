@@ -1,0 +1,19 @@
+Artículo 3º—Definición de términos. Para los efectos del presente reglamento, se utilizarán los siguientes términos:
+- Abonado: Persona física o jurídica propietaria de la finca o edificación a la que se le presta el servicio.
+- Aporte: Colaboración en materiales o en dinero, que otorgue cualquier abonado a la Municipalidad.
+- Prevista: Tubería y accesorios ubicados entre la tubería principal y el límite de la propiedad con la vía pública.
+- Corte de servicio: Privación definitiva o temporal del servicio.
+- Derecho de conexión o costo por nueva conexión: Valor o suma que debe pagar previamente el abonado a la Municipalidad por conectarle el servicio de agua potable a su propiedad.
+- Derecho de reconexión: Valor o suma en efectivo que debe pagar previamente el abonado a la Municipalidad por la reconexión del servicio de agua potable que le fue suspendido.
+- Finca: Terreno o solar, con o sin la respectiva edificación, debidamente individualizado en el Registro Público de la Propiedad.
+- Hidrómetro: Medidor utilizado con el fin de registrar el consumo de agua utilizado por el abonado o usuario.
+- Costo por traslado de paja: Valor que debe pagar el abonado cuando solicita el traslado de la paja de agua a otra propiedad.
+- Sistema: Es el conjunto de tuberías, tanques de almacenamiento, planta de tratamiento y demás activos necesarios para prestar el servicio de acueducto a la población.
+- Instalaciones: Sistema de tuberías y accesorios tanto de redes públicas como las intra domiciliarias del acueducto.
+- Instalaciones domiciliarias: Sistema interno de agua potable de los domicilios.
+- Servicio de acueducto: Suministro de agua potable que es prestado por la Municipalidad usuario.
+- Usuario: Toda persona física o jurídica que utiliza los servicios de agua, puede ser o no el abonado.
+- Municipalidad: Institución encargada de administrar y suministrar el servicio de acueducto.
+- Multa: Sanción en dinero por atraso en el pago del servicio de agua conforme al presente Reglamento y las leyes vigentes.
+- Paja de agua: La tubería y accesorios ubicados entre la red de distribución del acueducto y el límite de la propiedad con la vía pública.
+- Uso del agua: El destino principal que el abonado o la Municipalidad determine que se le da al servicio de agua potable, misma que se clasifica como: residencial, ordinaria, reproductiva, preferencial, de gobierno u otras.

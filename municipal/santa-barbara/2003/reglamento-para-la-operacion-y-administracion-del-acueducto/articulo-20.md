@@ -1,0 +1,1 @@
+Artículo 20.—De la lectura del hidrómetro. La lectura de los hidrómetros y el cobro se hará mensualmente y se cobrará conforme al metraje cúbico. Se autoriza a la Municipalidad a modificar el rol de lectura, según las necesidades municipales.
