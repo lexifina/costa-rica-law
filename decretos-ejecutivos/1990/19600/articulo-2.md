@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Los centros educativos de I, II y III Ciclo de la Educación General Básica y los de Educación Diversificada, así como las entidades interesadas en la formación y cultura idiomática, realizarán actividades alusivas a la lengua, al libro y a las grandes obras de la literatura en idioma español.
