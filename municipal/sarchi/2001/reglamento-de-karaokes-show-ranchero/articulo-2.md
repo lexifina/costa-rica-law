@@ -1,0 +1,1 @@
+Artículo 2°—Definición; Denomínese Karaoke aquel sistema de amplificación de sonido que permite el canto de ciudadanos, con el acompañamiento de pistas musicales pregrabadas Show Ranchero, aquel en el cual participa un grupo musical cantando principalmente música Ranchera.

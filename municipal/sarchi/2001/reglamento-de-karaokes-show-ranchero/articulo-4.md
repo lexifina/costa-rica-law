@@ -1,0 +1,1 @@
+Articulo 4°—Del Ministerio de Salud: Para presentar la solicitud del permiso Municipal para Karaoke o Show Ranchero, es necesaria la autorización del Ministerio de Salud, la cual no será vinculante para la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 8°—De las sanciones: Las violaciones de este reglamento acarreará las sanciones que estipulan, el Código Municipal. La Ley de Espectáculos Públicos, la Ley de Patentes de la Municipalidad de Valverde Vega. el Código Penal, la Ley General de Salud, y la legislación conexa vigente y aplicable.

@@ -1,0 +1,1 @@
+Articulo 7°—Las solicitudes de permiso para actividades con karaokes o Show Ranchero, deberán presentarse con no menos de ocho días hábiles de anticipación del acto, ante la oficina de inspección de Patentes y en los casos de locales comerciales que desarrollen esta actividad en forma permanente, deberán de realizar el trámite cada tres meses.

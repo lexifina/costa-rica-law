@@ -1,0 +1,1 @@
+Articulo 9° De la contaminación sónica: La actividad con Karaoke o Show Ranchero, deberá respetar en lodo momento los niveles autorizados de sonido por la Ley General de Salud, especialmente lo indicado en los Artículos 293 y 294. La cual será competencia exclusiva de esa entidad.

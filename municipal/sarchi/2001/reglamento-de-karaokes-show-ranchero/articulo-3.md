@@ -1,0 +1,1 @@
+Artículo 3°: Del permiso Municipal: Toda actividad social con Karaoke y Show Ranchero que se programe, deberá contar con el correspondiente permiso Municipal, para su realización, previa inspección por la oficina de patentes, ante la cual se presentará la solicitud respectiva, previo a la realización de la misma, tenga patente o no.
