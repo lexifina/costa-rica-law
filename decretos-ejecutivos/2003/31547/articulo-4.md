@@ -1,0 +1,1 @@
+Artículo 4º—Sólo será permitido el uso y comercialización de aquellos preservantes de la madera debidamente registrados ante el Ministerio, siempre y cuando el establecimiento cuente con el permiso sanitario de funcionamiento vigente.

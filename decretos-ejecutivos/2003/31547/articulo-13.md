@@ -1,0 +1,1 @@
+Artículo 13.—Información de las importaciones. La Dirección General de Aduanas deberá suministrar periódicamente al Ministerio, aquella información pertinente y relacionada con la importación de los productos que se mencionan en este reglamento.

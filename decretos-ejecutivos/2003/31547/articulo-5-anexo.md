@@ -1,0 +1,10 @@
+ANEXO 5
+INFORMACIÓN PARA EL CONSUMIDOR
+Esta madera ha sido preservada mediante un tratamiento a presión con un plaguicida que contiene arsénico para protegerla contra el ataque de los insectos y la descomposición. El Arsénico para tratar la madera debe usarse, solamente, cuando dicha protección sea importante y necesaria.
+PRECAUCIONES EN EL LUGAR DE TRABAJO
+Todo el aserrín y los residuos de la construcción deben limpiarse y desecharse después de la construcción.
+No usar la madera tratada bajo circunstancias donde el conservante pueda pasar a ser un componente de alimentos para humanos o animales. Por ejemplo, el uso de la madera tratada con arsénico reciclada y molida para cubrir vegetales, tablas para cortar, mesadas de cocina, lechos para animales y estructuras o contenedores donde se almacenen alimentos para consumo humano o animal.
+PRECAUCIONES EN CUANTO AL MANEJO
+Desechar la madera tratada siguiendo el método para recolección de basura habitual. La madera tratada no debe quemarse en fogatas ni estufas, ni tampoco en calderas residenciales ya que puede emanar sustancias químicas tóxicas como parte del humo y las cenizas. La madera tratada proveniente de usos comerciales o industriales (como de obras en construcción) puede quemarse sólo en incineradores o calderas industriales de conformidad con las reglamentaciones establecidas por el Ministerio de Salud.
+Evitar la inhalación frecuente o prolongada del aserrín de madera tratada. Cuando se serruche, lije o tornee, usar una máscara para polvo. Cuando se usen sierras o tornos eléctricos, se deben usar anteojos protectores para proteger los ojos contra partículas voladoras. Usar guantes cuando se trabaje con la madera. Después de trabajar con la madera y antes de comer, beber, ir al baño o fumar, deben lavarse a fondo las zonas expuestas.
+Debido a que los conservantes y el aserrín se pueden acumular en la ropa, ésta debe lavarse antes de volver a usar. La ropa de trabajo debe lavarse aparte de la demás ropa de la casa.
