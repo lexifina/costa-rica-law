@@ -1,0 +1,1 @@
+Art 4° Después que la Compañía de Ferrocarril costarricense haya construido sus diques y bodegas, no se cobrarán los derechos de Aduana antes que las mercaderías y productos destinados al consumo hayan salido de dichos diques o bodegas.
