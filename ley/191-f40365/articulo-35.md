@@ -1,0 +1,1 @@
+Art. 35.—Tomada razón mayor y menor en la Administración principal, ó por los subalternos de ésta en las demás plazas, de la cantidad y calidad de los efectos, podrán entregarse éstos á los interesados bajo fianza con simple documento; pero practicados ya los aforos, ó por lo menos dejando muestras sin excepción de especie, para el conocimiento necesario al tiempo de practicarlo.

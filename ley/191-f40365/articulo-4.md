@@ -1,0 +1,1 @@
+Art. 4° — En consecuencia de lo prevenido en el artículo anterior, la administración deberá formar corte el dia último precisamante de cada mes, y presentará á la Intendencia General, estados que lo manifiesten, guardando la misma separación en estados diferentes.

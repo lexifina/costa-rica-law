@@ -1,0 +1,1 @@
+Art. 16.—Deben llevar cuenta separada de los caudales que ingresen mensualmente, en términos de advertirse los rendimientos de cada ramo, en el corte practicado por fin de mes, y al efecto rendirá estados que lo manifiesten.

@@ -1,0 +1,1 @@
+Art. 46.—Quedan vigentes la ordenanza y aranceles que han establecido el método y orden para practicar los registros y despacho de buques, lo mismo que los derechos prevenidos por los mismos, por éstas operaciones y funcionarios á quienes corresponden.

@@ -1,0 +1,1 @@
+Art. 13.—Habrá una arca con dos llaves para el depósito de los caudales, una de las dos será á cargo del Administrador y la otra del Contador vista. En la misma arca habrán dos depósitos con su separación absoluta, una para los productos de los ramos de la federación y el otro para los de la alcabala del Estado.

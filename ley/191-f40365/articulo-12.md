@@ -1,0 +1,1 @@
+Art. 12.—Las del oficial mayor serán las de arreglar el archivo, custodiando los registros, expedientes y todos los papeles, libros y demás elementos de la oficina del Despacho, dando noticia al Administrador ó Contador de cualesquiera recado que se pida, y por último, será llevar todo el despacho de la oficina.

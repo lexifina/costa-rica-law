@@ -1,0 +1,1 @@
+Art. 36.—Los actuales Tenientes de Tesorería serán los subalternos de la Administración principal en las demás plazas del Estado, y tendrán un cuatro por ciento de honorario de las partidas que recauden provenientes del comercio, y en las que deben haber tenido conocimiento, en razón de conocimientos mayor y menor, aforo y cobro de derechos.

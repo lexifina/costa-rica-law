@@ -1,0 +1,1 @@
+Art. 24.—En esta aduana se depositarán los cargamentos de toda especie que se importen, y se cobrará un real de piso por cada fardo ó pieza, tanto para indemnizar la Hacienda Pública de los gastos que impenda en la fábrica de almacenes, como para aumentar éstos cuando las circunstancias del trabajo lo exijan.

@@ -1,0 +1,1 @@
+Art. 10.—Por regla general, ni el Administrador ú otro Ministro á la Intendencia, ni esta al Gobierno Supremo, harán consultas en los casos que la ley terminantemente disponga lo que deba obrarse, con el objeto de que cada cual, usando de las facultades que le atribuye su institución, no embarase en las demás oficinas y padezca demora el despacho.

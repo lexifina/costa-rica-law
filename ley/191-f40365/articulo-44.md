@@ -1,0 +1,1 @@
+Art. 44.—Todo individuo pondrá de manifiesto y en aptitud de reconocer los equipajes, con el objeto de que el Guarda no se vea en la necesidad de desacomodar con violencia para practicar el registro; más, de contrario, con el que baga resistencia no se guardará esta consideración, quedando sujeto, por tanto, á que el registro se practique aun recurriendo á la fuerza.
