@@ -7,4 +7,5 @@ c) Convocar a las sesiones extraordinarias conforme a las disposiciones de este 
 d) Representar judicial y extrajudicialmente al Comité Cantonal.
 e) Velar por el cumplimiento de las obligaciones y objetivos del Comité Cantonal.
 f) Suscribir los contratos y/o convenios que celebre el Comité Cantonal.
-g) Firmar los cheques en forma mancomunada con el secretario contra las cuentas del Comité Cantonal.
+g) Firmar los cheques en forma mancomunada con el tesorero contra las cuentas del Comité Cantonal.
+(Reformado parcialmente mediante sesión ordinaria N° 70, celebrada el 16 de setiembre de 2003.)

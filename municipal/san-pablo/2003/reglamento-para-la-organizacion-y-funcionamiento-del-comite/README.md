@@ -14,3 +14,4 @@ Reglamento para la Organización y Funcionamiento del Comité Cantonal de Deport
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-26 | la propia norma |
+| 2 | 2003-09-16 | Reglamento municipal 70 (2003-09-16) |
