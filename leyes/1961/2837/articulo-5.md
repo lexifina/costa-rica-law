@@ -1,0 +1,2 @@
+Artículo 5º.- Sin previa autorización judicial, el albacea de una sucesión no podrá cancelar créditos constituidos favor del causante, ni retirar fondos o valores existentes en los Bancos a nombre del causante.
+Transitorio.- Las sucesiones en trámite a la vigencia de esta ley pagarán el impuesto de Timbre Universitario conforme lo dispone el inciso 9) del artículo 442 del Código de Educación, el cual se deroga mediante esta ley y no conforme al artículo 5º de la presente.
