@@ -1,0 +1,2 @@
+Artículo 6º—Tarifa del tributo. Se aplicará una tarifa de un uno por ciento (1%) sobre los ingresos brutos, suma que una vez dividida entre cuatro determinará el impuesto trimestral por pagar. El impuesto anual así fijado se pagará en cuatro tractos trimestrales.
+Por concepto de impuesto de patente municipal, cada contribuyente deberá pagar anualmente, como mínimo, un diez por ciento (10%) del salario base menor que estipula en el último párrafo el Artículo 14 de esta Ley.

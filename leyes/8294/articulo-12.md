@@ -1,0 +1,1 @@
+Artículo 12.—Alteración de datos y recalificación. De comprobarse la existencia de una alteración en los datos suministrados, que provoque que el impuesto se calcule incorrectamente, la Municipalidad efectuará la recalificación correspondiente, sin detrimento de las responsabilidades en que pueda incurrir el administrado.
