@@ -1,0 +1,2 @@
+CANCELACION DE LICENCIAS
+Artículo 15.-La Municipalidad podrá cancelar la licencia para un anuncio y ordenar su retiro a costa del propietario, cuando se haya introducido modificaciones no autorizadas o cuando el anuncio se encuentre en condiciones que afecten su estabilidad. Igualmente cuando el titular de la licencia se encuentre en mora de pago de dos o más trimestres o se compruebe que ha infringido los incisos I) y 2) del artículo 404, Inciso 2), del artículo 405, del Código Penal
