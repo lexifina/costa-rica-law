@@ -1,0 +1,1 @@
+Artículo 2°-Las placas estarán a disposición de los Consejos Regionales Ambientales y los Regentes Forestales, en las direcciones de las Areas de Conservación y en sus respectivas oficinas subregionales.

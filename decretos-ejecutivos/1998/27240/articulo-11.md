@@ -1,0 +1,1 @@
+Artículo 11.-El encargado administrativo de cada Area de Conservación, trimestralmente traerá las placas recolectadas al encargado designado por SINAC Central, y éste las trasladará a la empresa contratada para su reciclaje o destrucción.

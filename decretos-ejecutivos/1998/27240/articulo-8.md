@@ -1,0 +1,1 @@
+Artículo 8°-Será responsabilidad del dueño de la industria forestal velar porque la madera en troza ingrese al patio de la industria debidamente plaqueada y que se mantenga con las placas respectivas hasta el momento en que la troza sea colocadas en el carro del aserradero.
