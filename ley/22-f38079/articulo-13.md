@@ -1,0 +1,1 @@
+Art. 13.—El uniforme de la tropa debe ser de franela ó paño burdo, y el de los oficiales y jefes, de paño fino. El aro encarnado de los kepis para la tropa debe tener una pulgada de ancho, y pulgada y cuarto los de los oficiales y jefes.

@@ -1,0 +1,1 @@
+Art. 7-El Teniente Coronel usará el mismo uniforme, común y de gala, señalado para el Sargento Mayor, con la diferencia de que debe llevar dos cordones en las presillas, dos galones en las boca-mangas y el cuello de la levita, y otros dos en el aro del kepi.
