@@ -1,0 +1,1 @@
+Artículo 2º-El presente decreto rige a partir del 1º de enero de 1999 y su cancelación efectiva se realizará una vez incluido el contenido económico en el presupuesto del Ministerio de Educación Pública.
