@@ -1,0 +1,7 @@
+DECRETO XVII
+Concede al Cantón principal de Liberia una legua de terreno en los baldios al Sur de dicha Ciudad.
+(Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente a finales del siglo XIX)
+(Con fundamento en lo expuesto en el dictamen de la Procuraduría General de la República N° C-222-2015 del 14 de agosto del 2015, esta ley fue derogada tácitamente por el Código Municipal N° 7794 de 30 de abril de 1998, el cual regula "el tema de enajenación de bienes propiedad de las municipalidades")
+Vecente Herrera, Presidente de la República de Costa Rica.
+Con presencia de la solicitud de la Municipalidad del Cantón principal de Liberia, consignada en acuerdo de la sesión celebrada el dia primero del corriente, y considerando: que, aunque por Decreto de 8 de este mismo mes, se concedió á aquel vecindario un terreno destinado para el cultivo; en atención á que careciendo la Municipalidad de rentas suficientes para ocurrir á las necesidades de la administración local, está en el caso de las demás Municipalidades á quienes se les ha concedido terrenos, para que enajenándolos puedan formar sus rentas.- En uso de las facultades extraordinarias de que estoy investido y precia consulta al Consejo de Estado, decreto:
+Art. 1°.- Concédese á la Municipalidad del Cantón principal de Liberia, hasta una legua de terreno en los baldíos situados al Sur de la Ciudad de Liberia, á comenzar desde las vegas del rio del mismo nombre, pasando por los límites de la hacienda llamada “San Gerónimo”.
