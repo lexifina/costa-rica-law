@@ -1,2 +1,0 @@
-Artículo 41.—Subcontrataciones:
-El contratista solo podrá subcontratar el objeto del contrato cuando el cartel lo permita y en la medida en que lo permita, o cuando órgano o funcionario competente lo autorice si se justificare debidamente. Siempre que el valor de la suma de los diferentes convenios de subcontratación no exceda el 50% del monto del negocio. En el caso de subcontratación serán solidariamente responsables ante la administración, respecto a la materia subcontratada, el contratista y el subcontratista.

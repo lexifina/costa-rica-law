@@ -1,4 +1,0 @@
-Artículo 22.—Aviso:
-El procedimiento de concurso público comenzará con la publicación de un aviso en por lo menos un diario de circulación nacional.
-El aviso indicará el número del concurso, su objeto, la fecha límite para recibir ofertas y cualquier otra característica que se considere indispensable. —,
-Para la presentación de ofertas no podrá concederse plazos inferiores a treinta (30) días naturales, si se trata de la ejecución de obras, o a doce (12) días naturales en los demás casos, a partir de la publicación del aviso, salvo casos de urgencia en que la presidencia ejecutiva o la gerencia general podrán disponer o autorizar plazos menores. Cuando se considere conveniente dichos plazos podrán ser prorrogados, antes de su vencimiento, de oficio o a su solicitud de parte, deberán prorrogarse cuando se hagan modificaciones al cartel que impliquen la necesidad de la prórroga.

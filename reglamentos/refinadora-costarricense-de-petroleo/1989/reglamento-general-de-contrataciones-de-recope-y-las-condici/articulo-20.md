@@ -1,2 +1,0 @@
-Artículo 20.—Contratación publicada de maquinaria y equipo:
-En los casos en que se requiera contratar maquinaria y equipo de transporte para la ejecución de actividades de exploración petrolera o desarrollo de cualquier otra fuente energética y otros que por su naturaleza lo requieran, la junta directiva previa justificación razonada, podrá autorizar la contratación publicada de esos servicios, de conformidad con lo establecido en el decreto ejecutivo N" 7927-H. artículo 12.

@@ -1,4 +1,0 @@
-Artículo 12.—Prohibiciones:
-Queda absolutamente prohibido a los funcionarios o empleados de RECOPE participar directa o indirectamente en contrataciones de cualquier índole con la empresa. La misma prohibición rige para los padres, el cónyuge, los hijos, hermanos, tíos, suegros, yernos y cuñados de los funcionarios y empleados mencionados. La violación de la presente norma será considerada como falta grave que generará el despido sin responsabilidad patronal. La gerencia general y la gerencia de área respectiva estará obligada a ejecutar el despido.
-De la misma manera, se prohibe la contratación con las sociedades en que los funcionarios o sus relacionados parientes sean socios, directores o personeros.
-Se prohibe el fraccionamiento de las contrataciones cuando se disponga de presupuesto suficiente para atender todo el compromiso y cuando este sea previsible. Se prohibe además cualquier otra práctica que tienda a violar las reglas establecidas en este reglamento.

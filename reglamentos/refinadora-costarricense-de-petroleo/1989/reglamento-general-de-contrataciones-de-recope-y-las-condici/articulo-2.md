@@ -1,5 +1,0 @@
-Artículo 2º—Actividad de la Dirección de Suministros y Servicios:
-La Dirección de Suministros y Servicios será la unidad encargada de tramitar las contrataciones que para el cumplimiento de su giro, deba realizar RECOPE; igualmente almacenarlas y distribuirlas conforme con las necesidades de cada unidad administrativa, operativa y de servicios.
-La junta directiva podrá autorizar el funcionamiento de unidades desconcentradas de suministros y servicios, las cuales en su funcionamiento quedarán sujetas a las instrucciones generales que en cuanto a procedimientos les dicte la Dirección de Suministros y Servicios.
-Será obligación de la Dirección de Suministros v Servicios mantener un registro actualizado de proveedores que permita orientar la contratación administrativa en RECOPE.
-También corresponde a la Dirección de Suministros y Servicios tramitar las adquisiciones de los bienes que constituyen actividad ordinaria definida en este reglamento, conforme con la programación que para esos efectos hayan efectuado las unidades responsables, salvo que por la cuantía de la contratación corresponda atenderla a una unidad desconcentrada.
