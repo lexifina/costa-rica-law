@@ -1,0 +1,4 @@
+5. DE LOS BENEFICIARIOS
+Se considerarán beneficiarios todas aquellas personas físicas o jurídicas, propietarios y poseedores de bosques, plantaciones forestales que deseen gozar del pago por servicios ambientales, prestados de común acuerdo con el artículo 3º, inciso k), de la Ley Forestal vigente, a cambio del respectivo derecho en favor del Estado, para que este pueda comercializar por cualquiera de los mecanismos de mercado locales o internacionales, los títulos correspondientes a dicha inversión. Los beneficiarios interesados podrán presentar solicitudes de la siguiente manera:
+5.1. En forma individual: Para la protección y manejo de bosques naturales y las plantaciones forestales establecidas y por establecer.
+5.2. En forma global: a través de una organización de pequeños y medianos propietarios de tierra, para la protección de bosques naturales y las plantaciones forestales por establecer.
