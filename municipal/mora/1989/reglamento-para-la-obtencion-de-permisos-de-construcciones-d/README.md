@@ -15,3 +15,4 @@ Reglamento para la Obtención de Permisos de Construcciones del Cantón de Mora
 | --- | --- | --- |
 | 1 | 1989-04-27 | la propia norma |
 | 2 | 2002-05-27 | Reglamento municipal 7 (2002-05-27) |
+| 3 | 2002-05-27 | Ley 8 |
