@@ -1,0 +1,1 @@
+Art. 12. El Inspector General de Hacienda visitará ordinariamente, cada semestre, las oficinas fiscales expresadas en el artículo 9°, y extraordinariamente, cada vez que, por los datos que suministre la Contabilidad Nacional, haya sospecha de alcance en las cuentas de algún empleado, y cuando lo disponga el Secretario de Hacienda.

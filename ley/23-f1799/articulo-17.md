@@ -1,0 +1,1 @@
+Art. 17. – Si el alcance no excediere de la suma expresada, el visitador compelerá al empleado para que verifique el entero respectivo dentro de un corto plazo, en relación con la distancia, bajo la pena de puedar, si asi no lo hiciere, sujeto a lo dispuesto en el artículo anterior.
