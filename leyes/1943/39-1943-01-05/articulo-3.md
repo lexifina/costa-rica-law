@@ -1,4 +1,3 @@
 CAPITULO II
-Obtención del título de Notario
-Artículo 3°.- Para optar al título de notario, se necesita ser costarricense por nacimiento o centroamericano con cuatro años de residencia en el país y graduado mediante examen de la Facultad de Derecho de la Universidad de Costa Rica. Unos u otros han de pertenecer al estado seglar, ser mayores de edad, abogados de los Tribunales de aquí, de conducta y antecedentes honrados, notoriamente conocidos y no tener motivo legal que los incapacite para el ejercicio del cargo. Los centroamericanos deben acreditar además que en su país de origen se concede reciprocidad en favor de los costarricenses.
-(Así reformado por el artículo único de la ley N° 86 del 25 de junio de 1948)
+Obtención del Título de Notario
+Artículo 3º.- Para optar el título de Notario se necesita ser costarricense por nacimiento o por naturalización pero de origen centroamericano y en este último caso graduado mediante examen en la Facultad de Derecho de la Universidad de Costa Rica; del estado seglar, mayor de edad, abogado de los Tribunales de la República, notoriamente conocido, de conducta y antecedentes honrados, y no tener motivo legal de incapacidad para el ejercicio del cargo. Los naturalizados deberán acreditar, además, que en su país de origen se concede reciprocidad.
