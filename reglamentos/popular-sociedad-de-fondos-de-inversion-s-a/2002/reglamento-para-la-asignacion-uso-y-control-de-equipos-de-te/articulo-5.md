@@ -1,0 +1,2 @@
+Artículo 5º—De los responsables de solicitar y asignar el equipo: La asignación de equipos de telefonía móvil, línea telefónica y accesorios, deberá ser realizada mediante decisión razonada del Gerente de la Sociedad de Fondos dependiendo del campo donde desempeñe sus labores el funcionario a favor de quien se pretende aprobar la asignación del equipo y sus accesorios.
+Los equipos de telefonía móvil deben estar en disposición de ser accesados al menos entre las 7,00 y las 21,00 horas en días hábiles.

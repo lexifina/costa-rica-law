@@ -1,0 +1,4 @@
+Artículo 12.—De la devolución del equipo: En caso de que el funcionario se ausente de Popular SAFI. por un período mayor de 15 días hábiles, deberá devolver el equipo telefónico y sus accesorios a la jefatura que autorizó su asignación.
+Transitorio: Se admitirá, a partir de la aprobación del presente, y hasta por el tiempo que medie en la asignación de los equipos de telefonía móvil, línea telefónica y accesorios a nombre de Popular, Fondos de Inversión, la compensación a las personas señaladas en el artículo 7º del presente reglamento.
+Esta condición podrá ser revisada por la Junta Directiva, quienes, de considerarlo necesario y por acto motivado, podrán revocarla sin ninguna responsabilidad para la Sociedad de Fondos de Inversión.
+Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 2º—Del objeto: Este Reglamento es de acatamiento obligatorio para todos los funcionarios y empleados de la Sociedad Anónima y tiene como objeto fundamental regular y controlar la asignación y uso de los equipos de telefonía móvil (teléfonos celulares) con sus respectivos accesorios y línea telefónica.

@@ -1,0 +1,4 @@
+Artículo 11.—Del cobro administrativo: Si la asignación del equipo de telefonía móvil y sus accesorios generara alguna clase de daño patrimonial a la Sociedad de Fondos de Inversión, contemplado o no en este Reglamento, se procederá de la siguiente forma:
+a- La Administración determinará el monto de la deuda y se lo informará al funcionario, quien, si está de acuerdo, autorizará su cancelación mediante las deducciones convenidas, las cuales no podrán ser inferiores a 4 ni superiores a 12 mensualidades. El trabajador o funcionario podrá efectuar la cancelación en un solo pago.
+b- Si el trabajador o funcionario no estuviere de acuerdo con que el monto de lo adeudado se le deduzca de conformidad con el inciso anterior, la Administración procederá, previo debido proceso, a certificar el monto de lo adeudado y establecer el cobro respectivo.
+Mientras se realice el proceso de cobro, Popular SAFI. podrá suspender el pago del servicio de telefonía.
