@@ -1,0 +1,21 @@
+CIRCULAR No 14-2005
+Lista de funcionarios del Departamento de Infracciones del Consejo de Seguridad Vial, autorizados para firmar constancias en materia de tránsito
+A TODOS LOS DESPACHOS QUE TRAMITAN LA MATERIA DE TRANSITO SE HACE SABER QUE:
+Que el Consejo Superior en sesión NQ 03-05, celebrada el 15 de del año en curso articulo LVII, dispuso comunicarles la lista de los funcionarios del Departamento de Infracciones de la Dirección de Logística del Consejo de Seguridad Vial, que están autorizados para firmar las constancias requeridas por los Juzgados de Transito y Contravencionales que atienden los asuntos en materia de transito, con el fin de tramitar la devolución de placas, vehículos y licencias detenidas durante el periodo comprendido del 3 de enero al 31 de diciembre del año en curso, a
+1. Rafael Mora Montoya.
+Jefe del Departamento de Infracciones.
+2. Jazmín Martínez Córdoba.
+Jefe de Atención al Público.
+3. Lorena Rodríguez Suárez.
+Técnica Informática.
+4. Manuel Salazar Chévez.
+Técnico Informático.
+5. Miguel Carrillo Quirós.
+Técnico Informático.
+6. Ana Cordero Araya.
+Técnica Informática
+7. Ronald Ramírez Rodríguez.
+Técnico informático
+8. Siuyen Apuy Wong
+Técnico Informático
+San José, 22 de febrero del 2005.
