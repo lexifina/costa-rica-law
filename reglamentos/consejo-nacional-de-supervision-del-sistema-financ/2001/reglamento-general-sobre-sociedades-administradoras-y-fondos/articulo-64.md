@@ -1,0 +1,5 @@
+Artículo 64. Trámite de autorización
+La solicitud de autorización de comercialización deberá presentarse a la Superintendencia General de Valores con toda la documentación exigida en el Artículo anterior.
+No se dará curso a las solicitudes que no cumplan con todos los requisitos allí establecidos; en tal caso, la Superintendencia comunicará al solicitante los requisitos omitidos con el propósito de que los subsane.
+La autorización para la comercialización de fondos extranjeros será competencia del Superintendente General de Valores; pero éste podrá delegarla en el Intendente. El plazo para resolver las solicitudes de autorización se regirá por las disposiciones contenidas en la Ley General de la Administración Pública. Para este efecto los plazos empezarán a correr a partir del momento en que el solicitante ha cumplido ante la Superintendencia con la presentación de todos los requisitos establecidos en el presente Reglamento.
+El Superintendente General de Valores deberá enviar al CONASSIF informes mensuales sobre las autorizaciones concedidas y denegadas, y su fundamentación.

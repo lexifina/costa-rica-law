@@ -1,0 +1,2 @@
+Artículo 82. Prohibiciones relativas al arrendamiento de inmuebles
+Los partícipes de los fondos y las personas que formen parte de su grupo de interés económico; así como la sociedad administradora, sus socios, directivos, empleados y las personas y entidades que formen parte de su grupo de interés económico no podrán ser arrendatarios de los bienes inmuebles que integren los activos del fondo. Para estos efectos regirá la definición de grupo de interés económico establecida en el Artículo anterior de este Reglamento.

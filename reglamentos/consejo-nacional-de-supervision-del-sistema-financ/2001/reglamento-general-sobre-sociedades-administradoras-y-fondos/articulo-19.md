@@ -1,0 +1,3 @@
+Artículo 19. Inicio de operaciones y cancelación de la autorización
+Los fondos de inversión deberán iniciar operaciones en un plazo no mayor a seis meses contados a partir de la comunicación por parte de la Superintendencia de la verificación del cumplimiento de los requisitos establecidos en el párrafo segundo del Artículo anterior. En caso de que el fondo no inicie sus operaciones en el plazo correspondiente, la autorización se cancelará.
+Para estos efectos se entenderá que han iniciado operaciones cuando cuenten con el activo mínimo neto y el número mínimo de inversionistas establecido en este Reglamento.

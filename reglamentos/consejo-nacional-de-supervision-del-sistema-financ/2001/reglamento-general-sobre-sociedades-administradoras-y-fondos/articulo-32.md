@@ -1,0 +1,3 @@
+Artículo 32. Representación de las participaciones y trámites de reposición
+Las participaciones de los fondos de inversión estarán representadas por certificados de participación emitidos a la orden. Estos certificados podrán representarse en forma física o mediante anotaciones en cuenta.
+En el caso de pérdida, hurto o robo de certificados de participación de fondos cerrados emitidos en forma física, se procederá de conformidad con las reglas para la reposición de títulos valores a la orden, establecidas en el Código de Comercio. En el caso de pérdida, hurto o robo de certificados de participación de fondos abiertos, el inversionista comunicará la pérdida a la sociedad administradora, con el propósito de que ésta le emita un nuevo certificado.

@@ -1,0 +1,8 @@
+Artículo 6. Cambio de control de la sociedad administradora
+Los cambios en el control de una sociedad administradora deberán ser autorizados previamente por el Superintendente. Para los efectos de este Artículo se entiende que ostenta el control la persona física o jurídica que posea en forma directa o indirecta un porcentaje superior al cincuenta por ciento (50%) del capital social o que ostente la mayoría en la junta directiva de la sociedad. Para estos efectos, se entenderá que pertenecen a la misma persona, las acciones que posea su grupo de interés económico de conformidad con la definición establecida en este Reglamento.
+La autorización estará sujeta a la presentación de la siguiente documentación:
+a. Solicitud firmada por el representante legal.
+b. Detalle de la documentación solicitada en el Artículo 3 de este Reglamento que resultaría modificada en virtud del cambio de control.
+c. Borrador de la comunicación a los inversionistas del cambio de control autorizado y de su derecho a solicitar el reembolso de sus participaciones sin comisión de salida ni costo alguno, dentro del mes siguiente a su comunicación.
+La comunicación a que se refiere el inciso c. deberá realizarse dentro del plazo de quince días hábiles contados a partir de la comunicación del acuerdo de autorización, por los medios que establezca el Superintendente. Este plazo podrá ser prorrogado por el Superintendente, hasta por un plazo igual, siempre y cuando la sociedad solicite la prórroga en forma justificada, con anterioridad al vencimiento del plazo original.
+En el caso de que las acciones de la sociedad administradora se encuentren autorizadas para oferta pública, deberá cumplirse con lo establecido en el Reglamento sobre Oferta Pública de Adquisición.

@@ -1,0 +1,2 @@
+Artículo 5. Inicio de operaciones y cancelación de la autorización
+La sociedad administradora deberá iniciar operaciones en un plazo no mayor a un año contado a partir de la comunicación por parte de la Superintendencia de la verificación del cumplimiento de los requisitos establecidos en el párrafo segundo del Artículo anterior. En caso contrario, la autorización se cancelará. Para estos efectos se entenderá que una sociedad ha iniciado operaciones cuando haya inscrito un fondo de inversión y éste haya iniciado operaciones.

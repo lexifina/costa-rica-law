@@ -1,0 +1,2 @@
+Artículo 77. Límites para la compra de inmuebles
+Únicamente podrán adquirirse inmuebles que estén construidos. Los inmuebles deberán poseerse en concepto de propiedad y libres de derechos de usufructo, uso y habilitación. La sociedad administradora será responsable de suscribir, con cargo al fondo, todos los seguros que resulten necesarios para la adecuada protección de los inversionistas en relación con los inmuebles que se adquieran.

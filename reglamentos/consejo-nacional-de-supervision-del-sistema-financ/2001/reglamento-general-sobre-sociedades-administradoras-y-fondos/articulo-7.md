@@ -1,0 +1,9 @@
+Artículo 7. Fusión de sociedades administradoras
+La fusión de sociedades administradoras deberá ser autorizada previamente por el Superintendente. Las sociedades deberán presentar la siguiente documentación:
+a. Solicitud firmada por los representantes legales de las sociedades administradoras afectadas, con los motivos que justifican la fusión.
+b. Certificación notarial de los acuerdos de las sociedades administradoras afectadas por los cuales se autoriza la fusión.
+c. Detalle de la documentación solicitada en el Artículo 3 de este Reglamento que resultaría modificada en virtud de la fusión.
+d. Explicación de los efectos que la fusión tendría en los diferentes fondos administrados por ambas sociedades.
+e. En el caso de fusión por absorción, deberá presentarse el borrador de comunicación que deberá enviar la sociedad administradora prevaleciente a los inversionistas de los fondos administrados por la sociedad absorbida, en relación con la fusión autorizada y su derecho a solicitar el reembolso de sus participaciones sin comisión de salida ni costo alguno, dentro del mes siguiente a su comunicación.
+Para efectos de la autorización, el Superintendente deberá evaluar los efectos de la fusión en relación con la generación de situaciones oligopólicas o que de otra manera puedan afectar la libre competencia. En caso de que lo estimare necesario enviará el expediente respectivo a la Comisión para la Promoción de la Competencia para promover la competencia.
+La comunicación a que se refiere el inciso d. de este Artículo deberá realizarse dentro del plazo máximo de quince días hábiles a partir de la comunicación del acuerdo de autorización, por los medios que establezca el Superintendente. Este plazo podrá ser prorrogado por el Superintendente, hasta por un plazo igual, siempre y cuando la sociedad solicite la prórroga en forma justificada, con anterioridad al vencimiento del plazo original.

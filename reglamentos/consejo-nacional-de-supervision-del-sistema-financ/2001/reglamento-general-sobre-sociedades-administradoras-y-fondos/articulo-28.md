@@ -1,0 +1,3 @@
+Artículo 28. Disponibilidad del prospecto
+La sociedad administradora deberá poner a disposición del público, para consulta, el prospecto aprobado en los siguientes lugares: su domicilio, sus oficinas principales, las oficinas de sus agentes colocadores o de su puesto representante (según se trate de fondos abiertos o cerrados) las bolsas de valores (tratándose de fondos cerrados) y la Superintendencia General de Valores. El Superintendente General de Valores determinará el número mínimo de copias del prospecto que deberá aportar la sociedad administradora.
+En el caso de que el inversionista lo solicite expresamente, la sociedad deberá proporcionarle una copia del prospecto en forma gratuita.

@@ -1,0 +1,1 @@
+IV. El Superintendente General de Valores deberá emitir los acuerdos a que se refiere este Reglamento en el plazo máximo de seis meses contados a partir de su publicación. No obstante, su ausencia no impedirá la aplicación de las normas reglamentarias correspondientes.

@@ -1,0 +1,2 @@
+Artículo 44. Premios
+Las sociedades administradoras podrán establecer premios únicamente por el plazo de permanencia o el volumen de recursos invertidos en un fondo de inversión. Estos premios deberán aplicarse en igualdad de condiciones a todos los participantes del fondo. Correrán siempre a cargo de la sociedad administradora y deberán otorgarse en efectivo o por medio de participaciones del fondo que, en tal caso, deberán ser pagadas por la sociedad administradora.

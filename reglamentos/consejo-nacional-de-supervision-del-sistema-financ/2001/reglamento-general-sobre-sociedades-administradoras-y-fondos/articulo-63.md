@@ -1,0 +1,14 @@
+Artículo 63. Requisitos de autorización
+La demostración del cumplimiento de las condiciones establecidas en el Artículo anterior se realizará por medio de la presentación de la siguiente documentación:
+a. Constancia de que el fondo se encuentra debidamente registrado y éste, el administrador o gestor y el custodio debidamente autorizados.
+Resumen de la experiencia del administrador o gestor y del custodio en el desempeño de funciones de administración y custodia respectivamente, así como de la trayectoria del fondo, este último con el contenido que defina el Superintendente.
+c. Prospecto o folleto informativo del fondo, el cual deberá presentarse en español o inglés.
+d. Declaración jurada de la entidad comercializadora del cumplimiento del requisito establecido en el inciso b. del Artículo anterior.
+e. Resumen de las principales diferencias existentes entre la legislación bajo la cual se constituyó el fondo que se comercializará y la costarricense. El Superintendente podrá establecer un contenido mínimo para este resumen.
+f. Copia del informe anual del fondo presentado ante el órgano regulador del país de origen, el cual deberá presentarse en idioma español o inglés, en caso de que tal requisito existiere en el país de origen.
+g. Copia certificada del contrato de comercialización suscrito entre el administrador o gestor del fondo y la entidad comercializadora. El Superintendente podrá establecer un contenido mínimo para este contrato y de considerarlo necesario, podrá establecer un contrato marco. En todo caso ya sea en el contrato o en cualquier otro documento idóneo el administrador o gestor deberá autorizar a la entidad comercializadora a brindar a la Superintendencia General de Valores la información que ésta requiera en materia de funcionamiento del fondo y de las inversiones que éste realice para efectos de la protección del público inversionista.
+h. Documentación que acredite la existencia de los mecanismos que se utilizarán para el pago a los inversionistas.
+i. Copia del contrato que deberán suscribir los clientes con el gestor o administrador del fondo.
+j. Copia del contrato que deberán suscribir los clientes con la entidad comercializadora. El Superintendente podrá establecer un contenido mínimo para este contrato, y de considerarlo necesario, podrá establecer un contrato marco. Este contrato únicamente será necesario en el caso en que de conformidad con los usos y costumbres del mercado de origen del fondo no se requiera de la suscripción de un contrato entre el gestor del fondo y los inversionistas.
+k. Copia del aviso de oferta pública, el cual deberá adecuarse al formato y contenido que defina el Superintendente.
+El Superintendente General de Valores definirá los medios a través de los cuales se demostrará la autenticidad de la documentación presentada de conformidad con este Artículo.

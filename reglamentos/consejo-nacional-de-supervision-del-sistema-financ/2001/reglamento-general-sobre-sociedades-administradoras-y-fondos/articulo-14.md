@@ -1,0 +1,2 @@
+Artículo 14. Límites a la inversión de los recursos propios
+Las sociedades administradoras deberán mantener sus recursos propios en efectivo, en valores de oferta pública de emisores nacionales o extranjeros, y en activos fijos, estos últimos en el porcentaje definido en el Artículo 12 inciso ii. de este Reglamento. Las inversiones de dichos recursos deberán respetar sanos principios de diversificación, adecuada gestión de riesgo, y serán valoradas de conformidad con las Normas Internacionales de Contabilidad.
