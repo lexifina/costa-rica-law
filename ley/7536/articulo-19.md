@@ -1,8 +1,8 @@
 ARTICULO 19.- Cobro judicial.
 Si la formalización de algún crédito no llega a realizarse, la Junta
-dispondrá inmediatamente el cobro judicial, en cuyo caso demandará el pago
-íntegro de todas las multas, los intereses capitalizados, los intereses
-moratorios y el principal.
+dispondrá inmediatamente el cobro judicial, en cuyo caso demandará el
+pago íntegro de todas las multas, los intereses capitalizados, los
+intereses moratorios y el principal.
 Para esta labor, la Junta contratará a los abogados que sea
 necesario, según lo establecido en el artículo 9 anterior, procurando que
 en la distribución de los casos entre ellos exista la mayor equidad, de
