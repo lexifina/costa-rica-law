@@ -13,3 +13,4 @@ Reglamento Adquisición por Organismos Descentralizados de Bonos delGobierno Cen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-04-22 | la propia norma |
+| 2 | 1980-04-22 | SINALEVI (sin norma nombrada) |
