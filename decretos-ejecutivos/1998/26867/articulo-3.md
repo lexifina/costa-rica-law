@@ -1,4 +1,0 @@
-Artículo 3°—El Centro Nacional de Geoinformática tendrá los siguientes objetivos:
-a) Apoyar a las labores de ordenamiento territorial promovidas por las instituciones con alguna competencia sobre el uso del territorio, bajo la coordinación de MIDEPLAN, en su calidad de ente planificador nacional.
-b) Proveer la plataforma de comunicación para una Red Nacional de Sistemas de Información Geográfica, por medio de bancos y bases de datos adecuadas para llenar esta función, así como con los sistemas de comunicación electrónica correspondientes, incluyendo el Internet.
-c) Actuar como punto focal nacional para el desarrollo y comunicación de tecnologías de información geográfica, para orientar la capacitación de diferentes niveles profesionales y técnicos y como elemento fundamental de divulgación y relaciones públicas.

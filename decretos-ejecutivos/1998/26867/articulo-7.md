@@ -1,1 +1,0 @@
-Artículo 7°—MIDEPLAN suscribirá a nombre del Gobierno de Costa Rica los convenios que se consideren necesarios para la implementación y fortalecimiento del Centro Nacional de Geoinformática, y en particular, para la integración de la Unidad Ejecutora.
