@@ -1,1 +1,0 @@
-Art 16.-El Promotor Fiscal gozar de un sueldo de ciento cincuenta doscientos pesos mensuales; y los Agentes Fiscales de cincuenta ochenta pesos, juicio del Poder Ejecutivo, según la importancia de los negocios de la provincia ó comarca para que sean nombrados.

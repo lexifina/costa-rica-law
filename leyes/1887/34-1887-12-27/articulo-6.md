@@ -1,1 +1,0 @@
-Art 6°.- El Promotor Fiscal prestar el juramento de ley ante el Secretario de Estado en el despacho de Justicia; los Agentes Fiscales ante el Gobernador de la provincia ó comarca donde han de ejercer sus funciones; los Procuradores Fiscales ante la autoridad que los nombre, y los Fiscales Específicos, ante el Secretario de Justicia ó ante la autoridad que ‚ste designe.
