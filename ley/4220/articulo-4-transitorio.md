@@ -1,0 +1,2 @@
+Transitorio IV.-La Dirección General de Aviación Civil y el Ministerio de Transportes mantendrán, respectivamente, el ejercicio de las competencias transferidas por esta ley a la junta de Aviación Civil, sobre los asuntos cuyo trámite se hubiere iniciado antes de la promulgación de la misma y hasta tanto entre en posesión la referida junta.
+(Así adicionado por el artículo 1° de la ley N° 4270 del 3 de diciembre de 1968)
