@@ -1,1 +1,0 @@
-Artículo 7°-Las personas que por cualquier motivo, que no fuere justa causa, no procedieran de inmediato a destruir la langosta que invadiere sus fundos, sufrirán arresto de uno a noventa días o multa de dos a ciento ochenta colones. Igual pena sufrirá la persona que se negare a colaborar con los Delegados de la Sección de Defensa Agrícola, en la lucha contra la langosta.
