@@ -1,2 +1,2 @@
-Artículo 4°-El Poder Ejecutivo al reglamentar esta ley, que comenzará a regir en la fecha de su publicación, dictará las disposiciones conducentes para asegurar el debido control sobre el cobro del impuesto, quedando asimismo autorizado para hacer los arreglos convenientes respecto a saldos atrasados que se adeuden por el impuesto cedular.
+Artículo 4°-(Derogado por el artículo 1° de la ley N° 228 del 13 de octubre de 1948)
 Casa Presidencial.-San José, a los dieciocho días del mes de octubre de mil novecientos cuarenta.
