@@ -1,1 +1,1 @@
-Artículo 7°—Los poseedores de tierras sin inscribir, serán reubicados por el Instituto de Tierras y Colonización, o en su defecto recibirán el justo precio de sus mejoras.
+Artículo 7°—La Dirección General Forestal deberá materializar en el terreno los linderos de la reserva así como encargarse su vigilancia.

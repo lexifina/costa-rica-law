@@ -1,1 +1,2 @@
-Artículo 8°—El aprovechamiento de cualquiera de los recursos naturales de la reserva, sólo será permitido bajo normas técnicas que la Dirección General Forestal fije de acuerdo a los principios de manejo técnico, según se estatuye en la Ley Forestal N° 4465.
+Artículo 8°—Los terrenos debidamente inscritos en el Registro Público, los amparados por la posesión decenal y los que estén en conflicto precario, quedan sometidos obligatoriamente al Régimen Forestal por lo que los aprovechamientos forestales se harán en función de planes técnicos de manejo forestal aprobados por la Dirección General Forestal.
+Las fincas con áreas en producción agrícola continuarán con esta explotación hasta tanto el Estado no las adquiera.

@@ -1,2 +1,1 @@
-Artículo 11.—Rige a partir de su publicación.
-Dado en la Casa Presidencial.—San José, a los veinticinco días del mes de febrero de mil novecientos setenta y seis.
+Artículo 11.—La Dirección General Forestal podrá celebrar convenios con la Universidad de Costa Rica, la Universidad Nacional, el Centro Agronómico Tropical de Investigación y Enseñanza, con las dependencias y los organismos del Gobierno Central, los entes autónomos y semiautónomos y los organismos internacionales, tendientes a la organización de estudios experimentales, construcciones y cualquier actividad afín, dentro de la demarcación de la reserva.

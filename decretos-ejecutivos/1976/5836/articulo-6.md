@@ -1,1 +1,1 @@
-Artículo 6°—Todas las propiedades debidamente inscritas ubicadas dentro de la reserva, quedan sometidas al Régimen Forestal, conforme se indica en la Ley Forestal N° 4465.
+Artículo 6°—El aprovechamiento de cualquiera de los recursos naturales de la reserva sólo será permitido bajo normas técnicas que la Dirección General Forestal, aprobará en su oportunidad y según la zonificación que a tal efecto se establezca.

@@ -1,1 +1,1 @@
-Artículo 5°—La Guardia de Asistencia Rural y la Dirección General Forestal, tendrán a su cargo la vigilancia y el cumplimiento del presente decreto.
+Artículo 5°—La Procuraduría General de la República inscribirá como finca individualizada propiedad del Estado, las reservas nacionales comprendidas dentro de la anterior demarcación y las fincas que el Estado adquiera para este fin.
