@@ -1,0 +1,2 @@
+Artículo 13
+La presente Convención será ratificada por las Altas Partes Contratantes, de acuerdo con sus procedimientos constitucionales. El Ministerio de Relaciones Exteriores de la República Oriental del Uruguay queda encargado de enviar copias certificadas auténticas a los Gobiernos para el referido fin. Los instrumentos de ratificación serán depositados en los archivos de la Unión Panamericana, en Washington, que notificará dicho depósito a los Gobiernos signatarios; tal notificación valdrá como canje de ratificaciones.
