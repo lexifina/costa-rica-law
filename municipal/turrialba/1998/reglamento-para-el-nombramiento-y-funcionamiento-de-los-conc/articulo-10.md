@@ -1,0 +1,1 @@
+Artículo 10.—Los concejos de distrito son órganos adscritos a ía Municipalidad, y no cuentan con personería jurídica, por lo que los proyectos a ejecutar se deben realizar a través de la Municipalidad.
