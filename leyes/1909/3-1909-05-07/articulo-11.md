@@ -1,0 +1,6 @@
+ARTÍCULO 11.-Vencidos los cinco años de posesión, o pasados los tres en el caso figurado en el final del artículo 6°, el denunciante podrá acudir ante el Juez de lo Contencioso-Administrativo en solicitud de título inscribible.
+La solicitud explicar detalladamente los cultivos hechos y la extensión de cada parcela, as¡ como las condiciones y medidas de la casa construida. Expresar además de cuando cuando ha residido en el terreno con familia.
+En la solicitud se dirá en que‚ número y fecha del Boletín se publicó el edicto.
+El Juez con audiencia del Ministerio Público, recibir declaración de tres testigos vecinos y propietarios de bienes raíces del distrito en que esta‚ el terreno, acerca de los hechos de haber el denunciante construido una casa, practicado cultivos estables (diciendo cuales y en que‚ extensión aproximada), poseído el terreno sin interrupción y vivido con su familia los dos últimos años.
+Si el resultado da la información fuere satisfactorio, el Juez ordenar que se proceda medir el terreno por un agrimensor público, conforme lo dispuesto en los artículos 2° y 3° de la ley de 6 de agosto de 1892.
+Al mismo tiempo publicar el Juez en el Boletín Judicial, por tres veces consecutivas, un edicto para que acudan los que crean tener derecho en el lote, dentro de los treinta días naturales siguientes la fecha de la primera publicación.

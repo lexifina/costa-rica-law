@@ -1,0 +1,1 @@
+ARTíCULO 8°.-Antes de obtener t¡tulo de las tierras, en la forma que adelante se explica, no podrán ser perseguidas ni embargadas por deudas anteriores la declaraci¢n de la propiedad definitiva, ni las mismas tierras, ni las mejoras, ni los frutos.

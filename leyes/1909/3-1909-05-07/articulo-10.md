@@ -1,0 +1,1 @@
+ARTÍCULO 10.-Los terrenos poseídos en virtud de esta ley, con autorización del Juez, no son denunciables por terceros, salvo el caso previsto en los artículos 7°y 9°; salvo asimismo el caso que se explicar en el artículo 13.

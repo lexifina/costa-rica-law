@@ -1,0 +1,3 @@
+Artículo 13-Vencidos los treinta días señalados para oposición, sin que se presente persona alguna, y hecha que hubiere sido la medida y presentado el informe, el Juez hará la adjudicación del terreno y ordenar la inscripción en el Registro de la Propiedad, para lo cual librar testimonio de las diligencias en papel sellado de cincuenta céntimos.
+Si de la medida resultare que lo cultivado no es la quinta parte de la extensión total, el título se librar únicamente por el quíntuplo de lo cultivado, y hará el Juez que el agrimensor señale en el plano total el lote que queda como tierras baldías.
+Hecha esta separación, el Juez hará la adjudicación y librar el título como se ha dicho.
