@@ -1,1 +1,0 @@
-Artículo 7°.- Con vista del estado de os saldos correspondientes a cada categoría, al finalizar cada mes podrá la Junta, cuando así lo estimare prudente para facilitar los pagos, traspasar de la primera a la segunda categoría y viceversa, cualquier sobrante de divisas o parte de él.
