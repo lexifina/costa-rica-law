@@ -1,0 +1,1 @@
+IV.—Aquellos procedimientos que al entrar en vigencia esta resolución cuentan con la publicación o invitación del aviso a participar, continuarán su trámite hasta su finalización conforme con las formalidades propias del procedimiento iniciado.
