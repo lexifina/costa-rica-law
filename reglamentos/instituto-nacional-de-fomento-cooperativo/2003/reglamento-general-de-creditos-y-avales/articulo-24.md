@@ -1,0 +1,1 @@
+Artículo 24.—Si el INFOCOOP recibe fondos de fuentes externas que tengan condiciones limitadas sobre la tasa de interés, que se pueda cobrar sobre el uso de esos fondos, la Junta Directiva lo reglamentará en cada caso.

@@ -1,0 +1,7 @@
+Artículo 16.—Sin perjuicio de lo establecido en el artículo 15, los préstamos que otorgue el INFOCOOP, no podrán ser superiores, en conjunto, a 10 veces el capital social pagado de cada cooperativa, y el financiamiento de inversiones fijas no podrá sobrepasar el 80% del valor de las mismas, debiendo acreditar en cada caso la solicitante que cuenta con los recursos necesarios para cubrir la diferencia, excepto créditos para capitalización, en cuyo caso el monto del crédito será tomado en cuenta para esta relación.
+Se exceptúan de esta disposición todas aquellas cooperativas de reciente inscripción y aquellas que presentan proyectos de inversión nuevos que califiquen dentro del Área de Emprendimiento cooperativo y autogestión, en donde el monto a financiar se otorgará dé acuerdo con el costo de los proyectos y la garantía real aportada por los asociados de la cooperativa.
+A saber:
+Proyectos con garantía real en un 100%, se financiará hasta el 100% del costo de inversión.
+Proyectos con garantía real en un 70%, se financiará hasta el 90% del costo de inversión del proyecto.
+Proyectos con garantía real en un 40%, se financiará hasta el 70% del costo de inversión del proyecto.
+En todo caso los activos financiados con el préstamo formarán parte de la garantía del proyecto. Así como la fianza solidaria de sus Consejos de Administración y Gerencia, con la que se cubrirá el monto descubierto por las garantías reales.

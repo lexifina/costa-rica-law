@@ -1,0 +1,1 @@
+Artículo 8º—Los plazos, montos máximos, tasas de interés y otras condiciones establecidas en la política de financiamiento, serán fijados y revisados periódicamente por la Junta Directiva, para tal efecto, este órgano solicitará los estudios técnicos que estime necesarios.

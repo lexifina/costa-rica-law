@@ -1,0 +1,1 @@
+Artículo 6º—El INFOCOOP podrá conceder una suma diferente a la solicitada, o denegar el financiamiento aún cuando el organismo cooperativo hubiere satisfecho todos los requisitos reglamentarios, y dicha resolución deberá contar con el debido razonamiento técnico y legal.

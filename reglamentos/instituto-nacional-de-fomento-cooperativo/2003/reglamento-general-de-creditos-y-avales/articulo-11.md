@@ -1,0 +1,2 @@
+Artículo 11.—Todo financiamiento deberá contar con la garantía, y el estudio técnico correspondiente las garantías podrán ser garantías: directas o indirectas, hipotecarias, prendarias, fiduciarias (pagares, avales y letras de cambios), títulos negociables en bolsa (privados y públicos), fideicomisos de garantías, pignoración de facturas, pignoración de macro títulos y la pignoración de inversiones electrónicas.
+También podrá participarse en garantías sindicadas con Bancos o Instituciones del Estado.
