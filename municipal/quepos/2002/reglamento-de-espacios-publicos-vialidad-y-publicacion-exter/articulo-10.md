@@ -1,0 +1,5 @@
+Artículo 10.—Arborización de las calles y mobiliario urbano. Para sembrar árboles o instalar cualquier tipo de mobiliario urbano (bancas, basureros, casetas telefónicas, postes de alumbrado, pasamanos, barreras de protección, etc.), en los espacios públicos, el Departamento de Inspecciones hará un estudio en cada caso, basándose en los siguientes lineamientos:
+a) El paso libre entre la línea de propiedad y el elemento a instalar no puede ser menor de 1,5 m.
+b) En las esquinas debe respetarse un retiro de 8 m, para cualquier instalación. En caso de instalarse kioscos de venta, ésta distancia será de 15 metros mínimo.
+c) La separación entre el cordón de caño y el mobiliario no será menor a 0,50 m., la misma separación regirá para el cordón de caño y el hoyo del árbol, la dimensión mínima del hoyo será de 30 cm de lado o de diámetro.
+d) En el centro de la ciudad de Quepos, para todos los casos anteriores debe tomarse en cuenta la obligatoriedad de construir alero, toldo o marquesina; la separación entre estos y el mobiliario es regulado por el artículo 16 de este reglamento.
