@@ -1,0 +1,1 @@
+Art 2°.- La referida Administración con el nombre de consolidación de las rentas universitarias, en la cual deben constar todas las cantidades que de esta naturaleza haya recibido, y reconocerá y pagara cada seis meses a la Tesorería de la Universidad, de preferencia a cualquiera otro gasto, los intereses vencidos a razón del doce por ciento anual.
