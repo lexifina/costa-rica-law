@@ -1,1 +1,0 @@
-Transitorio 1.—Los fondos de reserva inicial para garantizar el financiamiento del FRE y del FAP, al 31 de marzo del año 2003 serán establecidos por la Junta Directiva de la Caja, de acuerdo con las recomendaciones que al efecto dicte la Dirección Actuarial y de Planificación Económica.

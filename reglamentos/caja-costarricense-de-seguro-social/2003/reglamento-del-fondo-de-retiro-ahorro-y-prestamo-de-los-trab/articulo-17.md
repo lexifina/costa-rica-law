@@ -1,3 +1,0 @@
-De las inversiones
-Artículo 17.—Los recursos del FAP deberán invertirse en las mejores condiciones de garantía, rentabilidad y liquidez, de acuerdo con lo que establece el Reglamento para la Inversión de las Reservas del Seguro de Invalidez, Vejez y Muerte. En todo caso la colocación de fondos deberá contar con recomendación expresa del Comité de Inversiones indicado en el Artículo 11 del Reglamento del FRE.
-Toda inversión de recursos económicos en forma transitoria o de mediano y largo plazo debe realizarse en Instituciones Financieras debidamente inscritas y reguladas por la Superintendencia General de Entidades Financieras (SUGEF).

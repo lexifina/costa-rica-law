@@ -1,1 +1,0 @@
-Artículo 30.—Al trabajador que habiendo aplicado sus ahorros para cancelar los saldos de préstamo con el FRAP, según los términos del artículo anterior, le quede un remanente a su favor, deberá indicar si desea ese saldo en el FRAP, o solicitar su devolución, lo que será atendido por la Administración del FRAP conforme a las posibilidades de liquidez del fondo.

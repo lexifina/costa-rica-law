@@ -1,3 +1,0 @@
-Préstamo extraordinario, fiduciario e hipotecario
-Artículo 6º—La Junta Administrativa fijará los plazos, tasas de interés y los montos anuales a ser destinados para las líneas de crédito extraordinario, y fiduciario corriente e hipotecario, según las recomendaciones que para tal efecto brinde la Dirección Actuarial y de Planificación Económica.
-El plazo máximo para amortizar los préstamos extraordinarios y fiduciario corriente será de 6 años. La tasa de interés que se fije, siempre será superior a la tasa mínima actuarial y estará acorde con las condiciones de mercado. El plazo máximo para los préstamos hipotecarios será de 25 años.

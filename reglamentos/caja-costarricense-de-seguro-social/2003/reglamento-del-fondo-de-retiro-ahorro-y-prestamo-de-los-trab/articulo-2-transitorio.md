@@ -1,1 +1,0 @@
-Transitorio 2º—La Junta Administrativa del FRAP en un plazo de 3 meses elaborará el Reglamento de Inversiones del Fondo de Retiro Ahorro y Préstamo y lo hará del conocimiento de las autoridades competentes.

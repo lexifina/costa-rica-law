@@ -1,8 +1,0 @@
-Financiamiento
-Artículo 15.—El FAP se financiará de la siguiente manera:
-a) Un aporte a cargo del afiliado, el cual no podrá ser inferior al 5% del salario mensual. Este aporte más su rendimiento, se capitalizará en cuentas de ahorro a nombre de cada trabajador. Dichos recursos se utilizarán para el financiamiento de la cartera de crédito ordinario sobre ahorro y extraordinario.
-b) Un aporte de la Caja equivalente al 1% de los salarios ordinarios más el rendimiento de los fondos que se acumulen, constituirán el Fondo de Reserva Institucional, el cual podrá destinarse al crédito fiduciario e hipotecario corriente o bien invertirse en las mejores condiciones de garantía y rentabilidad.
-c) Un aporte de la Caja equivalente al 0.5% de los salarios más el rendimiento de los fondos que se acumulen, constituirán el Fondo de Reserva para Capital de Retiro Laboral. Dicho fondo deberá invertirse en las mejores condiciones de garantía y rentabilidad.
-d) Otros recursos que pudieran captarse.
-Todos los recursos previstos en el inciso a) se registrarán en cuentas individuales a favor de cada afiliado, a los cuales se les agregará la capitalización que determine la Junta Administrativa de acuerdo con el artículo siguiente.
-Los recursos previstos en los incisos b) y c) antes indicados, se registrarán en dos cuentas colectivas una vez deducidos los gastos generales de administración y su manejo se ajustará a las recomendaciones que periódicamente brinde la Dirección Actuarial y de Planificación Económica. En caso de ser necesario, de acuerdo con lo que establece el artículo 10 del Reglamento del FRE, se tomarán los recursos pertinentes del Fondo de Reserva Institucional antes indicado.

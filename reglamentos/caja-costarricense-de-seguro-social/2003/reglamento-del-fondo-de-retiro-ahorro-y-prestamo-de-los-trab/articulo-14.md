@@ -1,3 +1,0 @@
-Prohibiciones
-Artículo 14.—No se podrá conceder préstamos a aquellos trabajadores sobre cuyos salarios se hayan decretado embargos, salvo que el monto del préstamo a que tengan derecho sea suficiente para levantar dichos embargos y en el entendido de que el préstamo se destinará a ese fin, de conformidad con los procedimientos que la Junta Administrativa establezca.
-Excepcionalmente la Junta Administrativa podrá autorizar un préstamo a quien tenga su salario embargado, siempre que el embargo no tenga origen en una deuda propia y que el salario líquido sea suficiente para atender las retenciones del embargo y del abono al préstamo que se le concede.
