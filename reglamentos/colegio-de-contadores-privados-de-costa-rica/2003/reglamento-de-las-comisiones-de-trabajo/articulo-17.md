@@ -1,0 +1,1 @@
+Artículo 17.—El presidente de la junta directiva podrá asistir a cualquier comisión, cuando las circunstancias así lo ameriten o por voluntad propia sin devengar dieta alguna. No podrá ser miembro de ninguna Comisión.

@@ -1,0 +1,1 @@
+Artículo 10.—Las actas se aprobarán en la siguiente sesión. Antes de esa aprobación los acuerdos tomados carecerán de firmeza pudiendo en casos especiales declarados firmes en la misma sesión en que se analizaron para lo cual será necesario contar con la votación de dos tercios de los miembros presentes.

@@ -1,0 +1,1 @@
+Artículo 20.—Quedará a discreción del director de la comisión si por llegada tardía, de algún miembro a la reunión, se cancele o no la dieta. No obstante con la ausencia a tres reuniones ordinarias consecutivas dará pie a la separación inmediata del cargo.

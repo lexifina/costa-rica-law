@@ -1,0 +1,1 @@
+Artículo 3º—La junta directiva autorizará la cantidad y el tipo de comisiones que estime necesario, las cuales presentarán un plan de trabajo para el cabal cumplimiento de sus funciones en un plazo no mayor de quince días naturales a partir de su nombramiento.
