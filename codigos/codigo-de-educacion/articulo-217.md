@@ -1,0 +1,4 @@
+Artículo 217.- Las Juntas y demás autoridades escolares deberán
+llamar la atención de los padres de familia sobre la época de la
+apertura del curso, y la matrícula escolar, y también sobre las penas
+en que incurren.

@@ -1,0 +1,4 @@
+Artículo 43.- La creación de la Tesorería Escolar de distrito debe
+ser autorizada por la Secretaría de Educación, previo examen de las
+razones que indiquen su conveniencia. Toda Tesorería especial de
+distrito, se considerará como auxiliar de la Cantonal.

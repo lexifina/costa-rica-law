@@ -1,0 +1,13 @@
+Artículo 488.- Cada filial debe elegir anualmente una Directiva,
+integrada por no menos de cinco miembros propietarios, los que pueden
+ser reelectos, con las denominaciones que establece el inciso primero
+del artículo diez de la Ley de Asociaciones. La integración de esta
+directiva debe comunicarse de inmediato a la Central para su inscripción
+en los libros correspondiente; de esta inscripción el Presidente de la
+Directiva Central dará certificación a la filial respectiva para que
+pueda acreditar su personería.
+La elección de las directivas de las filiales debe hacerse por
+mayoría absoluta de votos de los componentes de cada cual; sus
+resoluciones se tomarán también por mayoría absoluta de votos, salvo en
+aquellos casos en que la ley y estos estatutos exijan mayor número
+debiendo comunicarse a la Directiva Central.

@@ -1,0 +1,4 @@
+Artículo 119.- Los maestros ordinarios a quienes se encargue
+lecciones de asignaturas especiales, recibirán un sobresueldo que se
+liquidará de acuerdo con la categoría a que pertenezcan como maestros
+especiales.

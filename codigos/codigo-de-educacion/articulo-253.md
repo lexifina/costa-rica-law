@@ -1,0 +1,3 @@
+Artículo 253.- La Inspección de las Escuelas dichas, así como la
+de los establecimientos particulares de educación secundaria, estarán
+a cargo de un Inspector que nombrará la Secretaría de Educación Pública.

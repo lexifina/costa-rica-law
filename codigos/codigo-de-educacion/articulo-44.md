@@ -1,0 +1,11 @@
+Artículo 44.- Ninguna persona nombrada para desempeñar el cargo de
+Tesorero Escolar, podrá entrar en ejercicio sin haber prestado la
+garantía que señala el artículo 41.
+La prestación y la cancelación de la garantía fiduciaria se hará
+ante el respectivo Inspector de Escuelas. Para estos actos las Juntas
+dan su representación al Presidente de la del distrito en que tiene
+asiento la Tesorería Escolar Cantonal.
+La Contaduría General Escolar puede exigir a los Tesoreros
+Escolares, cuando lo tenga a bien, que garanticen su responsabilidad con
+póliza de fidelidad extendida por el Banco Nacional de Seguros, en vez
+de las garantías que establecen este artículo y el 41.

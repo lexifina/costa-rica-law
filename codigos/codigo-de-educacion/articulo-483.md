@@ -1,0 +1,25 @@
+Artículo 483.- El Congreso Nacional de Educadores es la autoridad
+máxima de la Asociación. Sus atribuciones fuera de las que por aparte
+se señalan son:
+Elegir los integrantes de la Directiva Central; modificar las
+cuotas periódicas indicadas, y fijar las de ingreso si llegaren a
+establecerse; conocer de los informes de la Directiva Central y los que
+las filiales le presenten; reformar los Estatutos de la Asociación.
+Estas reformas deben ser aprobadas por dos tercios de votos presentes
+y de ellas puede conocerse en reunión extraordinaria a petición del
+cincuenta por ciento de los componentes del Congreso.
+El Congreso se reunirá en la capital de la República o en la ciudad
+que en la sesión anterior designe la mayoría. Ordinariamente debe
+hacerlo una vez al año, por lo menos, en los últimos quince días de cada
+ejercicio, previa convocatoria que hará la Directiva Central con
+especificación de los puntos a discutir. La convocatoria se hará por
+medio de una circular que habrá de ser publicada en el Diario Oficial.
+El Congreso actuará válidamente con la presencia de un tercio del total
+de sus componentes, según el registro que llevará la Directiva Central.
+Sus resoluciones se tomarán por mayoría absoluta de votos presentes,
+salvo los casos en que la ley o los Estatutos indiquen mayor número.
+El Presidente de la Directiva Central presidirá las sesiones del
+Congreso Nacional de Educadores; como Secretarios actuarán los de la
+Directiva citada.
+El Congreso Nacional de Educadores se dará su propio reglamento
+interno.
