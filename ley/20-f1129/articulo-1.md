@@ -1,0 +1,33 @@
+PODER LEGISLATIVO
+N° 20
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
+(Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
+DECRETA:
+Artículo I°-Apruébase el contrato celebrado el 27 de diciembre del año próximo pasado entre el señor Subsecretario de Estado en el Despacho de Fomento y los señores Hopkins y Orlich, el cual dice literalmente así:
+Enrique Jiménez Núñez, Subsecretario de Estado en el Despacho -de Fomento, autorizado al efecto por el señor Presidente de la República y Federico Hopkins, en representación de la Sociedad Hopkins y Orlich domiciliada en San Ramón, hemos celebrado el siguiente contrato:
+I
+Hopkins y Orlich se comprometen a instalar a más tardar dentro de tres años, un servicio de automóviles entre la ciudad de San Ramón y el lugar más adecuado de la línea del ferrocarril al Pacífico, pasando por los cantones de Atenas y . Palmares, con sujeción a las siguientes condiciones:
+a) El material será de la calidad y del sistema más adoptado en los Estados U nidos.
+b) Habrá dos automóviles capaces para trasportar diez y ocho pasajeros cada uno y otros dos suficientes para conducir seis toneladas de carga cada uno. El número de automóviles se aumentará cuando el volumen del tráfico lo exija en relación con el aumento de éste.
+c) Por lo menos correrá diariamente un automóvil de carga y otro de pasajeros en cada dirección entre los puntos terminales del servido, observando un itinerario que corresponda en el punto de partida de la línea férrea con las llegadas y salidas del tren de pasajeros.
+d) La tarifa no podrá exceder de diez céntimos de colón para cada pasajero por cada kilómetro, ni de seis céntimos para cada cien kilos de carga por igual distancia, menos en cuanto a los bultos demasiado voluminosos o que por su naturaleza estén expuestos a deterioro o pérdida para los que regirá un precio especial. El mínimum que se cobrará por cualquier flete será de veinticinco céntimos. Los Empresarios serán responsables de averías y pérdidas de mercaderías en todo caso salvo caso fortuito bien comprobado. La tarifa y las modificaciones que sufra, deberán publicarse con la debida anticipación en LA GACETA y exponerse al público en las Oficinas de la Empresa.-Hopkins & Orlich tendrán el derecho de tanteo para establecer los servicios de automóviles entre San Carlos, Naranjo y San Ramón o entre San Carlos y San Ramón y Naranjo. Ese derecho deberán ejercitarlo los señores Hopkins & Orlich dentro de los seis meses a contar del día en que les dé aviso el Poder Ejecutivo.
+e)
+f) Harán por su cuenta la adquisición de la faja de terreno necesaria para que sirva de vía a los automóviles, la propiedad de la cual será inscrita libre de gravámenes en el Registro P6blico en nombre del Estado.
+g) Arreglarán a sus expensas dicha vía con una gradiente que no exceda del diez por ciento, con un balaste adecuado. en buenas condiciones para el servicio a que está destinada y así la mantendrán durante la vigencia de este contrato, todo a satisfacción de la Dirección General de Obras P6blicas.
+h) Construirán por su cuenta estaciones en los lugares de importancia.
+i) Las faltas en el servicio que no provengan de la voluntad de los contratistas sólo darán derecho a la más pronta reparación, pero si alguna vez la interrupción del servicio llegare o excediere de tres meses caducará de hecho el contrato sin lugar a indemnización por ningún motivo.
+j) Este contrato no podrá ser traspasado a otra persona o Empresa sin la aprobación del Poder Ejecutivo.
+II
+El Gobierno de la República concede a Hopkins y Orlich lo siguiente:
+a) Un auxilio de cuarenta mil colones que se entregará así: veinte mil colones cuando terminados los estudios para localizar la vía esté ésta inscrita en nombre del Estado, siempre que Hopkins y Orlich garanticen a satisfacción del Ejecutivo, la devolución de dicha suma en caso de no tener a su tiempo establecido el servicio de automóviles, de acuerdo en un todo con las estipulaciones enumeradas en la cláusula primera; los otros veinte mil colones los entregará cuando a juicio del Ejecutivo se hayan invertido en la nivelación, balastre y arreglo de la vía para los automóviles veinte mil colones, sin tomar en cuenta el valor de la tierra, ni de los estudios para localizar dicha vía.
+b) Durante toda la vigencia de este contrato concede además: l°.-El usufructo de la faja de terreno adquirida para que sirva de vía a los automóviles la cual no podrá ser destinada a otros usos por ningún motivo; 2°-Derecho para tender una línea telefónica en buenas condiciones de seguridad en los puentes de los caminos públicos y en las secciones de éstos que utilicen los contratistas, una vez arreglados a sus expensas, conforme se expresa en el inciso g) del artículo la; 3°-Privilegio exclusivo para la explotación del servicio público de automóviles entre todos y cada uno de los lugares en que hacen Hopkins y Orlich ese tráfico, sea por la vía destinada a ese fin, sea por los caminos públicos, lo que no será obstáculo para que los particulares para usos propios transiten con automóviles, aunque no sean de pertenencia de los concesionarios. por las calles públicas; 4°-Exención de todo impuesto nacional o municipal sobre el negocio a que este contrato se refiere y sobre la importación de todos los materiales que se introduzcan para su explotación:
+III
+El Poder Ejecutivo decretará la expropiación forzosa, por causa de utilidad pública, de las porciones de terreno necesarias para la vía referida, pero los señores Hopkins y Orlich tomarán a su cargo los juicios consiguientes, obligándose a pagar las indemnizaciones para satisfacer el valor de los inmuebles, de los daños y perjuicios, de las cercas y de los gastos judiciales.
+IV
+Este contrato durará cincuenta años. Terminado éste, por vencimiento del plazo o por cualquier otra causa, las mejoras hechas en la vía o en los caminos públicos, corresponderán al Estado sin lugar a indemnización alguna. Si al vencerse el término el Gobierno dispusiere otorgar una concesión semejante a la presente para el servicio de automóviles entre los lugares expresados, los contratistas Hopkins y Orlich tendrán derecho de tanteo para continuar el servicio.
+V
+Toda cuestión que se suscite con motivo de este contrato será resuelta por tres árbitro nombrados uno por cada parte y el tercero por los árbitros designados por las parte.
+VI
+Este contrato necesita para su validez la aprobación del Congreso Constitucional.
+En fe de lo cual firman los otorgantes en San José, el veintisiete de diciembre de mil novecientos doce.
+Apruébase el contrato anterior.
