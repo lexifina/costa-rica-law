@@ -1,0 +1,3 @@
+La municipalidad del Cantón Central de Puntarenas, acordó en sesión ordinaria Nº 95 celebrada el día 14 de mayo del 2003 artículo 2º modificar el artículo Nº 2 del
+REGLAMENTO SOBRE GASTOS FIJOS Y ADQUISICIONES DE BIENES Y SERVICIOS DE COMPETENCIA DEL SEÑOR ALCALDE MUNICIPAL
+Artículo 2º—"... después de amplios comentarios al respecto SE ACUERDA: Autorizar al señor Alcalde Municipal, señor Profesor Omar Obando Suárez a elevar el monto para firmar y hacer los movimientos de compra de esta Municipalidad por un monto de ¢2.000.000,00 (dos millones de colones netos). Votado el acuerdo este es aprobado unánime y en firme.
