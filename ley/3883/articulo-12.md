@@ -1,0 +1,3 @@
+ARTICULO 12.- Los documentos serán inscritos de acuerdo con los procedimientos establecidos en el reglamento del Registro, procurando que la inscripción se lleve a cabo en la forma más rápida posible.
+Procederá, si así fuere solicitado por las partes o por el notario autorizante, la inscripción parcial de uno o más documentos cuando se hubiesen presentado conjuntamente, o de la parte correcta de un documento, siempre que fuere legalmente posible, de conformidad con el artículo 452 del Código Civil y los artículos 7º y 8º de esta ley.
+(Así reformado por el artículo 18 de la Ley Nº 6575 de 27 de abril de 1981)

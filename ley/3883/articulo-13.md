@@ -1,0 +1,2 @@
+ARTICULO 13.- El Registro no podrá negarse a inscribir documentos relativos a personas extranjeras que sólo usen un apellido, por el único hecho de no consignarse el segundo apellido. En tales casos, si fuere necesario, la anotación en el índice se hará por la combinación del nombre y el único apellido que se indicare en el documento, con la referencia del número del documento de identificación y su clase si se constaren en aquél.
+(Así reformado por el artículo 2 de la Ley No.6145 del 18 de noviembre de 1977)
