@@ -1,0 +1,7 @@
+ARTICULO 106.- Principios jurídicos
+El Tribunal Ambiental Administrativo deberá realizar sus funciones
+sujeto a los principios de oralidad, oficialidad, celeridad e inmediación
+de la prueba. Deberá ajustar su actuación al procedimiento y las normas de
+funcionamiento establecidos en el presente código y, supletoriamente, a la
+Ley General de la Administración Pública, Libro Segundo, Capítulo "Del
+Procedimiento Ordinario".

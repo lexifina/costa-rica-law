@@ -1,0 +1,5 @@
+ARTICULO 97.- Autorización para contribuir
+Se autoriza a las instituciones del Estado y a las municipalidades
+para incluir, en sus presupuestos, las partidas anuales que estimen
+convenientes con el propósito de contribuir a los programas y proyectos de
+la Secretaría Técnica Nacional Ambiental.

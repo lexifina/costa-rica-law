@@ -1,0 +1,11 @@
+ARTICULO 88.- Reglamentación y funcionarios
+Los integrantes de la Secretaría Técnica Nacional Ambiental serán
+funcionarios de tiempo completo, con dedicación exclusiva y prohibición
+para el ejercicio de sus actividades personales, profesionales o
+particulares. Serán nombrados por seis años y deberán dividirse en dos
+grupos para que la mitad de sus miembros se elija en el medio período. Sus
+deliberaciones y resoluciones se adoptarán en comisión plenaria, de
+conformidad con el reglamento de funcionamiento interno que el Poder
+Ejecutivo emitirá en el plazo de tres meses, contados a partir de la
+vigencia de esta ley. Su remoción sólo podrá ser acordada cuando exista
+falta grave o incumplimiento de lo que establecen esta u otras leyes.

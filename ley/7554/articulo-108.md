@@ -1,0 +1,12 @@
+ARTICULO 108.- Procedimiento del Tribunal
+Al recibir la denuncia, el Tribunal identificará al denunciante y
+siempre oirá a la persona a quien pueda afectar el resultado de la
+denuncia, salvo si la gravedad del hecho denunciado amerita tomar medidas
+inmediatas. Posteriormente, podrá notificar el resultado.
+El Tribunal Ambiental Administrativo recabará la prueba necesaria
+para averiguar la verdad real de los hechos denunciados.
+Las partes o sus representantes y sus abogados, tendrán acceso a las
+actuaciones relativas a la denuncia tramitada ante el Tribunal Ambiental
+Administrativo, inclusive a las actas donde consta la investigación de las
+infracciones. Podrán consultarlas sin más exigencia que la justificación
+de su identidad o personería.
