@@ -1,0 +1,1 @@
+Artículo 7°-Los propietarios o encargados de granjas porcinas existentes que incumplan con lo establecido en el presente decreto ejecutivo, serán sancionados por las autoridades competentes de conformidad con el régimen de sanciones que le sea aplicable, y el permiso sanitario de funcionamiento de las granjas podrá ser cancelado.

@@ -1,0 +1,1 @@
+Artículo 9°-Refórmense los decretos ejecutivos Nos. 22815-S de 17 de enero de 1994 y 22899-S de 7 de febrero de 1994, para que en vez de "Departamento de Control Ambiental", se lea "División de Saneamiento Ambiental".

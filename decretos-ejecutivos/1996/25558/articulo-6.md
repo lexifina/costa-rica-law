@@ -1,0 +1,1 @@
+Artículo 6°-Luego de un tratamiento a nivel secundario, las granjas porcinas podrán hacer uso de los líquidos para irrigación superficial o subsuperficial en terrenos con cultivos permanentes, siempre que se cumpla con los límites de calidad y los requisitos establecidos para este tipo de reuso.

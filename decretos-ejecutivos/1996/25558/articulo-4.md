@@ -1,0 +1,1 @@
+Artículo 4°-Los propietarios o encargados de granjas porcinas existentes, que no cuenten con sistemas de tratamiento de aguas residuales, tendrán un plazo de seis meses para poner en operación los mismos, previa aprobación de los proyectos respectivos por parte de la Oficina Central para el Trámite de Visado de Planos de Construcción.
