@@ -13,3 +13,4 @@ Autoriza Venta Artane Sólo Bajo Prescripción Médica Sicotrópica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-07-07 | la propia norma |
+| 2 | 1980-07-07 | SINALEVI (sin norma nombrada) |
