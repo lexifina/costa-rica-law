@@ -1,0 +1,1 @@
+Decimosexta: La Dirección del CATIE será ejercida por el Director del CATIE que deberá ser nacional de uno de los Estado Miembros del IICA, será elegido por el Consejo Directivo; por mayoría de dos tercios y tendrá un mandato de cuatro años, pudiendo ser reelegido una sola vez. No podrá ser sucedido por personas de la misma nacionalidad.

@@ -1,0 +1,3 @@
+CAPITULO V
+Del Patrimonio y de los Recursos Financieros
+Vigésimotercera: Para llevar a cabo sus fines, el CATIE podrá vender, hipotecar, pignorar, arrendar o de cualquier otro modo, o por cualquier otro medio, o por cualquier título, poseer y disponer libremente de toda clase de bienes muebles, inmuebles y semovientes, derechos reales y personales, incluyendo títulos valores de cualquier índole; podrá recibir toda clase de bienes en garantía, depósitos, fideicomiso, donación, herencia o legado, posponer créditos y garantías, obtener créditos; y en general estará facultado para celebrar toda clase de actos, contratos u operaciones con cualquier persona, física o jurídica, nacional o extranjera e internacional.

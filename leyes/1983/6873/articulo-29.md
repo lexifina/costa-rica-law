@@ -1,0 +1,3 @@
+CAPITULO VIII
+Plazo y Modificación del Contrato
+Vigésimonovena: El plazo del presente es de 20 años, contados a partir de la planteada en vigencia del mismo. El plazo podrá prorrogarse por períodos iguales y consecutivos; y se tendrá por prorrogado si un año antes del vencimiento del plazo, la Dirección General del IICA, en acatamiento de acuerdo de la Junta Interamericana de Agricultura, no comunica al Consejo Directivo la resolución de poner fin a este Contrato y disolver la Asociación. Los restantes gobiernos de los Estados Adherentes al CATIE, cuando tuvieren el propósito de separase de él, deberán notificarlo a la Asociación, con una anticipación mínima de un año.

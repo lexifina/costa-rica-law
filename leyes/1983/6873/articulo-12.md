@@ -1,0 +1,2 @@
+Duodécima: El directivo representante de los Miembros Regulares del CATIE distintos de Costa Rica, se elegirá conforme con un sistema de rotación, que se determinará por reglamento, tomando como base la norma del artículo 8º, literal e) de la Convención sobre el IICA.
+El directivo representante de la Junta Interamericana de Agricultura, será un Estado Miembro distinto de los Miembros Reguladores del CATIE, elegido por la propia JIA por un período de dos años, aplicando el criterio de rotación.

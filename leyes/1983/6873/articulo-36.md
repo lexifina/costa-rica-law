@@ -1,0 +1,1 @@
+Trigésimosexta: Se procederá a inscribir en el Registro correspondiente, el presente Contrato constitutivo de la Asociación, así como los correspondientes compromisos de aportes a que se refieren las cláusulas sexta y sétima. Tales inscripciones están exentas del pago de derechos de Registro, timbres u otros derechos, tasas o impuestos que corresponden a estas operaciones.

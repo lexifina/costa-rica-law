@@ -1,0 +1,1 @@
+Quinta: Serán Miembros Regulares del CATIE, el IICA, el Gobierno de Costa Rica y los Gobiernos de los demás Estados Miembros del IICA, por sí o por medio de la entidad gubernamental debidamente autorizada, de acuerdo con el ordenamiento legal de cada país, que suscriban el presente Contrato o se incorporen al CATIE por aceptación posterior del Contrato.

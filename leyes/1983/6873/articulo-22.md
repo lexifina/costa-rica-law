@@ -1,0 +1,1 @@
+Vigésimosegunda: El IICA otorgará la condición de Personal Asociado a los funcionarios profesionales del CATIE y proporcionará el CATIE y a sus funcionarios el amparo jurídico o institucional necesario para el desarrollo de actividades fuera de Costa Rica. Para estos efectos, se celebrará un acuerdo entre el IICA y el CATIE.
