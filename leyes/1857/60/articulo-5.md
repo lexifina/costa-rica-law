@@ -1,0 +1,1 @@
+Art 5°.- El Jefe Político será subrogado, en caso, de enfermedad o permiso, por el Alcalde 1° de la cabecera del Cantón, o para la persona, que designe el Gobierno, a quien se dará cuenta por el respectivo Gobernador.

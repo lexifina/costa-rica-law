@@ -1,0 +1,1 @@
+Art 4°.- El Jefe Político disfrutará de la donación, de veinticinco pesos mensuales sobre el Tesoro públicos, tendrá un Secretario de su nombramiento con seis pesos mensuales que pagará el fondo la propios del Cantón, y del mismo se proveerá cada mes de dos pesos para gastos de escritorio.

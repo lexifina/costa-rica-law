@@ -1,0 +1,1 @@
+Art 13°.-Compete al Jefe Político en el Cantón el cumplimiento del decreto, número 13 de 26 de octubre de 1853, acerca de los niños de ambos sexos que carezcan de padres o a quienes no se enseñan buenas costumbres.

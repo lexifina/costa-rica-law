@@ -1,0 +1,1 @@
+Art 7°.- El Jefe Político es obligado a poner en conocimiento de la Ilustre Representación Provincial, en persona o por escrito, las necesidades del Cantón o de sus Distritos, proponiendo los medios más oportunas de remediarlas.
