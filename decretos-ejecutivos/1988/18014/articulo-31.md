@@ -1,2 +1,0 @@
-Artículo 31.—El presente decreto rige a partir del primero de enero de mil novecientos ochenta y ocho, modifica en lo conducente el artículo 27 del Decreto Ejecutivo No 16638-MEP, del 10 de octubre de 1985, deroga el inciso 2) del artículo 30 del decreto citado y el decreto No 6002-E, de 6 de mayo de 1976 y sus reformas, así como toda otra disposición que se le oponga o contraríe en sus términos.
-Dado en la Presidencia de la República.—San José, a los quince días del mes de enero de mil novecientos ochenta y ocho.

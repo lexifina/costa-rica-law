@@ -1,1 +1,0 @@
-Artículo 29.—El Ministerio de Educación Pública incluirá en su proyecto de presupuesto, en los rubros destinados a la Educación Superior, los recursos que demande el desarrollo de los programas y proyectos del CIPET y hara oportunamente las transferencias que correspondan.

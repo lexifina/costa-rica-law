@@ -1,1 +1,0 @@
-Artículo 28.—Los títulos y certificaciones que extienda el CIPET, con fundamento en el presente decreto y relativos a los planes y programas debidamente aprobados por el Consejo Superior de Educación, tendrán plena validez legal para efectos de calificación y clasificación del personal docente, así como para su incorporación ante el colegio profesional respectivo.

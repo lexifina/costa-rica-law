@@ -1,1 +1,0 @@
-Artículo 30.—De conformidad con lo dispuesto en el numeral 51 del artículo 9° de la ley N° 6542 de 16 de diciembre de 1980 el Consejo Técnico además de las funciones y atribuciones señaladas en el artículo 5° del presente decreto ejercerá las funciones y atribuciones que el Código de Educación establece para la juntas administrativas

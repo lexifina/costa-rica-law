@@ -1,1 +1,0 @@
-Artículo 15.—Subordinadas al Director de Administración y para el cumplimiento de las funciones asignadas a la Dirección, funcionarán las siguientes unidades: Contabilidad, Proveeduría, Registro, Información y Servicios Generales.
