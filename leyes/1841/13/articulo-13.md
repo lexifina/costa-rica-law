@@ -1,0 +1,1 @@
+Art. 13. El presente decreto tendrá su efecto, á los quince días de publicado. –Dado en San José, á quince de Setiembre de mil ochocientos cuarenta y uno. – Braulio Carrillo. –Al Secretario General. –Manuel A. Bonilla.

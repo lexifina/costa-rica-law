@@ -1,0 +1,1 @@
+Art. 8. Los que abrieren cercas, ó aterraren zanjas, de encierros, potreros, sementeras ó labores, cualquiera que sea su tamaño, para que los animales entren á hacer daño; y los que, de alguna otra manera procuraren causarlo, á mas de pagar el perjuicio, sufrirán de seis meses a un año de presidio; y no teniendo con que indemnizar el daño, se doblará esta pena.
