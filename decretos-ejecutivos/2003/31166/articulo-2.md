@@ -1,0 +1,2 @@
+Artículo 2º—Modifíquese el artículo 2º del Decreto Ejecutivo Nº 30858-MAG-MEIC-COMEX, del 21 de noviembre del 2002, para que el mismo se lea de la siguiente manera:
+"Artículo 2º—La importación a que se refiere el artículo anterior, será realizada por el Consejo Nacional de Producción, o en su defecto, por la Corporación Arrocera, según lo dispuesto en el artículo 37 y concordantes de la Ley de Creación de la Corporación Arrocera Nacional, 8285 del 30 de mayo del 2002, entre noviembre del 2002 y junio del 2003".

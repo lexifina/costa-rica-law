@@ -1,0 +1,1 @@
+Artículo 3º—La importación a que se refiere el artículo primero será realizada bajo los mismos términos y condiciones aplicables a ésta, establecidos en el Decreto Ejecutivo Nº 30858-MAG-MEIC-COMEX, y sus reformas.
