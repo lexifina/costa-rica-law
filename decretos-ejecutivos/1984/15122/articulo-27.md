@@ -1,6 +1,6 @@
 CAPITULO VII
 De las obligaciones de los servidores
-Artículo 27.—Conforme con lo dispuesto en la Ley General de la Administración Pública, en los artículos 39 del Estatuto de Servicio Civil. 50 de su Reglamento, 71 del Código de Trabajo y otras disposiciones del presente Reglamento. son obligaciones de los servidores:
+Artículo 27.-Conforme con lo dispuesto en la Ley General de la Administración Pública, en los artículos 39 del Estatuto de Servicio Civil. 50 de su Reglamento, 71 del Código de Trabajo y otras disposiciones del presente Reglamento. son obligaciones de los servidores:
 1) Prestar servicios personalmente, en forma regular y continua, cumpliendo con la jornada de trabajo correspondiente.
 2) Iniciar las labores de conformidad con el horario estipulado, no pudiendo abandonarlas ni suspenderlas sin causa justificada antes de haber cumplido su jornada de trabajo.
 3) Ejecutar la labor con la capacidad, dedicación y diligencia que el cargo requiera, aplicando todo su esfuerzo para el mejor desempeño de sus funciones.
@@ -18,7 +18,8 @@ Artículo 27.—Conforme con lo dispuesto en la Ley General de la Administració
 15) Presentar a su jefe inmediato constancia del tiempo empleado en sus visitas a las instituciones aseguradoras o al médico particular.
 16) Mantener al día las labores encomendadas siempre que motivos justificados no lo impidan.
 17) Someterse a reconocimiento médico al solicitar su ingreso al trabajo y durante este, a solicitud del superior jerárquico o a petición del organismo oficial de salud pública, para comprobar que no tiene incapacidad permanente, enfermedad profesional, contagiosa o incaruble.
-18) Rendir cuentas de las sumas de dinero que reciban adelantadas por concepto de viáticos, dentro de los cinco días hábiles posteriores a la terminación de la labor encomendada.
+18) Rendir cuentas de las sumas de dinero que reciban adelantadas por concepto de viáticos, dentro de los siete días hábiles posteriores al regreso o incorporación a su sede de trabajo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 31758 del 18 de marzo de 2004)
 19) Prestar su colaboración a las comisiones y subcomisiones de seguridad e higiene de trabajo y cualesquiera otras de importancia para el Ministerio atinentes al cargo.
 20) No sobrepasar los límites de los descansos entre jornadas destinadas a tomar refrigerios, alimentación, etc.
 21) Acatar y hacer cumplir las medidas que tiendan a proveer el acaecimiento de accidentes de trabajo y enfermedades profesionales.
