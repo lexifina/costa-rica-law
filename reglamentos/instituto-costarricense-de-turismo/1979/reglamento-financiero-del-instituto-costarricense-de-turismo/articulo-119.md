@@ -1,2 +1,4 @@
-Artículo 119.—Los trámites de adelanto y liquidación de pagos del fondo no requerirán la aprobación previa de la Oficina de Presupuesto, prevista en el artículo 7º de este reglamento.
-(Así ADICIONADO por Sesión de Junta Directiva Nº 3248 del 1º de febrero de 1982, publicada en la Colección de Leyes y Decretos de 1982, Semestre 1, Tomo 2, página 74)
+CAPITULO XXII
+Fondo de Caja Chica Nº 8-Parque de la Expresión
+Artículo 119.—Se establece el fondo de Caja Chica número 8, que operará en el Parque de la Expresión con un fondo fijo de c2.000.00 (dos mil colones).
+(Así REFORMADO TOTAL Y EXPRESAMENTE por Sesión de Junta Directiva Nº 3304 celebrada el 18 de agosto de 1982, publicada en La Gaceta Nº 118 del 28 de setiembre de 1982.)

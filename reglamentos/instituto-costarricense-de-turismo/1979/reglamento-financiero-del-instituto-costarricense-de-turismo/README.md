@@ -19,3 +19,4 @@ Reglamento Financiero del Instituto Costarricense de Turismo.
 | 4 | 1980-11-03 | Reglamento 3128 (1980-11-03) |
 | 5 | 1980-12-15 | Reglamento 3135 (1980-12-15) |
 | 6 | 1982-02-01 | Reglamento 3248 (1982-02-01) |
+| 7 | 1982-08-18 | Reglamento 3304 (1982-08-18) |
