@@ -1,1 +1,1 @@
-Artículo 5º.- Durante cuatro años, el Ministerio de Obras Públicas y Transportes no concederá ninguna nueva explotación de placas de taxi, para el transporte de personas, en el área metropolitana y cabeceras de provincia.
+Artículo 5º.- (Derogado por el artículo 1º de la Ley Nº 6846 de 14 de febrero de 1983)
