@@ -1,0 +1,1 @@
+Artículo 14.—Se permite la práctica de la pesca continental e insular de tipo deportiva y científica o cultural y de susbsistencia con anzuelo dentro del Parque Nacional Tortuguero, siempre y cuando se cuente con los requisitos establecidos en la Ley de Vida Silvestre y su Reglamento, al igual que el decreto de caza y pesca anual.

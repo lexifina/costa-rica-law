@@ -1,0 +1,3 @@
+Artículo 11.—Acatando las disposiciones de la Ley de Vida Silvestre Nº 7317 de diciembre de 1992 y con base en el Decreto Ejecutivo Nº 20226-MIRENEM, se abre las siguientes temporadas de observación de tortugas.
+a) Temporada de observación de la Tortuga Baula (Dermochelys coriacea) y Tortuga Verde (Chelonia mydas) se abrirá a partir del 1º de marzo al 31 de octubre. Según los estudios lo determinen y se compruebe que la especie se está viendo amenazada, se podrá reducir este periodo a criterio de la Administración.
+b) Temporada de observación de nacimientos de la Tortuga Baula (Dermochelys coriacea) y Tortuga Verde (Chelonia mydas) se abrirá a partir del 1º de abril al 15 de diciembre. (Los permisos se extenderán a criterio de la Administración).

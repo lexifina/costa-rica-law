@@ -1,0 +1,1 @@
+Artículo 16.—Todas las lanchas que navegan del Sector de Tortuguero hacia Limón y otras comunidades deberán someterse a revisión en la Estación Jalova con el propósito de controlar el trasiego de especies de vida silvestre y sus subproductos. Así como otros instrumentos que estén prohibidos en la legislación costarricense.
