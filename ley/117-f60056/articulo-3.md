@@ -1,0 +1,2 @@
+3°—Además de las funciones técnicas, estadísticas, de investigación científica, etc., que le competen al Departamento, tendrá la fundamental de asegurar el estricto cumplimiento de las leyes y reglamentos vigentes y los que en e! futuro se dicten.
+Dado en el Salón de Sesiones de la Junta Fundadora de la Segunda República.—San José, a los veintisiete días del mes de julio de mil novecientos cuarenta y ocho.
