@@ -15,3 +15,4 @@ Equiparación de los salarios de los Procuradores
 | --- | --- | --- |
 | 1 | 1991-08-28 | la propia norma |
 | 2 | 1991-09-19 | Decreto Ejecutivo 20766 (1991-09-19) |
+| 3 | 2002-05-06 | Decreto Ejecutivo 30375 (2002-05-06) |

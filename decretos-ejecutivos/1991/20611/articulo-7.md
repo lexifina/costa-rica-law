@@ -1,2 +1,2 @@
-Artículo 7°- Rige a partir de su publicación.
-Dado en la Presidencia de la República.-San José, a los treinta días del mes de julio de mil novecientos noventa y uno.
+Artículo 7º—A quienes desempeñen los puestos de Procurador se les reconocerá un sobresueldo por concepto de responsabilidad en el ejercicio de la función litigiosa y consultiva del Estado, y asesora de la Sala Constitucional. Tal rubro será de un 25% para los puestos de Procurador A, B y Procurador Director, y de un 40% para el puesto de Procurador General Adjunto, y se calculará sobre los salarios base correspondientes a esos puestos, de acuerdo con su ubicación en la escala de la Ley de Salarios de la Administración Pública.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 30375 del 6 de mayo de 2002.)
