@@ -1,1 +1,0 @@
-Artículo 15.- Para la atención de los gastos que demanda la Dirección de Artes y Letras, se incluirá cada año en el Presupuesto General Ordinario de la República, capítulo de subvenciones a entidades culturales, una asignación no menor de quinientos mil colones (¢ 500,000.00).
