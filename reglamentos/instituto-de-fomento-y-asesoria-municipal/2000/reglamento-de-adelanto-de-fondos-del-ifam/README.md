@@ -14,3 +14,4 @@ Reglamento de Adelanto de Fondos del IFAM
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-07-14 | la propia norma |
+| 2 | 2001-12-05 | Reglamento 3145 (2001-12-05) |
