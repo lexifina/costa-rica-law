@@ -1,0 +1,1 @@
+Artículo 21.—Representación Legal. El agente aduanero es el representante legal de su mandante para efectos de las actuaciones y notificaciones del despacho aduanero y los actos que de éste se deriven.

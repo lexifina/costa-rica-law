@@ -1,0 +1,1 @@
+Artículo 140.—Prohibición de enajenación. La propiedad de las mercancías destinadas al régimen de importación temporal no podrá ser objeto de transferencia o enajenación por cualquier título, mientras estén bajo dicho régimen.

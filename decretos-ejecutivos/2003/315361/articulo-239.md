@@ -1,0 +1,1 @@
+Artículo 239.—Colaboración Técnica. Los Servicios Aduaneros de los países signatarios podrán establecer mecanismos de colaboración mutua para el desarrollo de proyectos o actividades específicas tendentes a lograr la modernización de sus servicios, así como para la facilitación y el control de las operaciones aduaneras.

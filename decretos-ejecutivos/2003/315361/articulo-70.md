@@ -1,0 +1,1 @@
+Artículo 70.—Solicitud. La solicitud de transbordo se presentará a la autoridad aduanera por el transportista, el consignatario o su representante, en los formatos y mediante transmisión electrónica de datos u otros medios autorizados.

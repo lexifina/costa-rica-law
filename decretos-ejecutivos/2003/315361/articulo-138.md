@@ -1,0 +1,2 @@
+Artículo 138.—Plazo. La permanencia de las mercancías bajo el régimen de importación temporal con reexportación en el mismo estado, será hasta por un plazo de seis meses contados a partir de la aceptación de la declaración, sin perjuicio de que cada país signatario establezca plazos especiales.
+Las importaciones temporales contempladas en convenios internacionales, leyes especiales o contratos administrativos celebrados con el Estado, se regirán por lo que en ellos se disponga.

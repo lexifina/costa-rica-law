@@ -1,0 +1,1 @@
+Artículo 196.—Envíos postales en Tránsito. Las formalidades aduaneras se concretarán a las mínimas necesarias a efecto de facilitar el ingreso y la salida de las mercancías contenidas en los envíos postales.
