@@ -1,0 +1,1 @@
+Art 439- El Director del telégrafo y el telegrafista principal tendrán particular cuidado de hacer presente a todos los empleados la responsabilidad que contraen, y de explicarles minuciosamente las disposiciones penales de este reglamento y las del Código Penal citados.

@@ -1,0 +1,1 @@
+Art. 201.-Trascurridos los términos de que habla el artículo anterior, sin reclamarse contra la liquidación, el Contador Mayor girará por la suma adecuada á favor de la Tesorería Nacional yá cargo de aquel á quien pertenezca la póliza.

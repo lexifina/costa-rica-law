@@ -1,0 +1,1 @@
+Árt 266.-Los magistrados, jueces y demás funcionarios á quienes corresponda la visita de juzgados y archivos, examinarán cuidadosamente si se ha usado el pepel correspondiente en los documentos, libros y expedientes sujetos á visita y en caso de encontrar que se han cometidofaltas darán cuanta al Fiscal de Hacienda Nacional para lo de su cargo.

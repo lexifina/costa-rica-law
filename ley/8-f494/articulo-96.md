@@ -1,0 +1,1 @@
+Art 96.-Los Administradores de las Aduanas de los puertos mayores deberán situar guardas á bordo de los buques que hubieren de cargar frutos y mercaderías en los puertos menores, para que tomen nota de los bultos que sean embarcados.

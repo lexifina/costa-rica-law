@@ -1,0 +1,1 @@
+Art 568- Los billetes del Tesoro llevarán estampado el escudo de armas de la República, y se imprimirán en papel especial, con las señas y contraseñas, marcas y números de requisito, que al Ejecutivo parecieren convenientes.

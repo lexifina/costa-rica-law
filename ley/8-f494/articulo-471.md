@@ -1,0 +1,1 @@
+Art 471- El reo de expendio de licores de fabricación clandestina ó de tabaco de ilícita procedencia, sufrirá multa de doscientos a quinientos pesos, por primera vez, de trescientos cincuenta á quinientos pesos a la primera reincidencia; de quinientos pesos a la segunda reincidencia; y confinamiento a Talamanca por dos años, á la tercera y demás reincidencias.

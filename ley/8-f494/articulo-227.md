@@ -1,0 +1,1 @@
+Art. 227.-En las aprehensiones que se hagan por la confrontación del manifiesto y facturas, ó al tiempo del despacho las partes del denunciante y aprehensores se dividirán en cuatro porciones iguales: una para el Administrador, otra para el Contador, otra para el Alcaide y la otra para los guarda-almacenes.

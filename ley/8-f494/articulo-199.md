@@ -1,0 +1,2 @@
+Art. 199.-Los efectos cuyos derechos no deban liquidarse en el acto, conforme el artículo 196, se en-tregarán al dueño, consignatario persona legalmente autorizada, siempre que tenga prestada fianza general admitida .por el Ministro de Hacienda, ó que deje en almacenes - mercaderías suficientes para responder de los derechos. En otro caso, deberá pagar los derechos en la Tesorería Nacional, antes de recibir los efectos.
+Los reparos que deduzca la Contaduría se harán presente al Administrador, y si éste no los desvaneciere debidamente, la pólizas quedan reformadas.

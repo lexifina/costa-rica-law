@@ -1,0 +1,1 @@
+Art 560- Cada semana el Oficial Mayor presentará al Director de la Imprenta una planilla de los gastos ordinarios habidos por materiales y operarios. El Director, si la aprueba, girará contra el Tesoro y por su valor. Los gastos extraordinarios no podrán hacerse sino con acuerdo de la Secretaría de Estado respectiva.

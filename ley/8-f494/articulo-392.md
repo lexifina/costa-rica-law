@@ -1,0 +1,1 @@
+Art 392- Los telegramas oficiales llevarán siempre el nombre o sello del funcionario u oficina que los dirija. Los partes oficiales serán concisos en su redacción y no contendrán fórmulas ajenas al servicio telegráfico.

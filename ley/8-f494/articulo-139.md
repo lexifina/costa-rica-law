@@ -1,0 +1,1 @@
+Art. 139.-Abiertos éstos por el Contador y el Alcaide, depositarios del duplicado de llaves de los respectivos candados, se procederá á la descarga con las mismas formalidades señaladas para el despacho en el artículo 132.

@@ -1,0 +1,2 @@
+Art 469- Aquel a quién se aprehendiere una fábrica ó aparato completo de destilar, con señales de haber sido usada, sufrirá la pena del autor del delito de fabricación clandestina; pero si el aparato no tuviere esas señales y se encontrare montado, la pena será las tres cuartas partes de la que correspondería al autor.
+Se entenderá montada la fábrica cuando, aunque las piezas del aparato no estuvieren armadas ó completas, se aprehendiere además cualquier cantidad de caldos fermentados.

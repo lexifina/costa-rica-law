@@ -1,0 +1,2 @@
+Art. 82.-EI Administrador de la Aduana del puerto situará un guarda en el buque ú donde deben trasbordarse las mercaderías, para que tomen nota exactadel número y marca de los bultos que fueren recibidos del huque de donde se hace el trasbordo.
+La nota firmada por el guarda deberá ser confrontada por el Contador de la Aduana, con la nota puesta al pie de la licencia de que, trata el artículo anterior.

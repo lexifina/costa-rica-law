@@ -1,0 +1,1 @@
+Art. 274.-Cuando un documento privado, por que se hubiere satisfecho el impuesto de timbre, fuere elevado á escritura pública, á más de agregarse aquél al protocolo de referencias, el cartulario dará fe de dicho pago. Esto último verificará también cuando el documento provisional consistiere en instrumento público.

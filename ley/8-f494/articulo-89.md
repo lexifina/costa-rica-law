@@ -1,0 +1,1 @@
+Art. 89.-Los Administradores de las Aduanas de los puertos nombrarán guardas para que inspeccionar el embarque de las mercaderías ó frutos, rectifiquenen el peso bruto y tomen nota de los bultos embarcados, en los libros que llevarán con ese objeto.

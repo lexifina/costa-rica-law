@@ -1,0 +1,1 @@
+Art 356.-Es correspondencia privada, y por tanto debe franquearse, la de personas que no tengan ningún carácter público, aunque vaya dirigida al Presidente de la República, Secretarios de Estado, etc., etc.

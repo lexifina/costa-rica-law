@@ -1,0 +1,1 @@
+Art 9º- Es prohibida la introducción de armas, municiones y equipo de guerra, dinamita y nitro-glicerina; la de comestibles cuya corrupción ó mala calidad los haga dañosos á la salud pública; y la de especies fiscales estancadas o que en adelante se estancaren.

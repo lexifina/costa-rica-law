@@ -1,0 +1,1 @@
+Art 429- Para el contraste de los partes que digan "contestación pagada", el telegrafista que los trasmita mandará el día de la entrega, a la Dirección General, un giro contra el telegrafista que tenga estos fondos, debiendo aquél remitir también cuenta separada, el día de la entrega, el valor de los expresados giros.

@@ -1,0 +1,1 @@
+Art 597.-Las cuentas se cerrarán y abrirán cada año, conforme al presupuesto general decretado por el Congreso. Al fin del año económico, después de cerrados los libros, se pasarán los correspondientes estados al Ministro de Hacienda para el informe anual al Congreso.

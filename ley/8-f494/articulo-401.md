@@ -1,0 +1,1 @@
+Art 401.-Cuando individuos del comercio, bajo una razón social conocida, deseen que se les transmita telegramas con una combinación especial, podrá, efectuarla, pero obligandosé á dar la clave al Director del ramo, quién guardará reserva sobre el particular.

@@ -1,0 +1,1 @@
+Art.105.-El Gobierno ofrece sus almacenes al comercio en el estado en que se hallaren, y no es responsable de las mercaderías que en ellos se depositen, si no es por negligencia ó culpa de sus empleados.

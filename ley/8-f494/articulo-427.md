@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+De la contabilidad
+Art 427- La contabilidad de las oficinas telegráficas se llevará en listas rayadas, con divisiones verticales para siete columnas destinadas a mostrar, en la primera, el número; en la segunda, la fecha; en la tercera, la destinación; en la cuarta, el número de palabras; en la quinta, el valor de éstas; en la sexta, el nombre del que manda el parte; y en la sétima, el nombre del que lo recibe. Se llevará una de estas listas para los telegramas que se despachen y otra para los que se reciban, con la diferencia que en la tercera columna de la lista que corresponda a éstos debe hacerse constar la procedencia.

@@ -1,0 +1,1 @@
+Art. 120.-Los dueños ó consignatarios de las mercaderías destruidas en virtud de lo dispuesto en el artículo anterior, deberán satisfacer el derecho de depósito y el gasto que hubieren ocasionado las misma mercaderías.

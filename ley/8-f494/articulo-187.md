@@ -1,0 +1,1 @@
+Art.- 187-En el caso de que el Adminisstrador ó el Contador tuviesen duda sobre la apreciación del Alcaide, ó de que el interesado reclamare contra ella, el Administrador nombrará dos peritos, y cotra lo que aquél resuelva, fundándose en el dictamen de ambos peritos ó de uno de ellos, queda el recurso ante el Juzgado de Hacienda.

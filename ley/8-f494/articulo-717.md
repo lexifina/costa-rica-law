@@ -1,0 +1,1 @@
+Art 717.- Para la comprobación del cuerpo de delito en las causas sobre venta clandestina de artículos estancados, no es necesario la aprehensión real de los mismos; bastará la declaración de dos testigos de toda excepción ó sin tacha, conformes y contestes en persona, hechos, tiempos y lugares, ó la de tres testigos idóneos singulares que declaren sobre tres hechos diversos.

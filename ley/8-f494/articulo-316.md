@@ -1,0 +1,1 @@
+Art 316- Los derechos de patentes se depositarán en la Tesorería Nacional por medio de una orden de entero de la Secretaría de Hacienda; y en vista del recibo que se pondrá en el tronco por la Tesorería Nacional, se extenderá la patente.

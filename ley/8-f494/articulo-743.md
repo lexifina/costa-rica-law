@@ -1,0 +1,1 @@
+Art 743- En el caso de que deban abonarse mejoras a favor de un tercero, no se otorgará escritura a favor del rematario, mientras no compruebe haber satisfecho el valor de dichas mejoras. Las mejoras que deban reconocerse a favor de un tercero, se valorarán por separado, y así se anunciará en el cartel.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los expendedores
+Art 464- El que quiera dedicarse a a venta de artículo estancados ocurrirá a matricularse como tal, en la oficina del Jefe Político del cantón donde ha de establecerse la venta. Los Jefes Políticos llevarán un libro de matrícula; pero no inscribirán a ninguno como expendedor, sin que antes se le presente constancia de estar pagado el impuesto municipal respectivo. Todo asiento de matrícula deberá expresar el nombre, apellido y domicilio del solicitante y el punto y la casa donde va a establecerse el expendio. Los jefes Políticos pasarán inmediatamente aviso al Inspector de Hacienda de las matriculas que extiendan.

@@ -1,0 +1,1 @@
+Art 457- Las compras en los almacenes sucursales, se harán como previene el artículo 450, con la diferencia de que el depósito se hará en la sucursal o agencia de la Fábrica Nacional, y de que con esa constancia se ocurrirá al almacenista para la entrega de especies.

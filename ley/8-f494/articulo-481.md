@@ -1,0 +1,1 @@
+Art 481- Se acuñarán, además, monedas de cobre del valor de un centavo cada una, con noventa y cinco partes de cobre y cinco de níquel, con peso de cinco gramos y con diámetro de veinticinco milímetros.- La tolerancia de peso en mas o menos será.

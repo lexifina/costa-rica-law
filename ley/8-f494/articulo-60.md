@@ -1,0 +1,1 @@
+Art. 60:-Cuando los capitanes de los buques entregaren conocimientos en vez del manifiesto por mayor, deberán acompañar una relación firmada de la carga no comprendida en los conocimientos y del rancho a bordo.

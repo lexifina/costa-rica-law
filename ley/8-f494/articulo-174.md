@@ -1,0 +1,1 @@
+Art. 174.-Siempre que haya pérdida de carga ó rotura de marchamo, el porteador será responsable de la carga y del mayor derecho de Aduana que se cobre sobre las mercaderías, salvo que justifique su inculpabílidad.

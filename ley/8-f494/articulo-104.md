@@ -1,0 +1,1 @@
+Art.104.-Las mercaderías almacenadas seran libres de todo derecho durante los dos primeros meses de depósito; mas pasado este término, los dueñosy consignatarios pagarán treinta centavos por cada cincuenta kilogramos, mensualmente, por el tiempo que allí pennanezcan no debiendo pasar este de un año.

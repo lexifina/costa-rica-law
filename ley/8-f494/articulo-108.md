@@ -1,0 +1,1 @@
+Art. 108.-En cualquier estado en que se encuentre expediente de remate, con tal que no se· haya verificado podráa el dueño ó consignatario recuperar las mercaderías, oblando en el acto la cantidad que adeuda y los gastos causados hasta aquel momento.

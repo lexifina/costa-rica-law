@@ -1,0 +1,1 @@
+Art 527.-El rematario puede, si le conviniere, gozar del privilegio de diez años para pagar el precio, reconociendo el, interés de seis por ciento al año, pagadero por anualidades vencidas. En este caso la escritura de propiedad se extenderá después que haya pagado la primera anualidad.

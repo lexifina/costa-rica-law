@@ -1,0 +1,1 @@
+Art 410- Si los particulares pidieren se repita un telegrama, por haberse trasmitido con inexactitud, la oficina hará la repetición; pero si resultare que no hubo inexactitud en la primera trasmisión, pagará la repetición como nuevo telegrama.

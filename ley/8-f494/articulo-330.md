@@ -1,0 +1,2 @@
+Art 330- El Registrador General y los Registradores de Partido, al efectuar cualquiera operación que devengue derechos conforme con el arancel, revisará la tasación hecha por la autoridad que haya expedido el documento, anotando su conformidad, o la diferencia, si la hubiere, en pro o en contra del interesado, para cobrarla o devolverla conforme queda establecido.
+Las diferencias entre el Tesorero y el Registrador de Partido serán resueltas por el Registrador General.

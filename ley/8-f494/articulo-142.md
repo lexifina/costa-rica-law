@@ -1,0 +1,1 @@
+Art. 142.-Recibida la carga, los guarda-almacenes sentarán la partida correspondiente, anotando la marca, número y peso, de cada bulto, el estado en que, hubieren sido recibidos, el número de la guía, el nombre del buque en que hubieren sido introducidos y el del dueño ó consignatario. Esta partida también la firmará el Alcaide.

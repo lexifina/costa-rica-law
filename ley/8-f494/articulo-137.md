@@ -1,0 +1,1 @@
+Art. 137-No podrán conducirse en el ferro-carril mercaderías extranjeras que no fueren despachadas con las formalidades establecidas en los precedentes artículos; y en cada tren irán los guardas que el Administrador juzgue necesarios para vigilar el cumplimiento de esta disposición y para cuidar los carros marchamados que conduzcan mercaderías.

@@ -1,0 +1,2 @@
+Art 267- Los receptores de la República se abonarán, en la cuenta correspondiente, el cinco por ciento de honorario sobre las cantidades recaudadas por el papel sellado, como recompensa de sus servicios.
+-Único.-Estos empleados deberán tener abierto el despacho todos los días, aún los feriados, desde las seis de la mañana hasta las seis de la tarde; pero si á horas extraordinarias se solicitare papel con urgencia, los receptores están en la obligación de expenderlo.

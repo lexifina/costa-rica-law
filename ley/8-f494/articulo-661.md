@@ -1,0 +1,1 @@
+Art 661.-No se cubrirá orden alguna de pago expedida por los Secretarios de Estado, que no esté firmada por el Secretario del ramo, o por el Subsecretario en su ausencia, y sellada con el sello correspondiente.

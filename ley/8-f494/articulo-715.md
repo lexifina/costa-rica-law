@@ -1,0 +1,1 @@
+Art 715 Todo registro en persecución del contrabando ha de practicarse precisamente á presencia de una autoridad local, ó bien de dos testigos de honradez notoria, seán o no vecinos, bajo la responsabilidad del Jefe de resguardo que ejecute el acto.

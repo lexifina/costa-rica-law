@@ -1,0 +1,1 @@
+Art 31- En caso de que la persona que aparezca como consignatario en el manifiesto de que un buque, quisiere renunciar la consignación de los efectos y no hubiere recibido factura sobre que hacer la renuncia, lo manifestará así por escrito al Administrador de la Aduana, quien procederá conforme con los artículos anteriores.

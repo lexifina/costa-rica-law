@@ -1,0 +1,1 @@
+Art 110.-Cuando venciere el año de término para el depósito de las mercaderías estancadas, los dueños ó consignatarios están obligados á pedir sin demora nuevo plazo, pagando el derecho impuesto de treinta centavos por cada cincuenta kilogramos.

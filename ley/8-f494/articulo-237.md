@@ -1,0 +1,1 @@
+Art. 237.-El jurado comercial, en los negocios que lleguen á su conocimiento, por consulta ó apelación, puede confirmar, revocar, enmendar el fallo del Administrador y lo resuelto en el jurado por mayoría.

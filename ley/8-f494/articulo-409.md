@@ -1,0 +1,1 @@
+Art 409- Los particulares tienen derecho a que sus partes sean repetidos íntegramente, pero pagando el valor de su repetición, como si fuese nuevo telegrama; dicho valor corresponde a la oficina del telegrafista que recibe.

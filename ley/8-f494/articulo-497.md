@@ -1,0 +1,1 @@
+Art 497- El ensayador preparará dos muestras marcadas con sus respectivos números para que se sepa a qué barra corresponden, haciendo la debida anotación en su libro, y dará cuenta al Director del resultado de la operación. En caso de que deba procederse a la amonestación, ligará convenientemente los metales y los entregará al fundidor.

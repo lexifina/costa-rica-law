@@ -1,0 +1,1 @@
+Art 718.- En las causas por fraude contra la Hacienda Pública y contrabandos, los guardas no son testigos idóneos; pero las declaraciones contestes de dos o mas de ellos constituirán semiplena prueba, con tal que no tuvieren causa especial de tacha, distinta de la de ser guardas.

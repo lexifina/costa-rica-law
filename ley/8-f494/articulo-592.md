@@ -1,0 +1,1 @@
+Art 592.-Las órdenes de entero o de pago, o cualquiera otro comprobante, una vez inscritos en los libros respectivos, serán colocados diariamente en carpetas bajo su rubro correspondiente, (tabacos, licores, etc.), y al fin de cada mes serán encuadernados y rotulados por el mismo orden de cuentas, y luego se archivarán.

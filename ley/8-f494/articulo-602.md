@@ -1,0 +1,1 @@
+Art 602.-Ningún Secretario de Estado, con excepción del de Hacienda, podrá en las órdenes de pago que se expidan determinar la cuenta que deba debitarse. Al Tenedor de Libros es a quien toca hacer la imputación correspondiente, con arreglo a lo establecido en la ley, al presupuesto general y a las órdenes especiales del Ministerio de Hacienda.

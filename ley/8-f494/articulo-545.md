@@ -1,0 +1,1 @@
+Art 545.-Si de la medida practicada resultare que el interesado posee una extensión de terreno mayor que la expresada en el título primitivo, se le adjudicará sin necesidad de subasta por el valor que tengan según las reglas y términos antes establecidos.

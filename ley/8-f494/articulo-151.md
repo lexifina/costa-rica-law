@@ -1,0 +1,1 @@
+Art. 151.-Si el guarda-almacenes tuviere sospechas de que el contenido de los bultos mandados desalmacenar es distinto del que expresa el pedimento ó manifiesto respectivo, dará aviso al Administrador para que, si lo estima conveniente á los intereses fiscales, mande abrir los bultos denunciados.

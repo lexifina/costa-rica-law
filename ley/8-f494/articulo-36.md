@@ -1,0 +1,2 @@
+Art 36- La falta de cualquiera de los requisitos designados en las tres fracciones del artículo 34, será castigada con una multa que no baje de cinco pesos ni exceda de cien colones por cada falta, según la apreciación que en cada caso hagan los administradores.
+Si hubiere en el manifiesto general entrerrenglonaduras, raeduras ó enmiendas, se impondrá una multa que no baje de cincuenta colones ni exceda de cien pesos.

@@ -1,0 +1,1 @@
+Art 686- La responsabilidad que pudiera reclamarse a los empleados por defectos que se noten en sus cuentas, después de que hayan obtenido el respectivo pliego de fenecimiento, recaerá sobre el contador visador, salvo los casos expresados en la parte final del artículo anterior. La responsabilidad de los contadores cesa por el transcurso de ocho años.

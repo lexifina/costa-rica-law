@@ -1,0 +1,1 @@
+Art. 276.-Losefectos de giro, librados en el extranjero, que no hayan de pagarse en Costa-Rica, pueden ser negociados aunque no lleven el requisito del timbre; pero si volvieren para protesto, el que esté en posesión de ellos tiene obligación de timbrarlos, antes de la notificación del protesto.

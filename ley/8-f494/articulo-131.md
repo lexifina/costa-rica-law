@@ -1,0 +1,2 @@
+Art. 131.-El guarda-almacén sentará en los libros de los almacenes el número, marca y peso decada bulto de los que se coloquen en los carros, con expresion del contenido, según el manifiesto por mayor, del nomre del buque en que hubieren sido introducidos y del nombre de la persona á quien estén destinados; y la partida en los libros del almacén será firmada por el Alcaide y el guarda-almacén.
+La disposición de este artículo es aplicable á todo despacho de mercaderías en cualquiera de las Aduanas.
