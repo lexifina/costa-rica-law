@@ -1,1 +1,2 @@
-Artículo 7°- Confidencialidad de la información. La información suministrada a la Municipalidad por los contribuyentes tiene carácter confidencial, de acuerdo con el artículo 117 del Código de Normas y Procedimientos Tributarios. Esta información se brindará únicamente al patentado o a una persona debidamente autorizada o por requerimiento de un juez de la República.
+Artículo 7°- Confidencialidad de la información. La información suministrada a la Municipalidad por los contribuyentes tiene carácter confidencial, de acuerdo con el artículo 117 del Código de Normas y Procedimientos Tributarios.
+Esta información se brindará únicamente al patentado o a una persona debidamente autorizada o por requerimiento de un juez de la República.
