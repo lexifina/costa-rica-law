@@ -1,0 +1,1 @@
+Art. 20.-Cuando la Cámara de Representantes, en conformidad del artículo 87 de la Constitución, por falta de elección, la devolviese al pueblo, las juntas populares repetir n los actos correspondientes y enviar n nuevas listas a la Cámara.

@@ -1,0 +1,1 @@
+Art. 2°. -Las Municipalidades de los distritos que comprende cada sección electoral, desde la publicación de esta ley, abrir n un libro de registros para cada una de dichas secciones en que se inscribirán todos los ciudadanos con derecho a votar conforme al modelo número 1°, a cuyo efecto serán convocados por edictos u otra forma pública.

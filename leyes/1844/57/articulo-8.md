@@ -1,0 +1,1 @@
+Art 8°. –Instalado el Directorio y sentada el acta correspondiente, se proceder en cada junta a la elección del Representante y suplente que le toca, llevando para el caso el Directorio, lista duplicada de los sufragantes y de los candidatos que expresa y nominalmente deben elegir. El Directorio se renovar en cada período de elección Constitucional.
