@@ -1,0 +1,1 @@
+Artículo 3º-Nombrar al señor Ing. Juan Ramón Rivera Rodríguez, cédula 1-377-379, a partir del 12 de enero de 1999 al 15 de agosto del año 2000, como representante suplente de los patronos en el Consejo Superior Trabajo, en sustitución del señor Luis Alonso Barboza, cédula 2-369-282, por renuncia de éste.
