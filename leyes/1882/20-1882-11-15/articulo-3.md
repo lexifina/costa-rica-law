@@ -1,0 +1,2 @@
+Art. 3°-Practicada que son la liquidación de deuda, el Gobierno la convertirá en nuevas obligaciones; y al efecto emitirá igual cantidad de cédulas al portador, de cien pesos ($100) cada una, pagaderas en moneda corriente, las cuales se entregarán á los acreedores en pago de sus créditos respectivos, según resulte de la liquidación antes citada.
+Dichas cédulas estarán exentas del derecho de timbre y devengarán el interés de 12 0/0 anual, á contar desde el 1° de diciembre del presente año, hasta el día de su amortización, por su valor é intereses.

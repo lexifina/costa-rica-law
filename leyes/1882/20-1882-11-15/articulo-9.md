@@ -1,0 +1,1 @@
+Art. 9-La realización de los Billetes de Aduana y el sorteo de las cédulas, así como el pago de las mismas á que se refiere el artículo 6°, se verificarán por medio de los Bancos de la Unión Y Anglo-Costarricense, de acuerdo con el contrato celebrado con dichos establecimientos en esta fecha.

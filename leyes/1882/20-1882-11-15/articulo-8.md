@@ -1,0 +1,1 @@
+Art. 8°-Cuando se amorticen por completo los billetes privilegiados á que se refiere el artículo precedente, los derechos de Aduana se satisfarán también al contado: no obstante, puede el deudor pagar el 50 0/0 á seis meses de plazo con el interés de 12 0/0 anual; y en este caso los pagarés que se otorguen deberán, precisamente, pagarse con “Billetes de Aduana".

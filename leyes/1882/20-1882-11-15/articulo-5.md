@@ -1,0 +1,1 @@
+Art. 5° Del producto de los “Billetes de Aduana” el Gobierno destinará, cuando menos, $ 500,000 anuales (quinientos mil pesos) para la amortización de la deuda y sus intereses, conforme a la liquidación prevenida en el artículo 1°.
