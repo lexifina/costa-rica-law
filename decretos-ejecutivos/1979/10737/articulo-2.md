@@ -1,0 +1,1 @@
+Artículo 2°—A los efectos previstos en el artículo 15 del Decreto Ejecutivo N° 10247-P-OP de 3 de julio de 1979, los anteriores servidores se considerarán que sirven cargos de confianza en tanto desempeñen puestos con cargo al Fondo del Plan Nacional de Desarrollo.
