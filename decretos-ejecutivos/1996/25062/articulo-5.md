@@ -1,0 +1,1 @@
+Artículo 5º.- Los Miembros de Número no serán más de treinta. Una vez que se haya completado este número, las vacantes serán llenadas mediante elección por mayoría simple de los Miembros Numerarios presentes en una sesión extraordinaria convocada al efecto, previa recomendación de por lo menos dos Miembros de Número.

@@ -1,0 +1,4 @@
+Transitorio: Se autoriza a la Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica para nombrar los cinco primeros miembros numerarios de La Academia, quienes integrarán su primera Junta Directiva, eligiendo entre ellos los cargos correspondientes.
+El nombramiento de estos primeros cinco Miembros de Número se hará cumpliendo los requisitos exigidos por el artículo 4° de este Reglamento y deberán ser nombrados dentro de los primeros 60 días de entrado en vigencia el presente Decreto Ejecutivo.
+Esta primera Junta Directiva será nombrada por un período de seis meses, a partir de la fecha de su nombramiento y en ese período deberá dictar el Reglamento Interno de La Academia y hará el nombramiento de hasta diez miembros de número.
+Dado en la Presidencia de la República. San José, a los dieciocho días del mes de marzo de mil novecientos noventa y seis.

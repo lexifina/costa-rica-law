@@ -1,0 +1,1 @@
+Artículo 8º.- Los Miembros Correspondientes Nacionales están en el deber de aceptar y cumplir las comisiones científicas que les encomiende la Academia y de remitir trabajos científicos personales o ajenos que contribuyan a los fines de esta entidad, así como asistir a las sesiones de La Academia cuando se encuentren en el país.

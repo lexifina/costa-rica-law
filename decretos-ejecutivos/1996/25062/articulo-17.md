@@ -1,0 +1,1 @@
+Artículo 17.- El Patrimonio de La Academia lo constituye el presupuesto que le adjudique la Junta de Gobierno del Colegio de Médicos y Cirujanos, las cuotas de sus Miembros, así como las donaciones, subvenciones, partidas y cualquier otro tipo de bienes y recursos que se le otorguen.
