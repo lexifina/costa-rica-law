@@ -14,3 +14,4 @@ Reglamento Interno para la Concesión de Créditos Hipotecarios del Instituto Na
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-04-09 | la propia norma |
+| 2 | 2001-04-02 | Reglamento 8439 (2001-04-02) |
