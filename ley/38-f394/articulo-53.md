@@ -1,0 +1,1 @@
+Art 53° Una tercera fila de habitaciones se trazará igualmente alrededor del sitio ocupada por los obreros, para brindar instalaciones a todos aquellos que determinen el vivir con sus familias, pero no por eso dejarán de ser sometidos a las disciplinas, así como sus familias lo estarán a las disposiciones de policía.

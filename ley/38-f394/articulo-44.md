@@ -1,0 +1,1 @@
+Art 44° Cada cuadrilla dejará en el campamento dos cuarteles elegidos de preferencia de entre los convalecientes. Sus deberes serán asear, las habitaciones, velar por la seguridad de todo cuanto encierren y arreglar y traer todo lo que esté relacionado con el bienestar de su cuadrilla.
