@@ -1,0 +1,12 @@
+INSTITUTO DE DESARROLLO AGRARIO
+MODIFICACIÓN A REGLAMENTOS
+Artículo número doce del Reglamento para el Pago de Zonaje.
+El servidor no perderá el derecho a devengar la suma fijada por concepto de zonaje, si tuviera que regresar a su domicilio legal, durante un período que no exceda de un mes, cuando sea llamado por la Administración a cumplir funciones específicas fuera de su juridicción u otra condición fuera de su voluntad.
+El zonaje dejará de pagarse cuando el trabajador deje de ocupar el puesto para el cual se le está pagando o cuando se modifiquen las circunstancias que motivaron la resolución de conceder el pago de zonaje.
+Artículo número seis del Reglamento para Servicios Notariales del Instituto de Desarrollo Agrario.
+A fin de que haya la mejor justicia distributiva posible, las escrituras se repartirán entre los notarios en tres roles diferentes, cada uno de acuerdo con su orden alfabético en que estos se ordenaron, tales roles lo serán: uno para compra de fincas, otro para entrega de escrituras en asentamientos campesinos y un tercero para confección de escrituras en los proyectos de titulación, se ejercerá una estricta rotación de manera que el volumen de trabajo sea equitativo, debiendo mediar así dos requisitos esenciales para que el Notario pueda disfrutar de los derechos al pago proporcional de honorarios a saber:
+a) Inclusión por orden alfabético.
+b) Trabajo equitativo de tal manera que la inclusión de un nuevo notario a los roles aquí establecidos y por ende al pago proporcional de honorarios, estará sujeta a que haya concluido el rol respectivo.
+Los roles anteriores no podrán ser aplicados a los notarios que se encuentren disfrutando de un permiso con o sin goce de salario, en el supuesto de que en los roles dichos se le asigne una escritura a un notario que se encuentre disfrutando de un permiso con o sin goce de salario y sin que haya sido firmada la misma deberá ser reasignada a otro notario. Queda salvo el derecho a los honorarios correspondientes para el notario que encontrándose con permiso con goce o sin goce de salario haya participado cartulando efectivamente en el rol de tumo en que se produzca.
+En el caso de vacaciones o incapacidad se notificará al Notario por cualquier medio a fin de que proceda a la confección de la escritura. En caso de renuncia o imposibilidad para firmar autorizando se le aplicará lo dispuesto en el párrafo anterior.
+San José, a las 14,00 horas del 22 de agosto de 1994.
