@@ -1,0 +1,1 @@
+Artículo 2°-Se exonera asimismo del pago de derechos de aduana, la importación que hará dicha Junta de una nueva ambulancia, cuyas especificaciones están publicadas en “La Gaceta” N° 81 de 10 de abril de 1964.

@@ -1,0 +1,1 @@
+Artículo 3°-Concédese autorización a la Junta para vender el vehículo a que se refiere el artículo 1° de esta ley; el producto de la venta o bien el vehículo mismo, podrá ofrecerlos la Junta en pago de parte de la nueva ambulancia que va a adquirir.
