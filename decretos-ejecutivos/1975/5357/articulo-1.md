@@ -43,3 +43,4 @@ S 63 26 W | 1 118.03 | 268 000.00 | 519 500.00
 N 05 43 W | 1 004.99 | 267 000.00 | 519 000.00
 Área 34 346 Ha. 5 000.00 m2
 Entre este último punto de coordenadas 267 000 y 519 000, y el origen de la presente descripción de coordenadas 287 000 y 492 750, se extiende el limite marítimo de este Parque, que incluye una franja de 500 metros de mar a lo largo de la costa. Se incluyen dentro del Parque todas las rocas e islas ubicadas frente al mismo que se encuentren en aguas territoriales de Costa Rica.
+(NOTA: Mediante el artículo 1° del decreto ejecutivo N° 6385 del 30 de setiembre de 1976, se adiciona al Parque Nacional Corcovado la Isla del Caño)

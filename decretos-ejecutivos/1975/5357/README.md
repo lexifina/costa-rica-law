@@ -14,3 +14,4 @@ Declara Parque Nacional de Corcovado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-10-31 | la propia norma |
+| 2 | 1976-09-30 | Decreto Ejecutivo 6385 (1976-09-30) |
