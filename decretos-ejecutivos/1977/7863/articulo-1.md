@@ -13,4 +13,7 @@ Artículo 1°—El PIMA tendrá las siguientes funciones:
 a) Construir, organizar y administrar el Centro Nacional de Abastecimiento y Distribución de Alimentos (CENADA);
 b) Realizar estudios e investigaciones sobre sistemas de mercadeo de productos relativos al CENADA con el objeto de introducirle mejoras;
 c) Proporcionar asistencia técnica a las municipalidades en la organización, estructura y funcionamiento de sus respectivos mercados; y
-d) Cualesquiera otras que sean necesarias para lograr sus objetivos.
+d) Establecer fideicomisos o sistemas alternativos de administración financiera, que permitan canalizar recursos del Plan de Reconversión Productiva u otros, en beneficio del Sector Agropecuario.
+(Así reformado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 25122 del 18 de abril de 1996).
+e) Cualesquiera otras que sean necesarias para lograr sus objetivos.
+(Así adicionado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 25122 del 18 de abril de 1996).
