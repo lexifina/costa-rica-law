@@ -1,2 +1,2 @@
 Artículo 55. Límites de inversión por emisor
-Se podrá invertir por emisor o fondo de inversión cerrado un máximo de un 5% del valor del Fondo. Por Sociedad Administradora de Fondos de Inversión se permitirá invertir hasta un máximo de un 10% del total del Fondo.
+DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.

@@ -1,3 +1,2 @@
 Artículo 62. Casos de excepción
-No serán considerados como incumplimientos a los límites de inversión: los excesos o faltantes derivados de valoración de las carteras, de variaciones en los límites por parte del ente supervisor, del ejercicio de los derechos incorporados a los valores del fondo tales como la declaración de dividendos, o ante cambios en la composición de los grupos económicos o financieros.
-Sin perjuicio de lo anterior, la Entidad Autorizada deberá remitir a la Superintendencia, dentro de los dos días hábiles siguientes a que se produce la situación descrita en el párrafo precedente, una solicitud de autorización para mantener temporalmente el exceso o faltante, en el cual debe indicar el plazo en que se ajustará el límite correspondiente.
+DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.

@@ -1,8 +1,2 @@
 Artículo 49.—De los límites máximos por tipo de instrumento.
-Los recursos del fondo estarán sujetos a los siguientes límites máximos, expresados como porcentaje del total del Fondo:
-a. Valore emitidos por el sector público, que cuenten con garantía del Estado, valores emitidos por el Gobierno de Costa Rica y del Banco Central de Costa Rica, hasta un 70 %.
-b. Valores emitidos o avalados por entidades supervisadas por la Superintendencia General de Entidades Financieras, en emisiones autorizadas por la Superintendencia General de Valores y en las resultantes de titularizaciones autorizadas por la Superintendencia General de Valores, hasta un 70% del fondo administrado.
-Dentro de este porcentaje se deberán considarar los títulos de participación emitidos por los fondos de inversión cerrados administrados por las sociedades registradas ante la Superintendencia General de Valores, los cuales no podrán exeder el 20 % del fonod administrado por la entidad autorizada.
-Los Valores adquiridos de entidades del Sistema Financiero Nacional de la Vivienda o productos de procesos de titularización autorizados por la Superintendencia General de Valores, hasta un 30 % del fondo, el cual también forma parte del 70 % indicado en el primer párrafo.
-c. En títulos valores de las entidades finacieras supervisadas por la Superintendencia General de Entidades Financieras menores a 30 días, hasta un 5 % del valor del fondo.
-(Así AMPLIADO por la Sesión N° 245-2001, celebrada el 13 de agosto de 2001, publicada en La Gaceta N° 191 de 04 de octubre de 2001, la cuál adicionó el iniciso c) al presente artículo.)
+DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.

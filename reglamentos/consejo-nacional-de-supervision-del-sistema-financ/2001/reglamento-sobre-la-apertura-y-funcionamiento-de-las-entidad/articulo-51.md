@@ -1,3 +1,2 @@
-Artículo 51.—De los límites por emisor. Las Entidades Autorizadas no podrán invertir más de un 5% de! valor del Fondo en valores emitidos o avalados por una misma empresa, fondo de inversión.. grupo financiero o grupo de interés económico privado, según lo establece el Reglamento para el Otorgamiento de Créditos a Grupos de Interés Económico, emitido por la Superintendencia General de Entidades Financieras o lo que señale al respecto, el Reglamento para la Constitución y Funcionamiento de Grupos Financieros emitido por el Consejo Nacional de Supervisión del Sistema Financiero.
-En el caso de las inversiones en participaciones de fondos de inversión cernidos, se permitirá una inversión máxima de un 10% del valor del Fondo por Sociedad Administradora.
-No se contemplarán dentro de este limite las inversiones realizadas en valores según el literal a) del artículo 49 de este Reglamento.
+Artículo 51.—De los límites por emisor.
+DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.

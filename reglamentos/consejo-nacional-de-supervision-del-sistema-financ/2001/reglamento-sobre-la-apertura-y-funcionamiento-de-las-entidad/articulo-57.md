@@ -1,3 +1,2 @@
 Artículo 57. Del uso de derivados para cobertura
-Las Entidades Autorizadas podrán utilizar operaciones con instrumentos derivados únicamente para realizar coberturas de tasa de interés o tipo de cambio de sus carteras, las cuales también deberán cumplir con las condiciones señaladas en el Artículo 54 del presente reglamento. No se permitirán posiciones al descubierto en derivados.
-El uso de derivados para cobertura queda excluido del límite fijado en el Artículo 54 de este Reglamento.
+DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.

@@ -1,3 +1,2 @@
 Artículo 53. Custodia de los valores
-Los valores representativos de las inversiones de los Fondos administrados deberán depositarse en una Central de Valores, autorizada y bajo las condiciones y plazo establecidas por la Superintendencia General de Valores.
-Los contratos de las Entidades Autorizadas con la Central de Valores deberán ser autorizados previamente por el Superintendente, quien determinará los requisitos mínimos requeridos.
+DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.

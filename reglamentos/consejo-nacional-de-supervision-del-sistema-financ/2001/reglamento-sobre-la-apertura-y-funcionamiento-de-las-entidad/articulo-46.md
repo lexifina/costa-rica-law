@@ -1,3 +1,2 @@
 Artículo 46. De la apertura del libro de actas
-El libro de actas debe presentarse para su registro a la Superintendencia, en forma previa al inicio de operaciones del comité de inversiones.
-Al finalizar el libro de actas, se presentará a la Superintendencia para su cierre oficial en un plazo de cinco días hábiles contados a partir de la fecha de celebración de la sesión de la última acta que se incluirá en el libro. Para tal efecto se dejará libre, al menos la mitad del último folio del libro, debiendo adjuntarse un nuevo libro para su legalización. Posterior al cierre, deberá permanecer en depósito en la Entidad Autorizada por un período de al menos cinco años.
+DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.

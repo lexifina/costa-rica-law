@@ -1,4 +1,4 @@
 Sección IV
 Inversión de los recursos del Ahorro Voluntario
 Artículo 58. De la inversión en megafondos
-La inversión de los recursos del ahorro voluntario administrados mediante megafondos deberá cumplir con todo lo dispuesto para los megafondos en el Reglamento General sobre Sociedades Administradoras y Fondos de Inversión y en el Reglamento de Normativa Prudencial de Fondos de Inversión Financieros y Sociedades Administradoras, emitidos por el Consejo Nacional de Supervisión del Sistema Financiero, así como en cualquier otra normativa referente a estas figuras que se promulgue.
+DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.

@@ -1,2 +1,2 @@
-Articulo 52.—De la inversión en operaciones de recompra y reportes. Las Entidades Autorizadas podrán invertir los recursos de los Fondos en operaciones de recompra y reportes, realizadas en los; recintos y bajo las regulaciones establecidas por las bolsas de valores autorizadas por la Superintendencia General de Valores, bajo la condición de que el activo financiero subyacente cumpla con los requisitos indicados en los artículos de esta sección.
-Para los Fondos constituidos en dólares estadounidenses deberá cumplirse también con la condición de que la operación y los valores objeto de la misma estén denominados en dólares estadounidenses.
+Articulo 52.—De la inversión en operaciones de recompra y reportes.
+DEROGADO TOTAL Y EXPRESAMENTE por la Sesión N° 355-2003, celebrada el 11 de febrero de 2003, publicada en La Gaceta N° 36 de 20 de febrero de 2003, la cual en su artículo 65 derogó todo el Capítulo VII.
