@@ -14,3 +14,4 @@ Reglamento para los eventos de las apuestas deportivas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-23 | la propia norma |
+| 2 | 2004-04-27 | Reglamento 15 (2004-04-27) |
