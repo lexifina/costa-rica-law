@@ -1,0 +1,5 @@
+CAPITULO VII
+CLAUSULAS FINALES
+ARTICULO 23
+a) El presente Tratado será ratificado por los Estados que lo subscriben, inclusive el Japón, y entrará en vigor para todos los Estados que lo ratifiquen, cuando los instrumentos de ratificación hayan sido depositados por el Japón y por una mayoría, incluyendo a los Estados Unidos de América como Potencia principal de ocupación, de los Estados siguientes, a saber: Australia, Canadá, Ceilán, Francia, Indonesia, Reino de Holanda, Nueva Zelanda, Pakistán, República de Filipinas, Reino Unido de la Gran Bretaña e Irlanda del Norte y los Estados Unidos de América. El presente Tratado entrará en vigor para cada Estado que posteriormente lo ratifique en la fecha de depósito de su instrumento de ratificación; y
+b) Si el Tratado no ha entrado en vigor dentro de nueve meses siguientes a la fecha de depósito de la ratificación del Japón, cualquier Estado que lo haya ratificado podrá poner el Tratado en vigor entre él y el Japón, mediante una notificación a ese efecto al Gobierno del Japón y al Gobierno de los Estados Unidos de América, a más tardar tres años después de la fecha de depósito de la ratificación del Japón.
