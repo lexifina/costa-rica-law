@@ -1,3 +1,2 @@
-ARTÍCULO 8°.-Estudios profesionales: se cobrará a razón de
-un 2% del costo de la obra, definido este último de común acuerdo
-entre el cliente y el profesional.
+Artículo 8º—Estudios profesionales: se cobrará a razón de un 2% del beneficio estimado del trabajo o costo del proyecto que origina el estudio, definido este último de común acuerdo entre el cliente y el profesional, siendo diez mil treinta y dos colones con cuarenta céntimos (¢10.032,40) el mínimo a cobrar.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 29387 de 26 de febrero del 2001)

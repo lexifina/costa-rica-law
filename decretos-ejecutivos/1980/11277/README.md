@@ -14,3 +14,4 @@ Reglamento de Tarifas Profesionales en Química e Ingeniería Química
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-03-25 | la propia norma |
+| 2 | 2001-02-26 | Decreto Ejecutivo 29387 (2001-02-26) |
