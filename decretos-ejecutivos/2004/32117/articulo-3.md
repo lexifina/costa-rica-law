@@ -1,0 +1,1 @@
+Artículo 3º—Los funcionarios del IMAS podrán requerir información complementaria o condicionar el nuevo beneficio al beneficiario, únicamente en aquellos casos en que conste por algún medio, que éste sí posee ingresos complementarios dentro de su núcleo familiar.
