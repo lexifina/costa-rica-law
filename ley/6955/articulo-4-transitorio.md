@@ -1,0 +1,2 @@
+TRANSITORIO IV.- Para los efectos de lo dispuesto en el artículo 63 y en el inciso 2) del artículo 64 de la Ley del Impuesto sobre la Renta, Nº 837 del 20 de diciembre de 1946 y sus reformas, el veinticinco por ciento (25%) de la renta disponible de los contribuyentes comprendidos en el inciso 2) del artículo 14 de la citada ley, debe considerarse acreditado a los socios, y por tanto dicha renta estará sujeta a la retención respectiva.
+Esta disposición regirá para los períodos fiscales de 1984 y 1985.
