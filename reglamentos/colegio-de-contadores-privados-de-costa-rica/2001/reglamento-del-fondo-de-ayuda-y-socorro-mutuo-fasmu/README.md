@@ -14,3 +14,4 @@ Reglamento del Fondo de Ayuda y Socorro Mutuo (FASMU)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-27 | la propia norma |
+| 2 | 2001-12-09 | Reglamento 114 (2001-12-09) |
