@@ -1,0 +1,1 @@
+Artículo 5°.- La Contraloría General de la República no aprobará ningún presupuesto ordinario anual de la Municipalidad de Pococí, si en ellos no vienen consignados ls respectivos renglones para amortización e intereses, de la deuda a que esta ley se refiere.
