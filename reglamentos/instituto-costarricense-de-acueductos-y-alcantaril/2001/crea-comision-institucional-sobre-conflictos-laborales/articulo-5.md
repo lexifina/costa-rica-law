@@ -1,0 +1,1 @@
+Artículo 5°-Los miembros de la Comisión actuarán con independencia de criterio y su posición no afectará su relación laboral con el Instituto y serán nombrados por un período de un año, con posibilidad de ser prorrogados por un período igual, y así sucesivamente. Cada período iniciará la primera quincena del mes enero de cada año.

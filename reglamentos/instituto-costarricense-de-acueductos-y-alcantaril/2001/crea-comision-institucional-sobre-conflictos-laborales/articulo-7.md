@@ -1,0 +1,1 @@
+Artículo 7°-Establecida la Comisión, le corresponderá redactar un Manual Operativo y de funcionamiento, en un plazo no mayor de un mes calendario. Dicho Manual deberá ser aprobado por]a Junta Directiva de AyA

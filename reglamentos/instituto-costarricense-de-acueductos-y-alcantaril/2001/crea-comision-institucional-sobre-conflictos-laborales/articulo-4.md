@@ -1,0 +1,1 @@
+Artículo 4°-Las recomendaciones que se adoptaran por mayoría simple de la totalidad de sus miembros y deberán ser debidamente motivadas y consignadas en el acta respectiva. En caso de empate, el Presidente tendrá doble voto.

@@ -1,0 +1,4 @@
+Artículo 8°-Las funciones de la Comisión son:
+a.- Recomendar a la Junta Directiva, Presidencia Ejecutiva y Gerencia General, según corresponda, las posibles soluciones conciliatorias a los problemas individuales o colectivos, que se presenten entre el Instituto y sus funcionarios o entre éstos últimos. Cuando la situación haya provocado el inicio de un procedimiento disciplinario, la Comisión sólo intervendrá en el caso estipulado en el siguiente inciso.
+b.- Podrá conocer y hacer recomendaciones a la Junta Directiva, Presidencia Ejecutiva y Gerencia General, sobre los casos disciplinarios atendidos por el respectivo órgano director y que contemplen el despido, suspensión cautelar con goce de salario o traslados forzosos.
+c.- Hacer del conocimiento de la Junta Directiva, Presidencia Ejecutiva y Gerencia General, las denuncias acerca de los posibles fenómenos de persecución política, credo, género u otra naturaleza.

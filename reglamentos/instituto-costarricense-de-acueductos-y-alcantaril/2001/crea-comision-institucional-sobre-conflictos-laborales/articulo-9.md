@@ -1,0 +1,1 @@
+Artículo 9°-La Comisión en pleno, podrá reunirse con la Junta Directiva la Presidencia Ejecutiva, la Gerencia, Sindicatos de la Institución, y eventualmente con los grupos de trabajadores afectados, con la intención de intercambiar ideas y puntos de vista respecto a un asunto laboral pendiente de solución.
