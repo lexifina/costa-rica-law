@@ -1,0 +1,1 @@
+Art 4°.- No se admite la gracia hecha por el Congreso del tres por ciento sobre el cinco de aumento en el Arancel corriente; y en las Aduanas marítimas del Estado se cobrará sin el referido aumento que se estima perjudicial.

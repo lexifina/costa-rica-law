@@ -1,0 +1,1 @@
+Art 2.- Pagará de sus productos las dietas de los Representantes Federales, la parte que corresponda para la conservación del Poder Ejecutivo Nacional y lo que sea necesario para la representación en la Dieta; y con el superávit cubrirá la deuda y gastos del Estado.
