@@ -1,0 +1,1 @@
+Art. 3. Para ser elector de partido se requieren las cualidades prevenidas en el artículo anterior, y tener un capital que no baje de doscientos pesos, y para ser Diputado las mismas cualidades, y un capital que no baje de quinientos pesos, y para ser Diputado mismas cualidades y un capital que no baje de quinientos pesos.
