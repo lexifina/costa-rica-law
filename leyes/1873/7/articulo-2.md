@@ -1,0 +1,1 @@
+Art 2°. - El mismo Gobierno pondrá a disposición de la empresa del Ferrocarril, las cantidades de esos billetes, que juzgue necesarias, y la misma empresa hará la circulación de ellos, bajo la garantía del Tesoro Nacional.
