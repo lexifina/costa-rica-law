@@ -13,3 +13,4 @@ Reglamento de Importación de Precursores Productos Químicos y Disolventes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-08-26 | la propia norma |
+| 2 | 1987-08-04 | Decreto Ejecutivo 17695 (1987-08-04) |

@@ -12,6 +12,7 @@ Decretan:
 El siguiente
 Reglamento de importación de precursores,
 Productos químicos y disolventes
-Artículo 1°-Las siguientes sustancias y las que en el futuro pueden ser declaradas como tales, serán consideradas como precursores, productos químicos y disolventes.
-La efredina, el efredol, la fenil 2-propanona, la ergotamina, el ácido antranílico, la piperidina, el éter etílico, el cloroformo, el anhídrido acético, ácido sulfúrico, acetona, ácido acético, ácido clorhídrico, y todas aquellas que en futuro sean declaradas como tales.
+Artículo 1°-Las siguientes sustancias y las que en un futuro puedan ser declaradas como tales, serán consideradas como precursores, producto químicos y disolventes:
+La efedrina, el efredol, la fenil 2-propanona, la ergotamina, el ácido antranílico, la peiperidina, el éter etílico, el cloroformo, el anhídrido acético, ácido sulfúrico, acetona, ácido acético, ácido clorhídrico, aguarrás, alcohol isopropílico, butil acetato, butano, di isobutil cetona, butil cellosolve, nafta aromática de petróleo, metil etil cetona, nafta alifática, sobresal 150, ésteres dibásicos, cellosolve acetato, propilenglicol, xiolf, hexano, mutanol, tolneno, etilenglicol, solvesso 100 y todos aquellos que en el futuro sean declarados como tales.
 Se prohíbe la importación de tales sustancias si previamente no se cuenta con la autorización extendida por la Junta de Vigilancia de Drogas y Estupefacientes del Ministerio de Salud.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 17695 del 4 de agosto de 1987)
