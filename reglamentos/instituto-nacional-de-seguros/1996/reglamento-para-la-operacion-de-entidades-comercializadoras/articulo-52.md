@@ -1,0 +1,2 @@
+Artículo 52.—La Dirección de Mercadeo y Ventas será la encargada de determinar el número de agentes independientes a contratar así como los requisitos que deben cumplir. La selección y contratación se realizará siguiendo los procedimientos de contratación administrativa establecidos en la Ley de Contratación Administrativa y su Reglamento.
+(Así adicionado y publicado en La Gaceta N° 176 del 13 de setiembre del 2000).
