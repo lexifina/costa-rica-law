@@ -1,0 +1,2 @@
+Transitorio IV.—Valoración de los servicios notariales.
+La calificación y valoración de los servicios notariales se aplicará, a partir del momento en que el Banco comunique por escrito a los notarios, cuales serán los criterios y el procedimiento para evaluar los servicios que prestan al Banco. El diseño de esta herramienta le corresponderá a la Dirección Corporativa de Crédito, la cual lo comunicará a los Centros de Administración de Crédito, para que a su vez lo informen a los notarios externos en las direcciones contractuales aportadas.

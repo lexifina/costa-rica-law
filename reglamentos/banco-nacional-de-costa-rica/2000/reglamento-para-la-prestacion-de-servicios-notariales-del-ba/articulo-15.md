@@ -1,0 +1,5 @@
+CAPÍTULO III
+Distribución y control de servicios notariales
+Artículo 15.—Rol para la Asignación de Trabajo. Con el propósito de realizar una distribución equitativa y funcional en la asignación de expedientes de crédito, el Centro de Administración de Crédito implementará un "rol" para la asignación de trabajo, el cual aplicará en forma rigurosa y con asesoría de la Dirección Regional. El sistema aplicado deberá constar en los registros del respectivo Centro de Administración de Crédito.
+El orden establecido en el rol no podrá ser variado en ninguna forma, salvo situaciones muy calificadas y excepcionales, de conveniencia para la Institución y el cliente, en las que no habrá pago de honorarios, previa autorización de la Junta Directiva General o del Gerente General y sin que ello afecte la distribución del rol respectivo, en los términos del articulo 18 de este Reglamento.
+El notario interesado puede obtener información acerca del estado del rol en casos específicos que la Administración del Banco lo considere conveniente.

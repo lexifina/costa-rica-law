@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Comisión de servicios notariales
+Artículo 33.—Atribuciones de la Comisión. En cada una de las Direcciones Regionales existirá una Comisión de Servicios Notariales. Estas se encargarán de determinar cuando un notario ha faltado a sus deberes como tal en relación con la aplicación del presente Reglamento. Para ello la Artículo 18° (continuación)
+Comisión respetará el debido proceso del investigado, y al finalizar su investigación recomendará - según sea el caso- la renovación de la contratación cuando el contrato de servicios fuere a plazo definido, o bien la aplicación de una sanción administrativa.
+La Comisión de Servicios Notariales en ejercicio de sus funciones, respetará el derecho de defensa de los notarios, al establecer las responsabilidades correspondientes en cada caso. Para efectos de lo anterior, la Comisión contará con el apoyo e informes del Centro de Administración de Crédito donde presta servicios el notario y el asesoramiento de la Dirección Jurídica.

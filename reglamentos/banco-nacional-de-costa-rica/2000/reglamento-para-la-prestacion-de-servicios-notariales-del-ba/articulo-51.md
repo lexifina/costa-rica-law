@@ -1,0 +1,2 @@
+Articulo 51.—Trámite de los Recursos. La Comisión de Servicios Notariales conocerá de inmediato el recurso de revocatoria presentado por el notario investigado, y procurará resolverlo en un plazo no mayor de diez días hábiles.
+En el caso de que el notario sólo haya presentado recurso de apelación o bien se le haya declarado sin lugar el recurso de revocatoria, la Comisión de Servicios Notariales remitirá el expediente administrativo a la Junta Directiva General, por intermedio de la Gerencia General, para que resuelva en su condición de órgano de segunda instancia.

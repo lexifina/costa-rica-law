@@ -1,0 +1,1 @@
+Artículo 35.—Procedimiento aplicable por la Comisión. La Comisión de Servicios Notariales deberá reunirse al recibo de los casos que le sean presentados, para lo cual aplicará supletoriamente y en lo conducente las disposiciones de la Ley General de la Administración Pública y respetará en todo momento el debido proceso al notario investigado.

@@ -1,0 +1,1 @@
+Articulo 31.—Adelanto por concepto de Gastos. Cuando el Centro de Administración de Crédito respectivo asigne una escritura al notario respectivo, depositará en su cuenta corriente con el Banco la suma correspondiente para cancelar las especies fiscales, derechos de registro y cualquier otro gasto indispensable para la inscripción del testimonio de escritura que ha otorgado.

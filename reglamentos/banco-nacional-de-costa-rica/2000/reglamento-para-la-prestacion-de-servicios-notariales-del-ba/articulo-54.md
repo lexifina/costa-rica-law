@@ -1,0 +1,2 @@
+Artículo 54.—Normas supletorias. Para la aplicación e interpretación de este Reglamento, en lo que corresponda supletoriamente se aplicarán las disposiciones de la Ley General de la Administración Pública, Ley Orgánica de la Contraloría General de la República, Ley Orgánica del Colegio de Abogados de Costa Rica, Código Procesal Civil, Ley de Articulo 18° (continuación)
+Contratación Administrativa y el Reglamento General de Contratación Administrativa.

@@ -1,0 +1,5 @@
+Capítulo II
+Responsabilidades y deberes del notario
+Artículo 8°—Comunicación de Nombramiento y Cumplimiento de Requisitos. Corresponderá a los Centros de Administración de Crédito, comunicar el nombramiento a los notarios públicos seleccionados. A partir de esa comunicación, el notario deberá cumplir, en un plazo no mayor de un mes, los requisitos aún pendientes del cartel licitatorio.
+El Centro de Administración de Crédito de la oficina bancaria de correo electrónico y apartado postal. Asimismo, el Centro entregará al notario público un ejemplar del Reglamento para Servicios Notariales y cualquier otra documentación útil para el ejercicio de su función.
+En caso de que el notario seleccionado no cumpla con los requisitos exigidos en el cartel y en el párrafo anterior, en el plazo de un mes señalado, el Centro de Administración de Crédito informará al Director Regional correspondiente de tal situación. A partir de esa comunicación se podrá promover un nuevo concurso de considerarse necesario y, lo informará a la Gerencia General para que a su vez lo comunique a la Junta Directiva General para dar por resuelta esa contratación de servicios.

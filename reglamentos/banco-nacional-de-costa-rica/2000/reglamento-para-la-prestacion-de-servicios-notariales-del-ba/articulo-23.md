@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Procedimiento para la asignación de trabajo
+Artículo 23.—Distribución de Trabajo y Revisión Preliminar. Le corresponde al Centro de Administración de Crédito, la asignación, entrega y seguimiento del trabajo a los notarios externos, respetando para ello un riguroso turno conforme al artículo 15 de este Reglamento, mediante la entrega del expediente Artículo 18° (continuación)
+De la operación crediticia debidamente aprobada, con las condiciones y cláusulas usuales del crédito.
+Luego de que el Centro de Administración de Crédito asigna un expediente de crédito, el notario debe realizar y verificar bajo su responsabilidad, todos los estudios regístrales necesarios y propios para cada escritura. De igual forma, en atención a la naturaleza del negocio, deberá informar sobre la conveniencia de incorporar cualquier otra cláusula o condición necesaria, para la efectiva protección de los intereses patrimoniales del Banco.
+De previo a la formalización de una operación crediticia, el notario externo deberá informar al Centro de Administración de Crédito, acerca de los problemas que afectan el otorgamiento e inscripción de esa escritura pública y solicitará las instrucciones del caso para continuar o suspender su labor notarial.
