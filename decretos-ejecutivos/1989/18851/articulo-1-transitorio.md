@@ -1,0 +1,1 @@
+Transitorio Primero: Los casos pendientes de resolución podrán ser adecuados a los términos de los artículos 32 y 33 reformados, siempre que ello no depare perjuicio a los intereses y derechos legítimos de los interesados.
