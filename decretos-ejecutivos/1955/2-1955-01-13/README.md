@@ -15,3 +15,4 @@ Reglamento para la Adjudicación de Vivienda del Instituto Nacional de Vivienda 
 | --- | --- | --- |
 | 1 | 1955-01-21 | la propia norma |
 | 2 | 1959-03-05 | Decreto Ejecutivo 1 (1959-03-05) |
+| 3 | 1959-07-21 | Decreto Ejecutivo 7 (1959-07-21) |
