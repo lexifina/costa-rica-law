@@ -1,0 +1,11 @@
+ARTICULO 14
+1º.- Los Estados Partes tendrán en cuenta los problemas especiales a que hace frente la mujer rural y el importante papel que desempeña en la supervivencia económica de su familia, incluido su trabajo en los sectores no monetarios de la economía, y tomarán todas las medidas apropiadas para asegurar la aplicación de las disposiciones de la presente Convención a la mujer de las zonas rurales.
+2º.- Los Estados Partes adoptarán todas las medidas apropiadas para eliminar a discriminación contra la mujer en las zonas rurales a fin de asegurar, en condiciones de igualdad entre hombres y mujeres su participación en el desarrollo rural y en sus beneficios, y en particular le asegurarán el derecho a:
+a) Participar en la elaboración y ejecución de los planes de desarrollo a todos los niveles.
+b)Tener acceso a servicios adecuados de atención médica, inclusive información, asesoramiento de servicios en materia de planificación de la familia.
+c) Beneficiarse directamente de los programas de seguridad social.
+d) Obtener todos los tipos de educación y de formación, académica y no académica, incluidos los relacionados con la alfabetización funcional, así como, entre otros, los beneficios de todos los servicios comunitarios y de divulgación a fin de aumentar su capacidad técnica.
+e) Organizar grupos de autoayuda y cooperativas a fin de obtener igualdad de acceso a las oportunidades económicas mediante el empleo por cuenta propia o por cuenta ajena.
+f) Participar en todas las actividades comunitarias.
+g) Obtener acceso a los créditos y préstamos agrícolas, a los servicios de comercialización y a las tecnologías apropiadas, y recibir un trato igual en los planes de reforma agraria y de reasentamiento.
+h) Gozar de condiciones de vida adecuada, particularmente en las esferas de la vivienda, los servicios sanitarios, la electricidad y el abastecimiento de agua, el transporte y las comunicaciones.

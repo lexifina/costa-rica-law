@@ -1,0 +1,2 @@
+ARTICULO 3º
+Los Estados Partes tomarán en todas las esferas, y en particular en las esferas política, social, económica y cultural, todas las medidas apropiadas, incluso de carácter legislativo, para asegurar el pleno desarrollo y adelanto de la mujer, con el objeto de garantizarle el ejercicio y el goce de los derechos humanos y las libertades fundamentales en igualdad de condiciones con el hombre

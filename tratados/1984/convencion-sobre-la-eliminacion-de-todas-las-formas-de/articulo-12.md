@@ -1,0 +1,3 @@
+ARTICULO 12
+1º.- Los Estados Partes adoptarán todas las medidas apropiadas para eliminar la discriminación contra la mujer en la esfera de la atención médica a fin de asegurar, en condiciones de igualdad entre hombres y mujeres, el acceso a servicios de atención médica, inclusive los que se refieren a la planificación de la familia.
+2º.- En perjuicio de lo dispuesto en el párrafo 1 supra, los Estados Partes garantizarán a la mujer servicios apropiados en relación con el embarazo, el parto y el período posterior al parto, proporcionando servicios gratuitos cuando fuere necesario y le asegurarán una nutrición adecuada durante el embarazo y la lactancia.
