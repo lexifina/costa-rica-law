@@ -1,1 +1,0 @@
-Artículo 6º.- Excepto el Presidente o su representante, perderá su calidad de miembro de la Junta Directiva el que dejará de asistir sin justa causa a cuatro sesiones ordinarias consecutivas o dentro de un mismo semestre calendario.

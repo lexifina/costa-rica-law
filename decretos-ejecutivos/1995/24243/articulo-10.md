@@ -1,1 +1,0 @@
-Artículo 10.- El Taller Nacional de Danza contará con un Consejo Docente que estará integrado por tres profesores del Taller Nacional de Danza, los que serán nombrados por el Director General del Taller.
