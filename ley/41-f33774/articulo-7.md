@@ -1,0 +1,1 @@
+Artículo 7°. —La apertura del camino y la medida y localización de los lotes de terreno, se hará de acuerdo con una Junta Itineraria compuesta por el Gobernador de Cartago y dos miembros de nombramiento del Poder Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 2°. —Autorizase al mismo, para hacer medir y dividir en lotes de diez á trescientas hectáreas, alrededor de un lote de cien hectáreas para una población, los terrenos baldíos comprendidos entre el ferrocarril, Línea Vieja, el río Toro Amarillo y la carretera Fuentes. Estos lotes comprenderán una extensión hasta de 20.000 hectáreas.
