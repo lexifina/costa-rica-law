@@ -1,0 +1,1 @@
+Artículo 15.—Notificación por publicación. Si el trabajador estuviere fuera de su centro de trabajo y se ignorare su domicilio, se aplicarán las normas establecidas por el artículo 7º de la Ley de Notificaciones, Citaciones y otras Comunicaciones Judiciales.

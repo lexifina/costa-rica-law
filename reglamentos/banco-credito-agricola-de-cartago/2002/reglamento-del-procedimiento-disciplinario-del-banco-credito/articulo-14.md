@@ -1,0 +1,1 @@
+Artículo 14.—Notificación. El Órgano Director del Proceso notificará el traslado de cargos al trabajador investigado personalmente en su lugar de trabajo o en su domicilio, en cuyo caso se aplicarán las normas establecidas por el artículo 2º de la Ley de Notificaciones, Citaciones y otras Comunicaciones Judiciales.

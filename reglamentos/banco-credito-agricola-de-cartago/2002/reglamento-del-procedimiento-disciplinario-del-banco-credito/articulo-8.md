@@ -1,0 +1,1 @@
+Artículo 8º—Sustitución de Propietarios. En caso de ausencia o enfermedad, y en general cuando concurra alguna causa de excusa o recusación contra los integrantes del Órgano, serán sustituidos por los suplentes designados, ocupando el cargo correspondiente a su representación; sin embargo, los miembros que reciban la prueba deberán rendir el informe final.

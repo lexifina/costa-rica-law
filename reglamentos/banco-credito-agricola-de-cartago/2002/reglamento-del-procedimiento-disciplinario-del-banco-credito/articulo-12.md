@@ -1,0 +1,1 @@
+Artículo 12.—Día y hora de sus actuaciones. El Órgano Director del proceso realizará sus actuaciones en día y hora hábiles. Sin embargo, podrá habilitar días y horas inhábiles para cumplir sus cometidos cuando la demora pueda causar graves perjuicios al Banco o al trabajador investigado, o hacer ilusoria la eficacia de un acuerdo del Órgano.

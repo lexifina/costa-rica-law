@@ -1,0 +1,1 @@
+Artículo 20.—Ampliación de plazo. En casos de especial complejidad, el plazo para realizar la investigación podrá ser ampliado hasta por treinta días hábiles más, según resolución razonada de la Dirección de Recursos Humanos y a juicio de ésta.

@@ -1,0 +1,1 @@
+Artículo 21.—Resolución final del Órgano. Finalizada la investigación, el Órgano Director del Proceso elaborará un informe debidamente fundamentado, que comunicará en forma inmediata a la Gerencia General en cuanto a los funcionarios de su nombramiento, o a la Junta Directiva General en lo que atañe a los nombrados por ese órgano.

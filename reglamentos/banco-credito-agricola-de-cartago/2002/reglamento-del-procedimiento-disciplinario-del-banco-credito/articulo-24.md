@@ -1,0 +1,1 @@
+Artículo 24.—Normativa aplicable. Los recursos contra las resoluciones declaradas apelables, se regirán por la normativa que al efecto contiene la Ley General de la Administración Pública especialmente en el numeral 346.
