@@ -18,3 +18,4 @@ Reglamento Interno de la Junta Directiva del Consejo de Seguridad Vial
 | 3 | 1987-01-21 | Decreto Ejecutivo 17396 (1987-01-21) |
 | 4 | 1989-11-09 | Decreto Ejecutivo 19286 (1989-11-09) |
 | 5 | 1996-02-09 | Decreto Ejecutivo 24962 (1996-02-09) |
+| 6 | 1998-09-28 | Decreto Ejecutivo 27625 (1998-09-28) |

@@ -8,4 +8,5 @@ Reglamento Interno de la Junta Directiva
 del Consejo de Seguridad Vial
 CAPITULO I
 De la presidencia
+NOTA: Mediante el artículo 1° del decreto ejecutivo N° 27625 del 28 de setiembre de 1998, se suprime el artículo 20 de este decreto y su artículo 2 establece que se corrija la numeración actual de este decreto tomando en cuenta la eliminación del artículo 20, por lo que el texto de este decreto es el siguiente:
 Artículo 1°—Ejercerá la Presidencia de la Junta Directiva el Ministro de Obras Públicas y Transportes como miembro ex oficio, o su delegado quien lo presidirá de acuerdo con lo que dispone la ley N° 6324 del 25 de mayo de 1979. Para los efectos propios de las sesiones será sustituido, en los casos de ausencia o impedimento, por un Vicepresidente que eligirá la Junta Directiva de su seno cada año, pudiendo ser reelecto. Al Vicepresidente lo sustituirá los vocales por orden de edad.

@@ -1,3 +1,1 @@
-Artículo 22.—En la sesión siguiente se pondrá en discusión el borrador del acta para efectos de su aprobación. Si se acodare introducir modificaciones de forma, el secretario de la junta directiva las incluirá en el borrador.
-El texto aprobado, se transcribirá al libro de actas de la junta directiva, a fin de que en la sesión siguiente sea firmado, de conformidad con lo que establece el artículo 28 de este Reglamento.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 19286 del 9 de noviembre de 1989)
+Artículo 22.—Los acuerdos tomados por la Junta Directiva quedarán firmes una vez aprobada el acta en que constan, a menos que se interponga y se acoja el recurso de revisión conforme con lo que dispone el artículo siguiente. Por unanimidad la Junta Directiva podrá declarar firme cualquier acuerdo en la misma sesión en que lo toma.
