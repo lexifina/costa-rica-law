@@ -1,0 +1,1 @@
+Artículo 4°.- El impuesto se pagará por adelantado en el Banco Central de Costa Rica o en las Tesorerías Auxiliares, mediante entero a favor del fisco, en la oportunidad y en el monto que fije el Ministerio de Hacienda de conformidad con el estudio de los registros de producción que para tal efecto llevan las empresas.

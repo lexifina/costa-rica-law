@@ -1,0 +1,1 @@
+Artículo 3°.- Las empresas que a juicio del Ministerio de Hacienda no se ajusten a los términos del artículo anterior, seguirán usando el sistema de marbetes. Para tal efecto se regirán por lo que establecen las leyes y reglamentos sobre el cobro de dichos impuestos.
