@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de las Ayudas a Personas Indigentes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-04 | la propia norma |
+| 2 | 2000-09-28 | Reglamento municipal 197 (2000-09-28) |
