@@ -1,0 +1,1 @@
+Artículo 2°—Corríjase la numeración del articulo inmediato siguiente al N° 32 de la Sección IV, que lleva por titulo "Del promedio anual mínimo para aprobar cada asignatura", para que corresponda, en lo sucesivo, al artículo N° 32 bis.

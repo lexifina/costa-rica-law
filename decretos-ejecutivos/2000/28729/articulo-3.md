@@ -1,0 +1,2 @@
+Articulo 3°—Adiciónese al artículo 148 el siguiente párrafo:
+"En casos especiales, las fechas para la realización de las pruebas nacionales, previstas en los articules 111, 120 y 128 podrán ser modificadas parcial o totalmente por el Ministro de Educación Pública, quien deberá informarlo al Consejo Superior de Educación y a todas las instituciones educativas directamente interesadas con suficiente antelación"
