@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-De la resolución que dicten los Jefes de Policía en orden a los niños huérfanos abandonados, se tomar razón en un libro formado al efecto de papel común, y a la persona a quien se entreguen, se dar una constancia firmada por el Jefe respectivo y autorizada por el Secretario.
