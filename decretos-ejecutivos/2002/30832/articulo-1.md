@@ -1,0 +1,12 @@
+Nº 30832-H
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que le confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, artículos 26 y 27 de la Ley General de la Administración Pública, y Ley Nº 5048 del 9 de agosto de 1972.
+Considerando:
+1º—Que mediante Ley Nº 5048 del 9 de agosto de 1972, se creó el Consejo Nacional para Investigaciones Científicas y Tecnológicas (CONICIT), cuyo objetivo general es lograr el progreso socioeconómico y el mejoramiento de la calidad de vida del costarricense a través de la implementación de las políticas de ciencia y tecnología dictadas por el Gobierno de la República, para elevar la capacidad científica del país.
+2º—Que para implementar las políticas, planes, programas y proyectos dirigidos al sector de las ciencias y de la tecnología, es necesario incorporar en el 2003 la suma de ¢522.4 millones, destinados a la investigación y desarrollo de nuevas tecnologías en las pequeñas y medianas empresas del país, además de ingresos dirigidos al Programa de Fondos Concursables incluidos en el Proyecto de Ley de Presupuestos Ordinario de la República para el 2003. Dicho incremento es producto de la asignación de recursos que el Gobierno Central esta asignando al CONICIT mediante el oficio N° 405, de conformidad con las Leyes Nos. 5048, 7169 y 6262.
+3º—Que mediante el Decreto Ejecutivo Nº 30214-H, publicado en La Gaceta Nº 54 del 18 de marzo del 2002, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el año 2003; las cuales fueron conocidas por el Consejo de Gobierno y debidamente aprobadas por el Presidente de la República, estableciendo el límite de gasto presupuestario del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+4º—Que para poder brindar los recursos y mecanismos necesarios en el desarrollo científico y tecnológico de las pequeñas y medianas empresas del país, es necesario ampliar al CONICIT el límite de gasto Presupuestario del 2003. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícanse para el Consejo Nacional para Investigaciones Científicas y Tecnológicas, el límite de gasto presupuestario para el año 2003, establecido en el Decreto Ejecutivo Nº 30214-H, publicado en La Gaceta Nº 54 del 18 de marzo del 2002, de manera que el gasto presupuestario no exceda la suma de ¢866.5 millones, en ese período.
