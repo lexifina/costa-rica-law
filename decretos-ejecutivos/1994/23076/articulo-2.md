@@ -1,0 +1,1 @@
+Artículo 2°-En una franja de 10 m en ambas márgenes del Río Lajas y en la franja de 100 m alrededor de la Laguna Madrigal serán aplicables las disposiciones que rigen para las zonas protectoras, de conformidad con lo que establece la Ley Forestal N° 7174 del 28 de junio de 1990.
