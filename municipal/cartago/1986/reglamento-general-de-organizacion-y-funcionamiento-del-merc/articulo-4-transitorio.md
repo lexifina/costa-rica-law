@@ -1,1 +1,0 @@
-Transitorio IV.-Los arrendatarios del uso de piso deberán usar los recipientes necesarios para depositar en ellos los desechos de los productos que venden. La violación a esta disposición será motivo de suspensión por tres ferias consecutivas, la reincidencia dará lugar a la revocatoria del permiso respectivo.

@@ -1,2 +1,0 @@
-Artículo 36.-La Municipalidad de Cartago no acepta ni aceptará enajenaciones, cesiones, canjes, donaciones o entregas por cualquier título permanente o transitorio, que hagan los inquilinos de sus puestos a terceros, si el consentimiento expreso previo y por escrito del Concejo Municipal.
-Tanto el inquilino que verifique la negociación aquí prohibida como el presunto adquiriente perderán el derecho a ocupar el puesto y se cancelará el contrato inmediatamente para ser adjudicado de nuevo.
