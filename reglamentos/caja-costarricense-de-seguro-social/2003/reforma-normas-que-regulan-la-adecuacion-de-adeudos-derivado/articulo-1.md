@@ -1,0 +1,12 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+REFORMA REGLAMENTARIA
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 23º de la sesión número 7750, celebrada el 29 de abril del año 2003, acordó modificar los artículos 4º y 7º de las Normas que Regulan la Adecuación de Adeudos Derivados de las Contribuciones a la Seguridad Social y de la Ley de Protección al Trabajador, en los siguientes términos:
+NORMAS QUE REGULAN LA ADECUACIÓN DE ADEUDOS
+DERIVADOS DE LAS CONTRIBUCIONES A LA SEGURIDAD
+SOCIAL Y DE LA LEY DE PROTECCIÓN AL TRABAJADOR
+"Artículo 4º—El plazo máximo que se otorgará al patrono para cumplir con el arreglo de pago formalizado, será de siete años. En casos excepcionales debidamente fundamentados y razonados, la Junta Directiva y la Gerencia de la División Financiera podrá autorizar una aplicación del plazo hasta un máximo de diez años en total.
+Corresponderá a la Gerencia de la División Financiera revisar y ajustar las tasas de interés de arreglos de pago tomando en consideración la tasa básica pasiva, la tasa activa y las tasas internacionales según corresponda. Las mismas serán revisadas semestralmente y se informará a la Junta Directiva los ajustes que se realicen.
+Artículo 7º—Se autoriza a la administración para que formalice convenios de pago administrativos con patronos hasta por un plazo máximo de 6 (seis) meses.
+El convenio lo suscribirá la unidad administrativa correspondiente, de conformidad con los montos autorizados en el artículo quinto de estas disposiciones y se regirán las condiciones que indique la Gerencia de la División Financiera en el Instructivo para la adecuación de adeudos derivados de las contribuciones de la Seguridad Social y de la Ley de Protección al Trabajador.
+En caso de instituciones públicas, se autoriza a la Gerencia de la División Financiera suscribir convenios hasta por un monto de cien millones de colones; por sumas superiores se deberá someter el convenio a aprobación de la Junta Directiva. En aquellos casos en que el patrono no posea bienes susceptibles de embargo e incapacidad comprobada de pago, se podrá realizar prórrogas por periodos iguales. En dichas prórrogas deberá incrementarse la cuota de pago.
+En todos los casos, las tasas de interés serán las mismas que rigen para los arreglos de pago. Además el patrono deberá mantener al día el pago de las planillas ordinarias y el incumplimiento del convenio dará origen para que se inicien las causas judiciales pertinentes".
