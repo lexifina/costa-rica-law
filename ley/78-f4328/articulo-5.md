@@ -1,0 +1,1 @@
+ARTÍCULO 5°. -Por ausencia ó enfermedad del Gobernador, presidirá las sesiones municipales en la cabecera de Provincia, el Regidor mas antiguo; y en el mismo caso que falte en alguno de los otros Cantones el Alcalde 1°, presidir el 2°.
