@@ -1,6 +1,6 @@
 # Todos los bienes muebles e inmuebles, rentas y recursos de la Junta Nacional de la Habitación y de las "Cooperativas Casas Baratas, La Familia", organizadas en el país, pasarán a ser propiedad de la Caja Costarricense de Seguro Social
 
-Ley N° 148 del 1945-08-08. SINALEVI, ficha 34468: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=34468&param2=91538&param3=1>.
+Ley N° 148 del 1945-08-08. SINALEVI, ficha 34468: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=34468&param2=91580&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 11 | 1946-07-01 | Ley 561 | 1946-07-01 |
 | 3 de 11 | 1946-12-20 | Ley 837 | 1946-12-20 |
 | 4 de 11 | 1947-01-15 | Ley 841 | 1947-01-15 |
+| 5 de 11 | 1949-05-03 | Ley 510 | 1949-05-03 |
