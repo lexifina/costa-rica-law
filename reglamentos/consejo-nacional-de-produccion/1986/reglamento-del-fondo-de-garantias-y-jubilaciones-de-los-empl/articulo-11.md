@@ -1,1 +1,0 @@
-Articulo 11—La Junta Administradora tendrá a su cargo la administración, inversión y utilización del Fondo, de acuerdo con las disposiciones de este Reglamento y está autorizada para tomar las medidas que juzgue más convenientes en el cumplimiento de tales disposiciones.

@@ -1,1 +1,0 @@
-Articulo 14—La contabilidad del Fondo deberá llevarse en forma tal que permita conocer en cualquier momento la situación financiera del Fondo y las cuentas individuales de cada uno de los empleados del Consejo. Los gastos de papelería, contabilidad y en general de mantenimiento del Fondo correrán por cuenta del Consejo.

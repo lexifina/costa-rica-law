@@ -1,1 +1,0 @@
-Artículo 2°—Para los efectos de este Reglamento, se consideran empleados del Consejo, aquellas personas que hubieren sido contratadas por tiempo indefinido. en calidad de trabajadores permanentes o con más de seis meses de interinidad continua.
