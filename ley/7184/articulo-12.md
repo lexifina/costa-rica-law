@@ -1,0 +1,10 @@
+ARTICULO 12
+1. Los Estados Partes garantizarán al niño que esté en condiciones
+de formarse un juicio propio el derecho de expresar su opinión libremente
+en todos los asuntos que afectan al niño, teniéndose debidamente en
+cuenta las opiniones del niño, en función de la edad y madurez del niño.
+2. Con tal fin, se dará en particular al niño oportunidad de ser
+escuchado en todo procedimiento judicial o administrativo que afecte al
+niño, ya sea directamente o por medio de un representante o de un órgano
+apropiado, en consonancia con las normas de procedimiento de la ley
+nacional.

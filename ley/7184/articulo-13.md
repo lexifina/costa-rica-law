@@ -1,0 +1,12 @@
+ARTICULO 13
+1. El niño tendrá derecho a la libertad de expresión; ese derecho
+incluirá la libertad de buscar, recibir y difundir informaciones e ideas
+de todo tipo, sin consideración de fronteras, ya sea oralmente, por
+escrito o impresas, en forma artística o por cualquier otro medio elegido
+por el niño.
+2. El ejercicio de tal derecho podrá estar sujeto a ciertas
+restricciones, que serán únicamente las que la ley prevea y sean
+necesarias:
+a) Para el respeto de los derechos o la reputación de los demás; o
+b) Para la protección de la seguridad nacional o el orden público o
+para proteger la salud o la moral públicas.
