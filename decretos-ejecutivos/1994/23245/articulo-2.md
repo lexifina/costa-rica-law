@@ -1,0 +1,1 @@
+Artículo 2°—La Dirección General de Informática es la dependencia del Ministerio de Hacienda, a cuyo cargo se encuentra el establecimiento y conducción de la política informática, así como apoyar la gestión de las diferentes unidades y áreas de trabajo del Ministerio, por medio del procesamiento de datos, operación y mantenimiento de sistemas de información.
