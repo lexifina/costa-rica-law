@@ -1,0 +1,1 @@
+Art 2°.- El término de esta traslación es el indicado en el artículo anterior, e introduciéndose en el Estado los en él comprendidos, antes y sin ser llamados por el Gobierno o sin permiso de este, por el mismo hecho serán considerados como perturbadores del orden público y como a tales se castigarán.
