@@ -1,0 +1,1 @@
+Artículo 42.-EI departamento de personal, tendrá la obligación de controlar y aplicar, en el mes de setiembre de cada año o luego de efectuada la calificación de servicios, lo dispuesto en el artículo 27 de este reglamento, presentando una lista de los profesionales afectados, al jerarca ejecutivo, con copia de la Audítoría Interna y al Departamento Legal.

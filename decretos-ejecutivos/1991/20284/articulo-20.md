@@ -1,0 +1,1 @@
+Artículo 20.-La experiencia obtenida al servicio de otras instituciones del Estado, se reconcerá para efectos de este beneficio, siempre que se cumplan las condiciones de los literales a), b), e) del artículo anterior y se haga constar en un documento avalado por jefe de personal o por el máximo jerarca de la dependencia donde fue obtenida.

@@ -1,0 +1,1 @@
+Artículo 18.-No se reconocerá el incentivo contemplado en el artículo anterior a aquellos profesionales para quienes el trabajo cotidiano del puesto sea el de coordinador, instructor de programas de capacitación o docencia.

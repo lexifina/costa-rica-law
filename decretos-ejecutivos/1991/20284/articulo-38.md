@@ -1,0 +1,1 @@
+Artículo 38.-Las resoluciones referidas, serán comunicadas a la comisión institucional, al interesado y al jefe de personal, a fin de que se tramite la respectiva acción de personal en que se haga efectivo el incentivo por carrera profesional.

@@ -1,0 +1,1 @@
+Artículo 46.-Será aceptado el ingreso a la carrera profesional a aquellos funcionarios de nivel profesional que ocupen un puesto en forma interina, a plazo fijo, si tales nombramientos han sido ininterrumpidos y han tenido una duración en forma acumulativa, de seis meses como mínimo o si hacia el futuro, el nombramiento no es inferior de seis meses.

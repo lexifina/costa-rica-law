@@ -1,0 +1,1 @@
+Articulo 33.-La comisión institucional estudiará la solicitud y si la aprobare, determinará de acuerdo con el puntaje obtenido, el monto por reconocer y comunicará al petente, el resultado de su gestión.

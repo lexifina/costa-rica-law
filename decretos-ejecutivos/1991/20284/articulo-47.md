@@ -1,0 +1,1 @@
+Artículo 47.-Los servidores que estuvieren disfrutando del incentivo por concepto de carrera profesional y que por alguna razón se trasladasen a otra institución o empresa pública, mantendrán el derecho a que se actualice el incentivo siempre y cuando continúen ocupando un puesto de nivel profesional y aporten los documentos probatorios de tal situación.

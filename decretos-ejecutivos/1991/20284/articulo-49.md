@@ -1,0 +1,1 @@
+Artículo 49.-Las comisiones institucionales, en caso de duda en cuanto a la calificación de atestados, relativos a estudios y experiencia, podrá elevar a la Secretaría Técnica de la Autoridad Presupuestaria, solicitud escrita para su estudio y resolución definitiva.

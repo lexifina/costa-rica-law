@@ -1,0 +1,1 @@
+Artículo 25.-La experiencia docente en instituciones de enseñanza, no se reconocerá en el caso de los docentes cuando sea la índole de su trabajo. El tiempo laborado, se considerará como experiencia profesional en instituciones del estado, debiéndose cumplir los literales a), b) y e) del artículo 19 del presente reglamento.

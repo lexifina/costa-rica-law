@@ -1,0 +1,3 @@
+Artículo 23.-La experiencia obtenida en organismos internacionales (o proyectos financiados por estos), podrá ser considerada para la carrera profesional, siempre que:
+a) Las labores desempeñadas por el funcionario de nivel profesional, sean afines a la especialidad que ocupa.
+b) El funcionario interesado demuestre por medio de certificaciones del jefe de personal o de representantes del organismo respectivo, el tipo de trabajo y la duración de este y que existió una relación laboral directa. Debe excluirse de este reconocimiento, las labores realizadas en calidad de préstamo, como de contraparte o destacado.
