@@ -1,0 +1,2 @@
+Artículo 41.—Cuando en el cumplimiento de sus funciones los servidores de la Institución tengan que trasladarse fuera de su centro de trabajo, el tiempo de traslado que se utilice formará parte de su jornada de trabajo.
+En aquellos casos en que el centro de trabajo sea diferente a la ubicación física de la dependencia en que laboran los servidores, el Superior Jerárquico Administrativo emitirá instrucciones directas a los servidores, para que la ejecución de sus labores se realice en otro sitio, según las necesidades de la Institución.

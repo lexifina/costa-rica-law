@@ -1,0 +1,1 @@
+Artículo 96.—Los servidores disfrutarán los sábados y domingos como días de descanso sin goce de salario, salvo en aquellos casos en que por la naturaleza del puesto resulte necesario fijar días distintos a los indicados. En esta situación, tales días se disfrutarán en forma consecutiva después de cinco días de trabajo continuo.

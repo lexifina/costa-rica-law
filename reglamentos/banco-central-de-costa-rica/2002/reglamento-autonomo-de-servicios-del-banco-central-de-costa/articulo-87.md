@@ -1,0 +1,1 @@
+Artículo 87.—Los puestos de las escalas salariales devengarán un salario único global, cuya fijación corresponde a un posicionamiento en el mercado salarial, tomando en cuenta como referencia, sectores del mercado salarial que guarden afinidad con las actividades que lleva a cabo la Institución.

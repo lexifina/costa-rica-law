@@ -1,0 +1,1 @@
+Artículo 57.—Todo programa de reestructuración organizacional tendrá como objetivo fundamental lograr una mayor y eficaz ejecución de las actividades que le competen a una dependencia, y podrán ser totales o parciales, dependiendo de los propósitos y alcances que se pretendan.

@@ -1,0 +1,5 @@
+Artículo 22.-La relación de servicio será:
+a. Por tiempo indefinido: Con los servidores nombrados para satisfacer las necesidades propias y permanentes de la Institución.
+b. A tiempo determinado: Con los servidores nombrados para realizar temporalmente funciones propias y permanentes de la Institución, cuando el titular del puesto esté ausente por tiempo determinado, así como en aquellos casos excepcionales en que resulte procedente conforme a la naturaleza del servicio que se va a prestar. Su nombramiento se hará para cumplir oportunamente con el desarrollo de trabajos o proyectos urgentes, en cuya ejecución se evidencien limitaciones para utilizar personal regular de la Institución. Los contratos a tiempo determinado, no podrán celebrarse por plazos mayores a un año.
+c. De aprendizaje: Que se formalicen por escrito de acuerdo con las disposiciones de la Ley de Aprendizaje, Ley N° 4903 del 17 de noviembre de 1971, su Reglamento y disposiciones conexas y supletorias, y que tiendan a la formación profesional, metódica y completa del individuo.
+(Adicionado mediante Fe de Erratas publicada en La Gaceta N° 116 del 18 de junio del 2002).

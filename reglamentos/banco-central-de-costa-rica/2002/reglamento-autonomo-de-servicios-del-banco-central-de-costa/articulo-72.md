@@ -1,0 +1,2 @@
+Artículo 72.—Todo nombramiento en categoría superior, traslado o permuta quedará en firme al concluir el período de prueba de tres meses, salvo que la administración justifique dentro de este plazo la inconveniencia institucional de mantenerlo en el puesto, o bien el servidor manifieste su deseo de regresar al cargo anterior.
+Durante el período de prueba citado las funciones del puesto del servidor movido, según la necesidad institucional, serán atendidas por el mecanismo de sustitución o recargo.

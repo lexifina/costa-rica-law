@@ -1,0 +1,2 @@
+Artículo 53.—El servidor o las jefaturas podrán solicitar al Departamento Gestión del Recurso Humano, el estudio técnico individual o integral para aquellos puestos que sufran variaciones sustanciales y permanentes en sus competencias, con el objeto de determinar la correcta clasificación y valoración.
+La solicitud respectiva deberá contener un análisis razonado de la naturaleza y alcance de las variaciones que considere haya sufrido el puesto y en que grado cumple su titular con los requisitos exigidos en la actividad ocupacional en que podría ser asignado, si la conociere.

@@ -1,0 +1,2 @@
+Artículo 133.—La Institución instalará en cada uno de sus edificios y en un lugar apropiado, un botiquín médico con todos los elementos necesarios para primeros auxilios. Los medicamentos que compongan la dotación del botiquín serán los recomendados por el Instituto Nacional de Seguros y la Caja Costarricense de Seguro Social.
+La asignación y atención de dichos botiquines será realizada por el área especializada.

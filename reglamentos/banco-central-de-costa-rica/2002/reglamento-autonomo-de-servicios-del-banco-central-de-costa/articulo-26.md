@@ -1,0 +1,1 @@
+Artículo 26.—El sistema de evaluación de la gestión laboral es participativo, por lo que la jefatura correspondiente, una vez aprobados los planes, metas, objetivos y resultados esperados a alcanzar, dentro del Plan Anual Operativo, le indicará al servidor las obligaciones y responsabilidades que asumirá en ese Plan, sobre las cuales será evaluado en un determinado período.

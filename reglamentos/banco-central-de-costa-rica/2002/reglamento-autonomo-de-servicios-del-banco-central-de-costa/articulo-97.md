@@ -1,0 +1,1 @@
+Artículo 97.—Son hábiles para el trabajo todos los días del año excepto los feriados dispuestos por ley; los días que la Junta Directiva de la Institución declare como asueto y los días de descanso. No obstante lo anterior, los servidores deberán trabajar los días feriados en los casos de excepción contenidos en el artículo 151 del Código de Trabajo.

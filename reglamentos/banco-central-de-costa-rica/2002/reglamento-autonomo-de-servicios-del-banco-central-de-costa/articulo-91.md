@@ -1,0 +1,1 @@
+Artículo 91.—La Institución pagará todo el tiempo efectivamente laborado por recargo o sustitución de funciones previamente aprobados por el Director de Departamento o de División según corresponda, incluyendo las ausencias que se produzcan en el período de recargo o sustitución no imputables al servidor, tales como capacitación y días inhábiles.

@@ -1,0 +1,2 @@
+TRANSITORIO II.—El Sistema de Evaluación de la Gestión Laboral contemplada en la Sección II del Capítulo III del presente Reglamento, así como las disposiciones que lo regulan, entrará a regir en la fecha que expresamente la Junta Directiva de la Institución señale, una vez que conozca y se le garantice la operatividad normal del mismo.
+En esa misma Sesión la Junta Directiva definirá las condiciones que regirán la eliminación del plus salarial "méritos", por lo que éste se mantendrá vigente hasta tanto no se efectué ese dimensionamiento.

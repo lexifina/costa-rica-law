@@ -1,0 +1,1 @@
+Artículo 59.—La naturaleza y alcance de una reestructuración organizacional y del recurso humano deben ser definidas por el jerarca Superior Administrativo correspondiente de la dependencia en proceso de reestructuración y sustentarse en un estudio técnico que aporte las razones que motivan los cambios propuestos en esa materia.

@@ -1,0 +1,2 @@
+Artículo 27.—La evaluación total del servidor estará constituida por: Una evaluación individual hecha por la jefatura inmediata, por una evaluación grupal efectuada por el equipo de trabajo y por una evaluación derivada de los datos que arrojen las encuestas u otro instrumento de medición del servicio al cliente.
+El servidor será evaluado en el área administrativa en donde haya laborado como mínimo durante un período de tres meses.

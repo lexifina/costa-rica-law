@@ -1,0 +1,1 @@
+Artículo 93.—La Institución, de conformidad con lo establecido en la Ley 1981, de 9 de noviembre de 1955, pagará un aguinaldo o sueldo adicional anual, el cual será entregado dentro de los primeros cinco días hábiles del mes de diciembre de cada año.

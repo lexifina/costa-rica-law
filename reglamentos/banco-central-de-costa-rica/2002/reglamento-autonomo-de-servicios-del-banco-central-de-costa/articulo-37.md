@@ -1,0 +1,1 @@
+Artículo 37.—Dentro de los horarios rotativos los servidores tendrán dos días de descanso consecutivos por semana, los cuales serán rotados mensualmente, de tal manera que la asignación de esos días será variable en el período de lunes a domingo. Asimismo, los días de descanso pueden no ser consecutivos, pero sí aplicados dentro del período semanal.

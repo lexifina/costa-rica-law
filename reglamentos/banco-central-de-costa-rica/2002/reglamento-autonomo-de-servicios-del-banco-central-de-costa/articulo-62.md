@@ -1,0 +1,1 @@
+Artículo 62.—La indemnización mencionada en el artículo anterior no será aplicable en el caso de un servidor removido con una situación jurídica consolidada, que fundamente la existencia de su derecho a pensión en cualquiera de los regímenes oficiales, no complementarios, existentes.

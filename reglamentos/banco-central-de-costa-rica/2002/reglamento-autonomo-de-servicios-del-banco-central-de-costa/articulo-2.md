@@ -1,0 +1,1 @@
+Artículo 2º—En defecto del Reglamento se aplicarán, en su orden, los principios, leyes, normas y cualquier componente del ordenamiento jurídico público y en lo conducente las disposiciones laborales aplicables en esta materia y en los mismos términos indicados para el ordenamiento público.

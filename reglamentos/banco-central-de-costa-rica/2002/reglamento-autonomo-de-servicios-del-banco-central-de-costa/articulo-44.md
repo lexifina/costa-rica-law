@@ -1,0 +1,2 @@
+Artículo 44.—Los estudios técnicos de la Institución que fijen nuevas clasificaciones y valoraciones serán efectuados exclusivamente por la División Administrativa, salvo aquellos contratados externamente, en los que esta Dependencia participará como contraparte técnica.
+La División Administrativa dará participación en dichos estudios al Jerarca Superior Administrativo correspondiente o a quien él designe.

@@ -1,0 +1,1 @@
+Artículo 119.—La División Administrativa del Banco en coordinación con el Jerarca Superior Administrativo correspondiente, podrá ordenar de oficio o a solicitud de los afectados directos, su reubicación temporal.

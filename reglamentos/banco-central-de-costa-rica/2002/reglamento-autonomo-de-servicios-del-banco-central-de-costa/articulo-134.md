@@ -1,0 +1,1 @@
+Artículo 134.—Todo servidor de la Institución deberá acatar y cumplir, en lo que le sea aplicable, los términos de la Ley sobre Riesgos del Trabajo, su reglamento, los reglamentos de salud ocupacional que se promulguen y las recomendaciones que, en esta materia les formulen las autoridades competentes.

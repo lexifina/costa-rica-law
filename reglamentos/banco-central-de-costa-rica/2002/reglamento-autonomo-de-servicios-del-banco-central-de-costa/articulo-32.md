@@ -1,0 +1,1 @@
+Artículo 32.—La Junta Directiva del Banco Central definirá como Incentivo por Excelencia en el cumplimiento de objetivos, una suma anual variable no acumulativa aplicable a los servidores que cumplan satisfactoriamente la evaluación por gestión laboral. Dicha remuneración no forma parte del salario de los servidores de la Institución.

@@ -1,0 +1,2 @@
+Artículo 108.—La Institución proporcionará a sus servidores el equipo y accesorios necesarios para el desempeño de sus funciones, así como los uniformes e implementos cuando correspondan, todos ellos de buena calidad, que garanticen la seguridad y protección en su trabajo, de conformidad con la normativa que para esos efectos emita la Gerencia del Banco.
+Es deber de los servidores hacer buen uso y conservar en buen estado los artículos e implementos a su cargo, ello de conformidad con lo establecido en el artículo 71, inciso c), del Código de Trabajo.

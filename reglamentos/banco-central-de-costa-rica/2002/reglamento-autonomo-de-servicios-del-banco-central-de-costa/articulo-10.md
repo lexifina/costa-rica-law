@@ -1,0 +1,1 @@
+Artículo 10.—La información suministrada se considerará recibida bajo juramento, y por consiguiente, cualquier inexactitud o alteración dolosa y grave, dará lugar a que el aspirante sea excluido del proceso de reclutamiento. En caso de que hubiere sido contratado, se tendrá como falta grave, y en ambos casos se hará de conocimiento del Ministerio Público.

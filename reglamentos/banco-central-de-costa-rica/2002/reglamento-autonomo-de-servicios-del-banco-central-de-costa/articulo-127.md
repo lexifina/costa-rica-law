@@ -1,0 +1,1 @@
+Artículo 127.—Cuando el Jerarca Superior Administrativo correspondiente, considere conveniente suspender con goce de sueldo al servidor cuyos supuestos hechos se investigan administrativa o judicialmente, lo hará en forma motivada.

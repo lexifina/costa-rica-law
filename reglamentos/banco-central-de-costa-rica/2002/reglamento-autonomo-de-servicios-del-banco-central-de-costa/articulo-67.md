@@ -1,0 +1,1 @@
+Artículo 67.—Los empleados que se encuentren adscritos a la dependencia sujeta a reestructuración podrán presentar ante el Jerarca Superior Administrativo correspondiente, su solicitud para acogerse al Programa de Retiro Voluntario, quedando a criterio de dicho jerarca aceptar o denegar, con la debida justificación técnica, las solicitudes que se le presenten para tales efectos.

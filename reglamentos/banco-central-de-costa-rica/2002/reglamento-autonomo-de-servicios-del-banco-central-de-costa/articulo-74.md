@@ -1,0 +1,1 @@
+Artículo 74.—Se prohíbe la ejecución de cualquier movimiento de personal que afecte permanentemente la relación de servicio en el tanto no esté respaldado por una acción de personal debidamente aprobada. Incurrirá en las responsabilidades de orden administrativo, civil y penal que procedieren, aquel servidor que incumpla esta prohibición.

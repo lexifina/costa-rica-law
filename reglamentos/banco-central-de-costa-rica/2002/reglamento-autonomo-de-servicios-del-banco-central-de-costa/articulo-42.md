@@ -1,0 +1,1 @@
+Artículo 42.—La Institución aplicará la normativa vigente en materia de gastos de viaje y de transporte para funcionarios públicos, dictada por la Contraloría General de la República, a efectos de cubrir las erogaciones que, por ese concepto, deban realizar sus funcionarios cuando, en cumplimiento de sus funciones, se desplacen dentro o fuera del territorio nacional.

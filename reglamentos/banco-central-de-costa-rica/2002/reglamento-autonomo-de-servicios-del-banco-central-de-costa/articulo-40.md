@@ -1,0 +1,1 @@
+Artículo 40.—Los servidores están obligados a ocupar el tiempo necesario, fuera de la jornada ordinaria, para subsanar los errores que se le hayan imputado en el desempeño de sus funciones, sin que ese tiempo pueda considerarse como extraordinario.

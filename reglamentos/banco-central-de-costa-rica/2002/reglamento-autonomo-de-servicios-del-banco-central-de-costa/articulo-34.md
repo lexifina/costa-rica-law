@@ -1,0 +1,1 @@
+Artículo 34.—Dentro de la jornada ordinaria de trabajo indicada en el inciso a) del artículo anterior, el horario para la prestación del servicio será de lunes a viernes inclusive, de las 8,30 a las 16,30 horas.

@@ -1,0 +1,1 @@
+Artículo 94.—La Institución pagará por concepto de salario escolar y únicamente a los servidores que ingresaron a laborar antes del 1° de enero de 1999, consistente en un 8.33% sobre el salario bruto percibido en el período anual anterior, beneficio que se hará efectivo en un solo pago en el mes de enero de cada año y estará sujeto a las cargas de Ley.

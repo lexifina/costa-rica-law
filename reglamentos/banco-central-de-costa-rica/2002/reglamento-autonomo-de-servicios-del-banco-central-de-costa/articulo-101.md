@@ -1,0 +1,1 @@
+Artículo 101.—Corresponderá a los Directores de Departamento o los de División, el poder conceder licencias con goce de sueldo por tres días hábiles, cuando el servidor contraiga nupcias, por nacimiento o adopción de un hijo, o el fallecimiento de un familiar de hasta segundo grado de consanguinidad o afinidad.

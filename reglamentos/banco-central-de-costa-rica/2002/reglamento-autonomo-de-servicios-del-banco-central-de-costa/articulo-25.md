@@ -1,0 +1,1 @@
+Artículo 25.—Corresponderá a la Junta Directiva de la Institución definir anualmente la ponderación o valor porcentual máximo que se fijará para cada una de las fases del sistema, así como la nota mínima que le permitirá otorgar a la Institución el incentivo económico contemplado en el artículo 32 del Reglamento.

@@ -1,0 +1,1 @@
+Artículo 90.—Para el pago del recargo se aplicará el mismo procedimiento del artículo anterior y su monto será equivalente al cincuenta por ciento (50%) de la diferencia entre la categoría del empleado que recarga y la del puesto recargado.

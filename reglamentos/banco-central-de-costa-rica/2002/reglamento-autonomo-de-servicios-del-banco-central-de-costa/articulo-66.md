@@ -1,0 +1,1 @@
+Artículo 66.—Acordado el Programa de Retiro Voluntario, el Jerarca Superior Administrativo fijará sus fechas de inicio y finalización, debiendo comunicarlas a la Junta Directiva del Banco Central y al personal que forma parte de la dependencia en proceso de reestructuración.

@@ -1,0 +1,3 @@
+SECCIÓN II
+Del sistema de evaluación de la gestión laboral
+Artículo 23.—La Institución contará con un sistema de evaluación de la gestión laboral que genere información en cuanto a productividad del recurso humano, tanto individualmente como por dependencia, fomente valores como el de servicio al cliente, permita la mejora del desempeño y ayude a la alta gerencia en la identificación, tanto de las debilidades como de las fortalezas de su personal para una adecuada toma de decisiones, determinando la idoneidad de cada servidor de la Institución en su respectivo equipo de trabajo y constituyéndose en una base para otorgar incentivos.

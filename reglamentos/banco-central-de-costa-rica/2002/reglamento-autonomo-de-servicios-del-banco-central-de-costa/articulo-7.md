@@ -1,0 +1,1 @@
+Artículo 7º—Para efectos de llenar una plaza vacante, el Departamento Gestión del Recurso Humano efectuará un concurso abierto. Este Departamento utilizará para ello las fuentes de reclutamiento externas y las bases de datos atinentes al personal de la Institución.

@@ -1,0 +1,1 @@
+Artículo 31.—A la entrada en vigencia del sistema de evaluación de la gestión laboral, los porcentajes de méritos ganados por los servidores dentro del anterior sistema de evaluación del desempeño, se mantendrán como un plus salarial porcentual, estático e invariable.

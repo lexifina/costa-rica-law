@@ -1,0 +1,1 @@
+Artículo 130.—Las sanciones disciplinarias del Reglamento, deberán imponerse dentro de un mes contado a partir del momento en que la autoridad administrativa con facultad para dictar el acto final, conozca la recomendación que al efecto le eleve el Órgano Director del Procedimiento Administrativo respectivo.

@@ -1,0 +1,4 @@
+CAPÍTULO XIII
+Del hostigamiento sexual
+Artículo 118.—De conformidad con la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia Nº 7476 del 3 de febrero de 1995, el servidor que se considere afectado por acoso u hostigamiento sexual, podrá denunciar formalmente los hechos ante cualquier autoridad de la Institución de grado igual o superior a de Director de Departamento, quién deberá trasladarla inmediatamente a la Dirección de la División Administrativa para que ordene la respectiva investigación y determinar su admisibilidad.
+Si producto de la investigación se obtiene indicios suficientes para la apertura de un procedimiento ordinario disciplinario, este se llevará a cabo en los términos establecidos en la Ley General de la Administración Pública, en lo que fuere compatible con esta materia. En ningún caso, la totalidad del procedimiento indicado en este artículo podrá exceder de tres meses contados a partir de la interposición de la denuncia.
