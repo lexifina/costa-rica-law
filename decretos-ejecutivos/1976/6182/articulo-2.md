@@ -1,1 +1,0 @@
-Artículo 2°-La estimación de la faja de terreno, construcciones y plantíos es de ¢11,737.50 (once mil setecientos treinta y siete colones, cincuenta céntimos) que corresponde al total pe la suma a pagar de conformidad con el Avalúo número 13.449 Av. E., de la Sección de Avalúos Especiales de la Tributación Directa .
