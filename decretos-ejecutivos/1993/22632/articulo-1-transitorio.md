@@ -1,0 +1,1 @@
+Transitorio l.-Las disposiciones contenidas en el artículo 17 de este decreto no serán aplicables a la Dirección Sectorial de Energía, sin embargo, ésta debe coordinar actividades con la Dirección General de Planificación y Cooperación Internacional.
