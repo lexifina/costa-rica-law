@@ -1,0 +1,1 @@
+Artículo 7°—Los funcionarios encargados de hacer cumplir la Ley respetarán la Ley y el presente Código. También harán cuanto esté a su alcance por impedir toda violación de ellos y deberán oponerse vigorosamente a tal violación.

@@ -1,0 +1,1 @@
+Artículo 6°—Los funcionarios encargados de hacer cumplir la Ley asegurarán la plena protección de la salud de las personas bajo su custodia y en particular, tomarán medidas inmediatas para proporcionar atención médica.

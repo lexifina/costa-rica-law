@@ -1,0 +1,1 @@
+Artículo 2°—En el desempeño de sus tareas, los funcionarios encargados de hacer cumplir la Ley respetarán y protegerán la dignidad humana y mantendrán y defenderán los derechos humanos de todas las personas.

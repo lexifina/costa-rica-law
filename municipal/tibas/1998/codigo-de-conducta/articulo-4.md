@@ -1,0 +1,1 @@
+Artículo 4°—Las cuestiones de carácter confidencial de que tengan conocimiento los funcionarios encargados de hacer cumplir la Ley se mantendrán en secreto, a menos que el cumplimiento del deber o las necesidades de la justicia exijan estrictamente lo contrario.
