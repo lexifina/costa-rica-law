@@ -1,0 +1,2 @@
+Artículo 15.-Prohibiciones para el adelanto de dineros
+El responsable del manejo del fondo, no debe dar trámite a un nuevo adelanto, si existe una boleta pendiente por liquidar a cargo del departamento o sección solicitante.
