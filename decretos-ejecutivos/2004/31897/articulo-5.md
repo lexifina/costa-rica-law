@@ -1,0 +1,1 @@
+Artículo 5º—El Centro de Investigación y Conservación del Patrimonio Cultural designará un jurado constituido por tres personas conocedoras en la materia por cada categoría seleccionada para el certamen.

@@ -1,0 +1,1 @@
+Artículo 2º—El Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura, Juventud y Deportes, en coordinación con las organizaciones culturales de la zona asignada, será el encargado de la realización del mismo.
