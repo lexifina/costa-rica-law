@@ -1,1 +1,1 @@
-Articulo 14.- Auditoria Interna. En ausencia del auditor interno de la Sociedad de Fondos, se solicitara, la participación en su lugar de un funcionario de la auditoria interna del Banco Nacional de Costa Rica.
+Articulo 14.- (Derogado mediante sesión N° 10 del 22 de setiembre de 2000)

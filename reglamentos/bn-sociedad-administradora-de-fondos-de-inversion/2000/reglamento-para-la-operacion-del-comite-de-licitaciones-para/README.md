@@ -14,3 +14,4 @@ Reglamento para la Operación del Comité de Licitaciones para BN Sociedad Admin
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-04-27 | la propia norma |
+| 2 | 2000-09-22 | Reglamento 10 (2000-09-22) |
