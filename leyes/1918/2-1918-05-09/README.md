@@ -1,0 +1,9 @@
+# Concede Pensión Vitalicia
+
+Ley N° 2 del 1918-05-09. SINALEVI, ficha 33128: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33128&param2=34946&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1918-05-09 | Ley 2 | 1918-05-09 |
