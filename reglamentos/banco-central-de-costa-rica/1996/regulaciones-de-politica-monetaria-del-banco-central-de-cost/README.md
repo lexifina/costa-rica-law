@@ -14,3 +14,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-16 | la propia norma |
+| 2 | 1996-06-28 | Reglamento 4877 (1996-06-28) |

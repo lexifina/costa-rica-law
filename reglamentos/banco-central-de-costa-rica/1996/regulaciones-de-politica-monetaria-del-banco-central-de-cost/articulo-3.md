@@ -44,8 +44,9 @@ A partir del: |
 1° de octubre, 1996 | 29%
 1° de noviembre, 1996 | 27%
 28 de noviembre, 1996 | 25%
-b) Para los depósitos y obligaciones exigibles a plazos iguales o mayores de treinta días y menores de ciento ochenta días de los intermediarios financieros, aplica un 17%.
-c) Para los depósitos y obligaciones exigibles a ciento ochenta o más días plazo, de los intermediarios financieros, aplica una tasa del 10%: Esta tasa estará vigente durante el año 1996.
+b) Para los depósitos y obligaciones exigibles a plazos iguales o mayores de treinta días de los intermediarios financieros, aplica una tasa del 5%.
+(Así reformado el literal b) anterior en sesión N° 4877 del 28 de junio de 1996)
+c) (Derogado este literal en sesión N° 4877 del 28 de junio de 1996)
 Los porcentajes de encaje establecidos en el presente apartado rigen para las captaciones en cuenta corriente o a la vista en moneda extranjera que, conforme a la ley 7558 del 27 de noviembre de 1995, empiecen a efectuar los bancos y empresas financieras no bancarias.
 3. El 10% sobre depósitos y obligaciones en moneda nacional y extranjera de los intermediarios financieros, que a la fecha de entrada en vigencia de la ley 7558 del 27 de noviembre, 1995, no estaban sujetos al requisito de encaje mínimo legal, pero que en virtud de la citada ley deben estarlo. Los porcentajes establecidos en este apartado aplican sobre cualesquiera otra operación de captación de recursos financieros que realicen los intermediarios financieros, cuyas características sean similares a las de los depósitos bancarios. Esta tasa rige hasta el 31 de julio de 1998.
 Los intermediarios financieros deberán ajustarse a dicha tasa, con la gradualidad que se detalla a continuación:
