@@ -9,10 +9,9 @@ Considerando:
 Decretan:
 Artículo 1º—En tanto se concluyen las gestiones para realizar modificación regional del arancel, realizar la siguiente apertura arancelaria y modificar los Derechos Arancelarios a la Importación contemplados en el Arancel Centroamericano de Importación, en el inciso que se detalla a continuación:
 Sac Descripción Dai
-32.09 PINTURAS Y BARNICES A BASE DE POLÍMEROS
-SINTÉTICOS O NATURALES O MODIFICADOS,
-DISPERSOS O DISUELTOS EN UN MEDIO
-ACUOSO.
-3209.10 -A base de polímeros acrílicos o vinílicos:
-3209.10.10 —Barniz para artes gráficas 0
-3209.10.90 —Otros 14
+BARNICES
+32.09 PINTURAS Y BARNICES A BASE DE POLÍMEROS SINTÉTICOS O NATURALES MODIFICADOS, DISPERSOS O DISUELTOS EN UN MEDIO ACUOSO
+3209.10 - A base de polímeros acrílicos o vinílicos:
+3209.10.10 — Barniz para artes gráficas 0 30 de junio 2004
+3209.10.90 — Otros 14 30 de junio de 2004
+(Así modificado por el Decreto Ejecutivo No. 31227 de 03 de junio de 2003.)
