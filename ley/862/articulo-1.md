@@ -1,8 +1,0 @@
-(Derogado)
-N° 862
-(Esta ley fue derogada por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")
-El Congreso Constitucional de la República de Costa Rica
-Decreta:
-Artículo único.- Adiciónese el artículo 108 de la ley N° 16 de 5 de noviembre de 1936, con el siguiente párrafo:
-"Siempre que se solicite los servicios del Banco Nacional de Costa Rica, como entidad pública, para dictámenes ajenos a dicha institución, ya sea en virtud de leyes que así lo dispongan o por mandato de organismos y funcionarios judiciales, administrativos o municipales, o a petición de particulares, tales dictámenes deberán ser vertidos de acuerdo con las normas establecidas por el Banco para sus propios peritazgos y previa revisión y aprobación de sui Departamento Agrícola. La suma que por gastos y honorarios hubiere que cubrir, seberá ser depositada en el propio Banco, a favro de éste. Los peritos no percibirán estipendio alguno especial por esos trabajos, los cuaes se tendrán por comprendidos en sus labores regulares y deberán ser ejecutados dentro de las horas reglamentarias salvo permiso especial para realizarlos fuera de ellas. Sin embargo previo permiso de la Junta Directiva del Banco Nacional de Costa Rica y sin responsabilidad de ninguna índole para la citada institución, sus peritos valuadores podrán aceptar a solicitud de parte interesada, peritazgo o tasaciones de carácter personal, percibiendo de ellos los honorarios correspondientes, sin quedar en tal caso sujetos a la reglamentación del Banco".
-Casa Presidencial.- San José, a los cinco días del mes de mayo de mil novecientos cuarenta y siete.

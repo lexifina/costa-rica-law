@@ -1,1 +1,0 @@
-Artículo 2º.- Se exceptúa al Sistema Bancario Nacional de las disposiciones de la ley Nº 136 de 26 de julio de 1933 y sus reformas, quedando sujetos los Bancos a las tasas de interés que para sus operaciones activas y pasivas fije el Banco Central de Costa Rica.
