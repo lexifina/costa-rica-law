@@ -14,3 +14,4 @@ Reforma al Reglamento Interior General del Colegio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-09-01 | la propia norma |
+| 2 | 1999-09-01 | Ley 8 |
