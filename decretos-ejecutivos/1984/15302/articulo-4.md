@@ -1,1 +1,2 @@
-ARTICULO 4º.- El Departamento de Adiestramiento de Personal de la Dirección General de Servicio Civil, actuará como órgano central del subsistema y ejercerá las funciones emanadas del Estatuto de Servicio Civil y de su Reglamento, ley Nº 6362, Ley de Licencias para Adiestramiento de Servidores Públicos y las consignadas en el presente Reglamento.
+Artículo 4°—E1 Centro de Capacitación y Desarrollo (CECADES) de la Dirección General de Servicio Civil actuará como órgano central del Subsistema de Capacitación y Desarrollo (SUCADES).
+(Así reformado mediante artículo 1 del decreto ejecutivo N° 26786 del 12 de marzo de 1998).

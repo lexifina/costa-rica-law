@@ -1,1 +1,2 @@
-ARTICULO 15.- Para el reconocimiento de cursos de adiestramiento y capacitación realizados fuera del país, se requerirá de parte del interesado, la presentación del programa de curso, el certificado obtenido y cualesquiera otros documentos que permitan avalar la capacitación recibida.
+Artículo 15.—Para el reconocimiento de actividades de capacitación externas al SUCADES se requerirá, de parte del interesado, la presentación del respectivo programa, el certificado obtenido o documentos equivalentes y todos aquellos otros que permitan avalar la naturaleza y la duración de la capacitación recibida o impartida.
+(Así reformado mediante artículo 1 del decreto ejecutivo N°26786 del 12 de marzo de 1998).

@@ -1,1 +1,1 @@
-ARTICULO 18.- Todos aquellos instructores evaluados con calificación de muy bueno como mínimo, por los asistentes al curso, se harán acreedores a un certificado de reconocimiento, que será tomado en cuenta con fines de reclutamiento de personal, selección y carrera administrativa, en los casos en que el tipo de instrucción impartida, tenga relación con las tareas del puesto al que se aspira.
+ARTICULO 18.- (Suprimido mediante artículo 3 del decreto ejecutivo 26786 del 12 de marzo de 1998).

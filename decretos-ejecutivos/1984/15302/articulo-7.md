@@ -1,10 +1,4 @@
 CAPITULO II
 De la competencia de los diferentes órganos
-ARTICULO 7º.- El Departamento de Adiestramiento de Personal tendrá entre otras, las siguientes funciones:
-a) Conjuntamente con el Consejo de Adiestramiento de Personal, establecer las políticas generales para el adiestramiento del personal del Régimen de Servicio Civil.
-b) Promover programas de adiestramiento y participar en la investigación, planificación, administración y desarrollo de tales programas.
-c) Preparar formularios, tarjetas de registro y manuales que orienten y uniformen los procedimientos y demás acciones a cumplir en este campo de actividad.
-d) Coordinar y supervisar las actividades de adiestramiento de personal, a los efectos de garantizar un adecuado desarrollo de las mismas.
-e) Estudiar y recomendar acciones tendientes a promover el adiestramiento y a estimular a los funcionarios que participen en estos eventos, otorgándole a la capacitación el reconocimiento necesario con fines de reclutamiento de personal, selección y carrera administrativa.
-f) Reconocer el adiestramiento que los funcionarios del Régimen de Servicio Civil reciban fuera del país; o dentro de éste, cuando se trate de cursos impartidos y organismos internacionales.
-g) Investigar y desarrollar procedimientos y técnicas para determinar necesidades de capacitación, la metodología didáctica a utilizar y la evaluación del adiestramiento.
+Artículo 7°—El CECADES tendrá a cargo las atribuciones establecidas en el Decreto Ejecutivo No 25383-MP del 3 de setiembre de 1996; así como las demás asignadas en las disposiciones jurídicas propias de su competencia y, orgánicamente se regirá por lo dispuesto en el Decreto Ejecutivo 25813-MP del 14 de enero de 1997.
+(Asi reformado mediante el artículo 1 del decreto ejecutivo N° 26786 del 12 de marzo de 1998).

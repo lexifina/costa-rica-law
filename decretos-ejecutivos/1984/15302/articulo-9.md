@@ -1,10 +1,13 @@
-ARTICULO 9º.- Son funciones de las Unidades de Adiestramiento:
-a) Planificar, organizar, supervisar y evaluar programas de adiestramiento en sus respectivos ministerio o entidades.
-b) Organizar y mantener actualizados los registros de recursos humanos para la instrucción y el de personal capacitado.
-c) Llevar el archivo de programas y evaluaciones de cursos y cualesquiera otros que se consideren necesarios.
-d) Estudiar y reconocer procedimientos que permitan un adecuado aprovechamiento de las becas y de las facilidades de capacitación ofrecidas por organismos internacionales y gobiernos extranjeros.
-e) Tramitar concursos para la concesión de becas y velar por la correcta aplicación de la Ley de Licencias para Adiestramiento de Servidores Públicos y de los artículos 37 y 38 del Reglamento del Estatuto de Servicio Civil.
-f) Colaborar con los servidores en el trámite de contratos de licencias para estudios y para adiestramiento.
-g) Coordinar, supervisar y otorgar el apoyo técnico administrativo necesario para el desarrollo de proyectos específicos de capacitación, suscritos entre el ministerio y organismos nacionales e internacionales.
-h) Realizar actividades de seguimiento que permitan evaluar los resultados del adiestramiento y velar porque se cumplan en todos sus extremos las obligaciones contraídas por los funcionarios.
-i) Coordinar las labores de adiestramiento y capacitación con el Departamento de Adiestramiento de Personal de la Dirección General de Servicio Civil.
+Artículo 9.—Son funciones de las Unidades de Capacitación o de los responsables directos de las actividades de capacitación en las instituciones, las siguientes:
+a) Realizar estudios científicos de detección de necesidades de capacitación, con el propósito de formular los programas de trabajo pertinentes y satisfacer los objetivos y metas que haya fijado la institución.
+b) Coordinar, internamente (con los responsables de programas o actividades de sus instituciones) y externamente (con las otras Unidades de Capacitación del SUCADES), acciones que favorezcan la participación conjunta de otras dependencias públicas o privadas, tanto nacionales como extranjeras, en el proceso capacitador de funcionarios públicos, en términos de intercambio, donación o préstamo de los recursos propios de la capacitación y desarrollo de los funcionarios en general, como insumos necesarios para el cumplimiento de los objetivos, tanto del SUCADES, como del CECADES.
+c) Planificar, organizar, controlar y evaluar la ejecución de las acciones capacitadoras que se lleven a cabo en la institución, apoyándose en la colaboración que puedan brindar las instancias normativas en la materia.
+d) Velar por la correcta aplicación de las disposiciones técnicas y jurídicas que rigen el desarrollo de la capacitación de los funcionarios institucionales.
+e) Organizar y mantener permanentemente actualizados los registros que identifiquen los recursos de infraestructura, materiales, facilitadores, personal capacitado, programas, evaluaciones y cualesquiera otros que se estimen necesarios, con el fin de satisfacer necesidades internas de planificación de la capacitación y necesidades externas del SUCADES, todo ello a través del Sistema de Información de Capacitación (SINCAP) que administra el CECADES.
+f) Presentar oportunamente al CECADES la documentación e información resultante de las acciones capacitadoras llevadas a cabo.
+g) Realizar adecuada y oportunamente los trámites de Licencias y Contratos para Estudios, Capacitación y Labores Docentes, en beneficio de los servidores en general.
+h) Realizar los estudios técnicos y otras acciones o trámites para determinar las mejores opciones en cuanto al aprovechamiento y disfrute de becas y otras facilidades de capacitación, siguiendo lo dispuesto en la normativa vigente.
+i) Coordinar el desarrollo de sus actividades regulares con el CECADES.
+j) Controlar, planificar y utilizar adecuadamente los recursos económicos y humanos disponibles para el desarrollo de sus actividades.
+k) Rendir informes trimestrales a la máxima autoridad de su institución y al CECADES sobre los distintos procesos desarrollados, incluyendo el desglose de los recursos económicos, materiales y humanos utilizados. Asimismo, presentar un informe anual integrando las principales acciones trimestrales, el cual será objeto de consideración por parte del Consejo de Capacitación y la Asamblea del SUCADES, para evaluar el plan general de capacitación y desarrollo de las instituciones integrantes de dicho Subsistema.
+(Así reformado mediante el artículo 1 del decreto ejecutivo N°26786 del 12 de marzo de 1998).
