@@ -14,3 +14,4 @@ Crea la Inspección General del Servicio Exterior
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-25 | la propia norma |
+| 2 | 1998-05-25 | Ley 8 |
