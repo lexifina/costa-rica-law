@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE BELÉN
+La suscrita Secretaria del Concejo Municipal de Belén, le notifica el acuerdo tomado, en la sesión ordinaria Nº 51-2004 celebrada el diez de agosto del dos mil cuatro, que literalmente dice:
+Artículo 35.—Se acuerda por unanimidad: Primero: Derogar el artículo 48 del Reglamento para el Otorgamiento de Permisos de Construcción. Segundo: De conformidad con lo previsto en los artículos 79, 88, 89 inciso a), y 90 de la Ley Nº 833, Ley de Construcciones, artículo 70 de la ley Nº 4240, Ley de Planificación Urbana y los dictámenes C-183-2000 del 11 de agosto de 2000, C-152-2001 del 25 de mayo de 2001 de la Procuraduría General de la República, la Municipalidad de Belén en los casos en los que se inicien obras de construcción sin la respectiva licencia cobrará por concepto de multa un 1% sobre el valor de la construcción, para lo cual seguirá un procedimiento expedito garantizando los derechos del infractor.
+Belén, 18 de agosto del 2004.
