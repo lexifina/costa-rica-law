@@ -1,0 +1,2 @@
+Artículo 23.—Todas las personas que salgan de las salas para lectura o de las áreas donde se encuentran las colecciones, tienen la obligación de mostrar el contenido de bolsos, maletines y demás objetos y materiales que porten a solicitud del funcionario encargado de la seguridad que se encuentre controlando la salida de documentos.
+Además, el usuario tiene la obligación de detenerse al activarse la alarma de las antenas de detección ubicadas en las puertas de salida.

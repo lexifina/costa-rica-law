@@ -1,0 +1,1 @@
+Artículo 31.—El Departamento de Servicios Bibliotecarios, Documentación e Información mantendrá un servicio de préstamo permanente e interbibliotecario sujeto a las reglamentaciones acordadas con las bibliotecas participantes, siempre y cuando no contravenga lo establecido en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 40.—El usuario reincidente en el deterioro o pérdida de materiales o en ambos, sin que medie caso fortuito o fuerza mayor, además de cubrir el valor estipulado en los términos de este capítulo, se le aplicará la sanción de suspensión del préstamo a domicilio, según el artículo anterior.

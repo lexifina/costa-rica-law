@@ -1,0 +1,1 @@
+Artículo 4°—Los diputados y los funcionarios administrativos y de confianza podrán hacer uso del servicio de préstamo de materiales a sala y a domicilio, siempre que cumplan con las disposiciones de este Reglamento.

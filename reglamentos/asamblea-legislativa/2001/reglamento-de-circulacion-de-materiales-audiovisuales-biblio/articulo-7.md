@@ -1,0 +1,1 @@
+Artículo 7°—Se exceptúan de la disposición anterior las personas que por circunstancias especiales, obtengan permiso para solicitar préstamo de materiales a domicilio de la Dirección del Departamento de Servicios Bibliotecarios, Documentación e Información.

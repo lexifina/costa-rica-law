@@ -1,0 +1,1 @@
+Artículo 44.—Las jefaturas de la institución deberán coadyuvar en el fiel cumplimiento del presente Reglamento, en lo referente a la devolución de los materiales por parte de los subalternos, de conformidad con lo dispuesto en el artículo 35, inciso a), del Reglamento Interior de Trabajo de la Asamblea Legislativa.

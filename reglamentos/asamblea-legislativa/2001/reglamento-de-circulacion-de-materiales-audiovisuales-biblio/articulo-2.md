@@ -1,0 +1,1 @@
+Artículo 2°—Este Reglamento también permite implementar los controles necesarios para garantizar la mejor utilización de la información, la permanencia, la conservación y la preservación de los materiales bibliográficos, audiovisuales y electrónicos de la institución.

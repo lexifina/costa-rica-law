@@ -1,0 +1,1 @@
+Artículo 9°—Para hacer uso del préstamo de materiales en las salas para lectura, el público debe presentar una identificación vigente con fotografía, la cual le será regresada en el momento en que devuelva los materiales en préstamo.

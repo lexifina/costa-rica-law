@@ -1,0 +1,1 @@
+Artículo 13.—El prestatario queda obligado a devolver los materiales obtenidos en préstamo a domicilio en la fecha de vencimiento indicada, sin que deba mediar recordatorio o aviso al respecto. Es responsabilidad del usuario asegurarse de que la devolución se efectúe en el sistema automatizado o de retirar las boletas que firmó al formalizar el respectivo préstamo.

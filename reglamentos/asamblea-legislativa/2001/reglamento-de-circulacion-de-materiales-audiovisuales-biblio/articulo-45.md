@@ -1,0 +1,1 @@
+Artículo 45.—El Departamento de Servicios Bibliotecarios, Documentación e Información se reservará el derecho de negar a quienes no cumplieren con las disposiciones del presente Reglamento el servicio de préstamos a sala o a domicilio, según corresponda por el tipo de usuario.

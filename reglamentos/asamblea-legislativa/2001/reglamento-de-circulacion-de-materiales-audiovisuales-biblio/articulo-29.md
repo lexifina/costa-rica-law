@@ -1,0 +1,1 @@
+Artículo 29.—En préstamo a sala y a domicilio, el usuario sólo podrá tener en su poder hasta cinco ejemplares del material solicitado, con excepción de los casos de investigaciones especiales para trabajos legislativos en que se requiera un número mayor.

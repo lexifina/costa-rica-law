@@ -1,0 +1,1 @@
+Artículo 16.—Quince días antes de que los diputados y funcionarios de confianza concluyan sus funciones legislativas, entregarán todos los materiales que tuvieren en su poder; de lo contrario se les aplicarán, según corresponda, los artículos 36 y 37 de este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 34.—No obstante, el plazo de préstamo será menos cuando las necesidades del servicio y el tipo de material así lo requieran.
+Asimismo, se podrá establecer el vencimiento anticipado de aquellos materiales requeridos para el trabajo legislativo en las comisiones o en el plenario o por los diputados. La Dirección Departamental o el Jefe del Área respectiva determinará la necesidad y solicitará al prestatario la devolución respectiva.

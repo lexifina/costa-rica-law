@@ -1,0 +1,1 @@
+Artículo 11.—Para hacer uso del servicio de préstamo de materiales, es requisito indispensable no encontrarse moroso, presentar el carné para préstamo y cuando sea necesario, llenar las boletas de préstamos y presentarlas directamente al funcionario encargado en el momento de solicitar materiales.

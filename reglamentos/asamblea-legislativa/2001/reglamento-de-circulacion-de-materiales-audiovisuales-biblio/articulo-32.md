@@ -1,0 +1,1 @@
+Artículo 32.—Tendrá libre acceso al acervo bibliográfico únicamente el personal del Área de Orientación al Usuario y Gestión de Servicios, los Diputados y funcionarios de la Asamblea, así como los investigadores externos, podrán tener acceso cuando así lo solicitaren al Bibliotecario encargado o sean remitidos para consulta de la colección de periódicos.

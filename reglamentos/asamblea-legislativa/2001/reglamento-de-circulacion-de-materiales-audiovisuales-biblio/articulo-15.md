@@ -1,0 +1,1 @@
+Artículo 15.—En resguardo de la integridad y el óptimo uso de las colecciones, el usuario deberá cuidar con esmero los materiales que tenga en su custodia y devolverlos en la fecha de vencimiento señalada. Cada usuario será responsable por la pérdida o los daños que sufran los materiales que se encuentren en su poder.

@@ -1,0 +1,1 @@
+Artículo 10.—Las unidades de información o las instituciones públicas con las que se tengan convenios de préstamo interbibliotecarios, deben realizar sus solicitudes de material por escrito, firmadas por la persona registrada como responsable y estar debidamente selladas.

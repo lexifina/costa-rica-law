@@ -1,0 +1,1 @@
+Artículo 19.—A fin de conservar un ambiente apropiado para la investigación y el estudio, se exigirá un comportamiento acorde con la naturaleza de un centro de estudio y de las buenas costumbres en las salas para lectura.

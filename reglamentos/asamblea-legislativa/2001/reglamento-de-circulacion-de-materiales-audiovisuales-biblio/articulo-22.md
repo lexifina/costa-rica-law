@@ -1,0 +1,1 @@
+Artículo 22.—El Departamento de Servicios Bibliotecarios, Documentación e Información no se responsabiliza de los objetos u otros valores olvidados sobre las mesas, mostradores, cubículos para lectura individual y sala de reuniones.

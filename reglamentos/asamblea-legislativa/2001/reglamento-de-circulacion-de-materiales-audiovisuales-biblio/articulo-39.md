@@ -1,0 +1,1 @@
+Artículo 39.—El usuario que deje los materiales que tenga en préstamo en otras bibliotecas u otro sitio fuera de la institución, se hará acreedor a una suspensión del préstamo a domicilio por un período de dos meses. En caso de reincidencia, la suspensión será por seis meses, o en forma definitiva, según la reiteración del incumplimiento.

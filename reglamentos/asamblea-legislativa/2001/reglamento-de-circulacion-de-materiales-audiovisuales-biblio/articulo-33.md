@@ -1,0 +1,2 @@
+Artículo 33.—El préstamo de materiales a domicilio se realizará por un período máximo de quince días naturales, prorrogables por períodos iguales, en tanto dicho material no esté siendo solicitado por otro usuario.
+Para hacer la renovación es requisito indispensable presentar el material en buen estado y realizar de nuevo el préstamo, con excepción de aquellas prórrogas que autorizare el Jefe de Área o la Dirección Departamental.
