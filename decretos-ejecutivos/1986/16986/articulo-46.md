@@ -1,0 +1,1 @@
+Artículo 46.- La DGF por medio del departamento respectivo definirá las áreas del Patrimonio Forestal del Estado en las cuales se otorgarán concesiones para el aprovechamiento de recursos forestales, excepto las áreas administradas por SPN.

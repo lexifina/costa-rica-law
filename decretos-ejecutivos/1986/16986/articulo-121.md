@@ -1,0 +1,1 @@
+Artículo 121.-Toda industria forestal que no mantenga en vigencia el permiso de funcionamiento por dos años consecutivos, será considerada como una nueva industria y deberá cumplir con las disposiciones planteadas para tal efecto, en la Ley y el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 15.-La madera que se encuentre fuera de una determinada región habiendo cancelado solamente el 10% inicial que indica el artículo 20 de la ley, será retenida si en un plazo no mayor de dos días hábiles no se cancela el restante 10% del valor del metro cúbico de madera en pie.

@@ -1,0 +1,2 @@
+Artículo 52,-Si a una persona se le cancela el permiso otorgado para aprovechar el bosque en terrenos privados, por incumplimiento del contrato suscrito al efecto con la DGF, no le podrán ser concedidas nuevas autorizaciones en dichos inmuebles sino una vez transcurridos doce meses contados a partir de la fecha de cancelación.
+No obstante lo anterior, si el incumplimiento cometido es la no recuperación del bosque, la citada Dirección le tramitará una nueva solicitud en el momento que compruebe que la reforestación se ha efectuado, aunque no hubiera vencido dicho plazo.

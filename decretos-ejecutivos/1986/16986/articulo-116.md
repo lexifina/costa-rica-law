@@ -1,0 +1,1 @@
+Artículo 116.-Cumplido lo establecido en el artículo 115 del presente Reglamento y aprobada la solicitud por la DGF, ésta lo comunicará al Ministerio de Hacienda conjuntamente con la documentación respectiva, a fin de que este Ministerio proceda con el trámite correspondiente.

@@ -1,0 +1,1 @@
+Artículo 57.-Para la calificación de terrenos de aptitud agropecuaria o forestal se empleará el sistema para la determinación de la capacidad de uso de las tierras de Costa Rica, hasta tanto el MAG oficialice una metodología.

@@ -1,0 +1,2 @@
+Artículo 104.-Todo proyecto de reforestación, y/o manejo de bosque cualquiera que sea el área, deberá contar con los servicios de un técnico forestal durante la vigencia del contrato forestal. Dicho técnico debe cumplir lo establecido en el artículo 54 del presente Reglamento.
+Dicho técnico deberá rendir informes trimestrales de avance del proyecto y estado de la plantación. Los informes deberán elaborarse de acuerdo con la guía que para esos efectos establezca la DGF.

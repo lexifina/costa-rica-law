@@ -1,0 +1,1 @@
+Artículo 16.- La DGF debe establecer los mecanismos necesarios a través de Unidades de Control de Aserraderos y Puestos de Control Forestal permanentes y volantes, para impedir evasión de los impuestos forestales establecidos en el artículo 20 de la ley.

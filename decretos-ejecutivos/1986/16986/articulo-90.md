@@ -1,0 +1,1 @@
+Artículo 90.-El CAF deberá ser suscrito por el Ministro de Agricultura y Ganadería conjuntamente con el Director General Forestal. Las firmas del Ministro de Agricultura y Ganadería, Viceministro de Agricultura y Ganadería Director General Forestal y Subdirector General Forestal deben ser registradas en la Bolsa Nacional de Valores.

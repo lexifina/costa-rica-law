@@ -1,0 +1,4 @@
+Artículo 111.-Para gozar de los incentivos fiscales a que se refiere el artículo 87 de la Ley, los interesados deberán someterse voluntariamente al Régimen Forestal para lo cual deberá cumplir con los requisitos establecidos en el artículo 73 del presente Reglamento y presentar la solicitud correspondiente y el respectivo Plan de Manejo ante la DGF.
+Una vez realizados los estudios correspondientes, la DGF inscribirá área solicitada al Régimen Forestal, posteriormente se suscribirá un contrato con el interesado.
+Para la exoneración del pago de impuestos y grávamenes de importación, cuando se trate de equipo, vehículos, maquinaria e insumos. Estos deben estar contemplados en el plan de manejo respectivo o sus modificaciones y aprobados previamente por la DGF.
+La DGF a solicitud del interesado extenderá una certificación, con la cual el Ministerio de Hacienda aplicará la exoneración.

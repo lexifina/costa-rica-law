@@ -1,0 +1,1 @@
+Artículo 30.-El Consejo se reunirá en forma ordinaria dos veces por año, y será convocado por su Presidente, por el Director General Forestal o tres de sus miembros. La convocatoria a reuniones extraordinarias la hará el Presidente del Consejo o cuatro de sus miembros con tres días hábiles de anterioridad. El quórum existirá con la presencia de seis representantes.

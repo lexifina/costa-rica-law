@@ -1,0 +1,1 @@
+Artículo 93.-La persona que desee acogerse a los beneficios del CAF debe cumplir, además de lo establecido en el artículo 73 del presente Reglamento con la presentación de la solicitud y Plan de Manejo correspondiente ante la DGF.

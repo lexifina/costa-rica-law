@@ -1,0 +1,1 @@
+Artículo 83, -A fin de prevenir los incendios forestales la DG F realizará campañas preventivas, organización y capacitación de grupos locales y regionales. Las acciones que la citada Dirección establezca, serán vinculantes para todas las autoridades del país.

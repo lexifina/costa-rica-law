@@ -1,0 +1,2 @@
+Artículo 149.-Las fincas sometidas al Régimen Forestal en los cuales se esté ejecutando un plan de manejo, no podrán dedicarla a otro uso durante el plazo indicado en dicho plan, limitación que el Registro Público anotará mediante el asiento correspondiente, una vez se lo notifique la DGF.
+Para cualquier traspaso de finca o partes de éstas, sometidas al Régimen Forestal, deberá incluirse dicha afectación dentro de la escritura respectiva. El Registro Público deberá tomar nota de dicha afectación, e igualmente, hacer la anotación correspondiente.

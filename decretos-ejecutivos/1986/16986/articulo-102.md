@@ -1,0 +1,2 @@
+Artículo 102.-Se podrán extender los certificados por adelantado a que hace referencia el artículo 83 de la Ley dando prioridad, a los proyectos de reforestación que realicen los pequeños propietarios. Las características que definen a los pequeños propietarios serán determinadas mediante un decreto ejecutivo, previo estudio realizado por la DGF.
+La garantía que se deberá rendir al extendérsele el CAF por adelantado, deberá ser definida conjuntamente por la DGF y la Dirección General de la Tributación Directa.

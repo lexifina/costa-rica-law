@@ -1,0 +1,1 @@
+Artículo 19.-Para la asignación del diez por ciento del impuesto general forestal, correspondiente a las corporaciones y cooperativas forestales, la DGF publicará anualmente los montos disponibles para la ejecución de proyectos y los requisitos necesarios para ser beneficiario, debiendo los interesados presentar la respectiva solicitud ante la DGF para su estudio y aprobación.

@@ -1,0 +1,1 @@
+Artículo 95.-Una vez recibida la solicitud y demás requisitos se estampará al pie de ella un sello en el que se hará constar la fecha de su presentación y su correspondiente número, se devolverá una copia con el respectivo sello al interesado.

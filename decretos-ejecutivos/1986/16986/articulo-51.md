@@ -1,0 +1,5 @@
+Artículo 51.-Las garantías necesarias para la efectiva recuperación de las áreas intervenidas serán las siguientes:
+a) Depósito en una subcuenta especial del Fondo Forestal de un veinticinco por ciento del valor de la madera en pie. Este depósito podrá ser cubierto en dinero en efectivo, bonos o cualquier otro valor aceptado por la DGF.
+b) Contrato de recuperación de áreas afectadas por medio de regeneración natural o reforestación, sometiendo en garantía de cumplimiento valores como maquinaria, bienes inmuebles y otros aceptados por la DGF.
+c) Los incisos a) y b) de este artículo no son aplicables para los asociados de organizaciones forestales privadas que tengan en ejecución, a satisfacción de la DGF, convenios específicos de reforestación suscritos con el MAG, que incluyan los compromisos de reforestación por parte de los asociados que aprovechan madera en bosques u terrenos de aptitud forestal.
+El incumplimiento del citado convenio por parte de las organizaciones privadas, dejará sin efecto para todos los asociados de dicha organización esta excepción.

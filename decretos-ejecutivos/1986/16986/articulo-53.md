@@ -1,0 +1,1 @@
+Artículo 53,-Para poder gozar del financiamiento mediante los créditos que indica el artículo 50 de la Ley , los planes de manejo respectivos deberán ser presentados a la DGF en la fecha en que se les indique administrativamente.

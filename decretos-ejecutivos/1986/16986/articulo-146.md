@@ -1,0 +1,3 @@
+TITULO SEXTO
+De la Capacitación e Investigación
+Artículo 146.-La DGF establecerá un plan de capacitación y educación conforme con las necesidades de la Institución que será revisado y evaluado periódicamente, así como un método sistemático que permita igualdad de oportunidades a los funcionarios de similar especialidad y función, para ser elegibles y gozar de los beneficios que otorga este artículo. Este debe ser el procedimiento previo al trámite de la comisión de becas del MAG, conforme con las disposiciones del Reglamento de dicha comisión. Además se establecerá un procedimiento interno de seguimiento y evaluación de dicha capacitación y entrenamiento.

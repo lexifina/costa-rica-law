@@ -1,0 +1,2 @@
+Articulo 147. -Los proyectos de investigación desarrollados de acuerdo con lo establecido en los artículos 21 de la Ley y 18 de este Reglamento, deberán ser aprobados y supervisados por el Departamento de Investigaciones de la DGF debiendo estar enmarcados dentro de sus políticas o plan nacional de investigación forestal.
+Para la elaboración y seguimiento de dicho plan existirá un comité integrado por las instituciones públicas y privadas relacionadas con las investigaciones forestales del país.

@@ -1,0 +1,1 @@
+Artículo 75.-Las gastos en que incurra la DGF para determinar si procede el sometimiento voluntario de una finca al Régimen Forestal, serán cubiertos por el interesado, de acuerdo con lo establecido por el artículo 84 de la Ley.

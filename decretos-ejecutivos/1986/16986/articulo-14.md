@@ -1,0 +1,2 @@
+Articulo 14.- La DGF pondrá en operación un sistema de doble guía por programa regional forestal. En cada región se empleará un determinado color de guía para aquella madera que se procese en las industrias forestales de la región. Para amparar el transporte de la madera que va a ser procesada fuera de su región se utilizará una guía especial.
+Las guías de uso interno respaldarán el pago del 10% mientras que las guías especiales respaldarán el pago del 20% del valor del metro cúbico de madera en pie, cancelado por concepto de impuesto general forestal.

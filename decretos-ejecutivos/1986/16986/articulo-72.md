@@ -1,0 +1,1 @@
+Artículo 72.-En el plan de manejo deberá indicarse el tipo de maquinaria a utilizar en los procesos de corta, extracción, transporte y transformación primaria. La DGF podrá suspender los permisos en caso de comprobarse el uso de maquinaria diferente a la aprobada, o recomendar el cambio de equipo si el autorizado deteriora de manera significativa el recurso.

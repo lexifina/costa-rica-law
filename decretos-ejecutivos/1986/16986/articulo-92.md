@@ -1,0 +1,1 @@
+Artículo 92.-Podrán solicitar la entrega del CAF todas aquellas personas físicas o jurídicas, que demuestren mediante documento público ser él o los propietarios de la plantación y responsables del cumplimiento del plan de manejo, de acuerdo con el contrato suscrito con el Estado.

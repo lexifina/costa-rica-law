@@ -1,0 +1,1 @@
+Artículo 80.-Para los lagos, embalses naturales y artificiales, la zona protectora minima será de cien metros a partir de sus riberas. Las zonas protectoras de recarga acuifera a las que hace referencia el inciso 4) del artículo 68 de la Ley , serán determinadas en forma conjunta con la institución correspondiente y la DGF.

@@ -1,0 +1,1 @@
+Artículo 24.-Para efectos de lo estipulado en el inciso a) punto a.3) del articulo 24 de la ley, la DGF y el banco respectivo donde se establecerá el fideicomiso, elaborarán el reglamento que regulará lo concerniente a la condición para el otorgamiento de los préstamos.

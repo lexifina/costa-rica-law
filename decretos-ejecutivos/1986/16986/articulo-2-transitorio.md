@@ -1,0 +1,1 @@
+2.-A más tardar seis meses después de aprobado este RegIamento el MAG, a través de la DGF, establecerá un Fideicomiso para financiar actividades de desarrollo forestal a realizar por el sector privado.

@@ -1,0 +1,1 @@
+Artículo 40.-La realización de los estudios descritos en el artículo 36 de la Ley , corresponderán a la DGF o al SPN. Ambas direcciones podrán solicitar la colaboración de otras instituciones estatales. La categoría de manejo se determinará de acuerdo con los estudios elaborados y con fundamento en el artículo 35 de la Ley.

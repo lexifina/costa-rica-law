@@ -1,0 +1,1 @@
+Artículo 29.-Dejará de ser miembro del Consejo, el que falte a dos sesiones consecutivas sin justa causa. El Presidente del Consejo pedirá a la institución o entidad respectiva que nombre un sustituto.
