@@ -1,3 +1,5 @@
+(Derogado)
+(Esta Constitución Política fue derogada por el artículo 192 de la Constitución Política del 10 de febrero de 1847)
 CONSTITUCION POLITICA DEL ESTADO
 DE COSTA RICA
 9 de Abril de 1844
