@@ -1,1 +1,0 @@
-Artículo 2°—El Poder Ejecutivo nombrará por acuerdo a los funcionarios que a la fecha de vigencia de la Ley No 3530 antes citada, hayan cumplido más de los cinco años ininterrumpidos de servicio estipulados en el artículo anterior.
