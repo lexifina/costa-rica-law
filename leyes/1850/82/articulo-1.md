@@ -1,0 +1,11 @@
+DECRETO LXXXIL.
+Aprueba con modificaciones la contrata a un camino y navegación en el río “Sarapiqui” celebrada entre el Ministro de la República en Londres, y los Señores Filer y Carmichael. (1)
+(1) Quedó sin efecto como tantos otros proyectos y contratas de esta naturaleza,
+"Juan Rafael Mora Presidente de la República de Costa Rica,- Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente,
+El Excelentísimo Congreso Constitucional de la República de Costa Rica, en uso de la facultad que le la fraccion 9º art 57 de la Constiticion, decreta:
+Articulo único. Se aprueban los once artículos que comprende la contrata celebrada en Londres en16 de marzo del presente año, entre el Ministro Plenipotenciario de la República S° D° Felipe Molina por una parte, y los Señores Jorge Filer y Juan Carmichael por otra, con objeto de hacer navegable el rio de Sarapiqui para lanchas y pequeños buques de vapor, y construir un camino desde esta Capital hasta el desembarcadero de dicho rio, bajo las aclaraciones siguientes;
+1° En el artículo 2° se sostituye á la medida de acre, la de manzana de cien varas castellanas en cuadro:
+2° El camino de que habla el artículo 3°, debe entenderse que ha de ser propio para el tránsito de carruages, pues que no esta expresado como debia estarlo, la clase de camino que ha de construirse:
+3° Que la prohibicion establecida en el mismo artículo 3° de abrir un nuevo camino, se entiende respecto solo al rio de Sarapiqui; no extendiendose por consiguiente à otros puertos y lugares de la costa del Norte.
+4° En el artículo 9° debe entenderse, que para percibir los derechos que establece el articulo 3°es de necesidad que se limpie y canalice el rio, y al mismo tiempo se fabrique el camino; y
+5° El artículo 10° se entiende que los puntos de la contrata serán juzgados de la manera mas justa para ambas partes,-Al Poder Ejecutivo.-Dado en el Palacio de los Supremos Poderes en San José a los catorce dias de mes de junio de mil ochocientos cincuenta.- Francisco Maria Oreamuno, Presidente. -Modesto Guevara, Secretario.-Manuel Zamora, Secretario,- Por tanto: EJECUTESE. Palacio Nacional, San José julio quince de mil ochocientos cincuenta. -Juan Rafael Mora.-El Ministro de Estado en el Despacho de Gobernacion. –Joaquin Bernardo calvo.”
