@@ -1,1 +1,0 @@
-Artículo 2°-Serán sancionados de acuerdo con las leyes penales por adulteración o fraude según sea el caso, quienes produzcan o importen atunes en conserva que no estén de acuerdo con las especificaciones de esta Norma.
