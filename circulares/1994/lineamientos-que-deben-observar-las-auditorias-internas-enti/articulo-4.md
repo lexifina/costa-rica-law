@@ -1,0 +1,2 @@
+4. SOBRE LA EJECUCIÓN DEL PLAN
+La ejecución debe realizarse acorde con los objetivos, actividades, prioridades y tiempo contenidos en el plan de auditoria y conforme con los lineamientos dictados por la Contraloría General de la República , con principios, normas y procedimientos del Colegio de Contadores Públicos de Costa Rica, en lo que sean aplicables, así como cualesquiera otros sanos principios de aplicación general.
