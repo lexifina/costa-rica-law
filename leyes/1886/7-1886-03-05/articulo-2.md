@@ -1,0 +1,1 @@
+Art. 2°-La Nación se reserva el derecho de abrir el camino expresado al servicio público, indemnizando al concesionario los gastos que haya hecho, y dándole en gratificación una cantidad á juicio del Poder Ejecutivo, que no exceda de dos mil pesos.
