@@ -1,1 +1,0 @@
-6°—La compensación por disponibilidad que se indica en el artículo tercero se reconocerá únicamente a aquellos servidores que desempeñen un puesto a tiempo completo en el Banco y por causa de las condiciones o necesidades objetivas de la Institución cambios funcionales u otros motivos que justifiquen su pago.

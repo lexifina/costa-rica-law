@@ -1,1 +1,0 @@
-2°—Se podrá pagar disponibilidad en forma permanente o por un período determinado según los requisitos del servicio y la continuidad de la actividad del Banco, previa autorización del respectivo comité que designará la Gerencia General.

@@ -1,1 +1,0 @@
-5 °—Los funcionarios o empleados sujetos a este régimen no podrán desempeñar labores ajenas a las realizadas en el Banco, cuando aquellos impliquen subordinación, sujeción a horario u otras circunstancias que les obligue a acatar órdenes superiores o a permanecer jornadas a tiempos fijos en el desempeño de las funciones realizadas fuera del Banco.

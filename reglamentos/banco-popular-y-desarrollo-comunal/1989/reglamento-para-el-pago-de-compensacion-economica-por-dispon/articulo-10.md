@@ -1,2 +1,0 @@
-10.—El pago de Compensación por Disponibilidad procede en los casos de vacaciones o incapacidad laboral, así como en el caso de disfrute de becas o permisos con goce de salario y en casos especiales a juicio de la Gerencia General.
-Cuando el funcionario o empleado se encuentre en alguno de los casos aquí previstos, excepción hecha de la incapacidad laboral, procede llamarlo a prestar sus servicios sólo en situaciones muy calificadas.

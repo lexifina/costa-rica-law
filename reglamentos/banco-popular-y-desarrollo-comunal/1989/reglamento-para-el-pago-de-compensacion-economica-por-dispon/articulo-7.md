@@ -1,2 +1,0 @@
-7°—Se dejará de pagar la compensación por disponibilidad cuando desaparezcan las condiciones objetivas que motivaron su pago cuando se opere un traslado a otro puesto que no conlleve este reconocimiento o por cualquier otro motivo justificado.
-Consecuentemente no se podrán alegar derechos adquiridos cuando concurran las circunstancias apuntadas en el párrafo anterior, sin embargo la exclusión de un puesto o cargo del pago de compensación por disponibilidad deberá ser debidamente motivada por la administración y constar por escrito.
