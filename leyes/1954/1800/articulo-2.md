@@ -67,6 +67,8 @@ objeto del crédito, aunque el buque embargado esté listo para zarpar,
 pero ningún buque podrá ser embargado por un crédito previsto en los
 apartes o), p) o q) del Artículo 1º si no es el buque mismo a que se
 refiere el reclamo.
+(NOTA: Véanse las reservas del Gobierno de Costa Rica sobre
+la aplicación de este párrafo)
 (2) Serán considerados como siendo del mismo dueño los buques
 cuando todas las acciones de propiedad pertenezcan a una misma o a las
 mismas personas.
@@ -139,6 +141,8 @@ firmado en Bruselas el 23 de septiembre de 1910;
 e) si el crédito tiene por origen en asistencia o un salvamento; y
 f) si el crédito está garantizado por una hipoteca marítima o una
 pignoración sobre el buque embargado.
+(NOTA: Véanse las reservas del Gobierno de Costa Rica sobre
+la aplicación de este párrafo)
 (2) Si el Tribunal en cuya jurisdicción ha sido embargado el buque,
 no es competente para determinar sobre el fondo del juicio, la fianza o
 la garantía que se ha de dar de conformidad con el Artículo 5º para
