@@ -1,0 +1,1 @@
+Artículo 29°.- Podrá el Comité Cantonal de Deportes y Recreación incluir dentro de su Presupuesto con la aprobación de la Municipalidad, la partida necesarias, para la adquisición de implementos deportivos, siempre que éstos refieran a planes y programas previamente establecidos.

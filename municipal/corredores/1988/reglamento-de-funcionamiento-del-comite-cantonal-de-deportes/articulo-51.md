@@ -1,0 +1,1 @@
+Artículo 51°.- El Comité Cantonal de Deportes y Recreación podrá sustituir aquel Comité Distrital que se considere no funcional o que no cumpla con los lineamientos emanados por el Comité Cantonal, el Concejo Municipal o la Dirección General de Educación Física y Deportes. Lo hará previo visto bueno del Director Regional de Deportes.

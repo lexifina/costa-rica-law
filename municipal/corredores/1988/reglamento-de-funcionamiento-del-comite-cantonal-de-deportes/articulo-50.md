@@ -1,0 +1,1 @@
+Artículo 50.- Los directores regionales de la Dirección General de Educación Física y Deportes tendrán la potestad de reunirse con cualquier comité Distrital de Deportes y Recreación cuando a bien lo tenga. Podrán solicitar libros de actas y tesorería informes de lo realizado.

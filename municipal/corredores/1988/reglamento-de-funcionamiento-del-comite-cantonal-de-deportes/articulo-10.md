@@ -1,0 +1,1 @@
+Artículo 10°.- Para todo lo no previsto en el presente reglamento, regirán las disposiciones del Código Municipal, la Ley General de la Administración Pública, la Ley de la Administración Financiera y las demás oficinas conexas al deporte costarricense.

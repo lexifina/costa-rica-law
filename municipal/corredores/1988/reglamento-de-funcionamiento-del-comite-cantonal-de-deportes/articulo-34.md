@@ -1,0 +1,1 @@
+Artículo 34°.- En sus tres primeras sesiones la Comisión Especifica procederá a elaborar el plan anual de actividades, consignando en él los costos de cada actividad y deberán presentarlo por escrito, lo más detallado posible, al Comité cantonal de Deportes y Recreación.

@@ -1,0 +1,1 @@
+Artículo 8°.- El Comité Cantonal de Deportes y Recreación de Corredores, tendrá personería jurídica, únicamente para el cumplimiento de los fines de la ley, el presente Reglamento otorguen. La misma la gestionaría la Junta Directiva del Comité Cantonal de Deportes y de Recreación ante el Registro Público.

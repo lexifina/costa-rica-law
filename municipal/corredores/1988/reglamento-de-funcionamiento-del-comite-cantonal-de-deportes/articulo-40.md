@@ -1,0 +1,1 @@
+Artículo 40.- Los comités distritales de deportes y recreación son la máxima representación del Comité Cantonal de Deportes y Recreación en la actividades promoción administrativa de instalaciones y responsabilidades del desarrollo deportes de su comunidad.

@@ -1,0 +1,1 @@
+Artículo 9°.- La Dirección General de Educación Física y Deportes brindará a los comités cantonales de Deportes y Recreación, toda la asesoría técnica en materia de deportes y recreación, por medio de la respectiva Dirección Regional de Deportes.
