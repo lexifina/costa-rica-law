@@ -1,0 +1,2 @@
+Art 2°.- La elección que resulte por virtud del artículo precedente, concluirá en 28 de febrero de 837, como si hubiese principiado en 833.- Comuníquese al Supremo Poder Ejecutivo para su cumplimiento y que lo haga imprimir, publicar y circular. Dado en la ciudad de Alajuela a los diez días del mes de Marzo de mil ochocientos treinta y cinco.
+Por tanto Ejecutese. Alajuela Marzo once de mil ochocientos treinta y cinco.
