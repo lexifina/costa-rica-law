@@ -14,3 +14,4 @@ Normas para la Aplicación de la Dedicación Exclusiva para Instituciones y Empr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-01-31 | la propia norma |
+| 2 | 2000-01-17 | Decreto Ejecutivo 28415 (2000-01-17) |
