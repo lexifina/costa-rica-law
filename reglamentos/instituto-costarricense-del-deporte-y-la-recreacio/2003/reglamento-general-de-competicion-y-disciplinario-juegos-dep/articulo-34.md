@@ -1,0 +1,1 @@
+Artículo 34.—Publicidad de Patrocinadores. Los uniformes de los atletas dispondrán de un espacio frontal o dorsal destinado para identificar a su patrocinador, siempre y cuando no afecten la competencia y estén acorde con las normas específicas de cada deporte relacionados con el uniforme.

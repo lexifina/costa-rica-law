@@ -1,0 +1,1 @@
+Artículo 17.—Desinscripciones. Durante el desarrollo de las diversas fases se podrán inscribir y desinscribir atletas siempre que sea autorizado en los plazos previstos en la Convocatoria Nacional Oficial y que se mantenga el número máximo y mínimo de atletas inscritos en una disciplina y rama deportiva.

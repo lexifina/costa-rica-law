@@ -1,0 +1,1 @@
+Artículo 30.—Fase de Repechaje. En los deportes de conjuntos, los segundos lugares de cada uno de los torneos interregionales tendrán la opción de participar participarán en un torneo a fin de escoger los equipos a participar en la fase final hasta completar el cupo máximo de participantes en esta Etapa Final que determine la Convocatoria Nacional Oficial para cada edición.

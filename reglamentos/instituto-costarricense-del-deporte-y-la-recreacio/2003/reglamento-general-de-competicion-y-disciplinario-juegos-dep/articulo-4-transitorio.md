@@ -1,0 +1,1 @@
+IV.—Por acuerdo del Consejo Nacional del Deporte y la Recreación, en su Sesión Ordinaria N° 266-2002 del 11 de diciembre del 2002, en el artículo IV, inciso N° 1. Podrán únicamente para la Edición que se celebrará en Esparza, acudir los atletas nacidos en el año 1983.

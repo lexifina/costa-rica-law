@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo General. Será objetivo general de los Juegos Deportivos Nacionales el ejecutar el programa de promoción y competición deportiva para los jóvenes del país, que permita la exaltación de los valores éticos, sociales y culturales a fin de contribuir a su formación integral.
