@@ -1,7 +1,8 @@
-LIBRO CUARTO
-Disposiciones Finales
-ARTÍCULO 401.- Derógase expresamente el Código Penal y de Policía, ambos de 21 de agosto de 1941 y todas las disposiciones legales que lo adicionan y reforman. Quedan asimismo derogadas, pero tan solo en sus disposiciones de carácter punitivo, todas las leyes referentes a los hechos previstos y penados en el presente Código, con excepción de las relativas a delitos que tengan el carácter de militar por referirse al servicio y disciplina del ejército, cuando la República se encuentre en estado de guerra, y excluyendo también las puniciones que el Código Fiscal y las leyes anexas establecen para sancionar las infracciones contra la Hacienda Pública. Deróganse también cualquier disposición legal o reglamentaria que contradigan o se oponga a los preceptuado en el presente Código.
-Deróganse asimismo la Ley de Protección Agrícola número 23 de 2 de julio de 1943 y las disposiciones del Código Sanitario que contradigan lopreceptuado en el presente Código.
-(Así modificada la numeración de este artículo por el numeral 9 de ley Nº 7538 de 22 de agosto de 1995, que lo traspasó del 414 al 416)
-(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 416 al 418)
-NOTA DE SINALEVI: La Numeración de este artículo fue modificada por el artículo 2° de la Ley No. 8250 de 2 de mayo de 2002, que reforma integralmente el Libro Tercero de las Contravenciones, ordenando adecuar la numeración del artículado restante, pasando el artículo 418 a ser el actual artículo 401).
+SECCIÓN VII
+Salubridad pública
+Ocultación o sustracción de objetos insalubres
+Artículo 401.—Se impondrá de diez a doscientos días multa, al que sustrajere u ocultare artículos que la autoridad haya ordenado desinfectar antes de ser usados, o bebidas o comestibles cuya inutilización haya dispuesto.
+(Así reformado por el artículo 2 de la Ley No. 8250 de 2 de mayo de 2002).
+(Así modificada la numeración de este artículo por el numeral 9 de ley Nº 7538 de 22 de agosto de 1995, que lo traspasó del 395 al 397).
+(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 397 al 399).
+(Así modificada la numeración de este artículo por el numeral 2 de la Ley N° 8272 de 2 de mayo de 2002, que lo traspasó del 399 al 401 actual).

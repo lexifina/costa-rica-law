@@ -1,1 +1,2 @@
-Ver artículo 405 actual.
+LIBRO CUARTO
+NOTA: Ver actual artículo 403.

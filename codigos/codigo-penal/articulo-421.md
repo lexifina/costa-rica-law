@@ -1,1 +1,1 @@
-Ver artículo 406 actual.
+NOTA: Ver artículo 404 actual.
