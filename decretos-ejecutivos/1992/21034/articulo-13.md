@@ -1,0 +1,1 @@
+Artículo 13.—La plaza será adjudicada al candidato que obtenga mayor puntaje en el concurso. En igual forma se adjudicarán las plazas a los candidatos, según la prioridad solicitada, respetando el orden que por su puntuación hayan obtenido. En caso de empate y si no hay acuerdo entre los participantes, la Comisión Técnica decidirá.

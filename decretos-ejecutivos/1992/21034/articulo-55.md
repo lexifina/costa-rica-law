@@ -1,0 +1,1 @@
+Artículo 55.—Sin perjuicio de lo establecido en el artículo 61 de este Reglamento y de cualquier situación laboral especial, la jornada ordinaria de trabajo será de ocho horas diarias con un máximo de 44 horas semanales. El domingo será día de descanso semanal, salvo acuerdo en contrario entre el servidor y la institución.

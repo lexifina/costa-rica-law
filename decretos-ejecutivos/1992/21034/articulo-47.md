@@ -1,0 +1,3 @@
+Artículo 47.—La Comisión Técnica General de Microbiología y Química Clínica de la Institución, será coordinada por el Jefe de la Sección de Laboratorios Clínicos o el funcionario equivalente de los servicios de sede de dicha Institución.
+Estará integrada por un representante de cada una de las Comisiones Técnicas Regionales y un representante de los Hospitales desconcentrados, o su equivalente, nombrado en Asamblea General por los MQC de dichos centros o el suplente designado. Esta Comisión durará en sus funciones dos años y deberá reunirse por lo menos una vez al mes.
+Las Comisiones Técnicas de Microbiología y Química Clínica, son los organismos asesores dentro del rango establecido, así como de consulta en materia científica y técnico-administrativa.

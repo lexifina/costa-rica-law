@@ -1,0 +1,3 @@
+Artículo 16.—Cuando dos profesionales en Microbiología y Química Clínica pertenecientes a una misma institución, ocupen puestos en propiedad de igual categoría e igual especialidad o actividad profesional, pueden permutar entre sí.
+Para estos efectos se debe hacer una solicitud firmada por ambos profesionales, con el visto bueno de las Direcciones de los Laboratorios respectivos, ante la oficina encargada de los nombramientos, para que proceda a hacer los trámites correspondientes.
+En el caso de los MQC Directores de Laboratorio deberá solicitarse el visto bueno de la Jefatura inmediata correspondiente.

@@ -1,0 +1,1 @@
+Artículo 60.—Es obligatorio y atribución indelegable del MQC firmarlos reportes de los análisis que han estado bajo su responsabilidad en los laboratorios de Microbiología y Química Clínica. Por ser el reporte de análisis un documento de fe pública, únicamente deberá constar en éste la firma del MQC responsable. Es prohibido el uso del facsímil en sustitución de la firma del MQC.

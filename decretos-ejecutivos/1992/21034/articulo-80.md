@@ -1,0 +1,7 @@
+CAPITULO XIII
+Disposiciones finales
+Artículo 80.—El Colegio llevará un registro de los establecimientos importadores, distribuidores o fabricantes de artículos, equipo, materiales y reactivos empleados en los laboratorios citados en este Reglamento, los cuales deberán adquirir una patente de distribuidor o fabricante, según sea el caso extendida por el Colegio.
+Dichos establecimientos deberán contar con los servicios de un Regente MQC, incorporado al Colegio, habilitado para el ejercicio profesional, cuya jornada laboral la determinará la Fiscalía del Colegio.
+Los productos químico-biológicos y equipos que se imparten o fabriquen deberán de estar debidamente inscritos en otro registro que para esos efectos llevará el Colegio.
+Para el desalmacenaje de cada uno de los lotes de productos químico-biológicos y equipo de uso en los laboratorios de Microbiología y Química Clínica que se pretenda importar por parte de entes privados, las autoridades competentes tendrán la obligación de exigir un certificado de inscripción extendido por el Colegio.
+La Junta Directiva del Colegio enviará a la Dirección General de Aduanas, la lista de los equipos, materiales y productos sujetos a esta reglamentación, debiendo actualizarla periódicamente. La Junta Directiva tendrá la potestad de cancelar aquellas inscripciones en que se demuestre mediante análisis en laboratorios oficiales, que sus características no responden a los requerimientos necesarios para un diagnóstico adecuado.

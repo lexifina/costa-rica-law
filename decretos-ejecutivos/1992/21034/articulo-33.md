@@ -1,0 +1,1 @@
+Artículo 33.—La CPOL estará integrada por dos delegados nombrados por la Junta Directiva del Colegio y un delegado nombrado por el Ministerio de Salud. Para el estudio y resolución de un caso concreto, se agregará a esta Comisión un delegado de la Institución interesada en dicho caso. Todos los miembros deberán ser MQC, en el ejercicio de su profesión.

@@ -1,0 +1,1 @@
+Artículo 77.—En caso de que un arbitro no fuera reelecto, o se encontrara en las condiciones del artículo 70 conservará sus atribuciones para fenecer el asunto ante el Tribunal de que formaba parte, salvo que su figuración en el propio Tribunal hubiera dependido del ejercicio de un cargo en el desempeño del cual se nombró.

@@ -1,0 +1,1 @@
+Artículo 41.—La Comisión Técnica será presidida por el Director del Laboratorio Clínico y en su ausencia por el miembro presente de categoría superior. De su seno nombrará un secretario que durará un año en funciones, pudiendo ser reelecto.

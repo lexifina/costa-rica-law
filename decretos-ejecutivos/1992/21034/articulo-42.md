@@ -1,0 +1,1 @@
+Artículo 42.—Sesionará ordinariamente una vez al mes y lo acordado deberá constar en el correspondiente libro de actas. Copia de cada acta deberá enviarse a la Comisión Técnica General de Microbiología y Química Clínica.

@@ -1,0 +1,1 @@
+Artículo 21.—Se considera ascenso la promoción a un puesto vacante de categoría superior de acuerdo con lo estipulado en el artículo 15, para cuyo desempeño se requiera tener los requisitos establecidos en el Capítulo IV.

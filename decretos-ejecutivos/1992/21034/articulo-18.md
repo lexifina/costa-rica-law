@@ -1,0 +1,1 @@
+Artículo 18.—Toda nueva plaza de MQC será considerada como puesto vacante para todos los efectos y por lo tanto deberá ser ocupada mediante concurso siguiendo las normas establecidas en este Reglamento en materia de concursos.

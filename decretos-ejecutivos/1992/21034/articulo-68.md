@@ -1,0 +1,1 @@
+Artículo 68.—En caso de ausencia definitiva, por el motivo que fuere, la institución representada por el arbitro respectivo nombrará uno nuevo, el cual fungirá hasta la terminación del período para el cual había sido nombrado el miembro sustituido. Estos nombramientos se harán conforme con lo estipulado en el artículo 66 de este Reglamento.

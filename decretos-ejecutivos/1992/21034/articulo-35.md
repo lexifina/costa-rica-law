@@ -1,0 +1,1 @@
+Artículo 35.—La CPOL en su primera sesión nombrará un presidente y un secretario; fijará el lugar de reuniones, su modo de operación y adoptará sucesivamente todas las disposiciones y reglamentaciones que considere necesarias para su funcionamiento.

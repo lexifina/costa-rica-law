@@ -1,0 +1,3 @@
+Artículo 64.—Los asistentes y auxiliares de laboratorio son subalternos de los MQC y sus funciones no podrán efectuarse si no estuvieran bajo la directa supervisión, orientación y responsabilidad del MQC correspondiente.
+Será atribución de la Junta Directiva del Colegio establecer los requerimientos, requisitos y funciones de los asistentes y auxiliares, así como calificar los programas y cursos de adiestramiento de estos.
+Para los efectos anteriores, solo podrán efectuarse las labores correspondientes quienes estén debidamente registrados y autorizados por el Colegio, según las reglamentaciones que para tal efecto se establezcan.

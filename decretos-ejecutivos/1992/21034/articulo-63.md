@@ -1,0 +1,2 @@
+Artículo 63.—Cualquier institución que tuviera que realizar proyectos de investigación en Microbiología y Química Clínica en el territorio nacional deberá obtener permiso del Colegio, para que profesionales extranjeros puedan trabajar en dichos proyectos, sin perjuicio de las autorizaciones que deban conceder otras entidades públicas o el Ministerio de Salud en cuanto a la investigación misma.
+No se permitirán las investigaciones peligrosas para la salud de las personas. Lo anterior con fundamento en el artículo 26 de la Ley General de Salud.

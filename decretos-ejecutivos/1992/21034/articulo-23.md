@@ -1,0 +1,3 @@
+Artículo 23.—Para efectos de la evaluación de los atestados del candidato de los puntos 1 al 8, el Colegio contará con una Comisión de Evaluación Curricular (CEC) que estará integrada por cinco miembros colegiados, que serán nombrados, por la Junta Directiva, por períodos de 2 años, pudiendo ser reelectos.
+Esta Comisión será la responsable de mantener los diversos cursos debidamente registrados, con el objeto de garantizar uniformidad de criterios al emitir resoluciones sobre consultas futuras acerca de determinado curso.
+El colegio emitirá un reglamento que regule las funciones y aspectos operativos de esta Comisión, concordante con los lineamientos generales establecidos por este Reglamento de la Ley No. 5462.

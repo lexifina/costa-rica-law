@@ -1,0 +1,2 @@
+Artículo 54.—El reconocimiento de la antigüedad del MQC, que ha laborado en diferentes instituciones públicas, se hará sumando el tiempo servido, asignándosele el monto correspondiente por cada año laborado según el sistema salarial y políticas sobre reconocimiento de antigüedad vigentes.
+Lo anterior sin perjuicio de otorgar además cualquier otro tipo de reconocimiento que se haga por el concepto antes citado.

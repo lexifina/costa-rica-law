@@ -1,0 +1,1 @@
+Artículo 52.—Los aumentos anuales o anualidades de los MQC serán los que se determinen para la respectiva categoría según la Escala de Salarios de la Ley de Salarios de la Administración Pública y la Ley de Incentivos a los Profesionales en Ciencias Médicas.

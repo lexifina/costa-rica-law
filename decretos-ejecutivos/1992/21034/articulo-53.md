@@ -1,0 +1,1 @@
+Artículo 53.—La Institución respectiva otorgará los aumentos anuales o anualidades con base en lo dispuesto en este Reglamento, conforme con los trámites legales y reglamentarios correspondientes en cada caso.

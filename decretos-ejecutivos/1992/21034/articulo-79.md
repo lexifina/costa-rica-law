@@ -1,0 +1,1 @@
+Artículo 79.—Toda sentencia que dicte el Tribunal de Arbitros Arbitradores deberá reunir las formalidades que al efecto señala el artículo 155 del Código Procesal Civil. En caso de que la sentencia se dicte por mayoría y no por unanimidad, el voto disidente debe fundamentarse y el miembro del Tribunal que se aparte del criterio de la mayoría debe redactar su voto.

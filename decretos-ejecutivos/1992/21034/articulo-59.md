@@ -1,0 +1,1 @@
+Artículo 59.—No se autorizará el funcionamiento de derivaciones de laboratorios tales como "tomas de muestras", "sucursales", "anexos" o similares si a cargo de éstos no estuviera un MQC regente que cumpla con todos los requisitos estipulados para el regente de un laboratorio clínico.

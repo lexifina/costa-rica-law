@@ -1,0 +1,1 @@
+Artículo 20.—Cada ente empleador deberá publicar como mínimo dos veces al año los concursos internos de sus plazas vacantes. El subsiguiente concurso externo se tramitará inmediatamente después de que se hayan resuelto los correspondientes concursos internos.

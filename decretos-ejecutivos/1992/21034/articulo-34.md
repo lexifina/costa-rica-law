@@ -1,0 +1,3 @@
+Artículo 34.—Los miembros fijos de la CPOL durarán un año en sus funciones y podrán ser reelectos hasta por dos períodos iguales y sucesivos. El nombramiento del miembro eventual caducará al resolverse el caso particular para el cual se le nombró.
+Unos y otros se juramentarán ante el Presidente del Colegio y de ello se levantará acta en el libro especial de nombramientos que llevará la CPOL, debidamente foliado y sellado por la Secretaría del Colegio en cuya primera página dicha secretaría extenderá una razón autorizando su ejercicio.
+La CPOL también llevará un libro de Actas debidamente foliado, sellado y autorizado por la Secretaría del Colegio.

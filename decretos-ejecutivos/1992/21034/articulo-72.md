@@ -1,0 +1,8 @@
+Del procedimiento
+Artículo 72.—Cuando el Colegio o un Microbiólogo Químico Clínico se considere perjudicado por la aplicación o falta de aplicación a un caso concreto, de una o varias normas de la Ley del Estatuto de Servicios de Microbiología y Química Clínica o de este Reglamento, una vez agotadas las instancias aquí previstas podrá acudir ante el Tribunal por escrito expresando con toda claridad y bajo pena de inadmisibilidad, lo siguiente:
+El nombre y los apellidos del reclamante, su cédula de identidad, el puesto que ocupa y la Institución a que sirve.
+Los hechos en que se fundamenta su reclamación, expuestos uno por uno, numerados y bien especificados.
+3) Cita de los textos legales en que se apoya su reclamo, e indicación de los motivos para considerar que esas normas no han sido aplicadas o han sido aplicadas incorrectamente.
+4) Indicación precisa del pronunciamiento que se pretende obtener del Tribunal.^
+En caso de que en el reclamo faltare alguno o algunos de los anteriores requisitos, el Tribunal dará al interesado un plazo de hasta cinco días para que lo subsane. Si el interesado no corrigiere los defectos en ese término el Tribunal de oficio declarará caduco el proceso y archivará el expediente. El auto respectivo no tendrá ningún recurso.
+En caso de que en el reclamo faltare alguno o algunos de los anteriores requisitos, el Tribunal dará al interesado un plazo de hasta cinco días para que lo subsane. Si el interesado no corrigiere los defectos en ese término el Tribunal de oficio declarará caduco el proceso y archivará el expediente. El auto respectivo no tendrá ningúrecurso.

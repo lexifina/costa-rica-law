@@ -1,0 +1,3 @@
+CAPITULO X
+De los salarios, regímenes especiales, seguros ascensos y seguridad en el trabajo
+Artículo 50.—La remuneración de los MQC por la prestación de sus servicios en cualquier institución del país, no podrá ser menor que la fijada por la Dirección General del Servicio Civil para los profesionales en Microbiología y Química Clínica que presten servicios equivalentes y estuviesen cubiertos por lo establecido en el Estatuto del Servicio Civil, por la Ley de Incentivos a Profesionales de Ciencias Médicas (No 6836) y por la Ley de Salarios de la Administración Pública, sin perjuicio de cualquier situación más ventajosa que las instituciones empleadoras brinden a estos profesionales.

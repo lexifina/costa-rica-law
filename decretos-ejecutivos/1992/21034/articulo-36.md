@@ -1,0 +1,3 @@
+Artículo 36.—Además de lo establecido en los artículos 26,30 y 31 del presente Reglamento, son funciones de la CPOL:
+a) Dirimir las discrepancias que puedan surgir en cuanto a la clasificación de puestos en los laboratorios y en la organización de sus divisiones de trabajo, así como las originadas por la reorganización e integración de laboratorios.
+b) Colaborar, a petición de cualquier interesado en el estudio de la organización de los laboratorios proponiendo el establecimiento de las divisiones y secciones necesarias, así como el número y categoría de MOC que deban existir con el fin de lograr la correcta y oportuna prestación de sus servicios.

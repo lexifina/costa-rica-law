@@ -1,0 +1,1 @@
+Artículo 70.—En lo relativo a impedimentos, recusaciones y excusas de los arbitros se aplicará lo dispuesto en el Título IX de la Ley Orgánica del Poder Judicial en lo conducente. Si quedare incompleto el Tribunal por estas razones, se hará nuevos nombramientos para el caso concreto, en la misma forma de lo dispuesto para nombramientos originales.

@@ -1,0 +1,1 @@
+Artículo 19.—Al producirse una vacante en un puesto de MQC, la jefatura respectiva, deberá informar esa circunstancia a la oficina encargada de los recursos humanos del ente empleador, en un plazo no mayor de 15 días hábiles a partir de la fecha en que autorice su utilización.

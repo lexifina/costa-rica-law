@@ -1,0 +1,1 @@
+Artículo 5°—Para poder ser admitido a concurso el candidato debe tener como mínimo los requisitos exigidos según la categoría del puesto en concurso, de acuerdo con lo establecido en el artículo 24 de este Reglamento.
