@@ -14,3 +14,4 @@ Reglamento para la Concesión de Servicios a Nuevos Proyectos Habitacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-01-24 | la propia norma |
+| 2 | 1996-05-06 | Reglamento 0 (1996-05-06) |
