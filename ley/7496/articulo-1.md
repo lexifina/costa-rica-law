@@ -2022,4 +2022,11 @@ cuando ninguna de ellas se ajuste a los documentos de licitación, o cuando
 sea evidente que ha habido falta de competencia o colusión. No deben
 rechazarse las ofertas y llamarse a una nueva licitación únicamente por
 razón de precio, cuando este es sólo ligeramente superior a los cálculos
-estimados de costo. Sin embargo, los Prestatarios podr
+estimados de costo. Sin embargo, los Prestatarios podrán, previa consulta
+con el Banco, rechazar todas las ofertas si las de precio evaluado más
+bajo fuesen considerablemente superiores al presupuesto oficial. En estos
+casos, deberán solicitarse nuevas propuestas por lo menos a todos los que
+fueron invitados a presentar ofertas inicialmente, y deberá concederse un
+plazo suficiente para su presentación. Las propuestas individuales podrán
+ser rechazadas cuando estas sean tan inferiores al presupuesto oficial,
+que razonablemente pueda anticiparse que el Licitador no podrá terminar
