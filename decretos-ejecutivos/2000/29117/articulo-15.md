@@ -1,0 +1,2 @@
+Área Unidad Técnica de Apoyo a la Comisión a la Promoción de la Competencia (UTA/CPC)
+Artículo 15.-La Unidad Técnica de Apoyo a la Comisión para Promover la Competencia es la encargada de instruir las denuncias presentadas ante la Comisión para Promover la Competencia. Depender administrativamente de su Coordinador y técnicamente de la Comisión. Sus funciones serán las asignadas por la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor y su Reglamento.

@@ -1,0 +1,2 @@
+Unidad Técnica de Apoyo a la Comisión Nacional del Consumidor (UTA/CNC)
+Art¡culo 14.-La Unidad Técnica de Apoyo a la Comisión Nacional del Consumidor es la encargada de instruir las denuncias presentadas ante la Comisión Nacional del Consumidor. Depender administrativamente del Coordinador del Área de Apoyo al Consumidor y técnicamente de la Comisión. Sus funciones serán las asignadas por la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor y su Reglamento.
