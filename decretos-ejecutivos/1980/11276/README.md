@@ -15,3 +15,4 @@ Reglamento Orgánico de la Junta Protección Social de San José
 | --- | --- | --- |
 | 1 | 1980-03-25 | la propia norma |
 | 2 | 1980-03-25 | SINALEVI (sin norma nombrada) |
+| 3 | 1980-07-29 | Decreto Ejecutivo 11743 (1980-07-29) |

@@ -1,4 +1,5 @@
-Artículo 23.-El servicio de cementerios tendrá a su cargo todas las actividades referentes al funcionamiento y administración del Cementerio General.
+Artículo 23.-El servicio de cementerios tendrá a su cargo todas las actividades referentes al funcionamiento y administración del Cementerio General y de cualquier otro que en el futuro administre la Institución
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 11743 del 29 de julio de 1980)
 El Cementerio General estará a cargo de un Administrador quien dependerá directamente de la Delegación Ejecutiva y tendrá las siguientes funciones:
 a) Llevar al día los registros de propietarios de bóvedas, asentando los traspasos que correspondan, conforme a la ley y los reglamentos respectivos;
 b) Velar por el ornato, la limpieza y el mantenimiento del Cementerio;
