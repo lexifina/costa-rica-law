@@ -1,0 +1,3 @@
+ARTICULO 6
+Evaluación y examen de las medidas de control
+A partir de 1990, y por lo menos cada cuatro años en lo sucesivo, las Partes evaluarán las medidas de control previstas en el artículo 2, teniendo en cuenta la información científica, ambiental, técnica y económica de que dispongan. Al menos un año antes de hacer esas evaluaciones, las Partes convocarán grupos apropiados de expertos competentes en los aspectos mencionados, al efecto de determinar la composición y atribuciones de tales grupos de expertos. Estos, dentro del plazo máximo de un año, a contar desde su reunión, y por conducto de la Secretaría, tendrán que rendir el correspondiente informe a las Partes.
