@@ -1,0 +1,1 @@
+Articulo 5°-Sólo podrán ingresar y ser comercializadas en el Depósito, las mercaderías expresamente contempladas en la autorización de desalmacenaje que para estos efectos emitirá la Dirección General de Hacienda

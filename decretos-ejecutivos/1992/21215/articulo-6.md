@@ -1,0 +1,1 @@
+Articulo 6°-Por única vez y por un plazo de tres meses naturales, contados a partir del 4 de abril de 1992, se suspenderá la aplicación de la disposición contenida en el articulo 63 del Reglamento del Depósito Libre Comercial de Golfito del 28 de febrero de 1990, que se refiere específicamente al porcentaje autorizado de descuento que podrá otorgar el concesionario.

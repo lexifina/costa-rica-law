@@ -1,0 +1,1 @@
+Articulo 2°-Para las mercancías de producción nacional la base del cálculo del impuesto Único del Depósito será del ciento cuarenta por ciento (140%) del precio Golfito, el cual esta determinado por el precio ex fabrica menos los impuestos selectivo de consumo y general sobre las ventas, mas el flete hasta el Depósito Libre.
