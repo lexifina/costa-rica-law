@@ -1,0 +1,1 @@
+Artículo 5°—Para el cálculo de precio de hora. se tomará en cuenta el articulo N° 4 y las tarifas que tenga establecidas el Ministerio de Obras Públicas y Transportes para equipo de iguales o similares características, o en su lugar costo de la hora que cobra la empresa privada.

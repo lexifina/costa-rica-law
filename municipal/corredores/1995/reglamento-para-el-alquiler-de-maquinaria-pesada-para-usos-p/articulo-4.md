@@ -1,0 +1,1 @@
+Artículo 4°—El alquiler se cobrará por hora y el precio de la misma será acorde con el tipo de maquinaria que se utilice, y será fijado por el Concejo, previo informe de los costos remitidos por el Ejecutivo y modificado cuando los costos de operación sea aumentado.

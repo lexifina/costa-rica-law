@@ -1,0 +1,1 @@
+Artículo 6°— La Asociaciones de Desarrollo, Cooperativas y Organizaciones sin fin de lucro, pagarán el 50% de la tarifa aprobada por el Concejo Municipal, únicamente para la reparación y mantenimiento de caminos y sirios públicos.

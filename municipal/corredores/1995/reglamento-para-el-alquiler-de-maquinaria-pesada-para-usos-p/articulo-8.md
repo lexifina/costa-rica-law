@@ -1,0 +1,1 @@
+Artículo 8°—Las solicitudes de alquiler de maquinaria pesada Municipal, deberán hacerse por escrito con sus respectivos timbres Municipales ante el Ejecutivo Municipal quien la trasladará al Concejo para su aprobación, y firma de contrato del solicitante donde se señalará equipo alquilado, horas contratadas y el monto del contrato.

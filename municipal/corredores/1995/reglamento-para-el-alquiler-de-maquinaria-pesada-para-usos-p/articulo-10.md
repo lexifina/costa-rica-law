@@ -1,0 +1,1 @@
+Artículo 10.—Cuando hubiese varias solicitudes a la vez, se dará preferencia a aquellos trabajos relativos a caminos de penetración y en fines donde es indispensable sacar los productos agrícolas y en igualdad de condiciones se dará prioridad conforme a la presentación de las solicitudes.

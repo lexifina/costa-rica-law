@@ -1,0 +1,1 @@
+Artículo 3°—El alquiler de la maquinaria pesada municipal no tiene fines de lucro y se podrá realizar siempre y cuando no haya menoscabo interferencia con la labor Municipal. La realización de las obras tendrá como radio de acción únicamente la jurisdicción del Cantón de Corredores.
