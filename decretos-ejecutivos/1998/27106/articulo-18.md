@@ -1,4 +1,5 @@
-Artículo 18.—Funciones y atribuciones. La Secretaría Ejecutiva es el órgano ejecutivo de la Concertación Nacional, bajo la dirección de la Mesa Coordinadora. Son funciones de la Secretaría Ejecutiva:
+Artículo 18.—Funciones y atribuciones. La Secretaría Ejecutiva es el órgano ejecutivo de la Concertación Nacional y actuará en estrecha relación con la Mesa Coordinadora. Son funciones de la Secretaría Ejecutiva:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 27239 del 11 de agosto de 1998)
 a) dar el soporte necesario a cada uno de los órganos del Proceso de Concertación; ejecutar el cronograma de actividades definido por la Mesa Coordinadora para cada uno de los órganos;
 b)recopilar información sobre los diferentes temas y subtemas para hacerla llegar a todos los actores;
 c) sistematizar las ponencias y propuestas para su posterior utilización

@@ -5,11 +5,14 @@ a) sector cooperativo: cinco del Consejo Nacional de Cooperativas;
 b) sector financiero: dos, incluyendo uno de la Cámara de Bancos Privados e Instituciones Financieras de Costa Rica y otro de la Asociación Bancaria Costarricense;
 c)sector campesino: tres, incluyendo uno de la Mesa Campesina, otro de UPANACIONAL y otro del Frente Agrario de Organizaciones Sociales;
 d) sector sindical: cinco del Comité Socio-Laboral;
-e) sector mujeres: tres del Foro de las Mujeres;
-f) sector empresarial: cinco de la Unión de Cámaras y Asociaciones de la Empresa Privada;
+e) Sector Mujeres: Tres del Foro de las Mujeres y tres del Foro Autónomo de las Mujeres Costarricenses;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 27239 del 11 de agosto de 1998)
+f) Sector Empresarial: Cuatro de la Unión de Cámaras y Asociaciones de la Empresa Privada;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 27239 del 11 de agosto de 1998)
 g) sector detallista: dos de la Cámara Nacional de Comerciantes Detallistas;
 h) sector solidarista: cinco del Movimiento Solidarista Costarricense;
-i) sector comercio e industria: un representante de la Cámara de Comercio de Costa Rica y un representante de la Cámara de Industrias de Costa Rica;
+i) Sector Comercio, Industria y Agricultura: Un representante de la Cámara de Comercio de Costa Rica, un representante de la Cámara de Industrias de Costa Rica y un representante de la Cámara de Agricultura y Agroindustria;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 27239 del 11 de agosto de 1998)
 j) sector comunal: dos de la Confederación Nacional de
 Asociaciones de Desarrollo Comunal;
 k) sector comercio exterior: dos de la Cámara de Exportadores de Costa Rica;

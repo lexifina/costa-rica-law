@@ -14,3 +14,4 @@ Reglamento Proceso de Concertación "consenso para un futuro compartido"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-15 | la propia norma |
+| 2 | 1998-08-11 | Decreto Ejecutivo 27239 (1998-08-11) |
