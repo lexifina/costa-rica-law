@@ -1,0 +1,1 @@
+Artículo 71.—Toda Comisión deberá rendir el dictamen respectivo del o los asuntos oficialmente encomendados en un plazo no mayor de 14 días naturales, tomando como fecha cierta del conocimiento del asunto el día siguiente de la sesión en que se le delegó el asunto correspondiente.

@@ -1,0 +1,1 @@
+Artículo 66.—Las Comisiones Ordinarias se reunirán cada quince días a partir de las diecinueve horas con treinta minutos en el Palacio Municipal. El día de reunión de las Comisiones será acordado por sus miembros a conveniencia de los mismos una vez conformados por el Presidente Municipal.

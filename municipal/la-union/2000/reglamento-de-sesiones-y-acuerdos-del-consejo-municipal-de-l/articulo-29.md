@@ -1,0 +1,1 @@
+Artículo 29.—Podrán los Regidores o el Alcalde presentar moción verbal, siempre que la misma solo se haga para ordenar el procedimiento no para la toma de acuerdos respecto a un asunto específico o general.

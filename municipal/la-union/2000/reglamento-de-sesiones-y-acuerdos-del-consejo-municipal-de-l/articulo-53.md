@@ -1,0 +1,1 @@
+Artículo 53.—Las mociones de orden podrán presentarse en cualquier momento del debate del asunto en discusión. Una vez aceptadas por el Presidente se pondrá a discusión tan pronto como cese el uso de la palabra el Regidor o el Alcalde que la tuviese.

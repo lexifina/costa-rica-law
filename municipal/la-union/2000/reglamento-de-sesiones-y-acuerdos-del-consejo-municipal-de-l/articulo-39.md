@@ -1,0 +1,1 @@
+Artículo 39.—Uno o más Regidores podrán pedir la revisión de uno o más acuerdos, siempre y cuando la misma se plantee una vez leída el acta y antes de su aprobación, y para aquellos acuerdos que no tienen el carácter de definitivamente aprobados.

@@ -1,0 +1,1 @@
+Artículo 79.—Si los Síndicos Propietarios o Suplentes así como los Regidores Suplentes presentes oficialmente a la hora de empezar la sesión no se encuentran presentes en el momento que se les requiera para un asunto en particular se les tomará como ausente y así se hará constar en actas para lo correspondiente.

@@ -1,0 +1,1 @@
+Artículo 65.—Corresponderá al Secretario recibir y ordenar la correspondencia bajo su entera responsabilidad, levantar las actas de las sesiones de Comisión, elaborar y transcribir los dictámenes de Comisión al Concejo, firmar junto con el Presidente las actas de las sesiones y los dictámenes de Comisión que se remitan al Concejo.

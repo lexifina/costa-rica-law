@@ -1,0 +1,1 @@
+Artículo 42.—Los recursos de revisión deben plantearse sobre el fondo que origina el o los acuerdos a fin de modificarlos dejarlos sin efecto, sin embargo, en la discusión del asunto podría llegarse a concluir que el acuerdo se mantiene tal y como se había aprobado originalmente.

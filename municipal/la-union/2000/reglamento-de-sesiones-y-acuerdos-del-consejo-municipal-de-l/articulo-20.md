@@ -1,0 +1,3 @@
+CAPÍTULO III
+Acuerdos del Concejo
+Artículo 20.—Tal como lo dispone la ley todo acuerdo que tome el Concejo por iniciativa de alguno de los regidores o del Alcalde Municipal se tomará previo proyecto de moción escrita y firmada por el proponente.

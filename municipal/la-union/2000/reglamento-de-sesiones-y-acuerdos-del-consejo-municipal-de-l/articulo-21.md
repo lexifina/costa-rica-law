@@ -1,0 +1,1 @@
+Artículo 21.—Por así establecerlo la ley, todo acuerdo que tome el Concejo deberá contar de previo con el dictamen de la comisión respectiva y subsiguiente deliberación, no obstante, el proponente podrá solicitar y así acordarlo éste, previa y debida justificación, otorgar la dispensa de trámite de dictamen de Comisión.
