@@ -1,0 +1,2 @@
+Artículo 47.- Requisitos
+Todas las denuncias, gestiones o peticiones de cualquier clase que se formulen a la CNC deberán constar por escrito, en idioma español y aparecer debidamente firmadas por el interesado u otra persona a su ruego. El denunciante también podrá presentarse directamente ante la CNC o cualquier otra dependencia del MEIC. En este caso, los funcionarios correspondientes levantarán acta de la denuncia, que suscribirá el interesado.

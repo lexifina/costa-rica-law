@@ -1,0 +1,3 @@
+Transitorio II.- Integración de las Comisiones
+El sorteo a que se refiere el Transitorio II de la Ley deberá ser efectuado en el seno de cada Comisión, no menos de dos meses antes del vencimiento del plazo que allí señala. El resultado del mismo se comunicará al Ministro de Economía, Industria y Comercio, para la designación de los sustitutos.
+Dado en la Presidencia de la República.- San José, a los treinta y un días del mes de julio de mil novecientos noventa y cinco.

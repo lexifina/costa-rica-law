@@ -1,0 +1,5 @@
+Artículo 65.- Asistencia y votaciones
+Las sesiones de la Comisión serán siempre privadas, pero el órgano podrá disponer, acordándolo así por unanimidad de sus miembros propietarios presentes, que tenga acceso a ella el público en general o bien ciertas personas, concediéndoles o no el derecho a participar en las deliberaciones con voz pero sin voto.
+Tendrán derecho a asistir con voz pero sin voto los miembros suplentes de la Comisión, así como el Jefe y el Asesor Legal de la Unidad Técnica, salvo que -en cuanto a los dos últimos- la comisión disponga lo contrario o bien solicite su retiro momentáneo para la discusión de los asuntos que así lo amerite.
+Los acuerdos serán adoptados por no menos de tres votos de los miembros propietarios de la CPC, y dos votos en el caso de la CNC. Quien decida salvar su voto, deberá razonarlo en el acta, quedando en tal caso exento de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.
+No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que sea declarada la urgencia del asunto por el voto favorable de todos los miembros.

@@ -1,0 +1,4 @@
+Artículo 70.- Integración y funciones de la unidad técnica de Apoyo
+Los funcionarios de la Unidad Técnica de Apoyo de cada Comisión serán designados por el Ministro del MEIC.
+Cada Unidad Técnica será responsable de realizar todos los estudios e investigaciones sobre asuntos que competa resolver a la respectiva Comisión. Su jefatura, en asocio de uno o dos funcionarios más que disponga discrecionalmente , fungirá como órgano director de todos los procedimientos administrativos, salvo que la Comisión disponga otra cosa .
+La Unidad Técnica, como órgano director, podrá acordar el rechazo de plano d las acciones cuando así corresponda, pero dicho acto deberá ser elevado de inmediato en consulta a la respectiva Comisión, y se regirá en lo demás por lo dispuesto en el artículo 292 de la LGAP.

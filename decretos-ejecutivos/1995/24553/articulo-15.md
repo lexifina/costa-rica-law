@@ -1,0 +1,2 @@
+Artículo 15.- Procedimiento para la regulación de precios en casos de fuerza mayor.
+Además de comprobar la existencia de la fuerza mayor, y salvo caso de urgencia, la regulación deberá estar precedida de un estudio técnico que, junto a los restantes elementos aplicables al caso, considere la existencia de barreras arancelarias o no arancelarias u otros obstáculos que limiten el abastecimiento en el mercado relevante, fijado conforme a los criterios establecidos en el artículo 14 de la Ley, y valore la posibilidad de removerlas para lograr la normalización del abastecimiento.
