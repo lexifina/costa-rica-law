@@ -1,0 +1,1 @@
+Artículo 20.—De |a existencia de dormitorios: Cuando por las condiciones y naturaleza del trabajo hace necesario, descansar y dormir fuera de su vivienda, el empresario deberá de dotar a los chóferes de autobuses de dormitorios y lugares de descanso tal (Según lo señala el Capítulo IV, del Reglamento General de Seguridad e Higiene del Trabajo).

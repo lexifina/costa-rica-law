@@ -1,0 +1,1 @@
+Artículo 30.—De las medidas de difusión: Corresponderá al Consejo de Salud Ocupacional adoptar las medidas prudentes para la adecuada difusión de esta normativa, en coordinación con las instituciones relacionadas con la materia.

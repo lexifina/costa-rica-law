@@ -1,0 +1,1 @@
+Artículo 31.—De las derogatorias de este Reglamento: Sin menoscabo de los derechos y obligaciones contenidas en otras disposiciones, este Reglamento es de orden publico y deroga todas aquellas disposiciones de menor jerarquía qué sobre la materia se le opongan. Complementando las de mayor jerarquía según lo señalado en el artículo 6 de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 19.—De la regulación de tiempos; Atendiendo las características y organización de Ia empresa, relativo al tiempo de recorrido ininterrumpido, los empleadores establecerán tiempos destinados .para comida, descanso y necesidades fisiológicas, indispensables para el desarrollo de la buena salud del trabajador.

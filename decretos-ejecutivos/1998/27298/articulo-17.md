@@ -1,0 +1,3 @@
+CAPITULO IV
+De la organización del trabajo
+Artículo 17.—De la jornada ordinaria: La jornada ordinaria diaria de trabajo para los chóferes no podrá ser mayor de ocho horas en el día, de seis en la noche y de cuarenta y ocho horas por semana (articulo 136 del Código de Trabajo). La jornada extraordinaria, sumada a la ordinaria, no podrá exceder las doce horas salvo que por siniestro ocurrido o riesgo inminente peligren las personas, los establecimientos, las máquinas o instalaciones, los plantíos, los productos o cosechas y que, sin evidente perjuicio, no puedan sustituirse trabajadores o suspenderse las labores de los que están trabajando (Código de Trabajo artículo 140).

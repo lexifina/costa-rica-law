@@ -1,0 +1,2 @@
+CAPÍTULO II
+Artículo 3°—Del acatamiento de esta normativa: Todo patrono, representante, intermediario, o contratista deberá dar acatamiento obligatorio a las disposiciones del presente reglamento y así mismo adoptar y poner en práctica en los centros de trabajo, por su exclusiva cuenta, medidas de seguridad e higiene adecuadas para proteger la vida, la salud, la integridad corporal y moral de los chóferes de autobuses.

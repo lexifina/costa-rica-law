@@ -1,0 +1,1 @@
+Artículo 29.—De las sanciones por la normativa laboral: Cualquier infracción a las disposiciones de este Reglamento, dará motivo para que se apliquen las sanciones previstas en el artículo 614 en relación con los numerales 608, 613 in fine y el 316, todos del Código de Trabajo.

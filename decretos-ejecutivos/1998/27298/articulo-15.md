@@ -1,0 +1,1 @@
+Artículo 15.—De los volantes; Los volantes de los autobuses deberán ser ajustables en su altura de tal forma que garantice la flexibilidad de movimiento de las piernas del conductor. Cuando por razones de diseño las unidades no estén previstas de este dispositivo de ajuste, se deberá de adaptar el mismo, de tal forma que facilite el movimiento.

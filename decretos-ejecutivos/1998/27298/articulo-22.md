@@ -1,0 +1,2 @@
+Artículo 22.—De la existencia del comedor: Cuando por la Índole de las labores los trabajadores requieran comer en sus lugares de trabajo, el patrono deberá proporcionarles un lugar adecuado para ese propósito.
+Los comedores deberán reunir las condiciones de iluminación, ventilación, y cubicación necesarias; estar amueblados convenientemente y dotados de medios especiales para guardar, conservar y calentar sus alimentos. También deberán mantenerse en las mejores condiciones de limpieza y contar con una pila o fregadero adecuado para lavar utensilios.

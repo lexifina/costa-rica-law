@@ -1,0 +1,1 @@
+Artículo 18.—Del descanso en la jornada; Dentro de la jornada de trabajo ningún conductor manejará ininterrumpidamente durante más de cuatro horas (como máximo) sin hacer una pausa mínima de 30 minutos. (Tal como lo establece la Organización Internacional del Trabajo y el artículo 137 del Código de Trabajo).

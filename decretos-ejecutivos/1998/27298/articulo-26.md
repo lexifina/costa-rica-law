@@ -1,0 +1,1 @@
+Artículo 26.—De los dispositivos auditivos adicionales: No se permitirá por ninguna razón la instalación de dispositivos adicionales a la bocina (pito) del vehículo, tales como las pitoretas o cometas.

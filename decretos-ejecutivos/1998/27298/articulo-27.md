@@ -1,0 +1,1 @@
+Artículo 27.—De las limitantes en razón de temperatura y ventilación: Para garantizar el nivel óptimo de confort del trabajador será necesario mantener, siempre que lo permitan las condiciones ambientales, límites a la temperatura y ventilación, tales que no resulten perjudiciales para la salud.

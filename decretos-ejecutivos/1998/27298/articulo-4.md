@@ -1,0 +1,1 @@
+Artículo 4°—De las soluciones alternativas: Tanto .los patronos como los chóferes de autobuses podrán aplicar las medidas alternativas, para solucionar sus diferendos, establecidos en él Código de Trabajo. Lo anterior sin detrimento del derecho de acudir a las vías laborales, administrativas y jurisdiccionales, existentes.

@@ -1,0 +1,1 @@
+Artículo 16.-Del extintor: Todo vehículo deberá contar con su respectivo extintor de incendios, según lo establecido por el artículo 31, inciso p) de la Ley de Tránsito para Vías Públicas y Terrestres.

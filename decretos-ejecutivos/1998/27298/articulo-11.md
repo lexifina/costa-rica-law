@@ -1,0 +1,1 @@
+Artículo 11.—De la prohibición de limitantes de espacio: No se permitirá la instalación y funcionamiento de controles de pasajeros que lesionen o pongan en grave riesgo el acceso o abandono del autobús en caso de emergencia.

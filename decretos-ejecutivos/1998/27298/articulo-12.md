@@ -1,0 +1,1 @@
+Artículo 12.—De la ubicación del motor: Cuando por razones de diseño el motor del autobús se encuentra ubicado en el interior del mismo, próximo al plano operativo del trabajador, se deberá de disponer de una puerta de acceso a su puesto de trabajo que garantice el ingreso y salida fácil y segura del trabajador.

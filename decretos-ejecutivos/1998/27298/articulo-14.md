@@ -1,0 +1,1 @@
+Artículo 14.—De la altura de la marcha: En la medida que fuese posible, la altura de la marcha (palanca de la caja de cambios), debe ajustarse a la altura obtenida entre el codo del trabajador y el piso donde está sujeto el asiento.
