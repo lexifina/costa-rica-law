@@ -1,1 +1,0 @@
-Artículo 4°-La Junta nombrará un Secretario de Actas como auxiliar de la Secretaria quien tendrá a su cargo el trabajo que el Secretario de la Junta y el Director de la Oficina le indiquen, cada uno dentro de sus atribuciones.
