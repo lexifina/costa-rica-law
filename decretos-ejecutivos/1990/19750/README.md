@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 19750
+
+Pago de Dieta a los miembros que integran el Consejo Nacional de Desarrollo de la Comunidad
+
+- Tipo: Decreto Ejecutivo
+- Número: 19750
+- Fecha: 1990-05-31
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 122 del 1990-06-28
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=4801&param2=5076&param3=1 (ficha 4801)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1990-06-28 | la propia norma |
