@@ -1,0 +1,1 @@
+Art. 2° El Vice-Gefe cuando presida, podrà hablar sobre cualquiera asunto lo mismo que los Consejeros y tendrá voto en los casos que previenen los artículos 3° y 4° de la Ley de 15 de Marzo de este año.

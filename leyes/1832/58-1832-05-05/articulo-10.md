@@ -1,0 +1,1 @@
+Art. 10. Recibirà el juramento de estilo á los individuos que compongan el Tribunal que previene el artìculo 95 de la Constitucion del Estado: asi mismo á los Consejeros nombrado, reconocida que sea la legitimidad del documento de su eleccion.

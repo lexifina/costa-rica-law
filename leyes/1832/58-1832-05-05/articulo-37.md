@@ -1,0 +1,1 @@
+Art. 37. Cuando se halle impedido el Vice-Gefe para asistir, el mismo cuerpo elegirà indistintamente dentro sus individuos un Presidente que supla las veces de este, y esto lo podrá hacer siempre que convenga.

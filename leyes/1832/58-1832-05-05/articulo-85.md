@@ -1,0 +1,1 @@
+Art. 85. Las Municipalidades dirigirán al Tribunal por medio del Gefe Polìtico Superior en el perentorio termino de tres meses de publicada esta Ley, un conocimiento exacto de las cuentas de los propios, arbitrios, y fondos pios, con fundacion ó sin ella, de sus respectivos pueblos.

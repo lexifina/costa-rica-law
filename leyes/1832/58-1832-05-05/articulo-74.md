@@ -1,0 +1,1 @@
+Art. 74. Pero si hubiere sentencia, luego que los Jueces hayan convenido en la que han de dar, abrirán el Tribunal: la publicarà el Presidente, y si en ella se absolviere al acusado, será puesto inmediatamente en libertad y restituido al ejercicio de sus funciones.

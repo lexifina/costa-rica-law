@@ -1,0 +1,1 @@
+Art. 52. El Secretario estendera las actas, acuerdos y comunicaciones de cada sesion, y las presentará en la siguiente al Consejo para su aprobacion, si fuesen conformes à lo acordado. En este caso serán autorizadas y despachadas, y en el contrario reformadas.

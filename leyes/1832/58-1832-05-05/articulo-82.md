@@ -1,0 +1,1 @@
+Art. 82. El 2 de Marzo de cada año se presentarán al Tribunal todas las cuentas de Hacienda pública, propios, arbitrios y cofradías, ó fondos pios de los pueblos con fundación ó sin ella, que no esten revisadas y aprobadas por autoridad competente, previas las formalidades establecidas en este reglamento.

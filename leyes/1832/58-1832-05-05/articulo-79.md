@@ -1,0 +1,1 @@
+Art. 79. Lo mismo que en las del artìculo anterior corresponde al Gefe Supremo, deben practicar las Municipalidades con las de sus propios y arbitrios y fondos pios respectivos; remitiéndolas por medio del Gefe Político al mismo Tribunal, y con solo la diferencia de que la revision de cuentas de Cofradias y fondos pios deben hacerla con asistencia del Cura Pàrroco.

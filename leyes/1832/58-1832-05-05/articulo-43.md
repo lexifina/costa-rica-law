@@ -1,0 +1,1 @@
+Art. 43. Si el Gobierno devolviere alguna terna por carecer alguno ò o algunos de los propuestos en ellas de las calidades legales, el Consejo las variará únicamente con respecto á las personas tachadas.

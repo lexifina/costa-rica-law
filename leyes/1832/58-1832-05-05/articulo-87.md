@@ -1,0 +1,1 @@
+Art. 87. E igualmente en vista de los resultados de las cuentas informará à la Asambléa de los defectos y necesidades que observe en las ordenanzas y Leyes de la Administracion de cualesquiera de aquellos fondos y rentas.

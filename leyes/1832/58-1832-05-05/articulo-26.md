@@ -1,0 +1,1 @@
+Art. 26. En las sesiones se guardarà orden, silencio y compostura. Si se faltase, despues de haber reconvenido por tres veces al perturbador, el Presidente podrá mandarle salir de la Sala durante la sesion.

@@ -1,0 +1,1 @@
+Art. 58. El Secretario tendrá especial cuidado del órden y arreglo del archivo, y llevará una razon puntual de todos los negocios que despache el Consejo, segun sus fechas, para que revisada por el mismo cuerpo se publique al fin de cada mes.

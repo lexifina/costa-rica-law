@@ -1,0 +1,2 @@
+Art. 51. El Consejo por mayoria de votos, hará el nombramiento de Secretario, y verificado en propiedad, no podrá ser depuesto, sin conocimiento de causa, y con la votación de la mayorìa del Cuerpo. El Secretario con anuencia del Presidente nombrarà un Manuense, y este serpa amovible à su juicio. (1)
+(1) Ampliado por el art. 2. del Decreto de 4 de Junio de 1834, y reformado por el art. 2. del Decreto de 31 de Marzo de 1835.

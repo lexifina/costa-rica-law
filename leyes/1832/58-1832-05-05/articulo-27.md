@@ -1,0 +1,1 @@
+Art. 27. El Secretario del Despacho concurrirà al Consejo cuando èste le llame à informar, y cuando el Poder Ejecutivo le envie para que asista à la discusion en asuntos en que necesite ó haya pedido dictámen del mismo Cuerpo. El Secretario en estos casos tomarà asiento entre los Consejeros; pero en ninguno, tendrá voto en las deliberaciones.
