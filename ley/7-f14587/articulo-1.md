@@ -1,0 +1,3 @@
+DECRETO VII.
+Concede permiso al Presbítero Lic. Don Francisco Calvo para que pueda optar al grado de Doctor en Sagrados Cánones, sin que sea necesario el trascurso del tiempo señalado al efecto por la ley.
+EL SENADO Y CAMARA DE REPRESENTANTES de la República de Costa-Rica, reunidos en Congreso- DECRETAN. -Artículo único. Se concede al Presbítero Licenciado Don Francisco Calvo el que pueda optar al grado de Doctor en Sagrados Cánones, sin que sea necesario el trascurso del tiempo señalado por el artículo 110 de los Estatutos de la Universidad, sujetándose en lo demás á los otros requisitos prevenidos en los mismos Estatutos. -A LA CAMARA DE REPRESENTANTES. Dado en el Salón de Sesiones. Palacio Nacional. San José, junio siete de mil ochocientos sesenta y cinco.
