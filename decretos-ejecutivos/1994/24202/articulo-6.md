@@ -1,1 +1,0 @@
-Artículo 6º.- Contra las resoluciones finales que dicte el R.E.S.A.L. proceden los recursos de revocatoria y apelación, en los términos y condiciones establecidos por la Ley General de la Administración Pública.

@@ -1,2 +1,0 @@
-Artículo 10.- Para su inscripción en el Registro Mercantil, todos los nombramientos que se realicen, así como cualquier modificación del pacto social, deben obtenerse previamente el visto bueno del R.E.S.A.L.
-Es obligación del administrador o de la junta directiva de la sociedad, según se trate, comunicar al R.E.S.A.L. las citas fieles y exactas de inscripción en el Registro Mercantil, de los indicados nombramientos y modificaciones.

@@ -1,2 +1,0 @@
-Artículo 25.- Para el mejor desempeño de sus funciones, atribuciones y tareas, el I.S.A.L. y el R.E.S.A.L. coordinarán sus actividades mediante la suscripción de convenios de cooperación y colaboración.
-En dichos convenios se determinarán en detalle las actividades propias de cada una, conforme con la Ley y el Reglamento, y se establecerán los mecanismos y procedimientos específicos para su ejecución.

@@ -1,3 +1,0 @@
-Artículo 38.- Las disposiciones de este Reglamento son de interés público y regirán a partir de su publicación en el Diario Oficial.
-Transitorio único.- Los recursos del empréstito a que se refiere el artículo transitorio de la Ley, serán destinados a financiar líneas de crédito para las sociedades anónimas laborales y sus programas.
-Dicho empréstito es diverso del señalado en los artículos 30 de la Ley y 17 de este Reglamento. Será administrado en forma de fideicomiso por el Departamento de Sociedades Anónimas Laborales del Banco Popular, conforme a los términos y condiciones que establezca el reglamento que al efecto dicte la Junta Directiva de dicho Banco.

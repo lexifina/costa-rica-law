@@ -1,1 +1,0 @@
-Artículo 23.- El I.S.A.L. tiene como finalidades fomentar, promover, divulgar, examinar y apoyar a las sociedades anónimas laborales, facilitando las condiciones organizativas técnicas, tecnológicas y materiales, que contribuyan a crear las mejores condiciones de vida para los trabajadores y para el desarrollo de la democracia participativa.

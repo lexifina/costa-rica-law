@@ -1,1 +1,0 @@
-Artículo 30.- El plazo de los contratos otorgados en condiciones prioritarias no excederá de tres años. A partir de ese plazo, la contratación deberá efectuarse de conformidad con la legislación administrativa vigente, mediante supervisión de la Contraloría General de la República.

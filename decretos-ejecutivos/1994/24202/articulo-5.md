@@ -1,1 +1,0 @@
-Artículo 5º.- El R.E.S.A.L. fiscalizará el cumplimiento de las disposiciones del artículo 25 de la Ley y de las contenidas en los incisos g), h), i) y k), del numeral 7º, de este Reglamento, con base en los documentos que obren en sus archivos o que lleguen a su poder por cualquier vía legal, o bien con base en los informes que al efecto le remita el I.S.A.L.

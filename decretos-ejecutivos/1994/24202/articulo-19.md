@@ -1,1 +1,0 @@
-Artículo 19.- La Universidad deberá reintegrar al fideicomiso señalado en los artículos 30 de la Ley y 17 de este Reglamento, los activos y pasivos pertenecientes al I.S.A.L., en el caso de que no se llegare a crear la entidad mencionada en el inciso d) del artículo 32 de la Ley.

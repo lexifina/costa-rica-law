@@ -1,1 +1,0 @@
-Artículo 13.- Perderá su condición de sociedad anónima laboral que, durante su funcionamiento, deje de cumplir los requisitos señalados en el artículo 25 de la Ley y en los incisos g), h) i) y k) del numeral 7º, de este Reglamento.
