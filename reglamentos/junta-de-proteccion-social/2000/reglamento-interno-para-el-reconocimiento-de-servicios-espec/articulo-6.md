@@ -1,0 +1,1 @@
+Artículo 6º—A la recepción de excedentes de lotería asisten el Director Financiero Contable y el Jefe del Departamento de Tesorería, los cuales pueden delegar esta función en el subalterno que habitualmente lo sustituye en sus ausencias, el Gerente o su representante, así como los funcionarios que el Auditor Interno nombre para llevar a cabo la función de fiscalización.

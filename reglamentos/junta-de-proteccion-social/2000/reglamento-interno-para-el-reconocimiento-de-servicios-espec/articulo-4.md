@@ -1,0 +1,1 @@
+Artículo 4º—También deben participar en la realización de los sorteos, los funcionarios necesarios para llevar a cabo las distintas labores que demanden estos eventos, a juicio de la Dirección de Producción y Ventas.

@@ -1,0 +1,1 @@
+Artículo 2º—La responsabilidad por la correcta ejecución del sorteo y determinación de números y series favorecidas del sorteo, recae en los fiscalizadores de la Junta de Protección Social y el Funcionario Judicial o Notario que asistan al sorteo.

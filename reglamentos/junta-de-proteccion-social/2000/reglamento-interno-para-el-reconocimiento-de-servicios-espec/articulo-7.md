@@ -1,0 +1,1 @@
+Artículo 7º—También participan en la recepción de excedentes, el número de funcionarios necesarios para llevar a cabo las distintas labores propias de la recepción, a juicio de la Dirección Financiera.
