@@ -1,0 +1,1 @@
+Artículo 26. Las faltas cometidas por los servidores del Departamento de Seguridad, se considerarán y clasificarán con acuerdo a lo dispuesto por los artículos 190 a 194 de la Ley Orgánica del Poder Judicial.

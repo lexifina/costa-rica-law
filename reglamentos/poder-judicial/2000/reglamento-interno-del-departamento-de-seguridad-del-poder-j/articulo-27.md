@@ -1,0 +1,1 @@
+Artículo 27.—Las sanciones que se puedan imponer a los servidores del Departamento de Seguridad, por las faltas cometidas en el ejercicio de su cargo se tramitarán con acuerdo a lo dispuesto por los artículos 195 a 215 de la Ley Orgánica del Poder Judicial.
