@@ -1,1 +1,0 @@
-Artículo 28.—Para poder imponer suspensión sin goce de salario es exigido oír al interesado y a los compañeros que éste indique, salvo que el servidor haya aceptado tácita o expresamente su falta o que se trate de ausencias o llegadas tardías no justificadas oportunamente.

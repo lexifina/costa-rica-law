@@ -1,1 +1,0 @@
-Articulo 39.—Los traslados y permutas entre puestos de igual clase y remuneración podrán ser recomendados de común acuerdo entre los directores de los Centros ante la Dirección de Adaptación Social, por motivos de salud, desavenencia o medie una causa justificada. Solo la Dirección de Adaptación Social podrá efectuar traslados y permutas sin otro trámite.

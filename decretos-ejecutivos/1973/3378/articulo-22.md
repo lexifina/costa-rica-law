@@ -1,1 +1,0 @@
-Artículo 22.—Las ausencias injustificadas computadas al final de un mes calendario se sancionarán de la siguiente forma: Por una ausencia; amonestación por escrito. Por dos ausencias alternas, suspensión hasta por ocho días. Por dos ausencias consecutivas o más de dos alternas, despido sin responsabilidad patronal.

@@ -1,1 +1,0 @@
-Articulo 16.—El Superior que incurra en dolo al reportar las ausencias o llegadas tardías podrá ser destituido o suspendido sin goce de sueldo e incurrirá en las mismas penas, el funcionario que consienta la justificación de su falta.

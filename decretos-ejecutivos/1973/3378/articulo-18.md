@@ -1,1 +1,0 @@
-Artículo 18.—Las llegadas tardías computadas al final de cada mes calendario se sancionarán de la siguiente forma: por una, amonestación verbal y anotación en el respectivo expediente. De dos a tres, amonestaciones por escrito; por más de 3 suspensión hasta por ocho días o destitución sin, responsabilidad patronal.

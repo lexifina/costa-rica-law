@@ -1,1 +1,0 @@
-Articulo 6°—Los funcionarios y empleados de Custodia mencionados en el artículo 4° de este Reglamento están equiparados a la Fuerza Pública, ley 4762 de 1° de julio de 1971. Se considerarán entre los señalados en el párrafo b) del artículo 3° del Estatuto de Servicio Civil.

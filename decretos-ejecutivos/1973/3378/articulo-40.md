@@ -1,1 +1,0 @@
-Articulo 40.—De acuerdo con el escalafón no existirá recargo de puestos. En ausencia parcial o temporal del superior, el inmediato inferior asumirá el mando en funciones. "El mando no lo da el grado, sino el cargo que se desempeña".
