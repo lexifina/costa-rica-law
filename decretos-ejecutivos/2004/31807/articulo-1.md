@@ -1,0 +1,11 @@
+Nº 31807-MOPT
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En el ejercicio de las facultades conferidas por el artículo 140 incisos 3), y 18), de la Constitución Política; y de conformidad con lo establecido en La Ley de Creación del Ministerio de Obras Públicas y Transportes, Nº 4786 del 5 de julio de 1971 y sus reformas y la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978 y sus reformas.
+Considerando:
+1º—Que es competencia del Ministerio de Obras Públicas y Transportes regular todo lo referente al transporte marítimo mercante y pesquero, nacional e internacional.
+2º—Que mediante Decreto Ejecutivo N° 19702-MOPT del 3 de mayo de 1990, publicado en La Gaceta Nº 102 del 30 del mismo mes y año, se establecieron las tarifas o derechos por servicios extraordinarios que deben cobrarse a los buques mercantes o no mercantes o pesqueros, de tráfico nacional o internacional, que arriben a los puertos nacionales y soliciten servicios fuera de la jornada ordinaria.
+3º—Que la actividad pesquera nacional no deportiva se encuentra seriamente afectada por una serie de factores y fenómenos económicos, sociales y naturales que no sólo han repercutido en una disminución notable del volumen de su productividad sino en un mayor costo de los distintos bienes e insumos requeridos para su óptimo desarrollo y un estado generalizado de crisis que involucra a quienes directa o indirectamente dependen de dicha actividad como medio de vida. 4º—Que dada la situación crítica que enfrenta la actividad pesquera nacional antes descrita, el cobro de derechos a que se refiere el citado Decreto Ejecutivo Nº 19702-MOPT, encarecería aún más dicha actividad, afectando principalmente a pequeñas empresas cuyos trabajadores dependen de esta actividad como medio de vida. Por tanto:
+DECRETAN:
+Artículo 1º—Modifíquense los artículos 1° y 4° del Decreto Ejecutivo Nº 19702-MOPT del 3 de mayo de 1990, publicado en La Gaceta Nº 102 del 30 del mismo mes y año, excluyéndose del cobro de derechos por servicios extraordinarios establecidos en los artículos citados, a los buques pesqueros nacionales dedicados a la actividad pesquera no deportiva que arriben a los puertos de Costa Rica y que soliciten servicios fuera de la jornada ordinaria.

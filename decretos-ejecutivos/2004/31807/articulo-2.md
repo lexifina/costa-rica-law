@@ -1,0 +1,1 @@
+Artículo 2º—La Dirección de Navegación y Seguridad de la División de Puertos del Ministerio de Obras Públicas y Transportes girará las instrucciones necesarias para el debido cumplimiento de lo que por este Decreto se dispone.
