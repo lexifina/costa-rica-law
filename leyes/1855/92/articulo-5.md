@@ -1,0 +1,1 @@
+Art 5°.- Después de la publicación de este decreto todos los descubridores de las minas de cobre o hierro, tendrán por medida mil varas de largo y cuatrocientos de ancho, y los descubridores de vetas plomosas quinientas varas de largo y doscientas de ancho, quedando en esta parte reformado el párrafo 2° de la orden n° 483 de 4 de agosto de 18954

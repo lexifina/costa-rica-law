@@ -1,0 +1,1 @@
+Art 3°.- Si alguno de los Jueces de minas estuviere interesado directamente en el denuncio de alguna mina, situada dentro de los límites de su jurisdicción, este se hará ante el Juez del distrito más inmediato quien practicará la medida correspondiente y dará la posesión al interesado.
