@@ -17,3 +17,8 @@ los suplementos posteriores que sean necesarios.
 7ª.-Debe atender la publicación de los anales del Museo y rendir
 informe mensual á la Secretaría de Fomento sobre los trabajos y
 movimiento del mismo.
+( NOTA: El párrafo primero de este artículo fue tácitamente reformado por
+el artículo 1º de la Ley de Donaciones al Museo Nacional de Costa Rica,
+Nº 7429 del 14 de setiembre de 1994; al disponer que el Museo Nacional es
+un órgano desconcentrado, con personalidad y capacidad jurídica
+instrumentales, adscrito al Ministerio de Cultura, Juventud y Deportes).
