@@ -1,4 +1,4 @@
-ARTICULO 15.- El Poder Ejecutivo informará semestralmente a la
+ARTICULO 15.-(*) El Poder Ejecutivo informará semestralmente a la
 Asamblea Legislativa sobre lo realizado con respecto a lo que establece
 el artículo 37 de la ley Nº 6955. El primer informe se deberá presentar
 dentro de los treinta días siguientes a la entrada en vigencia de la
@@ -19,5 +19,5 @@ que no requieran aprobación legislativa.
 El Poder Ejecutivo deberá concluir la evaluación de todos los
 programas, instituciones y empresas públicas antes del 31 de diciembre de
 1986.
-(* NOTA: Numeración del artículo corregida por Fe de Erratas. Ver
+(* NOTA: Corrección de numeración por Fe de Erratas. Ver
 Observaciones)

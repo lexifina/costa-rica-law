@@ -1,6 +1,6 @@
-ARTICULO 43.- Rige a partir de su publicación, excepto en aquellos
-casos en los que expresamente se indique otra fecha de vigencia.
-(* NOTA: Numeración del artículo corregida por Fe de Erratas. Ver
+ARTICULO 43.- Rige a partir de su publicación, excepto en
+aquellos casos en los que expresamente se indique otra fecha de vigencia.
+(*) NOTA: Corrección de numeración por Fe de Erratas. Ver
 Observaciones)
 Transitorio I.- En un plazo de seis meses, a partir de la
 promulgación de esta ley, el Ministerio de Hacienda, por medio de su

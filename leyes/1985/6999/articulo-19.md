@@ -1,4 +1,4 @@
-ARTICULO 19.- Los ingresos y egresos establecidos por leyes
+ARTICULO 19.-(*) Los ingresos y egresos establecidos por leyes
 generales y especiales que a la fecha de entrada en vigencia de la
 presente ley no estén incorporados a la Ley de Presupuesto Ordinario y
 Extraordinario del Gobierno de la República, deberán incluirse en dicho
@@ -9,18 +9,20 @@ Ejecutivo someterá a la Asamblea Legislativa un proyecto de modificación
 a la Ley de Presupuesto del Gobierno de la República para 1985, sin que
 aquél ni ésta puedan incluir disposiciones ajenas a la materia propia del
 presupuesto, con excepción de las reformas legales que fueren
-indispensables para dar cumplimiento a lo que establece este artículo.
-En este proyecto deberán incorporarse todos los ingresos y egresos de los
+indispensables para dar cumplimiento a lo que establece este artículo. En
+este proyecto deberán incorporarse todos los ingresos y egresos de los
 siguientes programas:
-1) Dirección General de Desarrollo Social y Asignaciones Familiares.
+1) DEROGADO.-
+(Derogado por el artículo 5 de la ley No.7028 del 23 de abril
+de 1986)
 2) Los financiados con las sobretasas temporales a la importación
 establecidas por el Banco Central de Costa Rica y cuya distribución se
 regula por las disposiciones del artículo 23 de la ley número 6890 del 14
 de setiembre de 1983 y sus reformas.
-3) Consejo Técnico de Asistencia Médica Social, incluidos los
-Centros de Educación y Nutrición (CEN), los Centros Infantiles de
-Nutrición y Atención Integral (CINAI) y la oficina de Cooperación
-Internacional de la Salud.
+3) Consejo Técnico de Asistencia Médica Social, incluidos los Centros
+de Educación y Nutrición (CEN), los Centros Infantiles de Nutrición y
+Atención Integral (CINAI) y la oficina de Cooperación Internacional de la
+Salud.
 El Poder Ejecutivo incorporará en el proyecto de Presupuesto
 Ordinario y Extraordinario del Gobierno de la República para 1986, todos
 los demás ingresos y egresos que no estén incorporados en el Presupuesto
@@ -52,6 +54,13 @@ correspondiente autorización presupuestaria.
 No se aplicará lo dispuesto en este artículo a los ingresos y
 egresos de las instituciones autónomas y semiautónomas del Estado. Se
 derogan las disposiciones que se opongan a las que aquí se establece.
+( NOTA: el artículo 62 de la Ley de Presupuesto Extraordinario Nº
+7015 del 22 de noviembre de 1985 interpretó auténticamente el presente
+párrafo en el sentido de que el Registro Nacional está comprendido entre
+las excepciones que aquí se señalan. Véanse además las observaciones de
+la presente ley sobre la ampliación hecha a este mismo artículo por el
+artículo 43 de la Ley de Presupuesto No.7018 del 20 de diciembre de
+1985).
 Los trabajadores que pertenezcan a alguno de los entes u órganos
 desconcentrados a que se refiere este artículo y cuyos presupuestos de
 gastos e ingresos se incorporen a la Ley de Presupuesto Ordinario y
@@ -82,5 +91,5 @@ pago directo con cargo a los fondos que deben integrarse a la caja del
 Estado. El Poder Ejecutivo podrá complementar la aplicación de esta
 disposición mediante decreto cuyo texto le sometan conjuntamente la
 Tesorería Nacional y la Contraloría General de la República.
-(* NOTA: Numeración del artículo corregida por Fe de Erratas. Ver
+(*) NOTA: Corrección de numeración por Fe de Erratas. Ver
 Observaciones)

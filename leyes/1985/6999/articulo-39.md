@@ -21,5 +21,5 @@ instituciones y empresas de servicio público a las que se refiere este
 artículo no podrán incrementar a los consumidores el costo de los
 servicios que presta como consecuencia de los cánones, derechos y tasas
 que les cobre el SNE.
-(* NOTA: Numeración del artículo corregida por Fe de Erratas. Ver
+(*) NOTA: Corrección de numeración por Fe de Erratas. Ver
 Observaciones)

@@ -4,5 +4,5 @@ que ejecute como consecuencia de ésta, durante el tiempo que permanezca
 bajo la dirección y dependencia del patrono o sus representantes, y que
 pueda producirle la muerte o la pérdida o reducción, temporal o
 permanente, de la capacidad para el trabajo.
-(* NOTA: Numeración del artículo corregida por Fe de Erratas. Ver
+(*) NOTA: Corrección de numeración por Fe de Erratas. Ver
 Observaciones)
