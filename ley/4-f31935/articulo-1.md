@@ -1,0 +1,8 @@
+DECRETO No 4
+(De 19 de setiembre.
+Faculta al Poder Ejecutivo para que autorice a la Empresa del Ferrocarril para efectuar una nuera emisión de bonos.
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
+1° Que los intereses del Fisco y especialmente los del comercio reclaman la construcción de un nuevo muelle de hierro en el puerto de Limón que con mas seguridad facilite el movimiento marítimo y comercial de dicho puerto; y
+2° Que, para llevar a cabo tan importante obra, así para dar cumplimiento a obligaciones de crédito perentorias y atender a la reparación y mejoras de la línea, la Compañía del Ferrocarril de Costa Rica, establecida en Londres, ha solicitado del Gobierno de la República autorización suficiente para la emisión de nuevas obligaciones, hasta por la suma de 100.000 cien mil libras esterlinas, además de las autoridades por decreto no 3 de diciembre de 1891.
+Decreta:
+Artículo 1° Facultase al Poder Ejecutivo para que en las condiciones que crea más conveniente a los intereses de la Nación autorice a la Compañía del Ferrocarril de Costa Rica, establecida en Londres, para efectuar una segunda emisión de bonos privilegiados hipotecarios a la par, y hasta por la cantidad no menor de (50.000) cincuenta mil libras esterlinas a la construcción de un muelle de hierro en el Puerto de Limón, que sirva para cargar y descargar a la vez, y el resto de la emisión a poner un nuevo puente de hierro sobre el río “ El Virilla” al pago de las cantidades que actualmente adeudada la Compañía y a las mejoras y reparaciones que la línea del Ferrocarril exija para su mejor servicio.
