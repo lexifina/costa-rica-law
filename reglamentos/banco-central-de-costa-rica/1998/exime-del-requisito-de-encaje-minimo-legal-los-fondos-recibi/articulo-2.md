@@ -1,0 +1,1 @@
+2°—Aclarar que las Entidades Financieras Privadas no podrán deducir de sus obligaciones sujetas a encaje los depósitos que hagan en la banca estatal para cumplir con los requisitos para tener acceso al redescuenio o captar depósitos en cuenta corriente, según lo estipulado en los artículos mencionados.
