@@ -1,3 +1,3 @@
 Artículo 86
-2) Que se confeccione un control escrito, donde conste el nombre, la fecha, la hora de la persona que recibe, esta persona debe ser el interesado o una persona mayor de 15 años designada previamente ante la Secretaria del Concejo.
-(Así ADICIONADO por el artículo 42 de la Sesión Ordinaria N° 175, de 29 de junio de 2000, publicada en La Gaceta N° 151 de 08 de agosto de 2000.)
+1) Que las convocatorias a sesiones extraordinarias que no sean por acuerdo municipal, se convocarán por escrito con al menos 24 horas de antelación.
+(Así corrida su numeración al adicionarse un nuevo artículo 85 según publicación realizada en La Gaceta N° 99 de 26 de mayo de 2003, por lo cual el anterior artículo 85 pasó a ser el 86.)

@@ -1,3 +1,3 @@
 Artículo 85
-1) Que las convocatorias a sesiones extraordinarias que no sean por acuerdo municipal, se convocarán por escrito con al menos 24 horas de antelación.
-(Así ADICIONADO por el artículo 42 de la Sesión Ordinaria N° 175, de 29 de junio de 2000, publicada en La Gaceta N° 151 de 08 de agosto de 2000.)
+Además de las funciones que establecen los artículos 56, 57, 59 y 69 del reglamento de sesiones y las comisiones de trabajo y los demás artículos que regulen la materia. Las comisiones deberán de rendir un informe ante el Concejo Municipal cada mes de sus actuaciones y no podrán atribuirse en nombre del Concejo, hacer negociaciones, en donde se compromete el patrimonio municipal, no podrán recibir donaciones de ninguna índole sin antes haber realizado los trámites legales correspondientes y las mismas haber sido aprobadas por este Concejo Municipal.
+(Así adicionado y publicado en La Gaceta N° 99 de 26 de mayo de 2003)

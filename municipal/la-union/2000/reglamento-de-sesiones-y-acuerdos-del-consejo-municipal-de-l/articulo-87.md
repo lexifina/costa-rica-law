@@ -1,3 +1,3 @@
 Artículo 87
-3) Que la Alcaldía asigne temporalmente para ese efecto un mensajero con vehículo y las direcciones actualizadas de los miembros del Concejo que vivan dentro del cantón.
-(Así ADICIONADO por el artículo 42 de la Sesión Ordinaria N° 175, de 29 de junio de 2000, publicada en La Gaceta N° 151 de 08 de agosto de 2000.)
+2) Que se confeccione un control escrito, donde conste el nombre, la fecha, la hora de la persona que recibe, esta persona debe ser el interesado o una persona mayor de 15 años designada previamente ante la Secretaria del Concejo.
+(Así corrida su numeración al adicionarse un nuevo artículo 85 según publicación realizada en La Gaceta N° 99 de 26 de mayo de 2003, por lo cual el anterior artículo 86 pasó a ser el 87.)
