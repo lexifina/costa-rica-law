@@ -23,3 +23,4 @@ Reglamento para el pago de prohibición al personal de la administración tribut
 | 8 | 1978-04-24 | Reglamento 8496 (1978-04-24) |
 | 9 | 1978-08-16 | Decreto Ejecutivo 9462 (1978-08-16) |
 | 10 | 1978-10-04 | Decreto Ejecutivo 9208 (1978-10-04) |
+| 11 | 1979-04-08 | Decreto Ejecutivo 11364 (1979-04-08) |

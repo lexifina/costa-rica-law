@@ -67,3 +67,7 @@ Grupo Servicios Auxiliares de Avalúos | Asistente Fiscal | 0949170 | 12528
 Programa | Puesto | Código | Clave
 Administración de Impuestos | | |
 Sección registro de Propietarios | Asistente Abogacía 3 | 09-49-047 | 6003”)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 11364 del 8 de abril de 1979, se acordó ampliar la lista de los empleados y funcionarios del personal de la administración tributaria. No obstante al no venir dicho listado en la publicación original del decreto ejecutivo N° 6237 del 6 de agosto de 1976, se transcribe la reforma: “Artículo 1°-Se amplía la lista anexa al Decreto Ejecutivo N° 6237-H de 7 de diciembre de 1976, en la siguiente forma:
+Administración de Impuestos Directos. | | |
+Unidad de recaudación de Impuestos | | |
+Sección | Asistente Fiscal | 0945035 | 14782”)
