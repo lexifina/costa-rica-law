@@ -13,3 +13,4 @@ Reglamento de Uso Controlado del Asbesto y Productos que lo Contengan
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-16 | la propia norma |
+| 2 | 1996-04-16 | SINALEVI (sin norma nombrada) |
