@@ -1,0 +1,1 @@
+Artículo 4º.- Se traspasa al Ministerio de Agricultura y Ganadería un lote de aproximadamente 100 Ha, por parte de dicha hacienda, separado de los terrenos antes descritos, ubicado en la intersección de las carreteras Interamericana y a Cuajiniquil, para que ese Ministerio establezca allí una Estación Experimental.

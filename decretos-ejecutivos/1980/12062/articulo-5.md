@@ -1,0 +1,1 @@
+Artículo 5º.- El Instituto de Tierras y Colonización procederá a construir y mantener una cerca delimitando los terrenos que se le traspasan de aquellos que se declaran parque nacional, lo mismo que a ambos lados del camino de acceso.

@@ -1,0 +1,1 @@
+Artículo 2º.- Los terrenos descritos en el artículo anterior quedan bajo la administración del Servicio de Parques Nacionales del Ministerio de Agricultura y Ganadería. Rigen en ellos las disposiciones y prohibiciones de la ley Nº 6084 de 24 de agosto de 1977.
