@@ -14,3 +14,4 @@ Establece Monumento Nacional Cahuita (Ahora Parque Nacional Cahuita)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-09-24 | la propia norma |
+| 2 | 1978-04-27 | Decreto Ejecutivo 8489 (1978-04-27) |

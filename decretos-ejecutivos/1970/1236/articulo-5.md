@@ -1,1 +1,2 @@
-Artículo 5°—La Dirección General Forestal del Ministerio de Agricultura y Ganadería preparará y ejecutará los planes de manejo y desarrollo para este Monumento Nacional. Asimismo dictará y aplicará los reglamentos y demás disposiciones pertinentes para la seguridad de los visitantes y para la protección de los recursos naturales del monumento.
+Artículo 5°—La Dirección General Forestal del Ministerio de Agricultura y Ganadería preparará y ejecutará los planes de manejo y desarrollo para este Parque Nacional*. Asimismo dictará y aplicará los reglamentos y demás disposiciones pertinentes para la seguridad de los visitantes y para la protección de los recursos naturales del parque*.
+*(Modificada su denominación mediante decreto ejecutivo N°8489 del 27 de abril de 1978).
