@@ -1,0 +1,1 @@
+Artículo 89.- Cuando por motivo justificado un vehículo deba permanecer estacionado en la calzada de una carretera, se señalará la presencia del mismo mediante luces de estacionamiento y avisos luminosos, de acuerdo con las disposiciones reglamentarias. La infracción a este artículo será penada de acuerdo con el Capítulo XI.

@@ -1,0 +1,1 @@
+Artículo 90.- Los vehículos de tracción humana y de tracción animal están sujetas al cumplimiento de las disposiciones del presente capítulo que les fueren aplicables. Cederán siempre el paso a los vehículos automotores y entre sí al vehículo más rápido. Es prohibida su circulación por vías de tránsito rápido y por las aceras de los centros urbanos.

@@ -1,0 +1,1 @@
+Artículo 94.- La información así levantada debe enviarse de inmediato a la Dirección General de Tránsito, donde tendrá valor de "Parte Oficial". Estas disposiciones comprenden tanto a los inspectores de Policía de Tránsito, como a cualquier otra autoridad.

@@ -1,0 +1,3 @@
+Exclusiones
+Artículo 55.- El Seguro Obligatorio de Responsabilidad Civil, no cubre las indemnizaciones amparadas por las disposiciones legales sobre riesgos profesionales.
+Si la víctima estuviera incorporada y protegida por el Régimen de Seguros Sociales, tampoco perderá la protección de esta ley, y recibir la indemnización que le corresponda, como complemento de la protección que le haya otorgado la Caja Costarricense de Seguro Social. No están excluidos de los beneficios de esta ley, tratándose de vehículos de servicio particular, la lesión o muerte del conductor o propietario y demás ocupantes.

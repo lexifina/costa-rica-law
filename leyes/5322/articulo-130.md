@@ -1,0 +1,1 @@
+Artículo 130.- Los vehículos que por infracciones a esta ley deban ser detenidos, podrán ser trasladados al local más cercano de la Dirección General de Tránsito. El costo del remolque, en su caso, se calculará sobre el kilometraje recorrido y su importe se cancelará por el dueño del vehículo en el Sistema Bancario Nacional, de previo a la devolución de dicho vehículo.

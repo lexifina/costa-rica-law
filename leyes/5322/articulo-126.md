@@ -1,0 +1,1 @@
+Artículo 126.- La persona que resulte víctima de una infracción de tránsito podrá acudir dentro de los ocho días siguientes al hecho punible ante el Tribunal que corresponda a establecer verbalmente la acusación o denuncia, la cual se consignará de un modo lacónico y sin formalidades.

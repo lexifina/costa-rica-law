@@ -1,0 +1,1 @@
+Artículo 9°.- Las autoridades de la Dirección General de Tránsito y los miembros del personal del Ministerio de Obras Públicas y Transportes, relacionados con las funciones a cargo de la citada Oficina, están obligados a prestar toda su colaboración en todo lo de su competencia para el eficaz cumplimiento de su cometido.

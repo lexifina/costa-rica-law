@@ -1,0 +1,1 @@
+Artículo 112.- Las infracciones previstas en esta ley son de competencia de la Agencia Judicial de la cabecera de la provincia donde se cometan, y se tramitarán y resolverán según el procedimiento indicado en la presente ley.

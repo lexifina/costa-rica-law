@@ -1,0 +1,1 @@
+Artículo 111.- El contraventor de una falta sancionada con multa fija podrá pagarla directamente en una oficina bancaria. Cualquier otra forma de pago, se tendrá por no efectuada, y el empleado que acepte propinas será despedido por ese solo hecho, sin consecuencias para el Estado.

@@ -1,0 +1,1 @@
+Artículo 121.- Se autoriza a la Corte Suprema de Justicia para que cuando lo estime oportuno, extienda a otros circuitos judiciales lo dispuesto en el presente Capítulo en lo referente al procedimiento oral y público.

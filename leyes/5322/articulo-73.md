@@ -1,0 +1,1 @@
+Artículo 73.- Cuando haya habido transacción sobre los daños y perjuicios causados con un accidente, el monto de las indemnizaciones recibidas por la víctima o su causahabientes podrá aumentarse, si, dentro del año que sigue a la fecha del accidente, se demuestra que los daños o lesiones causados son mayores que los que se tomaron en cuenta al realizar la transacción.

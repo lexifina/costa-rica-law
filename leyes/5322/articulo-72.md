@@ -1,0 +1,1 @@
+Artículo 72.- Los honorarios médicos que se cobren al Instituto, se ajustarán a la tarifa que establezca el Reglamento complementario del artículo 239 del Código de Trabajo, sin perjuicio de que el facultativo reclame la diferencia al responsable del accidente.

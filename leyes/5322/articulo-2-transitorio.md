@@ -1,0 +1,1 @@
+Transitorio II.- El personal de las Agencias Judiciales de Tránsito de este cantón pasarán a formar parte del Tribunal o de las oficinas que disponga la Corte, conservándoles su categoría y los derechos que les otorga la ley.

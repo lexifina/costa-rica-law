@@ -1,0 +1,2 @@
+Artículo 33.- La licencia de conductor indicará la clase o clases de vehículos para los que es válida y tendrá vigencia por dos años, al cabo de los cuales deberá renovarse todo de acuerdo con los reglamentos respectivos.
+La licencia obtenida para el manejo de vehículos pesados es válida también para el manejo de vehículos livianos y comerciales. Quien la haya obtenido no estará obligado a pagar doble licencia.

@@ -1,0 +1,2 @@
+Artículo 127.- En las partes de tránsito se asentará la relación del hecho; el nombre, calidades y domicilio del presunto infractor, lo mismo que del ofendido si lo hubiere; de los testigos, indicando el lugar donde deban ser citados; y cualquier otra prueba de importancia.
+Al pie de cada parte, en forma impresa, deberá estar consignada advertencia de las consecuencias legales que apareja la renuencia del contraventor a comparecer ante el Tribunal correspondiente y las que se derivarían del no pago de la posible multa.
