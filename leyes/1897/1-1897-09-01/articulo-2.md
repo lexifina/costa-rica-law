@@ -1,0 +1,2 @@
+Artículo 2° La moneda de plata que se introduzca en contravención a esta ley, quedará depositada en las Aduanas respectivas para su reembarque por cuenta del interesado, quien además, incurrirá en la multa de un diez por ciento (10%) del valor de la cantidad introducida.
+Exceptuándose de esta disposición las cantidades de moneda de plata que se hayan embarcado con dirección a este país antes de la fecha del presente decreto.
