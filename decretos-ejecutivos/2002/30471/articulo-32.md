@@ -1,0 +1,1 @@
+Artículo 32.—Derogatoria. El presente Decreto Ejecutivo deroga el Decreto número 26795-MP, dado en la Presidencia de la República, a los 3 días del mes de marzo de 1998, así como cualquier otra disposición que se le oponga.
