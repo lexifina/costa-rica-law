@@ -1,0 +1,1 @@
+Artículo 3°-Corresponderá a la Procuraduría General de la república, la elaboración de la escritura respectiva, la cual no estará sujeta al pago de honorarios y estará exenta del pago de toda clase de impuestos y timbres.
