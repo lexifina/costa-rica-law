@@ -1,0 +1,1 @@
+Artículo 8°—Las familias que viven en los terrenos citados, al promulgarse esta ley, serán los únicos beneficiarios, tanto en la adjudicación de lotes, como en el programa de vivienda en general. Si los estudios socioeconómicos determinaran que el interesado no es merecedor de los beneficios contemplados en esta ley éste podrá ser sustituido.
