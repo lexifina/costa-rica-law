@@ -10,10 +10,11 @@ I°.-Con arresto en su grado máximo ó multa de sesenta y seis á cien colones 
 2°.-Con arresto en su grado medio ó multa de treinta á sesenta y seis colones, en los demás casos.
 Artículo 320.-Las amenazas de un mal que no constituya delito, hechas en la forma expresada en el inciso I° del artículo anterior, serán castigadas con las penas de arresto en su grado mínimo ó multa de diez á sesenta y seis colones.
 Artículo 32I.-En los casos de los artículos precedentes, se condenará además al amenazador, á dar caución de cien á quinientos colones, de que no llevará á cabo las amenazas proferidas. Esta caución durará un año.
-Artículo 435.-La calumnia será castigada:
+(*)Artículo 435.-La calumnia será castigada:
 I°.-Con la pena de arresto en su grado máximo ó multa de sesenta y-seis á cien colones, cuando se imputare un crimen;
 2°.-Con la de arresto en su grado medio ó multa de treinta y tres á sesenta y seis colones, cuando se imputare un simple delito.
-Artículo 439.-Las injurias graves serán castigadas con las penas de arresto en su grado medio á arresto en su grado máximo ó multa de treinta y tres á cien colones.
-Artículo 440. - Las injurias leves serán castigadas con la pena de arresto en su grado mínimo ó multa de diez á treinta y tres colones.
+(*)Artículo 439.-Las injurias graves serán castigadas con las penas de arresto en su grado medio á arresto en su grado máximo ó multa de treinta y tres á cien colones.
+(*)Artículo 440. - Las injurias leves serán castigadas con la pena de arresto en su grado mínimo ó multa de diez á treinta y tres colones.
 Artículo 442. -Al acusado de injuria, no se le admitirá prueba sobre la verdad de las imputaciones, á no ser en el caso del artículo anterior ó cuando éstas fueren dirigidas contra empleados públicos sobre hechos concernientes al ejercicio de su cargo ó cuando se imputare á persona privada acto que se refiera en cualquier concepto, á intereses que no sean de ese carácter. En estos dos últimos casos, será absuelto el acusado si probare la verdad de las imputaciones.
-Tales disposiciones no rezan con los delitos de calumnia y de injuria cometidos por medio de la prensa.
+(Derogado el párrafo último original del artículo 442 por ley N° 47 del 28 de julio de 1910)
+(*) (Nota de Sinalevi: De conformidad con la ley N° 47 del 28 de julio de 1910, lo dispuesto en los artículos 435, 439 y 440, no es aplicable á los delitos de injuria y de calumnia cometidos por medio de la prensa, los cuales se juzgarán de conformidad con la Ley de Imprenta vigente)
