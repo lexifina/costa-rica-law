@@ -1,11 +1,7 @@
-CAPITULO II
+CAPÍTULO II
 De la organización
-ARTICULO 7º.- INTEGRACION:
-La Procuraduría General de la República estará integrada por el
-Procurador General, el Procurador General Adjunto, los Procuradores
-Adjuntos, los Procuradores Regionales, el Director de Informática, el
-Director Administrativo, los asistentes de Procuraduría, los funcionarios
-y empleados que requieran el buen servicio y los siguientes órganos:
+ARTÍCULO 7º.—INTEGRACIÓN:
+La Procuraduría General de la República estará integrada por el Procurador General, el Procurador General Adjunto, los Procuradores Adjuntos, los Procuradores Regionales, el Director de Informática, el Director Administrativo, los asistentes de Procuraduría, los funcionarios y empleados que requieran el buen servicio y los siguientes órganos:
 a) Procuraduría Asesora.
 b) Procuraduría Administrativa.
 c) Procuraduría Civil.
@@ -23,12 +19,8 @@ n) Procuraduría Mercantil.
 ñ) Procuraduría Penal.
 o) Notaría del Estado.
 p) Procuraduría Ambiental y de la Zona Marítimo-Terrestre.
-q) Procuraduría de Derecho Informático e Informática Jurídica,
-a la cual corresponderá, además, la dirección del Sistema
-Nacional de Legislación Vigente.
-Cada procuraduría estará integrada por uno o más de los Procuradores
-a que se refiere el artículo 14, y contará con el personal subalterno que
-requiera el buen servicio. Su organización, funciones y atribuciones
-serán establecidas mediante reglamento.
-(Así reformado por el artículo 2º de la ley Nº 7666 de 14 de abril
-de 1997)
+q) Procuraduría de Derecho Informático e Informática Jurídica, a la cual corresponderá, además, la dirección del Sistema Nacional de Legislación Vigente.
+r) Procuraduría de la Ética Pública.
+(Así adicionado por el artículo 2 de la Ley Nº 8242 de 9 de abril del 2002, Ley de Creación de la Procuraduría de la Ética Pública)
+Cada procuraduría estará integrada por uno o más de los Procuradores a que se refiere el artículo 14, y contará con el personal subalterno que requiera el buen servicio. Su organización, funciones y atribuciones serán establecidas mediante reglamento.
+(Así reformado por el artículo 2º de la ley Nº 7666 de 14 de abril de 1997)
