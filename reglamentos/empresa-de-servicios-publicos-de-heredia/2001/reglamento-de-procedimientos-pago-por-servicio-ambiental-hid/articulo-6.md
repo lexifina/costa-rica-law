@@ -1,0 +1,24 @@
+6. Requisitos para la tramitación de solicitudes
+Toda persona física o Jurídica que desee participar de PROCURNCAS deberá de cumplir con los siguientes procedimientos:
+6.1. Presentación de Preso licitud.
+Cada posible beneficiario deberá llenar la boleta de presolicitud (anexo 9) y adjuntar los documentos que se le solicitan.
+La Oficina Ambiental se encargará de corroborar que los inmuebles indicados en las presolicitudes están ubicados en las zonas o áreas prioritarias para PROCUENCAS, que cumplen con lo establecido en este Reglamento y de comunicar al posible beneficiario que ha sido calificado para presentar la solicitud.
+6.2. Solicitud.
+Todos aquellos solicitantes a los que la Empresa les haya comunicado la aceptación de la presolicitud, deberán cumplir con lo siguiente:
+6.2.1.Una carta de solicitud que tenga al menos la siguiente información: nombre del propietario, sociedad u organización; número de cédula de identidad o cédula jurídica según corresponda; domicilio; teléfono y/o fax; nombre del representante legal si se trata de una sociedad u organización; número de cédula de identidad; domicilio; teléfono yo fax; número de finca (Folio Real); cantón, distrito, caserío; área total de inmueble, área que se desea someter a compensación; modalidad de manejo y lugar para oír notificaciones.
+6.2.2. Levantamiento del área efectiva sobre la cual se va a realizar el Pago por Servicio Ambiental Hídrico (Conservación, Regeneración natural del bosque, Reforestación y Plantaciones establecidas con recursos propios). Este podrá ser elaborado por un profesional forestal o por un topógrafo. La guía para la elaboración de los levantamientos del área efectiva a compensar, se muestra en el anexo 3.
+6.2.3.Plan de Manejo elaborado y firmado por un profesional forestal. 1.a guía para los planes de manejo se encuentra en los anexos 1 y 2. Este deberá ser presentado en la Oficina Ambiental en original y dos copia. EI original se mantendrá
+en los archivos, una copia se le entregará al interesado con el recibido, otra copia quedará en los archivos de la oficina regional del ACCVC. En caso de requerir correcciones, estas deberán estar firmadas por el profesional forestal o regente cuando corresponda.
+Los Planes de Manejo podrán ser integrados en un solo documento que contemple las diferentes modalidades de manejo. No obstante, la solicitud de pago se hará en forma separada para cada modalidad.
+6.2.4.Copia del plano catastral de la finca indicando la parte de la propiedad que se va a someter al Pago por Servicio Ambiental Hídrico.
+6.2.5.Copia tamaño carta del segmento de la hoja cartográfica a escala 1:50.000, ubicando el (los) inmueble(s), especificando las coordenadas geográficas, nombre y número de la hoja.
+6.2.6. Certificación actualizada de la personería jurídica y copia de la cédula jurídica de la sociedad u organización cuando corresponda.
+6.2.7. Constancia actualizada sobre el pago de impuestos a los bienes inmuebles, emitida por la Municipalidad donde se
+ubique el inmueble. Para cada beneficiario en proyectos individuales y globales.
+6.2.8. Constancia emitida por la Caja Costarricense de Seguro Social indicando que el beneficiario se encuentra al día en
+el pago de sus obligaciones.
+6.2.9. Autorización autenticada por abogado o Poder Especial protocolizado ante notario público en el eventual caso de que un tercero sea el que realice el trámite Para demostrar la titularidad del(os) inmueble(s) se deberá presentar lo siguiente:
+(a) Certificación literal emitida por el Registro Público de la Propiedad o por Notario Público de la inscripción de la propiedad. En está se deberá consignar las citas de inscripción, propietario(s), calidades, área total del inmueble, localización administrativa, colindancias, naturaleza e indicación expresa de los gravámenes y anotaciones.
+Cuando existan documentos anotados sobre una finca se debe adjuntar una copia del microfilm del documento anotado. En caso de varios dueños hacer referencia al derecho que le corresponde a cada uno, La certificación aportada deberá tener no más de un mes de emitida.
+(b) Si la finca presenta copropiedad se deberá presentar Poder Especial emitido por notario público en donde todos los copropietarios aceptan participar en el programa de Pago por Servicio Ambiental Hídrico. Este Poder deberá contener la delegación de la representación de los integrantes en uno de ellos, para que este realice los trámites correspondientes ante la Oficina Ambiental y la autorización para la aceptación de la declaratoria de afectación al (los) inmueble(s), misma que deberá constar como limitación explícita a inscribir en el Registro Público de la Propiedad.
+(c) Para demostrar la titularidad de la posesión, se deberá presentar certificación judicial de la existencia de sentencia en firme en el trámite de información posesoria correspondiente.

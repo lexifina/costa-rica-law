@@ -1,0 +1,6 @@
+3. Áreas mínimas y máximas.
+3.1. El área mínima de bosque a considerar para el Pago por Servicio Ambiental Hídrico, en la modalidad de conservación, será de dos hectáreas por inmueble.
+3.2. Para la modalidad de reforestación y/o regeneración natural, el área mínima será de una hectárea por inmueble.
+3.3. El área máxima para Pago por Servicio Ambiental Hídrico a proyectos de reforestación será de hasta veinte hectáreas por finca o conjunto de tincas colindantes entre sí o cercanas en un radio de un kilómetro propiedad de un mismo beneficiario.
+3.4. El área máxima para Pago por Servicio Ambiental Hídrico a proyectos de conservación y regeneración natural de] bosque será de hasta cincuenta hectáreas por finca o conjunto de tincas colindantes entre sí ü cercanas en un radio de un kilómetro propiedad de un mismo beneficiario.
+3.5. Para áreas menores a dos hectáreas, colindantes entre sí, ubicadas en los sitios prioritarios para la Empresa, que sus propietarios deseen someter al Pago por Servicio Ambiental Hídrico; podrán presentarse solicitudes globales (varios propietarios). En estos casos, el área mínima global a compensar por solicitud será de dos hectáreas y el área máxima de diez hectáreas para cada modalidad de manejo,
