@@ -1,0 +1,16 @@
+N°28213-J
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE JUSTICIA Y GRACIA
+En uso de las facultades que les confieren el articulo 140, incisos 3) y 18) de la Constitución Política,
+Considerando:
+1°—Que la Ley número 7600 Sobre Igualdad de Oportunidades para las Personas con Discapacidad, del veintinueve de mayo de mil novecientos noventa y seis, establece al Estado entre otras, la obligación de eliminar las acciones y disposiciones que directa o indirectamente, promuevan la discriminación o impidan a las personas con discapacidad tener acceso a los programas o servicios; garantizar que el entorno, los bienes, los servicios y las instalaciones de atención al público sean accesibles para que las personas los usen y disfruten; apoyar a los sectores de la sociedad y a las organizaciones de personas con discapacidad, con el fin de alcanzar la igualdad de oportunidades.
+2°—Que el Decreto Ejecutivo número 26831-MP del veintitrés de marzo de mil novecientos noventa y ocho, (Reglamento de la ley No 7600 Sobre la Igualdad de Oportunidades para las Personas con Discapacidad), dispone la obligatoriedad de que todas las Instituciones Públicas, revisen y modifiquen sus reglamentos, normativas y manuales, a efecto de que incorporen los principios y disposiciones establecidos en la Ley número 7600 del veintinueve de mayo de mil y novecientos noventa y seis, así como los contenidos en ese Reglamento.
+3°— Que la Asesoría Jurídica de la Dirección General de Servicio Civil, mediante oficio AJ-490-99, ha otorgado el visto bueno a esta normativa de conformidad con lo que dispone el articulo 13 inciso i) del Estatuto de Servicio Civil, Por tanto.
+Decretan:
+Artículo 1°— Adicionar a los artículos 7, 9 y 19 del Reglamento Autónomo de Servicio del Ministerio de Justicia y Gracia. (Decreto Ejecutivo número 26095-J del treinta de mayo de mil novecientos noventa y siete), un nuevo inciso a cada uno que dispondrán lo siguiente:
+"Articulo 7°—Sin perjuicio de lo que al efecto disponga el Estatuto de Servicio Civil y su Reglamento, la Ley General de la Administración Pública, el Código de Trabajo y demás normativa de derecho público que corresponda, son deberes de los servidores del Ministerio:...
+30. Observar fiel cumplimiento de todos los principios y disposiciones contempladas en la Ley Sobre Igualdad de Oportunidades para las Personas con Discapacidad, número 7600 de veintinueve de mayo de mil novecientos noventa y seis y su reglamento."
+"Artículo 9°—Además de lo dispuesto en los artículos 72 del Código de Trabajo, 40 del Estatuto de Servicio Civil. 51 de su Reglamento, Ley de la Administración Financiera de la República, otras normas del presente Reglamento y demás normativas que regule la materia, queda absolutamente prohibido a los servidores...
+32. Propiciar o ejecutar cualquier tipo de acción o disposición que, directa o indirectamente promueva la discriminación o impida a las personas con discapacidad tener acceso a los programas y servicios de este Ministerio".
+"Articulo 19°—Los servidores tendrán derecho a: ...
+4. Tener igualdad de oportunidades en el ámbito laboral, académico, social y cultural que ofrezca este Ministerio, aún en razón de la discapacidad de sus servidores".
