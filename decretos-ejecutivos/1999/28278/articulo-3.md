@@ -1,0 +1,1 @@
+Artículo 3°—Los propietarios de dicho inmueble se comprometen a no desarrollar ninguna actividad que ponga en peligro la existencia de la flora y fauna y darán toda la colaboración necesaria a investigadores, guardaparques e inspectores de recursos naturales del Ministerio del Ambiente y Energía, que visiten dicha área en labores oficiales a su cargo.
