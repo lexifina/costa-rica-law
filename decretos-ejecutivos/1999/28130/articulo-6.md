@@ -1,0 +1,1 @@
+Articulo 6°—Para la atención de la presente declaratoria de emergencia, se autoriza a la Comisión Nacional de Emergencia para que, mientras esté vigente esta declaratoria, realice las contrataciones de bienes y servicios necesarios de conformidad con la normativa de excepción aplicable.

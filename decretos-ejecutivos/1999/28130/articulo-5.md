@@ -1,0 +1,1 @@
+Artículo 5°—Para la atención de la presente declaratoria de emergencia, la Comisión Nacional de Emergencia podrá destinar fondos y aceptar aportes y donaciones de las Instituciones Públicas, Entidades Autónomas y Semiautónomas, Empresas del Estado, Municipalidades, así como todo otro ente u órgano público o privado, nacional o internacional.
