@@ -14,3 +14,4 @@ Reglamento del Fondo Retiro, Ahorro y Préstamo de los Trabajadores de la Caja C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-03-01 | la propia norma |
+| 2 | 1996-06-18 | Reglamento 7035 (1996-06-18) |
