@@ -1,1 +1,0 @@
-Artículo 19-Los detenidos con auto motivado de prisión no estarán obligados á trabajar, salvo que así lo quieran, en cuyo caso quedarán sujetos al pago de sus alimentos cuando el estado tenga que suplirlos.

@@ -1,1 +1,0 @@
-Artículo 4°-Corresponde asimismo á las expresadas autoridades-cuando se trate de obras nacionales, de corporaciones ó de particulares-arreglar con los respectivos funcionarios ó encargados de las obras, las condiciones y precios del trabajo de los penados y disponer lo conveniente para el oportuno cobro de salarios y para su inmediato depósito en el Tesoro Municipal.
