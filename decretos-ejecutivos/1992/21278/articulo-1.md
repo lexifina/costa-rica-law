@@ -57,6 +57,7 @@ Cables, cordajes, cuerdas, bandas trenzadas y demás artículos similares y alam
 Cadena de rodillo para piñones de acero de diferentes medidas Cadena galvanizada de diferentes tamaños y diámetros.
 Caja de controles e interruptores eléctricos de seguridad (de 12 a 14 voltios),
 Canastas plásticas y metálicas, rectangulares y redondas para el manejo del pescado o camarón.
+*Carnada que se utiliza para la captura de recursos vivos del mar con fines comerciales.
 Catalizadores.
 Cepillos de acero.
 Cerraduras de hierro y bronce para puertas.
@@ -182,3 +183,4 @@ Varilla de hierro y galvanizada.
 Vidrios.
 Voltímetros.
 Winches (sus accesorios y repuestos).
+*(Así ampliado mediante el artículo 1° del Decreto Ejecutivo No. 22227, de fecha 17 de mayo de 1993).

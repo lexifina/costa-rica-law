@@ -15,3 +15,4 @@ Reglamento para el Otorgamiento de Exoneraciones a la Actividad Pesquera Fundame
 | --- | --- | --- |
 | 1 | 1992-04-03 | la propia norma |
 | 2 | 1992-11-13 | SINALEVI (sin norma nombrada) |
+| 3 | 1993-05-17 | Decreto Ejecutivo 22227 (1993-05-17) |
