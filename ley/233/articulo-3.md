@@ -1,0 +1,1 @@
+Art 3.- Los Mineros, Ingenieros y dueños derastras, serán obligados á reintegrar anualmente a la Hacienda Pública del Estado, el valor de quinientos pesos de los estanquillos de aguardiente suprimidos por el artículo 133 de dicha Ordenanza.
