@@ -1,0 +1,1 @@
+Artículo 7°-Una vez terminado el contrato, el servidor no podrá ejercer la profesión comprometida con dicha actividad, ni actividades relacionadas con éstas o con su cargo, si no es con la Institución con quién firmó el contrato.

@@ -1,0 +1,1 @@
+Artículo 10.-Los servidores que estén acogidos al Régimen de Dedicación Exclusiva y estén gozando de un permiso con o sin goce de salario, al regresar pueden seguir devengando el pago e dichos incentivos.
