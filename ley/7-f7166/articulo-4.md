@@ -1,0 +1,1 @@
+Art. 4. El presente decreto será sometido a la deliberacion del Excelentísimo Congreso de la República en sus próximas sesiones. -Dado en la ciudad de San Jose a los catorce dias del mes de febrero de mil ochocientos cuarenta y nueve. José Maria Castro. El Ministro de relaciones y gobernación. -Joaquín Bernardo Calvo.
