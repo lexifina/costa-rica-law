@@ -1,0 +1,1 @@
+Artículo 17.—Durante los diez años posteriores al otorgamiento del crédito , el prestatario no podrá gravar, enajenar, ni arrendar la propiedad, sin la, previa autorización de la Junta Directiva, que sólo la otorgará en casos muy calificados.

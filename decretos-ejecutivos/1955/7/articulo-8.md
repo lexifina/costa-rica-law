@@ -1,0 +1,1 @@
+Articulo 8°—Iniciada la obra, el interesado podrá ir retirando las sumas correspondientes, contra presentación de planillas y facturas por compra de materiales efectivamente destinados a la vivienda. Unas y otras deberán presentarse al cobro debidamente refrendadas por el prestatario, el contratista si lo hubiere, y el fiscal que designare el Departamento de Planes y Obras.

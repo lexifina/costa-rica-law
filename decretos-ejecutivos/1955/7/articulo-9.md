@@ -1,0 +1,2 @@
+Articulo 9°—El Instituto podrá proporcionar, a solicitud del prestatario y a cuenta del crédito concedido, los materiales de construcción que tenga en existencia y que aquél necesite para la construcción de la morada. Tales materiales serán provistos al costo, el que incluirá una parte correspondiente a gastos de administración, cuyo monto en cada caso fijará la Gerencia.
+El Instituto podrá otorgar al prestatario ayuda técnica, la que le será proporcionada al costo.

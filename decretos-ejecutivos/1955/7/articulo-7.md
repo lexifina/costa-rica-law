@@ -1,0 +1,2 @@
+Artículo 7°—Una vez concedido el crédito por la Junta Directiva, con observancia del orden riguroso que deberá guardarse en la aprobación de las solicitudes, se otorgará el respectivo contrato en escritura pública, y se abrirá a favor del interesado un crédito hasta por el monto del préstamo en referencia.
+Si, en el transcurso de dos meses de concedido el préstamo, el interesado no formalizare el negociado ni iniciare la construcción, se tendrá por caduco el préstamo, sin responsabilidad alguna para el Instituto.

@@ -1,0 +1,2 @@
+Artículo 21.—Caso de incumplimiento por parte del interesado, de cualquiera de las estipulaciones consignadas en este Reglamento o en el contrato respectivo, el Instituto podrá considerar vencida y exigible la obligación, pudiendo, en consecuencia, proceder al cobro judicial de la misma con daños y perjuicios, si fuere del caso, sin necesidad de requerimiento alguno.
+La falta de pago de una mensualidad vencida tendrá las mismas consecuencias señaladas en el párrafo anterior.

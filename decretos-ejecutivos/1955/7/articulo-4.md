@@ -1,0 +1,1 @@
+Articulo 4°—En el otorgamiento de préstamos se dará preferencia a los solicitantes que. habiendo demostrado su mayor necesidad social de vivienda, ofrezcan mejor garantía personal y real a la Institución.

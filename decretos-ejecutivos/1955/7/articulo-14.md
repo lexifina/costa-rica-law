@@ -1,0 +1,1 @@
+Articulo 14.—La Institución se reserva el derecho de inspeccionar las casas, mientras no se haya cancelado la garantía hipotecaria y podrá exigir que se reparen los daños causados en las viviendas, por la acción del tiempo o por otros motivos.

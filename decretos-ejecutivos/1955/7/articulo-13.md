@@ -1,0 +1,1 @@
+Artículo 13.—El terreno, la construcción que se haga y demás mejoras, quedarán hipotecados a favor del Instituto, por suma igual al monto del préstamo. El interesado deberá mantener asegurada contra incendio la propiedad, el monto que indique el Instituto, así como estar al día en el pago de los impuestos.

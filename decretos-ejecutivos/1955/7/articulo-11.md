@@ -1,0 +1,1 @@
+Artículo 11.—Si de la fiscalización contemplada en este Reglamento resultaren divergencias, el interesado podrá dirigirse por escrito a la Gerencia y, en última instancia, apelar ante la Junta Directiva.
