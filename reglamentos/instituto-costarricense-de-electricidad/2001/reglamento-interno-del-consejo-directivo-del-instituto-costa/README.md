@@ -14,3 +14,4 @@ Reglamento Interno del Consejo Directivo del Instituto Costarricense de Electric
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-05 | la propia norma |
+| 2 | 2003-08-05 | Reglamento 5538 (2003-08-05) |
