@@ -1,0 +1,73 @@
+ARTICULO II
+Todo Miembro que ratifique el presente Convenio se compromete:
+a) A promulgar una legislación que prevea para los buques matriculados
+en su territorio:
+i) Normas de seguridad, incluidas normas de capacidad de la
+tripulación, horas de trabajo y dotación, a fin de garantizar la
+seguridad de la vida humana a bordo de los buques;
+ii) Un régimen apropiado de seguridad social; y
+iii) Condiciones de empleo y de vida a bordo, en la medida en que,
+a su juicio, no sean objeto de contratos colectivos o no sean
+determinadas por los tribunales competentes mediante decisiones
+igualmente obligatorias para los armadores y la gente de mar, y
+a verificar que las disposiciones de dicha legislación son en
+substancia equivalentes a los convenios o a los artículos de los
+mismos enumerados en el anexo de este Convenio, en la medida en
+que el Estado Miembro no esté obligado por otro concepto a dar
+efecto de estos convenios.
+b) A ejercer una jurisdicción o control efectivos sobre los buques
+matriculados en su territorio respecto de:
+i) Normas de seguridad, incluidas normas en materia de capacidad
+de la tripulación, horas de trabajo a bordo y dotación
+prescritas por la legislación nacional;
+ii) La aplicación del régimen de seguridad social prescrito por la
+legislación nacional; y
+iii) Las condiciones de empleo y de vida a bordo prescritas por la
+legislación nacional o determinadas por los tribunales
+competentes mediante decisiones igualmente obligatorias para los
+armadores y la gente de mar.
+c) A comprobar que existen medidas de control efectivo de aquellas otras
+condiciones de empleo y de vida a bordo sobre los cuales no tiene una
+jurisdicción efectiva, según procedimientos establecidos por acuerdo entre
+los armadores o sus organizaciones y las organizaciones de gente de mar,
+constituidas de conformidad con las disposiciones esenciales del Convenio
+sobre la libertad sindical y la protección del derecho de sindicación,
+1948, y del Convenio sobre el derecho de sindicación y de negociación
+colectiva, 1949;
+d) A asegurar:
+i) Que existan procedimientos adecuados - subordinados a la
+supervisión general de la autoridad competente, previa consulta
+tripartita entre esta autoridad y las organizaciones
+representativas de armadores y de la gente de mar en los casos
+apropiados - para el enrolamiento de la gente de mar en los
+buques matriculados en su territorio y para el examen de las
+quejas que se presenten a este respecto;
+ii) Que existan procedimientos adecuados - subordinados a la
+supervisión general de la autoridad competente, previa consulta
+tripartita en los casos apropiados entre esta autoridad y las
+organizaciones representativas de armadores y de la gente de mar
+- para el examen de toda queja relativa al enrolamiento, y en lo
+posible formulada en el momento del mismo, en su territorio, de
+gente de mar de su propia nacionalidad en buques matriculados en
+un país extranjero y para que tales quejas, así como toda queja
+relativa al enrolamiento, y en lo posible formulada en el
+momento del mismo, en su territorio, de gente de mar extranjera
+en buques matriculados en un país extranjero, sean transmitidas
+rápidamente por la autoridad competente a la autoridad
+competente del país en el que está matriculado el buque,
+con copia al Director de la Oficina Internacional del Trabajo.
+e) A asegurar que la gente de mar enrolada en buques matriculados en su
+territorio posee la calificación o la formación adecuada para realizar las
+tareas para las que ha sido contratada, teniendo debidamente en cuenta lo
+dispuesto en la Recomendación sobre la formación profesional (gente de
+mar), 1970;
+f) A verificar mediante inspección u otras medidas apropiadas que los
+buques matriculados en su territorio cumplen con los convenios
+internacionales del trabajo en vigor que haya ratificado, con la
+legislación prevista en el apartado a) del presente artículo y, según sea
+apropiado con arreglo a la legislación nacional, con los contratos
+colectivos; y
+g) A llevar a cabo una encuesta oficial en cada caso de accidente grave
+en el que se vean implicados buques matriculados en su territorio,
+particularmente cuando haya habido heridos o pérdida de vidas humanas; el
+informe final de dicha encuesta debería normalmente hacerse público.
