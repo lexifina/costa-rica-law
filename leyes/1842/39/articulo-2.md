@@ -1,0 +1,1 @@
+Art. 2. La carga delicada está sujeta en su trasporte á la convención, según sea el artículo ó efecto en que consista su delicadeza, volúmen y peso. Se considera que es carga delicada, cuando el dueño de ella lo manifieste así, haciendo las prevenciones de la fracción 3° artículo 5° del citado decreto de 8 del corriente.
