@@ -9,6 +9,8 @@ Considerando:
 4°—Que esta situación sólo se presenta en las Reservas de Boruca-Térraba y de Talamanca.
 Por tanto,
 DECRETAN:
-Artículo 1°—Divídase la Reserva Indígena de Boruca-Térraba, decretada y delimitada por el decreto N° 34, "La Gaceta" N° 3 del 5 de enero de 1957, en dos reservas distintas, con los nombres oficiales de: ,
-1. Reserva Indígena de Boruca.
-2. Reserva Indígena de Térraba.
+Artículo 1°—Divídase la Reserva Indígena de Boruca-Térraba, decretada y delimitada por el decreto No 34, en "La Gaceta" N° 3 de 5 de enero de 1957, en tres reservas distintas con los nombres oficiales de:
+1. Reserva Indígena Brunka de Boruca.
+2. Reserva Indígena Brunka de Curré.
+3. Reserva Indígena de Térraba.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 16570 del 25 de setiembre de 1985).

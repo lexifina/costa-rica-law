@@ -15,3 +15,4 @@ Divide Reserva Indígena de Boruca-Térraba en las Reservas Indígenas Boruca y 
 | --- | --- | --- |
 | 1 | 1982-05-17 | la propia norma |
 | 2 | 1985-05-16 | Decreto Ejecutivo 16306 (1985-05-16) |
+| 3 | 1985-09-25 | Decreto Ejecutivo 16570 (1985-09-25) |
