@@ -1,0 +1,113 @@
+Artículo 18.- Son atribuciones de las Direcciones Generales dentro de
+sus respectivas órbitas de acción:
+1º.-Confeccionar el Presupuesto anual y someterlo al Ministro de
+Educación para su estudio y aprobación, dentro de los plazos fijados por
+las leyes y disposiciones de la Hacienda Pública.
+2º.-Proponer la creación de secciones o departamentos para la mejor
+atención del Servicio en conformidad a las exigencias que su crecimiento
+y necesidades reclamen.
+3º.-Planificar y proponer al Ministro de Educación o elaborar a
+propuesta del mismo, todo lo relacionado con la creación de nuevos
+institutos de su dependencia: estatutos orgánicos y planes de estudios,
+locales, dotaciones, personal, presupuestos, etc.
+4º.-Elaborar los planes de edificación escolar, proponer los puntos
+en que deban ubicarse las construcciones, planificar dichos edificios y
+pronunciarse sobre los planos definitivos, sea que su ejecución corra de
+cuenta del Estado, de las Juntas u otros organismos oficiales,
+semi-oficiales o particulares.
+5º.-Fijar las condiciones que deben reunir los locales particulares
+que el Estado tome en arrendamiento para el funcionamiento de los
+establecimientos educacionales o que sean ofrecidos gratuitamente por
+particulares.
+6º.-Informar sobre las cesiones, donaciones y asignaciones
+testamentarias de bienes muebles o inmuebles que se hagan al Estado para
+fines de establecer establecimientos educacionales.
+7º.-Informar sobre los ofrecimientos de venta de terrenos o edificios
+para el funcionamiento de establecimientos educacionales, en conformidad
+a lo establecido por el reglamento de locales.
+8º.-Proponer al Ministro los ascensos, descensos de categoría u
+orden, los traslados o reubicación, la creación y ubicación de los
+planteles de su dependencia.
+9º.-Elaborar los proyectos de reglamento que deban regir el Servicio
+y dictar las disposiciones interpretativas que ellos requieran.
+10.-Proponer los nombramientos, traslados, ascensos jerárquicos,
+permutas, licencias, pensiones, comisiones de servicio y demás movimientos
+del personal en conformidad a las disposiciones que rijan sobre la
+materia.
+11.-Presentar al Ministro de Educación las listas de admisión y
+eliminación del Servicio en conformidad con las disposiciones que fijen
+las leyes y reglamentos que lo rijan o con reglas especiales que se
+dicten.
+12.-Informar sobre el tipo, calidad y cantidad, condiciones
+higiénico-pedagógicas del material didáctico, mobiliario, dotaciones de
+talleres, equipos y herramientas, libros y textos que el Ministerio deba
+adquirir para los establecimientos educacionales o que sean ofrecidos por
+empresas o particulares para el uso de las escuelas y colegios.
+13.-Autorizar y controlar el reparto de dicho material.
+14.-Orientar técnicamente al personal sobre finalidades y contenidos
+programáticos y coprogramáticos, métodos, técnicas y procedimientos,
+organización y planes de trabajo, etc.; impartir las instrucciones para
+que se pongan en práctica, fiscalizar y controlar su aplicación y evaluar
+los resultados en las escuelas y colegios.
+15.-Dirigir, orientar y fomentar la experimentación pedagógica.
+16.-Estimular las investigaciones psicotécnicas y las relativas a los
+problemas educacionales, culturales, profesionales, económico-sociales,
+etc., del país.
+17.-Corresponde a la Dirección de Educación Secundaria mientras la
+ley no disponga lo contrario, verificar los exámenes de bachillerato y
+designar delegado para el Tribunal Examinador en las pruebas para la
+obtención del título de Profesor de Estado y resolver lo correspondiente
+en vista del informe que presente el mismo Tribunal.
+18.-Corresponde a la Dirección General de Educación Pre-Escolar y
+Primaria otorgar por sí o por los Directores provinciales o Inspectores
+escolares el Certificado de término de estudios primarios completos.
+19.- Fijar las normas por las cuales deben regirse los servicios
+asistenciales, las actividades culturales y la acción social de los
+establecimientos educacionales dependientes.
+20.- Ejercer sobre el educador estímulos permanentes que le ayuden a
+mantener activa su capacidad de estudio y rendimiento profesional y de
+adaptación a los cambios de organización del sistema educativo y a los
+avances de las ciencias educacionales; ofrecer oportunidades para que los
+educadores más capaces lleguen a ser investigadores de los problemas que
+presenta la educación; efectuar toda clase de reuniones del personal para
+tratar problemas y asuntos del Servicio; organizar centros de cooperación
+pedagógica, cursos e institutos de perfeccionamiento, grupos de estudio,
+seminarios y congresos; proponer la fundación de editoriales y
+bibliotecas; proponer el envío de educadores a perfeccionar estudios en el
+extranjero; estimular la publicación de obras y textos de enseñanza
+escritos por los educadores y cualquier otro tipo de iniciativas que
+favorezca el perfeccionamiento y la cultura de éstos; controlar los
+resultados y abonar los créditos cuando así lo determinen las leyes,
+reglamentos o normas especiales del Servicio.
+21.- Los Directores Generales podrán reunir a su personal y hacerse
+asesorar por comisiones cuando así lo estimen conveniente.
+22.- Hacer, previo concurso, las listas de profesores o maestros que
+deben salir a estudiar al extranjero autorizados o becados por el Estado.
+23.- Asignar las becas que el Estado confiera para estudiar en el
+país o en el extranjero, controlar los resultados obtenidos por los
+becarios y establecer su conformidad o inconformidad con lo establecido en
+el reglamento respectivo para los efectos de mantenerlas o no en la misma
+persona.
+24.- Controlar las asignaciones a la enseñanza o instituciones
+particulares; vigilar que ellas se inviertan en el fin que son otorgadas
+y, en caso contrario, restituirlas al fondo común del presupuesto
+correspondiente.
+25.- Controlar la enseñanza particular conforme a lo dispuesto en las
+leyes y reglamentos de la República.
+26.- Controlar las secciones, organismos y empleados dependientes de
+las respectivas Direcciones Generales.
+27.- Supervigilar el cumplimiento de los deberes y atribuciones de
+las instituciones oficiales o semi-oficiales que intervengan en la
+educación y que la ley establezca bajo la tuición del Ministerio de
+Educación, como organismos colaboradores de las distintas ramas
+educacionales: Patronatos, Juntas de Educación, Juntas Administrativas,
+Centros de Padres y Vecinos, etc.
+28.- Realizar los trabajos que le encomiende el Ministerio en
+relación con sus funciones específicas.
+29.- Integra la Junta Calificadora del Personal Docente y
+Administrativo dependiente del Ministerio y de sus organismos
+administrativos y técnicos: Direcciones Generales, Departamento
+Administrativo, Liceos, Colegios y Escuelas, etc., en la forma que lo
+determinen las leyes de la República.
+30.- Presentar la memoria anual de sus servicios.
+31.- Colaborar con la Dirección General de Estadística.

@@ -1,0 +1,3 @@
+Artículo 54.- El personal que integre las distintas dependencias del
+Ministerio gozará de todos los beneficios que consulten las leyes
+económico-sociales que asisten al personal docente de la República.

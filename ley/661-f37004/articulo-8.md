@@ -1,0 +1,7 @@
+Artículo 8º.- El Jefe del Departamento de Presupuesto y Contaduría
+deberá objetar por escrito toda orden que reciba del Ministro o de otros
+Jefes dependientes del Ministerio que contravengan las disposiciones
+legales existentes sobre inversión de fondos. Sólo por orden escrita del
+Ministro cumplirá dichas órdenes y en tal caso deberá dar cuenta a la
+Oficina de Hacienda que completa, con lo cual quedará sentada su
+responsabilidad.
