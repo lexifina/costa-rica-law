@@ -1,0 +1,1 @@
+Artículo 2°.- La estimación de la faja de terreno incluyendo posibles daños es de ¢ 1.918.25 ( un mil novecientos dieciocho colones, veinticinco céntimos) que corresponden al total de la suma a pagar de conformidad con la resolución N| 385 “A” de las diez horas, treinta minutos del veintinueve de octubre del mil novecientos setenta, del Tribunal Administrativo.
