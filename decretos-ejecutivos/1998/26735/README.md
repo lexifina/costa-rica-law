@@ -14,3 +14,4 @@ Declara de Interés Público las Acciones del Poder Ejecutivo para Reestablecer 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-01-30 | la propia norma |
+| 2 | 1998-01-30 | Ley 8 |
