@@ -1,7 +1,3 @@
-Artículo 5°.-Los reclusos que trabajaren en obras nacionales o municipales, así dentro como fuera de su cárcel o presidio, que hicieren labor útil, que observaren buena conducta y no trataren de fugarse, serán acreedores a benignidad en el abono de la prisión sufrida o en el descuento de su pena impuesta, con arreglo a las equivalencias que siguen:
-Cada día de trabajo, equivale a 1/4 de día de deportación;
-1/3 de día de presidio en San Lucas;
-1/2 de presidio interior;
-1 de reclusión o inhabilitación;
-1 1/2 de extrañamiento, confinamiento, destierro y suspensión; y a
-2 de prisión, detención o arresto.
+Artículo 5°.Los reclusos que trabajaren en obras nacionales o municipales, fuera de su cárcel o presidio, que hicieren labor útil, que observen buena conducta y no traten de fugarse, serán acreedores a la benignidad en el abono a la presión sufrida por el descuento de su pena impuesta, con arreglo a las equivalencias que siguen.
+Cada día de trabajo de un reo fuera de presidio o cárcel equivaldrá, para los efectos de su compurgación de su condena, a ocho horas de presidio interior menor, a doce horas de reclusión menor o inhabilitación, a dieciocho de extrañamiento, a veinticuatro horas de confinamiento, destierro o suspensión y a cuarenta y ocho horas de arresto o prisión o detención.
+(Así reformado por el artículo 6° de la ley N° 14 del 31 de agosto de 1917, "Traslada presidio de San Lucas a la del Caño")
