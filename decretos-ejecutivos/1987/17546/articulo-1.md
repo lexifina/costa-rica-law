@@ -9,4 +9,5 @@ Considerando:
 3°-Que es de conveniencia nacional y conforme con los objetivos establecidos en el Programa Agropecuario. el establecer un organismo que estudie, analice, proponga y que llegue a recomendar políticas tendientes a solucionar, en los campos de la producción, transporte, almacenamiento, comercialización e industrialización.
 Por tanto,
 DECRETAN
-Artículo 1°-Créase la Comisión Nacional de la Papa, adscrita al Ministerio de Agricultura y Ganadería.
+Artículo 1°-Créase la Comisión Nacional de la Papa como la instancia encargada de ejecutar los fines y objetivos establecidos en el presente Decreto.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 25582 del 14 de octubre de 1996).
