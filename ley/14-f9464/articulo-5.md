@@ -1,0 +1,1 @@
+Art 5.- Los electos y designados para la clase se hallarán en esta Ciudad el día primero del entrante, que se señala para la apertura de la misma clase, y serán dirigidos al Gobierno, que cuidará de ellos durante su permanencia en este lugar, y los axiliará con cuanto necesiten.
