@@ -1,0 +1,2 @@
+Art. 2°—Para que tenga lugar la extensión expresada en el artículo anterior, es menester que la fecha del embarque conste por certificación consular, y que se exhiban en la Secretaría de Hacienda los comprobantes correspondientes.
+Dado en la ciudad de San José, en el Palacio Presidencial, á los trece días del mes de enero de mil ochocientos ochenta y seis.—BERNARDO SOTO.—El Secretario de Estado en el Despacho de Hacienda y Comercio.—MAURO FERNÁNDEZ.
