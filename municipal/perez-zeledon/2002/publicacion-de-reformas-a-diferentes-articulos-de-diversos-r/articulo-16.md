@@ -1,0 +1,1 @@
+Artículo 16.—Elimínese del inciso g), del artículo 9º, la frase "Además deberá contar con un Libro de Registro y el Rol de Pasajeros autorizado por la Dirección General de Migración y Extranjería y el Recibo de pago del impuesto del ICT".

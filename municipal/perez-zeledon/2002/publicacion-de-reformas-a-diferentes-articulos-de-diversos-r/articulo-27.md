@@ -1,0 +1,2 @@
+Artículo 27.—Elimínese el último párrafo del artículo 22 y agréguese el siguiente:
+"Una vez determinado el puntaje obtenido por la actividad se procederá a evaluar el monto resultante basado en la tabla de tarifas genéricas del artículo 15 de la Ley de Patentes. Si se confirma que el monto obtenido es excesivo en comparación al cancelado por otras actividades similares ubicadas en la misma zona; el monto calculado podrá ser revaluado, con la finalidad de cumplir con el principio de la justicia tributaria".

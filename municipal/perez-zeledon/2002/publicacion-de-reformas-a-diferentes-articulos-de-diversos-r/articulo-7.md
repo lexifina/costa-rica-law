@@ -1,0 +1,1 @@
+Artículo 7º—Elimínese del inciso c) del artículo 7º, la siguiente frase: "de acuerdo con el artículo 38 de este Reglamento", y agréguese en su lugar la frase "de acuerdo con el artículo 81 bis del Código Municipal".

@@ -1,0 +1,1 @@
+Artículo 2º—Modifíquese la frase "sin embargo podrá ampliarse el plazo a cuarenta y cinco días si existe un arreglo de pago presentado, para que concrete el mismo", que se expresa en el párrafo 4 del artículo 7º; por la frase "sin embargo podrá ampliarse el plazo basados en condiciones motivadas valoradas por la Unidad Administrativa".

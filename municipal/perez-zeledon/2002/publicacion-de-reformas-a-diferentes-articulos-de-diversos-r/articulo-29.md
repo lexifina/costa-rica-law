@@ -1,0 +1,1 @@
+Artículo 29.—Modifíquese la frase "…de los lugares señalados en el artículo 9 de este Reglamento", encontrada en el tercer párrafo del artículo 30 del, por la correcta, la cual es "…de los lugares señalados en el artículo 9º del Reglamento a la Ley de Licores".

@@ -1,0 +1,2 @@
+Artículo 9º—Adiciónese el inciso h), al artículo 7º, para que se lea:
+"h) Si el local comercial es alquilado se deberá presentar el original y copia del contrato de arrendamiento. De igual manera si la propiedad es prestada, se podrá presentar adicionalmente a la escritura y plano catastrado (o como mínimo uno), una nota firmada por el dueño de la propiedad en donde indica su conformidad de prestarle la propiedad"

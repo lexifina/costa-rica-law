@@ -1,0 +1,2 @@
+Artículo 20.—Adiciónese el inciso p) al artículo 9, para que se lea:
+"p) Para el funcionamiento de la actividad de Café Internet se deberá presentar adicionalmente un plan en el cual se indique la distribución de los monitores de tal modo que diferencien espacios para personas menores de edad y para personas mayores de dieciocho años. A su vez se deberá crear un software o cualquier otro medio adecuado sobre el servidor principal o cada terminal, con el objetivo de que se impida el acceso a las páginas web con exhibición de pornografía a los menores de edad."
