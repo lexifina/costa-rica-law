@@ -1,0 +1,1 @@
+Art. 3. El Gobierno á propuesta en terna del Consejo nombrará estos empleados, atendiendo el mérito de los que hayan servido con exactitud y honradez, mas para librárseles sus Despachos, deben rendir previamente la fianza que está prevenida á los de la Tesorería.

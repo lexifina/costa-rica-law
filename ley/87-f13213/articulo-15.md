@@ -1,0 +1,1 @@
+Art. 15. Las comunicaciones que LaCom andancia y resguardo dirijan á la Administración con los manifiestos que se presentan ó cualesquiera otras que sean, lo harán con expresos de los mismos soldados de la guarnición, gratificándose á estos por viaje, con una tercera parte del prest mensual sobre el que ganan.
