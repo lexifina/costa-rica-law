@@ -1,0 +1,1 @@
+Artículo 43.-Los fondos que se incluyan en los presupuestos ordinario y Extraordinario de la República para asilos de ancianos, serán distribuidos equitativamente entre los asilos del país, de acuerdo con le número de camas y con las necesidades de cada uno de ellos,

@@ -1,0 +1,1 @@
+Artículo 33.-Se autoriza al Registro Nacional para regularizar la situación laboral de aquellos funcionarios que trabajan en esa institución, de conformidad con el decreto de emergencia número 16697-J.

@@ -1,0 +1,1 @@
+Artículo 20.-Previa certificación de la Contabilidad Nacional, el sobrante del monto asignado a la red de frío en el Código 09-038, Depósitos Diversos, y la partida que se consigna en el presente presupuesto a la Corporación Nacional de Zonas Francas, se girarán directamente a ésta, a fin de atender la administración del programa de la red de frío.

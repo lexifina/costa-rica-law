@@ -1,0 +1,2 @@
+Artículo 41.-El salario de los miembros de los Supremos Poderes, Magistrados del Tribunal Supremo de Elecciones, Contralor y Subcontralor, será de ¢ 70.000,00 mensuales a partir del 1º de mayo de 1986. Las correspondientes leyes que tengan como base la fijación de los salarios se ajustarán a esta disposición para que los sueldos de estos funcionarios se incrementen en la proporción dicha.
+El Ministerio de Hacienda, mediante decreto ejecutivo, hará los ajustes correspondientes.

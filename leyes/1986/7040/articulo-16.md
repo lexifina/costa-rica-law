@@ -1,0 +1,1 @@
+Artículo 16.-El Ministerio de Hacienda, por medio de decreto ejecutivo, incorporará al presupuesto vigente, previa certificación de la Contabilidad Nacional, los saldos no utilizados de la partida 30-024, Depósitos Diversos, a fin de cubrir los faltantes que se generen en el servicio de la deuda pública.

@@ -1,0 +1,2 @@
+(*)Artículo 49.-Para los efectos presupuestarios y laborales, los periodistas que hayan laborado para otros entes públicos y privados y que actualmente presten servicios al Estado o a sus instituciones, tendrán derecho al reconocimiento de todas las anualidades correspondientes. Los años de servicio serán certificados por el Colegio de Periodistas de Costa Rica. Déjase sin efecto cualquier disposición legal o presupuestaria en sentido contrario.
+*(Anulado por Resolución de la Sala Constitucional N° 13782-2004 de las 14:53 hrs. del 1/12/2004)

@@ -1,0 +1,1 @@
+Artículo 61.-La Dirección General de Asignaciones Familiares girará la partida indicada en el artículo 172 del Presupuesto Ordinario para 1985, a la Asociación Junta Progresista de Barrio Luján, para compra de terreno para ubicar un centro infantil de atención integral.

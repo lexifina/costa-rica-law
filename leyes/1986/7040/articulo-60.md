@@ -1,0 +1,1 @@
+Artículo 60.-Los oficiales mayores de los ministerios del Estado tendrán derecho a los porcentajes que se establecen en la ley número 5867 y sus reformas sobre la prohibición del ejercicio profesional.

@@ -1,0 +1,1 @@
+Artículo 62.-La Contraloría General de la República no aprobará ninguna modificación de presupuesto al IMAS, hasta tanto éste no haya efectuado la compra del inmueble que ocupan los precaristas en Sagrada Familia, distrito de Hatillo.

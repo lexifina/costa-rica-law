@@ -1,0 +1,1 @@
+Artículo 38.- (La Corte Suprema de Justicia, mediante resolución de las 10:00 horas del 25 de setiembre de 1987 (expediente N° 94-87, promovido por el Instituto de Desarrollo Agrario) declaró que el aparte 10 de este artículo es inaplicable, en tanto se opone a los artículos 188 y 189, inciso 3°, 176 a 180; 121 incisos 1° y 11; y 123 a 128 de la Constitución Política.)
