@@ -1,0 +1,1 @@
+Artículo 2°—Organización. La gestión del Registro Nacional de Valores e Intermediarios estará a cargo de la Superintendencia General de Valores, por medio de un departamento especializado, el cual será el encargado de velar por la pronta inscripción de las personas, actos e información que deba mantenerse en él de conformidad con este Reglamento.
