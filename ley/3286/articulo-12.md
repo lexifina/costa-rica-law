@@ -1,0 +1,1 @@
+Artículo 12.- El nombramiento de los nuevos miembros deberá hacerse dentro de los treinta días anteriores al vencimiento el período respectivo. La Junta deberá avisar oportunamente al Consejo de Gobierno sobre ese vencimiento.

@@ -1,0 +1,1 @@
+Artículo 38.- Las autoridades del país, están obligadas a suministrar cualquier informe y a prestar la colaboración que el Patronato les solicite, en relación con la defensa legal y protección del menor de edad.
