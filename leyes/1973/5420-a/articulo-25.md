@@ -1,0 +1,1 @@
+Artículo 25.- Los beneficios que en virtud de este decreto se otorgan a "Cementos del Pacífico, Sociedad Anónima" podrán ser modificados, regulados o prorrogados en virtud de convenios, protocolos, acuerdos y resoluciones de los organismos del Tratado General de Integración Económica Centroamericana.

@@ -1,0 +1,1 @@
+Artículo 18.- La Empresa debe manifestar en escritura pública, su aceptación a las obligaciones que este decreto le impone; copia de esa manifestación debidamente autenticada, deberá depositarla en el Ministerio de Economía, Industria y Comercio, dentro de los diez días siguientes a la fecha en que vence el plazo señalado en el artículo anterior para depositar la garantía.

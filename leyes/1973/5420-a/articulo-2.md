@@ -1,0 +1,1 @@
+Artículo 2º.- El Estado garantiza a "Cementos del Pacífico, Sociedad Anónima", que durante el término de vigencia de este decreto no se le impondrán impuestos nacionales o municipales discriminatorios.

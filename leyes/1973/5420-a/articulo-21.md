@@ -1,0 +1,1 @@
+Artículo 21.- La falta de cumplimiento de las obligaciones que se especifican en los artículos 17 y 18 de este decreto, dentro de los plazos en que los mismos se han fijado, se tendrá por renuncia irrevocable del Empresario de los beneficios u obligaciones que se especifican en este decreto, el cual por ese hecho quedará caduco.
