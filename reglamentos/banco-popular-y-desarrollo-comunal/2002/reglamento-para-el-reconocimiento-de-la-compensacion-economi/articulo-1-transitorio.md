@@ -1,0 +1,1 @@
+Transitorio único: Este Reglamento se aplicará a los funcionarios del Banco Popular cubiertos por la modalidad de pago de Salario Único, a partir del momento en que la Contraloría General de la República apruebe la partida presupuestaria correspondiente."

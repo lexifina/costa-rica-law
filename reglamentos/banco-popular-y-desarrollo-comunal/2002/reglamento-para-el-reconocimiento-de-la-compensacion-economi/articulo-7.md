@@ -1,0 +1,5 @@
+CAPÍTULO II
+Procedimiento para solicitar la compensación
+económica por concepto de disponibilidad
+Artículo 7º—Cuando el servicio lo amerite y se requiera un funcionario con disponibilidad, el jefe inmediato del trabajador deberá presentarle al Director del Macroproceso respectivo, una justificación en la cual se describa la naturaleza del puesto que requiere este rubro, tomando en cuenta la importancia y especialidad de la labor realizada, las implicaciones y consecuencias que se podrían derivar de la ausencia del cumplimiento de esta función, la imposibilidad de sustituir oportunamente al funcionario encargado y la frecuencia con que las eventuales emergencias pueden presentarse, incluyendo estadísticas y datos de los eventos presentados en el último año.
+Esta justificación deberá contar con el visto bueno del Director del Macroproceso correspondiente, el cual lo elevará al Coordinador del Proceso de Desarrollo Humano, quien decidirá, mediante resolución razonada, si aprueba o no la solicitud, y de ser necesario se pedirá un criterio técnico al área respectiva.
