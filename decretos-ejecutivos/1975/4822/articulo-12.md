@@ -1,0 +1,1 @@
+Artículo 12.-EI profesor seleccionará, de acuerdo con la materia y las condiciones particulares de los alumnos, un número no menor de tres asignaciones de distinto tipo. Cada tipo de asignación puede comprender varias realizaciones.

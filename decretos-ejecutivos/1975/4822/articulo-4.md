@@ -1,0 +1,1 @@
+Artículo 4°-En la Rama Técnica, se considera requisito para cursar el undécimo y duodécimo años, la aprobación de todas las asignaturas del Núcleo Común y del Núcleo de Tecnología del décimo año y del undécimo año, respectivamente.

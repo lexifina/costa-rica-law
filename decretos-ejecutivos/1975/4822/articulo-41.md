@@ -1,0 +1,1 @@
+Artículo 41.-Las medidas disciplinarias que se aplicarán a los estudiantes de este ciclo, son las establecidas en los artículos 57, 58, 59 y 60 del Capítulo XI del Reglamento General de Evaluación y Normas de Promoción de la Educación General Básica.
