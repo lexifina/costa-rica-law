@@ -1,1 +1,3 @@
 Artículo 66.- Al extenderse la escritura matriz en el protocolo, se escribirá en el centro únicamente, sin ocupar los márgenes que hay a cada lado de las hojas del protocolo, y se comenzará poniendo, en letras, el número que le corresponda a la escritura; a continuación irá ésta sin dejar blanco alguno desde el número hasta la firma del Notario.
+Estas escrituras podrán tener cuadro o casilla en el ángulo superior izquierdo, ahí podrán usarse abreviaturas y cifras para indicar cantidades, números y fecha.
+(Así adicionado el párrafo anterior por el artículo 19 de la Ley sobre Requisitos Fiscales en Documentos Relativos a Actos o Contratos, N° 6575 de 27 de abril de 1981)
