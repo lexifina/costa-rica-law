@@ -1,0 +1,1 @@
+Art 4°.- Las gratificaciones serán de ocho pesos por cada mil matas de las que se destrozen, cuando se presente el dueño, o que dados indicios por el resguardo o denunciante, se acredite judicialmente; y dos pesos cuando no aparezca de alguna manera. Todos serán partibles entre el resguardo y denunciante si lo hubiere.

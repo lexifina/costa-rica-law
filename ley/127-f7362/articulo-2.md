@@ -1,0 +1,1 @@
+Art 2°.- Igual castigo sufrirá el dueño del terreno en donde se encuentre la siembra, si fuere pequeño y no acreditare no tener noticia directa o indirectamente. Si fuese muy extenso y se probase que fue consentidor, llevará el mismo castigo.
