@@ -1,0 +1,1 @@
+Artículo 7°—Los intereses de los préstamos deberán ser pagados por trimestres adelantados. La falta de pago de un trimestre de intereses producirá el vencimiento de toda la deuda y dará derecho al Banco para exigir el pago total de lo adeudado.

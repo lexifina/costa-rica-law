@@ -1,0 +1,1 @@
+Artículo 5°—En los préstamos con garantía de prenda industrial deberá asegurarse contra incendio por el principal de la deuda la maquinaria pignorada, salvo que por ser remoto el peligro de siniestro, fuera innecesario o bastara una suma menor, todo a juicio del banco.
