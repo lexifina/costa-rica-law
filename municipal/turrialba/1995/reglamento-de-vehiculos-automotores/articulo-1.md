@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE TURRIALBA
+REGLAMENTO DE VEHÍCULOS AUTOMOTORES
+Artículo 1°—Se emite el presente Reglamento para uso de los vehículos propiedad de la Municipalidad de Turrialba. Se establece la responsabilidad y deberes de todas las personas que solicitan y laboran en la prestación de los servicios de transporte en vehículos automotores. Y el procedimiento a seguir en todo lo relativo a solicitud de vehículos, combustibles, reparaciones, lubricantes y demás partes del sistema del vehículo.

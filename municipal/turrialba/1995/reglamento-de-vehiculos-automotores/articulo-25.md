@@ -1,0 +1,1 @@
+Artículo 25.—Las disposiciones contenidas en el presente reglamento son aplicables a todos los funcionarios que en razón de sus cargos, usen controles y administren los recursos de transporte de la Municipalidad , incluidos el Ejecutivo y los miembros del Concejo.
