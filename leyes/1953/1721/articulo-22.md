@@ -1,0 +1,2 @@
+Artículo 22.- Como organismo permanente encargado de asesorar a la Gerencia y a la Junta Directiva en los problemas de carácter técnico, administrativo y laboral del Instituto, existirá un Consejo Consultivo, formado por el Gerente, el Auditor, los Jefes de Departamento, un Representante de la Junta Directiva, que nombrará ésta, y un delegado de los trabajadores del Instituto, cuyo nombramiento corresponderá al sindicato que tenga mayor número de afiliados inscritos.
+( Así reformado por el artículo 2º de la Ley Nº 4964 de 21 de marzo de 1972).
