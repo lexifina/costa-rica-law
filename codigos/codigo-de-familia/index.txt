@@ -97,6 +97,7 @@ articulo-95.md
 articulo-96.md
 articulo-97.md
 articulo-98.md
+articulo-98-bis.md
 articulo-99.md
 articulo-100.md
 articulo-101.md
@@ -246,4 +247,3 @@ articulo-243.md
 articulo-244.md
 articulo-245.md
 articulo-246.md
-articulo-98-bis.md

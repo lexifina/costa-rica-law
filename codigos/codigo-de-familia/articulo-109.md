@@ -1,19 +1,9 @@
 ARTICULO 109.- Personas adoptables.
 La adopción procederá en favor de:
-a) Las personas menores de edad declaradas judicialmente en estado de
-abandono, excepto cuando un cónyuge adopte a los hijos menores del otro,
-siempre y cuando el cónyuge con quien viven los menores ejerza, en forma
-exclusiva, la patria potestad.
-b) Las personas mayores de edad que hayan convivido con los
-adoptantes, por un tiempo no menor de seis años antes de cumplir la
-mayoridad y hayan mantenido vínculos familiares o afectivos con los
-adoptantes. Si los adoptantes son familiares hasta el tercer grado de
-consanguinidad inclusive, la convivencia requerida será de tres años.
-c) Las personas menores de edad cuyos progenitores, según sea el
-caso, consientan ante la autoridad judicial correspondiente, la voluntad
-de entrega y desprendimiento; siempre que, a juicio del Juez, medien
-causas justificadas suficientes y razonables que lo lleven a determinar
-este acto como lo más conveniente para el interés superior de la persona
-menor de edad.
-(Así reformado por el artículo 2 de ley No.7538 del 22 de agosto de
-1995)
+a) Las personas menores de edad declaradas judicialmente en estado de abandono, excepto cuando un cónyuge adopte a los hijos menores del otro, siempre y cuando el cónyuge con quien viven los menores ejerza, en forma exclusiva, la patria potestad.
+b) Las personas mayores de edad que hayan convivido con los adoptantes, por un tiempo no menor de seis años antes de cumplir la mayoridad y hayan mantenido vínculos familiares o afectivos con los adoptantes. Si los adoptantes son familiares hasta el tercer grado de consanguinidad inclusive, la convivencia requerida será de tres años.
+c) *Las personas menores de edad cuyos progenitores consientan, según sea el caso, ante la autoridad judicial correspondiente, la voluntad de entrega y desprendimiento siempre y cuando, a juicio de dicha autoridad, medien causas justificadas, suficientes y razonables, que la lleven a determinar este acto como lo más conveniente para el interés superior de la persona menor.
+Tratándose de adopciones internacionales, además del requisito anterior, la persona menor de edad previamente deberá ser declarada adoptable, por el Consejo Nacional de Adopciones del Patronato Nacional de la Infancia, que rendirá su informe en un plazo máximo de dos meses a partir de la fecha en que se le notifique del inicio del proceso por parte del órgano jurisdiccional correspondiente. Para todos los efectos se respetarán los procedimientos y las condiciones establecidos en los convenios internacionales.
+La adopción internacional tendrá carácter subsidiario de la adopción nacional y solo procederá cuando el Consejo Nacional de Adopciones, referido en el párrafo anterior, haya determinado que no existen posibilidades de ubicar a la persona menor de edad en una familia adoptiva con residencia permanente en el país.
+(Así reformado por el artículo 2 de ley No.7538 del 22 de agosto de 1995). (Así reformado este inciso por el artículo 1° de la Ley N° 8297 de 10 de setiembre del 2002)
+*(Por resolución de la Sala Constitucional N° 6304 del 3 de julio del 2003 se anula la Ley N° 8297 del 10 de setiembre del 2002 que reforma este inciso. Asimismo, la Sala no indica si se restablece el texto anterior a dicha reforma.)
