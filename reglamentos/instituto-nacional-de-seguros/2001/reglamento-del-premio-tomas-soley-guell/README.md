@@ -14,3 +14,4 @@ Reglamento del Premio Tomás Soley Güell
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-20 | la propia norma |
+| 2 | 2002-08-12 | Reglamento 8561 (2002-08-12) |
