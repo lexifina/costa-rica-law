@@ -1,0 +1,2 @@
+ARTÍCULO 24
+A los miembros de guarniciones y a los detenidos o presos, dichos en el artículo 19, que no tengan al tiempo de formarse las listas los tres meses que determina el artículo 20, se les incluir en las listas del distrito del cuartel o establecimiento en que se hallen, y además en las listas del distrito de su domicilio habitual, a fin de que puedan votar en donde se encuentren el día de la elección.

@@ -1,0 +1,8 @@
+Articulo 88
+Serán reprimidos con presidio interior menor en su grado mínimo:
+1°.-Los miembros de la junta de distrito principal o auxiliar que dejaren de consignar un sufragio emitido o que lo consignaren modificándolo o que supongan un voto que no se ha dado o que a sabiendas admitieren como legítimo el de una persona que carece de derecho para sufragar o que se presenta con nombre ajeno, o que se negaren a recibir el voto de ciudadanos inscritos;
+2°.-El que sustrajere, destruyere o falsificare las papeletas, listas o registros de sufragantes, o por cualquier medio imposibilitare o dificultare la votación o el escrutinio o falseare el resultado de una elección;
+3°.-El que impidiere la celebración de una junta popular o comicio o tratare de disolverlo con violencias o valiéndose de intimidación;
+4°.-La autoridad o miembro de junta principal, encargada del censo electoral o calificación de ciudadanos de un distrito, que maliciosamente omitiere la inscripción de un ciudadano o alterare sus nombres o inscribiere el nombre de una persona supuesta o que no debe ser inscrita; o que voluntariamente resistiere el cumplimiento de una sentencia que ordena la cancelación o inscripción de ciudadanos; o que con malicia prescindiere de ciudadanos de un partido en la desproporción notable de un veinticinco
+por ciento;
+5°.-Los Jueces encargados del conocimiento de recursos en reclamaciones sobre ciudadanía, que a pesar del reclamo del interesado o de cualquiera otra persona apta y de los comprobantes legales exhibidos, denegaren injustamente decretar la inscripción de un ciudadano u ordenaren arbitrariamente inscribir el nombre de una persona que no debe ser calificada o mandaren cancelar inscripciones indebidamente.
