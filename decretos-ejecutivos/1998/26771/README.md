@@ -14,3 +14,4 @@ Reglamento del Registro Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-18 | la propia norma |
+| 2 | 1998-06-10 | Decreto Ejecutivo 27132 (1998-06-10) |
