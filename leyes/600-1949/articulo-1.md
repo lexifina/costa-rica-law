@@ -1,0 +1,4 @@
+N° 600
+LA JUNTA FUNDADORA DE LA SEGUNDA REPUBLICA
+DECRETA:
+Artículo 1°-Autorízase al Ministerio de Hacienda para que emita con cargo al Tesoro Público, un título de la deuda pública, por ¢ 416,258.55, sin intereses, y amortizable con los beneficios netos del Banco Crédito Agrícola de Cartago correspondientes al primer semestre de 1949 y los futuros hasta su total cancelación. Estos beneficios quedan íntegramente gravados con este objeto en forma preferencial, excepción hecha de la cuota que a este Banco pudiera corresponderle en la atención conjunta de las cédulas y bonos del Sistema Bancario Nacional, conforme a las leyes correspondientes. El título a que se refiere el párrafo anterior será entregado al Banco Crédito Agrícola de Cartago a efecto de que complete el capital fijado en el artículo 3° del decreto N° 313 de 29 de diciembre de 1948. La Superintendencia General de Bancos vigilará el cumplimiento de ésta disposición.
