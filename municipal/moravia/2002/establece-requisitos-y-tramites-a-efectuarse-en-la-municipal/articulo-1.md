@@ -33,15 +33,22 @@ Visado: Es el reconocimiento y autorización por parte de la municipalidad (Inge
 CUADROS DE REQUISITOS PREVIOS
 Consultar por escrito, previo a la entrega de la solicitud municipal, en los siguientes tramites.
 CUADRO Nº 1.1
-1º—En permisos de construcción: Estudios preliminares que deberá realizar el profesional responsable del proyecto.
-1. Certificado del Uso del Suelo aprobado. Ver solicitud cuadro Nº 1 y cuadro 1.4.
-2. Solicitud y Póliza del Instituto Nacional de Seguros (Póliza de Riesgos del Trabajo) la puede tramitar en la Municipalidad.
-3. Planos de construcción aprobado por el Colegio Federado de Ingenieros y Arquitectos (C.F.I.A.) y aplicación de alineamientos otorgados por otras instituciones, con el visto bueno de Acueductos y Alcantarillados. En el caso del Ministerio de Salud debe acudirse a su sede regional.
-4. Hoja del Contrato del Colegio Federado de Ingenieros y Arquitectos (C.F.I.A).
-5. Alineamiento del Ministerio de Obras Públicas y Transportes, cuando se trate de construcciones en propiedades colindantes con calles nacionales.
-6. Cuando la propiedad se encuentre afectada por una servidumbre del ICE, RECOPE, CNFL o AyA, se requiere el visto bueno de dichas instituciones.
-7. Plano catastrado con visto bueno del INVU cuando la propiedad colinde con río o quebrada.
-8. Plano catastro con visto bueno de la Dirección General de Ferrocarriles cuando la propiedad esté afectada por líneas férreas.
+1º—En permisos de construcción:
+La Lista de requisitos para el trámite del permiso de construcción será:
+1. Impuesto Municipal y Territorial al día (Sello del Departamento de cobros en esa solicitud).
+2. Casas, remodelaciones o ampliaciones, presentar planos aprobados por Colegio Federado de Ingenieros y Arquitectos, con el visto bueno de Acueductos y Alcantarillados y el Ministerio de Salud.
+3. Certificado de Uso del Suelo, vigencia menor a doce meses
+4. Propiedades frente a Carretera Nacional presentar alineamiento del Departamento Derecho de Vías del Ministerio de Obras Públicas y Transportes.
+5. Cualquier obra debe presentar un cuadro de acabados constructivos.
+6. Propiedades que están en linderos o atravesados por cursos de aguas naturales debe presentar el alineamiento respectivo dado por el Departamento de Urbanismo del Instituto de Vivienda y Urbanismo.
+7. Propiedades con pendientes mayores al 20% de inclinación aportar el Visto Bueno del Departamento de Geología de la Comisión Nacional de Emergencia.
+8. Presentar fotocopia de la cédula de identidad del propietario por ambos lados.
+9. Ampliación menores a 30 M2, muros, tapias, verjas y reparaciones menores presentar diseño detallado de la obra, especificando acabados.
+10. Para iniciar la construcción debe de cumplir con el Artículo 193 Título Cuarto del Código del Trabajo. (Póliza de Riesgo del Trabajo). El I.N.S. velará por el respecto de esta ley y podrá obligar a su cumplimiento establecimiento responsabilidades civiles y penales, según la legislación vigente.
+_______________ | _______________ | _______________
+Nombre | Firma | Cédula
+11. La Municipalidad reportará este permiso al Departamento de Riesgos del Trabajo del Instituto Nacional de Seguros
+(Así reformado parcialmente por el Concejo Municipal de la Municipalidad de Moravia, mediante la sesión ordinaria No. 118, celebrada el 16 de agosto del 2004.)
 CUADRO Nº 1.2
 2º—En visados municipales.
 Certificación de propiedad literal del Registro Nacional. Lo puede solicitar en la Municipalidad a costo del petente y, dos copias del plano catastro de la propiedad sin alteraciones ni reducción.
