@@ -1,0 +1,1 @@
+Artículo 121.- Autorízase a la Asociación Integral de Desarrollo de la Comunidad de Mojón y Mojoncito de Esparza, para que utilice la partida específica de veinticinco mil colones (¢ 25.000,00), para la electrificación de El Humo, en gastos varios de esa asociación.

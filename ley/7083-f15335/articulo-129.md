@@ -1,0 +1,2 @@
+Artículo 129.- Modifícase el texto de la transferencia del programa 060, registro contable 06.060.I.P. 225 - C.F. 27, publicado en el Alcance Nº 30 a "La Gaceta" Nº 211 del jueves 6 de noviembre de 1986, ley Nº 7051 del 30 de octubre de 1986. Dicho texto dirá:
+"Consejo Nacional de Desarrollo de la Comunidad, gastos de servicios personales, materiales, maquinaria y equipo de oficina y suministro de los consejos regionales, ¢ 1.500.000,00.

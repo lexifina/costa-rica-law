@@ -1,0 +1,1 @@
+Artículo 43.- Se autoriza a la Cruz Roja Costarricense de Santa Bárbara de Heredia, para que compre un "auto popular" de hasta 1 300 cc, exento de todo tipo de impuestos, tasas, sobretasas y otros impuestos, el cual será rifado. Los fondos provenientes de la rifa serán destinados a programas de bien social en el cantón de Santa Bárbara.

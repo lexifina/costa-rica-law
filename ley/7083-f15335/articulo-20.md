@@ -1,0 +1,1 @@
+Artículo 20.- Autorízase al Instituto de Desarrollo Agrario para que traspase al Ministerio de Educación Pública, un terreno cuya medida no será menor de trece hectáreas, con el propósito de que el Sistema Nacional de Radio y Televisión Cultural instale en él una estación radiodifusora de onda corta internacional.

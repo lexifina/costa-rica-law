@@ -1,0 +1,2 @@
+Artículo 187.- Se autoriza a la Municipalidad de Naranjo para que done terrenos de su propiedad situada en el distrito cuarto, del cantón de Naranjo, provincia de Alajuela, inscrito en el tomo 1503, folio 261, 103 y 104, Nº 110975, asientos del 13 al 16, de la siguiente manera: Asociación Talita Cumi, 4 418 metros cuadrados, y Asociación Integral de Desarrollo de la Comunidad de El Cruce de Cirrí 600 metros cuadrados.
+La donación se hace con la finalidad de que se construya la iglesia, el salón comunal y el taller para minusválidos.

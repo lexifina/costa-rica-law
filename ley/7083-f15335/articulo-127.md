@@ -1,0 +1,1 @@
+Artículo 127.- Se autoriza a la Municipalidad de Oreamuno para que utilice la totalidad, o el sobrante que hubiere, de los fondos del giro Nº 870666083, en la compra de maquinaria electrónica y mobiliario para uso de la misma municipalidad.

@@ -1,0 +1,1 @@
+Artículo 168.- Autorízase a la Tesorería Nacional para que varíe el destino de la partida específica asignada a la Asociación Deportiva Atlético Corrales, código 918-634-283, gastos varios, a fin de que sea girada al Centro Agrícola Cantonal de Esparza, para el proyecto de investigación salinera y camaronera en Punta Morales.

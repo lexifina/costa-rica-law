@@ -1,0 +1,1 @@
+Artículo 32.- Se le concede personalidad jurídica a los representantes del Convenio Cooperativo Intermunicipal, suscrito por las Municipalidades de: San José, Aserrí, Desamparados, Tibás, Curridabat, Alajuelita, Coronado, Escazú, Goicoechea, La Unión, Moravia y Montes de Oca para la solución conjunta del problema de los desechos sólidos.

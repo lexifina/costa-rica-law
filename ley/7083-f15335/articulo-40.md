@@ -1,0 +1,1 @@
+Artículo 40.- Se autoriza al Ministerio de Relaciones Exteriores para que utilice los saldos de partidas no utilizadas, correspondientes al presupuesto del año 1987, a fin de que se destinen a la compra de inmuebles para sedes diplomáticas en el exterior y para ampliación del edificio de la Cancillería.

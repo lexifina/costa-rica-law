@@ -1,0 +1,1 @@
+Artículo 14.- Se prorroga la vigencia del artículo 25 de la ley Nº 7040 del 25 de abril de 1986, en el caso del fondo del 1% para el Plan Nacional de Desarrollo, hasta el 31 de diciembre de 1987, para que, por medio de decreto ejecutivo, se puedan incorporar los recursos de la caja no utilizados a que alude la precitada ley, previa aprobación del Ministerio de Hacienda.

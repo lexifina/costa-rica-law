@@ -1,0 +1,1 @@
+Artículo 81.- Autorízase a la Refinadora Costarricense de Petróleo para que condone, total o parcialmente, el crédito concedido a favor del Ministerio de Obras Públicas y Transportes, de acuerdo con el artículo 76 de la ley número 7015 del 22 de noviembre de 1985.

@@ -1,0 +1,3 @@
+Artículo 184.- Modifícase el artículo 67 de la ley N° 7064 del 29 de abril de 1987, el cual dirá:
+"Artículo 67.-No se aplicará a los bancos comerciales del Estado lo dispuesto en el artículo 13, inciso a), de la sección V de la ley N° 7055 del 18 de diciembre de 1986. Las contribuciones que hubieren hecho los bancos comerciales del Estado por concepto de esta ley durante el presente año, les serán reembolsadas. Hasta tanto no hayan sido redimidos los bonos de readecuación del sector agropecuario a los bancos comerciales del Estado, contemplados en la ley N° 7064, no se impondrá a cargo de esas instituciones ninguna contribución extraordinaria."
+(Vetado)

@@ -1,0 +1,1 @@
+Artículo 137.- Se autoriza a la Asociación de Desarrollo Integral de Piedades de Santa Ana, para que utilice el remanente de la partida para "ampliación y asfaltado de la calle El Monte, situado al costado oeste de la Escuela de Piedades", en el asfaltado de la calle El Monte (35) mts.) y en el asfaltado de la calle San Marcos (900 mts.).

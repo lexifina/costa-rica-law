@@ -1,0 +1,1 @@
+Artículo 172.- Derógase el artículo 35 de la ley Nº 6962 del 26 de julio de 1984, que establece un impuesto del cincuenta por ciento (50%) de los ingresos brutos para todo espectáculo artístico procedente del exterior, que no sea promovido por el Ministerio de Cultura, Juventud y Deportes.

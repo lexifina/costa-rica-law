@@ -1,0 +1,4 @@
+Artículo 31.- Autorízase al Instituto Mixto de Ayuda Social para que done y traspase, mediante el título de propiedad, a asociaciones, municipalidades o comités de vivienda, o a ambos, debidamente legalizados, así como también directamente a beneficiarios, aquellos terrenos que adquiera con dineros de los presupuestos nacionales ordinarios o extraordinarios de la República por medio del título 30 (partidas específicas), que estén destinados a vivienda.
+Igualmente, se le autoriza para que cancele deudas, total o parcialmente, contraídas para proyectos de vivienda por esas entidades.
+Los beneficiarios sólo podrán pignorar sus propiedades con entes financieros estatales, mutuales, con el Banco Hipotecario de la Vivienda o con el Banco Popular y de Desarrollo Comunal.
+En el caso de traspaso por parte de los beneficiarios a terceras personas, se deberá pagar al IMAS el valor del terreno de acuerdo con el avalúo del momento.

@@ -1,0 +1,2 @@
+Artículo 101.- Se autoriza a aquellas municipalidades que tengan problemas para adquirir terrenos en su jurisdicción por razones económicas, para que puedan adquirirlos en otras jurisdicciones y para que los fraccionen con el objeto de destinarlos a programas de vivienda popular.
+Para financiar la adquisición de estos terrenos se podrán utilizar los recursos provenientes de la ley Nº 6282 del 25 de julio de 1979.

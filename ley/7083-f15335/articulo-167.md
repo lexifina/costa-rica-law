@@ -1,0 +1,1 @@
+Artículo 167.- Se autoriza a la Junta de Protección Social de San José para que, conforme con el artículo 22 de la ley Nº 6404 del 20 de diciembre de 1979 y sus reformas, haga una contribución a la Editorial Costa Rica, sobre todo para los programas de edición de libros de texto.

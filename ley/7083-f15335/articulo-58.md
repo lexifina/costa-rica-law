@@ -1,0 +1,1 @@
+Artículo 58.- Autorízase a la Municipalidad de Desamparados para que traspase el terreno de su propiedad al Ministerio de Salud, según el plano de catastro Nº SJ-639.165-86, finca inscrita en el tomo 3092, folio 143, Nº 300074, asiento 1, el cual mide 2 961,10 m², ubicado en el distrito primero, cantón de Desamparados.
