@@ -1,8 +1,4 @@
-Artículo 101.- Con el objeto de garantizar un aprovechamiento racional de los recursos nacionales y de proteger sus usos futuros, los concesionarios deberán efectuar estudios del impacto ambiental de sus actividades, en forma previa y pública. Estos estudios deberán ser efectuados por personal técnico calificado, mediante las normas suministradas por el Estado, y si los estudios se consideraran deficientes podrán ser rechazados por el organismo gubernamental de control.
-El análisis del impacto ambiental deberá incluir los siguientes aspectos:
-a) Impacto de la acción propuesta sobre el ambiente natural y humano.
-b) Efectos adversos inevitables si se llevare a cabo la actividad.
-c) Otras alternativas existentes relativas a la actividad.
-ch) Costos y beneficios ambientales a corto, mediano y largo plazo; nivel local, regional y nacional.
-d) Otros recursos que se verían afectados irreversiblemente.
-e) Posibilidades para alcanzar el mayor beneficio con el mínimo de riesgo.
+TITULO XV
+De las normas de protección del ambiente
+Artículo 101.- Los titulares de un permiso de exploración o de una concesión de explotación, están obligados a cumplir con todas las normas y requisitos legales y reglamentarios, sobre la contaminación ambiental y la recuperación de los recursos naturales renovables y sobre las especificaciones y obligaciones relacionadas con la protección del ambiente, que se señalen en la resolución de otorgamiento y en esta ley.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 97 al 101)

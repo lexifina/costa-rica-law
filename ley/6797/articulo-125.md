@@ -1,0 +1,2 @@
+Artículo 125.—Será sancionada con una multa de cinco salarios base mensuales, la persona física o jurídica, titular de un permiso o una concesión, que no informe al MINAE dentro del plazo de quince días a partir de la verificación, de la existencia de minerales comercialmente explotables distintos del autorizado en el plan de exploración o explotación aprobado, para su respectivo trámite.
+(Así adicionado por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002)

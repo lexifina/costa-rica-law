@@ -1,2 +1,2 @@
-Artículo 92.- Si transcurriere el plazo indicado en el artículo 86, sin que se hagan la publicación o la inscripción por culpa del petente, la tramitación quedará sin efecto; la solicitud se tendrá por no presentada y los antecedentes serán archivados.
-(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 88 al 92)
+Artículo 88.- Las resoluciones que dicte la Dirección de Geología, Minas e Hidrocarburos, durante la tramitación de un permiso o concesión, sólo podrán ser objeto de revocatoria dentro del plazo de diez días, y además serán susceptibles del recurso de apelación, el que deberá interponerse dentro de los tres días siguientes a la notificación. Del recurso de apelación, cuando procediere, conocerá el Tribunal Superior Contencioso Administrativo.
+(Modificada su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo pasó del 84 al 88)

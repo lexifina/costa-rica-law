@@ -1,2 +1,2 @@
-Artículo 60.- La resolución de otorgamiento de una concesión de explotación deberá contener las condiciones fiscales e incluir las exoneraciones, exenciones, franquicias y demás disposiciones que señala esta ley, a la que será sometida el titular de la concesión durante la vigencia de ésta.
-(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 56 al 60)
+Artículo 56.- La actividad minera quedará sujeta al pago de impuestos sobre sus utilidades, conforme con las disposiciones de la ley del impuesto sobre la renta.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 52 al 56)

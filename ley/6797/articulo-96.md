@@ -1,4 +1,2 @@
-Artículo 100.- La Dirección de Geología, Minas e Hidrocarburos solicitará tres muestras de mineral cada seis meses, una de las cuales se conservará como testigo; las otras dos serán objeto de análisis en diferentes laboratorios especializados. Los gastos que se deriven de estos análisis correrán por cuenta de la compañía. Del resultado la Dirección hará un informe al Banco Central para que compruebe el valor del producto refinado, enviado por la compañía.
-El Estado, como socio de la empresa, o la Dirección, como contralora y fiscalizadora, controlarán la extracción, procesamiento y venta del mineral.
-A juicio de la Dirección se podrán agregar otros tipos de control.
-(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 96 al 100)
+Artículo 96.- Debe entenderse que todos los plazos de días, establecidos en este Código, lo son de días hábiles.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 92 al 96)
