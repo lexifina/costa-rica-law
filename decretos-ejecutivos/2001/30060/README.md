@@ -15,3 +15,4 @@ Reglamento para Notificación, Importación y Control de Productos Cosméticos
 | --- | --- | --- |
 | 1 | 2002-01-15 | la propia norma |
 | 2 | 2003-02-16 | Decreto Ejecutivo 31044 (2003-02-16) |
+| 3 | 2003-05-15 | Decreto Ejecutivo 31198 (2003-05-15) |
