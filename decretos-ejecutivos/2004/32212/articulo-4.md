@@ -1,0 +1,1 @@
+Artículo 4º—Los ingresos producto de la venta de árboles en los viveros estatales, serán presupuestados y utilizados según lo establecido en la Ley Forestal Nº 7575, y en el Decreto Ejecutivo Nº 30345-MINAE, publicado en el Diario O.cial La Gaceta Nº 92 del 15 de mayo del 2002.
