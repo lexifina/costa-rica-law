@@ -1,0 +1,1 @@
+Artículo 4°-Con motivo de esta conmemoración, el Consejo Nacional de Rehabilitación y Educación Especial queda autorizado para realizar campañas públicas de recaudación de fondos, destinadas a asegurar el mejor cometido de sus funciones.

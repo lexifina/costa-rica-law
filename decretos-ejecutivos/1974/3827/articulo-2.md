@@ -1,0 +1,2 @@
+Artículo 2°_El Consejo Nacional de Rehabilitación y Educación Especial, así como los Ministerios e Instituciones que los integran, harán del conocimiento de los costarricenses la trascendencia que tiene la celebración de esta fecha. Podrán participar otros organismos afines.
+Con tal objeto llevarán a cabo conferencias, seminarios, campañas publicitarias y cualesquier otros actos que ayuden a crear conciencia en la comunidad, de la necesidad e importancia de los programas que se desarrollan en los campos.de la rehabilitación y de la educación especial.
