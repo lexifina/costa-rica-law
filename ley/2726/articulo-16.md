@@ -1,0 +1,1 @@
+Artículo 16.-Las funciones específicas que corresponden a la Junta Directiva, así como a los funcionarios del Servicio de Acueductos y Alcantarillados, serán determinados por el reglamento respectivo.
