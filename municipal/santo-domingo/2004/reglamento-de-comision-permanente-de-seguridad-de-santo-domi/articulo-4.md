@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión se reunirá en forma ordinaria el primer y tercer martes de cada mes. En forma extraordinaria cuando se requiera, será convocada por la Presidencia o por la iniciativa ante esta de dos o más miembros.

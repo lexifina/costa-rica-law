@@ -1,0 +1,1 @@
+Artículo 6º—La Comisión rendirá al menos un informe anual ante el Concejo Municipal sobre los resultados de su gestión, del cual se dará copia a todas las organizaciones representadas y otros grupos líderes del cantón.

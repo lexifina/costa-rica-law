@@ -1,0 +1,2 @@
+Transitorio 1º—Los miembros de la Comisión de Seguridad estarán nombrados en sus cargos hasta el momento en que se conforme la Asociación de Desarrollo Específica sobre Seguridad Integral de Santo Domingo. En el acto que la Junta Directiva de la Asociación tome posesión, la Comisión se considera disuelta pudiendo convocarse a sus miembros como asesores o coordinando grupos de trabajo.
+Sesión Nº 40-2003 de fecha 12 de julio del 2004, artículo V, inciso 5).
