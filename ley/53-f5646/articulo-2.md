@@ -1,0 +1,1 @@
+Art 2° Cada Sala se compondrá de su Presidente y de dos Magistrados designados por el mismo Gobierno; más cuando alguna de ellas conozca en 3° instancia, se compondrá de cinco miembros aumentándose con los dos Magistrados nombrados para este efecto, excepto en 3° instancia de juicio verbal.

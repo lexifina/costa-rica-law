@@ -1,0 +1,1 @@
+Art 7° Es incompatible la calidad de miembros de la Corte Suprema o de Conjuez con la de empleado subalterno de la misma. Es también incompatible con el ejercicio de cualquier otro destino público que tuviere señaladas horas de oficina al mismo tiempo que se despacha en la Corte.
