@@ -14,3 +14,4 @@ Régimen de Tributación Simplificada para Comerciantes Minoristas y Bares.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-01 | la propia norma |
+| 2 | 1997-06-20 | Decreto Ejecutivo 26199 (1997-06-20) |
