@@ -1,0 +1,13 @@
+DECRETO 187
+El Jefe Supremo del Estado libre de Costa Rica.
+Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+La Asamblea Constitucional del Estado libre de Costa Rica, teniendo en considerando la suma escasez de aguas que sufre la ciudad de Heredia, según representa su municipalidad, la diaria penalidad que experimenta el sexo femenino de toda clase, edad y estado, en irla a traer por las noches hasta Barba, los desordenes que de esto se han seguido y podrían seguirse, la insalubridad que necesariamente resulta de la putrefacción que padece la poca agua que actualmente corre, y últimamente con presencia del examen de la obra conducente o facilitar el curso de las aguas, mandando hacer por la misma municipalidad, ha venido en decretar y decreta:
+1° La Municipalidad de Heredia pondrá en ejecución la obra de conducir y aumentar cuanto sea posible las aguas de las sequías de aquella ciudad, sacando y reuniendo la de los ríos Mancarrones, Porrosatí y Ríos Segundo, y para logar el pronto efecto, será preferido el trabajo u obra mas necesaria y urgente.
+2° Antes de emprender este trabajo u obra, la pondrá en conocimiento del mando Político Superior con el informe circunstanciado posible para la aprobación.
+3° Para los gastos necesarios a esta obra, dispondrá la municipalidad 1° de todo el sobrante de propios, deducidas las erogaciones ordinarias y las extraordinarias que se urgente o indispensable 2° del fondo o producto de la itineraria, con la advertencia de que sólo se tomará de ésta para ocurrir a algún objeto o reparación urgente en los caminos 3° abrirá una suscripción voluntaria, haciendo las invitatoria en un cabildo abierto y continuandola con la mayor exactitud y orden posible y dando cuenta al mismo mando Político.
+4° La misma municipalidad a la mayor brevedad, presentará al mando Político el padrón exacto para la itineraria, y de la recaudación de su producto, será estrechamente responsable.
+5° Concluido el trabajo u obra que deba ser preferida (en orden a aumentar las aguas) propondrán la municipalidad al mando Político, dando a este el mas completo conocimiento, la obra que deba emprenderase, o para el mejor curso o para aseo, y con aprobación del mismo mando se emprenderá usando de los recursos designados en el artículo 3° de esta Ley.
+6° La municipalidad observará la economía posible aun días del mes de mayo de mil ochocientos veintinueve.
+Al Consejo Representativo. – dado en San José, a los veintiún días del mes de mayo de mil ochocientos veintinueve.
+Sala de Consejo. – San José, mayo veintisiete de mil ochocientos veintinueve.
+Por tanto: Ejecútese, San José, mayo veintinueve de mil ochocientos veintinueve.
