@@ -1,0 +1,1 @@
+Art. 2°-Los sorteos establecidos por la ley de 15 de noviembre de 1882, para la amortización anual de la suma de quinientos mil pesos de la deuda liquidada y convertida el 30 de noviembre citado, se harán trimestrales. á razón de ciento veinticinco mil pesos
