@@ -13,3 +13,5 @@ ARTÍCULO 5° : PRESUPUESTO POR PROGRAMAS DEFENSORÍA DE LOS HABITANTES DE LA RE
 (Modificado por el artículo 1° del decreto ejecutivo N° 32119 del 8 de noviembre del 2004)
 (Modificado por el artículo 2° del decreto ejecutivo N° 32119 del 8 de noviembre del 2004)
 (Modificado por el artículo 3° del decreto ejecutivo N° 32119 del 8 de noviembre del 2004)
+(Así reformado por el artículo 4 de la Ley N° 8433 del 10 de diciembre del 2004, publicado en el Alcance N° 64 a La Gaceta N° 245 del 15 de diciembre del 2004)
+(Así reformado por el artículo 7 de la Ley N° 8433 del 10 de diciembre del 2004, publicado en el Alcance N° 64 a La Gaceta N° 245 del 15 de diciembre del 2004)

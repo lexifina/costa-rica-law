@@ -5,3 +5,4 @@ ARTICULO 1°: DETALLE DE CALCULO DE LOS INGRESOS ORDINARIOS Y EXTRAORDINARIOS, T
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 32016 del 26 de julio de 2004.)
 (Modificado por el artículo 2° del Decreto Ejecutivo N° 32016 del 26 de julio de 2004.)
 (Así modificado por el artículo 1° de la Ley N° 8424 del 7 de octubre del 2004)
+(Así reformado por el artículo 1 de la Ley N °8433 del 10 de diciembre del 2004, publicado en el Alcance N° 64 a La gaceta N° 245 del 15 de diciembre del 2004)

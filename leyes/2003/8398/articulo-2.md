@@ -36,3 +36,5 @@ ARTÍCULO 2°: EGRESOS ORDINARIOS EXTRAORDINARIOS PARA 2004.
 (Modificado por el artículo 1° del decreto ejecutivo N° 32134 del 30 de noviembre del 2004)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32136 del 2 de diciembre del 2004)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32137 del 7 de diciembre del 2004)
+(Así reformado por el artículo 2 de la Ley N° 8433 del 10 de diciembre del 2004)
+(Así reformado por el artículo 3 de la Ley N° 8433 del 10 de diciembre del 2004, publicado en el Alcance N° 64 a La Gaceta N° 245 del 15 de diciembre del 2004))
