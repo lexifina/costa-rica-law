@@ -1,0 +1,1 @@
+Artículo 31.—Recibida la solicitud, el Programa verifica que se cumpla con los requisitos legales, reglamentarios y administrativos establecidos, debiendo resolver la solicitud en un plazo no mayor a diez días hábiles.

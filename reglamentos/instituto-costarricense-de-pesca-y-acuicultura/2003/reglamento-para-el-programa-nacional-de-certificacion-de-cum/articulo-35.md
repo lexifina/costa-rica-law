@@ -1,0 +1,3 @@
+CAPÍTULO NOVENO
+Condiciones generales para plantas de proceso
+Artículo 35.—Todo establecimiento de proceso de productos hidrobiológicos para la exportación y mercado nacional, debe contar con la autorización del programa. El programa no autorizará a ningún establecimiento si este no cuenta con el permiso sanitario de funcionamiento vigente del Ministerio de Salud y Licencia de Operación para Plantas Exportadoras de INCOPESCA y demás establecimientos para el mercado nacional. El programa le asignará un número oficial que permitirá identificar al establecimiento en todas sus exportaciones de comercio internacional y de mercado doméstico. El programa notificará oficialmente a los países importadores la lista de establecimientos autorizados en el caso de la exportación.

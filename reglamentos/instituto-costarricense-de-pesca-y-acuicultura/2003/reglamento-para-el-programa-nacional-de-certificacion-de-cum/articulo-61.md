@@ -1,0 +1,1 @@
+Artículo 61.—En el caso de las embarcaciones que cuenten con la licencia y si no cumplieran con los requerimientos mínimos no se les tramitará la exoneración del combustible o en su defecto se le impondrá las respectivas sanciones vigentes.

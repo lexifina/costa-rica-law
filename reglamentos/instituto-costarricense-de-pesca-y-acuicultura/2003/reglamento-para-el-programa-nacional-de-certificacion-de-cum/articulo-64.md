@@ -1,0 +1,1 @@
+Artículo 64.—Los demás agentes de la cadena de comercialización (Puestos de recibo, transporte, pescaderías, plantas de proceso para mercado nacional, etc.), que no cumplan con los requerimientos mínimos se les suspenderá el permiso o licencia de operación.

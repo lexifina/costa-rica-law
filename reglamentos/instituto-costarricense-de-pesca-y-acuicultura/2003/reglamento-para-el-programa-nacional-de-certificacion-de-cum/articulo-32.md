@@ -1,0 +1,1 @@
+Artículo 32.—Cuando se resuelve positivamente la solicitud, el programa procede a otorgar la autorización correspondiente y un número oficial. La autorización se extiende por un periodo de un año, vencido el cual deberá renovarse. Toda autorización debe estar precedida de una inspección oficial.

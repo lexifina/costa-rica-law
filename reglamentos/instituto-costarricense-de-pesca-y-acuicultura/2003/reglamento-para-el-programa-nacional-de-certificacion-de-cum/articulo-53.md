@@ -1,0 +1,1 @@
+Artículo 53.—Durante la producción y antes de que sea destinado a consumo humano el pescado y los productos pesqueros deben ser sometidos a un control visual para detectar cualquier parásito visible. El producto que manifiesta parásitos debe ser desechado.

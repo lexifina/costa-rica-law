@@ -1,0 +1,1 @@
+Artículo 6º—Los productos hidrobiológicos para ser comercializados internacionalmente y en el mercado interno deberán cumplir de previo con las normas nacionales y satisfacer a juicio del Programa BPM, con las normas de sanidad y calidad requeridas por los países importadores, en el caso de la exportación.

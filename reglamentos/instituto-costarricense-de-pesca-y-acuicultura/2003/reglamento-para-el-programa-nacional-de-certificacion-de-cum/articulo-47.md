@@ -1,0 +1,4 @@
+Artículo 47.—Las condiciones y requisitos para los productos procesados son las siguientes:
+a) Productos frescos, congelados y descongelados que se usen para ser procesados deben de cumplir con las normas que se indican en este reglamento.
+b) Donde se lleve a cabo un proceso de tratamiento para inhibir el desarrollo de microorganismos patógenos, o si este es un factor significativo en la preservación de productos, el tratamiento debe hacerse por métodos científicamente reconocidos y aprobados. El establecimiento debe llevar un registro de los productos que se procesan y salen.
+c) Para los productos que son preservados mediante el proceso de salado, ahumado, secado, o marinado, debe detallarse en su etiqueta la vida útil del producto para consumo humano, de acuerdo a Normas de Etiquetado exigidas por el país importador o las exigencias del Ministerio de Salud para el mercado doméstico.

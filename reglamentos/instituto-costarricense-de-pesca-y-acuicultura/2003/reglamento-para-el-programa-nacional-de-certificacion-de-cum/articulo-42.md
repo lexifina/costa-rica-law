@@ -1,0 +1,5 @@
+Artículo 42.—Se exigirán por parte del programa las siguientes condiciones generales de higiene aplicables a los locales y equipo.
+a) Pisos, paredes y estantes, cielos rasos o techos, equipos e instrumentos usados deben de mantenerse en un estado satisfactorio de limpieza y reparación, para que no sean fuente de contaminación para los productos.
+b) Cuando se detecten roedores, insectos y otras plagas se deberá proceder al exterminio sistemático en los locales o en el equipo. Rodenticidas, insecticidas, desinfectantes, y otras sustancias potencialmente tóxicas, deben de almacenarse en lugares bien seguros, los cuales se deben cerrar con candado. Las áreas de los equipos que entran en contacto con los productos no pueden ser fumigadas o expuestas a plaguicidas
+c) Los instrumentos y equipos de trabajo solo se deben de usar para trabajar con productos hidrobiológicos.
+d) Detergentes, desinfectantes, plaguicidas y sustancias similares deben de ser aprobadas por la autoridad competente y usados de tal forma que no tengan efectos adversos sobre la maquinaria, equipo y productos.

@@ -1,0 +1,10 @@
+Artículo 48.—Para los productos que han sido sujetos a esterilización en contenedores herméticamente sellados debe cumplirse con lo siguiente:
+a) El agua para la preparación de las latas debe de ser potable.
+b) El proceso usado en el tratamiento de calentamiento tiene que ser el apropiado, teniendo en cuenta el tiempo de calentamiento, temperatura, rellenado y tamaño del recipiente. De lo anterior hay que llevar un control debidamente documentado.
+c) El tratamiento térmico debe de ser capaz de destruir o inactivar los organismos patógenos y las esporas de los microorganismos patógenos. El equipo de esterilización debe de tener los dispositivos necesarios para verificación de que los recipientes tengan un apropiado tratamiento. El agua potable se puede usar para enfriar los recipientes después de cada tratamiento de calor, sin perjudicar la presencia de cualquier aditivo químico usado de acuerdo con las buenas prácticas tecnológicas para la prevención de la corrosión del equipo y recipientes. Todo esto debe estar detallado en un Programa del Proceso Térmico previamente definido por el Establecimiento.
+d) Controles adicionales deben de hacerse al azar durante la manufactura para asegurarse que los productos procesados hayan tenido el apropiado tratamiento de calor. En especial:
+1. Análisis de incubación: La incubación debe de hacerse a 37°C por 7 días, o 35°C por 10 días, o otra combinación equivalente.
+2. Análisis microbiológicos del contenido y los envases en el laboratorio del establecimiento o en otro apropiado.
+e) Durante la producción diaria se deben de tomar muestras a intervalos determinados para asegurar la eficacia del sellado. Para ese propósito se debe de contar con un equipo apropiado para el examen correspondiente.
+Los chequeos se deben de hacer en orden para asegurarse que los envases no estén dañados.
+f) Todos los recipientes que tienen el tratamiento térmico bajo condiciones prácticamente idénticas, se le debe de dar una marca de identificación del lote, sobre indicaciones o marcas identificando el lote a que pertenezca.

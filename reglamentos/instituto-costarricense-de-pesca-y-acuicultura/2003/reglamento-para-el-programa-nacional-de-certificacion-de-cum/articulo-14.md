@@ -1,0 +1,1 @@
+Artículo 14.—Los propietarios o responsables legales de las instalaciones o medios de transporte a ser inspeccionadas, deberán brindar todas las facilidades al inspector para cumplir con sus funciones.

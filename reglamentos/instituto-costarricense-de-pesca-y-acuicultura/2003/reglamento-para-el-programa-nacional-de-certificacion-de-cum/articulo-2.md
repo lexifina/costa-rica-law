@@ -1,0 +1,1 @@
+Artículo 2º—Las Buenas Prácticas de Manejo de los productos hidrobiológicos son parte de los prerequisitos para un Programa HACCP por sus siglas en inglés, que significa Análisis de peligros y puntos críticos de control (APPCC).

@@ -1,0 +1,1 @@
+Artículo 57.—Funcionarios del presente Programa y del INCOPESCA podrán investirse como autoridades del Ministerio de Salud, previa aprobación del mismo con fines de realizar funciones competencia del programa. Todos los actos relativos a la aplicación de este reglamento que realicen esos funcionarios serán calificadas como oficiales.

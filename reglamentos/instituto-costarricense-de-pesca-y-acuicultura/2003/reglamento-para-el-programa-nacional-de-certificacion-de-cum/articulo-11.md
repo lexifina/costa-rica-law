@@ -1,0 +1,1 @@
+Artículo 11.—Las inspecciones se harán en compañía del propietario o responsable legal del medio de transporte, embarcación, centro de recibo o muelle y establecimiento de proceso, o en quien este delegue.

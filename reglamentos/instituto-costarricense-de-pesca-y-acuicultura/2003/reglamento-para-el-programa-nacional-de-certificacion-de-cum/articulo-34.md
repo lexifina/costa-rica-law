@@ -1,0 +1,1 @@
+Artículo 34.—Todas las resoluciones del Programa BPM que autoricen o denieguen una autorización, en el ámbito de sus competencias, debe ser razonada y fundamentada, indicando expresamente los fundamentos de hecho y derecho que la sustentan.

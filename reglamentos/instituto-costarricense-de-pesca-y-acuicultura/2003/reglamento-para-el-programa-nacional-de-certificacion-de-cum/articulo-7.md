@@ -1,0 +1,2 @@
+Artículo 7º—Todos los productos hidrobiológicos para la comercialización deberán ser transportados, inspeccionados, manipulados, preparados, conforme a las disposiciones reglamentarias que se incluyen en este reglamento.
+Los medios de transporte, centros de acopio, muelles privados, establecimientos de proceso y empaque, de productos hidrobiológicos para la comercialización serán registrados y autorizados previamente por el Programa BPM, sin perjuicio de las facultades que corresponden al Ministerio de Salud, Ministerio de Agricultura y Ganadería.

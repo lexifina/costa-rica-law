@@ -1,0 +1,1 @@
+Artículo 24.—Las unidades deben estar equipadas con dispositivos adecuados para garantizar la cadena de frío necesaria para mantener en óptimas condiciones el producto. Deben tomarse los cuidados necesarios para evitar la contaminación de cualquier tipo, en los productos transportados.

@@ -1,0 +1,4 @@
+Artículo 49.—El ahumado de productos pesqueros debe cumplir con lo siguiente:
+a) El proceso de ahumado se debe llevar a cabo en lugares separados o equipados especialmente. Si fuera necesario con un sistema de ventilación para prevenir el humo y calor de la combustión, que puedan afectar otros lugares donde se almacenan o procesan otros productos. Los materiales usados para producir humo por medio de combustión de madera que haya sido pintada, barnizada, engomada o se le haya puesto algún preservante químico son prohibidos.
+b) Materiales usados para producir humo deben de almacenarse lejos del lugar del ahumado, y usarse de tal forma que no contamine los productos.
+c) Después del ahumado, los productos deben de enfriarse rápidamente a la temperatura requerida para su preservación antes de ser empacados.

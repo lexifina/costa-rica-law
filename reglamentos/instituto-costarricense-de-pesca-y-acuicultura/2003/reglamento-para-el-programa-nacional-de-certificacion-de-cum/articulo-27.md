@@ -1,0 +1,1 @@
+Artículo 27.—Las dimensiones de la nevera deben permitir las operaciones de carga y descarga del producto desde fuera de la misma, preferiblemente su altura interna no debe exceder 1.20 metros. Se deben tomar las previsiones de seguridad en las unidades que garanticen la integridad de las personas y los productos durante el transporte.
