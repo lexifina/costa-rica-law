@@ -1,0 +1,2 @@
+Artículo 4°—La CONAI deberá promover ante la Asamblea Legislativa la promulgación de una ley sobre el Estatuto General de los Indígenas, abarcando todas las comunidades indígenas del país y tomando en consideración todas las situaciones particulares que ellas presentan, de manera especial procurando resolver el problema en forma integral, coherente y planificada.
+Este estudio deberá estar basado en el Decreto No 5904-G y demás decretos concordantes.

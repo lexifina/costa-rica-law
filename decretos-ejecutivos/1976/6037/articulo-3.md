@@ -1,0 +1,1 @@
+Artículo 3°—La CONAI deberá emprender a la brevedad posible, los estudios necesarios al conocimiento de la situación actual de la Reserva de China-Kicha, a fin de dar una recomendación sobre la posibilidad de supresión de dicha reserva, así como la factibilidad de reubicar los habitantes indígenas remanentes en otras reservas del país.
