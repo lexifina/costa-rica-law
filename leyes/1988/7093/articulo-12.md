@@ -1,1 +1,0 @@
-Artículo 12.- Las donaciones de personas jurídicas, en beneficio de los planes y programas que autorice el Consejo Nacional de Drogas para la prevención de los delitos y del consumo ilícito de las sustancias a que se refiere esta Ley, son deducibles del monto de la renta bruta de aquellas personas, para efectos del cálculo del impuesto sobre la renta.

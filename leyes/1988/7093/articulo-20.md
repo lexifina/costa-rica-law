@@ -1,1 +1,0 @@
-Artículo 20.- Siempre que la acción no esté más severamente penada, se impondrá prisión de cuatro a ocho años a quien, por cualquier medio, estimule o promueva el consumo no autorizado de las drogas y productos a los que se refiere esta Ley.

@@ -1,1 +1,0 @@
-Artículo 29.- Si por rebeldía del imputado, si por no poderse identificar al autor del hecho o si por cualquier otra circunstancia, no se dictara procesamiento, el juez que conociera de la causa deberá ordenar la suspensión a que se refiere el artículo anterior, si se demostrara judicialmente el uso indebido señalado.

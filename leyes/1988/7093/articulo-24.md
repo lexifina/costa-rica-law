@@ -1,1 +1,0 @@
-Artículo 24.- Se impondrá una pena de sesenta a ciento ochenta días multa a quien, en los sitios públicos o de acceso público consuma o utilice drogas de uso no autorizado. Cuando se trate de menores de edad, las autoridades deben informar a los padres o responsables de éstos.

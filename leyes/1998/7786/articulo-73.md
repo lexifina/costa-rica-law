@@ -1,0 +1,6 @@
+ARTÍCULO 73.- Será sancionado con pena de prisión de uno a tres años
+el propietario, directivo, administrador o empleado de las entidades
+financieras supervisadas, así como el representante o empleado del órgano
+de supervisión y fiscalización que, por culpa en el ejercicio de sus
+funciones apreciada por los tribunales, haya facilitado la comisión de un
+delito de legitimación de capitales provenientes del narcotráfico.
