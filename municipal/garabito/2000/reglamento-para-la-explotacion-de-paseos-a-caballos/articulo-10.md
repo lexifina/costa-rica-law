@@ -1,0 +1,1 @@
+Artículo 10.—La validez de la patente quedará sujeta al uso del inmueble apto para la explotación de la misma, siempre que cuente con un contrato de arrendamiento, debiéndose comunicar dicho cambio a la municipalidad a efecto de otorgar ésta el permiso de funcionamiento.

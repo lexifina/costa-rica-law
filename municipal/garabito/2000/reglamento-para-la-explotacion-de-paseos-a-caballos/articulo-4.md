@@ -1,0 +1,1 @@
+Artículo 4º—Los animales que transiten por las vías públicas deberán estar debidamente identificados con la respectiva marca del propietario, además, deberán contar un registro médico del Ministerio de Agricultura y Ganadería.

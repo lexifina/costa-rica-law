@@ -1,0 +1,1 @@
+Artículo 6º—Los permisos especiales para topes y cabalgatas deberán contar con los requisitos exigidos por el Departamento de Patentes, previa solicitud así como el permiso de ingeniería de tránsito del Ministerio de Obras Públicas y Transportes, ello con un mes de anticipación.

@@ -1,0 +1,1 @@
+Artículo 2º—Los jinetes que transiten por las vías públicas dentro del cantón de Garabito pueden hacerlo siempre que no desarrollen una activada lucrativa. Se prohíbe a los patentados que ejerzan la actividad lucrativa transitar por las vías públicas y zona marítimo terrestre, con los respectivos animales.
