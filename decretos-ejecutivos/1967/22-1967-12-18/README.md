@@ -13,3 +13,4 @@ Crea Concejo Distrito San Isidro de Peñas Blancas San Ramón Alajuela
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1968-01-04 | la propia norma |
+| 2 | 1968-01-04 | SINALEVI (sin norma nombrada) |
