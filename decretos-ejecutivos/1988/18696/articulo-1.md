@@ -1,67 +1,23 @@
-N§ 18696-MAG-S
+N° 18696-MAG-S
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE AGRICULTURA Y GANADERIA
 Y DE SALUD,
-De conformidad con lo dispuesto por la Constituci¢n
-Pol¡tica; la ley N§ 6243
-Ley de Salud Animal; la ley N§ 5395 Ley General de Salud; la ley
-N§ 190 Ley
-de Pesca y Caza Mar¡timas y la ley N§ 7060 Ley de PROGASA.
+De conformidad con lo dispuesto por la Constitución Política; la ley N° 6243 Ley de Salud Animal; la ley N§ 5395 Ley General de Salud; la ley N° 190 Ley de Pesca y Caza Marítimas y la ley N° 7060 Ley de PROGASA.
 Considerando:
-1§.-Que es funci¢n del Estado establecer medidas higi‚nicas y
-sanitarias
-en la captura, transporte, almacenamiento, proceso y
-comercializaci¢n de productos
-pesqueros de exportaci¢n.
-2§.-Que la exportaci¢n de productos pesqueros significa una
-fuente cada
-vez m s importante de divisas y empleo para el pa¡s, por
-lo que es necesario
-establecer y mantener un programa de estricta inspecci¢n
-veterinaria a cargo
-de autoridades competentes.
-3§.-Que se debe apoyar de manera ordenada y t‚cnica a la
-industria de
-las plantas exportadoras y a la pesca nacional, d ndoles
-la estabilidad y seguridad
-que requieren para su desarrollo.
-4§.-Que en la actualidad se est permitiendo la construcci¢n
-de plantas
-exportadoras de productos pesqueros sin contar con
-elementos de juicio que
-determinen la conveniencia para el pa¡s de tales
-construcciones.
+1°.-Que es función del Estado establecer medidas higiénicas y sanitarias en la captura, transporte, almacenamiento, proceso y comercialización de productos pesqueros de exportación.
+2°.-Que la exportación de productos pesqueros significa una fuente cada vez más importante de divisas y empleo para el país, por lo que es necesario establecer y mantener un programa de estricta inspección veterinaria a cargo de autoridades competentes.
+3°.-Que se debe apoyar de manera ordenada y técnica a la industria de las plantas exportadoras y a la pesca nacional, dándoles la estabilidad y seguridad que requieren para su desarrollo.
+4°.-Que en la actualidad se está permitiendo la construcción de plantas exportadoras de productos pesqueros sin contar con elementos de juicio que determinen la conveniencia para el país de tales construcciones.
 Por tanto,
 DECRETAN:
 El siguiente
-Reglamento de Inspecci¢n
+Reglamento de Inspección
 Veterinaria
 de Productos Pesqueros
 CAPITULO I
 Definiciones
-ARTÖCULO 1§.-Las palabras, nombres, t‚rminos y frases que
-se emplean en
-las disposiciones de este Reglamento se entender n de la
-siguiente forma:
-1§.-Aditivo alimentario: Cualquier sustancia que no se consume
-como alimento
-ni se usa como un ingrediente caracter¡stico del alimento,
-tenga o no valor
-nutritivo y cuya adici¢n intencional al alimento con su fin
-tecnol¢gico
-(incluso organol‚ptico) en la fabricaci¢n, elaboraci¢n,
-tratamiento, envasado,
-empaque, transporte o conservaci¢n de ese alimento resulta
-o es
-de preveer que resulte (directa o indirectamente) en que
-‚l o sus derivados
-pasen a ser un componente de tales alimentos o afecten a
-las caracter¡sticas
-de ‚stos. El t‚rmino no comprende los "contaminantes" ni
-la sustancias
-a¤adidas a los alimentos para mantener o mejorar las
-cualidades
-nutricionales.
+ARTÍCULO 1°.-Las palabras, nombres, términos y frases que se emplean en las disposiciones de este Reglamento se entender n de la siguiente forma:
+1§.-Aditivo alimentario: Cualquier sustancia que no se consume como alimento ni se usa como un ingrediente caracter¡stico del alimento, tenga o no valor nutritivo y cuya adici¢n intencional al alimento con su fin tecnol¢gico (incluso organol‚ptico) en la fabricaci¢n, elaboraci¢n, tratamiento, envasado, empaque, transporte o conservaci¢n de ese alimento resulta o es de preveer que resulte (directa o indirectamente) en que ‚l o sus derivados pasen a ser un componente de tales alimentos o afecten a las caracter¡sticas de ‚stos. El t‚rmino no comprende los "contaminantes" ni la sustancias a¤adidas a los alimentos para mantener o mejorar las cualidades nutricionales.
 2§.-Agua de mar fr¡a: Es agua de mar cuya temperatura es de 0
 grados
 cent¡grados o ligeramente inferior y re£ne las mismas
@@ -226,13 +182,11 @@ del Departamento de Inspecci¢n de Carnes del MAG.
 se enfr¡a el
 producto o una temperatura pr¢xima a cero grados
 cent¡grados.
-40.-Regente veterinario: M‚dico veterinario no nombrado por el
-MAG pero
-registrado en el programa como regente veterinario de un
-establecimiento
-aprobado y por lo tanto plenamente acreditado para cumplir
-las funciones
-oficiales que el programa requiere.
+40. Regente Veterinario: Médico Veterinario debidamente inscrito ante el
+Colegio de Médicos Veterinarios, reconocido por el MAG y registrado en el
+Programa como el profesional responsable de un establecimiento aprobado.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 29082 de
+7 de agosto del 2000)
 41.-Reglamento: Reglamento de Inspecci¢n Veterinaria de
 Productos Pesqueros.
 42.-Retenido: Producto o parte de ‚ste as¡ marcado son
@@ -247,8 +201,11 @@ producto.
 mantendr sano y
 aceptable como alimento para el hombre o vida £til del
 producto.
-46.-Veterinario oficial: M‚dico veterinario nombrado por el
-MAG.
+46. Veterinario Oficial: Médico Veterinario nombrado por el MAG
+u oficializado por éste como Regente, mediante el procedimiento de acreditación respectivo,
+ante un establecimiento aprobado."
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 29082 de 7 de
+agosto del 2000)
 47.-V¡sceras: Despojos que se separan del cuerpo para prolongar
 la vida £til
 del producto.

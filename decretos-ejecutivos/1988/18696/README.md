@@ -13,3 +13,4 @@ Emite Reglamento Inspección Veterinaria de Productos Pesqueros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-12-16 | la propia norma |
+| 2 | 2000-08-07 | Decreto Ejecutivo 29082 (2000-08-07) |
