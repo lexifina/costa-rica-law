@@ -1,0 +1,1 @@
+3°—Si después de realizada la distribución prevista, quedare parte de la finca sin adjudicatario, el Instituto Mixto de Ayuda Social lo distribuirá entre otras familias en condiciones similares a las de los actuales ocupantes.
