@@ -1,0 +1,1 @@
+Artículo 9°—Establecimientos con varios sujetos pasivos. Cuando en un mismo establecimiento varias personas físicas o jurídicas ejerzan actividades lucrativas, el monto del impuesto se determinará y pagará individualmente.

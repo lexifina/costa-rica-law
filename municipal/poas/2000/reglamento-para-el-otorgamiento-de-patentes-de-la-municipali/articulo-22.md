@@ -1,0 +1,1 @@
+Artículo 22.—Ejecutividad de la certificación de la recalificación. La certificación de la Contaduría Municipal en la que se indique la diferencia adeudada por el patentado en virtud de la recalificación sen irá de titulo ejecutivo para efectos de cobro de la misma.

@@ -1,0 +1,1 @@
+Artículo 31.—Permisos específicos. Se indicará dentro del formulario de solicitud a los interesados, cuáles permisos de funcionamiento debe acompañarse con la solicitud de licencia. Únicamente se tramitarán las solicitudes que presenten todos los requisitos que se exigen.

@@ -1,0 +1,1 @@
+Artículo 24.—Notificación. La calificación de oficio o la recalificación efectuada por la Alcaldía Municipal deberá ser notificada de esta al contribuyente, en el local donde se realiza la actividad, mediante los mecanismos establecidos por ley al efecto, con las observaciones o los cargos que se formulen y en su caso las infracciones que se estime ha cometido.

@@ -1,0 +1,1 @@
+Artículo 20.—Confiabilidad de la información. La información suministrada por el contribuyente a la Municipalidad, tiene el carácter confidencial a que se refiere d .artículo 112 del Código de Normas y Procedimientos Tributarios. La violación al deber de confidencialidad será sancionada conforme lo establece la Sección 111, del Capitulo III de dicho cuerpo normativo.

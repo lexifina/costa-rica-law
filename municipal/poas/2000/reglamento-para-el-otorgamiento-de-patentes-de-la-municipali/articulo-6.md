@@ -1,0 +1,1 @@
+Artículo 6°—De los Inspectores Municipales. La Municipalidad contará con un grupo de funcionarios denominados "inspectores", quienes tendrán a su cargo el ejercicio y cumplimiento de las potestades y deberes citados en los artículos anteriores. Dichos funcionarios serán nombrados por el Alcalde conforme a lo establecido al Código Municipal.

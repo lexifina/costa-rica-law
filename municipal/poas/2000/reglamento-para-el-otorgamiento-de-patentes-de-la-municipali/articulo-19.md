@@ -1,0 +1,1 @@
+Artículo 19.—Sanción por prestación tardía de la declaración jurada. En caso omiso en la presentación jurada dentro del término establecido, se sancionara al patentado con la imposición de una multa equivalente al diez por ciento (10%) del impuesto de patentes correspondiente al año anterior.

@@ -1,0 +1,1 @@
+Artículo 30.—Revocatoria del permiso. La revocatoria del permiso de funcionamiento por el organismo competente, involucra la suspensión automática de la licencia, clausura temporal del ejercicio de la actividad, hasta tanto no sea renovado el permiso de funcionamiento pertinente, el cual debe presentarse a la Alcaldía Municipal para la rehabilitación de la patente.
