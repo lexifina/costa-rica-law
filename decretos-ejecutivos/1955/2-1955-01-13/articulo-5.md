@@ -1,1 +1,3 @@
 Artículo 5°—Para la adjudicación de las viviendas, la Junta Directiva se basará en los estudios que, sobre necesidad social, haya realizado el Departamento de Servicio Social y Estadística, estudios que se prepararán, considerando la mayor necesidad social de los solicitantes, así como su posibilidad de satisfacer en forma regular los pagos .
+Toda la documentación se tramitará con alguno de los miembros de la familia beneficiada con la adjudicación, de preferencia con el jefe del grupo, quien deberá ser mayor de edad y capaz y actuará en representación del núcleo familiar.
+(Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 12 de 23 de setiembre de 1960, publicado en La Gaceta N° 227 de 09 de octubre de 1960.)
