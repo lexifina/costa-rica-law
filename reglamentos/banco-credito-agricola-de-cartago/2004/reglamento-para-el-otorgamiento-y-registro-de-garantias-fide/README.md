@@ -14,3 +14,4 @@ Reglamento para el otorgamiento y registro de garantías (Fideicomiso N° 73-200
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-14 | la propia norma |
+| 2 | 2005-03-09 | Reglamento 5 (2005-03-09) |
