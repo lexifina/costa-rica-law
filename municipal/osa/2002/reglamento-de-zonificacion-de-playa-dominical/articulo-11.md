@@ -1,0 +1,5 @@
+Artículo 11.—Zona de parqueo público (ZPP)
+a) Propósito: Zona destinada al estacionamiento de vehículos de transporte turístico y visitantes en general. Además de permitir el suministro de los locales comerciales desde esta zona, sin que los camiones repartidores tengan la necesidad de estacionarse frente a la vía obstruyendo el paso.
+b) Localización: De acuerdo al mapa Nº 20, Anexo Nº 5, identificada con las siglas ZPP, conformada por 3 áreas. La primera donde desemboca la calle principal de acceso entre el mojón 31 y 32; la segunda del mojón 32 + 20 metros al mojón 33 - 40 metros y la última sección se ubicará al final de la calle que recorre la playa entre mojón 33 al mojón 34 - 10 metros.
+c) Usos permitidos: circulación y estacionamiento de automóviles bicicletas, motocicletas, microbuses y remolques de acuerdo al espacio disponible para esta actividad.
+d) Usos condicionales y conflictivos: cualquier actividad que no esté directamente relacionada con la circulación y aparcamiento de vehículos.
