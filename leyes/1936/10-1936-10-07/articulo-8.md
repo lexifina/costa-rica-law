@@ -1,0 +1,3 @@
+Artículo 8º- Fuera del perímetro de las ciudades y villas,y en población de menor importancia fuera de un radio de ochenta y cuatro metros medidos desde la plaza central, o de las estaciones de los ferrocarriles, o del punto más poblado, a juicio de los Gobernadores, no podrá abrirse ningún puesto para la venta de licores.
+El radio dicho puede aumentarse al doble en aquellas poblaciones concentradas en una calle o carretera, pero dicho aumento sólo se concederá por los Gobernadores para esa carretera o calle.
+En las poblaciones donde no haya siquiera un Agente de Policía permanente, no se permitirá abrir ningún puesto.

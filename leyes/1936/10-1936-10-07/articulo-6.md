@@ -1,0 +1,1 @@
+Artículo 6º- Los clubs o casinos, hoteles, restaurantes, casa de huéspedes, cafeterías y hosterías que carezcan de patente para el expendio de licores, no podrán ocupar locales contiguos a establecimientos que la tengan, sino con permiso de la autoridad superior de policía, que les podrá ser retirado en cualquier momento en que se abuse de él, a juicio de la autoridad dicha.

@@ -1,0 +1,1 @@
+Artículo 18.- El rematario de un puesto avisará al Gobernador o Jefe Político el lugar donde abrirá su establecimiento, dando el nombre de la calle y el número de la casa, si lo hubiere. Igualmente le avisará cualquier traslado que se haga a otro punto. El puesto adquirido para una población no puede utilizarse en otra.

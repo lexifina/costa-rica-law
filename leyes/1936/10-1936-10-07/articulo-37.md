@@ -1,0 +1,1 @@
+Artículo 37.- Todo empleado de comercio que preste sus servicios en las ventas autorizadas por la patente especial nacional de licores, tendrá derecho a una retribución extraordinaria. Además tendrá un día de asueto dentro de la semana, sin deducción alguna de su sueldo o salario.

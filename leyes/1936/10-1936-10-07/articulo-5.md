@@ -1,0 +1,1 @@
+Artículo 5º- Los clubs o casinos, hoteles, restaurantes, casas de huéspedes, cafeterías y hosterías podrán mantener puestos para el expendio de licores, sujetándose a las disposiciones de esta ley y siempre que satisfagan, a las municipalidades interesadas, además de sus propios impuestos como clubs, etc., los que corresponden a patentes de licores.
