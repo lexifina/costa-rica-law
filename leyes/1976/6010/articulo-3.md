@@ -1,0 +1,1 @@
+ARTICULO 3°.-Los nuevos salarios que resulten de la aplicación de esta ley regirán a partir de la fecha que, en cada caso, indique la respectiva resolución de la Dirección General de Servicio Civil para la Asamblea Legislativa, y del Tribunal Supremo de Elecciones en su caso.

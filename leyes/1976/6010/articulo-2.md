@@ -1,0 +1,2 @@
+ARTICULO 2°.-Las revaloraciones que se acuerden por este concepto serán reconocidas con el carácter de sobresueldos o sumas adicionales al salario, que está devengando el servidor dentro de la escala de sueldos de la Asamblea Legislativa, el Tribunal Supremo de Elecciones y del Registro Civil, respectivamente.
+Para los servidores de la Asamblea Legislativa cuyo nombramiento rige a partir del 1° de setiembre de 1976 se aplicará la norma contenida en el transitorio de la ley número 5919 de 30 de julio de 1976.
