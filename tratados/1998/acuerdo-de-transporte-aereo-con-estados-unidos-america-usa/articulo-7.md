@@ -1,57 +1,8 @@
 ARTÍCULO 7
 Seguridad de la aviación
-1.- De conformidad con los derechos y obligaciones que les impone el
-derecho internacional, las Partes ratifican que su mutua obligación de
-proteger la seguridad de la aviación civil contra actos de interferencia
-ilícita, constituye parte integrante del presente Acuerdo. Sin limitar la
-validez general de sus derechos y obligaciones en virtud del derecho
-internacional, las Partes actuarán, en particular, de conformidad con las
-disposiciones del Convenio sobre infracciones y ciertos otros actos
-cometidos a bordo de las aeronaves, firmado en Tokio el 14 de setiembre de
-1963, el Convenio para la represión del apoderamiento ilícito de
-aeronaves, firmado en La Haya el 16 de diciembre de 1970 y el Convenio
-para la represión de actos ilícitos contra la seguridad de la aviación
-civil, firmado en Montreal el 23 de setiembre de 1971, y, cuando sea un
-instrumento obligatorio para ambas partes, el Protocolo para la represión
-de los actos ilícitos de violencia en aeropuertos civiles con servicios
-internacionales, firmado en Montreal el 24 de febrero de 1988.
-2.- Las Partes se prestarán mutuamente toda la ayuda necesaria que
-soliciten para impedir actos de apoderamiento ilícito de aeronaves civiles
-y otros actos ilícitos contra la integridad de dichas aeronaves, sus
-pasajeros y tripulación, los aeropuertos y las instalaciones de navegación
-aérea, y toda otra amenaza contra la seguridad de la aviación civil.
-3.- Las Partes actuarán, en sus relaciones mutuas, de conformidad con
-las disposiciones sobre seguridad de la aviación establecidas por la
-Organización de Aviación Civil Internacional y que se denominan Anexos al
-Convenio. Las Partes exigirán que los explotadores de aeronaves de su
-matrícula, los explotadores que tengan la oficina principal o residencia
-permanente en su territorio, y los explotadores de aeropuertos situados en
-su territorio actúen de conformidad con dichas disposiciones sobre
-seguridad de la aviación.
-4.- Cada Parte conviene en observar las disposiciones de seguridad
-que exija la otra Parte para la entrada en su territorio, la salida del
-mismo y mientras se permanezca en él y en tomar medidas adecuadas para
-proteger las aeronaves e inspeccionar a los pasajeros, la tripulación, y
-su equipaje y equipaje de mano, así como la carga y los suministros de las
-aeronaves antes y durante el embarque o la estiba. Cada Parte estará
-también favorablemente predispuesta a atender toda solicitud de la otra
-Parte de que adopte medidas especiales de seguridad con el fin de afrontar
-una amenaza determinada.
-5.- Cuando se produzca un incidente o amenaza de incidente de
-apoderamiento ilícito de aeronaves civiles o de otros actos ilícitos
-contra la seguridad de esas aeronaves, sus pasajeros y tripulación,
-aeropuertos o instalaciones de navegación aérea, las Partes se asistirán
-mutuamente, facilitando las comunicaciones y otras medidas apropiadas
-destinadas a poner término, en forma rápida y segura, a dicho incidente o
-amenaza.
-6.- Cuando una Parte tenga fundamentos razonables para creer que la
-otra Parte se ha desviado de las disposiciones de seguridad de la aviación
-de este Artículo, las autoridades aeronáuticas de dicha Parte pueden
-solicitar la celebración inmediata de consultas con las autoridades
-aeronáuticas de la otra Parte. De no alcanzarse un acuerdo satisfactorio
-en un plazo de 15 días a partir de la fecha de la solicitud, habrá
-justificación para suspender, revocar, restringir o imponer condiciones a
-la autorización de operación y a los permisos técnicos de la línea aérea
-o las líneas aéreas de la otra Parte. Cuando se requiera en caso de
-emergencia, una Parte podrá tomar medidas provisionales antes de la
-expiración de los 15 días.
+1.- De conformidad con los derechos y obligaciones que les impone el derecho internacional, las Partes ratifican que su mutua obligación de proteger la seguridad de la aviación civil contra actos de interferencia ilícita, constituye parte integrante del presente Acuerdo. Sin limitar la validez general de sus derechos y obligaciones en virtud del derecho internacional, las Partes actuarán, en particular, de conformidad con las disposiciones del Convenio sobre infracciones y ciertos otros actos cometidos a bordo de las aeronaves, firmado en Tokio el 14 de setiembre de 1963, el Convenio para la represión del apoderamiento ilícito de aeronaves, firmado en La Haya el 16 de diciembre de 1970 y el Convenio para la represión de actos ilícitos contra la seguridad de la aviación civil, firmado en Montreal el 23 de setiembre de 1971, y, cuando sea un instrumento obligatorio para ambas partes, el Protocolo para la represión de los actos ilícitos de violencia en aeropuertos civiles con servicios internacionales, firmado en Montreal el 24 de febrero de 1988.
+2.- Las Partes se prestarán mutuamente toda la ayuda necesaria que soliciten para impedir actos de apoderamiento ilícito de aeronaves civiles y otros actos ilícitos contra la integridad de dichas aeronaves, sus pasajeros y tripulación, los aeropuertos y las instalaciones de navegación aérea, y toda otra amenaza contra la seguridad de la aviación civil.
+3.- Las Partes actuarán, en sus relaciones mutuas, de conformidad con las disposiciones sobre seguridad de la aviación establecidas por la Organización de Aviación Civil Internacional y que se denominan Anexos al Convenio. Las Partes exigirán que los explotadores de aeronaves de su matrícula, los explotadores que tengan la oficina principal o residencia permanente en su territorio, y los explotadores de aeropuertos situados en su territorio actúen de conformidad con dichas disposiciones sobre seguridad de la aviación.
+4.- Cada Parte conviene en observar las disposiciones de seguridad que exija la otra Parte para la entrada en su territorio, la salida del mismo y mientras se permanezca en él y en tomar medidas adecuadas para proteger las aeronaves e inspeccionar a los pasajeros, la tripulación, y su equipaje y equipaje de mano, así como la carga y los suministros de las aeronaves antes y durante el embarque o la estiba. Cada Parte estará también favorablemente predispuesta a atender toda solicitud de la otra Parte de que adopte medidas especiales de seguridad con el fin de afrontar una amenaza determinada.
+5.- Cuando se produzca un incidente o amenaza de incidente de apoderamiento ilícito de aeronaves civiles o de otros actos ilícitos contra la seguridad de esas aeronaves, sus pasajeros y tripulación, aeropuertos o instalaciones de navegación aérea, las Partes se asistirán mutuamente, facilitando las comunicaciones y otras medidas apropiadas destinadas a poner término, en forma rápida y segura, a dicho incidente o amenaza.
+6.- Cuando una Parte tenga fundamentos razonables para creer que la otra Parte se ha desviado de las disposiciones de seguridad de la aviación de este Artículo, las autoridades aeronáuticas de dicha Parte pueden solicitar la celebración inmediata de consultas con las autoridades aeronáuticas de la otra Parte. De no alcanzarse un acuerdo satisfactorio en un plazo de 15 días a partir de la fecha de la solicitud, habrá justificación para suspender, revocar, restringir o imponer condiciones a la autorización de operación y a los permisos técnicos de la línea aérea o las líneas aéreas de la otra Parte. Cuando se requiera en caso de emergencia, una Parte podrá tomar medidas provisionales antes de la expiración de los 15 días.

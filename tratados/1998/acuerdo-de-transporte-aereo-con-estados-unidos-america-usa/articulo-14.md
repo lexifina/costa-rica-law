@@ -1,58 +1,12 @@
 ARTÍCULO 14
 Arreglo de controversias
-1.- Cualquier controversia que se origine por motivo del presente
-Acuerdo, a excepción de las que se originen del párrafo 3) del Artículo 12
-(Fijación de Tarifas), que no se resuelva en la primera vuelta de
-consultas oficiales, podrá referirse por acuerdo de las Partes para la
-decisión de alguna persona u organismo. Si las Partes no convienen en
-ello, y a solicitud de cualquiera de ellas, la controversia podrá
-referirse a arbitraje conforme a los procedimientos que se estipulan a
-continuación.
-2.- El arbitraje estará a cargo de un tribunal de tres árbitros
-constituido de la siguiente forma:
-A) En el plazo de 30 días del recibo de la petición de arbitraje,
-cada Parte nombrará a un árbitro. En el plazo de 60 días de haber sido
-nombrados, estos dos árbitros nombrarán, de común acuerdo, a un tercer
-árbitro, que desempeñará las funciones de Presidente del Tribunal de
-Arbitraje.
-B) Si cualquiera de las Partes en la controversia no nombra árbitro,
-o si el tercer árbitro no se nombra de conformidad con lo previsto en el
-inciso A) de este párrafo, cualquiera de las Partes en cuestión podrá
-pedir al Presidente del Consejo de la Organización de Aviación Civil
-Internacional que nombre al árbitro o a los árbitros necesarios en el
-plazo de 30 días. Si el Presidente del Consejo es de la nacionalidad de
-una de las Partes, hará el nombramiento el Vicepresidente de rango más
-elevado que no haya sido descalificado por ese motivo.
-3.- A menos que se acuerde lo contrario, el Tribunal de Arbitraje
-fijará los límites de su jurisdicción de conformidad con el presente
-Acuerdo y establecerá su propio procedimiento. El tribunal, una vez
-formado, podrá recomendar la adopción de medidas provisionales de
-desagravio mientras llega a una resolución definitiva. Por iniciativa del
-Tribunal o a solicitud de cualquiera de las Partes, a más tardar a los 15
-días de haberse constituido plenamente el Tribunal, se celebrará una
-conferencia para decidir las cuestiones precisas que se someterán a
-arbitraje y los procedimientos concretos que se seguirán.
-4.- A menos que se acuerde lo contrario, cada Parte en la
-controversia presentará un memorándum en el plazo de los 45 días
-siguientes a la constitución plena del Tribunal. Las respuestas deberán
-recibirse en un plazo de 60 días. El Tribunal celebrará una audiencia a
-petición de cualquiera de las Partes o por su propia iniciativa en el
-plazo de 15 días del vencimiento del plazo para el recibo de las
-respuestas.
-5.- El Tribunal tratará de pronunciar una resolución por escrito en
-el plazo de 30 días de la conclusión de la audiencia, o de no celebrarse
-la audiencia, de la fecha de presentación de las dos respuestas. La
-decisión de la mayoría del tribunal prevalecerá.
-6.- Las Partes podrán presentar solicitudes de aclaración de la
-resolución en el plazo de 15 días de haberse pronunciado, y cualquier
-aclaración que se haga se dictará en el plazo de 15 días de dicha
-solicitud.
-7.- Cada Parte, de acuerdo con su legislación interna, dará pleno
-cumplimiento a cualquier resolución o laudo del Tribunal de Arbitraje.
-8.- Los gastos del Tribunal de Arbitraje, incluidos los honorarios y
-gastos de los árbitros, serán compartidos en montos iguales por las
-Partes. Cualquier gasto en que incurra el Presidente del Consejo de la
-Organización de Aviación Civil Internacional en relación con los
-procedimientos descritos en el inciso b), párrafo 2) del presente
-Artículo, se considerará como parte de los gastos del Tribunal de
-Arbitraje.
+1.- Cualquier controversia que se origine por motivo del presente Acuerdo, a excepción de las que se originen del párrafo 3) del Artículo 12 (Fijación de Tarifas), que no se resuelva en la primera vuelta de consultas oficiales, podrá referirse por acuerdo de las Partes para la decisión de alguna persona u organismo. Si las Partes no convienen en ello, y a solicitud de cualquiera de ellas, la controversia podrá referirse a arbitraje conforme a los procedimientos que se estipulan a continuación.
+2.- El arbitraje estará a cargo de un tribunal de tres árbitros constituido de la siguiente forma:
+A) En el plazo de 30 días del recibo de la petición de arbitraje, cada Parte nombrará a un árbitro. En el plazo de 60 días de haber sido nombrados, estos dos árbitros nombrarán, de común acuerdo, a un tercer árbitro, que desempeñará las funciones de Presidente del Tribunal de Arbitraje.
+B) Si cualquiera de las Partes en la controversia no nombra árbitro, o si el tercer árbitro no se nombra de conformidad con lo previsto en el inciso A) de este párrafo, cualquiera de las Partes en cuestión podrá pedir al Presidente del Consejo de la Organización de Aviación Civil Internacional que nombre al árbitro o a los árbitros necesarios en el plazo de 30 días. Si el Presidente del Consejo es de la nacionalidad de una de las Partes, hará el nombramiento el Vicepresidente de rango más elevado que no haya sido descalificado por ese motivo.
+3.- A menos que se acuerde lo contrario, el Tribunal de Arbitraje fijará los límites de su jurisdicción de conformidad con el presente Acuerdo y establecerá su propio procedimiento. El tribunal, una vez formado, podrá recomendar la adopción de medidas provisionales de desagravio mientras llega a una resolución definitiva. Por iniciativa del Tribunal o a solicitud de cualquiera de las Partes, a más tardar a los 15 días de haberse constituido plenamente el Tribunal, se celebrará una conferencia para decidir las cuestiones precisas que se someterán a arbitraje y los procedimientos concretos que se seguirán.
+4.- A menos que se acuerde lo contrario, cada Parte en la controversia presentará un memorándum en el plazo de los 45 días siguientes a la constitución plena del Tribunal. Las respuestas deberán recibirse en un plazo de 60 días. El Tribunal celebrará una audiencia a petición de cualquiera de las Partes o por su propia iniciativa en el plazo de 15 días del vencimiento del plazo para el recibo de las respuestas.
+5.- El Tribunal tratará de pronunciar una resolución por escrito en el plazo de 30 días de la conclusión de la audiencia, o de no celebrarse la audiencia, de la fecha de presentación de las dos respuestas. La decisión de la mayoría del tribunal prevalecerá.
+6.- Las Partes podrán presentar solicitudes de aclaración de la resolución en el plazo de 15 días de haberse pronunciado, y cualquier aclaración que se haga se dictará en el plazo de 15 días de dicha solicitud.
+7.- Cada Parte, de acuerdo con su legislación interna, dará pleno cumplimiento a cualquier resolución o laudo del Tribunal de Arbitraje.
+8.- Los gastos del Tribunal de Arbitraje, incluidos los honorarios y gastos de los árbitros, serán compartidos en montos iguales por las Partes. Cualquier gasto en que incurra el Presidente del Consejo de la Organización de Aviación Civil Internacional en relación con los procedimientos descritos en el inciso b), párrafo 2) del presente Artículo, se considerará como parte de los gastos del Tribunal de Arbitraje.

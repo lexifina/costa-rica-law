@@ -1,40 +1,9 @@
 ARTÍCULO 12
 Fijación de tarifas
-1.- Cada Parte permitirá que las tarifas del transporte aéreo las
-fije cada línea aérea designada con base en consideraciones comerciales
-del mercado. La intervención de las Partes se limitará a:
+1.- Cada Parte permitirá que las tarifas del transporte aéreo las fije cada línea aérea designada con base en consideraciones comerciales del mercado. La intervención de las Partes se limitará a:
 A) Evitar tarifas o prácticas injustificadamente discriminatorias.
-B) Proteger a los consumidores de unas tarifas que resulten
-injustificadamente elevadas o restrictivas, a causa del abuso de una
-posición dominante.
-C) Proteger a las líneas aéreas contra tarifas que sean
-artificialmente bajas a causa de subvenciones o apoyos oficiales directos
-o indirectos.
-2.- Cada Parte podrá exigir que las tarifas que propongan cobrar para
-la entrada o salida de su territorio las líneas aéreas de la otra Parte se
-notifiquen o presenten a sus autoridades aeronáuticas. No podrá exigirse
-un plazo de notificación o presentación por las líneas aéreas de la otra
-Parte de más de 30 días de anterioridad a la fecha propuesta de vigencia.
-En casos específicos, podrán permitirse plazos más breves de notificación
-o presentación. Una Parte no exigirá que las líneas aéreas de la otra
-Parte notifiquen o presenten las tarifas cobradas al público por los
-fletadores, a menos que se exijan de manera no discriminatoria con fines
-informativos.
-3.- Ninguna de las Partes podrá tomar acción unilateral para evitar
-la entrada en vigencia o la continuación de una tarifa que se proponga
-cobrar o que cobre a) una línea aérea de cualquiera de las Partes para el
-transporte aéreo internacional entre los territorios de las Partes, o b)
-una línea aérea de una Parte para el transporte aéreo internacional entre
-el territorio de la otra Parte y cualquier otro país, incluido en ambos
-casos el transporte compartido entre líneas o dentro de la misma línea. Si
-cualquiera de las Partes considera que dicha tarifa es incompatible con
-las consideraciones expuestas en el párrafo 1) del presente Artículo,
-solicitará la celebración de consultas y notificará a la otra Parte a la
-mayor brevedad las razones de su insatisfacción. Estas consultas se
-celebrarán en un plazo no mayor de 30 días del recibo de la solicitud, y
-las Partes cooperarán a fin de conseguir la información necesaria para la
-resolución razonada del caso. Si las Partes llegan a un acuerdo acerca de
-una tarifa con respecto a la cual se haya presentado un aviso de
-insatisfacción, cada Parte hará su mayor esfuerzo para poner ese acuerdo
-en vigencia. A falta de mutuo acuerdo, esa tarifa entrará o continuará en
-vigencia.
+B) Proteger a los consumidores de unas tarifas que resulten injustificadamente elevadas o restrictivas, a causa del abuso de una posición dominante.
+C) Proteger a las líneas aéreas contra tarifas que sean artificialmente bajas a causa de subvenciones o apoyos oficiales directos o indirectos.
+2.- Cada Parte podrá exigir que las tarifas que propongan cobrar para la entrada o salida de su territorio las líneas aéreas de la otra Parte se notifiquen o presenten a sus autoridades aeronáuticas. No podrá exigirse un plazo de notificación o presentación por las líneas aéreas de la otra Parte de más de 30 días de anterioridad a la fecha propuesta de vigencia.
+En casos específicos, podrán permitirse plazos más breves de notificación o presentación. Una Parte no exigirá que las líneas aéreas de la otra Parte notifiquen o presenten las tarifas cobradas al público por los fletadores, a menos que se exijan de manera no discriminatoria con fines informativos.
+3.- Ninguna de las Partes podrá tomar acción unilateral para evitar la entrada en vigencia o la continuación de una tarifa que se proponga cobrar o que cobre a) una línea aérea de cualquiera de las Partes para el transporte aéreo internacional entre los territorios de las Partes, o b) una línea aérea de una Parte para el transporte aéreo internacional entre el territorio de la otra Parte y cualquier otro país, incluido en ambos casos el transporte compartido entre líneas o dentro de la misma línea. Si cualquiera de las Partes considera que dicha tarifa es incompatible con las consideraciones expuestas en el párrafo 1) del presente Artículo, solicitará la celebración de consultas y notificará a la otra Parte a la mayor brevedad las razones de su insatisfacción. Estas consultas se celebrarán en un plazo no mayor de 30 días del recibo de la solicitud, y las Partes cooperarán a fin de conseguir la información necesaria para la resolución razonada del caso. Si las Partes llegan a un acuerdo acerca de una tarifa con respecto a la cual se haya presentado un aviso de insatisfacción, cada Parte hará su mayor esfuerzo para poner ese acuerdo en vigencia. A falta de mutuo acuerdo, esa tarifa entrará o continuará en vigencia.

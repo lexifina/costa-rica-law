@@ -1,27 +1,4 @@
 ARTÍCULO 6
 Seguridad operacional
-1.- Cada Parte reconocerá como valederos, para el propósito de la
-operación del transporte aéreo previsto en este Acuerdo, los certificados
-de aeronavegabilidad, certificados de competencia, y licencias emitidas o
-validadas por la otra Parte y que todavía tengan vigencia, siempre y
-cuando los requisitos para la obtención de esos certificados o licencias
-sean por lo menos iguales a las normas mínimas que puedan establecerse de
-acuerdo con el Convenio. Sin embargo, cualquiera de las Partes puede
-considerar no valederos para propósitos de vuelo sobre su territorio los
-certificados de competencia y las licencias que la otra Parte emita o
-valide para los nacionales de la primera.
-2.- Cada Parte puede solicitar consultas referentes a las normas de
-seguridad operacional aplicadas por la otra Parte en cuanto a
-instalaciones aeronáuticas, tripulación aérea, aeronaves y operación de
-las líneas aéreas designadas. Si, después de esas consultas, cualquiera de
-las Partes encuentra que la otra Parte no aplica ni administra eficazmente
-normas y requisitos de seguridad operacional que, cuando menos,
-correspondan con las normas mínimas que puedan establecerse de acuerdo con
-el Convenio, la otra Parte será informada mediante notificación de esas
-constataciones y de los pasos que se consideren necesarios para el
-cumplimiento de esas normas mínimas; a su vez, la otra Parte adoptará las
-medidas correctivas pertinentes. Cada una de las Partes se reserva el
-derecho a suspender, revocar o limitar la autorización de operación o el
-permiso técnico de una o más de las líneas aéreas designadas por la otra
-Parte en el caso de que la otra Parte no tome las medidas correctivas
-apropiadas en un plazo razonable.
+1.- Cada Parte reconocerá como valederos, para el propósito de la operación del transporte aéreo previsto en este Acuerdo, los certificados de aeronavegabilidad, certificados de competencia, y licencias emitidas o validadas por la otra Parte y que todavía tengan vigencia, siempre y cuando los requisitos para la obtención de esos certificados o licencias sean por lo menos iguales a las normas mínimas que puedan establecerse de acuerdo con el Convenio. Sin embargo, cualquiera de las Partes puede considerar no valederos para propósitos de vuelo sobre su territorio los certificados de competencia y las licencias que la otra Parte emita o valide para los nacionales de la primera.
+2.- Cada Parte puede solicitar consultas referentes a las normas de seguridad operacional aplicadas por la otra Parte en cuanto a instalaciones aeronáuticas, tripulación aérea, aeronaves y operación de las líneas aéreas designadas. Si, después de esas consultas, cualquiera de las Partes encuentra que la otra Parte no aplica ni administra eficazmente normas y requisitos de seguridad operacional que, cuando menos, correspondan con las normas mínimas que puedan establecerse de acuerdo con el Convenio, la otra Parte será informada mediante notificación de esas constataciones y de los pasos que se consideren necesarios para el cumplimiento de esas normas mínimas; a su vez, la otra Parte adoptará las medidas correctivas pertinentes. Cada una de las Partes se reserva el derecho a suspender, revocar o limitar la autorización de operación o el permiso técnico de una o más de las líneas aéreas designadas por la otra Parte en el caso de que la otra Parte no tome las medidas correctivas apropiadas en un plazo razonable.

@@ -1,76 +1,12 @@
 ARTÍCULO 8
 Oportunidades comerciales
-1.- Las líneas aéreas de cada Parte tendrán el derecho a establecer
-oficinas en el territorio de la otra Parte para la promoción y venta de
-transporte aéreo.
-2.- Las líneas aéreas designadas de una Parte estarán autorizadas, de
-acuerdo con las leyes y los reglamentos de la otra Parte relativos a la
-entrada, la residencia y el empleo, a traer y mantener en el territorio de
-la otra Parte al personal de nivel gerencial, de ventas, técnico,
-operativo y de otras especialidades que se requiera para la prestación del
-transporte aéreo.
-3.- Cada una de las líneas aéreas designadas tendrá el derecho a
-llevar a cabo sus propios servicios de escala en el territorio de la otra
-Parte ("self-handling") o, si lo prefiere, seleccionar a uno o más entre
-los diferentes agentes que compiten por esos servicios para que los lleven
-a cabo total o parcialmente. Estos derechos solamente estarán sujetos a
-las restricciones físicas que resulten de las consideraciones de seguridad
-del aeropuerto. Cuando esas consideraciones no permitan dichos servicios
-de escala propios, los servicios de escala estarán disponibles en
-condiciones de igualdad para todas las líneas aéreas; los cargos por los
-mismos se basarán en los costos del servicio prestado; y esos servicios
-deberán ser comparables en clase y calidad a los servicios de escala
-propios, si hubiera sido posible tenerlos.
-4.- Cualquier línea aérea de cada Parte puede dedicarse a la venta
-del transporte aéreo directamente en el territorio de la otra Parte y, a
-criterio de la misma línea aérea, por medio de sus agentes, excepto por
-las disposiciones específicas sobre vuelos no regulares del país en el
-cual estos se originen y que se relacionen con la protección de los fondos
-de los pasajeros, y con los derechos de cancelación y reembolso de los
-pasajeros. Cada línea aérea tendrá el derecho a vender ese tipo de
-transporte, y cualquier persona estará en libertad de comprar ese
-transporte en la moneda de ese territorio, o en monedas de libre
-conversión.
-5.- Cada línea aérea de cualquiera de las Partes tendrá derecho,
-previa solicitud, a convertir y remitir a su país, los ingresos obtenidos
-en el territorio de la otra Parte que excedan las sumas desembolsadas en
-el mismo. La conversión y remisión de esas sumas se permitirá con
-prontitud, sin imponerles restricciones ni gravámenes, al tipo de cambio
-aplicable a las transacciones y transferencias corrientes en la fecha en
-que el transportista presenta la solicitud inicial para la transferencia.
-6.- Se permitirá que las líneas aéreas de cada Parte paguen los
-gastos incurridos en el territorio de la otra Parte, incluidas las compras
-de combustible, en la moneda del país. A su criterio, las líneas aéreas de
-una Parte podrán pagar dichos gastos en el territorio de la otra Parte en
-monedas libremente convertibles, de conformidad con la reglamentación
-monetaria del país.
-7.- Al explotar u ofrecer los servicios autorizados en las rutas
-acordadas, cualquier línea aérea designada de una Parte podrá concertar
-arreglos cooperativos de comercialización, por ejemplo, arreglos de
-fletamento parcial, de código compartido o de arrendamiento, con:
+1.- Las líneas aéreas de cada Parte tendrán el derecho a establecer oficinas en el territorio de la otra Parte para la promoción y venta de transporte aéreo.
+2.- Las líneas aéreas designadas de una Parte estarán autorizadas, de acuerdo con las leyes y los reglamentos de la otra Parte relativos a la entrada, la residencia y el empleo, a traer y mantener en el territorio de la otra Parte al personal de nivel gerencial, de ventas, técnico, operativo y de otras especialidades que se requiera para la prestación del transporte aéreo.
+3.- Cada una de las líneas aéreas designadas tendrá el derecho a llevar a cabo sus propios servicios de escala en el territorio de la otra Parte ("self-handling") o, si lo prefiere, seleccionar a uno o más entre los diferentes agentes que compiten por esos servicios para que los lleven a cabo total o parcialmente. Estos derechos solamente estarán sujetos a las restricciones físicas que resulten de las consideraciones de seguridad del aeropuerto. Cuando esas consideraciones no permitan dichos servicios de escala propios, los servicios de escala estarán disponibles en condiciones de igualdad para todas las líneas aéreas; los cargos por los mismos se basarán en los costos del servicio prestado; y esos servicios deberán ser comparables en clase y calidad a los servicios de escala propios, si hubiera sido posible tenerlos.
+4.- Cualquier línea aérea de cada Parte puede dedicarse a la venta del transporte aéreo directamente en el territorio de la otra Parte y, a criterio de la misma línea aérea, por medio de sus agentes, excepto por las disposiciones específicas sobre vuelos no regulares del país en el cual estos se originen y que se relacionen con la protección de los fondos de los pasajeros, y con los derechos de cancelación y reembolso de los pasajeros. Cada línea aérea tendrá el derecho a vender ese tipo de transporte, y cualquier persona estará en libertad de comprar ese transporte en la moneda de ese territorio, o en monedas de libre conversión.
+5.- Cada línea aérea de cualquiera de las Partes tendrá derecho, previa solicitud, a convertir y remitir a su país, los ingresos obtenidos en el territorio de la otra Parte que excedan las sumas desembolsadas en el mismo. La conversión y remisión de esas sumas se permitirá con prontitud, sin imponerles restricciones ni gravámenes, al tipo de cambio aplicable a las transacciones y transferencias corrientes en la fecha en que el transportista presenta la solicitud inicial para la transferencia.
+6.- Se permitirá que las líneas aéreas de cada Parte paguen los gastos incurridos en el territorio de la otra Parte, incluidas las compras de combustible, en la moneda del país. A su criterio, las líneas aéreas de una Parte podrán pagar dichos gastos en el territorio de la otra Parte en monedas libremente convertibles, de conformidad con la reglamentación monetaria del país.
+7.- Al explotar u ofrecer los servicios autorizados en las rutas acordadas, cualquier línea aérea designada de una Parte podrá concertar arreglos cooperativos de comercialización, por ejemplo, arreglos de fletamento parcial, de código compartido o de arrendamiento, con:
 a) Una línea aérea o más de cualquiera de las Partes.
-b) Una línea aérea o más de un tercer país, siempre y cuando dicho
-tercer país autorice o permita arreglos equiparables entre las líneas
-aéreas de la otra Parte y otras líneas aéreas en los servicios a dicho
-tercer país, o desde él, o a través de su territorio, a condición de que
-todas las líneas aéreas que concierten dichos arreglos 1) tengan la debida
-autorización y 2) cumplan con los requisitos que se apliquen normalmente
-a dichos arreglos.
-8.- Sin perjuicio de cualquier otra disposición del presente Acuerdo,
-se permitirá sin restricciones a las líneas aéreas y los prestadores
-indirectos de transporte de carga de las dos Partes que empleen, en
-relación con el transporte aéreo internacional, cualquier transporte
-terrestre de carga a cualesquiera puntos en el territorio de las Partes o
-de terceros países o desde ellos, lo que incluye el transporte a todo
-aeropuerto que cuente con servicios aduaneros o desde dicho aeropuerto, y
-también, cuando sea pertinente, el derecho a transportar carga bajo
-fianza, según las leyes y los reglamentos aplicables. Dicha carga, ya se
-transporte por tierra o por aire, tendrá acceso a la tramitación y a las
-instalaciones aduaneras aeroportuarias. Las líneas aéreas, a su
-iniciativa, podrán efectuar su propio transporte terrestre o prestarlo por
-medio de acuerdos con otros transportistas terrestres, incluido el
-transporte terrestre que presten otras líneas aéreas y los prestadores
-indirectos de transporte de carga aérea. Estos servicios intermodales de
-carga pueden ofrecerse a una sola tarifa directa para el transporte aéreo
-y terrestre combinado, siempre y cuando no se engañe a los remitentes
-acerca de las circunstancias de dicho transporte.
+b) Una línea aérea o más de un tercer país, siempre y cuando dicho tercer país autorice o permita arreglos equiparables entre las líneas aéreas de la otra Parte y otras líneas aéreas en los servicios a dicho tercer país, o desde él, o a través de su territorio, a condición de que todas las líneas aéreas que concierten dichos arreglos 1) tengan la debida autorización y 2) cumplan con los requisitos que se apliquen normalmente a dichos arreglos.
+8.- Sin perjuicio de cualquier otra disposición del presente Acuerdo, se permitirá sin restricciones a las líneas aéreas y los prestadores indirectos de transporte de carga de las dos Partes que empleen, en relación con el transporte aéreo internacional, cualquier transporte terrestre de carga a cualesquiera puntos en el territorio de las Partes o de terceros países o desde ellos, lo que incluye el transporte a todo aeropuerto que cuente con servicios aduaneros o desde dicho aeropuerto, y también, cuando sea pertinente, el derecho a transportar carga bajo fianza, según las leyes y los reglamentos aplicables. Dicha carga, ya se transporte por tierra o por aire, tendrá acceso a la tramitación y a las instalaciones aduaneras aeroportuarias. Las líneas aéreas, a su iniciativa, podrán efectuar su propio transporte terrestre o prestarlo por medio de acuerdos con otros transportistas terrestres, incluido el transporte terrestre que presten otras líneas aéreas y los prestadores indirectos de transporte de carga aérea. Estos servicios intermodales de carga pueden ofrecerse a una sola tarifa directa para el transporte aéreo y terrestre combinado, siempre y cuando no se engañe a los remitentes acerca de las circunstancias de dicho transporte.
