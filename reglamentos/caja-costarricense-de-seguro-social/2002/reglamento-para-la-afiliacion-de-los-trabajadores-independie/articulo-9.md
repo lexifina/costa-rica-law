@@ -1,0 +1,1 @@
+Artículo 9º—Del Seguro Familiar. Tanto el TRABAJADOR INDEPENDIENTE COMO EL ASEGURADO VOLUNTARIO propiamente dicho, tienen derecho a la protección del Seguro Familiar, conforme las normas que al efecto se señalan en el Reglamento del Seguro de Salud.

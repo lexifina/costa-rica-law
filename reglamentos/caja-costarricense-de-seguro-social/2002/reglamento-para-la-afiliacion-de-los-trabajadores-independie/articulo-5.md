@@ -1,0 +1,3 @@
+Artículo 5º—Del Ingreso al Seguro de I.V.M. Con las salvedades que se señalan en este Reglamento, la afiliación como Trabajador Independiente, conlleva la obligatoriedad de cotizar simultáneamente para el Seguro de Invalidez, Vejez y Muerte.
+En el caso de personas que al momento de solicitar su inclusión, se encontraren inválidos o sean mayores de 50 años de edad, su afiliación procede si tiene cuotas acreditadas según las disposiciones que dicte la Junta Directiva.
+Si se diere el estado de invalidez en los términos que define el Reglamento de Invalidez Vejez y Muerte, puede aceptarse el ingreso en el entendido de que el Seguro cubre únicamente los riesgos de vejez y muerte.

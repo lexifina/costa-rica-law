@@ -1,0 +1,1 @@
+Artículo 3º—De la Cobertura. Dentro de la presente modalidad de aseguramiento, para efectos de cobertura, se consideran únicamente las dos categorías de asegurados ya definidos: los trabajadores independientes, con actividad productiva generadora de ingresos y los asegurados voluntarios, sin actividad generadora de ingresos.

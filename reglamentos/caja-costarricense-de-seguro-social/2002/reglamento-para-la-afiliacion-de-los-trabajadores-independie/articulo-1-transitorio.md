@@ -1,0 +1,1 @@
+Transitorio I.—Los afiliados al Seguro de Enfermedad y Maternidad bajo la modalidad de Seguro Voluntario, inscritos antes del 1º de enero de 1996, podrán ingresar voluntariamente al Seguro de Invalidez, Vejez y Muerte, con sujeción a los requisitos previstos en este Reglamento.
