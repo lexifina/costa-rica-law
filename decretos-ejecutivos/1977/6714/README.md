@@ -14,3 +14,4 @@ Declara el Aeropuerto Juan Santamaría aeródromo para Transporte Aéreo Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-01-27 | la propia norma |
+| 2 | 1977-02-21 | Decreto Ejecutivo 6805 (1977-02-21) |
