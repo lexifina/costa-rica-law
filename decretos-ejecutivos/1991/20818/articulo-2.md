@@ -1,0 +1,1 @@
+Artículo 2°- EI Servicio Nacional de Electricidad fijará los márgenes de utilidad de las estaciones de servicio en virtud de la venta de combustible. Tal fijación la hará conforme con la metodología a que hace referencia el artículo anterior.

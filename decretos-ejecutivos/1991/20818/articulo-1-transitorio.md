@@ -1,0 +1,3 @@
+Transitorio único: Dentro de un plazo no mayor de seis meses, contados a partir de la publicación del presente decreto ejecutivo, el Servicio Nacional de Electricidad en conjunto con representantes de los gasolineras, definirán los mecanismos de coordinación para el suministro y manejo de la información que se requiera para la evaluación periódica de las estaciones de servicio,
+Dado en la Presidencia de la República.-San José, a los dieciocho días del mes de octubre de mil novecientos noventa y uno.
+R. A. CALDERON.-El Ministro de Recursos Naturales. Energía v Minas, Hernán Bravo Trejos.-C-4476.

@@ -1,0 +1,1 @@
+Artículo 5°- El Servicio Nacional de Electricidad realizará a solicitud de los gasolineros, y al menos una vez al año en el mes de junio una revisión ordinaria de los márgenes de utilidad establecidos, y dispondrá de treinta días hábiles para resolver lo que en derecho corresponda.

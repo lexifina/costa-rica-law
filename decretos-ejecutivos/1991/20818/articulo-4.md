@@ -1,0 +1,1 @@
+Artículo 4°- Esta metodología define un margen único para todas las estaciones de servicio del país. El no cumplimiento de las condiciones establecidas en el decreto ejecutivo N° 19164-MIRENEM-MEIC-TSS y sus reformas, acarreará las responsabilidades que el mismo establece.

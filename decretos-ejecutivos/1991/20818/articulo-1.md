@@ -1,0 +1,15 @@
+N° 20818-MIRENEM
+EL PRESIDENTE DE LA REPUBLlCA
+Y EL MINISTRO DE RECURSOS NATURALES, ENERGIA Y MINAS.
+Con fundamento en-lo dispuesto por el artículo 140, incisos 3) y 18) de la Constitución Política, artículo 21, inciso 2) de la Ley General de la Administración Pública, artículo 3° de la ley N'° 7152 del 21 de de junio de 1990, el decreto ejecutivo N° 19164-MIRENEM-MEIC-TSS del 21 de setiembre de 1989 y el decreto ejecutivo N° 16279-MIEM del 29 de mayo de 1985,
+Considerando:
+1°-Que el Servicio Nacional de Electricidad es e! organismo competente para la fijación de los márgenes de utilidad de los expendedores y transportistas de combustibles, de conformidad con lo dispuesto por la ley N° 6588 del 30 de julio de 1981 y los pronunciamientos de la Procuraduría General de la República números C-45 del 16 de marzo de 1982, C-211 del 3 de setiembre de 1982, C-380 del 30 de noviembre de 1984, C-IO 1 del 9 de junio de 1988; además de los documentos números 1-40-86, 1-43-86, 1-93-87 v 2-1'38-85 también emitidos por la Procuraduría General de la República.
+2°-Que la Junta Directiva del Servicio Nacional de Electricidad, en ejercicio de las facultades que le han sido conferidas a esa Institución, mediante el artículo IV, inciso 5) de la sesión ordinaria N° 26276, celebrada el 5 de marzo de 1991, ratificada el 13 del mismo mes y año; acordó integrar una comisión con el objeto de que se elaborara un estudio que permitiera determinar un mecanismo de fijación tarifaría para determinar el margen de utilidad bruta de las estaciones expendedoras de combustibles. Dicha comisión estuvo integrada por representantes del Ministerio de Recursos Naturales, Energía y Minas, la Refinadora Costarricense de Petróleo, la Asociación Costarricense de Expendedores de Combustibles, los gasolineros independientes y el Servicio Nacional de Electricidad.
+-Que con fundamento en las recomendaciones emitidas por la citada comisión, se estima oportuno y conveniente emitir el presente decreto ejecutivo, mismo que recoge las citadas recomendaciones, Por tanto,
+DECRETAN
+Artículo 1°-Definiciones:
+Estación de servicio: todo establecimiento destinado al expendio de combustible al público en general.
+Estación de servicio tipo: es la conceptualización para efectos del cálculo tarifario, de una estación de servicio que cumpla con las características técnicas establecidas en el decreto ejecutivo N° 19164-MIRENEM-MEIC-TSS v sus reformas así como con las demás funciones operativas definidas en la metodología que defina al efecto el Servicio Nacional de Electricidad.
+Margen de utilidad: es el margen de comercialización que obtienen las estaciones de servicio por cada litro de combustible vendido; monto que es igual a la diferencia existente entre el precio de compra que le facture la Refinadora Costarricense de Petróleo y el de venta al consumidor.
+Base tarifaria : es el valor del activo fijo neto revaluado en operación, más el capital de trabajo.
+Rentabilidad tarifaria : es la relación existente entre el resultado neto de operación de la estación de servicio tipo, y su base tarifaria.
