@@ -13,3 +13,4 @@ Reglamento de los Guías de Turismo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-01-22 | la propia norma |
+| 2 | 1979-01-22 | SINALEVI (sin norma nombrada) |

@@ -1,6 +1,5 @@
-Artículo 8º.- Además de las funciones antes señaladas, los guías son
+Artículo 8º.- Además de las funciones señaladas, los Guías son
 colaboradores ad honórem del Instituto en la protección y vigilancia del
-Patrimonio Turístico Nacional y en el control de las empresas y
-actividades turísticas.
-Cualquier deficiencia o infracción que observen en el cumplimiento
-de sus funciones, deben reportarla por escrito al Instituto.
+Patrimonio Turístico Nacional.
+(Así reformado por Decreto Nº 10542 de 19 de setiembre de 1979, artículo
+1º)
