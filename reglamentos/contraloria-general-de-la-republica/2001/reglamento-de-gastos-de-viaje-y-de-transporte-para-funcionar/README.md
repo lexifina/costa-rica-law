@@ -14,3 +14,4 @@ Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-22 | la propia norma |
+| 2 | 2001-11-29 | Reglamento 22 (2001-11-29) |
