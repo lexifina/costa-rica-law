@@ -1,0 +1,1 @@
+Artículo 17º.-La referencia a costos promedio de estancia, se hará de acuerdo con la última información disponible en la Institución aseguradora, según las informaciones que hayan suministrado las instituciones prestatarias del servicio. Cual do se trate de centros propios del Instituto Nacional de Seguros, los costos se referirán al promedio de los últimos tres meses informados.

@@ -1,0 +1,1 @@
+Artículo 12º.-En caso de conflicto de órdenes de diversas autoridades sobre paralización de labores o cierre de establecimientos, resolverá en única instancia el Ministro de Trabajo y Seguridad Social, en un plazo no mayor de tres días.

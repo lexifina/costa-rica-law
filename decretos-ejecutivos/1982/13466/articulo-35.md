@@ -1,0 +1,1 @@
+Artículo 35.-La Junta a que se refiere el artículo anterior celebrará sus reuniones en el local que al efecto le señale el Ministerio de Trabajo y Seguridad Social, el cual podrá ser facilitado por el Instituto asegurador.

@@ -1,0 +1,1 @@
+Articulo 23.-Las sumas mencionadas en el artículo anterior se reintegrarán al familiar del occiso, o a cualquier otra persona, que demostrare haber cumplido con el pago de estos servicios o incurrido en obligaciones económicas por esta misma razón. Cuando se tratare de varias personas que hayan asumido la obligación, el reintegro se hará de manera proporcional.

@@ -1,0 +1,1 @@
+ARTICULO 13.-En todo caso de paralización de trabajos o cierre de establecimientos por falta del seguro de riesgos de trabajo, el patrono es responsable de los salarios que por el motivo dejen de percibir sus trabajadores, sin perjuicio de las sanciones que puedan corresponderle por la infracción de la ley.

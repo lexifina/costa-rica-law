@@ -1,0 +1,1 @@
+Articulo 34.-La Junta Médico-Calificadora de Incapacidad para el Trabajo, sesionará ordinariamente una vez por semana y extraordinariamente cuando así lo disponga la mayoría de sus integrantes o, en su caso, sea convocada por el Presidente. En ningún caso se remunerarán más de ocho sesiones por mes.

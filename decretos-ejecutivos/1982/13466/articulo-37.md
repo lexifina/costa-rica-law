@@ -1,0 +1,1 @@
+Articulo 37.-Dentro de los treinta días siguientes a su instalación, la Junta Médica. Calificadora de Incapacidad para el Trabajo propondrá al Poder Ejecutivo las normas que estime pertinentes, en cuanto a su modus operandi, para los efectos del articulo 267 del Código de Trabajo.

@@ -1,0 +1,2 @@
+Artículo 20.-Cuando la Inspección General de Trabajo prevenga a los patronos sobre medidas en materia de salud ocupacional, remitirá copia de sus disposiciones a la oficina competente del Instituto Nacional de Seguros. En igual forma procederá dicho Instituto, informando a la Inspección General aludida de todos los casos que haya tramitado sobre prevenciones en materia de salud ocupacional.
+En todos estos casos se seguirá el curso de entrega más rápido.

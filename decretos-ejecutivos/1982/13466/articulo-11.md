@@ -1,0 +1,2 @@
+Artículo 11º.-De la paralización de labores o el cierre de establecimientos, se dará aviso inmediato a la Guardia Civil o, en su caso, a la de Asistencia Rural, cuyo concurso podrán solicitar los inspectores, a efecto de que sus disposiciones en esta materia sean cumplidas.
+La reanudación de labores o la reapertura de establecimientos, cuando corresponda, igualmente serán comunicadas a las autoridades señaladas en el párrafo anterior

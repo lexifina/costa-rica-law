@@ -1,0 +1,1 @@
+Transitorio I.- Dentro de los noventa días siguientes a la promulgación del presente Reglamento, las entidades señaladas en el articulo 32 harán la remisión, de las recomendaciones que ahí se señalan al Ministerio de Trabajo y Seguridad Social, para la emisión del decreto que reglamenta las condiciones de trabajo de los minusválidos.

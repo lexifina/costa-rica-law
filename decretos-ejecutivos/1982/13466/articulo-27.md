@@ -1,0 +1,1 @@
+Artículo 27.-El Consejo de Salud Ocupacional, cuando así lo estime necesario en vista de los atestados o investigaciones que efectúe, igualmente podrá solicitar la ampliación de la Tabla de Enfermedades de Trabajo, evento en que únicamente será necesario, de previo a la promulgación del decreto respectivo, la consulta a la Junta Directiva del Instituto asegurador.

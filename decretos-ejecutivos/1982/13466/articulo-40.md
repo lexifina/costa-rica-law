@@ -1,0 +1,1 @@
+Artículo 40.-Las sesiones que celebre este Consejo serán cuatro ordinarias por mes y sólo se reunirán extraordinariamente cuando sea necesario. Las dietas que devengarán los integrantes de este Consejo serán de cuatrocientos colones por sesión. No podrán remunerarse más de seis sesiones mensuales.

@@ -1,0 +1,1 @@
+Articulo 33 -El mencionado Reglamento contendrá la determinación de las cuotas a que están obligadas las empresas, públicas y privadas, en la colocación selectiva de minusválidos. Estas cuotas serán consultadas a las organizaciones más representativas de patronos y de trabajadores, por un plazo no mayor de treinta días, antes de la promulgación del decreto respectivo

@@ -1,0 +1,2 @@
+Articulo 28.-El Instituto Nacional de Seguros celebrará convenios con las instituciones públicas que puedan suministrar servicios médico-quirúrgicos y hospitalarios que se requieran para la administración del régimen de riesgos del trabajo. En tales convenios se determinará todo lo relativo al pago de dichos servicios.
+A falta de convenio expreso, en cuanto al costo, regirá la tarifa que determine la Contraloría General de la República.

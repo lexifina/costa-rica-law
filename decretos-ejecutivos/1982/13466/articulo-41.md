@@ -1,0 +1,1 @@
+Articulo 41.-El Poder Ejecutivo, a propuesta del Consejo de Salud Ocupacional emitirá un Reglamento que regule su estructura administrativa y el régimen interno para su funcionamiento, así como también los reglamentos de salud Ocupacional sobre las diversas actividades laborales que requieren normas generales o especificas de seguridad e higiene en el trabajo.

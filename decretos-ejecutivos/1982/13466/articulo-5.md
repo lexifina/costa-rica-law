@@ -1,0 +1,1 @@
+Articulo 5º-Las interrupciones o variaciones del recorrido que no se enmarcan en las previsiones de los artículos precedentes, podrán ser calificados como eventos amparados, cuando el trabajador empleó para realizar el trayecto un tiempo superior al normal, en actos de la vida usual, en conducta normal.

@@ -1,0 +1,1 @@
+Articulo 25º.-El Consejo de Salud Ocupacional podrá disponer modificaciones de la lista de artículos y medicamentos que ha de contener el botiquín de emergencia, según el articulo anterior, considerando las particulares características y condiciones de los centros de trabajo.

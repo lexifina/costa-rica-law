@@ -1,0 +1,1 @@
+Articulo 31 -Cuando se trate de periodos de incapacidad temporal menores de una semana, el Instituto Nacional de Seguros pagará los subsidios a los trabajadores de que se trate, a más tardar el día hábil anterior a su reintegro al trabajo.

@@ -1,0 +1,1 @@
+Artículo 29.-Cuando la incapacidad temporal originada en un riesgo del trabajo, se prolongue por más de una semana, el Instituto Nacional de Seguros deberá hacer los pagos por ese concepto de manera tal que en el transcurso de la semana, los trabajadores incapacitados reciban el subsidio por los días de incapacidad transcurridos.
