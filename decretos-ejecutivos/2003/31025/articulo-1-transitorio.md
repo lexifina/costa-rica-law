@@ -1,0 +1,2 @@
+Transitorio único.—Se concede un plazo de seis meses, a aquellas personas físicas y jurídicas que cuenten con productos repelentes conteniendo DEET como ingrediente activo registrados ante las autoridades del Ministerio de Salud, para cancelar voluntariamente el registro de productos que sobrepasen las concentraciones establecidas, y un plazo de un año para realizar las modificaciones en el etiquetado establecidas en el presente reglamento.
+Dado en la presidencia de la República.—San José, a los ocho días del mes de enero del dos mil tres.

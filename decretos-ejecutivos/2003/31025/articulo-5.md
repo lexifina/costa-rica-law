@@ -1,0 +1,1 @@
+Artículo 5º—Proporción autorizada para población infantil: Se autorizará la fabricación, importación, registro y uso de repelentes que contengan DEET como ingrediente activo en concentraciones de hasta un diez por ciento (10%) de concentración cuyo uso será en niños de hasta doce (12) años, en aplicaciones que no excedan de más de tres (3) veces al día.

@@ -1,0 +1,1 @@
+Artículo 7º—Prohibiciones: Se prohíbe la fabricación, importación, registro y uso de productos que mezclen repelente que contengan DEET como ingrediente activo, con bloqueadores de sol, bronceadores y cualquier otro cosmético.

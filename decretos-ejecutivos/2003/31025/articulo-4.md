@@ -1,0 +1,1 @@
+Artículo 4º—Proporción autorizada para población adulta: Se autorizará la fabricación, importación, registro y uso de repelentes que contengan DEET como ingrediente activo en concentraciones de hasta treinta por ciento (30%) de concentración; y cuyo uso queda restringido para adultos y niños mayores de doce (12) años.

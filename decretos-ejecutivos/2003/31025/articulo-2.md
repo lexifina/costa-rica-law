@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: Este reglamento es de aplicación a todas las personas físicas y jurídicas que fabriquen, importen, registren, comercialicen y usen repelentes contra insectos que en su composición contengan DEET.

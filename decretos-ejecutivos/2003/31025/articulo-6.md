@@ -1,0 +1,1 @@
+Artículo 6º—Uso no autorizado: No se autoriza el uso de repelentes que contengan DEET como ingrediente activo en infantes de menos de seis (6) meses. Lo cual deberá indicarse expresamente en el etiquetado del producto.
