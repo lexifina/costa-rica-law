@@ -1,0 +1,3 @@
+Artículo 8°—Planeamiento de necesidades:
+Todas las unidades de RECOPE deberán planificar sus necesidades de bienes servicios y arrendamientos y hacer las respectivas solicitudes a la Dirección de Suministros y Servicios o a la unidad desconcentrada que corresponda con suficiente anticipación, conforme al instructivo correspondiente.
+Cuando se trate de contratar obras, previamente a iniciar el procedimiento, se deberán hacer estudios de costos o estimaciones que permitan determinar la equidad de los precios cobrados por los contratistas particulares, así como valorar si los precios cotizados son exagerados o ruinosos para el oferente.

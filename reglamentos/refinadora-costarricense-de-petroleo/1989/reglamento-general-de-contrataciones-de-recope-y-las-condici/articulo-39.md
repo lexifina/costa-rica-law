@@ -1,0 +1,4 @@
+Artículo 39.—Garantías adicionales respecto a los materiales y equipos ofrecidos:
+a) El período mínimo de garantía de los materiales y equipos será de un mes o el establecido en las condiciones específicas del cartel de la licitación, además el proponente en su oferta puede indicar otras garantías adicionales que sobre ellos se dan.
+b) El adjudicatario quedará obligado a reponer por sus propios medios, los componentes, materiales o equipos que se compruebe se havan dañado durante el período de garantía como consecuencia de defectos de fábrica, por mala calidad de los materiales empleados, por deficiente embalaje o por cualquier otra causa que se demuestre imputable al adjudicatario. Tales reposiciones no generarán costo alguno para RECOPE.
+c) Los materiales, equipos o componentes reemplazados por los dañados, gozarán las mismas garantías de reemplazo por cuenta y riesgo del adjudicatario durante los mismos plazos en que se garantizaron los originalmente suplidos.
