@@ -1,0 +1,2 @@
+ARTICULO 6 - PRERROGATIVAS •
+A los empleados del USDA que participen en el Programa que no sean ciudadanos de Costa Rica se les otorgarán los mismos privilegios, inmunidades y exenciones proporcionados al personal diplomático estadounidense asignado a la Embajada de los Estados Unidos. Los fondos, equipo y suministros utilizados por el USDA o proporcionados o prestados por el USDA al Programa, para llevar a cabo las actividades designadas, deberán ser considerados como propiedad del Gobierno de los Estados Unidos.

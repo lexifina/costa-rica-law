@@ -1,0 +1,2 @@
+ARTICULO 2 - COMITÉ CONSULTIVO
+Se establecerá un Comité Consultivo, el cual estará integrado por cuatro miembros designados por el Ministro de Agricultura y Ganadería Costa Rica y cuatro miembros designados por el Secretario de Agricultura de los Estados Unidos de América. El Comité Consultivo se reunirá por lo menos anualmente, y en otras ocasiones, según lo considere necesario a fin de analizar las actividades del Programa, proporcionar asesoría y autorizar los planes de trabajo y los presupuestos anuales.

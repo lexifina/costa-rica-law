@@ -1,0 +1,3 @@
+ARTICULO 4 - SALARIOS, PRESTACIONES Y GASTOS
+Los salarios, presentaciones y gastos de los empleados del USDA o de personal de contrato del USDA involucrados en el Programa serán pagados por USDA.
+Los salarios, prestaciones y gastos de otro personal empleado para Director designado por el MAG serán pagados con fondos del Programa. Los niveles de pago competitivos, basados en las condiciones locales, serán establecidos por el Programa a fin de atraer y mantener personal altamente calificado y motivado, necesario para lograr el éxito del Programa. El personal empleado por el Programa colaborará con dedicación plena para el mismo, por lo tanto, queda prohibido cualquier empleo adicional.
