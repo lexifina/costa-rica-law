@@ -14,3 +14,4 @@ Reglamento Operación de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-08-10 | la propia norma |
+| 2 | 2001-07-16 | Reglamento municipal 202 (2001-07-16) |

@@ -1,1 +1,2 @@
-4.-Ningún pago por Caja Chica podrá ser mayor a la suma de cinco mil colones sin céntimos, (¢5.000,00).
+4.-Ningún pago por caja chica, podrá ser mayor a 75 mil quinientos colones exactos.
+(Así reformado en sesión N° 202 del 16 de julio de 2001)
