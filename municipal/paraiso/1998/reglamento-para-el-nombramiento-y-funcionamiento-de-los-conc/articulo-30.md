@@ -1,0 +1,1 @@
+Artículo 30.—Los miembros del Concejo de Distrito que se constituyan por primera vez con posterioridad a la promulgación del presente reglamento, durarán en sus cargos hasta la nueva designación de regidores, según lo dispuesto por el artículo número dos de este reglamento
