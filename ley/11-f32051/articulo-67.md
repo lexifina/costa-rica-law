@@ -1,0 +1,3 @@
+Artículo 67.-Los plazos fijados en la concesión se suspenderán ocurriendo un caso fortuito ó de fuerza mayor que impida el cumplimiento de las obligaciones contraídas por la Empresa. Es condición precisa para que un caso sea declarado fortuito ó de fuerza mayor, que la Empresa dé cuenta por escrito de lo ocurrido á la Secretaría de Fomento, presentándole dentro del término de tres meses de haber ocurrido el acontecimiento las noticias y pruebas concernientes á éste. explicando con la debida claridad:
+1°-Los medios que la Empresa empleó para evitarlo;
+2°- El tiempo probable que importe el atraso para el cumplimiento de las obligaciones contenidas en la concesión.

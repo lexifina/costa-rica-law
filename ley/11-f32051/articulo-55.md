@@ -1,0 +1,1 @@
+Artículo 55.-En lo que concierne á la pérdida de mercancías, el Empresario pagará el precio que el dueño justificare de manera clara. Cuando no sea posible fijar la importancia de los perjuicios sufridos por un fletador de sus mercancías, el Empresario de ferrocarril pagará el valor que prudencialmente fijare el juez, si no mediare acuerdo entre las partes.

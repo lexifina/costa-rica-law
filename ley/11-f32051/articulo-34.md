@@ -1,0 +1,1 @@
+Artículo 34.-Los gastos á que dé lugar la inspección, serán pagados por las Empresas; en las concesiones se expresará la cantidad mensual con la cual deben contribuir aquéllos, tanto para la inspección técnica como para la administrativa. Dicha cantidad será enterada en el Tesoro Nacional cada seis meses.

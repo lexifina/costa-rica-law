@@ -1,0 +1,1 @@
+Artículo 14. - Ningún ferrocarril nacional podrá ser dado en arriendo sin autorización del Congreso. El arriendo será sacado á licitación pública con la base de precio que fije la Secretaría de Fomento. No se admitirán licitadores que no cumplieren previamente con los requisitos expresados en el artículo 10.

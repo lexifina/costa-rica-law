@@ -1,0 +1,2 @@
+Artículo 22.- Toda Empresa de ferrocarril debe estar provista de una línea telegráfica para su servicio. Esa línea telegráfica puede sustituirse por una línea telefónica si de la sustitución no resulta inconveniente alguno.
+Salvo estipulación en contrario, el Gobierno tiene el derecho de colocar un hilo telegráfico ó telefónico en los mismos postes del telégrafo de una línea férrea, para el servicio público por medio de las oficinas del Gobierno.

@@ -1,0 +1,4 @@
+Artículo 70. -En caso de interrumpirse total ó parcialmente el servicio público de un ferrocarril,
+la Secretaría de Fomento tomará desde luego las disposiciones necesarias para asegurarlo provisionalmente, á costa de la Empresa. En el término de un año deberá el concesionario justificar que cuenta con los medios suficientes para continuar la explotación, pudiendo ceder éste á otra persona ó Empresa, previa autorización y aceptación del Gobierno.
+Si aun por este medio no continuare durante un año el servicio, caducará la concesión.
+La caducidad será declarada administrativamente por la Secretaría de Fomento, previa audiencia de la Empresa autorizada, á la cual se señalará término para que dentro de él dé las explicaciones que creyere conducentes. Trascurrido este término y practicadas las otras averiguaciones que la Secretaría juzgare necesarias, pronunciará su resolución.

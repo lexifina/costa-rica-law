@@ -1,0 +1,1 @@
+Artículo 65.-Al construir un ferrocarril deberá el empresario cuidar de que el curso de los ríos, arroyos y fuentes permanezca enteramente libre, y de respetar asimismo las caídas de agua, aun cuando no hayan sido utilizadas todavía por la industria.

@@ -1,0 +1,1 @@
+Artículo 2° - Todo ferrocarril de uso general que se construya en la República, pertenece al Estado. La concesión que se otorgue á particulares ó compañías para construir y explotar un ferrocarril, será temporal y no podrá en ningún caso exceder de noventa y nueve años.

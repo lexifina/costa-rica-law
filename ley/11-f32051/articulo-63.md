@@ -1,0 +1,1 @@
+Artículo 63.-Cuando en un lugar intermediario á dos estaciones hubiere parada regular, la Compañía establecerá en él un servicio telegráfico que dé aviso á las estaciones anteriores y siguiente, de la llegada y salida de los trenes.

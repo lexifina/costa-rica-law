@@ -1,0 +1,4 @@
+Artículo 36.-En relación con el servicio de inspección, las Empresas están obligadas:
+a)-A trasportar gratuitamente á los inspectores cuando viajen en el desempeño de su cargo, aun cuando el viaje se haga en una línea distinta de aquella en la cual el inspector ejerce sus funciones;
+b)-A dar todos los informes y noticias que le pidan y que sean de interés público, concernientes á la vía, su construcción, su mantenimiento, su seguridad, el material fijo y rodante, y en general, todo lo referente á las condiciones técnicas de la vía y sus dependencias:
+c)-A dar verbalmente ó por escrito á los inspectores comisarios. según lo pidan éstos, todos los informes, datos y noticias concernientes á la dirección, administración, contratos y negocios que hiciere la Empresa, franqueándoles al efecto la contabilidad de la misma.
