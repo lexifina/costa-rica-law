@@ -1,0 +1,2 @@
+Artículo 4°— La Administración de la Unidad de Conservación de Ambientes Marinos, tendrá el carácter de ente técnico administrativo y estará a cargo de una dirección, rigiéndose esta por un plan general de desarrollo con alto grado de especificidad por cada área que integra la Unidad de Conservación, presentado en el plazo definido en el decreto ejecutivo N° 19123-MIRENEM de 3 de julio de 1989.
+Corresponderá la supervisión al Ministerio de Recursos Naturales, Energía y Minas.

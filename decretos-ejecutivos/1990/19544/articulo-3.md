@@ -1,0 +1,1 @@
+Artículo 3°—Las actividades de coordinación, cooperación y apoyo dentro de la Unidad de Conservación de Ambientes Marinos, serán definidas en el plan general de desarrollo de esta Unidad de Conservación.

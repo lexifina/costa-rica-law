@@ -1,0 +1,1 @@
+Articulo 2.—Será función de la Unidad de Conservación de ambientes marinos, recomendar en el futuro la inclusión de nuevas áreas de conservación, cuyos recursos terrestres y marinos se consideren de importancia por su excepcionabilidad y fragilidad que ameriten su protección.
