@@ -15,3 +15,4 @@ Constitución del Sistema de Planificación Sectorial Agropecuaria
 | --- | --- | --- |
 | 1 | 1975-08-28 | la propia norma |
 | 2 | 1976-03-17 | Decreto Ejecutivo 5889 (1976-03-17) |
+| 3 | 1979-11-14 | Decreto Ejecutivo 10840 (1979-11-14) |

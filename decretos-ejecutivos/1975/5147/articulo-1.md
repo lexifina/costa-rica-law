@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto fue derogado por el artículo 21 del decreto ejecutivo N° 10840 del 14 de noviembre de 1979)
 N° 5147
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE AGRICULTURA Y GANADERIA Y DE LA PRESIDENCIA,
