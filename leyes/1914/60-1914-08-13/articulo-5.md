@@ -1,1 +1,0 @@
-Artículo 5-A los agricultores en pequeño, cabezas de familia, que tengan su posesión cerrada y cultivada se les adjudicará el terreno que posean sin pago de precio, con tal que no pase de veinte hectáreas; el exceso que tuvieren, deberán pagarlo conforme a las reglas anteriores.
