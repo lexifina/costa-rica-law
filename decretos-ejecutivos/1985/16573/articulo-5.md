@@ -1,0 +1,1 @@
+Artículo 5º.-Transcurrido el plazo de un mes establecido en el artículo 2º del presente Decreto, se procederá a destruir sin responsabilidad alguna para el Estado, todas aquellas colmenas que no reúnan el requisito de ubicación descrito.

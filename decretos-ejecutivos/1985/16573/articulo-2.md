@@ -1,0 +1,1 @@
+Artículo 2º-Se da un plazo perentorio de un mes para que todo apicultor del país, reubique sus colmenas en lugares donde no representan un peligro para la salud humana observando la distancia mínima establecida.
