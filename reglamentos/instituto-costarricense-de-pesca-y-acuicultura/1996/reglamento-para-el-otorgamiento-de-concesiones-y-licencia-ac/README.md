@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Concesiones y Licencia Acuícola (Acuerdo AJD
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-20 | la propia norma |
+| 2 | 1998-08-20 | Acuerdo 255 (1998-08-20) |
