@@ -1,0 +1,1 @@
+Artículo 45.—Los Comités Comunales se reunirán una vez a la semana. Los miembros que no asistan a cuatro sesiones sin causa justificada perderán su credencial como miembro. Su sustituto será escogido por el Comité Cantonal de una terna que presenten los restantes miembros.

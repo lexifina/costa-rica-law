@@ -1,0 +1,1 @@
+Artículo 37.—Los recursos provenientes del impuesto al cemento que ingresen al Comité Cantonal solo podrán ser utilizados en la construcción, mejoras y mantenimiento del Centro de Formación Deportiva y Cultural de Siquirres o polideportivo de la ciudad de Siquirres.

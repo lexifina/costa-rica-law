@@ -1,0 +1,1 @@
+Artículo 49.—Los campos deportivos administrados por los Comités Comunales no podrán cerrarse para turnos, ni ferias, sin permiso o autoridad del Comité Cantonal, dicha solicitud deberá hacerse con treinta días de anticipación.

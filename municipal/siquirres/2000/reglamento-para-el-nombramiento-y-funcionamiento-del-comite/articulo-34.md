@@ -1,0 +1,1 @@
+Artículo 34.—El Comité Cantonal de Deportes y Recreación podrá autorizar a la junta Directiva el manejo de una caja chica hasta por la suma del 5% del presupuesto. La caja chica deberá ser autorizada y supervisada por el tesorero y el presidente.

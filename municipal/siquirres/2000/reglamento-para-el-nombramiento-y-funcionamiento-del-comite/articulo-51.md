@@ -1,0 +1,1 @@
+Artículo 51.—Los Comités Comunales tendrán un presidente, un Secretario, un Tesorero y dos Vocales nombrados en la Asamblea general inicial. Sus funciones se incluyen en los artículos 9, 10 y 11 del presente reglamento.

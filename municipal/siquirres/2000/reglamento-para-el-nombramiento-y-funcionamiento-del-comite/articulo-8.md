@@ -1,0 +1,1 @@
+Artículo 8º—Para la elección de los dos representantes al Comité Cantonal de Deporte y Recreación, que corresponde al Concejo Municipal seleccionar, se definirá una sesión municipal para que los Concejales presenten los nombres de los candidatos que consideren convenientes y en la sesión siguiente se someterá a votación.

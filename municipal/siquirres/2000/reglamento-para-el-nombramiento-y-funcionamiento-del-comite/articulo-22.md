@@ -1,0 +1,1 @@
+Artículo 22.—Luego de haber quedado en firme una decisión de destitución el Comité solicitará a la Municipalidad la reposición inmediata del miembro separado, para cual pedirá a la institución que corresponda, el envío de su respectiva terna.
