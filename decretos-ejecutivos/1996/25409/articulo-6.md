@@ -1,1 +1,0 @@
-Artículo 6º.- En el caso de desintegración del Consejo, por muerte, renuncia o pérdida de titularidad de alguno o algunos de sus miembros, el Poder Ejecutivo debe solicitar, en un plazo no mayor de quince días, a las organizaciones ahí representadas, las ternas para la sustitución de esos miembros.

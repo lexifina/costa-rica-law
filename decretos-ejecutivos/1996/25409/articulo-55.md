@@ -1,1 +1,0 @@
-Artículo 55.- Todo caso de disolución se hace efectivo por Decreto Ejecutivo, a solicitud de la Dirección Nacional, y se publica en el Diario Oficial. Con base en esta publicación, el Área Legal y de Registro, procede a cancelar el asiento de inscripción en el registro respectivo.

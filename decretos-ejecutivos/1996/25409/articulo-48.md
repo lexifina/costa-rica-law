@@ -1,1 +1,0 @@
-Artículo 48.- Los fines y propósitos de las uniones cantonales o zonales, federaciones y confederaciones son los mismos que los expresados para las asociaciones de desarrollo integral, con la diferencia que cada una de ellas trata de realizarlos, conforme a la Ley. el Reglamento y el estatuto, en el ámbito territorial establecido.

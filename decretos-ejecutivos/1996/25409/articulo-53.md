@@ -1,6 +1,0 @@
-Artículo 53.- El Poder Ejecutivo procede a decretar la disolución administrativa de cualquier entidad de las que se crean al tenor de la Ley Nº 3859, con base en las siguientes causales:
-a) Cuando el número de asociados sea inferior a cien en las asociaciones integrales, o de cincuenta en las asociaciones específicas, salvo el caso en que la Dirección haya autorizado su funcionamiento con número menor, conforme con el artículo 16 de la ley, en cuyo caso, la disolución se decretará cuando el número sea inferior al autorizado por la Dirección.
-b) Cuando se incumplan las obligaciones a que se refiere el Artículo 31 de este Reglamento. En este caso la disolución se decreta después que la Dirección previene a la entidad respectiva, por medio de su presidente, para que se ajuste a las disposiciones legales, reglamentarias y estatutarias de la materia, dentro de los quince días naturales a la fecha de prevención.
-c) Cuando transcurran cuatro meses después de la fecha de vencimiento de la personería jurídica y ésta no se haya renovado.
-d) Cuando la asociación no cumpla los fines para los que fue constituida.
-e) Cuando la asociación ha cumplido el objetivo para el cual fue constituida o cuando sus fines se hacen legalmente imposibles.

@@ -1,1 +1,0 @@
-Artículo 20.- Para efectos de su nominación, las asociaciones de desarrollo integral, deben agregar a esta frase el nombre de la localidad o región que abarcan sus actividades. En cuanto a las asociaciones específicas, éstas deben usar la palabra "Asociación", seguida de una frase que indique la obra completa o el fin específico que persiguen.

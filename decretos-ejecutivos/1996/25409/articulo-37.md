@@ -1,1 +1,0 @@
-Artículo 37.- Las asociaciones de desarrollo integral, para el cumplimiento de sus fines, pueden promover el establecimiento de asociaciones especificas o crear grupos de trabajo por acuerdo de junta directiva para el cumplimiento de labores específicas.

@@ -1,1 +1,0 @@
-Artículo 34.- Las personas que ejerzan la fiscalía de las organizaciones comunales son individualmente responsables por el incumplimiento de las obligaciones que la Ley, el Reglamento y el estatuto les impongan.

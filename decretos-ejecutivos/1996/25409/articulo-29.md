@@ -1,2 +1,0 @@
-De la junta directiva
-Artículo 29.- La junta directiva es el órgano encargado de dirigir la marcha de la asociación, conforme con lo dispuesto por la Ley y su Reglamento, el estatuto y los acuerdos de asamblea general. La representación legal de la organización la ostenta su presidente. La junta directiva es responsable para con la asociación y terceras personas en los mismos términos en que lo son los mandatarios en el Código Civil. Dicha responsabilidad es solidaria entre los miembros, a menos que alguno de ellos salve su voto, haciéndolo constar así en el libro de actas.

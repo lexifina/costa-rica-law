@@ -1,5 +1,0 @@
-Artículo 31.- Las asociaciones están obligadas:
-a) A llevar los libros de actas de junta directiva y de asamblea general, así como los de asociados y de contabilidad, debidamente sellados y autorizados por la Dirección Nacional.
-b) A suministrar a la Dirección los informes que esta indique sobre actividades generales y movimiento económico: asimismo, deberán suministrar los libros de la asociación y de la cuenta bancaria y otros documentos, en el plazo que les sean solicitados por la Dirección Nacional.
-c) A comunicar al Area Legal y de Registro, dentro de los ocho días hábiles siguientes a su elección, los cambios en su junta directiva y las reformas al estatuto.
-d) A enviar cada año a la misma oficina una nómina completa de sus asociados. Además, cada vez que celebra asamblea general, sea ordinaria o extraordinaria y ha realizado afiliaciones o desafiliaciones, debe consignar ese dato expresando: nombre, apellidos, y número de cédula de los mismos, así como el acuerdo mediante el cual se hizo.

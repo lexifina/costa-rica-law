@@ -1,2 +1,0 @@
-De la asamblea general
-Artículo 25.- La asamblea general de asociados es el órgano máximo de las asociaciones de desarrollo de la comunidad y está constituida por todas las personas inscritas en el libro de asociados que tengan, por lo menos, un mes de haber sido inscrito por acuerdo de la junta directiva respectiva. Tratándose de organizaciones de segundo u otros grados la asamblea general la constituyen todos los representantes de las organizaciones integrantes, que son nombrados por ellas en el número y con las facultades que determine el estatuto.

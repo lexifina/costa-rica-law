@@ -1,2 +1,0 @@
-Artículo 57.- En todos los casos de disolución, la Dirección nombra a un liquidador el cual hace un inventario de los bienes y valores de la entidad, y bajo su responsabilidad, los pone a la orden de la Dirección para que sean administrados por ésta, hasta tanto proceda a reorganizar la antigua asociación o a promover la creación de una que la sustituya.
-El liquidador debe denunciar ante los Tribunales, cualquier delito o falta de que tenga conocimiento en el ejercicio de sus funciones, atribuibles a los miembros de la junta directiva o asociado involucrado.

@@ -1,1 +1,0 @@
-Artículo 66.- Otras entidades sin fines de lucro que deseen dedicarse al desarrollo de la comunidad, conforme lo establece el artículo segundo de la Ley, y que no están reguladas en el presente Reglamento, deberán obtener previamente la autorización de DINADECO, la cual adecuará los requisitos de inscripción y funcionamiento a la naturaleza particular de cada entidad solicitante.

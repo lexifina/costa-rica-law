@@ -1,1 +1,0 @@
-Artículo 49.- Las asociaciones de desarrollo específico, pueden formar parte de la unión cantonal o zonal de la jurisdicción, haciéndose representar en la asamblea constitutiva o afiliándose posteriormente mediante solicitud dirigida a la junta directiva de la unión, incluyendo una copia del acuerdo de la asamblea que autoriza la asociación.
