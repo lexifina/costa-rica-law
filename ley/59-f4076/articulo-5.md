@@ -1,0 +1,2 @@
+Art. 5. Serà tenido como traidor á la pátria y juzgado militarmente todo el que omitiese cumplir cualesquiera de las obligaciones impuestas en los articulos precedentes ò indujere à alguno à que las desobedezca.
+Lo tendrà entendido mi Secretario de la guerra y cuidará de que este decreto se imprima, circule y publique.-Dado en la ciudad de Alajuela à las diez de la noche del ocho de octubre de mil ocho-cientos cuarenta y siete. - José Maria Castro.”
