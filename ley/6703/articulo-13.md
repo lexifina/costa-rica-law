@@ -1,6 +1,1 @@
-Artículo 13.- Si al practicar excavaciones, para ejecutar obras
-públicas o privadas, fueren descubiertos objetos arqueológicos, por el
-propio dueño o por terceros, los trabajos deberán ser suspendidos de
-inmediato y los objetos puestos a disposición de la Dirección del Museo
-Nacional. El Museo Nacional tendrá un plazo de quince días para definir la
-forma en que se organizarán las labores de rescate arqueológico.
+Artículo 13.- Si al practicar excavaciones, para ejecutar obras públicas o privadas, fueren descubiertos objetos arqueológicos, por el propio dueño o por terceros, los trabajos deberán ser suspendidos de inmediato y los objetos puestos a disposición de la Dirección del Museo Nacional. El Museo Nacional tendrá un plazo de quince días para definir la forma en que se organizarán las labores de rescate arqueológico.

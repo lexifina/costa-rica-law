@@ -1,6 +1,1 @@
-Artículo 18.- El Poder Ejecutivo incluirá, todos los años, en el
-presupuesto ordinario, una partida que no será inferior a tres millones de
-colones, la cual girará al Museo Nacional, a efecto de que esta institución
-atendida las obligaciones registrales que se le asignan en la presente ley,
-y procure la conservación y recuperación del patrimonio nacional
-arqueológico.
+Artículo 18.- El Poder Ejecutivo incluirá, todos los años, en el presupuesto ordinario, una partida que no será inferior a tres millones de colones, la cual girará al Museo Nacional, a efecto de que esta institución atienda las obligaciones registrales que se le asignan en la presente ley, y procure la conservación y recuperación del patrimonio nacional arqueológico.

@@ -1,6 +1,1 @@
-Artículo 38.- El Poder Ejecutivo, con la colaboración de
-representantes del Museo Nacional, el Departamento de Arqueología de la
-Universidad de Costa Rica y el Departamento de Patrimonio Histórico del
-Ministerio de Cultura, Juventud y Deportes, reglamentará la presente ley en
-un plazo no mayor de noventa días contados a partir de la vigencia de las
-misma.
+Artículo 38.- El Poder Ejecutivo, con la colaboración de representantes del Museo Nacional, el Departamento de Arqueología de la Universidad de Costa Rica y el Departamento de Patrimonio Histórico del Ministerio de Cultura, Juventud y Deportes, reglamentará la presente ley en un plazo no mayor de noventa días contados a partir de la vigencia de las misma.
