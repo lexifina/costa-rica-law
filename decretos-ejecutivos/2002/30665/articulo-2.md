@@ -1,0 +1,1 @@
+Artículo 2º—Las negociaciones de convenciones colectivas deben ser aprobadas por la Comisión de Políticas para la Negociación de Convenciones Colectivas en el Sector Público, creada por el Decreto Ejecutivo N° 29576-MTSS y su reforma Decreto Nº 30582-MTSS.
