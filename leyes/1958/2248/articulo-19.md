@@ -1,3 +1,2 @@
-Artículo 19.-La cuota correspondiente al inciso a) del artículo 17 se formará con el total de las cuotas deducidas mensualmente de los salarios de los servidores docentes oficiales o particulares y de las pensiones y jubilaciones todo de acuerdo con el artículo anterior.
-El pago de las dietas de los miembros de la Junta y el del personal necesario, se hará con cargo al fondo de pensiones y jubilaciones formado por las cuotas a que se refiere el presente artículo.
-(Así reformado por el artículo 2° de la ley N° 5639 del 9 de diciembre de 1974)
+Artículo 19.- La cuota mencionada en el inciso a) del artículo 17, se formará con el total de tosas las cuotas deducidas mensualmente de los salarios de los servidores, docentes y administrativos, oficiales o particulares; todo de acuerdo con el tanto por ciento que fijará la Junta de Pensiones y Jubilaciones de Magisterio Nacional, de conformidad con el artículo 18 anterior.
+(Así reformado por el artículo 1° de la ley N° 7028 del 23 de abril de 1986)
