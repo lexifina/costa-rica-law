@@ -1,0 +1,1 @@
+Artículo 2°—Caso de ser celebrado el empréstito a que se refiere el artículo 1°, el respectivo convenio de préstamo deberá ser ratificado por la Asamblea Legislativa, de acuerdo con lo establecido en el artículo 121 inciso 15) de la Constitución Política.
