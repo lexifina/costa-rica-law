@@ -1,0 +1,1 @@
+Articulo 5°— Del servicio de hospedaje. El beneficio de alojamiento en las modalidades indicadas en los incisos a y b del articulo anterior comprende el servicie de: dormitorio, desayuno, cena o almuerzo, lavado y planchado de ropa.

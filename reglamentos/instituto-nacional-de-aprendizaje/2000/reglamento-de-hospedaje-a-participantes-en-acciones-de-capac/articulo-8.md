@@ -1,0 +1,3 @@
+Articulo 8°—Porcentaje a reconocer. Cuando el Instituto ubique a participantes en hogares de familiares, puede otorgar hasta un 100% del monto establecido para el rubro de hospedaje en el Centro de Formación correspondiente, siempre y cuando cumpla con lo estipulado en el presente Reglamento.
+Si la persona becada es ubicada en viviendas donde únicamente se ofrece el servicio de dormitorio, el monto a pagar será de un 50% del total aprobado para ese beneficio en el Centro de Formación respectivo. En este caso el 50 % restante podrá destinarse a cubrir el costo de alimentación, lavado y planchado de ropa.
+El monto para el pago de hospedaje se hará con base en la Tabla de Cuantificación y su calculo será por 30 días calendario.
