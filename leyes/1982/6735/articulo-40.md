@@ -1,10 +1,2 @@
-Artículo 40.- El Instituto de Desarrollo Agrario tendrá amplias
-facultades para ejercer fiscalización y control en la recaudación de los
-diversos tributos asignados, y sus funcionarios podrán intervenir, en
-cualquier momento, para el estricto cumplimiento de las normas legales que
-le otorgan recursos económicos. Para estos fines, contará con la
-colaboración obligada de la Dirección General de la Tributación Directa y
-los demás entes públicos.
-Las empresas privadas estarán obligadas a suministrar, en los primeros
-diez días de cada mes, con carácter de declaración jurada, un informe de
-las ventas realizadas.
+Artículo 40.- El Instituto de Desarrollo Agrario tendrá amplias facultades para ejercer fiscalización y control en la recaudación de los diversos tributos asignados, y sus funcionarios podrán intervenir, en cualquier momento, para el estricto cumplimiento de las normas legales que le otorgan recursos económicos. Para estos fines, contará con la colaboración obligada de la Dirección General de la Tributación Directa y los demás entes públicos.
+Las empresas privadas estarán obligadas a suministrar, en los primeros diez días de cada mes, con carácter de declaración jurada, un informe de las ventas realizadas.
