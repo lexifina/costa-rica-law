@@ -1,0 +1,2 @@
+Art 3°.- Los individuos o corporaciones que crean tener algún derecho que alegar contra la presente ley o contra la disposiciones vijentes que aseguran la prescripción y demás derechos de la Ciudad de Alajuela, sobre las dichas tierras de Túrrucares pueden ocurrir el Supremo Gobierno a hacer valer dentro del término perentorio o improrrogable de dos meses. Al Poder Ejecutivo. - Dado en San José, a los diezseis días del mes de octubre de mil ochocientos cincuenta y siete.
+Por tanto. Ejecútese: San José octubre diecinueve de mil ochocientos cincuenta y siete.
