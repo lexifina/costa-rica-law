@@ -1,0 +1,1 @@
+Artículo 18.—Los organizadores del evento, son los únicos responsables de cualquier situación que se presente durante los eventos establecidos en la actividad y que genere daños a terceros comprometiéndose a resarcirlos.

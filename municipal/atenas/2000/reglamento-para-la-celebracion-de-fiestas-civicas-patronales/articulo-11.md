@@ -1,0 +1,1 @@
+Artículo 11.—Se deberá suscribir una póliza ante el Instituto Nacional de Seguros, con el fin de que responda por los daños y perjuicios a accidentes y responsabilidad civil, la cual se tramitará directamente entre el solicitante y la aseguradora en los topes, carnavales y competencias atléticas.

@@ -1,0 +1,1 @@
+Artículo 8°—El Concejo Municipal tiene plena facultad para no aprobar la celebración de tales eventos, si considera que faltan requisitos por cumplir o tiene dudas respecto a la presentación de uno o varios de ellos; de igual forma por presentarse la solicitud fuera del término del tiempo estipulado.

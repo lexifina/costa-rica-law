@@ -1,0 +1,1 @@
+Artículo 24.—Los permisos se concederán tomando en cuenta el fin de semana más cercano a la celebración del Santo Patrono, que podrá ser desde el día propiamente de la celebración hacia adelante o hacia atrás.

@@ -1,0 +1,1 @@
+Artículo 13.—Todos los puestos, chinamos o establecimientos que se encuentren autorizados dentro del ámbito de la actividad, abrirán todos los días de los festejos de 9:00 a.m. a 12:00 media noche; excepto los puestos donde se expenda licor. Los puestos donde se expenda licor abrirán todos los días de los festejos, de 11,00 a.m. a 12,00 media noche.
