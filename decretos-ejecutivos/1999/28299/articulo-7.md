@@ -1,0 +1,2 @@
+Artículo 7º—Obligación de Informar sobre Variaciones en los Requerimientos de este Reglamento que Dieron Lugar a la Condición de Beneficiario: Los beneficiarios deberán informar a CORBANA de cualquier cambio en su razón social, de cualquier modificación en la tenencia de la finca, o de cualquier variación en la conformación y/o propiedad de su capital social.
+A las empresas beneficiarias de los recursos del Fondo, CORBANA no podrá hacerles giro de suma alguna, cuando la misma les solicite información sobre los anteriores puntos y no la brinden.

@@ -1,0 +1,1 @@
+Artículo 12.—Control en el Manejo del Fondo: El Ministerio de Hacienda establecerá los controles contables que considere convenientes respecto al manejo del "Fondo de Compensación de Precios" por parte de CORBANA y, al igual que con los recursos propios de esta entidad, la Contraloría General de la República podrá realizar las auditorías que considere convenientes.
