@@ -1,0 +1,1 @@
+Artículo 12.—La sesión de la Junta se desarrollará conforme al orden del día previamente elaborado, el cual podrá alterarse o modificarse mediante acuerdo debidamente aprobado por las dos terceras partes de los miembros presentes de la junta.

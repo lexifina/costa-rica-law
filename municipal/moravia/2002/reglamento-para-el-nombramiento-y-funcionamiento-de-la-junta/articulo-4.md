@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad y la Asociación velarán por que la Organización y el funcionamiento por la Junta se fortalezca, brindando su apoyo y colaboración; sin omitir la fiscalización sobre la misma.

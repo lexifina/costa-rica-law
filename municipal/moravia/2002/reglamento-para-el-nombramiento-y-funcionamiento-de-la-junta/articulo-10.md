@@ -1,0 +1,1 @@
+Artículo 10.—La Junta comunicará a la Municipalidad de Moravia y a la Asociación el día, hora y lugar que designe para celebrar sus sesiones ordinarias, las cuales deberán efectuarse 15 minutos posteriores a la hora señalada. El quórum, para sesionar válidamente lo será con 4 miembros, entre los cuales deberá estar el presidente o el vicepresidente o bien el primer vocal.

@@ -1,0 +1,1 @@
+Artículo 25.—La persona encargada de recibir, custodiar o pagar bienes o valores, será responsable de ellos y de cualquier pérdida o daño y deberá pagar de su propio peculio, los valores perdidos o dañados.

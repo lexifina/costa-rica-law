@@ -1,0 +1,1 @@
+Artículo 7º—Los recursos que generen el alquiler o arrendamiento de las instalaciones, serán destinados a las mejoras pertinentes y necesarias del Complejo. Cualesquier modificación en la infraestructura del complejo deberá contar con el aval de la Municipalidad y de la Asociación.

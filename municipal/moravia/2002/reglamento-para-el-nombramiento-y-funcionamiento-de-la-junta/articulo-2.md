@@ -1,0 +1,1 @@
+Artículo 2º—La Junta mantendrá bajo su administración "El Complejo Deportivo la Trinidad" y para tales efectos redactará un Reglamento para el Uso por Terceros de las Instalaciones, el cual deberá ser aprobado por el Concejo y la Asociación de Desarrollo de la Trinidad, donde se contemple el acceso y el use igualitario de las personas a las instalaciones.

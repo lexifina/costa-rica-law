@@ -1,0 +1,1 @@
+Artículo 13.—Las sesiones de la Junta serán públicas o privadas, según lo determinen sus miembros y, el presidente regulará la participación de particulares. La Junta tomará sus acuerdos por mayoría absoluta y se tendrán por firmes. Cuando en una votación se produzca un empate, se someterá de nuevo a votación y si persistiera el empate se tendrá por desechado el acuerdo.
