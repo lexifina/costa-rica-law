@@ -1,0 +1,7 @@
+Artículo 17.-Cada seis meses, la Auditoría Interna de las
+instituciones y empresas públicas, deberá enviar una certificación a la
+Contraloría General de la República con copia a la Autoridad
+Presupuestaria, en la que se indique, que el número de plazas ocupadas a
+esa fecha, no excede al que exista a la fecha de vigencia de la ley, con
+las excepciones que la misma señale en el artículo 18 y el transitorio
+IX.
