@@ -20,3 +20,4 @@ Reglamento del Teatro Nacional.
 | 5 | 1983-05-04 | Decreto Ejecutivo 14530 (1983-05-04) |
 | 6 | 1994-05-11 | Decreto Ejecutivo 23328 (1994-05-11) |
 | 7 | 1995-05-02 | Decreto Ejecutivo 24294 (1995-05-02) |
+| 8 | 1995-07-12 | Decreto Ejecutivo 24626 (1995-07-12) |
