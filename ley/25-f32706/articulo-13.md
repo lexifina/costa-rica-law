@@ -1,0 +1,2 @@
+ARTÍCULO 13°.-Llegada esta, el Tribunal oír sus informes verbales, y concluida la audiencia, proceder la votación en la forma establecida por el capítulo 8°, título 1°, libro 4°, parte 3° del Código general.
+De la sentencia que recaiga, se dictar testimonio concertado en la Secretaría, en la misma clase de papel; se dar certificación de ella al victorioso en papel del sello 3°, si la pidiere, para que le sirva de ejecutoria; y se devolver el expediente al Alcalde que conoció¢ en 1° instancia.

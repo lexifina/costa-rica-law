@@ -1,0 +1,1 @@
+ARTÍCULO 12°. -Compareciendo las partes verbalmente dentro del término del emplazamiento, el Presidente de la Sala anotar en el expediente el día y hora en que ellas han comparecido, y señalar también el día y hora en que debe tener lugar la vista, haciéndolo saber ambas partes.

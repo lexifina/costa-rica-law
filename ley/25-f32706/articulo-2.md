@@ -1,0 +1,1 @@
+ARTICULO 2°. -Toda demanda civil verbal se sustanciar en expediente separado y formado en papel del sello 4°, 1° clase, en donde se asentar n el cargo, descargo y pruebas aducidas por las partes, concluyendo con la sentencia del Juez.
