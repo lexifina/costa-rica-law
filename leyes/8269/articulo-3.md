@@ -1,0 +1,1 @@
+Artículo 3º—Cancelación de deudas. Los recursos provenientes del préstamo aprobado en esta Ley, conforme se transfieran a la CCSS se destinarán a cancelar los adeudos del Gobierno con esa Institución.
