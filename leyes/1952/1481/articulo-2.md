@@ -1,0 +1,1 @@
+Artículo 2°.- El Concejo dispondrá de estos terrenos en la mejor forma posible, para beneficiar al sector pobre de la población que sea de nacionalidad costarricense, vendiendo esos terrenos en lotes pequeños, siempre que sea con el objeto de construir casas de habitación con miras al ensanchamiento de la población.

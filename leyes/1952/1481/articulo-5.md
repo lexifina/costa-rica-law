@@ -1,0 +1,1 @@
+Artículo 5°.- Quedan exceptuados de los terrenos de que puede disponer el Concejo los que actualmente se hallen ocupados por los indios con habitaciones o cultivos y los que pueden ser tenidos como de la comunidad indígena con arreglo al estudio realizado por el Instituto Geográfico Nacional y por la Junta de Protección de las Razas Aborígenes de la nación.
