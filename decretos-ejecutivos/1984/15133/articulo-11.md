@@ -1,1 +1,0 @@
-Artículo 11.-Los inspectores del Ministerio de Salud a quienes se encomiende la vigilancia del cumplimiento de este Reglamento, quedan investidos con la autoridad necesaria para realizar labores de inspección complementaria a la que realizan los inspectores de la Caja.

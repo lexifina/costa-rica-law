@@ -1,1 +1,0 @@
-Artículo 9°-El Ministerio deberá reportar a la Caja, trimestralmente, las entradas y salidas al "Régimen de Asegurados por cuenta del Estado" para los efectos del control estadístico y de afiliación de la población a que se refiere el presente Reglamento.
