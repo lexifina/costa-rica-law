@@ -1,0 +1,1 @@
+Artículo 30.-Los comités zonales se reunirán, al menos una vez cada dos meses y extraordinariamente cuando lo determine su Presidente o lo solicite la mayoría de los integrantes de su Junta Directiva.
