@@ -13,6 +13,8 @@ Considerando:
 Decretan:
 Artículo 1º—La Autoridad Presupuestaria no considerará solicitudes para la creación de plazas durante el periodo presupuestario del 2001. Por lo tanto los órganos y entidades públicas se abstendrán de solicitar la creación de nuevas plazas durante este período.
 (Mediante Decreto Ejecutivo N° 29564 de 24 de mayo del 2001, se exeptúa de esta disposición al Consejo Nacional de la Persona Adulta Mayor, en lo que se refiere a la creación de 30 plazas por cargos fijos)
-(Mediante Decreto Ejecutivo Nº 29242 de 24 de mayo del 2001, se exeptúa de está disposición a la Dirección de Migración y Extranjería, en lo que se refiere a la creación de seis plazas por cargos fijos)
-(Mediante Decreto Ejecutivo Nº 29242 de 7 de junio del 2001, se exeptúa de está disposición al Instituto de Desarrollo Agrario, en lo que se refiere a la creación de una plaza de Sección III por Sentencia Judicial Firme)
+(Mediante Decreto Ejecutivo Nº 29601 de 24 de mayo del 2001, se exeptúa de está disposición a la Dirección de Migración y Extranjería, en lo que se refiere a la creación de seis plazas por cargos fijos)
+(Mediante Decreto Ejecutivo Nº 29602 de 7 de junio del 2001, se exeptúa de está disposición al Instituto de Desarrollo Agrario, en lo que se refiere a la creación de una plaza de Sección III por Sentencia Judicial Firme)
 (Mediante Decreto Ejecutivo Nº 29701 de 23 de julio del 2001, se exeptúa de está disposición al Instituto Nacional de Seguros, en lo que se refiere a la creación de una plazas)
+(Mediante Decreto Ejecutivo Nº 29733 de 1 de agosto del 2001, se exeptúa de está disposición a la Dirección General de Aviación Civil, en lo que se refiere a la creación de una plazas)
+(Mediante Decreto Ejecutivo Nº 29766 de 16 de agosto del 2001, se exeptúa de está disposición a JAPDEVA, en lo que se refiere a la creación de plazas)
