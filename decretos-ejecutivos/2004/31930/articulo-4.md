@@ -1,0 +1,1 @@
+Artículo 4º—El Consejo Nacional Directivo contará para su coordinación con el apoyo logístico de la Secretaría Ejecutiva de Planificación Sectorial Agropecuaria (SEPSA) y de la Dirección Nacional de Extensión Agropecuaria (DNEA), sin que los funcionarios públicos de estos órganos perciban pago o emolumento alguno, ni siquiera en forma adicional, por realizar tal gestión.

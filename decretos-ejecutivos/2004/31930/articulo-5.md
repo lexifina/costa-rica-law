@@ -1,0 +1,1 @@
+Artículo 5º—En lo no previsto expresamente en el presente y en cuanto al funcionamiento del Consejo Nacional Directivo (CND), como órgano colegiado, rige supletoriamente lo dispuesto sobre esta materia, en la Ley General de la Administración Pública.
