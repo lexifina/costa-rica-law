@@ -1,0 +1,2 @@
+CAPITULO VI Disposiciones Finales
+Artículo 34.—A las materias que son objeto del presente Reglamento, resulta aplicable las disposiciones contenidas, sobre las normas del Código de Normas y Procedimientos Tributarios, Código Procesal Civil, Ley General de la Administración Pública, Ley Reguladora de la Jurisdicción Contenciosa Administrativa, Ley Orgánica del Colegio de Abogados y Normas Conexas y el decreto de los Aranceles profesionales para Abogados, así como cualquier otra norma que guarde relación con este Reglamento.
