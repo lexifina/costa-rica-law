@@ -13,3 +13,4 @@ Reglamento al artículo 7° de la Ley de Salarios del Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-11-30 | la propia norma |
+| 2 | 1996-04-08 | Reglamento 11 (1996-04-08) |
