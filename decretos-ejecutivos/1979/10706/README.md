@@ -14,3 +14,4 @@ Cambia nombre de Reserva El Tigre a Reserva Indígena Cabécar de Awari y Establ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-11-08 | la propia norma |
+| 2 | 1982-03-10 | Decreto Ejecutivo 13452 (1982-03-10) |
