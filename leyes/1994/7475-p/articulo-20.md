@@ -1,0 +1,3 @@
+Artículo 20
+Otros requisitos
+No se complicará injustificablemente el uso de una marca de fábrica o de comercio en el curso de operaciones comerciales como exigencias especiales, como por ejemplo el uso con otra marca de fábrica o de comercio, el uso en una forma especial o el uso de una manera que menoscabe la capacidad de la marca para distinguir los bienes o servicios de una empresa de los de otras empresas. Esa disposición no impedirá la exigencia de que la marca que identifique a la empresa productora de los bienes o servicios sea usada juntamente, pero no vinculadamente, con la marca que distinga los bienes o servicios específicos en cuestión de esa empresa.

@@ -1,0 +1,3 @@
+Artículo 52
+Demanda
+Se exigirá a todo titular de un derecho que inicie un procedimiento de conformidad con el artículo 51 que presente pruebas suficientes que demuestren a satisfacción de las autoridades competentes que, de acuerdo con la legislación del país de importación, existe presunción de infracción de su derecho de propiedad intelectual y que ofrezca una descripción suficientemente detallada de las mercancías de modo que puedan ser reconocidas con facilidad por las autoridades de aduanas. Las autoridades competentes comunicarán al demandante, dentro de un plazo razonable, si han aceptado la demanda y, cuando sean ellas mismas quienes lo establezcan, el plazo de actuación de las autoridades de aduanas.

@@ -1,0 +1,5 @@
+SECCION 2: PROCEDIMIENTOS Y RECURSOS CIVILES Y ADMINISTRATIVOS
+Artículo 42
+Procedimientos justos y equitativos
+Los Miembros pondrán al alcance de los titulares de derechos (11) procedimientos judiciales civiles para lograr la observancia de todos los derechos de propiedad intelectual a que se refiere el presente Acuerdo. Los demandados tendrán derecho a recibir aviso por escrito en tiempo oportuno y con detalles suficientes, con inclusión del fundamento de la reclamación. Se autorizará a las partes a estar representadas por un abogado independiente y los procedimientos no impondrán exigencias excesivamente gravosas en cuanto a las comparecencias personales obligatorias. Todas las partes en estos procedimientos estarán debidamente facultadas para sustanciar sus alegaciones y presentar todas las pruebas pertinentes. El procedimiento deberá prever medios para identificar y proteger la información confidencial, salvo que ello sea contrario a prescripciones constitucionales existentes.
+* (11) A los efectos de la presente Parte, la expresión " titular de los derechos" incluye las federaciones y asociaciones que tengan capacidad legal para ejercer tales derechos.

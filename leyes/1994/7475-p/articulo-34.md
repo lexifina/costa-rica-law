@@ -1,0 +1,7 @@
+Artículo 34
+Patentes de procedimientos: la carga de la prueba
+1.- A efectos de los procedimientos civiles en materia de infracción de los derechos del titular a los que se refiere el párrafo 1 b) del artículo 28, cuando el objeto de una patente sea un procedimiento para obtener un producto, las autoridades judiciales estarán facultadas para ordenar que el demandado pruebe que el procedimiento para obtener un producto es diferente del procedimiento patentado. Por consiguiente, los Miembros establecerán que, salvo prueba en contrario, todo producto idéntico producido por cualquier parte sin el consentimiento del titular de la patente ha sido obtenido mediante el procedimiento patentado, por los menos en una de las circunstancias siguientes:
+a) si el producto obtenido por el procedimiento patentado es nuevo;
+b) si existe una probabilidad sustancial de que el producto idéntico haya sido fabricado mediante el procedimiento y el titular de la patente no puede establecer mediante esfuerzos razonables cuál ha sido el procedimiento efectivamente utilizado.
+2.- Los Miembros tendrán libertad para establecer que la carga de la prueba indicada en el párrafo 1 incumbirá al supuesto infractor sólo si se cumple la condición enunciada en el apartado a) o sólo si se cumple la condición enunciada en el apartado b).
+3.- En la presentación de pruebas en contrario, se tendrán en cuenta los intereses legítimos de los demandados en cuanto a la protección de sus secretos industriales y comerciales.

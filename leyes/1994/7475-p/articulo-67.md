@@ -1,0 +1,3 @@
+Artículo 67
+Cooperación técnica
+Con el fin de facilitar la aplicación del presente Acuerdo, los países desarrollados Miembros prestarán, previa petición, y en términos y condiciones mutuamente acordados, cooperación técnica y financiera a los países en desarrollo o países menos adelantados Miembros. Esa cooperación comprenderá la asistencia en la preparación de leyes y reglamentos sobre protección y observancia de los derechos de propiedad intelectual y sobre la prevención del abuso de los mismos, e incluirá apoyo para el establecimiento o ampliación de las oficinas y entidades nacionales competentes en estas materias, incluida la formación de personal.

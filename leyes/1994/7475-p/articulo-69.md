@@ -1,0 +1,3 @@
+Artículo 69
+Cooperación internacional
+Los Miembros convienen en cooperar entre sí con objeto de eliminar el comercio internacional de mercancías que infrinjan los derechos de propiedad intelectual. A este fin, establecerán servicios de información en su administración, darán notificación de esos servicios y estarán dispuestos a intercambiar información sobre el comercio de las mercancías infractoras. En particular, promoverán el intercambio de información y la cooperación entre las autoridades de aduanas en lo que respecta al comercio de mercancías de marca de fábrica o de comercio falsificadas y mercancías pirata que lesionan el derecho de autor.
