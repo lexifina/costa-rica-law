@@ -14,3 +14,4 @@ Crea el Consejo Económico, en adelante denominado CE, como órgano de coordinac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-24 | la propia norma |
+| 2 | 2002-06-25 | Decreto Ejecutivo 30564 (2002-06-25) |
