@@ -1,8 +1,7 @@
-ARTICULO 3.- Rige a partir de su publicación.
-COMUNICASE AL PODER EJECUTIVO
-Asamblea Legislativa: San José, a los nueve días del mes de abril de
-mil novecientos noventa y dos.-
-Nury Vargas Aguilar
-VICEPRESIDENTA EN EJERCICIO DE LA PRESIDENCIA
-Manuel A. Bolaños Salas Angelo Altamura Carriero
-PRIMER SECRETARIO SEGUNDO SECRETARIO
+ARTICULO III
+Ambas Partes Contratantes, de conformidad con las legislaciones
+respectivamente vigentes en cada una de ellas, pueden promover la
+participación de los organismos e instituciones privadas de sus respectivos
+países en la ejecución de los programas, proyectos y actividades de
+cooperación, previstos en los Acuerdos específicos mencionados en el
+artículo I, inciso 2 de este Convenio.
