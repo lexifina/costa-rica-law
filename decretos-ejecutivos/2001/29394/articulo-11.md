@@ -1,0 +1,1 @@
+Artículo 12.—Los contratos para la ejecución de los planes de manejo forestal que se financien con los recursos autorizados en este decreto deben firmarse a más tardar el treinta y uno de diciembre del año dos mil uno.

@@ -1,0 +1,1 @@
+Artículo 4º—El Fondo Nacional de Financiamiento Forestal (FONAFIFO), deberá incluir en la ejecución del programa de pago de servicios ambientales las políticas de género del MINAE, a fin de propiciar un incremento de la participación de las mujeres en el pago de servicio ambiental.
