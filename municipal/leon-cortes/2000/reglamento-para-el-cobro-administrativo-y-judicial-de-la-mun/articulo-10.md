@@ -1,0 +1,1 @@
+Artículo 10.—Las gestiones de cobro se harán como mínimo una vez por semestre, pudiendo hacerse por dos semestres, previa notificación al interesado, agotada la vía administrativa en la recuperación de los recursos, la oficina asignada pasará esta cuenta al (los) abogado (s) para que se gestione en la vía judicial

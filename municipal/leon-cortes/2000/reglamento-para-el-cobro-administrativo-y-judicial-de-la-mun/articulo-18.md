@@ -1,0 +1,1 @@
+Artículo 18.—El (los) abogado (s) que lleve (n) casos concernientes a deudas de los contribuyentes municipales aplicará a las sumas adeudadas lo dispuesto en el artículo 70 del Código Municipal, para lo cual procederá a realizar gravámenes hipotecarios contra los bienes inmuebles que estén a nombre del sujeto pasivo deudor para con la municipalidad.

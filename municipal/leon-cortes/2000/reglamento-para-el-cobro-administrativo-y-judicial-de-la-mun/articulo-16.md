@@ -1,0 +1,1 @@
+Artículo 16.—El (los) abogado (s) no debe aceptar casos de litigios en contra de la Municipalidad en forma simultánea a tener relaciones y responsabilidades activas con la misma, el incumplimiento de esta disposición hará que su nombramiento quede revocado automáticamente como abogado de la Municipalidad.

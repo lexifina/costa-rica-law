@@ -1,0 +1,1 @@
+Artículo 5º—Definición de Cobro Administrativo. Se tendrá por entendido por cobro administrativo todas las acciones que se efectúan por medio de la Municipalidad, con la finalidad de cumplir calendarios de pago que le garanticen a esta la recuperación oportuna de los recursos adeudados por el contribuyente.

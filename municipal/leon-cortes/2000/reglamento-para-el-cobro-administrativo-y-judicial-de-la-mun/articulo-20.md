@@ -1,0 +1,1 @@
+Artículo 20.—El (los) abogado (s) que por razones personales disponga dejar de laborar para la Municipalidad, deberá comunicarlo al Alcalde Municipal en un período de 30 días previos, además, deberá hacer llegar la totalidad de los expedientes y otros documentos que estuviesen bajo su custodia para la atención a la Oficina de Cobro de la Municipalidad.

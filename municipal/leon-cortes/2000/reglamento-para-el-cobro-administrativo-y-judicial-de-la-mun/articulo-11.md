@@ -1,0 +1,1 @@
+Artículo 11.—Será función de la Oficina de Cobros remitir trimestralmente un informe del estado de las cuentas en proceso de recuperación al Alcalde Municipal y las acciones que se están dando para cada una de ellas.
