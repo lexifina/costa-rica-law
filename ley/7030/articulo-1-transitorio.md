@@ -1,0 +1,2 @@
+Transitorio.- A los beneficiarios del régimen de pensiones regulado por la ley N° 15 del 5 de diciembre de 1935, que se hubiesen jubilado bajo condiciones diferentes a las establecidas en el artículo 1° de la presente ley, se les reajustarán sus pensiones de acuerdo con el nuevo criterio de cálculo.
+Presidencia de la República.- San José, a los diecisiete días del mes de abril de mil novecientos ochenta y seis.
