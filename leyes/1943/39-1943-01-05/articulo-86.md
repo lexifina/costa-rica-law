@@ -1,0 +1,1 @@
+Artículo 86.- Los testimonios serán extendidos en el papel sellado correspondiente; pero los que contengan operaciones destinadas a inscribirse en el Registro Público, lo serán en papel de oficio, debiendo el funcionario que los expida tasar al pie de ellos el valor del papel sellado, timbres y derechos de inscripción que haya de pagarse.

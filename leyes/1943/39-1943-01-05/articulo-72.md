@@ -1,0 +1,1 @@
+Artículo 72.- El cuerpo de la escritura contendrá la relación clara y circunstanciada del acto o contrato que se quiera hacer constar, tal como hubiere pasado ante el Notario y testigos instrumentales, o como lo refieran los interesados en minutas escritas o de palabra.

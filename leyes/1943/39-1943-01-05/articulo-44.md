@@ -1,0 +1,1 @@
+Artículo 44.- A los protocolos que se tienen por concluidos son aplicables las disposiciones de los artículos 31, 32 y 33, y siempre que por alguna causa el dueño del protocolo no pueda escribir y firmar la razón final, la extenderá el funcionario respectivo, salvo que la ley disponga otra cosa.

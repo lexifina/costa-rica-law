@@ -1,0 +1,1 @@
+Artículo 84.- El segundo o ulteriores testimonios sólo podrán extenderse cuando la autoridad judicial lo ordene, con citación de interesados o sin ella si hubieren renunciado a la citación, o cuando todas las partes de la escritura lo soliciten verbalmente ante el Notario o funcionario encargado del protocolo.

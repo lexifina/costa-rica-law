@@ -1,0 +1,1 @@
+Artículo 54.- En el caso de que quedare alguna escritura sin reponer cuando se archiva el protocolo, podrá después el interesado solicitar a su costa la reposición ante el Juez, quien la ordenará y practicará la trascripción del testimonio que se le hubiere presentado.

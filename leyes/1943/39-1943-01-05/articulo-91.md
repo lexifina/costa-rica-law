@@ -1,0 +1,1 @@
+Artículo 91.- Es anulable la escritura en que alguno de los testigos instrumentales o de conocimiento de partes o intérpretes, tuviere con respecto al Notario o a uno de los otorgantes cualquiera de los vínculos que producen impedimento relativo según el artículo 734 del Código Civil.

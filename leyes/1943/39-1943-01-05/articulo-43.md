@@ -1,0 +1,1 @@
+Artículo 43.- El protocolo en curso de un Notario que, por cualquier motivo cese en sus funciones, se tendrá también por concluido. Los notarios cesantes tendrán derecho a que se les devuelva en especies fiscales el valor de las hojas no usadas en su protocolo.

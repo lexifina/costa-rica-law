@@ -1,0 +1,1 @@
+Artículo 28.- No será obstáculo para la suspensión o cancelación definitiva de la licencia la circunstancia de que el hecho imputado constituya o pueda constituir delito. Aquélla se decretará sin perjuicio de lo que se resuelva en la vía penal.

@@ -1,0 +1,1 @@
+Artículo 74.- En la venta que todos los condueños de una finca dividida en derechos hagan de parte material de ella, se expresará la proporción en que el resto sigue perteneciendo a cada condueño, sin perjuicio de expresar también todos los datos requeridos por el Registro Público cuando se traspasa parte de una finca que pertenece a un solo propietario.

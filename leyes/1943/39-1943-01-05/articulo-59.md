@@ -1,0 +1,2 @@
+Artículo 59.- Cuando los que concurran como interesados al otorgamiento de la escritura, o algunos de ellos, no comprenda el idioma español, intervendrá el intérprete oficial y, a falta de éste, dos intérpretes designados o aceptados por las partes. Si el Notario comprendiere el idioma extranjero de que se trata, bastará un intérprete, aunque no sea el oficial.
+Para su capacidad, condiciones y prohibiciones, se considerará al intérprete como un testigo instrumental.

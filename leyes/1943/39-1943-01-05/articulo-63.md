@@ -1,0 +1,1 @@
+Artículo 63.- Cuando los interesados quisieren hacer constar en escritura pública actos jurídicos o contratos que por defectuosos, informales o por cualquier otro motivo no puedan ser eficaces, el Notario lo advertirá así a los otorgantes, y si éstos insistieren, extenderá la escritura consignando en ella la advertencia.

@@ -1,0 +1,1 @@
+Artículo 15.- El Secretario de la Corte debe publicar en el Boletín Judicial las autorizaciones que se concedan para ejercer el notariado y también el informe de haber cesado el Notario en sus funciones.

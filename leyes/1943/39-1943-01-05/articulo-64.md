@@ -1,0 +1,1 @@
+Artículo 64.- También debe el Notario hacer conocer a los interesados el valor y trascendencia legales que tengan las renuncias que en concreto hagan, o las cláusulas que envuelvan renuncias o estipulaciones implícitas y advertirán a los adquirentes de inmuebles de la existencia de la hipoteca legal que los afecta en garantía de los impuestos territoriales y municipales.

@@ -1,0 +1,3 @@
+CAPITULO II
+De la conservación y guarda de los protocolos
+Artículo 38.- Los notarios son depositarios de sus protocolos y, como tales, responsables de su guarda y conservación. Sólo podrán tener un protocolo en curso y les está prohibido principiar un protocolo sin haber terminado el anterior. Al Notario a quien se le probare que burla esa prohibición o que descuida su protocolo y lo confía para el otorgamiento de escrituras a persona que no lo es, o a otro Notario sin sujeción a las formalidades legales o que autoriza con su firma escrituras no otorgadas con su presencia, le será cancelada por la Corte la licencia para ejercer la profesión, sin perjuicio de las otras responsabilidades en que incurra.
