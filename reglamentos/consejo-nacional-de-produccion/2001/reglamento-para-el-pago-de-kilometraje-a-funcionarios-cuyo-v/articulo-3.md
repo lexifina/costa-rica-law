@@ -1,0 +1,1 @@
+Artículo 3º—La posibilidad de arrendar su vehículo y percibir remuneración por pago de kilometraje está vedado a los miembros de Junta Directiva, al Presidente Ejecutivo, al Gerente General, al Subgerente General, al Auditor General y al Subauditor General.

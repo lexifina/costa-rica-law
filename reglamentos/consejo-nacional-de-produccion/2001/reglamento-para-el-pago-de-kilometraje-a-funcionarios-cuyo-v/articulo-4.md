@@ -1,0 +1,2 @@
+Artículo 4º—Bajo ninguna circunstancia, la remuneración o facilidad que pueda representar el pago de kilometraje, será considerado como beneficio, mejora salarial, salario en especie o, en forma alguna, parte del contrato de trabajo, ni dará lugar a derechos adquiridos a favor del funcionario arrendante.
+Artículo 5º—La tarifa para el pago del servicio indicado en el artículo anterior, se regirá por los lineamientos que establezca la Contraloría General de la República.

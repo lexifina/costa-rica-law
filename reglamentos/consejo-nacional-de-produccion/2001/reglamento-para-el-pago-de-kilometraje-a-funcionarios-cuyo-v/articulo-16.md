@@ -1,0 +1,1 @@
+Artículo 17.—Cada jefatura estará en la obligación de llevar el control periódico de kilometraje de cada vehículo, el cual comprenderá la revisión y aprobación de los reportes de kilometraje, con base en el plan de trabajo previamente establecido, y la programación de la ruta, según la tabla de distancias elaborada por la Dirección Administrativa Financiera.

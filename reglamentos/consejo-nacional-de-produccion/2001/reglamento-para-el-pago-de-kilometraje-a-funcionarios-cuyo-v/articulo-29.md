@@ -1,0 +1,1 @@
+Artículo 30.—Este Reglamento fue aprobado por la Junta Directiva del Consejo Nacional de Producción, sesión Nº 2251 artículo Nº 3 del 14 de 02 del 2001, y autorizado por la Contraloría General de la República, según consta en oficio Nº 03551 de 3 de abril del año 2001.

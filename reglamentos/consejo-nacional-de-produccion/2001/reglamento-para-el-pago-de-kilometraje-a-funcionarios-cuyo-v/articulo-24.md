@@ -1,0 +1,1 @@
+Artículo 25.—La Institución facilitará a los empleados que presten el servicio de kilometraje, parqueo gratuito en sus instalaciones, de acuerdo con las posibilidades de la Institución. El CNP no asume responsabilidad por robo, hurto o cualquier daño causado a los vehículos en sus instalaciones.

@@ -1,0 +1,1 @@
+Artículo 8º—Todo servicio de Kilometraje deberá contar por escrito con la indicación del Área de Servicios Institucionales o del Jefe de Servicios de Apoyo según el caso, de que el servicio no puede ser atendido con vehículos institucionales.

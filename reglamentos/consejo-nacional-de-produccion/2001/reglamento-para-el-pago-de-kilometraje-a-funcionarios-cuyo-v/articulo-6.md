@@ -1,0 +1,2 @@
+Artículo 7º—El Área de Servicios Institucionales es la encargada de garantizar la prestación de los servicios de apoyo internos, relativos a la salvaguarda de los bienes y el desarrollo fluido de las actividades institucionales.
+Por su parte el Jefe de Servicios de apoyo es el funcionario encargado a nivel de las Regiones de coordinar, supervisar y controlar la prestación de servicios de apoyo en las Áreas administrativa, financiera y operativa.

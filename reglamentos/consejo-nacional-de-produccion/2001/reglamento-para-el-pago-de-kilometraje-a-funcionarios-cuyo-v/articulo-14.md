@@ -1,0 +1,1 @@
+Artículo 15.—El Área de Servicios Institucionales asesorará a cualquier dependencia de la Institución que requiera apoyo para la programación de rutas autorizadas con pago de kilometraje de la Institución.
