@@ -1,0 +1,1 @@
+Articulo 8°-Para la aplicación de esta ley se entiende por aviones transeúntes, aquellos que no pertenezcan a las Iíneas que operan regularmente en la República y que vengan al país ocasionalmente en viajes de turismo, expresos o de tránsito.

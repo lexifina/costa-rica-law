@@ -1,0 +1,1 @@
+Articulo 7°-Están exentos de los pagos por aterrizaje y pernoctar: aviones del Gobierno; los de Gobiernos amigos; y los aviones transeúntes que vengan en vuelos por cuenta del Gobierno. No pagan los derechos por pernoctar los aviones que vengan a reparación únicamente, o en viajes de turismo.
