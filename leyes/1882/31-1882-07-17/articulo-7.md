@@ -1,0 +1,1 @@
+Art. 7°. -Contestada negativamente la pregunta por el jurado, el Juez dictará inmediatamente auto de sobreseimiento. Con igual proveído terminar el auto en que califique el cuerpo del delito, si á su juicio, no está legalmente comprobado.

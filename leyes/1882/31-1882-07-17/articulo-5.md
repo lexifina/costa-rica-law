@@ -1,0 +1,1 @@
+Art. 5°.-Mientras el jurado estudia la sumaria y se ocupa del debate, el Juez procurar que ninguna persona interrumpa los jurados, y por su parte, se limitará á dar los informes verbales que el jurado le pida.
