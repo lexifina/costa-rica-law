@@ -1,0 +1,1 @@
+Articulo 2°—Adiciónase a las exclusiones del Instituto de Fomento y Asesoría Municipal las transferencias a las municipalidades provenientes de los artículos 3° de la Ley No 6909 y 2° de la Ley N ° 6282 que reforma el artículo 37 de la Ley N ° 10.
