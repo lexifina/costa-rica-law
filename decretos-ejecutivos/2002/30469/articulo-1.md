@@ -1,0 +1,12 @@
+N° 30469-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE LA PRESIDENCIA
+En ejercicio de las facultades y prerrogativas conferidas en los incisos 1), 3), 8) y 18) del artículo 140 y el artículo 146 de la Constitución Política y con fundamento en la Ley Nacional de Emergencia, Nº 7914 del 28 de septiembre de 1999, el Reglamento de Prevención de Riesgos y Atención de Emergencias, Decreto Ejecutivo Nº 28445-MP del 3 de febrero del 2000 y la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978.
+Considerando:
+1º—Que mediante la Ley Nacional de Emergencia, Nº 7914 del 28 de septiembre de 1999, se crea la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, como un órgano de desconcentración máxima adscrito a la Presidencia de la República.
+2º—Que según se dispone en el inciso 8) del artículo 140 de la Constitución Política, en relación con los artículos 113 y 114 de la Ley General de la Administración Pública, es responsabilidad del Poder Ejecutivo velar por el correcto funcionamiento de las dependencias administrativas y la satisfacción del interés general.
+3º—Que tanto la Ley Nacional de Emergencia, Nº 7914 del 28 de setiembre de 1999, como el Reglamento de Prevención de Riesgos y Atención de Emergencias, Decreto Ejecutivo Nº 28445-MP del 3 de febrero del 2000, establecen que la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias es de nombramiento del Presidente de la República y el Ministro de la Presidencia, vía Decreto Ejecutivo.
+4º—Que de conformidad con el artículo 15, inciso b), de la Ley Nacional de Emergencias, forma parte de la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias un delegado de la Cruz Roja Costarricense, que deberá ser un representante oficial designado por esa institución.
+5º—Que mediante oficio N° 394-05-02-Pres del 15 de mayo del 2002, el señor Miguel Carmona Jiménez, Presidente de la Cruz Roja Costarricense, señala que de conformidad con el acuerdo tomado en la sesión ordinaria N° 8-2002, del 11 de los corrientes, el Consejo Nacional designó al Ingeniero Jorge Acón Li como nuevo representante de esa Institución ante la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias. Por tanto,
+Decretan:
+Artículo 1º—Designar en la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, al señor Jorge Acón Li, cédula de identidad N° 6-091-840, en representación de la Cruz Roja Costarricense y en sustitución del señor Miguel Carmona Jiménez.
