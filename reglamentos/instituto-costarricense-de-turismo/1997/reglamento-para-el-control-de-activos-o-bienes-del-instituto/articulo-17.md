@@ -1,0 +1,1 @@
+Artículo 17.—Los activos fijos nuevos o construidos en la Institución, tales como muebles, deben entrar a la bodega de materiales con el formulario correspondiente, valorados al costo, para ser registrados todos los movimientos de entrada y salida.

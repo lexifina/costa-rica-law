@@ -1,0 +1,1 @@
+Artículo 16.—Una vez finalizadas las construcciones de la edificaciones, el Departamento Administrativo debe realizar con Ia asistencia de la Asesoría Legal, su inscripción ante el Registro de Ia Propiedad.

@@ -1,0 +1,1 @@
+Artículo 15.—Tanto el inicio como la conclusión de edificios o mejoras debe ser comunicado a la Contabilidad - por parte del Departamento Administrativo, al que corresponde coordinar para que se confeccione la liquidación respectiva de cada obra, para lo correspondientes registros en las cuentas de obras en proceso o terminada

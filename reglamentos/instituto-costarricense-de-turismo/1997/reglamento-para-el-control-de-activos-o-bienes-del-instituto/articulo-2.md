@@ -1,0 +1,1 @@
+Artículo 2°—Se entiende como "activo fijo" el capital más sólido y permanente con que cuenta la Institución para el normal funcionamiento de sus programas y la consecución de sus metas y forman parte de esta clasificación el mobiliario, los equipos, la maquinaria, edificaciones, terrenos y otros.

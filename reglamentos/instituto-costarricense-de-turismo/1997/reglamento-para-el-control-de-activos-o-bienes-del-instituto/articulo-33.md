@@ -1,0 +1,1 @@
+Artículo 33.—Para los casos fortuitos de desastre natural o pérdida total por el uso normal de los activos, se procederá a levantar un acta, con todos los detalles de los activos y lo sucedido, con copia al Encargado de Control de Activos y al área de Contabilidad, a efecto de que se realice la baja del activo de las existencias.

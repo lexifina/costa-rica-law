@@ -1,0 +1,1 @@
+Artículo 14.—Todas las dependencias están en la obligación de custodiar y guardar ordenadamente copias de los documentos, que origine o amparen movimientos de traslados a otras unidades, de los bienes de la Institución.

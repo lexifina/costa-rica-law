@@ -1,0 +1,1 @@
+Artículo 23.—En caso de diferencias, respecto al inventario anterior, deberá comunicarse de inmediato al Encargado de Activos, al Departamento Administrativo y al Area de Contabilidad y, actuar de acuerdo a lo descrito en los artículos 29 y siguientes de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 9°—Para efectos contables y de control los activos deberán registrarse en el sistema computarizado, con las especificaciones necesarias, así como anotar los comprobantes que en forma cronológica originaron su adquisición o movimiento, incluyendo en estos cuando así se requiera, las características del activo debidamente detalladas en la boleta de entrada del activo.

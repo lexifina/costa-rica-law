@@ -1,0 +1,1 @@
+Artículo 4°—El Departamento Administrativo será responsable de que los bienes de la Institución cuenten con la cobertura de seguro apropiada que respalde la eventualidad de daños y pérdidas, para ello se asesorara con la unidad técnica del Instituto Nacional de Seguros que se encarga de atender las necesidades del sector público.daos

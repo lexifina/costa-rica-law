@@ -1,0 +1,1 @@
+Artículo 19.—La responsabilidad de los funcionarios sobre los bienes, será efectiva a partir de su adjudicación, con base en los documentos respectivos, entiéndase inventario de activos recibidos conforme por cada uno de los funcionarios.

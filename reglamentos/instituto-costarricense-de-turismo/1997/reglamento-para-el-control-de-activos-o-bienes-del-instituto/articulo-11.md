@@ -1,0 +1,1 @@
+Artículo 11.—Serán capitalizables todas aquellas erogaciones, como reparaciones, mejoras o adiciones; que por su monto y características prolonguen la vida útil de un bien o se ajusten con lo estipulado en los principios de contabilidad generalmente aceptados.

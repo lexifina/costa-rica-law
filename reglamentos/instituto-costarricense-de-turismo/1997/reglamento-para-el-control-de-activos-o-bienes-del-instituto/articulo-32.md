@@ -1,0 +1,1 @@
+Artículo 32.—En caso de hurto por agentes externos, el Encargado del Control de Activos, debe darle seguimiento a partir de la denuncia presentada ante los organismos judiciales que correspondan por parte del funcionario responsable del activo, aparte de las comunicaciones internas mencionadas anteriormente.
