@@ -18,3 +18,4 @@ Reglamento para la operación de entidades comercializadoras de seguros
 | 3 | 1998-06-01 | Reglamento 8189 (1998-06-01) |
 | 4 | 1998-07-06 | Reglamento 8197 (1998-07-06) |
 | 5 | 2000-09-01 | Reglamento 0 (2000-09-01) |
+| 6 | 2001-04-23 | Reglamento 8443 (2001-04-23) |
