@@ -1,0 +1,3 @@
+Artículo 7º—De la zona de carga y descarga de carga aérea. Se establece como zona de carga y descarga de carga aérea a las áreas de acceso, circulación interna y áreas de andenes al frente de la Terminal de Carga, definidas anteriormente.
+Los vehículos de carga únicamente podrán permanecer parqueados en esta zona mientras se encuentren cargando o descargando carga en las instalaciones, con el fin de agilizar el movimiento de tráfico de entrada y salida.
+Las autoridades competentes tomarán las medidas necesarias para velar por el cumplimiento de esta disposición y tendrán toda la autoridad para desalojar los vehículos de las zonas controladas del Aeropuerto, al costo del propietario del vehículo desalojado.

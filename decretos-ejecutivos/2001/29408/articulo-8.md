@@ -1,0 +1,1 @@
+Artículo 8º—Disposiciones finales. Por éste Reglamento no se deroga el Reglamento para la Emisión de Carnés de Identificación para el Ingreso a las Áreas Restringidas del Aeropuerto Internacional Juan Santamaría, publicado mediante Decreto Ejecutivo N° 20425-MOPT, publicado en La Gaceta N° 105 del 5 de junio de 1991.
