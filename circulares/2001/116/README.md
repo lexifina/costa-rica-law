@@ -13,3 +13,4 @@ Directriz a seguir con relación al problema del traslado de privados de liberta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-20 | la propia norma |
+| 2 | 2004-11-09 | Circular 148 (2004-11-09) |
