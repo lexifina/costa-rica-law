@@ -1,0 +1,1 @@
+2°—Dejar establecido que las sociedades administradoras de fondos de inversión dispondrán de un plazo de dos meses, contados a partir de la publicación en el Diario Oficial La Gaceta de la reforma reglamentaria consignada en el numeral 1) anterior, para ajustar la conformación del comité de inversión según lo establecido en esa norma.
