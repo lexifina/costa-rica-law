@@ -1,0 +1,1 @@
+Artículo 24.—El presente Tratado será registrado en la Secretaría General de las Naciones Unidas por medio de la Unión Panamericana, al ser depositadas las ratificaciones de las dos terceras partes de los Estados signatarios.

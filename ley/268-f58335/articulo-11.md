@@ -1,0 +1,1 @@
+Artículo 11.—Las consultas a que se refiere el presente Tratado, se realizarán por medio de la Reunión de Ministros de Relaciones Externo de las Repúblicas Americanas que lo hayan ratificado, o en la forma o el órgano que en lo futuro se acordare.
