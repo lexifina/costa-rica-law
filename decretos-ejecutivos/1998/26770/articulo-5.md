@@ -1,0 +1,1 @@
+Artículo 5°- Para efectuar el muestreo estipulado en el numeral anterior, los funcionarios autorizados recolectarán un litro de combustible para cada tipo y muestra. Los envases deberán ser cerrados, sellados y firmados por los funcionarios encargados y el propietario o encargado de la Estación de Servicio, según el caso.

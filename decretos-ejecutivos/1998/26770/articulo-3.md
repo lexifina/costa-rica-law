@@ -1,0 +1,1 @@
+Artículo 3º- Para efectuar la verificación de calidad y/o tolerancia de los combustibles, se faculta a los funcionarios autorizados tomar en forma gratuita las muestras de los productos requeridos para determinar la exactitud de la información suministrada al consumidor. Estando igualmente el comerciante obligado a permitir y facilitar la labor de los inspectores.
