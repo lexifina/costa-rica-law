@@ -14,3 +14,4 @@ Reglamento para Contratos Administrativos y Disposiciones Financieras del Instit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-19 | la propia norma |
+| 2 | 1998-09-23 | Reglamento 4859 (1998-09-23) |
