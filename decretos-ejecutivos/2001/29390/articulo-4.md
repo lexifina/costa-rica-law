@@ -1,0 +1,1 @@
+Artículo 4º—Cooperación nacional. Cuando así lo requiera la Comisión Nacional de Seguridad Vial , todas las instituciones públicas estatales, estarán en la obligación de prestar la colaboración que sea necesaria para la ejecución de los planes que al seno de esa Comisión así lo disponga.
