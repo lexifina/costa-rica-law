@@ -14,3 +14,4 @@ Reforma Reglamento de obtención permisos construcción o reparación de la Muni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-25 | la propia norma |
+| 2 | 2000-05-25 | Ley 8 |
