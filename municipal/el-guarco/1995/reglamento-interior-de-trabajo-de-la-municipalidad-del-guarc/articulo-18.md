@@ -1,1 +1,2 @@
-Artículo 18,.- El pago de los empleado Municipales se hará en el local de la Municipalidad, sita en el Palacio Municipal de El Tejar de El Guarco.
+Artículo 18,.- El pago de los empleados municipales se hará por medio de tarjeta del Banco Nacional de Costa Rica.
+(Así reformado mediante publicación en La Gaceta N° 154 del 13 de agosto del 2001)
