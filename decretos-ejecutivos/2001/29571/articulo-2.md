@@ -1,1 +1,0 @@
-Artículo 2º—Se establece y mantiene una prohibición total a la extracción y comercialización en todo el país, del molusco bivalbo denominado Spondylus Calcifer (Ostión Vaca), hasta tanto los estudios técnicos y científicos demuestren que este producto puede ser apto nuevamente para el consumo humano.
