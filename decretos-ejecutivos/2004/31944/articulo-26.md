@@ -1,0 +1,2 @@
+Artículo 26.—Las ampliaciones temporales a que hace referencia el artículo 5 de este reglamento, deberán ser totalmente reintegradas en la fecha preestablecida para la liquidación.
+La responsabilidad sobre el reintegro recaerá sobre el solicitante, quien deberá informar a la Dirección Administrativa la fecha en que el mismo se realice y deberá presentar documento idóneo como prueba de la devolución.

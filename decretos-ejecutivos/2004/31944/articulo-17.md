@@ -1,0 +1,1 @@
+Artículo 17.—El funcionario que tenga pendiente una liquidación de anticipo de dinero, para la adquisición de bienes y servicios o gastos de viaje, deberá ejecutar la liquidación correspondiente para que le sea aprobado un nuevo anticipo.

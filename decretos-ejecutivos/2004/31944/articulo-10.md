@@ -1,0 +1,1 @@
+Artículo 10.—En cuanto al fraccionamiento de operaciones se deberá cumplir con lo dispuesto en el artículo 40 del Reglamento de la Contratación Administrativa (Decreto Ejecutivo N° 25038 del 6 de marzo de 1996).

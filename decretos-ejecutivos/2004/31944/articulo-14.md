@@ -1,0 +1,1 @@
+Artículo 14.—El incumplimiento de lo estipulado en el artículo 13 será considerado como falta a los deberes y obligaciones del funcionario y será sancionada de acuerdo con las disposiciones de legales y reglamentarias que regulan la relación de servicio en la Administración.
