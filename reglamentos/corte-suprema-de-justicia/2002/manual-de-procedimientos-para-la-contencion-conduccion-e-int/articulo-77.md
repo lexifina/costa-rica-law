@@ -1,2 +1,1 @@
-Artículo 77.—El presente Manual rige a partir de su publicación."
-San José, 20 de diciembre del 2004.
+Artículo 77.—En los casos en que no se cuente con mujeres conductoras de detenidas, el Jefe de la Delegación respectiva deberá solicitar que alguna investigadora realice las funciones de traslado, conducción, contención y asistencia, relativas a la(s) privada(s) de libertad, que se encuentren en las celdas del Organismo de Investigación. En caso, de no contar con personal femenino, deberá solicitar cooperación de la Fuerza Pública, a efecto de que faciliten los servicios de una mujer policía.

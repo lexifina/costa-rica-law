@@ -1,1 +1,2 @@
-Artículo 69.—La intervención corporal del imputado, sin excepción alguna, deberá ser realizada por un Médico Forense o un perito calificado. El profesional que lleve a cabo la intervención deberá respetar en todo momento la integridad física, la salud y el pudor del imputado.
+Artículo 69.—La intervención corporal del imputado, sin excepción alguna, deberá ser realizada por un Médico Forense o un perito calificado.
+El profesional que lleve a cabo la intervención deberá respetar en todo momento la integridad física, la salud y el pudor del imputado.

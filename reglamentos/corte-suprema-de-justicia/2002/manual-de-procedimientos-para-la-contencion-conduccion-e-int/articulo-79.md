@@ -1,0 +1,1 @@
+Artículo 79.—Los traslados de mujeres privadas de libertad deberán hacerse de manera individual, es decir, separadas de los hombres, para ello se utilizarán los vehículos de transporte de detenidos que cuentan con divisiones. En ningún caso, se trasladarán mujeres privadas de libertad en la cabina delantera del vehículo, por ser esta destinada a los oficiales custodios.
