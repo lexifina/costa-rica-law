@@ -1,0 +1,1 @@
+Art. 2. En consecuencia, por todas las Autoridades del Estado, se le guardarán, y harán guardar, los honores, preeminencias y exenciones que le competen. –Dado en la Ciudad de San José, á once de Enero de mil ochocientos cuarenta y tres. –José María Alfaro. –Al Ministro general del Despacho, Señor Dr. José María Castro.
