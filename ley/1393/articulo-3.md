@@ -1,4 +1,4 @@
-Artículo 3º.- Las mercaderías que hubieren sido importadas con
+ARTICULO 3º.- Las mercaderías que hubieren sido importadas con
 exención de derechos, sólo podrán ser destinadas a un fin, servicio o
 consumo diferentes de los que motivaron la franquicia aduanera, si el
 interesado satisface, de previo, los derechos correspondientes, que se
