@@ -1,2 +1,0 @@
-Artículo 21.-No contará para, efectos de la declaración ganadera al Consejo Nacional de Producción la vaca adulta salvo para los ganaderos criadores que presenten a dicha Institución copia del inventario ganadero declarado en el período fiscal anterior, a los cuales se contará hasta el 20% de vacas adultas que aparezcan en el citado inventario.
-El Consejo Nacional de Producción controlará el cumplimiento de esta disposición y regulará el porcentaje.

@@ -1,6 +1,0 @@
-Artículo 15.-Las plantas exportadoras u otras industrias semejantes, previo trámite de los permisos de exportación correspondientes, descontarán de los pagos a los ganaderos tres céntimos de colón por cada kilogramo de ganado en pie que adquieran y lo remitirán a la Oficina de Ganadería del Consejo Nacional de Producción quien lo distribuirá así:
-a) Un céntimo de colón al Departamento de Ganadería del Consejo Nacional de Producción para cubrir los gastos que esta ley demande;
-b) Medio céntimo de colón para el Ministerio de Agricultura y Ganadería para los programas de control de enfermedades de ganado vacuno a través de la Dirección de Sanidad Animal y de conformidad con lo establecido por la ley N° 4648 de 3 de noviembre de 1970;
-c) Un cuarto de céntimo de colón a la Federación de Cámaras de Ganaderos
-d) Tres cuartos de céntimo de colón a las Cámaras Asociadas a la Federación de acuerdo con el porcentaje de kilogramos de carne entregado. En el caso de ganaderos no afiliados a ninguna Cámara, la contribución a que se refiere este inciso, lo girará el Consejo Nacional de Producción a la Federación de Cámaras de Ganaderos de Costa Rica, para que ésta promueva campaña de bien general, a favor de la ganadería; y
-e) Medio céntimo de colón que se destinará exclusivamente a la Facultad de Veterinaria de la Universidad Nacional.
