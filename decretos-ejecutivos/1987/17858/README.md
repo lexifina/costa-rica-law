@@ -14,3 +14,4 @@ Reglamento sobre la Organización, el Funcionamiento y las Atribuciones de las G
 | --- | --- | --- |
 | 1 | 1987-10-13 | la propia norma |
 | 2 | 1995-08-07 | Decreto Ejecutivo 24629 (1995-08-07) |
+| 3 | 1996-01-10 | Decreto Ejecutivo 24908 (1996-01-10) |
