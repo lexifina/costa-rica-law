@@ -1,0 +1,1 @@
+Artículo 3°-Toda modificación a la estructura valorativa y clasificativa y otros sobresueldos de los puestos excluidos del Régimen del Servicio Civil, incluidos en las relaciones de puestos para cargos fijos de los ministerios, debe ser aprobada para su implementación por la Autoridad Presupuestaria previo estudio de su Secretaría Técnica.

@@ -1,0 +1,1 @@
+Artículo 15.-Para efectuar nombramientos interinos en aquellas plazas en que a su titular se le haya otorgado un permiso sin goce de salario no se requiere la autorización previa de la Autoridad Presupuetaria.

@@ -1,0 +1,1 @@
+Artículo 10.-EI reconocimiento de extremos salariales como: carrera profesional, prohibición, dedicación exclusiva y cualquier otro, deben aplicarse de acuerdo con lo que establecen los reglamentos que para esos efectos emite la Autoridad Presupuestaria así corno otras disposiciones legales vigentes.

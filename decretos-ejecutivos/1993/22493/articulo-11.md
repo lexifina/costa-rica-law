@@ -1,0 +1,1 @@
+Artículo 11.-Las Oficinas de Recursos Humanos de las instituciones y empresas públicas deben enviar a la Secretaría Técnica de la Autoridad Presupuestaria, a más tardar el último día hábil de los meses de marzo y agosto, en resumen de la relación de puestos vigente.

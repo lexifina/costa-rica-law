@@ -1,0 +1,1 @@
+Artículo 5°-La Secretaría Técnica de la Autoridad Presupuestaria queda facultada para solicitar a las Auditorías Internas y/o Oficinas de Recursos Humanos las constancias que considere necesarias para su gestión.

@@ -1,0 +1,1 @@
+Artículo 4°:--Sólo podrán incluirse en los presupuestos ordinarios y modificaciones a éstos, variaciones de salarios o incentivos que hayan sido autorizados previamente por la Autoridad Presupuestaria y/o Dirección General de Servicio Civil.

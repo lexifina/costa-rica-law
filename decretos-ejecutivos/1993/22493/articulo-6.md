@@ -1,0 +1,1 @@
+Artículo 6°-Toda modificación a la estructura orgánica de las instituciones, empresas públicas y ministerios, deben contar con la aprobación previa del Ministerio de Planificación Nacional y Política Económica, según lo establece el artículo 16 inciso f) y artículo 17 del Decreto Ejecutivo N° 17592-PLAN, del 8 de junio de 1987, para su implementación en la relación de puestos.
