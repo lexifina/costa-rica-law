@@ -1,0 +1,6 @@
+CAPÍTULO VII
+DE LAS MODIFICACIONES A LA ESTRUCTURA
+DEL GRUPO FINANCIERO
+Artículo 29.
+La incorporación a un Grupo Financiero constituido, de una empresa financiera diferente a las señaladas en el Artículo 2 inciso a) de este Reglamento, requerirá la autorización previa del Consejo Nacional de Supervisión del Sistema Financiero. La incorporación a un Grupo Financiero constituido, de una empresa financiera señalada en el Artículo 2 inciso a) de este Reglamento, la fusión de uno o más grupos, la fusión de dos entidades de un mismo grupo o la disolución del Grupo, así como cualquier otra modificación a la estructura del Grupo Financiero, requerirán la autorización previa del órgano supervisor correspondiente. Una vez otorgada dicha autorización, la sociedad controladora deberá informar al público dicha modificación mediante publicación en un periódico de circulación nacional que deberá realizarse en un plazo de cinco días hábiles posteriores a la fecha en que se autorizó la modificación.
+Para el caso de la fusión de dos o más empresas integrantes de un mismo grupo financiero, incluida la sociedad controladora, o de alguna de estas con empresas que no pertenezcan al mismo grupo, se aplicará lo estipulado en el Capítulo X del Libro y Título I del Código de Comercio de Costa Rica, así como la normativa específica que al respecto emitida cada órgano supervisor.
