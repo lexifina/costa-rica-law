@@ -1,0 +1,1 @@
+Artículo 2º—La Dirección de Recursos Humanos del Ministerio de Seguridad Pública será la encargada de ejercer el registro y control de estas capacitaciones en coordinación con la Academia Nacional de Policía.
