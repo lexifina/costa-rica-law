@@ -1,0 +1,1 @@
+Artículo 15.-En el término de sesenta días la Comisión debe presentar al Ministro de Trabajo y Seguridad Social un plan con las políticas de corto, mediano y largo plazo para la "tercera edad"; los reglamentos para el desarrollo de sus labores y las directrices de acción para las instituciones públicas y privadas de este subsector.

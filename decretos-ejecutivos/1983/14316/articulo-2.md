@@ -1,0 +1,1 @@
+Artículo 2°-La Comisión tendrá responsabilidad propia eh la ejecución de sus actividades; su sede será la ciudad de San José, pudiendo establecer oficinas auxiliares permanentes o temporales en cualquier parte del territorio nacional.

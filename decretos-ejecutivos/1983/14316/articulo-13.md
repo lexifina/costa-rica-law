@@ -1,0 +1,1 @@
+Artículo 13.-Para la ejecución y administración de proyectos y programas, se firmarán los convenios necesarios, los cuales serán suscritos por el Presidente de la Comisión y el Ministro de Trabajo y Seguridad Social y cualquier otra institución del Estado u organismo internacional.

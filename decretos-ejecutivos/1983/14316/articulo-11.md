@@ -1,0 +1,1 @@
+Artículo 11.-Las instituciones públicas y privadas que ejecuten programas y acciones dirigidas a la "tercera edad", deben trabajar estrechamente coordinadas con la Comisión, cuando su actuación conjunta sea indispensable en determinados proyectos y tareas.

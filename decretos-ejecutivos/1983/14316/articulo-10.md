@@ -1,0 +1,1 @@
+Artículo 10.-Las entidades públicas y privadas que involucren a pensionados y a personas de la "tercera edad" deben consultar a la Comisión sobre sus programas y aceptar como obligatorias sus directrices y supervisión.
