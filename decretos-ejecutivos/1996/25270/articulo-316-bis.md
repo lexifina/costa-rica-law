@@ -1,0 +1,3 @@
+Artículo 316 bis - Contrato de Fletamento
+Si en el conocimiento de embarque no se indica el monto del flete contratado, se deberá adjuntar el Contrato de Fletamento, el cual indicará las condiciones y monto del flete; en el eventual caso de que no sea posible presentar dicho contrato, se deberá dar un estimado del monto del Flete por parte de la entidad estatal correspondiente, fundamentado en el histórico que se deberá presentar ante la Aduana, sin perjuicio del control a posteriori que pueda efectuar sobre los montos estimados la Autoridad Aduanera.
+(Así adicionado por el artículo N° 2 del decreto ejecutivo N° 30817 de 16 de setiembre del 2002)
