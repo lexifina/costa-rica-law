@@ -1,1 +1,1 @@
-Artículo 13.- La Junta podrá variar el actual sistema de secciones y libros de los registros, por otros más eficientes, para el mejor servicio y para la mayor seguridad de las inscripciones. Así como dictar las normas para el mejor funcionamiento de sus dependencias.
+Artículo 13.-La Junta podrá variar el actual sistema de secciones y libros de los registros, por otros más eficientes, para el mejor servicio y para la mayor seguridad de las inscripciones. Así como dictar las normas para el mejor funcionamiento de sus dependencias.
