@@ -1,0 +1,1 @@
+Artículo 17.—Es responsabilidad del Tesorero(a) revisar periódicamente, a cada cajero(a) el Fondo Fijo de Caja Recaudadora, cualquier faltante será comunicado inmediatamente a la Auditoría Municipal y procederá el Tesorero(a) de acuerdo con el Código Municipal vigente y el Reglamento Interior de Trabajo de la Municipalidad.

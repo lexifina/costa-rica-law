@@ -1,0 +1,1 @@
+Artículo 60.—Los egresos realizados por Caja Chica se tramitarán a través del correspondiente "Reintegro de Caja Chica", que preparará el Tesorero Municipal como encargado del fondo fijo, en original y copia.

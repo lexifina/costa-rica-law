@@ -1,0 +1,1 @@
+Artículo 37.—Cuando existan cheques en poder de la Tesorería con tres meses de emitidos, el tesorero procederá a anularlos, levantará una lista de ellos, copia que tramitará a las dependencias correspondiente.

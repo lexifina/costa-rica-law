@@ -1,0 +1,1 @@
+Artículo 29.—Los cheques se emitirán bajo la responsabilidad absoluta de la Tesorería y Alcaldía Municipal previa consulta a los fondos municipales, que determine la existencia de fondos suficientes en las cuentas bancarias.

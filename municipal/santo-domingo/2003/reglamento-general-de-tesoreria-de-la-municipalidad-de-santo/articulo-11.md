@@ -1,0 +1,1 @@
+Artículo 11.—Los ingresos los recibirá únicamente el Departamento de Tesorería por medio de las cajas recaudadoras instaladas para tal efecto, o en las cajas de las entidades del Sistema Financiero Nacional o Bancario Nacional, que se encuentren supervisadas por la Superintendencia General de Entidades Financieras, con las cuales la municipalidad tenga un convenio de recaudación.

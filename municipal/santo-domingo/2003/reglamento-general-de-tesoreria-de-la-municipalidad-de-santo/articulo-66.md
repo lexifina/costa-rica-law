@@ -1,0 +1,1 @@
+Artículo 66.—Todo funcionario(a) que haga uso del fondo de caja chica, tienen la obligación de conocer el presente Reglamento, el incumplimiento del mismo serán sancionado conforme a los dispuesto en el Reglamento Interior de Trabajo de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 27.—Todos los pagos se efectuarán por medio de cheque, excepto: los que corresponde hacer por caja chica y las planillas por concepto de salarios, dietas u otros, que se podrán realizar mediante transferencia automática a cada cuenta. Para la elaboración del cheque, se requiere la autorización respectiva del documento o documentos que los respalden.

@@ -1,0 +1,1 @@
+Artículo 69.—Toda modificación al monto autorizado para realizar compras o adquisiciones de bienes y servicios, determinado en el artículo anterior deberá ser autorizada por acuerdo de Concejo Municipal, ante solicitud razonada presentada por la Alcaldía Municipal.
