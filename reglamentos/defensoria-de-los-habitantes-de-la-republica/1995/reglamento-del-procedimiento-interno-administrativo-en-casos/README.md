@@ -14,3 +14,4 @@ Reglamento del procedimiento interno administrativo en casos de Hostigamiento Se
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-06-05 | la propia norma |
+| 2 | 1995-09-07 | Acuerdo 132 (1995-09-07) |
