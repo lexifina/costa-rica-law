@@ -1,2 +1,10 @@
-Artículo 61.- En caso de fallecimiento o ausencia declarada del concesionario, sus herederos lo sucederán en todos sus derechos y obligaciones; si no hubiere herederos o presuntos herederos, la concesión se extinguirá y las mejoras y construcciones existentes se incorporan al dominio municipal. Igualmente se extinguirá la concesión si por algún motivo de conveniencia general la municipalidad deseare el lote para destinarlo al uso público, debiendo pagar en este caso el valor de las mejoras existentes a los herederos.
-La municipalidad no podrá pagar por las mejoras un valor superior al que determine la Dirección General de Tributación Directa.
+Artículo 61.- En caso de fallecimiento o ausencia declarada del
+concesionario, sus herederos lo sucederán en todos sus derechos y
+obligaciones; si no hubiere herederos o presuntos herederos, la concesión
+se extinguirá y las mejoras y construcciones existentes se incorporan al
+dominio municipal. Igualmente se extinguirá la concesión si por algún
+motivo de conveniencia general la municipalidad deseare el lote para
+destinarlo al uso público, debiendo pagar en este caso el valor de las
+mejoras existentes a los herederos.
+La municipalidad no podrá pagar por las mejoras un valor superior al
+que determine la Dirección General de Tributación Directa.

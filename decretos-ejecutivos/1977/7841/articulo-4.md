@@ -1,1 +1,9 @@
-Artículo 4º.- De acuerdo con el decreto Nº 7210-A de 19 de julio de 1977, los manglares o bosques salados que existen en los litorales continentales o insulares y esteros del territorio nacional, y que forman parte de la zona pública en la zona marítimo terrestre, constituyen Reserva Forestal y están afectos a la Ley Forestal y a todas las disposiciones de ese decreto. Partiendo de la línea de vegetación a la orilla de los esteros y del límite de los manglares o bosques salados cuando éstos se extiendan por más de 50 metros de la pleamar ordinaria, comienza la zona restringida.
+Artículo 4º.- De acuerdo con el decreto Nº 7210-A de 19 de julio de
+1977, los manglares o bosques salados que existen en los litorales
+continentales o insulares y esteros del territorio nacional, y que forman
+parte de la zona pública en la zona marítimo terrestre, constituyen
+Reserva Forestal y están afectos a la Ley Forestal y a todas las
+disposiciones de ese decreto. Partiendo de la línea de vegetación a la
+orilla de los esteros y del límite de los manglares o bosques salados
+cuando éstos se extiendan por más de 50 metros de la pleamar ordinaria,
+comienza la zona restringida.

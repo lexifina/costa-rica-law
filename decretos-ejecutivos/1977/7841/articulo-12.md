@@ -1,1 +1,6 @@
-Artículo 12.- En los casos de excepción, tales como los señalados en los artículos 18, 21 y 22 de la Ley, cuando las obras ocupen la zona pública, será obligación de quienes las diseñen y ejecuten garantizar el libre y seguro tránsito de las personas y el uso público de las mismas. Las instituciones responsables de extender la autorización velarán por el cumplimiento de este requisito.
+Artículo 12.- En los casos de excepción, tales como los señalados en
+los artículos 18, 21 y 22 de la Ley, cuando las obras ocupen la zona
+pública, será obligación de quienes las diseñen y ejecuten garantizar el
+libre y seguro tránsito de las personas y el uso público de las mismas.
+Las instituciones responsables de extender la autorización velarán por el
+cumplimiento de este requisito.

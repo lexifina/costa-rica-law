@@ -1,1 +1,6 @@
-Artículo 50.- Para los efectos del artículo anterior, la Dirección General de Tributación Directa practicará el avalúo de los terrenos objeto de concesiones, el cual deberá ser revisado como mínimo cada cinco años. Los cánones vigentes deberán ajustarse de conformidad con el nuevo avalúo, para lo cual los contratos de concesión deberán contener estipulación expresa en este sentido.
+Artículo 50.- Para los efectos del artículo anterior, la Dirección
+General de Tributación Directa practicará el avalúo de los terrenos
+objeto de concesiones, el cual deberá ser revisado como mínimo cada cinco
+años. Los cánones vigentes deberán ajustarse de conformidad con el nuevo
+avalúo, para lo cual los contratos de concesión deberán contener
+estipulación expresa en este sentido.

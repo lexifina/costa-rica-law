@@ -1,1 +1,3 @@
-Artículo 90.- Al recibir un documento, el funcionario del Registro deberán fijar un sello en el mismo, donde conste la hora, día, mes y año de la recepción y luego firmará al lado del sello. Deberá, además, extender al interesado un recibo que indique el documento para cuando sea retirado por él.
+Artículo 90.- DEROGADO.
+(Derogado por el artículo 5º del Decreto Nº 21756 de 24 de noviembre de
+1992).

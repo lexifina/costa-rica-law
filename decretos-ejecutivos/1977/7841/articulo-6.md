@@ -1,1 +1,5 @@
-Artículo 6º.- Corresponde al ICT la facultad de declarar zonas turísticas, para lo cual deberá tomar en cuenta, entre otros factores, el acceso a la zona, sus atributos naturales, las características sociales y culturales de los pobladores y cualesquiera otras que dicha institución estime conveniente.
+Artículo 6º.- Corresponde al ICT la facultad de declarar zonas
+turísticas, para lo cual deberá tomar en cuenta, entre otros factores, el
+acceso a la zona, sus atributos naturales, las características sociales y
+culturales de los pobladores y cualesquiera otras que dicha institución
+estime conveniente.

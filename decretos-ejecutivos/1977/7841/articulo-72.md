@@ -1,1 +1,4 @@
-Artículo 72.- Para los efectos del artículo 58 de la Ley en lo referente al acceso a la zona pública, las calles que se abran tendrán un derecho de vía de 14 metros, salvo que el Ministerio de Obras Públicas y Transportes, el INVU o el ICT, indiquen uno mayor.
+Artículo 72.- Para los efectos del artículo 58 de la Ley en lo
+referente al acceso a la zona pública, las calles que se abran tendrán un
+derecho de vía de 14 metros, salvo que el Ministerio de Obras Públicas y
+Transportes, el INVU o el ICT, indiquen uno mayor.

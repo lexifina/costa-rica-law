@@ -1,4 +1,21 @@
-Artículo 75.- Los pobladores de la zona marítimo terrestre, costarricenses por nacimiento, con más de diez años de residencia continua en ella, según información de la autoridad de la Guardia de Asistencia Rural local o certificación del Registro Electoral sobre el domicilio del solicitante podrán continuar en posesión de sus respectivos lotes siempre que fuere su única propiedad, pudiendo ser reubicados de acuerdo con la planificación de la zona, previa indemnización de las mejoras. En todo caso deberá respetarse la zona pública.
-Cuando el período de residencia sea inferior a diez años, los pobladores podrán solicitar concesión sobre el predio, siempre que no se incluya parte alguna de la zona pública. Si existiesen mejoras en la zona pública, se aplicará lo dispuesto en el inciso e), artículo 73 del reglamento, y las disposiciones del artículo 74 del reglamento si las mejoras estuvieren ubicadas en la zona restringida.
-Quienes no siendo pobladores hayan construido o edificado en la zona restringida en predios ilegalmente poseídos, no tendrán derecho al pago de mejoras.
-Sin embargo, podrán solicitar concesión sobre el predio y, si se les otorgare, no se les cobrará por el uso, y disfrute de esas mejoras. Las solicitudes de concesiones que hagan los ocupantes de la zona marítimo terrestre tendrán prioridad sobre las demás.
+Artículo 75.- Los pobladores de la zona marítimo terrestre,
+costarricenses por nacimiento, con más de diez años de residencia continua
+en ella, según información de la autoridad de la Guardia de Asistencia
+Rural local o certificación del Registro Electoral sobre el domicilio del
+solicitante podrán continuar en posesión de sus respectivos lotes siempre
+que fuere su única propiedad, pudiendo ser reubicados de acuerdo con la
+planificación de la zona, previa indemnización de las mejoras. En todo
+caso deberá respetarse la zona pública.
+Cuando el período de residencia sea inferior a diez años, los
+pobladores podrán solicitar concesión sobre el predio, siempre que no se
+incluya parte alguna de la zona pública. Si existiesen mejoras en la
+zona pública, se aplicará lo dispuesto en el inciso e), artículo 73 del
+reglamento, y las disposiciones del artículo 74 del reglamento si las
+mejoras estuvieren ubicadas en la zona restringida.
+Quienes no siendo pobladores hayan construido o edificado en la zona
+restringida en predios ilegalmente poseídos, no tendrán derecho al pago
+de mejoras.
+Sin embargo, podrán solicitar concesión sobre el predio y, si se les
+otorgare, no se les cobrará por el uso, y disfrute de esas mejoras. Las
+solicitudes de concesiones que hagan los ocupantes de la zona marítimo
+terrestre tendrán prioridad sobre las demás.

@@ -1,3 +1,13 @@
-Artículo 11.- De acuerdo con lo que establece el artículo 22 de la Ley, en la zona pública no se permitirá el desarrollo de obras de infraestructura ni construcciones que no sean para uso público, o se trate de instalaciones turísticas estatales. En este último caso, los planos y proyectos de dichas instalaciones deberán contar con la aprobación del Ministerio de Obras Públicas y Transportes, el ICT y el INVU. Una vez satisfecho este requisito, el ICT pondrá el proyecto en conocimiento de la municipalidad respectiva para que resuelva sobre él.
-Las instituciones consultadas tendrán 60 días calendario para pronunciarse al respecto, teniéndose como aprobada la consulta si en ese plazo no se pronunciaren.
-Cuando el tipo de desarrollos se refiera a esteros o manglares, o puedan afectarse éstos, deberá consultarse la opinión del Ministerio de Agricultura y Ganadería.
+Artículo 11.- De acuerdo con lo que establece el artículo 22 de la
+Ley, en la zona pública no se permitirá el desarrollo de obras de
+infraestructura ni construcciones que no sean para uso público, o se
+trate de instalaciones turísticas estatales. En este último caso, los
+planos y proyectos de dichas instalaciones deberán contar con la
+aprobación del Ministerio de Obras Públicas y Transportes, el ICT y el
+INVU. Una vez satisfecho este requisito, el ICT pondrá el proyecto en
+conocimiento de la municipalidad respectiva para que resuelva sobre él.
+Las instituciones consultadas tendrán 60 días calendario para
+pronunciarse al respecto, teniéndose como aprobada la consulta si en ese
+plazo no se pronunciaren. Cuando el tipo de desarrollos se refiera a
+esteros o manglares, o puedan afectarse éstos, deberá consultarse la
+opinión del Ministerio de Agricultura y Ganadería.

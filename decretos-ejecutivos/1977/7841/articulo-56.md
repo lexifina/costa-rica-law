@@ -1,2 +1,18 @@
-Artículo 56.- Quienes se propongan realizar explotaciones turísticas, deberán rendir garantía de ejecución del proyecto a favor de la municipalidad respectiva, con la aprobación previa del ICT en cuanto al monto y al tipo de garantía. Dicha garantía deberá rendirse mediante hipoteca, bonos de garantía o bonos del Estado o sus instituciones, o cualquier otra forma de caución satisfactoria. El monto se fijará entre el 1% y el 5% del valor del proyecto, y la garantía deberá rendirse con un plazo de vigencia que exceda en un tercio al fijado por el interesado para la ejecución del proyecto.
-Una vez terminado el proyecto, la garantía será devuelta por la municipalidad a los interesados, previa autorización escrita del ICT. Esta garantía se otorgará sin perjuicio de las que establecen las leyes en favor de otras instituciones. En caso de incumplimiento, la municipalidad ejecutará la garantía y su producto se destinarán a los fines previstos en el artículo 59 de la Ley. Las municipalidades, con la aprobación del ICT, podrán prorrogar el plazo de ejecución de la obra, en cuyo caso deberá renovarse la garantía conforme a lo indicado en el párrafo anterior.
+Artículo 56.- Quienes se propongan realizar explotaciones
+turísticas, deberán rendir garantía de ejecución del proyecto a favor de
+la municipalidad respectiva, con la aprobación previa del ICT en cuanto
+al monto y al tipo de garantía. Dicha garantía deberá rendirse mediante
+hipoteca, bonos de garantía o bonos del Estado o sus instituciones, o
+cualquier otra forma de caución satisfactoria. El monto se fijará entre
+el 1% y el 5% del valor del proyecto, y la garantía deberá rendirse con
+un plazo de vigencia que exceda en un tercio al fijado por el interesado
+para la ejecución del proyecto.
+Una vez terminado el proyecto, la garantía será devuelta por la
+municipalidad a los interesados, previa autorización escrita del ICT.
+Esta garantía se otorgará sin perjuicio de las que establecen las leyes
+en favor de otras instituciones. En caso de incumplimiento, la
+municipalidad ejecutará la garantía y su producto se destinarán a los
+fines previstos en el artículo 59 de la Ley. Las municipalidades, con la
+aprobación del ICT, podrán prorrogar el plazo de ejecución de la obra, en
+cuyo caso deberá renovarse la garantía conforme a lo indicado en el
+párrafo anterior.

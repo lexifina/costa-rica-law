@@ -1,2 +1,10 @@
-Artículo 10.- En la zona marítimo terrestre es prohibido cortar árboles, tirar basura, modificar la topografía del terreno, o llevar a cabo cualquier acción que altere el equilibrio ecológico del lugar, sin la debida autorización.
-Quienes ubiquen en la zona marítimo terrestre instalaciones temporales o móviles como tiendas de campaña o trailers deberán hacerlo en las zonas destinadas para tales fines, cuando las hubiere; en todo caso, están obligados a observar las normas dictadas por las autoridades de salud, quedando sujetos a las sanciones contempladas en la Ley General de Salud.
+Artículo 10.- En la zona marítimo terrestre es prohibido cortar
+árboles, tirar basura, modificar la topografía del terreno, o llevar a
+cabo cualquier acción que altere el equilibrio ecológico del lugar, sin
+la debida autorización.
+Quienes ubiquen en la zona marítimo terrestre instalaciones
+temporales o móviles como tiendas de campaña o trailers deberán hacerlo
+en las zonas destinadas para tales fines, cuando las hubiere; en todo
+caso, están obligados a observar las normas dictadas por las autoridades
+de salud, quedando sujetos a las sanciones contempladas en la Ley General
+de Salud.

@@ -1,2 +1,16 @@
-Artículo 46.- La Municipalidad remitirá el contrato debidamente firmado al ICT o al ITCO, según corresponda para su aprobación. Sin perjuicio de las excepciones hechas en el artículo 18 de la Ley, el ICT y el ITCO dispondrán de un plazo de noventa días naturales para pronunciarse, a partir de la fecha en que la solicitud se recibida por la institución correspondiente.
-En caso de aprobarse la Concesión se le dará trámite para su inscripción en el Registro General de Concesiones. Los contratos no cobrarán vigencia legal hasta tanto no cuenten con la aprobación explicita del ICT o del ITCO, según corresponda. De no obtenerse esta aprobación, el importe del canon deberá reintegrarse al interesado
+Artículo 46.- La Municipalidad deberá remitir, previo al
+otorgamiento de la concesión, todos los documentos que respaldan la
+solicitud de concesión respectiva, al ICT o al IDA, si se tratare de una
+solicitud de concesión de uso agropecuario. Estos dispondrán de un plazo
+de noventa días naturales para pronunciarse, a partir de la fecha en que
+la solicitud sea recibida por el Instituto correspondiente.
+En ambos casos el acto administrativo deberá emitirse mediante
+resolución razonada, recomendando o no, que se otorgue el contrato
+solicitado por parte de la municipalidad correspondiente. Dicha
+resolución deberá ser notificada por el Instituto respectivo al
+interesado y contra ésta cabrán los recursos administrativos que
+establezca la ley. La institución correspondiente devolverá los
+atestados recibidos a la municipalidad respectiva junto con la resolución
+administrativa definitivamente firme que se haya dictado al efecto.
+(Así reformado por el artículo 1º del Decreto Nº 26221 de 7 de julio
+de 1997).

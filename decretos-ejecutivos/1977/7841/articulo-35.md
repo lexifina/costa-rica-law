@@ -1,1 +1,4 @@
-Artículo 35.- Cuando proceda la inspección, ésta se hará después de recibido el pago señalado en el artículo anterior, y se notificará al solicitante la hora y fecha de la misma con no menos de ocho días de anticipación.
+Artículo 35.- Cuando proceda la inspección, ésta se hará después de
+recibido el pago señalado en el artículo anterior, y se notificará al
+solicitante la hora y fecha de la misma con no menos de ocho días de
+anticipación.

@@ -1,1 +1,5 @@
-Artículo 34.- Revisada la solicitud y encontrándose sin defecto, la municipalidad cobrará al interesado el costo del edicto y, cuando procediere, los gastos de inspección, que comprenden viáticos y transporte. El interesado podrá pagar la suma indicada en la Tesorería Municipal o a nombre de la municipalidad en el banco que ésta le indique.
+Artículo 34.- Revisada la solicitud y encontrándose sin defecto, la
+municipalidad cobrará al interesado el costo del edicto y, cuando
+procediere, los gastos de inspección, que comprenden viáticos y
+transporte. El interesado podrá pagar la suma indicada en la Tesorería
+Municipal o a nombre de la municipalidad en el banco que ésta le indique.

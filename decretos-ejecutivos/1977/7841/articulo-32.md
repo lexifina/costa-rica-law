@@ -1,1 +1,4 @@
-Artículo 32.- Toda resolución de mero trámite que se dicte en materia de concesiones deberá encabezarse con la indicación de la oficina que la dicta lugar, hora, fecha, y deberá ser firmada por el ejecutivo municipal y el jefe de la oficina respectiva, caso de que ésta exista.
+Artículo 32.- Toda resolución de mero trámite que se dicte en
+materia de concesiones deberá encabezarse con la indicación de la oficina
+que la dicta lugar, hora, fecha, y deberá ser firmada por el ejecutivo
+municipal y el jefe de la oficina respectiva, caso de que ésta exista.

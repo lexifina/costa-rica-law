@@ -1,3 +1,6 @@
 CAPITULO III
 Del Registro General de Concesiones
-Artículo 82.- El ICT establecerá el Registro General de Concesiones de la zona marítimo terrestre, que funcionará bajo su dirección mientras no se determine integrarlo al Registro Nacional.
+Artículo 82.- Establécese el Registro General de Concesiones de la
+Zona Marítimo Terrestre como dependencia del Registro Nacional.
+(Así reformado por el artículo 4º del Decreto Nº 21756 de 24 de noviembre
+de 1992)

@@ -1,1 +1,4 @@
-Artículo 47.- Los recursos contra las resoluciones o acuerdos que dicten las autoridades municipales en materia de concesiones se tramitarán de acuerdo con las normas pertinentes del Código Municipal. Cualquier otro recurso deberá seguir los trámites de ley.
+Artículo 47.- Los recursos contra las resoluciones o acuerdos que
+dicten las autoridades municipales en materia de concesiones se
+tramitarán de acuerdo con las normas pertinentes del Código Municipal.
+Cualquier otro recurso deberá seguir los trámites de ley.

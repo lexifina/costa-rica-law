@@ -1,3 +1,12 @@
-Artículo 67.- Para el otorgamiento de las concesiones contempladas en el artículo anterior se preferirá a las entidades que tengan el mayor número de miembros o afiliados activos, según conste en el registro correspondiente, y, en igualdad de condiciones, a la que haya presentado primero la solicitud.
-Estas entidades sólo podrán hacer uso de la preferencia que les otorga esa disposición una vez, sin perjuicio de que puedan solicitar concesiones en el resto de la zona marítimo-terrestre en igualdad de condiciones con los demás interesados.
-El ICT, con la colaboración del Registro General de Concesiones, deberá velar por el estricto cumplimiento de las disposiciones anteriores.
+Artículo 67.- Para el otorgamiento de las concesiones contempladas
+en el artículo anterior se preferirá a las entidades que tengan el mayor
+número de miembros o afiliados activos, según conste en el registro
+correspondiente, y, en igualdad de condiciones, a la que haya presentado
+primero la solicitud.
+Estas entidades sólo podrán hacer uso de la preferencia que les
+otorga esa disposición una vez, sin perjuicio de que puedan solicitar
+concesiones en el resto de la zona marítimo-terrestre en igualdad de
+condiciones con los demás interesados.
+El ICT, con la colaboración del Registro General de Concesiones,
+deberá velar por el estricto cumplimiento de las disposiciones
+anteriores.

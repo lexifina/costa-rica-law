@@ -1,2 +1,8 @@
-Artículo 9º.- En el ejercicio del derecho al uso público debe tenerse siempre presente el interés general, garantizando en todo momento el acceso a la zona y el libre tránsito en ella de cualquier persona, la práctica de deportes y de actividades para el sano esparcimiento físico y cultural.
-En la zona pública es prohibido transitar en vehículos motores, salvo cuando para ello se cuente con el correspondiente permiso municipal.
+Artículo 9º.- En el ejercicio del derecho al uso público debe
+tenerse siempre presente el interés general, garantizando en todo momento
+el acceso a la zona y el libre tránsito en ella de cualquier persona, la
+práctica de deportes y de actividades para el sano esparcimiento físico y
+cultural.
+En la zona pública es prohibido transitar en vehículos motores,
+salvo cuando para ello se cuente con el correspondiente permiso
+municipal.

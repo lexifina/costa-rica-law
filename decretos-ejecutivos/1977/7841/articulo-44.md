@@ -1,1 +1,4 @@
-Artículo 44.- Una vez aprobada la concesión por el Concejo Municipal se le comunicará al interesado, y se le fijará un término de 30 días hábiles para firmar el contrato y depositar el importe correspondiente a la primera anualidad del canon a favor de la municipalidad respectiva.
+Artículo 44.- Una vez aprobada la concesión por el Concejo Municipal
+se le comunicará al interesado, y se le fijará un término de 30 días
+hábiles para firmar el contrato y depositar el importe correspondiente a
+la primera anualidad del canon a favor de la municipalidad respectiva.

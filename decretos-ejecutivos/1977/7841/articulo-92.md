@@ -1,1 +1,3 @@
-Artículo 92.- Se faculta al ICT para diseñar las normas internas de funcionamiento del Registro, de acuerdo con las disposiciones del presente Capítulo.
+Artículo 92.- DEROGADO.
+(Derogado por el artículo 5º del Decreto Nº 21756 de 24 de noviembre de
+1992).

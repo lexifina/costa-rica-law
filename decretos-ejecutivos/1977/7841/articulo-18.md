@@ -1,2 +1,7 @@
-Artículo 18.- Los planes reguladores a que se refiere el artículo precedente, abarcarán la zona marítimo terrestre y los terrenos próximos a ella que puedan estimarse como parte de su área de influencia.
-Los dueños de inmuebles situados en zonas aledañas, no incluidas en el plan podrán solicitar que sus predios sean incluidos en los referidos planes y será de su cargo el pago de la parte proporcional del costo respectivo.
+Artículo 18.- Los planes reguladores a que se refiere el artículo
+precedente, abarcarán la zona marítimo terrestre y los terrenos próximos
+a ella que puedan estimarse como parte de su área de influencia.
+Los dueños de inmuebles situados en zonas aledañas, no incluidas en
+el plan podrán solicitar que sus predios sean incluidos en los referidos
+planes y será de su cargo el pago de la parte proporcional del costo
+respectivo.
