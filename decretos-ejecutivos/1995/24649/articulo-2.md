@@ -1,0 +1,1 @@
+Artículo 2°- Lso derechos arancelarios establecidos en los decretos ejecutivos N° 23928-MIEC- MAG , publicado en “La Gaceta” N° 29 el 9 de febrero de 1995, que no están contemplados en el decreto ejecutivo N° 23918-MIEC-COME-H, regirán a partir de la vigencia del presente decreto.
