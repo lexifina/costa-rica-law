@@ -1,0 +1,2 @@
+Artículo III
+Atendiendo á la posición geográfica central de Honduras y á las facilidades que esta circunstancia ha dado para que su territorio haya sido con la mayor frecuencia el teatro de las contiendas centroamericanas. Honduras declara desde ahora su absoluta neutralidad en cualquier evento de conflicto entre las otras Repúblicas; y éstas, á su vez, si se observare tal neutralidad, se obligan á respetarla y á no violar, en ningún caso, el territorio hondureño.

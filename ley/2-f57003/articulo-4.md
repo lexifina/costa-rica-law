@@ -1,0 +1,2 @@
+Artículo IV
+Atendiendo á las ventajas que deben obtenerse de la creación de Institutos Centroamericanos para el fomento de sus más vitales intereses, además del Instituto Pedagógico y de la Oficina Internacional Centroamericana que han de establecerse, según las Convenciones celebradas al efecto por esta Conferencia, se recomienda especialmente á los Gobiernos la creación de una Escuela práctica de Agricultura en la República de El Salvador, una de Minería y Mecánica en la de Honduras y otra de Artes y Oficios en la de Nicaragua.

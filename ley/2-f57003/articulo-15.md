@@ -1,0 +1,3 @@
+Artículo XV
+Las autoridades judiciales de las Repúblicas Contratantes darán curso alas requisitorias en materia civil, comercial ó criminal, concernientes á citaciones, interrogatorios y demás actos de procedimiento ó instrucción.
+Los demás actos judiciales, en materia civil ó comercial, procedentes de acción personal, tendrán en el territorio de cualquiera de las Partes Contratantes igual fuerza que los de los tribunales locales, y se ejecutarán del mismo modo. siempre que se declaren previamente ejecutoriados por el Tribunal Supremo de la República en donde han de tener ejecución, lo cual se verificará si llenaren las condiciones esenciales que exige su respectiva legislación y conforme á las leyes señaladas en cada país para la ejecución de las sentencias.

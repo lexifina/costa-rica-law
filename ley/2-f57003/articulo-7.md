@@ -1,0 +1,3 @@
+Artículo VII
+Los individuos que hayan adquirido un título profesional en alguna de las Repúblicas Contratantes podrán ejercer en cualquiera de las otras, sin especial gravamen, sus profesiones, con arreglo á las respectivas leyes, sin más requisitos que los de presentar el título ó diploma correspondiente, debidamente autenticado, y justificar, en caso necesario, la identidad de la persona y obtener el pase del Poder Ejecutivo, donde así lo requiera la ley.
+También serán válidos los estudios científicos hechos en las Universidades, Escuelas Facultativas é Institutos de Segunda Enseñanza de cualquiera de los países contratantes, previa la autenticación de los documentos que acrediten dichos estudios y la comprobación de la identidad de la persona.

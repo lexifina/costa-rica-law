@@ -1,0 +1,3 @@
+Artículo XVI
+Deseando prevenir una de las causas más frecuentes de trastornos en las Repúblicas, los Gobiernos Contratantes no permitirán que los cabecillas ó jefes principales de las emigraciones políticas, ni sus agentes, residan en los departamentos fronterizos á los países cuya paz pudieran perturbar.
+Los que estuvieren actualmente establecidos de una manera fija en un departamento fronterizo podrán permanecer en el lugar de su residencia bajo la inmediata vigilancia del Gobierno asilador; pero desde el momento en que llegaren á constituir peligro para el orden, serán incluidos en la regla del inciso precedente.

@@ -1,0 +1,2 @@
+Artículo XI
+Los agentes diplomáticos y consulares de las Repúblicas Contratantes, en las ciudades, plazas y puertos extranjeros prestarán á las personas, buques y demás propiedades de los ciudadanos de cualquiera de ellas, la misma protección que á las personas, buques y demás propiedades de sus compatriotas, sin exigir por sus servicios otros ó mayores derechos que los acostumbrados respecto de sus nacionales.
