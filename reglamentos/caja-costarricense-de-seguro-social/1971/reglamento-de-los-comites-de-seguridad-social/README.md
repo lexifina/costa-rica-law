@@ -14,3 +14,4 @@ Reglamento de los Comités de Seguridad Social.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1971-07-13 | la propia norma |
+| 2 | 1997-04-29 | Reglamento 7122 (1997-04-29) |
