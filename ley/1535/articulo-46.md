@@ -1,0 +1,1 @@
+Artículo 46.- Antes de dictar una resolución de inclusión el Registro se cerciorará de que no aparece inscrita la persona de que se trata; y en los casos de exclusión comprobará que aparece inscrita. Para esos fines se recurrirá al uso del tarjetero índice mencionado en el párrafo segundo del artículo 38.

@@ -1,0 +1,2 @@
+Artículo 79.- El Director General será separado de su puesto temporalmente co0n derecho a su sueldo, cuando quien acepte expresa o tácitamente una candidatura a la Presidencia o Vicepresidencia de la República, sea su ascendiente, descendiente, hermano, tío o sobrino, por consanguinidad o afinidad, padrastro o hijastro. El impedimento cesará a partir de la declaratoria de elección.
+(Nota de Sinalevi: Mediante publicación en La Gaceta N° 12 del 16 de enero de 1953, se reproduce por error de imprenta este artículo)

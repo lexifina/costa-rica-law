@@ -1,0 +1,1 @@
+Artículo 53.- De toda resolución del Registro se podrá apelar para ante el Tribunal Supremo de Elecciones, dentro del término de dos días posteriores a la notificación respectiva. Quedan a salvo las disposiciones que en cuanto a recursos establece el Código Electoral y la Ley de Extranjería y Naturalización.

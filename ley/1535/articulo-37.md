@@ -1,0 +1,2 @@
+Artículo 37.- La inscripción de electores se hará en tarjetas perforadas mediante el sistema de máquinas eléctricas. Durante todo periodo pre-eleccionario se obtendrán de las tarjetas referidas las listas provisionales y definitivas de exhibición. lo mismo que las que formarán el Padrón o Padrones-Registro.
+El Tribunal Supremo de Elecciones tendrá bajo su custodia una reproducción exacta de todas esas tarjetas y el Registro Civil cada mes le comunicará las modificaciones que diariamente se efectuaren a fin de mantener dicha reproducción al día.

@@ -1,0 +1,3 @@
+Artículo 41.- Conforme se vaya produciendo el libramiento de Cédulas de Identidad a favor de los ciudadanos y la inscripción de defunciones de personas mayores de veinte años, las Secciones respectivas lo comunicarán sin pérdida de tiempo, con todos los datos necesarios, para que esta Sección proceda de oficio a las nuevas inscripciones o cancelaciones.
+Corresponde a esta Sección procurarse los datos que no le hubieren sido suministrados y que fueren necesarios para la inscripción o cancelación.
+Las demás inscripciones y cancelaciones que no se hagan de oficio se harán a petición de parte, la cual deberá aportar toda la documentación en que se fundamente la solicitud, de acuerdo con la ley.

@@ -1,0 +1,1 @@
+Artículo 62.- Recibida la solicitud se procederá a efectuar el estudio correspondiente, y si la documentación viene conforme, el Registro dictará la resolución del caso, ordenando expedir la cédula; en caso contrario denegará la solicitud.

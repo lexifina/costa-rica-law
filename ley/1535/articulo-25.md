@@ -1,0 +1,1 @@
+Artículo 25.- En todo asiento de nacimiento se hará constar por nota marginal cualquiera otra inscripción que posteriormente se haga en el Registro relativa a la misma persona, en los casos que indica el artículo siguiente.

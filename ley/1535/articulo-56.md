@@ -1,0 +1,2 @@
+Artículo 56.- Dentro de los dos meses anteriores a una elección no podrán el Registro ni el Tribunal Supremo de Elecciones dictar resolución alguna que modifique las listas de electores.
+Sin embargo, el Director del Registro podrá corregir los errores en esas listas, siempre que existiere la respectiva resolución firme y puede hacerlo hasta el mismo días de la elección dirigiendo nota o telegrama a la correspondiente Junta Receptora de Votos. De dichas comunicaciones enviará copia inmediatamente al Tribunal Supremo de Elecciones.
