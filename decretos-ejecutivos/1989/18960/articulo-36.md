@@ -1,1 +1,0 @@
-Artículo 36.-Si alguna institución tiene en práctica un sistema similar y desea adoptar el que aquí se propone, lo podrá hacer siempre y cuando los funcionarios beneficiados disfruten de solo uno de ellos.

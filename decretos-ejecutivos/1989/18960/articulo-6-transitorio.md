@@ -1,1 +1,0 @@
-6º.-En caso de duda, las comisiones institucionales, para la calificación de atestados de estudios y experiencia, podrán elevar a la Secretaría Técnica de la Autoridad Presupuestaria, solicitud escrita para su estudio y resolución definitiva.

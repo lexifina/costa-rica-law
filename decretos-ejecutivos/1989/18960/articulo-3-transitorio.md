@@ -1,1 +1,0 @@
-3º.-El pago derivado de la aplicación de la carrera profesional se hará con efecto retroactivo al 1º de enero de 1988, para todos los casos que se presenten dentro de los dos meses siguientes después de la fecha de vigencia de la respectiva resolución.

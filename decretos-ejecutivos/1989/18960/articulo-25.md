@@ -1,1 +1,0 @@
-Artículo 25.-Las disposiciones del capítulo VII, no serán aplicadas, por el lapso de un año a partir de la fecha de vigencia de estas normas, a las instituciones que no posean un sistema de calificación de servicios, en tanto lo diseñan y lo ponen en práctica.

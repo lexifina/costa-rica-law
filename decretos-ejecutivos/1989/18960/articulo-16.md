@@ -1,6 +1,0 @@
-De la experiencia:
-Artículo 16.-La experiencia profesional se reconocerá siempre que:
-a) Haya sido obtenida en forma interina (no menor de tres meses) o en propiedad en un puesto profesional para cuyo desempeño se exija al menos el grado de licenciado y el servidor posea también ese grado.
-Además, se reconocerá aquella experiencia (no menor de tres años ni mayor de cuatro), adquirida en un puesto subprofesional a partir del momento en que el titular haya obtenido el grado académico de licenciado, y si tal puesto luego es reasignado.
-La experiencia obtenida en instituciones del Estado podrá ser aceptada si no es inferior a los tres meses, si es similar o afín a las tareas que está realizando; que se haga constar en un documento avalado por el jefe inmediato, el jefe de personal y el jefe del departamento legal de la institución; y que haya sido obtenida en un puesto en que se exija el título de licenciado por lo menos y que el funcionario poseyera esa condición durante el desempeño del puesto.
-b) Haya sido calificada con nota inferior a Muy Bueno. La calificación de los servidores interinos, para su consideración en la carrera profesional, se efectuará en el formulario oficial y de acuerdo con los procedimientos establecidos para el resto de los funcionarios de la institución o empresa pública.

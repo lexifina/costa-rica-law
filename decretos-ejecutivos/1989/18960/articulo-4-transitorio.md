@@ -1,1 +1,0 @@
-4º.-Los factores que hubieren sido reconocidos de acuerdo con el sistema anterior, serán considerados para la reubicación en el nuevo sistema. A ningún funcionario se le disminuirá la suma que actualmente percibe por concepto de la carrera profesional.

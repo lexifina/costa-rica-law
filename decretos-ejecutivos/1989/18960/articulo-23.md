@@ -1,1 +1,0 @@
-Artículo 23.-El profesional podrá recuperar el incentivo de la carrera profesional de que disfrutaba, si al año siguiente de la calificación de servicios que motivó la suspensión referida, obtuviera en la calificación de servicios una nota mínima de Muy Bueno.

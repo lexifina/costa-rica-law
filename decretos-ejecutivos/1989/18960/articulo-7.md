@@ -1,1 +1,0 @@
-Artículo 7º.-La comisión institucional de la carrera profesional no hará estudios de oficio; solo revisará solicitudes que se tramiten por medio; sesionará una vez al mes en forma ordinaria, y extraordinariamente cuando dos de sus miembros lo convoquen. Los asuntos tratados serán resueltos por simple mayoría.

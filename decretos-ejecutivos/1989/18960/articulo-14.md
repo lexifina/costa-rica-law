@@ -1,1 +1,0 @@
-Artículo 14.-No se reconocerá el incentivo contemplado en el artículo anterior a aquellos profesionales para quienes el trabajo cotidiano del puesto sea el de coordinación o instructor en programas de capacitación.

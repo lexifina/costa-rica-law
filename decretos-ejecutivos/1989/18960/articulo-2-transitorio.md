@@ -1,1 +1,0 @@
-2º.-El valor de cada punto, se establece en ¢ 135,00 a partir del 1º de julio de 1988. Este será revisado en enero de 1989, la primera vez y luego cada dos años por la Dirección General de Servicio Civil. La Autoridad Presupuestaria podrá hacerlo extensivo al sector descentralizado.

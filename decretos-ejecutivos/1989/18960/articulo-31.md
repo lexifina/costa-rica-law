@@ -1,1 +1,0 @@
-Artículo 31.-El monto por reconocer se establecerá mediante resolución escrita del jerarca ejecutivo, con visto bueno del departamento legal de la institución, copia de la cual se acompañará en cada modificación presupuestaria. La fecha de vigencia del pago será la misma en que recibió la solicitud el departamento de personal.
