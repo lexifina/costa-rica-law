@@ -1,0 +1,1 @@
+Art 11. La Dirección propondrá á la Municipalidad las más medidas que parezcan convenientes al mejor éxito de la obra, y formará su reglamento interior que propondrá al Senado, cuando exista, para su aprobación.

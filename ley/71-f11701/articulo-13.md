@@ -1,0 +1,1 @@
+Art. 13. El presente decreto se pondrá en conocimiento del Senado y se imprimirá y publicará para su cumplimiento. –Dado en la ciudad de San José a los cinco días del mes de Agosto de 1844. –José María Alfaro. –Al Ministro de Hacienda y Guerra encargado accidentalmente del Ministerio de Relaciones y Gobernación.

@@ -1,0 +1,1 @@
+Art 10. Podrá también la Dirección ocurrir á donativos voluntarios de los interesados en la fuente desde su origen, y a empréstitos proporcionados con previo acuerdo de la Municipalidad sobre el crédito de los propios de esta Capital.
