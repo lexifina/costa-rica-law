@@ -1,0 +1,5 @@
+Artículo 9
+Sistemas internacionales y regionales
+9.1 Cuando se exija una declaración positiva de conformidad con un reglamento técnico o una norma, los Miembros elaborarán y adoptarán, siempre que sea posible, sistemas internacionales de evaluación de la conformidad y se harán miembros de esos sistemas o participarán en ellos.
+9.2 Los Miembros tomarán las medidas razonables que estén a su alcance para lograr que los sistemas internacionales y regionales de evaluación de la conformidad de los que las instituciones competentes de su territorio sean miembros o participantes cumplan las disposiciones de los artículos 5 y 6. Además, los Miembros no adoptarán medidas que tengan por efecto obligar o alentar directa o indirectamente a esos sistemas a actuar de manera incompatible con alguna de las disposiciones de los artículos 5 y 6.
+9.3 Los Miembros se asegurarán de que las instituciones de su gobierno central sólo se atengan a los sistemas internacionales o regionales de evaluación de la conformidad en la medida en que estos cumplan las disposiciones de los artículos 5 y 6, según proceda.
