@@ -1,0 +1,4 @@
+Artículo 3º.- El uso de muestras médicas de medicamentos genéricos y
+de nombre registrado que contengan drogas estupefacientes puras y
+sustancias sicotrópicas, se autorizará únicamente en Instituciones
+Hospitalarias.
