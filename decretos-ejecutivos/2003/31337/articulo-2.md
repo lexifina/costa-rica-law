@@ -1,0 +1,1 @@
+Artículo 2º—Elimínese del Decreto Ejecutivo Nº 30058-H-MP-PLAN, el inciso k) y los subincisos k.1) y k.2) del artículo 33, agregado por el Decreto Ejecutivo Nº 30903-H-MP-PLAN publicado en el Alcance Nº 94 a La Gaceta Nº 251 del 30 de diciembre del 2002.
