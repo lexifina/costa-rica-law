@@ -13,3 +13,4 @@ Homologa Normas Sobre Funcionamiento Laboratorios de Ensayo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-07-15 | la propia norma |
+| 2 | 1993-07-15 | Ley 7 |
