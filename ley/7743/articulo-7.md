@@ -1,0 +1,3 @@
+Artículo 7°- Extensión a otros beneficiarios. Las autorizaciones y deducciones referidas en esta ley se extenderán a las contribuciones que las instituciones públicas, empresas públicas estatales y empresas privadas otorgan a las instituciones de proyección educativa y social, declaradas de utilidad pública, incluidas por el Poder Ejecutivo mediante decreto, como beneficiarias de esta ley y dedicadas a obras como las que aquí se regulan; todo de conformidad con los requerimientos y las condiciones señalados en esta ley.
+TRANSITORIO.- Los incentivos tributarios podrán aplicarse solo a las obligaciones tributarias correspondientes a los períodos fiscales 97, 98 y 99.
+Rige a partir de su publicación.
