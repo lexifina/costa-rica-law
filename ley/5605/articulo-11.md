@@ -3,7 +3,8 @@ Conferencia de las Partes
 1. La Secretaría convocará a una Conferencia de las Partes a más tardar dos años después de la entrada en vigor de la presente Convención.
 2. Posteriormente, la Secretaría convocará reuniones ordinarias de la Conferencia por lo menos una vez cada dos años, a menos que la Conferencia decida otra cosa, y reuniones extraordinarias en cualquier momento a solicitud, por escrito, de por lo menos un tercio de las Partes.
 3. En las reuniones ordinarias o extraordinarias de la conferencia, las Partes examinarán la aplicación de la presente Convención y podrán:
-a) adoptar cualquier medida necesaria para facilitar el desempeño de las funciones de la Secretaría;
+a) adoptar cualquier medida necesaria para facilitar el desempeño de las funciones de la Secretaría y adoptar previsiones financieras.
+(Así reformado el inciso anterior por el artículo 1° de la Ley N° 7103 de 31 de octubre de 1988).
 b) considerar y adoptar enmiendas a los Apéndices I y II de conformidad con lo dispuesto en el artículo XV;
 c) analizar el progreso logrado en la restauración y conservación de las especies incluidas en los Apéndices I, II y III;
 d) recibir y considerar los informes presentados por la Secretaría o cualquiera de las Partes; y
