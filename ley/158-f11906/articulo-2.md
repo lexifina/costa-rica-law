@@ -1,0 +1,1 @@
+Art 2°.- Para obtener tales licencias deberán dejar sostitutos de actitud aprovados por el Gobierno con el goze de veinte y cinco pesos mensuales, no recayendo en el Oficial Mayor de la Tesorería, quedando los licenciados con la Responsabilidad y sin sueldo.
