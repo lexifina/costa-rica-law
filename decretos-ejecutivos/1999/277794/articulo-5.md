@@ -1,0 +1,2 @@
+ARTICULO QUINTO
+Las Partes formularán un programa de trabajo bienal que formará parte integrante del presente Acuerdo y que comprenderá los proyectos específicos a ser desarrollados, con la siguiente información: autoridades responsables, instituciones o dependencias participantes, cronogramas, fechas alternativas de inicio, asignación de recursos humanos, materiales y financieros aplicables a cada caso.

@@ -1,0 +1,3 @@
+ARTICULO SEGUNDO
+Para el adecuado cumplimiento del presente Acuerdo, se designan como órganos ejecutores, por parte de Costa Rica, la Comisión Nacional de Emergencia (C.N.E.), representada por su Presidente Ejecutivo y por parte de México, al Consejo Nacional de Protección Civil (CNPC), representado por su Secretario Técnico, el Coordinador General de Protección Civil.
+La coordinación, realización, supervisión y evaluación de los proyectos de cooperación estará a cargo, en el caso de Costa Rica por la Comisión Nacional de Emergencia y en el caso de México, de la Dirección General de Protección Civil de la Secretaría de Gobernación.

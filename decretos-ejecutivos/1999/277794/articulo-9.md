@@ -1,0 +1,3 @@
+ARTICULO NOVENO
+El personal enviado por una de las Partes a la Otra se someterá, en el lugar de su ocupación, a las disposiciones de la legislación nacional vigente en el país receptor. Este personal no podrá dedicarse en el país receptor a ninguna actividad ajena a sus funciones, ni recibir remuneración alguna, fuera de las que hubiesen sido establecidas, sin la previa autorización de las autoridades competentes.
+El personal comisionado por cada una de las Partes continuará bajo la dirección y dependencia de la Institución a la que pertenezca, por lo que no se crearán relaciones de carácter laboral con la Otra, a la que en ningún caso se considerará como patrón sustituto.

@@ -1,0 +1,2 @@
+ARTICULO OCTAVO
+El intercambio de persona a que se refiere el Artículo Cuarto del presente Acuerdo, se llevará a cabo de conformidad con el régimen internacional de costos compartidos, es decir, la Parte que envía cubrirá los gastos de transporte aéreo internacional, mientras que la Parte receptora sufragará los gastos de alimentación, hospedaje y transporte local, necesarios para la ejecución de los programas y proyectos.

@@ -1,0 +1,3 @@
+ARTICULO SEXTO
+Los recursos necesarios para la ejecución de los programas, proyectos o actividades que se realizarán con base en el presente Acuerdo, podrán ser aportados por los Gobiernos de ambas Partes, organismos internacionales, otros Gobiernos cooperantes y organismos no gubernamentales, que manifiesten interés en suministrar recursos y asistencia técnica y financiera de carácter no reembolsable.
+Los gastos que se deriven del desarrollo de las actividades al amparo del presente Acuerdo, estarán a cargo de los presupuestos ordinarios de las instituciones firmantes, conforme a las normas presupuéstales vigentes en cada país.
