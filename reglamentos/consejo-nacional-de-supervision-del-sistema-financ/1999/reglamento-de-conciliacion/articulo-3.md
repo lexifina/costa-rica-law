@@ -1,0 +1,2 @@
+Artículo 3°-Análisis de argumentos y pruebas
+La Superintendencia tendrá un plazo máximo de quince días hábiles, contados a partir de la fecha de presentación del reclamo, para pronunciarse sobre la admisibilidad de este, o bien para rechazarlo ad portas. En caso de que el reclamo sea admitido trasladará copia de este a la operadora, para los efectos de que, en un plazo no mayor de diez días hábiles, presente sus alegatos y pruebas de descargo.
