@@ -1,0 +1,1 @@
+Transitorio único.—Para el año en curso la revisión del factor adicional se hará en el tercer trimestre, con base en los registros contables anuales del último período fiscal cerrado más el primer semestre del 2001.
