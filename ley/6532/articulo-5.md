@@ -1,0 +1,1 @@
+Articulo 5°—Autorizase al Banco Central de la República de Costa Rica para otorgar la "Garantía de Pago" a que hace referencia el Contrato de Préstamo, para el debido cumplimiento de las obligaciones de pago convenidas en el mismo.
