@@ -1,2 +1,0 @@
-4.Agregar un literal g) al artículo 14 del capítulo IV, aparte B) ATRIBUCIONES, el cual se leerá como se copia a continuación:
-"g. EI BANHVI, en su calidad de supervisor auxiliar de la SUGEF, podría subcontratar los servicios profesionales que requiera para el desempeño de sus labores, una vez cumplidas las disposiciones legales y reglamentarias que Ie son aplicables en relación con este tipo de contrataciones."
