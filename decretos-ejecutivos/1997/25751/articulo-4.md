@@ -1,0 +1,18 @@
+Artículo 4° - Se establece el siguiente detalle de puestos para la subpartida “ Jornales” consignada en el artículo 2° del presente Decreto Ejecutivo.
+112- MINISTERIO DE OBRAS PUBLICAS Y TRANSPORTES
+050-RELACIÓN DE PUESTOS DE JORNALES PARA EL AÑO 1997
+Código Clase | Detalle de los puestos | Cuota Mensual | Cuota anual
+112.369-00 | PROGRAM: CONSTRUC. COMED. ESCOL. PUESTOS DE SALUD RURAL-EBAIS, CEN. (12 meses Enero-Diciembre 1997) | |
+112.369-00.01 | UNID. EJECUT. CONST. ESC. PUEST. SAL. EBAIS. CEN | | 21.637.800.00
+112.369-00.01.0001 | ASIGNACIONES FAMILIARES | 1.803.150.00 | 21.637.800.00
+16155 1 | TRABAJ. ESPECIALIZADO 4 | 54.050.00 | 648.600.00
+16150 4 | TRABAJO ESPECIALIZ. 3 A ¢52.150.00 C/U | 208.600.00 | 2.503.200.00
+1 | TRABAJO ESPECIALIZADO 2 | 50.750.00 | 609.000.00
+169140 19 | TRABAJO ESPECIALIZ. 1 A ¢48.650.00 C/U | 924.350.00 | 11.092.200.00
+10819 3 | OPER. EQUIPO MOVIL 1 A ¢47.850.00 C/U | 143.550.00 | 1.722.600.00
+16350 8 | TRAB. MISCELANEO2 A ¢47.050.00 C/U | 376.400.00 | 4.516.800.00
+16344 1 | TRAB. MISCELANEO 1 | 45.450.00 | 545.400.00
+82 | Para reconocimiento de incremento salarial por costo de vida, según resolución de la Dirección General se Servicio Civil y la Autoridad Presupuestaria | 635.974.00 | 7.631.688.00
+125 | Retribución sobre sueldo mínimo, Ley de Salarios de la Administración Pública N° 6835 del 22-12-82 | 747.140.16 | 8.965.682.00
+| TOTAL SUELDOS PROGRAMA CONST. COMED. ESCOLARES PUESTOS SALUD RURAL, EBAIS, CEN, TOTAL SUELDOS | | 38.235.170.00
+| TITULO 112 MINISTERIO DE OBRAS PUBLICAS Y TRANSPORTES | | 38.235.170.00
