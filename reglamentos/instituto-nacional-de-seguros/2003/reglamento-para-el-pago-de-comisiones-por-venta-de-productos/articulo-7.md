@@ -1,0 +1,1 @@
+Artículo 7º—El Puesto de Bolsa capacitará a los comisionistas, en relación con los diferentes productos y/o servicios que aquel ofrece; y en relación con la operativa propia del negocio, financiero y contable del Puesto de Bolsa.

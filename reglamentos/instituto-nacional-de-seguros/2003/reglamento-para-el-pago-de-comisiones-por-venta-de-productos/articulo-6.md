@@ -1,0 +1,1 @@
+Artículo 6º—Los comisionistas, deberán cumplir con las instrucciones que les gire el Puesto de Bolsa, con estricto apego a las disposiciones contenidas: en este reglamento, en toda la normativa relacionada con el Mercado de Valores (Legal o Reglamentaria), usos y prácticas bursátiles y normativa relacionada con la prevención de legitimación de capitales ilícitos.

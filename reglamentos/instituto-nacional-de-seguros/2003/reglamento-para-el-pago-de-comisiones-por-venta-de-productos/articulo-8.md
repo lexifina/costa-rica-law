@@ -1,0 +1,1 @@
+Artículo 8º—El Puesto de Bolsa se reserva el derecho de realizar en cualquier momento verificaciones contables o auditorias pertinentes, con el fin de controlar el correcto cumplimiento de las obligaciones derivadas del presente reglamento, del respectivo contrato de comisión, y de toda la normativa relacionada con el Mercado de Valores.
