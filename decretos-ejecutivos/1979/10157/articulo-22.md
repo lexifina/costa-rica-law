@@ -1,0 +1,1 @@
+Artículo 22.-Los funcionarios de la administración pública que actúan en las regiones y subregiones, brindarán la máxima colaboración a los Consejos Regionales y Subregionales y a las respectivas Secretarías de Planificación y Coordinación Regional, y les facilitarán la información que requieran para el cumplimiento de sus cometidos.

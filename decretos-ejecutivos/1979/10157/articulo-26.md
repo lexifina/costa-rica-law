@@ -1,0 +1,1 @@
+Artículo 26.-Las oficinas regionales y agencias subregionales mencionadas en el artículo anterior, deberán organizarse por sectores de actividad, según lo que dispone el Decreto Ejecutivo N° 9644-P-OP que crea el Subsistema de Planificación Sectorial, para fines de coordinación interinstitucional en cada región.

@@ -1,0 +1,1 @@
+Artículo 5°-El Consejo Nacional de Desarrollo se reunirá ordinariamente cada tres meses y extraordinariamente cada vez que sea convocado por el Presidente de la República. El Consejo establecerá sus propios procedimientos y normas de trabajo.

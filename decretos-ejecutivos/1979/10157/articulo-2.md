@@ -1,0 +1,1 @@
+Artículo 2°-El Subsistema de Planificación y Coordinación Regional y Urbana tendrá las funciones que se establecen por medio del presente decreto y las que con posterioridad establezca como complemento el Poder Ejecutivo.
