@@ -14,3 +14,4 @@ Crea Comisión Asesora Interinstitucional, para emitir criterios técnicos relac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-05 | la propia norma |
+| 2 | 1994-04-06 | Decreto Ejecutivo 23289 (1994-04-06) |
