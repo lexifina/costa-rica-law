@@ -1,4 +1,5 @@
 Nº 5337
+(Nota de Sinalevi: Mediante el artículo 45 de la Ley Orgánica Instituto Costarricense Ferrocarriles INCOFER, N° 7001 del 19 de setiembre de 1985, se estableció que la ley antes referida modifica en lo conducente a la presente norma.)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1º.- Refórmase la ley Nº 3091 de 18 de febrero de 1963, que en lo sucesivo se leerá así:
