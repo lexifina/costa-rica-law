@@ -1,0 +1,3 @@
+Artículo 451
+Violación de la neutralidad de la república
+Se infligirá la misma pena o la de confinamiento en igual grado, al que violare la neutralidad de la Nación en un conflicto de guerra entre dos o más potencias, comerciando con los beligerantes en artículos declarados como contrabando de guerra, o levantando o alistando tropas para alguno de ellos, o proporcionándoles buques o armándolos, y al que en caso de guerra civil en otro Estado, violare dicha neutralidad del modo expresado o infringiendo los requisitos con que la establezcan el Derecho Internacional o los tratados públicos.
