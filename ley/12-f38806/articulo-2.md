@@ -1,0 +1,1 @@
+Art 2°.- El Comandante General hará que los Jefes a quienes por las ordenanzas militares corresponde a quienes por las ordenanzas militares correspondientes la instrucción de tales expedientes, procedan a su formación, observando puntualmente las disposiciones de la materia, y dando cuenta con ellos a la misma Comandancia en todo el mes citado.
