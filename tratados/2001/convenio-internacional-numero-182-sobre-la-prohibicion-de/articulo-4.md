@@ -1,0 +1,4 @@
+Artículo 4
+1º—Los tipos de trabajo a que se refiere el articulo 3, d) deberán ser determinados por la legislación nacional o por la autoridad competente, previa consulta con las organizaciones de empleadores y de trabajadores interesadas y tomando en consideración las normas internacionales en la materia, en particular los párrafos 3 y 4 de la Recomendación sobre las peores formas de trabajo infantil, 1999.
+2º—La autoridad competente, previa consulta con las organizaciones de empleadores y de trabajadores interesadas, deberá localizar dónde se practican los tipos de trabajo determinados a tenor del párrafo 1 de este artículo.
+3º—Deberá examinarse periódicamente y, en caso necesario, revisarse la lista de los tipos de trabajo determinados a tenor del párrafo 1 de este artículo, en consulta con las organizaciones de empleadores y de trabajadores interesadas.
