@@ -1,0 +1,1 @@
+Art. 19. -Los Inspectores de matanzas, Jueces le galera, Jueces de paz 6 Comisarios A quienes se convenciere de connivencia con los carniceros para la defraudación del derecho de Subvención, à más de perder el destino, si tuvieren sueldo ó emolumentos hijos, incurrirán en la multa de veinticinco pesos.
