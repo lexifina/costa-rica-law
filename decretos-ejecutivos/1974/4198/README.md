@@ -14,3 +14,4 @@ Reforma Comisión Asesora Nacional de los Incentivos Fiscales al Desarrollo Indu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-08-01 | la propia norma |
+| 2 | 1975-12-12 | Decreto Ejecutivo 5524 (1975-12-12) |
