@@ -14,3 +14,4 @@ Reforma Reserva Indígena Cabécar de Telire
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-06-20 | la propia norma |
+| 2 | 1985-09-25 | Decreto Ejecutivo 16571 (1985-09-25) |
