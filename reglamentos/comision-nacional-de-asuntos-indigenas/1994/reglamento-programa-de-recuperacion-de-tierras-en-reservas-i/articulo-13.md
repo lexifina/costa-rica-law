@@ -1,0 +1,1 @@
+Artículo 13.—Tomando en consideración el rendimiento agrario, se dará prioridad a la compra de fincas que sean de buena calidad agrícola, o de valor estratégico y de determinante beneficio para la comunidad indígena.

@@ -1,0 +1,1 @@
+Artículo 4°—La CONAI actuará prioritariamente en función de sus intereses y de los de las reservas, y tomará la iniciativa de contactar a los propietarios de las fincas que desea adquirir por considerarlas prioritarias, respetando los derechos establecidos en la Ley para los administrados oferentes.

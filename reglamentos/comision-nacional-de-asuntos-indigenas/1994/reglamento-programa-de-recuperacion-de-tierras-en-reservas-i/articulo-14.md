@@ -1,0 +1,1 @@
+Artículo 14.—La integración ordenada y flexible de los factores citados en los artículos que anteceden, numerados del 7 al 12, es la que inducirá a establecer la lista potencial de adquisiciones, mencionada en el artículo 5° del presente Reglamento.

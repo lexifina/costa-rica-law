@@ -1,0 +1,1 @@
+Artículo 9°—Asimismo, se dará prioridad a la adquisición de tierras en las reservas en las cuales existe evidente estabilidad, y buen manejo de parte del gobierne local (Junta Directiva de la Asociación de Desarrollo Integral), de los recursos invertidos en el presente programa.

@@ -1,0 +1,1 @@
+Artículo 5°—Entre agosto y setiembre de cada año, la CONAI establecerá y aprobará una lista de fincas prioritarias para el año siguiente, conforme a las posibilidades económicas potenciales de la Institución, con el objeto de tener una selección preliminar de los inmuebles a adquirir.

@@ -1,0 +1,1 @@
+Artículo 6°—Dentro de sus facultades legales, en el curso del período fiscal respectivo, la Junta Directiva podrá modificar el orden de prioridades en casos muy calificados, siempre y cuando no se cause perjuicio irreparable a los administrados oferentes; sin embargo, siempre se seguirá una práctica sistemática y ordenada en la política de recuperación de tierras.

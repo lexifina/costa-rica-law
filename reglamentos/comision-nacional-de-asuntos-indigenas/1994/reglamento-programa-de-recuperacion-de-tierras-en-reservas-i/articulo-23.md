@@ -1,0 +1,1 @@
+Artículo 23.—De suscitarse un desacuerdo entre la Institución y el propietario, este puede gestionar un nuevo avalúo. De persistir el desacuerdo, se abandonará la negociación y se archivará temporalmente el expediente, quedando facultada la Administración para proceder mediante el procedimiento de expropiación forzosa del inmueble.

@@ -1,0 +1,1 @@
+Artículo 24.—La compra de la finca se efectuará mediante escritura pública o finiquito privado, según los casos. El segundo caso será reservado en principio a fincas de menor área y de mejoras poco relevantes; en el caso de fincas inscritas, siempre se procederá mediante escritura pública.

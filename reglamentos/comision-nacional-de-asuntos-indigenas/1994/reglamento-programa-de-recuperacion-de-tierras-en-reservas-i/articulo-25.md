@@ -1,0 +1,1 @@
+Artículo 25.—La CONAI, al adquirir la finca (o las mejoras), las traspasará en el acto a la Asociación de Desarrollo local, o fijará un plazo para efectuar posteriormente dicho traspaso; este plazo no podrá ser mayor a doce meses, a menos de que la Asociación de Desarrollo respectiva no cuente con la personería jurídica al día.

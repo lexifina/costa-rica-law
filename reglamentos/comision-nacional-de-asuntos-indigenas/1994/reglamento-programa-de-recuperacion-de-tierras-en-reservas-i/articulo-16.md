@@ -1,0 +1,1 @@
+Artículo 16.—Igualmente la Dirección Ejecutiva encargará al Departamento Legal, proceda a realizar un análisis detallado de los aspectos legales referente a citas de inscripción, estudio de gravámenes, planos catastrados, cartas ventas privadas, etc., en procura de contar con un conocimiento real de la situación legal de los inmuebles ofrecidos en venta.

@@ -1,0 +1,1 @@
+Artículo 21.—La negociación con el propietario será efectuada preferentemente por el Director Ejecutivo, o por el funcionario designado por él para tal gestión; el precio convenido no podrá ser superior al avalúo emanado de la Dirección General de la Tributación Directa.

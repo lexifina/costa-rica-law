@@ -1,0 +1,1 @@
+Artículo 19.—Simultáneamente, o previamente al anterior procedimiento (trámites técnicos), la Dirección Ejecutiva y la Dirección Administrativa gestionarán la consecución de los fondos requeridos para las compras de las fincas, así como las modificaciones de presupuesto correspondientes, evitando en la medida de lo posible cualquier atraso en la culminación de la negociación.

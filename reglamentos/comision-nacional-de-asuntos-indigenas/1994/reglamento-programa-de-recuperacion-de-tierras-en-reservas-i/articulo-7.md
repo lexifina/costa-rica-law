@@ -1,0 +1,2 @@
+Artículo 7°—En principio y de acuerdo a los programas, se dará prioridad a las fincas que están inscritas en el Registro Público de la Propiedad, a fin de evitar problemas por recursos judiciales en los casos de fincas afectadas desde hace años por las reservas y en la actualidad no finiquitada su indemnización.
+En todo caso, la posesión o adquisición del inmueble debió ser de buena fe, o haber obtenido su escritura, derecho o establecido su posesión, conforme al ordenamiento jurídico vigente y antes de la promulgación y delimitación de la Reserva Indígena que les afecte.

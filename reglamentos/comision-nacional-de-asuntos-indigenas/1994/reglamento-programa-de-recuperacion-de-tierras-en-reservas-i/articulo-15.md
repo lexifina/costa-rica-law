@@ -1,0 +1,2 @@
+B.- Del procedimiento
+Artículo 15.—Una vez establecidas las listas de las fincas consideradas como prioritarias, la Dirección Ejecutiva solicitará al Departamento de Estudios Territoriales la realización de un estudio detallado, que incluya la ubicación exacta, planimetría y estimación de las diferentes áreas de utilización de dichas fincas, y de otros estudios eventuales que se realizarán tanto en el campo como en la oficina, para arribar a un conocimiento verdadero de las fincas en proceso de adquisición.

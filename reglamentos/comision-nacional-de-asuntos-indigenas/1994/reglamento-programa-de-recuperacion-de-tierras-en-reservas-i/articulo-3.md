@@ -1,0 +1,3 @@
+Artículo 3°—El fundamento filosófico y legal del Programa es en el sentido de que la adquisición de tierras no se efectuará en función de las ofertas de los potenciales vendedores, sino de las prioridades establecidas por la Junta Directiva y/o por la Dirección Ejecutiva de la Institución, en cumplimiento estricto del presente Reglamento.
+Cada oferta recibida, será objeto de la apertura del respectivo expediente administrativo.
+Sin embargo, el hecho del recibo de la oferta no es compromiso para que CONAI tramite la solicitud de venta de la finca, ni implica ninguna obligación de parte de la Institución de adquirir esos inmuebles, como tampoco una prioridad en cuanto a la cronología de la recuperación de las tierras.

@@ -1,0 +1,1 @@
+Artículo 8°—Dentro de las prioridades, serán beneficiadas aquellas reservas ei las cuales no se produce el fenómeno de ventas de tierras por parte de los mismo; indios, a fin de garantizar que los fondos no sean invertidos en evidente perjuicio a h finalidad misma del Programa de Recuperación de Tierras.

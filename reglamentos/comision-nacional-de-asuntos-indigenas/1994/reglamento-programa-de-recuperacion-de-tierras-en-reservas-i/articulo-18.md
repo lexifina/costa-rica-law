@@ -1,0 +1,1 @@
+Artículo 18.—En la realización del avalúo, el Perito siempre será acompañado por un funcionario competente de la Institución (geógrafo, supervisor regional, promotor, Director Ejecutivo), para garantizar el éxito de la inspección. En la medida de lo posible, será acompañado dicho funcionario por el propietario o poseedor del inmueble que será valorado.

@@ -1,0 +1,1 @@
+Artículo 11.—Se dará prioridad a la adquisición de aquellas fincas que son consideradas como estratégicas para el desarrollo de la comunidad indígena, por la Junta directiva de la Asociación de Desarrollo Indígena local.

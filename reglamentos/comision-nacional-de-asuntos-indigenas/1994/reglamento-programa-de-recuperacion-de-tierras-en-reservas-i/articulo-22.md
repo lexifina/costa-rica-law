@@ -1,0 +1,1 @@
+Artículo 22.—Una vez que se aviene el acuerdo, se comunicará lo resuelto a la Junta Directiva para que ésta adopte el acuerdo final. Aprobada la compra, se comunicará a la Administración para que formalice el pago y al Departamento Legal, para que perfeccione la escritura correspondiente.
