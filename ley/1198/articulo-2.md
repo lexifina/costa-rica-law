@@ -1,0 +1,1 @@
+Artículo 2°- La venta se efectuará en pública subasta por un precio no menor de veinte mil colones (¢20,000.00), y su producto se dedicará, de acuerdo con la voluntad de la donante, al embellecimiento del cementerio y a la ejecución de mejoras al Hospital San Vicente de Paúl de la ciudad de Heredia.
