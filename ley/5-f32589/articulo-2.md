@@ -1,0 +1,2 @@
+Art 2° El objeto de esta convocatoria es dar cuenta a aquel Alto Cuerpo con la situación de la República en sus relaciones con la de Nicaragua, a fin de que dicte, si lo tiene a bien, las medidas que correspondan para proveer al mantenimiento de la dignidad, seguridad e integridad de la República.
+Dado en el Palacio Nacional de San José, a los diez días y nueve días del mes de febrero de mil ochocientos setenta y seis.
