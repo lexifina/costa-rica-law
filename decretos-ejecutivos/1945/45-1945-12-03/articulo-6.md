@@ -1,1 +1,0 @@
-Artículo 6°-Los terrenos que se adjudiquen a los indígenas no podrán ser vendidos, hipotecados, arrendados o en cualquier forma enajenados, sino con la autorización previa de la Junta, y solamente a los mismos miembros de su tribu, quienes gozarán del pleno dominio del área que adquieran.

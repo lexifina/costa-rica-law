@@ -1,2 +1,0 @@
-Artículo 7°-Para los efectos de este decreto se considerarán todos los que nazcan y vivan en forma permanente en las reservas, y aquellos que aunque nacieren incidentalmente fuera de las mismas, se trasladen a vivir a ellas de modo permanente.
-La ausencia continua de cualquiera de los indios por más de cuatro años del lugar asignado, les hará perder su condición de tales en lo que concierne a los derechos que este decreto les otorga, ya que su finalidad es la de proteger a la población aborigen de la Nación.
