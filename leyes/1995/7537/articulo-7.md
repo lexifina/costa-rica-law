@@ -1,7 +1,7 @@
 ARTICULO 7.- Suspensión.
 Serán suspendidos de su condición de miembros del Colegio quienes:
-a) Estén inhabilitados, mediante sentencia firme, para ejercer cargos
-públicos.
+a) Estén inhabilitados, mediante sentencia firme, para ejercer
+cargos públicos.
 b) Sufran prisión, por sentencia firme.
 c) Estén declarados judicialmente en estado de insolvencia o
 interdicción. En estos supuestos, una vez habilitados judicialmente, los

@@ -7,8 +7,8 @@ b) Velar porque se cumplan los principios éticos de la profesión.
 c) Colaborar, al desarrollo de esa ciencia con las instituciones de
 educación superior, los institutos, los centros de investigación y otras
 instituciones educativas.
-d) Promover el reconocimiento de los derechos y prerrogativas de sus
-miembros y gestionar y procurar su defensa, cuando sea necesario.
+d) Promover el reconocimiento de los derechos y prerrogativas de
+sus miembros y gestionar y procurar su defensa, cuando sea necesario.
 e) Fomentar la solidaridad, la colaboración y la difusión de
 información entre sus miembros.
 f) Emitir opinión y asesorar en materias de su competencia a los

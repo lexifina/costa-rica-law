@@ -7,5 +7,5 @@ integrará con la mitad más uno de sus miembros.
 Los acuerdos y las resoluciones de la Junta Directiva se tomarán por
 simple mayoría y contra ellos cabrá el recurso de revocatoria con
 apelación subsidiaria ante la Asamblea General.
-Las actas de las sesiones de la Junta Directiva serán firmadas por el
-Presidente y el Secretario.
+Las actas de las sesiones de la Junta Directiva serán firmadas por
+el Presidente y el Secretario.

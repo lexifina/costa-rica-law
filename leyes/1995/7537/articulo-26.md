@@ -1,8 +1,8 @@
 ARTICULO 26.- Funciones del Fiscal.
 Al Fiscal le corresponderá:
-a) Velar por el cumplimiento de esta ley, los reglamentos del Colegio
-y la debida ejecución de los acuerdos y resoluciones de la Asamblea
-General y la Junta Directiva.
+a) Velar por el cumplimiento de esta ley, los reglamentos del
+Colegio y la debida ejecución de los acuerdos y resoluciones de la
+Asamblea General y la Junta Directiva.
 b) Revisar, por lo menos trimestralmente, los registros de la
 Tesorería y los estados financieros del Colegio.
 c) Participar en las reuniones de Junta Directiva, con voz pero sin

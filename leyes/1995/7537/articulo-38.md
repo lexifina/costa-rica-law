@@ -1,11 +1,11 @@
 ARTICULO 38.- Vigencia.
 Rige a partir de su publicación.
 DISPOSICIONES TRANSITORIAS
-TRANSITORIO I.- En un plazo no menor de treinta días hábiles ni mayor
-de cuarenta días hábiles contados a partir de la promulgación de la
+TRANSITORIO I.- En un plazo no menor de treinta días hábiles ni
+mayor de cuarenta días hábiles contados a partir de la promulgación de la
 presente ley, se convocará a la primera Asamblea General Ordinaria del
-Colegio para proceder a la elección de la Junta Directiva, la Fiscalía, el
-Tribunal Electoral y el Tribunal de Ética Profesional.
+Colegio para proceder a la elección de la Junta Directiva, la Fiscalía,
+el Tribunal Electoral y el Tribunal de Etica Profesional.
 La convocatoria se realizará mediante una única publicación en el
 Diario Oficial y en un diario de circulación nacional; en ella se
 incluirán el orden del día de la Asamblea, el lugar, el día y la hora de
