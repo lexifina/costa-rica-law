@@ -1,0 +1,31 @@
+ARTICULO 17
+Antes de autorizar el recurso al trabajo forzoso u obligatorio en
+trabajos de construcción o de conservación que obliguen a los
+trabajadores a vivir en los lugares del trabajo durante un período
+prolongado, las autoridades competentes deberán cerciorarse de que:
+1) se han tomado todas las medidas necesarias para asegurar la higiene
+de los trabajadores y garantizarles la asistencia médica indispensable,
+y, en particular: a) que dichos trabajadores serán sometidos a un examen
+médico antes de comenzar los trabajos, y a nuevos exámenes, a intervalos
+determinados, mientras dure su empleo; b) que se dispone de un personal
+médico suficiente y de los dispensarios, enfermerías, ambulancias y
+hospitales requeridos para hacer frente a todas las necesidades, y c) que
+las condiciones de sanidad de los lugares de trabajo, el suministro de
+agua potable, víveres, combustible y utensilios de cocina y, cuando sea
+necesario, las condiciones de vivienda y vestido son satisfactorias;
+2) se han tomado las medidas necesarias para garantizar la subsistencia
+de la familia del trabajador, especialmente facilitando el envío a la
+misma de una parte del salario por medio de un procedimiento seguro y con
+el consentimiento o a solicitud del trabajador;
+3) los viajes de ida de los trabajadores al lugar del trabajo y los de
+regreso estarán garantizados por la administración, bajo su
+responsabilidad y a sus expensas, y que la administración facilitará
+estos viajes utilizando al máximo todos los medios de transporte
+disponibles;
+4) en caso de enfermedad o de accidente que cause una incapacidad de
+trabajo de cierta duración, la repatriación de los trabajadores estará a
+cargo de la administración;
+5) todo trabajador que desee permanecer como trabajador libre a la
+expiración de su período de trabajo forzoso u obligatorio tendrá la
+facultad de hacerlo, sin perder sus derechos a la repatriación gratuita,
+durante un período de dos años.

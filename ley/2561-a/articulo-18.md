@@ -1,0 +1,37 @@
+ARTICULO 18
+1. El trabajo forzoso u obligatorio para el transporte de personas o de
+mercancías, por ejemplo, el de los cargadores y el de los barqueros,
+deberá ser suprimido lo antes posible, y hasta que se suprima, las
+autoridades competentes deberán dictar reglamentos que determinen
+especialmente: a) la obligación de no utilizar este trabajo sino para
+facilitar el transporte de funcionarios de la administración en el
+ejercicio de sus funciones, el transporte del material de la
+administración o, en caso de absoluta necesidad para el transporte de
+otras personas que no sean funcionarios; b) la obligación de no emplear
+en dichos transportes sino a hombres que hayan sido reconocidos
+físicamente aptos para este trabajo, después de pasar un examen médico,
+siempre que dicho examen sea posible, y en caso de que no lo fuere, la
+persona que contrate esta mano de obra deberá garantizar, bajo su propia
+responsabilidad, que los obreros empleados tienen la aptitud física
+requerida y que no padecen ninguna enfermedad contagiosa; c) la carga
+máxima que podrán llevar los trabajadores; d) la distancia máxima desde
+el lugar donde trabajen al lugar de su residencia; e) el número máximo de
+días al mes, o en cualquier otro período, en que podrá exigirse a los
+trabajadores este trabajo, comprendiendo en este número los días del
+viaje de regreso; f) las personas que estarán autorizadas a exigir esta
+forma de trabajo forzoso u obligatorio, y hasta qué punto estarán
+facultadas para exigirlo.
+2. Al fijar el máximum a que se refieren los incisos c), d) y e) del
+párrafo precedente, las autoridades competentes deberán tener en cuenta
+todos los elementos pertinentes, especialmente el de la aptitud física de
+la población que va a ser reclutada, la naturaleza del itinerario que
+tienen que recorrer y las condiciones climatológicas.
+3. Las autoridades competentes también deberán tomar disposiciones para
+que el trayecto diario normal de los portadores no exceda de una
+distancia que corresponda a la duración media de una jornada de trabajo
+de ocho horas, entendiéndose que para determinarla, se deberá tener en
+cuenta, no sólo la carga que hay que llevar y la distancia a recorrer,
+sino también el estado del camino, la época del año y todos los demás
+factores de importancia; si fuera necesario imponer a los portadores
+algunas horas de marcha extraordinarias, deberán ser remuneradas con
+arreglo a tasas más elevadas que las normales.
