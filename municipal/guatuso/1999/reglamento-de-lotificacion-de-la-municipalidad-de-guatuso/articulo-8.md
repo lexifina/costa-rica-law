@@ -1,0 +1,1 @@
+Artículo VIlI.-Corresponde al Alcalde Municipal, ejecutar los acuerdos del Consejo, en relación con el Plan de Lotificación y créditos, además deberá notificar a los interesados sobre el resultado de su gestión

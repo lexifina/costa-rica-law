@@ -1,0 +1,1 @@
+Artículo IX.-La Municipalidad una vez que tenga definido y aprobada la gestión del solicitante y previa autorización de la Contraloría General de la República autorizará el otorgamiento de la escritura ante el Notario que designe la Corporación Municipal.

@@ -1,0 +1,1 @@
+Artículo XVIl.--Las prohibiciones y limitaciones que contempla este reglamento, formarán parte integral de la escritura de traspaso, así como cualquier otra limitación o afectación que leyes concordantes y conexas estipulen al efecto.

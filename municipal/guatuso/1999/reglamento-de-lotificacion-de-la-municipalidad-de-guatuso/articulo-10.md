@@ -1,0 +1,1 @@
+Artículo X.-El beneficiario deberá cumplir con el plan de pagos estipulados por la Municipalidad en la escritura otorgada. EI beneficiario que incumpla con dicho plan se Ie tendrá por vencido el plazo establecido haciéndose exigible el pago inmediato de la totalidad de la obligación.
