@@ -1,1 +1,0 @@
-Artículo 6°.-La aprobación de todo caso de esterilización por parte del Comité‚ de Esterilizaciones, debe ser unánime. Los casos en que no haya unanimidad y los que no reúnan los requisitos señalados en el artículo anterior, se elevarán a conocimiento del Comité‚ de Reproducción Humana, el cual emitirá el dictamen final.

@@ -1,1 +1,0 @@
-Artículo 3°.-Es obligación del Comité‚ de Reproducción Humana, supervisar la labor que cumplen los comités de esterilizaciones. Asimismo, se le confiere la potestad de revisar cualquier documento clínico que tengan relación con los casos de esterilización aprobados por el Comité‚ de Esterilizaciones.

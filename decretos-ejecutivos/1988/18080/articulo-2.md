@@ -1,1 +1,0 @@
-Artículo 2°.-El Comité‚ de Recaudación Humana es un ¢órgano asesor de la Junta de Gobierno del Colegio de Médicos y Cirujanos, cuyos miembros son de nombramiento de dicha junta y durarán en sus cargos dos años pudiendo ser reelectos.

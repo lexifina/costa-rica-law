@@ -1,1 +1,0 @@
-Artículo 8°.-Quincenalmente, los comités de esterilizaciones remitirán al Comité‚ de Reproducción Humana para su supervisión, el informe de cada solicitud aprobada con la documentación respectiva. Este Comité‚ a efecto de contar con más elementos de juicio, podrá solicitar al Comité‚ de Esterilizaciones, la aportación de documentos que considere pertinente.

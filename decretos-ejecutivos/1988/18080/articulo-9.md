@@ -1,1 +1,0 @@
-Artículo 9°-Es deber del coordinador convocar al Comité‚, para la revisión de las solicitudes de esterilizaciones. El plan de trabajo que se imponga cada comité‚, será elevado a conocimiento del Comité‚ de Reproducción Humana.
