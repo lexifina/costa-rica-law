@@ -1,0 +1,1 @@
+Art 2° El Poder Ejecutivo determinará según la base de población de cada Provincia, la parte que de la anterior cantidad deba asignarse á cada una de ellas, y señalará las vías en que de preferencia haya de invertirse la suma que respectivamente les corresponda.
