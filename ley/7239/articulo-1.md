@@ -18,7 +18,5 @@ resolución, junto con el jefe de la sección.
 Las certificaciones del Departamento Civil serán expedidas y firmadas
 por los funcionarios que el Tribunal Supremo de Elecciones designe para ese
 fin, mediante acuerdo que se publicará en el diario oficial La Gaceta.
-Las resoluciones del Registro podrán dictarse tanto en tiempo de
-trabajo ordinario como extraordinario."
-0020#
-ARTICULO 2.- Rige a partir de su publicación.
+Las resoluciones del Registro podrán dictarse tanto en tiempo de trabajo
+ordinario como extraordinario."
