@@ -1,0 +1,1 @@
+Articulo 19.- Si el incumplimiento por parte de la empresa se debiera a circunstancias fortuitas de fuerza mayor u otros factores que no le sean imputables directamente, se le otorgará un plazo no mayor a un año para que realice los ajustes correspondientes que le permitan retornar a sus condiciones de calificación y beneficios conforme con los plazos originalmente establecidos.

@@ -1,0 +1,3 @@
+Artículo 22.- Modifícase el artículo 33 de la Ley Nº 7092 para que diga:
+"Artículo 33.- Rentas de más de un empleador. La cuota libre de setenta y dos mil colones (¢72.000), como no sujeta del impuesto, es una sola. Por lo tanto, los contribuyentes que, durante un período tributario o en una parte de él, hubieran obtenido rentas de más de un empleador, patrón o pagador simultáneamente, deberán notificárselo a él o a ellos para que no se les descuente otra cuota libre. En estos casos, el patrón o el pagador retendrán el impuesto sobre el total de la renta, según la tarifa del artículo 28.
+En el caso de que el empleado no haga la notificación a que se refiere este artículo, la Administración Tributaria deberá efectuar la tasación correspondiente del impuesto que proceda."

@@ -1,0 +1,2 @@
+Articulo 15.- Para tomar en cuenta la opinión de las organizaciones nacionales, privadas y populares que tengan intereses en el proceso productivo, la Autoridad Administrativa pondrá en funcionamiento los grupos consultivos establecidos en el Decreto Ejecutivo N° 14434-MIDEPLAN. Además de considerar sus puntos de vista respecto de la aplicación de la presente ley, tales grupos consultivos podrán proponer al Ministerio de Industria, Energía y Minas(*) aquellas medidas que consideren adecuadas para el desarrollo industrial.
+(*) Ver Nota del artículo 9

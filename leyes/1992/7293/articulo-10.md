@@ -1,0 +1,1 @@
+Artículo 10.- Exonéranse de todo tributo y sobretasas la maquinaria y el equipo que sean importados por el Instituto de Desarrollo Agrario para el Proyecto Agroindustrial de Coto Sur, financiado con recursos del préstamo 196 IC/C-R, suscrito entre el Gobierno de Costa Rica y el Banco Interamericano de Desarrollo y aprobado por Ley No. 7062 de 2 de abril de 1987.

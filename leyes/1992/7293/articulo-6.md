@@ -1,0 +1,2 @@
+Artículo 6°.- Exonérase a las instituciones universitarias estatales de educación superior del pago de todo tributo y sobretasas para la adquisición de mercancías y servicios necesarios para la realización de sus fines. Las instituciones parauniversitarias continuarán gozando de los beneficios otorgados en el artículo 12 de la Ley Nº 6541 del 19 de noviembre de 1980.
+Los bienes adquiridos al amparo de esta disposición podrán ser vendidos en cualquier momento, previo pago de los impuestos y tributos de los que se exoneren.

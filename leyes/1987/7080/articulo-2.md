@@ -1,1 +1,0 @@
-Artículo 2º.- La Dirección General de Educación Física y Deportes deberá determinar cuáles implementos de las actividades mencionadas quedan exentos de los tributos a que se refiere el artículo 1º, e informar directamente al Ministerio de Hacienda, para la aplicación correcta de las disposiciones de esta ley.

@@ -1,0 +1,2 @@
+Articulo 20.- Con el fin de que se cumpla con los propósitos del desarrollo productivo del país, la Autoridad Administrativa revisará periódicamente los niveles de los parámetros, en coordinación con las otras instituciones públicas responsables relacionadas con la materia.
+El periodo de revisión será cada cinco años. Vencido dicho plazo y mientras no se produzca la revisión, no podrán aplicarse los beneficios de esta ley a nuevos solicitantes.

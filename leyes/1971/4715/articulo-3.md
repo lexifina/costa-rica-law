@@ -1,1 +1,0 @@
-Artículo 3º.- Los privilegios e inmunidades establecidos en los artículos anteriores, no se aplicarán a los técnicos y profesionales de nacionalidad costarricense, o a los extranjeros con residencia permanente en el país, que en la actualidad desempeñen funciones en alguno de los organismos internacionales o llegaren a desempeñarlas en el futuro en Costa Rica.

@@ -1,0 +1,2 @@
+Articulo 21.- Las empresas calificadas tendrán que cumplir en todo momento con los par metros y los niveles vigentes en el momento de la calificación, por el plazo que faltare para las revisiones periódicas establecidas. Una vez efectuadas las revisiones, las empresas deberán ajustarse a las nuevas especificaciones.
+Nota: El artículo 5° del Decreto Ejecutivo N° 21443 de 13 de julio de 1992, mantiene vigentes los parámetros de calificación establecidos en los Anexos I y II del Reglamento a la presente ley, Decreto N° 17301 de 22 de octubre de 1986.

@@ -1,0 +1,3 @@
+Artículo 51.- Apropiaciones o retenciones tributarias indebidas. La persona que retenga o perciba tributos y no efectúe su pago al Estado dentro del mes siguiente al vencimiento de los plazos establecidos en las leyes tributarias respectivas, será sancionada con pena de prisión de uno a tres años, según la cuantía de los tributos retenidos o percibidos indebidamente.
+Igual sanción se aplicará a los presidentes, vicepresidentes, directores, gerentes, administradores, representantes de los fideicomisos o representantes legales de las personas jurídicas o entes colectivos con personalidad jurídica que incurran en dicho delito.
+Esta disposición es de orden público y deroga cualquier otra general o especial, que se le oponga.

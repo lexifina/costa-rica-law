@@ -1,0 +1,1 @@
+Artículo 47.- La emisión del acto administrativo declaratorio de una exención suspenderá el plazo de prescripción de la determinación y cobro de los tributos inicialmente dispensados y de los intereses y recargos concomitantes.

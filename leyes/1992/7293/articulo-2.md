@@ -1,0 +1,23 @@
+Artículo 2.- Excepciones. Se exceptúan, de la derogatoria del artículo precedente, las exenciones tributarias establecidas en la presente Ley y aquellas que:
+a) Se hayan constituido por el expreso mandato constitucional o por medio de Convenios Internacionales, Tratados Públicos y Concordatos, con autoridad superior a la Ley ordinaria.
+b) Se establecen en la Ley de Creación del Depósito Libre Comercial de Golfito, Nº 7012 del 4 de noviembre de 1985 y sus reformas, salvo la contemplada en su artículo 33.
+c) Se conceden para el desarrollo de programas privados que, por cualquier medio, fórmula o proceso, se propongan producir y distribuir energía eléctrica, con propósitos comerciales. Sin excepción, los beneficiarios, luego de haber cumplido con todos los requisitos y condiciones que se les impongan según el régimen a que se acojan, deben suscribir, con el Ministerio de Recursos Naturales, Energía y Minas y el Ministerio de Hacienda, un contrato en el que se establezcan taxativamente las obligaciones, deberes y derechos, beneficios y demás convenciones necesarias para una correcta operación del régimen de privilegio establecido, así como el plazo de vigencia, el cual no podrá ser prorrogado automáticamente.
+ch) Se conceden a las instituciones y empresas públicas o privadas que se dediquen, en el país, al abastecimiento de agua potable para usos domiciliario, industrial y para el consumo humano, así como a la recolección, tratamiento y disposición de aguas negras y pluviales o servidas, subterráneas y de cualquier otra clase y a las actividades colaterales y complementarias de estas.
+d) Se conceden en favor de instituciones, fundaciones y asociaciones sin actividades lucrativas, que se dediquen a la atención integral de menores de edad en estado de abandono, deambulación o en riesgo social y que estén debidamente inscritas en el Registro Público.
+e) Se conceden en favor de instituciones, empresas públicas y privadas, fundaciones y asociaciones sin actividades lucrativas que se dediquen a la recolección y tratamiento de basura y a la conservación de los recursos naturales y del ambiente, así como a cualquier otra actividad básica en el control de la higiene ambiental y de la salud pública.
+f) Se establecen en el artículo 141 de la Ley Nº 7033 del 4 de agosto de 1986 y sus reformas, así como en el artículo 46 bis de la Ley Nº 6955 del 24 de febrero de 1984 (Exención de Derechos Migratorios y Delegaciones Oficiales).
+g) Se establecen en la Ley Nº 7167 de 13 de junio de 1990.
+h) Se indican en la Ley Forestal, Nº 7174 del 28 de junio de 1990, excepto las contenidas en el artículo 87 inciso ch), artículo 91 y artículo 98 inciso a).
+i) Se establecen en la Ley Nº 1411 del 19 de enero de 1952 y sus reformas.
+j) Se establecen en el artículo 3 de la Ley Nº 7017 del 16 de diciembre de 1985.
+k) Se otorguen mediante la Ley de Zonas Francas Nº 7210 del 23 de noviembre de 1990, excepto los beneficios para las empresas mencionadas en el inciso ch) del artículo 17.
+l) Se hayan otorgado al Poder Ejecutivo, al Poder Judicial, al Poder Legislativo, al Tribunal Supremo de Elecciones, a las instituciones descentralizadas, a las municipalidades, a las empresas públicas estatales y municipales y a las universidades estatales.
+ll) Se establecen en la Ley Nº 7044 del 29 de setiembre de 1986 (Ley de Creación de la Escuela de Agricultura de la Región Tropical Húmeda).
+m) Se establecen en los incisos k) y l), del artículo 1, en el artículo 9 (reformado por esta Ley) y en el artículo 17 de la Ley Nº 6826 del 8 de noviembre de 1982 y sus reformas, Ley de Impuesto General sobre las Ventas.
+n) Se establece en el Capítulo XXVII de la Ley No. 7092 del 21 de abril de 1988 y sus reformas (contrato de exportación). Las personas físicas y jurídicas que hayan suscrito contratos de exportación con el Estado al amparo de esa Ley, continuarán rigiéndose por lo que se ha convenido. En los contratos de exportación que se suscriban en el futuro, no podrá otorgarse exoneración del pago del impuesto sobre la renta.
+ñ) Se establecen en la Ley Nº 7052 del 13 de noviembre de 1986 y sus reformas, excepto lo dispuesto en el artículo 63 de la citada Ley.
+o) Se establecen en la Ley Nº 7243 de 3 de junio de 1991.
+p) Se establecen en la Ley Nº 3859 del 7 de abril de 1967 (Ley de Asociaciones de Desarrollo Comunal).
+q) Se establecen en la Ley No. 7157 del 19 de junio de 1990 (Ley de Creación de la Ciudad de los Niños).
+r) Se otorgan en el artículo No. 23 de la Ley No. 4895 y sus reformas (Ley de la Corporación Bananera Nacional).
+s) Se establecen en la Ley Nº 4233 del 14 de noviembre de 1968 a favor de la Secretaría Ejecutiva del Consejo Monetario Centroamericano y sus funcionarios.

@@ -1,8 +1,1 @@
-Artículo 14.- Las personas físicas o jurídicas que importen materiales
-de construcción, mobiliario, equipo o cualesquiera otros artículos que
-hayan sido exonerados al amparo de la presente ley, y los vendieren,
-arrendaren, prestaren o negociaren en cualquier forma, o les dieren un uso
-diferente al que motivó la exoneración o el beneficio, serán sancionadas
-con una multa igual a diez veces el valor de la exoneración, sin perjuicio
-de cualesquiera otras sanciones de orden penal o civil que les puedan
-caber.
+ARTÍCULO 14.- Las personas físicas o jurídicas que importen materiales de construcción, mobiliario, equipo o cualesquiera otros artículos que hayan sido exonerados al amparo de la presente ley, y los vendieren, arrendaren, prestaren o negociaren en cualquier forma, o les dieren un uso diferente al que motivó la exoneración o el beneficio, serán sancionadas con una multa igual a diez veces el valor de la exoneración, sin perjuicio de cualesquiera otras sanciones de orden penal o civil que les puedan caber.

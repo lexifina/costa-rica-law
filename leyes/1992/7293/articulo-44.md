@@ -1,0 +1,1 @@
+Artículo 44.- Se autoriza la liberación de maquinaria, equipo y vehículos nacionalizados con exención de los tributos y sobretasas correspondientes que afectaban su importación, siempre y cuando dicha importación se haya realizado antes del 1 de enero de 1980.

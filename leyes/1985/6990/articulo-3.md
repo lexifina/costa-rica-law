@@ -1,13 +1,8 @@
-Artículo 3º.- Las disposiciones de la presente ley les serán aplicadas
-a las siguientes actividades turísticas:
-a) Servicio de hotelería.
+ARTÍCULO 3º.- Las disposiciones de la presente Ley serán aplicadas a las siguientes actividades turísticas:
+a) Servicios de hotelería.
 b) Transporte aéreo de turistas, internacional y nacional.
-c) Arrendamiento de vehículos a turistas extranjeros y nacionales.
-ch) Servicio de gastronomía de establecimientos dedicados a la actividad
-turística, a juicio del Instituto Costarricense de Turismo, cuya inversión
-mínima sea el equivalente en moneda nacional a US$ 50.000, previa
-aprobación de la comisión reguladora de turismo que se crea en el artículo
-4º.
-d) Transporte acuático de turistas.
-e) Turismo receptivo de agencias de viajes que se dediquen exclusivamente
-a esta actividad.
+c) Transporte acuático de turistas.
+ch) Turismo receptivo de agencias de viajes que se dediquen
+exclusivamente a esta actividad.
+d) Arrendamiento de vehículos a turistas extranjeros y nacionales.
+(Así reformado por el artículo 13 de la Ley Reguladora de Exoneraciones Vigentes, Derogatorias y Excepciones, Nº 7293 de 31 de marzo de 1992)

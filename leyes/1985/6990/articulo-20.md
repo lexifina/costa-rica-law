@@ -1,1 +1,1 @@
-Artículo 20.- Rige a partir de su publicación.
+ARTÍCULO 20.- Rige a partir de su publicación.

@@ -1,0 +1,2 @@
+Artículo 7°.- Exonérase el sesenta por ciento (60%) del monto total resultante de aplicar los impuestos vigentes que afecten la importación de vehículos destinados al transporte remunerado de personas, en la modalidad taxi.
+El valor máximo permitido de los vehículos por importar se fijará conforme a las disposiciones que, a los efectos, dicte el Ministerio de Obras Públicas y Transportes de común acuerdo con el Ministerio de Hacienda.

@@ -1,0 +1,2 @@
+Articulo 10.- Toda unidad productiva estará obligada a entregar la información estadística que corresponda para fortalecer el programa previsto de información. La información que se suministre será utilizada conforme con las disposiciones que para estos casos establecen las leyes vigentes en materia de confidencialidad y otros aspectos conexos.
+Las unidades productivas que no cumplen con este requisito estarán sujetas a las sanciones que se establecerán en el Reglamento de esta ley.

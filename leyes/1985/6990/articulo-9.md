@@ -1,5 +1,1 @@
-Artículo 9º.- Las autoridades equipararán las tasas o tarifas por
-prestación de servicios y procedimientos, que afecten a los barcos
-denominados cruceros turísticos y yates turísticos, que atraquen en puertos
-costarricenses, a las que se apliquen en puertos de otros países de la
-región.
+ARTÍCULO 9º.- Las autoridades equipararán las tasas o tarifas por prestación de servicios y procedimientos, que afecten a los barcos denominados cruceros turísticos y yates turísticos, que atraquen en puertos costarricenses, a las que se apliquen en puertos de otros países de la región.

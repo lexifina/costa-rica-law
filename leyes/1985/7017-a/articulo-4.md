@@ -1,0 +1,3 @@
+Articulo 4.- Las plantas que no pertenezcan a los sectores prioritarios, podrán disfrutar de los beneficios de la presente ley siempre que:
+a) Sean empresas nuevas que se instalan o que se trate de una ampliación significativa de plantas ya existentes.
+b) Muestren según los indicadores económicos y las características técnicas consideradas en esta ley, niveles suficientemente altos que las hagan especialmente atractivas para el desarrollo nacional. El nivel de los indicadores del inciso b), anterior, no podrá modificarse antes de cinco años a partir de la entrada en vigencia de la presente ley.

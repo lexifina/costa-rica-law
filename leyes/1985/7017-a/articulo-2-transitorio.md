@@ -1,0 +1,1 @@
+Transitorio II.- La Comisión Asesora Interinstitucional analizará los casos de cauciones otorgadas mediante el Convenio Centroamericano de Incentivos Fiscales y el Protocolo Medidas de Emergencia para la Defensa de la Balanza de Pagos con el objeto de recomendar al Ministerio de la condonación en los casos que proceda.

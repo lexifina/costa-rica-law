@@ -1,4 +1,1 @@
-Artículo 5º.- Para el otorgamiento de los incentivos y beneficios que
-estipula esta ley, serán consideradas las actividades señaladas en el
-artículo 3º que operen en la actualidad, así como los proyectos nuevos y
-los de ampliación o remodelación.
+ARTÍCULO 5º.- Para el otorgamiento de los incentivos y beneficios que estipula esta ley, serán consideradas las actividades señaladas en el artículo 3º que operen en la actualidad, así como los proyectos nuevos y los de ampliación o remodelación.

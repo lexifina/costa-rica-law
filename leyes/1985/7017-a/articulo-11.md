@@ -1,0 +1,1 @@
+Articulo 11.- A las empresas que disfruten de los beneficios de la presente ley se les cancelarán tales beneficios si no ofrecen en tiempo oportuno la información necesaria para el programa de información.
