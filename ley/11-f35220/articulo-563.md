@@ -1,2 +1,2 @@
-Artículo 563
-Las equivalencias establecidas en el artículo anterior regirán para la aplicación de las reglas preceptuadas en el Código de Procedimientos Penales sobre excarcelación de presos preventivamente.
+Artículo 563.—Las equivalencias establecidas en el artículo anterior regirán para la aplicación de las reglas preceptuadas en el Código de Procedimientos Penales sobre excarcelación de presos preventivamente y en todo caso en que, salvo lo dispuesto en el artículo 559, haya de hacerse aplicación de un texto en que la denominación o grado de la pena dimane del Código Penal de 1880.
+(Así reformado por el artículo 1° de la ley N° 27 del 17 de novimbre de 1928)

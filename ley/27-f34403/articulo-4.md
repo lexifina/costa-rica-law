@@ -1,0 +1,1 @@
+Artículo cuarto.—El epígrafe de la Escala Primera del artículo 162 del mismo cuerpo de leyes, dirá así: << Escala gradual para la pena de presidios. El epígrafe de la Escala Sétima del mismo artículo, se leerá así: «.Escala gradual para la pena de inhabilitación absoluta>>, y el epígrafe de la Escala Octava, dirá: << Escala gradual para la pena de inhabilitación especial>>
