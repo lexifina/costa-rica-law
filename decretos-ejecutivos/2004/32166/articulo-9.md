@@ -1,0 +1,1 @@
+Artículo 9º—La sanción impuesta por la Dirección de la Biblioteca Nacional, tendrá los recursos de revocatoria y apelación en el tiempo y en la forma, que al efecto dispone la Ley General de la Administración Pública.

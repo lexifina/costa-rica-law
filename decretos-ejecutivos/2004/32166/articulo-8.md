@@ -1,0 +1,5 @@
+Artículo 8º—De las sanciones. Todo incumplimiento a las disposiciones de este Reglamento debidamente comprobado por la Dirección de la Biblioteca, ameritará según la naturaleza de la falta, la aplicación de las siguientes sanciones:
+a. A los usuarios que sustraigan o mutilen algún documento se le suspenderán todos los servicios que ofrece la Biblioteca hasta que realicen la devolución del material o la reposición del mismo, sin perjuicio de las acciones civiles o penales que correspondan.
+b. A los usuarios que promuevan el desorden en la sala de lectura, o que le falten el respeto al personal de la Biblioteca, se les suspenderán todos los servicios por un periodo de un mes como máximo. En caso de reincidencia la suspensión del servicio será hasta por tres meses.
+c. Los usuarios que rayen, anoten o sobrescriben el material bibliográfico, serán responsables de la restauración de los documentos.
+d. El usuario que sustraiga o cause daños a los equipos, mobiliario e instalaciones de la Biblioteca Nacional, está obligado a cubrir el daño causado de acuerdo con la normativa vigente, sin perjuicio de las acciones civiles o penales que correspondan.

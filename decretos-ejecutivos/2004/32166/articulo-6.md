@@ -1,0 +1,4 @@
+Artículo 6º—Derechos de los usuarios. Toda persona debidamente identificada mediante cédula de identidad, pasaporte, licencia de conducir, carné o cualquier otro documento idóneo con fotografía, podrá hacer uso de los servicios que ofrece la Biblioteca Nacional y tendrá los siguientes beneficios:
+a. Que se le atienda en forma amplia, solícita y adecuada.
+b. Ingresar y utilizar sus computadoras personales, calculadoras y grabadoras, previa autorización de la Dirección de la Biblioteca.
+c. Los usuarios categorizados como investigadores, tendrán derecho a que se les brinden las siguientes facilidades: uso de material bibliográfico de características especiales, préstamo de más de cinco documentos en forma simultánea y en la medida de las posibilidades, se les ofrecerá un espacio físico para la consulta de los materiales propios o los que la Biblioteca le proporcione.
