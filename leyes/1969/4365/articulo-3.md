@@ -1,6 +1,1 @@
-Artículo 3º.- Se suprimen todas las franquicias postales, con excepción de la correspondencia de los tres Poderes de la República y sus dependencias, del Tribunal Supremo de Elecciones y sus dependencias, la franquicia que establece el artículo 170 del Código Electoral, y la correspondencia amparada a franquicia que provenga de tratados internacionales.
-Queda autorizado el Poder Ejecutivo para crear por decreto, las franquicias postales que sean indispensables. Estas franquicias deberán pagar un timbre "Pro Plan Postal y Social" de ¢ 0.20 por carta y ¢ 0.10 por impresos. El Patronato Nacional de la Infancia y la Dirección General de Bienestar Social seguirán beneficiándose con el 25% de estas entradas, hasta el termino de la franquicia, y la Administración Postal se beneficiará con el 75%.
-Los gastos que demanden la impresión de dichos sellos, se tomarán de la misma emisión.
-No llevarán tampoco el timbre que esta ley crea, los periódicos y revistas impresos en Costa Rica y los libros de autores nacionales, cuando sean despachados por autores o las empresas editoras.
-Sin embargo, la correspondencia con franquicia postal indicada en este artículo, deberá siempre pagar la sobretasa aérea para el exterior, cuando utilice este medio de despacho.
-(Así reformado por el artículo 1° de la ley N° 4428 del 2 de octubre de 1969)
+Artículo 3º.- (Derogado por el artículo 21 de la ley N° 5870 del 11 de diciembre de 1975 "Crea la Dirección Nacional de Comunicaciones")

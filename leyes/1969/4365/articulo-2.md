@@ -1,1 +1,1 @@
-Artículo 2º.- La Dirección General de Correos, por medio de su Oficina Central, Administraciones de Correos de cabeceras de provincia y de cantones, que estime conveniente, pondrá a la venta toda clase de estampillas.
+Artículo 2º.-(Derogado por el artículo 21 de la ley N° 5870 del 11 de diciembre de 1975 "Crea la Dirección Nacional de Comunicaciones")

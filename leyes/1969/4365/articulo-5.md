@@ -1,2 +1,1 @@
-Artículo 5º.- El producto de las emisiones de sellos postales, que a juicio de la Junta Filatélica, se consideran de carácter puramente filatélico, se destinará a ayudar al pago de las deudas que tiene Costa Rica en materia de transporte de correspondencia en el régimen internacional.
-Después de haber pagado la totalidad de las deudas antes citadas, el producto de dichas emisiones se utilizará para realizar mejoras en el servicio postal.
+Artículo 5º.- (Derogado por el artículo 21 de la ley N° 5870 del 11 de diciembre de 1975 "Crea la Dirección Nacional de Comunicaciones")

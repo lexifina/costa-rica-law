@@ -1,1 +1,1 @@
-Artículo 7º.- La Administración Postal disfrutará también, para sus necesidades propias, del monto del arriendo de los apartados postales en todo el territorio de la República.
+Artículo 7º.- (Derogado por el artículo 21 de la ley N° 5870 del 11 de diciembre de 1975 "Crea la Dirección Nacional de Comunicaciones")

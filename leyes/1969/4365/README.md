@@ -1,6 +1,6 @@
 # Creación de la Oficina Filatélica de Costa Rica
 
-Ley N° 4365 del 1969-08-11. SINALEVI, ficha 146: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=146&param2=88814&param3=1>.
+Ley N° 4365 del 1969-08-11. SINALEVI, ficha 146: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=146&param2=88821&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 4 | 1969-08-11 | Ley 4365 | 1969-08-11 |
 | 2 de 4 | 1969-09-11 | Ley 4416 | 1969-09-10 |
 | 3 de 4 | 1969-10-02 | Ley 4428 | 1969-10-02 |
+| 4 de 4 | 1975-12-11 | Ley 5870 | 1975-12-11 |
