@@ -1,4 +1,0 @@
-Artículo 2°-Definiciones: Para los efectos de este Reglamento se adoptan las siguientes definiciones:
-a) Cuota real: Es un sistema de reajuste periódico de las cuotas nominales de las operaciones de crédito habitacional, de modo que estas no cambien cada vez que haya variaciones en las tasas de interés, pero si lo hacen en forma proporcional a la variación en los salarios mínimos de un obrero no calificado de la industria de la construcción, o cualquier otro parámetro aceptado por la Junta Directiva del BANHVI y así acordado entre el beneficiario y la Entidad Autorizada.
-b) Cuota nominal: El monto en colones (u otra moneda) que el beneficiario se compromete a pagar mensualmente por concepto de amortización y/o intereses de su operación de crédito habitacional.
-c) Cuota de partida: Cuota nominal que se pacta entre el beneficiario y la Entidad Autorizada al momento de trasladarse al sistema de cuota real.
