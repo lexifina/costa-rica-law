@@ -1,0 +1,3 @@
+CAPÍTULO III
+Asignación de recursos
+Artículo 9º—El monto inicial del fondo de caja chica del Consejo será de ¢5.000.000 (cinco millones de colones) para la de la Administración Central y de ¢300.000 (trescientos mil colones) para la de Peajes. Se mantendrá un fondo en efectivo, correspondiente al 5% del fondo general de la caja chica de la Administración Central para hacer pagos en efectivo iguales o menores a ¢60.000 (sesenta mil colones) y de un 10% del fondo general de la caja chica de Peajes para hacer pagos en efectivo iguales o menores a ¢30.000 (treinta mil colones). Tanto el porcentaje como el monto máximo establecido en este artículo serán variados exclusivamente por acuerdo del Consejo de Administración.

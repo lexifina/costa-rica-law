@@ -1,0 +1,1 @@
+Artículo 32.—El encargado del fondo de caja chica deberá realizar, al final del día, un cierre diario, asimismo deberá efectuar un resumen mensual y cuando éste registre un sobrante de dinero será depositado en la Cuenta General del Consejo, en forma inmediata. De registrarse un faltante, deberá de ser cubierto el día hábil siguiente, por el encargado.

@@ -1,0 +1,1 @@
+Artículo 23.—La liquidación de los anticipos para compras, efectuados mediante vales de caja chica, deberá realizarse al cuarto día hábil siguiente al del día del retiro del dinero, por medio del formulario "liquidación caja chica".

@@ -1,0 +1,1 @@
+Artículo 34.—De presumirse la mediación de eventos que constituyan delitos penales en perjuicio del fondo de caja chica, la Dirección Administrativa y Financiera en coordinación con la Asesoría Legal, deberán realizar las acciones correspondientes de conformidad con el marco jurídico vigente.

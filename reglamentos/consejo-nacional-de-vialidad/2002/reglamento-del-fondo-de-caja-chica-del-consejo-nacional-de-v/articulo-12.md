@@ -1,0 +1,1 @@
+Artículo 12.—Los fondos asignados a la caja chica se manejarán por medio de una cuenta corriente, en un Banco del Sistema Bancario Nacional, la cual deberá cumplir con todos los requisitos existentes para la apertura, funcionamiento y control de una cuenta corriente. Firmarán en forma mancomunada el Tesorero y el Director Administrativo y Financiero o su delegado.

@@ -1,0 +1,1 @@
+Artículo 33.—El fondo de caja chica estará sujeto a arqueos, sin previo aviso por parte de la Dirección Administrativa y Financiera, al menos una vez al mes, estando el responsable en la obligación de ofrecer todas las facilidades para que el trabajo se realice plenamente en su presencia. Asimismo la Auditoría Interna hará los arqueos que estime necesarios.

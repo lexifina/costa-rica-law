@@ -1,0 +1,1 @@
+Artículo 36.—Los casos no previstos en este Reglamento se resolverán de acuerdo con la jurisprudencia administrativa, la Ley General de Administración Financiera de la República, Ley General de la Administración Pública, Reglamento de Gastos de Viaje y Transportes, Ley y Reglamento de la Contratación Administrativa y demás leyes conexas.

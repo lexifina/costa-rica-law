@@ -1,0 +1,1 @@
+Artículo 31.—Será responsabilidad del encargado del fondo de caja chica retener los porcentajes por impuesto de renta correspondientes de acuerdo con la ley del impuesto sobre la renta vigente y efectuar el respectivo reporte para el trámite y pago en los plazos establecidos para tales efectos.

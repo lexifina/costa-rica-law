@@ -1,0 +1,1 @@
+Artículo 18.—En ausencia del encargado de la caja chica, se procederá a asignar a un sustituto y el traspaso del fondo se realizará mediante un arqueo, para lo cual se requerirá la presencia de un funcionario de la Dirección Financiera, el Jefe de la Tesorería o su delegado y la persona que recibe el fondo, quienes deberán firmar el documento del arqueo.

@@ -1,0 +1,1 @@
+Artículo 16.—El fondo de caja chica mantendrá únicamente dinero, cheques y los justificantes que respalden los trámites de compra de bienes y servicios, adelantos y gastos por viáticos efectuados por medio de este fondo.

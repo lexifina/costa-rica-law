@@ -1,0 +1,1 @@
+Artículo 24.—Salvo en casos muy calificados, que hayan sido debidamente justificados por la Jefatura que solicita el adelanto, el encargado de cada fondo de caja chica al día siguiente de vencido el plazo para liquidación, deberá solicitar a Recursos Humanos del CONAVI que inicie el trámite del debido proceso, de acuerdo con el marco jurídico correspondiente.
