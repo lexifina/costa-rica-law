@@ -1,0 +1,1 @@
+Artículo 3°—Los nombramientos de los integrantes de la Junta Directiva del Fondo, serán por períodos de dos años, pudiendo prorrogarse por acuerdo de los órganos que lo nombran. Caso de existir falta grave por parte de los integrantes de su Junta Directiva, podrán ser removidos por los órganos que los nombraron y se harán un nuevo nombramiento por lo que resta de ese periodo.
