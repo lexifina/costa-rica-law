@@ -13,3 +13,4 @@ Reforma Reglamento de Estaciones Inalámbricas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-02-04 | la propia norma |
+| 2 | 2000-11-09 | Decreto Ejecutivo 29080 (2000-11-09) |
