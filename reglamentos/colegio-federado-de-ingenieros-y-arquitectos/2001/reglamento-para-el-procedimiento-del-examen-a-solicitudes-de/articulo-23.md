@@ -1,0 +1,1 @@
+Artículo 23.—Una vez que la Junta Directiva General acuerde el envío del estudio al Registro de la Propiedad Industrial, podrá hacerse efectivo el pago de los honorarios profesionales al perito. De dicho monto, se asignará un 5% para el C.F.l.A. y otro 5% para el Colegio de la procedencia del perito.

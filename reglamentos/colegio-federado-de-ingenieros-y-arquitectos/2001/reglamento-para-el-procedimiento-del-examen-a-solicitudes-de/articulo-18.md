@@ -1,0 +1,2 @@
+Artículo 18.—El perito contará con un plazo improrrogable de 45 días naturales para la elaboración del estudio asignado. El informe deberá ser entregado a la Comisión Permanente del C.F.I.A. en la persona del Coordinador General.
+Durante el primer tercio del plazo indicado, el profesional deberá prevenir al interesado, personalmente o a través del Registro de la Propiedad Industrial, la presentación de información que considere necesaria para completar adecuadamente su estudio.

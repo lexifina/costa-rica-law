@@ -1,0 +1,1 @@
+Artículo 17.—Una vez realizado el depósito correspondiente, la Subdirección Administrativa Financiera lo hará del conocimiento del Director Ejecutivo y éste al perito correspondiente. El perito designado deberá retirar, en un plazo no mayor de tres días hábiles, en la Dirección Ejecutiva, la documentación correspondiente para realizar el informe.

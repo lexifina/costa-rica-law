@@ -1,0 +1,1 @@
+Artículo 16.—El costo del estudio será el equivalente a 50 horas profesionales de acuerdo con la fijación que al respecto establezca la Junta Directiva General del valor de la hora profesional. En caso de modelos de utilidad, modelos industriales y dibujos industriales, el costo del estudio será el equivalente a 30 horas profesionales.

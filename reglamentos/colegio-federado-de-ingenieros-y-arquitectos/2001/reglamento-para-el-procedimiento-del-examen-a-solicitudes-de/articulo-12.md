@@ -1,0 +1,3 @@
+Artículo 12.—Los peritos solo aceptarán el estudio asignado si no tienen conflicto de interés y cuentan con la disponibilidad, capacidad y los conocimientos necesarios para el caso.
+El perito deberá guardar secreto profesional en relación con el caso que se le asigne. No podrá revelar el contenido de la documentación que se le entregue, los resultados de sus estudios ni ninguna otra información que pueda comprometer la autoridad intelectual del inventor.
+En general, los peritos actuarán con diligencia y eficacia, debiendo en todo momento mantener su imparcialidad y actuar conforme a los principios, la buena técnica y la ética profesional.

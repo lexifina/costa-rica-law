@@ -1,0 +1,2 @@
+Transitorio 1°—La conformación de la Comisión de Patentes al momento de entrar en vigencia este reglamento podrá permanecer invariable hasta el día 31 de octubre del 2001, fecha a partir de la cual los Colegio miembros del Colegio Federado deberán nombrar a los miembros titulares y suplentes para el período 2001-2003.
+Todos los procedimientos que se estén realizando al momento entrar en vigencia el presente reglamento deberán ir actualizándose en las siguientes etapas conforme aquí se establezca.

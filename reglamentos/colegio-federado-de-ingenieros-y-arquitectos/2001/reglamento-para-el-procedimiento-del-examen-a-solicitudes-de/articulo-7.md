@@ -1,0 +1,1 @@
+Artículo 7°—La Comisión Permanente de Patentes sesionará ordinariamente una vez al mes. Se harán sesiones extraordinarias cuando lo convoque el secretario ejecutivo, o a petición al menos de tres de los miembros de la Comisión. Las convocatorias serán con ocho días de anticipación y deberán ser comunicadas por escrito a todos los miembros.

@@ -1,0 +1,1 @@
+Artículo 15.—En un plazo no mayor de tres días luego de recibida la comunicación por parte de la Comisión de Patentes del Colegio, el Coordinador General comunicará al Registro de la Propiedad Industrial el nombre del perito asignado y el monto de sus honorarios, según lo haya definido la Comisión Permanente de Patentes.
