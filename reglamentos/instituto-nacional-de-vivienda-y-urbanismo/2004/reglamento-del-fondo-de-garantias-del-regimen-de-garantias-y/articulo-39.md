@@ -1,0 +1,1 @@
+Artículo 39.—El monto disponible de esta reserva técnica, podrá destinarse, parcialmente para préstamos a los miembros del fondo, en las condiciones que para ese efecto se establecerán por parte de la Junta Administradora.

@@ -1,0 +1,1 @@
+Artículo 31.—Del reintegro de los aportes y otras deducciones. La Institución deberá reintegrar al Fondo los aportes patronal y laboral, así como cualquier otra deducción solicitada por la Junta, previo autorización del afiliado, dentro de los cinco días hábiles siguientes al mes que corresponda.

@@ -1,0 +1,5 @@
+Artículo 30.—De la reforma al Reglamento. Para los trámites de reforma de este Reglamento, debe de seguirse el siguiente procedimiento:
+a) La Junta Administradora, por votación no menor de cinco de sus miembros, podrá aprobar en sesión ordinaria, cualquier moción para modificar este Reglamento.
+b) Aprobada la moción, la Junta Administradora deberá convocar, con no menos de ocho días naturales de anticipación, a una asamblea general de afiliados, para el conocimiento y aprobación de la misma. Si no se contara con el quórum necesario en la primera convocatoria se convocará automáticamente a sesión media hora después. En todo caso, la aprobación correspondiente se concretará con la votación a favor de la mitad más uno de los afiliados presentes.
+c) Aprobada la reforma propuesta, la Junta Administradora, lo remitirá a la Junta Directiva del INVU, para su estudio y ratificación.
+d) Toda reforma al Reglamento entrará en vigencia a partir de la ratificación de la Junta Directiva del Instituto y su comunicación a todos los afiliados, por los medios de divulgación que estime la Junta Administradora.

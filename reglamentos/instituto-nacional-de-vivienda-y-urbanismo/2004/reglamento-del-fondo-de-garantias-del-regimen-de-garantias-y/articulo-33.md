@@ -1,0 +1,1 @@
+Artículo 33.—La mutualidad se establecerá mediante la creación contable de una reserva conformada por el monto total acumulado a la fecha en este Régimen, más el 15% del total de las utilizadas generadas anualmente.

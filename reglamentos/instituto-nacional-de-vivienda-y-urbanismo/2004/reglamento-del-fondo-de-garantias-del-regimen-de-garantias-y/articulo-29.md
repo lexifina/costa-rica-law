@@ -1,0 +1,1 @@
+Artículo 29.—Del trámite de los beneficios. La Junta Administradora establecerá y comunicará a los beneficiarios el trámite a seguir en las solicitudes y la documentación, para hacer efectivos los beneficios comprendidos en este Reglamento, siendo obligación de todos los afiliados acatar dichas disposiciones.

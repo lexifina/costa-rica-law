@@ -1,0 +1,1 @@
+Artículo 10.—De la convocatoria. La convocatoria a Asamblea General Ordinaria y Extraordinaria se hará al menos con ocho días naturales de anticipación, a través de circulares impresa, correo electrónico, facsímil o por cualquier otro medio de divulgación que considere recomendable la Junta.

@@ -1,0 +1,1 @@
+Artículo 42.—Cada miembro del Fondo designará un beneficiario con derecho a percibir las sumas estipuladas bajo el régimen de beneficios en caso de muerte y podrá en cualquier tiempo cambiar dicha designación mediante aviso escrito a la Junta Administradora del Régimen.

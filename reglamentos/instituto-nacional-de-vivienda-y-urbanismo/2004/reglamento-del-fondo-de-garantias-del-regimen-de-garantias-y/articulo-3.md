@@ -1,0 +1,9 @@
+Artículo 3º—Definiciones:
+Afiliados: Miembros del Fondo de Garantías del Instituto Nacional de Vivienda y Urbanismo, designados en el artículo 4 del presente Reglamento.
+Aporte patronal: Suma equivalente al 67% del monto que destina el Instituto al Régimen de Garantías y Jubilaciones, para el mantenimiento del Fondo de Garantías, de conformidad con los artículos 45 y 46 de la Ley Nº 1788 del 24 de agosto 1954 (Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo), que se distribuirá en los términos que lo acuerde anualmente la Junta Directiva del INVU.
+Aporte laboral: Suma aportada en calidad de ahorro por los funcionarios y empleados del Instituto Nacional de Vivienda y Urbanismo, equivalente al 4% de sus salarios, con el .n de fortalecer los ingresos del Fondo de Garantías y que se liquidara anualmente a más tardar el último viernes del mes de febrero.
+Beneficiarios: Persona(s) física(s) designada por el afiliado, con derecho a recibir todos los beneficios que se brinden en caso de muerte o perdida de la capacidad de actuar del afiliado, declarado judicialmente.
+Fondo: Fondo de Garantías del Personal del Instituto Nacional de Vivienda y Urbanismo, Patrimonio autónomo propiedad de los afiliados, integrado por cuentas individuales y debidamente separado de la contabilidad del Instituto Nacional de Vivienda y Urbanismo.
+Instituto: Instituto Nacional de Vivienda y Urbanismo.
+Garantías: Régimen de beneficio económico directo recibido anualmente por el afiliado, a más tardar el último viernes del mes de febrero, a través de: a) Devolución optativa del aporte laboral y del rendimiento generado por el Fondo de Garantías. b) Concesión de préstamos financiados con el aporte patronal.
+Junta: Junta Administradora del Fondo de Garantías del Personal del Instituto Nacional de Vivienda y Urbanismo.

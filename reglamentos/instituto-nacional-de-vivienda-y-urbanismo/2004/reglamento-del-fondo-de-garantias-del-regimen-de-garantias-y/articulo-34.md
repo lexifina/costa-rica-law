@@ -1,0 +1,1 @@
+Artículo 34.—A efecto de ajustar la reserva a los montos convenientes, en enero de cada año se revisará el índice de inflación a diciembre del año anterior, y se fijará el nuevo monto máximo de esta reserva.
