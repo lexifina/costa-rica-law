@@ -1,0 +1,10 @@
+Artículo 3º—Control de los Recursos.
+a) El nombramiento de los responsables del control interno de los recursos de Internet (donde deben figurar dos miembros de la Unidad de Informática del MEIC, nombrados por el encargado de la Unidad) dependerá de la Oficialía Mayor. Los responsables de Informática que sean nombrados para ejercer este control, deberán proveer toda la información necesaria para ejecutar los controles solicitados. Asimismo, debe mantenerse absoluta confidencialidad respecto de toda la información que se conozca.
+b) La habilitación del servicio de acceso a Internet, así como la creación del casillero de correo electrónico, corresponde a la Unidad de Informática, previa autorización de la jefatura del departamento donde pertenezca el usuario que utilizará el servicio.
+c) El acceso a Internet está controlado por el nombre del usuario, por lo que las bitácoras de acceso permitirán determinar los accesos a Internet de cada usuario.
+d) Las bitácoras que guarda el sistema serán de los últimos treinta días naturales.
+e) Cada jefe de unidad o área en alguna situación que lo amerite, podrá solicitar al jefe de Informática las bitácoras de determinados días, con la idea de monitorear los accesos a sitios de Internet de sus subalternos.
+f) La Unidad de Informática determinará los sitios no adecuados, de acuerdo con las bitácoras mencionadas, y procederá a bloquear su salida en el servidor que provee el acceso a Internet. Asimismo podrá hacer esta labor por recomendación de la Oficialía Mayor o algún otro jefe o encargado que ésta faculte para tal propósito.
+g) Periódicamente, la Unidad de Informática realizará revisiones sobre las bitácoras de acceso para determinar si existen visitas a sitios no autorizados y si es necesario, bloqueará el acceso a estos lugares.
+Podrá, además, comunicar al jefe de unidad o área correspondiente, el uso irregular de Internet por parte de alguno de sus subordinados.
+Todas estas revisiones deberán quedar documentadas para que quede constancia de su realización y para posterior referencia.

@@ -1,0 +1,1 @@
+Artículo 7º—El incumplimiento de las políticas y prohibiciones establecidas en la presente Directriz, será sancionado de conformidad con lo dispuesto, para este efecto, en el Reglamento Autónomo de Servicios del MEIC.
