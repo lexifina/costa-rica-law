@@ -1,0 +1,1 @@
+Articulo 17.-Los derechos que se refiere el artículo 11, así como los adquiridos por los decretos de 5 de agosto de 1899, 20 de setiembre de 1900, y 7 de junio de 1909, deberán ejercitarse ante el Juez de lo Contencioso Administrativo dentro de los tres meses siguientes la promulgación de esta ley. Quienes dejaren de hacerlo dentro de ese término, pierden tales derechos.

@@ -1,0 +1,3 @@
+Artículo 20.-Nadie podrá adquirir en la forma prevista en los artículos 3° y 16, más de un lote para cultivo y otro para construir, y las personas que hagan uso de los derechos que garantizan los artículos 11 y 17, no pueden aprovecharse de ninguna de las concesiones que otorga esta nueva ley.
+Quedan refundidas en la presente las leyes de 21 de abril de 1882, 5 de agosto de 1899, 20 de setiembre de 1900 y 14 de julio de 1909.
+Dado en el Salón de Sesiones del Congreso, Palacio Nacional, San José, a los tres días del mes de junio de mil novecientos diez, San José, seis de junio de mil novecientos diez.

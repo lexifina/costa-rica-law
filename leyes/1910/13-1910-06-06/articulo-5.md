@@ -1,0 +1,1 @@
+Artículo 5°. -El Estado otorgar título de propiedad inscribible al colono que hubiere cultivado la tercera parte de lo que se le entregue, con cultivos estables, y que construyere, además, una vivienda formal. El propietario no podrá vender, hipotecar, ni en otra forma enajenar esos terrenos mientras no hubiere devuelto la suma que se refiere el artículo anterior.

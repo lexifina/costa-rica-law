@@ -1,0 +1,1 @@
+Articulo 9°.-La colonia estar bajo el mando y dirección de un jefe encargado de examinar y admitir las solicitudes y de vigilar los intereses de la misma.-Además tendrá servicio de correo, oficina telegráfica, un maestro y un médico, cuando el Poder Ejecutivo estime de oportunidad esos servicios.
