@@ -13,3 +13,4 @@ Crea Compañía Lírica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-02-04 | la propia norma |
+| 2 | 1980-02-04 | SINALEVI (sin norma nombrada) |
