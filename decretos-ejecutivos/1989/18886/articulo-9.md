@@ -1,0 +1,1 @@
+Artículo 9º.- La empresa deberá garantizar que en el área donde se lleve a cabo la actividad contará con las correspondientes medidas de seguridad para el público, especialmente en su aspecto estructural (tarimas, rampas, pistas, etc.).
