@@ -1,0 +1,1 @@
+Art. 46.-No se entregará en ninguna de las oficinas de correos de la República, la correspondencia que ingrese en ellas, sino á las personas á quienes vaya dirigida; mas si éstas tuviesen algún inconveniente para retirarlas personalmente de la respectiva oficina, lo harán por medio de un tercero; pero autorizándole al efecto por escrito.

@@ -1,0 +1,1 @@
+Art. 28.-Las horas de servicio para los empleados de las Administraciones subalternas, son desde las 10 a. m. hasta las 2 p. m., sin perjuicio de abrir sus respectivos despachos cuando sea necesario recibir ó despachar algún correo.

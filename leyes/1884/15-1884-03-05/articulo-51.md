@@ -1,0 +1,1 @@
+Art. 51.-Para los efectos del artículo anterior, el Administrador General de Correos se asociará con el Juez de Hacienda Nacional, quien acompañado de dos testigos, se constituir en la Administración General de Correos, á fin de proceder á la destrucción de la correspondencia rezagada, en la forma prescrita en el artículo siguiente:

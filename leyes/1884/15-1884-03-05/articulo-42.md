@@ -1,0 +1,1 @@
+Art. 42.-Las encomiendas que se depositen en cualquiera oficina de correos para su trasporte, deben cerrarse de tal manera que no impidan su inspección los empleados de correos respectivos. En caso contrario ser n consideradas como cartas.

@@ -1,0 +1,1 @@
+Art. 45.-Son considerados como papeles de negocios los expedientes judiciales, las actas de todo género que emanen de empleados del ministerio público, las guías de carga, los conocimientos y facturas consulares.

@@ -1,0 +1,1 @@
+Art. 37.-A fin de facilitar la distribución de la correspondencia y evitar reclamaciones á causa de retrasos, se recomienda á los interesados indicar en cada envío, si fuere posible, el nombre de la calle y número de la casa que habite el destinatario.

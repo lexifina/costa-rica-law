@@ -1,0 +1,1 @@
+Art. 56.-En ningún caso se suspenderá la entrega de la correspondencia á sus respectivos títulos, salvo en los designados en los artículos 125 de la ley de concurso y 32, 39, 40 y 41 de este Reglamento. Ficha del artículo

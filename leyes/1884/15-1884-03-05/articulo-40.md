@@ -1,0 +1,1 @@
+Art. 40.-Si entre la correspondencia ordinaria que circule por correo, se notase la existencia de objetos cuya circulación prohíbe el artículo 39 de este Reglamento, ser decomisada junto con los valores que contenga, y se dar cuenta al Juez de Hacienda Nacional para que éste proceda de la manera que la ley determina.

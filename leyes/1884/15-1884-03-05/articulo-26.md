@@ -1,0 +1,1 @@
+Art. 26.-Las horas de oficina para los empleados de la Administración General, son: desde las 6 a. m. hasta las 2 1/2 p. m. después del despacho de los correos ordinarios, y desde las 5 hasta las 6 1/2 p. m. salvo que el tren que trae la correspondencia de la tarde haya sufrido algún retraso, en cuyo caso permanecerán los empleados en sus respectivos puestos hasta su llegada.

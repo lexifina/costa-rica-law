@@ -1,0 +1,1 @@
+Art. 50.-El oficial 1° cuidará de que la correspondencia rezagada que se archive, se separe por meses y nacionalidades. Trascurrido un semestre se procederá á la devolución de la perteneciente á los países adheridos á la Unión Postal Universal; y seis meses después á la destrucción de la de los no adheridos á ella ‚ interior de la República.

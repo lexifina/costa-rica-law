@@ -1,0 +1,1 @@
+Art. 61.-Cuando se trate de certificar algún envío que contenga valores, debe el certificador manifestarlos en el Despacho, á fin de que el empleado respectivo los consigne en el libro correspondiente, lo mismo que su número de orden, el nombre del certificador, el del destinatario, procedencia y destino, (fórmula N° 6).
