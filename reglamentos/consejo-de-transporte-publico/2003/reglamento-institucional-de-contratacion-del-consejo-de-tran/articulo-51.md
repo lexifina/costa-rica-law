@@ -1,0 +1,5 @@
+CAPÍTULO XIV
+Contratación directa
+Artículo 51.—Concepto y procedencia de la Contratación Directa. La contratación directa es el procedimiento de contratación administrativa en virtud del cual el Consejo negocia, en forma directa, con el o los proveedores de las obras, bienes y servicios que requiere, sin que deba promover un procedimiento ordinario de concurso para ese mismo propósito.
+Procede la contratación directa cuando el monto del respectivo negocio no alcance el límite económico que hace obligatoria la tramitación de una licitación pública, por registro o restringida, independientemente del tipo de contrato de que se trate, así como en los supuestos que regulan en los artículos 2º de la LCA y 79.4 del RGCA.
+Corresponderá al Director Ejecutivo, mediante acto debidamente motivado determinar la procedencia de la contrataciones directas que se pretenda realizar al amparo de cualquier circunstancia prevista por la Ley y su Reglamento citados en el artículo anterior, excepción hecha de las que se fundamenten en el limitado volumen y trascendencia económica.

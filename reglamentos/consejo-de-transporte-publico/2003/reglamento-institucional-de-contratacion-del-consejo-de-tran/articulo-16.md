@@ -1,0 +1,3 @@
+Artículo 16.—Estimación del contrato y determinación del procedimiento.
+1. La estimación del contrato que interesa y la determinación del procedimiento a seguir para su celebración, será responsabilidad de la Proveeduría.
+2. Tratándose de bienes que, por su naturaleza, origen o razones técnicas, se consideren funcionalmente diferentes, respecto de los cuales resulta concebible su adjudicación repartida en distintos proveedores, se estimará el valor del negocio de acuerdo con el valor de cada renglón o ítem por separado, aún cuando su adquisición se tramite dentro de un mismo procedimiento de contratación.

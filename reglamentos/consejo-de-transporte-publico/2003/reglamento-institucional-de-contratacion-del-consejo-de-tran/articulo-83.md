@@ -1,0 +1,2 @@
+Artículo 83.—Informes a la Contraloría General de la República. La Proveeduría será el Departamento responsable de rendir los informes trimestrales ante la Contraloría General de la República, en los que se detalle en forma suscinta la actividad contractual desplegada por el Consejo durante ese período.
+A los anteriores efectos podrán utilizarse medios de almacenamiento electrónico de datos u otros medios electrónicos de transmisión que habilite la Contraloría General de la República.

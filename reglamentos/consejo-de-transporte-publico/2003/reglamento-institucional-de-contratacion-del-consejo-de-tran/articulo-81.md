@@ -1,0 +1,1 @@
+Artículo 81.—Procedimientos para las sanciones a servidores del Consejo. Las sanciones a los funcionarios del Consejo se substanciarán siguiendo los procedimientos establecidos en la LGAP y el RGCA y lo que al respecto señale la Ley General de la Administración Pública y el Estatuto del Servicio Civil.

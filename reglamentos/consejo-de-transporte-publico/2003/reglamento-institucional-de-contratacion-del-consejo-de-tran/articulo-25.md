@@ -1,0 +1,4 @@
+Artículo 25.—Prórroga a la ejecución de los contratos. En situaciones de caso fortuito o fuerza mayor debidamente acreditados, el contratista podrá solicitar por escrito ante la Proveeduría del Consejo, prórrogas para la ejecución del contrato.
+La Proveeduría se informará con el criterio de los departamentos especializados y elevará una recomendación ante el Director Ejecutivo para que resuelva lo pertinente.
+También se autorizará prórrogas para la ejecución del contrato por demoras ocasionadas por el propio Consejo.
+El contratista deberá solicitar la prórroga a más tardar dentro de los ocho días siguientes al conocimiento del hecho que demorará la ejecución. No se concederán prórrogas vencidos los términos de ejecución previstos, sin perjuicio del derecho de justificar el incumplimiento por los medios legales establecidos.

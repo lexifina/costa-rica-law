@@ -1,0 +1,6 @@
+CAPÍTULO VI
+Formación de la voluntad administrativa
+Artículo 13.—Programa de Adquisiciones.
+1. Corresponderá a la Proveeduría, en coordinación con el Departamento Financiero y el visto bueno de la Dirección Ejecutiva, elaborar y publicar los Programas de Adquisiciones, para lo cual se basará en las previsiones contenidas en el Presupuesto Anual Ordinario. Dicho programa únicamente contendrá las necesidades de contratación que deban tramitarse mediante licitación restringida, licitación por registro o licitación pública.
+2. Cuando, durante el curso de un período presupuestario, se presenten solicitudes para contratar mediante alguno de los referidos procedimientos ordinarios, bienes, obras o servicios que no habían sido previstos originalmente, la Proveeduría deberá plantear el asunto ante el Director Ejecutivo, para que sí este lo encuentra procedente, gestione la anuencia de la Junta Directiva para la modificación del Programa de Adquisiciones.
+3. La Proveeduría no podrá, salvo comprobadas razones de urgencia debidamente calificada por la Junta Directiva, tramitar ninguna licitación pública, por registro o restringida, si el requerimiento de que se trate no está contemplado en el Programa de Adquisiciones.

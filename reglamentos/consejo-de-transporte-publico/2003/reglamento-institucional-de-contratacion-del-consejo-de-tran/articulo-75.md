@@ -1,0 +1,1 @@
+Artículo 75.—Efecto de la resolución confirmatoria. Recibida la notificación del fallo de la Contraloría General de la República que rechaza el recurso de apelación y confirma el acto adjudicatorio, la Proveeduría proseguirá con los trámites para iniciar la formalización del contrato.

@@ -1,0 +1,1 @@
+Artículo 29.—Registro de Proveedores. La licitación por registro requiere de la existencia de un registro de proveedores, al cual podrá ingresar todo interesado en contratar con el Consejo, siempre que satisfaga los requisitos de solvencia, antecedentes y experiencia que se establecen en el reglamento correspondiente.

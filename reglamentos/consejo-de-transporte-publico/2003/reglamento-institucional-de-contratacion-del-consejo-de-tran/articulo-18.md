@@ -1,0 +1,1 @@
+Artículo 18.—Acumulación de pedidos. La Proveeduría procurará reunir los pedidos de las diversas dependencias del Consejo que versen sobre la misma clase de objetos, siempre que la naturaleza y circunstancias concurrentes lo permitan, con el objeto de lograr las mejores condiciones contractuales y de evitar, a la vez, un fraccionamiento ilegítimo.

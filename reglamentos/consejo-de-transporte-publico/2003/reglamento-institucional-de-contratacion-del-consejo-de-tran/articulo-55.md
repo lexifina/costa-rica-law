@@ -1,0 +1,1 @@
+Artículo 55.—Prohibición de fraccionar contrataciones. No está permitido el fraccionamiento de compras de bienes o servicios, con el propósito de eludir los procedimientos normales de contratación, según su tipo y monto.

@@ -1,0 +1,2 @@
+Artículo 41.—Control del retiro del cartel. Previo a efectuar la entrega del cartel, el funcionario responsable de esta situación, deberá requerir el comprobante del pago del costo del mismo y además, consignar en un "formulario de control", el nombre completo y número de cédula de quien retira, su firma y fecha de retiro, e indicar el nombre completo o razón social , la dirección, número de teléfono y fax del potencial oferente o bien, correo electrónico.
+Dicho formulario, deberá constar en el expediente administrativo una vez vencido el plazo para recibir ofertas.

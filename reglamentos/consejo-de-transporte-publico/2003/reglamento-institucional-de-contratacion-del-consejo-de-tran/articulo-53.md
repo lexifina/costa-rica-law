@@ -1,0 +1,2 @@
+Artículo 53.—Necesidad de requisitos. Para una contratación directa, se puede prescindir de solicitar la personería jurídica y la certificación de naturaleza y propiedad de las acciones del oferente, siempre que éste se encuentre debidamente inscrito en el registro de proveedores y a su vez, que su documentación se encuentre vigente, sea con no menos de tres meses de emisión de los documentos mencionados.
+Por el contrario, se deberán presentar conjuntamente con la oferta dichos requisitos.

@@ -1,0 +1,7 @@
+SECCIÓN I
+Del acto de apertura de ofertas
+Artículo 43.—Trámite del acto de apertura de ofertas. Una vez concluido el plazo para la recepción de ofertas, a la hora y en la fecha prevista en la invitación, de inmediato se procederá al acto formal de apertura de las mismas.
+La apertura de las ofertas se realizará en la Proveeduría en presencia de un representante de Asuntos Jurídicos y de los interesados que tengan a bien asistir. A ésta podrán asistir, funcionarios de las dependencias interesadas, así como un representante de la Auditoria y Junta Directiva del Consejo de Transporte Público. Toda persona que asista deberá demostrar su condición, ya sea como interesado o bien como representante de las dependencias interesadas o de la Auditoría.
+Las aperturas de las ofertas se asentarán en el Libro de Licitaciones legalizado por la Auditoria Interna o por Asuntos Jurídicos, un acta que será suscrita por los funcionarios encargados de la apertura, así como por los participantes que hayan hecho observaciones para que conste en el acta.
+Cuando el día previsto para el acto de apertura no fuere hábil ni habilitado al efecto, tal acto se realizará el siguiente día hábil a la misma hora establecida.
+Cuando en el área física a efectuarse el acta de apertura de ofertas, no hubiere suficiente espacio para los asistentes, se podrá limitar la presencia hasta un número máximo por cada oferente, el que se definirá según las circunstancias concurrentes.

@@ -1,0 +1,3 @@
+Artículo 23.—Modificación del contrato. El Consejo podrá aumentar, disminuir o modificar la prestación objeto del contrato en razón de un interés justificado de acuerdo con lo dispuesto por el artículo 12 de la LCA y 14 del RGCA. Por vía de modificación no se podrá variar el objeto del negocio.
+La modificación podrá ser dispuesta por la Proveeduría, si se trata de una variación superficial o formal respecto de las condiciones pactadas, por estar referida a aspectos de detalle del contrato.
+La variación de condiciones específicas o relevantes del contrato deberán ser acordadas por la Junta Directiva.

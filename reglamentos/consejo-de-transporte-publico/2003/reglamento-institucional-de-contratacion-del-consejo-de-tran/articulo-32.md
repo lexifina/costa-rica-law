@@ -1,0 +1,1 @@
+Artículo 32.—Proveedores no inscritos. Además de los invitados, podrá participar en el concurso cualquier proveedor no registrado, si antes del vencimiento del plazo para presentación de ofertas, logra formalizar su inscripción.

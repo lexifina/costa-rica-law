@@ -1,0 +1,2 @@
+Artículo 49.—Exclusión de ofertas. Únicamente podrán excluirse del concurso, las ofertas que infrinjan disposiciones legales o que se aparten de las estipulaciones técnicas relevantes del cartel de licitación, cuando no sea factible subsanarlas.
+También serán declarados inelegibles, los oferentes que habiendo sido prevenidos al efecto, no concurran a subsanar las deficiencias formales trascendentes advertidas en sus propuestas. En estos supuestos, deberá proceder a la ejecución de la garantía de participación.

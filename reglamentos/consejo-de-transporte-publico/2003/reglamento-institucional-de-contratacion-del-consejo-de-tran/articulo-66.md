@@ -1,0 +1,3 @@
+Artículo 66.—Incumplimiento de las condiciones contractuales. Cuando el departamento encargado de asegurar la correcta ejecución del contrato, advierta un incumplimiento por parte del contratista, lo emplazará en coordinación con la Proveeduría, para que se ajuste a los términos pactados.
+Si el contratista no atendiese en debida forma el emplazamiento conferido, se pondrá el caso en conocimiento del Departamento de Asuntos Jurídicos del Consejo, para que este disponga lo pertinente a efecto de iniciar el procedimiento correspondiente. La resolución final será adoptada por la Junta Directiva.
+Únicamente podrá disponerse la resolución del contrato cuando el incumplimiento impida la consecución de la finalidad perseguida.

@@ -1,0 +1,2 @@
+Artículo 30.—Invitación a proveedores. En toda Licitación por Registro, la Proveeduría del Consejo, invitará a participar a todos los proveedores del bien o servicio, acreditados en el registro correspondiente, mediante comunicación dirigida a la dirección indicada por el respectivo proveedor. Podrá adjuntar el pliego de condiciones y especificaciones del concurso, o indicar la oficina en la cual podrán los invitados retirarlo.
+La Proveeduría dejará constancia en el expediente del concurso, de que la invitación respectiva ha llegado a su destino.

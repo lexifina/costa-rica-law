@@ -1,0 +1,6 @@
+Artículo 52.—Número de invitados. En las compras de artículos o materiales para mantener en existencia en la bodega de la Proveeduría y en general tratándose de contrataciones que por razón de su monto procedan en forma directa, se acudirá al Registro de Proveedores para seleccionar a contratistas, procurando brindar un acceso igual a todos los oferentes. Cuando no exista en el Registro una persona calificada para la prestación se podrá seleccionar directamente o, se acudirá al trámite de cotización, tomándose en cuenta preferentemente calidad, precio y tiempo de entrega.
+En todo caso de contratación directa dispuesto con base en causas que no impidan la competencia, la Proveeduría del Consejo deberá efectuar consultas formales de precio de acuerdo con las siguientes disposiciones:
+Al menos dos invitados cuando el monto del contrato sea superior a ¢50.000 (cincuenta mil colones exactos).
+Por lo menos tres invitados para montos superiores a ¢100.000 (cien mil colones exactos).
+Se procurará dar oportunidades a personas diferentes, en cada procedimientos de contratación directa que promueva a efecto de que compitan con el proveedor seleccionado en el trámite anterior.
+La Proveeduría podrá aumentar el número de invitados siempre que con ello no se afecte la celeridad del procedimiento.

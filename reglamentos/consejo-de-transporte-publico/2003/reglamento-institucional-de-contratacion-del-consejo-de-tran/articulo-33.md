@@ -1,0 +1,1 @@
+Artículo 33.—Plazo para la recepción de ofertas. El plazo que medie entre la última notificación de las invitaciones y la fecha señalada como límite para recibir ofertas, no podrá ser inferior a diez días hábiles.

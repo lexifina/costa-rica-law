@@ -1,0 +1,1 @@
+Artículo 36.—Inexistencia de cinco potenciales oferentes. Cuando no existieren al menos cinco potenciales oferentes inscritos, la Proveeduría deberá dejar constancia de ello en el expediente respectivo y cursará la invitación a quienes figuren en el registro.

@@ -1,0 +1,1 @@
+Artículo 38.—Plazo para recibir ofertas. La Proveeduría fijará los plazos para recibir ofertas y para dictar el acto de adjudicación, valorando en todo caso la complejidad para elaborar las ofertas y de los análisis que haya que realizar.

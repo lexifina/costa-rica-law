@@ -1,0 +1,2 @@
+Artículo 9º—Retiro de artículos de bodega. El retiro de los artículos de bodega, será responsabilidad solidaria del funcionario que los recibe y del superior jerárquico que los autoriza, debiendo justificar su uso o destino ante sus superiores o ante la Auditoria Interna cuando lo sea requerido.
+La persona que efectúa el retiro de los artículos de la bodega, deberá estar debidamente autorizada por su superior inmediato ante el Departamento de Proveeduría, de lo contrario no podrá hacer efectivo el retiro.

@@ -1,0 +1,10 @@
+CAPÍTULO IV
+De las existencias en proveeduría
+Artículo 10.—Compras de útiles y demás enseres, inventarios y manejo de existencias.
+1. La Proveeduría realizará las compras de útiles y demás enseres que se requiera en cantidades suficientes para mantener existencias adecuadas a las necesidades del Consejo. Dichas existencias serán registradas en tarjetas o medios electrónicos confrontados contra el inventario permanente.
+2. La contabilidad del Consejo llevará un duplicado del tarjetero o un auxiliar del inventario permanente de existencias que servirá de control cruzado con la existencia en Proveeduría.
+3. Para el debido control de estas existencias la Auditoria Interna procederá a realizar periódicamente, un inventario físico de las existencias en bodega por sistema de muestreo o pruebas selectivas. Los resultados obtenidos de estos inventarios se cotejarán con los datos que lleva el Departamento de Contabilidad.
+4. El proveedor será responsable de las existencias en bodega. No tendrán acceso al interior de la bodega los particulares, ni empleados, quedando exentos de esta limitación los superiores jerárquicos, así como funcionarios de Auditoria Interna en el desempeño de sus labores, únicamente siempre que cuando ingresen, lo hagan en presencia de un funcionario de Proveeduría, al igual que los funcionarios de la Contraloría General de la República y el Auditor Interno del Consejo de Transporte Público, cuando efectúen sus intervenciones.
+5. Para retirar útiles o materiales de la existencia en Proveeduría, el Departamento solicitante deberá presentar una requisición cumpliendo con lo estipulado en el artículo diez del presente reglamento.
+6. La Proveeduría debe remitir copia de la requisición a la contabilidad para efectos de descargar las partidas. Asimismo, para anotar las entregas, se emitirá un documento por parte de la Proveeduría que dará la información de la Orden de Compra, de la factura y demás detalles necesarios para cargar las partidas respectivas.
+7. La Proveeduría deberá preparar con suficiente anticipación las licitaciones para la adquisición de materiales y útiles de oficina de uso corriente.

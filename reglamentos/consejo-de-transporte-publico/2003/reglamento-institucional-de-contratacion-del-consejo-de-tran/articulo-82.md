@@ -1,0 +1,2 @@
+Artículo 82.—Prohibición para invitar proveedores sancionados. La Proveeduría no cursará invitación en las licitaciones por registro o las restringidas, a los proveedores que se encuentren incluidos en la lista de personas con incompatibilidad o que hayan sido sancionados con suspensión.
+En los procedimientos de contratación directa la Proveeduría dentro de las limitaciones legales procederá a seleccionar a los proveedores que no hayan sido apercibidos.

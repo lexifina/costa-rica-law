@@ -1,0 +1,1 @@
+Artículo 58.—Firmas en la orden de compra. La orden de compra para toda adquisición de bienes y servicios cuyo monto sea superior a ¢500.001.00 (quinientos un mil colones) llevará las firmas del Jefe del Departamento de Proveeduría, de Financiero, de la Dirección Administrativa Financiera y de la Dirección Ejecutiva, conjuntamente.
