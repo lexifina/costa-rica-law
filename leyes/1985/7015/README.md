@@ -1,6 +1,6 @@
 # Ley de Presupuesto Extraordinario
 
-Ley N° 7015 del 1985-11-22. SINALEVI, ficha 8912: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8912&param2=105389&param3=1>.
+Ley N° 7015 del 1985-11-22. SINALEVI, ficha 8912: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8912&param2=9553&param3=1>.
 
 Publicada en La Gaceta N° 229 del 1985-11-29.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 6 | 1997-08-29 | SINALEVI (7 normas) | 1985-11-22 |
 | 2 de 6 | 1997-08-29 | Ley 7033 | 1986-08-04 |
+| 3 de 6 | 2001-01-10 | SINALEVI | 2001-01-10 |
