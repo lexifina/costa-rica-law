@@ -14,3 +14,4 @@ Reglamento de Normas Administrativas para la Eficiente Aplicación de la Ley N°
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-21 | la propia norma |
+| 2 | 1999-10-18 | Reglamento municipal 109 (1999-10-18) |
