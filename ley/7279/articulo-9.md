@@ -1,6 +1,6 @@
 ARTICULO 9.- Autorízase a la Municipalidad de Desamparados para
-verificar la exactitud de los datos que suministren los patentados ante la
-Direción General de la Tributación Directa.
+verificar la exactitud de los datos que suministren los patentados ante
+la Direción General de la Tributación Directa.
 Si se comprobara que estos datos han sido alterados y que, por lo
 tanto, el impuesto asignado es incorrecto, la Municipalidad hará la
 recalificación correspondiente. Asimismo, cuando la Dirección de la
@@ -13,6 +13,6 @@ servirá de título ejecutivo para efectos de su cobro.
 Queda a salvo el derecho del contribuyente para impugnar la
 calificación hecha por la Municipalidad. Para tales efectos, la vía
 administrativa se agotará mediante la alzada que el patentado interponga
-directamente ante el Concejo, una vez resuelta por este, de conformidad con
-las disposiciones del artículo sobre materia tributaria de la Ley
+directamente ante el Concejo, una vez resuelta por este, de conformidad
+con las disposiciones del artículo sobre materia tributaria de la Ley
 Reguladora de la Jurisdicción Contencioso Administrativa.
