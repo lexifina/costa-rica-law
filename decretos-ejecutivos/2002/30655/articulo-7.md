@@ -1,0 +1,1 @@
+Artículo 7º—Ejecución de trámite. La ejecución del trámite de la Comisión de Precalificación y Adjudicación en la selección y contratación del banco, estará a cargo de la Tesorería Nacional y el Despacho del Ministro de Hacienda. Se contará con la asesoría de la Dirección General de Administración de Bienes y Contratación Administrativa.

@@ -1,0 +1,3 @@
+Artículo 19.—De la documentación legal. Una vez que la Tesorería Nacional, previa consulta con el Despacho del Ministro, determine el interés de llevar a cabo una de las operaciones a que se refiere el artículo 73 de la Ley Nº 8131, se deberá solicitar a los bancos precalificados la documentación legal que se requerirá para el cierre de la transacción. A estos efectos se indicará a los bancos precalificados la documentación requerida, así como el plazo y el lugar para la recepción de ésta.
+El banco que no cumpla con este requisito no será considerado para el proceso establecido en los artículos siguientes.
+En caso de que la transacción no se lleve a cabo en un plazo de tres meses luego de recibida dicha documentación, se deberá solicitar nuevamente la misma.

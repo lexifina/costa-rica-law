@@ -1,0 +1,1 @@
+Artículo 18.—Formalización del contrato marco. Una vez vencido el plazo para apelaciones y de conformidad con la práctica internacional imperante en la materia, se iniciará el proceso de formalización del contrato marco con todos los bancos preseleccionados, según los principios del derecho internacional.

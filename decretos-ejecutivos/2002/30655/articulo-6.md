@@ -1,0 +1,1 @@
+Artículo 6º—Bases de Precalificación y Bases para la Presentación de Ofertas. Corresponderá a la Comisión de Precalificación y Adjudicación, recomendar al Ministro de Hacienda, los criterios que deberán contemplarse en las Bases de Precalificación y Bases para la Presentación de Ofertas, que éste deberá emitir.

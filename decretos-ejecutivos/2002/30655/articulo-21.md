@@ -1,0 +1,5 @@
+Artículo 21.—De la selección del o los bancos. Una vez cumplido lo establecido en el artículo anterior, se procederá a invitar a los bancos precalificados a presentar sus ofertas, para lo cual se les entregará:
+1. Bases para la presentación de Ofertas que deberán incluir el Estudio Técnico que resuma las características financieras de la operación, e indicar, a su vez, el plazo máximo y lugar de recepción de ofertas, así como la forma de entrega de las mismas, según las prácticas del mercado.
+2. Cualquier otro documento requerido para la presentación de las ofertas.
+A las bases para la presentación de ofertas se anexará la documentación de carácter informativo que servirá de base para la presentación de ofertas por parte de los bancos precalificados y se indicará el plazo y lugar para la recepción de ofertas.
+En caso de que alguno de los bancos precalificados haya sido parte de algún proceso de fusión o adquisición, deberá comprobar, a satisfacción del Ministerio de Hacienda, el resultado de dicha fusión o adquisición.

@@ -1,0 +1,1 @@
+Artículo 3º—Control de Riesgo. Corresponderá a la Unidad de Análisis y Política de Deuda de la Tesorería Nacional, realizar estudios e informes sobre los riesgos implícitos de las transacciones a realizarse o que hayan sido efectuadas.

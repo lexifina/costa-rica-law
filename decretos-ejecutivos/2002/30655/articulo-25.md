@@ -1,0 +1,1 @@
+Artículo 25.—Formalización del anexo. De conformidad con la práctica y el derecho internacional, luego de notificado el acto de adjudicación final, se iniciará el proceso de formalización del anexo al contrato marco a que se refiere el artículo 18 con el o los bancos seleccionados.

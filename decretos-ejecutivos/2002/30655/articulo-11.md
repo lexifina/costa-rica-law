@@ -1,0 +1,2 @@
+Artículo 11.—Invitación directa. El procedimiento de precalificación se iniciará con una invitación individual a por lo menos diez bancos internacionales de primer orden, que deberá realizarse a más tardar el mismo día que se realice la publicación a que se refiere el artículo siguiente.
+En la invitación se indicará la página de internet donde se pueden accesar las bases para la precalificación y el plazo máximo y lugar para la recepción de los atestados.

@@ -1,0 +1,1 @@
+Artículo 15.—Presentación oral de las ofertas. Cada banco precalificado deberá realizar, ante la Comisión de Precalificación y Adjudicación y la Comisión Asesora, una presentación oral de su oferta técnica, dentro del plazo que al efecto se disponga en las bases para la precalificación.

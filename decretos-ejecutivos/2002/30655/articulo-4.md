@@ -1,0 +1,2 @@
+Artículo 4º—Bancos de inversión. Para la realización de las operaciones de derivados financieros, a que se refiere este Reglamento, la Tesorería Nacional deberá contratar los servicios de un banco de inversión de reconocido prestigio internacional, el cual deberá tener plaza abierta en Londres o Nueva York y estar habilitado para negociar derivados financieros.
+Se aplicarán a la contratación de los Bancos a que se refiere el párrafo anterior, las limitaciones establecidas en los artículos 22 a 26 de la Ley de Contratación Administrativa.
