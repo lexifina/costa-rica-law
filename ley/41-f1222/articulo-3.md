@@ -1,0 +1,2 @@
+Art. 3°-Queda reformada en estos términos la fracción 8a del artículo 1192 del Código de Procedimientos.
+AL PODER EJECUTIVO. -Dado en el Salón de Sesiones, -Palacio Nacional -San José, à los veinte días del mes de octubre de mil ochocientos ochenta y uno. -BRUNO CARRANZA, Presidente. LUIS D. SÁENZ, -Pro-Secretario, -Por tanto: ejecútese. -Palacio Presidencial. –San José, veintiuno de octubre de mil ochocientos ochenta y uno. -SALVADOR LARA. El Secretario de Estado en el Despacho de Gracia y Justicia -MANUEL ARGÜELLO.
