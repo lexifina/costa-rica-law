@@ -1,0 +1,3 @@
+Artículo 3°—La Dirección General de Servicio Civil, emitirá las resoluciones correspondientes, para ejecutar el derecho reconocido en el artículo primero anterior.
+La primera de dichas resoluciones regirá a partir del 1° de mayo de 1990 e incrementará el salario base de los educadores en un 30% del total que les correspondiere, de acuerdo con lo indicado en el artículo primero de este Decreto. Las otras dos resoluciones lo aumentaran en un 35% cada una.
+La emisión y las fechas de rige de las resoluciones que completan el derecho, estarán sujetas a definición por parte del Poder Ejecutivo. Los efectos de cada una de dichas resoluciones serán independientes.
