@@ -1,0 +1,1 @@
+Artículo 6º—La Comisión podrá nombrar cualquier tipo de profesional de apoyo, investigadores, consultores y asesorías necesarias para el desempeño de sus deberes. Los gastos originados por los conceptos anteriores, serán sometidos a aprobación de la Junta Directiva de cada colegio, previa presentación del presupuesto correspondiente.

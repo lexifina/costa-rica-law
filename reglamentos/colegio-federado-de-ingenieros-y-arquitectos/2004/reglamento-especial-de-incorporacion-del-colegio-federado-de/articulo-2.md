@@ -1,0 +1,2 @@
+Artículo 2º—Los graduados en Ingeniería o Arquitectura de instituciones de Educación Superior debidamente autorizadas, se incorporarán al Colegio Federado, según lo indicado en este Reglamento, que tiene como objetivo el mantenimiento de la más alta condición académica y profesional de los Ingenieros y de los Arquitectos en el ejercicio de la profesión.
+(Así reformado por acuerdo N° 2 de la sesión N° 04-03/04-AER de 24 de marzo de 2004)

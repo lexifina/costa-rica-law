@@ -1,0 +1,2 @@
+Artículo 3º—Cada Colegio miembro del Colegio Federado, integrará para la incorporación de miembros una Comisión de Credenciales, que someterá a consideración de su Junta Directiva las recomendaciones del caso. La Junta Directiva de cada Colegio miembro remitirá la documentación a la Junta Directiva General, para el trámite correspondiente.
+(Así reformado por acuerdo N° 3 de la sesión N° 04-03/04-AER de 24 de marzo de 2004)
