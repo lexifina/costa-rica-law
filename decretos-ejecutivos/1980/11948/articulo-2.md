@@ -9,3 +9,5 @@ Artículo 2°─ La emisión de estos Bonos estará compuesta por los siguientes
 TOTAL ₡ 200.000.000,00
 Cada denominación se imprimirá en distinto color, para que sea fácilmente distinguible de otras.
 Estos Bonos irán fechados 1° de noviembre de 1980; tendrán una cuota fija trimestral de 2,516071% para atender la amortización e interés y su plazo será de veinte años. Devengarán un interés del 8% anual, pagadero por trimestres vencidos el día 1° de cada uno de los meses de febrero, mayo, agosto y noviembre y para atender la amortización e intereses se incluirá en el presupuesto ordinario de la República la suma anual de ₡ 20.128.568,00.
+A partir del 1° de julio de 1981 tendrán una cuota fija trimestral de 2,542576% sobre el saldo de ₡172.916.000,00 para atender la amortización e intereses y el plazo de dicho saldo será de 19 ½ años a partir del pago anterior al 1°de julio de 1981. Para atender la amortización e intereses se incluirá en el Presupuesto Ordinario de la República la suma trimestral de ₡ 4.396.520,72.
+(Así adicionado el inciso anterior por el artículo 9° del Decreto Ejecutivo N° 13034 del 15 de octubre de 1981)
