@@ -1,0 +1,1 @@
+Artículo 37.—Los funcionarios profesionales del Ministerio podrán acogerse a la carrera profesional y al beneficio de dedicación exclusiva de conformidad con las normas vigentes sobre el particular. La Comisión de Carrera Profesional será el enlace entre los profesionales y la Dirección General de Servicio Civil, para dichos efectos.

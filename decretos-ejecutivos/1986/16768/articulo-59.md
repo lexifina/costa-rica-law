@@ -1,0 +1,1 @@
+Artículo 59.—Podrán concederse licencias o permiso con sueldo para viajes al exterior con motivo de representación oficial del Ministerio o de alguna otra institución pública, siempre que en este último caso se cuente con autorización expresa del Ministro.

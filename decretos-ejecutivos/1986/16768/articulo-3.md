@@ -1,0 +1,1 @@
+Artículo 3°—El Estado es la persona jurídica responsable de las consecuencias resultantes de las relaciones entre el Ministerio y sus servidores y estará representado por el Ministro de Planificación Nacional y Política Económica, en lo sucesivo denominado "El Ministro".

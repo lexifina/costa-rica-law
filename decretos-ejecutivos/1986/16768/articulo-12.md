@@ -1,0 +1,2 @@
+Artículo 12.—Salvo aquellos casos especiales determinados por el Ministro, la jornada ordinaria de trabajo para los servidores del Ministerio será continua de lunes a viernes. Se inicia a las ocho horas, y concluye a las dieciséis horas, sin perjuicio de los cambios y ajustes que sea necesario realizar en las diferentes dependencias del Ministerio debido a la naturaleza del trabajo.
+Dentro de esa jornada los servidores disfrutarán de un lapso de treinta minutos para el almuerzo.

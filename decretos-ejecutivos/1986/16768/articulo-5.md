@@ -1,0 +1,1 @@
+Artículo 5°—Todos aquellos funcionarios que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables ante el Ministro de velar por la correcta aplicación de todas las disposiciones del presente Reglamento.

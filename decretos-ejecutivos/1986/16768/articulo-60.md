@@ -1,0 +1,1 @@
+Artículo 60.—El Departamento de Personal será el responsable de velar por el cumplimiento de las anteriores normas y no dará trámite a nuevas licencias para estudio sin antes verificar que el trabajador se haya hecho acreedor a ellas de conformidad con las prescripciones anteriores.

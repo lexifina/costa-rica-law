@@ -1,0 +1,1 @@
+Artículo 38.—Los Directores de MIDEPLAN y los Asesores Económico y Jurídico, nombrados en propiedad y que hubieran prestado los servicios al Ministerio en tal condición por un período no menor a cuatro años y que renunciaren a sus puestos, tendrán derecho a que se les reconozca el auxilio de cesantía correspondiente.

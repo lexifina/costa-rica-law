@@ -1,0 +1,1 @@
+Artículo 7°—Se considerará servidor interino aquel que fuese nombrado para sustituir temporalmente a un servidor regular por motivo de riesgo profesional, enfermedad, licencia o cualquier otra causa que suspenda la relación de servicio. Los servidores interinos que hayan desempeñado el cargo correspondiente por más de un año, tendrán derecho al auxilio de cesantía respectivo.

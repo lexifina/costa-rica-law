@@ -1,0 +1,1 @@
+Artículo 56.—No obstante lo estipulado en este capítulo, la concesión de licencia para estudios y prórrogas, podrá ser denegada cuando así lo justifique la necesidad del servicio sin responsabilidad para el Ministerio.

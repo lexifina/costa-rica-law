@@ -1,0 +1,1 @@
+Artículo 81.—Derógase el Reglamento Interno de Trabajo de la entonces Oficina de Planificación de 26 de mayo de 1964; asimismo deróganse los Decretos Ejecutivos N° 10247-P-OP de 3 de julio de 1979 y sus reformas; N° 10737-OP de 26 de octubre de 1979 y sus reformas y N° 11044-OP de 12 de diciembre de 1979 y toda otra norma que se oponga al presente Reglamento.

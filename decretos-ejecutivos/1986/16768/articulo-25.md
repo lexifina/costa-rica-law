@@ -1,0 +1,1 @@
+Artículo 25.—Las vacaciones serán absolutamente incompensables, pero cuando por cualquier causa el funcionario termina su relación de servicio con el Ministerio sin haber disfrutado total o parcialmente de sus vacaciones anuales, tendrá derecho al pago correspondiente.

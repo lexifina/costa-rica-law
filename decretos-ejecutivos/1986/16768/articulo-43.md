@@ -1,0 +1,1 @@
+Artículo 43.—La llegada tardía que exceda de treinta minutos, contados a partir de la hora de ingreso estipulada y que carezca de justificación, implicará que el funcionario no se ha presentado a sus labores en la fracción de la jornada correspondiente y se computará por tanto como media ausencia injustificada para efectos de sanción.

@@ -1,0 +1,1 @@
+Artículo 35.—Todo servidor tendrá derecho al reconocimiento de los años de antigüedad acumulados en el Ministerio para el efecto de aumentos anuales, así como la antigüedad acumulada en el resto de la Administración Pública, para el efecto de vacaciones.
