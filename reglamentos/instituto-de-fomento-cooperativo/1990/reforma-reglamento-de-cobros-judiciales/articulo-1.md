@@ -1,0 +1,12 @@
+REFORMAS AL REGLAMENTO DE COBROS JUDICIALES DEL INFOCOOP
+La Junta Directiva del Instituto Nacional de Fomento Cooperativo en sesión N° 1972, artículo único, inciso 3.2) del 28 de junio de 1990, acordó acogerlas siguientes reformas al Reglamento de Cobros Judiciales:
+Artículo 8°—Modificar el inciso c) el cual deberá leerse de la siguiente manera:
+c) "Es requisito indispensable que la demanda inicial contenga exactitud y precisión en las direcciones de los demandados; a este respecto dichas informaciones deberán constar en el legajo que el Departamento de Control de Créditos entregará al abogado encargado. Este último comunicará a ese Departamento cualquier incoherencia en ese sentido para evitar demoras innecesarias en el trámite del juicio. Si pasados 25 días hábiles no se hubiera podido notificar a los demandados dados se deberá comunicar al Departamento de Control de Créditos."
+Artículo 10.—Modificar los incisos c) y d), los cuales deberán leerse de la siguiente manera:
+c) "En todo caso, la imputación de las sumas obtenidas de resultas de juicio se hará en el siguiente orden: las costas personales, las costas procesales, los intereses corrientes y de mora. y finalmente, el principal. (Artículo 237 del Código Procesal Civil).
+d) El pago de honorarios de abogado se regirá por lo que establece al respecto el decreto ejecutivo N° 1706-J publicado en el Alcance N° 14 a "La Gaceta" N° 96 del 23 de mayo de 1986 y sus reformas."
+Artículo 14.—Se modifican los siguientes incisos: e) y f), los cuales deberán leerse de la siguiente manera:
+e) "En caso de ausencia de postores en un primer remate, deberá precederse conforme más convenga a los intereses de la Institución ya sea solicitando la adjudicación por el precio de la base, o bien solicitando señalamiento para segundo y tercer remate, en caso de ausencia de postores, de conformidad con lo dispuesto en los artículos 652 y 655 del Código Procesal Civil."
+f) "Previamente a la celebración del primer y tercer remate, el Departamento de Control de Crédito podrá pedir, si fuera necesario, un nuevo avalúo del bien, el cual servirá de referencia para el caso de que hubiere postores, a fin de defender los intereses del INFOCOOP, elevando las ofertas hasta cubrirla deuda, intereses y costas, salvo caso de que el avalúo sea inferior al saldo adeudado."
+Rige a partir de su publicación.
+San José, julio de 1990.—Magaly Badina Díaz, Secretaria de Actas.
