@@ -1,0 +1,3 @@
+Artículo 32.—Suministro de Papelería. Los profesionales inscritos en el Sistema retirarán en la unidad de adscripción que le corresponda la papelería que requieran para la atención de los asegurados. La misma se otorgará a precio de costo.
+La cantidad se entregará de acuerdo con el consumo promedio de cada empresa, en esta forma se pretende un uso racional de los formularios.
+Las fórmulas de incapacidad que son utilizadas en la Caja Costarricense de Seguro Social (CCSS) podrán ser otorgadas a los profesionales de las empresas adscritas al Sistema, registrando las series numéricas consecutivas de los formularios y la firma de recibido conforme por parte del profesional (empresa, nombre y firma del mismo).

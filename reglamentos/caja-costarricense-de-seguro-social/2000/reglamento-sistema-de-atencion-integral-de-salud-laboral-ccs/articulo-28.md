@@ -1,0 +1,1 @@
+Artículo 28.—Lista de Profesionales Autorizados. Las farmacias acreditadas contarán con un listado actualizado mensualmente de los profesionales autorizados en este Sistema. Este listado será elaborado por el Consejo Coordinador de los Sistemas Alternativos.

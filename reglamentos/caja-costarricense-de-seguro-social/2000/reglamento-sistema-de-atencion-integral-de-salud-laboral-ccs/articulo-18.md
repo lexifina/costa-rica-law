@@ -1,0 +1,1 @@
+Artículo 18.—Obligaciones de los Asegurados. Para acogerse a los servicios que se ofrecen en este reglamento se requiere que el asegurado directo o el familiar cumpla con la presentación de la orden patronal, cédula de identidad o documento de similar rango y el carné de asegurado.
