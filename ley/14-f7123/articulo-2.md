@@ -1,0 +1,1 @@
+Art. 2. Se fija para la ubicación de los edificios públicos la punta del Islote de arenas, en lo mas inmediato á las aguas, y para Almacenes y Casas particulares de tejo ó paja el interior del mismo Islote, dejándose cien varas desocupadas entre los primeros y segundos, y entre estos y las Casas de paja.
