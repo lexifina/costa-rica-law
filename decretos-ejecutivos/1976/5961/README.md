@@ -14,3 +14,4 @@ Reglamento para la aplicación del impuestos sobre el espectáculos públicos cr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-05-15 | la propia norma |
+| 2 | 1976-09-30 | Decreto Ejecutivo 6422 (1976-09-30) |

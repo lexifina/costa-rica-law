@@ -1,1 +1,2 @@
-Artículo 6°-La tarifa es el 6%, cuando los espectáculos se realicen en distritos de cantones que sean cabecera de provincia y el 3% del ingreso en los demás cantones.
+Artículo 6°-La tarifa es: a) El 3 % para funcionarios de cine y teatro que se realicen en distritos que no sean cabeceras de provincia; b) El 6% para los demás espectáculos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 6422 del 30 de setiembre de 1976)
