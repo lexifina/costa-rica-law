@@ -1,1 +1,1 @@
-Artículo 26.- El Poder Ejecutivo reglamentará la presente ley.
+ARTICULO 26.- El Poder Ejecutivo reglamentará la presente ley.

@@ -1,13 +1,36 @@
-Artículo 23.- Cuando el hecho no constituya delito que merezca pena
+ARTICULO 23.- Cuando el hecho no constituya delito que merezca pena
 mayor conforme al Código Penal, la violación de cualquiera de las
 prohibiciones contenidas en el artículo 16 será sancionada en la forma
 siguiente: por la primera infracción, con apercibimiento que hará el
-Departamento Nacional de Control de Radio; por la segunda infracción con
-multa de cien a mil colones, de acuerdo con la gravedad de la misma y con
-destino dicha multa a los fondos escolares del distrito respectivo. En
-caso de violación de la prohibición contenida en el inciso h) se impondrá
-de una vez la pena de multa. En los casos de reincidencia la licencia se
-cancelará por quince días en la primera oportunidad, por un mes en la
-segunda y hasta por seis meses en cada una de las sucesivas infracciones.
-Para efectos de tenerla como reincidencia, la falta debe cometerse dentro
-de un plazo no mayor de un año, después de la primera infracción.
+Departamento de Control Nacional de Radio; por la segunda y siguientes
+infracciones, con multa de cien a mil colones, de acuerdo con gravedad de
+la misma. En los casos de reincidencia, la licencia se cancelará por
+quince días en la primera oportunidad, por un mes en la segunda y hasta
+por seis meses en cada una de las sucesivas infracciones; para efectos de
+tenerla como reincidencia, la falta debe cometerse dentro de un plazo no
+mayor de un año, después de la primera infracción. Cuando el hecho no
+constituya delito que merezca pena mayor conforme al Código Penal, la
+violación de cualquiera de las prohibiciones contenidas en el artículo 17
+será sancionada en la forma siguiente: las prohibiciones comprendidas en
+los incisos a), c), ch), e), g), i), j), k), y i), serán sancionadas
+igual que las violaciones al artículo 16. En el caso de violación a las
+prohibiciones contenidas en los incisos b) y f), se impondrá de una vez
+la pena de multa. En el caso de violación a las prohibiciones contenidas
+en los incisos d) y h), se impondrá la pena de arresto de cincuenta a
+quinientos días, o multa de cien a mil colones. Las multas serán
+destinadas a los fondos escolares del distrito respectivo.
+Los propietarios, empresarios y directores de las empresas de radio
+y televisión, o quienes los representen, así como quienes usen el tiempo
+de esas empresas para radiodifusiones, tienen la obligación ineludible de
+vigilar las radiodifusiones y proceder con previsión y prudencia al
+hacerlas y al permitir el uso de sus medios informativos a personas
+ajenas a la empresa, para evitar la comisión de delitos contra el honor
+de las personas. Ellos serán penalmente responsables de acuerdo con las
+disposiciones del Código Penal por todas las informaciones y opiniones
+que se difundan cuando sean injuriosas o calumniosas. Sin embargo,
+estarán exentos de responsabilidad cuando, de acuerdo con la premura con
+que se da una información o las circunstancias en que ésta se produce, se
+revele que el empresario no conoció ni estuvo en condiciones de impedir
+que se produzca el hecho o expresión injuriosas, o calumniosos.
+(Así reformado por el artículo 1º de la ley No. 3981 de 2 de
+noviembre de 1967)
