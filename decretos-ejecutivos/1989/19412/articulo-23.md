@@ -1,0 +1,1 @@
+Artículo 23.—La precedencia de los estudiantes estará determinada, durante el primer semestre por la nota obtenida en el examen de admisión al Instituto. Durante el resto de sus estudios, la precedencia estará determinada por su rendimiento académico.

@@ -1,0 +1,1 @@
+Artículo 17.—El examen de admisión se realizará anualmente y tiene por objeto verificar si los postulantes poseen los conocimientos generales y el discernimiento suficiente para cursar con buen éxito sus estudios y desempeñarse con eficacia en la profesión diplomática.
