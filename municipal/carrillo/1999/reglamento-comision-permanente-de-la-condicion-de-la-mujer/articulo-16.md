@@ -1,0 +1,2 @@
+Artículo 16.-Todos los miembros del Concejo están obligados a participar en la Comisión cuando fueren designados por el Presidente del Concejo; de existir alguna imposibilidad para participar en la misma, solicitarán por escrito su exclusión al Presidente dando las razones del caso. La Presidencia tomará la determinación sobre la permanencia o exclusión de la Regidora o Síndica. Rige a partir de su publicación.
+Filadelfia, Guanacaste, 9 de noviembre de 1999.

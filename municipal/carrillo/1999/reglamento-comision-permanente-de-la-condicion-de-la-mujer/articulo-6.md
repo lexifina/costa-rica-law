@@ -1,0 +1,3 @@
+CAPITULO III
+Del nombramiento de la Comisión
+Artículo 6°-Esta Comisión estará integrada por tres o más miembros representantes de las fracciones políticas presentes en el Concejo, designadas por el Presidente, dos de éstas deberán escogerse necesariamente dentro de los/as Regidores/as, Síndicos/as Propietarios/as y Suplentes. Los/as funcionarios/as municipales podrán ser parte de la Comisión y cualquier líder comunal. Los asesores que se nombren formarán parte de ]a Comisión con voz y voto. El Presidente Municipal deberá realizar la juramentación solemne y formal de todos los integrantes de la Comisión, en sesión previa al inicio de sus funciones y en presencia de una representante del Instituto Nacional de las Mujeres.
