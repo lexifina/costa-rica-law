@@ -14,3 +14,4 @@ Reglamento a la Ley de Protección Fitosanitaria.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-22 | la propia norma |
+| 2 | 1998-06-16 | Decreto Ejecutivo 27154 (1998-06-16) |
