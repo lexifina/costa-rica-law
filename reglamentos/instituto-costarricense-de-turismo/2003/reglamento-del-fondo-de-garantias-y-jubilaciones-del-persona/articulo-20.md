@@ -1,0 +1,1 @@
+Artículo 20.—De la conformación de la Junta Administradora. En la primera sesión de la Junta Administradora, ese órgano designará, por medio de votación entre sus miembros los cargos de Presidente, Vicepresidente, Secretario, Tesorero y Vocales.

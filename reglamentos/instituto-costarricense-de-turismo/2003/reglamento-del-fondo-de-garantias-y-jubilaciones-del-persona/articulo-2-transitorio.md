@@ -1,0 +1,1 @@
+Transitorio II.—Redistribución de fondos mutual y póliza acumulada. Las sumas acumuladas en las cuentas del fondo de mutualidad y en la póliza, serán trasladadas a las cuentas individuales de aporte obrero y aporte patronal de cada afiliado, en una proporción de 37.5%, y 62.5%, respectivamente 3.

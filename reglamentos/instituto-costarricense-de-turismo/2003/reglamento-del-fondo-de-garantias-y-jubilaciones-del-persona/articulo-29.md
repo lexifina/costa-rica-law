@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Inversión del Fondo
+Artículo 29.—Inversiones. Los recursos del Fondo deben invertirse procurando equilibrio entre seguridad, liquidez y la mayor rentabilidad posible, según su finalidad y respetando los límites establecidos por la ley, las normas reglamentarias dictadas al efecto, las directrices que sobre el particular dicte la SUPEN, así como los lineamientos establecidos en el Capítulo III, Secciones II, III y IV del "Reglamento para la Regulación de los Sistemas de Pensiones Complementarias, Creados por Ley Especial o Convención Colectiva y los Regímenes Públicos Sustitutos del Régimen de Invalidez, Vejez y Muerte".

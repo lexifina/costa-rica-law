@@ -1,0 +1,1 @@
+Artículo 16.—Del quórum. El quórum de la Asamblea General Ordinaria o Extraordinaria lo formará la mitad más uno de los afiliados. Sin embargo, cuando el quórum no pudiera integrarse la primera vez, la Junta Administradora podrá convocar a una segunda asamblea treinta minutos después con cualquier cantidad de afiliados presentes.
