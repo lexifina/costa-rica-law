@@ -1,0 +1,1 @@
+Artículo 3°-La violación a las disposiciones establecidas en este Decreto, serán sancionadas según lo dispuesto en la Ley de Sanidad vegetal, la Ley General de Salud y demás disposiciones reglamentarias conexas.

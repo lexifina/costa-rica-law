@@ -1,0 +1,1 @@
+Artículo 2°-Los Ministerio de Agricultura y Ganadería, de Salud y de Trabajo y Seguridad Social, en sus respectivos campos de competencia y a través de las instancias correspondientes, velarán por el cumplimiento de las disposiciones contempladas en el presente Decreto.
