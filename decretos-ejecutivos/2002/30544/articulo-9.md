@@ -1,0 +1,1 @@
+Artículo 9º—La Unidad Especial de Intervención gestionará lo pertinente para capacitar a todos los funcionarios que deban desempeñar funciones de protección a los miembros de los Supremos Poderes y Dignatarios que visiten el país.

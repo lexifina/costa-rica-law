@@ -1,0 +1,1 @@
+Artículo 8º—Aquellos funcionarios del Ministerio de Seguridad Pública asignados a la Unidad Especial de Intervención, en virtud de Convenio, podrán ser llamados a prestar sus servicios en la Fuerza Pública, en casos de emergencia o conmoción pública.
