@@ -1,0 +1,3 @@
+CAPÍTULO 2
+Venta de servicios profesionales autónomos por hora
+El odontólogo podrá vender sus servicios profesionales a terceros, siempre que no exista una relación laboral, entendiéndose que existe total autonomía por parte del odontólogo. Para que una venta de servicios profesionales califique como tal, no deberá existir ningún tipo de subordinación por parte del odontólogo hacia terceros. Se establece como tarifa mínima un piso de ¢3.800,00 por hora (tres mil ochocientos colones por hora). Cualquier contrato, pacto o relación de venta de servicios que fije en condiciones inferiores a las establecidas en este capítulo, se tendrá como una falta a la solidaridad colegial, y el odontólogo sufrirá las sanciones disciplinarias que correspondan.
