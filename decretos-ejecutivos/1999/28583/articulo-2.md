@@ -1,0 +1,6 @@
+Artículo 2°-Modificase los artículos 7°, 8° y 11 del Decreto Ejecutivo N° 14670-T del 11 de julio de 1983 y sus reformas para que se lean de la siguiente forma:
+"Artículo 7°-El Departamento Administrativo podrá delegar los fondos de trabajo que sean necesarios, pero su cuantía no podrá exceder de ¢ 30.000,00 (treinta mil colones) y la operación deberá ser determinada mediante reglamentación interna."
+"Artículo 8°-Todo pago que se efectúe con fondos de la Caja Chica deberá ser mediante cheque, amparado a la correspondiente factura o justificante.
+En todo cheque debe constar el nombre de la persona física o jurídica de cuya orden se dispone hacer el pago; no se podrán extender cheques al portador.
+Para atender los pagos menores a ¢ 5.000,00 (cinco mil colones) que no justifiquen la extensión de cheques se mantendrán los fondos en efectivo necesarios que se autorizan en el artículo 7° de este Reglamento, los que nunca excederán a los ¢ 30.000,00."
+"Artículo 12°-Los adelantos de dinero para imprevistos en las giras que realizan los funcionarios del Instituto Geográfico Nacional, se harán mediante solicitud escrita firmada por el funcionario gestionante y por el Jefe del Departamento respectivo, indicándose con claridad a nombre de quién se hace el adelanto, la gira que debe realizarse y su monto, que en ningún caso podrá exceder de ¢ 30.000,00."
