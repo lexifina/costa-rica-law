@@ -1,0 +1,2 @@
+Artículo 17.- Suspensión del proceso
+El ente que otorgue la concesión o el permiso podrá suspender el proceso de otorgamiento de explotación de un servicio público hasta por un plazo de tres meses, cuando se demuestre un posible perjuicio grave sobre los recursos naturales, previo criterio del Ministerio del Ambiente y Energía. Dentro de este plazo, el solicitante podrá proponer un proyecto alternativo; de lo contrario, la solicitud se tendrá pordenegada.

@@ -1,0 +1,4 @@
+Artículo 31.- Fijación de precios, tarifas o tasas
+Para fijar precios, tarifas y tasas de los servicios públicos, la Autoridad Reguladora tomará en cuenta las estructuras productivas modelo para cada servicio público, según el desarrollo del conocimiento, la tecnología, las posibilidades del servicio, la actividad de que se trate y el tamaño de las empresas prestatarias. En este último caso, se procurará fomentar la pequeña y la mediana empresa. Si existe imposibilidad comprobada para aplicar este procedimiento, se considerará la situación particular de cada empresa.
+Los criterios de equidad social, sostenibilidad ambiental, conservación de energía y eficiencia económica definidos en el Plan Nacional de Desarrollo, deberán ser elementos centrales para fijar precios, tarifas y tasas de los servicios públicos.
+No se permitirán fijaciones que atenten contra el equilibrio financiero de las entidades prestatarias del servicio público.

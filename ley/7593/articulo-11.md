@@ -1,0 +1,2 @@
+Artículo 11.- Establecimiento de derechos y obligaciones
+En la concesión o el permiso se establecerán los derechos y las obligaciones de los prestatarios, a fin de no perjudicar el uso de los bienes nacionales ni los derechos de terceros legalmente adquiridos, sin perjuicio de lo dispuesto en el artículo 13 de esta ley. Cuando se trate de parámetros ambientales se usarán los contemplados en las leyes específicas.
