@@ -1,0 +1,1 @@
+Artículo 4º—El Poder Ejecutivo deberá procurar que queden comprendidos. en el compromiso absolutamente todos los extremos que posteriormente pudieran alegarse como violados con la disposición del artículo 1º de la ley Nº 2802 citada que interesa, a fin de lograr una decisión con el carácter de cosa juzgada en todos, los aspectos de los contratos y la indicada disposición.

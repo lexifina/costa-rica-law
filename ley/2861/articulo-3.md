@@ -1,0 +1,1 @@
+Artículo 3º—El compromiso arbitral y la escogencia del Tribunal de Arbitraje, deberán quedar preparado el primero y señalado el segundo, dentro de un término no mayor de 'tres meses contados a partir de la vigencia de esta ley.
