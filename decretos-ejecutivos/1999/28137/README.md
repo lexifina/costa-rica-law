@@ -14,3 +14,4 @@ Crea Distritos Llanuras del Gaspar y Cureña del Cantón de Sarapiquí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-11 | la propia norma |
+| 2 | 1999-10-11 | Ley 7 |
