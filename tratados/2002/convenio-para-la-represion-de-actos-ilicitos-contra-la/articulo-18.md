@@ -1,0 +1,3 @@
+ARTÍCULO 18
+1.- El presente Convenio entrará en vigor noventa días después de la fecha en que quince Estados lo hayan firmado sin reserva en cuanto a ratificación, aceptación o aprobación o hayan depositado el oportuno instrumento de ratificación, aceptación, aprobación o adhesión.
+2.- Para un Estado que deposite un instrumento de ratificación, aceptación, aprobación o adhesión respecto del presente Convenio una vez satisfechas las condiciones para la entrada en vigor de éste, la ratificación, aceptación, aprobación o adhesión surtirá efecto noventa días después de la fecha en que se haya efectuado tal depósito.

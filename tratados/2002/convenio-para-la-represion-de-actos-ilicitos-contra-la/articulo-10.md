@@ -1,0 +1,4 @@
+ARTÍCULO 10
+1.- El Estado Parte en cuyo territorio sea hallado el delincuente o presunto delincuente, en los casos a los que es aplicable el artículo 6º, si no procede a la extradición del mismo, someterá sin dilación el caso a sus autoridades competentes a efectos de enjuiciamiento, mediante el procedimiento judicial acorde con la legislación de dicho Estado, sin excepción alguna y con independencia de que el delito haya sido o no cometido en su territorio.
+Dichas autoridades tomarán su decisión en las mismas condiciones que las aplicables a cualquier otro delito de naturaleza grave, de acuerdo con la legislación de dicho Estado.
+2.- Toda persona encausada en relación con cualquiera de los delitos enunciados en el artículo 3 recibirá garantías de un trato justo en todas las fases del procedimiento, incluido el disfrute de todos los derechos y garantías estipulados. para dicho procedimiento en la legislación del Estado del territorio en que se halla.
