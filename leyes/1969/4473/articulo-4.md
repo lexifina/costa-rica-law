@@ -1,1 +1,1 @@
-Artículo 4º.- No gozarán del beneficio a que aluden los artículos 2º y 3º anteriores, los que en la tramitación de sus expedientes hayan actuado de mala fe, presentando documentos que necesariamente debían reputar de falsos en su contenido, o a quienes se haya otorgado el beneficio en flagrante violación de la ley.
+Artículo 4º.-(Derogado por el artículo 1° de la ley N° 4572 del 30 de abril de 1970)
