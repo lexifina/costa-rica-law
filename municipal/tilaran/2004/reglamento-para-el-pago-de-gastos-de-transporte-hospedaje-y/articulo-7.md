@@ -1,0 +1,1 @@
+Artículo 7°—Se pagarán únicamente gastos de hospedajes, a los señores Regidores y Síndicos, que residan muy lejos de la sede municipal y que obligado deben quedarse a dormir en el centro de Tilarán, una vez finalizada la sesión y siempre que no sea posible transportarse en taxi en cuyo caso se reconocerá este gasto.

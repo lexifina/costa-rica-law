@@ -1,0 +1,1 @@
+Artículo 12.—Las tarifas por transporte, hospedaje y alimentación, serán ajustadas cuando así lo autorice la Contraloría General de la República o la Autoridad Reguladora de los Servicios Públicos en cuanto al valor del pasaje del autobús, en caso de no haber transporte público (autobús) y deba trasladarse en taxi se reconocerá el valor del pasaje en autobús.

@@ -1,0 +1,1 @@
+Artículo 3°—Los Regidores y Síndicos, que podrán hacer uso de estos beneficios, son aquellos que habiten a diez o más kilómetros de la Sede Municipal y que deban trasladarse para asistir a las sesiones del Concejo Municipal o bien al terminar las sesiones especialmente por la dificultad del transporte público de buses.

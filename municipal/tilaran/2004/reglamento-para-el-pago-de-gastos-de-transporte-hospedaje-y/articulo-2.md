@@ -1,0 +1,1 @@
+Artículo 2°—El presente Reglamento establece las disposiciones generales, a que deberán someterse las erogaciones, que por concepto de transporte, hospedaje y alimentación, deban realizar los Regidores y Síndicos, con el propósito de asistir a las sesiones del Concejo Municipal.
