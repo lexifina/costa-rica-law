@@ -1,0 +1,10 @@
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RECURSOS NATURALES, ENERGÍA Y MINAS,
+En uso de las facultades que les confiere el artículo 140 de la Constitución Política y de conformidad con lo señalado en los artículos 10 y 17 de la Ley de Conservación de la Fauna Silvestre N° 6919 del 17 de noviembre de 1984 y el artículo 17, inciso c) del Reglamento de la Ley de Conservación de la Fauna Silvestre , decreto N° 15403 del 28 de mayo de 1984.
+Considerando:
+1 °—Que el Refugio Nacional de Vida Silvestre Caño Negro, tiene como filosofía el uso sostenible de los recursos naturales renovables en la zona, mediante programas de conservación y desarrollo de los recursos naturales.
+2°—Que las poblaciones de animales silvestres en vías de extinción, son manejadas con criterios de conservación y uso racional, basados en estudios que demuestran su compatibilidad.
+3°—Que en la laguna de Caño Negro, por efecto de los cambios estacionales y por el proceso de sedimentación, durante los meses de febrero, marzo, abril y mayo se forman lagunetas que interrumpen la comunicación con el río, los cuales se secan por el proceso de evaporación aprisionando y muriendo grandes cantidades de peces (gaspares, guapotes, mojarras y otros).
+4°—Que la mayoría de la población vecina al refugio vive en-condiciones socioeconómicas de extrema pobreza y sus familias son muy numerosas; estos problemas se deben a la falta de tierra, al limitado acceso a bienes e insumes productivos, a la gran escasez de fuentes de trabajo y a la carencia de servicios básicos. Por tanto,
+DECRETAN:
+Artículo 1°—Se autoriza a la Administración del Refugio Nacional de Vida Silvestre Cano Negro, para que paralelamente a la realización de las investigaciones y siguiendo las recomendaciones de los técnicos del refugio, otorgue permisos a las personas de escasos recursos de las comunidades vecinas del citado refugio, para que colecten con fines de subsistencia, aquellos peces que queden atrapados en las lagunetas que se forman aisladas del Caño Principal de la Laguna de Caño Negro, por efecto de los cambios estacionales y la sedimentación.
