@@ -3,3 +3,4 @@ Tratándose de la labor de propaganda por la prensa, radio, televisión, folleto
 (Así adicionado por el artículo 2° de la ley N° 4341 del 3 de junio de 1969)
 (Así reformado por el artículo 1° de la ley N° 6090 del 7 de octubre de 1977)
 (La Sala Constitucional mediante resolución N° 2659 del 04 de abril del 2001, restableció el texto de este artículo, conforme a texto anterior a reforma efectuada por el artículo 83 de la Ley 6975 del 30 de noviembre de 1984.)
+(Nota de Sinalevi: Mediante resolución N° 1104 del 19 de junio de 2002, el Tribunal Supremo de Elecciones interpretó que las disposiciones de este artículo, se aplican al proceso de elección de alcaldes, síndicos y concejales de distrito)
