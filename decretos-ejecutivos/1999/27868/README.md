@@ -13,3 +13,4 @@ Declara de Interés Cultural Gira Compañía Folklórica Matambú a ItaliaDel 13
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-18 | la propia norma |
+| 2 | 1999-05-18 | SINALEVI (sin norma nombrada) |
