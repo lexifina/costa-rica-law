@@ -14,3 +14,4 @@ Reforma al Reglamento para el Uso de Vehículos del Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-06 | la propia norma |
+| 2 | 1998-03-06 | Ley 8 |
