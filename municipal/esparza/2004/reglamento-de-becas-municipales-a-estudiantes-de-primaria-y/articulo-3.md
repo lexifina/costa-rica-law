@@ -1,0 +1,1 @@
+Artículo 3º—Una vez asignado el número de becas por centro educativo, se le solicitará al Director de cada escuela o Liceo, al presidente de la Junta de Educación, presidente del Patronato y presidente de la Junta Administrativa el nombramiento de los estudiantes que recibirán las becas, con base en los requisitos y formularios que se entregarán.

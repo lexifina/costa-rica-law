@@ -1,0 +1,1 @@
+Artículo 5º—El Concejo Municipal conformará una comisión especial para revisar el cumplimiento de los requisitos establecidos en cada una de las solicitudes remitidas por los centros educativos. Esta comisión emitirá un informe sobre las solicitudes en regla, las cuales se aprobarán por el Concejo.

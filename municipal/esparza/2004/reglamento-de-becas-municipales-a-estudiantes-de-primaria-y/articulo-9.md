@@ -1,0 +1,1 @@
+Artículo 9º—El reglamento deroga el acuerdo del Concejo Municipal en Sesión Ordinaria Nº 42, según Artículo Nº 4 del Capítulo III, efectuado el 21 de febrero de 2000, publicado en La Gaceta Nº 71 del lunes 10 de abril de 2000.

@@ -1,0 +1,1 @@
+Artículo 7º—La Tesorería Municipal hará efectivo el beneficio de la forma más conveniente para el becario y la corporación Municipal, sea mediante depósito a una cuenta de ahorro en el Banco Nacional u otra institución financiera supervisada por la SUGEF o en efectivo mediante un recibo de dinero del Beneficiario.
