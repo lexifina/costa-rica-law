@@ -1,0 +1,1 @@
+Artículo 5°—Las contrataciones para adquisición de bienes y servicios que se promuevan con Adelanto de Fondos, deberán respaldarse en las disposiciones de la Ley de Contratación Administrativa, su reglamento y el Reglamento General de Proveeduría, pudiendo tomarse, a juicio de la Administración, una póliza de seguro para dinero en tránsito.

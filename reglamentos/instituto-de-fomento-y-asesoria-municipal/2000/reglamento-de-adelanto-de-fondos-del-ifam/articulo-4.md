@@ -1,0 +1,1 @@
+Artículo 4°—El monto que se autorice por este concepto de Adelanto de Fondos no será superior a un millón de colones. Este tope podrá ser aumentando anualmente mediante acuerdo de junta directiva previo estudio económico que rendirá la administración para tal efecto.
