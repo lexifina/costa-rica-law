@@ -1,0 +1,1 @@
+Artículo 7°-Obligaciones de construcción en la vía pública. De acuerdo con la normativa vigente es obligación del propietario construir la acera, caños con cuneta, o reconstruir las existentes de la o las calles a la cual enfrenta el proyecto. Las rampas para entrada de vehículos no deberán entorpecer ni hacer molesto el área de tránsito peatonal.
