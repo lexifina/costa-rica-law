@@ -13,3 +13,4 @@ Reglamento Uniforme Unico Tercer Ciclo y Educación Diversificada
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-02-04 | la propia norma |
+| 2 | 1987-02-04 | SINALEVI (sin norma nombrada) |
