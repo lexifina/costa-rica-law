@@ -1,6 +1,6 @@
 Artículo 6º.- Son deberes de la Junta Directiva:
-a) Convocar las Asambleas Ordinarias y Extraordinarias, por lo menos con
-ocho días de anticipación, publicando el respectivo aviso en dos
+a) Convocar las Asambleas Ordinarias y Extraordinarias, por lo menos
+con ocho días de anticipación, publicando el respectivo aviso en dos
 periódicos de mayor circulación, indicando agenda, fecha, hora y lugar de
 la reunión;
 b) Representar oficialmente al Colegio en todos los actos en que ello
@@ -20,8 +20,9 @@ Asamblea General en el mes de setiembre, para que rija a partir de marzo
 del año siguiente;
 h) Elevar a la Asamblea General los recursos de apelación interpuesta a
 sus resoluciones, en la sesión ordinaria siguiente;
-i) Recomendar a la Asamblea General, la expulsión de aquellos colegiados
-que se hicieran acreedores a esa sanción, mediante exposición razonada;
-j) Nombrar y remover libremente, a propuesta del Presidente, el personal
-administrativo; y
+i) Recomendar a la Asamblea General, la expulsión de aquellos
+colegiados que se hicieran acreedores a esa sanción, mediante exposición
+razonada;
+j) Nombrar y remover libremente, a propuesta del Presidente, el
+personal administrativo; y
 k) Las otras que le señalen la presente ley y sus reglamentos.

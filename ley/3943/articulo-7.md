@@ -6,8 +6,8 @@ b) Ejecutar los acuerdos de la Junta Directiva y los que le encomiende
 la Asamblea General;
 c) Presidir las sesiones y proponer el orden en que deben tratarse los
 asuntos;
-d) Nombrar las comisiones que hayan de ser desempeñadas por miembros del
-Colegio;
+d) Nombrar las comisiones que hayan de ser desempeñadas por miembros
+del Colegio;
 e) Autorizar los gastos de conformidad con los presupuestos del Colegio;
 f) Refrendar con su firma los cheques que se giren contra las cuentas
 del Colegio;
