@@ -1,0 +1,1 @@
+Transitorio III.—Hasta que la ARESEP no fije los estándares aeroportuarios a los que se refiere el presente reglamento, son de aplicación y acatamiento obligatorio para los aeropuertos los establecidos por la OACI, IATA y la Convención de Chicago, conforme la cate; establecida para cada uno de ellos cuando entre en vigencia el presente reglamento.

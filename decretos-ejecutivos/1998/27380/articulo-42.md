@@ -1,0 +1,2 @@
+Artículo 42.—Plazo para subsanar el descenso de los mínimos de calidad del servicio.
+Si la ARESEP determinare que el servicio no se presta con los niveles mínimos de calidad, la ARESEP le concederá al prestatario del servicio, un plazo razonable para que subsane lo que corresponda. Si el prestatario del servicio no hubiese tomado las medidas pertinente plazo conferido, la ARESEP aplicará las sanciones señaladas en la Ley en este reglamento;

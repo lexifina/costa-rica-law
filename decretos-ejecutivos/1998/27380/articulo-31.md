@@ -1,0 +1,2 @@
+Artículo 31.—Obligación del prestatario de mantener la calificación asignada al aeropuerto.
+Los prestatarios de los servicios en los aeropuertos internacionales están obligados a mantener como mínimo, la calificación que tenga asignada el aeropuerto de que se trate, al entrar en vigencia el presente reglamento, procurando mejorarla de conformidad con los parámetros y estándares internacionales, homologados por la ARESEP.

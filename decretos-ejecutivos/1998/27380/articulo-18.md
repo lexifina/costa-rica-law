@@ -1,0 +1,2 @@
+Artículo 18.—Trámite de las peticiones tarifarías.
+Una vez establecida la procedencia y la oportunidad de iniciar el trámite o en los casos de iniciativa de oficio por parte de la ARESEP. Se tramitará la revisión tarifaria utilizando los procedimientos contenidos en la Ley, su reglamento, el presente reglamento y el procedimiento establecido en el Libro Segundo de la Ley General de la Administración Pública.

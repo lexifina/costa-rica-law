@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+Transitorio I.—El factor de eficiencia (valor X) para aplicaren año será definido por el prestatario del servicio y la ARESEP en un máximo de seis meses a partir de la entrada en vigencia del presente reglamento; con excepción de aquellos casos en los que la aplicación plazos del factor de eficiencia hayan sido previamente establecidos por concurso público debidamente adjudicado, en los que prevalecerá esté último.

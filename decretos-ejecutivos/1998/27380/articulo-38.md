@@ -1,0 +1,2 @@
+Artículo 38.—Inspecciones.
+La ARESEP podrá realizar inspecciones en las instalaciones de los distintos aeropuertos, cuando lo considere pertinente, y podrá hacerse acompañar de los representantes de distintos órganos o instituciones del gobierno que considere conveniente. No será necesaria la notificación previa de la realización de la inspección ni al prestatario del servicio ni a cualquier contratista de este. Dichas inspecciones deberán ser efectuadas con una periodicidad mínima de un año.

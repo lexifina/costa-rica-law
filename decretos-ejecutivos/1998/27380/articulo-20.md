@@ -1,0 +1,2 @@
+Artículo 20.—Contenido de las resoluciones.
+Las resoluciones que dicte el Regulador General, o en su caso la Junta Directiva, deben hacer referencia a todos los hechos que consten en los autos y a las normas jurídicas que sustenten la decisión. La parte dispositiva de la resolución precisara e individualizará el mandato que proceda y quién debe cumplirlo, y el momento del cumplimiento. Si existiere mas de un obligado deberá precisarse que parte del mandato corresponde a cada uno.

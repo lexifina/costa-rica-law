@@ -1,0 +1,2 @@
+Artículo 47.—Cierre de empresas reguladas por la ARESEP.
+La ARESEP procederá a ordenar, mediante resolución administrativa, el cierre inmediato de las empresas que utilicen autorización los servicios públicos o que sean proveedoras de un servicio sin contar con la respectiva concesión o permiso. Igualmente, removerá cualquier equipo o instrumento que permita el uso abusivo o ilegal de servicios regulados. Para ello podrá contar con la ayuda de la fuerza pública.

@@ -1,0 +1,2 @@
+Artículo 34.—Propuesta para cumplir con los estándares.
+Si en el aeropuerto no se cumplieran los estándares establecidos, el prestatario del servicio, si es la D.G.A.C., presentará una propuesta por escrito y debidamente fundamentada a la ARESEP para su aprobación. La ARESEP contará con un plazo máximo de sesenta días naturales para pronunciarse. Si el prestatario no es la D.G.A.C., la propuesta será presentada ante dicha Dirección General, que tendrá el mismo plazo para resolver.

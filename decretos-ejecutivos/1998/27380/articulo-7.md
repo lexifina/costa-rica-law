@@ -1,0 +1,2 @@
+Artículo 7°—Moneda en que se expresan los valores para los servicios aéreos.
+Los valores para los servicios aéreos en los aeropuertos nacionales establecidos en el pliego tarifario, serán expresados en Dólares, moneda de los Estados Unidos de América, y los usuarios podrán pagar el equivalente en Colones al tipo de cambio establecido por el Banco Central de Costa Rica y vigente a la fecha en que se realice el pago.
