@@ -1,1 +1,1 @@
-Artículo 137.—Los bonos amortizados serán incinerados trimestralmente dejando constancia de los pormenores en acta llevada con intervención del Superintendente de Bancos.
+Artículo 137.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

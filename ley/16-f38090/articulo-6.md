@@ -1,4 +1,3 @@
 CAPITULO II
 ADMINISTRACIÓN
-Artículo 6°— El Banco será administrado por una Junta Directiva General—llamada en adelante la Junta—, integrada por cinco miembros propietarios y cuatro suplentes, todos de nombramiento del Poder Ejecutivo.
-Los suplentes repondrán a los propietarios en sus ausencias temporales.
+Artículo 6°— (Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

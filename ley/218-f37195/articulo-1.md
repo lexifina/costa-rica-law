@@ -1,4 +1,5 @@
 N° 218
+(Nota de Sinalevi: Mediante el artículo N° 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional", se ordena derogar la presente ley en lo conducente)
 LA JUNTA FUNDADORA DE LA SEGUNDA REPÚBLICA
 Considerando:
 Que en los últimos años no ha habido en el país crédito suficiente de largo plazo, que permitiera hacer mejoras reproductivas en las explotaciones agrícolas, ganaderas e industriales, que necesitan esa clase de crédito para desarrollarse.

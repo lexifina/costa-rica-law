@@ -1,2 +1,1 @@
-Artículo 123.- EL Departamento Hipotecario podrá emitir bonos hipotecarios por el monto anual que determine la Junta, con aprobación del Consejo y en vista de la situación del mercado de capitales y del desarrollo de la economía nacional.
-(Así reformado por el artículo 1° de la ley N° 828 del 13 de diciembre de 1946)
+Artículo 123.-(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

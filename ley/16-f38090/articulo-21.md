@@ -1,4 +1,3 @@
 CAPITULO III
 CAPITAL Y RESERVAS
-Artículo 21.—El capital del Banco será la suma de cincuenta y ocho millones de colones, que se integrarán así: dos millones noventa mil colones, que corresponden al capital inicial del Banco Internacional de Costa Rica; siete millones novecientos diez mil colones, tomados de los fondos de reserva del mismo Banco; dieciocho millones de colones, aportados mediante la emisión de "Bonos de Capitalización del Banco Nacional de Costa Rica"; diez millones de colones, tomados de la reserva para gastos de emisión del Departamento Emisor y veinte millones de colones que sé aportarán mediante la emisión de "Bonos Refundición Deudas Bancarias", conforme a bis disposiciones de la ley respectiva.
-(Así reformado por el artículo 2° de la ley N° 218 del 13 de octubre de 1948)
+Artículo 21.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

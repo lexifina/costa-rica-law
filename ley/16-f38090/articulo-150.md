@@ -1,1 +1,1 @@
-Artículo 150.—Los bonos de prenda serán pagados a la par, a su vencimiento.
+Artículo 150.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

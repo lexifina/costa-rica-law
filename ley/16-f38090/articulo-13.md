@@ -1,2 +1,1 @@
-Artículo 13.—Los miembros de la Junta, incluso los suplentes serán designados para un período de cuatro años, pudiendo ser reelectos.
-En los casos de nueva designación de miembros propietarios, el Poder Ejecutivo procurará dar preferencia a los suplentes.
+Artículo 13.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

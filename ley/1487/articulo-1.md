@@ -1,4 +1,6 @@
+(Derogado)
 N° 1487
+(Esta ley fue derogada por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 Decreta:
 Artículo 1º.- Refórmanse los artículos 99, 104, 106, 107, 109, 117 y 121 de la Ley Orgánica del Banco Nacional de Costa Rica, que se leerán así:

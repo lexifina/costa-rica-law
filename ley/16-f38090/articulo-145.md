@@ -1,1 +1,1 @@
-Artículo 145.—El Banco llevará un registro separado para cada serie de bonos, en que se anotará: el producto de la emisión, los préstamos en que ha sido colocado, los bienes dados en garantía y modificaciones que experimenten, las sumas recibidas en pago de intereses y amortización, y los atrasos ocurridos en el pago de dichas obligaciones.
+Artículo 145.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

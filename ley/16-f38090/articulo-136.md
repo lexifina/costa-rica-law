@@ -1,1 +1,1 @@
-Artículo 136.—El Departamento procederá en la misma forma, comprando y amortizando bonos, en los casos de adjudicación de un inmueble, el cual, mientras esté en poder del Departamento, pasará a figurar como una inversión de su fondo de reserva.
+Artículo 136.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

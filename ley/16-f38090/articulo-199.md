@@ -1,1 +1,1 @@
-Artículo 199.—En la ley N° 5 del 15 de octubre de 1934, sobre Almacenes Generales de Depósito, así como en el decreto ejecutivo N° 15 del 4 de abril de 1935, que reglamentó la ley anterior, se tendrá por sustituido el término "bono de prenda", dondequiera que aparezca, por el término "vale de prenda".
+Artículo 199.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

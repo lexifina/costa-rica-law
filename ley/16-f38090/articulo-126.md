@@ -1,1 +1,1 @@
-Artículo 126.—Los bonos hipotecarios se admitirán como garantía para las operaciones a que se refieren los párrafos segundos de los incisos 1) y 2) del artículo 85 de esta ley, así como para todos los casos en que las leyes exijan fianza.
+Artículo 126.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

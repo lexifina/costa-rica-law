@@ -1,1 +1,1 @@
-Artículo 164.—Se destinará a fondo de reserva legal de este Departamento, el remanente de los fondos a que se refiere el artículo 22 de esta ley, una vez deducidos los que se destinan al Departamento Emisor y al Departamento Hipotecario.
+Artículo 164.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

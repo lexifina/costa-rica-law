@@ -1,1 +1,1 @@
-Artículo 11.—La Junta elegirá de su seno, por mayoría de votos, un Presidente, y un Vicepresidente que repondrá al primero en caso de ausencia o impedimento transitorios.
+Artículo 11.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

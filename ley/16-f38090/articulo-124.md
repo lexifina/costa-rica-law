@@ -1,2 +1,1 @@
-Artículo 124.-—Ningún bono hipotecario podrá emitirse sin ser antes anotado en el Registro que llevará la Superintendencia de Bancos; y ésta sólo hará la anotación en vista de la respectiva escritura hipotecaria.
-Los bonos serán sellados y firmados en facsímil por el Superintendente.
+Artículo 124.-—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

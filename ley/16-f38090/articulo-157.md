@@ -1,1 +1,1 @@
-Artículo 157.—Las operaciones hipotecarias y de crédito a largo plazo efectuadas por el Banco Internacional con fondos provenientes de la emisión de las cédulas mencionadas, serán amortizadas o canceladas en la forma que estipulan los respectivos contratos de préstamo.
+Artículo 157.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

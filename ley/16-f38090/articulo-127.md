@@ -1,1 +1,1 @@
-Artículo 127.—Los bonos hipotecarios y sus cupones estarán libres de todo impuesto, presente o futuro.
+Artículo 127.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

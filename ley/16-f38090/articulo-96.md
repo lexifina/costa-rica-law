@@ -1,1 +1,1 @@
-Artículo 96. — De las reservas a que se refiere el articulo 22 de esta ley, se destinará a fondo de reserva legal del Departamento hipotecario, la suma de dos millones quinientos mil colones (¢ 2.500,000.00).
+Artículo 96. — (Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

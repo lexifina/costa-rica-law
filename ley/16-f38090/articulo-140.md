@@ -1,1 +1,1 @@
-Artículo 140.—Ninguna serie podrá emitirse sin previa aprobación de la Junta, por no menos de cuatro votos. La Junta determinará también las operaciones a que se destinará el producto de la emisión. Cada emisión necesitará la autorización por escrito del Superintendente de Bancos.
+Artículo 140.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

@@ -1,1 +1,1 @@
-Artículo 183.—El pago del principal e intereses de los préstamos podrá ser pactado por cuotas, en períodos no inferiores a un mes. No obstante, los préstamos podrán ser cancelados por el prestatario, parcial o totalmente, antes del vencimiento estipulado en el contrato.
+Artículo 183.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

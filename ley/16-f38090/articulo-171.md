@@ -1,1 +1,1 @@
-Artículo 171.—Fuera de las operaciones indicadas en los artículos anteriores, el Departamento podrá efectuar todas las que estime necesarias para la mejor ejecución y -seguridad de sus negocios, y en beneficio de la economía nacional. Si se tratare de operaciones no previstas en la Ley General de Bancos, deberán ser aprobadas por la Secretaría de Hacienda.
+Artículo 171.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

@@ -1,1 +1,1 @@
-Artículo 135.—En los casos en que la liquidación de una hipoteca produzca pérdida al Departamento, éste la cubrirá comprando en plaza, con sus fondos de reserva, bonos por un monto que corresponda a dicha pérdida. Estos bonos serán amortizados.
+Artículo 135.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")
