@@ -1,0 +1,1 @@
+Artículo 2°.-Aplíquese este Decreto a los daños ocurridos como consecuencia de la precipitación ininterrumpida de fuertes lluvias o vaguadas ocurridas del 04 al 14 de noviembre de 1994 en tales territorios.
