@@ -1,8 +1,8 @@
 ARTICULO 18.- Acceso al expediente y fotocopias
 Autorízase a abogados, estudiantes y egresados de Derecho,
 debidamente identificados, y asistentes de los abogados acreditados en el
-expediente, para revisarlo y fotocopiarlo. El horario para fotocopiar será
-el que rige para el funcionamiento de los tribunales de justicia. Al
+expediente, para revisarlo y fotocopiarlo. El horario para fotocopiar
+será el que rige para el funcionamiento de los tribunales de justicia. Al
 respecto, se prohíbe la imposición de horarios distintos.
 El fotocopiado de documentos y asientos en el Registro Nacional,
 deberá realizarse en el horario de esta entidad. Al respecto, se prohíbe
