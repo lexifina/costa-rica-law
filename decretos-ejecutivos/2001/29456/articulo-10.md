@@ -1,0 +1,1 @@
+Artículo 10.—Los Gafetes de Identificación tendrán una numeración consecutiva y la documentación de sustento se guardará en archivos bajo entera responsabilidad de la Administración del Aeropuerto, quien la mantendrá bajo inventario. Esos archivos estarán sujetos a la libre fiscalización de la Dirección General de Aviación Civil y del Ministerio de Seguridad Pública.

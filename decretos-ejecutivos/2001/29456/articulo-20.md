@@ -1,0 +1,1 @@
+Artículo 20.—El empleado o funcionario que se encuentre en áreas restringidas sin poseer o portar visible el respectivo Gafete de Identificación, será retirado inmediatamente y se le aplicará la sanción que corresponda.

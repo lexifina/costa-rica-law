@@ -1,0 +1,5 @@
+CAPÍTULO X
+Artículo 23.—Transitorio único:
+I- Las empresas concesionarias, permisionarias o poseedoras de un certificado de explotación, otorgados de conformidad con la Ley General de Aviación Civil, las demás dependencias Públicas, así como todos los empleadores de personas que presten servicios permanentes dentro del Aeropuerto coordinarán con la Administración la asistencia al curso de capacitación para la utilización de los Gafetes de Identificación.
+II- A partir del primero de junio del año 2001, únicamente se podrá ingresar y permanecer en las Áreas de Acceso Restringido y Áreas de Seguridad Crítica mediante la portación en lugar visible del respectivo Gafete de Identificación.
+III- Todo documento emitido con anterioridad a la fecha de la orden de inicio del Contrato de Gestión Interesada que permita el acceso a las Áreas de Acceso Restringido y Áreas de Seguridad Crítica perderá su vigencia a partir del primero de junio del año en curso. Los portadores de estos documentos deberán devolverlos a la Administración antes de esa fecha.

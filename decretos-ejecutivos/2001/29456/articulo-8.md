@@ -1,0 +1,1 @@
+Artículo 8º—Los Gafetes de Identificación, tendrán diferentes colores que indicarán las áreas a las cuales se autoriza el acceso. Los Permisos Temporales tendrán una división en casillas donde se indicará mediante el número correspondiente las áreas a las cuales tiene acceso.

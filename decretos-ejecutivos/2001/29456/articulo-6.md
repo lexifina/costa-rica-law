@@ -1,0 +1,1 @@
+Artículo 6º—Si se diere el caso que el Aeropuerto Internacional Juan Santamaría permanezca en estado de emergencia, durante dicho plazo la Unidad Ejecutora de la Comisión Nacional de Emergencia del Aeropuerto, será la única dependencia administrativa competente para autorizar el ingreso a las áreas restringidas del Aeropuerto.

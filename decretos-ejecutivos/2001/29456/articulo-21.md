@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Pago de derechos por expedición de Gafetes
+Artículo 21.—La emisión de Gafetes de Identificación a empleados de empresas aéreas y concesionarios del Aeropuerto, implicará el pago de quince ($15) dólares de los Estados Unidos de América, o su equivalente en colones, al tipo de cambio del día que fije el Banco Central de Costa Rica. El costo de la renovación anual, así como las reposiciones por perdida o deterioro, también correrán a cargo del solicitante. Dicho monto estará sujeto a cambios semestrales o anuales, previa aprobación del Consejo Técnico de Aviación Civil y su debida publicación en el Diario Oficial La Gaceta.
