@@ -1,0 +1,2 @@
+ARTÍCULO 17: De las características técnicas del transmisor.
+Los servicios de Mensajería o busca personas deberán ajustar el funcionamiento técnico de sus transmisores a los requisitos generales indicados para los servicios de radiocomunicación. La potencia máxima para estos servidos será de 100 watts en las bandas de 150 MHz y 400 MHz. y para los que funcionen en la banda de 900 MHz, podrán operar con una potencia máxima de hasta 300 watts.

@@ -1,0 +1,2 @@
+ARTÍCULO 31: Del concepto de aficionado.
+Es aquella persona natural que por interés en las radiocomunicaciones y con espíritu recreativo, estudia, experimenta y practica con equipos de radio, proyectando sus actividades al conocimiento tecnológico, al desarrollo cultural, a las relaciones humanas, a la ayuda comunitaria y que ha obtenido una licencia de acuerdo con los requisitos establecidos en la ley y el reglamento respectivo.

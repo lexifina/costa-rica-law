@@ -1,0 +1,4 @@
+ARTÍCULO 38: Condiciones generales de Operación de todos estos servicios
+i. La operación de estos servicios está condicionada a no causar interferencia perjudicial a otros servicios autorizados a fecha de entrada en vigor el presente Plan. Así mismo debe tolerar la interferencia perjudicial proveniente de otros sistemas autorizados, contra la cual no estará protegido, en el entendido que los servidos de radiocomunicación que funcionen en estas bandas tendrán prioridad.
+ii. Ante una denuncia de interferencia causada por estos servicios y debidamente comprobada, deberá de suspender toda operación y no podrá reanudarse hasta que se haya subsanado la interferencia y sea debidamente comprobado la eliminación de ésta por Control Nacional de Radio.
+iii. En caso de unirse con una interferencia Control Nacional de Radio podrá decomisar mediante solicitud a la autoridad competente.

@@ -1,0 +1,3 @@
+DE LOS SERVICIOS QUE NO REQUIEREN CONCESIÓN
+ARTÍCULO 36: De las propiedades del servicio.
+Estos servicios se caracterizan por utilizar emisiones de muy baja potencia que minimizan la posibilidad de interferencia perjudicial, poseen una notable inmunidad a las interferencias provenientes de emisiones similares con métodos convencionales de modulación y que tales características que permiten mejorar considerablemente la eficiencia en el uso del espectro, y aliviar la congestión de segmentos del mismo destinando grupos de frecuencias para que operen en forma compartida o bien que compartan las frecuencias asignadas mediante sistemas diferentes de modulación.

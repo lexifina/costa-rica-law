@@ -1,0 +1,2 @@
+ARTÍCULO 5 De la explotación de la frecuencia.
+Las frecuencias actualmente asignadas a partir de la vigencia de este Plan, se entenderán concedidas únicamente para la zona de cobertura real, según se determine en los patrones de radiación de las antenas, la banda utilizada y el respectivo expediente administrativo El Poder Ejecutivo podrá reasignar una misma frecuencia en otras zonas donde no se cause interferencia perjudicial a los servicios establecidos.
