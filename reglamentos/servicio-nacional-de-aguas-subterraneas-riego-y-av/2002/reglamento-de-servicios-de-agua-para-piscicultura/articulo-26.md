@@ -1,0 +1,1 @@
+Artículo 26.—Responsabilidad ambiental: El usuario del servicio de agua para piscicultura será responsable por los daños ambientales que provoquen prácticas inadecuadas, mal uso o disposición de aguas de descarga y contaminantes que genere dicha actividad.

@@ -1,0 +1,1 @@
+Artículo 18.—La tarifa por el servicio de agua para piscicultura será pagadera mensualmente, por mes vencido. Las facturas se pondrán al cobro durante la primera quincena del mes inmediato siguiente a la finalización de cada mes y tendrán como fecha de vencimiento el último día hábil de ese mes.

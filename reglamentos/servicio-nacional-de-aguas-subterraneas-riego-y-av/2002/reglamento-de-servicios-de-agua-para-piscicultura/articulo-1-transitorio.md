@@ -1,0 +1,1 @@
+TRANSITORIO: Las disposiciones de este Reglamento no afectarán los compromisos de asignación de caudal en proyectos de piscicultura ya existentes, y regulados mediante Convenios suscritos con anterioridad a la promulgación de esta normativa.

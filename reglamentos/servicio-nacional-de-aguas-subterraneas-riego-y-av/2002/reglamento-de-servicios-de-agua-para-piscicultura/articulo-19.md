@@ -1,0 +1,2 @@
+Artículo 19.—Una vez cumplida la fecha de vencimiento de la factura por servicios de agua para piscicultura, sin que la misma haya sido cancelada por el usuario, la deuda generará un recargo por morosidad del 2,50% mensual, durante el tiempo en que persista esa morosidad.
+Asimismo, el SENARA notificará al usuario que se encuentre en condición de morosidad, otorgando un plazo de 10 días hábiles para que ponga al día la deuda, bajo apercibimiento de que una vez vencido el plazo y de persistir la morosidad, el SENARA suspenderá el servicio por falta de pago.

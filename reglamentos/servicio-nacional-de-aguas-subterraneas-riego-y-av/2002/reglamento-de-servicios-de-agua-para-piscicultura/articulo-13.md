@@ -1,0 +1,1 @@
+Artículo 13.—El SENARA llevará un expediente para cada uno de los usuarios del servicio de agua para piscicultura en el Distrito, en donde se registrará toda la información relevante del servicio brindado.
