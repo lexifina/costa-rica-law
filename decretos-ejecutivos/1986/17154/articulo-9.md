@@ -1,0 +1,2 @@
+Artículo 9°-Con el propósito de mantener una evaluación permanente sobre el desarrollo de la política y el desarrollo de los programas definidos para los CEN y los CINAI, créase la Comisión Evaluadora CEN-CINAI, que estará integrada por los Viceministros de Salud, Educación y Trabajo y Seguridad Social, y tres funcionarios, uno por cada Ministerio escogido por el respectivo Viceministro.
+Esta comisión deberá rendir un informe semestral a los Ministros de Salud, Educación y Trabajo y Seguridad Social con sus observaciones y recomendaciones.

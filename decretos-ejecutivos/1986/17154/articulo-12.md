@@ -1,0 +1,1 @@
+Artículo 12.-La calificación de servicios que haga el Médico Director del Centro de Salud, deberá considerar, en lo relativo al desempeño del trabajo, los informes que reciba del Asesor Supervisor del Ministerio de Educación Pública.

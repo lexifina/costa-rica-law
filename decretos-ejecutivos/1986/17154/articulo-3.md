@@ -1,0 +1,1 @@
+Artículo 3°Los Directores de los Centros de Educación y Nutrición y los Centros Infantiles de Atención Integral, quienes deberán tener formación en Educación Preescolar, dependerán jerárquicamente del Médico Director del Centro de Salud respectivo.

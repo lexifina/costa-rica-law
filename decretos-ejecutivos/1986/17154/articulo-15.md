@@ -1,0 +1,1 @@
+Artículo 15.-La Comisión a que se refiere el artículo 10 anterior estará encargada también de resolver los problemas de interpretación que pudieran surgir con motivo de la aplicación de estas disposiciones y velará porque ningún Ministerio se arrogue funciones y competencias de otros con motivo de los servicios que se prestan en los CEN y en los CINAI.
