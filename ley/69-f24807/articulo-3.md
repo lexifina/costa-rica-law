@@ -1,0 +1,1 @@
+Art 3.- Los deudores morosos, ó que no tengan bienes con qué pagar, podrán ser entregados por el juez a sus acreedores para les desquiten en sus trabajos, abonándoles el jornal corriente según el oficio en que sirvan a cuenta de la deuda, y pudiéndoles dar los alimentos de su familia, la mitad; y al que no tenga, la tercera parte de los que denvengue semanalmente.
