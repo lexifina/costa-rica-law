@@ -1,0 +1,1 @@
+Art. 5°-La distribución de asuntos se hará con la posible igualdad, en esta capital por el Magistrado que designe la Corte Suprema de Justicia, y en las otras provincias por los Jueces civiles de 1a Instancia.

@@ -1,0 +1,2 @@
+Art. 7°-El recurso de casación podrá ejercitarse en lo criminal, contra las sentencias definitivas ó autos que tengan el carácter de tales, dictados en 2a instancia, ó por la Sala 2a en asuntos de que conozca en 1a y única instancia; y procederá ese recurso ley penal, ó cuando se quebrante en el procedimiento cuando se viole ó aplique mal en la sentencia alguna alguna disposición legal, siempre que esto último haya podido producir indefensión ó impunidad.
+En los asuntos criminales verbales no cabe recurso de casación.
