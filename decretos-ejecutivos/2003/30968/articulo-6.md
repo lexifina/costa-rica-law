@@ -1,0 +1,1 @@
+Artículo 6º—El presente decreto deroga el decreto ejecutivo número 23393-MOPT y modifica en lo conducente el decreto ejecutivo número 25009-MOPT así como todo aquel que se le oponga en cuanto a las tarifas y costos aquí regulados.

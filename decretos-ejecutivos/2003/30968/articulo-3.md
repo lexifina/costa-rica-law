@@ -1,0 +1,1 @@
+Artículo 3º—La expedición de la certificación señalada en el artículo 207 de la Ley de Tránsito por Vías Públicas Terrestres, así como cualquier certificación o constancia que expida el Consejo de Seguridad Vial u otros órganos por cuenta de éste, tendrá un costo de seiscientos colones (¢600.00).
