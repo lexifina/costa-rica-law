@@ -1,0 +1,1 @@
+Artículo 95.- Una vez presentados los documentos solicitados por el Ministerio, este deberá efectuar las consultas técnicas según corresponda. El Ministerio contará con un término de sesenta días hábiles para resolver la solicitud.

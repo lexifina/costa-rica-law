@@ -1,0 +1,1 @@
+Artículo 80.- Se prohíbe almacenar o transportar plaguicidas cuando los envases presenten malas condiciones en el cierre, roturas, escapes, etiquetas rotas, descoloradas o sin rotulación que identifique el producto o contenido.

@@ -1,0 +1,1 @@
+Artículo 117.- Todo propietario del área a tratar con plaguicidas que tenga apiarios a su alrededor en un radio menor de tres kilómetros está obligado a cumplir con lo establecido en los artículos 7 y 8 de capítulo II del Reglamento sobre Protección de la Industria Apícola Nacional; Decreto Ejecutivo Nº 2485-A-SPPS del 11 de marzo de 1981.

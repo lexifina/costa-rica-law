@@ -1,0 +1,1 @@
+Artículo 55.- En caso de no cumplirse con lo estipulado en el artículo anterior, los Ministerios, según su área de competencia procederán a cancelar la propaganda, cada uno de acuerdo a su ámbito de competencia.

@@ -1,0 +1,1 @@
+Artículo 28.- El Ministerio puede autorizar la importación y uso de un plaguicida formulado no registrado, por razones de emergencia para el combate de plagas específicas, siempre y cuando no haya otra alternativa de producto registrados en el país.

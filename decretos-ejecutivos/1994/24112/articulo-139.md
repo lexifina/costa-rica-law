@@ -1,0 +1,1 @@
+Artículo 139.- El desecho o destrucción de plaguicidas no utilizables deberá realizarse en estricto acatamiento de las normas técnicas y las disposiciones específicas promulgadas por el Ministerio de Salud en conjunto en el Ministerio.

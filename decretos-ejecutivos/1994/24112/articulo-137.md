@@ -1,0 +1,2 @@
+Artículo 137.- Los errores materiales y de concepto se rectificarán mediante un asiento nuevo en el Libro de Rectificaciones, que al efecto llevará el Registro, en el cual se expresarán claramente las razones para la corrección del error cometido, cuyo asiento será autorizado con la firma y sello del Jefe del Departamento de Insumo Agropecuarios.
+Dichas correcciones conservarán para todo efecto su número y fecha original, siempre y cuando el error sea imputable a los funcionarios encargados del Registro.

@@ -1,0 +1,1 @@
+Artículo 100.- Al finalizar el experimento, el profesional que lo efectúa, así como el funcionario asignado por el Ministerio, deberán aprobar la investigación anotar su opinión sobre la eficiencia del producto en evaluación en el Libro de Protocolo del Investigador.

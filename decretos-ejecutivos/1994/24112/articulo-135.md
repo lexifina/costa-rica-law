@@ -1,0 +1,1 @@
+Artículo 135.- Los errores materiales y de concepto serán corregidos de oficio por el Jefe del Departamento de Insumos Agropecuarios, lo cual hará bajo su responsabilidad, si del conjunto de la información contenida en los respectivos expedientes se desprenden tales errores.
