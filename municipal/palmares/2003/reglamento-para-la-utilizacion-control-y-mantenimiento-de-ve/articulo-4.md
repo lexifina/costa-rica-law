@@ -1,0 +1,1 @@
+Artículo 4º—En ningún caso las facilidades y ventajas que represente para el servidor municipal, el uso de vehículo sea discrecional o administrativo, será parte del respectivo contrato, ni dará lugar a derechos adquiridos a favor del funcionario. Asimismo no podrán ser consideradas como beneficio, mejoría salarial o salario en especie.

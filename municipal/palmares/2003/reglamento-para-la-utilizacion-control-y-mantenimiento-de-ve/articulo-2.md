@@ -1,0 +1,1 @@
+Artículo 2º—Los vehículos de la Municipalidad de Palmares de uso administrativo, llevaran permanentemente placas de matricula oficial en los lugares donde reglamentariamente deben colocarse y un distintivo en sus costados que los identifique con el nombre de la Municipalidad y la leyenda USO OFICIAL.

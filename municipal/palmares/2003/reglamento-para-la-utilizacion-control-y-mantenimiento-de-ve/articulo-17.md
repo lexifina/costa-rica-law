@@ -1,0 +1,1 @@
+Artículo 17.—Utilización del vehículo fuera de la jornada ordinaria. Es prohibido el uso de vehículo fuera de la jornada laboral, salvo autorización expresa del Alcalde Municipal. Esta disposición, no afecta al vehículo de uso discrecional, que por índole de su uso, puede operar fuera de la jornada citada.

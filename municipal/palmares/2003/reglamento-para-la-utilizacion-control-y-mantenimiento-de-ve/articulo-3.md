@@ -1,0 +1,1 @@
+Artículo 3º—Los vehículos de toda clase que existan en la Municipalidad, solo podrán ser conducidos por aquellos funcionarios que estén nombrados como choferes con los requisitos pertinentes. Salvo en los casos en que por inopia se haga necesario ocupar otro personal para tal labor, el cual debe estar debidamente autorizado.
