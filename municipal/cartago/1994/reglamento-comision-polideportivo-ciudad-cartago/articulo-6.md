@@ -1,0 +1,1 @@
+6) La Comisión fijará el día y hora de sus sesiones ordinarias, podrá sesionar de forma extraordinaria cuando así lo solicite ante el presidente o vicepresidente, 5 de sus miembros o la convoque el Comité Cantonal de Deportes y Recreación de Cartago, por acuerdo tomado por mayoría calificada de sus miembros.

@@ -1,0 +1,1 @@
+16) Todos los gastos en que incurra la Comisión de Polideportivo deberán ser aprobados en sesión de la Comisión , quien comunicará al Comité Cantonal de Deportes, para que sean ratificados y ejecutados por el presidente y tesorero del Comité Cantonal de Deportes.

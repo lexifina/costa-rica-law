@@ -1,0 +1,1 @@
+9) Los acuerdos de la Comisión de Polideportivo, serán tomados por simple mayoría. Quedarán firmes en el acto, si así lo determinan 5 de sus miembros, en caso contrario cuando en la sesión ordinaria siguiente se apruebe el acta respectiva.

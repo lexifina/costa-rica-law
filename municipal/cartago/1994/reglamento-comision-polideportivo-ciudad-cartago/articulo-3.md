@@ -1,0 +1,1 @@
+3) Esta Comisión estará integrada por 7 miembros que serán nombrados así: tres miembros por parte del Concejo Municipal de Cartago, y cuatro miembros nombrados por parte del Comité Cantonal de Deportes y Recreación de Cartago.

@@ -1,0 +1,1 @@
+19) Trimestralmente el presidente de la Comisión del Polideportivo, remitirá al auditor municipal, un informe contable de las actividades económicas que realice la Comisión , con copia al Comité Cantonal de Deportes.

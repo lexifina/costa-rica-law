@@ -1,0 +1,1 @@
+14) Los recursos de la Comisión del Polideportivo, incluidos en el presupuesto del Comité Cantonal de Deportes, no podrán ser destinados para programas diferentes a la adquisición del inmueble, construcción y mantenimiento del polideportivo.

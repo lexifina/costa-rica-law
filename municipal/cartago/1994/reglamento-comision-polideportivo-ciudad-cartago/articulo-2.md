@@ -1,0 +1,1 @@
+Artículo 2°—Para la realización de eventos deportivos y culturales de carácter nacional o local que competen al Comité Cantonal de Deportes y Recreación de Cartago u otras instalaciones deportivas, esta comisión se integrará como responsable de la construcción y readecuación de sus instalaciones deportivas.

@@ -1,0 +1,1 @@
+10) Los acuerdos de la Comisión de Polideportivo de la ciudad de Cartago, tendrán recurso de revocatoria, ante la misma Comisión, y de apelación ante el Comité Cantonal de Deportes, que deberán ser presentados dentro del tercer día ante la Comisión de Polideportivo una vez firme el acuerdo.

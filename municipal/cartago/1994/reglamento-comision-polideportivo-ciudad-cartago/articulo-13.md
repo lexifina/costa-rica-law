@@ -1,0 +1,1 @@
+13) La Comisión del Polideportivo podrá invertir los dineros no comprometidos de su presupuesto en instituciones del Sistema Bancario Nacional o del Sistema Financiero Nacional para la Vivienda , a recto de que los réditos devengados sirvan para sus objetivos.

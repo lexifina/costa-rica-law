@@ -1,0 +1,1 @@
+12) El Comité Cantonal de Deportes, incluirá en su presupuesto anual a nombre de la Comisión del Polideportivo los recursos destinados al Polideportivo, especificando las partidas presupuestarias por programas, conforme con los lineamientos de la Contraloría General de la República.
