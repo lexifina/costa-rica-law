@@ -1,0 +1,1 @@
+Artículo 38.-La Junta Directiva de la Liga resolverá las situaciones especiales que puedan presentarse a causa de la aplicación de las normas técnicas y medidas complementarias para regular el sistema de compra de caña por su calidad.

@@ -1,0 +1,1 @@
+Artículo 46.-El recurso deberá presentarse con copia para la contraparte y para el Departamento Técnico de la Liga, y en una tercera, se le pondrá constancia de recibo por parte del funcionario correspondiente.

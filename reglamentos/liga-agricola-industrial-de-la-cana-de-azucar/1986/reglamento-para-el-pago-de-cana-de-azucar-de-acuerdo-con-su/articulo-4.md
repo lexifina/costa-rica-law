@@ -1,0 +1,2 @@
+Artículo 4°-Para aplicar el sistema de determinar la calidad de la caña establecido en este Reglamento, a una o más zonas o parcialmente a cualquiera de ellas, se aplicará lo dispuesto en el articulo 26 de la ley N9 3579 del 4 de noviembre de 1965.
+La solicitud individual para la aplicación a una zona o ingenio, deberá ser presentada a la Junta Directiva de la Liga con una anticipación no menor de 60 días, antes del inicio de la siguiente zafra.

@@ -1,0 +1,1 @@
+Artículo 48.-No obstante lo dispuesto en el artículo 47, la entrega del recibo definitivo al productor independiente, a su representante legal debidamente acreditado, al porteador de la caña o a persona autorizada por escrito y con su firma por el productor, se tendrá para todo efecto legal, como la última notificación del recibo y de los actos en él constantes.

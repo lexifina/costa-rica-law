@@ -1,0 +1,3 @@
+Artículo 5°-Para pedir la sustitución del sistema de determinar la calidad de la caña establecido en este Reglamento a una o más zonas, o a uno o más ingenios, en el caso de que la aplicación haya sido parcial en una zona, se requiere:
+1) Las solicitudes de uno o más ingenios o de por lo menos el 50% de los productores, que regularmente han entregado caña a los ingenios, presentada ,a la Junta Directiva de la Liga, con una antelación no menor de 60 días del inicio de la siguiente zafra; en el entendido de que cualquier decisión de la misma regirá para la próxima zafra.
+2) Especificar el método o sistema por el que se propone pagar la caña, en sustitución del método que se esta aplicando.

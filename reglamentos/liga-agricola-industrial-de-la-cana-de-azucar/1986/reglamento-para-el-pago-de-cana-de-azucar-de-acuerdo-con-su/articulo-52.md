@@ -1,0 +1,1 @@
+Artículo 52.-El Secretario Ejecutivo o la Junta Directiva, en su caso, darán audiencia a ambas partes y al Departamento Técnico para que expresen sus ,puntos de vista y ofrezcan la prueba pertinente .

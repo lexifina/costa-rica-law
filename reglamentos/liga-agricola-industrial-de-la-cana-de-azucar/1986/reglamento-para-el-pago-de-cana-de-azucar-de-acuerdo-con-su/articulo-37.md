@@ -1,0 +1,1 @@
+Artículo 37.-El personal del laboratorio del ingenio, efectuará la toma de muestras, el análisis y operaciones necesarias para la evaluación de la caña. Los Inspectores del Departamento Técnico tendrán plena atribución para controlar y verificar los resultados obtenidos de estas entregas.

@@ -1,0 +1,1 @@
+Artículo 11.-Los recibos definitivos que por cualquier razón, contengan datos erróneos, tachaduras o correcciones deberán ser marcados con la leyenda "NULO" refrendada por el inspector de la Liga. Estos recibos deberán ser enviados al Departamento Técnico de la Liga.

@@ -1,0 +1,1 @@
+Artículo 34.-Para desempeñar el cargo de Inspector Analista del Departamento Técnico de la Liga, se requiere ser egresado de segunda enseñanza o reunir preparación equivalente, y aprobar los cursos que ordene el Departamento Técnico de la Liga. A dichos inspectores, la Liga los acreditará mediante una constancia que al efecto les otorgará.

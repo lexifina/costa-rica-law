@@ -1,0 +1,2 @@
+Artículo 35.-En el caso de que algún aparato o instrumento de laboratorio de los que se usan en este sistema se dañara, el Departamento Técnico podrá dar un plazo adecuado para su reparación.
+Si las deficiencias indicadas imposibilitaran la aplicación del sistema previsto en este Reglamento, durante el lapso referido se utilizará el método de pago que indique el Departamento Técnico, lo cual deberá ser puesto en conocimiento de La Junta Directiva de la Liga.

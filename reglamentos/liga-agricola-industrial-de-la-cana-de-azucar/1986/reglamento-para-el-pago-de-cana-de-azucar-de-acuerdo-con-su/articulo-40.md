@@ -1,0 +1,2 @@
+Artículo 40.-Los miembros de la Comisión Técnica Asesora ejercerán el cargo por un año comprendido entre el 19 de octubre y el 30 de setiembre del año siguiente, y pueden ser reelectos. La Comisión elegirá entre sus miembros propietarios, en su sesión anual, un Presidente, un Vicepresidente y un Secretario, teniéndose a los demás miembros como vocales.
+Las sesiones se celebrarán con, al menos la presencia de 4 de sus miembros, sus acuerdos se tomarán por mayoría absoluta y deberán hacerse constar en un libro de actas.

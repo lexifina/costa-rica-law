@@ -1,0 +1,2 @@
+Artículo 22.-Con el fin de dar una mejor organización y evitar una posible confusión de muestras, se recomienda la separación de los laboratorios de determinación de la calidad de la caña y el destinado al control de proceso de fabricación.
+Considerando el alto costo de algunos equipos para análisis como: polarimetro, refractómetro, balanza, éstos pueden compartir se, por lo que dicha separación deberá tener la aprobación del Departamento Técnico.

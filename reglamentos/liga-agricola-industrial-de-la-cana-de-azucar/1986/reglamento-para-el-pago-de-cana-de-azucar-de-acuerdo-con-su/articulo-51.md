@@ -1,0 +1,1 @@
+Artículo 51.-La Junta Directiva podrá delegar el trámite en el Secretario Ejecutivo una vez admitido el recurso, y la delegación se entenderá hecha, aunque no conste expresamente en actas, siempre y cuando la Junta Directiva no acordare tramitar directamente el asunto.

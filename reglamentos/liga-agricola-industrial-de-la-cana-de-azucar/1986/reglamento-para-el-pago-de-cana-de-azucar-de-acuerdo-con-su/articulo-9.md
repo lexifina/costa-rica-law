@@ -1,0 +1,2 @@
+Artículo 9°-En el momento de recibir y pesar la caña de cada entrega, al productor se le dará un recibo provisional con la información que indique el Departamento Técnico, el que será cambiado por el recibo definitivo, debidamente numerado, después de 48 horas a la entrega, constituido por el original y tres copias para ser distribuidas entre LAICA, el ingenio y la municipalidad respectiva.
+El Departamento Técnico dictará las instrucciones para asegurar que dichas copias sean legibles.

@@ -1,0 +1,1 @@
+Artículo 12.-En el caso de que el ingenio utilice sistemas de proceso electrónico de datos para registrar las entregas individuales, el sistema emitirá un recibo definitivo que contendrá la información que se especifica en el artículo 10. Este recibo se le entregará al productor contra la presentación del comprobante y en el plazo a que se refiere el artículo 99.

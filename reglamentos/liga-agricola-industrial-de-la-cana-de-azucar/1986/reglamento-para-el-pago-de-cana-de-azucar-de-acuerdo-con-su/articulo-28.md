@@ -1,0 +1,1 @@
+Artículo 28.-Los ingenios deberán mantener una administración adecuada de los resultados de los análisis de las cañas entregadas por sus abastecedores, y darán a los representantes de éstos todas las facilidades necesarias para constatar la corrección y propiedad de dichos resultados y de sus aplicaciones.

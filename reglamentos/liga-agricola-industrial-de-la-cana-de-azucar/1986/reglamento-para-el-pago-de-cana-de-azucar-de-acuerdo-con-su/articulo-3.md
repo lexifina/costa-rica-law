@@ -1,0 +1,1 @@
+Artículo 3°-Para los métodos y procedimientos analíticos no establecidos en este Reglamento, se aplicarán supletoriamente aquellos generalmente aceptados según determinación, que hará en cada caso, el Departamento Técnico de la Liga, el cual deberá comunicarlo a la Junta Directiva a través de la Secretaría Ejecutiva.

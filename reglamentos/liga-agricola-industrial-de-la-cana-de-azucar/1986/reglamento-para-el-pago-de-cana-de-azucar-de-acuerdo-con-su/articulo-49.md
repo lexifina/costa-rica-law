@@ -1,0 +1,2 @@
+Artículo 49.-Recibido el recurso por la Liga, en su sede principal el Secretario Ejecutivo lo incluirá en el orden del día de la sesión ordinaria siguiente de la Junta Directiva y le dará preferencia.
+Si encontrare que el recurso, no es admisible, pedirá opinión al Departamento Legal, quién deberá rendirlo verbalmente en el curso de la misma sesión ordinaria. Si rechazare el recurso, lo comunicará por telegrama al recurrente indicándole brevemente los motivos e instando su corrección, de ser subsanables.

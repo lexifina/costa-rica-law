@@ -1,0 +1,1 @@
+Articulo 50.-El recurrente podrá subsanar los defectos corregibles de su recurso, en un p:azo de diez días, a partir del recibo del telegrama, y su omisión al respecto causará la caducidad del recurso.
