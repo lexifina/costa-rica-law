@@ -1,0 +1,1 @@
+Art. 4. Toda la que se continúe acuñando en el Estado, llevaráel peso, ley y tipo que se usa generalmente en la República, conforme á los decretos federales vijentes. –Dado en la Ciudad de San José á veintisiete de Marzo de mil ochocientos cuarenta y tres. –José María Alfaro –Al Ministro general del Despacho Señor Doctor José María Castro”
