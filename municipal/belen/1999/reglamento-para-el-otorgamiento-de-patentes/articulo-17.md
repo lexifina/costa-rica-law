@@ -1,0 +1,2 @@
+CAPITULO V
+Artículo 17.—Actividades recientemente establecidas. Para gravar toda actividad lucrativa recientemente establecida, que no pueda sujetarse al procedimiento impositivo establecido en este reglamento, la Unidad Tributara podrá realizar una estimación tomando como parámetro otros negocios similares. Este procedimiento tendrá carácter provisional y deberá modificarse con base en la primera declaración que le corresponda presentar al patentado, atendiendo las disposiciones del artículo siguiente.

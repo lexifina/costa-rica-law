@@ -1,0 +1,1 @@
+Artículo 18.—Determinación del Ingreso Bruto anual en casos especiales. El total de los ingresos brutos anuales que hayan operado únicamente durante una parte del período fiscal anterior, se determinará con base en el promedio mensual de la actividad.
