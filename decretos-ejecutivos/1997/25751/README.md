@@ -15,3 +15,4 @@ Crea fuente de Financiamiento para el Ejercicio Económico de 1997
 | --- | --- | --- |
 | 1 | 1997-01-01 | la propia norma |
 | 2 | 1997-02-04 | Decreto Ejecutivo 25851 (1997-02-04) |
+| 3 | 1997-09-03 | Decreto Ejecutivo 26326 (1997-09-03) |

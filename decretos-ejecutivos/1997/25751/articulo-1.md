@@ -8,5 +8,7 @@ Considerando:
 4°--Que la Contraloría General de la República dio su aprobación al presente decreto mediante oficio N° 16392 del día D de diciembre de mil novecientos noventa y seis Por tanto.
 Decretan:
 Artículo 1°-Crease la siguiente fuente de financiamiento para el ejercicio económico de 1997.
-Código | FF | Concepto | Monto
-200 | 03 | FONDO DE DESARROLLO SOC IAL y ASIGNACIONES FAMILIARES | ¢ 1.933.365.523
+REBAJAR:
+Código | FF | Concepto | Monto ¢
+200 | 03 | FONDO DE DESARROLLO SOCIAL ASIGNACIONES FAMILIARES | 554.736.423.00
+( Así reformado por el artículo 1° del decreto ejecutivo N° 26326 de 01 de agosto de 1997)

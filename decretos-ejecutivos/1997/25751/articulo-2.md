@@ -28,36 +28,26 @@ el estado de la obra.
 6.1. Licitar y alistar 17 obras por contrato.
 7.1. Realizar un total de 124 envíos de materiales (2 por cada obra).
 8.1. Realizar una reunión con los contratistas participantes.
-TITULO 112
-MINIST. DE OBRAS PUBLICAS Y TRANSPORTES
+(*)TITULO 112
+MINISTERIO DE OBRAS PUBLICAS Y TRANSPORTES
 PROGRAMA 369-00
 CONSTRUCCION COMEDORES ESCOLARES
 PUESTOS DE SALUD RURAL-EBAIS-CEN
-UNIDAD EJECUTORA: DIREC. GENERAL DE ASIGNAC. FAMILIARES
+UNIDAD EJECUTORA:
+DlRECCION GENERAL DE ASIGNACIONES FAMILIARES
 Registro Contable: 112.369-00
-GO | IP | FF | CE | CF | CONCEPTO | MONTO ¢
-0 | | 03 | 211 | 23 | SERVICIOS PERSONALES | 40.785.460.00
-030 | | | | | Sueldo adicional | 2.550.290.00
-050 | | | | | Jornales | 38.235.170.00
-2 | | 03 | 211 | 23 | MATERIALES Y SUMINISTROS | 104.777.035.00
-214 | | | | | Otros Productos Químicos | 1.063.779.00
-252 | | | | | Cemento | 10.561.780.00
-254 | | | | | Prod. Metálicos para Construcción | 37.437.318.00
-258 | | | | | Madera | 26.530.727.00
-259 | | | | | Otros Materiales para Construcción | 23.773.036.00
-286 | | | | | Otros Útiles y Mat. Específicos | 5.410.395.00
-3 | | | | | MAQUINARIA Y EQUIPO | 2.000.000.00
-330 | | 03 | 221 | 23 | Equipo de Transporte | 2.000.000.00
-5 | | 03 | 211 | 23 | CONSTR.ADICIONES Y MEJORAS | 48.000.000.00
-510 | | | | | Edificios | 48.000.000.00
-6 | | | | | TRANSFERENCIAS CORRIENTES | 4.284.488.00
-660 | | | | | Contrib. Patronal a la CCSS | 4.284.488.00
-| 200 | | | 23 | Caja Costarricense del Seguro Social (Cuota Patronal por concepto de Seguro, Invalidez, Vejez y Muerte). | 1.453.666.00
-| 202 | | | 23 | Caja Costarricense del Seguro Social (Cuota Patronal por concepto de Seguro Enfermedad y Maternidad | 2.830.822.00
-7 | | 03 | 242 | | TRANFERENCIAS DE CAPITAL | 15.017.00
-733 | | | | | Aportes a Organismos Financieros | 153.017.00
-| 204 | | | 23 | Banco Popular y de Desarrollo Comunal (Pago Cuota Patronal a Banco Popular y de Desarrollo Comunal). | 153.017.00
-| | | | | TOTAL AUMENTO DEL PROGRAMA 369-00 | 200.000.000.00
+| GO | IP | FF | CE | CF | Concepto | Monto ¢
+DAI | 2 | | 03 | 211 | 23 | MATERIALES Y SUMINISTROS | 43.657.090.00
+1 | 214 | | | | | Otros Productos Químicos | 443.241.00
+1 | 252 | | | | | Cemento | 4.400.733.00
+1 | 254 | | | | | Prod. Metálicos para Construcción | 15.598.883.00
+| 258 | | | | | Madera | 11.054.470.00
+1 | 259 | | | | | Otros Materiales para Construcción | 9.905.432.00
+1 | 286 | | | | | Otros útiles y Mat. Específicos | 2.254.331.00
+1 | 3 | | 03 | 221 | 23 | MAQUINARIA Y EQUIPO | 833.333.00
+| 330 | | | | | Equipo de Transporte TOTAL REBAJA DEL PROGRAMA 369-00 | 833.333.00 44.490.423.00
+1 | | | | | | TOTAL REBAJA TITULO 112-MINISTERIO OBRAS PUBLICAS Y TRANSPORTES | 44.490.423.00
+(*) ( Así reformado por el artículo 2° del decreto ejecutivo N° 26326 de 03 de setiembre de 1997)
 LISTA DE OBRAS DEL PROGRAMA 369
 Código | Institución | Monto 1997
 | OBRAS POR CONTRATO | 48.000.000.00
@@ -142,19 +132,21 @@ l. Financiar 21 proyectos con la modalidad de socioproductivos en los que partic
 2. Financiar 111 proyectos en las modalidades de Capacitación para el empleo, en los que participen 1111 jefes de familia desempleados o subempleados con el presupuesto anual asignado
 3. Financiar 125 proyectos en la modalidad de edificación de infraestructura comunal básica en los que participen 1250 jefes de familia desempleados o subempleados con el presupuesto anual asignado
 4. Financiar 21 proyectos en la modalidad de desarrollo sostenible y/o conservación del medio ambiente en los que participen 208 jefes de familia desempleados o subempleados con el presupuesto anual asignado.
-TITULO 115
+(*) TITULO 115
 MINISTERIO DE TRABAJO Y SEGURIDAD SOCIAL
 PROGRAMA 708-00
-AUXILIO TEMPORAL PARA GENERAClON
-DE EMPLEO
-UNIDAD EJECUTORA
-DIRECClON NACIONAL DE EMPLEO
+AUXILIO TEMPORAL PARA GENERACION DE EMPLEO
+UNIDAD EJECUTORA':
+DIRECCION NACIONAL DE EMPLEO
 DEPTO. GENERACION DE EMPLEO
-Registro Contable: 115.708.00
+Registro Contable: 115.708-00
 GO | IP | FF | CE | CF | Concepto | Monto ¢
-| | | | | TRANSFERENCIAS CORRIENTES | 600.000.000.00
-605 | | | | 24 | Auxilio a trabajadores | 600.000.000.00
-| | | | | TOTAL AUMENTO DEL PROGRAMA 708-00 | 600.000.000.00
+6 | | 03 | 131 | | TRANFERENCIAS CORRIENTES | 510.246.000.00
+605 | | | | 24 | Auxilio a Trabajadores | 510.246.000.00
+| | | | | TOTAL REBAJA DEL PROGRAMA 708-00 | 510.246.000.00
+| | | | | TOTAL REBAJA TITULO 115-MINISTERIO DE TRABAJO Y SEGURIDAD SOCIAL | 510.246.000.00
+| | | | | TOTAL REBAJA | 554.736.423.00
+(*) ( Así reformado por el artículo 2° del decreto ejecutivo N° 26326 de 03 de setiembre de 1997)
 115- MINISTERIO DE TRABAJO Y SEGURIDAD SOCIAL
 Programa 717-00 Programa Nacional de Apoyo a la Micro y Pequeña Empresa.
 Unidad Ejecutora: Dirección Nacional de Apoyo a la Micro y Pequeña Empresa
@@ -177,16 +169,22 @@ Metas
 3.1 Brindar capacitación y asistencia técnica a 44 funcionarios de las organizaciones intermediarias.
 3.2. Seleccionar dos empresas Consultoras para la capacitación.
 4.1. Realizar diez charlas y cinco actividades varias que promuevan y divulguen el Programa.
-(*)PROGRAMA 717-00
-PROGRAMA NACIONAL DE "'.POYO A LA MICRO
-y PEQUEÑA EMPRESA (PRONAMYPE)
-UNIDAD EJECUTORA:
-DIRECCION NACIONAL DE APOYO A LA MICRO Y PEQLEÑA EMPRESA-DESAF
-Registro Contable: 115.717-00
-GO | IP | FF | CE | CF | CONCEPTO | MONTO ¢
-4 | | | | | Desembolsos financieros | 50.000.000.00
-490 | 03 | 235 | | 24 | Otros desembolsos financieros Estos recursos serán depositados en la cuenta Fideicomiso de PRONMYPE según convenio entre MTSS Y Bancoop de fecha 07-09-95 y refrendado por la Contraloría General de la República el 02-10-95 Estos recursos se utilizarán exclusivamente en el Programa Nacional de Apoyo a la Micro y Pequeña Empresa). | 50.000.000.00
-| | | | | TOTAL AUMENTO DEL PROGRAMA 717-00 | 50.000.000.00
-| | | | | TOTAL AUMENTO DEL TITULO 115 MINISTERIO DE TRABAJO Y SEGURIDAD SOCIAL | 650.000.000.00
-| | | | | TOTAL AUMENTO | 1.933.365.523.00
-(*) (Así reformado por decreto ejecutivo N° 25851 de 04 de febrero de 1997)
+PROGRAMA 717-00
+PROGRAMA NACIONAL DE APOYO A LA MICRO Y PEQUEÑA EMPRESA (PROAMYPE)
+UNIDAD EJECOTORA:
+DIRECCION NACIONAL DE APOYO
+A LA MICRO Y PEQUEÑA EMPRESA – DESAF
+Registro Contable: 115.717-00:
+GO | IP | FF | CE | CF | Concepto | Monto ¢
+7 | | 03 | 241 | | TRANSFERENCIAS DE CAPITAL | 50.000.000.00
+702 | | | | | APORTES A OTRAS PERS.E INST. PRIVADAS (ESTOS RECURSOS SERAN…) | 50.000.000.00
+Debe Decir:
+PROGRAMA 717-00
+PROGRAMA NACIONAL DE APOYO A LA MICRO Y PEQUEÑA EMPRESA (PROAMYPE)
+UNIDAD EJECOTORA:
+DIRECCION NACIONAL DE APOYO
+A LA MICRO Y PEQUEÑA EMPRESA – DESAF
+Registro Contable: 115.717-00:
+4 | | | | DESEMBOLSOS FINANCIEROS | 50.000.000.00
+490 | 03 | 235 | 24 | OTROS DESEMBOLSOS FINANCIEROS (ESTOS RECURSOS SERAN…) | 50.000.000.00
+(Así reformado por decreto ejecutivo N° 25851 de 04 de febrero de 1997)
