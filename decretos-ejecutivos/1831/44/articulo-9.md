@@ -1,0 +1,1 @@
+Art. 9. El aguardiente que se expenda en las taquillas, debe ser precisamente de buena calidad, y su precio el de dos reales arriba por cada botella, no pudiendose vender á menos, bajo la pena establecida en la segunda parte del articulo 2°.
