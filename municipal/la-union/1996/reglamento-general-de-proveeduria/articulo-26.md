@@ -1,1 +1,0 @@
-Artículo 26.—Todas las Orden de Compra deberán firmarse por el Proveedor Municipal. Director del Departamento solicitante y el Ejecutivo Municipal. Además todas las órdenes de compra deberán de ser firmadas por la Sección de Tesorería asegurando el contenido presupuestario.

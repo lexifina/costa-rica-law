@@ -1,1 +1,0 @@
-Artículo 39.—La confección de este cupón se hará en original y dos copias. El original para retirar el combustible y su posterior devolución junto con la liquidación de la orden de compra para el tramite de pago y las copias para el proveedor y el chofer.

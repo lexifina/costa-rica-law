@@ -1,1 +1,0 @@
-Artículo 20.—Corresponderá a la Oficina de Proveeduría encauzar y dirigir los trámites internos, para la obtención de los informes técnicos, jurídicos y otros necesarios, en relación a todas las licitaciones públicas y concurso de antecedentes que deben de someterse a la comisión de Contratación Administrativa.

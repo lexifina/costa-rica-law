@@ -1,1 +1,0 @@
-Artículo 19.—La Comisión de Contratación Administrativa estará integrada por el Director Financiero Contable, quien tendrá la coordinación de la misma, el Jefe de la Oficina de Proveeduría y el Director del Departamento técnico involucrado o al funcionario que este designe.
