@@ -1,1 +1,0 @@
-Artículo 45.-La ejecución en demanda de cobro de sumas debidas por contribuciones u otras que se debieran pagar conforme a esta ley, se tramitará de acuerdo con su cuantía, ante las autoridades judiciales correspondientes.

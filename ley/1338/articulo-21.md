@@ -1,4 +1,0 @@
-Artículo 21.-Son deberes y atribuciones de las Juntas Auxiliares de caminos:
-a) Ayudar al Caminero Cantonal a formular una nómina de los caminos de los caminos de tierra de la correspondiente jurisdicción, indicando la longitud y ancho aproximados de cada camino, su estado y el costo probable de las reparaciones que se deban efectuar. A esa nómina se acompañará una lista de dueños de fincas situadas a cada lado del camino, el área aproximada de éstas, su naturaleza, longitud de frente a la vía, y una estimación probable de su valor, así como la forma o medios en que cada propietario se sirve del camino;
-b) Fiscalizar todos los trabajos que se ejecuten en el distrito, con relación a los caminos, y la inversión de los fondos; y
-c) Informar trimestralmente a la Junta Cantonal sobre el desarrollo de las obras que se ejecuten, consignando las observaciones del caso.
