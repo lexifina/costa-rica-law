@@ -1,0 +1,1 @@
+Articulo 2°—De la constitución de las Operadoras, Las Operadoras deberán constituirse como sociedades anónimas, excepto la Junta de Pensiones y Jubilaciones del Magisterio Nacional, la cual, de conformidad con el Artículo 3, párrafo segundo, de la Ley 7523, podrá operar como un departamento especializado.
