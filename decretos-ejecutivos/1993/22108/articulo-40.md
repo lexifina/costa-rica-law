@@ -1,7 +1,0 @@
-ARTICULO 40.- Garantía para Subcontratación.
-El Consejo exigirá a la empresa que desea subcontratar una caución sobre los impuestos y se deberá rendir una garantía que podrá consistir en cheque certificado, garantía bancaria, bonos del Instituto Nacional de Seguros, certificado a plazos o bonos fiscales. El plazo de la subcontratación no podrá ser mayor al plazo que se le permite a la empresa beneficiaria del régimen para mantener las mercancías en el país. Dicha garantía se rendirá ante la Aduana Matriz y se cancelar al momento de reexportar las mercancías.
-La Aduana Matriz ejecutará dichas garantías si no se cumplen con los plazos establecidos para la reexportación.
-(NOTA SINALEVI: Mediante el artículo 1° del Decreto Ejecutivo 23341 del 30 de mayo de 1994, se reformó el artículo 40 del Decreto Ejecutivo 22108, que acontinuación dice:
-Artículo 40.- Condiciones para la sucontratación:
-El plazo de la subcontratación no podrá ser mayor a aquel que se le permite a la empresa beneficiaria del regimen mantener la mercancía en el país. Dicha empresa queda sujeta a las responsabilidades que sean procedentes de conformidad con lo que dispone el presente reglamento, respecto a las mercancias objeto de la subcontratación.
-Unicamente para tales efectos y por el plazo de la subcontratación se considera recinto aduanero la planta de la empresa subcontratante, para lo cual el representante legal de la misma deber manifestar por escrito su conformidad ante la Secretaría Técnica.)
