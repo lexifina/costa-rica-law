@@ -1,0 +1,1 @@
+Artículo 2° —El cobro de las tarifas en dólares de los Estados Unidos de América, se hará en colones mediante su conversión al tipo de cambio interbancario de referencia dado por el Banco Central de Costa Rica para el día de zarpe de la embarcación.
