@@ -1,0 +1,1 @@
+Artículo 8°—Finalmente se debe remitir a la Dirección General de Auditoría Interna informes mensuales de las actividades desarrolladas, indicando cantidad y porcentaje de funcionarios que abarcó cada actividad y un informe final de resultados del programa de difusión.

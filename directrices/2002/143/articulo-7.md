@@ -1,0 +1,1 @@
+Artículo 7°—Cada Dirección será responsable de divulgar en el ámbito de su competencia el Manual de normas citado. Para ese efecto debe presentar al Despacho del Ministro y a la Dirección General de Auditoría Interna, antes del 30 de setiembre del 2002, un programa de difusión a desarrollar en el cuarto trimestre del presente año.

@@ -1,0 +1,1 @@
+Artículo 6°—Desarrollar el programa de divulgación en forma escalonada iniciando con los niveles jerárquicos y bajando en cascada -hasta cubrir a todos los funcionarios del Ministerio, considerando las normas que son aplicables a su campo de acción, según el nivel que a cada uno corresponda.
