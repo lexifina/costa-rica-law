@@ -1,0 +1,1 @@
+Artículo 4°—Trámite final de autorización. El acta de la reunión, conjuntamente con la documentación que el Superintendente estime pertinente, será elevada a conocimiento del Consejo Nacional de Supervisión del Sistema Financiero, al cual corresponderá la autorización de la oferta final.
