@@ -19,3 +19,4 @@ Reglamento de Beneficios para Estudio
 | 4 | 1999-07-29 | Reglamento 7352 (1999-07-29) |
 | 5 | 1999-09-03 | Reglamento 7366 (1999-09-03) |
 | 6 | 1999-10-07 | Reglamento 7376 (1999-10-07) |
+| 7 | 1999-10-14 | Reglamento 7378 (1999-10-14) |
