@@ -1,18 +1,4 @@
-Artículo 16.- Refórmase el artículo 1º de la ley Nº 6844 del 11 de
-enero de 1983, y cualquier otra ley que se le oponga, para que diga así:
-"Artículo 1º.-Se establece un impuesto del cinco por ciento (5%) a favor
-de las municipalidades, que pesará sobre el valor de cada boleta, tiquete
-o entrada individual a todos los espectáculos públicos o de diversión no
-gratuitos, que se realicen en teatros, cines, salones de baile,
-discotecas, locales, estadios y plazas nacionales o particulares; y en
-general sobre todo espectáculo que se efectué con motivo de festejos
-cívicos y patronales, veladas, ferias, turnos o novilladas.
-Quedan exentos del pago del impuesto aquí previsto todos los espectáculos
-y actividades a que se refiere el párrafo anterior, cuando el producto
-íntegro se destine a fines escolares, de beneficencia, religiosos o
-sociales, previa aprobación de la municipalidad correspondiente.
-Cuando en los casos sujetos al pago del impuesto se cobre el valor de la
-boleta, tiquete o entrada individual, y, además una suma como consumo
-mínimo, el impuesto se cobrará sobre la cantidad que resulte de la suma
-del valor de la entrada, más el consumo mínimo exigido. En el caso de
-que sólo se cobre consumo mínimo, sobre éste se cobrará el impuesto.
+Artículo 16.- Refórmase el artículo 1º de la ley Nº 6844 del 11 de enero de 1983, y cualquier otra ley que se le oponga, para que diga así:
+"Artículo 1º.-Se establece un impuesto del cinco por ciento (5%) a favor de las municipalidades, que pesará sobre el valor de cada boleta, tiquete o entrada individual a todos los espectáculos públicos o de diversión no gratuitos, que se realicen en teatros, cines, salones de baile, discotecas, locales, estadios y plazas nacionales o particulares; y en general sobre todo espectáculo que se efectué con motivo de festejos cívicos y patronales, veladas, ferias, turnos o novilladas.
+Quedan exentos del pago del impuesto aquí previsto todos los espectáculos y actividades a que se refiere el párrafo anterior, cuando el producto íntegro se destine a fines escolares, de beneficencia, religiosos o sociales, previa aprobación de la municipalidad correspondiente.
+Cuando en los casos sujetos al pago del impuesto se cobre el valor de la boleta, tiquete o entrada individual, y, además una suma como consumo mínimo, el impuesto se cobrará sobre la cantidad que resulte de la suma del valor de la entrada, más el consumo mínimo exigido. En el caso de que sólo se cobre consumo mínimo, sobre éste se cobrará el impuesto.
