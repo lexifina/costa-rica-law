@@ -1,0 +1,1 @@
+Artículo 6º—La Dirección de Recursos Humanos de la Dirección de Inteligencia y Seguridad Nacional, elaborará un manual descriptivo de puestos en el que se determinen los cargos a los que corresponde reconocer el incentivo por riesgo policial, que se regirá conforme a la normativa especial aplicable.
