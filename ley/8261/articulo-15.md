@@ -1,0 +1,1 @@
+Artículo 15.—Auditor interno. El Consejo contará con un auditor interno, quien será nombrado de acuerdo con la Ley Orgánica de la Contraloría General de la República, N° 7428, de 7 de setiembre de 1994, y tendrá las atribuciones allí establecidas.

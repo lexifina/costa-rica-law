@@ -1,3 +1,2 @@
-Artículo 5º.- Las funciones que la ley constitutiva del Movimiento
-Nacional de Juventudes señala a la Presidencia de la República, las
-asumirá el Ministerio de Cultura, Juventud y Deporte.
+Artículo 5º.- Las funciones que la ley constitutiva del Consejo Nacional de Política Pública de la Persona Joven señala a la Presidencia de la República, las asumirá el Ministerio de Cultura, Juventud y Deporte.
+(Mediante el artículo 34 de la Ley N° 8261 de 2 de mayo del 2002, Ley General de la Persona Joven, se sustituye el término Movimiento Nacional de Juventudes, por el Consejo Nacional de Política Pública de la Persona Joven)

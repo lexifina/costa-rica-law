@@ -1,0 +1,1 @@
+Artículo 28.—Finalidad de la Asamblea. La Asamblea Nacional de la Red tendrá la finalidad de discutir y aprobar la propuesta de política pública de las personas jóvenes elaborada por el Consejo. Dicha propuesta se aprobará por un plazo máximo de tres años y será de acatamiento obligatorio por parte del Consejo.

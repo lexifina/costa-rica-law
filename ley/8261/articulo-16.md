@@ -1,0 +1,1 @@
+Artículo 16.—Representación del Consejo. La representación judicial y extrajudicial del Consejo corresponderá a su presidente, con facultades de apoderado generalísimo sin límite de suma, quien podrá otorgar o revocar poderes generales, judiciales y especiales, cuando sea de comprobado interés para este Consejo.
