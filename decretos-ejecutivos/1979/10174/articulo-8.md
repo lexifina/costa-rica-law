@@ -1,0 +1,1 @@
+Artículo 8°-Las instituciones componentes de CEDECA aportarán a la Comisión aquellos servicios que por su naturaleza les corresponda, a fin de facilitar y acelerar el logro de los objetivos de la misma.
