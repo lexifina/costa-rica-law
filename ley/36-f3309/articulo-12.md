@@ -1,0 +1,1 @@
+Art. 12. Si después de hecha la visita a que aluden los dos artículos anteriores, tuviese el Médico que permanecer en el lugar por exigirlo así el interesado, se estará entonces a lo que dispone el artículo 8.
