@@ -13,5 +13,6 @@ d. Para que un puesto pueda ser reasignado a una clase de mayor nivel salarial, 
 e. Costo anual producto del estudio y fuente de financiamiento.
 f. Que el costo esté considerado en el monto de gasto presupuestario que se derive de la aplicación del artículo 1º de las Directrices Generales de Política Presupuestaria. En el caso que no tengan margen disponible, indicar los rubros de gasto corriente que rebajarán para hacerle frente al costo.
 g. Cuando un puesto de la subpartida servicios especiales sea trasladado a sueldos para cargos fijos, no podrá ser reasignado hasta seis meses después del rige de dicho movimiento.
-h. Las reasignaciones serán aprobados por el máximo jerarca de la entidad o por quien éste delegue vía resolución. La fecha de vigencia será el primer día del mes siguiente, a aquel en que se emita dicha aprobación.
+h.Las reasignaciones serán aprobadas por el máximo jerarca. La fecha de vigencia será el primer día del mes siguiente, en que se emita dicha aprobación.
+(Así reformado por el artículo 3° del decreto ejecutivo N° 31878 del 8 de junio de 2004)
 i. Para verificar el cumplimiento de los requerimientos establecidos en el presente artículo, trimestralmente se remitirá un informe a la STAP que incluya una constancia del Encargado de Recursos Humanos sobre el cumplimiento de la normativa, el estudio técnico realizado, el listado de reasignaciones aprobadas, la fecha de rige de cada reasignación y el costo de éstas, así como la estructura ocupacional de la entidad al 1º de enero del año correspondiente.

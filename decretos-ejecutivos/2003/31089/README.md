@@ -14,3 +14,4 @@ Procedimiento para aplicación directrices y regulaciones de política salarial,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-01 | la propia norma |
+| 2 | 2004-06-08 | Decreto Ejecutivo 31878 (2004-06-08) |
