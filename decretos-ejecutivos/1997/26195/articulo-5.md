@@ -1,0 +1,1 @@
+Articulo 5°-Para la ejecución de los fines del Centro Alajuelense de la Cultura, el Ministerio de Cultura, Juventud y Deportes podrá contar con el apoyo de la "Asociación Centro Alajuelense de la Cultura". Asimismo contará con la colaboración de las dependencias técnicas y artísticas que conforman el Ministerio de Cultura, Juventud y Deportes.

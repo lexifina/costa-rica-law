@@ -1,0 +1,1 @@
+Articulo 6°-EI Centro Alajuelense de la Cultura será financiado con fondos que Ie asignen el Ministerio de Cultura, Juventud y Deportes, la Municipalidad de Alajuela, otras entidades públicas y privadas, así como otros recursos en el marco de la legislación nacional y de las regulaciones internas que operaran en el Centro.

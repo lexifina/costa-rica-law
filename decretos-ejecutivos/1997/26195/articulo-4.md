@@ -1,0 +1,1 @@
+Articulo 4°-El uso de las instalaciones y regulaciones para su funcionamiento será reglamentado por el Ministerio de Cultura, Juventud y Deportes, mediante la Dirección Regional de Cultura de Alajuela, de acuerdo con las políticas establecidas por la Dirección General de Cultura.

@@ -1,0 +1,1 @@
+Articulo 3°-El Ministerio de Cultura, Juventud y Deportes, mediante la Dirección Regional de Cultura de Alajuela, será el encargado de dirigir, coordinar, orientar y supervisar las labores técnicas y administrativas del Centro Alajuelense de la Cultura y podrá suscribir los acuerdos y convenios pertinentes para el logro de los fines del articulo segundo de este Decreto Ejecutivo.

@@ -1,0 +1,4 @@
+Articulo 2°-Los objetivos del Centro Alajuelense de la Cultura son los siguientes:
+a) Facilitar la integración de esfuerzos y recursos, la convergencia de necesidades y aspiraciones locales y regionales, que brinde a sus gestores instrumentos científicos, educativos, técnicos y artísticos para su posible concreción y proyección como manifestaciones propias de la comunidad alajuelense.
+b) Encauzar la acción cultural permanente en tomo al estimulo de la creatividad, investigación, capacitación, conocimiento y difusión de los distintos elementos y expresiones de su patrimonio histórico e identidad cultural.
+c) Albergar las distintas manifestaciones culturales en las áreas de teatro, danza, música, artes plásticas, salón multiuso, museo, documentación e información cultural, así como las oficinas administrativas y técnicas de las Direcciones Regionales de Cultura y Deportes y de la "Asociación Central Alajuelense de la Cultura".
