@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 11280
+
+Integración del Sector Finanzas
+
+- Tipo: Decreto Ejecutivo
+- Número: 11280
+- Fecha: 1980-02-27
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 59 del 1980-03-25
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9603&param2=10277&param3=1 (ficha 9603)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1980-03-25 | la propia norma |

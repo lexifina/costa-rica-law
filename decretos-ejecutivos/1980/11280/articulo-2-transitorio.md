@@ -1,0 +1,1 @@
+Transitorio II.- El Director de la Secretaría Ejecutiva de Planificación Sectorial de Finanzas, será nombrado dentro del plaño de un mes contado a partir de la fecha de celebración de la primera reunión del Consejo Nacional Sectorial.
