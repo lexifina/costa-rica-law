@@ -1,0 +1,1 @@
+Artículo 22.—Se derogan los siguientes decretos ejecutivos N° 22595-S del 14 de octubre de 1993, publicado en "La Gaceta" N° 202 del 22 de octubre de 1993; N° 23563-S del 5 de agosto de 1994, publicado en "La Gaceta" N° 164 del 30 de agosto de 1994 y N° 24601-S del 28 de agosto de 1995, publicado en "La Gaceta" N° 176 del 18 de septiembre de 1995.

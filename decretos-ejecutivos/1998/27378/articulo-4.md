@@ -1,0 +1,1 @@
+Artículo 4°—El relleno sanitario manual se utilizará como método de disposición final de los desechos ordinarios de poblaciones urbanas y rurales que generen menos de 20 toneladas diarias de estos desechos.

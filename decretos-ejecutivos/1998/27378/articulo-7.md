@@ -1,0 +1,9 @@
+Artículo 7°—Toda propiedad que se destine para la disposición de desechos ordinarios, mediante la técnica de relleno sanitario deberá presentar las siguientes características:
+a) Estar ubicado a una distancia que garantice que las zonas de recarga de acuíferos o de fuentes de abastecimiento de agua potable, estén libres de contaminación. Esta distancia será fijada por la autoridad competente según el artículo 68 de la Ley Forestal.
+b) El suelo debe reunir características de impermeabilidad, remoción de contaminantes y profundidad del nivel de aguas subterráneas, que garanticen la conservación de los acuíferos de la zona, en caso de que estos existan.
+c) Contar con suficiente material para la cobertura diaria de los desechos depositados durante su vida útil. En caso de no contar con material suficiente, se deberán presentar los planos de ubicación de los bancos de préstamo a los que se recurrirá, así como las formas de transporte y almacenamiento de dicho material, para aprobación de la Dirección de Protección al Ambiente Humano.
+d) Estar ubicado a una distancia de zonas de inundación, pantanos, marismas, cuerpos de agua y zonas de drenaje natural, que en cada caso definirá la Dirección de Protección al Ambiente Humano.
+e) Estar ubicado a una distancia de los centros urbanos, fijada en cada caso por la Dirección de Protección al Ambiente Humano, en un sitio con fácil y rápido acceso por carretera o camino transitable en cualquier época del año.
+f) Estar ubicado fuera de las áreas naturales protegidas, servidumbres de paso de acueductos, canales de riego, alcantarillados, oleoductos, y líneas de conducción de energía eléctrica.
+g) Estar ubicado a una distancia mínima de 60 metros de fallas geológicas que hayan tenido desplazamientos recientes.
+h)Otras que considere convenientes, según las condiciones particulares de cada zona y ajuicio de la Dirección de Protección al Ambiente Humano.
