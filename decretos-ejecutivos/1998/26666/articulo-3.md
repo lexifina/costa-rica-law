@@ -1,0 +1,1 @@
+Artículo 3°—Durante el período de publicación del decreto y la fijación del nuevo límite de gasto por parte de la Autoridad Presupuestaria, el Teatro se regirá por el límite de gasto establecido en el Decreto Ejecutivo N° 26006-H.
