@@ -18,8 +18,9 @@ Partida | Descripción
 87043121 | —— De peso total con carga máxima inferior o igual a 2 T.
 87043190 | —Otros
 87161000 | - Remolques y semirremolques para vivienda o acampar, del tipo caravana
-Las tarifas que se aplicarán a las anteriores mercancías, tomando como referencia para el año modelo el correspondiente al de aceptación de la declaración aduanera, excepto para los vehículos de peso total con carga máxima de cuatro a cinco toneladas, clasificados en los incisos arancelarios 87042112 y 87043112, son las siguientes:
-Característica del vehículo | Tarifa ISC
-VEHÍCULOS NUEVOS Y USADOS DE MODELOS DE HASTA TRES AÑOS ANTERIORES | 40%
-USADOS DE MODELOS DE CUATRO O CINCO AÑOS ANTERIORES | 50%
-USADOS DE MODELOS DE SEIS O MAS AÑOS ANTERIORES | 63%
+(*) Las tarifas que aplicarán a las anteriores mercancías, tomando como referencia para el año modelo el correspondiente al de aceptación de la declaración aduanera, excepto para los vehículos de peso total con carga máxima de cuatro a cinco toneladas, clasificados en los incisos arancelarios 87042112 y 87043112 son los siguientes:
+Características del vehículo | Tarifa ISC
+Vehículos nuevos y usados de modelos De hasta tres años anteriores | 30%
+Usados de modelos de cuatro a cinco años anteriores | 40%
+Usados de modelos de seis o más años anteriores | 53%
+(*) (Así reformado el párrafo segundo anterior por el artículo 1° del decreto ejecutivo N° 29367 del 7 de marzo de 2001)
