@@ -1,6 +1,6 @@
 # Convención de Derecho Internacional Privado - Código de Bustamante
 
-Ley N° 50 del 1928-12-13. SINALEVI, ficha 417: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=417&param2=439&param3=1>.
+Ley N° 50 del 1928-12-13. SINALEVI, ficha 417: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=417&param2=440&param3=1>.
 
 Publicada en La Gaceta N° 30 del 1930-02-06.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 1930-02-06 | Ley 50 | 1928-12-13 |
+| 2 de 2 | 1930-02-06 | Decreto Ejecutivo 2 (1929-11-01) | 1928-12-13 |

@@ -1,8 +1,2 @@
 ARTICULO 30
-Cada Estado aplica su propia legislación para declarar extinguida
-la personalidad civil por la muerte natural de las personas
-individuales y la desaparición o disolución oficial de las personas
-jurídicas, así como para decidir si la menor de edad, la demencia o
-imbecilidad, la sordomudez, la prodigalidad y la interdicción civil son
-únicamente restricciones de la personalidad, que permiten derechos y
-aun ciertas obligaciones.
+Cada Estado aplica su propia legislación para declarar extinguida la personalidad civil por la muerte natural de las personas individuales y la desaparición o disolución oficial de las personas jurídicas, así como para decidir si la menor de edad, la demencia o imbecilidad, la sordomudez, la prodigalidad y la interdicción civil son únicamente restricciones de la personalidad, que permiten derechos y aun ciertas obligaciones.
