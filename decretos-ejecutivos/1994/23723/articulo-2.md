@@ -1,0 +1,7 @@
+Artículo 2°—De sus facultades y obligaciones:
+a) Administrar el servicio público de transbordo de pasajeros y carga por el Río Tempisque, entre Puerto Alegre de Cañas y Puerto Moreno de Nicoya.
+b) Analizar y recomendar al Ministro de Obras Públicas y Transportes sobre el futuro de la prestación del servicio y de los bienes del Estado que se utilizan para la ejecución de la explotación de esa línea de cabotaje, así como los procedimientos para su logro.
+c) Tomar las medidas necesarias para la modernización, mantenimiento y seguridad adecuados de la Unidad de Transbordador Ferry Tempisque, de su infraestructura y de todos los bienes que se utilizan en la prestación del servicio.
+d) Tomar todas las medidas necesarias en lo administrativo, operativo y técnico, con el fin de garantizar la prestación de un servicio público en el citado Ferry que sea eficiente, continuo y seguro para los usuarios y sus trabajadores.
+e) Seguir con los procedimientos y actuaciones que ha venido ejerciendo la Dirección General de Transporte Marítimo en cuanto a la administración del servicio público de transbordo de pasajeros y carga en el Río Tempisque. Incluso en lo actuado dentro del procedimiento licitatorio 35-93 promovido por la Proveeduría Nacional del Ministerio de Hacienda.
+f) Rendir un informe semestral al Ministro de Obras Públicas y Transportes de todos los asuntos concernientes al servicio público de transbordo de pasajeros y carga por el Río Tempisque.
