@@ -1,13 +1,6 @@
-SECCION VII
-RÉGIMEN DE IMPORTACION Y EXPORTACION TEMPORAL
-ARTICULO 165.- Régimen de importación temporal
-La importación temporal es el régimen aduanero que permite el
-ingreso, por un plazo determinado, de mercancías a territorio aduanero con
-suspensión de los tributos a la importación. Las mercancías deberán ser
-reexportadas o importadas definitivamente sin modificación o
-transformación alguna, dentro del plazo que se establezca por vía
-reglamentaria, de acuerdo con la finalidad de la importación. Este plazo
-no podrá exceder de un año.
-Las mercancías importadas temporalmente deberán ser claramente
-identificables por cualquier medio razonable que establezca la autoridad
-aduanera y cumplir con las regulaciones no arancelarias aplicables.
+SECCIÓN VII
+RÉGIMEN DE IMPORTACIÓN Y EXPORTACIÓN TEMPORAL
+ARTÍCULO 165.—Régimen de importación temporal.
+La importación temporal es el régimen aduanero que permite el ingreso, por un plazo determinado, de mercancías a territorio aduanero con suspensión de los tributos a la importación. Las mercancías deberán ser reexportadas o importadas definitivamente sin modificación ni transformación alguna, dentro del plazo que se establezca por la vía reglamentaria y de acuerdo con la finalidad de la importación. Este plazo no podrá exceder de un año, salvo en el caso de la importación temporal de aeronaves a que se refiere el inciso j) del artículo siguiente. La vigencia de la importación temporal referida en ese inciso, estará determinada por el plazo establecido en el contrato, debidamente aprobado por la Dirección General de Aviación Civil, el cual no podrá exceder de cinco años. Para poder acogerse a este régimen, esas empresas no requerirán el otorgamiento de garantía.
+Las mercancías importadas temporalmente deberán ser claramente identificables, por cualquier medio razonable que establezca la autoridad aduanera y deberán cumplir con las regulaciones no arancelarias aplicables.
+(Así reformado por el artículo 4° de la ley N° 8419 del 28 de junio de 2004)
