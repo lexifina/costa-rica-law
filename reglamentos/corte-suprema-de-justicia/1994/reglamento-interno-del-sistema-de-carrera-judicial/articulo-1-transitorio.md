@@ -1,0 +1,1 @@
+Transitorio I: Mientras no sea posible contar con personal exclusivo, especialista en recursos humanos, se ocupará, para integrar la Unidad Interdisciplinaria indicada en artículo 3°, a los profesionales y técnicos que en este Reglamento laboran para el Departamento.

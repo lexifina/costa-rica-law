@@ -1,0 +1,1 @@
+Artículo 6°-También será responsabilidad del Departamento, el llevar, en forma actualizada y ordenada, las listas de elegibles, para los distintos puestos que integran la Carrera, conforme a lo resuelto por el Consejo de la Judicatura.
