@@ -1,1 +1,0 @@
-Artículo 29.—El plazo máximo que se concede al moroso para atender su obligación mediante un arreglo de pago no excederá los tres meses calendario, contados a partir de la firma del documento respectivo. El pago inicial debe ser como mínimo de un 50% del total de la obligación.
