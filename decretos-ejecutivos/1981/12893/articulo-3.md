@@ -1,0 +1,1 @@
+“Artículo 3°—Serán miembros de la Corporación, las Partes Contratantes que hayan ratificado el Convenio, de acuerdo a su ordenamiento jurídico y/o aquéllos que voluntariamente decidan adherirse al mismo, de conformidad con los procedimientos establecidos al efecto en el Convenio”.

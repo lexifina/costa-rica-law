@@ -1,0 +1,1 @@
+“Artículo 21.—En caso de producirse remoción o renuncia del Gerente General por cualquier causa, a la parte contratante, la que corresponda el período, deberá proponer candidato para concluir el período establecido y en tanto se incorpore el nombrado por la Corporación, se recargarán sus funciones en la Subgerencia Técnica”.

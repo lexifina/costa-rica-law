@@ -1,0 +1,1 @@
+“Artículo 18.—Las reuniones se celebrarán en forma rotativa, en cada una de las Partes Contratantes, excepto la cuarta reunión que deberá ser obligatoriamente en la sede de la Corporación, a menos que el Consejo Directivo decida lo contrario”.

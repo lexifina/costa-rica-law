@@ -1,0 +1,1 @@
+“Artículo 15.—Las reuniones extraordinarias se celebrarán a solicitud de cualquiera de los miembros representantes de las Partes Contratantes o del Gerente General, con indicación específica del tema por tratar, el cual consignará el Secretario del Consejo Directivo al practicar la convocatoria”.

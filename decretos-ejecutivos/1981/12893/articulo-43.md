@@ -1,0 +1,1 @@
+“Artículo 43.—El período de nombramiento del actual Gerente General terminará seis meses después de entrar en vigencia los presentes estatutos, con-templándose al mismo tiempo, un período adicional a tres meses para que el Gerente saliente asista al nuevo Gerente, percibiendo sus mismos emolumentos”.

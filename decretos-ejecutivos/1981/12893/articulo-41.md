@@ -1,0 +1,1 @@
+“Artículo 41.—El idioma oficial de la Corporación: será el español. Los idiomas que se usarán en las operaciones de control de tránsito aéreo, de las cuales sea responsable la Corporación, serán el español e inglés, sin perjuicio del que posteriormente adopte la Organización de Aviación Civil Internacional (OACI)”.

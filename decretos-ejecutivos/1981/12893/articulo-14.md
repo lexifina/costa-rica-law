@@ -1,0 +1,1 @@
+“Artículo 14.—El Consejo Directivo podrá celebrar reuniones extraordinarias según lo demanden los intereses de la Corporación, en cuyo caso la convocatoria se efectuará por el medio que consigna el artículo anterior; excepción hecha del plazo, que podrá reducirse dependiendo de la urgencia de los asuntos a tratar, siempre que no sea menor de cinco días”.
