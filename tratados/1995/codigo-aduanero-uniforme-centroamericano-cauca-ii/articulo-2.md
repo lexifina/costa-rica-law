@@ -1,0 +1,6 @@
+ARTICULO 2.- El Código Aduanero Uniforme Centroamericano II se
+fundamenta en los principios de flexibilidad y simplificación en sus
+procedimientos, responsabilidad, profesionalización técnica y profesional
+de los agentes internos y externos; servicio personalizado, domiciliario
+y armonizado en su acción hacia el usuario; y compatibilización de los
+servicios aduaneros para el desarrollo del comercio internacional.

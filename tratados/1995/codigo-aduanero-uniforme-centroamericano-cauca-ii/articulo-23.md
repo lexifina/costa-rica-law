@@ -1,0 +1,7 @@
+ARTICULO 23.- Toda mercancía que vaya a ser embarcada en cualquier
+puerto marítimo, aéreo o terrestre, deberá ser presentada y puesta a
+disposición de la Aduana en el lugar y plazo que establezca la legislación
+nacional.
+La Aduana verificará que las mercancías indicadas en el Manifiesto de
+Carga hayan sido efectivamente embarcadas, dejando constancia en el
+documento de exportación de las que no lo fueron.

@@ -1,0 +1,5 @@
+ARTICULO 20.- Habiéndose producido un arribo forzoso, de cualquier
+medio de transporte en un puerto, aeropuerto o punto del país, distinto al
+de su destino, obliga al transportista, tan pronto las circunstancias lo
+permitan, a comunicar el hecho a la autoridad local más cercana,
+procediendo a señalar las causas que lo originaron.

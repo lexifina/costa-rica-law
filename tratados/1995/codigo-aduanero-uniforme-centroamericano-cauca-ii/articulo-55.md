@@ -1,0 +1,6 @@
+ARTICULO 55.- Podrán acogerse al beneficio de la reimportación con
+liberación total de derechos e impuestos, la totalidad o parte de las
+mercancías que se hubiesen exportado definitivamente y que retornen al
+país, siempre que no hayan sufrido en el exterior ninguna transformación,
+elaboración o reparación, dentro del plazo que al efecto se establezca en
+los convenios o en la legislación nacional, en su defecto.

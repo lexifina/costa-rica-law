@@ -1,0 +1,4 @@
+ARTICULO 89.- Cuando la reclamación se origine por discrepancias en
+la determinación de la Obligación Tributaria Aduanera, podrá otorgarse el
+levante de las mercancías previo pago o garantía por el total de los
+tributos, sin perjuicio de lo que disponga la ley nacional.

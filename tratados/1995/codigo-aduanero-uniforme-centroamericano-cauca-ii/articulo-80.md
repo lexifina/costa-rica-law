@@ -1,0 +1,4 @@
+ARTICULO 80.- La Autoridad Aduanera, a petición del declarante,
+compensará la deuda tributaria de este con cargo a las Notas de Crédito
+que presente, o cualquier otro crédito que posea contra el Fisco por
+concepto de tributos.

@@ -1,0 +1,10 @@
+TITULO SEGUNDO
+DE LA RECEPCION LEGAL DE LAS MERCANCIAS Y DEMAS
+FORMALIDADES A LA LLEGADA Y SALIDA DE LOS
+MEDIOS DE TRANSPORTE
+CAPITULO III
+DEL PASO DE LAS PERSONAS, MERCANCIAS Y MEDIOS DE
+TRANSPORTE POR LAS FRONTERAS ADUANERAS
+ARTICULO 16.- El paso de personas, mercancías y medios de transporte
+sólo podrá efectuarse por los lugares habilitados por la legislación
+aduanera nacional.

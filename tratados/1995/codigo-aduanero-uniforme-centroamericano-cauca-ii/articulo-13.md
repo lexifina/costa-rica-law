@@ -1,0 +1,4 @@
+ARTICULO 13.- El personal aduanero está obligado a conocer y aplicar
+las disposiciones del Convenio sobre el Régimen Arancelario y Aduanero
+Centroamericano, sus Anexos, este Código y demás disposiciones legales
+aplicables en materia aduanera.

@@ -1,0 +1,6 @@
+ARTICULO 104.- La Secretaría General de la Organización de Estados
+Centroamericanos será depositaria del presente instrumento, del cual
+enviará copia certificada a la Cancillería de cada uno de los Estados
+Contratantes y a la Secretaría Permanente del Tratado General de
+Integración Económica Centroamericana, a quienes notificará inmediatamente
+del depósito de cada uno de los instrumentos de ratificación.

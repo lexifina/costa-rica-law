@@ -1,0 +1,13 @@
+ARTICULO 59.- La Autoridad Aduanera competente podrá autorizar la
+tramitación de declaraciones de importación por mercancías no llegadas o
+no entregadas a los depósitos aduaneros, cuando por la naturaleza de las
+mismas deban ser retiradas de los recintos aduaneros; bajo iguales
+circunstancias se permitirá el retiro de aquellas mercancías que se
+encuentran en depósito y que a juicio de la autoridad, se justifique el
+retiro inmediato.
+En el primer caso, la comprobación y liquidación definitiva del
+documento de despacho aduanero, se hará a la llegada de las mercancías;
+previo a dicho momento se podrán liquidar los tributos a la importación de
+acuerdo a las informaciones y documentos suministrados por el declarante
+y el monto de la obligación tributaria aduanera se caucionará con garantía
+a satisfacción de la autoridad aduanera.

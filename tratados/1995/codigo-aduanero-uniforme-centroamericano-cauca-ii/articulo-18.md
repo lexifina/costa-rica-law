@@ -1,0 +1,5 @@
+ARTICULO 18.- La autoridad aduanera, con anterioridad a la recepción
+legal o con posterioridad a ella, podrá adoptar las medidas de control que
+considere pertinente, debiendo informar a las autoridades competentes
+sobre toda mercancía que atente contra la salud, la moral o el orden
+público.

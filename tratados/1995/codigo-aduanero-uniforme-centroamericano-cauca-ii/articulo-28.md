@@ -1,0 +1,7 @@
+ARTICULO 28.- Las mercancías que consten en el Manifiesto de Carga y
+que no sean descargadas se considerarán faltantes, y sobrantes los que
+excedan a la cantidad señalada, sujetando al responsable a las sanciones
+previstas por la infracción cometida.
+La legislación nacional respectiva señalará sanciones, plazos y
+procedimientos para justificar a la Aduana las faltas o excesos de
+mercancías en relación al Manifiesto de Carga.

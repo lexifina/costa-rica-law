@@ -1,0 +1,4 @@
+ARTICULO 79.- Pago efectivo es el que se realiza por el deudor o
+cualquier otra persona a su nombre, en moneda nacional de curso legal o
+mediante cheques, giros bancarios autorizados y otras formas de pago
+establecidas en la legislación nacional.
