@@ -1,1 +1,1 @@
-Articulo 17.—Los Directores de la Municipalidad de Pococí pueden disfrutar el pago de la Dedicación Exclusiva, por el solo hecho de ocupar sus cargos, sin cumplir los requisitos que se establecen en articulo N° 3, sometidos al resto de las obligaciones que se establecen en la presente resolución.
+Articulo 17.—(Este artículo fue Derogado mediante acuerdo N° 506 de la sesión N° 69 del 9 de noviembre de 2000)

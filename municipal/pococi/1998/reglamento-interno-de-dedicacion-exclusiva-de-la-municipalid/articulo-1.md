@@ -1,4 +1,5 @@
 MUNICIPALIDAD DE POCOCI
 REGLAMENTO INTERNO DE DEDICACION EXCLUSIVA
 Disposiciones Generales
-Articulo l°—La dedicación exclusiva es el ejercicio del servidor únicamente para el órgano publico en el que labora, por lo que no podrá ejercer de manera particular -remunerado o ad honorem- la profesión que sirve como requisito para desempeñar el puesto que ostenta, ni actividades relacionadas con esta con las excepciones que se señalan en, la presente resolución. Lo anterior implicara una retribución económica según los términos de esta resolución y su respectivo contrato.
+Artículo 1°—Considerando la necesidad municipal de contar con los servicios de sus funcionarios con grado académico de profesional, que ocupen puestos cuya naturaleza amerite la dedicación exclusiva en el cantón de Pococí, se dicta et presente Reglamento Interno Dedicación Exclusiva para los Funcionarios de la Municipalidad de Pococí.
+(Así reformado mediante acuerdo N° 506 de la sesión N° 69 del 9 de noviembre de 2000)

@@ -14,3 +14,4 @@ Reglamento Interno de Dedicación Exclusiva de la Municipalidad de Pococí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-07 | la propia norma |
+| 2 | 2000-11-09 | Reglamento municipal 69 (2000-11-09) |
