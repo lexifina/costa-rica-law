@@ -1,0 +1,2 @@
+Artículo III.El depósito de Marca de Fábrica o de Comercio en uno de los Estados signatarios, crea a favor del depositante un derecho de prioridad durante un plazo de seis meses, con el fin de que pueda hacer el depósito en los otros Estados.
+En consecuencia, el depósito hecho posteriormente antes del vencimiento de ese plazo, no podrá anularse por actos ejecutados en el intervalo, especialmente por otro depósito, por la publicación o el uso de la marca.

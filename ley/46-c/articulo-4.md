@@ -1,0 +1,1 @@
+Artículo IV. Se considera Marca de Comercio o de Fábrica, todo signo, emblema o nombre especial que los comerciantes o industriales adopten o apliquen en sus artículos o productos, para distinguirlos de los otros industriales o comerciantes que fabriquen o negocien en artículos de la misma especie.

@@ -1,0 +1,2 @@
+Artículo V. No podrán adoptarse o usarse como Marca de Fábrica o de Comercio, las banderas o escudos nacionales, provinciales o municipales; las figuras inmorales o escandalosas; los distintivos que se hayan ya obtenido por otros o que den lugar a confusión con otras marcas; las denominaciones generales de artículos; los retratos o nombres de personas sin su permiso; y cualquier dibujo que haya sido adoptado como emblema por alguna asociación fraternal o humanitaria.
+El precepto anterior se entenderá sin perjuicio de lo que disponga la legislación interna de cada país.

@@ -1,0 +1,2 @@
+Artículo II. Toda marca debidamente registrada en uno de los 'Estados signatarios, se considerará registrada también en los demás países de la Unión, sin perjuicio de los derechos de un tercero y de los preceptos de la legislación interna de cada Nación.
+Para gozar de este beneficio deberá el industrial o comerciante interesado en el Registro de la Marca, contribuir, además de los derechos o emolumentos fijados en la legislación interna, con la suma de $ 50.00 (dollars) por una vez, que se destinará a cubrir los gastos de Registro Internacional de la respectiva oficina.

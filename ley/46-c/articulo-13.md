@@ -1,0 +1,2 @@
+Artículo XIII. La oficina establecida en la ciudad de la Habana tendrá a su cargo los registros de las Marcas de Comercio y de Fábrica que procedan de los Estados Unidos de América, México, Cuba, Haití, República Dominicana, El Salvador, Honduras, Nicaragua, Costa Rica, Guatemala y Panamá.
+La oficina establecida en la ciudad de Río de Janeiro tendrá a su cargo los registros de las Marcas de Comercio y de Fábrica que procedan del Brasil, Uruguay, Argentina, Paraguay, Bolivia, Chile, Perú, Ecuador, Venezuela y Colombia.

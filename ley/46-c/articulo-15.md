@@ -1,0 +1,3 @@
+Artículo XV.Las oficinas internacionales se regirán por un mismo Reglamento, redactado de acuerdo por los Gobiernos de las Repúblicas de Cuba y los Estados Unidos del Brasil, y aprobados por todos los demás Estados signatarios.
+Los presupuestos de gastos serán aprobados por dichos Gobiernos y costeados por todos los Estados signatarios, en una proporción igual a la establecida por la Oficina Internacional de las Repúblicas Americanas en Washington, y a ese respecto, esas oficinas estarán bajo el control de los Gobiernos en cuyos países tengan su asiento.
+Las Oficinas Internacionales podrán adoptar los Reglamentos interiores que crean convenientes para el cumplimiento de lo estipulado en esta Convención, siempre que no estén en contradicción con los términos de ella.
