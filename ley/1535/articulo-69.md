@@ -1,1 +1,1 @@
-Artículo 69.- La persona que usare o tratare de usar como suya una cédula de identidad que no sea la propia, incurrirá en las sanciones que señala el artículo 426 del Código Penal.
+Artículo 69.- (Derogado por el artículo 6° de la ley N° 2403 del 22 de julio de 1959, "Disposiciones sobre la adquisición y portación de la cédula de identidad")

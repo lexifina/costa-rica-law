@@ -1,1 +1,1 @@
-Artículo 70.- La persona que requerida por la autoridad en ejercicio de sus funciones se negare sin razón justificada a mostrar su cédula de identidad, incurrirá en las penas que prescribe el artículo 139 del Código de Policía.
+Artículo 70.- (Derogado por el artículo 6° de la ley N° 2403 del 22 de julio de 1959, "Disposiciones sobre la adquisición y portación de la cédula de identidad")
