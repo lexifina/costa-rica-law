@@ -15,3 +15,4 @@ Reglamento de Caja Chica de la Municipalidad de San Pablo
 | --- | --- | --- |
 | 1 | 1998-01-16 | la propia norma |
 | 2 | 1999-05-11 | Reglamento municipal 289 (1999-05-11) |
+| 3 | 2000-08-29 | Reglamento municipal 693 (2000-08-29) |
