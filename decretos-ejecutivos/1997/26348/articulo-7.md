@@ -1,0 +1,1 @@
+Artículo 7°-Esta comisión se encargará de elaborar los programas de capacitación y coordinación con la Fiscalía Ecológica del Ministerio Público con el fin de establecer un monitoreo constante de las denuncias presentadas ante los tribunales.

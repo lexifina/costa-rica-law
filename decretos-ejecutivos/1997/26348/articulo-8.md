@@ -1,0 +1,1 @@
+Artículo 8°-La Comisión velará por el cumplimiento de las funciones de los guarda bosques y ante la denuncia de cualquier irregularidad cometida y previo cumplimiento del debido proceso podrá recomendar el despido del funcionario o bien que se apliquen las sanciones establecidas en el Reglamento Autónomo del Ministerio
