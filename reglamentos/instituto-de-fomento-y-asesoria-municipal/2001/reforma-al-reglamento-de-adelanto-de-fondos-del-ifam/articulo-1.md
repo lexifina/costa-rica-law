@@ -1,0 +1,6 @@
+INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+REGLAMENTO DE ADELANTO DE FONDOS DEL IFAM
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal mediante acuerdo quinto, artículo cinco de la sesión extraordinaria N° 3145, celebrada por la Junta Directiva a las 11,30 horas del día 5 de diciembre del 2001, resolvió modificar el artículo 16 del referido Reglamento, para que se lea de la siguiente forma:
+"Artículo 16°—La Sección de Contabilidad y Finanzas contará con un plazo de ocho días hábiles para pronunciarse sobre la liquidación. De previo a la aceptación de la liquidación del Adelanto de Fondos, verificará que únicamente se incluyan en la misma los bienes y servicios inicialmente autorizados, salvo modificaciones debidamente justificadas y autorizadas; asimismo, deberá considerar el Informe de la Sección de Proveeduría en el que se ponderó la conformidad de los procedimientos de contratación seguidos con la normativa que regula la materia.
+De haberse incurrido en gastos ajenos a los que motivaron el Adelanto de Fondos, se requerirá Ja autorización de la Dirección Ejecutiva, previa presentación de la evidencia que demuestre la validez de sus justificaciones".
+Moravia, 12 de diciembre del 2001.—Sección Contabilidad y Finanzas.—Lic. Adrián Salazar Vega, Jefe.
