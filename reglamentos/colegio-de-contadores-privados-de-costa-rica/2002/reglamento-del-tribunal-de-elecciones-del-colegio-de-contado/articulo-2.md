@@ -1,0 +1,1 @@
+Artículo 2º—El Tribunal estará integrado por cinco miembros, electos en asamblea general extraordinaria que se realizará el segundo domingo de diciembre de cada año. Estos miembros ocuparán los cargos de presidente, vicepresidente, secretario, primer vocal y segundo vocal.

@@ -1,0 +1,3 @@
+Artículo 22.—Al inicio de la recepción de votos se instalarán las juntas receptoras, las cuales estarán integradas por un miembro de cada tendencia, un fiscal de mesa y un delegado nombrado por el Tribunal. Para cada uno de los puestos dentro de la Junta Receptora de Votos se nombrarán suplentes, los que tendrán las mismas facultades en ausencia del propietario.
+El propietario, los fiscales y los suplentes de éstos serán juramentados por el Tribunal antes de la Asamblea de Elecciones.
+La responsabilidad en la conformación de cada junta receptora de votos será de cada tendencia que participa, y deberán ser de conocimiento del Tribunal el nombre y las calidades de cada uno de sus miembros de mesa, sean propietarios o suplentes.

@@ -1,0 +1,3 @@
+Artículo 13.—La resolución que emita el Tribunal sobre la inscripción de tendencias tendrá recurso de revocatoria y apelación en subsidio ante el Tribunal, como primera instancia.
+En caso de que haya una apelación en subsidio, ésta se realizará en efecto evolutivo ante una comisión como segunda instancia, formada por los fiscales del Fasmu, el CECAP, la Junta Directiva y el asesor legal del Colegio. El presidente de la Comisión será el fiscal de la Junta Directiva. Las decisiones de ésta se tomarán por mayoría de votos en un lapso de cinco días hábiles y contra ellas no cabrá recurso alguno El asesor legal actuará en el plano administrativo, con voz pero sin voto.
+Para interponer la revocatoria y apelación en subsidio los interesados tendrán tres días hábiles.

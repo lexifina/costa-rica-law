@@ -1,0 +1,1 @@
+Artículo 14.—Para la inscripción de las tendencias el Tribunal mantendrá el orden cronológico de presentación de las solicitudes en cuanto a nombre, divisa y colores. No serán aceptados aquellos otros que tiendan a confundir a los electores según el criterio del Tribunal. No podrán usarse los símbolos nacionales ni los del Colegio para fines electorales.

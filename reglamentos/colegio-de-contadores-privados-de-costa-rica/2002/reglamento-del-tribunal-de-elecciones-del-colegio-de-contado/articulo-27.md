@@ -1,0 +1,1 @@
+Artículo 27.—Una vez emitido el voto, el secretario de la Junta Receptora escribirá, en el margen derecho del padrón electoral y a la par del nombre del colegiado, la frase "sí votó", lo cual dará fe de que el sufragio fue emitido.

@@ -1,0 +1,1 @@
+Artículo 12.—Una vez recibida la solicitud de inscripción, el Tribunal procederá a emitir la resolución correspondiente. Las tendencias tendrán ocho días naturales para corregir las deficiencias que hubiere señalado el Tribunal de Elecciones. Las modificaciones quedarán inscritas por un período de elecciones y su situación no podrá cambiar una vez aprobadas.

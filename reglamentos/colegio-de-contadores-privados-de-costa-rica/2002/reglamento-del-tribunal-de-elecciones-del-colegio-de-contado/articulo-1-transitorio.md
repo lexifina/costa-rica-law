@@ -1,0 +1,4 @@
+Disposiciones generales
+Para la elección a distancia de miembros de Junta Directiva de los Consejos Regionales, el Tribunal nombrará a dos delegados que supervisarán el proceso eleccionario.
+En todas sus actuaciones, el Tribunal debe regirse por la Ley Nº 1269 y su Reglamento, así como por las leyes conexas, en forma supletoria.
+Artículo Transitorio.—Se entiende por tendencia, aquel grupo de colegiados o de individuos que ostenten la participación en forma individual o grupal para ser electos en puestos de la Junta Directiva del Colegio de Contadores Privados de Costa Rica. Con tal carácter, el grupo puede generar la inscripción de más de uno o dos candidatos, lo que no lo exime de la obligación de inscribir una junta directiva. Se llamará papeleta a aquella que se inscriba con tres o más candidatos, de acuerdo con el artículo 11 de este Reglamento.

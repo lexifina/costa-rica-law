@@ -1,0 +1,1 @@
+Artículo 20.—Tendrán derecho al voto aquellos colegiados que se encuentren debidamente inscritos en la Asamblea de Elección. Dicha inscripción podrá realizarse antes de su cierre. Para realizar la votación, el Tribunal tomará las medidas pertinentes a fin de que el colegiado inscrito que se encuentre dentro del recinto pueda emitir su voto.

@@ -1,0 +1,2 @@
+Artículo 11.—Los colegiados podrán organizar libremente sus tendencias. Para inscribirlas, los interesados deberán presentar formal solicitud ante el Tribunal, en la que consignarán el nombre de la tendencia, los colores de la divisa, la conformación de su junta directiva, el nombre y las calidades del fiscal general que fungiría como representante ante el Tribunal.
+Para inscribir a sus candidatos deberán aportar el nombre, la firma, el número de colegiado y una fotografía tamaño pasaporte, e indicar los nombres de los puestos a que aspiran titulares y suplentes.

@@ -1,0 +1,1 @@
+Artículo 28.—El fiscal general de cada tendencia, debidamente acreditado ante el Tribunal, tendrá derecho a fiscalizar el proceso electoral y a que se le facilite la información necesaria para el buen cumplimiento de sus funciones durante el proceso electoral.
