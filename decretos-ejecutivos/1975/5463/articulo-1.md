@@ -1,4 +1,6 @@
+(Derogado)
 N° 5463-SPPS
+(Este decreto fue derogado por el artículo 12° del Reglamento para las Investigaciones en que Participan Seres Humanos, aprobado mediante decreto ejecutivo N° 27349 del 16 de setiembre de 1998)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE SALUD,
 En uso de las facultades que les confieren los incisos 3) y 18) del artículo 140 de la Constitución Política,
