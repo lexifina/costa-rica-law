@@ -15,3 +15,4 @@ Crea el Consejo Asesor Intergubernamental para las Negociaciones del Tratado de 
 | --- | --- | --- |
 | 1 | 2002-08-30 | la propia norma |
 | 2 | 2002-12-13 | Decreto Ejecutivo 30916 (2002-12-13) |
+| 3 | 2003-01-14 | Decreto Ejecutivo 30957 (2003-01-14) |
