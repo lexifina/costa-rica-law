@@ -1,0 +1,1 @@
+Artículo 101.—La Sección de Recursos Humanos establecerá las sanciones que deban aplicarse a un funcionario, y se recomendará su aplicación a la Junta Directiva. Corresponderá a la Presidencia Ejecutiva resolver sobre el despido. A la jefatura de la Sección de Recursos Humanos le corresponderá resolver también sobre las sanciones derivadas del control de asistencia.

@@ -1,0 +1,1 @@
+Artículo 116.—En caso de existir alguna laguna en el presente capítulo, se aplicarán en forma supletoria, las disposiciones procedimentales de la Ley General de la Administración Pública, así como las demás normas y procedimientos escritos o no escritos del ordenamiento jurídico administrativo.

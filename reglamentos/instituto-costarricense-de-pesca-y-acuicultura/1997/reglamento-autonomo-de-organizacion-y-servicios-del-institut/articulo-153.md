@@ -1,0 +1,1 @@
+Artículo 153.—Al acogerse la denuncia, el caso será instruido e investigado por la Jefatura de Recursos Humanos, en un plazo máximo de treinta días hábiles, brindando su recomendación a la Presidencia Ejecutiva como corresponde.

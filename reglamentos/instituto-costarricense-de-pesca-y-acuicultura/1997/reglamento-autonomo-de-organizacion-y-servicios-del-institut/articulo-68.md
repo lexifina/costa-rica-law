@@ -1,0 +1,1 @@
+Artículo 68.—Conforme a lo dispuesto en el artículo 80 del Código de Trabajo la Administración Superior podrá destituir al servidor que haya permanecido incapacitado por más de seis meses consecutivos, cubriendo a este el importe de las prestaciones legales que pudieran corresponderle.

@@ -1,0 +1,2 @@
+Artículo 67.—Cuando se trate de servidores asegurados con la Caja Costarricense de Seguro Social, el Instituto completará el monto del subsidio en los porcentajes y períodos indicados. Los subsidios y licencias por razón de maternidad, se regularán por las disposiciones del Reglamento de Salud de la Caja Costarricense del Seguro Social.
+En el caso de servidores incapacitados mediante la Póliza de Riesgos del Trabajo suscrita con el Instituto Nacional de Seguros, el INCOPESCA no está obligado a reconocer subsidio salarial durante la incapacidad de un trabajador.

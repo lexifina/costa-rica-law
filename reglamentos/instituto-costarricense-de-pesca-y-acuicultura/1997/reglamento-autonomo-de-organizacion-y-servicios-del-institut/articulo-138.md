@@ -1,0 +1,1 @@
+Artículo 138. — En todo caso y de conformidad con el artículo 604 del Código de Trabajo, el servidor podrá interponer la demanda judicial contra el despido o la corrección disciplinaria que se le aplique dentro de los dos meses siguientes a la fecha en que se dictó la resolución.

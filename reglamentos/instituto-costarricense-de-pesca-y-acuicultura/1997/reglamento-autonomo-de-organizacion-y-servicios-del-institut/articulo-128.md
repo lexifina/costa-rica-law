@@ -1,0 +1,1 @@
+Artículo 128.—A partir del momento en que la Jefatura de Recursos Humanos reciba todos los informes y atestados resultantes de la instrucción del procedimiento disciplinario, contará con un plazo improrrogable de un mes para dictar la resolución que corresponda. Los efectos de dicha resolución empezarán a regir a partir del día siguiente de la notificación.

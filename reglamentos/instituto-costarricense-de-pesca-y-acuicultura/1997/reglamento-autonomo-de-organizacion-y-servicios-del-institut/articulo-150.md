@@ -1,0 +1,1 @@
+Artículo 150.—El procedimiento deberá ser llevado a cabo resguardando la imagen de las partes y la confidencialidad de los hechos, so pena de incurrir en falta grave los funcionarios que intervinieren.

@@ -1,0 +1,1 @@
+Artículo 161.—El INCOPESCA se reserva el derecho de adicionar o modificar en cualquier momento, las disposiciones de este Reglamento, cumpliendo con lo dispuesto por el artículo 136, inciso e) de la Ley General de la Administración Pública.

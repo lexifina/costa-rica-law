@@ -1,0 +1,1 @@
+Artículo 62.—Las vacaciones no podrán acumularse por más de dos períodos consecutivos y sólo excepcionalmente, cuando el servidor desempeñe labores técnicas de dirección, de confianza u otras análogas que hagan difícil su reemplazo. A este efecto, la jefatura respectiva solicitará a la Sección de Recursos Humanos la correspondiente autorización.

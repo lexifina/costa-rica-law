@@ -1,0 +1,4 @@
+Artículo 10.—Las relaciones de servicio serán:
+a. Por tiempo indefinido: son aquellos servidores necesarios para la ejecución de labores de naturaleza permanente.
+b. Por tiempo determinado: son aquellos servidores nombrados interinamente para sustituir a titulares ausentes por vacaciones, licencias, permisos e incapacidades, así como los que excepcionalmente, deban reclutarse para la ejecución de tareas de naturaleza temporal. Estas relaciones de servicio son susceptibles de prórroga, de conformidad con lo establecido en el Código de Trabajo. mes, salvo disposición en contrario de la Administración Superior,
+c. Por obra determinada: son aquellos servidores nombrados para cubrir necesidades eventuales de personal en relación con la ejecución de determinados proyectos. El objeto de la prestación del servicio será la tarea o tareas específicas que dieron lugar al respectivo nombramiento.

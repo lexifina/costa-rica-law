@@ -1,0 +1,1 @@
+Artículo 136. — El recurso de revocatoria deberá de resolverse dentro de los ocho días hábiles posteriores a su presentación y el de apelación dentro de los quince días posteriores al recibo del expediente.

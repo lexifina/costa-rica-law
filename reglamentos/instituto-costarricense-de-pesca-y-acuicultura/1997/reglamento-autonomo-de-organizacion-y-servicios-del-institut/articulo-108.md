@@ -1,0 +1,1 @@
+Artículo 108.—Los despidos de los servidores amparados por el Régimen de Servicio Civil, se tramitarán conforme con lo dispuesto por el Estatuto de Servicio Civil, su Reglamento y las disposiciones contenidas en este Reglamento.

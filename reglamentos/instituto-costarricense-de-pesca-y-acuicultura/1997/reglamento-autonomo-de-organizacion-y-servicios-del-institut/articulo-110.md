@@ -1,0 +1,1 @@
+Artículo 110.—El fin primordial del procedimiento disciplinario es la verificación real de los hechos, por todos los medios de prueba admisibles, la Sección de Recursos Humanos, administrador de la competencia disciplinaria, procurará precisar los hechos en su real configuración, para poder emitir una resolución ajustada a derecho.

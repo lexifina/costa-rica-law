@@ -1,0 +1,1 @@
+Artículo 120.—La denuncia se presentará por escrito y debe contener una relación circunstancial de los hechos, con indicación de servidores partícipes. El denunciante deberá, asimismo, aportar u ofrecer las pruebas en que fundamenta su acusación.

@@ -1,0 +1,1 @@
+Artículo 81.—Las Subcomisiones de Salud Ocupacional coordinarán sus labores con la Comisión de Salud Ocupacional del INCOPESCA, debiendo rendir a ésta un informe trimestral de lo actuado durante e! período.

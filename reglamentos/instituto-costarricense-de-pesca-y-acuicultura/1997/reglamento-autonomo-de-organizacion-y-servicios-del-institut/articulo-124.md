@@ -1,0 +1,1 @@
+Artículo 124.—La citación a la audiencia oral y privada se notificará por escrito al interesado personalmente o en su casa de habitación con al menos tres días hábiles de antelación. En todo caso se indicará con precisión la hora y fecha en que se practicó dicha diligencia

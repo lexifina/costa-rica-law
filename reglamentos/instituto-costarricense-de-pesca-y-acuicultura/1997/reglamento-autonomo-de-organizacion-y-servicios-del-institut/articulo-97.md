@@ -1,0 +1,1 @@
+Artículo 97.—Es reincidente el servidor que incurre de nuevo en una falta dentro de los tres meses siguientes a la comisión de otra por la que fue sancionado de conformidad con lo dispuesto en este Reglamento.

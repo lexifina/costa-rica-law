@@ -1,0 +1,1 @@
+Artículo 131. — Contra la resolución final, el afectado podrá interponer los recursos ordinarios de revocatoria y apelación ante la Presidencia Ejecutiva y Junta Directiva de la Institución, quienes en última instancia decidirán.

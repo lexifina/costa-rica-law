@@ -1,0 +1,1 @@
+Artículo 40.—Se considerará como llegada tardía la presentación al trabajo después de cinco minutos de la hora señalada para el comienzo de las labores diarias. En casos debidamente justificados, el jefe inmediato o el Director General respectivo podrá justificar las llegadas tardías, luego de lo cual la Sección de Recursos Humanos realizará el trámite respectivo.

@@ -1,0 +1,1 @@
+Artículo 154.—En la realización del proceso de investigación, por parte de la Jefatura de Recursos Humanos, se realizarán actuaciones previas con el objeto de determinar con carácter preliminar si concurren circunstancias que justifiquen la iniciación del procedimiento.

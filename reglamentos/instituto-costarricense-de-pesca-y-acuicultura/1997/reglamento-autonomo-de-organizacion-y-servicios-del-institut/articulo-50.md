@@ -1,0 +1,1 @@
+Artículo 50.—Las remuneraciones debidas a los servidores por conceptos tales como dedicación exclusiva, carrera profesional, prohibición, zonaje o incentivo y similares se pagarán de acuerdo con lo establecido en los respectivos reglamentos y en cualesquiera otras disposiciones jurídico administrativas que resulten aplicables.

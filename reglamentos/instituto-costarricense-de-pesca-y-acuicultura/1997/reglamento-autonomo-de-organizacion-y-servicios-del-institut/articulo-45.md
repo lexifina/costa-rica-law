@@ -1,0 +1,1 @@
+Artículo 45.—En caso de presentarse alguna anomalía en la asistencia y/o cumplimiento de la jornada de trabajo por parte de algún funcionario del INCOPESCA, el jefe inmediato deberá comunicar oportunamente de tal hecho a la Sección de Recursos Humanos con el fin de que se tome las acciones pertinentes, sean éstas de tipo salarial y/o de sanción.

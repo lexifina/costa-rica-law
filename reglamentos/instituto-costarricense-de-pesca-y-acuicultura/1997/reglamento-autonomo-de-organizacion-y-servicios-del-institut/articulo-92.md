@@ -1,0 +1,1 @@
+Artículo 92.—Si el servidor estima que la calificación es desacertada, podrá impugnarla por escrito ante su jefe inmediato, dentro de los tres días hábiles siguientes al de la notificación, debiendo ser también notificada la resolución de dicha impugnación.

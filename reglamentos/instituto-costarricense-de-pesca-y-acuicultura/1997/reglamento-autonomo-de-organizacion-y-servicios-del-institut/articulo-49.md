@@ -1,0 +1,1 @@
+Artículo 49.—Cuando se decreten aumentos salariales que beneficien a servidores de la Institución, la Sección de Recursos Humanos ejecutará los trámites necesarios para hacer efectivo su pago, siempre y cuando se cuente con contenido presupuestario.

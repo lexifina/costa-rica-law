@@ -1,0 +1,1 @@
+Transitorio.—A los efectos de lo dispuesto en el articulo 14 del presente Reglamento y hasta tanto el INCOPESCA no cuente con un manual descriptivo de clases de puesto se utilizara supletoriamente el Manual establecido por la Dirección General de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 121.—Mediante resolución motivada, la Sección de Recursos Humanos rechazará de plano y; ordenará el archivo de aquellas denuncias que, de conformidad con este Reglamento, resulten extemporáneas, impertinentes, evidentemente improcedentes o que no ameriten la apertura de un procedimiento disciplinario.

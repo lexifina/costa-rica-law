@@ -1,0 +1,1 @@
+Artículo 58.—A los servidores de INCOPESCA que hayan laborado en otras instituciones del Sector Público, se le reconocerán los años servidos en ellas para determinar el número de días de vacaciones a que tienen derecho.

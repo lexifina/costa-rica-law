@@ -1,0 +1,1 @@
+Artículo 127.—Después de la audiencia oral y privada del servidor investigado, el instructor evacuará la prueba de descargo ofrecida por éste, así como cualquier otra que estime necesaria para determinar la verdad real de los hechos.

@@ -1,0 +1,1 @@
+Artículo 6°—El Presidente Ejecutivo será nombrado por el Consejo de Gobierno; y el Auditor Interno será nombrado por la Junta Directiva, de acuerdo con lo establecido en las leyes y reglamentos respectivos.

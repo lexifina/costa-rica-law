@@ -1,0 +1,1 @@
+Artículo 119.—Es obligación de todo servidor, y particularmente del jefe respectivo, informar a la Jefatura de la Sección de Recursos Humanos de las faltas cometidas por cualquier empleado del INCOPESCA dentro del mes siguiente a la fecha en que se hubiere tenido conocimiento de los hechos. El incumplimiento de esta obligación acarreará responsabilidad disciplinaria.

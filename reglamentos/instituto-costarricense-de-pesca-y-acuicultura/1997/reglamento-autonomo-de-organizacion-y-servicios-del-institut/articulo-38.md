@@ -1,0 +1,1 @@
+Artículo 38.—El funcionario que por error marcare la tarjeta de otro servidor o aquel a quien le marcaron la suya, debe comunicarlo en forma escrita inmediatamente o a más tardar en el curso de la jornada de trabajo siguiente, a la Sección de Recursos Humanos.

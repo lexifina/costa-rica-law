@@ -1,0 +1,1 @@
+Artículo 105.—Las faltas no señaladas en este Reglamento serán sancionadas conforme lo establezca el Estatuto del Servicio Civil para quienes los cubre, así como el Código de Trabajo y demás leyes conexas y supletorias.

@@ -1,0 +1,1 @@
+Artículo 122.—La Sección de Recursos Humanos evacuará la prueba de cargo ofrecida por el denunciante y cualquier otra que estime pertinente y necesaria para determinar la existencia de los hechos denunciados.

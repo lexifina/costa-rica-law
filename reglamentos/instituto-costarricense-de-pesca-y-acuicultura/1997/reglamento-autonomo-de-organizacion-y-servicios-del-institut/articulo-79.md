@@ -1,0 +1,1 @@
+Artículo 79.—Esta Comisión creará las Subcomisiones de Salud Ocupacional, que a juicio del Consejo de Salud Ocupacional sean necesarias en los diferentes centros de trabajo del INCOPESCA y coadyuvarán en el cumplimiento de lo estipulado en el presente Reglamento y en el Reglamento sobre Salud Ocupacional.

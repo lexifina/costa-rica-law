@@ -1,0 +1,1 @@
+Artículo 53.—El pago de auxilio de cesantía se hará conforme a lo dispuesto en el artículo 29 del Código de Trabajo. De igual manera, el preaviso se regirá por las reglas establecidas por el artículo 30 del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 152.—La Jefatura de Recursos Humanos, dentro de las acciones inmediatas, podrá recomendar de oficio o a solicitud del interesado, la reubicación temporal’ en el Instituto del funcionario denunciante o del denunciado. El Presidente Ejecutivo definirá en última instancia.

@@ -1,0 +1,1 @@
+Artículo 126.—El derecho de defensa deberá ser ejercido por el servidor en forma razonable. La Sección de Recursos Humanos podrá excepcionalmente limitar la intervención de éste a lo prudentemente necesario, sin llegar a la supresión de los derechos de audiencia y defensa antes consagrados.

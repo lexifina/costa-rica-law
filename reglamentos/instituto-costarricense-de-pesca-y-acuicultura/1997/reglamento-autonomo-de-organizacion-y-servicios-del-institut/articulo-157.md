@@ -1,0 +1,1 @@
+Artículo 157.—La persona que haya denunciado ser víctima de hostigamiento o acoso sexual o haya comparecido como testigo de las partes, no podrá sufrir, por ello, perjuicio alguno en su empleo ni en sus estudios, siempre y cuando tal denuncia o testimonio tenga fundamento.

@@ -1,0 +1,1 @@
+Artículo 80.—Las Subcomisiones de Salud Ocupacional estarán integradas por un representante patronal designado por la Presidencia Ejecutiva o en su ausencia por el Director General, y uno o dos representantes de los servidores.

@@ -1,0 +1,1 @@
+Artículo 59.—Solo se pagarán vacaciones cuando termine la relación de servicios del funcionario con el Instituto y existan saldos ‘ pendientes de disfrutar. Se hará con base en el promedio de las remuneraciones ordinarias y extraordinarias devengadas por el servidor durante cincuenta semanas anteriores al momento en que se adquirió el derecho.

@@ -1,0 +1,1 @@
+Artículo 64. —Con el visto bueno de su jefe inmediato, el servidor podrá solicitar a la Sección de Recursos Humanos un adelanto de sus vacaciones que, en ningún caso, podrá superar el número de días que proporcionalmente corresponda a los meses laborados.

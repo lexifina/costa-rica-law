@@ -1,0 +1,1 @@
+Artículo 55.—En caso de que el interés público lo demande, o se establezcan roles especiales de trabajo, se podrá trabajar los días de descanso semanal, mediando en tal caso, la remuneración respectiva.

@@ -1,0 +1,2 @@
+Artículo 12.—El personal técnico y profesional de la Dirección Técnica del Instituto está obligado al desempeño de sus cargos en cualquier lugar del país, según lo requieran las necesidades del servicio que se presta.
+Se entiende por personal técnico y profesional el que está integrado por los servidores que se desempeñan en labores propias del Instituto en las actividades de pesca y acuicultura y toda otra política o programa a su cargo.

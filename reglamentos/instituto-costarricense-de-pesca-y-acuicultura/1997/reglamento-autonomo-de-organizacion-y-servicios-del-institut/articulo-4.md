@@ -1,0 +1,1 @@
+Artículo 4°—Los Directores de Área, Directores Regionales, Jefes de Departamento, Jefes de Sección, Jefes de Oficina y en general, todos aquellos funcionarios que tengan bajo su responsabilidad tareas de administración- o supervisión de personal, son responsables ante él Presidente Ejecutivo de velar por la correcta aplicación de todas las {disposiciones del presente Reglamento.

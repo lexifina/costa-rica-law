@@ -1,0 +1,1 @@
+Artículo 75.—El otorgamiento de becas se regirá por lo que dispone el Reglamento de Becas para Capacitación y Desarrollo de Personal vigente y por las demás disposiciones jurídico-administrativas aplicables en la materia.
