@@ -1,2 +1,1 @@
-Artículo 18.—La Comisión Calificadora podrá solicitar la colaboración de las universidades costarricenses para la elaboración de las pruebas y la calificación de los exámenes de oposición.
-También poda solicitar el auxilio de escuelas de lenguas de reconocidas idoneidad para las pruebas de idiomas.
+Artículo 18.—Así DEROGADO EXPRESAMENTE por el artículo 56 del Decreto Ejecutivo N° 22544 del 29 de setiembre de 1993, publicado en La Gaceta N° 194 del 11 de octubre de 1993.

@@ -1,1 +1,1 @@
-Artículo 11.—una vez realizado el examen de títulos y la evaluación de los méritos de los candidatos de conformidad con lo dispuesto en el artículo 99, la Comisión Calificadora dentro del plazo de un mes calendario presentará el informe respectivo al Ministro de Relaciones Exteriores con la nómina de los candidatos elegibles a fin de que el Ministro proceda al nombramiento correspondiente.
+Artículo 11.— Así DEROGADO EXPRESAMENTE por el artículo 56 del Decreto Ejecutivo N° 22544 del 29 de setiembre de 1993, publicado en La Gaceta N° 194 del 11 de octubre de 1993.

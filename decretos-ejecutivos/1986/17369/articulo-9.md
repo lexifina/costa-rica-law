@@ -17,5 +17,6 @@ Legislación y Práctica del Notariado.
 Historia Universal.
 Historia de Costa Rica.
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo N° 17570 del 15 de mayo de 1987, publicado en La Gaceta N° 117 del 22 de junio de 1987.)
-g) Certificado expedido por médico o institución médica legalmente reconocida en donde se haga constar el estado general de salud del candidato, y en su caso, cualquier impedimento físico o mental, con el objeto de poder determinar si el interesado es apto para desempeñar un cargo en el servicio exterior.
+Certificado expedido por médico o institución médica legalmente reconocida en donde se haga constar el estado general de salud del candidato, y en su caso, cualquier impedimento físico o mental, con el objeto de poder determinar si el interesado es apto para desempeñar un cargo en el servicio exterior.
 En el expediente se incluirán, además, los documentos o informaciones relativos al aspirante que el Ministerio considere oportuno que la Comisión Calificadora tome en cuenta, o que la propia Comisión estime necesario o pertinente agregar.
+(Así DEROGADO EXPRESAMENTE por el artículo 56 del Decreto Ejecutivo N° 22544 del 29 de setiembre de 1993, publicado en La Gaceta N° 194 del 11 de octubre de 1993.)

@@ -1,2 +1,1 @@
-Artículo 17.—Además de las pruebas de inglés o francés, el examen de lenguas incluirá pruebas para establecer el dominio total del idioma español por el candidato, mediante la elaboración de un ensayo que será calificado tanto por su contenido como por su estilo.
-Todos los exámenes de lenguas incluyendo la prueba de español y que precederán a los exámenes del artículo 16, serán eliminatorios.
+Artículo 17.—Así DEROGADO EXPRESAMENTE por el artículo 56 del Decreto Ejecutivo N° 22544 del 29 de setiembre de 1993, publicado en La Gaceta N° 194 del 11 de octubre de 1993.

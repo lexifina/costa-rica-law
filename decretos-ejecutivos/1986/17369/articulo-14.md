@@ -1,1 +1,1 @@
-Artículo 14.—Los requisitos que deben tener los participantes en los concursos son los mismos que los que se estipulan en el artículo 9° del presente Reglamento.
+Artículo 14.—Así DEROGADO EXPRESAMENTE por el artículo 56 del Decreto Ejecutivo N° 22544 del 29 de setiembre de 1993, publicado en La Gaceta N° 194 del 11 de octubre de 1993.

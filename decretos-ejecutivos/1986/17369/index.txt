@@ -72,5 +72,5 @@ articulo-71.md
 articulo-72.md
 articulo-73.md
 articulo-74.md
-articulo-75-transitorio.md
-articulo-76-transitorio.md
+articulo-75.md
+articulo-76.md

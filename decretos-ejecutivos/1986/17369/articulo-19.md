@@ -1,1 +1,1 @@
-Articulo 19.—Los candidatos que hayan sido aprobados en los exámenes serán posteriormente entrevistados por los miembros de la Comisión Calificadora. Dicha entrevista tendrá una nota la cual será adicionada a las calificaciones de los exámenes para establecer el promedio final del concurso.
+Articulo 19.—Así DEROGADO EXPRESAMENTE por el artículo 56 del Decreto Ejecutivo N° 22544 del 29 de setiembre de 1993, publicado en La Gaceta N° 194 del 11 de octubre de 1993.

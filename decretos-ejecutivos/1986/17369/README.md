@@ -14,3 +14,4 @@ Reglamento del Estatuto del Servicio Exterior de la República.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-02-06 | la propia norma |
+| 2 | 1993-09-29 | Decreto Ejecutivo 22544 (1993-09-29) |

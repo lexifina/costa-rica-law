@@ -1,1 +1,1 @@
-Artículo 10.—Cualquier miembro de la Comisión Calificadora podrá solicitar al Departamento de Recursos Humanos del Ministerio que le presente los documentos que prueben cualquier información, así como la ampliación de los datos suministrados por los interesados.
+Artículo 10.— Así DEROGADO EXPRESAMENTE por el artículo 56 del Decreto Ejecutivo N° 22544 del 29 de setiembre de 1993, publicado en La Gaceta N° 194 del 11 de octubre de 1993.
