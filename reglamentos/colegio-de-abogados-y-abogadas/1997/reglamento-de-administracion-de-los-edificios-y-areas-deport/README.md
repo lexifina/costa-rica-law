@@ -14,3 +14,4 @@ Reglamento de administración de los edificios y áreas deportivas a cargo del D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-08-10 | la propia norma |
+| 2 | 1998-05-13 | Reglamento 0 (1998-05-13) |
