@@ -1,0 +1,13 @@
+Nº 31525-H
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE HACIENDA
+En el ejercicio de las facultades conferidas por los artículos 140, inciso 20), 146 y 177 de la Constitución Política, en los artículos 25, inciso 1), 27, inciso 1), y 28, inciso 2) acápite b) de la Ley N° 6227 o Ley General de la Administración Pública del 2 de mayo de 1978, en la Ley N° 8131 o Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre del 2001.
+Considerando:
+1º—Que la Ley Nº 12 del 30 de diciembre de 1924, establece que la administración de los seguros del Estado corresponde al Instituto Nacional de Seguros, a través de la comercialización de pólizas de seguros.
+2º—Que el artículo 32 de la Ley Nº 8131 o Ley de la Administración Financiera de la República y Presupuestos Públicos, publicada en La Gaceta Nº 198 del 16 de octubre del 2001, dispone que la Dirección General de Presupuesto Nacional, es el órgano rector del Subsistema de Presupuesto.
+3º—Que mediante oficio PE-2003-1621 del 9 de setiembre del 2003, el Instituto Nacional de Seguros comunica al Ministerio de Hacienda que debido al aumento en los costos de la administración de los seguros de los Ministerios, se ha otorgado un plazo de tres meses y medio a partir de la presentación de la factura para que cada ministerio realice los procedimientos de pago.
+4º—Que de no proceder los ministerios al pago de las facturas correspondientes, el Instituto Nacional de Seguros procederá a cancelar las pólizas de seguros respectivas.
+5º—Que el Instituto definió un plazo hasta el 31 de diciembre del 2003 para poner al día todas las deudas pendientes, por lo que a partir del 1º de enero del 2004, iniciará con la facturación de intereses sobre los saldos que se mantengan pendientes.
+6º—Que mediante oficio 539 del 22 de setiembre del 2003, se remitió una circular a cada ministerio, informando las nuevas disposiciones del Instituto Nacional de Seguros, las gestiones a implementar para atender los requerimientos de ese Instituto, así como los montos adeudados por cada ministerio.
+7º—Que de conformidad con las directrices técnicas y metodológicas emitidas por la Dirección General de Presupuesto, los ministerios están obligados a presupuestar todos aquellos rubros de carácter ineludible, como el pago de los seguros. Por tanto:
+DECRETAN:
+Artículo 1º—Todos los ministerios deberán proceder a realizar las modificaciones presupuestarias pertinentes para proceder a cancelar al Instituto Nacional de Seguros, las deudas correspondientes por concepto de pólizas de seguros, así como ajustarse a la nueva forma de facturación que se implementará a partir del año 2004.
