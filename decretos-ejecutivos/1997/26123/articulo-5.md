@@ -1,0 +1,3 @@
+Artículo 5°—Tiempos de rodaje para el tránsito de mercancías entre aduanas
+5.1 Los tiempos de rodaje máximo en horas de salida de un tránsito aduanero, partiendo desde una aduana y hasta su llegada a la otra, serán los que se establecen en el Anexo o Cuadro del presente Decreto y que se tiene como parte integrante y esencial de este Reglamento.
+5.2 Además del respectivo tiempo de rodaje que se señala, la Dirección General de Aduanas, mediante resolución administrativa debidamente publicada en La Gaceta, fijará los términos para efectos de descanso, alimentación y dormida, conforme a los requerimientos propios del transporte.

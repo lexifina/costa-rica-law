@@ -1,0 +1,20 @@
+Artículo 3°—De las rutas autorizadas
+A los efectos del artículo anterior, se habilitan las siguientes rutas:
+3.1 Para el tránsito Paso Canoas-Sixaola (Circulación dentro de San José)
+Los vehículos provenientes de Paso Canoas realizarán el siguiente recorrido:
+Ruta Nacional No 2, hasta la intersección con la Ruta No 39 (Rotonda de la Hispanidad en San Pedro), luego deberán tomar la Carretera de Circunvalación de sur a norte hasta la Rotonda de Guadalupe, continúa al oeste por la Ruta Regional No 218 hasta la intersección con la Ruta Regional No 108, sigue hacia el oeste por esta ruta hasta la intersección con la Ruta Nacional No 32 en el Barrio Tournón, de donde se incorporarán a la carretera Braulio Carrillo (Ruta Nacional No 32).
+3.2 Para el tránsito Sixaola-Paso Canoas (Circulación dentro de San José)
+Los vehículos provenientes de Sixaola deberán efectuar el siguiente recorrido:
+Ruta Nacional No 32 (Carretera Braulio Carrillo), hasta intersección con la Ruta Regional No 108, continuando al este por esta última ruta y la Ruta Regional No 218 hasta la intersección con la Ruta Nacional No 39 en la Rotonda de Guadalupe, de ahí toma la Carretera de Circunvalación con dirección norte-sur hasta la Rotonda de las Garantías Sociales en Zapote, y luego continúa por la Ruta Regional N° 215 al este, hasta la intersección con la Ruta Nacional No 2 y desde ahí se sigue la ruta usual hacia Paso Canoas.
+3.3 Para el tránsito Paso Canoas-Peñas Blancas o algún otro destino al norte del país (Circulación en San José)
+Los vehículos provenientes de Paso Canoas y con rumbo hacia Peñas Blancas o cualesquier otro punto ubicado al norte del país, deberán efectuar el siguiente recorrido:
+Ruta Nacional N° 2 hasta la intersección con la Ruta Nacional No 39 en la Rotonda de la Hispanidad en San Pedro, continúa por la Carretera de Circunvalación con dirección sur-norte, hasta la intersección con la Ruta Regional No 109, sigue luego 400 metros al oeste hasta la intersección con la Ruta Regional N° 100, y continúa siempre al oeste por esta ruta hasta la intersección con la Ruta Regional No 166 en la Uruca, continúa al oeste por esta misma ruta hasta la intersección con la Ruta Nacional No 3, y luego 500 metros al oeste, hasta la intersección con la Ruta Nacional No 1 (Carretera General Cañas) y desde ahí por la ruta usual hasta Peñas Blancas o el punto de su destino en el norte del territorio nacional.
+3.4 Para el tránsito Peñas Blancas-San José (Circulación en San José)
+Los vehículos provenientes de la Zona Norte del país deberán efectuar el siguiente recorrido:
+Ruta Nacional No 1 (Carretera General Cañas), hasta la intersección con la Rotonda Juan Pablo II, en donde se virará al norte por la Ruta Nacional No 3, hasta la intersección con la Ruta Regional No 166, para continuar al este por esta misma ruta, la Ruta Regional No 100 y la Ruta Regional No 109, hasta la intersección con la Ruta Nacional No 39, y después se toma la Carretera de Circunvalación en sentido norte-sur hasta la Rotonda de las Garantías Sociales en Zapote, continuando por la Ruta Regional Bo 215 hacia el este, hasta la intersección con la Ruta Nacional N° 2, y de ahí hacia Paso Canoas por la ruta usual.
+3.5 Para el tránsito Paso Canoas-Sixaola (Resto del país)
+Deberá todo vehículo observar el siguiente recorrido:
+Ruta Nacional No 2 a Paso Canoas-Palmar Norte-Buenos Aires de Osa-San Isidro de Pérez Zeledón-Cartago-San José (según los recorridos establecidos supra)-Ruta Nacional No 32-Carretera Guápiles-Siquirres-Limón-Ruta No 36-Sixaola.
+3.6 Para el tránsito Paso Canoas-Peñas Blancas (Resto del País)
+Deberá cumplirse con el siguiente recorrido:
+Ruta Nacional No 2 a Paso Canoas-Palmar Norte-Buenos Aires de Osa-San Isidro de Pérez Zeledón-Cartago-San José (según los recorridos establecidos supra)-Ruta Nacional No 1- Autopista General Cañas-Carretera Bernardo Soto-Esparza-Barranca-Caftas-Liberia-La Cruz-Peñas Blancas.
