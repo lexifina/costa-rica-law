@@ -14,3 +14,4 @@ Reglamento para el Cobro Administrativo, Judicial y de Remate de la Municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-30 | la propia norma |
+| 2 | 2005-02-09 | Reglamento municipal 0 (2005-02-09) |
