@@ -1,0 +1,1 @@
+Artículo 8º—Reporte de compra y venta de divisas a los entes reguladores. La información que deba ser reportada a los entes reguladores dependerá de los requerimientos que defina el oficial de cumplimiento asignado por la Institución para estos efectos, o por las disposiciones que dicten dichos entes.

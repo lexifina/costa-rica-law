@@ -1,0 +1,3 @@
+Artículo 4º—Pago de tarifas y/o comisiones. Las tarifas y/o comisiones de los servicios que ofrezca el Subproceso de Extranjería del Banco serán cancelados de la siguiente manera según sea el caso:
+a) Todas las tarifas y/o comisiones deberán ser pagadas previo a que se concluya el servicio requerido y de conformidad con las instrucciones que se reciban al efecto.
+b) Cuando se trate de gastos del exterior por cuenta del ordenante, específicamente el caso de cartas de crédito de importación, el cliente debe autorizar al Banco a debitar su cuenta de ahorros o cuenta corriente por el importe de los gastos que se reciban producto de la transacción o bien se suscribirá una garantía de conformidad con el Reglamento General de Crédito.
