@@ -1,7 +1,0 @@
-Artículo 15.-Protección de las obras e instalaciones que contienen fuerzas
-peligrosas
-Las obras o instalaciones que contienen fuerzas peligrosas, a saber
-las presas, los diques y las centrales nucleares de energía eléctrica, no
-serán objeto de ataques, aunque sean objetivos militares, cuando tales
-ataques puedan producir la liberación de aquellas fuerzas y causar, en
-consecuencia, pérdidas importantes en la población civil.

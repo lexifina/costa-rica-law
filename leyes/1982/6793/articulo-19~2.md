@@ -1,7 +1,0 @@
-Artículo 19.-Estados neutrales y otros Estados que no sean Partes en
-conflicto.
-Los Estados neutrales y otros Estados que no sean Partes en conflicto
-observarán las disposiciones pertinentes del presente Protocolo respecto de
-las personas protegidas por este Título que pudieran ser recibidas o
-internadas en sus territorios, así como de los muertos de las Partes en
-conflicto que recogieren.
