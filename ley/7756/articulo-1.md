@@ -1,4 +1,5 @@
 Ley N°7756
+(NOTA DE SINALEVI: Mediante el artículo único de la Ley N° 8584 del 21 de marzo de 2007, se reforma esta Ley, no obstante la misma empieza a regir hasta el 27 de abril de 2007, por lo que la reforma será introducida en la fecha indica)
 BENEFICIOS PARA LOS RESPONSABLES DE
 PACIENTES EN FASE TERMINAL
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
