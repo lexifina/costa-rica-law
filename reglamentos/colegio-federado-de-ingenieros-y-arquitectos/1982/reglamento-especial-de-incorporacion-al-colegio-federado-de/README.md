@@ -1,0 +1,16 @@
+# Reglamento (1982-12-06)
+
+Reglamento Especial de Incorporación al Colegio Federado de Ingenieros y Arquitectos
+
+- Tipo: Reglamento
+- Número: 0
+- Fecha: 1982-12-06
+- Ente emisor: Colegio Federado de Ingenieros y Arquitectos
+- Publicación: La Gaceta N° 234 del 1982-12-06
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=54042&param2=59079&param3=1 (ficha 54042)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1982-12-21 | la propia norma |
