@@ -1,0 +1,1 @@
+Artículo 14.—Podrán también ser inquilinos los causahabientes a título universal y los cesionarios del adjudicatario; pero las cesiones para su validez, necesitan de la aprobación del Concejo Municipal.

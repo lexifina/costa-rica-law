@@ -1,0 +1,1 @@
+Artículo 22.—Dentro del mercado municipal, no se concederán patentes municipales para el expendio de bebidas alcohólicas, ni objetos usados o que se atente contra la salud pública, venta de animales vivos de cualquier índole o cualquier actividad que por su naturaleza no sea conveniente ubicar en dicha instalación.

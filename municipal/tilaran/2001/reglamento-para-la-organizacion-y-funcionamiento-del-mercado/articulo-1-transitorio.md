@@ -1,0 +1,1 @@
+Transitorio I.—Los actuales inquilinos deberán formalizar el contrato respectivo 30 días naturales siguientes a la publicación de este Reglamento. Los derechos adquiridos por medio de acuerdos municipales o de la alcaldía serán respetados hasta el vencimiento del mismo.

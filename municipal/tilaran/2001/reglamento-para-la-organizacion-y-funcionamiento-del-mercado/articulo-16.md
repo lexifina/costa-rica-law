@@ -1,0 +1,1 @@
+Artículo 16.—Ningún inquilino de puestos fijos o móviles podrá vender o expender artículos o mercancías diferentes a aquellas para las cuales le autorice la patente. La infracción a esta disposición dará lugar a la cancelación automática del contrato e inicio de las gestiones de desahucio, conforme al artículo anterior.
