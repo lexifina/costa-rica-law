@@ -1,0 +1,1 @@
+Artículo 4°-El monto del vale de caja chica podrá ser superior a la suma de 41.500.00 (Cuarenta y un mil quinientos netos) y será incrementado de acuerdo al indice de inflación a diciembre del año anterior (índice de precios al consumidor que determina la dirección de estadísticas y censos del Ministerio de Economía).

@@ -1,0 +1,1 @@
+Artículo 3°-Se establece un fondo de caja chica cuyo monto será hasta 300.000.00 (Trescientos mil colones exactos) y su custodia será responsabilidad del tesorero municipal, quien deberá actuar de conformidad con lo que al efecto disponga la normativa vigente y aplicable a la materia y a este Reglamento.
