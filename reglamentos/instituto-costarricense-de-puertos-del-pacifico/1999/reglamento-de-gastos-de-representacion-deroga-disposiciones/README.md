@@ -14,3 +14,4 @@ Reglamento de Gastos de Representación Deroga disposiciones anteriores sobre la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-30 | la propia norma |
+| 2 | 2002-12-05 | Reglamento 3133 (2002-12-05) |

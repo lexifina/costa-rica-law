@@ -7,3 +7,5 @@ Artículo 8°—Para la liquidación de los gastos de representación es indispe
 - Nombre, número de cédula y firma del funcionario que realiza el gasto.
 Tratándose de la liquidación de gastos de los funcionarios a que se refiere el Artículo 4, además de los requisitos aquí señalados, se deberá indicar el número del respectivo acuerdo de junta directiva.
 El incumplimiento de cualquiera de estos requisitos obligará a reintegrar las sumas que se hubiesen girado como adelanto por este concepto.
+En caso de reintegro, se deberá utilizar el mismo tipo de moneda en que se realizó el respectivo adelanto de gastos de representación.
+(Así ampliado mediante sesión N° 3133 de 5 de diciembre de 2002).
