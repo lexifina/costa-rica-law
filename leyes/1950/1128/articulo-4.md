@@ -1,2 +1,1 @@
-Artículo 4º- No estarán sujetos a la tarifa que esta ley establece, los profesionales que prestaren servicios a sus clientes por un sueldo fijo.
-En las ejecuciones simples, hipotecarias o prendarias de los Bancos u otras instituciones o corporaciones del Estado y a fin de favorecer a los deudores, las respectivas Directivas o corporaciones podrán crear tarifas especiales para los profesionales a quienes encomienden esos juicios.
+Artículo 4º.- (Derogado por artículo 3 de la Ley Nº 6595 de 6 de agosto de 1981).
