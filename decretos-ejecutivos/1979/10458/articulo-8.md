@@ -1,0 +1,1 @@
+Artículo 8°—A las sesiones del Consejo Nacional de Vivienda y Asentamientos Humanos, podrán ser convocados por su Presidente, o por decisión mayoritaria del mismo, con derecho a voz, representantes de otras instituciones públicas o privadas y en general todas aquellas personas a quienes el Consejo estime conveniente escuchar.

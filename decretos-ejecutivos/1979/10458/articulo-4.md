@@ -1,0 +1,3 @@
+CAPITULO SEGUNDO
+De la Coordinación del Sector Vivienda y Asentamientos Humanos
+Artículo 4°—El Ministro de Gobierno encargado de Vivienda y Asentamientos Humanos, será el responsable de la dirección y coordinación del Sector Vivienda y Asentamientos Humanos, para lo cual asumirá las funciones que le asignen el Presidente de la República y las leyes y contará para desarrollar su gestión, con el concurso técnico que obligatoriamente le deberán brindar la Secretaria Ejecutiva de Planificación Sectorial de Vivienda y Asentamientos Humanos y la Oficina de Planificación Nacional y Política Económica.

@@ -1,0 +1,1 @@
+Artículo 12.— La Secretaría Ejecutiva de Planificación Sectorial de Vivienda y Asentamientos Humanos estará subordinada al Presidente del Consejo Nacional Sectorial de Vivienda y Asentamientos Humanos y para efectos administrativos estará adscrita a la Oficina de Planificación Nacional y Política Económica.

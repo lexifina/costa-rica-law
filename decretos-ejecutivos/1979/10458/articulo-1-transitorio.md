@@ -1,0 +1,1 @@
+Transitorio I.—Los miembros del Consejo Nacional Sectorial de Vivienda y Asentamientos Humanos, deberán juramentarse dentro del plazo de 15 días a partir de la publicación de este decreto y deberán celebrar »ü primera reunión 8 días después de que todos hayan sido juramentados.

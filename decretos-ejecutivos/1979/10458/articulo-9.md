@@ -1,0 +1,2 @@
+Artículo 9°—El Consejo Nacional Sectorial de Vivienda y Asentamientos Humanos se reunirá ordinariamente por lo menos una vez al mes y extraordinariamente cada vez que sea convocado por el Presidente del Consejo. Las sesiones se efectuarán dentro de los horarios regulares de trabajo.
+El Consejo establecerá sus propios procedimientos y normas de trabajo que deberá formular mediante reglamento interno y aprobar en el primer mes calendario contado a partir de la fecha de su juramentación.

@@ -1,0 +1,1 @@
+Artículo 17.—Al Comité Técnico Sectorial ce Vivienda y Asentamientos Humanos, le corresponde coordinar y armonizar el proceso de planificación en las distintas instituciones, además de los programas y actividades que conforman el Sector.
