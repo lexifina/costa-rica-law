@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio y Organización del Ministerio de Relaciones Ex
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-16 | la propia norma |
+| 2 | 2001-08-07 | Decreto Ejecutivo 29910 (2001-08-07) |

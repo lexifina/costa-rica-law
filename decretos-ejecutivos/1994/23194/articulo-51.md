@@ -19,3 +19,5 @@ n) Divulgar el contenido de informes o documentos así como hacer público cualq
 o) Tratar de resolver por medio de la violencia, de hecho o de palabra, las dificultades que surgan durante su trabajo o en la permanencia en las oficinas.
 p) Extralimitarse en las funciones o deberes que le estén encomendadas y tomarse atribuciones que no le corresponden,
 q) Manejar los vehículos del Ministerio sin estar autorizados para ello o sin tener la licencia al día.
+r) La exhibición de material pornográfico en cualquier lugar de la institución utilizando el equipo de cómputo y/o los servicios de comunicación de la institución, asimismo el uso de equipo electrónico del Estado para observar o reproducir pornografía. El incurrir en el incumplimiento de esta normativa, acarrea una falta grave que será sancionada según las regulaciones vigentes.
+(Así Adicionado mediante el artículo 1° Decreto Ejecutivo N° 29910, del 7 de agosto del 2001)
