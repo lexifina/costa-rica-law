@@ -1,13 +1,3 @@
-ARTICULO 400.- Conversión del procedimiento y acumulación
-Si en el curso de una investigación con procedimiento ordinario, se
-determina que uno de los imputados debe ser sujeto a antejuicio, el
-tribunal que conoce del asunto remitirá las actuaciones al Fiscal General
-para que se proceda conforme lo dispone la Constitución Política y este
-Título.
-Cuando el hecho sea atribuido a varios imputados y sólo alguno de
-ellos debe ser sujeto a antejuicio, la causa deberá separarse para que se
-continúe en la jurisdicción ordinaria contra quienes no proceda el
-antejuicio. Se remitirá testimonio de piezas ante el Fiscal General contra
-los restantes, para que proceda conforme lo dispone este Título. Si la
-Asamblea Legislativa autoriza la prosecución del procedimiento, las causas
-deberán acumularse y serán conocidas por la Sala Penal.
+ARTICULO 400.-
+Conversión del procedimiento y acumulación Si en el curso de una investigación con procedimiento ordinario, se determina que uno de los imputados debe ser sujeto a antejuicio, el tribunal que conoce del asunto remitirá las actuaciones al Fiscal General para que se proceda conforme lo dispone la Constitución Política y este Título.
+Cuando el hecho sea atribuido a varios imputados y sólo alguno de ellos debe ser sujeto a antejuicio, la causa deberá separarse para que se continúe en la jurisdicción ordinaria contra quienes no proceda el antejuicio. Se remitirá testimonio de piezas ante el Fiscal General contra los restantes, para que proceda conforme lo dispone este Título. Si la Asamblea Legislativa autoriza la prosecución del procedimiento, las causas deberán acumularse y serán conocidas por la Sala Penal.

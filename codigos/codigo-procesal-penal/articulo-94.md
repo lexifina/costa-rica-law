@@ -1,8 +1,2 @@
-ARTICULO 94.- Interrogatorio de identificación
-A continuación se le solicitará al imputado indicar su nombre,
-apellidos, sobrenombre o apodo, edad, estado civil, profesión u oficio,
-nacionalidad, fecha y lugar de nacimiento, domicilio, lugar de trabajo y
-condiciones de vida, números telefónicos de su casa, su lugar de trabajo
-o cualquier otro en donde pueda ser localizado; además, exhibir su
-documento de identidad e indicar nombre, estado, profesión u oficio y
-domicilio de sus padres.
+ARTICULO 94.-
+Interrogatorio de identificación A continuación se le solicitará al imputado indicar su nombre, apellidos, sobrenombre o apodo, edad, estado civil, profesión u oficio, nacionalidad, fecha y lugar de nacimiento, domicilio, lugar de trabajo y condiciones de vida, números telefónicos de su casa, su lugar de trabajo o cualquier otro en donde pueda ser localizado; además, exhibir su documento de identidad e indicar nombre, estado, profesión u oficio y domicilio de sus padres.

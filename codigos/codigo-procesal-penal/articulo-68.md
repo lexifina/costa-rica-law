@@ -1,11 +1,3 @@
-ARTICULO 68.- Dirección
-El Ministerio Público dirigirá la policía cuando esta deba prestar
-auxilio en las labores de investigación. Los funcionarios y los agentes de
-la policía judicial deberán cumplir siempre las órdenes del Ministerio
-Público y las que, durante la tramitación del procedimiento, les dirijan
-los jueces.
-En casos excepcionales y con fundamentación, el Fiscal General podrá
-designar directamente a los oficiales de la policía judicial que deberán
-auxiliarlo en una investigación específica. En este caso, las autoridades
-policiales no podrán ser separadas de la investigación, si no se cuenta
-con la expresa aprobación de aquel funcionario.
+ARTICULO 68.-
+Dirección El Ministerio Público dirigirá la policía cuando esta deba prestar auxilio en las labores de investigación. Los funcionarios y los agentes de la policía judicial deberán cumplir siempre las órdenes del Ministerio Público y las que, durante la tramitación del procedimiento, les dirijan los jueces.
+En casos excepcionales y con fundamentación, el Fiscal General podrá designar directamente a los oficiales de la policía judicial que deberán auxiliarlo en una investigación específica. En este caso, las autoridades policiales no podrán ser separadas de la investigación, si no se cuenta con la expresa aprobación de aquel funcionario.

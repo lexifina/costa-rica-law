@@ -13,3 +13,6 @@ matrimonio, las amenazas, la violación de domicilio y la usurpación.
 d) El incumplimiento del deber alimentario, del deber de asistencia
 y el incumplimiento o abuso de la patria potestad.
 e) Cualquier otro delito que la ley califique como tal.
+(NOTA: El artículo 51 de la Ley del VIH Sida No.7771 de 29 de abril
+de 1998 señala que los delitos allí contemplados son igualmente delitos
+de acción pública perseguibles sólo a instancia privada)

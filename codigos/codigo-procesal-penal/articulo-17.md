@@ -1,23 +1,6 @@
-ARTICULO 17.- Denuncia por delito de acción pública perseguible a
-instancia privada
-Cuando el ejercicio de la acción penal pública requiera instancia
-privada, el Ministerio Público sólo la ejercerá una vez que formulen
-denuncia, ante autoridad competente, el ofendido mayor de quince años o,
-si es menor de esa edad, en orden excluyente, sus representantes legales,
-tutor o guardador. Sin embargo, antes de la instancia, podrán realizarse
-los actos urgentes que impidan continuar el hecho o los imprescindibles
-para conservar los elementos de prueba, siempre que no afecten la
-protección del interés de la víctima.
-Los defectos relacionados con la denuncia podrán subsanarse con
-posterioridad, cuando la víctima se presente a ratificar la instancia
-hasta antes de finalizar la audiencia preliminar.
-La instancia privada permitirá perseguir a todos los autores y
-partícipes.
-La víctima o su representante podrán revocar la instancia en
-cualquier momento hasta antes de acordarse la apertura a juicio. La
-revocatoria comprenderá a los que hayan participado en el hecho punible.
-El Ministerio Público ejercerá directamente la acción cuando el
-delito se haya cometido contra un incapaz o un menor de edad, que no
-tengan representación, o cuando lo haya realizado uno de los parientes
-hasta tercer grado de consanguinidad o afinidad, el representante legal o
-el guardador.
+ARTICULO 17.-
+Denuncia por delito de acción pública perseguible a instancia privada Cuando el ejercicio de la acción penal pública requiera instancia privada, el Ministerio Público sólo la ejercerá una vez que formulen denuncia, ante autoridad competente, el ofendido mayor de quince años o, si es menor de esa edad, en orden excluyente, sus representantes legales, tutor o guardador. Sin embargo, antes de la instancia, podrán realizarse los actos urgentes que impidan continuar el hecho o los imprescindibles para conservar los elementos de prueba, siempre que no afecten la protección del interés de la víctima.
+Los defectos relacionados con la denuncia podrán subsanarse con posterioridad, cuando la víctima se presente a ratificar la instancia hasta antes de finalizar la audiencia preliminar.
+La instancia privada permitirá perseguir a todos los autores y partícipes.
+La víctima o su representante podrán revocar la instancia en cualquier momento hasta antes de acordarse la apertura a juicio. La revocatoria comprenderá a los que hayan participado en el hecho punible.
+El Ministerio Público ejercerá directamente la acción cuando el delito se haya cometido contra un incapaz o un menor de edad, que no tengan representación, o cuando lo haya realizado uno de los parientes hasta tercer grado de consanguinidad o afinidad, el representante legal o el guardador.

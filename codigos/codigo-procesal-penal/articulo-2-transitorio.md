@@ -1,0 +1,2 @@
+TRANSITORIO II.-
+Prescripción de causas pendientes El plazo de prescripción de la acción penal en las causas pendientes en los tribunales, a las que se aplicará este Código, comenzará a correr a partir de la vigencia de este último. Para las causas que deban continuar su tramitación de conformidad con las normas del Código de Procedimientos Penales de 1973, regirán las disposiciones sobre prescripción previstas en el Código Penal de 1970.
