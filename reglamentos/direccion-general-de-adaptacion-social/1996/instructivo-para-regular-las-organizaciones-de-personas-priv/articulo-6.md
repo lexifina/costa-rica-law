@@ -1,0 +1,1 @@
+Artículo 6°-La celebración de asamblea y las actividades de los comités, sólo podrán ser establecidas respetando las directrices y los procedimientos institucionales del Sistema Penitenciario en cuanto a orden, disciplina y seguridad institucional.

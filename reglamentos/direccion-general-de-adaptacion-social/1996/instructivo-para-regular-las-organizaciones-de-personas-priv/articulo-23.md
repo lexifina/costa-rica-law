@@ -1,0 +1,1 @@
+Artículo 23.-En todas las reuniones y actividades del comité deberá contarse con la presencia de un funcionario coordinador designado por el Consejo Técnico, quien será responsable de velar porque el comité cumpla con los objetivos propuestos y regulaciones establecidas por la Institución. '

@@ -1,0 +1,1 @@
+Artículo 17.- Todo miembro del comité tiene derecho a voz y voto y no se establecerá en su interior rango jerárquico alguno. Para efectos de ejecución de actividades específicas en su seno se designarán responsabilidades a cada uno de sus integrantes.

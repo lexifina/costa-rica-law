@@ -1,0 +1,1 @@
+Artículo 27.-La condición de miembro del comité se pierde por expulsión acordada por la asamblea de privados de libertad, por renuncia del interesado, por ubicación en otro nivel, centro o ámbito de convivencia o bien por egreso en libertad.

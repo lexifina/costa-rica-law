@@ -1,0 +1,2 @@
+Artículo 7°-Para la convocatoria y celebración de asambleas, la organización interesada debe contar con la autorización previa del Consejo Técnico del Centro, al que se dirigirá la formal solicitud con al menos ocho días hábiles de antelación a la actividad respectiva.
+Se convocará asamblea, cuando así lo soliciten la mayoría de personas privadas de libertad pertenecientes a la organización o a petición del comité.

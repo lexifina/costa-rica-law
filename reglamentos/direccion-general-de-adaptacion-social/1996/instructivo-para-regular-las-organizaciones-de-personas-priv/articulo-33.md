@@ -1,0 +1,2 @@
+Artículo 33.-EI dinero en efectivo que recaude el comité, producto de actividades debidamente autorizadas por el Consejo Técnico del Centro, debe depositarse en forma inmediata en la administración, por parte de la persona privada de libertad designada para estos efectos, en cumplimiento de los procedimientos institucionales y reglamentarios.
+En ningún caso el funcionario(a) técnico coordinador(a) asumirá la custodia de dichos dineros.

@@ -1,0 +1,2 @@
+Artículo 3°-Todas las organizaciones de personas privadas de libertad deben enviar para conocimiento del Consejo Técnico del Centro, un programa trimestral de actividades a realizar.
+En caso de que las actividades programadas no sean acordes con las disposiciones institucionales para preservar el orden, la disciplina y la seguridad institucional en el Centro, el Consejo negará el permiso para su realización, mediante resolución fundada, que se notificará a la organización solicitante.

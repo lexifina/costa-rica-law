@@ -1,0 +1,1 @@
+Artículo 9°-Los acuerdos de asamblea, se tomarán por mayoría simple de los presentes, debiendo levantarse un acta de la reunión que incorpore el lugar, fecha, hora de celebración, agenda del día, asistentes, acuerdos adoptados y firmas de los participantes.

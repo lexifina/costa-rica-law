@@ -1,0 +1,1 @@
+Artículo 20.-El comité fijará, previa coordinación con autoridades correspondientes, los días de reuniones ordinarias y extraordinarias, para los cuales se establecerá hora y lugar de tal forma que no altere la dinámica del Centro, ni el Plan de Atención Técnica definido para cada uno de sus miembros.

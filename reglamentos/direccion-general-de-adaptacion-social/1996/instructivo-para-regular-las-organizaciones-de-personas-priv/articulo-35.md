@@ -1,0 +1,1 @@
+Artículo 35.-En lo referente a las donaciones que personas físicas o jurídicas hagan a la población penitenciaria, las mismas deben ajustarse en lo relativo a la recepción, ingreso y uso de lo donado, a lo estipulado en la normativa vigente en esta materia.

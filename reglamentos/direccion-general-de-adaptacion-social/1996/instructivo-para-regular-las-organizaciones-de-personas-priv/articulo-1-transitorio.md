@@ -1,0 +1,2 @@
+Transitorio.-Contará la Dirección General de Adaptación Social, con un plazo de un año máximo a partir de la vigencia de estas disposiciones, para ejercer las acciones de coordinación y trámites licitorios correspondientes, a efectos de dar continuidad a aquellos servicios que hoy prestan los comités a la población privada de libertad y, que de conformidad con el presente instructivo no deben realizar.
+San José, 27 de noviembre de 1996.

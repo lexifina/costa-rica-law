@@ -1,0 +1,2 @@
+Artículo 2°-A efecto de mantener el orden, la disciplina y la segurídad institucional, todas las organizaciones de personas privadas de libertad, deberán comunicar formalmente al Consejo Técnico del Centro, sobre su existencia, funcionamiento y objetivos.
+El Consejo Técnico del Centro es el órgano encargado de velar por el cumplimiento de las disposiciones institucionales en las actividades realizadas por las organizaciones de la población penitenciaria.

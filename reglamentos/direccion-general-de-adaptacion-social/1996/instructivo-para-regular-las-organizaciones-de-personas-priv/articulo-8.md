@@ -1,0 +1,1 @@
+Artículo 8°-Toda asamblea cuya realización haya sido autorizada, debe convocarse con un mínimo de 24 horas hábiles, antes de la hora establecida. El funcionario(a) coordinador es el responsable de proceder a su divulgación por los medios que disponga, haciendo de conocimiento público día, hora y lugar de reunión.

@@ -1,0 +1,1 @@
+Artículo 16.-A efecto de otorgamiento de permisos y de apoyo institucional a las actividades programadas por los comités, el Consejo Técnico del Centro dará prioridad a las de índole deportivo, cultura1 y social, que les permitan lograr su desarrollo personal y elevar los niveles de responsabilidad, necesarios para una adecuada convivencia.
