@@ -1,0 +1,1 @@
+Artículo2°.- Autorízase a los funcionarios aduaneros del país para que ese día puedan asistir a los actos oficiales de celebración; los cuales no interferirán aquellas labores que por su naturaleza no deben paralizar.
