@@ -1,0 +1,1 @@
+ARTÍCULO 4°. -Quedan refundidas en la presente las leyes números 126 y 127 de 21 de agosto de 1928, N° 5 de 19 de mayo de 1930 y N° 33 de 27 de junio de 1932, en la parte que se refieren al impuesto dicho y su distribución.

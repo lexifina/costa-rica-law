@@ -1,0 +1,2 @@
+ARTÍCULO 3°.-La Secretaría de Hacienda hará figurar en el Presupuesto General de Gastos la partida que corresponde a cada Colegio y al Patronato Nacional de la Infancia, por razón del impuesto referido, con base en el monto que produjo el año anterior, y la matrícula del mismo año, en cuanto a los Colegios.
+El Patronato Nacional de la Infancia y las Juntas Administrativas de los Colegios de Segunda Enseñanza y Escuela Normal de Costa Rica tendrán derecho a controlar la percepción de este impuesto, de acuerdo con el Poder Ejecutivo.
