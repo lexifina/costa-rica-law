@@ -14,3 +14,4 @@ Reglamento para Pago de Zonaje de los Servidores del Instituto de Desarrollo Agr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-11-30 | la propia norma |
+| 2 | 2001-12-03 | Reglamento 90 (2001-12-03) |
