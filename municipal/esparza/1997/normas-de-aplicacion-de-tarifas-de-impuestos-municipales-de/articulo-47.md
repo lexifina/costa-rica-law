@@ -1,0 +1,2 @@
+Artículo 47.—La cancelación de las multas equivalentes a los 3 salarios base, se efectuará en las oficinas de la Municipalidad de Esparza. El pago de la morosidad y la cancelación de las multas simultáneamente, suspenderá la sanción aplicada (suspensión de la licencia). Manifiesta la señora Contadora que la idea es tener este reglamento y hacer las gestiones más inmediatas con los patentados.
+(Así adicionado mediante sesión celebrada el 16 de octubre del 2000)

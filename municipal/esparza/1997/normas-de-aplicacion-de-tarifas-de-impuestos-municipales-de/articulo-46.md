@@ -1,0 +1,2 @@
+Artículo 46.—Si transcurridos los 5 días hábiles, el interesado no se ha presentado a la municipalidad a cancelar, de forma inmediata se le comunicará que su licencia ha sido suspendida a partir de la fecha inmediata al vencimiento del plazo y por tanto, su establecimiento deberá permanecer cerrado. El desacato de esta disposición generará multas equivalentes a los 3 salarios base. De persistir abierto el establecimiento, el mismo será cerrado con la colaboración de la guardia.
+(Así adicionado mediante sesión celebrada el 16 de octubre del 2000)
