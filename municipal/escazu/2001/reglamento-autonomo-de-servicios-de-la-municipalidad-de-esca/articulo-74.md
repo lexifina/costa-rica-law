@@ -1,0 +1,1 @@
+Artículo 74.—Cuando ingrese a laborar un funcionario al que se le ha reconocido el pago de anualidades y los años de servicio, se le otorgará vacaciones de acuerdo con el mismo tiempo laborado en la Administración Pública; sin embargo, no podrán reconocerse vacaciones no disfrutadas correspondientes a períodos anteriores laborados antes de ingresar a la municipalidad.

@@ -1,0 +1,1 @@
+Artículo 24.—Los usuarios de los equipos no podrán mantener documentos de carácter personal o de cualquier otro tipo que no se relacionen estrictamente con la función municipal. Para estos efectos, los funcionarios del Departamento de Cómputo de la municipalidad podrán realizar revisiones del equipo al azar y sin previo aviso.

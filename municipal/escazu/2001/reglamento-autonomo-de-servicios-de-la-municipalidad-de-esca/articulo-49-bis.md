@@ -1,0 +1,1 @@
+Artículo 49 bis.—A los servidores municipales que por condiciones de salud, les prescriben las autoridades médicas, prótesis dental, aparatos ortopédicos y/o anteojos, la Municipalidad asumirá el 75% del valor de dichos aparatos. Esto se otorgará una vez al año y siempre que sea por prescripción de la Caja Costarricenses del Seguro Social.

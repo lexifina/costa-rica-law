@@ -1,0 +1,1 @@
+Artículo 92.—Son días hábiles todos los días del año, excepto los feriados considerados en el Código de Trabajo: el día del patrono de la localidad, el día del Régimen Municipal, el 8, 24 y el 31 de diciembre, el día de Corpus Cristi, los días que se declaren de asueto y los días de descanso.

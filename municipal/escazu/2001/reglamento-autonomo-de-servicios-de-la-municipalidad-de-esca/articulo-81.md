@@ -1,0 +1,1 @@
+Artículo 81.—Cuando el servidor desempeña labores técnicas, de dirección u otras análogas que dificulten de manera especial su reemplazo, la municipalidad podrá acumularle las vacaciones por un período. Es obligación de todo responsable de cada unidad administrativa, no permitir que se acumulen dos o más períodos de vacaciones.

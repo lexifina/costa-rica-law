@@ -1,0 +1,2 @@
+Artículo 102.—Los acuerdos de la Junta de Relaciones Laborales se tomarán por simple mayoría; todo asunto se someterá a votación, lo cual constará en actas. El criterio que sostenga la Junta en las resolución del caso servirán como recomendación no vinculante para la Administración.
+Sin embargo la Administración al apartarse de la recomendación de la Junta de Relaciones Laborales deberá necesariamente fundamentar su decisión en la resolución final. De no haber quórum en algunas de las sesiones de la junta, el presidente convocará de inmediato para las próximas 24 horas.
