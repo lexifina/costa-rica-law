@@ -1,2 +1,3 @@
-Artículo 14.- Información sobre salarios.
-El Secretario del Consejo no podrá suministrar datos de fijación, modificación o interpretación de salarios mínimos, mientras no se encuentren firmes los acuerdos respectivos.
+Artículo 14.-Información sobre Salarios.
+El Secretario del Consejo no podrá suministrar datos de fijación, modificación o interpretación de salarios mínimos, mientras no se encuentren firmes los acuerdos respectivos. Quedan excluidos de esta prohibición los informes que en ese sentido solicite confidencialmente el Ministro de Trabajo y Seguridad Social.
+(Las reformas practicadas por el artículo 1° del decreto N° 13746 del 13 de julio de 1982, posteriormente fueron derogadas por el artículo 54 del decreto ejecutivo N° 19630 del 17 de abril de 1990 y numeral 54 del decreto ejecutivo N° 22068 del 1° de marzo de 1993. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma.)

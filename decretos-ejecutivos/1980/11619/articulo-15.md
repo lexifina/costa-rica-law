@@ -1,2 +1,5 @@
-Artículo 15.- Solicitudes de revisión de salarios.
-El Consejo se ocupará solamente de aquellas solicitudes de revisión de salarios en las que la calidad de los petentes sea certificada por la autoridad de trabajo o política del lugar en que residan los solicitantes.
+Artículo 15.-Solicitudes de Revisión de Salarios.
+El Consejo se ocupará solamente de aquellas solicitudes de fijación y revisión de salarios en que las calidades de los petentes sean autenticadas por las autoridades de trabajo o políticas del lugar en que residan los solicitantes.
+En cualquier tiempo y a solicitud del Ministro de Trabajo y Seguridad Social, de cinco patronos o de quince trabajadores de una misma actividad, el Consejo procederá a revisar los salarios mínimos vigentes y si fuere del caso, hará una nueva fijación.
+En caso de que sea el Ministro de Trabajo y Seguridad Social el que solicite revisar o fijar nuevos salarios, parcial o totalmente, se omitirá la recolección de firmas de patronos o trabajadores, señalada en el artículo 19 del Decreto-Ley N° 832 del 4 de noviembre de 1949.
+(Las reformas practicadas por el artículo 1° del decreto N° 13746 del 13 de julio de 1982, posteriormente fueron derogadas por el artículo 54 del decreto ejecutivo N° 19630 del 17 de abril de 1990 y numeral 54 del decreto ejecutivo N° 22068 del 1° de marzo de 1993. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma.)

@@ -1,2 +1,3 @@
-Artículo 18.- Cooperación de otras dependencias.
-Si por carencia de medios económicos la Oficina de Salarios, dependiente del Consejo, no pudiere llenar su cometido en cuanto a sus obligaciones específicas, el Consejo podrá solicitar la asistencia de otras dependencias públicas o privadas.
+Artículo 18.-Cooperación de otras dependencias.
+Si por carencia de recursos la Oficina de Salarios, dependiente del Consejo, no pudiere llevar a cabo su cometido en cuanto a sus obligaciones específicas, el Consejo solicitará al Ministro de Trabajo y Seguridad Social la asistencia y cooperación de otras dependencias públicas y privadas
+(Las reformas practicadas por el artículo 1° del decreto N° 13746 del 13 de julio de 1982, posteriormente fueron derogadas por el artículo 54 del decreto ejecutivo N° 19630 del 17 de abril de 1990 y numeral 54 del decreto ejecutivo N° 22068 del 1° de marzo de 1993. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma.)

@@ -1,7 +1,7 @@
-Artículo 11.- Atribuciones de los miembros.
-Son obligaciones de los miembros del Consejo:
-a) Votar los asuntos sometidos a su consideración;
-b) Asistir con puntualidad a las sesiones;
-c) Integrar las comisiones que el Consejo acuerde; y
-d) Realizar las misiones y estudios que el Consejo les encomiende y rendir oportunamente los informe respectivos.
-El retiro de las sesiones o la llegada tardía que exceda de quince minutos, en que incurran los miembros del Consejo, sin causa justificada y autorización del Presidente, lo que se hará constar en actas, produce la pérdida de la dieta correspondiente.
+Artículo 11.-Atribuciones de los Miembros.
+Son obligaciones de los Miembros del Consejo:
+a) Votar los asuntos sometidos a su consideración. En el caso de los representantes del Estado deberán ajustarse, al emitir su voto, a las directrices establecidas por el Poder Ejecutivo.
+b) Asistir con puntualidad a las sesiones.
+c) Integrar las comisiones de estudio y trabajo que el Consejo acuerde.
+d ) Realizar las tareas y actividades que el Consejo les encomiende y rendir oportunamente los informes respectivos. El retiro de las sesiones o la llegada tardía que exceda de quince minutos, en que incurran los miembros propietarios y suplentes del Consejo, sin causa justificada y autorización previa del Presidente o el Secretario, lo que se hará constar en actas, produce la pérdida de la dieta correspondiente. No obstante, la ausencia justificada no dará derecho al cobro de dietas, salvo cuando se estén cumpliendo tareas y atendiendo actividades del Consejo, lo cual se hará constar en actas mediante acuerdo previo.
+(Las reformas practicadas por el artículo 1° del decreto N° 13746 del 13 de julio de 1982, posteriormente fueron derogadas por el artículo 54 del decreto ejecutivo N° 19630 del 17 de abril de 1990 y numeral 54 del decreto ejecutivo N° 22068 del 1° de marzo de 1993. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma.)
