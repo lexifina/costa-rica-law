@@ -1,1 +1,0 @@
-Artículo 41 -Dentro de sus límites, la pena señalada por la ley para una falta se divide en máximum y mínimum: el primero se extiende de la mitad al extremo mayor, y el segundo, de la mitad al extremo menor. Para determinar la mitad se suman los dos extremos de la duración o de! valor pecuniario de la pena y el total se divide por dos, prescindiendo de toda fracción.

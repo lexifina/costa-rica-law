@@ -1,1 +1,0 @@
-Artículo 60.-La prescripción de la pena comienza a correr desde e! día en que la sentencia sea ejecutoria, o desde el día en que se revoque la suspensión condicional, o desde el quebrantamiento de la condena, si su ejecución ya hubiere comenzado.
