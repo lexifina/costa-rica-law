@@ -1,0 +1,1 @@
+Artículo 3°—Las funciones que se atribuyen a la Comisión responsable de estructurar la estrategia para llevar adelante la modernización portuaria, se establecen sin detrimento de las facultades y prerrogativas que por Ley Especial corresponden, en razón de autonomía, a instituciones autónomas, tales como JAPDEVA e INCOP u otras.

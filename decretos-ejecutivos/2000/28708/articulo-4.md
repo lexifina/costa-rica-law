@@ -1,0 +1,1 @@
+Artículo 4°—Sometimiento al ordenamiento jurídico. En su actividad, la Comisión deberá someterse a las normas constitucionales, internacionales, legales y reglamentarias vigentes, que le resulten aplicables, para el óptimo y debido ejercicio de sus funciones.

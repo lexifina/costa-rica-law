@@ -1,0 +1,13 @@
+No 28708-MOPT
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En el ejercicio de las facultades y prerrogativas conferidas por el artículo 140, inciso 3) y 18) de la Constitución Política; con fundamento en lo establecido en los artículos 1°, 2° y 3° de la Ley de Creación del Ministerio de Obras Públicas y Transportes No 4786; Ley de Planificación Nacional No 5525, del 2 de mayo de 1974; lo establecido en los artículos 28.1 y 28.2, ítems a) y b), siguientes y concordantes de la Ley General de la Administración Pública No 6227 y lo prescrito por el Decreto Ejecutivo N°28617-MOPT-MP.
+Considerando:
+1°—Que el Ministerio de Obras Públicas y Transporte y el Ministerio de la Presidencia, publicaron el día viernes 12 de mayo del 2000, en el Diario Oficial La Gaceta No 91, el Decreto Ejecutivo No 28617-MOPT-MP, creando el Consejo Portuario Nacional, presidido por el Ministro de Obras Públicas y Transportes, siendo una de sus funciones, impulsar y promover la modernización portuaria.
+2°—Que el Consejo Portuario Nacional, mediante Reunión celebrada a las 17,00 horas, del día 26 de enero de 1999, en el Despacho del Ministro de Obras Públicas y Transportes, Acta No 2-99, estimó oportuno crear una Comisión de Trabajo y de Coordinación, tendiente a estructurar la estrategia para llevar adelante el Proceso de Modernización Portuaria. Por tanto,
+Decretan:
+Artículo 1°—Créase una Comisión Interinstitucional responsable de estructurar la estrategia para llevar a cabo el Proceso de Modernización Portuaria, adscrita al Consejo Portuario Nacional, integrada por un consultor del Ministerio de Obras Públicas y Transportes, especialista en materia portuaria; un representante de la División de Puertos, Dirección de Gestión Portuaria del Ministerio de Obras Públicas y Transportes; un representante del INCOP; un representante de JAPDEVA y un representante del Ministerio de Trabajo; consiguientemente, la Comisión quedará integrada de la siguiente forma:
+1. Ing. Olman Elizondo Morales, cédula de identidad número 2-215-007, consultor del Ministerio de Obras Públicas y Transportes, especialista en materia portuaria, quien actuará como Coordinador de la Comisión.
+2. Ing. Edwin Rodríguez Aguilera, cédula de identidad número 3-238-295, funcionario de la División de Puertos, Dirección de Gestión Portuaria del Ministerio de Obras Públicas y Transportes.
+3. Lic. Marta Esquivel Rodríguez, cédula de identidad número 1-637-430, funcionaría del INCOP.
+4. Lic. Eduardo Alvarado Cordero, cédula de identidad número 2-212-100, funcionario de JAPDEVA, y
+5. Lic. Francisco Azofeifa González, cédula de identidad número 4-100-396, funcionario del Ministerio de Trabajo.
