@@ -1,0 +1,1 @@
+Transitorio I.—Los convenios de donación de terrenos existentes y vigentes a la promulgación de este Reglamento que fueron dados para facilitar la construcción de la red vial nacional mantendrán el beneficio adquirido.
