@@ -1,0 +1,1 @@
+Artículo 47.—Las personas que tengan derechos en el cementerio pueden asistir a las sesiones de la Junta para solicitar información, presentar sugerencias y enterarse de sus acuerdos, sin embargo, cuando un número mayor de cinco propietarios o arrendatarios desean presentar un asunto relevante para el cementerio se fijará hora y fecha de acuerdo con los interesados.

@@ -1,0 +1,2 @@
+Artículo 17.—Si el propietario de la fosa o nicho desea venderlos a la Junta o si ésta por motivo de alineamiento o estética deba adquirir alguna fosa, la adquirirá ajustándose al trámite de ley.
+En caso que la fosa vendida estuviere ocupada, la Junta proveerá el osario. Los restos que haya en los sitios mencionados no se trasladarán a ningún osario general, salvo mandamiento judicial. El acuerdo que se tome para cumplir lo anterior deberá motivarse.
