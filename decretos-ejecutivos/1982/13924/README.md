@@ -12,3 +12,4 @@ Reglamento de Cooperativas Juveniles
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-07-23 | la propia norma |
+| 2 | 2002-05-02 | Ley 8261 |
