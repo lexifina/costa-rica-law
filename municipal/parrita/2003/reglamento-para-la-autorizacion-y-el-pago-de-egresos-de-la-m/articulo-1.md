@@ -1,0 +1,5 @@
+REGLAMENTO PARA LA AUTORIZACIÓN Y EL PAGO
+DE EGRESOS DE LA MUNICIPALIDAD DE PARRITA
+CAPÍTULO I
+De la autorización de los egresos
+Artículo 1º—El Alcalde Municipal podrá autorizar egresos por gastos fijos y la adquisición de bienes y servicios, tal y como lo señala el artículo 17, inciso h) del Código Municipal hasta por la suma, que sea el límite que establece la legislación vigente para el Procedimiento de Contratación Directa, de acuerdo a lo que se establece en la tabla de Contratación Administrativa que publica la Contraloría General de la República en su publicación anual, según el Presupuesto Ordinario de esta Municipalidad; pudiendo delegar el Alcalde en otro funcionario de la administración y según lo establecido en el artículo 17, inciso b) del citado Código, la autorización de egresos y gastos fijos y la adquisición de bienes y servicios, hasta por la suma de doscientos mil colones, y dicho funcionario deberá dejar constancia en la orden de pago que es la persona autorizada por el señor Alcalde para realizar dicho pago.
