@@ -1,0 +1,1 @@
+Artículo 2º—Se entenderá por gastos de representación, las erogaciones en que incurran los funcionarios con ocasión del ejercicio de sus funciones, con el objeto de brindar atención de carácter oficial, a personas o instituciones ajenas al Banco Popular, o a las sociedades donde éste sea accionista.
