@@ -14,8 +14,16 @@ Los nombramientos de los Directores de Hospitales y demás personal médico, se 
 5°) Remover los empleados nombrados por ella o por los funcionarios encargados de hacer esos nombramientos, según el Reglamento y disposiciones de orden administrativo de cada Institución.
 Las Juntas de Protección Social, en defensa de sus intereses económicos y de la buena marcha de la Institución, sólo harán despidos de Directores y Administradores de Hospitales y Jefes de Departamentos o Servicios Técnicos o Administrativos, cuando exista causa justa, salvo casos de excepción que justificarán al hacer el despido que constará en el acta correspondiente que se enviará al Director General de Asistencia.
 En estos últimos casos de despido, se seguirá el mismo procedimiento señalado en el inciso 3), para efectos de las objeciones que pudiera hacer la Dirección General de Asistencia, así como de las apelaciones que pudieran interponerse ante el Ministerio de Salubridad Pública.
-(Así reformado el inciso 5) anterior por el artículo 2° del decreto ejecutivo N° 1390 del 9 de diciembre de 1970)
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 1390 del 9 de diciembre de 1970)
 6°) Aprobar en el mes de octubre de cada año, el presupuesto de ingresos y egresos que ha de regir en el año venidero, así como en su oportunidad los presupuestos extraordinarios, cuando fuere del caso. Unos y otros serán sometidos inmediatamente a la Dirección de Asistencia y Protección Social, para su aprobación. Una vez obtenida la aprobación dicha, les serán remitidos al Tesorero para que conforme a ellos atienda los giros que se le presenten.
 7°) Convocar para las sesiones ordinarias del Patronato.
 8°) Enajenar los bienes muebles e inmuebles de la institución, de conformidad con lo que dispone el artículo 4° de este Reglamento.
 9°) Dictar los reglamentos a que deben sujetarse las instituciones que ella administra, los cuales para su validez deben ser sometidos a la aprobación del Poder Ejecutivo, por medio de la Dirección General de Asistencia y Protección Social.
+11) Procurar el bienestar general de la población y fomentar programas educativos, a fin de mejorar la salud.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 1482 del 09 de febrero de 1971. No obstante; no existe el inciso 10))
+12) Procurar, a través del esfuerzo y participación comunal, la ayuda de lo gobiernos central y local, así como de otras entidades, para resolver problemas de la comunidad que se relacionen con aspectos de salud.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 1482 del 09 de febrero de 1971. No obstante; no existe el inciso 10))
+13) Participar a los vecinos en todo lo que se refiera a lograr nuevos servicio médicos o el mejoramiento de los existentes.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 1482 del 09 de febrero de 1971. No obstante; no existe el inciso 10))
+14) Hacerse representar en aquellas reuniones regionales y nacionales, a que se les cite o invite y en las que se vayan a tratar asuntos de medicina preventiva o asistencial que pudieran ser provechosos para la comunidad de su cantón.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 1482 del 09 de febrero de 1971. No obstante; no existe el inciso 10))
