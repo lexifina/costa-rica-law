@@ -1,0 +1,1 @@
+Artículo 29.—Retribución salarial en caso de recargo. Al acordarse el recargo de funciones por tiempo indefinido o al asumirse un puesto interinamente, el servidor sustituto tendrá derecho a recibir el salario de acuerdo con el sueldo base del puesto de categoría superior, siempre que reúna las condiciones y requisitos para ocupar ese puesto.

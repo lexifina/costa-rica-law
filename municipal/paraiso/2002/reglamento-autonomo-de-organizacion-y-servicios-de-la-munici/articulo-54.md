@@ -1,0 +1,1 @@
+Artículo 55.—La Municipalidad de Paraíso deberá adoptar las medidas necesarias para los servidores cuya permanencia no sea aconsejable, por razones médicas, en un puesto que entrañe exposiciones a los riegos de su trabajo debiendo en este caso, proceder al traslado del funcionario a un puesto más adecuado.

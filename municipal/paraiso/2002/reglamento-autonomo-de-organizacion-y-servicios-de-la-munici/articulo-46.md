@@ -1,0 +1,1 @@
+Artículo 46.—De las ausencias justificadas. Para los casos no contemplados en este Reglamento queda a juicio del Alcalde Municipal justificar ausencias no superiores a un día que no sean por enfermedad comprobada, sin que ello signifique la obligación al pago de salario.

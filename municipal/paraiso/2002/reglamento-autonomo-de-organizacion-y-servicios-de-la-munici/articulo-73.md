@@ -1,0 +1,1 @@
+Artículo 74.—Vigencia. El presente Reglamento rige a partir del décimo día de publicación en el Diario Oficial La Gaceta y deroga el anterior Reglamento de la Municipalidad de Paraíso publicado en La Gaceta Nº 209 del día 28 de octubre de 1999.

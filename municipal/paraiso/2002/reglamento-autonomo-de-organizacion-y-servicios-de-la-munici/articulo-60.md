@@ -1,0 +1,1 @@
+Artículo 61.—En un plazo no mayor a cinco días naturales, después de interpuesta la denuncia, el Alcalde procederá a conformar el Órgano Director. El Órgano Director estará integrado por tres personas: El Alcalde, un abogado y el Jefe de la Oficina de Personal.
