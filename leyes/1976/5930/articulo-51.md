@@ -1,0 +1,1 @@
+Artículo 51.- Si la indemnización que corresponde fuere superior a la cubierta por ese seguro, la víctima o sus causahabientes tendrán derecho a cobrar el faltante, por la vía correspondiente, a quien tenga la obligación de pagar.

@@ -1,0 +1,1 @@
+Artículo 94.- De las dieciocho a las seis horas queda prohibida la circulación de vehículos sin las luces reglamentarias encendidas. Igualmente, a cualquier hora del día, en aquellas ocasiones en que por razones naturales o artificiales se dificulte la visibilidad.

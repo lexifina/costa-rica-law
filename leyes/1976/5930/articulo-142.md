@@ -1,0 +1,1 @@
+Artículo 142.- Vencido el término que se indica en el artículo anterior, sin que los interesados promuevan acción para hacer valer sus derechos, se procederá al remate correspondiente, el cual será llevado a cabo, conforme el Código de Procedimientos Civiles, por la autoridad judicial competente, a requerimiento de la Dirección General de Tránsito.

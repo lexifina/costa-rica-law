@@ -1,0 +1,4 @@
+Artículo 95.- Se prohíbe la instalación de avisos, anuncios o rótulos que, por semejanza, formas, o colocación, puedan entorpecer la lectura de las señales de tránsito, la circulación de vehículos o la visibilidad de las vías, de acuerdo con lo que al efecto dispone el reglamento de esta ley.
+Asimismo, se prohíbe a peatones y conductores de toda clase de vehículos, lanzar basura y cualquier otro objeto que entorpezca la visibilidad y afecte la seguridad vial en general. Por ese mismo motivo, queda prohibida la instalación de toda clase de rótulos publicitarios en plazas, carreteras, caminos, puentes y cualquier otra propiedad pública, con excepción de los que dispongan la Dirección General de Seguridad Vial y el Poder Ejecutivo, sin fines de lucro, para el servicio de la comunidad.
+Los infractores pagarán diez veces el valor del objeto instalado o depositado.
+(Así adicionado por el artículo 23 inciso 11 de la ley No. 7108 de 8 de noviembre de 1988).

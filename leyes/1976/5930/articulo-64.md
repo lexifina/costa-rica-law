@@ -1,0 +1,1 @@
+Artículo 64.- Las prestaciones en especie o dinero, derivadas del seguro obligatorio, y dentro de sus límites, las satisfará el Instituto Nacional de Seguros, haya o no culpa del conductor del vehículo asegurado, salvo en el caso de excepción previsto en el párrafo primero del artículo 52 de la presente ley.

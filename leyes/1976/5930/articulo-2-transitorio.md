@@ -1,0 +1,2 @@
+Transitorio II.- La multa será la que corresponda al tenor de las reglas de la Ley de Tránsito que se hallaban vigentes cuando ocurrió la infracción, excepto si dicha multa fuere inferior de conformidad con las reformas que esta ley establece, en cuyo caso ésta se aplicará para determinarlas.
+Los presuntos infractores, si no estuvieren de acuerdo en pagar la multa, tendrán quince días de término, a partir de la publicación, para comparecer ante la autoridad competente y ofrecer la prueba de descargo.

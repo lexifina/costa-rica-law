@@ -1,0 +1,1 @@
+Artículo 127.- Si fuere recusado alguno de los integrantes del tribunal, conocerán de la recusación los otros; si se hiciere a dos la resolverá el integrante hábil; y, si fueren recusados todos, conocerá de ella uno de los suplentes designados por la Corte Suprema de Justicia.

@@ -1,0 +1,1 @@
+Artículo 104.- Las acciones por resarcimiento de daños y perjuicios, ocasionados por los vehículos que circulen en las vías públicas, pueden ser establecidas por el perjudicado o su representante ante el tribunal competente, del lugar en que el daño se haya producido, salvo lo dispuesto en el artículo 63 de esta ley.

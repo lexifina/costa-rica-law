@@ -1,0 +1,3 @@
+Artículo 21.- El permiso de circulación se cancelará automáticamente, pasados dos años sin que los vehículos correspondientes se hayan presentado a la Dirección General de Tránsito para renovarlo. Si una vez cancelado se solicita un nuevo permiso para circular, el propietario del vehículo queda obligado a pagar todos los derechos atrasados.
+Se exceptúan de esta norma, los casos en que se dejan en depósito en el Registro Público de la Propiedad de Vehículos Motorizados las placas respectivas, con documento que indiquen las razones por las cuales se renuncian y el sitio en que el vehículo permanecerá guardado.
+En estos casos, también se suspenderá el cobro de derechos, previa autorización de la Dirección de Hacienda.
