@@ -1,0 +1,1 @@
+Artículo 4°—Los vehículos tipo cisterna dedicados a esta actividad, deberán contar con las características necesarias que permitan el transporte de esos productos a la temperatura de manejo requerida por el cliente, de acuerdo al proceso de elaboración de la mezcla asfáltica necesaria e idónea para los programas de mantenimiento de la red vial nacional.
