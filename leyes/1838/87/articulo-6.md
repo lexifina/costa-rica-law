@@ -1,0 +1,1 @@
+Art. 6. Las Aduanas, resguardos y guarniciones están sujetas en todo al Gobierno del Estado: y observarán el Arancel y Ley orgánica de Hacienda Federal de 27 de febrero de 837, y las demás Leyes que por ella son derogadas.
