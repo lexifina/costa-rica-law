@@ -1,0 +1,1 @@
+ARTÍCULO 19.- La constitución de la sociedad, sus modificaciones, disolución, fusión y cualesquiera otros actos que en alguna forma modifiquen su estructura, deberán ser necesariamente consignados en escritura pública, publicados en extracto en el periódico oficial e inscritos en el Registro Mercantil.

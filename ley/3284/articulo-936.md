@@ -1,0 +1,1 @@
+ARTÍCULO 936.- Toda proposición formal de convenio deberá ser hecha y discutida en junta general, especialmente convocada al efecto. Esa proposición deberá presentarse al juzgado con la solicitud de convocatoria a la junta, y estará a disposición de los acreedores para su estudio.

@@ -1,0 +1,2 @@
+ARTÍCULO 770.- El aceptante por intervención responderá ante el tenedor y ante los endosantes posteriores a aquél por cuenta de quien hubiere intervenido, en igual forma que éste.
+A pesar de la aceptación por intervención, la persona en cuyo favor se hubiere hecho y las que garanticen a ésta, podrán exigir del tenedor, mediante el reembolso de la cantidad indicada en el artículo 782, la entrega de la letra de cambio, del protesto y de una cuenta con el recibo, si hubiere lugar.

@@ -1,0 +1,1 @@
+ARTÍCULO 539.- El deudor no podrá, salvo pacto en contrario, reclamar la restitución de la prenda en todo o en parte, mientras no haya pagado la totalidad de la deuda por capital e intereses, y los gastos de conservación debidamente comprobados.

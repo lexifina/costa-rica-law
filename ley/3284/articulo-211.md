@@ -1,0 +1,3 @@
+ARTÍCULO 211.- La designación de los liquidadores se hará de conformidad con lo previsto en la escritura social. A falta de tal previsión, se hará por convenio de los socios en el mismo momento en el que se acuerde o reconozca la disolución. Si éstos no llegaren a un acuerdo, la designación la hará el juez a gestión de parte interesada, por los trámites establecidos en el Código Procesal Civil.
+Cuando la sociedad se disuelva por vencimiento del plazo o por sentencia, la designación deberá hacerse dentro de los treinta días siguientes a aquél en que terminó el plazo o en que quedó firme la sentencia que ordenó la disolución.
+(Así reformado por el artículo 3º de la ley Nº 7130 de 16 de agosto de 1989)

@@ -1,0 +1,1 @@
+ARTÍCULO 110.- Los suscriptores depositarán en la persona designada al efecto por los fundadores, las sumas que se hubieren obligado a pagar en dinero efectivo, de acuerdo con el inciso c) del artículo anterior, para que sean recogidas por los representantes de la sociedad una vez inscrita ésta.

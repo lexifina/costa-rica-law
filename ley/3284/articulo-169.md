@@ -1,0 +1,1 @@
+ARTÍCULO 169.- Para que una asamblea ordinaria se considere legalmente reunida en primera convocatoria, deberá estar representada en ella, por lo menos la mitad de las acciones con derecho a voto; y las resoluciones sólo serán válidas cuando se tomen por más de la mitad de los votos presentes.

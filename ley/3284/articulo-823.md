@@ -1,0 +1,1 @@
+ARTÍCULO 823.- Si con posterioridad a la contraorden de pago el girado resolviere ordenar que se efectúe el pago del cheque, deberá revalidarlo poniendo al reverso bajo su firma una leyenda que claramente lo exprese así. Consignará la fecha y su firma.

@@ -1,0 +1,1 @@
+ARTÍCULO 435.- El que paga una cuenta o da un recibo no pierde el derecho de solicitar la rectificación de errores, omisiones, partidas u otros vicios contenidos en la cuenta o recibo, siempre que se pruebe debidamente el error sufrido.

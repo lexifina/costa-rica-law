@@ -1,0 +1,1 @@
+ARTÍCULO 342.- La empresa pública puede recibir para el transporte mercaderías y pasajeros en las estaciones o lugares de tránsito, donde no tenga la empresa oficina abierta. En ese caso, el conductor respectivo recibirá la mercadería o admitirá al pasajero, y el contrato que con ese empleado se celebra en tales circunstancias, obliga a la empresa en los términos expresados.

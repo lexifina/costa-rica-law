@@ -1,0 +1,3 @@
+ARTÍCULO 897.- Serán también susceptibles de reivindicación todas las mercaderías, efectos, valores y demás títulos que se hayan entregado al quebrado en consignación de venta, o que los tenga por haberlos comprado por encargo de un tercero.
+Todos los créditos pendientes de cobro provenientes de la venta de mercaderías o efectos recibidos en consignación, pertenecerán al propietario de tales bienes; y el curador, una vez reconocido ese derecho por resolución firme, dará las instrucciones y firmará los documentos que sean necesarios, a fin de que el legítimo dueño reciba íntegramente y a la mayor brevedad, de manos de los deudores, las sumas correspondientes.
+(Así reformado por el artículo 3º de la ley Nº 7130 de 16 de agosto de 1989)

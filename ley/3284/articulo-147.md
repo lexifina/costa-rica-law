@@ -1,0 +1,1 @@
+ARTÍCULO 147.- Cuando existan diversas clases o categorías de acciones, cualquier proposición que tienda a eliminar o modificar los privilegios de una de ellas, deberá ser aprobada por los accionistas de la categoría afectada, reunida en asamblea especial.

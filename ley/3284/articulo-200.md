@@ -1,0 +1,1 @@
+ARTÍCULO 200.- Las personas encargadas de la vigilancia de las sociedades anónimas que en cualquier negocio tuvieren un interés opuesto al de la sociedad, deberán abstenerse de toda intervención en él, so pena de responder de los daños y perjuicios que ocasionaren a la sociedad.

@@ -1,0 +1,1 @@
+ARTÍCULO 293.- Todas las ventajas que el comisionista pueda obtener en la negociación que se le encarga, beneficiarán exclusivamente al comitente. No podrá el comisionista compensar los daños y perjuicios que irrogue al comitente en un negocio, con las ventajas o beneficios que haya obtenido en otro, pues cada encargo se liquidará enteramente por separado.

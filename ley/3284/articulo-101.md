@@ -1,0 +1,1 @@
+ARTÍCULO 101.- Las sociedades de responsabilidad limitada no se disolverán por la muerte, interdicción o quiebra de sus socios, salvo disposición en contrario de la escritura social. La quiebra de la sociedad no acarrea la de sus socios. En los casos de responsabilidad solidaria y personal, contemplados en este capítulo, se procederá conforme a lo dispuesto en el artículo 960.

@@ -1,0 +1,1 @@
+ARTÍCULO 115.- Suscrito el capital social y hechos los pagos legales, los fundadores, dentro de un plazo de quince días, harán la convocatoria para la reunión de la asamblea general constitutiva, de la manera prevista en el programa.

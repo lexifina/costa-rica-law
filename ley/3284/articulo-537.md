@@ -1,0 +1,6 @@
+SECCION I
+De la Constitución de la Prenda
+Artículo 537.- Las prendas en las que se ofrezcan como garantía vehículos automotores, buques o aeronaves, deberán ser constituidas en escritura pública. Las que se constituyan en relación con otros bienes muebles de distinta naturaleza, podrán ser otorgadas en documento público o privado o en fórmulas oficiales de contrato. En estos dos últimos casos, se necesitará la firma del deudor debidamente autenticada por un notario público.
+El deudor conservará, a nombre del acreedor pignoraticio, la posesión de la cosa empeñada y asumirá las obligaciones y responsabilidades de un depositario; además, responderá por los daños que sufran las cosas y no provengan de caso fortuito, fuerza mayor ni de la naturaleza misma de los objetos. Como prueba del depósito, servirá el documento o certificado que acredite la constitución de la prenda o la certificación del Registro de Prendas.
+(Así reformado por el artículo 176 del Código Notarial, ley N° 7764 del 17 de abril de 1998)
+(Nota de Sinalevi: Véase infra el Transitorio del artículo 554, que indica: “…que cualquier modificación, prórroga, cancelación parcial o total u otro acto jurídico vinculado con contratos de prendas, debidamente inscritos antes de la vigencia de esta ley, observará el procedimiento dispuesto en la legislación anterior...”)

@@ -1,0 +1,1 @@
+ARTÍCULO 20.- Las sociedades inscritas en el Registro Mercantil tendrán personería jurídica. Declarada la inexistencia o la nulidad del acto constitutivo, se procederá a la disolución y liquidación de la sociedad sin efecto retroactivo.

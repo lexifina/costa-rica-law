@@ -1,0 +1,1 @@
+ARTÍCULO 779.- Los errores, omisiones u otros defectos del acta de protesto podrán ser subsanados por el notario que la hubiere redactado, en la misma forma que los defectos de cualquier otra escritura.

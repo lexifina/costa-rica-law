@@ -1,0 +1,1 @@
+ARTÍCULO 355.- Si el agente independiente tuviere asignada en el contrato una zona determinada en forma exclusiva, le corresponderá una comisión por los negocios de su ramo que se realicen por el principal o por otro dependiente suyo en dicha zona, aunque el agente no haya intervenido en los mismos.

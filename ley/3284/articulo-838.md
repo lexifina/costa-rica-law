@@ -1,0 +1,1 @@
+ARTÍCULO 838.- La falta de pago inmediato de un cheque de viajero, dará derecho al tenedor para exigir ejecutivamente del librador la devolución del importe del mismo y el resarcimiento de daños y perjuicios que en ningún caso será inferior al veinticinco por ciento del valor del cheque no pagado.

@@ -1,0 +1,3 @@
+ARTÍCULO 418.- Las obligaciones mercantiles pagaderas el día indicado en el contrato, y a falta de estipulación sobre el particular, serán exigibles inmediatamente, salvo que por la naturaleza del negocio, o por la costumbre establecida, se requiera de un plazo. En consecuencia, los efectos de la mora comenzarán:
+a) En los contratos que tuvieren día señalado para su cumplimiento, ya por voluntad de las partes o por disposición de la ley, el día siguiente de su vencimiento; y
+b) Los casos que no tengan plazo señalado, desde el día siguiente a aquél en que el acreedor requiera al deudor, judicial o extrajudicialmente. El recibo de la oficina de correos hace presumir, salvo prueba en contrario, que la carta o telegrama remitido se refiere al requerimiento extrajudicial.

@@ -1,0 +1,1 @@
+ARTÍCULO 860.- Servirá como fundamento para declarar la quiebra, cualquiera de los títulos a los que las leyes les da el carácter ejecutivo. Un documento privado que no tenga carácter de título ejecutivo servirá, sin embargo, de base a una declaratoria de quiebra, cuando a juicio del Juez la firma o firmas del obligado fueren auténticas.

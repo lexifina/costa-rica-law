@@ -1,0 +1,1 @@
+ARTÍCULO 246.- La razón comercial no podrá contener indicación de empresas que no estén relacionadas con el negocio a que corresponde. Tampoco se podrá conservar en la razón comercial la indicación de un negocio que se haya modificado totalmente.

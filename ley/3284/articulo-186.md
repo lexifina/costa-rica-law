@@ -1,0 +1,1 @@
+ARTÍCULO 186.- Concluido el plazo para el que hubieren sido designados, los consejeros continuarán en el desempeño de sus funciones hasta el momento en que sus sucesores puedan ejercer legalmente sus cargos.

@@ -1,0 +1,1 @@
+ARTÍCULO 370.- Los dependientes que atienden al público deberán estar facultados para realizar las operaciones de que estuvieren encargados, y cobrarán en el mismo acto el precio de las mercancías vendidas por ellos, salvo que el principal anuncie al público que los pagos deberán hacerse a la caja.

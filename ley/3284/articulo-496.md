@@ -1,0 +1,1 @@
+ARTÍCULO 496.- Salvo pacto en contrario, el préstamo mercantil será siempre retribuido. La retribución consistirá, a falta de convenio, en intereses legales calculados sobre la suma de dinero o el valor de la cosa prestada. Los intereses corrientes empezarán a correr desde la fecha del contrato, y los moratorios desde el vencimiento de la obligación.

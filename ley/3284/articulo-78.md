@@ -1,0 +1,2 @@
+ARTÍCULO 78.- El capital social estará representado por cuotas nominativas, que sólo serán trasmisibles mediante las formalidades señaladas en este Código y nunca por endoso. Los certificados representativos de dichas cuotas se emitirán cuando los interesados lo soliciten y en ellos se hará constar que no son trasmisibles por endoso.
+Todo traspaso de cuotas, para que afecte a terceros, deberá necesariamente constar en el libro de actas o registro de socios de la sociedad, o tener fecha cierta y podrá, además, inscribirse en el Registro Mercantil.

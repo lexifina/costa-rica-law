@@ -1,0 +1,1 @@
+ARTÍCULO 831.- En cualquier tiempo, dentro del término de la prescripción, el banco girado deberá pagar el cheque total o parcialmente, si el librador tiene fondos suficientes para ello y no ha recibido contraorden ni mandato judicial para no hacer el pago.

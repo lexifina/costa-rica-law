@@ -1,0 +1,1 @@
+ARTÍCULO 284.- En cuanto a los fondos que tenga el comisionista pertenecientes al comitente, será responsable de todo daño o extravío, aunque sea por caso fortuito o por efecto de violencia, a menos que haya pacto expreso en contrario.

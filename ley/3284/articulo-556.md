@@ -1,0 +1,1 @@
+Artículo 556.- El título en que conste la prenda debidamente inscrita es trasmisible por endoso nominativo o cesión. El endosante será responsable solidariamente con el deudor, salvo que el endoso contenga enunciaciones que modifiquen, limiten o eliminen esa responsabilidad. El endoso debe ser notificado al deudor e inscrito en el Registro de Prendas.

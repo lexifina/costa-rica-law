@@ -1,0 +1,1 @@
+ARTÍCULO 944.- Los acreedores comunes que no figuraren en el concurso, tendrán derecho a cobrarle a su deudor después de aprobado el convenio, tan sólo una parte igual a la que les habría correspondido si hubieren legalizado oportunamente en la quiebra.

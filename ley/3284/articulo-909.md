@@ -1,0 +1,2 @@
+ARTÍCULO 909.- La opinión del curador respecto a un crédito no obliga a los acreedores, no obstante la calificación favorable que éstos hagan de determinado crédito, el juzgado, al dictar la resolución, podrá rechazarlo si a su juicio no está debidamente comprobado el derecho del acreedor. El voto del crédito rechazado no se computará.
+(Así reformado por el artículo 3º de la ley Nº 7130 de 16 de agosto de 1989)

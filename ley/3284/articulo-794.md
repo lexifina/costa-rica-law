@@ -1,0 +1,6 @@
+ARTÍCULO 794.- Cuando no fuere posible presentar la letra de cambio o levantar el protesto en los plazos fijados, por fuerza mayor, se entenderán prorrogados dichos plazos.
+El tenedor estará obligado a dar aviso sin demora a su endosante y al librador del caso de fuerza mayor, y a anotar este aviso, fechado y firmado por él, en la letra de cambio o en su suplemento. Las disposiciones del artículo 785 serán aplicables en este caso.
+Una vez que haya cesado la fuerza mayor, el tenedor deberá presentar la letra sin demora para su aceptación o pago, y si hay lugar, deberá levantar el protesto.
+Si la fuerza mayor persistiere después de transcurridos treinta días a partir de la fecha del vencimiento, las acciones podrán ejercitarse sin que sea necesaria la presentación ni el protesto.
+Para las letras de cambio a la vista o a plazo cierto desde la vista, el término de treinta días correrá a partir de la fecha en que el tenedor haya dado aviso de la fuerza mayor a su endosante, aun antes de la expiración de los plazos de presentación. Para las letras de cambio a plazo cierto desde la vista, al término de treinta días se agregará el plazo desde la vista indicado en la letra de cambio.
+No constituirán fuerza mayor los hechos que sólo afecten personalmente al tenedor o a la persona encargada por él de la presentación de la letra o del levantamiento del protesto.

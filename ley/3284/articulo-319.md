@@ -1,0 +1,1 @@
+ARTÍCULO 319.- Las multas en que pueda incurrir el factor por contravención a las leyes o reglamentos en las gestiones propias del establecimiento, se harán efectivas en bienes de su principal, sin perjuicio de la responsabilidad del factor frente al propietario del negocio, si tales contravenciones fueren imputables al factor.

@@ -1,0 +1,1 @@
+ARTÍCULO 833.- Publicada la declaración de insolvencia o de quiebra, el banco se abstendrá de pagar cheques emitidos por el insolvente o quebrado. Incurrirá el banco en responsabilidad si procediere contra lo ordenado en este artículo.

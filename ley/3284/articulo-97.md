@@ -1,0 +1,1 @@
+ARTÍCULO 97.- El cambio de objeto de la sociedad y la modificación a la escritura social que imponga mayor responsabilidad a los socios, sólo podrá acordarse por unanimidad de votos y en reunión en que esté representada la totalidad del capital social. Para cualquier otra modificación de la escritura se requerirá el voto favorable de las tres cuartas partes del capital social.

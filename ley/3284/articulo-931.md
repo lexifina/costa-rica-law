@@ -1,0 +1,2 @@
+ARTÍCULO 931.- Distribuido el haber entre los acreedores, éstos conservarán, por todo el término de la prescripción de su respectivo crédito, derecho para cobrar al deudor el saldo que haya quedado en descubierto; sin embargo, si fuere absuelto en el proceso penal, no podrán embargar ni cobrar antes de tres años a partir del día en que quede firme el auto que aprobó la distribución. La prescripción empezará a contarse al vencer esos tres años.
+(Así reformado por el artículo 5º de la ley Nº 4327 de 17 de febrero de 1969)

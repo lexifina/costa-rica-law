@@ -1,0 +1,1 @@
+ARTÍCULO 353.- A falta de convenio especial, el agente viajero a comisión percibirá un porcentaje proporcional a la cuantía del negocio que se realice por su intervención, de acuerdo con las costumbres del lugar donde el negocio se efectúe.

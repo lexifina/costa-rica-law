@@ -1,0 +1,1 @@
+ARTÍCULO 769.- La aceptación por intervención se hará constar en la letra de cambio e irá firmada por el que intervenga. En ella se indicará por cuenta de quién se efectúa, y a falta de esta indicación, se entenderá que la aceptación ha sido dada a favor del librador.

@@ -1,0 +1,2 @@
+ARTÍCULO 340.- Las empresas públicas de transporte dictarán sus propios reglamentos, tarifas o itinerarios, que deberán ser aprobados por el Ministerio de Gobernación y puestos en lugar visible en sus estaciones y bodegas. Esos reglamentos, tarifas o itinerarios son obligatorios para todos, siempre que se ajusten a las disposiciones legales que rigen la materia.
+(Nota SINALEVI: En el caso de Transporte remunerado de personas, ver el artículo 2º de la Ley Reguladora del Transporte Remunerado de Personas en Vehículos Automotores, Nº 3503 de 18 de mayo de 1965)

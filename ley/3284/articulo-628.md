@@ -1,0 +1,1 @@
+ARTÍCULO 628.- El retiro de fondos de una cuenta corriente debe necesariamente hacerse por medio de fórmulas especiales que el Banco suministrará al cuentacorrentista. Solamente en casos especiales, el Banco podrá consentir en otra forma el retiro de fondos.

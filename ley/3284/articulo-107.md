@@ -1,0 +1,2 @@
+ARTÍCULO 107.- Las aportaciones en numerario se depositarán en un banco del Sistema Bancario Nacional, a nombre de la sociedad en formación, de lo que el notario deberá dar fe. El dinero depositado será entregado únicamente a quien ostente la representación legal de la sociedad una vez inscrita ésta, o a los depositantes, si comprueban con escritura pública haber desistido de la constitución de común acuerdo.
+(Así reformado por el artículo 2º de la ley Nº 7201 de 10 de octubre de 1990)

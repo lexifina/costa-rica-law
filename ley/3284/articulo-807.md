@@ -1,0 +1,1 @@
+ARTÍCULO 807.- El que trasmite un cheque girado al portador, o disyuntivamente a favor de una persona o al portador, sin endosatario, no garantiza su pago, pero responde de que las firmas son verdaderas y de que él es su legítimo dueño.

@@ -1,0 +1,1 @@
+ARTÍCULO 374.- Ni los factores, ni los contabilistas, ni dependientes de comercio podrán delegar en otros los encargos que reciban de sus principales, sin el consentimiento expreso de éstos; y caso de hacer esta delegación sin mediar autorización, responderán directamente de las gestiones de los sustitutos y de las obligaciones contraídas por ellos.

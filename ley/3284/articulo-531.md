@@ -1,0 +1,1 @@
+ARTÍCULO 531.- Todo préstamo que se efectúe con arreglo a las disposiciones de este capítulo será reputado como una operación comercial, independientemente de las calidades de las partes contratantes, pero no dará lugar a la quiebra si el deudor no fuere realmente comerciante.

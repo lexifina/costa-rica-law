@@ -1,0 +1,1 @@
+ARTÍCULO 244.- Las nuevas firmas comerciales deberán distinguirse claramente de las ya establecidas y registradas. Si el nombre de algún comerciante que se proponga ejercer el comercio individualmente, fuere igual a otro inscrito como firma comercial, el nuevo comerciante deberá hacer lo necesario para diferenciarlo del ya registrado.

@@ -1,0 +1,1 @@
+ARTÍCULO 316.- Los condóminos de un establecimiento, aunque no sean socios, responden solidariamente de las obligaciones contraídas por su factor. La misma regla será aplicable cuando por muerte del propietario, un establecimiento administrado por factor llega a pertenecer a varios herederos.

@@ -1,0 +1,1 @@
+Artículo 546.- Las sumas que entregare un banco a los prestatarios y que estuvieren garantizadas con prendas de futuras cosechas, mejoras por hacer o bienes muebles a cuya adquisición, producción o construcción se hubiere destinado el préstamo, serán inembargables.

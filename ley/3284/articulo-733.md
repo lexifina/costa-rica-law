@@ -1,0 +1,1 @@
+ARTÍCULO 733.- Si una letra de cambio lleva firmas de personas incapaces de obligarse por letra de cambio, o firmas falsas, o de personas imaginarias, o firmas que por cualquier otra razón no puedan obligar a las personas que hayan firmado la letra de cambio o con cuyo nombre aparezca firmada, las obligaciones de cualesquiera otros firmantes no dejarán por eso de ser válidas.

@@ -1,0 +1,1 @@
+ARTÍCULO 112.-Si un suscritor no pagare oportunamente su aporte, los fundadores podrán exigirle judicialmente el cumplimiento o tener por no suscritas las acciones y, en ambos casos, tendrán derecho al cobro de daños y perjuicios. El documento de suscripción servirá de título ejecutivo para los efectos de este artículo.

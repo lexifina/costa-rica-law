@@ -1,0 +1,2 @@
+ARTÍCULO 757.- El avalista responderá de igual manera que aquél a quien garantiza. Su compromiso será válido, aunque la obligación garantizada fuese nula por cualquier causa que no sea la de vicio de forma.
+Cuando el avalista pagare la letra de cambio adquirirá los derechos derivados de ella contra la persona garantizada y contra los que sean responsables respecto de esta última por virtud de la letra de cambio.

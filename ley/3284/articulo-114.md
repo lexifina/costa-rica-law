@@ -1,0 +1,1 @@
+ARTÍCULO 114.- Si vencido el plazo fijado en el programa, el capital social no fuere íntegramente suscrito, o por cualquier motivo no se llegare a constituir la sociedad, los suscriptores quedarán desligados de su compromiso y podrán retirar las cantidades que hubieren depositado.

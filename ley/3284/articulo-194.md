@@ -1,0 +1,1 @@
+ARTÍCULO 194.- No obstante lo dicho en el artículo anterior, la vigilancia de las sociedades que formen su capital por suscripción pública se hará de acuerdo con las normas que se establecen en los siguientes artículos.

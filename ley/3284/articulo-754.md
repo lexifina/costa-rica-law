@@ -1,0 +1,2 @@
+ARTÍCULO 754.- Cuando el librado que hubiere puesto en la letra de cambio su aceptación, la tachare antes de devolver la letra, se considerará que ha negado la aceptación. Salvo prueba en contrario, la tachadura se considerará hecha antes de la devolución del título.
+No obstante, si el librado hubiere notificado su aceptación por escrito al tenedor o a un firmante cualquiera, quedará obligado respecto de éstos con arreglo a los términos notificados.

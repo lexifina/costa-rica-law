@@ -1,0 +1,1 @@
+ARTÍCULO 840.- Los bancos también pueden vender cheques de viajero en cualquier moneda, expedidos por otros bancos del exterior, los cuales ser regirán por las leyes del país donde se emitan, pero el banco que los venda en Costa Rica será responsable de la autenticidad de los mismos.

@@ -1,0 +1,2 @@
+ARTÍCULO 139.- Cada acción común tendrá derecho a un voto. En el acto constitutivo no podrán establecerse restricciones totales o parciales a ese derecho, sino respecto de acciones que tengan privilegios en cuanto a la repartición de utilidades o reembolso de la cuota de liquidación, pero no podrá limitárseles a éstas el derecho de voto en asambleas extraordinarias, ni en lo referido en el artículo 147. Se prohíbe la emisión de acciones de voto plural.
+(Así reformado por el artículo 2º de la ley Nº 7201 de 10 de octubre de 1990)

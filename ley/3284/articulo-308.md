@@ -1,0 +1,1 @@
+ARTÍCULO 308.- La intervención de los corredores jurados en los actos mercantiles no es obligatoria para los contratantes, pero si una negociación se iniciare por medio de un corredor jurado, debe concluirse con su intervención, salvo que circunstancias justificadas obliguen a las partes a prescindir de sus servicios.

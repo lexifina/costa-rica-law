@@ -1,0 +1,1 @@
+ARTÍCULO 665.- El gestor es el único que se considera dueño del negocio en las relaciones externas que produce la participación. Los terceros sólo tienen acción contra el gestor; los partícipes inactivos carecen de ella contra terceros.

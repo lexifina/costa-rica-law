@@ -1,0 +1,3 @@
+ARTÍCULO 805.- La propiedad del cheque se trasmite por endoso, salvo que se trate de cheque al portador, caso en el cual basta la simple tradición. El cheque podrá ser endosado por una sola vez, sin que se cuente para tal efecto el endoso para su depósito en una cuenta de un banco o entidad financiera autorizada.
+Los cheques girados a favor de una persona jurídica no podrán ser trasmitidos por endoso. Solo podrá hacerlo efectivo la persona jurídica beneficiaria o depositarse en una cuenta de esta.
+(Así reformado por el artículo 187, inciso i), de la Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997)

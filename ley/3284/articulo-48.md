@@ -1,0 +1,3 @@
+ARTÍCULO 48.- Los socios no podrán, sin el consentimiento de los demás, interesarse como socios en otras compañías similares, ni emprender por su cuenta, o por la de otro, negocios análogos a los de la sociedad.
+El consentimiento se presumirá otorgado si tales negocios fueren del conocimiento público, anteriores a la constitución de la sociedad, y los socios no hubieren estipulado nada al respecto.
+La sociedad podrá excluir a los socios que contravinieren esta disposición, o bien tomar por su cuenta el negocio o exigir que el socio le entregue la ganancia obtenida en las operaciones que ya hubiere ejecutado, todo sin perjuicio de la indemnización por cualquier daño que le hubiere ocasionado a la empresa.

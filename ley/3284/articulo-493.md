@@ -1,0 +1,1 @@
+ARTÍCULO 493.- Salvo pacto en contrario, el cedente de un crédito mercantil responde tan solo de la legitimidad del crédito y de la personalidad con que hizo la cesión, pero no garantiza la solvencia del deudor.

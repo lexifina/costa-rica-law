@@ -1,0 +1,2 @@
+ARTÍCULO 103.- La denominación se formará libremente, pero deberá ser distinta de la de cualquier sociedad preexistente, de manera que no se preste a confusión; es propiedad exclusiva de la sociedad e irá precedida o seguida de las palabras "Sociedad Anónima" o de su abreviatura "S.A.", y podrá expresarse en cualquier idioma, siempre que en el pacto social se haga constar su traducción al castellano.
+Para que goce de la protección que da la Oficina de Marcas de Comercio, deberá inscribirse conforme lo indica el artículo 245.

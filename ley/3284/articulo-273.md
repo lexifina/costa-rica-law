@@ -1,0 +1,3 @@
+CAPITULO II
+De los Comisionistas
+ARTÍCULO 273.- Es comisionista el que se dedica profesionalmente a desempeñar en nombre propio, pero por cuenta ajena, encargos para la realización de actos de comercio. Actuando a nombre propio, el comisionista asume personalmente la responsabilidad del negocio; y el que contrate con él no adquiere derecho alguno ni contrae obligación respecto al dueño del mismo. Puede también el comisionista actuar a nombre de su representado, caso en el cual lo obliga, y el tercero que con él contrata, adquiere derechos y contrae obligaciones con el mandante y no con el comisionista.

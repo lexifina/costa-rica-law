@@ -1,0 +1,1 @@
+ARTÍCULO 480.- El precio del establecimiento o de la empresa individual de responsabilidad limitada no se entregará bajo ningún concepto al trasmitente, en tanto no transcurran los quince días indicados en el artículo anterior y no se haga la liquidación y pago de las cuentas presentadas dentro de ese término.

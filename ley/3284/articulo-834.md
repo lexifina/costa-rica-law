@@ -1,0 +1,1 @@
+ARTÍCULO 834.- Todo pago que se haga con cheque, será a reserva de que dicho cheque sea pagado a la presentación. La falta de pago del cheque hará absolutamente nulo e ineficaz en derecho, el pago que se pretendió hacer con el cheque.

@@ -1,0 +1,1 @@
+ARTÍCULO 61.- Si el aporte de los socios no consistiere en dinero, se procederá de conformidad con lo dispuesto en el inciso 9) del artículo 18 y la sociedad no quedará constituida mientras no se haya aprobado ese aporte.

@@ -1,0 +1,1 @@
+ARTÍCULO 527.- El depositario de una cantidad de dinero no puede usarla, y si lo hiciere quedan a su cargo todos los perjuicios que ocurran al depositante, debiendo además pagarle los intereses legales.

@@ -1,0 +1,1 @@
+ARTÍCULO 879.- El curador tendrá las facultades del artículo 1255 del Código Civil; en consecuencia, del acta de aceptación deberá extenderse certificación e inscribirse en la Sección Mercantil del Registro Público. Ese poder general queda modificado en lo que expresamente dispone este capítulo.

@@ -1,0 +1,1 @@
+ARTÍCULO 210.- La liquidación estará a cargo de uno o más liquidadores, que serán los administradores y representantes legales de la sociedad en liquidación, y responderán por los actos que ejecuten si se excedieren de los límites de su cargo.

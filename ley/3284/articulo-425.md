@@ -1,0 +1,1 @@
+ARTÍCULO 425.- En los contratos bilaterales sólo podrá exigir cumplimiento aquél que hubiere satisfecho lo que le concierne, salvo en los casos en que gozare de plazo legal o convencional, o que la naturaleza del contrato así lo exija.

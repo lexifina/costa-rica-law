@@ -1,0 +1,1 @@
+Artículo 560.- Se anotarán en los Registros correspondientes los mandamientos judiciales que acrediten haberse establecido la ejecución prendaria contra el deudor o endosante y el decreto de embargo sobre los derechos del acreedor. Esta última anotación tendrá el valor que le confiere el artículo 458 del Código de Procedimientos Civiles.

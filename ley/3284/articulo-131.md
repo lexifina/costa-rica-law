@@ -1,0 +1,1 @@
+ARTÍCULO 131.- El ejercicio de los derechos y obligaciones inherentes a la acción, se regirá por las disposiciones de este capítulo, por las de la escritura social y en su defecto, por las disposiciones de este Código relativas a títulos-valores, en cuanto fueren compatibles con su naturaleza.

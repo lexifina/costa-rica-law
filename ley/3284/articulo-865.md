@@ -1,0 +1,1 @@
+ARTÍCULO 865.- Si quebrare en el extranjero un comerciante o sociedad que tuviere en la República una o más sucursales o agencias, se pondrán éstas en liquidación, si así lo pidiere la autoridad que conoce la quiebra principal, pero en ese caso también se procederá de conformidad con el citado artículo 980 del Código Civil.

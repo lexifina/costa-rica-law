@@ -1,0 +1,1 @@
+ARTÍCULO 427.- La cláusula penal deberá cumplirse aunque el acreedor no haya sufrido daño. Si los daños excedieran al importe de la pena, podrá el acreedor reclamar una mayor indemnización, solamente si probare dolo del deudor.

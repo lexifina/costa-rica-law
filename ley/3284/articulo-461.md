@@ -1,0 +1,1 @@
+ARTÍCULO 461.- Una vez perfeccionado el contrato de compra-venta, las pérdidas, daños y menoscabos que sobrevinieren a la mercadería vendida, serán por cuenta del comprador si ya le hubiere sido entregada real, jurídica o virtualmente.

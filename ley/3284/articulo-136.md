@@ -1,0 +1,1 @@
+ARTÍCULO 136.- Los accionistas podrán exigir judicialmente la expedición de los certificados provisionales y, en su caso, la de los títulos definitivos, al concluirse los plazos previstos en la escritura social o en su defecto los legales.

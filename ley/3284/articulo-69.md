@@ -1,0 +1,1 @@
+ARTÍCULO 69.- Cuando el aporte de un socio comanditario consistiere en el uso o usufructo de una cosa, solamente a éstos, por el plazo estipulado en el contrato social, se reducirá la pérdida que pueda sufrir.

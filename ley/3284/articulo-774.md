@@ -1,0 +1,1 @@
+ARTÍCULO 774.- El pago por intervención deberá hacerse constar en la letra con indicación de la persona en cuyo favor se haya efectuado. A falta de esta indicación, se considerará que el pago se ha hecho a favor del librador. La letra de cambio y el protesto, si lo hubiere, deberán entregarse al que pagare por intervención.

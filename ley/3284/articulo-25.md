@@ -1,0 +1,1 @@
+ARTÍCULO 25.- No producirán ningún efecto legal las estipulaciones que excluyan a uno o más socios de la participación en las ganancias, salvo lo que en contrario se dispone en cuanto a las acciones no comunes de sociedades anónimas.

@@ -1,0 +1,1 @@
+ARTÍCULO 636.- El fideicomiso de bienes sujetos a inscripción deberá ser inscrito en el Registro respectivo. En virtud de la inscripción el bien quedará inscrito en nombre del fiduciario en su calidad de tal.

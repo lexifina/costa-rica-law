@@ -1,0 +1,1 @@
+ARTÍCULO 223.- El socio colectivo o comanditado que no esté de acuerdo en la fusión podrá retirarse de la sociedad; pero su participación social y su responsabilidad personal ilimitada continuarán garantizando el cumplimiento de las obligaciones contraídas antes de ser aprobado el acuerdo de fusión.
