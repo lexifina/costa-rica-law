@@ -1,5 +1,0 @@
-Artículo 90.- Los gastos en que incurran los participantes para combatir las plagas y enfermedades que eventualmente aparezcan en sus plantaciones, amparados en un plan de manejo forestal aprobado por la Dirección General Forestal, independientemente de que estén gozando de las ventajas del certificado de abono forestal o de un préstamo, y sin perjuicio de la época en que se presente la plaga o enfermedad, serán cubiertos mediante la emisión de certificados de abono forestal, siempre que se den las siguientes circunstancias:
-a) Comunicación formal y oportuna a la Dirección General Forestal de la aparición de la plaga.
-b) Comprobación, por parte de la Dirección General Forestal, de que la enfermedad no sobrevino como consecuencia de la negligencia o irresponsabilidad del reforestador, es decir que surgió por causas ajenas a su voluntad.
-c) Combate de la plaga con estricto acatamiento de las recomendaciones dadas por la Dirección General Forestal.
-ch) Fehaciente comprobación ante la Dirección General Forestal de lo invertido.

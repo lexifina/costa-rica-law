@@ -1,1 +1,0 @@
-Artículo 95.- La Dirección General Forestal sólo autorizará el funcionamiento de nuevas industrias forestales cuando éstas demuestren que cuentan con la materia prima necesaria para operar, en forma permanente, durante el lapso prudencial que la Dirección General Forestal considere necesario.

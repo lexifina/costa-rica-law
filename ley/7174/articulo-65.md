@@ -1,1 +1,0 @@
-Artículo 65.- Los bosques y terrenos forestales de propiedad privada que la Dirección General Forestal considere indispensables para cumplir las finalidades de esta ley, quedarán sometidos obligatoriamente al régimen forestal. El Poder Ejecutivo, mediante decreto, determinará en cada caso las áreas afectadas.

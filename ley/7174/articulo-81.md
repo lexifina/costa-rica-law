@@ -1,1 +1,0 @@
-Artículo 81.- Las oficinas de telégrafos, teléfonos, radioemisoras, televisoras o cualquier otro medio de comunicación, deberán transmitir con urgencia, sin costo alguno, a solicitud de la Dirección General Forestal, la información necesaria para combatir incendios forestales, plagas y enfermedades forestales, o bien, para prevenir la entrada de éstas en el país.
