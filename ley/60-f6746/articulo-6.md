@@ -1,0 +1,1 @@
+Art 6°.- El Jefe Político observará puntualmente lo dispuesto en los artículos 39, 40, 41, 42, 47, 48, 49, 50, 51,52, 53, 54, 55, 56 y 57 de la ley del régimen de las Provincias n° 41 de 27 de diciembre de 1848.
