@@ -1,1 +1,0 @@
-Artículo 3°.-Se derogan los decretos Nos. 9466-H-OP de 26 de diciembre de 1978, 11144-H-OP de 4 de febrero de 1980, 12290-H de 13 de febrero de 1981, 13255-H-P de 8 de enero de 1982 y el 13648-H-P de 20 de mayo de 1982.
