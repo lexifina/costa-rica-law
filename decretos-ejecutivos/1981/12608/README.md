@@ -14,3 +14,4 @@ Declara Zona Protectora El Rodeo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-05-18 | la propia norma |
+| 2 | 1981-05-18 | SINALEVI (sin norma nombrada) |
