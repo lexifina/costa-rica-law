@@ -1,0 +1,1 @@
+Artículo 3°-El Ministerio de Economía y Hacienda resolverá de inmediato las solicitudes de condonación que presenten los comerciantes a que se refiere la presnete ley, y dictará resolución acogiendo o desechando las solicitudes.
