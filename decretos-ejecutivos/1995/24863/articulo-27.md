@@ -1,5 +1,2 @@
-Artículo 27.. En los demás casos de incumplimiento a las
-disposiciones del presente régimen exoneratorio, corresponderá a la
-Comisión Reguladora de Turismo, o al órgano administrativo en que esta
-delegue tal función, el impulsar y seguir el procedimiento administrativo
-correspondiente.
+Artículo 27.—Corresponderá a la Gerencia del Instituto previa recomendación de la Comisión Reguladora de Turismo, acordar el inicio del procedimiento administrativo relacionado con el establecimiento de incumplimientos a las disposiciones del presente régimen exoneratorio que ameriten la cancelación de los incentivos y beneficios otorgados en el contrato turístico, el cual se regirá por las disposiciones del procedimiento ordinario de la Ley General de la Administración Pública. Tratándose de presuntos incumplimientos sobre uso y destino de bienes exonerados contrarios a las regulaciones vigentes, se aplicará primero lo establecido en el artículo 26 del presente reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32219 del 16 de setiembre del 2004)
