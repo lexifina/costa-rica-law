@@ -1,0 +1,2 @@
+B.- Transparencia en el plano nacional
+Los Miembros reconocen el valor intrínseco que tiene para la economía de cada Miembro y para el sistema multilateral de comercio la transparencia en la adopción de decisiones gubernamentales sobre cuestiones de política comercial en el plano nacional, y acuerdan alentar y promover una mayor transparencia en sus respectivos sistemas, reconociendo que la aplicación de la transparencia en el plano nacional debe efectuarse de forma voluntaria y teniendo en cuenta los sistemas jurídicos y políticos de cada Miembro.
