@@ -1,0 +1,1 @@
+Artículo 4°—La Sección de Educación Religiosa desarrollará acciones de educación formal, no formal e informal en las áreas del desarrollo curricular, formación permanente del personal encargado de la educación religiosa y de investigación del curriculum, tendientes al mejoramiento de la calidad de la educación.

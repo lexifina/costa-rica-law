@@ -1,0 +1,1 @@
+Artículo 2°—La Sección de Educación Religiosa es la encargada de integrar la Sección de la Iglesia y del Estado en la dirección, orientación y coordinación de la educación religiosa en todos los ciclos, niveles y modalidades del sistema educativo.

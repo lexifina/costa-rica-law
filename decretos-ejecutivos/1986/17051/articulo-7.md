@@ -1,0 +1,1 @@
+Artículo 7°—El Ministerio de Educación Pública dotará tanto a la Sección como a las direcciones regionales de los recursos humanos y materiales necesarios para el cumplimiento de sus objetivos, funciones, todo ello en la medida de las posibilidades de presupuesto.
