@@ -1,3 +1,5 @@
+(Derogado)
+(Esta Constitución Política fue derogada por el artículo 142 de la Constitución Política N° 50 del 27 de diciembre de 1859)
 Constitución Política (“reformada”)
 30 de noviembre de 1848
 “José María Castro Presidente de Costa Rica etc.-Por cuanto el Excelentísimo Congreso de la República ha decretado y sancionado la siguiente

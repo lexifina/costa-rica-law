@@ -1,0 +1,1 @@
+Artículo 43.-Todo Costarricense ó extranjero ocurriendo a las leyes, debe encontrar remedio para las injurias ó daños que haya recibido en su persona, propiedad u honra. Debe hacérsele justicia cumplidamente y sin denegación, prontamente y sin dilación, y en estricta conformidad con las leyes.

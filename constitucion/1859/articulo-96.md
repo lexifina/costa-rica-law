@@ -1,0 +1,1 @@
+Artículo 96.-El Poder Ejecutivo puede objetar cualquier proyecto de ley, bien sea por que lo juzgue del todo inconveniente, ó bien por que crea necesario hacer le algunas variaciones ó reforma; y en este caso propondrá las que deban hacerse.

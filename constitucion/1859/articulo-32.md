@@ -1,0 +1,1 @@
+Artículo 32.-La prensa es libre sin previa censura, aun bajo el anónimo; pero es responsable conforme a la ley el que abuse de este derecho. La calificación de los delitos de imprenta corresponde exclusivamente a un jurado en la forma que establezca la ley.

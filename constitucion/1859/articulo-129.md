@@ -1,0 +1,1 @@
+Artículo 129.-La duración del Regente, Magistrados y Fiscal de la Corte Suprema de Justicia será la de cuatro años, pudiendo ser reelectos; y dentro de su período no se les podrá remover, aun cuando se dé nueva planta u organización al tribunales, excepto el caso que figura el artículo 124, sección 1ª de este título.

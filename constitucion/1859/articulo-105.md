@@ -1,0 +1,1 @@
+Artículo 105.-El periodo constitucional del Presidente de la República se comenzará a contar desde el día ocho de Mayo en que debe tomar posesión de su destino: y concluido que sea dicho periodo, cesa por el mismo hecho en el ejercicio de sus funciones.

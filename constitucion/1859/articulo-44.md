@@ -1,0 +1,1 @@
+Artículo 44.-Todos los Costarricenses ó extranjeros, residentes en la República, tienen el derecho de terminar sus diferencias en materia civil por medio de árbitros, ya sea antes ó después de iniciado el pleito.

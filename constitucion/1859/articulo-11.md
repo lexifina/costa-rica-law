@@ -1,0 +1,1 @@
+Artículo 11.-Toda ley, decreto u orden, ya emane del Poder Legislativo, ya del Ejecutivo, es nula y de ningún valor siempre que se oponga a la Constitución. Son nulos igualmente los actos de los que usurpen funciones públicas, y los empleos conferidos sin los requisitos prevenidos por la Constitución o las leyes.
