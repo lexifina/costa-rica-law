@@ -1,0 +1,5 @@
+DECRETO XC
+Adiciona el de 18 de Julio de este año que reglamento las Aduanas marítimas (1)
+“El Jefe Supremo del Estado Libre de Costa Rica.
+Convencido de que la ejecución rigurosa del Decreto de 18 de Julio en órden al reconocimiento de los efectos y mercancías que el comercio introduce por los puertos de Norte y Sur al Estado, embarazaría la expedición de los negocios: y atendiendo á las peticiones que sobre este punto han hecho varios comerciantes del país, adicionando el Decreto expresado, ordena.
+Art. 1° El reconocimiento y cotejo de los efectos introducidos con los manifiestos por menor ó facturas originales, se hará en los puertos por el Resguardo y Comandante; sacándose muestras de cada artículo, que empaquetadas y selladas se remitirán á la Aduana con los manifiestos por menor y reconocimientos practicados, para que allí se hagan los aforos y liquidaciones correspondientes; debiendo esta, en el caso de considerarlo conveniente, confrontar las muestras por medio de uno de sus empleados, y custodiarlas para los fines que expresarán.

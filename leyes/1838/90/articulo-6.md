@@ -1,0 +1,1 @@
+Art. 6. Practicado el reconocimiento prevenido en el artículo 1° pueden los introductores prevenir á presencia del Resguardo los bultos ó cajas que por su magnitud requieran esta operación; tomándose conocimiento de ellos, de que se dará copia al interesado, con expresión del aumento de bultos y número á que correspondan, para que no se le arguya fraude.
