@@ -10,6 +10,6 @@ h- Las embarcaciones sardineras y las embarcaciones palangreras, deberán presen
 i- La bitácora deberá consignar como mínimo lo indicado en el Manual de Procedimientos para la autorización de combustible a precio preferencial.
 j- Las personas jurídicas propietarias de embarcaciones, podrán autorizar a un empleado de su planilla para realizar el trámite y retiro de documentos correspondientes a la solicitud de combustible, conforme se indica en el manual de procedimientos.
 k- Copia de la orden de compra del combustible anterior, firmada por el beneficiario y con el sello de RECOPE, como prueba que la misma se hizo efectiva.
-l- Declaración jurada señalando la veracidad de la información suministrada.
-m- Solicitud expresa a los efectos de que la SCAC confeccione el correspondiente contrato por dos años, a efecto de regular el uso y disfrute del beneficio de combustible a precio preferencial
-n- Cualquier otro documento que la SCAC considere necesario para el trámite de la solicitud.
+l- Solicitud expresa a los efectos de que la SCAC confeccione el correspondiente contrato por dos años, a efecto de regular el uso y disfrute del beneficio de combustible a precio preferencial
+m- Cualquier otro documento que la SCAC considere necesario para el trámite de la solicitud.
+(Mediante acuerdo tomado en sesión N° 61 de 28 de febrero del 2002, se elimina el inciso l), pasandose la numeración, quedando el antiguo inciso m) como el l) y el inciso n) es ahora el inciso m))
