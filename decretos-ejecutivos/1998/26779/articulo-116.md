@@ -1,3 +1,0 @@
-Artículo 116.-De las Notificaciones Personales:
-En todo procedimiento disciplinario, se notificará personalmente, la apertura del procedimiento, en los restantes casos se notificará en el lugar que señalen las partes en sus documentos y manifestaciones. Es deber del órgano instructor prevenir sobre la necesidad de señalar lugar para recibir notificaciones.
-Cuando la parte no señale lugar para recibir notificaciones, deberá notificársele personalmente, el informe del órgano instructor, la resolución del procedimiento administrativo y aquellas en las cuales se resuelva a recursos planteados por partes o interesados.

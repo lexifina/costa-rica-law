@@ -1,2 +1,0 @@
-Artículo 122.-Del Respeto a la Dignidad del Funcionario:
-En toda sanción, y en especial en las Amonestaciones, es deber del funcionario encargado de sancionar, realizarla con la discreción del caso para evitar causar cualquier tipo de estigma del funcionario frente a sus compañeros. Se considerará falta leve la transgresión a esta disposición. Igualmente deberá considerarse la dignidad del denunciante, así como la de los testigos cuando se trate de denuncias por hostigamiento sexual.

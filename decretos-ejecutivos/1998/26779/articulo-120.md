@@ -1,2 +1,0 @@
-Artículo 120.-De la Declaratoria de Incompetencia:
-En cualquier supuesto donde este reglamento o cualquier disposición superior establezca una prescripción, el órgano instructor de previo a la apertura o durante la tramitación del expediente, podrá declarar la incompetencia en razón del tiempo según lo señalado por el artículo sesenta de la Ley General de la Administración Pública, aún sin constar alegato de prescripción de algún interesado.

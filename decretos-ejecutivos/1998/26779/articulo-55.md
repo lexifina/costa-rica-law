@@ -1,2 +1,0 @@
-Artículo 55.-Los Rangos:
-Los rangos dentro de la Policía de tránsito serán, en orden ascendente, raso, teniente, capitán, mayor, teniente coronel y coronel. Cada acenso en el rango corresponderá a un reconocimiento salarial. Para los efectos de la Ley General de Policía se entenderán como altos rangos, únicamente el de coronel. Todo ascenso se realizará en coordinación entre la Policía de Tránsito y la oficina establecida para tal efecto por el Ministerio de Seguridad Pública.

@@ -1,2 +1,0 @@
-Artículo 72.-De la existencia de diversas pruebas para demostrar la idoneidad del oficial:
-La Oficina de Recursos Humanos correspondiente podrá someter a los interesados, a pruebas psicológicas, médicas o realizar un nuevo estudio psicosocial, si el perfil del puesto requiere una revisión más exhaustiva de los candidatos. La elaboración y los resultados de los exámenes serán estrictamente confidenciales.

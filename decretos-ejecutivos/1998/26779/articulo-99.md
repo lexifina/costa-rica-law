@@ -1,2 +1,0 @@
-Artículo 99.-Del Pago de la Disponibilidad:
-La disponibilidad se considerara como un sobresueldo de un veinticinco por ciento del salario base, por servicio sin sujeción de horario, según las necesidades y libre disposición requeridas por el superior jerárquico. A este beneficio solo tendrán derecho los funcionarios en ejercicio de actividad policial y no podrán beneficiarse los funcionarios en labores administrativas.

@@ -1,2 +1,0 @@
-Transitorio segundo: De la Contratación de Oficiales de Tránsito excluidos del Servicio Civil:
-Conforme a los principios establecidos en el presente Reglamento, las oficinas de Recursos Humanos, según corresponda realizarán la contratación de los oficiales que a la fecha se encuentren fuera del Servicio Civil bajo las condiciones establecidas en las presentes disposiciones; en un plazo máximo de cinco meses y sin menoscabo de los derechos subjetivos de buena fe que se hayan gestado.

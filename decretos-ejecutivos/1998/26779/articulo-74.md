@@ -1,4 +1,0 @@
-Artículo 74.-Algunas consideraciones procesales:
-Las Oficinas de Recursos Humanos correspondientes, convocarán a concurso. cuando haya al menos tres candidatos elegibles en el correspondiente registro, o cuando se prevea la insuficiencia de personal dada la necesidad de llenar a corto plazo una o más plazas. Será requisito para la apertura de una plaza la existencia del correspondiente contenido presupuestario.
-Se podrá interponer recurso de revocatoria o apelación, que deberá ser interpuesta ante el Director de la Policía de Tránsito, dentro de tercer día hábil siguiente a la comunicación del concurso. El Director tendrá cinco días para resolver del recurso de revocatoria o para dar traslado al de apelación.
-El recurso de apelación será resuelto por el Consejo ele Personal dentro del quinto día hábil siguiente al traslado de correspondencia del señor Director de la Policía de Tránsito. Su resolución dará por agotada la vía administrativa.

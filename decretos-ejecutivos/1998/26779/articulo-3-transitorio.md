@@ -1,2 +1,0 @@
-Transitorio tercero: De los Oficiales incluidos dentro del Régimen Policial:
-Conforme lo establece el transitorio único de la Ley General de Policía, el Consejo de Personal, remitirá al Ministro, antes del primero de marzo de mil novecientos noventa y ocho la lista completa de los oficiales que ingresarán bajo el Régimen Policial, con plenos beneficios establecidos por este Reglamento. Para tales efectos se realizarán los concursos internos, hasta lograr alcanzar el 25% que la ley define.

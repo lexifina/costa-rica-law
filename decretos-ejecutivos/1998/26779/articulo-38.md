@@ -1,2 +1,0 @@
-Artículo 38.-De la Jornada de Trabajo:
-Los oficiales de Tránsito laborarán en el mejor horario posible a efectos de dar fiel cumplimiento a sus obligaciones. En el caso de Oficial de Tránsito en función administrativa el horario se ajustará de lunes a viernes de las siete y media horas a las dieciséis horas. En los restantes casos, el horario se ajustará a los requerimientos establecidos por la jefatura de la policía de tránsito, y a los delegados correspondientes que aseguren la prestación del servicio durante el total de horas del día.

@@ -1,2 +1,0 @@
-Artículo 29.-Del Nombramiento en Propiedad y el Período de Prueba:
-Todo servidor que ingrese en propiedad al Régimen de PolicL.t deberá pasar un período de prueba de seis meses. El nombramiento en propiedad se realizará automáticamente cumplido este plazo, salvo cuando el superior inmediato en forma escrita y debidamente justificada, señale dentro de este plazo la existencia de una causal que haga inconveniente el nombramiento en propiedad del servidor. El trabajador interino deberá aprobar satisfactoriamente el Curso Básico Policial dentro del período de prueba.

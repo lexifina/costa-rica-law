@@ -1,2 +1,0 @@
-Artículo 10.-De los Distintos Regímenes Aplicables para la Policía de Tránsito:
-En razón del régimen jurídico aplicable. se entenderá que existen dos tipos de funcionarios dentro de la policía de tránsito, los cubiertos bajo el Régimen del Servicio Civil y aquellos cubiertos exclusivamente por el Estatuto Policial establecido por este reglamento y la norma ti va conexa. Se entenderá que el primer tipo de funcionarios les será aplicable las disposiciones de este Estatuto salvo cuando expresamente no se establezca lo contrario.

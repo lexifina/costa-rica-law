@@ -1,2 +1,0 @@
-Artículo 56.-EI Rango como Derecho Adquirido:
-El rango se considerará derecho adquirido del servidor, y no podrá afectarse salvo que sea declarado según el procedimiento establecido en este Reglamento. Es derecho del oficial renunciar a uno o varios ascensos en el momento que lo considere conveniente. Cuando un oficial renuncie a su plaza y reingrese posteriormente, volverá con el rango que hubiere tenido antes de su renuncia.

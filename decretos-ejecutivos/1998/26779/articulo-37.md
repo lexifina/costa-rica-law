@@ -1,2 +1,0 @@
-Artículo 37 .-De los Oficiales ad·honorem:
-Dentro de la Policía de Tránsito, existirá un cuerpo de oficiales adhonorem, según los requisitos establecidos en la Ley General de Policía, Ley de Tránsito por las Vías Públicas y Terrestres, la correspondiente Ley especial y normativa conexa, a quienes estarán sometidos al correspondiente reglamento y solo les será aplicable las disposiciones establecidas en este Reglamento de manera supletoria.

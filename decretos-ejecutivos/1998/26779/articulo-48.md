@@ -1,2 +1,0 @@
-Artículo 48.-Los Criterios de Calificación:
-Se entiende por evaluación del desempeño, la apreciación sistemática y continúa del desempeño del individuo, en el cargo que ocupa para poder determinar si cumple con sus deberes y responsabilidades, si merece estímulos o requiere ayuda y capacitación específica, si tiene potencial para ejercer un puesto de mayor nivel, para que sean reconocidos los méritos profesionales y detectar los problemas de supervisión de personal.

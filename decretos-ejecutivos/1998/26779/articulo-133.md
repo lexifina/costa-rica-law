@@ -1,3 +1,0 @@
-Artículo 133.- De la posibilidad de suspender al funcionario durante la tramitación del expediente:
-En cualquier procedimiento donde sea conocida una falta grave. una vez firme el acto de apertura del expediente, el órgano conocedor del procedimiento podrá suspender con goce de salario provisionalmente al servidor hasta la resolución definitiva de la causa. La resolución en la cual se ordene la suspensión deberá estar debidamente motivada y cualquier recurso interpuesto contra la misma no suspenderá del conocimiento de la causa principal.
-Cuando la denuncia sea por hostigamiento sexual, y el funcionario denunciado ostente cualquier cargo de autoridad, la suspensión se dictará siempre como medida precautoria desde la apertura del procedimiento.

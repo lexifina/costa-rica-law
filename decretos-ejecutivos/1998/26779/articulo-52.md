@@ -1,3 +1,0 @@
-Artículo 52.-Incentivos por Calificación:
-La evaluación comprenderá los seis meses anteriores a la fecha en que se aplique. En el caso de los servidores que no fueron oportunamente evaluados por circunstancias especiales, una vez superadas las mismas, deberá evaluarse y remitirse a la Oficina de Recursos Humanos respectiva, durante el término de los seis meses· posteriores, pasado este plazo, la evaluación prescribirá y no se cancelará el beneficio económico que pudiera corresponder.
-En los casos de servidores que se encuentren disfrutando de becas o licencias superiores a los seis meses, se les dará el incentivo del período próximo anterior.

@@ -1,2 +1,0 @@
-Artículo 130.-De la vinculación de lo resuelto por el Órgano Asesor Legal:
-Cuando el Consejo de Personal se allanare a lo recomendado por la Oficina de Inspección Policial, no requerirá emitir resolución formal. bastando con transcribir los hechos probados, no probados y demás alegatos señalados por éste. Cuando disienta de lo resuelto, éste aparte de transcribir todos los argumentos establecidos por el órgano legal deberá presentar los argumentos de hecho y derecho que motivan su diferencia de criterio.

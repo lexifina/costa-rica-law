@@ -1,2 +1,0 @@
-Artículo 96.-Del Puntaje adicional:
-A parte de lo señalado en el artículo anterior, y siempre teniendo como tope lo señalado en la Ley General de Policía, se podrá ascender en un uno por ciento de aumento a la base por cada ochenta horas de capacitación recibida en cursos afines a la carrera policial. Los cursos de capacitación de tiempo inferior al antes señalado podrán ser sumados para completar las ochenta horas.

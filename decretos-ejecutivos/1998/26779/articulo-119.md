@@ -1,2 +1,0 @@
-Artículo 119.-De las denuncias incompletas:
-La carencia de los requisitos de los incisos a) o e) del artículo anterior podrá obligar al archivo de la solicitud; pero sí del cumplimiento del punto b) se desprendan datos de gravedad, el órgano deberá continuar tramitando la denuncia de oficio. Si la denuncia es interpuesta por otro órgano administrativo, se le prevendrá por espacio de tres días para que subsane la omisión.

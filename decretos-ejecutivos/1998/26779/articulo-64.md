@@ -1,2 +1,0 @@
-Artículo 64.-De la Solicitud del Servidor del Traslado:
-Todo servidor podrá solicitar su traslado de una dependencia a otra, siempre que en la dependencia para donde solicite el traslado este haciendo falta una persona en las condiciones de servicio del solicitante. Cuando el traslado cause grave daño al servicio, el mismo podrá retrasarse hasta cubrir la plaza al descubierto que deja el funcionario.

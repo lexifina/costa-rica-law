@@ -1,2 +1,0 @@
-Artículo 94.-Reconocimiento por Estudios Compatibles:
-Un aumento hasta de treinta y cinco por ciento del salario base como máximo según avancen en la instrucción parauniversitaria o universitaria, en institución del Sistema Educativo Costarricense o en la instrucción especializada en educación vial debidamente autorizadas. Existirá una comisión con representación de las Oficinas de Recursos Humanos de la Policía de Tránsito, del Ministerio de Obras Públicas y Transportes y del Consejo de Seguridad Vial que determinarán los alcances del reconocimiento en cada oficial.

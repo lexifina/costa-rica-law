@@ -1,2 +1,0 @@
-Artículo 85.-De las formalidades para la Licencia:
-Las solicitudes de permiso deberán ser presentadas por el interesado ante el jefe inmediato, al menos con diez días hábiles de anticipación a la fecha del disfrute salvo en casos de urgencia comprobada. La solicitud Je permiso debe indicar todos los detalles posibles que la justifiquen. motivo del permiso, duración y adjuntar todos los documentos probatorios que sustenten su petición.

@@ -1,2 +1,0 @@
-Artículo 35.-De la Presentación de Partes y· Boletas de Citación:
-Los oficiales de Tránsito deberán presentar los Partes Oficiales y las Boletas de Citación con la mayor diligencia posible, para ser trasladados al órgano judicial competente, no excediendo en ningún caso el tope ele cuarenta y ocho horas. Cuando haya lesionados, muertos, retención de un vehículo o de placas, el tope se reduce a veinticuatro horas.

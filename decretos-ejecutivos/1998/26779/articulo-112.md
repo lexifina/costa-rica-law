@@ -1,3 +1,0 @@
-Artículo 112.-De la sanción según el tipo de Falta:
-La falta en que incurra los servidores serán sancionadas con las siguientes medidas disciplinarias. Las faltas leves serán sancionadas con Amonestación escrita o Suspensión en sus labores sin derecho a salario hasta por un tope de tres días y las faltas graves se sancionarán con suspensión de trabajo si n goce de salario, de diez hasta por treinta días hábiles, o Despido sin responsabilidad patronal.
-Las amonestaciones verbales o escritas deberán imponerse dentro del mes posterior a aquel en que se cometió la falta o que los superiores la conocieran. Las suspensiones o despidos en el transcurso de seis meses posteriores al día en que se cometió la falta.

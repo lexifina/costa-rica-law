@@ -1,2 +1,0 @@
-Artículo 63.-Del Traslado Horizontal:
-A criterio del correspondiente Jefe del Superior Inmediato del funcionario podrá trasladarse horizontalmente a un servidor cuando las circunstancias lo ameriten, y siempre que con ello no se le cause un grave perjuicio económico y el trasladado no supere los tres meses. No podrá realizarse el traslado horizontal contemplado en el inciso anterior en más de dos supuestos durante el período de un año, salvo cuando el funcionario autorice el traslado.

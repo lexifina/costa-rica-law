@@ -1,2 +1,0 @@
-Artículo 66.-De la permuta:
-Cuando dos oficiales con rango y capacidades idénticas, estén de acuerdo en realizar una permuta, deberán presentar documento ante el superior inmediato de ambas dependencias. De la solicitud se dará audiencia a ambos jefes inmediatos, quienes solo podrán negarse ante aspecto grave; la posición de los jefes inmediatos no sujetarán la decisión del superior de ambos. De lo resuelto cabrá recurso de cualquiera de los interesados ante el Superior de quien resolvió.

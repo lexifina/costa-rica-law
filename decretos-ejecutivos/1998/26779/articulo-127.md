@@ -1,2 +1,0 @@
-Artículo 127.-Del Procedimiento ante Faltas Leves:
-Ante faltas leves, conocerá la Oficina de inspección Policial de la existencia de la falta, quién deberá dar audiencia por el plazo de tres días hábiles, espacio dentro del cual el funcionario podrá ofrecer la prueba y alegatos que tenga a bien. Una vez cumplido el plazo señalado este evacuará la prueba conveniente de manera sumaria y dictará su resolución. Los recursos contra lo resuelto podrán ser instaurados dentro de tercer día hábil , siguiente a la notificación de la resolución.

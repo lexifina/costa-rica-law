@@ -1,2 +1,0 @@
-Artículo 109.-De la Reposición en Jornadas Compuestas.
-Cuando un oficial realice un rol que cubra varias jornadas a la vez; en caso que por cualquier motivo, justificado o no, se ausente el día en que le correspondería cubrir el rol, deberá reincorporarse al siguiente día -y de previo a tener que cumplir nuevamente su rol ordinario- a efectos ele cumplir al menos las restantes jornadas. En caso de cumplir esta obligación la ausencia solo se computará por una jornada y en caso contrario se computará por todas la jornadas cubiertas por el rol.

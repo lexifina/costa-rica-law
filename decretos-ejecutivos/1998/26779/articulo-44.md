@@ -1,2 +1,0 @@
-Artículo 44.- De los aspectos procedimentales:
-La denuncia por Hostigamiento que se tramitara bajo el trámite ordinariamente establecido para las faltas podrá ser planteada por la persona afectada y se tramitará de oficio. Ante denuncia planteada. cualquier solicitud de traslado temporal o cualquier otra medida que asegure la integridad física, emocional, económica o de cualquier otra índole, solicitada por el funcionario deberá ser resuelta afirmativamente, salvo cuando sea abiertamente improcedente.

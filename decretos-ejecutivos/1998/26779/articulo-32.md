@@ -1,2 +1,0 @@
-Artículo 32.-De la Asistencia a citas Médicas:
-Todos los servidores podrán disfrutar del tiempo necesario para asistir a sus citas médicas, a las instituciones de seguridad social del Estado u otras de carácter privado, debiendo acreditar el tiempo utilizado mediante el respectivo comprobante emitido por la entidad de que se trata, a fin de que no proceda el rebajo salarial, el cual deberá ser presentado en el siguiente día hábil poste1ior a reincorporarse a las labores.

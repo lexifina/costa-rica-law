@@ -1,2 +1,0 @@
-Artículo 13.-EI Registro de Elegibles:
-Las oficinas de Recursos Humanos llevarán un registro de elegibles entre las personas que cumpliendo los requisitos para tal efecto, ofrezcan sus servicios para laborar en la institución; la elección se realizará en ternas entre los tres funcionarios con mayor puntaje en la lista. En todo lo no regulado expresamente, el sistema de aplicación de estas ternas se regirá por el sistema de ternas dentro del sector público.
