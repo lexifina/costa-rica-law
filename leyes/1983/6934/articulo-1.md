@@ -1,0 +1,25 @@
+N° 6934
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
+Decreta:
+Artículo 1º.- Refórmanse los artículos 1º, 2º, 4º, 5º y 6º de la Ley del Registro Nacional, Nº 5695 del 28 de mayo de 1975, modificada por el artículo 2º de la ley Nº 5950 del 27 de octubre de 1976. Sus textos serán los siguientes:
+"Artículo 1º.- Créase el Registro Nacional, dependiente del Ministerio de Justicia, el cual integrará bajo un solo organismo los registros y dependencias que señala el artículo siguiente. Sus fines serán: Unificar criterios en materia de registro, coordinar las funciones, facilitar los trámites a los usuarios, agilizar las labores y mejorar las técnicas de inscripción; para todo lo cual se modernizarán los sistemas".
+"Artículo 2º.- Conforman el Registro Nacional, además de los que se adscriban por otras leyes, los siguientes registros: el Registro Público, que incluye los siguiente: Propiedad inmueble, hipotecas, cédulas hipotecarias, propiedad horizontal, arrendamientos, personas, mercantil, asociaciones, medios de difusión y agencias de publicidad; el Registro de Bienes Muebles, que incluye lo relativo a prendas y a vehículos; el Registro de la propiedad Industrial, que comprende, además, lo concerniente a patentes de invención y marcas de ganado; y el Catastro Nacional."
+"Artículo 4º.- La Junta estará integrada por cinco miembros, de la siguiente manera: El Ministro de Justicia, quien la presidirá; un delegado del Ministerio de Justicia, y un representante de cada uno de los siguientes organismos: Procuraduría General de la República, Colegio de Abogados y Unión Costarricense de Abogados. Para cada miembro se designará a su suplente.
+El delegado del Ministerio de Justicia será nombrado libremente por el titular de la Cartera, y para la designación de los tres representantes señalados en el párrafo anterior, los respectivos organismos enviarán una nómina de cinco candidatos al Ministro de Justicia, para que éste designe de entre ellos al titular y al suplente. Estos organismos podrán solicitar al Ministro, en casos muy calificados y por justa causa debidamente comprobada, que sustituya a cualquiera de las dos personas que fueron designadas. Para tales efectos enviará una terna, de la cual el Ministro escogerá al sustituto. Igual procedimiento se seguirá en el caso de eventuales vacantes o renuncias, o cuando el miembro designado falte injustificadamente a tres sesiones de la Junta.
+Los miembros de la Junta se designarán por cuatro años y podrán ser reelegidos. No obstante, tanto el Ministro de Justicia como el representante de la Procuraduría General de la República perderán su calidad de miembros, si cesaren en sus cargos antes de vencerse el período de su nombramiento.
+El Poder Ejecutivo, mediante acuerdo, declarará la Junta y el Ministro recibirá el juramento a sus integrantes.
+Corresponde al Presidente de la Junta su representación legal."
+"Articulo 5º.- La Junta acordará los días y horas de las sesiones ordinarias, así como el lugar de las mismas. Se fija en cuatrocientos colones el monto de estas dietas, mientras no se dicte una ley general que establezca las dietas de los entes descentralizados y desconcentrados. El máximo será de cuatro sesiones remuneradas por mes. Los servidores públicos que integren la Junta solo tendrán derecho a devengar dieta si no se produce superposición horaria con sus labores ordinarias."
+"Artículo 6º.- Habrá un Director General, de quien dependerán jerárquicamente, para efectos administrativos, los directores de las diversas dependencias integradas del Registro Nacional.
+El Director General deberá ser abogado, debidamente incorporado al Colegio, y notario público con experiencia no menor de cinco años en notariado o en materia registral y en administración pública.
+El Director General del Registro Nacional será nombrado por el Poder Ejecutivo, escogido de una terna que al efecto elaborará la Junta Administrativa.
+Al Director General corresponderá:
+1) Ejercer la labor de funcionarios ejecutivos de la Junta, en cuyas sesiones tendrá voz pero carecerá de voto.
+2) Proponer a la Junta los proyectos para el cumplimiento de las funciones encomendadas a esta en el artículo tercero.
+3) Coordinar las funciones de todas las dependencias del Registro Nacional.
+4) Unificar los criterios de calificación y dictar, en forma general, las medidas del carácter registral en los distintos registros, sin que le corresponda el análisis o calificación de casos concretos cuyo pronunciamiento competa al Director, encargado o jefe de cada dependencia.
+5) Aprobar los proyectos de presupuesto que se presenten a la Junta.
+6) Disponer las medidas administrativas generales par todos los organismos que integran el Registro Nacional.
+7) Tomar todas las medidas que estime convenientes para la marcha del Registro Nacional y sus dependencias, de acuerdo con las normas dictadas por la Junta.
+El Director del Registro Nacional no podrá ser director de ninguno de los registros en particular.
+Queda prohibido al Director del Registro Nacional abocar los asuntos que concierne resolver individualmente a cada uno de los registros."
