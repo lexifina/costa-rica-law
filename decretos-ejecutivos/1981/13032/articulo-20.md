@@ -1,0 +1,1 @@
+Artículo 20.-El médico, desde el momento en que ha sido llamado a dar sus cuidados a un enfermo y ha aceptado, está obligado a asegurarle, de inmediato todos los cuidados médicos en su poder, personalmente, o con la ayuda de terceras personas calificadas.

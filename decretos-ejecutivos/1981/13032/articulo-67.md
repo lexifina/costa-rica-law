@@ -1,0 +1,1 @@
+Artículo 67.-Para todo proyecto de convención, renovación o modificación de contratos con cualquier institución contratante de médicos, se podrá consultar previamente al Colegio de Médicos y Cirujanos, para que esta entidad verifique si está de acuerdo con este Código y con las disposiciones legales que rigen la profesión médica.

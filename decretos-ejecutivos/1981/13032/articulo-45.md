@@ -1,0 +1,1 @@
+Artículo 45.-El médico que acepta en tratamiento a un enfermo o lo recibe en instituciones hospitalarias, públicas o privadas, no debe expresar, ni a él ni a sus familiares, opiniones desfavorables sobre el diagnóstico y los tratamientos hechos con anterioridad.

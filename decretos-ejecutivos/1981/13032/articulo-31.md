@@ -1,0 +1,1 @@
+Artículo 31.-Cuando un médico ha sido nombrado como experto o perito en un determinado caso, antes de examinar al paciente, debe informarle que su función es de experto y que, como tal, tiene que rendir su informe.

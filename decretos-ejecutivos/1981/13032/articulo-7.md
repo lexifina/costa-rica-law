@@ -1,0 +1,1 @@
+Artículo 7º.-Las polémicas y discusiones públicas o privadas de los profesionales médicos, deben mantenerse dentro de las normas deontologías de respeto entre profesionales, instituciones y pacientes.

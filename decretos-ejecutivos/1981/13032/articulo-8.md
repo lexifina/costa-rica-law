@@ -1,0 +1,1 @@
+Artículo 8º.-Constituye una violación flagrante de los principios de la ética médica la participación activa o pasiva de médicos en cualquier forma de tortura, tal como se la define en el artículo I de la Declaración de las Naciones Unidas.

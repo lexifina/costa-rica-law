@@ -1,0 +1,1 @@
+Artículo 6º.-Toda falta a este Código será juzgada por el Tribunal de Moral Médica, el cual calificará su gravedad y transcribirá su dictamen a la Junta de Gobierno del Colegio de Médicos y Cirujanos, a la que corresponde imponer la sanción el caso.

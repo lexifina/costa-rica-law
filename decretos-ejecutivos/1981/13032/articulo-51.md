@@ -1,0 +1,1 @@
+Artículo 51.-La rivalidad, celos o intolerancias no deben tener cabida en las consultas o Juntas Médicas. La probidad y el respeto se imponen, como un deber, en el trato profesional de sus integrantes.

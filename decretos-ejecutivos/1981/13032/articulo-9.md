@@ -1,0 +1,1 @@
+Artículo 9º.-Todo documento médico debe estar estrictamente apegado a la verdad. Los certificados médicos sólo podrán extenderse con base en exámenes clínicos, de laboratorio o en otros estudios médicos efectuados al paciente o por haber sido testigos de la enfermedad.

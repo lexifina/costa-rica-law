@@ -1,0 +1,1 @@
+Artículo 48.-Ante cualquier investigación o pregunta del Tribunal de Moral Médica, todos los médicos están obligados a responder, siempre y con la verdad. El sólo hecho de infringir esta disposición se considera falta grave.

@@ -1,0 +1,1 @@
+Artículo 73.-El médico que desempeña un cargo tiene derecho a negarse a efectuar prestaciones que no encuadren dentro de las obligaciones inherentes al mismo, salvo en las situaciones con sus colegas por el artículo 66.

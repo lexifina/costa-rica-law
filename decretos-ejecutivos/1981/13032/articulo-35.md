@@ -1,0 +1,1 @@
+Artículo 35.-Es deber asistir, sin cobrar honorarios, al colega y a sus padres, cónyuge, e hijos dependientes, salvo casos de excepción a criterio del Tribunal de Moral Médica. Se hace la salvedad con el derecho de reembolso, cuando el médico ha aportado aparatos, prótesis o materiales costosos, que no son reutilizables o recuperables.

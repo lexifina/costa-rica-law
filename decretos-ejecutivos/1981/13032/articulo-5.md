@@ -1,0 +1,1 @@
+Artículo 5º.-El médico debe observar los principios éticos de las "Declaraciones de Ginebra y de Helsinki", aprobada por la Asociación Médica Mundial, y los del Código de Ética Médica de las Naciones Unidas.

@@ -1,0 +1,1 @@
+Artículo 76.-Los artículos y conferencias para el público se limitarán a divulgar los conocimientos que este necesite conocer. Se consignará únicamente el nombre y condición profesional de autor. La propaganda personal está proscrita y es contraria a todas las normas éticas.

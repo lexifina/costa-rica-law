@@ -1,0 +1,1 @@
+Artículo 14.-Cuando medie petición del paciente, el médico deber mantener el secreto, aún con los miembros de su familia, con excepción de los padres o encargados responsables de menores de edad, o cuando la salud de terceras personas esté involucrada.
