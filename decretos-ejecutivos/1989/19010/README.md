@@ -14,3 +14,4 @@ Reglamento a la Ley General de Migración y Extranjería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-05-31 | la propia norma |
+| 2 | 1995-04-18 | Decreto Ejecutivo 24265 (1995-04-18) |
