@@ -17,3 +17,4 @@ Normas sobre los Beneficios, Plazos y Condiciones de los Contratos de Exportaci√
 | 2 | 1994-12-19 | Reglamento 310 (1994-12-19) |
 | 3 | 1995-02-20 | Reglamento 314 (1995-02-20) |
 | 4 | 1995-08-22 | Reglamento 330 (1995-08-22) |
+| 5 | 1995-09-19 | Reglamento 331 (1995-09-19) |
