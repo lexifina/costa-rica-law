@@ -1,0 +1,1 @@
+Artículo 103. Las consultas a que se refiere el artículo anterior serán procedentes en todo caso, sin perjuicio de otras que se hayan planteado, o de acciones de inconstitucionalidad interpuestas o que se interpongan en el mismo proceso.

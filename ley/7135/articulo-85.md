@@ -1,0 +1,1 @@
+Artículo 85. Una vez vencido el plazo, se convocará a la audiencia oral revista por el artículo 10, a fin de que el actor, las otras partes apersonadas y la Procuraduría General de la República presenten sus conclusiones.

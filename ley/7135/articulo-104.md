@@ -1,0 +1,2 @@
+Artículo 104. La consulta se formulará mediante resolución en la que se indicarán las normas, actos, conductas u omisiones cuestionados, y los motivos de duda del tribunal sobre su validez o interpretación constitucionales. Se emplazará a las partes para dentro de tercero día y se suspenderá la tramitación del proceso o recurso hasta tanto la Sala Constitucional no haya evacuado la consulta.
+Al enviar la consulta, se acompañará el expediente o las piezas pertinentes.

@@ -1,0 +1,1 @@
+Artículo 55. El rechazo del recurso de amparo no prejuzga sobre las responsabilidades en que haya podido incurrir el autor del agravio. El ofendido o la Administración, en su caso, podrán promover o ejercitar las acciones que correspondan, o aplicar las medidas pertinentes.

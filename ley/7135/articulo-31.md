@@ -1,0 +1,1 @@
+Artículo 31. No será necesaria la reposición ni ningún otro recurso administrativo para interponer el recurso de amparo. Cuando el afectado optare por ejercitar los recursos administrativos que conceda el ordenamiento, se suspenderá el plazo de prescripción mientras la Administración no resuelva expresamente, sin perjuicio de que se ejerza directamente en cualquier momento.

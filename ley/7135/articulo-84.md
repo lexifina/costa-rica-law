@@ -1,0 +1,3 @@
+Artículo 84. Si después de la acción y antes de la publicación del aviso respectivo se presentaren otras acciones de inconstitucionalidad contra la misma ley, decreto, disposición, acuerdo o resolución, esas acciones se acumularán a la primera y se tendrán como ampliación.
+También se acumularán las acciones que con ese carácter interpongan las partes de los juicios suspendidos, si fueren presentadas dentro de los quince días posteriores a la primera publicación del aviso.
+Las acciones que se planteen después de ese plazo se dejarán en suspenso, mientras se resuelven las que hubieren sido presentadas anteriormente.

@@ -1,0 +1,1 @@
+Artículo 45. Si el informe no fuere rendido dentro del plazo correspondiente, se tendrán por ciertos los hechos y se entrará a resolver el amparo sin más trámite, salvo que el tribunal estime necesaria alguna averiguación previa, todo sin perjuicio de las responsabilidades en que incurra el servidor omiso en el informe.

@@ -1,0 +1,1 @@
+Artículo 16. Cuando en el hábeas corpus se alegaren otras violaciones que tengan relación con la libertad personal, en cualquiera de sus formas, y los hechos fueren conexos con el acto atribuido como ilegítimo, por constituir su causa o finalidad, en esta vía se resolverá también sobre esas violaciones.

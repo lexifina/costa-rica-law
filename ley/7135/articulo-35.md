@@ -1,0 +1,2 @@
+Artículo 35. El recurso de amparo podrá interponerse en cualquier tiempo mientras subsista la violación, amenaza, perturbación o restricción, y hasta dos meses después de que hayan cesado totalmente sus efectos directos respecto del perjudicado.
+Sin embargo, cuando se trate de derechos puramente patrimoniales u otros cuya violación pueda ser válidamente consentida, el recurso deberá interponerse dentro de los dos meses siguientes a la fecha en que el perjudicado tuvo noticia fehaciente de la violación y estuvo en posibilidad legal de interponer el recurso.
