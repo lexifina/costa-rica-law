@@ -1,0 +1,1 @@
+Artículo 19.- Los Jueces de Instrucción podrán actuar fuera de su territorio, en casos especiales, ya sea porque los hechos hayan ocurrido en una circunscripción cercana, o por la conveniencia de practicar determinados actos en forma personal, o de hacerlo con prontitud, según las circunstancias, sin la demora que pudiera producirse al comisionar a otras autoridades.

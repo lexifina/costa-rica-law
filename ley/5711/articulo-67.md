@@ -1,0 +1,1 @@
+Artículo 67.- En la Jurisdicción Tutelar de Menores regirán la Ley respectiva y la Ley Orgánica del Poder Judicial, salvo en cuanto a la segunda instancia, cuyo conocimiento corresponderá a los Tribunales Superiores Penales, de acuerdo con el artículo 34 inciso 1) de la presente ley.
