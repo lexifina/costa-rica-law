@@ -13,3 +13,4 @@ Reforma Reglamento Uniforme Unico Tercer Ciclo y EducaciónDiversificado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-06-20 | la propia norma |
+| 2 | 1990-06-20 | SINALEVI (sin norma nombrada) |
