@@ -1,0 +1,1 @@
+Artículo 12.- Queda prohibida la caza y la exportación de animales silvestres, sus productos o despojos, con cualquier fin, cuando esos animales sean declarados por el Poder Ejecutivo con poblaciones reducidas o en peligro de extinción, excepto en aquellos casos en que -con sustento científico- se requiera lo anterior para la supervivencia de las especies.

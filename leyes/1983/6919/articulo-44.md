@@ -1,0 +1,1 @@
+Artículo 44.- Se prohíbe arrojar aguas negras, desechos de aserraderos, de ingenios de azúcar o de beneficios de café, o cualquier otra sustancia o material contaminante, a ríos, riachuelos, esteros, lagos y lagunas. Las instalaciones industriales deberán estar provistas de dispositivos purificadores, de conformidad con las indicaciones que al efecto haga el Ministerio de Salud.

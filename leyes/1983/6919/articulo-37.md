@@ -1,0 +1,1 @@
+Artículo 37.- La licencia de pesca continental e insular será expedida por el Ministerio de Agricultura y Ganadería, previa presentación de la solicitud y el pago del canon correspondiente establecido en esta ley.

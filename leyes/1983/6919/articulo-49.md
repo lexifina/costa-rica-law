@@ -1,0 +1,1 @@
+Artículo 49.- Los animales vivos capturados sin permiso, podrán ser liberados en ambientes adecuados, tales como parques y refugios nacionales de fauna silvestre o parques zoológicos nacionales. Los animales muertos o sus productos, que se decomisaren, se entregarán a instituciones de beneficencia o al Museo Nacional de Costa Rica.

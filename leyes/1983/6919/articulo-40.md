@@ -1,0 +1,1 @@
+Artículo 40.- Queda exenta del pago de derechos la licencia para fines de subsistencia, de personas de escasos recursos económicos, de acuerdo con las estipulaciones del reglamento de la presente ley.

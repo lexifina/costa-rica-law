@@ -1,0 +1,1 @@
+Artículo 3º.- Para los fines de esta ley se entiende por caza o pesca la acción, con cualquier fin, de buscar, acosar, apresar o matar animales silvestres, así como la recolección de productos derivados de éstos.

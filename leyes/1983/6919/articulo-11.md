@@ -1,0 +1,1 @@
+Artículo 11.- Las instituciones científicas, así como las particulares, que se dediquen a la taxidermia o procesamiento de pieles silvestres, deben inscribirse ante el Ministerio de Agricultura y Ganadería y estarán obligadas a llevar un libro de control de las piezas que procesen, todo de acuerdo con las estipulaciones de esta ley y su reglamento.

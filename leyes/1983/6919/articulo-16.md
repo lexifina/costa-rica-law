@@ -1,0 +1,1 @@
+Artículo 16.- Para la eliminación de todo animal silvestre dañino a la agricultura o a la ganadería, deberá contarse con el permiso del Ministerio de Agricultura y Ganadería. La infracción a esta disposición será sancionada con la pena establecida en el artículo 47 de esta ley.

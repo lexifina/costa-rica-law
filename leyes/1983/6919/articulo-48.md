@@ -1,0 +1,1 @@
+Artículo 48.- Las violaciones a la presente ley y su reglamento, ocurridas en áreas oficiales de protección de la flora y la fauna silvestres, serán sancionadas con el triple de las penas establecidas en el artículo 47 de la presente ley.

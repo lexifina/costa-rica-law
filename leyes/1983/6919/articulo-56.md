@@ -1,0 +1,1 @@
+Artículo 56.- Los recursos económicos a que se refiere esta ley, únicamente serán destinados a realizar programas de protección e investigación de la fauna silvestre. Para estos efectos la Dirección General Forestal llevará registros contables por separado.
