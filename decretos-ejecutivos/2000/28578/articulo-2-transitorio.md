@@ -1,0 +1,1 @@
+Transitorio II.—Dentro de un término no mayor a tres meses, la Dirección General de Servicio Civil establecerá una clase específica, para ubicar los cargos y puestos a que se refiere este reglamento dentro del Manual de Clases correspondiente.

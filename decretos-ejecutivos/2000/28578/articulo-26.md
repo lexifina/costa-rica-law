@@ -1,0 +1,2 @@
+Artículo 26.—Los Inspectores de Trabajo están asignados a diversas circunscripciones territoriales, según lo determine el Director Nacional, de acuerdo con las necesidades de sus servicios en las regiones que se establezca. Sin embargo, tienen jurisdicción en toda la República y, cuando sea preciso, podrán ejecutar funciones fuera de la región a que están asignados, previa instrucción de su superior.
+En el desempeño de sus tareas, actividades, competencias, funciones y atribuciones legales tienen el carácter de autoridades.

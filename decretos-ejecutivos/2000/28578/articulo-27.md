@@ -1,0 +1,1 @@
+Artículo 27.—Las actas que levanten y los informes que rindan los Inspectores de Trabajo tienen el valor de prueba muy calificada. Sólo se prescindirá de ellos, si hay otras que de manera evidente revelen su inexactitud, falsedad o parcialidad.

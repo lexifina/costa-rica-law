@@ -1,0 +1,2 @@
+Artículo 8º—Los Coordinadores de las Unidades de Asesoría Legal y de Asesoría de Gestión, así como los Jefes Regionales son subordinados del Director Nacional. Los Coordinadores de las Oficinas Provinciales y de las Oficinas Cantonales lo son respecto del Jefe Regional de que se trate, sin perjuicio de las atribuciones que correspondan al Director Nacional.
+A su vez, los Inspectores de Trabajo y demás servidores asignados a las Oficinas Provinciales y Oficinas Cantonales están subordinados a los respectivos Coordinadores de esas Oficinas.

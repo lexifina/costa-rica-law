@@ -1,0 +1,2 @@
+Artículo 29.—Para el mejor desempeño de sus competencias, funciones y atribuciones, los Inspectores de Trabajo pueden ser asesorados por expertos o peritos, ya sean médicos, ingenieros, mecánicos, electricistas y otros que se estime conveniente y necesario.
+A tales efectos, coordinarán con el Instituto Nacional de Seguros, el Ministerio de Salud, el Consejo de Salud Ocupacional y demás instancias y organismos relacionados con sus funciones.

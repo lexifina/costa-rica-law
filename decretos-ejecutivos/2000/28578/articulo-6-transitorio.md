@@ -1,0 +1,1 @@
+Transitorio VI.—Transcurrido el plazo de un mes luego de la publicación de este Reglamento, el Ministro constituirá una Comisión encargada de poner en práctica todo lo relativo a la transformación de la DNI.

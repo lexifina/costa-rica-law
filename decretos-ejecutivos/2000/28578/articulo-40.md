@@ -1,0 +1,1 @@
+Artículo 40.- Se derogan el Decreto N° 42 del 16 de agosto de 1949, (Reglamento de la Inspección de Trabajo), así como los artículos 42 a 56 del Decreto Ejecutivo N° 1508-TBS del 16 de febrero de 1971 y sus reformas, (Reglamento de Reorganización y Racionalización del Ministerio de Trabajo y Seguridad Social).

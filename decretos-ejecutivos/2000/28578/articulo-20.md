@@ -1,0 +1,1 @@
+Artículo 20.—Las Oficinas Provinciales o Cantonales estarán a cargo de un coordinador, el cual tendrá las funciones, competencias y atribuciones que le asigne el Jefe Regional, sin perjuicio de lo que al efecto determine el Director Nacional.

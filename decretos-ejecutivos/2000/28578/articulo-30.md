@@ -1,0 +1,4 @@
+Artículo 30.—Además de las obligaciones y prohibiciones contempladas en el Reglamento Autónomo de Servicios, el Director Nacional, los Inspectores de Trabajo y demás servidores y funcionarios de la Dirección, están sujetos a las prohibiciones específicas previstas en el artículo 100 y se harán acreedores a las sanciones señaladas en el numeral 101, ambos de la Ley Orgánica del Ministerio, en los casos y condiciones ahí contemplados.
+Asimismo, les está prohibido lo siguiente:
+a) Mantener o tener cualquier interés directo o indirecto en las empresas que están bajo su vigilancia.
+b) Revelar al empleador o sus representantes o a los trabajadores o sus representantes el origen o la fuente de la denuncia que motiva la inspección. Se exceptúan los casos del denunciante o de la organización sindical autorizada por éste.
