@@ -14,3 +14,4 @@ Reglamento Interno para Contratos Administrativos. (NOTA: Mediante sesión No. 4
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-03-22 | la propia norma |
+| 2 | 1995-03-06 | Reglamento 4537 (1995-03-06) |
