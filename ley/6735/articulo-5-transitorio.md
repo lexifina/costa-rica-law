@@ -1,0 +1,1 @@
+Transitorio V.- Los directivos, por el resto de su período, los funcionarios y empleados del Instituto de Tierras y Colonización, pasarán a laborar al Instituto de Desarrollo Agrario y no habrá solución de continuidad en sus derechos laborales adquiridos.
