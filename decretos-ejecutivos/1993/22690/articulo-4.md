@@ -1,0 +1,1 @@
+Artículo 4° - La Dirección de Urbanismo del INVU tramitará por vía de excepción la aprobación de urbanizaciones, lotificaciones o construcciones de vivienda popular que hayan sido declarados como Asentamientos Consolidados y de interés social por el INVU y por un Ente Autorizado por el Sistema Financiero Nacional para la Vivienda, respectivamente.

@@ -1,0 +1,1 @@
+Artículo 3° - Para efectos de declarar un Asentamiento Consolidado, se entenderá éste como conjunto de familias que han ejercido la posesión de un terreno para fines habitacionales, en forma pública, pacífica e ininterrumpida por un plazo no menor de un año y tendrá demostrada esta situación aplicando los medios probatorios que estime conveniente.
