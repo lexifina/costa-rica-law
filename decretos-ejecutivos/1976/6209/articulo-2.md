@@ -1,0 +1,1 @@
+Artículo 2° -El Estado a su vez encarga al Instituto de Tierras y Colonización para que ejerza a su nombre la opción de venta de propiedades hecha a éste por ALCOA y a la cual se hace referencia en el artículo anterior.

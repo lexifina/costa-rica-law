@@ -1,0 +1,2 @@
+Artículo 3° -El Instituto de Tierras y Colonización no podrá traspasar a terceros las tierras adquiridas en virtud de este decreto sin la previa autorización del Poder Ejecutivo, lo cual se hará constar en la correspondiente escritura de traspaso.
+El Poder Ejecutivo, de común acuerdo con el Instituto de Tierras y Colonización, dictará un reglamento para garantizar un uso racional de esas tierras bauxíticas mientras no se inicie en ellas la explotación minera.

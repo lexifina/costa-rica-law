@@ -1,0 +1,1 @@
+Artículo 4° -Queda facultado el personero legal del Estado, con facultades para ello, para comparecer ante la Notaria del Estado a suscribir la correspondiente escritura de traspaso, así como los adicionales que fueren necesarios, a fin de que los citados bienes pasen a ser propiedad del expresado Instituto.
