@@ -1,0 +1,3 @@
+Artículo 4°.- Para la Deuda Pública, sin perjuicio de la inclusión en los libros, formará un archivo donde ha de figurar la Externa, la Interna y la Flotante, con la debida separación y referencia a los valores emitidos, bonos puestos en circulación y demás documentos en que consten.
+A las Municipalidades autorizadas para lanzar bonos o valores análogos, les llevará cuentas bajo el mismo método.
+Compete al Centro el examen y revisión administrativos de las deudas del Estado, incluyendo el bastanteo de las que procedan de reclamos en su contra. Sin esta formalidad y la fijación concreta del respectivo monto, no se considerarán líquidas ni, por lo mismo, exigibles.

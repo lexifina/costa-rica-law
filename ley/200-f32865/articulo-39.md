@@ -1,0 +1,1 @@
+Artículo 39.- El Centro de Control dará informe, durante los primeros quince días de cada mes al Secretario de Hacienda, acerca de todas las operaciones fiscales del mes inmediato anterior, con estados y balances por carteras.

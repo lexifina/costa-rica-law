@@ -1,0 +1,1 @@
+Artículo 6°.- Ha de mantener un padrón completo de pensiones y becas a cargo del Estado, empleando el sistema de tarjetas u otro procedimiento que lo mejore, referidas a los expedientes originales. Con la debida diligencia apartará las que se incumplan o caduquen, dando cuenta a la Tesorería.

@@ -1,0 +1,1 @@
+Artículo 21.- El Centro de Control refrendará todo bono u otros títulos de deuda pública nacional o municipal, y ningún documento de esta especie será de circulación válida sin la anotación de dicho Centro estampada en el mismo título.

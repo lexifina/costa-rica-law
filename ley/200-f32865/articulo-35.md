@@ -1,0 +1,3 @@
+Artículo 35.- Todo funcionario que tenga el cargo de recaudar, administrar o custodiar fondos o bienes públicos de cualquier naturaleza, deberá garantizar el correcto cumplimiento de sus deberes y posibles responsabilidades con póliza de fidelidad del Banco Nacional de Seguros.
+Cuando ni la ley ni el reglamento indiquen la cuantía, será el Centro el que la fije, habida cuenta de los riesgos a cubrir. Los documentos de garantía serán resguardados por el Centro de Control.
+Las pólizas de garantía están bajo la guarda del Centro de Control, al que corresponde también velar porque los empleados respectivos las mantengan en vigor.

@@ -1,0 +1,2 @@
+Artículo 10.- Ambos funcionarios son de nombramiento privativo del Congreso Constitucional; durarán en su puesto por espacio fijo de seis años, sin posible reelección sucesiva; y estarán sujetos a responsabilidad administrativa y aún penal.
+Sin embargo, por motivos muy calificados y comprobados, podrá el Congreso, por dos tercios de votos presentes, suspender y aun deponer al que fuere culpable o adoleciere de inhabilidad, sin perjuicio de otras consecuencias legales.

@@ -1,0 +1,1 @@
+Artículo 24.- Para hacer pedidos al exterior por cuenta de la Nación y corporaciones no exceptuadas de esta ley, es preciso tener previamente la anuencia del Centro de Control. Este abrirá un crédito prudencial, cargándolo a la partida afectada.
