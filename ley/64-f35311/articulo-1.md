@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO LXIV.
+(Esta norma fue derogada por el decreto-ley N° 134 del 2 de setiembre de 1835 "Establece como punto donde deben residir las Supremas autoridades la población del Murciélago, y dispone que mientras se construyen los edificios necesarios, residan unas en Heredia y otras en San José")
 (Nota: Se respeta la ortografía y gramática del texto original)
 Explica el de 15 de Marzo de este año sobre residencia
 de las Supremas Autoridades. (1.)
