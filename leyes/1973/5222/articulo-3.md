@@ -1,4 +1,4 @@
-Artículo 3º.- El Instituto Meteorológico Nacional actuará como
+ARTICULO 3º.- El Instituto Meteorológico Nacional actuará como
 organismo técnico especializado, encargado de brindar servicio
 meteorológico a todo el país, en base a los siguientes fines:
 a) Estudiar, analizar y correlacionar los distintos estados del
