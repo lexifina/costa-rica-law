@@ -1,0 +1,3 @@
+ARTÍCULO VII
+Indemnización por Pérdidas
+Los inversionistas de cada Parte Contratante cuyas inversiones en el territorio de la otra Parte Contratante sufrieren pérdidas debido a una guerra o cualquier otro conflicto armado, a un estado de emergencia nacional, disturbios civiles u otros acontecimientos similares en el territorio de la otra Parte Contratante, deberán recibir de esta última, en lo que respecta a reparación, indemnización, u otro arreglo en relación con su inversión, un tratamiento no menos favorable que el que concede esta Parte Contratante a las inversiones de los inversionistas nacionales o de cualquier tercer Estado.
