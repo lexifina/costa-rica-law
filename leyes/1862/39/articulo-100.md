@@ -1,0 +1,1 @@
+Artículo 100.-Son nulos los votos dados en las elecciones de Canton favor de personas que no tengan las calidades requeridas para obtener el destino que se les confía; pero si cada elector ha debido votar por dos más personas, y en el mismo voto hubiere sufragado por otra persona que tenga dichas calidades, y que no sea de las exceptuadas, el voto ser válido respecto esta.

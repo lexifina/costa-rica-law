@@ -1,0 +1,1 @@
+Artículo 95.-En las votaciones, después de recogidos los votos, se anunciar por el Presidente que cerrarse la votación, y pasando un cierto intervalo la cerrar, después de lo cual no podrá admitirse ninguna papeleta.

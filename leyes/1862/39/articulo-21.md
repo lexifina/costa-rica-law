@@ -1,0 +1,1 @@
+Artículo 21.-Ninguno de los "vecinos nombrados para componer la Junta calificadora, entrar ejercer sus funciones sin haber prestado antes, en manos del Presidente Municipal, el Juramento que previene el art. 17 de la Constitución.

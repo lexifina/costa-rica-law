@@ -1,0 +1,1 @@
+Artículo 96.-Las elecciones hechas no pueden declararse nulas, sino por las razones que se establecen en la Constitución y en esta ley. Las demás faltas que se cometan, hacen responsables sus autores; pero no anulan las elecciones en que se hayan cometido.

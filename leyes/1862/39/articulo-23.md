@@ -1,0 +1,1 @@
+Artículo 23.-Las Juntas se valdrán, para formar las listas, de los registros de elecciones anteriores y de los informes que les suministren los funcionarios públicos, quienes están obligados darlos siempre que se los pidan.

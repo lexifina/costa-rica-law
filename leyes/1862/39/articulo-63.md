@@ -1,0 +1,1 @@
+Artículo 63.-Las Asambleas oír cualesquiera reclamaciones que se les dirijan acerca de nulidades de la elección de uno más electores y las resolverán con vista de los documentos en que se funden tales nulidades y de los informes que ellas pidan para formar un juicio exacto de los hechos.

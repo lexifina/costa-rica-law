@@ -1,0 +1,3 @@
+Artículo 53.-Las Electorales de las Provincias, nombrarán los Rejidores propietarios y suplentes que les corresponden del modo siguiente: las de la Provincia de San José, nueve propietarios y cuatro suplentes; las de la de Cartago siete propietarios y tres suplentes;
+las de la de Heredia siete propietarios y tres suplentes; igual número las de la de Alajuela; las de la de Guanacaste cinco propietarios y dos suplentes; y la de la Comarca de Puntarenas cinco propietarios y dos suplentes.
+único. Los Cantones menores de todas las Provincias, elegirán cada uno un Regidor propietario solamente; pero los Cantones cabeceras de Provincia, elegirán además de los propietarios hasta completar el número, todos los suplentes de la Municipalidad.

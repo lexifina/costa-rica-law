@@ -1,0 +1,1 @@
+Artículo 85.-Si no hubiere proposición para que se declare que no hay elección en el que reúne la pluralidad absoluta, si dicha proposición fuese resuelta negativamente, se declarar por el Congreso, electo Presidente de la República, al que haya obtenido dicha pluralidad absoluta de votos.

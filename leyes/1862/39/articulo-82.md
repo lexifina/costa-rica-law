@@ -1,0 +1,1 @@
+Artículo 82.-Los Secretarios del Congreso formar n el cómputo del número de Electores que hayan concurrido las Asambleas, cuyas votaciones no se han declarado nulas por el Congreso, y anunciar n este cual es el número total, y cual el que forma su pluralidad absoluta.

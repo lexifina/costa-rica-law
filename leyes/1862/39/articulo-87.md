@@ -1,0 +1,2 @@
+Artículo 87.-Cuando vaya procederse votación según lo dispuesto en el artículo precedente, y antes de que comience ‚ esta, podrá igualmente proponer cualquier miembro del Congreso, que declare no ser elegible alguna de las personas que está contraída, por las razones espresadas en el artículo 84, en cuyo caso se proceder como queda dicho en el artículo 80.
+Si la proposición se resolviere afirmativamente, y se presentase el caso de que quede solo con mayoría, entonces se tomar el que siga en votos para completar el número de dos, entre quienes ha de recaer la votación.

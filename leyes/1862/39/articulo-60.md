@@ -1,0 +1,2 @@
+Artículo 60.-En la elección de Escrutadores que debe practicar la Asamblea, cada elector dar su voto por escrito en una papeleta, y recogidas estas por el Secretario, se hará el escrutinio y se declarar n electos los que hayan reunido mayor número de votos, después de lo cual quedar instalada la Asamblea.
+El acta de instalación se entender en papel del sello 4° clase. conforme al modelo que bajo el número 2° se acompaña esta ley; y ser firmada por el Presidente, electores y el Secretario.

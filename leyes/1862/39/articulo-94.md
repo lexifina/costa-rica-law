@@ -1,0 +1,1 @@
+Artículo 94.-Despues de recogidas las papeletas, se contar y confrontar su número y el de los sufragantes: si resultare mayor el primero, se repetir la votación, designando previamente el Presidente uno de los Escrutadores para que la reciba de manos de las que votan, y examinando al tacto sin leerlas, si hay alguna de más, las deposite en la urna en que las recoge el Secretario.

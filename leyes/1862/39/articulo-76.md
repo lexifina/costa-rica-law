@@ -1,0 +1,1 @@
+Artículo 76.-Tambien comunicar el Presidente de la Asamblea Electoral los Senadores y Representantes electos, sus respectivos nombramientos fin de que concurran al Congreso el día señalado por la Constitución.

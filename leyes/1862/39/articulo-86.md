@@ -1,0 +1,1 @@
+Artículo 86.-Si del escrutinio resultare que ninguno ha reunido la pluralidad absoluta, se declare conforme lo dispuesto en el artículo 84 que no hay elección, se proceder perfeccionarla entre los dos más que hayan obtenido mayor número de votos, anunciando el Presidente cuales son aquellos entre quienes deba recaer la elección.

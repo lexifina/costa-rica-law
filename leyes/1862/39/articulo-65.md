@@ -1,0 +1,1 @@
+Artículo 65.-Las Asambleas electorales de los Cantones de las Provincias se reunir n en una sola el primer Domingo de Abril en las capitales de ellas; y en este día sufragarán para Presidente de la República y harán las elecciones de Senadores y Representantes que correspondan dichas Provincias, en las ‚pocas señaladas por la ley.

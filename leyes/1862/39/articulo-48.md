@@ -1,0 +1,1 @@
+Artículo 48.-Corresponde igualmente a la Junta declarar la vacante que resulte por muerte de alguno de los electores nombrados, por haber perdido después de su nombramiento alguna de las calidades requeridas por la Constitución para ser elector.

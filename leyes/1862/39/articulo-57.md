@@ -1,0 +1,1 @@
+Artículo 57.-En todas las Provincias donde haya Imprenta autorizada legalmente, se nombrarán cada año sesenta jurados. Este nombramiento se hará inmediatamente después de haberse efectuado el de Rejidores y Alcaldes constitucionales.

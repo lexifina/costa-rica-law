@@ -1,0 +1,3 @@
+Artículo 88.-Decidido cuales sean los individuos por quienes pueda votarse para perfeccionar en uno de ellos la elección, cada miembro del Congreso dar su voto por medio de una papeleta en que esta‚ escrito el nombre y apellido del individuo por quién vota.
+1°. -Los Secretarios recoger n las papeletas y las leerán después, de una en una, en voz alta, llevando cuenta de los votos que resulten favor de cada individuo. Si resultare que alguno ha obtenido la pluralidad absoluta de votos, el Congreso le declarar electo.
+2°. -Si ninguno hubiere obtenido dicha pluralidad, se contraer la elección los que mayor número de votos hayan tenido en el anterior escrutinio, y se repetirán las votaciones y escrutinios hasta obtener pluralidad.
