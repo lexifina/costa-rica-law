@@ -1,0 +1,1 @@
+Artículo 2°—Junto con el informe de cada norma deberán emitir criterio de si es procedente eliminarla o simplificar la regulación. En el último caso enviarán el proyecto de simplificación en los 60 días siguientes al término de los plazos indicados en el artículo anterior.

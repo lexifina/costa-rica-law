@@ -1,0 +1,13 @@
+No 27160-MEIC
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO,
+En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140 de la Constitución Política , inciso 2.b del artículo 28 de la Ley General de la Administración Pública y la Ley de Promoción de la Competencia y Defensa efectiva del Consumidor N° 7472 del 20 de diciembre de 1994; y.
+Considerando:
+1°—Que en el espíritu de la Ley 7472 las regulaciones sobre las actividades privadas, comerciales y productivas, se justifican únicamente cuando se u-ata de proteger la salud, el medio ambiente, la seguridad,
+calidad, así como el derecho de los consumidores a la información; pero sin convertirse en obstáculos irracionales para el libre comercio.
+2°—Que la Administración Pública no ha dado cumplimiento a los alcances del artículo 4 y concordantes de la Ley 7472, que con el propósito de desarrollar una adecuada política de desregulación, es indispensable contar con un inventario de la normativa que aplican las diversas 'dependencias del Poder Ejecutivo, las instituciones autónomas y demás entes públicos.
+3°—Que el exceso de - regulación a que están sometidas las actividades privadas y productivas hacen incurrir a los costarricenses no solo en altos costos económicos sino también en altos costos de transacción, que les implican gran cantidad de tiempo y de recursos para poder dar cumplimiento al exceso de reglamentos y requisitos para la realización de sus actividades.
+4°—Que los costos económicos y no económicos derivados del exceso de regulación, significan para la economía nacional un desperdicio de recursos que reducen la competitividad y las posibilidades de producción del país, pues alternativamente la sociedad podría dedicar estos recursos y esfuerzos a actividades productivas que signifique más empleo y mejor calidad de vida para los costarricenses.
+Por tanto,
+DECRETAN:
+Artículo 1°—Todos los órganos de la Administración y demás entes públicos quedan obligados a remitir a la Unidad de Apoyo de la Comisión de la Promoción de la Competencia , un listado de la normativa que aplican ordinariamente en el ejercicio de su competencia, debiendo indicar el número de ley, decreto o reglamento, su fecha de emisión y de publicación en el Diario Oficial " La Gaceta ". Para tales efectos gozan de un plazo de treinta días hábiles a partir de la publicación del presente decreto, respecto de la normativa reglamentaria que hayan emitido después de la entrada en vigencia de la Ley 7472, sea del 20 de diciembre de 1994. En lo concerniente a la legislación y demás normativa anterior a la fecha que se señala en este artículo, contarán con un plazo de noventa días hábiles a partir de la publicación del presente decreto.
