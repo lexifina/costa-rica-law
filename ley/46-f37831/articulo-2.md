@@ -1,0 +1,3 @@
+Art, 2° Para optar a la gracia del artículo anterior, es necesario que el introductor, al desembarcar las mercaderías en Puntarenas, presente al Administrador de la Aduana una constancia de que se han llenado las condiciones que el mismo artículo establece. Esta constancia será, ó el conocimiento de Agente de las mismas mercaderías anotado p ferrocarril de Panamá, ó certificación de este en que conste haber pasado por el Istmo las dichas mercaderías, expresando las marcas y números de los bultos.
+1° Las mercaderías destinadas a la venta en Puntarenas en algún otro punto de los que disfrutan de la franquicia, no están comprendidas en esta disposición.
+2°Tampoco están comprendidas las que, des pues de desembarcadas, pasen a segunda mano.
