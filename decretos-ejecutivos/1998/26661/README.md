@@ -14,3 +14,4 @@ Declara Refugio de Vida Silvestre Privado Cerro Dantas en Vara Blanca, Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-16 | la propia norma |
+| 2 | 1998-02-16 | Ley 8 |
