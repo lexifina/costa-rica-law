@@ -1,0 +1,2 @@
+Artículo 2°-Las monedas llevarán grabado en el anverso el escudo de la Nación, la leyenda “República de Costa Rica”, las iniciales del Banco Central de Costa Rica y su valor en letras.
+Al reverso llevarán grabado estas monedas el motivo alusivo a la conmemoración o acontecimiento que se desea destacar; en la orla superior la leyenda que corresponda, y en la inferior el año que se conmemora y el que corresponda a la acuñación, en cifras. A falta de leyenda para el reverso se consignará la de América Central.
