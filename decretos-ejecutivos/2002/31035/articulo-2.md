@@ -1,0 +1,1 @@
+Artículo 2º—La Administración de la Zona Protectora Cerro Nara se realizará conforme con lo establecido en los artículos 13, 33 y 34 de la Ley Forestal Nº 7575, publicada el 16 de abril de 1996, y el artículo 22 de la Ley de Biodiversidad Nº 7788, publicada el 27 de mayo del 1998.
