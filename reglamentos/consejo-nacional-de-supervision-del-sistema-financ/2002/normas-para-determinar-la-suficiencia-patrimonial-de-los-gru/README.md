@@ -14,3 +14,4 @@ Normas para determinar la suficiencia patrimonial de los grupos financieros y ot
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-11 | la propia norma |
+| 2 | 2002-12-19 | Reglamento 347 (2002-12-19) |
