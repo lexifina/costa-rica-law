@@ -1,0 +1,1 @@
+Artículo 11.—Inembargabilidad de saldos en cuenta de ahorro juvenil. Las cuentas de ahorro juvenil son inembargables hasta por un monto de seiscientos mil colones (¢ 600.000,00), excepto por obligaciones alimenticias judicialmente impuestas o por cobro de créditos otorgados por MUCAP.

@@ -1,0 +1,1 @@
+Artículo 16.—Resolución voluntaria del contrato. El representante legal del cuenta ahorrante podrá dar por concluido el contrato de ahorros en forma unilateral sin que medie incumplimiento de ninguna de las partes, mediante solicitud expresa o verbal en tal sentido, retiro del saldo en cuenta y entrega de la libreta de ahorros a MUCAP.
