@@ -1,0 +1,2 @@
+Artículo 13°-Sesiones extraordinarias.
+El Concejo Municipal de Distrito podrá celebrar sesiones extraordinarias cuando dos de sus miembros propietarios así lo soliciten por escrito al Intendente. También podrán celebrarse tales sesiones cuando el Intendente lo estime necesario. La citación se hará con veinticuatro horas de antelación por lo menos, con precisa indicación de los asuntos que deben tratarse.

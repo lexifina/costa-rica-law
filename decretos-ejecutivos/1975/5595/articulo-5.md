@@ -1,0 +1,2 @@
+Articulo 5°-Nombramientos.
+Para la integración de los Concejos Municipales de Distrito, el Poder Ejecutivo solicitara a la Municipalidad del respectivo cantón, que dentro del término de quince días hábiles Ie proporcione ternas para la escogencia de dos miembros propietarios y uno suplente. Vencido el indicado plaza, el Poder Ejecutivo procederá a efectuar los nombramientos de todos los miembros del Concejo, aunque la Municipalidad no Ie hubiere proporcionado las ternas, en cuyo caso el propio Poder Ejecutivo completará la nomina.

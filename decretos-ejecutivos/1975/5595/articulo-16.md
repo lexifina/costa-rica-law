@@ -1,0 +1,2 @@
+Articulo 16. - Traslado de fondos.
+Instalado el Concejo Municipal de Distrito, su Presidente lo comunicará así a la Municipalidad respectiva para que ésta, dentro de los treinta días hábiles siguientes, a más tardar, haga entrega a la nueva Corporación de los fondos pertenecientes al Distrito autónomo, conforme al resultado de la liquidación que practique la Contraloría, según se dispone en el articulo 18 de este Reglamento.
