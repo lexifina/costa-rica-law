@@ -1,0 +1,6 @@
+23.-EXPORTACIONES POR MEDIO DE LICITACIONES INTERNACIONALES.
+Las exportaciones que se realicen a países con los cuales Costa Rica haya suscrito un tratado bilateral o multilateral de libre comercio, en virtud de licitación internacional, en condiciones de mercado abierto para los participantes, podrán gozar del incentivo del CA T por un monto máximo de hasta un 15 %, siempre que lo permitan las disposiciones aplicables del respectivo tratado. Para tal efecto, una vez adjudicada la licitación que fundamenta la exportación, la empresa beneficiaria deberá realizar ante la Secretaría Técnica las gestiones para que esta recomiende ante el Banco Central el otorgamiento del CAT.
+Para estos efectos las empresas beneficiarias deberán aportar:
+a) Certificación de la institución o instituciones públicas a las que se realizó la exportación, donde se indique las condiciones de mercado abierto en las que participó. Dicha certificación deberá haber cumplido con todos los requisitos de autenticación correspondientes.
+b) Condiciones de mercado en las que participó y compitió, como elemento para determinar la necesidad del beneficio.
+c) Certificación de los precios a los que normalmente se cotizan sus productos y los precios que ofreció en la licitación.

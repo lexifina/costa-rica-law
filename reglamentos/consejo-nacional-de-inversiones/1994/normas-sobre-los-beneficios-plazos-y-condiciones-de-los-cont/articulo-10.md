@@ -1,0 +1,2 @@
+10.-AMPLIACIONES DE PRODUCTOS.
+A las modificaciones que se refieran a la ampliación de la lista de productos por exportar y que impliquen un cambio en la línea de producción, se les aplicarán las condiciones y beneficios vigentes para la suscripción de nuevos contratos a la fecha de presentación de la solicitud. La Secretaría Técnica podrá someter el caso a conocimiento del Consejo, cuando a su juicio existan dudas sobre si la modificación implica o no un cambio en la línea de producción.

@@ -1,0 +1,2 @@
+12.-DENOMINACION DE LOS PRODUCTOS EXPORTADOS.
+En los casos en que los CAT hubieren sido denegados por la entidad emisora debido a que el beneficiario ha utilizado en los documentos de exportación una denominación para los productos distinta a la contemplada en el contrato, la Secretaría Técnica procederá directamente a autorizar la emisión de los certificados, siempre que se trate de los mismos productos, es decir, que la diferencia sea de mera denominación.

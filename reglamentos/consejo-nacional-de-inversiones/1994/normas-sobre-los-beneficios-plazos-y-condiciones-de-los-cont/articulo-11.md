@@ -1,0 +1,2 @@
+11.-AMPLIACIONES DE MAQUINARIA Y EQUIPO O MATERIAS PRIMAS.
+Las modificaciones que se refieran a la ampliación de maquinaria y equipo o materias primas íntimamente ligados al mismo proceso de producción, serán tramitadas directamente por la Secretaría Técnica. Serán sometidos a conocimiento del Consejo los casos en que, a criterio de la Secretaría Técnica, la ampliación solicitada no tenga relación con el proceso de producción.

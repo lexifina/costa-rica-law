@@ -1,0 +1,2 @@
+4.-OMISION DE REQUISITOS EN LA SOLICITUD DE CONTRATO.
+Presentada la solicitud, la Secretaría Técnica procederá a comprobar si reúne todos los requisitos. Si la solicitud fuere omisa o defectuosa, la Secretaría Técnica le indicará al interesado los defectos y le otorgará un plazo máximo de diez días hábiles para que los subsane. Una vez subsanados los defectos, la Secretaría someterá el caso a conocimiento del Consejo. Si los defectos no fueren subsanados dentro del plazo indicado, la Secretaría Técnica desestimará la solicitud.
