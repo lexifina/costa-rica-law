@@ -1,0 +1,1 @@
+ART. 12.-La instrucción especial científica abraza las siguientes asignaturas: trigonometría rectilínea, elementos de geometría analítica y cálculo sublime, y dibujo, que dan derecho optar al grado de Bachiller en ciencias, y además: física matemática, mecánica general y ampliación del cálculo, que dan opción al título de Licenciado en ciencias.

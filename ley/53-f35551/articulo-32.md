@@ -1,0 +1,1 @@
+ART. 32.-El Bachiller en ciencias que haya sido aprobado en las asignaturas que se exigen para el "Ingeniero topógrafo," "Maestro de obras", "Constructor de puentes y caminos," "Ingeniero de minas;" y además en la de geometría descriptiva, puede optar al título de "Ingeniero Civil".
