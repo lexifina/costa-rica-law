@@ -9,3 +9,4 @@ Considerando:
 4º—Que por lo anterior, se hace necesario modificar el límite de gasto presupuestario y efectivo fijado a RECOPE en el decreto antes citado. Por tanto,
 DECRETAN:
 Artículo 1º—Modifícase el límite de gasto presupuestario y efectivo establecido a la Refinadora Costarricense de Petróleo, en el artículo 1º del Decreto Ejecutivo Nº 29511-H, fijándolo en ¢24.947.0 millones.
+(Modificado el Límite de gasto presupuestario y efectivo de Recope por el artículo 1 del Decreto Ejecutivo N° 30084 de 18 de diciembre del 2001)

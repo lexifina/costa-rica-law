@@ -14,3 +14,4 @@ Modifica límite de gasto presupuestario y efectivo para el 2002 de RECOPE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-19 | la propia norma |
+| 2 | 2001-12-18 | Decreto Ejecutivo 30084 (2001-12-18) |
