@@ -1,2 +1,2 @@
-Artículo 40°—Las irregularidades en la asistencia por omisión de marca, llegadas tardías, marca anticipada o posterior a la entrada y ausencias, deberán ser justificadas dentro del mismo mes calendario.
-En aquellos casos donde se configure causal de despido, deberá el jefe comunicar de inmediato a la Dirección de Recursos Humanos.
+Artículo 40.—Las irregularidades en la asistencia por omisión de marca, llegadas tardías, marca anticipada o posterior a la entrada y ausencias, deberán ser justificadas dentro del mismo mes calendario. El Jefe inmediato del servidor podrá justificar un máximo de tres, omisiones de marcas, dentro del mismo mes calendario. En aquellos casos donde se configure causal de despido, deberá el Jefe comunicar de inmediato a la Dirección de Recursos Humanos.
+(Así reformado parcialmente por el Decreto Ejecutivo No. 30112 de 21 de noviembre de 2001)
