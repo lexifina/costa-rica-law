@@ -1,0 +1,1 @@
+Artículo 7°—Comunicación de los actos de la Comisión Liquidadora a los interesados: La Comisión Liquidadora procederá, por los medios que correspondan según nuestro ordenamiento jurídico, a comunicar los actos que se consideren pertinentes a todos aquellos interesados que hubieren tenido algún tipo de relación con el Programa de Compensación Social.
