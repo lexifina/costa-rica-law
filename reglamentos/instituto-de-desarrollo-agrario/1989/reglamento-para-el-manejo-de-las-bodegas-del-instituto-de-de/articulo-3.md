@@ -1,0 +1,1 @@
+Artículo 3°—Cada bodega estará bajo la responsabilidad de un encargado de bodega asignado por la jefatura correspondiente, el cual podrá tener otras personas a su cargo cuando el volumen de trabajo así lo exija.

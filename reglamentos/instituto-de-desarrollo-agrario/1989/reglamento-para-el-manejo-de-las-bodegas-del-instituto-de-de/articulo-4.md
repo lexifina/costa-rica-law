@@ -1,0 +1,1 @@
+Artículo 4°—Todas las bodegas deberán entregar un informe mensual a Contabilidad con copia a Proveeduría sobre las entradas, salidas y existencia de materiales con el precio de entrada y salida respectivo, con la finalidad de llevar un control actualizado de los movimientos que se producen en las mismas.

@@ -1,0 +1,1 @@
+Artículo 7° — Todo material o equipo que ingrese a bodega, debe ser ubicado en un lugar apropiado de acuerdo con sus características físicas y químicas, así como por su respectivo código, el cual será asignado por la Sección de Contabilidad

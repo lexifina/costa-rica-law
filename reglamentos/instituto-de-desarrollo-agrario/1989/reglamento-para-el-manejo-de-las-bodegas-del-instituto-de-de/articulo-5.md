@@ -1,0 +1,2 @@
+Artículo 5°—La Sección de Proveeduría debe preocuparse por mantener un surtido de mercadería en correspondencia con los artículos que sean de mayor uso en la Institución, de tal manera que se realicen compras voluminosas para mantener un buen stock de bodega.
+Para esto, el encargado de bodega debe comunicar oportunamente al jefe de Proveeduría por medio del formulario correspondiente, sobre el agotamiento de mercaderías disponibles.

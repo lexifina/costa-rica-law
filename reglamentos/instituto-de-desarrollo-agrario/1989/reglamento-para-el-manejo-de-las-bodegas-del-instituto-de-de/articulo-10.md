@@ -1,0 +1,1 @@
+Artículo 10°.—Al funcionario de bodega que se le compruebe responsabilidad en la pérdida o deterioro de los materiales o equipos almacenados por la misma, se le sancionará de acuerdo con lo dispuesto en el artículo 17 del presente Reglamento según sea el hecho.

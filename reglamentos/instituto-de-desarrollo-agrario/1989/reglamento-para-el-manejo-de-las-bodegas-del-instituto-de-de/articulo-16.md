@@ -1,0 +1,1 @@
+Artículo 16°.—El incumplimiento del presente Reglamento será sancionado de acuerdo con lo estipulado en las leyes y reglamentos que corresponde (Código de Trabajo, Reglamento Interno, Laudo Arbitral, Ley de la Administración Financiera y su Reglamento y otros que se establezcan o existan en la Institución).

@@ -1,0 +1,1 @@
+Artículo 2° —El Instituto contará con una bodega central ubicada en San José bodegas para cada una de las direcciones regionales, así como en las oficinas u otros lugares que sea necesario a criterio de la Presidencia Ejecutiva, previo estudio de la necesidad real existente.
