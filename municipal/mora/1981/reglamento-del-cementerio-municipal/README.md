@@ -14,3 +14,4 @@ Reglamento del Cementerio Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-01-26 | la propia norma |
+| 2 | 1988-04-25 | Reglamento municipal 154 (1988-04-25) |
