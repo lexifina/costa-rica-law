@@ -1,8 +1,1 @@
-Transitorio VI.-El MOPT establecerá conforme a las prioridades de
-modernización y organización que se tienen para la actividad del
-Transporte Público Remunerado de Personas, las políticas y estrategias
-que regirán para las empresas de transporte fuera del Area Metropolitana
-de San José, debiendo servir este Reglamento como orientación de los
-cambios que se pretenderán, respetando en principio la realidad
-operacional que caracteriza a las empresas fuera del Area Metropolitana
-de San José.
+Transitorio VI.- El MOPT establecerá conforme a las prioridades de modernización y organización que se tienen para la actividad del Transporte Público Remunerado de Personas, las políticas y estrategias que regirán para las empresas de transporte fuera del Area Metropolitana de San José, debiendo servir este Reglamento como orientación de los cambios que se pretenderán, respetando en principio la realidad operacional que caracteriza a las empresas fuera del Area Metropolitana de San José.

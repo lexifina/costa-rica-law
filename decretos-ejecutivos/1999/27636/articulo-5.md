@@ -1,124 +1,27 @@
-Artículo 5º-El Plan para la evaluación de la capacidad empresarial
-deberá ser presentado obligatoriamente por todas las empresas de
-transporte público remunerado de personas a más tardar el 30 de abril
-de 1999, cumpliendo como mínimo con la presentación de la información
-de los siguientes aspectos, la cual será evaluada de acuerdo con los
-porcentajes de peso relativo respectivos que se muestran entre
-paréntesis:
+Artículo 5º- El Plan para la evaluación de la capacidad empresarial deberá ser presentado obligatoriamente por todas las empresas de transporte público remunerado de personas a más tardar el 30 de abril de 1999, cumpliendo como mínimo con la presentación de la información de los siguientes aspectos, la cual será evaluada de acuerdo con los porcentajes de peso relativo respectivos que se muestran entre paréntesis:
 A. SOBRE LA PRESTACION DEL SERVICIO (65%)
 I. OPINION DEL USUARIO (15%)
-i. Realización de encuesta, en donde se resuma la opinión del
-usuario respecto a la calidad del servicio ofrecido por el
-concesionario. Se complementará esta encuesta con la evaluación de
-elementos tales como el estado actual de las unidades con que se
-presta el servicio, cumplimiento de horarios y paradas, tiempo de
-duración de recorrido, confortabilidad brindada al usuario, trato
-y presentación de los choferes, y otros elementos aportados por el
-empresario que demuestren su contribución al mejoramiento de la
-calidad del servicio (10%).
-ii. Evaluación y resolución de las quejas y denuncias debidamente
-comprobadas por el mal servicio prestado al usuario que se
-encuentren en el expediente respectivo. (5%)
+i. Realización de encuesta, en donde se resuma la opinión del usuario respecto a la calidad del servicio ofrecido por el concesionario. Se complementará esta encuesta con la evaluación de elementos tales como el estado actual de las unidades con que se presta el servicio, cumplimiento de horarios y paradas, tiempo de duración de recorrido, confortabilidad brindada al usuario, trato y presentación de los choferes, y otros elementos aportados por el empresario que demuestren su contribución al mejoramiento de la calidad del servicio (10%).
+ii. Evaluación y resolución de las quejas y denuncias debidamente comprobadas por el mal servicio prestado al usuario que se encuentren en el expediente respectivo. (5%)
 II. PERFIL DEL USUARIO Y CANTIDAD DE PASAJEROS MOVILIZADOS (10%)
-i. Estudio de la cantidad de pasajeros movilizados, por ruta y
-por ramal, con información sobre el comportamiento típico semanal
-y anual, así como los tramos críticos entre paradas y estudio de
-las necesidades de los usuarios, de acuerdo con las condiciones de
-demanda de transporte (magnitud y patrón de origen y destino)
-realizado con base a una muestra representativa, de acuerdo con
-normas y parámetros estadísticos, que garanticen la certeza de la
-información suministrada. Este estudio se solicitará por una sola
-vez y se deberá tener listo de previo a la evaluación que el MOPT
-realizará. Deberá ser realizado por profesionales calificados con
-especialidad en transporte o profesionales calificados con los
-conocimientos técnicos suficientes para garantizar que la
-información suministrada sea un fiel reflejo de la realidad
-operacional de la empresa. El estudio no podrá tener más de un año
-de haberse efectuado, previa certificación y comprobación del o
-profesionales participantes bajo juramento.
+i. Estudio de la cantidad de pasajeros movilizados, por ruta y por ramal, con información sobre el comportamiento típico semanal y anual, así como los tramos críticos entre paradas y estudio de las necesidades de los usuarios, de acuerdo con las condiciones de demanda de transporte (magnitud y patrón de origen y destino) realizado con base a una muestra representativa, de acuerdo con normas y parámetros estadísticos, que garanticen la certeza de la información suministrada. Este estudio se solicitará por una sola vez y se deberá tener listo de previo a la evaluación que el MOPT realizará. Deberá ser realizado por profesionales calificados con especialidad en transporte o profesionales calificados con los conocimientos técnicos suficientes para garantizar que la información suministrada sea un fiel reflejo de la realidad operacional de la empresa. El estudio no podrá tener más de un año de haberse efectuado, previa certificación y comprobación del o profesionales participantes bajo juramento.
 III. PLAN DE MEJORAMIENTO DE LA FLOTA ACTUAL (40%):
-Se pretende que las empresas procedan mediante programas de
-renovación de equipos a modernizar la tecnología existente en el Area
-Metropolitana de San José, como factor determinante para mejorar la
-calidad del servicio en cuanto a confortabilidad, seguridad, duración
-del viaje, contaminación sónica y ambiental, para lo cual deberán
-realizar inversiones en estos procesos, estableciendo un cronograma de
-las mismas. Este plan de renovación podrá ser realizado en forma
-gradual, pero no mayor de tres años, de acuerdo a compromiso de las
-empresas que constituirán cada Sociedad Operativa. Deberá venir
-acompañado de un estudio financiero que permita analizar en diferentes
-escenarios, el nivel tarifario requerido para la implementación del
-programa , a efecto de medir el impacto socio económico en las
-comunidades donde se presta el servicio de transporte, y sensibilizar
-el nivel óptimo de inversión requerido en cada uno de los Sectores
-establecidos. A efectos de orientar al concesionario en la adquisición
-de unidades, evitando compras de equipo que no satisfagan los
-requerimientos técnicos requeridos para el nuevo esquema de organización
-del Transporte Público Remunerado de Personas, las unidades que se
-pretendan adquirir deberán cumplir las especificaciones técnicas
-correspondientes que garanticen al usuario del servicio, la
-confortabilidad y seguridad deseada y al concesionario la funcionalidad
-operacional de su equipo, de acuerdo con los criterios de eficiencia
-energética del Ministerio del Ambiente y Energía (MINAE).
+Se pretende que las empresas procedan mediante programas de renovación de equipos a modernizar la tecnología existente en el Area Metropolitana de San José, como factor determinante para mejorar la calidad del servicio en cuanto a confortabilidad, seguridad, duración del viaje, contaminación sónica y ambiental, para lo cual deberán realizar inversiones en estos procesos, estableciendo un cronograma de las mismas. Este plan de renovación podrá ser realizado en forma gradual, pero no mayor de tres años, de acuerdo a compromiso de las empresas que constituirán cada Sociedad Operativa. Deberá venir acompañado de un estudio financiero que permita analizar en diferentes escenarios, el nivel tarifario requerido para la implementación del programa , a efecto de medir el impacto socio económico en las comunidades donde se presta el servicio de transporte, y sensibilizar el nivel óptimo de inversión requerido en cada uno de los Sectores establecidos. A efectos de orientar al concesionario en la adquisición de unidades, evitando compras de equipo que no satisfagan los requerimientos técnicos requeridos para el nuevo esquema de organización del Transporte Público Remunerado de Personas, las unidades que se pretendan adquirir deberán cumplir las especificaciones técnicas correspondientes que garanticen al usuario del servicio, la confortabilidad y seguridad deseada y al concesionario la funcionalidad operacional de su equipo, de acuerdo con los criterios de eficiencia energética del Ministerio del Ambiente y Energía (MINAE).
 B. ORGANIZACION COMO EMPRESA UNICA (35%)
-i. Descripción de la situación actual de la a como Empresa Unica,
-y descripción de su organización operativa-financiera-contable
-Presentación de estados financieros auditados al último período
-fiscal vigente. Organigramas descriptivos de la situación actual
-y propuesta en el evento de que la empresa participe en un nuevo
-período de concesión de servicios. Profesionales y/ o personal con
-amplia experiencia con que cuenta la empresa en las diferentes
-áreas así como personal y/o empresas asesoras externas. (5%)
-ii. Evaluación del cumplimiento de los términos del contrato de
-concesión vigente (5%)
-iii. Programa de mantenimiento preventivo y correctivo de la flota
-de autobuses con el suficiente detalle para control posterior de
-parte del MOPT, de acuerdo a las características de la flota
-automotor. Infraestructura de apoyo, tales como facilidades para
-el mantenimiento en general( taller mecánico, áreas de bodegas,
-equipo y herramientas). (10%)
-iv. Tecnologías con que se cuenta para la administración eficiente
-de la empresa. (5%)
-v. Facilidades para el personal de operación tales como
-dormitorios, baños, áreas de alimentación, seguridad ocupacional
-y capacitación, (5%)
-vi. Terminales adecuadas que faciliten la operación y contribuyan
-al mejoramiento del servicio del usuario. (5%)
-C. DEBERAN ADJUNTARSE COMO ANEXOS AL PLAN DE EVALUACION INDICADO, LAS
-SIGUIENTES CERTIFICACIONES Y/O CONSTANCIAS:
-i. Certificación con vista en el Registro Publico de los
-autobuses que se encuentran inscritos a nombre de la empresa y/o
-persona física que opera la ruta.
-ii. Certificación notarial con vista del libro de accionistas, de
-la distribución actual de las acciones de la empresa, detallando
-la cantidad y nombre de los accionistas.
-iii. Certificación por parte de la Dirección General de Transporte
-Público, de la concesión otorgada que incluya el Acuerdo de
-Comisión Técnica donde la empresa física o jurídica fue autorizada
-para la prestación del servicio, fecha de vencimiento de la
-concesión, rutas concesionadas, horarios establecidos, número de
-unidades autorizadas y número de unidades con que opera actualmente
-para la prestación del servicio o servicios indicados.
-iv. Copia del derecho de circulación , de la póliza de seguro para
-vehículos emitida por el Instituto Nacional de Seguros, de la
-revisión técnica de vehículos aprobada y del control de emisiones
-vigente (ecomarchamo).
-v. Copia de los acuerdos de los vehículos refaccionados, emitidos
-por la Comisión Técnica de Transportes del MOPT.
-vi. Constancia del Ministerio de Trabajo de no tener denuncias por
-infracción a las leyes laborales, emitida por el Ministerio de
-Trabajo, con fecha máxima de emisión de treinta días naturales
-anteriores del Plan de Mejoramiento.
-vii. Constancia de no tener denuncias por infracción a la
-legislación ambiental, emitida por la Contraloría del Ambiente del
-MINAE.
-viii. Constancia de que se encuentra al día en el pago de las
-cuotas obrero patronales de la CCSS, certificación que deberá tener
-como vigencia al menos treinta días antes de la fecha de
-presentación del Plan de Mejoramiento.
-ix. Certificación de la Dirección de Seguridad Vial de que los
-autobuses reportados por la empresa se encuentran libre de partes.
-x. Certificación de solvencia tributaria extendida por la
-Dirección General de Tributación Directa , en donde se certifique
-que la empresa se encuentra al día en el pago de sus obligaciones
-tributarias.
+i. Descripción de la situación actual de la a como Empresa Unica, y descripción de su organización operativa-financiera-contable Presentación de estados financieros auditados al último período fiscal vigente. Organigramas descriptivos de la situación actual y propuesta en el evento de que la empresa participe en un nuevo período de concesión de servicios. Profesionales y/ o personal con amplia experiencia con que cuenta la empresa en las diferentes áreas así como personal y/o empresas asesoras externas. (5%)
+ii. Evaluación del cumplimiento de los términos del contrato de concesión vigente (5%)
+iii. Programa de mantenimiento preventivo y correctivo de la flota de autobuses con el suficiente detalle para control posterior de parte del MOPT, de acuerdo a las características de la flota automotor. Infraestructura de apoyo, tales como facilidades para el mantenimiento en general( taller mecánico, áreas de bodegas, equipo y herramientas). (10%)
+iv. Tecnologías con que se cuenta para la administración eficiente de la empresa. (5%)
+v. Facilidades para el personal de operación tales como dormitorios, baños, áreas de alimentación, seguridad ocupacional y capacitación, (5%)
+vi. Terminales adecuadas que faciliten la operación y contribuyan al mejoramiento del servicio del usuario. (5%)
+C. DEBERAN ADJUNTARSE COMO ANEXOS AL PLAN DE EVALUACION INDICADO, LAS SIGUIENTES CERTIFICACIONES Y/O CONSTANCIAS:
+i. Certificación con vista en el Registro Publico de los autobuses que se encuentran inscritos a nombre de la empresa y/o persona física que opera la ruta.
+ii. Certificación notarial con vista del libro de accionistas, de la distribución actual de las acciones de la empresa, detallando la cantidad y nombre de los accionistas.
+iii. Certificación por parte de la Dirección General de Transporte Público, de la concesión otorgada que incluya el Acuerdo de Comisión Técnica donde la empresa física o jurídica fue autorizada para la prestación del servicio, fecha de vencimiento de la concesión, rutas concesionadas, horarios establecidos, número de unidades autorizadas y número de unidades con que opera actualmente para la prestación del servicio o servicios indicados.
+iv. Copia del derecho de circulación , de la póliza de seguro para vehículos emitida por el Instituto Nacional de Seguros, de la revisión técnica de vehículos aprobada y del control de emisiones vigente (ecomarchamo).
+v. Copia de los acuerdos de los vehículos refaccionados, emitidos por la Comisión Técnica de Transportes del MOPT.
+vi. Constancia del Ministerio de Trabajo de no tener denuncias por infracción a las leyes laborales, emitida por el Ministerio de Trabajo, con fecha máxima de emisión de treinta días naturales anteriores del Plan de Mejoramiento.
+vii. Constancia de no tener denuncias por infracción a la legislación ambiental, emitida por la Contraloría del Ambiente del MINAE.
+viii. Constancia de que se encuentra al día en el pago de las cuotas obrero patronales de la CCSS, certificación que deberá tener como vigencia al menos treinta días antes de la fecha de presentación del Plan de Mejoramiento.
+ix. Certificación de la Dirección de Seguridad Vial de que los autobuses reportados por la empresa se encuentran libre de partes.
+x. Certificación de solvencia tributaria extendida por la Dirección General de Tributación Directa , en donde se certifique que la empresa se encuentra al día en el pago de sus obligaciones tributarias.

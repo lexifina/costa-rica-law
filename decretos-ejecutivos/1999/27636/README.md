@@ -14,3 +14,4 @@ Reglamento de Políticas del Transporte Público Remunerado de Personas en Autob
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-19 | la propia norma |
+| 2 | 1999-02-19 | SINALEVI (sin norma nombrada) |

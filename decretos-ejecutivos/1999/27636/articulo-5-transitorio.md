@@ -1,8 +1,1 @@
-Transitorio V.-Si a la fecha de vencimiento de alguna concesión,
-los concesionarios actuales no están constituidos en Empresa Unica por
-Sector, se establecerá un plazo adicional de un año para que se puedan
-consolidar operativa y jurídicamente, en el entendido de que si a final
-de ese año adicional otorgado, no se conforma en Empresa Unica de hecho
-y de derecho, la prórroga de la concesión que se encontrara vigente será
-suspendida automáticamente sin responsabilidad para la Administración
-por el incumplimiento incurrido.
+Transitorio V.- Si a la fecha de vencimiento de alguna concesión, los concesionarios actuales no están constituidos en Empresa Unica por Sector, se establecerá un plazo adicional de un año para que se puedan consolidar operativa y jurídicamente, en el entendido de que si a final de ese año adicional otorgado, no se conforma en Empresa Unica de hecho y de derecho, la prórroga de la concesión que se encontrara vigente será suspendida automáticamente sin responsabilidad para la Administración por el incumplimiento incurrido.
