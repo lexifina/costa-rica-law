@@ -1,0 +1,2 @@
+TRANSITORIO UNICO.- La liquidación actuarial a que se refiere el artículo 1 de esta ley, deberá efectuarse dentro de los seis meses siguientes a su publicación. En ese acto, deberá entregarse al servidor el giro correspondiente a las sumas pagadas en exceso, conforme al cálculo actuarial que corresponda. Este cálculo deberá realizarse de conformidad con los parámetros del mercado.
+Dado en la Presidencia de la República.- San José, a los dos días del mes de mayo de mil novecientos noventa y seis.
