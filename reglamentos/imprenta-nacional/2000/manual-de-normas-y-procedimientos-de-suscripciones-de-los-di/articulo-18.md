@@ -1,0 +1,1 @@
+Artículo 18.—Para contar con un mayor control sobre las fechas en que vencen las suscripciones, la base de datos deberá suministrar un listado mensual de éstas. También debe ser capaz de elaborar listados mensuales de los nuevos suscriptores. De ser posible, se deberá confeccionar informes en los cuales se indique los períodos de suscripción de cada cliente.

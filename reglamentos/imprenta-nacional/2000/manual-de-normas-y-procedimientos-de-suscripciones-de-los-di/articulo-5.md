@@ -1,0 +1,1 @@
+Artículo 5.—Cuando un suscriptor reporte anomalías en la distribución del diario que le afecten, el Departamento de Mercadeo de la Imprenta Nacional tomara las medidas necesarias para solucionar el problema en el menor tiempo posible.

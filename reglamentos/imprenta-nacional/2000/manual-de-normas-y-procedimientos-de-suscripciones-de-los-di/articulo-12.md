@@ -1,0 +1,1 @@
+Artículo 12.—Cuando la suscripción se haga por medio de un ente auto-rizado por la Junta Administrativa de la Imprenta Nacional, mediante convenio se establecerán los mecanismos de comunicación y las responsabilidades de las partes.

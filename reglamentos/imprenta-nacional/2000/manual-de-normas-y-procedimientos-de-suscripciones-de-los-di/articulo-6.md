@@ -1,0 +1,1 @@
+Articulo 6.—El precio de las suscripciones y de cada ejemplar de los Diarios Oficiales, será fijado por la Junta Administrativa de la Imprenta Nacional. Estas tarifas, deberán ser publicadas en La Gaceta y en el Boletín Judicial (en sus versiones electrónicas inclusive) cada vez que se modifiquen.

@@ -1,0 +1,1 @@
+Artículo 11.—Las suscripciones a los diarios oficiales también pueden hacerse dentro o fuera del territorio nacional mediante representantes autorizados por la Junta Administrativa, utilizando para el pago un depósito o transferencia bancaria o bien, las tarjetas de crédito.

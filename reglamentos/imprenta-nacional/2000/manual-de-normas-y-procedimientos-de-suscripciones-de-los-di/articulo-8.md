@@ -1,0 +1,1 @@
+Artículo 8.—La Imprenta se compromete a entregar en buen estado a cada suscriptor los Diarios Oficiales, pero no se hará responsable de lo que le suceda una vez que sean entregados en el lugar indicado por el cliente.

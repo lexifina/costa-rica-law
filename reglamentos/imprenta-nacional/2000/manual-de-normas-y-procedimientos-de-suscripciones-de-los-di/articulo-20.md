@@ -1,0 +1,1 @@
+Artículo 20.—Es responsabilidad de la Imprenta de que en horas de la mañana los diarios sean entregados en todos los ministerios e instituciones públicas que estén ubicadas en el centro de San José. Solo cuando surjan atrasos de fuerza mayor estarán al alcance después del medio día.

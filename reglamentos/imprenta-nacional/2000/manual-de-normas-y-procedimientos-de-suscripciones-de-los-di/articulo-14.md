@@ -1,0 +1,1 @@
+Artículo 14.—La Unidad de Mercadeo será la responsable de corroborar que los depósitos bancarios o descargos de las tarjetas estén en las cuentas de la Imprenta antes de autorizar el envío de los diarios.

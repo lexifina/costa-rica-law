@@ -1,0 +1,1 @@
+Artículo 3.—El suscriptor recibirá los diarios el mismo día en que salen a circular y en horas de la mañana, excepto en las zonas rurales en donde llegará cuarenta y ocho horas después de su fecha de publicación. Cuando surjan atrasos de fuerza mayor entrará a regir la circulación electrónica sin perjuicio de la circulación tradicional tardía.

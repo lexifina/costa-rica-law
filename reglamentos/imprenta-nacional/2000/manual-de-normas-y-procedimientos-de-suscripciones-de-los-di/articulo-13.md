@@ -1,0 +1,1 @@
+Artículo 13.—Cuando el pago de las suscripciones se haga por medio de transferencias bancarias o con tarjetas de crédito, el cliente debe enviar todos sus datos a la Unidad de Mercadeo para registrarlos en la base de datos. Dicha información debe remitirse por medio del fax, correo convencional o por Internet.
