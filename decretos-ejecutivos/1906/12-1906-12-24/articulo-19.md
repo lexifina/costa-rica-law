@@ -1,0 +1,2 @@
+Artículo 19
+Los agregados, una vez nombrados, tendrán derecho á permanecer en sus puestos hasTa el fin del año lectivo, á menos que por malos comportamientos ú otra causa justificada hubiere necesidad de removerlos. Tendrán también derecho á continuar en su puesto si antes de la apertura del nuevo curso ó dentro de los quince días siguientes á ella, no hubiese solicitado ó aceptado la plaza un maestro de cateGoría.

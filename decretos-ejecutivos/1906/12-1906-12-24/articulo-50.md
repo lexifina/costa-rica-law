@@ -1,0 +1,3 @@
+Artículo 50
+La solicitud de licencia debe presentarse por escrito, y la comprobación de las causas que se invoquen se hará por medio de certificados médicos en el caso de enfermedad, y en los otros casos, por medio de los documentos que los Inspectores de Circuito consideren suficientes.
+Los maestros y demás empleados de una escuela presentarán la solicitud al Director, quien la elevará inmediatamente al Inspector con el informe del caso.

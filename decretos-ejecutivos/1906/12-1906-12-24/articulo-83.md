@@ -1,0 +1,2 @@
+Artículo 83
+Los maestros que carezcan de título profesional, deberán proveerse del certificado de aptitud á que se refiere el artículo 46 de la Ley de Educación Común, mediante examen que rendirán ante la Junta Calificadora del Personal Docente. Dicho certificado podrá ser elemental y superior: aquél habilita para la enseñanza de los cuatro primeros años de las escuelas primarias, y éste para la enseñanza del 5° grado y complementarios.

@@ -1,0 +1,2 @@
+Artículo 41
+Cuando por circunstancias momentáneas tuviere un maestro que ausentarse de su puesto, podrá el Director concederle licencia por el resto del día y dará aviso al Inspector para lo que él disponga. Sólo cuando este funcionario, por falta de medios rápidos de comunicación ó por encontrarse ausente del lugar, no pudiese ser consultado, podrá el Director extender la licencia hasta por cuatro días. En tal caso dará aviso al Presidente de la Junta de Educación.

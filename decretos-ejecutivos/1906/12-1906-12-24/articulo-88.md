@@ -1,0 +1,2 @@
+Artículo 88
+Los Inspectoras de escuelas practicarán la liquidación respectiva al formular la lista de servicio de los meses de marzo, junio, setiembre y diciembre, y consignarán en ellas la suma por que se deba expedir el giro de cada inspector, maestro ó agregado, hecha deducción de la parte que al fondo de pensiones corresponde. Al pie de cada lista harán constar el monto de la suma deducida, corno dato para la cuenta especial que llevará la Contabilidad Nacional.

@@ -1,0 +1,2 @@
+Artículo 85
+Las personas que á falta de título profesional posean el de bachiller ó su equivalente y que en el desempeño de cargos importantes, como el de Inspector de Escuelas ó de Director de escuela de I orden, se hayan recomendado por su devoción á la enseñanza y sus buenos servicios durante un período no menor de diez años, se tendrán por maestros titulares y gozarán de las prerrogativas de tales sin otra formalidad que la de obtener el certificado superior de aptitud, conforme lo dicho en el artículo 83.

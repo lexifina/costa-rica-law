@@ -1,0 +1,2 @@
+Artículo 53
+Cuando la falta fuere por enfermedad y no pasare de seis meses, se reconocerá al maestro la tercera parte de su sueldo. Si la enfermedad pasare del término dicho, se considerará vacante la plaza.
