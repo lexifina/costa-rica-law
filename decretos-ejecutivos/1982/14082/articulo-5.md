@@ -27,6 +27,8 @@ Compempases para uso escolar............................ (Así adicionada la mer
 |
 Cuajada, no envasada…………………………... | 024-01-00
 Cubaces, no envasados………………………… | 054-02-01
+Colas y pegamentos de toda clase, en envases de contenido neto menor de 250 cc, excepto los preparados a base de caucho (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14345 del 24 de febrero de 1983) | 599-04-04
+Colores para estudiantes, incluso en cajas con sus accesorios (témperas) (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14345 del 24 de febrero de 1983) | 533-03
 Chocolate en polvo o panecillos………………. | 073-01-02
 Escuadras para uso escolar.................................. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 861-09-03
 Fósforos y cerillos a granel o en empaques............ (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 899-02-00
@@ -71,6 +73,7 @@ Pastas alimenticias (macarrones, espagueti, tallarines, fideos y similares)…�
 Papel higénico, en hojas o en rollos....................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 642-09-06
 Pastas dentales................................................... | 552-01-06
 Pescado y sus partes, frescos, salado o desecado, comestible (no envasados)………... | 031
+Plastilina (plasticina) acondicionada para uso de niños (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14345 del 24 de febrero de 1983) | 899-15-09
 Queso blanco tipo duro, semiduro y cremoso, no envasado ………………………………………. | 024-01-00
 Reglas milimetradas............................................. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 861-09-03
 Sal común , mineral y yodada…………………… | 272-05-02
