@@ -1,0 +1,1 @@
+Art. 79. —Si no hubiere proposición para que se declare que no hay elección en el que reúne la mayoría absoluta, ó si dicha proposición fuere resuelta negativamente, se declarará por el Congreso, electo Presidente de la República al que haya obtenido dicha mayoría absoluta de votos.

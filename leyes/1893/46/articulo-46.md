@@ -1,0 +1,1 @@
+Art. 46. —El acta del escrutinio se extenderá por duplicado: un ejemplar será dirigido al Ministro de Gobernación y el otro será custodiado por el Presidente de la junta de provincia ó comarca, para los efectos á que hubiere lugar.

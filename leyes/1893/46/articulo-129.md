@@ -1,0 +1,1 @@
+Art. 129. —En las próximas elecciones se enviarán al Presidente de la Corta Suprema de Justicia los registros, actas y demás documentos que esta ley previene se remitan al Presidente ó Secretarios del Congreso, á fin de que aquél los custodie y pase al Congreso una vez instalado.

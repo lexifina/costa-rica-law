@@ -1,0 +1,1 @@
+Art. 4°. —La división territorial relativa á provincias, comarcas y cantones, que reconoce la ley para los efectos administrativos, regirá también en materia electoral. En cuanto á distritos se estará á la división que para este efecto haga el Poder Ejecutivo.

@@ -1,0 +1,2 @@
+Art. 74. —Cuando se abra y lea alguno de los registros de las Asambleas Electeroales con el objeto de verificar la elección de presidente de la República, cualquier miembro del Congreso puede pedir que se declare nula votación contenida en él, si juzga que se ha cometido alguna de las nulidades que se expresan en esta ley.
+El Presidente lo pondrá en consideración del Congreso y se decidirá por mayoría absoluta de votos de sus miembros presentes, Si la votación fuere declarada nula, no se contarán en el escrutinio los votos contenidos en el Registro.

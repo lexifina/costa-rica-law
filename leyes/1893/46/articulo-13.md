@@ -1,0 +1,1 @@
+Art. 13. —Las Juntas de provincia ó comarca desempeñarán sus finciones en las ciudades cabeceras de la provincia ó comarca á que corresponden; las de cantón, en la ciudad ó villa cabecera del cantón, y las de distrito, en el lugar que al efecto señalen las Juntas cantonales.

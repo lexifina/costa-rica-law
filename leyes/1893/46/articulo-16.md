@@ -1,0 +1,1 @@
+Art. 16. —Corresponde á las Juntas de distrito la formación de listas de sufragantes y resolver en primera instancia de todos los reclamos que se presenten, para que se incluya en las listas, ó se excluya de ellas, á alguna persona.

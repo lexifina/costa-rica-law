@@ -1,0 +1,1 @@
+Art. 119. —Los miembros de las Juntas de elecciones que no concurriesen á la instalación el día señalado, ó faltaren á las reuniones determinadas por esta ley, incurrirán en una multa de veinte á cincuenta pesos; pero si resultare que la corporación no pudo funcionar en aquel día por dicha falta, la multa será doble.

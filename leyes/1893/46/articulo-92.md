@@ -1,0 +1,1 @@
+Art°. 92. —Después de aprobado por el Congreso una elección y admitido el Diputado electo, no se podrá recibir reclamación alguna, ni volver á tratar sobre la validez de la misma elección, ni tampoco sobre la validez de la misma elección, ni tampoco sobre la aptitud legal del Diputado á no ser por causa de incapacidad posterior á su admisión.

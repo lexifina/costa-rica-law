@@ -1,0 +1,1 @@
+Art. 31. —Dichas votaciones se verificarán simultáneamente en toda la República durante tres días consecutivos, de siete á diez de la mañana y de once de la mañana á las cinco de la tarde. Ni antes después de esas horas podrán abrirse ni cerrarse las votaciones.

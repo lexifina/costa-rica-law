@@ -1,0 +1,1 @@
+Art. 65.—Cuando por haber dos ó más personas del mismo nombre y apellido en favor de quienes se haya votado, se dude fundamentalmente cuál de ellas sea la que exprese la papeleta, se prevendrá al elector en cuya papeleta ocurra la duda, que designe su candidato con un segundo nombre y apellido ó con otro dictado ó señal.

@@ -1,0 +1,1 @@
+Art°. 94. —El cargo de Diputado es voluntario, y se podrá renunciar antes y después de haber jurado; pero la renuncia no podrá ser admitida sin aprobación previa del acta de la elección por el Congreso.

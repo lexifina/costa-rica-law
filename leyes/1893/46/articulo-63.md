@@ -1,0 +1,1 @@
+Art. 63. —Ninguna papeleta contendrá más nombres que el número de candidatos que se trate de elegir. Si contuviere más, los excedentes, que son los últimos, se tendrán por no puestos. Si por el orden en que estuvieren puestos no pudiere determinarse cuáles son últimos, será nulo el voto en su totalidad.

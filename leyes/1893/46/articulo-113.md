@@ -1,0 +1,1 @@
+Art. 113. —Cuando la Junta ó Asamblea pidiere fuerza armada para apoyar sus resoluciones y mantener el orden, por el hecho de entrar en el recinto quedará exclusivamente sujeta al Presidente. El jefe de dicha fuerza o no puede obrar sino á virtud de órdenes impartidas por él.

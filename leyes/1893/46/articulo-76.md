@@ -1,0 +1,1 @@
+Art. 76. —Los Secretario del Congreso formarán el cómputo del número de electores que hayan concurrido á las Asambleas, cuyas votaciones no se han declarado nulas por el Congreso, y anunciarán á este cuál es el número de total, y cuál el que conforma su mayoría absoluta.

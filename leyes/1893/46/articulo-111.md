@@ -1,0 +1,1 @@
+Art. 111. —Toda autoridad política ó militar, está obligada á prestar auxilio á la Junta ó Asamblea Electoral y á cooperar en la ejecución de las resoluciones que hubiere dictado, una vez que fuere requerida por el Presidente.

@@ -1,0 +1,1 @@
+Art. 57. —El primer sistema se usará en la elección de Presidente de la República y en la de Diputados ó Munícipes, propietarios y suplentes, cuando el número de que éstos se trate de elegir no alcance á tres.

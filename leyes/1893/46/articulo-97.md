@@ -1,0 +1,1 @@
+Art. 97. —El Presidente de la Electoral notificará á los Regidores electos su nombramiento, para que á las doce de la mañana del día del 1°. de Enero presten ante el Gobernador ó Jefe político respectivos el juramento prevenido por la Constitución.

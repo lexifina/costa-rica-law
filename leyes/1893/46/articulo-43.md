@@ -1,0 +1,1 @@
+Art. 43. —La susodicha Junta, con el resultado del escrutinio declarará electores principales y suplentes á los que para unos y otros cargos hayan obtenido mayor número de votos; dentro de veinticuatro horas el Presidente de esa junta comunicará los nombramientos á los electos.

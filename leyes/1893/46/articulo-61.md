@@ -1,0 +1,1 @@
+Art. 61. —Recogidos todos los votos y decididas las reclamaciones que se hubieren presentado, el Presidente declarará cerrada la votación y se procederá al escrutinio, leyendo el mismo Presidente en alta voz las papeletas que extraerá de la urna una por una.
