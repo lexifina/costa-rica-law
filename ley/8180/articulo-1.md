@@ -2,3 +2,4 @@ ARTÍCULO 1: Apruébanse los siguientes Ingresos Ordinarios y Extraordinarios, t
 (Por lo extenso de su contenido, véase el Alcance No.89 a La Gaceta No.249 de 28 de diciembre del 2001, p.1)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30240 de 15 de marzo del 2002)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30545 del 24 de junio del 2002)
+(Así modificado por el artículo 1 y 2 del Decreto Ejecutivo N° 30552 del 25 de junio de 2002)
