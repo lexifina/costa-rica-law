@@ -1,0 +1,1 @@
+Artículo 128.- El Congreso al elegir los Magistrados de la Corte Suprema, nombrará además seis Conjueces que reúnan las calidades de los propietarios, excepto la de Abogado, quienes serán llamados a suplir las faltas de los Conjueces natos.

@@ -1,0 +1,1 @@
+Artículo 15.- Ninguna autoridad puede celebrar pactos, tratados ó convenios que se opongan a la Soberanía e independencia de la República. Cualesquiera que cometa ese atentado será calificado de traidor.

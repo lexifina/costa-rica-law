@@ -1,0 +1,1 @@
+Artículo 127.- Para llenar las faltas de los Magistrados de la Corte en cada una de las Salas y del Magistrado Fiscal, se sortearán en calidad de Conjueces natos entre los Abogados que reúnan las mismas calidades, que no sean empleados de los otros Supremos Poderes, ni subalternos de la misma Corte y que no residan a mas de cuatro leguas de la capital.

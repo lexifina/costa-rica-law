@@ -1,0 +1,1 @@
+Artículo 130.- Habrá en la capital de cada Provincia una Municipalidad, a quien corresponde la administración, cuidado y fomento en los intereses y establecimientos de la Provincia, la formación y custodia del registro cívico y del censo de población; y exclusivamente la administración e inversión de los fondos municipales, todo conforme a las leyes respectivas.

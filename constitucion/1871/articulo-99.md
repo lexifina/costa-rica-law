@@ -1,0 +1,1 @@
+Artículo 99.- Si el Presidente electo no pudiere prestar el juramento constitucional ante el Congreso el día prefijado en el artículo anterior, ó durante las sesiones ordinarias del mismo, lo hará ante el encargado del Poder Ejecutivo con la solemnidad correspondiente.
