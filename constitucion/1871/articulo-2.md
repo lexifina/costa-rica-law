@@ -1,1 +1,1 @@
-Artículo 2º.- La Soberanía reside exclusivamente en la Nación.
+ARTICULO 2º.- La soberanía reside exclusivamente en la Nación.

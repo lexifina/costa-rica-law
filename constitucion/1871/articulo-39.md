@@ -1,1 +1,4 @@
-Artículo 39.- En materia criminal nadie está obligado a declarar contra sí mismo, ni en calidad de testigo puede hacerlo contra su consorte, ascendiente, descendiente u otros parientes dentro del tercer grado de consanguinidad ó segundo de afinidad.
+ARTICULO 39.- En materia criminal nadie está obligado a declarar
+contra sí mismo, ni en calidad de testigo puede hacerlo contra su
+consorte, ascendiente, descendiente u otros parientes dentro del tercer
+grado de consanguinidad o segundo de afinidad.

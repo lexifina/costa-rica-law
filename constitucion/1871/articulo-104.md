@@ -1,1 +1,7 @@
-Artículo 104.- El Presidente de la República mientras dure en su destino, ó encargado del Poder Ejecutivo, no podrá ser perseguido ni juzgado por delitos comunes, sino después que a virtud de acusación interpuesta, haya declarado el Congreso haber lugar a formación de causa.
+ARTICULO 104.- La elección de Presidente de la República se hará el
+segundo domingo de febrero del año en que debe venir la renovación de este
+funcionario.
+El Presidente de la República no podrá ser reelecto para el período
+siguiente.
+El período presidencial es de cuatro años.
+(Así reformado por ley Nº 12 de 25 de mayo de 1926)

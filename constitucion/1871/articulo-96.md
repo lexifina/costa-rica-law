@@ -1,5 +1,5 @@
-Artículo 96.- Para ser Presidente de la República se requiere:
-1º.- Ser costarricense por nacimiento.
-2º.- Del estado seglar.
-3º.- Haber cumplido la edad de treinta años.
-4º.- Reunir las calidades que se exigen para ser elector.
+ARTICULO 96.- Ningún proyecto de ley aunque esté aprobado por el
+Congreso, tendrá fuerza de ley sin la sanción del Poder Ejecutivo.
+Si este tuviere a bien dársela, lo hará mandándolo ejecutar y
+publicar; pero si se la recusare, lo objetará y devolverá al Congreso con
+las objeciones que le haga.

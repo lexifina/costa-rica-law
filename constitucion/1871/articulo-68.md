@@ -1,2 +1,3 @@
-Artículo 68.- Los miembros del Congreso son absolutamente irresponsables por las opiniones y votos que emitan en él, y gozan de inmunidad en sus personas desde que han sido declarados electos hasta diez días después de terminadas las sesiones. La ley determinará el modo de proceder contra ellos durante este tiempo.
-Párrafo único.- Esta inmunidad consiste en no poder ser demandados civilmente ni detenidos ó presos por motivo criminal sin que previamente hayan sido suspensos por el Congreso Constitucional; excepto el caso de infraganti delito.
+ARTICULO 68.- Todo costarricense o extranjero es libre para dar o
+recibir la instrucción que a bien tenga en los establecimientos que no
+sean costeados con fondos públicos.

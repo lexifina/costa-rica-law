@@ -1,5 +1,2 @@
-TITULO IX
-DEL PODER EJECUTIVO
-SECCION PRIMERA
-Del Presidente de la República
-Artículo 95.- Habrá en Costa-Rica un Presidente, que con el carácter de Jefe de la nación, ejercerá el Poder Ejecutivo.
+ARTICULO 95.- Ningún proyecto de ley se aprobará en el Congreso, sin
+haber sufrido previamente tres debates, y cada uno en distinto día.

@@ -1,2 +1,3 @@
-Artículo 122.- Ambas Salas y los Magistrados de 3ª Instancia, conocerán en Corte plena de todos los asuntos que la ley señale.
--El Magistrado Fiscal tendrá asiento en las sesiones de esta y voto conforme a la ley.
+ARTICULO 122.- Ningún poder o autoridad puede abocar, si no es ad
+efféctum videndi, y en los casos de la ley, causas pendientes ante otro
+poder o autoridad ni abrir procesos fenecidos.

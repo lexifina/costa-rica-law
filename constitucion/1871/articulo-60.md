@@ -1,1 +1,3 @@
-Artículo 60.- No pueden ser electores el Presidente de la República, el Obispo, los Secretarios de Estado, los Magistrados de la Corte de Justicia y los Gobernadores.
+ARTICULO 60.- Todo patrono debe adoptar en sus empresas las
+condiciones necesarias para la higiene y seguridad del trabajo.
+(Así reformado por ley Nº 24 de 2 de julio de 1943)

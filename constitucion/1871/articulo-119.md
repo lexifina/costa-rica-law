@@ -1,1 +1,5 @@
-Artículo 119.- La ley demarcará la jurisdicción, el número y la duración de los Tribunales y Juzgados establecidos ó que deban establecerse en la República, sus atribuciones, los principios a que deben arreglar sus actos y la manera de exigirles la responsabilidad.
+SECCION QUINTA
+Del Consejo de Gobierno
+ARTICULO 119.- El Presidente de la República tendrá un Consejo de
+Gobierno compuesto de los Secretarios de Estado para discutir y deliberar
+sobre los negocios que el mismo Presidente someta.

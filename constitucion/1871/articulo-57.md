@@ -1,1 +1,4 @@
-Artículo 57.- El objeto de estas es el nombramiento de electores que correspondan al distrito a razón de tres propietarios y un suplente por cada mil individuos de población; mas el distrito que no los tenga, nombrará sin embargo los cuatro electores dichos.
+ARTICULO 57.- Tendrán fuerza de ley las convenciones y contratos
+colectivos de trabajo que, con arreglo a la ley, se concierten entre
+patronos y sindicatos de trabajadores legalmente organizados.
+(Así reformado por ley Nº 24 de 2 de julio de 1943)

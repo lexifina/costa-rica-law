@@ -1,1 +1,4 @@
-Artículo 90.- Para que se considere objetado por el Poder Ejecutivo un proyecto de ley, es indispensable que sea devuelto a la Secretaría del Congreso, dentro del preciso término de diez días hábiles. Si así no se verificare, se tendrá por ley de la República.
+ARTICULO 90.- El Congreso se dará el reglamento necesario para el
+orden y dirección de su trabajo, y para lo relativo a su policía interior.
+Conforme a dicho reglamento, puede corregir a sus miembros con las penas
+correccionales que en él se establezcan, cuando éstos lo quebranten.

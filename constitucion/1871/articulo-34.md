@@ -1,1 +1,3 @@
-Artículo 34.- Ninguna persona ó reunión de personas pueden tomar el título ó representación del pueblo, abrogarse sus derechos, ni hacer peticiones a su nombre. La infracción de este artículo es sedición.
+ARTICULO 34.- Ninguna persona o reunión de personas, puede tomar el
+título o representación del pueblo, abrogarse sus derechos, ni hacer
+peticiones a su nombre. La infracción de este artículo es sedición.

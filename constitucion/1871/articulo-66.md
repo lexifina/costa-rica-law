@@ -1,1 +1,7 @@
-Artículo 66.- El Congreso Constitucional se forma de Diputados elegidos por las asambleas electorales, en la proporción que se establece en la fracción 2ª, artículo 62 de esta Constitución.
+TITULO IV
+DE LA RELIGION
+ARTICULO 66.- La Religión Católica, Apostólica Romana, es la del
+Estado, el cual contribuye a su mantenimiento, sin impedir el libre
+ejercicio en la República, de ningún otro culto que no se oponga a la
+moral universal ni a las buenas costumbres.
+(Así reformado por decreto ejecutivo Nº 4 de 26 de abril de 1882)

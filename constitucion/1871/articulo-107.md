@@ -1,5 +1,5 @@
-Artículo 107.- Para ser Secretario de Estado se requiere:
-1ª.- Ser Costarricense por nacimiento, ó naturalizado pero en este último caso deberá tener, por lo menos diez años de residencia en el país, ó ser casado ó viudo con descendencia legítima.
-2ª.- Ciudadano en ejercicio.
-3ª.- Del estado seglar.
-4ª.- Ser mayor de veinticinco años, de notoria instrucción y reunir las demás calidades que se exigen para ser elector.
+ARTICULO 107.- Cuando por muerte, renuncia u otra causa, vacare la
+Presidencia de la República, los Designados, por orden de su nominación,
+entrarán a ejercerla por todo el tiempo que falte para concluirse el
+período presidencial.
+(Así reformado por decreto ejecutivo Nº 4 de 26 de abril de 1882)

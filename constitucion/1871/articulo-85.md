@@ -1,3 +1,3 @@
-SECCION CUARTA
-De la formación de las leyes
-Artículo 85.- Las leyes y demás actos legislativos pueden tener origen en el Congreso a propuesta de cualquiera de sus miembros, en el Poder Ejecutivo por medio de los Secretarios de Estado.
+ARTICULO 85.- El Congreso no podrá abrir sus sesiones, ni ejercer las
+funciones que le competen sin la concurrencia de dos tercios de sus
+miembros.

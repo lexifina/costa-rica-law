@@ -1,3 +1,8 @@
-TITULO XII
-DE LA OBSERVANCIA DE LA CONSTITUCION, JURAMENTO Y REFORMAS
-Artículo 132.- El Congreso en sus primeras sesiones ordinarias, observará, si la Constitución ha sido infringida, y si se ha hecho efectiva la responsabilidad de los infractores, para proveer en consecuencia lo conveniente.
+ARTICULO 132.- Las faltas temporales de los Magistrados, cualesquiera
+que sean sus causas o duración, serán llenadas por medio de sorteo entre
+los Magistrados suplentes. Las definitivas lo serán por elección del
+Congreso, al cual se dará cuenta inmediatamente; si estuviere reunido en
+sesiones ordinarias o extraordinarias, procederá sin más trámites a la
+reposición; si no estuviere reunido, la reposición se hará al comenzar las
+próximas sesiones ordinarias o extraordinarias.
+(Así reformado por ley Nº 136 de 20 de agosto de 1935)

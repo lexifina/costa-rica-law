@@ -1,1 +1,4 @@
-Artículo 33.- Todos los habitantes de la República tienen el derecho de reunirse pacíficamente y sin armas, ya sea con el objeto de ocuparse de negocios privados, ó ya con el de discutir asuntos políticos y examinar la conducta pública de los funcionarios.
+ARTICULO 33.- Todos los habitantes de la República tienen derecho de
+reunirse pacíficamente y sin armas, ya sea con el objeto de ocuparse de
+negocios privados, o ya con el de discutir asuntos políticos y examinar la
+conducta pública de los funcionarios.

@@ -1,1 +1,4 @@
-Artículo 79.- El Congreso residirá en la capital de la República, y tanto para trasladar su residencia a otro lugar, como para suspender sus sesiones por tiempo determinado, se necesitan dos tercios de votos.
+ARTICULO 79.- También se reunirá extraordinariamente, cuando al
+efecto sea convocado por el Poder Ejecutivo. En el decreto de convocatoria
+se determinarán los asuntos de que exclusivamente debe ocuparse el
+Congreso.

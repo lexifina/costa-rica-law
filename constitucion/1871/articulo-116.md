@@ -1,1 +1,7 @@
-Artículo 116.- A los funcionarios que administren, justicia, no podrá suspendérseles de sus destinos, sin que proceda declaratoria de haber lugar a formación de causa; ni deponérseles, sino en virtud de sentencia ejecutoriada.
+ARTICULO 116.- Son nulos y de ningún valor los acuerdos,
+resoluciones, órdenes y cualesquiera otras disposiciones que comuniquen
+los Secretarios de Estado sin haber sido antes rubricadas por el
+Presidente de la República en el libro correspondiente; y aquellos
+funcionarios serán responsables de sus resultados, incurriendo además en
+el delito de suplantación, por el cual quedan sujetos a las penas que
+establezcan las leyes.

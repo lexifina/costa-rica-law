@@ -1,1 +1,4 @@
-Artículo 136.- Quedan derogadas por la presente todas las Constituciones anteriores, y ninguna otra regirá desde el día de la publicación de esta.
+ARTICULO 136.- Habrá en cada Provincia un Gobernador agente del Poder
+Ejecutivo, y de nombramiento de éste, con las calidades y atribuciones que
+la ley señale.
+(NOTA: El artículo 136 original de esta Constitución derogaba todas las Constituciones anteriores, dicha derogación se encuentra actualmente consignada en el artículo 141).

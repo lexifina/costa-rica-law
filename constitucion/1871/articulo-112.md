@@ -1,3 +1,4 @@
-SECCION QUINTA
-Del Consejo de Gobierno
-Artículo 112.- El Presidente de la República tendrá un Consejo de Gobierno compuesto de los Secretarios de Estado, para discutir y deliberar sobre los negocios que el mismo Presidente someta.
+SECCION CUARTA
+De los Secretarios de Estado
+ARTICULO 112.- Para el despacho de los negocios que corresponden al
+Poder Ejecutivo, habrá las Secretarías de Estado que determine la ley.

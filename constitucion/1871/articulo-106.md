@@ -1,1 +1,4 @@
-Artículo 106.- Cada una de estas Secretarías, estará a cargo de un Secretario de Estado; mas el Poder Ejecutivo podrá encargar dos ó mas de ellas a un solo Secretario.
+ARTICULO 106.- Si el Presidente electo no pudiera prestar el
+juramento constitucional ante el Congreso el día prefijado en el artículo
+anterior, o durante las sesiones ordinarias del mismo, lo hará ante el
+encargado del Poder Ejecutivo con la solemnidad correspondiente.

@@ -1,1 +1,8 @@
-Artículo 29.- La propiedad es inviolable: a ninguno puede privarse de la suya, si no es por interés público legalmente comprobado, y previa indemnización a justa tasación de peritos nombrados por las partes, quienes no solo deben estimar el valor de la cosa que se tome, sino también el de los daños consiguientes que se acrediten. En caso de guerra ó conmoción interior no es indispensable que la indemnización sea previa
+ARTICULO 29.- La propiedad es inviolable: a ninguno puede privarse de
+la suya si no es por interés público legalmente comprobado, y previa
+indemnización conforme a la ley. En caso de guerra o conmoción interior,
+no es indispensable que la indemnización sea previa.
+Por motivos de necesidad pública podrá el Congreso, mediante el voto
+de los dos tercios de la totalidad de sus miembros, imponerle a la
+propiedad limitaciones de interés social.
+(Así reformado por ley º 24 de 2 de julio de 1943)
