@@ -1,0 +1,1 @@
+Artículo 8°. -La Comarca de Puntarenas se compone de la ciudad de este nombre, su capital, de la de Esparza y de la población de Golfo Dulce y pueblos de Térraba y Boruca. Forma todo un Cantón, cuya cabecera es Puntarenas, y se subdivide en seis Distritos, correspondiéndole dos la capital, uno Esparza y otro cada una de las poblaciones dichas.

@@ -1,0 +1,1 @@
+Artículo 25.-Despues de firmada la lista por la Junta, no pueden hacerse nuevas inscripciones, ni borrar los inscritos, sino virtud de una reclamación intentada y decidida en los términos que se expresa en los dos artículos siguientes.

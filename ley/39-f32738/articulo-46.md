@@ -1,0 +1,1 @@
+Artículo 46.-Si por algún evento se perdiere alguno de los pliegos de que habla el artículo 43, se remitir nuevamente otro certificado de la copia que debe quedar en poder del Presidente de la Junta Electoral respectiva.

@@ -1,0 +1,1 @@
+ARTÍCULO 5°. -La Provincia de Heredia se compone de la ciudad de este nombre, su capital, y de la villa de Barba. Se divide en dos Cantones, el uno compuesto de aquella ciudad y sus barrios, y el otro de la villa referida que es su cabecera, correspondiéndole al primero siete Distritos y al segundo tres.

@@ -1,0 +1,1 @@
+Artículo 67.-La elección de Presidente de la República, Senadores y Representantes, se hará por medio de una papeleta en que esta‚ escrito el nombre y apellido de la persona por quien se sufraga; debiendo en la elección de Senadores y Representantes, especificarse cuales son principales y cuales suplentes.

@@ -1,0 +1,1 @@
+Artículo 43.-Concluidas las elecciones parroquiales, se remitir n los pliegos cerrados y sellados al Presidente Municipal, quien en unión de dos vecinos que elija la Municipalidad, formar una Junta cuyas atribuciones ser n: computar los sufragios y proceder declarar quienes han sido nombrados constitucionalmente para electores.

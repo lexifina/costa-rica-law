@@ -1,0 +1,1 @@
+Artículo 64.-Cuando la Asamblea haga alguna elección y falte alguno algunos de los individuos del Directorio, el Presidente hará interinamente la reposición para que se verifique el escrutinio, y sea autorizada el acta de la elección, que deber extenderse precisamente en papel del sello 4° clase.

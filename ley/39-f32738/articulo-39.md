@@ -1,0 +1,1 @@
+Artículo 39.-Cada sufragantes que se presente dar su voto, lo emitir ante la Junta, enunciando el nombre y apellido de los individuos por quienes vota, y en su presencia se sentar dicho voto en un registro hecho en papel del sello 4° clase, que se llevar por duplicado conforme al modelo que bajo el número 1° se acompaña esta ley.

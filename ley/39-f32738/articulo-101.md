@@ -1,0 +1,1 @@
+Artículo 101.-Las electorales actuales de las Provincias ser n las que en las inmediatas elecciones elijan los individuos de que deben componerse sus respectivas Municipalidades, Alcaldes constitucionales y Jurados de Imprenta con absoluto arreglo los artículos 53, 54, 55, 56, 57 y 71 de esta ley.
