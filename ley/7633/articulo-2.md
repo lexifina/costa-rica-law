@@ -1,0 +1,36 @@
+ARTICULO 2.- Categorías de negocios
+Con el propósito de fijar los horarios para la venta y el expendio de
+bebidas alcohólicas al mayoreo y al detalle, se establecen las siguientes
+categorías de negocios:
+Categoría A: Cantinas, bares y tabernas sin actividad de baile, que
+expendan, al detalle, bebidas alcohólicas para ser ingeridas dentro del
+establecimiento; también las licorerías que expendan bebidas para consumo
+fuera de él. Solo podrán venderlas entre las 11:00 horas y la medianoche.
+Categoría B: Salones de baile, discotecas, clubes nocturnos y cabarés
+con actividad de baile, que expendan, al detalle, bebidas alcohólicas para
+consumirlas dentro del establecimiento. Solo podrán vender estas bebidas
+entre las 16:00 y las 2:30 horas.
+Categoría C: Restaurantes, hoteles y pensiones que expendan bebidas
+alcohólicas para consumo dentro del establecimiento. Solo podrán vender
+estas bebidas entre las 10:00 y las 2:30 horas.
+Categoría D: Supermercados que expendan, al detalle, bebidas
+alcohólicas para consumo fuera del establecimiento. Solo podrán venderlas
+entre las 8:00 horas y la medianoche. Se entiende por supermercados los
+expendios comerciales de mercaderías diversas, en los que la venta de
+licor no es la actividad principal.
+Categoría E: Casas importadoras, fabricantes, distribuidores y
+almacenes que vendan, al por mayor y al detalle, bebidas alcohólicas en
+envases herméticamente cerrados para ingerirlas fuera del establecimiento.
+A esta categoría no se le aplicará restricción alguna en el horario para
+vender bebidas alcohólicas.
+Categoría F: Establecimientos de las categorías A, B y C, declarados
+de interés turístico en los que se expendan, al detalle, bebidas
+alcohólicas para ser consumidas allí mismo, que reúnan los requisitos
+indicados por el Instituto Costarricense de Turismo. Las licencias para
+esta categoría serán adjudicadas por la respectiva municipalidad, previa
+aprobación de este Instituto. A esta categoría no se aplica restricción
+alguna en el horario para vender bebidas alcohólicas. En ningún caso podrá
+otorgarse esta licencia a hoteles sin registro de huéspedes.
+Los negocios que expendan bebidas alcohólicas estarán obligados a
+colocar, en lugares visibles, rótulos con el horario y las condiciones
+permitidas para venderlas.
