@@ -1,1 +1,3 @@
-Artículo 124.- No podrá recaer el nombramiento de Magistrados en personas que estén ligadas con parentesco de consanguinidad ó afinidad hasta el segundo grado inclusive.
+ARTICULO 124.- Todos los Tribunales y Juzgados, en el ramo de
+justicia, que la ley establezca, bajo cualquiera denominación, dependen de
+la Corte Suprema.

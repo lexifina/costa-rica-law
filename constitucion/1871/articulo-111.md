@@ -1,1 +1,4 @@
-Artículo 111.- Los Secretarios de Estado pueden concurrir a los debates del Congreso y tomar parte en ellos sin voto.
+ARTICULO 111.- El Presidente de la República, mientras dure en su
+destino, o encargado del Poder Ejecutivo, no podrá ser perseguido ni
+juzgado por delitos comunes, sino después que, a virtud de acusación
+interpuesta, haya declarado el Congreso haber lugar a formación de causa.

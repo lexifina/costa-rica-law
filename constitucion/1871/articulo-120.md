@@ -1,3 +1,4 @@
-SECCION SEGUNDA
-De la organización de la Corte Suprema de Justicia
-Artículo 120.- La Corte Suprema de Justicia se compondrá de un Presidente, siete Magistrados y un Fiscal; y para los asuntos que no incumban a la Corte plena, se dividirán en dos salas bajo de las denominaciones de 1ª y 2ª, el Presidente de la Corte Suprema de Justicia, presidirá aquella, y ésta el Magistrado que el Congreso designe.
+ARTICULO 120.- Cuando la gravedad de algún asunto lo exigiere podrá
+aumentarse el Consejo de Gobierno con los demás individuos que el
+Presidente de la República tenga a bien invitar.
+(Así reformado por ley Nº 12 de 6 de junio de 1910)

@@ -1,3 +1,5 @@
-TITULO V
-DE LA ENSEÑANZA
-Artículo 52.- La enseñanza primaria de ambos sexos es obligatoria, gratuita y costeada por la nación. La dirección inmediata de ella corresponde a las Municipalidades, al Poder Ejecutivo la suprema inspección.
+ARTICULO 52.- El trabajo es un deber social y gozará de la especial
+protección de las leyes, con el objeto de que su cumplimiento dé al
+individuo derecho a una existencia digna y acorde con sus esfuerzos y
+aptitudes.
+(Así reformado por ley Nº 24 de 2 de julio de 1943)

@@ -1,1 +1,3 @@
-Artículo 78.- El Presidente del Congreso prestará ante éste el juramento de ley y los Diputados en manos del Presidente.
+ARTICULO 78.- El Congreso se reunirá cada año el día 1º de mayo, aun
+cuando no haya sido convocado, y sus sesiones ordinarias durarán sesenta
+días prorrogables hasta noventa en caso necesario.

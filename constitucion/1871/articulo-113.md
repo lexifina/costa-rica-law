@@ -1,1 +1,3 @@
-Artículo 113.- Cuando la gravedad de algún asunto lo exigiere, podrá aumentarse el Consejo del Gobierno con los miembros de la Comisión Permanente, y con los demás individuos que el Presidente de la República tenga a bien invitar.
+ARTICULO 113.- Cada una de estas Secretarías, estará a cargo de un
+Secretario de Estado; mas el Poder Ejecutivo podrá encargar dos o mas de
+ellas a un solo Secretario.

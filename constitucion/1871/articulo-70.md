@@ -1,1 +1,3 @@
-Artículo 70.- También se reunirá extraordinariamente, cuando al efecto sea convocado por el Poder Ejecutivo. En el Decreto de convocatoria se determinarán los asuntos de que exclusivamente debe ocuparse el Congreso.
+ARTICULO 70.- Es un deber de los ciudadanos concurrir con su voto a
+las juntas populares en que se ejercita el sufragio.
+(Así reformado por ley Nº 13 de 19 de junio de 1936)
