@@ -15,3 +15,4 @@ Reglamento General de Visas
 | --- | --- | --- |
 | 1 | 1981-09-11 | la propia norma |
 | 2 | 1981-09-11 | SINALEVI (sin norma nombrada) |
+| 3 | 1989-05-11 | SINALEVI (sin norma nombrada) |
