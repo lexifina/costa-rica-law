@@ -1,0 +1,1 @@
+ARTICULO 13.- El quórum del CONARE Ampliado lo formarán la mitad más uno de sus miembros; de los cuales deberá haber por lo menos un representante de cada Institución y tres por lo menos deberán ser miembros del CONARE.

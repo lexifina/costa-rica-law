@@ -1,0 +1,2 @@
+ARTICULO 15.- En caso de que el asunto sea de urgencia o gravedad, el CONARE Ampliado por mayoría calificada de dos tercios, podrá convocarse en esa misma sesión para el único objetivo de aprobar el acta correspondiente de la sesión efectuada. La sesión deberá realizarse transcurridos al menos tres días hábiles después de la convocatoria.
+En todos los demás casos, los acuerdos del CONARE Ampliado quedarán firmes diez días hábiles después de la sesión.

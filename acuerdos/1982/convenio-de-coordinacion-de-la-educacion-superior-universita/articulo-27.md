@@ -1,0 +1,1 @@
+ARTICULO 27.- Las Instituciones signatarias se comprometen a mantener la unidad de crédito definida y utilizada de una misma manera, como medida de la actividad del estudiante. (Ver "Convenio para unificar la definición de "crédito" en la Educación Superior de Costa Rica")

@@ -1,0 +1,1 @@
+ARTICULO 26.- El reconocimiento de estudios referido a este capítulo mantendrá su validez independientemente de que, para un determinado nivel y en un determinado año, el estudiante no haya podido continuar estudios en la Institución que los reconoce, por limitaciones de cupo.

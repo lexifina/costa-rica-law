@@ -1,0 +1,1 @@
+ARTICULO 22.- Los contenidos de los programas y de los planes de estudio para dar sustento a las carreras de una Institución signataria, serán del resorte exclusivo de la propia Institución y se aprobarán conforme a sus normas internas al respecto.

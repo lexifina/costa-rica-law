@@ -1,0 +1,1 @@
+ARTICULO 7.- Las votaciones se decidirán por simple mayoría de votos presentes. En las sesiones del CONARE solo se podrán tomar acuerdos firmes si la votación fuere unánime. En caso de empate prevalecerá lo vigente.

@@ -1,0 +1,1 @@
+ARTICULO 33.- Las Instituciones signatarias se comprometen a mantener por medio de OPES, un estudio de costos de carreras, de egresados y de operación de sus unidades académicas que permita sustentar la planificación y la evaluación de los recursos asignados a ellas.

@@ -1,0 +1,3 @@
+ARTICULO 20.- Los organismos interesados en los proyectos a que hace referencia el artículo anterior, integrarán una comisión que servirá de enlace con el CONARE y con OPES, para la evacuación de las consultas que sean procedentes.
+OPES hará el análisis de factibilidad de cada proposición, opinará sobre su importancia para el desarrollo del país y recomendará la Institución o Instituciones signatarias que deban asumir responsabilidad en relación con los proyectos presentados.
+Finalmente, el CONARE aprobará o improbará los proyectos y para ello tomará en consideración las opiniones que hubieren vertido las Instituciones signatarias y el informe de OPES.

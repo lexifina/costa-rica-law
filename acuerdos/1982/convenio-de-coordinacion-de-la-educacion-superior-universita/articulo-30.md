@@ -1,0 +1,1 @@
+ARTICULO 30.- El reconocimiento de títulos expedidos en el extranjero lo hará la Institución o Instituciones de Educación Superior Universitaria Estatal signatarias de este Convenio que ofrezcan los programas respectivos y afines.

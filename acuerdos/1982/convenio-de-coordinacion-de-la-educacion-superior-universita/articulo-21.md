@@ -1,0 +1,1 @@
+ARTICULO 21.- No obstante lo dispuesto en los artículos anteriores, cada una de las Instituciones signatarias, voluntariamente, podrá eliminar la carrera o carreras que crea convenientes y ponerse de acuerdo, con otra u otras de ellas, para fusionar o trasladar carreras, sin necesidad de gestión alguna al efecto, excepto informar de tal hecho ante el CONARE.

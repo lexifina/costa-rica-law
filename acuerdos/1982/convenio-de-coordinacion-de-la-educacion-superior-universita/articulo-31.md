@@ -1,0 +1,1 @@
+ARTICULO 31.- Las Instituciones signatarias se comprometen a mantener un solo sistema de estudios de posgrado de la Educación Superior Universitaria Estatal. Para hacer efectiva esta disposición se emitirán los reglamentos y se suscribirán los convenios que sean necesarios.

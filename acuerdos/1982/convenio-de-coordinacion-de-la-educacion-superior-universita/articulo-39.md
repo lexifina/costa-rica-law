@@ -1,0 +1,1 @@
+ARTICULO 39.- Se coordinarán las actividades de extensión o acción social desarrolladas por las Instituciones signatarias; para lo cual las autoridades correspondientes integrarán un órgano coordinador.

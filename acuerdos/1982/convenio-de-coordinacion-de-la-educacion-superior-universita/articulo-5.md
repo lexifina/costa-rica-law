@@ -1,0 +1,1 @@
+ARTICULO 5.- La Presidencia del CONARE corresponderá en forma rotativa a los Rectores de las Instituciones signatarias, por período de un año, a partir de cada 4 de diciembre, siguiendo el orden de acuerdo con la antigüedad de su fundación.

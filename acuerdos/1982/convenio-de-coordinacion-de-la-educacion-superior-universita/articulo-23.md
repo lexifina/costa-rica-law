@@ -1,0 +1,1 @@
+ARTICULO 23.- Las instituciones signatarias se comprometen a reconocer los cursos aprobados en cualquiera de ellas como equivalentes a los propios de contenido semejante, sin tomar en cuenta diferencias menores entre los respectivos programas.

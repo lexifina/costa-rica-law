@@ -1,0 +1,1 @@
+ARTICULO 36.- El financiamiento de la administración y de los programas de construcción y de adquisición de equipo, dependerá de la aprobación de los programas sustantivos correspondientes, consignados en el PLANES.

@@ -1,0 +1,1 @@
+ARTICULO 35.- Los fondos destinados a cubrir el funcionamiento de los programas de investigación y de extensión o acción social, vigentes, o en proyecto, se asignarán en función de su valor científico, y su utilidad social, nacional o regional.

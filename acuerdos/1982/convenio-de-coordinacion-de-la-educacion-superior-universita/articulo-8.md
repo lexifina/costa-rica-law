@@ -1,0 +1,1 @@
+ARTICULO 8.- Contra los acuerdos tomados cabrá, por una sola vez, recurso de revisión que se deberá interponer por escrito y antes de la aprobación del acta correspondiente. El recurso podrá ser acogido por simple mayoría de votos presentes.

@@ -1,0 +1,2 @@
+ARTICULO 34.- Los fondos destinados a cubrir el funcionamiento de los programas docentes se asignarán en función de la población estudiantil, del costo total de su atención, y del valor científico, económico y social de esos programas.
+El CONARE estará facultado para hacer ajustes moderados en el caso de costos de operación inconvenientemente bajos o inconvenientemente altos, a efecto de que no quede premiada ni la mediocridad ni la ineficiencia.
