@@ -1,0 +1,2 @@
+Artículo 6
+Examen Al final del segundo año de la fecha de entrada en vigor del Acuerdo sobre la OMC, y posteriormente con periodicidad trienal, la Conferencia Ministerial examinará las disposiciones, la aplicación y el funcionamiento del presente Acuerdo, habida cuenta de sus objetivos y de la experiencia adquirida en su funcionamiento. Como consecuencia de tal examen, la Conferencia Ministerial podrá modificar las disposiciones del Acuerdo.
