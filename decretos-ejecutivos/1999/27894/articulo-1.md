@@ -17,3 +17,5 @@ REGLAMENTO DE LA LEY GENERAL SOBRE VIH-SIDA
 CAPÍTULO I
 Consejo Nacional de Atención Integral al VIH-SIDA
 Artículo 1°—Créase el Consejo Nacional de Atención Integral al VIH-SIDA, adscrito al Ministerio de Salud, como máxima instancia en el nivel nacional encargada de recomendar las políticas y los programas de acción de todo el sector público, relacionados con los asuntos concernientes al Virus de Inmunodeficiencia Humana y al Síndrome de Inmunodefíciencia Adquirida.
+Créase una secretaria técnica para apoyo del Consejo Nacional de Atención Integral al VIH-SIDA, cuyas funciones esenciales serán operativizar las decisiones del Consejo, definir estrategias de comunicación y concertación entre los distintos actores involucrados, así como darle seguimiento a los planes y proyectos del VIH-SIDA.
+(Así ampliado por Decreto Ejecutivo No. 31377 de 17 de enero de 2003).
