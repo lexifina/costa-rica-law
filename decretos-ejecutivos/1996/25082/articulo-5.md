@@ -1,0 +1,1 @@
+Artículo 5º.El Contralor de Servicios de Ministerio del Ambiente y Energía, creada según Decreto Ejecutivo Nº 22511-MIDEPLAN, publicado en "La Gaceta" Nº 184 del 27 de setiembre de 1993, dependerá de la oficina del Contralor Ambiental.

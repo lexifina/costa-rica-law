@@ -1,0 +1,2 @@
+Artículo 3º.El Contralor del Ambiente para el fiel cumplimiento de sus funciones podrá constituir un equipo que estará integrado por un grupo de profesionales, subordinados directos al Contralor del Ambiente, llamados sub-contralores, especialistas en las siguientes áreas como mínimo: Forestal, de Aguas, del Aire, de Suelos, de Desechos, de Calidad Ambiental y vida silvestre.
+Estos funcionarios serán de nombramiento del Ministro del Ambiente y Energía de ternas presentadas por el Contralor del Ambiente, se fijarán las funciones de cada uno de los sub-contralores ambientales.

@@ -1,0 +1,2 @@
+Artículo 4º.Los recursos financieros del Contralor del Ambiente provienen de los aportes del Ministerio del Ambiente y Energía, de las transferencias obligatorias establecidas por ley y de las donaciones y aportes que se otorguen al Contralor del Ambiente, los cuales serán administrados por dicho Contralor, conforme a la Ley.
+Al final del ejercicio financiero se hará una liquidación completa de sus operaciones y las pondrá en conocimiento del Ministro del Ambiente y Energía para lo que corresponda conforme a la Ley.
