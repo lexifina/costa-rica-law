@@ -1,0 +1,2 @@
+Artículo 27.-Las demás votaciones de la Asamblea serán nominales: las personas que se levanten aprobarán y las otras habrán votado negativamente. Para obtener cualquier pronunciamiento favorable, se requiere la mayoría absoluta de los presentes.
+Dirigirá los debates y abrirá y cerrará la sesión el Presidente o quien haga sus veces. Si el Secretario no pudiere asistir, será sustituido por uno de los vocales.
