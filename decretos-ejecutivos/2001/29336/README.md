@@ -14,3 +14,4 @@ Modifica Límite de Gasto Presupuestario y Efectivo de la Oficina de Cooperació
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-08 | la propia norma |
+| 2 | 2001-10-05 | Decreto Ejecutivo 29921 (2001-10-05) |

@@ -9,3 +9,4 @@ Considerando:
 4º—Que según lo expuesto, resulta necesario ampliar el límite de gasto presupuestario y efectivo de la Oficina de Cooperación Internacional de la Salud, establecido en el artículo 1º del Decreto Ejecutivo Nº 28639-H, publicado en La Gaceta Nº 101 del 26 de mayo de 2000. Por tanto:
 DECRETAN:
 Artículo 1º—Modifícase el artículo 1º del Decreto Ejecutivo Nº 28639-H, para fijar en ¢4.928,0 millones el límite de gasto presupuestario y efectivo de la Oficina de Cooperación Internacional de la Salud para el año 2001.
+(Modificado límite de gasto presupuestario y efectivo la Oficina de Cooperación Internacional de la Salud, por el artículo 1 del Decreto Ejecutivo N° 29921 de 5 de octubre del 2001)
