@@ -1,1 +1,2 @@
-Artículo 14.-Rige a partir de su publicación.
+Artículo 14.- Los Ministros de Hacienda, Seguridad Pública y Obras Públicas y Transportes, quedan facultados para tomar administrativamente, todas las medidas necesarias para la mejor administración y recaudación de los timbres que en este decreto se unifican, quedando facultados para variar el sistema aquí establecido, cuando sea necesario para evitar incomodidad y molestias a los viajeros, o entrabamiento para las entidades encargadas de la recaudación de los mismos.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 6782 del 21 de enero de 1977)

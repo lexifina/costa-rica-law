@@ -14,3 +14,4 @@ Unificación de Timbres o Derechos de Migración
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-06-03 | la propia norma |
+| 2 | 1977-01-21 | Decreto Ejecutivo 6782 (1977-01-21) |
