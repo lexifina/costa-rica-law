@@ -1,1 +1,0 @@
-Artículo 22.—Se deroga toda disposición emitida anteriormente en materia de regulación del otorgamiento del combustible a la flota pesquera nacional no deportiva y cualesquiera otras disposiciones que se le opongan al presente Reglamento.

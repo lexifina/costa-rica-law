@@ -1,1 +1,0 @@
-Artículo 2º—RECOPE venderá combustible a precio competitivo con el precio internacional a la Flota Pesquera Nacional cuando así lo indique la SCAC de conformidad con las regulaciones existentes, por medio de la respectiva orden de compra. Este precio será fijado por la ARESEP a solicitud de RECOPE o el INCOPESCA.

@@ -1,1 +1,0 @@
-Artículo 13.—Solamente se reconocerá el gasto de combustible para un motor, aun cuando las embarcaciones utilicen dos motores, previamente registrados ante INCOPESCA, se aplicará la tabla correspondiente para uno sólo de los motores.

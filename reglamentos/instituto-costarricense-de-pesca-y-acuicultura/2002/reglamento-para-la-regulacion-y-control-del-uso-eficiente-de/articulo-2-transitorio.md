@@ -1,2 +1,0 @@
-Transitorio II.—Los contratos a los que hace mención los artículos 16 y 17, serán exigibles después de dos meses calendario de la entrada en vigencia del presente Reglamento. Durante este término se mantiene en vigencia para los efectos correspondientes los convenios suscritos a la fecha entre el INCOPESCA y las partes involucradas.
-(Así adicionado por acuerdo tomado en sesión N° 31 de 7 de febrero del 2002)

@@ -1,5 +1,0 @@
-CAPÍTULO III
-Atribuciones, obligaciones y responsabilidades de los Beneficiarios
-Artículo 16.—Los beneficiarios y empresas interesadas en obtener combustible a precio preferencial, presentarán las solicitudes de combustible ante las Oficinas del INCOPESCA, en forma personal o través de Organizaciones de Pescadores debidamente autorizadas para tal fin por esta Institución, debiendo mediar un Contrato suscrito entre las partes en el que se establecerán las regulaciones pertinentes.
-Como requisito esencial para poder realizar dichos trámites será necesario que la respectiva organización cuente con código de RECOPE para la adquisición de combustible.
-Previo estudio y autorización por razones debidamente justificadas y aceptadas se podrá permitir que los beneficiarios físicos puedan solicitar el combustible mediante otra persona física (capitán de la embarcación o empleado de planilla) debidamente acreditado por el beneficiario y previa autorización de la Dirección General Técnica debiendo reportarse dicha situación a la presidencia ejecutiva.
