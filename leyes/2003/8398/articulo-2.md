@@ -17,3 +17,5 @@ ARTÍCULO 2°: EGRESOS ORDINARIOS EXTRAORDINARIOS PARA 2004.
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 31854 del 2 de junio de 2004)
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 31860 del 14 de junio de 2004)
 (Modificado por los artículos 2° y 3° del Decreto Ejecutivo N° 31869 del 22 de junio de 2004)
+(Así MODIFICADO por el artículo N° 1° del Decreto Ejecutivo N° 32009 del 20 de julio del 2004, publicado en el Alcance N° 35 de la Gaceta N° 153 del 6 de agosto del 2004)
+(Así MODIFICADO por el artículo N° 2° del Decreto Ejecutivo N° 32009 del 20 de julio del 2004, publicado en el Alcance N° 35 de la Gaceta N° 153 del 6 de agosto del 2004)
