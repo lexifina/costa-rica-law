@@ -1,1 +1,0 @@
-Art. 28.-Los Alcaldes no entregarán los libros del registro sin copiar, certificando y conservando la copia, el índice alfabético que dichos libros deben contener. Estas copias se mantendrán en la Alcaldía, para los fines que puedan convenir.·

@@ -1,1 +1,0 @@
-Art. 3°.-Los municipios y los Agentes Diplomáticos o Consulares procurarán que los libros que han de emplearse en el registro, estén encuadernados de manera que no sea fácil extraer hoja ninguna, sin dejar señales de la sustracción, ni volver a ser encuadernados, conservando su primitiva forma y dimensiones.

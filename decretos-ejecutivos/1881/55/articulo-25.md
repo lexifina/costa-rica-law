@@ -1,1 +1,0 @@
-Art.25.- También pueden examinarse los libros por autoridad judicial, sin abono de derechos, cuando se tratare de la averiguación o persecución de un delito público; y á costa del que lo pretenda, cuando se tratare de prueba en juicio civil o de causa criminal, por delito privado.

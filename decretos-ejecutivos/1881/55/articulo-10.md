@@ -1,1 +1,0 @@
-Art. 10.-Al final de cada libro, y antes de cerrarlo, se extenderá un índice de las inscripciones y notas marginales que contenga, por el orden alfabético de los primeros apellidos de las personas directamente interesadas en el asiento, y en la manera que aparece del modelo correspondiente del formulario.

@@ -1,1 +1,0 @@
-Art.30.-Los Gobernadores y Jefes Políticos deben cuidar de que las personas sometidas a su autoridad, den parte al registro de los hechos que ameriten inscripción, constriñéndolas con la multa de la ley.

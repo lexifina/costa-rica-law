@@ -1,1 +1,0 @@
-Art. 19.-Para las diligencias de cotejo, cuando se impugnare la autenticidad de una partida, no se sacará libro alguno del registro de la oficina donde se encuentre; la autoridad judicial debe trasladarse a ella.

@@ -1,1 +1,0 @@
-Art. 2°.- Los Agentes Diplomáticos y Consulares arreglaran, antes que termine el año, los libros del registro que han de servir para el próximo, deban o no continuar ellos otro año en el ejercicio de sus funciones.
