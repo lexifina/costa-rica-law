@@ -1,2 +1,2 @@
-Artículo 5°-El fallecimiento de un empleado u obrero en servicio o jubilado, dará derecho a la viuda, mientras permanezca en ese estado o a los hijos del fallecido, menores no emancipados o mayores inválidos, a una pensión equivalente a los dos tercios de la pensión de que disfrutaba el fallecido o de que hubiera tenido derecho a disfrutar.
-(Así refromado por el artículo 4° de la ley N° 96 del 8 de julio de 1940)
+Artículo 5°-El fallecimiento de los empleados y obreros, en servicio o jubilados, dará derecho a la viuda mientras permanezca en ese estado, y a falta de ‚esta a los hijos del fallecido, menores de edad no emancipados o mayores inválidos, a la pensión que disfrutaba el jubilado o que hubiera podido reclamar.
+(Así refromado por el artículo 10° de la ley N° 5340 del 14 de agosto de 1973)
