@@ -1,8 +1,7 @@
-ARTICULO 223.- No obstante lo dispuesto en los artículos
-anteriores, cuando los hechos a que se refiere este Capítulo
-fueren cometidos por un defensor público o por un representante
-del Ministerio Público, el juzgador que conozca del negocio
-procederá a comunicar la falta al superior jerárquico y al
-Tribunal de la Inspección para que se aplique el régimen
-disciplinario. En igual sentido, deberá proceder el juzgador
+ARTICULO 223.- No obstante lo dispuesto en los artículos anteriores,
+cuando los hechos a que se refiere este Capítulo fueren cometidos por un
+defensor público o por un representante del Ministerio Público, el
+juzgador que conozca del negocio procederá a comunicar la falta al
+superior jerárquico y al Tribunal de la Inspección para que se aplique el
+régimen disciplinario. En igual sentido, deberá proceder el juzgador
 cuando estime que dichos funcionarios han descuidado su función.

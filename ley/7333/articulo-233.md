@@ -1,4 +1,4 @@
-ARTICULO 233.- Excepto por pensión alimenticia, no son
-susceptibles de embargo, por ningún motivo, ni de venta, cesión o
-cualquier otra forma de traspaso, las jubilaciones y pensiones ni
-el Fondo establecido para cubrirlas.
+ARTICULO 233.- Excepto por pensión alimenticia, no son susceptibles
+de embargo, por ningún motivo, ni de venta, cesión o cualquier otra forma
+de traspaso, las jubilaciones y pensiones ni el Fondo establecido para
+cubrirlas.

@@ -1,27 +1,17 @@
 TITULO X
 DEL EJERCICIO DE LA ABOGACIA
 CAPITULO UNICO
-ARTICULO 243.- Salvo los casos exceptuados por la ley, sólo
-los abogados podrán representar a las partes ante los Tribunales
-Judiciales de la República. No obstante, en los lugares asientos
-de las alcaldías, que disten más de veinticinco kilómetros de la
-sede del juzgado y en donde no haya, por lo menos, dos abogados
-con oficina abierta, podrá ser apoderado judicial el egresado de
-la carrera de Derecho, dentro del período de dos años que se
-indica en el párrafo siguiente.
-El alcalde respectivo hará constar en el expediente, bajo su
-responsabilidad, que en ese lugar no existen por lo menos dos
-abogados con oficina abierta.
-Los universitarios que estudien la profesión de Derecho y
-que hubieran aprobado el segundo año completo, todo lo cual
-deberán comprobar, podrán concurrir a las oficinas judiciales en
-solicitud de datos y para el examen de expedientes, documentos y
-otras piezas. También podrán hacerlo los egresados, pero tan solo
-por un lapso de dos años a partir del día en el que hubieran
-aprobado el último año profesional. Vencido ese plazo, caducará
-el derecho que aquí se les concede.
-Los estudiantes que estén cursando el primero y segundo
-años, solo podrán solicitar datos y ver expedientes, documentos y
-otras piezas, para confeccionar trabajos de investigación, para
-lo cual deberán presentar solicitud que, en este sentido y bajo
-su responsabilidad, hará el profesor respectivo.
+ARTICULO 243.- Con excepción de otros supuestos establecidos
+expresamente por ley, sólo los abogados podrán representar a las partes
+ante los Tribunales Judiciales de la República.
+Los universitarios que se identifiquen como estudiantes de una
+Facultad o Escuela de Derecho, los asistentes de los abogados,
+debidamente autorizados, y los bachilleres en derecho, podrán concurrir a
+las oficinas y los despachos judiciales, para solicitar datos y examinar
+expedientes, documentos y otras piezas, así como para obtener fotocopias.
+Para esos efectos, los estudiantes y egresados deberán contar con la
+autorización del profesor o del abogado director del procedimiento. Los
+bachilleres en derecho deberán demostrar su condición, con documento
+auténtico emanado de la respectiva Universidad.
+(Así reformado por el artículo 8º de la Ley de Reorganización
+Judicial No.7728 de 15 de diciembre de 1997)

@@ -1,20 +1,26 @@
-ARTICULO 101.- En los Tribunales Superiores de Casación y en
-los demás tribunales colegiados habrá las secciones que sean
-necesarias, cada una compuesta por tres jueces.
-En los tribunales colegiados, sus integrantes elegirán,
-entre ellos, a uno que se desempeñará como presidente, por un
-período de cuatro años, el cual podrá ser reelecto. Si el
-tribunal tuviere más de una sección, en las que no se desempeñe
-el presidente, se elegirá un coordinador. Ambos tendrán las
-funciones que señale la ley y la Corte. A falta de acuerdo entre
-los integrantes del tribunal, luego de realizadas cinco
-votaciones, la designación del presidente la hará la Corte Plena.
-Los tribunales podrán tener competencia en dos o más
-provincias y en cantones de diferentes provincias. El Consejo
-regulará la distribución de los asuntos, por razón de la materia
-o del territorio, entre esos tribunales, para equiparar el
-trabajo, con el objeto de mejorar el servicio.
-Las reglas relativas al funcionamiento de los tribunales
-superiores serán aplicables, en lo que corresponda, a los demás
-tribunales colegiados, incluidos los Tribunales Superiores de
-Casación.
+ARTICULO 101.- Los tribunales estarán integrados por el número de
+jueces necesario para el servicio público bueno y eficiente. En los
+conformados por más de un juez, sus integrantes elegirán, internamente, a
+quien se desempeñará como coordinador por un período de cuatro años,
+podrá ser reelegido y tendrá las funciones que le señalen la ley y la
+Corte Plena. A falta de acuerdo interno de elección, luego de realizadas
+cinco votaciones, la Corte Plena designará al coordinador.
+Los tribunales podrán tener competencia y jurisdicción en dos o más
+cantones de diferentes provincias, en una o en varias provincias y aun en
+todo el territorio nacional. El Consejo Superior del Poder Judicial
+regulará la distribución de los asuntos, por razón de la materia o
+territorio, entre los tribunales, para equiparar el trabajo, con el
+objeto de mejorar el servicio y obtener el resultado más eficiente.
+Las reglas relativas al funcionamiento propio de los tribunales
+colegiados serán aplicables, en lo que corresponda, a todos los demás
+tribunales.
+Para ser juez de casación se requiere:
+1.- Ser costarricense en ejercicio de sus derechos ciudadanos.
+2.- Tener al menos treinta y cinco años de edad.
+3.- Poseer el título de abogado, legalmente reconocido en el país, y
+haber ejercido la profesión durante diez años, salvo que se trate de
+funcionarios judiciales con práctica judicial mínima de cinco años. Estos
+jueces devengarán un salario mayor que los demás jueces del tribunal
+colegiado.
+(Así reformado por el artículo 4º de la Ley de Reorganización
+Judicial No.7728 de 15 de diciembre de 1997)

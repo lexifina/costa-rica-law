@@ -1,6 +1,6 @@
-ARTICULO 228.- El funcionario o empleado que se
-imposibilitare de modo permanente para el desempeño de su cargo o
-empleo, siempre que hubiera laborado para el Estado por cinco
-años o más, será también separado de su puesto con una jubilación
-permanente, que se calculará de acuerdo con los años de servicio,
-en la forma dispuesta en el artículo 226.
+ARTICULO 228.- El funcionario o empleado que se imposibilitare de
+modo permanente para el desempeño de su cargo o empleo, siempre que
+hubiera laborado para el Estado por cinco años o más, será también
+separado de su puesto con una jubilación permanente, que se calculará de
+acuerdo con los años de servicio, en la forma dispuesta en el artículo
+226.

@@ -1,8 +1,7 @@
-ARTICULO 50.- Cada Magistrado podrá contar, al menos, con un
-abogado asistente, de su nombramiento, con aprobación del Consejo
-Superior del Poder Judicial. Para separarse de su propuesta, el
-Consejo deberá hacerlo con el voto de todos sus miembros, en
-resolución debidamente fundamentada, en cuyo caso solicitará al
-Magistrado el envío de otro candidato. El Presidente de la Corte
-contará con un Director del Despacho del Presidente, quien
-desempeñará las funciones que éste le asigne.
+ARTICULO 50.- Cada Magistrado podrá contar, al menos, con un abogado
+asistente, de su nombramiento, con aprobación del Consejo Superior del
+Poder Judicial. Para separarse de su propuesta, el Consejo deberá hacerlo
+con el voto de todos sus miembros, en resolución debidamente
+fundamentada, en cuyo caso solicitará al Magistrado el envío de otro
+candidato. El Presidente de la Corte contará con un Director del Despacho
+del Presidente, quien desempeñará las funciones que éste le asigne.
