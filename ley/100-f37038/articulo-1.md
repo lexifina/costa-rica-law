@@ -1,0 +1,5 @@
+DECRETO C.
+Concede una pension a Doña Juana Acuña viuda de Don Santiago Genovéz.
+" El Vice.Presidente del Estado de Costa Rica en ejercicio del S. P. E.
+En consideracion à que el Teniente de milicias Don Santiago Genovéz resulto gravemente herido en el primer encuentro que tuvo una descubierta del Ejército protector de la ley con los facciosos, que el 28 último habian desconocido las instituciones y autoridades legìtimas, è instruido por el facultativo encargado de la asistencia de dicho Teniente que este ha muerto, no obstante haberse apurado los recursos del arte: cierto de que deja una viuda sin los necesarios para subsistir; y no pudiendo ser indiferente al Estado el sacrificio de sus mejores hijos por la conservacion del orden y de la ley, en uso de las facultades de que està investido, decreta.
+Art. 1° La Señora Doña Juana Acuña mujer que fué del finado Don Santiago Genovéz, gozará, mientras permanezca viuda, de la pension de veinte pesos mensuales que de preferencia le cubrirá el tesoro público para su subsistencia.
