@@ -1,0 +1,1 @@
+Artículo 2º- El Poder Ejecutivo nombrará a una comisión, integrada por cinco personas de la comunidad nacional. Será coordinada por el Ministerio de Cultura, Juventud y Deportes, para que celebre cada año este acontecimiento y efectúe el nombramiento correspondiente.
