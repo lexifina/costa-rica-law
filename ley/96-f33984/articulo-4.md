@@ -1,0 +1,1 @@
+Artículo 4:- A ningún Juez de 1° Instancia se le pagará el sueldo de que disfruta, sin que antes haya rendido cuenta y hecho el entero de los derechos de actuación que haya cobrado en el mes anterior, antes bien perderá la tercera parte de dichos derechos que ahora se les concede, si retuviere más de un mes en su poder la parte que corresponde al erario.
