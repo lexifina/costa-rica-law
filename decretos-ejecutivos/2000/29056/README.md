@@ -14,3 +14,4 @@ Creación de la Proveeduría Institucional del Ministerio de Justicia y Gracia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-14 | la propia norma |
+| 2 | 2004-06-04 | Decreto Ejecutivo 32186 (2004-06-04) |
