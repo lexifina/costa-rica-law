@@ -1,6 +1,8 @@
+(Anulada)
 N§ 13998-MEC
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE ECONOMIA Y COMERCIO,
+(Anulado mediante Resolución de la Sala Constitucional N° 4577, de las 15:30 horas del 14/09/1993.)
 Considerando:
 Que el Reglamento de Corredur¡a de Bienes Ra¡ces no
 contempla en sus

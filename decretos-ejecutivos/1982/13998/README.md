@@ -12,3 +12,4 @@ Reforma Reglamento Correduría Bienes Raíces
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-11-02 | la propia norma |
+| 2 | 1993-09-14 | SINALEVI (sin norma nombrada) |
