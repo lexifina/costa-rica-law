@@ -1,0 +1,1 @@
+Art. 2. Este sistema podrá hacerlo estensivo á los propios y arbitrios de los pueblos, á excepción de aquellos terrenos de propiedad particular de algún vecindario gravados con contribuciones Municipales.
