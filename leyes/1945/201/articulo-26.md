@@ -1,0 +1,1 @@
+Artículo 26.- La compra de materias primas para la Fábrica Nacional de Licores se hará en conformidad con el reglamento que la Proveeduría Nacional, de acuerdo con el Centro de Control, someterá a la aprobación del Poder Ejecutivo, y en el cual se contemple la fiscalización que en cuanto a ella ejercerá la Proveeduría.

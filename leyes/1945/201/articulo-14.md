@@ -1,0 +1,1 @@
+Artículo 14.- Todo funcionario o persona que recaude fondos pertenecientes a la Nación, deberá depositarlos diariamente en el Banco que actúe como Cajero, o en la Tesorería Auxiliar de su jurisdicción.

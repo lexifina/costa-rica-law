@@ -1,0 +1,1 @@
+Artículo 22.- Las compras menores de mil colones podrán hacerse en licitación privada entre los comerciantes patentados, especializados e importadores, con intervención de la dependencia administrativa interesada.

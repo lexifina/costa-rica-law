@@ -1,0 +1,1 @@
+Artículo 18.- Todo giro u orden de pago que emita la Tesorería Nacional debe ser presentado al Centro de Control para su aprobación y sello. Sin esa formalidad no constituirá obligación para el Estado. El Banco que actúe como Cajero de la República no hará buen pago sin la aprobación y sello del Centro de Control.

@@ -1,0 +1,1 @@
+Artículo 25.- La Proveeduría Nacional podrá disponer la compra sin licitación de especies fiscales, sellos de correo, marbetes, fórmulas para bonos y similares, que por su destino especial requieran la garantía de seguridad y seriedad, que ofrecen determinadas casas del exterior, de acuerdo con la Secretaría de Hacienda y el Centro de Control.
