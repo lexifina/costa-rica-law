@@ -1,0 +1,3 @@
+TÍTULO V
+Tarjeta BCR-Débito
+Artículo 39.—Definición del servicio. La tarjeta BCR-DÉBITO, es un servicio complementario a las cuentas corrientes en colones y dólares y a las cuentas de ahorro en colones, suministrado por el Banco de Costa Rica a sus clientes como un medio para disponer de sus fondos mediante la adquisición de bienes y servicios en forma directa en los comercios afiliados al Sistema Visa, efectuando retiros de efectivo tanto en ventanilla como en la red de cajeros automáticos del Banco de Costa Rica o que se encuentren al servicio de éste, tanto a nivel nacional como internacional.

@@ -1,0 +1,2 @@
+Artículo 41.—Toda cuenta corriente y de ahorro que se abra a los clientes, conllevará el otorgamiento automático de la tarjeta BCR-DÉBITO, así como la afiliación a los sistemas Bancatel y Bancobcr.com.
+En relación con las cuentas de ahorro, esa tarjeta se expedirá en forma automática para las personas autorizadas, dado que la tarjeta es el medio por excelencia para el retiro de los fondos en esas cuentas.

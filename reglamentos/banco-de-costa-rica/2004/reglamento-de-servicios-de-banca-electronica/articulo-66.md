@@ -1,0 +1,1 @@
+Artículo 66.—Formarán parte del servicio, la cuenta corriente del CLIENTE contra la cual se debitará el monto de las planillas, y las cuentas corrientes y de ahorro de los empleados de éste que estén reportadas al BANCO para el crédito de Planillas.

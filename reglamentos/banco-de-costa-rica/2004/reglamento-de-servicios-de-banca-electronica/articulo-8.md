@@ -1,0 +1,1 @@
+Artículo 8º—La clave es un medio de identificación sustitutivo de la firma autógrafa, de ahí que producirá los mismos efectos que las leyes le otorgan a los documentos firmados de puño y letra del cliente o usuario.

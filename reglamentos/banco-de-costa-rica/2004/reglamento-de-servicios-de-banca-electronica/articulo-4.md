@@ -1,0 +1,3 @@
+Mecanismos de acceso
+Artículo 4º—Para el ingreso a los diferentes servicios que ofrece la Banca Electrónica, el Banco suministrará al cliente una clave de identificación o PIN, individual y secreto, asumiendo el usuario toda la responsabilidad si por descuido, por su decisión o por acciones de terceros, la clave o PIN fuere de conocimiento de otras personas.
+Esta clave o PIN podrá ser cambiada por el usuario, mediante las diferentes opciones que brindan los servicios incluidos en la Banca Electrónica. Es potestativo para el usuario, utilizar los sistemas electrónicos para modificar su número confidencial en cualquier tiempo.

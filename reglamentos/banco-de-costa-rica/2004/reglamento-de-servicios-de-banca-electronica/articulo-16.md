@@ -1,0 +1,1 @@
+Artículo 16.—El BANCO no será responsable de los daños y perjuicios que llegaren a causársele al usuario por la no disponibilidad de los Sistemas Electrónicos. No obstante ello, el BANCO tendrá en sus oficinas a disposición del usuario, los medios alternos para la prestación de los Servicios Bancarios que en su caso requiera.

@@ -1,0 +1,1 @@
+Artículo 59.—Los clientes de la Oficina Virtual del Banco podrán “fondear” la tarjeta al transferir fondos desde una cuenta de ahorro, cuenta corriente en colones o en dólares. También lo puede hacer desde otra tarjeta de crédito sin que se genere comisión por avance de efectivo.

@@ -1,0 +1,1 @@
+Artículo 69.—El sistema BCR. PLANILLA, validará, confirmará y reenviará una cantidad de planillas por empresa las cuales serán diferenciadas por un número indicado dentro del archivo a cargar. De esta manera una empresa podrá tener una planilla ordinaria, extraordinaria, personal interino, personal outsourcing, o bajo cualquier otra modalidad de contratación.

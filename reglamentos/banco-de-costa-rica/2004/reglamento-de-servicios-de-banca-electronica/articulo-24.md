@@ -1,0 +1,1 @@
+Artículo 24.—El usuario deberá pagar y el BANCO podrá cobrar las comisiones que resulten aplicables a cada uno de los servicios brindados por la Banca Electrónica y según se encuentren establecidos en el Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica, vigente al momento de efectuar la operación.

@@ -1,0 +1,1 @@
+Artículo 33.—Afiliación al sistema. Módulo cliente. La afiliación al sistema se realizará en forma automática en el momento que se abra una cuenta corriente o de ahorro. Una vez que se le haga entrega al usuario de la tarjeta BCR-DÉBITO correspondiente a las cuentas, se podrá ingresar por primera vez al sistema con el número de PIN de la tarjeta de débito.

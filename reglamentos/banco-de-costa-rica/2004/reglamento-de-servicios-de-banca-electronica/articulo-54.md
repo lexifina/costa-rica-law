@@ -1,0 +1,1 @@
+Artículo 54.—El cliente a su conveniencia podrá autorizar o desautorizar a sus empleados o dependientes; no obstante, deberá informar al Banco en forma escrita la decisión que en ese sentido adopte. El incumplimiento de esta obligación relevará al BANCO de todo tipo de responsabilidad.

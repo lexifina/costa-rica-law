@@ -1,0 +1,1 @@
+Artículo 61.—La tarjeta tendrá una vigencia de un año a partir de la fecha de emisión. Llegado su vencimiento, será cancelada sin perjuicio de que el cliente pueda solicitar otra. Un mes antes del vencimiento, el cliente recibirá un mensaje por el medio que haya elegido para estos efectos, que le informará de la proximidad del plazo para el vencimiento de la tarjeta.

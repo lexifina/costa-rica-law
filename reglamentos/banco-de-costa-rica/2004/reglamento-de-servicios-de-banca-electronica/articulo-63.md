@@ -1,0 +1,1 @@
+Artículo 63.—El Banco emitirá mensualmente en forma electrónica un estado de cuenta de la tarjeta virtual el cual será enviado en forma automática a la dirección o medio que el cliente haya elegido de conformidad con este reglamento. No se emitirán estados de cuenta impresos.

@@ -1,0 +1,1 @@
+Artículo 46.—La operación de la tarjeta BCR-DÉBITO, se encuentra regulada por VISA INTERNACIONAL con plaza en Miami, Florida, por lo que rige para ello lo establecido en el Reglamento Operativo de VISA INTERNACIONAL y los reglamentos afines, así como las regulaciones internas que sobre la materia se encuentren en vigencia.

@@ -1,0 +1,1 @@
+Artículo 64.—Los saldos a favor, que el cliente eventualmente mantenga en su tarjeta, devengarán intereses al mismo tipo que el aplicado para las tarjetas de crédito clásicas nacional e internacional.

@@ -1,0 +1,1 @@
+Artículo 67.—El Banco se reserva el derecho de abrir una o varias cuentas a nombre de los empleados del Cliente con motivo de este servicio, cuando a su juicio la apertura de estas cuentas no convenga a la Institución; o de cerrar cualquier cuenta que hubiere sido abierta cuando existieren razones que a su criterio acrediten un mal uso de las mismas.

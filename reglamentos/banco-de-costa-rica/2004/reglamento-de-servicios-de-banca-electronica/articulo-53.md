@@ -1,0 +1,1 @@
+Artículo 53.—Es potestativo del cliente cambiar la clave suministrada por el Banco para el uso del SISTEMA TELEBAN. En virtud de que el Banco al otorgar el servicio, recomienda efectuar el cambio, si el cliente no llegare a efectuarlo y de ello se derivaren consecuencias lesivas, el Banco queda relevado de toda responsabilidad.

@@ -1,0 +1,2 @@
+Artículo 56.—La tarjeta Virtual solo podrá ser solicitada a través de la Oficina Virtual por medio de una opción específica que ésta proporciona.
+Al solicitar la tarjeta virtual, el cliente deberá declarar en forma expresa y afirmativa en el cuadro de diálogo que aparezca y sobre el ícono “aceptar” que conoce y acepta todas las condiciones y regulaciones de este servicio; caso contrario, la tarjeta le será denegada. Dicha aceptación será almacenada electrónicamente por parte del Banco, quien lo tendrá como prueba de la voluntad expresada por el cliente.

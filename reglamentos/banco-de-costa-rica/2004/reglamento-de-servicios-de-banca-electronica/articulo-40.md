@@ -1,0 +1,1 @@
+Artículo 40.—Otros servicios. El cliente podrá además efectuar el pago de servicios públicos, cancelación de suscripciones, afiliaciones, transferencia de fondos, consulta de saldos, entre otros servicios aquí enunciados.

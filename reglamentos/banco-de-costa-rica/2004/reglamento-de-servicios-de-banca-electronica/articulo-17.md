@@ -1,0 +1,1 @@
+Artículo 17.—Todos los riesgos derivados de instrucciones dadas electrónicamente por el cliente, son asumidas por éste, quien deberá indemnizar al Banco ante cualquier reclamo, obligación o indemnización que tuviere que asumir a causa de daños provocados a terceros por actuar bajo sus instrucciones.

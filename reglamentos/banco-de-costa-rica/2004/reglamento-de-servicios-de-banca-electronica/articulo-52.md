@@ -1,0 +1,1 @@
+Artículo 52.—El BANCO le suministrará al CLIENTE, los formularios correspondientes para el uso del Módulo de Transferencias Electrónicas de fondos. El contenido, veracidad, y autenticidad de la información que en ellos se inserte, será de responsabilidad exclusiva del cliente.

@@ -1,0 +1,1 @@
+Artículo 34.—Desactivación del sistema. En caso de que el cliente olvide o confunda su número de PIN o clave, provocando la desactivación de ésta por intentos fallidos al acceso del sistema, se requerirá su presencia física en cualquiera de las plataformas de servicios de las oficinas del Banco, para que sea activado nuevamente.

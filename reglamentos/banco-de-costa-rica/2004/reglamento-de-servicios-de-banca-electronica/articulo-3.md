@@ -1,0 +1,2 @@
+Requisitos:
+Artículo 3º—Es requisito indispensable para poder tener acceso a los servicios de la Banca Electrónica, ser titular o autorizado en al menos una cuenta corriente o de ahorro, sin perjuicio de que el Banco pueda en cualquier momento asociar este servicio a cualquiera otro de los productos que el mismo ofrece. Dicho requisito únicamente no es de aplicación en los casos de Bancatel Negocios y Telebán.

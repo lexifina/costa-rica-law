@@ -1,0 +1,1 @@
+Artículo 58.—La tarjeta virtual tendrá un límite de crédito igual a cero. Esta condición le garantiza al tarjetahabiente la seguridad de que la tarjeta podrá ser utilizada solamente cuando la misma haya sido “fondeada” previamente por la cantidad estimada de la compra.
