@@ -13,3 +13,4 @@ Reglamento de Jubilaciones y Pensiones Judiciales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1939-07-07 | la propia norma |
+| 2 | 1959-06-02 | Decreto Ejecutivo 59 (1959-06-02) |
