@@ -13,3 +13,4 @@ Reforma Requisitos de Productividad Mínima de Productores de Banano
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-25 | la propia norma |
+| 2 | 1996-03-25 | Decreto Ejecutivo 28725 (2000-05-31) |
