@@ -1,0 +1,1 @@
+Artículo 68-Tanto los honorarios como el 10% correspondiente al Colegio deberán ser depositados por ambas partes en la Tesorería de éste, junto una copia auténtica del convenio de arbitraje. Una vez emitido e! dictamen o Fallo, la Tesorería cancelará los honorarios y el mencionado 10% y devolverá cualquier sobrante a quien corresponda según dicho convenio.

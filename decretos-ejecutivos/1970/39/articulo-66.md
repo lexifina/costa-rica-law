@@ -1,0 +1,2 @@
+Artículo 66.-Si el Tesorero cesare en su cargo por renuncia o por cualquier otro motivo, deberá hacer entrega de los valores y registros bajo su custodia, al nuevo Tesorero, previo estudio de un contador autorizado.
+Esta entrega de valores y documentos, se efectuará en presencia del Fiscal o en su defecto por un delegado nombrado por la Junta Directiva quien entregará al Tesorero un descargo. Mientras tal descargo no sea otorgado no cesará su responsabilidad personal como Tesorero.

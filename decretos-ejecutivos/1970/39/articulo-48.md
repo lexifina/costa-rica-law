@@ -1,0 +1,1 @@
+Artículo 48.-Los Biólogos deberán respetar celosamente toda incompatibilidad moral o legal, evitando la acumulación de cargos que afecten su independencia o les impida cumplir honesta y correctamente con ellos.

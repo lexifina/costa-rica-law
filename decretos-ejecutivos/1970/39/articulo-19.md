@@ -1,0 +1,1 @@
+Artículo 19.-Sólo los miembros activos del Colegio pueden ejercer la profesión de biólogos en el país, en aquellas ramas que constituyen la preparación básica y general de la profesión. Con excepción de los casos contemplados en los tratados internacionales, se establecerá el campo de acción profesional de los colegiados de acuerdo con su especialización y nivel técnico.

@@ -1,0 +1,1 @@
+Artículo 35.-El quórum de las sesiones se formará con cinco miembros para tomar acuerdos firmes en cuyo caso se requerirán las dos terceras parte; de los votos presentes. En caso de empate el voto del Presidente se computara como doble.

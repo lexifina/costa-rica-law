@@ -1,0 +1,1 @@
+Artículo 18.-Los Tribunales de Justicia y en general las Instituciones públicas, deben nombrar los peritos en asuntos relacionados con actividades biológicas, ajenas a otros colegios, de entre los miembros del Colegio de Biólogos.

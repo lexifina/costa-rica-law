@@ -1,0 +1,3 @@
+Artículo 69. -Las bases de los concursos promovidos por entidades públicas y privadas, en las que pudieren participar miembros del Colegio, serán revisadas por la Junta Directiva, la que las aprobará o improbará, desautorizando en este último caso, a los miembros del Colegio a participar en dichos concursos.
+Para revisar las bases de los concursos la Junta Directiva se asesorará con una comisión integrada por miembros con amplia experiencia profesional en el campo motivo del concurso.
+En los concursos de antecedentes profesionales, los honorarios no pueden ser factor de competencia y podrán ser ofrecidos sólo a base de porcentaje, de acuerdo can las tarifas del Colegio de Biólogos.

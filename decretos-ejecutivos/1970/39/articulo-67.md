@@ -1,0 +1,6 @@
+CAPITULO XI
+Artículo 67.-Cuando cualquier persona solicita que se someta a arbitraje de uno o más miembros activos del Colegio, cualquier diferencia que proviniera de un asunto de naturaleza biológica, se seguirán las siguientes reglas:
+a) La Junta Directiva seleccionará a los profesionales que actúen como árbitros, de una lista de los miembros con amplia experiencia profesional en el campo del asunto sometido a arbitraje, y de acuerdo con el solicitante propondrá una sola persona o una terna. Estas personas serán nombradas por simple mayoría.
+h) Los honorarios por servicios serán de libre contratación, siendo dados a conocer por el o los peritos a las partes interesadas, antes de realizar d arbitraje.
+c) En caso de que el monto de los honorarios profesionales no fueren aceptados por las partes interesadas, cabrá el recurso de apelación ante la Junta Directiva del Colegio, la que fijará el monto definitivo.
+d) Las personas que soliciten el nombramiento de peritos o árbitros deberán pagar los honorarios según lo establecido en el respectivo convenio entre las partes en discordia y además pagar al Colegio por este servicio, un monto igual al 10% de los honorarios cobrados por el o los peritos o árbitros.

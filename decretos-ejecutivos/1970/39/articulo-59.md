@@ -1,0 +1,1 @@
+Artículo 59.-Recibido el dictamen de que habla el artículo anterior, )a Junta Directiva, con el voto de no menos de dos tercios de sus miembros, podrá otorgar el honor o reconocimiento solicitado. La votación será secreta.

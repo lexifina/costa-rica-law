@@ -1,0 +1,1 @@
+Artículo 64.-La contabilidad deberá llevarse al día, y el tesorero deberá presentar mensualmente un balance general, un estado de ingresos y egresos y los demás informes que le solicite la Junta Directiva o el que crea oportuno presentar a conocimiento de la misma.

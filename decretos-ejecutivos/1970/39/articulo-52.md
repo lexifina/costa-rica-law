@@ -1,0 +1,1 @@
+Artículo 52.-En el ejercicio profesional, tanto en el orden privado como en el oficial, los profesionales procederán con la más absoluta buena fe, poniendo al servicio de los intereses que representan lealtad, capacidad y dedicación.

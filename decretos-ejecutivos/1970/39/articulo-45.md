@@ -1,0 +1,1 @@
+Artículo 45.-Como profesional, debe cumplir con las leyes y reglamentos existentes, procurando el mejoramiento constante de la legislación y condiciones para el ejercicio de la profesión, favoreciendo la sanción o reforma de leyes o reglamentos que supongan beneficio para la colectividad.

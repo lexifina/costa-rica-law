@@ -1,0 +1,1 @@
+Artículo 26.-Las resoluciones de la Asamblea General .se tomarán por mayoría absoluta de los votos presentes, excepto en la promulgación y modificación del reglamento o de la Ley Orgánica que deberán ser 'aprobadas por no menos de dos terceras partes de los votos presentes. En caso de empate, el voto del Presidente se computará doble.

@@ -1,0 +1,1 @@
+Artículo 28.-Las convocatorias a asambleas extraordinarias se publicarán por lo menos una vez en uno de los periódicos de la Capital, tres días hábiles antes del día señalado para celebrar la Asamblea. Se indicará el objeto de la convocatoria y solamente se conocerá de aquellos asuntos indicados en la misma.

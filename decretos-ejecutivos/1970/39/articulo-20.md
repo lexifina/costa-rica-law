@@ -1,0 +1,1 @@
+Articulo 20.-Las personas que públicamente, o bien, en forma oculta o reservada, ejerzan indebidamente la profesión de Biólogo contra lo dispuesto en la presente ley, quedan sujetas a las prescripciones legales establecidas al efecto en el Código Penal vigente.

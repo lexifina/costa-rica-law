@@ -1,0 +1,1 @@
+Artículo 34.-La Junta Directiva se reunirá en sesión ordinaria una vez por mes y todas las extraordinarias que juzgue conveniente cada vez que sea solicitado por el presidente o por el secretario, a petición del primero, o de dos de los miembros de la Junta Directiva y para que haya acuerdo o resolución, por mayoría de los votos presentes; salvo

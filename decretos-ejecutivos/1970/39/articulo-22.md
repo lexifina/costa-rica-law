@@ -1,0 +1,1 @@
+Artículo 22.-Los miembros del Colegio deberán pagar una cuota mensual cuyo monto será fijado por la Junta Directiva y refrendado por la Asamblea General. Para fines específicos la asamblea podrá acordar contribuciones extraordinarias a los asociados.

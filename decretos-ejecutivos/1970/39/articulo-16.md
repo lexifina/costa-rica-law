@@ -1,0 +1,2 @@
+CAPITULO IV
+Artículo 16.-Ante las autoridades de la República, solo tendrán carácter de Biólogo, los graduados universitarios' reconocidos por la Universidad de Costa Rica, que estén incorporados al Colegio de Biólogos en calidad de Miembro,; Activos. Los incorporados al Colegio en calidad de Miembros Afiliados serán legalmente reconocidos de acuerdo con las atribuciones que este Reglamento les otorgue.

@@ -1,0 +1,1 @@
+Artículo 29.-Corresponde a la Asamblea aplicar las correcciones disciplinarias a que se hagan acreedores los miembros del Colegio cuando ello no sea de competencia de la Junta Directiva o del Tribunal de Honor.

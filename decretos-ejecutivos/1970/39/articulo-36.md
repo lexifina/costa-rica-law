@@ -1,0 +1,1 @@
+Articulo 36.-De las sesiones de la Junta Directiva deberán levantarse actas que se pasarán a un libro abierto al efecto y legalizado por el Presidente Y el Fiscal del Colegio y que serán firmadas por los miembros que actúen como Presidente y Secretario en la ocasión en que se aprueben las mismas.

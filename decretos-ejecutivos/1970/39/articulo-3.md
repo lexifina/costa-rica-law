@@ -1,0 +1,1 @@
+Artículo 3º.- Mientras no exista en el país colegios establecidos en otros campos biológicos, podrán incorporarse al Colegio de Biólogos, científicos pertenecientes a otras ramas de la Biología no estipuladas en el artículo anterior.

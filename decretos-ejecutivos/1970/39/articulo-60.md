@@ -1,0 +1,1 @@
+Artículo 60.-Aparte de las citas y anotaciones que incluyan las actas de las sesiones de Junta Directiva, el Secretario deberá llevar un libro especial, en el cual se anotará un resumen de cada uno de los honores y reconocimientos otorgados.
