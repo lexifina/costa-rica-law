@@ -1,0 +1,1 @@
+Artículo 4°.- Caso de pérdida o sustracción de algún instrumento musical, la institución que los recibió, está obligada a denunciar el hecho inmediatamente ante la autoridad correspondiente, debiendo comunicarlo también por escrito al Oficial Mayor del Ministerio a la brevedad posible.

@@ -1,0 +1,1 @@
+Artículo 3°.- El Ministerio se reserva el derecho de ordenar la devolución de aquellos instrumentos que no estén siendo correctamente utilizados, debiendo la institución o grupo que los recibió, devolverlos en forma inmediata.

@@ -1,0 +1,1 @@
+Artículo 6°.- La institución o grupo organizado que recibió instrumentos musicales, no podrá cederlos a terceros, sin la autorización previa y expresa del Oficial Mayor de este Ministerio. El incumplimiento a lo anterior, facultará al Ministerio a ordenar la entrega inmediata de todos los instrumentos prestados.

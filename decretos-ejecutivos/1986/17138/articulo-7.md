@@ -1,0 +1,1 @@
+Artículo 7°.- Las instituciones y grupos organizados que reciban o hayan recibido de este Ministerio, instrumentos musicales, están obligados a asegurarlos con póliza de riesgos diversos por el valor real de cada instrumento, dentro de los treinta días hábiles posteriores a la publicación del presente decreto.

@@ -1,0 +1,1 @@
+Artículo 5°.- Si la pérdida o sustracción se debió a negligencia o descuido, la persona responsable está obligada a pagar, dentro de los treinta días naturales siguientes a aquel en que el Ministerio tuvo conocimiento de ese hecho, el calor del instrumento perdido o sustraído.

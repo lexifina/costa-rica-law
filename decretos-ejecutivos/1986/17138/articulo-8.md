@@ -1,0 +1,1 @@
+Artículo 8°.- Quienes reciban o hayan recibido instrumentos musicales deberán informar anualmente al Ministerio, el estado en que se encuentran y si los mismos se están o no utilizando. Lo anterior sin perjuicio de la fiscalización que ejerza el Ministro.

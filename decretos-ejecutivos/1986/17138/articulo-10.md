@@ -1,0 +1,1 @@
+Artículo 10.- La entrega de instrumentos musicales la hará el Ministerio mediante un documento, en el cual se consignen, entre otros aspectos, las características del activo, el destino y uso que se le dará, las personas responsables de la entrega, recepción, custodia y utilización del mismo.
