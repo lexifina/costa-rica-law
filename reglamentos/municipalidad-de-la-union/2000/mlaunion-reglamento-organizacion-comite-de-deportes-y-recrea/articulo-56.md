@@ -1,0 +1,1 @@
+Artículo 56.—Los miembros de las Juntas brindaran un informe por escrito trimestralmente al Comité Cantonal de Deportes y Recreación quien lo avalará y lo remitirá al Concejo Municipal, en el incluirán el trabajo realizado, así como el informe económico

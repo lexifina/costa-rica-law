@@ -1,0 +1,1 @@
+Artículo 32.—El miembro que abandone su cargo sin justa causa, queda imposibilitado para poder integrar el Comité durante un plazo de cuatro años, a criterio de la mayoría calificada del retiro del Comité y ratificado posteriormente por el Concejo Municipal por mayoría simple.

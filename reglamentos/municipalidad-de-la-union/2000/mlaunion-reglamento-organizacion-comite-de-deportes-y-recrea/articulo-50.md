@@ -1,0 +1,1 @@
+Artículo 50.—Cuando estas instalaciones se ubiquen en las Instituciones educativas oficiales o particulares subvencionadas por el Estado, serán administradas por un Comité Administrador, integrado por un representante de la Institución, un representante del Comité Cantonal de Deportes y Recreación y un representante de la Municipalidad.

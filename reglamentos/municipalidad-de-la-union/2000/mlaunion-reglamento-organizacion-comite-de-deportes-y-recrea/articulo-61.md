@@ -1,0 +1,1 @@
+Artículo 61.—La integración y distribución de puestos en el Comité Comunal será igual a la del Comité Cantonal de Deportes y Recreación, lo mismo que su vigencia y la posibilidad de ser reelectos. No recibirán dietas ni remuneración alguna.

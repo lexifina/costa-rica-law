@@ -1,0 +1,1 @@
+Artículo 21.—Las sesiones extraordinarias del Comité Cantonal de Deportes y Recreación serán convocadas por el presidente, o a solicitud de por lo menos dos miembros, se comunicará por escrito a los demás miembros, con veinticuatro de antelación y la convocatoria deberá indicar el día y hora de la sesión y los asuntos por tratar, así como el lugar donde se realizará la reunión.

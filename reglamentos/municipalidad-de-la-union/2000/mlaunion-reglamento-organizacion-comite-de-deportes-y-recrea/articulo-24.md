@@ -1,0 +1,1 @@
+Artículo 24.—Los acuerdos que tome el Comité Cantonal de Deportes y Recreación en forma definitiva, deberán contar con la aprobación de la mayoría calificada de sus miembros sean las dos terceras partes de sus miembros, que representan para el caso cuatro.

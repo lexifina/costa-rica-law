@@ -1,0 +1,1 @@
+Artículo 23.—Todos los acuerdos que tome el Comité Cantonal de Deportes y Recreación deberá contar con la aprobación de la mayoría absoluta de sus miembros salvo aquellos que expresamente este Reglamento o las Leyes exijan mayoría distinta a ésta.

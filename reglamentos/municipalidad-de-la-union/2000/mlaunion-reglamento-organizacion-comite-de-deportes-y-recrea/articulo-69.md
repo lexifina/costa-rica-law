@@ -1,0 +1,1 @@
+Artículo 69.—El Director Regional del Instituto del Deporte, tendrá la potestad de reunirse con cualquier Comité Comunal de Deportes y Recreación, cuando a bien lo tenga. Podrán visitarlos en compañía de miembros del Comité Cantonal o solos con su debida identificación.

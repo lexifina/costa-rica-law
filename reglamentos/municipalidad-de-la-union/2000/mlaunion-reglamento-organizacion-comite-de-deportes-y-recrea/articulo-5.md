@@ -1,0 +1,1 @@
+Artículo 5º—El Comité Cantonal de Deportes y Recreación, someterá en la primera semana de julio de cada año a conocimiento del Concejo Municipal su programa anual de actividades, obras, e inversión antes de aprobarse los presupuestos ordinarios de la Municipalidad para el siguiente ejercicio económico.

@@ -1,0 +1,2 @@
+Artículo 78.—La Organización Deportiva que no acate las disposiciones del Comité Cantonal de Deportes y Recreación, no podrá participar en eventos de programación cantonal y se le suspenderá o eliminarán los beneficios( instalaciones, ayudas y otros).
+Igual sanción se impondrá a los equipos deportivos y deportistas que muestren reiteradamente una actitud belicosa o abiertamente irrespetuosa de las normas que regulan la actividad deportiva.

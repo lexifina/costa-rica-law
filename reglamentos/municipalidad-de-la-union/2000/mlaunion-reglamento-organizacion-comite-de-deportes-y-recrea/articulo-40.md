@@ -1,0 +1,1 @@
+Artículo 40.—Cada Comisión nombrará un especialista por deporte, cuyo nombramiento lo ratificará el Comité Cantonal de Deportes y Recreación en los deportes que así lo determine y sobre la base de su currículum, experiencia y resultados, siendo responsable de su deporte en todos los niveles y su injerencia será para su deporte en todo el Cantón.

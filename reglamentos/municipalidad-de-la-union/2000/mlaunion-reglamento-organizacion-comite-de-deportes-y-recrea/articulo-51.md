@@ -1,0 +1,4 @@
+Artículo 51.—Todas las instalaciones deportivas y recreativas municipales se regirán por las siguientes normas:
+A) Serán de uso público y estarán abiertas a todos, durante el tiempo diario ordinario que su concepto de uso determina por su forma, recursos y factibilidades.
+B) Serán de acceso gratuito a los niños y a todo aquel programa, proyecto o actividad que organicen Entidades Deportivas, donde se tenga participación de los niños, de acuerdo a la regulación emitida para tal efecto en el Reglamento Interno de cada Instalación Deportiva.
+C) Las instalaciones contarán con un Reglamento y un Manual específico de uso y mantenimiento, que deberá ser elaborado por cada Junta Administrativa y puesto al conocimiento del Comité Cantonal de Deportes y Recreación quien una vez avalado lo remitirá al Concejo Municipal para su aprobación.

@@ -1,0 +1,1 @@
+Artículo 52.—Será competencia de las demás Instituciones Públicas, Educativas y no educativas, en cuyos terrenos se han construido o se lleguen a construir, instalaciones para deporte y recreación, la emisión de los reglamentos y manuales de uso y mantenimiento de cada una de esas instalaciones, por los medios que su Ley constitutiva les autorice.

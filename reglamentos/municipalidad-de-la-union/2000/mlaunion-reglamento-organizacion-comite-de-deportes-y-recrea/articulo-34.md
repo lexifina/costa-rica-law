@@ -1,0 +1,1 @@
+Artículo 34.—El presupuesto del deporte y la recreación se pondrá a conocimiento de las autoridades competentes en la primera semana de julio de cada año, el mismo debe de contemplar un plan general de trabajo, incluido su costo y fuentes de financiamiento, sujeto a las disposiciones de la Ley Orgánica de la Contraloría General de la República.

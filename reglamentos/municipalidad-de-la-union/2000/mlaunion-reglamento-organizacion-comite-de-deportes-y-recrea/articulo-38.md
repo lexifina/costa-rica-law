@@ -1,0 +1,1 @@
+Artículo 38.—Podrá el Concejo Municipal, por los medios y en el ámbito que lo determina la ley, efectuar labores de fiscalización, tanto del Comité Cantonal de Deportes y Recreación, Comités Comunales de Deportes y Recreación de Distrito, Juntas Administrativas, Comités Administradores de Instalaciones Deportivas y Recreativas.

@@ -1,0 +1,2 @@
+Artículo 36.—De la subvención recibida por parte de la Municipalidad, el Comité Cantonal de Deportes y Recreación podrá incluir en su presupuesto anual una partida para la compra de terrenos aptos para el deporte y la recreación para que conjuntamente con la Municipalidad desarrollen mejor estructura para el deporte, así como para la construcción de instalaciones deportivas.
+La subvención que debe girar la Municipalidad al Comité Cantonal de Deportes y Recreación, se hará en tractos mensuales.

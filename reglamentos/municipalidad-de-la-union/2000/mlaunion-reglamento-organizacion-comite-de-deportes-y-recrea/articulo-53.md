@@ -1,0 +1,1 @@
+Artículo 53.—Toda instalación deportiva o recreativa, ubicada en terrenos públicos, que se pretenda construir o remodelar deberá ajustarse a los artículos 76, 77, 78 y 79 de la ley 7800 y cumplir además con todos los requerimientos de permisos municipales, más en ningún caso deberá pagar importe alguno por tratarse de un bien comunal que estará a su entero servicio.

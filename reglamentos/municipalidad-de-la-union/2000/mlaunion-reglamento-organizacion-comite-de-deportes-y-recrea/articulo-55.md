@@ -1,0 +1,1 @@
+Artículo 55.—La Junta Administrativa o el Comité Administrativo se reunirá al menos dos veces por mes, en sus instalaciones o en la oficina del Comité Cantonal de Deportes, quedando a criterio de la Junta los días y horas en que sesionarán, siempre que no sea el día lunes.

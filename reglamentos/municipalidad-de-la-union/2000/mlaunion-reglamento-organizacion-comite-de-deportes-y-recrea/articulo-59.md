@@ -1,0 +1,1 @@
+Artículo 59.—Queda prohibido la venta de bebidas alcohólicas y el ingreso de éstas a las instalaciones, también esta prohibido el ingreso de armas de fuego, armas punzo cortantes, envases de lata y de vidrio, así como banderas con su base de madera.

@@ -1,0 +1,1 @@
+Artículo 74.—El Comité Cantonal de Deportes y Recreación, es el órgano competente para imponer las sanciones previstas en el presente Reglamento, una vez que el equipo deportivo, grupo de deportistas, individual o dirigentes, haya sido oído y se le haya dado audiencia por el término de ocho días, para que ejerza su derecho de defensa y ofrezca las pruebas que estime convenientes.

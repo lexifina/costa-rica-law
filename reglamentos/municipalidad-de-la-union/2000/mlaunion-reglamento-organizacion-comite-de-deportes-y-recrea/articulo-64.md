@@ -1,0 +1,1 @@
+Artículo 64.—Los Comités Comunales de Deportes y Recreación, se reunirán por lo menos dos veces al mes en un lugar público y sus sesiones serán públicas, salvo aquellas en que por su naturaleza deben ser privadas.

@@ -1,0 +1,1 @@
+Artículo 31.—Cuando un miembro del Comité renuncie a su cargo, deberá comunicarlo por escrito al Comité, con quince días de antelación a la vigencia de la renuncia. Además deberá entregar por escrito un informe bien detallado de sus gestiones y los documentos que tenga en su poder.

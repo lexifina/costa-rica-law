@@ -1,0 +1,1 @@
+Artículo 65.—Cuando un miembro del Comité Comunal pierda su credencial, el Comité Comunal por simple acuerdo harán la escogencia de la persona. Este acuerdo deberá ser comunicado al Comité Cantonal indicando el número de sesión y artículo respectivo.

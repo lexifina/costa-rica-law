@@ -1,0 +1,1 @@
+Artículo 25.—Los acuerdos que tome el Comité Cantonal de Deportes y Recreación quedarán en firme y ejecutables, contra la aprobación del acta que los contiene, en la sesión ordinaria siguiente a aquella en que se tomaron, salvo los que tengan las características que dispone el artículo 24 de este Reglamento.
