@@ -1,1 +1,2 @@
-ARTICULO 105.- El Jefe de Misión, a discreción y por causales muy graves, puede suspender temporal e internamente a un funcionario honorario pero debe inmediatamente comunicar la acción al Ministerio de Relaciones Exteriores y Culto costarricense con la justificación y pruebas del caso.
+ARTICULO 105.- DEROGADO.
+(Derogado por el artículo 21 del Decreto Ejecutivo No.20209 de 22 de enero de 1991)

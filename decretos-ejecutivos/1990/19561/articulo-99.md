@@ -15,8 +15,7 @@ l) Informarse mensualmente sobre el movimiento consular en su jurisdicción.
 ll) Realizar las inspecciones oculares de los consulados bajo su jurisdicción.
 m) Dar trámite a los exequátur.
 n) Recomendar la concertación de tratados ya cuerdos diplomáticos con el Estado u organismo receptor, preparar la documentación necesaria y tramitar la negociación que se le encomiende.
-ñ) Velar por la confidencialidad de la correspondencia de la Misión.
-Salvo autorización del Ministerio, los archivos de la Misión son confidenciales. Solo el Jefe de Misión puede entregar copias de documentos relacionados con actos administrativos o de trámite.
+ñ) Velar por la confidencialidad de la correspondencia de la Misión. Salvo autorización del Ministerio, los archivos de la Misión son confidenciales. Solo el Jefe de Misión puede entregar copias de documentos relacionados con actos administrativos o de trámite.
 o) Extender visas diplomáticas y oficiales.
 p) Calificar los servicios y actuación de los funcionarios de acuerdo con procedimientos recomendados por la Comisión Calificadora.
 q) Organizar el trabajo del personal de acuerdo con sus funciones, fijar las horas de trabajo, y exigir cortesía, puntualidad y eficacia de los funcionarios.

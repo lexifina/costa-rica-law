@@ -1,4 +1,5 @@
-ARTICULO 18.- La Auditoría Interna estará a cargo de un Auditor. Son sus funciones principales:
+ARTICULO 18.- La Auditoría Interna estará a cargo de un Auditor. Son
+sus funciones principales:
 a) La realización permanente de estudios e investigaciones destinadas a revelar problemas y presentar soluciones en la relación organización-jurisdicción.
 b) Participar en el diseño y en la aprobación de la impresión y reimpresión de formularios.
 c) Participar en la confección y actualización de manuales de organización y procedimientos.

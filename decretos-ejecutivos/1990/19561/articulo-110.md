@@ -1,1 +1,2 @@
-ARTICULO 110.- A discreción del Presidente de la República, y siempre que el Estado receptor lo permita, un funcionario honorario puede servir un cargo diplomático por encima de la limitación estipulada en el artículo precedente, pero este cargo no será permanente ni causará derechos adquiridos en la Carrera, para continuar en la cual deberá retornar a su cargo una vez finalizada la misión para la que es nombrado.
+ARTICULO 110.- DEROGADO.
+(Derogado por el artículo 21 del Decreto Ejecutivo No.20209 de 22 de enero de 1991)

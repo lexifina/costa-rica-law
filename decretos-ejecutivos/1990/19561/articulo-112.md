@@ -1,1 +1,2 @@
-ARTICULO 112.- En ningún caso se dejará de informar al Estado receptor de la categoría honoraria de los funcionarios así nombrados.
+ARTICULO 112.- DEROGADO.
+(Derogado por el artículo 21 del Decreto Ejecutivo No.20209 de 22 de enero de 1991)

@@ -1,4 +1,2 @@
-ARTICULO 101.- La Comisión Calificadora determinará la aceptación o el rechazo de un candidato a servir en puesto honorario con base en los requisitos estipulados en el artículo anterior, y tomará en cuenta preferentemente que el candidato pueda:
-a) Ofrecer facilidades de oficina, personal propio, horas de trabajo y equipo, teléfono, telex, facsímil y otras ayudas para el mejor desempeño de su función, aunque se debe hacer la necesaria diferenciación entre quien llega a trabajar en una misión ya establecida, y quien debe trabajar independientemente y por lo tanto proveerse a sí mismo las necesarias instalaciones.
-b) Hablar el castellano o tener empleado que lo hable, en el caso de extranjeros.
-c) Contar con una sede en dirección estable, conocida y accesible al público, con las facilidades de comunicación necesarias.
+ARTICULO 101.- DEROGADO.
+(Derogado por el artículo 21 del Decreto Ejecutivo No.20209 de 22 de enero de 1991)

@@ -1,1 +1,2 @@
-ARTICULO 114.- El Ministerio de Relaciones Exteriores y Culto no discriminará entre miembros de la Carrera remunerada y miembros honorarios en cuanto a fe y crédito pro sus actos, así como en información e instrucciones dentro de la materia de su competencia que se envíen regularmente al Servicio Exterior de la República.
+ARTICULO 114.- DEROGADO.
+(Derogado por el artículo 21 del Decreto Ejecutivo No.20209 de 22 de enero de 1991)

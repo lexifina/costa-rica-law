@@ -7,7 +7,7 @@ e) Consultar al Centro de Cómputo de Migración acerca de los impedimentos de s
 f) Verificar con el Registro Civil acerca del estado civil, número de cédula y parentesco de los solicitantes.
 g) Coordinar con la Imprenta Nacional la confección y entrega de pasaportes que la misma lleva a cabo, proponiendo cambios razonables necesarios para mejorar y darles más seguridad a los pasaportes.
 h) Mantener registros de los pasaportes diplomáticos, oficiales y de servicio que diariamente se recogen en la Oficina de Migración del Aeropuerto.
-i) Realizar periódicamente con la Procuraduría General de la República incineraciones de pasaportes anulados en presencia de funcionarios del Organismo de Investigación Judicial (OIJ).
+i) ( DEROGADO por el articulo 31 del decreto No. 26951 de 6 de marzo de 1998, Reglamento para el Otorgamiento de Pasaportes Diplomáticos y de Servicio).
 j) Llevar el control de los libros de pasaportes, de visas, revalidaciones, así como del archivo de los expedientes que se abren a los beneficiarios de los pasaportes tanto diplomáticos como oficiales y de servicio.
 k) Prestar atención y evacuar consultas a funcionarios de gobierno y personas particulares que requieren de información en cuanto a emisión de pasaportes, ya sean personales o telefónicas.
 l) Administrar el personal de la oficina, impartiendo las órdenes necesarias y disponiendo la distribución del trabajo.

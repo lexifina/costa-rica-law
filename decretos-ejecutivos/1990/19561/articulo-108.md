@@ -1,1 +1,2 @@
-ARTICULO 108.- Par ala carrera honoraria, se establecen las siguientes normas aplicadas a las dos siguientes categorías de funcionarios, a saber: los residentes permanentes en una sola localidad o jurisdicción, que por razones personales no pueden aceptar traslados, y aquellos funcionarios que sí pueden aceptar traslados, cambios de destino, o misiones que impliquen viajes frecuentes y erogaciones personales, los cuales pueden ser nombrados en todas las categorías del Servicio Exterior según criterio del Ministerio y de la Comisión Calificadora.
+ARTICULO 108.- DEROGADO.
+(Derogado por el artículo 21 del Decreto Ejecutivo No.20209 de 22 de enero de 1991)

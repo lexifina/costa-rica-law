@@ -13,3 +13,4 @@ Reglamento Tareas y Funciones Ministerio Relaciones Exteriores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-04-30 | la propia norma |
+| 2 | 1990-04-30 | SINALEVI (sin norma nombrada) |

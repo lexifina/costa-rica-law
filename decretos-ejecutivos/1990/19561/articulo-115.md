@@ -1,4 +1,2 @@
-ARTICULO 115.- Se exceptúan de lo dispuesto en los Artículos 99 y 106 aquellos funcionarios designados en estados o territorios receptortes en los que no exista jurisdicción de Jefes de Misión Diplomática costarricense.
-En estos casos dichos funcionarios dependerán directamente del Ministerio de Relaciones Exteriores y Culto de Costa Rica el cual tomará muy en cuenta las disposiciones e informaciones del Estado receptor para designar, mantener el nombramiento, o prescindir de sus servicios.
-Mantendrán los rangos en que hayan servido durante los últimos quince años acumulados.
-En casos de anomalías, la opinión del Estado receptor y los informes que este al respecto rinda a la Cancillería costarricense serán trasladados a la Comisión Calificadora, cuya opinión será tomada muy en cuenta por dicha Cancillería al tomar una decisión.
+ARTICULO 115.- DEROGADO.
+(Derogado por el artículo 21 del Decreto Ejecutivo No.20209 de 22 de enero de 1991)
