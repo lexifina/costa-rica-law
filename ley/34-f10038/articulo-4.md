@@ -1,0 +1,1 @@
+Art. 4. Las personas que hayan de reclamar la indemnización de las porciones de tierra de su propiedad que se les haya ocupado para el camino Jeneral que no toca en la comarca de los pueblos, harán sus ocursos en el término fijado en el art. 1. Ante el Juzgado de Hacienda

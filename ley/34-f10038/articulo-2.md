@@ -1,0 +1,1 @@
+Art. 2. En el caso del art° anterior, las Municipalidades recibirán las justificaciones correspondientes y previa mesura, se justificará por peritos nombrados por el interesado y por el Síndico procurador, la porción de tierra ocupada, las cercas y árboles frutales destruidos.

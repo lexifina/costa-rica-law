@@ -1,0 +1,1 @@
+Art. 7. El Jefe Político Superior tomará conocimiento oportuno de la ejecución de este decreto, y el presente Secretario lo hará imprimir, circular y publicar. Dado en San José á veintitrés de noviembre de mil ochocientos cuarenta y tres. –José María Alfaro. –Al Secretario general del Despacho Sr. Dr. José María Castro.”
