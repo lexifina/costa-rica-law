@@ -19,3 +19,4 @@ Reglamento para la Adjudicación de Vivienda del Instituto Nacional de Vivienda 
 | 4 | 1960-05-05 | Decreto Ejecutivo 6 (1960-05-05) |
 | 5 | 1960-09-23 | Decreto Ejecutivo 12 (1960-09-23) |
 | 6 | 1993-06-19 | Reglamento 4315 (1993-06-19) |
+| 7 | 1994-02-17 | Reglamento 4387 (1994-02-17) |
