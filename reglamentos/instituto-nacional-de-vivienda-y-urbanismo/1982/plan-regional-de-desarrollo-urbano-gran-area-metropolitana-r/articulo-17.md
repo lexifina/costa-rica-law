@@ -1,3 +1,1 @@
-Artículo 17.—Aeropuerto Tobías Bolaños
-En los alrededores del Aeropuerto Tobías Bolaños, según plano que puede ser consultado en la Dirección General de Aviación Civil, la Dirección de Urbanismo del INVU y Municipalidad de San José, se establece una franja de control de altura que se medirá del centro del edificio terminal 250 m al norte y 250 m al sur hasta una distancia de 2 Km en direcciones este y oeste. Para este efecto cualquier edificación deberá contar con la autorización de la Dirección General de Aviación Civil.
-(Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta Nª 74 de 20 de abril de 1983).
+Artículo 17.—DEROGADO por artículo 3 del Decreto Ejecutivo N°25902 de 12 de febrero de 1997.

@@ -1,2 +1,1 @@
-Artículo 10.—Retiros mínimos de construcción: frontal 10 m; posterior 5 m, salvo a orillas de ríos y quebradas: 25 m a cada lado, medidos en la proyección horizontal y a partir del borde del lecho. En caso de que el río forme cañones, el retiro se ampliará para abarcar las áreas que tengan más de 20% de pendiente. El retiro de construcción en canales será establecido en cada caso y de acuerdo con las características del terreno a juicio de la autoridad del Distrito de Riego.
-(Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta Nª 74 de 20 de abril de 1983).
+Artículo 10.—DEROGADO por artículo 3 del Decreto Ejecutivo N°25902 de 12 de febrero de 1997.

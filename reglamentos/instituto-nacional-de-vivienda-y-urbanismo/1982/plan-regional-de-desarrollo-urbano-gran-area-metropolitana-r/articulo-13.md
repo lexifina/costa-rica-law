@@ -1,1 +1,1 @@
-Artículo 13.—Los permisos de construcción y de urbanización que se proyecten en esta zona deberán ser presentados a nivel de anteproyecto a la autoridad competente del proyecto de riego del río Itiquís para su aprobación.
+Artículo 13.—DEROGADO por artículo 3 del Decreto Ejecutivo N°25902 de 12 de febrero de 1997.

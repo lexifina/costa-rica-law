@@ -1,1 +1,1 @@
-Artículo 11.—No se permitirá el establecimiento ni el funcionamiento de fábricas u otras instalaciones que ocasionen contaminación química, biológica o física de las aguas de la zona de proyecto de riego del río Itiquís.
+Artículo 11.—DEROGADO por artículo 3 del Decreto Ejecutivo N°25902 de 12 de febrero de 1997.

@@ -1,7 +1,6 @@
-Artículo 2°—El área necesaria para las servidumbres eléctricas será como mínimo de 6 m o mayor si así lo estableciere el Instituto Costarricense de Electricidad según el voltaje de la línea de transmisión; además:
-a) En tales áreas no se podrá edificar pero sí podrán dedicarse a parques con arbustos y árboles bajos pudiendo computarse para efectos del artículo 40 de la Ley de Planificación Urbana siempre que estén integradas razonablemente a las áreas principales de parque.
-b) Igualmente podrán utilizarse para la construcción de calles, sean paralelas o transversales a las líneas eléctricas;
-En el caso de calles paralelas el diseño será de boulevares, dejándose para jardinera central, como mínimo, la que requiera el ICE para la debida protección de las torres; a éstas, adicionalmente deberá hacérseles las obras de protección que dicte el ICE;
-c) Las urbanizaciones afectadas por servidumbres eléctricas deberán ser presentadas al ICE, a nivel de anteproyecto, para su debida aprobación. Si se propusiera algún tipo de arborización en las servidumbres, las especies deberán indicarse en esta etapa; y
-d) En el caso de planos constructivos de una urbanización afectada por servidumbre eléctrica, se deberá acompañar la nota de aprobación del ICE indicada en el inciso anterior.
-(Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta Nª 74 de 20 de abril de 1983).
+Artículo 2°—El área necesaria para las servidumbres eléctricas, será como mínimo de seis metros o mayor si así lo estableciera el Instituto Nacional de Electricidad según el voltaje de la línea de transmisión, además,
+2.1 En tales áreas no se podrá edificar, pero si podrán dedicarse á parques con arbustos y árboles bajos, pudiendo computarse para efectos del artículo cuarenta de la Ley de Planificación Urbana, siempre que estén integradas razonablemente a las áreas principales de parque.
+2.2 Igualmente podrán utilizarse para la construcción de calles sean , paralelas o transversales a las líneas eléctricas. En el caso de calles paralelas el diseño será bulevar, dejándose para jardinera central como mínimo la que requiera el ICE para la debida protección de las torres, a éstas adicionalmente deberá hacérseles las obras de protección que dicte el ICE.
+2.3 Las urbanizaciones afectadas por servidumbres eléctricas deberán ser presentadas al ICE a nivel de anteproyecto para su debida aprobación. Si no propusiera algún tipo de arborización en las servidumbres las especies deberán indicarse en esta etapa
+2.4 En el caso de planos constructivos de una Urbanización, afectada por servidumbres eléctricas, se deberá acompañar de una nota de aprobación del ICE indicada en el inciso anterior.
+(Así reformado por Decreto Ejecutivo N° 25902 de 12 de febrero de 1997).

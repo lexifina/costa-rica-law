@@ -1,1 +1,1 @@
-Artículo 15.—Sólo se permitirá en esta zona el uso agropecuario y recreativo, no pudiendo realizarse en ella ningún tipo de edificación permanente.
+Artículo 15.—DEROGADO por artículo 3 del Decreto Ejecutivo N°25902 de 12 de febrero de 1997.
