@@ -1,0 +1,1 @@
+Artículo 3°— La Administración del Refugio Nacional de Vida Silvestre Caño Negro, corresponderá al Departamento de Vida Silvestre del Ministerio de Agricultura y Ganadería de conformidad con lo establecido en la ley N° 6919 del 17 de noviembre de 1983.
