@@ -1,0 +1,17 @@
+DECRETO N°. XXVIII.
+(de 12 de Agosto.)
+Aprueba un contrato celebrado entre el Ministro de Fomento y Mr. Minor C. Keith, modificando el que celebró este último con el Gobierno para constricción del Ferrocarril al Norte, junto con su adicional.
+JOSE J. RODRÍGUEZ
+PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
+Habiendo el señor con don Minor C. Keith en escrito de 9 de Junio último solicitado ampliación de los términos que en decretos de 20 de Agosto de 1888 y de 7 de Enero de 1892, se le señalaron para la ejecución del ferrocarril á Río Frío y la reforma del contrato respectivo. Siendo de conveniencia pública la construcción de aquella obra y tendiendo á facilitar su realización del contrato celebrado entre los señores Secretario de Estado en el despacho de Fomento y el citado señor Keith el 28 de Julio próximo pasado.
+Por tanto, en uso de facultades extraordinarias,
+DECRETA:
+Artículo único. —Apruébase definitivamente y téngase en consecuencia, como ley de la República, el contrato mencionado, que literalmente dice:
+“JOSÉ VARGAS M., Secretario de Estado en el despacho de Fomento, debidamente autorizado para este acto por el Presidente de la República, y MINOR COOPER KEITH Y MEIGGS, mayor de edad, empresario, ciudadano norteamericano y vecino de aquí, hemos convenido introducir las siguientes modificaciones al contrato para construcción ferrocarril al Norte de Costa Rica, aprobado por decreto número 6 de 20 de Agosto de 1880, y á su adicional aprobado en decreto número 6 de 20 de Agosto de 1880, y á su adicional aprobado en decreto número 4 de 7 de Enero de 1892.
+I.—Se amplía hasta el 1° de Enero de 1895 el término que según Decreto número 4 de 7 de Enero de 1892, vence el 30 de Junio de 1893, concedido á Keith para dar cuenta al Gobierno de estar listo el capital destinado á la construcción del ferrocarril del Norte, ó hechos los arreglos necesarios. En consecuencia, quedan también ampliados hasta el citado primero de Enero el término para dar comienzo á los trabajos y hasta el 1°. de Enero de 1898 el término dentro del cual deberá estar concluído definitivamente y abierto al servicio público el mencionado ferrocarril.
+II. —La Empresa del ferrocarril del Norte podrá cobrar hasta seis pesos por flete de cada cabeza de ganado vacuno, mular ó caballar, siempre que el trasporte haya de ser de uno á otro extremo del trayecto. Cuando no fuere así, el precio será proporcional á la distancia, ero en tal caso podrá cobrarse además un peso por embarque y desembarque de cada cabeza. En ningún caso el monto total del flete excederá de seis pesos por cabeza.
+III. —Quedan exentas de muellaje las mercaderías en tránsito de ó para Nicaragua.
+IV. —Se sustituye el párrafo segundo, inciso a) de la cláusula II del citado contrato adicional, con el siguiente, que es el mismo que contenía el contrato primitivo “Zeledón-Keith”. Los terrenos que á los veinticinco a{os no estuvieren cultivados ó de otra manera aprovechados, volverán al dominio del Estado.” —En fe de lo cual firman los otorgantes en el Palacio Nacional, en San José, á veintiocho de Julio de mil ochocientos noventa y tres. —(f) J. Vargas M. —(f.) Minor C. Keith. —Casa Presidencial, San José, veintiocho de Julio de mil ochocientos noventa y tres. —Apruébase el contrato anterior. —(Hay una Rúbrica.) —Rubricado por el señor Presidente. —(f.) Vargas M.”
+Dado en la Casa Presidencial, en San José, á doce de Agosto de mil ochocientos noventa y tres.
+JOSÉ J. RODRÍGUEZ.
+El Secretario de Estado en el despacho de Fomento. —J. VARGAS M.
