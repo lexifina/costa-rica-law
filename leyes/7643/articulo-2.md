@@ -1,0 +1,12 @@
+Artículo 2.- Reformas del Capítulo III, Título V, Libro III del Código Procesal Civil
+Refórmanse el párrafo primero del artículo 741 y los artículos 745 y 752 del Libro III, Título V, Capítulo III del Código Procesal Civil. Los textos deberán leerse así:
+"Artículo 741.- Recursos
+La resolución que decrete la apertura del concurso o la que lo deniegue, tendrá recurso de revocatoria y de apelación con efecto devolutivo. La primera admitirá, además, el recurso de casación, si lo permitiere la cuantía del asunto. [...]"
+"Artículo 745.- Proceso por derecho personal Cuando el derecho ejercitado contra el fallido fuere puramente personal, sobre una pretensión en dinero o liquidable en numerario, se suspenderá, aun de oficio, todo procedimiento que no sea de mera conservación o seguridad, a partir de los plazos señalados en el artículo 768. Los embargos sobre bienes del fallido se mantendrán en favor de la masa de acreedores y el actor deberá legalizar su crédito en el concurso, conforme a lo dispuesto en la sección siguiente.
+Si en el proceso existieren varios demandados, únicamente se suspenderá en cuanto al fallido, pero se continuará respecto de los demás. [...]"
+"Artículo 752.- Aceptación, oposición y trámite
+La existencia, cantidad y preferencia de un crédito se reputarán reconocidas e indisputables, cuando el curador y el deudor las hubieren aceptado y los acreedores las hubieren reconocido unánimemente. El juez deberá dictar resolución en tal sentido.
+Si el informe del curador objetare alguno de esos aspectos del crédito o si el deudor o los acreedores presentaron impugnaciones dentro del término señalado en el artículo anterior o antes, se oirá por cinco días a los acreedores objetados. Al contestar, deberán ofrecer las pruebas que correspondan, de las cuales el juez ordenará recibir las que considere pertinentes. Estas pruebas deberán ser evacuadas dentro del plazo de veinte días y se prescindirá de las no evacuadas en ese plazo, sin necesidad de resolución al efecto.
+Vencida la audiencia sin ofrecerse ninguna prueba o una vez evacuada la prueba ofrecida por las partes que fue aceptada o prescindida la que falte, el juez resolverá lo que corresponda, salvo que ordene alguna para mejor proveer. El plazo para resolver será de quince días.
+Lo resuelto admitirá los recursos ordinarios y aun el de casación, si procediere de acuerdo con la cuantía. Lo que se decida tendrá la autoridad y eficacia de la cosa juzgada material.
+Al acreedor rechazado se le devolverán sus títulos, con la razón correspondiente."

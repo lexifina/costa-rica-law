@@ -1,0 +1,1 @@
+Transitorio II.- Los procedimientos de convenio preventivo en los cuales no se hubiere celebrado la junta para conocer de la propuesta de convenio, deberán adecuarse en su procedimiento para ajustarlos a las disposiciones de esta ley.
