@@ -14,3 +14,4 @@ Reglamento para Juzgar la situación económica financiera de las Asociaciones M
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-22 | la propia norma |
+| 2 | 2001-06-11 | Reglamento 231 (2001-06-11) |
