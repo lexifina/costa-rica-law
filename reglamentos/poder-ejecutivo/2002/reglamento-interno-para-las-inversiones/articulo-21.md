@@ -1,0 +1,4 @@
+SECCIÓN IV
+Registro de inversiones
+Artículo 21.—El Departamento Financiero será el responsable de llevar un registro detallado de todas las inversiones realizadas, temporales o permanentes, así como de las que se encuentren en tránsito por renovación o proceso de cancelación. El registro llevado por el Área de Contabilidad se considerará el principal y el de Tesorería, el auxiliar.
+Asimismo, las dos serán responsables de desarrollar mecanismos de coordinación necesarios para que dichos registros estén debidamente actualizados entre sí. Ambos serán revisados y actualizados una vez al mes como mínimo. Cada área responsable llevará su registro en disco duro de computadora y de respaldo en disquetes; todos serán custodiados por los funcionarios responsables designados para el efecto por la coordinación de cada área.

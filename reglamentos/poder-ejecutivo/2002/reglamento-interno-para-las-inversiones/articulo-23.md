@@ -1,0 +1,1 @@
+Artículo 23.—El Departamento Financiero dispondrá las medidas pertinentes para que los registros contengan la información suficiente, relevante y oportuna que le permitan a la administración ejercer un control estricto de las inversiones para la toma de decisiones.

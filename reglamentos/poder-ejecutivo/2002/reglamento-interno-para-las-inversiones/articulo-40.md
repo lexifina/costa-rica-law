@@ -1,0 +1,1 @@
+Artículo 40.—Cuando el encargado de Tesorería entregue títulos valores y sus cupones para la cancelación o reinversión, deberá mediar nota o documento, con la firma de recibido del funcionario a quien le corresponde efectuar la transacción.

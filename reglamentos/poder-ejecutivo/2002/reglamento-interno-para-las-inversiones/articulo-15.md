@@ -1,0 +1,1 @@
+Artículo 15.—El Departamento Financiero debe remitir, con antelación al vencimiento del título valor, un informe al Comité de Control y Evaluación de Inversiones, justificando la reinversión del principal e intereses.

@@ -1,0 +1,1 @@
+Artículo 22.—El Departamento Financiero separará las funciones de registro y custodia de las inversiones en valores. Para cada función, la Dirección del Departamento nombrará a un servidor responsable.

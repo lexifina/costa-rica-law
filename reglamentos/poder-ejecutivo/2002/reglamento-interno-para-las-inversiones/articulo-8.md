@@ -1,0 +1,3 @@
+SECCIÓN II
+Evaluación y autorización
+Artículo 8°—Créase el Comité de Control y Evaluación de Inversiones, integrado por el Director Ejecutivo, quien lo presidirá y los Directores del Departamento Financiero. Legal y de la División Administrativa, este último actuará como fiscalizador con voz, pero sin voto, su objetivo será determinar, mediante un flujo de caja o presupuesto de efectivo y los recursos disponibles, el instrumento de la inversión, su plazo y la institución más conveniente para que la Asamblea Legislativa invierta, después de una profunda investigación del mercado. El Comité podrá solicitar la asesoría del Auditor General, sobre aspectos específicos referidos exclusivamente a materia de su competencia.

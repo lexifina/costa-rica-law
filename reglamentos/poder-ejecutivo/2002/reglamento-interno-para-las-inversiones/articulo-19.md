@@ -1,0 +1,1 @@
+Artículo 19.—Una vez que el puesto de bolsa recibe los títulos de la entidad emisora debe remitir, dentro de las veinticuatro horas siguientes, una fotocopia de los valores adquiridos y de sus respectivos cupones por intereses.

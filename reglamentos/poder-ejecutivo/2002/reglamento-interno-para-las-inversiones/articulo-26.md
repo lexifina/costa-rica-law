@@ -1,0 +1,1 @@
+Artículo 26.—Los registros de los títulos valores o las inversiones que llevan el área contable y de tesorería, servirán de control cruzado entre ellas y los informes que remita el puesto de bolsa o la entidad encargada de manejar la inversión.

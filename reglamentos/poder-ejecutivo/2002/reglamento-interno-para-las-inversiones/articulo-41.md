@@ -1,0 +1,1 @@
+Artículo 41.—Si ingresan los títulos después de una reinversión, el funcionario asistente de tesorería deberá entregárselos al encargado de Tesorería, mediante nota o documento con constancia de recibido.

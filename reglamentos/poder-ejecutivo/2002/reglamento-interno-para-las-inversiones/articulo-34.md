@@ -1,0 +1,1 @@
+Artículo 34.—La Tesorería del Departamento Financiero registrará, en forma detallada y conciliará por escrito, los títulos valores que se mantienen en custodia en la entidad financiera, contra los registros que esta lleve e informará de los resultados al Director del Departamento Financiero.

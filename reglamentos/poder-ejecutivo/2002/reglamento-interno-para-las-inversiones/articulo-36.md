@@ -1,0 +1,1 @@
+Artículo 36.—El encargado de Tesorería comparara por lo menos una vez al mes la existencia física de las copias de los valores y los originales de las inversiones, con lo indicado en el registro diario de tesorería, dejando evidencia e informando al Director del Departamento Financiero del resultado.

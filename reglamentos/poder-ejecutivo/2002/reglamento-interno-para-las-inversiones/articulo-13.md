@@ -1,0 +1,1 @@
+Articulo 13.—Los recursos que se mantengan para cubrir las necesidades corrientes de la Asamblea Legislativa podrán invertirse a la vista por medio de una cuenta comente en un banco estatal, de manera que mientras no se utilicen en los gastos normales de la Institución, puedan generar intereses.

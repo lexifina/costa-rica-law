@@ -1,0 +1,1 @@
+Artículo 33.—El Departamento Financiero deberá elaborar, para la administración, informes mensuales, relevantes y oportunos sobre el manejo de inversiones, los cuales deberán ser remitidos a la Auditoría Interna cuando los soliciten.

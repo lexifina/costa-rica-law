@@ -1,0 +1,1 @@
+Artículo 30.—El registro contable del ingreso por intereses, así como de los títulos no reinvertidos depositados en la cuenta comente, se efectuara contra las boletas de depósito, previa confección del recibo por dinero que indicará, entre otros datos, el monto, número de los cupones y títulos vencidos.
