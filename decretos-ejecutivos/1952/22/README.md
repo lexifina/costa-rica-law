@@ -13,3 +13,4 @@ Reglamento General Preparación, Ejecución y Liquidación de Presupuesto
 | --- | --- | --- |
 | 1 | 1952-05-03 | la propia norma |
 | 2 | 1997-10-06 | Decreto Ejecutivo 26402 (1997-10-06) |
+| 3 | 1997-10-06 | Ley 8 |
