@@ -1,0 +1,1 @@
+Artículo 2°—De la creación del beneficio. Créase el beneficio de dedicación exclusiva como un factor de incentivo adicional al salario de los funcionarios de la Municipalidad de Pérez Zeledón de acuerdo a los criterios y procedimientos que establece al respecto este Reglamento.

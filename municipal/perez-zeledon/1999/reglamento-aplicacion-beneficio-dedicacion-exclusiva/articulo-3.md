@@ -1,0 +1,3 @@
+Artículo 3°—De los objetivos del beneficio. El beneficio de la dedicación exclusiva tiene como principales objetivos los siguientes:
+a) Obtener del servidor municipal su completa dedicación a la función institucional pública no sólo aportando los conocimientos que se deriven de su profesión u oficio, sino también evitando así su fuga hacia otras organizaciones, privando de esta manera a la Administración Municipal de funcionarios idóneos y capaces.
+b) Servir como incentivo motivador a la obtención del más alto nivel académico buscando con ello la superación personal y la profesionalización de los servicios municipales.

@@ -1,0 +1,1 @@
+Artículo 19.—Función de la Unidad de Recursos Humanos. La Unidad de Recursos Humanos debe velar por el cumplimiento de las disposiciones establecidas en el presente Reglamento y en los contratos suscritos, sin perjuicio de las regulaciones establecidas en el ordenamiento jurídico respecto a materia profesional o municipal.

@@ -1,0 +1,1 @@
+Artículo 10.—Término para resolver la solicitud. La Unidad de Recursos Humanos deberá resolver la aprobación o rechazo de la solicitud en un plazo máximo e improrrogable de diez días hábiles a partir del día inmediato siguiente del de la fecha de presentación.
