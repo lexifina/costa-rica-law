@@ -14,3 +14,4 @@ Normas prácticas para el trámite de las comisiones para notificar y Establece 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-04-14 | la propia norma |
+| 2 | 2003-07-31 | Circular 65 (2003-07-31) |
