@@ -6,5 +6,6 @@ ch) Facilitar el acceso a la información relativa al sector.
 d) Contribuir al mejoramiento de las relaciones con otras redes y sistema nacionales e internacionales.
 e) Estimular y orientar la formación de usuarios e informadores en el Sector.
 f) Capacitar el recurso humano para atender las demandas de información.
-g) Establecer normas metodológicas adecuadas y procedimientos de acuerdo a las necesidades para el procesamiento de la información del Sector, considerando la capacidad de las unidades de información.
+g) Sugerir metodologías adecuadas y procedimiento para el procesamiento de la información bibliográfica del Sector Agropecuario.
+(Así reformado por el articulo N° 1 del decreto ejecutivo N° 29621 de 15 de marzo de 2001).
 h) Gestionar y canalizar apropiadamente los recursos de cooperación técnica y financiera provenientes de fuentes externas e internas para impulsar el desarrollo de las unidades de información.

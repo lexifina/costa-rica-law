@@ -1,1 +1,2 @@
-Artículo 7°—Las unidades de información integrantes de la Red deberán enviar especialmente las referencias de la información que su institución genere, para ser ingresada a la base de datos central y a la vez podrán recibir la información de otras unidades participantes contenidas en esta base, o según sus intereses.
+Artículo 7°—Para mantener la Bibliografía Agropecuaria Nacional, los Centros Participantes deberán alimentar regularmente el sitio web de la REDNIA, con la Información bibliográfica que sus instituciones generen.
+(Así reformado por el articulo N° 1 del decreto ejecutivo N° 29621 de 15 de marzo de 2001).
