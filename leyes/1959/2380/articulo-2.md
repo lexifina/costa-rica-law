@@ -1,0 +1,1 @@
+Artículo 2°-Los derechos a que se refiere el presente decreto, son los originados por depósitos de mercaderías en las aduanas, según los artículos 104 y 106 del Código Fiscal referidos en la ley N° 1432 de 17 de marzo de 1952.
