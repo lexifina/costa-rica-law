@@ -1,0 +1,1 @@
+Artículo 102. —Los reclamos de nulidad no impiden que los individuos electos entren desde luego en el ejercicio de sus funciones y se mantengan en él, mientras no se declare la nulidad por la autoridad competente.

@@ -1,0 +1,1 @@
+Artículo 40.-Corresponde privativamente á la Junta, resolver sobre las excusas que presenten los nombrados. para ejercer el cargo de electores y no se les admitirá sino por enfermedad grave que les impida desempeñar sus funciones, y cuando fuere presentada dentro de cuarenta y ocho horas después de comunicada la elección

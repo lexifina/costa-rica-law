@@ -1,0 +1,2 @@
+Artículo 32.-Coneluído el término señalado para las votaciones, la Junta de distrito las dará por terminadas, poniendo razón de ello en el registro.
+Uno de Ios registros de elecciones se remitirá inmediatamente en pliego cerrado y sellado al Presidente de la Junta electoral de provincia ó comarca, con el ejemplar de las listas principal y complementaria que sirvieron para las votaciones, y el otro lo conservará en su archivo el Presidente de dicha Junta, para el caso de tener que ocurrirse a él por extravío ó destrucción del primer ejemplar.

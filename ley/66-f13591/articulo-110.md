@@ -1,0 +1,1 @@
+Artículo 110.—Cuando la Junta ó Asamblea pidiere fuerza armada para apoyar sus resoluciones y mantener el orden, por el hecho de entrar al recinto quedará exclusivamente sujeta al Presidente. El Jefe de dicha tuerza no puede obrar sino á virtud de órdenes impartidas por él.

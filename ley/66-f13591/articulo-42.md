@@ -1,0 +1,1 @@
+Artículo 42 -Una vez declarada la elección de electores, foca al Gobernador llamar a los suplentes, á falta de los principales, llegado el caso, prefiriendo siempre á los suplentes residentes en la respectiva capital.

@@ -1,0 +1,1 @@
+Artículo 86.—Si no hubiere proposición para que se declare que no hay elección en el que reune la pluralidad absoluta, ó si dicha proposición fuese resuelta negativamente, se declarará por el Congreso, electo Presidente de la República al que haya obtenido dicha pluralidad absoluta de votos.

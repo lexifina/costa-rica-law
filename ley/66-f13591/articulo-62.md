@@ -1,0 +1,1 @@
+Artículo 62.—Terminado el escrutinio, el Presidente anunciará en alta voz su resultado, especificando, según la nota tomada por los Escrutadores, el número de papeletas leídas, el de los electores que hubieren votado, y el de los votos que hubiere obtenido cada candidato.

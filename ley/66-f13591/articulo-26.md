@@ -1,0 +1,1 @@
+Artículo 26.—La Junta de provincia ó comarca, con vista de la copia certificada de la diligencia que se expresa en el artículo anterior, oídos los interesados si se presentaren, y sin más actuación, decidirá definitivamente, remitiendo, sin demora, á la Junta de donde procede el asunto, la resolución dictada.

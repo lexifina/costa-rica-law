@@ -1,0 +1,1 @@
+Artículo 119 —Cuando alguna corporación pública ú funcionario faltare al cumplimiento de los deberes que le impone esta ley, caya falta no tenga pena señalada, incurrirá en una multa de veinticinco á cien pesos; pero si de la falta resultare que no se hace una votación curre en alguna nulidad, la multa será doble.

@@ -1,0 +1,3 @@
+Artículo 89. —Decidido cuales sean los individuos por quienes pueda votarse para perfeccionar en uno de ellos la elección, cada miembro del Congreso dará su voto por medio de una papeleta en que esté escrito el nombre y el apellido del individuo por quien vota.
+Los Secretarios recogerán las papeletas y las leerán después de una en una, en voz alta, llevando cuenta de los votos que resulten á favor de cada individuo. Si resultare que alguno ha obtenido la pluralidad absoluta de votos, el Congreso lo declarará electo.
+Si ninguno hubiere obtenido dicha pluralidad, se contraerá la elección á los que mayor número de votos hayan obtenido en el anterior escrutinio, y se repetirán las votaciones y escrutinios hasta obtener pluralidad.
