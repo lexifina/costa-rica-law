@@ -1,0 +1,1 @@
+Artículo 3º—Expresar al Ilustrado Gobierno de la República de Chile por la vía diplomática, las sentidas condolencias del Gobierno y del Pueblo de la República de Costa Rica, extensivas a las familias de los funcionarios chilenos fallecidos en la tragedia.
