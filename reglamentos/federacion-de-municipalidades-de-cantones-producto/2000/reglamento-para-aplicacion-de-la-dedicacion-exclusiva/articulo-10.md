@@ -1,0 +1,1 @@
+Articulo 10º.—Los profesionales que estén acogidos a la Dedicación Exclusiva y hayan disfrutado de un permiso sin goce de salario, al regresar, pueden seguir devengando el pago de dicho incentivo, siempre y cuando el contrato esté vigente.

@@ -1,0 +1,1 @@
+Artículo 11.—Los beneficios de la dedicación exclusiva se suspenderán en el momento de que se compruebe el incumplimiento de cualquiera de los requisitos establecidos en el artículo 3°, de este Reglamento.
