@@ -1,0 +1,1 @@
+Artículo 2°—Se instruye a la Administración de AYA para incorporar dentro del Plan Operativo anual Institucional las metas y estrategias a efectos de implementarlas a corto, mediano y largo plazo por parte de cada Dirección, unidad y funcionario; así como establecer los indicadores de cumplimiento y rendición de cuentas semestralmente.
