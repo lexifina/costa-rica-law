@@ -1,0 +1,1 @@
+Art. 6° A prevencion tambien con los Alcaldes Constitucionales, según el valor de la obligacion ó contrato, el Juez de Minas llevará la cartulacion ó sea el rejistro de los instrumentos relativos á los mineros como tales, ó à sus contratos, obligaciones ó empresas en el ramo de Minas.

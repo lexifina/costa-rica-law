@@ -1,0 +1,1 @@
+Art. 2: Conocerá privativamente el Juez de Minas, en terminación verbal, de los juicios, cuyo interes no exceda de doscientos cincuenta pesos, y en los cuales se dispute y deba terminarse sobre despilaramiento de minas y otras obras de su laboreo: sobre rescate de metales: sobre contratos y obligaciones de los mineros, y sobre cualquier objeto relativo á sus empresas como tales.

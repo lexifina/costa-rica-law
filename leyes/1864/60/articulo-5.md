@@ -1,0 +1,1 @@
+Art. 5° Sobre delitos mayores con relación á las indicadas materias el Juez de Minas instruirá á prevencion con los Jueces, Alcaldes y demás autoridades competentes la correspondiente sumaria y la pasará al Juez de Hacienda juntamente con los reos, si hubiesen sido aprehendidos, para su conocimiento y determinacion.
