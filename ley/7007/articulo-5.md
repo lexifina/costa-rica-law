@@ -1,0 +1,56 @@
+Artículo 5º.- Modifícase el artículo 13 de la Ley de Pensiones de
+Hacienda, Nº 148 de 23 de agosto de 1943 y sus reformas, cuyo texto dirá:
+"Artículo 13.-Los empleados y funcionarios de la Asamblea Legislativa
+y de la Contraloría General de la República, y los que presten sus
+servicios en dependencias e instituciones del Estado, que tengan derecho a
+acogerse a los beneficios de la presente ley, podrán pedir su jubilación,
+con derecho a recibir una pensión igual al sueldo promedio devengado en la
+institución al momento de jubilarse, siempre que hayan servido más de
+treinta años y tengan más de cincuenta años de edad.
+Cuando hayan servido menos de treinta años pero más de diez, la
+pensión será proporcional al número de años servidos. Este régimen de
+pensiones será facultativo para los diputados y ex diputados, por lo que no
+quedarán protegidos por sus beneficios ni obligados a contribuir
+económicamente para el fondo respectivo, cuando comuniquen por escrito al
+Directorio de la Asamblea Legislativa que no se desean pertenecer al
+régimen.
+El Directorio comunicará a la oficina correspondiente esas
+exclusiones, para que en esos casos no se hagan las deducciones señaladas
+en el artículo 10 de esta ley.
+En el caso de los diputados y ex diputados, la jubilación será igual
+al sueldo promedio devengado en los últimos cinco años, al servicio de la
+Administración Pública, y en ningún caso podrá ser menor de diez mil
+colones mensuales.
+Los años desempeñados como diputados se computarán a los otros años
+servidos a la Administración Pública, para que así se puedan demostrar
+diez años de servicio como mínimo.
+Los ex miembros de los Supremos Poderes, incluidos los vicepresidentes
+y viceministros podrán acogerse a los derechos establecidos en este
+artículo, si no están protegidos por otros regímenes de jubilación, siempre
+que hayan servido a la Administración Pública por un mínimo de diez años y
+tengan más de cincuenta años de edad, en cuyo caso tendrán derecho a una
+jubilación no menor de diez mil colones mensuales.
+Se interpreta auténticamente que los ex ministros y los ex
+viceministros también son aquellos que ocuparon cargos de Secretario y
+Subsecretario de Estado. Asimismo aquellas personas a quienes se les dio
+el rango de ministro o viceministro.
+Los cónyuges sobrevivientes de los mencionados ex funcionarios y las
+hijas no casadas o inválidas tendrán el mismo derecho.
+La pensión de los ex diputados jubilados por cualquiera de los
+regímenes de pensiones se incrementará cada año en su treinta por ciento
+sobre el monto de la pensión de que disfruten, sin sujeción a los años de
+servicio y, en ningún caso, el monto total de la pensión podrá ser mayor
+a la remuneración total de las dietas o salarios que devengue mensualmente
+un diputado, por concepto de sesiones de comisión y de plenario de la
+Asamblea Legislativa.
+Las pensiones a que se refiere este régimen estarán sujetas a las
+siguientes deducciones:
+a) Las contempladas en el artículo 10 de esta ley.
+b) Las que indica la ley Nº 3808 del 22 de noviembre de 1966.
+c) Las cuotas para la Caja Costarricense de Seguro Social.
+ch) Las que indique el beneficiario de la pensión de la Oficina
+Técnica Mecanizada, y la proporción correspondiente en caso de pensión
+alimenticia.
+El Ministerio de Hacienda girará, a cada régimen, la suma necesaria
+para que pueda cubrir el incremento fijado por esta ley, para lo cual
+hará las previsiones presupuestarias correspondientes".
