@@ -1,0 +1,1 @@
+ARTICULO 2.- Forma de cumplir la obligacion de identificacion del origen del banano La obligacion de identificar el banano producido en Costa Rica para la exportacion, se cumplir colocando un sello en cada mano de banano y en las cajas o bultos de cualquier peso, en el que se consigne la frase: "Banano de Costa Rica".
