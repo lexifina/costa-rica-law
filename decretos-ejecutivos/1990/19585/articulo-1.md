@@ -1,8 +1,9 @@
 DECRETOS EJECUTIVOS
 Nº 19585
 1º.- Que mediante el artículo 46 de la ley número 1917 del 9 de agosto de 1955, reformado por el artículo 111 de la ley número 7015 del 22 de noviembre de 1985, se crea un impuesto del 8% del valor de los pasajes vendidos en Costa Rica, para cualquier clase de viajes internacionales, y de los vendidos en el exterior que se originen en Costa Rica.
-2º.- Que con decreto ejecutivo número 15276-H-MEIC, se reglamenta el control y recaudación del impuesto precitado. 3º.- Que en el transcurso del tiempo se ha determinado la necesidad de mejorar la reglamentación indicada, buscando una mayor eficiencia en el control y la recaudación del impuesto. Por tanto;
-De conformidad con el artículo 140, inciso 3) de la ConstituciónPolítica, artículos 23 y 24 del Código de Normas y Procedimientos Tributarios, artículos 12, inciso b) y 23 de la ley Nº 5339 de 23 de agosto de 1973, "Reguladora de Agencias de Viajes", ley número 1917 de 30 de junio de 1955, reformada por leyes números 2723 de 20 de febrero de 1961 y 2763 de 22 de junio de 1961; y ley número 7015 de 22 de noviembre de 1985,
+2º.- Que con decreto ejecutivo número 15276-H-MEIC, se reglamenta el control y recaudación del impuesto precitado.
+3º.- Que en el transcurso del tiempo se ha determinado la necesidad de mejorar la reglamentación indicada, buscando una mayor eficiencia en el control y la recaudación del impuesto. Por tanto;
+De conformidad con el artículo 140, inciso 3) de la Constitución Política, artículos 23 y 24 del Código de Normas y Procedimientos Tributarios, artículos 12, inciso b) y 23 de la ley Nº 5339 de 23 de agosto de 1973, "Reguladora de Agencias de Viajes", ley número 1917 de 30 de junio de 1955, reformada por leyes números 2723 de 20 de febrero de 1961 y 2763 de 22 de junio de 1961; y ley número 7015 de 22 de noviembre de 1985,
 DECRETAN:
 El siguiente
 Reglamento para el Control y Recaudación del Impuesto del 8% del Valor de los Pasajes Internacionales
