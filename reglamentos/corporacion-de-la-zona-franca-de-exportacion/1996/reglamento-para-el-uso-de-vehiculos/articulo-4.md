@@ -1,0 +1,2 @@
+Artículo 4°-Todos los vehículos de uso administrativo, con excepción de los que se encuentren en cumplimiento de giras o misiones especiales de trabajo, deben ser guardados y custodiados al final de la jornada ordinaria en el garaje 1) aparcamiento que la Corporación haya asignado previamente.
+El vehículo de uso discrecional deberá guardarse en lugares que reúnan condiciones mínimas de seguridad, de lo cual será responsable el funcionario que lo tenga a su cargo, debiendo responder civil y disciplinariamente por cualquier daño que se le cause al vehículo.

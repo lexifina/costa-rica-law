@@ -1,0 +1,1 @@
+Artículo 9°-No se hará uso de vehículos de la Corporación cuando resulte más ventajoso realizar un viaje utilizando servicios particulares o de transporte colectivo de personas y su uso no perjudique la efectividad y oportunidad del trabajo, todo a juicio de la Gerencia Administrativa Financiera.

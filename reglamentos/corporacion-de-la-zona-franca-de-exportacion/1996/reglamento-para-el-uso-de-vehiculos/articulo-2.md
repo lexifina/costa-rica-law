@@ -1,0 +1,4 @@
+Artículo 2°-Para efectos de este Reglamento, los vehículos propiedad de la Corporación, se clasifican en:
+a) De uso discrecional: El asignado por la Junta Directiva al Gerente General, dada la índole de sus funciones y para el mejor desempeño de éstas. El Gerente General será el responsable de la correcta utilización de dicho vehículo.
+La Asignación de este vehículo será, únicamente, con la finalidad de un mejor desempeño de las labores de la Gerencia General, por lo que en ningún caso podrá ser considerado como beneficio, mejora salarial, salario en especie o en alguna forma parte del contrato de trabajo a favor del Gerente General. quien deberá utilizarlo, exclusivamente, en labores relativas al ejercicio de sus funciones.
+b) De uso Administrativo: Todos los demás vehículos, destinados a prestar servicios regulares de transporte en el desarrollo normal de las funciones y actividades de la Corporación.

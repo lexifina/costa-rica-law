@@ -1,0 +1,1 @@
+Artículo 8°-Para lograr un mejor aprovechamiento de los vehículos de uso administrativo, la Gerencia Administrativa-Financiera podrá agrupar varias solicitudes de personas o departamentos, para que dentro de una misma ruta se realice el viaje previsto.

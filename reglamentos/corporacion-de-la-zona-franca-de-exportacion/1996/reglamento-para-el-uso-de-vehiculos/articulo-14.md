@@ -1,0 +1,1 @@
+Artículo 14.-En ningún caso los vehículos propiedad de la Corporación podrán ser utilizados sin la debida autorización de parte del superior de la dependencia correspondiente y del Gerente Administrativo Financiero.

@@ -1,0 +1,2 @@
+Artículo 6°-Las solicitudes para utilizar los vehículos de uso administrativo, deberán presentarse ante ]a Gerencia Administrativa Financiera. debidamente autorizadas por el superior de ]a dependencia de que se trate.
+Dicha solicitud deberá contener los siguientes datos: Número, fecha y hora de salida, dependencia que utilizará el servicio, destino, usuarios, duración estimada y autorización del jerarca de la dependencia solicitante.

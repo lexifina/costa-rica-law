@@ -1,0 +1,1 @@
+Artículo 5°-Cuando un vehículo se encuentre en gira, deberá ser guardado en lugares que brinden condiciones de seguridad adecuadas y no podrá circular después de las veintiún horas del día, salvo situaciones de fuerza mayor.

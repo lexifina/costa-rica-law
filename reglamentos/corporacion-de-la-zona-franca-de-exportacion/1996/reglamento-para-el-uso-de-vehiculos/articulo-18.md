@@ -1,0 +1,1 @@
+Artículo 18.-Queda prohibido al conductor efectuar arreglos extrajudiciales en caso de accidentes con vehículos propiedad de la Corporación. En caso de recibir ofrecimientos en ese sentido, deberá indicar al interesado que debe gestionar, su solicitud ante la Gerencia Administrativa- Financiera de la Corporación.

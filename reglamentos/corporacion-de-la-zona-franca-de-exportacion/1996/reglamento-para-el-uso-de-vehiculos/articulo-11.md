@@ -1,0 +1,15 @@
+Artículo 11.-El servidor que conduzca o a quien se le asigne un vehículo propiedad de la Corporación, o que esté bajo su custodia deberá:
+a) Portar debidamente actualizadas la licencia de conducir y la cédula de identidad. El incumplimiento de esta disposición hace responsable al conductor de toda causa civil o penal en caso de un eventual accidente, sin perjuicio de las responsabilidades civiles y administrativas a que se haga acreedor.
+b) Acatar sin reservas lo dispuesto por las leyes y reglamentos de tránsito, así como lo establecido en la presente regulación. Las multas por infracciones a las leyes de tránsito serán cubiertas por los conductores, salvo que éstas sean consecuencia de desperfectos en el vehículo.
+c) Conducir el vehículo con el mayor cuidado y prudencia, manteniendo una conducta seria y responsable en el desempeño de sus funciones.
+d) Mantener en el mejor estado de conservación y limpieza el vehículo bajo su responsabilidad.
+e) Revisar, con la regularidad debida, los lubricantes, el agua del radiador y el agua destilada de la batería del vehículo y suplirIe o avisar para que se le supla lo necesario al vehículo.
+a) No ceder la conducción del vehículo a personas no autorizadas para ello, salvo situaciones excepcionales de fuerza mayor.
+b) Mantener fielmente el itinerario que se indique, debiendo abstenerse de realizar cambios en las rutas o destinos para asuntos personales suyos o de los usuarios del vehículo.
+c) Rendir un informe de la gira a la Gerencia Administrativa Financiera, conforme al formulario mencionado en el artículo sétimo.
+d) Mantener el vehículo en lugar seguro durante la realización de la gira.
+e) Informar al Gerente Administrativo-Financiero, a más tardar un día hábil después de regresar de la gira, sobre cualquier desperfecto o falla mecánica que haya sufrido el vehículo.
+t) Reportar en forma inmediata la desaparición de cualquier accesorio de] vehículo. Los accesorios, repuestos y otros implementos de los vehículos, perdidos por negligencia del funcionario encargado, deberán ser restituidos -en igualdad de condiciones de calidad, por el responsable de su pérdida en un plazo no mayor a los 15 días naturales. El incumplimiento de esta obligación será sancionada con suspensión de 3 a 8 días laborales, sin goce de salario, la cual no exonera al responsable del pago de los implementos perdidos. De persistir la negativa a canceLar dicha obligación por un plazo similar al antes mencionado, se procederá al despido del servidor, sin responsabilidad patronal. En casos especiales, a juicio de la Gerencia General, se podrán autorizar arreglos de pago para la cancelación de los referidos implementos.
+g) Comunicar, lo antes posible, a la Gerencia Administrativa Financiera, cualquier circunstancia especial que impida el traslado del vehículo a su lugar de destino o a la sede de la Corporación.
+a) Velar por las condiciones de seguridad del vehículo bajo su responsabilidad.
+b) Informar a su jefe inmediato sobre cualquier accidente o contingencia que ocurra, por leve que ésta sea, suministrando datos completos del mismo, daños sufridos y aportando el parte o pruebas respectivas.

@@ -1,0 +1,1 @@
+Artículo 16.-Las infracciones al presente Reglamento, según su gravedad, serán sancionadas de conformidad con lo establecido por el Código de Trabajo, el Reglamento Interno de Trabajo de la Corporación y demás disposiciones legales vigentes y aplicables, sin perjuicio de las responsabilidades civiles y penales que deba asumir el infractor.

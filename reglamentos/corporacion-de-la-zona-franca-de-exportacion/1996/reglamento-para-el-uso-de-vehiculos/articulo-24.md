@@ -1,0 +1,1 @@
+Artículo 24.- Toda modificación al presente Reglamento es potestad exclusiva de la Junta Directiva de la Corporación y para su aplicación deberá obtenerse la aprobación de la Contraloría General de la República.
