@@ -1,0 +1,1 @@
+Artículo 6°.- La Contraloría General de la Republica vigilara que en los presupuestos ordinarios y extraordinarios de las Municipalidades figuren las partidas necesarias para el pago de las subvenciones de esta ley.

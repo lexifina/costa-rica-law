@@ -1,0 +1,1 @@
+Artículo 2°.-La subvención se origina necesariamente del recargo de labores y su cuantía será fijada con base a los ingresos corrientes del cantón, tratándose de Ejecutivos Municipales y a los ingresos del distrito, para los Agentes Principales o Auxiliares de Policía.
