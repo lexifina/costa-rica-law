@@ -1,0 +1,1 @@
+Artículo 7º—El puesto de bolsa estará a disposición de la Dirección de Programas Especiales de manera tal que se procurará dar prioridad, en la medida en que ello sea factible, a la adquisición de los productos para el Abastecimiento Institucional, mediante VAGRO, S. A.

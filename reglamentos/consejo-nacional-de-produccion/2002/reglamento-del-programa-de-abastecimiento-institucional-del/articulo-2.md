@@ -1,0 +1,1 @@
+Artículo 2º—El Programa de Abastecimiento Institucional ejecutará el abastecimiento y la distribución de los productos o artículos que sean requeridos por las entidades del sector público y que correspondan a los que están catalogados dentro de su tráfico ordinario, dando prioridad a aquellos provenientes de organizaciones de pequeños y medianos productores.

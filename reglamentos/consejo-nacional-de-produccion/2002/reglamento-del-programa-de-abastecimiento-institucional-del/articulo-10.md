@@ -1,0 +1,4 @@
+Artículo 10.—La Comisión de Abastecimiento será presidida por el Gerente General o en su ausencia por el Subgerente General y se reunirá ordinariamente una vez al mes y extraordinariamente cuando así lo convoque la Gerencia General o la Subgerencia General.
+Sus integrantes a excepción del asesor legal contarán con derecho a voz y voto y el quórum se hará con la asistencia de tres de los miembros designados. En caso de que asistan conjuntamente el Gerente General y el Subgerente General el derecho a voto le corresponderá al funcionario de mayor jerarquía.
+La Agenda y orden del día de la Comisión de Abastecimiento, será preparada por la Dirección de Programas Especiales quién la comunicará con la debida antelación.
+Se llevará un libro de Actas donde se harán constar en forma sucinta, todos los acuerdos y deliberaciones realizadas, así como las firmas de los asistentes a cada reunión.
