@@ -1,0 +1,1 @@
+Artículo 9.—Garantía solidaria. En caso de que la empresa que solicita la cesión sea una sucursal en los términos del articulo 3 del presente reglamento, la casa matriz deberá presentar un compromiso, en escritura pública en donde se compromete a dar el apoyo técnico y económico-financiero para la ejecución del contrato.

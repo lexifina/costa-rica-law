@@ -1,0 +1,5 @@
+Artículo 5°—Requisitos del interesado en la cesión. Además de la información requerida en el artículo 4, la persona jurídica interesada en la cesión deberá presentar la siguiente información:
+1. Estudio técnico que acredite la capacidad económico-financiera y técnica para cumplir con las obligaciones estipuladas en el contrato que se pretende ceder, en los términos del artículo 12 siguiente. De tratarse de una sucursal, esta deberá adjuntar información relativa a su casa matriz.
+2. Certificado de la Dirección General de Tributación Directa de que no tiene deudas con el Estado.
+La información anterior podrá presentarse en el mismo formato de los formularios utilizados durante el proceso de licitación respectivo.
+Para la evaluación de la empresa interesada en la cesión de los derechos del contrato, la Dirección General de Hidrocarburos podrá requerir la información adicional que estime necesaria para realizar una evaluación integral de la solicitud, en los términos del artículo 11 siguiente.
