@@ -1,0 +1,2 @@
+Equipo para el Trabajo Interdisciplinario
+Artículo 8°-De conformidad con el carácter de coordinación de las unidades de la Oficina de Planeamiento Integral de la Educación, la acción se desarrollará mediante la formación de los equipos de trabajo para el cumplimiento de los servicios técnicos. El coordinador de cada Unidad, tendrá el carácter de Jefe de Sección, dentro de la Oficina de Planeamiento Integral de la Educación, para los efectos legales, según la clasificación de puestos de la Dirección General de Servicio Civil.
