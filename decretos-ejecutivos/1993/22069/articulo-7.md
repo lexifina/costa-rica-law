@@ -1,0 +1,2 @@
+Artículo 7°-Las viviendas construidas al amparo del presente programa quedarán sometidas de pleno derecho al régimen de las Viviendas Escolares, previsto en el Reglamento para el uso de las Viviendas Escolares, dado mediante decreto ejecutivo número 6599-9 del 9 de diciembre de 1976.
+Consecuentemente forma parte del Patrimonio Nacional sin perjuicio de las sujeciones previstas en la Ley N° 7052 del 13 de noviembre de 1986 y sus reformas y además regulaciones que dicte la Junta Directiva del Banco Hipotecario de la Vivienda.

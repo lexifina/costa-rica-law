@@ -1,0 +1,1 @@
+Artículo 2°-EI Banco Hipotecario de la Vivienda por medio de las entidades autorizadas respectivas y según sus posibilidades presupuestarias, concederá a las Juntas de Educación correspondientes, a título de subsidio, el Bono Familiar de Vivienda para la Construcción de Viviendas Escolares en escuelas rurales que cuenten con no más de tres aulas.
