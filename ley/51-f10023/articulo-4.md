@@ -1,0 +1,1 @@
+Artículo 4°. -Las personas que sin autorización patente permiso legal, vendieren aguardiente mistelas del país extrangeras, compradas en las Administraciones Nacionales en puestos de venta autorizados, sufrir n la multa de cincuenta pesos.
