@@ -1,0 +1,1 @@
+Artículo 2°-Los licores extranjeros incluyendo cervezas, vinos y cualquier otra bebida que contenga alcohol que se importen para consumo nacional deberá tener en su envase la misma leyenda indicada en el articulo 1°.

@@ -1,0 +1,1 @@
+Articulo 3°-Todo tipo de licor, sea este nacional o extranjero que no lleve impresa en su envase la leyenda indicada en el articulo 1°, será decomisada y entregado, a la Proveeduría Nacional para su remate, el cual se efectuará de acuerdo con los procedimientos que fija la ley para mercadería decomisada.
