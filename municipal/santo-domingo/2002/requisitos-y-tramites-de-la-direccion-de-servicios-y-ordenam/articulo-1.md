@@ -6,62 +6,71 @@ Con relación a los tramites que se presentan en el departamento, los cuales se 
 1.1 Visado municipal
 En la Ley de Planificación Urbana conforme con los artículos 33 y 36. así como en el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones, capítulo II sobre Fraccionamientos, indican los alcances del visado municipal, que por medio de sellos legalizan los planos de catastro, además de la conformidad con otras leyes conexas.
 Para efectos de fraccionamiento, según definición de la misma ley, se extiende el Visado Municipal en donde. Se indica la situación y cabida de las porciones resultantes “....artículo 33, así como las razones que indican servicios, permisos, impedimentos, tecnicismos, entre otros, para efectos constructivos, (artículos 36, 58 y II).
-1.1.A Requisitos
+1.1.A REQUISITOS PARA VISADO MUNICIPAL:
 1. Llenar la solicitud respectiva para el visado municipal.
 2. Aportar el original o copia certificada del plano catastrado extendida por el Catastro Nacional y cuatro fotocopias fieles (no se aceptan reducciones o planos en malas condiciones).
-3. Certificación notarial o registral de la propiedad incluyendo las servidumbres inscritas (en caso de existir).
-4. En el caso de fraccionamiento se debe aportar el plano de la finca madre en donde se muestren todas las porciones resultantes (capitulo II del Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones).
-5. Estar al día en el pago de impuestos y servicios municipales. (Sello del Departamento de Cobros) (artículo 101 del Código Municipal y 36 de la Ley de Planificación Urbana).
-En el caso de solicitud de resello y en donde se encuentre copia fiel del plano de catastro en el Archivo del Departamento de Control Urbano y Rural o de Catastro, se le indicara por nota en el reverso del plano aportado la constancia en donde se indican el número de visado, la fecha de aprobación con la firma del encargado, previo cumplimiento de los requisitos.
-Duración del trámite:
-La duración del trámite general para el visado es de un máximo de 15 días (artículo 34, capítulo IV, Fraccionamiento y Urbanización, Ley de Planificación Urbana), para el proceso, a partir de la
-recepción de la documentación, inspección de campo, valoración y hasta su resolución (aprobación o rechazo).
-Para el periodo referido se considerará además lo indicado en el artículo 6°- Plazo y Calificación Únicos (Ley No 8220).
+NOTA:
+1. Para la realización del trámite es indispensable estar al día con el pago de impuestos y tasas municipales.
+2. En el caso de fraccionamiento se debe aportar el plano de la finca madre en donde se muestren todas las porciones resultantes (croquis).
+3. Para segregaciones y/o fraccionamientos debe presentarse autorización por escrito de los otros propietarios (en caso de derechos), para realizar el trámite. Este documento debe ser autenticado por un abogado.
+4. Cualquier omisión o alteración de la información suministrada anula la solicitud.
+PROCESO DE REVISIÓN:
+• La revisión de la solicitud del visado municipal de planos se realizará en un plazo máximo de 5 días hábiles y deberá presentarse ante la Dirección de Servicios y Ordenamiento quien resolverá.
+• Por una única vez y por escrito podrá solicitarse que se aclaren o completen requisitos o información, dicha prevención suspenderá el plazo de resolución según Ley Nº 8220.
+(Así reformado mediante sesión Nº 13 - 2005 del 7 de marzo del 2005)
 1.2. Uso del suelo
 La Ley de Planificación Urbana en conformidad con el capítulo tercero (Zonificación). así como el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones, capítulo III, Urbanizaciones. Plan "Regional de la Gran Área Metropolitana, Decreto Ejecutivo N 25902-M1VAH-MP-MINAE, entre otros reglamentos y leyes conexas, indican los alcances del Uso del Suelo, que por medio de valoración de la solicitud o la aportación
 del Uso extendido por el INVU, permiten al Departamento de Control Urbano y Rural indicar la conformidad o inconformidad del mismo.
-1.2 .A. Requisitos
-1. Llenar la solicitud de uso del suelo respectiva.
+1.2 .A. REQUISITOS PARA USO DE SUELO Y ALINEAMIENTO:
+1. Llenar la solicitud de uso de suelo y alineamiento respectiva.
 2. Aportar como mínimo 2 fotocopias del plano catastrado con el respectivo visado municipal.
-3. Estar al día en el pago de impuestos y servicios municipales (sello del Departamento de Cobros).
-4. Alineamiento de construcción del Ministerio de Obras Públicas y Transportes (MOPT) en caso de carreteras nacionales.
-5. Alineamiento en zonas de protección de nacientes, ríos, quebradas, lagos y embalses naturales o artificiales y acuíferos de conformidad con lo establecido en el articulo 34 de la Ley Forestal No 7373 del 13 de febrero de 1996, por el Instituto Nacional de Vivienda y Urbanismo.
-6. Alineamiento oficial del Instituto Costarricense de Ferrocarriles (INCOFER) en el caso de afectación por líneas férreas.
-7. Solicitar el alineamiento oficial municipal en el caso de la Red Vial Cantonal, el cuál tendrá una vigencia de un año natural a partir de la fecha en que fue otorgado, así como la indicación del nivel oficial (Gaceta No 100, 25 de mayo de 1994).
-8. En el caso de uso del suelo para patentes, debe adjuntar una fotocopia del permiso de funcionamiento del Ministerio de Salud en los casos que se requiera según la clasificación establecida por el Reglamento General para el otorgamiento de Permisos de Funcionamiento por parte del Ministerio de Salud (Gaceta No 7, martes 12 de enero de 1999).
-9. Si la solicitud es para cambio de uso en urbanizaciones o conjuntos residenciales será el Concejo Municipal, por medio del Departamento de Control Urbano y Rural, la entidad que resuelva dichos casos.
-Duración del trámite:
-La duración del trámite es de un máximo de 15 días, para el proceso a partir de la recepción de la documentación, inspección de campo, valoración y hasta su resolución (uso conforme-inconforme).
-Para el periodo referido se considerara además lo indicado en el articulo 6°- Plazo y Calificación Únicos (Ley No 8220).
-Nota: Las solicitudes de visado y de uso del suelo se pueden ingresar al mismo tiempo al departamento, previo cumplimiento de los requisitos indicados.
+NOTA:
+1. Para la realización del trámite es indispensable estar al día con el pago de impuestos y tasas municipales.
+2. El alineamiento oficial municipal en el caso de la red vial cantonal, tendrá una vigencia de un año natural a partir de la fecha en que fue otorgado.
+3. Si la solicitud es para cambio de uso del suelo en urbanizaciones o conjuntos residenciales será el Concejo Municipal, la entidad que resuelva dichos casos.
+4. Para efectos de trámite de aprobación de “uso de suelo no conformes consolidados”, se deberán todos los documentos probatorios de esta condición.
+4. Debe considerarse que el uso de suelo en caso de aprobación es un acto declaratorio y no constitutivo, por lo que el mismo No implica aprobación de proyectos o de licencias de construcción.
+5. Cualquier omisión o alteración de la información suministrada anula la solicitud.
+PROCESO DE REVISIÓN:
+• La revisión de la solicitud del uso del suelo y alineamiento municipal se realizará en un plazo máximo de 5 días hábiles y deberá presentarse ante la Dirección de Servicios y Ordenamiento quien resolverá.
+• Por una única vez y por escrito podrá solicitarse que se aclaren o completen requisitos o información, dicha prevención suspenderá el plazo de resolución según Ley Nº 8220.
+(Así reformado mediante sesión Nº 13 - 2005 del 7 de marzo del 2005)
 1.3. Permisos de construcción
 La municipalidad bajo función contralora en el ámbito constructivo, mediante solicitudes para permisos de construcción, utiliza "visados de planos", los cuales son sellos oficiales, con firma responsable, que se estampan en los planos, extendiéndose las licencias respectivas en el caso de aprobación. Dichos sellos representan la autorización administrativa, al interesado, para que éste prosiga con la realización del proyecto planteado en los planos. No obstante, los "visados" de las diversas entidades públicas, las municipalidades son las que, en definitiva, otorgan el permiso de construcción.
-1.3.A Requisitos generales:
-1. Solicitud de permiso de construcción debidamente llena, firmada por dueño de la propiedad o representante legal de este, así como por el solicitante, en donde se debe indicar la dirección exacta del propietario, dirección dentro de la jurisdicción del distrito central del cantón, correo electrónico, fax o similar, para notificarle, considerándose realizado el proceso en el sitio indicado para efectos de ley. Además se debe adjuntar 2 timbres fiscales de cinco colones, (artículo 14, capítulo III, Reglamento para el otorgamiento de Permisos de Construcción)
-2. Copia clara de la cédula del propietario, en caso de representante legal, éste debe aportar el poder que lo faculta como tal, así como del profesional responsable.
-3. Solicitud de uso del suelo y alineamiento municipal, o del 1NVL. PREVIAMENTE APROBADO O RATIFICADO, respectivamente por este departamento.
-4. Copia del plano catastrado. (artículo 14, capitulo 111, Reglamento para el otorgamiento de Permisos de Construcción y en el Alcance No 49 a La Gaceta No 130. Reglamento para el tramite de visado de planos para la construcción, capítulo I. artículo 2°). El plano debe estar PREVIAMENTE VISADO por la Municipalidad.
-5. Aportar una certificación notarial o registral de la propiedad incluyendo las servidumbres inscritas en caso que existan. De existir servidumbres inscritas, adicionalmente el plano catastrado deberá contener la línea de construcción de las servidumbres propiedad estatal o la autorización al proyecto por parte del titular de la servidumbre (Alcance Nº 49 a La Gaceta Nº 130, Reglamento para el tramite de visado de planos para la construcción, capítulo I, artículo 2°).
-6. Alineamiento de construcción del Ministerio de Obras Públicas y Transportes (MOPT) en caso de carreteras nacionales. (Alcance No 49 a La Gaceta No 130, Reglamento para el trámite de visado de planos para la construcción, capítulo I. artículo 2°).
-7. Alineamiento en zonas de protección de nacientes, ríos, quebradas, lagos y embalses naturales o artificiales y acuíferos por parte del Instituto Nacional de Vivienda y Urbanismo, de conformidad con lo establecido en el artículo 34 de la Lev Forestal No 7373 del 13 de febrero de 1996. (Alcance No 49 a La Gaceta No 130, Reglamento para el trámite de visado de planos para la construcción, capitulo I, articulo 2°).
-8. Alineamiento oficial del Instituto Costarricense de Ferrocarriles (INCOFER) del MOPT, en el caso de afectación por líneas férreas.
-9. Solicitud de paja de agua debidamente llena y con el Visto Bueno del encargado del acueducto municipal, adjuntar un timbre fiscal de cinco colones.
-10. Fotocopia de la escritura de la propiedad inscrita en el Registro Público.
-11. Presentar copia del Contrato de Consultoría, con aprobación del CFIA.
-12. Presentar copia de la Solicitud del Visado Eléctrico, con aprobación del CFIA.
-13. Estar al día en el pago de impuestos y servicios municipales (artículo 14. capítulo 111. Reglamento para el Otorgamiento de Permisos de Construcción).
-14. Fotocopia del recibo y del contrato de la Póliza de Riesgos Profesionales del Instituto Nacional de Seguros (FNS), según articulo 252 del Código de Trabajo. Este documento se puede presentar una vez que el permiso de construcción sea aprobado por el departamento y previo a su cancelación.
-15. Copia de la Inscripción Patronal ante la Sede Regional del Seguro Social (Ley de Protección al Trabajador).
-16. Formulario de Prescripciones Urbanas y Arquitectónicas debidamente lleno.
-17. Autorización por escrito de ingreso a la propiedad para la respectiva inspección, que va a ser realizada por funcionarios municipales debidamente identificados, durante el proceso constructivo.
-18. Clasificación de la actividad y el visto bueno de ubicación por parte del Ministerio de Salud.
-19. Pronunciamiento, certificaciones o indicaciones, de la Institución idónea en el caso de afectación, terrenos vulnerables a riesgos naturales, servidumbres de líneas de transmisión eléctrica, oleoductos, proyectos viales, riesgo a la salud pública, etc.
-20. Viabilidad Ambiental del proyecto otorgada por la Secretaría Técnica Nacional del Ambiente (SETENA), según Decreto Ejecutivo No 25705-MINAE del 8 de octubre de 1996 y sus reformas.
-Sin los requisitos completos solicitados por el Departamento no se aceptara ningún trámite (sin excepción).
+1.3.A REQUISITOS GENERALES PARA CONSTRUCCIONES:
+1) Aportar como mínimo 2 juegos completos de los planos constructivos aprobados por el Colegio Federado de Ingenieros y Arquitectos y por el Ministerio de Salud.
+2) Solicitud de permiso de construcción debidamente llena.
+3) Aportar fotocopia de la cédula del propietario, en caso de representante legal, éste debe presentar copia de la cédula, personería jurídica y copia de la cédula jurídica de la sociedad.
+4) Certificación del uso de suelo y alineamiento municipal previamente aprobado por la Municipalidad.
+5) Copia del plano catastrado visado por la Municipalidad.
+6) En caso de:
+a) Carreteras Nacionales, debe presentar alineamiento de construcción del Ministerio de Obras Públicas y Transportes (MOPT).
+b) Zonas de protección de nacientes, ríos, quebradas, lagos y embalses naturales o artificiales y acuíferos, debe presentar alineamiento por parte del Instituto Nacional de Vivienda y Urbanismo (INVU).
+c) En caso de afectación por líneas férreas, debe presentar alineamiento oficial del Instituto Costarricense de Ferrocarriles (INCOFER) del MOPT.
+7) Presentar copia del Contrato de Consultoría, con aprobación del CFIA.
+8) Presentar copia de la solicitud del visado eléctrico, con aprobación del CFIA.
+9) Presentar la solicitud de paja de agua debidamente llena (en caso de que no disponga del servicio).
+10) Viabilidad ambiental del proyecto otorgada por la Secretaría Técnica Nacional del Ambiente (SETENA).
+11) Autorización por escrito de ingreso a la propiedad para la respectiva inspección, que va a ser realizada por funcionarios municipales debidamente identificados, durante el proceso constructivo (fórmula adjunta).
+12) Certificación de pago de la póliza de riesgos laborales del INS.
+13) Fotocopia de la Inscripción Patronal o Certificación ante la Sede Regional del Seguro Social (CCSS) haciendo constar que el seguro se tramitará en el momento de iniciada la construcción.
+14) Clasificación de la actividad y el visto bueno de ubicación por parte del Ministerio de Salud (para uso no residencial).
+NOTAS:
+1) Posterior a la fecha de aprobación del permiso correspondiente, el contribuyente dispondrá de un máximo de 30 días naturales para realizar la cancelación del mismo, pasado este tiempo, la municipalidad anulará el trámite realizado.
+2) Para la realización del trámite es indispensable estar al día con el pago de impuestos y tasas municipales, así como encontrarse al día con la Declaración de Bienes Inmuebles.
+3) Pronunciamiento, certificaciones o indicaciones, de la Institución idónea en el caso de afectación, terrenos vulnerables a riesgos naturales, servidumbres de líneas de transmisión eléctrica, oleoductos, proyectos viales, riesgo a la salud pública, etc.
+4) En caso de que la propiedad tenga varios dueños, deben presentar un informe registral de todos los derechos, así como presentar una carta de autorización indicando el acuerdo de los propietarios para el trámite del permiso de construcción (este documento debe ser autenticado por un abogado).
+5) La Municipalidad no asume responsabilidad, si para efectos constructivos no se han realizado las consultas de visado y uso de suelo que indiquen la infraestructura y el tipo de proyecto que se puede realizar en cada zona del cantón.
+6) Tomando en cuenta la: ubicación, condiciones topográficas, área de cobertura y densidad, de la obra a desarrollar, la municipalidad podrá solicitar un estudio de suelo, lo anterior debidamente fundamentado por el funcionario encargado.
+7) Cualquier omisión o alteración de la información suministrada anula la solicitud.
+PROCESO DE REVISIÓN:
+• La revisión de los planos constructivos en caso de obras menores, viviendas unifamiliares y edificaciones de hasta 300 m2 de construcción, en dos pisos o menos, se realizará en un plazo máximo de 10 días hábiles y deberá presentarse ante la Dirección de Servicios y Ordenamiento quien resolverá.
+(Así reformado mediante sesión Nº 13 - 2005 del 7 de marzo del 2005)
 1.3.B Requisitos particulares:
 1.3.B.1 Edificaciones bajo el Régimen de Propiedad Horizontal o en Condominio.
 De acuerdo con el Alcance No 49 a La Gaceta No 130, Reglamento para el trámite de visado de planos para la construcción, capítulo III, artículo 8, los interesados deben presentar ante la Municipalidad el plano básico del proyecto previamente aprobado por la Dirección de Urbanismo del INVU, y adjuntar:
-1. La aprobación del anteproyecto total, proyecto preliminar o proyecto final y del Diseño de Sitio por parte del INVU y del Departamento de Control Urbano y Rural, previa aprobación de disponibilidad de agua o estudio de solución de agua potable aprobado y de los requerimientos de infraestructura establecidos, además de la consideración de las indicaciones del Reglamento de Construcciones. Decreto Ejecutivo No 27967-MP- MIVAH-S-MEIC del 6 de julio de 1999 y demás conexas.
+1. La aprobación, por parte del INVU, el Departamento de Control Urbano y Rural y el Concejo Municipal, del anteproyecto total, proyecto preeliminar o proyecto final y el diseño de sitio, previa aprobación de disponibilidad de agua o estudio de solución de agua potable y servicios y de requerimientos de infraestructura. Deberá cumplir con las indicaciones del Reglamento de Construcciones, Decreto Ejecutivo Nº 27967-MP-MIVAH-SMEIC, del 6 de julio de 1999 y legislación conexa.
+(Así reformado mediante sesión Nº 13 - 2005 del 7 de marzo del 2005)
 2. Un mínimo de tres juegos de planos básicos, con los visados de la Dirección de Urbanismo del Instituto Nacional de Vivienda y Urbanismo, el Colegio de Ingenieros, el Ministerio de Salud, el Instituto
 Costarricense de Acueductos y Alcantarillados, del Instituto Costarricense de Electricidad, del Acueducto Municipal y de cualquier otro de competencia concurrente, del proyecto total o por etapas según su aprobación.
 3. Todos los requisitos generales.
@@ -69,7 +78,8 @@ Duración del trámite:
 La duración del trámite es de un máximo de un mes calendario (30 días), para el proceso a partir de la fecha de presentación de todos los requisitos, periodo durante el cuál la Municipalidad podrá aprobar el proyecto o hacer observaciones, por escrito, sobre los requisitos y exigencias de ley, una única vez. En este caso, el interesado deberá presentar los documentos con las correcciones u observaciones señaladas y la institución deberá resolver esta presentación dentro del plazo máximo de 7 días naturales a partir del aporte de los documentos corregidos, (capitulo III- De los Condominios, Decreto Ejecutivo No 27967-MP-MIVAH-S-MEIC, La Gaceta No 130, Gaceta No 100 del 25 de mayo de 1994, artículo 14).
 1.3.B.2 Urbanizaciones
 De acuerdo con el Alcance No 49 a La Gaceta No 130. Reglamento para el trámite de visado de planos para la construcción, capitulo IV, articulo 10, Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones, capítulo VI, una vez aprobado el plano básico por la Dirección de Urbanismo del INVU, los interesados deberán presentar ante la Municipalidad el plano básico y adjuntar:
-1. La aprobación del anteproyecto total, proyecto preliminar o proyecto final y del Diseño de Sitio por parte del INVU y del Departamento de Control Urbano y Rural, con aprobación de disponibilidad de agua o estudio de solución de agua potable aprobado y de los requerimientos de infraestructura establecidos, además de la consideración de las indicaciones del Reglamento de Construcciones, Decreto Ejecutivo No 27967-MP- MIVAH-S-MEIC del 6 de julio de 1999 y demás conexas.
+1. La aprobación, por parte del INVU, el Departamento de Control Urbano y Rural y el Concejo Municipal, del anteproyecto total, proyecto preeliminar o proyecto final y el diseño de sitio, previa aprobación de disponibilidad de agua o estudio de solución de agua potable y servicios y de requerimientos de infraestructura. Deberá cumplir con las indicaciones del Reglamento de Construcciones, Decreto Ejecutivo Nº 27967-MP-MIVAH-SMEIC, del 6 de julio de 1999 y legislación conexa.
+(Así reformado mediante sesión Nº 13 - 2005 del 7 de marzo del 2005)
 2. Un mínimo de tres juegos de planos básicos, con los visados de la Dirección de Urbanismo del Instituto Nacional de Vivienda y Urbanismo, el Colegio de Ingenieros, el Ministerio de Salud, el Instituto Costarricense de Acueductos y Alcantarillados, del Instituto Costarricense de Electricidad, del Acueducto Municipal y de cualquier otro de competencia concurrente, del provecto total o por etapas según su aprobación.
 3. Todos los requisitos generales.
 Duración del trámite:
@@ -77,10 +87,12 @@ La duración del tramite es de un máximo de un mes calendario (30 días natural
 1.3.B.3 Movimientos de tierras
 De acuerdo con el Alcance No 49 a La Gaceta N° 130, Reglamento para el trámite de visado de planos para la construcción, capitulo V, articulo 11 y 12, Ley de Construcciones, capítulo Xll-Excavaciones, una vez aprobado el plano básico por la Dirección de Urbanismo del INVU. los interesados deberán presentar ante la Municipalidad el plano básico para la obtención de la licencia en el caso de que la solicitud se tramite con anterioridad de los planos definitivos
 constructivos y adjuntar:
-1. Un mínimo de tres copias heliográficas del Plano con curvas de nivel, terraceo y cortes firmado por un profesional responsable, con los visados respectivos.
+1. Un mínimo de tres copias heliográficas del Plano del proyecto con curvas de nivel, terraceo y cortes, y con el visado del Colegio Federado de Ingenieros y Arquitectos
+(Así reformado mediante sesión Nº 13 - 2005 del 7 de marzo del 2005)
 2. Si la propiedad confronta carretera nacional, regional o proyectos de carretera ya definidos, debe obtenerse la línea de construcción extendida por la entidad correspondiente en el plano de catastro.
 3. Si la propiedad colinda o es atravesada por un curso de agua debe de obtenerse el retiro.
-4. Los puntos 1.2,5,7. 10. 11. 13, 14, 15, 17,19 y 20 de los requisitos generales.
+4. Los puntos 2, 3, 5, 6, 7, 10, 11, 12, 13 de los Requisitos Generales de Construcción.
+(Así reformado mediante sesión Nº 13 - 2005 del 7 de marzo del 2005)
 1.3.B.4 Viviendas unifamiliares, y edificaciones de hasta 300 metros cuadrados de construcción en dos pisos o menos.
 En conformidad con La Gaceta No 130, del 6 de julio de 1999, Reglamento para el trámite de visado de planos para la construcción, capítulo II y V, articulo 11 y 12, Ley y Reglamento de Construcciones, una vez aprobado el plano constructivo final (visados de ley), los interesados deberán presentar ante la Municipalidad para el análisis de obtención de la licencia y adjuntar:
 1. Planos constructivos completos (mínimo 2 juegos) debidamente firmados por un profesional responsable, aprobados previamente por el Colegio Federado de Ingenieros y Arquitectos (CFIA) y por el

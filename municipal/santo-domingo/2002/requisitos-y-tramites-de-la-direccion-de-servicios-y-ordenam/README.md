@@ -14,3 +14,4 @@ Requisitos y trámites de la Dirección de Servicios y Ordenamiento Territorial 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-24 | la propia norma |
+| 2 | 2005-03-07 | Acuerdo municipal 13 (2005-03-07) |
