@@ -14,3 +14,4 @@ Reglamento al artículo 39 del Código de Minería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-28 | la propia norma |
+| 2 | 2005-01-14 | Decreto Ejecutivo 32329 (2005-01-14) |
