@@ -1,0 +1,3 @@
+Artículo 4º.- En concordancia con el artículo anterior, se adicionan dos nuevos incisos al artículo 17 del Reglamento a la Ley Orgánica del Ministerio de Economía, Industria y Comercio, decreto Nº7694 del 20 de setiembre de 1977 y sus reformas:
+"ñ) Desempeñar las funciones de secretaría para la recepción y análisis de las denuncias planteadas conforme con el reglamento a los artículos 10 y 11 de la Ley de Protección y Desarrollo Industrial, No.2426 del 3 de setiembre de 1959, decreto ejecutivo No.18098-MEIC del 19 de abril de 1988 y sus reformas.
+o) Desempeñar las funciones que el decreto ejecutivo No.14125- MEIC del 14 de diciembre de 1982 y sus reformas asignaba a la Dirección de Comercio Exterior del Ministerio de Economía, Industria y Comercio."
