@@ -1,0 +1,4 @@
+ARTICULO 10.- Sanción por incumplimiento.
+El incumplimiento de lo dispuesto en los artículos anteriores
+constituye una falta que se sancionará según su gravedad, de acuerdo con
+lo establecido en los artículos 608 y siguientes del Código de Trabajo.

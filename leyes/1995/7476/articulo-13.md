@@ -1,0 +1,7 @@
+ARTICULO 13.- Garantías en la docencia.
+En una relación de docencia, el estudiante o la estudiante que haya
+demostrado ser objeto de hostigamiento tendrá derecho a reclamar, al
+patrono o jerarca del profesor, la aplicación de las sanciones laborales
+previstas en esta Ley. De comprobarse un perjuicio en su situación
+educativa, como resultado del acoso, tendrá derecho a ser restituido en
+el estado anterior al hostigamiento.

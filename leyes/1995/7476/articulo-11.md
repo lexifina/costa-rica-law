@@ -1,0 +1,4 @@
+ARTICULO 11.- Deber de los colegios profesionales.
+Los colegios profesionales deberán establecer políticas preventivas
+y procedimientos de sanción para los agremiados que incurran en
+conductas de acoso u hostigamiento sexual.

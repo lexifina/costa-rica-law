@@ -1,0 +1,4 @@
+ARTICULO 8.- Deber del Ministerio de Trabajo y Seguridad Social.
+La Dirección Nacional e Inspección de Trabajo del Ministerio de
+Trabajo y Seguridad Social, deberá velar por el cumplimiento de lo
+dispuesto en el artículo 5 de esta Ley.
