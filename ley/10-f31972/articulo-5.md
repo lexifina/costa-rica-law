@@ -1,0 +1,1 @@
+Artículo 5°.—Al final de cada año económico la Contabilidad Nacional consolidará en el fondo de pensiones respectivo el saldo que corresponda, dando cuenta al Ministerio de Instrucción Pública de la cantidad disponible para atender al pago de nuevas pensiones, sin que éstas puedan exceder en ningún caso de la cantidad con que se cuente en el momento de hacer la adjudicación.
