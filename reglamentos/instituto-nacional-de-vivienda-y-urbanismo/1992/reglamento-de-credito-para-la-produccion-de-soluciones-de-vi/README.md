@@ -14,3 +14,4 @@ Reglamento de crédito para la producción de soluciones de vivienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-05-28 | la propia norma |
+| 2 | 1994-08-08 | Reglamento 0 (1994-08-08) |

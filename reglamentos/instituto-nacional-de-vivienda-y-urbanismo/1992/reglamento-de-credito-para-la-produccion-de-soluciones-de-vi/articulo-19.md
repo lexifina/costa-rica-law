@@ -1,0 +1,2 @@
+Artículo 19.—El Instituto Nacional de Vivienda y Urbanismo actuará además como Órgano Consultor, devengando por este servicio un porcentaje que será fijado por la Junta Directiva del Instituto, en aquellos casos en que la Asociación contrate estos servicios al Instituto conforme al Reglamento de Venta de Servicios Profesionales.
+(Así adicionado y publicado en La Gaceta No. 149 de 8 de agosto de 1994).

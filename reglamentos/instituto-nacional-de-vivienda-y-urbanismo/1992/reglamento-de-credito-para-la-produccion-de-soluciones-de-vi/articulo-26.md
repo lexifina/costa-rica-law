@@ -1,0 +1,2 @@
+Artículo 26.—En la eventualidad que la Asociación por cualquier motivo se desintegre, el Instituto en defensa de sus derechos podrá solicitar ante el Juez Civil de la Jurisdicción que corresponde la liquidación de la misma y resarcirse de los posibles daños y sus perjuicios ocasionados. Esta modificación rige a partir de su publicación.
+(Así adicionado y publicado en La Gaceta N° 149 de 8 de agosto de 1994).

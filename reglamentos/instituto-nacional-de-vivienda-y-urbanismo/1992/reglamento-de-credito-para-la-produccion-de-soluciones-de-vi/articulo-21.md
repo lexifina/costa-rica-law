@@ -1,0 +1,2 @@
+Artículo 21.—Las mejoras introducidas por la Asociación pasarán a ser propiedad exclusiva del Instituto en caso de rescisión del contrato. En la eventualidad de que debido a fuerza mayor o caso fortuito no se puedan concluir las obras la asociación o los beneficiarios no podrán hacer reclamo alguno al Instituto por las mejoras hechas en el estado en que estuvieren.
+(Así adicionado y publicado en La Gaceta No. 149 de 8 de agosto de 1994).

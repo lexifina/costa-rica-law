@@ -1,0 +1,2 @@
+Artículo 24.—La Asociación que utilice este tipo de financiamiento deberá de entregar al Instituto, para iniciar los trámites, toda la documentación pertinente de prefactibilidad, factibilidad, asimismo la lista de los potenciales beneficiarios que deberán calificar de acuerdo a las disposiciones legales y reglamentarias que determine el Banco Hipotecario de la Vivienda y el INVU como entidad autorizada del Sistema Financiero de la Vivienda.
+(Así adicionado y publicado en La Gaceta N° 149 de 8 de agosto de 1994).
