@@ -1,0 +1,1 @@
+Artículo II.—El presente reglamento regula la inscripción en el Colegio de los Asistentes y Auxiliares de Laboratorio Clínico que laboran en cualquier institución pública o empresa privada donde se ejerza la Microbiología y Química Clínica; tal y como esta profesión se define en el artículo primero del Estatuto.

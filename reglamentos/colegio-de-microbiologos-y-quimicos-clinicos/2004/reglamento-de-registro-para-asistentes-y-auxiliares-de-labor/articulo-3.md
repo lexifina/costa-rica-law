@@ -1,0 +1,4 @@
+Artículo III.—Para ingresar al Registro se debe presentar solicitud de inscripción en un formulario confeccionado por el Colegio más los requisitos que este Registro indique.
+Se deberá cubrir una cuota de ingreso, el costo del carné y una cuota mensual que será fijada por la Junta. Cualquier Asistente que no cancelare sus cuotas, en un período de dos meses, será excluido del Registro y se notificará su situación a su patrono y al Ministerio de Salud.
+Si en un futuro opta por reingresar deberá cubrir todas las cuotas atrasadas y la cuota de ingreso.
+Los asistentes podrán optar por retiros temporales o definitivos, a juicio de la Junta. En casos de retiros temporales se podrá reingresar con sólo solicitarlo, no se pagará cuota de reingreso y el saldo, por meses cancelados por anticipado, quedará a favor del solicitante.

@@ -1,0 +1,2 @@
+Artículo VII.—Se excluirá del Registro, al Asistente o Auxiliar que observe una conducta moral irregular, o que padezca de deficiencias físicas o mentales que fueren en detrimento de las funciones propias de su cargo o que ejerza ilegalmente la profesión.
+Para estos efectos, el Fiscal del Colegio levantará un expediente donde consten los cargos y descargos de las partes y actuará de acuerdo con el criterio de la Junta.

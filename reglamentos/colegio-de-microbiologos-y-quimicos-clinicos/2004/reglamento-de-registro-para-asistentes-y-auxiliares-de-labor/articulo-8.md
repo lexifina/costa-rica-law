@@ -1,0 +1,1 @@
+Artículo VIII.—La creación del Registro y la inscripción en éste no otorgará a los auxiliares y asistentes facultades, atribuciones o beneficios más allá de aquellos que las leyes nacionales y los reglamentos del Colegio le otorguen.
