@@ -1,0 +1,1 @@
+Art. 3°.-El papel será de buena calidad, y su tamaño, de treinta y dos á treinta y cinco centímetros de largo por veintidós á veinticinco de ancho.-No podrá escribirse en cada plana más de treinta renglones.

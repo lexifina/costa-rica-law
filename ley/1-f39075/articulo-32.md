@@ -1,0 +1,2 @@
+Art. 32.-Los Receptores de la República se abonarán en la cuenta correspondiente el cinco por ciento de honorario sobre las cantidades recaudadas por papel sellado, como recompensa de sus servicios.
+Único.-Estos empleados deberán tener abierto el despacho todos los días, aun los feriados, desde las seis de In mañana hasta las seis de la tarde; pero si á horas extraordinarias se solicitare papel con urgencia, los Receptores están en la obligación de expenderlo.

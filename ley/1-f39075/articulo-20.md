@@ -1,0 +1,1 @@
+Art. 20.-No se admitirá en los juzgados, tribunales ni oficinas públicas, ningún documento, escritura ó pedimento de los expresados en los artículos anteriores que no haya sido escrito en el papel sellado correspondiente.

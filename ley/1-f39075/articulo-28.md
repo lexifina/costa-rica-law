@@ -1,0 +1,1 @@
+Art. 28.-Los derechos de protocolo que conforme al artículo veintiuno del decreto de 23 de mayo de 1878, corresponden al Fisco, se satisfarán por medio de timbres, que colocará el cartulario en la parte superior y ángulo izquierdo del comienzo de cada escritura, y que inutilizará con la fecha en cifra del otorgamiento de la misma, y media firma.

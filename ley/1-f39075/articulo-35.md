@@ -1,0 +1,1 @@
+Art. 35.- Esta, ley comenzará á regir el día quince de febrero próximo, y los jueces y tribunales no darán curso á los asuntos pendientes cuyo valor no fuere entonces conocido, sin que la parte actora exprese la cuantía de los mismos.

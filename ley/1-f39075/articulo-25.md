@@ -1,0 +1,1 @@
+Art, 25.-Si en el curso de un pleito ó al fenecerse, apareciera ser mayor su cuantía que la que se le haya atribuido al incoarse, el Juzgado ó Tribunal que de él conozco, dispondrá que inmediatamente se reintegre en los autos la diferencia del sello empleado al que resulte corresponderle, y que en éste se continúen las diligencias sucesivas.

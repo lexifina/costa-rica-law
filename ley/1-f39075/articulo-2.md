@@ -1,0 +1,1 @@
+Art. 2°.-El tipo de este papel consistirá en un sello con las armas de la República, colocado en la parte superior y ángulo izquierdo del primer folio del pliego, orlado con la leyenda “República de Costa-Rica-Departamento de Hacienda y Comercio”.
