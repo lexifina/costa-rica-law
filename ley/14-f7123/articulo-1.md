@@ -1,0 +1,5 @@
+DECRETO XIV
+Rehabilita para el comercio marítimo el puerto de Puntarenas
+“El Jefe Supremo del Estado Soberano de Costa Rica.
+En atención á que a la costa de Calderas habilitada por decreto federal de 23 de Enero de 835, para el comercio marítimo del Estado, es tan mortífera que ha puesto en consternación al comerciante, á los arrieros y á todos los que por necesidad tocan allí; anulándose los esfuerzos del Gobierno, y los sacrificios pecuniarios hechos para mejorar dicho punto: con presencia de los informes vertidos por la comisión especial que ha practicado el reconocimiento de la costa, y de los Jefes Políticos Departamentales en orden á la opinión y deseo público. Constando de todo, que satisface completamente el puerto de Puntarenas por su salubridad y comodidades, decreta.
+Art. 1° Se rehabilita para el comercio marítimo del Estado, el Puerto de Puntarenas en el Golfo de este nombre; y en consecuencia se contruirán en él las oficinas de Aduana, Almacenes y fortificaciones que sean necesarias para la seguridad del comercio.
