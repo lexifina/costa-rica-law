@@ -15,3 +15,4 @@ Modifica denominación de Reserva Biológica Palo Verde a Refugio de Fauna Silve
 | --- | --- | --- |
 | 1 | 1979-10-01 | la propia norma |
 | 2 | 1981-04-24 | Decreto Ejecutivo 12586 (1981-04-24) |
+| 3 | 1984-01-04 | Decreto Ejecutivo 15119 (1984-01-04) |
