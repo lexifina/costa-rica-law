@@ -1,7 +1,0 @@
-SECCIÓN V
-De los montos de las subvenciones otorgadas
-mediante la Ley Nos. 5662 y 7972.
-Artículo 5º—Montos de las Subvenciones. Los montos de las subvenciones, otorgadas mediante la Ley 5662 y 7972, estarán en función de los conceptos que cubran, los costos parciales o totales de los servicios de apoyo que financien, de la capacidad económica del usuario y su familia y de la capacidad presupuestaria y financiera del Consejo.
-La Junta Directiva del Consejo establecerá, anualmente, en diciembre, los montos máximos de las subvenciones, de acuerdo con las variaciones que presenten los componentes citados, las sugerencias técnicas de los funcionarios y las funcionarias responsables, y definirá los límites de autoridad financiera por parte de las instancias jerárquicas.
-Las subvenciones serán efectivas a partir del momento de su aprobación por parte de las autoridades del Consejo y tendrán un plazo de un año o menos cuando es concedida por primera vez. Las subvenciones podrán ser ampliadas, ya sea en su monto o en su período de vigencia por un año adicional o menos, de acuerdo a los resultados de la evaluación efectuada por parte de la instancias competentes.
-Asimismo las subvenciones podrán ser prorrogadas por períodos iguales de considerarse así necesario por parte de los miembros de las organizaciones no gubernamentales y los funcionarios del Consejo para lo cual se deberán renovar todos los documentos.
