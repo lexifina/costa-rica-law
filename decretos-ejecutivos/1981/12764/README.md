@@ -13,3 +13,4 @@ Reglamenta Ley de Publicidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-07-14 | la propia norma |
+| 2 | 1981-07-14 | SINALEVI (sin norma nombrada) |
