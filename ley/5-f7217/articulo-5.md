@@ -1,0 +1,1 @@
+Art 5°.- La persona que venda al menudeo o por mayor tabaco en rama cigarrillos, cigarros puros, rapé o polvo, pólvora o cualesquiera otro artículo, sea cual fuere la cantidad vendida, la multa de diez pesos por la primera vez, y de cien por la segunda, más si reincidiere por tercera vez incurrirá en la pena de un año de presidio.

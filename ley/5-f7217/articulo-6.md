@@ -1,0 +1,2 @@
+Art 6.- Para proceder contra un contrabandistas no es absolutamente necesaria la aprehensión real del artículo prohibido en que se ha traficado, pues bastará que se pruebe este delito por medio de una información legal, seguida por autoridad competente, para aplicar a su autor todas las penas establecidas, siempre que el contrabando se haya verificado después de la publicación de este decreto.
+& único.- Los cómplices, fautores y encubridores del delito de contrabando incurren en las penas proporcionales que señala los artículos 38,39, 40 y 41 parte de del Código general.
