@@ -1,0 +1,4 @@
+Adhesión o Afiliación de los Partidos
+Artículo 69.- La afiliación para la inscripción de partidos a que se refiere el artículo 64, se hará firmando hojas de adhesión, las cuales pueden ser individuales o colectivas, pero en este segundo caso no podrán llevar cada una más de veinte firmas. La hoja llevará un encabezamiento que claramente exprese que los firmantes dan su adhesiónpura y simple al respectivo partido, y deberán expresar los nombres y apellidos de los adherentes y el número de sus cédulas de identidad. * (Las firmas irán autenticadas por un notario o por un abogado, o por el Gobernador, o el Jefe Político, con los correspondientes sellos de estos últimos.)
+En el caso de que un elector hubiere firmado por dos o más partidos, sólo se tomará en cuenta la afiliación que hubiere sido presentada al Registro en primer término.
+* (Anulado lo destacado entre paréntesis mediante resolución de la Sala Constitucional N° 980 del 24 de mayo del 1991.)

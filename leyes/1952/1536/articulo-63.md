@@ -1,0 +1,2 @@
+Carácter Nacional, Provincial o Cantonal de los Partidos Políticos
+Artículo 63.- Los partidos tendrán carácter nacional cuando se formen para la elección de Presidente de la República, Vicepresidentes y Diputados a la Asamblea Legislativa o a una Asamblea Constituyente; tendrán carácter provincial cuando se propongan intervenir solamente en la elección de Diputados; y tendrán carácter cantonal cuando se funden únicamente para la elección de Regidores y Síndicos Municipales.

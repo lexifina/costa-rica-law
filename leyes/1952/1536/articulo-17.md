@@ -1,0 +1,2 @@
+Obligación de asistir a las sesiones
+Artículo 17.- La asistencia a las sesiones de las Juntas Electorales es obligatoria. El miembro de la Junta que fuere remiso, será conducido por la fuerza pública a llenar sus funciones, a petición de cualquiera de sus compañeros, del delegado del Tribunal o del representante de cualquiera de los partidos. Y quien no obstante dicho recurso compulsorio, evada el cumplimiento, después de haber sido requerido a presentarse, incurrirá en la pena del artículo 154.

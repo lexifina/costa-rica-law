@@ -1,0 +1,2 @@
+Término para Inscribir las Candidaturas
+Artículo 76.- La inscripción de candidaturas sólo podrá hacerse desde la convocatoria hasta dos meses antes al día de una elección. Para efectos de la inscripción, el Presidente del Comité Ejecutivo del organismo superior del partido, con la solicitud, presentará certificación del acta o actas notariales del acuerdo de Asambleas que hayan hecho la designación de candidatos.

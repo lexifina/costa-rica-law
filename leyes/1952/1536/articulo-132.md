@@ -1,0 +1,2 @@
+Término dentro del cual Debe Concluirse el Escrutinio
+Artículo 132.- En todo caso, el escrutinio deberá ser terminado dentro de los treinta días siguientes a la fecha de la votación, con respecto a Presidente y Vicepresidentes de la República; dentro de los cincuenta días siguientes a la fecha de votación, en cuanto a Diputados, y dentro de los sesenta días siguientes a la fecha de la votación, con respecto a Regidores y Síndicos Municipales.

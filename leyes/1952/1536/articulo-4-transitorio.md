@@ -1,0 +1,1 @@
+IV.- No obstante lo dispuesto por el artículo 64 de este Código, el plazo para la inscripción de partidos que han de participar en escalas provincial o cantonal, vencerá el día último de febrero de 1953. –La inscripción de las candidaturas de esos partidos podrá hacerse quince días después del día antes citado.

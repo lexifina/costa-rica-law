@@ -1,0 +1,2 @@
+Inscripción Condicional de Electores
+Artículo 174.- Quienes cumplan los veinte años de edad durante el semestre anterior a una elección, podrán pedir anticipadamente su inscripción como electores, así que ajusten diecinueve años y medio, siempre que gestionen dentro de la parte hábil del período para inclusiones del citado lapso. Mediante este recurso, no quedan firmes las inscripciones sino hasta que la persona inscrita alcance en cada caso la referida edad de veinte años momento a partir del que podrá ser retirada por cada interesado la cédula de identidad correspondiente.
