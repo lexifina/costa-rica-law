@@ -1,0 +1,5 @@
+DECRETO XV.
+Convocatoria extraordinaria de la Camara de Representantes para conocer de las escusas del Jefe del Estado Don Francisco Maria Oreamuno.
+"El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.
+Considerando: que segun declaratoria hecha por las Càmaras en 21 de Febrero ùltimo y 3 del corriente, el periodo de las funciones del actual Senador Presidente encargado del ejercicio del Supremo Poder Ejecutivo, espira el dia último del pre-sente mes: que no existe probabilidad alguna que en este intervalo se presente el Jefe Constitucional a ocuparse de su destino, y antes bien se tiene noticia positiva de que no lo verificará por motivos que de nuevo aduce; y que es absolutamente necesario el que el Poder Legislativo resuelva lo conducente con oportunidad para evitar la disolución del Estado y asegurar el exáto cumplimiento de la Constitucion y las leyes, de conformidad con lo dictaminado por la Cámara de Senadores y en uso de la facultad 15a art° 135 seccion 2a titulo 6°de la Carta fundamental, decreta.
+Art° 1° Se convoca extraordinariamente á la Cámara de Representantes á esta Capital para el Dia 23 del corriente.
