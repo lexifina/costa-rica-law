@@ -14,3 +14,4 @@ Reglamento del Teatro Nacional.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-01-20 | la propia norma |
+| 2 | 1980-05-29 | Decreto Ejecutivo 11542 (1980-05-29) |
