@@ -14,3 +14,4 @@ Reforma Manual de Procedimientos Administración Personal Docente
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-01-01 | la propia norma |
+| 2 | 1991-05-15 | Decreto Ejecutivo 20431 (1991-05-15) |
