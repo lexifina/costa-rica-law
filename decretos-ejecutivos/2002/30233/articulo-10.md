@@ -1,0 +1,2 @@
+Artículo 10.—Prioridad. La copia certificada de la solicitud prioritaria que se considera como primera, tal y como lo refiere el último párrafo del artículo 5 de la Ley, debe acreditar que la misma constituye un depósito nacional regular de conformidad con lo previsto en el artículo 4 del Convenio de París.
+Cuando el último día del plazo establecido en la Ley para invocar un derecho de prioridad de una solicitud fuere inhábil, el vencimiento de dicho plazo se correrá para el día hábil inmediato siguiente.

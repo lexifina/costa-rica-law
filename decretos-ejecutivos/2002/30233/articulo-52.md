@@ -1,0 +1,19 @@
+CAPÍTULO XI
+De la Organización y Funcionamiento del Registro
+Artículo 52.—Registro. El Registro es la autoridad administrativa adscrita al Registro Nacional, responsable de la inscripción y registro de los derechos en materia de Propiedad Industrial y tiene a su cargo:
+a) Organizar y administrar el registro de los derechos de Propiedad Industrial, en particular lo relacionado a los procedimientos para la adquisición y mantenimiento de los derechos relativos a marcas y otros signos distintivos, invenciones, modelos de utilidad y diseños industriales.
+b) Planificar y desarrollar programas de difusión, capacitación y formación en materia de derechos de Propiedad Industrial, directamente o en colaboración con entidades nacionales, extranjeras e internacionales.
+c) Coordinar políticas, estrategias y acciones con las instituciones públicas o privadas, nacionales, extranjeras, regionales e internacionales, que tengan relación o interés con el fomento y la protección de los derechos de Propiedad Industrial, la transferencia de tecnología, así como con el estudio y promoción del desarrollo tecnológico y la innovación.
+d) Proporcionar información al público y usuarios respecto a la Propiedad Industrial, así como aquella información y cooperación técnica que le sea requerida por las autoridades competentes.
+e) Brindar asesoría técnica jurídica a los usuarios y público en general en relación a la presentación de solicitudes y al cumplimiento de los requisitos y trámites establecidos en la Ley y en este Reglamento.
+f) Promover la creatividad intelectual, apoyando su desarrollo e impulsando la transferencia de tecnología mediante la divulgación de los acervos documentales sobre invenciones publicadas en el país o en el extranjero, la asesoría sobre su consulta y aprovechamiento y, cuando se cuente con los recursos necesarios, mediante la organización de exposiciones y certámenes nacionales, regionales o internacionales, incluyendo el otorgamiento de premios y reconocimientos que estimulen la actividad inventiva.
+g) Concertar convenios de cooperación o coordinación con instituciones públicas o privadas, nacionales, regionales o internacionales para el mejor cumplimiento de sus objetivos, principalmente para el intercambio de experiencias administrativas y metodología de trabajo, la capacitación de su personal, la organización de bases de datos, el intercambio de publicaciones y la actualización de acervos documentales en materia de Propiedad Industrial.
+h) Realizar estudios sobre la situación de la Propiedad Industrial a nivel nacional e internacional y participar en las reuniones o foros internacionales relacionados con esa materia, cuando así lo dispongan las autoridades superiores.
+i) Actuar como órgano de consulta en materia de Propiedad Industrial de las distintas dependencias y entidades de la administración pública.
+j) Participar en coordinación con las dependencias competentes del Ministerio de Comercio Exterior en las negociaciones internacionales sobre la materia.
+k) Elaborar la memoria de labores de cada año, incluyendo datos estadísticos sobre las actividades registrales de ese período.
+l) Hacer del conocimiento de las autoridades competentes de aquellas infracciones a los derechos de Propiedad Industrial en que se afecten los intereses del Estado, para que se ejerciten las acciones procedentes.
+m) Aplicar las sanciones administrativas previstas en la legislación en materia de Propiedad Industrial.
+n) Denunciar los delitos contra los derechos de Propiedad Industrial de que tenga conocimiento.
+o) Cumplir todas las demás funciones, atribuciones y actividades que le sean asignadas de conformidad con la Ley y este Reglamento.
+p) Actuar en las diligencias jurídicas ordenadas por la Ley de Procedimientos de Observancia con la competencia que dicha Ley le confiere.

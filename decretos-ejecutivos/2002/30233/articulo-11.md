@@ -1,0 +1,5 @@
+Artículo 11.—Prioridad múltiple. Cuando en la solicitud se invoquen prioridades múltiples o parciales se indicarán los datos relativos a todas ellas y se presentarán los documentos correspondientes tal y como lo indica el Convenio de París.
+Para tales efectos, se entenderá por:
+a) prioridad múltiple la que se invoca cuando la lista de productos o servicios de la solicitud presentada combina las listas de productos o servicios de dos o más solicitudes prioritarias;
+b) prioridad parcial la que se invoque cuando la lista de productos o servicios de la solicitud presentada incluye solo parcialmente los productos o servicios comprendidos en la lista de la solicitud prioritaria.
+Cuando se invoque en la solicitud de registro una prioridad temporaria para hacer valer la protección conforme al artículo 11. 4) del Convenio de París, se acompañará la constancia emitida por la organizadora de la exposición internacional, con la traducción simple que fuese necesaria, en la cual se certifique la exhibición de los productos o servicios con la marca y se indique la fecha en que ellos fueron exhibidos por primera vez en la exposición.

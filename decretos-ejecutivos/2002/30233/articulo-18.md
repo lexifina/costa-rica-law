@@ -1,0 +1,2 @@
+Artículo 18.—Formas de presentación de un registro. Por el solo hecho de la presentación de la solicitud de registro de marca o signo distintivo, se entenderá que el solicitante pretende la inscripción y protección del mismo, tal y como aparece en la solicitud o, en su caso, en las reproducciones que deben acompañarse a la misma.
+Si el solicitante no deseare hacer reservas sobre representación gráfica o color específicos, la marca se presentará en escritura normal mediante letras, cifras y/o signos de puntuación mecanográficos en mayúsculas y/o minúsculas.

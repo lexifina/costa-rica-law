@@ -1,0 +1,8 @@
+Artículo 24.—Reglas para calificar semejanza. Tanto para la realización del examen de fondo como para la resolución de oposiciones, se tomará en cuenta, entre otras, las siguientes reglas:
+a) Los signos en conflicto deben examinarse en base de la impresión gráfica, fonética y/o ideológica que producen en su conjunto, como si el examinador o el juzgador estuviese en la situación del consumidor normal del producto o servicio de que se trate.
+b) En caso de marcas que tienen radicales genéricos o de uso común, el examen comparativo debe hacerse con énfasis en los elementos no genéricos o distintivos;
+c) Debe darse más importancia a las semejanzas que a las diferencias entre los signos;
+d) Los signos deben examinarse en el modo y la forma en que normalmente se venden los productos, se prestan los servicios o se presentan al consumidor, tomando en cuenta canales de distribución, puestos de venta y tipo de consumidor a que van destinados;
+e) Para que exista posibilidad de confusión, no es suficiente que los signos sean semejantes, sino además que los productos o servicios que identifican sean de la misma naturaleza o que pueda existir la posibilidad de asociación o relación entre ellos;
+f) No es necesario que haya ocurrido confusión o error en el consumidor, sino es suficiente la posibilidad de que dicha confusión o error se produzca, teniendo en cuenta las características, cultura e idiosincrasia del consumidor normal de los productos o servicios; o
+g) Si una de las marcas en conflicto es notoria, la otra debe ser clara y fácilmente diferenciable de aquella, para evitar toda posibilidad de aprovechamiento indebido del prestigio o fama de la misma.

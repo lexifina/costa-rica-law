@@ -1,0 +1,1 @@
+Artículo 40.—Solicitud de registro. Además de los requisitos establecidos en los artículos 9 de la Ley y 3 de este Reglamento, la solicitud de registro de una expresión o señal de publicidad comercial deberá indicar, cuando corresponda, la marca o nombre comercial a que se refiera y los datos relativos a su inscripción o solicitud en trámite.

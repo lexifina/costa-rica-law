@@ -1,0 +1,1 @@
+Artículo 51.—Cancelación voluntaria. Además de cumplir los requisitos comunes establecidos en el artículo 3 de este Reglamento, la solicitud de cancelación voluntaria de un registro deberá llevar la firma del solicitante y o del abogado que lo auxilia cuando fuere del caso. Esta no será objeto de publicación.

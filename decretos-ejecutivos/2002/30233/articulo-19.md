@@ -1,0 +1,3 @@
+Artículo 19.—División de la solicitud. A efectos de formar el expediente correspondiente a solicitudes fraccionarias en materia de marcas, el solicitante deberá presentar las listas de productos o servicios agrupados según corresponda para cada una.
+Si antes de presentarse el pedido de división o fraccionamiento, se hubiere notificado algún requerimiento de forma, no se atenderá la división mientras no se hubiese subsanado el error u omisión. En igual forma se procederá cuando se hubiesen notificado objeciones que a juicio del Registro impiden acceder a la solicitud.
+La publicación del aviso de la solicitud efectuada antes de la división surtirá efectos para cada solicitud fraccionaria.

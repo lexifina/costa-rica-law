@@ -1,0 +1,1 @@
+Artículo 14.—Abandono. Cuando se tenga una solicitud por abandonada de acuerdo a lo prescrito en el artículo 85 de la Ley, el Registrador lo hará constar en los antecedentes que obran en las bases de datos y ordenará su archivo, firmando la resolución dictada en el respectivo expediente.

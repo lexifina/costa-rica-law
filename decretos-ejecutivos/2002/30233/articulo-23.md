@@ -1,0 +1,1 @@
+Artículo 23.—Medios de prueba. En casos de oposición o de procedimientos de cancelación o nulidad de registros marcarios, el Registro admitirá como medios de prueba aquellos que estime pertinentes con relación al caso en cuestión, de conformidad con lo dispuesto en el artículo 318 del Código Procesal Civil.

@@ -1,0 +1,1 @@
+Artículo 65.—Apelación. Contra las resoluciones definitivas del Registro procede el recurso de apelación que será conocido por el Tribunal Registral Administrativo, conforme lo establecido en el artículo 92 de La Ley Nº 7978 y de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, Ley Nº 8039 del 12 de octubre del año 2000.

@@ -1,0 +1,2 @@
+Artículo 63.—Elementos figurativos de signos distintivos. Para los efectos del examen de fondo que deba realizar con motivo de solicitudes de registro de marcas y otros signos distintivos, el Registro debe mantener un archivo de los elementos figurativos y emblemas protegidos organizado de conformidad con la Clasificación Internacional de los Elementos Figurativos, la cual podrá ser consultada.
+Cuando la marca u otro signo distintivo consistiere únicamente en un signo o elemento figurativo o tridimensional, el Registro le designará la clasificación correspondiente.

@@ -1,0 +1,1 @@
+Artículo 33.—Titular de una marca colectiva. Podrán solicitar la inscripción de una marca colectiva cualquier asociación de fabricantes, productores, artesanos, agricultores, industriales, prestadores de servicios o comerciantes que, de conformidad con la legislación que les sea aplicable, tengan personalidad jurídica.

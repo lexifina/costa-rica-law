@@ -1,0 +1,1 @@
+Artículo 56.—Control de documentos e inscripciones. El Registro de la Propiedad Industrial, custodiará por un medio adecuado todos los documentos presentados en sus oficinas, los cuales podrán ser consultados en forma pública.

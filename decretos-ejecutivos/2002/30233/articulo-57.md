@@ -1,0 +1,2 @@
+Artículo 57.—Publicidad. Los expedientes, libros, registros, documentos y archivos, cuando proceda, podrán ser objeto de consulta directa por el interesado bajo la responsabilidad de un funcionario del Registro. El interesado podrá obtener, a su costa, copias simples o certificadas y constancias o certificaciones de los documentos e inscripciones que obran en el Registro.
+Cuando el Registro esté en posibilidad de establecer nuevas modalidades de servicios, las consultas podrán hacerse por medios electrónicos, en la forma que el propio Registro determine.
