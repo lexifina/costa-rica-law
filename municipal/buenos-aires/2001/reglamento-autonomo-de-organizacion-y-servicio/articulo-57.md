@@ -1,0 +1,1 @@
+Artículo 57.—Agotados los procedimientos establecidos en la Municipalidad de Buenos Aires o si no se cumplen por motivos que no se le pueden imputar a la persona ofendida, las denuncias de hostigamiento sexual, se podrán presentar ante los tribunales de la jurisdicción laboral, los cuales serán competentes para conocerlas.

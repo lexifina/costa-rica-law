@@ -1,0 +1,1 @@
+Artículo 122.—El procedimiento de las sanciones se aplicara con base a los artículos 150 y 151, del Código Municipal y con la aprobación de este reglamento queda definido por parte del Concejo la aplicación del mismo a los funcionarios contemplados en el artículo 152.

@@ -1,0 +1,1 @@
+Artículo 82.—En caso de que el funcionario municipal, por razones justificadas no pueda disfrutar las vacaciones en el período establecido, deberá comunicarlo de inmediato por escrito al jefe inmediato para que ésta reprograme las mismas en coordinación con la instancia encargada de los Recursos Humanos.

@@ -1,0 +1,1 @@
+Artículo 110.—Se considera como ausencia, la inasistencia injustificada al trabajo durante la jomada laboral completa. La inasistencia injustificada durante una fracción de la jomada laboral se computara como la mitad de una ausencia. En ningún caso, se pagara el salario que corresponde, a las ausencias injustificadas.

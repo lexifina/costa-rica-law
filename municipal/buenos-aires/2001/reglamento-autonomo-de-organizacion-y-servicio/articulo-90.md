@@ -1,0 +1,2 @@
+Artículo 90.—La instancia encargada de los Recursos Humanos con previa autorización de la Alcaldía Municipal, comunicará el permiso con goce de salario, de conformidad con el artículo 144, del código municipal.
+Las solicitudes de licencias deben presentarse por escrito en un plazo no menor de quince días antes de su disfrute a la instancia encargada de los Recursos Humanos, a fin de que ésta realice el trámite respectivo y en un plazo improrrogable de cinco días emitida la resolución, pueda comunicar lo pertinente al funcionario municipal.

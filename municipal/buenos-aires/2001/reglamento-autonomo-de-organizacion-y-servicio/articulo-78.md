@@ -1,0 +1,1 @@
+Artículo 78.—La concesión de un asueto la dispone el Concejo Municipal de conformidad con la ley y cuando así lo disponga de acuerdo a los intereses de la buena marcha de la Institución y el Alcalde Municipal lo comunicara a los trabajadores. En ningún caso se considera dicho otorgamiento como un derecho adquirido.

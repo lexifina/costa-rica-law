@@ -1,0 +1,1 @@
+Artículo 87.—Los funcionarios municipales, gozarán sin interrupción del periodo de vacaciones. Excepcionalmente podrán dividirse en dos periodos como máximo cuando exista convenio de las partes al respecto y se trate de labores de índole tan especial, que no permitan una ausencia prolongada del servidor.

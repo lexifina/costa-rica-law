@@ -1,0 +1,1 @@
+Artículo 88.—En el caso de terminación del contrato o relación de trabajo, antes de cumplir el funcionario municipal el periodo de cincuenta semanas y después de los tres primeros meses, tendrá derecho como mínimo a un día de vacaciones por cada mes completo de trabajo, que se le deberá pagar en el mismo momento del retiro de la Municipalidad.

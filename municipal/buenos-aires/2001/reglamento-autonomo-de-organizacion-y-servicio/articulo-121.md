@@ -1,0 +1,1 @@
+Artículo 121.—Cuando el resultado de la evaluación y calificación del servicio anual, sea regular por dos veces consecutivas será causal de despido sin responsabilidad patronal de conformidad con el artículo 141 del Código Municipal.

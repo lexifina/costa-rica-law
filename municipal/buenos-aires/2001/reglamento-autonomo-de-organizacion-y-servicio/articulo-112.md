@@ -1,0 +1,1 @@
+Artículo 112.—En aquellos casos en que la incapacidad sea emitida por médico particular, el funcionario está en la obligación de presentar la misma con el refrendo u autorización extendida sobre esta por la Clínica a la cual está adscrito, según controles de la CCSS.

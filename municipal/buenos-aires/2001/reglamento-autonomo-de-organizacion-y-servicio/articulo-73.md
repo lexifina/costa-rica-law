@@ -1,0 +1,1 @@
+Artículo 73.—Los servidores cumplirán su jornada laboral de trabajo, dentro de los horarios que se señala en este Reglamento. Cada jefatura regulara la forma en que sus colaboradores puedan tomar los descansos, a efecto de que no se cause menoscabo del trabajo, ni mucho menos se produzca el cierre de ninguna dependencia.

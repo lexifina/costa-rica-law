@@ -1,0 +1,1 @@
+Artículo 33.—Las reasignaciones entrarán en vigencia a partir de la aprobación del documento por el ente técnico (Instancia encargada de los Recursos Humanos) siempre y cuando exista disponibilidad presupuestaria.

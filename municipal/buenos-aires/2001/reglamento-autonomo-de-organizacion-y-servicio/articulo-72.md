@@ -1,0 +1,1 @@
+Artículo 72.—No obstante lo dispuesto en el Artículo anterior, en caso de necesidad impostergable para los intereses municipales prestarán sus servicios hasta por 12 horas diarias, con hora y media de descanso conforme lo dispone el articulo 143 del Código de Trabajo.

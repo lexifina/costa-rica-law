@@ -1,0 +1,1 @@
+Artículo 5°—El acto administrativo interno sólo producirá su efecto después de notificado el servidor, en la forma establecida en este Reglamento, Códigos: Municipal y de Trabajo, excepto si le concede únicamente derechos o beneficios, en cuyo caso lo producirá desde que se adopte.

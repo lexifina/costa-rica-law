@@ -1,0 +1,1 @@
+Artículo 109.—Sólo podrá dejar de marcar aquel trabajador que esté autorizado por el Superior Jerárquico para no nacerlo o que este reglamento así lo autorice, tal es el caso del auditor y el secretario municipal.

@@ -1,0 +1,1 @@
+Artículo 115.—Toda llegada tardía debe ser justificada ante el superior inmediato, el mismo día de su ocurrencia, con exposición clara y precisa de las razones que le impidieron presentarse a la hora señalada para el ingreso de labores
