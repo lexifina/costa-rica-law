@@ -1,45 +1,44 @@
 Artículo 5º.-Mercancías exentas.- De acuerdo con el artículo 4º anterior y el 9º de la ley, están exentas del pago del impuesto, las ventas de las mercancías siguientes:
 1) Canasta básica alimentaria y de bienes esenciales para la educación:
-I.- Canasta Básica Tributaria (sic: debe ser Alimentaria)
+I.- (*)Canasta Básica tributaria
+Los siguientes productos de panadería que contengan levadura:
 Pan baguette
-Pan corriente (bollo)
-Pan cuadrado
-Pan de hot dog (perro caliente)
-Pan dulce
-Pan integral
-Pan rallado
-Hostias
+Pan corriente (bollo). Pan cuadrado
+Pan para hot dog (perro caliente)
+Pan dulce. Pan integral. Pan rallado
+Pana para hamburguesas.
 Pan de toda clase
+Hostias
 Arroz
 Harinas finas y gruesas de maíz
-Harinas finas y gruesas de trigo, escanda, comuña, centeno y otros cereales
+Harinas finas y gruesas de trigo, escanada, comuña, centeno y otros cereales.
 Maicena y otros almidones comestibles de maíz
 Maíz cascado, excepto el enlatado o envasado
 Masa de maíz
-Tortilla de harina de trigo
-Tortilla de maíz
-Maíz corriente, excepto el enlatado o envasado
+Tortilla de harina de trigo, excepto las fritas
+Tortillas de maíz, excepto las fritas
+Maíz corriente o dulce, excepto el enlatado o envasado
 Maicillo en grano, no envasado
 Sorgo sin moler, no envasado
-Trigo y escanda (incluso comuña), sin moler
+Trigo, morcajo, tranquillón y escanda (incluso comuña), sin moler
 Otras harinas de cereales y derivados
 Canelones, excepto los rellenos
 Caracoles, excepto los rellenos
 Caracolitos, excepto los rellenos
-Calzones plásticos para bebe
-(Así adicionada la mercancía anterior por el artículo 2° del decreto ejecutivo N° 25360 del 5 de julio de 1996)
-Chop suey Fideos, excepto los rellenos
+Chop suey
+Fideos, excepto los rellenos
 Conchas, excepto los rellenos
 Conchitas, excepto los rellenos
-Espaguetti, excepto los rellenos
+Espagueti, excepto los rellenos
 Pastas para lasaña
 Macarrones, excepto los rellenos
 Ravioles, excepto los rellenos
 Pastas para Wantan
 Otras pastas, excepto las rellenas
+Las siguientes carnes frescas, refrigeradas o congeladas, excepto las sazonadas, condimentadas, empanizadas y demás carnes preparadas del capítulo 16 del SAC:
 Alipego, fresco, refrigerado o congelado
-Carne molida corriente, que no contenga ningún preservante, condimento u otros aditivos, fresca, refrigerada o congelada
-Carne molida especial, que no contenga ningún preservante, condimento u otros aditivos, fresca, refrigerada o congelada
+Carne molida corriente, fresca, refrigerada o congelada
+Carne molida especial, fresca, refrigerada o congelada
 Carne para asar, fresca, refrigerada o congelada
 Chuleta, fresca, refrigerada o congelada
 Costilla, fresca, refrigerada o congelada
@@ -54,7 +53,7 @@ Posta de res de primera, fresca, refrigerada o congelada
 Posta de res de segunda, fresca, refrigerada o congelada
 Posta y hueso, fresca, refrigerada o congelada
 Rabo, fresco, refrigerado o congelado
-Riñon, fresco, refrigerado o congelado
+Rinón, fresco, refrigerado o congelado
 Sesos, frescos, refrigerados o congelados
 T-bone, fresco, refrigerado o congelado
 Otras carnes de res, fresca, refrigerada o congelada
@@ -76,21 +75,18 @@ Pechuga, fresca, refrigerada o congelada
 Pollo entero sin plumas, fresca, refrigerada o congelada
 Otras carnes de ave, fresca, refrigerada o congelada
 Carnes frescas, refrigeradas o congeladas, de ganado vacuno, ovino, porcino, caballar, caprino, de aves de corral, aves y animales de caza, así como los desperdicios comestibles de estos animales.
+Pescado y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
+Atún fresco, y sus partes fresco, en salmuera, salado o desecado (no envasado o enlatado)
+Mero y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
+Pargo y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
+Bacalao seco y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
+Pescado seco y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
 Chorizo, excepto enlatado o envasado
 Mortadela, excepto enlatado o envasado
 Paté, excepto enlatado o envasado
 Salchichas, excepto enlatado o envasado
 Salchichón, excepto enlatado o envasado
-Pescado y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
-Atún fresco y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
-Mero y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
-Pargo y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
 Atún en conserva, enlatado
-Bacalao seco y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
-Langostinos (frescos, refrigerados o congelados)
-Quisquillas (frescos, refrigerados o congelados)
-Gambas (frescos, refrigerados o congelados)
-Pescado seco y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
 Leche agria
 Leche en polvo
 Leche fresca
@@ -101,13 +97,12 @@ Leche y cremas frescas, pasteurizadas o esterilizadas (incluso sueros de mantequ
 Leche y crema (incluso sueros de mantequilla o de queso y leche descremada), deshidratadas o desecadas, en forma sólida, como bloques y polvo.
 Cuajada no envasada
 Natilla fresca
-Queso blanco, tipo duro, semiduro y cremoso, no envasado
-Requezón, no envasado
+Queso blanco, tipo duro, semiduro, no envasado.
+Requesón, no envasado
 Suero de leche, no envasado
-Huevo de codorniz, frescos, con cascarón
-Huevo de gallina, frescos, con cascarón
-Otros huevos frescos comestibles de cascarón de toda clase de ave
+Huevos de gallina, frescos, con cascarón
 Aceite de maíz
+(*)(Así reformado las mercancías anteriores por el artículo 1° aparte 1) del decreto ejecutivo N° 26263 del 18 de agosto de 1997 y corregido mediante Fe de Erratas y publicada en La Gaceta N° 183 del 24 de setiembre de 1997, página 38)
 Aceite de soya
 Otros aceites y grasas vegetales comestibles, excepto de maní¡, cacahuate y de oliva
 Manteca de cerdo
@@ -234,17 +229,21 @@ Vinagres de toda clase
 Levaduras
 Velas, cirios, veladoras y mariposas para lámparas, excepto las coloreadas, decoradas o perfumadas
 Fósforos y cerillas a granel o en empaques
-Jabón para lavar (en barra o bola)
+Jabón para lavar, moldeado o troquelado
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Papel higiénico
 Dentífricos
 Pastas dentales
-Agua natural (potable)
+Agua natural potable, excepto en recipientes de cualquiere material
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Silla de ruedas
-Calzado ortopédico
+Calzado y plantillas ortopédicos hechos a adaptados a la medida para corregir defectos fisícos, con receta médica
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Tamales de maíz
 Leña
 Audífonos para sordos
 Bizcochos de maíz
+(Así excluida la mercancía "Gestágenos"por el artículo 1° a parte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Gestágenos
 Profilácticos
 Pañales para bebé‚
@@ -253,26 +252,37 @@ Sirope de caña de azúcar
 Cepillo dental
 Cepillo de raíz y sus similares (de cualquier material) de uso doméstico, excepto el cepillo para piso
 (Así reformada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 25360 del 5 de julio de 1996)
-Mechas para piso, de uso doméstico
-Palas para basura, de uso doméstico
-Escobas, de uso doméstico
-Palo de piso, de uso doméstico
+Mechas para piso
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Palas para recoger basura
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Escobas
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Palo de piso
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Repelente contra mosquitos, tanto de uso ambiental como corporal
+Palmito fresco, excepto el enlatado o envasado
+(Así adicionada la mercancía anterior por el artículo 1° a parte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Plantas vivas y productos de la floricultura de las partidas SAC06.03 y 06.04, excepto los arreglos, centros de mesa, ofrendas florales y artículos similares
+(Así adicionada la mercancía anterior por el artículo 1° a parte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 II. Bienes esenciales para la Educación
 Diccionario
 Enciclopedia
 Otros libros de texto
 Periódico
-Revista en general
-Revistas profesionales
-Semanario
-Revistas, diarios y publicaciones periódicas e impresos de la partida SAC 4902 y folletos impresos de la partida SAC 4901
+(Así excluida la mercancía "Revista en general", por el artículo 1° a parte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+(Así excluida la mercancía "Revistas profesionales", por el artículo 1° a parte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+(Así excluida la mercancía "Semanario", por el artículo 1° a parte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+(Así excluida la mercancía "Revistas, diarios y publicaciones periódicas e impresos de la partida SAC 4902 y folletos impresos de la partida SAC 4901", por el artículo 1° a parte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Gomas para borrar, de caucho o material plástico
 Cuadernos
 Hojas de papel para portafolios
-Reglas escolares de medición
-Bolígrafos desechables
-Lápices de mina negra
+Reglas escolares de medición hasta 30 cm.
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Bolígrafos desechables (que no se les puede remover o cambiar el depósito de tinta)
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Lápices de mina negra del inciso arancelario 96091010
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Lápices de colores para dibujar
 Crayones
 Tajador (sacapuntas de bolsillo)
@@ -287,7 +297,7 @@ Tiza en barritas
 Pastas para modelar (plasticina acondicionada para uso de los niños)
 Escuadras para uso escolar (únicamente las pequeñas, planas, hasta quince centímetros)
 Compases para uso escolar (de latón, con o sin lápiz)
-Cola y pegamentos de toda clase para uso escolar, en envases de contenido neto menor de 250 cc, excepto los preparados a base de caucho.
+(Así excluida la mercancía "Cola y pegamentos de toda clase para uso escolar, en envases de contenido neto menor de 250 cc, excepto los preparados a base de caucho", por el artículo 1° a parte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Uniforme escolar (sólo camisa, blusa, pantalón o falda) a juicio de la Administración Tributaria
 Calzado tipo escolar a juicio de la Administración Tributaria
 2) Medicamentos: para efectos tributarios, se definen medicamentos como:
@@ -384,7 +394,8 @@ Barrenadores para acoplar al tractor agrícola
 Biberones para terneros
 Biológicos para uso agropecuario
 Block de sal mineral
-Bombas de agua de 0.75 KW (1 HP) o m s para uso de proyectos agropecuarios
+Bombas de agua de 0.75 KW (1 HP) o más
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Bolsas plásticas para la protección y empaque del banano
 Cabletractores para el transporte de fruta
 Calibradores para control y medición de frutas
@@ -447,7 +458,8 @@ Fusibles para cerdas eléctricas
 Galvanómetros
 Gorros plásticos para flores
 Grapas para cerca
-Grava para filtros
+Grava para filtros y elementos filtrantes
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Guantes desechables para obstetricia veterinaria
 Guillotina para tallos
 Herbicidas, inhibidores de germinación y reguladores del crecimiento de las plantas
@@ -457,7 +469,8 @@ Hilos para "sarán", (tiras crudas o teñidas para tejidos de uso agrícola)
 Hojas de bisturí¡
 Hojas de tijeras podadoras
 Hormonas vegetales
-Huevos fértiles
+Huevos fértiles de ave, óvulos fecundados, huevos y lechas de pescado
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Implantadores
 Impulsadores de aire para granjas, y sus repuestos y accesorios
 Infiltrómetros
@@ -467,7 +480,7 @@ Instrumentos para manejo de animales
 Jaulas para la actividad avícola
 Jaulas para parición para cerdos
 Jeringas de uso veterinario
-L minas plásticas para invernadero elaboradas contra rayos ultravioleta
+Láminas plásticas para invernadero elaboradas contra rayos ultravioleta
 Lápices para marcar aretes
 Limas de filo
 Limas para cascos y dientes
@@ -482,7 +495,8 @@ Marcadores en pasta para detección de celo
 Medidores de humedad del suelo
 Miel de purga o melaza
 Motoazadas
-Motosierras
+Motosierras del inciso arancelario 84678100
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Niveladoras de arrastre para acoplar al sistema de 3 puntos de los tractores agrícolas
 Palas frontal y trasera
 Paleta para prueba de mastitis
@@ -490,7 +504,8 @@ Pasta para descornar
 Película plástica (protectores) blanca o negra tratada contra rayos ultravioleta
 Penetrógrafos
 Penetrómetros
-Pigmentantes
+materias colorantes utilizadas en la pigmentación de productos agrícolas
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Pinzas para cascos
 Pipetas para inseminación
 Piso de acero para porcicultura desnudo y recubierto
@@ -548,9 +563,12 @@ Aros protectores metálicos o plásticos para reinales
 Aros salvavidas (rellenos de espuma de caucho o de materias plásticas)
 Bering de bronce con forro interno de hule o de baquelita, para eje de propela
 Bitas de bronce
-Bombas de achique plásticas para uso agropecuario, de 12, 24 y 32 voltios
+Bombas de achique plásticas de 12, 24 y 32 voltios
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Bombas de uso marino de 12, 24 y 32 voltios para trasegar agua potable de los tanques de la cocina
 Bombas máquinas excepto los automáticos
+Bombas mecánicas de bronce de uso marino para achique
+(Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Cable de acero alquitranado y engrasado (7/16 de pulgada en adelante)
 Cable de acero inoxidable para reinales
 Cables para palancas de control para aceleración y marcha
@@ -598,4 +616,12 @@ Formularios para el cumplimiento de las obligaciones tributarias
 Prótesis oculares
 Toda clase de equipos médicos e instrumentos médico-quirúrgicos, requeridos por la Caja Costarricense de Seguro Social para la prestación de sus servicios
 Composiciones musicales
+Revistas en general
+(Así incluida la mercancía anterior, por el artículo 1° aparte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Revistas profesionales
+(Así incluida la mercancía anterior, por el artículo 1° aparte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Semanario
+(Así incluida la mercancía anterior, por el artículo 1° aparte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Revistas, diarios y publicaciones periódicas e impresos de la partida SAC4902 y folletos e impresos de la partida SAC 4901
+(Así incluida la mercancía anterior, por el artículo 1° aparte 3) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 24748 del 15 de noviembre de 1995)
