@@ -1,0 +1,1 @@
+Artículo 2°-Serán sancionados de acuerdo con las leyes penales por adulteración o fraude según sea el caso, quienes fabriquen Mampostería Hueca de Concreto (Bloques) que no estén de acuerdo con las especificaciones que establece esta Norma.
