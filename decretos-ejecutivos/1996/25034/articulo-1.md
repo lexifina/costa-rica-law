@@ -1,0 +1,15 @@
+Nº 25034-S
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE SALUD
+En uso de las atribuciones que les confieren los artículos 140 incisos 3) y 18) de la Constitución Política; 1º y 2º de la Ley Nº 5412 de 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud"; 1, 4, 7, 239 y siguientes y 340 de la Ley Nº 5395 de 30 de octubre de 1973 "Ley General de Salud"; y 28 inciso b) y 59 inciso 1) de la Ley Nº 6227 de 2 de mayo de 1978 "Ley General de la Administración Pública".
+Considerando:
+1º.- Que corresponde al Ministerio de Salud definir cuales son sustancias, productos u objetos tóxicos o peligrosos de carácter radioactivo, comburente, inflamable, corrosivo, irritante u otros declarados peligros por el Ministerio.
+2º.- Que corresponde al Ministerio de Salud velar porque toda persona natural o jurídica que se ocupe de la importación, fabricación, manipulación, preparación, reenvase, almacenamiento, venta, distribución y suministro de sustancias, productos u objetos peligrosos o declarados peligros por el Ministerio de Salud, realicen esas operaciones en que condiciones que permitan eliminar o minimizar el riesgo para la salud y seguridad de las personas y animales que queden expuestos a ellas con ocasión de su trabajo, tenencia, uso o consumo.
+3º.- Que es función del Ministerio de salud dictar las medidas de carácter general que estime convenientes, para salvaguardar la salud de las personas con respecto a toda manipulación que se haga de sustancias, productos u objetos tóxicos o peligrosos de carácter radioactivo, comburente, inflamable, corrosivo, irritante u otros declarados peligrosos por el Ministerio.
+4º.- Que en la determinación del criterio técnico que se puede aplicar en la materia, se hace conveniente contar con el criterio y el apoyo del sector de comercio privado directamente relacionado con la manipulación de sustancias, productos u objetos tóxicos o peligrosos de carácter radioactivo, comburente, inflamable, corrosivo, irritante u otros declarados peligrosos por el Ministerio.
+5º.- Que el sector de comercio privado directamente relacionado con la manipulación de sustancias, productos u objetos tóxicos o peligrosos de carácter radioactivo, comburente, inflamable, corrosivo, irritante u otros declarados peligrosos por el Ministerio, se tiene por bien representado a través de la Cámara de Industria Química, alimentaria y afines.
+6º.- Que mediante Decreto Ejecutivo Nº 24099-S del 22 de diciembre de 1994, el Poder Ejecutivo emitió el "Reglamento de Registro y Control de Sustancias Tóxicas y Productos Tóxicos y Peligrosos", mediante el cual se constituye un Organo Asesor Técnico en la materia de criterio no vinculante, constitución que es conveniente y oportuno modificar. Por tanto,
+DECRETAN:
+Artículo 1º.- Adiciónese al artículo 51 del Decreto Ejecutivo Nº 24099-S del 22 de diciembre de 1994, "Reglamento de Registro y control de Sustancias Tóxicas y Productos Tóxicos y Peligrosos" un inciso i) que se leerá así:
+"Artículo 51: ...
+i) Un representante de la Cámara de Industria Química, Alimentaria y Afines."
