@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE ESCAZÚ
+El Concejo Municipal del cantón de Escazú, en su sesión ordinaria No 40, celebrada el martes 24 de noviembre de mil novecientos noventa y ocho acordó:
+Aprobar las modificaciones al Reglamento de Dedicación Exclusiva de la Municipalidad de Escazú, recomendadas por el Sr. Alcalde Municipal, correspondientes al artículo 2, en cuanto a que se aumenta el porcentaje de pago por dedicación exclusiva de los bachilleres de un 20% a un 30%, así como el inciso c) del artículo 3, en cuanto a que se aclara que "este régimen puede ser accedido tanto por funcionarios interinos, suplentes o propietarios, siempre y cuando cumplan con los requisitos que para el efecto se exigen". Aprobado.
