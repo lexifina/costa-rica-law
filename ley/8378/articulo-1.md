@@ -1,0 +1,8 @@
+Nº 8378
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DESAFECTACIÓN DEL DOMINIO PÚBLICO DE DOS LOTES PROPIEDAD DE LA MUNICIPALIDAD DEL CANTÓN DE BARVA Y AUTORIZACIÓN A ESTA MUNICIPALIDAD PARA QUE LOS VENDA Y DESTINE LOS RECURSOS AL FINANCIAMIENTO PARCIAL DE LA CONSTRUCCIÓN DE UN POLIDEPORTIVO
+Artículo 1º—Desaféctase del dominio público la finca inscrita en el Registro Público, Sección Propiedad, partido de Heredia, N° 88354, inscrita en el tomo 2589, folio 437, asiento 2. Dicha finca se describe así: es el lote 9 A, terreno para construir, sito en el distrito 1°, Barva; cantón II, Barva, provincia de Heredia; sus linderos son: al norte, al este, y al oeste, la Sociedad Agrícola de Barva Elena de Salazar Suc. Ltda.; y al sur, calle pública con un frente de doce metros con noventa y seis centímetros; mide doscientos ochenta y siete metros con cuarenta y tres decímetros cuadrados, según el plano catastrado N° H-284568-77.
+Asimismo, se desafecta del dominio público la finca del partido de Heredia, N° 88356, inscrita en el tomo 2589, folio 439, asiento 2, la cual se describe así: es el lote 10, terreno para construir, sito en el distrito 1°, Barva; cantón II Barva, provincia de Heredia; sus linderos son: al noroeste, el lote 5 bloque A; al sureste, calle pública, con un frente de trece metros con un centímetro; al noreste, el lote 9, y al suroeste, servidumbre de paso de aguas fluviales. Mide trescientos cincuenta y siete metros con setenta y nueve decímetros cuadrados, según el plano catastrado N° H-284569-77.
+Ambas fincas desafectadas del dominio público son propiedad de la Municipalidad de Barva.
