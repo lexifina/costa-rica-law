@@ -1,0 +1,1 @@
+Artículo 4º.El Instituto Nacional de Aprendizaje (INA) será la institución responsable de suministrar los cursos de capacitación a los aspirantes a operarios y operarios, procurando recibir la preselección de los candidatos referidos por las empresas de zona franca.

@@ -1,0 +1,1 @@
+Artículo 10º.El Ministerio de Trabajo otorgará al aprendiz un subsidio mensual, con cargo al fondo del Programa de Generación de Empleo durante el período de capacitación. El monto de ese subsidio será equivalente al salario mínimo mensual.

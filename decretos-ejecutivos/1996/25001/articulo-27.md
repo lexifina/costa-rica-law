@@ -1,0 +1,1 @@
+Artículo 27º.De acuerdo con los criterios del INA, los aprendices recibirán supervisión técnica hasta completar el ciclo de capacitación. En ningún caso se tomará como "producción para la empresa", ni se podrá exigir a las personas que así se formen rendimiento mínimo, por encontrarse en etapa de aprendizaje.

@@ -1,0 +1,1 @@
+Artículo 19º.El Auxilio a Trabajadores será otorgado por un plazo de tres meses, prorrogable por un período igual cuando la complejidad o la intensidad del proceso lo ameriten, a juicio del Ministerio de Trabajo y Seguridad Social, previo informe del Ministerio de Comercio Exterior.

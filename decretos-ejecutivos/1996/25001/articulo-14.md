@@ -1,0 +1,1 @@
+Artículo 14º.Durante el período de capacitación, las empresas y el INA coordinarán de mutuo acuerdo la labor de capacitación; de forma tal que ese proceso esté acorde con los reglamentos del INA y las políticas internas de las empresas.

@@ -1,0 +1,1 @@
+Artículo 20º.El pago será efectuado al final de cada mes y directamente al beneficiario. Este dispondrá de treinta días para hacer valer sus derechos en cuanto al pago del Auxilio. Transcurrido ese plazo sin que el beneficiario retire su auxilio económico, el mismo será anulado y reintegrado al fondo por las vías pertinentes.

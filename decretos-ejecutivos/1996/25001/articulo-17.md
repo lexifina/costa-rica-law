@@ -1,0 +1,1 @@
+Artículo 17º.El Ministerio de Hacienda efectuará los depósitos correspondientes por concepto de auxilio económico a cada beneficiario, mediante el Sistema Bancario Nacional, de acuerdo con las indicaciones del Ministerio de Trabajo y Seguridad Social.

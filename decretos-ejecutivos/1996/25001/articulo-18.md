@@ -1,0 +1,1 @@
+Artículo 18º.El beneficiario del Auxilio será otorgado a la persona solamente en curso de capacitación, salvo en caso de que dicha persona sea requerida en un sector diferente de la industria del cual ha sido ya capacitado.

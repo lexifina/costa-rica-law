@@ -1,0 +1,1 @@
+Artículo 11º.El pago del subsidio mensual no genera ningún vínculo laboral entre el aprendiz y el Ministerio de Trabajo y Seguridad Social durante el período de capacitación, ni produce otros efectos legales. Para todos los efectos legales durante ese período el aprendiz se considera un estudiante del INA.

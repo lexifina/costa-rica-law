@@ -1,0 +1,1 @@
+Artículo 22º.Los recursos para financiar el Programa se presupuestarán en cada período, conforme con la necesidad de capacitación de las empresas establecidas en las zonas francas y según la disponibilidad de recursos del Fondo de Desarrollo Social y Asignaciones Familiares o de cualquier fuente pública o privada que se establezca.

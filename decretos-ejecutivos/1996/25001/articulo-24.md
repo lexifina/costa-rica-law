@@ -1,0 +1,1 @@
+Artículo 24º.La Administración de parques de zona franca será la responsable de coordinar los trámites respectivos para la asignación del subsidio económico ante el Ministerio de Trabajo y el Instituto Nacional de Aprendizaje.
