@@ -1,0 +1,1 @@
+Artículo IX.-Cancelación de la Cuenta: En caso de que el ahorrante desee cancelar totalmente su (s) cuenta (s) de ahorro (s), deberá presentarse personalmente con la boleta de retiro debidamente firmada. Ninguna otra persona que la indicada anteriormente podrá cancelar totalmente la cuenta de ahorro.
