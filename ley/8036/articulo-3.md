@@ -1,0 +1,1 @@
+Artículo 3º—El Poder Ejecutivo elaborará, conforme a lo dispuesto en la legislación vigente, el reglamento para la aplicación de lo dispuesto en el artículo 1º de esta Ley, a más tardar dos meses después de su publicación.
