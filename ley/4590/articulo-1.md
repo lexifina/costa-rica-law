@@ -1,0 +1,10 @@
+(Derogado)
+Ley Nº 4590
+La presente norma ha sido DEROGADA EN SU TOTALIDAD por la Ley N° 7551 de 22 de septiembre de 1995,
+Ley que modifica Régimen de Impuestos a la Actividad de Producción de Café.
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
+DECRETA:
+Artículo 1º.- Refórmase el artículo 4º de la Ley de Impuesto al Café, Nº 1411 de 19 de enero de 1952, reformada por leyes Nº 2127 de 8 de junio de 1957 y Nº 2802 de 1º de septiembre de 1961, en la forma siguiente:
+"Artículo 4º.- A buena cuenta de ese impuesto, el operador de café, por cuenta del beneficiador, está obligado a hacer un anticipo conforme a la escala señalada en el artículo 3º de esta ley, igual a la categoría inmediata inferior a la que corresponda al precio promedio nacional vigente en el mes calendario anterior al otorgamiento del respectivo permiso de exportación. La fijación de dicho precio promedio mensual estará a cargo de la Oficina del Café, previo acuerdo del Ministerio de Hacienda.
+La Oficina del Café, antes de autorizar exportaciones de café, exigirá del exportador el anticipo o adelanto a que se refiere este artículo, lo cual hará en el transcurso de los ocho días calendario siguientes a la fecha de embarque. El pago correspondiente al anticipo o adelanto se hará en el Banco Cajero del Estado o en cualquiera de sus agencias auxiliares. La Oficina del Café negará nuevos permisos de exportación si el exportador no prueba haber cumplido con las disposiciones contenidas en este artículo.
+De toda subasta de café verificada en la Bolsa, la Oficina del Café reservará, del dinero depositado por el comprador, un porcentaje igual al que se aplique como adelanto en la misma cosecha para el café de exportación, en pago del anticipo a que se refiere esta artículo. Cuando el adjudicatario de la subasta sea el propio beneficiador, la adjudicación se tendrá por definitiva sólo cuando el beneficiador haya cubierto dentro de las cuarenta y ocho horas siguientes a la subasta, el monto de esta anticipo. En uno u otro caso, la Oficina del Café depositará en el término de ocho días en el Banco Cajero del Estado y a la orden del Gobierno las sumas recaudadas por ella".
