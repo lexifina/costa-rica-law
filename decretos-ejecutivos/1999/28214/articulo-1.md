@@ -1,4 +1,5 @@
 N° 28214-MEIC-COMEX-MAG
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 28362 del 17 de diciembre de 1999, se acordó prorrogar este decreto ejecutivo )
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DE ECONOMÍA, INDUSTRIA Y COMERCIO
 DE COMERCIO EXTERIOR Y DE AGRICULTURA Y GANADERÍA

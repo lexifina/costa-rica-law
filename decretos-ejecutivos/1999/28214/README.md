@@ -14,3 +14,4 @@ Prorroga Modificación de derechos arancelarios de importación al arroz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-31 | la propia norma |
+| 2 | 1999-12-17 | Decreto Ejecutivo 28362 (1999-12-17) |
