@@ -1,0 +1,1 @@
+Artículo 2°—De la naturaleza contable y oportunidad del registro. Los importes de ahorro se registrarán cuando ingresen al Banco, y formarán parte de su pasivo. Igual procedimiento se seguirá con los intereses, premios y bonificaciones que se les apliquen.

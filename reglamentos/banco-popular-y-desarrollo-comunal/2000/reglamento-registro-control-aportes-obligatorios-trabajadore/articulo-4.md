@@ -1,0 +1,1 @@
+Articulo 4°—De la devolución. Los ahorros obligatorios, sus intereses, premios y bonificaciones se devolverán a los trabajadores conforme se indica en la Ley Orgánica del Banco Popular y su Reglamento, así como en las disposiciones especiales que dicten la Junta Directiva Nacional y la Gerencia General.

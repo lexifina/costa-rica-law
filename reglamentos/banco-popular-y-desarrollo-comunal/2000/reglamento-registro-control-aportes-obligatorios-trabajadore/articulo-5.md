@@ -1,0 +1,1 @@
+Articulo 5°—Del registro del ahorro sujeto a litigio. En el caso de ahorro obligatorio que se encuentre en gestión de cobro por parte del Banco (ya sea en sede administrativa o judicial), se registrará, para su debido control, en cuentas de orden. Las recuperaciones de estos importes
