@@ -1,0 +1,2 @@
+Transitorio único.—Para reconocer o reintegrar a las misiones diplomáticas y a los organismos internacionales el "Impuesto único por tipo de Combustible" pagado en el primer trimestre, que inicia a partir de la vigencia de la Ley N° 8310, los quince días naturales a que se refiere el inciso a) del artículo 1° del presente Decreto se contarán a partir de la publicación del mismo en el Diario Oficial La Gaceta.
+Dado en la Presidencia de la República.—San José, a los diecisiete días del mes de febrero del dos mil tres.

@@ -1,0 +1,1 @@
+Artículo 2º—Los beneficios fiscales para la adquisición de combustibles, son aplicables exclusivamente a la Misión Diplomática o al Organismo Internacional como tales, y no a sus funcionarios acreditados ante el Gobierno de Costa Rica, según lo estipulado en el artículo 1° de la Ley N° 8310.
