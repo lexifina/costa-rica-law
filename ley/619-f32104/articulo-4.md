@@ -1,0 +1,1 @@
+Artículo 4°-Deberán los Directores de los Penales informar mensualmente a la Dirección General de Prisiones del cumplimiento del sistema de descuento, y semestralmente suministrar un informe completo y detallado de la rebaja de pena obtenida por cada reo.
