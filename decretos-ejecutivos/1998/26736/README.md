@@ -14,3 +14,4 @@ Ratifica Tratado de Fomento y Recíproca Protección de Inversiones y su Protoco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-02 | la propia norma |
+| 2 | 1998-02-02 | Ley 8 |
