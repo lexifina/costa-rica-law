@@ -1,0 +1,3 @@
+Artículo 18.—Sanciones
+18.1 Todos los funcionarios que soliciten, tramiten y autoricen documentos, adquirirán responsabilidad solidaria en caso de incumplimiento de las normas contempladas en el presente reglamento.
+18.2 Aquellos anticipos para bienes y servicios o gastos de viáticos, no liquidados oportunamente en el plazo establecido. De igual forma la compra de bienes o servicios sin contenido presupuestario. Cualquiera de las sanciones antes mencionadas, se reportarán de oficio, a la Dirección General, para la deducción automática en la planilla inmediata siguiente, sin perjuicio de ulterior sanciones disciplinarias aplicables, conforme a lo dispuesto en el ordenamiento jurídico vigente.

@@ -1,0 +1,3 @@
+Artículo 15.—Procedimiento para la solicitud de reintegros. Para solicitar un reintegro del fondo de caja chica se deben seguir los siguientes pasos:
+15.1 El responsable del fondo de caja chica debe preparar un informe de los egresos realizados debidamente clasificados por cuenta de presupuesto y adjuntar a dicho detalle los originales de los comprobantes de caja chica o recibos originales con que cuenta, para que proceda, de acuerdo con la naturaleza de los gastos.
+15.2 El responsable presentará el informe de liquidación al Tesorero de la Junta Directiva, y en su ausencia la Junta Directiva asignará a otra persona que deberá corroborar la información, para que se proceda a emitir un cheque a nombre de la persona encargada de la caja chica.

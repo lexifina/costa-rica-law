@@ -1,0 +1,1 @@
+Artículo 20.—Vigencia. Este Reglamento de Fondos de Caja Chica ha sido aprobado por la Junta Directiva en sesión Nº 06-04 del 16 de junio del 2004. Rige a partir de su publicación en el Diario Oficial La Gaceta.
