@@ -3,4 +3,6 @@ Como Secretario del Tribunal actuará el empleado que designe la Dirección Gene
 El Tribunal acordará sus fallos por simple mayoría, pudiendo-si lo estima necesario hacer revisar las declaraciones y demás elementos de juicio por un perito de su nombramiento, que no podrá ser en ningún caso quien .anteriormente hizo las fijaciones que se impugnan. Asimismo, podrá solicitar las aclaraciones y ampliaciones que estime pertinentes, para mejor dirimir el reclamo formulado.
 Cada uno de los miembros del Tribunal gozará de una dieta por cada día que el Tribunal se constituya.
 El Poder Ejecutivo reglamentará el presente artículo.
+No podrá ser nombrado propietario o suplente, ni Secretario del Tribunal el que tuviere asuntos pendientes ante el Departamento de la renta, ante la Dirección General de la Tributación Directa, o ante el propio Tribunal, ya sean propios y en los que haya intervenido como consejero o director profesional, y mientras esté nombrado no podrá hacerse cargo de dirigir o asesorar en ningún asunto que se esté discutiendo en cualquiera de las instancias señaladas.
+(Así adicionado el párrafo anterior por el artículo 5° de la ley N° 2975 del 20 de diciembre de 1961)
 (Así reformado por el artículo 1° de la ley N° 1789 del 18 de setiembre de 1954)
