@@ -1,2 +1,0 @@
-Artículo 26.-Rige a partir de su publicación.
-Dado en la Casa Presidencial.-San José, a los dieciocho días del mes de abril de mil' novecientos setenta y ocho.

@@ -1,1 +1,0 @@
-Artículo 14.-Los miembros de la Junta Directiva serán nombrados para un período de dos años y podrán ser reelectos, se reunirán ordinariamente tina vez por mes y extraordinariamente cuando sea necesario. La asistencia a sesiones es obligatoria.
