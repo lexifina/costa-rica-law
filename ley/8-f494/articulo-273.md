@@ -41,4 +41,6 @@ De ¢ 20,001.00 a 50.000.00 Timbre de 20.00
 De ¢ 50,001.00 en adelante Timbre de 20.00
 más cincuenta céntimos de colón (¢ 0.50), por cada mil o fracción.
 (*)(Así reformado el inciso anterior por el artículo 1° de la ley N° 4407 del 2 de setiembre de 1969)
+28)Los testimonios o certificaciones de instrumentos o documentos públicos, no sujetos a inscripción en el Registro Público, que se soliciten para hacerlos valer como tales o como títulos ejecutivos, pagarán el timbre que corresponda al acto de origen; pero, si fueren a aducirse únicamente como prueba o por orden de los tribunales para ese fin, deben satisfacer únicamente el timbre que indica el inciso 21) de este artículo.
+(Así adicionado el inciso anterior por el 4° de la ley N° 6145 del 18 de noviembre de 1977)
 (Así reformado por el artículo 1° de la ley N° 2041 del 31 de julio de 1956)
