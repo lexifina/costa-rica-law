@@ -1,0 +1,1 @@
+Artículo 2°—Como parte de la normativa técnica básica de aplicación para todo el sector público, las normas y criterios operativo para la utilización de los clasificadores presupuestarios del Sector Público, se publicarán en la página electrónica del Ministerio de Hacienda.
