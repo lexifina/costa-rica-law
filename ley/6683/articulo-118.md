@@ -1,6 +1,1 @@
-Artículo 118.- Incurre en prisión de tres a ocho meses:
-a) El que reproduzca, en obra suya, trozos de obra ajena protegida, en
-proporción superior al número de palabras o compases previsto en el artículo
-70.
-b) El que se apropie de título original ajeno protegido, de obra o
-periódico.
+Artículo 118°.-(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)

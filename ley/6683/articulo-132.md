@@ -1,7 +1,2 @@
-Artículo 132.- Las sociedades nacionales o extranjeras, legalmente
-constituidas para la defensa de titulares de derechos de autor y conexos,
-serán considerados como mandatarias de sus asociados y representados, para
-todos los fines de derecho, por el simple acto de afiliación a ellas, salvo
-disposición expresa en contrario, pudiendo actuar, administrativa o
-judicialmente, en defensa de los intereses morales y patrimoniales de sus
-afiliados.
+Artículo 132°.-Las sociedades nacionales o extranjeras, legalmente constituidas para la defensa de titulares de derechos de autor y conexos, serán considerados como mandatarias de sus asociados y representados, para todos los fines de derecho, por el simple acto de afiliación a ellas, salvo disposición expresa en contrario, pudiendo actuar, administrativa o judicialmente, en defensa de los intereses morales y patrimoniales de sus afiliados.
+(Nota de Sinalevi: Mediante el artículo único de la ley N°.7686 de 6 de agosto de 1997, se interpretó este numeral en el sentido de que: “…los términos "sociedad" y "sociedades" no se refieren exclusivamente a las sociedades mercantiles contempladas en la legislación costarricense y comprende las asociaciones inscritas conforme a la Ley de Asociaciones, No. 218, de 8 de agosto de 1939”)

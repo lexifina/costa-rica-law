@@ -1,4 +1,1 @@
-Artículo 136.- Los acreedores de una empresa teatral o cualquier otro
-semejante no pueden secuestrar la parte del producto de los espectáculos,
-que corresponda al autor o a los artistas, ni tampoco ésta se considerará
-incluida en el decreto de embargo ordenado por la autoridad judicial.
+Artículo 136°.-(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)

@@ -1,3 +1,1 @@
-Artículo 120.- La autorización del titular de derechos de autor y
-conexos será siempre expresa y escrita y se presumirá ilícita toda
-reproducción o utilización hecha por quien no la tenga.
+Artículo 120°.-(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)

@@ -1,6 +1,2 @@
-Artículo 22.- El contrato de edición podrá efectuarse por un plazo
-determinado o por un número establecido de ediciones. En este caso, si
-agotada una edición el editor no reeditare la obra en el plazo de dieciocho
-meses, el autor podrá solicitar la rescisión del contrato. Si el contrato
-no estableciere ni el plazo ni el número de ediciones, se entenderá que
-cubre una sola edición.
+ARTÍCULO 22.- El contrato de edición podrá efectuarse por un número determinado de ediciones o por un plazo máximo de cinco años. Si el contrato se establece por más de una edición, se entenderá vencido el plazo al pasar cinco años, aun si el número acordado de ediciones no se ha agotado. Si el contrato no establece plazo ni número de ediciones, se entenderá que cubre una sola edición. Si agotada una edición no se reedita la obra en el plazo de dieciocho meses, el autor podrá solicitar la rescisión del contrato.
+(Así reformado por Ley N° 7979 del 6 de enero del 2000).

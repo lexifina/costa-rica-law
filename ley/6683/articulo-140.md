@@ -1,4 +1,1 @@
-Artículo 140.- Como toda cuestión de diferencia patrimonial, entre
-particulares, las partes pueden someterse a una sentencia compulsiva de
-árbitros arbitradores o de árbitros juris, aún cuando el asunto se esté
-ventilando en los tribunales de justicia.
+Artículo 140°.-(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)

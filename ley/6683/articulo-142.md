@@ -1,3 +1,1 @@
-Artículo 142.- La sentencia es apelable en el efecto suspensivo, y si
-la cuantía es superior a diez mil colones tendrá recurso extraordinario de
-casación.
+Artículo 142°.-(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)
