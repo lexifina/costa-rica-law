@@ -1,0 +1,1 @@
+Artículo 3º—Todas aquellas disposiciones comprendidas en el artículo 7° de la Ley N° 8180 que no se contraponen a lo establecido en la Ley N° 8131 de la Administración Financiera de la República y Presupuestos Públicos, quedan vigentes.

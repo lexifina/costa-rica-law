@@ -1,0 +1,15 @@
+Nº 30202-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en lo establecido en los artículos 34, 140, inciso 8), 176, 177, 178 y 181 de la Constitución Política, artículo 4º, 21 numeral 2 y 113 incisos 2) y 3) de la Ley N° 6227 y sus reformas y el artículo 5º, inciso b) de la Ley N° 8131.
+Considerando:
+1º—Que la Ley N° 8131 de la Administración Financiera de la República y Presupuestos Públicos, fue sancionada por el Poder Ejecutivo a los dieciocho días del mes de setiembre del dos mil uno y publicada en La Gaceta N° 198 de 16 de octubre de 2001.
+2º—Que el artículo 45 de esa normativa, reserva a la Asamblea Legislativa la aprobación de los Presupuestos Extraordinarios y Modificaciones del Presupuesto Nacional que conlleven transferencias entre programas presupuestarios y transferencias entre servicios personales y servicios no personales.
+3º—Que para la puesta en vigencia de esa ley, es necesario tomar en cuenta el ciclo presupuestario que debe observar toda Ley de Presupuesto y sus modificaciones, que consta de las fases de formulación, aprobación, ejecución, liquidación y evaluación.
+4º—Que el ciclo presupuestario de la Ley de Presupuesto Ordinario de la República para el período económico del año 2002 y sus reformas, se fundamenta en los artículos 176, 177, 178 y 181 de la Constitución Política, en el procedimiento establecido en el Reglamento de la Asamblea Legislativa y en el Decreto Ejecutivo Nº 26402-H, entre otros, ciclo que se inició con anterioridad a la aprobación de la nueva Ley.
+5º—Que el artículo 7º, Sección I de "Autorizaciones" incisos 3°, 5°, 6° y 7° de la Ley N° 8180-Ley de Presupuesto Ordinario y Extraordinario de la República para el año 2002, facultan al Poder Ejecutivo para que mediante decreto elaborado por el Ministerio de Hacienda, realice diferentes traslados y modificaciones presupuestarias.
+6º—Que en el apartado de "Disposiciones Varias" de los artículos 3°, 5°, 6° y 7° de la Ley N° 8180, correspondiente al detalle de los presupuestos de la Asamblea Legislativa, Contraloría General de la República, Defensoría de los Habitantes de la República y Poder Judicial respectivamente, se establece la normativa que rige las modificaciones presupuestarias para dichas entidades.
+7º—Que según el principio de irretroactividad de la ley, tutelado constitucionalmente, no resulta aplicable a la Ley de Presupuesto Ordinario y sus modificaciones para el ejercicio económico del 2002 lo dispuesto en la Ley Nº 8131.
+8º—Que en aras de la satisfacción de los principios fundamentales del servicio e interés público se debe asegurar la continuidad, eficiencia y adaptación a todo cambio en el régimen legal de las obligaciones y compromisos contraídos por la Administración. Por tanto,
+Decretan:
+Artículo 1º—Se autoriza al Poder Ejecutivo para que mediante decreto elaborado por el Ministerio de Hacienda continúe realizando las modificaciones presupuestarias fundamentadas en los incisos 3), 5), 6) y 7) del artículo 7º, Sección primera, "Autorizaciones" de la Ley de Presupuesto Ordinario y Extraordinario para el ejercicio fiscal del año 2002.

@@ -1,0 +1,1 @@
+Artículo 2º—Las entidades comprendidas en los artículos 3°, 4°, 5° y 6° de la Ley N° 8180, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2002, realizarán sus modificaciones presupuestarias de conformidad a lo establecido en los apartados de "Disposiciones Varias" comprendidos en cada uno de los artículos citados.
