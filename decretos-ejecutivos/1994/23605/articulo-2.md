@@ -1,0 +1,3 @@
+Artículo 2º.- Corríjase el decreto ejecutivo Nº 23426-H, publicado
+en "La Gaceta" Nº 131 de fecha 11 de julio de 1994, como se indica a
+continuación: ...
