@@ -1,0 +1,2 @@
+Artículo 12.—Calidad en la prestación de los servicios.
+La Administración contratante velará permanentemente por que la prestación de los servicios aeroportuarios se lleve a cabo de la manera que mejor satisfaga los intereses de los usuarios y del país, de conformidad con estándares que fijará el respectivo cartel. La Autoridad Reguladora de Servicios Públicos ejercerá su autoridad de conformidad con las competencias asignadas por la Ley No 7593 y lo establecido en el activo cartel.

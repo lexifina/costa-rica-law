@@ -1,0 +1,2 @@
+Artículo 10.—Financiamiento.
+El Gestor podrá dar en garantía los ingresos que consten en el cartel la gestión interesada para garantizar las obligaciones derivadas de la El máximo de endeudamiento que podrá utilizar el gestor se fijará respectivo cartel, no pudiendo ser en ningún caso mayor al noventa dentó de la inversión inicial. El Cartel fijará el porcentaje máximo de endeudamiento. igualmente determinará la participación mínima que el gestor tendrá de Capital Social.

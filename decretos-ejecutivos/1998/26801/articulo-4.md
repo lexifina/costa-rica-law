@@ -1,0 +1,4 @@
+Artículo 4º Ofertas en Consorcio
+En los procedimientos para seleccionar al gestor podrán participar dos o más empresas reunidas en acuerdo de consorcio, a cuyo efecto deberán acreditar ante la Administración, la existencia de un acuerdo de consorcio, en el cual se regulen, al menos las obligaciones de las partes y otros aspectos que pueda requerir el cartel.
+La conformación del consorcio no implica la creación de una persona jurídica independiente para la presentación de la oferta. No obstante, en caso de resultar adjudicatario, una vez firme la adjudicación, deberá constituir la sociedad nacional a que se refiere el artículo siguiente.
+Las partes en consorcio responderán solidariamente ante la Administración, por todas las consecuencias derivadas de su participación en el consorcio y de éste en el contrato.

@@ -1,0 +1,2 @@
+Artículo 2°—Definición.
+El contrato de gestión interesada es la figura contractual mediante la cual la Administración Pública contratante explota los servicios y construye las obras necesarias para dicha explotación, sirviéndose de un gestor a quien retribuirá fundamentalmente mediante una participación en los ingresos generados como resultado de su gestión, sin menoscabo de la posibilidad de asegurar un pago mínimo al contratista. Los ingresos que serán considerados para la retribución al gestor serán determinados en el respectivo cartel.

@@ -1,0 +1,4 @@
+Artículo 23.—Garantías de participación y de cumplimiento.
+Para efectos de determinar el monto correspondiente a las garantías de participación y de cumplimiento el valor de la oferta y del respectivo contrato se calculará con base en el valor presente neto de los flujos de fondos a futuro. Se entenderá por flujos de fondos a futuro, los ingresos netos generados por el aeropuerto lo cual corresponde a los ingresos brutos
+anuales obtenidos de las operaciones y tarifas cobradas en el lado aéreo, las terminales, las actividades comerciales y los servicios del lado terrestre, menos los gastos de operación y mantenimiento, los gastos financieros y los fondos de reserva establecidos en la estructura tarifaría del proyecto y el cartel.
+La garantía de cumplimiento podrá ser revisada periódicamente, de conformidad con los términos que se establecerán en el cartel y tomando como base el presupuesto de inversión aprobado por la Administración para el periodo correspondiente.

@@ -1,0 +1,17 @@
+Nº 26801-MOPT
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES
+Con fundamento en lo que establecen los artículos 140 incisos 8 y 18 de la Constitución Política, 6 y 27 de la Ley General de Administración Pública, articulo 2 de la Ley General de Aviación Civil, artículo 55 de la Ley de Contratación Administrativa y 66 del Reglamento a la Ley de Contratación Administrativa.
+Considerando:
+1°—Que el artículo 2 de la Ley General de Aviación Civil dispone que la regulación de la aviación civil será ejercida por el Poder Ejecutivo actuando por medio del Consejo Técnico de Aviación Civil y de la Dirección General de Aviación Civil.
+2°—Que el artículo 55 de la Ley de Contratación Administrativa dispone que los tipos de contratación regulados por dicha ley no excluyen la posibilidad para la Administración de definir, vía reglamento, cualquier otro tipo contractual que contribuya a satisfacer el interés general.
+3°—Que el artículo 66 del Reglamento a la Ley de la Contratación Administrativa dispone que la Administración podrá, por vía reglamento, definir cualquier tipo contractual a que podrá acudir y que los reglamentos que regulen esta materia deberán ser consultados con anterioridad a la Contraloría General de la República, con el objeto de armonizar conceptos, normas y procedimientos sobre la especie.
+4°—Que el contrato de gestión interesada es una figura contractual contemplada en ordenamientos jurídicos administrativos de otros países, mediante el cual la Administración explota los servicios de su competencia utilizando un gestor privado con el cual comparte riesgos y beneficios.
+5°—Que conforme lo establece el artículo 66 del Reglamento General de Contratación Administrativa, el Consejo Técnico de Aviación Civil, sometió a consideración y consulta a la Contraloría General de la República, el proyecto de "Reglamento para los Contratos de Gestión
+Interesada de los Servicios Aeroportuarios", la cual, mediante oficio DGCA 162-98, de fecha 23 de febrero de 1998, fundamentado en las instrucciones del señor Contralor General que constan en el oficio 1580 del 18 de febrero de 1998, resolvió emitir criterio perceptivo afirmativo, al respectivo Reglamento y la figura de la gestión interesada.
+6°—Que la figura de la gestión interesada fue propuesta a la Contraloría General de la República por el Consejo Técnico de Aviación Civil como una figura idónea para mejorar la prestación de los servicios aeroportuarios en el país, siendo criterio del Ente Contralor el que con esta se contribuiría a una mejor satisfacción del interés general.
+7°—Que el Reglamento para los contratos de Gestión Interesada de los Servicios Aeroportuarios decretado en este acto, desarrolla en forma completa los efectos del contrato de gestión interesada.
+8°—Que el Consejo Técnico de Aviación Civil, mediante acuerdo firme de la sesión ordinaria No 10-98 del 24 de febrero de 1998, acordó autorizar la publicación del Reglamento que en este acto se decreta por parte del Poder Ejecutivo, de conformidad con el artículo 6 de la Ley General de la Administración Pública, por encontrarlo conforme con el ordenamiento jurídico costarricense y oportuno para satisfacer el interés general". Por tanto,
+Decretan:
+REGLAMENTO PARA LOS CONTRATOS DE GESTIÓN INTERESADA DE LOS SERVICIOS AEROPORTUARIOS
+Artículo 1°—Gestión interesada de los servicios aeroportuarios.
+La Administración Pública podrá gestionar los servicios aeroportuarios utilizando la figura contractual de la gestión interesada.
