@@ -14,3 +14,4 @@ Fija salarios mínimos a partir del 1° de enero de 2003
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-01 | la propia norma |
+| 2 | 2003-06-18 | Decreto Ejecutivo 31223 (2003-06-18) |
