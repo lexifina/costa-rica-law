@@ -1,0 +1,1 @@
+Artículo 17.—No es aceptable desde ningún punto de vista, que los fondos de caja chica sirvan para que personas ajenas a la misma, realicen cambios moratorios, cambios de cheque u operaciones distintas a las que se destinan dichos fondos.

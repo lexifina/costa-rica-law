@@ -1,0 +1,1 @@
+Artículo 16.—El funcionario que tuviere pendiente una liquidación de adelanto de caja chica, sea por el motivo que fuere, no se le hará nuevo adelanto hasta tanto no liquide el anterior. Caso de reincidencia, será debidamente sancionado.

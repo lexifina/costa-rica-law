@@ -1,0 +1,1 @@
+Artículo 14.—Se hace imprescindible que todo desembolso de caja chica esté debidamente respaldado con la presentación de un justificante, factura o documento probatorio del egreso, correctamente cancelado y a nombre de la institución Colegio Universitario para el Riego y el Desarrollo del Trópico Seco. CURDTS.

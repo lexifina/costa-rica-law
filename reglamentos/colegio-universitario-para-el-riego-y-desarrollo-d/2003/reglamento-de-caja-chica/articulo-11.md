@@ -1,0 +1,2 @@
+Artículo 11.—El solicitante de un adelanto de Caja Chica deberá suscribir un VALE PROVISIONAL confeccionado por el Servicio Financiero-Presupuesto, en el cual se indique la fecha, el monto deseado y el concepto al cual se destinará la suma solicitada.
+Dicha fórmula deberá ir firmada por el Decano, Director Administrativo y Proveedor, así como por la persona o funcionario que lo recibe. EL JUSTIFICANTE que entrega la casa o empresa proveedora del servicio o bien adquirido, servirá como COMPROBANTE DEFINITIVO DE LA CAJA CHICA.

@@ -1,0 +1,2 @@
+Artículo 20.—La o el encargado de Financiero-Presupuesto deberá analizar la naturaleza de los gastos, la exactitud, oportuna presentación de los documentos y hará las observaciones necesarias a las unidades correspondientes.
+Refrendará los cheques relacionados con los reintegros de gastos de Caja Chica, reservándose el derecho de no hacerlo cuando su trámite esté reñido con este Reglamento o tenga defectos que hagan imposible su aprobación.

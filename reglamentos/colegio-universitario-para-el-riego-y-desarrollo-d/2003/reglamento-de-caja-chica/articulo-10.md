@@ -1,0 +1,1 @@
+Artículo 10.—La Caja Chica deberá acondicionarse de tal forma que sus fondos no puedan confundirse y que deberán permanecer en la Oficina del encargado bajo llave. Para su traslado, debe efectuarse previamente un arqueo al finalizar el período del funcionario encargado, se realizará nuevamente este arqueo.

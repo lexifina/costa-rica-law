@@ -1,0 +1,1 @@
+Artículo 22.—El 31 de diciembre de cada año, deberá hacerse una liquidación con el número de comprobantes que se tengan en ese momento, a fin de que no quede ningún gasto pendiente para el siguiente período. Se procederá en este caso a elaborar una liquidación de Caja Chica.
