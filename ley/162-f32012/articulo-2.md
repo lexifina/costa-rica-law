@@ -1,0 +1,1 @@
+Art. 2° El Gobernador Comandante gozarà por este recargo del sobre sueldo de doscientos pesos anuales. -Dado en la ciudad de San José, à los treinta dias del mes de noviembre de mil ochocientos cuarenta y ocho.-José Maria Castro. –El Jefe de Seccion encargado del Ministerio de hacienda y guerra. -Juan de Dios Zezpedes."
