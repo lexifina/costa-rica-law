@@ -1,0 +1,1 @@
+Artículo 3º—Declaratoria de interés público. Decláranse de utilidad e interés público las actividades de generación, distribución y comercialización de la energía eléctrica que realicen las asociaciones cooperativas y las empresas de servicios públicos municipales amparadas a la presente Ley.
