@@ -14,3 +14,4 @@ Reglamento para la emisión de los “Bonos Obras Escolares 1968
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1968-10-08 | la propia norma |
+| 2 | 1970-11-10 | Decreto Ejecutivo 1340 (1970-11-10) |

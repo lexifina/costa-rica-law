@@ -1,4 +1,5 @@
 N° 44
+(Nota de Sinalevi: Mediante el artículo 4 del decreto ejecutivo N° 1340 del 10 de noviembre de 1968, se indica que se modifíquese en lo conducente el presente decreto ejecutivo)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 De conformidad con lo que dispone la Ley N° 4177 de agosto de 1968,
