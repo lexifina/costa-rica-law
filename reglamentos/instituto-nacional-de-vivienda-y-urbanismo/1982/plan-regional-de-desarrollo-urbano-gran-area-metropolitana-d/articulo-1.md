@@ -62,3 +62,4 @@ Heredia | Central | Heredia Mercedes San Francisco Ulloa
 | Belén | San Antonio Ribera Asunción
 | Flores | San Joaquín Barrantes Llórente
 | San Pablo | San Pablo
+(NOTA: Por acuerdo tomado en sesión N° 3825, celebrada el 18 de mayo de 1987, se modifica el limite de contención urbana en el sector de Moravia, de acuerdo a plano que puede consultarse en la Dirección de Urbanismo del INVU).
