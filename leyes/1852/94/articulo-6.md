@@ -1,0 +1,1 @@
+Articulo 6.- Después de recojido el dinero, lo entregarán los Jueces de paz en la tesorería de propios respectiva con la lista correspondiente de las personas que lo han enterado, y concluido los trabajos de la composición de caminos, entregarán también al Jefe Político las listas de los que han satisfecho en jornales los días que les tocaban.

@@ -1,0 +1,1 @@
+Art 8: Concluida la composición de los caminos de interior, el Jefe Político junto con el tesorero de propios hará un examen y comparación de las listas originales con las que hayan presentado los jueces de paz: sacará los reparos que aparezcan y mandando deshacer las equivocaciones, dará por fenecida la cuenta para que sea examinada y glosada como la de propios.
