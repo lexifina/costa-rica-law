@@ -1,0 +1,1 @@
+Art. 7. Las maderas apreciables de las mismas tierra y, los que no sean vecinos, las pagarán por su lejitimo valor, como tambien por las menos apreciables, medio real por cada rastra de leña, de bejuco, caña, y varas.
