@@ -1,0 +1,1 @@
+Artículo 21.—Derogatorias. Derogar las Circulares Externas 15-2001, 23-2001, 27-2001 y 39-2003, emitidas por la Superintendencia General de Entidades Financieras, el oficio 1925 del 12 de junio del 2001 de la Superintendencia General de Valores y la nota SP-788 del 15 de junio del 2001 de la Superintendencia de Pensiones.

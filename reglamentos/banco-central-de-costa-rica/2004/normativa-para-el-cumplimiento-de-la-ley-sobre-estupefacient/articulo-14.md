@@ -1,0 +1,2 @@
+Artículo 14.—Composición y funcionamiento. El Comité de Cumplimiento estará integrado como mínimo por cuatro miembros: el Gerente General, un miembro de la Junta Directiva o Consejo de Administración, un funcionario de alto nivel del área operativa de la institución y el Oficial de Cumplimiento.
+Podrán participar en las sesiones del Comité sin derecho a voto, el auditor interno y los funcionarios que el Comité considere necesarios.

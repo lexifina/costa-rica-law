@@ -1,0 +1,15 @@
+Artículo 12.—Funciones de la Oficialía de Cumplimiento. Las funciones de la Oficialía de Cumplimiento serán, al menos, las siguientes:
+a) Implementar y actualizar anualmente el Manual de Cumplimiento indicado en el Capítulo I de esta normativa.
+b) Vigilar porque existan registros adecuados de las transacciones que realicen los clientes de la entidad financiera, de acuerdo con lo establecido en el Capítulo II de esta normativa.
+c) Realizar un seguimiento constante de las operaciones de los clientes, tendiente a identificar transacciones sin fundamento económico o legal evidente, o que se salen de los patrones habituales establecidos por la entidad, con el fin de prevenir que se efectúen transacciones con fines ilícitos.
+d) Llevar a cabo controles sobre la emisión de los "Reportes de Operaciones en Efectivo" (ROE), tanto únicas como múltiples en aspectos tales como: cantidad de reportes emitidos, reportes mal confeccionados e incompletos, e implementar las medidas correctivas que estime necesarias.
+e) Preparar y comunicar al órgano de fiscalización competente las operaciones sospechosas.
+f) Preparar y remitir al órgano supervisor correspondiente la información contenida en los formularios de Operaciones en Efectivo (únicas y múltiples), conforme con lo dispuesto en el procedimiento indicado en el Capítulo III de estas Normas.
+g) Realizar funciones de enlace entre la entidad y el órgano supervisor correspondiente, así como con cualquier otra autoridad competente.
+h) Coordinar las labores de capacitación en materia de legitimación de capitales, tanto para los funcionarios regulares como para los de nuevo ingreso.
+i) Mantenerse en un constante proceso de actualización en materia de legitimación de capitales ilícitos y temas relacionados, tanto en el ámbito nacional como internacional.
+j) Asegurarse de la presentación oportuna de los informes establecidos en esta normativa y de aquellos que solicite la Superintendencia y otras autoridades competentes.
+k) Recomendar a la entidad sobre la elaboración y ejecución de políticas para prevenir riesgos, especialmente el de reputación, producto del uso indebido de los servicios que presta la entidad.
+l) Presentar al Gerente General y a la Junta Directiva, al menos cada 6 meses, un informe en relación con el desempeño de labores relacionadas con la prevención de la legitimación de capitales y la normativa vigente.
+m) Convocar a una reunión al menos trimestral ordinaria con el Comité de Cumplimiento para exponer los diferentes temas relacionados con el desempeño de labores, casos inusuales y mantenerlo informado sobre la remisión realizada de operaciones sospechosas a la respectiva Superintendencia. Así como convocar a reuniones extraordinarias en caso de ser necesario.
+Las entidades informarán al órgano supervisor correspondiente las calidades del Oficial de Cumplimiento y de los suplentes, y el período para el cual fueron nombrados. Además, deberán comunicar cualquier cambio en la designación de cualquiera de estos funcionarios en un plazo no mayor a 5 días hábiles posterior a su designación.

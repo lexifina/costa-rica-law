@@ -1,0 +1,2 @@
+Artículo 16.—Reuniones del Comité de Cumplimiento. El Comité de Cumplimiento deberá reunirse con la periodicidad que establezca el Manual de Cumplimiento lo cual deberá ser, por lo menos una vez cada tres meses.
+Los acuerdos adoptados en las reuniones deberán constar en un libro de actas, el cual deberá estar debidamente custodiado por la entidad. Este libro deberá estar a disposición de la Superintendencia correspondiente y las autoridades judiciales competentes.
