@@ -1,0 +1,1 @@
+Art. 3°-Compondrán igualmente la Sala 2° del mismo Tribunal, los Señores Licenciados Don Pedro M. de León Páez, Don José María Acosta y Don Ramón Loría. El primero de los nombrados presidirá esta Sala.
