@@ -4,8 +4,8 @@ Los Estados Partes se prestarán la más amplia asistencia recíproca,
 de conformidad con sus leyes y los tratados aplicables, dando curso a las
 solicitudes emanadas de las autoridades que, de acuerdo con su derecho
 interno, tengan facultades para la investigación o juzgamiento de los
-actos de corrupción descritos en la presente Convención, a los fines de la
-obtención de pruebas y la realización de otros actos necesarios para
+actos de corrupción descritos en la presente Convención, a los fines de
+la obtención de pruebas y la realización de otros actos necesarios para
 facilitar los procesos y actuaciones referentes a la investigación o
 juzgamiento de actos de corrupción.
 Asimismo, los Estados Partes se prestarán la más amplia cooperación
