@@ -14,3 +14,4 @@ Reglamento Autónomo de Trabajo Dirección General de Servicio Civil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-08-03 | la propia norma |
+| 2 | 1982-09-23 | Decreto Ejecutivo 14072 (1982-09-23) |
