@@ -112,3 +112,4 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado los límites de gasto para el Instituto de Desarrollo Agrario, de manera que no exedan de 6.525, 9, por el artículo 1 del Decreto Ejecutivo N° 29853 de 24 de setiembre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo de la Junta Adeministrativa del Registro Nacional para el año 2002, por el artículo 1 del Decreto Ejecutivo N° 29854 de 24 de setiembre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo de la Compañia Nacional de Fuerza y Luz para el año 2002, por el artículo 1 del Decreto Ejecutivo N° 29864 de 24 de setiembre del 2001)
+(Modificado el límite de gasto presupuestario y efectivo del Consejo Nacional de Producción para el año 2002, por el artículo 1 del Decreto Ejecutivo N° 29905 de 04 de octubre del 2001)

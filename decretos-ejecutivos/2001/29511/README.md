@@ -19,3 +19,4 @@ Directrices Generales de Política Presupuestaria del 2002 para los Ministerios,
 | 4 | 2002-01-01 | Decreto Ejecutivo 29867 (2001-09-24) |
 | 5 | 2002-01-01 | Decreto Ejecutivo 29854 (2001-09-24) |
 | 6 | 2002-01-01 | Decreto Ejecutivo 29865 (2001-09-24) |
+| 7 | 2002-01-01 | Decreto Ejecutivo 29905 (2001-10-04) |

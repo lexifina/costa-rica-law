@@ -113,3 +113,4 @@ Agropecuario Productiva.
 (Modificado el inciso b) por el artículo 2 del Decreto Ejecutivo N° 29853 de 24 de setiembre del 2001)
 (Así Adicionado mediante artículo 2 del Decreto Ejecutivo 29867 de 24 de setiembre del 2001)
 (Modificado el inciso b) por el artículo 2 del Decreto Ejecutivo N° 29511 de 24 de setiembre del 2001)
+(Así Adicionado mediante artículo 2 del Decreto Ejecutivo 29905 de 04 de octubre del 2001)
