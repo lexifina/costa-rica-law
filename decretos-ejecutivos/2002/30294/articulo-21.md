@@ -1,1 +1,0 @@
-Artículo 21.—Exterminio. Las autoridades de Salud en coordinación con las autoridades de Agricultura y Ganadería, procederán al exterminio de cerdos de la granja cuando valorada técnicamente las condiciones zoosanitarias y ambientales se determine que estas representan un riesgo para la salud de las personas, del hato nacional o para el ambiente.

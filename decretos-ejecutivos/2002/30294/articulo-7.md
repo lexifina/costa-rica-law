@@ -1,5 +1,0 @@
-Artículo 7º—De las distancias. Las instalaciones de las granjas porcinas deberán guardar las distancias mínimas siguientes:
-- Galpones que albergan los cerdos: No menos de treinta y cinco (35) metros respecto a las líneas de colindancia con propiedades vecinas y vías públicas, medidos horizontalmente. En terrenos con pendientes fuertes (mayor a 30%) erosionables o muy húmedos se deberá guardar una distancia de cincuenta (50) metros horizontales.
-- No menos de 500 metros medidos horizontalmente, del galpón más cercano a los linderos de propiedad respecto a Establecimientos de Salud, Establecimientos Educativos y Establecimientos para el Adulto Mayor.
-- Sistema de tratamiento de aguas residuales: Se contemplarán las disposiciones consignadas en el Decreto Nº 21518-S "Normas de Ubicación de Sistemas de Tratamiento de Aguas Residuales" publicado en La Gaceta Nº 178 de 16 de septiembre de 1992.
-- Respecto a las Áreas Protegidas se estará a lo dispuesto en el artículo 33 de la Ley Nº 7575 "Ley Forestal".

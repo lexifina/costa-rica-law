@@ -1,1 +1,0 @@
-Artículo 26.—Derogatoria. El presente reglamento deroga el Decreto Ejecutivo Nº 22815-S "Reglamento de Granjas Porcinas" publicado en La Gaceta Nº 19 del 27 de enero de 1994 y cualquier otro reglamento, norma o disposición de igual o inferior rango que se le oponga.
