@@ -15,3 +15,4 @@ Reforma decreto que regulación venta de soluciones anestésicas
 | --- | --- | --- |
 | 1 | 1962-08-10 | la propia norma |
 | 2 | 1962-11-22 | Decreto Ejecutivo 14 (1962-11-22) |
+| 3 | 1979-05-28 | Decreto Ejecutivo 10057 (1979-05-28) |
