@@ -1,0 +1,2 @@
+Artículo 2°-Adiciónase el artículo 5° del reglamento citado con su nuevo párrafo que dirá:
+“No obstante, cuando en una dirección zonal con más de 25% de las instituciones se pagare sobresueldo de zonaje, el del Director Zonal será equivalente a la suma de los montos asignados a cada una de ellas entre el total de instituciones de la jurisdicción. Si este promedio resultare inferior a la asignación hecha a la sede se aplicará esta última”.

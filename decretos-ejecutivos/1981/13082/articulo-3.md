@@ -1,0 +1,3 @@
+Artículo 3°-Adicionase con dos nuevos transitorios el Reglamento de Zonajes que dirán:
+“3.-No obstante lo dicho en el artículo 3° a partir de marzo de mil novecientos ochenta y uno, se tendrá como mínimo cien colones y como máximos mil. Para mil novecientos ochenta y dos, los montos mínimos y máximos fijados por el artículo 3° se pagarán a partir del mes de enero excepto para el personal propiamente docente que lo será a partir de marzo de ese año”.
+“4.-Aquellas instituciones cuyo porcentaje para efectos de zonaje, fuere igual o inferior a 10. Serán objeto de un nuevo estudio a fin de determinar el incremento o disminución que corresponda. Los efectos respectivos se aplicarán a partir del primero de marzo de mil novecientos ochenta y uno”.
