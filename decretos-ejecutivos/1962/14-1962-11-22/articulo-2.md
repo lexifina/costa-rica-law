@@ -1,1 +1,0 @@
-Artículo 2°-La tenencia de tales productos medicinales será privativa, de Médicos, Cirujanos Dentistas, Veterinarios y de los establecimientos comerciales debidamente autorizados para tales efectos por el Colegio de Farmacéuticos de Costa Rica.
