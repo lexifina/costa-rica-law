@@ -14,3 +14,4 @@ Disposiciones sobre la Aplicación del inciso a) del Transitorio IX de la Ley de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-07-09 | la propia norma |
+| 2 | 2003-01-10 | Directriz 1 (2003-01-10) |
