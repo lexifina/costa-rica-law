@@ -1,1 +1,0 @@
-Art. 6°-Las Tesorerías Cantonales de Instrucción Pública que tengan asiento en las capitales de provincia, pennanecerán abiertas todos los días hábiles, de las diez de la mañaana á las dos de la tarde, y las demás dos días por semana; señalados de acuerdo con la autoridad política local.

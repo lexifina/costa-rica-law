@@ -1,1 +1,0 @@
-Art. 8°-Exceptúanse de las precedentes disposiciones las Tesorerías Escolares de distrito que se hubieren organizado ya, ó que pudieren segregarse en lo sucesivo de las Tesorerías Cantonales para constituirse con arregló á la Ley de Educacion Común y al decreto n° XII de 10 de junio del año próximo pasado.

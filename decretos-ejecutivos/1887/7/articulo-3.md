@@ -1,2 +1,0 @@
-Art. 3°-Bajo ningún pretexto deben distraerse los fondos de un distrito escolar de los objetos que determina la ley, ni tomar el dinero perteneciente á un distrito para hacer frente a los gastos ocasionados en otro.
-El Tesorero que infrinja esta disposición incurrirá en la pena de veinticinco pesos ($ 25-00) de multa, aplicables al fondo de instrucción perjudicado, que se hará efectiva por la respectiva autoridad política.

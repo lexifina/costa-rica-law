@@ -1,1 +1,0 @@
-Art. 2°-La Tesorería Cantonal de Instrucción Pública abrirá cuenta especial á cada uno de los distritos escolares acreditándoles con los ingresos y debitándoles con los giros ú órdenes de pago que contra ella expidan los Presidentes de las respectivas Juntas de Educación.
