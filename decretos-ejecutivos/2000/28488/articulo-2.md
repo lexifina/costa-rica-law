@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de esta declaratoria de Utilidad Pública, cada vez que dicha Asociación, desee hacer uso de franquicias y concesiones de orden administrativo y económico, deberá contar previamente con la aprobación del Ministerio de Hacienda.
