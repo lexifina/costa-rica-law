@@ -42,7 +42,7 @@ Comercio, Agrícola, Servicios, Fidecomisos e Inmobiliario.
 Emisores de Valores Sector Industrial, IC_EMISOR 1
 Comercio, Agrícola, Servicios, Fidecomisos e Inmobiliario.
 Emisores de Valores Sector Mutuales, Cooperativo, Bancos y Financieras NO ESTANDARIZADAS 3
-DEROGADO PARCIAL Y EXPRESAMENTE por el SGV-A-79 de 01 de setiembre de 2003, publicado en La Gaceta N° 203 de 22 de octubre de 2003, en el siguiente sentido:
+(DEROGADO PARCIAL Y EXPRESAMENTE por el SGV-A-79 de 01 de setiembre de 2003, publicado en La Gaceta N° 203 de 22 de octubre de 2003, en el siguiente sentido:
 Se eliminan las siguientes cuentas:
 CO_CATALOGO Nº DE CUENTA Número de Anexo
 IM_FONDOS 17 00 00 00 00 00 Rendimiento del fondo desde 1º enero a la fecha
@@ -50,3 +50,4 @@ IM_FONDOS 17 10 00 00 00 00 Nominal + Dividendos (Sin ajuste por valoración a v
 IM_FONDOS 17 20 00 00 00 00 Con ajuste por valuación de las inversiones en propiedad a valor de mercado.
 En consecuencia se modifica el Anexo Nº 22.
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por el SGV-A-79 de 01 de setiembre de 2003, publicado en La Gaceta N° 203 de 22 de octubre de 2003, en el siguiente sentido: se modifica los términos "Certificación de bienes del Registro Público, en el caso de fideicomisos de garantía de emisiones" para que en adelante se lea "Certificación de bienes del Registro Público, en el caso de fideicomisos de garantía de emisiones y garantías reales", "Avalúo de bienes por parte de un perito independiente" para que en adelante se lea "Avalúo de bienes por parte de un perito independiente, en el caso de fideicomisos de garantiza de emisiones y garantías reales" y "Informe de cumplimiento del fiduciario" para que en adelante se lea "Informe de cumplimiento del fiduciario, en el caso de fideicomisos de garantía de emisiones de valores.)
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el SGV-A-83 de 25 de noviembre de 2003, emitido por la Superintendencia General de Valores, en el siguiente sentido: Se modifica el artículo 2 para que en la línea que cita: "Reporte de comisiones de administración, valor de la participación, coeficiente de liquidez y otros" en adelante se lea "Reporte de comisiones de administración, valor de la participación, coeficiente de liquidez y otros. Aplica a todos los fondos de inversión". "Plantilla de Carteras de los fondos" en adelante se lea "Plantilla de Carteras. Aplica a todos los fondos de inversión)

@@ -1,7 +1,3 @@
-Articulo 8°—Derogatorias. Se derogan los siguientes acuerdos:
-1. SGV-A-16 Normativa Contable para Puestos de Bolsa. Sociedades Administradoras de Fondos de Inversión y Fondos de Inversión, del 19 de agosto de 1999 y sus respectivos acuerdos de reforma (SGV- A-38, SGV-A-54, SGV-A-63 y SGV-A-67).
-2. SGV-A-22 Acuerdo sobre el suministro de información periódica, y sus modificaciones (SGV-A-25, SGV-A-31, SGV-A-41, SGV-A-44. SGV-A-45).
-3. SGV-A-39 Instrucciones sobre la comunicación del nombramiento de auditores externos y de la declaración jurada respectiva.
-4. SGV-A-50 Instrucciones sobre la Información Periódica que deberán remitir las Entidades Administradoras de Emisiones Provenientes de Procesos de Titularización, del 1 de noviembre del 2001.
-5. SGV-A-69. Instrucciones para la remisión de las carteras de valores de los Fondos de Inversión del 28 de octubre del 2002.
-6. SGV-A-70 y SGV-A-71 Instrucciones para la publicación de estados financieros auditados por parte de los emisores no financieros, puestos de bolsa y sociedades administradoras de fondos de inversión y fondos de inversión.
+Artículo 8.-Requisitos de comunicación por parte de los profesionales o firmas de auditorías externas.
+La declaración jurada que deben remitir los profesionales o firmas de auditores externos que brinde servicios de auditoría a cualquiera de las entidades emisoras o sujetos fiscalizados por la Superintendencia General de Valores, sobre el porcentaje los honorarios que percibe de la entidad auditada por servicios de auditoría y otros servicios de asesoría", deberá ser presentada a más tardar 40 días hábiles posteriores a la fecha de cierre contable de la respectiva firma. Deberá ser presentada en las oficinas de la Superintendencia, en papel membretado y debidamente sellada, según el contenido del formato del Anexo 30.
+(Así ADICIONADO EXPRESAMENTE por el artículo 1 inciso b) del acuerdo SGV-A-83 del 25 de noviembre del 2004 emitido por la Superintendencia General de Valores)
