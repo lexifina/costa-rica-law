@@ -1,0 +1,1 @@
+Art.2.°. El Señor Fernandez en remuneración de este privilegio pagará anualmente al Tesorero Nacional, la suma de dos mil pesos, garantizando esta obligación con la fianza correspondiente, á satisfacion de la Secretaria de Hacienda. La expresada suma de dos mil pesos será satisfecha al vencimiento de cada año de los cinco años de su concesión.
