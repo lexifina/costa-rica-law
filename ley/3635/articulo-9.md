@@ -1,0 +1,2 @@
+ARTICULO 9
+Ambos gobiernos promoverán el desarrollo de los Institutos de cooperación Intelectual entre los dos países. Estos Institutos tendrán las atribuciones que correspondan a las entidades de esta clase según Convenios Internacionales vigentes de Cooperación Intelectual. Corresponderá también a estos Institutos proporcionar datos e informaciones a los estudiantes costarricenses y chilenos interesados en el conocimiento recíproco.
