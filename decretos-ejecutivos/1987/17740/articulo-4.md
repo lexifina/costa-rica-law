@@ -1,1 +1,0 @@
-Artículo 4°.- Delegase en la Dirección General de Aduanas, por el plazo de un año a partir de la publicación del presente Decreto, competencia para que por medio de resolución administrativa autorice los traslados de los Almacenes de Depósito Fiscal que correspondan a la jurisdicción de la Aduana Nueva, en forma progresiva y ordenada.
