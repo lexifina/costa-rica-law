@@ -1,0 +1,1 @@
+Art. 8° -En todas las escuelas públicas de primera enseñanza elemental, las lecciones serán orales y de ejercicio, procurando los maestros ceñirse, en la parte que les toque, a las indicaciones del informe publicado en el número cinco de la Gaceta Oficial de veinticinco del presente, á fin de que la educación marche á la par de la instrucción, y las dos en mútuo auxilio.

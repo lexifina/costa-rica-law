@@ -1,0 +1,1 @@
+Art. 9° -En las escuelas públicas de barrios, la instruccion comprenderá tan solo rudimentos de moral y religión, lectura perfecta, caligrafía, aritmética elemental y ortografía castellana, á todo lo cual se agregará en las de niñas de los mismos barrios, costura en principales formas, y demás sencillas obras de mano de uso común y frecuente.
