@@ -1,0 +1,2 @@
+Artículo 12
+El Estado Parte en cuyo territorio se encuentre al presunto delincuente, si no concede la extradición de este, estará obligado, sin excepción alguna y con independencia de que el delito haya sido o no cometido en su territorio, a someter el caso a las autoridades competentes a efectos del procesamiento según el procedimiento previsto en la legislación de ese Estado. Esas autoridades tomarán su decisión en las mismas condiciones que las aplicables a cualquier otro delito de carácter grave, con arreglo a la legislación de ese Estado.

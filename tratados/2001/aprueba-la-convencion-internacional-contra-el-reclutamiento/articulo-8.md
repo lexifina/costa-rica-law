@@ -1,0 +1,2 @@
+Artículo 8
+Todo Estado Parte que tenga razones para creer que se ha cometido, se está cometiendo o se vaya a cometer uno de los delitos previstos en la presente Convención transmitirá, de conformidad con su legislación nacional, toda la información pertinente a los Estados Partes afectados tan pronto como llegue a su conocimiento, directamente o por conducto del Secretario General de las Naciones Unidas.
