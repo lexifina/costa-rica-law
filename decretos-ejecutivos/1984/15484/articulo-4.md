@@ -1,1 +1,0 @@
-Artículo 4°- Podrá reconocerse a cada funcionario solo uno de los beneficios establecidos en el presente Reglamento. El reconocimiento de pago de zonaje o de incentivo por regionalización se hará mediante Acción de Personal (P-21) por el Departamento de Personal MAG, la cual requerirá para su validez la aprobación de la Dirección General de Servicio Civil.
