@@ -1,0 +1,1 @@
+Art. 84.-Mientras se establece el registro civil, y después de establecido, con respecto los actos verificados antes de su organización, seguirán sirviendo de prueba para el nacimiento, el matrimonio y la muerte, las certificaciones eclesiásticas con que hoy se justifican.

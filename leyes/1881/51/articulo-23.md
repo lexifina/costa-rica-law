@@ -1,0 +1,1 @@
+Art. 23.-Antes de poner el sello y las firmas se leerá á íntegramente los que han de suscribirlo, pudiendo éstos inspeccionar el asiento si así lo desearen. Al final del asiento, debe expresarse que se le ha dado lectura.

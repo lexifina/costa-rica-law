@@ -1,0 +1,1 @@
+Art. 47.-Cuando se trate de reconocer á una persona mayor de edad, sin la intervención de ésta no podrá inscribirse el asiento; en el caso de que dicha persona resista el reconocimiento, la cuestión corresponde los tribunales de justicia; y el encargado del registro sólo podrá inscribir la ejecutoria que recaiga.

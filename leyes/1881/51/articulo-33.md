@@ -1,0 +1,1 @@
+Art. 33.-Los documentos que se refieren las actas del registro, deben conservarse en el archivo del funcionario encargado de aquel, rubricándose previamente por éste todos los folios de dichos documentos, y pasando al finalizar el año al archivo de la Gobernación ó Jefatura Política, cuando se trate de los que conservan los Alcaldes.

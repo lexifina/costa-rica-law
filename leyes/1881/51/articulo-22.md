@@ -1,0 +1,1 @@
+Art. 22.-Todo asiento deberá ser firmado por el funcionario encargado del registro, por el Canciller ó el Notario, en su caso, ó por dos testigos de asistencia, y por todos los interesados que supieren y pudieren firmar. Cada asiento llevará además el sello de la oficina.

@@ -1,0 +1,1 @@
+Art. 73.-Todas las contestaciones que se refieran al estado civil de las personas, deben resolverse en juicio civil ordinario, y por el Juez Civil en 1° Instancia; originándose de la sentencia que dicte éste, todos los recursos ordinarios que las leyes conceden, así como los extraordinarios, con excepción del de nulidad.
