@@ -73,7 +73,7 @@ Instituto Nacional de Fomento Cooperativo 946.3
 Instituto Nacional de las Mujeres 710.1
 Instituto Nacional de Vivienda y Urbanismo 5,702.8
 Instituto sobre Alcoholismo y Farmacodependencia 799.8
-JAPDEVA 12,135.2
+JAPDEVA 14.543.1
 Junta Administrativa del Registro Nacional 2,866.6
 Junta Administrativa Imprenta Nacional 583.1
 Junta de Defensa del Tabaco 1.2
@@ -119,3 +119,5 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado el límite de gasto presupuestario y efectivo de RECOPE, por el artículo 1 del Decreto Ejecutivo N° 29969 de 29 de octubre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo de Patronato Nacional de la Infancia, por el artículo 1 del Decreto Ejecutivo N° 29977 de 07 de Noviembre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo del Instituto de Fomento y Asesoría Municipal , por el artículo 1 del Decreto Ejecutivo N° 29990 de 8 de Noviembre del 2001)
+(Modificado el límite de gasto presupuestario y efectivo del Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica , por el artículo 1 del Decreto Ejecutivo N° 30000 de 22 de Noviembre del 2001)
+(Modificado el límite de gasto presupuestario y efectivo del Instituto Nacional de las Mujeres , por el artículo 1 del Decreto Ejecutivo N° 30034 de 22 de Noviembre del 2001)
