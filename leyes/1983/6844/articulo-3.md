@@ -1,0 +1,1 @@
+Artículo 3º.- El no pago del impuesto correspondiente faculta a las municipalidades para imponer una multa igual a diez veces el monto dejado de pagar. Para determinar este monto, las corporaciones realizarán una estimación del impuesto no pagado, la que servirá de base para el cálculo de la multa respectiva.
