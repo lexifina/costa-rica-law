@@ -1,0 +1,2 @@
+Artículo 10.—El monto máximo autorizado para cubrir erogaciones por Caja Chica se establece en treinta mil colones. Este monto será revisado y ajustado cada vez que el índice de Precios al Consumidor de la Dirección General de Estadísticas y Censos se incremente en un porcentaje mayor al 10% anual, cuyo ajuste se efectuará en el mes de enero de cada año.
+Se exceptúa de este límite lo establecido en el Artículo 16 de este Reglamento.

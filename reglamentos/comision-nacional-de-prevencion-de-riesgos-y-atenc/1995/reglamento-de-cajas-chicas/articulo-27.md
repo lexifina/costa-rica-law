@@ -1,0 +1,1 @@
+Artículo 27.—El responsable del control del fondo de Caja Chica deberá comunicar, por escrito, al funcionario encargado del manejo de la Caja Chica, de las responsabilidades establecidas por el presente Reglamento.

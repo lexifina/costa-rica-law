@@ -1,0 +1,1 @@
+Artículo 39.—Este Reglamento se presumirá de conocimiento, tanto de los responsables del control, como de los encargados del manejo de los fondos de Cajas Chicas y demás funcionarios. Será de observancia obligatoria para todos desde el momento de su aprobación.
