@@ -6,5 +6,5 @@ las mismas, calculadas al 18% anual. Para probarlos bastará la simple
 certificación de la Dirección General de Desarrollo Social y Asignaciones
 Familiares, la cual servirá para ejercitar la acción penal
 correspondiente y constituirá título ejecutivo, pudiendo intentarse ambas
-acciones separadamente. En el juicio ejecutivo sólo se admitirá la excepción de
-pago.
+acciones separadamente.
+(Así reformado este artículo de acuerdo con la anulación parcial ordenada por resolución de la Sala Constitucional N° 6309 del 01 de septiembre de 1998.)
