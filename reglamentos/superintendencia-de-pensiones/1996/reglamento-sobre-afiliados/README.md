@@ -14,3 +14,4 @@ Reglamento sobre Afiliados.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-02 | la propia norma |
+| 2 | 1996-12-11 | Reglamento 13 (1996-12-11) |
