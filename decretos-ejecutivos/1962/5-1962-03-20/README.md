@@ -20,3 +20,4 @@ Reglamento de la Ley reguladora de las relaciones entre productores e industrial
 | 5 | 1982-10-05 | Decreto Ejecutivo 13910 (1982-10-05) |
 | 6 | 1984-05-22 | Decreto Ejecutivo 15439 (1984-05-22) |
 | 7 | 1985-02-20 | Decreto Ejecutivo 16042 (1985-02-20) |
+| 8 | 1990-08-23 | Decreto Ejecutivo 19882 (1990-08-23) |
