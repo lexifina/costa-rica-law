@@ -1,9 +1,9 @@
 CAPITULO V
 Defensas previas
 Artículo 44.- Las siguientes serán admisibles como defensas previas y
-deberán presentarse en el momento de contestar la demanda, o en el momento
-de la réplica, salvo la de cosa juzgada, que podrá presentarse en cualquier
-estado del juicio, antes de la sentencia definitiva:
+deberán presentarse en el momento de contestar la demanda, o en el
+momento de la réplica, salvo la de cosa juzgada, que podrá presentarse en
+cualquier estado del juicio, antes de la sentencia definitiva:
 a) La incompetencia de jurisdicción.
 b) La litispendencia.
 c) La excepción de cosa juzgada.
