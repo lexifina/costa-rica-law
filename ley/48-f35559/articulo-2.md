@@ -1,0 +1,1 @@
+Artículo 2°-La quiebra del asegurado no anula ni rescinde el contrato de seguro sobre la vida, ni da derecho al concurso para pedir rescate de la póliza ni su reducción, por ser este derecho estrictamente personal.

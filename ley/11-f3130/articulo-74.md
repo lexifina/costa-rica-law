@@ -1,2 +1,5 @@
 Artículo 74.-Quedan derogadas todas las leyes y disposiciones legales que se opongan a la presente, excepto aquellas leyes especiales que han dado origen a compañías de carácter nacional como la Sociedad Costarricense de Seguros de Vida.
 Casa Presidencial. San José, a los dos días del mes de octubre de mil novecientos veintidós.
+(Nota de Sinalevi: Mediante ley N° 48 del 27 de julio de 1926, se indica: "...Artículo 1°-Las cantidades que el asegurador debe entregar al beneficiario, serán propiedad de éste, aun contra las reclamaciones de 5 herederos legítimos y a creedores de cualquier clase del asegurado.
+Artículo 2°-La quiebra del asegurado no anula ni rescinde el contrato de seguro sobre la vida, ni da derecho al concurso para pedir rescate de la póliza ni su reducción, por ser este derecho estrictamente personal.
+Artículo 3°-El concurso o quiebra del asegurado fallecido sólo puede reivindicar las primas del seguro en el caso de que estas primas han sido pagadas en dolo o fraude para los a creedores.")
