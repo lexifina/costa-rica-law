@@ -1,0 +1,1 @@
+Artículo 2°.- Todas las celebraciones que con este motivo se realicen, deberán estar incluidas dentro del marco del Programa Nacional de Ciencia y Tecnología y serán coordinadas por el Ministerio de Ciencia y Tecnología, MICIT haciendo uso de los mecanismos de concertación que establece el Sistema Nacional de Ciencia y Tecnología.
