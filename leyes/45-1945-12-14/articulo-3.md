@@ -1,0 +1,1 @@
+Artículo 3°-Asimismo se autoriza al Poder Ejecutivo para invierta, en el establecimiento de granjas agrícolas para las escuelas de Nicoya y de Las Juntas de Abangares, hasta la suma de diez colones en cada una de dichas granjas.
