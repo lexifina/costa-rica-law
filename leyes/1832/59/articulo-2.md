@@ -1,0 +1,1 @@
+Art. 2. Se hará la indemnización dando á cada padre actual de familia ò cabeza de Casa, en el vecindario de Escasù, cincuenta varas en cuadro en el recinto de la Villa, si alcanza el terreno útil, una manzana de cien varas por sus cuatro rostros en el campo, con mas las cincuenta varas en cuadro á los que no la hubiesen percibido.
