@@ -1,2 +1,0 @@
-Artículo 8°-Las Contralorías de Servicios actuarán en lo relativo a prestación de servicios como unidades de coordinación con la Defensoría de los Habitantes, a la cual deberá apoyar mediante el aporte de información periódica o cuando le sea solicitado, sobre los asuntos atendidos y mejoras realizadas para la buena prestación de los servicios al usuario.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 23721 del 6 de octubre de 1994).

@@ -1,1 +1,0 @@
-Artículo 4°-Las unidades de Contraloría de Servicios en cada institución estarán a cargo de un Contralor de Servicios designado por el jerarca de la institución. Dependerán y estarán subordinadas directamente al superior jerárquico.

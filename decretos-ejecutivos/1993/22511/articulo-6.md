@@ -1,1 +1,0 @@
-Artículo 6°-Las unidades de contraloría de servicios contarán para realizar sus funciones con el apoyo directo de las unidades de información, orientación y recepción de quejas que formarán parte de las unidades de contraloría de servicios con el fin de propiciar un funcionamiento adecuado de las mismas.
