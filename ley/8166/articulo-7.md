@@ -1,0 +1,1 @@
+Artículo 7°—Las sesiones ordinarias de la Junta Directiva se celebrarán dos veces al mes; podrán efectuarse dos sesiones extraordinarias, siempre y cuando se consideren necesarias para lograr un funcionamiento eficiente en el cumplimiento de los fines y objetivos del Instituto.
