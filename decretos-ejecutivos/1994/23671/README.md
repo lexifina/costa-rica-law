@@ -14,3 +14,4 @@ Constituye Sistema Nacional para el Desarrollo Sostenible "SINADES"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-10-04 | la propia norma |
+| 2 | 1996-10-15 | Decreto Ejecutivo 25562 (1996-10-15) |
