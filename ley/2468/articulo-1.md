@@ -1,4 +1,6 @@
+(Derogado)
 N° 2468
+(Esta norma fue derogada por el artículo 2° de la ley N° 3400 del 28 de setiembre de 1964)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1°-Ref´romase el artículo 17 de la ley N° 34 de 21 de diciembre de 1940, el cual se leerá así:
