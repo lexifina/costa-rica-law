@@ -1,0 +1,4 @@
+Artículo 2º—Requisitos para formar parte de la Comisión Institucional de Control Interno. Los funcionarios elegidos para formar parte de la Comisión Institucional de Control Interno deberán cumplir con los siguientes requisitos:
+1. Debe ser funcionario regular del Ministerio de Hacienda, es decir, debe estar nombrado en propiedad, excepto por el representante del Despacho, quien será nombrado directamente por el Ministro de Hacienda.
+2. Debe conocer con amplitud el desarrollo de las diferentes actividades que se realizan en la dependencia para la que labora, así como los diferentes factores que la afectan y beneficien, en el cumplimiento de sus funciones.
+3. Debe encontrarse identificado tanto con los objetivos de la dependencia como con los objetivos institucionales, ya que su labor dentro de la Comisión se enfocará, en forma directa o indirecta, hacia el cumplimiento de los mismos.
