@@ -8,4 +8,6 @@ Las organizaciones auxiliares del cooperativismo se constituirán con la concurr
 Cuando las necesidades así lo demanden, las anteriores modalidades podrán combinarse. En todos los casos, las cooperativas mantendrán una participación mayoritaria en la nueva organización.
 Las cooperativas podrán formar parte de organizaciones auxiliares del cooperativismo, mediante el voto afirmativo de las dos terceras partes de los miembros del consejo de administración de cada una de ellas.
 A las organizaciones auxiliares del cooperativismo les serán aplicables, en lo conducente, las disposiciones legales que rigen para las asociaciones cooperativas, especialmente lo concerniente al reconocimiento de su personalidad jurídica.
-(Así reformado por el artículo 1 de la Ley N° 7053 del 9 de diciembre de 1986)
+(Así reformado por el artículo 1 de la ley N° 7053 del 9 de diciembre de 1986)
+Para todos los efectos, los organismos auxiliares del cooperativismo podrán ser sujetos de crédito, avales y garantías por parte de las entidades estatales que financian estos organismos.
+(Así adicionado el párrafo anterior por el artículo 2° aparte a) de la ley N° 7841 del 29 de octubre de 1998)
