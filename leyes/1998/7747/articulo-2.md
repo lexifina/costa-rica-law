@@ -1,0 +1,4 @@
+Artículo 2°-
+1. No se admitirá ninguna reserva al presente Protocolo. No obstante, en el momento de la ratificación o adhesión, los Estados Partes en este instrumento podrán declarar que se reservan el derecho de aplicar la pena de muerte en tiempo de guerra conforme al Derecho Internacional por delitos sumamente graves de carácter militar.
+2. El Estado Parte que formule esa reserva deberá comunicar al Secretario General de la Organización de los Estados Americanos, en el momento de la ratificación o la adhesión las disposiciones pertinentes de su legislación nacional aplicables en tiempo de guerra a la que se refiere el párrafo anterior.
+3. Dicho Estado Parte notificará al Secretario General de la Organización de los Estados Americanos de todo comienzo o fin de un estado de guerra aplicable a su territorio.
