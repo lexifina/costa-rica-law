@@ -14,3 +14,4 @@ Reglamento de Ventas Ambulantes y Estacionarias en las Vías Públicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-29 | la propia norma |
+| 2 | 2000-12-04 | Reglamento municipal 135 (2000-12-04) |
