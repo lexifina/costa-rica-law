@@ -14,3 +14,4 @@ Se cambia el nombre de "Taller Policial Interministerial" a "Taller Mecánico de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-06-06 | la propia norma |
+| 2 | 2004-12-01 | Decreto Ejecutivo 32177 (2004-12-01) |
