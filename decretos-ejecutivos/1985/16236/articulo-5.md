@@ -1,0 +1,1 @@
+Articulo 5°-Toda dependencia o funcionario del Registro que encontrare folios desprendidos de los tomos, o partes de ellos, o cuadernillos sueltos, deberá remitirlos a la Oficina de Reconstrucción, e informar también a esta de los folios que aún sin desprenderse, se encontraren deterioradas o en proceso de destrucción.

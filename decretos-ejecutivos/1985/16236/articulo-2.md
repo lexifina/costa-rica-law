@@ -1,0 +1,1 @@
+Articulo 2°-El salvamento de esas inscripciones consistirá en trasladar de inmediato y de oficio al folio correspondiente de la Reforma Registral, las inscripciones que se encuentren completas pero deterioradas o en vías de destrucción, y reponer las que hayan desaparecido en todo o en parte y pasarlas también de oficio al sistema de la Reforma Registral.

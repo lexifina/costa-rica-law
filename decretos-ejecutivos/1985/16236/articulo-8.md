@@ -1,0 +1,2 @@
+Articulo 8°-En caso de duda la Oficina de Reconstrucción dispondrá la publicación en el Diario Oficial, de un aviso para que las personas interesadas en las inscripciones reconstruidas o en las anotaciones marginales que pudieren existir, comparezcan dentro de los cinco días hábiles siguientes a su publicación, con los documentos en que consten sus derechos a fin de que se tomen en cuenta en la reproducción, u oponiéndose a la reconstrucción.
+Vencido ese plaza sin haber objeción la Oficina de Reconstrucción podrá autorizar las inscripciones respectivas.

@@ -1,0 +1,2 @@
+Articulo 3°-El salvamento referido estará a cargo de la Oficina de Reconstrucción del Registro Público la cual dispondrá todas las medidas a su alcance para reponer o completar, con todos los datos que establece el Reglamento del Registro Público en lo que fuere posible, las inscripciones deterioradas o en vías de destrucción.
+El Jefe de esa Oficina tendrá facultades para autorizar con su firma el traslado de inscripciones al folio real así como las razones que correspondan consignar.
