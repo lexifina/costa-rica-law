@@ -1,0 +1,2 @@
+Artículo 5°—Una vez determinados por medio de cálculo actuarial los montos que correspondan a la Caja Costarricense del Seguro Social de las cotizaciones realizadas al Fondo de Hacienda régimen de la Ley No 7013 estos se trasladarán por medio de resolución que dictarán los jerarcas de esos Regímenes.
+Cualquier diferencia positiva resultante entre lo cotizado y el monto a trasladarse a la Caja Costarricense del Seguro Social, será reintegrada al interesado por medio de resolución y bajo el procedimiento de Factura de Cobró al Estado previa solicitud de este.

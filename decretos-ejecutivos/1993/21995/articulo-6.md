@@ -1,0 +1,2 @@
+Artículo 6°—Si el beneficiario ha cotizado simultáneamente para el Régimen de la Caja Costarricense del Seguro Social y para el fondo de pensiones de Hacienda según la Ley N ° 7013, el Ministerio de Hacienda devolverá íntegramente las cuotas recibidas a favor del interesado con relación a ese segundo régimen por medio del procedimiento-anterior salvo los casos contemplados en el artículo 2° de este Decreto.
+Dado en la Presidencia de la República —San José a los 2 días del mes de febrero de mil novecientos noventa y tres

@@ -1,0 +1,5 @@
+Artículo 2°—Podrán seguir cotizando y tendrán derecho a este régimen:
+a) Aquellas personas que tuvieran treinta años de servicio debidamente cotizados y cincuenta o más anos de edad al dieciocho de noviembre de 1991;
+b) Aquellas personas que tuviesen más de diez años de servicio debidamente cotizados y cincuenta y cinco anos de edad en el caso de las mujeres y cincuenta y siete en el caso de los hombres al dieciocho de noviembre de 1991;
+c) Aquellos personas que tuviesen más de treinta años de servicio debidamente cotizados al dieciocho de noviembre de 1991 y no tuviesen la edad requerida a esa fecha.
+Para cumplir con lo anterior el funcionario deberá presentar en la Oficina de Recursos Humanos de la Institución donde labore, las certificaciones donde demuestre el mínimo de años de servicio y de edad establecidas en este artículo. Los Jefes de las Oficinas de Recursos Humanos, previa constatación de lo anterior, procederán al rebajo de la cotización respectiva para el Régimen de la ley 7013,

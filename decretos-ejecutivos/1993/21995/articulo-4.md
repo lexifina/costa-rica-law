@@ -1,0 +1,1 @@
+Artículo 4°—Aquellos funcionarios públicos que hayan cotizado para el régimen especial de la Ley No 7013, sin haber alcanzado el tiempo mínimo de servicio y la edad señalada en el Artículo 2 de este decreto pasarán al Régimen de Invalidez Vejez y Muerte que administra la Caja Costarricense de Seguro Social.
