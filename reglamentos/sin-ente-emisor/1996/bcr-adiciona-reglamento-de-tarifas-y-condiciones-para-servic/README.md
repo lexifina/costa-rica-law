@@ -13,3 +13,4 @@ BCR: Adiciona Reglamento de Tarifas y Condiciones para Servicios(Ver Fe de Errat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-11-21 | la propia norma |
+| 2 | 1997-04-28 | Reglamento 33 (1997-04-28) |
