@@ -1,0 +1,1 @@
+13. Están igualmente obligados á guardar secreto en todos los negocios privados de la oficina: y el oficial mayor 6 escribiente que lo revelare en algun asunto de entidad, perderá de hecho su destino, sin perjuicio de las demas penas à que den lugar las leyes.

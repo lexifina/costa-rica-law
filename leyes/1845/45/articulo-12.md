@@ -1,0 +1,1 @@
+12. Ni t los oficiales mayores ni á los escribientes, es permitido extraer papel alguno de los archivos, ni franquearlos à ninguna persona en confianza, sinó con órden suprema comunicada por el ministerio y bajo conocimiento.

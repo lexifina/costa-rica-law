@@ -1,0 +1,1 @@
+17. Habra un portero que cuide de las oficinas del despacho, y se ocupe de cuanto para el servicio de ellas necesiten los ministros los oficiales mayores, y tiene obligacion de certificarse diariamente y en los feriados de si hubiere despacho extraordinario.

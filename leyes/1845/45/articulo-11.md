@@ -1,0 +1,1 @@
+11. Es obligacion de los oficiales escribientes conducir, por turnos, los pliegos á las oficinas de los Supremos Poderes, y los ofíciales mayores deben sentar conocimiento del dia y hora de haberse entregado a la secretaría respectiva. Es así mismo obligacion de los primeros poner en la estafeta la correspondencia para el exterior.

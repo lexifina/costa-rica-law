@@ -1,0 +1,1 @@
+14. En los dias de tabla ó de asistencia, son obligados los oficiales mayores à adornar en sus respectivos subalternos el local correspondiente, y como jefes de seccion, à acompañar à los Ministros, y tanto aquellos como los escribientes deben presentarse de uniforme.

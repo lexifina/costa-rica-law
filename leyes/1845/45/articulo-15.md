@@ -1,0 +1,1 @@
+15. Desde las nueve hasta las once de la mañana, y desde la una de la tarde hasta las dos, á ninguna persona se darà audiencia en los despachos, à no ser que lo disponga el Jefe Supremo y que el Ministro lo avise por medio del oficial mayor.
