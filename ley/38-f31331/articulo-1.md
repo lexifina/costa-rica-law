@@ -1,0 +1,6 @@
+N° 38
+EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA
+DECRETA:
+ARTÍCULO 1°.-Los incisos 16 y 17 del artículo 273 del Código Fiscal se leerán así:
+"16-Los vales o pagarés satisfarán el impuesto de timbre a razón de un céntimo por cada diez colones o fracción, sobre el monto de la obligación principal, pero los otorgados a un plazo no mayor de un año, pagarán únicamente un céntimo por cada cien colones o fracción. Sin embargo, cuando la obligación no exceda de doscientos colones y en el documento conste que el deudor no tiene a su cargo otro crédito a favor del mismo acreedor, el vale estar exento del impuesto de timbre".
+"17-Las letras de cambio y cheques girados sobre plazas extranjeras y los girados en el exterior sobre plazas de Costa Rica, pagarán veinte céntimos de timbre en cada libranza. Los timbres deberán adherirse al mismo tiempo de la emisión de las letras o cheques si son girados en Costa Rica o al de su presentación para ser pagados o aceptados, si han sido librados en otro país. Las letras a la vista o a plazo, giradas en Costa Rica y pagaderas en el mismo país, satisfarán un céntimo de timbre por cada cien colones o fracción, cuando el plazo no sea mayor de un año, y si el plazo excediere de ese término, cubrirán el timbre a razón de un céntimo por cada diez colones o fracción".
