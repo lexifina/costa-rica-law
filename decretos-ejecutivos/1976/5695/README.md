@@ -14,3 +14,4 @@ Reglamento Técnico Oficial para Jabones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-02-07 | la propia norma |
+| 2 | 1989-06-28 | Decreto Ejecutivo 19083 (1989-06-28) |

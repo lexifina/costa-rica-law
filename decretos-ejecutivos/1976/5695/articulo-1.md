@@ -35,6 +35,9 @@ Primera Clase (C-1), se permite no usar envoltura siempre que se marquen a relie
 d) Jabones en polvo se deben presentar en cajas o empaques de material adecuado que llevarán impresos la marca, el nombre del fabricante y el “peso neto” en gramos.
 Estos jabones deberán expender en empaques conteniendo 125, 250, 500 o 1000 gramos y, en empaques mayores se expenderán en múltiplos del kilogramo.
 e) Jabones líquidos: con este nombre se denominarán los jabones blandos disueltos en agua, alcohol, glicerina, o mezclas de estas sustancias, adicionados o no con esencias que les den olor agradable. En su rotulación debe indicarse el nombre propio del producto, “contenido neto” en mililitros, el nombre del fabricante y su dirección y los tamaños deberán ser de 125, 250, 500 ó 1000 mililitros y, en envases mayores se expenderán en múltiplos del litro.
+C) Los jabones cubiertos por esta norma no deben contener nitrobenceno
+(C6HsN02).
+( Así adicionado el inciso anterior por el decreto ejecutivo N° 19083 de 28 de junio de 1989)
 IV- Métodos de Prueba
 a) Muestreo
 1°-Jabón de Barra (Clasificación: A, B, C).
