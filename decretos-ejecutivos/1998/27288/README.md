@@ -15,3 +15,4 @@ Reglamento de Funcionamiento de la Comisión Liquidadora del Programa de Compens
 | --- | --- | --- |
 | 1 | 1998-09-11 | la propia norma |
 | 2 | 1998-12-24 | Decreto Ejecutivo 27560 (1998-12-24) |
+| 3 | 2001-09-05 | Decreto Ejecutivo 29797 (2001-09-05) |
