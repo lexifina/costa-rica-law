@@ -1,3 +1,5 @@
+(Derogado)
+(Esta ley fue derogada por el artículo 1° de la ley N° 1740 del 29 de abril de 1954)
 1º.- Que es el Ministerio de Educación Pública el organismo a través
 del cual el Poder Ejecutivo ejerce la función pública de la cultura y de
 la educación nacional en los aspectos administrativo, técnico y social, y
