@@ -13,3 +13,4 @@ Reglamento Inscripción Calidad Fiscalización Medicamentos Veterinarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-12-06 | la propia norma |
+| 2 | 2000-08-12 | Decreto Ejecutivo 28861 (2000-08-12) |
