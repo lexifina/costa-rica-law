@@ -1,13 +1,18 @@
-Artículo 16.-Son funciones de la Unidad Administrativa:
-a) Administrar los presupuestos Ordinario y Extraordinario, Fondo Forestal, y otros fondos especiales e ingresos de la DGF, de acuerdo con las normas y procedimientos legales y administrativos vigentes y los que al efecto se dictaren.
-b) Administrar los incentivos para el desarrollo forestal aprobados por el Director General Forestal y demás autoridades competentes.
-c) Proveer los servicios generales para la DGF, tales como mantenimiento, suministros, contabilidad y otros
-ch) Elaborar los manuales que regulen la operación administrativa.
-d) Elaborar y proponer los presupuestos y sus modificaciones.
-e) Aplicar los controles necesarios para lograr una eficiente administración de los recursos de la DGF.
-f) Elaborar los planes nacionales de desarrollo y los planes anuales operativos.
-g) Mantener y publicar las estadísticas forestales.
-h) Evaluar periódicamente la ejecución de planes nacionales de desarrollo y planes anuales operativos.
-i) Elaborar los informes de labores de la DGF.
-j) Coordinar con otras dependencias del Estado, los asuntos relacionados con su campo.
-k) Otras que le asigne el Director o el Subdirector Forestal.
+Artículo 16.- Son funciones del Departamento de Servicios Técnicos:
+a) Realizar interpretación de fotografías áreas y otros productos de sensores remotos, con el fin de determinar áreas boscosas del país.
+b) Analizar y tramitar los planes reguladores y los estudios de impacto ambiental en áreas boscosas y de aptitud forestal fuera de las reas de conservación.
+c) Confeccionar y elaborar mapas, gráficos, organigramas y dibujos, entre otros, para fines de extensión y divulgación relacionados con el recurso forestal.
+ch) Efectuar estudios sobe tenencia de la tierra, levantamiento topográfico y de agrimensura en todo el país, para fines de manejo del recurso natural.
+d) Tramitar y otorgar visados y certificaciones para efectos de cumplir con lo establecido en la Ley de Catastro Nacional y Ley de Informaciones Posesorias.
+e) Preparar el catálogo de utilidades públicas.
+f) Efectuar estudios de capacidad de uso del suelo, según políticas de la Dirección General Forestal.
+g) Evaluar y tramitar solicitudes de clasificación de terrenos forestales, según su aptitud de uso permanente, de acuerdo con lo establecido en el artículo 65 de este reglamento.
+h) Determinar las áreas de aptitud forestal en las propiedades estatales.
+i) Establecer anualmente rea de cobertura boscosa de bosques naturales y de plantaciones forestales.
+j) Coordinar la ejecución del inventario forestal nacional y su actualización periódica.
+k) Establecer un sistema geográfico de información para monitoreo del recurso forestal del país.
+l) Realizar los estudios correspondientes para la creación y/o modificación de nuevas reservas forestales y zonas protectoras.
+m) Tramitar la incorporación al patrimonio forestales del Estado, los terrenos forestales y bosques administrados por otras instituciones públicas.
+n) Preparar proyectos de inversión y manejos de las reas bajo su administración.
+ñ) Otras que le sean asignadas por el Director o el Subdirector General Forestal.
+(Así reformado por el artículo 10 del decreto ejecutivo N° 20618 del 12 de julio de 1991)

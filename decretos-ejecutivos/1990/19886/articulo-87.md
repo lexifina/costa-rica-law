@@ -1,1 +1,2 @@
-Artículo 87.-Para la exoneración del pago de los impuestos territoriales y el de tierras incultas, establecidos en el párrafo III del artículo 63 de la Ley, los interesados deberán solicitar a la DGF una certificación, a fin de que el Ministerio de Hacienda aplique la exoneración respectiva.
+Artículo 87.-Para la exoneración del pago de los impuestos territoriales y el de tierras incultas, establecidos en el párrafo II (*) del artículo 63 de la Ley, los interesados deberán solicitar a la DGF una certificación, a fin de que el Ministerio de Hacienda aplique la exoneración respectiva.
+(*)(Así reformada la frase anterior por el artículo 22 del decreto ejecutivo N° 20618 del 12 de julio de 1991)

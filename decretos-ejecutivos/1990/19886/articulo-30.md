@@ -1,1 +1,1 @@
-Artículo 30.-Las personas físicas o jurídicas que induzcan a engaño para no cancelar parcial o totalmente el Impuesto General Forestal establecido, serán sancionadas de acuerdo con lo estipulado en el inciso b) del artículo 122 de la Ley Forestal.
+Artículo 30.-(Derogado por el artículo 30 del decreto ejecutivo N° 20618 del 12 de julio de 1991)

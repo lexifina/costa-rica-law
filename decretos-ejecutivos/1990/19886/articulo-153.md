@@ -1,12 +1,18 @@
-Artículo 153.-Queda prohibida, en general la exportación de madera en troza, y además la exportación de productos forestales de las siguientes especies:
+Artículo 153.-Queda prohibida, en general, la exportación de madera en troza y además la exportación de productos forestales de las siguientes especies:
 Nombre común | Nombre científico | Familia
-Ajo | Caryocar costarricense | caryocaraceae
-Caoba | Swietenia macrophylla | Meliaceae
-Cristóbal | Platymiscium polystachyum | Fabaceae
-Chiricano | Vantanea barbourii | Hamiriaceae
-Gavilán | Enqelhardtia pterocarpa | Jungladaceae
-Guapinol negro | Cymonetra hemitomophylla | Leguminosae
-Guapinol real | Guaicacum sanetum | Zygophyllcae
-Lechillo, ojoche macho | Botacarpus costarricense | Moraceae
-Ocora | Guarea lonqipetiola | Meliaceae
-Reseco | Tachiqalia versicolor | Meliaceae
+Ajo | Caryocar costarricense | Caryocaraceae
+Ojoche | Brosimun alicastrum Brosimun costarricanum | Moraceae
+Ojoche macho | Botacarpus costarricensis | Moraceae
+Caoba | Swietenia Macrophuylla Swietenia Humillis | Meliaceae
+Cristóbal | Platymiscium pleiostachyum Platymiscium pinnatum | Papilionaceae
+Chiricano | Vantanea barbourii | Humiriaceae
+Guayacán real | Guaiacum sanctum | Zygophyllaceae
+Guapinol negro | Cynometra hemitomophylla | Fabaceae
+Guapinol | Hymenae courbaril | Caesalpinaceae
+Ocora | Guarea sp Trichilia sp | Meliaceae
+Reseco | Tachigalia versicolor | Lequminosae
+Roble | Quercus copeyensis | Fagales
+Pochote | Pochata quinatum | Bombacaceae
+Probado | Basiloxylum excelsum | Sterculaceae
+Jícaro u olla de mono | Lecythis costarricensis | Lecythidaceae
+(Así reformado por el artículo 33 del decreto ejecutivo N° 20618 del 12 de julio de 1991)

@@ -1,6 +1,8 @@
-Artículo 20.-Son funciones de la Oficina de Supervisores de Programa, las siguientes:
-1) Análisis y evaluación de los aspectos técnicos, administrativos y socioeconómicos a los Proyectos de Reforestación, Planes de Manejo y Aprovechamiento Forestal, Estudios de Impacto Ambiental, etc., que solicite el Director.
-2) Proponer los cambios y ajustes necesarios la sistema de programación operativa, mecanismos y manuales de procedimientos internos de la DGF.
-3) Analizar y proponer los elementos que den sustento a la definición de políticas y programas de desarrollo de la DGF.
-4) Brindar asesoría en la toma de decisiones para la aplicación de la Ley Forestal, su Reglamento y demás disposiciones legales del caso, cuando el Director lo solicite.
-5) Otras que el Director Forestal asigne.
+Artículo 20.-Son funciones de las oficinas regionales forestales:
+a) Preparar en la elaboración de los programas y proyectos a ser utilizados por la DGF a nivel regional.
+b) Ejecutar los programas y proyectos a nivel regional, de acuerdo con los procedimientos y disposiciones establecidas por los departamentos y unidades.
+c) Coordinar la ejecución de sus actividades con otras dependencias del MIRENEM a través del jefe de la oficina regional forestal.
+ch) Acatar las disposiciones técnicas y administrativas emitidas por el Director o el Subdirector General Forestal.
+d) Informar al Director General Forestal y demás departamentos sobre la ejecución de los programas y proyectos a nivel regional.
+e) Divulgar a nivel regional asuntos de interés en el campo forestal.
+(Así reformado por el artículo 11 del decreto ejecutivo N° 20618 del 12 de julio de 1991)

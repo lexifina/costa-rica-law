@@ -1,6 +1,7 @@
 Artículo 149.-Para efectos de exportación e importación se consideran como productos forestales los que a continuación se indican, requiriendo consecuentemente la autorización e inspección de la DGF, aún tratándose de muestras:
-1) Madera en troza para fines de investigación.
-2) Madera en bruto, incluso descortesada o simplemente desbastada.
+1) Madera en troza para fines de investigación, incluso descortezada o simplemente devastada.
+(Así reformado el inciso anterior por el artículo 32 del decreto ejecutivo N° 20618 del 12 de julio de 1991)
+2) (Derogado este inciso por el artículo 32 del decreto ejecutivo N° 20618 del 12 de julio de 1991)
 3) Madera aserrada o madera cepillada.
 4) Postes para alumbrado.
 5) Madera simplemente desvastada o redondeada sin tornear, curvar, ni haber sufrido otro trabajo, para bastones, paraguas, mangos, herramientas y similares.

@@ -1,3 +1,1 @@
-Artículo 116.-Si los contratos para deducción del impuesto sobre la Renta estuvieran en trámite, la DGF deberá emitir una certificación dando fe de esa circunstancia especial, el número de contrato asignado, el nombre del beneficiario y el número de hectáreas a reforestar.
-Asimismo certificará que la finca ha sido debidamente inscrita en el Régimen Forestal, con indicación de las citas correspondientes.
-Para efectos de la declaración del impuesto sobre la Renta, el crédito fiscal se aplicará, siempre y cuando la respectiva declaración venga acompañada de copia del contrato, o en su defecto, de la certificación referida en el párrafo anterior.
+Artículo 116.-(Derogado por el artículo 30 del decreto ejecutivo N° 20618 del 12 de julio de 1991)

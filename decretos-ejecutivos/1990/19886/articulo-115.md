@@ -1,3 +1,1 @@
-Artículo 115.-Las personas o empresas que reforesten acogidos al beneficio de deducción del impuesto sobre la Renta, que decidan acogerse al sistema de CAF respecto de las áreas aún no reforestadas, deberán indicarlas levantando un plano suscrito por un profesional idóneo y suscribir el respectivo contrato con el Estado.
-La DGF establecerá en vía administrativa, un instructivo para seleccionar los proyectos a los cuales se les aprobará el cambio de sistema.
-Los propietarios de aquellos proyectos de reforestación que tuvieren contrato ya suscritos con el Estado y deseen cambiar el sistema de deducción del impuesto sobre la Renta por el CAF, para aquellas áreas nuevas en las que no se haya iniciado la reforestación deberán cumplir previamente con lo establecido en el instructivo mencionado.
+Artículo 115.-(Derogado por el artículo 30 del decreto ejecutivo N° 20618 del 12 de julio de 1991)

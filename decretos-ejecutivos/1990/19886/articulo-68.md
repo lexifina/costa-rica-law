@@ -1,2 +1,1 @@
-Artículo 68.-Para la calificación de terrenos de aptitud agropecuaria o forestal, se empleará el sistema para la determinación de la capacidad de uso de las tierras de Costa Rica, elaborado por el Centro Científico Tropical, hasta tanto el MIRENEM oficialice una metodología.
-Unicamente se podrán otorgar incentivos a actividades de reforestación, que se desarrollen en terrenos de las clases IV, V, VI, VII, VIII y IX de la citada metodología.
+Artículo 68.-(Derogado por el artículo 30 del decreto ejecutivo N° 20618 del 12 de julio de 1991)

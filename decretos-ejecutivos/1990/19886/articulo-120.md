@@ -1,1 +1,1 @@
-Artículo 120.-Tanto el método porcentual a aplicar, como el período a partir del cual queden establecidas las plantaciones, deberán quedar expresamente estipuladas en el contrato forestal.
+Artículo 120.-(Derogado por el artículo 30 del decreto ejecutivo N° 20618 del 12 de julio de 1991)

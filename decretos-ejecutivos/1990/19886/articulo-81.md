@@ -1,1 +1,1 @@
-Artículo 81.-Para el trámite de aquellos permisos para aprovechamiento de madera, en fincas particulares donde se pretenda el cambio de uso a otras actividades básicamente agropecuarias, los interesados deberán aportar además de los requisitos legales señalados por la DGF, un estudio técnico sobre la capacidad de uso de los terrenos a intervenir, así como el inventario forestal de las maderas existentes, para cumplir con lo dispuesto en el artículo 20 de la Ley Forestal.
+Artículo 81.-(Derogado por el artículo 30 del decreto ejecutivo N° 20618 del 12 de julio de 1991)

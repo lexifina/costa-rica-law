@@ -1,1 +1,1 @@
-Artículo 113.-La Dirección General de la Tributación Directa, queda plenamente facultada para rechazar total o parcialmente, aquellas deducciones que considere que no se ajustan a las disposiciones del contrato o del presente reglamento, a la programación de siembra o a las demás especificaciones contempladas en el plan técnico de manejo aprobado por la DGF, o bien cuando las mismas no se reflejen en los registros contables del contribuyente.
+Artículo 113.-(Derogado por el artículo 30 del decreto ejecutivo N° 20618 del 12 de julio de 1991)
