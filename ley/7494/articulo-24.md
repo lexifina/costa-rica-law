@@ -1,5 +1,2 @@
-ARTICULO 24.- Prohibición de influencias.
-A las personas cubiertas por el régimen de prohibiciones se les
-prohibe intervenir, directa o indirectamente, ante los funcionarios
-responsables de las etapas del procedimiento de contratación
-administrativa, en favor de terceros.
+Artículo 24.—Prohibición de influencias. A las personas cubiertas por el régimen de prohibiciones se les prohíbe intervenir, directa o indirectamente, ante los funcionarios responsables de las etapas del procedimiento de selección del contratista, ejecución o fiscalización del contrato, en favor propio o de terceros.
+(Así reformado por el artículo 65 (actual 74) de la Ley N° 8422 Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004).
