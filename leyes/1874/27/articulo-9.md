@@ -1,0 +1,2 @@
+Art 9° Las disposiciones de la presente ley, deberán cumplirse sin que por esto cesen las obligaciones que, por leyes, decretos u órdenes anteriores, se han impuesto al Resguardo establecidos en el muelle principal.
+Al Poder Ejecutivo, dado en el Salón de Sesiones, Palacio Nacional, San José julio primero de mil ochocientos setenta y cuatro. Palacio Nacional, San José, julio primero de mil ochocientos setenta y cuatro, ejecútese.

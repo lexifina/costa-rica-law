@@ -1,0 +1,1 @@
+Art 2° La vigilancia y registro de las embarcaciones menores que entren y salgan del Estero, serán confiadas a un Sub Inspector del muelle principal y con las atribuciones que el Reglamento de este señala a la Inspector principal.

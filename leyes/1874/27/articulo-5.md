@@ -1,0 +1,1 @@
+Art 5° Además de las atribuciones que al Sub Inspector competen como se dispone en el art 2 cuidará muy especialmente de que no se cometa fraude alguno por medio de las embarcaciones que entran al Estero procedentes del Golfo de Nicoya, o que salen del mismo Estero para el citado Golfo sujetándose a las órdenes e instrucciones que le comunique el Inspector del muelle principal.
