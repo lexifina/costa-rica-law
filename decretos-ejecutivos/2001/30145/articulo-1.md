@@ -1,0 +1,31 @@
+Nº 30145-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) de la Constitución Política, el artículo 28, inciso b) de la Ley General de la Administración Pública, el Código Aduanero Uniforme Centroamericano II, la Ley Nº 7475 (Aprobación del Acta Final en que se incorporan los resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales), la Ley General de Aduanas Nº 7557 y sus reformas, el Reglamento a la Ley General de Aduanas promulgado mediante Decreto Nº 25270-H del 14 de junio de 1996 y sus reformas.
+Considerando:
+I.—Que el uso y aplicación de la normativa aduanera requiere ser actualizada de conformidad con la realidad económica y las políticas imperantes, a efectos de lograr una adecuada facilitación y agilización de las operaciones de comercio exterior y facultar la correcta percepción de los tributos y la represión de las conductas ilícitas que atentan contra la gestión y el control de carácter aduanero.
+II.—Que mediante la Ley Nº 7475 (Aprobación del Acta Final en que se incorporan los resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales), Costa Rica aprobó el Acuerdo relativo a la aplicación del artículo VII del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994.
+III.—Que la Ley Nº 8013 (Adición de un Nuevo Título XII, Valor Aduanero de las Mercancías Importadas, a la Ley General de Aduanas Nº 7557 y sus Reformas), publicada en el Alcance 57-A a La Gaceta Nº 170 del 5 de setiembre del 2000, establece las disposiciones necesarias para la implementación del Acuerdo relativo a la aplicación del artículo VII del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994.
+IV.—Que el artículo 12 del CAUCA II y los artículos 22, 23 y 24 de la Ley General de Aduanas facultan a la Autoridad Aduanera en el ejercicio de sus atribuciones, a verificar el cumplimiento de las obligaciones tributarias y aduaneras con el propósito de ejercer de manera eficiente y eficaz el control y verificación de los elementos que determinan la obligación tributaria aduanera, como es el valor aduanero de las mercancías.
+V.—Que el artículo 244 de la Ley General de Aduanas establece que el Órgano Nacional de Valoración y Verificación Aduanera es el encargado de verificar, controlar, investigar, recuperar y recopilar información, y de los demás asuntos relacionados con la valoración aduanera de las mercancías.
+VI.—Que el inciso d) del artículo 245 de la Ley General de Aduanas faculta al Órgano Nacional de Valoración y Verificación Aduanera, analizar y evaluar las declaraciones del valor aduanero, así como efectuar las inspecciones, auditorías e investigaciones necesarias.
+VII.—Que bajo esta perspectiva se hace necesario modificar y adicionar algunos artículos del Reglamento a la Ley General de Aduanas. Por tanto,
+Decretan:
+Artículo 1º—Modifícanse los artículos 20, 43, 44, 46, 48, 71 del Decreto Nº 25270-H del 14 de junio de 1996, Reglamento a la Ley General de Aduanas, de la siguiente forma:
+a) Adiciónese al artículo 20 del Reglamento a la Ley General de Aduanas, lo siguiente:
+"Artículo 20.—(...)
+s) (...) Asimismo, requerir de los auxiliares de la función pública aduanera, importadores, consignatarios y terceros, en el ejercicio de las facultades de control y fiscalización, la facilitación a los órganos fiscalizadores de los libros de contabilidad, sus anexos, archivos, registro contables, listas de precios y catálogos de las mercancías importadas y toda otra información de trascendencia tributaria o aduanera y los archivos electrónicos o soportes magnéticos o similares que respalden o contengan esa información.
+t) Apersonarse a las instalaciones en las cuales el importador mantiene la documentación contable y los respectivos comprobantes, a efectos de verificar en los respaldos respectivos los elementos del valor aduanero de las mercancías.
+u) Otras que le asigne el Director.
+(...)"
+b) Modifíquese el artículo 43 del Reglamento a la Ley General de Aduanas, para que en adelante se lea como sigue:
+"Artículo 43.—Órganos fiscalizadores. La División de Control y Fiscalización, el Órgano Nacional de Valoración y Verificación Aduanera y los Departamentos Técnicos de las aduanas son los órganos fiscalizadores que tendrán la competencia para el ejercicio del control y fiscalización con el objetivo de supervisar, fiscalizar, verificar y evaluar el cumplimiento de las disposiciones del régimen jurídico aduanero. Lo anterior, sin perjuicio de las facultades y atribuciones de control y fiscalización otorgadas a la Policía de Control Fiscal."
+c) Modifíquese el literal a) del artículo 44 del Reglamento a la Ley General de Aduanas, debiendo leerse:
+"a) Con competencia nacional, la División de Control y Fiscalización y el Órgano Nacional de Valoración y Verificación Aduanera".
+d) Modifíquese el primer párrafo del artículo 45 del Reglamento a la Ley General de Aduanas, en los términos siguientes:
+"Artículo 45.—Áreas de control y fiscalización. El control y fiscalización aduanera lo ejercerán los órganos fiscalizadores de conformidad con sus competencias, en las siguientes áreas:
+(...)"
+e) Modifíquese el párrafo primero del artículo 48 del Reglamento a la Ley General de Aduanas, que en adelante dirá:
+"Artículo 48.—Prerrogativas y derechos de los funcionarios de los órganos fiscalizadores. Las labores de los órganos fiscalizadores serán realizadas por los funcionarios de la División de Control y Fiscalización, del Órgano Nacional de Valoración y Verificación Aduanera y de las aduanas, que hayan sido designados para tal efecto. Se incluyen en esas labores, las actuaciones meramente preparatorias, de comprobación, de prueba de hechos o circunstancias con trascendencia tributaria o aduanera. (...)"
+f) Modifíquese el párrafo segundo del artículo 71 del Reglamento a la Ley General de Aduanas, en el siguiente sentido:
+"El sujeto investigado está obligado a proporcionar a la División de Control y Fiscalización y al Órgano Nacional de Valoración y Verificación Aduanera, toda clase de datos, informes o antecedentes con trascendencia tributaria deducidos de sus relaciones económicas, profesionales o financieras con otras personas".
