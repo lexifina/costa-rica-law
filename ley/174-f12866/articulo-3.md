@@ -1,0 +1,1 @@
+Art 3°.- En los casos de recusaciones se acompañara con el Fisco de la Corte, y en los impedimentos pasará los autos a este, para que dictamene, nombrando la Corte un específico, que lo sustituya si fuere necesario.
