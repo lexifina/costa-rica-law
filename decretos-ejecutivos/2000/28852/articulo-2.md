@@ -1,0 +1,1 @@
+Artículo 2°-Créase el Registro de Importadores No Registrantes en los Departamentos respectivos del Ministerio de Agricultura y Ganadería que tienen a su cargo el registro de insumos agropecuarios o alimentos para animales.

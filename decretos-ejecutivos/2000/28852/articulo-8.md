@@ -1,0 +1,1 @@
+Artículo 8°- Sin perjuicio de lo establecido en el presente Reglamento, toda persona natural o jurídica que cumpla con los requisitos y procedimientos establecidos en los decretos que regulan los registros respectivos, podrá registrar directamente los productos.
