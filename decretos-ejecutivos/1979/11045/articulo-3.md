@@ -1,0 +1,1 @@
+Artículo 3°-El Servicio de Parques Nacionales establecerá las prohibiciones y regulaciones que regirán en el Parque, y que tendrán el propósito de proteger los recursos del área y suministrar adecuada seguridad a los visitantes.
