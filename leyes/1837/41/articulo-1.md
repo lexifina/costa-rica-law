@@ -1,0 +1,6 @@
+DECRETO XLI.
+(Reformado por el Decreto de 28 de marzo de 838)
+Permite la vuelta al Estado de los emigrados y expulsos por consecuencia de la revolución política de 835 (1)
+“El Jefe Supremo del Estado Libre de Costa Rica. – Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+La Asamblea Constitucional del Estado Libre de Costa Rica, considerando: que en virtud de las conmociones políticas que experimentó el Estado en 835 se siguió la expulsión de varios habitantes del mismo, por atribuírseles participo en ellas, y se impusieron penas pecuniarias: que con tal motivo otros emigraron del país, y aun existen fuera de él; y que nada sería mas justo en los acuerdos del Cuerpo Legislativo que dictar uno que restituya á aquellos y estos al seno de sus familias cesando consiguientemente de exijirse dichas condenas pecuniarias, ha venido a decretar y decreta:
+Art. 1° Los emigrados y expulsados por sentencias ó providencias gobernativas en virtud de atribuírseles participio en las turbaciones que experimentó el Estado en el año 835, pueden regresar á él en el pleno goze de sus derechos; en el que quedan igualmente todos los juzgados ó penados en consecuencia de las mismas turbaciones á excepción de los que se refieren en el último artículo de ese decreto.
