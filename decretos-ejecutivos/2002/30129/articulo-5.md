@@ -1,0 +1,2 @@
+Artículo 5º—Control de teléfonos asignados. El Departamento de Proveeduría deberá llevar un registro actualizado de los teléfonos celulares asignados.
+En dicho registro se consignará el número de teléfono, el número de patrimonio, el nombre, el número de cédula y el cargo del funcionario (a) a quien se le autorizó el uso de un teléfono celular, así como la fecha de su asignación y demás cambios y datos que resulten pertinentes.

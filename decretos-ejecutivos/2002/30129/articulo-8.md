@@ -1,0 +1,1 @@
+Artículo 8º—Restricciones de asignación. A excepción del Ministro, Viceministro u Oficial Mayor y Director General Administrativo, ningún (a) funcionario (a) podrá tener asignado más de un teléfono celular.

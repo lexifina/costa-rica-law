@@ -1,0 +1,1 @@
+Artículo 11.—Sanciones. El incumplimiento de las disposiciones contenidas en este Reglamento hará acreedor (a) al (a la) servidor (a) culpable, a las medidas disciplinarias correspondientes, sin perjuicio de cualquier otro tipo de responsabilidades que, conforme al ordenamiento jurídico, le sean aplicables.
