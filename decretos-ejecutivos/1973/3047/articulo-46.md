@@ -1,1 +1,0 @@
-Artículo 46.—En el caso de que el interesado lo solicite, el DEPARTAMENTO podrá facilitar una lista de consultores que se estima tienen capacidad de llevar a cabo el estudio, a fin de que pueda invitarlos a presentar propuestas.

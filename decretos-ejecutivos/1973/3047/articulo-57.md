@@ -1,1 +1,0 @@
-Artículo 57.—Las negociaciones con el consultor más calificado se efectuarán hasta que se llegue a un acuerdo total entre el Beneficiario y dicho consultor, o hasta que, en concepto de cualquiera de las partes, se rompan las negociaciones .

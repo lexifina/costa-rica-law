@@ -1,1 +1,0 @@
-Artículo 14.—El Departamento suministrará al Agente copia de la documentación y correspondencia que éste requiera para el desempeño de sus funciones. El Agente presentará al Departamento, dentro de los primeros 15 días de cada trimestre, un informe contable de la situación de la cuenta del FONDO al último día del mes anterior.

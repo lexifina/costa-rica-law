@@ -1,1 +1,0 @@
-Artículo 75.—Toda información aportada por los beneficiarios del Sector Privado, incluyendo estudios e informes de los consultores a la Institución Nacional Intermediaria y a OFIPLAN tendrán carácter confidencial.

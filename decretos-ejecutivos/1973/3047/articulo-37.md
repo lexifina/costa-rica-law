@@ -1,2 +1,0 @@
-Artículo 37.—Contribuciones Mínimas
-Los beneficiarios de los préstamos deberán participar con no menos del 10% del Costo Total de cada estudio. En el caso de dependencias del Gobierno Central el aporte podrá ser efectuado por cualquier organismo público. Cuando se trate de subpréstamos de Instituciones Nacionales Intermediarias, ellas par-“ticiparán en el financiamiento, con recursos propios, con no menos del 5%.

@@ -1,1 +1,0 @@
-Artículo 25.—El uso de los fondos estará condicionado al cumplimiento de todas las condiciones y compromisos establecidos en el respectivo Contrato de Préstamo. Las solicitudes de desembolso se presentarán al Departamento en los formularios respectivos, requiriéndose la aprobación de éste para que el Banco Central los haga efectivos.

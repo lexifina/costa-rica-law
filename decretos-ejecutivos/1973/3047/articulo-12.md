@@ -1,2 +1,0 @@
-Artículo 12.—Además del Jefe del Departamento, que preferentemente deberá ser Economista, se deberá contar entre el personal permanente, a tiempo completo con los servicios de por lo menos un Economista, un Ingeniero, y un Abogado.
-En la integración de los grupos de trabajo que tendrán a su cargo el estudio de solicitudes de créditos directos o de líneas de crédito, el Departamento podrá solicitar la colaboración de técnicos de diferentes especialidades, a otras instituciones del Estado, o contratar los servicios de consultores privados.
