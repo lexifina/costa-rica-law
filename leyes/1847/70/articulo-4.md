@@ -1,0 +1,1 @@
+Art. 4. El Congreso que ha estimado por muy relevantes los servicios que el actual Presidente ha prestado á la causa del orden, le inviste con el grado de GENERAL DE DIVISION, demostrando este nombramiento que desea honrar al distinguido patriota, que tan buen uso hizo de las armas del Estado, economizando con ellas la sangre de los pueblos.
