@@ -1,4 +1,3 @@
-CAPITULO VII
-Del procedimiento para otorgar los beneficios
-de carrera profesional
-Artículo 32.-Los funcionarios de nivel profesional que reunan las condiciones indicadas en el artículo 3°, para obtener los beneficios de la carrera profesional, deberán hacer la respectiva solicitud por escrito a la comisión institucional y aportar junto a esta, los documentos (original y copia) necesarios para probar y fundamentar sus atestados.
+Articulo 32.-Si la ubicación pretendida por el interesado no fuera aceptada por la comisión institucional, este, si lo desea, puede reclamar en un plazo de ocho días hábiles a partir del momento en que reciba la comunicación de esta, la que en un plazo similar deberá pronunciarse sobre el reclamo
+Si la resolución de la comisión fuere negativa u omisa el profesional podrá recurrir, durante los ochos días hábiles siguientes, ante el jerarca ejecutivo: en caso negativo o silencio administrativo, podrá seguir el procedimiento de la vía administrativa, según la Ley General de la Administración Pública.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 34 al 32 actual, toda vez que se derogó el artículo 18 y 25 original)

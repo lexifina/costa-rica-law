@@ -1,5 +1,3 @@
-De la experiencia profesional en instituciones del Estado:
-Artículo 19.-La experiencia profesional en las instituciones del Estado, se reconocerá siempre que:
-a) Haya sido obtenida en propiedad o en forma interina, en un puesto de nivel profesional para cuyo desempeño se exija al menos el grado de bachillerato universitario y el servidor posea también dicho grado académico.
-b) Sea referida a años cumplidos respecto a la fecha de ingreso a un puesto profesional, en el que se cumplan las condiciones específicas en el artículo 3° de este reglamento.
-c) Haya sido calificada con nota no inferior a muy bueno. La calificación de los servidores interinos, para su consideración en la carrera profesional, se efectuará en el formulario oficial y de acuerdo con los procedimientos establecidos para el resto de los funcionarios de la institución o empresa pública.
+Artículo 19.- La experiencia obtenida al servicio de otras instituciones del Estado, se reconocerá para efectos de este beneficio, siempre que se cumplan las condiciones de los literales s), b) y c) del artículo anterior y se haga constar en un documento avalado por el jefe de personal o por el máximo jerarca de la dependencia donde fue obtenida.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 20553 del 2 de julio de 1991)
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 20 al 19 actual, toda vez que se derogó el artículo 18 original)

@@ -1,3 +1,3 @@
-Artículo 21.-La experiencia laboral acumulada por los funcionarios de nivel profesional, antes de la vigencia de este reglamento, y lograda a partir de la obtención del grado de bachillerato universitario o con la posesión de la condición de egresado, Podrá ser reconocida, si el servidor reuniere una de las siguientes condiciones:
-a) Si por razón de inopia o por permitirlo el requisito de la clase, el servidor hubiere sido nombrado en un puesto de nivel profesional, o
-b) El servidor hubiere ocupado un puesto de la clase inmediata inferior al puesto profesional, en que tiene opción al reconocimiento del beneficio. En este caso, se tomará en cuenta una experiencia mínima de un año y hasta un máximo de cuatro, siempre que sea específica del puesto que se trate y que ese puesto hubiere sido reasignado a una clase de puesto de 'nivel profesional.
+De la experiencia profesional en organismos internacionales:
+Artículo 21.-Para el cálculo de la experiencia no se deducirán los permisos con o sin goce de sueldo para realizar estudios siempre que los mismos estén relacionados con el puesto que desempeña.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 22 al 21 actual, toda vez que se derogó el artículo 18 original)

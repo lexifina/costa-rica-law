@@ -1,0 +1,3 @@
+Artículo 54.-Las modificaciones que se realicen en el presupuesto para atender el pago o reconocimiento de este beneficio, deberá contar de previo al refrendo de la Contraloría General de la República, con la aprobación de la Secretaría Técnica de la Autoridad Presupuestaria.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 50 al 48 actual, toda vez que se derogó el artículo 18 y 25 original)
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 48 al 54 actual, toda vez que se derogó el artículo 18 y 25 original)

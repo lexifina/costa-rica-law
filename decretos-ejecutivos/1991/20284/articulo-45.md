@@ -1,1 +1,2 @@
-Artículo 45.-Si alguna institución tiene en práctica un sistema similar y desea adoptar el que aquí se reglamenta, por su carácter excluyente, lo podrá hacer siempre y cuando, los funcionarios beneficiados disfruten de solo uno de ellos.
+Artículo 45.- Dentro de la prestación de servicios que realicen para Estado como docentes, solo se reconocerá para efectos del otorgamiento del incentivo, una jornada que no exceda del tiempo completo. Cualquier jornada superior a éste, no se tomará como factor objeto del incentivo para la carrera profesional.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 20553 del 2 de julio de 1991)

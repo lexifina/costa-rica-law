@@ -1,1 +1,2 @@
-Artículo 46.-Será aceptado el ingreso a la carrera profesional a aquellos funcionarios de nivel profesional que ocupen un puesto en forma interina, a plazo fijo, si tales nombramientos han sido ininterrumpidos y han tenido una duración en forma acumulativa, de seis meses como mínimo o si hacia el futuro, el nombramiento no es inferior de seis meses.
+Artículo 46.- No se reconocerá como factor del objeto de incentivo dentro de la carrera profesional, los recursos de capacitación impartidos por aquellos funcionarios de nivel profesional, para quienes el trabajo cotidiano del puesto sea de coordinador, instructor de programas de capacitación o docencia.
+(Así adicionado por el artículo 4° del decreto ejecutivo N° 20553 del 2 de julio de 1991)

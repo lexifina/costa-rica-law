@@ -1,0 +1,3 @@
+Artículo 53.-Las comisiones institucionales, en caso de duda en cuanto a la calificación de atestados, relativos a estudios y experiencia, podrá elevar a la Secretaría Técnica de la Autoridad Presupuestaria, solicitud escrita para su estudio y resolución definitiva.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 49 al 47 actual, toda vez que se derogó el artículo 18 y 25 original)
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 47 al 53 actual, toda vez que se derogó el artículo 18 y 25 original)

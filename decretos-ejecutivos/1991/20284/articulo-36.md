@@ -1,1 +1,2 @@
-Artículo 36.-EI jerarca ejecutivo dispondrá de 30 días hábiles para resolver la gestión aprobándola o rechazándola, en forma razonada.
+Artículo 36.-Las resoluciones referidas, serán comunicadas a la comisión institucional, al interesado y al jefe de personal, a fin de que se tramite la respectiva acción de personal en que se haga efectivo el incentivo por carrera profesional.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 38 al 36 actual, toda vez que se derogó el artículo 18 y 25 original)

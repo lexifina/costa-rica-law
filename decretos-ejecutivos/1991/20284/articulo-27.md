@@ -1,4 +1,2 @@
-CAPITULO VI
-De las calificaciones de servicios
-Artículo 27.-No se considerará la calificación de servicios, para efectos de acogerse al incentivo de carrera profesional. No obstante, para cualquier ajuste posterior, el funcionario de nivel profesional deberá haber obtenido una calificación de servicios no inferior a “muy bueno" durante el período anterior al momento de presentación de la solicitud del ajuste.
-Aquellos puestos que por su naturaleza, no sean susceptibles de calificación a juicio del máximo jerarca y declarados por resolución, estarán exentos de este requisito.
+Artículo 27.-La obtención de una calificación inferior a muy bueno, será motivo para no otorgar el ajuste que se solicita. El año de experiencia respectivo, no será tomado en cuenta por lo tanto en estudios posteriores.
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 29 al 27 actual, toda vez que se derogó el artículo 18 y 25 original)
