@@ -1,0 +1,1 @@
+Artículo 5º—Toda apelación o consulta a la Contraloría General de la Republica deberá ser resuelta por esta dentro de un plazo no mayor de un mes a partir de la fecha de recepción de la gestión respectiva. De no emitirse veredicto dentro de ese plazo, prevalecerá el criterio que hayan sustentado las dependencias competentes del Poder Ejecutivo.
