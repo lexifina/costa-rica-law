@@ -1,5 +1,1 @@
-Artículo 5º.- El Ministerio de Gobernación, través de la oficina que
-designe, será el organismo competente para velar por la ejecución de esta
-ley y, en consecuencia, toda la propaganda que se realice de esta
-naturaleza, sujeta a regulación y a través de cualquier medio
-publicitario, deberá llevar su previa y expresa aprobación.
+Artículo 5º.- El Ministerio de Gobernación, través de la oficina que designe, será el organismo competente para velar por la ejecución de esta ley y, en consecuencia, toda la propaganda que se realice de esta naturaleza, sujeta a regulación y a través de cualquier medio publicitario, deberá llevar su previa y expresa aprobación.

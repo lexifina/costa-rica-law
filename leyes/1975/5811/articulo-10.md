@@ -1,3 +1,1 @@
-Artículo 10.- Habrá un Consejo Asesor de Propaganda, integrado por
-dos representantes del Ministerio de Gobernación, uno de la Cámara de
-Comercio y otro de la Asociación del Consejo Nacional de Publicidad.
+Artículo 10.-Habrá un Consejo Asesor de propaganda, integrado por dos representantes del Ministerio de Gobernación, uno de la Cámara de Comercio y otro de la Asociación del Consejo Nacional de Publicidad.

@@ -1,5 +1,1 @@
-Artículo 13.- Quedan sujetas a las disposiciones de la presente ley,
-las empresas de prensa, radio, cine y televisión y, en general, todas
-aquellas que exploten algún medio de comunicación individual o colectivo,
-las que serán subsidiariamente responsables de las infracciones que se
-cometan a la presente ley.
+Artículo 13.- Quedan sujetas a las disposiciones de la presente ley, las empresas de prensa, radio, cine y televisión y, en general, todas aquellas que exploten algún medio de comunicación individual o colectivo, las que serán subsidiariamente responsables de las infracciones que se cometan a la presente ley.

@@ -1,3 +1,1 @@
-Artículo 7º.- La propaganda que haya sido aprobada no podrá ser
-variada posteriormente; cualquier cambio que se desee introducir deberá
-ser aprobado por el Ministerio, conforme a lo previsto por el Reglamento.
+Artículo 7º.- La propaganda que haya sido aprobada no podrá ser variada posteriormente; cualquier cambio que se desee introducir deberá ser aprobado por el Ministerio, conforme a lo previsto por el Reglamento.
