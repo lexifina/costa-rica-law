@@ -1,2 +1,0 @@
-Artículo 20.-Previa autorización de la Dirección General de Aduanas, los interesados podrán sustituir su vehículo en el extranjero, en cualquier momento y continuarán gozando de las mismas franquicias establecidas en este Reglamento. Cuando se opere esta sustitución, el interesado lo comunicará al I:C.T., para ordenar el registro correspondiente.
-(Corrida su numeración por el artículo 1° del decreto ejecutivo N° 5361 del 28 de octubre de 1975, que lo traspasó del antiguo artículo 19 al 20)

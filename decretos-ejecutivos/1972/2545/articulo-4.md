@@ -1,2 +1,0 @@
-Artículo 4°-Para obtener los beneficios de esta ley como Residente Pensionado, el interesado deberá comprobar que disfrute de una renta mensual no inferior a trescientos dólares, moneda de los Estados Unidos de América y que ésta provienen de una pensión o jubilación vitalicia otorgada por gobiernos, organismo oficiales o empresa particulares del exterior.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 13014 del 30 de setiembre de 1981)

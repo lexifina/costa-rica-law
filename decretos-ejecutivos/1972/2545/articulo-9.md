@@ -1,1 +1,0 @@
-Artículo 9°-Los interesados podrán tramitar sus solicitudes ante los funcionarios consulares costarricenses, acreditados en el país de su residencia sujetándose a las prescripciones aquí establecida. Concluido el trámite, dichos funcionarios harán envío al I.C.T., del legajo respectivo, para su estudio y resolución, la que se comunicará al Despacho remitente.

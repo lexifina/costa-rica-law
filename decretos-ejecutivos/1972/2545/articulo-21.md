@@ -1,3 +1,0 @@
-Artículo 21.-Los beneficiarios podrán importar otro vehículo con los mismos beneficios aquí estipulados, en cualquier momento previo pago de los impuestos correspondientes al vehículo exonerado, calculados por las autoridades de Aduana sobre el valor real del vehículo al momento del traspaso..
-En caso de pérdida del vehículo, por robo o destrucción total por fuego, colisión o accidente, ocurrida en el transcurso de los cinco años, el beneficiario de esta ley podrá adquirir otro vehículo libre de los impuestos señalados. La comprobación de los casos indicados compete a la Dirección General de Aduanas.
-(Corrida su numeración por el artículo 1° del decreto ejecutivo N° 5361 del 28 de octubre de 1975, que lo traspasó del antiguo artículo 20 al 21)

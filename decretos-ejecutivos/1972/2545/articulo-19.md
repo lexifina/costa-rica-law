@@ -1,4 +1,0 @@
-Artículo 19.-Los vehículos automotores y su equipo, importados al amparo de la ley que se reglamenta, podrán ser vendidos o traspasados bajo cualquier título a terceros, sin pago alguno de los impuestos exonerados, después de transcurridos cinco años de la fecha de otorgamiento del beneficio.
-Comprobado el traspaso ante el I.C.T., los beneficiarios podrán solicitar se recomiende la importación de otro vehículo, con exoneración de los mismos impuestos antes mencionados.
-Cada cinco años podrán los interesados disfrutar del beneficio establecido, con tal de que se obtenga en cada caso constancia del I.C.T., de mantener la credencial del artículo 2° anterior.
-(Corrida su numeración por el artículo 1° del decreto ejecutivo N° 5361 del 28 de octubre de 1975, que lo traspasó del antiguo artículo 18 al 19)

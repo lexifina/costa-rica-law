@@ -1,2 +1,0 @@
-Artículo 7°-Las personas amparadas a esta ley, o sus dependientes no podrán ocuparse de labores remuneradas de ninguna índole. Quedan excluidos de esta prohibición quienes inviertan en actividades de utilidad para el país, a juicio del ICT, también quedan exentas de tal prohibición aquellas personas que presten sus servicios a solicitud expresa de instituciones oficiales, de enseñanza superior, entes autónomos u organismos del Estado; según autorización que al efecto emita el ICT.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 13014 del 30 de setiembre de 1981)

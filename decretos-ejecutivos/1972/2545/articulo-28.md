@@ -1,3 +1,0 @@
-Artículo 28.-Los Residentes Rentistas o Residentes Pensionados tendrán derecho a computar, para los efectos de obtener la residencia o nacionalidad costarricense, el plazo durante el cual han estado amparados a la ley N° 4812 y su reglamento. Al obtener la residencia o nacionalidad costarricense perderán su condición de Residentes Rentistas o Residentes Pensionados junto con los derechos futuros correspondientes a dicha condición.
-(Corrida su numeración por el artículo 1° del decreto ejecutivo N° 5361 del 28 de octubre de 1975, que lo traspasó del antiguo artículo 27 al 28)
-(Así reformado por el artículo 1° del decreto ejecutivo N° 13014 del 30 de setiembre de 1981)

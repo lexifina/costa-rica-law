@@ -1,3 +1,0 @@
-Artículo 29.-Los beneficios establecidos por la Ley que aquí se reglamenta, en ningún caso le serán concedidos a los extranjeros que hubieren sido residentes en Costa Rica durante los dos años anteriores a la presentación de la solicitud ante el Instituto. Esta prohibición se extiende a los cónyuges, hijos o dependientes suyos. Quedan excluidos los extranjeros residentes que obtengan una pensión o jubilación conforme al artículo 2° anterior.
-(Corrida su numeración por el artículo 1° del decreto ejecutivo N° 5361 del 28 de octubre de 1975, que lo traspasó del antiguo artículo 28 al 29)
-(Así reformado por el artículo 1° de decreto ejecutivo N° 13014 del 30 de setiembre de 1981)
