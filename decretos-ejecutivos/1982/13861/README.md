@@ -13,3 +13,4 @@ Reglamenta Ley Fondo Juntas Educación y Administrativas Oficiales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-09-24 | la propia norma |
+| 2 | 1982-09-24 | Decreto Ejecutivo 17763 (1987-09-03) |

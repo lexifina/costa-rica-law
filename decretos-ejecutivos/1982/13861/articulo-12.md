@@ -1,3 +1,3 @@
-ARTICULO 12.- El Departamento Financiero mediante instructivos o
-circulares señalará los aspectos relativos a codificación, rubros y
-formas de presentación de los respectivos presupuestos.
+ARTICULO 12.- DEROGADO
+(Derogado por el artículo 82 del Decreto Ejecutivo Nº 17763 de 3 de
+setiembre de 1987).
