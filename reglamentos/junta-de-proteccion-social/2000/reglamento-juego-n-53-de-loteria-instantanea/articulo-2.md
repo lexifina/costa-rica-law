@@ -1,0 +1,1 @@
+Articulo 2°—Reglas del juego. Raspe el área de juego. Si una misma cantidad aparece tres (3) veces, gana esa cantidad. Si una misma cantidad aparece tres (3) veces y también el símbolo de la oveja, gana el doble de esa cantidad. Si aparece ¡a palabra "RASPA", participa directamente en el Sorteo de la Rueda de la Fortuna.
