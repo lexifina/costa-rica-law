@@ -1,0 +1,2 @@
+ARTICULO 31
+A reserva de la aprobación por dos tercios de los Miembros del Consejo, el Comité podrá hacerse cargo de las actividades, recursos y obligaciones actuales de cualquier otra organización o institución internacional cuyos objetivos y actividades se hallen dentro de la esfera del Comité; actividades, recursos y obligaciones que podrán ser fijados mediante un acuerdo internacional o un arreglo convenido entre las autoridades competentes de las organizaciones respectivas.

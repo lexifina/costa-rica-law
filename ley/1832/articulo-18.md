@@ -1,0 +1,4 @@
+ARTICULO 18
+1. En el cumplimiento de sus funciones, el Director, el Director Adjunto y el personal no deberán solicitar ni aceptar instrucciones de ningún Gobierno ni de ninguna autoridad ajena al Comité, y deberán abstenerse de todo acto incompatible con su calidad de funcionarios internacionales.
+2. Cada Gobierno Miembro se comprometerá a respetar al carácter exclusivamente internacional de las funciones del Director, del Director Adjunto y del Personal, y a no tratar de influirles en el cumplimiento de sus funciones.
+3. Para el reclutamiento y empleo del personal, deberán ser consideradas como condiciones primordiales su eficiencia, competencia e integridad; excepto en circunstancias excepcionales, el personal deberá ser reclutado entre los nacionales de los países cuyos Gobiernos sean Miembros del Comité, teniéndose en cuenta, en la medida de lo posible el principio de la distribución geográfica.
