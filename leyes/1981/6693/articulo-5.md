@@ -1,4 +1,2 @@
-Artículo 5º.- Para solicitar la autorización de funcionamiento de una
-universidad privada, deberá constituirse, para ese efecto, una fundación o
-asociación, cuyo personero presentará la respectiva solicitud, dirigida al
-Consejo Nacional de Enseñanza Superior Universitaria Privada.
+Artículo 5º.- ANULADO por Resolución de la Sala Constitucional Nº
+7494-97 de las 15:45 horas del 11 de noviembre de 1997.
