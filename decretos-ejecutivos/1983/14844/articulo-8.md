@@ -1,1 +1,0 @@
-ARTICULO 8°.-El Museo Nacional recaudará la totalidad del impuesto establecido en la ley N° 5351, debiendo destinar el 40% al Ministerio de Cultura, Juventud y Deportes, previa aprobación de la Contraloría General de la República.

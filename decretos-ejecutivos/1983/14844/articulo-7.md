@@ -1,1 +1,0 @@
-ARTICULO 7°.-El Ministerio de Cultura, Juventud y Deportes establecerá una cuenta bancaria con el fin de recaudar los fondos provenientes según las leyes Nos. 6828 del 29 de noviembre de 1982 y 5351 del 2 de octubre de 1973, para financiar exclusivamente los proyectos museísticos de la Dirección General de Museos.

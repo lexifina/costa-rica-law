@@ -1,1 +1,0 @@
-ARTICULO 5°.-Toda ayuda proveniente de organismos internacionales de carácter técnico, financiero o material destinada a los museos estatales, ser canalizada por el Ministerio de Cultura, Juventud y Deportes por medio de la Dirección General de Museos.
