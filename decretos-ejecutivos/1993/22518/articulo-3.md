@@ -1,0 +1,1 @@
+Artículo 3: Las Juntas de Protección Social y las Juntas Administrativas de los cementerios velarán por el estricto cumplimiento del artículo 48 del Reglamento General de Cementerios, Decreto Ejecutivo N° 22183-S de 6 de mayo de 1993, publicado en la Gaceta N° 101 del 27 de mayo de 1993.

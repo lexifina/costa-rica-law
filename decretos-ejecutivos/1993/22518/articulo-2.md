@@ -1,0 +1,1 @@
+Artículo 2: Todo propietario o arrendatario de inmuebles comerciales o industriales, debe evitar y eliminar la existencia de todo tipo de depósitos y recipientes que puedan contener aguas estancadas, como: llantas usadas, baterías, chatarras, desechos industriales, envases en desuso, estañones, tarros, baldes, botellas, macetas, y similares.
