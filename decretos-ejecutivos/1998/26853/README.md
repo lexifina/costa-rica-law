@@ -14,3 +14,4 @@ Modelo Oficial del Escudo Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-05 | la propia norma |
+| 2 | 1998-05-05 | Ley 8 |
