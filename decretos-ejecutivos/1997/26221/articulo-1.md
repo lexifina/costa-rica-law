@@ -1,0 +1,13 @@
+N° 26221-MP-TUR
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE LA PRESIDENCIA Y DE TURISMO
+En uso de las facultades que les otorgan los artículos 140, incisos 3) y 18) de la Constitución Política, la Ley N° 6043 (Ley sobre la Zona Marítimo Terrestre) de fecha 2 de marzo de 1977 y su Reglamento y la ley N° 5695 del 28 de mayo de 1975 y sus reformas y ley N° 1917 del 30 de julio de 1955 (Ley Orgánica del Instituto Costarricense de Turismo).
+Considerando:
+1°—Que el articulo 46 del Decreto Ejecutivo N° 7841-P del 16 de diciembre de 1977, Reglamento a la Ley sobre Zona Marítimo Terrestre, reformado por Decreto Ejecutivo N° 21756-MP-J-TUR de fecha 24 de noviembre de 1992, establece que es función del Departamento de Concesiones del Instituto Costarricense de Turismo (ICT), el brindar la recomendación para el otorgamiento de las concesiones por parte de las municipalidades en la zona marítimo terrestre.
+2°—Que el articulo 26, inciso c) de la ley N° 1917, Ley Orgánica del Instituto Costarricense de Turismo establece que es función de la Junta Directiva del Instituto el organizar las dependencias y servicios de la Institución.
+3°—Que es lo procedente de conformidad con lo establecido en la ley N° 1917, dejar a criterio de la Junta Directiva del ICT, el organizar internamente las competencias institucionales, respecto a los actos que emita esa Institución, sin que las mismas sean definidas por un Decreto Ejecutivo. Por tanto:
+DECRETAN:
+Artículo 1°—Refórmese el artículo 46 del decreto ejecutivo N° 7841-P del 16 de diciembre de 1977, Reglamento a la Ley sobre Zona Marítimo Terrestre, reformado por decreto ejecutivo N° 21756-MP-J-TUR de fecha 24 de noviembre de 1992, para que se lea como sigue:
+"La Municipalidad deberá remitir, previo al otorgamiento de la concesión, todos los documentos que respaldan la solicitud de concesión respectiva, al ICT o al IDA, si se tratare de una solicitud de concesión de uso agropecuario.
+Estos dispondrán de un plazo de noventa días naturales para pronunciarse, a partir de la fecha en que la solicitud sea recibida por el Instituto correspondiente.
+En ambos casos, el acto administrativo deberá emitirse mediante resolución razonada, recomendando o no que se otorgue el contrato solicitado por parte de la municipalidad correspondiente. Dicha resolución deberá ser notificada por el Instituto respectivo al interesado y contra ésta cabrán los recursos administrativos que establezca la ley. La institución correspondiente devolverá los atestados recibidos a la municipalidad respectiva junto con la resolución administrativa definitivamente firme que se haya dictado al efecto.
