@@ -1,0 +1,9 @@
+Articulo 10.—Ningún vehículo automotor, remolque o semi-remolque con placas o matrículas extranjeras podrá transportar mercaderías dentro del territorio nacional.
+Se exceptúan de la anterior prohibición los vehículos, remolques o semi- remolques matriculados en cualquiera de los Estados Centroamericanos, que ingresen temporalmente al país, y siempre que satisfagan las siguientes condiciones:
+a) Que se ajusten a todas las disposiciones del presente Reglamento, en especial a las limitaciones citadas en los articules 3° y 4°.
+b) Que si ingresan temporalmente al país obtengan en la aduana de entrada un Permiso Especial de Pesos y Dimensiones válido hasta su punto de destino y para viajar hasta la aduana de salida, soliciten del Ministerio de Transportes otro Permiso Especial.
+c) Que si ingresan en tránsito obtengan en la aduana de entrada un Permiso Especial de Pesos y Dimensiones válido hasta la aduana de salida, mientras atraviesan el territorio nacional, siempre que no se efectúen trasbordos, carga o descarga de mercaderías.
+d) Que mientras permanezcan temporalmente en el país no se dediquen al transporte comercial de mercaderías, salvo el mencionado en los párrafos anteriores.
+e) Que no ingresen al país con una frecuencia mayor de una vez en treinta días.
+Las autoridades aduaneras, para cerciorarse si los pesos y características de los vehículos que ingresen con carga al país se ajustan a las disposiciones del presente Reglamento, podrán exigir los documentos que estimen convenientes, tales como certificaciones, permisos o licencias expedidas en el país de origen, y podrán hacer las comprobaciones que juzguen necesarias.
+En casos de interés público el Ministerio de Transportes podrá autorizar el ingreso ocasional de vehículos de carga matriculados fuera de Centroamérica, siempre que se sigan los trámites estipulados para los vehículos con placas de estos últimos Estados.

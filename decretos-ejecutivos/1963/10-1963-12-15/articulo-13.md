@@ -1,0 +1,1 @@
+Articulo 13.—El Ministerio de Transportes podrá expedir "Permisos Provisionales", con vigencia limitada, cuando el solicitante aduzca razones atendibles para ello, y mientras se expide el permiso definitivo. Este permiso se exigirá también en los casos en que un vehículo automotor deba circular ocasionalmente con un remolque o semi-remolque alquilado o de otro propietario.

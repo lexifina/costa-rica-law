@@ -1,0 +1,3 @@
+Articulo 6°—Los pesos máximos a que se refiere el articulo 2° estarán sujetos a una reducción razonable cuando, a juicio del Ministerio de Transportes, el mal estado del pavimento o de los puentes de una carretera así lo ameriten.
+El Ministerio de Transportes se reserva el derecho de fijar los pesos y dimensiones de los vehículos que pueden circular por carreteras peligrosas, construidas con curvas muy cerradas, fuertes pendientes, anchos reducidos, o diseñadas con normas inferiores a las mencionadas en los artículos 3° y 4°, o en las que existan puentes antiguos que se desean conservar.
+Cuando se trate de carreteras aún no terminadas, o que tengan puentes provisionales, el Ministerio de Transportes podrá no autorizar el tránsito de vehículos pesados.
