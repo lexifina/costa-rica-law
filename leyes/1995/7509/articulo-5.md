@@ -1,0 +1,2 @@
+ARTICULO 5.- Crédito tributario. Las municipalidades podrán otorgar un crédito tributario, parcial o total, equivalente al monto anual del impuesto territorial, que les corresponda pagar a las instituciones o las organizaciones, públicas o privadas y sin fines de lucro, que cumplan con objetivos sociales en su territorio. Esta disposición se aplicará conforme al principio de igualdad y de no discriminación.
+El Reglamento de la presente Ley establecerá los alcances para aplicar las disposiciones de este Título.

@@ -1,0 +1,4 @@
+ARTICULO 8.- Responsabilidad de los sujetos pasivos. Los sujetos pasivos responden por el pago del impuesto, los respectivos intereses y la mora que pesan sobre el bien. El término de prescripción para cobrar las sumas a que se refiere este artículo será de tres años.
+El titular actual responde solidariamente por los impuestos que no ha pagado y por los respectivos intereses y recargos pendientes de los capítulos anteriores. En todo caso, el propietario actual tendrá el derecho de exigir, de su antecesor o antecesores en el dominio del inmueble, el reembolso de lo pagado por el tiempo que les haya pertenecido.
+Los convenios celebrados entre particulares sobre el pago del impuesto, no son aducibles en contra de la Administración Tributaria.
+Quien cancele el impuesto sin tener obligación, podrá subrogar los derechos del obligado al impuesto.

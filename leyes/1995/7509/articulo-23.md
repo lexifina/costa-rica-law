@@ -1,0 +1,1 @@
+ARTICULO 23.- Pago adelantado del impuesto. La municipalidad, podrá crear incentivos para el pago adelantado del impuesto al que se refiere esta Ley, hasta en un porcentaje equivalente a la tasa básica pasiva del Banco Central en el momento de pago.

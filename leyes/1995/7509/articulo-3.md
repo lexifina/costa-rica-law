@@ -1,0 +1,2 @@
+ARTICULO 3.- Competencia de las municipalidades. Para efectos de este impuesto, las municipalidades tendrán el carácter de Administración Tributaria. Estarán a su cargo, la administración del impuesto de bienes inmuebles de su respectivo territorio, así como la elaboración, la fijación y la fiscalización de los avalúos sobre los inmuebles, para determinar el monto del impuesto aplicable.
+Asimismo, serán las encargadas de facturar, recaudar y administrar el impuesto correspondiente y el cobro judicial.

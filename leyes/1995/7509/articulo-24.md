@@ -1,0 +1,1 @@
+ARTICULO 24.- Recaudo del impuesto. Este impuesto podrá pagarse en cualquier ente, público o privado, autorizado por la municipalidad o en la tesorería de la respectiva municipalidad, la cual podrá contratar los servicios de recaudación con las entidades mencionadas.

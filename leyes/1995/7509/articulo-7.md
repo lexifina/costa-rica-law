@@ -1,0 +1,1 @@
+ARTICULO 7.- Propiedades de condueños. Cuando una propiedad pertenezca a varios condueños, cada uno pagará una parte del impuesto proporcional a su derecho sobre el inmueble. En caso de mora, la hipoteca legal preferente se ejecutará sobre los respectivos derechos.
