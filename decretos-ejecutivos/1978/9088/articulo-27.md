@@ -13,3 +13,7 @@ ese fin.
 La Junta Directiva del Consejo Nacional de Producción, hará
 oportunamente la fijación de las cuotas para consumo interno y de
 exportación.
+( El presente artículo resultó tácitamente derogado por el inciso
+d) del segundo grupo de incisos del artículo 70 de la Ley Nº 7472 de 20
+de diciembre de 1994, en lo referente a permisos de exportación. VER
+OBSERVACIONES).

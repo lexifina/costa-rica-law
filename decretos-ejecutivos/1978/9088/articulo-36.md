@@ -1,10 +1,11 @@
 Artículo 36.- Determinada la posible exportación en pie de ganado
-vacuno hembra, ésta se regirá ppor las siguientes condiciones:
-a) Haber presentado la declaración ganadera a más tardar el 30 de
-noviembre, junto con el inventario respectivo, sellado por la
-Oficina correspondiente de la Tributación Directa, condición
-indispensable para poder participar en esta clase de
-exportaciones.
+vacuno hembra, esta se regirá por las siguientes condiciones:
+a) Haber presentado la Declaración Ganadera a más tardar el 30 de
+noviembre, en las oficinas autorizadas para tal efecto, como
+requisito indispensable para participar en esta clase de
+exportación.
+( Así reformado por el artículo 1º del Decreto Ejecutivo Nº
+20177 de 10 de diciembre de 1990)
 b) Determinadas las cuotas para todos y cada uno de los ganaderos
 declarantes, ellos individualmente podrán exportarla
 directamente, lo cual debe ser comunicado al Consejo Nacional de
@@ -43,3 +44,7 @@ cuota total para exportación, por medio de cotizaciones que se
 publicarán en los medios informativos de mayor circulación.
 g) La cuota de exportación de hembras que se fije, sólo tendrá
 vigencia por el año ganadero al cual se refiere.
+( El presente artículo resultó tácitamente derogado por el inciso
+d) del segundo grupo de incisos del artículo 70 de la Ley Nº 7472 de 20
+de diciembre de 1994, en lo referente a permisos de exportación. VER
+OBSERVACIONES).

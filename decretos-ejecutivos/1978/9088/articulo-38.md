@@ -23,3 +23,7 @@ reincidiera dos veces. En caso de incumplimiento del exportador de ganado
 gordo en pie, la licencia de exportación se le revocará de inmediato y se
 hará efectiva la garantía presentada como obligación a la contratación
 efectuada, de acuerdo a las leyes que rigen la materia.
+( El presente artículo resultó tácitamente derogado por el inciso
+d) del segundo grupo de incisos del artículo 70 de la Ley Nº 7472 de 20
+de diciembre de 1994, en lo referente a permisos de exportación. VER
+OBSERVACIONES).

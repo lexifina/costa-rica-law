@@ -16,3 +16,7 @@ cargos fiscales correspondientes.
 e) Contratos que no cumplan con los requisitos antes enumerados,
 serán de inmediato rechazados para su inscripción, por el
 Departamento de Ganadería del Consejo Nacional de Producción.
+( El presente artículo resultó tácitamente derogado por el inciso
+d) del segundo grupo de incisos del artículo 70 de la Ley Nº 7472 de 20
+de diciembre de 1994, en lo referente a permisos de exportación. VER
+OBSERVACIONES).

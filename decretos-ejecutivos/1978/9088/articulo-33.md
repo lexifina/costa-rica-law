@@ -18,3 +18,7 @@ contrario, el proceso de la carne para consumo interno, en plantas
 autorizadas para exportar llegará hasta la etapa del canal. El
 incumplimiento de lo anterior dará motivo para la aplicación de las
 sanciones apuntadas en el artículo 38 de este Reglamento.
+( El presente artículo resultó tácitamente derogado por el inciso
+d) del segundo grupo de incisos del artículo 70 de la Ley Nº 7472 de 20
+de diciembre de 1994, en lo referente a permisos de exportación. VER
+OBSERVACIONES).

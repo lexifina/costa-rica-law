@@ -25,3 +25,7 @@ de Costa Rica, para que ésta promueva campaña de bien general a
 favor de la ganadería.
 e) Medio céntimo de colón que se destinará a la Facultad de
 Veterinaria de la Universidad Nacional.
+( El presente artículo resultó tácitamente derogado por el inciso
+d) del segundo grupo de incisos del artículo 70 de la Ley Nº 7472 de 20
+de diciembre de 1994, en lo referente a permisos de exportación. VER
+OBSERVACIONES).

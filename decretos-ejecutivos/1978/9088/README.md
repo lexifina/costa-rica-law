@@ -13,3 +13,4 @@ Reglamento a la Ley Ganadera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-09-28 | la propia norma |
+| 2 | 1978-09-28 | SINALEVI (sin norma nombrada) |

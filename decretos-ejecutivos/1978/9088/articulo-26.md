@@ -8,3 +8,7 @@ ganado vacuno hembra destinada al sacrificio para exportación.
 La recomendación para la exportación de carne o en pie del ganado
 vacuno hembra, podrá llegar hasta la suspensión total, cuando las
 condiciones del mercado local lo hagan aconsejable.
+( El presente artículo resultó tácitamente derogado por el inciso
+d) del segundo grupo de incisos del artículo 70 de la Ley Nº 7472 de 20
+de diciembre de 1994, en lo referente a permisos de exportación. VER
+OBSERVACIONES).
