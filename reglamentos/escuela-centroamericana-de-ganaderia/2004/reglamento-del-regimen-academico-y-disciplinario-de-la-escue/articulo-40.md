@@ -1,0 +1,1 @@
+Artículo 40.—La práctica externa se realizará en empresas agrícolas, ganaderas, industriales, agroindustriales o agroecoturísticas con el consentimiento expreso de la empresa y de la coordinación de la ECAG.

@@ -1,0 +1,1 @@
+Artículo 37.—La prueba práctica de ejecución final a que hace referencia el artículo 36 inciso c, tendrá un valor máximo de 40% de la calificación total, el otro 60% corresponde a la observación y los reportes periódicos con los porcentajes que determine el profesor.

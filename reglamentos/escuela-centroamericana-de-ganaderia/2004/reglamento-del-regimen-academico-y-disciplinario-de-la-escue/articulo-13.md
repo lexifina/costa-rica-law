@@ -1,0 +1,1 @@
+Artículo 13.—El fondo de garantía será destinado a cubrir los eventuales daños o pérdidas que cause el alumno por culpa o dolo en los bienes de la Institución durante el tiempo que sea alumno, así como la falta en el pago de una mensualidad.

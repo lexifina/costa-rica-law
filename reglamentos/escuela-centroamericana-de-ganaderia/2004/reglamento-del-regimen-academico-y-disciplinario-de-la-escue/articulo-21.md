@@ -1,0 +1,1 @@
+Artículo 21.—Los estudiantes que hubieren aprobado todos los cursos indicados en el plan de estudios respectivo, recibirán el título o certificado según corresponda a los programas educativos establecidos en el artículo 3º del Capítulo II.

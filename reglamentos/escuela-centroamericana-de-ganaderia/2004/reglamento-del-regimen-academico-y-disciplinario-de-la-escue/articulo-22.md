@@ -1,0 +1,1 @@
+Artículo 22.—Los títulos a nivel de Diplomado Superior Parauniversitario serán registrados en el Ministerio de Educación, llevarán la firma de los funcionarios competentes de este órgano, así como las del Presidente del Consejo Directivo y Director General de la ECAG.

@@ -1,0 +1,1 @@
+Artículo 39.—La calificación final de la práctica externa se compondrá de dos reportes escritos por parte del estudiante (15% cada uno)un informe del profesor supervisor (15%), agenda donde se reporta actividades diarias por el estudiante (5%) y la calificación de la Empresa (50%).

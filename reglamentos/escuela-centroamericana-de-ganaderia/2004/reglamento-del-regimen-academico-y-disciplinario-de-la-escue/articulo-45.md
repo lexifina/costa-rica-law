@@ -1,0 +1,2 @@
+Artículo 45.—Adquiere la condición de reprobado en una materia el alumno que al finalizar el ciclo lectivo obtuviere una calificación inferior a siete (7). Asimismo cuando faltare a dos sesiones prácticas o tres teóricas de un mismo curso en forma injustificada durante el ciclo lectivo.
+El alumno reprobado con nota igual o mayor a cinco (5) tendrá derecho a ser evaluado mediante un único examen extraordinario por cada materia reprobada, siempre y cuando el estudiante no haya reprobado el curso debido a ausencias injustificadas.
