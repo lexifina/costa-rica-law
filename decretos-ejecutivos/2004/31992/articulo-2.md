@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza a las instituciones públicas centralizadas y descentralizadas para que en la medida de sus posibilidades legales y materiales, brinden la debida colaboración y facilidades necesarias en la realización exitosa de la Jornada Odontológica Humanitaria.
