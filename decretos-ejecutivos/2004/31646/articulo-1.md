@@ -1,0 +1,12 @@
+N° 31646-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001 y Ley N° 7800, Ley de Creación del Instituto Costarricense del Deporte y la Recreación y del Régimen Jurídico de Educación Física, el Deporte y la Recreación, de 30 de abril de 1998.
+Considerando:
+1º—Que la Ley Orgánica Nº 7800, publicada en el Alcance N° 20 a La Gaceta N° 103 del 29 de mayo de 1998, faculta al Instituto Costarricense del Deporte y la Recreación (ICODER) para apoyar y estimular las acciones de organización, promoción y práctica individual y grupal del deporte y la recreación, realizadas por las entidades deportivas y recreativas gubernamentales y no gubernamentales.
+2º—Que dicha Ley establece que el ICODER estimulará el desarrollo integral de todos los sectores de la población por medio del deporte y la recreación. Asimismo, deberá fomentar e incentivar el deporte en el ámbito nacional e internacional, razón por la cual, requiere incorporar recursos para la construcción y mantenimiento de infraestructura deportiva en diferentes zonas del país.
+3º—Que promover el desarrollo de infraestructura deportiva y garantizar el libre acceso de los ciudadanos a espacios que fomenten la práctica del deporte y la recreación, constituyen una prioridad para el Gobierno de la República.
+4º—Que mediante el Decreto Ejecutivo Nº 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 marzo del 2003, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2004, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo el gasto presupuestario para el 2004, para las entidades cubiertas por el ámbito del mencionado órgano colegiado.
+5º—Que por lo anterior, resulta necesario modificar el gasto presupuestario fijado para el ICODER en el Decreto citado. Por tanto:
+DECRETAN:
+Artículo 1°—Modificase el gasto presupuestario establecido al Instituto Costarricense del Deporte y la Recreación (ICODER), en el artículo 1° del Decreto Ejecutivo Nº 31092-H y sus reformas, fijando el nuevo límite en ¢2.416,6 millones.
