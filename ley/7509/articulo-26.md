@@ -1,0 +1,1 @@
+ARTICULO 26.- Deudas por impuesto territorial. Las deudas por concepto de impuesto territorial constituyen hipoteca legal preferente sobre los respectivos inmuebles, de conformidad con el artículo 83 del Código Municipal.

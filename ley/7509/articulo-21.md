@@ -1,0 +1,3 @@
+ARTICULO 21.- Porcentaje del impuesto. Cada municipalidad definirá el porcentaje que regirá para el año siguiente a su decisión. Ese porcentaje será único y general por cantón y año y podrá oscilar entre el cero coma treinta por ciento (0,30%) y el uno por ciento (1,00%).
+Cualquier modificación del porcentaje imponible requerirá la consulta popular, pero esta no será vinculante. Se convocará por medio del Diario Oficial, la gaceta municipal, cuando exista, y la divulgación necesaria.
+Se indicará el lugar, la fecha y la hora para conocer las modificaciones propuestas y las observaciones, verbales o escritas, que formulen los vecinos o los interesados. La convocatoria deberá realizarse con una antelación de 15 días hábiles, por lo menos.
