@@ -1,0 +1,4 @@
+REGLAMENTO DE DISPONIBILIDAD LABORAL DE
+LA MUNICIPALIDAD DE ALAJUELA
+Con fundamento en el artículo Nº I capítulo I de la sesión extraordinaria N°1-2000 del Concejo Municipal, celebrada el día jueves 13 de enero del 2000 se aprueba el presente Reglamento de Disponibilidad, el cual tiene como fin establecer una compensación económica que se denomina "Disponibilidad", la cual está destinada a darle continuidad al servicio público, en aquellos casos en donde por la índole del servicio y el cargo que desempeña el servidor, así lo requiera la Municipalidad del Cantón Central de Alajuela.
+Artículo 1º—Con fundamento en lo que establece el Acuerdo citado supra, se establece la compensación económica por concepto de disponibilidad, en un 25% máximo y un 10% mínimo del salario base de la clase de puesto en que se encuentre nombrado el servidor disponible.

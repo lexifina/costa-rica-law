@@ -1,0 +1,5 @@
+Artículo 4º—Se considerarán sujetos de este régimen de disponibilidad, a aquellos que en razón de la necesidad institucional y por el tipo de actividad, se encuentran dentro de los siguientes supuestos:
+a. Personal de Mantenimiento de un servicio cuando este deba prestarse en días y horas inhábiles. En donde por escasez de personal o tipo de servicio, no se pueda cubrir el turno de manera adecuada y sea necesario disponer de algún personal, el cual solo se llama si se necesita.
+b. Jefes y encargados de servicios que se presten en días y horas inhábiles, que después de su jornada ordinaria deban permanecer disponibles para atender eventualidades que ocurran en la prestación de los servicios.
+c. Profesionales y especialistas indispensables en la atención de emergencias de ocurrencia frecuente, en el área de acueductos, obras u otras específicas.
+d. Jerarcas, Jefes y representantes institucionales que deban permanecer laborando en horas y días inhábiles, en razón de sus cargos y necesidad institucional. También el personal Profesional y Técnico de apoyo que deba permanecer disponible bajo las ordenes de dichos representantes.

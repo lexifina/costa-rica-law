@@ -1,0 +1,1 @@
+Artículo 18.—Por causa justificada el servidor podrá solicitar en forma previa la disponibilidad en cierto horario, en cuyo caso el Alcalde Municipal determinará la posibilidad de acceder a dicha petición. De ser ésta aceptada, el servidor señalará otro horario similar en que estará disponible.

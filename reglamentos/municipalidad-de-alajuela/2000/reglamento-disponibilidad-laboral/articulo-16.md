@@ -1,0 +1,1 @@
+Artículo 16.—Entiéndase como rol de disponibilidad los horarios en los cuales el servidor debe prestar el servicio. Este rol deberá definirse por escrito entre la Municipalidad y el trabajador, según las necesidades del servicio demandado. Las modificaciones a este acuerdo también deberán hacerse por escrito.

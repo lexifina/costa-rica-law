@@ -1,0 +1,1 @@
+Artículo 12.—Los servidores sujetos a este régimen deberán indicar los números telefónicos, dirección del domicilio habitual, así como cualquier otro lugar en donde puedan ser localizados durante su disponibilidad.
