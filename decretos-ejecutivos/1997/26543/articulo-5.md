@@ -1,0 +1,2 @@
+Artículo 5° -Reformas. Refórmase el párrafo primero del artículo 8° del decreto ejecutivo N° 25584 MINAE-H-MP publicado el 8 de noviembre de 1996, para que se lea de la siguiente forma:
+“Con base en la información recibida de las declaraciones juradas, el MINAE, obtendrá el índice energético de la empresa, calculado como el cociente entre el monto pagado por consumo anual de energía y el valor anual agregado bruto, expresados ambos en colones”.
