@@ -1,0 +1,1 @@
+Artículo 2º—El sistema de becas, préstamos y ayudas económicas, se financiará con los ingresos que para ese efecto determine el Consejo Directivo en el presupuesto anual de la institución y de los aportes de otras instituciones de carácter público, privado u otra índole, así como el fideicomiso estudiantil.

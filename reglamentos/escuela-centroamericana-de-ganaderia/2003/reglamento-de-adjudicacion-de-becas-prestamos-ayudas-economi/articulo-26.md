@@ -1,0 +1,1 @@
+Artículo 26.—Para el otorgamiento de becas, préstamos y ayudas económicas, el beneficiario deberá suministrar toda información solicitada en el formulario respectivo, bajo juramento de que todos los datos son estrictamente veraces, esta información es confidencial y pasará a ser propiedad de la institución, asimismo los documentos que respaldan el formulario.

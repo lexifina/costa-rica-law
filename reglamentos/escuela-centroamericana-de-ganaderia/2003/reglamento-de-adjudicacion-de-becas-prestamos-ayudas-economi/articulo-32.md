@@ -1,0 +1,1 @@
+Artículo 32.—Los promedios de los estudiantes acreedores a beca de honor, serán comunicados de oficio (por cada ciclo lectivo) por el (a) Coordinador (a) de Registro a la Comisión de Becas. Asimismo, procederá para el resto de los estudiantes becados.

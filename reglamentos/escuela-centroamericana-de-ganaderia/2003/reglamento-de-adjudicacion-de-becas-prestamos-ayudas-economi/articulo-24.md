@@ -1,0 +1,1 @@
+Artículo 24.—Las actas serán firmadas por todos los miembros de la comisión. Las actas deberán ser aprobadas en la siguiente sesión; sin dicha aprobación los acuerdos tomados carecerán de firmeza y validez, no obstante los acuerdos pueden declararse en firme si se considera adecuado por los miembros de la Comisión y así se establezca en la sesión correspondiente.

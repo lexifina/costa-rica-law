@@ -1,0 +1,1 @@
+Artículo 35.—La información contenida en los formularios de solicitudes de beca, préstamo y ayuda económica, así como los documentos que lo respaldan, tendrá vigencia durante su carrera. En caso de que su situación haya cambiado, deberá informar a la Oficina de Bienestar Estudiantil para que se le revalore.

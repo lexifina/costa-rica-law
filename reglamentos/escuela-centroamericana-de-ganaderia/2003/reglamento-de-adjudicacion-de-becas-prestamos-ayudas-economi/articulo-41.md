@@ -1,0 +1,1 @@
+Artículo 41.—Cuando exista comprobada solvencia económica, pero alguno de los padres o encargados, se oponga a proporcionarle el respaldo necesario al estudiante, la Escuela se abstendrá de otorgarle beca o préstamo, hasta tanto, el estudiante compruebe que ha recurrido al artículo 160, inciso 6) del Código de Familia y que sus gestiones no tuvieran un resultado favorable.

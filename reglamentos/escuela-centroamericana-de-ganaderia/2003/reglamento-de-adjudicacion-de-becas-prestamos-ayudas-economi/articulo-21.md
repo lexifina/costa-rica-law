@@ -1,0 +1,1 @@
+Artículo 21.—Para sesionar en las reuniones ordinarias y de inicio de cuatrimestre deberán estar todos los miembros de la comisión. Para efectos extraordinarios, el quórum será de dos terceras partes de la totalidad de los miembros que la conforman. En ausencia del Presidente presidirá un miembro de común acuerdo.

@@ -1,0 +1,3 @@
+Artículo 33.—Los beneficiarios podrán apelar una vez ante la Comisión, en forma escrita, en un lapso de tres días hábiles después de recibir la comunicación escrita de la resolución; y por segunda vez ante la Dirección General si la resolución no satisface sus intereses o necesidades.
+En caso de que el beneficiario pierda total o parcialmente el beneficio otorgado, tendrá derecho a recurrir a la Comisión de Becas para que se reconsidere su caso; además de la reconsideración por escrito, tendrá derecho a una audiencia para exponer su caso ante el Director General.
+Se exceptúan los casos establecidos en el artículo 14.

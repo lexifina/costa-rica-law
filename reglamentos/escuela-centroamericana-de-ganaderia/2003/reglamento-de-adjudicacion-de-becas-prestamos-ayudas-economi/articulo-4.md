@@ -1,0 +1,1 @@
+Artículo 4º—Se crea la Comisión de Becas que tendrá a su cargo la coordinación y ejecución de las políticas de becas, préstamos, ayudas económicas y otros beneficios, de acuerdo con las disposiciones reglamentarias de la institución.

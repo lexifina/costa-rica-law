@@ -1,0 +1,1 @@
+Artículo 30.—Para modificación de una beca, préstamo o ayuda económica otorgada, el interesado deberá llenar la solicitud correspondiente. Para que la Comisión de Becas la conozca deberá ser acompañada por un estudio socio-económico y/o familiar si el caso lo amerita y aportar una constancia del rendimiento del último ciclo lectivo.

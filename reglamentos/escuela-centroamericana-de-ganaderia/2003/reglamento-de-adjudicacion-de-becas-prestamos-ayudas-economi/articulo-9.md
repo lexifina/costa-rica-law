@@ -1,0 +1,1 @@
+Artículo 9º—El estudiante con Beca de Honor podrá disfrutar de ese beneficio solamente durante el ciclo lectivo inmediato posterior al de la obtención del rendimiento académico que lo acredita para tal efecto.

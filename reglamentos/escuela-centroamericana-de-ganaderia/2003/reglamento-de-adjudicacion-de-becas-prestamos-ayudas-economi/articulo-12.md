@@ -1,0 +1,1 @@
+Artículo 12.—Los estudiantes beneficiarios de becas por la ECAG (excepto becas de Honor), deberán brindar servicios sin remuneración en los lugares que la Comisión de Becas y la Oficina de Bienestar Estudiantil designen, de acuerdo con las necesidades institucionales. El número de horas de servicio no excederá a cuatro semanales por ciclo lectivo.

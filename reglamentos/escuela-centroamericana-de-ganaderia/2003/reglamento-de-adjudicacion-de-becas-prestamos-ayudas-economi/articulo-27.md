@@ -1,0 +1,1 @@
+Artículo 27.—Toda solicitud de Becas, Préstamos y ayudas económicas deberán estar firmadas por el futuro beneficiario, en caso de ser menor de edad, deberá ser firmada por éste y su representante legal, sean sus padres o encargados.

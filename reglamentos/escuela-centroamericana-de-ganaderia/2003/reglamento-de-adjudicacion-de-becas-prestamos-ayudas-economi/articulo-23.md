@@ -1,0 +1,1 @@
+Artículo 23.—En cada sesión ordinaria o extraordinaria se levantará un acta en que se hará constar los asistentes, lugar, hora y fecha de la sesión, el contenido de los acuerdos y el resultado de la votación.

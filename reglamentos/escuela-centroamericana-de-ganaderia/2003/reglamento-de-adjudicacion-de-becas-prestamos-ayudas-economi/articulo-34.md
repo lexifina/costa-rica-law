@@ -1,0 +1,1 @@
+Artículo 34.—Los estudiantes con becas y/o préstamos disfrutarán de ese beneficio durante el ciclo de prácticas externas, siempre y cuando no infrinjan lo estipulado en este Reglamento y en las normas establecidas por la Escuela durante esa etapa. En casos especiales y a juicio de la Comisión de Becas, podrán otorgarse ayudas económicas complementarias.

@@ -1,0 +1,1 @@
+Artículo 10.—Los préstamos a estudiantes de escasos recursos económicos se otorgarán con base en el índice socio-económico de cada estudiante, el que se establecerá de acuerdo a la información suministrada por el estudiante, y los estudios que a su criterio realice la Comisión de Becas.
