@@ -14,3 +14,4 @@ Reglamento Orgánico del Consejo Técnico de Asistencia Médico-Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-03-23 | la propia norma |
+| 2 | 1987-08-04 | Decreto Ejecutivo 17696 (1987-08-04) |
