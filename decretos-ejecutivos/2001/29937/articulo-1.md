@@ -1,0 +1,10 @@
+Nº 29937-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+Con fundamento en las atribuciones que les confieren los incisos 3) y 18) del artículo 140 de la Constitución Política, y los artículos 26 y 27 de la Ley General de la Administración Pública, Ley N° 6227 del 2 de mayo de 1978.
+Considerando:
+1º—Que el Instituto Nacional de Administración Pública (INAP) de España, desde hace más de veinticinco años ha venido brindando permanentemente cursos de postgrado a funcionarios públicos iberoamericanos, incluyendo costarricenses, con el objetivo de mejorar el nivel profesional de los servidores públicos y la calidad de servicios de las administraciones públicas a las cuales sirven.
+2º—Que, como una proyección permanente de su labor formativa, el INAP cada año promueve la realización de congresos de la Federación de sus Antiguos Alumnos como un foro para compartir experiencias y actualizar conocimientos de los egresados del Instituto. Por ello, este año ha organizado su X Congreso, que versará sobre el tema "Las funciones del Estado Nacional: entre la globalización y la subsidariedad", a celebrarse en Buenos Aires y Mar del Plata, República Argentina, en el mes de noviembre próximo.
+3º—Que, por el interés público que significa la participación en este foro y consecuentes con la política de esta Administración de incentivar la preparación de los servidores públicos, dentro de las medidas de sus posibilidades, consideramos importante instar a los jerarcas de la Administración Centralizada y Descentralizada para que concedan permiso con goce de salario a los funcionarios públicos que asistan a éste evento por los días que ocupe el Congreso, incluyendo los de ida y regreso. Por tanto,
+DECRETAN:
+Artículo 1º—Se declara de interés público la asistencia de funcionarios costarricenses al X Congreso de la Federación de Antiguos Alumnos del Instituto Nacional de Administración Pública (INAP) de España denominado "Las funciones del Estado Nacional: entre la globalización y la subsidariedad", a celebrarse en Buenos Aires y Mar del Plata, República Argentina, del 8 al 15 de noviembre de 2001.
