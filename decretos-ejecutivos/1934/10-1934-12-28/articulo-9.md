@@ -1,0 +1,1 @@
+Artículo 9°-Todas las personas físicas o morales que en virtud de contratos o concesiones gocen de franquicia de derechos aduaneros para la importación de mercaderías o efectos, deberán comunicarlo así a la Administración General de la Tributación Directa, para que esta oficina decida en cada caso, si procede o no el cobro del impuesto de Patente Nacional

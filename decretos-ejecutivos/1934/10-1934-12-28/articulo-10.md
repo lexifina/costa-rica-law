@@ -1,0 +1,1 @@
+Artículo 10.-Toda persona que venda mercaderías en aduana, y que se desalmacenen sin derechos o tasas o recargos, por concesiones especiales, o cualquier otro motivo, pagará el impuesto de seis por ciento (6 %) y el de cinco por ciento (5 %), si es del caso, para lo cual se liquidará proforma la respectiva póliza de desalmacenaje.

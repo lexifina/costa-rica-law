@@ -1,0 +1,1 @@
+Artículo 2°-Del día 1° de enero de 1935 en adelante, todo importador deberá hacer el depósito respectivo del impuesto de Patente Nacional, previamente al desalmacenaje de las mercaderías o efectos, en la Administración Principal de Rentas o en las sucursales del Banco de Costa Rica en Puntarenas y Limón. Sin el depósito previo, no se dará curso al pedimento de desalmacenaje.

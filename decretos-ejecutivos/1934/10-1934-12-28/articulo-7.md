@@ -1,0 +1,1 @@
+Artículo 7°-La Administración Principal de Rentas y las sucursales de Puntarenas y Limón avisarán diariamente a las diferentes aduanas los depósitos hechos para Patente Nacional, en la misma forma que lo hacen para avisar los depósitos para derechos aduaneros

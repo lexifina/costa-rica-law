@@ -1,0 +1,1 @@
+Artículo 20.-La Administración General de la Tributación Directa, la Contaduría Mayor, las Administraciones de las Aduanas y los departamentos de paquetes postales, deberán marchar de acuerdo para la completa percepción del impuesto y la mejor aplicación de la presente reglamentación

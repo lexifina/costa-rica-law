@@ -1,0 +1,1 @@
+Artículo 19.-Todo aviso de constitución de sociedades, cesación de las mismas, traspaso o venta de negocios y en general de toda publicación que deba aparecer en La Gaceta, tendrá que ser presentado a la Administración General de la Tributación Directa para obtener el "Visto Bueno", sin cuyo requisito la Imprenta Nacional no podrá hacer la publicación.

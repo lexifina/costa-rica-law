@@ -1,0 +1,1 @@
+Artículo 18.-Los negocios comprendidos en el artículo 11 del presente decreto, deberán registrar el nombre del interesado o la razón social, en la Administración General de la Tributación Directa, especificando claramente su domicilio.

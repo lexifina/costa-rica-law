@@ -1,0 +1,1 @@
+Artículo 6°-La Administración General de la Tributación Directa abrirá una cuenta para cada importador, con especificación de cada aduana, acreditando las sumas depositadas cada vez para cubrir el impuesto y cargando este de conformidad con el valor de las pólizas de las aduanas. De cada cargo hecho se dará aviso al interesado.

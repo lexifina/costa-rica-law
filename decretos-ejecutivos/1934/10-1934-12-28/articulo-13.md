@@ -1,0 +1,1 @@
+Artículo 13.-Los Resguardos Fiscales, a requerimiento de la Administración General de la Tributación Directa, procederán a cerrar los establecimientos o negocios que faltaren al pago de la Patente Nacional.
