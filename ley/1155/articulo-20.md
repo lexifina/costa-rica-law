@@ -1,0 +1,1 @@
+Artículo 20.—Los extranjeros están exentos del servicio militar sin embargo, tienen obligación de hacer el de policía, cuando se trate de la seguridad de las propiedades o de la conservación del orden público.

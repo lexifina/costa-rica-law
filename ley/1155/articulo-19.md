@@ -1,0 +1,2 @@
+Artículo 19.—Los extranjeros tienen los mismos deberes y derechos individuales y sociales que los costarricenses, con las excepciones y limitaciones que la Constitución y las leyes establecen.
+No pueden intervenir en los asuntos políticos del país, y están sometidos a la jurisdicción de los tribunales de justicia y de las autoridades de que puedan ocurrir a la vía diplomática, salvo lo que dispongan los convenios internacionales.
