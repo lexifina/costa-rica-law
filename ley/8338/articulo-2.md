@@ -1,0 +1,1 @@
+Artículo 2º—La notaría del Estado procederá a formalizar esta donación y a inscribirla en el Registro Público. Para efectos fiscales, dicha donación se estima en un colón (¢1,00); asimismo, se exonera su inscripción del pago de todo tipo de derechos, timbres e impuestos.
