@@ -1,0 +1,1 @@
+Articulo 14.—Una vez que la Fundación haya aprobado la solicitud, se formalizará la autorización por escrito. A partir de ese momento, el usuario se compro mete a cumplir con todas las disposiciones que regulan el uso de la explanada de la Plaza de la Cultura.

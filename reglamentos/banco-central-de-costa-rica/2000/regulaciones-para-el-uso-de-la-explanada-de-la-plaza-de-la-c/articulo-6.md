@@ -1,0 +1,1 @@
+Articulo 6°— La Fundación para Administrar los Museos del Banco Central de Costa Rica se reserva el derecho de denegar el permiso, cuando se considere que la actividad no se ajusta a sus disposiciones reglamentarias vigentes.

@@ -1,0 +1,1 @@
+Artículo 12.— El costo que implica la reparación de cualquier daño ocasionado a las instalaciones (lámparas, fuente, loseta ornamental, macetas, bancas, basureros, ele.) por el usuario o por el público será cubierto por el usuario.
