@@ -1,0 +1,6 @@
+DECRETO CIII.
+Explica el Cap. 1.tit. 7 Lib. 3 del Código general, y el art. 100 de la ley de 1 de junio de 1842 (1)
+(1) Ver las notas de la 1° parte del Código, mandadas observar por Decreto n° 4 de 8 de abril de 1859.
+"Juan Rafael Mora Presidente de la República de Costa Rica. -Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente.
+El Excelentísimo Congreso constitucional de la República de Costa Rica: habiendo tomado en consideración la consulta dirigida a la Honorable Comisión permanente por la Excelentísima Corte de Justicia, con la mira de que se de la interpretación auténtica que demanda los artículos 1097,1098 y 1101 del C¢digo civil relativos a la materia de retracto; y el 1563 del mismo Código y los 329 y 330 del de procedimientos que hablan sobre desercion de acciones y prescripciones. Y observando que se han suscitado dudas respecto a la inteligencia del artículo 100 de la ley de 1° de junio de 1842, ha venido en declarar y declara.
+1°. -Que las condiciones establecidas en el capítulo 1° título 7 libro 3a parte 1° del Código general, deberán cumplirse dentro los nueve días señalados en el mismo capítulo para la prescripción de la acción de retracto, quedando en su vigor y fuerza el decreto n° 10 de 6 de noviembre de 1845.
