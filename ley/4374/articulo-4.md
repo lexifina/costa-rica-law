@@ -1,0 +1,1 @@
+ARTICULO 4º.- (Anulado este artículo mediante resolución de la Sala Constitucional N° 3410 de las 14:05 horas del 10 de noviembre de 1992 y posteriormente derogado por el artículo 47 de la Ley N° 7915 del 28 de setiembre de 1999.
