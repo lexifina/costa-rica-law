@@ -14,3 +14,4 @@ Reglamento de Servicios Aeroportuarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-20 | la propia norma |
+| 2 | 2003-02-10 | Decreto Ejecutivo 31122 (2003-02-10) |
