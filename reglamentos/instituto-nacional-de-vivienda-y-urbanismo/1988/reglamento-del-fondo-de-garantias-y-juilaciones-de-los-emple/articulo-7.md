@@ -1,1 +1,0 @@
-Artículo 7°—A efecto de ajustar las reservas a los montos convenientes, por lo menos cada tres años se revisarán actuarialmente el sistema de mutualidad y se fijarán los nuevos factores para el cálculo de las reservas, o antes si fuere necesario.

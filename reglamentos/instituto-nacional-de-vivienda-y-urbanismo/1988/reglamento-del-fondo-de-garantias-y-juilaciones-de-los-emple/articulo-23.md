@@ -1,1 +1,0 @@
-Artículo 23.—La contabilidad del Fondo será llevada por la sección respectiva del Instituto, de acuerdo con las disposiciones de la Junta Administradora, bajo la supervigilancia de la Auditoría e independientemente de la Contabilidad General.

@@ -1,1 +1,0 @@
-Artículo 37.—El presente reglamento deroga por sustitución el emitido por la Junta Directiva en sesión No 1346 del 29 de marzo de 1966 publicado en "La Gaceta" N° 79 del 6 de abril de 1966, así como cualquier disposición reglamentaria o acuerdo de Junta Directiva que se le oponga, y entrará en vigencia a partir del día de su publicación en el Diario Oficial.

@@ -1,1 +1,0 @@
-Artículo 29.—Los préstamos hipotecarios para miembros del Fondo que se mencionan en el inciso c) del artículo 27 de este reglamento, se regirán por el Reglamento para Préstamos Hipotecarios del Instituto.

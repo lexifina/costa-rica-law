@@ -1,1 +1,0 @@
-Artículo 25.—Anualmente la Junta Administradora rendirá a la Junta Directiva del Instituto, un informe sobre las operaciones efectuadas en el período, acompañado de los respectivos estados de contabilidad.

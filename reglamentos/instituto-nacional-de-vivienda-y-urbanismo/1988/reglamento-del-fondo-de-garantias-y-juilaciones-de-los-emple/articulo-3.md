@@ -1,2 +1,0 @@
-Artículo 3°—Serán miembros del Fondo -a partir del primer día de prestación de sus servicios— todos los funcionarios y empleados que laboren para el INVU, cuyo nombramiento hace presumir que su trabajo es en forma permanente.
-Optativamente podrán serlo aquellos trabajadores que no estén en la situación anterior, pero que la prestación de sus servicios sea más o menos estable. La solicitud deberán formularla estos últimos después de un año de laborar para el Instituto.

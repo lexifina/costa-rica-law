@@ -1,1 +1,0 @@
-Artículo 22.—La Junta Administradora tendrá a su cargo la administración, inversión y utilización del fondo, de acuerdo con las disposiciones de este reglamento y tomará las medidas que sean necesarias para llevar a efecto las mismas.

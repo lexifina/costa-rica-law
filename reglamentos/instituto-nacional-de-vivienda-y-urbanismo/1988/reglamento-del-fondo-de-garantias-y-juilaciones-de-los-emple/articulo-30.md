@@ -1,1 +1,0 @@
-Artículo 30.—La Junta Administradora podrá conceder préstamos a los miembros del Fondo hasta por el 50% de lo acreditado en su cuenta personal en las condiciones que la misma Junta acuerde y siempre que exista disponibilidad económica de parte de la Institución.

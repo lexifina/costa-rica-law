@@ -1,2 +1,0 @@
-Artículo 19.—La administración del Fondo estará a cargo de una junta administradora integrada por un representante designado por la Junta Directiva del INVU, a quien corresponde presidir las sesiones, el Gerente General (Administrativo Financiero), un representante de la Gerencia de Proyectos y dos representantes de los trabajadora. todos con sus respectivos suplentes.
-El Gerente tendrá la representación legal, judicial y extrajudicial, considerándose el Fondo -para ese efecto- como una dependencia del Instituto.

@@ -1,1 +1,0 @@
-Artículo 12.—Una vez que el sistema de mutualidad haya acumulado suficientes recursos financieros en la reserva técnica, podría destinarse, previa consulta actuarial, parte de ellos para préstamos a los miembros del fondo, en las condiciones que para ese efecto se establecerán en el momento de poner en operación este posible beneficio.

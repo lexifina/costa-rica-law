@@ -1,1 +1,0 @@
-Artículo 31.—La Junta Administradora tendrá el derecho de inspeccionar y fiscalizar por los medios que juzgue convenientes todo lo relacionado con estas operaciones; fijará los plazos tratando de adecuarlos al monto y a la naturaleza de la inversión, lo mismo que los tipos de interés, amortización y forma de pago de las mismas.

@@ -1,1 +1,0 @@
-Artículo 32.—Los intereses que se obtengan de la inversión de los haberes del Fondo, serán aplicados a la constitución de las reservas de la mutualidad hasta completar los respectivos porcentajes y el resto -si los hubiere- serán abonados a las cuentas individuales de los miembros en proporción a los fondos de cada uno.

@@ -1,1 +1,0 @@
-Artículo 10.—Los recursos de la mutualidad podrán ser invertidos por el INVU el cual pagará la rentabilidad de mercado vigente en este tipo de inversiones, o bien de conformidad con lo establecido en la Sección V de este reglamento para inversiones generales del Fondo.
