@@ -1,0 +1,2 @@
+Artículo 4º bis.—En las lecciones de la asignatura de Educación Física se utilizará el siguiente uniforme deportivo: Una pantaloneta deportiva azul de cintura elástica, con bolsa de parche trasera, sin bolsas laterales, trabillas, pasafajas, paletones o cremallera al frente.
+(Así Adicionado el artículo 4 bis del Decreto Ejecutivo 28557, mediante el artículo 1º del Decreto Ejecutivo 29598 del 3 de mayo del año 2001)

@@ -14,3 +14,4 @@ Reglamento Uniforme Oficial en las Instituciones Educativas Públicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-04-06 | la propia norma |
+| 2 | 2001-06-06 | Decreto Ejecutivo 29598 (2001-06-06) |
