@@ -1,0 +1,4 @@
+Artículo 2º.- A ningún ganadero podrá dársele permiso de exportación
+por más del cincuenta por ciento de la producción de animales de reza del
+porcentaje indicado, que hubiere obtenido durante el año próximo
+anterior, lo cual se comprobará debidamente.
