@@ -1,6 +1,6 @@
 # Código Penal (1941)
 
-Ley N° 368 del 1941-08-21. SINALEVI, ficha 37382: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37382&param2=83736&param3=1>.
+Ley N° 368 del 1941-08-21. SINALEVI, ficha 37382: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37382&param2=83796&param3=1>.
 
 Publicada en La Gaceta N° 192 del 1941-08-30.
 
@@ -27,3 +27,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 17 de 23 | 1953-06-06 | Ley 1575 | 1953-05-23 |
 | 18 de 23 | 1959-11-09 | Ley 2464 | 1959-11-09 |
 | 19 de 23 | 1961-01-25 | Ley 2715 | 1961-01-21 |
+| 20 de 23 | 1964-01-19 | Ley 3260 | 1963-12-21 |
