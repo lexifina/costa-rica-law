@@ -1,3 +1,3 @@
 CAPITULO VII
 Financiación
-Artículo 42.-Se establece un impuesto de un céntimo de colón por cada kilogramo de fertilizantes o pesticidas importado.
+Artículo 42.-(Derogado por el artículo 2° de la Ley N° 3145 del 6° de agosto de 1963)
