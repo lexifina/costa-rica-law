@@ -14,3 +14,4 @@ Suspende solicitudes de aprovechamiento de Recursos Forestales en Refugios de Vi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-10 | la propia norma |
+| 2 | 1999-10-27 | Decreto Ejecutivo 28345 (1999-10-27) |
