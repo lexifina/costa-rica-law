@@ -14,3 +14,4 @@ Reglamento Desconcentración Funciones Desarrollo Agrícola Nicoya
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-13 | la propia norma |
+| 2 | 2001-11-22 | Decreto Ejecutivo 30014 (2001-11-22) |
