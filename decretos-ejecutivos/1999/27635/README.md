@@ -13,3 +13,4 @@ Modifica la Ley de Presupuesto Ordinario y Extraordinario para 1999.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-18 | la propia norma |
+| 2 | 1999-02-18 | Decreto Ejecutivo 27817 (1999-03-19) |
