@@ -1,0 +1,4 @@
+Artículo 5
+1. Cada Estado Parte, de conformidad con sus principios jurídicos internos, adoptará las medidas necesarias para que pueda establecerse la responsabilidad de una entidad jurídica ubicada en su territorio o constituida con arreglo a su legislación, cuando una persona responsable de su dirección o control cometa, en esa calidad, un delito enunciado en el artículo 2. Esa responsabilidad podrá ser penal, civil o administrativa.
+2. Se incurrirá en esa responsabilidad sin perjuicio de la responsabilidad penal de las personas físicas que hayan cometido los delitos.
+3. Cada Estado Parte velará en particular por que las entidades jurídicas responsables de conformidad con lo dispuesto en el párrafo 1 estén sujetas a sanciones penales, civiles o administrativas eficaces, proporcionadas y disuasorias. Tales sanciones podrán incluir sanciones de carácter monetario.

@@ -1,0 +1,2 @@
+Artículo 14
+A los fines de la extradición o de la asistencia judicial recíproca, ninguno de los delitos enunciados en el artículo 2 se considerará delito político, delito conexo a un delito político ni delito inspirado en motivos políticos. En consecuencia, no podrá rechazarse una solicitud de extradición o de asistencia judicial recíproca formulada en relación con un delito de ese carácter por la única razón de que se refiere a un delito político, un delito conexo a un delito político o un delito inspirado en motivos políticos.

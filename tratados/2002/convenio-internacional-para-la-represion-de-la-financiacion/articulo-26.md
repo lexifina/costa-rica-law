@@ -1,0 +1,3 @@
+Artículo 26
+1. El presente Convenio entrará en vigor el trigésimo día a partir de la fecha en que se deposite en poder del Secretario General de las Naciones Unidas el vigésimo segundo instrumento de ratificación, aceptación, aprobación o adhesión.
+2. Respecto de cada uno de los Estados que ratifiquen, acepten o aprueben el Convenio o se adhieran a él después de que sea depositado el vigésimo segundo instrumento de ratificación, aceptación, aprobación o adhesión, el Convenio entrará en vigor el trigésimo día a partir de la fecha en que dicho Estado haya depositado su instrumento de ratificación, aceptación, aprobación o adhesión.

@@ -1,0 +1,6 @@
+Artículo 8
+1. Cada Estado Parte adoptará las medidas que resulten necesarias, de conformidad con sus principios jurídicos internos, para la identificación, la detección y el aseguramiento o la incautación de todos los fondos utilizados o asignados para cometer los delitos indicados en el artículo 2, así como el producto obtenido de esos delitos, a los efectos de su posible decomiso.
+2. Cada Estado Parte adoptará, de conformidad con sus principios jurídicos internos, las medidas que resulten necesarias para el decomiso de los fondos utilizados o asignados para cometer los delitos indicados en el artículo 2 y del producto obtenido de esos delitos.
+3. Cada Estado Parte interesado podrá considerar la posibilidad de concertar acuerdos para compartir con otros Estados Partes, por norma general o en cada caso, los fondos procedentes de los decomisos previstos en el presente artículo.
+4. Cada Estado Parte considerará el establecimiento de mecanismos mediante los cuales los fondos procedentes de los decomisos previstos en el presente artículo se utilicen para indemnizar a las víctimas de los delitos mencionados en los incisos a) o b) del párrafo 1 del artículo 2, o de sus familiares.
+5. La aplicación de las disposiciones del presente artículo se efectuará sin perjuicio de los derechos de los terceros de buena fe.

@@ -1,0 +1,6 @@
+Artículo 12
+1. Los Estados Partes se prestarán la mayor asistencia posible en relación con cualquier investigación, proceso penal o procedimiento de extradición que se inicie con respecto a los delitos enunciados en el artículo 2, incluso respecto de la obtención de todas las pruebas necesarias para el proceso que obren en su poder.
+2. Los Estados Partes no podrán rechazar una petición de asistencia judicial recíproca al amparo del secreto bancario.
+3. El Estado Parte requirente no utilizará ni comunicará la información o prueba que reciba del Estado Parte requerido para investigaciones, enjuiciamientos o causas distintos de los consignados en la petición, sin la previa autorización del Estado Parte requerido.
+4. Cada Estado Parte podrá estudiar la posibilidad de establecer mecanismos para compartir con otros Estados Partes la información o las pruebas necesarias a fin de establecer la responsabilidad penal, civil o administrativa en aplicación del artículo 5.
+5. Los Estados Partes cumplirán las obligaciones que les incumban en virtud de los párrafos 1 y 2 de conformidad con los tratados u otros acuerdos de asistencia judicial recíproca que existan entre ellos. En ausencia de esos tratados o acuerdos, los Estados Partes se prestarán dicha asistencia de conformidad con su legislación nacional.

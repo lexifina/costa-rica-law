@@ -1,0 +1,2 @@
+Artículo 3
+El presente Convenio no será aplicable cuando el delito se haya cometido en un solo Estado, el presunto delincuente sea nacional de ese Estado y se encuentre en el territorio de ese Estado y ningún otro Estado esté facultado para ejercer la jurisdicción con arreglo a lo dispuesto en el párrafo 1 ó 2 del artículo 7, con la excepción de que serán aplicables a esos casos, cuando corresponda, las disposiciones de los artículos 12 a 18.
