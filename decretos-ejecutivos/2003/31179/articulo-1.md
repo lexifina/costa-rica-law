@@ -1,0 +1,13 @@
+N° 31179-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que le confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, los artículos 26 y 27 de la Ley General de la Administración Pública, los artículos 23 y 24 de la Ley N° 8131 de 18 de setiembre del 2001 y la ley N° 8290 del 23 de julio del 2002.
+Considerando:
+1º—Que por medio de la Ley N° 8290, publicada en La Gaceta N° 159 del 21 de agosto del 2002, se crea el Teatro Nacional como un órgano del Ministerio de Cultura, Juventud y Deportes, con desconcentración mínima y personería jurídica instrumental para administrar los fondos del Teatro Nacional.
+2º—Que mediante Decreto Ejecutivo N° 30214-H y sus reformas, publicado en La Gaceta N° 54 del 18 de marzo del 2002, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2003, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo el gasto presupuestario del 2003, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+3º—Que mediante Decreto Ejecutivo N° 30824-H, publicado en La Gaceta N° 219 del 13 de noviembre del 2002, se modifica el artículo 1° del Decreto N° 30214-H, a fin de incorporar una serie de instituciones que por disposiciones legales fueron dotadas de personalidad jurídica instrumental, posterior a la publicación de las Directrices Generales de Política Presupuestaria para el 2003, la cual fue conocida por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo el gasto presupuestario del 2003, para estas entidades cubiertas por el ámbito de la Autoridad Presupuestaria.
+4º—Que la misión del Teatro Nacional es el fomento, organización y programación de espectáculos artísticos y culturales de calidad, con cobertura nacional e internacional.
+5º—Que el Teatro Nacional requiere presupuestar recursos para poder continuar con las obras de restauración del Teatro, conservación y preservación del inmueble, declarado Patrimonio Histórico de la Nación, así como cubrir la adquisición de equipos y materiales indispensables para la presentación de actividades artísticas y culturales.
+4º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al Teatro Nacional para el 2003. Por tanto,
+DECRETAN:
+Artículo 1º—Modificase al Teatro Nacional, el gasto presupuestario máximo para el período 2003, establecido en el artículo 1° del Decreto Ejecutivo N° 30824-H publicado en La Gaceta N° 219, del 13 de noviembre del 2002, fijándolo en ¢ 401.9 millones.
