@@ -12,22 +12,18 @@ Considerando:
 8°—Que las mejoras en la calidad del diesel se deben implementar de manera paulatina, principalmente porque es necesario realizar adaptaciones tecnológicas.
 9°—Que se le dará la posibilidad a RECOPE para que cuente con la infraestructura necesaria para que pueda garantizar el cumplimiento de las normas de calidad. Por tanto,
 decretan:
-Artículo 1°—RECOPE, tomando como base el Decreto Ejecutivo No. 15993-MEC, publicado en "La Gaceta" N° 32 del 14 de febrero de 1985, en lo que se refiere a la Norma del Diesel, acatará los siguientes compromisos:
-- Azufre
-Se reducirá el contenido de azufre paulatinamente pasando del 1% que la norma actualmente exige, a los siguientes niveles:
-Límite Máximo (% m/m) Año
-0,5 1998
-0,05 2003
-Para el caso del diesel utilizado para la generación térmica, se mantiene un 1 % de contenido de azufre como límite máximo.
-- Cetano
-A partir de la publicación de este Decreto se fija el índice de cetano en 45 como mínimo.
-- Inflamación
-A partir de la publicación de este Decreto, el punto de inflamación deberá ser como mínimo de 52° C.
-- Viscosidad
-A partir de b publicación de este Decreto, la viscosidad debe ser entre 1,9 y 5,5 mrrr/seg.
-- Agua
-A partir de la publicación de este Decreto, el contenido de agua será como máximo de 0,05 vol.
-- Cenizas
-A partir de la publicación de este Decreto, el contenido máximo de cenizas será de 0,01% del peso.
-- Coque
-A partir de la publicación de este Decreto, los residuos de coque tendrán un máximo de 0,2% en peso.
+Artículo 1°—RECOPE, tomando como base el Decreto Ejecutivo Nº 15993-MEC, publicado en La Gaceta Nº 32 del 14 de febrero de 1985, en lo que se refiere a la Norma del Diesel, acatara los siguientes compromisos:
+Azufre: se reducirá el contenido del azufre paulatinamente pasando de 0,5% que la norma actual exige, a los siguientes niveles máximos.
+Año Límite máximo (%m/m)
+2003-2004 0,45
+2005-2006 0,40
+2007 0,35
+2008 0,05
+Para el caso del diesel utilizado para la generación térmica, se mantiene en 1% de contenido de azufre como límite máximo.
+Cetano: a partir de la publicación de este Decreto se fija el índice de cetano en 45 como mínimo.
+Inflamación: a partir de la publicación de este Decreto, el punto de inflamación deberá ser como mínimo de 52° C
+Viscosidad: A partir de la publicación de este Decreto, la viscosidad debe ser entre 1,9 y 5,5 mm2/seg.
+Agua: a partir de la publicación de este Decreto, el contenido de agua sera como máximo de 0,05 vol.
+Cenizas: a partir de la publicación de este Decreto, el contenido máximo de cenizas sera de 0,01% del peso.
+Coque: a partir de la publicación de este Decreto, los residuos de coque tendran un máximo de 0,2% en peso.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 30690 de 16 de agosto del 2002)

@@ -13,3 +13,4 @@ Regulaciones para Producción de Diesel de Alta Calidad por RECOPE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-07-09 | la propia norma |
+| 2 | 2002-08-16 | Decreto Ejecutivo 30690 (2002-08-16) |

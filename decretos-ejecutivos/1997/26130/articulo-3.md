@@ -1,3 +1,1 @@
-Artículo 3°—Para el caso exclusivo del contenido del azufre, se establecerá un sistema de calificación permanente, que clasificará la calidad del diesel en superior, media e inferior. Si la concentración de azufre en el diesel producido o importado es de 0,5% entre 1997 y el 2002, y de 0,05% a partir del años 2003, el diesel será considerado de calidad media.
-Si esa concentración es 10% menor al estipulado en párrafo anterior, el diesel será considerado de calidad superior y si es 10% mayor será considerado diesel de calidad inferior.
-Si el contenido de azufre en el diesel es de calidad inferior, no podrá usarse para el transporte público, ni para otros usos en zonas de alta densidad de población.
+Artículo 3°—DEROGADO por el artículo 2 del Decreto Ejecutivo N° 30690 de 16 de agosto del 2002.
