@@ -1,0 +1,1 @@
+Artículo 3º—Quedan a salvo las competencias del Ministerio de Agricultura y Ganadería, para lo cual la Asociación de Criadores de Caballo de Campo y Deportivo de Costa Rica, proporcionará en el caso de serle requerida la colaboración correspondiente.
