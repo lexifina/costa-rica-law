@@ -16,3 +16,4 @@ Reglamento del Consejo Directivo y Gerencia General.
 | 1 | 1984-11-27 | la propia norma |
 | 2 | 1985-09-19 | Reglamento 624 (1985-09-19) |
 | 3 | 1986-05-28 | Reglamento 688 (1986-05-28) |
+| 4 | 1986-09-24 | Reglamento 721 (1986-09-24) |

@@ -1,14 +1,13 @@
-Artículo 42.—Auditoría Financiera. Funciones: En esta área de trabajo la Auditoría tiene las siguientes funciones:
-a) Llevar un control fiscalizador sobre los ingresos de la Institución en sus diferentes conceptos y sistemas de recaudación.
-b) Llevar un control fiscalizador sobre los egresos de la Institución y los procedimientos administrativos involucrados en los gastos, y verificar la fidelidad y veracidad de documentos de respaldo.
-c) Vigilar por el cumplimiento de leyes, reglamentos, sistemas y procedimientos de ingresos y egresos; fiscalizar el uso de las cuentas bancarias y fondos especiales, y denunciar los fallantes e irregularidades que detecte.
-ch) Realizar arqueos y comprobaciones de efectivo y documentos en caja chica, y fondos de recaudación, así como las planillas ordinarias, extraordinarias y de dietas; y todo otro registro de gastos.
-d) Realizar inventarios físicos de materiales, suministros y artículos almacenados y corroborar las existencias y el manejo de los mismos conforme con los sistemas y procedimientos establecidos.
-e) Vigilar el registro control de los inventarios de mobiliario, equipo, herramientas menores, biblioteca, utensilios y útiles destinados a la labor de la institución y verificar su conservación y existencia.
-f) Revisar los procedimientos y registros contables, así como los asientas y cuentas. Procurar y verificar por medio de análisis, estudios y recomendaciones su razonabilidad y veracidad.
-g) Refrendar y emitir opinión sobre los estados financieros y liquidaciones presupuestarias del ejercicio económico.
-h) Comprobar el control de presupuesto y procurar el cumplimiento de los lineamientos, normas y asignaciones presupuestarias establecidas.
-i) Refrendar las liquidaciones y modificaciones externas del Presupuesto.
-j) Realizar los estudios especiales que esta área de trabajo le encargue el Consejo Directivo.
-k) Analizar y pronunciarse sobre las situaciones especiales y concretas, infracciones e irregularidades que detecte o le sean requeridas en relación con esta área de trabajo.
-l) Cualquier otra función que se le asigne o competa de acuerdo con las normas aplicables.
+Articulo 42.—Funciones de la Auditoria: Son funciones de la unidad de Auditoria:
+a) Realizar estudios especiales según su plan de trabajo para:
+- Verificar el cumplimiento, la suficiencia y ía validez del sistema.
+- Verificar que la información contable, financiera y administrativa sea suficiente oportuna y confiable.
+- Evaluar la eficiencia y eficacia en el uso de recursos y cumplimiento de objetivos y programas.
+- Comprobar el cumplimiento de disposiciones legales y reglamentarias de políticas, de planes y acuerdos.
+- Revisar en forma posterior las operaciones contables, financieras y administrativas.
+b) Efectuar el control posterior de la ejecución y liquidación del presupuesto.
+c) Asesorar al Consejo Directivo y la Gerencia en materia de su competencia.
+ch) Investigar las anomalías e irregularidades que detecte o le sean requeridas por el Consejo Directivo.
+d) Comprobar que se tomen las medidas apropiadas sobre sus recomendaciones, las disposiciones de la Contraloría General de la República y los acuerdos de' Consejo Directivo.
+f) Cualquier otra función que le asigne el Consejo Directivo.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión N° 721 de 24 de setiembre de 1986, publicada en La Gaceta N° 241 de 19 de diciembre de 1986.)
