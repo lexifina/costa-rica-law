@@ -1,0 +1,2 @@
+Artículo 5°—Impugnación de acuerdos.
+Contra los acuerdos del Consejo de Transporte Público y Ferrocarriles cabrá el recurso de revocatoria, el que deberá interponerse ante el Presidente del Consejo, dentro de los tres días hábiles siguientes a la firmeza del acuerdo y el de apelación ante el Ministro de Obras Públicas y Transportes, en el mismo plazo de interposición establecido para el de revocatoria.

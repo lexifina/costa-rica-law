@@ -1,0 +1,8 @@
+Artículo 4°—De las sesiones
+4.1, El Consejo de Transporte Público y Ferrocarriles se reunirá ordinariamente una vez a la semana y extraordinariamente cuando el Presidente la estime oportuno, previa y formal convocatoria.
+4.2 Las sesiones serán siempre privadas, pero se podrá disponer, previo acuerdo de los miembros presentes, que las personas interesadas en la discusión de determinado asunto, tengan acceso a las sesiones respectivas, con el fin de que hagan valer sus puntos de vista, participando en las deliberaciones pero sin derecho al voto.
+4.3 Los acuerdos se tomarán por mayoría de los votos presentes y sólo en caso de empate el presidente ejercerá el voto de calidad.
+4.4 No podrá ser objeto de acuerdo, asunto alguno que no figure en el respectivo “orden del día”, salvo que estando presentes al menos dos tercios del total de los miembros del Consejo, y debidamente motivada la urgencia del asunto, se cuente con el voto favorable de todos los miembros presentes.
+4.5 De cada sesión se levantará un acta, que contendrá, entre otros aspectos, la indicación de los miembros asistentes, las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y los resultados de la votación, así como el contenido pormenorizado de los acuerdos que se adopten.
+4.6 Carecerán de firmeza los acuerdos que se tomen, mientras no se apruebe el acta en la sesión inmediata siguiente.
+4.7 Los miembros del Consejo podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando en tal caso exentos de las responsabilidades que, eventualmente, pudieren derivarse de la emisión de acuerdos contrarios al ordenamiento jurídico.
