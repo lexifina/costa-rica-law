@@ -14,3 +14,4 @@ Prohibición para los Barcos de Arrastre y la Flota Camaronera.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-29 | la propia norma |
+| 2 | 2003-09-12 | Acuerdo 386 (2003-09-12) |
