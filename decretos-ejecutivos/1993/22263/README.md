@@ -13,3 +13,4 @@ Aprueba Norma Evaluación Acreditación y Funcionamiento Organísmos deCertifica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-07-08 | la propia norma |
+| 2 | 1993-07-08 | Ley 7 |
