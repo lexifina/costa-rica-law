@@ -1,2 +1,3 @@
-Artículo 44.- Monto máximo de pensión. Las jubilaciones que se otorguen no superarán el monto equivalente al salario de un catedrático de la Universidad de Costa Rica, con la sola consideración de treinta anualidades y dedicación exclusiva.
-Esta limitación solo podrá ser superada postergando la jubilación.
+Artículo 44.-Montos máximos y mínimos de pensión. Los derechos por vejez, invalidez o supervivencia que se otorguen no superarán el monto equivalente al salario de un catedrático de la Universidad de Costa Rica, con la sola consideración de treinta anualidades y dedicación exclusiva.
+Los derechos por vejez, invalidez o supervivencia que se otorguen una vez deducida la cotización al Régimen, no serán inferiores al monto del salario base más bajo pagado por la Administración Pública. En caso de supervivencia, la sumatoria de los montos derivados de un derecho no podrá ser inferior al monto mínimo aquí establecido.
+(Así reformado por el artículo 1° de la ley N° 7946 del 18 de noviembre de 1999)
