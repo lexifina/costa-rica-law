@@ -5,18 +5,4 @@ CONVENIO DE LAS NACIONES UNIDAS
 SOBRE EL DERECHO DEL MAR
 ANEXO VIII
 ARBITRAJE ESPECIAL
-ARTÖCULO 1
-Incoaci¢n del procedimiento
-Con sujeci¢n a lo dispuesto en la Parte XV, toda parte en
-una
-controversia sobre la interpretaci¢n o la aplicaci¢n de los
-art¡culos de esta Convenci¢n relativos a 1) pesquer¡as, 2)
-protecci¢n y preservaci¢n del medio marino, 3) investigaci¢n
-cient¡fica marina y 4) navegaci¢n, incluida la contaminaci¢n
-causada por buques y por vertimiento, podr someter la
-controversia
-al procedimiento de arbitraje especial previsto en este Anexo
-mediante notificaci¢n escrita dirigida a la otra u otras partes
-en
-la controversia. La notificaci¢n ir acompa¤ada de una exposici¢n
-de las pretensiones y de los motivos en que ‚stas se funden.
+ARTÍCULO 1.- Incoación del procedimiento Con sujeción a lo dispuesto en la Parte XV, toda parte en una controversia sobre la interpretación o la aplicación de los artículos de esta Convención relativos a 1) pesquerías, 2) protección y preservación del medio marino, 3) investigación científica marina y 4) navegación, incluida la contaminación causada por buques y por vertimiento, podrá someter la controversia al procedimiento de arbitraje especial previsto en este Anexo mediante notificación escrita dirigida a la otra u otras partes en la controversia. La notificación ir acompañada de una exposición de las pretensiones y de los Motivos en que ‚estas se funden.
