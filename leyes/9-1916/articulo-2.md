@@ -1,0 +1,2 @@
+Artículo 2º.- El artículo 3º de la Ley Orgánica del Ministerio Público, se leerá así:
+"Para ser Agente Fiscal se necesita ser mayor de edad, ciudadano en ejercicio y Abogado de los Tribunales de la República o Pasante de Abogado, o Procurador Judicial, debiendo seguirse este orden en el nombramiento de dichos funcionarios. Para ser Procurador Fiscal o Fiscal Específico es preciso ser mayor de edad, ciudadano en ejercicio y tener conocimientos en derecho.
