@@ -16,3 +16,4 @@ Para Otorgamiento de Ayudas Temporales Subvenciones y Aportes
 | 1 | 1999-10-04 | la propia norma |
 | 2 | 1999-10-04 | Reglamento municipal 23 (1999-10-04) |
 | 3 | 2000-01-10 | SINALEVI (sin norma nombrada) |
+| 4 | 2001-01-08 | Reglamento municipal 89 (2001-01-08) |
