@@ -77,3 +77,9 @@ ARTÍCULO 2: EGRESOS ORDINARIOS Y EXTRAORDINARIOS PARA EL 2003. (...)
 (REFORMADO por el artículo 2° del la Ley N° 8397 de 3 de diciembre de 2003, publicada en La Gaceta N° 238 de 10 de diciembre de 2003).
 (MODIFICADO por el artículo 1° del Decreto Ejecutivo N°31508 de 05 de diciembre de 2003, publicado en el Alcance N° 60 a La Gaceta N° 235 de 5 de diciembre de 2003.)
 (MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31539 de 8 de diciembre de 2003, publicado en el Alcance N° 61 a La Gaceta N° 240 de 12 de diciembre de 2003).
+(MODIFICADO por el artículo 1° del Decreto Ejecutivo N°31558 del 08 de diciembre de 2003, publicado en el Alcance N° 63-A a La Gaceta N° 245 del 19 de diciembre de 2003.)
+(REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 4° de la Ley N° 8402 de 17 de diciembre de 2003, publicado en La Gaceta N° 244 de 18 de diciembre de 2003, Alcance 63.)
+(REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 5° de la Ley N° 8402 de 17 de diciembre de 2003, publicado en La Gaceta N° 244 de 18 de diciembre de 2003, Alcance 63.)
+(REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 8° de la Ley N° 8402 de 17 de diciembre de 2003, publicado en La Gaceta N° 244 de 18 de diciembre de 2003, Alcance 63.)
+(REFORMADO TACITAMENTE por el artículo 10 de la Ley N° 8402 de 17 de diciembre de 2003, publicada en La Gaceta N° 244 de 18 de diciembre de 2003, Alcance N° 63, que reformó el artículo 11° de la Ley N° 8374, el cual reformó en forma expresa este artículo.)
+(REFORMADO TACITAMENTE por el artículo 11 de la Ley N° 8402 de 17 de diciembre de 2003, publicada en La Gaceta N° 244 de 18 de diciembre de 2003, Alcance N° 63, que reformó el artículo 05° de la Ley N° 8374, el cual reformó en forma expresa este artículo.)
