@@ -1,0 +1,5 @@
+DECRETO LXXXIX.
+Declara la eleccion de Vice-Jefe Supremo del Estado en el Doctor Don José Maria Castro,
+"El Jefe Supremo Provisorio del Estado libre de Costa Rica. –Por cuanto la Camara de Senadores ha decretado lo siguiente.
+La Cámara de Senadores del Estado libre de Costa Rica: Habiendo en conformidad del art. 8° de la acta de 7 de junio del corriente año, procedido al eserutinio y regulacion de los sufragios emitidos por las dieziseis secciones electorales del Estado para Vice-Jefe Supremo,á cuya elección convocò el decreto n° I? expedido por el Poder Ejecutivo en 1° de julio último, y considerando: que el número de sufragantes de dichas secciones electorales es el de dos mil seiscientos cincuenta y siete, y que en estas solo se han dado a varios ciudadanos trescientos cincuenta y tres sufragios, reuniendo el candidato Señor Doctor José Maria Castro el número de tres mil trescientos cuatro votos, lo que manifiesta que la voluntad de los pueblos llama à este distinguido Costaricense al ejercicio de las funciones de Vice-Jefe, ha tenido à bien declarar y decreta.
+Art. 1° Se ha por Vice-Jefe Supremo del Estado al Sr. Dr. José Maria Castro, electo popularmente.
