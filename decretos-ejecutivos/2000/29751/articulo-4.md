@@ -1,0 +1,1 @@
+Artículo 4º—A toda persona que haciendo uso de este reglamento, encuentre razón sustentada para pedir su revisión se le solicita notificarlo a la Dirección Sectorial de Energía, MINAE, aportando, de ser posible, la información pertinente para que esa Dirección efectúe las investigaciones pertinentes y tome las acciones correspondientes.

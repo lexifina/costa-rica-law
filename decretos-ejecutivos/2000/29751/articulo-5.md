@@ -1,0 +1,1 @@
+Artículo 5º—De no cumplirse con lo estipulado en este reglamento se tomarán las acciones correspondientes de acuerdo con el artículo 70 del Reglamento de la Ley de Regulación del Uso Racional de la Energía y sus reformas.
