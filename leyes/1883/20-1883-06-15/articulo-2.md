@@ -1,0 +1,2 @@
+Art. 2°- Señálanse las doce del día diez y ocho del corriente para recibir al nombrado el juramento constitucional.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á quince de junio de mil ochocientos ochenta y tres.- JN. M.CARAZO, Presidente. -JESUS SOLANO, Secretario. -A. Santos 1er Pro-secretario.-Palacio Presidencial. San José, quince de junio de mil ochocientos ochenta y tres. -Publíquese. -P. FERNANDEZ.-_El Secretario de Estado en el Despacho de Gobernación. VICTOR GUARDIA.
