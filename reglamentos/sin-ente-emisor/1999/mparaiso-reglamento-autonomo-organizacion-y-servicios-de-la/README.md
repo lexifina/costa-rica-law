@@ -14,3 +14,4 @@ MPARAISO: Reglamento Autónomo Organización y Servicios de la MPARAISO.
 | --- | --- | --- |
 | 1 | 1999-10-28 | la propia norma |
 | 2 | 2002-07-01 | Reglamento municipal 17 (2002-07-01) |
+| 3 | 2002-07-01 | Ley 8 |
