@@ -1,0 +1,6 @@
+ARTICULO 20
+Protección e intercambio de funcionarios postales
+1°- Las Administraciones de los países contratante; proporcionarán toda clase de facilidades a los funcionarios que una de dichas Administraciones acuerde enviar a cualquier otra para llevar a cabo estudios acerca del desarrollo y perfeccionamiento de los servicios postales.
+2°-Las Administraciones, por intermedio de la Oficina Internacional de Montevideo, se pondrán de acuerdo para efectuar entre ellas el intercambio de funcionarios. No obstante lo establecido precedentemente, las Administraciones podrán también acordar el envío de funcionarios, con fines de aprendizaje o de instrucción, sin que para ello sea indispensable el intercambio de éstos.
+3°-Asimismo, las Administraciones podrán enviar, por el tiempo indispensable y con cargo a los gastos especiales de la Oficina, funcionarios técnicos para colaborar en la realización de trabajos especiales, a la Oficina de Montevideo, cuando ésta lo requiera en casos notoriamente justificados.
+4°-Una vez convenidos entre dos o más Administraciones el intercambio o envío unilateral de funcionarios previstos en los párrafos anteriores, acordarán aquéllas la forma en que deban sufragarse los gastos correspondientes y. cuando lo consideren necesario, a iniciativa y por intermedio de la Oficina Internacional de Montevideo.

@@ -1,0 +1,8 @@
+ARTICULO 33
+Vigencia y duración del Convenio y depósito de las ratificaciones
+1°-El presente Convenio empezará a regir el día primero de julio de mil novecientos cincuenta y uno, y quedará en vigencia, sin limitación de tiempo, reservándose cada una de las Partes contratantes el derecho de retirarse de esta Unión mediante aviso, dado por su Gobierno al de la República Oriental del Uruguay con un año de anticipación.
+2°-El depósito de las ratificaciones se hará en la ciudad de Madrid, capital de España, en el más breve plazo posible, procurándose que sea antes de la vigencia del Convenio y Acuerdo a que se refieran, y de cada una de aquéllas se levantará el Acta respectiva, cuya copia remitirá el Gobierno de España, por la, vía diplomática, a los Gobiernos de los demás países signatarios.
+3°-Quedan derogadas, a partir de la fecha en que entre en vigor el presente Convenio, las estipulaciones del Convenio Postal de las Américas y España, suscrito en Río de Janeiro, Brasil, el 25 de septiembre de 1946.
+4°-En el caso de que el Convenio no fuere ratificado por uno o varios de los países contratantes, no dejará de ser válido para los que lo hayan ratificado.
+5°-Los países contratantes podrán ratificar el Convenio y los Acuerdos, provisionalmente, por correspondencia, dando aviso de ello a las Administraciones respectivas por medio de la Oficina Internacional, sin perjuicio de que, según la legislación de cada país, su aprobación sea confirmada por la vía diplomática.
+En fe de lo resuelto, los Plenipotenciarios de los Gobiernos de los países arriba citados suscriben el presente Convenio en la ciudad de Madrid, capital de España, a los nueve días del mes de noviembre de mil novecientos cincuenta.

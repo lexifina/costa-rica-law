@@ -1,0 +1,16 @@
+ARTICULO 8
+Cupones - respuesta
+1°-En el régimen de la Unión Postal de las Américas y España, el precio de venta al público de los cupones - respuesta será determinado por las Administraciones interesadas, pero no podrá ser inferior al equivalente de 15 céntimos de franco oro en la moneda del país que efectúe la venta.
+2°-Cada cupón es canjeable, en cualquiera de los países que integran la Unión, por un sello o sellos que representen el franqueo de una carta ordinaria de porte sencillo originaria de ese mismo país con destino a otro de la Unión. El plazo de validez de los cupones es ilimitado.
+3°-Los cupones - respuesta se imprimirán por la Oficina Internacional de Montevideo y serán suministrados a las Administraciones de la Unión a precio de coste.
+4°-En los ajustes de cuentas entre las Administraciones, el valor de los cupones - respuesta será calculado a razón de 15 céntimos de franco oro por unidad.
+5°-Cuando, en las relaciones entre dos Administraciones, el saldo anual no sea superior a 10 francos oro, la Administración deudora quedará exenta de cualquier pago.
+6°-Las Administraciones tienen la facultad de no encargarse de la venta de cupones - respuesta, siendo el canje, sin embargo, obligatorio.
+7°-Cuando la liquidación de las cuentas a que diere lugar el intercambio de cupones - respuesta américoespañoles no se efectúe directamente entre las Administraciones interesadas, la Oficina Internacional de Montevideo actuará como intermediaria. En este caso, formulará anualmente un estado de Administraciones deudoras y acreedoras, en forma similar a lo establecido en las respectivas disposiciones de la Unión Postal Universal.
+8°-Con el fin de que el expedidor de una carta pueda abonar en origen el franqueo de la contestación por vía aérea, se establece facultativamente un procedimiento que así lo permite.
+9°-A tal respecto, el remitente satisfará en la Oficina de procedencia la sobretasa correspondiente al franqueo de una carta aérea del peso que solicite, así como los derechos del franqueo ordinario y certificado en su caso, según la tarifa que rija en el país de origen e inmediatamente se consignará en la cubierta del sobre la mención de PAGADA RESPUESTA AEREA... GRAMOS.
+10.-La Oficina de destino, previa presentación del sobre, adherirá en la cubierta de la carta - respuesta los sellos del franqueo o las marcas sustitutivas de los mismos.
+11.-Cada país exigirá el depósito simultáneo de los sobres de origen y de los envíos de correspondencia que hayan de ser franqueados a cambio de los mismos.
+12.-Si el destinatario se negara a entregar el sobre, extenderá el impreso C. 1, en el que consignará: la procedencia de la carta, su nombre y el importe adherido a la respuesta. Una vez firmado, lo entregará en la Oficina de Correos, la cual-después de comprobar los datos-inutilizará el sobre.
+13.-Las cuentas se formalizarán en idéntica forma que las correspondientes a los cupones-respuesta, sirviendo de justificantes los sobres y los impresos C. 1, y se liquidarán siempre por el importe total. A tales fines, las Administraciones de destino cargarán en estas cuentas el importe del franqueo de las cartas-respuesta, aplicando su tarifa ordinaria, la sobretasa aérea, y en su caso, el derecho de certificado.
+14.-El total de estas cuentas, en moneda del país destinatario, se convertirá en francos oro.

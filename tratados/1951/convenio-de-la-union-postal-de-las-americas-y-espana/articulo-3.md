@@ -1,0 +1,5 @@
+ARTICULO 3
+Tránsito libre y gratuito
+1°-La gratuidad del tránsito territorial, fluvial y marítimo es absoluta en el territorio de la Unión Postal de las Américas y España; en consecuencia, los países que la integran se obligan a transportar a través de sus territorios y a conducir en los buques de su matrícula o bandera, sin cargo alguno, para los países contratantes, toda la correspondencia que éstos expidan con cualquier destino. Sin embargo, esta gratuidad de tránsito no será aplicada a las posteriores transmisiones marítimas de correspondencia con destino a un tercer país que no sea miembro de la unión Postal de las Américas y España, en los casos en que sea necesario un reembarque o transbordo u origine gastos justificados de manipulación.
+2°-Asimismo, cuando para el transporte ulterior de los despachos cerrados se requieran servicios de Administraciones extrañas, podrán percibirse de las de origen las mismas cantidades que estén obligadas a pagar por ese concepto.
+3°-En los casos de reencaminamiento, los países contratantes se comprometen a reexpedir la correspondencia por las vías y conductos más rápidos que utilicen para sus propios envíos.

@@ -1,0 +1,4 @@
+ARTICULO 31
+Conferencias previas
+1°-Para los efectos del artículo anterior, los Delegados de los países que integran la Unión Postal de las Américas y España ante los Congresos Postales Universales deberán reunirse en la ciudad designada como sede de éstos, quince días antes de la fecha de la inauguración de los mismos, para celebrar una conferencia previa en la que se determinen los procedimientos de acción conjunta a seguir.
+2°-Con la debida anticipación a la reunión de los Congresos Universales, la Oficina Internacional de Montevideo invitará a las Administraciones signatarias para celebrar la Conferencia previa a que alude el párrafo anterior, debiendo organizarla y estar presente en ella el Director de la Oficina Internacional de Montevideo, con el personal de la misma que considere necesario.

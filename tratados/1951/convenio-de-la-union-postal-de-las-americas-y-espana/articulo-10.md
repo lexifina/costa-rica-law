@@ -1,0 +1,5 @@
+ARTICULO 10
+Correspondencia certificada. - Responsabilidad
+1°-Los objetos a que se refiere el artículo 4 podrán ser expedidos con el carácter de certificados, mediante el pago de un derecho igual al establecido para el servicio interno del país de origen, salvo que fuere más elevado que el que se aplique según el Convenio de la Unión Postal Universal, en cuyo caso regirá este último.
+2°-Las Administraciones contratantes serán responsables de la pérdida de todo objeto certificado, excepto en los casos de fuerza mayor. El remitente tendrá derecho a una indemnización de 10 francos oro o su equivalencia en la moneda del país que deba hacerla efectiva, pudiendo no obstante, reclamar una indemnización menor.
+3°-Quedarán las Administraciones relevadas de responsabilidad por la pérdida de objetos certificados cuyo contenido caiga bajo el régimen de las prohibiciones del Convenio de la Unión Postal Universal o esté prohibido por las leyes o reglamentos del país de origen o de destino, siempre que dichos países lo hayan comunicado debidamente por la vía usual.
