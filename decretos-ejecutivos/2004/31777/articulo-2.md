@@ -1,0 +1,1 @@
+Artículo 2°—Las instituciones públicas que posean información de carácter temático, territorial, sistemas de información geográficos, cartográficos, infraestructural, bases de datos de toda naturaleza, y cualquiera otro deberán suministrarla al Consejo Nacional de Planificación Urbana (CNPU) a requerimiento de Este.
