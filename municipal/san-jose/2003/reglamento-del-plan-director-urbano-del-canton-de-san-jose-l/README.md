@@ -14,3 +14,4 @@ Reglamento del Plan Director Urbano del Cantón de San José (La Municipalidad d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-03 | la propia norma |
+| 2 | 2004-07-20 | Reglamento municipal 116 (2004-07-20) |

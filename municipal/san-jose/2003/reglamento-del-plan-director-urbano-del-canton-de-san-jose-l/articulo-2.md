@@ -24,8 +24,19 @@ En el suelo no urbanizable solamente se permitirá aquel tipo de actividad cuya 
 Artículo 3°—Naturaleza de los usos del suelo. Con el propósito de regular las diferentes actividades que se desarrollan en el suelo de San José y contribuir a la consolidación de ciertos usos y actividades, y protegerlas de otras que resulten molestas o incompatibles, el uso del suelo se clasifica en los siguientes tipos:
 1) Usos conformes o permitidos.
 2) Usos no permitidos.
-3) Usos existentes no conformes.
-4) Usos condicionados.
+3) Usos existentes no conformes.*
+*(La Municipalidad de San José, en sesión N° 116 del 20 de julio del 2004, publicado en la Gaceta N° 159 del 16 de agosto del 2004, emite criterio respecto a como se debe entender los usos no conformes, es decir únicamente en las actividades en donde los predios en que los propietarios o inquilinos demuestren que estos:
+a) Cuenten con patente vigente, para la actividad solicitada.
+b) Cuenten con permiso de remodelación, reparación o construcción, para actividad comercial.
+c) Debido a que la antigüedad del local, impide cumplir con las dos condiciones anteriores, se demuestre que la infraestructura existente no puede utilizarse para otra cosa más que para la actividad pretendida. Esto será verificado contra solicitud del interesado a través de una visita de campo, realizada por la Asistente de la Sección de Permisos de Construcción y el Inspector Urbano y respaldado con acuerdo del Consejo Técnico de la Dirección de Urbanismo. (El aporte de las fotografías por parte del interesado agilizaría el proceso).
+d) Cuenten con un Certificado de Uso de Suelo, que haya generado efecto real sobre el predio. Entiéndase por efecto real, gestionen para construcción ante instituciones públicas, demostradas y respaldadas con los sellos respectivos en planos constructivos.
+Estas instituciones son:
+- Colegio Federado de Ingenieros y Arquitectos.
+- Ministerio de Salud.
+- Instituto Nacional de Vivienda y Urbanismo.
+- Secretaría Técnica Nacional del Ambiente.
+4) Usos condicionados.**
+**(La Municipalidad de San José, en sesión N° 116 del 20 de julio del 2004,publicado en la Gaceta N° 159 del 16 de agosto del 2004, aclara lo que se debe de entender sobre los usos condicionados de la siguiente manera: " Esta resolución será un filtro previo a resolver positivamente una solicitud, dando al interesado la posibilidad de sumar al expediente el cumplimiento de los condicionantes, que el Plan Director Urbano y demás legislación urbanística establezca. Se solicitará entonces croquis a escala y acotado de la planta, donde se aprecien ubicación de negocio, divisiones entre usos colindantes y disposición interna del local. Además en el mismo se deberá diferenciar las áreas útiles y áreas de servicio (baños, espacios para estacionamiento, áreas verdes y retiros). Esta documentación deberá venir respaldada de una declaración jurada del inquilino o propietario.Satisfechas las condiciones de previo establecidas, el Certificado de Uso de Suelo, será resuelto como uso permitido, con oficio adjunto que así lo haga ver".)
 1. Usos conformes o permitidos. Son todas aquellas actividades o usos del suelo acordes con los requisitos y lineamientos del PDU para cada zona y que pueden ser desarrolladas.
 2. Usos no permitidos. Son aquellas actividades y obras de edificación que no pueden ser llevadas a cabo en un lote o finca, porque no están permitidos por la zonificación establecida por el PDU, ya sea porque no corresponden al uso permitido en la zona de que se trate o porque el lote no cumple los requisitos físicos exigidos en la misma.
 3. Usos existentes no conformes. Son todos aquellos usos que existían a la entrada en vigencia del PDU pero que no son compatibles con la zonificación del PDU y no cumplen las disposiciones y requisitos incluidos en los reglamentos del PDU. Para estos casos no se permitirá el crecimiento de estas actividades y las intervenciones en construcciones existentes se permitirán en razón de:
