@@ -1,1 +1,0 @@
-Artículo 3º- Se entenderá por "gravámenes" los derechos aduaneros y cualesquiera otros recargos de efectos equivalentes, sean de carácter fiscal, monetario o cambiario, que incidan sobre las importaciones. No quedarán comprendidos en este concepto las tasas y recargos análogos, cuando respondan al costo de los servicios prestados.
