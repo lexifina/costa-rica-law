@@ -1,0 +1,2 @@
+Art 14°.- El dinero producto de la venta de las diez caballería de tierra mencionadas, se invertirá precisamente, 1° en la construcción de la Iglesia 2° en la de una casa municipal y cárcel, y 3° en la abertura de calles en el interior de la población de Atenas.
+Único.- Si hubiere algún sobrante, después de concluidas las obras mencionadas, la Junta lo avisará al Ministerio de lo interior por conducto del Gobernador de la Provincia, para disponer lo conveniente.

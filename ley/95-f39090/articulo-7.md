@@ -1,0 +1,1 @@
+Art 7°.- Inmediatamente después que el Agrimensor dé cuenta con el expediente de medida y cálculo de las partes de tierra ocupadas, la Junta con presencia del informe del Agrimesor y de las declaraciones de los medidores y testigos, señalará el precio de cada manzana que no bajará de cinco pesos ni exceda de ocho.
