@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la ejecución de la Auditoria
+Articulo 18.— La Auditoria Interna deberá ejecutar su trabajo de acuerdo con lo que establece la Ley Orgánica de la Contraloría General de la República , las normas de ejecución de la auditoria contenidas en el "Manual sobre Normas Técnicas de Auditoria", las del Colegio de Contadores Públicos de Cosía Rica en In que sea aplicable, los lineamientos que al respecto contiene el "Manual para el ejercicio de la auditoria interna", otras normas generalmente aceptadas sobre la práctica profesional de la Auditoria Interna y cualesquiera otras disposiciones que dicte la Contraloría General.

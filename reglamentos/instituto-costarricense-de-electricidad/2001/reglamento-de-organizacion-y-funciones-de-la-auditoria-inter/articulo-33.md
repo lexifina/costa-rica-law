@@ -1,0 +1,1 @@
+Articulo 33. -El informe de auditoria contendrá los elementos necesarios para identificar los presuntos participes responsables contra los cuales enderezar las acciones que se recomiendan precisar los hechos anómalos o irregulares que servirá de base a la intimación de cargos.

@@ -1,0 +1,2 @@
+Articulo 7°— La Unidad de Auditoria Interna estará bajo la responsabilidad de un Auditor General y dos Subauditores Internos, uno para cada sector: Energía y Telecomunicaciones. Estos tres funcionarios deben ser Contadores Públicos Autorizados y conocer además, las disposiciones legales que rigen en general a la Administración Pública y específicamente al ICE.
+El Auditor General asistirá a las sesiones del Consejo Directivo, cuando así lo disponga este órgano colegiado. En dichas sesiones tendrá voz pero no voto.
