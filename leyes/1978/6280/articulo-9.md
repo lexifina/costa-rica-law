@@ -1,0 +1,1 @@
+Artículo 9º.- Se autoriza a las demás instituciones del Estado para que otorguen subvenciones o donaciones a este Parque. Cuando se trate de donaciones en efectivo, hechas por particulares, se podrán deducir del impuesto sobre la renta.

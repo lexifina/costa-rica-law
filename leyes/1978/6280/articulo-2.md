@@ -1,0 +1,1 @@
+Artículo 2º.- Para todo lo que se refiere a asuntos viales, se excluye como área del Parque el derecho de vía de la carretera de San José-Guápiles. El Servicio de Parques Nacionales, sin embargo, podrá instalar puesto de inspección y usar las áreas verdes de la vía para colocar letreros y avisos relacionados con el Parque.
