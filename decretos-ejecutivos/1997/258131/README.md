@@ -17,3 +17,4 @@ Reglamento Autónomo de Servicio y Organización de la Dirección General del Se
 | 2 | 1997-05-30 | Decreto Ejecutivo 26081 (1997-05-30) |
 | 3 | 1999-04-15 | Decreto Ejecutivo 27795 (1999-04-15) |
 | 4 | 2001-10-04 | Decreto Ejecutivo 29915 (2001-10-04) |
+| 5 | 2002-01-11 | Decreto Ejecutivo 30114 (2002-01-11) |
