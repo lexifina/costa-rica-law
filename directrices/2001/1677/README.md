@@ -14,3 +14,4 @@ Manual de Procedimientos Legales de la Inspección de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-22 | la propia norma |
+| 2 | 2004-01-13 | Directriz 0 (2004-01-13) |
