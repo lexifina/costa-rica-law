@@ -1,0 +1,1 @@
+Artículo 21.-Los directores podrán solicitar que se haga constar en el acta sus opiniones; los votos disidentes siempre se harán constar. Los directores, como el personal de la Junta que asista a las sesiones, guardarán absoluta reserva acerca de las deliberaciones y votaciones, que se declaran confidenciales.

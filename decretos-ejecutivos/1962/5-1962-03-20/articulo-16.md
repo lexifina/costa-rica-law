@@ -1,0 +1,1 @@
+Artículo 16.-El Consejo Directivo será instalado por el Ministro de Economía y Hacienda o por su representante al iniciarse cada período bienal de labores; elegirá de su seno un Presidente, un Vicepresidente, un Secretario y un Tesorero que pueden ser reelectos.

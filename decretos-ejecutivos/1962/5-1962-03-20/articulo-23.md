@@ -1,0 +1,1 @@
+Artículo 23.-La discusión del acta debe contraerse a su forma o redacción y a examinar si contiene todo y sólo aquellos en que se ocupó el Consejo Directivo en la sesión a que se refiere. Aprobada el acta, será firmada por el Presidente y por el Secretario o por quienes actúen en su lugar. Unicamente el acta de instalación será firmada por todos los miembros directores.

@@ -1,0 +1,1 @@
+Artículo 27.-En caso de ausencia o impedimento transitorio del Presidente, será reemplazado por el Vicepresidente, quien en tal caso tendrá todas sus atribuciones, facultades y deberes. Cuando en alguna sesión estuvieren ambos ausentes, el Consejo Directivo nombrará un Presidente y un Vicepresidente ad-hoc.

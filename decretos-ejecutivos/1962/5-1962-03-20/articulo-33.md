@@ -1,0 +1,4 @@
+Artículo 33.-Para el otorgamiento de los contratos a que se refiere el inciso c) del artículo 25, se tomarán en cuenta preferentemente las siguientes circunstancias:
+a) Que el agricultor tenga experiencia y conocimiento sobre el cultivo del tabaco;
+b) Que el contrato para sembrar tabaco signifique para la familia del suscrito su ingreso básico o complementario, con el cual llena sus necesidades familiares; y
+c) Que el agricultor sea un pequeño o mediano propietario, arrendatario o aparcero. Las personas que tienen como simple ingreso adicional el producto de la siembra del tabaco y que tradicionalmente han sido contratistas de las empresas, podrán conservar sus respectivos contratos; también podrá otorgárseles a aquellas personas que por contar con tierras y medios apropiados, podrían iniciar siembras de ciertos tipos de tabaco, especialmente experimentales, que se tengan por convenientes.

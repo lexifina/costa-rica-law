@@ -1,0 +1,1 @@
+Artículo 32.-La distribución de los porcentajes a que se refiere el inciso b) del artículo 6° de la ley N° 2072 de 15 de noviembre de 1956, se hará tomando en cuenta la producción de todos los tipos de tabaco.
