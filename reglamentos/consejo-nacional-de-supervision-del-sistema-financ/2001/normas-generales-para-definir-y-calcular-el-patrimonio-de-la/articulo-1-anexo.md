@@ -47,7 +47,8 @@ conjuntamente. XXXX
 El valor en libros de la plusvalía comprada. XXXX
 Nombre y firma del Representante Legal Nombre y firma del Auditor Interno
 NOTAS:
-1/ Corresponde al 95% la diferencia entre las cuentas 500 y 400 cuando la cuenta 500 es mayor que la 400.
+1/ Corresponde a la diferencia entre las cuentas 500 y 400 cuando la cuenta 500 es mayor que la 400.
+(Así reformada la Nota 1, en sesión No. 381 de 22 de julio de 2003).
 2/ Las estimaciones genéricas serán determinadas de conformidad con el siguiente procedimiento:
 D(20041) Estimaciones genéricas XXXX
 C(139) Estimación para cartera de créditos XXXX
