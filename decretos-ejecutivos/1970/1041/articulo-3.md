@@ -1,0 +1,2 @@
+Artículo 3°-Con el propósito de facilitar la ejecución de las leyes N° 4347 de 2/7/1969 y N° 4454 publicada en “La Gaceta” N° 245 de 28/10/69 que modificaron la ley N° 4268 de 29/11/68, revalidada, para el ejercicio fiscal de 1970, por el artículo 3° de la ley N° 4475 de 10/3/70, se establecen los siguientes códigos contables:
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el Alcance N° 53 a La Gaceta N° 150 del 8 de julio de 1970.)
