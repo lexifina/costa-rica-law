@@ -1,2 +1,0 @@
-Artículo 6°-La Dirección General de Servicio Civil y la Oficina Técnica Mecanizada, no tramitarán acciones de personal en las que se propongan nombramientos en base a las excepciones establecidas en el articulo 39 anterior, si dichas acciones no tienen la aprobación expresa de la Comisión de Recursos Humanos.
-Se excluye de dicha aprobación las acciones de personal referidas a los incisos a) y b) del artículo 3° del presente decreto.
