@@ -14,3 +14,4 @@ Reforma Reglamento para la Formación y Control del Sistema Sorteante de Venta d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-10-13 | la propia norma |
+| 2 | 1995-04-18 | SINALEVI (sin norma nombrada) |
