@@ -1,1 +1,0 @@
-Artículo 12.—Los deudores podrán solicitar que se les muestren sus bienes, lo cual se hará contra la presentación del contrato de préstamo con una frecuencia no mayor de cinco veces durante la vigencia del préstamo.

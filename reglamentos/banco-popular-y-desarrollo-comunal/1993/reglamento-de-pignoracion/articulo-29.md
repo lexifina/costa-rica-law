@@ -1,1 +1,0 @@
-Artículo 29.—La venta del bien pignorado no se suspenderá por acción judicial del prestatario o terceros que lo contradiga, quedándole a salvo al reclamante su derecho sobre el producto de la venta una vez cobrados el saldo del préstamo, los intereses y otros gastos incurridos en la venta del bien.

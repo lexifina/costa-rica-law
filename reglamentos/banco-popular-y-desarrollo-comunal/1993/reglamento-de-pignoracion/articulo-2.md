@@ -1,1 +1,0 @@
-Artículo 2°—Que los préstamos sobre bienes, que se efectúen en el Departamento de Pignoración en la Cartera Social tendrán un monto de ¢ 1,0 hasta ¢ 100.000,00 y en la Cartera Financiera el monto será de más ¢ 100.000,00 y hasta ¢ 200.000,00.

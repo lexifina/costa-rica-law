@@ -1,1 +1,0 @@
-Artículo 1°—Conforme con lo dispuesto en los artículos 24 y 38 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal N° 4351 del 11 de julio de 1969 la Junta Directiva Nacional promulga el siguiente reglamento que regulara la organización y funcionamiento del Departamento de Pignoración.
