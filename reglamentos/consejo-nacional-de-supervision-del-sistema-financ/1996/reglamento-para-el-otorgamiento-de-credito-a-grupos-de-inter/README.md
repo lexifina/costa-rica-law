@@ -21,3 +21,4 @@ Reglamento para el otorgamiento de crédito a grupos de interés económico
 | 6 | 2002-09-24 | Reglamento 328 (2002-09-24) |
 | 7 | 2002-12-10 | Reglamento 345 (2002-12-10) |
 | 8 | 2003-04-01 | Reglamento 364 (2003-04-01) |
+| 9 | 2003-06-03 | Reglamento 374 (2003-06-03) |
