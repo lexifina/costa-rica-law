@@ -14,3 +14,4 @@ Reforma Estatuto Autónomo de Servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-29 | la propia norma |
+| 2 | 2000-05-16 | Ley 8 |
