@@ -1,0 +1,3 @@
+11.- INFORMACIÓN TÉCNICA Y ECONÓMICA
+Toda oferta deberá suministrar la información completa y suficiente que permita su análisis y estudio comparativo para efectos de adjudicación. El no suministro de la información que permita verificar su ajuste a las condiciones significativas del cartel, descalificará la oferta para efectos del análisis y adjudicación.
+San José, 13 de julio del 2004.—

@@ -1,0 +1,4 @@
+8.- OFERTA BASE Y OFERTAS ALTERNATIVAS
+8.1 La oferta base es aquella que cumple con los requisitos establecidos en el cartel de licitación. (Condiciones Generales, Condiciones Particulares, Especificaciones Técnicas).
+8.2 La oferta alternativa es aquella que además de cumplir con los requisitos básicos, la supera en beneficio de la Institución. Las ofertas alternativas se deben presentar en forma separada de la oferta base, indicando por aparte su precio, tiempo de entrega y características. Se debe incluir también una lista de las diferencias, ventajas o mejoras que dicha alternativa incorpora en relación con lo solicitado por el ICE.
+8.3 Se aceptarán y analizarán únicamente las ofertas alternativas presentadas por el proponente cuya oferta principal se ajuste en un todo a los requerimientos cartelarios y la legislación vigente.
