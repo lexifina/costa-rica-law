@@ -1,1 +1,0 @@
-Artículo 43.- Se prohíbe la pesca en los ríos, riachuelos y quebradas -hasta su desembocadura-, en los esteros, lagos y lagunas, de propiedad nacional, cuando se emplean explosivos, venenos, cal, arbaletas, atarrayas y cualquier otro método no autorizado por la presente ley o su reglamento.

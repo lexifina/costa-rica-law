@@ -1,2 +1,0 @@
-Artículo 30.- El Estado podrá establecer áreas de caza estatales, clasificadas como cotos de caza, bajo la administración del Ministerio de Agricultura y Ganadería, por medio del Departamento de Vida Silvestre de la Dirección General Forestal, y del Departamento de Estudios Biológicos. Los recursos económicos por servicios que se produzcan en estos cotos de caza ingresarán al fondo especial de la Dirección antes mencionada.
-Las regulaciones de esta áreas se establecerán en el reglamento de la presente ley.

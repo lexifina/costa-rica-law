@@ -1,1 +1,0 @@
-Artículo 4º.- Queda facultado el Poder Ejecutivo para establecer, por medio del Ministerio de Agricultura y Ganadería, los procedimientos y requisitos necesarios, así como los períodos de veda, para el ejercicio de la pesca y la caza continental e insular.

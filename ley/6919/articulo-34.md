@@ -1,1 +1,0 @@
-Artículo 34.- Decláranse armas de caza todas aquellas de cañón largo y las que en el futuro establezcan el reglamento de esta ley. La tenencia e inscripción de tales armas se regirá por las leyes y reglamentos que regulan la materia.
