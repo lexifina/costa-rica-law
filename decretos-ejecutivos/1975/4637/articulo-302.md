@@ -1,3 +1,2 @@
-CAPITULO IX
-Requisito Relativo a la Percepción de Colores para las Licencias
-Artículo 302.-Se emplearán los métodos de examen que garanticen la seguridad de la prueba de percepción de colores.
+Artículo 302.-Si la agudeza visual exigida por el artículo 301 solo se obtiene mediante el uso de lentes correctores y la agudeza visual natural de cada ojo por separado es 6/60 -20/200,0.1-, los solicitantes cuyos defectos de refracción en cada ojo por separado están dentro del margen + 5 dioptrías, se podrán considerar como aptos. Los solicitantes cuyos defectos de refracción en cada ojo estén fuera del margen + 5 dioptrías, lo que se conoce como error esférico equivalente, podrán, no obstante, ser aceptados como aptos de conformidad con un dictamen médico acreditado.
+(Así corrida su numeración mediante artículo 1° del decreto ejecutivo N° 23079 del 21 de marzo de 1994, que lo traspasó del antiguo artículo 301 al 302)

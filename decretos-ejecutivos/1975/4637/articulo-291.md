@@ -1,6 +1,2 @@
-Artículo 291.-Se exigirá .que el solicitante tenga una agudeza visual lejana de por lo menos 6/9 -20/30,0.7- en cada ojo, con lentes correctores o sin ellos. Cuando esta norma de agudeza visual sólo se obtenga mediante el uso de lentes correctores, podrá considerarse al solicitante como apto a condición dé que:
-a) Use lentes correctores mientras ejerza las atribuciones inherentes a la licencia o habilitación que solicita o posee;
-b) Posea una agudeza visual sin corrección por lo menos de 6/60 -20/200,0.1- en cada ojo por separado;
-c) El defecto de refracción esté dentro del margen de + dioptrías –error esférico equivalente-; y
-d) Tenga a su disposición un par de lentes correctores de repuesto al ejercer las atribuciones que le confiere una licencia de miembro de la tripulación.
-El solicitante aceptado que cumpla con las disposiciones del artículo anterior, sigue siendo apto a menos que haya razones para sospechar lo contrario, en dicho caso se podrá repetir la prueba de refracción a discreción de la autoridad otorgadora de licencias. No obstante, la agudeza visual no corregida se medirá y registrará cada vez que el solicitante sea sometido a examen médico; las condiciones que indican necesidad de determinar nuevamente el defecto de refracción incluyen: un estado de refracción cercana al límite de aceptabilidad, una disminución importante de la agudeza visual sin corrección y la aparición de oftalmopatía, lesiones del ojo o cirujía oftálmica.
+Artículo 291.-Se exigirá que el solicitante tenga campos visuales y visión de profundidad normales.
+(Así corrida su numeración mediante artículo 1° del decreto ejecutivo N° 23079 del 21 de marzo de 1994, que lo traspasó del antiguo artículo 290 al 291)

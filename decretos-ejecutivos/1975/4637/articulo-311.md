@@ -1,1 +1,2 @@
-Artículo 311.-La licencia no excederá de 15 X 19 centímetros con el propósito de que el tamaño de la licencia sea lo más pequeño posible para que cuando esté plegada quepa en una cartera de bolsillo de uso corriente.
+Artículo 311.-Los datos que figuran en la licencia se citarán uniformemente con las letras del abecedario conforme se establecen en el artículo 307 de modo que en cualquier licencia la letra correspondiente se refiera siempre al mismo dato, cualquiera que sea la disposición de la licencia.
+(Así corrida su numeración mediante artículo 1° del decreto ejecutivo N° 23079 del 21 de marzo de 1994, que lo traspasó del antiguo artículo 310 al 311)

@@ -1,3 +1,2 @@
-CAPITULO VII
-Requisito Visual N° 1
-Artículo 289.-La función del ojo y sus anexos será normal. No deberá existir condición patológica, aguda o crónica de ninguno de los dos ojos o anexos, que pueda interferir con su función correcta al extremo de poner en peligro la seguridad en vuelo en el cumplimiento seguro de las tareas pertinentes.
+Artículo 289.-Todo aquel que forme parte del personal de control de tránsito aéreo, con habilitación Radar y que ejerza esas funciones, deberá someterse semestralmente a un examen oftalmológico de Tonometría Ocular.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 23079 del 21 de marzo de 1994)
