@@ -1,8 +1,0 @@
-ARTICULO 20
-Todo miembro que haya ratificado el presente Convenio podrá
-denunciarlo a la expiración de un período de diez años, a partir de la
-fecha en que se haya puesto inicialmente en vigor, mediante un acta
-comunicada, para su registro al Director General de la Oficina
-Internacional del Trabajo. La denuncia no surtirá efecto hasta un año
-después de la fecha en que se haya registrado en la Oficina Internacional
-del Trabajo.
