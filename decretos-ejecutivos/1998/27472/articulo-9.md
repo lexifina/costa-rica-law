@@ -1,0 +1,2 @@
+De la administración de los vehículos
+Artículo 9°— Será responsabilidad del Jerarca del Ministerio velar porque las unidades administrativas, jefaturas, conductores y usuarios, observen, cumplan y hagan cumplir, según les corresponda, la normativa que regula los vehículos de uso oficia!, a efecto de garantizar un uso adecuado, racional y eficiente de estos recursos; para lo cual se apoyará en el Departamento de Administración de Bienes y Servicios, Directores Nacionales o Regionales, Jefes Administrativos y Jefes de Departamento.

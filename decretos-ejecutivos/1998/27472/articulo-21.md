@@ -1,0 +1,1 @@
+Artículo 21.—Para lograr el mayor aprovechamiento de los vehículos disponibles, se deberán agrupar en un sólo viaje varias solicitudes de transporte, que se dirijan hacía un mismo sitio o ruta, siempre que las circunstancias lo permitan, dando aviso oportuno a los interesados para lograr una adecuada coordinación del viaje.

@@ -1,0 +1,1 @@
+Artículo 33.—Una vez notificado el informe y remitido el mismo al Departamento de Recursos Humanos, corresponderá a dicho Departamento analizar el caso para emitir la resolución administrativa correspondiente, tanto en lo relativo a la responsabilidad civil, como disciplinaria, dentro de los términos legalmente establecidos.

@@ -1,0 +1,1 @@
+Artículo 27.—Los vehículos que por adquisición o convenio, ingresen al servicio del Ministerio, salvo que se estipulen regulaciones contrarias, deberán ser entregados al Departamento de Administración de Bienes y Servicios para que efectúe la asignación conforme lo establece el artículo 11, inciso c, y actualice los registros a que alude el artículo 4.
