@@ -1,6 +1,0 @@
-Subsidios por Enfermedad
-Artículo 76.- El servidor que fuere declarado incapacitado
-para trabajar por enfermedad o riesgo profesional, gozará de subsidio
-en proporción al tiempo servido, conforme a las regulaciones
-que determinan los artículos 34, 35 y 36 del Reglamento del
-Estatuto de Servicio Civil.
