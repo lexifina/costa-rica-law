@@ -14,3 +14,4 @@ Creación y Jurisdicción de la Aduana Central
 | --- | --- | --- |
 | 1 | 1989-10-16 | la propia norma |
 | 2 | 1996-06-14 | Decreto Ejecutivo 25270 (1996-06-14) |
+| 3 | 1996-06-14 | Ley 8 |
