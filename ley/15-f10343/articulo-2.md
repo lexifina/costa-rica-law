@@ -1,0 +1,1 @@
+Art. 2. Se dota este empleado con cuatrocientos pesos anuales, que pagará el Tesoro público del Estado á cuyo objeto fue establecido el arbitrio de que habla la orden de 9 de setiembre del año pasado; sin perjuicio de que cobre también los derechos de arancel en todos los negocios que se ventilaren por escrito ante él.
