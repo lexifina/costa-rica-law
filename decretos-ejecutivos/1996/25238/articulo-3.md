@@ -1,0 +1,1 @@
+Artículo 3º—El Laboratorio de Residuos del Ministerio de Agricultura y Ganadería, realizará un programa especial de monitoreo de residuos de CAPTAN, tanto con productos de consumo local como de exportación, para vigilar que no se sobrepasen los residuos internacionalmente permitidos, con base a los usos aprobados.
