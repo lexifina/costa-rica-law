@@ -1,6 +1,10 @@
-Artículo 19. Sanciones:
-La contravención a las normas del presente reglamento se sancionará de la siguiente forma:
-19.1 La instalación de actividades en edificios ya existentes que impliquen un uso que no concuerda con la zonificación indicada, ya sea un uso no permitido o un uso condicional no autorizado, se sancionará con la clausura del local y pérdida de patente, sin perjuicio de la responsabilidad penal en que se incurra.
-19.2 La Municipalidad o la Dirección de Urbanismo llevará a cabo la suspensión de toda obra que se ejecute en contravención a la zonificación: pudiendo disponer para ello del auxilio de la Fuerza Pública.
-19.3 Se aplicarán, además todas las sanciones civiles y penales contempladas en las leyes correspondientes.
-Serán acreedoras a dichas sanciones tanto los infractores como los funcionarios responsables del cumplimiento de este reglamento que consienten en la violación del mismo.
+CAPITULO IV
+Disposiciones Finales
+Artículo 19.— "Modificación de localización del Anillo de Contención Urbana-GAM y Calificación de Zona.
+Modifiqúese la ubicación del Anillo de Contención de la Gran Área Metropolitana, conocido como G.A.M. en el sector este del Distrito Primero de Oreamuno. Lo anterior, entre las coordenadas longitud 548 y 549 y latitud 203 a 205. Con los siguientes límites naturales: límite cantonal con el Cantón de Paraíso y siendo el límite natural el Río Blanquillo, al este y al sur, y la Calle Mata de Mora al norte. Lo anterior de conformidad con los planos de zonificación actualizados y debidamente aprobados por la Municipalidad de Oreamuno y el Instituto Nacional de Vivienda y Urbanismo. Para poderse desarrollar dicho lugar deben cumplirse previamente con las siguientes mejoras de infraestructura:
+a) Construcción de colectores pluviales hacia el Río Blanquillo y se proponen los retiros del Río Blanquillo, del margen superior, 20 metros al lado oeste de la margen.
+b) De los proyectos habitacionales que se ubiquen en dicha zona, los lotes resultantes podrán tener un área mínima de 200 m2, pero deberán presentar a la Municipalidad de Oreamuno, Departamento de Ingeniería, las pruebas de infiltración de un laboratorio reconocido por el Colegio Federado de Ingenieros y Arquitectos que indique que los lotes resultantes del Fraccionamiento pueden tener la medida indicada, en caso contrario, se rechazará la solicitud de segregación y visado, hasta el tamaño que indiquen las pruebas de infiltración.
+c) Cuando el terreno a desarrollar no cuente con los servicios urbanos mínimos a criterio de la Municipalidad, el Desarrollador deber garantizar ante la Corporación que estará en capacidad de brindar la dotación de esos servicios mínimos, rindiendo las garantías de cumplimiento del caso a satisfacción de la Municipalidad.
+d) La municipalidad estudiará la posibilidad de comprar terrenos en esta zona para que sean destinados a perforaciones de agua potable para abastecer la zona del preciado líquido.
+(Ver mapa en las páginas No. 22 y 23 de La Gaceta No. 178, del 13 de setiembre de 1999.)
+(Así reformado mediante Acuerdo N° 1054 del 01 de setiembre de 1999.)
