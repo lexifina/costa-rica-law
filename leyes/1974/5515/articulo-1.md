@@ -1,8 +1,7 @@
-Artículo 1º.- Se establece un impuesto de un dólar de los Estados
-Unidos de América ($ 1.00) sobre cada caja o envase de banano de 40
-libras netas que se exporte. Para cajas o envases de mayor o menor peso,
-el impuesto se aplicará proporcionalmente.
-Respecto al banano comprado en el país para su exportación, este
-impuesto será pagado por la compañía compradora, sin que en forma alguna
-pueda ser trasladado al productor. En este caso el Banco Central de Costa
-Rica determinará a quién corresponde el pago del impuesto.
+N° 5515
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
+DECRETA:
+Artículo 1º.- Se establece un impuesto de un dólar de los Estados Unidos de América ($ 1.00) sobre cada caja o envase de banano de 40 libras netas que se exporte. Para cajas o envases de mayor o menor peso, el impuesto se aplicará proporcionalmente.
+Respecto al banano comprado en el país para su exportación, este impuesto será pagado por la compañía compradora, sin que en forma alguna pueda ser trasladado al productor. En este caso el Banco Central de Costa Rica determinará a quién corresponde el pago del impuesto.
+NOTA: Por su artículo único, la Ley Nº 5538 de 18 de junio de 1974 interpretó auténticamente el presente artículo, en el sentido de que se entenderá por "compañía compradora" la persona física o jurídica que compre banano en Costa Rica por sí o mediante representante, apoderado o agente comercial, para venderlo en el extranjero, a nombre suyo o de roductores o de terceros; o bien, la persona física o jurídica que venda la fruta producida en fincas de su propiedad directamente al exterior.
+Se entenderá por "productor" a la persona física o jurídica que produzca banano y lo venda a intermediarios, nacionales o extranjeros, para su exportación, aunque el productor aparezca como exportador para efectos del conocimiento de embarque, póliza de exportación, facturas o cualquier otro documento, o que esté registrado en el Banco Central como exportador, en virtud de contratos de venta CIF o FOB puerto costarricense.
