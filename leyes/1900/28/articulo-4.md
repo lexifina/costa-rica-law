@@ -1,0 +1,1 @@
+Artículo 4° Las semillas cosechadas en la Granja serán repartidas gratuitamente, y a precio de costo los almácigos. Los animales de cría se venderán a moderado precio. El apareamiento será gratuito, siempre que se haga en condiciones que garanticen la mejora de las razas del país.

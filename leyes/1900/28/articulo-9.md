@@ -1,0 +1,1 @@
+Artículo 9° Cultivará relaciones activas con institutos agrícolas, jardines de aclimatación y establecimientos similares del extranjero para mantener al país al tanto del movimiento agrícola universal. Con este mismo intento se procurará la permuta o canjeo de sus publicaciones por otras de igual índole de países extranjeros.
