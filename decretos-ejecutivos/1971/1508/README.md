@@ -15,3 +15,4 @@ Reglamento de Reorganización y Racionalización del Ministerio de Trabajo y Bie
 | --- | --- | --- |
 | 1 | 1971-02-26 | la propia norma |
 | 2 | 1971-03-25 | Decreto Ejecutivo 1644 (1971-03-25) |
+| 3 | 1992-06-22 | Decreto Ejecutivo 21403 (1992-06-22) |
