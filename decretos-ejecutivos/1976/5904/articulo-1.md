@@ -260,7 +260,12 @@ De este punto se sigue aguas arriba por un afluente del río Limón, llamado Que
 310 100 566 750
 309 850 567 450
 309 400 567 100
-De este punto se continúa aguas arriba por el río Limón hasta la unión con el río Chico; se sigue aguas arriba por el río Chico, hasta la unión de sus dos nacientes en coordenadas N 307 300, E 568 600. Continúa con rumbo SE, por una de las nacientes del río Chico, llamado Copey, hasta un punto de coordenadas N 305 200, E 568 050. Se continúa aguas arriba por el río Chico, hasta su nacimiento en coordenadas N 303 850, E 568 300.
+De este punto se continúa aguas arriba por el río Limón hasta la unión con el río Chico, se sigue aguas arriba por el río Chico, hasta la unión de sus dos nacientes con coordenadas N 307 300, E 568 600.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 12751 del 26 de junio de 1981)
+Continúa con rumbo SE, por una de las nacientes del río Chico, llamada Copey, hasta un punto de coordenadas N 305 200, E 569 450.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 12751 del 26 de junio de 1981)
+De aquí al punto de coordenadas N 305 200, E 568 050. Se continúa aguas arriba por el río Chico hasta su naciente en coordenadas N 303 850, E 568 300".
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 12751 del 26 de junio de 1981)
 A partir de este punto se continúa con las siguientes coordenadas:
 303 650 568 450
 303 300 568 050
@@ -289,7 +294,7 @@ De este punto, al punto de origen de la presente descripción, vértice Angucian
 (*) (Así adicionado los caseríos anteriores por el artículo 4° del decreto ejecutivo N° 12232 del 26 de enero de 1981)
 (Así reformado por el artículo 2° del decreto ejecutivo N° 12232 del 26 de enero de 1981)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 12232 del 26 de enero de 1981, se acordó modificar los linderos de la Reserva Indígena Guaymí de Coto Brus, a fin de incluir en ella al grupo indígena de Paraíso y excluir los Altos del Cerro Paraguas)
-(Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 12232 del 26 de enero de 1981, se indicó que la Reserva Indígena Guaymí de Coto Brus, en referencia a la División Político - Administrativa, tendrá en adelante calidad de "Barrio" del cantón de Coto Brus)
+(Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 12232 del 26 de enero de 1981, se indicó qie la Reserva Indígena Guaymí de Coto Brus, en referencia a la División Político - Administrativa, tendrá en adelante calidad de "Barrio" del cantón de Coto Brus)
 RESERVA INDÍGENA GUAYMÍ DE CONTE-BURICA(*)
 (Mediante el artículo 1° del decreto ejecutivo N° 8514 del 2 de mayo de 1978, se indicó que la Reserva Indígena de Burica se llamará en adelante: "Reserva Indígena Guaymí de Conteburica")
 La Reserva Indígena Guaymí de Conte-Burica se encuentra localizada en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Pavón 3541 - II, Río Caña Blanca 3540 - I, Laurel 3641 III, Puerto Armuelles 3640 - IV.
