@@ -1,0 +1,1 @@
+ARTÍCULO 9°.-Antes de cargar los alambiques, y en cada una de estas operaciones, se limpiarán y lavarán con todo esmero, a efecto de impedir que los guarapos se mezclen con alguna sustancia daños a la salud. Los residuos o vinagres inútiles que resulten de la destilación, se mandarán derramar diariamente sobre las aguas de uno de los ríos mas próximos a la fábrica.
