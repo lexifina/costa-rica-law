@@ -1,0 +1,1 @@
+Artículo 90.—Denuncia ante los órganos jurisdiccionales. La Municipalidad procederá a denunciar ante los órganos jurisdiccionales competentes, a los propietarios que hagan caso omiso de la orden de cierre o clausura que les gire de acuerdo con este Reglamento o de cualquiera otra orden tendiente a la correcta utilización de la patente otorgada.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Aplicación. El presente Reglamento será de aplicación a toda persona física o jurídica que se dedique al ejercicio de cualquier actividad lucrativa dentro de la jurisdicción del cantón central de Alajuela.

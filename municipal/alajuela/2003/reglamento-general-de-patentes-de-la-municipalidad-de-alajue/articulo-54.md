@@ -1,0 +1,1 @@
+Artículo 54.—Órgano competente para resolver la solicitud de Licencia. Corresponde al Concejo Municipal, previo dictamen de la Comisión de Gobierno y Administración que acredite en cumplimiento de todos lo requisitos, aprobar o rechazar las solicitudes de patentes para ventas ambulantes o estacionarias.

@@ -1,0 +1,6 @@
+CAPITULO II
+Trámite para el otorgamiento de las licencias comerciales
+Artículo 13.—Tipos de licencias comerciales. La Municipalidad podrá otorgar según la actividad, licencias comerciales permanentes o licencias comerciales temporales, de conformidad con los siguientes criterios:
+1. Licencias comerciales permanentes: son aquellas que se otorgan para ejercer una actividad de forma continua y permanente, su explotación no implica de forma alguna, la puesta en peligro del orden público, entendido este como la paz social, la tranquilidad, la seguridad, la moral y las buenas costumbres. No deben ser renovadas por el patentado, sin embargo, pueden ser revocadas por la Administración Municipal, cuando el establecimiento comercial por una causa sobrevenida, no reúna los requisitos mínimos establecidos por ley para su explotación, haya variado el giro de su actividad, o su actividad se esté desarrollando en evidente violación a la ley y/o al orden.
+2. Licencias comerciales temporales: son otorgadas por la Municipalidad para el ejercicio de actividades lucrativas de carácter temporal, tales como fiestas cívicas y patronales, turnos, ferias y afines.
+Se podrán otorgar hasta por un mes y podrán ser revocadas cuando la explotación de la actividad autorizada, sea variada o cuando la misma implique una violación a la ley y/o al orden público.

@@ -1,0 +1,1 @@
+Artículo 72.—Tarifa del impuesto. Por concepto de impuesto de patente, se aplicará una tarifa del cero coma quince por ciento (0,15%) sobre los ingresos brutos reportados. Esta suma dividida entre cuatro, determinará el impuesto trimestral por pagar.

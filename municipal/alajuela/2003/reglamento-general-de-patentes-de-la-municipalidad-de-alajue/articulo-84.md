@@ -1,0 +1,2 @@
+Artículo 84.—Gravamen a actividades recientemente establecidas. Para gravar toda actividad lucrativa recién establecida o para los contribuyentes que nunca han presentado declaración, la Municipalidad determinará el monto del impuesto, conforme las reglas previstas en el artículo 15 de la Ley de Impuestos Municipales del Cantón Central de Alajuela.
+Contra dicha fijación cabrá en lo conducente, el procedimiento establecido en el artículo 84 de este Reglamento.

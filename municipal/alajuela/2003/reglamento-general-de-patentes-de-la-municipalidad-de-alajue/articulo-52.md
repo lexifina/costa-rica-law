@@ -1,0 +1,1 @@
+Artículo 52.—Diseño de los puestos. El diseño de los puestos será el que indique la Municipalidad previa aprobación del Departamento de Diseño. Las dimensiones máximas serán: setenta y cinco centímetros de ancho por ciento veinte centímetros de largo. El área que ocupa un puesto no podrá ampliarse de ninguna forma; ni siquiera con toldos o plásticos o cualquier otro objeto

@@ -1,0 +1,1 @@
+Artículo 62.—Restricciones de horario. En todo caso, el Concejo Municipal podrá imponer restricciones en el horario de funcionamiento de los expendios temporales y requerir determinadas condiciones físicas de los locales, todo con el fin de garantizar el orden y la tranquilidad pública y la protección a menores de edad.

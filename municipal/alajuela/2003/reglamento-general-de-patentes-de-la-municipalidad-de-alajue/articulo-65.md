@@ -1,0 +1,1 @@
+Artículo 65.—Órgano encargado de revisar las solicitudes. Corresponderá al Departamento de Tributos comprobar que todos los requisitos fueron presentados debidamente. Caso contrario, esa dependencia devolverá la solicitud al interesado, con indicación de los defectos encontrados.
