@@ -1,0 +1,4 @@
+Segunda:
+El artículo 4° debe leerse así:
+Los bancos no podrán adquirir mas bienes raíces que los que sean absolutamente precisos para el establecimiento de sus oficinas y dependencias. Podrán, sin embargo, adquirir inmuebles en pago de sus créditos.
+De los inmuebles que adquieran los bancos en la forma últimamente dicha, deberán disponer dentro de cinco años a contar de la fecha de su adquisición si no lo hicieren así, la Secretaría de Hacienda, comprobada la fecha de adquisición y sin necesidad de otro trámite, ordenará la venta de dichos inmuebles por medio de un notario. La venta que ordene la Secretaría de Hacienda, se anunciará con un mes de anticipación en el periodo oficial, y se hará efectiva dentro de los dos meses siguientes a mas tardar, sin base, al mejor postor. Del precio obtenido se deducirán los gastos de venta y el resto se entregarán al Banco.
