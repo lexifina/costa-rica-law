@@ -1,0 +1,9 @@
+Artículo 2°—Fíjase la contribución obligatoria establecida en el numeral ii) del inciso b) del artículo 9 de la Ley N° 7638 de 30 de octubre de 1996, en la forma siguiente:
+1. Las empresas acogidas al régimen de zona franca, clasificadas como procesadoras de exportación de conformidad con el inciso a) del artículo 17 de la Ley N° 7210 de 23 de noviembre de 1990, pagarán una suma mensual equivalente a:
+a) Veinticinco centavos de dólar, moneda de los Estados Unidos de América (US$0,25), por cada metro cuadrado de techo industrial, hasta cinco mil metros cuadrados de techo industrial.
+b) Sobre el exceso de cinco mil metros cuadrados y hasta siete mil quinientos metros cuadrados de techo industrial, un ochenta por ciento (80%) de la suma indicada en el inciso a).
+c) Sobre el exceso de siete mil quinientos metros cuadrados y hasta diez mil metros cuadrados de techo industrial, un sesenta por ciento (60%) de la suma indicada en el inciso a).
+d) Sobre el exceso de diez mil metros cuadrados de techo industrial, un cincuenta por ciento (50%) de la suma indicada en el inciso a).
+2. Las demás empresas acogidas al régimen de zona franca, clasificadas de conformidad con cualquiera de los incisos b) al e) del artículo 17 de la Ley N° 7210 de 23 de noviembre de 1990, pagarán el equivalente al cero coma treinta por ciento (0,30%) del volumen de sus ventas mensuales.
+3. Las empresas acogidas al régimen de zona franca a las cuales se les haya autorizado operar fuera de un parque industrial, pagarán el doble de las sumas indicadas en los numerales 1 y 2 anteriores, según corresponda. Lo mismo se aplicará a las plantas satélites.
+4. En todo caso, el monto mínimo mensual por pagar, para todas las empresas acogidas al régimen de zona franca, no será inferior al equivalente a doscientos dólares, moneda de los Estados Unidos de América (US$200.00).
