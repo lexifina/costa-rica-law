@@ -1,0 +1,1 @@
+Artículo 30.—Todo buque al que sea aplicable el presente Reglamento que desee entrar en un puerto nacional facilitará la información indicada en el artículo anterior a petición de funcionarios debidamente autorizados. En el caso de no facilitar la información por el Capitán, la DNSM podrá denegar la entrada al puerto nacional.

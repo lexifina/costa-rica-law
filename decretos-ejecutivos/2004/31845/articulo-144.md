@@ -1,0 +1,1 @@
+Artículo 144.—Se remitirá lo antes posible una copia del certificado y del informe de la verificación a la autoridad designada homóloga, solicitante, según lo estipulado en el primer párrafo del artículo anterior.

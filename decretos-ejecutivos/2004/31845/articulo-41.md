@@ -1,0 +1,1 @@
+Artículo 41.—La DNSM establecerá y notificará las medidas que deben adaptarse en el plan de protección de la instalación portuaria para los diferentes niveles de protección, incluidos los casos en que será necesaria la presentación de una declaración de protección marítima, según se define en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 78.—La DNSM podrá delegar en una Organización de Protección Reconocida (OPR) la evaluación de la protección de un determinado buque de conformidad con los lineamientos del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 140.—En todos los casos, la DNSM deberá garantizar plenamente que la verificación realizada es completa y eficaz y deberá comprometerse a tomar las medidas necesarias para cumplir esta obligación.

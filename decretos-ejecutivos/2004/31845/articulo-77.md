@@ -1,0 +1,1 @@
+Artículo 77.—El Oficial de la Compañía para la protección marítima (OCPM) garantizará que las personas que realicen la evaluación de la protección del buque tengan los conocimientos necesarios para llevar a cabo esa labor, de conformidad con lo dispuesto en el presente Reglamento y conforme con los estándares internacionales en la materia.

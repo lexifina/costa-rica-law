@@ -1,0 +1,1 @@
+Artículo 31.—El buque mantendrá un registro de la información mencionada en el artículo 29 del presente Reglamento correspondiente a las últimas diez instalaciones portuarias visitadas, conforme a lo señalado en los artículos del 93 al 96 del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 72.—En tales casos, el oficial de protección del buque (OPB) deberá mantenerse en contacto con el oficial de protección de la instalación portuaria (OPIP) para coordinar las medidas oportunas.

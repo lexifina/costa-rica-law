@@ -1,0 +1,1 @@
+Artículo 148.—Cuando la verificación de renovación se concluya dentro de los tres meses anteriores a la fecha de expiración del certificado existente, el nuevo certificado será válido desde la fecha en que se concluya la verificación de renovación hasta una fecha que no sea posterior en más de cinco años a la fecha de expiración del certificado existente.

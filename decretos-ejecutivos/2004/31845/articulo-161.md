@@ -1,0 +1,1 @@
+Artículo 161.—El certificado internacional provisional de protección del buque será válido por un periodo de seis meses, o hasta que se expida el certificado prescrito en el artículo ciento cuarenta y dos de este Reglamento, si esta última fecha es anterior, y no podrá prorrogarse.

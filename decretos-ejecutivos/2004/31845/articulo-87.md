@@ -1,0 +1,1 @@
+Artículo 87.—La DNSM determinará qué cambios de un plan de protección del buque (PPB) aprobado o del equipo de protección especificado en un plan aprobado no se implementarán sin que se haya aprobado las correspondientes enmiendas. Estos cambios serán por lo menos tan eficaces como las medidas prescritas en el presente Reglamento.

@@ -1,0 +1,2 @@
+Artículo 61.—La DNSM especificará el periodo mínimo por el que los buques con derecho a enarbolar su pabellón deberán conservar las declaraciones de protección marítima, según el Artículo 31 del presente Reglamento.
+En el caso de que un buque con derecho de enarbolar su pabellón, solicite una DPM, el oficial de protección de la instalación portuaria (OPIP) o el oficial de protección del buque (OPB) deben acusar recibo de la solicitud y examinar las medidas de protección oportunas.

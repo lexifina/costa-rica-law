@@ -1,0 +1,1 @@
+Artículo 112.—Cuando se comunique a un Oficial de protección de una instalación portuaria (OPIP) que un buque se encuentra en un nivel de protección más alto que el de la instalación portuaria, dicho oficial deberá informar de ello a la DNSM, y deberá mantenerse en contacto con el Oficial de protección del buque (OPB) y coordinar las medidas oportunas.

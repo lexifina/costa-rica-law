@@ -1,0 +1,2 @@
+Artículo 120.—Concluida la evaluación de la protección de la instalación portuaria, se elaborará un informe que consistirá en un resumen de la manera en la que se llevó a cabo la evaluación, una descripción de cada punto vulnerable detectado durante la evaluación y una descripción de las medidas que podrían aplicarse para contrarrestar cada uno de esos puntos vulnerables.
+En el caso de que lo haya realizado OPR deberá remitirse a la DNSM para su respectivo control, en ambos casos, se protegerá contra el acceso o la divulgación no autorizados.

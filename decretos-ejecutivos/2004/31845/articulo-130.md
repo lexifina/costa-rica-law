@@ -1,0 +1,1 @@
+Artículo 130.—La DNSM podrá autorizar que el plan de protección de una instalación portuaria abarque más de una instalación portuaria cuando el explotador, la ubicación, el funcionamiento, el equipo y el proyecto de tales instalaciones sean semejantes. Los pormenores de dicha autorización deberán ser comunicados por la DNSM a la OMI.

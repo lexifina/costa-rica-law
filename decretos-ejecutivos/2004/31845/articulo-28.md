@@ -1,0 +1,8 @@
+Artículo 28.—Las medidas de control serán las siguientes: inspección del buque, demora del buque, detención del buque, restricción de sus operaciones, incluidos los movimientos dentro del puerto, o expulsión del buque del puerto. Tales medidas de control podrán además, o como alternativa, incluir otras medidas administrativas o correctivas, tales como, pero no limitadas a:
+1) El examen del certificado que muestra que no es válido o ha expirado.
+2) Las pruebas fiables de la existencia de deficiencias graves en el equipo, los documentos o los medios de protección prescritos en el presente Reglamento.
+3) La recepción de un informe o denuncia, según el criterio del funcionario debidamente autorizado, contiene información fiable que indica que el buque no cumple las disposiciones del presente Reglamento.
+4) En caso en que determine que el Capitán o el personal del buque no están familiarizados con el procedimiento de protección y ejercicios relacionados con la protección del buque.
+5) En caso en que determine que el personal clave del buque carece de métodos para establecer una comunicación correcta con otros miembros responsables de la protección a bordo del buque.
+6) Que posea prueba que el buque ha embarcado personas o ha cargado provisiones o mercancías en una instalación portuaria, o desde otro buque u otra fuente, que incumplan con las normas y procedimientos del presente Reglamento.
+7) Que posea un segundo certificado internacional de protección del buque provisional expedido consecutivamente al inicial y que demuestre ausencia de pleno conocimiento del período de validez del certificado provisional de conformidad con el presente Reglamento.

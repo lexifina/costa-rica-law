@@ -1,0 +1,1 @@
+Artículo 22.—La DNSM habilitará un punto de contacto mediante el que tales buques puedan solicitar asesoramiento o asistencia y al que tales buques puedan informar de cualquier inquietud de protección que tengan acerca de otros buques, movimientos o comunicaciones.

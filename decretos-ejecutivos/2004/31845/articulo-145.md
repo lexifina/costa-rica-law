@@ -1,0 +1,1 @@
+Artículo 145.—El certificado así expedido incluirá una declaración que se efectuó a petición de la autoridad designada homóloga solicitante, y tendrá la misma validez y gozará del mismo reconocimiento que el expedido en virtud de este Reglamento y de la normativa internacional vigente en la materia.

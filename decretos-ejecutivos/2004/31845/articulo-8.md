@@ -1,0 +1,1 @@
+Artículo 8º—La DNSM deberá someter a prueba, la eficacia de los planes de protección de los buques y de las instalaciones portuarias que hayan aprobado; en el caso de los buques, que hayan sido aprobados en su nombre, y de las enmiendas a esos planes.

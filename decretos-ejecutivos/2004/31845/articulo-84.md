@@ -1,0 +1,1 @@
+Artículo 84.—Cuando se presente para aprobación un plan de protección del buque (PPB) o enmiendas a un plan previamente aprobado, se acompañará la evaluación de la protección que haya servido de base para la elaboración del plan o de las enmiendas.

@@ -1,0 +1,1 @@
+Artículo 59.—La declaración de protección marítima recogerá las medidas de protección necesarias que podrían repartirse entre el buque y la instalación portuaria, o entre los buques, y establecerá las responsabilidades de cada parte.

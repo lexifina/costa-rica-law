@@ -1,0 +1,1 @@
+Artículo 13.—Cuando un buque no cumpla con las prescripciones del presente Reglamento o no pueda respetar las prescripciones del nivel de protección fijado por la DNSM, queda facultado para enviar notificación a la autoridad homóloga que corresponda antes de llevar a cabo una operación de interfaz buque-puerto o antes de la entrada en puerto.

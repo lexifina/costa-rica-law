@@ -1,0 +1,1 @@
+Artículo 73.—Cuando la DNSM exige a los buques con derecho a enarbolar el pabellón nacional que establezcan un nivel de protección 2 ó 3 en un puerto de una autoridad homóloga, deberá informar inmediatamente de ello a esa autoridad homóloga.

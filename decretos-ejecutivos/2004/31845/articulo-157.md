@@ -1,0 +1,3 @@
+Artículo 157.—En caso de que:
+1) Un buque nacional cambie su pabellón por otro, la DNSM transmitirá lo antes posible a la autoridad designada homologa copias del certificado internacional de protección del buque que llevara el buque antes del cambio, o toda la información relativa al mismo y copias de los informes de verificación disponibles.
+2) Una Compañía asuma la responsabilidad de la explotación de un buque que no haya explotado anteriormente, la antigua Compañía transmitirá lo antes posible a las nuevas copias de toda información relativa al certificado internacional de protección del buque o que pueda facilitar las verificaciones descritas para aplicar lo concernientes al artículo 159 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 108.—En el nivel de protección 2, se aplicarán las medidas de protección adicionales especificadas en el plan de protección de la instalación portuaria para cada una de las actividades señaladas en el artículo anterior, teniendo en cuenta los estándares internacionales en la materia.

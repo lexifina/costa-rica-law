@@ -1,0 +1,1 @@
+Artículo 60.—La DNSM especificará el periodo mínimo por el que las instalaciones portuarias situadas dentro del país deberán conservar las declaraciones de protección marítima, conforme con el presente Reglamento.

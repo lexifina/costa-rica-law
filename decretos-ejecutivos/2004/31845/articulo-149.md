@@ -1,0 +1,1 @@
+Artículo 149.—Cuando la verificación de renovación se concluya después de la fecha de expiración del certificado existente, el nuevo certificado será válido desde la fecha en que se concluya la verificación de renovación hasta una fecha que no sea posterior en más de cinco años a la fecha de expiración del certificado existente.

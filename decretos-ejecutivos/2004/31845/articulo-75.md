@@ -1,0 +1,1 @@
+Artículo 75.—Al comunicar a tales buques el nivel de protección aplicable, la DNSM también les comunicará, teniendo en cuenta los estándares internacionales en la materia, cualquier medida de protección que deban adoptar para dar protección contra la amenaza.

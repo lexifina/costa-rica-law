@@ -1,0 +1,1 @@
+Artículo 37.—Las medidas de control mencionadas en el artículo 28 y en el artículo 33, ambos de este Reglamento, sólo se atribuirán hasta que se haya corregido el incumplimiento que dio lugar a la adopción de las medidas de control o a las disposiciones de manera que la DNSM encuentre de forma satisfactoria, sobre la base de las medidas propuestas por el buque.

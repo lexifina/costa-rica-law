@@ -1,0 +1,1 @@
+Artículo 94.—Conforme a la OMI, los registros se mantendrán en el idioma o idiomas oficiales; en el caso de que no sea un idioma oficial, se incluirá una traducción a uno de estos idiomas, preferentemente en idioma español.

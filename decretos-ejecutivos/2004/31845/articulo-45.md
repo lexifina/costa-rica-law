@@ -1,0 +1,1 @@
+Artículo 45.—Estos acuerdos se revisarán periódicamente, teniendo en cuenta la experiencia adquirida y cualquier cambio en las circunstancias de cada caso o las amenazas que se perciban para los buques, las instalaciones portuarias o las rutas cubiertas por el acuerdo.

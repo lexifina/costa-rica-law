@@ -1,0 +1,1 @@
+Artículo 114.—La evaluación de la protección de la instalación portuaria nacional será realizada por la DNSM y ésta a su vez podrá autorizar a una Organización de Protección Reconocida (OPR) para que realice la evaluación de la protección de una determinada instalación portuaria nacional.

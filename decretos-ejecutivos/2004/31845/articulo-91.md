@@ -1,0 +1,1 @@
+Artículo 91.—Los planes de protección de los buques no están sujetos a la inspección de los oficiales debidamente autorizados por la DNSM para tomar las medidas de control y cumplimiento estipulado en el presente Reglamento, salvo en las circunstancias especificadas en el artículo siguiente.

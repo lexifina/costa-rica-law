@@ -1,0 +1,1 @@
+Artículo 104.—Para garantizar la implementación e instauración eficaz y eficiente del plan de protección del buque (PPB), se llevarán a cabo ejercicios a intervalos adecuados y según el tipo de buque, los cambios en el personal del buque, las instalaciones portuarias que se van a visitar y otras circunstancias del caso, así como los estándares internacionales en la materia.

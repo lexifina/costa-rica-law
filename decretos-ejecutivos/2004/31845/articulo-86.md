@@ -1,0 +1,1 @@
+Artículo 86.—El personal que lleve a cabo las auditorías internas de las actividades de protección especificadas en el plan o que evalúe su implementación será independiente de las actividades objeto de verificación.

@@ -1,0 +1,1 @@
+Artículo 137.—El Oficial de protección de la instalación portuaria garantizará la coordinación e implementación eficaces del plan de protección de la instalación portuaria mediante su participación en prácticas a intervalos adecuados, teniendo en cuenta los estándares internacionales en la materia.

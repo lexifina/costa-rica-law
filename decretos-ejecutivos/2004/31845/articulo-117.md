@@ -1,0 +1,1 @@
+Artículo 117.—Las evaluaciones de la protección de la instalación portuaria (EPIP) se revisarán y actualizarán periódicamente, considerando posibles cambios de las amenazas y/o los cambios menores en la instalación portuaria y, en todos los casos, se revisarán y actualizarán cuando se registren cambios importantes en la instalación portuaria.

@@ -1,0 +1,1 @@
+Artículo 109.—En el nivel de protección 3, se aplicarán otras medidas concretas de protección especificadas en el plan de protección de la instalación portuaria para cada una de las actividades señaladas en el artículo 107 de este Reglamento y conforme con los estándares internacionales en la materia.

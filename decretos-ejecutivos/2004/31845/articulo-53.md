@@ -1,0 +1,1 @@
+Artículo 53.—Cuando la DNSM permita, conforme con el presente Reglamento, que se adopten medidas de protección equivalentes respecto de un buque con derecho a enarbolar su pabellón nacional o de una instalación portuaria situada en el territorio nacional, deberá comunicar a la OMI los pormenores de este hecho.

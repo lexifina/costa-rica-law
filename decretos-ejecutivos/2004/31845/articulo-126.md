@@ -1,0 +1,1 @@
+Artículo 126.—El plan de protección de la instalación portuaria podrá combinarse con el plan de protección del puerto o cualquier otro plan del puerto para situaciones de emergencia, o formar parte de ellos.

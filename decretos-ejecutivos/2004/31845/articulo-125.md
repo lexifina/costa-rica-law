@@ -1,0 +1,1 @@
+Artículo 125.—El personal que realice las auditorías internas de las actividades de protección especificadas en el plan o que evalúe su implementación, será independiente de las actividades objeto de verificación, a menos que esto no sea factible por el tamaño y la naturaleza de la instalación portuaria.

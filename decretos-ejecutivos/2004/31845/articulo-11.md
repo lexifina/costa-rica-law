@@ -1,0 +1,1 @@
+Artículo 11.—Los buques antes de entrar en un puerto situado dentro del territorio nacional o durante la permanencia en dicho puerto, cumplirán las prescripciones correspondientes al nivel de protección establecido por la DNSM, aún en el caso de que ese nivel sea superior al establecido para ese buque.

@@ -1,0 +1,1 @@
+Artículo 115.—En el caso que la evaluación de la protección de la instalación portuaria nacional haya sido realizada por una Organización de Protección Reconocida (OPR), la DNSM examinará dicha evaluación y la aprobará si cumple con lo dispuesto en el presente Reglamento.

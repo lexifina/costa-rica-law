@@ -1,0 +1,1 @@
+Artículo 67.—En el nivel de protección 2, se aplicarán las medidas de protección adicionales especificadas en el plan de protección del buque para cada una de las actividades señaladas en el artículo anterior, teniendo en cuenta los estándares internacionales en la materia.

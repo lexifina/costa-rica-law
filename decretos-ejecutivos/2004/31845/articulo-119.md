@@ -1,0 +1,1 @@
+Artículo 119.—La DNSM podrá autorizar que la evaluación de la protección de la instalación portuaria abarque más de una instalación portuaria cuando el explotador, la ubicación, el funcionamiento, el equipo y el proyecto de tales instalaciones sean semejantes. Los pormenores de dicha autorización deberá ser comunicada por la DNSM a la OMI.

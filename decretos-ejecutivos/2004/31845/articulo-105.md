@@ -1,0 +1,1 @@
+Artículo 105.—El Oficial de la Compañía para la protección marítima (OCPM) garantizará la coordinación e implementación eficaz de los planes de protección de los buques (PPB) mediante su participación en prácticas a intervalos adecuados, teniendo en cuenta los estándares internacionales en la materia.

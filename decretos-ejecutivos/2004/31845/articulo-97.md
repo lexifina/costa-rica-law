@@ -1,0 +1,3 @@
+CAPÍTULO XVIII
+Oficial de la compañía para la protección marítima (OCPM)
+Artículo 97.—La compañía designará a un oficial de la compañía para la protección marítima (OCPM). La persona designada como OCPM podrá desempeñar este cargo respecto de uno o más buques, según el número o el tipo de buques que explote la misma compañía, siempre que se indique claramente de qué buques es responsable dicha persona. En función del número o el tipo de buques que explote, la compañía podrá designar varias personas como sus oficiales con ese rango, siempre que se indique claramente de qué buques es responsable cada persona.

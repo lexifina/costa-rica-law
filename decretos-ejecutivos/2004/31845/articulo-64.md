@@ -1,0 +1,1 @@
+Artículo 64.—La compañía garantizará que el oficial de la compañía para la protección marítima, el capitán y el OPB del buque cuentan con el apoyo necesario para desempeñar sus tareas y responsabilidades de conformidad con el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 146.—El certificado internacional de protección del buque se ajustará al modelo que se utiliza según los estándares internacionales en la materia y el idioma utilizado será en uno de los idiomas oficiales y acreditados por la OMI, caso contrario, deberá incluir una traducción a uno de los idiomas oficiales, preferiblemente el español.

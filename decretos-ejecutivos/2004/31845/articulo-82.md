@@ -1,0 +1,1 @@
+Artículo 82.—La DNSM podrá delegar en una Organización de Protección Reconocida (OPR) quién podría preparar un plan de protección del buque (PPB), un examen y aprobación de PPB, de un determinado buque de conformidad con los lineamientos del presente Reglamento.

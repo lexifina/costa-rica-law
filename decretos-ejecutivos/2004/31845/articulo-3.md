@@ -1,0 +1,6 @@
+Artículo 3º—Los objetivos del presente Reglamento son:
+1) Establecer un marco normativo que canalice la cooperación entre la República de Costa Rica, por medio de la autoridad designada con los administraciones locales, sector naviero-portuario y autoridades homologas designadas de otros países con la finalidad de detectar las amenazas a la protección y adoptar medidas preventivas contra los sucesos que afecten a la protección de los buques o instalaciones portuarias utilizadas para el comercio internacional.
+2) Definir las funciones y responsabilidades respectivas del Estado costarricense, las administraciones locales y los sectores naviero y portuario a nivel nacional, con objeto de garantizar la protección marítima.
+3) Garantizar que se recopile e intercambie con prontitud y eficacia la información relacionada con la protección.
+4) Ofrecer una metodología para efectuar evaluaciones de la protección a fin de contar con planes y procedimientos que permitan reaccionar a los cambios en los niveles de protección.
+5) Garantizar la confianza en sus instalaciones portuarias y en buques con medidas de protección marítima adecuadas, proporcionadas y que cumplan con los estándares internacionales en la materia.

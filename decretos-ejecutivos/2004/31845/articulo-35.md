@@ -1,0 +1,1 @@
+Artículo 35.—Cuando se deniegue la entrada a un puerto o se obligue a un buque a abandonarlo, la DNSM deberá comunicar los hechos oportunos a las Autoridades Designadas homologas de otros Estados, del próximo puerto de escala, si se conoce, en concordancia con las directrices de la OMI. La comunicación se garantiza que es confidencial y se transmitirá por medios seguros.

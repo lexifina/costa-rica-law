@@ -1,0 +1,1 @@
+Artículo 95.—Los registros podrán mantenerse en formato electrónico o digital. En tal caso, estarán protegidos mediante procedimientos destinados a evitar que se borren, destruyan o alteren sin autorización.

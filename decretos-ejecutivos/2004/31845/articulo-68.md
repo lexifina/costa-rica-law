@@ -1,0 +1,1 @@
+Artículo 68.—En el nivel de protección 3, se aplicarán otras medidas concretas de protección especificadas en el plan de protección del buque para cada una de las actividades señaladas en el artículo 66 de este Reglamento, teniendo en cuenta los estándares internacionales en la materia.

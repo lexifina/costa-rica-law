@@ -1,0 +1,1 @@
+Artículo 116.—Las personas que lleven a cabo la evaluación deberán tener los conocimientos necesarios para evaluar la protección de la instalación portuaria de conformidad con el presente Reglamento, teniendo en cuenta los estándares internacionales en la materia.

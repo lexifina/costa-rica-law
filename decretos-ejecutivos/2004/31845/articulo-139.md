@@ -1,0 +1,1 @@
+Artículo 139.—Las verificaciones de los buques son competencia de los funcionarios debidamente autorizados de la DNSM. No obstante, la DNSM podrá delegar las verificaciones en las Organizaciones de Protección Reconocidas a que se hace referencia en este Reglamento.

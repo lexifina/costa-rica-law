@@ -1,0 +1,1 @@
+Artículo 16.—El sistema de alerta de protección del buque podrá activarse desde el puente de navegación y, como mínimo, desde otra posición; y se ajustará a las normas de funcionamiento del presente Reglamento y a las establecidas en los estándares internacionales en la materia y aprobadas por la OMI.

@@ -1,0 +1,1 @@
+Artículo 27.—Los criterios en que se base el funcionario acreditado se ajustarán en las medidas de control propiamente en materia de protección o en la ausencia de certificados válidos cuando se solicite, por lo que tendrá el derecho a solicitar al buque una o más de las medidas de control indicadas en el artículo 28 y en la Sección III del presente capítulo de este Reglamento.

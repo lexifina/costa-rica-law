@@ -1,0 +1,1 @@
+Artículo 18.—La prescripción de llevar un sistema de alerta de protección del buque podrá cumplirse utilizando la instalación radioeléctrica, siempre y cuando se cumpla todas las prescripciones aprobadas en el presente Reglamento y de aceptación por parte de la OMI.

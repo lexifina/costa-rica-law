@@ -1,0 +1,1 @@
+Artículo 57.—La DNSM recibirá las solicitudes de DPM y emitirá un acuse de recibo de la correspondiente instalación portuaria o buque. En el caso que la DNSM acordada deberá consignarse la firma, fecha, vigencia y el nivel de protección pertinente, tanto por la instalación portuaria, como por el buque que lo solicitó.
