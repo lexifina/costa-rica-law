@@ -1,0 +1,1 @@
+Art. 2. En consecuencia, cualquiera puede quitarle la vida, y el que lo verifique será gratificado, previa justificación del hecho, con quinientos pesos, que se le pagarán inmediatamente del Tesoro público, y un empleo, á juicio del Gobierno.
