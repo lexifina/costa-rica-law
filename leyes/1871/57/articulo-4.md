@@ -1,0 +1,1 @@
+Art 4°. – Vencidos los términos prescritos para la aceptación de las liquidaciones el Contador Mayor girará contra quien convenga y a favor del Tesoro Público, a la vista o al plazo que corresponda, por el importe de cada póliza respectivamente, poniendo razón en los originales, de haberlo así verificado.
