@@ -1,0 +1,1 @@
+Art 9°.- Se impone la multa de cuatro reales por cada vez, al guarda que no registrase el equipaje de los individuos que salgan de las siembras, lo que se comprobará ante el Director para que los rebaje del sueldo, debiendo respetarse las personas cuando pasen descubiertas y sin bulto que cause sospecha.
