@@ -14,3 +14,4 @@ Crea Comité de Coordinación Interinstitucional de la Pequeña Industria y Arte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-09-28 | la propia norma |
+| 2 | 1979-03-21 | Decreto Ejecutivo 9798 (1979-03-21) |
