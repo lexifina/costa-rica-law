@@ -1,1 +1,3 @@
-Artículo 31.- La libertad asistida consistirá en confiar el menor a su familia o a un guardador, bajo la asistencia del Departamento de Servicio Social, sea del Juzgado o de otro organismo, de acuerdo con las recomendaciones que el Juez estime convenientes.
+CAPÍTULO II
+De la naturaleza de las medidas tutelares
+Artículo 31.- La amonestación al menor se hará, en forma clara y directa y, si es necesario, en presencia de las personas que el juez estime convenientes.

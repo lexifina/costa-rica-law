@@ -1,1 +1,2 @@
-Artículo 42.- La aplicación de las medidas tutelares se hará por tiempo indeterminado, y su duración dependerá de los resultados que se obtengan con ellas, pero de hecho cesará cuando el menor alcance la mayoría de edad.
+Artículo 42.- A un mismo menor pueden aplicársele varias medidas, simultánea o sucesivamente, cuando se estime necesario para conseguir un mejor tratamiento y readaptación.
+Al resolver sobre una medida tutelar, los jueces podrán limitar o regular los derechos de patria potestad de los padres o de la persona a cuyo cargo esté el menor, por el tiempo en que se aplique la medida.

@@ -1,1 +1,3 @@
-Artículo 46.- Siempre que por cualquier conducto establecido por la ley, llegare a conocimiento del Juez algún hecho imputable a un menor, de los señalados en el artículo 2º, y deba procederse de oficio, dicho funcionario, sin más trámite, mandará comparecer al menor y, de ser posible, a sus representantes y ordenará instruir las diligencias que correspondan.
+CAPÍTULO IV
+De los procedimientos
+Artículo 46.- Las actuaciones de los jueces tutelares se realizarán de oficio; excepto, en los casos calificados en la legislación común como delitos o faltas privadas, en cuyo caso para proceder será necesaria la denuncia del hecho, por parte de la persona perjudicada, de sus representantes o de quien tenga derecho de acusar.

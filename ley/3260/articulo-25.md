@@ -1,1 +1,1 @@
-Artículo 25.- En todo el aspecto técnico y de investigación criminológica, el Departamento Clínico coordinará labores con el Consejo de Defensa Social, especialmente en los aspectos estadísticos, archivo de casos y además del mismo orden.
+Artículo 25.- En todo el aspecto técnico y de investigación criminológica y criminalística, el Departamento Clínico y de Trabajo Social coordinará labores con la Dirección General de Adaptación Social.

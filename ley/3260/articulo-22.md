@@ -1,1 +1,1 @@
-Artículo 22.- El Departamento Clínico estará integrado por un Médico Psiquiatra y un Psicólogo Clínico, de preferencia especializados en menores.
+Artículo 22.- El Departamento Clínico estará integrado por un médico psiquiatra, un psicólogo clínico y un sociólogo, especializados en menores.

@@ -1,1 +1,1 @@
-Artículo 49.- Todas las diligencias que se practiquen con el menor se desarrollarán en forma tendiente a inspirarle confianza. En ningún caso las entrevistas que se realicen con él revestirán el carácter ni la forma de una indagatoria.
+Artículo 49.- Las infracciones atribuidas a los menores de edad no serán apreciadas sólo en su aspecto legal, sino, preferentemente, con un criterio jurídico social.

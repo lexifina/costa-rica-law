@@ -1,3 +1,2 @@
-CAPÍTULO III
-De la Aplicación de las Medidas
-Artículo 39.- Cuando se acordare el egreso de un menor, se le preparará para ello por lo menos durante tres meses antes de su salida, siempre que la fecha fijada para ésta lo permita, y se le asistirá por lo menos durante tres meses después del egreso. Estas labores las realizará preferentemente la institución que albergue al menor; en su defecto, las hará el Juzgado que conozca del caso, el cual podrá encomendarlas al Patronato Nacional de la Infancia o a la institución gubernamental o particular que estime conveniente, según el establecimiento que tenga a su cargo al menor y el lugar donde éste resida.
+Artículo 39.- El director del establecimiento donde se deposite al menor, a partir de su ingreso enviará al juez, un informe semestral sobre su situación, con las recomendaciones del caso.
+La internación deberá suspenderse, en forma inmediata, cuando al variar las circunstancias, por las que se acordó, estas resulten beneficiosas para el menor, a quien podrá aplicársele otra medida tutelar menos gravosa.

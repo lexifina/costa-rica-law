@@ -1,1 +1,1 @@
-Artículo 33.- El depósito en hogar sustituto consistirá en la entrega del menor a otra familia que no sea la propia, en las condiciones de asistencia indicadas en los artículos 31 y 32.
+Artículo 33.- La libertad asistida podrá confiarse al Patronato Nacional de la Infancia o a otra institución u organización social, pública o privada, debidamente calificada para ese efecto y preferiblemente del lugar de residencia del menor.

@@ -1,2 +1,1 @@
-Artículo 16.- El personal administrativo estará integrado por los funcionarios que establece el artículo 102 de la Ley Orgánica del Poder Judicial y por los Agentes Tutelares que fueren necesarios.
-En el nombramiento del personal administrativo se preferirá, en igualdad de condiciones, a quienes acrediten estudios o experiencia en la materia.
+Artículo 16.- Cada juzgado tutelar contará con un personal administrativo, un departamento de trabajo social y un departamento clínico. Además, el juez podrá requerir la cooperación de otras oficinas o instituciones públicas, cuyos servicios necesite.

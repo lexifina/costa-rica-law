@@ -1,1 +1,1 @@
-Artículo 56.- En todos los demás casos el Juez ordenará practicar las diligencias que estime necesarias para comprobar los hechos que dieron origen a la remisión del menor al Juzgado y su participación en ellos, así como para elaborar los estudios médico-psiquiátrico, psicológico y social respectivos.
+Artículo 56.- El menor será entregado a sus padres o a sus representantes en forma definitiva, cuando el hecho únicamente amerite amonestación, y la capacidad de su familia para impartirle disciplina y educación al menor sea satisfactoria, a juicio del juez.
