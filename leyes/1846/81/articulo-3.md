@@ -1,0 +1,1 @@
+Art. 3. Imprímase, circúlese y publíquese para su cumplimiento. –Dado en la ciudad de San José à los diezisiete dias del mes de julio de mil ochocientos cuarenta y seis. –José Maria Alfaro. –Al Ministro de relaciones y gobernacion.”
