@@ -1,0 +1,1 @@
+Transitorio I.—Las declaraciones de mercancías que, al entrar en vigencia el presente título ya hayan sido aceptadas, se tramitarán de conformidad con las disposiciones vigentes a la fecha de la aceptación.

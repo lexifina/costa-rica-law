@@ -1,0 +1,2 @@
+Transitorio II.—La Dirección General de Aduanas tendrá un plazo de un año, contado a partir de la entrada en vigencia de esta Ley, para tener en operación la transmisión electrónica de la declaración del valor en aduana de las mercancías. Mientras tanto, esta Dirección, mediante resolución de carácter general, determinará otros medios para presentar la mencionada declaración.
+Rige a partir de su publicación.

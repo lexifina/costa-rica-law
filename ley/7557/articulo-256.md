@@ -5,5 +5,5 @@ b) El acuerdo de financiación se haya concertado por escrito.
 c) El comprador, cuando se le requiera, pueda demostrar que:
 i) Tales mercancías en realidad se venden al precio declarado con precio realmente pagado o por pagar.
 ii) El tipo de interés reclamado no excede del nivel aplicado en el país a este tipo de transacciones en el momento en que se haya facilitado la financiación.
-Lo dispuesto en el presente artículo se aplicará si el vendedor, una entidad bancaria u otra persona física o jurídica,facilitala financiación. También, se aplicará, si procede, cuando las mercancías se valoren con un método distinto del basado en el valor de transacción.
-(Así adicionado y modificada su numeración por el artículo 1de la Ley N° 8013 del 18 de agosto del 2000)
+Lo dispuesto en el presente artículo se aplicará si el vendedor, una entidad bancaria u otra persona física o jurídica, facilitala financiación. También, se aplicará, si procede, cuando las mercancías se valoren con un método distinto del basado en el valor de transacción.
+(Así adicionado por el artículo 1° de la ley N° 8013 del 18 de agosto del 2000)
