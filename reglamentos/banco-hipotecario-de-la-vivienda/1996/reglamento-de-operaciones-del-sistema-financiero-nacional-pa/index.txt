@@ -8,6 +8,7 @@ articulo-7.md
 articulo-8.md
 articulo-9.md
 articulo-10.md
+articulo-10-bis.md
 articulo-11.md
 articulo-12.md
 articulo-13.md
@@ -123,8 +124,6 @@ articulo-119.md
 articulo-120.md
 articulo-121.md
 articulo-122.md
-articulo-1-transitorio.md
-articulo-2-transitorio.md
 articulo-123.md
 articulo-124.md
 articulo-125.md
@@ -173,3 +172,5 @@ articulo-167.md
 articulo-168.md
 articulo-169.md
 articulo-170.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md

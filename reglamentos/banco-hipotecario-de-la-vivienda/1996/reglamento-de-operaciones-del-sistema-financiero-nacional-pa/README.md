@@ -27,3 +27,4 @@ Reglamento de Operaciones del Sistema Financiero Nacional para Vivienda
 | 12 | 2002-02-19 | Reglamento 14 (2002-02-19) |
 | 13 | 2002-11-18 | Reglamento 76 (2002-11-18) |
 | 14 | 2003-02-20 | Reglamento 10 (2003-02-20) |
+| 15 | 2004-02-05 | Reglamento 6 (2004-02-05) |
