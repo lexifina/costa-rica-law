@@ -1,0 +1,1 @@
+2. En cuanto a garantías y avales el ICE deberá solicitar en cada operación el respectivo dictamen del Banco Central de Costa Rica. Asimismo, deberá informar trimestralmente a la Autoridad Monetaria sobre el estado de estas facilidades crediticias.

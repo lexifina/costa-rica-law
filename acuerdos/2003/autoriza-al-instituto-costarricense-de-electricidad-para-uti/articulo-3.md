@@ -1,0 +1,2 @@
+3. Extender este procedimiento a todas las instituciones públicas que utilizan financiamiento bajo estas figuras financieras, a fin de evitar que estas obligaciones se tornen muy altas y obliguen a las instituciones públicas a estar refinanciando pasivos o en el peor de los casos, a endeudarse a mediano o largo plazo para repagar esas deudas y comprometan cada vez más su posición financiera y flujo de caja.
+San José, diciembre del 2003.
