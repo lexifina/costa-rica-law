@@ -1,0 +1,1 @@
+Artículo 19.—El recurso de revocatoria se interpondrá ante el funcionario municipal que emitió el acto impugnado, y el de apelación será interpuesto ante el Alcalde Municipal. Tales recursos administrativos serán resueltos dentro del plazo de diez días hábiles, contados a partir del día siguiente a su interposición.

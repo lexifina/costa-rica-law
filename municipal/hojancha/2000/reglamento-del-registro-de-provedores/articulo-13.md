@@ -1,0 +1,1 @@
+Artículo 13.—Una vez que el solicitante subsane los defectos, la Municipalidad dispone de cinco días hábiles para rechazar o aprobar lo solicitado. Si la Municipalidad incumple con este plazo, se tendrá por aprobado el registro.

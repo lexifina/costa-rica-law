@@ -1,0 +1,1 @@
+Artículo 17.—Cuando se suspenda o excluya a un Proveedor del Registro respectivo, se le dará un plazo de cinco días hábiles para que realice su defensa. Pasado este lapso, quedará en firme la resolución.

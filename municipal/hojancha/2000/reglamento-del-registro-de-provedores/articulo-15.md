@@ -1,0 +1,1 @@
+Artículo 15.—La inscripción en el Registro de Proveedores se considerará vigente hasta tanto el interesado informe de algún cambio en los bienes o servicios que preste, o traslado de dirección. Sin embargo, la Municipalidad puede desinscribir a un registrado cuando se compruebe que ha muerto o extinguido su actividad, a petición del propio interesado o de hecho.
