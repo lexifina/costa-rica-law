@@ -18,3 +18,4 @@ Reglamento para Inscripción de Propaganda de Medicamentos y Cosméticos
 | 3 | 1997-09-05 | SINALEVI (sin norma nombrada) |
 | 4 | 1998-08-03 | Decreto Ejecutivo 27202 (1998-08-03) |
 | 5 | 1999-02-25 | Decreto Ejecutivo 27704 (1999-02-25) |
+| 6 | 2001-11-28 | SINALEVI (sin norma nombrada) |
