@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De las obligaciones de los integrantes de la comisión
+15.—Asistir puntualmente a las sesiones a que fuesen convocados (a), si alguno de los miembros, no asistiere a una sesión, deberá justificar su ausencia por escrito ante la persona que presida la comisión. En caso de que fuera el (la) presidente (a), quien incurriere en la omisión de asistencia, la justificará ante el secretario (a). Si alguno de los miembros de la comisión incurriere en tres ausencias injustificadas consecutivas o cinco alternas, el (la) presidente (a) de la comisión o el (la). 16.—Secretario (a) deberá comunicarlo a Presidencia del Concejo, a efectos de que se sustituya a este integrante.

@@ -1,0 +1,17 @@
+MUNICIPALIDAD DE MORAVIA
+El Concejo Municipal en sesión ordinaria noventa del veintiséis de enero de dos mil cuatro de conformidad con los artículos 1, 83, 169, 170 y 175 constitucionales 2, 4 inciso c) e), 34 inciso g), 48 siguientes y concordantes del Código Municipal, acuerda aprobar el reglamento de la Comisión de Obras.
+REGLAMENTO DE LA COMISION DE OBRAS
+Que es un deber del estado y del gobierno local establecer mecanismos sostenibles para dotar de una mejor calidad de vida del ciudadano Moravia. Que para la creación de un entorno favorable, el ente municipal goza de autonomía en materia de administración y regulación jurídica, acuerda la creación del Reglamento de la Comisión de Obras, que se regirá por el siguiente clausulado.
+CAPÍTULO I
+De la comisión y sus fines
+1º—Promover e impulsar acciones tendientes a lograr una mejor calidad de vida del ciudadano moraviano, mediante la implementación de procesos contínuos e integrales de formulación de planes y reglamentos sobre el desarrollo urbano local, tendiente a procurar la seguridad, salud, comodidad y bienestar de la comunidad.
+2º—Estimular las políticas de desarrollo y los planes para la distribución de la población, usos de la tierra, vías de circulación, servicios públicos, facilidades comunales y construcción, conservación y rehabilitación de áreas urbanas y áreas de protección forestales.
+3º—Velar por el desarrollo eficiente de las áreas urbanas, con el objeto de contribuir al mejor uso de los recursos naturales y humanos y la orientada inversión en obras públicas.
+4º—Estudiar y recomendar mejoras al órgano administrativo, con el objeto de posibilitar un mejor desarrollo de los programas locales de planificación impulsando la aplicación del plan regulador y sus reformas y su reglamento para el cantón de Moravia, en forma conexa con las leyes vigentes en la materia.
+5º—Brindar sus recomendaciones en asuntos de planificación urbana y regional al Concejo Municipal de Moravia
+6º—Velar porque las puntualizaciones municipales en el tema de permisos y fraccionamientos y urbanizaciones se cumplan en toda su extensión, es decir satisfaciendo las normas mínimas reglamentarias y que los interesados hayan cumplido los trámites pertinentes e indispensables ante las autoridades respectivas.
+7º—Fiscalizar de que las normas para la planificación, diseño y construcción de edificios, calles, campos deportivos, urbanizaciones, condominios, fraccionamientos, segregaciones, instalaciones y cualesquiera otras obras se ajusten a la normativa vigente a efectos de asegurar y proteger en la mejor forma, la salud economía, comodidad y bienestar común de los ciudadanos del cantón de Moravia.
+8º—Para el cumplimiento de sus funciones, ejercitará las acciones que correspondan a nivel interno de la municipalidad o externamente.
+9º—Utilizará los medios internos y externos a su alcance con el fin de llevar a los actores públicos y civiles información de los aspectos relacionados con su competencia.
+10.—La comisión propondrá al concejo municipal, en el mes de julio de cada año, un programa de sus actividades a realizar, a efectos de lograr hasta donde sea posible se presupuesten dineros para lograr su cometido. Informará al Concejo Municipal al menos una vez al mes o bien cuando así lo requiera, sobre las actividades llevadas a cabo o bien pendientes a realizar.
+11.—Cumplir en forma efectiva las funciones que le sean asignadas por el Concejo Municipal, los reglamentos que se dicten al efecto y cualquier ley vigente y atinente al tema.
