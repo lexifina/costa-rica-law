@@ -1,0 +1,1 @@
+Artículo 2°.- La estimación de construcción y de la faja de terreno es de ¢2,355.66 (dos mil trescientos cincuenta y cinco colones, sesenta y seis céntimos) que corresponden al total de la suma a pagar de conformidad con la resolución número 100 “A” de las diez horas y treinta minutos del quince de mayo de mil novecientos sesenta y nueve, del Tribunal Fiscal Administrativo.
