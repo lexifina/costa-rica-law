@@ -1,0 +1,1 @@
+Artículo 28.—Los reembolsos a la cuenta de la Caja Chica podrán realizarse mediante cheque o transferencia bancaria, pero siempre a nombre de la cuenta corriente. En la solicitud de reintegro se deberán acompañar los justificantes respectivos.

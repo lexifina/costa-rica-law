@@ -1,0 +1,1 @@
+Artículo 5º—Todas las compras o pagos que se realicen por medio de Caja Chica deberán tener n el debido contenido presupuestario y económico será responsabilidad de las jefaturas velar por el cumplimiento de esta disposición.

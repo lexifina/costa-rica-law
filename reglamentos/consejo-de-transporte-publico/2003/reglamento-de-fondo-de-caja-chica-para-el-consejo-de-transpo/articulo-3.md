@@ -1,0 +1,1 @@
+Artículo 3º—La Ejecución del gasto será limitada a casos de verdadera urgencia y necesidad, de acuerdo a lo que se dirá más adelante. Los bienes que se adjudiquen por este medio, no deben existir en el inventario de suministros de la Unidad de Bodega del Departamento de Proveeduría.

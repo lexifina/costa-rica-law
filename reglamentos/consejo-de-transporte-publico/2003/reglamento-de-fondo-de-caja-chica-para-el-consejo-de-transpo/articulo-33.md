@@ -1,0 +1,1 @@
+Artículo 33.—El encargado del fondo de Caja Chica deberá realizar, al final del día, el cierre diario. Cuando éste registre un sobrante de dinero, será depositado en la Cuenta General del Consejo, en forma inmediata. De registrarse un faltante, deberá de ser cubierto en los próximos tres días hábiles, por el encargado. Deberá quedar informe de lo actuado diariamente.

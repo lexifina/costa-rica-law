@@ -1,0 +1,1 @@
+Artículo 35.—De presumirse la mediación de eventos que constituyan delitos penales en perjuicio del fondo de Caja Chica, la Dirección de Administración y Finanzas en coordinación con la Dirección de Asuntos Jurídicos, deberán realizar las acciones correspondientes de conformidad con el marco jurídico vigente.

@@ -1,0 +1,1 @@
+Artículo 9º—El monto asignado a la Caja Chica deberá ser actualizado en forma anual por el Director Ejecutivo con la propuesta que se da a conocer el Departamento Financiero o la misma Dirección de Administración y Finanzas.

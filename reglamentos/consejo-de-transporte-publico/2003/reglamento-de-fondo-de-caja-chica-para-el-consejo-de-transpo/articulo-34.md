@@ -1,0 +1,1 @@
+Artículo 34.—El fondo de Caja Chica, estará sujeto a arqueos, sin previo aviso por parte de la Unidad de Contabilidad, estando el responsable en la obligación de ofrecer. Asimismo la Auditoría Interna hará los arqueos que estime necesarios.

@@ -1,0 +1,1 @@
+Artículo 12.—Los fondos asignados a la Caja Chica se manejarán por medio de una cuenta corriente, en un banco del Sistema Bancario Nacional, la cual deberá cumplir con todos los requisitos existentes para apertura, funcionamiento y control de cuenta corriente.

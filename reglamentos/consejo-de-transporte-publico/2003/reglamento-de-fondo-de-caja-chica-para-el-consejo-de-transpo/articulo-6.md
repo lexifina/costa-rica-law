@@ -1,0 +1,1 @@
+Artículo 6º—En la Unidad de Tesorería deberá existir un registro actualizado de las firmas de los funcionarios autorizados para aprobar los documentos para el pago de bienes, servicios, adelantos y liquidaciones. También existirá un registro de firmas de los funcionarios que podrán retirar el dinero o cheques para el trámite correspondiente.

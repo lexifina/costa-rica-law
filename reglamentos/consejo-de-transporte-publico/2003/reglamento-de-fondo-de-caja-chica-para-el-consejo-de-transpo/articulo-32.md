@@ -1,0 +1,1 @@
+Artículo 32.—El fondo de dinero designado a la Caja Chica operará por medio de monto fijo, lo que implicará que el monto total asignado deberá de ser cubierto en los próximos tres días hábiles, por el encarado. Deberá quedar informe de lo actuado diariamente.
