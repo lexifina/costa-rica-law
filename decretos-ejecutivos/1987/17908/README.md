@@ -13,3 +13,4 @@ Declara Interés Nacional Plan Rescate Valores Morales Cívicos y Religiosos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-12-03 | la propia norma |
+| 2 | 1987-12-03 | Decreto Ejecutivo 23944 (1994-12-12) |
