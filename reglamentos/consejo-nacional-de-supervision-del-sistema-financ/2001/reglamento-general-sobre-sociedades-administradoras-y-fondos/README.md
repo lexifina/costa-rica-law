@@ -14,3 +14,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-04 | la propia norma |
+| 2 | 2002-03-04 | Reglamento 285 (2002-03-04) |
