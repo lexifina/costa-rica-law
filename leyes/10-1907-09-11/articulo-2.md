@@ -1,0 +1,3 @@
+Artículo segundo
+Si las modificaciones introducidas por esta ley á los contratos á que ella se refiere, fueren aceptadas por las Compañías contratantes, el Poder Ejecutivo pondrá en inmediato vigor el impuesto de un centavo oro americano, por cada racimo de banano que se exporte, el cual se mantendrá hasta el veintinueve ce octubre de mil novecientos veinte y será aplicado, exclusivamente, al pago de la deuda exterior.
+Las Compañías tendrán un plazo de dos meses, contados desde la emisión de esta ley, para manifestar su conformidad ó disentimiento con las modificaciones dichas. Si no las aceptaren ó guardaren silencio acerca de ellas en el plazo indicado, se tendrán por caducos los contratos expresados.
