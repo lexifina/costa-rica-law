@@ -14,3 +14,4 @@ Instructivo de Trabajo para la Tramitación de Ordenes de Combustible destinado 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-01 | la propia norma |
+| 2 | 2004-10-01 | Reglamento 386 (2004-08-27) |
