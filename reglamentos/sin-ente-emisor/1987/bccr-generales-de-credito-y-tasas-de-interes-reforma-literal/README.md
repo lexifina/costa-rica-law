@@ -13,3 +13,4 @@ BCCR: Generales de Crédito y Tasas de Interés Reforma Literal c) 1título III
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-07-03 | la propia norma |
+| 2 | 1993-01-13 | Ley 8 |
