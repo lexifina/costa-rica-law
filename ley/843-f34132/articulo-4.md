@@ -1,0 +1,1 @@
+Artículo 4°-El Presupuesto General de Gastos correspondiente al año 1947 tomará en cuenta los aumentos decretados en los artículos anteriores. Para cubrir las erogaciones que tales aumentos implican se usarán los excedentes que con respecto al año en curso produzcan el impuesto sobre la renta y el impuesto territorial.
