@@ -1,0 +1,11 @@
+Nº 29817-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+En ejercicio de las facultades y prerrogativas conferidas por el artículo 140, incisos 3), 8) y 18) y 146 de la Constitución Política y con fundamento en lo establecido en la Ley Nacional de Emergencia, Nº 7914 del 28 de setiembre de 1999 y la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978.
+Considerando:
+1º—Que mediante la Ley Nacional de Emergencia, Nº 7914 del 28 de setiembre de 1999, se crea la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, como un órgano de desconcentración máxima adscrito a la Presidencia de la República, con personalidad jurídica instrumental, patrimonio y presupuesto propios.
+2º—Que según se dispone en el inciso 8) del artículo 140 de la Constitución Política, en relación con los artículos 113 y 114 de la Ley General de la Administración Pública, es responsabilidad del Poder Ejecutivo velar por el correcto funcionamiento de las dependencias administrativas y la satisfacción del interés general.
+3º—Que mediante acuerdo Nº 588-2001, tomado por la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, en sesión ordinaria Nº 120-01, en su artículo primero, celebrada el 18 de setiembre del 2001; se insta al Ministerio de la Presidencia para que modifique el inciso b) del artículo 25 del Reglamento a la Ley Nº 7914, con el fin de reglamentar la regularidad de las sesiones ordinarias de la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias. Por tanto,
+Decretan:
+Artículo 1º—Modifíquese el inciso b) del artículo 25 del Decreto Ejecutivo Nº 28445-MP, Reglamento de Prevención de Riesgos y Atención de Emergencias, del 3 de febrero del 2000, publicado en el Alcance Nº 9 a La Gaceta Nº 26 del 7 de febrero del 2000; reformado por el Decreto Ejecutivo Nº 28762-MP, publicado en La Gaceta Nº 142 del 24 de julio del 2000, para que señale lo siguiente:
+"...b) La Junta Directiva deberá reunirse en forma ordinaria, por lo menos una vez al mes. El día y la hora de las sesiones ordinarias serán acordados por mayoría absoluta de la totalidad de los miembros de la Junta Directiva al iniciarse el cuatrienio, sin perjuicio de que más adelante, y por la misma mayoría, se disponga su modificación".
