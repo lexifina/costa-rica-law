@@ -1,2 +1,2 @@
-Artículo 6°.-La comisión especial, podrá participar como equipo administrativo coadyuvante de los fideicomisos que financia el Banco Hipotecario de la Vivienda, a través de sus entidades autorizadas, para lograr la erradicación de tugurios y construcción de viviendas en proyectos declarados de interés social.
+Artículo 6°.-(Anulado mediante resolución de la Sala Constitucional N° 3410 del 10 de noviembre de 1992)
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 17975 del 8 de febrero de 1988)
