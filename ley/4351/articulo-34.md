@@ -1,0 +1,2 @@
+Artículo 34.- La Junta Directiva Regional designará, con los votos, por lo menos, de cuatro de sus miembros, un Gerente Regional que durará cuatro años en el ejercicio de sus funciones y podrá ser reelecto.
+El Gerente desempeñará las funciones administrativas de la oficina Regional y las que le asignen la presente ley, su Reglamento y los Reglamentos del Banco. Podrá ser removido de su cargo, con el acuerdo, por lo menos, de cuatro miembros de la Junta Directiva.

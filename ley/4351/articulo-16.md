@@ -1,0 +1,2 @@
+Artículo 16.- Los miembros de la Junta Directiva Nacional durarán cuatro años en el ejercicio de sus funciones y podrán ser reelectos. El nombramiento de los directores se hará de manera que cada año venza el período de uno de los cuatro representantes de los obreros y que el período de los restantes cinco miembros venza uno, en los años primero, segundo y tercero, y dos en el cuarto año.
+Los integrantes de la primera Junta Directiva Nacional permanente decidirán por sorteo las fechas en que vencen sus nombramientos de acuerdo con lo establecido en el párrafo anterior.

@@ -1,0 +1,2 @@
+Artículo 6º.- El ahorro del trabajador será por tiempo indefinido y el aporte de los patronos será por diez años contados desde la promulgación de la presente ley.
+Se entenderá por ahorro obligatorio, para los efectos de la aplicación del artículo anterior y del 50, los aportes que efectúan los trabajores correspondientes al 1% de sus remuneraciones. Se considerará ahorro obligatorio, además, los valores que no hayan sido retirados por los trabajadores después de transcurrido el plazo en que pueden retirarlos.

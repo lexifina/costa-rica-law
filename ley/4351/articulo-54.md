@@ -1,0 +1,1 @@
+Artículo 54.- Los miembros de la Junta Directiva Nacional, de las Juntas Directivas Regionales, el Director Ejecutivo, el Auditor, Gerentes y personal de este Banco, están obligados a guardar la más estricta imparcialidad en asuntos de política electoral, sin perjuicio de que con toda libertad cumplan con sus deberes cívicos.

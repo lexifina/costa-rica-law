@@ -1,0 +1,1 @@
+Transitorio VII.- En tanto el Banco no tenga su propio sistema de recaudación, la Caja Costarricense de Seguro Social y el Banco, establecerán un convenio para recaudar las cuotas que corresponden a éste, por medio del sistema que la Caja tiene para percibir sus propias cuotas.

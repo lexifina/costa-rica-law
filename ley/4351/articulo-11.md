@@ -1,0 +1,1 @@
+Artículo 11.- También formarán parte del Fondo las acciones del Monte Nacional de Piedad que sean propiedad del Estado y que éste le traspasará con los intereses y fondos acumulados a la fecha de emisión de esta ley. Este traspaso se computará al aporte del Estado en su condición de patrono.

@@ -1,0 +1,1 @@
+Artículo 48.- Los artículos 10, 11, 26, 32, 33, 34, 45, 46, 47, 65, 68, 70, 72 y 73 de la Ley Orgánica del Sistema Bancario Nacional, así como el artículo 32 de la Ley Orgánica del Banco Central, le serán aplicables al Banco.

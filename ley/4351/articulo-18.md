@@ -1,0 +1,2 @@
+Artículo 18.- La Junta Directiva Nacional se reunirá ordinariamente por lo menos una vez a la semana, y en forma extraordinaria las veces que sea necesario. Sus miembros devengarán dieta. No se les pagarán más de doce sesiones por mes.
+Formarán quórum cinco directores, de los cuales, a lo menos dos, deberán ser representantes de los trabajadores. Sus decisiones se tomarán por simple mayoría, excepto cuando se trata del nombramiento y sustitución del Director Ejecutivo y del Auditor, casos en los cuales se necesitarán seis votos.

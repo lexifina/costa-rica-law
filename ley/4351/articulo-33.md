@@ -1,0 +1,1 @@
+Artículo 33.- La Junta Directiva Regional dispondrá del 70% de los fondos recaudados en la Región para conceder préstamos en ésta. Pondrá a disposición de la Junta Directiva Nacional el 20% de lo recaudado, para que efectúe las compensaciones interregionales que sean necesarias. El 10% restante se mantendrá como encaje legal según se establece en el artículo 38.

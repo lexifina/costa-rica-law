@@ -1,0 +1,2 @@
+Artículo 42.- El Banco podrá contratar empréstitos con instituciones nacionales y extranjeras; cuando se trate de estas últimas deberá atenerse a la legislación vigente, a las normas aplicables establecidas por el Banco Central para los Bancos en general y al Reglamento de la presente ley.
+Podrá asimismo, emitir títulos-valores, recibir transferencias y donaciones y dar avales para operaciones de crédito de las comprendidas en el artículo 37, sean éstas financiadas por instituciones nacionales o extranjeras.
