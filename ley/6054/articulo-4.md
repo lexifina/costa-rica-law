@@ -1,6 +1,5 @@
 Funciones del Ministerio:
-Artículo 4º.- El Ministerio de Economía y Comercio tendrá las
-siguientes funciones:
+Artículo 4º.- El Ministerio de Economía, Industria y Comercio tendrá las siguientes funciones:
 a) Fomentar el comercio interno por medio del sistema de comercialización, para estimular el consumo de los productos nacionales;
 b) Formular, dirigir y coordinar la política de precios, pesas y medidas, y de abastecimiento de mercado en el comercio interno;
 c) Formular, dirigir y coordinar la política de importación, de comercio exterior y de fomento a la diversificación de las exportaciones;
@@ -11,3 +10,4 @@ f) Formular, coordinar y supervisar la ejecución de la política en materia de 
 g) Fomentar la participación del país en exposiciones industrialescomerciales y turísticas; y
 h) Representar al Gobierno en las reuniones y negociacionescomerciales de carácter nacional e internacional, en coordinación con el Ministerio de Relaciones Exteriores y Culto.
 (Así reformado por el artículo 7 de la Ley N° 6218 de 14 de setiembre de 1982, Ley de Reestructuración del Poder Ejecutivo)
+(TACITAMENTE REFORMADO por La Ley Nº 7152 de 5 de junio de 1990, artículos 14 y 15, al restablecer su competencia sobre el sector industria, y crear nuevamente el MEIC).
