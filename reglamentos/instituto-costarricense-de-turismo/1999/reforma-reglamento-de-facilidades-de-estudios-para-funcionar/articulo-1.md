@@ -1,0 +1,5 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+ACLARACIÓN ARTICULO DEL REGLAMENTO DE FACILIDADES DE ESTUDIOS PARA FUNCIONARIOS DEL I.C.T.
+En sesión ordinaria de Junta Directiva N° 4956, artículo 5, inciso III, celebrada el día 13 de setiembre de 1999.
+Se acuerda: Se aprueba aclaración al artículo 9 del Reglamento de facilidades de estudios para funcionarios del ICT para que sea así:
+Artículo 9: Toda beca o curso de preparación complementaria cuyo periodo de aprendizaje se extienda más allá de 30 días naturales, deberá ser analizada a través de la Comisión, la cual tendrá la responsabilidad de investigar la utilidad de los estudios en relación con la labor del funcionario dentro del I.C.T., así como las condiciones de la beca y cualquier otro dato que le permita decidir acerca de su tramitación.
