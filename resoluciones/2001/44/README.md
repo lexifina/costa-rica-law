@@ -15,3 +15,4 @@ Se otorga hasta un cinco por ciento ( 5% ) de decuentos a los sujetos pasivos qu
 | --- | --- | --- |
 | 1 | 2001-11-08 | la propia norma |
 | 2 | 2002-03-14 | Resolución 14 (2002-03-14) |
+| 3 | 2004-01-07 | Resolución 1 (2004-01-07) |
