@@ -1,0 +1,1 @@
+Artículo 6—La modificación de los montos contemplados en el artículo 1° del presente Decreto, solo podrá efectuarse mediante resolución razonada del Despacho de Obras Públicas y Transportes, la que deberá ser publicada en el Diario Oficia!.
