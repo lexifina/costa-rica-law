@@ -1,9 +1,6 @@
 APROBACIÓN DEL ACUERDO ENTRE LA REPÚBLICA DE CHILE
 Y LA REPÚBLICA DE COSTA RICA PARA LA PROMOCIÓN Y
 PROTECCIÓN RECÍPROCA DE LAS INVERSIONES
-LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA
-DE COSTA RICA
-DECRETA:
 Apruébase, en cada una de sus partes, el Acuerdo entre la República de Costa Rica y la República de Chile para la Promoción y Protección Recíproca de las Inversiones y su Protocolo, suscrito el 11 de julio de 1996. El texto es el siguiente:
 "ACUERDO ENTRE LA REPÚBLICA DE COSTA RICA Y LA REPÚBLICA DE CHILE PARA LA PROMOCIÓN Y PROTECCIÓN RECÍPROCA DE LAS INVERSIONES
 La República de Costa Rica y la República de Chile, en adelante "las Partes Contratantes".
