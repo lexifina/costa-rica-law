@@ -1,0 +1,1 @@
+Artículo 22.—Conformación. El ECA estará conformado por la Junta Directiva, la Comisión de Acreditación y las dependencias que requiera para realizar sus competencias, conforme a la estructura interna que defina el reglamento ejecutivo.

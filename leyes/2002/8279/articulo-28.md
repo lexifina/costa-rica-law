@@ -1,0 +1,1 @@
+Artículo 28.—Comités Técnicos de Acreditación. Para analizar las solicitudes de acreditación presentadas, la Comisión de Acreditación podrá nombrar comités técnicos ad hoc, los cuales estarán integrados por profesionales expertos en el ámbito que se acreditará.

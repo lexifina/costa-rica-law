@@ -1,0 +1,1 @@
+Artículo 18.—Sujeción a la Reglamentación Técnica de Medición. Los entes públicos y privados deberán asegurarse de que los instrumentos de medición empleados se ajustan a los requisitos establecidos en los reglamentos técnicos respectivos.

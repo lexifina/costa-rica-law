@@ -1,0 +1,1 @@
+Artículo 37.—Uso de Recursos. Los recursos que se obtengan por lo ordenado en el inciso b) del artículo anterior, serán utilizados para el cumplimiento de los objetivos de esta Ley y para fortalecer, desarrollar, actualizar y mejorar el ECA.

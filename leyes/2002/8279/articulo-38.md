@@ -1,0 +1,1 @@
+Artículo 38.—Autorización para Asignar Recursos. Autorízase al Estado y sus instituciones para que efectúen donaciones o asignen recursos humanos o financieros al ECA, con el propósito de que alcance sus fines y ejecute proyectos específicos. Esta autorización no incluye los bienes demaniales del Estado, definidos en el inciso 14) del artículo 121 de la Constitución Política.
