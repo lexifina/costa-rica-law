@@ -14,3 +14,4 @@ Reforma Reglamento General de Casas de Juventud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-10-20 | la propia norma |
+| 2 | 2002-05-02 | Ley 8261 |
