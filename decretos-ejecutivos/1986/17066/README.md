@@ -14,3 +14,4 @@ Crea Comisión Interinstitucional contra la Corrupción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-06-25 | la propia norma |
+| 2 | 1986-06-25 | SINALEVI (sin norma nombrada) |
