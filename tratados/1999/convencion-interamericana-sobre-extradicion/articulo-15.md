@@ -1,0 +1,3 @@
+ARTICULO 15
+Solicitudes por más de un Estado
+Cuando la extradición fuere pedida por más de un Estado con referencia al mismo delito, el Estado requerido dará preferencia a la solicitud del Estado en cuyo territorio se cometió el delito. Si en las solicitudes concurre esta circunstancia por delitos diferentes, se dará preferencia al Estado que reclame a la persona por el delito que sea sancionado con pena más grave según la ley del Estado requerido. Si se tratare de hechos diferentes que el Estado requerido considera de igual gravedad, la preferencia será determinada por la prioridad del pedido.

@@ -1,0 +1,4 @@
+ARTICULO 12
+Información suplementaria y asistencia legal
+1º—El Estado requerido, cuando considere insuficiente la documentación presentada de acuerdo con lo establecido en el artículo 11 de esta convención, lo hará saber lo más pronto posible al Estado requiriente, el que deberá subsanar las omisiones o deficiencias que se hayan observado dentro del plazo de treinta días, en el caso que el reclamado ya estuviere detenido o sujeto a medidas precautorias. Si en virtud de circunstancias especiales, el Estado requiriente no pudiera dentro del referido plazo subsanar dichas omisiones o deficiencias, podrá solicitar al Estado requerido que se prorrogue el plazo por treinta días.
+2º—El Estado requerido proveerá asistencia legal al Estado requiriente, sin costo alguno para este, a fin de proteger los intereses del Estado requiriente ante las autoridades competentes del Estado requerido.

@@ -1,0 +1,3 @@
+ARTICULO 22
+Plazo de recepción del extraditado
+Si la extradición se hubiera concedido, el Estado requirente deberá hacerse cargo de la persona reclamada dentro del término de treinta días a contar de la fecha en que hubiera sido puesta a su disposición. Si no lo hiciera dentro de dicho plazo, se pondrá en libertad al reclamado, quien no podrá ser sometido a nuevo procedimiento de extradición por el mismo delito o delitos. Sin embargo, ese plazo podrá ser prorrogado por treinta días si el Estado requiriente se ve imposibilitado, por circunstancias que no le sean imputables, de hacerse cargo del reclamado y conducirlo fuera del territorio del Estado requerido.

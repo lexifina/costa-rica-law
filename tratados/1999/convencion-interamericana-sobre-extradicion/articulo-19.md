@@ -1,0 +1,4 @@
+ARTICULO 19
+Entrega de la persona reclamada y de objetos
+1º—La entrega del reclamado a los agentes del Estado requirente se efectuará en el sitio que determine el Estado requerido. Dicho sitio será, de ser posible, un aeropuerto de salida de vuelos internacionales directos para el Estado requirente.
+2º—Si la solicitud de detención provisional o la de extradición se extendiere a la retención judicial de documentos, dinero, u otros objetos que provengan del delito imputado o que puedan servir para la prueba, tales objetos serán recogidos y depositados bajo inventario por el Estado requerido, para ser entregados al Estado requiriente si la extradición fuere concedida o, en su caso, se frustrare por fuerza mayor, a menos que la ley del Estado requerido se oponga a dicha entrega. En todo caso, quedarán a salvo los derechos de terceros.
