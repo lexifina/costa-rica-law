@@ -1,0 +1,1 @@
+Articulo 2°-La anterior autorización comprende no sólo los aforos o derechos aduaneros propiamente dichos, sino también la exención de cualesquiera otros derechos, impuestos o recargos que existan sobre la importación de esos artículos.
