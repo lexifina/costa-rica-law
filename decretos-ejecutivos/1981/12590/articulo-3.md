@@ -1,0 +1,1 @@
+Artículo 3°-La promulgación detallada que sobre las actividades y recursos asignará el Instituto Nacional de Vivienda y Urbanismo, para completar el citado Plan, con sus diez subsistemas de servicio, la elaborará dentro de los primeros quince días, contados desde la fecha de vigencia de la presente directriz.
