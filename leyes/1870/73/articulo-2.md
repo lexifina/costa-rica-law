@@ -1,0 +1,1 @@
+Art 2° Los que no tuviesen bienes para satisfacer la pena pecuniaria que designan las leyes preexistentes sufrirán en casos de mayor gravedad el máximum de la corporal, establecida por la presente, graduándose dicha pena en los demás por el mérito del proceso.
