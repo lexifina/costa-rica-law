@@ -7811,3 +7811,32 @@ SAC | Descripción | DAI
 7323.94.90 | —- Otros | 15
 8716.31.00 | — Cisternas | 10
 8716.39.00 | — Los demás | 10
+Nota: Mediante Resolución N° 123-2004, puesta en vigencia mediante el decreto ejecutivo N° 32128 del 10 de noviembre del 2004, se resuelve lo siguiente:
+"Trasladar a la parte III del Anexo A del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano Arancel Centroamericano de Importación en lo que respecta únicamente a El Salvador la fracción arancelaria 1005.9030-maíz blanco".
+Nota: Mediante resolución N° 127-2004, puesta en vigencia mediante decreto ejecutivo N° 32139 del 10 de noviembre del 2004, se resuelve lo siguiente:
+"Aprobar las modificaciones al Arancel Centroamericano de Importación,en la partida arancelaria 2713.11.00- sin calcinar (Coque de petróleo), con cero por ciento de DAI.
+Nota: Mediante Resolución N° 126-2004, puesta en vigencia mediante decreto ejecutivo N° 32140 del 10 de noviembre del 2004, se resuelve lo siguiente:
+"Aprobar las modificaciones al Arancel Centroamericano de Importación en la Parte II, para Guatemala conforme el anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano,que a continuación se muestra:
+ANEXO RESOLUCIÓN 126-2004
+MODIFICACIONES ARANCELARIAS
+Código | Descripción | DAI %
+|
+| | CA | GU | ES | HO | NI | CR
+2204.10.00 | Vino espumoso | II | 20 | 20 | 15 | 10 | 15
+2204.21.00 | En recipientes con capacidad inferior o igual a 2 I | II | 20 | 20 | 15 | 10 | 15
+2204.29.00 | Los demás | II | 20 | 20 | 15 | 10 | 15
+2204.30.00 | Los demás mostos de uva | II | 20 | 20 | 15 | 10 | 15
+2205.10.00 | En recipientes con capacidad inferiro o igual a 2 I | II | 20 | 20 | 15 | 10 | 15
+2205.90.00 | Los demás | II | 20 | 20 | 15 | 10 | 15
+2206.00.00 | Las demás bebidas fermentadas (por ejemplo: SIDRA, PERADA, AGUAMIEL); MEZCLA DE BEBIDAS FERMENTADAS Y MEZCLA DE BEBIDAS FERMENTADAS Y BEBIDAS NO ALCOHÓLICAS, NO EXPRESADAS NI COMPRENDIDAS EN OTRA PARTE | II | 20 | 20 | 15 | 10 | 15
+2208.20.10 | Con grado alcohólico volumétrico superior o igual a 60% vol. | II | 30 | 30* | 15 | 10 | 10
+2208.20.90 | Otros | II | 30 | 30* | 15 | 10 | 15
+2208.30.10 | Con grado alcohólico volumétrico superior a 60% vol. | II | 30 | 30* | 5 | 10 | 10
+2208.30.90 | Otros | II | 30 | 30* | 15 | 5 | 10
+2208.40.90 | Otros | II | 30 | 30* | 15 | 15 | 15
+2208.50.00 | “Gin” y ginebra | II | 30 | 30* | 15 | 15 | 15
+2208.60.10 | Con grado alcohólico volumétrico superior a 60% vol. | II | 30 | 30* | 5 | 10 | 10
+2208.60.90 | Otros | II | 30 | 30* | 15 | 15 | 15
+2208.70.00 | Licores | II | 30 | 30* | 15 | 10 | 15
+2208.90.90 | Otros | II | 30 | 30* | 15 | 10 | 15
+*El Salvador en Parte III | | | | | | |
