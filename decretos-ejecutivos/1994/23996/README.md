@@ -14,3 +14,4 @@ Reforma al decreto ejecutivo que establece el monto de dietas a la Junta Naciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-02-20 | la propia norma |
+| 2 | 1995-03-03 | Decreto Ejecutivo 24108 (1995-03-03) |

@@ -1,0 +1,2 @@
+Artículo 1 Bis.—Este Decreto no modifica en cuanto al monto de dietas los aumentos que se hayan decretado anteriormente. De tal manera que las Juntas citadas en el artículo 1 tendrán como dieta fija y consecutiva, mientras no se modifique, la suma de ¢6.101,32 (seis mil ciento un colones con treinta y dos céntimos) por sesión a la que asistan.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 24108 de 3 de marzo de 1995)
