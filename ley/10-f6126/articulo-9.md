@@ -1,0 +1,1 @@
+Art. 9. Las cuentas de la Casa de Moneda serán remitidas cada semestre al Tribunal superior por el conducto designado, y con las formalidades prevenidas por la ley del Estado de 6 de Setiembre de 1825.

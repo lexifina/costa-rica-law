@@ -1,0 +1,1 @@
+Art. 2. A los que las presenten para ensayarlas sin el objeto de acuñarlas, se les exigirà un peso por cada ensaye necesario que se practique; de que se hará cargo el Ministro ensayador à favor del erario pùblico.

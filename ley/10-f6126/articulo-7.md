@@ -1,0 +1,1 @@
+Art. 7. El Ensayador y Gravador practicaràn las operaciones de su ministerio sin ocultarlas á los otros Ministros, y ademas deberà, cada uno de aquellos, enseñar tres jóvenes, siendo à satisfaccion del Superintendente la eleccion de estos, y à la inspeccion del mismo, el método y progresos de enseñanza y aprovechamiento.

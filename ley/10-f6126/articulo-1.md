@@ -1,0 +1,8 @@
+DECRETO X.
+La Asamblea Legislativa arregla el rescate de pastas
+y dicta otras disposiciones respecto a la Casa
+de Moneda (1).
+(1) Las disposiciones que comprende el presente Decreto, estàn reformadas y refundidas en el pàrrafo 3° Seccion 2. del Reglamento de 10 de Diciembre de 1839.
+’’El Jefe Supremo del Estado libre de Costa-Rica.—Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+La Asamblea Constitucional del Estado libre de Costa-Rica, considerando: 1° que el erario público suministra todos los utensilios necesarios para el ensaye en las pastas de oro y plata, y el sueldo del Ensayador, Fundidor, etc.: 2° que en tal concepto, si algo se cobra por el ensaye, deberia ser este producido à favor del mismo erario; en caso de que este gravámen no retrajese á los dueños de pastas, de presentarlas para ser acuñadas: 3° que de hecho ha resultado ya este mal: 4° que si es bien atraer con excepciones á los que quieran acuñar, no seria regular que el erario hiciese costos en beneficio de los particulares que, sin querer acuñar sus pastas, las quisiesen ensayadas por que asi les conviniese: 5° que no seria decoroso ni bien visto, que alguno de los ministros de la Casa comprase, ensayase, y acuñase pastas en su beneficio privado: 6° que no habiendo en el Estado otro inteligente que el Ministro ensayador actual, es de temer que el Cuño y cuanto á el concierne quede inutilizado con la falta de aquel, ha venido en decretar y decreta:
+Art. 1° A los que presenten sus pastas de oro ó plata para acuñarlas en la Casa de Moneda del Estado, no se les cobrará cosa alguna por el ensaye.
