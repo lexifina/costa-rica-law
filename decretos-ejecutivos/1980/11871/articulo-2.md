@@ -1,0 +1,1 @@
+Artículo 2°-Los productores que hayan sufrido daños o perjuicios económicos como consecuencia de dicho fenómeno natural pueden acogerse, con vista de esta declaratoria, a los beneficios de la Ley número 4576 de 4 de mayo de 1970.
