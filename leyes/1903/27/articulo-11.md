@@ -1,0 +1,6 @@
+Undécima
+El artículo 28 léase:
+La Secretaría de Hacienda, o el departamento de su dependencia que al efecto se determine, llevará un libro de registro para la emisión de cada banco. Este libro se presentará al juez de comercio para que ponga en le primer folio la razón respectiva y para que rubrique los números, series, valores y fechas de los billetes emitidos y las firmas que los autoricen.
+La oficina de registro, que los autoricen la inscripción de los billetes, los devolverá al banco y hará publicar en el periódico oficial una nota en que de a conocer el registro practicado, con todos los detalles antes explicados.
+A las declaraciones de señales, marcas y contramarcas de que habla el inciso d del artículo 26 les pondrá la Secretaria de Hacienda una razón escrita sobre las cubiertas en que expresará el nombre del Banco que las hubiere presentado y la fecha de su recibo. Esta razón serán firmada por el Secretario de Hacienda y por el Gerente del banco, y será además sellada por el sello de la Secretaría.
+Una de las cubiertas se devolverá al banco para que la conserve en su poder. La otra se guardara por el Sello Nacional en una caja que debe suministrar el banco y que deberá ser de doble llave. De estas llaves, una conservará el banco y la otra el Sello Nacional.

@@ -1,0 +1,3 @@
+Décima cuarta
+El artículo 32 léase:
+Los billetes rotos o cuyas leyendas o firmas estén borradas que vuelvan a las cajas del banco, deberán ser recogidos y retirados de la circulación. Para que la oficina de registro autorice el de nueve billetes, caso de que emisión de un banco se halle completa, es preciso que se le presente igual cantidad de billetes inutilizados con un perforador que diga retirado. De los billetes retirados de la circulación así como de los nuevos que los reponga, se tomará nota en el libro del registro correspondiente, y de estas operaciones se publicará por la oficina de registro correspondiente una nota como la de que habla el artículo 28.
