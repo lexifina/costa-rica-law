@@ -1,2 +1,2 @@
-Artículo 6°—Cuando se trate de banano fruta, café en grano, cacao en grano y azúcar de caña se cobrará el 20% de las tarifas establecidas en los incisos 6 a), b), c), e) y h) del artículo 2° del presente Decreto.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 27826 del 9 de abril de 1999)
+Artículo 6°—Cuando se trate de banano, café, cacao y caña de azúcar, las tarifas contempladas en los numerales 4, 6, 8 y 9 del artículo segundo del presente Decreto, se cobrara un veinte por ciento (20%) de la tarifa establecida.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 28560 del 18 de febrero de 2000)

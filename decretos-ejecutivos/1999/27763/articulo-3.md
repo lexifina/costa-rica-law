@@ -1,199 +1,220 @@
 Artículo 3°—Fíjense las tarifas que regirán para los servicios que presta el Ministerio de Agricultura y Ganadería, por medio de la Dirección de Salud Animal.
 SALUD ANIMAL
-1 Certificado de Exportación, Autorización de Importación, |
-Permiso de Tránsito y otras constancias y |
-certificaciones de productos procesados | 3.000,00
-2 Certificados de Exportación de productos de Origen |
-Animal | 3.000,00
-3 Servicios de Cámara de Refrigeración para biológicos |
-que ingresan al país Tarifa diaria por kg. | 450,00
-4 Marchamo de seguridad tipo botella | 1.200,00
-5 Autorización de Importación de medicamentos veterinarios. | 3.000,00
-6 Incineración de animales, productos y subproductos, |
-decomisados por Kg. | 350,00
-7 Supervisión de Cuarentena domiciliar para los animales |
-que se importan al país. | 3.500,00
-8 Cobro de marchamos oficiales (metales, papel y |
-plástico) | 1.000,00
-9 Permiso de Exportación de medicamentos veterinarios | 3.000,00
-10 Certificación de Libre Venta | 1.700,00
-11 Otras certificaciones (edictos, estudios técnicos) | 1.700,00
-12 Incineración de medicamentos por kilo | 350.00
-13 Bodegaje: |
-Por día/de 1 a 100 kgs 300,00 |
-Por día/de 101 o más kgs. 550,00 |
-14 Por certificado oficial de Salud Animal | 3.000,00
-15 Por inspección de animales para transportes, |
-transacciones comerciales, ferias, exposiciones y |
-otros/animal. | 250,00
-16 Vacunación contra Brucelosis que incluye: vacuna, |
-aguja, constancia y servicio por Animal | 400,00
-17 Vacunación contra rabia bovina (a solicitud de los |
-interesados) dosis aplicada por animal. | 300,00
-18 Inoculación y lectura de tuberculina/animal | 250,00
-19 Recolecta de materiales para diagnóstico tales como: |
-raspados, leche, sangre y otros por muestra. | 200,00
-20 Captura de murciélagos en finca/captura | 7.000,00
-21 Venta de redes para captura de murciélagos. | 7.000.00
-22 Venta de block de certificados oficiales a personal |
-particular autorizado /block de cincuenta fórmulas. | 3.500,00
-23 Venta de vacunas contra Brucelosis y Rabia Bovina |
-a Médicos Veterinarios particulares | 250,00
-24 Diagnóstico reproductivo (palpación por animal: |
-Bovina | 500,00
-Equino | 2.000,00
-25 Otros servicios técnicos de campo, laboratorio y |
-venta de servicios, materiales y suministros, se |
-cobrará igual a la tarifa establecida por el Colegio de |
-Médicos Veterinarios |
-26 Acreditación oficial a médicos veterinarios particulares, |
-para trabajar en programas específicos en Salud |
-Animal. Renovación anual | 10.000,00
-27 Inspección de importación de reinas (10 abejas) | 1.500.00
-28 Inspección de apiarios | 3.000,00
-29 Inspección de criaderos de reinas | 10.000,00
-30 Eliminación de enjambres a nivel regional | 5.000,00
-31 Alquiler de equipo apícola: |
-Laminado y estampado de cera de abeja (U) | 200,00
-Extracción de miel (por estañen) | 1.500,00
-32 Prueba de Organoclorados | 9.000,00
-33 Por prueba Organofosforados | 16.000,00
-34 Por prueba de metales pesados/metal (para una muestra) | 5.500,00
-35 Por prueba de hormonas | 15.000,00
-36 Por prueba de especie animal | 5.500,00
-37 Invermectinas | 17.000,00
-38 Benzimidazoles | 22.500,00
-39 Prueba de lexicología clínica | 4.000,00
-40 Prueba de plaguicidas en agua | 4.500,00
-41 Determinación pH | 2.500,00
-42 Contenido de formol | 6.000,00
-43 Titulación viral en huevo embrionado | 8.500,00
-44 Titulación viral en ratones | 30.000.00
-45 Titulación viral en cultivo de células | 6.000,00
-46 Prueba de detección de Salmonella en medicamentos y vacunas | 4.000,00
-47 Prueba de detección de Myciplasma sp en vacuna | 8.000,00
-48 Esterilidad a medicamentos y productos biológicos. | 7.000,00
-49 Detección de Staphilococcus aureus en medicamentos | 4.000,00
-50 Detección de Pseudomonas sp en medicamentos | 8.000,00
-51 Estudio Bacteorológico | 4.500,00
-52 Prueba de viabilidad bacteriana | 6.000,00
-53 Prueba de inocuidad | 7.500,00
-54 Recuento bacleorológico total a medicamentos | 6.500,00
-55 Recuento de hongos y levaduras a medicamentos | 7.000,00
-56 Lectura por HPLC para medicamentos | 15.000,00
-57 Lectura por CG para medicamentos | 12.000.00
-58 Lectura por UV-VIS para medicamentos | 7.500,00
-59 Lectura por EA-A para medicamentos | 3.500,00
-60 Lectura metales para inyectables | 1.600,00
-61 Lectura para volumen de medicamentos | 600,00
-62 Lectura para titulación de medicamentos | 5.500,00
-63 Prueba de frescura a pescados y mariscos, por prueba (total 4) | 1.200,00
-64 Prueba de anillo de leche (Brucelosis) | 200,00
-65 Estudio para abejas | 2.000,00
-66 Prueba Inhibición Hemagluti nación/prueba | 1.000,00
-67 Prueba Hemaglutinación | 500,00
-68 Cloranfenicol | 9.000,00
-69 Inmunofluorescencia indirecta | 2.000,00
-70 Prueba de Elisa | 4.150,00
-71 Prueba inmunodifusión en gel | 1.250,00
-72 Cultivos para hongos | 2.000,00
-73 Determinación Trichomonas | 1.000,00
-74 Determinación campilobacteras | 1.000,00
-75 Prueba diagnóstico de Brucelosis | 250,00
-75.1 Prueba de rivanol brucelosis | 250,00
-76 Prueba antígeno buferado brucelosis | 250,00
-77 Prueba lenta en tubo | 250,00
-78 Prueba leptospira serología humanos | 6.000,00
-79 Prueba leptospira serología animales | 1.000,00
-80 Cultivo leptospira | 15.000,00
-81 Hemoparásitos | 1.000,00
-82 Hemograma | 1.500,00
-83 Hematocrito | 500,00
-84 Parasitológico | 500,00
-85 Necropsia especies mayores | 5.000,00
-86 Necropsia especies mayores en campo | 7.000,00
-87 Necropsia especies menores en laboratorio | 3.000,00
-88 Necropsia especies menores en campo | 5.000,00
-89 Necropsia en aves | 500,00
-90 Prueba de disociación bacteriana | 4.500,00
-91 Biopsia | 4.000,00
-92 Salmonella en alimentos | 3.500,00
-93 Shigella | 2.000,00
-94 E. Coli | 2.000,00
-95 S. Aureus en alimentos | 2.000,00
-96 Mesofilos Aerobios | 2.000,00
-97 V. Cholerae | 2.000,00
-98 S. Fecalis | 2.000,00
-99 Cereus | 2.000,00
-100 Hongos/levaduras en alimentos | 2.000,00
-101 Cl. Botulinum | 2.000,00
-102 Listeria | 4.500,00
-103 Antibiótico | 3.500,00
-104 Sulfa | 5.000,00
-105 Conformes totales en agua | 2.000,00
-106 Conformes totales fecales | 2.000,00
-107 Cl. Perfringens | 2.000.00
-108 Entrenamiento en servicios a nacionales e internacionales |
-(por día) | 25.000.00
-109 Cursos de entrenamiento y/o refrescamiento a |
-inspectores, médicos veterinarios privados, ganaderos |
-y otros usuarios | 10.000,00
-110 Venta de animales de bioterio a otras instituciones: |
-- Ratón | 300,00
-- Conejo | 800,00
-- Cobayo | 500,00
-- Hámster | 400,00
-- Rata | 400,00
-- Aves | 500,00
-- Huevos SPF | 1.500,00
-111 Recolección de muestras en campo por el especialista | 1.500,00
-112 Producción de antígenos para diagnóstico de Brucelosis: |
-Por frasco | 20.000,00
-113 Servicios de Incinerador por kilo | 350,00
-114 Lectura por HPLC para otras determinaciones | 11.500,00
-115 Lectura por cromatografía de gases con detector de |
-masas | 25.000,00
-116 Registro de laboratorio y/o droguería | 7.500,00
-117 Registro de medicamentos y biológicos | 7.500,00
-118 Registro de empresas elaboradoras, distribuidoras |
-o productoras de alimentos destinados a la nutrición |
-animal | 11.200,00
-119 Registro de materias primas utilizadas en la alimentación |
-animal (por cada producto registrado) | 9.000,00
-120 Registro de alimentos balanceados para alimentos |
-animales (por cada producto registrado) | 9.000,00
-121 Registro de premezcla para alimentación animal (por |
-cada producto registrado) | 9.000,00
-122 Fotocopias cada una | ¢10,00
-122.1 Folletos | 1.000,00
-123 Ampliación o modificación de registro de un medicamento |
-y/o biológico | 2.000,00
-124 Inspección para autorización de funcionamiento |
-de laboratorio y droguería | 7.000,00
-125 Inspección y autorización de farmacias, botiquines, |
-otros | 4.000,00
-126 Por inspección de carga en vehículos de transporte |
-en materias primas, premezcla balanceadas y aditivos |
-de uso en la alimentación animal/ vehículo | 2.000,00
-127 Certificado de libre venta | 2.000,00
-128 Registro de empresas productoras o elaboradoras |
-de materias primas | 11.000,00
-129 Registro o renovación de alimentos balanceados, |
-materias primas, por cada producto | 9.000,00
-130 Certificado de exportación de productos | 3.000,00
-131 Por inspección de establecimientos y equipos que se |
-utilicen para la elaboración de alimentos para animales, |
-en cada fábrica que se instale (por cada inspección) | 9.000,00
-132 Por inspección de carga en vehículos de transporte |
-marítimo de alimentos para animales/tonelada | 3,00
-133 Registro individual de pruebas serológicas en equino. | 2.800,00
-134 Certificado de exportación, autorización de importación, |
-permiso de tránsito y otras constancias de animales, |
-productos de origen animal | 2.500,00
-135 Por destrucción o incineración de productos o subproductos |
-no aptos para el consumo animal (por cada |
-tonelada métrica o fracción) | 3.300,00
-136 Servicios de Cámara de refrigeración para biológicos |
-que ingresan al país (unidad de medida) | 450,00
-137 Inspección de productos y subproductos en importación, |
-exportación y tránsito | 1.500,00
+Código | Descripción | Monto
+1. | Fotocopias | 15,00
+2. | Folletos | 1.200,00
+3. | Venta de información en Diskette c/u | 3.600,00
+4. | Servicio de incineración de animales, productos |
+| y subproductos de origen animal, medicamentos |
+| decomisados y otros. (Por kilogramo) | 420,00
+5. | Certificados de Exportación de productos y subproductos de origen |
+| animal y medicamentos veterinarios | 3.600,00
+6. | Marchamo oficial (metal, papel y plástico) | 1.200,00
+7. | Certificado de libre venta | 2.200,00
+8. | Certificaciones (edictos, estudios técnicos) | 2.200,00
+| Bodegaje por día: |
+9. | -De 1 a 100 kg. | 360,00
+10. | -De 101 o más 665,00 |
+11. | Recolección de muestras de medicamentos en campo | 2.060,00
+12. | Registro de laboratorio y/o droguería | 12.320,00
+13. | Registro de medicamentos y biológicos | 9.900,00
+14. | Cuota anual por fiscalización de productos registrados | 1.800,00
+15. | Ampliación y/o modificación de registro de un medicamento |
+| y/o biológico | 2.750,00
+16. | Inspección para autorización de funcionamiento de laboratorio |
+| y droguería | 8.500,00
+17. | Inspección y autorización de farmacia. Botiquines y otros | 4.800,00
+18. | Registro de empresas elaboradoras. distribuidoras o productoras de |
+| alimentos destinados a la nutrición animal. | 12.100,00
+19. | Registro de empresas productoras o elaboradoras de materia prima |
+| para alimento animal. | 13.300,00
+20. | Registro de materias primas utilizadas en la alimentación animal |
+| (por cada producto registrado) | 10.900,00
+21. | Registro o renovación del registro de alimentos balanceados para |
+| animales(por cada producto registrado) | 10.900,00
+22. | Registro de premezcla para alimentación animal (por cada |
+| producto registrado) | 10.900,00
+23. | Por inspección de carga en vehículos de transporte en materias |
+| primas, premezcla balanceada y aditivos de uso en alimentación |
+| animal (por cada vehículo) | 2.400,00
+24. | Por inspección de establecimientos y equipos que se utilicen para |
+| elaboración de alimentos para animales, en cada fábrica que se |
+| instale (por cada inspección | 10.900,00
+25. | Supervisión de cuarentena domiciliar para los animales |
+| que se importan | 3.600,00
+26. | Por certificación oficial de Salud Animal | 3.600,00
+27. | Por inspección de animales para transporte, transacciones |
+| comerciales, ferias, exposiciones y otros (por animal) | 360.00
+28. | Vacunación contra Brucelosis que incluye vacuna, aguja, |
+| constancia y servicio/animal | 700,00
+29. | Vacunación contra rabia bovina (a solicitud de los interesados, |
+| por dosis aplicada a cada animal) | 400,00
+30. | Inoculación y lectura de tuberculina (por animal) | 750,00
+31. | Recolecta de materiales para diagnóstico tales como: raspados, |
+| leche, sangre y otros por muestra | 350,00
+32. | Captura de murciélagos en finca captura | 9.000.00
+33. | Venta de redes para captura de murciélagos | 9.000,00
+34. | Venta de block de certificados oficiales a personal particular |
+| autorizado (por block de cincuenta fórmulas) | 4.000.00
+| Venta de vacunas y reactivos de diagnóstico (por dosis): |
+35. | - Contra brucelosis (cepa 19) | 450,00
+36. | - Contra rabia | 300,00
+37. | -Tuberculina 250,00 Diagnóstico reproductivo (palpación, por animal) |
+38. | - Bovina | 500,00
+39. | - Equina | 5.000.00
+40. | Otros servicios técnicos de campo. laboratorio y venta de servicios, |
+| materiales y suministros De acuerdo a tarifa establecida por el |
+| Colegio de Médicos Veterinarios o al valor comercial del momento. |
+41. | Acreditación oficial a médicos veterinarios particulares, para trabajar |
+| en programas específicos en Salud Animal/Renovación bianual | 10.000,00
+42. | Inspección de apiarios (cada uno) | 4.250,00
+43. | Inscripción de criaderos de reinas (cada uno) | 14.500,00
+44. | Eliminación de enjambres a nivel regional | 6.000,00
+45. | Alquiler de equipo apícola: |
+| -Laminado \ estampado de cera de abeja (por lámina) | 240,00
+| -Extracción de miel (por estanón) Trámite de importación de reinas |
+| (por cada 100 reinas y por importación) | 2.400,00
+48. | Venta de productos de uso apícola para control de enfermedades. |
+| Precio de costo más gastos de importación, desalmacenaje, |
+| aduanas y otros, más el 10%. |
+49. | Organoclorados | 9.900.00
+50. | Organofosforados | 17.600.00
+51. | Prueba de metales pesados / metal (Para 1 muestra). |
+| -Cadnio. cobre, plomo. Arsénico, Mercurio | 6.050,00
+52. | Cálculo de Hormonas | 16.500.00
+53. | Especie animal | 6.050.00
+54. | Ivermectina | 18.700.00
+55. | Benzimidazoles | 24.750,00
+56. | Prueba de loxicologia clínica | 4.400.00
+57. | Prueba de plaguicidas en agua | 4.950.00
+58. | Determinación del Ph. | 2.750.00
+59. | Contenido de formol | 6.600.00
+60. | Titulación viral huevos | 9.350.00
+61. | Titulación viral ratones | 38.500.00
+62. | Titulación viral en cultivo de células | 11.000,00
+63. | Detección salmonella en medicamentos y vacunas | 5.500,00
+64. | Detección mycoplasma en vacunas | 8.800,00
+65. | Esterilidad medicamentos y productos biológicos | 7.700,00
+66. | Detección Staphy lococcus aureus en medicamentos | 3.300,00
+67. | Detección Pseudomonas aeroginosa en medicamentos | 8.800,00
+68. | Estudio bacteriologógico (Antibiográma, Estudio directo por tinción) | 5.500.00
+69. | Prueba de Viabilidad bacteriana | 6.600,00
+70. | Prueba de Inocuidad | 8.250.00
+71. | Recuento bacteriana total para medicamentos | 4.400,00
+72. | Recuento hongos y levaduras a medicamentos | 4.400,00
+73. | Lectura Cromatografía liquida de alta resolución (HPLC) |
+| para medicamentos | 18.700.00
+74. | Lectura Cromatografía de Gases (GC) para medicamentos | 16.500,00
+75. | Lectura Espectofotometria UV-VIS para medicamentos | 12.100,00
+76. | Lectura EA-A para medicamentos | 6.050,00
+77. | Lectura Metales pesados para inyectables | 6.050.00
+78. | Lectura para volumen de medicamentos | 1.100,00
+79. | Lectura para Titulación medicamentos | 6.050,00
+80. | Prueba frescura pese. Mariscos prueba (total 4: Nessier, |
+| Eber, PH, Bases volátiles nitrogenadas) | 1.320,00
+81. | Prueba de Anillo de Leche (Brucelosis) | 550,00
+82. | Estudio de colmenas | 3.300,00
+83. | Prueba de Inhibición de la Hemaglutinación (Aviar) | 1.320,00
+84. | Prueba de Hemaglutinación (Aviar) | 1.100,00
+85. | Clorafenicol | 9.900,00
+86. | Inmunofluorescencia indirecta | 3.300,00
+87. | Prueba de Elisa | 4.950,00
+88. | Inmunodifüsión en gel (Anemia Infeccionsa Equina, Leucosis |
+| Vírica Bovina y Aviar) | 2.420,00
+89. | Autovacunas | 4.620,00
+90. | Cultivo de hongos | 3850,00
+91. | Determinación de Trichomonas | 1.650,00
+92. | Determinación de Campylobacter sp. | 1.650,00
+93. | Prueba diagnóstico de Brucelosis | 275,00
+94. | Prueba de antigeno precipitación por Rivanol | 385,00
+95. | Prueba de antigeno ácido buferado | 330,00
+96. | Prueba de antigeno lenta de tubo | 330,00
+97. | Prueba de Leptospira serologia en animales | 1.100,00
+98. | Cultivo Leptospira | 16.500,00
+99. | Hemoparásitos | 1.320,00
+100. | Hemograma | 1.650,00
+101. | Hematocrito | 770,00
+102. | Coproparasitológico | 770,00
+103. | Necropsia especies mayores | 5.500,00
+104. | Necropsia especies mayores en campo | 7.700,00
+105. | Necropsia especies menores en Lab. | 3.300,00
+106. | Necropsia especies menores en campo | 5.500,00
+107. | Necropsia en aves (más de 50 aves) | 550,00
+108. | Prueba de disociación bacteriana | 4.950,00
+109. | Prueba histológica rutina | 3.850,00
+110. | Pruebas histológicas comparativas | 3.850,00
+111. | Biopsia | 4.400,00
+112. | Calculo de Shigella | 3.300,00
+113. | Detección Escherichia coli | 3.300,00
+114. | Prueba de mesofilos aerobios | 3.300,00
+115. | Prueba de Mdrio Cholerae | 3.300,00
+116. | Prueba de Strept. Fecalis | 3.300,00
+117. | Prueba de B. Cereus | 3.300,00
+118. | Prueba de Cl. Botulinum | 3.300,00
+119. | Prueba de Listeria | 4.950,00
+120. | Prueba de antibiótico | 3.850,00
+121. | Prueba de Sulfa | 5.500,00
+122. | Prueba de colifonnes totales en agua | 3.300,00
+123. | Prueba de colifonnes fecales totales | 3.300,00
+124. | Prueba de Clostr. Perfringens | 3.300,00
+125. | Entrenamiento en servicio a nacionales y extranjeros por día | 6.600,00
+126. | Asistencia técnica a industrias | 110.000,00
+127. | Cursos de entrenamiento y o actualización a inspectores, médicos |
+| veterinarios privados, ganaderos y otros usuarios | 10.000,00
+| Venta de animales del Bioterio a otras instituciones:
+128. | –Ratón | 330,00
+129. | –Conejo | 880,00
+130. | –Cobayo | 550,00
+131. | –Hámster | 440,00
+132. | –Rata | 440,00
+133. | –Aves | 550,00
+134. | -Huevos SPF | 1.650,00
+135. | Recolección de muestras por especialista LANASEVE | 16.500,00
+136. | Antigeno Bufferado. 60 mi. (Producción) | 88.000,00
+137. | Antigeno Rivanol. 60 mi. (Producción) | 71.500,00
+138. | Antigeno Anillo en Leche, ml. (Producción) | 60.500,00
+139. | Servicio de incinerador (kilo) | 385,00
+140. | Lectura HPLC para otras determinaciones | 18.700,00
+141. | Prueba anti-Dopping en competencias ecuestres y para humanos, |
+| por lectura de masas | 33.000,00
+142. | Prueba resistencia | 4.950,00
+143. | Prueba pirógenos o LAL | 33.550,00
+144. | Biopotencias (Antibióticos) | 16.500,00
+145. | Poder Bactericida | 14.300,00
+146. | Vacío de productos biológicos | 6.050,00
+147. | Prueba de Histamina | 9.130,00
+148. | Prueba de Bisulfitos | 10.120,00
+149. | Acreditación de Laboratorios / año | 82.500,00
+150. | Aislamiento viral (Aviar) | 7.700,00
+151. | Autorización de importación, permiso de transito y |
+| otras constancias y certificaciones de productos de origen animal, |
+| de productos procesados y de medicamentos |
+| veterinarios (cada autorización) | 3.600,00
+152. | Inspección de carga en vehículos de transportes marítimo |
+| de alimentos para animales por tonelada métrica | 4,00
+153. | Boleta de inspección para exportación de muestras (menos de 30 kg) |
+| de producto y subproducto de origen animal. (cada boleta). | 300,00
+154. | Registro individual de pruebas serológicas en equino para exportación | 3.400,00
+155. | Destrucción o incineración de productos o subproductos no aptos |
+| para el consumo animal (por cada tonelada métrica o fracción) | 4.000,00
+156. | Destrucción o incineración en puestos cuarentenarios de animales, |
+| productos y subproductos, medicamentos veterinarios |
+| decomisados, etc. (por Kg) | 425,00
+157. | Servicios de Cámara de refrigeración para biológicos que |
+| ingresan al país. (Tarifa por día) | 600,00
+158. | Inspección de productos y subproductos de origen animal |
+| (en importación, exportación y tránsito. | 3.300,00
+159. | Inspección de animales (equinos. bovinos, cerdos, cabras, |
+| ovejas, perros, gatos y otros),productos y subproductos de origen |
+| animal en importación, exportación y transito (por animal) | 600,00
+160. | Inspección de otras especies de animales (aves domésticas |
+| y ornamentales, por embarque) | 1.800,00
+| Solicitud Análisis de riesgo: |
+161. | - Consulta técnica | 6.060,00
+162. | - Cualitativo | 24.225.00
+163. | - Cuantitativo | 54.500,00
+164. | Registro anual de exportadores | 24.225,00
+165. | Toma de muestra de productos y subproductos de |
+| origen animal importados | 1.200,00
+166. | Inspección de reinas para importación y exportación cada 10 reinas) | 1.800,00
+(Así reformado por el artículo 1° del decreto ejecutivo N° 28560 del 18 de febrero de 2000)
