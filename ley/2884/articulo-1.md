@@ -1,0 +1,4 @@
+N° 2884
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+Artículo 1°-Se autoriza al “Asilo de Ancianos de la Ciudad de Cartago”, para donar a la “Congregación de Religiosas Terciarias Franciscanas de la Purisima”, de la ciudad de Cartago, un lote de terreno, que es parte de la finca inscrita en el Registro de la Propiedad, Partido de Cartago, en el tomo 1160, folio 282, N° 40.756, asiento 1, que se describe así: terreno para construir, sito en el Barrio El Carmen, distrito 4°, cantón 1° de la provincia de Cartago, Mide: una hectárea, cuatro áreas, treinta y seis centiáreas, un decímetro cuadrado. Linda actualmente: Norte, resto de la finca madre de propiedad del Asilo; Sur, avenida 8A a la que mide 184 metros, 69 centímetros; este, calle 5a, a la que mide74 metros, 97 centímetros; y Oeste, calle 9a a la que mide 22 metros, 32 centímetros.
