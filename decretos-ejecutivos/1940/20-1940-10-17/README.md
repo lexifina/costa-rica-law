@@ -12,3 +12,4 @@ Previene Productores Mantequilla Obtener Autorización para Expenderla
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1940-10-17 | la propia norma |
+| 2 | 1951-01-05 | Decreto Ejecutivo 4 (1951-01-05) |
