@@ -1,0 +1,1 @@
+Artículo 2°.- La venta puede hacerse en la villa de Bagaces, y cuando el comprador sea pobre, podrá pagar el precio en cuatro anualidades, iguales, siempre que satisfaga al contado e hipoteque el lote en garantía de su obligación.
