@@ -1,0 +1,1 @@
+Artículo 6° ––La comisión nombrará una secretaría que será responsable de llevar las actas y apoyar a la coordinación en la elaboración de la agenda de las reuniones y convocatoria de los integrantes.

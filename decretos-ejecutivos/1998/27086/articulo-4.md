@@ -1,0 +1,1 @@
+Artículo 4°––Los integrantes titulares y suplentes serán nombrados por el titular de cada ministerio, institución, o sus respectivas cámaras u organizaciones, por un período de dos años, pudiendo ser reelectos. El representante suplente asistirá a las reuniones en ausencia del titular o bien en presencia de este; el primer de los casos tendrá voz pero no voto.

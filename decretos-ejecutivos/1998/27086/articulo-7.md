@@ -1,0 +1,1 @@
+Artículo 7°––La comisión integrará las subcomisiones que sean necesarias para la consecución de sus fines. Estas tendrán objetivos y funciones específicas y funcionarán de conformidad con las regulaciones que determine la comisión.

@@ -1,0 +1,1 @@
+Artículo 5°––La comisión sesionará ordinariamente una vez al mes y extraordinariamente cuando el coordinador lo disponga, o a solicitud de dos de sus miembros. Las reuniones serán presididas por el coordinador.
