@@ -1,0 +1,1 @@
+Artículo 2°-Este lote lo destinará exclusivamente la Congregación mencionada en el artículo 1°, para la construcción del edificio necesario para la formación religiosa y cultural de la misma Congregación.

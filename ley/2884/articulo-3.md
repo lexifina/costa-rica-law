@@ -1,0 +1,1 @@
+Artículo 3°-En caso de que la Congregación de Religiosas Terciarias Franciscanas de la Purísima cese en sus actividades religioso-culturales en el país, el lote objeto de cesión volverá a poder del Asilo de Ancianos de Cartago, previo pago de las mejoras que se hubieren hecho en el fundo, de conformidad con informe pericial de la tributación Directa.
