@@ -1,0 +1,1 @@
+Artículo 4°—Deróguese el decreto ejecutivo No 21226-MEIC-MAG de veintitrés de abril de mil novecientos noventa y dos, visible a Diario Oficial "La Gaceta" No 88 de ocho de mayo de mil novecientos noventa y dos.
