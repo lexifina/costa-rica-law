@@ -1,0 +1,1 @@
+Artículo 22.—Los inicios de los períodos administrativos del Régimen, deben coincidir con los del CFIA. En la primera sesión de cada período, se elegirá directorio y se señalará día, hora y periodicidad de las sesiones ordinarias para las cuales no es necesario que medie convocatoria. Se realizarán un mínimo de dos sesiones ordinarias al mes.

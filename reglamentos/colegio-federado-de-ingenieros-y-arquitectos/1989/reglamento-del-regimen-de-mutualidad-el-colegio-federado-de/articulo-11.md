@@ -1,0 +1,1 @@
+Artículo 11.—El Presidente y Vicepresidente y Contralor de la Junta Directiva General, podrán asistir a las reuniones de la Junta Asesora de Administración, y tendrán derecho a voz y voto en las sesiones y a participar en todas las actividades de la Junta Asesora.

@@ -1,0 +1,1 @@
+Artículo 7°—Aquellas personas que hayan perdido sus derechos dentro del Régimen, los recuperarán en el momento en que se reincorporen al Colegio y paguen las cuotas atrasadas y las multas correspondientes.

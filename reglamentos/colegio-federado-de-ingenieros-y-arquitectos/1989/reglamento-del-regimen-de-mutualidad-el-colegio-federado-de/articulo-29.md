@@ -1,0 +1,1 @@
+Artículo 29.—Los acuerdos se tomarán por simple mayoría de votos y quedarán firmes si ningún director solicita revisión del acuerdo, durante la sesión o en el transcurso de las veinticuatro horas siguientes. Dicha revisión deberá solicitarse al Gerente del Régimen para ser planteada en la siguiente sesión. En caso de ratificarse el acuerdo, este tendrá carácter firme.

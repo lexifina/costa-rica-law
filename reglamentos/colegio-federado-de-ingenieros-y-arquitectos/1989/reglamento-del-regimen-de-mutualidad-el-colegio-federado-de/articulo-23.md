@@ -1,0 +1,1 @@
+Artículo 23.—Para conocer casos específicos se realizarán sesiones extraordinarias de la Junta Asesora de Administración. Estas sesiones serán convocadas por el Presidente de la Junta Asesora, por tres de sus miembros o por el Gerente del Régimen.

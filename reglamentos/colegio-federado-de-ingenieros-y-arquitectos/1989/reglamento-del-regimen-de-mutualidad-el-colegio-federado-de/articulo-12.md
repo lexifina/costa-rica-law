@@ -1,0 +1,3 @@
+Artículo 12.—La Junta Asesora de Administración, según lo dispuesto en el artículo 58 de la Ley Orgánica y el artículo 83 del Reglamento Interior General realizará su labor dentro de dos marcos de referencia, a los cuales estará sujeta:
+a) En cuanto al programa de trabajo y presupuesto, al proyecto anual aprobado por la Asamblea de Representantes.
+b)En cuanto a la administración, al Plan Semestral de Inversiones que apruebe la Junta Directiva General, el cual incluirá las autorizaciones necesarias para la enajenación de inmuebles y gravámenes de muebles, el arrendamiento de inmuebles y para renunciar, transigir o comprometer en árbitros bienes muebles o derechos.

@@ -1,0 +1,2 @@
+Artículo 27.—La Junta Asesora de Administración del Régimen podrá dar licencia a sus miembros para no concurrir a sesiones, por períodos no mayores de tres meses en casos muy calificados.
+El interesado deberá enviar una nota dirigida a la Junta Asesora de Administración del Régimen, solicitándole la respectiva licencia, la cual será resuelta en las sesiones siguientes. Las licencias por períodos mayores, serán resueltas por la Junta Directiva General.

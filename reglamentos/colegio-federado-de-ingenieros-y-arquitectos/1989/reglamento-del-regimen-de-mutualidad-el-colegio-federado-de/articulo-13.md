@@ -1,0 +1,5 @@
+Artículo 13.—
+a) Los asuntos llevados a conocimiento de la Junta Asesora de Administración que no correspondan a su función técnico ejecutiva, deberán ser trasladados a la Junta Directiva General para su resolución.
+b) Cuando el o los acuerdos afecten a una persona en particular, se le deberá notificar por correo certificado o personalmente.
+La persona que se sienta perjudicada por un acuerdo de la Junta Asesora de Administración, tendrá derecho a pedir revocatoria y a apelar a la Junta Directiva General, dentro de los tres días hábiles siguientes a la fecha en que reciba la respectiva notificación, mediante escrito que se presentará a la Gerencia del Régimen o a la Dirección Ejecutiva del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, según el caso.
+Dicho escrito no requiere ninguna formalidad, excepto que deberá estar firmado por el apelante, quien deberá identificarse con su cédula. Si se presentaren ambos recursos simultáneamente, el escrito deberá entregarse a la Gerencia del Régimen.
