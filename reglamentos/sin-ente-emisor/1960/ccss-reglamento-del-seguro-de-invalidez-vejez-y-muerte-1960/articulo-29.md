@@ -1,0 +1,3 @@
+Beneficios por Invalidez
+Artículo 29.-Para tener derecho a pensión de Invalidez, se requiere además de ser un inválido en. los términos indicados en el artículo siguiente, haber cotizado con 36 ó más cuotas mensuales y demostrar que la invalidez, se ha manifestado o producido en fecha posterior a su ingreso al Seguro de Invalidez, Vejez y Muerte.
+El asegurado cuyo estado de invalidez sobreviniere después de los 55 años, deberá completar, aparte de las 36 cuotas mensuales, un equivalente a dos cuotas mensuales más por cada año que transcurra después de los 55 años hasta el momento en que se invalidare.

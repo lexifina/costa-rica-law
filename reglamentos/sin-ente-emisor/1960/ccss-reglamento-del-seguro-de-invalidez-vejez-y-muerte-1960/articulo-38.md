@@ -1,0 +1,2 @@
+Artículo 38.-El disfrute de la renta de invalidez, comienza a partir de la fecha en que, según los médicos de la Caja, se inicia el estado de invalidez, y cesa con la muerte del asegurado o en el momento en que se compruebe que su incapacidad para el trabajo, según los términos del artículo 30, no es mayor de las dos terceras partes de la capacidad total.
+Si no fuere posible determinar la fecha del comienzo de la incapacidad, el disfrute de la pensión comenzará a partir del momento en que se presente la solicitud respectiva.

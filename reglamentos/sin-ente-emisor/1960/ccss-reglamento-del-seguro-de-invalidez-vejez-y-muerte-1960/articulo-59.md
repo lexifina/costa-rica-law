@@ -1,0 +1,1 @@
+Articulo 59.-Ninguna pensión por invalidez o por vejez, ni el conjunto de que se otorguen en casos de muerte, podrán exceder en su monto mensual salvo el caso de mejora por aplazamiento, del equivalente al 70 % sobre el sueldo promedio, limitado el sueldo para estos propósitos, a un máximo de dos mil colones mensuales.

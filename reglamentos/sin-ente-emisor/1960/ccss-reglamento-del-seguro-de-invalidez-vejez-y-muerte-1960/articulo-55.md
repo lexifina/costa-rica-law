@@ -1,0 +1,1 @@
+Artículo 55.-Si no hubiere viuda, ni hijos, ni padres con derecho a renta, y siempre que se hubiere cumplido el plazo de espera indicado en el artículo anterior, tendrán derecho a renta los hermanos menores de 18 años que hayan vivido a cargo del fallecido y prueben esta dependencia a satisfacción de la Caja.

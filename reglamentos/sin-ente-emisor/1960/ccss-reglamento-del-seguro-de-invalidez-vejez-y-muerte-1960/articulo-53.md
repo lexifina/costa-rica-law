@@ -1,0 +1,1 @@
+Artículo 53.-EI derecho a disfrutar de la renta de orfandad empieza en la fecha del fallecimiento del asegurado y termina, con el fallecimiento del beneficiario o el cumplimiento de los 18 años de edad. En caso de huérfanos inválidos se mantendrá la Pensión mientras perdure el estado de invalidez.

@@ -1,0 +1,1 @@
+Articulo 24.-El derecho de cobrar las rentas ya acordadas prescribe en dos años a partir de la fecha de su otorgamiento en los casos de vejez y en un año en los de validez y muerte. Esta prescripción afecta solamente a las cuotas acumuladas en los períodos citados.

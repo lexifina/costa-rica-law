@@ -1,0 +1,1 @@
+Articulo 7°-Las solicitudes de continuación voluntaria en el Régimen de Invalidez, Vejez y Muerte, deben presentarse por escrito a la Gerencia de la Caja o a la Sucursal respectiva, en los formularios que para este efecto suministra la Institución.

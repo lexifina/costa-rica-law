@@ -1,0 +1,1 @@
+Artículo 72.-La prueba de la existencia física de los beneficiarios corresponde a éstos, lo mismo que Ia de las demás condiciones que se establecen para el goce de las rentas. En caso de incumplimiento de esos requisitos las prestaciones serán suspendidas.

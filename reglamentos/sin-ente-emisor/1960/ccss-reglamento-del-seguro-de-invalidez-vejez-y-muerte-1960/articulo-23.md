@@ -1,0 +1,2 @@
+Prescripción de Pagos y de Reconocimiento de Beneficios
+Artículo 23.-El derecho para reclamar el otorgamiento de las pensiones de invalidez prescribe en el término de dos años. Igual término rige para el reclamo de las prestaciones reglamentarias en caso de muerte del asegurado, excepto en los casos de pensiones de vejez. El término de la prescripción comienza a contarse a partir del momento en que se cumplan los requisitos legales y reglamentarios exigidos para el ejercicio del respectivo derecho. El derecho para reclamar las pensiones de vejez es imprescriptible.

@@ -1,0 +1,1 @@
+Artículo 66.-Las cotizaciones de los asegurados y sus patronos se harán efectivas en la Caja, a través de la Sección de Ingresos o de la Sucursal respectiva simultáneamente con la entrega de las planillas, quedando obligado el patrono a hacer las correspondientes deducciones a los asegurados en el momento de pagar los salarios.
