@@ -14,3 +14,4 @@ Reglamento de Becas Municipales de la Municipalidad de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-07 | la propia norma |
+| 2 | 2002-12-23 | Reglamento municipal 0 (2002-12-23) |
