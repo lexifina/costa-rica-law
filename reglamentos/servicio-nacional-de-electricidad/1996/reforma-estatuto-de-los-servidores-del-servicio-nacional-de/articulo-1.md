@@ -1,0 +1,4 @@
+SERVICIO NACIONAL DE EELCTRICIDAD
+La Junta Directiva de este organismo regulador, por artículo III inciso ch) del acta de la sesión ordinaria N° 2927-96, celebrada el 12 de febrero de 1996 y ratificada el 19 del mismo mes y año, acordó modificar el artículo 55 del estatuto de los Servidores del Servicio Nacional de Electricidad, para que se lea de la siguiente manera:
+“Los servidores gozarán sin interrupción del período de vacaciones que le correspondan, sin embargo, podrá dividirse en tractos por convenio de las partes cuando por la índole de las labores que ejecute el servidor no sea conveniente su ausencia por períodos prolongados. Las Jefaturas inmediatas y superiores tendrán bajo se responsabilidad velar por que no se produzcan abusos, injusticias, tratos discriminatorios, ni abandono masivo de trabajo”.
+Publíquese en el Diario Oficial.
