@@ -1,0 +1,4 @@
+Artículo 19.—Zonas de Mediano Riesgo de Inundación (Z.M.R.)
+19.1 Propósito: El propósito de esta zona es establecer un área de amortiguamiento entre las zonas de Alto Riesgo y las de Bajo Riesgo, donde la topografía es plana. Corresponde al área más alejada, con mayor altura, respecto al cauce principal, donde el riesgo de inundación está asociado a crecidas de considerable magnitud.
+19.2 Usos permitidos: Todas aquellas obras de infraestructura destinadas a salvaguarda los posibles riesgos por inundación tales como, muros de gaviones, diques, canalización de aguas, etc. Así como las construcciones permitidas por la Ley de Cogéneración Eléctrica Paralela y Autónoma. La actividad agrícola o forestal, sin construcción de edificaciones.
+19.3 Requisitos: El área mínima de la segregación para uso agrícola o forestal será de una hectárea, habilitada únicamente por servidumbre agrícola con 7 metros, de ancho, que debe formar parte de la parcela.
