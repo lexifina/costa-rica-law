@@ -1,4 +1,4 @@
-Artículo 20.-Un proyecto que requiera más de un cinco por ciento de
+Artículo 20.- Un proyecto que requiera más de un cinco por ciento de
 sus recursos anuales propios deberá ser aprobado por la unanimidad de los
 miembros del Consejo Director. El Consejo Director no podrá, en ningún
 caso, destinar más de un 20% de sus recursos en un solo proyecto, ni
