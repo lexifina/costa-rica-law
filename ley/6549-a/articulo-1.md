@@ -1,0 +1,69 @@
+Artículo 1º.- Ratifícase el Convenio Nº 147, sobre normas mínimas de la marina mercante, adoptado por la Conferencia Internacional del Trabajo, en su sexagésima segunda reunión, celebrada en 1976, cuyo texto es el siguiente:
+Convenio 147
+CONVENIO SOBRE LAS NORMAS MINIMAS DE LA MARINA MERCANTE
+La Conferencia General de la Organización Internacional del Trabajo:
+Convocada en Ginebra por el Consejo de Administración de la Oficina Internacional del Trabajo, y congregada en dicha ciudad el 13 de octubre de 1976 en su sexagesimasegunda reunión; Recordando las disposiciones de la Recomendación sobre el enrolamiento de la gente de mar (buques extranjeros), 1958, y de la Recomendación sobre las condiciones sociales y de seguridad de la gente de mar, 1958; Después de haber decidido adoptar diversas proposiciones relativas a los navíos en que prevalecen condiciones inferiores a las normas mínimas, especialmente los registrados bajo banderas de conveniencia, cuestión que constituye el quinto punto del orden del día de la reunión, y Después de haber decidido que dichas proposiciones revistan la forma de un convenio internacional, adopta, con fecha veintinueve de octubre de mil novecientos setenta y seis, el presente Convenio, que podrá ser citado como el Convenio sobre la marina mercante (normas mínimas), 1976:
+Artículo 2
+Todo Miembro que ratifique el presente Convenio se compromete:
+a) a promulgar una legislación que prevea para los buques matriculados en su territorio:
+i) normas de seguridad, incluidas normas de capacidad de la tripulación, horas de trabajo y dotación, a fin de garantizar la seguridad de la vida humana a bordo de los buques;
+ii) un régimen apropiado de seguridad social;
+iii) condiciones de empleo y de vida a bordo, en la medida en que, a su juicio, no sean objeto de contratos colectivos o no sean determinadas por los tribunales competentes mediante decisiones igualmente obligatorias para los armadores y la gente de mar, y a verificar que las disposiciones de dicha legislación son en sustancia equivalentes a los convenios o a los artículos de los mismos enumerados en el anexo de este Convenio, en la medida en que el Estado Miembro no esté obligado por otro concepto a dar efecto a estos convenios;
+b) a ejercer una jurisdicción o control efectivos sobre los buques matriculados en su territorio respecto de:
+i) normas de seguridad, incluidas normas en materia de capacidad de la tripulación, horas de trabajo a bordo y dotación prescritas por la legislación nacional;
+ii) la aplicación del régimen de seguridad social prescrito por la legislación nacional;
+iii) las condiciones de empleo y de vida a bordo prescritas por la legislación nacional o determinadas por los tribunales competentes mediante decisiones igualmente obligatorias para los armadores y la gente de mar;
+c) a comprobar que existen medidas de control efectivo de aquellas otras condiciones de empleo y de vida a bordo sobre las cuales no tiene una jurisdicción efectiva, según procedimientos establecidos por acuerdo entre los armadores o sus organizaciones y las organizaciones de gente de mar, constituidas de conformidad con las disposiciones esenciales del Convenio sobre la libertad sindical y la protección del derecho de sindicación, 1948, y del Convenio sobre el derecho de sindicación y de negociación colectiva, 1949;
+d) a asegurar:
+i) que existan procedimientos adecuados -- subordinados a la supervisión general de la autoridad competente, previa consulta tripartita entre esta autoridad y las organizaciones representativas de armadores y de la gente de mar en los casos apropiados -- para el enrolamiento de la gente de mar en los buques matriculados en su territorio y para el examen de las quejas que se presenten a este respecto;
+ii) que existan procedimientos adecuados -- subordinados a la supervisión general de la autoridad competente, previa consulta tripartita en los casos apropiados entre esta autoridad y las organizaciones representativas de armadores y de la gente de mar -- para el examen de toda queja relativa al enrolamiento, y en lo posible formulada en el momento del mismo, en su territorio, de gente de mar de su propia nacionalidad en buques matriculados en un país extranjero y para que tales quejas, así como toda queja relativa al enrolamiento, y en lo posible formulada en el momento del mismo, en su territorio, de gente de mar extranjera en buques matriculados en un país extranjero, sean transmitidas rápidamente por la autoridad competente a la autoridad competente del país en el que está matriculado el buque, con copia al Director General de la Oficina Internacional del Trabajo;
+e) a asegurar que la gente de mar enrolada en buques matriculados en su territorio posee la calificación o la formación adecuada para realizar las tareas para las que ha sido contratada, teniendo debidamente en cuenta lo dispuesto en la Recomendación sobre la formación profesional (gente de mar), 1970;
+f) a verificar mediante inspección u otras medidas apropiadas que los buques matriculados en su territorio cumplen con los convenios internacionales del trabajo en vigor que haya ratificado, con la legislación prevista en el apartado a) del presente artículo y, según sea apropiado con arreglo a la legislación nacional, con los contratos colectivos;
+g) a llevar a cabo una encuesta oficial en cada caso de accidente grave en el que se vean implicados buques matriculados en su territorio, particularmente cuando haya habido heridos o pérdida de vidas humanas; el informe final de dicha encuesta debería normalmente hacerse público.
+Artículo 3
+Todo Miembro que ratifique el presente Convenio informará a sus nacionales, en la medida en que resulte posible, sobre los problemas que puedan derivarse del enrolamiento en un buque registrado en un Estado que no lo haya ratificado, mientras no se adquiera la convicción de que se aplican normas equivalentes a las fijadas en el presente Convenio. Las medidas adoptadas con este fin por el Estado que lo haya ratificado no deberán estar en contradicción con el principio de libre circulación de trabajadores, estipulado por los tratados de los que ambos Estados puedan ser partes.
+Artículo 4
+1. Si un Estado Miembro que ha ratificado el presente Convenio, al encontrarse en uno de sus puertos un buque que en él hace escala en el curso normal de su actividad o por razones inherentes a su utilización, recibe una queja o tiene pruebas de que en dicho buque no se observan las normas de este Convenio, podrá, una vez que éste haya entrado en vigor, enviar un informe al gobierno del país en el cual el buque está matriculado, con copia al Director General de la Oficina Internacional del Trabajo, y podrá tomar las medidas necesarias para poner remedio a cualquier situación a bordo que resulte claramente peligrosa para la seguridad o la salud.
+2. Al tomar tales medidas, el Miembro deberá informar inmediatamente al más próximo representante marítimo, consular o diplomático del Estado de la bandera, y solicitará la presencia de dicho representante si es posible; en ningún caso deberá detener o demorar el navío sin motivo.
+3. A los efectos de este artículo se entiende por [ queja ] la información presentada por un miembro de la tripulación, una organización profesional, una asociación, un sindicato en general cualquier persona que tenga un interés en la seguridad del buque, incluido lo relativo a riesgos de la seguridad o salud de la tripulación.
+Artículo 5
+1. El presente Convenio está abierto a la ratificación de los Estados Miembros que se hayan adherido a los instrumentos internacionales citados a continuación o, en el caso de los que figuran en el apartado c), hayan puesto en aplicación sus disposiciones:
+a) la Convención internacional para la seguridad de la vida humana en el mar, 1960, con las enmiendas que estén o entren en vigor, o la Convención internacional para la seguridad de la vida humana en el mar, 1974, o cualquier otro instrumento que revise esas dos Convenciones;
+b) el Convenio internacional sobre líneas de carga, 1966, o cualquier instrumento que lo revise, y
+c) el Reglamento sobre prevención de los abordajes, 1960, o el Convenio sobre el Reglamento internacional para prevenir los abordajes en el mar, 1972, o cualquier instrumento que revise esos instrumentos internacionales.
+2. El presente Convenio está además abierto a la ratificación de cualquier Miembro que se comprometa al ratificarlo a cumplir con las condiciones a que el párrafo 1 subordina la ratificación y que no se cumplen aún.
+3. Las ratificaciones formales del presente Convenio serán comunicadas, para su registro, al Director General de la Oficina Internacional del Trabajo.
+Artículo 6
+1. El presente Convenio obligará únicamente a aquellos Estados Miembros de la Organización Internacional del Trabajo cuyas ratificaciones haya registrado el Director General.
+2. Entrará en vigor doce meses después de la fecha en que se hayan registrado las ratificaciones de al menos diez Estados Miembros que posean en conjunto veinticinco por ciento del tonelaje bruto de la flota mercante mundial.
+3. Desde dicho momento, este Convenio entrará en vigor, para cada Miembro, doce meses después de la fecha en que haya sido registrada su ratificación.
+Artículo 7
+. Todo Miembro que haya ratificado este Convenio podrá denunciarlo a la expiración de un período de diez años, a partir de la fecha en que se haya puesto inicialmente en vigor, mediante un acta comunicada, para su registro, al Director General de la Oficina Internacional del Trabajo. La denuncia no surtirá efecto hasta un año después de la fecha en que se haya registrado.
+2. Todo Miembro que haya ratificado este Convenio y que, en el plazo de un año después de la expiración del período de diez años mencionado en el párrafo precedente, no haga uso del derecho de denuncia previsto en este artículo quedará obligado durante un nuevo período de diez años, y en lo sucesivo podrá denunciar este Convenio a la expiración de cada período de diez años, en las condiciones previstas en este artículo.
+Artículo 8
+1. El Director General de la Oficina Internacional del Trabajo notificará a todos los Miembros de la Organización Internacional del Trabajo el registro de cuantas ratificaciones, declaraciones y denuncias le comuniquen los Miembros de la Organización.
+2. Cuando se hayan cumplido las condiciones enunciadas en el párrafo 2 del artículo 6, el Director General llamará la atención de los Miembros de la Organización sobre la fecha en que entrará en vigor el presente Convenio.
+Artículo 9
+El Director General de la Oficina Internacional del Trabajo comunicará al Secretario General de las Naciones Unidas, a los efectos del registro y de conformidad con el artículo 102 de la Carta de las Naciones Unidas, una información completa sobre todas las ratificaciones, declaraciones y actas de denuncia que haya registrado de acuerdo con los artículos precedentes.
+Artículo 10
+Cada vez que lo estime necesario, el Consejo de Administración de la Oficina Internacional del Trabajo presentará a la Conferencia una memoria sobre la aplicación del Convenio, y considerará la conveniencia de incluir en el orden del día de la Conferencia la cuestión de su revisión total o parcial.
+Artículo 11
+1. En caso de que la Conferencia adopte un nuevo convenio que implique una revisión total o parcial del presente, y a menos que el nuevo convenio contenga disposiciones en contrario:
+a) la ratificación, por un Miembro, del nuevo convenio revisor implicará, ipso jure, la denuncia inmediata de este Convenio, no obstante las disposiciones contenidas en el artículo 7, siempre que el nuevo convenio revisor haya entrado en vigor;
+b) a partir de la fecha en que entre en vigor el nuevo convenio revisor, el presente Convenio cesará de estar abierto a la ratificación por los Miembros.
+2. Este Convenio continuará en vigor en todo caso, en su forma y contenido actuales, para los Miembros que lo hayan ratificado y no ratifiquen el convenio revisor.
+Artículo 12
+Las versiones inglesa y francesa del texto de este Convenio son igualmente auténticas.
+ANEXO
+ANEXO
+Convenio sobre la edad mínima, 1973 (núm. 138), o Convenio (revisado) sobre la edad mínima (trabajo marítimo), 1936 (núm. 58), o Convenio sobre la edad mínima (trabajo marítimo), 1920 (núm. 7);
+Convenio sobre las obligaciones del armador en caso de enfermedad o accidente de la gente de mar, 1936 (núm. 55), oConvenio sobre el seguro de enfermedad de la gente de mar, 1936 (núm. 56), oConvenio sobre asistencia médica y prestaciones monetarias de enfermedad, 1969 (núm. 130);
+Convenio sobre el examen médico de la gente de mar, 1946 (núm. 73);
+Convenio sobre la prevención de accidentes (gente de mar), 1970 (núm. 134) (artículos 4 y 7);
+onvenio sobre el alojamiento de la tripulación (revisado), 1949 (núm. 92);
+Convenio sobre la alimentación y el servicio de fonda (tripulación de buques), 1946 (núm. 68) (artículo 5);
+Convenio sobre los certificados de capacidad de los oficiales, 1936 (núm. 53) (artículos 3 y 4) (Nota : Cuando el respeto estricto de las normas pertinentes que figuran en el Convenio sobre los certificados de capacidad de los oficiales, 1936, planteara problemas susceptibles de acarrear perjuicios a los sistemas y a los procedimientos establecidos por un Estado para la concesión de certificados de capacidad, se aplicará el principio de equivalencia substancial, a fin de evitar el conflicto con las medidas tomadas por ese Estado en materia de certificados.);
+Convenio sobre el contrato de enrolamiento de la gente de mar, 1926 (núm. 22);
+Convenio sobre la repatriación de la gente de mar, 1926 (núm. 23);
+Convenio sobre la libertad sindical y la protección del derecho de sindicación, 1948 (núm. 87);
+Convenio sobre el derecho de sindicación y de negociación colectiva, 1949 (núm. 98).
