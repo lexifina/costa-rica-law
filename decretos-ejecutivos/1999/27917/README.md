@@ -14,3 +14,4 @@ Reforma Organizativa y Funcional del Ministerio de Obras Públicas y Transportes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-10 | la propia norma |
+| 2 | 2001-03-22 | Decreto Ejecutivo 29547 (2001-03-22) |

@@ -1,8 +1,6 @@
 CAPITULO VII
 Del área de puertos
-Artículo 38.—De la División de Puertos. La División de Puertos se constituye con la reunión de las funciones que anteriormente desarrollaban las unidades de Obras Portuarias y Transporte Marítimo. Con este propósito se excluye de esta División la materia fluvial que se mantiene en la División de Obras Públicas.
-Su titular será el jerarca de la antigua Dirección de Obras Portuarias.
-Esta unidad comprenderá los procesos de:
-- Gestión Portuaria.
-- Infraestructura Portuaria y Marítima.
-- Seguridad Marítima y Portuaria.
+Artículo 38.—De la División Marítimo Portuaria. La División Marítimo Portuaria se constituye con la reunión de las funciones que anteriormente desarrollaban las Unidades Administrativas Portuarias y Transporte Marítimo. Con este propósito se excluye de esta División la infraestructura fluvial que se mantiene en la División de Obras Públicas. Su titular será el jerarca de la antigua Dirección de Obras Portuarias.
+El Director de la División Marítimo Portuaria, tendrá las siguientes funciones: coordinará con la Dirección de Planificación Sectorial la formulación de políticas de desarrollo marítimo y portuario; coordinará con el Consejo Directivo la elaboración y cumplimiento de la política integral multimodal; mantendrá una relación constante y servirá de enlace con los organismos internacionales y regionales relacionados con la actividad marítima y portuaria (UNCTAD, CEPAL, OMI, COCATRAM, COMITRAM, etc.); establecerá políticas para promover la formación y capacitación del personal de la División, fiscalizará los planes de estudio y funcionamiento de los establecimientos dedicados a la enseñanza de las actividades propias del subsector marítimo; coordinará la ejecución de las políticas y acuerdos que tome el Consejo Directivo Nacional en asuntos propios de su competencia y asumirá todas aquellas funciones que le resultaren inherentes y atribuibles en razón de la aplicación de este Decreto como jerarca superior de la División.
+La División Marítimo Portuaria estará conformada por las Direcciones de: Gestión, Infraestructura; Navegación y Seguridad y para el cumplimiento de sus objetivos la División contará con una Unidad Asesora, la Asesoría Técnico Legal y cualesquiera otras que le resulten necesarias.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 29547 del 22 de marzo del 2001)
