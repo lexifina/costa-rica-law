@@ -1,0 +1,1 @@
+Artículo 9º—Los beneficiarios, previo a recibir lo solicitado, deberán acreditar la personería jurídica o cédula de identidad cuando se trate de personas físicas y comprometerse a presentar liquidación y comprobar el correcto uso y aplicación de lo autorizado. Inmediatamente posterior a finalizar lo financiado; así como el beneficio obtenido para los intereses del cantón.
