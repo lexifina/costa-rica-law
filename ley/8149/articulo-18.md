@@ -1,0 +1,1 @@
+ARTÍCULO 18.- Facúltase a la Junta Directiva del Instituto para contratar los servicios profesionales, técnicos y administrativos necesarios para ejecutar y controlar sus operaciones, así como para adquirir el equipo y mobiliario requeridos para desempeñar sus funciones.

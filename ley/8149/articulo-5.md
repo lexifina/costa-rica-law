@@ -1,0 +1,1 @@
+ARTÍCULO 5.- El Instituto establecerá un nexo institucional con el Servicio de Extensión Agrícola del Estado, que garantice la transferencia tecnológica a los pequeños y medianos productores agropecuarios, en forma directa y sin costo.

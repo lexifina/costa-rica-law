@@ -1,0 +1,1 @@
+ARTÍCULO 9.- El ministro de Agricultura y Ganadería o su representante será el presidente de la Junta Directiva. La Junta elegirá de entre sus miembros a un vicepresidente y un secretario, quienes permanecerán en sus cargos dos años y podrán ser reelegidos.
