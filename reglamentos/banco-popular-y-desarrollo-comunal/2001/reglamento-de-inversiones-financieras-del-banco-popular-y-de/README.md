@@ -14,3 +14,4 @@ Reglamento de Inversiones Financieras del Banco Popular y de Desarrollo Comunal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-12 | la propia norma |
+| 2 | 2002-04-16 | Reglamento 3987 (2002-04-16) |
