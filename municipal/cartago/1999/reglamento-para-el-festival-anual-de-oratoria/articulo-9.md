@@ -1,1 +1,0 @@
-Artículo Nº 9º—Todo participante del Festival de Oratoria deberá acatar los ordenamientos de este reglamento, cumplir las indicaciones que el jurado indique y aceptar sus decisiones , las cuales son inapelables.

@@ -1,1 +1,0 @@
-Artículo Nº 7º—No podrá ser miembro del jurado del Festival de Oratoria, Directores y Personal Docente y Administrativo de ninguna de las instituciones participantes en dicho evento, esto con el fin de evitar problemas a la hora de escogencia y deliberación de los ganadores por parte del Jurado calificador.

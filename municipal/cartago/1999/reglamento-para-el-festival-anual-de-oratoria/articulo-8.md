@@ -1,1 +1,0 @@
-Artículo Nº 8º—El tiempo de la exposición será: Para Nivel de Kinder mínimo dos minutos y máximo tres, para primaria será de tres minutos mínimo y cuatro máximo y para secundaria el tiempo será de siete minutos mínimo y diez máximo.
