@@ -1,2 +1,0 @@
-Transitorio V.- Tanto el Estado por medio del Servicio de Extensión Agrícola del Programa ICAFE-MAG, y de la Dirección de Investigación Agrícola, así como el sector privado representado a través de ICAFE de la Federación de Cooperativas de Caficultores, realizará una campaña para capacitar a los caficultores a combatir el hongo (Mycena Citricolor) con el insecticida sustituto.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 20384 del 20 de marzo de 1991)
