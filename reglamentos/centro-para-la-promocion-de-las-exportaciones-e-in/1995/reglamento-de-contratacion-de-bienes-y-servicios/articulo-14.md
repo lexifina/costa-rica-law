@@ -1,0 +1,8 @@
+CAPITULO IV
+De las prohibiciones.
+Artículo 14.
+a- Queda absolutamente prohibido a los funcionarios de CENPRO y a los miembros del Consejo Directivo participar directa o indirectamente y en su carácter particular, en contrataciones con CENPRO. La misma prohibición rige para el cónyuge, los hijos, padres, hermanos, suegros, yernos y cuñados de los funcionarios y de los miembros del Consejo Directivo. La trasgresión a dicha prohibición será considerada como falta grave que generará el despido sin responsabilidad patronal para los funcionarios, estando la Dirección Ejecutiva en la obligación de ejecutar el despido. Los miembros del Consejo Directivo que infringieran esta disposición, serán objeto de las sanciones contempladas en la legislación aplicable.
+De la misma manera se prohíbe la contratación con las sociedades en que los funcionarios, miembros del Consejo Directivo o los mencionados parientes sean socios, directores o personeros.
+b- Es prohibido a los funcionarios de CENPRO, realizar compras que no se enmarquen dentro de este Reglamento-
+El empleado o funcionario que realice compras ajenas a estos procedimientos sin perjuicio de la sanciones aplicables, deberá pagar por su cuenta el costo de los artículos adquiridos.
+c- Es prohibido fraccionar operaciones con el propósito evidente de evadir el procedimiento normal de contrataciones. El fraccionamiento se considera ilícito cuando contándose con los recursos debidamente presupuestados y/o financiados y conociéndose la necesidad administrativa concreta o el suministro sucesivo que se pretenda obtener, se realizara más de una contratación del mismo suministro o servicio para el mismo objeto.

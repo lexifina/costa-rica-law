@@ -1,0 +1,2 @@
+Articulo 2. Actividad Ordinaria.
+Es la actividad principal que realiza CENPRO para cumplir con los cometidos impuestos por ley, por lo que las compras ordinarias corresponden a la adquisición de bienes y servicios necesarios para la operación normal se incluyen entre otros los formularios que expende la Ventanilla Única de Comercio Exterior, los formularios de la Secretaría Técnica , Guía de exportadores y otros.

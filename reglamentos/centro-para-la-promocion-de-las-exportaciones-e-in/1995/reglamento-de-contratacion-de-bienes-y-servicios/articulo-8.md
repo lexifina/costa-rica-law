@@ -1,0 +1,7 @@
+CAPITULO III
+Normas generales sobre contrataciones
+Artículo 8. De la determinación del procedimiento.
+La determinación del procedimiento a seguir se hará con base en una estimación del negocio actualizada al momento de disponer la invitación a participar. Para este efecto se tomará en consideración tanto el importe del principal como todas las formas de remuneración que deban cubrirse al contratista incluyendo primas, derechos, comisiones, intereses, impuestos, tasas, fletes, seguros y otros.
+Las compras realizadas por medio del sistema de caja chica que son reguladas por la Dirección Ejecutiva , requieren del trámite previo de solicitud ante la Oficina de Proveeduría. Una vez recibida la solicitud indicada, la Oficina de Proveeduría procederá de conformidad con los artículos 9 y 10 según corresponda.
+La Oficina de Proveeduría en cada caso emitirá órdenes de compra a nombre del vendedor o su representante. Dichas órdenes de compra serán aprobadas por la Dirección Ejecutiva , pudiendo ésta delegar esa potestad en niveles ejecutivos de menor rango.
+En sustitución de la orden de compra, operará el documento denominado orden de pago, cuando se atiendan pagos periódicos derivados de contrataciones, de servicios públicos o compras especiales en que por las condiciones o características especiales no es posible conocer a priori el monto de la transacción. La Dirección Ejecutiva emitirá las disposiciones internas que regularán la operación de este sistema.
