@@ -14,3 +14,4 @@ Declara Refugio Nacional de Vida Silvestre Playa Hermosa - Punta Mala
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-08-18 | la propia norma |
+| 2 | 2002-03-13 | Decreto Ejecutivo 30344 (2002-03-13) |
