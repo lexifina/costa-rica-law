@@ -1,0 +1,1 @@
+Artículo 12.—En caso de incumplimiento de los beneficiarios, el Consejo Nacional de Producción realizará las acciones administrativas y judiciales que tiendan a la recuperación de los desembolsos, intereses y gastos incurridos, ejecutando para ello las garantías rendidas.
