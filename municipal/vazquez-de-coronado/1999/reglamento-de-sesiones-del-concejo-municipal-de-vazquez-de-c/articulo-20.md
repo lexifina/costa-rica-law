@@ -1,0 +1,1 @@
+Artículo 20.—Todo regidor propietario o suplente en propiedad, presentara sus mociones y proposiciones por escrito y firmadas. El secretario anotara la hora y fecha en que fueron presentados y serán conocidas en estricto orden de presentación, salvo que se trate de mociones de orden.

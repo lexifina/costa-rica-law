@@ -1,0 +1,1 @@
+Artículo 28.—Toda iniciativa tendiente a adoptar, reforzar, suspender o derogar disposiciones reglamentarias, debe ser presentada o acogida para su trámite por el Alcalde Municipal o alguno de sus regidores.

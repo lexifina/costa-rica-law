@@ -1,0 +1,1 @@
+Artículo 26.—En el caso del Concejo Municipal, todo acuerdo originado por iniciativas de los regidores propietarios, se aprobará previo dictamen de una Comisión del Concejo. El dictamen de una Comisión podrá dispensarse en casos urgentes, si el Concejo Municipal acuerda por simple mayoría de los votos.

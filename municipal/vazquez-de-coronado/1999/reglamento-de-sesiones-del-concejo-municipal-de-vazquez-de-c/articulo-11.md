@@ -1,0 +1,1 @@
+Artículo 11.—El Regidor Propietario, Suplente o Síndico que llegare después de transcurridos quince minutos contados a partir de la hora señalada para iniciar la sesión, perderá el derecho a incorporarse a la misma, sin embargo, puede permanecer en el transcurso de la sesión como ciudadano.

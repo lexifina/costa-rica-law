@@ -1,0 +1,1 @@
+Artículo 8.—El quórum de las sesiones será de la mitad más uno de los regidores propietarios. Este número deberá encontrarse en el local de sesiones al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

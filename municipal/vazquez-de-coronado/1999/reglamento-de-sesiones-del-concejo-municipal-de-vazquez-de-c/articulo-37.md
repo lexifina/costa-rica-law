@@ -1,0 +1,1 @@
+Artículo 37.—Sin menoscabo de que puedan crearse otras comisiones especiales, para el Concejo Municipal al menos deberán existir las siguientes, según el Código Municipal: Hacienda y Presupuesto, Obras Públicas, Asuntos Ambientales, Asuntos Sociales, Gobierno y Administración, Asuntos Jurídicos, Asuntos Culturales y Condición de la Mujer.

@@ -1,0 +1,1 @@
+Articulo 43.—El presente reglamento deroga cualquier otro reglamento o disposición reglamentaria o acuerdo municipal que se le oponga. Ante cualquier reforma al Código Municipal, éste reglamento se ajustara a la misma modificación.

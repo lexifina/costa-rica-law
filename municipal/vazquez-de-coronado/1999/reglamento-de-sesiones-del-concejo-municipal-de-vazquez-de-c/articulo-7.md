@@ -1,0 +1,2 @@
+Artículo 7.—La convocatoria podrá ser por los siguientes medios:
+a) Personalmente al funcionario o en casa de habitación, en uno u otro caso firmara la persona que reciba la notificación debiendo la autoridad o el funcionario notificador hacerlo constar en el acta de la notificación, b) A los teléfonos que ha señalado el regidor, síndico o concejal, debiéndose en este caso siempre personalmente, c) Vía telefax, al número reportado por el Regidor y Síndico.

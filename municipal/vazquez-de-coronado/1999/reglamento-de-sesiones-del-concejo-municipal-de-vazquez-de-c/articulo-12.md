@@ -1,0 +1,1 @@
+Artículo 12.—El suplente que sustituyere a un propietario tendrá derecho a permanecer durante toda la sesión como miembro del Concejo Municipal respectivo con voz y voto, posterior a los 15 minutos de la hora señalada para la sesión.

@@ -1,0 +1,1 @@
+Artículo 35.—El regidor que razone su voto deberá circunscribirse al tema objeto de la votación y no podrá emplear más de tres minutos. Preferiblemente deberá presentarlo por escrito a la secretaria para su inclusión en el acta.
