@@ -1,0 +1,1 @@
+Artículo 22.—Los servidores y las servidoras del CONICIT, cualquiera que sea la función que desempeñen, tendrán derecho a un sueldo adicional en el mes de diciembre, en los términos que establece la Ley Nº 1981 del 9 de noviembre de 1955.

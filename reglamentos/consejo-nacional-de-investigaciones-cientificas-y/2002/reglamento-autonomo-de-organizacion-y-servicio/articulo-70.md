@@ -1,0 +1,1 @@
+Artículo 70.—La evaluación de cada servidor o servidora, la hará el superior inmediato, en los formularios que preparará el Área Administrativa-Financiera, según las instrucciones contenidas en el Manual de Procedimiento de la Evaluación del Desempeño.

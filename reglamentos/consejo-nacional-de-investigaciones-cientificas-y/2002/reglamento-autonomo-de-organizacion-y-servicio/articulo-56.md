@@ -1,0 +1,3 @@
+Artículo 56.—Se considerará ausencia la inasistencia a un día completo de labor. La inasistencia a una fracción de la jornada se computará como la mitad de una ausencia. Dos ausencias de media jornada se considerarán como una ausencia.
+Toda ausencia deberá justificarse por escrito por el servidor o la servidora ante el superior inmediato, dentro de los tres días naturales siguientes a la ausencia, salvo los casos que disponga de otra forma este reglamento y el ordenamiento jurídico vigente.
+No se pagará el salario que corresponda a las ausencias, salvo las excepciones que contemple el ordenamiento jurídico al respecto y que se justifiquen debidamente.

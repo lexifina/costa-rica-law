@@ -1,0 +1,1 @@
+Artículo 80.—El CONICIT dentro de sus posibilidades económicas, materiales y de recursos humanos, brindará los servicios médicos requeridos a todo el personal. Para ello contará con el Sistema de Atención Integral de Salud de la Caja Costarricense de Seguro Social.

@@ -1,0 +1,3 @@
+Artículo 98.—Inmediatamente concluida la instrucción del procedimiento por parte del Órgano Director, éste deberá remitir la totalidad del expediente instruido al Consejo Director, para que éste en un plazo no mayor de diez días hábiles proceda a emitir la resolución final del asunto sometido a su conocimiento e imponer las sanciones disciplinarias pertinentes en caso de que se considere probada la falta.
+Contra la resolución final del Consejo Director cabrá los recursos que disponga la Ley General de la Administración Pública al efecto.
+Agotados los procedimientos internos, se puede acudir a los tribunales laborales ordinarios, de conformidad con el artículo 18 de la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia Ley Nº 7476.

@@ -1,0 +1,6 @@
+Artículo 28.—Las vacaciones serán absolutamente incompensables salvo las siguientes excepciones:
+a) El servidor o servidora que cese en su trabajo por cualquier causa, tendrá derecho a recibir en dinero el importe correspondiente a las vacaciones no disfrutadas.
+b) Cuando el trabajo sea ocasional o a destajo.
+c) Cuando por alguna circunstancia justificada el servidor o la servidora que desempeñe labores técnicas, de dirección, de coordinación, de confianza y otras análogas que dificulten especialmente su reemplazo no haya disfrutado de sus vacaciones, podrá convenir con el patrono el pago del exceso del mínimo de dos semanas de vacaciones, por cada cincuenta semanas, siempre que no supere el equivalente a tres períodos acumulados. Esta compensación no podrá otorgarse, si ha recibido este beneficio en los dos años anteriores.
+Sin perjuicio de lo establecido en los incisos anteriores, el patrono velará porque sus servidores gocen de las vacaciones anuales a las cuales tengan derecho. En todo caso, se respetarán los derechos adquiridos en materia de vacaciones.
+El CONICIT actuará en estricto apego a las directrices emanadas por el Poder Ejecutivo en materia de compensación de vacaciones, entendiéndose que se procurará la no compensación de las mismas.

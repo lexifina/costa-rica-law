@@ -1,0 +1,1 @@
+Artículo 21.—Son hábiles para el trabajo todos los días del año, menos los feriados y aquéllos que el Poder Ejecutivo declare de asueto. Sin embargo podrá trabajarse en tales días, siempre y cuando ello fuere posible en observancia de lo dispuesto en el ordenamiento jurídico vigente, en cuyo caso se compensarán con tiempo o con el salario que corresponda.

@@ -1,0 +1,6 @@
+Artículo 44.—La suspensión del trabajo hasta por ocho días, sin goce de salario, se aplicará en los siguientes casos:
+a) En lo no dispuesto expresamente por este reglamento, cuando él o ella, después de haber sido amonestado o amonestada por escrito, incurra nuevamente en la falta que motivó dicha sanción.
+b) Cuando el servidor o la servidora viole alguna de las prohibiciones contenidas en el artículo 37 anterior no sancionada con advertencia escrita; o cuando incumpla con cualquiera de las obligaciones a que se refieren los artículos 32 y 33 del presente Reglamento y el artículo 18 del Reglamento General de Transportes y Uso de Vehículos del CONICIT después de haber sido amonestado o amonestada por escrito y habérsele impuesto una suspensión menor al precitado período de ocho días; todo sin perjuicio de que la falta en que incurra el servidor o la servidora fuere grave y diere mérito en tal caso para el despido sin responsabilidad patronal.
+c) Cuando él o ella cometiere otra falta de gravedad que no dé suficiente mérito para el despido sin responsabilidad patronal.
+d) En los demás casos previstos expresamente en este Reglamento.
+La reincidencia a que se refiere el artículo anterior y el presente se computará en un período de cuatro meses, contado a partir de la comunicación y aplicación al servidor o a la servidora de la primera medida disciplinaria.

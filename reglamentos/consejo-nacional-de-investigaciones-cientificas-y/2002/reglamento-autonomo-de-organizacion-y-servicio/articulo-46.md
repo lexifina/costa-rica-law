@@ -1,0 +1,1 @@
+Artículo 46.—La suspensión del trabajo sin goce de salario del servidor o la servidora, en el extremo máximo indicado en el artículo anterior, se impondrá en faltas graves como última medida correctiva previa al despido sin responsabilidad patronal y en los demás casos previstos por este Reglamento.

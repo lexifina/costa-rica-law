@@ -1,0 +1,1 @@
+Artículo 93.—Cualquier revelación de información sobre el procedimiento por parte de los integrantes del Órgano Director o de cualquier otra persona vinculada directa o indirectamente con el mismo, se considerará falta grave a la relación de servicio que será sancionada con suspensión del trabajo sin goce de salario por cinco días.

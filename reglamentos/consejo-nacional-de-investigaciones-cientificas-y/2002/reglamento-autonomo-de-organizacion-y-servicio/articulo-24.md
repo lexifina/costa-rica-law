@@ -1,0 +1,1 @@
+Artículo 24.—A efecto de aplicar el artículo anterior se computará el tiempo servido en años completos en cualquier puesto de la Administración Pública, aún cuando la prestación del servicio no haya sido ininterrumpida.

@@ -1,0 +1,28 @@
+CAPÍTULO VI
+De las obligaciones del personal
+Artículo 32.—Además de lo dispuesto en la Ley General de la Administración Pública en el Código de Trabajo, el ordenamiento jurídico vigente y otras disposiciones del presente Reglamento, son obligaciones del personal:
+a) Prestar sus servicios personalmente, en forma regular y continua, dentro de la jornada de trabajo, de conformidad con las condiciones de su respectiva relación de servicio.
+b) Comenzar las labores de conformidad con el horario estipulado: exactamente a la hora señalada no pudiendo abandonarlas ni suspenderlas sin causa justificada antes de haber cumplido su jornada de trabajo.
+c) Ejecutar la labor con la capacidad, dedicación y diligencia que el puesto requiera, aplicando todo su esfuerzo para el mejor desempeño de sus funciones.
+d) Cumplir con diligencia y buena voluntad las órdenes de su superior inmediato relativas al servicio y a los deberes del puesto que desempeñen, así como auxiliar a sus compañeras y compañeros de trabajo cuando su superior inmediato o quien lo represente lo indique, siempre que estas labores sean compatibles con sus aptitudes, estado, condición y puesto que ocupen.
+e) Guardar en sus relaciones con el público, con su superior inmediato, compañeros y compañeras de trabajo toda la consideración y respeto debidos, de modo que no origine queja justificada por desatención, maltrato o irrespeto.
+f) Vestir adecuadamente, durante las horas de labor, de conformidad con la naturaleza del puesto que desempeñen.
+g) Observar dignidad en el desempeño de sus funciones, guardar una conducta decorosa acorde con su condición de servidor público o de servidora pública, en resguardo del buen nombre de la Institución que sirven.
+h) En el transcurso de la jornada laboral, pedir permiso al superior inmediato antes de salir del centro de trabajo y reportar con exactitud el lugar donde se encontrará.
+i) Presentar a su superior inmediato constancia del tiempo empleado en sus visitas a las instituciones aseguradoras o al médico particular, cuando procedan, siempre que estas hayan sido previamente autorizadas para ello.
+j) Guardar la más absoluta reserva sobre los asuntos confidenciales del CONICIT, así como la debida discreción sobre lo relacionado con su trabajo cuando así lo requiera la naturaleza de sus labores, o en virtud de disposiciones legales o instrucciones especiales.
+k) Informar a su superior inmediato o ante quien corresponda de los hechos incorrectos o delictuosos que lleguen a su conocimiento y que perjudiquen a la institución.
+l) Informar a la mayor brevedad a su superior inmediato cualquier error, deficiencia o irregularidad que notaren en el trabajo o con ocasión del mismo.
+m) Conservar el buen estado de los equipos, mobiliario, útiles o cualquier instrumento que sea propiedad o esté al servicio de la Institución y no usarlos para fines ajenos a la realización del trabajo. Responder económicamente de los daños que causaren intencionalmente o negligentemente. Es entendido que no serán responsables del deterioro normal o del que se deba a caso fortuito, fuerza mayor o defectuosa confección.
+n) Comunicar a los superiores jerárquicos las observaciones que su experiencia y su conocimiento le sugieran para prevenir daños o perjuicios a los intereses del CONICIT, a sus compañeros y compañeras de trabajo y a las personas que eventual o permanentemente se encuentren dentro de los lugares en que presten sus servicios.
+ñ) Mantener al día las labores encomendadas siempre y cuando no existan motivos justificados que lo impidan.
+o) Ejecutar las labores adicionales que de acuerdo con las necesidades del caso, eventualmente se le indiquen dentro de la jornada de trabajo, siempre que sean compatibles con sus aptitudes, estado y condición y que se trate de los servicios propios del CONICIT.
+p) Someterse a reconocimiento médico, al solicitar su ingreso al trabajo o durante éste, para comprobar que no padecen alguna incapacidad temporal o permanente o alguna enfermedad contagiosa.
+q) Rendir cuenta de las sumas de dinero que reciban adelantadas, por concepto de viáticos, dentro de los cinco días hábiles posteriores a la terminación de la labor encomendada.
+r) Prestar su colaboración a las comisiones y subcomisiones de Salud Ocupacional y cualesquiera otras de importancia para el CONICIT.
+s) Observar rigurosamente las medidas preventivas que acuerden los coordinadores y las coordinadoras competentes, las autoridades que indique el Secretario Ejecutivo o la Secretaria Ejecutiva y la Comisión de Salud Ocupacional para la protección personal y seguridad propia, de sus compañeros y compañeras de labores, de las instalaciones y el equipo de trabajo. La Comisión de Salud Ocupacional será nombrada por el Secretario Ejecutivo o la Secretaria Ejecutiva.
+t) No sobrepasar los límites de los descansos entre jornadas destinadas a tomar refrigerios, alimentación, etc., lo cual será calificado como abandono del servicio.
+u) Notificar a su superior inmediato lo antes posible, verbalmente o por escrito, de las causas que le impidan asistir a su trabajo cuando se encuentre imposibilitado para hacerlo, a más tardar dentro del segundo día de ausencia.
+v) Laborar la jornada extraordinaria a que se refiere el artículo 17 de este Reglamento, cuya negativa injustificada será calificada como falta grave.
+w) Presentar por escrito, en caso de renuncia de su puesto, el preaviso que corresponda, de acuerdo con las reglas establecidas en el Código de Trabajo.
+x) Cumplir con las obligaciones contraídas por becas o licencias, según el Reglamento de Capacitación, el presente reglamento y el contrato que se firme al efecto.

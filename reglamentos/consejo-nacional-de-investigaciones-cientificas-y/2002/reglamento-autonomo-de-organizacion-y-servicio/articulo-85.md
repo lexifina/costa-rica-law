@@ -1,0 +1,1 @@
+Artículo 85.—Constituye riesgos del trabajo los accidentes y las enfermedades que ocurran a los funcionarios o a las funcionarias, con ocasión o por consecuencia del trabajo que desempeñen en forma subordinada y remunerada, así como la agravación o reagravación que resulte como consecuencia directa, inmediata e indudable de esos accidentes o enfermedades.

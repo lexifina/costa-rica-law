@@ -1,0 +1,1 @@
+Artículo 109.—Las licencias con goce de salario para actividades de capacitación podrán otorgarse después de un año de prestar sus servicios continuos a la Institución, o en los casos que la Secretaría Ejecutiva lo considere necesario, siempre que no cause evidente perjuicio al servicio y lo permitan las condiciones administrativas y exigencias del trabajo de cada dependencia.

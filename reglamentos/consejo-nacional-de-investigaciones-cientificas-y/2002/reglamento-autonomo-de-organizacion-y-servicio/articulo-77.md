@@ -1,0 +1,1 @@
+Artículo 77.—Los formularios de calificación, una vez finalizados los procedimientos indicados en el Capítulo XIII de este reglamento, serán remitidos al Área Administrativa-Financiera, a fin de que formen parte del expediente personal de cada servidor o servidora.

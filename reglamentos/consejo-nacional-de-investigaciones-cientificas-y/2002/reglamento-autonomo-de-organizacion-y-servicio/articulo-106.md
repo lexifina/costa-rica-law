@@ -1,0 +1,8 @@
+Artículo 106.—Las licencias sin goce de salario se otorgarán según las siguientes pautas:
+a) Para laborar en el sector privado, hasta por cuatro meses, prorrogable una única vez por un período no mayor al primero.
+b) Para laborar en el sector público, se concederá una licencia hasta por dos años, pudiendo ser prorrogable únicamente por un año más. Si se comprobare por cualquier medio que el funcionario o la funcionaria no labora para el sector público, se considerará falta grave con la consecuente sanción disciplinaria.
+c) Para realizar actividades de capacitación se regirá por lo establecido en el Reglamento de Capacitación del CONICIT.
+d) Para atender asuntos familiares debidamente justificados tales como: tiempo adicional para atender al hijo o a la hija una vez finalizada la incapacidad por maternidad, por enfermedad grave o terminal, convalecencias o tratamientos de familiares: padres, hijos, cónyuge, hermanos o hermanas, entre otros.
+La aprobación o denegación de las solicitudes de licencias sin goce de salario deberá comunicarse por escrito, vía fax o por cualquier medio electrónico, al servidor o a la servidora en el plazo de cinco días hábiles después de ser conocidas por quien competa resolverlas.
+Las licencias podrán ser prorrogables en casos muy especiales por una única vez, siempre y cuando no afecte o entorpezca el trabajo del área donde presta sus servicios el servidor o la servidora.
+Las licencias se otorgarán después de que el servidor o la servidora haya cumplido el tiempo mínimo de un año de prestar servicios continuos para la Institución y cuente con nombramiento en propiedad.

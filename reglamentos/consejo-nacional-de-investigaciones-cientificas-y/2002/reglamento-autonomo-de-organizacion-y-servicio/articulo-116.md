@@ -1,0 +1,2 @@
+Artículo 116.—Este Reglamento Autónomo de Organización y Servicio es aprobado por acuerdo del Consejo Director en el Artículo V de la sesión Nº 1621 del 21 de octubre del 20002 y por la Secretaría Técnica de la Autoridad Presupuestaria según lo dispuesto en las directrices y regulaciones generales emitidas por esa entidad (STAP-0180-03 del 20 de febrero del 2003).
+Rige a partir de su publicación en el diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 48.—Tratándose de amonestaciones verbales o escritas, deberán imponerse dentro del mes posterior a aquél en que el superior inmediato conoció la comisión de la falta; y las suspensiones y despidos, en el transcurso del mes posterior al día en que se encuentre firme la resolución final del procedimiento administrativo establecido en el Capítulo XII de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 15.—La Secretaría Ejecutiva podrá modificar transitoria o permanentemente los horarios establecidos por este reglamento siempre que circunstancias de caso fortuito o de fuerza mayor así lo exijan y no se cause grave perjuicio al servicio o a los funcionarios y las funcionarias.

@@ -1,0 +1,1 @@
+Artículo 12.—Quedan exceptuados de la aplicación de este Reglamento quienes fueren contratados o contratadas por servicios profesionales o para la integración de organismos colegiados que sean parte de la Institución o estén adscritos a ella, así como quienes sean remunerados o remuneradas por medio de dietas, de conformidad con el ordenamiento jurídico vigente.

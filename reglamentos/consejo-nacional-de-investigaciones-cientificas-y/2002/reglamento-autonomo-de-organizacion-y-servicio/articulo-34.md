@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Del uso de los vehículos del CONICIT
+Artículo 34.—Los servidores y las servidoras que utilizan vehículos de la Institución deberán observar y cumplir lo dispuesto en la Ley de Tránsito vigente y en el Reglamento General de Transportes y Uso de Vehículos del CONICIT. La inobservancia e incumplimiento de las disposiciones indicadas en este artículo por parte de los funcionarios y las funcionarias, constituirán falta (s) a la relación de servicio que tienen con la institución y se sancionará (n) conforme a lo dispuesto en el Capítulo XI de este reglamento y el ordenamiento jurídico vigente.

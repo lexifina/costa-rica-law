@@ -1,0 +1,1 @@
+Artículo 107.—A quien se le conceda licencia sin goce de salario, no podrá incorporarse a la Institución antes de la finalización del tiempo otorgado; salvo casos excepcionales que serán considerados por el Secretario Ejecutivo o la Secretaria Ejecutiva.

@@ -1,0 +1,1 @@
+Artículo 115.—Este Reglamento deberá ser expuesto permanentemente en dos lugares visibles de la Institución, ya sea por marcos de vidrio, en ejemplares tipo folleto, o por cualquier otro sistema que determine la Secretaría Ejecutiva; que asegure su completo conocimiento.

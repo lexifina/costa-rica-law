@@ -1,0 +1,1 @@
+Artículo 4º—Como fundamento y complemento de la presente reglamentación, debe considerarse la Ley General de la Administración Pública, el Código de Trabajo y demás Leyes y Reglamentos que se hayan emitido o se emitan en lo futuro relacionados con los temas aquí tratados.

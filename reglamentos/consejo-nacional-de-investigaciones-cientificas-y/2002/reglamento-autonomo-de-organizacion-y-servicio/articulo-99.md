@@ -1,0 +1,1 @@
+Artículo 99.—Tanto la persona denunciante de hostigamiento sexual como los testigos de las partes, gozarán de las garantías y derechos previstos en la Ley Nº 7476 del tres de febrero de 1995, en relación con su empleo y condiciones generales de trabajo.

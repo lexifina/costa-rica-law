@@ -1,0 +1,4 @@
+CAPÍTULO XVIII
+De las Peticiones y reclamos
+Artículo 112.—Todas las quejas, peticiones, reclamos y sugerencias en general, originadas con ocasión de la relación de servicio, deberán ser dirigidas por escrito al superior inmediato, quien resolverá lo procedente dentro de los cinco días siguientes en la misma forma. Los asuntos urgentes o cuando su menor importancia así lo ameriten, se podrán gestionar verbalmente y deberán resolverse del mismo modo y de inmediato.
+No obstante, cuando éste considere que es incompetente para resolver la gestión planteada, el servidor o la servidora podrá recurrir a la Secretaría Ejecutiva, si demuestra que su superior inmediato no ha cumplido con la obligación de atender su gestión o, no tomare decisión alguna, o si por algún motivo se establece conflicto entre un colaborador o una colaboradora y el o la superior inmediato.

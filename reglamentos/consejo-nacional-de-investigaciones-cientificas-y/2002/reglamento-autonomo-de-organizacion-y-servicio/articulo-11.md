@@ -1,0 +1,1 @@
+Artículo 11.—El CONICIT está facultado para asignar a los servidores y las servidoras las labores que considere necesarias, siempre que sean compatibles con sus aptitudes, fuerzas, estado o condición, y siempre que se encuentren comprendidas dentro de aquellas funciones establecidas en la relación de servicio.

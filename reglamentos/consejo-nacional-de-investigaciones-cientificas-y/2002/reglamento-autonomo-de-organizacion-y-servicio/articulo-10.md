@@ -1,0 +1,1 @@
+Artículo 10.—La relación de servicio establecida en el artículo anterior incisos b) y c), una vez vencido el plazo o concluida la obra determinada, terminarán sin responsabilidad patronal para el CONICIT.

@@ -1,0 +1,1 @@
+Artículo 63.—Todo despido justificado del servidor o la servidora regulares se entenderá sin responsabilidad patronal para el CONICIT y hará perder a él o a ella todos los derechos que este Reglamento y el ordenamiento jurídico le confieren.

@@ -1,0 +1,1 @@
+Artículo 31.—No interrumpirán la continuidad de la relación de servicio las licencias sin goce de salario, las licencias para estudio, los descansos otorgados legalmente, las incapacidades debidamente justificadas, la prórroga o renovación inmediata de la prestación u otra causa análoga que no termine con ésta.

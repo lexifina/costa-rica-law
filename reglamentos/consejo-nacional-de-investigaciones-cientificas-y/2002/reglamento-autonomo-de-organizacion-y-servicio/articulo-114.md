@@ -1,0 +1,1 @@
+Artículo 114.—Queda sin ningún valor y efecto las instrucciones o guías administrativas que se hayan emitido y cualquier otra disposición anterior que se oponga a este Reglamento. Así mismo se deja sin ningún valor y efecto el anterior Reglamento Autónomo de Organización y Servicio del CONICIT.

@@ -1,0 +1,1 @@
+Artículo 19.—Los servidores y las servidoras estarán obligados al desempeño de sus funciones durante los días hábiles y durante las horas reglamentarias y no se podrá por lo mismo conceder privilegios, prerrogativas o licencia alguna que autorice una asistencia irregular, con las salvedades establecidas específicamente en otras disposiciones de este Reglamento.

@@ -1,0 +1,4 @@
+CAPÍTULO X
+De la Asistencia
+Artículo 38.—Todos los servidores y las servidoras deberán cumplir responsablemente con su asistencia al trabajo en las horas de ingreso establecidas por este Reglamento.
+Quedan relevados de la presente obligación aquellos servidores y servidoras que, por la naturaleza o lugar donde desempeñen sus funciones, se encuentren ordinariamente fuera de las oficinas centrales, o que ocasionalmente permanezcan en giras como consecuencia del trabajo que realizan; el Secretario Ejecutivo o la Secretaria Ejecutiva podrá relevar expresamente de esta obligación a cualquier servidor o servidora si lo estima conveniente y necesario. De igual manera quedan excluidos de la indicada obligación quienes puedan considerarse comprendidos dentro de las previsiones del artículo ciento cuarenta y tres del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 108.—No podrá concederse nuevos permisos sin goce de salario hasta que transcurra un año de haberse reincorporado el servidor o la servidora a sus labores, excepto en casos muy calificados a juicio del Consejo Director, siempre y cuando no se perjudique la realización de los fines institucionales.

@@ -1,0 +1,1 @@
+Artículo 79.—El CONICIT impulsará el programa de salud ocupacional a través de una Comisión, que será coordinada por el Área Administrativa-Financiera e integrada por un miembro de cada una de las áreas de la Institución.
