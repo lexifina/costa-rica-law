@@ -1,4 +1,5 @@
 CAPITULO III
 Ingreso de documentos
-Artículo 4°-Las oficinas deben enviar los documentos al Archivo Central debidamente organizados, numerados y descritos por medio de las listas de remisión.
-La lista de remisión debe llenarse correctamente y con una copia una es firmada y sellada como recibida, se devolverá a la oficina una vez que se haya comprobado que lo descrito en ella es lo que ingresó al Archivo Central, en caso contrario la documentación será devuelta para que se corrija la lista de remisión.
+Artículo 4°—Las oficinas deben enviar los documentos al Archivo Central debidamente organizados, numerados y descritos por medio de la lista de remisión, las cuales serán proporcionadas por el jefe o encargados de Archivos Central.
+Las listas de remisión debe llenarse correctamente y una copia una vez que se haya cotejado la información descrita en ella de no coincidir la documentación será devuelta para que se corrija la lista de remisión.
+(Así reformado mediante sesión N° 10 del 22 de enero de 1998).

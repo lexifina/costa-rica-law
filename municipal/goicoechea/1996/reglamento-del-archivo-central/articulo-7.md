@@ -1,1 +1,2 @@
-Artículo 7°-El archivista debe realizar una buena capacitación o explicación a los encargados de los archivos de gestión, sobre el proceso de envío de los documentos.
+Artículo 7°—El archivista capacitará a las secretarias o encargados de archivos de gestión, sobre el proceso de remisión de documentos.
+(Así reformado mediante sesión N° 10 del 22 de enero de 1998).

@@ -1,4 +1,2 @@
-Encargado de Archivo Central.
-Artículo 20.-Rige a partir de su publicación en el Diario Oficial "La Gaceta".
-Reglamento aprobado en sesión ordinaria N° 104-96, celebrada el día 18 de noviembre de 1996, artículo 1°, por unanimidad y en firme.
-Guadalupe, 14 de febrero de 1997.
+Artículo 20.—El Archivo Central deberá contar con estantes de metal para la instalación de los documentos una vez organizados, las cajas de cartón especiales para archivos de documentos y los materiales que se requieran para facilitar esta labor. De la misma forma el mobiliario apto para la instalación de las distintas áreas que conforma el Archivo Central de la Municipalidad. En la medida de lo posible procurar dotar de equipos informatizado para la confección de los instrumentos descriptivos y la centralización de la información primordial en bases de datos.
+(Así adicionado mediante sesión N° 10 del 22 de enero de 1998).
