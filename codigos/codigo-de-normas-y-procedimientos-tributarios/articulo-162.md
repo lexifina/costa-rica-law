@@ -1,15 +1,10 @@
-Artículo 162.- Intervención del Cuerpo de Abogados y de los Fiscales
-Específicos. Conforme la Oficina de Cobros reciba las certificaciones a
-que se refiere el artículo 160 de este Código, su Jefe las debe distribuir
-entre los abogados del cuerpo permanente respectivo y/o los Fiscales
-Específicos para que ejerzan la acción de cobro.
-Dichos profesionales deben gestionar el pago de los créditos que se
-les encomienden mediante los trámites a que se refiere este Título, pero
-antes de iniciar la ejecución, deben dirigir al deudor una nota de cobro
-por medio del correo o bien entregársela personalmente, concediéndole un
-plazo de ocho días, para que proceda a la cancelación del crédito fiscal
-impago, bajo apercibimiento que de no hacerlo, se le van a embargar bienes
-suficientes para hacer efectivo dicho crédito y sus accesorios legales.
-En todo caso, están obligados a iniciar los trámites respectivos, a
-más tardar, dentro del mes siguiente al recibo de los documentos
-correspondientes.
+Artículo 162.- Son causas de remoción de los miembros del Tribunal:
+a) Desempeño ineficiente de sus funciones;
+b) Mala conducta en el desempeño de sus cargos;
+c) Negligencia reiterada que dilate la sustanciación de los procesos;
+d) Comisión de delitos, incluso tentativa y frustración, cuyas penas afecten su buen nombre y honorabilidad; y
+e) Falta de excusa en los casos previstos en el artículo 164 (*) de este Código, o la violación de las prohibiciones establecidas en el mismo.
+El Poder Ejecutivo, una vez finalizado el período de nombramiento, procederá a reelegir a los miembros en funciones, salvo que declare a alguno no elegible en virtud de que haya incurrido en alguna causa que amerite su remoción.
+(Así reformado por el artículo 1º de la ley Nº 5179 de 27 de febrero de 1973).
+(Así corregida su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 153 al actual)
+(*) (Así reformado tácitamente por el artículo 10 de la indicada Ley de Justicia Tributaria, que corrió la numeración del antiguo artículo 155, siendo ahora 164)

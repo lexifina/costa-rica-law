@@ -1,4 +1,3 @@
-Artículo 62.- Condiciones y requisitos exigidos. La ley que
-establezca exenciones debe especificar las condiciones y requisitos
-exigidos para su otorgamiento, los tributos que comprende, si es total
-o parcial y, en su caso, el plazo de su duración.
+Artículo 62.- Condiciones y requisitos exigidos La ley que contemple exenciones debe especificar las condiciones y los requisitos fijados para otorgarlas, los beneficiarios, las mercancías, los tributos que comprende, si es total o parcial, el plazo de su duración, y si al final o en el transcurso de dicho período se pueden liberar las mercancías o si deben liquidar los impuestos, o bien si se puede autorizar el traspaso a terceros y bajo qué condiciones.
+Serán nulos los contratos, las resoluciones o los acuerdos emitidos por las instituciones públicas a favor de las personas físicas o jurídicas, que les concedan, beneficios fiscales o exenciones tributarias, sin especificar que estas quedan sujetas a lo dispuesto en el artículo 64 de la presente ley.
+(Así reformado por el artículo 1º de la ley No.7900 de 3 de agosto de 1999)

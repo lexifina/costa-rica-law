@@ -1,5 +1,2 @@
-Artículo 136.- Acceso a las actuaciones. Los interesados o sus
-representantes y sus abogados tienen acceso a las actuaciones relativas a
-aquéllos, inclusive a las actas donde conste la investigación de las
-infracciones y pueden consultarlas sin más exigencia que la justificación
-de su identidad o personería.
+Artículo 136.- Exención del papel sellado y timbres. Todos los trámites y actuaciones que se relacionen con la aplicación de los tributos a cargo de la Administración Tributaria, incluso los que correspondan a recursos interpuestos para ante el Tribunal Fiscal Administrativo, están exentos de los impuestos de papel sellado y timbres.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 131 al actual)

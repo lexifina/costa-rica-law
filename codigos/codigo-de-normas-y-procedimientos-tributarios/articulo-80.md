@@ -1,4 +1,4 @@
-Artículo 80.- Responsabilidad por actos de los representantes.
-Cuando un mandatario, representante, administrador o encargado incurre
-en infracción, los representados son responsables por las sanciones
-pecuniarias, sin perjuicio de su acción de reembolso contra aquéllos.
+Artículo 80.- Morosidad en el pago del tributo determinado por la Administración Tributaria
+Los sujetos pasivos que paguen los tributos determinados por la Administración Tributaria mediante el procedimiento ordenado en los artículos 144 a 147 de este Código, después del plazo de quince días dispuesto en el artículo 40 de este Código, deberán liquidar y pagar una multa equivalente al uno por ciento (1%) por cada mes o fracción de mes transcurrido desde el vencimiento de dicho plazo.
+Esta sanción se calculará sobre la suma sin pagar a tiempo y, en ningún caso, superará al veinte por ciento (20%) de esta suma. No se aplicará la sanción ni se interrumpirá su cómputo cuando se concedan los aplazamientos o fraccionamientos establecidos en el artículo 38 del presente Código.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

@@ -1,8 +1,3 @@
-Artículo 84.- Sanciones. Las sanciones aplicables son:
-a) Recargos;
-b) Multa;
-c) Cierre del negocio, cuando así lo establezcan las leyes tributarias
-respectivas;
-d) Suspensión y destitución de cargos públicos; y
-e) Las demás sanciones especiales que prevean las leyes tributarias
-respectivas.
+Artículo 84.- No concurrencia a las oficinas de la Administración Tributaria
+Se sancionará con multa equivalente a un salario base, a quienes no concurran a las oficinas de la Administración Tributaria cuando se requiera su presencia, en los términos del artículo 112 del presente Código.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

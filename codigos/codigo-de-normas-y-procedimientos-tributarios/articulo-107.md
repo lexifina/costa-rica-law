@@ -1,11 +1,3 @@
-Articulo 107.- Publicidad de las normas y jurisprudencia tributarias.
-Sin perjuicio de la publicidad de las leyes, reglamentaciones y demás
-disposiciones de carácter general dictadas por la Administración Tributaria
-en uso de sus facultades legales, la dependencia que tenga a su cargo la
-aplicación de los tributos debe dar a conocer de inmediato, por medio del
-Diario Oficial y de otros medios publicitarios adecuados a las
-circunstancias, las resoluciones o sentencias recaídas en casos
-particulares que a su juicio ofrezcan interés general, omitiendo las
-referencias que puedan lesionar intereses particulares o la garantía del
-carácter confidencial de las informaciones que instituye el artículo 112 de
-este Código.
+Artículo 107.- Deberes de información de los funcionarios públicos y otros.
+Los funcionarios públicos de cualquier dependencia u oficina pública, los de las instituciones autónomas, semiautónomas, empresas públicas y las demás instituciones descentralizadas del Estado y los de las municipalidades, estarán obligados a suministrar, a la Administración Tributaria, cuantos datos y antecedentes de trascendencia tributaria recaben en el ejercicio de sus funciones.
+(Así reformado por el artículo 5 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995. El contenido del antiguo artículo 107 fue traspasado al actual 101)

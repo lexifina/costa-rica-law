@@ -1,9 +1,8 @@
-TITULO III
-INFRACCIONES Y SANCIONES
-CAPITULO I
-Disposiciones Generales
-Sección Primera: Vigencia y principios aplicables
-Artículo 65.- Vigencia de las normas tributarias punitivas. Las
-normas tributarias punitivas sólo rigen para el futuro. No obstante,
-tienen efecto retroactivo las que supriman infracciones, establezcan
-sanciones más benignas o términos de prescripción más breves.
+TÍTULO III
+HECHOS ILÍCITOS TRIBUTARIOS
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 65.- Clasificación Los hechos ilícitos tributarios se clasifican en infracciones administrativas y delitos tributarios.
+La Administración Tributaria será el órgano competente para imponer las sanciones por infracciones administrativas, que consistirán en multas y cierre de negocios.
+Al Poder Judicial le corresponderá conocer de los delitos tributarios por medio de los órganos designados para tal efecto.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

@@ -1,14 +1,6 @@
-Artículo 93.- Prórroga del plazo. Cuando por justa causa debidamente
-comprobada ante la Administración Tributaria, no sea suficiente el término
-señalado por las leyes o reglamentos respectivos para rendir los informes o
-declaraciones, esa Administración puede prorrogar dicho término hasta por
-treinta días más, a solicitud del respectivo interesado, formulada dentro
-del término ordinario para presentar la declaración, en papel simple, para
-que al pie de ella se anote la resolución que conceda el plazo o lo
-deniegue. Esta nota, ya sustanciada, se debe presentar adjunta a la
-declaración respectiva.
-Las declaraciones a que se refiere este artículo, que se presenten por
-correo dentro de los plazos que correspondan, deben aceptarse como
-presentadas en término cuando se utilice el servicio certificado, en cuyo
-caso la fecha indicada en el recibo extendido por la oficina de correo es
-suficiente prueba de la presentación en término.
+Artículo 93.- No entrega de tributos retenidos o percibidos
+El agente retenedor o perceptor de tributos o el contribuyente del impuesto general sobre las ventas y del impuesto selectivo de consumo que, tras haberlos retenido o percibido o cobrado no los entregue al Fisco dentro del plazo debido, será sancionado con prisión de cinco a diez años, siempre que la suma supere doscientos salarios base.
+Para determinar el monto mencionado, se considerarán las sumas percibidas, retenidas o cobradas, pero no enteradas en el lapso del año calendario.
+Se considera excusa legal absolutoria el hecho de que el sujeto pasivo repare su incumplimiento sin que medie requerimiento ni acción alguna de la Administración Tributaria para obtener la reparación.
+Para los efectos del párrafo anterior, se entenderá como actuación de la Administración toda acción realizada con la notificación al sujeto pasivo, conducente a verificar el cumplimiento de las obligaciones tributarias referidas al impuesto y período de que se trate.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

@@ -1,5 +1,4 @@
-Artículo 148.- Apelación de hecho. Denegada una apelación por la
-Administración Tributaria, el interesado puede acudir ante el Tribunal
-Fiscal Administrativo y apelar de hecho. En la sustanciación y trámite de
-dicha apelación se deben aplicar en lo pertinente las disposiciones de los
-artículos 877 a 882, ambos inclusive, del Código de Procedimientos Civiles.
+Sección Quinta: Procedimiento para aplicar sanciones administrativas
+Artículo 148.- Principios generales.
+En todos los casos, a la Administración Tributaria le corresponde acreditar, según el principio de libre valoración de la prueba y mediante el procedimiento sancionador referido en esta sección, que el sujeto pasivo es el autor de las infracciones. Siempre deberá respetarse el derecho de defensa.
+(Así reformado, incluyendo el nombre de la Sección, por el artículo 8 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995. El numeral 6 de la indicada ley corrigió la numeración, traspasándolo del antiguo 143 al actual)

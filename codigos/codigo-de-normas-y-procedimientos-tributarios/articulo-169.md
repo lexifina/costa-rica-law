@@ -1,23 +1,30 @@
-Artículo 169.- Disposiciones derogatorias. Se derogan las siguientes
-disposiciones:
-a) De la Ley de Impuesto sobre la Renta (Ley Nº 837 de 20 de diciembre
-de 1946 y sus reformas): el segundo párrafo del artículo 11; el
-segundo párrafo del artículo 16; el segundo párrafo del artículo
-17; los artículos 18 y 24; el segundo párrafo del artículo 25; los
-artículo 26, 27 y 28; la parte final del párrafo tercero y los
-cuatro últimos párrafos del artículo 29; los artículos 30, 31, 33,
-34, 37 y los artículos 40 a 58; b) De la Ley de Impuesto sobre las
-Ventas (Ley Nº 3914 de 17 de julio de 1967): el artículo 18, con
-excepción de la norma que se refiere al cierre del negocio; el
-artículo 21, con excepción del literal a) del mismo y los artículos
-22 a 32;
-c) De la Ley de Impuesto Territorial (Ley Nº 27 de 2 de marzo de 1939
-y sus reformas); los artículos 9, 12, 13, 14 y 22; y el último
-párrafo del artículo 23; la parte final del artículo 25; los
-artículos 47 a 56; los artículos 58 y 59 y los artículos 61 a 68;
-d) El interés del 2% que establece el artículo 2º de la ley Nº 32 de
-27 de junio de 1932 y los dos últimos párrafos del citado artículo;
-e) Los artículos 1º y 2º de la Ley Nº 1880 de 7 de junio de 1955;
-f) El decreto Nº 40 de 6 de diciembre de 1962; y
-g) Todas las disposiciones de las leyes y decretos que se opongan a
-lo dispuesto en este Código.
+ARTÍCULO 169.- Créditos insolutos y emisión de certificaciones
+Las oficinas que controlen, a favor del Poder Central, ingresos o
+créditos de la naturaleza indicada en el artículo 166 de este Código,
+dentro de los nueve meses siguientes a la expiración del término legal de
+pago, deben preparar las certificaciones de lo pendiente de cobro y
+ordenar, en su caso, el retiro de los respectivos recibos de los bancos y
+las demás oficinas recaudadoras.
+(Así corregida su numeración por el artículo 10 de la Ley de Justicia
+Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo
+160 al 169)
+(Así reformado por el artículo 1º de la ley No.7900 de 3 de agosto de
+1999)
+No deben certificarse los créditos fiscales originados en tributos
+regulados por el presente Código, sus intereses y recargos que hayan sido
+objeto de impugnación por el interesado en el trámite administrativo, hasta
+tanto el Tribunal Fiscal Administrativo no haya dictado resolución y, en
+tratándose de multas, no exista sentencia ejecutoria.
+Antes de remitir las certificaciones a la Oficina de Cobros, las
+oficinas que controlen los ingresos o créditos a que se alude en el párrafo
+primero de este artículo, deben notificar al deudor por cualesquiera de los
+medios que autoriza el artículo 132 de este Código, al domicilio que conste
+en sus registros, que se le concede un plazo de quince días, contado a
+partir de su notificación, para que proceda a la cancelación del crédito
+fiscal impago.
+Si vencido el plazo señalado el deudor no regulariza su situación,
+dichas certificaciones deben ser enviadas de inmediato a la Oficina de
+Cobros para los efectos de ejercer la respectiva acción judicial o
+extrajudicial de cobro.
+Las certificaciones de adeudo expedidas por las oficinas que indica
+este artículo, tienen el carácter de título ejecutivo suficiente para iniciar el cobro judicial.

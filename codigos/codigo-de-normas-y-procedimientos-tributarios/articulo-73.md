@@ -1,6 +1,3 @@
-Artículo 73.- Prescripción de las infracciones. El derecho de
-aplicar sanciones prescribe en el plazo de tres años, contados desde el
-1º de enero del año calendario siguiente a aquel en que se cometió la
-infracción.
-El plazo precedente se extiende a cinco años para los casos
-previstos en el segundo párrafo del artículo 51 de este Código.
+Artículo 73.- Concurrencia formal
+Cuando un hecho configure más de una infracción, debe aplicarse la sanción más severa.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

@@ -1,5 +1,2 @@
-Artículo 131.- Exención del papel sellado y timbres. Todos los
-trámites y actuaciones que se relacionen con la aplicación de los tributos
-a cargo de la Administración Tributaria, incluso los que correspondan a
-recursos interpuestos para ante el Tribunal Fiscal Administrativo, están
-exentos de los impuestos de papel sellado y timbres.
+Artículo 131.- Obligación de los organismos que expiden patentes. Los Tesoreros Municipales deben enviar mensualmente a la oficina respectiva de la Administración Tributaria la nómina de las patentes comerciales otorgadas y el Ministerio de Industria y Comercio, por medio de la Oficina que corresponda, lo concerniente a las patentes industriales.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 126 al actual)

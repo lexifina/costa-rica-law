@@ -1,8 +1,3 @@
-Artículo 79.- Responsabilidad de las colectividades. Las entidades
-o colectividades a que se refiere el artículo 17, incisos b) y c),
-tengan o no personalidad jurídica, pueden ser sancionadas por
-infracciones sin necesidad de establecer el dolo o culpa de una persona
-natural.
-Sin perjuicio de la responsabilidad pecuniaria de la entidad, sus
-representantes, directores, gerentes, administradores, o mandatarios
-pueden ser sancionados por su participación personal en la infracción.
+Artículo 79.- Omisión de la presentación de las declaraciones tributarias
+Los sujetos pasivos que omitan presentar las declaraciones de autoliquidación de obligaciones tributarias dentro del plazo legal establecido, tendrán una multa equivalente al cincuenta por ciento (50%) del salario base.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

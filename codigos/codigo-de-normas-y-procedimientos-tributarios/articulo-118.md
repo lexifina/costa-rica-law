@@ -1,13 +1,5 @@
-Artículo 118.- Verificación de las declaraciones, libros y demás
-documentos. Las declaraciones juradas presentadas por los contribuyentes y
-responsables y cualesquiera libros, escrituras y demás documentos, en
-cuanto en ello deba constar la información relativa a la liquidación o el
-pago de los tributos, están sujetos a la comprobación de la Administración
-Tributaria. Para tal efecto ésta puede practicar, dentro de la ley y por
-intermedio de los funcionarios debidamente autorizados, todas las
-investigaciones, diligencias y exámenes que considere necesarios y útiles
-para comprobar dichas declaraciones juradas y los datos contenidos en los
-libros, escrituras y demás documentos antes mencionados.
-Efectuada la verificación se debe cobrar la diferencia de tributo que
-resulte a cargo del contribuyente o responsable declarante; o, en su caso,
-de oficio se le debe devolver el exceso que haya pagado.
+Artículo 118.- Los Directores Generales, los Subdirectores, los Jefes o Subjefes de Departamento y de Sección, de las dependencias de la Administración Tributaria, así como los miembros propietarios del Tribunal Fiscal Administrativo y los suplentes en funciones, no pueden ejercer otros puestos públicos con o sin relación de dependencia, excepción hecha de la docencia o de funciones desempeñadas con autorización de su respectivo superior jerárquico, cuyos cargos estén sólo remunerados con dietas.
+En general queda prohibido al personal de los entes precedentemente citados, con la única excepción de la docencia, desempeñar en la empresa privada actividades relativas a materias tributarias. Asimismo está prohibido a dicho personal hacer reclamos a favor de los contribuyentes o aesorarlos en sus alegatos o presentaciones en cualesquiera de las instancias, salvo que se trate de sus intereses personales, los de su cónyuge, ascendientes, descendientes, hermanos, suegros, yernos y cuñados.
+En los casos de excepción a que se refiere este artículo, para acogerse a ellos, debe comunicarse al superior de la dependencia su decisión de hacer uso de las excepciones previstas en este Código.
+(Así reformado por el artículo 1º de la ley Nº 5179 de 27 de febrero de 1973).
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 113 al actual)

@@ -1,10 +1,2 @@
-Artículo 141.- Resolución de la Administración Tributaria.
-Interpuesta la impugnación o vencido el plazo de treinta días a que se
-refiere el artículo anterior, el Director de la Administración Tributaria
-debe dictar resolución fundada que determine la obligación de que se trate
-o en el avalúo respectivo, previa consulta del cuerpo especializado que
-debe crearse para asesorarlo en esta materia. Dicha resolución debe
-dictarse dentro de los ocho días siguientes a aquel en que el asunto se
-encuentre listo para resolver; y ha se ser notificada al interesado, quien
-puede apelarla en las condiciones del artículo 147 de este Código, si
-hubiere hecho la alegación que señala el artículo anterior.
+Artículo 141.- Acceso a las actuaciones. Los interesados o sus representantes y sus abogados tienen acceso a las actuaciones relativas a aquéllos, inclusive a las actas donde conste la investigación de las infracciones y pueden consultarlas sin más exigencia que la justificación de su identidad o personería.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 136 al actual)

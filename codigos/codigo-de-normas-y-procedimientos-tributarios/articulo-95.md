@@ -1,5 +1,3 @@
-Sección Tercera: Mora en el pago de los tributos
-Artículo 95.- Concepto. Incurre en mora el que paga la deuda
-tributaria fuera de los plazos establecidos por las leyes respectivas,
-salvo que se le hubiere concedido la prórroga a que se refiere el artículo
-38 de este Código.
+Artículo 95.- Manejo indebido de programas de cómputo
+Será sancionado con pena de tres a diez años de prisión, quien sin autorización de la Administración Tributaria, se apodere de cualquier programa de cómputo, utilizado por ella para administrar la información tributaria y sus bases de datos, lo copie, destruya, inutilice, altere, transfiera, o lo conserve en su poder, siempre que la Administración Tributaria los haya declarado de uso restringido, mediante resolución.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

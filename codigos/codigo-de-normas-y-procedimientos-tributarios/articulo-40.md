@@ -1,13 +1,6 @@
-Artículo 40.- Plazos para el pago. El tributo que se determine con
-base en las declaraciones juradas presentadas por el contribuyente o
-responsable o con base en cualquier otra forma de liquidación efectuada por
-uno u otro, o que corresponda a pagos parciales o a retenciones, debe
-pagarse dentro de los plazos que fijen las leyes respectivas.
-Cuando la ley tributaria no fije plazo para el pago del tributo, dicho pago
-debe hacerse dentro de los quince días siguientes al momento en que ocurra
-el hecho generador de la obligación tributaria.
-Todos los demás pagos por concepto de tributos resultantes de
-resoluciones dictadas por la Administración Tributaria conforme a lo
-dispuesto en el artículo 141 de este Código, deben efectuarse dentro de los
-treinta días siguientes a la fecha en que el contribuyente o responsable
-quede legalmente notificado de su obligación.
+ARTÍCULO 40.- Plazo para pago
+Dentro de los plazos que fijen las leyes respectivas, debe pagarse el tributo que se determine de acuerdo con las declaraciones juradas, presentadas por el contribuyente o el responsable, o con base en cualquier otra forma de liquidación efectuada por uno u otro o la liquidación correspondiente a pagos parciales o retenciones. Cuando la ley tributaria no fije plazo para pagar el tributo, debe pagarse dentro de los quince días hábiles* siguientes a la fecha en que ocurra el hecho generador de la obligación tributaria.
+Todos los demás pagos por concepto de tributos resultantes de resoluciones dictadas por la Administración Tributaria, conforme al artículo 146 de este Código, deben efectuarse dentro de los quince días siguientes a la fecha en que el sujeto pasivo quede legalmente notificado de su obligación.
+No obstante, en todos los casos los intereses se calcularán a partir de la fecha en que los tributos debieron pagarse, según las leyes respectivas. En aquellos casos en que la resolución determinativa de la obligación tributaria o la que resuelva recursos contra dichas resoluciones, se dicte fuera de los plazos establecidos en los artículos 146 y 163 de este Código, el cómputo de los intereses se suspenderá durante el tiempo que se haya excedido para la emisión de dichos actos.
+Cuando el exceso de dicho plazo se configure por conducta imputable a funcionarios estos tendrán las responsabilidades señaladas en la Ley General de Administración Pública.
+(Así reformado por el artículo 1º de la ley No.7900 de 3 de agosto de 1999).

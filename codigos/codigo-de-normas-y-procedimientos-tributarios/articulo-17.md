@@ -1,4 +1,4 @@
-Sección Segunda: Contribuyentes
+Sección segunda: Contribuyentes
 Artículo 17.- Obligados por deuda propia (contribuyentes). Son contribuyentes las personas respecto de las cuales se verifica el hecho generador de la obligación tributaria.
 Dicha condición puede recaer:
 a) En las personas naturales, prescindiendo de su capacidad, según el Derecho Civil o Comercial;

@@ -1,6 +1,8 @@
-Sección Cuarta: Sanciones
-Artículo 82.- Aplicación. Los recargos previstos en los artículos
-94, 96 y 98 deben ser aplicados directamente por la Administración
-Tributaria y las multas contempladas en los artículos 91, 101 y 103
-deben ser impuestas, en juicios de sustanciación sumarísima, por el Juez
-de lo Contencioso Administrativo y Civil de Hacienda.
+Artículo 82.- Hechos irregulares en la contabilidad
+Serán sancionados con una multa equivalente a un salario base, quienes incurran en las siguientes infracciones:
+a) No llevar libros de contabilidad, si existe obligación de llevarlos.
+b) No tener legalizados los libros de contabilidad, cuando sea obligatorio.
+c) No exhibir los libros de contabilidad o los justificantes de las operaciones cuando las autoridades tributarias lo exigan.
+d) Mantener los libros con un atraso superior a los tres meses.
+Impuesta una sanción en virtud de alguna de las causales anteriores, no podrá volverse a sancionar por la misma causal en un plazo de dos meses.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

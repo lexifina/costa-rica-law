@@ -1,7 +1,5 @@
-Artículo 66.- Principios y normas aplicables. Las disposiciones
-de este Código se aplican a todas las infracciones tributarias, salvo
-disposición legal expresa en contrario.
-A falta de normas tributarias expresas, se deben aplicar
-supletoriamente los principios generales de Derecho en materia punitiva,
-con la salvedad que establece el inciso c) del artículo 5º de este
-Código.
+Artículo 66.- Comprobación de hechos ilícitos tributarios La comprobación de los hechos ilícitos tributarios deberá respetar el principio "non bis in idem", de acuerdo con las siguientes reglas:
+a) En los supuestos en que las infracciones puedan constituir delitos tributarios, la Administración trasladará el asunto a la jurisdicción competente, según el artículo 89, y se abstendrá de seguir el procedimiento sancionador mientras la autoridad judicial no dicte sentencia firme. La sanción de la autoridad judicial excluirá la imposición de sanción administrativa por los mismos hechos.
+De no haberse estimado la existencia del delito, la Administración continuará el expediente sancionador con base en los hechos considerados por los tribunales como probados.
+b) En los supuestos en que la Administración Tributaria ya haya establecido una sanción, ello no impedirá iniciar y desarrollar la acción judicial. Sin embargo, si esta resulta en una condenatoria del sujeto, las infracciones que puedan considerarse actos preparatorios del delito, sean acciones u omisiones incluidas en el tipo delictivo, se entenderán subsumidas en el delito. Por tanto, las sanciones administrativas impuestas deberán ser revocadas, si su naturaleza lo permite.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

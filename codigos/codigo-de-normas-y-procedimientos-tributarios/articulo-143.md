@@ -1,8 +1,3 @@
-Sección Quinta: Infracciones
-Artículo 143.- Investigación. Las infracciones que se presuman con
-ocasión de inspecciones o actos similares deben documentarse en actas,
-sobre la base de las cuales la Administración Tributaria ha de ordenar la
-investigación complementaria correspondiente, la cual debe estar a cargo de
-los funcionarios competentes para ese efecto.
-En materia de prueba rige lo dispuesto en la Sección Tercera de este
-Capítulo.
+Artículo 143.- Pruebas para mejor proveer. La autoridad administrativa debe impulsar de oficio el procedimiento. En cualquier estado del trámite, antes de dictar la resolución a que se refiere el artículo 146 (*) de este Código, puede disponer la evacuación de pruebas para mejor proveer.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 138 al actual)
+(*) (Así reformado tácitamente por el artículo 6 de la indicada Ley de Justicia Tributaria, que corrió la numeración del antiguo artículo 141, siendo ahora 146)

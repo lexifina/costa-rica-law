@@ -1,0 +1,4 @@
+TRANSITORIO VIII.- Organismo regulador de las tarifas de servicios
+públicos.
+Mientras no se establezca por ley el organismo específico que tendrá a su cargo la fijación de las tarifas de los servidores públicos, la modificación de las mismas, conforme a la facultad prevista en el último párrafo del artículo 5º requerirá la aprobación previa de la Contraloría General de la República.
+(INTERPRETADO por Resolución de la Sala Constitucional No.5445-99 de las 14:30 horas del 14 de julio de 1999, en el sentido de que la Contraloría General de la República no tiene competencia para intervenir en la fijación y modificación de las tarifas de los servicios municipales (tasas). Esta sentencia ha sido adicionada por las sentencias números 06218-99, de las 15:21 horas del 10/08/1999, 09811 de las 15: 21 horas 14/12/1999, 07728 de las 14: 45 horas del 30/08/2000 y 8861-00 de las 14:30 horas del 11/10/2000)

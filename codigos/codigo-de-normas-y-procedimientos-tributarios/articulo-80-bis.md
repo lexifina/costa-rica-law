@@ -1,0 +1,4 @@
+Artículo 80 bis.- Morosidad en el pago del tributo
+Los sujetos pasivos que paguen los tributos determinados por ellos mismos, después del plazo fijado legalmente, deberán liquidar y pagar una multa equivalente al uno por ciento (1%) por cada mes o fracción de mes transcurrido desde el momento en que debió satisfacerse la obligación hasta la fecha del pago efectivo del tributo. Esta sanción se aplicará, también, en los casos en que la Administración Tributaria deba determinar los tributos por disposición de la ley correspondiente.
+Esta sanción se calculará sobre la suma sin pagar a tiempo y, en ningún caso, superará el veinte por ciento (20%) de esta suma. No se aplicará la sanción ni se interrumpirá su cómputo cuando se concedan los aplazamientos o fraccionamientos indicados en el artículo 38 del presente Código.
+(Así adicionado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

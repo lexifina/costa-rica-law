@@ -1,0 +1,6 @@
+Artículos 175.- Embargo Administrativo. En los casos que autoriza el artículo 177 (*) de este Código, la Oficina de Cobros puede, asimismo, decretar y practicar embargo administrativo sobre toda otra clase de bienes del deudor, el que debe comunicar para su anotación en los Registros Públicos o entidades públicas o privadas competentes, cuando proceda.
+Tratándose de un decreto de embargo, su anotación tiene un término de validez de tres meses y si dentro de este lapso no se presenta al embargo practicado para su inscripción, queda cancelada sin necesidad de declaratoria ni de asiento.
+El embargo decretado y practicado por la Oficina de Cobros surte todos sus efectos en la acción judicial que llegue a establecerse contra el deudor, con la sola presentación de una copia simple del oficio de comunicación del embargo.
+La práctica del embargo se debe efectuar aplicando en lo pertinente los procedimientos reglados por el Código de Procedimientos Civiles.
+(Así corregida su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 166 al actual)
+(*) (Así reformado tácitamente por el artículo 10 de la indicada Ley de Justicia Tributaria, que corrió la numeración del antiguo artículo 168, siendo ahora 177)

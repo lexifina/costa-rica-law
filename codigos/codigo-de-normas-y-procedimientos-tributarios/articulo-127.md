@@ -1,17 +1,3 @@
-Artículo 127.- Colaboración de los funcionarios y empleados públicos.
-Cuando la colaboración que la Administración Tributaria requiera de los
-funcionarios y empleados públicos sólo implique el cumplimiento de los
-deberes establecidos en este Código, en las leyes tributarias respectivas o
-en sus reglamentos, dicha Administración debe dirigirse directamente a la
-oficina pública cuya información o actuación le interese, inclusive cuando
-se trate de entidades descentralizadas.
-Sólo es necesario seguir la vía jerárquica correspondiente cuando la
-cooperación perdida exija la adopción de medidas de excepción. Es
-también obligatorio seguir esta última vía, cuando los funcionarios o
-empleados públicos directamente requeridos por la Administración Tributaria
-no presten en un plazo prudencial la colaboración debida. La
-Administración Tributaria no debe requerir informaciones, ni los
-funcionarios y empleados públicos están obligados a suministrarlas, cuando
-en virtud de las disposiciones de este Código o de leyes especiales, las
-informaciones respectivas estén amparadas por la garantía de la
-confidencialidad.
+Artículo 127.- Determinación provisional de tributos vencidos. Cuando los contribuyentes o responsables no presenten declaraciones juradas por uno o más períodos fiscales y la Administración Tributaria conozca por declaraciones o determinación de oficio la medida en que les ha correspondido tributar en períodos anteriores, los debe emplazar para que dentro de un término de treinta días presenten las declaraciones juradas y paguen el impuesto correspondiente.
+Si dentro de dicho plazo los contribuyentes o responsables no regularizan su situación, la Administración Tributaria, sin otro trámite, puede iniciar el procedimiento de ejecución para que paguen, a cuenta del tributo que en definitiva les corresponda enterar, una suma equivalente a tantas veces el total del tributo declarado o determinado por el último período fiscal, cuantos sean los períodos por los cuales dejaron de presentar declaraciones juradas. En este caso sólo proceden las excepciones previstas en el artículo 35 del presente Código, o la presentación de la o las declaraciones juradas juntamente con el pago del impuesto conforme a las mismas.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 122 al actual)

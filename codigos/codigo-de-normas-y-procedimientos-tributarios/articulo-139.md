@@ -1,10 +1,2 @@
-Sección Cuarta: Determinación por la Administración Tributaria
-Artículo 139.- Vista inicial. Para realizar la determinación a que se
-refiere el artículo 119 de este Código, se debe principiar haciendo un
-traslado al contribuyente de las observaciones o cargos que se le formulen
-y, en su caso, de las infracciones que se estime que ha cometido. En tal
-supuesto, los departamentos u oficinas de la Administración Tributaria que
-tengan a su cargo la aplicación y fiscalización de los respectivos tributos
-pueden, si lo estiman conveniente, requerir al contribuyente la
-presentación de nuevas declaraciones o la rectificación de las presentadas
-dentro del plazo que al efecto se le acuerde.
+Artículo 139.- Fecha de notificación y cómputo de términos. Las notificaciones se deben practicar en día hábil. Si los documentos fueran entregados en día inhábil, la notificación se debe entender realizada el primer día hábil siguiente. Salvo disposición especial en contrario, los términos comienzan a correr al empezar el día inmediato siguiente a aquel en que se haya notificado la respectiva resolución a los interesados.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 134 al actual)

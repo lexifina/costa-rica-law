@@ -1,11 +1,2 @@
-TITULO VI
-COBRO JUDICIAL Y EXTRAJUDICIAL
-CAPITULO I
-Disposiciones Generales
-Artículo 157.- Oficina de Cobros. La Oficina de Cobros del Ministerio
-de Hacienda debe cobrar los impuestos, tasas, contribuciones, derechos
-fiscales, rentas por arrendamiento de bienes del Poder Central no sujetos a
-leyes especiales, y de toda clase de créditos a favor de éste, mediante el
-procedimiento instituido por la ley Nº 2393 de 11 de julio de 1959,
-reformada por ley Nº 3493 de 29 de enero de 1965 y por las disposiciones de
-este Título.
+Artículo 157.- Apelación de hecho. Denegada una apelación por la Administración Tributaria, el interesado puede acudir ante el Tribunal Fiscal Administrativo y apelar de hecho. En la sustanciación y trámite de dicha apelación se deben aplicar en lo pertinente las disposiciones de los artículos 877 a 882, ambos inclusive, del Código de Procedimientos Civiles.
+(Así corregida su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 148 al actual)

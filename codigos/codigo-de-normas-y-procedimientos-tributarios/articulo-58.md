@@ -1,7 +1,2 @@
-Artículo 58.- Intereses a cargo de la Administración Tributaria.
-El artículo anterior es también aplicable a las deudas de la
-Administración Tributaria resultantes del cobro indebido de tributos.
-En tal caso, los intereses se deben liquidar por el período
-transcurrido desde el vencimiento del plazo que establece el artículo
-47 de este Código y hasta la fecha de su crédito o del día en que se
-ponga a disposición del interesado.
+Artículo 58.- Intereses a cargo de la Administración Tributaria Los intereses sobre el principal de las deudas de la Administración Tributaria se calcularán con fundamento en la tasa de interés resultante de obtener el promedio simple de las tasas activas de los bancos comerciales del Estado para créditos al sector comercial. Dicha tasa no podrá exceder en ningún caso en más de diez puntos de la tasa básica pasiva fijada por el Banco Central de Costa Rica.
+(Así reformado por el artículo 1º de la ley No.7900 de 3 de agosto de 1999)

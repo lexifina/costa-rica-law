@@ -1,0 +1,1 @@
+Transitorio IX.- Normas sobre prórrogas o facilidades. Las normas del artículo 38 de este Código, deben aplicarse con relación a las obligaciones tributarias cuyos vencimientos no se hubieren operado con anterioridad a la fecha de vigencia de este Código.

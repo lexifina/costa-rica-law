@@ -1,0 +1,1 @@
+Transitorio II.- Responsabilidad de los donatarios o legatarios y del propietario de la empresa individual de responsabilidad limitada. Las disposiciones del inciso a) del artículo 22 y las del artículo 25, rigen en relación con las obligaciones tributarias generadas a partir de la fecha de vigencia del presente Código.

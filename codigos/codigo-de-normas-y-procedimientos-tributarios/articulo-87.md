@@ -1,8 +1,3 @@
-Artículo 87.- Prescripción de las sanciones impuestas. Las
-sanciones aplicadas que no se hubieren hecho efectivas, prescriben en
-el plazo de tres años contado a partir del primero de enero del año
-calendario siguiente a aquel en que quedó firme la sentencia que las
-impuso.
-En cuanto a los recargos, prescriben juntamente con la obligación
-tributaria cuya prescripción se regula en la Sección Sexta, Capítulo V,
-del Título II de este Código.
+Artículo 87.- Destrucción o alteración de sellos
+Constituyen infracciones tributarias la ruptura, la destrucción o la alteración de los sellos colocados con motivo del cierre de negocios, provocadas o instigadas por el propio contribuyente, sus representantes, los administradores, los socios o su personal. Esta sanción será equivalente a dos salarios base.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

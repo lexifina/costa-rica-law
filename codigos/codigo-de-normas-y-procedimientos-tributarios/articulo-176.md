@@ -1,0 +1,3 @@
+Artículo 176.- Limitaciones al embargo administrativo y sustitución. El embargo administrativo que autorizan los artículos 174 y 175 (*) de este Código se debe practicar observando las limitaciones que establecen los artículos 984 del Código Civil y 172 del Código de Trabajo, pudiendo ser sustituido por garantía suficiente a juicio de la Oficina de Cobros.
+(Así corregida su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 167 al actual)
+(*) (Así reformado tácitamente por el artículo 10 de la indicada Ley de Justicia Tributaria, que corrió la numeración de los antiguos artículos 165 y 166, siendo ahora 174 y 175, respectivamente)

@@ -1,0 +1,1 @@
+Transitorio VI.- Reincidencia y reiteración. Para efectos de la reincidencia y la reiteración previstas en el artículo 71, no deben considerarse las infracciones cometidas con anterioridad a la vigencia de este Código.
