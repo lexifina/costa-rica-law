@@ -22,3 +22,4 @@ RELACIÓN DE PUESTOS DE SUELDOS PARA CARGOS FIJOS DEL GOBIERNO CENTRAL, PARA EL 
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 29919 de 23 de octubre del 2001)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29932 de 24 de octubre del 2001)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30020 del 5 de diciembre del 2001)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 30035 de 11 de diciembre del 2001)
