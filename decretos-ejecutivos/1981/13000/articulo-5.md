@@ -1,5 +1,2 @@
-Artículo 5º.- Los recaudadores de los establecimientos, clasificados
-en el artículo 2º inciso b), estarán obligados a reintegrar el impuesto
-en base al porcentaje de ocupación que determine el Instituto, en
-relación a la tarifa autorizada. El porcentaje de ocupación será
-revisado periódicamente.
+Artículo 5º.- DEROGADO.-
+(Derogado por Decreto Nº 25950 de 25 de febrero de 1997, artículo 2.)
