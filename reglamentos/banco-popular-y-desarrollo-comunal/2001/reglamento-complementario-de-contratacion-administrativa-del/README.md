@@ -15,3 +15,4 @@ Reglamento Complementario de Contratación Administrativa del Banco Popular y de
 | --- | --- | --- |
 | 1 | 2001-08-06 | la propia norma |
 | 2 | 2002-06-11 | Reglamento 4010 (2002-06-11) |
+| 3 | 2002-11-25 | Reglamento 4065 (2002-11-25) |
