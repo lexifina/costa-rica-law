@@ -1,0 +1,2 @@
+VII
+La Compañía se compromete a presentar al Banco Central de Costa Rica, durante la vigencia de este contrato, cuentas detalladas de las inversiones por razón de crédito provenientes de compras de mercaderías o colocación de acciones en el extranjero, a fin de obtener del Banco, en su oportunidad, la autorización para adquirir las divisas extranjeras necesarias para pagar dichas inversiones, sus intereses o dividendos, siempre que el producto de sus exportaciones sea superior a su requerimiento de divisas.
