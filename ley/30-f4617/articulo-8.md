@@ -1,0 +1,8 @@
+Art. 8. Para que tenga efecto lo prevenido en los articulos anteriores, la compañía Mora y Simmons y demas socios, si los hubiere, deben cumplir religiosamente con las condiciones siguientes:
+1° Con dar concluido y perfecto el canal en el término de dieziocho meses, contados desde el dia en que principien los trabajos, que deberán emprenderse en el perentorio término de seis meses a partir de la fecha de este decreto:
+2° Dicho canal será capaz para la extraccion de los frutos del pais, y para la importacion de mercaderias extrangeras:
+3° La compañia, desde luego que se cumpla el termino en que debe presentar la obra concluida, tendrá los botes, almacenes y marineros necesarios al servicio:
+4° Las tropas, comisionados y artículos de trasporte pertenecientes al Gobierno, pasaran sin derechos por el canal; y de la misma manera servirán gratis los almacenes para el depósito de dichos artículos, y las tierras sin cultivo para la caballería en los días de su tránsito:
+5° Si por algun evento conviniere à la compañía Mora y Simmons cerrar el camino general que conduce a Puntarenas, por el mismo hecho se obliga & construir otro por via mas recta, de mas amplitud y mejor piso; y en todo caso dejando libre para la arrieria y animales de tránsito el uso de los gamalotales y de los terrenos sin cultivo:
+6° Igualmente á dejar libres los caminos trasversales que el canal corte, y a establecer en cada uno de los puntos cortados, puntos seguros y capaces;
+7° Terminado el plazo de los veinte años de que habla el artículo 7, la compañia es obligada a dejar al servicio del canal y a beneficio del Gobierno, los almacenes necesarios al depósito de los artículos y mercancias de importacion, y los botes y demas útiles de navegacion.
