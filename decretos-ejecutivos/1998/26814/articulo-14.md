@@ -1,1 +1,0 @@
-Artículo 14.-Colaboración de organizaciones privadas. Las organizaciones privadas podrán colaborar con las actividades del CONADES, del Comité Directivo y de la Agencia Ejecutiva. Las colaboraciones en numerario deberán ser canalizadas a través de Organizaciones No-Gubernamentales de reconocida solvencia ética y experiencia financiero-contable.
