@@ -1,0 +1,1 @@
+Artículo 7°—Como excepción a lo dicho en el artículo anterior, podrá acogerse al régimen el Ejecutivo Municipal por la índole de sus funciones y por ser el jerarca de la Institución , aunque no reúna los requisitos antes señalados, y podrá acogerse al régimen el Tesorero, y el Asistente de la administración aunque no reúna los requisitos.

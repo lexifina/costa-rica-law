@@ -1,0 +1,3 @@
+Artículo 4°—Los trabajadores que se acojan a la dedicación exclusiva solamente pueden ejercer la profesión por lo que están contratados, en las funciones relacionadas al cargo que desempeñan en esta Municipalidad tal y como lo dispone el artículo del Reglamento; no obstante se exceptúa de la dedicación exclusiva, los casos siguientes:
+a) Ejercicio de la docencia en establecimientos oficiales de enseñanza.
+b) Ejercicio profesional cuando se trate de sus intereses personales, de los de cónyuge, ascendentes y descendientes hasta tercer grado de consanguinidad, suegros, yernos y cuñados; en cuyo caso deberá comunicarlo por escrito al jefe de la dependencia y al Ejecutivo Municipal, la intención para acogerse a esta excepción.

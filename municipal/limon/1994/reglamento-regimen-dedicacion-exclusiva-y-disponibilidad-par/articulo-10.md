@@ -1,0 +1,1 @@
+Artículo 10.-Para acogerse tanto al Régimen de la Dedicación Exclusiva como Disponibilidad, los profesionales de la Municipalidad de Limón, que opten por uno de ellos deberán firmar el contrato respectivo con ésta Institución él se insertará en su expediente laboral, así como todos aquellos movimientos que por algún motivo se produjeron,
