@@ -1,0 +1,1 @@
+Artículo 2º—Segregación y traspaso. Autorízase a la Municipalidad de Escazú para que segregue el lote descrito en el artículo 1º de esta Ley y lo traspase, a título gratuito, a la Asociación de Educadores Pensionados de Escazú, cédula jurídica Nº 3-002-045539-03, para la construcción de su sede en Escazú.
