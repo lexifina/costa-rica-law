@@ -1,0 +1,1 @@
+Articulo 10.—Por la celebración de actividades con karaoke, discomóvil, música en vivo o similares, se deberá pagar el impuesto sobre espectáculos públicos, cuando aquellas se enmarquen en la definición que del hecho generador de la obligación, hace el articulo 1° del reglamento, la ampliación del impuesto sobre espectáculos públicos Ley N° 6844 del 11 de enero de 1983.
