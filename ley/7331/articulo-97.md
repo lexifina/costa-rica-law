@@ -69,7 +69,8 @@ A los vehículos citados en los incisos a) y b) de este artículo, se
 les prohíbe aprovisionarse de combustible cuando transporten pasajeros.
 En caso de empleo indebido de la concesión o de infracciones
 reiteradas contra esta ley y su reglamento, el Consejo suspenderá o
-cancelará la concesión."*
+cancelará la concesión."(*)
 (Así reformado por el artículo 62 de la Ley N° 7969 de 22 de diciembre de 1999).
-* Nota de SINALEVI : Según el Dictámen N° 037 de 25 de febrero del 2000, este inciso se encientra
-derogado tácitamente por el artículo 29 de la Ley 7969 de 22 de diciembre de 1999.
+(* Nota de SINALEVI : Según el Dictámen N° 037 de 25 de febrero del 2000, este inciso se encuentra
+derogado tácitamente por el artículo 29 de la Ley 7969 de 22 de diciembre de 1999, en lo referente a
+la Comisión Técnica de Transportes que ha sido sustituida por el Consejo de Transporte Público).
