@@ -1,13 +1,2 @@
-ARTICULO 9.- El notario público que autorice la escritura de
-compraventa de un vehículo sujeto a inscripción en el Registro
-Público de la Propiedad de Vehículos Automotores, deberá enviar a
-éste una copia, firmada y sellada por él, dentro de los ocho días
-hábiles siguientes a su firma. Este envío debe hacerlo por correo
-certificado o por cualquier otro medio con acuse de recibo. Sin
-embargo, esta obligación no regirá, si los interesados presentan
-al Registro, la escritura correspondiente dentro de ese mismo
-plazo.
-Los honorarios del notario por la escritura de compra venta
-de cualquier vehículo, serán los que corespondan a las escrituras
-de fecha cierta, según la normativa en esa materia en la fecha
-que se firme ese documento.
+ARTÍCULO 9.- Por la escritura de compraventa de cualquier vehículo, los honorarios del notario serán los que correspondan a las escrituras, según la normativa de esa materia a la fecha en que se firme el documento.
+(Así reformado por el artículo 177 del Código Notarial No.7764 de 17 de abril de 1998).

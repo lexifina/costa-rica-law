@@ -1,15 +1,13 @@
-TITULO V
+TÍTULO V
 PROCEDIMIENTOS
-ARTICULO 146.- El conocimiento de las infracciones a la
-presente Ley le corresponde a las seis alcaldías de tránsito para
-el circuito judicial de San José y a las seis alcaldías de
-tránsito para el resto del país.
-La Corte Suprema de Justicia fijará la competencia
-territorial de estas alcaldías.
-En los lugares en los que no exista una alcaldía de tránsito
-competente, su conocimiento le corresponde a las alcaldías de
-faltas y contravenciones o, en su defecto, a las alcaldías
-mixtas.
-Las apelaciones de las sentencias que dicten las alcaldías
-de tránsito, las de faltas y contravenciones y las mixtas, serán
-conocidas por los juzgados penales.
+Artículo 146.- El conocimiento de las infracciones a esta ley
+corresponde a los Juzgados de Tránsito.
+La Corte Suprema de Justicia fijará la competencia territorial de
+estos juzgados y su ubicación.
+En los lugares en que no exista juzgado de tránsito, el conocimiento
+de las infracciones de esta materia corresponderá al juzgado
+contravencional.
+El conocimiento de las apelaciones de las sanciones en esta materia
+corresponderá al juez penal del procedimiento preparatorio.
+(Así reformado por el artículo 13 de la Ley de Reorganización
+Judicial No.7728 de 15 de diciembre de 1997)

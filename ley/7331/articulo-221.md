@@ -1,8 +1,8 @@
-TITULO VII
+TÍTULO VII
 REGULACION DEL USO DE LOS VEHICULOS
 DEL ESTADO COSTARRICENSE
-CAPITULO I
+CAPÍTULO I
 DISPOSICIONES GENERALES
-ARTICULO 221.- La presente Ley regula el uso de los
-vehículos oficiales de los Poderes del Estado, como bienes
-públicos que cumplen un fin de interés público.
+ARTÍCULO 221.- La presente Ley regula el uso de los vehículos
+oficiales de los Poderes del Estado, como bienes públicos que cumplen un
+fin de interés público.
