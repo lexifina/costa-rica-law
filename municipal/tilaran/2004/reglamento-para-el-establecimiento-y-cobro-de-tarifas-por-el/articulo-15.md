@@ -1,0 +1,1 @@
+Artículo 15.—Multas e intereses: La falta de pago del plazo indicado en el artículo anterior, generará el pago de intereses moratorios de conformidad con las previsiones del código de normas y procedimientos tributarios, a cargo del sujeto pasivo de dicha obligación.
