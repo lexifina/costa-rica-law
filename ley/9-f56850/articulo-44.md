@@ -1,0 +1,1 @@
+Art. 44.—Los exhortes que se expidan en las Repúblicas signatarias para la ejecución de los laudos ó fallos arbitrales, se cumplirán también con arreglo á las disposiciones precedentes, si están homologados.

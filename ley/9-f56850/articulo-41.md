@@ -1,0 +1,1 @@
+Art. 41.—La ejecución de dichas sentencias ó resoluciones, se pedirá al Juez ó tribunal de la Instancia del lugar en que han de cumplirse, para lo que se le dirigirá un exhorto con inserción de todas las piezas necesarias.

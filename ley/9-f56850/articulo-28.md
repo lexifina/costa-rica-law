@@ -1,0 +1,1 @@
+Art. 28.—Los extranjeros no domiciliados en la República, que entablen alguna demanda contra los naturales ó contra los extranjeros naturalizados ó domiciliados, afianzarán las resultas del juicio, si así lo exigiere el demandado.

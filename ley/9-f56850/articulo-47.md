@@ -1,0 +1,1 @@
+Art. 47.—Los exhortes que tengan por objeto hacer una simple notificación, recibir declaraciones, ó cualesquiera otras diligencias de esta naturaleza se cumplirán siempre que estuvieren debidamente legalizados.

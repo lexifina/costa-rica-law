@@ -1,0 +1,1 @@
+Art. 43.—La parte que se considere perjudicada por el auto del Juez exhortado, puede interponer los recursos que la ley permita en el país de la ejecución; pero será prohibida toda controversia que no se refiera á algunos de los casos puntualizados en el artículo 42.
