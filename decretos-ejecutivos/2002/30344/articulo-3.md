@@ -1,0 +1,1 @@
+Artículo 3º—El manejo de la vida silvestre estarán sujetos al Plan de Manejo aprobado por el Ministerio del Ambiente y Energía, quien se encargará además de su ejecución y podrá emitir disposiciones técnicas y científicas.

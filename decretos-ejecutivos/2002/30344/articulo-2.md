@@ -1,0 +1,1 @@
+Artículo 2º—Modifíquese el nombre del Refugio Nacional de Vida Silvestre Playa Hermosa para que en adelante se denomine Refugio Nacional de Vida Silvestre Playa Hermosa - Punta Mala, categoría estatal.
