@@ -13,3 +13,4 @@ RTCR 357:1997 Reg. Análisis Sust. Químicas Biológicas Uso AgriculturaResiduos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-10 | la propia norma |
+| 2 | 1999-03-10 | SINALEVI (sin norma nombrada) |
