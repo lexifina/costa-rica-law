@@ -13,3 +13,4 @@ Pone en conocimiento de autoridades judiciales contenido de artículos 9° del C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-03 | la propia norma |
+| 2 | 2003-02-03 | Circular 11 (2003-01-31) |
