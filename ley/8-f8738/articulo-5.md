@@ -1,0 +1,1 @@
+Art. 5. El presente decreto se someterá á la alta aprobacion del Excelentísimo Congreso en sus próximas sesiones. —Dado en el Palacio Nacional. San José, á los ocho dias del mes de junio de mil ochocientos cincuenta y siete,-Juan Rafael Mora.-El Ministro de Hacienda.-Rafel G. Escalante."

@@ -1,0 +1,1 @@
+Art. 3. El 1° de enero de 1860, el Gobierno impondrá el derecho de portazgos que estime justo á todas las carretas de dos riendas que tengan llantas de menos anchura de cinco pulgadas y que trafiquen en la carretera nacional.
