@@ -13,3 +13,4 @@ Reglamento Inspección Estatal y Reconocimiento Estudios RealizadosCentros Docen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-03-17 | la propia norma |
+| 2 | 1993-03-17 | SINALEVI (sin norma nombrada) |
