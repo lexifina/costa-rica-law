@@ -1,1 +1,0 @@
-ARTICULO 62.- Los empleados del gobierno de la Federación de los estados no podrán ser representantes en el Congreso, ni en las Asambleas por el territorio en que ejercen su cargo, ni los representantes serán empleados por estos gobiernos durantes sus funciones, ni obtendrán ascenso que no sea de rigurosa escala.

@@ -1,1 +1,0 @@
-ARTICULO 124.- Dará al Congreso y al senado los informes que le pidieren; y cuando sean sobre asuntos de reserva, lo expondrá así para que el Congreso o el senado le dispensen de su manifestación, o se le exijan si el caso lo requiere. mas no estará obligado a manifestar los planes de guerra ni las negociaciones de alta política pendientes con las potencias extranjeras.

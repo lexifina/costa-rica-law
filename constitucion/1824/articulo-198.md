@@ -1,1 +1,0 @@
-ARTICULO 198.- Todo proyecto de ley sobre formación de nuevo Estado debe ser propuesto al Congreso por la Mayoría de los representantes de los puebles que hayan de formarlo, y apoyado en los precisos datos de tener una población de cien mil o mas habitantes, y de que el Estado de que se separa queda con igual población y en capacidad de subsistir.

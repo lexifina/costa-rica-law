@@ -1,1 +1,0 @@
-ARTICULO 90.- Para ser senador se requieren -naturaleza en la República- tener treinta años cumplidos- haber sido siete ciudadano, bien sea del estado seglar o del eclesiástico secular- y estar en actual ejercicio de sus derechos.

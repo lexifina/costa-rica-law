@@ -1,1 +1,0 @@
-ARTICULO 18.- Todo el que fuere nacido en las repúblicas de América y viniere a radicarse a la Federación, se tendrá por naturalizado en ella desde el momento en que manifieste su designio ante la autoridad local.

@@ -1,1 +1,0 @@
-ARTICULO 115.- Entablará consultas al senado, las negociaciones y tratados con las potencias extranjeras: le consultará así mismo sobre los negocios que provengan de estas relaciones, pero en ninguno de los dos casos está obligado a conformarse con su dictamen.
