@@ -1,0 +1,3 @@
+Artículo 2°-El Poder Ejecutivo dictará las medidas que juzgue convenientes, á efecto de que se hagan los estudios científicos indispensables y se inicien las obras expresadas lo más pronto posible.
+AI PODER EJECUTIVO.
+Dado en el Salón de Sesiones del Palacio Nacional, en San José, á los veinticuatro días del mes de Julio de mil ochocientos noventa y uno.-FRANCISCO M. IGLESIAS.-J. VARGAS M., Secretario.- LUIS R. FLORES, Prosecretario. Casa Presidencial, San José, á veinticuatro de Julio de mil ochocientos noventa y uno.- Ejecutese. José J. RODRÍGUEZ. El Secretario de Estado en el Despacho de Gobernación, JOAQUÍN LIZANO.
