@@ -1,0 +1,1 @@
+Art. 94. –art.1106. “El llamado para este caso será un Magistrado de la otra sala si el negocio no fuere susceptible de súplica, ó el Fiscal sino estuviere impedido, ó estándolo se llamará un juez de 1a Instancia ó Alcalde.”

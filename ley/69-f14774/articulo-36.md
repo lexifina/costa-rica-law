@@ -1,0 +1,1 @@
+Art. 36. –art. 897. “Mas si la sentencia impusiere cualquiera de estas penas, aunque el acusador y el reo hayan consentido en ella expresa ó tácitamente, se consultará á la Cámara Judicial, elevándole la causa original. Lo mismo se verificará aunque la sentencia sea absolutoria.”

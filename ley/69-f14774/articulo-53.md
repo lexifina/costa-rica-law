@@ -1,0 +1,1 @@
+Art. 53. “El Juez de 1a Instancia luego que hubiere recibido el expediente mandará citar al impresor para que en el término de dos horas presente el original del impreso, firmado por el acusado ó denunciado, á quien el mismo juez mandará comparecer en el acto, y le hará reconocer su firma.”

@@ -1,0 +1,1 @@
+Art. 28. En cada cabezera de Departamento habrá un ajente fiscal nombrado por el Gobierno: no habiéndolo, harán sus veces los síndicos procuradores, y por falta de unos u otros, los jueces nombrarán específicos en cada causa, de cuyo cargo nadie puede excusarse. Los agentes fiscales harán las veces de acusador en todas las causas criminales y que se siguieren de oficio,

@@ -1,0 +1,1 @@
+Art. 45. “Los Jurados que habiendo sido citados no comparecieran á la hora señalada, serán apremiados y puestos en prisión hasta que obedezcan, sin perjuicio de sufrir las penas que las leyes impongan á los que se niegan á desempeñar un cargo concejil.”

@@ -1,0 +1,1 @@
+Art. 74. –art.1032. “Corridas las diligencias de notificación, el escribano pasará en el día el proceso á los Magistrados, anotándolo asi en el acto de la entrega. Dichos Magistrados deberán imponerse de la causa dentro de ocho días á mas tardar, para lo que la tomará cada uno el tiempo necesario á discreción del Presidente.”

@@ -1,0 +1,1 @@
+Art. 34. –art. 848. “La declaración ó confesión del procesado contra sí, no hace prueba en ningún caso. Para su condenación es indispensable, so pena de nulidad: 1° la justificación completa del cuerpo del delito: 2° la prueba plena de haber sido delincuente ó culpable.”

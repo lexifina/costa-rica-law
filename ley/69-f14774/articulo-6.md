@@ -1,0 +1,1 @@
+Art.6. –art. 1552. “Aquel que adquiere de buena fé y por justo título un inmueble, prescribe la propiedad de él, por diez años, si el verdadero propietario habita en el territorio del Estado, y por veinte, si está fuera del territorio.”

@@ -1,0 +1,1 @@
+Art. 47. De este procedimiento se sentará una acta en el mismo expediente, y se reunirán en el acto los doce del primer jurado. Esta será firmada por el Juez, por los Jurados sorteados y por el Escribano.”

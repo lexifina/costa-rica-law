@@ -1,0 +1,1 @@
+Art. 54. “Si el autor del papel acriminado no compareciere en el término señalado por las leyes para la citación y emplazamiento, ó si fuere desconocido, el Impresor quedará desde luego sujeto al juicio y responsabilidad del autor.”

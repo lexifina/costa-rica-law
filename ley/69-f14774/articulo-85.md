@@ -1,0 +1,1 @@
+Art. 85. “Admitida la suplica se remitirá el proceso original á la sala que deba fallarla, citando y emplazando á las partes con el término de tres días, para que constituyan procurador y abogado sino lo tienen, y se resolverá la causa, sin mas trámite que el informe verbal ó escrito de los letrados, ó defensores, si quieren darlo.,,
