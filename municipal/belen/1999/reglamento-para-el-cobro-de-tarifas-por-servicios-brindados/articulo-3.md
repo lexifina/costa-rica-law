@@ -1,0 +1,1 @@
+Artículo 3°—La Municipalidad de Belén cobrará tasas cuando tenga que prestar servicios a los propietarios de bienes inmuebles que omitan el cumplimiento de los deberes indicados en el artículo anterior.

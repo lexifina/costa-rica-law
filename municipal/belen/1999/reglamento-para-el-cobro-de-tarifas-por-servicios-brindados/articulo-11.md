@@ -1,0 +1,1 @@
+Artículo 11.—El atraso en el pago de las tasas que se cobrarán por los servicios enunciados en el presente reglamento generará multas e intereses moratorios de conformidad con los artículos 57 y 76 del Código de Normas y Procedimientos Tributarios.
