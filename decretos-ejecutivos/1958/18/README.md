@@ -14,3 +14,4 @@ Establece Parámetros Nutricionales a la Harina de Trigo.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1958-07-30 | la propia norma |
+| 2 | 1959-01-27 | Decreto Ejecutivo 1 (1959-01-27) |
