@@ -1,0 +1,2 @@
+Artículo 8º.-Aquellas personas físicas o jurídicas, que opten por la leyenda "El abuso del licor es nocivo para la salud", no solo deberán incorporarla en los envases de todo tipo de licor, sino también deberá figurar dicha leyenda en cualquier tipo de publicidad que se realice del producto, sea este oral, escrito o visual, por cualquier medio de comunicación que se emplee. El tamaño de la leyenda debe ser lo suficientemente grande y amplio para que sea fácilmente leído.
+(Así adicionado mediante el artículo 1° del decreto ejecutivo N° 16008 del 4 de febrero de 1985).
