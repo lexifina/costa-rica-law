@@ -1,0 +1,1 @@
+Artículo 22.- Pasados los treinta días a que se refiere el artículo anterior y no habiendo oposiciones, o si habiéndolas, se hubieren declarado sin lugar, la Secretaría de Hacienda pasará el expediente a la de Fomento para que ésta ordene el levantamiento del plano y la valoración que se indica en el artículo siguiente.
