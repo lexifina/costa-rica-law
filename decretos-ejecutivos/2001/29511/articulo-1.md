@@ -116,3 +116,4 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado el límite de gasto presupuestario y efectivo de la Junta de Protección Social de San José, por el artículo 1 del Decreto Ejecutivo N° 29904 de 08 de octubre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo para el Consejo Nacional para Investigaciones Científicas y Tecnológicas , por el artículo 1 del Decreto Ejecutivo N° 29912 de 9 de octubre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo del Instituto de Fomento y Asesoría Municipal, por el artículo 1 del Decreto Ejecutivo N° 29924 de 9 de octubre del 2001)
+(Modificado el límite de gasto presupuestario y efectivo de RECOPE, por el artículo 1 del Decreto Ejecutivo N° 29969 de 29 de octubre del 2001)
