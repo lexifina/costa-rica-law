@@ -13,3 +13,4 @@ Conferir Plenos Poderes Sr. Rodrigo Arauz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-08-22 | la propia norma |
+| 2 | 1985-08-22 | SINALEVI (sin norma nombrada) |
