@@ -1,0 +1,5 @@
+REGLAMENTO DE LA JUNTA DIRECTIVA
+Artículo 1º—De los miembros de la Junta Directiva. La Junta Directiva estará formada por cinco miembros propietarios y dos suplentes.
+a) Los miembros propietarios serán: El Ministro de Salud, quien la presidirá, el Presidente Ejecutivo de la CCSS, dos representantes de la Fundación Nacional para Pacientes con Cáncer, Hospital Dr. Calderón Guardia, y un representante del Consejo Nacional del Cáncer.
+b) Los miembros suplentes serán: El Viceministro de Salud, quien actuará cuando, por Decreto Ejecutivo, esté en funciones de Ministro de Salud. Uno de los Gerentes de la Caja, el cual deberá ser nombrado por la Junta Directiva de la CCSS, para todo el período del miembro propietario que le corresponde a la CCSS.
+c) La Junta Directiva tendrá un presidente, un vicepresidente, un secretario de actas, un tesorero y un miembro vocal. Con excepción del presidente, que por ley es el Ministro de Salud, los demás puestos se nombrarán en la primera sesión y durarán en sus puestos por todo el período que sean nombrados, conforme a la ley.

@@ -1,0 +1,1 @@
+Artículo 11.—De la convocatoria y agenda. La agenda y la convocatoria de las sesiones de Junta Directiva deberá ser confeccionada por el presidente, el cual considera para ello las propuestas de los demás miembros de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 12.—Del quórum. El quórum de las sesiones de la Junta Directiva se establecerá por la presencia de al menos tres de sus miembros, donde obligadamente deberá estar el presidente o el vicepresidente. Los acuerdos serán tomados por simple mayoría.

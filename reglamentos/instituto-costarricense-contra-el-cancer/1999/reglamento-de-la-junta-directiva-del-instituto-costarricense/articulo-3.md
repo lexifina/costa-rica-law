@@ -1,0 +1,1 @@
+Artículo 3º—Nombramiento del miembro propietario. El miembro propietario del Consejo Nacional del Cáncer será nombrado mediante acuerdo de la Junta Directiva de ese ente y comunicado al Presidente de la Asamblea del ICCC.

@@ -1,0 +1,1 @@
+Artículo 13.—Del voto. El voto en las sesiones de Junta Directiva será de dos tipos: público, con el simple levantamiento de mano y secreto para nombramientos, por escrito. En caso de empate, el presidente ejercerá su voto de calidad.

@@ -1,0 +1,1 @@
+Artículo 10.—Del lugar de reunión. Las sesiones de Junta Directiva se realizarán en donde tenga el ICCC sus oficinas principales. Podrán reunirse en lugar diferente cuando así lo acuerde la Junta Directiva, por solicitud de alguno de sus miembros.

@@ -1,0 +1,1 @@
+Artículo 14.—De la privacidad e invitados a la Junta Directiva. La Junta Directiva realizará sus sesiones en forma pública, con la presencia de: Asesores, Secretaria de actas y el Director Ejecutivo. Excepcionalmente y previo acuerdo de la Junta Directiva del ICCC, se realizarán sesiones privadas.

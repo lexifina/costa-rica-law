@@ -1,0 +1,4 @@
+Artículo 2º—De los nombramientos. Para ocupar las dos plazas en propiedad, la Fundación para Pacientes con Cáncer del Hospital Dr. R. Calderón Guardia, deberá de proceder de la siguiente manera:
+a) La Junta Directiva de la Fundación remitirá, al presidente de la asamblea general del Instituto, una nómina de seis miembros que proponen para ocupar las plazas. El presidente convocará a la Asamblea para escoger y ratificar las dos personas escogidas.
+b) Cuando quedase una vacante, se usará el mismo procedimiento del inciso anterior, pero solo se presentará una terna para la escogencia y su periodo será para terminar el del miembro que esté siendo reemplazado.
+c) Los miembros de la Fundación ante la Junta Directiva, podrán ser reelectos consecutivamente sin ningún término, y sólo podrán ser removidos por renuncia, faltas graves, impedimentos legales, juzgamientos pendientes, o por ausencias prolongadas a sesiones en forma injustificada.

@@ -1,0 +1,1 @@
+Artículo 15.—De las mociones. Las mociones deberán presentarse por escrito y referirse al tema objeto de estudio o discusión. El presidente calificará lo anterior y no pondrá a discusión ninguna que no cumpla con dicho requisito y se votarán las mismas siguiendo el orden en que fueron propuestas.
