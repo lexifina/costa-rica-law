@@ -1,0 +1,5 @@
+ARTICULO 3.- Se autoriza a las instituciones descentralizadas y empresas
+estatales, a que hagan donaciones y den todo tipo de colaboración al Poder
+Ejecutivo, a la Caja Costarricense de Seguro Social o a ASECAN con motivo de la
+celebración del Cincuentenario de la promulgación de la Ley de Garantías
+Sociales.
