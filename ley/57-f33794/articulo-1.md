@@ -1,5 +1,6 @@
+(Derogado)
 N° 57
-(Mediante el numeral 10° de la ley N° 215 del 13 de octubre de 1948, "Ley de Control de Exportación de Productos", se indica que la presente norma queda refundida en las disposiciones de la ley N° 215 del 13 de octubre de 1948)
+(Derogada por el artículo 52 de la ley N° 1148 del 28 de marzo de 1950, "Ley de Control de las transaciones Internacionales")
 El Congreso Constitucional de la República de Costa Rica
 Tomando en consideración los reparos hechos por el Poder Ejecutivo al decreto N° 53 de 8 de febrero en curso, y de acuerdo con el artículo 89 de la Constitución Política,
 DECRETA:
