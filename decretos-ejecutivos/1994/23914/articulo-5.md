@@ -1,0 +1,1 @@
+Artículo 5°- Las decisiones del Ministerio a que se refiere el artículo anterior deberán hacerse del conocimiento público, con al menos diez días hábiles de antelación a su entrada en vigencia, sea directamente o por medio de la respectiva Bolsa.

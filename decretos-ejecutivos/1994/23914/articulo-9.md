@@ -1,0 +1,1 @@
+Artículo 9°- Los agentes económicos interesados en participar en la compra o venta de productos sujetos a contingentes arancelarios, podrán presentar sus ofertas ante la Bolsa, por medio de un puesto de bolsa. Dichas ofertas deben presentarse con la debida anticipación, de manera que se asegure su divulgación por parte de la Bolsa entre todos los participantes del mercado.

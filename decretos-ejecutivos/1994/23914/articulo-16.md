@@ -1,0 +1,1 @@
+Artículo 16.- La Bolsa deberá llevar un control de los volúmenes de los contingentes arancelarios asignados en cada partida arancelaria, de manera que en ningún momento las asignaciones excedan el volumen puesto a disposición del público por el Ministerio.
