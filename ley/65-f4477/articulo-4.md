@@ -1,0 +1,1 @@
+Art. 4. En los barrios y campos de las poblaciones podrá tenerse puercos sueltos, pero con horquilla ó trompilla y tan solo en los lugares por donde no haya acequias ó fuentes destinados al uso de los vecinos. Los contraventores pagarán cuatro reales de multa.
