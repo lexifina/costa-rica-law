@@ -1,2 +1,2 @@
-Artículo 5°—La Dirección del Triángulo de Solidaridad estará conformada de la siguiente manera:
-Un Director General, quien fungirá como coordinador general; un Director General Adjunto, quienes serán de nombramiento del titular de la cartera; y los funcionarios de apoyo que sean necesarios.
+Artículo 5°—La Dirección del Triángulo de Solidaridad será la encargada de promover, capacitar y facilitar, en forma democrática, un proceso de concertación a nivel local entre la Sociedad Civil, las Municipalidades y el Sector Público, con el fin de constituir un foro que brinde apoyo logístico y permita a los tres actores alcanzar los acuerdos necesarios para promover el desarrollo humano en sus comunidades.
+(Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 3º al artículo 5º)

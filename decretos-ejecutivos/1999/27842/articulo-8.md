@@ -1,1 +1,2 @@
-Artículo 8°—Identificación de Sectores y Promoción. Previo a la convocatoria de la Asamblea de Vecinos, la Dirección del Triángulo de Solidaridad identificará y motivará a los principales representantes de las organizaciones comunales, así como a los líderes y vecinos interesados en participar en este proceso.
+Artículo 8°—Los Concejos Municipales podrán integrase a este mecanismo de coordinación de políticas, programas y proyectos de desarrollo humano, como gestores y promotores de los intereses locales; para lo cual se requerirá el correspondiente acuerdo municipal.
+(Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 6º al artículo 8º)

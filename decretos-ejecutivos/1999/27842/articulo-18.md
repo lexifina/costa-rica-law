@@ -1,1 +1,6 @@
-Artículo 18.—De la Carta de Compromiso. Una vez recibidas las ratificaciones correspondientes, la Dirección del Triángulo de Solidaridad instará a cada una de las partes a ejecutar los proyectos y acciones de desarrollo; y convocará a la firma de las Cartas de Compromiso, acto que representa el acuerdo de cada uno y la voluntad expresa de llevar a cabo, según sus posibilidades, las acciones convenidas en materia de desarrollo y mejoramiento de la calidad de vida.
+Artículo 18—La Mesa de Negociación, tendrá las siguientes funciones:
+1. Analizar la viabilidad de los planes distritales.
+2. Seleccionar los proyectos por ejecutar.
+3. Establecer el aporte de cada una de las tres partes.
+4. Elaborar las cartas de compromiso a partir de la ratificación de los acuerdos por cada uno de los actores.
+(Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 16 al artículo 18)

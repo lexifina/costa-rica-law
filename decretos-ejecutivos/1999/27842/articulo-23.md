@@ -1,1 +1,2 @@
-Artículo 23.—Deróguese el Decreto Ejecutivo No 27076-C, publicado en "La Gaceta" No 108 del 5 de junio de 1998.
+Artículo 23—Se declaran de interés público las actividades que realice la Dirección del Triángulo de Solidaridad. La Administración Pública e instituciones privadas, dentro de sus posibilidades y el marco legal correspondiente, podrán brindar su ayuda para el mejor logro de los objetivos de esta Dirección.
+(Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 21 al artículo 23)

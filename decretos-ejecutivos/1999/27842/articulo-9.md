@@ -1,16 +1,4 @@
-Artículo 9°—De las Asambleas de Vecinos. Para los efectos del Triángulo de Solidaridad, la Asamblea de Vecinos es la máxima representación del distrito o comunidad. Es abierta a todos sus vecinos, quienes escogerán entre ellos a sus representantes ante las Fiscalías Ciudadanas y las Comisiones de Desarrollo Distrital en los procesos de planificación y participación en el marco del Triángulo de Solidaridad. Estos representantes se agruparán por sectores y serán los encargados de avalar la selección de proyectos y programas prioritarios para la comunidad, así como los aportes de la misma para cada proyecto.
-Los sectores serán definidos de acuerdo a las características identificadas en el mapeo social, propias de cada distrito o comunidad, pudiendo aumentar o disminuir su número de acuerdo a su necesidad, y serán:
-a) Economía Laboral
-b) Adultos mayores
-c) Cultura
-d) Educación
-e) Salud
-f) Desarrollo Comunal
-g) Agricultores Organizados
-h) Mujeres Organizadas
-i) Empresa Privada
-j) Infraestructura
-k) Organizaciones Religiosas
-l) Discapacidad
-m) Vecinos No Organizados
-n) Gestión de Riesgo
+Artículo 9°—Del procedimiento. El proceso comprende la promoción de la participación en cada distrito o comunidad, desde la toma de conciencia de sus derechos hasta la identificación, formulación, ejecución, control y evaluación de proyectos y acciones, de manera concertada, coordinada, complementaria y solidaria entre las organizaciones comunales, gobiernos locales y órganos e instituciones de la Administración Pública.
+a) Coordinación con enlaces institucionales. El jerarca de cada institución de la Administración Pública deberá nombrar su representante, quien fungirá como enlace institucional ante la Dirección del Triángulo de Solidaridad. Para el trabajo específico de cada distrito o comunidad el enlace brindará un informe de las organizaciones y sus representantes regionales y locales que a nivel de distrito, cantón o región tengan alguna vinculación con la institución; y de los recursos que tiene asignados su representada para apoyar los programas y proyectos en el distrito o comunidad.
+b) Coordinación con la Municipalidad. El Gobierno de la República, a través del Ministerio de Cultura, Juventud y Deportes, comunicará • a la Municipalidad correspondiente la voluntad de implementar el mecanismo del Triángulo en su respectivo cantón.
+(Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 7º al artículo 9º)
