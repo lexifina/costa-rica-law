@@ -1,0 +1,1 @@
+Artículo 2º—Se gira instrucciones al Departamento de Protección y Registro a efecto de que rectifique y notifique la modificación realizada de conformidad con el presente acuerdo, que incluye las licencias emitidas durante los meses de octubre y noviembre.

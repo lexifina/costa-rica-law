@@ -1,0 +1,7 @@
+AJDIP/496.—Puntarenas, a los veintiún días del mes de noviembre del año dos mil tres.
+Considerando
+1º—Que en atención a la resolución C-03-03 de la Comisión Interamericana del Atún Tropical, la Junta Directiva adoptó el acuerdo AJDIP/365-2003, referente al establecimientos de áreas de veda para la captura y extracción del recurso del atún.
+2º—Que durante la 71º reunión de la CIAT, celebrada en La Jolla, California, EEUU, celebrada durante los día 6-7 de octubre del presente año, se acordó la resolución C-03-12, sobre Conservación del atún en el Océano Pacífico Oriental, aspecto que motiva a esta junta a modificar y ajustar el acuerdo mencionado, a los alcances y términos de esta nueva resolución.
+Por tanto:
+Artículo 1º—Modifíquese el artículo 2º del acuerdo AJDIP/365-2003, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 2º—Se autoriza la pesca en el mar patrimonial de Costa Rica, excepto dentro del mar territorial y en aquella área incluida en la zona vedada en la resolución de la CIAT C-03-12, establecida y definida de la siguiente manera: “Desde la intersección del Meridiano de 95° O, con el litoral occidental del continente americano hacia el sur hasta el paralelo 10° N, luego hacia el oeste hasta el meridiano de 120° O , luego hacia el sur hasta el paralelo de 5° S, luego hacia el este hasta el meridiano de 100° O, luego hacia el norte hasta el paralelo de 5° N, luego hacia el este hasta el meridiano de 85° O y finalmente hacia el norte hasta su intersección con el litoral occidental americano.”
