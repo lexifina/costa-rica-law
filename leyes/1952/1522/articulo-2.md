@@ -1,0 +1,1 @@
+Artículo 2°.- El producto del empréstito se destinará: para casa de máquinas, de repostería, líneas de conducción, transformadores y demás instalaciones del servicio eléctrico municipal, ¢80,000.00 para reparación de la red de cañería en el centro de la población de Siquirres, ¢40,000.00 y para cloacas, alcantarillados y calles ¢30.000.00
