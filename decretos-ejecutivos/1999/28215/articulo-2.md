@@ -1,0 +1,1 @@
+Artículo 2º—La Asociación Pro Desarrollo Agropecuario, Industrial y Tecnológico del Caribe (ADAINTEC) será la promotora del Proyecto para la Instalación de un Parque Tecnológico en la zona de Leesville, Roxana, Pococí, con la responsabilidad de realizar y coordinar los estudios y acciones necesarias para lograr la efectiva instalación de este Tecnoparque.
