@@ -1,0 +1,1 @@
+3º—La actividad estará dirigida y coordinada por la Comisión de Seguimiento del Plan Regulador nombrada al efecto y será expuesta por los técnicos de la firma consultora contratada por la Municipalidad para ese fin.

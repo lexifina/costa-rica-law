@@ -1,0 +1,1 @@
+2º—La actividad se llevará a cabo el día, empezará a la hora y en lugar señalados en el Diario Oficial. Las consultas y exposiciones culminarán a las tres de la tarde. El material estará disponible en la Municipalidad y la firma evacuará consultas verbales o por escrito dos semanas antes del evento.

@@ -1,0 +1,1 @@
+7º—Concluido el proceso de revisión, que no podrá exceder los 30 días hábiles, la Comisión presentará el resultado del proceso ante el Concejo Municipal, para proceder a la aprobación formal del proyecto y su publicación en el Diario Oficial.

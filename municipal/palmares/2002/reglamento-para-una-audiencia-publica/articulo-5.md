@@ -1,0 +1,1 @@
+5º—Las observaciones que se presenten durante la audiencia, se registrarán en una acta especialmente dispuesta para la actividad. La Comisión analizará en conjunto con la firma consultora la incorporación de tales propuestas dentro del plan regulador y de informarle a los interesados el resultado de tal evaluación.

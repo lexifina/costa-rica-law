@@ -1,0 +1,1 @@
+4º—Dicha Comisión se encargará de facilitar las condiciones más favorables para garantizar la libertad necesaria para el planteo de preguntas o dudas relacionadas con el proyecto, las cuales se harán en tiempo razonable.

@@ -1,0 +1,1 @@
+6º—Se dará un plazo adicional de quince días hábiles para la presentación de observaciones u oposiciones al proyecto, así como para el aporte de otros materiales de respaldo técnico o legal, que tengan a bien presentar los interesados.
