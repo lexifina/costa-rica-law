@@ -18,3 +18,4 @@ Reglamento del Registro Público
 | 3 | 1998-08-19 | Decreto Ejecutivo 27281 (1998-08-19) |
 | 4 | 1999-05-26 | Decreto Ejecutivo 27934 (1999-05-26) |
 | 5 | 2000-03-06 | Decreto Ejecutivo 28541 (2000-03-06) |
+| 6 | 2001-12-17 | Decreto Ejecutivo 30097 (2001-12-17) |

@@ -1,5 +1,5 @@
-Artículo 114.—Transitorios.
-a) Mientras no se implante totalmente un nuevo sistema computarizado para todo el Registro, le serán aplicables en lo pertinente las disposiciones contenidas en el Decreto Ejecutivo Número 15 del 3 de marzo de 1943.
-b) Las calificaciones y los expedientes de ocurso o administrativa referentes a Mercantil, Personas y Asociaciones que no cuenten con resolución final a la fecha de promulgación de este Reglamento, serán conocidas por la Dirección de Personas Jurídicas.
-c) (El transitorio c) fue derogado por Artículo 1 del Decreto Ejecutivo N° 27132 de 10 de junio de 1998, y posteriormente fue Derogado por artículo 3° del Decreto Ejecutivo N° 27281 de 19 de agosto de 1998)
-(Así corrida la numeración por el Artículo 1° del Decreto Ejecutivo N° 28541, que adicionó los artículos 16 y 17, y ordenó correr la numeración por lo que este artículo pasó de ser 112 a 114)
+Artículo 114.— Modificaciones. Modifiqúese el artículo primero del Decreto Ejecutivo No 19932-J del 4 de octubre de 1990, el cual en adelante deberá leerse así:
+"Artículo 1°—Se centraliza en el Registro de Asociaciones de la Dirección General del Registro Nacional, el trámite de autorización e inscripción de Asociaciones que se constituyan al amparo de la Ley de Asociaciones No 218 de 8 de agosto de 1939 y sus reformas".
+(Nota de Sinalevi: Mediante el numeral 1° del decreto ejecutivo N° 27132 del 10 de junio de 1998, se derogó este artículo. No obstante; por el artículo 3° del decreto ejecutivo N° 27281 del 19 de agosto de 1998, se restablece la vigencia de este artículo)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 110 al 112 actual)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 30097del 17 de diciembre del 2001; que lo traspaso del antiguo 112 al 114 actual)
