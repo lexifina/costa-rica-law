@@ -1,1 +1,2 @@
-Artículo 12.—Cada juego de fórmulas constará de un talón, un certificado de depósito y un bono de prenda, que tendrán idéntica numeración. En ellos se harán constar las circunstancias que indican tal artículos 16, 17 y 22 de la ley, y con ese objeto la fórmula respectiva tendrá las leyendas y espacios requeridos.
+Artículo 12.—Cada juego de fórmulas constará de un talón, un certificado de depósito y un vale de prenda (*), que tendrán idéntica numeración. En ellos se harán constar las circunstancias que indican tal artículos 16, 17 y 22 de la ley, y con ese objeto la fórmula respectiva tendrá las leyendas y espacios requeridos.
+(*)(Modificada su denominación por el artículo 199 de la ley N° 16 del 5 de noviembre de 1936, "Ley Orgáncia del Banco Nacional de Costa Rica)

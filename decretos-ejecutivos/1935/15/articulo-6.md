@@ -1,1 +1,2 @@
-Artículo 6°—Los Almacenes están obligados a llevar una contabilidad uniforme, de acuerdo con las normas que les indique el Banco internacional.
+Artículo 6°—Los Almacenes están obligados a llevar una contabilidad uniforme, de acuerdo con las normas que les indique el Banco internacional (*).
+(*)(Nota de Sinalevi: Mediante el artículo 1° de la ley N° 16 del 5 de noviembre de 1936 "Ley Orgánica del Banco Nacional de Costa Rica (BNCR)" se establece que el Banco Internacional de Costa Rica, se denominará en el futuro Banco Nacional de Costa Rica)
