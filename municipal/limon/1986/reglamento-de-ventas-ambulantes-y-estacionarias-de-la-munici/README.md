@@ -14,3 +14,4 @@ Reglamento de Ventas Ambulantes y Estacionarias de la Municipalidad de Limón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-09-19 | la propia norma |
+| 2 | 1999-08-12 | Reglamento municipal 15 (1999-08-12) |

@@ -1,1 +1,1 @@
-Artículo 33.—El no pago del impuesto de patentes en los términos fijados en la ley y este Reglamento, generará multas del 2% por cada mes o fracción, de atraso sin que pueda exceder del 24% del monto adecuado.
+Artículo 33.—La Municipalidad decidirá la ubicación y ruta de vendedores estacionarios y ambulantes en caso de que no se pueda aplicar lo establecido en el artículo 20 de este Reglamento.

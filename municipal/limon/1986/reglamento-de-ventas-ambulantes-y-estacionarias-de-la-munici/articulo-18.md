@@ -1,1 +1,1 @@
-Artículo 18.—En los puestos que expendan alimentos de consumo directo se exigirá la presentación del certificado de funcionamiento sanitario expedido por el Ministerio de Salud y los vendedores deberán portar un carné de salud y vestimenta adecuada a los reglamentos y leyes sanitarias.
+Artículo 18.—El Ministerio de Salud podrá exigir el cumplimiento de las leyes sanitarias establecidas en leyes, decretos y reglamentos, en protección de la salud pública.

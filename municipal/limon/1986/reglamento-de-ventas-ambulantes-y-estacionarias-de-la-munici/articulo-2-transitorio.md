@@ -1,1 +1,0 @@
-Transitorio 2.—En el caso de los vendedores estacionarios, los lugares serán adjudicados por acuerdo municipal y en el de los vendedores ambulantes la municipalidad, aprobará la ruta. para ambos se fijará día y hora para la adjudicación en su caso, con participación de todos os solicitantes que hayan calificado al momento, conforme con un plano elaborado para tal fin.

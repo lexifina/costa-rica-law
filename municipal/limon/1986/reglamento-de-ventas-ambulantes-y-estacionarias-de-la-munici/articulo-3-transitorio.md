@@ -1,1 +1,0 @@
-Transitorio 3.—Se extenderá una licencia hasta por seis meses a partir de la publicación del presente Reglamento, siempre y cuando hayan cumplido con los requisitos del mismo, que vencerá automáticamente si a esa fecha el vendedor no tiene adquirido el vehícu1o expresamente diseñado, para estos fines por el Departamento de Ingeniería de la municipalidad.

@@ -1,4 +1,1 @@
-CAPITULO VI
-Recursos y sanciones
-Artículo 30.—La resolución de la municipalidad que deniegue la licencia, tendrá los recursos de revocatoria y apelación, para ante el Ejecutivo Municipal, de conformidad con lo establecido en el artículo 179 del Código Municipal.
-Lo que resuelva en definitiva el Ejecutivo, dará por agotada la vía administrativa.
+Artículo 30.—Las resoluciones de la Municipalidad que ordenen la caducidad de la licencia por falta de pago, no tendrán recurso alguno y su tramitación no admitirá prueba de contrato, salvo la excepción de pago. Las demás resoluciones se regirán por lo que dispone el artículo 156 del Código Municipal.

@@ -1,1 +1,3 @@
-Artículo 31.—Las resoluciones de la municipalidad, que ordenen la caducidad de la licencia por falta de pago, no tendrán recurso alguno y su tramitación no admitirá prueba de contrato, salvo la excepción de pago. Las demás resoluciones se regirán por lo que dispone el artículo 179 del Código Municipal.
+Artículo 31.—Por incumplimiento a las disposiciones legales y reglamentarias podrá la Municipalidad imponer las siguientes sanciones:
+a) Suspensión temporal de la licencia o clausura de la actividad; y
+b) Denuncia civil y/o penal ante los tribunales de justicia.

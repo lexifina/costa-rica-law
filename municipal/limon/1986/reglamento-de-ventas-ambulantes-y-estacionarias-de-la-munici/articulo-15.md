@@ -1,1 +1,1 @@
-Artículo 15.—Los vendedores de lotería y chances, flores, periódicos y revistas, limpiadores de calzado, deberán solicitar la respectiva licencia, pero se eximirán de los requisitos del inciso b). del artículo 4°, de este Reglamento, para la obtención de la misma y no podrán hacer uso de ningún tipo de mobiliario, para ejercer la actividad en las vías públicas.
+Artículo 15.—Los vendedores de lotería y chances, flores, periódicos y revistas, limpiadores de calzado deberán solicitar la respectiva licencia, pero se eximirán de los requisitos del inciso b) del artículo 4.
