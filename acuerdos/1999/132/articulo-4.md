@@ -1,0 +1,1 @@
+Artículo 4°—Vencido el término permitido de la inactividad según se hubiere concedido al interesado, de no existir gestión alguna por escrito del permisionario antes de su vencimiento, presentada al Instituto, el permiso o licencia de pesca caducará de pleno derecho y el Instituto procederá a su cancelación administrativa.
