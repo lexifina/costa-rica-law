@@ -1,0 +1,1 @@
+Art 4° Podrá concederse al interesado un plazo para pagar el valor del terreno que no exceda de tres años reconociendo en favor de la Tesorería Municipal el interés de un ocho por ciento anual anticipado. - En este caso asegurará con hipoteca bastante el pago del principal e intereses.
