@@ -1,0 +1,21 @@
+DECRETO No XII.
+Ratifica el convenio con la Compañía General Trasatlántica.
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA-RICA
+Decreta:
+Art. único.-Se aprueba y ratifica en todas sus partes el contrato celebrado entre el Honorable Se- ñor Secretario de Estado en el Despacho de Guerra Marina, competentemente autorizado por Su Excelencia el Presidente de la República y el Señor Fenelón Vié, Inspector de la Compañía General Trasatlántica con autorización de la misma, que con la modificación introducida, literalmente dice así:
+"BERNARDO SOTO, Secretario de Estado en los Despachos de Guerra y Marina, competentemente autorizado por S. E. el Bene- mérito General Presidente de la República, por una par- te; y FENELON VIE, Inspector de la Compañía General Trasatlántica, también con la autorización debida, por otra parte, han convenido en celebrar el siguiente contrato AD REFFERÉNDUM.
+ARTÍCULO 1°.
+La Compañía General Trasatlántica se compromete á que uno de sus vapores toque en el puerto de menos una vez al mes. Limón, por lo menos una vez al mes.
+ARTÍCULO 2°.
+La expresada Compañía hará que sus vapores comiencen á visitar el dicho puerto de Limón desde el próximo año, ó antes si fuere posible.
+ARTÍCULO 3°.
+La compañía conducirá la correspondencia que le sea entregada oficialmente en los puntos que recorrerán los vapores de ella que se dirijan á Costa- Rica, así como también llevará á su destino la correspondencia que oficialmente le sea entregada por el Administrador de correos de Limón; siendo obligación de la Compañía recibir y entregar por su cuenta en cada puerto la correspondencia, por el intermedio de los Administradores de correos respectivos, así como su cuidado y conservación á bordo.
+El Gobierno de Costa-Rica fija la tarifa de los portes, y colecta éstos como su renta propia.-La Compañía entregará los sacos de correspondencia al costado de los vapores, en su fondeadero, y los recibirá hasta la hora de salida.-No se permitirá á los capitanes de los vapores el recibir cartas fuera de las balijas, exceptuando las que puedan ser entregadas en alta mar o después de que las balijas hayan sido cerradas; pues en tales casos, dichas cartas serán entregadas á los oficiales del Gobierno designados para recibir las balijas, colectando ellos el importe si no estuviere pagada con sellos; siendo siempre entendido que la Compañía tiene el derecho de recibir y conducir fuera de las balijas todas las cartas ó papeles de ó para sus agentes ó empleados, referentes á los negocios de la misma Compañía.
+ARTÍCULO 4°
+Como compensación de los servicios que según los artículos anteriores la Compañía presta gratis al Gobierno de Costa-Rica, éste se obliga por su parte á eximir á los vapores de la expresada Compañía que toquen en el puerto de Limón, del pago de todos los derechos é impuestos comprendidos bajo la denominación de "derechos de puerto", tales como el de tonelaje, anclaje, hospital, faro, etc.
+ARTÍCULO 5°
+El presente contrato no comenzará á considerarse válido, en cuanto obliga al Gobierno de Costa- Rica, sino desde que sea aprobado por el Excelentisimo Congreso de la República, y desde que toque en el puerto de Limón el primer vapor de la mencionada Compañía.
+ARTÍCULO 6°
+El presente contrato, caso de llevarse á efecto, durará cinco años, contados desde el día en que arribe al puerto de Limón el primer vapor de la Compañía General Trasatlántica.
+En fe de lo cual firmamos el presente en el Palacio Nacional, en San José, á ocho de mayo de mil ochocientos ochenta y cuatro.-BERNARDO SOTO.-F. VIE.-Palacio Presidencial.-San José, á ocho de mayo de mil ochocientos ochenta y cuatro.-Estando arreglado el anterior contrato á las instrucciones dadas al efecto, se aprueba en todas sus partes.- Hay una rúbrica.-Rubricado por S. E. el Benemérito General Presidente de la República.-SOTO.- Es conforme.-Palacio Nacional.-San José, 9 de mayo de 1884.-BERNARDO SOTO."
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintiséis días del mes de mayo de mil ochocientos o- chenta y cuatro.-A. DE JESÚS SOTO, Vice-Presidente. JESÚS SOLANO, Secretario.-VICENTE C. SEGREDA, Secretario.-Palacio Presidencial.-San José, veintiséis y cuatro.-Eje- de mayo de mil ochocientos ochenta de Estado en el Despacho de Guerra y Marina.-BERNARDO SOTO.
