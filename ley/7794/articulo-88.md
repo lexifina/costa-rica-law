@@ -1,0 +1,4 @@
+ARTÍCULO 88.- Mediante convenios institucionales, apoyo estatal u
+otras formas de colaboración, podrá crearse un fondo de aval o garantía de
+las emisiones de títulos municipales, con las reglas y condiciones
+estatuidas en el reglamento que cada municipalidad emita para el efecto.
