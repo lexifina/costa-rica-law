@@ -1,21 +1,17 @@
-Artículo 2º.- Para efecto del artículo anterior las municipalidades
-dividirán las poblaciones en zonas "céntricas" y "no céntricas". En la
-zona céntrica lo cobrarán mediante el sistema de estacionómetros, de
-tarifa fija o cualquier otro medio destinado al efecto. En la zona no
-céntrica, lo cobrarán en los lugares especialmente demarcados para ese
-efecto; en el resto de esta zona, el estacionamiento será gratuito. En
-la zona céntrica la tarifa de estacionómetros será de veinticinco
-céntimos por cada quince minutos y en la zona no céntrica será de
-veinticinco céntimos por cada treinta minutos de uso del lugar
-respectivo.
-Podrá autorizarse el uso de espacios para estacionamiento permanente
-no mayores de siete metros de largo por dos de ancho, cada uno, a tarifa
-fija y para el cobro del impuesto, habrá dos clases de tarifa fija: una,
-que dará derecho al uso de los espacios de estacionamiento en la zona
-céntrica, durante cuatros horas diarias y que será de cincuenta colones
-mensuales; y otra de diez colones mensuales para aprovechamiento de
-espacios.
-El uso de los espacios, dentro de todos los sistemas indicados, se
-hará conforme a las reglamentaciones que dicten las municipalidades, y el
-cobro del impuesto sólo podrá hacerse de las seis horas a las dieciocho
-horas.
+Artículo 2º.- Para los efectos del artículo anterior, las
+Municipalidades -mediante reglamento- dividirán las poblaciones en zonas
+céntricas y no céntricas.
+En las zonas céntricas lo cobrarán mediante el sistema de
+estacionómetros por tarifa fija mensual o anual, o por medio de cualquier
+otro sistema que se disponga al efecto en el reglamento.
+En las zonas no céntricas, lo cobrarán en los lugares especialemnte
+señalados para ese efecto. en el resto de estas zonas el estacionamiento
+será gratuito.
+Las tarifas que se cobrarán, tanto en las zonas céntricas como en las
+no céntricas, serán fijadas por el Concejo y refrendadas por la
+Contraloría General de la República, en un plazo no mayor de treinta días
+hábiles posteriores a su recibo.
+Estas tarifas no podrán ser menores a un setenta y cinco por ciento
+del valor que cobren los estacionamientos privados por servicios
+similares.
+(Reformado por artículo 1º, Ley 6852 de 16 de febrero de 1983)
