@@ -1,0 +1,1 @@
+ARTÍCULO 37.-Todo lo concerniente al Registro, la interpretación de este Reglamento y a lo no estipulado en el ser resuelto por la Junta Directiva mediante acuerdo firme notificado a los usuarios y al MAG.

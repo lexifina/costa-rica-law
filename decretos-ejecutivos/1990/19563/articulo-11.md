@@ -1,0 +1,1 @@
+ARTÍCULO 11.-Corresponde al dueño de la reproductora la responsabilidad de registrar la cría. Asimismo ser el responsable de la veracidad de los datos que se incluyan en la solicitud de inscripción o en cualquier otro documento exigido por el Registro las casas expendedoras o distribuidoras de semen congelado deberán inscribir los toros cuyo semen sea vendido en el país.

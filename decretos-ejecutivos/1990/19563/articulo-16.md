@@ -1,0 +1,1 @@
+ARTÍCULO 16.-Si al realizar la inspección se encontraran errores en el tatuaje, el inspector hará las notas aclaratorios del caso, las cuales constar n en el certificado de registro del animal. En caso de que el error fuera de tal magnitud que presentara dudas al inspector ser remitido un informe a la Junta Directiva, la cual situación.

@@ -1,0 +1,2 @@
+ARTÍCULO 26.-La Asociación podrá cancelar en cualquier tiempo el registro de aquel animal inscrito que muestre defectos descalificantes, cuando se comprobare que para su inscripción se suministraron datos falsos o se infringió el presente Reglamento.
+Dicha cancelación ser comunicada al propietario del animal por escrito, quien dispondrá de quince días después de recibida la notificación para presentar las pruebas de descargo que lo respalden, una vez recibidas dichas pruebas la Asociación contar con un plazo de treinta días para resolver.

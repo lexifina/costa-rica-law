@@ -1,0 +1,1 @@
+ARTÍCULO 22.-La tramitación de solicitudes y expedición de certificados se realizar en estricto orden de presentación. Toda documentación que reciba y tramite la Asociación como encargada del Registro deber mantenerse en sus archivos por un plazo no menor de diez años, y una vez transcurrido ese plazo deber enviar a Archivos Nacionales esos documentos.

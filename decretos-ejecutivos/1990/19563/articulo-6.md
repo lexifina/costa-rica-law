@@ -1,0 +1,1 @@
+ARTÍCULO 6°.-La gradación se hará una sola vez por finca, excepto cuando el ganado fuera comprado posterior a la gradación el propietario demuestre a satisfacción de la Junta Directiva la veracidad de la situación anterior.

@@ -1,0 +1,1 @@
+ARTÍCULO 23.-Todo propietario podrá solicitar la cancelación de la inscripción de cualquiera de sus animales, remitiendo a la Asociación el certificado de inscripción correspondiente, junto con la solicitud por escrito para efectuar dicho trámite.

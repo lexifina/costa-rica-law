@@ -1,0 +1,1 @@
+ARTÍCULO 14.-Todo criador deber presentar al menos trimestralmente un informe completo de los nacimientos de un hato, en las fórmulas que para tal efecto pondrá a su disposición la Asociación, o aquellas que sean aprobadas por esta. Asimismo deber presentar el inventario de ganado de su hato al cierre del mes de setiembre de cada año.

@@ -1,0 +1,1 @@
+ARTÍCULO 13.-Todo criador debe llevar un libro de partos o registro de nacimientos en la finca, ordenado cronológicamente y con numeración continua de tatuajes, Dicho libro deber ser autorizado y sellado por la Asociación.
