@@ -14,3 +14,4 @@ Para efectos del Título octavo del Código de Trabajo, no se consideran trabaja
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1959-06-14 | la propia norma |
+| 2 | 1971-07-30 | Decreto Ejecutivo 1879 (1971-07-30) |
