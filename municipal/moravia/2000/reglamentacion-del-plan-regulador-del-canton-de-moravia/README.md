@@ -14,3 +14,4 @@ Reglamentación del Plan Regulador del Cantón de Moravia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-24 | la propia norma |
+| 2 | 2002-06-05 | SINALEVI (sin norma nombrada) |
