@@ -1,0 +1,1 @@
+Artículo 33.—Cuando se pretenda realizar un embargo sobre un determinado bien, el abogado director del proceso deberá coordinar con el Area de Tesorería a fin de solicitar al despacho judicial correspondiente, la entrega de dicho bien en depósito judicial a favor de la DESAF, si ésta tuviese la posibilidad de custodia del bien embargado.

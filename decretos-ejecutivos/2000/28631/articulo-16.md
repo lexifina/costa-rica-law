@@ -1,0 +1,1 @@
+Artículo 16.—El cálculo de los honorarios profesionales se efectuará, tomando como base el decreto de honorarios para abogados, vigente según cada caso concreto. Para determinar el decreto de honorarios aplicable a cada caso se atenderá a la fecha de presentación de la demanda ante el despacho judicial correspondiente. Los honorarios los cancelará el patrono moroso.

@@ -1,0 +1,1 @@
+Artículo 5º—Por cobro judicial se entiende toda aquella gestión que se realice para la recuperación de las cuotas dejadas de cancelar por los patronos, utilizando la vía ejecutiva, entendida ésta desde el momento en que el caso le es asignado al profesional en derecho para su respectivo trámite.

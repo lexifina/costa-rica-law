@@ -1,0 +1,5 @@
+Artículo 10.—Agotados los trámites de cobro administrativo, se iniciarán las gestiones de cobro judicial, en el orden siguiente:
+a) El Area de Tesorería emitirá, por medio de certificación, un informe de la cuenta, el cual incluirá: el nombre correcto del patrono, el número patronal, el monto adeudado, los intereses y las multas desglosados por período, el número del arreglo de pago (si lo hubiere), la fecha en que se realizó el aviso administrativo de cobro, además el visto bueno del encargado del Area de Tesorería y la firma del Director o Subdirector de la DESAF. Esta certificación constituirá título ejecutivo de conformidad con lo establecido por el artículo 11 de la Ley Nº 5662.
+b) Se le asignará el caso al abogado externo, de acuerdo con el procedimiento establecido en los artículos siguientes,
+c) Se enviará carta al abogado designado, junto con la documentación necesaria; con el propósito que se inicie la gestión cobratoria en la vía judicial,
+d) Recibida la documentación por el abogado, éste deberá proceder con la presentación de la demanda en un plazo máximo de 20 días hábiles.

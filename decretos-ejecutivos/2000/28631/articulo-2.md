@@ -1,0 +1,1 @@
+Artículo 2º—Para efectos del presente reglamento, se entiende por Operación en Estado Irregular; todas aquellas que presenten por lo menos un mes de atraso, sea en la cuota mencionada en el artículo anterior, como en la cuota fijada en el arreglo de pago si lo hubiere.

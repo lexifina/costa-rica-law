@@ -1,0 +1,1 @@
+Artículo 23.—El abogado director del proceso, tendrá la obligación de remitir al Area de Tesorería, una copia de la sentencia de cada proceso que concluya, con el propósito que sea anexada al expediente del patrono demandado.

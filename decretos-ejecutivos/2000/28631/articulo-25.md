@@ -1,0 +1,1 @@
+Artículo 25.—Recibidos los documentos por el abogado asignado, éste contará con un plazo de 20 días hábiles para presentar la demanda en el despacho judicial que corresponda. Si por alguna razón no pudiere hacerlo, deberá comunicarlo por escrito al encargado del Area de Tesorería, quien decidirá si se justifica la ampliación del plazo anteriormente señalado.

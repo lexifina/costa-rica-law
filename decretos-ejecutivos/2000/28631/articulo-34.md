@@ -1,0 +1,1 @@
+Artículo 34.—Realizadas todas las gestiones administrativas y judiciales pertinentes sin que se logre la recuperación del crédito, la operación será declarada incobrable, por parte de la Dirección General, de conformidad con el pronunciamiento DAJ-2643-96, del 21 de noviembre de 1196, de la Dirección General de Asuntos Jurídicos de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 30.—En el caso de garantía real, el patrono deberá cubrir la totalidad de los gastos que se deriven de la misma, tales como: avalúo del bien ofrecido en garantía, gastos de inscripción en el Registro Público, costo de la escritura.

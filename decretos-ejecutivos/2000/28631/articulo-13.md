@@ -1,0 +1,1 @@
+Artículo 13.—Al profesional que resultare electo para prestar sus servicios, se le comunicará tal decisión por escrito y éste deberá, en un plazo de cinco días hábiles, contestar de la misma forma ante la oficina que lo designó, expresando su conformidad con este nombramiento, con lo estipulado en este reglamento y su disposición para firmar el contrato correspondiente.

@@ -1,0 +1,1 @@
+Artículo 11.—Los casos serán asignados a los abogados externos según los resultados de su gestión y se les evaluará según la recuperación oportuna de los montos asignados. Para estos efectos la Dirección o Subdirección de la DESAF definirá el tope máximo de casos y el monto a asignar por abogado, cumpliendo para este fin con el principio de equidad.

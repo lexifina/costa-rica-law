@@ -1,0 +1,1 @@
+Artículo 17.—Previo a interponer un proceso judicial, los abogados externos de la DESAF, deberán verificar la factibilidad de recuperación de los montos adeudados al FODESAF, en relación con los bienes embargables que posean los patronos deudores.
