@@ -1,5 +1,6 @@
-ARTICULO 11.- Toda declaración queda sujeta a revisión por los medios
-establecidos en la ley y según las disposiciones de la Municipalidad.
+ARTICULO 11.- Toda declaración queda sujeta a revisión por los
+medios establecidos en la ley y según las disposiciones de la
+Municipalidad.
 Si se comprobara que los datos suministrados son incorrectos,
 circunstancia que determine una variación en el tributo, se procederá a
 efectuar la recalificación correspondiente. Asimismo, la declaración
