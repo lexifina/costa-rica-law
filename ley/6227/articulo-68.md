@@ -1,4 +1,1 @@
-Artículo 68.- Cuando la incompetencia sea declarada en relación con
-una petición o instancia sujeta a término, se tendrá ésta por presentada en
-tiempo si el órgano competente pertenece al mismo Ministerio, tratándose
-del Estado, o al mismo ente, tratándose de entidades descentralizadas.
+Artículo 68.-Cuando la incompetencia sea declarada en relación con una petición o instancia sujeta a término, se tendrá ésta por presentada en tiempo si el órgano competente pertenece al mismo Ministerio, tratándose del Estado, o al mismo ente, tratándose de entidades descentralizadas.
