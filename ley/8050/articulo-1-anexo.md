@@ -5,3 +5,4 @@ RELACIÓN DE PUESTOS DE SUELDOS PARA CARGOS FIJOS DEL GOBIERNO CENTRAL, PARA EL 
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29308 de 12 de febrero del 2001)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29340 de 28 de febrero del 2001)
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 29562 de 25 de abril del 2001)
+(Modificado por el artículo 2 del Decreto Ejecutivo N° 29464 de 30 de abril del 2001)
