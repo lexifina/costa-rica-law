@@ -1,0 +1,1 @@
+Artículo 3º—La Dirección del Programa, al más alto nivel, estará bajo la coordinación un funcionario designado por el Ministro de Agricultura y Ganadería, el cual además fungirá como enlace entre dicho Despacho y el Gerente Técnico del Programa.

@@ -1,0 +1,1 @@
+Artículo 11.—Las autoridades de las instituciones nacionales, entes autónomos y semiautónomos, promoverán y brindaran todas las facilidades y colaboración que estén a su alcance para la ejecución del Programa y el mejor éxito en la consecución de sus metas, de conformidad con el ordenamiento que le rige y en la medida de sus posibilidades materiales.

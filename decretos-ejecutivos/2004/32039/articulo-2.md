@@ -1,0 +1,1 @@
+Artículo 2º—El Programa estará a cargo de un profesional con conocimiento en la materia, bajo la categoría de Gerente Técnico, quien facilitará la toma de decisiones y la aplicación de las medidas necesarias por parte de las Instituciones Públicas, relacionadas con el respectivo Programa.

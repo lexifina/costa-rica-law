@@ -1,0 +1,1 @@
+Artículo 12.—Los miembros de la Comisión Nacional Asesora y los del Comité Técnico Interinstitucional, no percibirán dietas ni emolumento alguno, por la participación o integración de tales órganos colegiados, ni por las funciones que en tal calidad desempeñen.
