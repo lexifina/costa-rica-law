@@ -1,1 +1,0 @@
-Artículo 6°—Todo guía que participe en las giras para observar tortugas en la playa, deberá contar con un carné extendido por el Ministerio de Recursos Naturales,Energía y Minas, previo visto bueno del Administrador del Refugio Nacional de Vida Silvestre Gandoca-Manzanillo, o carné extendido por el Instituto Costarricense de Turismo.

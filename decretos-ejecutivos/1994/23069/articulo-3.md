@@ -1,1 +1,0 @@
-Artículo 3°—Se autorizará observar el desove de las tortugas a cualquier persona o grupo de personas que se hagan acompañar por un guía que porte el carné extendido por el Ministerio de Recursos Naturales Energía y Minas, o por el I. C. T., dicho grupo no puede exceder la cantidad de diez personas.
