@@ -1,0 +1,1 @@
+Artículo 6º—La Dirección de Recursos Humanos por medio del Área de Administración de Salarios hará el estudio respectivo para determinar si procede o no el pago de zonaje de acuerdo con lo estipulado en este Reglamento y lo remitirá a la Gerencia General para su aprobación, posteriormente emitirá la Acción de Personal respectiva.

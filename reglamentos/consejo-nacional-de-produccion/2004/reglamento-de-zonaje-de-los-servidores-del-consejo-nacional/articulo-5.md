@@ -1,0 +1,1 @@
+Artículo 5º—Para el trámite de pago de zona se completará la boleta denominada "Estudio para la Asignación de Zonaje" por parte del Director o superior jerárquico correspondiente, debiendo ser remitida a la Dirección de Recursos Humanos con la Solicitud para Trámite de Confección de Acción de Personal.

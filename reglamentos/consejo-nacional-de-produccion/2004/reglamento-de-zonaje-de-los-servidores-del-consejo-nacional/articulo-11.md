@@ -1,0 +1,1 @@
+Artículo 11.—El pago de zonaje está sujeto al interés institucional, no constituye para el CNP una prestación obligatoria, permanente, invariable, tampoco el servidor podrá alegar derechos adquiridos.

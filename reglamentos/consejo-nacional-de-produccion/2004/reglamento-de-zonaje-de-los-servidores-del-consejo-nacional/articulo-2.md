@@ -1,0 +1,1 @@
+Artículo 2º—Campo de acción: El ámbito de aplicación del presente Reglamento serán las dependencias del Consejo. Cuando un funcionario de la Institución deba trasladarse dentro del país en el ejercicio de sus funciones y perciba el pago del beneficio de zonaje, está en la obligación de respetar el presente cuerpo normativo en todo aquello que le fuera aplicable.

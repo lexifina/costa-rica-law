@@ -1,0 +1,1 @@
+Artículo 13.—El trabajador que por permanecer fuera de su lugar de trabajo tuviera suspendido el beneficio de zonaje, lo recobrará a partir de la fecha de su reingreso, siempre y cuando no hayan variado las condiciones que dieran origen al pago, previa comunicación a la Dirección de Recursos Humanos.
