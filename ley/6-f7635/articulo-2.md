@@ -1,0 +1,1 @@
+Art. 2. Los tenedores de dicha moneda deberán presentarla en la misma casa, dentro del perentorio término de dos meses, contados desde la publicación de este decreto, á fin de que se les cambie por moneda corriente.
