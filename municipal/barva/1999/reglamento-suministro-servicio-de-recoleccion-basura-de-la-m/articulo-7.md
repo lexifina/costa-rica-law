@@ -1,0 +1,1 @@
+Artículo 7º—El propietario de la finca en que se ubique la vivienda a la que se da el servicio; deberá informar por escrito a la Municipalidad; cuando una familia desaloje ésta con el fin de que se suspenda el cobro por dicho servicio. Mientras no avise, deberá cancelar lo que corresponda .

@@ -1,0 +1,1 @@
+Artículo 6º—El costo del servicio se cobrará a cada unidad familiar independientemente de la propiedad en que esté ubicada. Lo expuesto quiere decir que si bajo un mismo número de finca viven varias familias, para cada una de éstas el propietario de la finca pagará el costo correspondiente.

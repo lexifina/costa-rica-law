@@ -1,0 +1,1 @@
+Artículo 2º—La Municipalidad podrá brindar por sus propios medios el servicio por recolección, transporte y tratamiento de basura domiciliaria, o bien contratar la prestación de ese servicio con empresas públicas o privadas.

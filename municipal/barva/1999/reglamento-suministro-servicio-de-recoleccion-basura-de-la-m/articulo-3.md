@@ -1,0 +1,1 @@
+Artículo 3º—El costo de dicho servicio, estará dado por el costo efectivo del mismo más un 10% de utilidad para desarrollarlos y deberá ser pagado aunque los usuarios no demuestren interés en el servicio.
