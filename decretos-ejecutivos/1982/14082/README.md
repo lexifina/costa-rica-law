@@ -22,3 +22,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 7 | 1983-03-21 | Decreto Ejecutivo 14457 (1983-03-21) |
 | 8 | 1984-11-06 | Decreto Ejecutivo 15829 (1984-11-06) |
 | 9 | 1984-11-15 | Decreto Ejecutivo 15855 (1984-11-15) |
+| 10 | 1985-01-24 | Decreto Ejecutivo 15991 (1985-01-24) |
