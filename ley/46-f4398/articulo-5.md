@@ -1,0 +1,1 @@
+Art. 5°. -Se pagar n los portes de la correspondencia con arreglo a la Tarifa adjunta, la cual debe colocarse a la vista del público en todas las Estafetas; mas respecto a las cartas y encomiendas que conduzcan los correos diarios del interior, se continuar observando lo que está establecido.
