@@ -1,2 +1,0 @@
-Artículo 2°-La apena indicada se impondrá en cada caso, y será aplicable conjuntamente, tanto á los que suscriben la publicación en concepto de autores, como á los editores ó directores del periódico, folleto ó libro en que aparecieren, y á los dueños ó, en su defecto, arrendatarios ó administradores de los establecimientos tipográficos en que la impresión se hiciere.
-En caso de reincidencia, la pena será la de arresto en su grado máximo.
