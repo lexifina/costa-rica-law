@@ -5,3 +5,4 @@ ARTÍCULO 1: Apruébanse los siguientes Ingresos Ordinarios y Extraordinarios, t
 (Así modificado por el artículo 1 y 2 del Decreto Ejecutivo N° 30552 del 25 de junio de 2002)
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 30664 del 7 de agosto del 2002)
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 30672 del 21 de agosto del 2002)
+(Así reformado por el artículo 10 incisos 9 y 14 de la Ley N° 8424 del 30 de setiembre del 2004)
