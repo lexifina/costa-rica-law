@@ -1,0 +1,1 @@
+Artículo 65.—Ajustes contables por diferencias en inventarios. El Departamento Financiero analizará las solicitudes por ajuste y, si estas son procedentes, realizara los ajustes contables, emitirá un nuevo listado mecanizado e informara a la Unidad solicitante sobre las diferencias; así como sobre los procedimientos a seguir en cada caso particular.

@@ -1,0 +1,1 @@
+Artículo 62.—A los teléfonos celulares se les deberá grabar el número patrimonial asignado y mantener el control tanto físico como en registros, con base en el número de placa y el de serie electrónica, a manera de control cruzado.

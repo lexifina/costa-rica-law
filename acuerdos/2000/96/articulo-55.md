@@ -1,0 +1,3 @@
+Artículo 55.—Movilización. La movilización de las obras de arte estará a cargo del Departamento de Relaciones Públicas y Prensa, en coordinación con la Unidad de Bienes Muebles, siguiendo las condiciones que garanticen su seguridad.
+Para el traslado de las obras de arte debe confeccionarse la fórmula No 006 "Devolución y Traspaso de Bienes Muebles", con los nombres de las personas que intervienen en la acción.
+Para autorizar la salida al exterior de la obra debe llenarse la fórmula No 13 "Autorización para el Traslado Externo de Activos", e indicar el nombre de las personas que autorizan el traslado, el de las que la retiran y demás información; además se deberán incluir las firmas responsables y confeccionar un contrato con la institución prestataria.

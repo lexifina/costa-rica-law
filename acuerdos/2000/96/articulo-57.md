@@ -1,0 +1,1 @@
+Artículo 57.—Monto de la obra de arte. Las subcuentas anteriores, deben incluir el número de placa asignado en el asiento de diario, el cual conforma la cuenta individual respectiva, así como el código y el costo unitario de cada obra en moneda nacional.

@@ -1,0 +1,1 @@
+Artículo 16.—Responsabilidad por los fallantes. Cuando un servidor se retire de la Asamblea Legislativa sin haber firmado previamente los inventarios correspondientes, ante el olvido u omisión del jefe de la unidad o del departamento, la responsabilidad por los fallantes recaerá sobre el jefe del Departamento donde laboraba ese servidor.

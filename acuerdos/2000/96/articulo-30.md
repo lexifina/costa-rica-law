@@ -1,0 +1,1 @@
+Artículo 30.—Entrega física de la donación. Cuando se haga la entrega física de la donación deberán estar presentes: un representante de la Unidad de Control de Bienes Muebles, un miembro de la Unidad de Seguridad y Vigilancia y la persona que retira la donación.

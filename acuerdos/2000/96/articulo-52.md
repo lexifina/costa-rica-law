@@ -1,0 +1,1 @@
+Artículo 52.—Ubicación y localización. La ubicación y localización de las obras de arte corresponderá al Departamento de Relaciones Públicas y Prensa de la Asamblea Legislativa por medio de la orden de compra.

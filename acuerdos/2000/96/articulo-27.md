@@ -1,0 +1,1 @@
+Articulo 27.—Acuerdo de donación. Una vez que el Directorio Legislativo apruebe la donación, la Dirección Ejecutiva comunicará por escrito al jefe del Departamento de Proveeduría la lista de activos, el número de acuerdo y la sesión en que se aprobó. Posteriormente, el Departamento de Proveeduría procederá a confeccionar el acta de donación.

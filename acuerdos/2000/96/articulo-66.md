@@ -1,0 +1,1 @@
+Artículo 66.—Revaluación. El proceso de revaluación estará a cargo de la Unidad de Mantenimiento o del Departamento de Informática, según sea el caso, y lo comunicara al Departamento Financiero para efectos de su registro contable, utilizando la fórmula No 010 "Reportes de Reparaciones y Aumento de Vida Útil".

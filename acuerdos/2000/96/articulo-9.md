@@ -1,0 +1,1 @@
+Artículo 9°—Distribución de los bienes muebles a los departamentos solicitantes. Una vez revisados y plaqueados los bienes y tramitados los documentos, se distribuirán a los departamentos solicitantes. Sin la autorización del Directorio Legislativo. Dirección Ejecutiva o del Jefe del Departamento de Proveeduría, no se podrá cambiar el destino de ningún bien.

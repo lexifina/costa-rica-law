@@ -1,0 +1,4 @@
+Artículo 36.—Faltante de bienes muebles. Todo Jefe de Departamento responderá, ante el Director de División, por el fallante detectado en su inventario. Estos fallantes serán analizados por la Dirección de División, quien tendrá la posibilidad de valorar la conveniencia y oportunidad para los intereses de la institución, de investigar el hecho y así solicitarlo a la Dirección Ejecutiva.
+Los diputados y Jefes de los Departamentos que organizacionalmente se encuentren ubicados como staff del Director Ejecutivo, deberán responder ante éste por cualquier fallante detectado.
+Si hubiera responsabilidad por parte de algún funcionario, se procederá conforme lo establecen las normas y políticas institucionales en materia de sanciones disciplinarias o. en su defecto, se aplicará el articulo 19 de este Manual.
+En todo caso la Auditoría Interna y el Departamento de Proveeduría serán informados de estos fallantes de inventarios para lo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 38.—Control de los bienes muebles. Cada Departamento deberá llevar un control de los bienes muebles por: funcionario asignado, ubicación, código, número de placa y descripción completa, de acuerdo con el catálogo general de suministros, que para ese efecto suministrara la Unidad de Bienes Muebles.

@@ -1,0 +1,1 @@
+Artículo 34.—Responsabilidad de las jefaturas para el buen uso y custodia de los bienes muebles. Todo diputado o jefe es responsable, ante las autoridades superiores, del buen uso y custodia de los activos recibidos para el desempeño de sus funciones. Asimismo, deberá efectuar inventarios periódicos y uno general por lo menos una vez al año.

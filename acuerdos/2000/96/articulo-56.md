@@ -1,0 +1,1 @@
+Artículo 56.—Préstamo de las obras de arte a terceros. En los casos en que las obras de arte sean trasladadas en calidad de préstamo, se cumplirá con lo establecido en el apartado 13.5 del artículo 13 de este manual.

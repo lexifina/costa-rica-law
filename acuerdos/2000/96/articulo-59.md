@@ -1,0 +1,1 @@
+Artículo 59.—Control de la placa de la obra de arte. La Unidad de Bienes Muebles del Departamento de Proveeduría velara porque la placa asignada al bien. que lo identifica como propiedad de la Asamblea Legislativa, no sea retirada. En caso de que suceda, al recibir el trabajo ordenará que la placa sea colocada en forma inmediata.

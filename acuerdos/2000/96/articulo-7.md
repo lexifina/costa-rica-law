@@ -1,0 +1,6 @@
+Artículo 7°—Recepción de bienes muebles para establecimientos en construcción, remodelación. ampliación o en proceso de apertura.
+7.1. Los bienes muebles destinados a edificios en construcción, remodelaciones o ampliaciones, tales como mobiliario, sistemas de reloj, sonido y alarmas contra robo e incendio, entre otros, cuya instalación no esté relacionada con el costo original y forme parte del diseño del inmueble, serán solicitados por el Departamento de Proveeduría conforme lo siguiente:
+7.1.1. En caso de licitaciones públicas o privadas para incluir la cláusula en el cartel, con el objeto de que el oferente suministre, por un lado el valor de los bienes muebles, separado del valor propio de la obra.
+7.1.2. Recibido el bien. procederá a informar al Departamento Financiero, mediante el envío de la documentación respectiva, para que se realicen los registros pertinentes.
+Debe cumplirse con lo estipulado en el artículo 6.1.d) del presente manual.
+7.2. Asignación. Los bienes ubicados en edificios en forma general, tales como Castillo Azul, Plenario, cafetín de diputados, salones principales y secundarios, auditorios, pasillos, etc., serán asignados al Departamento de Servicios Generales.

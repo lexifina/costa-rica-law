@@ -1,0 +1,1 @@
+Artículo 61.—Todo registro que muestre el inventario debe estar respaldado por documentación que evidencie a quién se le ha asignado el activo y la recepción por parte de éste, así como el sustento de cada movimiento que se efectúe en los registros.

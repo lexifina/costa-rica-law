@@ -1,0 +1,4 @@
+Artículo 8°—Revisión técnica. El Departamento de Proveeduría, por medio de la Unidad de Bienes Muebles, solicitará al recibir los equipos y en caso de que se requiera, una revisión técnica de éstos, conforme lo faculte la Ley de Contratación Administrativa vigente.
+En caso de que se determinen daños, averias, fallantes y diferencias en las especificaciones según lo establecido en el cartel, se acatarán las siguientes disposiciones:
+a) Cuando se trate de mercaderías importadas por la Asamblea Legislativa, le corresponderá al Departamento Financiero iniciar los trámites del reclamo ante el Instituto Nacional de Seguros; para ello deberá ampararse en la póliza de cobertura vigente.
+b) En caso de mercaderías nacionales, será el Departamento de Proveeduría quien realice el reclamo, a fin de utilizar la garantía del bien. tomando además en cuenta lo estipulado en el articulo 61 del presente manual.

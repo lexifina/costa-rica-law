@@ -1,0 +1,2 @@
+Artículo 35.—Diferencias en inventario. La jefatura responsable de la custodia de los bienes informara a su superior jerárquico el resultado obtenido en el inventario y las diferencias serán analizadas por ambos.
+Además, solicitará a los Departamentos Financiero y de Proveeduría (Unidad de Bienes Muebles), los ajustes correspondientes mediante los documentos que para cada caso requiera, acompañados de su respectiva justificación.

@@ -1,0 +1,3 @@
+Artículo 24.—Concepto de bienes muebles en desuso. Son aquellos bienes que se consideran obsoletos, sin repuestos o descontinuados por sus fabricantes, previa calificación del encargado de mantenimiento de equipos de la Unidad de Mantenimiento o de la unidad encargada.
+24.1. Antes de proceder a dar de baja cualquier tipo de bienes, la Unidad de Mantenimiento deberá analizar la viabilidad de utilizar sus partes como repuestos.
+24.2. La Jefatura de Servicios Generales deberá autorizar la baja de los bienes declarados en desuso. Además confeccionara un acta de entrega, la cual debe estar firmada por el Director Ejecutivo, por parte de la Administración y como recibido por el beneficiario, según lo dispuesto en el Reglamento de Contratación Administrativa de la República.

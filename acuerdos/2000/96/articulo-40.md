@@ -1,0 +1,3 @@
+Artículo 40.—Inventario Permanente. Para mantener el inventario permanente, la Unidad de Bienes Muebles suministrará a cada departamento, unidad u oficina, un listado mecanizado de los movimientos realizados, con el afán de mantener un control adecuado.
+Los departamentos procederán a revisar la información y devolverla a la Unidad de Bienes Muebles con las observaciones sobre las inconsistencias encontradas a efecto de verificar sus registros.
+La Unidad de Bienes Muebles realizará anualmente un inventario general mediante un cronograma previamente definido. Para la toma del inventario general, esta Unidad se apoyara en el funcionario que la jefatura de cada departamento o unidad nombre para ese efecto.
