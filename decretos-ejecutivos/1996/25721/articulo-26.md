@@ -4,12 +4,13 @@ Articulo 26.-Crease la Comision Nacional de Certificacion Forestal, como organo 
 a) Fungir n en sus cargos por un año mas los actuales representantes de: una de las universidades, dos de los organismos cientificos internacionales y uno de las entidades cientificas de reconocida trayectoria en el campo de la investigacion forestal.
 b) Los demas representantes deberan ser nombrados en el periodo y por el plazo establecido en este articulo. En caso de renuncia, separacion del cargo, o cualquier otro supuesto, el nombramiento del sustituto se realizar por el periodo faltante, siguiendose el mismo procedimiento de terna establecido en este articulo.
 En caso de renuncia, separación del cargo, o cualquier otro supuesto, el nombramiento del sustituto se realizará por el periódo faltante, siguiéndose el mismo procedimiento de trena establecido en este artículo.
-(Así reformado el párrafo anterior mediante Artículo 1° del Decreto Ejecutivo N° 29147 del 13 de noviembre del 2000)
+(Así reformado mediante Artículo 1° del Decreto Ejecutivo N° 29147 del 13 de noviembre del 2000)
 La Comisión se dará su propio reglamento interno de funcionamiento. Los costos de operación de la Comisión, serán aportados por el MINAE.
 Las funciones de la Comisión serán:
-a) Definir los mecanismos de regulación y control propios del Sistema de Certificación y someterlos a la aprobación de la A.F.E.
-b) Recomendar a la A.EE. los principios, criterios e indicadores de sostenibilidad exigibles en los planes de manejo de bosque natural.
+a) Reconocer los sistemas de certificación internacionales o nacionales existentes o que se establezcan en el futuro como sistemas nacionales de certificación, así como a las entidades u organizaciones acreditadas ante éstos y sus respectivos sellos y logotipos y someterlos a la A.F.E. para su aprobación.
+b) Recomendar a la A.F.E. los principios, criterios e indicadores de sostenibilidad exigibles en los planes de manejo de bosque natural.
 c) Recomendar a la A.F.E. los candidatos a convertirse en certificadores.
 d) Establecer el reglamento interno de la Comisión.
-e) Solicitar a la A.F.E. la suspensión de los certificadores.
-f) Vigilar y supervisar las labores de los certificadores autorizados.
+f) Solicitar a la A.F.E. la suspensión de los certificadores.
+g) Vigilar y supervisar las labores de los certificadores autorizados.
+(Así reformado por Artículo 1° del Decreto Ejecutivo N° 30310 del 17 de abril del 2002)
