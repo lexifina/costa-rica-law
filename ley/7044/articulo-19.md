@@ -1,11 +1,4 @@
-ARTICULO 19.- Los funcionarios y el personal docente de la
-institución, no costarricenses o residentes en Costa Rica, gozarán de las
-mismas prerrogativas que el Gobierno de Costa Rica reconoce o que en el
-futuro reconozca, a la misiones internacionales, conforme a la Convención
-sobre Relaciones Diplomáticas y Protocolo Facultativo suscrita en Viena
-el 13 de abril de 1961, los decretos y la costumbre internacional,
-excepto en cuanto a la importación de vehículos. En lo que concierne al
-menaje de casa, sólo tendrán derecho a la exoneración de todo tributo y
-sobretasas por una sola vez.
-(Así reformado por el artículo 54 de la ley Nº 7293 de 31 de marzo
-de 1992).
+Artículo 19.—El rector, los directores y el personal docente de la Institución, no costarricenses o residentes en Costa Rica, estarán exentos del pago de impuestos, tasas y contribuciones sobre la importación de equipaje, menaje de casa, vehículos y demás artículos de uso personal y doméstico, así como de todos los impuestos de carácter nacional.
+En el caso de los vehículos, la exoneración se aplicará en intervalos de cuatro años, a partir de la fecha en que sea otorgada por primera vez. La disposición y venta de los vehículos en Costa Rica, se autorizará pasados cuatro años desde la fecha de inscripción.
+Los funcionarios que por algún motivo terminen su relación laboral con la Institución y cuyo vehículo no haya cumplido los cuatro años de haber sido inscrito, deberán proceder a liquidar los impuestos de importación correspondientes, de acuerdo con el tiempo transcurrido, según la legislación vigente.
+(Así reformado por el artículo único de la Ley N° 8120 de 3 de agosto del 2001)
