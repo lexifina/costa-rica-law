@@ -1,0 +1,2 @@
+El Ministerio de Planificación Nacional y Política Económica
+Artículo 11.-Corresponderá al Ministerio de Planificación Nacional y Política Económica la responsabilidad de elaborar el Plan Nacional de Desarrollo, o el Programa de Gobierl1o en su caso, e implantar las normas de asesoría, información y coordinación necesarias que requiera el Subsistema para su adecuado funcionamiento, de acuerdo a las facultades que la Ley de Planificación N° 5525 del 2 de mayo de 1974, le concedan a dicho Ministerio, así como fiscalizar el funcionamiento del mismo Sistema.

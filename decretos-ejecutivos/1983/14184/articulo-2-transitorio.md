@@ -1,0 +1,2 @@
+Transitorio II.-En el plazo de treinta días a partir de la publicación de este decreto, el Poder Ejecutivo procederá a modificar los decretos ejecutivos sobre Planificación Sectorial existentes, a fin de adecuarlos al presente decreto, el cual a su vez deroga el Decreto Ejecutivo N° 9644-P-OP del 20 de febrero de 1979.
+Dado en la Presidencia de la República.-San José, a los ocho días del mes de enero de mil novecientos ochenta y tres.

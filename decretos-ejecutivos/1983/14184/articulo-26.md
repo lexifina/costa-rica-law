@@ -1,0 +1,3 @@
+Los Comités Técnicos Sectoriales e Intersectoriales
+Articulo 26.-Habrá un Comité Técnico Sectorial en cada Sector de actividad que estará integrado 'por el Director de la respectiva Secretaria Ejecutiva de Planificación Sectorial, quien lo presidirá y por los jefes de los departamentos o unidades de planificación de las instituciones y de los programas representados en el respectivo Consejo Nacional Sectorial.
+Les corresponderá a dichos Comités coordinar y promover el proceso de planificación entre las distintas instituciones involucradas en las actividades del sector, en apoyo de la Secretaria Ejecutiva, del Consejo Nacional Sectorial y del Ministro Sectorial.

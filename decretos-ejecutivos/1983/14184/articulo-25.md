@@ -1,0 +1,1 @@
+Articulo 25.-El Director de cada Secretaria Ejecutiva actuará como colaborador directo del Ministro Sectorial y actuará asimismo como Secretario Ejecutivo del respectivo Consejo Nacional Sectorial, participando en sus sesiones con derecho a voz.
