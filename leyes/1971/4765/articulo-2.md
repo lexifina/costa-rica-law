@@ -1,0 +1,3 @@
+Artículo 2º.- Agréguese un inciso e) al artículo 96 de la Constitución Política, que se leerá así:
+"e) El Estado contribuirá a la financiación previa de los gastos que demanden las actividades electorales de los partidos políticos, dentro de los montos de pago fijados anteriormente y mediante los procedimientos que con tal objeto determina la ley. Esta ley deberá ser aprobada por dos tercios de los votos de los Diputados que forman la Asamblea Legislativa".
+(La Sala Constitucional mediante resolución N° 980-91 del 24 de mayo de 1991, anuló del artículo 96 de la Constitución Política del 07 de noviembre de 1949, el inciso e) adicionado mediante este artículo.)
