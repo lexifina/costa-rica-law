@@ -1,0 +1,2 @@
+Artículo 13.—El Tribunal estará formado por un presidente, un vicepresidente, un secretario y dos vocales. El Tribunal, de su propio seno, en la primera sesión, eligirá los miembros que ocuparán dichos cargos por el término de dos años, mediante votación secreta.
+En caso de ausencia del presidente a una sesión y que no se trate de una vacante temporal o definitiva, éste será reemplazado por el vicepresidente, quien tendrá iguales atribuciones. En caso de ausencia de ambos o del secretario los sustituirán los vocales en el orden de su nombramiento.

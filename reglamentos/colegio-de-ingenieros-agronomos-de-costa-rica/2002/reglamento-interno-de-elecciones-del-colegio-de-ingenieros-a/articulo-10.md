@@ -1,0 +1,1 @@
+Artículo 10.—El Tribunal celebrará sesiones ordinarias una vez al mes durante los meses de octubre, noviembre y diciembre y una vez por semana durante el mes de enero y se reunirá además, en forma extraordinaria, cada vez que sea convocado por su presidente, ya sea por determinación propia o cuando lo soliciten por escrito al menos tres de sus miembros.

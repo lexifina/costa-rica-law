@@ -1,0 +1,2 @@
+Artículo 23.—El colegiado que por impedimento físico no pueda emitir su voto en la forma que dispone el artículo anterior, podrá hacerlo públicamente. En tal caso, expresará su decisión al presidente del Tribunal de Elecciones quien votará por él, siguiendo la voluntad del elector.
+No se permitirá emitir el voto a la persona que se presente a votar en notorio estado de embriaguez o bajo los efectos de drogas enervantes.

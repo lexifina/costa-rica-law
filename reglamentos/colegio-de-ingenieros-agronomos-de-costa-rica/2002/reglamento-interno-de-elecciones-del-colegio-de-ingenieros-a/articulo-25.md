@@ -1,0 +1,1 @@
+Artículo 25.—No obstante lo indicado en el artículo anterior, no será declarada nula ninguna boleta que presente manchas, ni por otros defectos que indiquen que se tuvo dificultad al utilizarla, siempre que sea posible determinar en forma cierta la voluntad del votante.

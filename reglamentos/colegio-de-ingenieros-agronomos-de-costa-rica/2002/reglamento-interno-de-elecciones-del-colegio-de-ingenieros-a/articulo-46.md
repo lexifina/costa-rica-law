@@ -1,0 +1,1 @@
+Artículo 46.—Si llegado el proceso del último puesto en elección y no se hubiere electo ningún miembro afiliado en los puestos anteriores o no hubieren candidaturas o postulaciones de éstos para dicho puesto, la elección se hará, entre los miembros ordinarios inscritos o que se postulen para este puesto.

@@ -1,0 +1,2 @@
+Artículo 33.—La inscripción previa de candidaturas a los puestos en elección, podrá ser presentada en forma individual o por medio de papeleta. Sin embargo la votación se realizará en forma secreta e individual para cada puesto. Las candidaturas para el puesto de fiscal del colegio, deberán presentarse separadamente de cualquier papeleta.
+La documentación deberá ser entregada en la sede central del colegio y, para el recibo de ésta, el Tribunal contará con el auxilio de la administración del colegio, la que deberá consignar en una copia el recibo de la misma.

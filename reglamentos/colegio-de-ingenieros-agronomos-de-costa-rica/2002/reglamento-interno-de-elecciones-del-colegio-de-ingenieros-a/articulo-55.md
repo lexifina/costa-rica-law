@@ -1,0 +1,1 @@
+Artículo 55.—Deróguese el Reglamento de Elecciones de la Asamblea General del Colegio de Ingenieros Agrónomos, aprobado por la asamblea general en la sesión N° 95, celebrada el 28 de enero de 1989 y su reforma aprobada en la sesión N° 98, del 26 de enero de 1991, así como toda otra disposición interna que se anteponga a este reglamento.

@@ -1,0 +1,2 @@
+Artículo 4º—La elección de los miembros de la junta directiva y del fiscal del colegio, se realizará en la sede central del colegio durante la asamblea general ordinaria que establece el artículo 29 de la Ley Orgánica del Colegio de Ingenieros Agrónomos, N° 7221.
+También podrá efectuarse en una asamblea general extraordinaria cuando por renuncia o por cualquier otra causa, fuere necesario llenar las vacantes que se produjeren.

@@ -1,0 +1,1 @@
+Artículo 40.—Si un candidato no resultara electo en el puesto en que participó y fuera postulado como candidato para alguno de los puestos siguientes en elección, únicamente dispondrá de un máximo de tres minutos para referirse a la asamblea, si así lo deseara.

@@ -1,0 +1,3 @@
+Artículo 9º—Perderá su condición de miembro del Tribunal el que faltare a tres sesiones consecutivas o cinco alternas sin justificación, o se encuentre en alguna de las condiciones indicadas en el artículo anterior, con la excepción establecida en el inciso b).
+Cuando se produzca una vacante por cualquier causa, la junta directiva convocará y acreditará al suplente respectivo, según su orden de elección, para que sustituya al miembro en cuestión por el resto del período legal.
+También convocará la junta directiva a los suplentes para sustituir las ausencias temporales de los miembros del Tribunal, o cuando alguno de éstos por motivo legal o moral de impedimento respecto a determinado caso, tenga que separarse hasta que se resuelva el mismo.

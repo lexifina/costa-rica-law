@@ -1,0 +1,3 @@
+Artículo 54.—Los colegiados que hayan sido electos, serán juramentados e instalados por el presidente del colegio o quien actúe en su lugar en la propia asamblea general en que fueron elegidos.
+En caso de que alguna de las personas elegidas para ocupar alguno de los puestos sometidos a elección no estuviere presente al momento de la juramentación e instalación, se tendrá por renunciada su elección y se someterá nuevamente el puesto a elección por parte de la asamblea. En esta elección no se aceptarán postulaciones de quienes hubieren resultado electos en algún puesto.
+La publicación de la forma en que queda integrada la junta directiva, se hará en el Diario Oficial dentro de los quince días siguientes a su elección.

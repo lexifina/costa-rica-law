@@ -1,0 +1,1 @@
+Artículo 38.—El Tribunal de Elecciones podrá, si lo considera conveniente y oportuno, convocar a un acto oficial para la presentación pública de los candidatos inscritos dentro del plazo indicado en el artículo 31 de este reglamento, acto que hará dentro de los diez días naturales previos a la fecha de las votaciones.

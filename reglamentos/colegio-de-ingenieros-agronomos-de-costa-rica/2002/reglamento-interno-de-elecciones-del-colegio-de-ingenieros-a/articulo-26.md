@@ -1,0 +1,1 @@
+Artículo 26.—Una vez cerrada la votación para cada puesto en elección, el Tribunal de Elecciones procederá de inmediato al escrutinio de los votos, separando y contando cuidadosamente los votos asignados a cada candidato, así como los nulos y los emitidos en blanco.

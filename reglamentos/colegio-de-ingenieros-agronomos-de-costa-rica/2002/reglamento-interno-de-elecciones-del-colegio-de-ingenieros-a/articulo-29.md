@@ -1,0 +1,1 @@
+Artículo 29.—Si una vez escrutados los votos se presentara un empate entre dos o más candidatos para un mismo puesto en elección de junta directiva o de fiscal, se procederá a repetir la elección entre los candidatos que hayan obtenido mayor cantidad de votos, de acuerdo con lo establecido en este reglamento. De persistir el empate, se declarará electo al candidato de mayor edad.

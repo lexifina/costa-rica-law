@@ -1,0 +1,1 @@
+Artículo 42.—Si alguno o algunos de los candidatos inscritos no asistiere a la asamblea general en la que se hará la elección o se ausentare durante el proceso de elección, se tendrá por desistida su postulación, quedando excluida su candidatura. Además no se podrá postular a una persona ausente.

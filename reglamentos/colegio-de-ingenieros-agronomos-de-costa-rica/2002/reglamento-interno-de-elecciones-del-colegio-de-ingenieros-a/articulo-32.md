@@ -1,0 +1,1 @@
+Artículo 32.—No obstante lo indicado en el artículo anterior, también se permitirá la inscripción de candidaturas con posterioridad a la fecha indicada en dicho artículo, así como la postulación de candidatos en la propia asamblea general en el momento en que se procederá a efectuar la elección de cada puesto.
