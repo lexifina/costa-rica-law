@@ -1,0 +1,7 @@
+ARTÍCULO V
+Trato Nacional y Cláusula de Nación más Favorecida
+1.-Cada Parte Contratante otorgará, con arreglo a su legislación nacional, a las inversiones de los inversionistas de la otra Parte Contratante, efectuadas en su territorio, un trato no menos favorable que aquel otorgado a las inversiones de sus propios inversionistas.
+2.-Cada Parte Contratante otorgará a las inversiones de los inversionistas de la otra Parte Contratante efectuadas en su territorio, un trato no menos favorable que aquel otorgado a las inversiones de los inversionistas de un tercer Estado.
+3.-Entre el trato nacional y el trato de nación más favorecida, cada Parte Contratante concederá el trato que sea más favorable para la inversión del inversionista.
+4.-El tratamiento concedido en virtud de este artículo, no se extenderá a los privilegios que una Parte Contratante pueda conceder a los inversionistas de un tercer Estado, en virtud de su asociación o participación, actual o futura, en una zona de libre comercio, unión aduanera, mercado común, unión económica y monetaria u otras instituciones de integración económica similar.
+5.-El tratamiento concedido con arreglo al presente artículo no se extenderá a deducciones, exenciones fiscales ni a otros privilegios análogos otorgados por cualquiera de las Partes Contratantes a la inversión de los inversionistas de terceros países en virtud de un acuerdo para evitar la doble imposición o de cualquier otro acuerdo en materia de tributación.

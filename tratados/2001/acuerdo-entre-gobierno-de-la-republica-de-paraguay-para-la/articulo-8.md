@@ -1,0 +1,4 @@
+ARTÍCULO VIII
+Indemnización por Pérdidas
+1.- Los inversionistas de una de las Partes Contratantes que sufran pérdidas en sus inversiones establecidas en el territorio de la otra Parte Contratante a consecuencia de guerra u otro conflicto armado, revolución, estado de emergencia nacional, rebelión, insurrección, motín o cualquier otro acontecimiento de conmoción interior similar, se les concederá, a título de restitución, indemnización, compensación u otro resarcimiento, un tratamiento no menos favorable que aquel que la última Parte Contratante concede a las inversiones de sus propios inversionistas o a las inversiones de los inversionistas de cualquier tercer Estado, el que sea más favorable a la inversión del inversionista afectado.
+2.- El pago que reciban los inversionistas, de ser posible, deberá ser en moneda convertible y libremente transferible.
