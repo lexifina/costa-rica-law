@@ -1,0 +1,1 @@
+3°—Ninguna empresa concesionaria o permisionaria, podrá discriminar al consumidor en el llenado del cilindro, independientemente de quien brindaba el servicio con anterioridad, debiendo asegurarle a los consumidores el llenado de todo tipo de cilindros.

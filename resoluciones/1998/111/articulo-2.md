@@ -1,0 +1,1 @@
+2°—De conformidad con el artículo 22 de la Ley Reguladora de los Servicios Públicos, para evitar la interrupción de la prestación de este servicio, se ordena a RECOPE asumir directamente la prestación del mismo, en aquellos sitios donde se presenten problemas de abastecimiento.
