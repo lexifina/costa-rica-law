@@ -1,0 +1,1 @@
+Transitorio único.—Los médicos que en el momento de publicarse el presente decreto ejecutivo estén efectuando la residencia de geriatría, solamente deberán cumplir un año de residencia en dicha especialidad de conformidad con el inciso b) original del artículo 28 del Reglamento de Especialidades Médicas.
