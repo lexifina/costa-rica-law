@@ -1,0 +1,1 @@
+Articulo 8°—La empresa o persona física que ofrezca o venda los servicios de karaoke o similar a los patentados o de negocios de éste cantón, deberá contar con la licencia municipal al día, según lo establece el articulo 79 del Código Municipal.

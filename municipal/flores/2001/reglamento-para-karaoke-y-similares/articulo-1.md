@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE FLORES
+La Municipalidad de Flores en concordancia con lo que le confiere el Código Municipal en su articulo 4°. se permite aprobar el siguiente reglamento que normara las actividades denominadas karaokes y similares.
+Justificación: El cantón de Flores ha visto cómo han variado las formas de diversión en bares y salones. Es así como ha llegado a ellos los llamados karaokes. Esta actividad está proliferando en cantinas, salones de baile y hasta en restaurantes: en la actualidad se realizan sin que exista una regulación de horarios ni de niveles de ruido, lo que ocasiona que los vecinos se quejen constantemente por los inconvenientes que causan.
+El objeto de este reglamento es regular estas actividades y cualquier otra que se asemeje con el fin de que su práctica no violente el derecho de descanso que tienen los ciudadanos además de hacer respetar las leyes de las cuales se desprende.
+Articulo 1°—Se denomina "karaoke" al sistema de sonido amplificado utilizado como forma de diversión donde las personas pueden cantar con acompañamiento de pistas musicales, o cualquier tipo de música que se realice en vivo como atractivo del local comercial.

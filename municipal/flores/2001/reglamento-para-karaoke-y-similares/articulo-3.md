@@ -1,0 +1,1 @@
+Articulo 3°—Las solicitudes de permiso deberán presentarse con no menos de 10 días de anticipación a la fecha de realización, para que sea conocido por el Concejo Municipal, quien en definitiva aprobara o denegará el permiso solicitado en concordancia con lo que establece los artículos 80 y 81 del Código Municipal.

@@ -1,0 +1,1 @@
+Articulo 10.—El local comercial que reúna los requisitos establecidos en los artículos 4° y 6° de este reglamento podrá optar por un permiso una vez al mes para la realización de éste tipo de actividades.
