@@ -1,0 +1,1 @@
+Artículo 21.—Autorízase al SINAES para suscribir convenios de cooperación, o de prestación remunerada de servicios técnico-académicos, con otros entes y órganos públicos y privados, así como para formar parte de agencias internacionales de acreditación.

@@ -1,0 +1,1 @@
+Artículo 18.—El Consejo Nacional de Acreditación del SINAES tomará en cuenta los resultados de la autoevaluación y de la verificación realizadas por el personal de apoyo técnico y profesional. La acreditación deberá conjugar integralmente todos los componentes del proceso, para la valoración y el pronunciamiento finales.

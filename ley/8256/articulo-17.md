@@ -1,0 +1,1 @@
+Artículo 17.—El SINAES deberá suministrar al público, en forma clara y oportuna, los resultados de las acreditaciones, así como las metodologías empleadas. La acreditación de un plan, carrera o programa tendrá una vigencia de cuatro años. Una vez vencido el período, deberá solicitarse su revisión y reacreditación.

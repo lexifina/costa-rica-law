@@ -1,0 +1,2 @@
+Artículo 2º—Para los efectos de esta Ley, la acreditación tendrá como propósito identificar, con carácter oficial, las carreras y los programas universitarios que cumplan los requisitos de calidad que establezca el SINAES, para mejorar con ello la calidad de los programas y las carreras ofrecidas por las instituciones universitarias públicas y privadas, y garantizar públicamente la calidad de estos.
+El SINAES mantendrá un banco público de información sobre las carreras y los programas acreditados, así como de los servicios que se brinden en cada carrera.
