@@ -15,3 +15,4 @@ Adopta Normas Internacionales Contabilidad 7 8 9 10 y 11 (Reforma)
 | --- | --- | --- |
 | 1 | 1999-04-13 | la propia norma |
 | 2 | 1999-09-21 | Reglamento 18 (1999-09-21) |
+| 3 | 1999-09-21 | Ley 8 |
