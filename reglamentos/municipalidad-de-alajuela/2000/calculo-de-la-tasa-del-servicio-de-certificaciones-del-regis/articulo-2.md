@@ -1,0 +1,6 @@
+2. Descripción del Servicio de Certificaciones del Registro Público
+El servicio de certificaciones del Registro Publico extendidas por la Municipalidad de Alajuela se ofrece durante las horas hábiles en que la Institución permanece abierta atendiendo al público que se apersona.
+El Servicio se presta por parle de tres funcionarios pertenecientes al Departamento de topografía y Catastro, de los cuales uno labora en esta actividad durante ocho horas diarias, siendo asistido por dos compañeros en diferentes momentos de la jornada y con un máximo de cuatro horas diarias cada uno. .
+El servicio se da utilizando Internet en conexión directa con el Registro Público, a través de la línea telefónica N° 441-0873, la cual esta dedicada exclusivamente a la prestación de este servicio.
+Al cliente se le facilita un entero donde se imprimen los datos de los bienes muebles e inmuebles que solicita previamente, aportando los timbres de ley y firmándose la certificación por personal autorizado para ello mediante convenio con el Registro Público.
+La falla de actualización de la tasa de este servicio, esta produciendo perdidas a la Municipalidad y desmejora la calidad, por lo que resulta urgente fijar una nueva tasa.
