@@ -1,0 +1,2 @@
+ARTÍCULO 9
+La distancia hasta el lugar de peligro a que deberán colocarse las señales, deberá ser determinada de tal manera que asegure su mayor eficiencia, tanto de día como de noche, teniendo en cuenta las particulares condiciones del camino y de la circulación; entendiéndose que tal distancia no deberá ser inferior a 90 cm. Ni superior a 225 m., salvo que circunstancias especiales impongan otras distancias.
