@@ -1,0 +1,1 @@
+Art. 3. El que de hecho y por un golpe de sedición, llegase á apoderarse del mando Supremo; será traidor al Estado, y el que dé muerte, hace un bien á su patria, será declarado benemérito, y recibirá en premio cinco mil pesos.
