@@ -1,0 +1,2 @@
+Art 2° Se aprueba también el presupuesto general de gastos para el presente año económico, con inclusión de la partida de quince mil pesos para invertirse en caminos, conforme, la exposición de 3 de noviembre próximo pasado, exceptuando, no obstante, el aumento de sueldos que se propone a algunos empleados, que comprenden el preindicado presupuesto, salvo el de los aprendices de banda de la República.
+Único. El Supremo Poder Ejecutivo presentará en las próximas sesiones ordinarias un proyecto de Tarifa General de sueldos.
