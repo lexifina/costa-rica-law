@@ -1,1 +1,1 @@
-Artículo 9°.-La Contaduría Mayor, por medio de sus empleados y del Inspector que para el caso se nombre, ejercer la vigilancia y control necesarios para la correcta percepción del impuesto creado.
+Artículo 9°.-(Derogado por el artículo 13 de la ley N° 2547 del 17 de febrero de 1960, “Establece impuesto sobre el consumo de cigarrillos nacionales y extranjeros elaborados a máquina”)

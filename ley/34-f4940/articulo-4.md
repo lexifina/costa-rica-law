@@ -1,1 +1,1 @@
-Artículo 4°.-El marbete a que se refiere el artículo 2° llevará la siguiente leyenda: "Costa Rica Consumo" e indicará en cifras el valor del impuesto.
+Artículo 4°.-(Derogado por el artículo 13 de la ley N° 2547 del 17 de febrero de 1960, “Establece impuesto sobre el consumo de cigarrillos nacionales y extranjeros elaborados a máquina”)

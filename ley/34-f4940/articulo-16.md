@@ -1,1 +1,1 @@
-Artículo 16.-Cada paquete de cigarrillos elaborados en el país a máquina, deberá tener impreso el número de piezas que contiene.
+Artículo 16.- (Derogado por el artículo 13 de la ley N° 2547 del 17 de febrero de 1960, “Establece impuesto sobre el consumo de cigarrillos nacionales y extranjeros elaborados a máquina”)
