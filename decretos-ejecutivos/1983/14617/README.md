@@ -15,3 +15,4 @@ Reglamento a la Ley de Consolidación de Impuestos Selectivos de Consumo
 | --- | --- | --- |
 | 1 | 1983-07-22 | la propia norma |
 | 2 | 1989-09-11 | Decreto Ejecutivo 19222 (1989-09-11) |
+| 3 | 1992-08-28 | Decreto Ejecutivo 21561 (1992-08-28) |

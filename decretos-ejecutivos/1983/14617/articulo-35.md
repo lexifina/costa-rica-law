@@ -1,1 +1,1 @@
-Artículo 35.—Orden de reapertura del negocio. La orden de reapertura del negocio procederá únicamente cuando el contribuyente se haya puesto a derecho, lo que debe constar en resolución dictada por la Administración Tributaria.
+Artículo 35.—DEROGADO por el artículo 11 del Decreto Ejecutivo N° 21561 de 28 de agosto de 1992.
