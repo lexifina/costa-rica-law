@@ -13,3 +13,4 @@ BCAC Sobre Tratamiento Contable y Administrativo de Diferencias CajaDeroga los a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-15 | la propia norma |
+| 2 | 2001-12-30 | Ley 7 |
