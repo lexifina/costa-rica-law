@@ -1,0 +1,1 @@
+Artículo 31.—Personas físicas. Las personas físicas, en su calidad de instaladores independientes de sistemas de seguridad electrónica, prestarán el servicio de asesoramiento y mantenimiento de sistemas de seguridad electrónica para la protección de personas físicas o jurídicas y la instalación de estos sistemas en bienes inmuebles.

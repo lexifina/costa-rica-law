@@ -1,0 +1,1 @@
+Artículo 33.—Autorización. A fin de obtener la autorización como persona física o jurídica para prestar el servicio de seguridad electrónica, deberán cumplirse los requisitos establecidos en la presente Ley, salvo el inciso c) del artículo 13. Los instaladores del servicio deberán cumplir los requisitos establecidos en los incisos a), b) y c) del artículo 14 de esta Ley.

@@ -1,0 +1,1 @@
+Artículo 40.—Prohibición. Prohíbese absolutamente utilizar cualquier tipo de perros en eventos que impliquen concentración masiva de personas, con el fin de que estos custodien a personas o bienes. Asimismo, se prohíbe absolutamente el uso de armas de fuego en los citados eventos.

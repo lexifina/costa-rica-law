@@ -1,0 +1,2 @@
+Artículo 19.—Límite del crecimiento del número de agentes. Las
+personas físicas y jurídicas autorizadas para prestar los servicios descritos en el artículo 2º de esta Ley, individualmente consideradas y aunque estén autorizadas para prestar varios tipos de servicios, no podrán mantener un número de agentes de seguridad superior al diez por ciento (10%) del total de los miembros de la Fuerza Pública por tipo de servicio, calculado según las estimaciones presupuestarias de cada año.

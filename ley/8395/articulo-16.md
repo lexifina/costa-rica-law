@@ -1,0 +1,7 @@
+Artículo 16.—Deberes, obligaciones y atribuciones de los agentes
+de seguridad. Las personas físicas que desempeñen funciones de agentes de seguridad, estarán obligadas a lo siguiente:
+a) Portar y utilizar, en caso necesario, las armas calificadas como permitidas, de conformidad con el ordenamiento jurídico vigente.
+b) Auxiliar, de ser posible, a las fuerzas de policía, cuando medie el requerimiento expreso de la autoridad competente. Este auxilio no deberá supeditarse al citado requerimiento cuando, por la naturaleza de la situación, se esté ante una emergencia o estado de necesidad.
+c) Denunciar ante la autoridad judicial correspondiente, la comisión de los hechos punibles que conozcan mientras prestan el servicio, aunque hayan sucedido fuera del lugar o sector donde se desempeñan.d) Vestir los uniformes y distintivos reglamentarios autorizados por cada empresa de seguridad para identificar a sus agentes y diferenciarlos. La Dirección podrá eximir de esta obligación cuando la función que se cumpla así lo requiera.
+e) Portar, en lugar visible, la credencial que los identifica como miembros del servicio de seguridad privado; en ella, deberá consignarse el nombre completo, el cargo ostentado y una fotografía tamaño pasaporte. La Dirección podrá eximirlos de esta obligación cuando la función que se cumpla así lo requiera.
+f) Inscribirse en el registro de agentes de seguridad privados.
