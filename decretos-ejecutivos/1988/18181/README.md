@@ -14,3 +14,4 @@ Reglamento de Pago Anualidades Adeudadas en Administración Pública
 | --- | --- | --- |
 | 1 | 1988-06-23 | la propia norma |
 | 2 | 1988-06-23 | Decreto Ejecutivo 22781 (1993-10-26) |
+| 3 | 2001-07-03 | SINALEVI (sin norma nombrada) |
