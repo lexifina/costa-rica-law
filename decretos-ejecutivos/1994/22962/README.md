@@ -14,3 +14,4 @@ Declara Refugio Nacional de Vida Silvestre al corredor fronterizo conformado por
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-03-09 | la propia norma |
+| 2 | 1994-04-20 | Decreto Ejecutivo 23248 (1994-04-20) |
