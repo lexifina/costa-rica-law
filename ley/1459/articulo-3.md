@@ -1,0 +1,1 @@
+Artículo 3°.- Facúltase a los Ministerios de Obras Públicas y de Economía y Hacienda para aplicar la partida del inciso 51), artículo 660 de la ley de Presupuesto Ordinario de la República para 1952, total o parcialmente, al compra del terreno a que se refiere el artículo anterior

@@ -1,0 +1,4 @@
+N°1459
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+Decreta:
+Artículo 1°.- Se autoriza a la Junta de Educación del distrito Los Ángeles, cantón central de Cartago, para vender, permutar, gravar o arrendar, por precio no inferior al que en virtud de avalúo pericial, establezca la Tributación Directa, los siguientes inmuebles de su propiedad, situados en el citado distrito e inscritos que el Registro Público, partido de Cartago, así: tomo 1393, folio 429, número 47.268, asiento 1° y tomo 689, folio 361, número 8.78Q, asiento 13. Siendo ambas fincas, solares, correspondiendo en la segunda únicamente un derecho de ciento veinticinco colones (¢125.00), proporcional a mil colones (¢1,000.00) en que se estimó toda la finca, y hallándose ubicado en tal finca y derecho referido, un edificio destinado por la Junta en aquel derecho, ya localizado.
