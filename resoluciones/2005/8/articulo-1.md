@@ -1,0 +1,17 @@
+MINISTERIO DE HACIENDA
+Nº 008.—Despacho de los Ministros de Hacienda, Agricultura y Ganadería y de Economía, Industria y Comercio.—San José, a las ocho horas del veintiocho de enero del año dos mil cinco.
+Decreto Ejecutivo Nº 31939-MAG-H-MEIC.
+Resultando:
+1°—Que el artículo 5 de la Ley N° 7293 del 31 de marzo de 1992, publicada en La Gaceta N° 66 del 3 de abril de 1992, dispone la exoneración de todo tributo y sobretasa, para la importación de maquinaria, equipo, e insumos para la actividad agropecuaria, así como, las mercancías que requiera la actividad pesquera, excepto la pesca deportiva.
+2°—Que es voluntad del Estado el promover en forma expedita el acceso por parte de los productores agropecuarios y avícolas a la maquinaria, equipo y a todos aquellos insumos necesarios para sus actividades productivas, de tal manera que puedan ser adquiridos a un menor costo y contribuir con ello a una mayor competitividad de dichos sectores productivos.
+3°—Que la exoneración prevista en el artículo 5º de la precitada ley es de tipo objetiva, entendiéndose como tal que el beneficio está orientado a las mercancías propiamente dichas y no al importador, sea éste persona física o jurídica.
+4°—Que resulta de interés público y conveniencia nacional la finalidad de promover las exportaciones, reduciendo al máximo los costos a los que deben enfrentarse los diversos sectores de nuestra producción, exonerándose de los impuestos respectivos, a ciertas mercancías las cuales serán finalmente utilizadas en la exportación de nuestros productos hacia otras latitudes.
+Considerando:
+I.—Que las cajas de cartón para el empaque de los productos agrícolas de exportación son un insumo indispensable para la protección, manipulación y transporte de los mismos para los mercados internacionales. Por sus características y naturaleza estos productos requieren del empaque para llegar a su destino final en las óptimas condiciones.
+En este sentido y de conformidad con las exigencias del mercado internacional es que se hace necesario mejorar la competitividad de las exportaciones costarricenses, teniendo en cuenta que el incremento de las exportaciones del sector agrícola en el último año ha sido de un 14.95% y la incidencia es de 1291 millones de dólares generados en divisas de exportación.
+II.—Que el artículo 6 del Decreto Ejecutivo Nº 31939-MAG-HMEIC, del 20 de agosto del año 2004, publicado en La Gaceta Nº 195 del 6 de octubre del 2004, establece la facultad de ampliación de las listas señaladas en los artículos 4 y 5 de dicho Decreto, mediante la emisión de resolución formal por parte de los ministros competentes, previa recomendación de la Comisión creada al efecto.
+III.—Que la Comisión Técnica de Exoneración de Insumos Agropecuarios, en sesión Nº 03-05, celebrada el día 27 de enero del año 2005, acordó en firme recomendar la incorporación y ampliación de la lista del artículo 4 del Decreto de referencia, respecto de la mercancía que se establece en la parte dispositiva de la presente resolución. Por tanto,
+LOS MINISTROS DE HACIENDA, AGRICULTURA Y GANADERÍA
+Y DE ECONOMÍA, INDUSTRIA Y COMERCIO, RESUELVEN:
+1º—Autorizar la ampliación de la lista señalada en el artículo 4 del Decreto Ejecutivo Nº 31939-MAG-H-MEIC del 20 de agosto del dos mil cuatro, publicado en La Gaceta N° 195 del 6 de octubre del 2004, adicionándose la siguiente mercancía:
+“Cajas de cartón para el empaque de productos agrícolas frescos”.
