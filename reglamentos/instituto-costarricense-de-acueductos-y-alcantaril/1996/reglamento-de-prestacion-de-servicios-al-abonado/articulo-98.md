@@ -1,2 +1,1 @@
-Artículo 98.—Cuando se compruebe mediante prueba volumétrica. que el hidrómetro presenta sobre registro o cuando no se pueda determinar el funcionamiento del mismo, no se cobrarán los consumos facturados en exceso, de su promedio normal de consumo.
-(Modificada su numeración en sesión ordinaria N° 176 del 17 de julio de 1997, que adicionó los artículo 95 y 96, ordenando correr la numeración, por lo que este artículo pasó del N° 96 al N° 98).
+Artículo 98.—(DEROGADO mediante sesión ordinaria N° 324 del 10 de setiembre de 2002.)

@@ -1,4 +1,3 @@
 CAPITULO VII
 Modificaciones a la facturación
-Artículo 94.—Tratándose de servicios con tarifas Domiciliar, y en el caso de tarifa Ordinaria con consumos promedios inferiores a los 100 m3, a solicitud de parte o de oficio comunicándole al cliente los montos originales de las facturas AyA, aplicará ajustes en las facturaciones con alto consumo hasta por un período de tres meses en forma consecutiva cuando la lectura es mensual y por un periodo de cuatro meses en forma consecutiva cuando la lectura sea bimestral. Dicho ajuste se aplicará tomando como parámetro el consumo promedio normal mostrado en las últimas seis facturaciones registradas multiplicadas por 1.5. Para la aplicación de un nuevo ajuste deberá haber transcurrido un período de doce meses.
-(Así reformado mediante sesión ordinaria N° 176 celebrada el 17 de julio de 1997.)
+Artículo 94.—(DEROGADO mediante sesión ordinaria N° 324 celebrada el 10 de setiembre de 2002.)
