@@ -1,4 +1,6 @@
+(Derogado)
 Nº 6038
+(Esta norma fue derogada por el artículo 111 de la Ley Orgánica del Colegio de Ingenieros Químicos y Profesionales Afines y Ley Orgánica del Colegio de Químicos de Costa Rica, N° 8412 del 22 de abril de 2004)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1º.- Modifícanse las leyes números 431 del 15 de marzo y 627 del 20 de julio, ambas de 1949, y la ley número 4368 del 11 de agosto de 1969 que integran la Ley Orgánica del Colegio de Químicos e Ingenieros Químicos de Costa Rica, la que se leerá así:
