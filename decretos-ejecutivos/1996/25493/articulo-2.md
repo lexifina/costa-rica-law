@@ -1,0 +1,1 @@
+Artículo 2°-El Colegio de Farmacéuticos de Costa Rica dispondrá de las medidas administrativas que considere necesarias y que deberán ser cumplidas por los interesados en los trámites de autorización y registro de los establecimientos farmacéuticos.
