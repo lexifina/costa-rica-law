@@ -14,3 +14,4 @@ Crea Unidad Ejecutora del Transporte Eléctrico (Gran Área Metropolitana GAM)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-09-20 | la propia norma |
+| 2 | 1997-03-20 | Decreto Ejecutivo 25910 (1997-03-20) |

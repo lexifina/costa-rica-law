@@ -3,11 +3,14 @@ a) Ministerio de Obras Públicas y Transportes.
 b) Ministerio del Ambiente y Energía.
 c) Compañía Nacional de Fuerza y Luz,
 d) Instituto Costarricense de Electricidad.
-e) INCOFER,
-f) Refinadora Costarricense de Petróleo (RECOPE).
-(Corregido mediante Fe de Erratas y publicado en La Gaceta N° 197 del 15 de octubre de 1996)
-g) Servicio Nacional de Electricidad,
-h) Ministerio de Vivienda y Urbanismo.
+e) Instituto Costarricense de Ferrocarriles
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 25910 del 20 de marzo del 1997).
+f) Refinadora Costarricense de Petróleo
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 25910 del 20 de marzo del 1997).
+g) Autoridad Reguladora de Servicios Públicos
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 25910 del 20 de marzo del 1997).
+h) Ministerio de Vivienda y Asentamientos Humanos
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 25910 del 20 de marzo del 1997).
 i) Instituto de Vivienda y Urbanismo.
 j) Ministerio de Salud,
 k) Municipalidad de San José.
