@@ -1,0 +1,1 @@
+Artículo 2°-Se autoriza al Poder Ejecutivo para que traspase, a la Municipalidad de Santo Domingo de Heredia, el lote segregado, según el artículo anterior, el cual será destinado a la ampliación del cementerio municipal de esa localidad.
