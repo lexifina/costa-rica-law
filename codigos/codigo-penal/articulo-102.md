@@ -1,8 +1,12 @@
 Aplicación.
-Artículo 102.- Las medidas de seguridad se aplicarán así:
-a) Al hospital psiquiátrico o a los establecimientos de tratamiento especial y educativo, se destinarán los enfermos mentales, toxicómanos habituales, bebedores consetudinarios y los sujetos de imputabilidad disminuida o que hayan intentado suicidarse. Estos últimos podrán recibir el tratamiento en su domicilio;
-b) A colonias agrícolas, o establecimientos de trabajo en donde estarán sometidos a un régimen especial, se destinarán los delincuentes habituales o profesionales; los autores de delito imposible y los que, cumplan la pena, cuando el Juez estime que su eficacia readaptadora ha sido nula;
-c) La libertad vigilada se ordenará en los casos de condena de ejecución condicional, así como en los casos en que se suspende o termine otra medida de seguridad o una pena y el Juez ordene aplicarla por un tiempo prudencial;
+ARTÍCULO 102.- Las medidas de seguridad se aplicarán así:
+a) En servicios psiquiátricos idóneos o establecimientos de tratamiento especial educativo, se internarán los enfermos mentales, toxicómanos habituales, alcohólicos y sujetos de imputabilidad disminuida que hayan intentado suicidarse.
+(Así reformado este inciso por el artículo 69 de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad No. 7600 de 2 de mayo de 1996)
+b) Anulado.
+(La Sala Constitucional mediante resolución N°1588-98 del 10 de marzo de 1998, declaró inconstitucional el inciso anterior de este artículo, el cual según reforma efectuada por resolución N° 88-92 del 17 de enero de 1992, disponía textualmente así: "A colonias agrícolas, o establecimientos de trabajo en donde estarán sometidos a un régimen especial, se destinarán los autores de delito imposible;")
+c) La libertad vigilada se ordenará en los casos de condena de ejecución condicional, así como en los casos en que se suspende otra medida de seguridad y el Juez ordene aplicarla por un tiempo prudencial.
 El Instituto de Criminología informará periódicamente al Juez sobre la conducta de las personas sometidas a libertad vigilada;
-d) Cuando el Juez lo considere oportuno, podrá imponer al sujeto que cumplió una pena o una medida de seguridad, la prohibición de residir en determinado lugar, por todo el tiempo que estime conveniente; y
+(Así reformado el párrafo primero de este inciso por resolución de la Sala Constitucional Nº 88-92 de las 11 horas del 17 de enero de 1992)
+d) Anulado.
+(Anulado este inciso por resolución de la Sala Constitucional Nº 88-92 de las 11 horas del 17 de enero de 1992)
 e) La prohibición de frecuentar determinados lugares es medida de prevención especial y se impondrá al condenado por delito cometido bajo la influencia del alcohol o de drogas enervantes, del homosexualismo o la prostitución.

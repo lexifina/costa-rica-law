@@ -1,10 +1,17 @@
-Falsificación de señas y marcas.
-Artículo 368.- Será reprimido con prisión de seis meses a tres años;
-1) El que falsificare marcas, contraseñas o firmas oficialmente usadas
-para contrastar pesas o medidas, identificar cualquier objeto o
-certificar su calidad, cantidad o contenido y el que los aplicare
-a objetos distintos de aquéllos a que debían ser aplicados.
-2) El que falsificare billetes de empresas públicas de transporte; y
-3) El que falsificare, alterare o suprimiere la numeración
-individualizadora de un objeto, registrada de acuerdo con la ley
-por razones de seguridad o fiscales.
+Valores equiparados a moneda.
+ARTÍCULO 368.-
+Para los efectos de la aplicación de la ley penal quedan equiparados a la moneda:
+1.-
+El papel moneda y de curso legal nacional o extranjero;
+2.-
+Las tarjetas de crédito o de débito;
+3.-
+Los títulos de la deuda nacional o municipal y sus cupones;
+4.-
+Los bonos o letras de los tesoros nacional o municipal;
+5.-
+Los títulos, cédulas y acciones al portador, sus cupones y los bonos y letras emitidas por un gobierno extranjero;
+6.-
+La moneda cercenada o alterada; y 7.-
+Las anotaciones electrónicas en cuenta. (Así reformado por el artículo 184 de la Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997)
+(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la indicada ley No.7732, que lo traspasó del 366 al 368)

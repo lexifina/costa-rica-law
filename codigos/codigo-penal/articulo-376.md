@@ -1,22 +1,6 @@
-SECCION III
-Protección a Menores
-Artículo 376.- Se impondrá de tres a treinta días multa en los
-siguientes casos:
-Presencia de menores en prostíbulos.
-1) Al que debiendo evitarlo como dueño o empresario y como autoridad
-de policía, tolere la entrada de un menor de diecisiete años en una
-casa de prostitución o sitio inmoral;
-Venta de objetos peligrosos a menores.
-2) Al que vendiere o permitiere que un menor de diecisiete años tenga
-en su poder arma peligrosa, materia explosiva o sustancia venenosa;
-Exposición de niños a cualquier peligro.
-3) A la persona que teniendo a su cuidado un niño en las plazas, paseos
-o lugares públicos, lo expusiere a cualquier peligro; y
-Castigos inmoderados a los hijos.
-4) Los padres de familia, tutores o guardadores de menores que
-castigaren a éstos en forma inmoderada o trataren de entregarlo a
-otra persona o a un establecimiento público con el fin de evadir
-las responsabilidades inherentes a su deber legal, o los expongan
-a la corrupción.
-(Así modificado mediante fe de erratas de La Gaceta N° 234 de
-24 de noviembre de 1971)
+Pena por tráfico de menores para adopción.
+Artículo 376.- Pena por tráfico de personas menores Se impondrá prisión de dos a cuatro años a quien venda, promueva o facilite la venta de una persona menor de edad y perciba por ello cualquier tipo de pago, gratificación, recompensa económica o de otra naturaleza. Igual pena se impondrá a quien pague, gratifique o recompense con el fin de recibir a la persona menor de edad.
+La prisión será de cuatro a seis años cuando el autor sea un ascendiente o pariente hasta el tercer grado de consanguinidad o afinidad, el encargado de la guarda, custodia o cualquier persona que ejerza la representación de la persona menor de edad. Igual pena se impondrá al profesional o funcionario público que venda, promueva, facilite o legitime por medio de cualquier acto la venta de la persona menor. Al profesional y al funcionario público se le impondrá también inhabilitación de dos a seis años para el ejercicio de la profesión u oficio en que se produjo el hecho.
+(Así adicionado por el artículo 9° de la ley N° 7538 del 22 de agosto de 1995).
+(Así corrida su numeración por el artículo 185 de la ley N° 7732 del 17 de diciembre de 1997, que lo traspasó del anterior artículo 374 al 376 actual).
+(Así reformado por el artículo único de la ley N° 7999 del 05 de mayo del 2000).

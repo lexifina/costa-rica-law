@@ -1,8 +1,5 @@
-Corrupción agravada.
-Artículo 340.- Si los hechos a que se refieren los dos artículos
-anteriores tuvieren como fin el otorgamiento de puestos públicos,
-jubilaciones, pensiones, o la celebración de contratos en los cuales esté
-interesada la administración a la que pertenece el funcionario, la pena de
-prisión será:
-1) En el caso del artículo 338, de uno a cinco años;
-2) En el caso del artículo 339, de tres a diez años.
+SECCION II
+Corrupción de Funcionarios.
+Cohecho impropio.
+ARTÍCULO 340.-
+Será reprimido con prisión de seis meses a dos años, el funcionario público que, por sí o por persona interpuesta, recibiere una dádiva o cualquier otra ventaja indebida o aceptare la promesa de una retribución de esa naturaleza para hacer un acto propio de sus funciones. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 338 al 340)

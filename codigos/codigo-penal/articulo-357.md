@@ -1,10 +1,3 @@
-TITULO XVI
-DELITOS CONTRA LA FE PUBLICA
-SECCION I
-Falsificación de Documentos en General
-Falsificación de documentos públicos y auténticos.
-Artículo 357.- Será reprimido con prisión de uno a seis años, el que
-hiciere en todo o en parte un documento falso, público o auténtico, o
-alterare uno verdadero, de modo que pueda resultar perjuicio. Si el hecho
-fuere cometido por un funcionario público en el ejercicio de sus funciones,
-la pena será de dos a ocho años.
+Demora injustificada de pagos ARTÍCULO 357.-
+Será reprimido con treinta a noventa días multa, el funcionario público que teniendo fondos expeditos, demorare injustificadamente un pago ordinario decretado por la autoridad competente o no observare en los pagos las prioridades establecidas por la ley o sentencias judiciales o administrativas. En la misma pena incurrirá el funcionario público que requerido por la autoridad competente, rehusare entregar una cantidad o efecto depositado o puesto bajo su custodia o administración.
+(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 355 al 357)

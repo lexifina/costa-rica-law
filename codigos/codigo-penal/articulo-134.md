@@ -1,5 +1,5 @@
 Vilipendio por causa caballeresca.
-Artículo 134.- El que desacreditare públicamente a otro por no haber
+ARTÍCULO 134.- El que desacreditare públicamente a otro por no haber
 desafiado, por haber rehusado un desafío o por no haberse batido, será
 reprimido con diez a treinta días de multa.
 El que amenazare con desacreditar públicamente a alguien para

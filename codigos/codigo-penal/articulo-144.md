@@ -1,6 +1,3 @@
 Omisión de auxilio.
-Artículo 144.- Será reprimido con veinte a cien días de multa el que
-encontrando perdido o desamparado a un menor de diez años o a una persona
-herida o inválida o amenazada de un peligro cualquiera, omitiere prestarle
-el auxilio necesario, según las circunstancias, cuando pudiere hacerlo sin
-riesgo personal.
+Artículo 144.-Quien encuentre perdido o desamparado a un menor de diez años o a una persona herida o amenazada de un peligro cualquiera y omita prestarle el auxilio necesario según las circunstancias, cuando pueda hacerlo sin riesgo personal, será reprimido con una multa igual a la mitad del salario mínimo establecido por la Ley No. 7337, del 5 de mayo de 1993. El juez podrá aumentar esta sanción hasta en el doble, considerando las condiciones personales del autor, sus posibilidades económicas, los efectos y la gravedad de la acción.
+(Así reformado por el artículo 69 (actual 82) de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad; Nº 7600 de 2 de mayo de 1996)

@@ -1,9 +1,3 @@
 Indulto.
-Artículo 90.- El indulto, aplicable a los delitos comunes, implica el
-perdón total o parcial de la pena impuesta por sentencia ejecutoriada o
-bien su conmutación por otra más benigna y no comprende las penas
-accesorias. La concesión del indulto estará subordinada al informe
-favorable de los órganos jurisdiccionales y del Instituto de Criminología.
-El indulto sólo podrá ser concedido por el Consejo de Gobierno y las
-personas a quienes se les otorgue deberán llenar los requisitos y
-condiciones estipulados para el otorgamiento de la libertad condicional.
+Artículo 90.-El indulto, aplicable a los delitos comunes, implica el perdón total o parcial de la pena impuesta por sentencia ejecutoria, o bien su conmutación por otra más benigna y no comprende las penas accesorias. El indulto sólo podrá ser concedido por el Consejo de Gobierno, el cual previamente a resolver, oirá el criterio de Instituto de Criminología. Consultará también a la Corte Suprema de Justicia, únicamente, cuando la solicitud del indulto se fundamente en una crítica a la sentencia judicial. Dichos organismos deberán pronunciarse en un término no mayor de treinta días naturales, y si no contestaren dentro de ese término, el Consejo de Gobierno podrá resolver lo que corresponda.
+(Así reformado por el artículo 1º de la ley No. 6726 de 10 de marzo de 1982).

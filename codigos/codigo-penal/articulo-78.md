@@ -1,5 +1,6 @@
 Pena aplicable a los reincidentes.
-Artículo 78.- Al reincidente se le aplicará la sanción correspondiente
-al último hecho punible cometido, aumentándola a juicio del Juez, sin que
-pueda pasar de veinticinco años. La misma agravación de la pena podrá
-imponerla el Juez al delincuente profesional.
+ARTÍCULO 78.- Al reincidente se le aplicará la sanción
+correspondiente al último hecho cometido.
+( Texto Modificado por Resolución de la Sala Constitucional Nº
+796-92 de las 14:30 horas del 24 de marzo de 1992, que aclaró la
+Resolución No. 88-92 de las 11 horas del 17 de enero de 1992. )

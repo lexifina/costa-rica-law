@@ -1,7 +1,5 @@
-Traición cometida por extranjeros.
-Artículo 278.- Las disposiciones precedentes son aplicables a los
-extranjeros residentes en territorio costarricense, salvo lo establecido
-por los tratados ratificados por Costa Rica o por el derecho internacional
-acerca de los funcionarios diplomáticos y de los nacionales de los países
-en conflicto. Las penas respectivas podrán ser, en todo caso,
-prudencialmente rebajadas por el Juez.
+Traición agravada.
+ARTÍCULO 278.-
+Se impondrá de diez a veinticinco años de prisión, cuando en el hecho previsto en el artículo anterior mediare alguna de las siguientes circunstancias:
+1) Cuando fuere dirigido a someter total o parcialmente la nación al dominio extranjero o a menoscabar su independencia o integridad; y 2) Cuando el autor hubiere inducido o decidido a una potencia extranjera a hacer la guerra contra la nación.
+(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 276 al 278)

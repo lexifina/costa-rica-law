@@ -1,5 +1,3 @@
-Facilitación culposa de substracciones.
-Artículo 353.- Será reprimido con treinta a ciento cincuenta días
-multa, el funcionario público que por culpa hubiere hecho posible o
-facilitado que otra persona sustrajere el dinero o los bienes de que se
-trata en el artículo anterior.
+Sujetos equiparados.
+ARTÍCULO 353.-
+Las disposiciones de los dos artículos anteriores serán aplicables a los asesores y demás funcionarios encargados de emitir su dictamen ante las autoridades. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 351 al 353)

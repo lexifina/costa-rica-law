@@ -1,0 +1,2 @@
+Artículo 184 bis.-Pena por tenencia ilegítima de menores para adopción. Será reprimido, con prisión de tres a seis años, quien ilegítimamente tenga a su cargo a personas menores de edad sujetas a adopción.
+(Así adicionado por el artículo 8 de la Ley” Reforma Código Familia, Ley Orgánica del Patronato Nacional Infancia, Ley General Migración y Extranjería, Ley Orgánica del TSE y Registro Civil y Código Penal, para regular la adopción de personas”; ley Nº 7538 de 22 de agosto de 1995)

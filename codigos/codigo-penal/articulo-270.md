@@ -1,7 +1,3 @@
-Caso culposo.
-Artículo 270.- Cuando alguno de los hechos previstos en los artículos
-anteriores fuere cometido por imprudencia o negligencia o por inoperancia
-en el arte o profesión del agente o por inobservancia de reglamentos, se
-impondrán además de las penas consignadas, la de inhabilitación para el
-ejercicio de la profesión, oficio, arte o similares que desempeñe, de uno a
-cuatro años.
+Violación de medidas sanitarias y violación de medidas para la prevención de epizootias o plagas vegetales.
+ARTÍCULO 270.-
+Será reprimido con prisión de uno a tres años, o de cincuenta a doscientos días multa, el que violare las medidas impuestas por la ley o por las autoridades competentes para impedir la introducción o propagación de una epidemia, y con prisión de uno a seis meses o de veinte a cien días multa, el que violare las medidas impuestas por la ley o por las autoridades competentes para impedir la introducción o propagación de una epizootia o de una plaga vegetal. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 268 al 270)

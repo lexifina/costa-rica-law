@@ -1,9 +1,3 @@
-SECCION IV
-Delitos Contra la Salud Pública.
-Corrupción de sustancias alimenticias o medicinales.
-Artículo 259.- Será reprimido con prisión de tres a diez años, el que
-envenenare, contaminare o adulterare, de modo peligroso para la salud,
-aguas o sustancias alimenticias o medicinales, destinadas al uso público o
-de una colectividad.
-Si el hecho fuere seguido de la muerte de alguna persona, la pena será
-de ocho a dieciocho años de prisión.
+Agravantes de la piratería.
+ARTÍCULO 259.-
+Si los actos de violencia u hostilidad mencionados en el artículo anterior, fueren causa de la muerte de alguna persona que se encontrare en el buque atacado, la pena será de prisión no menor de diez años. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 257 al 259)

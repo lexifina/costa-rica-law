@@ -1,0 +1,20 @@
+ARTÍCULO 420.- El producto de los días multa que resulte de la
+aplicación de este Código, se girará íntegro al Patronato de Construcción,
+Instalación y Adquisición de Bienes de Adaptación Social, el cual a su
+vez, girará mensualmente, el cincuenta por ciento a la Junta de Educación
+del lugar donde se cometió la acción punible. El pago se comprobará con el
+correspondiente recibo emitido por la Tesorería Cantonal Escolar
+respectiva.
+(Así reformado por el artículo 1º de la ley Nº 5386 de 19 de octubre
+de 1973)
+(NOTA: La ley 5386 del 19 de octubre de 1973 en su transitorio
+dispuso que "Las sumas recaudadas por concepto de días multa y que no han
+sido distribuidas a las Juntas de Educación, deberán girársele al
+Patronato de Construcción, Instalación y Adquisición de Bienes de
+Adaptación Social, para hacer el traspaso a las Juntas de Educación a que
+correspondan.")
+(Así modificada la numeración de este artículo por el numeral 9 de
+ley Nº 7538 de 22 de agosto de 1995, que lo traspasó del 416 al 418)
+(Así modificada la numeración de este artículo por el numeral 185,
+inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó
+del 418 al 420)

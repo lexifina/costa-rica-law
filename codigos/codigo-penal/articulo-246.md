@@ -1,8 +1,17 @@
-Inutilización de defensas contra desastres.
-Artículo 246.- Será reprimido con prisión de uno a cuatro años el que
-dañare o inutilizare diques u otras obras destinadas a la defensa común
-contra desastres, haciendo surgir el peligro de que éstos se produzcan.
-Si el desastre se produce la pena se agravará a juicio del Juez.
-La misma pena se aplicará al que, para impedir o dificultar las tareas
-de defensa contra un desastre, substrajere, ocultare o inutilizare
-materiales, instrumentos u otros medios destinados a la defensa referida.
+TITULO IX
+DELITOS CONTRA LA SEGURIDAD COMUN
+SECCION I
+Incendios y Otros Estragos
+Incendio o explosión
+ARTÍCULO 246.-
+Será reprimido con prisión de cinco a diez años el que, mediante incendio o explosión, creare un peligro común para las personas o los bienes.
+La pena será:
+1) De seis a quince años de prisión, si hubiere peligro de muerte para alguna persona, si existiere peligro de destrucción de bienes de valor científico, artístico, histórico o religioso, si se pusiere en peligro la seguridad pública, o si se tuvieren fines terroristas. 2) De diez a veinte años de prisión, si el hecho causare la muerte o lesiones gravísimas a alguna o algunas personas, o si efectivamente se produjere la destrucción de los bienes a que se refiere el inciso anterior.
+3) De cinco a diez años de prisión, si a causa del hecho se produjere otro tipo de lesiones, o se destruyeren bienes diferentes a los enumerados en los párrafos anteriores.
+Para los fines de este artículo y de los artículos 274 (*) y 374 (*), se consideran actos de terrorismo los siguientes:
+a) Los hechos previstos en los artículos 215, incisos 5) y 6) y 258 de este Código.
+b) Los atentados contra la vida o la integridad corporal de funcionarios públicos o de diplomáticos o cónsules acreditados en Costa Rica o de paso por el territorio nacional.
+c) Los atentados contra naves, aeronaves en tierra, vehículos de transporte colectivo, edificios públicos o de acceso al público, cometidos mediante la utilización de armas de fuego o explosivos, o mediante la provocación de incendio o explosión.
+(Así reformado por el artículo 1º de la ley No. 6989 de 16 de julio de 1985).
+(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 244 al 246)
+(*) (Así modificada la numeración de estos artículos por la indicada ley No.7732, la cual los traspasó del 272 al 274, y del 372 al 374, respecivamente)

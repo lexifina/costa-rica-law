@@ -1,6 +1,4 @@
 Amortización de la multa.
-Artículo 55.- Podrá autorizarse al condenado para que amortice la
-multa, mediante trabajo libre sin remuneración, a favor de la
-administración pública o de las municipalidades. Las autoridades
-competentes determinarán los trabajos computables para estos efectos.
-Un día de trabajo equivale a un día de multa.
+Artículo 55.- El Instituto de Criminología, previo estudio de los caracteres sicológicos, siquiátricos y sociales del interno, podrá autorizar al condenado que haya cumplido por lo menos la mitad de la condena, o al indiciado, para que descuente o abone la multa o la pena de prisión que le reste por cumplir o que se le llegue a imponer, mediante el trabajo en favor de la Administración Pública, de las instituciones autónomas del Estado o de la empresa privada. Para tal efecto, un día de trabajo ordinario equivale a un día multa y cada dos días de trabajo ordinario equivalen a un día de prisión. Las labores de toda índole, que se realicen en el centro de adaptación social y fuera de él computarán en igual forma. El salario respectivo se abonará total o parcialmente para satisfacer la multa impuesta. El interno gozará de los beneficios que el Estado y sus instituciones otorguen a los trabajadores, aunque no existirá relación laboral entre el empleador y el empleado interno.
+(Así reformado por el artículo 1º de la ley Nº 7398 de 3 de mayo de 1994)
+(Por resolución de la Sala Constitucional Nº 6829-93 del 24 de diciembre de 1993, indicó que el artículo 55 que establece la reducción de la pena no es inconstitucional, pero sí lo es la práctica administrativa de acordarlo en favor de indiciados con la misma amplitud que a los condenados )

@@ -1,11 +1,6 @@
-TITULO XII
-DELITOS CONTRA LOS PODERES PUBLICOS
-Y EL ORDEN CONSTITUCIONAL
-SECCION I
-Atentados Políticos
-Rebelión.
-Artículo 292.- Serán reprimidos con prisión de dos a diez años los que
-se alzaren en armas para cambiar la Constitución, deponer algunos de los
-organismos del Estado o impedir, aunque sea temporalmente, el libre
-ejercicio de sus facultades constitucionales o su formación o renovación en
-los términos y formas legales.
+SECCION III
+Sabotaje
+Violación de contratos relativos a la seguridad de la nación.
+ARTÍCULO 292.-
+Será reprimido con prisión de tres a diez años, el que, encontrándose la nación en guerra, no cumpliere debidamente obligaciones contractuales relativas a necesidades de las fuerzas armadas. Si el incumplimiento fuere culposo, la pena será de seis meses a dos años.
+(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 290 al 292)

@@ -1,15 +1,8 @@
-SECCION II
-Clasificación y Aplicación de las Medidas de Seguridad
+SECCIÓN II
+CLASIFICACIÓN Y APLICACIÓN DE LAS MEDIDAS DE SEGURIDAD
 Clases.
-Artículo 101.- Las medidas de seguridad son curativas, de internación
-y de vigilancia.
-Son medidas curativas:
-1) El ingreso en un hospital psiquiátrico; y
-2) El ingreso en establecimiento de tratamiento especial y educativo.
-Son medidas de internación:
-El ingreso en una colonia agrícola y el ingreso en establecimientos de
-trabajo.
-Son medidas de vigilancia:
-1) La libertad vigilada;
-2) La prohibición de residir en determinado lugar; y
-3) La prohibición de frecuentar determinados lugares.
+Artículo 101.- Son medidas curativas:
+1.-El ingreso en un hospital psiquiátrico.
+2.- El ingreso en un establecimiento de tratamiento especial educativo.
+3.- Someterse a un tratamiento psiquiátrico.
+(Así reformado por el artículo 69 (actual 82) de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad Nº 7600 de 2 de mayo de 1996)

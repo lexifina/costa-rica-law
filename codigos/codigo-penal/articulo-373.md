@@ -1,14 +1,7 @@
-Genocidio.
-Artículo 373.- Se impondrá prisión de diez a veinticinco años, a quien
-tome parte con propósito homicida, en la destrucción total o parcial de un
-determinado grupo de seres humanos, por razón de su nacionalidad, raza, o
-creencia religiosa o política. Con idéntica pena será sancionado quien:
-1) Causare a los miembros de esos grupos graves daños corporales o
-psíquicos;
-2) Colocare a dichos grupos en condiciones de vida tan precaria, que
-haga posible la desaparición de todos o parte de los individuos que
-los constituyen;
-3) Tomare medidas destinadas a impedir los nacimientos dentro de esos
-grupos; y
-4) Trasladare, por medio de fuerza o intimidación, niños de uno de
-esos grupos a otros distintos.
+TITULO XVII
+DELITOS CONTRA LOS DERECHOS HUMANOS
+SECCION UNICA
+Discriminación racial.
+ARTÍCULO 373.-
+Será sancionado con veinte a sesenta días multa, la persona, al gerente o director de una institución oficial o privada, administrador de un establecimiento industrial o comercial, que aplicare cualquier medida discriminatoria perjudicial, fundada en consideraciones raciales, de sexo, edad, religión, estado civil, opinión pública, origen social o situación económica. Al reincidente, el Juez podrá además imponer, como pena accesoria, la suspensión de cargos u oficios públicos por un tiempo no menor de quince ni mayor de sesenta días.
+(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 371 al 373)

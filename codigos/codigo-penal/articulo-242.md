@@ -1,5 +1,3 @@
 Propaganda desleal.
-Artículo 242.- Será reprimido con treinta a cien días multa, al que,
-por maquinaciones fraudulentas, sospechas malévolas o cualquier medio de
-propaganda desleal, tratare de desviar en provecho propio o de un tercero
-la clientela de un establecimiento comercial o industrial.
+ARTÍCULO 242.-
+Será reprimido con treinta a cien días multa, al que, por maquinaciones fraudulentas, sospechas malévolas o cualquier medio de propaganda desleal, tratare de desviar en provecho propio o de un tercero la clientela de un establecimiento comercial o industrial. ( NOTA: el artículo 60 de la Ley de Promoción de la Competencia Nº 7472 de 20 de diciembre de 1994 amplía este tipo penal al duplicar sus penas cuando la acción sea cometida en perjuicio de lo consumidores, en los términos del artículo 2º de dicha ley. Además, indica dos supuestos más en que dichas penas se aplicarán, según el monto del daño causado o el número de productos o servicios transados)

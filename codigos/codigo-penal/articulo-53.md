@@ -1,5 +1,5 @@
 Multa.
-Artículo 53.- La multa obliga al condenado a pagar a la institución
+ARTÍCULO 53.- La multa obliga al condenado a pagar a la institución
 que la ley designe, dentro de los quince días siguientes a la sentencia
 ejecutoriada, una suma de dinero que se fijará en días multa. El importe
 del día multa se determinará de acuerdo con la situación económica del

@@ -1,5 +1,5 @@
-Falsedad ideológica.
-Artículo 358.- Las penas previstas en el artículo anterior son
-aplicables al que insertare o hiciere insertar en un documento público o
-auténtico declaraciones falsas, concernientes a un hecho que el documento
-deba probar, de modo que pueda resultar perjuicio.
+SECCION VI
+Disposición Común a los Delitos Contemplados en los Tres Títulos Anteriores
+Delitos cometidos por funcionarios públicos.
+ARTÍCULO 358.-
+Cuando quien cometiere los delitos contra la autoridad pública, contra la administración de justicia o contra los deberes de la función pública fuere un empleado o funcionario público, quedan los jueces facultados para imponer además de las penas consignadas en cada caso, las de inhabilitación absoluta o especial en el tanto que estimen pertinente, de acuerdo con la gravedad del hecho y dentro de los límites fijados para esta pena. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 356 al 358)

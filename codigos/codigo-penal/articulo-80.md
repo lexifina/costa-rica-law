@@ -1,13 +1,5 @@
 TITULO V
-EXTINCION DE LA ACCION PENAL Y DE LA PENA
-SECCION UNICA
+EXTINCIÓN DE LA ACCIÓN PENAL Y DE LA PENA
+SECCIÓN ÚNICA
 Causas que extinguen la acción penal y la pena.
-Artículo 80.- La acción penal y la pena, se extinguen:
-1) Por la muerte del imputado en lo que a él respecta y la del
-condenado en toda clase de pena;
-2) Por el perdón del ofendido en los delitos de acción privada;
-3) Por la prescripción;
-4) Por la amnistía;
-5) Por el indulto;
-6) Por la rehabilitación; y
-7) Por el perdón judicial.
+Artículo 80.- (Derogado por el artículo 26 de la Ley de Reorganización Judicial; Nº 7728 de 15 de diciembre de 1997, excepto para los casos que deban continuar tramitándose conforme al Código de Procedimientos Penales de 1973.Ver observaciones a la presente ley)

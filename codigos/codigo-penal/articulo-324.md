@@ -1,7 +1,4 @@
-SECCION IV
-Evasión y Quebrantamiento de Pena
-Evasión.
-Artículo 324.- Será reprimido con prisión de un mes a un año, el que
-hallándose legalmente detenido se evadiere. La pena será de seis meses a
-dos años si la evasión se realizare por medio de intimidación o violencia
-en las personas o fuerza en las cosas.
+Receptación de cosas de procedencia sospechosa.
+ARTÍCULO 324.- Será reprimido con prisión de seis meses a dos años el que, sin promesa anterior al delito, o recibiere cosas o bienes que de acuerdo con las circunstancias debía presumir provenientes de un delito. Si el autor hiciere de ello un tráfico habitual se le impondrá la respectiva medida de seguridad.
+(Corregido mediante Fe de Erratas publicada La Gaceta N° 234 de 24 de noviembre de 1971).
+(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 322 al 324)

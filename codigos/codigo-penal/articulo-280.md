@@ -1,9 +1,2 @@
-SECCION II
-Delitos que Comprometen la Paz y la Dignidad de la Nación
-Actos hostiles.
-Artículo 280.- Será reprimido con prisión de uno a seis años el que,
-por actos materiales de hostilidad no aprobados por el gobierno nacional,
-provoque inminente peligro de una declaración de guerra contra la nación,
-exponga a sus habitantes a experimentar vejaciones por represalias en sus
-personas o en sus bienes o alterare las relaciones amistosas del gobierno
-costarricense con un gobierno extranjero.
+ARTÍCULO 280.-
+Las disposiciones precedentes son aplicables a los extranjeros residentes en territorio costarricense, salvo lo establecido por los tratados ratificados por Costa Rica o por el derecho internacional acerca de los funcionarios diplomáticos y de los nacionales de los países en conflicto. Las penas respectivas podrán ser, en todo caso, prudencialmente rebajadas por el Juez. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 278 al 280)

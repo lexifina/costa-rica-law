@@ -1,10 +1,5 @@
-Valores equiparados a moneda.
-Artículo 366.- Para los efectos de la ley penal, quedan equiparados a
-moneda:
-1) El papel moneda y el billete de banco de curso legal, nacionales
-o extranjeros;
-2) Los títulos de la deuda nacional o municipal y sus cupones;
-3) Los bonos o letras de los tesoros nacional y municipal;
-4) Los títulos, cédulas y acciones al portador, sus cupones, y los
-bonos y letras emitidas por un gobierno extranjero; y
-5) La moneda cercenada o alterada.
+SECCION II
+Falsificación de Moneda y Otros Valores
+Falsificación de moneda.
+ARTÍCULO 366.-
+Será reprimido con prisión de tres a quince años, el que falsificare o alterare moneda de curso legal, nacional o extranjero, y el que la introdujere, expidiere o pusiere en circulación. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 364 al 366)

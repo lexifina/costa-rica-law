@@ -1,5 +1,3 @@
-Revelación por culpa.
-Artículo 285.- Será reprimido con prisión de un mes a un año al que,
-por culpa, revelare hechos o datos o diere a conocer los secretos
-mencionados en el artículo precedente, de los que se hallare en posesión en
-virtud de su empleo, oficio o de un contrato oficial.
+Menosprecio de los símbolos de una nación extranjera.
+ARTÍCULO 285.-
+Se impondrá prisión de seis meses a dos años al que públicamente menosprecie o vilipendie la bandera, el escudo o el himno de una Nación extranjera. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 283 al 285)

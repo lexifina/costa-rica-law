@@ -1,8 +1,4 @@
-SECCION II
-Disposiciones Comunes Aplicables a los Atentados Políticos
-Responsabilidad de los promotores o directores.
-Artículo 297.- Cuando los rebeldes o amotinados se sometan a la
-autoridad legítima o se disuelvan antes de que ésta les haga intimidaciones
-o a consecuencia de ellas, sin haber causado otro mal que la perturbación
-momentánea del orden, sólo serán punibles los promotores o directores, a
-quienes se reprimirá con la mitad de la pena señalada para el delito.
+Motín.
+ARTÍCULO 297.-
+Serán reprimidos con prisión de uno a cuatro años los que se alzaren públicamente en número de diez o más, para impedir la ejecución de leyes o de las resoluciones de los funcionarios públicos o para obligarles a tomar alguna medida u otorgar alguna concesión. Menosprecio para los símbolos nacionales.
+(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 295 al 297)

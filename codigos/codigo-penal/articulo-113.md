@@ -1,10 +1,6 @@
 Homicidios especialmente atenuados.
-Artículo 113.- Se impondrá la pena de uno a seis años:
-1) A quien haya dado muerte a una persona hallándose el agente en
-estado de emoción violenta que las circunstancias hicieren
-excusable. El máximo de la pena podrá ser aumentado por el Juez
-sin que pueda exceder de diez años si la víctima fuere una de las
-comprendidas en el inciso primero del artículo anterior;
+Artículo 113.-Se impondrá la pena de uno a seis años:
+1) A quien haya dado muerte a una persona hallándose el agente en estado de emoción violenta que las circunstancias hicieren excusable. El máximo de la pena podrá ser aumentado por el Juez sin que pueda exceder de diez años si la víctima fuere una de las comprendidas en el inciso primero del artículo anterior;
 2) El que con la intención de lesionar causare la muerte de otro; y
-3) A la madre de buena fama que para ocultar su deshonra diere muerte
-a su hijo dentro de los tres días siguientes a su nacimiento.
+3) A la madre de buena fama que para ocultar su deshonra diere muerte a su hijo dentro de los tres días siguientes a su nacimiento.
+(Nota de Sinalevi: Mediante el artículo 1º de la ley N° 5061 de 23 de agosto de 1972, se interpretó el presente artículo en el sentido de que:”… la pena señalada es la de prisión”).

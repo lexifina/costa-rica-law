@@ -1,7 +1,5 @@
 SECCION VIII
 Disposición General
 Tenencia y fabricación de ganzúas y otros instrumentos.
-Artículo 230.- Será reprimido con prisión de un mes a un año, el que
-indebidamente tuviere en su poder o fabricare ganzúas u otros instrumentos
-conocidamente destinados a facilitar la comisión de delitos contra la
-propiedad.
+ARTÍCULO 230.-
+ANULADO por Resolución de la Sala Constitucional Nº 6410-96 de las 15:12 horas del 26 de noviembre de 1996.

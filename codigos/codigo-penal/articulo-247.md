@@ -1,6 +1,3 @@
-Desastre culposo.
-Artículo 247.- Será reprimido con prisión de un mes a dos años, el que
-por culpa causare un desastre de los definidos en los artículos 244 y 245.
-La pena será de seis meses a tres años cuando concurra la circunstancia del
-inciso 1) del artículo 244 y de un año a cuatro años, cuando concurra la
-circunstancia del inciso 2) del mismo artículo.
+Estrago.
+ARTÍCULO 247.-
+Incurrirá, según los casos, en las penas señaladas en el artículo anterior, el que causare estrago por medio de inundación, desmoronamiento, derrumbe de un edificio o por cualquier otro medio poderoso de destrucción. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 245 al 247)

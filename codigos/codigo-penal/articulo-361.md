@@ -1,6 +1,3 @@
-Documentos equiparados.
-Artículo 361.- Será reprimido con las penas señaladas en el artículo
-357 el que ejecutare cualquiera de los hechos reprimidos en dicho artículo
-o en el artículo 360 en un testamento cerrado, en un cheque, sea oficial o
-giro, en una letra de cambio, en acciones u otros documentos o títulos de
-créditos transmisibles por endoso o al portador.
+Falsificación de documentos privados.
+ARTÍCULO 361.-
+Se impondrá prisión de seis meses a dos años al que hiciere en todo o en parte un documento privado falso o adulterare uno verdadero, de modo que pueda resultar perjuicio. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 359 al 361)

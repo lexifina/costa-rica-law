@@ -1,6 +1,3 @@
-Violación de la custodia de cosas.
-Artículo 311.- Será reprimido con prisión de seis meses a cuatro
-años, el que sustrajere, ocultare, destruyere o inutilizare objetos
-destinados a servir de prueba ante la autoridad, registros o documentos
-confiados a la custodia de un funcionario o de otra persona, en el interés
-del servicio público.
+Perjurio.
+ARTÍCULO 311.-
+Se impondrá prisión de tres meses a dos años al que faltare a la verdad cuando la ley le impone bajo juramento o declaración jurada, la obligación de decirla con relación a hechos propios. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 309 al 311)

@@ -1,6 +1,3 @@
 Explotación de incapaces.
-Artículo 237.- Será reprimido con prisión de uno a cuatro años, el que
-con ánimo de lucro, abusando de las necesidades, pasiones o inexperiencia
-de un menor o del estado de enfermedad o deficiencia psíquica de un
-incapaz, declarado o no, lo indujere a realizar un acto que importe efectos
-jurídicos perjudiciales a él o a un tercero.
+ARTÍCULO 237.-
+Será reprimido con prisión de uno a cuatro años quien con ánimo de lucro y abusando de las necesidades, pasiones o inexperiencia de un menor o de una persona con deficiencias de su capacidad cognoscitiva o volitiva, lo induzca a realizar un acto que importe efectos jurídicos perjudiciales a él o a un tercero. ( Así reformado por el artículo 69 de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad Nº 7600 de 2 de mayo de 1996)

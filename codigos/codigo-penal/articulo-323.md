@@ -1,8 +1,4 @@
-Favorecimiento real.
-Artículo 323.- Será reprimido con prisión de tres meses a dos años el
-que, sin promesa anterior al delito, pero después de la ejecución de éste,
-procurare o ayudare a alguien a lograr la desaparición, ocultación o
-alteración de los rastros, pruebas o instrumentos del delito o a asegurar
-el producto o el provecho del mismo.
-Esta disposición no se aplica al que de alguna manera haya participado
-en el delito o al que incurriere en el hecho de evasión culposa.
+Receptación.
+ARTÍCULO 323.-
+Será reprimido con prisión de seis meses a tres años y con diez a treinta días multa, al que adquiriere, recibiere y ocultare dinero, cosas o bienes provenientes de un delito en que no participó, o interviniere en su adquisición, recepción u ocultación. Se aplicará la respectiva medida de seguridad cuando el autor hiciere de la receptación una práctica que implique profesionalidad.
+(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 321 al 323)

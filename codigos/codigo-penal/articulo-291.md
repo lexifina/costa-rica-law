@@ -1,5 +1,3 @@
-Daño en objeto de interés militar.
-Artículo 291.- Será reprimido con prisión de dos a ocho años, al que,
-encontrándose la Nación en guerra, dañare instalaciones, vías, obras u
-objetos necesarios o útiles para la defensa nacional, con el propósito de
-perjudicar el esfuerzo bélico.
+Explotación indebida de riqueza nacional por extranjeros.
+ARTÍCULO 291.-
+Será reprimido con prisión de seis meses a tres años y de treinta a cien días multa, el extranjero que violando las fronteras de la República ejecutare dentro del territorio nacional actos no autorizados de explotación de productos naturales. Si el hecho fuere ejecutado por más de cinco personas, la pena será de seis meses a tres años y de treinta a sesenta días multa. (Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 289 al 291)

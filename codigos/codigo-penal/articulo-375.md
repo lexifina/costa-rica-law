@@ -1,16 +1,7 @@
-SECCION II
-Provocaciones y Amenazas
-Artículo 375.- Se impondrán de tres a treinta días multa a quien:
-Provocación a riña.
-1) Provocare a otro a riña o pelea;
-Reto a duelo.
-2) Retare a otro a duelo; la misma pena se impondrá a los que
-aceptaren ser padrinos a menos que demuestren que su actuación se
-ha dirigido a evitarlo;
-Amenazas personales.
-3) Amenazare a otro o a su familia; y
-Lanzamiento de objetos sin propósito injurioso.
-4) Al que arrojare a otra persona cosas sucias u objetos de cualquier
-clase sin causarle daño y sin propósito injurioso.
-(Así modificados lis inciso 1) y 4) mediante fe de erratas de La Gaceta N° 234 de
-24 de noviembre de 1971)
+Genocidio.
+ARTÍCULO 375.-
+Se impondrá prisión de diez a veinticinco años, a quien tome parte con propósito homicida, en la destrucción total o parcial de un determinado grupo de seres humanos, por razón de su nacionalidad, raza, o creencia religiosa o política. Con idéntica pena será sancionado quien:
+1) Causare a los miembros de esos grupos graves daños corporales o psíquicos;
+2) Colocare a dichos grupos en condiciones de vida tan precaria, que haga posible la desaparición de todos o parte de los individuos que los constituyen;
+3) Tomare medidas destinadas a impedir los nacimientos dentro de esos grupos; y 4) Trasladare, por medio de fuerza o intimidación, niños de uno de esos grupos a otros distintos.
+(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 373 al 375)

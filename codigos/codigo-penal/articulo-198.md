@@ -1,6 +1,3 @@
 Captación indebida de manifestaciones verbales.
-Artículo 198.- Será reprimido con prisión de uno a seis meses o de
-treinta a sesenta días multa, al que grabare las palabras de otro no
-destinadas al público sin su consentimiento, o al que mediante
-procedimientos técnicos escuchare manifestaciones privadas que no le estén
-dirigidas.
+Artículo 198.-Será reprimido, con prisión de uno a tres años, quien grabe sin su consentimiento, las palabras de otro u otros, no destinadas al público o que, mediante procedimientos técnicos, escuche manifestaciones privadas que no le estén dirigidas, excepto lo previsto en la Ley sobre registro, secuestro y examen de documentos privados e intervención de las comunicaciones. La misma pena se impondrá a quien instale aparatos, instrumentos, o sus partes, con el fin de interceptar o impedir las comunicaciones orales o escritas, logren o no su propósito.
+(Así reformado por el artículo 31 de la “Ley de Registro de Documentos Privados e Intervención de Comunicaciones”; ley Nº 7425 de 9 de agosto de 1994)
