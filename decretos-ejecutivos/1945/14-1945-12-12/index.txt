@@ -1,8 +1,0 @@
-articulo-1.md
-articulo-3.md
-articulo-9.md
-articulo-10.md
-articulo-20.md
-articulo-15.md
-articulo-44.md
-articulo-17.md
