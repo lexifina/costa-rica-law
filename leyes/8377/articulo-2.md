@@ -1,0 +1,1 @@
+Artículo 2º—La beneficiaria recibirá el inmueble sin ningún costo y lo destinará a la construcción de un proyecto de viviendas de interés social para familias debidamente organizadas, de acuerdo con los estudios efectuados por el Instituto Mixto de Ayuda Social (IMAS).
