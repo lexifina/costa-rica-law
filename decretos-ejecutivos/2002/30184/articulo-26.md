@@ -1,0 +1,1 @@
+Artículo 26.—Responsabilidad de los propietarios de los vehículos. Los propietarios de los vehículos serán directamente responsables ante las autoridades de cumplir y aprobar las revisiones dentro de los plazos señalados y en caso contrario le serán aplicables las multas, sanciones y procedimientos establecidos por la Ley de Tránsito.

@@ -1,0 +1,1 @@
+Artículo 11.—Aspectos a considerar dentro de la revisión técnica de la flota vehicular. En la Revisión Técnica Integral de Vehículos, se verificarán las condiciones técnicas de los vehículos que vayan a circular por las vías públicas terrestres en cuanto a la seguridad vial, emisiones contaminantes y cumplimiento de la normativa técnica que les afecta.

@@ -1,0 +1,1 @@
+Artículo 21.—Calificación de los defectos que se detecten a los vehículos automotores durante la revisión técnica. Los defectos detectados durante la realización de la revisión, podrán calificarse como leve, grave o peligroso, según lo establecido en el artículo 2º de este reglamento y las especificaciones contenidas en el Manual de Revisión Técnica Vehicular.

@@ -1,0 +1,1 @@
+Transitorio II.—El Consejo de Transporte Público del Ministerio de Obras Públicas y Transportes, de conformidad con el artículo 19 de la Ley de Tránsito por Vías Públicas Terrestres, Nº 7331 del 13 de abril de 1993, realizará la convocatoria de rigor.
