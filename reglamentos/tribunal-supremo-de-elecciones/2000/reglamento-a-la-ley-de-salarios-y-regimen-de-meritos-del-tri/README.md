@@ -14,3 +14,4 @@ Reglamento a la Ley de Salarios y Régimen de Méritos del Tribunal Supremo de E
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-17 | la propia norma |
+| 2 | 2001-05-04 | Reglamento 4 (2001-05-04) |
