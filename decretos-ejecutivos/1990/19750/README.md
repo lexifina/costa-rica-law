@@ -15,3 +15,4 @@ Pago de Dieta a los miembros que integran el Consejo Nacional de Desarrollo de l
 | --- | --- | --- |
 | 1 | 1990-06-28 | la propia norma |
 | 2 | 1998-01-16 | Decreto Ejecutivo 26947 (1998-01-16) |
+| 3 | 1999-06-18 | Decreto Ejecutivo 28002 (1999-06-18) |
