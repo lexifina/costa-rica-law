@@ -1,5 +1,6 @@
 Ley Indígena
-(Nota de Sinalevi: Esta ley fue reglamentada por el Decreto Ejecutivo No. 8487 de 26 de abril de 1978 y mediante Decreto Ejecutivo No. 13568 de 30 de abril de 1982, se establece que las Asociaciones de Desarrollo Integral tienen la representación legal de las Comunidades Indígenas y actúan como gobierno local de éstas). Ambas normas pueden ser consultadas en el sistema)
+(Nota de Sinalevi:Esta ley fue reglamentada por el Decreto Ejecutivo No. 8487 de 26 de abril de 1978 y mediante Decreto Ejecutivo No. 13568 de 30 de abril de 1982, se establece que las Asociaciones de Desarrollo Integral tienen la representación legal de las Comunidades Indígenas y actúan como gobierno local de éstas). Ambas normas pueden ser consultadas en el sistema)
+(Nota de Sinalevi: Mediante el artículo 8° del Código de Minería, N° 6797 del 4 de octubre de 1982, se estableció que se modifique en lo conducente la presente ley)
 Artículo 1º.- Son indígenas las personas que constituyen grupos étnicos descendientes directos de las civilizaciones precolombinas y que conservan su propia identidad.
 Se declaran reservas indígenas las establecidas en los decretos ejecutivos números 5904-G del 10 de abril de 1976, 6036-G del 12 de junio de 1976, 6037-G del 15 de junio de 1976, 7267-G y 7268-G del 20 de agosto de 1977, así como la *Reserva Indígena Guaymí de Conteburica.
 Los límites fijados a las reservas, en los citados decretos, no podrán ser variados disminuyendo la cabida de aquéllas, sino mediante ley expresa.
