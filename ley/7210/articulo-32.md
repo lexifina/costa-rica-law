@@ -1,19 +1,23 @@
-ARTICULO 32.- El Poder Ejecutivo podrá revocar, sin responsabilidad
-para el Estado, el otorgamiento del Régimen de Zona Franca en los
-siguientes casos:
-a) Cuando una empresa diera uso o destino diferentes al especificado
-en el Acuerdo Ejecutivo correspondiente a la maquinaria, equipo, vehículos,
-materias primas, productos semielaborados y cualesquiera otros artículos
-que la empresa haya adquirido al amparo de los incentivos otorgados.
-b) Cuando una empresa no haya cumplido con las condiciones mínimas
-fijadas en el Acuerdo Ejecutivo, especialmente en lo que respecta al
-mantenimiento del nivel ocupacional y, a los requisitos de inversión.
-c) Cuando una empresa no diera inicio a sus operaciones, por causa
-imputable a ella, en el plazo señalado en el Acuerdo Ejecutivo.
-ch) Por incumplimiento o violación de la presente ley y sus reglamentos.
-d) Cuando una empresa se haya hecho acreedora a la imposición de tres
-multas, en el mismo ejercicio fiscal.
-e) Cuando una empresa se retrase en el pago del derecho de uso del
-Régimen, establecido en el Contrato de Operaciones.
-f) Cuando una empresa no haga el correspondiente depósito de garantía.
-g) Cuando una empresa así lo solicite expresamente a la Corporación.
+ARTÍCULO 32.- El Ministerio de Comercio Exterior podrá imponer una multa hasta de trescientas veces el salario base, de acuerdo con la definición del artículo 2 de la Ley No. 7337, de 5 de mayo de 1993, podrá suprimir, por un plazo desde un mes hasta un año, uno o varios incentivos de los indicados en el artículo 20 de esta ley, o podrá revocar el Régimen de Zonas Francas sin responsabilidad para el Estado, a las empresas beneficiarias que incurran en alguna de las siguientes infracciones:
+a) Haber suministrado datos falsos en su solicitud para acogerse al Régimen.
+b) Iniciar operaciones fuera del plazo previsto en el Acuerdo Ejecutivo.
+c) Incumplir los nuevos niveles de inversión, empleo, valor agregado nacional u otros contemplados en el respectivo Acuerdo Ejecutivo.
+d) Rendir, fuera de los plazos reglamentarios, el informe anual de actividades y cualesquiera otros informes que soliciten PROCOMER o el Ministerio de Comercio Exterior. La no presentación del informe anual dentro del plazo establecido para el efecto implicará la suspensión automática de todos los beneficios del Régimen, hasta que el informe se presente completo.
+e) Realizar ventas en el mercado local sin cumplir los requisitos indicados en el artículo 22 de esta ley.
+f) Pagar a destiempo el derecho por el uso del Régimen.
+g) No realizar el depósito de garantía previsto en esta ley o no renovarlo antes de su vencimiento.
+h) Cesar operaciones o abandonar sus instalaciones sin haber obtenido autorización previa, en la forma que indique el reglamento de esta ley.
+i) Haber sido sancionados la empresa, sus accionistas, directores, empleados o personeros, en relación con actividades de la empresa, mediante resolución firme en vía administrativa, por haber incurrido en infracciones administrativas, aduaneras, tributarias o tributario- aduaneras. En este caso, no procederá la imposición de multas, pero sí la revocatoria del Régimen, cuando se trate de infracciones graves o reiteradas a juicio del Ministerio de Comercio Exterior.
+j) Haber sido condenados los accionistas, directores, empleados o personeros de la empresa beneficiaria, en relación con las actividades de la empresa, mediante resolución firme en la vía judicial, por haber incurrido en delitos aduaneros o tributarios. En este caso no procederá la imposición de multas, pero sí la revocatoria del Régimen, cuando se trate de infracciones graves o reiteradas a juicio del Ministerio de Comercio Exterior.
+k) Haber cesado la empresa sus pagos o haber sido declarada en quiebra, concurso, convenio preventivo o administración por intervención judicial.
+l) Cualquier otro incumplimiento de las obligaciones que les correspondan según la ley, los reglamentos y los contratos de operaciones.
+m) Manejar las mermas, los subproductos y desperdicios sin cumplir lo establecido en el artículo 16 de esta ley y su reglamento.
+n) Usar o destinar, en forma distinta de la especificada en el Acuerdo Ejecutivo correspondiente, la maquinaria, el equipo, los vehículos, las materias primas, los productos semielaborados y cualesquiera otros artículos adquiridos por las empresas al amparo de los incentivos otorgados.
+ñ) Incumplir las empresas desarrolladoras de parques las normas de seguridad y control establecidas en el reglamento de esta ley.
+Para determinar la sanción aplicable, se tomará en cuenta la gravedad de la falta, el grado de culpa o la existencia de dolo por parte de los empleados o personeros de la empresa, la reincidencia y, cuando se trate de multas, el volumen de ingresos de la empresa.
+El Ministerio de Comercio Exterior podrá ordenar, por un plazo máximo de seis meses, la suspensión precautoria de los incentivos y beneficios contemplados en esta ley, durante la tramitación de procedimientos administrativos o investigaciones en sede judicial que cuestionen la legalidad de la actividad de una empresa beneficiaria del Régimen de Zonas Francas, de empresas relacionadas o de sus accionistas, directores, gerentes o personeros. Ni la suspensión precautoria ni su levantamiento prejuzgarán sobre la resolución final del respectivo procedimiento administrativo o proceso judicial.
+El Ministerio de Comercio Exterior y el Ministerio de Hacienda determinarán los mecanismos de coordinación necesarios para la más correcta y eficiente aplicación de los controles y las sanciones a las empresas beneficiarias del Régimen de Zonas Francas.
+El producto de las multas fijadas en este artículo se distribuirá de la siguiente manera: un cincuenta por ciento (50%) a PROCOMER y un cincuenta por ciento (50%) a la municipalidad del cantón donde se ubique la empresa beneficiaria.
+Contra la imposición de las sanciones previstas en este artículo cabrá recurso de reposición dentro de los cinco días hábiles siguientes a la notificación de la resolución correspondiente, con lo cual se dará por agotada la vía administrativa.
+La resolución que imponga una multa constituirá título ejecutivo contra el infractor y PROCOMER estará legitimada para cobrarla.
+(Así reformado por el artículo 1º, inciso j), de la ley No.7830 de 22 de setiembre de 1998)

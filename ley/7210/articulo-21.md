@@ -1,16 +1,14 @@
-ARTICULO 21.- Además de los incentivos fiscales, antes indicados, las
-empresas establecidas en las Zonas Francas podrán solicitar a la empresa
-administradora de cada una de ellas o a la Corporación, los siguientes
-beneficios:
-a) Asistencia para el entrenamiento, que será coordinada por el
-Instituto Nacional de Aprendizaje (INA), para los empleados y aspirantes a
-empleados de las empresas establecidas en las Zonas Francas.
-b) Asistencia en la selección del personal que han de emplear en estas
-empresas. Se coordinarán las actividades de selección con el Instituto
-Nacional de Aprendizaje, el Ministerio de Trabajo y Seguridad Social,
-gremios laborales y otras instituciones locales y estatales.
-c) Asistencia y asesoramiento en sus requerimientos y necesidades ante
-las instituciones gubernamentales y privadas.
-ch) Asistencia en cuanto a vivienda y necesidades de carácter
-educacional, para sus empleados y familias, mediante coordinación con las
-instituciones públicas respectivas.
+ARTÍCULO 21.- Además de los incentivos fiscales, antes indicados, las empresas establecidas en las Zonas Francas podrán solicitar a la empresa administradora de cada una de ellas o a la Corporación(*), los siguientes beneficios:
+(*)(Nota: Estas facultades y deberes corresponden ahora a la Promotora de Comercio Exterior PROCOMER, según el artículo 13, inciso a), de la Nº 7638 de 30 de octubre de 1996)
+a) Asistencia para el entrenamiento, coordinada por el Instituto Nacional de Aprendizaje (INA), para empleados y aspirantes a empleados de las empresas establecidas en las zonas francas.
+Las empresas ubicadas en zonas francas, en regiones de menor desarrollo relativo, podrán acogerse al Programa nacional para la generación de empleo del Ministerio de Trabajo y Seguridad Social, para capacitar y brindar trabajo a las personas desempleadas, las subempleadas y las de bajos ingresos de su zona, según se defina en el reglamento que elaborarán, conjuntamente, los Ministerios de Comercio Exterior y de Trabajo y Seguridad Social.
+El Ministerio de Trabajo y Seguridad Social y las empresas suscribirán un convenio que deberá ajustarse a las siguientes disposiciones:
+1.- La capacitación, el entrenamiento o el reentrenamiento tendrá un plazo de tres meses, prorrogable por un período igual, cuando la complejidad o la intensidad del proceso lo ameriten, a juicio del Ministerio de Trabajo y Seguridad Social, previo informe del Ministerio de Comercio Exterior.
+2.- La capacitación estará a cargo de la empresa que se acoja a este beneficio, la cual pondrá a disposición del aprendiz las instalaciones, la maquinaria y el equipo necesarios para capacitarlo. Los cursos serán supervisados por el Instituto Nacional de Aprendizaje, de conformidad con los lineamientos que se establezcan en el convenio respectivo.
+3.- El Ministerio de Trabajo y Seguridad Social otorgará al aprendiz un subsidio mensual, con cargo al fondo del Programa, durante todo el período de capacitación. El monto de ese subsidio será equivalente al salario mínimo mensual.
+Por tratarse de un incentivo a la formación técnica, el pago no generará ninguna relación laboral ni otros efectos legales.
+4.- La empresa estará obligada a contratar al aprendiz, una vez capacitado o entrenado, siempre y cuando resulte idóneo, en los términos establecidos en el convenio respectivo.
+( Así reformado el inciso a) anterior por el artículo 1º de la ley Nº 7467 de 20 de diciembre de 1994)
+b) Asistencia en la selección del personal que han de emplear en estas empresas. Se coordinarán las actividades de selección con el Instituto Nacional de Aprendizaje, el Ministerio de Trabajo y Seguridad Social, gremios laborales y otras instituciones locales y estatales.
+c) Asistencia y asesoramiento en sus requerimientos y necesidades ante las instituciones gubernamentales y privadas.
+ch) Asistencia en cuanto a vivienda y necesidades de carácter educacional, para sus empleados y familias, mediante coordinación con las instituciones públicas respectivas.
