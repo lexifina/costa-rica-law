@@ -1,0 +1,8 @@
+N° 4
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+Artículo 1°-Se aprueba el convenio celebrado entre el Poder Ejecutivo y la Municipalidad de Barba que contempla las cláusulas siguientes:
+1°-El Estado indemnizará a la Municipalidad de Barba por el traspaso de todo derecho que ella pudiera tener sobre las fuentes llamadas de “Las Pérez” y en cantidad de 27 litros por segundo que es el volumen calculado para llenar la necesidad de la cañería de Santo Domingo con la suma de treinta y cinco mil colones (¢35,000-00). El derecho de tal cantidad de agua el Municipio lo traspasa al Estado indefinidamente para la cañería de Santo Domingo. Como del estudio de la Dirección General de Obras Públicas resulta que en tiempo de sequía las referidas fuentes dan 47 litros por segundo, la diferencia de volumen sobre lo que se toma puede seguir llenando las necesidades de servidumbres establecidas.
+Pero es entendido que quedan a salvo los derechos de la concesión otorgada por la Municipalidad de Barba en favor de don Mario Zuñiga Pagés por el artículo V de la sesión de 1° de marzo de 1929, de una paja de agua de veinticinco milímetros para abastecer su casa de habitación y lechería establecidas en San José de la Montaña.
+2°-Loss treinta y cinco mil colones o valores del Estado que los representen serán depositados en el Banco Internacional a la orden de la Municipalidad de Barba con el plazo de un año a partir de la fecha de la ejecución de esta ley, reconociendo el interés legal del seis por ciento, para ser invertidos en obras de fomento de la localidad, pero de acuerdo y bajo el control del Poder Ejecutivo.
+3°-Del tubo madre de la conducción de aguas a Santo Domingo, el Estado establecerá un ramal de cañería para el distrito de Santa Lucía.
