@@ -1,0 +1,1 @@
+Artículo 37.—Facultad. Únicamente el jefe o titular del Despacho que conoce la causa y a cuyo nombre se encuentra el o los depósitos, está autorizado para ordenar girar contra la cuenta corriente respectiva.

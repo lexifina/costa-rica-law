@@ -1,0 +1,2 @@
+Artículo 26.—Procedencia. Cuando dentro de un proceso o causa una dependencia judicial recibiese valores como los descritos en el artículo anterior, será obligación del auxiliar judicial o de contabilidad, a cuyo cargo está el expediente, preparar un inventario en original y dos copias y hacer el traslado de inmediato al Banco, a través del correspondiente depósito.
+Queda prohibido guardar o custodiar en escritorios o archivadores valores como los descritos en el artículo anterior, los que obligatoriamente deberán depositarse en el Banco.

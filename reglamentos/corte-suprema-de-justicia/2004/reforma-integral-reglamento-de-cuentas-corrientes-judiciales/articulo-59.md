@@ -1,0 +1,1 @@
+Artículo 59.—Supervisión. Sin perjuicio de la función que le compete a la Auditoría Judicial y a la Unidad o Subunidad Administrativa Regional, la cuenta corriente judicial estará bajo la supervisión inmediata de la Sección de Control de Ingresos y Egresos Judiciales del Departamento Financiero Contable, a quien corresponde dictar las directrices respecto de su control y manejo.

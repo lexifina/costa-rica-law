@@ -1,0 +1,2 @@
+Artículo 40.—Responsabilidad. Cualquier sobregiro o faltante que se produzca en cuenta corriente del despacho, deberá cubrirse tan pronto como se detecte, por los funcionarios responsables que ordenaron el egreso.
+En aquellos casos en que se determine que alguno de los citados funcionarios actuó con dolo o culpa grave o indujo a otro a cometer el error, el faltante deberá ser cubierto por el primero, sin perjuicio de las correcciones disciplinarias que correspondan y de la responsabilidad civil y penal que le pudieran caber.

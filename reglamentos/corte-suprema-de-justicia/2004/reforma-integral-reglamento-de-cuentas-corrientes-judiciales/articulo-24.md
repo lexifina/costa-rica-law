@@ -1,0 +1,1 @@
+Artículo 24.—Rehabilitación. Cuando los cheques u órdenes de pago fueren anulados, corresponde habilitar nuevamente la constancia de depósito que les daba el sustento económico y pasarla al control y custodia de las boletas activas. Esta situación en todos los casos debe comunicarse a las dependencias relacionadas con dicho depósito.

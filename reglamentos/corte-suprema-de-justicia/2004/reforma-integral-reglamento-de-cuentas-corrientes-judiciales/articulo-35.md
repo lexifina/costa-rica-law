@@ -1,0 +1,1 @@
+Artículo 35.—Giros sucesivos. Cuando sea necesario girar hasta completar una determinada suma o en forma continua como en pensiones alimentarias, alquileres y juicios ejecutivos, así se indicará en la resolución, de manera que no se haga necesario dictar otras resoluciones, cada vez que ingresen nuevos depósitos. Esta resolución será el fundamento de los cheques sucesivos.

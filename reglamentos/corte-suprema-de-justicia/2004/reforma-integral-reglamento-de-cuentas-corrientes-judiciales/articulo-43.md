@@ -1,0 +1,1 @@
+Artículo 43.—Procesos de Pensiones Alimentarias. Tratándose de los procesos de pensiones alimentarias, en los cuales las oficinas administrativas giran los depósitos sin que medie una nueva orden de confección de cheque, los sobregiros que se presenten deberán restituirlos en forma solidaria los funcionarios que giran el cheque.
