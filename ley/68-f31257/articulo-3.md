@@ -1,0 +1,1 @@
+Art. 3°-Se autoriza á la compañía que se forme para levantar un capital de un millón doscientas cincuenta y cinco mil libras esterlinas, de acuerdo con l cláusula 102 del contrato de 5 de abril citado.

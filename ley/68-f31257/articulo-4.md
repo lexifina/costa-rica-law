@@ -1,0 +1,2 @@
+Art. 4°-La compañía que se organice tendrá el pleno manejo del capital que se levante, pero no se pagará al contratista del ferro-carril trabajo alguno ejecutado en Costa-Rica, si no es con presencia del certificado del Ingeniero de la compañía, visado y aprobado por el Ingeniero del Gobierno de Costa-Rica.
+Dado en San José, en el Palacio Presidencial, a los diez y seis días de octubre de mil ochocientos - chenta y cinco. -BERNARDO SOTO.-El Secretario de Estado en el despacho de Hacienda,-MAURO FERNÁNDEZ.
