@@ -1,0 +1,1 @@
+Artículo 2°-La suma aquí autorizada se cubrirá en la siguiente forma: quince mil colones ₵15,000. 00) se tomarán de los fondos del distrito de San Rafael, Sección Norte y Sur, y quince mil colones ( (₵ 15,000. 00) de la Partida de Obras del Presupuesto Municipal.
