@@ -1,0 +1,1 @@
+Artículo 2°—Los valores suministrados de las coordenadas según cuadrícula Lambert Costa Rica Sur de los linderos supracitados, corresponden a valores aproximados, por lo que en el campo deberán ser respetados los linderos descritos por los planos catastrados que en cada caso fueron citados.

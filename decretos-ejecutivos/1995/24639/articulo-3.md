@@ -1,0 +1,1 @@
+Artículo 3°—El manejo y aprovechamiento de la vida silvestre estará sujeto a un plan de manejo aprobado por la Dirección General de Vida Silvestre. La ejecución del plan de manejo será supervisado por la Dirección General de Vida Silvestre quien podrá señalar disposiciones técnicas y científicas futuras que deberán ser seguidas por los propietarios.
