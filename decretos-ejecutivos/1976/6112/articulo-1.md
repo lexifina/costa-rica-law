@@ -14,31 +14,63 @@ Punto | Coord. Vert. | Coord. Horiz. | Distancia. Mts
 2 | 523000 | 192000 | 5.000
 3 | 526000 | 188000 | 8.000
 Tiene una extensión aproximada de 4.000 Has.
-(*) Cerro la Carpintera: Límites de esta área dentro de las linderos definidas a continuación según las hojas cartográficas Patarrá, Carpintera, Ochomogo y Curridabat Edición 1 IGNCR, Escala 1: 10.000, señaladas por la descripción que a continuación se detalla.
-Partiendo de un punto de coordenadas 206.000 N 533.000E (punto 1) para continuar con líneas rectas uniendo las vértices cuyas coordenadas a continuación se detallan:
-206.000 N 540.000 E (2)
-208.000 N 543.000 E (3)
-209.000 N 541.000 E (4)
-208.400 N 537.000 E (5)
-208.000 N 534.000 E (6)
-208.910 N 534.000 E (7) Sobre el límite provincial Cartago San José
-Prosigue por el límite provincial con rumbo noreste hasta su intersección con "el Río Tiribí, punto coordenadas 208.920 N 534,050 E (8). continuando por la margen derecha, aguas abajo del Río Tiribí hasta el punto de coordenadas 209.200 N, 533.880 E (9) continuando el limite por las vértices con coordenadas.
-209.180 N 533.870 E (10)
-209.150 N 533.880 E (11)
-209.060 N 533.890 E (12)
-209.030 N 533.800 E (13)
-208.940 N 533.780 E (14)
-Puntos estos del (10) al (14) que describen en forma general la línea de vegetación que indica la cartografía.
-Del último punto (14) descrito y ubicada sobre la margen derecha de un camino público que conduce al pablado llamada Quebradas; prosigue por ese camino hasta la intersección con el limite provincial el cual sigue hasta su intersección con un camino de tierra, pasa en un punto de coordenadas 208.770 N 533.710 E (15) continuando por este camino hasta su intersección con una línea de vegetación que indica la cartografía en el punto 208.890 N. 533.710 E. (16). Sigue por esa línea de vegetación pasando por los puntos de coordenadas.
-208.820 N 533.590 E (7)
-208.920 N 533.560 E (18)
-208.960 N 533.580 E (19)
-208.995 N 533.565 E (20)
-208.990 N 533.520 E (21)
-208.970 N 533.480 E (22)
-209.010 N 533.360 E (23) (límite relleno sanitaria Río Azul)
-Del punto (23) sigue por el límite del relleno que según la cartografía es una vereda hasta un punto de coordenadas 209.100 N.533.150 E. (24) siguiendo por la carretera sin pavimento hacia el Norte hasta el punto de coordenadas 209.150 N. 533.170 E (25). Se une can líneas rectas ese punta con el de coordenadas 209.190 N., 533.020 E. (26) y de igual manera a este con el de coordenadas 209.280 N. 532.975 E. (27) y 209.300 N. 532.980 E. (28). De este punto 28 continúa por la margen izquierda del mismo con rumbo noroeste hasta su final según cartografía, prosiguiendo su alineamiento hasta e] punto de coordenadas 209.390 N. 532.910 E. (29) luego uniendo este con el de coordenadas 209.370 N. 532.890 E. (30) ubicado sobre la curva de nivel de los 1265 m.s.n.m. por la que sigue con rumbo general sur, hasta su intersección can el límite cantonal en el punta coordenadas 209.100 N. 532.940 E (31) por el que sigue hasta su intersección con una vereda. 209.090 N. 532.970 E. (32) esta que delimita el relleno sanitario y por la que continúa el limite hasta su intersección con un brazo de la Quebrada Azul en el punto de coordenadas 208.890 N. 532.900 E. (33) continuando por la vereda hasta su intersección de nuevo con el Brazo de la Quebrada Azul, en el punto de coordenada 208.720 N 532.710 E. (34), continuando aguas abajo por este brazo de la Quebrada Azul hasta su intersección con otro afluente de la Quebrada; siguiendo hasta su naciente en el punto de coordenadas 208.470 N. 532.780 E. (35) para continuar por la vereda indicada y que se une con la carretera sin pavimento en el punto de coordenadas 208.410 N. 532.785 E, (36). Par este camina sin pavimento continúa hasta la intersección en el punto de coordenadas 208.370 N,532.770 E, (37) con otro camino por el que continúa hasta su intersección con otra vereda en el punto de coordenadas 208.420 N. 532.945 E. (38). De esta intersección prosigue por la vereda hasta el punto de coordenadas 208.420 N, 533.000 E, (39) Continúa en línea recta hasta unirse con el punta 206.000 N. 533.000 E (40) punto inicial de la presente descripción.
-(*)(La reforma practicada a esta zona por el artículo 1° del decreto ejecutivo N° 21837 del 22 de diciembre de 1992, posteriormente fue dejado sin efecto por el artículo 5° del decreto ejecutivo N° 23315 del 12 de mayo de 1994. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma).
+(*) Cerro la Carpintera: Límites de esta área dentro de los linderos definidos a continuación según las hojas cartográficas Patarrá, Carpintera, Ochomogo Edición 1 IGNCR, Escala 1: 10.000, señalados por la des cr ipción que a continuación se detalla.
+Partiendo de un punto de coordenadas 206 000 N, 533.000 E (punto 1) se sigue la siguiente des cr ipción:
+4 210 metros al este franco, coordenadas 206.000 N 537 210 E (punto 2); En este punto se interseca la carretera Coris – Patarrá. A partir de aquí se continúa por esta carretera con rumbo general noroeste hacia Patarrá hasta la intersección con las coordenadas 206.380 N 536.610 E.(punto 3) A continuación se sigue un rumbo N 20 O y una distancia de 120 metros hasta la intersección de las coordenadas 206.490 N 536.570 E.(punto 4) Continúa con rumbo N 33 E y una distancia de 119 metros hasta la intersección de las coordenadas 206.590 N 536.635 E (punto 5) y se llega al camino de lastre que viene desde Patarrá hacia el Alto de Coris. Se continúa por este camino siguiendo una curva cerrada hasta la intersección de las coordenadas 206.620 N 536.780 E (punto 6) Se continúa con rumbo N 58 E una distancia de 37.7 ,metros hasta la intersección de las coordenadas 206.640 N 536.812 E que coincide con el cauce superior del brazo izquierdo de la Quebrada Barahona, (punto 7) A partir de este punto se sigue aguas abajo del brazo izquierdo de la Quebrada Barahona hasta la confluencia con el brazo derecho de esta misma quebrada, en la intersección de las coordenadas 206.450 N 537.320 E, (punto 8) De este punto se continúa en dirección general sureste, aguas abajo de la Quebrada Barahona hasta el VADO que se ubica en el cr uce de un camino lastreado con la quebrada, en la intersección de las coordenadas 206.055 N 537.730 E, (punto 9). Se continúa siempre por el camino de lastre con un rumbo S 61 E y una distancia de 62.6 metros hasta la intersección de las coordenadas 206.000 N 537.760 E, (punto 10). Se continúa hacia el este franco por la coordenada 206.000 una distancia de 1133.13 metros hasta la intersección con las coordenadas 206.000 N 538.893,135 E. (punto 11). A partir de este punto se sigue el siguiente derrotero el cual corresponde al retroazimut, según la des cr ipción siguiente:
+DERROTERO
+PUNTO | AZIMUT | DISTANCIA
+| Grados | Minutos-Seg. | Metros
+11-12 | 150 | 05.8 | 9.70
+12-13 | 211 | 02.6 | 34.72
+13-14 | 184 | 46.3 | 36.45
+14-15 | 146 | 10.3 | 13.64
+15-16 | 209 | 47.8 | 30.87
+16-17 | 151 | 51.4 | 11.31
+17-18 | 219 | 51.0 | 29.50
+18-19 | 159 | 53.3 | 13.72
+19-20 | 222 | 31.5 | 30.23
+20-21 | 270 | 56.7 | 13.52
+21-22 | 223 | 34.1 | 10.31
+22-23 | 132 | 14.1 | 122.27
+23-24 | 130 | 40.4 | 124.64
+24-25 | 130 | 57.5 | 21.03
+25-26 | 112 | 40.0 | 21.36
+26-27 | 201 | 59.4 | 41.96
+27-28 | 212 | 48.7 | 36.94
+28-29 | 203 | 43.6 | 42.39
+29-30 | 211 | 31.2 | 34.25
+30-31 | 90 | 00.0 | 595.15
+31-32 | 319 | 52.2 | 27.43
+32-33 | 11 | 30.3 | 48.93
+33-34 | 350 | 34.7 | 69.85
+34-35 | 346 | 37.1 | 47.90
+35-36 | 359 | 10.0 | 87.62
+36-27 | 29 | 57.2 | 29.30
+37-38 | 9 | 22.6 | 10.47
+38-39 | 49 | 15.9 | 25.50
+39-40 | 36 | 11.6 | 14.86
+40-41 | 4 | 27.8 | 13.30
+41-42 | 274 | 21.9 | 48.12
+42-43 | 307 | 27.5 | 20.27
+43-44 | 276 | 51.8 | 127.20
+44-45 | 34 | 21.5 | 73.24
+45-46 | 33 | 50.6 | 59.68
+46-47 | 29 | 59.7 | 23.28
+| | | | |
+Hasta la intersección con las coordenadas 206.000 N 539.474,080 E (punto 47). A partir de este punto se sigue rumbo este franco sobre la coordenada 206.000 N una distancia de 525.92 metros hasta la intersección de las coordenadas 206.000 N 540.000 E (punto 48).
+De este punto se sigue la siguiente descripción:
+Rumbo | Distancia | Coordenadas | Punto
+| (metros) | N E |
+N 56°18’ 36” E | 3.605.55 | 208.000 | 543.000 | 49
+N 63° 26’6” O | 2.236.07 | 209.000 | 541.000 | 50
+Oeste franco | 3.600.00 | 209.000 | 537.400 | 51
+Sur franco | 600 | 208.400 | 537.400 | 52
+Oeste franco | 3.400.00 | 208.400 | 534.000 | 53
+Norte franco | 600 | 209.000 | 534.000 | 54
+Oeste franco | 1.000.00 | 209.000 | 533.000 | 55
+| | | | | | |
+A continuación se sigue al sur franco una distancia de 3 000 metros hasta la intersección de las coordenadas 206.000 N y la 533.000 E y se llega al punto de partida (punto 1) cerrando la poligonal.
+(*) (Así reformado por el artículo 1° del decreto ejecutivo N° 29278 del 15 de enero del 2001)
 Río Tiribí: Hoja Istarú 3445 IV. En las Coordenadas Lambert.
 Punto | Coord. Vert. | Horizontal | Distancia M
 0 | 539000 | 213000 | 1.800
@@ -66,8 +98,8 @@ Punto | Coord. vertical | Coord. horizontal | Distancia metros
 14 | 517000 | 202000 | 1000 m.
 Área aproximada: 7 060 hectáreas.
 (*) (Así reformado por el por el artículo 1° del decreto ejecutivo N° 14672 del 20 de junio de 1983)
-(*) El Rodeo: Hoja Abra 3345 I y Río Grande 3345 IV. El área cubierta por las siguientes coordenadas Lam
-(*)(Mediante decreto ejecutivo N° 12368 del 26 de febrero de 1981, se dejo sin efecto la Zona Protectora el Rodeo, posteriormente el decreto ejecutivo N° 12368 fue derogado por el artículo 4° del decreto ejecutivo N° 12608 del 12 de mayo de 1981. Se advierte que dicha derogación no se ha aplicado a esta zona, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver ésta al estado anterior a dicha derogación)
+(*)El Rodeo: Hoja Abra 3345 I y Río Grande 3345 IV. El área cubierta por las siguientes coordenadas Lam
+(*) (Nota de Sinalevi: Mediante decreto ejecutivo N° 12368 del 26 de febrero de 1981, se dejó sin efecto el Decreto Ejecutivo 6112-A de 23 de junio de 1976, únicamente en cuanto a El Rodeo, Hoja Abra 3345-1 y Río Grande 3345 IV, de la Zona Protectora El Rodeo. Posteriormente, dicho decreto ejecutivo afectante N° 12368 fue derogado por el artículo 4° del decreto ejecutivo N° 12608 del 12 de mayo de 1981. Se advierte que dicha derogación no se ha aplicado a esta zona, debido a que el decreto de derogación de mayo de 1981 no indica expresamente si, como consecuencia, debe volver aquélla al estado anterior a dicha derogación)
 Río Grande: Hoja Naranjo 3346 III. Ubicado dentro de las siguientes coordenadas Lambert.
 0 | 491000 | 222000 | 5.100
 1 | 492000 | 227000 | 2.00
