@@ -16,3 +16,4 @@ Reglamento de la Ley para el Equilibrio Financiero del Sector Público
 | 1 | 1991-10-01 | la propia norma |
 | 2 | 1991-11-13 | Decreto Ejecutivo 20852 (1991-11-13) |
 | 3 | 1992-02-13 | Decreto Ejecutivo 21105 (1992-02-13) |
+| 4 | 1992-04-23 | Decreto Ejecutivo 21242 (1992-04-23) |
