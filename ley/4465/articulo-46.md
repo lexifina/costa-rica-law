@@ -1,5 +1,6 @@
-Artículo 46.- Las licitaciones para la explotación de productos
-forestales, se efectuarán de acuerdo a los planes técnicos de manejo
-forestal, realizados por la Dirección General Forestal. El cartel de la
-licitaciones será formado en cada caso por la mencionada Dirección, de
-acuerdo con las disposiciones legales que rigen en esta materia.
+Artículo 46.- Se declara de interés público la existencia del
+inventario forestal, con el objeto de planificar adecuadamente la
+protección, el fomento y el aprovechamiento racional de los recursos
+forestales.
+La realización de este inventario se hará paulatinamente, a medida que
+los medios de la Dirección General Forestal lo permitan.

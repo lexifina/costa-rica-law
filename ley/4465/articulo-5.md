@@ -1,3 +1,4 @@
-Artículo 5º.- Son bosques todos los terrenos cubiertos de
-asociaciones vegetales, compuestas predominantemente de árboles y de otra
-vegetación leñosa.
+Artículo 5.- Para los efectos de esta ley, se consideran terrenos de
+aptitud forestal, aquellos contemplados en las clases señaladas por la
+Dirección General Forestal, según la metodología de clasificación de
+tierras que se declare como oficial.

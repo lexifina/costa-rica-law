@@ -1,10 +1,9 @@
-Artículo 20.- El Poder Ejecutivo traspasará al Instituto de Tierras
-y Colonización (ITCO), aquellas tierras que sean declaradas por el
-Ministerio de Agricultura y Ganadería como de aptitud agrícola. En los
-estudios para los fines especificados de calificación de los terrenos, se
-les dará audiencia obligada a la Dirección General Forestal y al Instituto
-de Tierras y Colonización. Los terrenos que según la calificación, sean
-de aptitud forestal, el Estado los conservará como parte de su patrimonio
-forestal, pero podrá traspasar al ITCO o a otras entidades, terrenos de
-aptitud forestal, cuando se dediquen a establecer en ellos colonias para
-la explotación forestal.
+Artículo 20.- Se crea un impuesto general forestal equivalente al diez
+por ciento (10%) del valor de cada metro cúbico de madera en pie,
+inventariada en los aprovechamientos que se realicen en cualquier predio,
+ya sea de los organismos de la Administración Pública o de los privados,
+inscritos o no. Este impuesto deberá pagarse previamente a la corta y
+extracción. Por los productos que provengan de plantaciones que se hayan
+realizado totalmente con recursos propios y que no se hayan beneficiado del
+incentivo fiscal para la reforestación y del certificado de abono forestal,
+no se pagará el impuesto general forestal.

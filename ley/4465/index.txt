@@ -1,4 +1,3 @@
-articulo-2-transitorio.md
 articulo-1.md
 articulo-2.md
 articulo-3.md
@@ -109,3 +108,19 @@ articulo-107.md
 articulo-108.md
 articulo-109.md
 articulo-110.md
+articulo-111.md
+articulo-112.md
+articulo-113.md
+articulo-114.md
+articulo-115.md
+articulo-116.md
+articulo-117.md
+articulo-118.md
+articulo-119.md
+articulo-120.md
+articulo-121.md
+articulo-122.md
+articulo-123.md
+articulo-124.md
+articulo-125.md
+articulo-126.md

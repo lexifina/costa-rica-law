@@ -1,5 +1,10 @@
-Artículo 83.- Se entenderá por zonas protectoras, aquellas áreas de
-bosques o terrenos forestales que, establecidas por disposiciones de la
-ley o por decreto del Poder Ejecutivo, sean destinadas a proteger los
-suelos, mantener y regular el régimen hidrológico, o actúen como agentes
-reguladores del clima o medio ambiente.
+Artículo 83.- Los certificados de abono forestal los entregará la
+Dirección General Forestal a solicitud del interesado, previa comprobación
+del eficiente cumplimiento del plan de manejo forestal por parte de los
+técnicos, quienes, en cada caso, tendrán que rendir el informe
+correspondiente. No obstante lo anterior, la Dirección General Forestal,
+también a requerimiento del interesado, podrá, en casos justificados,
+extender certificados por adelantado, posteriormente a que la misma
+Dirección haya aprobado las inversiones por realizar, previa garantía que
+deberá rendir el interesado, a satisfacción de la Dirección General
+Forestal y de la Dirección General de la Tributación Directa.

@@ -1,3 +1,4 @@
-Artículo 76.- Una vez creado un parque nacional, no será segregada
-parte alguna de él para objetivos distintos, sin la previa aprobación de
-la Asamblea Legislativa.
+Artículo 76.- Las medidas restauradoras que se adopten como
+consecuencia de los incendios forestales que hayan destruido la riqueza
+forestal, serán reguladas en un plan especial y urgente que al efecto se
+elaborará.

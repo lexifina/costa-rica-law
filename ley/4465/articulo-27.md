@@ -1,5 +1,7 @@
-Artículo 27.- Las zonas declaradas Parques Nacionales, Reservas
-Forestales y Reservas Biológicas, las hará inscribir el Poder Ejecutivo en
-el Registro Público como fincas individualizadas de propiedad del Estado,
-por medio de la Procuraduría General de la República, lo mismo que las
-zonas protectoras situadas en la propiedad agrícola del Estado.
+Artículo 27.- Los ingresos provenientes de los impuestos mencionados
+anteriormente se depositarán en la cuenta especial del Fondo Forestal; se
+recaudarán mediante la cancelación de los timbres forestales emitidos por
+el Banco Central de Costa Rica, o mediante enteros pagados a favor del
+Fondo Forestal, en alguna de las instituciones del Sistema Bancario
+Nacional. Estos fondos serán distribuidos por la Dirección General
+Forestal, de acuerdo con lo estipulado en el artículo 21.

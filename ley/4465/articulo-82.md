@@ -1,4 +1,26 @@
-Artículo 82.- La Dirección General Forestal brindará toda
-colaboración en defensa de los bosques y terrenos forestales de propiedad
-particular, voluntariamente sometidos al régimen forestal, a fin de
-mantenerlos libres de invasiones y ocupantes.
+CAPITULO III
+De los incentivos para el manejo y reglamentación de los
+bosques y terrenos forestales de dominio particular
+Artículo 82.- Créase el certificado de abono forestal, el cual será
+confeccionado, expedido y suscrito por la Dirección General Forestal, por
+el valor de las inversiones que por reglamento se determinarán,
+realizadas anualmente en un inmueble de aptitud preferentemente forestal
+-o parte de éste- de dominio particular, sometido al régimen forestal
+voluntario, con estricto acatamiento del respectivo plan de manejo
+forestal, una vez firmado el contrato correspondiente con el Estado, el
+que estará representado Ministro de Ambiente y Energía. Quedan excluidas
+de la anterior disposición las parcelas dedicadas a la recreación y las
+segregaciones en que, de acuerdo con el criterio de la citada Dirección,
+se contravengan los propósitos del respectivo plan de manejo, así como
+las plantaciones de especies frutales o, en general, cuando el fin
+principal no sea la utilización de la madera. Los certificados de abono
+forestal son títulos valores nominativos que podrán ser negociados o
+utilizados para pagar todo tipo de impuestos, tasas nacionales y
+municipales, o cualquier otro tributo. La tierra con bosque, e
+individualmente el árbol en pie, que sean propiedad de particulares,
+servirán para garantizar préstamos hipotecarios y prendarios,
+respectivamente, ante los bancos del Sistema Bancario Nacional. La forma
+en que operará la garantía prendaria constituida por el árbol en pie, se
+determinará y regulará, por reglamento.
+(Así modificado del nombre del Ministerio por el artículo 116 de la
+Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)

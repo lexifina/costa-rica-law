@@ -1,6 +1,6 @@
-CAPITULO II
-De la Administración Forestal
-Artículo 7º.- El Ministro de Agricultura y Ganadería realizará sus
-funciones a través de la Dirección General Forestal; los funcionarios y
-empleados de la Dirección General Forestal serán designados de conformidad
-con las disposiciones del Estatuto del Servicio Civil.
+Artículo 7.- Se entiende por régimen forestal el conjunto de
+disposiciones, entre otras, de carácter jurídico, económico y técnico,
+establecidas por esta ley, su reglamento y demás normas y actos derivados
+de su aplicación, que regulen la conservación, la renovación, el
+aprovechamiento y el desarrollo de los bosques y de los terrenos de aptitud
+forestal del país.

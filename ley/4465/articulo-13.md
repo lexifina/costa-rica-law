@@ -1,10 +1,8 @@
-Artículo 13.- Para el cumplimiento de sus atribuciones, los
-funcionarios de la Dirección Forestal tienen derecho de transitar y
-practicar inspecciones en cualquier fundo rústico, con excepción de las
-casas de habitación, y los propietarios de esos fundos estarán obligados
-a prestar la colaboración necesaria. Asimismo, podrán proceder al
-decomiso de vehículos, instrumentos, armas y utensilios empleados en
-actividades prohibidas por la presente ley, así como las maderas y demás
-productos forestales explotados ilícitamente. En todos estos casos, se
-presentará la denuncia correspondiente ante la autoridad competente y de
-haber material decomisado, será puesto a la orden de ella.
+Artículo 13.- Los respectivos funcionarios de la Dirección General
+Forestal y de las correspondientes municipalidades, tendrán carácter de
+autoridad de policía y, como tal, deberán denunciar ante las autoridades
+competentes las infracciones cometidas según la presente ley. La Guardia
+de Asistencia Rural y las demás autoridades de policía estarán obligadas a
+prestar su colaboración a los funcionarios de la Dirección General Forestal
+y de las municipalidades, cada vez que éstos la requieran para cumplir
+cabalmente con las funciones y deberes que esta ley les impone.

@@ -1,7 +1,11 @@
-CAPITULO V
-De los Aprovechamientos Forestales en Terrenos de Propiedad Privada
-Artículo 63.- Los propietarios de bosques y terrenos forestales que
-voluntariamente deseen acogerse al Régimen Forestal, tal como lo señala el
-artículo 6º de esta ley, deberán presentar una solicitud a la Dirección
-General Forestal, la cual los inscribirá en un registro especial llevado
-al efecto.
+Artículo 63.- Los propietarios privados de bosques y terrenos
+forestales que voluntariamente deseen acogerse al régimen forestal, deberán
+solicitarlo a la Dirección General Forestal, la cual, si procediere, los
+inscribirá en un registro especial que llevará al efecto, una vez cumplidos
+los requisitos reglamentarios. Estos bosques sólo podrán aprovecharse
+mediante un plan de manejo, cuya preparación correrá por cuenta del
+interesado.
+Los bosques y terrenos forestales sometidos voluntariamente al régimen
+forestal e inscritos por la Dirección General Forestal, estarán exentos del
+pago del impuesto territorial y del de tierras incultas que se establece en
+la Ley de Tierras y Colonización, No. 2825 del 14 de octubre de 1961.
