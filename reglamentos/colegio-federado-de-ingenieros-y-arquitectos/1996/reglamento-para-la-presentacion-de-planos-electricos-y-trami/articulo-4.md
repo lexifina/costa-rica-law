@@ -1,0 +1,12 @@
+CAPITULO 4
+Procedimiento para la conexión de servicios eléctricos
+4.1 En el momento de presentarse los planos en la Comisión Revisora, se debe indicar el nombre y la aceptación del profesional encargado de la inspección del proyecto.
+4.2 Con la aprobación de los planos del proyecto, el CFIA entregará una nota donde se indica el nombre del o de los profesionales que elaboró el diseño y el encargado de la inspección eléctrica, así como los datos del proyecto y la carga eléctrica del mismo. Este documento servirá para que con una fotocopia del mismo, se solicite la conexión provisional del servicio y posteriormente con el original se solicite el servicio definitivo, de acuerdo al procedimiento que seguidamente se indica.
+4.3 El CFIA elaborará y entregará a los profesionales interesados un talonario con original y dos copias para que el propietario del proyecto pueda realizar los trámites para la conexión del servicio eléctrico. El original se compone de dos tantos: uno para el trámite del servicio provisional y otro para el trámite del servicio definitivo. La copia N° 1 se deberá devolver al CFIA junto con el libro Bitácora de la obra y la copia N°2 será para el profesional.
+4.4 El profesional encargado de la Inspección entregará al propietario de la obra el primer tanto del documento junto con una fotocopia de documento indicado en el punto 4.2, donde el CFIA indica que él es el responsable.
+4.5 Cuando la construcción de la instalación eléctrica está concluida, el profesional así lo deberá indicar en el libro bitácora y a partir de entonces podrá entregarle al propietario el segundo tanto del original del talonario junto con el documento original indicado en el punto 4.2 para que realice el trámite de conexión del servicio definitivo.
+4.6 Todos estos procedimientos deberán hacerse para las obras mayores y para las obras menores.
+4.7 El CFIA será en última instancia quien decida sobre el tipo de obra que se trate.
+4.8 Cuando por alguna razón no se requiera el servicio provisional, el trámite se podrá hacer ignorando el primer trámite para la conexión definitiva.
+4.9 Cuando por alguna razón profesional encargado de la inspección no continúe en el proyecto, esta deberá enviar su renuncia al CFIA junto con la aceptación del otro profesional que continuará en el proyecto. El CFIA extenderá un nuevo documento al indicado en el punto 4.2 para que pueda continuarse con los trámites.
+4.10 En casos de modificación en los planos originales, el profesional deberá entregar al cliente un juego de planos finales.
