@@ -1,2 +1,0 @@
-Artículo 17.—De la revocatoria del permiso: Revocado el permiso de acuerdo al procedimiento aquí indicado, las personas contra quienes se haya emitido la resolución no podrán ser titulares de un nuevo permiso en el término de dos años, contados a partir del día en que quede firme la revocatoria.
-No se le permitirá el ingreso a las instalaciones con mercadería ni podrán pasar del Área Administrativa del puerto, ningún artesano o grupo, a quien se le haya revocado el permiso.

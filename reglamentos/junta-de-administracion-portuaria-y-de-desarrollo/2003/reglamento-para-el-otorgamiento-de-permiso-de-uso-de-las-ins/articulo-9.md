@@ -1,1 +1,0 @@
-Artículo 9º—Del canon por uso de las instalaciones: El canon por uso de las instalaciones, es una suma de dinero que se pagará por uso del área asignada. Dicho canon deberá pagarse al momento de ser asignado el puesto, y su monto es establecido conforme a las tarifas vigentes aprobadas por JAPDEVA y la ARESEP para uso de áreas portuarias, el cuál está sujeto a modificaciones.
