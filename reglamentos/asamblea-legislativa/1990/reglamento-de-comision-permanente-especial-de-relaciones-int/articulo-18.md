@@ -1,1 +1,2 @@
 ARTICULO 18: La autorización de pago de viáticos y gastos de representación a los integrantes de delegaciones o representaciones oficiales o no oficiales queda sujeta en todos sus extremos al Reglamento de Gastos de Viaje y Transporte para funcionarios públicos emitido por la Contraloría General de la República.
+(Así reformado mediante sesión N° 92 celebrada por el Directorio Legislativo, el 25 de abril del 2000)

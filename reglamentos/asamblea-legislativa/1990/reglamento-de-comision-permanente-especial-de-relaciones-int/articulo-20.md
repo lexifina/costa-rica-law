@@ -1,1 +1,2 @@
 ARTICULO 20: La autorización de pago de viáticos para integrantes de delegaciones o representaciones oficiales o no oficiales será aprobada por el Directorio previo informe de la Comisión de Relaciones Internacionales en que conste cuáles gastos cubren los organizadores, invitantes o auspiciadores de la actividad. Sólo serán aprobados viáticos para cubrir los gastos que no estén cubiertos por los organizadores o anfitriones de la actividad que origina la misión legislativa.
+(Así reformado mediante sesión N° 92 celebrada por el Directorio Legislativo, el 25 de abril del 2000)

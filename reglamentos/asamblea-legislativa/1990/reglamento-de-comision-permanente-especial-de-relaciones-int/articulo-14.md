@@ -1,1 +1,2 @@
 ARTICULO 14: Cada delegación o representación tendrá un jefe designado por el Directorio Legislativo que será responsable de que aquellas presenten el o los informes a que hace referencia el inciso f) del artículo 8 de este reglamento. El Jefe de Misión podrá recibir gastos de representación para atender actividades propias de su condición. A su regreso, deberá liquidar estos gastos contra factura.
+(Reformado mediante sesión N° 92 celebrada por el Directorio Legislativo, el 25 de abril del 2000)

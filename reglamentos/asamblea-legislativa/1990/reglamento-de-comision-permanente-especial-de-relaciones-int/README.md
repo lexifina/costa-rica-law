@@ -14,3 +14,4 @@ Reglamento de Comisión Permanente Especial de Relaciones Internacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-05-15 | la propia norma |
+| 2 | 2000-04-25 | Reglamento 92 (2000-04-25) |

@@ -1,1 +1,2 @@
 ARTICULO 15: Una vez aprobadas las Misiones Internacionales por el Directorio Legislativo, el Secretario de la Comisión comunicará por escrito al Ministerio de Relaciones Exteriores y Culto, el destino, objetivo y duración de las misiones con el propósito de que éste lo comunique a las respectivas instancias diplomáticas.
+(Reformado mediante sesión N° 92 celebrada por el Directorio Legislativo, el 25 de abril del 2000)
