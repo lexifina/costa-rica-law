@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicios y Ética para Agentes de Ventas del Sistema de
 | --- | --- | --- |
 | 1 | 1987-09-17 | la propia norma |
 | 2 | 2001-09-05 | Reglamento 5113 (2001-09-05) |
+| 3 | 2003-03-05 | Reglamento 5259 (2003-03-05) |
