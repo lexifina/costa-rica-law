@@ -1,1 +1,4 @@
-Artículo 7°—El Congreso Nacional de Educadores, o Directiva Central y las Directivas de las filiales actuando de cor estos dos últimos cuerpos en su caso y necesariamente por dos tercios de votos presentes entonces, pueden suspender y aun expulsar de la Asociación al miembro que no cumpla debidamente con sus obligaciones y al que por su conducta y procederes se haga acreedor a tal sanción, previas las comprobaciones del caso con intervención del interesado y en sesión privada.
+Articulo 7°—-Los bienes y los fondos de la Asociación estarán constituidos por :
+a) Las subvenciones que el fisco conceda;
+b) Las cuotas de los asociados; y
+c) Las donaciones que a favor de la Asociación se hagan.

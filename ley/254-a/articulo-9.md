@@ -1,5 +1,1 @@
-Capítulo IV
-Artículo 9°—Para el funcionamiento de la Asociación existen los siguientes cuerpos:
-a) Congreso Nacional de Educadores;
-b) Directiva Central, y
-c) Directiva de las filiales.
+Artículo 9°—-El Ministerio de Educación Pública reincorporará, sin perjuicio de sus derechos, a su función docente, a aquellos asociados que tengan que separarse de ésta para ocupar cargos en la Directiva Central, o funciones técnicas patrocinadas por la Asociación.

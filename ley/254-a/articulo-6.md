@@ -1,1 +1,5 @@
-Artículo 6°—Los asociados participan dentro de los fines de la Asociación de todas las ventajas de cualquier índole que de allí se deriven sin distinción alguna; y es obligación de ellos el estricto cumplimiento de estos estatutos y de las reglamentaciones internas por lo que hace a los cuerpos que la constituyen, debiendo procurar por todos los medios a su alcance que la Asociación progrese día con día y se mantenga con la dignidad que compete a los educadores.
+Articulo 6°—La Asociación estará compuesta por los siguientes organismos:
+a) Congreso Nacional de Educadores;
+b) Directiva Central ; y
+c) Filiales
+La integración, funcionamiento y atribuciones, serán los que .sus estatutos señalen.
