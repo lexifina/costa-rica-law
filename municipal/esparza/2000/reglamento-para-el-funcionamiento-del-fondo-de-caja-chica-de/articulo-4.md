@@ -1,0 +1,1 @@
+Artículo 4º—El monto del vale de caja chica podrá ser superior a la suma de ¢50.000,00 colones (cincuenta mil colones netos) y podrá ser ajustado por el Concejo Municipal a solicitud del Alcalde Municipal.
