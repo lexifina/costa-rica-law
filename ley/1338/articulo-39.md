@@ -1,5 +1,0 @@
-Artículo 39.-Autorízase al Ministerio de Obras Públicas actuando en nombre del Estado y por intermedio de la Procuraduría General de la República en caso de caminos públicos o vecinales, y a las Municipalidades si se tratare de calles, para enajenar o cambiar las orillas o secciones de caminos y calles que no sean necesarias para el servicio general o que queden sobrantes a consecuencia de la apertura o rectificación de esas vías.
-No podrá acordarse lo anterior sin previo avalúo de los terrenos por el perito que se designe.
-Esta autorización no faculta para enajenar orillas de caminos públicos, vecinales o calles, estrechándolos o desmejorándolos.
-La enajenación que se efectuar e en contravención a lo dispuesto aquí, será absolutamente nula.
-Esas contrataciones podrán hacerse extrajudicialmente si se tratare de cambio de lotes, y en la misma forma o judicialmente si fuere venta. La enajenación extrajudicial será hecha por el funcionario que se comisione al efecto mediante acuerdo del órgano respectivo.
