@@ -21,3 +21,4 @@ Tarifas Servicio Transbordo Puntarenas a Playa Naranjo
 | 6 | 1994-12-23 | Decreto Ejecutivo 23925 (1994-12-23) |
 | 7 | 1996-01-26 | Decreto Ejecutivo 24923 (1996-01-26) |
 | 8 | 1996-12-16 | Decreto Ejecutivo 25746 (1996-12-16) |
+| 9 | 1999-09-16 | Decreto Ejecutivo 28138 (1999-09-16) |
