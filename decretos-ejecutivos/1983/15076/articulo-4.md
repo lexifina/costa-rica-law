@@ -1,0 +1,1 @@
+Artículo 4°-La Secretaria Técnica de este Consejo será la Secretaria de Planificación Sectorial de Salud, la integrará un grupo especializado de apoyo técnico, constituido por funcionarios de las instituciones que conforman este Consejo, y sus funciones específicas serán las que le determine el Consejo.

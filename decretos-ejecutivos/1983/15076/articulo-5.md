@@ -1,0 +1,1 @@
+Articulo 5°-El Consejo se reunirá ordinariamente una vez por mes y extraordinariamente cada vez que sea convocada por su Presidente; el quórum de las sesiones lo formarán cuatro de sus miembros. En ausencia del Presidente, el Consejo actuará bajo la presidencia del Ministro de Trabajo y Seguridad Social.
