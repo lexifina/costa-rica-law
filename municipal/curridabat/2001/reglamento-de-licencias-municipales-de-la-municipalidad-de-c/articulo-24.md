@@ -1,0 +1,1 @@
+Artículo 24.—Esta Sección tendrá a su cargo las inspecciones y verificaciones que se requieran para cumplir con el ordenamiento jurídico vigente. Asimismo recomendará al Director del Departamento de Administración Financiera Municipal mediante un informe, la procedencia o improcedencia de otorgar la licencia solicitada.
