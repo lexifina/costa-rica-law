@@ -1,0 +1,1 @@
+Artículo 3º—La Junta Directiva instalará una Comisión de Seguimiento y Evaluación, compuesta por cinco miembros, la cual será la responsable de liderar y ejecutar el proceso de reestructuración y de cambio interno dentro del Consejo de Seguridad Vial, con arreglo a la legislación vigente.

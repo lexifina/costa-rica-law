@@ -1,0 +1,1 @@
+Transitorio Único.—La Comisión de Seguimiento y Evaluación, a que alude el artículo 3° del presente Decreto, deberá cumplir su cometido dentro del término improrrogable de doce meses contados a partir de su publicación.

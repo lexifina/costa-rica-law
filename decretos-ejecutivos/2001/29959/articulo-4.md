@@ -1,0 +1,1 @@
+Artículo 4º—Las funciones atinentes a la estructura dispuesta en el artículo 1° anterior y su ubicación conforme al Manual de Puestos correspondiente, serán aprobadas por la Junta Directiva del Consejo de Seguridad Vial, previo informe y recomendación de la Comisión de Seguimiento y Evaluación.
