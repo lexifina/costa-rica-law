@@ -1,10 +1,10 @@
-Artículo 89.-Infracciones. Se considerarán infracciones además de las
-señaladas en los Capítulos de este Ordenamiento, las siguientes:
-a) Ejecutar sin licencia previa, obras para las cuales esta ley y
-su reglamento exigen la licencia.
+Artículo 89.- Infracciones. Se considerarán infracciones además de
+las señaladas en los Capítulos de este Ordenamiento, las siguientes:
+a) Ejecutar sin licencia previa, obras para las cuales esta ley y su
+reglamento exigen la licencia.
 b) Ejecutar obras amparadas por una licencia de plazo vencido.
-c) Ejecutar una obra modificando en parte o radicalmente el
-proyecto respectivo aprobado.
+c)Ejecutar una obra modificando en parte o radicalmente el proyecto
+respectivo aprobado.
 d) Ejecutar, sin la debida protección, obras que pongan en peligro
 la vida o las propiedades.
 e) No enviar oportunamente a la Municipalidad los informes de datos

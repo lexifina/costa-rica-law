@@ -1,7 +1,2 @@
-Artículo 5º.-Derecho. Las vías públicas son inalienables e
-imprescriptibles y por lo tanto, no podrá constituirse sobre ellas
-hipoteca, embargo, uso, usufructo ni servidumbre en beneficio de una
-persona determinada, en los términos del derecho común. Los derechos de
-tránsito, iluminación y aereación, vista, acceso, derrames y otros
-semejantes inherentes al destino de las vías públicas se regirán
-exclusivamente por las leyes y Reglamentos Administrativos.
+Artículo 5º.- Derecho. Las vías públicas son inalienables e imprescriptibles y por lo tanto, no podrá constituirse sobre ellas hipoteca, embargo, uso, usufructo ni servidumbre en beneficio de una persona determinada, en los términos del derecho común.
+Los derechos de tránsito, iluminación y aereación, vista, acceso, derrames y otros semejantes inherentes al destino de las vías públicas se regiránexclusivamente por las leyes y Reglamentos Administrativos.
