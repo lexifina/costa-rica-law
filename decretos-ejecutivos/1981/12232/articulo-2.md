@@ -29,7 +29,10 @@ De este punto se sigue aguas arriba por un afluente del río Limón, llamado Que
 310 100 | 566 750
 309 850 | 567 450
 309 400 | 567 100
-De este punto se continúa aguas arriba por el río Limón hasta la unión con el río Chico; se sigue aguas arriba por el río Chico, hasta la unión de sus dos nacientes en coordenadas N 307 300, E 568 600. Continúa con rumbo SE, por una de las nacientes del río Chico, llamado Copey, hasta un punto de coordenadas N 305 200, E 568 050. Se continúa aguas arriba por el río Chico, hasta su nacimiento en coordenadas N 303 850, E 568 300.
+De este punto se continúa aguas arriba por el río Limón hasta la unión con el río Chico, se sigue aguas arriba por el río Chico, hasta la unión de sus dos nacientes con coordenadas N 307 300, E 568 600.
+Continúa con rumbo SE, por una de las nacientes del río Chico, llamada Copey, hasta un punto de coordenadas N 305 200, E 569 450.
+De aquí al punto de coordenadas N 305 200, E 568 050. Se continúa aguas arriba por el río Chico hasta su naciente en coordenadas N 303 850, E 568 300.
+(Así reformados los tres párrafos anteriores mediante el artículo 1° del decreto ejecutivo N° 12751 del 26 de junio de 1981).
 A partir de este punto se continúa con las siguientes coordenadas:
 303 650 | 568 450
 303 300 | 568 050
