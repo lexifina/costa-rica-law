@@ -16,3 +16,4 @@ Reglamento de Tarifas para la Inscripción de Planos en el Catastro Nacional
 | 1 | 1981-07-23 | la propia norma |
 | 2 | 1981-07-23 | Decreto Ejecutivo 12758 (1981-06-26) |
 | 3 | 1994-09-23 | Decreto Ejecutivo 23700 (1994-09-23) |
+| 4 | 1994-11-16 | Decreto Ejecutivo 23855 (1994-11-16) |
