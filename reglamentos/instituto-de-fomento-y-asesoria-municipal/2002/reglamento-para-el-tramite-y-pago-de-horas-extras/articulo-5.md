@@ -1,1 +1,1 @@
-Artículo 5º—La jornada ordinaria sumada a la extraordinaria podrá ser hasta de doce horas según lo dispuesto por el Artículo 140 del Código de Trabajo, por lo tanto el máximo a laborar en jornada extra podrá ser hasta de 4 horas diarias, salvo los días libres, feriados o asuetos declarados por norma expresa en que se podrá un máximo de doce horas, con excepción de lo regulado en el artículo 8.
+Artículo 5º—La jornada extraordinaria, por su propia naturaleza, solamente procede una vez concluida la jornada ordinaria.

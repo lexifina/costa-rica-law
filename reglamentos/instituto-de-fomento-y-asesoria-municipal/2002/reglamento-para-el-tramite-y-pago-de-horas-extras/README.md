@@ -14,3 +14,4 @@ Reglamento para el Trámite y Pago de Horas Extras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-04 | la propia norma |
+| 2 | 2003-09-29 | Reglamento 3316 (2003-09-29) |

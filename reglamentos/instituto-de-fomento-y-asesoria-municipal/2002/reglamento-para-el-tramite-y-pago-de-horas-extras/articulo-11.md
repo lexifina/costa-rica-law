@@ -1,3 +1,1 @@
-Artículo 11.—La Sección de Recursos Humanos, implementará un sistema de registro que permita verificar el número de horas solicitadas, aprobadas o denegadas por cada funcionario y Sección a la que pertenece.
-Rige a partir de su publicación.
-Moravia, 18 de junio del 2002.—Sección de Recursos Rumanos.— Lic. Sonia María Ruiz Cruz, Jefa.
+Artículo 11.—La persona titular de la Dirección Ejecutiva o Presidencia Ejecutiva, comunicará a la Sección de Recursos Humanos, las solicitudes aprobadas para laborar en jornada extraordinaria el mes siguiente, dentro de los cinco días hábiles posteriores al comunicado de la Sección de Recursos Humanos, especificando la cantidad de horas autorizadas.

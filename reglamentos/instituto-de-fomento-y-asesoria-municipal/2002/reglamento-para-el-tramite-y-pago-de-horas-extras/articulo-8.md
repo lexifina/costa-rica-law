@@ -1,1 +1,7 @@
-Artículo 8º—No procede el pago de tiempo extraordinario a quienes ocupen puestos de confianza, jefatura, así como a quienes ocupen puestos excluidos de la limitación de la jornada de trabajo, de conformidad con el Artículo 143 del Código de Trabajo. No obstante, se reconocerá el pago adicional a los funcionarios de confianza que laboren más de doce horas de conformidad con la Circular número 5126 del 5-11-98 de la Contraloría General de la República.
+Artículo 8º—Toda solicitud para laborar tiempo extraordinario la presentará el jefe inmediato del funcionario (a) y debe contener la siguiente información:
+a) Nombre completo del o la servidora que va a laborar la jornada extraordinaria.
+b) Cédula de identidad y número de expediente de personal del o la servidora que va a laborar jornada extraordinaria.
+c) Período en que laborará la jornada extraordinaria.
+d) Nombre del puesto que desempeña el servidor (a).
+e) Justificación razonada por la cual se requiere laborar jornada extraordinaria.
+f) Número de horas requeridas para laborar el tiempo extraordinario.
