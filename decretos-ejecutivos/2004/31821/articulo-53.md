@@ -1,0 +1,1 @@
+Artículo 53.—Deber de excusa de evaluadores y expertos técnicos. Los evaluadores y expertos técnicos deben excusarse de participar en procedimientos de acreditación, siempre y cuando, mantengan un conflicto de intereses.

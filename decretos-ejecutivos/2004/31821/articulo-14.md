@@ -1,0 +1,1 @@
+Artículo 14.—De la obligación de publicación de las acreditaciones. Cada vez que otorgue una acreditación, la modifique, suspenda o retire, el ECA debe publicarlo en La Gaceta. Podrá realizar publicaciones periódicas en los medios de su escogencia, sobre las acreditaciones vigentes y sus alcances.
