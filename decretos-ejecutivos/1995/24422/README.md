@@ -14,3 +14,4 @@ Reglamento al articulo 5° del Decreto Ejecutivo No. 17858. Concesión de permis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-07-17 | la propia norma |
+| 2 | 1997-10-08 | SINALEVI (sin norma nombrada) |
