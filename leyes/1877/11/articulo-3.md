@@ -1,0 +1,1 @@
+Art. 3°--En los carteles ó edictos en que se anuncie la venta de estos terrenos, se dará un informe compendiado de las expresadas calidades; pero, no por eso, se entender que ellas se consideren como condicion en la venta, pues cada interesado puede inspeccionar por sí mismo el terreno y verificar la exactitud del informe de los peritos.
