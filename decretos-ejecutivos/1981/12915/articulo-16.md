@@ -1,2 +1,2 @@
-Artículo 16.-Rige a partir de su publicación.
-Dado en la Presidencia de la República San José, a los treinta y un días del mes de agosto de mil novecientos ochenta y uno.
+Artículo 16. —Sin perjuicio de los movimientos de personal aprobados por el Departamento Docente del Servicio Civil hasta la fecha en que éste sea público, el presente decreto rige a partir del primero de enero de mil novecientos ochenta y uno, y deroga el decreto Nº 2670-E-P de cuatro días del mes de diciembre de mil novecientos setenta y dos y sus reformas.
+(Así corrida su numeración del original artículo 15 a actual artículo 16 por artículo 3 del Decreto Ejecutivo N° 25754 del 20 de diciembre de 1996)
