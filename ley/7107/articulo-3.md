@@ -1,0 +1,1 @@
+Artículo 3º.- Deróganse el inciso 3) del artículo 13, los incisos 7) y 8) del artículo 62 y el artículo 3º de las disposiciones transitorias de la Ley Orgánica del Banco Central de Costa Rica, Nº 1552 del 23 de abril de 1953 y sus reformas.
