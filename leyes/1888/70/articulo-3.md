@@ -1,0 +1,1 @@
+Art. 3°-Después de quince años de realizado el empréstito, éste gozará de medio por ciento de interés acumulativo, aumentable hasta uno, destinado á formar un fondo de amortización, para el pago del capital.
