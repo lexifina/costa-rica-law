@@ -14,3 +14,4 @@ Aprueba Lista Oficial de Precios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-02-01 | la propia norma |
+| 2 | 1977-02-07 | Decreto Ejecutivo 6781 (1977-02-07) |
