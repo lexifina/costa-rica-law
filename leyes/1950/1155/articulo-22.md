@@ -1,0 +1,1 @@
+Artículo 22.—Los extranjeros tienen obligación de contribuir para los gastos públicos de la manera que lo dispongan las leyes, y de obedecer y respetar las instituciones, leyes y autoridades del país.

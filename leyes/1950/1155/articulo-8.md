@@ -1,0 +1,1 @@
+Articulo 8°—La regla de que el hijo, desde que fue concebido, se reputa nacido para todo lo que le favorezca, puede invocarse eficazmente por quien desee adquirir o conservar la nacionalidad costarricense.
