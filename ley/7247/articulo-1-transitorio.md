@@ -1,0 +1,2 @@
+TRANSITORIO UNICO.- Facúltase a la Municipalidad de Heredia para hacer efectivos los alcances de esta Ley, a partir del trimestre siguiente de su publicación. Para estos efectos, la Municipalidad podrá recabar, de los contribuyentes, la información necesaria para la determinación del impuesto de patentes que corresponda.
+Presidencia de la República. San José, a los veinticuatro días del mes de julio de mil novecientos noventa y uno.
