@@ -14,3 +14,4 @@ Reglamento para el Cobro del Impuesto de Espectáculos Públicos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-16 | la propia norma |
+| 2 | 2004-05-17 | Reglamento municipal 105 (2004-05-17) |

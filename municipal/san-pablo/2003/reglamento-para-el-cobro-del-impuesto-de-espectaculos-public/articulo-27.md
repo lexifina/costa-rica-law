@@ -1,3 +1,3 @@
 CAPÍTULO VI
 Karaokes
-Artículo 27.—De la prohibición general. La Municipalidad de San Pablo no conferirá permiso alguno para realización de espectáculos públicos con Karaokes.
+Artículo 27—(DEROGADO por acuerdo del Concejo Municipal, en su sesión N° 105 del 17 de mayo de 2004)
