@@ -1,0 +1,4 @@
+CAPITULO QUINTO
+Artículo 12.—Función de los organismos auxiliares del fondo
+Las Juntas Administrativas y de Educación, al tenor del decreto No 17763-E del 16 de octubre de 1987, artículo 8°, incisos 1) y m), informarán a la población estudiantil sobre las becas y canalizarán las solicitudes respectivas hacia el Director Ejecutivo. Además, tales instancias quedan obligadas a coordinar con los diferentes comités y organismos que funcionan en cada centro educativo, con el propósito de detectar las necesidades de la comunidad estudiantil, fijar prioridades y reclutar candidatos que cumplan con los requisitos establecidos por el Fondo en los niveles de primaria, secundaria y enseñanza especial.
+En las instituciones del Estado, universidades estatales e instituciones privadas, los organismos auxiliares servirán como enlace y receptores de solicitudes de becas, las cuales serán trasladadas al Director Ejecutivo para ser sometidas al proceso de aprobación.

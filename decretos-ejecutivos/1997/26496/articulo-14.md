@@ -1,0 +1,6 @@
+CAPITULO SEXTO
+Artículo 14.—Adjudicación de las becas
+La aprobación de las solicitudes de los diversos tipos de beca, para cualquiera de los niveles establecidos en el presente Reglamento, será competencia exclusiva de la Junta Directiva del Fondo.
+Las becas deberán destinarse a estudiantes costarricenses de escasos recursos económicos y con buen rendimiento académico, para que realicen sus estudios en el país; podrán ser de mediano o largo plazo, de acuerdo con la ley, este Reglamento y normas conexas.
+La Junta Directiva estudiará solicitudes de beca para cursar estudios en el exterior, siempre y cuando la carrera no se imparta en el país y sea considerada de interés, de acuerdo con lo establecido en el Plan Nacional de Desarrollo.
+Previo a la adjudicación de cada beca, el Fondo Nacional de Becas, por medio de sus funcionarios, verificará la condición socioeconómica del grupo familiar del candidato a la asignación de la beca, con el fin de determinar la necesidad del beneficio, para lo cual podrá auxiliarse con los estudios socioeconómicos que haya realizado el Instituto Mixto de Ayuda Social (IMAS). Junto a lo anterior, para la aprobación de la beca será relevante el rendimiento académico del beneficio durante el año previo a la solicitud.
