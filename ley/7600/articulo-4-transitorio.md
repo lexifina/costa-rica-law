@@ -1,0 +1,1 @@
+TRANSITORIO IV.- La Caja Costarricense de Seguro Social y el Instituto Nacional de Seguros iniciarán, de inmediato y con los recursos existentes la ejecución de las obligaciones señaladas en la presente ley y la completará en un plazo máximo de siete años.

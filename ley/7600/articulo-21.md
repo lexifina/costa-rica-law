@@ -1,0 +1,2 @@
+ARTICULO 21.-
+Períodos de hospitalización o convalecencia El Ministerio de Educación Pública garantizará que los estudiantes que, por causa de hospitalización o convalecencia, se encuentren imposibilitados para asistir temporalmente a un centro educativo, cuenten con las opciones necesarias para continuar con su programa de estudios durante ese período. Estos estudios tendrán el reconocimiento oficial.

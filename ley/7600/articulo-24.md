@@ -1,0 +1,3 @@
+ARTICULO 24.-
+Actos de discriminación Se considerarán actos de discriminación el emplear en la selección de personal mecanismos que no estén adaptados a las condiciones de los aspirantes, el exigir requisitos adicionales a los establecidos para cualquier solicitante y el no emplear, por razón de su discapacidad, a un trabajador idóneo.
+También se considerará acto discriminatorio que, en razón de la discapacidad, a una persona se le niegue el acceso y la utilización de los recursos productivos.

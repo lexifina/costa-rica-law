@@ -1,0 +1,1 @@
+TRANSITORIO V.- Para cumplir con lo dispuesto en el artículo 41 de esta ley, las instituciones públicas y privadas de servicio público iniciarán, de inmediato y con los recursos existentes, la ejecución de sus obligaciones y la completará en un plazo máximo de siete años.
