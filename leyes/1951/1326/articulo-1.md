@@ -1,0 +1,9 @@
+N°1326
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+Considerando:
+1°.- Que por Decreto-Ley N°807 de 3 de noviembre de 1949 se adjudicó al Estado una serie de bienes que pertenecieron a personas intervenidas, entre los cuales se encuentra la finca número 4585, inscrita en el Partido de Limón, del Registro Público, a nombre de Claudio o Claudio Humberto Mora Molina:
+2°.- Que el señor Rafael Vargas Mora solicitó del Ministerio de Economía y Hacienda, autorización para el Registro Público a fin de que inscribiera a su nombre dicha finca, por haberla adquirido en escritura otorgada en esta ciudad, ante el Notario Ricardo Umaña Solano, a las 16 horas del 26 de noviembre de 1946, es decir con anterioridad a la intervención del señor Mora Molina y con absoluta buena fe; y
+3°.-Que consultada la Procuraduría General de la República se reconoció como cierto el traspaso dicho y su fecha, en presencia del testimonio correspondiente y del anotado de la Tributación Directa, además de otras circunstancias concomitantes, se recomendó acceder a la solicitud del señor Vargas siempre que él bajo juramento manifieste no haber otorgado otro documento de fecha posterior que contradijera la referida escritura. Se agregó la necesidad de autoridad legislativa.
+Por lo tanto,
+Decreta:
+Artículo 1°.- Autorízase al Registro Público para inscribir la escritura otorgada ante el Notario Ricardo Umaña Solano, en esta ciudad, a las 16 horas del 26 de noviembre de 1946, presentada al Diario bajo asiento 6255 del Tomo 198, por la cual el señor Claudio o Claudio Humberto Mora Molina, vende al señor Rafael Vargas Mora la finca inscrita en el Registro de la Propiedad, partido de Limón, tomo 11251, Folio 255, número 4585, Asiento 1, que es terreno de montaña situado en Matina, distrito Segundo del cantón primero de la provincia de Limón.
