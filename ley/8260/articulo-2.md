@@ -1,0 +1,1 @@
+Artículo 2º—Monto del impuesto. El monto del impuesto será fijado por la Municipalidad, de acuerdo con la presente Ley y su Reglamento. El impuesto se pagará durante el tiempo que se mantenga abierto el establecimiento o por el período en que se haya poseído la patente, aunque la actividad no se haya realizado.

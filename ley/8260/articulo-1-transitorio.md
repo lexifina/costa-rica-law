@@ -1,0 +1,2 @@
+Transitorio único.—Facúltase a la Municipalidad de Abangares para que ajuste los plazos establecidos en el artículo 5 de esta Ley, a fin de facilitar su aplicación en el primer período de vigencia. Además, se autoriza a la Municipalidad para que condone la multa y los intereses por la deuda de tributos ocasionada por los sujetos pasivos, cada cuatro años o por una contingencia socioeconómica debidamente verificada. En los casos de las empresas o las personas físicas que están pendientes de resolución judicial, dicha condonación no procederá.
+Rige a partir de su publicación.

@@ -1,0 +1,1 @@
+Artículo 19.—Autorización para regulaciones especiales. Autorízase a la Municipalidad de Abangares para que, en un plazo máximo de sesenta días a partir de la publicación de esta Ley, adopte el reglamento y las medidas administrativas necesarias para aplicarla.
