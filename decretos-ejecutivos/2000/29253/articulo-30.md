@@ -1,0 +1,1 @@
+Artículo 30.—Regulaciones en cuanto a las estructuras multiposte y al uso de maderas y plástico: Sólo se autorizará el empleo de estructuras multiposte o uniposte de metal y postes de concreto en el levantamiento de armazones. El uso de maderas tratadas con preservantes o postes plásticos, sólo se autorizará en zonas de alta salinidad.

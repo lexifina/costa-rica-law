@@ -1,0 +1,6 @@
+Artículo 11.—Solicitud de Licencia: Para el ejercicio de la actividad de instalación, colocación o fijación de anuncios, rótulos y letreros, la persona o empresa interesada deberá solicitar una licencia que será expedida por el Departamento de Inspección Vial y Demoliciones de la Dirección General de Policía de Tránsito, del Ministerio de Obras Públicas y Transportes, misma que deberá cumplir con los requisitos conducentes, establecidos en el presente Reglamento.
+a) Solicitud escrita con indicación clara del nombre y calidades del gestionante o de su representante legal debidamente acreditado y fotocopia de la cédula de identidad del solicitante, así como su domicilio.
+b) Lugar para recibir notificaciones dentro del perímetro de Área Metropolitana.
+c) Descripción de la actividad específica a la que se dedica.
+d) Declaración jurada en la que manifieste encontrarse al día con la totalidad del pago de los impuestos.
+e) Compromiso formalmente suscrito, mediante declaración jurada, de remover de inmediato todos los anuncios, rótulos u otros que, ubicados dentro de un terreno público o privado, violenten las disposiciones del presente Reglamento, salvo para el caso de los rótulos cuyas dimensiones sean menores a un metro cuadrado.

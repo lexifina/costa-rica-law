@@ -1,0 +1,2 @@
+Artículo 29.—Otros criterios técnicos aplicables para la instalación de vallas: Las vallas frente a carreteras podrán instalarse en cualquiera de las siguientes disposiciones: individuales o 2 en V (tandem horizontal o vertical), con un rótulo por cara o en doble tandem (4 en V) con dos vallas por cara.
+Independientemente de la imagen que se coloque en un anuncio publicitario, únicamente se permitirá un máximo de diez palabras por mensaje.

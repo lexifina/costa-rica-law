@@ -1,0 +1,1 @@
+Artículo 37.—Calidad de los parabuses: Los parabuses deberán estar construidos con elementos y materiales de alta calidad, que soporten las inclemencias del tiempo y garanticen su permanencia y seguridad para los usuarios.

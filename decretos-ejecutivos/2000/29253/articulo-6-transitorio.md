@@ -1,0 +1,1 @@
+Transitorio Sexto: En un plazo de tres meses, contados a partir de la publicación del presente reglamento, el Ministerio de Obras Públicas y Transportes y Consejo de Seguridad Vial, dotarán del personal suficiente y necesario al Departamento de Inspección Vial para el cumplimiento adecuado del presente reglamento.

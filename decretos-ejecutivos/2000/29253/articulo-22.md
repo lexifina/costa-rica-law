@@ -1,0 +1,1 @@
+Artículo 22.—Casos en que no se produce alteración del diseño estructural: No se considerará alteración del diseño de la estructura, la sustitución de partes removibles o la pintura de un rótulo o anuncio.

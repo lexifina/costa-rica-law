@@ -1,0 +1,1 @@
+Artículo 44.—Prohibición de instalación de los MUPIS: se prohíbe la instalación de los MUPIS como simple paleta o módulos publicitarios individuales, sin que se ubiquen en combinación con las casetas o Escampaderos respectivos.

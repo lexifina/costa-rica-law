@@ -1,0 +1,1 @@
+Transitorio Segundo: Las estructuras de madera existentes deberán ser sustituidas por metal, concreto, plástico, o fibra de vidrio, en un plazo de seis meses, conforme a lo dispuesto en este Reglamento.

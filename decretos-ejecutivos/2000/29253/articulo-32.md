@@ -1,0 +1,3 @@
+Artículo 32.—Condiciones adicionales:
+a) En la instalación de cualquier elemento de mobiliario urbano, la persona jurídica o física, conforme a las obligaciones contractuales, asumirá por su cuenta el costo de las acometidas y servicio de agua, del servicio de electricidad y cualquier otro tipo de servicio en el cual deba incurrir por concepto de mantenimiento.
+b) Será obligación de los concesionarios del mobiliario urbano mantener en óptimas condiciones de seguridad, ornato y limpieza, el mobiliario urbano, sin perjuicio de la colaboración que preste el Ministerio en calles de su jurisdicción, para efecto de no causar molestias a los ciudadanos.

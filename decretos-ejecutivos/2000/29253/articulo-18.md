@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De los Diseños estructurales y su instalación
+Artículo 18.—Identificación de las estructuras: Todas las estructuras autorizadas e instaladas o que se instalen en el futuro, deberán exhibir en un lugar visible el número de Licencia -que identificará a la empresa- y el número de permiso -que identificará específicamente a la estructura publicitaria. En caso de rótulos de funcionamiento, podrá mantenerse la autorización en el local respectivo, otorgados por el órgano competente del Ministerio de Obras Públicas y Transportes, así como el nombre de la persona física o jurídica propietaria de la indicada estructura.
+Para tales efectos, los primeros dígitos identificarán el número de licencia de la empresa, y los siguientes dígitos, separados por un guión, el número de permiso específico.

@@ -1,0 +1,5 @@
+CAPÍTULO VII
+Del mobiliario urbano
+Artículo 31.—Ubicación del mobiliario urbano: La instalación del Mobiliario Urbano, con publicidad o sin ella, deberá ajustarse a la siguiente regulación de distancias:
+a) Para los parabuses, la distancia entre ellos será la determinada por el Consejo de Transporte Público, dependencia competente para la fijación de paradas del servicio de transporte remunerado de personas, salvo en los casos en que la demanda de usuarios exija la instalación de grupos de elementos a una menor distancia de los mismos, de conformidad con autorización de la entidad antes citada. Sin embargo, de previo a su autorización por el Departamento competente y con sustento en la definición de paradas realizadas por el ente rector de la materia, se requerirá aprobación de la estructura por parte de la Subárea de Ingeniería de Tránsito, quien deberá rendir el informe técnico correspondiente.
+b) Todo elemento publicitario y los elementos urbanos en general, salvo las nomenclaturas o señalizaciones referentes a los nombres de calles o avenidas, serán ubicados a una distancia mínima de 15 metros del vértice o esquina de una calle.

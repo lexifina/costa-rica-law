@@ -1,0 +1,1 @@
+Transitorio Cuarto: Las personas físicas o jurídicas que posean rótulos, vallas o anuncios, instalados antes de la promulgación del presente reglamento, poseerán un plazo improrrogable de seis meses, a partir de su publicación, para solicitar, obtener y renovar los permisos y licencias pertinentes.

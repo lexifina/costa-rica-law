@@ -1,0 +1,27 @@
+CAPÍTULO II
+Del Departamento de Inspección Vial y Demoliciones
+Artículo 7º—Para la ejecución del presente reglamento, el Ministerio de Obras Públicas y Transportes actuará a través del Departamento de Inspección Vial y Demoliciones de la Dirección General de Policía de Tránsito, dependencia que tendrá las siguientes atribuciones y funciones:
+a) Vigilar, controlar, fiscalizar y autorizar todo lo referente a los usos del área de derecho de vía de la red vial nacional;
+b) Notificar, denunciar, suspender, decomisar y demoler cualquier construcción que se realice en el derecho de vía, sin autorización del Ministerio, con fundamento en las certificaciones expedidas por el Consejo de Transporte Público, el Departamento de Previsión Vial de la Subárea de Diseño, el Departamento de Terrenos del Área Jurídica y de la Comisión de Carreteras de Accesos Restringidos y Semirestringidos;
+c) El otorgamiento, modificación, cancelación y renovación de los permisos y licencias a que se refiere el presente reglamento;
+d) Será el encargado de la administración de los derechos de vía y otras áreas públicas, denominadas remanentes, mediante convenios de cooperación con las personas públicas y privadas que ostenten la titularidad del inmueble colindante o, en su defecto, su objetivo será preservar la propiedad pública y contribuir al ornato y la belleza escénica;
+e) Promover ante el Ministerio de Seguridad Pública las gestiones correspondientes a los desalojos administrativos.
+f) Controlar y vigilar los alineamientos de todo tipo de construcción, realizadas o por realizar, frente a las carreteras nacionales, otorgados por el departamento de Previsión Vial de la Subárea de Diseño.
+g) Regular y ejecutar todo acto relacionado con el mantenimiento del equilibrio ecológico de las áreas verdes y del derecho de vía, con la colaboración y el apoyo del Departamento de Embellecimiento de Carreteras y de la Asociación de Seguridad y Embellecimiento de las Carreteras Nacionales;
+h) Ejercer un control permanente sobre los terrenos adquiridos por el Estado para la construcción de obras públicas, impidiendo su deterioro, uso, posesión o disposición por parte de terceros. Para ello, el Catastro Nacional y el MOPT, levantarán un registro de tierras destinadas a la construcción de obras públicas. En ningún caso, estos terrenos podrán ser objeto de posesión por tercero, ni podrá alegarse prescripción alguna.
+i) Vigilar y controlar todo lo referente al uso de los derechos de vía de los caminos públicos, así como evitar y denunciar cualquier posesión ilegítima por parte de particulares, o daño que se intente o se haya causado a dichos bienes; quedando autorizado para notificar, suspender, sellar y demoler, si fuere del caso, cualquier edificación o construcción que se haga o esté haciendo en contravención de las leyes o reglamentos, erradicando por los medios más sumarios posibles toda construcción irregular y violatoria de los intereses públicos;
+j) Acudir ante la autoridad competente a efecto de ejercer las acciones reivindicatorias a favor del Estado y proceder consecuentemente al desalojo de los usurpadores;
+k) Los funcionarios del Departamento Inspección Vial y Demoliciones podrán quitar y decomisar, poniéndolo a la orden de las autoridades competentes, cualquier bien que se encuentre dentro del derecho de vía con el propósito de hacer uso indebido de éste, de conformidad con el artículo 19 de la Ley General de Caminos Públicos.
+l) Solicitar a las autoridades administrativas correspondientes, la cancelación de la patente y el cierre del establecimiento comercial o industrial si los que estrechan o hacen un uso impropio del derecho de vía, son propietarios de establecimientos comerciales o industriales.
+m) Reabrir caminos o servidumbres entregadas por ley o de hecho al servicio público y todas aquellas funciones que tengan por objeto cumplir las disposiciones de la Ley Nº 5060, General de Caminos Públicos.
+n) Mantener los controles y registros de las licencias y permisos vigentes debidamente actualizados, así como el respectivo expediente administrativo por empresa.
+o) Velar por el estricto cumplimiento del presente reglamento y de las leyes que regulan la materia;
+p) Velar por el riguroso, seguro y adecuado registro de los expedientes administrativos, así como su apropiada tramitación;
+q) Velar para que todo documento que ingrese, dirigido al Departamento de Inspección Vial y Demoliciones de la Dirección General de la Policía de Tránsito, reúna los requisitos de forma y fondo establecidos para tal efecto; caso contrario, requerir el cumplimiento de las formalidades omitidas en éstos.
+r) Atender y evacuar las consultas del público, empresarios, organizaciones interesadas en los asuntos de competencia del departamento, así como tramitar y resolver las denuncias efectuadas por personas públicas o privadas.
+s) Todas aquellas funciones complementarias que le sean encomendadas, asignadas por el superior inmediato.
+t) Para la realización de estas funciones, el Departamento de Inspección Vial y Demoliciones podrá actuar de oficio o a instancia de parte. En todo caso y tratándose de decomiso de bienes, se procederá al levantamiento de un acta que contendrá:
+t.1) Lista de bienes decomisados y lugar exacto en que se practica el acto
+t.2) Nombre y número de cédula de la persona a quien se le decomisa el bien
+t.3) Lugar en que se depositarán los bienes decomisados
+t.4) Nombres, firmas y números de cédula, tanto del funcionario que ejecuta el acto como de los testigos presenciales

@@ -1,0 +1,1 @@
+Artículo 19.—Del registro de diseños estructurales: Toda persona física o jurídica que tenga una licencia vigente para el desarrollo de las actividades a las que se refiere el presente reglamento, podrá solicitar la aprobación y registro de sus diseños estructurales.

@@ -1,0 +1,1 @@
+Artículo 27.—Cuando se trate de personas jurídicas, deberá acompañarse a la gestión, fotocopia debidamente certificada de la cédula jurídica y la representación de dicha entidad debidamente acreditada.

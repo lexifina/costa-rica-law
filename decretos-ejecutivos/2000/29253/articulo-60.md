@@ -1,0 +1,1 @@
+Artículo 60.—La Dirección de Policía de Tránsito podrá, de acuerdo con sus facultades, rechazar el recurso de revocatoria y trasladar el de apelación ante el superior, pero, en todo caso, estará obligada a fundamentar las razones de hecho y de derecho que motivan su decisión.

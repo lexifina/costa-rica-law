@@ -1,0 +1,1 @@
+Transitorio Sétimo: El Ministerio de Obras Públicas y Transportes promoverá la concertación del presente rango normativo ante los Gobiernos Locales, respecto de los derechos de vía, a fin de que las obligaciones impuestas por la Ley General de Caminos Públicos puedan ser realizadas en forma armónica y homogénea.

@@ -1,0 +1,2 @@
+Artículo 61.—Los recursos ordinarios deberán cumplir, además, con las formalidades y requisitos establecidos en el artículo 12 y 13, según corresponda, establecidos en el presente reglamento.
+Se rechazarán ad portas aquellos que no indiquen con claridad la condición y calidades del recurrente, la pretensión, los hechos y la fundamentación jurídica, así como la indicación del lugar para recibir notificaciones, y la debida autenticación de la firma del gestionante.

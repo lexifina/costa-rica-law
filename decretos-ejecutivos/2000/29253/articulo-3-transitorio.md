@@ -1,0 +1,1 @@
+Transitorio Tercero: Los rótulos y anuncios que a la fecha de publicación del presente Reglamento tengan una medida superior a la indicada, y una ubicación diferente, deberán adaptarse a las condiciones estipuladas en la anterior normativa, en el plazo consignado en el Transitorio I.

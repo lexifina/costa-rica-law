@@ -1,0 +1,1 @@
+Artículo 5º—Regulación: La instalación, construcción, reconstrucción, exhibición y colocación de anuncios, rótulos y avisos, que se encuentren en los terrenos adyacentes al derecho de vía de la red vial nacional, se regirán por las disposiciones del presente reglamento.

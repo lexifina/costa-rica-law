@@ -1,0 +1,2 @@
+Artículo 51.—Casos de excepción: Se definirán y analizarán casos de excepción, no contemplados en las tipologías de rótulos fijadas en este reglamento, como casos especiales, los cuales podrán permitirse, siempre y cuando se incorporen armoniosamente a la edificación y entorno urbano.
+Dentro de esta categoría se ubican los rótulos de servicios públicos, como relojes automatizados, tableros informativos y otros rótulos especiales, así como todos aquellos casos no contemplados en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 50.—Cancelación del permiso: El Departamento Inspección Vial y Demoliciones, podrá cancelar el permiso para el rótulo de funcionamiento, y ordenar su retiro o demolición a costa del propietario, cuando se esté incumpliendo lo establecido en este reglamento, previo otorgamiento del debido proceso.

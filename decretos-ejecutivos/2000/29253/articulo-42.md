@@ -1,0 +1,1 @@
+Artículo 42.—Prohibición de propaganda religiosa o política: Dentro de la publicidad que se exhiba en el MUPI queda estrictamente prohibido toda clase de propaganda referente a partidos políticos o credos religiosos.

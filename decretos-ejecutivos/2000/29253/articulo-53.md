@@ -1,0 +1,1 @@
+Artículo 53.—Prohibición de anuncios publicitarios en edificios públicos: Queda prohibido instalar, fijar o pintar vallas o rótulos con mensaje publicitario, en edificios públicos o centros religiosos.

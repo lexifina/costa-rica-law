@@ -1,0 +1,1 @@
+Artículo 64.—Podrá interponerse incidente de nulidad cuando existieren razones que así lo justificaren, pero, en lo conducente a requisitos, términos y formalidades, serán aplicables las disposiciones de este reglamento para los recursos ordinarios.

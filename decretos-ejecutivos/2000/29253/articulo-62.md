@@ -1,0 +1,1 @@
+Artículo 62.—Si conjuntamente con el recurso de revocatoria, se hubiere presentado el de apelación, al producirse el rechazo del primero, la Dirección General de Policía de Tránsito admitirá el segundo para ante el Despacho del Ministro, quien podrá solicitar las pruebas o informes adicionales que considere convenientes para la óptima solución del caso.

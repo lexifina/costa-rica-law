@@ -1,0 +1,1 @@
+Artículo 54.—Prohibición para pintar anuncios o rótulos con colores asociados con las señales de tránsito: Queda prohibido construir o pintar rótulos, anuncios o cualquier obra que por la combinación de sus colores, diseños, dimensiones o símbolos, pudieren confundirse con las señales de tránsito.

@@ -1,0 +1,1 @@
+Artículo 38.—Dimensiones: Las dimensiones de los parabuses no podrán exceder los 5.60 metros de frente por 2 metros de fondo. Además, deberán respetar como mínimo 1.20 metros de libre tránsito peatonal, conforme lo establece el Artículo 41 de la Ley de Discapacitados.

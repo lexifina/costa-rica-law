@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Parabuses, casetas o escampaderos
+Artículo 34.—Autorización de escampaderos: Corresponderá al Ministerio de Obras Públicas y Transportes, por medio del Consejo de Transporte Público, a solicitud del interesado, suministrar las listas de ubicaciones de paradas al permisionario, así como informar sobre cualquier cambio de ubicación o paradas nuevas que se establezcan, previa demostración de la licencia que le acredite para realizar la instalación respectiva, así como la aprobación por parte del Consejo de Transporte Público.
+El permisionario, una vez instaladas las casetas en los sitios de paradas establecidos, informará al Ministerio de Obras Públicas y Transportes sobre las instalaciones efectuadas, así como los programas de colocación de nuevas casetas, a efecto de que se proceda con la inspección correspondiente.

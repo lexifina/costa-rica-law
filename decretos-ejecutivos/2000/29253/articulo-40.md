@@ -1,0 +1,1 @@
+Artículo 40.—Estética de la publicidad: Todos los anuncios que se exhiban en los "parabuses" deberán presentar un aspecto satisfactorio en cuanto a estética y no podrán contener expresiones contrarias a las buenas costumbres y a la moral.

@@ -1,0 +1,1 @@
+Artículo 55.—Prohibición del uso de determinadas palabras: En los textos de los anuncios y rótulos destinados a la propaganda comercial o de servicios, no se permitirá el uso de las palabras que tiendan a confundirse con otras técnicamente utilizadas en materia de seguridad vial.

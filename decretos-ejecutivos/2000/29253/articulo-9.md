@@ -1,0 +1,1 @@
+Artículo 9º—Los inspectores viales estarán investidos de las facultades propias que les concede la Ley de Caminos Públicos, sin detrimento de solicitar la colaboración de la Fuerza Pública, cuando lo juzguen necesario, y de algunas otras dependencias del Estado que, por la naturaleza de sus funciones, se requieran para el mejor cumplimiento de su labor.
