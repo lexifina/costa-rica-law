@@ -1,1 +1,0 @@
-Artículo 21.- Cuando la Municipalidad del cantón central de Puntarenas lo estime necesario podrá exigir a las empresas no declarantes de los impuestos sobre las ventas y la renta, la certificación sobre el volumen de ventas y sobre la renta líquida, extendida por un contador público autorizado.
