@@ -1,1 +1,0 @@
-Transitorio II .-EI Director de la Secretaría Ejecutiva de Planificación Sectorial de Salud, que fungirá para el período que vence el 1° de junio de 1982, será nombrado dentro del plazo de un mes, contado a partir de la fecha de celebración de la primera reunión del Consejo Nacional Sectorial.
