@@ -1,0 +1,1 @@
+Artículo 2°—Se deja sin efecto la resolución Nº 124-04 de esta Dirección de las trece horas veinte minutos del día 6 de setiembre del dos mil cuatro, publicada en La Gaceta Nº 191 del treinta de setiembre de 2004.
