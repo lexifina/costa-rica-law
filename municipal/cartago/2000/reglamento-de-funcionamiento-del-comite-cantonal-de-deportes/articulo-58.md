@@ -1,0 +1,1 @@
+Artículo 58.—La Junta Administrativa dictará los acuerdos concernientes a la Administración del Polideportivo y los acuerdos sobre erogaciones y pagos derivados de su labor. Dichos acuerdos serán enviados al Comité Cantonal de Deportes y Recreación para su rechazo o ratificación. Una vez ratificados mediante acuerdo del Comité serán ejecutados por el encargado de los mismos.

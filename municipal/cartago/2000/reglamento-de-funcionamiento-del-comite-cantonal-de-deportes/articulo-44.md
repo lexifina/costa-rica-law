@@ -1,0 +1,1 @@
+Artículo 44.—Cada Comité Comunal llevará un Libro de Actas y un Libro de Tesorería que tengan hojas numeradas los cuales deberán ser presentados al Comité Cantonal, quien los autorizará sellando cada hoja de los libros.

@@ -1,0 +1,1 @@
+Artículo 55.—Los miembros de la Junta Administrativa serán nombrados por cuatro años, no devengarán dieta ni remuneración alguna y pueden ser reelectos y podrán ser removidos por el Consejo Nacional del Deporte y la Recreación por causa justa según el reglamento de la ley 7800.

@@ -1,0 +1,1 @@
+Artículo 54.—La junta administrativa estará integrada por cinco miembros, dos miembros de nombramiento del Concejo Municipal, un miembro nombrado por el Instituto Costarricense del Deporte y la Recreación y dos miembros del Comité Cantonal de Deportes y Recreación de Cartago.

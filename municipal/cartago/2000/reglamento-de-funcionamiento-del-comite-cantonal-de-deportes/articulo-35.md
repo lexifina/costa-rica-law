@@ -1,0 +1,1 @@
+Artículo 35.—Los recursos provenientes del Impuesto al Cemento que ingresen al Comité Cantonal solo podrán ser utilizados en la ampliación de los terrenos, construcción, mejoras y mantenimiento del Centro de Formación Deportiva y Cultural de Cartago o Polideportivo de la Ciudad de Cartago.

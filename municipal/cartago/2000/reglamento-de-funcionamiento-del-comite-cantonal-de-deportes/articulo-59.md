@@ -1,0 +1,1 @@
+Artículo 59.—La Junta Administrativa coordinará con el Comité Cantonal, la Municipalidad de Cartago y otros entres, las políticas de inversión y consecución de recursos extraordinarios para las mejoras, la compra de terrenos para la ampliación, la construcción y el mantenimiento del Centro de Formación Deportivo y Cultural de la ciudad de Ca (Polideportivo).
