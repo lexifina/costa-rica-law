@@ -1,0 +1,1 @@
+Artículo 2°—En consecuencia dicho Centro Educativo podrá emitir los certificados de Aprobación del I, II y III y de La Educación General Básica y el IV Ciclo de la Educación Diversificada, los cuales se equipararán con el del sistema educativo estatal.
