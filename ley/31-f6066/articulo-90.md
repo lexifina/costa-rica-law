@@ -1,0 +1,3 @@
+CAPITULO X.
+Del inventario y cuentas anuales.
+ART. 90.-El año económico de la Sociedad empieza el primero de enero, y concluye el 31 de diciembre: el primer ejercicio comprenderá hasta el 31 de diciembre que siga á la fecha de la constitución. El Consejo de Administración cuidará de que cada semestre se forme un estado que comprenda el activo y el pasivo de la Sociedad: ese estado se pondrá á disposición de los Comisarios. -Aparte de esto, se formará cada año un inventario que contenga el activo y el pasivo de la Sociedad. -El inventario, el balance, y la cuenta de ganancias y pérdidas, serán puestos disposición de los Comisarios, cuando m s tarde, cuarenta días antes de la asamblea general.

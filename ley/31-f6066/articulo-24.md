@@ -1,0 +1,1 @@
+ART. 24.-El Consejo nombra cada año su Presidente de entre sus miembros. En caso de ausencia del Presidente, el Consejo nombra entre sus miembros, y para cada sesión, el que deba subrogarlo. El Presidente puede siempre ser reelecto.

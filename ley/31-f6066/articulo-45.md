@@ -1,0 +1,1 @@
+ART. 45.-La asamblea general debe ser compuesta de un número de accionistas que represente á lo menos la cuarta parte del capital social. No reuniendo ese número, se hace una nueva convocatoria, y en ese caso, la asamblea delibera válidamente, cualquiera que sea la porción de capital que representen los accionistas que concurran.

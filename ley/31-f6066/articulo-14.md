@@ -1,0 +1,1 @@
+ART. 14.-Los títulos de las acciones son numerados y firmados por dos miembros del Consejo de Administración, son extraídos de un libro talonario, llevan el sello de la Sociedad y se trasmiten por la simple tradición.

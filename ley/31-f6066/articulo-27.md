@@ -1,0 +1,1 @@
+ART. 27.-Las deliberaciones se harán constar en actas inscritas en un registro y firmadas por los miembros del Consejo que concurran a la Sesión. Las copias ó extractos de estas actas que hayan de producirse en juicio, ó fuera de él serán firmadas por el Presidente ó por el miembro del Consejo que lo subrogue.

@@ -1,0 +1,1 @@
+ART. 19.-Toda acción es indivisible respecto de la Sociedad, la cual no reconoce ningún fraccionamiento. Todos los copropietarios indivisos de una sola acción, están obligados á elegir, colectivamente, una sola persona para que los represente cerca de la Sociedad.

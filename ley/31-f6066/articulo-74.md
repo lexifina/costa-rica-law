@@ -1,0 +1,1 @@
+ART. 74.-El Director-Administrador en Costa- Rica, oyendo el parecer de la Junta Consultiva, determinará la proporción de las sumas que pueden otorgarse conforme al valor y naturaleza de los inmuebles que se ofrezcan en garantía.

@@ -1,0 +1,1 @@
+ART. 83.-Las obligaciones hipotecarias llevan el sello de la Sociedad, y están representadas por títulos sacados de un libro de tronco, firmadas por el Director-Admor., y por un miembro de la Junta Consultiva en Costa Rica.

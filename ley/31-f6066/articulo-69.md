@@ -1,0 +1,1 @@
+ART. 69.-Si la primera inscripción de los bienes que se han de hipotecar al Banco, hubiere sido hecha por título supletorio, el prestamista dará, además fiador abonado que lo garantice por el tiempo necesario para dejar seguros los intereses del Banco.

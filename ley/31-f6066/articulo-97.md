@@ -1,0 +1,2 @@
+ART. 97.-Para las demás contestaciones a que den lugar las operaciones de la Sociedad, que no sean las concernientes a los accionistas de que habla el párrafo primero del artículo anterior, son competentes los Tribunales de Costa-Rica, en cuanto esto no se oponga al contrato celebrado con el Gobierno costarricense. Por tanto: hallándose dichos Estatutos de acuerdo con los decretos N° 13, de 13 de enero, y N° 15, de 20 de abril del presente año,
+DECRETA: Apruébase los Estatutos insertos, presentados.

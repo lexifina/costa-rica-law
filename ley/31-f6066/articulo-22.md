@@ -1,0 +1,1 @@
+ART. 22.-Cada Administrador debe ser propietario de cine acciones, que son inalienables mientras duran sus funciones; esas acciones garantizan, conforme la ley, la gestión del Administrador, y permanecen depositadas en la caja social
