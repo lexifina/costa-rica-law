@@ -14,3 +14,4 @@ Reglamento para la Contratación de Servicios de Peritajes y Avalúos de Bienes 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-05 | la propia norma |
+| 2 | 1998-03-05 | Ley 8 |
