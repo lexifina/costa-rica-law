@@ -14,3 +14,4 @@ Reglamento del Consejo de Administración de Circuito.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-14 | la propia norma |
+| 2 | 2002-08-05 | Reglamento 35 (2002-08-05) |
