@@ -17,3 +17,4 @@ Reglamento de la Asamblea Legislativa
 | 2 | 1996-09-09 | Reglamento 3047 (1996-09-09) |
 | 3 | 1997-03-19 | Reglamento 3073 (1997-03-19) |
 | 4 | 1998-10-15 | SINALEVI (sin norma nombrada) |
+| 5 | 1998-11-02 | Reglamento 4053 (1998-11-02) |
