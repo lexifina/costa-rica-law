@@ -1,0 +1,1 @@
+Artículo 4°-Derógase el decreto ejecutivo N° 13587-A del 4 de mayo de 1982, publicado en "La Gaceta" N°95 del 18 de mayo de 1982, así como cualquier normativa o delimitación diferente de la establecida en el artículo primero del presente Decreto Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 2°-El presente Decreto se hace con el propósito de individualizar los terrenos que el Estado está autorizado en adquirir conforme las disposiciones de las leyes N° 6084 y 7174; esta declaratoria irá cobrando plena y absoluta eficacia cuando el Estado vaya adquiriendo las propiedades privadas existentes dentro de la demarcación de dicha Reserva Biológica.
