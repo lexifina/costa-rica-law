@@ -1,0 +1,1 @@
+Artículo 3°.- Los beneficios que por este decreto se otorgan a “Jack´s Foods Centroamericana, Sociedad Anónima” podrán ser modificados o regulados por el Ministerio de Economía, industria y Comercio en virtud de convenios, protocolos, acuerdos, resoluciones o cualquier otra disposición de los organismos del tratado General de integración Económica Centroamericana.

@@ -1,0 +1,1 @@
+Artículo 6°.- El Ministerio de Economía, Industria y Comercio podrá revisar los costos de producción y fijar los precio s de venta de los artículos producidos por la empresa beneficiaria de este decreto de acuerdo a las disposiciones legales y reglamentarias vigentes que rigen en la materia.
