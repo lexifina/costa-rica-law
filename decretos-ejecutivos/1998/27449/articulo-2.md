@@ -1,0 +1,1 @@
+Artículo 2°—El Instituto Costarricense de la Pesca y Acuacultura será la Institución encargada de realizar las actividades y acciones que tiendan a la celebración adecuada de dicha actividad dentro del respeto y promoción a la imagen civilista y democrática del país. para lo cual las Instituciones Públicas podrán colaborar con el Instituto en la celebración del Día indicado.
