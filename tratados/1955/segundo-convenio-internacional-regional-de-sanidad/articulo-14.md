@@ -1,0 +1,1 @@
+Artículo 14.- El presente Convenio entrará en vigor tan pronto como sea ratificado por cuatro de los países signatarios y los correspondientes instrumentos de ratificación fueren depositados en el Ministerio de Relaciones Exteriores de El Salvador, el cual comunicará la fecha de dicho depósito a los demás países miembros.

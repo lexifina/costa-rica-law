@@ -1,0 +1,7 @@
+ORGANISMO
+Artículo 2º.- Los objetivos del Comité serán ejecutados a través de un Organismo permanente de carácter técnico y administrativo que se denominará: "Organismo Internacional Regional de Sanidad Agropecuaria". (OIRSA), el cual tendrá las siguientes funciones:
+1) Determinar, después de efectuar los estudios técnicos necesarios, cuáles enfermedades plagas o problemas sanitarios fitopecuarios, significa un peligro de importancia económica para los países signatarios, además de los existentes: a) Acribio; b) Fiebre Aftosa; c) Falta de Cuarentena; y d) Falta de uniformidad o deficiencia de legislación adecuada o uniforme sobre sanidad vegetal y animal;
+2) Mantener núcleos de personal, técnicamente preparados y equipados, para controlar las enfermedades y plagas que signifiquen grave perjuicio económico para la región;
+3) Asesorar a los países signatarios, que lo soliciten, en el funcionamiento de sus servicios sanitarios fitopecuarios;
+4) Organizar los servicios de prevención y ejecutar, en estrecha colaboración con los Organismos Nacionales correspondientes, el control de plagas y enfermedades mencionadas en los números 1º y 2º de este artículo; y
+5) Mantener informados concreta y periódicamente de acuerdo con el Reglamento del Convenio, a los Ministros de Agricultura de los países signatarios, sobre todas las actividades del Organismo y las condiciones que prevalezcan en el aspecto sanitario de cada uno de los países miembros.

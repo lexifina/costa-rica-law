@@ -1,0 +1,3 @@
+Artículo 6º.- El Director Ejecutivo es el funcionario directa e inmediatamente responsable ante el Comité por todos los asuntos administrativos del Organismo. Es atribución suya la de nombrar el personal auxiliar administrativo y el personal auxiliar técnico, este último a propuesta de los respectivos Jefes de Departamento y de conformidad con lo establecido en el Reglamento respectivo.
+El Tesorero es el responsable de los fondos del Organismo que serán manejados de acuerdo con lo que establece el mismo Reglamento.
+El Auditor es la persona encargada de la supervisión del ejercicio contable, de acuerdo con lo que establece el citado Reglamento.

@@ -1,4 +1,6 @@
+(Derogado)
 N° 1388
+(Esta norma fue derogada por el Transitorio I del Segundo Convenio Internacional Regional de Sanidad Agropecuaria (CIRSA), Tratado Intenacional N° 1896 del 04 de julio de 1955)
 (Nota de Sinalevi: Mediante Tratado Internacional N° 1388 del 21 de noviembre del 1951, Costa Rica ratifica el presente Tratado)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE DOSTA RICA
 DECRETA:
