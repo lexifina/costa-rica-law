@@ -1,0 +1,1 @@
+Artículo 12.-Garantías. En todo caso, como lo estípula el artículo 70 del Código Municipal, las deudas por concepto de este impuesto constituyen hipoteca legal de tipo preferente sobre los respectivos inmuebles.

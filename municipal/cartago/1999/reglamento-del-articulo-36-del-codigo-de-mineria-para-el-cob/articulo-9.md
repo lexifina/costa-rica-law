@@ -1,0 +1,1 @@
+Artículo 9°-Pago del impuesto. El impuesto deberá ser cancelado únicamente en la Tesorería Municipal a más tardar el último día hábil del mes en que fue presentada la declaración jurada, o bien dentro de los cinco días hábiles después de emitido el recibo correspondiente.

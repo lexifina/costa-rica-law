@@ -1,0 +1,1 @@
+Artículo 6°-Falsas declaraciones. La falsedad en la información suministrada dará pie a la Municipalidad para que, conforme el ordenamiento jurídico, se tomen las acciones penales y administrativas que correspondan.

@@ -1,0 +1,1 @@
+Artículo 14.-Sanciones. El incurrir en infracciones por parte del contribuyente será sancionado con lo que estipula el Código Tributario. Asimismo y de conformidad al artículo 36 del Código de Minería, la falta de pago del impuesto aquí reglamentado será sancionada con una equivalente a 10 veces el valor de lo defraudado.

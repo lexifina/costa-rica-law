@@ -1,0 +1,1 @@
+Artículo 13.-Infracciones. Conforme lo determina el Código de Minería y el artículo 80 del Código Tributario, será considerada defraudación fiscal y sujeta a todos los procedimientos instituidos al respecto, la falta de pago puntual de este impuesto, así como cualquier maniobra que induzca en error a la Administración Municipal.

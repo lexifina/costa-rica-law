@@ -1,0 +1,1 @@
+Artículo 2°-Contribuyentes. Serán contribuyentes, para los efectos de este Reglamento, las personas físicas o jurídicas que se dediquen a la explotación de canteras en la jurisdicción del cantón central de la provincia de Cartago, y que además cumplan todos los requisitos que la ley determina para el ejercicio de tal actividad.
