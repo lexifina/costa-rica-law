@@ -1,0 +1,1 @@
+Artículo 5° — El programa deportivo del atletismo avalado por el Comité Cantonal de Deportes y Recreación tendrá prioridad, por lo tanto durante las prácticas no se permitirá el ingreso a personas ajenas al grupo.
