@@ -115,10 +115,10 @@ EL REGULADOR GENERAL, RESUELVE:
 l.-Fijar para los servicios aeroportuarios prestados por la Dirección General de Aviación Civil en el Aeropuerto Internacional Juan Santamaría, el pliego Tarifario que se detalla a continuación:
 Categoría tarifaría | Servicio | Unidad de medida | Periocidad de cobro | Tarifa aprobada en US$
 1.1. TARIFAS DE ATERRIZAJE | | | |
-Aeronaves aviación general y agrícola. vuelos locales | Existente | 1000 Kg | p/aterrizaje | 0,26
-Aeronaves aviación general. vuelos internacionales | Existente | 1000 Kg | p/aterrizaje | 0,52
-Aeronaves comerciales | Existente | 1000 Kg | p/aterrizaje | 0,52
-Aeronaves de carga | Existente | 1000 Kg | p/aterrizaje | 0,52
+Aeronaves aviación general y agrícola. vuelos locales | Existente | 1000 Kg | p/aterrizaje | 0,18 (Así reformado mediante resolución RRG-580 del 29 de junio de 1998)
+Aeronaves aviación general. vuelos internacionales | Existente | 1000 Kg | p/aterrizaje | 0,35 (Así reformado mediante resolución RRG-580 del 29 de junio de 1998)
+Aeronaves comerciales | Existente | 1000 Kg | p/aterrizaje | 0,35 (Así reformado mediante resolución RRG-580 del 29 de junio de 1998)
+Aeronaves de carga | Existente | 1000 Kg | p/aterrizaje | 0,35 (Así reformado mediante resolución RRG-580 del 29 de junio de 1998)
 | | | |
 1.2. TARIFAS DE APROXIMACION | | | |
 Aeronaves aviación general. menos de 12 500 kg | Nuevo | 1000 Kg | p/aterrizaje | 0,60
@@ -135,7 +135,7 @@ Puentes de abordaje | Existente | 1000 Kg | p/aterrizaje | 0, 60
 Autobuses de abordaje | Existente | 1000 Kg | p/aterrizaje | 0, 60
 | | | |
 1.4 TARIFAS DE INFRAESTRUCTURA CAMPO AEREO | | | |
-Construcción y mejora de pistas y rampas | Nuevo | 1000 Kg | p/aterrizaje | 0,00
+Construcción y mejora de pistas y rampas | Nuevo | 1000 Kg | p/aterrizaje | 0,10 (Así reformado mediante resolución RRG-580 del 29 de junio de 1998)
 | | | |
 1.5 TARIFAS DE CARGA | | | |
 Menos de 90 minutos | Existente | | p/estacionamiento | Libre

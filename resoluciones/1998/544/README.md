@@ -14,3 +14,4 @@ Fija tarifas para los servicios aeroportuarios prestados por la Dirección Gener
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-18 | la propia norma |
+| 2 | 1998-06-29 | Resolución 580 (1998-06-29) |
