@@ -1,1 +1,2 @@
 Artículo 4º—Las suplencias solo podrán autorizarse cuando se trate de suplir personal con permiso sin goce de salario superior a 6 meses.
+(NOTA: Mediante la Directriz Presidencial N° 4 de 24 de junio del 2002 se exceptúa al Patronato Nacional de la Infancia de la aplicación de éste artículo, en lo que se refiere al personal profesional, técnico y de servicio dedicado a la atención de la población que está bajo la responsabilidad del Patronato Nacional de la Infancia, así como puestos de confianza de la Presidencia Ejecutiva.)
