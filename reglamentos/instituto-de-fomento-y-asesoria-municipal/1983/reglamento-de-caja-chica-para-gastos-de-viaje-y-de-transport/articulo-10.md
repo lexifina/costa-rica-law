@@ -1,0 +1,1 @@
+Artículo 10.—Previamente a la emisión del cheque para reintegrar el fondo de caja chica, la Auditoría realizará la revisión detallada de los comprobantes y justificantes del citado reintegro, a efecto de verificar que estén correctos.

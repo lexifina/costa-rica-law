@@ -1,0 +1,1 @@
+Artículo 11.—El funcionario responsable de los fondos de caja chica no podrá mantener en ésta o donde se guarden los fondos y valores del IFAM, documentos, efectivo o cheques que sean propiedad particular, como tampoco deberá suplir dinero de su propiedad para realizar o completar pagos que correspondan al IFAM.

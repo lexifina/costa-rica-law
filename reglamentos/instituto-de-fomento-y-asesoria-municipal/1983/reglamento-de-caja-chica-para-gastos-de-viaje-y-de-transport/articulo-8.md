@@ -1,0 +1,1 @@
+Artículo 8°—En caso de ausencia del administrador del fondo, temporal o definitiva, el director del Departamento Financiero designará un sustituto y solicitará a la Auditoría un arqueo para el traspaso de los fondos.

@@ -1,0 +1,1 @@
+Artículo 2°—El fondo estará bajo la custodia del Departamento Financiero y será administrado por el funcionario que ese Departamento designe. La responsabilidad del funcionario será garantizada con una póliza de fidelidad, que éste deberá pagar.

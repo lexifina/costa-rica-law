@@ -1,0 +1,1 @@
+Artículo 12.—De los fondos de esta caja chica podrán hacerse reposiciones o reintegros por concepto de gastos de viaje y de transporte, siempre que los primeros no excedan de (55 500,00 y las sumas a reintegrar, en giras efectuadas sin anticipos, debidamente justificadas, no sobrepasen el monto correspondiente a tres días de gira.
