@@ -1,2 +1,0 @@
-Artículo 24.-Los beneficios otorgados a los funcionarios Municipales por medio de la Dedicación Exclusiva y Disponibilidad, no impiden de ninguna forma, modo o manera que los funcionarios Municipales acogidos a tales incentivos perciban sus respectivos honorarios profesionales, siempre y cuando dichos honorarios profesionales deban ser cancelados por terceras personas.
-En asuntos en que la Municipalidad halla intervenido, la Institución no cubrirá los honorarios profesionales.

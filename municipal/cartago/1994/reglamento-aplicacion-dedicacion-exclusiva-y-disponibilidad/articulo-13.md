@@ -1,1 +1,0 @@
-Artículo 13.-El Contrato de Dedicación Exclusiva, tiene vigencia de un año a partir de la fecha de la firma por parte de la Dirección Ejecutiva y podrá ser renovado a solicitud del interesado. El aprobado de la renovación, es competencia de la Dirección Ejecutiva.
