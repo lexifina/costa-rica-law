@@ -14,3 +14,4 @@ Reglamento sobre Procedimientos de la Secretaría Técnica Nacional Ambiental SE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-16 | la propia norma |
+| 2 | 1997-07-02 | Decreto Ejecutivo 26228 (1997-07-02) |
