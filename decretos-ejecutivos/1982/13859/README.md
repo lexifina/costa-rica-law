@@ -13,3 +13,4 @@ Adiciona Capítulo a Reg. Colegio Federado Químicos Ingenieros Químicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-09-24 | la propia norma |
+| 2 | 1998-08-28 | Decreto Ejecutivo 27348 (1998-08-28) |
