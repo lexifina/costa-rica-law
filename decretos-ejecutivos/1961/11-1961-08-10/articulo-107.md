@@ -1,0 +1,2 @@
+Artículo 107.—Se establece una cuota inicial fija de incorporación de trescientos colones, que deben pagar con anticipación en la Tesorería del Colegio. Las Enfermeras Graduadas en el Colegio de Médicos y Cirujanos (antigua Facultad de Medicina), y en la Escuela de Enfermería de Costa Rica.
+El reconocimiento de Títulos o Diplomas, en virtud de tratados internacionales para todas las Enfermeras graduadas que pretenden ejercer su profesión en el territorio nacional, son de cuatrocientos colones, de acuerdo con el artículo 56, capítulo XI del presente Reglamento.

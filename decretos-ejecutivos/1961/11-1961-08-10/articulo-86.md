@@ -1,0 +1,1 @@
+Artículo 86. — Los miembros del Tribunal de Moral Profesional, .serán electos por la Asamblea General de acuerdo con el Capítulo IV, artículo 79 de la Ley Orgánica del Colegio N° 2343 del 4 de mayo de 1959.

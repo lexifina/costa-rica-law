@@ -1,0 +1,1 @@
+Artículo 15. — La |unta Directiva no conocerá ningún asunto que no parezca en la orden del día, salvo que se trate de asuntos urgentes. La secretaria procurará tenerla confeccionada, con veinticuatro horas de anticipación.

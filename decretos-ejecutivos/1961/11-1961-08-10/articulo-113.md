@@ -1,0 +1,1 @@
+Artículo 113. — Los artículos 111 y 112 del Capítulo XX de este Reglamento para su efecto se regirán por lo dispuesto en el artículo 20 del Capítulo Único de Disposiciones (Generales de la Ley Orgánica del Colegio.

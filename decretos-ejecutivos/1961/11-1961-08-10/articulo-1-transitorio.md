@@ -1,0 +1,1 @@
+Transitorio I.—En los dos primeros años de vida del Colegio de Enfermeras de Costa Rica, con el objeto de instalarse y equipar su oficina, y hasta tanto las cuotas de las colegiadas no se cobren regularmente. La Junta Directiva podrá aprobar presupuestos extraordinarios que le permitan hacer frente a los gastos más urgentes.

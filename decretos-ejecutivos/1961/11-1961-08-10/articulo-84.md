@@ -1,0 +1,1 @@
+Artículo 84. — Los clientes que sin razón justificada se nieguen a cubrir los honorarios, pueden ser demandados ante los Tribunales ordinarios de Justicia por la Enfermera u Obstétrica, sin que esto afecte su nombre, su crédito, o el concepto público de que goce.

@@ -1,0 +1,1 @@
+Artículo 44.—Durante los exámenes de incorporación presidirá la examinadora de títulos más antiguos y actuará como Secretaria la de título más reciente, salvo acuerdo contrario de la mayoría del Tribunal.

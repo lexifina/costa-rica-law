@@ -1,0 +1,1 @@
+Artículo 116. — Las sanciones económicas impuestas por la Junta Directiva, para quienes ejerzan la profesión sin haber obtenido la licencia, respectiva o sin haberla renovado, y por los montos acordados, pasarán a engrosar los fondo de Mutualidad .

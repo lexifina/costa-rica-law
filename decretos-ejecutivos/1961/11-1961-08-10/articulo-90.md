@@ -1,0 +1,1 @@
+Artículo 90. — La enfermera debe ajustar siempre su conducta pública y privada a las reglas de la probidad y del honor. Será honesta en el ejercicio de su profesión así como en los demás actos de su vida.

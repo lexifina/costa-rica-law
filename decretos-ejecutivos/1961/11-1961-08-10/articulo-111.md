@@ -1,0 +1,1 @@
+Artículo 111.- -Tanto las Enfermeras Graduadas como las personas que laboren en su condición de Auxiliar de Enfermería quedan obligadas a revalidar su licencia cada dos años, estableciéndose para tales casos, una cuota de ¢ 10.00 (diez colones) para las primeras y de ¢ 5. 00 (cinco colones) para las segundas.

@@ -1,0 +1,2 @@
+Del Ejercicio de la Obstetricia
+Artículo 77.—Podrán ejercer la Obstetricia en el país, solamente las personas que obstenten el título de Obstétrica Profesional, expedidos por el Colegio de Médicos y Cirujanos, (antigua Facultad de Medicina), por el curso de post-graduado de Obstetricia de la Escuela de Enfermería de Costa Rica, y las Obstétricas Profesionales tituladas en otros países incorporadas al Colegio de Médicos y Cirujanos, antes de la promulgación de la ley N° 2343 de fecha 4 de mayo de 1959.

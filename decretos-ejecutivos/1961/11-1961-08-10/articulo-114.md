@@ -1,0 +1,1 @@
+Artículo 114. — Constituirá el titulo ejecutable la certificación expedida por la Presidenta y la Tesorera en la cual consta que una colegiada adeuda sumas al Colegio, por concepto de cuotas o multas.

@@ -1,0 +1,1 @@
+Artículo 97. — Las enfermeras deben sin faltar a sus deberes reportar los delitos de que tenga conocimiento en el ejercicio de su profesión, de acuerdo con lo que dispone el Código Penal o cuando se trata de denuncias para evitar que se cometa un error judicial en contra del Código Sanitario en caso de enfermedades trasmisibles. También es permitida la revelación del secreto.

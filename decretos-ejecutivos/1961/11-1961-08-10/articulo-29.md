@@ -1,0 +1,1 @@
+Artículo 29. — Los nombres de las candidatas podrán ser variados en relación a las papeletas conjuntas inscritas pero no del puesto a que han sido impuestas, ya que el cómputo de votación se hará por persona y función y no por papeleta .

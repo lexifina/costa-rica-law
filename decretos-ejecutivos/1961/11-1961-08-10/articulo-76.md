@@ -1,0 +1,1 @@
+Artículo 76.—Es un deber moral y social de la Enfermera, aconsejar a sus pacientes, educarlos cuando las enfermedades que sufren provienen de malo hábitos, que además pueden perjudicar a otros, induciéndolos a no abandonar los. tratamientos a que han sido sometidos por el Médico.

@@ -1,0 +1,1 @@
+Artículo 68.—Son funciones distintivas de la enfermería profesional, aquellas que se lleven a cabo mediante actividades especializadas “que implican ch-quienes las ejerzan, un criterio y mía capacidad especializados y se basan en el conocimiento profesional y aplicación de las ciencias biológicas, físicas y sociales”, en el ramo de la Enfermería.

@@ -1,0 +1,1 @@
+Artículo 105.—Las personas que hayan cursado más de dos años en la Escuela de Enfermería de Costa Rica, se les otorgará la Licencia como Auxiliares, igualando así a quienes han hecho el Curso Oficial.

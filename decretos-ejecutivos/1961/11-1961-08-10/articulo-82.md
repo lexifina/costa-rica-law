@@ -1,0 +1,1 @@
+Artículo 82. — Los servicios profesionales de las enfermeras y obstétrica; en la práctica privada, no tendrán un valor uniforme, sino que se fijarán por convenio especial entre el paciente o sus familiares y la enfermera.

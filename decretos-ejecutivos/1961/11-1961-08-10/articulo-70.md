@@ -1,0 +1,1 @@
+Artículo 70.—Las Instituciones patronales que tengan servicios de Enfermería deberán emplear no menos del 90 c/o, de Enfermeras Profesionales costarricenses, en un todo de acuerdo con lo dispuesto en ‘el artículo 13 del Código de Trabajo.

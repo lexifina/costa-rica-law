@@ -1,0 +1,1 @@
+Artículo 110. — Se establece cuino cuota inicial lija de veinticinco colones, que deben pagarse anticipadamente en la Tesorería del Colegio, para toda persona que aspire a trabajar como Auxiliar de Enfermería, por concepto de Licencia.
