@@ -14,3 +14,4 @@ Reglamento de la Junta Administrativa Imprenta Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-07-06 | la propia norma |
+| 2 | 1975-04-03 | Decreto Ejecutivo 4706 (1975-04-03) |
