@@ -14,3 +14,4 @@ Reglamento de Capacitación y Formación de los Funcionarios del Instituto Mixto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-02 | la propia norma |
+| 2 | 2004-09-02 | Reglamento 54 (2004-09-02) |
