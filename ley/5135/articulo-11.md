@@ -1,0 +1,18 @@
+Artículo 11.- Las plantas procesadoras que no cumplan con el
+suministro de las cantidades de carne adquiridas para el consumo interno,
+pagarán una multa de diez colones (¢ 10.00) por cada kilogramo que dejaren
+de entregar. Las multas que se perciban pasarán a los fondos del Consejo
+Nacional de Producción para programas de abaratamiento de la carne para
+consumo popular.
+Cada tres meses, el Consejo Nacional de Producción determinará cuáles
+plantas procesadoras han incumplido su obligación de suministrar al
+mercado nacional la carne adquirida con ese fin y las cantidades que se
+dejaron de suplir. Esta liquidación del Consejo tendrá carácter de título
+ejecutivo para el efecto de que esa Institución establezca las
+correspondientes acciones civiles ante los tribunales para el cobro de la
+mencionada multa.
+Además de la indicada multa, la planta que hubiere incumplido no
+podrá exportar carne durante el trimestre inmediato siguiente y si
+reincidiere una vez, la prohibición comprenderá el lapso de una año a
+partir de la fecha de reincidencia. La licencia de exportación se revocará
+definitivamente si reincidiere dos veces.
