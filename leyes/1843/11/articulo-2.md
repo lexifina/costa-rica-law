@@ -1,0 +1,2 @@
+Art. 2. Se dota la universidad con todos los fondos y rentas de cualquiera clase, que hasta ahora han pertenecido á la expresada Casa de Santo Tomás, y con la cuarta parte del producto líquido del tabaco que se expenda en todas las tercenas del Estado (1)
+(1) Derogada esta última parte por el art. 1° de la ley n° 10 de 27 de Junio de1849, quedó reducida la subvención a 4000 pesos anuales por el art. 2° del mismo Decreto.

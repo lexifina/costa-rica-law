@@ -1,0 +1,1 @@
+Art. 4. Los estatutos que deben organizar y regir la Universidad, se expedirán oportunamente; y no obstante su falta, el Gobierno establecerá desde luego, ó sucesivamente, las clases que tuviese á bien, debiendo los Catedráticos permanecer en ellas aún después de la publicación de los Estatutos, considerándose como que las han optado con las formalidades que ellos prevengan.
