@@ -1,0 +1,4 @@
+Artículo 10.—Cuando los resultados de la consulta popular provoquen una nómina mayor de quince personas, el Concejo debe repetir la consulta popular, indicando a los vecinos de ese distrito, por el medio de aviso utilizado en la primera, las razones que provocan está nueva consulta, para que el resultado no se repita, de no ser esto último, el Concejo decidir cuales nombres no formarán parte de la nómina de la cual se escogerán los miembros del Concejo Municipal de Distrito.
+El presente Reglamento rige a los diez días posteriores a su publicación en el Diario Oficial “La Gaceta”.
+Por tanto, analizado el modelo se acuerda: en forma unánime, 1° Aprobarlo tal y como se presenta el Reglamento para la Consulta Popular para Determinar las Nóminas de Quince Personas de las cuales se Seleccionará en Cervantes, el Concejo Municipal distrito Cervantes. 2° Procédase a su publicación en el Diario Oficial.
+Pacayas, 27 de noviembre de 1998
