@@ -1,0 +1,3 @@
+CAPITULO VII
+De las exhumaciones
+Artículo 37.-En concordancia con la normativa respectiva, las exhumaciones se consideran de dos tipos: ordinarias y extraordinarias. Las primeras son las que se efectúan después de cinco años de inhumados los restos, mediante autorización del Ministerio de salud para ser trasladados al osario o para ser incinerados; y las segundas cuando los cadáveres sean desenterrados por orden de la autoridad judicial para investigaciones en interés de la justicia o con permiso de la División de Epidemiología del Ministerio de Salud para ser trasladados a otras sepulturas o para ser incinerados.

@@ -1,0 +1,1 @@
+Artículo 14.-EI incumplimiento de parte del adquirente en el pago de un año de amortización, faculta a la Municipalidad para disponer del lote correspondiente. La Municipalidad cobrará intereses moratorios con base en el artículo 82 del Código Municipal.

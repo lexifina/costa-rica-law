@@ -1,0 +1,1 @@
+Artículo 16.-Una vez que el adquirente haya cancelado totalmente el lote, obtendrá simultáneamente el derecho de uso y posesión a perpetuidad. No obstante deberá pagar las cuotas de mantenimiento y conservación.

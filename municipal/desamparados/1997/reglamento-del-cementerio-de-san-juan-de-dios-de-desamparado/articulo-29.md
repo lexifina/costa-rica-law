@@ -1,0 +1,1 @@
+Artículo 29.-La Administración queda obligada a facilitar las inspecciones a las autoridades administrativas y sanitarias, a fin de fiscalizar la buena marcha de la política mortuaria que establece la Ley General de Salud.

@@ -1,0 +1,1 @@
+Artículo 43.-La Municipalidad y la Administración se reservan el derecho de admisión al Cementerio de cualquier persona que a su juicio pudiera poner en peligro la tranquilidad y el orden que deben reinar en este lugar.

@@ -1,0 +1,1 @@
+Artículo 45.-La realización de actos religiosos de distintos credos están sujetos a 10 indicado en la legislación emitida sobre la materia; no obstante, la Municipalidad no hará diferencias de ningún tipo económico, social, cultural, racial, político o religioso, siempre y cuando los actos que ahí se realicen no atenten contra la ley y las buenas costumbres.

@@ -1,0 +1,2 @@
+Artículo 25.-La Administración inspeccionara la colocación de las lápidas, cruces, etc. así como los colores a usarse que serán blanco y gris, y pudiéndose aplicar el color negro para fines decorativos, a fin de que se mantenga la estética del cementerio.
+En el caso de que el adquirente deseé decorar con enchape, los colores a usarse quedarán sujetos a la autorización de la Administración, previa presentación de la muestra.

@@ -1,0 +1,1 @@
+Artículo 47.-Este reglamento rige a partir de su publicación, después de haber sido sometido a consulta pública por diez días. Se complementa con las disposiciones parciales emitidas por el Concejo en esta materia. Los asuntos no previstos en el mismo, serán regulados conforme a la legislación vigente en la materia.

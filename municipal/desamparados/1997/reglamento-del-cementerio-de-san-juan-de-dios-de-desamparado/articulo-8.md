@@ -1,0 +1,1 @@
+Artículo 8°-Dado que el cementerio ha sido concebido y diseñado como un jardín, los adquirientes no podrán efectuar ningún tipo de construcción en sus terrenos. Toda construcción y mejora hecha en el cementerio será realizada exclusivamente por la Municipalidad de Desamparados.

@@ -1,0 +1,1 @@
+Artículo 15.-La Municipalidad dará el título de propiedad al adquirente cuando el lote esté totalmente cancelado; sin embargo, éste podrá hacer uso del mismo una vez efectuado el pago de la prima correspondiente.

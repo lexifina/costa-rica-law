@@ -1,0 +1,1 @@
+Artículo 24.-En caso de daños causados por fenómenos naturales, la Municipalidad se hará cargo de las reparaciones a realizar, debiendo notificar el monto de los daños a los interesados, quienes deben apersonarse en los siguientes diez días hábiles después de la notificación, a comprobar la existencia de los mismos y a formalizar el pago correspondiente.

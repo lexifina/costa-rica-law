@@ -1,0 +1,1 @@
+Artículo 38.-Las exhumaciones ordinarias se realizarán a solicitud de los parientes mencionados en el artículo 17 del presente Reglamento. (Dichas exhumaciones se realizarán bajo el horario de siete a.m. a las dieciséis horas).
