@@ -1,1 +1,3 @@
-Artículo 20.-Cualquier asunto relacionado con la materia, no contemplado en el presente Reglamento, se entender regulado por la Ley de la Administración Financiera de la República y su Reglamento.
+Artículo 20.-Cualquier asunto relacionado con la materia, no contemplado en el presente Reglamento, se entendera regulado por la Ley de la Administración Financiera de la República y su Reglamento.
+(NOTA: Mediante el artículo 1° del decreto ejecutivo N° 29612 del 27 de abril del 2000, se reforma el artículo 20 del presente decreto; no obstante, por la materia regulada se infiere que dicha reforma corresponde al artículo 2°, pero al indicarse expresamente que se reforma el artículo 20 se transcribe a continuación:
+"Artículo 20.—El monto de la Caja Chica será de ¢ 5.000.000,00 (cinco millones de colones) y se manejará a través de la cuenta de Caja Chica Nº 34368-1 del Banco Nacional de Costa Rica.")
