@@ -5,7 +5,7 @@ Artículo 2°-Las siguientes sustancias y las que en el futuro se declaren como 
 4) Acido clorhídrico
 5) Acido fenilacético
 6) Acido N-acetilantranílico y sus éteres
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 25061 del 13 de marzo de 1996)
+(Así reformado el inciso anterior por el artículo del decreto ejecutivo N° 25061 del 13 de marzo de 1996)
 7) Acido sulfúrico
 8) Amoniaco
 9) Anhídrido acético
@@ -17,7 +17,7 @@ Artículo 2°-Las siguientes sustancias y las que en el futuro se declaren como 
 15) Cloruro de acetilo
 16) Cloruro de bencilo
 17) Cloruro de metileno
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 25061 del 13 de marzo de 1996)
+(Así reformado el inciso anterior por el artículo 2 del decreto ejecutivo N° 25061 del 13 de marzo de 1996)
 18) Cornezuelo de Centeno
 19) Di-Isobutil Cetona
 20) Efedrina
@@ -28,9 +28,9 @@ Artículo 2°-Las siguientes sustancias y las que en el futuro se declaren como 
 25) Eter de petróleo
 26) Etilenglicol
 27) Etilenglicol monetil eter (cellosolve) y etilenglicol monobutil éter (butil cellosolve)
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 25061 del 13 de marzo de 1996)
+(Así reformado el inciso anterior por el artículo 2 del decreto ejecutivo N° 25061 del 13 de marzo de 1996)
 28) Mezclas de los solventes incluidos en este listado o mezclas que contengan las sustancias sujetas a este control en un alta proporción, de que sea factible su sepración por métodos simples por detilación fraccionada, etc.
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 25061 del 13 de marzo de 1996)
+(Así reformado el inciso anterior por el artículo 2 del decreto ejecutivo N° 25061 del 13 de marzo de 1996)
 29) Fenil 2 – propanona
 30) Hexano
 31) Heptano
@@ -40,7 +40,7 @@ Artículo 2°-Las siguientes sustancias y las que en el futuro se declaren como 
 35) Metil isobutil cetona (MIBK)
 36) Nafta alifática
 37) Nafta aromáticas de petróleo
-(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 25061 del 13 de marzo de 1996)
+(Así reformado el inciso anterior por el artículo 2 del decreto ejecutivo N° 25061 del 13 de marzo de 1996)
 38) Piperidina
 39) Propilenglicol
 40) Pseudofedrina
@@ -64,4 +64,8 @@ Artículo 2°-Las siguientes sustancias y las que en el futuro se declaren como 
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 25061 del 13 de marzo de 1996)
 53) Las sales de las sustancias enlistadas en este artículo, siempre que la existencia de dichas sales sea posible, exceptuando las sales de los ácido.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 25061 del 13 de marzo de 1996)
+54) Fenilpropanolamina (PPA por sus siglas en inglés) y sus sales e isómeros óptimos. No se autorizará su importación para ser empleado en medicamentos, a menos que la prohibición dictada por el Poder Ejecutivo sea expresamente derogada.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 29618 del 8 de junio de 2001)
+55) Alcohol Etílico. La importación de este producto debe sujetarse a la presente normativa sin perjuicio de las atribuciones que por ley le corresponden a la Fábrica Nacional de Licores, en cuanto al monopolio de fabricación de bebidas alcohólicas y regulación del uso de ese alcohol.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 29618 del 8 de junio de 2001)
 Se prohíbe la importación de tales sustancias si previamente no se cuenta con la autorización extendida por la Junta de Vigilancia de Drogas y Estupefacientes del Ministerio.

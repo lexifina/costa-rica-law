@@ -15,3 +15,4 @@ Reglamento de Importación de Precursores, Sustancias o Productos Químicos y Di
 | --- | --- | --- |
 | 1 | 1989-06-27 | la propia norma |
 | 2 | 1996-03-13 | Decreto Ejecutivo 25061 (1996-03-13) |
+| 3 | 2001-06-08 | Decreto Ejecutivo 29618 (2001-06-08) |
