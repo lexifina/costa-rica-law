@@ -1,0 +1,7 @@
+ARTICULO 30
+En los Estados en que existan minorías étnicas, religiosas o
+lingüísticas o personas de origen indígena, no se negará a un niño que
+pertenezca a tales minorías o que sea indígena el derecho que le
+corresponde, en común con los demás miembros de su grupo, a tener su
+propia vida cultural, a profesar y practicar su propia religión, o a
+emplear su propio idioma.

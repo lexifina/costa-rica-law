@@ -1,0 +1,10 @@
+ARTICULO 26
+1. Los Estados Partes reconocerán a todos los niños el derecho a
+beneficiarse de la seguridad social, incluso del seguro social, y
+adoptarán las medidas necesarias para lograr la plena realización de
+este derecho de conformidad con su legislación nacional.
+2. Las prestaciones deberían concederse, cuando corresponda,
+teniendo en cuenta los recursos y la situación del niño y de las personas
+que sean responsables del mantenimiento del niño, así como cualquier otra
+consideración pertinente a una solicitud de prestaciones hecha por el
+niño o en su nombre.

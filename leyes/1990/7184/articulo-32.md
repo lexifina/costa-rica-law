@@ -1,0 +1,16 @@
+ARTICULO 32
+1. Los Estados Partes reconocen el derecho del niño a estar
+protegido contra la explotación económica y contra el desempeño de
+cualquier trabajo que pueda ser peligroso o entorpecer su educación, o
+que sea nocivo para su salud o para su desarrollo físico, mental,
+espiritual, moral o social.
+2. Los Estados Partes adoptarán medidas legislativas,
+administrativas, sociales y educacionales para asegurar la aplicación del
+presente artículo. Con ese propósito y teniendo en cuenta las
+disposiciones pertinentes de otros instrumentos internacionales, los
+Estados Partes, en particular:
+a) Fijarán una edad o edades mínimas para trabajar.
+b) Dispondrán la reglamentación apropiada, de los horarios y
+condiciones de trabajo.
+c) Estipularán las penalidades u otras sanciones apropiadas para
+asegurar la aplicación efectiva del presente artículo.

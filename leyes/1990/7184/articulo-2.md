@@ -1,0 +1,13 @@
+ARTICULO 2
+1. Los Estados Partes respetarán los derechos enunciados en esta
+Convención y asegurarán su aplicación a cada niño sujeto a su
+jurisdicción, sin distinción alguna, independientemente de la raza, el
+color, el sexo, el idioma, la religión, la opinión política o de otra
+índole, el origen nacional, étnico, o social, la posición económica, los
+impedimentos físicos, el nacimiento o cualquier otra condición del niño,
+de sus padres o de sus representantes legales.
+2. Los Estados Partes tomarán todas las medidas apropiadas para
+asegurar que el niño sea protegido contra toda forma de discriminación o
+castigo por causa de la condición, las actividades, las opiniones
+expresadas o las creencias de sus padres, o sus tutores o de sus
+familiares.
