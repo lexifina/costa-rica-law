@@ -1,0 +1,1 @@
+Artículo 2°-La Comisión estará integrada por dos representantes del Poder Judicial, dos del Poder Legislativo, dos del Poder Ejecutivo, uno del Tribunal Supremo de Elecciones, el Presidente del Colegio de Abogados, Dr. Enrique Rojas Franco, y los juristas Rodolfo Piza Escalante y Bernardo Van Der Laat Echeverría.
