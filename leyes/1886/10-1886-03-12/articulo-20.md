@@ -1,0 +1,1 @@
+Art. 20.-Con arreglo las precedentes disposiciones, la Inspección provincial de escuelas redactará el horario correspondiente, uniforme para todas las de la provincia, tomando por modelo, en lo posible, el de la escuela primaria anexa á la Normal.- El horario estará en el salón de la escuela á la vista de todos.

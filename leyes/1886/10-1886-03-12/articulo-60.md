@@ -1,0 +1,1 @@
+Art. 60.-Cuando el preceptor consignare en los registros datos falsos, ó por medio del movimiento mensual los trasmitiere, habrá causa para separarlo de su empleo y retirarle el diploma, sin perjuicio de las demás penas que le correspondan.

@@ -1,0 +1,1 @@
+Art. 13.-Por las faltas de asistencia se descontará los maestros el sueldo correspondiente á los días que dejaren de asistir, y el duplo si fueren des- autorizadas. La Junta de Instrucción dará el aviso del caso al Inspector, y si las faltas no autorizadas pasaren de diez, se considerará abandonado el destino.

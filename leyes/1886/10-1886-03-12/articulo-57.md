@@ -1,0 +1,1 @@
+Art. 57.-Todos los registros y demás libros escolares, así como las planillas estadísticas de las escuelas comunes, deberán ser uniformes y según los modelos que d‚ la Inspección General de Enseñanza.

@@ -1,0 +1,1 @@
+Art. 54.-Los documentos que haya en cada escuela se conservarán en buen orden, arreglados en legajos separados por años, y clasificados de manera que puedan encontrarse fácilmente por el índice que debe acompañar á cada legajo.

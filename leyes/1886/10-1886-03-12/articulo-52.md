@@ -1,0 +1,1 @@
+Art. 52.-Ninguna obra donada por un particular será incluída en el catálogo de la biblioteca sin que antes haya sido calificada por el Inspector provincial, quien rechazará las que juzgue contrarias la moral.

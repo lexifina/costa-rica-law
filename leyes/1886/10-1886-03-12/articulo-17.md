@@ -1,0 +1,1 @@
+Art. 17.-Los daños de cualquier especie hechos en el edificio y enseres de la escuela, serán pagados por los padres ó encargados de los alumnos que los causen, sin perjuicio de las medidas disciplinarias á que haya lugar contra estos últimos.

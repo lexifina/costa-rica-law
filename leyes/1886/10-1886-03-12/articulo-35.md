@@ -1,0 +1,1 @@
+Art. 35.-Si éste reincidiere todavía, el maestro se dirigirá de nuevo á los padres solicitando el concurso de su autoridad, y previniéndoles que en caso de no enmendarse el niño en su conducta, se pondrá el hecho en conocimiento de la Junta de Educación para los efectos del artículo 36. Se recabará contestación por escrito para la debida constancia.
