@@ -1,2 +1,0 @@
-Artículo 7°—El Taller” funcionará bajo la responsabilidad de un Consejo Directivo integrado por dos representantes de cada uno de los tres Ministerios involucrados, los miembros serán personas de reconocida capacidad y experiencia: asimismo, deberán ser costarricenses por nacimiento o naturalización y no podrán estar ligados entre sí por parentesco de consanguinidad o afinidad hasta tercer grado inclusive. Los miembros durarán en su cargo dos años, pudiendo ser reelectos.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 23820 del 1 de noviembre de 1994)
