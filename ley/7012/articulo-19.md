@@ -1,1 +1,2 @@
-Artículo 19.- Los bienes adquiridos, de acuerdo con el beneficio de la exoneración que otorga la presente ley, serán exclusivamente para uso personal. El incumplimiento de esta disposición implicará la aplicación del artículo 20 de esta ley.
+Artículo 19.- Las mercancías adquiridas de acuerdo con la exoneración que otorga la presente ley, serán exclusivamente para uso personal. Será penado con prisión de uno a tres años, quien ponga a la venta, venda o por cualquier otro modo traspase, ofrezca o reciba, bajo cualquier título y con carácter comercial, mercancías adquiridas en el depósito libre comercial de Golfito.
+(Así reformado por el artículo 1º de ley No.7730 de 20 de diciembre de 1997)
