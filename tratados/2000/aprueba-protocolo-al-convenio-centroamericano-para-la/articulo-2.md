@@ -1,0 +1,1 @@
+Artículo 2°- Derógase el Convenio Centroamericano para la Protección de la Propiedad Industrial (Marcas, Nombres Comerciales y Expresiones o Señales de Propaganda), Ley No. 4543, de 18 de marzo de 1970.
