@@ -1,6 +1,5 @@
-Artículo 23.—Criterios técnicos aplicables para la determinación del Peso Bruto Vehicular, la carga útil y la distribución de cargas axiales. La determinación de los diferentes pesos máximos permitidos, la carga útil y la distribución de las cargas axiales que figurarán en el Permiso de Pesos y Dimensiones se hará con base en el siguiente orden jerárquico de criterios técnicos:
-a) Las normas y disposiciones del presente Reglamento.
-b) Las especificaciones del fabricante.
-c) Las certificaciones extendidas por un ingeniero mecánico especialista en automotores incorporado al Colegio Federado de Ingenieros y Arquitectos o, en su defecto, por un organismo técnico autorizado, en el caso de modificaciones o conversiones de vehículos y pruebas de estanqueidad.
-d) El número de capas, el tamaño y la capacidad resistente a la carga de las llantas de cada eje con las que está circulando el vehículo.
-e) Las revisiones periódicas de Pesos y Dimensiones realizadas por el órgano competente del MOPT.
+Artículo 23.—Criterios para la determinación del Peso Máximo Autorizado, la carga útil y la distribución de cargas axiales. Para la determinación del Peso Máximo Autorizado, la carga útil y la distribución de las cargas axiales que figurarán en el Permiso de Pesos y Dimensiones, cuando corresponda contar con éste, el interesado podrá elegir cualquiera de los siguientes criterios técnicos de determinación:
+a) Lo indicado por el fabricante de conformidad con las especificaciones técnicas del vehículo, pero sin que se sobrepasen los pesos máximos estipulados en el presente Reglamento, o, en su defecto,
+b) Por el número de capas, el tamaño y la capacidad resistente a la carga de las llantas de cada eje con las que está circulando el vehículo, aplicando el procedimiento técnico de cálculo establecido por el MOPT, sin que se sobrepase lo estipulado en el presente reglamento.
+Sólo en el caso de modificaciones o conversiones realizadas a los vehículos y de pruebas de estanqueidad se aceptarán certificaciones extendidas por un organismo técnico autorizado o, en su defecto, por un ingeniero mecánico con especialidad en automotores reconocido por el Colegio Federado de Ingenieros y Arquitectos.
+(Así reformado por el artículo 10 del decreto ejecutivo N° 32191 del 14 de noviembre del 2004)

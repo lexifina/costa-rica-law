@@ -1,6 +1,3 @@
-Artículo 85.—Diagrama de pesos máximos permitidos en el camión con remolque. En el caso de los vehículos con remolque a que se refiere el presente Reglamento, el presente diagrama identifica los pesos máximos permitidos según cada tipo de vehículo de que se trate:
-TABLA 3
-CAMION CON REMOLQUE
-(Pesos máximos permitidos por tipo de vehículo)
-(NOTA DE SINALEVI: Ver tabla en La Gaceta No. 34 de 18 de febrero de 2004, pág. 2).
-(Así reformado por artículo 3° del Decreto Ejecutivo N° 31642 de 18 de diciembre de 2003).
+Artículo 85.—Diagrama de pesos máximos permisibles en el camión con remolque. En el caso de los vehículos con remolque a que se refiere el presente Reglamento, el presente diagrama identifica los pesos máximos permisibles según cada tipo de vehículo de que se trate:
+Ver tabla N° 3 de camión remolque en La Gaceta impresa N° 13 del 19 de enero del 2005.
+(Así reformado por el artículo N° 18 del decreto ejecutivo N° 32191 del 14 de noviembre del 2004)

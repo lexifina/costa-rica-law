@@ -1,1 +1,2 @@
-Artículo 20.—Renovación de los Permisos de Pesos y Dimensiones. Los Permisos de Pesos y Dimensiones tienen que renovarse antes de que se produjere su vencimiento.
+Artículo 20.—Renovación de los Permisos de Pesos y Dimensiones. Los Permisos de Pesos y Dimensiones podrán renovarse antes de que se produzca su vencimiento. La obtención del nuevo Permiso requerirá el cumplimiento de los requisitos técnicos y administrativos estipulados en el presente reglamento para su obtención por primera vez.
+(Así reformado por el artículo 8 del decreto ejecutivo N° 32191 del 14 de noviembre del 2004)
