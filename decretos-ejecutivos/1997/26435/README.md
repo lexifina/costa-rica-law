@@ -16,3 +16,4 @@ Reglamento a Ley de Conservación de la Vida Silvestre
 | 1 | 1997-12-03 | la propia norma |
 | 2 | 1999-01-13 | Decreto Ejecutivo 27696 (1999-01-13) |
 | 3 | 2001-11-27 | Decreto Ejecutivo 30102 (2001-11-27) |
+| 4 | 2003-02-11 | Decreto Ejecutivo 31077 (2003-02-11) |
