@@ -1,0 +1,4 @@
+Artículo 14.—Construcción de la obra.
+El Contratista deberá ejecutar la obra conforme a las técnicas constructivas vigentes y aceptadas usualmente. Acatará las órdenes que imparta la inspección de la obra y se obligará a utilizar materiales nuevos y de primera calidad y mano de obra calificada, corriendo a su costo la demolición de lo construido, por no reunir la mano de obra o los materiales en las condiciones indicadas.
+El Ingeniero responsable de la edificación deberá visitarla con la dedicación que estipule el cartel, o a falta de estipulación, con aquella que requiera una diligente dirección. El Maestro de Obras deberá dedicarse a tiempo completo. La inspección aprobará tanto al profesional director como al maestro de obras.
+Se llevará una Bitácora de Obra para los fines legales y técnicos estipulados por el Colegio Federado de Ingenieros y Arquitectos de Costa Rica.

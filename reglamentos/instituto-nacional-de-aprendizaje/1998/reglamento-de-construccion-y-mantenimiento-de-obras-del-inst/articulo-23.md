@@ -1,0 +1,2 @@
+Artículo 23.—Incumplimiento.
+El incumplimiento de cualquiera de las obligaciones contenidas en el presente Reglamento implicará la aplicación de las medidas disciplinarias correspondientes de conformidad con los artículos 47 al 50 del Reglamento Autónomo de Servicios del Instituto.

@@ -1,0 +1,3 @@
+Artículo 12.—Contratación de obras.
+La adjudicación de obras públicas será competencia de la Junta Directiva o de la Comisión de Licitaciones, de conformidad con lo estipulado en el Reglamento de Suministros del Instituto.
+Una vez firme el acto de adjudicación, la Asesoría Legal elaborará e instrumentará el contrato en un documento que recoja los aspectos más relevantes, el cual deberá suscribir la Subgerencia Administrativa. Se integrarán corro parte del contrato el pliego de condiciones generales y técnicas, así como los planos constructivos, la oferta, el acuerdo de adjudicación, la Ley de Administración Financiera de la República y la Ley y el Reglamento General de Contratación Administrativa, que regirán en todo aquello no previsto expresamente.
