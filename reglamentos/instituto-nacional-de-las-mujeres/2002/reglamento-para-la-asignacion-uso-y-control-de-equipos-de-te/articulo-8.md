@@ -1,0 +1,3 @@
+Artículo 8º—Del daño patrimonial. Si derivada de la asignación del equipo de telefonía celular o radiolocalización se generara alguna clase de daño patrimonial a la institución, contemplado en este reglamento, se procederá de la siguiente manera:
+a) La administración determinará el monto de la deuda y se lo informará a la funcionaria/o, quien si está de acuerdo, autorizará su cancelación mediante las deducciones convenidas, las cuales no podrán exceder los tres tractos. La/el trabajador/a o funcionaria/o podrá efectuar la cancelación en un solo pago.
+b) Si la/el funcionaria/o no estuviere de acuerdo con que el monto de lo adeudado se le deduzca de conformidad con inciso anterior, la administración procederá a certificar dicho monto y establecer el cobro respectivo.

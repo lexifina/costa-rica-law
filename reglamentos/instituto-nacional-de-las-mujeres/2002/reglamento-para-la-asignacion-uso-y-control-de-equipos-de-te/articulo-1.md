@@ -1,0 +1,1 @@
+Artículo 1º—Ámbito de aplicación. Este Reglamento es de acatamiento obligatorio para todos las funcionarias/os del INAMU, así como aquellas personas que no siendo funcionarias/os del INAMU, se están desempeñando en calidad de servidoras/es públicas/os, al tenor de lo dispuesto por el artículo 111 de la Ley General de la Administración Pública.
