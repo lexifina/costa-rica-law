@@ -1,1 +1,0 @@
-Artículo 4º—Para los tres supuestos desarrollados en los artículos 1º, 2º y 3º del presente Decreto, las zonas de carga y descarga deberán estar debidamente señalizadas, indicando los espacios autorizados y el horario habilitado para dichas actividades.
