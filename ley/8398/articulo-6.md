@@ -4,3 +4,4 @@ ARTÍCULO 6°: PRESUPUESTO POR PROGRAMAS DEL PODER JUDICIAL
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 31717 del 04 de marzo de 2004)
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 31748 de 29 de marzo de 2004).
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 31814 del 10 de mayo de 2004)
+(Modificado por el artículo 1° del Decreto Ejecutivo N° 31854 del 2 de junio de 2004)
