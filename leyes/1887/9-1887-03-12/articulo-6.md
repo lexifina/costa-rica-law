@@ -1,0 +1,9 @@
+Art. 6°-Todas las partes comprendidas en la presente escritura se comprometen á hacer todo lo que fuere necesario ó racional, respectivamente, para llevar á efecto este convenio.
+En fe de lo cual las partes primera, segunda y cuarta lo firman y ratifican con su sello; y la parte tercera lo firma de su mano y sella con el sello común de la Corporación, en el día y el año que encabezan la presente escritura. (f.) Minor C. Keith (L. S.) Firmado, sellado y entregado por el dicho Minor C. Keith, en presencia de J. A. Holiday, 9. New Broad St. Dependiente de comercio. (f.) Rí- chard Foster (L. S.) (f.) William Knowles (L. S.) Firmado, sellado y entregrado por dichos Richard Foster y William Knowles en presencia de John Rowland, 48, Moorgate St. Londres, Dependiente de comercio. (f.) E. P. Bouverie. (L. S.) Firma- do, sellado y entregado por el dicho Edward Pley- dell Bouverie en presencia de S. N. Braithwaite, Abogado Procurador, 25. Throgmorton St, Lon- dres. (L. S.) En seguida se procedió á sellarla con el sello común de la Corporación de Tenedores de Bonos Extranjeros, puesto en presencia de J. L Vaughan y Roger Ey Kyn, dos miembros del Consejo. (f.) Charles O'Leary. Secretario."
+POR CUANTO, el convenio preinserto responde á los intereses de la República y está de acuerdo con la autorización conferida al señor Keith por leyes preexistentes
+Por tanto,
+DECRETA:
+Art. 1°-Apruébase cuanto ha lugar en derecho el convenio de que se ha hecho referencia.
+Art. 2°-Expidase el poder a que se refiere dicho convenio en los términos estipulados en la cédula que por separado se ha recibido.
+La Secretaría de Hacienda queda encargada de la ejecución del presente decreto.
+Dado en la ciudad de San José, en el Palacio Presidencial, á los doce días del mes de marzo de mil ochocientos ochenta y siete. BERNARDO SOTO. El Secretario de Estado en el despacho de Hacienda y Comercio,-MAURO FERNÁNDEZ.
