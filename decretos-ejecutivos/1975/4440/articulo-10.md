@@ -4,7 +4,7 @@ Aeronáutico Costarricense, existirán tomos de folios sueltos; cada tomo
 constará de quinientas páginas numeradas a las cuales se les imprimirá
 los sellos del Despacho del Ministro de Obras Públicas y Transportes y
 de la Dirección General de Aviación Civil. Como dimensiones cada página
-tendrá treinta centímetros de ancho por cincuenta céntimetros de largo
+tendrá treinta centímetros de ancho por cincuenta centímetros de largo
 y su espacio aprovechable se dividirá a lo ancho de la siguiente forma:
 un margen izquierdo de nueve centímetros para referencias marginales,
 un espacio central de tres centímetros para anotaciones marginales y un

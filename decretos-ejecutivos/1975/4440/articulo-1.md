@@ -7,7 +7,7 @@ AERONAUTICO COSTARRICENSE
 CAPITULO I
 Disposiciones Generales
 Artículo 1º.- El Registro Aeronáutico Costarricense, es una
-dependencia de la Direccion General de Aviación Civil, con fin
+dependencia de la Dirección General de Aviación Civil, con fin
 específico, determinado por la ley y el presente Reglamento. Consta de
 dos divisiones en las cuales se realizarán los trámites de inscripción:
 I Registro Nacional de Aeronaves.

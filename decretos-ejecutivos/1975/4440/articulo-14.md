@@ -14,7 +14,7 @@ un motor, de una hélice u otro repuesto de avión identificable o
 transfieran, modifiquen o extingan de cualquier modo el dominio sobre
 los bienes muebles dichos o afecten su régimen legal;
 c) Los gravámenes que pesen sobre ella;
-d) Los documentos auténticos que evidencien su mutilización o
+d) Los documentos auténticos que evidencien su inutilización o
 pérdida;
 e) Todo cambio sustancial que se operen en una aeronave; y f) Los
 contratos de arrendamiento o fletamento.
