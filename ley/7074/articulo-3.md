@@ -1,0 +1,1 @@
+Artículo 3º-EI impuesto será fijado por la Municipalidad de acuerdo con lo establecido en los artículos 15, 16, 17, 18, 19 y 20 de esta ley, y de conformidad con las medidas administrativas que para ese efecto dicte la Municipalidad.

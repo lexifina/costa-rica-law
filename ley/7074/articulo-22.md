@@ -1,0 +1,1 @@
+Artículo 22.-Facultase a la Municipalidad de La Unión para que haga efectivos los alcances de esta ley a partir del trimestre inmediato a su publicación. Con ese fin, la Municipalidad podrá recabar de los contribuyentes la información necesaria para determinar el impuesto que corresponda.
