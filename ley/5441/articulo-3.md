@@ -1,1 +1,0 @@
-Artículo 3º.- Por la cesión de dicho terreno, la Junta Administrativa del Instituto de Guanacaste recibirá de parte de la Municipalidad de Liberia las partidas específicas que a su favor se consignan en la Ley de Presupuesto Nacional para el año 1974.
