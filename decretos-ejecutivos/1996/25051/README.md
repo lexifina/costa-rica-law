@@ -12,3 +12,4 @@ Adiciona Decreto de Creación del Premio Pío Víquez
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-14 | la propia norma |
+| 2 | 1996-03-14 | SINALEVI (sin norma nombrada) |
