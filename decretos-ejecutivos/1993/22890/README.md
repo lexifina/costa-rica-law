@@ -14,3 +14,4 @@ Guía Elaboración Estudios Impacto Ambiental Ejecución Obras Públicas
 | --- | --- | --- |
 | 1 | 1994-02-24 | la propia norma |
 | 2 | 1997-10-13 | Decreto Ejecutivo 26540 (1997-10-13) |
+| 3 | 1997-10-13 | Ley 8 |
