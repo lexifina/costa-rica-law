@@ -13,3 +13,4 @@ Se restablece la libertad de pescar la concha perla en el litoral del pacífico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1906-07-14 | la propia norma |
+| 2 | 1907-04-20 | Decreto Ejecutivo 1 (1907-04-20) |
