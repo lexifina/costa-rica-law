@@ -14,3 +14,4 @@ Deja sin efecto parcialmente las Regulaciones Generales de Crédito, Tasas de In
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-16 | la propia norma |
+| 2 | 1996-02-21 | Reglamento 4861 (1996-02-21) |
