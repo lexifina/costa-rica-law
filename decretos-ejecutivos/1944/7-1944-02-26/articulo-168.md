@@ -1,0 +1,12 @@
+Artículo 168.- Las jubilaciones extraordinarias se otorgarán sólo
+en casos excepcionales a los maestros, profesores y empleados del orden
+administrativo que se imposibiliten de por vida para el desempeño de su
+cargo, como consecuencia de una enfermedad incurable o de un accidente
+ocurrido en el ejercicio y con motivo de las funciones del cargo que
+desempeñan.
+Para merecer una pensión extraordinaria es indispensable la
+presentación de un dictamen uniforme de tres médicos, nombrados por la
+Junta Administrativa del Fondo de Jubilaciones y Pensiones.
+El solicitante deberá depositar en la Secretaría de la Junta,
+previamente, la suma necesaria para pagar los honorarios de esos
+médicos.

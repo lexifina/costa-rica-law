@@ -1,0 +1,5 @@
+Artículo 108.- El maestro a quien se adjudique una plaza en
+propiedad no podrá solicitar nuevas plazas durante el trascurso del año
+lectivo y sólo podrá prestar servicio en otro lugar cuando lo
+justifiquen las necesidades del servicio, a juicio de la Secretaría de
+Educación Pública.

@@ -1,0 +1,8 @@
+Artículo 131.- Las solicitudes de licencia deben presentarse por
+escrito y la motivación de las causas que se invoquen se hará por medio
+de certificados médicos en el caso de enfermedad, y en los otros, por
+medio de los comprobantes que los Inspectores respectivos consideren
+suficientes.
+Los maestros y demás empleados de una escuela presentarán la
+solicitud al director, quien la elevará inmediatamente al Inspector con
+el informe del caso.

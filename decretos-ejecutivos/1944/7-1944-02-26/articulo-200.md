@@ -1,0 +1,16 @@
+Artículo 200.- Corresponde al Director de la Escuela en que trabaje
+el portero calificar su labor del año, conforme a las siguientes normas:
+1ª) Será calificada con la nota de Muy Bueno la labor del portero
+que ha desempeñado a entera satisfacción del superior las obligaciones
+de su cargo, por su puntualidad, asistencia constante, buena presencia,
+forma en que ha atendido sus órdenes, disposición que ha manifestado
+hacia los maestros y los alumnos, diligencia que ha tenido en el aseo
+y arreglo del edificio escolar y sus dependencias orden y cuidado con
+que ha manejado los enseres y materiales de la escuela, etcétera;
+2ª) Será calificada de Buena la labor del portero que se ha
+limitado a cumplir con las obligaciones reglamentarias, sin mostrar
+especial empeño por servir los intereses de la escuela y de los
+escolares; y
+3ª) Merecerá la calificación de Deficiente, la labor del portero
+que omita o descuida el cumplimiento de sus deberes con frecuencia y de
+manera inexcusable.

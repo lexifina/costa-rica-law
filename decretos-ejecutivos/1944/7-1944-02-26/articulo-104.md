@@ -1,0 +1,5 @@
+Artículo 104.- Es obligación del maestro mantener al día su
+expediente personal, haciendo agregar cada año su hoja de servicios y
+su certificado de salud; y en caso de que haya estado fuera de servicio
+durante más de un año lectivo, el de buena conducta a que se refiere
+el inciso d) anterior.

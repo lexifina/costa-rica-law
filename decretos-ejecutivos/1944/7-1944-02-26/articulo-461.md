@@ -1,0 +1,8 @@
+Artículo 461.- La educación física escolar se considera obligatoria
+para los educandos y formará parte integrante de los programas de
+enseñanza en todos los establecimientos de educación, públicos o
+privados. Con este objeto, los planteles de enseñanza del Estado serán
+provistos paulatinamente, a medida que los recursos lo permitan, de los
+elementos técnicos y materiales necesarios para ello, y se concederá a
+los establecimientos particulares un plazo prudencial para la
+adquisición de los que les corresponda.
