@@ -1,0 +1,2 @@
+Artículo 2°-En consecuencia, la Asamblea Electoral de la comarca de Puntarenas, procederá, sin demora, á elegir un Representante suplente.
+AL PODER EJECUTIVO. Dado en el salón de sesiones del Palacio Nacional, en San José, á los quince días del mes de mayo de mil ochocientos ochenta y nueve.-MANL. ARAGÓN, Presidente.-F. AGUILAR B., Secretario.-FÉLIX GONZÁLEZ, Secretario. Palacio Presidencial. -San José, quince de mayo de mil ochocientos ochenta y nueve.-Ejecútese. -ASCENSIÓN ESQUIVEL. El Secretario de Estado en el despacho de Gobernación, TOBÍAS ZÚÑIGA.
