@@ -63,3 +63,7 @@ Grupo Avalúos Rurales | Perito Valuador Rural | 0949145 | 18027
 Grupo Servicios Auxiliares de Avalúos | Asistente Fiscal | 0949170 | 12528
 | Asistente Fiscal | 0949170 | 12529
 | Asistente Fiscal | 0949127 | 6001”)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 9208 del 4 de octubre de 1978,, se acordó ampliar la lista de los empleados y funcionarios del personal de la administración tributaria. No obstante al no venir dicho listado en la publicación original del decreto ejecutivo N° 6237 del 6 de agosto de 1976, se transcribe la reforma: “Artículo 1°-Se amplía la lista anexa al Decreto Ejecutivo N° 6237-H de 7 de diciembre de 1976, en la siguiente forma:
+Programa | Puesto | Código | Clave
+Administración de Impuestos | | |
+Sección registro de Propietarios | Asistente Abogacía 3 | 09-49-047 | 6003”)
