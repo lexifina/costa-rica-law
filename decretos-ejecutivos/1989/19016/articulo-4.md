@@ -1,0 +1,1 @@
+Artículo 4°—Los miembros de la Comisión elegirán de su seno un presidente, un vicepresidente, un secretario y dos vocales. Serán nombrados por absoluta y desempeñarán sus cargos en forma ad-honórem por dos años y podrán ser reelectos

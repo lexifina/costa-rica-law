@@ -1,0 +1,1 @@
+Artículo 3°—Los miembros de la Comisión durarán en sus cargos 4 años y podrán ser reelectos. En caso de vacante por muerte, renuncia, incapacidad o revocatoria del nombramiento, el que sustituya lo hará por el resto del período

@@ -1,0 +1,1 @@
+Artículo 8°—En caso de que un miembro de la Comisión falte sin motivo a cuatro sesiones consecutivas, o no consecutivas, esto último dentro de plazo de seis meses, la Comisión deberá comunicarlo así a la entidad que representa. Igual procedimiento se seguirá cuando la vacante se produzca por muerte, incapacidad o renuncia.

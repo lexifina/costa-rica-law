@@ -1,0 +1,2 @@
+Artículo 59—La Comisión sesionará ordinariamente una vez al mes, y extraordinariamente cuando el presidente la convoque.
+Para reunirse en sesión ordinaria no hará falta convocatoria especial. Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito con una antelación mínima de veinticuatro horas, salvo casos de urgencia. A la convocatoria se acompañará copia del orden del día, salvo casos de urgencia.

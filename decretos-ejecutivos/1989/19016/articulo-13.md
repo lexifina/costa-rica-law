@@ -1,0 +1,2 @@
+Artículo 13.—En caso de que alguno de los miembros de la Comisión interponga recurso de revisión contra un acuerdo, el mismo será resuelto al conocerse el acta de esa sesión, a menos que, por tratarse de un asunto que el presidente juzgue urgente prefiera conocerlo en sesión extraordinaria.
+El recurso de revisión deberá ser planteado a más tardar al discutirse el acta respectiva, recurso que deberá resolverse en la misma sesión.

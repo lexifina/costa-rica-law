@@ -1,0 +1,1 @@
+Artículo 9°—Las sesiones de la Comisión serán siempre privadas pero esta podrá disponer, acordándolo así por unanimidad de sus miembros presentes, que tengan acceso a ellas ciertas personas, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
