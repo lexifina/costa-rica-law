@@ -1,0 +1,2 @@
+Artículo 67.- PERMISO DE FABRICACION DE ARMAS PERMITIDAS.
+Se permitirá la fabricación de armas permitidas a las compañías de reconocido prestigio, cuyo giro normal sea la fabricación de armas. Siempre que posean los requisitos de Seguridad y calidad en el funcionamiento de las armas a producir. Así como con los requisitos exigidos por la Ley de Riesgos del Trabajo, permisos de salubridad y funcionamiento de la Ley General de Salud y demás leyes Laborales.

@@ -1,0 +1,2 @@
+Artículo 116.- PERMISO DE COMPRA O IMPORTACION DE EXPLOSIVOS Y SUS ADITAMENTOS POR PARTE DE LOS ENTES ESTATALES.
+En el caso de los entes estatales, las solicitudes de permiso de compra e importación de explosivos y sus aditamentos, deberá remitirlas el jerarca de la institución al Ministro, con copia al Departamento indicando las características de los explosivos y sus aditamentos, la utilización que se les dará, de quien los van a adquirir, formas de traslado, lugar del almacenamiento y las medidas de seguridad de estos procesos.

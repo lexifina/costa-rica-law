@@ -1,0 +1,2 @@
+Artículo 29.- INSCRIPCION DE ARMAS SIN DOCUMENTOS DE PROPIEDAD.
+El poseedor de armas permitidas, que carezca de los documentos que le acrediten la propiedad, deberá solicitar la inscripción adjuntado una certificación de declaración jurada, rendida ante notario público, la cual deberá cumplir con todos los requisitos de ley, y, en su contenido deberá establecer las circunstancias por las cuales carece de los documentos idóneos de propiedad de la misma, el nombre, apellido, y domicilio de quien la adquirió, el año en que la adquirió, en la medida de lo posible.

@@ -1,0 +1,3 @@
+Artículo 42.- REQUISITOS DEL PERMISO ESPECIAL.
+La solicitud del permiso especial de portación de armas permitidas a que hace referencia el artículo 37 de la Ley, debe formularse personalmente o por escrito autenticado, ante el Departamento o en sus oficinas auxiliares, acompañada de timbre policial de mil colones y tres fotografías tamaño pasaporte, la solicitud deberá contener el nombre, apellidos, calidades y domicilio exacto, número telefónico, y la identificación plena de la característica del arma. Indicando las razones por las cuales su vida se encuentra razonablemente expuesta al peligro.
+Adjuntando fotocopia de la cédula de identidad por ambos lados, o, de residencia.

@@ -1,0 +1,2 @@
+Artículo 65.- OBLIGATORIEDAD DE DENUNCIAR EL INGRESO DE LAS ARMAS ANTE LAS AUTORIDADES ADUANALES.
+Toda arma que ingrese por cualquiera de los puestos aduanales del país deberá ser denunciada ante las autoridades aduanales competentes. El interesado deberá comunicarlo al Departamento para que éste asigne a un representante que intervenga ante el Despacho Aduanal correspondiente sin ese requisito no podrá permitirse el retiro del dominio fiscal ni la salida del país.

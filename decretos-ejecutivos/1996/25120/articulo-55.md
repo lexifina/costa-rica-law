@@ -1,0 +1,2 @@
+Artículo 55.- INFORME MENSUAL SOBRE VENTA DE GAS PARA LA DEFENSA PERSONAL.
+El establecimiento comercial autorizado para comercializar el gas para defensa personal, enviará al Departamento un informe mensual indicando nombre y apellidos completos, cédula de identidad o razón social y número de cédula jurídica del comprador del gas para defensa personal, así como la cantidad, marca y tamaño del gas vendido.

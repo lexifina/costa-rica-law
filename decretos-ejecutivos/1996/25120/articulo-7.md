@@ -1,0 +1,3 @@
+Artículo 7º.- DENUNCIA.
+Quién tenga conocimiento de una infracción a la Ley y este Reglamento, podrá denunciarlo ante los órganos competentes.
+Si la denuncia es interpuesta ante el Departamento, este levantará un expediente del caso en concordancia con la Ley General de la Administración Pública, para tales efectos se aplicarán las sanciones administrativas que procedan. Si la denuncia constituye una contravención o un delito el Departamento, la remitirá al órgano judicial competente, de conformidad con los artículos 152, 153, 154, 156 siguientes y concordantes del Código de Procedimientos Penales.

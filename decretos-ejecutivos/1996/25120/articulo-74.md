@@ -1,0 +1,2 @@
+Artículo 74.- ENAJENACION DE COLECCIONES.
+Las armas permitidas que formen parte de una colección podrán ser vendidas, o, donadas para esos mismos fines, previa autorización del Departamento, en conjunto o en unidades. La autorización deberá ser solicitada personalmente por el interesado en adquirirlas indicando nombre y apellidos, cédula de identidad, domicilio y demás calidades que permitan identificar plenamente al comprador y donatario, y copia del permiso de autorización para coleccionar.

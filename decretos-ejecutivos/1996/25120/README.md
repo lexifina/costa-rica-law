@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 25120
+
+Reglamento a la Ley de Armas y Explosivos
+
+- Tipo: Decreto Ejecutivo
+- Número: 25120
+- Fecha: 1996-04-17
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 112 del 1996-06-13
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=23672&param2=25070&param3=1 (ficha 23672)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1996-06-13 | la propia norma |

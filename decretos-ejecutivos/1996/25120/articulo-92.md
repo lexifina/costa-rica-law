@@ -1,0 +1,2 @@
+Artículo 92.- PERMISO PARA LA COMPRA DE EXPLOSIVOS Y SUS ADITAMENTOS POR PARTE DE LOS ENTES ESTATALES.
+En el caso de los entes estatales, la solicitud de permiso de compra o importación de explosivos y sus aditamentos, deberá remitirla el jerarca de la institución al Ministro, con copia al Departamento indicando las características de los explosivos y sus aditamentos, la utilización que se les dará, datos de identificación del comprador, modo de traslado, lugar de almacenaje y las medidas de seguridad de estos procesos.

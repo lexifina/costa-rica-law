@@ -1,0 +1,2 @@
+Artículo 122.- OBLIGATORIEDAD DE INFORMAR POR PARTE DEL ARSENAL NACIONAL.
+El Arsenal Nacional llevará un Registro de las armas que por sentencia judicial se haya dictado el comiso de las mismas, a favor del Estado. Así mismo solicitará de inmediato al Departamento la cancelación de la inscripción de las mismas, a su vez, informará al Registro de Armas para su inventario patrimonial.

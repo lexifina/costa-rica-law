@@ -1,0 +1,2 @@
+Artículo 82.- ARMAS PARA DEPORTISTAS.
+Las armas que podrán autorizarse a los deportistas de tiro y cacería, son aquellas indicadas en el artículo 60 de la Ley de Armas y Explosivos, (Ley Nº 7530), para poseer en su domicilio y para portar con el respectivo permiso.

@@ -1,0 +1,2 @@
+Artículo 13.- OFICINAS AUXILIARES.
+El Departamento de Control de Armas y Explosivos podrá designar como oficinas Auxiliares las Comandancias de la Fuerza Pública adscritas al Ministerio. Su función será únicamente la toma de huellas dactilares, la recepción y remisión de documentos al Departamento para su resolución y la confección de los permisos que indique este Reglamento, previa autorización del Departamento.
