@@ -1,0 +1,1 @@
+Artículo 3°-Los miembros de la Junta durarán en sus funciones tres años, pudiendo ser reelectos, sí así lo consienten los interesados. Su nombramiento se verificará en el transcurso del mes de abril del año correspondiente.

@@ -1,0 +1,1 @@
+Artículo 22°-Tanto el tesorero como el Contador de la Junta deben conocer de todas las operaciones que la Junta efectúe, pues todas ellas, cualquiera que sea su importancia, deben quedar registradas en sus libros de contabilidad.

@@ -1,0 +1,1 @@
+Artículo 15.-Toda compra que se haga para el servicio del Colegio o del Bazar de san Luis, deberá hacerse por licitación privada si dicha compra es menor de quinientos colones y por licitación pública cuando exceda de esa suma.

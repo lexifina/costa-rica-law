@@ -1,0 +1,15 @@
+# Decreto Ejecutivo 2-1946-04-15
+
+Reglamento de la Junta Administrativa del Colegio San Luis Gonzaga Cartago
+
+- Tipo: Decreto Ejecutivo
+- Número: 2
+- Fecha: 1946-04-15
+- Ente emisor: Presidente Constitucional de la República
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=18977&param2=20238&param3=1 (ficha 18977)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1946-04-15 | la propia norma |

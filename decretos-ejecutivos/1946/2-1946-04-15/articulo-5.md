@@ -1,0 +1,1 @@
+Artículo 5°-Los miembros de la Junta serán juramentados por el Gobernador de la Provincia , ante el cual tomarán posesión de sus cargos, debiendo señalar en el mismo acto los días y horas de las sesiones ordinarias.

@@ -1,0 +1,1 @@
+Artículo 13°-Todos los libros de la contabilidad de Ia Junta estarán foliados; en cada folio se estampará el sello de la Gobernación y en la primera hoja certificará el Secretario de esta Dependencia el número de folios que ellos contengan y el objeto a que se destinan.

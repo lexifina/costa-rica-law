@@ -1,0 +1,1 @@
+Artículo 14.-Todo gasto que efectúe la Junta. deberá cubrirse exclusivamente por medio de cheques, girados contra la cuenta respectiva y a orden expresa del acreedor. En el tronco de dichos cheques se citará el número y fecha del acuerdo en que la Junta autoriza el pago.
