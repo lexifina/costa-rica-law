@@ -1,3 +1,0 @@
-Artículo 5 bis - Los productos farmacéuticos registrados que tienen cinco años o más de estar en el mercado, para los cuales no se han reportado problemas de estabilidad durante el periodo de su vigencia y que posteriormente cambien el laboratorio fabricante; las condiciones del medicamento, o el lugar de empaque, tendrán como período de vigencia el establecido por el fabricante original.
-El laboratorio que asuma los medicamentos está obligado a presentar los estudios en las condiciones naturales y con los cambios realizados, con una periodicidad de seis meses hasta los dos años posteriores y consecuentemente cada año hasta completar el tiempo de vida útil asignado por el fabricante original."
-(Adicionado por el Decreto Ejecutivo N° 30966 del 8 de enero del 2003)
