@@ -1,0 +1,5 @@
+DECRETO XI
+Fija la base para la venta de terrenos baldios, municipales de ejidos y comunidad.
+Vicente Herrera, Presidente de la República de Costa-Rica.
+Considerando: que, en diferentes épocas y aun algunas muy lejanas, se han dictado diversas disposiciones fijando la base para la enajenacion de las tierras baldias. municipales, de comunidad ó de ejidos: que muchas de esas disposiciones son hoy inconvenientes por haber tomado, con el trascurso del tiempo, mayor incremento la riqueza pública, y aumentádose el valor de los terrenos con la extencion que ha recibido la agricultura: y siendo mas natural que el precio que se fije como base de los terrenos. sea con relacion á su fertilidad, posicion y demas circunstancias que los hagan mas ó ménos apreciables; de acuerdo con el voto del Consejo de Estado, y en uso de mis facultades extraordinarias, decreto:
+Art. 1°. El precio que servirá de base para la venta de terrenos baldíos, municipales, ó de ejidos y de comunidad, será el que resulte del valúo peri cial verificado conforme á la ley.
