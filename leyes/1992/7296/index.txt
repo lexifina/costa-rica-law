@@ -7,4 +7,3 @@ articulo-6.md
 articulo-7.md
 articulo-8.md
 articulo-9.md
-articulo-10.md
