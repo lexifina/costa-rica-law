@@ -1,0 +1,1 @@
+Artículo 4°-EI Consejo contará con una Secretaría Técnica, la cual será integrada de común acuerdo por la Oficina de Planificación y el INVU y será la encargada de ejecutar las decisiones del Consejo. Los gastos serán sufragados por el INVU.
