@@ -1,0 +1,9 @@
+CAPITULO CUARTO
+De la suspensión del servicio de agua potable, cobro administrativo y judicial
+Artículo 31.—De la orden de suspensión del servicio de agua potable. El Departamento de Facturación y Cobro de la Municipalidad de Belén, se encuentra facultado para dictar la orden de suspensión del servicio de agua potable por falta de pago, y cumplido el procedimiento que se establece en el artículo 32 del presente reglamento.
+Además el Departamento de Acueductos, podrá ordenar la suspensión del servicio cuando el abonado:
+1. Interconecte tuberías del sistema con otras provenientes de otras fuentes de agua.
+2. Cuando las instalaciones del abonado estén defectuosas y no se corrijan las deficiencias (Prevenido con anterioridad).
+3. Cuando las instalaciones no reúnan las condiciones necesarias para evitar daños a sí mismos o a terceros.
+4. Cuando altere de alguna forma la red de distribución municipal.
+5. Cuando manipule algún hidrómetro o tapa propiedad de la Municipalidad.

@@ -1,0 +1,2 @@
+Artículo 40.—De la urbanización. Previo al otorgamiento de la autorización para construcción de una urbanización, la Municipalidad deberá analizar, por medio de resolución razonada, si está en capacidad de suministrar el servicio de agua potable.
+La Municipalidad, cuando determine que sus fuentes de abastecimiento de agua no están en capacidad de ser incrementadas, no podrá comprometerse a suministrar el agua a nuevas urbanizaciones que empresas particulares o el Estado pretendan hacer en el Cantón de Belén.
