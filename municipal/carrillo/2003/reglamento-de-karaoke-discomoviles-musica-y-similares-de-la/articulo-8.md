@@ -1,0 +1,1 @@
+Artículo 8º—La actividad de Karaokes, deberá respetar en todo momento la normativa que establece la Ley General de Salud referente a los niveles autorizados de sonido y confinamiento de ruidos, conforme lo establecen los artículos 293-294 de la misma Ley.

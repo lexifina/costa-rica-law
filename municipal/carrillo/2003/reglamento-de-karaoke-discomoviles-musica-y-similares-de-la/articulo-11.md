@@ -1,0 +1,1 @@
+Artículo 11.—Por la celebración de actividades con Karaoke, discomóvil, música en vivo o similares; se deberá pagar un impuesto sobre Espectáculos Públicos cuando aquellas se enmarquen en la definición que del hecho generados de la obligación hace el artículo 1° del Reglamento, para la aplicación del impuesto sobre Espectáculos Públicos Nº 27762-11-C.

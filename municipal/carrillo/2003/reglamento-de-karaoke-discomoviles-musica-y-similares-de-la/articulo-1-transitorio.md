@@ -1,0 +1,2 @@
+Transitorio: Para los establecimientos comerciales, las personas físicas o jurídicas, que ofrezcan este tipo de actividades y que cuentan en la actualidad con el respectivo permiso de funcionamiento del Ministerio de Salud; se les concede un plazo de 30 días para que cumplan con los requisitos y normas establecidas en este Reglamento. Se concede un plazo de 10 días hábiles a efecto de que los interesados se manifiesten con respecto al presente Reglamento.
+Filadelfia, Carrillo, Guanacaste, 6 de noviembre del 2003.

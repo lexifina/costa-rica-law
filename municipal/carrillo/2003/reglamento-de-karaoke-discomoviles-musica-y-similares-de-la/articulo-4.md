@@ -1,0 +1,1 @@
+Artículo 4º—Toda actividad social con Karaoke, música en vivo, discomóviles o similares que se programe en establecimientos comerciales, deberá contar con el correspondiente permiso municipal para su realización, en caso de no tener patente.

@@ -1,0 +1,1 @@
+Artículo 10.—La violación a lo dispuesto en este Reglamento acarreará las sanciones previstas en el Código Municipal, la Ley de Espectáculos Públicos, este Reglamento y el Código Penal en lo referente a la realización de actividades comerciales sin permiso municipal.
