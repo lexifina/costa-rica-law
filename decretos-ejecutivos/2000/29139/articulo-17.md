@@ -26,4 +26,5 @@ v) Prolongar innecesariamente el trámite de los asuntos relativos a sus cargos 
 w) Tratar de resolver por medio de la violencia, de hecho o de palabra, las diferencias que surjan durante la realización del trabajo.
 x) Destruir o hacer desaparecer cualquier documento perteneciente al Instituto amparado por la Ley de Sistema Nacional de Archivos 7202 del 24 de octubre de 1990 y sus modificaciones.
 y) Dejar sin cancelar deudas adquiridas por alimentación, hospedaje o por pasajes, en aquellos lugares en donde el Instituto les haya reconocido efectivamente esos gastos, o no presentar las liquidaciones correspondientes.
-z) Cualquier otro proceder contrario a las normas, disposiciones o buenas costumbres.
+z) Utilizar durante la jornada de trabajo o fuera de ella, el equipo electrónico del Instituto Sobre Alcoholismo y Farmacodependencia a observar y reproducir pornografía, así como exhibir material pornográfico dentro del mismo; y cualquier otro proceder contrario a las normas, disposiciones o buenas costumbres.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31843 de 21 de junio de 2004)

@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicio del Instituto sobre Alcoholismo y Farmacodepend
 | --- | --- | --- |
 | 1 | 2000-12-19 | la propia norma |
 | 2 | 2002-07-19 | Decreto Ejecutivo 30630 (2002-07-19) |
+| 3 | 2004-06-21 | Decreto Ejecutivo 31843 (2004-06-21) |
