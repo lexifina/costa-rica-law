@@ -1,0 +1,1 @@
+Artículo 7°-Las Comisiones o Comités Consultivos se reunirán ordinariamente en forma semestral o cuando lo crea necesario el Ministerio de Traba y Bienestar Social, o alguno de los sectores obrero patronales.

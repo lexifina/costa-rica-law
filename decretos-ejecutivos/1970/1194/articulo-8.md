@@ -1,0 +1,1 @@
+Artículo 8°-El Ministerio de Trabajo y Bienestar Social preparará, en cada caso, los estudios e informes necesarios, tomando en cuenta previamente la opinión de los patronos y de los trabajadores en las actividades económicas en cuestión.
