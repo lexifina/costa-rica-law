@@ -1,0 +1,2 @@
+ARTÍCULO XIII
+El presente Convenio tendrá validez de cinco (5) años y será prorrogado automáticamente por nuevos períodos de cinco (5) años, salvo que alguna de las Partes Contratantes manifieste su decisión de darlo por terminado, mediante notificación escrita, dirigida a la otra Parte a través de la vía diplomática, con una antelación de seis (6) meses, respecto a la fecha de expiración del término respectivo.
