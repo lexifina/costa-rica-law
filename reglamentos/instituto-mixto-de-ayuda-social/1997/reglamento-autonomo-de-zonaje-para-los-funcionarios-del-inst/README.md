@@ -15,3 +15,4 @@ Reglamento Autónomo de Zonaje para los Funcionarios del Instituto Mixto de Ayud
 | --- | --- | --- |
 | 1 | 1997-06-23 | la propia norma |
 | 2 | 1998-01-19 | Reglamento 2 (1998-01-19) |
+| 3 | 1998-02-24 | Reglamento 61 (1998-02-24) |
