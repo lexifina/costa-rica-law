@@ -1,0 +1,1 @@
+Artículo 5º—No surtirán efecto las disposiciones de los artículos 62 y 58, respectivamente, de las leyes Nº 1552 de 23 de abril de 1953 y Nº 1644 de 26 de setiembre de 1959, en cuanto se oponga o contradigan la facultad del Banco Central de conceder préstamos a los Bancos Comerciales con las modalidades que esta ley establece.

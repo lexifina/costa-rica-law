@@ -1,0 +1,1 @@
+Artículo 4º—Corresponderá al Banco Central de Costa Rica la formulación de los reglamentos necesarios a fin de obtener los mayores beneficios de las operaciones a que se refiere esta ley, con miras al aumento de la producción nacional.
