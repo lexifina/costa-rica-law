@@ -1,0 +1,17 @@
+N° 25608
+EL PRESIDENTE DE LA REPUBLICA
+Y LOS MINISTROS DE LA PRESIDENCIA Y DE TRABAJO Y SEGURIDAD SOCIAL
+Con fundamento en las atribuciones que les confieren los incisos 3) y 18) del numeral 140 de la Constitución Política.
+Considerando:
+1°-El Presidente de la República refrendó, el pasado 10 de setiembre de 1996, las actas suscritas por los jerarcas del Poder Ejecutivo Gobierno de la República con el Comité Limón en Lucha, en las cuales se suscribieron las acciones a desarrollarse con el fin de dar solución integral a los problemas que aquejan a esa provincia.
+2°-Una de las prioridades señaladas es atender la falta de empleo a través de actividades productivas que faciliten el desarrollo de la zona atlántica.
+3°-El Gobierno de la República ha diseñado y pondrá en ejecución, previa aprobación de las juntas directivas de los órganos descentralizados, el Plan de Reactivación Económica y Laboral de la Provincia de Limón, en un esfuerzo conjunto entre la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA), el Ministerio de Trabajo y Seguridad Social, en lo sucesivo el Ministerio; el Instituto Nacional de Aprendizaje, en lo sucesivo el INA, y la Empresa Privada, tendiente a promover la generación de empleos en la provincia, el apoyo temporal a las personas desocupadas desplazadas del trabajo de las Estibadoras y la aplicación de alternativas de capacitación y reconversión de la mano de obra por medio de la formación profesional que den respuesta a las necesidades del mercado de trabajo.
+4°-El Plan en cuestión da prioridad a los trabajadores desplazados de sus puestos de trabajo (estibadores) a consecuencia de los procesos de liberación de los servicios portuarios, a fin de proveerlos de un subsidio temporal y de la opción a ser capacitados para cumplir en mejores condiciones en el mercado laboral ya sea mediante el autoempleo, la creación de microempresas o reinsertándose en el sector privado de la economía.
+5°-Para contribuir en este proceso, dentro de un principio de política activa, el INA, tomando en cuenta tanto las necesidades de los trabajadores como las exigencias del mercado de trabajo, pondrá a disposición de los desplazados, un programa de capacitación integral. En igual sentido, el Ministerio de Trabajo, pondrá en ejecución el Servicio de Empleo, por medio de la instalación de la "Bolsa de Empleo", a fin de registrar la oferta y demanda de trabajo y tener un canal ágil de comunicación con los trabajadores desocupados de la Provincia.
+6°-El Plan de Reactivación Económica y Laboral de Limón comprende los siguientes programas:
+Programa para la Generación de Empleo;
+Programa de Subsidios para la Capacitación y Reconversión de los Estibadores Desempleados, y Programa de Capacitación en la Empresa;
+Plan Operativo para la Recuperación Económica y Laboral de Limón.
+7°-Que para garantizar la eficiente ejecución de los acuerdos adoptados es preciso darle respaldo normativo al Plan de Reactivación Económica y Laboral de Limón. Por tanto,
+DECRETAN:
+Artículo 1°-Instar a las Juntas Directivas de la Junta Administrativa Portuaria y de Desarrollo Económico de la Vertiente Atlántica y del Instituto Nacional de Aprendizaje para que aprueben el texto del Plan de Reactivación Económica Laboral de Limón con el fin de que adopten las medidas administrativas y faciliten los recursos económicos y materiales para implementar los compromisos adquiridos por el Gobierno de la República y sus Instituciones con la comunidad limonense.

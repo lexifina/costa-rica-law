@@ -1,0 +1,1 @@
+Artículo 3°-El Ministerio de la Presidencia será el ente coordinador político a fin de garantizar que el Poder Ejecutivo cumpla con lo estipulado en el Plan de Reactivación Económica y Laboral de Limón.
