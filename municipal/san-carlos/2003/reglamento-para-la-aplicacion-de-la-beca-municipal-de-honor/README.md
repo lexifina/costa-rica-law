@@ -14,3 +14,4 @@ Reglamento para la aplicación de la Beca Municipal de Honor Cantón de San Carl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-22 | la propia norma |
+| 2 | 2004-12-22 | Reglamento municipal 9 (2004-10-07) |
