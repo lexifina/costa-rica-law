@@ -1,0 +1,17 @@
+APROBACION DEL CONVENIO SOBRE LA READAPTACION PROFESIONAL Y EL EMPLEO DE PERSONAS INVALIDAS
+ARTICULO 1.- Apruébase el Convenio No. 159 sobre Readaptación Profesional y el Empleo de Personas Inválidas, adoptado por la Conferencia General de la Organización Internacional del Trabajo en su sexagésima novena reunión, celebrada en Ginebra, en 1983, cuyo texto
+dice:
+"CONVENIO SOBRE LA READAPTACION PROFESIONAL Y EL EMPLEO DE PERSONAS INVALIDAS
+La Conferencia General de la Organización Internacional del Trabajo:
+Convocada en Ginebra por el Consejo de Administración de la Oficina Internacional del Trabajo, y congregada en dicha ciudad el 1o. de junio de 1983 en su sexagésima novena reunión. Habiendo tomado nota de las normas internacionales existentes contenidas en la Recomendación sobre la adaptación y readaptación profesionales de los inválidos, 1955, y en la Recomendación sobre el desarrollo de los recursos humanos, 1975.
+Tomando nota de que desde la adopción de la Recomendación sobre la adaptación y la readaptación profesionales de los inválidos, 1955, se han registrado progresos importantes en la comprensión de las necesidades en materia de readaptación, en el alcance y organización de los servicios de readaptación, y en la legislación y la práctica de muchos Miembros en relación con las cuestiones abarcadas por la Recomendación.
+Considerando que la Asamblea General de las Naciones Unidas proclamó el año 1981 Año Internacional de los Impedidos con el tema de "Plena participación e igualdad" y que un programa mundial de acción relativo a las personas inválidas tendría que permitir la adopción de medidas eficaces a nivel nacional e internacional para el logro de las metas de la "plena participación" de las personas inválidas en la vida social y en el desarrollo, así como de la "igualdad".
+Considerando que esos progresos avalan la conveniencia de adoptar normas internacionales nuevas al respecto para tener en cuenta, en especial la necesidad de asegurar tanto en las zonas rurales como urbanas, la igualdad de oportunidades y de trato a todas las categorías de personas inválidas en materia de empleo y de integración en la comunidad.
+Después de haber decidido adoptar diversas proposiciones relativas a la readaptación profesional, cuestión que constituye el cuarto punto del orden del día de la reunión, y Después de haber decidido que estas proposiciones revistan la forma de un convenio, adopta, con fecha veinte de junio de mil novecientos ochenta y tres, el presente Convenio que podrá ser citado como el Convenio sobre la readaptación profesional y el empleo (personas inválidas), 1983.
+PARTE I
+DEFINICIONES Y CAMPO DE APLICACION
+Artículo 1
+1. A los efectos del presente Convenio, se entiende por "persona inválida" toda persona cuyas posibilidades de obtener y conservar un empleo adecuado y de progresar en el mismo queden substancialmente reducidas a causa de una deficiencia de carácter físico o mental debidamente reconocida.
+2. A los efectos del presente Convenio, todo Miembro deberá considerar que la finalidad de la readaptación profesional es la de permitir que la persona inválida obtenga y conserve un empleo adecuado y progrese en el mismo, y que se promueva así la integración o la reintegración de esta persona en la sociedad.
+3. Todo Miembro aplicará las disposiciones de este Convenio mediante medidas apropiadas a las condiciones nacionales y conforme con la práctica nacional.
+4. Las disposiciones del presente Convenio serán aplicables a todas las categorías de personas inválidas.
