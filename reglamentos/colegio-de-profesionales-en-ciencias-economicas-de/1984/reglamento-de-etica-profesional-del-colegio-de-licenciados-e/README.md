@@ -14,3 +14,4 @@ Reglamento de Ética Profesional del Colegio de Licenciados en Ciencias Económi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-06-10 | la propia norma |
+| 2 | 1985-06-10 | Ley 8 |
