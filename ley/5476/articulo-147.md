@@ -1,0 +1,2 @@
+Artículo 147.- La patria potestad no da derecho a enajenar ni a gravar los bienes del hijo, salvo en caso de necesidad o de provecho evidente para el menor. Para ello será necesaria autorización judicial si se tratare de inmuebles o de muebles con un valor superior a diez mil colones.
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 134 al 147)

@@ -1,0 +1,3 @@
+Artículo 132.- Comparecencia oral.
+Una vez rendidos los informes periciales citados en el artículo 130 de este Código, en un plazo no mayor de cinco días, el menor y los adoptantes deberán comparecer personalmente ante el Juez, en una sola audiencia. También, deberán comparecer los representantes del PANI. En esta audiencia, el Juez deberá explicar a los adoptantes las obligaciones que asumen. Asimismo, en este acto, los adoptantes manifestarán en forma expresa su aceptación de los derechos y las obligaciones. De todo lo actuado, se levantará un acta que firmarán los comparecientes.
+(Así adicionado por el artículo 2 de ley No.7538 del 22 de agosto de 1995)

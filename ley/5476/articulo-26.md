@@ -1,0 +1,1 @@
+Artículo 26.- Entre el edicto y la celebración del matrimonio, debe mediar un intervalo de ocho días naturales por lo menos y si después de publicado dicho edicto transcurrieren seis meses sin celebrarse el matrimonio, deberá hacerse nueva publicación.

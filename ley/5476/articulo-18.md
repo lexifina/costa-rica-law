@@ -1,0 +1,2 @@
+Artículo 18.- El matrimonio celebrado por las personas a quienes se refieren los incisos 1) y 2) del artículo 15, quedará revalidado sin necesidad de declaratoria expresa por el hecho de que los cónyuges no se separen durante el mes siguiente al descubrimiento del error, al cese del miedo grave o la violencia, o a que la persona recupere su capacidad volitiva o cognoscitiva.
+(Así reformado por el artículo 80 (actual 93) de la Ley No.7600 de 2 de mayo de 1996, “Ley de Igualdad de Oportunidades para Personas con Discapacidad”)

@@ -1,0 +1,1 @@
+Artículo 35.- El marido es el principal obligado a sufragar los gastos que demanda la familia. La esposa está obligada a contribuir a ellos en forma solidaria y proporcional, cuando cuente con recursos propios.
