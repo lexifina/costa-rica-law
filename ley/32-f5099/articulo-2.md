@@ -1,0 +1,1 @@
+Art. 2°-Los Agentes Fiscales de las enunciadas Provincias, en cumplimiento de los deberés que les imponen las disposiciones de los decretos que quedan relacionados, procederán de la manera que mente cuenta á la Fiscalía de Hacienda, de las cantidades que se enteren en las Receptoras de las respectivas Provincias, bien sea voluntariamente, bien por virtud de ejecucion.
