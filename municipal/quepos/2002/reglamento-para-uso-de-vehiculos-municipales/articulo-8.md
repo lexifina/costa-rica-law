@@ -1,0 +1,1 @@
+Artículo 8º—La utilización bajo la modalidad de uso administrativo, deberá ser únicamente para atender servicios de transporte de todas las dependencias administrativas dispuestas para cumplir con su labor. Queda prohibido su uso para asuntos personales o distintos a los dispuestos de la función pública.

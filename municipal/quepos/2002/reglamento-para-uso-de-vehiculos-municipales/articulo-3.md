@@ -1,0 +1,1 @@
+Artículo 3º—Salvo el vehículo destinado al uso discrecional del Alcalde Municipal, todos los demás vehículos de la institución llevarán permanentemente el logo o inscripción de la leyenda Municipalidad de Aguirre.
