@@ -1,0 +1,1 @@
+II) El Banco Central de Costa Rica mantendrá y actualizará el registro de personas autorizadas para el retiro de los títulos de Certificados de Abono Tributario (CAT). El exportador está obligado a cumplir el procedimiento que establezca en el instructivo que al efecto emita el Banco Central de Costa Rica.

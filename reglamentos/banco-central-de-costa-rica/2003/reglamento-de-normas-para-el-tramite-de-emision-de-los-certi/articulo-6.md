@@ -1,0 +1,1 @@
+VI) El Banco Central de Costa Rica deberá realizar los trámites pertinentes en cuanto a las anotaciones de embargo y entrega de los Certificados de Abono Tributario (CAT) por orden de los Despachos Judiciales.

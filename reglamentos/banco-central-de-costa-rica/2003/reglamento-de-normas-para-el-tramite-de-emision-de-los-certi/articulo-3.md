@@ -1,0 +1,1 @@
+III) Por tratarse de Fondos Públicos de difícil recuperación, el Banco Central de Costa Rica podrá solicitar al beneficiario del incentivo fiscal, cualquier documento adicional directamente relacionado con el trámite de emisión de los Certificados de Abono Tributario (CAT) en forma correcta.
