@@ -1,0 +1,1 @@
+Art XIII No obstante las estipulaciones del artículo VIII de este contrato la Compañía se obliga a no trasportar por el Ferrocarril tropas extranjeras ni elementos de guerra, sin previo y especial, permiso del Gobierno de esta República y el reconocer los daños y perjuicios que las infracciones del presente artículo pudieran resultar.
