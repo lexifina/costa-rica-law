@@ -1,1 +1,0 @@
-Artículo 2° -El Estado, por medio del Ministerio de Cultura, Juventud y Deportes hará las transferencias que la Escuela Taller requiera para coadyuvar en su funcionamiento y asumirá, como hasta la fecha lo ha hecho, las obligaciones obrero-patronales que actualmente cubre, así como el pago de la renta del edificio que ocupa la Casa del Artista.
