@@ -14,3 +14,4 @@ Reglamento de Sesiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-08-26 | la propia norma |
+| 2 | 2000-11-06 | Reglamento municipal 223 (2000-11-06) |
