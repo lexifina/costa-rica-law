@@ -1,1 +1,1 @@
-Articulo 57.- (Derogado por el artículo 5° de la ley N° 1238 del 29 de noviembre de 1950)
+Articulo 57.- (Derogado por el artículo 5° de la ley N° 1238 del 29 de noviembre de 1950. Posteriormente por el artículo 169 (actual 205) del Código de Normas y Procedimientos Tributarios, N° 4755 del 3 de mayo de 1971, se vuelve a derogar este numeral).
