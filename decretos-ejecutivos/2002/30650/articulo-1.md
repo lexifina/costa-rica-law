@@ -1,0 +1,14 @@
+Nº 30650-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+De conformidad con las facultades establecidas en los artículos 140, incisos 3), 7) y 8) y 146 de la Constitución Política; los artículos 7), 8) y 10) de la Ley Nº 7557 de 20 de octubre de 1995, Ley General de Aduanas; los artículos 25, 27 y 28 de la Ley Nº 6227 de 2 de mayo de 1978, Ley General de la Administración Pública.
+Considerando:
+1º—Que el Sistema Aduanero Nacional está constituido por el Servicio Nacional de Aduanas y las entidades, públicas y privadas, que ejercen gestión aduanera.
+2º—Que de conformidad con la Ley General de Aduanas, el Servicio Nacional de Aduanas es un órgano de la Administración Tributaria dependiente del Ministerio de Hacienda, que tiene a su cargo la aplicación de la Legislación Aduanera.
+3º—Que el Servicio Nacional de Aduanas está constituido por la Dirección General de Aduanas, las aduanas, sus dependencias, demás órganos aduaneros y personal encargado de ejercer la gestión aduanera.
+4º—Que el Ministerio de Hacienda es responsable del Servicio Nacional de Aduanas de conformidad con la legislación vigente y los principios de: servicio al usuario, la armonización de los procedimientos, la simplificación, flexibilidad y eficiencia en el control y la fiscalización aduanera, con el objetivo de cumplir: con las regulaciones no arancelarias que norman las entradas y salidas de vehículos, unidades de transporte y mercancías del territorio aduanero; aplicar la legislación tributaria a nivel de aduana; y apoyar el desarrollo del comercio exterior del país.
+5º—Que en el marco de los procesos de apertura comercial, promoción de las exportaciones y búsqueda de una mayor eficiencia en la gestión de recaudación tributaria, el adecuado y eficiente funcionamiento del Sistema Aduanero Nacional, constituye un pilar fundamental en la Estrategia de Desarrollo Nacional.
+6º—Que durante los últimos años, diferentes sectores de la sociedad civil, han manifestado reiteradamente su preocupación por las deficiencias que presenta el Sistema Aduanero Nacional y pese a los esfuerzos realizados por las diferentes administraciones, tales preocupaciones aún persisten.
+7º—Que la búsqueda de una solución definitiva a estos problemas pasa por una profunda evaluación de la situación actual del Sistema, que permita, a su vez, visualizar las reformas integrales que se necesitan para su adecuado funcionamiento en el marceo de la Estrategia de Desarrollo Nacional. Por tanto,
+Decretan:
+Artículo 1º—Intégrase una Comisión Evaluadora e Investigadora de Alto Nivel, que analizará el Sistema Aduanero Nacional con el fin de determinar los problemas y obstáculos, si los hubiere, que impiden su adecuado funcionamiento y proponer la adopción de las medidas administrativas y legislativas para su posible mejora.

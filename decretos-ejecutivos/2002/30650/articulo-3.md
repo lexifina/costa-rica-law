@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión determinará el lugar y la periodicidad de sus sesiones, así como su cronograma y plan de trabajo, y el Ministerio de Hacienda, así como todas sus dependencias y funcionarios, brindarán las facilidades y el acceso a la información no confidencial necesaria para el adecuado desempeño de sus funciones.
