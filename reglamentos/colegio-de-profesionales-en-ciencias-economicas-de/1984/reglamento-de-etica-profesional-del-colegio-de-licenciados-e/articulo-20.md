@@ -1,1 +1,0 @@
-Artículo 20.—El colegiado tiene el deber ineludible de cumplir con las normas de derecho positivo vigente. Igualmente deberá ajustar sus actividades profesionales a las disposiciones y acuerdos que con carácter general y obligatorio dicten los organismos facultados para ello.

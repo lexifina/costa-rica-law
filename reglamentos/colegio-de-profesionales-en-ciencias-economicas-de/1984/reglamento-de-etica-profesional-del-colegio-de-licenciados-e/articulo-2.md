@@ -1,1 +1,0 @@
-Artículo 2°—Este reglamento normará la conducta del colegiado en sus relaciones con la comunidad, con el público en general, con sus patrones, con la clientela y con sus compañeros de profesión, y le será aplicable, cualquiera que sea la forma que revista su actividad, especialidad que cultive o la naturaleza de la retribución que reciba por sus servicios.
