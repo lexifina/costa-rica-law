@@ -1,0 +1,2 @@
+Articulo 9°—Retiros en los proyectos de urbanizaciones. Los retiros en los proyectos de urbanizaciones los consultará el diseñador a la Municipalidad (debe solicitar el Certificado de Zona, en el cual se indican los retiros), y se indicaran claramente en los planos de la urbanización, tanto en el Diseño de Sitio como en los perfiles transversales o cortes de calles.
+Los retiros dichos han de corresponder a los indicados en los requisitos por zona y constituirán documentó fehaciente que se integrará al Mapa Oficial.

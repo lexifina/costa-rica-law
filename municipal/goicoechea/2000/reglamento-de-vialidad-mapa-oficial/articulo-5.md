@@ -1,0 +1,4 @@
+Articulo 5°—Los derechos de vía del MOPT.
+- Se reconocen los Derechos de Vías del Anillo Periférico, de la Circunvalación , de la ruta 218, y de la Carretera Braulio Carrillo, que fija el MOPT, Para las otras rutas nacionales, la Municipalidad negociará con el MOPT los alineamientos y la calificación de vía nacional, y el alineamiento que prevalecerá será el mayor (si hay dos). Es el caso de la Intercantonal.
+- Para lo conducente a permisos y alineamientos, se solicitará al interesado una indicación en el plano catastrado de la afectación de ese terreno por parte del MOPT, cuando enfrente a cualquier vía calificada como nacional o regional (y vías ferreas).
+- El uso que se dará al área de lo-i derechos de vía de la red nacional del MOPT en el tanto esta no se complete, está indicado en el Reglamento de Zonificación en el Articulo correspondiente a Zonas de Control Especial.

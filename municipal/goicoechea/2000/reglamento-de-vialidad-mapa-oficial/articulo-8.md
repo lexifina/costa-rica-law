@@ -1,0 +1,1 @@
+Articulo 8o—Derechos de vía en las urbanizaciones. Los Derechos de Vías, dentro de las urbanizaciones nuevas, los fijará la Municipalidad al momento de revisar los proyectos que se presenten, tomando en cuenta las normas generales, Ley de Planificación Urbana, Ley de Construcciones y sus reglamentos y los proyectos municipales que se relacionen.
