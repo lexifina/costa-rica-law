@@ -1,0 +1,1 @@
+Art. 43.-Los matrimonios celebrados en la República por los Ministros Diplomáticos y Cónsules que conforme a las tratados puedan hacerlo, se inscribirán en yirtud de certificación expedida por el Agente Diplomático ó Consular, previa la traducción legalmente hecha.

@@ -1,0 +1,2 @@
+Art. 63.-Si todos los interesados estuvieren de acuerdo en que no procede la rectificación, podrán solicitar, por escrito, del Registrador que mande cancelar la nota marginal, y en caso contrario; que extienda en forma su negativa y remita lo actuado y certificación de los asientos conducentes a la Sala 1° de Apelaciones para que resuelva en grado.
+Lo mismo se hará, si quienes notaren el error fueren los interesados y todos de común acuerdo pidieren al Registrador que haga la rectificación, y este se negare.

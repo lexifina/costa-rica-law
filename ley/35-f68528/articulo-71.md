@@ -1,0 +1,1 @@
+Art. 71.-Los artículos 188 y 189 de la Ley Orgánica de Tribunales serán aplicables a los registradores, en cuanto quepa; y las correcciones disciplinarias que podrán imponerse por Ia Secretaria de Gobernación serán advertencia, reprensión y multa que no exceda de veinticuatro pesos.

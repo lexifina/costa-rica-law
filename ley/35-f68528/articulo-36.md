@@ -1,0 +1,1 @@
+Art. 36.-Ratificada verbalmente la solicitud, y llenados los requisitos del articulo 64 del Código Civil, el encargado del Registro mandará publicar los edictos de ley en el periódico oficial, y señalará día para el examen de los testigos.

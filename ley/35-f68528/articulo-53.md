@@ -1,0 +1,1 @@
+Art. 53.-Cuando el parte á que se refiere el articulo 50 careciere de alguno de los requisitos exigidos por el articulo 251 del Código Civil, el empleado que lo envía dará los motivos de la omisión, lo que se hará constar en el Registro. Cuando se vayan adquiriendo nuevos datos se anotarán al margen del asiento.
