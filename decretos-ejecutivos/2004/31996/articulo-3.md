@@ -1,0 +1,1 @@
+Artículo 3º—Se insta a las diversas instituciones del Sector Público que trabajan en la atención de la población adulto mayor, que faciliten la participación de los funcionarios en las actividades mencionadas en el artículo primero, con el fin de garantizar la cantidad y calidad de los resultados esperados.
