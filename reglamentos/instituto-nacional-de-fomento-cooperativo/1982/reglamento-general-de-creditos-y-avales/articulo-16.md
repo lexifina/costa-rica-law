@@ -1,1 +1,0 @@
-Artículo 16.—En los créditos para capital de operaciones, los montos máximos a que se refieren los artículos 13 y 14, podrán ser sobrepasados en el acuerdo de por lo menos 5 miembros de la junta directiva.

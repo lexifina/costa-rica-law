@@ -1,2 +1,0 @@
-Artículo 33.—De conformidad con el inciso e) del artículo 157 de la Ley de creación del INFOCOOP No 5185 y sus reformas del 20 de febrero de 1973 y sus reformas, este podrá otorgar avales, cuando sea necesario y conveniente, a las cooperativas, a los Organismos integrativos y auxiliares en los préstamos que contraen con entidades financieras nacionales o extranjeras.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión No. 2297 de 07 de octubre de 1993.)

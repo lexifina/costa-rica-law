@@ -1,2 +1,0 @@
-Artículo 20.—Los intereses se cobrarán por períodos anticipados sobre los saldos deudores a una tasa que estará de acuerdo con las facultades que le confiere el inciso d) del artículo 8° de la Ley de Creación de INFOCOOP No 5185.
-Para fijar la tasa de interés se deberá tomar en consideración el plazo, él grado de riesgo, el tipo de crédito, la naturaleza y rentabilidad del proyecto de inversión y el nivel socio-económico de los asociados de la cooperativa beneficiaría.

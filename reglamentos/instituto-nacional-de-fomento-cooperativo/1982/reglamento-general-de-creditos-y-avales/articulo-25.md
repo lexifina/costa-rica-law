@@ -1,1 +1,0 @@
-Artículo 25.—En el caso de morosidad en el servicio de las amortizaciones se cobrará interés moratorio, el que se aplicará sobre el monto de la amortización sin pagar desde el día de su vencimiento hasta la fecha de su cancelación.

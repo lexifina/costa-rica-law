@@ -1,1 +1,0 @@
-Artículo 31.—Los créditos se otorgarán en forma controlada de acuerdo con las necesidades del proyecto. El INFOCOOP, por lo tanto, se reserva el derecho de efectuar los giros directamente a la orden de los proveedores, contratistas, profesionales, etc. o a la orden de la beneficiaría contra la presentación de los comprobantes correspondientes.

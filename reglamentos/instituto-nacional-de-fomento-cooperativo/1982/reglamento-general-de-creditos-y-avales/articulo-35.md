@@ -1,4 +1,0 @@
-Artículo 35.—Para los efectos de este reglamento se entiende por "aval" la garantía otorgada por el INFOCOOP, del pago de letras de cambio u otros documentos de crédito. Las operaciones de aval constituyen una modalidad de crédito en que no media la entrega efectiva de las sumas de dinero garantizadas y quedarán sujetas a los preceptos legales, reglamentarios y de procedimiento, aplicables a la concesión de créditos.
-Para el trámite de un aval deberá seguirse el mismo procedimiento que para los créditos directos.
-El monto de los avales que el INFOCOOP puede otorgar a una misma cooperativa, es el mismo que establecen para créditos directos los artículos 12 y 13 del presente reglamento y dentro de estos límites le serán computadas las operaciones de crédito directo que le hayan sido otorgadas y estén vigentes.
-El INFOCOOP, no podrá otorgar avales que en conjunto excedan al 50% de su patrimonio.

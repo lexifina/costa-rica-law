@@ -1,2 +1,0 @@
-Artículo 14.—Para las cooperativas integradas por asociados de bajos ingresos, la relación entre crédito y capital social pagado podrá elevarse hasta 15 veces, a juicio de la Junta Directiva, debiendo estar el proyecto, en todo caso, respaldado por un estudio que demuestre que la rentabilidad del mismo permite reintegrar el crédito.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión No. 2297 de 07 de octubre de 1993.)
