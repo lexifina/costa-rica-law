@@ -1,3 +1,5 @@
+(Derogado)
+(Esta ley fue derogada por el artículo 34 (actual 38) de la Ley de Impuesto sobre Bienes Inmuebles, N° 7509 del 9 de mayo de 1995)
 TITULO I
 Bienes Sujetos al Impuesto
 Artículo 1º.- Establécese a favor de las municipalidades del país un
