@@ -1,0 +1,2 @@
+Art.5°. -Si por desgracia falleciere alguno á consecuencia de la viruela, las autoridades competentes levantarán sumaria información, para averiguar de parte de quién ha estado el descuido que dió ocasión al siniestro, para que sea debidamente castigado.
+Dado en él Palacio Presidencial, en San José, Á los diez y ocho días del mes de enero de mil ochocientos ochenta y cuatro. -P. FERNÁNDEZ. - El Secretario de Estado en el Despacho de Policía. -BERNARDO SOTO.
