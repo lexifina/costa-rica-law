@@ -1,0 +1,2 @@
+Artículo 6°—Referencias: La Municipalidad de Alajuela. Por medio del Comité de Precalificación, podrá solicitar a otras organizaciones o instituciones, referencias de los personeros o personal técnico de los postulantes, con el fin de acreditar su idoneidad ética, moral y técnica para el manejo de fondos públicos y desarrollo de provéelos.
+Para que puedan ser consideradas en la precalificación, dichas referencias deberán acreditarse en el respectivo expediente.

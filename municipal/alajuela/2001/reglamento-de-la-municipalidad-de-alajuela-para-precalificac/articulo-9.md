@@ -1,0 +1,1 @@
+Artículo 9°— Rechazo de plano: No se otorgara la precalificación a aquellas organizaciones que no tengan al menos dos años de haber sido legalmente constituidas, o cuando la documentación aportada sea incompleta.

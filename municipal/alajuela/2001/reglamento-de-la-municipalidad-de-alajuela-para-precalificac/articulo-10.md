@@ -1,0 +1,1 @@
+Artículo 10.—Plazo para resolver: Toda solicitud de precalificación deberá ser resuelta dentro de los veintidós días siguientes a la fecha de su presentación, salvo en las circunstancias indicadas en el articulo anterior.

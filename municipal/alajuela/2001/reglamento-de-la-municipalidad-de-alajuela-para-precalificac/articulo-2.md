@@ -1,0 +1,1 @@
+Artículo 2°— Área de influencia: La precalificación que se regula en este reglamento, se otorgará únicamente, a aquellas organizaciones no gubernamentales que tengan su domicilio dentro de la Jurisdicción del cantón central de Alajuela.
