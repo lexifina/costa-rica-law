@@ -18,3 +18,4 @@ Declara emergencia nacional el funcionamiento del Sistema Aduanero Nacional y cr
 | 3 | 1986-12-24 | Decreto Ejecutivo 17360 (1986-11-28) |
 | 4 | 1987-11-18 | Decreto Ejecutivo 17887 (1987-11-18) |
 | 5 | 1987-12-28 | Decreto Ejecutivo 17929 (1987-12-28) |
+| 6 | 1988-11-30 | Decreto Ejecutivo 18672 (1988-11-30) |

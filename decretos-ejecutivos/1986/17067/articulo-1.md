@@ -10,4 +10,4 @@ Considerando:
 Por tanto.
 DECRETAN:
 Artículo 1°-Se declara emergencia nacional el funcionamiento del Sistema Aduanero Nacional.
-(NOTA: Mediante el artículo 1° del decreto ejecutivo N° 17929 del 28 de diciembre de 1987, se prorroga la vigencia de este artículo, hasta el 31 de diciembre de 1988)
+(NOTA: Mediante el artículo 1° del decreto ejecutivo N° 18672 del 30 de noviembre de 1988, se prorroga la vigencia de este artículo, hasta el 30 de marzo de 1990)
