@@ -1,0 +1,1 @@
+Artículo 5°-A fin de llevar a la práctica los propósitos enunciados en el artículo 3° de este decreto, la Comisión deberá elaborar y presentar un plan operacional, con el respectivo presupuesto, de manera que, pueda iniciarse su aplicación a más tardar en el año 1969.

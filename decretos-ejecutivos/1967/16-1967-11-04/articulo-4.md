@@ -1,0 +1,1 @@
+Artículo 4°-La Comisión queda facultada para solicitar y obtener colaboración de las dependencias del Poder Ejecutivo o de cualquier otra dependencia pública; para gestionar el asesoramiento de los organismos nacionales o internacionales que corresponda; y para designar subcomisiones para el estudio de asuntos específicos.

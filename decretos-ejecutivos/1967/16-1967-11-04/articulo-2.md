@@ -1,0 +1,1 @@
+Artículo 2°-La Comisión estará integrada por cuatro miembros: el Ministro de Salubridad Pública, quien la presidirá; el Gerente de la Caja Costarricense de Seguro Social; y dos funcionarios, uno del Ministerio de Salubridad Pública, designado por el Ministro y otro de la Caja nombrado por su Gerente. Los miembros servirán en la Comisión ex officio y ad honórem.
