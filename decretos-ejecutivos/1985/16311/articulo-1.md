@@ -39,3 +39,6 @@ Colegio de Cirujanos Dentistas.
 Colegio de Biólogos de Costa Rica.
 Ministro de Agricultura y Ganadería:
 Colegio de Ingenieros Agrónomos de Costa Rica.
+(*)Ministerio de Economía, Industria y Comercio:
+Colegio de Licenciados en Ciencias Económicas y Sociales.
+(*) (Así adicionado el apartado anterior por el artículo 1° del decreto ejecutivo N° 18746 del 23 de diciembre de 1988)

@@ -14,3 +14,4 @@ Ministerios encargados para el trámite de ley o de decretos interés directo de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-06-20 | la propia norma |
+| 2 | 1988-12-23 | Decreto Ejecutivo 18746 (1988-12-23) |
