@@ -15,3 +15,4 @@ Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones.
 | --- | --- | --- |
 | 1 | 1973-07-20 | la propia norma |
 | 2 | 1982-04-26 | Reglamento 3332 (1982-04-26) |
+| 3 | 1982-06-25 | Reglamento 3348 (1982-06-25) |
