@@ -1,0 +1,1 @@
+Art. 2°-El camino expresado debe tener las condiciones de solidez, inclinación y extensión que el Poder Ejecutivo considere necesarias para establecer una buena vía de tránsito y acortar la distancia entre los dos pueblos indicados y esta capital.
