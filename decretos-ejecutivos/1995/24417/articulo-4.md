@@ -1,0 +1,1 @@
+Artículo 4.- Se insta a todas las instituciones públicas y privadas para que en el marco de sus respectivas competencias, contribuyan con la Comisión Nacional Organizadora para el éxito del Segundo Congreso Nacional sobre Administración de Justicia.
