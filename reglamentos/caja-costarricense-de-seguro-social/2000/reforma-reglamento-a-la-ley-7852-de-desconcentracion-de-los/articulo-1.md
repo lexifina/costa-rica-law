@@ -1,0 +1,18 @@
+REGLAMENTOS
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+REFORMA REGLAMENTARIA
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 26 de la sesión 7476 , celebrada el 7 de setiembre de 2000, dispuso modificar el inciso a), del artículo 20 (Capítulo IV, de los Recursos Humanos), del Reglamento a la Ley 7852, desconcentración de los hospitales y clínicas de la Caja Costarricense de Seguro Social, en los siguientes términos:
+REGLAMENTO A LA LEY 7852, DESCONCENTRACIÓN
+DE LOS HOSPITALES Y CLÍNICAS DE LA CAJA
+COSTARRICENSE DE SEGURO SOCIAL
+"Artículo 20º (...)
+a. Definir y establecer modalidades alternativas de contratación de recursos humanos aplicables al sistema de empleo público o de contratación administrativa de servicios; de acuerdo con el ordenamiento jurídico vigente y sin perjuicio de los derechos adquiridos".
+En consecuencia, el artículo 20° se lee así:
+"Artículo 20.—Corresponderá a los hospitales, clínicas o áreas de salud desconcentrados, la gestión de los recursos humanos de las dependencias o unidades a su cargo. El ejercicio de las anteriores competencias deberá darse de conformidad con lo que establezcan las disposiciones legales y reglamentarias aplicables en esta materia, con las limitaciones que específicamente acuerde la Institución, en el correspondiente compromiso de gestión o addendum celebrado al efecto. En este sentido, son atribuciones del órgano desconcentrado en la gestión y administración de los recursos humanos a su cargo:
+a. Definir y establecer modalidades alternativas de contratación de recursos humanos aplicables al sistema de empleo público o de contratación administrativa de servicios de acuerdo con el ordenamiento jurídico vigente y sin perjuicio de los derechos adquiridos.
+b. El reclutamiento y selección de personal, aplicando directamente el proceso de selección legal o reglamentario que corresponda, de acuerdo con el grupo ocupacional al que pertenezca el (la) servidor (a).
+b. El diseño y desarrollo de incentivos no económicos para sus servidores (as), tal y como se establece adelante.
+c. La creación y desarrollo de los programas de capacitación y formación de personal para sus servidores (as). El impacto económico de estos programas y de las remuneraciones resultantes, será asumido por el presupuesto de la unidad desconcentrada.
+d. La reasignación individual de puestos, para lo cual deberá contar con los recursos financieros necesarios y garantizar la viabilidad a la luz del próximo presupuesto anual ya negociado o aprobado.
+e. Cualquier otro previsto en la presente reglamentación o que en el futuro se establezca por la Junta Directiva de la Caja.
+La Dirección de Recursos Humanos tendrá a su cargo el control del Sistema Integrado de Información en materia de Recursos Humanos, debiendo proveer a los centros de trabajo de los programas o componentes que les permitan incorporarse al sistema e interactuar en él. Dichos programas o componentes solo podrán ser modificados, total o parcialmente, por la Dirección de Recursos Humanos, previo informe a la Gerencia de División Administrativa (Lo destacado corresponde al texto reformado".
