@@ -1,0 +1,2 @@
+(NOTA DE SINALEVI: La Corporación Municipal del Cantón Central de San José de La Municipalidad de San José, mediante acuerdo N° 16 consignado en el artículo III de la sesión N° 174 del 27 de marzo del 2001, acordó la aprobación de un nuevo Reglamento Autónomo de Organización del Comité Cantonal de Deportes y Recreación de San José, publicado en La Gaceta N° 83 del 2 de mayo del 2001, el cual puede consultarse en el Sistema).
+Artículo 1°-
