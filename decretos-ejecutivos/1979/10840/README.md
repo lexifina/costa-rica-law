@@ -14,3 +14,4 @@ Constitución del Sector Agropecuario y de Recursos Naturales Renovables
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-12-04 | la propia norma |
+| 2 | 1980-05-06 | Decreto Ejecutivo 11435 (1980-05-06) |
