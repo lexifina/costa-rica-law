@@ -1,4 +1,4 @@
-Artículo 97.-La persona a la que se haya aplicado una sanción puede
+Artículo 97.- La persona a la que se haya aplicado una sanción puede
 manifestar su inconformidad. Se tomará en cuenta su gestión si la hace
 en un plazo de cinco días hábiles a partir de la fecha en que se levantó
 la información. Si se toma en cuenta la inconformidad, la Municipalidad

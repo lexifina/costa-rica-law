@@ -1,4 +1,4 @@
-Artículo 11.-Siempre que se ejecuten obras particulares que puedan
+Artículo 11.- Siempre que se ejecuten obras particulares que puedan
 alterar el equilibrio del subsuelo de las vías públicas o causar daños a
 las instalaciones en ellas existentes o a los predios circunvecinos, la
 Municipalidad, exigirá a los interesados que tomen las precauciones

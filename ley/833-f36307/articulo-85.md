@@ -1,5 +1,5 @@
-Artículo 85.-Obligación. Para la Municipalidad, el perito que solicitó
-la licencia para la ejecución de una obra, es responsable del
+Artículo 85.- Obligación. Para la Municipalidad, el perito que
+solicitó la licencia para la ejecución de una obra, es responsable del
 cumplimiento de las reglas de este ordenamiento, aún cuando en la obra
 intervengan otros Ingenieros, o su construcción esté encomendada a uno o
 varios contratistas. Sin embargo, se puede hacer una parte determinada

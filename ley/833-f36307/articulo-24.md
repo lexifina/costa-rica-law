@@ -1,4 +1,4 @@
-Artículo 24.-Invasión. Toda alteración al trazo del frente de una
+Artículo 24.- Invasión. Toda alteración al trazo del frente de una
 construcción, hacia afuera del alineamiento oficial, será considerada
 como invasión de la vía pública, quedando obligado el dueño de la
 construcción a demoler la parte de la misma que motive dicha invasión
