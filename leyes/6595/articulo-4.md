@@ -1,0 +1,1 @@
+Artículo 4º.- Modifícase el artículo 34 de la ley Nº 4240 del 15 de noviembre de 1968, reformado por la ley Nº 6575 del 27 de abril de 1981, para que el plazo de tres días ahí señalados se eleve a quince días.

@@ -1,0 +1,2 @@
+Artículo 2º.- Modifícase el artículo 102 de la Ley Orgánica de Notariado, número 39 del 5 de enero de 1943 y sus reformas, el cual dirá así:
+"Artículo 102.-El notario podrá no cobrar honorarios, haciéndolo constar así en la escritura; pero si al cobrarlos no se ajustare a la tarifa respectiva, podrá ser suspendido, en cada caso, por el Tribunal que corresponda, de cuya resolución no cabrá recurso alguno".

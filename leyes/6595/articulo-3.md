@@ -1,0 +1,1 @@
+Artículo 3º.- Deróganse los artículos 1º, 4º y 5º de la ley Nº 1128 del 17 de enero de 1950, reformada por la ley Nº 5106 del 8 de noviembre de 1972, así como el transitorio I de ésta, y los artículos 95, 96, 98 y 99 de la Ley Orgánica de Notariado, Nº 39 del 5 de enero de 1943 y sus modificaciones.
