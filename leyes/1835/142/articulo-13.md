@@ -1,0 +1,1 @@
+Art 13.- Siendo conforme el presente decreto al espíritu de la ley citada arriba de 30 de junio de 1828 en cuanto las circunstancias lo permiten, debe ella regir en punto a sueldos y disciplina. Dado en la Ciudad de San José a dos de noviembre de mil ochocientos treinta y cinco.

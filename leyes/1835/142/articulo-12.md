@@ -1,0 +1,1 @@
+Art 12.- Su plana mayor se compondrá de un Comandante que será el Sargento mayor, un ayudante, un porta guion, un Capellán, un Clarín mayor y otro de órdenes y las plazas veteranas serán el Comandante, el Ayudante, el Sargento 1° y un Clarín
