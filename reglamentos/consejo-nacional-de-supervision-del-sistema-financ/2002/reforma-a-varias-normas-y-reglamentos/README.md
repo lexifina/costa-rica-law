@@ -15,3 +15,4 @@ Reforma a varias normas y reglamentos
 | --- | --- | --- |
 | 1 | 2002-09-11 | la propia norma |
 | 2 | 2003-06-10 | Reglamento 375 (2003-06-10) |
+| 3 | 2004-03-09 | Reglamento 425 (2004-03-09) |
