@@ -1,0 +1,9 @@
+N° 13-2001
+EL TRIBUNAL SUPREMO DE ELECCIONES
+Con fundamento en los artículos 99 y 102.9 de la Constitución Política, así como en lo dispuesto en la Ley N° 4519 del 24 de diciembre de 1969, denominada Ley de Salarios y Régimen de Méritos del Tribunal Supremo de Elecciones y Registro Civil.
+Considerando:
+l.-Mediante Decreto N° 3-2001 del 19 de abril del 2001, publicado en la Gaceta N° 84 del 3 de mayo del año en curso, el Tribunal creó un "Incentivo salarial por responsabilidad en el ejercicio de la función electoral" aplicable a los funcionarios que, sin ostentar el título respectivo, ocupan puestos profesionales para los cuales no se exigía ese requisito académico al momento de su nombramiento.
+II.-El Tribunal Supremo de Elecciones, en su sesión N° 57-2001 del 12 de julio del 2001, tomando en cuenta el nivel de responsabilidad e impacto en el ámbito electoral inherente al servidor público adscrito a esta institución, independientemente de su nivel jerárquico, aprobó extender el beneficio del 18% sobre el salario base aplicable a todos los funcionarios que sin ostentar el título respectivo ocupan puestos profesionales y reconocer un porcentaje del 10% a quienes no queden cubiertos por tal disposición ni estén amparados al Régimen de Carrera Profesional.
+DECRETA:
+Artículo 1°-Refórmese el artículo 1° del Decreto N° 3-2001 del 19 de abril del 2001, publicado en La Gaceta N° 84 del 3 de mayo del año en curso, para que se lea de la siguiente manera:
+"Artículo 1°-Créase un incentivo que se denominará "Incentivo salarial por responsabilidad en el ejercicio de la función electoral", el cual se fija en un 18% sobre el salario base aplicable únicamente a los funcionarios que sin ostentar el título respectivo ocupan puestos profesionales, y en un 10% a quienes no queden cubiertos por tal disposición ni estén amparados al Régimen de Carrera Profesional" .
