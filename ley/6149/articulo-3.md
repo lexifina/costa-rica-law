@@ -1,0 +1,1 @@
+Artículo 3°- La Asociación lntegral de Desarrollo Comunal de Ciudad Satélite de Hatillo destinará esos terrenos a la construcción de un salón comunal de uso múltiple y las áreas de terreno no construidas, a áreas verdes y deportivas.
