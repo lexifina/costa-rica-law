@@ -1,0 +1,1 @@
+Artículo 7º.- Aquellos organismos cooperativos dedicados a actividades de educación y capacitación cooperativa, podrá adquirir, del Sistema Bancario Nacional, aquellos bienes que fueren de utilidad para la realización de actividades propias de su giro, en las mismas condiciones que establece la ley Nº 6899 del 10 de octubre de 1983.
