@@ -1,0 +1,34 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+La Junta Directiva, en el artículo 17°, acuerdo quinto, de la Sesión N° 7441, celebrada el 18 de mayo en curso, dispuso modificar los artículos 7° y 22° del Reglamento para la Compra de Medicamentos, Materias Primas, Envases, Empaques y Reactivos, en los siguientes términos:
+REGLAMENTO PARA LA COMPRA DE MEDICAMENTOS, MATERIAS
+PRIMAS, ENVASES, EMPAQUES Y REACTIVOS
+"Artículo 7°
+La solicitud para el registro de medicamentos y las materias primas para su elaboración, debe incluir la siguiente información:
+a) Certificación de la inscripción en el Ministerio de Salud de Costa Rica del laboratorio fabricante, con indicación de su vigencia, extendida por el Ministerio de Salud, original o copia certificada, más una fotocopia. Tratándose de diversos productos de un mismo laboratorio se exigirá este requisito para la inscripción del primer producto únicamente y para los restantes será suficiente la indicación del número de solicitud en que se presentó.
+b) Certificación de la inscripción en el Ministerio de Salud de Costa Rica del producto, con indicación de su vigencia, extendida por el Ministerio de Salud, original o copia certificada, más una fotocopia.
+c) Nombre del representante de casas extranjeras, apoderado o distribuidor autorizado, número de cédula de identidad o jurídica y sus citas de inscripción en el Registro Público para el caso de personas jurídicas, número de teléfono, fax, télex, apartado postal, dirección exacta del solicitante y su representante en el país y cualquier otro dato o medio de comunicación que facilite el envío de solicitudes de cotización y correspondencia.
+d) Compromiso expreso del oferente, de reponer en un máximo de noventa días naturales a partir de su notificación, los productos que hubieren sufrido deterioro dentro del plazo máximo de conservación, o que fueren rechazados por el Laboratorio de Control de Calidad de la Caja.
+El compromiso incluirá en el caso de que no se efectuare la reposición, la obligación de reintegrar a la Caja, en el mismo plazo indicado, el precio pagado más los daños y perjuicios causados a la Institución.
+Artículo 22°
+La administración procederá a adjudicar o declarar desierto el concurso dentro de los treinta días naturales, a partir del acto de apertura, para la compra de medicamentos y sus materias primas".
+Se concede a todos los interesados un plazo de 15 días a partir de la presente publicación, para que hagan llegar a la Junta Directiva sus observaciones y entre en vigencia lo resuelto.
+Asimismo, se comunica lo resuelto por la Junta Directiva en el artículo 27 de la sesión 7447, celebrada el 8 de junio de 2000, que literalmente dice:
+"Articulo 27° Por consiguiente, teniendo a la vista la propuesta de la Comisión ad hoc de compra de medicamentos, la Junta Directiva acuerda derogar el artículo 23° de la sesión número 6935; celebrada el 20 de junio de 1995 que se refiere a la presentación de los empaques de los medicamentos para todos los proveedores de la Ley número 6914, que a la letra dice:
+"Finalmente, la Junta Directiva, con base en las anteriores consideraciones y la recomendación de la señora Gerente de la División Médica -unánimemente- acuerda acoger las recomendaciones generales contenidas en el Informe de la Comisión para Estudio de la Presentación de medicamentos, que dicen:
+´1. Los empaques cuaternarios, terciarios y secundarios de todas las formas farmacéuticas, serán marcados con códigos de barras.
+2. Los empaques secundarios tendrán, bandas u otros recursos necesarios para garantizar la inviolabilidad del contenido. La rotulación de los mismos deberá estar en caras contiguas.
+3. Los empaques primarios, secundarios, terciarios y cuaternarios se regulará, como mínimo, con la información indicada en la Ficha Técnica del medicamento correspondiente y según diseño de la misma.
+4. Los empaques primarios de tabletas, cápsulas, supositorios óvulos, deberán rotularse bajo la modalidad "unidosis".
+5. Si un laboratorio farmacéutico vende a la Caja varios de sus preparados, deberá elaborar para el empaque primario de cada uno, etiquetas o impresiones con colores diferentes, para que sean fácilmente diferenciables entre si, y deberá mantenerlos constantes. Lo anterior no rige para blisters ni foils.
+6. Las ampollas y frascos ampolla se rotularán con etiquetas de papel firmemente adheridas. No se aceptará pirograbado ni impresión con tinta.
+7. Las ampollas que se suplan en cajas de tamaño hospitalario, deberán estar contenidas en bandejas de plástico u otro material adecuado, de 5 ó 10 ampollas cada una.
+8. Los blisters para tabletas o cápsulas deberán ser de aluminio opaco, laqueado en blanco o laminado. No se aceptará el uso de aluminio impreso por el lado brillante.
+9. La impresión en los blisters o foils deberá ser nítida, indeleble al manejo usual, contrastante y fácilmente legible.
+10. Cuando un medicamento en tabletas o cápsulas requiera protección de la luz o la humedad, deberá utilizarse en el empaque primario del mismo, un material que provea la protección requerida. Esta deberá ser comprobable por métodos usuales de laboratorio.
+11. Cuando la Caja requiera tabletas de un mismo medicamento pero con potencias diferentes, los laboratorios las suplirán con diámetros diferentes concordantes con las potencias (a mayor potencia mayor tamaño) o formas diferentes y las pigmentarán con colores diferentes (tabletas o recubrimientos), todo según Ficha Técnica del Laboratorio de Control de Calidad de la Caja.
+12. Los medicamentos en forma de líquidos orales o polvos para suspensión, tendrán una medida dosifícadora ajustada a la tapa mediante banda de integridad. La medida estará marcada: 1/2 cucharadita, 1 cucharadita. No se aceptará banda de celulosa.
+13. Los preparados líquidos para uso tópico tendrá banda o tapa de integridad, para garantizar el contenido. No se aceptará banda de celulosa.
+14. Los colirios y ungüentos oftálmicos tendrán banda o cierre de integridad para garantizar su estirilidad. No se aceptará banda de celulosa.
+15. Los tubos de cremas y ungüentos tópicos serán obturados, para preservar la calidad del contenido',
+y encargar a la Gerencia de Operaciones para que proceda a la revisión correspondiente, con el objeto de que estas recomendaciones se incorporen en el "Reglamento para el registro de oferentes y procedimientos de compra de productos químico-farmacéuticos del Cuadro Básico de Medicamentos de la CCSS (incluye materias primas).",
+y establecer la ficha técnica como el documento oficial científico-técnico que define las características idóneas del medicamento por licitar por parte de la Caja y garantiza las condiciones de seguridad, estabilidad y calidad del medicamento almacenable o en tránsito de la Lista Oficial de Medicamentos hasta su fecha de vencimiento. Acuerdo firme".
