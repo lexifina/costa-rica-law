@@ -14,3 +14,4 @@ Reglamento para las Contrataciones de Consultores con Cargo al Fondo de Fiscaliz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-15 | la propia norma |
+| 2 | 2004-07-16 | Reglamento 45 (2004-07-16) |
