@@ -13,3 +13,4 @@ Crea Régimen de Depósito Fiscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-01-29 | la propia norma |
+| 2 | 1990-01-29 | Decreto Ejecutivo 20952 (1991-12-23) |
