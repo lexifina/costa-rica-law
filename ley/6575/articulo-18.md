@@ -1,4 +1,4 @@
-ARTICULO 18.- Modifícanse los artículos 6º y 12 de la Ley sobre
+ARTÍCULO 18.- Modifícanse los artículos 6º y 12 de la Ley sobre
 Inscripción de Documentos en el Registro Público, número 3883 del 30 de
 marzo de 1967, reformada por la Ley número 6145 del 18 de noviembre de
 1977. Sus textos serán los siguientes:

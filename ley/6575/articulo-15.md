@@ -1,4 +1,4 @@
-ARTICULO 15.- Derógase el párrafo cuarto del artículo 25 y
+ARTÍCULO 15.- Derógase el párrafo cuarto del artículo 25 y
 modifícanse los artículos 38 y 44 de la Ley de Impuesto Territorial,
 número 27 del 2 de marzo de 1939 y sus reformas. Sus textos dirán:
 "Artículo 38.- El Registro Público suspenderá la inscripción de
