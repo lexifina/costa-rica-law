@@ -1,0 +1,26 @@
+DECRETOS
+Nº 32426-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los incisos 3) y 18) del numeral 140 de la Constitución Política, los artículos 1, 2, 3, 4, 5 y 6 de la Ley Nº 5 del 15 de octubre de 1934, numerales 1, 2, 38 siguientes y concordantes de la Ley sobre el Régimen de Relaciones entre Productores, Beneficiadores y Exportadores de Café Nº 2762 de fecha 21 de junio de 1961 y sus reformas, los artículos 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley Nº 6227 o Ley General de la Administración Pública de 2 de mayo de 1978; artículo 1 del Decreto Ejecutivo Nº 29945-H de fecha 1º de noviembre del 2001 y Decreto Ejecutivo Nº 31529-H de fecha 17 de noviembre del 2003.
+Considerando:
+1º—Que los Almacenes Generales de Depósito, de conformidad con lo estipulado en la Ley Nº 5 del 15 de octubre de 1934, tienen la potestad de emitir certificados de depósito sobre las mercancías, frutos y productos que guarden y custodien; certificados que constituyen títulos que pueden ser objeto de negociación para el financiamiento de la producción del fruto o producto.
+2º—Que el artículo 38 de la Ley 2762, Ley sobre el Régimen de Relaciones entre Productores, Beneficiadores y Exportadores de Café, expresamente faculta al Instituto del Café para operar como Almacén General de Depósito, ajustándose para ello a lo dispuesto en la Ley Nº 5 del 15 de octubre de 1934.
+3º—Que mediante el artículo 1º del Decreto Ejecutivo Nº 29945-H se estableció que estando el Instituto Costarricense del Café, en adelante ICAFE legalmente facultado para operar como Almacén General de Depósito se le autorizaba para habilitar temporalmente como almacén general de depósito, las instalaciones de los beneficios de café, que cumplan con los siguientes requisitos:
+a) Copia certificada del contrato de arrendamiento a su favor.
+b) Declaración del dueño o arrendante de las instalaciones, en las cuales se haga constar que las áreas habilitadas se utilizarán, en forma exclusiva, para el depósito y almacenamiento de café.
+c) Plano de distribución general del área que se habilitará, que deberá reflejar el entorno físico e identificar las áreas específicas que serán habilitadas (silos y bodegas).
+d) Como parte del espacio habilitado se admitirá la utilización de áreas como silos y bodegas que reúnan las condiciones usuales de seguridad y almacenamiento de café, de conformidad con los requisitos que al efecto establezca el Instituto del Café de Costa Rica.
+e) El local habilitado se destinará únicamente para el almacenamiento de café con suficiente comodidad para depositarlo, seleccionarlo, transportarlo, conservarlo, separarlo e identificarlo según sus dueños.
+f) En el caso de que se utilicen silos para el almacenamiento del café, como parte de la zona habilitada, deberán contar con un marchamo de seguridad autorizado por el Instituto del Café de Costa Rica.
+g) Valores o documentos de crédito público por un monto de cinco mil colones.
+h) El café almacenado deberá contar con un seguro, expedido por el Instituto Nacional de Seguros.
+4º—Que al amparo de lo dispuesto en el artículo 6 del Decreto Nº 29945-H el ICAFE puede expedir certificados de depósito como títulos de crédito en relación con el café que se reciba en custodia bajo la figura de Almacén General de Depósito.
+5º—Que mediante Decreto Ejecutivo Nº 31529-H de fecha 17 de noviembre del 2003, se dispuso derogar lo dispuesto en el artículo 2 del Decreto Ejecutivo Nº 29945-H de fecha 1º de noviembre del 2001 y prorrogar la vigencia de la habilitación otorgada, a través de la normativa antes señalada, por un plazo máximo de doce meses.
+6º—Que la crisis del sector cafetalero nacional fundamento fáctico para la emisión en su oportunidad de los decretos Nº 29945-H y Nº 31529-H supracitados, a la fecha no solo se mantiene, sino que inclusive se ha visto incrementada por la difícil situación financiera y fiscal que atraviesa el país.
+7º—Que la situación antes señalada hace de innegable interés público la búsqueda de medidas que permitan solventar dicha problemática.
+8º—Que la habilitación temporal otorgada al ICAFE, mediante los decretos ejecutivos antes citados ha demostrado ser una medida de innegable importancia para mitigar parcialmente los efectos de la situación critica que afecta al sector cafetalero nacional.
+9º—Que atendiendo a las razones expuestas y en cumplimiento y satisfacción del interés público inherente se hace necesario que las disposiciones contenidas en los decretos ejecutivos Nº 29945-H y Nº 31529-H supracitados, se prorroguen nuevamente.
+10.—Que la experiencia tal y como se ha señalado acredita la importancia de la habilitación temporal conferida, por lo que se considera que la misma no debe otorgarse únicamente por un plazo máximo de doce meses, sino que lo procedente es establecer la posibilidad legal, de que previa elaboración y presentación del Informe Técnico y Financiero respectivo, por parte del ICAFE que acredite la necesidad de prorrogar, podrá prorrogarse la vigencia por períodos de doce meses hasta un máximo de cuatro años. Por tanto,
+DECRETAN:
+Artículo 1º—Prorrogar por doce meses la vigencia de la habilitación temporal otorgada al Instituto del Café de Costa Rica (ICAFE), Decreto Ejecutivo Nº 31529-H de fecha 17 de noviembre del 2003.
