@@ -1,0 +1,1 @@
+8) La Gerencia General deberá velar por el cumplimiento de los requisitos y procedimientos establecidos en la Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de uso no Autorizado y Actividades Conexas.

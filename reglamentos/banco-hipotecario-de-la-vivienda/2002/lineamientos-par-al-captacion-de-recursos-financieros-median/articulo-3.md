@@ -1,0 +1,1 @@
+3) La captación de recursos financieros se hará en moneda nacional o extranjera, mediante la emisión de los Títulos Valores, cuya autorización está prevista en el título VI de la Ley del Sistema Financiero Nacional para la Vivienda.

@@ -1,0 +1,1 @@
+2) Para los efectos de estas normas se entenderá por captación de recursos financieros, aquellas operaciones que permitan obtener recursos del mercado, a cambio de la emisión de Títulos Valores y la consecuente generación de obligaciones financieras en el pasivo del balance de situación.

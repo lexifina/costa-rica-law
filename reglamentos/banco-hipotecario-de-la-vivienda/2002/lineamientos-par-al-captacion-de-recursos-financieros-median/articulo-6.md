@@ -1,0 +1,1 @@
+6) La Gerencia General velará para que las condiciones en que se emitan los Títulos Valores, sean acordes con el comportamiento del mercado financiero, con la posición financiera del Banco y con los límites aprobados por la Junta Directiva en el programa de captaciones.

@@ -1,0 +1,2 @@
+7) Los Títulos Valores pueden ser vendidos a precios inferiores a su valor facial, siempre y cuando el descuento aplicado corresponda a pago de intereses de acuerdo con las tasas de interés fijadas como máximas en el aparte 4) anterior.
+Si el descuento que se otorgare resultare mayor al correspondiente a la tasa de interés indicada en el aparte 4) anterior, la Gerencia General informará a la Junta Directiva en la sesión siguiente a la captación, al respecto y los motivos para tomar esa decisión.
