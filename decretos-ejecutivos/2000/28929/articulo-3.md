@@ -1,0 +1,1 @@
+Artículo 3°—Las instituciones del sector público, podrán contribuir con la actividad con aportes, cuando estén autorizadas por ley para estos fines y en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de la actividad indicada.
