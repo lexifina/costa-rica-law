@@ -1,0 +1,1 @@
+Artículo 7º—Por motivo de que los miembros del Colosevi León Cortes, eventualmente se ausenten a las sesiones ordinarias o extraordinarias se acuerda por unanimidad aprobar quórum con la cantidad de tres miembros.

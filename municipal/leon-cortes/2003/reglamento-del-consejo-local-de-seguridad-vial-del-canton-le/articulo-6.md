@@ -1,0 +1,1 @@
+Artículo 6º—Sus políticas y acciones se regirán en todo momento según lo dispuesto por el Decreto Ejecutivo N° 29390-MOPT-S, los lineamientos provenientes del Consejo de Seguridad Vial, Dirección General de Ingeniería de Tránsito, la Ley de Tránsito Nº 7331, del Concejo Municipal de León Cortes y de cualquier nueva ley o norma creada para tal efecto.

@@ -1,0 +1,1 @@
+Artículo 10.—Cada miembro representante del Colosevi-León Cortes, será identificado mediante un carné. Se reunirá una vez al mes, de ser necesario, el presidente convocará a reunión extraordinaria, asimismo, se hace saber que al no asistir a 3 reuniones consecutivas sin justificación o 6 ausencias justificadas, perderá la credencial otorgada como miembro del Colosevi-León Cortes.
