@@ -1,1 +1,0 @@
-Artículo 14- La coordinación en el nivel regional la realizará el Gerente con los Comités Sectoriales Regionales Agropecuarios, quienes nombrarán un coordinador regional y el equipo técnico que llevará a cabo la ejecución del Programa Nacional en las regiones.

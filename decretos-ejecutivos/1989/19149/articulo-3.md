@@ -1,1 +1,0 @@
-Artículo 3°- La Dirección de los Programas Nacionales, al más alto nivel estará a cargo de un Coordinador General nombrado por el Ministro Rector, el cual fungirá como portavoz y enlace entre éste y el Gerente del Programa.

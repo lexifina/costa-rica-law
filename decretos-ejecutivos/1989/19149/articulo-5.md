@@ -1,1 +1,0 @@
-Artículo 5°- Para la ejecución del Programa Nacional, el Gerente contará con el apoyo de los Comités Sectoriales Regionales para lo cual nombrarán, conjuntamente, un Coordinador Regional del Programa, cuya función será coordinar las acciones del equipo técnico nombrado por las diferentes instituciones del Sector Agropecuario.
