@@ -1,0 +1,3 @@
+ARTICULO 18.-
+Formas de sistema educativo Las personas con necesidades educativas especiales podrán recibir su educación en el Sistema Educativo Regular, con los servicios de apoyo requeridos. Los estudiantes que no puedan satisfacer sus necesidades en las aulas regulares, contarán con servicios apropiados que garanticen su desarrollo y bienestar, incluyendo los brindados en los centros de enseñanza especial.
+La educación de las personas con discapacidad deberá ser de igual calidad, impartirse durante los mismos horarios, preferentemente en el centro educativo más cercano al lugar de residencia y basarse en las normas y aspiraciones que orientan los niveles del sistema educativo.

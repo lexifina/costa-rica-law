@@ -1,0 +1,2 @@
+ARTICULO 6.-
+Concienciación Cuando, por cualquier razón o propósito, se trate o utilice el tema de la discapacidad, este deberá presentarse reforzando la dignidad e igualdad entre los seres humanos. Ningún medio de información deberá emitir mensajes estereotipados ni menospreciativos en relación con la discapacidad. Las organizaciones de personas con discapacidad deberán ser consultadas sobre este tema.

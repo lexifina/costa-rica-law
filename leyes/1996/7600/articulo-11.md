@@ -1,0 +1,4 @@
+ARTICULO 11.-
+Familia Todos los miembros de la familia deben contribuir a que la persona con discapacidad desarrolle una vida digna y ejerza plenamente sus derechos y deberes.
+Las personas con discapacidad que no disfruten del derecho de vivir con su familia, deberán contar con opciones para vivir, con dignidad, en ambientes no segregados.
+La Procuraduría General de la República solicitará, de oficio, la curatela para la persona con discapacidad en estado de abandono de hecho, cuando así lo solicite un particular o un ente estatal. En este caso, el tribunal comprobará, de previo, el estado de abandono.

@@ -1,0 +1,2 @@
+ARTICULO 17.-
+Adaptaciones y servicios de apoyo Los centros educativos efectuarán las adaptaciones necesarias y proporcionarán los servicios de apoyo requeridos para que el derecho de las personas a la educación sea efectivo. Las adaptaciones y los servicios de apoyo incluyen los recursos humanos especializados, adecuaciones curriculares, evaluaciones, metodología, recursos didácticos y planta física. Estas previsiones serán definidas por el personal del centro educativo con asesoramiento técnico-especializado.
