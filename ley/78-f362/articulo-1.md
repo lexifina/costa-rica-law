@@ -1,0 +1,6 @@
+DECRETO LXXVIII
+Dispone que el Gobierno reglamento la manera de hacer efectivo el cumplimiento de las obligaciones impuestas a los Procuradores Síndicos en el art 50 de la 3, parte del Código general.
+El Excelentísimo Congreso Constitucional de la República de Costa Rica, considerando: que las leyes que tienden a mejorar al servicio público y a representar los males de la sociedad, son mudas por falta de una voz viva que las haga valer: que desde la emisión del Código, las Agencias Fiscales quedaron reunidas emolumento, se les duplicó la carga concejil que sirvan; pero que su resultado fue el abandono de las obligaciones que les impone el art 50 de la 3° parte del Código General: para evitar los males que la Sociedad sufre, por estar casi ahogada su voz que por el órgano de los Agentes Fiscales, debe oírse en los Tribunales, pidiendo la corrección de los delincuentes y reclamando la protección de la ley para los huérfanos y para las otras necesidades públicas que deben representar, decreta:
+Art 1°- El Gobierno reglamentará la manera de hacer efectivo el cumplimiento de las obligaciones que el art 50 de la 3° parte del Código general impone a los Procuradores Síndicos en calidad de Agentes Fiscales, en todas las cabeceras de Provincia.
+__
+Ver la ley de 11 de julio de 1850
