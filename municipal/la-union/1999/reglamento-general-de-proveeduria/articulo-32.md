@@ -1,0 +1,1 @@
+Artículo 32.—La Sección de Proveeduría tendrá la facultad de fiscalizar la existencia de materiales en los diferentes departamentos de la Institución y podrá realizar inventarios cuando lo estime conveniente. Lo anterior incluye a la Bodega Auxiliar.

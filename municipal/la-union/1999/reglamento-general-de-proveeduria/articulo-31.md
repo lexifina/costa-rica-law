@@ -1,0 +1,1 @@
+Artículo 31.—De acuerdo a las necesidades de la Institución se procederá a crear otra bodega auxiliar en cuyo caso se nombrará un encargado apañe del encargado de la Bodega Principal el cual deberá cumplir con las mismas disposiciones y responsabilidades señaladas en los artículos números 26-27-28-29 de este reglamento.

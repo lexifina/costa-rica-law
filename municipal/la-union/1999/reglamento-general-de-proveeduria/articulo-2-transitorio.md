@@ -1,0 +1,1 @@
+Artículo 2°—En trabajos de urgencia comprobada y no encontrándose el Director del Departamento y el Jefe de la Oficina de Proveeduría, el bodeguero podrá entregar materiales con una boleta que para el efecto se confeccionará.

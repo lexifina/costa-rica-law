@@ -1,0 +1,1 @@
+Artículo 4°—Antes de realizar las compras de un nuevo período económico la proveeduría conjuntamente con los diferentes departamentos deberá elaborar un programa anual de compras el cual debe de concordar con el presupuesto anual ordinario.

@@ -1,0 +1,1 @@
+Artículo 36.—El cupón se confeccionará previa solicitud del interesado el cual deberá realizarse por lo menos con dos días de anticipación con el fin de evitar paralización de operaciones en ausencia del Proveedor.

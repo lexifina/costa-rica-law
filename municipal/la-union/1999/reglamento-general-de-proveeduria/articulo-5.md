@@ -1,0 +1,1 @@
+Artículo 5°—Cuando la Proveeduría no dé curso a alguna solicitud de suministros por cualquier causa deberá comunicar a la dependencia solicitante la razón de su rechazo dentro del término de cinco días a partir de la recepción de la misma.
