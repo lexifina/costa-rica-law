@@ -1,0 +1,14 @@
+Nº 30642-H
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política, artículos 26 y 27 de la Ley General de la Administración Pública, la Ley N° 8131 del 16 de octubre del 2001, Ley N° 7664 y N° 7064 y su reglamento.
+Considerando:
+1º—Que según la Ley N° 7064 del 8 de mayo de 1987, el Ministerio de Agricultura y Ganadería (MAG) es el órgano rector en materia agropecuaria y rural por lo que tiene como propósito la generación de transferencia de tecnología, la formulación y ejecución de políticas agropecuarias, emisión y aplicación de normas fito y zoo-sanitarias, en función del mejoramiento económico social del país.
+2º—Que mediante Ley Nº 7664, del 8 de abril de 1997, se le confiere a la Dirección de Servicios de Protección Fitosanitaria, la función de coordinar, planificar, programar y ejecutar las políticas de protección del patrimonio agrícola nacional, de las plagas cuarentenales e impulsar y fomentar una actividad agrícola en armonía con la naturaleza.
+3º—Que actualmente existen varias plagas cercanas a nuestras fronteras que son una amenaza para el país. Adicionalmente y como consecuencia de fenómenos naturales, se ha hecho necesario aumentar el control sobre plagas presentes como es el caso de la Sigatoka Negra, Moko, Broca del Café, Caña Silvestre, entre otras.
+4º—Que mediante Decreto N° 30456-MP, publicado en el Alcance N° 38 a La Gaceta Nº 91 del 10 de mayo del 2002, se declaró estado de emergencia la situación provocada por el fenómeno hidrometeorológico denominado "Vaguada", el cual afectó las provincias de Limón, Cartago y Heredia.
+5º—Que por razones de conveniencia y oportunidad se considera necesario aumentar los límites de gasto de la Dirección de Servicios de Protección Fitosanitaria con el fin de fortalecer las medidas tendientes a disminuir las plagas presentes y evitar el ingreso de nuevos agentes patógenos, así como transferir la ayuda solicitada para la Comisión Nacional de Prevención de Riesgos y Emergencias según Decreto N° 30456-MP.
+6º—Que el Decreto Ejecutivo N° 29511-H publicado en La Gaceta N° 98 del 23 de mayo del 2001, de las Directrices Generales de Política Presupuestaria para el 2002 y sus reformas, establece los límites de gasto presupuestario y de gasto efectivo de la Dirección de Servicio de Protección Fitosanitario. Por tanto,
+Decretan:
+Artículo 1°—Modifícanse para la Dirección de Servicios Fitosanitarios del Estado los límites de gasto para el año 2002, establecidos en el Decreto Ejecutivo N° 29511-H, publicado en La Gaceta N° 98 del 23 de mayo del 2001 de manera que el gasto presupuestario y el gasto efectivo total no excedan la suma de ¢1.316.0 millones en ese período.
