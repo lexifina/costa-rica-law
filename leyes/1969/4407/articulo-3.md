@@ -1,1 +1,1 @@
-Artículo 3º.- Esta ley rige a partir de su publicación.
+ARTICULO 3º.- Esta ley rige a partir de su publicación.
