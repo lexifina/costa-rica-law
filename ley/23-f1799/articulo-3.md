@@ -1,0 +1,1 @@
+Art. 3°-Inmediatamente después de sellados tales valores, el Subsecretario y el Fiscal de Hacienda Nacionallos entregarán al Jefe de Sección de la Secretaría de Hacienda, sentando el recibo correspondiente, firmado por todos en un libro especial que conservará el primero, y que al fin de cada año económico pasará á la Contaduría Mayor para el contraste de las cuentas del último.
