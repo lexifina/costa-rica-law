@@ -1,0 +1,1 @@
+Artículo 2°-Los trámites que sean necesarios a fin de inscribir este inmueble y su eventual traspaso a la Caja Costarricense de Seguro Social estarán exentos del pago de timbres, derechos, tasas e impuestos de cualquier índole.
