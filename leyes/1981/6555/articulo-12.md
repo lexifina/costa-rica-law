@@ -14,4 +14,4 @@ En dos idiomas: español y holandés.
 San José, 16 de enero de 1979.
 Efraín Jonckeer Rafael Angel Calderón Fournier,
 Embajador. Ministro.
-Artículo 2º.- Rige a partir de su publicación.
+Artículo 2º.-Rige a partir de su publicación.

@@ -9,7 +9,7 @@ de este Convenio de todo impuesto y otros cargos fiscales sobre
 todas las remuneraciones pagadas a ellos por el Gobierno de los
 Países Bajos;
 b) Permitir la importación libre de derechos de los menajes
-de casa nuevos o usados, efectos personales y equipo profesional,
+de casa nuevos o usados efectos personales y equipo profesional,
 importados a Costa Rica por el personal o de sus familias dentro
 de seis meses de su llegada a condición de que estos bienes sean
 reexportados de Costa Rica en el momento de su partida o dentro
@@ -17,8 +17,8 @@ de un período a ser acordado por el Gobierno de Costa Rica.
 c) Permitir la importación libre de derechos de un vehículo
 de motor para cada uno del personal dentro de seis meses de su
 primera llegada a Costa Rica.
-Para la venta libre de derechos de dichos vehículos
-en Costa Rica después de cierto período, se aplicarán los
+Para la venta libre de derechos de dichos vehículos en
+Costa Rica después de cierto período, se aplicarán los
 reglamentos establecidos para los expertos de cooperación técnica
 de las Naciones Unidas en Costa Rica;
 d) Conceder visas de entrada y permisos de trabajo, sin
