@@ -14,3 +14,4 @@ IFAM: Reglamento General de Proveeduría
 | --- | --- | --- |
 | 1 | 1990-05-31 | la propia norma |
 | 2 | 1996-07-01 | Reglamento 2609 (1996-07-01) |
+| 3 | 1996-07-01 | Ley 8 |
