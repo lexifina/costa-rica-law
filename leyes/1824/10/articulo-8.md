@@ -1,0 +1,1 @@
+Art 8°.- En los demás pueblos del Estado el Alcalde 1° hará el juramento dicho ante la Municipalidad, exigiéndoselo el que en su defecto la presida, tomándolo en seguida a esta, y a las demás Corporaciones y Autoridades Civiles, Militares, y Eclesiasticas.
