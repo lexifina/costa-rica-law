@@ -1,0 +1,7 @@
+CAPITULO IV
+De la pesca continental
+Artículo 14.- Declárese una veda desde el 1º de febrero hasta el 30
+de abril de cada año para la pesca de trucha arco iris (Salmo gardnieri)
+en todos los ríos nacionales. En la época no vedada el límite de truchas
+a pescar por persona por día se establece en 5 piezas con un tamaño
+mínimo de 25 cm. de longitud.
