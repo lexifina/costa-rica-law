@@ -1,0 +1,2 @@
+Artículo 6°—El monto máximo a financiar no deberá superar el 15% que sobre el capital y reservas del Banco establece como límite el artículo 96 del Reglamento a la Ley Orgánica del Banco Popular y siempre que el monto total a financiar para cada unidad habitacional no supere el monto establecido en el reglamenta específico do vivienda individual.
+El 10% del proyecto será aportado por el solicitante y en ningún caso se refinanciarán rubros ya financiados.

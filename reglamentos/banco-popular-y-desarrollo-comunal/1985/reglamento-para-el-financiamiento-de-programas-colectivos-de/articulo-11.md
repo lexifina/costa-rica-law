@@ -1,0 +1,1 @@
+Articulo 11.—Cuando se individualice el proyecto, cada beneficiario asumirá proporcionalmente la parte correspondiente a capital, intereses y costos del proyecto, constituyéndose en deudor directo del Banco.

@@ -1,0 +1,1 @@
+Artículo 15.—El Banco inspeccionará la ejecución de los proyectos y el cumplimiento del plan de inversión de todos los préstamos que conceda, para lo cual los deudores deberán dar toda la colaboración y facilidades necesarias para que se cumpla dicha inspección.
