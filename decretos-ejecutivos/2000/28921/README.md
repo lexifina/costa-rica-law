@@ -14,3 +14,4 @@ Reglamento Normas Políticas de Informática de Ministerio SeguridadPública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-21 | la propia norma |
+| 2 | 2004-12-01 | Decreto Ejecutivo 32177 (2004-12-01) |
