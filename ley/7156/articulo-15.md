@@ -1,4 +1,4 @@
-ARTÍCULO 15.- Las personas físicas o jurídicas a que se refieren los artículos 9 y 13 de esta ley pagarán el impuesto de conformidad con la siguiente tarifa, según la categoría que les corresponda:
+Artículo 15.- Las personas físicas o jurídicas a que se refieren los artículos 9 y 13 de esta ley pagarán el impuesto de conformidad con la siguiente tarifa, según la categoría que les corresponda:
 Categoría Impuesto trimestral
 ¢
 1 50,00
