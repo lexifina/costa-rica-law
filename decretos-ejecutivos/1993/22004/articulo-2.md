@@ -1,0 +1,1 @@
+Artículo 2°—Se autoriza a los Entes y Órganos del Estado involucrado en la realización de los Censos Nacionales de Vivienda, Población y solicitar y recibir por los medios legales creados al efecto, fondos, personal, equipo, materiales y suministros necesarios para la ejecución total de los Censos Nacionales, por parte de los organismos internacionales.
