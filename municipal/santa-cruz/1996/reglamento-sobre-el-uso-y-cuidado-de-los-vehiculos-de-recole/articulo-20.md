@@ -1,0 +1,1 @@
+Artículo 20.-Los conductores no deberán transportar sin el permiso respectivo de la dirección Ejecutiva a personas ajenas a la Municipalidad, materiales u otros Artículos que no son propiedad de la municipalidad.

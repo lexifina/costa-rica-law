@@ -1,0 +1,1 @@
+Artículo 16.-Los vehículos serán operados exclusivamente por él o los conductores fijados. Los conductores y vehículos se asignan de conformidad con el Plan General, el criterio de Jefe inmediato y según las propiedades en situaciones especiales.

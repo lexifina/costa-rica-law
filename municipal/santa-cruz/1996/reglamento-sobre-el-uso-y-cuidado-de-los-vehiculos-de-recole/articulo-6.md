@@ -1,0 +1,1 @@
+Artículo 6°-Es obligación de las Jefaturas de Recolección y Aseo de Vías acatar estrictamente los programas de mantenimiento de equipo según lo establecido por el Taller Mecánico. Además de reprogramar el uso del equipo de acuerdo a lo anterior.
