@@ -8,10 +8,10 @@ Considerando:
 3°.- Que el artículo 16 de la ley número 7055 ya mencionado, establece que los fondos recaudados por el concepto de peaje, se trasladará al Consejo de Seguridad Vial para ser destinados al mantenimiento y modernización de los sistemas viales. Asímismo el inciso 15) del artículo 16 de la sección V de las normas de ejecución de presupuesto, ley número 7089 supracitada, destina los fondos que se recauden por concepto de peaje, al mejoramiento, construcción, reconstrucción y mantenimiento de las vías objeto del peaje y de los caminos y carreteras afectados a la zona de influencia de esas vías. por tanto,
 Decretan:
 Artículo 1°.- se derogan los decretos ejecutivos número 18441-MOPT de 9 de septiembre de 1988, 18592 - MOPT del 7 de noviembre de 1988, 20385 -MOPT del 18 de abril de 1991 y 21382 - MOPT del 9 de junio de 1992 en todos sus extremos, a excepción de este último en lo relativo a las tarifas en él establecidas, las cuales continúan vigentes y se reproducen en el presente decreto:
-Carretera | Autobús | Liviano | Camión de 2 ejes | Camión de 3 ejes | Camión de 5 ejes
-| ₵ | ₵ | ₵ | ₵ | ₵
-General Cañas | 20 | 20 | 40 | 40 | 70
-Bernardo Soto | 50 | 50 | 100 | 100 | 250
-Próspero Fernández | 20 | 20 | 40 | 40 | 70
-Florencio del Castillo | 20 | 20 | 40 | 40 | 70
-Braulio Carrillo | 80 | 70 | 200 | 200 | 500
+Carreteras | Autobús | Moto | Liviano | Camión de 2 ejes | Camión de 3 ejes | Camión de 5 ejes
+General Cañas | ₵ 120 | ₵ 40 | ₵ 60 | ₵ 120 | ₵ 120 | ₵ 200
+Bernudo Soto | 300 | 40 | 120 | 300 | 300 | 760
+Próspero Fernández | 120 | 40 | 60 | 120 | 120 | 200
+Florencio del Castillo | 120 | 40 | 60 | 120 | 120 | 200
+Braulio Caurillo | 600 | 40 | 200 | 600 | 600 | 1500
+(Así reformado por el artículo 1° del decreto ejecutivo N° 23786 del 9 de noviembre de 1994)

@@ -14,3 +14,4 @@ Establece Nuevas Tarifas Peajes Carreteras País
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-11-24 | la propia norma |
+| 2 | 1994-11-09 | Decreto Ejecutivo 23786 (1994-11-09) |
