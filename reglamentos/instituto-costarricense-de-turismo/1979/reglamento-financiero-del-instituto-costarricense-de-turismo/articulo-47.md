@@ -1,1 +1,0 @@
-Artículo 47.—Proveeduría y Servicios Generales serán responsables de la confección correcta de la "orden de compra-factura", de acompañar todos los comprobantes y de observar que los trámites se ajusten a las disposiciones reglamentarias establecidas.

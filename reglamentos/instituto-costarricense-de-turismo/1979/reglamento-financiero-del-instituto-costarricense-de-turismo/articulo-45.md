@@ -1,1 +1,0 @@
-Artículo 45.—Los documentos referidos en el artículo 44 deberán ser sellados y fechados al momento del recibo, debiendo indicarse en el talón de pago, que se entregará al Proveedor externo, la fecha en que estará listo el cheque del pago respectivo.

@@ -1,4 +1,0 @@
-CAPITULO VII
-De las Existencias en Proveeduría
-Artículo 28.—El Proveedor hará las compras de útiles y materiales en cantidades suficientes para mantener existencias adecuadas a las necesidades del Instituto, que conservará en estanterías numeradas debidamente clasificadas por grupos afines. Dichas existencias serán registradas en tarjetas archivadas alfabéticamente que mostrarán el número de unidades, mínimos y máximos y la colocación de las mismas en la estantería.
-Para el debido control de dichas existencias procederá a hacerse periódicamente por la Auditoría, un inventario físico de las existencias en bodega, por sistema de muestreo o pruebas selectivas, debiendo realizar un inventario total al menos una vez al año. Los resultados obtenidos de estos inventarios se cotejarán con los datos de las tarjetas del Departamento Financiero que deberán coincidir con la cuenta que figurará en los libros del Instituto con el titulo de "existencia en Proveeduría"

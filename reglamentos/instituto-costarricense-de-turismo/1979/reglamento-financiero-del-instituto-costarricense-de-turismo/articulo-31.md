@@ -1,1 +1,0 @@
-Artículo 31.—Con base en las solicitudes y una vez llenados todos los trámites correspondientes, el Proveedor expedirá las órdenes de compra las cuales deberán ser hechas a máquina, sin excepción alguna, en fórmulas debidamente numeradas que existirán al efecto.

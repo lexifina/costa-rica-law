@@ -1,3 +1,0 @@
-Articulo 15.—La adquisición de materiales o servicios quedará firme hasta el momento en que la orden de compra que emita la Proveeduría, o Servicios Generales según sea el caso, sufra todos los trámites y sea refrendada por la Auditoria de acuerdo a su reglamento.
-La compra de materiales para mantenerse en existencia, deberá de sufrir el trámite de cotización cualquiera que sea su monto dentro de los límites fijados por el artículo 12 y regirá por los trámites de licitaciones públicas o privadas, según el artículo 93 de la Ley de la Administración Financiera de la República.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Nº 3135 de 15 diciembre de 1980, publicada en La Gaceta N° 239 del 15 de diciembre de 1980)

@@ -1,2 +1,0 @@
-Artículo 118.—Para los efectos de este fondo, no se aplicarán los procedimientos estipulados en el Artículo 78 de este reglamento. La aprobación final de esas erogaciones estará a cargo del Director de Recreación, sin cuyo refrendo no se dará trámite a los reintegros correspondientes.
-(Así REFORMADO TOTAL Y EXPRESAMENTE mediante Sesión de Junta Directiva Nº 3304 celebrada el 18 de agosto de 1982, publicada en La Gaceta Nº 118 del 28 de setiembre de 1982.)

@@ -1,1 +1,0 @@
-Artículo 10.—Con excepción de los trámites de pagos de salarios a pagar a empleados y funcionarios, regulados por los capítulos XI y XII de este reglamento, todos los demás deberán canalizarse por medio de los trámites de "órdenes de compra-factura", inclusive aquellos que no afecten las partidas presupuestarias de gastos.

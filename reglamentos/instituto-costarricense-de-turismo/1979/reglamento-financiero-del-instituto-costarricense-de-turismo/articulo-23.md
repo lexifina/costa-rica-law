@@ -1,1 +1,0 @@
-Artículo 23.—Toda adjudicación de una licitación se hará a la persona física o jurídica que aparezca en la oferta correspondiente; ningún contrato, pedido u orden, ni interés alguno en los mismos podrá ser traspasado o cedido a terceros sin el consentimiento previo y expreso de la Auditoría.

@@ -1,1 +1,0 @@
-Artículo 46.—Los documentos referidos en los artículos precedentes deben ser enviados a la Contabilidad por la Proveeduría o Servicios Generales, según corresponda, para la numeración de la "orden de compra-factura" y la confección del cheque de pago.

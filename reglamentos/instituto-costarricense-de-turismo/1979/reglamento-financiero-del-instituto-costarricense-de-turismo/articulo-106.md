@@ -1,1 +1,0 @@
-Artículo 106.—Únicamente podrán tramitarse mediante estos fondos, los reintegros del impuesto del 5% sobre pasajes internacionales no utilizados en su totalidad, que no sobrepasen la suma de c300.00 (trescientos colones), en cada caso, con la aprobación de la Oficina de Ingresos.

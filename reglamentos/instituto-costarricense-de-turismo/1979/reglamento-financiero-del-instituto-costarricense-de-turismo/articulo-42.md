@@ -1,1 +1,0 @@
-Artículo 42.—Las Secciones de Proveeduría o Servicios Generales, según corresponda, entregará a los proveedores externos de materiales y servicios, el original de la "orden de compra-factura" que haya cumplido todos los trámites establecidos.

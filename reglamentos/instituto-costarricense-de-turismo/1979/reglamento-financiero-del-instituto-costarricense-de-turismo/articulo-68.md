@@ -1,3 +1,0 @@
-Artículo 68.—Los adelantos para gastos de viaje y transporte fuera del país se harán en moneda extranjera, de acuerdo a las regulaciones internas que al respecto dicte la Dirección Administrativa, debiendo practicarse su liquidación en la misma moneda en que se hizo el adelanto. Todos los gastos locales que estos viajes impliquen se liquidarán en moneda nacional.
-La Dirección Administrativa realizará los trámites pertinentes para aplicar esta modificación.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Ordinaria N° 3128 del 03 de noviembre de 1980, publicada en La Gaceta N° 229 del 28 de noviembre de 1980)

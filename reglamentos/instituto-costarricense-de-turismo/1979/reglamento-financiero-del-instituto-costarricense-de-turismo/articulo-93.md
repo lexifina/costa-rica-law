@@ -1,1 +1,0 @@
-Artículo 93.—Se exceptúa de este fondo, cuando las circunstancias lo ameriten, a criterio del Jefe Administrativo, la prohibición establecida en el inciso a) del artículo 77, inciso a). Tampoco se requerirá la autorización previa de la Oficina de Presupuesto.

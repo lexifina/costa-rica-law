@@ -1,2 +1,0 @@
-Artículo 82.—Es prohibido mantener o sustituir los fondos de caja chica por otros valores que no sean dinero efectivo nacional o justificantes. Estos últimos deberán estar amparados por comprobantes de caja, refrendados por el funcionario que aprobó la compra.
-La violación de esta disposición se considera como falta grave y se sancionará según lo estipula el artículo 33 del Reglamento de Trabajo de la Institución.

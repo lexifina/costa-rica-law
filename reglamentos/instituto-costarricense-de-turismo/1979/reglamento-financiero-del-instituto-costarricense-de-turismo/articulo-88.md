@@ -1,1 +1,0 @@
-Artículo 88.—No obstante lo establecido en el artículo 83, las liquidaciones de los pagos hechos con estos fondos, deberán hacerse semanalmente o cuando se hubiere agotado el cincuenta por ciento de los fondos. Estas liquidaciones deberán contar con la aprobación del Jefe del Departamento Financiero.

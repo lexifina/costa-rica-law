@@ -1,1 +1,0 @@
-Articulo 67.—No obstante lo establecido por los artículos 63 y 71, se podrá reconocer justificantes provenientes del uso de tarjetas de crédito, a criterio de la Dirección Superior que deba autorizar los gastos respectivos.

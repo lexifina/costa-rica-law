@@ -1,1 +1,0 @@
-Artículo 103.—Se exceptúa de este fondo la prohibición establecida por los artículos 77, inciso a) y 81, inciso a). Tampoco se requerirá la autorización previa de la Oficina de Control de Presupuesto para los pagos tramitados mediante este fondo.
