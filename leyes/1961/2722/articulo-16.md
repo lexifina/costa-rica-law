@@ -1,1 +1,0 @@
-Artículo 16.- Los almacenes fiscales serán solidariamente responsables del pago de los derechos de importación, resultantes de las diferencias de mercaderías en depósito que no se deban a causas tales como absorción de humedad, derrame o resecación, caso fortuito o fuerza mayor debidamente comprobados.

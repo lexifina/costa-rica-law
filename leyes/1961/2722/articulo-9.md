@@ -1,1 +1,0 @@
-Artículo 9º.- Los almacenes de depósito fiscal responden de la custodia, conservación y entrega de las mercaderías recibidas en depósito, con las únicas excepciones de caso fortuito, fuerza mayor y vicio propio de los efectos depositados.

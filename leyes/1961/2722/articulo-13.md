@@ -1,1 +1,0 @@
-Artículo 13.- La aduana cobrará al almacén fiscal correspondiente, los cargos que haya satisfecho o se adeuden por el costo de salarios de sus empleados, ocupados en el control y vigilancia de sus actividades.

@@ -1,2 +1,0 @@
-Artículo 14.- Es prohibida la compra o venta, dentro de los locales destinados a almacenes fiscales, de las mercaderías sujetas al régimen que establece esta ley.
-Al vencimiento de los plazos que se señalan para que las mercaderías permanezcan en depósito fiscal, se procederá a rematar las que no hayan satisfecho los impuestos aduaneros. Antes del vencimiento del plazo vigente, solamente podrán ser rematadas las mercaderías en los casos que indica el artículo 35 de la ley Nº 5 de 15 de octubre de 1934.

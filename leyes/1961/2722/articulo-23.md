@@ -1,1 +1,0 @@
-Artículo 23.- En todo aquello que no esté previsto en esta ley, se aplicarán los principios generales que rigen la materia, así como el Código Fiscal, las demás leyes relacionadas con asuntos aduaneros y lo dispuesto en la ley de Almacenes Generales de Depósito.

@@ -1,1 +1,0 @@
-Artículo 6º.- En todos aquellos casos en que la Contaduría Mayor o el administrador de aduana lo juzguen necesario, podrán mandar a reconocer los bultos de mercaderías depositadas, a su entrada, durante su permanencia en bodega, o a la salida de los almacenes fiscales.
