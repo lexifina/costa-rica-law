@@ -18,3 +18,4 @@ Reglamento Comisión Calificadora de Servicio Exterior.
 | 3 | 1990-08-17 | Decreto Ejecutivo 19902 (1990-08-17) |
 | 4 | 1994-06-01 | Decreto Ejecutivo 23419 (1994-06-01) |
 | 5 | 1996-08-23 | Decreto Ejecutivo 25450 (1996-08-23) |
+| 6 | 1998-09-14 | Decreto Ejecutivo 27365 (1998-09-14) |

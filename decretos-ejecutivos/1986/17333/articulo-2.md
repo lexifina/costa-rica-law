@@ -1,2 +1,1 @@
-Artículo 2°—El Ministro de Relaciones Exteriores y Culto, enviará carta protocolizada a los partidos políticos mencionados en el inciso d) del artículo 1° de este Reglamento solicitándoles la presentación de la terna con sus candidatos a la Comisión Calificadora, y dará a éstos un plazo de treinta días para que cumplan con ese requisito.
-Vencido el plazo de treinta días, sin que se haya recibido la respuesta, el Ministro, procederá libremente a escoger el miembro o miembros que deberían representar a los partidos políticos en la Comisión.
+Artículo 2°—(Derogado mediante el artículo 3° del decreto ejecutivo N° 27365 del 14 de setiembre de 1998).
