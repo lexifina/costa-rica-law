@@ -1,4 +1,2 @@
-Artículo 165.—EI despido se efectuaré, sin responsabilidad laboral para el IFAM, en los siguientes casos:
-a- Cuando el trabajador en tres ocasiones, se le imponga suspensión disciplinaria e incurra en causal para una cuarta suspensión dentro de un período de tres meses, ya que se considerará la repetición de infracciones como conducta irresponsable y contraria a las obligaciones del contrato o relación de trabajo.
-b- En los casos especialmente previstos en este Reglamento.
-c-Cuando el trabajador incurra en alguna de las causales previstas por el artículo 81 del Código de Trabajo-
+Artículo 165.— El presente Reglamento podrá ser reformado parcial o totalmente, siguiendo el mismo procedimiento utilizado para su aprobación, sea mediante acuerdo de la Junta Directiva del IFAM.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 172 al 165 actual).

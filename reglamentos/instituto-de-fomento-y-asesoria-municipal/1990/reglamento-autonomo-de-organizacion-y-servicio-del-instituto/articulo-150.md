@@ -1,2 +1,4 @@
-Artículo 150.—Se considera abandono del trabajo el hacer dejación de la jornada objeto del contrato o relación laboral.
-Para electos de calificar el abandono no es necesario que el trabajador salga del lugar donde presta sus servicios, sino bastará que de modo evidente y manifiesto abandone la labor o funciones que le han sido encomendadas.
+CAPITULO XX
+Del Régimen Disciplinario
+Artículo 150.—El Director Ejecutivo ejercerá el régimen disciplinario, en concurso con los Directores, Subdirectores Departamentales y Jefes de Sección, según sea la dependencia a la cual pertenezca el trabajador que incurra en falta que amerite sanción. La Sección de Personal tramitará lodo lo relacionado con la aplicación de tas disposiciones de este Capítulo.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 157 al 150 actual).

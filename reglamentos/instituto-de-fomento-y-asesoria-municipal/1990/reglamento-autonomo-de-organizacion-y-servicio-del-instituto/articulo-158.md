@@ -1,1 +1,5 @@
-Artículo 158. —Para el establecimiento de eventuales responsabilidades contra el servidor, el IFAM deberá obligatoriamente ordenar iniciar el procedimiento administrativo con el objeto de asegurar el respeto a la garantía del debido proceso y defensa previa que se señala en el libro segundo, título primero, del procedimiento administrativo, Artículos 214 y siguientes, de la Ley General de la Administración Publica,
+Artículo 158.—EI despido se efectuaré, sin responsabilidad laboral para el IFAM, en los siguientes casos:
+a- Cuando el trabajador en tres ocasiones, se le imponga suspensión disciplinaria e incurra en causal para una cuarta suspensión dentro de un período de tres meses, ya que se considerará la repetición de infracciones como conducta irresponsable y contraria a las obligaciones del contrato o relación de trabajo.
+b- En los casos especialmente previstos en este Reglamento.
+c-Cuando el trabajador incurra en alguna de las causales previstas por el artículo 81 del Código de Trabajo.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 165 al 158 actual).

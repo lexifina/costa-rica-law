@@ -1,1 +1,1 @@
-Artículo 35—La Sección de Personal verificará la validez y autenticidad de los documentos presentados por los aspirantes, investigará sus antecedentes sociales, su experiencia tabora! o cualquier otra circunstancia que sirva para ponderar su capacidad al puesto sometido a concurso.
+Artículo 35—La Sección de Personal verificará la validez y autenticidad de los documentos presentados por los aspirantes, investigará sus antecedentes sociales, su experiencia laboral o cualquier otra circunstancia que sirva para ponderar su capacidad al puesto sometido a concurso.

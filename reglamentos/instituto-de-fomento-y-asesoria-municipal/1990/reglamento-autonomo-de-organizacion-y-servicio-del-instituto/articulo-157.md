@@ -1,3 +1,2 @@
-CAPITULO XX
-Del Régimen Disciplinario
-Artículo 157.—El Director Ejecutivo ejercerá el régimen disciplinario, en concurso con los Directores, Subdirectores Departamentales y Jefes de Sección, según sea la dependencia a la cual pertenezca el trabajador que incurra en falta que amerite sanción. La Sección de Personal tramitará lodo lo relacionado con la aplicación de tas disposiciones de este Capítulo.
+Artículo 157.— La calificación de las faltas, como leves o graves, para efectos de su sanción y en los casos en que no esté específicamente indicado en este Reglamento, será a juicio de la Dirección Ejecutiva, tomando en consideración la opinión del Jefe inmediato y la trayectoria laboral del servidor a quien se debe sancionar.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 164 al 157 actual).

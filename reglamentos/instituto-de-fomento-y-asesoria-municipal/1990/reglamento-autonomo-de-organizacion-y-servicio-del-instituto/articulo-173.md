@@ -1,1 +1,0 @@
-Artículo 173.—Se derogan el Reglamento Interior de Trabajo del IFAM, aprobado por la Dirección de Asesoría Jurídica del Ministerio de Trabajo y Seguridad Social, a las 10 horas del diecisiete de agosto de mil novecientos setenta y tres y el Estatuto de Personal y sus Reformas del IFAM, aprobados por la Junta Directiva del IFAM.

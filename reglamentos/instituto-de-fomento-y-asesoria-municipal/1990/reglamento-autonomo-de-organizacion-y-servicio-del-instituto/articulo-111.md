@@ -1,2 +1,2 @@
-Artículo 111—El acuerdo formal de la Dirección Ejecutiva en el que concede una suma por concepto de zonaje, será objeto de una cláusula especial, en el respectivo contrato de trabajo o Acción de Personal,
-En la cláusula deberá consignarse que el trabajador acepta las normas establecidas en este capítulo. especialmente si fuere del caso suspender el zonaje, según el articulo 108 de este Reglamento y que también se responsabiliza a devolver, y autorizar que se le deduzcan de su salario tas sumas de dinero que por cualquier circunstancia haya percibido de más por tal concepto en forma ilegal.
+Artículo 111— Son causas de suspensión de la relación laboral las incapacidades motivadas por enfermedad comprobada, por riesgos del trabajo o por maternidad.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 118 al 111 actual).

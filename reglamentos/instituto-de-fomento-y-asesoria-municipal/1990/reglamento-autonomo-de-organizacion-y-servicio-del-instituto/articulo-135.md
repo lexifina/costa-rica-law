@@ -1,1 +1,2 @@
-Artículo 135. —Para cumplir lo señalado en el artículo anterior, se constituirá una Comisión de Salud Ocupacional, integrada con igual número de representantes del patrono y de los trabajadores y tendrá como finalidad investigar las causas de los riesgos del trabajo, determinar las medidas para prevenirlos y vigilar para que en el centro de trabajo se cumplan las disposiciones relativas a la salud ocupacional.
+Artículo 135. — Cuando se suspendiere a un funcionario por ausencias injustificadas, se le deberá rebajar, además de los días de suspensión, los días no laborados que motivaron tal sanción disciplinaria.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 142 al 135 actual).

@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio del Instituto de Fomento y Ases
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-12-20 | la propia norma |
+| 2 | 1994-01-05 | Reglamento 2359 (1994-01-05) |

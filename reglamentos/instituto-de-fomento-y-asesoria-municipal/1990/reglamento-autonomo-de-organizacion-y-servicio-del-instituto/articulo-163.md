@@ -1,1 +1,4 @@
-Artículo 163.—En casos de faltas de extrema gravedad, cometidas por servidores que manejen fondos o desempeñan funciones de responsabilidad, o en circunstancias en que se haga necesario salvaguardar el decoro de la Institución, se procederá a suspender a] servidor, hasta por el tiempo máximo permitido por este Reglamento para llevar a cabo las investigaciones necesarias y levantar las informaciones pertinentes-
+CAPITULO XXII
+Disposiciones finales
+Artículo 163.— El presente Reglamento Autónomo de servicio no perjudica los derechos jurídicamente adquiridos por los trabajadores del IFAM mediante laudos arbitrales vigentes en la Institución, Se presumirá del conocimiento de éstos y será de observancia obligatoria para lodos desde el día de su vigencia, inclusive para los que en el futuro laboren para el IFAM.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 170 al 163 actual).

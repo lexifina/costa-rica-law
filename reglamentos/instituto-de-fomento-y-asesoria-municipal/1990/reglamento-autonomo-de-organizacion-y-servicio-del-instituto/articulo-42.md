@@ -1,1 +1,1 @@
-Artículo 42.—Podrán participar en los concursos servidores del IFAM y particulares, pero a los primeros se les dará prioridad y preferencia cuando se trate de promociones internas para llenar cargos vacantes en la Institución,
+Artículo 42.—Podrán participar en los concursos servidores del IFAM y particulares, pero a los primeros se les dará prioridad y preferencia cuando se trate de promociones internas para llenar cargos vacantes en la Institución.

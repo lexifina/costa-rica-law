@@ -1,1 +1,3 @@
-Artículo 131.—En caso de que un trabajador que sufra un accidente del trabajo, no pudiere desempeñar el puesto que ocupaba antes de ocurrirle el accidente o se le haya diagnosticado la enfermedad, por prescripción médica, el IFAM estará obligado a reubicarlo a un nuevo puesto acorde con su capacidad física, motora y laboral, garantizando le todos sus derechos.
+Artículo 131.— El servidor que intención al mente marcase la tarjeta que no le corresponda, incurrirá en falta grave a sus obligaciones, haciéndose acreedor, la primera vez a suspensión disciplinaria hasta, por ocho horas y en el caso de reincidencia, despido sin responsabilidad patronal.
+La misma sanción se le aplicará al servidor que se le compruebe haber con sentido que otro le marcare la tarjeta de registro.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 138 al 131 actual).

@@ -1,4 +1,2 @@
-CAPITULO XVII
-Del régimen de asistencia y puntualidad
-Artículo 136.—El registro de asistencia se llevará por medio de tarjetas individuales que cada servidor deberá marcar, personalmente, mediante un reloj o sistema de control de asistencia al inicio y terminación de la jornada de trabajo.
-Quedan excluidos de tal obligación, aquellos servidores que expresamente exima la Dirección Ejecutiva. Caso de no existir reloj marcador, el jefe de la dependencia correspondiente dispondrá la forma en que se llevará el control de asistencia y puntualidad.
+Artículo 136.— Las ausencias al trabajo por enfermedad comprobada, que excedan de tres días, deberá justificarlas el servidor incapacitado mediante certificación médica extendida por la Caja Costarricense de Seguro Social o por el Instituto Nacional de Seguros; en casos muy calificados se aceptará la incapacidad o certificado médico extendido particularmente por un profesional en ciencias médicas, siempre y cuando la inasistencia al trabajo no exceda de tres días hábiles.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 143 al 136 actual).

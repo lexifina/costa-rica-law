@@ -1,5 +1,3 @@
-Artículo 116.—Los permisos por matrimonio, por duelo, por capacitación y por asistencia a seminarios, reuniones nacionales e internacionales, debidamente autorizados, lo serán con goce de salario y se regirán por las siguientes disposiciones:
-a- Matrimonio 10 días hábiles.
-b- Duelo por muerte de padres, hijos, cónyuges y hermanos 10 días hábiles.
-c- En caso de nacimiento de un hijo se concederán 3 días hábiles de permiso .
-d- Capacitación, asistencia a seminarios, cursos, reuniones nacionales o internacionales por el plazo que se determine en cada caso.
+Artículo 116.— El IFAM concederá permiso con goce de salario al trabajador que deba concurrir a los servicios médicos de la Caja Costarricense de Seguro Social, o del Instituto Nacional de Seguros, teniendo derecho a exigir la comprobación de tal asistencia por los medios que estime más convenientes. En este caso el trabajador que hiciere mal uso del permiso o que aprovechare el tiempo para realizar otras diligencias ajenas a su salud, se hará acreedor a las sanciones previstas en este Reglamento.
+Comete falta grave para efectos disciplinarios quien altere algún documento emanado de la Caja Costarricense de Seguro Social o del Instituto Nacional de Seguros.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 123 al 116 actual).

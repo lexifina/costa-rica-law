@@ -1,1 +1,5 @@
-Artículo 129. —Todo funcionario está en la ineludible obligación de dar aviso a la Sección de Personal o a cualquiera de los representantes patronales, de los riesgos del trabajo que le ocurriesen, dentro de los cinco (5) días hábiles siguientes contados a partir del día en que se suscitó tal hecho. El incumplimiento de esta obligación, puede acarrear la pérdida del derecho a reclamar ante el Instituto Nacional de Seguros el suministro de las prestaciones que le corresponde conforme a la Ley, por agravación o complicaciones sobrevenidas por falta de asistencia medica oportuna.
+CAPITULO XVII
+Del régimen de asistencia y puntualidad
+Artículo 129.—El registro de asistencia se llevará por medio de tarjetas individuales que cada servidor deberá marcar, personalmente, mediante un reloj o sistema de control de asistencia al inicio y terminación de la jornada de trabajo.
+Quedan excluidos de tal obligación, aquellos servidores que expresamente exima la Dirección Ejecutiva. Caso de no existir reloj marcador, el jefe de la dependencia correspondiente dispondrá la forma en que se llevará el control de asistencia y puntualidad.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 136 al 129 actual).

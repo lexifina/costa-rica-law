@@ -1,7 +1,2 @@
-Artículo 149.—Las llegadas tardías injustificadas, computadas, dentro de un mismo mes calendario, se sancionarán en la siguiente forma:
-- Hasta por cinco, amonestación verbal
-- Por seis, amonestación escrita,
-- Por siete, suspensión por dos días.
-- Por ocho, suspensión por una semana-
-- Por nueve, suspensión por quince días.
-- Por diez o más, despido sin responsabilidad patronal.
+Artículo 149.— Las solicitudes, peticiones, quejas o reclamos planteados por ios trabajadores siguiendo los procedimientos indicados en este Capítulo y cualquiera que sea el funcionario que las atienda, serán resueltas tomando en consideración los derechos adquiridos, la costumbre y usos locales, principios generales del derecho, reglas de la sana crítica, el interés de los trabajadores y la conveniencia social y en caso de duda se debe adoptar la decisión favorable al trabajador.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 156 al 149 actual).

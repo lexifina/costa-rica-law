@@ -1,1 +1,1 @@
-Artículo 13. —En cualquier momento, podrá ordenarse la remoción sin responsabilidad patronal del servidor, cuyo nombramiento fue producto de un fraude o de un error imputable a él. En estos casos se oirá de previo al interesado y posteriormente se dictará la resolución correspondiente-
+Artículo 13. —En cualquier momento, podrá ordenarse la remoción sin responsabilidad patronal del servidor, cuyo nombramiento fue producto de un fraude o de un error imputable a él. En estos casos se oirá de previo al interesado y posteriormente se dictará la resolución correspondiente.

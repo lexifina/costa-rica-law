@@ -1,5 +1,2 @@
-Artículo 159.—Las fallas en que incurran los trabajadores serán sancionadas con las siguientes medidas disciplinarias.
-a- Amonestación verbal,
-b- Apercibimiento escrito,
-c- Suspensión del trabajo sin goce de salario hasta por ocho días.
-ch- Despido sin responsabilidad patronal.
+Artículo 159.— Cuando se considere que la falta amerite el despido, se oirá de previo al servidor afectado y a los compañeros que éste indique y se levantará, además, información escrita por parte de la Sección de Personal o del Departamento Legal para formar un expediente y demás documentos relativos al caso. Este expediente servirá de base para formar la resolución que proceda y se conservará en los archivos de la Sección de Personal.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 166 al 159 actual).

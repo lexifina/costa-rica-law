@@ -1,1 +1,2 @@
-Artículo 119.—Para los casos protegidos por la Caja Costarricense de Seguro Social o por el Instituto Nacional de Seguros, el IFAM reconocerá el subsidio necesario para completar el sueldo completo del servidor, conforme a su antigüedad y en la forma prevista en el artículo siguiente:
+Artículo 119.— Los derechos y beneficios que el trabajador tiene en el Régimen de Invalidez, Vejez y Muerte, administrado por la Caja Costarricense de Seguro Social, están reguladas en la Ley Constitutiva y en los Reglamentos de esa Institución. Su otorgamiento y administración son responsabilidad exclusiva de la Caja.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 126 al 119 actual).

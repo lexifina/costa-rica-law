@@ -1,6 +1,2 @@
-Artículo 120.—EI servidor que fuere declarado incapacitado para trabajar. gozará del subsidio en proporción al tiempo servido conforme a las siguientes disposiciones:
-a- Por tres meses de labores se reconocerá quince días de subsidio.
-b- Por seis meses de labores se reconocerá un mes,
-c- Por nueve meses de labores se reconocerán dos meses-
-d- Por un año de labores se reconocerán tres meses.
-e- Después de dos anos de labores se reconocerán seis meses.
+Artículo 120.— Todo trabajador del IFAM. excepto los excluidos por la ley estarán protegidos por una póliza contra riesgos del trabajo, conforme a lo dispuesto en la Ley 6727 del 9 de marzo de 1982 y su Reglamento.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 127 al 120 actual).

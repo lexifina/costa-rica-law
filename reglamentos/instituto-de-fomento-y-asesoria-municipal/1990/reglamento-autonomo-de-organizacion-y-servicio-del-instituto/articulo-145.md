@@ -1,2 +1,2 @@
-Artículo 145.—No obstante lo expuesto en el artículo anterior, las ausencias y llegadas tardías y las justificaciones de omisiones de marcas al inicio y conclusión de labores deberán justificarse por escrito a más tardar dentro de los dos días hábiles siguientes a la fecha en que ocurrió el hecho,
-Posterior a ese lapso, no se aceptarán, sin excepción, ningún tipo de justificaciones, haciéndose acreedor el funcionario a las sanciones disciplinarias establecidas en este Reglamento para dichas faltas.
+Artículo 145.— Cuando el servidor haga abandono de sus labores o tareas sin causa justificada o sin permiso del patrono, o de sus representantes, por dos días alternos dentro del mismo mes calendario, incurrirá en causal de despido sin responsabilidad patronal.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 152 al 145 actual).

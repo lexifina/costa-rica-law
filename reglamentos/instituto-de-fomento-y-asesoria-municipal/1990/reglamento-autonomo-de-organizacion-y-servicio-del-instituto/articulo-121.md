@@ -1,1 +1,2 @@
-Artículo 121—La Caja Costarricense de Seguro Social reconoce un subsidio al trabajador incapacitado por enfermedad, después de los primeros tres días de incapacidad. El subsidio consiste en el sesenta por ciento del salario promedio que hubiere devengado el trabajador.
+Artículo 121— EI IFAM deberá dar aviso al Instituto Nacional de Seguros de cualquier riesgo del trabajo que le ocurra a sus trabajadores, dentro del término de ocho (8) días hábiles contados a partir del acaecimiento del infortunio, si el IFAM incumpliere esta obligación, correrá con las responsabilidades derivadas de los riesgos.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 128 al 121 actual).

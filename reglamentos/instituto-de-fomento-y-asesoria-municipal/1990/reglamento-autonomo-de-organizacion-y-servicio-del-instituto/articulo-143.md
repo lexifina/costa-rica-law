@@ -1,1 +1,3 @@
-Artículo 143.—Las ausencias al trabajo por enfermedad comprobada, que excedan de tres días, deberá justificarlas el servidor incapacitado mediante certificación médica extendida por la Caja Costarricense de Seguro Social o por el Instituto Nacional de Seguros; en casos muy calificados se aceptará la incapacidad o certificado médico extendido particularmente por un profesional en ciencias médicas, siempre y cuando la inasistencia al trabajo no exceda de tres días hábiles.
+Artículo 143.— Se considera abandono del trabajo el hacer dejación de la jornada objeto del contrato o relación laboral.
+Para electos de calificar el abandono no es necesario que el trabajador salga del lugar donde presta sus servicios, sino bastará que de modo evidente y manifiesto abandone la labor o funciones que le han sido encomendadas.
+(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 150 al 143 actual).
