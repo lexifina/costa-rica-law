@@ -1,0 +1,1 @@
+Artículo 7º—Toda modificación a la estructura orgánica deberá contar con la aprobación previa de MIDEPLAN, según lo dispone el artículo 13° del Reglamento General de dicho Ministerio, Decreto Ejecutivo N° 23323-PLAN y sus reformas.

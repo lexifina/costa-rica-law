@@ -1,0 +1,1 @@
+Artículo 20.—Los incisos b), d) y e) del artículo anterior de estos Procedimientos, también serán aplicables a los puestos de confianza de los Ministerios, contenidos en el inciso f) artículo 4° del Estatuto de Servicio Civil.

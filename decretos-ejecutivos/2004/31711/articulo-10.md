@@ -1,0 +1,3 @@
+Artículo 10.—En los casos de nombramiento de personal, se exigirá al candidato una declaración jurada, con el fin de verificar:
+a) Que no se ha acogido a la movilidad laboral del artículo 25º de la Ley Nº 6955 y sus reformas, o de haberlo hecho, que ha cumplido con el plazo establecido en la disposición legal que lo habilita para reingresar a la Administración Pública.
+b) Que no haya recibido pago de cesantía por cualquier otro concepto por parte del Estado, o si habiéndolo recibido dentro del lapso que comprende el tiempo reconocido, llegare a aceptar un cargo en el Estado, queda obligado a reintegrar las sumas percibidas por ese concepto, deduciendo aquellas que representen los salarios que habría devengando durante el termino que permaneciere cesante.
