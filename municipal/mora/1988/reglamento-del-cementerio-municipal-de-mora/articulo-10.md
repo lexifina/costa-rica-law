@@ -1,0 +1,1 @@
+Articulo 10.—Las exhumaciones ordinarias a solicitud de los interesados se realizarán en presencia del encargado del cementerio y por lo menos un pariente cercano de la persona fallecida, con pleno conocimiento y aprobación de la Junta del cementerio y con derecho de nombrar un representante.

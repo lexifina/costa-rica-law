@@ -1,0 +1,1 @@
+Artículo 12.—Se consideran exhumaciones ordinarias por interés de la Junta del cementerio, las que tienen lugar en nichos de alquiler, vencido el plazo del arrendamiento, y los demás nichos particulares o de sepultura habiendo transcurrido el tiempo legal, un pleno acuerdo de los parientes.

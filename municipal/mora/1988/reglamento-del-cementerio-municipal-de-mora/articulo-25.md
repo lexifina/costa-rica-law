@@ -1,0 +1,2 @@
+De las construcciones
+Artículo 25.—En ninguna parcela se permitirá la construcción de más de un nicho subterráneo y dos sobre la superficie. Por encima de nichos superficiales, solo se permitirá la construcción de osarios, cuyo diseño deberá ser previamente aprobado por la Junta. Las bóvedas solo podrán ser de diseño sencillo en forma de prisma rectangular y con una altura máxima de 1,50 m. sobre el suelo, terminada (dos subterráneos y cuatro de horizontales sobre la tierra que den a un mismo nivel.
