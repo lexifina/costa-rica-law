@@ -1,0 +1,1 @@
+Artículo 5°-Se tendrá por nula cualquier negociación iniciada o concluida sin la autorización a que se refiere este decreto y la Dirección de Financiamiento Externo del Ministerio de Hacienda no tramitará ninguna aprobación de crédito que no haya sido previamente autorizada.

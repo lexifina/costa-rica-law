@@ -1,0 +1,1 @@
+Artículo 3°-Las autorizaciones a que se refiere este decreto las extenderá el Ministerio de Planificación Nacional y Política Económica, solo cuando el proyecto a financiar esté acorde con las prioridades nacionales y con las posibilidades de endeudamiento externo del país y de la institución o empresa, en su caso.

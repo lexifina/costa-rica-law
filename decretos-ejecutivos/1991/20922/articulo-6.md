@@ -1,0 +1,2 @@
+Artículo 6°-Los funcionarios que resulten responsables de decisiones que contravengan las disposiciones anteriores, responderán personalmente y con sus propios bienes, de conformidad con lo dispuesto en el artículo 6° de la Ley de Administración Financiera de la República.
+Dado en la Presidencia de la República.-San José, a los diecinueve días del mes de noviembre de mil novecientos noventa y uno.

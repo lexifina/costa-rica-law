@@ -1,0 +1,1 @@
+Artículo 2°-El Ministerio de Planificación Nacional y Política Económica, previamente a extender la autorización, oirá el criterio de la Autoridad Presupuestaria y del Consejo Nacional de Financiamiento Externo.
