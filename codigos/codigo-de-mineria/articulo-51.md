@@ -1,9 +1,9 @@
 Artículo 51.- Los titulares de los permisos de explotación y los concesionarios de explotación estarán obligados a pagar los siguientes cánones e impuestos:
-a) Cánones de superficie:
-1) Permiso de exploración, trescientos colones por kilómetro cuadrado.
-2) Concesión de explotación, tres mil colones por kilómetro cuadrado.
-Este canon deberá pagarse en el Banco Central de Costa Rica, por anualidades adelantadas, y será aumentado cada dos años conforme con el índice implícito del producto interno bruto, calculado por este Banco. Las sumas serán giradas por el Banco Central a la Dirección de Geología, Minas e Hidrocarburos para el financiamiento de maquinaria y equipo de la misma.
-El primer pago se hará dentro del mes siguiente a la inscripción del título en el Registro Minero.
+a): Cánones de superficie
+1) Permiso de exploración minera, tres mil colones por kilómetro cuadrado.
+2) Concesión de explotación, treinta mil colones por kilómetro cuadrado.
+Este canon deber pagarse en el Banco Central de Costa Rica, por anualidades adelantadas, y ser aumentado cada dos daños conforme con el índice implícito del producto interno bruto, calculado por este banco. Las sumas ser n giradas por el Banco Central a la Dirección de Geología, Minas e Hidrocarburos, para el financiamiento de maquinaria, equipo de oficina y suministros varios, que garanticen el normal desenvolvimiento de las actividades de la Dirección.
+(Así reformado por el artículo 36 de la Ley N° 7111 de 12 de diciembre de 1988)
 b) Los impuestos de importación de mercadería no cubiertos por las exenciones indicadas en el artículo 56 de esta ley.
 c) Los derechos de registro, tasas por servicios públicos, patentes municipales, licencias, derechos de ruedo para vehículos, honorarios y tasas para cualquier otro servicio similar suministrado por el Estado, sus instituciones autónomas o semiautónomas y municipalidades, siempre que tales impuestos sean de aplicación general y siempre que no sean discriminatorios para el concesionario y para la actividad minera.
 ch) Sobre los minerales que se extraigan en concesiones de explotación, el dos por ciento de su valor comercial en Costa Rica, tomando en cuenta la riqueza del mineral, el precio y las clasificaciones de mercado que determinen la Dirección de Geología, Minas e Hidrocarburos y el Banco Central de Costa Rica.
