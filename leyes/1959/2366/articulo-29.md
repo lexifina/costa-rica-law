@@ -1,1 +1,0 @@
-Artículo 29.- Los miembros del Comité de Selección que incumplieren con lo especificado en el artículo 22, serán responsables por causa de cualquier acción judicial que se enderezare contra la Editorial por tal motivo.

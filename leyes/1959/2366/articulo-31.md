@@ -1,1 +1,0 @@
-Artículo 31.- El Administrador General será nombrado por el Consejo Directivo, durará en sus funciones un año pudiendo ser reelecto, y sus deberes y atribuciones se fijarán mediante el reglamento general de la Institución.

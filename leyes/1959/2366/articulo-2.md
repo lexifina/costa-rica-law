@@ -1,1 +1,2 @@
 Artículo 2º.- La Editorial tiene como fin principal el fomento de la cultura del país mediante la edición de obras literarias, artísticas y científicas de costarricenses y de extranjeros en casos de mérito especial.
+Sin perjuicio de su fin principal y cuando su situación financiera lo permita, la Editorial publicará las obras didácticas que por disposición oficial del Ministerio de Educación Pública, deban ser usadas en escuelas y colegios del Estado.
