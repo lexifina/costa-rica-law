@@ -14,3 +14,4 @@ Declara Emergencia Nacional Actividades Arroz Sorgo y Soya
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-05-12 | la propia norma |
+| 2 | 1986-05-12 | Decreto Ejecutivo 17766 (1987-08-28) |
