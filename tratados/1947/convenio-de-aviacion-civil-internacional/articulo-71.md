@@ -1,0 +1,2 @@
+Artículo 71
+A petición de un Estado contratante, el Consejo podrá acceder a proveer, dotar, mantener y administrar uno o todos los aeropuertos y demás instalaciones para facilitar la navegación aérea, inclusive servicios metereológicos y de radio, que se necesiten en el territorio del Estado para el funcionamiento seguro, regular, eficiente y económico de los servicios aéreos internacionales de los otros Estados contratantes y podrá imponer derechos justos y razonables por el uso de esas instalaciones.

@@ -1,0 +1,2 @@
+Articulo 74
+Cuando a petición de un Estado contratante, el Consejo, en su totalidad o en parte, adelante fondos o provea aeropuertos u otras instalaciones, el acuerdo podrá disponer, con el consentimiento del Estado, lo necesario para la prestación de ayuda técnica en la vigilancia y el funcionamiento de tales aeropuertos y demás instalaciones, para sufragar, con los ingresos que se deriven de la operación de los aeropuertos y demás instalaciones, los gastos de operación de los aeropuertos y otras instalaciones, así como los intereses y la amortización del capital.

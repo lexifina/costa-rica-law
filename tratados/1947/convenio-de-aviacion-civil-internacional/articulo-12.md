@@ -1,0 +1,2 @@
+Artículo 12
+Cada uno de los Estados contratante se compromete a tomar medidas para garantizar que tanto las aeronaves que vuelen sobre su territorio o maniobren dentro de él como las que lleven el distintivo de su nacionalidad observarán las leyes y reglamentos en vigencia sobre vuelos y maniobras de aeronaves. Cada uno de los Estados contratantes se compromete a conservar sus propios reglamentos hasta donde sea posible, en concordancia con los que en su oportunidad establezcan conforme a esta Convención, así como a perseguir a los infractores de los reglamentos en vigor.

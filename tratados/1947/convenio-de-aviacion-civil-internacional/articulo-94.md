@@ -1,0 +1,3 @@
+Artículo 94
+(a) Cualquier enmienda que se proponga para esta Convención deberá ser aprobada por las dos terceras partes del voto de la Asamblea y entrará en vigor respecto a los Estados que hayan ratificado la enmienda cuando la ratifique el número de Estados contratantes que especifique la Asamblea. El número así especificado no será menor de las dos terceras partes del total de los Estados contratantes.
+(b) Si en su opinión la enmienda es de tal naturaleza que justifique este procedimiento la Asamblea, en la resolución en que recomiende su adopción, podrá disponer que el Estado que no haya ratificado la enmienda dentro de un período de tiempo determinado después que ésta entre en vigor cesará inmediatamente de ser miembro del Organismo y parte de esta Convención.

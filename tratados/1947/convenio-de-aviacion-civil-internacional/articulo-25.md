@@ -1,0 +1,2 @@
+Artículo 25
+Los Estados contratantes se comprometen a proporcionar la ayuda que les sea posible a las aeronaves que se encuentren en peligro en su territorio y a permitir conforme a las regulaciones de sus propias autoridades, que los dueños o las autoridades del Estado en que estuvieren matriculadas proporcionen la ayuda que las circunstancias exijan. Todos los Estados contratantes, al emprender la búsqueda de aeronaves perdidas, colaborarán en las medidas coordinadas que en su oportunidad se recomienden de conformidad con ésta Convención.

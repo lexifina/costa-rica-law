@@ -1,0 +1,4 @@
+CAPITULO XVIII
+CONTROVERSIAS Y FALTA DL CUMPLIMIENTO
+Artículo 84
+Si surge entre dos o más Estados contratantes algún desacuerdo, respecto a la interpretación o aplicación de esta Convención y de sus anexos, que no pueda solucionarse mediante negociación, a petición de cualquier Estado afectado por el desacuerdo, la cuestión será decidida por el Consejo. Ningún miembro de éste podrá votar en las deliberaciones suyas cuando se trate de una controversia de la cual sea parte. Sujeto al artículo 85, un Estado contratante podrá apelar de la decisión del Consejo ante un tribunal de arbitraje ad hoc acordado con las otras partes en controversia o ante un Tribunal Permanente de Justicia Internacional. La apelación se notificará al Consejo en el término de 60 días después de recibirse la notificación de la decisión del Consejo.

@@ -1,0 +1,2 @@
+Artículo 86
+A menos que el Conseja resuelva lo contrario, sus decisiones acerca de si una línea aérea internacional funciona de acuerdo con las disposiciones de esta Convención, permanecerán en vigor a menos que las derogue una apelación. En cualquiera otra cuestión las decisiones del Consejo, si se apelare de ellas, permanecerán en suspenso hasta que no se falle acerca de la apelación. Las decisiones del Tribunal Permanente de Justicia Internacional o de un tribunal de arbitraje serán finales y obligatorias,

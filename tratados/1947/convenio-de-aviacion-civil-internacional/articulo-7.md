@@ -1,0 +1,2 @@
+Artículo 7
+Cada uno de los Estados contratantes tendrá derecho a negar a los aeronaves de los demás Estados contratantes, el permiso a tomar en su territorio, mediante remuneración o alquiler, pasajeros, correo o carga destinados a otro punto comprendido en su territorio. Cada uno de los Estados contratantes se compromete a no celebrar acuerdos que específicamente concedan tal privilegio con exclusividad a ningún otro Estado o a una línea aérea de cualquier otro Estado, y a no obtener de ningún otro Estado privilegio exclusivo de tal naturaleza.

@@ -1,0 +1,3 @@
+Artículo 39
+(a) Cualquier aeronave o parte de ella, acerca de la cual exista una norma internacional de navegabilidad o de funcionamiento que en algún respecto deje de satisfacer esa norma cuando se expida su certificado, llevará inscrita al dorso del de navegabilidad o agregada a éste la enumeración completa de los detalles en que difiera de dicha norma.
+(b) Si el tenedor de una licencia no satisface plenamente las condiciones requeridas por la norma internacional relativa a la clase de licencia o certificado que la persona posea, se inscribirá, en su licencia o se agregará a ésta la enumeración completa de los detalles en que deje de satisfacer tales condiciones.

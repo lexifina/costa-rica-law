@@ -1,0 +1,2 @@
+Artículo 59
+El Presidente del Consejo, el Secretario General y demás personal no solicitarán ni recibirán instrucciones de autoridad alguna fuera del Organismo en lo que toca al desempeño de sus funciones. Los Estados contratantes se comprometen plenamente a respetar el carácter internacional de las funciones de dicho personal y a no ejercer influencia alguna sobre sus nacionales en cuanto a la ejecución de sus funciones.

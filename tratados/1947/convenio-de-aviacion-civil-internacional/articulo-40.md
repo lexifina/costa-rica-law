@@ -1,0 +1,2 @@
+Artículo 40
+Ni las aeronaves ni el persona cuyo certificado o licencia haya sido anotado en tal forma, podrán participar en la navegación internacional salvo con permiso del Estado o Estados en cuyo territorio entren. La Matrícula ó uso de esas naves aéreas o de una pieza certificada de aeronave, en un Estado que no sea el que otorgó el certificado original, quedará a discreción del Estado que importe la aeronave o la pieza en cuestión.

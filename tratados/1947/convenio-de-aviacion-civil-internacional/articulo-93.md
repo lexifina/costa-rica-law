@@ -1,0 +1,2 @@
+Articulo 93
+Sujetos a la aprobación del organismo internacional general que establezcan las naciones del mundo para atender la paz, podrán ser admitidos a esta Convención otros Estados fuera de los previstos en los artículos 91 y 92(a), con la aprobación de cuatro quintas partes del voto de la Asamblea y en las condiciones que ésta señale; pero será necesario en cada caso que exprese su asentimiento cualquier Estado invadido o atacado durante la guerra actual por el Estado que solicita ingreso.
