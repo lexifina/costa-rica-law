@@ -1,0 +1,1 @@
+Artículo 5°—Los electores del nuevo distrito, excepto los que adjuntaron la solicitud correspondiente a la petición para crearlo, para poder ser inscritos en el mismo, deberán formular la correspondiente solicitud de traslado de domicilio en la fórmula dispuesta en el artículo 44 de la Ley Orgánica del Registro Civil.

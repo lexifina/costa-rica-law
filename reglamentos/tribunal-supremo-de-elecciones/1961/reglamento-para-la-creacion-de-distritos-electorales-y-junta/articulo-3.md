@@ -1,0 +1,1 @@
+Artículo 3°—Recibidos los anteriores informes y practicada cualquiera otra diligencia que el Tribunal juzgue conveniente para mejor resolver, se dictará la resolución que corresponda. Si el distrito fuere creado, el Registro dará curso a las solicitudes de traslado de domicilio que se indican en el artículo 1°, inciso d) anterior.

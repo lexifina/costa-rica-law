@@ -1,0 +1,1 @@
+Artículo 4°—El acuerdo del Tribunal en que se disponga la creación de un distrito electoral, además de su publicación en el Diario Oficial, se pondrá en conocimiento de todos los partidos políticos, de las autoridades políticas del lugar de que se trata y de ser posible, de los que solicitaron la creación del distrito,

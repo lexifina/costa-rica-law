@@ -1,0 +1,1 @@
+Artículo 7°—Las solicitudes para que las juntas receptoras de votos tengan su asiento en determinado sitio deberán presentarse al Registro Civil acatándose en lo pertinente lo dispuesto en el articulo 1°, incisos a) y d) de este reglamento.
