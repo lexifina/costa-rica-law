@@ -1,0 +1,4 @@
+CAPITULO 7
+Presentación de datos
+1.—Toda Parte pertinente proporcionará a la Secretaría, dentro, de los tres meses siguientes a la fecha en que se haya constituido en parte, datos estadísticos sobre su producción, importaciones y exportaciones de sustancias controladas correspondientes a 1986 o las estimaciones más fidedignas posibles de dichos datos, cuando no se disponga de ellos.
+2.—Toda Parte proporcionará a la Secretaría datos estadísticos de su producción (con datos desglosados de las cantidades destruidas mediante tecnologías aprobadas por las Partes), exportaciones e importaciones anuales de tales sustancias corre dientes al año en que se constituya en parte, así como también respecto a cada de los años siguientes. A más tardar, notificará los datos nueve meses a partir del año a que se refieran.

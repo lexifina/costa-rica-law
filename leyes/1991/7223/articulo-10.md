@@ -1,0 +1,5 @@
+ARTICULO 10
+Asistencia técnica
+1.—Las Partes cooperarán, conforme a lo previsto en el artículo 4 del Convenio de Viena, en la promoción de asistencia técnica orientada a facilitar la participación en este Protocolo y su aplicación, teniendo especialmente en cuenta las necesidades de los países en desarrollo.
+2.—Toda Parte en este Protocolo o Signatario de él podrá formular solicitudes de asistencia técnica a la Secretaría, a efectos de aplicar el Protocolo o participar en él.
+3.—En su primera reunión, las Partes iniciarán las deliberaciones sobre medios para cumplir las obligaciones enunciadas en el artículo 9 y en los párrafos 1 y 2 del presente artículo, incluida la elaboración de planes de trabajo. En dichos planes de trabajo se prestará particular atención a las necesidades y circunstancias de los países en desarrollo. Se alentará a los Estados y a las organizaciones de integración económica regional que no sean Parte en el Protocolo a participar en las actividades especificadas en dichos planes.
