@@ -1,0 +1,1 @@
+Artículo 4º. Las mezclas de gases que no se encuentren en este decreto, deberán regirse por lo establecido en las Normas de la Compressed Gas Association de los Estados Unidos de Norteamérica, cuyas siglas son "CGA", utilizadas en este decreto.
