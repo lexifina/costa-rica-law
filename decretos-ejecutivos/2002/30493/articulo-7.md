@@ -1,0 +1,1 @@
+Artículo 7º—La Secretaría Técnica. La Coordinación del Área social de gobierno contará con un órgano ejecutivo denominado Secretaría Técnica. Dicho órgano estará a cargo de un Secretario Técnico nombrado por el Ministro coordinador del Área Social.

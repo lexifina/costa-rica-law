@@ -1,0 +1,1 @@
+Artículo 4º—Aprobación de la política social integral. El Ministro coordinador del Área Social presentará al Consejo de Gobierno la política social integral para su aprobación. El Presidente de la República adoptará las acciones que correspondan para hacer efectiva tal política.
