@@ -1,5 +1,9 @@
-Artículo 228.- No podrá venderse, donarse, darse en arrendamiento o
-comodato, una aeronave costarricense para ser trasladada al extranjero,
-sin la autorización previa, de la Dirección General de Aviación Civil.
-La autorización debe precisar la finalidad a que se destinará la
-aeronave y el lugar donde efectuará sus operaciones.
+Artículo 228.- Las empresas y personas físicas a que alude el
+artículo anterior ya sean costarricenses o extranjeras, no podrán vender
+o traspasar los artículos importados libres de impuestos, aunque hayan
+sido usados, a personas que no gocen de igual franquicia, sin ser
+satisfechos los derechos exigidos de acuerdo con el Ministerio de
+Hacienda.
+NOTA: Original 223: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

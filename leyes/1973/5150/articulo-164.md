@@ -1,4 +1,9 @@
-Artículo 164.- Cuando el lugar de partida y el lugar de destino
-están situados dentro del territorio nacional, el transporte no perderá
-su carácter local por el hecho de que la aeronave, a causa de fuerza
-mayor, tenga que efectuar un aterrizaje en territorio extranjero.
+Artículo 164.- Al ejercer el Consejo Técnico de Aviación Civil sus facultades respecto a la fijación y aplicación de tarifas para el transporte aéreo, tomará en consideración, entre otros, los siguientes factores:
+a) El interés público de garantizar al transporte su ejecución adecuada, eficiente y con la máxima protección de seguridad posible para las personas y las mercancías.
+b) La obtención del menor costo del servicio compatible con las ventajas y condiciones inherentes al mismo.
+c) Sus efectos en el volumen de tráfico.
+d) La índole y calidad del servicio que se suministre.
+e) El margen de utilidad que debe reconocerse a las empresas, tomando en cuenta una administración honrada, económica y eficiente.
+f) Las diferencias de capacidad económica de las empresas que prestan el servicio internacional, pudiendo aprobar tarifas con una diferencia hasta del 20% entre las tarifas propuestas por compañía subdesarrollada y las plenamente desarrolladas económicamente y estableciendo un 20% más a las tarifas de todo transporte que se realice en aeronaves de retropropulsión.
+NOTA: Original 159: corrida su numeración a la actual de conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-
+(La Procuraduría General de la República mediante pronunciamiento N° C-029-1999, del 02 de febrero de 1999, derogo tácitamente este artículo, de acuerdo a lo previsto por el artículo 12 del Acuerdo de Transporte Aéreo entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos de Norteamérica, Ley No. 7857 “en lo que respecta a la fijación de las tarifas del transporte aéreo por parte del Consejo Técnico de Aviación Civil…para el caso de los servicios aéreos prestados por líneas de nacionalidad costarricense hacia suelo norteamericano o de líneas norteamericanas hacia suelo costarricense… por lo que las tarifas relativas al transporte aéreo comercial de esas nacionalidades, podrían ser, tan sólo, notificadas a la autoridad aeronáutica respectiva, si así ésta lo requiere.”)

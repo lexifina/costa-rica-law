@@ -1,5 +1,7 @@
-Artículo 274.- El operador de cualquier aeronave civil que vuele
-sobre territorio costarricense, sea la aeronave nacional o extranjera,
-deberá estar asegurado con respecto a su responsabilidad por daños a
-terceros en la superficie hasta el límite que corresponda según sea el
-peso de la aeronave, de conformidad con lo dispuesto en el artículo 272.
+Artículo 274.- La responsabilidad por daños a terceros podrá ser
+eliminada o disminuida cuando la persona ofendida los hubiere causado o
+contribuido a causarlos.
+( Así reformado por el artículo 1º de la ley Nº 5437 de 17 de
+diciembre de 1973).
+NOTA: Original 269: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

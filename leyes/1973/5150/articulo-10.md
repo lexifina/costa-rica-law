@@ -1,48 +1,16 @@
 Artículo 10.- Son atribuciones del Consejo Técnico de Aviación Civil:
-I. El otorgamiento, prórroga, suspensión, caducidad, revocación,
-modificación o cancelación de certificados de explotación o
-permisos provisionales para servicios de transporte aéreo, de
-aviación agrícola, de talleres de mantenimiento de aeronaves,
-fábricas de piezas o partes para las mismas, de escuelas para la
-enseñanza aeronáutica, sus diferentes ramas y para cualquier
-actividad lucrativa que el Poder Ejecutivo juzgue necesario que
-debe contar con la posesión de un certificado de explotación o
-permiso provisional.
-II. El otorgamiento, prórroga, suspensión, caducidad, revocación,
-modificación o cancelación de permisos o concesiones para el
-funcionamiento de aeródromos, aeropuertos, servicios de despacho
-aéreo, comunicaciones aeronáuticas, radio ayudas para la
-navegación aérea y demás instalaciones aeronáuticas y servicios
-auxiliares de la aeronavegación.
-III. Opinar sobre la concertación, adhesión, ratificación de tratados,
-convenciones o convenios internacionales sobre Aviación Civil en
-que tenga interés el Estado.
-IV. Conocer y resolver sobre las tarifas relativas al transporte de
-pasajeros, carga y correspondencia que las empresas de transporte
-aéreo aplican, ya sean local o internacional, así como las
-concernientes a trabajos de aviación agrícola o de cualquiera otra
-actividad relacionada con la aviación civil.
-V. Establecer, modificar y cancelar rutas aéreas en el territorio
-nacional.
-VI. Vigilar el buen cumplimiento de las obligaciones contraídas por el
-Gobierno con motivo de tratados, convenciones o convenios
-internacionales sobre aviación civil.
-VII. Proponer al Poder Ejecutivo la promulgación, mediante decreto, de
-cualquier reglamento, norma o procedimiento técnico aeronáutico
-aprobado por la Organización de Aviación Civil Internacional.
-VIII. Proponer ternas al Poder Ejecutivo para la integración de las
-delegaciones que deban representar a Costa Rica en Conferencias
-internacionales de aviación civil.
-IX. Estudiar, determinar y aplicar las tarifas que mediante decreto
-estableciere el Poder Ejecutivo, por la prestación de servicios
-aeroportuarios, facilidades de navegación aérea, radio
-comunicaciones y cualesquiera otros servicios auxiliares de la
-misma, así como también por derechos de expedición de licencias al
-personal técnico aeronáutico, certificados de explotación,
-certificados de aeronavegabilidad.
-X. Nombrar cuando sea del caso hacerlo, una comisión de investigación
-de accidentes, de conformidad con el reglamento que se expida.
-XI. Estudiar y resolver cualesquiera otros problemas que se relacionen
-con la aviación civil.
-XII. Como organismo técnico le corresponde toda la supervisión de la
-actividad aeronáutica del país.
+I.- El otorgamiento, prórroga, suspensión, caducidad, revocación, modificación o cancelación de certificados de explotación o permisos provisionales para servicios de transporte aéreo, de aviación agrícola, de talleres de mantenimiento de aeronaves, fábricas de piezas o partes de las mismas, de escuelas para la enseñanza aeronáutica, sus diferentes ramas y para cualquier actividad lucrativa que el Poder Ejecutivo juzgue necesario que debe contar con la posesión de un certificado de explotación o permiso provisional.
+II.- El otorgamiento, prórroga, suspensión, caducidad, revocación, modificación o cancelación de permisos o concesiones para el funcionamiento de aeródromos, aeropuertos, servicios de despacho aéreo, comunicaciones aeronáuticas, radio ayudas para la navegación aérea y demás instalaciones aeronáuticas y servicios auxiliares de la aeronavegación.
+III.- Opinar sobre la concertación, adhesión, ratificación de tratados, convenciones o convenios internacionales sobre aviación civil en que tenga interés el Estado.
+IV.- Conocer y resolver sobre las tarifas relativas al transporte de pasajeros, carga y correspondencia que las empresas de transporte aéreo aplican, ya sean nacionales o internacionales, así como las concernientes a trabajos de aviación agrícola o de cualquier otra actividad relacionada con la aviación civil.
+(La Procuraduría General de la República mediante pronunciamiento N° C-029-1999, del 02 de febrero de 1999, considera que el inciso anterior es inaplicable para el caso de líneas aéreas estadounidenses, de acuerdo con lo previsto por el artículo 12 del Acuerdo de Transporte Aéreo entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos de Norteamérica, ley No. 7857 de 22 de diciembre de 1998, "en lo que respecta a la fijación de las tarifas del transporte aéreo por parte del Consejo Técnico de Aviación Civil para el caso de los servicios aéreos prestados por líneas de nacionalidad costarricense hacia suelo norteamericano o de líneas norteamericanas hacia suelo costarricense. Por lo que las tarifas relativas al transporte aéreo comercial de esas nacionalidades, podrían ser, tan sólo, notificadas a la autoridad aeronáutica respectiva, si así ésta lo requiere.")
+V.- Establecer, modificar y cancelar rutas aéreas en el territorio nacional.
+VI.- Vigilar el buen cumplimiento de las obligaciones contraídas por el gobierno con motivo de tratados, convenciones o convenios internacionales sobre aviación civil.
+VII.- Proponer al Poder Ejecutivo la promulgación, mediante decreto, de cualquier reglamento, norma o procedimiento técnico aeronáutico aprobado por la Organización de Aviación Civil Internacional.
+VIII.- Proponer ternas al Poder Ejecutivo para la integración de las delegaciones que deban representar a Costa Rica en conferencias internacionales de aviación civil.
+IX.- Estudiar, determinar y aplicar las tarifas que mediante decreto estableciere el Poder Ejecutivo, por la prestación de servicios aeroportuarios, facilidades de navegación aérea, radio comunicaciones y cualesquiera otros servicios auxiliares de la misma, así como también por derechos de expedición de licencias al personal técnico aeronáutico, certificados de explotación, certificado de aeronavegabilidad.
+X.- Nombrar, cuando sea del caso, una comisión de investigación de accidentes, de conformidad con el reglamento que se expida.
+XI.- Estudiar y resolver cualesquiera otros problemas que se relacionen con la aviación civil.
+XII.- Como organismo técnico le corresponde toda la supervisión de la actividad aeronáutica del país.
+XIII.- El otorgamiento, prórroga, suspensión, caducidad, revocación, modificación o cancelación de permisos para la construcción y el funcionamiento de aeródromos particulares, en los cuales únicamente podrán aterrizar aeronaves nacionales, debidamente inscritas en el Registro Aeronáutico Costarricense. Los aeródromos particulares sólo podrán ser usados para aviación agrícola particular.
+(Así reformado por el artículo 1º de la Ley Nº 6021 de 15 de diciembre de 1976)

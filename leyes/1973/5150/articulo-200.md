@@ -1,10 +1,20 @@
-Artículo 200.- La carta de porte aéreo hace fe, salvo prueba en
-contrario, de la celebración del contrato, de la recepción de la
-mercancía y de las condiciones del transporte.
-Las indicaciones de la carta de porte aéreo relativas al peso,
-dimensiones y empaque de la mercancía, así como el número de bultos, se
-presumen ciertas, salvo prueba en contrario; las que se refieren a la
-cantidad, volumen y estado de la mercancía no constituirán prueba contra
-el porteador más que en caso de verificación efectuada por él en
-presencia del cargador y hecho constar en la carta de porte aéreo o que
-se trate de manifestaciones relativas al estado aparente de la mercancía.
+Artículo 200.- La expedición de la carta de porte se sujetará a las
+reglas siguientes:
+a) Se extenderá por el cargador en tres ejemplares originales y se
+entregará con la mercancía.
+b) El primer ejemplar llevará la indicación para el porteador y
+estará firmado por el cargador. El segundo ejemplar llevará las
+indicaciones para el consignatario; estará firmado por el
+cargador y el porteador y acompañará a la mercancía. El tercer
+ejemplar estará firmado por el porteador y será entregado por el
+cargador después de aceptada la mercancía.
+c) La firma del porteador deberá estamparse desde el momento de la
+aceptación de la mercancía y podrá reemplazarse por un sello.
+d) La firma del cargador podrá ser impresa o reemplazada por un
+sello.
+e) Si, a petición del cargador, el porteador extendiera la carta de
+porte aéreo, se considerará, salvo prueba en contrario, que actúa
+por cuenta del cargador.
+NOTA: Original 195: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

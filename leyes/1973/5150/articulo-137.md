@@ -1,6 +1,6 @@
-Artículo 137.- Cuando ocurrire un accidente en territorio nacional,
-se considerarán suspendidas, ejecutivamente, las licencias de los pilotos
-de la aeronave accidentada, por el término que juzgue conveniente la
-Dirección General de Aviación Civil. Es entendido que tratándose de
-pilotos con licencia extranjera, la suspensión se limitará a las
-operaciones en el territorio nacional.
+Artículo 137.- La Dirección General de Aviación Civil, creará, en
+los lugares que estime conveniente, centros auxiliares de búsqueda y
+salvamento.
+NOTA: Original 132: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

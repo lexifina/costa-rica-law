@@ -1,84 +1,19 @@
-Artículo 13.- Son atribuciones de la Dirección General de Aviación
-Civil:
-I. Velar por el estricto cumplimiento de esta ley y sus reglamentos,
-así como de los tratados, convenios o convenciones
-internacionales sobre aviación civil que el Estado suscriba y
-ratifique constitucionalmente.
-II. Otorgar, refrendar, revalidar, convalidar, suspender
-temporalmente o cancelar licencias y certificados de aptitud del
-personal técnico areonáutico y llevar el registro correspondiente
-de tales licencias y certificados.
-III. Llevar los registros nacionales de matrícula y de
-aeronavegabilidad de las aeronaves y otorgar las copias y
-certificados legales.
-IV. Otorgar, refrendar, revalidar, suspender y cancelar matrículas y
-certificados de aeronavegabilidad de las areonaves nacionales.
-V. Supervisar la construcción de aeródromos y aeropuertos, sean
-públicos o particulares, fijando sus condiciones técnicas de
-funcionamiento
-VI. Fiscalizar los aeródromos y aeropuertos nacionales o particulares
-y administrar mediante la creación del organismo correspondiente
-los primeros.
-VII. Autorizar las construcciones, instalaciones y plantaciones en las
-zonas de servidumbre aeronáuticas.
-VIII. Otorgar permisos para vuelos en tránsito o vuelos especiales de
-aeronaves civiles extranjeras que ingresen al territorio nacional
-o vuelen dentro de él.
-IX. Autorizar vuelos especiales de aeronaves civiles costarricenses
-al extranjero, en aquellos casos en que, de conformidad con esta
-ley o sus reglamentos, sea necesario recabar autorización.
-X. Autorizar las construcciones de hangares, talleres, oficinas o
-instalaciones dentro de los aeródromos y aeropuertos, fijando sus
-condiciones de acuerdo con los planos reguladores y las
-disposiciones reglamentarias respectivas;
-XI. Fomentar el desarrollo de la aviación civil, facilitar el
-establecimiento de clubes aéreos, servicios aernáuticos, talleres
-de mantenimiento y supervisar las actividades técnicas de las
-mismas.
-XII. Fiscalizar los planes de estudio y funcionamiento de los
-establecimientos civiles de enseñanza aeronáutica.
-XIII. Fomentar y apoyar el adiestramiento y la capacitación de técnicos
-costarricenses en todas las ramas de la aeronáutica. Con este
-fin, otorgará becas de adiestramiento y se propondrán candidatos
-idóneos al Poder Ejecutivo, para el aprovechamiento de becas
-ofrecidas por organismos internacionales o por gobiernos
-extranjeros, para el mejor adiestramiento del personal técnico
-aeronáutico.
-XIV. Examinar, calificar la documentación, disponer la inspección y
-prueba de aeronaves civiles, motores, instrumentos y accesorios.
-XV. Investigar los accidentes aéreos que ocurran en el país,
-aplicando las sanciones administrativas, e informar al Consejo
-Técnico de Aviación Civil, con el fin de establecer sus causas.
-XVI. Resolver sobre los permisos que se soliciten, para llevar a cabo
-trabajos aéreos de acuerdo con los reglamentos establecidos.
-XVII. Velar por la seguridad de la navegación aérea y del transporte
-aéreo, para lo cual prescribirá y revisará periódicamente;
-a) Regulaciones de tránsito aéreo concerniente a:
-1) Navegación aérea.
-2) Identificación de las aeronaves civiles.
-3) Régimen de vuelo de las aeronaves, incluyendo las
-altitudes de vuelo y cruzamiento, mínimos meteorológicos,
-reglas para vuelo visual e instrumentos y todo lo relacionado
-con el control de tránsito aéreo dentro del territorio
-nacional.
-b) Requisitos relativos al otorgamiento, revalidación,
-convalidación, suspensión o cancelación de licencias al
-personal técnico aeronáutico, así como lo concerniente al
-máximo de horas o períodos de trabajo de los aeronautas.
-c) Disposiciones reglamentarias y normas mínimas que rijan en
-relación con:
-1) Empleo de materiales, uso de mano de obra, inspección,
-reparación, servicio, mantenimiento, funcionamiento de
-aeronaves, motores, hélices, turbinas y partes o piezas
-vitales.
-2) Equipo y facilidades que se necesiten para lo indicado en
-el inciso anterior.
-3) Término y sistema para hacer las tareas de inspección,
-mantenimiento y reparación.
-d) Normas y procedimientos aplicables al tránsito de aeronaves,
-en rutas aéreas, aeropuertos y aeródromos del país.
-e) Normas y procedimientos aplicables a los servicios auxiliares
-de la navegación aérea comprendiendo telecomunicaciones,
-radionavegación, meteorología aeronáutica, señalamiento de
-rutas y aeródromos, aerovías, así como los trabajos de
-búsqueda y salvamento.
+Artículo 13.- En resguardo de las atribuciones que le confiere
+esta Ley, el Consejo Técnico de Aviación Civil procederá a cancelar los
+certificados de explotación mencionados en el artículo 10, en el tanto
+que medie alguna de las siguientes causales:
+1.- Cuando se incumplan las condiciones que fueron impuestas al
+concederse el certificado de explotación o cuando se hubieran
+desvirtuado las finalidades o cometidos que le dieron origen.
+2.- Cuando la empresa concesionaria incurra en conductas
+abiertamente contrarias a la presente Ley, a los reglamentos que
+sobre la materia haya adoptado el Poder Ejecutivo y a los
+Convenios Internacionales vigentes.
+3.- Cuando se incurra, propicie, oculte o facilite la comisión de
+algún hecho ilícito o de actividades que atenten contra el orden
+e interés públicos o contra la seguridad ciudadana.
+4.- Cuando la prestación del servicio sea totalmente ineficiente o
+se incumpla con los requisitos exigidos al momento de otorgarse
+la concesión.
+( Así adicionado por el artículo 1º de la ley Nº 7251 de 13 de
+agosto de 1991).

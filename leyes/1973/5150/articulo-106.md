@@ -1,7 +1,7 @@
-Artículo 106.- Los propietarios y operadores de aeronaves del
-servicio aéreo particular no podrán en ningún caso efectuar vuelos o
-servicios aéreos de transporte público. Sin embargo, las aeronaves del
-servicio aéreo particular podrán ser arrendadas a compañías aéreas con
-certificado de explotación, para ser operadas en el servicio aéreo de
-transporte público, previamente autorizados por el Consejo Técnico de
-Aviación Civil.
+Artículo 106.- La autorización del equipo y personal de vuelo que
+participe en dichos servicios y operaciones, se llevará a cabo de
+conformidad con el reglamento que al efecto expida el Consejo Técnico de
+Aviación Civil, por medio del Ministerio de Obras Públicas y Transportes.
+NOTA: Original 101: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

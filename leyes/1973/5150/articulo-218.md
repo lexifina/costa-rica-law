@@ -1,10 +1,13 @@
-Artículo 218.- El arrendamiento de aeronaves podrá hacerse para uno
-o más viajes; por kilómetros a recorrer, o por tiempo determinado,
-limitándose la obligación del arrendador a hacer entrega de la aeronave
-en el tiempo y lugar convenido, provista de la documentación necesaria
-para el vuelo.
-En el arrendamiento el arrendador no necesitará equipar la aeronave,
-pero la deberá mantener en condiciones normales de uso hasta el fin del
-contrato, cesando esta obligación en caso de culpa del arrendador; éste
-no tendrá a la tripulación bajo su dirección y dependencia, quedando a
-cargo del arrendatario la conducción técnica de la propia aeronave.
+CAPITULO III
+Del Fletamento y Arrendamiento
+Artículo 218.- El fletamento es un contrato por el cual el fletante,
+mediante remuneración, cede a otra persona, el fletador, el uso de la
+capacidad total o parcial de una aeronave determinada, para un viaje o
+serie de viajes, para un número de kilómetros a recorrer, o para un
+cierto tiempo, reservándose la dirección y autoridad sobre la tripulación
+y la conducción técnica de la misma aeronave. Los derechos y obligaciones
+derivados del fletamento no podrán cederse, total o parcialmente, si tal
+facultad no fuere expresamente convenida.
+NOTA: Original 213: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

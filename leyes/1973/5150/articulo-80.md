@@ -1,5 +1,5 @@
-Artículo 80.- A los propietarios u operadores de aeronaves
-extranjeras que visiten el país con fines turísticos, la Dirección
-General de Aviación Civil les concederá un permiso especial de operación
-de sus aeronaves, por el término que el funcionario competente de
-migración haya autorizado su permanencia en el país.
+Artículo 80.- El comandante de una aeronave que vuele sobre
+territorio costarricense, está obligado a aterrizar en él, cuando se lo
+ordene la Dirección General de Aviación Civil.
+NOTA: Original 75: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

@@ -1,15 +1,7 @@
-SECCION III
-De la Responsabilidad por Daños y Perjuicios a Pasajeros
-por Retraso en el Transporte Aéreo
-Artículo 262.- El porteador estará obligado a indemnizar por los
-daños y perjuicios sufridos por un pasajero como consecuencia de retraso
-en el transporte, si el retraso tuviere lugar dentro del período
-transcurrido desde el momento en que debió haber comenzado el vuelo de
-acuerdo con lo previsto en el contrato de transporte, hasta el momento en
-que termina el viaje.
-Cualquier retraso o desviación de la ruta convenida entre las partes
-o de la ordinaria para el viaje en cuestión, que se deba a razones
-fundadas en la protección de la vida humana, a motivos de seguridad o
-condiciones meteorológicas adversas, no se considerará como infracción
-del contrato de transporte, ni implicará responsabilidad alguna para la
-empresa.
+Artículo 262.- Toda cláusula que tienda a exonerar de
+responsabilidad a la empresa o a fijar límites inferiores a los
+establecidos por esta ley, será nula de pleno derecho, pero la nulidad de
+esta cláusula no acarrea la del contrato de transporte que quedará sujeto
+a las disposiciones de la presente ley.
+NOTA: Original 257: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

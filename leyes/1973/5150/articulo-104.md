@@ -1,3 +1,3 @@
-Artículo 104.- Todo servicio aéreo no comprendido o definido por
-esta ley deberá ser previamente autorizado por el Consejo Técnico de
-Aviación Civil.
+Artículo 104.- Los fletes y las tarifas para la prestación de los servicios aéreos de transporte no regular serán fijados por la empresa y aprobados previamente por el Consejo Técnico de Aviación Civil, conjuntamente con las tarifas para los servicios aéreos regulares.
+NOTA: Original 99: corrida su numeración a la actual de conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-
+(La Procuraduría General de la República mediante pronunciamiento N° C-029-1999, del 02 de febrero de 1999, derogo tácitamente este artículo, de acuerdo a lo previsto por el artículo 12 del Acuerdo de Transporte Aéreo entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos de Norteamérica, Ley No. 7857 “en lo que respecta a la fijación de las tarifas del transporte aéreo por parte del Consejo Técnico de Aviación Civil…para el caso de los servicios aéreos prestados por líneas de nacionalidad costarricense hacia suelo norteamericano o de líneas norteamericanas hacia suelo costarricense… por lo que las tarifas relativas al transporte aéreo comercial de esas nacionalidades, podrían ser, tan sólo, notificadas a la autoridad aeronáutica respectiva, si así ésta lo requiere.”)

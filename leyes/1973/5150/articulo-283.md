@@ -1,5 +1,5 @@
-Artículo 283.- La responsabilidad prevista en los artículos 281 y
-282 se aplicará también a los daños y perjuicios sufridos después de
-terminarse los respectivos períodos de transporte especificado en dichos
-artículos. Si tales daños fueren el resultado directo de un hecho
-ocurrido durante uno de tales períodos.
+Artículo 283.- En caso de daños causados a terceros en la
+superficie, por abordaje de dos o más aeronaves, los operadores de éstas
+responderán solidariamente.
+NOTA: Original 278: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

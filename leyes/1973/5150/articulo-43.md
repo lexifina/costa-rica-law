@@ -1,6 +1,5 @@
-Artículo 43.- El Poder Ejecutivo, por medio del Ministerio de Obras
-Públicas y Transportes reglamentará a propuesta de la Dirección General
-de Aviación Civil, la forma y contenido del certificado de
-aeronavegabilidad, en las aeronaves de las distintas clasificaciones, así
-como los motivos o causas determinantes de la suspensión o cancelación de
-dicho certificado.
+Artículo 43.- Las aeronaves civiles, matriculadas en Costa Rica,
+perderán la nacionalidad por cancelación de su inscripción en el Registro
+Aeronáutico Costarricense.
+NOTA: Original 38: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

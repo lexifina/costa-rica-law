@@ -1,10 +1,7 @@
-Artículo 63.- En las empresas nacionales, sólo personal técnico
-costarricense podrá ejercer las actividades aeronáuticas remuneradas.
-El noventa y cinco por ciento del personal de tierra de las
-compañías extranjeras internacionales estacionado en el país debe ser
-costarricense. No se podrá dar a empleados extranjeros de esas compañías
-prerrogativas o posiciones que se les niegue a los nacionales de igual
-preparación; así que, cualquier ventaja económica o de otra índole que
-sea otorgada a empleados extranjeros en su contrato de trabajo, quedará
-automáticamente otorgada a los empleados nacionales que desempeñen o que
-estén capacitados para desempeñar, las mismas posiciones que aquéllos.
+Artículo 63.- La tripulación comprende todo el personal que presta
+servicios a bordo de la aeronave. Son miembros de la tripulación el
+comandante de la aeronave o piloto al mando de ellas, los pilotos,
+copilotos, navegantes, mecánicos, radioperadores, aeromozos y auxiliares
+de a bordo.
+NOTA: Original 58: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

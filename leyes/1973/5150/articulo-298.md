@@ -1,10 +1,9 @@
-TITULO SETIMO
-Disposiciones Finales
-CAPITULO UNICO
-Artículo 298.- Los miembros del Consejo Técnico de Aviación Civil no
-podrán intervenir en las resoluciones de un asunto en que tengan algún
-interés ellos o sus parientes inmediatos hasta segundo grado de
-consanguinidad o afinidad. Todos los actos y disposiciones del Consejo
-Técnico, para que tengan validez, se harán constar en resoluciones y sus
-procedimientos son del dominio público, excepto que, para casos de
-defensa nacional, se acuerde sus secreto durante el tiempo necesario.
+Artículo 298.- Se impondrá multa de cinco salarios mínimos a los
+propietarios o poseedores de aeródromos, helipuertos o propiedades
+ubicadas en sus cercanías, por impedir el tránsito, la circulación o el
+acceso de funcionarios y autoridades debidamente acreditados y en
+funciones propias del cargo.
+(Así reformado por el artículo 1º, inciso n), de la ley No.7864 de 22
+de febrero de 1999)
+(NOTA: Original 293: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991)

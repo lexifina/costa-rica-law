@@ -1,6 +1,5 @@
-Artículo 50.- En aeronaves de transporte público no podrán viajar
-personas bajo los efecto de licor intoxicante o de estupefacientes; se
-exceptúa de esta disposición a los enfermos bajo control médico y en caso
-de emergencia muy calificada.
-El transporte de cadáveres y enfermos contagiosos o mentales sólo
-podrá efectuarse ajustándose a la reglamentación respectiva.
+Artículo 50.- Las aeronaves civiles no podrán utilizarse para otra
+finalidad que no sea aquella para las cuales se les ha expedido el
+certificado de aeronavegabilidad u autorización correspondiente.
+NOTA: Original 45: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

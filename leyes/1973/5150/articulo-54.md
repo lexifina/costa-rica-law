@@ -1,10 +1,5 @@
-SECCION V
-Del Mantenimiento de la Aeronave
-Artículo 54.- Las compañías de aerotransporte y demás entidades y
-personas que operen equipo de aviación en actividades civiles, deberán
-efectuar la inspección, mantenimiento y reparación de su equipo, de
-acuerdo con los reglamentos aéreos y las disposiciones de la Dirección
-General de Aviación Civil dadas en concordancia con esta ley. Las
-personas que se ocupen de operar, mantener, inspeccionar y reparar equipo
-de Aviación Civil, deberán cumplir con los requisitos pertinentes de los
-reglamentos y demás derivaciones de esta ley.
+Artículo 54.- Se prohibe el transporte aéreo internacional de todos
+los artículos que, según los tratados y convenios vigentes o de acuerdo
+con las leyes nacionales, no sean de libre tráfico.
+NOTA: Original 49: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

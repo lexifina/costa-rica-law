@@ -1,11 +1,8 @@
-CAPITULO IV
-De las Rebajas y Franquicias
-Artículo 220.- Las empresas aéreas que operan con certificado de
-explotación otorgada por la autoridad aeronáutica costarricense, están
-obligadas a transportar en sus rutas, gratuitamente, a los delegados de
-esa autoridad que se trasladen en funciones de su cargo.
-Los embarques de equipo y materiales propiedad de la Dirección
-General de Aviación Civil tendrán un 100% de descuento en las rutas
-domésticas y un 50% de descuento en las rutas internacionales, respecto a
-la tarifa ordinaria de carga establecida y autorizada a la compañía aérea
-que haga el transporte.
+Artículo 220.- Recaerán sobre el fletante todas las
+responsabilidades a que se refiere esta ley, relacionados con el contrato
+de transporte.
+( Así reformado por el artículo 1º de la ley Nº 5437 de 17 de
+diciembre de 1973).
+NOTA: Original 215: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

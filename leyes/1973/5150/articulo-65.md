@@ -1,7 +1,5 @@
-Artículo 65.- El comandante es responsable de la dirección, cuidado,
-orden y seguridad de la aeronave, tripulación, pasajeros, equipaje, la
-carga y correo transportados. Esta responsabilidad comienza tan pronto
-se hace cargo de la aeronave para iniciar el vuelo y cesa al final de
-éste, cuando el representante de la empresa o cualquier autoridad
-competente toma a su cargo la aeronave, pasajeros, carga, equipaje y
-correo.
+Artículo 65.- Los aeromozos y auxiliares de a bordo son los
+tripulantes que atienden, no a la marcha del vuelo mismo, sino a los
+pasajeros, demás tripulantes, carga o equipaje.
+NOTA: Original 60: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

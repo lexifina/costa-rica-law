@@ -1,6 +1,12 @@
-Artículo 136.- La correspondencia transportada por una aeronave que
-haya sufrido un accidente o efectuado un aterrizaje forzoso, será
-recogida por el comandante de la aeronave, por otro miembro de la
-tripulación, o en defecto de ambas, por persona responsable. En este
-caso la correspondencia será entregada a un empleado del servicio
-postal, a la mayor brevedad.
+Artículo 136.- Los inspectores de la Dirección General de Aviación
+Civil tienen la obligación de acudir a inspeccionar personalmente la
+aeronave accidentada, tomando las medidas pertinentes de acuerdo con lo
+establecido por esta ley o sus reglamentos.
+El inspector o persona a cargo de la investigación de un accidente
+está facultado por la presente ley, para citar e interrogar bajo
+juramento, a cualquier persona que estime conveniente, así como para
+retener libros, documentos, evidencias y cualquiera otro elemento que
+considere necesario para la investigación.
+NOTA: Original 131: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

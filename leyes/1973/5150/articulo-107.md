@@ -1,7 +1,6 @@
-Artículo 107.- Antes de iniciar sus operaciones, toda persona física
-o jurídica que haya sido autorizada por el Consejo Técnico de Aviación
-Civil, para realizar un servicio aéreo distinto, conforme a las
-estipulaciones del artículo 104 precedente, deberá garantizar, ante la
-Dirección General de Aviación Civil, el pago de las responsabilidades en
-que pueda incurrir por daños causados a terceros en la superficie y a
-tripulantes, mediante los seguros correspondientes.
+Artículo 107.- Toda persona física o jurídica que utilice aeronaves
+destinadas a la aviación agrícola responderá por los daños que cause a
+las personas o bienes de terceros en la superficie.
+NOTA: Original 102: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

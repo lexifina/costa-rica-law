@@ -1,6 +1,8 @@
-Artículo 55.- Es deber de los inspectores y mecánicos licenciados
-notificar al dueño de una aeronave todo defecto que encuentren en la
-misma, sus motores o utensilios, cuando aquél constituya causa de
-inseguridad.
-La aeronave objeto del reporte, no podrá ser volada hasta que el daño
-se haya reparado satisfactoriamente.
+Artículo 55.- En aeronaves de transporte público no podrán viajar
+personas bajo los efecto de licor intoxicante o de estupefacientes; se
+exceptúa de esta disposición a los enfermos bajo control médico y en caso
+de emergencia muy calificada.
+El transporte de cadáveres y enfermos contagiosos o mentales sólo
+podrá efectuarse ajustándose a la reglamentación respectiva.
+NOTA: Original 50: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-
