@@ -1,1 +1,0 @@
-Artículo 4°-Se prohíbe la libre venta de productos arsenicales de uso agrícolas. Únicamente se permitirá su venta bajo receta expendida por un miembro del Colegio de Ingenieros Agrónomos de Costa Rica.

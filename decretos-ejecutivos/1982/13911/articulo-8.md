@@ -1,1 +1,0 @@
-Artículo 8°-El miembro del Colegio de Ingenieros Agrónomos que emita alguna receta para el uso de productos arsenicales en café deberá cerciorarse, fehacientemente, que los agricultores sean propietarios o arrendatarios de plantaciones de café.

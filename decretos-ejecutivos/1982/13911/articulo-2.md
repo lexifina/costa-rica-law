@@ -1,1 +1,0 @@
-Artículo 2°-El empleo de productos arsenicales en agricultura sólo se permite en el cultivo del café, para el combate de Ojo de Gallo (Mycena citricolor), la enfermedad rosada (Corticium salmonicolor) y el moho de hilachas (Pellicularia Koleroga),.

@@ -1,1 +1,0 @@
-Artículo 6°-Para evitar la fitotoxidad y acumulación del arsénico en las plantas y en granos de café, la aplicación de productos arsenicales, debe acompañarse con algún fertilizante foliar que contenga zinc.

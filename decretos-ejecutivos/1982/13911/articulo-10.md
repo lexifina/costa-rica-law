@@ -1,1 +1,0 @@
-Artículo 10-Las violaciones a las disposiciones establecidas en este decreto serán sancionadas con las penas señaladas en la Ley de Sanidad Vegetal, Ley General de Salud, reglamentos y otras leyes conexas vigentes.
