@@ -1,0 +1,1 @@
+Art 6°.- El vestido de uniforme será generalmente asul y las vueltas en la Infantería amarillas, en la Artillería celeste, y en la Caballería verdes, y la graduación de cada uno se distinguirán por la misma divisa vigente.
