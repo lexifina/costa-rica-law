@@ -1,0 +1,1 @@
+Artículo 36.—Queda autorizado el Colegio de Periodistas de Costa Rica para adquirir préstamos del Sistema Bancario Nacional y demás instituciones del Estado hasta por la suma de dos millones de colones, para la compra de un terreno v construcción de una planta física para el Colegio.

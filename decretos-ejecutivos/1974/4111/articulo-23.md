@@ -1,0 +1,1 @@
+Artículo 23.—El Colegio de Periodistas de Costa Rica abrirá una cuenta bancaria especial en la que se depositarán únicamente las rentas obtenidas por concepto de la recaudación del producto del timbre.

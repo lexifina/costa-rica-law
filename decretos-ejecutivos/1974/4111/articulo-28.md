@@ -1,0 +1,1 @@
+Artículo 28.—Para efectos del fiel cumplimiento de la ley de este reglamento, queda autorizado el Colegio de Periodistas de Costa Rica, para compulsar el cumplimiento de la declaración jurada mensual a que están sujetos las personas obligadas.

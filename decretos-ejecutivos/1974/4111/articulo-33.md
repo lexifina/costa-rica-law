@@ -1,0 +1,1 @@
+Artículo 33.—Las instituciones de enseñanza superior a que se refiere el artículo anterior deberán presentar sus proyectos y programas concretos a la Junta Directiva del Colegio de Periodistas de Costa Rica para su aprobación.

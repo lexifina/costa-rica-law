@@ -1,0 +1,1 @@
+Artículo 18.—El Banco Central se encargará de tramitar la licitación correspondiente para la confección de los timbres. Queda autorizada esta institución para resellar timbres fiscales de las denominaciones establecidas por el artículo anterior, mientras se confeccionen definitivamente los timbres.

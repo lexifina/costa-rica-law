@@ -1,0 +1,1 @@
+Artículo 9°—Los medios informativos y noticiosos de radio y televisión . están obligados a facturar por aparte toda la publicidad, avisos y propaganda que transmitan en sus programas informativos y noticiosos. Si omitieren hacerlo, serán sancionados con una multa equivalente a quince veces el monto de los timbres que correspondan a la facturación no reportada.

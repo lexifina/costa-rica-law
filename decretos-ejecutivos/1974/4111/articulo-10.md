@@ -1,0 +1,1 @@
+Artículo 10.—Para efectos de control del importe del timbre las personas físicas o jurídicas obligadas a su pago, incluirán en la factura original y sus copias una razón del importe del timbre pagado.

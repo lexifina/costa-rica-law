@@ -1,0 +1,1 @@
+Articulo 6°—Pagado y cancelado el timbre servirá la factura o recibo de pago como documento probatorio del pago del servicio publicitario prestado. La factura o recibo de pago que no tenga adherido el timbre será nulo y en consecuencia perderá su carácter probatorio de pago.

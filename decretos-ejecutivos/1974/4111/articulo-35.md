@@ -1,0 +1,1 @@
+Artículo 35.—El Sindicato Nacional de Periodistas presentará sus programas y proyectos concretos para su aprobación ante la Junta Directiva del Colegio de Periodistas de Costa Rica. En caso de aprobación los programas y proyectos deberán figurar en el presupuesto anual de gastos del Colegio de Periodistas de Costa Rica.

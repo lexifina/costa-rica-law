@@ -1,0 +1,1 @@
+Artículo 17.—Los timbres los venderá directamente a los obligados el Banco Central, en denominaciones de cinco, diez, veinticinco y cincuenta céntimos y de uno, dos, cinco, diez, veinte, cincuenta y cien colones.

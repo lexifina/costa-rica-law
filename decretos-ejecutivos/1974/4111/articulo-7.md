@@ -1,0 +1,1 @@
+Artículo 7°—Los medios informativos a los cuales deben cancelarse las facturas o recibos de pago afectos al timbre, están obligados a vender al interesado en recibir el servicio publicitario, el respectivo timbre en el momento de emitir la factura o recibo de pago así como adherirlo y cancelarlo.

@@ -1,0 +1,1 @@
+Artículo 8°—Si el medio informativo o noticioso que presta el servicio publicitario obligado a lo que prescribe la ley, omitiere la obligación de adherir y cancelar el timbre respectivo en las facturas o recibos de pago, le será impuesta una multa equivalente a diez veces el valor de los timbres que se dejaron de cobrar.

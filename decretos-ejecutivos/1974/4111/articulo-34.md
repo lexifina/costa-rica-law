@@ -1,0 +1,1 @@
+Artículo 34.—El Colegio de Periodistas de Costa Rica queda facultado para destinar hasta un diez por ciento de los ingresos netos anuales que se recauden con el producto del timbre, para programas y proyectos concretos que presente el Sindicato Nacional de Periodistas, conforme al artículo 1°, inciso b), de la Ley Orgánica del Colegio de Periodistas de Costa Rica.,

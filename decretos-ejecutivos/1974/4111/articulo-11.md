@@ -1,0 +1,1 @@
+Artículo 11.—La omisión de pago del timbre que toda persona física o jurídica obligada por la ley y el presente reglamento cometiere, será sancionada con una multa equivalente a veinte veces el valor del gravamen que dejaron de pagar.

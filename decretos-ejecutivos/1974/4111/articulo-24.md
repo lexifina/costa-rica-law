@@ -1,0 +1,1 @@
+Artículo 24.—Los cheques que se extiendan sobre la cuenta bancaria especial a que se refiere el artículo anterior, deberán ser firmados por el Presidente del Colegio de Periodistas de Costa Rica y su Tesorero.
