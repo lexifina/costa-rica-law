@@ -14,3 +14,4 @@ Reglamento del Consejo Nacional de Salarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-07-09 | la propia norma |
+| 2 | 1980-07-09 | SINALEVI (sin norma nombrada) |
