@@ -1,5 +1,1 @@
-ARTICULO 5.- Apoyo institucional y jurídico
-Para desarrollar y aplicar los principios generales de esta ley, el
-sistema contará con los organismos institucionales y gubernamentales;
-también con las competencias que otras leyes asignen a las demás
-instituciones del Estado.
+Artículo 5.- Apoyo institucional y jurídico. Para desarrollar y aplicar los principios generales de esta ley, el sistema contará con los organismos institucionales y gubernamentales; también con las competencias que otras leyes asignen a las demás instituciones del Estado.

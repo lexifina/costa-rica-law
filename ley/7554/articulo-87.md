@@ -1,5 +1,1 @@
-ARTICULO 87.- Recursos
-Cabrá recurso de revocatoria contra los acuerdos firmes de la
-Secretaría Técnica Nacional Ambiental y de apelación ante el Ministro del
-Ambiente y Energía, de conformidad con lo establecido por la Ley General
-de la Administración Pública.
+Artículo 87.- Recursos. Cabrá recurso de revocatoria contra los acuerdos firmes de la Secretaría Técnica Nacional Ambiental y de apelación ante el Ministro del Ambiente y Energía, de conformidad con lo establecido por la Ley General de la Administración Pública.

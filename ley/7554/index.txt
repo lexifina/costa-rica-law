@@ -117,6 +117,5 @@ articulo-116.md
 articulo-117.md
 articulo-118.md
 articulo-1-transitorio.md
-articulo-2-transitorio.md
 articulo-3-transitorio.md
 articulo-4-transitorio.md
