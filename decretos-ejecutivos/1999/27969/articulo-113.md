@@ -1,2 +1,4 @@
-Artículo 113.—Los directores y jefes inmediatos están obligados a reportar al Ministro las faltas cometidas por sus subalternos, cuando ameriten despido. Dicho reporte deberá efectuarse dentro de los tres días hábiles posteriores a aquel en que se cometió la falta o en que se conocieron los hechos correspondientes.
-El incumplimiento injustificado de esta obligación se reputará falta grave por parte del servidor que debió ejecutarla.
+Artículo 113.—Los directores y jefes inmediatos están obligados a reportar al Ministro las faltas cometidas por sus subalternos, cuando ameriten despido. Igualmente, previo a su aplicación, deberán reportar al Ministro las sanciones que pretendan aplicar a sus subalternos, cuando se trate de faltas cometidas contra la hacienda, el patrimonio y los fondos públicos, en el entendido que dichas sanciones serán inválidas y no surtirán ningún efecto si no cuentan con el aval previo del Ministro.
+Dichos reportes se deberán efectuar dentro de los tres días hábiles posteriores a aquel en que se cometió la falta o en que se conocieron los hechos correspondientes.
+El incumplimiento de las anteriores obligaciones se reputará falta grave por parte del jefe o director que debió ejecutarlas.
+(Así reformado por el artículo 1 del decreto ejecutivo N° 30864 de 19 de noviembre del 2002)
