@@ -1,0 +1,1 @@
+Art 11.-Que en ninguno de ellos pueda venderse antes de amanecer, ni pasadas las nueve de la noche, en cuya hora deben cerrarse, bajo la multa de veinte pesos al dueño de puesto que de cualquier modo traspase este artículo, aplicable por mitad á la Hacienda Pública y al denunciante.

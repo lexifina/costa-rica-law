@@ -1,0 +1,1 @@
+Art 20.-Los vecinos de un pueblo y los transeúntes, pueden comprarlo en los asientos de otro cualesquiera, que tengan á bien para su gasto, llevando guía ó constancia cuando exceda de una botella, del asentista si no hubiese de pasar por la Garita del rio- Grande, o del Contador si ha de pasar: de contrario será decomisado.

@@ -1,0 +1,1 @@
+Art. 2°.-Habrá estanquillos de este licor en todos los pueblos del Estado donde haya Municipalidad, y postores para ellos con la siguiente proporción: en esta ciudad nueve: en la de Cartago ocho: en la de Heredia siete: en la de Alajuela seis: en el Mineral de Aguacate dos: y en los demás lugares uno ó más, á arbitrio de la Intendencia.

@@ -1,0 +1,1 @@
+Art 13.-Que en la puerta de la pieza destinada á la venta y en la respectiva fábrica proveedora, se ponga una inscripción que diga en la primera: Venta de aguardiente de N. con permiso; y en la segunda. Fábrica de N. para proveer á N. con permiso, las cuales estarán firmadas por el Ministro Contador.

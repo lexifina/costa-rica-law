@@ -1,0 +1,1 @@
+Art 4°.- Los remates deberán celebrarse por la Intendencia de esta capital, y precisamente por el término de un año, pasado el cual han de revalidarse, prefiriendo los rematarios anteriores en igualdad de circunstancias, y en ellas hará de Fiscal el Administrador del ramo.

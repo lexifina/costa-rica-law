@@ -1,0 +1,1 @@
+Art.15.-Los rematarios deben dar cuenta de los lugares de sus ventas ó fábricas al Ministro Contador y éste aprobarlas si fuesen conformes á lo que va prevenido, y anotarlas en un libro que á este efecto debe llevar con expresión del asentista á quien pertenece.

@@ -1,0 +1,1 @@
+Art 18.-El pago de los productos de los asientos se hará todos los días últimos de cada mes en la Tesorería general, excepto el partido de Nicoya, cuando los rematarios sean vecinos de allí, que se hará por cuatrimestres; más unos y otros, si no lo hicieren al día señalado, incurrirán en la pena de cuatro reales más cada día distinto que sean reconvenidos.

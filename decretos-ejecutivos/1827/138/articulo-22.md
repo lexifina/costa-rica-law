@@ -1,0 +1,1 @@
+Art 22.-El dueño de fábrica ó venta clandestina incurrirá por cada vez, sin necesidad de aprehensión real, sino justificándose legalmente, en la multa de cincuenta pesos aplicados por mitad á la Hacienda Pública, y al denunciante, siendo afectos al pago de esta pena, la fábrica, hacienda y utensilios aunque sean de otro dueño.

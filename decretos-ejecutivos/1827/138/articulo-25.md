@@ -1,0 +1,1 @@
+Art 25.-Las justicias perseguirán por denuncio o de oficio las fábricas clandestinas, y harán efectiva la pena del art. anterior en terminación verbal, teniendo por parte á un asentista, dando cuenta á la Contaduría con certificado de la terminación á costa del condenado

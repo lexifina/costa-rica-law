@@ -1,0 +1,1 @@
+Art. 16.-El mismo Ministro formará listas luego que se vea quienes son los asentistas en el año siguiente en cada lugar, y denominados en ellas, y el lugar de sus asientos y el de sus fábricas proveedoras, remitirá la correspondiente á la respectiva Municipalidad.

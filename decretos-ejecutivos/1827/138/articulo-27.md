@@ -1,0 +1,1 @@
+Art 27.-La ebriedad en ningún caso podrá alegarse como defensa para cualquiera especie de delitos, aun cuando éstos no pasen de injurias verbales, y la portación de armas en aquel estado será cualidad agravante para los mismos.

@@ -1,0 +1,1 @@
+Art 26.-La embriaguez por las calles será castigada con multa hasta de veinticinco pesos para los propios, ó trabajos públicos de un mes, según la capacidad de sujeto, también en terminación verbal; pero si fuese habitual, aunque sea en lugar privado, se pondrá en curatela al vicioso y sus bienes hasta que compruebe y afiance su enmienda, previa instrucción de sumaria.
