@@ -25,6 +25,8 @@ c) Haber sido desplazado de esta actividad a partir del mes de
 octubre de 1995.
 d) Encontrarse desempleado o demostrar que ha enfrentado una disminución en sus ingresos y que se han modificado desfavorablemente las condiciones de trabajo en el periodo comprendido del 1 o de octubre de 1995 al 30 de octubre de 1996.
 Asimismo, los grupos de mujeres de pequeña iniciativa empresarial, conformado al menos en un 40% de esposas o hijas (no menores de 17 años ni mayores de 23 años) de los trabajadores estibadores en los muelles.
+También podrán ser beneficiarios del incentivo económico por una sola vez, los trabajadores administrativos de las empresas afectadas por los procesos de apertura de los muelles Limón-Moín, que cumplan además con los requisitos de nacionalidad, antigüedad laboral, desplazamiento a partir de octubre de 1995 y situación de desempleo, de acuerdo con los listados oficiales ya levantados al efecto.
+(Así adicionado el párrafo anterior mediante el artículo 1° del decreto ejecutivo N° 27559 del 22 de diciembre de 1998).
 Reformar el punto 6 del artículo 2, cuyo texto dirá:
 6. Todas aquellas personas que cumplan con los requisitos establecidos en el punto anterior tienen plazo hasta el día 20 de julio de 1997 para inscribirse como beneficiarios del Plan.
 Adicionar al artículo 2, el siguiente punto 7:

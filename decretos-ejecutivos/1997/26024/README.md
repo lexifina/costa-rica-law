@@ -14,3 +14,4 @@ Reforma decreto que Insta a las Juntas Directivas de la Junta Administrativa Por
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-12-13 | la propia norma |
+| 2 | 1998-12-22 | Decreto Ejecutivo 27559 (1998-12-22) |
