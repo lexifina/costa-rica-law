@@ -1,0 +1,1 @@
+Artículo 10.—El custodio será responsable de los fondos de la Caja Chica, y asumirá de su propio peculio cualquier faltante que se produjere. Asimismo, será responsable, en forma solidaria, con el o los empleados autorizados que corresponda, del trámite de cualquier vale provisional o definitivo que no se ajuste a las disposiciones del presente Reglamento.

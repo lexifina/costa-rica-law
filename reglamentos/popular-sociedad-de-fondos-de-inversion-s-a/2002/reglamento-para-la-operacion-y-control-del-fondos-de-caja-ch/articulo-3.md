@@ -1,0 +1,7 @@
+Artículo 3º—Para los efectos del presente Reglamento, se entiende por:
+Caja chica: Fondos indicados en el artículo 3 de éste Reglamento, para la compra de bienes y/o servicios, de conformidad con los parámetros detallados en el presente Reglamento.
+Custodio: Empleado permanente de Popular Sociedad de Fondos de Inversión, S. A., designado por el Gerente de Popular, SAFI; para que además de las funciones propias de su cargo, opere la Caja Chica.
+Corresponde a este funcionario, la responsabilidad de vigilar por la salida, uso y recuperación de los recursos administrados bajo el presente reglamento.
+Corresponde estrictamente al custodio la tramitación de los vales debidamente autorizados. En ningún momento podrá este funcionario autorizar los mismos.
+Empleados autorizados: Empleados permanentes de Popular SAFI, S. A., que designe el Gerente de la misma, para autorizar el uso de fondos de la Caja Chica, destinados a la compra de bienes y/o servicios, de conformidad con los parámetros que más adelante se indicarán. La designación de estos funcionarios se hará en razón de las funciones que estos llevan a cabo dentro de Popular SAFI, S. A. y que consecuentemente requieran para el desempeño de las mismas del acceso a los recursos administrados bajo este reglamento.
+Sociedad de Fondos de Inversión: Popular Sociedad Administradora de Fondos de Inversión, S. A. denominada en el presente reglamento como "Popular SAFI": Entidad constituida al amparo de lo que dispone el artículo 55 de la Ley Reguladora del Mercado de Valores.

@@ -1,0 +1,1 @@
+Artículo 6º—Será terminantemente prohibido fraccionar las compras de Caja Chica, ya sea por medio de vales provisionales o definitivos, so pena de incurrir en la causal de falta grave, que sanciona el literal 1) del artículo 81 del Código de Trabajo.

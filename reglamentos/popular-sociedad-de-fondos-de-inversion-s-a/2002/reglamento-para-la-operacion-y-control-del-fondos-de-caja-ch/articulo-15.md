@@ -1,0 +1,1 @@
+Artículo 15.—El Gerente de Popular SAFI, S. A. o en su defecto el Gerente Financiero de Popular SAFI, S. A. se ocupará, una vez deducidos los montos totales de vales provisionales no liquidados del salario del empleado o empleados responsables, de reintegrar tales montos al custodio de la Caja Chica.

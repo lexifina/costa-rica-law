@@ -1,0 +1,1 @@
+Artículo 12.—Los fondos de la Caja Chica retirados por medio de un vale provisional, se liquidarán mediante el vale definitivo que corresponda, a más tardar en los dos días hábiles siguientes al retiro de los fondos. Esta obligación deberá indicarse en los vales provisionales.

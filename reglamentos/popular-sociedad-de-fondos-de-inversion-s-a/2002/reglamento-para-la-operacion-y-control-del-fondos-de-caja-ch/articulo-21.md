@@ -1,0 +1,1 @@
+Artículo 21.—La reiteración de faltantes en la Caja Chica obligará al Gerente de Popular SAFI, S. A. a realizar las investigaciones que corresponda para determinar los hechos; ello sin perjuicio de la responsabilidad laboral, civil y/o penal en que pudiere incurrir el custodio.

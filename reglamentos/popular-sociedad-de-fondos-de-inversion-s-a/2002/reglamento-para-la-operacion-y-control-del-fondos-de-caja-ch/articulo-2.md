@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento regula la operación y control de la caja chica de Popular Sociedad de Fondos de Inversión, S. A., denominada Popular, SAFI; así como la compra de bienes y servicios que por este mecanismo se adquieran.

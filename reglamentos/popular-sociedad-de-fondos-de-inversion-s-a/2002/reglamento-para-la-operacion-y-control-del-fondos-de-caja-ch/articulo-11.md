@@ -1,0 +1,1 @@
+Artículo 11.—El retiro de fondos de la Caja Chica, para la compra de bienes y/o servicios, deberá hacerse por medio de vale provisional o definitivo, previa verificación de la existencia de contenido presupuestario. Este retiro debe contener la información del caso, así como una justificación pormenorizada de la compra.
