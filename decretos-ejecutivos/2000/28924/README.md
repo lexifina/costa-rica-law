@@ -14,3 +14,4 @@ Modifica Reglamento a Ley Incentivos para el Desarrollo Turístico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-19 | la propia norma |
+| 2 | 2000-10-30 | Ley 7 |
