@@ -1,4 +1,2 @@
-ARTÍCULO 150.- Una copia de la boleta de citación o del parte
-impersonal se remitirá, de inmediato, a la autoridad judicial competente.
-(Texto modificado por Resolución de la Sala Constitucional No.438 de las 14:32 horas del
-17 de enero de 2001).
+Artículo 150.—La boleta de citación será de conocimiento inmediato del Consejo de Seguridad Vial, que ordenará a la Dirección General de Educación Vial, por cualquier medio, la anotación en el asiento de la licencia de conducir del infractor. Lo dispuesto en este artículo procederá siempre y cuando el supuesto infractor no haya interpuesto apelación alguna dentro del plazo establecido por el artículo 151 de esta Ley.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)

@@ -1,7 +1,3 @@
-ARTÍCULO 152.- Si el infractor acude ante la autoridad judicial,
-dentro del plazo indicado, el conocimiento de la infracción se
-sustanciará de conformidad con los procedimientos establecidos en los
-artículos 161 y siguientes. Pero, en todo caso, se citará y escuchará al
-inspector de tránsito que confeccionó el parte, quien puede ofrecer
-prueba para esclarecer los hechos, la que se evacuará durante la
-audiencia oral.
+Artículo 152.—Si dentro del plazo indicado el infractor acude ante la Unidad de Control de la Dirección General de Tránsito competente, la oficina levantará la información sumaria correspondiente, mediante el formulario de rigor, en el cual se estamparán los motivos fundados de la inconformidad, así como la prueba de descargo que estime oportuna y resolverá sobre las alegaciones que el infractor presente. Contra lo resuelto, no cabrá recurso administrativo alguno.
+Si el infractor no está conforme con lo resuelto, podrá plantear su inconformidad ante la Unidad de Control indicada, dentro del tercer día contado a partir de la fecha en que se le notifique; la planteará en un escrito en el que explique las razones de su inconformidad, ofrezca la prueba correspondiente y señale el lugar o la forma para oír notificaciones. En este caso, en un plazo máximo de tres días hábiles, el legajo junto con la boleta original, será remitido al despacho judicial de tránsito al que por competencia le corresponda el conocimiento del asunto. Una vez recibida la documentación, el despacho judicial procederá a señalar la audiencia oral y pública, donde se citará y se escuchará la prueba testimonial, si existe, así como al inspector de tránsito actuante; además, se analizará la prueba documental que sea aportada. Finalizada la audiencia, se fijará la hora para la lectura integral de la sentencia dentro de las veinticuatro horas siguientes; contra esta no cabrá recurso ulterior.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)

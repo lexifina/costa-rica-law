@@ -1,10 +1,4 @@
-ARTÍCULO 156.- En el caso de que se produzca un accidente de
-tránsito, el inspector de tránsito levantará una información sumaria, con
-los datos de los vehículos involucrados, las personas afectadas y los
-testigos, si los hay.
-Además, debe confeccionar un plano con la ubicación de los
-vehículos, el señalamiento vial, las huellas de arrastre o frenado, los
-obstáculos en la vía y cualquier otro detalle relacionado con el
-accidente. Si en el lugar en que éste se produjo, existe algún vehículo,
-estacionado en contravención de las disposiciones de esta Ley, lo
-consignará en el plano.
+Artículo 156.—En caso de que se produzca un accidente de tránsito, el inspector de tránsito levantará, en el parte oficial de tránsito, toda la información que en él se requiere, con la descripción completa y clara de todo cuanto el documento demande. Además, deberá confeccionar un plano con la ubicación de los vehículos, el señalamiento vial, las huellas de arrastre o frenado, los obstáculos en la vía y cualquier otro detalle relacionado con el accidente. Si, en el lugar en que se produjo el accidente existe algún vehículo estacionado en contravención de las disposiciones de esta Ley, lo consignará en el plano. Este documento deberá ser confeccionado en todo accidente, aun cuando los vehículos hayan sido movidos del lugar; en cuyo caso, deberá hacerse referencia a este hecho.
+De no mediar la intervención del inspector de tránsito, las partes tendrán un término de cinco días hábiles a partir del acaecimiento del hecho, para denunciar y aportar todos los elementos necesarios para individualizar tanto el vehículo denunciado como a su conductor, ante la autoridad judicial competente o ante la Dirección General de Tránsito, la cual trasladará esta denuncia a la autoridad judicial del lugar para su investigación. Si la información necesaria no se aporta, se archivará y la parte deberá acudir a la vía correspondiente en defensa de sus intereses. Si, durante la investigación, el denunciante manifiesta desinterés en continuar con el proceso, el tribunal revocará la instancia.
+Para cumplir su labor, el inspector de tránsito podrá utilizar todos los medios técnicos de los que disponga para fijar la escena del accidente
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)

@@ -1,7 +1,2 @@
-ARTÍCULO 172.- Evacuada la prueba, la alcaldía concederá un término
-prudencial a las partes, para emitir conclusiones. Inmediatamente, dará
-por terminada la audiencia, fijará hora para la lectura integral de la
-sentencia, dentro de las veinticuatro horas siguientes y se retirará a
-deliberar, salvo que ordene prueba para mejor resolver, la que deberá
-evacuarse dentro de los ocho días hábiles posteriores a la celebración
-del debate.
+Artículo 172.—Evacuada la prueba, el juzgado concederá a las partes un término prudencial para que emitan conclusiones. Inmediatamente, dará por terminada la audiencia, fijará la hora para la lectura integral de la sentencia, dentro de las veinticuatro horas siguientes, y se retirará a deliberar, salvo que ordene prueba para mejor resolver, la cual deberá evacuarse dentro de los ocho días posteriores a la celebración del debate.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)

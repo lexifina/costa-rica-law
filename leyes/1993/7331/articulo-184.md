@@ -1,5 +1,3 @@
-ARTÍCULO 184.- Los bancos están obligados a enviar una copia del
-comprobante de pago al Registro Público de la Propiedad de Vehículos
-Automotores. El Registro cancelará la anotación, de oficio, con vista en
-la copia del comprobante de pago o a petición de parte, con vista en el
-comprobante original.
+Artículo 184.—Los bancos y las dependencias públicas o privadas estarán obligados a enviar una copia del comprobante de pago al Consejo de Seguridad Vial, el cual, por los medios electrónicos disponibles, remitirá la información al Registro Público de la Propiedad Mueble y a la Dirección General de Educación Vial.
+Una vez recibida la comunicación correspondiente, sin más trámite, el Registro Público o la Dirección General de Educación Vial procederán a dar el trámite conforme a derecho. Para tal efecto, deberán realizarse los enlaces informáticos de rigor.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)

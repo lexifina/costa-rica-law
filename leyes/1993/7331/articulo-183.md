@@ -1,6 +1,3 @@
-ARTÍCULO 183.- Las multas deben ser canceladas dentro de los ocho
-días hábiles siguientes a su firmeza.
-Si la multa no es cancelada dentro del plazo establecido, tendrá un
-recargo por mora del tres por ciento (3%) mensual sobre el monto original
-hasta un máximo del treinta y seis por ciento (36%), lo cual debe ser
-advertido por el juez en la sentencia condenatoria.
+Artículo 183.—Las multas por las infracciones de la presente Ley y sus recargos, deberán cancelarse dentro de los ocho días hábiles siguientes a su firmeza.
+Si la multa y los demás cargos no son pagados dentro del plazo indicado, devengarán intereses moratorios equivalentes al tres por ciento (3%) mensual sobre el monto original, hasta un máximo del treinta y seis por ciento (36%), lo cual deberá ser advertido en la boleta de citación.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)

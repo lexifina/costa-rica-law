@@ -1,8 +1,4 @@
-ARTÍCULO 185.- Las multas que deban pagarse de acuerdo con la
-presente Ley, pueden ser enviadas a cobro judicial, si transcurridos
-quince días hábiles a partir de su firmeza, el infractor no las cancela.
-El asunto quedará así fenecido judicialmente para efectos de esta Ley y
-la anotación se mantendrá en el Registro correspondiente, según lo
-estipulado en los artículos 180 y 181 de la presente Ley, sin perjuicio
-de otras sanciones que se puedan establecer en caso de que no se haga
-efectivo el cobro judicial.
+Artículo 185.—Las multas que deban pagarse conforme a la presente Ley, y los respectivos intereses podrán ser enviados a cobro judicial por el Consejo de Seguridad Vial, el cual posee la personería jurídica y las facultades suficientes para tal efecto, si transcurridos quince días hábiles, a partir de su firmeza, el infractor no las cancela. En tal caso, la notación se mantendrá en los registros correspondientes, según lo estipulado en los artículos 180 y 181 de la presente Ley, sin perjuicio de otras sanciones que puedan establecerse, en caso de que no se haga efectivo el cobro judicial.
+Para los efectos indicados, el Consejo de Seguridad Vial, por medio de sus órganos financieros, certificará el adeudo, a fin de que se establezca el proceso de ejecución en la vía judicial, en los términos dispuestos en el Código Procesal Civil.
+Además de lo establecido en el numeral 6 del artículo 439 y en el artículo 630, ambos del Código Procesal Civil, las certificaciones emitidas por el Consejo de Seguridad Vial, relativas a adeudos por concepto de multas por infracción contra la presente Ley, constituirán título ejecutivo y, en el proceso judicial correspondiente, solo podrán oponerse las excepciones de pago o de prescripción.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)

@@ -1,5 +1,2 @@
-ARTÍCULO 173.- Si el imputado no comparece dentro del plazo señalado
-o si rechaza los cargos, pero no ofrece prueba de descargo, o si los
-acepta, la alcaldía resolverá con los elementos de juicio que consten en
-el expediente; sin perjuicio de su facultad de ordenar la recepción de la
-prueba que considere necesaria para mejor resolver.
+Artículo 173.—Si el imputado no comparece dentro del plazo señalado o si rechaza los cargos, pero no ofrece prueba de descargo, o si los acepta, el juzgado resolverá con los elementos de juicio que consten en el expediente, sin perjuicio de su facultad de ordenar la recepción de la prueba que considere necesaria para mejor resolver.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
