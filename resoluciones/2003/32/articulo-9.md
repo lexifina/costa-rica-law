@@ -1,0 +1,1 @@
+Artículo 9º—Las ausencias temporales del cajero(a) facturador(a), serán suplidas por un funcionario adiestrado; el que deberá contar con la póliza indicada en el artículo anterior, o en su defecto deberá rendir garantía fiduciaria. Quien sustituya al cajero(a) facturador(a), dispondrá del fondo fijo tal como se indica en el artículo diez.

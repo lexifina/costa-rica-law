@@ -1,0 +1,1 @@
+Artículo 4º—Las diferentes actividades del subproceso Administración Tributaria, podrán emitir a impresora única para ser cancelados en la Caja Recaudadora, los comprobantes de ingreso; no obstante, deberá quedar constancia en el mismo documento, del funcionario que realiza la acción.

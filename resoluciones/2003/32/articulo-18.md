@@ -1,0 +1,1 @@
+Artículo 18.—La Caja recaudadora contará en lo posible con una caja metálica de seguridad, donde el cajero(a) facturador(a), podrá custodiar el dinero y valores que por sus funciones tenga en su poder en horas hábiles. Fuera de éstas, los ingresos deben quedar en la caja fuerte del subproceso de Tesorería.

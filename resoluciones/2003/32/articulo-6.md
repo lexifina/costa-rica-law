@@ -1,0 +1,1 @@
+Artículo 6º—El (la) cajero(a) facturador(a), finalizado el día, entregará diariamente el dinero al tesorero(a), el cual preparará el depósito bancario con la totalidad del dinero recaudado, guardando adicionalmente en su caja el monto correspondiente al fondo fijo.

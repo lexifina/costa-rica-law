@@ -1,0 +1,1 @@
+Artículo 8º—Todo cajero(a) facturador(a), deberá contar con una póliza de fidelidad otorgada por el Instituto Nacional de Seguros, cuyo monto lo fijará dicho instituto de conformidad con sus disposiciones internas. Mientras se tramita esta póliza, deberá rendir garantía fiduciaria.
