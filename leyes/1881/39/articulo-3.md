@@ -1,0 +1,1 @@
+Art. 3°. Nómbranse igualmente a los magistrados de la Sala 2ª de la Corte Suprema de Justicia, á los Señores Don Pedro Ma de León Páez y Licenciados Don Vicente Sáenz y Don José Ma Acosta. El primero de los nombrados presidirá la Sala.
