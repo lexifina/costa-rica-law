@@ -1,0 +1,1 @@
+ARTÍCULO 3°. -La enseñanza ser esencialmente práctica, gradual y adecuada las condiciones sociales del país y las particulares de cada localidad. Su índole, extensión y desarrollo, serán determinados en los programas oficiales.
