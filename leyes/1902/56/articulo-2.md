@@ -1,0 +1,1 @@
+Artículo 2° En virtud de lo dispuesto en el artículo 1° el propietario de cualquiera pertenencia minera podrá dentro de los límites establecidos, trabajar su veta a cualquiera profundidad siguiendo su dirección, inclinación y variaciones en todo el curso de ella.

@@ -1,0 +1,1 @@
+Artículo 3° Lo dispuesto en los artículos anteriores se observarán en las medidas pendientes, en la que en adelante se practiquen, y en aquellas verificadas anteriormente a estas disposiciones, siempre que no haya perjuicio de tercero.

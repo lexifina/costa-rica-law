@@ -1,0 +1,1 @@
+Artículo 4° Quedan así modificados en lo conducente los artículos contenidos en las Sección quinta de las Ordenanzas de Minería de 26 de junio de 1830, y vigentes en sus demás disposiciones y un día del mes de julio de mil novecientos dos. San José, a primero de agosto de mil novecientos dos.
