@@ -1,0 +1,4 @@
+Artículo 18.—Conexión al SEN. La línea de interconexión al SEN la deberá construir el contratista por su cuenta según las recomendaciones del ICE. El mantenimiento de esa línea también estará bajo cuenta y riesgo del contratista.
+Si la interconexión se da en barras de subestación, el oferente deberá cubrir el costo de adquisición e instalación de los equipos asociados a la interconexión, conforme las especificaciones del ICE.
+Si la conexión se da en circuitos de distribución, el contratista deberá cubrir el costo de adquisición e instalación de los medios de protección y desconexión que el ICE especifique.
+Si el oferente ofrece conectarse a barras de subestación, y estas o las líneas de transmisión asociadas no tienen capacidad para trasegar esa energía, la oferta quedará descalificada. Si el generador privado ofrece conectarse a circuitos de distribución y estos no tienen capacidad para trasegar esa energía, la oferta quedará igualmente descalificada.

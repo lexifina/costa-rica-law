@@ -14,3 +14,4 @@ Reglamento a la Selección Proyectos Generación Eléctrica Autónomao Paralela 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-14 | la propia norma |
+| 2 | 2000-10-30 | Ley 7 |

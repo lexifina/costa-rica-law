@@ -1,0 +1,1 @@
+Artículo 5º—Tiempo de estudio y selección de ofertas. El ICE tendrá un plazo de tres meses naturales, a partir de la fecha de cierre del período de recepción de ofertas, para analizar y publicar los resultados de la selección.

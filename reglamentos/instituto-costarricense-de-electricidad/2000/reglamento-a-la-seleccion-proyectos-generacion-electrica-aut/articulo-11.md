@@ -1,0 +1,2 @@
+Artículo 11.—Vigencia del ordenamiento prioritario. Cada ordenamiento prioritario de contratación tendrá validez única y exclusivamente, dentro de los alcances de la aplicación del Procedimiento de Selección del caso en cuestión.
+Cada vez que se publique un nuevo concurso de selección, los interesados en concursar y cuyos proyectos cumplan con todos los requisitos establecidos por la Ley 7200 y su Reglamento, podrán presentar sus ofertas para ser analizadas en igualdad de condiciones.

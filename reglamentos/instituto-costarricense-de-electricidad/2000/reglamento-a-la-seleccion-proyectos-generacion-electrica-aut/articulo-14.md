@@ -1,0 +1,1 @@
+Artículo 14.—Orden Prioritario de Contratación. El orden de prioridad de contratación de proyectos de generación privada al amparo del Programa de Generación Autónoma o Paralela, se determinará con base en el arreglo de mayor a menor de los beneficios unitarios (Colones/kilovatio contratado) de incorporación de cada proyecto al SEN.

@@ -1,0 +1,2 @@
+Artículo 20.—Coeficiente de Estabilidad. El ICE exigirá un Coeficiente de Estabilidad (TM/TW) mínimo, para aquellos proyectos cuyas capacidades instaladas y condiciones de interconexión así lo requieran, de manera que se garantice la calidad, seguridad y continuidad operativa del Sistema Nacional Interconectado.
+El ICE indicará el tipo de respuesta de las unidades generadoras ante desviaciones de la frecuencia, mediante la selección de una caída de velocidad (estatismo) para las unidades.

@@ -1,0 +1,1 @@
+Artículo 19.—Factor de Potencia. Todos los proyectos con unidades menores de 5 MW y potencia instalada menor de 10 MW, deberán contemplar en su estudio de viabilidad, las previsiones que le permitan operar con un factor de potencia de 0,95. El ICE posteriormente indicará la forma operativa del proyecto.
