@@ -1,0 +1,1 @@
+Artículo 104.—Recibida la denuncia por escrito, se concederá audiencia al denunciado para que la conteste por escrito en un plazo no mayor de cinco días hábiles, aportando las pruebas que sean del caso.

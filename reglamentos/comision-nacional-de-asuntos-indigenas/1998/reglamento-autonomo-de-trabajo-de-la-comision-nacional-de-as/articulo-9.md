@@ -1,0 +1,3 @@
+CAPITULO II
+Del ingreso
+Artículo 9°—Salvo en los casos de que el nombramiento de funcionarios corresponda a la Junta Directiva de acuerdo con la Ley de Creación de la Comisión, la Jefatura de la Dirección Administrativa escogerá al personal de acuerdo a las normas establecidas y recomendará su nombramiento a la Dirección Ejecutiva. Corresponde a la Dirección Ejecutiva, utilizando para ello la Sección de Personal, la ratificación del nombramiento. Tratándose de puestos de Jefatura, el nombramiento lo hará directamente la Dirección Ejecutiva y para el caso del personal de la Auditoria, se requerirá la aprobación previa del auditor.

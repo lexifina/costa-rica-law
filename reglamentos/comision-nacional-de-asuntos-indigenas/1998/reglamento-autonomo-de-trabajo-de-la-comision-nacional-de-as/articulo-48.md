@@ -1,0 +1,1 @@
+Artículo 48.—Deberán marcar tarjeta de asistencia todos los servidores, con excepción de aquellos funcionarios que así lo determine este Reglamento, o disposición razonada de la Junta Directiva. Quedando excluidos de esta obligación el Director Ejecutivo y el Auditor Interno.

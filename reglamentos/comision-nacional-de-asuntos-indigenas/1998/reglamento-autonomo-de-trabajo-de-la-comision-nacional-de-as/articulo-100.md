@@ -1,0 +1,4 @@
+Artículo 100.—Cuando un funcionario no hubiere cumplido un año de prestación de servicios, al momento de hacerse la calificación, o hubiere trabajado a las órdenes de diferentes jefaturas, en el año anterior, se observarán las siguientes reglas:
+a) Si el funcionario no hubiere cumplido su período de prueba, su calificación de servicios estará sujeta a lo dispuesto por el artículo 13 de este reglamento, si hubiere trabajado más de tres meses, su calificación será por el tiempo de servicios prestados.
+b) Si el funcionario hubiere trabajado menos de un año, pero más de seis meses a la orden de una misma jefatura, corresponderá a esta hacer su calificación.
+c) Si el funcionario hubiere estado a las órdenes de diferentes Jefaturas durante el ano, pero con ninguna más de seis meses, la calificación la hará la jefatura con la que trabajó 3 o más meses, debiendo tomar en cuenta los informes que en este caso, deberán rendir las otras jefaturas.

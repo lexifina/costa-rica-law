@@ -1,0 +1,1 @@
+Artículo 34.—La compensación económica de vacaciones sólo procederá si existe normativa aplicable al efecto en el sector público, en ausencia de norma expresa se aplicará lo expreso en el artículo 156 del Código de Trabajo.

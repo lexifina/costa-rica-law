@@ -1,0 +1,1 @@
+Articulo 50.—Las anotaciones del registro de asistencia y puntualidad, de cada uno de los funcionarios de la Comisión, formarán parte de un prontuario que se lleva en el Área de Personal y se tomarán en cuenta para la evaluación de sus responsabilidades.

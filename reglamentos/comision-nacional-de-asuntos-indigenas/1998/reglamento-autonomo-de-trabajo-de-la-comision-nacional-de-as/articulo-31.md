@@ -1,0 +1,1 @@
+Artículo 31.—Las vacaciones deberán concederse dentro de las quince semanas posteriores al día que se cumplan las cincuenta semanas de servicios continuo, salvo que corresponda la acumulación, por causa justificada, debidamente razonada y que cuente con la aprobación de la Dirección Ejecutiva y la Dirección Administrativa.

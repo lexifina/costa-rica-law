@@ -1,0 +1,1 @@
+Artículo 3°—Como fundamento de la presente reglamentación, deben considerarse en primer término la Ley General de la Administración Pública, posteriormente el Código de Trabajo y demás leyes y reglamentos conexos que se hayan emitido o que se emitan en el futuro, con objeto de regular económica y socialmente las relaciones funcionario-patrono.

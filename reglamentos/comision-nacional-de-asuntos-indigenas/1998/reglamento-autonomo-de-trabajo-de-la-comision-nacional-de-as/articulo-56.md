@@ -1,0 +1,1 @@
+Artículo 56.—Además de las contenidas en otros artículos del presente reglamento se considerarán faltas graves las infracciones a las disposiciones de los artículos 21, 43, incisos d), e), f),j), k). o), q), r), s), t), u), v), artículo 44, incisos: c), i),j), 1), artículo 45, incisos a), c), d), e), 0. n). o), r), y artículos 58 y 61.

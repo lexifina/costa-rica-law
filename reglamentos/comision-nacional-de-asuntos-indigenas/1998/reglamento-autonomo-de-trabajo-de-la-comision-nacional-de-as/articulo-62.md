@@ -1,0 +1,1 @@
+Artículo 62.—Son causas que facultan a la Comisión para dar por terminada la relación de servicio sin responsabilidad patronal, además de las consignadas en otros artículos de este Reglamento, todas las que estipule et artículo 81 del Código de Trabajo, las que correspondan de la Ley de Administración Financiera de la República y demás leyes conexas.

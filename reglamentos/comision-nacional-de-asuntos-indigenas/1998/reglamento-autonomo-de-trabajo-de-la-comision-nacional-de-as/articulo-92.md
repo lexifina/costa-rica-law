@@ -1,0 +1,1 @@
+Artículo 92.—Todo lo relacionado con infracciones o sanciones, serán tramitadas por la Dirección Administrativa de la Comisión con fundamento en el criterio que emita el Departamento Legal, cuando sea necesario.

@@ -1,0 +1,1 @@
+Artículo 95.—Las permutas o traslados definitivos o temporales, entre puestos de igual clase o remuneración, podrán ser acordados sin más trámite por las respectivas jefaturas y la Dirección Administrativa.

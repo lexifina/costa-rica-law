@@ -1,0 +1,1 @@
+Artículo 20.—La Dirección Ejecutiva, de común acuerdo con la jefatura inmediata, podrá fijar un horario diferente al establecido para la generalidad de los empleados de la Comisión, en casos de labores desempeñadas por servidores que cumplan funciones especiales o que por la naturaleza del puesto así lo requiera.

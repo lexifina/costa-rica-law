@@ -1,0 +1,1 @@
+Artículo 26.—Las categorías y los sueldos base correspondientes a los puestos de la Comisión, son los que aparecen en el presupuesto de la Comisión y que se consignan en la Acción de Personal. El salario correspondiente al mes de diciembre se liquidará el día veinte de dicho mes o el día hábil anterior, en caso de que coincida la fecha de pago en feriado.

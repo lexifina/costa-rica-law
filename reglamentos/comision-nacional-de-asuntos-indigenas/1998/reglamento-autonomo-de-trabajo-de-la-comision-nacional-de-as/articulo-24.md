@@ -1,0 +1,1 @@
+Artículo 24.—Se entenderá excluido de la limitación de la jornada de servicio los funcionarios que ocupen cargos de Jefatura y Subjefatura hasta el nivel de encargados de Sección, servidores en gira no sujetos a supervisión y aquellos que ocupen puestos de confianza, su jornada podrá exceder de las doce horas diarias con derecho a una hora y cuarenta y cinco minutos de descanso.

@@ -1,0 +1,5 @@
+Artículo 15.—Las relaciones de servicio serán:
+a) Por tiempo indefinido: Que se llevarán a cabo con aquellos servidores indispensables para satisfacer las necesidades propias que además son permanentes de la Comisión.
+b) Por tiempo determinado: Que se celebrarán con los servidores que temporalmente ejecuten labores de quien o quienes se encuentren en disfrute de sus vacaciones, licencias, así como aquellos casos excepcionales en que su celebración resulte procedente conforme a la naturaleza de los servicios que se van a prestar, de acuerdo a lo establecido en los artículos 26 y 27 del Código de Trabajo.
+c) De aprendizaje: Aquellos que se formalicen por escrito de acuerdo con las disposiciones de la Ley de Aprendizaje, su reglamento o disposiciones conexas y supletorias que tiendan a la formación profesional, metódica y completa del individuo.
+d) Por obra determinada: Aquél que se celebre par satisfacer las necesidades que eventualmente se presenten en la Comisión, sin, previa fijación de tiempo, siendo el objeto la prestación personal del servicio la misma obra contratada, según los términos de los artículos 26 y 27 del Código de Trabajo.

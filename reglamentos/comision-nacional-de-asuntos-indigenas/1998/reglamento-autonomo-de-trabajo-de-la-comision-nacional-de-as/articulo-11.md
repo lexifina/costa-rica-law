@@ -1,0 +1,1 @@
+Artículo 11.—Servidor interno que tenga más de tres meses de ocupar un puesto puede optar a un nombramiento en propiedad o a otro cargo, participando en el concurso interno que se promueva para llenar la plaza vacante, siempre y cuando cumpla con los requisitos señalados en el artículo 12, inciso b) de este Reglamento.

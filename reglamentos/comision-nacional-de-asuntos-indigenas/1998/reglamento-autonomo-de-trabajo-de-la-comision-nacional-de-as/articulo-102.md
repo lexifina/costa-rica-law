@@ -1,0 +1,1 @@
+Artículo 102.—Quedan prohibidas las prácticas que se consideren como hostigamiento o acoso sexual contra los trabajadores, de acuerdo con la ley N° 7476, las denuncias y sanciones que regulan esta materia se regirán por el presente Capítulo.

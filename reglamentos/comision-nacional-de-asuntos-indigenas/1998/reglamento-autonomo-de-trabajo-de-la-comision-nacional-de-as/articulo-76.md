@@ -1,0 +1,3 @@
+Artículo 76.—El Área de personal adoptará las medidas necesarias para proteger eficazmente la salud ocupacional de sus funcionarios, conforme a los términos del Código de Trabajo, leyes conexas, reglamentos de salud ocupacional que se promulguen y a las recomendaciones que en esta materia formule tanto el Consejo de Salud Ocupacional, como las autoridades de inspección del Ministerio de Trabajo y Seguridad Social, Ministerio de Salud y el Instituto Nacional de Seguros, que garanticen:
+a) La protección de la salud y la preservación de la integridad psíquica, física, social y moral de los funcionarios, y
+b) La prevención y control de los riesgos del trabajo.

@@ -1,0 +1,1 @@
+Artículo 60.—Se considerará como falla grave para efectos de su sanción, las circunstancias de que a un empleado se le haya concedido licencia para ausentarse temporalmente de su trabajo, y se le compruebe que ha abusado de la licencia otorgada.

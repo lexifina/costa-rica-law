@@ -1,0 +1,4 @@
+CAPITULO IV
+Salarios
+Artículo 25.—Todo funcionario de la Comisión recibirá su salario de acuerdo con lo consignado en la Acción de Personal correspondiente su nombramiento o las emitidas posteriormente que señale modificaciones, salario este que por disposición de la ley nunca será inferior a lo que señale la Ley de Salarios de la Administración Pública (numero 2166). Los sueldos se pagarán mediante transferencia electrónica a las diferentes cuentas que posean los servidores en el Banco del Estado en los que tenga depositados sus recursos la Institución, o por medio de cheques emitidos por la Comisión para aquellos trabajadores ubicados en zonas alejadas donde no exista Agencia del Banco, con cargo a una de sus cuentas bancarias.
+Para aquellos servidores cuya paga se realice por medio de transferencia electrónica, el salario se cancelará los días trece y veintisiete de cada mes, o en su defecto, el día hábil anterior si el día de pago coincide con feriado.

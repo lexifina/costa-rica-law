@@ -1,0 +1,1 @@
+Artículo 103.—Toda denuncia por acoso u hostigamiento sexual debe ser puesta por escrito ante la Dirección Administrativa, que será el órgano encargado de tramitar todo lo relacionado con esta clase de denuncias, guardando el debido secreto y privacidad en todos los trámites.

@@ -1,0 +1,1 @@
+Artículo 8°—Todas las solicitudes de los funcionario referentes a peticiones, quejas, reclamos, etc., que se refieran a la relación de servicio en todos sus aspectos, deberán ser hechas por escrito ante el Jefe inmediato respectivo y/o a la Dirección Administrativa y serán resueltas en igual forma y de inmediato cuando así lo exija la urgencia del asunto.

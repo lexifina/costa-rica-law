@@ -1,0 +1,1 @@
+Artículo 97.—La escala de salarios estará definida por los salarios bases vigentes en la Comisión, más los aumentos autorizados por concepto de costos de vida. Para determinar el salario total de un servidor, se sumarán al salario base más los pluses salariales autorizados legalmente.

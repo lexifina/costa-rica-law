@@ -1,0 +1,26 @@
+CAPITULO X
+Obligaciones de los servidores
+Artículo 44.—Son obligaciones de los funcionarios, además de las consignadas en la Ley General de la Administración Pública y en el artículo 71 del Código de Trabajo y en otros artículos de este Reglamento, las siguientes:
+a) Prestar los servicios personalmente, en forma regular y continua, cumpliendo con la jornada de servicio que le corresponda.
+b) Sugerir en el momento oportuno y ante quien corresponda lo que crean conveniente para el mejor desempeño de su servicio.
+c) Asistir puntualmente a su trabajo todos los días hábiles establecidos por la Ley, marcar su tarjeta de control de asistencia, e iniciar las labores a las horas establecidas y de conformidad con el horario estipulado, exactamente a la hora de ingreso señalada, no debiendo abandonarlas ni suspenderlas sin causa justificada antes de haber cumplido su jornada de servicio, debiendo además trabajar tiempo extraordinario cuando así lo requiera la Comisión.
+d) Desempeñar su servicio con el interés, dedicación y diligencia que el puesto requiera, aplicando todo su esfuerzo para el mejor desempeño de las funciones y para mantener al día su labor, que ejecutará con la máxima pericia.
+e) Ejecutar las labores que se le indiquen, siempre que sean compatibles con sus aptitudes y condiciones y se trate de funciones propias de su cargo.
+f) Ser disciplinado, respetuoso y guardar celosamente la jerarquía administrativa.
+g) Auxiliar en su trabajo a cualquiera de tos empleados dentro de la misma función o categoría, cuando la jefatura o quien la representa se lo indique.
+h) Atender con diligencia, afán de servicio, corrección y la más exquisita cortesía al público que acuda a las oficinas de la Comisión y guardar toda la consideración debida al público, a las Jefaturas y compañeros de servicio, en sus relaciones con ellos, motivadas en el desempeño de su cargo, de modo que no origine queja justificada por mal servicio o desatención por mal trato o irrespeto. Tratarán en todo momento de complacer al público y evitar cualquier clase de discusión, procurando hasta donde sea posible, suministrar las explicaciones que el caso requiera.
+i) Durante las horas de servicio, vestir en forma correcta, de conformidad con el cargo que desempeña y los lugares en donde presta sus servicios.
+j) Guardar la más absoluta reserva sobre los asuntos confidenciales de la Comisión y la discreción necesaria sobre los relacionados con su labor, que por su naturaleza o en virtud de disposiciones legales o instrucciones especiales lo requieran, aún después de haber cesado en el cargo.
+k) Abstenerse de realizar cualquier otra actividad que sea moral o éticamente incompatible con las funciones que realice en la Comisión, así como realizar externamente trabajos o trámites a presentarse en la Comisión y que tengan alguna relación con las labores que desempeña la misma, aún en casos en que exista suspensión de la relación de servicio.
+l) Sin perjuicio en la obligación en que está de denunciar ante quien corresponde, los hechos incorrectos y delictuosos de que tenga noticia, todo funcionario deberá comunicar por escrito ante su superior, con copia a la Junta Directiva y Dirección Ejecutiva toda orden emitida por su superior jerárquico que considere contrarias a las disposiciones legales o administrativas vigentes o a los intereses de la Comisión. Si no hubiese revocación de lo ordenado, cumplirá las instrucciones impartidas quedando exento de responsabilidad.
+m) Comunicar a sus superiores las observaciones que su experiencia o conocimiento le sugieran, para mejorar el desempeño de sus servicios a los intereses de la Institución, de sus compañeros y las personas que eventual o permanentemente se encuentren dentro del lugar donde preste sus servicios.
+n) Observar buena conducta y correctas costumbres dentro y fuera de la Comisión, en beneficio de su buen nombre.
+o) Informar a la Dirección Administrativa todo cambio de domicilio, estado civil y demás pormenores que sean necesarios para mantener los registros al día.
+p) Cuidar y vigilar las máquinas, equipo, mobiliario y en general los bienes que sean patrimonio y estén al servicio de la Institución y no usarlos para otros fines que aquellos a que están destinados.
+q) Durante la jornada de trabajo, portar en forma visible su identificación como funcionario, que le sea entregado para ese propósito.
+r) Presentar las liquidaciones requeridas de acuerdo con las disposiciones establecidas en las reglamentaciones que se dicten a ese efecto.
+s) Cumplir en forma estricta con las obligaciones inherentes a los beneficios que le otorga la Comisión.
+t) En caso de ausencia por motivo de salud o por cualquier otra causa o fuerza mayor, reportarse inmediatamente a la Jefatura o a la Dirección Administrativa, en ausencia de ésta.
+u) Defender los intereses de la Institución en la adquisición de bienes y contratación de servicios inherentes a su cargo.
+v) Cancelar oportunamente los cargos que le notifique la administración como realizados bajo su responsabilidad.
+w) Cancelar en la Tesorería de la Comisión, los gastos en que incurra la CONAI por actos imputables a su responsabilidad, dentro del término que establezca la Dirección Ejecutiva, una vez agolados los procedimientos y plazos para recibir el descargo correspondiente a cargo del funcionario responsable.

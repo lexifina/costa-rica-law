@@ -1,0 +1,1 @@
+Artículo 63.—El sistema de sanciones establecido en este capítulo no será aplicable a las faltas cometidas por motivo de ausencia, llegadas tardías o abandono del servicio, que se regulan en íos capítulos subsiguientes, para los cuales se establecerá el propio sistema de sanciones.

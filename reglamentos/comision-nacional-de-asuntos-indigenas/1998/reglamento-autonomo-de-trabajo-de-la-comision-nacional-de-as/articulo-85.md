@@ -1,0 +1,1 @@
+Artículo 85.—La responsabilidad de la Comisión, en cuanto a asegurar contra riesgos del trabajo, subsiste aún en caso en que el servidor esté bajo la dirección de intermediarios, de quienes la Comisión se valga para la ejecución o realización de! servicio.

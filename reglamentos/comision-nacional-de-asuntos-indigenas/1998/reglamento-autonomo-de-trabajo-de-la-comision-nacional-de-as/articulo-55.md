@@ -1,0 +1,1 @@
+Artículo 55.—Además de las contenidas en otros artículos del presente Reglamento, se considerarán faltas leves, las infracciones a las disposiciones de los artículos 19,43, incisos a), b), c), g), h), y), l), m), n), o), p), 44, incisos: a), b), d), e), f), g), h), k), y 45, incisos: b), g), h), i), j), k), m), p), q).

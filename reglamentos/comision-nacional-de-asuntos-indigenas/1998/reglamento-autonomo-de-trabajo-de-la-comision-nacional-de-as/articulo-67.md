@@ -1,0 +1,1 @@
+Artículo 67.—Las ausencias que excedan de dos días, deben ser justificadas mediante presentación del respectivo comprobante de incapacidad, si ese es el motivo, extendido por la Caja Costarricense del Seguro Social. Las mismas serán rebajadas del salario del servidor.

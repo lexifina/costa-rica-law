@@ -1,0 +1,1 @@
+Artículo 6°—El expediente personal, que deberá mantenerse debidamente foliado por el Acción de Personal se considerará confidencial y sólo podrá ser examinado por el trabajador, los superiores Jerárquicos, la Auditoria interna dentro de sus funciones, o por personas que cuenten con la autorización previa del encargado de la Dirección Administrativa, o de la Dirección Ejecutiva.
