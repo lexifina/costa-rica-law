@@ -1,0 +1,7 @@
+Artículo 2°—Declaratoria de país o Región libre de Brucelosis Bovina. Para ser reconocido libre de brucelosis bovina, el país o una parte del territorio deberá reunir las siguientes condiciones:
+1. A de cumplirse con lo estipulado en el artículo primero.
+2. Todos los rebaños de bovinos del país o de la parte del territorio del país deben estar bajo control veterinario oficial y debe haberse comprobado que el índice infección brucelica no es superior al 0,2% de los rebaños de bovinos del país o de la parte territorio de la región del país;
+3. Cada rebaño debe ser sometido periódicamente a pruebas serológicas para la detección de la brucelosis bovina, asociadas o no a la prueba del anillo;
+4. Ningún animal debe haber sido vacunado contra la brucelosis bovina desde hace por lo menos tres años;
+5. Todos los animales que presentan resultado positivo en las pruebas de detección de la brucelosis bovina deben ser sacrificados;
+6. Los animales introducidos en el país o la parte del territorio del país libre de brucelosis bovina deben proceder exclusivamente de rebaños oficialmente libres o libres de brucelosis bovina. Esta condición podrá no exigirse para los animales que no hayan sido vacunados y que antes de ser introducidos en el rebaño hayan sido aislados y hayan presentado resultado negativo en dos pruebas serológicas efectuadas con 30 días de intervalo. Estas pruebas no se consideran válidas en las hembras que hayan parido 14 o menos días antes.

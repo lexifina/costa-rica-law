@@ -1,0 +1,8 @@
+Artículo 7°-Para la importación de semen de bovinos se exigirá la presentación de un certificado zoosanitario internacional en el que conste:
+1. Si el semen precede de un centro de inseminación artificial, que el programa de control incluya pruebas con antígeno de Brucella tamponado y pruebas suplementarias para la detección de la brucelosis bovina;
+2. Si el semen no precede de un centro de inseminación artificial, que los genitores que proporcionaron el semen:
+a) permanecieron en un país o parte del territorio de un país libre de brucelosis bovina, o
+b) permanecieron en un rebaño oficialmente libre de brucelosis bovina, no presentaron ningún signo clínico de brucelosis bovina el día de la toma del semen y presentaron resultado negativo en una prueba con antígeno de Brucella tamponado efectuada durante los 30 anteriores a la toma del semen, o
+c) permanecieron en un rebaño libre de brucelosis bovina, no presentaron ningún signo clínico de brucelosis bovina el día de la toma del semen y presentaron resultado negativo en una prueba con antígenos de Brucella tamponado y en pruebas suplementarias efectuadas durante los 30 días anteriores a la toma del semen, o
+d) no presentaron ningún signo clínico de brucelosis bovina el día de la toma del semen, presentaron resultado negativo en una prueba con antígeno de Brucella tamponado y en pruebas suplementarias efectuadas durante los 30 días anteriores a la toma del semen, y no se detectó la presencia de aglutinas brucélicas en el semen:
+3. Que el semen fue tornado, tratado y almacenado estrictamente conforme a lo dispuesto en los anexos 4.2.1.1. y 4.2.1.2. Del Código Zoosanitario International de la OIE, en su última edición.

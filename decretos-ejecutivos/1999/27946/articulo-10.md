@@ -1,0 +1,1 @@
+Artículo 10.—Los propietarios de los animales recibirán en cada oportunidad, una constancia oficial de la vacunación realizada, emitida por el funcionario o la persona que la haya efectuado, en la que se contemplen todos los datos establecidos por la Dirección de Salud Animal.

@@ -1,0 +1,7 @@
+Artículo 8°—Para la importación de óvulos/embriones de bovinos se exigirá la presentación de un certificado zoosanitano internacional en el que conste:
+1. Si los óvulos/embriones proceden de una unidad de recolección, que el programa de control incluya pruebas con antígeno de Brucella tamponado y pruebas suplementarias para la detección de la brucelosis bovina;
+2. Si los óvulos/embriones no proceden de una unidad de recolección, que las hembras donantes:
+a) Permanecieron en un país o parte del territorio de un país libre de brucelosis bovina, o
+b) Permanecieron en un rebaño oficialmente libre de brucelosis bovina, no presentaron ningún signo clínico de brucelosis bovina el día de la recolección de los óvulos/embriones y presentaron resultado negativo en una prueba con antígeno de Brucella tampoco efectuada durante los 30 días anteriores a la recolección de los óvulos/embriones; o
+c) Permanecieron en un rebaño libre de brucelosis bovina, no presentaron ningún signo clínico de brucelosis bovina el día de la recolección de los óvulos/embriones y presentaron resultados negativos en dos pruebas iniciales y dos posteriores con antígeno de Brucella tamponado y pruebas suplementarias respectivamente efectuadas durante los 30 días anteriores a la recolección de los óvulos/embriones;
+3. Que los óvulos/embriones fueron recolectados, tratados y almacenados estrictamente, conforme a lo dispuesto en los anexos 4.2.3.1., 4.2.3.4. o 4.2.3.5., según los casos, del Código Zoosanitario Internacional de la OIE. En su última edición.

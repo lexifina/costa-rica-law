@@ -1,0 +1,1 @@
+Articulo 12.—Los tipos de vacunas vivas para el control y erradicación de la Brucelosis, serán del tipo que la Dirección de Salud Animal autorice, tomando en consideración criterios técnicos de Organismos Nacionales e Internacionales y las necesidades de la producción pecuaria del país.
