@@ -1,0 +1,1 @@
+Artículo 3°-Autorízase al Ministerio citado, a las municipalidades e instituciones autónomas y semiautónomas para que dentro de sus posibilidades presupuestarias, contribuyan económicamente para poder eregir ese monumento.
