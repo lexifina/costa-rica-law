@@ -1,0 +1,1 @@
+Artículo 3º.-En caso que el producto analizado no cumpla con los requisitos del registro, se efectuará un segundo muestreo bajo la responsabilidad económica del representante, quien pagará además el valor del análisis.
