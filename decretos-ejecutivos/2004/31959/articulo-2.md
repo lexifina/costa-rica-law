@@ -1,0 +1,1 @@
+Artículo 2º—En ese día se realizarán actividades educativas y de concientización dirigidas al público en general, relacionadas con las aves migratorias y sus hábitats naturales. Para estos efectos, este Ministerio le dará el apoyo posible a la Asociación Ornitológica de Costa Rica (AOCR), ente de utilidad pública, para que lleve a cabo las actividades que considere pertinentes.
