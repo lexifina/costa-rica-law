@@ -1,0 +1,1 @@
+.Artículo 4°—El monto máximo del vale de Caja Chica, se establece en la suma de ¢80.000 (ochenta mil colones) para la Proveeduría y de ¢30.000 (treinta mil colones), para las demás unidades o áreas y será incrementado anualmente tomando como referencia el Índice de Precios mencionado en el artículo inmediato anterior.

@@ -1,0 +1,1 @@
+Artículo 32.—No podrán hacer uso del fondo de Caja Chica las personas que presten sus servicios al Instituto de acuerdo con la modalidad de servicios profesionales o por contrato, ni tampoco lo podrán hacer aquellas personas que no presten servicio regular y, en consecuencia, no sean funcionarías (os) del INAMU.

@@ -1,0 +1,2 @@
+Artículo 3°—Se establece un fondo de Caja Chica, cuyo monto será de 400.000 (cuatrocientos mil colones) y su custodia será responsabilidad de la (del) Encargada(o) de la Caja Chica. Este monto será revisado y ajustado periódicamente a criterio de la Junta Directiva, tomando en cuenta el comportamiento del Índice de Precios al Consumidor que publica la Dirección General de Estadísticas y Censos y las necesidades
+institucionales.

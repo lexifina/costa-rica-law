@@ -1,0 +1,1 @@
+Artículo 30.—No se reintegrarán facturas con fecha anterior al último reintegro, salvo en los casos en que la encargada de la Caja Chica justifique satisfactoriamente por escrito, ante la Dirección Administrativa Financiera, el o los motivos correspondientes y no se contravenga lo dispuesto en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 34.—El fondo de Caja Chica no podrá ser utilizado para el cambio de cheques personales, ni para hacer préstamos a funcionarías (os), ni podrá utilizarse para otros fines distintos para el que fue creado. Tampoco podrá disponerse de este fondo para actuaciones distintas a las autorizadas por este Reglamento y por la normativa vigente.
