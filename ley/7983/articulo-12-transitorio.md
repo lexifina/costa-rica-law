@@ -1,1 +1,1 @@
-TRANSITORIO XI.- En tanto no exista un órgano regulador y supervisor en materia de seguros, la Superintendencia se encargará de aprobar los contratos que se celebren entre las operadoras y las compañías aseguradoras autorizadas.
+TRANSITORIO XII.- Los trabajadores independientes se afiliarán a la CCSS en forma gradual durante los primeros cinco años a partir de la vigencia de la presente ley.

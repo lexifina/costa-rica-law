@@ -1,1 +1,1 @@
-TRANSITORIO XIII.- Los afiliados al Régimen Obligatorio de Pensiones Complementarias que se pensionen dentro de los diez años siguientes a la vigencia de esta ley, podrán retirar la totalidad de los fondos acumulados en sus cuentas en el momento de pensionarse.
+TRANSITORIO XIV.- La reforma de los incisos a) y b) del artículo 15 de la Ley Orgánica del Instituto Nacional de Aprendizaje, No. 6868, de 6 de mayo de 1983 y la adición de un párrafo a este mismo artículo, entrarán a regir en la misma fecha de vigencia del sistema.
