@@ -1,0 +1,1 @@
+Art 4° Si el padre ha muerto o está en incapacidad de manifestar su voluntad, el consentimiento de la madre basta, siempre que los hijos no tengan veinte años y las hijas diezcinueve. Aun cumplidas estas edades, son obligados los hijos a recabar el consentimiento de sus padres; mas no es necesario que lo obtengan para celebrar su matrimonio.

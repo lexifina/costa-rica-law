@@ -1,0 +1,1 @@
+Art 5° Si el padre y la madre hubiesen muerto o están en incapacidad de manifestar su voluntad, los reemplazarán los abuelos paternos por su orden, y a falta de estos los maternos también por su orden, si el varón no ha llegado a los diezcinueve años de edad y la mujer a los dieciocho.
