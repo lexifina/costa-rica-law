@@ -1,1 +1,2 @@
-Artículo 24.- Custodia de los títulos. La Junta mantendrá los títulos en que se haya invertido, en poder de un banco del Sistema Bancario Nacional, el cual asumirá la custodia, de conformidad con la ley y el contrato que se celebre al respecto.
+Artículo 24.- Custodia de los títulos. Los títulos en los que la Junta haya invertido se mantendrán custodiados en una central de valores, autorizada y supervisada por la Superintendencia de Valores.
+(Así reformado por el artículo 1° de la ley N° 7946 del 18 de noviembre de 1999)
