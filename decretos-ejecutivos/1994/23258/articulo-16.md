@@ -1,0 +1,1 @@
+Artículo 16.—A las Juntas Administrativas se les girará el monto anual asignado, mediante dos cuotas iguales en los meses de enero y julio, las que se serán depositadas en la cuenta corriente de cada una de las Juntas Administrativas.
