@@ -14,3 +14,4 @@ Reforma Reserva Indígena de Guatuso y Reserva Indígena de Guaymí de Coto Brus
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-12-15 | la propia norma |
+| 2 | 1981-01-26 | Decreto Ejecutivo 12232 (1981-01-26) |
