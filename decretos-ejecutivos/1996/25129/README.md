@@ -13,3 +13,4 @@ Compila Tarifas por Servicios a Cargo del INCOP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-15 | la propia norma |
+| 2 | 1996-05-15 | Decreto Ejecutivo 25414 (1996-08-01) |
