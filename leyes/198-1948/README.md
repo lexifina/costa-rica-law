@@ -1,9 +1,9 @@
 # Reforma CSan
 
-Ley N° 54 del 1948-06-11. SINALEVI, ficha 36976: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36976&param2=38986&param3=1>.
+Ley N° 198 del 1948-10-05. SINALEVI, ficha 39064: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=39064&param2=41186&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
-| 1 de 1 | 1948-10-05 | SINALEVI (1 normas) | 1948-06-11 |
+| 1 de 1 | 1948-10-05 | Ley 198 | 1948-10-05 |
