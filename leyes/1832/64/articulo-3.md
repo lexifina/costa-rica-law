@@ -1,0 +1,1 @@
+Art. 3. Todos los años, cada semestre, que se contará desde la publicacion de esta ley en adelante, deberán las Municipalidades hacer exàmen à todos los niños educando en las escuelas públicas, con presencia de los Padres Curas, para averiguar el estado del aprovechamiento en que se hallan.

@@ -1,0 +1,1 @@
+Art. 8. La exaccion de la multa del artìculo 1° impuesta á los Padres de familia negligentes en la educacion de sus hijos, la ejecutarán las Municipalidades cada seis meses, en razon de doce reales á los mas pudientes, y seis á los menos pudientes; debiendo pagar el duplo en el segundo semestre, los que reincidan desde el primero.
