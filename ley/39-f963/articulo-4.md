@@ -1,0 +1,1 @@
+Art. 4°-Eligense Magistrados para completar la Sala de 3a Instancia del mismo Tribunal, á los Señores Licenciados Don Ramón Loría y Don Rafael Chacón; y para Magistrado Fiscal, al Licenciado Don Gerardo Castro.
