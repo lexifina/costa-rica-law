@@ -1,0 +1,1 @@
+Artículo 107.- (La Corte Suprema de Justicia, mediante resolución de las 10:00 horas del 13 de noviembre de 1981 (expediente N° 0199-80, promovido por el Banco de Costa Rica) declaró inaplicables los párrafos primero y sexto de este artículo, por considerarlos contrarios a los artículos 176 párrafo segundo, 188 y 190 de la Constitución Política.)
