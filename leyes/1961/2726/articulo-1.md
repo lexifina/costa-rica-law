@@ -1,6 +1,14 @@
-N° 2726
-LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
-DECRETA:
-La siguiente
-Ley Constitutiva del Servicio Nacional de Acueductos y Alcantarillados
-Artículo 1º.- Con el objeto de administrar, dirigir, planear, diseñar, construir , mantener, fijar y resolver todo lo relacionado con el suministro de agua potable para usos domiciliarios, industriales y de cualquier otra naturaleza a todos los habitantes de la República con el de disponer todo lo relativo a recolección, tratamiento y disposición de aguas negras y pluviales o servidas en el país, así como con el de elaborar las tarifas que deben cobrarse en la prestación de estos servicios públicos, sean éstos suministrados por organismos oficiales o particulares; y con el objetivo de cumplir los fines establecidos en la ley N° 276 de 27 de agosto de 1942, en cuanto al abastecimiento de las poblaciones con agua potable, se refunden en un solo organismo las funciones que actualmente tienen a su cargo los Departamentos de Obras Hidráulicas del Ministerio de Obras Públicas y de Ingeniería Sanitaria del Ministerio de salubridad Pública, que se dediquen a trabajos relacionados con los fines de esta ley. El organismo formado por la refundición dicha será semiautónomo, descentralizado y se denominará “Servicio Nacional de Acueductos y Alcantarillados”.
+LEY CONSTITUTIVA DEL INSTITUTO COSTARRICENSE DE ACUEDUCTOS Y
+ALCANTARILLADOS
+NOTA: De acuerdo con el Transitorio II de la
+Ley Nº 5915 de 12 de julio de 1976, el nombre
+fue variado por "Instituto" puede abreviarse "A y A".
+ARTICULO 1º.- Con el objeto de dirigir, fijar políticas, establecer
+y aplicar normas, realizar y promover el planeamiento, financiamiento y
+desarrollo y de resolver todo lo relacionado con el suministro de agua
+potable y recolección y evacuación de aguas negras y residuos
+industriales líquidos, lo mismo que el aspecto normativo de los sistemas
+de alcantarillado pluvial en áreas urbanas, para todo el territorio
+nacional se crea el Instituto Costarricense de Acueductos y
+Alcantarillados, como institución autónoma del Estado.
+(Así reformado por Ley Nº 5915 de 12 de julio de 1976, artículo 1º)

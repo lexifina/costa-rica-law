@@ -1,6 +1,6 @@
-Artículo 7°-Para ser miembro director se requiere:
-a) Ser costarricense por nacimiento, o naturalizado con más de diez años de residencia en el país;
-b) Ser de reconocida capacidad y honorabilidad con experiencia suficiente en todo lo relacionado con las atribuciones y finalidades encomendadas al Servicio Nacional de Acueductos y Alcantarillado;
-c) No pertenecer ni haber pertenecido, en el año anterior, al personal del servicio;
-d) No haber sido nunca condenado en juicio por causas penales; y
-e) Ser mayor de edad.
+ARTICULO 7º.- Los nombramientos de los seis directores, no el del
+Presidente Ejecutivo, se regirán por el artículo 4º de la ley Nº 4646 de
+20 de octubre de 1970, reformado por el artículo 3º de la ley Nº 5507 de
+19 de abril de 1974.
+(Así reformado por el artículo 1º de la Ley Nº 5915 de 12 de julio de
+1976).
