@@ -16,3 +16,4 @@ Reglamento del Artículo 19 de la Ley sobre el Desarrollo de la Comunidad
 | 1 | 1976-09-04 | la propia norma |
 | 2 | 1979-05-22 | Decreto Ejecutivo 10050 (1979-05-22) |
 | 3 | 1980-01-15 | Decreto Ejecutivo 11167 (1980-01-15) |
+| 4 | 1983-03-21 | Decreto Ejecutivo 14419 (1983-03-21) |
