@@ -1,2 +1,1 @@
-Artículo 62.—Recursos. Contra los fallos caben los recursos de aclaración o adición, si se interpusieren dentro de los dos días hábiles siguientes a su notificación.
-Asimismo, cabrá contra los acuerdos que impongan suspensión o expulsión la revocatoria y apelación subsidiaria ante la Asamblea General, dentro del octavo día hábil luego de la notificación del fallo.
+Artículo 62.—Derogado por artículo 30 del Código de Etica, publicado en La Gaceta No. 38 de 24 de febrero de 2004.

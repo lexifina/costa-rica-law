@@ -1,2 +1,1 @@
-Artículo 63.—Prescripción. (Artículo 18 del Código de Etica):
-Las faltas cometidas contra este Código prescribirán en el término de tres meses. La prescripción se interrumpirá con la presentación de la denuncia de la Secretaría del Colegio.
+Artículo 63.—Derogado por artículo 30 del Código de Etica, publicado en La Gaceta No. 38 de 24 de febrero de 2004.
