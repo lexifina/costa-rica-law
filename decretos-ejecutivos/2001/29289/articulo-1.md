@@ -8,3 +8,4 @@ Considerando:
 3º—Que para incorporar la totalidad de recursos asignados al Colegio Universitario para el Riego y el Desarrollo del Trópico Seco por parte de la Cartera de Educación, resulta necesario ampliarle a dicho Colegio los límites de gasto presupuestario y efectivo establecidos en el artículo 1° del Decreto Ejecutivo N° 28639-H, publicado en La Gaceta N° 101 del 26 de mayo del 2000. Por tanto,
 Decretan:
 Artículo 1º—Modifícase el artículo 1° del Decreto Ejecutivo N° 28639-H, para fijar en ¢134,0 millones el límite de gasto presupuestario y efectivo del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco del 2001.
+(Así modificado el límite de gasto presupuestario y efectivo del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco, por el DE- 29866 de 24 de setiembre del 2001)

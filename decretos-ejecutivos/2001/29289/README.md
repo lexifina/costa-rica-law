@@ -14,3 +14,4 @@ Modifica el Límite de Gasto Presupuestario y Efectivo del Colegio Universitario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-14 | la propia norma |
+| 2 | 2001-09-24 | Decreto Ejecutivo 29866 (2001-09-24) |
