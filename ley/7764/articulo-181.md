@@ -12,4 +12,3 @@ El impuesto deberá cancelarse dentro del mes siguiente a la fecha de otorgamien
 "Artículo 15.- Disposiciones finales
 La Dirección General de Tributación Directa no concederá el "anotado" a documentos que contengan operaciones sujetas al pago del impuesto sobre inmuebles no inscritos establecido en la presente ley, si no se adjuntare el entero debidamente cancelado por el monto total del impuesto.
 [...]"
-TRANSITORIO I.- Este artículo 181, rige a partir de la publicación de la presente ley.

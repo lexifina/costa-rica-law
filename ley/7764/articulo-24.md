@@ -16,3 +16,4 @@ m) Resolver las gestiones o cuestiones planteadas respecto de la función notari
 n) Determinar los medios idóneos de seguridad que deben contener los documentos notariales para su validez.
 ñ) Listar las empresas autorizadas en forma exclusiva para suplir los medios idóneos de seguridad que deben contener los documentos notariales.
 o) Llevar un listado de quienes se desempeñen como notarios externos en las instituciones estatales descentralizadas y empresas públicas estructuradas como entidades privadas.
+(Interpretado este artículo mediante resolución de la Sala Constitucional N° 3937-08 del 12 de marzo del 2008, en el sentido de que “todo registro de las sanciones notariales deberá ser cancelado por la autoridad competente al transcurrir diez años después de cumplida la sanción.”)

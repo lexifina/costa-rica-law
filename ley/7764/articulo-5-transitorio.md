@@ -1,0 +1,1 @@
+TRANSITORIO V.- Dentro de los tres meses siguientes a la vigencia del presente código, los tribunales que hayan recibido los tomos de protocolos de los notarios públicos, deberán remitirlos al Archivo Nacional.

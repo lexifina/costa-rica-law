@@ -1,2 +1,3 @@
 ARTÍCULO 148.- Suspensiones o cesaciones sujetas al cumplimiento de condiciones o deberes
 Si la suspensión o cesación en el cargo se decretare por algún motivo que afecte los requisitos o las condiciones para ejercer el notariado, por incumplimiento de deberes o por haber sido suspendido como abogado, la medida se mantendrá durante todo el tiempo que subsista la causa o el incumplimiento.
+(Interpretado este artículo mediante resolución de la Sala Constitucional N° 3937-08 del 12 de marzo del 2008, en el sentido de que “todo registro de las sanciones notariales deberá ser cancelado por la autoridad competente al transcurrir diez años después de cumplida la sanción.”)
