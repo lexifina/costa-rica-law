@@ -1,0 +1,2 @@
+Artículo 22.—El Comité se reunirá ordinariamente cada seis meses con los integrantes indicados en el artículo 21, incisos a), b), c) y d). Extraordinariamente cuando sea convocado por su Presidente, o por dos de sus miembros.
+Extraordinariamente el Director de la Secretaría Ejecutiva de Ciencia y Tecnología, podrá convocar, si lo considera conveniente para una mayor agilidad y solamente aquellos integrantes que se vinculan directamente con los puntos a tratar.

@@ -1,0 +1,1 @@
+Artículo 24.—Estas instancias estarán integradas por técnicos, asesores, expertos o consultores, internos o externos, de instituciones o empresas públicas o privadas y centros de investigación, nacionales e internacionales y su modus operandi estará definido mediante los mecanismos operativos y de coordinación que regulan al Sistema Nacional de Ciencia y Tecnología.
