@@ -1,6 +1,2 @@
-CAPÍTULO III
-Funciones del Comité de Auditoría
-Artículo 5º—Sobre las funciones del Comité de Auditoría. Las principales funciones del Comité de Auditoría son las siguientes:
-a) Propiciar la comunicación entre los miembros del directorio, el gerente general, la auditoría interna, la auditoría externa y los entes supervisores.
-b) Mantener informado al Directorio sobre el desarrollo de los programas anuales de la auditoría interna, así como del avance, resultados y seguimiento de los auditorajes externos.
-c) Establecer las pautas generales para la selección de la firma de auditores externos y emitir una recomendación a la junta directiva para su designación.
+Artículo 5º—Sobre las sesiones y las actas. El Comité de Auditoría podrá celebrar reuniones en cualquiera de las oficinas de Banco Nacional, incluyendo sus subsidiarias. La frecuencia de las sesiones dependerá de la urgencia e importancia de los asuntos que deban tratarse, no obstante, al menos se efectuará una reunión bimestral.
+Los acuerdos adoptados en las reuniones deberán constar en un libro de actas, el cual estará a disposición de la Superintendencia correspondiente. Este libro deberá ajustarse a las disposiciones que emita la Contraloría General de la República y las Superintendencias, y en caso de que se autorice, podrá llevarse en forma electrónica.

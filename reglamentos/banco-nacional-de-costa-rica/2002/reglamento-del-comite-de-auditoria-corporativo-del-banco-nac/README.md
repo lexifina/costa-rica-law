@@ -14,3 +14,4 @@ Reglamento del Comité de Auditoría Corporativo del Banco Nacional de Costa Ric
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-24 | la propia norma |
+| 2 | 2005-04-05 | Reglamento 11319 (2005-04-05) |

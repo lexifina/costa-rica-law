@@ -1,2 +1,1 @@
-Artículo 4º—Sobre las sesiones y las actas. El Comité de Auditoría podrá celebrar reuniones en cualquiera de las oficinas del Banco Nacional, incluyendo sus subsidiarias. La frecuencia de las sesiones dependerá de la urgencia e importancia de los asuntos que deban tratarse, no obstante, al menos se efectuará una reunión bimestral.
-En cada sesión se levantará un acta para dejar constancia de los asuntos tratados.
+Artículo 4º—La Dirección del Comité estará a cargo de un presidente designado por sus miembros. El plazo del nombramiento será de un año, pudiéndose reelegir por períodos iguales.
