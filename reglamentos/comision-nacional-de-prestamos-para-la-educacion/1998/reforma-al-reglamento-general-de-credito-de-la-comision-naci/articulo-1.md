@@ -1,0 +1,4 @@
+COMISIÓN NACIONAL DE PRÉSTAMOS PARA EDUCACIÓN
+MODIFICACIÓN DEL REGLAMENTO DE CRÉDITO
+El Consejo Directivo de la Comisión Nacional de Préstamos para Educación (CONAPE), en Sesión No 10-3-98, artículo 4, de fecha 5 de marzo de 1998, acordó modificar el Artículo 27 del Reglamento de Crédito, para que se lea de la siguiente forma:
+"Todo prestatario queda en la obligación de ser incluido en el Sistema de Póliza Colectiva de Vida, CONAPE-INS, con el fin de protegerse del riesgo de muerte e incapacidad total y permanente durante la vida total del préstamo. El costo de la póliza asciende a ¢0.45 por cada mil colones desembolsados, costo que el beneficiario puede incluir en el Plan de Inversión del Préstamo. CONAPE queda expresamente facultada para crear, con el producto de las Utilidades de la Póliza y los Intereses generados por esos recursos, el Fondo de Garantía; Fondo que se destina para respaldar préstamos con una garantía ofrecida insuficiente".
