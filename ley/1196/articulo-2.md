@@ -1,0 +1,1 @@
+Artículo 2°.- El producto del empréstito deberá invertirse en las siguientes obras; construcción del Mercado de Abastos, de Oficinas Municipales y de Gobierno, de las defensas contra la inundación de los ríos Colorado y Turrialba y arreglo de la cañería y calles de la ciudad.
