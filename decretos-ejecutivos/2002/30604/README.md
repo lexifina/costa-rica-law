@@ -14,3 +14,4 @@ Convoca a sesiones extraordinarias de la Asamblea Legislativa para conocer proye
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-16 | la propia norma |
+| 2 | 2002-08-16 | Decreto Ejecutivo 30607 (2002-08-05) |
