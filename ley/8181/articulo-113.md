@@ -1,0 +1,1 @@
+Artículo 113.-Los bienes en desuso, desecho o mal estado que la Asamblea Legislativa no utilice, podrá donarlos a las instituciones de educación, beneficencia pública o a cualquier otra dependencia estatal. El procedimiento respectivo se regulará en el Reglamento de esta Ley.

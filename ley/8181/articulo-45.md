@@ -1,0 +1,1 @@
+Artículo 45.-En los casos de falta grave cometida por los servidores de confianza, será aplicable el procedimiento establecido en el capítulo VII de esta Ley. La solicitud de despido la hará el diputado jefe de fracción a la Dirección Ejecutiva, que la trasladará al Directorio Legislativo, el cual resolverá en definitiva.

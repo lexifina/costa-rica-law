@@ -1,0 +1,1 @@
+Artículo 87.-Los reconocimientos salariales que se otorguen por carrera profesional y otros incentivos académicos, se reconocerán a solicitud del interesado, siempre y cuando pueda recibirlos según la naturaleza de su cargo. Esos reconocimientos o incentivos regirán desde la fecha de recibo de la solicitud, una vez emitida la resolución favorable.

@@ -1,0 +1,1 @@
+Artículo 26.—Los servidores nombrados interinamente deberán reunir los requisitos de la clase de puesto y preferiblemente serán escogidos del registro permanente de elegibles, en los términos que señalan esta Ley y su Reglamento. El nombramiento de servidores interinos será a plazo fijo y su relación laboral concluirá sin responsabilidad alguna para la Asamblea Legislativa.

@@ -1,0 +1,2 @@
+Artículo 92.—Créase un fondo de becas, constituido por los recursos que la Comisión de Becas apruebe anualmente, de acuerdo con la recomendación del Departamento de Recursos Humanos, el Departamento Financiero, los Directores de División y la Dirección Ejecutiva. Este fondo anual deberá ser autorizado por el Directorio Legislativo.
+El fondo de becas se fortalecerá además con becas y otros recursos que le otorguen organismos e instituciones nacionales e internacionales, públicos o privados.

@@ -1,0 +1,1 @@
+Artículo 67.-La ausencia de evaluación no causará perjuicio al servidor en los beneficios o incentivos que establecen esta Ley y su Reglamento. Si la calificación es superior al grado mínimo establecido, se le aplicará la obtenida en el período inmediato anterior; en caso contrario, se le calificará con el grado mínimo fijado en el sistema de evaluación.

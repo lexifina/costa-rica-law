@@ -1,0 +1,2 @@
+Artículo 64.-La evaluación de los servidores se efectuará anualmente, según los sistemas de evaluación y los plazos acordados conforme a las disposiciones de esta Ley.
+El sistema deberá definir los grados de eficiencia y los mínimos requeridos para que el servidor continúe con la prestación de sus servicios, los cuales deberán ser motivados por el jerarca respectivo, quien expondrá los motivos que justifiquen su decisión y las observaciones hechas al servidor, que puedan servirle para mejorar su evaluación en el futuro.

@@ -1,0 +1,2 @@
+Artículo 41.- En los primeros quince días naturales de cada período constitucional, los jefes de fracción y el Directorio Legislativo se pondrán de acuerdo en el número dé plazas que tendrá cada diputado, así como en el Manual Descriptivo de Clases de la Asamblea Legislativa para los puestos de su personal de confianza.
+Cada diputado tendrá el derecho de realizar los nombramientos que desee, de conformidad con el número de plazas asignadas según el párrafo anterior.

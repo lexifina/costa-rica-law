@@ -1,0 +1,1 @@
+Artículo 85.-Los servidores de la Asamblea Legislativa tendrán derecho a un reconocimiento salarial adicional al salario base, denominado incentivo legislativo, para cuya aplicación bastará contar con el contenido presupuestario.

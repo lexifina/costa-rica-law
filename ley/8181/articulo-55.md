@@ -1,0 +1,1 @@
+Artículo 55.-La renuncia del servidor deberá presentarse por escrito, ante su jerarca, quien la entregará a la Dirección Ejecutiva dentro de los plazos que establece el Código de Trabajo, a fin de que esta instancia la eleve a conocimiento y resolución del Directorio Legislativo.

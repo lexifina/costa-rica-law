@@ -1,0 +1,3 @@
+Artículo 22.—La Dirección Ejecutiva comunicará al Directorio Legislativo, en su siguiente reunión a partir de la fecha de recibo, los nombres de los primeros tres lugares del registro permanente de elegibles, para la decisión final. El Directorio Legislativo deberá resolver a más tardar en la próxima sesión.
+El Directorio Legislativo, mediante acuerdo razonado, podrá separarse de la recomendación de la Dirección Ejecutiva, solicitar el registro de elegibles y realizar el nombramiento.
+Cuando el primer lugar del registro permanente de elegibles no sea nombrado por el Directorio Legislativo en tres ocasiones consecutivas, en la siguiente plaza vacante de esa misma categoría que se quiera ocupar, deberá nombrarse sin más demora.

@@ -1,0 +1,1 @@
+Artículo 53.- Prescribirán en seis meses a partir de la cesación de la relación laboral, el reclamo contra los despidos injustificados de los servidores regulares o los que se efectúen sin observar los establecidos en este Estatuto y su Reglamento.

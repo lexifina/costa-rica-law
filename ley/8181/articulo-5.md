@@ -1,0 +1,2 @@
+Artículo 5°-Los nombramientos regirán a partir del día primero o dieciséis del mes siguiente a la fecha en que el acuerdo del Directorio Legislativo quede en firme, con excepción de los nombramientos que se efectúen al inicio de cada legislatura.
+La Dirección General de Informática del Ministerio de Hacienda o el sistema propio de pago, no tramitará acciones de personal de nombramientos con efecto retroactivo a esa fecha. El Departamento de Recursos Humanos de la Asamblea Legislativa gestionará la retención de los giros que contravengan esta disposición.

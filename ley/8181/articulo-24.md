@@ -1,0 +1,1 @@
+Artículo 24.—En caso de que el primer lugar del registro permanente de elegibles lo ocupen dos o más personas, el Departamento de Recursos Humanos podrá someter, ante la Dirección Ejecutiva, los nombres de los interesados, quienes podrán ser escogidos por el Directorio Legislativo por elegibilidad.
