@@ -14,3 +14,4 @@ Reglamento de Comisiones de Trabajo (La Municipalidad de la Unión publicó en L
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-07-11 | la propia norma |
+| 2 | 1995-02-21 | Reglamento municipal 96 (1995-02-21) |
