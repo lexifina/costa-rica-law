@@ -14,3 +14,4 @@ Equipara Comisión de Recursos Humanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-02-01 | la propia norma |
+| 2 | 1980-02-01 | SINALEVI (sin norma nombrada) |
