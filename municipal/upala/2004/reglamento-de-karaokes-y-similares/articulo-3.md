@@ -1,0 +1,4 @@
+Artículo 3º—Del permiso municipal. Para la realización de cualquiera de las actividades aquí indicadas deberá contar con el permiso Municipal correspondiente, de conformidad con los requisitos solicitados en este Reglamente y previamente autorizados de conformidad con lo que establece el artículo 79 del Código Municipal y con el expediente levantado al efecto. El permiso Municipal podrá ser temporal o permanente.
+- El permiso temporal será cuando el patentado comercial solicite permiso para determinadas fechas y horas.
+- El permiso permanente será el que se otorgue para realizar la actividad de forma permanente. Este se podrá lograr para Salones de Baile.
+En ambos casos las patentes son condicionales y podrán revocarse de oficio y no generarán ningún derecho, cuando afecte la tranquilidad pública y a los vecinos.

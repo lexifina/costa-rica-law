@@ -1,0 +1,1 @@
+Artículo 4º—Ley General de Salud. Las actividades con Karaoke deberán respetar en todo momento la normativa que establece la Ley General de Salud, referente a los niveles autorizados de sonido y confinamiento de ruido.
