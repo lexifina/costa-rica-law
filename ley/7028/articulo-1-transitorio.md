@@ -1,1 +1,1 @@
-Transitorio I.- Los fondos provenientes de la cotización de cinco por ciento sobre las pensiones, acumulados desde el año 1975, que han sido administrados por la Junta de Pensiones y Jubilaciones del Magisterio Nacional, continuarán como reserva del régimen de conformidad con el artículo 20 de esta ley, en consecuencia, no podrán utilizarse en proyectos o programas que no sean reproductivos para el sistema.
+Transitorio I.- (Derogado por el artículo 2° de la ley N° 7268 del 14 de noviembre de 1991)
