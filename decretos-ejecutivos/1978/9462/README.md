@@ -14,3 +14,4 @@ Reforma Reglamento para el pago de prohibición al personal de la administració
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-11-01 | la propia norma |
+| 2 | 1979-07-19 | Decreto Ejecutivo 10331 (1979-07-19) |
