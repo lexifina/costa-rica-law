@@ -14,3 +14,4 @@ Crea la Comisión de Evaluación y Diagnóstico de las Actividades Geológicas y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-30 | la propia norma |
+| 2 | 2003-05-26 | Decreto Ejecutivo 31191 (2003-05-26) |
