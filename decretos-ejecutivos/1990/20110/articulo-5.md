@@ -1,1 +1,0 @@
-Articulo 5—Todo programa de capacitación, para el cual sean ofrecidas becas Ministerio de Hacienda, que se realice dentro y fuera del país, se canalizará únicamente a través del Departamento de Capacitación y observando para ello el procedimiento en este Reglamento previsto.

@@ -1,1 +1,0 @@
-Articulo 40.—No estarán sujetos a las disposiciones del articulo anterior los funcionarios que han disfrutado de programas de adiestramiento programados por el Departamento de Capacitación y por entes públicos, para los cuales no sean ofrecidas becas al Ministerio.

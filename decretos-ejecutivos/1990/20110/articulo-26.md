@@ -1,1 +1,0 @@
-Articulo 26.—Si, habiéndose pronunciado el Comité Permanente, persistiera la inconformidad del recurrente, este puede, dentro de los tres días siguientes a dicho pronunciamiento, pedir que el asunto sea elevado al conocimiento y resolución del Ministro de Hacienda, ante quien se agota la vía administrativa.

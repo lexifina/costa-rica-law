@@ -1,2 +1,0 @@
-Artículo 45.—La revisión periódica del presente Reglamento estará a cargo del Comité Permanente de Becas. Toda modificación deberá contar con un dictamen favorable del Comité.
-El Departamento de Capacitación tendrá a su cargo la iniciativa de proposición de enmiendas, que se someterán a la consideración del Ministro de Hacienda, y se seguirán, en su oficialización los procedimientos jurídicos que procedan.

@@ -1,3 +1,0 @@
-CAPITULO VII
-De los impedimentos, las excusas y las recusaciones
-Articulo 28.—No pueden intervenir, directa e indirectamente, en la adjudicación de las becas a que se refiere este Reglamento aquellos funcionarios que tuvieren interés en ellas, bien porque se encuentren concursando en su carácter personal, o bien porque lo hacen parientes suyos hasta el segundo grado de consaguinidad o afinidad. En estos casos, es obligación del funcionario excusarse ante el superior inmediato en el momento mismo en que tenga conocimiento de los motivos de su impedimento. Si el superior encontrare procedente la excusa, conocerá el asunto y entrará a resolverlo observando las mismas formalidades a que se encuentra sujeto el inferior.
