@@ -1,22 +1,27 @@
-Artículo 6°—La lista oficial de las comunidades indígenas y Reservas Indígenas de Costa Rica es la siguiente:
-Grupos étnicos | Reservas Indígenas
-(Etnias) | (Comunidades Indígenas)
-1. Bribri. | 1. Salitre
+Artículo 6°—La lista oficial de las comunidades y reservas indígenas de Costa Rica es la siguiente:
+Grupos étnicos | Reservas indígenas
+(Etnias) | (comunidades indígenas)
+1. BRIBRI ... ... ... ... . | 1. Salitre
 | 2. Cabagra
-| 3. Talamanca (este)
-2. Cabécar | 1. Chirripó
-| 2. Tayni
-| 3. Telire
-| 4. Talamanca (oeste)
-| 5. Ujarrás
-3. Guaymi | 1. Guaymi de Coto Brus
-| 2. Abrojos-Montezuma
+| 3. Bribrí de Talamanca
+| 4. Cocles
+2. CABECAR ... ... ... | 1. Chirripó
+| 2. Bajo Chirripó
+| 3. Tayni
+| 4. Telire
+| 5. Cabécar de Talamanca
+| 6. Ujarrás
+3. GUAYMI ... ... ... ... | 1. Guaymi de Coto Brus
+| 2. Abrojo de Montezuma
 | 3. Conteburica
-4. Brunka | Boruca
-5. Térraba | Térraba
-6. Huetar (Pacacua) | 1. Quitirrisí
+| 4. Guaymi de Osa
+4. BRUNKA ... ... ... ... ... | 1. Boruca
+| 2. Curré
+5. TERRABA ... ... ... ... | 1. Torraba
+6. HUETAR (Pacacua) | 1. Quitirrisi
 | 2. Zapatón
-7. Maleku (Guatuso) | Guatuso
-8. Chorotega (Nicoya) | Matambú
-Por tanto, se reconocen así oficialmente 17 reservas indígenas, y 17 comunidades indígenas.
-(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 16568 del 25 de setiembre de 1985, se constituye la Reserva Indígena de Cocles en una reserva independiente de la Reserva Indígena Bribrí de Talamanca, con el nombre oficial de "Reserva Indígena de Cocles" y artículo 2° modifica el presente decreto de manera a tomar en cuenta lo establecido en el artículo 1° del decreto ejecutivo N° 16568).
+7. MALEKU (Guatuso) ... ... | 1. Guatuso
+8. CHOROTEGA ............ | 1. Matambú
+Por tanto, se reconocen así oficialmente 21 reservas indígenas y 21 comunidades indígenas.
+(NOTAS DE SINALEVI:
+(1. Así reformado mediante el artículo 1° del decreto ejecutivo N° 16569 del 25 de setiembre de 1985).
