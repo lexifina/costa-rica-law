@@ -1,0 +1,2 @@
+Artículo 13.-Este decreto rige a partir de su publicación.
+Transitorio.-El derecho al pago de zonaje tendrá efecto a partir de la publicación de este reglamento y se hará efectivo a la fecha que el Ministerio de Hacienda lo acuerde, siempre y cuando no transcurra un plazo superior a seis meses, con excepción de aquellos funcionarios que han venido disfrutando con base en el decreto número 11971-H.

@@ -1,0 +1,1 @@
+Artículo 2º.-El servidor no perderá el derecho a devengar la suma fijada por concepto de zonaje, si tuviere que regresar a su domicilio habitual durante un período que no exceda de un mes, por motivos, de incapacidad, licencia con goce de sueldo autorizada por el Reglamento del Estatuto de Servicio Civil, o para cumplir funciones de su cargo.
