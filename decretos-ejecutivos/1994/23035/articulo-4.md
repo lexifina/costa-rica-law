@@ -1,0 +1,1 @@
+Artículo 4°-La Secretaría Técnica de la Autoridad Presupuestaria verificará en cualquier momento el cumplimiento de lo aquí dispuesto, e informará a la Autoridad Presupuestaria el nombre de las instituciones y empresas públicas que han incumplido con este decreto, a fin de aplicar lo concerniente.
