@@ -1,0 +1,1 @@
+Artículo 2°-Se autoriza al señor Procurador General de la República a comparecer ante el notario del Estado a otorgar la correspondiente escritura de rectificación del asiento respectivo practicado en el Registro Público.
