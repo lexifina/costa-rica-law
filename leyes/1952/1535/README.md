@@ -1,6 +1,6 @@
 # Ley Orgánica del Registro Civil
 
-Ley N° 1535 del 1952-12-10. SINALEVI, ficha 6188: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6188&param2=99771&param3=1>.
+Ley N° 1535 del 1952-12-10. SINALEVI, ficha 6188: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6188&param2=99772&param3=1>.
 
 Publicada en La Gaceta N° 10 del 1953-01-14.
 
@@ -17,3 +17,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 7 de 12 | 1959-07-25 | Ley 2402 | 1959-07-22 |
 | 8 de 12 | 1960-03-01 | Ley 2403 | 1959-07-22 |
 | 9 de 12 | 1960-03-01 | Ley 2546 | 1960-02-17 |
+| 10 de 12 | 1961-12-15 | Ley 2926 | 1961-11-28 |
