@@ -1,0 +1,1 @@
+Art 3° No comprenden así mismo las que se refieren a los gastos hechos en el ferrocarril por deberlas rendir los empleados en la recaudación, administración e inversión de los caudales, administración e inversión de los caudales públicos que produzcan la emprenda o se destinen a ella, a la Contaduría Mayor.
