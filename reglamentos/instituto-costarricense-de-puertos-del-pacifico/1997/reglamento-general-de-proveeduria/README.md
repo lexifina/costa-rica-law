@@ -14,3 +14,4 @@ Reglamento General de Proveeduría.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-04-17 | la propia norma |
+| 2 | 1998-01-08 | Reglamento 2670 (1998-01-08) |
