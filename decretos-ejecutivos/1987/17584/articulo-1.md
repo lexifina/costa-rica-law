@@ -44,7 +44,8 @@ Dextranas máximo | ------ | 250 u.m.a. (1) 400 ppm (2) | ------
 5°.-Empaque y acondicionamiento:
 El azúcar deberá ser acondicionada de manera que quede al abrigo de la humedad y de contaminaciones. El proceso y los materiales de empaque no deben transmitir contaminantes o sustancias objetables al producto y deben proveer una adecuada protección a la contaminación. Las características organolépticas y la composición del producto no deberán ser alteradas por el material de empaque.
 6°.-Rotulación:
-El rótulo deber traer la denominación Azúcar seguida de su clasificación. Deberá cumplir además con lo estipulado en la Norma Oficial de Etiquetas para Productos Alimenticios. Deberá aparecer además el Nombre del ingenio fabricante.
+El rótulo o etiqueta deberá traer la denominación AZÚCAR seguida de su clasificación, deberá cumplir además con lo estipulado en el reglamento técnico RTCR 100: 1997. Etiquetado de los alimentos preenvasados Decretos Ejecutivos 26012-MEIC publicado en La Gaceta N° 91 de 14 de mayo de 1997.
+(Así reformado el numeral 6) anterior por el artículo 1° del decreto ejecutivo N° 26828 del 9 de marzo de 1998)
 7°.-Muestreo:
 Los métodos de muestreo se definen en la Norma Oficial de Métodos de Muestreo para Azúcar.
 8°.-Ensayos a realizar:
