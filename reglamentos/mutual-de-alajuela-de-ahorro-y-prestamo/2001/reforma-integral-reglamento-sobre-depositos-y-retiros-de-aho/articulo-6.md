@@ -1,0 +1,3 @@
+Artículo VI.—Depósitos: La Mutual se reserva el derecho de aceptar cualquier depósito, así como cerrar cualquier cuenta que sea manejada en forma tal, que desvirtúe el espíritu del ahorro.
+Es facultativo de la Mutual recibir en depósito, cheques u otra clase de valores bancarios, en caso de que se reciban, el depósito se considerará firme cuando el Banco girador haya hecho efectivos tales valores. La Mutual no asume ninguna responsabilidad por demora o negligencia que se presente en el cobro de estos efectos y queda autorizada para cargar a la respectiva cuenta los gastos en que incurra por la devolución de los valores depositados.
+El ahorrante no podrá hacer retiros sobre dichos valores, hasta tanto la Mutual no los haya hecho efectivos.

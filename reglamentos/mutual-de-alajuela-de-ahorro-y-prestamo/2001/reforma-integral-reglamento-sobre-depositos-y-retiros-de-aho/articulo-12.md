@@ -1,0 +1,1 @@
+Artículo XII.—Sobre la Garantía de las Cuentas: Las cuentas de ahorro reguladas en el presente reglamento cuentan con la garantía subsidiaria del Estado, de conformidad con lo establecido en el Reglamento del Sistema Financiero Nacional para la Vivienda sobre garantías de los Títulos Valores, Cuentas de Ahorro y Fondos de Garantía y de Estabilización.
