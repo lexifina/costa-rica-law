@@ -1,3 +1,0 @@
-Artículo 20.-El Departamento de Proveeduría tendrá las funciones que le asigna el articulo 25 de la ley N° 7131 y su reglamento.
-Ninguna ejecución de presupuesto del MIRENEM, se hará si no es a través de este Departamento, previo cumplimiento de los trámites administrativos que este haya emitido al efecto. Cualquier incumplimiento a estas disposiciones implicar la nulidad del acto y la responsabilidad del funcionario que lo emitió.
-Corresponder a este Departamento elaborar y mantener actualizado el Registro de Proveedores del MIRENEM, así como la responsabilidad sobre los bienes patrimoniales.

@@ -1,1 +1,0 @@
-Artículo 73.-Los funcionarios y personal administrativo del IMN serán designados de conformidad con las disposiciones del Estatuto de Servicio Civil y estarán amparados a los derechos y sujetos a las obligaciones establecidas en dicho Estatuto.
