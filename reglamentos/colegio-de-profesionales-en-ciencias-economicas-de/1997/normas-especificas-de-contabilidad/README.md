@@ -14,3 +14,4 @@ Normas Especificas de Contabilidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-12-12 | la propia norma |
+| 2 | 1999-01-05 | Reglamento 1 (1999-01-05) |

@@ -1,4 +1,5 @@
 Norma de Contabilidad E-4 Inventarios
+(NOTA: La presente norma ha sido derogada por acuerdo tomado en sesión N° 1 de 5 de enero de 1999)
 Objetivo: 1. El objetivo de esta norma es definir el concepto de inventarios, establecer los principios generales aplicables a su registro y valuación, así como las reglas de presentación y de revelación en los estados financieros.
 2. La finalidad primaria de la contabilidad de los inventarios es identificar la cantidad de costo que ha de ser reconocida como un activo y mantenida en los registros, hasta que los ingresos relacionados sean reconocidos.
 Alcance: 3. Esta norma debe ser aplicada por todas las empresas en los estados financieros preparados en el contexto de costo histórico en la contabilidad de inventarios, excepto los inventarios de ganado, de productos forestales, de la agricultura y depósitos de minerales, en la medida en que son cuantificados a su valor neto de realización.

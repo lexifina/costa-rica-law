@@ -1,4 +1,5 @@
 Norma de Contabilidad E-6 Inmuebles, Maquinaria y Equipo
+(NOTA: La presente norma ha sido derogada por acuerdo tomado en sesión N° 1 de 5 de enero de 1999)
 Objetivo: 1. El objetivo de esta Norma es establecer el tratamiento contable de Inmuebles. Maquinaria y Equipo (conocidos también como Activos Fijos tangibles) correspondiente a su reconocimiento inicial como tales, la determinación de sus valores en libros, los cargos por apreciación que deben ser reconocidos, el tratamiento contable de otras variaciones de los valores en libros, la presentación en el balance de situación y los requisitos de revelación.
 Alcance: 2. Esta Norma debe ser aplicada en la contabilización de todo inmueble, maquinaria y equipo, propiedad de la entidad.
 3. Esta Norma no aplica específicamente en los siguientes casos :
