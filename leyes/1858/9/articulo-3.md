@@ -1,0 +1,1 @@
+Art 3°.- Que no obstante haberse pagado una gran parte, no sabiéndose el monto total de ella, no pueda dictarse una providencia para su amortización, con la debida equidad, y en proporción a los recursos con que se cuenta y
