@@ -1,2 +1,3 @@
-Artículo 97.—Aprobación. Para el pago de proveedores, alquileres, becas, transferencias y gastos en general, los documentos de respaldo deben estar aprobados por la Contraloría General de la República, de conformidad con la política que ésta disponga.
+Artículo 97.—Aprobación. Para el pago de proveedores, alquileres, becas, transferencias y gastos en general, deberá existir la respectiva aprobación electrónica en el Sistema Integrado de Información de la Administración Financiera, por parte de los responsables de los procesos financieros.
 De igual forma, para concretar pagos de subvenciones, se requerirá la aprobación previa del presupuesto del órgano u ente de que se trate, por parte de la Contraloría General de la República, de conformidad con las disposiciones aplicables.
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 30903 de 9 de diciembre de 2002)

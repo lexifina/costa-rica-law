@@ -9,3 +9,7 @@ g) Resumen comparativo de las principales rentas de la Administración Central.
 h) Estudio sobre la efectividad fiscal de las rentas que se esperan y las que se deriven de cambios en las alícuotas o estructura fiscal vigente, cuando en el proyecto de ley en trámite se contemplen nuevos impuestos o modifiquen los existentes. La efectividad probable de las rentas así creadas o modificadas será certificada por la Contraloría General de la República.
 i) Informe que detalle los cambios, supresiones, aumentos o disminuciones que se propongan en las partidas de egresos con respecto a las del año anterior.
 j) Certificación del Banco Central de Costa Rica sobre la capacidad de endeudamiento del sector público e informe detallando los posibles efectos sobre la economía nacional.
+k) Informe que incluirá los requerimientos de personal del Gobierno de la República, cuyos programas forman parte de la Ley de Presupuesto, con el siguiente nivel de detalle:
+k.1) Resumen de la cantidad de puestos por clases y sus respectivos salarios totales, en el nivel Institucional, de programa y subprograma.
+k.2) Resumen de los diferentes pluses salariales y su monto total anual, en el nivel Institucional, de programa y subprograma.
+(Así ampliado por artículo 2° del Decreto Ejecutivo N° 30903 de 9 de diciembre de 2002)

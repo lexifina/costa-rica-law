@@ -1,1 +1,2 @@
-Artículo 96.—Ampliaciones de cuotas. Toda ampliación de cuota de ejecución del presupuesto deberá ser autorizada por la Tesorería Nacional con base en la programación de la ejecución presupuestaria y la disponibilidad de Caja. Corresponderá al jerarca del órgano u ente de que se trate, solicitar la ampliación correspondiente.
+Artículo 96.—Cuota de pago. La Tesorería Nacional asignará semanalmente a los ministerios y al Tribunal Supremo de Elecciones las cuotas de pago a acreedores. Con base en dichas cuotas, cada ministerio deberá realizar una propuesta de pago de sus obligaciones pendientes e informará a la Tesorería para que proceda a su pago.
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 30903 de 9 de diciembre de 2002)
