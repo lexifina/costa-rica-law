@@ -1,0 +1,2 @@
+Artículo 4º.- Se reforma el artículo 1º en lo referente al artículo 64, inciso 4, acápite i), de la ley Nº 837 de 20 de diciembre de 1946 el que se leerá así:
+i) Personas físicas domiciliadas en el exterior excepto que el pago o crédito sea hecho por bancos constituidos de acuerdo con la Ley del Sistema Bancario Nacional y de sociedades de inversión o de crédito especial de carácter no bancario registradas en la Auditoría General de Bancos.
