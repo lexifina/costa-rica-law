@@ -14,3 +14,4 @@ Reglamento de Becas y Subsidios de Estudios para los Funcionarios del Instituto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-06-06 | la propia norma |
+| 2 | 2005-01-28 | Reglamento 41 (2005-01-28) |
