@@ -1,0 +1,1 @@
+Artículo 32.—La Auditoria General solicitará audiencia para efectuar la conferencia final al funcionario ejecutivo responsable de disponer la puesta en ejecución de las recomendaciones, quien deberá dársela salvo situación de manifiesta excepción, dentro de los diez días hábiles siguientes al recibo de la solicitud de audiencia para concertar su realización.

@@ -1,0 +1,1 @@
+Artículo 17.—El Auditor General podrá periódicamente proponer, debidamente justificada a la máxima autoridad de la cual depende, la creación de plazas y servicios que considere indispensable para el cumplimiento de su plan anual de intervenciones y en general, para la buena marcha de la Auditoria General.

@@ -1,0 +1,1 @@
+Artículo 44.—La Auditoria podrá solicitar al responsable de la implantación de las recomendaciones y disposiciones o a quien corresponda, referirse por escrito y en detalle sobre su cumplimiento y de los plazos para su efectiva, eficiente y oportuna aplicación, sin perjuicio de cualesquiera otras verificaciones y evaluaciones que lleve a cabo.

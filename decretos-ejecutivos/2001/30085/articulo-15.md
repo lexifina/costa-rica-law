@@ -1,0 +1,1 @@
+Artículo 15.—Es prohibido para los funcionarios de la Auditoria General, recibir gratificaciones, beneficios o cualquier otra regalía, proveniente de personas, entidades o unidades sujetas o no a su intervención, o que potencialmente lo fueren. La infracción a esta prohibición, hará al funcionario acreedor de un proceso disciplinario, según la normativa aplicable.

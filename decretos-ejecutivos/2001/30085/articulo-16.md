@@ -1,0 +1,1 @@
+Artículo 16.—El Auditor General actuará como jefe del personal de su unidad y en esa condición ejercerá todas las funciones que le son propias en la administración de personal. Además prevalecerá su criterio técnico en el nombramiento del personal que labora en la Auditoria General.

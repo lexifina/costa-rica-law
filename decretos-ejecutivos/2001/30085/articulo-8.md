@@ -1,0 +1,1 @@
+Artículo 8º—El Subauditor Interno es el colaborador inmediato y subalterno del Auditor General. Responde por su gestión ante esta autoridad o ante el Ministro, cuando ejerza temporalmente el cargo en ausencia del Auditor General.

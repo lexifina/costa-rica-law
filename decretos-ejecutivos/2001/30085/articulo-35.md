@@ -1,0 +1,1 @@
+Artículo 35.—Será de exclusiva responsabilidad del Ministro el implantar las recomendaciones de los informes de la Auditoria General, recomendaciones y disposiciones de la Contraloría General de la República y de las firmas independientes de contadores públicos autorizados.

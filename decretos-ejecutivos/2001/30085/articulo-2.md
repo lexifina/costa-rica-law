@@ -1,0 +1,1 @@
+Artículo 2º—La Auditoria General es parte integral y vital del sistema de control interno del Ministerio, la cual tendrá como función primordial la comprobación del cumplimiento, la suficiencia y validez del mencionado sistema.

@@ -1,0 +1,1 @@
+Artículo 27.—Durante el desarrollo de la auditoria o estudio especial, la Auditoria preparará y enviará a quien corresponda, memorandos y oficios sobre hechos y otra información pertinente obtenida en el desarrollo de la labor de campo, cuando la limitada relevancia e implicaciones del asunto lo justifique, a juicio del Auditor General.
