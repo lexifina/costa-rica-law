@@ -1,2 +1,0 @@
-Artículo 6°—De los Concursos de Ofertas
-Cuando una contratación deba realizarse por medio de Concurso de Ofertas, entendiéndose por esto la Licitación Pública, Licitación por Registro, Licitación Restringida, esta deberá cumplir con los trámites establecidos en la Ley de Contratación Administrativa y su reglamento.
