@@ -1,0 +1,1 @@
+Artículo 5°—Los plazos por día incluyen los naturales, a menos que se indique lo contrario en un caso concreto. Empero, si el día final de un plazo fuera inhábil, se tendrá por prorrogado hasta el día hábil siguiente.

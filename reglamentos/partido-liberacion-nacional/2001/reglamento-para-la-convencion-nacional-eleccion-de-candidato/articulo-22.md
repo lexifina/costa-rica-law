@@ -1,0 +1,1 @@
+Artículo 22.—Si la gestión fuere declarada con lugar, se anulara la inscripción del o los candidatos afectados. La resolución que dicte el Tribunal en las gestiones de exclusión de candidatos, tendrá el recurso de reconsideración ante el mismo Tribunal.

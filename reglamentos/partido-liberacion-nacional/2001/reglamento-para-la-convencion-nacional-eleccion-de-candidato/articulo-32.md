@@ -1,0 +1,2 @@
+Artículo 32. —La documentación electoral deberá ser revisada por el Presidente de la junta respectiva, en unión de los demás miembros que pudieren ser convocados, dos días antes de la fecha de las votaciones. El resultado de esta revisión debe ser comunicado al Tribunal o a su Delegado.
+Si al efectuar la revisión se detecta tallante de alguna de la documentación electoral, una vez comunicado, el Tribunal procurara reponerlo antes del inicio de la votación.

@@ -1,0 +1,1 @@
+Artículo 43.—Será responsabilidad del presidente de la junta hacer llegar la bolsa con la documentación electoral a la mayor brevedad posible al Delegado Cantonal del Tribunal, sin perjuicio de que este Órgano dicte o tome en su oportunidad las medidas que considere oportunas para facilitar este traslado a través del territorio nacional-

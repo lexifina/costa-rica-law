@@ -1,0 +1,3 @@
+Artículo 8°—En caso de muerte o incapacidad física o legal del Candidato (a) electo (a) en la Convención Nacional antes del vencimiento de inscripción de Candidaturas ante el Registro Civil, será la Asamblea Plenaria quien designe su sustituto debiendo ser éste(a) ratificado(a) por la Asamblea Nacional.
+En los casos de fallecimiento de candidatos (as) a diputado (a), regidor (a) o síndico (a), serán la Asamblea Nacional , las asambleas cantonales, las que hagan la sustituciones correspondientes.
+Si las incapacidades se dieren con respecto a los Candidatos a las Vicepresidencias, será la asamblea Nacional quien ratifique el sustituto, a propuesta del Candidato a la Presidencia.

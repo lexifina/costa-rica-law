@@ -1,0 +1,2 @@
+Artículo 17.—Las solicitudes de inscripción se harán ante el Tribunal de Elecciones Internas, a quien corresponde velar porque se cumpla con los requisitos y exigencias indicados en los artículos anteriores.
+El Tribunal de Elecciones Internas del Partido, dentro de los siguientes treinta días de vencido el periodo de inscripción dictará la resolución correspondiente, aceptando o rechazando las solicitudes de inscripción.

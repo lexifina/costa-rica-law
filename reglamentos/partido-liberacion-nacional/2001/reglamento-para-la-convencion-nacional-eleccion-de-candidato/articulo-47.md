@@ -1,0 +1,1 @@
+Artículo 47.- El Tribunal hará la declaratoria oficial de elección del Candidato, a la Presidencia de la República , dentro de los 30 días siguientes, de los diputados (as) dentro de los 45 días siguientes, de los regidores (as) y síndicos (as) dentro de los sesenta días siguientes a la fecha de las votaciones.

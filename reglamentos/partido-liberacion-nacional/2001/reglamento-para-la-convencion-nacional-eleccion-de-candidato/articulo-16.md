@@ -1,0 +1,1 @@
+Artículo 16.—En incumplimiento de las disposiciones contenidas en este capitulo dejara sin electo la inscripción, eliminándose inmediatamente por parte del Tribunal de Elecciones Internas. Lo anterior sin perjuicio de otras sanciones que resulten pertinentes.

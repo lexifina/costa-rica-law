@@ -1,0 +1,2 @@
+Artículo 14.—La inscripción conlleva la obligación ineludible de contribuir económicamente a los costos del proceso, según el presupuesto que para tal efecto elabore el tribunal de Elecciones Internas. La contribución será por partes iguales entre todos los precandidatos inscritos.
+Lo anterior es aplicable a los candidatos a diputados (as), a regidores (as) y a síndicos (as), según el presupuesto aprobado en lo que a estos candidatos concierne. Las sumas que se cancelen no son reembolsables.

@@ -1,0 +1,2 @@
+Artículo 51.—Los Miembros del Tribunal, así como sus delegados Distritales, Cantonales y Provinciales, resolverán en primera instancia las diferencias y los conflictos que se presenten en el curso del proceso electoral, para lo cual podrán ingresar en cualquier momento al recinto electoral, sin perjuicio de lo que en definitiva resuelva el Tribunal.
+Las decisiones de los delegados tendrán apelación ante el Tribunal, dentro del tercer día hábil, con efecto suspensivo, salvo que el Tribunal resuelva no suspender los efectos del acto impugnado.

@@ -1,0 +1,2 @@
+Artículo 35. — Podrán votar todos los liberacionistas, mayores, de edad, debidamente inscritos en el padrón nacional oficial del Registro Civil, al corte de fecha 31 de setiembre del 2000, y si las circunstancias lo permiten al 31 de diciembre del 2000. Las personas que fueren incluidas en el padrón nacional oficial después de esa fecha, no podrán votar.
+El voto deberá emitirse en el centro de votación correspondiente al distrito electoral donde aparezca inscrito el elector.

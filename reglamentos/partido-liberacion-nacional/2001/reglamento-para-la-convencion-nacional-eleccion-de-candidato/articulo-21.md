@@ -1,0 +1,1 @@
+Artículo 21.—De la demanda de exclusión se dará audiencia de tres días a las partes con interés legítimo en el proceso, quienes dentro de este mismo plazo, deberán contestarla ofreciendo a su vez en ese mismo acto la prueba pertinente.

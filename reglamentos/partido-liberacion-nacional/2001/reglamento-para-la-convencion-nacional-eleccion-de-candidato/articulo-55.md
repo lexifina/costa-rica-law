@@ -1,0 +1,4 @@
+Artículo 55.—En lo no previsto en este reglamento, se aplicará supletoriamente el Estatuto del Partido Liberación Nacional, el Código Electoral, la Ley Orgánica del Tribunal Supremo de Elecciones y del Registro Civil, las resoluciones que sobre la materia haya emitido el Tribunal Supremo de Elecciones, el Reglamento Interno del Tribunal de Elecciones Internas, el Reglamento del Cuerpo de Delegados del Tribunal de Elecciones Internas y la legislación común, en cuanto sean racionalmente aplicables a los procesos internos del Partido.
+Cualquier duda que se produzca en la aplicación de este reglamento será resuella por el Tribunal de Elecciones Internas.
+Aprobado mediante acuerdo firme del Tribunal de Elecciones Internas, en sesión celebrada el 18 de setiembre del año 2000, y revisado en sesión extraordinaria 7-2001 del viernes 19 de enero del 2001. Rige a partir de su aprobación.
+San José. 28 de febrero del 2001.

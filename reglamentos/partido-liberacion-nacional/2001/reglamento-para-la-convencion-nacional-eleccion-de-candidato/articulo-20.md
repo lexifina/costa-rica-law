@@ -1,0 +1,2 @@
+Artículo 20.—Las gestiones de exclusión de candidatos deberán ser planteadas directamente al Tribunal dentro de los 3 días siguientes al vencimiento del periodo para inscripciones. Tales gestiones indicarán, en forma clara y concreta, los hechos y circunstancias en que se fundamenten; además, deberán venir acompañadas de la prueba correspondiente e indicar el domicilio exacto de la o las personas afectadas con la gestión.
+La demanda que no cumpla estos requisitos, así como la que sea evidentemente improcedente, será rechazada de plano.

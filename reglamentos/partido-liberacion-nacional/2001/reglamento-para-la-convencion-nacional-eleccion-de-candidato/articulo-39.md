@@ -1,0 +1,1 @@
+Artículo 39. —Los discapacitados que así lo soliciten y los que padecieren algún impedimento físico que no les permita votar secretamente, podrían votar en forma pública. En tales casos, el presidente, en presencia de los demás miembros, marcara la papeleta conforme a la voluntad del elector.

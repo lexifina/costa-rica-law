@@ -1,0 +1,1 @@
+Artículo 29. —El Tribunal designará un Presidente y un Secretario, en forma alterna entre los miembros de mesa de las tendencias representadas en cada junta, o en forma discrecional cuando sea necesario para el buen funcionamiento de la junta.

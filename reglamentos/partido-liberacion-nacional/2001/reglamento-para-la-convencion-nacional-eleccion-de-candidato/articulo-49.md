@@ -1,0 +1,1 @@
+Artículo 49.— Sin perjuicio de las decisiones correctoras que el Tribunal ordene para el normal desarrollo del proceso, en los casos previstos en el articulo anterior, el asunto será puesto en conocimiento del Tribunal de Rica y Disciplina, para lo de su cargo.

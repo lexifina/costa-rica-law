@@ -1,0 +1,1 @@
+Artículo 19.—No podrá ser electo como Candidato del Partido a la Presidencia de la República , quien hubiere ejercido durante el año anterior a la Convención Nacional todo o parte de ese periodo, funciones dentro del Comité Ejecutivo Superior Nacional o la Presidencia del Directorio Político Nacional o las Secretarias de Organización o Electorales.

@@ -1,0 +1,1 @@
+Artículo 53. —Si no fuere del caso rechazar de plano la pretensión, el Tribunal correrá traslado por tres días hábiles a las partes con interés legitimo en el proceso y, una vez transcurrida la audiencia, resolverá la cuestión.

@@ -1,0 +1,1 @@
+Artículo 18.—-Según lo establece el artículo 119 del Estatuto del Partido, la resolución que dicte el Tribunal de Elecciones Internas, tendrá recurso de reconsideración para ante el mismo Tribunal. Dicho recurso deberá interponerse en un plazo de tres días hábiles, posteriores a la notificación de la resolución. Se exceptúan de esta norma las declaratorias de elección.

@@ -1,0 +1,1 @@
+Artículo 11.—Las Tendencias podrán acreditar hasta dos fiscales ante el Tribunal. Todas las reclamaciones o gestiones de las tendencias se canalizarán por medio del candidato o de sus respectivos fiscales.

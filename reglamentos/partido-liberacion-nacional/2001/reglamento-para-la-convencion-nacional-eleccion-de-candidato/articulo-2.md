@@ -1,0 +1,4 @@
+Artículo 2°—De conformidad con el Estatuto del Partido la organización, dirección y vigilancia de la Convención Nacional corresponde al Tribunal de Elecciones internas, el cual podrá nombrar Delegados en todo el País, cuyo ámbito de acción y funciones, son los determinados por el Tribunal en el Reglamento correspondiente.
+El Tribunal de Elecciones Internas, contará con la colaboración de la Secretaria de Asuntos Electorales y demás Órganos del Partido, en el ejercicio de sus funciones.
+Para los efectos del artículo 74 párrafo tercero del Código Electoral, el Tribunal actuará bajo la responsabilidad del Comité ejecutivo Nacional en lo que corresponde a la organización v dirección de los procesos electorales.
+Se entenderá que cuando se mencione "Tribunal'' en este Reglamento, se refiere al Tribunal de Elecciones Internas. Asimismo cuando se mencione la palabra "junta". se refiere a las ¡untas receptoras de votos.

@@ -1,0 +1,1 @@
+Artículo 41. —A las dieciocho horas se terminará la recepción de votos, aunque hubiere electores en fila y se cerrará el recinto. Acto seguido, con asistencia de los fiscales (si los hubiere), la junta procederá de la siguiente manera:

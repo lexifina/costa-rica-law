@@ -1,0 +1,4 @@
+Artículo 52.— Las acciones de nulidad contra los actos del proceso se presentaran ante el 'tribunal dentro de los tres días hábiles siguientes.
+La petición deberá ser suscrita por lo menos por el quince por ciento de los votantes de la respectiva junta.
+El escrito inicial de las demandas de nulidad o de las denuncias sobre irregularidades, deberá contener, bajo pena de in admisibilidad, los nombres y calidades de las parles, los hechos en que se fundamente, los quebrantos legales o reglamentarios acusados, la pretensión formulada, el ofrecimiento de pruebas y el señalamiento de lugar donde atender notificaciones dentro del perímetro judicial de San José, incluyendo la Casa Liberacionista José Figueres Ferrer (Balcón Verde).
+La gestión que omita los requisitos aquí establecidos o que sea manifiestamente improcedente, será rechazada de plano.
