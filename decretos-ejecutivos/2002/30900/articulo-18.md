@@ -1,0 +1,1 @@
+Artículo 18.—La convocatoria ordinaria para la distribución de todos los contingentes a que se refiere el presente Reglamento, será consultada según lo establecido en el artículo 6º de la Ley de la Promoción de la Competencia, Ley N° 7472 de 20 de diciembre de 1994.

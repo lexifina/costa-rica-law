@@ -1,0 +1,1 @@
+Artículo 15.—Verificación de la información. Toda información suministrada por los solicitantes estará sujeta a verificación por parte de COMEX, quien podrá descalificar cualquier solicitud que contenga errores u omisiones graves.

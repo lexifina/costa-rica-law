@@ -1,0 +1,1 @@
+Artículo 6º—Plazos. Las importaciones que se realicen al amparo de las asignaciones de contingentes de importación a que se refiere este Reglamento deberán efectuarse en el período comprendido entre la fecha de publicación de la resolución que asigna los contingentes y el 31 de diciembre del año calendario en que se hizo la asignación.
