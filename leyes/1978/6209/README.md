@@ -1,6 +1,6 @@
 # Ley de Protección al Representante de Casas Extranjeras
 
-Ley N° 6209 del 1978-03-09. SINALEVI, ficha 6003: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6003&param2=6374&param3=1>.
+Ley N° 6209 del 1978-03-09. SINALEVI, ficha 6003: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6003&param2=6375&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 4 | 1978-03-09 | Ley 6209 | 1978-03-09 |
 | 2 de 4 | 1979-06-07 | Ley 6333 | 1978-03-09 |
+| 3 de 4 | 2000-11-22 | Sala Constitucional, resolución 10 (2000-11-22) | 2000-11-22 |
