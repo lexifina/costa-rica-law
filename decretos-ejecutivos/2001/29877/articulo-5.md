@@ -1,0 +1,1 @@
+Artículo 5º—En caso de violación a las disposiciones establecidas en el presente Decreto se aplicarán las sanciones y medidas especiales, señaladas en la Ley General de Salud, leyes y reglamentos conexos vigentes.

@@ -1,0 +1,1 @@
+Artículo 3º—Se autorizará el registro, importación, y uso de materia prima o producto elaborado de PCP y Na-PCP para cualquier uso científico o de análisis, sólo previo estudio de caso y autorización del Ministerio de Salud.

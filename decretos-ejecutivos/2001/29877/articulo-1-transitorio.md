@@ -1,0 +1,1 @@
+Transitorio único.—Se otorga el plazo máximo de seis meses, contados a partir de la publicación del presente Decreto, para que las personas físicas y jurídicas que dispongan en su poder productos con pentaclorofenol, gasten sus existencias.
