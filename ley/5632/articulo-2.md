@@ -1,5 +1,5 @@
-ARTICULO 2.- El Convenio Cooperativo o en su defecto la
-Municipalidad de San José, previa recomendación de la Asociación de
-Desarrollo Comunal, nombrará el personal capacitado que se encargará de
-recolectar la cuota lo cual se hará en una caseta construida previamente
-en la entrada del sitio de ubicación del depósito de basuras.
+ARTICULO 2º.- Para determinar la suma fija a pagar por el Convenio
+Cooperativo Intermunicipal, la Contraloría General de la República deberá
+revisar los estudios de costos, cada dos años, y certificar anualmente el
+monto de ellos, a efecto de que las municipalidades signatarias incluyan
+las sumas respectivas en los presupuestos ordinarios.
