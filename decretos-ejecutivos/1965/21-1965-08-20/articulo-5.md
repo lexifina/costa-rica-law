@@ -1,1 +1,0 @@
-Artículo 5°-Las sesiones serán privadas y a ellas concurrirá, aparte de los miembros de la Comisión Técnica, el Secretario de Actas. A requerimiento de dicha Comisión, podrán asistir otras personas que por sus conocimientos técnicos o por la vinculación con el asunto en estudio, se encuentren en posibilidad de aportar mejores elementos de juicio para resolverlo.

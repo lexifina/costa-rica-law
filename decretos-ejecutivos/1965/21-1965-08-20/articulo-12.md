@@ -1,1 +1,0 @@
-Artículo 12.-El recurso deberá sustanciarse en papel sellado de un colón o con el reintegro correspondiente en timbres fiscales y con los demás timbres que fuere del caso cancelar; además deberá acompañarse el escrito con tres pliegos de ese valor, para proveer. La apelación que omitiere uno sólo de esos requisitos será rechazada de plano.

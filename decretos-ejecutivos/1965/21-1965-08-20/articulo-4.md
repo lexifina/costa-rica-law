@@ -1,1 +1,0 @@
-Artículo 4°-En el conocimiento y resolución de los asuntos propios de su competencia, la Comisión Técnica de Transportes aplicará las disposiciones de la Ley N° 3503 del 10 de mayo de 1965 y las de este Reglamento, atendiendo previamente a los estudios e informes que le suministre la Dirección General de Transporte Automotor.

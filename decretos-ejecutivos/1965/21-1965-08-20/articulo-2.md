@@ -1,1 +1,0 @@
-Artículo 2°-Esta Comisión tendrá como funciones específicas, el conocimiento, tramitación y resolución en primera instancia, de los asuntos relativos a las concesiones de derechos de línea, y aquellos otros que someta a su conocimiento el Director General de Transporte Automotor. Se le proveerá del personal administrativo que fuere necesario.
