@@ -1,0 +1,3 @@
+Artículo 6°—Adiciónese un párrafo final al Artículo 55 que dirá:
+"Artículo 55—...
+Corresponderá al jerarca de la dependencia otorgar licencias con o sin goce de salario hasta por un mes, de las establecidas en este Reglamento, el Estatuto de Servicio Civil y su Reglamento."

@@ -1,0 +1,3 @@
+Artículo 13. —Adicionar el siguiente numeral al Artículo 115:
+"Artículo 115. —...
+17) Aquel funcionario que utilice un vehículo del Ministerio e incurra en alguna de las prohibiciones que establece el Artículo 234 de la Ley de Tránsito."

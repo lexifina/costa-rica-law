@@ -1,0 +1,3 @@
+Artículo 10. —Modificar el Artículo 107 inciso 11) que en lo sucesivo dirá:
+"Artículo 107. —...
+ll) Cumplir con todas las responsabilidades que se le confieren y las establecidas por el ordenamiento jurídico."
