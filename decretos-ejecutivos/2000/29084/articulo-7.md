@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión elegirá a varios de sus miembros para desempeñar los siguientes puestos por un período de dos años, pudiendo ser re-electos: Presidente (a), Secretario(a), Tesorero(a), y Fiscal.

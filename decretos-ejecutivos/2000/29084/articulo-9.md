@@ -1,0 +1,1 @@
+Artículo 9º—A las sesiones de la Comisión podrán asistir en calidad de invitados (as), representantes de organismos o personas a quienes la Comisión estimare convenientes, los cuales tendrán derecho a voz, pero no a voto.
