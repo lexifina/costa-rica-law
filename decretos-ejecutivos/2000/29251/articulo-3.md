@@ -1,0 +1,1 @@
+Artículo 3º—Con el fin de proteger el ambiente, deberá observarse que el corte de los árboles y otra vegetación sea lo estrictamente necesario asegurando con ello el mantenimiento de zonas naturales cuya existencia es vital para los intereses colectivos.
