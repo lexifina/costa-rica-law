@@ -1,0 +1,4 @@
+Primera licitación
+Artículo 9°-Habrá una primera licitación dividida en dos etapas, a saber:
+a. En la primera etapa pueden participar libremente todas las personas físicas y jurídicas autorizadas por la Ley para adquirir dichas acciones, de conformidad con los porcentajes que, para cada una de las entidades o personas nacionales, establece la Ley y observando las limitaciones prescritas en el artículo 13 de este Reglamento.
+b. La segunda etapa tendrá lugar si hubiere un remanente de acciones sin adjudicar en la primera. En esta etapa solo podrán participar quienes hubieren resultado adjudicatarios de, al menos, una acción en la etapa anterior, y hubieren manifestado expresamente en la oferta, el interés en aumentar su participación. El remanente de las acciones será adjudicado, observando las limitaciones establecidas en el artículo 13 de este Reglamento y en proporción a las ya adquiridas en la primera etapa, sobre el total de las acciones en venta. .

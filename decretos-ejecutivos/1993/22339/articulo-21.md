@@ -1,0 +1,4 @@
+Entidad o persona nacional
+Artículo 21.-Para definir la entidad o persona nacional, se atenderá a las siguientes reglas:
+a. Cuando se trate de personas jurídicas, ya sean sociedades mercantiles, asociaciones civiles u organizaciones sociales, ya sean ellas: sindicatos, cooperativas, Asociaciones solidaristas, asociaciones de desarrollo integral y asociaciones de pequeños productores, se tendrá por demostrada la condición de nacional, mediante certificación del registro público correspondiente, que demuestre la circunstancia que la entidad haya sido registrada en el país y mediante certificación notarial, que demuestre que la propiedad de las acciones pertenecen en forma mayoritaria, a costarricenses, o bien, que la mayoría de sus asociados son costarricenses.
+b. Cuando se trate de una persona física, la condición de nacional, ya sea por nacimiento o por naturalización, se demostrará mediante la exhibición de la cédula de identidad del participante.

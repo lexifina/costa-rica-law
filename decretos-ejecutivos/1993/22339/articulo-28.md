@@ -1,0 +1,5 @@
+Efectos de la participación de personas no autorizadas
+Artículo 28.-1. Si se determina que personas, físicas o jurídicas o grupos de éstas, no autorizadas a participar en el proceso de venta de las acciones de CEMP ASA y de FERTICA, en los términos señalados por la Ley y el presente Capítulo, intervienen en él, se debe proceder de la siguiente forma:
+a. en el período antes de la adjudicación, se debe rechazar la oferta.
+b. si las acciones ya han sido adjudicadas, pero todavía no se han traspasado efectivamente o habiéndolo sido, CODESA declarará en vía administrativa, la nulidad absoluta del acto que corresponda en cada caso, de conformidad con el artículo 4 de la Ley que se reglamenta y de acuerdo con lo dispuesto en los artículos 173, 174 y concordantes de la Ley General de-Ia Administración Pública, previa audiencia al interesado.
+2. El rechazo de plano, antes de adjudicar, o el procedimiento de anulación de la adjudiciación ya realizada, en los términos indicados en el acápite anterior de este numeral, podrá instaurarse de oficio o a petición de parte interesada.

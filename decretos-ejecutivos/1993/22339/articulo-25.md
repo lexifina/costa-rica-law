@@ -1,0 +1,2 @@
+Pequeños inversionistas y productores agrícolas y pecuarios
+Artículo 25. -Para efectos de lo establecido en los artículos 13, 17, incisos f) y h) Y 22 del presente Reglamento, las expresiones "pequeños inversionistas" y "pequeños productores agrícolas y pecuarios", comprenden a toda persona física o jurídica nacional en los términos precisados en el artículo 21 de este Reglamento, que ofrezca adquirir hasta el cuarto del uno por ciento (0,25%) del capital accionaría de cualesquiera de las empresas en venta.

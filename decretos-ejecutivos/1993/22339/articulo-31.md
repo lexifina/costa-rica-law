@@ -1,0 +1,8 @@
+Sección II: Del Cartel
+Generalidades y publicación del cartel
+Artículo 31.-1. CODESA debe elaborar el cartel de cada licitación, que contendrá las normas, condiciones, requisitos y trámites que deben cumplir los interesados para participar en la adjudicacion de las acciones de las compañías en venta.
+2. El indicado cartel deberá ser aprobado por la Contraloría General de la República, en los términos y dentro del plazo previsto por el artículo 55, inciso c) de la Ley número 6955 de 24 de febrero de 1984.
+3. Cumplido el trámite señalado en el acápite anterior, CODESA debe publicar el cartel en el Diario Oficial "La Gaceta". Las condiciones o especificaciones técnicas, podrán figurar en documento separado. Ambos estarán a disposición de los interesados, a partir de la fecha de esa publicación, en la dirección que allí se indique, previo pago en efectivo, del precio fijado.
+4. La publicación se hará por una sola vez en el Diario Oficial. Al día siguiente de realizada, se mandará a publicar en, al menos, dos de los diarios de mayor circulación nacional. Inmediatamente después, se publicará el cartel en la prensa escrita local y se comunicará un extracto de él, mediante cuñas radiales, que inviten a los grupos y personas a participar, utilizando para lo anterior, los medios de comunicación locales, que cubran, según el caso, la ciudad de Puntarenas y el Distrito de Colorado de Abangares.
+5. En todo caso, la fecha que se tomará como referencia para todos los efectos legales, es la de la publicación del cartel en el Diario Oficial.
+6. Entre la fecha de publicación del cartel en "La Gaceta" y el día de apertura de las ofertas, excluyendo ambas, deberá mediar un plazo no mayor de cuarenta días, ni menor de veinte días hábiles.

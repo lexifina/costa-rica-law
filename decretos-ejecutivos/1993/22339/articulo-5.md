@@ -1,0 +1,3 @@
+Derecho a las utilidades.
+Artículo 5°-1. CODESA tendrá derecho a las utilidades que generen las empresas en venta, hasta el traspaso de sus acciones. Para estos efectos, CODESA y el o los adquirentes de las acciones, tendrán derecho a las utilidades, calculadas en proporción al número que cada quien tenga y al tiempo que una o los otros, hayan ejercido la propiedad de las acciones, durante el período fiscal correspondiente.
+2. Para los efectos de determinar el monto de las utilidades que corresponden proporcionalmente a CODESA, cada empresa deberá presentar, los estados financieros auditados, al finalizar cada licitación.

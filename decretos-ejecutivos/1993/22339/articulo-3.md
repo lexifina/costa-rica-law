@@ -1,0 +1,2 @@
+Exención del control de la Autoridad Presupuestaria
+Artículo 3°-A partir de la entrada en vigencia del presente Reglamento, y exclusivamente referido a las funciones y operaciones que se realicen para la venta de las acciones de sus subsidiarias, CODESA estará exenta de los controles y regulaciones de la Autoridad Presupuestaria, sin perjuicio de la vigilancia y supervisión, que por Ley corresponde, de la Contraloría General de la República.

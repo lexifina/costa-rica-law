@@ -1,0 +1,2 @@
+Contratación alternativa o complementaria
+Artículo 60.-Las comisiones ejecutoras de CEMPASA y de FERTICA, alternativa o complementariamente a lo dispuesto en los artículos 58 y 59, ambos del presente Reglamento, pueden ejecutar, hacer cumplir o apoyarse técnica o administrativamente, en uno o más contratos de administración y servicios, con una o más empresas, a las cuales puede confiar algunas o todas las funciones del Director Ejecutivo, a que se hace mención en el artículo anterior y el artículo 57 de este Reglamento.

@@ -1,0 +1,2 @@
+Exclusión entre sí de entidades o personas
+Artículo 18. -Las entidades y personas nacionales, indicadas en cada inciso del artículo anterior, como legitimadas para participar en la compra de acciones de las empresas en venta, son excluyentes entre sí, de forma tal, que cada entidad o persona, solo podrá participar por una de las categorías y con opción a comprar las acciones asignada a ella, en caso de que califique en más de una de éstas. Exclusión por vinculación económica.

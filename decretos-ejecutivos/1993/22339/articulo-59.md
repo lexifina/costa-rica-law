@@ -1,0 +1,5 @@
+Director Ejecutivo de las comisiones ejecutoras
+Artículo 59.-1. Las comisiones ejecutoras de CEMPASA y de FERTICA podrán nombrar un Director Ejecutivo, común para ellas, que será el superior administrativo del personal de apoyo de las comisiones y a quien le corresponderá ejecutar los acuerdos y decisiones de aquellas, así como apoyarlas para el fiel cumplimiento de las funciones a su cargo, según el artículo 57 de este Reglamento.
+2. El Director Ejecutivo será nombrado por la reunión conjunta de los miembros de ambas comisiones ejecutoras, a propuesta del Ministro de Economía, Industria y Comercio. De la designación del citado Director, se informará al Consejo de Administración de CODESA.
+3. Para todos los efectos, el superior jerárquico del Director Ejecutivo, estará constituido por la reunión de ambas comisiones ejecutoras.
+4. El Director Ejecutivo será contratado por un plazo determinado, en virtud del carácter temporal del mandato de las comisiones ejecutoras, y su remuneración será acorde con el alto nivel ejecutivo y profesional que debe tener.
