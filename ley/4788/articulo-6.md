@@ -1,0 +1,29 @@
+Artículo 6º.- Se reforman los artículo 1º, 8º y 11 de la Ley sobre
+Desarrollo de la Comunidad, Nº 3859, para que se lean así:
+"Artículo 1º.- Créase la Dirección Nacional de Desarrollo de la
+Comunidad, con el carácter de órgano del Poder Ejecutivo adscrito a la
+Presidencia de la República, como un instrumento básico de desarrollo
+encargado de fomentar, orientar, coordinar y evaluar la organización de
+las comunidades del país, para lograr su participación activa y
+consciente en la realización de los objetivos del Plan Nacional de
+Desarrollo Económico y Social.
+El Presidente de la República ejercerá las funciones que esta ley
+le confiere conjuntamente con los Ministros de Gobernación y de Cultura,
+Juventud y Deportes".
+"Artículo 8º.- Habrá un Consejo Nacional de Desarrollo de la
+Comunidad, integrado por los siguientes miembros: el Ministro de
+Gobernación, el Ministro de Cultura, Juventud y Deportes; otro Ministro
+de Gobierno designado en cada caso por el Presidente de la República,
+uno del Movimiento Nacional de Juventudes y uno de las Asociaciones de
+Desarrollo de la Comunidad. El representante del Movimiento Nacional
+de Juventudes y el de las Asociaciones de Desarrollo, se nombrarán
+escogiéndolos de ternas que deberán ser solicitadas a esas entidades.
+Cuando las Asociaciones de Desarrollo estén organizadas en escala
+nacional, serán los organismos nacionales los encargados de presentar
+las ternas de los representantes de aquéllas.
+La integración del Consejo se hará por Decreto Ejecutivo".
+Artículo 11.- Los acuerdos del Consejo Nacional de Desarrollo de
+la Comunidad, sancionados por el Presidente de la República y los dos
+Ministros mencionados en el artículo 1º, tendrán carácter obligatorio
+para los Ministerios, en cuanto a sus acciones relacionadas con
+programas de desarrollo comunal".
