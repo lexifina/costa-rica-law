@@ -1,5 +1,2 @@
-Artículo 238.- Todos los actos del Estado Civil que fueren
-inscritos fuera del domicilio de las partes interesados, podrán a
-requerimiento de éstas, ser trascritos al Registro de su domicilio,
-con vista de certificaciones auténticas pasadas por el funcionario
-competente.
+ARTÍCULO 238.- DEROGADO
+(Derogado por la Ley Orgánica del Registro Electoral No. 1535 del 10 de diciembre de 1952).

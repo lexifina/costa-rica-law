@@ -1,3 +1,2 @@
-Artículo 94.- Los efectos de la separación son los mismos que
-los del divorcio, con diferencia de que aquélla no disuelve el
-vínculo.
+ARTÍCULO 94.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

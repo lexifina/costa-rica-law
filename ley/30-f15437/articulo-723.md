@@ -1,2 +1,2 @@
-Artículo 723.- La autoridad de la cosa juzgada se limita a lo
-resolutivo de la sentencia, mas no a sus fundamentos.
+ARTÍCULO 723.- DEROGADO.
+(Derogado por el artículo 8º de la ley No.7130 de 16 de agosto de 1989)

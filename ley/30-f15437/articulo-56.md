@@ -1,9 +1,2 @@
-Artículo 56.- Es anulable:
-1º.- El matrimonio en que uno o ambos cónyuges han consentido
-por error, violencia o miedo grave.
-2º.- El del loco o de cualquiera persona que padezca incapacidad
-mental al celebrarlo.
-3º.- El de la persona menor de quince años.
-4º.- El de los incapaces por impotencia absoluta o relativa para
-la procreación, siempre que el defecto sea por su naturaleza
-perpetuo, incurable y anterior al matrimonio.
+ARTÍCULO 56.- En toda solicitud de cambio o modificación de nombre será oído el Ministerio Público y antes de resolver lo precedente el Tribunal recabará un informe de buena conducta anterior y falta de antecedentes policíacos del solicitante. Igualmente lo hará saber al Ministerio de Seguridad Pública.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 38 al actual).

@@ -1,27 +1,16 @@
-CAPITULO V.
-De las inscripciones provisionales.
-Artículo 468.- Pueden inscribirse provisionalmente:
-1º.- Las demandas sobre propiedad de determinados bienes
-inmuebles, y cualesquiera otras que versen sobre propiedad de
-derechos reales o en que se pida la constitución, declaración,
-modificación o extinción de cualquier derecho real sobre inmuebles.
-2º.- Las demandas sobre cancelación o rectificación de asientos
-del Registro.
-3º.- Las demandas sobre declaración de presunción de muerte,
-incapacidad de administrar y cualquiera otra por la que trate de
-modificarse la capacidad civil de las personas, en cuanto a la libre
-disposición de sus bienes.
-4º.- El decreto de embargo y secuestro de bienes raíces. Esta
-inscripción dura treinta días; si dentro de este término no se
-presenta el embargo hecho para su inscripción, queda cancelada sin
-necesidad de declaratoria ni de asiento.
-5º.- El embargo que se haga en bienes raíces.
-6º.- Los títulos cuya inscripción no pueda hacerse
-definitivamente por faltas subsanales. Esta inscripción dura seis
-meses, y quedará de hecho cancelada si dentro de este término no se
-subsana el defecto.
-Es falta subsanable la que afecta a la validez del título sin
-producir necesariamente la nulidad de la obligación en él
-constituída, o la de no hallarse anteriormente inscrito el dominio
-o derecho de que se trata, a favor de la persona que lo trasfiera o
-grave.
+Capitulo V
+De las Anotaciones Provisionales
+(Modificada su denominación mediante Ley N° 7764 del 17 de abril de 1998)
+ARTÍCULO 468.- Se anotarán provisionalmente:
+1.- Las demandas sobre la propiedad de bienes inmuebles determinados y cualesquiera otras sobre la propiedad de derechos reales o en las que se pida la constitución, declaración, modificación o extinción de cualquier derecho real sobre inmuebles.
+2.- Las demandas sobre cancelación o rectificación de asientos de registro.
+3.- Las demandas sobre declaración de presunción de muerte, incapacidad de administrar y cualquier otra por la cual se trate de modificar la capacidad civil de las personas en cuanto a la libre disposición de sus bienes.
+4.- El decreto de embargos y secuestro de bienes inmuebles, sin necesidad de practicar la diligencia de secuestro.
+5.- Los títulos que no puedan inscribirse definitivamente por cualquier defecto que lo impida. Esta anotación provisional tendrá una vigencia de un año y quedará cancelada de hecho si dentro de este término no se subsanare el defecto.
+(NOTA: De acuerdo con el Transitorio IX del Código de Notariado No.7764, esta disposición empezó a regir el 22 de febrero de 1999. Respecto de las anotaciones anteriores a esa fecha, el término de caducidad será de cinco años, contados a partir de la vigencia del Código, es decir, hasta el 22 de noviembre del año 2003)
+La vigencia de las anotaciones contempladas en los incisos 1), 2), 3) y 4) de este artículo, será determinada de acuerdo con el término de la prescripción extintiva correspondiente a la obligación o el derecho de que se trate. Estas anotaciones provisionales no impiden la inscripción de documentos presentados con posterioridad. Transcurrido dicho término, quedan canceladas sin necesidad de declaratoria ni de asiento. Este tipo de anotaciones se considerará como un gravamen pendiente en la propiedad.
+Cualquier adquirente de un bien anotado aceptará, implícitamente, las resultas del juicio y el registrador lo consignará así en el asiento respectivo, al inscribir títulos nuevos.
+El plazo de caducidad al que se refiere el inciso 5) de este artículo se suspende cuando el registrador solicite el cotejo administrativo establecido en el artículo 125 del Código Notarial, mientras el Archivo Notarial no se pronuncie; cuando se presente algún recurso contra la calificación del registrador; cuando sea necesaria la comparecencia ante un órgano jurisdiccional, para subsanar el defecto y cuando el documento sometido a calificación, por su complejidad, no pueda cumplir este trámite dentro del plazo fijado por la ley. El criterio para determinar la complejidad de los títulos presentados al Registro se determinará en el reglamento respectivo.
+En ningún caso, la suspensión del plazo de caducidad podrá exceder de tres meses contados desde la fecha de vencimiento original, salvo si se hubieren interpuesto recursos contra la calificación registral en cuyo caso, el plazo de caducidad se reactivará desde la fecha de la notificación de la resolución definitiva del recurso correspondiente.
+La anotación provisional será cancelada por el registrador al determinar la caducidad e inscribir nuevos títulos.
+(Así reformado por el artículo 178, inciso b), del Código Notarial No.7764 de 17 de abril de 1998)

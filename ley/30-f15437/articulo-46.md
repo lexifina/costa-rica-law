@@ -1,7 +1,3 @@
-Artículo 46.- Si el ausente parece o se prueba su existencia
-durante la posesión provisional, cesarán los efectos de la
-declaración de ausencia, sin perjuicio, si hay lugar, de dictarse las
-medidas prescritas en el capítulo primero de este título.
-Si el ausente parece o se prueba su existencia después de la
-posesión definitiva, recobrará los bienes en el estado en que se
-hallen y el precio de los que hubieren sido enajenados.
+ARTÍCULO 46.- Toda persona puede negarse a ser sometida a un examen o tratamiento médico o quirúrgico, con excepción de los casos de vacunación obligatoria o de otras medidas relativas a la salud pública, la seguridad laboral y de los casos previstos en el artículo 98 del Código de Familia.
+Sin embargo, si una persona se niega a someterse a un examen médico, que sea necesario para acreditar en juicio ciertos hechos controvertidos, el Juez puede considerar como probados los hechos que se trataban de demostrar por la vía del examen.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 28 al actual).

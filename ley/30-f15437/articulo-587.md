@@ -1,15 +1,4 @@
-Artículo 587.- El testamento cerrado puede no estar escrito por
-el testador, pero ha de estar firmado por él. Lo presentará después,
-cerrado y sellado, al cartulario, quien extenderá en la cubierta del
-testamento una escritura en que consten: 1º que el testamento
-encerrado en la cubierta fué presentado por el mismo testador; 2º las
-declaraciones de éste sobre el número de fojas que contiene el
-testamento, sobre si está escrito y firmado por él y sobre si el
-testamento tiene algún borrón, enmienda, entrerrengladura o nota
-marginal. Esta escritura será firmada por el cartulario, testador y
-tres testigos presenciales de todo el acto; si el testador, en el
-acto de extender la cubierta, se hallare impedido para firmar, asi
-lo hará constar el cartulario. Concluída la diligencia debe
-devolverse el testamento al testador.
-El ciego y el que no sepa escribir no pueden hacer testamento
-cerrado.
+ARTÍCULO 587.- El testamento cerrado puede no ser escrito por el testador, pero debe estar firmado por él. Lo presentará en un sobre cerrado al notario público, quien extenderá una escritura en la cual hará constar que el testamento le fue presentado por el mismo testador, sus declaraciones sobre el número de hojas que contiene, si está escrito y firmado por él, y si tiene algún borrón, enmienda, entrerrenglonadura o nota.
+En el sobre, el notario consignará una razón indicadora de que contiene el testamento de quien lo presenta, el lugar, la hora y la fecha de otorgamiento de la escritura, así como el número, el tomo y la página del protocolo donde consta. El notario tomará las providencias necesarias para asegurar que el sobre esté cerrado de tal modo que se garantice su inviolabilidad. Tanto la escritura como la razón deben ser firmadas por el testador, el notario y dos testigos instrumentales. Concluida la diligencia, se devolverá el testamento al testador.
+Quienes no sepan leer ni escribir no pueden hacer testamento cerrado.
+(Así reformado por el artículo 178, inciso b), del Código Notarial No.7764 de 17 de abril de 1998)

@@ -1,9 +1,8 @@
-TITULO II.
-Del dominio.
-CAPITULO I.
-Disposiciones generales.
-Artículo 264.- El dominio o propiedad absoluta sobre una cosa,
-comprende los derechos:
+TÍTULO II
+DEL DOMINIO
+CAPÍTULO I
+Disposiciones generales
+ARTÍCULO 264.- El dominio o propiedad absoluta sobre una cosa, comprende los derechos:
 1º.- De posesión.
 2º.- De usufructo.
 3º.- De transformación y enajenación.

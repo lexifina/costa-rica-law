@@ -1,2 +1,2 @@
-Artículo 86.- El divorcio, una vez judicialmente pronunciado,
-disuelve el vínculo matrimonial.
+ARTÍCULO 86.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,12 +1,4 @@
-Artículo 529.- El término para aceptar la herencia será el de
-tres meses contados desde la publicación en el periódico oficial del
-primer edicto en que se avise estar iniciado el juicio de sucesión
-y se emplace a los interesados en ésta.
-Cuando en autos aparezca el nombre y residencia del heredero,
-no correrá para él el término del emplazamiento, sino desde la fecha
-en que se le notifique personalmente.
-Si no fuere el caso de notificar personalmente al heredero, y
-éste se hallare fuera de la República, el término para aceptar la
-herencia se considerará prorrogado a tres meses más por el solo
-efecto de que aquel que hubiere entrado en posesión de la herencia
-no haga suyos los frutos recibidos.
+ARTÍCULO 529.- El término para aceptar la herencia será de treinta días hábiles, contados desde la publicación, en el Boletín Judicial, del edicto en el que se avise sobre el inicio del proceso de sucesión y se emplace a los interesados en ésta. Cuando aparezcan en autos el nombre y el lugar de residencia del heredero, no correrá para él el término del emplazamiento, sino desde la fecha en la que se le notifique personalmente.
+Si no fuere del caso notificar personalmente al heredero, y éste se hallare fuera de la República, el término para aceptar la herencia se considerará prorrogado por treinta días hábiles más, para el solo efecto de que, si aquél hubiere entrado en posesión de la herencia, no haga suyos los frutos recibidos.
+Rige desde su publicación, hecha en La Gaceta del 17 de junio de 1951, pero los juicios sucesorios que estuvieren iniciados al entrar en vigencia continuarán rigiéndose por las disposiciones legales que existían en el tiempo de su iniciación.
+(Así reformado por el artículo 2º de la ley Nº 7130 de 16 de agosto de 1989.)

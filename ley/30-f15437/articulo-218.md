@@ -1,5 +1,2 @@
-TITULO IX.
-CAPITULO UNICO.
-De la curatela.
-Artículo 218.- Están sujetos a curatela los mayores de edad, y
-los emancipados incapaces incapaces de administrar sus bienes.
+ARTÍCULO 218.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

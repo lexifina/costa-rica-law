@@ -1,3 +1,2 @@
-Artículo 738.- La prueba que resulta de los instrumentos
-públicos se hace por los originales o por medio de copias legalmente
-sacadas de los mismos originales.
+ARTÍCULO 738.- DEROGADO.
+(Derogado por el artículo 8º de la ley No.7130 de 16 de agosto de 1989)

@@ -1,6 +1,5 @@
-CAPITULO III.
-De la prenda.
-Artículo 441.- Para garantizar deuda propia o ajena, puede darse
-en prenda al acreedor una cosa mueble.
-La prenda no garantiza más obligación que aquella para cuya
-seguridad fué constituída.
+CAPÍTULO III
+De la prenda
+(NOTA: Este capítulo fue derogado por el Transitorio 3 de la Ley Nº 5 del 5 de octubre de 1941.)
+ARTÍCULO 441.- DEROGADO
+(Así derogado por el Transitorio 3 de la Ley Nº 5 del 5 de octubre de 1941).

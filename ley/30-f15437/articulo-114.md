@@ -1,2 +1,2 @@
-Artículo 114.- Puede oponerse a la vindicación de estado toda
-prueba, aún la testimonial.
+ARTÍCULO 114.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

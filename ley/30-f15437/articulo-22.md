@@ -1,2 +1,2 @@
-Artículo 22.- Son mayores las personas que han cumplido
-veintiún años; y menores las que no han llegado a esa edad.
+ARTÍCULO 22.- La ley no ampara el abuso del derecho o el ejercicio antisocial de éste. Todo acto u omisión en un contrato, que por la intención de su autor, por su objeto o por las circunstancias en que se realice, sobrepase manifiestamente los límites normales del ejercicio de un derecho, con daño para tercero o para la contraparte, dará lugar a la correspondiente indemnización y a la adopción de las medidas judiciales o administrativas que impidan la persistencia en el abuso.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

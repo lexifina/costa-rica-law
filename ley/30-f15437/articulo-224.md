@@ -1,2 +1,2 @@
-Artículo 224.- El curador de una persona que tenga hijos
-menores, será el tutor de éstos, si es el caso de la tutela.
+ARTÍCULO 224.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,14 +1,2 @@
-Artículo 64.- El funcionario encargado del registro no
-autorizará la celebración de ningún matrimonio, mientras no se le
-presenten:
-1º.- Tres testigos idóneos que declaren sobre la libertad de
-estado y aptitud legal de los contrayentes.
-2º.- Los documentos que demuestren haberse obtenido el
-correspondiente permiso, cuando se trate de personas que lo
-necesiten.
-3º.- La certificación de la partida de nacimiento de los
-contrayentes, y en defecto de ella cualquiera otra prueba que
-demuestre la competencia por razón de edad.
-4º.- La prueba de viudedad si alguno de los cónyuges hubiere
-sido casado; y si se tratare de viuda, la prueba de que puede casarse
-conforme al inciso 2º del artículo 57.
+ARTÍCULO 64.- Los menores y los mayores en curatela tendrán por domicilio el de sus representantes legales.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 46 al actual).

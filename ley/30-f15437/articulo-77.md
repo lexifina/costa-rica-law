@@ -1,14 +1,3 @@
-Artículo 77.- Sin embargo, los bienes existentes en poder de los
-cónyuges, al disolverse el matrimonio, si no se prueba que fueron
-introducidos al matrimonio o adquiridos durante él por título
-lucrativo, se considerarán comunes y se distribuirán por igual entre
-ambos cónyuges.
-No serán comunes, aunque adquiridos durante el matrimonio, los
-bienes existentes al disolverse éste, si se prueba que fueron
-comprados con valores propios de uno de los cónyuges, destinados a
-ello en las capitulaciones matrimoniales; o que la causa o título de
-su adquisición precedió al matrimonio; y si se tratare de inmuebles,
-que fueron debidamente subrogados a otros inmuebles propios de alguno
-de los cónyuges.
-Es permitido renunciar en las capitulaciones a las ventajas de
-la distribución final.
+ARTÍCULO 77.- Si el ausente reaparece o se prueba su existencia, durante la posesión provisional, cesarán los efectos de la declaración de ausencia, sin perjuicio, si hay lugar, de dictarse las medidas prescritas en el capítulo primero de este título.
+Si el ausente reaparece o se prueba su existencia después de la posesión definitiva, recobrará los bienes en el estado que se hallen y el precio de los que hubieren sido enajenados.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 59 al actual).

@@ -1,4 +1,2 @@
-Artículo 200.- El tutor que sucede a otro, recibirá los bienes
-por el inventario anterior y anotará las diferencias.
-Esta operación se hará con las mismas formalidades del
-inventario.
+ARTÍCULO 200.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,3 +1,2 @@
-Artículo 137.- Cuando la madre ejerza la patria potestad, le
-será aplicable todo lo dispuesto en el presente capítulo con relación
-al padre.
+ARTÍCULO 137.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,9 +1,3 @@
-Artículo 43.- Los herederos y demás personas puestas en posesión
-provisional son, respecto del ausente, administradores; respecto de
-terceros serán tenidos como herederos, deben cumplir con las
-obligaciones de tales, y representar judicial y extrajudicialmente
-al ausente; pero no podrán transigir ni comprometer en árbitros los
-negocios que a éste interesen y que valgan más de doscientos
-cincuenta pesos, sin previa autorización judicial, dada en virtud de
-haberse justificado la utilidad o conveniencia de la transacción o
-compromiso.
+ARTÍCULO 43.- Las personas jurídicas por tiempo ilimitado y las que aunque por tiempo limitado no tienen por objeto el lucro no podrán adquirir bienes inmuebles a título oneroso; y los que adquieran a título gratuito serán convertidos en valores muebles dentro de un año contado desde la adquisición. Si no se hiciera la conversión en ese tiempo, el Estado podrá hacerlos rematar judicialmente, entregando a la respectiva entidad el producto líquido de la venta.
+Esta prohibición no comprende al Estado, sus instituciones, Municipalidades y las Asociaciones Cooperativas, ni a los bienes inmuebles que fueren indispensables para el cumplimiento de los fines de las personas jurídicas mencionadas en este artículo.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 25 al actual).

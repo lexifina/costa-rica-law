@@ -1,3 +1,2 @@
-Artículo 937.- Debe también el curador definitivo, dentro de los
-primeros ocho días posteriores a la junta de calificación de
-créditos, promover el expediente de calificación de la insolvencia.
+ARTÍCULO 937- DEROGADO.
+(Derogado por artículo Nº 7º de la Ley Nº 4327 de 17 de febrero de 1969)

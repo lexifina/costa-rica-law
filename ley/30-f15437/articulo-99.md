@@ -1,4 +1,2 @@
-Artículo 99.- En todos los juicios sobre nulidad de matrimonio
-se dará audiencia al ministerio público, y la sentencia que recaiga
-al declararse ejecutoriada, deberá inscribirse en el correspondiente
-registro.
+ARTÍCULO 99.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,4 +1,2 @@
-Artículo 940.- En caso de insolvencia con un solo acreedor, la
-representación del fallido y la administración de los bienes,
-mientras judicialmente se realizan, corresponden a dicho acreedor,
-que tendrá las facultades de un curador provisional.
+ARTÍCULO 940- DEROGADO
+(Derogado por artículo 7º de la Ley Nº 4327 de 17 de febrero de 1969).

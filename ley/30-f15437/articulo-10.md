@@ -1,4 +1,2 @@
-Artículo 10.- No tiene eficacia alguna la renuncia de las leyes
-en general, ni la especial de las leyes de interés público.
-Los actos y convenios contra las leyes prohibitivas serán nulos,
-si las mismas leyes no disponen otra cosa.
+ARTÍCULO 10.- Las normas se interpretarán según el sentido propio de sus palabras, en relación con el contexto, los antecedentes históricos y legislativos y la realidad social del tiempo en que han de ser aplicadas, atendiendo fundamentalmente al espíritu y finalidad de ellas.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

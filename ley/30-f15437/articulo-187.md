@@ -1,4 +1,2 @@
-Artículo 187.- El tutor testamentario puede excusarse sin causa
-de aceptar la tutela; pero si no la admite, o no entra en ejercicio,
-o es removido de ella por su culpa, pierde lo que le haya dejado el
-testador, salvo si éste hubiere dispuesto otra cosa.
+ARTÍCULO 187.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,4 +1,2 @@
-Artículo 947.- En las juntas que tengan por objeto el
-nombramiento de curador, basta la mayoría relativa, quedando electo,
-en consecuencia, el que obtenga mayor número de votos. En caso de
-empate, decidirá el Juez.
+ARTÍCULO 947- DEROGADO.
+(Derogado por Ley Nº 4327 de 17 de febrero de 1969)

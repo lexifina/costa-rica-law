@@ -1,3 +1,2 @@
-Artículo 161.- Los alimentos se pagarán por mensualidades
-anticipadas, y éstas no pueden ser perseguidas por el acreedor del
-alimentario.
+ARTÍCULO 161.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

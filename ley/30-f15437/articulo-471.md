@@ -1,6 +1,8 @@
-CAPITULO VI.
-De la cancelación de inscripciones.
-Artículo 471.- Las inscripciones en el Registro de Propiedad y
-en el de Hipotecas no se extinguen, en cuanto a tercero, sino por su
-cancelación o por la inscripción de la transmisión del dominio o
-derecho real inscrito, a favor de otra persona.
+CAPÍTULO VI
+De la cancelación de inscripciones
+ARTÍCULO 471.- Las inscripciones en el Registro Público solo se extinguen, en cuanto a terceros, por la cancelación o la inscripción de la transmisión del dominio o derecho real inscrito, a favor de otra persona.
+Las hipotecas inscritas, comunes o de cédulas, que aparezcan vencidas por más de diez años sin que el Registro manifieste circunstancias que impliquen gestión cobratoria, reconocimiento del crédito u otra interrupción de la prescripción, no surtirán efectos en perjuicio de terceros después de ese plazo. El registrador, al inscribir nuevos títulos relativos a la finca, hará caso omiso de tales gravámenes y los cancelará.
+Estas circunstancias se harán constar en las cédulas hipotecarias. La vigencia de las anotaciones no contempladas en los artículos anteriores se determinará según el término de la prescripción extintiva correspondiente a la obligación o el derecho de que se trate.
+Cuando se trate de las anotaciones provisionales referidas en los incisos 1), 2), 3) y 4) del artículo 468, dentro de los términos indicados y a fin de interrumpirlos, la parte interesada podrá gestionar la anotación de interrupción, si el juicio respectivo no hubiere fenecido.
+Las hipotecas inscritas y otorgadas para garantizar la administración de la tutela, que aparezcan en cualquier tiempo con más de cuarenta años de constituidas, sin que el Registro manifieste la circunstancia que implique gestión cobratoria, reconocimiento del crédito u otra interrupción de la prescripción, después de ese tiempo, no surtirán efectos en perjuicio de terceros y el registrador, al inscribir nuevos títulos relativos a la finca, hará caso omiso de tales gravámenes y los cancelará.
+(Así reformado por el artículo 178, inciso b), del Código Notarial No.7764 de 17 de abril de 1998)

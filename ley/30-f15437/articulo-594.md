@@ -1,4 +1,4 @@
-Artículo 594.- Las disposiciones en favor de personas inhábiles
+ARTÍCULO 594.- Las disposiciones en favor de personas inhábiles
 son absolutamente nulas, aunque sean hechas simuladamente, o por
 interpuesta persona.
 Se tienen como personas interpuestas los ascendientes,

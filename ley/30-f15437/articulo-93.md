@@ -1,3 +1,2 @@
-Artículo 93.- En caso de demandarse separación por causa
-determinada, se adoptarán las mismas medidas provisionales decretadas
-para mientras dure la instancia de divorcio.
+ARTÍCULO 93.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

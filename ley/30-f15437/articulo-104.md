@@ -1,3 +1,2 @@
-Artículo 104.- La legitimidad de los hijos sólo puede ser
-impugnada por el marido personalmente o por apoderado especialísimo,
-y muerto o declarado ausente el marido, por sus herederos.
+ARTÍCULO 104.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

@@ -1,5 +1,2 @@
-Artículo 574.- En la sucesión legítima se puede suceder por
-derecho propio o por representación. La representación sólo se admite
-en favor de los descendientes del difunto, y de los descendientes de
-los hermanos del causante que serán llamadas en caso de no existir
-otros hermanos.
+ARTÍCULO 574.- Se puede suceder por derecho propio o por representación. Esta sólo se admite en favor de los descendientes del difunto y en favor de los sobrinos.
+(Así reformado por artículo 1 de la Ley Nº 1443 de 21 de mayo de 1952).

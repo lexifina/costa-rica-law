@@ -1,4 +1,2 @@
-Artículo 233.- No habiendo Registro o no hallándose registrados
-dichos actos, o no estándolo en debida forma, podrá admitirse
-cualquiera otra especie de prueba, salvo lo dispuesto sobre filiación
-legítima.
+ARTÍCULO 233.- DEROGADO
+(Derogado por la Ley Orgánica del Registro Electoral No. 1535 del 10 de diciembre de 1952).

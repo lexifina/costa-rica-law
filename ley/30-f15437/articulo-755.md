@@ -1,4 +1,2 @@
-Artículo 755.- Será admisible la prueba testimonial aunque el
-objeto que constituye la materia de la obligación exceda de
-doscientos cincuenta pesos, si el acreedor limita su reclamo a esa
-suma renunciando al exceso.
+ARTÍCULO 755.- DEROGADO.
+(Derogado por el artículo 8º del Código Procesal Civil, ley Nº 7130 de 16 de agosto de 1989.)

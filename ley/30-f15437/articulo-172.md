@@ -1,3 +1,2 @@
-Artículo 172.- El padre o madre que ejerza la patria potestad
-puede, en testamento, nombrar tutor a sus hijos, cuando éstos no
-hayan de quedar sujetos a la patria potestad del padre sobreviviente.
+ARTÍCULO 172.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

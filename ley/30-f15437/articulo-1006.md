@@ -1,3 +1,2 @@
-Artículo 1006.- Cuando alguna ley especial autorice en casos
-particulares el apremio personal, se observarán para su ejecución,
-a falta de disposición en contrario, las que comprende este título.
+ARTÍCULO 1006.- DEROGADO.
+(Derogado por el artículo 69, inciso b), de la Ley de Pensiones Alimentarias No.7654 de 19 de diciembre de 1996)

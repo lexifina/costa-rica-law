@@ -1,5 +1,6 @@
-Artículo 455.- Los títulos sujetos a inscripción que no estén
-inscritos no perjudican a tercero, sino desde la fecha de su
-presentación en el Registro.
-Se considerará como tercero aquel que no ha sido parte en el
-acto o contrato a que se refiere la inscripción.
+ARTÍCULO 455- Los títulos sujetos a inscripción que no estén inscritos no perjudican a tercero, sino desde la fecha de su presentación al Registro.
+Se concederá como tercero aquél que no ha sido parte en el acto o contrato a que se refiere la inscripción.
+No tendrá la calidad de tercero el anotante por crédito personal, respecto de derechos reales nacidos en escritura pública con anterioridad a la anotación del decreto de embargo o de secuestro.
+Sin embargo, si la escritura pública fuera presentada al Registro después de tres meses de su otorgamiento y existiere ya una anotación de embargo, o de secuestro, éstas prevalecerán sobre aquélla, a menos que la persona que derive su derecho de la escritura logre demostrar en juicio ordinario contra el anotante que su derecho es cierto y no simulado, juicio que deberá plantear dentro de los tres meses siguientes a la fecha de presentación de la escritura y respecto del cual regirán las disposiciones del artículo 978.
+Al inscribirse las escrituras por derechos reales presentadas dentro de los tres meses siguientes a su otorgamiento, se prescindirá de las anotaciones o inscripciones de embargo de que se ha hecho mérito sin necesidad de gestión u ocurso, o de resolución que así lo declare, y el Registrador pondrá al margen de los asientos de las referidas anotaciones o inscripciones, razón de haber quedado sin ningún valor ni efecto, en cuanto a los bienes o derechos respectivos, en virtud de lo dispuesto en este artículo.
+(Así reformado por el artículo Nº 1 de la Ley Nº 2928 de 5 de diciembre de 1961).

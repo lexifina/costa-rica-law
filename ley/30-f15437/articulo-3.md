@@ -1,7 +1,2 @@
-Artículo 3º.- Las leyes de la República concernientes al estado
-y capacidad de las personas obligan a los costarricenses para todo
-acto jurídico o contrato que deba tener su ejecución en Costa Rica,
-cualquiera que sea el país donde se ejecute o celebre el acto o
-contrato; y obligan también a los extranjeros, respecto de los actos
-que se ejecuten o contratos que se celebren y hayan de ejecutarse en
-Costa Rica.
+ARTÍCULO 3º- El uso y la costumbre sólo regirán en defecto de ley aplicable, siempre que su existencia haya sido demostrada y no resulten contrarios a la moral o al orden público o a una norma de carácter prohibitivo.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

@@ -1,3 +1,2 @@
-Artículo 123.- Es permitido al hijo y a sus descendientes
-investigar la maternidad, la cual puede probarse por cualquiera de
-los medios ordinarios.
+ARTÍCULO 123.- DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

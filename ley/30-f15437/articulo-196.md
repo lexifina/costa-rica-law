@@ -1,3 +1,2 @@
-Artículo 196.- No se cancelará la garantía de la administración
-sino cuando hayan sido aprobados y canceladas las cuentas de la
-tutela.
+ARTÍCULO 196.-DEROGADO
+(Derogado por el Código de Familia, Ley No.5476 de 21 de diciembre de 1973).

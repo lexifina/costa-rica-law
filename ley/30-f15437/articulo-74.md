@@ -1,3 +1,2 @@
-Artículo 74.- El marido es obligado a hacer los gastos de
-alimentos y demás de la familia. La mujer es subsidiariamente
-obligada, si el marido no puede hacerlos en todo o en parte.
+ARTÍCULO 74.- Los herederos y demás personas puestas en posesión provisional son, respecto del ausente, administradores; respecto de terceros serán tenidos como herederos y deberán cumplir con las obligaciones de tales y representar judicial y extrajudicialmente al ausente; respecto de los bienes que tuvieren en posesión. No podrán transigir ni comprometer en árbitros los negocios que a éste interesen y que valgan más de mil colones, sin previa autorización judicial, dada en virtud de haberse justificado la utilidad o conveniencia de la transacción o compromiso.
+(Así reformado por Ley No. 5476 de 21 de diciembre de 1973, artículo 2º. Por Ley Nº 7020 de 6 de enero de 1986, artículo 2º, su número fue corrido del 56 al actual).

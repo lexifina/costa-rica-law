@@ -1,4 +1,2 @@
-CAPITULO IV.
-Registro de defunciones.
-Artículo 250.- Toda defunción que ocurriere en el territorio
-costarricense, debe inscribirse en el Registro del Estado Civil.
+ARTÍCULO 250.- DEROGADO
+(Derogado por la Ley Orgánica del Registro Electoral No. 1535 del 10 de diciembre de 1952).

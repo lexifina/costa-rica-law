@@ -1,4 +1,2 @@
-Artículo 16.- La mayoría de los miembros de una corporación o
-asociación, a falta de su representante legítimo, se considerará como
-el total de la asociación o corporación para el efecto de
-representarla o de nombrar persona que la represente.
+ARTÍCULO 16.- En el cómputo civil de los plazos se incluyen los días inhábiles. Si el último día fuere inhábil, el plazo se tendrá por prorrogado al día hábil inmediato siguiente.
+(Así reformado por Ley Nº 7020 de 6 de enero de 1986, artículo 1º)

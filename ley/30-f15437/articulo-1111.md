@@ -1,8 +1,3 @@
-Artículo 1111.- El deudor puede oponer al cesionario todas las
-excepciones reales o personas que hubiera podido oponer al cedente
-y puede hacerlas valer, aunque no hubiera hecho ninguna reserva a
-este respecto al notificarle la cesión; aun en el caso de aceptación
-pura y simple, podrá oponer toda otra excepción fuera de la
-compensación, salvo el reparar le perjuicio causado al cesionario por
-la aceptación, si, según las circunstancias, constituyera ésta una
-falta o imprudencia grave de su parte.
+ARTÍCULO 1111.- El deudor puede oponer al cesionario todas las excepciones reales o personales que hubiera podido oponer al cedente y puede hacerlas valer, aunque no hubiera hecho ninguna reserva a este respecto al notificarle la cesión; aun en el caso de aceptación pura y simple, podrá oponer toda otra excepción fuera de la compensación, salvo el reparar el perjuicio causado al cesionario por la aceptación, si, según las circunstancias, constituyera ésta una falta o imprudencia grave de su parte.
+Para las operaciones previstas en los incisos a) y b) del numeral 1104, el deudor únicamente podrá oponer, contra el cesionario, la excepción de pago, siempre que este se encuentre documentado y se haya realizado con anterioridad la cesión; y la de nulidad de la relación crediticia.
+(Así adicionado este párrafo final por el artículo 186, inciso c), de la Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997)
