@@ -1,0 +1,1 @@
+ARTICULO 31.- Las modificaciones presupuestarias que se efectúen con base en las disposiciones varias estipuladas en los artículos 5º, 6º, 7º y 8º de la presente Ley, deberán ser aprobadas por la Contraloría General de la República, según lo establece el artículo No. 184 de la Constitución Política.

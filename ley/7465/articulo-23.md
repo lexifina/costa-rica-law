@@ -1,0 +1,3 @@
+(*) ARTICULO 23.- Los puestos incluidos en la cuenta especial Nº 20.239- 0-MAG, Estaciones Experimentales (Estación Experimental Los Diamantes), incorporados en la relación de puestos del Ministerio de Agricultura y Ganadería, de acuerdo con su clasificación y especialidad, para que los funcionarios que los ocupan sean nombrados según el Régimen de Servicio Civil, se regirán por la siguiente disposición:
+Los funcionarios que hayan desempeñado esos puestos, por un período de uno o más años, deberán demostrar su idoneidad ante la Dirección General de Servicio Civil para adquirir, de pleno derecho y en propiedad, la plaza que ocupan.
+(*) ANULADO por Resolución de la Sala Constitucional Nº 4907-95 de las 15:27 horas del 5 de setiembre de 1995.

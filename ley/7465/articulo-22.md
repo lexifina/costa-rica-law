@@ -1,0 +1,1 @@
+ARTICULO 22.- Se autoriza al Poder Ejecutivo para que, por medio del Ministerio de Hacienda, compense con el Banco Central de Costa Rica las obligaciones recíprocas y las deudas originadas en los convenios de renegociación bilateral y comercial, celebrados con los bancos miembros del Club de París y con los bancos privados internacionales.
