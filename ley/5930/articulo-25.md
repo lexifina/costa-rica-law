@@ -1,0 +1,3 @@
+Artículo 25.- El permiso de circulación sólo se extenderá a los vehículos que reúnan las condiciones mecánicas de seguridad y demás requisitos que determinen esta ley y sus reglamentos.
+Lo anterior será comprobado por la Dirección General de Tránsito, mediante examen de revisión general u ocasional. Este examen se hará por lo menos una vez al año por expertos de esa Dirección.
+Para este efecto las revisiones generales se llevarán a cabo en cada una de las cabeceras de provincia y regiones importantes, a juicio de la Dirección General de Transporte Automotor, con excepción de las correspondientes al área metropolitana. Esto no rige para los vehículos dedicados al transporte remunerado de personas.

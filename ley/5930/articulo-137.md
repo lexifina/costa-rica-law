@@ -1,0 +1,2 @@
+Artículo 137.- Los vehículos que no estuvieren asegurados, o los que estándolo no se encuentren en condiciones de seguridad para su circulación, podrán ser decomisados por las autoridades y trasladados a la oficina de tránsito más cercana. El costo del remolque, o en su caso, lo cualculará (sic*) la oficina de tránsito sobre el kilometraje recorrido y su importe lo cancelará el dueño del vehículo, en el Sistema Bancario Nacional, previamente a la devolución del mismo.
+(sic*) debe leerse calculará.

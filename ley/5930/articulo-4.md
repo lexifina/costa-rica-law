@@ -1,0 +1,3 @@
+CAPITULO II
+De la Dirección General de Tránsito
+Artículo 4º.- La Dirección General de Tránsito depende del Ministerio de Obras Públicas y Transportes. Tendrá a su cargo la vigilancia del tránsito en la República con autoridad plena y sujeta a la ley para hacer cumplir sus disposiones. Será función suya, planear, orgnaizar y controlar el tránsito. Los miembros de la Guardia de Asitencia Rural, los de la Guardia Civil y los de la Dirección General de Tránsito están obligados a velar por el cumplimiento de las disposiciones de esta ley y su reglamento, aunque no se encuentren en su turno de servicio.

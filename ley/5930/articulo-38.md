@@ -1,0 +1,3 @@
+CAPITULO VIII
+Responsabilidad Civil
+Artículo 38.- El conductor de un vehículo será responsable por los daños y perjuicios que se deriven de un accidente que le fuere imputable por dolor, falta, negligencia o imprudencia. También lo será el dueño del vehículo que permitiere que una persona carente de la respectiva licencia lo conduzca. Además, todos aquellos que, por cualquier título explotaren vehículos en una empresa industrial o comercial, o en el transporte remunerado de personas o carga, responderán, solidariamente con el conductor, de los daños y perjuicios que se originaren en un accidente, en que ese conductor fuere responsable.

@@ -1,0 +1,1 @@
+Artículo 100.- La Dirección General de Tránsito llevará un registro de accidentes y de infracciones, con las citadas informaciones y demás pruebas evacuadas. A este registro tendrán acceso, únicamente, los interesados y funcionarios, de acuerdo con el artículo 140 de la Ley Orgánica del Poder Judicial.

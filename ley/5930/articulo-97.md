@@ -1,0 +1,3 @@
+CAPITULO XI
+Divulgación de la Ley
+Artículo 97.- La Dirección General de Tránsito hará publicaciones o enviará instructores a las instituciones de educación, oficiales y privadas, para informar al profesorado y alumnos sobre las reglas generales de tráfico, instruyendo a los estudiantes sobre la obligatoriedad de observar las reglas de tránsito; deberá hacer énfasis en la peligrosidad de jugar en las vías públicas, salir atropelladamente de las escuelas o colegios y colgarse de la parte posterior de los vehículos. Se insistirá en la explicación de todas las reglas y disposiciones de tránsito, para evitar accidentes. El Ministerio de Educación Pública dará las facilidades necesarias para el cumplimiento de esta disposición.

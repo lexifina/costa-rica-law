@@ -1,0 +1,1 @@
+Artículo 76.- Toda modificación en las velocidades, dirección o estado de un vehículo en marcha o estacionado, deberá señalarse con la debida anticipación y en forma reglamentaria. Sin embargo, la señal no otorga derecho a ejecutar la maniobra si ésta pone en peligro la seguridad de otros vehículos o personas.
