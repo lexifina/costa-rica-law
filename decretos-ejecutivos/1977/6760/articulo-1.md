@@ -1,0 +1,11 @@
+N° 6760-G
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE GOBERNACIÓN, POLICÍA, JUSTICIA Y GRACIAS
+Considerando:
+1°.- El Instituto Costarricense de Electricidad necesita adquirir para que forma parte de El Embalse del Proyecto Hidroeléctrico de Arenal, como su propiedad N° 20, un derecho de un inmueble perteneciente al señor José Daniel Martínez Duarte.
+2°.- La citada propiedad fue valorada por la Sala Segunda del Tribunal Fiscal Administrativo, en resolución N° 129 de las 10:30 horas del 9 de junio de 1976, en la suma global de ¢ 945,705.65 (novecientos cuarenta y cinco mil setecientos cinco colones, sesenta y cinco céntimos), que incluye además del terrenos el valor de una casa de habitación e instalaciones allí existentes conforme las describe el respectivo avalúo, y se hace necesario recurrir a los trámites de expropiación forzosa en virtud de no haber sido aceptado dicho avalúo por el propietario.
+3°.- La Ley N° 2292 e 20 de noviembre de 1958, declara de utilidad pública la adquisición de inmuebles y la constitución de servidumbre de cualquier naturaleza, necesarios para los programas de electrificación del referido Instituto, remitiendo la misma en los casos de expropiación forzosa, al procedimiento prescrito por la ley N° 1371 de 10 de noviembre de 1951, de Expropiaciones para el Aeropuerto “El Coco”, hoy Juan Santamaría.
+4°.- De acuerdo con los estudios técnicos realizados por dicho Instituto, está suficientemente demostrada la utilidad pública y la urgencia de la adquisición del inmueble citado, por lo que de conformidad con lo dispuesto por el artículo 45 de la Constitución Política, y Leyes número 2292 y 1371 mencionadas, procede decretar la expropiación correspondiente.
+Por tanto,
+Decretan:
+Artículo 1°.- Exprópiese al señor José Daniel Martínez Duarte, la totalidad de un derecho de ciento treinta ocho hectáreas, cinco mil doscientos ochenta y un metros, veinte decímetros, siete centímetros cuadrados que le corresponde en la finca del Partido de Guanacaste N° 8454, tomo 1263m folio 237, asiento 1 y 5 que es resto de terreno de repasto y agricultura con una casa sito en el distrito tercero del cantón octavo de Guanacaste. La expropiación se realiza de conformidad con el plano N° 119-15-27, levantado por la Oficina de Estudios Básicos del Instituto Costarricense de electricidad en octubre de 1974.
