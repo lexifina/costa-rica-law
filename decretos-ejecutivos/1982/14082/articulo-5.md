@@ -4,7 +4,8 @@ Aceites vegetales comestibles, excepto de maní, cacahuate y de Olivia.
 Agua natural (potable), no envasada.
 Ajos frescos, no envasados.
 Arroz, excepto precocido.
-Azúcar de remolacha y de caña (excepto la refinada para repostería).
+Azúcar de remolacha y caña.
+(Así reformada la mercancía anterior por el artículo 1° aparte c) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
 Atún en conserva, enlatado.
 (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
 Audífonos para sordos.
@@ -20,19 +21,22 @@ Cebolla fresca, no envasada.
 Cuajada, no envasada.
 Cubaces, no envasados.
 Chorizo, excepto el enlatado.
-Frijoles rojos, negros y blancos, no envasados.
+Frijoles, excepto enlatados o envasados.
+(Así reformada la mercancía anterior por el artículo 1° aparte c) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
 Fósforos y cerillas a granel o en empaques.
 (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
 Frutas frescas, excepto manzanas, uvas y peras.
 Galletas de todas clases, excepto las enlatadas, empaquetadas o las que se vendan en envoltorios originales, metálicos o de cartón.
 Galletas, excepto las enlatadas.
 (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
-Garbanzos, no envasados.
+Garbanzos, excepto enlatados o envasados.
+(Así reformada la mercancía anterior por el artículo 1° aparte c) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
 Harinas de legumbres y frutas.
 Harinas finas y gruesas de trigo, escanda, comuña, centeno, maíz y de otros cereales.
 Helados.
 (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
-Hortalizas frescas, no envasadas.
+Hortalizas, excepto enlatadas o envasadas.
+(Así reformada la mercancía anterior por el artículo 1° aparte c) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
 Huevos frescos comestibles, con cascarón, de toda clase de aves.
 Jabón en barra para lavar.
 (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
@@ -50,7 +54,8 @@ Margarinas y similares.
 Miel de abeja y otras mieles naturales.
 Mortadela, excepto la enlatada.
 Natilla fresca.
-Pan de toda clase, como el blanco, negro, cuadrado, integral, español y dulce; rosquillas, ilustrados, roscas, gatos, acemitas, quesadillas y biscotelas, que no se venden en envases o envoltorios originales, metálicos o de cartón.
+Pan de toda clase.
+(Así reformada la mercancía anterior por el artículo 1° aparte c) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
 Panela (dulce de tapa).
 Pastas alimenticias (macarrones, espaguetti, tallarines, fideos y similares).
 Paté, excepto enlatado o envasado.
@@ -60,13 +65,15 @@ Pastas dentales.
 (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991
 Pescado y sus partes, fresco, salado o desecado, (no envasado o enlatado).
 Queso blanco tipo duro, semiduro y cremoso, no envasado.
-Sal común, mineral y yodada.
+Sal de todo tipo, excepto la mineral.
+(Así reformada la mercancía anterior por el artículo 1° aparte c) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
 Salchichas, excepto las enlatadas.
 Salchichón, excepto el enlatado.
 Sillas de ruedas.
 (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
 Sorgo sin moler, no envasado.
-Tamales.
+Tamales de maíz.
+(Así reformada la mercancía anterior por el artículo 1° aparte c) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
 Tortillas de maíz, de harina o de trigo (tipo “panina”).
 Trigo y escanda (incluso comuña), sin moler.
 Velas, cirios, veladoras y mariposas para lámparas, excepto los coloreados, decorados o perfumados.
@@ -82,16 +89,20 @@ Escuadras para uso escolar (únicamente las pequeñas, planas, hasta 15 cms).
 Gomas para borrar de caucho o material plástico.
 Hojas de papel para portafolio.
 Lápices de colores para dibujar y crayones.
-Lápices para escribir de mina gruesa.
+Lápices de mina negra.
+(Así reformada la mercancía anterior por el artículo 1° aparte d) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
 Libros de texto.
 Plastilina (plasticina) acondicionada para uso de niños.
-Reglas milimetradas.
+Reglas escolares de medición.
+(Así reformada la mercancía anterior por el artículo 1° aparte d) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
 Sacapuntas de bolsillo (tajadores).
 Tiza en barritas.
 Transportadores.
 Uniformes escolares (solo camisa, blusa, pantalón o enagua), a juicio de la Administración tributaria.
-b) Medicinas:
-para efectos tributarios se definen las medicinas o medicamentos, como las sustancias o productos naturales, artificiales sintéticos y toda mezcla de esas sustancias o productos que se utilicen para el diagnóstico, prevención, tratamiento y alivio de las enfermedades o estados físicos anormales, o de los síntomas de los mismos y para el restablecimiento o modificación de funciones orgánicas en las personas. Los medicamentos exentos serán únicamente los indicados en el Formulario Terapéutico Nacional, establecido en el Decreto Ejecutivo N° 19343-S del 19 de diciembre de 1989.
+(*)b) Medicinas: para efectos tributarios, se definen los medicamentos como:
+i) Los productos o sustancias naturales, artificiales o sintéticos, y toda mezcla de estos productos o sustancias, que se utilicen para diagnóstico, prevención, tratamiento y alivio de las enfermedades o los estados físicos anormales, o de los síntomas de estos, y para el restablecimiento o la modificación de funciones orgánicas en las personas. Los medicamentos exentos serán solo los que se encuentren registrados en el Ministerio de Salud, cuyo Departamento de Drogas, Estupefacientes, Controles y Registros, certificar ese hecho por medio de la autorización de desalmacenaje de las facturas.
+ii)Los que deba adquirir la Caja Costarricense de Seguro Social para la prestación de sus servicios, aún cuando se trate de productos no registrados por el Departamento de Drogas, Estupefacientes, Controles y Registros del Ministerio de Salud.
+(*)(Así reformado el inciso b) anterior por el artículo 1° aparte e) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
 c) Insumos esenciales para la construcción de viviendas. Según Resolución N° 319 de la Dirección General de la Tributación Directa publicada en “La Gaceta N° 148 del 5 de agosto de 1988.
 Ch) Productos veterinarios:
 Anestésicos.
@@ -130,6 +141,8 @@ Bombas tipo mochila para atomizar, manuales o motorizadas.
 Bombas para agua sumergibles.
 Cabezotes para cosechar maíz.
 Carretillas de mano.
+Carbonato de calcio.
+(Así adicionada la mercancía anterior por el artículo 1° aparte f) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
 Comedores y bebedores.
 Cortadoras (chanchos de monte).
 Cuchillas para injertar.
@@ -200,4 +213,8 @@ Libros.
 Cuadernos y pinturas hechos por pintores nacionales y extranjeros, producidos en el país.
 Cajas mortuorias.
 Consumo de energía eléctrica, hasta 250 KWh, del sector residencia.
+Prótesis oculares.
+(Así adicionada la mercancía anterior por el artículo 1° aparte g) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
+Toda clase de equipos médicos e instrumentos médico-quirúrgicos, requeridos por la Caja Costarricense de Seguro Social para la prestación de sus servicios.
+(Así adicionado el párrafo anterior por el artículo 1° aparte g) del decreto ejecutivo N° 20959 del 11 de diciembre de 1991)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 20293 del 5 de marzo de 1991)
