@@ -1,0 +1,1 @@
+Artículo 2º.- De la indicada suma de siete millones, quinientos mil colones (¢ 7.500,000.00), el Estado aportará tres millones de colones (¢ 3.000,000.00), aumentándose así el capital del Instituto Costarricense de Electricidad y quedando a cargo de éste el pago de los restantes cuatro millones, quinientos mil colones (¢ 4.500,000.00), todo en la forma que luego se indicará.
