@@ -1,0 +1,1 @@
+Artículo 12°─ El Servicio Nacional de Empleo, además de sujetar su actuación a las disposiciones del presente Reglamento, deberá cumplir con todas las previsiones contenidas en el convenio N°88 de la Organización Internacional del Trabajo, ratificado por ley N° 2561 de 11 de mayo de 1960.

@@ -1,0 +1,1 @@
+Artículo 8°─ Conforme lo permitan las posibilidades económicas y lo indiquen las necesidades, se establecerán oficinas regionales para una mejor atención de los fines que el presente Reglamento se propone, a cuyo efecto se atendrán las gestiones que las Municipalidades interesadas formulen, procurando su colaboración económica y de cualquier otra naturaleza.

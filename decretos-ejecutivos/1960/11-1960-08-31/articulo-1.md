@@ -1,0 +1,15 @@
+N°11
+EL PRESIDENTE CONSTITUCIONAL ,DE LA REPÚBLICA,
+En uso de las facultades que le otorga el artículo 140, inciso 3) de la Constitución Política, y
+Considerando,
+Que el artículo 56 de la Constitución Política define el trabajo como un derecho del individuo, así como una obligación para con la sociedad, al mismo tiempo que impone al estado la obligación de procurar que todos tengan ocupación honesta y útil, debidamente remunerada.
+Indudablemente, al establecerse los anteriores principios en nuestra Carta Magna, se tuvo presente que una de las mayores preocupaciones del hombre, es la de obtener, por medio del trabajo, un salario que le permita no sólo su propia subsistencia, sino la de todos los integrantes de su familia.
+Tanto es así, que entre las primeras medidas de previsión social figura siempre la colocación de trabajadores, en vista de lo cual los Estados modernos se han venido preocupando por establecer los organismos técnicos que satisfagan esa finalidad.
+El Convenio N°88 de la Organización Internacional del Trabajo, ratificado por Ley N°2561 de 11 de mayo del presente año, contempla a su vez el deber de los Estados miembros de la misma, de mantener o garantizar el mantenimiento de un servicio público y gratuito de empleo, cuyo cumplimiento se propone el presente reglamento.
+En el Ministerio de Trabajo ha venido funcionando una Oficina de Empleo para la atención de los problemas relacionados con el empleo de trabajadores, cuya actividad conviene sea extendida e intensificada para que asuma las características de una verdadera Bolsa de Trabajo, cuya finalidad primordial, será la de atender con carácter técnico, la oferta y la demanda de empleo, así como la selección de trabajadores para la empresa privada, incluyendo la posibilidad de coordinar actividades con el Servicio Civil para ofrecer trabajadores a la administración pública, así como para que dicha institución colabore para los fines de asesoramiento en la selección y oferta de trabajadores para la industria particular.
+Al llenar esta necesidad nacional, se beneficiará a los trabajadores, brindándoles los medios técnicos apropiados para su colocación; a los patronos, ofreciéndoles trabajadores debidamente seleccionados y que satisfagan los requisitos que ellos mismos señalen como indispensables para su empresa; y finalmente el país, ya que al procurar la plenitud el empleo, y la adecuada movilización de trabajadores, necesariamente se elevarán los niveles de nuestra producción; todo lo cual demuestra la conveniencia de que por medio de la Oficina de Empleo del Ministerio debidamente restructurada, se establezca el Servicio Nacional de Empleo.
+Por tanto,
+Decreta:
+El siguiente
+Reglamento de Servicio Nacional de Empleo
+Artículo 1°─ Crease el Servicio Nacional de Empleo a cargo de la Oficina de Empleo del Ministerio de Trabajo y Previsión Social, la que además de las funciones que la Ley Orgánica de este Ministerio le señala en sus artículos 75 a 81, ambos inclusive. se reestructurará en tal forma que pueda convertirse en una verdadera Bolsa de Trabajo.
