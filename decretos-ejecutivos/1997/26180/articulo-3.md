@@ -1,0 +1,2 @@
+Artículo 3°—Acoso sexual entre estudiantes de instituciones educativas oficiales
+Cuando se trate de conductas de acoso sexual entre educandos de las instituciones oficiales de enseñanza, su conocimiento y resolución deberá realizarse de conformidad con lo dispuesto en la normativa interna de cada centro o, en su defecto, según las disposiciones contenidas en las Normas Básicas Reguladoras del Proceso Educativo.

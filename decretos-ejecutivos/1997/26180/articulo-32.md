@@ -1,0 +1,2 @@
+Artículo 32.—Restitución de la víctima al estado anterior
+Según lo dispone el artículo 13 de la Ley, en una relación de docencia, el estudiante que haya demostrado haber sido objeto de hostigamiento sexual, y comprobare perjuicio en su condición académica como resultado del mismo, tendrá derecho a ser restituido en el estado en que se encontraba antes del hostigamiento para lo cual, el órgano instructor podrá disponer u ordenar las acciones que estime necesarias para salvaguardar ese derecho, siendo éstas en todo caso de obligatorio acatamiento.

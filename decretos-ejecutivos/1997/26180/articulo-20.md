@@ -1,0 +1,2 @@
+Artículo 20.—Traslado de los cargos al denunciado
+Recibida la denuncia o cumplido el trámite previsto en el artículo precedente, el órgano instructor dará traslado de la denuncia al servidor denunciado, quien será notificado en forma personal o por correo certificado, confiriéndole audiencia para que, en el término de diez días hábiles, se refiera por escrito al contenido de la denuncia y a las pruebas ofrecidas por el denunciante, y ofrezca los medios de prueba que considere necesarios en abono a su defensa.
