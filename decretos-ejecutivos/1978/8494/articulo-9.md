@@ -1,0 +1,1 @@
+Artículo 9°—La Dirección General Forestal gestionará la compra directa o la expropiación de los terrenos reducidos a dominio particular que se encuentra dentro de la demarcación de esta Reserva y que sean indispensables para su integración.

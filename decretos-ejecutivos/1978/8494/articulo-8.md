@@ -1,0 +1,1 @@
+Articulo 8°—Las fincas inscritas, las fincas con posesión decenal y las fincas en posesión precaria establecidas dentro de los límites de la Reserva quedan automáticamente sometidas al Régimen Forestal. Las labores agrícolas que en estas fincas se realicen deben contar con la autorización escrita del Director General Forestal mientras el Estado no las adquiera.

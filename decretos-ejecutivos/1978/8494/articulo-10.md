@@ -1,0 +1,1 @@
+Artículo 10.—El traslado y reasentamiento de ocupantes de más o menos de diez años de poseer terrenos dentro de esta Reserva, conforme a la Ley Forestal, se hará con intervención del Instituto de Tierras y Colonización.

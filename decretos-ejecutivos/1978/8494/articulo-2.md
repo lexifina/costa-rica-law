@@ -1,0 +1,1 @@
+Artículo 2°—La Reserva Forestal que se declara en este decreto comprende una área de 84 538 Ha I 875 m2. La demarcación de dicha reserva se encuentra en el plano confeccionado por la Dirección General Forestal.
