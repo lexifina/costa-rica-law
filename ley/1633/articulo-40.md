@@ -1,0 +1,3 @@
+Responsabilidad para quien Gira un Cheque que no se Paga a su Presentación
+Artículo 40.- (Independientemente de la intención, por tratarse de un delito formal, incurrirá en defraudación el que girare un cheque en los casos y condiciones indicados en el inciso 17) del artículo 282 del Código Penal.)* El tenedor de un cheque que no fuere pagado a su presentación, podrá cobrarlo en la vía ejecutiva.
+*(La frase de este artículo destacada entre paréntesis fue considerada inaplicable mediante resolución de la Corte Suprema de Justicia de las 16:00 horas del 25 de noviembre de 1954, correspondiente al expediente N° 0523-1954, en el cual compareció como recurrente el Sr. José Rogelio Núñez Blanco.)

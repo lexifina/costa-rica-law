@@ -1,0 +1,2 @@
+Cheques Depositados en Cuenta Corriente del Beneficiario
+Artículo 16.- El depósito de un cheque en la cuenta corriente de una persona cuando el cheque está emitido o endosado a su orden, equivale a efectuar buen pago del título. En este caso no es indispensable el endoso sino que es suficiente una razón que indique que el crédito debe efectuarse a la cuenta del depositante, lo que verá prueba del pago.
