@@ -1,0 +1,2 @@
+Artículo 12.—A partir de la publicación de esta ley, queda suspendida la autorización concedida al Poder Ejecutivo, por el artículo 19 de la Ley de Presupuesto vigente y concordantes de la ley general sobre la materia.
+Sin embargo, podrá entrar en arreglos con los Bancos del Estado y con el de Costa Rica, para conseguir los fondos necesarios para cubrir los gastos autorizados por el Presupuesto, cuando las rentas no produjeren lo indispensable para ese objeto.
