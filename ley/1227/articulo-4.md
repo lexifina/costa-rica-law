@@ -1,0 +1,1 @@
+Artículo 4°.- Las contribuciones populares menores de una centena y los excesos fraccionarios sobre la centena serán pagados por el Tesorero General del Partido Unión Nacional en dinero efectivo, con el descuento correspondiente, al valor de venta de los bonos que se aplicaren al pago de tales contribuciones.
