@@ -1,0 +1,1 @@
+Artículo 89. La sentencia que declare la inconstitucionalidad de una norma de ley o disposición general, declarará también la de los demás preceptos de ella, o de cualquier otra ley o disposición cuya anulación resulte evidentemente necesaria por conexión o consecuencia, así como la de los actos de aplicación cuestionados.

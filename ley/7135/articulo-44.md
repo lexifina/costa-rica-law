@@ -1,0 +1,2 @@
+Artículo 44. El plazo para informar será de uno a tres días, que se fijará según sean la índole del asunto, la distancia y la rapidez de los medios de comunicación.
+Los informes se considerarán dados bajo juramento. Por consiguiente, cualquier inexactitud o falsedad hará incurrir al funcionario en las penas del perjurio o del falso testimonio, según la naturaleza de los hechos contenidos en el informe.

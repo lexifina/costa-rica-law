@@ -1,0 +1,1 @@
+Artículo 7. Le corresponde exclusivamente a la Sala Constitucional resolver sobre su propia competencia, así como conocer de las cuestiones incidentales que surjan ante ella y de las prejudiciales conexas.

@@ -1,0 +1,3 @@
+Artículo 43. Cuando no fuere del caso rechazar de plano o resolver interlocutoriamente el recurso, se le pedirá informe al órgano o al servidor que se indique como autor del agravio, amenaza u omisión, lo que se hará por el medio escrito más rápido posible.
+Al ordenarse el informe, se podrá también pedir el expediente administrativo o la documentación en que consten los antecedentes del asunto. La omisión injustificada de enviar esas piezas al tribunal acarreará responsabilidad por desobediencia.
+Si el recurso se dirigiere contra un órgano colegiado, el informe y las piezas se pedirán a su Presidente; si se tratare del Poder Ejecutivo o de un Ministerio, al Ministro respectivo, y si se tratare del Consejo de Gobierno, al Ministro de la Presidencia.

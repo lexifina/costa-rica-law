@@ -1,0 +1,3 @@
+Artículo 62. La sentencia que conceda el amparo declarará ilegítima la acción u omisión que dio lugar al recurso, y ordenará que se cumpla lo que dispone la respectiva norma, según corresponda en cada caso, dentro del término que el propio fallo señale, y condenará a la persona o entidad responsable a la indemnización de los daños y perjuicios causados y al pago de las costas.
+Si el acto fuere de carácter negativo, el efecto del amparo será obligar al responsable a que actúe en el sentido de respetar el derecho de que se trate, con aplicación en lo demás de lo dispuesto en el párrafo anterior.
+La liquidación de los daños y perjuicios y de las costas se reservará a la vía civil de ejecución de sentencia.

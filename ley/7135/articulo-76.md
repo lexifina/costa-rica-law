@@ -1,0 +1,1 @@
+Artículo 76. Quien hubiere establecido la acción de inconstitucionalidad no podrá plantear otras relacionadas con el mismo juicio o procedimiento, aunque las funde en motivos diferentes; y la que se interponga en esas condiciones será rechazada de plano.

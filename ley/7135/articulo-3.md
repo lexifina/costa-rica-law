@@ -1,0 +1,1 @@
+Artículo 3. Se tendrá por infringida la Constitución Política cuando ello resulte de la confrontación del texto de la norma o acto cuestionado, de sus efectos, o de su interpretación o aplicación por las autoridades públicas, con las normas y principios constitucionales.

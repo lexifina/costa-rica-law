@@ -1,0 +1,1 @@
+Artículo 72. Se impondrá prisión de seis meses a tres años, o de sesenta a ciento veinte días multa, a quien diere lugar a que se acoja un nuevo recurso de amparo o de hábeas corpus, por repetirse en daño de las mismas personas las acciones, omisiones o amenazas que fueron base de un amparo anterior declarado procedente.

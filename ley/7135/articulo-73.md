@@ -1,0 +1,15 @@
+TITULO IV
+De las cuestiones de constitucionalidad
+(Corregido el epígrafe anterior mediante Fe de Erratas y publicada en la Colección de Leyes y Decretos de 1989 II Semestre I Tomo Página 25. Anteriormente la redacción de este epígrafe indicaba: “De los cuestiones de constitucionalidad.”)
+CAPITULO I
+De la acción de inconstitucionalidad
+Artículo 73. Cabrá la acción de inconstitucionalidad:
+a) Contra las leyes y otras disposiciones generales, incluso las originadas en actos de sujetos privados, que infrinjan, por acción u omisión, alguna norma o principio constitucional.
+b) Contra los actos subjetivos de las autoridades públicas, cuando infrinjan, por acción u omisión, alguna norma o principio constitucional, si no fueren susceptibles de los recursos de hábeas corpus o de amparo.
+c) Cuando en la formación de las leyes o acuerdos legislativos se viole algún requisito o trámite sustancial previsto en la Constitución o, en su caso, establecido en el Reglamento de Orden, Dirección y Disciplina Interior de la Asamblea Legislativa.
+ch) Cuando se apruebe una reforma constitucional con violación de normas constitucionales de procedimiento.
+d) Cuando alguna ley o disposición general infrinja el artículo 7, párrafo primero, de la Constitución, por oponerse a un tratado público o convenio internacional.
+(Corregido el inciso anterior mediante Fe de Erratas y publicada en la Colección de Leyes y Decretos de 1989 II Semestre I Tomo Página 25. Anteriormente la redacción de este inciso indicaba: “d) Cuando alguna ley o disposición general infrinja el artículo 7, párrafo primero, de la Constitución, por oponerse a un tratato público o convenio internacional.”)
+e) Cuando en la suscripción, aprobación o ratificación de los convenios o tratados internacionales, o en su contenido o efectos se haya infringido una norma o principio constitucional o, en su caso, del Reglamento de Orden, Dirección y Disciplina Interior de la Asamblea Legislativa. En este evento, la declaratoria se hará solamente para los efectos de que se interpreten y apliquen en armonía con la Constitución o, si su contradicción con ella resultare insalvable, se ordene su desaplicación con efectos generales y se proceda a su denuncia.
+(Corregido el inciso anterior mediante Fe de Erratas y publicada en la Colección de Leyes y Decretos de 1989 II Semestre I Tomo Página 25. Anteriormente la redacción de este inciso indicaba: “e) Cuando en la suscripción, aprobación o ratificación de los convenios o tratados internacionales, o en su contenido o efectos se haya infringido una norma o principio constitucional o, en su caso, del Reglamento de Orden, Dirección y Disciplinaria Interior de la Asamblea Legislativa. En este evento, la declaratoria se hará solamente para los efectos de que se interpreten y apliquen en armonía con la Constitución o, si su contradicción con ella resultare insalvable, se ordene su desaplicación con efectos generales y se proceda a su denuncia.”)
+f) Contra la inercia, las omisiones y las abstenciones de las autoridades públicas.

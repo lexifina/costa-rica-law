@@ -1,0 +1,7 @@
+CAPITULO II
+De la consulta de constitucionalidad
+Artículo 96. Por la vía de la consulta de constitucionalidad, la jurisdicción constitucional ejercerá la opinión consultiva previa sobre los proyectos legislativos, en los siguientes supuestos:
+a) Preceptivamente, cuando se trate de proyectos de reformas constitucionales, o de reformas a la presente ley, así como de los tendientes a la aprobación de convenios o tratados internacionales, inclusive las reservas hechas o propuestas a unos u otros.
+b) Respecto de cualesquiera otros proyectos de ley, de la aprobación legislativa de actos o contratos administrativos, o de reformas al Reglamento de Orden, Dirección y Disciplina Interior de la Asamblea Legislativa, cuando la consulta se presente por un número no menor de diez diputados.
+c) Cuando lo soliciten la Corte Suprema de Justicia, el Tribunal Supremo de Elecciones o la Contraloría General de la República, si se tratare de proyectos de ley o de mociones incorporadas a ellos, en cuya tramitación, contenido o efectos estimaren como indebidamente ignorados, interpretados o aplicados los principios o normas relativos a su respectiva competencia constitucional.
+ch) Cuando lo solicite el Defensor de los Habitantes, por considerar que infringen derechos o libertades fundamentales reconocidos por la Constitución o los instrumentos internacionales de derechos humanos vigentes en la República.
