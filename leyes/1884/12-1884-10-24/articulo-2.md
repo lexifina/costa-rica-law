@@ -1,0 +1,1 @@
+Art. 2°-Cuando, de conformidad con el artículo 6° del decreto antes citado, la Sala que conozca del recurso allí establecido ordenare la inscripción denegada por el Registrador, condenará á éste en las costas personales y procesales de la articulación, que serán tasadas conforme á arancel por la Secretaría de la Sala que haya conocido.
