@@ -1,0 +1,1 @@
+Articulo 2º—Los contratos solamente podrán realizarse con firmas comerciales seleccionadas mediante el trámite de licitaciones públicas promovidas especialmente para este efecto y una vez cumplidos los requisitos establecidos por ley para esta clase de eventos, y no podrán exceder conjuntamente de la suma de doce millones de colones (₡12.000,000.00).
