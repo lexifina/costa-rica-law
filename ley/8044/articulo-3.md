@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Cabecera y caseríos. El distrito contar con los siguientes caseríos: San Martín Norte, San Martín Sur, Santa Marta, Ojo de Agua, Arancibia Sur o San Rafael, Arancibia Norte o San Rafael, Corazón de Jesús, las Lagunas y Bajo Caliente, que ser la cabecera.
