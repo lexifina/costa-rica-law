@@ -1,0 +1,11 @@
+N° 30819-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las facultades que le conceden los artículos 140 incisos 3) y 18) y 146 de la Constitución Política, y Ley N° 8114 del 4 de julio de 2001.
+Considerando:
+1º—Que la Refinadora Costarricense de Petróleo, S. A., importa a granel productos en principio considerados como finales, con el fin de utilizarlos como materias primas, a las cuales se les adiciona un proceso de mezclado que da como resultado la obtención de los productos finales que en definitiva serán expendidos a los consumidores.
+2º—Que el espíritu de la Ley Nº 8114 ha sido gravar productos que efectivamente sean destinados al consumo final, por lo que el gravamen de los productos en principio finales que, en la práctica, son utilizados por la Refinería Costarricense de Petróleo, S. A., para preparar los productos que en definitiva serán expendidos a los consumidores generaría una doble imposición no querida por el legislador.
+3º—Que en virtud de lo anterior, lo legalmente correcto es que el impuesto único por tipo de combustible no se cobre en el nivel de aduanas, sino en el nivel de la producción nacional, en el momento de la fabricación, la destilación o la refinación, de los productos que en definitiva estén listos para ser expendidos a los consumidores. Por tanto,
+DECRETAN:
+Artículo 1º—Adiciónese un párrafo final al artículo 1° del Decreto Ejecutivo N° 29643-H de 10 de julio de 2001, publicado en La Gaceta N° 138 de 18 de julio de 2001, denominado "Reglamento a la Ley de Simplificación y Eficiencia Tributarias", que contenga el siguiente texto:
+"Así también RECOPE deberá presentar ante la Administración Tributaria, una estimación trimestral, en el plazo indicado en el primer párrafo de este artículo, de los productos terminados que se importen y que constituyan materia prima para la producción nacional de productos destinados al consumo final, con el propósito de que dicha materia prima no sea gravada con el impuesto único por tipo de combustible. Adicionalmente, RECOPE deberá presentar un informe trimestral donde refleje el uso y destino del producto autorizado a importar bajo esta modalidad, dentro de los quince días naturales después de vencido cada trimestre".
