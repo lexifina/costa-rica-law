@@ -25,12 +25,12 @@ y será su representante legal; un representante del Ministerio de
 Trabajo y tres del movimiento cooperativo. Los miembros de la
 Junta Directiva no devengarán dietas ni percibirán ninguna
 remuneración adicional por su desempeño en relación con el Fondo.
-Los recursos que constituirán este Fondo provendrán del
-crédito aprobado en el artículo 3 de la presente Ley, por el monto
-equivalente en colones hasta de cinco millones de dólares
-estadounidenses (US$5.000.000), provenientes del primer desembolso
-del citado crédito. Además, sus actividades podrán financiarse con
-donaciones y aportes.
+Los recursos que constituirán este Fondo provendrán de la asignación
+presupuestaria, que el Poder Ejecutivo hará en los presupuestos
+ordinarios de la República correspondientes a los ejercicios de 1997 y
+1998, por una suma total de cien millones de colones (100.000.000,00).
+(Así reformado este párrafo por el artículo 1º de la ley No.7625 de
+6 de setiembre de 1996)
 Por medio de escritura pública, la Procuraduría General de la
 República inscribirá la personería y la representación legal aquí
 establecidas.

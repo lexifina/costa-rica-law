@@ -37,6 +37,8 @@ y (b) financiar un proyecto para la importación de bienes
 elegibles, en adelante denominado el "Proyecto". En el
 Anexo A se detallan los aspectos más relevantes del Programa
 y del Proyecto.
+(NOTA: el artículo 2º de la ley No.7625 de 6 de setiembre de 1996
+señala un destino diferente para los fondos de este programa)
 Cláusula 1.03. Organismo Ejecutor. Las partes convienen en
 que la ejecución del Programa deberá ser
 llevada a cabo por el Prestatario por intermedio del
