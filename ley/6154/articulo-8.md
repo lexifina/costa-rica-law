@@ -1,1 +1,2 @@
-Artículo 8º.- Practicada la inscripción, el Director del Registro mandará a publicar un edicto en el Diario Oficial, en el que da noticia de ella, con el nombre y calidades del nuevo propietario y de los demás datos del inmueble.
+Artículo 8º.- Firme esa resolución el Secretario del Despacho librará certificación de la misma para que el Registro proceda a la inscripción del inmueble. A opción del interesado, ese documento se entregará a éste o se remitirá por el funcionario al Registro Público.
+(Así reformado por el artículo único de la Ley Nº 6244 del 2 de mayo de 1978)
