@@ -1,0 +1,4 @@
+Artículo 4º.-Los administradores de aduana autorizarán el depósito fiscal de mercaderías que no hayan satisfecho los impuestos de importación a solicitud:
+a) Del destinatario que hubiere pagado el principal y gastos, adeudando únicamente los impuestos fiscales;
+b) De la persona o entidad que tenga título legal de la mercadería, cuando ella venga consignada "a la orden"; y
+c) De la Contaduría Mayor o de un Administrador de Aduana, una vez vencido el término de libre bodegaje, cuando así lo consideren conveniente por falta de espacio en las bodegas de la Aduana. La autorización será otorgada por el administrador de la aduana cuando se haya practicado el reconocimiento aduanero de la mercadería y la liquidación provisional de los impuestos correspondientes. Esta liquidación tendrá como único fin establecer el monto de la responsabilidad que al recibirla asume el almacen fiscal, y podrá ser revisada tanto por la misma aduana como por la contaduría mayor.
