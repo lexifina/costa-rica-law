@@ -19,3 +19,4 @@ Reglamento de Organización y Funcionamiento del Fondo de Ahorro y Préstamo (El
 | 4 | 2000-02-23 | SINALEVI (sin norma nombrada) |
 | 5 | 2001-12-05 | Reglamento 3145 (2001-12-05) |
 | 6 | 2002-10-28 | Reglamento 3231 (2002-10-28) |
+| 7 | 2003-05-12 | Reglamento 3280 (2003-05-12) |

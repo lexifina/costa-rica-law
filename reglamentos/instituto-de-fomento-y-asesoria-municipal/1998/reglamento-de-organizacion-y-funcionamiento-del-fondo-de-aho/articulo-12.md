@@ -1,1 +1,5 @@
-Artículo 12°- La DAI hará las deducciones pertinentes en el salario del afiliado; asimismo, controlará la vigencia de las pólizas del INS que garanticen la operación de crédito.
+Artículo 12.-La Dirección de Administración Interna hará las deducciones pertinentes en el salario del afiliado; asimismo, controlará la vigencia de las pólizas del Instituto Nacional de Seguros (INS), que garanticen la operación del crédito.
+Los afiliados que sean funcionarios deberán presentar actualización de las pólizas una vez al año, en las que necesariamente debe contar con la indicación del IFAM como beneficiario. Dicha actualización deberá presentarse en el transcurso del mes de enero de cada año.
+Los exfuncionarios deudores del FODEAP o funcionarios con permiso sin goce de salario, deberán presentar la actualización de las pólizas con la periodicidad que corresponda a su renovación.
+En todos los casos deberá presentarse el original y copia del recibo de cancelación por concepto de renovación con indicación del IFAM como beneficiario.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 7 de la Sesión Ordinaria No. 3280, celebrada el 12 de mayo de 2003, publicada en La Gaceta No. 121 de 25 de junio de 2003.)
