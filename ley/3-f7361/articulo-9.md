@@ -1,0 +1,1 @@
+Art. 9°-El Secretario de Estado en el Despacho de Instrucción Pública, dictará las providencias necesarias á fin de que, antes de principiar el próximo año escolar, la Universidad esté provista de los útiles precisos à la ensenanza médica.
