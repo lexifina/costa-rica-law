@@ -1,0 +1,1 @@
+Artículo 3°—Corríjase la numeración del artículo 44 del actual Reglamento de Sesiones de los Concejos de la Municipalidad de Vázquez de Coronado, cuyo número a partir de la aprobación de la presente reforma será el cuarenta y ocho (48).
