@@ -1,0 +1,1 @@
+Art. 11. Las Juntas Directoras celebraran por lo, ménos una sesion cada semana; y tanto el Presidente como los Vocales de cada una de ellas están obligados á visitar, alternando, una vez al mes, la parte del camino que les está encomendada.

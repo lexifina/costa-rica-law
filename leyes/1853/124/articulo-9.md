@@ -1,0 +1,1 @@
+Art. 9. El mismo Tesorero tambien mensualmente dividirá en dos partes iguales los productos líquidos de todas las rentas itinerarias, que hayan entrado en su poder, y pondrá una de ellas á la órden y disposicion de la Direccion Occidental, asentando en su cuenta, al tiempo de entregarla; la partida de data correspondiente.

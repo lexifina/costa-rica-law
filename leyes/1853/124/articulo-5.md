@@ -1,0 +1,1 @@
+Art. 5. El sueldo del Presidente de cada una de dichas Juntas será el de sesenta pesos mensuales. Los Vocales disfrutarán de la dieta de dos pesos por cada sesion à que asistan y de la de cinco pesos por cada dia que inviertan en las visitas periódicas a extraordinarias de camino.
