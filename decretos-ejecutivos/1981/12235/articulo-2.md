@@ -1,0 +1,1 @@
+Artículo 2°-Dicha comisión, deberá rendir informe en el término de un mes a partir de la publicación del presente decreto, mediante el cual recomendará al Ministro de Hacienda las obras nuevas que sdn indispensables y cuya construcción deviene necesaria en el presente año.
