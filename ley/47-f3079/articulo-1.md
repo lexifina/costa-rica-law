@@ -1,0 +1,10 @@
+N° 47
+EL CONGREGO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA
+DECRETA:
+Artículo 1°.-El artículo 472 del Código Fiscal se leerá así:
+«Para los efectos de esa ley, los condenados a arresto serán recluidos en la cárcel del domicilio del delincuente, y a falta de ella, en la cárcel de la capital de la provincia respectiva; y los condenados a confinamiento serán trasladados a cualquiera de los distritos del Cantón Pérez Zeledón, a Buenos Aires del Cantón de Osa, a Golfo Dulce, a Talamanca, a Zapotal de Nicoya, a los cantones de Tilarán, La Cruz, Upala, o a los distritos del Cantón de Turrialba, excepción hecha de la ciudad.
+Podrá el reo descontar la multa por medio de su trabajo personal en una obra pública, permaneciendo en libertad, siempre que rindiere fianza de cumplimiento mediante el arreglo y condiciones que el reglamento respectivo determine. Si el reo lo prefiere, en vez de dar fianza podrá continuar preso para ocuparse en los trabajos que el Poder Ejecutivo designe dentro o fuera de los establecimientos penales, en cualquier lugar del país. Podrá también el reo ocuparse en tales trabajos durante la prisión preventiva.
+El trabajo que haga el reo durante la prisión preventiva, dentro del establecimiento penal, le dará derecho a la rebaja de la multa en la siguiente proporción: tres colones por cada día de arresto más un colón por cada día de trabajo, o sea en conjunto, cuatro colones de multa por cada día de arresto con trabajo. En esta misma proporción se descontará la pena líquida siempre que el trabajo se ejecute dentro del establecimiento penal.
+En todo caso, el trabajo realizado fuera del establecimiento penal dará derecho a la rebaja de un colón más, o sea a una rebaja total de cinco colones por cada día de arresto de trabajo, fuera del establecimiento penal.
+El Juez al fijar la pena líquida tomará en cuenta de una vez la cantidad que deba rebajarse por trabajo efectuado durante la prisión preventiva.
+El Jefe del respectivo establecimiento penal hará la liquidación final del descuento, con vista de las anotaciones que arrojen sus libros y según la proporción que establece el presente artículo, sin más trámite».

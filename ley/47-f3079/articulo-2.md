@@ -1,0 +1,2 @@
+Artículo 2°.-El artículo número 477 del mismo Código Fiscal, se leerá así: «Las penas determinadas en este capítulo no son conmutables y no puede otorgarse el cambio del lugar del confinamiento sino entre los puntos fijados en el artículo 472. El cambio lo decretará el Poder Ejecutivo.»
+«Al reo que quebrantare su condena se impondrá el mismo castigo que un lapso doble al que le faltare por descontar en el momento del quebrantamiento.»
