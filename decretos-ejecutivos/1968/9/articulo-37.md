@@ -1,0 +1,1 @@
+Artículo 37.-Los miembros del tribunal examinador y los vigilantes no podrán hacer abandono del salón donde se efectúan las pruebas, mientras haya alumnos trabajando en las mismas, salvo casos de fuerza mayor y con autorización expresa del delegado general.

@@ -1,0 +1,1 @@
+Artículo 2°-Todo alumno aprobado en sus estudios de educación media en, Ciencias, Letras o Profesional, podrá obtener el correspondiente título de bachiller, mediante la aprobación, en exámenes especiales, de acuerdo con lo que este Reglamento establece.

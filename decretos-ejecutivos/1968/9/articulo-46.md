@@ -1,0 +1,2 @@
+Artículo 46.-El dictado lo hará el profesor a quien designe el delegado de acuerdo con el director del colegio. Podrá también escogerse para este cometido a algún miembro del tribunal examinador.
+Primero se hará una lectura general del trozo, y luego se procederá a dictado, en forma despaciosa y clara con la puntuación respectiva. Con posterioridad al dictado se hará otra lectura general de comprobación.

@@ -1,0 +1,2 @@
+Artículo 12.-Los alumnos que no fueren aprobados en la totalidad de los exámenes prescritos para obtener el título de bachiller en Ciencias, Letras o Profesional, podrán presentarse en posteriores convocatorias, en las asignaturas en que no hubieren sido aprobados, a cuyo objeto deberán inscribirse en el respectivo colegio en la fecha que señale el Ministerio de Educación Pública.
+En este caso podrán cambiar de materias optativas, si así lo comunican por escrito al inscribirse para el examen de repetición.

@@ -1,0 +1,1 @@
+Artículo 3°-El título de bachiller en ciencias, en letras o profesional, será otorgado por los establecimientos respectivos, con base en los resultados de las pruebas especiales que elaborará y administrará la Asesoría y Supervisión de Educación Media del Ministerio de Educación Pública por medio de comisiones especiales nombradas al efecto.

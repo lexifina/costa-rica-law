@@ -1,0 +1,1 @@
+Artículo 50. -Cualquier asunto o caso que no pueda ser resuelto por el delegado general del Ministro de Educación Pública, con base en el presente Reglamento, deberá consultarse a la Asesoría y Supervisión de Enseñanza Media para su estudio y solución final, dio con la aprobación del Ministro.

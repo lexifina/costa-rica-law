@@ -1,0 +1,1 @@
+Artículo 10.-El director del colegio presentará, al respectivo delegado general del Ministro de Educación Pública para las pruebas de bachillerato, los documentos a que se refiere el artículo 9°, y cualquier otro dato o información que se le solicite referente al historial del alumno.

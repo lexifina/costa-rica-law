@@ -1,0 +1,1 @@
+Artículo 8°-Durante el mes de noviembre de cada año los alumnos del último curso de la educación media se dedicarán, exclusivamente, a revisar con sus respectivos profesores, la materia de las asignaturas que serán objeto de pruebas en examen de bachilleramiento.

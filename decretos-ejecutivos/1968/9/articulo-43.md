@@ -1,0 +1,1 @@
+Artículo 43. -La calificación de las pruebas se llevará a cabo, en forma simultánea, por los miembros del tribunal examinador, de acuerdo con las tablas de evaluación que señale el Ministerio de Educación Pública por medio de la Asesoría y Supervisión General de Educación Media.

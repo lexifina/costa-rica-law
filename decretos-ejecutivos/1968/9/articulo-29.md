@@ -1,0 +1,1 @@
+Artículo 29.-Cada establecimiento deberá entregar al delegado general, además de la documentación a que se hace mención en el artículo 9°, una nómina de los alumnos regulares, y otra de los candidatos de convocatorias anteriores inscritos para presentar exámenes.

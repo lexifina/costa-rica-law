@@ -1,0 +1,1 @@
+Artículo 30.-El delegado general deberá tomar las medidas pertinentes para que en el salón en donde se realicen las pruebas de bachilleramiento, el mobiliario necesario esté convenientemente dispuesto, de manera que se garantice el desarrollo de los exámenes en completo orden, honradez y trabajo individual.

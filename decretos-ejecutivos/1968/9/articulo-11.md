@@ -1,0 +1,1 @@
+Artículo 11.-El candidato que no se presente a examen en la fecha señalada perderá el derecho a hacerlo dentro de la misma convocatoria, salvo que demuestre, por escrito, causa justificada ante el delegado general, en cuyo caso éste hará un nuevo señalamiento de fecha y lugar, siempre que sea posible la práctica del examen.

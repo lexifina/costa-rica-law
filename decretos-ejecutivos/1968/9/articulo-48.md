@@ -1,0 +1,3 @@
+Artículo 48.-Cada establecimiento tendrá registrados, en un libro de actas, los resultados de las pruebas de bachillerato que allí se realicen. Se indicará claramente el nombre del alumno, la calificación obtenida y su condición de APROBADO o de SUSPENSO, según corresponda.
+Los establecimientos llevarán, además, en libro separado, las inscripciones de cada titulo que se emita.
+Cuando hubiere en un colegio concentración de estudiantes para efectos de pruebas de bachillerato, aquel remitirá copia del acta en lo correspondiente a los colegios del caso, para su transcripción en sus propios libros de actas.

@@ -1,0 +1,6 @@
+Artículo 47.-Los fallos del tribunal examinador son definitivos, cuando se compruebe que hubo error en la calificación. Todo alumno tiene derecho a ver sus exámenes corregidos siempre que lo solicite por escrito al tribunal dentro del día siguiente hábil a la fecha en que oficialmente se den a conocer los resultados.
+Este está en la obligación de hacer las aclaraciones e indicaciones correspondan a cada caso, a fin de que los interesados en ver sus exámenes puedan enterarse del resultado obtenido y de las razones que motivaron su calificación.
+Si se encontrare que hubo error en algún caso, el tribunal examinador corregirá, luego, la calificación y lo hará constar así en el acta. Fuera del tribunal nadie podrá variar las calificaciones de los exámenes de bachillerato.
+Toda solicitud de revisión de exámenes de bachillerato deberá ser hecha por los interesados, en forma escrita, ante el tribunal examinador, dentro del día hábil siguiente a la fecha en que oficialmente se den a conocer los resultados respectivos.
+Toda solicitud de revisión de exámenes deberá indicar, en forma clara, los detalles de la prueba en que, a juicio del estudiante, hubo error de calificación.
+Una vez que el tribunal haya revisado los exámenes, se levantará una acta que indicará los cambios introducidos en las calificaciones.

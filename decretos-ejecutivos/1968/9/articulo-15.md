@@ -1,0 +1,1 @@
+Artículo 15. -Las pruebas iniciadas en un colegio solo podrán continuarse en otro establecimiento cuando medie solicitud, expresa y justificada, ante la Asesoría y Supervisión de Educación Media del Ministerio de Educación Pública que merezca la autorización por parte de ésta.

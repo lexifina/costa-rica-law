@@ -1,0 +1,1 @@
+Artículo 26.-Los miembros del tribunal examinador deberán presentarse a los respectivos establecimientos al menos media hora antes de iniciarse los exámenes, a efecto de atender todo lo relativo a esas pruebas de bachilleramiento.

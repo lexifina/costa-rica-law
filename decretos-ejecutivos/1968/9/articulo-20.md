@@ -1,0 +1,1 @@
+Artículo 20.-Los candidatos rendirán las pruebas ante un tribunal examinador integrado por un delegado general, quien será presidente del mismo, un delegado por cada asignatura objeto de examen, y el profesor de la materia respectiva.

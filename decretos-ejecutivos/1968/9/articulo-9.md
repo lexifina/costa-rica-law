@@ -1,0 +1,5 @@
+Artículo 9°-El candidato a bachiller deberá entregar al director del establecimiento al finalizar la primera quincena del mes de noviembre, los siguientes atestados:
+a) Título de Conclusión de Estudios de Educación Media.
+b) Constancia de las calificaciones obtenidas durante el segundo ciclo en el caso de los alumnos aspirantes al Bachillerato de Honor.
+c) Una fotografía de tamaño de pasaporte para efectos de identificación.
+Las materias optativas objeto de examen las deberán indicar los alumnos a más, tardar en la primera quincena del mes de agosto, y se comunicarán, de inmediato en forma escrita al director del establecimiento. Efectuado el escogimiento, el alumno no podrá hacer cambios en esas asignaturas ya señaladas, esto para efecto de las pruebas de bachillerato. Además de los requisitos anteriores, los alumnos deberán comprobar la cancelación, oportuna, de las sumas que por concepto de derechos de pruebas determine el Ministerio de Educación Pública, esto con el fin de pagar los costos específicos de cada convocatoria de bachillerato.

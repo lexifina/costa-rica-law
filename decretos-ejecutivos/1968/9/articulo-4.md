@@ -1,0 +1,1 @@
+Artículo 4°-El Certificado de Conclusión de Estudios de Educación Media es requisito indispensable para presentarse a las pruebas reglamentarias para optar al título de bachiller en ciencias, en letras o profesional.

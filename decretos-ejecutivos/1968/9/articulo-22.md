@@ -1,0 +1,1 @@
+Artículo 22.-El cargo de delegado general obliga al funcionario a actuar, con el mayor grado de responsabilidad y de seriedad, en todos los actos y actividades que tengan relación con el desarrollo de la dicha convocatoria.

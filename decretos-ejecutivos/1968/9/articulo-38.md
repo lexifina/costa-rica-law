@@ -1,0 +1,1 @@
+Artículo 38.-La documentación para las pruebas estará bajo el cuidado exclusivo del delegado, y solamente podrá examinarse en el momento de iniciarse el examen, en presencia del tribunal examinador, el que dará fe, mediante acta escrita, de su orden y corrección.

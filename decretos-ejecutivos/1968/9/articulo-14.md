@@ -1,0 +1,2 @@
+Artículo 14.-Podrán acogerse a lo establecido en el artículo anterior, los estudiantes de colegios cuyo plan de estudios difiera del oficial, siempre que los cursos aprobados puedan considerarse como equivalentes a los que se ofrecen en los establecimientos oficiales, esto a juicio del Consejo Superior de Educación.
+Queda a salvo de lo dispuesto en este artículo y en el anterior lo establecido sobre la materia en los tratados internacionales suscritos por nuestro país.

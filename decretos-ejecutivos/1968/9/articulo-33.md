@@ -1,0 +1,2 @@
+Artículo 33.-Por cada cuarenta alumnos sobre el exceso de ciento, el delegado general podrá nombrar a un miembro del personal del establecimiento como colaborador del tribunal examinador, para ayudar en la vigilancia y administración de las pruebas de bachillerato.
+Es prohibido a estas personas atender consultas de los alumnos, hacer aclaraciones o comentarios sobre las pruebas, y ejecutar actos contrarios al normal desarrollo del trabajo de los estudiantes.

@@ -1,0 +1,1 @@
+Artículo 28. -Cuando al revisar la documentación de los alumnos, se encontrare alguna irregularidad, tal situación deberá comunicarse de seguida al director del plantel, a fin de que éste proceda a su enmienda o aclaración.

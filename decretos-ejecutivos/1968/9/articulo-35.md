@@ -1,0 +1,2 @@
+Artículo 35.-Antes de iniciarse el desarrollo de las pruebas, el delegado general deberá recomendar a los alumnos que lean, cuidadosamente, el temario propuesto, a fin de que cualquier aclaración que se juzgue pertinente sea hecha en su oportunidad, con sentido general para todos los alumnos participantes.
+Tales consultas solo podrán hacerse dentro de los primeros treinta minutos del período de la prueba. Estas aclaraciones únicamente las hará el delegado general, o el delegado de la asignatura respectiva previa autorización de aquél.

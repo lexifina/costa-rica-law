@@ -1,0 +1,2 @@
+Artículo 44.-Las pruebas se calificarán con la escala de 1 a 10. Para ser aprobado un examen, el mismo deberá obtener una calificación mínima de seis.
+La nota inferior a seis producirá el aplazamiento en la respectiva asignatura. El estudiante tendrá derecho, en tal caso, a presentar exámenes hasta en tres convocatorias posteriores. Para tener derecho a cada convocatoria posterior a esas, deberá demostrar que ha efectuado estudios de capacitación en la materia objeto de prueba.
