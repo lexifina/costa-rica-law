@@ -1,4 +1,4 @@
-Artículo 26.—El juego de planos dirigido a la Dirección de Protección al Ambiente Humano del Ministerio de Salud, deberá contener como mínimo la siguiente documentación:
+Artículo 26.—El juego de planos dirigido al Ministerio de Salud, deberá contener como mínimo la siguiente documentación:
 a) Solicitud de visado sanitario del proyecto (Formulario suministrado por el Ministerio de Salud).
 b) Planos catastrados de las propiedades que son afectadas por el proyecto.
 c) En caso que el nombre del desarrollador no coincida con el nombre del propietario en el Plano Catastrado, se deberá presentar una certificación expedida con fecha de antes de un mes que compruebe que el desarrollador del proyecto es el propietario del terreno donde éste se construirá, o que en su defecto está autorizado a hacerlo por el propietario.
@@ -14,3 +14,4 @@ Diagrama de flujo del proceso productivo de la industria, que incluya los balanc
 Diagrama de flujo del sistema de tratamiento químico, que incluya los balances de masa, de energía y especificaciones.
 Diagrama de flujo de las tuberías del sistema de tratamiento químico.
 Diagrama de instrumentación y control, y las especificaciones de los procesos del sistema de tratamiento químico.
+(Así reformado por el artículo 1º del decreto ejecutivo Nº 32262 del 2 de julio del 2004)

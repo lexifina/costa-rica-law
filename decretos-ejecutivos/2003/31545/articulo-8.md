@@ -1,4 +1,4 @@
-Artículo 8º—El Permiso de Ubicación deberá ser solicitado ante la Dirección de Protección al Ambiente Humano del Ministerio de Salud, mediante nota acompañada con la siguiente información:
+Artículo 8º—El Permiso de Ubicación deberá ser solicitado ante el Ministerio de Salud, mediante nota acompañada con la siguiente información:
 Nombre del proyecto global.
 Nombre del propietario.
 Localización según provincia, cantón y distrito, adjuntando copia del plano catastrado, actualizado y sin reducción.
@@ -13,3 +13,4 @@ iii) Acotamiento de los retiros a guardar entre el sistema de tratamiento y las 
 iv) Ubicación propuesta para el cabezal de desfogue o conexión al alcantarillado, si lo hubiera.
 v) Dirección del flujo de los cuerpos de agua que atraviesen o colinden con la propiedad.
 vi) Ubicación de los pozos de abastecimiento de agua existentes o proyectados, dentro de la misma propiedad del proyecto global. vii)Ubicación de los pozos de abastecimiento de agua existentes en las propiedades colindantes con el proyecto global, en un radio de 100 metros de la planta de tratamiento.
+(Así reformado por el artículo 1º del decreto ejecutivo Nº 32262 del 2 de julio del 2004)
