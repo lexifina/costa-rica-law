@@ -1,1 +1,0 @@
-ARTICULO 48.- Los Diputados en materias criminales serán juzgados por el Tribunal del Congreso en la forma que prescriba el Reglamento interior de este Acciones civiles no podrán intentarse contra ellos en todo el tiempo de Sesiones, y un mes después

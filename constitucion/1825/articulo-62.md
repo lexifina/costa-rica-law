@@ -1,1 +1,0 @@
-ARTICULO 62.- Para ser Consejero se requiere: ser Ciudadano en ejercicio de sus derechos, natural de las República: del Estado seglar ó Eclesiástico secular, mayor de treinta años, y tener una propiedad que no baje de mil pesos ó una renta anual de doscientos, o ser profesor de alguna ciencia.

@@ -1,1 +1,0 @@
-ARTICULO 74.- Cuando el Consejo niegue la sanción devolverá al Congreso un original exponiendo por separado los fundamentos por que la rehúsa. El Congreso discutirá de nuevo la Ley , resolución Legislativa, ó Decreto, y si fuere aprobada por dos terceras partes de votos la sanción, se tendrá por dada y en efecto la dará el Consejo

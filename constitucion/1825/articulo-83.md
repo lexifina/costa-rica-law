@@ -1,1 +1,0 @@
-ARTICULO 83.- El Jefe del Estado publicará la Ley dentro de ocho días y usará de esta fórmula:-El Jefe Supremo del Estado Libre de Costa Rica-Por cuanto el Congreso ha decretado y el Consejo sancionado lo siguiente-Por tanto: Ejecútese
