@@ -1,0 +1,2 @@
+Artículo 5°—Adquisición y Valor del Cartel.
+El Cartel de Licitación deberá adquirirse en el lugar o lugares que el Ministerio del Ambiente y Energía indique en el anuncio de la Licitación. El valor del Cartel será fijado por el Ministerio del Ambiente y Energía, de acuerdo a los costos de elaboración y sin que se pueda lucrar con ello. Su adquisición es requisito indispensable para la presentación de propuestas.

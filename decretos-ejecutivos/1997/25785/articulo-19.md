@@ -1,0 +1,3 @@
+Artículo 19.—Representante Legal.
+Las ofertas de los participantes serán presentadas por un apoderado o representante legal, con poder amplio y suficiente de acuerdo con las leyes costarricenses. Dicho apoderado o representante legal lo será para todas las relaciones jurídicas inherentes al oferente y a la oferta, dentro de todo el proceso de licitación y hasta la celebración del contrato.
+Cuando se trate de ofertas presentadas en consorcio, éstas deberán nombrar entre ellas a un único representante coordinador, quien será responsable ante la Administración y tendrá capacidad suficiente para comprometerlas.

@@ -1,0 +1,5 @@
+Artículo 7°—Anuncio de la Licitación.
+La licitación se anunciará en el Diario Oficial "La Gaceta" y en al menos dos diarios de circulación nacional. Este anuncio contendrá las condiciones generales y un extracto de las especificaciones técnicas necesarias para identificar el objeto que se licita. La Administración además de efectuar la publicación ordinaria, podrá invitar a participar a empresas internacionales, mediante la publicación de avisos en diarios extranjeros o por medio de comunicación a las delegaciones comerciales acreditadas en el país.
+De la fecha de la publicación a la fecha de la apertura de las ofertas, deberán mediar al menos treinta día hábiles, para lo cual no se tomará en cuenta el de la publicación y sí el de vencimiento.
+Desde el día de la publicación, el cartel completo con todos sus anexos y complementos deberá estar a disposición de los interesados.
+En materia de aclaraciones y modificaciones se aplicarán las reglas que al respecto establecen la Ley de la Contratación Administrativa y el Reglamento General de Contratación Administrativa.

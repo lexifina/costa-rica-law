@@ -1,0 +1,6 @@
+Artículo 21.—Condiciones y Requisitos.
+Las cotizaciones se formularán en moneda en dólares de los Estados Unidos de Norteamérica, salvo que el Cartel de Licitación admitiera hacerlo en moneda distinta.
+La oferta deberá ser acompañada de cuatro copias idénticas al original, incluidos sus anexos y todos aquellos documentos que expresamente requiere el Cartel, debiendo identificarse el original y las copias adecuadamente.
+Tanto la propuesta como la documentación adjunta al Cartel y sus respectivas copias deberán presentarse firmadas por el oferente en todas sus hojas, las cuales deben estar debidamente foliadas en forma consecutiva.
+Las autenticaciones, certificaciones y legalizaciones requeridas para la presentación de documentos, podrán constar únicamente en el original; los restantes, podrán acompañarse en fotocopias firmadas por el oferente.
+De provenir las legalizaciones o certificaciones de jurisdicción foránea, deberá procederse a su autenticación por el Ministerio de Relaciones Exteriores y Culto de acuerdo con la Ley Orgánica del Servicio Consular. El oferente podrá adjuntar los documentos en copia certificada del original siempre y cuando demuestre que los originales están siguiendo el trámite respectivo y los presente en un plazo máximo de quince días hábiles.

@@ -1,0 +1,2 @@
+Artículo 6°—Lugar y Fecha de Apertura de Ofertas.
+Los sobres se abrirán en el lugar, fecha y hora señalados en el Cartel. En ese momento y en presencia de los oferentes o de sus representantes autorizados para ese acto, se leerán las características sobresalientes de las ofertas. De la apertura del cartel se levantará un acta, de conformidad con lo dispuesto en el artículo 19 del Reglamento a la Ley de Hidrocarburos.

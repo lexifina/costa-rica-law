@@ -1,0 +1,2 @@
+Artículo 28.—Conocimiento de las Condiciones.
+Por el solo hecho de formular la propuesta, se tendrá al oferente por conocedor de las condiciones de la licitación, de las características técnicas de las actividades del programa y de cualquier dato o circunstancia que pudiera influir en su costo, por lo que no podrá con posterioridad invocar en su favor los errores en que pudiera haber incurrido al formular la oferta, así como duda o desconocimiento de la cláusulas y disposiciones legales aplicables.

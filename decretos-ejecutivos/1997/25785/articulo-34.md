@@ -1,0 +1,4 @@
+Artículo 34.—Selección y adjudicación.
+Dentro de los cinco días hábiles siguientes al acto de apertura, la Comisión de Evaluación procederá al análisis de los aspectos formales de las ofertas y la Dirección General de Hidrocarburos concederá un plazo de al menos cinco días hábiles para que se subsane cualquier defecto formal. Esta prevención podrá ser efectuada de oficio o por señalamiento de alguno de los participantes o del propio interesado.
+Luego de esta etapa, la Dirección General de Hidrocarburos conserva la facultad de solicitar de oficio la subsanación de defectos no advertidos durante los primeros cinco días hábiles.
+En todo caso, se entenderán como subsanables los requisitos que establece el artículo 56 del Reglamento General de la Contratación Administrativa, con excepción de lo dispuesto en el artículo 31 de este Reglamento.

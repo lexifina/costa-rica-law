@@ -1,0 +1,2 @@
+Artículo 63.—Renuncia.
+La renuncia unilateral de la contratista con la anticipación que fije el Contrato dará lugar a la extinción, con los efectos de la extinción por causas imputables al contratista previstos en el artículo 58 de este Reglamento, aunque sin ser sancionados en los pertinentes registros de contratantes. Si la renuncia fuese aceptada, tendrá los efectos de la extinción por causas ajenas a la voluntad de las partes, conforme a lo previsto en el citado artículo.

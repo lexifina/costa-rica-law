@@ -1,0 +1,9 @@
+Artículo 36.—Impugnaciones.
+El cartel de licitación y los actos para adjudicar la licitación pública podrán apelarse ante la Contraloría General de la República, según las siguientes disposiciones:
+1. El recurso deberá interponerse dentro de los cinco días hábiles siguientes a la publicación en el Diario Oficial.
+2. El recurrente deberá demostrar ante el órgano contralor que tiene un interés legítimo en el asunto.
+3. La interposición del recurso suspenderá únicamente la prosecución del trámite en cuanto a los bloques geográficos que sean objeto del recurso.
+4. La Contraloría General de la República deberá resolver el recurso dentro de un plazo de cuarenta y cinco días hábiles contados a partir de su interposición, a cuyo efecto deberá observar el procedimiento establecido en el Reglamento de la Contratación Administrativa para el trámite de las apelaciones en materia de licitación pública. El fallo de la Contraloría agota la vía administrativa.
+5. Si se acoge el recurso de apelación, declarando la nulidad del acto adjudicatario, el Ministerio del Ambiente y Energía citado contará con un plazo de quince días hábiles, contados a partir de la notificación de lo resuelto por el ente contralor, para readjudicar la licitación, si existen ofertas válidas y convenientes para los intereses del Estado. En caso contrario, declarará desierto el concurso.
+6. También se podrá apelar la readjudicación en los mismos términos y condiciones establecidos para la apelación contra el acto adjudicatario.
+Si la Contraloría General de la República resuelve que no hubo motivo suficiente para apelar, la garantía de participación del recurrente se ejecutará en beneficio del Ministerio del Ambiente y Energía. Esta indemnización no impedirá que la Administración inicie un reclamo por daños y perjuicios si estos han sido superiores al monto de la garantía de participación.
