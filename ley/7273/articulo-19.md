@@ -1,1 +1,0 @@
-Artículo 19.- Sobre el monto que deba pagarse por concepto de esta Ley, se autoriza a la Municipalidad para que cobre un cinco por ciento (5%), que se destinará exclusivamente para la atención, mantenimiento y limpieza de las playas, parques y áreas verdes del cantón.
