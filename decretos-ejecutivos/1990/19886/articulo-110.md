@@ -1,3 +1,3 @@
-Artículo 110.-El monto por hectárea del Certificado de Abono Forestal para reforestación (CAF), se distribuirá un 20% para cada año en un plazo de cinco años.
-En la modalidad del Certificado de Abono Forestal por Adelantado (CAFA), se hará de la siguiente forma: un 25% el primero, segundo y tercer año; un 15% en el cuarto año y un 10% en el quinto año."
-(Así reformado por el artículo 1° del decreto ejecutivo N° 24841 del 18 de diciembre de 1995)
+Artículo 110.-El Monto por hectárea del Certificado de Abono Forestal para reforestación (CAF) se distribuirá de la siguiente forma: el primer desembolso será de un 50% en tres cuotas, un 15% en enero y un 15%en marzo de 1997, junto con el 20% entregado en 1996. El segundo desembolso será de un 20%, el tercero de un 15%, el cuarto de un 10%y un quinto desembolso de un 5%.
+En la modalidad del Certificado de Abono Forestal por Adelantado (CAFA), se hará de la siguiente forma: el primer desembolso será de un 50%, en tres cuotas. un 12,5% en enero y un 12,5% en marzo de 1997, junto al 25% entregado en 1996. El segundo desembolso será de 20%, el tercero será de un 15%, el cuarto de un 10% y el quinto será de un 5%.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 25907 del 6 de enero de 1997)
