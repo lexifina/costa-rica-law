@@ -1,0 +1,1 @@
+Artículo 5º—A la Oficina del Ambiente también le corresponden todos los deberes y funciones según las leyes y reglamentos vigentes, así como cualquier otra que le asigne el Concejo Municipal, que no están contemplados en este Reglamento.

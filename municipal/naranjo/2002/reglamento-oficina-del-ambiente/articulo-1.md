@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE NARANJO
+De acuerdo con lo establecido en el Código Municipal en el artículo cuarto, incisos a) y b), la Municipalidad de Naranjo establece el siguiente Reglamento. Aprobado por acuerdo segundo B de la sesión ordinaria Nº 16 del 19 de agosto del 2002.
+Artículo 1º—Créase la Oficina Ambiental Municipal, que inicialmente estará a cargo de un profesional en Ciencias Biológicas, y posteriormente contará con personal de apoyo según sus necesidades y crecimiento, y contará con la colaboración de la Comisión Ambiental del Concejo, las Asociaciones Administradoras de los Acueductos Rurales, los Comités de Vigilancia de los Recursos Naturales (COVIRENAS), las organizaciones de defensa de los recursos naturales existentes en el cantón de Naranjo.
