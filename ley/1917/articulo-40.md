@@ -1,6 +1,1 @@
-Artículo 40.- Se prohíbe la publicación de guías, directorios,
-tarjetas, postales, planos para turistas, o cualquier otra clase de
-propaganda turística que haya de circular en el exterior o en el interior
-del país, sin la aprobación previa y escrita del Instituto Costarricense
-de Turismo. Quien incumpliere esta disposición incurrirá en una multa de
-quinientos colones.
+Artículo 40.- Se prohíbe la publicación de guías, directorios, tarjetas, postales, planos para turistas, o cualquier otra clase de propaganda turística que haya de circular en el exterior o en el interior del país, sin la aprobación previa y escrita del Instituto Costarricense de Turismo. Quien incumpliere esta disposición incurrirá en una multa de quinientos colones.

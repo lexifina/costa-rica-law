@@ -1,14 +1,1 @@
-Artículo 6º.- La custodia y conservación de las zonas comprendidas
-en un radio de dos kilómetros alrededor de todos los cráteres de los
-volcanes del país, se encomienda en forma absoluta al Instituto
-Costarricense de Turismo, de acuerdo con el artículo 5º, incisos e) y f)
-de esta ley y se declaran tales zonas, Parques Nacionales. El Instituto
-dictará, a fin de lograr la conservación del paisaje, la flora y fauna
-autóctonas, las regulaciones a que habrán de someterse quienes deseen
-conocer estos Parques Nacionales, y podrá fijar las tarifas por derecho
-de visita que estime convenientes, el producto de las cuales se
-destinará a la conservación y embellecimiento de los mismos y a
-proporcionar mayores comodidades a los visitantes. El Instituto podrá
-también construir en ellos caminos, hoteles y otras edificaciones,
-procurando en todo caso conservar el ambiente y paisaje primitivo del
-lugar.
+Artículo 6º.- La custodia y conservación de las zonas comprendidas en un radio de dos kilómetros alrededor de todos los cráteres de los volcanes del país, se encomienda en forma absoluta al Instituto Costarricense de Turismo, de acuerdo con el artículo 5º, incisos e) y f) de esta ley y se declaran tales zonas, Parques Nacionales. El Instituto dictará, a fin de lograr la conservación del paisaje, la flora y fauna autóctonas, las regulaciones a que habrán de someterse quienes deseen conocer estos Parques Nacionales, y podrá fijar las tarifas por derecho de visita que estime convenientes, el producto de las cuales se destinará a la conservación y embellecimiento de los mismos y a proporcionar mayores comodidades a los visitantes. El Instituto podrá también construir en ellos caminos, hoteles y otras edificaciones, procurando en todo caso conservar el ambiente y paisaje primitivo del lugar.

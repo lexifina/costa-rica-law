@@ -1,5 +1,1 @@
-Artículo 56.- Al efectuar el planeamiento general de la zona, además
-del área que deberán ocupar las calles, se reservarán porciones de
-terreno para destinarlas al establecimiento de jardines, parques y otras
-obras de interés público. No menos del veinte por ciento del frente total
-al Golfo de Nicoya deberá destinarse a playas públicas.
+Artículo 56.- (Derogado por el artículo 1º de la ley Nº 4071 de 22 de enero de1968, “Declara Zona Urbana de Ciudad de Puntarenas y Reforma Otras Leyes”)

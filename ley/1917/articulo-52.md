@@ -1,6 +1,1 @@
-Artículo 52.- Es entendido que los lotes que se vendan habrán de
-destinarse a la construcción de casas, hoteles, cabinas, balnearios u
-otros centros de reunión que necesariamente contribuyen al fomento del
-turismo nacional y extranjero. Toda construcción que se levante en dicha
-zona habrá de sujetarse a la planificación aprobada por la Institución
-aquí referida.
+Artículo 52.- (Derogado por el artículo 1º de la ley Nº 4071 de 22 de enero de1968, “Declara Zona Urbana de Ciudad de Puntarenas y Reforma Otras Leyes”)

@@ -1,6 +1,2 @@
-Artículo 18.- Los miembros electivos de la Junta serán designados
-para un período de cuatro años y pueden ser reelectos. Sus nombramientos
-se harán de manera que se renueven en sus puestos uno cada año. Los
-nombramientos de los miembros de la Junta que deban sustituir a los que
-hayan terminado su período, deberán hacerse dentro de los treinta días
-anteriores al vencimiento de tal período.
+Artículo 18.- Los miembros electivos de la Junta serán designados para un período de cuatro años y pueden ser reelectos. Sus nombramientos se harán de manera que se renueven en sus puestos uno cada año. Los nombramientos de los miembros de la Junta que deban sustituir a los que hayan terminado su período, deberán hacerse dentro de los treinta días anteriores al vencimiento de tal período.
+(Nota de Sinalevi: Ver artículo 5° de la ley N° 4646 del 20 de octubre de 1970, “Modifica Integración de Juntas Directivas de Instituciones Autónomas”)

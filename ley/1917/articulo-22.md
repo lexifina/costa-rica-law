@@ -1,8 +1,3 @@
-Artículo 22.- La Junta se reunirá en sesión ordinaria una vez por
-semana y en sesión extraordinaria cada vez que sea convocada al efecto,
-de acuerdo con los reglamentos internos. El quórum de las sesiones
-ordinarias o extraordinarias se forma con tres miembros y los acuerdos se
-tomarán, salvo disposición legal en contrario, por mayoría de votos. Por
-cada sesión, los miembros de la Junta Directiva devengarán cien colones
-(¢100.00), y en cada mes sólo cuatro sesiones extraordinarias podrán ser
-remuneradas.
+Artículo 22.- La Junta se reunirá en sesión ordinaria una vez por semana y en sesión extraordinaria cada vez que sea convocada al efecto, de acuerdo con los reglamentos internos. El quórum de las sesiones ordinarias o extraordinarias se forma con tres miembros y los acuerdos se tomarán, salvo disposición legal en contrario, por mayoría de votos.
+Por cada sesión, los miembros de la Junta Directiva devengarán cien colones (¢100.00), y en cada mes sólo cuatro sesiones extraordinarias podrán ser remuneradas.
+(Nota de Sinalevi: Mediante el artículo 6° de la ley sobre Pago de Dietas a Directivos de Instituciones Autónoma, N° 3065 del 20 de noviembre de 1962, se indica que se modifica en lo conducente este numeral. Por su parte los artículos 2° y 3° de dicha ley regula lo relativo al monto de dietas y número de sesiones remuneradas)
