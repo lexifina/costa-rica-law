@@ -13,3 +13,4 @@ CCSS: Reglamenta Art. 3º de Ley Constitutiva de CCSS
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-01-15 | la propia norma |
+| 2 | 1995-06-06 | Acuerdo 6931 (1995-06-06) |
