@@ -1,0 +1,1 @@
+Artículo 1º.- Refórmase el artículo 4º de la Ley de Creación del cantón de Talamanca, Nº 4339 de 20 de mayo de 1969, en el sentido de que la cabecera del cantón de Talamanca, sea la población denominada Bribrí, antes conocida como Fields.
