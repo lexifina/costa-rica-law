@@ -1,0 +1,1 @@
+Artículo 7º—El auditorio se facilitará solo por un día y podrá ser utilizado únicamente en un horario de las 8:00 a las 15:30 horas de lunes a viernes, salvo excepciones consideradas por la Gerencia General.

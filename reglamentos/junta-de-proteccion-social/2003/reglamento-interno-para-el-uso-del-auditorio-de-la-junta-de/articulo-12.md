@@ -1,0 +1,1 @@
+Artículo 12.—En caso de incendio, temblor, terremoto o cualquier otro fenómeno, las personas que asistan a la actividad deberán seguir las instrucciones que dicte la Comisión de Salud Ocupacional, oficiales de seguridad de la Institución o personal autorizado en ese momento para organizar la actividad.

@@ -1,0 +1,5 @@
+Artículo 4º—El procedimiento de autorización de uso del auditorio institucional será el siguiente:
+a) Se debe presentar solicitud por escrito ante la Gerencia General, con ocho días hábiles de anticipación al día en que se ocupará, indicándose en ellas claramente el propósito para el cual se solicita y la persona responsable de la actividad, dejando constancia de su condición mediante documento idóneo.
+b) Recibida la solicitud en la Gerencia General, ese Despacho determinará la procedencia o no de la petición, luego de lo cual cualquiera que sea la decisión, lo comunicará a la Dirección Administrativa de la Institución para la notificación respectiva.
+c) En caso de que se autorice su uso, la Dirección Administrativa deberá nombrar un funcionario específico del Área de Seguridad para cada actividad, cuyas obligaciones se detallan más adelante.
+d) No se atenderán solicitudes de personas físicas o jurídicas cuya gestión se realice de una manera diferente a la indicada en las disposiciones del presente instrumento.

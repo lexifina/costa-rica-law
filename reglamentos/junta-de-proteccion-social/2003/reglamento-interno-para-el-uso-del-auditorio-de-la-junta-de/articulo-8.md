@@ -1,0 +1,1 @@
+Artículo 8º—Bajo ninguna circunstancia podrá excederse la capacidad máxima de personas que puede albergar el auditorio institucional, que es de 100 personas, lo cual deberá ser observado y cumplido a cabalidad por el funcionario de seguridad de la Institución designado al efecto.

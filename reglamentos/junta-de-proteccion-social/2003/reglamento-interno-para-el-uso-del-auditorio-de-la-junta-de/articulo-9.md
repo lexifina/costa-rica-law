@@ -1,0 +1,1 @@
+Artículo 9º—Queda prohibido a los funcionarios o a los visitantes fumar o introducir comidas o bebidas al auditorio, asimismo que los asistentes a un acto específico, se movilicen por áreas del edificio distintas a ese lugar.

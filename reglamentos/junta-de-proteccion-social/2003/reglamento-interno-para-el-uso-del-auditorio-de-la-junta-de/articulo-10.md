@@ -1,0 +1,1 @@
+Artículo 10.—Los daños que ocurrieran en el auditorio durante el tiempo en que se realizan las actividades autorizadas, correrán por cuenta del máximo jerarca de la organización usuaria, condición que deberá acreditar previo a la actividad mediante documento idóneo ante la Dirección Administrativa de la Institución.
