@@ -1,4 +1,3 @@
-Artículo 3°-Las Juntas Directivas de las instituciones autónomas no podrán celebrar más de ocho sesiones remuneradas por mes, incluyendo ordinarias y extraordinarias, éstas cuando sean absolutamente necesarias.
-Los Presidentes Ejecutivos de las instituciones autónomas no tendrán derecho a devengar dietas como miembros de la Junta Directiva sino que devengarán únicamente un salario fijo, determinado por la Junta Directiva.
-(Así reformado por el artículo 7° de la ley N° 5507 del 19 de abril de 1974)
-(Nota de Sinalevi: Mediante el numeral 1° de la ley N° 5814 del 13 de octubre de 1975, se interpreta auténticamente el artículo 7° de la ley N° 5507 del 19 de abril de 1974 en el sentido de que:"... entre las juntas directivas de las instituciones autónomas, a que se refieren los artículos 2º y 3º de la ley Nº 3065 de 20 de noviembre de 1962, está la del Instituto Mixto de Ayuda Social y por lo tanto le son aplicables, a esa Junta Directiva, las disposiciones de los artículos 2º y 3º citados")
+Artículo 3°-Las juntas directivas de las instituciones autónomas no podrán celebrar más de ocho sesiones remuneradas por mes, entre ordinarias y extraordinarias, cuando estas últimas sean absolutamente necesarias.
+Los presidentes ejecutivos de las instituciones autónomas no tendrán derecho a devengar dietas como miembros de la junta directiva, sino que devengarán únicamente un salario fijo determinado por la junta directiva.
+(Así reformado por el artículo 1° de la ley N° 6908 del 3 de noviembre de 1983)

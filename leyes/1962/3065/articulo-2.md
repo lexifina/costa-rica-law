@@ -1,4 +1,2 @@
-Artículo 2°-Los miembros de las Juntas Directivas de las instituciones autónomas serán remunerados mediante dietas que devengarán por cada sesión a la cual asistan.
-Las dietas, en cuanto a su monto, serán determinadas en el presupuesto de cada institución autónoma, pero no podrán exceder de cuatrocientos colones (¢ 400.00) por sesión.
-(Así reformado por el artículo 7° de la ley N° 5507 del 19 de abril de 1974)
-(Nota de Sinalevi: Mediante el numeral 1° de la ley N° 5814 del 13 de octubre de 1975, se interpreta auténticamente el artículo 7° de la ley N° 5507 del 19 de abril de 1974 en el sentido de que:"... entre las juntas directivas de las instituciones autónomas, a que se refieren los artículos 2º y 3º de la ley Nº 3065 de 20 de noviembre de 1962, está la del Instituto Mixto de Ayuda Social y por lo tanto le son aplicables, a esa Junta Directiva, las disposiciones de los artículos 2º y 3º citados")
+Artículo 2°-Los miembros de las juntas directivas de las instituciones autónomas serán remunerados mediante dietas que devengarán por cada sesión a la que asistan. El monto de las dietas, será determinado en el presupuesto de cada institución, el cual no podrá exceder de ochocientos colones (¢800,00) por cada sesión.
+(Así reformado por el artículo 1° de la ley N° 6908 del 3 de noviembre de 1983)
