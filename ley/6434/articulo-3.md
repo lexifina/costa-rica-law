@@ -1,0 +1,26 @@
+Artículo 3º.- Refórmase los artículos 44, 50, 77 y 78 de la Ley Orgánica del Poder Judicial, derógase el transitorio del artículo 78, y agrégase un nuevo artículo a esa ley, después del 78, el cual llevará el número 78 bis, todo en la forma siguiente:
+"Artículo 44.- Durante el período de vacaciones funcionará un tribunal con el nombre de Corte Interina, cuyos integrantes serán nombrados por la Corte Plena con la debida antelación, y se compondrá de tres magistrados propietarios que actuarán del primero al catorce de febrero, inclusive, y por otros tres hasta finalizar dicho mes.
+El nombramiento se hará por sorteo, y se elegirá un magistrado por cada Sala de la Corte, de preferencia entre los que no hayan salido en los sorteos efectuados en años anteriores. Si todos lo hubieran sido ya, el sorteo se efectuará entre los de menor número de veces.
+Al practicarse la elección se indicará cuál de los magistrados actuará como Presidente de la Corte Interina. Se dará preferencia para ese cargo al Presidente de la Corte, si resultare beneficiado con el sorteo y, en su defecto, al Presidente de Sala o magistrado con mayor tiempo de servicio como miembro de la Corte o, en igualdad de tiempo, al de título más antiguo en el catálogo oficial del Colegio de Abogados.
+Ningún magistrado podrá integrar la Corte Interina por dos años consecutivos.
+Artículo 50.- Podrán conceder licencias sin goce de sueldo y con justa causa:
+1) La Corte Plena, a sus miembros, a los inspectores judiciales, al Director Administrativo, al Auditor, al Jefe del Ministerio Público, a los Directores del Organismo de Investigación Judicial, al Jefe de la Oficina de Defensores Públicos y a los demás funcionarios y empleados dependientes de ella.
+2) Las Salas de la Corte, a los jueces superiores, según la materia, y a los funcionarios y empleados de esas salas.
+3) Los Tribunales Superiores -el primero donde hubiere más de uno- a los jueces de primera instancia, a los jueces tutelares de menores, a los integrantes de los Tribunales de Trabajo de menor cuantía y de Tránsito, y a los Jueces de Instrucción, todo según el territorio y la materia.
+4) Los Jueces Civiles -el primero donde hubiere más de uno- a los alcaldes civiles y a los de jurisdicción mixta.
+5) Los Jueces Penales -el primero donde hubiere más de uno- a los Alcaldes Penales y a los de faltas y contravenciones.
+6) Los Jueces de Trabajo -el primero donde hubiere más de uno- a los Alcaldes de esa materia.
+7) Los Tribunales Superiores, Jueces de primera instancia, Jueces Tutelares de menores, Tribunales de Trabajo de menor cuantía y de Tránsito, Jueces de Instrucción, Alcaldes y Jefes de las demás dependencias judiciales, a los funcionarios y empleados subalternos de las respectivas oficinas.
+Artículo 77.- Los Jueces son: Superiores, Civiles, Penales, de lo Contencioso Administrativo y Civiles de Hacienda, de Trabajo, Tutelares de Menores y de Instrucción.
+Podrá haber los Actuarios Judiciales que el buen servicio exija, de acuerdo con la ley respectiva.
+La Corte Plena hará el nombramiento de los jueces en la segunda quincena del mes de mayo que corresponda, y tomarán posición el primero de junio siguiente.
+Artículo 78.- En los Tribunales Superiores habrá las secciones que sean necesarias, cada una compuesta de tres Jueces Superiores.
+También podrán existir tribunales o secciones con cinco jueces, cuando no sea indispensable crear nuevas secciones, y en estos casos tres de los jueces integrarán el tribunal para resolver cada asunto, todo conforme a la regulación que haga la Corte Plena, aplicando los principios establecidos en el artículo 62.
+Los Tribunales Superiores podrán tener jurisdicción en dos o más provincias y en cantones de diferentes provincias. La Corte regulará la distribución de trabajo entre esos tribunales, para el mejor servicio público.
+En materia civil los Tribunales Superiores conocerán de los recursos de apelación que procedan contra las resoluciones de los Jueces Civiles, y de los demás asuntos que anteriormente hayan sido de conocimiento de las Salas Civiles.
+Artículo 78 bis.- En las cuestiones de competencia los Tribunales Superiores conocerán según la materia:
+1) De las que se susciten entre los Jueces Civiles o Penales de su jurisdicción.
+Si los jueces pertenecieren a la jurisdicción de Tribunales Superiores de diferente territorio, tocará decidir la competencia a la Sala Tercera de la Corte, si se tratare de procesos penales; a la Sala Primera, si la cuestión se planteare en asuntos que le corresponda conocer en casación, independientemente de la cuantía, y a la Sala Segunda en los demás casos.
+2) De los conflictos que se planteen entre un Juez Civil o Penal y un Alcalde Civil o Penal de territorios diferentes. En estos casos, resolverá la competencia el Tribunal Superior del territorio a que pertenezca el Juez o Alcalde ante quien se presentó el asunto o previno en su conocimiento.
+3) De las competencias por el territorio nacional que planteen entre los Jueces de Trabajo de su jurisdicción, o entre un Juez de un territorio y un Alcalde de otro, o entre Alcaldes de distinto territorio.
+Si el conflicto surgiere entre jueces de diferente territorio, resolverá la competencia la Sala Segunda de la Corte".
