@@ -1,4 +1,2 @@
-Artículo 80.—El incumplimiento por parte de los servidores acogidos al régimen de dedicación exclusiva de las disposiciones contempladas en el presente Reglamento y de las del respectivo contrato, acarreará:
-a) La resolución inmediata del contrato.
-b) La sanción disciplinaria correspondiente.
-c) El reintegro a favor del Estado por parte de los servidores de las sumas recibidas por concepto de beneficio de dedicación exclusiva, a partir del momento en que incurrió en el incumplimiento.
+Artículo 80.—El Departamento de Personal de MIDEPLAN debe velar por el cumplimiento de las disposiciones establecidas en el presente capítulo y en los contratos respectivos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)

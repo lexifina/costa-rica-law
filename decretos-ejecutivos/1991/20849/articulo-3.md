@@ -13,7 +13,8 @@ Memorándum de entendimiento: memorando de entendimiento del Convenio para la Ve
 Ministro: el Ministro de Planificación Nacional y Política Económica.
 Prohibición: obligación de los servidores de no ejercer liberalmente determinadas profesiones que ostenten, excepto en el campo de la docencia y en lo referente a sus asuntos personales y familiares, a cambio de un beneficio consistente en una retribución equivalente a un porcentaje de su salario base, de conformidad con las normas establecidas sobre el particular en la ley N° 5867 del 15 de diciembre de 1975 y sus reformas.
 Programa PL-480: Programa de Desarrollo Económico y Social que se lleva a cabo con base en las medidas de autoayuda acordadas en los convenios para la Venta de Productos Agrícolas suscritos entre el Gobierno de los Estados Unidos y el Gobierno de Costa Rica al amparo de la ley pública N° 480 de los Estados Unidos de Norteamérica y que son aprobados, en cada caso, por leyes de la República de Costa Rica.
-Reasignación: acto formal que dispone el cambio en la clasificación de un puesto, con motivo de la variación sustancial y permanente de sus tareas.
+Reasignación: Cambio que se opera en la clasificación de un puesto con motivo de variación sustancial y permanente en sus tareas y responsabilidades.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)
 Reestructuración: cambio que afecta a puestos o clases al variarse la estructura ocupacional de una serie o la conformación de una clase y que tiene los mismos efectos de una reasignación.
 Reglamento: el presente Reglamento Autónomo de Servicio de la Dirección Ejecutora de Proyectos del Ministerio de Planificación Nacional y Política Económica en ejecución del Programa PL-480.
 Revaloración: acto que modifica los salarios base, como respuesta al aumento en el costo de la vida, relaciones de competencia y otras razones similares.

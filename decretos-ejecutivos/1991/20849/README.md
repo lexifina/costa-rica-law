@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicio de la Dirección Ejecutora de Proyectos del Min
 | --- | --- | --- |
 | 1 | 1991-12-05 | la propia norma |
 | 2 | 1993-08-12 | Decreto Ejecutivo 22497 (1993-08-12) |
+| 3 | 1994-03-11 | Decreto Ejecutivo 23292 (1994-03-11) |
