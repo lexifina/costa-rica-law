@@ -1,0 +1,2 @@
+Artículo 16.—Información sobre las características de los valores, gravámenes, limitaciones y embargos. Además de la correcta identificación del valor a negociar, los sistemas de negociación en bolsa deberán incorporar la información correspondiente a la existencia de gravámenes, limitaciones o embargos que afecten a los valores.
+Los puestos de bolsa serán responsables de brindar esta información a sus clientes a efectos de que puedan tomar decisiones informadas.

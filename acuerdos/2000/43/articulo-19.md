@@ -1,0 +1,1 @@
+Artículo 19.—Pago de dividendos y otros beneficios. El emisor de valores podrá encargar a los puestos de bolsa depositarios el pago de dividendos u otros beneficios de carácter patrimonial comprendidos en esa emisión; ello sin perjuicio de su facultad de realizar loa pagos en forma directa, en ventanilla.

@@ -1,0 +1,1 @@
+Artículo 18—Registro de socios. El emisor será responsable de que exista una total correspondencia entre la información que conste en el registro centralizado de la Central de Valores y la que conste en su registro de socios.

@@ -1,0 +1,2 @@
+Artículo 7°—Designación de puestos depositarios en mercado primario. Con anterioridad a la colocación de una emisión accionaria representada mediante certificado accionario, el emisor deberá designar el o los puestos de bolsa que realizarán el servicio de depositarios de los valores.
+El emisor deberá identificar en forma clara la emisión y el monto de valores cuyo depósito ha sido encomendado a cada puesto e informarlo a la Central de Valores.

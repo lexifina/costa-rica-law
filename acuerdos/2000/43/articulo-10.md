@@ -1,0 +1,1 @@
+Artículo 10.—Formalidades del recibo. Colocación en ventanilla. En el caso de colocación en ventanilla, los emisores serán responsables de establecer los mecanismos de seguridad necesarios en el proceso de emisión de los recibos, a efectos de evitar posibles fraudes a inversionistas. Como mínimo los recibos deberán emitirse con una numeración consecutiva,
