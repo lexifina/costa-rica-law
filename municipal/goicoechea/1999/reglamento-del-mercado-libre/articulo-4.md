@@ -1,0 +1,1 @@
+Artículo 4°—El mercado se establece para uso exclusivo de los productores agropecuarios y agroindustriales en forma individual y organizados en cooperativas u otras formas colectivas de organización que se dediquen a actividades agropecuarias y agroindustriales primarias.

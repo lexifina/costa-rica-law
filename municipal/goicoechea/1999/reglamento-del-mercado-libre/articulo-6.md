@@ -1,0 +1,1 @@
+Artículo 6°—La Administración Municipal se encargará de mantener informados a consumidores y participantes de estos precios por medio de listas oficiales vigentes en cada mercado, expuestas en forma visible y permanente.

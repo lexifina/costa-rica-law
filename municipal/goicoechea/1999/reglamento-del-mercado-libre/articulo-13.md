@@ -1,0 +1,2 @@
+Artículo 13.—La Municipalidad abrirá un registro en el Sistema de Cómputo para efectos de cobro del derecho de piso a los vendedores del Mercado Libre de Guadalupe. Podrán cancelar el derecho de piso de forma mensual, trimestral, semestral o anual en las oficinas de la Municipalidad de Goicoechea.
+Cuando el vendedor no pague el derecho de piso el cual debe ser por adelantado no tendrá derecho de permanecer en la feria el día correspondiente y de persistir el no pago perderá el derecho en el Mercado Libre de Guadalupe.

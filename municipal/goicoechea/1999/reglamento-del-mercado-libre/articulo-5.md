@@ -1,0 +1,1 @@
+Artículo 5°—Los precios de venta de los productos hortifrutícolas contemplados en la lista de precios, serán establecidos por la Unidad de Ferias en coordinación con el MEC-, de acuerdo con las fluctuaciones del mercado, pero ofreciendo precios más bajos que en los mercados tradicionales.
