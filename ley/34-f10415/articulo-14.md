@@ -1,0 +1,5 @@
+Art 14° Dentro de tercero día de notificada al procesado o procesados, la sentencia que causa ejecutoria, deberá pagar la multa o dar fiador bastante si pretende obtener plazo, en caso contrario, el Fiscal denunciará los bienes del deudor en que haya que hacerse la traba y se seguirá el juicio ejecutivo por los trámites del artículo 441 del Código de Procedimientos.
+&1° Si el Fiscal no señala bienes, ni el reo los presentarse, se ejecutará la sentencia sin demora, imponiendo al condenado un día de obras públicas por cada un peso de la pena o penas pecuniarias impuestas y no pagadas.
+&2° Con fianza bastante apudacta a satisfacción del juez, este podrá conceder plazo para el pago, que no pasará de tres meses por cada doscientos pesos.
+&3° En el caso de haber alguna obra pública para la que el condenado sea apto y quiera trabajar y sea admitido, descontará su pena por jornal al precio que merezca según su oficio y profesión.
+&4° El que en el caso del párrafo anterior, no llenare sus obligaciones, pasará a descontar lo que le falte de la pena en obras públicas, como queda determinado en el párrafo 1° del presente articulo.

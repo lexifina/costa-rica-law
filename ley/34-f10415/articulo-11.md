@@ -1,0 +1,1 @@
+Art 11° Los cómplices, auxiliadores o encubridores de los delitos de que habla esta ley, sufrirán igual pena que el reo principal, con las excepciones y rebajas especificadas en el artículo 40 y última parte del 41 del Código Penal.
