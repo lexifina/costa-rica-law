@@ -1,0 +1,2 @@
+Artículo 95.—En los servicios con tarifa domiciliar, de no existir registros que permitan establecer el consumo promedio normal, se aplicará un volumen de consumo 30 m3 por mes por unidad habitacional.
+En los servicios con tarifa ordinaria, reproductiva, preferencia! y de gobierno, de no existir registros que permitan establecer el consumo promedio normal, AyA lo estimará con base en las características del servicio en cuestión.

@@ -1,0 +1,1 @@
+Artículo 48.—Si el cliente no atiende sus obligaciones de pago, antes de la fecha de vencimiento mostrada en su recibo, se hace acreedor a la suspensión de los mismos, previa notificación mediante nota expresa.

@@ -1,0 +1,1 @@
+Artículo 91.—A partir de la fecha de vencimiento del recibo, si éste no ha sido cancelado, el cliente podrá pagarlo solamente en las cajas recaudadoras propias del AyA o en aquellas entidades autorizadas para tal efecto, con un recargo del 2% mensual sobre el pendiente.

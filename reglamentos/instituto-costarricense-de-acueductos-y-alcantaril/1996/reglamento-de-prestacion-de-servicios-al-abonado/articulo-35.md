@@ -1,0 +1,1 @@
+Artículo 35.—Cuando se trate de solicitud de alcantarillado sanitario, si ya existe la conexión del servicio de agua potable, el propietario solamente debe cumplir con los requisitos solicitados en el art. 32 y estar al día en sus obligaciones con el AyA, sin detrimento de que éste pueda incorporarlos de oficio en la facturación.

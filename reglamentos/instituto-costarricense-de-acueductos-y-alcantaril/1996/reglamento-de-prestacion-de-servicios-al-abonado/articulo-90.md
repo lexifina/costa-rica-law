@@ -1,0 +1,1 @@
+Artículo 90.—El propietario podrá solicitar a AyA y al Banco o entidad financiera de su preferencia, que los recibos sean cargados a su cuenta comente o de ahorros u otros sistemas similares con ese banco o entidad.

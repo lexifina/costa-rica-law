@@ -1,0 +1,1 @@
+Artículo 96.—Cuando se compruebe mediante prueba volumétrica. que el hidrómetro presenta sobre registro o cuando no se pueda determinar el funcionamiento del mismo, no se cobrarán los consumos facturados en exceso, de su promedio normal de consumo.

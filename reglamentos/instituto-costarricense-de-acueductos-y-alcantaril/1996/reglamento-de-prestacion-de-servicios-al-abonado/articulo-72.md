@@ -1,0 +1,1 @@
+Artículo 72.—La tarifa Domiciliar se aplicará para casas y apartamentos destinados exclusivamente a la habitación, en forma permanente y sin fines de lucro. En estos casos, el uso del agua potable es para satisfacer las necesidades domésticas de las familias.

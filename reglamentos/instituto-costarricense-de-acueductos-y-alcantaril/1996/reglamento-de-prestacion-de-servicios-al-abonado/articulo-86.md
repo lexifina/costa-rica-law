@@ -1,0 +1,1 @@
+Artículo 86.—Cuando por alguna circunstancia, no sea posible leer el hidrómetro y/o verificar su funcionamiento, los servicios se facturarán de acuerdo con el promedio de consumo de los últimos seis meses. Y en aquellos casos en que existiendo lectura el hidrómetro no registre consumo, se facturará el consumo mínimo.
