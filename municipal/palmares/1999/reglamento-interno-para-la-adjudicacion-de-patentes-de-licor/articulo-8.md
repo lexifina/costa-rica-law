@@ -1,0 +1,1 @@
+Artículo 8°-En todo expendio provisional de licores debe haber personal encargado de la seguridad ciudadana. Si la policía oficial no pueden hacerse cargo de la seguridad, el ente que solicita debe poner el servicio de seguridad, debidamente identificado.

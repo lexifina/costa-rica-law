@@ -1,0 +1,1 @@
+Artículo 6°-La entidad está obligada a rendir un informe de actividades y fondos recaudados a más tardar treinta días después de efectuado el evento, así como la inversión a realizar. Dicho informe se presentará al Concejo Municipal y se archivará en el expediente respectivo. No se darán nuevos permisos a la entidad que incumpla este mandato.
