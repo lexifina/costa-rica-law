@@ -1,0 +1,1 @@
+Artículo 4º—Las entidades públicas a que hace referencia el artículo 3° de la Directrices de Política Presupuestaria del 2003, deberán remitir a la AP el monto máximo de gasto presupuestario de dicho período a más tardar el 15 de abril del 2002.

@@ -1,0 +1,1 @@
+Artículo 16.—Los ministerios y las entidades públicas firmantes de los Compromisos de Resultados, en el marco del SINE, deberán presentar a MIDEPLAN, el informe de avance sobre la ejecución de las acciones estratégicas definidas en dicho instrumento, en el momento que así lo indique.
