@@ -15,3 +15,4 @@ Se autoriza la importación de setenta y cinco mil tonelas de arroz en granza co
 | --- | --- | --- |
 | 1 | 2002-11-29 | la propia norma |
 | 2 | 2003-02-25 | Decreto Ejecutivo 31014 (2003-02-25) |
+| 3 | 2003-05-22 | Decreto Ejecutivo 31166 (2003-05-22) |
