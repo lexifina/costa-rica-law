@@ -1,0 +1,1 @@
+Artículo 3º—El Ministerio de Educación Pública incorporará en su presupuesto a partir del año 2001, el financiamiento que exija el funcionamiento del SINETEC, por su condición de órgano desconcentrado en grado máximo, para lo cual el Consejo le hará la propuesta anual correspondiente.
