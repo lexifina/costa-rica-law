@@ -1,0 +1,1 @@
+Artículo 4°—Funciones de la Comisión: La Comisión deberá asesorar a la Presidencia de la República en lo que corresponde al diseño y puesta en práctica de políticas públicas, programas y acciones dirigidas a las personas con discapacidad.

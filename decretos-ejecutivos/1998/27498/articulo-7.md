@@ -1,0 +1,1 @@
+Artículo 7°—Sesiones: Los integrantes de la Comisión sesionarán dos veces al mes ordinariamente y extraordinariamente cuando se requiera, la convocatoria la hará la Dirección Ejecutiva a instancias de la Presidenta con al menos 24 horas de anticipación.
