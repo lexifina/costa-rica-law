@@ -1,0 +1,1 @@
+Artículo 10.—Sujeto pasivo del cobro. El sujeto pasivo de la obligación tributaria, serán todos los propietarios de bienes inmuebles inscritos en la jurisdicción del Cantón Central de Alajuela, en proporción a la medida frontal de cada una de sus propiedades.

@@ -1,0 +1,1 @@
+Artículo 9º—Vigencia de la tarifa. la tarifa o tasa por el servicio de mantenimiento de parques y áreas verdes, deberá ser aprobada por la Contraloría General de la República y empezará a regir treinta días después de su publicación definitiva en el Diario Oficial.

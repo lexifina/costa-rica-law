@@ -1,0 +1,11 @@
+Artículo 4º—Prohibiciones. Está prohibido en los parques y áreas verdes del cantón:
+- Hacer actividades comerciales o de cualquier tipo, que no hayan sido autorizadas previamente por la Ejer Municipalidad.
+- Destruir las plantas, árboles o arbustos plantados en ellos.
+- Destruir los monumentos y las obras de infraestructura o equipamiento urbano existentes en ellos.
+- Maltratar los animales domésticos o silvestres que se encuentren en ellos.
+- Utilizar sus estructuras (quioscos, asientos, fuentes, basureros, postes de alumbrado, etc.) para usos distintos a aquellos para los cuales fueron diseñados.
+- Pegar propaganda de cualquier tipo en árboles, postes de alumbrado, monumentos y demás estructuras ubicados en ellos.
+- Realizar en ellos, actividades prohibidas por la ley o contrarias a la moral y las buenas costumbres.
+- Consumir en ellos, drogas o bebidas alcohólicas.
+- Tirar basura en estructuras o sitios que no estén destinados específicamente a ese fin.
+- Realizar construcciones temporales o permanentes en las zonas verdes, o utilizarlas para ubicar en ellas materiales de construcción o desechos de cualquier tipo.
