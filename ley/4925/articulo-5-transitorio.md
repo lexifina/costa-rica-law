@@ -1,0 +1,1 @@
+Transitorio V.- El Colegio Federado deberá someter al Poder Ejecutivo dentro de los noventa días siguientes a la instalación de la Junta Directiva General provisional, el proyecto de reforma del Reglamento General del Colegio Federado para adecuarlo a las reformas contenidas en esta ley. El Poder Ejecutivo lo promulgará dentro de los sesenta días posteriores a su presentación.
