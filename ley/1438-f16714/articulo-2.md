@@ -1,0 +1,1 @@
+Artículo 2°.- Las personas que se encuentren en el caso previsto en el artículo anterior, o quien a falta de ellas, tuviere ese derecho, deberán acogerse a las disposiciones de esta ley formulando la respectiva solicitud dentro de los seis meses siguientes a su vigencia.
