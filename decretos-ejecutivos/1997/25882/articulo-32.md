@@ -1,0 +1,2 @@
+Artículo 32.—Decomiso de valores.
+Si como producto de los procedimientos de requisa de personas o inspección de bienes se lograre determinar la violación del artículo 1 del Reglamento de Valores en Custodia, Fondo de Ayuda y Ahorro de los Internos del Sistema Penitenciario Nacional, los objetos ahí mencionados serán decomisados y se invitará a su portador a decidir si desea que se conserven en custodia de la Administración del Centro o si han de ser entregados a una persona fuera del mismo, en cuyo caso debe individualizarla de manera indubitable.
