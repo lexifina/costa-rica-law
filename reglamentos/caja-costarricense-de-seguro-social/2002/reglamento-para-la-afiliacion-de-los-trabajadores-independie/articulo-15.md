@@ -1,1 +1,0 @@
-Artículo 15.—De las Exclusiones. Los asegurados afiliados como trabajadores independientes, sólo podrán ser excluidos de este sistema en los siguientes casos a) pasar a ser asalariado, b) fallecimiento, c) acogerse a pensión; d) otra no especificada, que la Caja podrá investigar y resolver con el apoyo de los servicios de inspección.

@@ -1,2 +1,0 @@
-Artículo 19.—De la Irrenunciabilidad. La afiliación a este Seguro es voluntaria, pero una vez adquirida se convierte en irrenunciable, salvo si el asegurado pasa a ser asalariado, trabajador independiente, se acoge a pensión, adquiere derecho al beneficio familiar o se acoge al Seguro por el Estado.
-Cuando el asegurado voluntario se ausentare del país por tres meses o más, lo cual debe probar a satisfacción de la Caja, puede decidir su continuación o su exclusión del régimen. Si su decisión fuere lo segundo, debe así comunicarlo por escrito.

@@ -1,1 +1,0 @@
-Artículo 23.—De las Derogatorias. Este reglamento deroga el Reglamento del Seguro Voluntario aprobado en la sesión N° 6979 del 28 de noviembre de 1995, sus reformas y cualquier otra norma de igual o menor rango que se le oponga.

@@ -1,1 +1,0 @@
-Artículo 20.—De las Exclusiones. Si el asegurado voluntario deja de cotizar durante seis meses consecutivos, se suspende la facturación de los comprobantes de pago, condición que sólo podrá activarse si paga las cuotas adeudadas hasta un máximo de seis mensualidades.

@@ -1,2 +1,0 @@
-Artículo 14.—De los Derechos. El trabajador independiente, tiene derecho a todas las prestaciones que otorga el Seguro de Salud, en igualdad de condiciones, requisitos y obligaciones que los trabajadores asalariados.
-En materia de incapacidades y licencias, los subsidios por enfermedad y por maternidad se otorgarán a los asegurados activos cotizantes, de conformidad con lo establecido en el Reglamento del Seguro de Salud y el Reglamento para el Otorgamiento de Incapacidades y Licencias a los Beneficiarios del Seguro de Salud.
