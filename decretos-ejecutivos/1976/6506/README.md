@@ -14,3 +14,4 @@ Concede a la firma "Cosas de Madera, Sociedad Anónima” beneficios arancelario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-11-26 | la propia norma |
+| 2 | 1977-02-23 | Decreto Ejecutivo 6814 (1977-02-23) |
