@@ -1,2 +1,0 @@
-Artículo 6°—Cualquier incumplimiento de las especificaciones en materia de tolerancia que no sea el indicado, únicamente implicara la no clasificación en la categoría establecida y de ninguna manera se interpretará como un motivo para establecer restricción alguna a la comercialización o internamiento al país del producto.
-(Así ADICIONADO por el artículo 2° del Decreto Ejecutivo N° 25674 de 16 de octubre de 1996, publicado en La Gaceta N° 247 de 24 de diciembre de 1996.)

@@ -1,2 +1,0 @@
-Artículo 3°—Serán sancionados con las leyes penales y especiales sobre la materia quienes incumplan con lo dispuesto en el presente reglamento. Se faculta a los Ministerios de Salud y Agricultura y Ganadería así como el Consejo Nacional de Producción cada uno en las áreas de su competencia para que ejecuten las acciones necesarias que garanticen el cumplimiento de lo dispuesto en el presente reglamento.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 2° del Decreto Ejecutivo N° 25674 de 16 de octubre de 1996, publicado en La Gaceta N° 247 de 24 de diciembre de 1996.)
