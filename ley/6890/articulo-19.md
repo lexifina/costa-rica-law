@@ -1,0 +1,13 @@
+Artículo 19.- Adiciónase un párrafo final al artículo 8º de la ley
+Nº 6806 del 26 de agosto de 1982, que dirá así:
+"Tratándose de acueductos municipales, las tasas y tarifas por
+concepto del servicio de agua, serán acordadas por el Concejo, previo
+estudio jurídico y económico que efectuará el Instituto de Fomento y
+Asesoría Municipal, en consulta con el Instituto Costarricense de
+Acueductos y Alcantarillados, y las mandará a publicar como proyecto,
+remitiéndolas para su aprobación al Servicio Nacional de Electricidad, el
+cual dispondrá de un plazo de treinta días hábiles para aprobarlas o
+justificar su rechazo.
+En caso contrario vencido este plazo, la municipalidad las pondrá en
+vigencia a partir del mes siguiente a la publicación en el Diario Oficial
+del aviso correspondiente."
