@@ -1,113 +1,69 @@
 INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
-ANEXO N°1
-Considerando:
-I°—Que al INVU corresponde emitir este plan, de acuerdo a la normativa legal vigente.
-2°—Que con fundamento en las disposiciones indicadas en el considerando anterior, el plan se dirige en esta etapa, a formular la ampliación del área territorial hasta ahora base de regulación con el fin de ejercer un control más efectivo sobre el sistema dicho, identificando los distritos sujetos a control urbanístico, parte de ellos ya afectados por acuerdo de la junta directiva del Instituto, que es el número 4240, sesión N° 3187 de 27 de octubre de 1980, sobre los que se aplicarán las medidas y disposiciones de este acuerdo, al igual que todas las disposiciones que en el futuro se establezcan.
-3°—Que consecuente con el espíritu del decreto citado la Secretaría del Sector de Vivienda y Asentamientos Humanos, constituyó un grupo de trabajo para que cumpliera una función asesora y coordinadora en la formulación del plan involucrando las siguientes entidades del sector: INVÜ, IFAM, AyA y OFIPLAN.
-4°—Que existen estudios realizados en forma conjunta por el INVU y OFIPLAN, tendientes a la implantación de un Plan Nacional de Desarrollo Urbano, en los cuales se plantean algunas estrategias a seguir con relación a la Región Metropolitana.
-5°—Que el plan se sustenta, en esta etapa, en estudios que toman en cuenta factores que a continuación se detallan:
-a) Los asentamientos urbanos existentes y las áreas con aptitudes y tendencias a convertirse en urbanas a corto plazo;
-b) Las zonas rurales inmediatas a los asentamientos urbanos que tienen o tendrán interrelación con éstos;
-c) Los flujos de transporte e intercambio de bienes y servicios entre las poblaciones; y
-d) Las divisiones administrativas actuales.
-6°—Que para hacer viable el plan es necesario orientar el desarrollo urbano hacia las zonas donde razonablemente debe producirse el mismo, a efecto de evitar un grave costo social y los riesgos que amenazan actualmente la calidad de vida de la población.
-7°— Que la orientación de este desarrollo debe cumplirse mediante el establecimiento de normas reguladoras que impidan el crecimiento urbano en zonas en que éste es indeseable.
-8°—Que en virtud de lo anterior, en el plan se hizo necesario delimitar dos tipos de zonas:
-a) Aquellas que deben protegerse de la expansión e intromisión de actividades urbanas; y
-b) Aquellas en donde se permitirá el desarrollo urbano.
-9°—Que esta delimitación se sustenta en estudios que toman en cuenta aspectos diversos:
-1. Para el caso de las "Zonas de Protección".
-a) Las áreas rurales en producción agrícola y pecuaria;
-b) Ubicación de manantiales y pozos de agua que son usados para consumo de la población;
-c) Zonas de recarga de acuíferos que constituyen fuentes de abastecimiento, actuales y potenciales, para la población del valle central;
-d) Áreas que constituyen un cinturón verde que rodea el valle y donde están ubicadas la mayoría de las reservas forestales, parques regionales y áreas de esparcimiento y atracción paisajística de la zona;
-e) Áreas que de ser desarrolladas urbanamente producirían escorrentías de gran volumen que agravarían el problema de inundaciones en los asentamientos urbanos aguas abajo; y
-f) Áreas de interés ecológico.
-2. Para las "zonas donde se permitirá el desarrollo urbano":
-a) Zonas desarrolladas y a desarrollar;
-b) Zonas donde existe una gran inversión en infraestructura y estructuras urbanas; y
-c) Zonas donde, por aptitud y tendencia, se está realizando el desarrollo urbano.
-Artículo 1°—Establecer un área de control urbanístico sobre la cual se aplicarán las disposiciones del presente acuerdo y que estará compuesta por los distritos de las provincias de San José, Alajuela, Heredia y Cartago que a continuación se indican:
-PROVINCIA | CANTON | DISTRITO
-| Central | Carmen Merced Hospital Catedral Zapote San Francisco de Dos Ríos Única Mata Redonda Pavas Hatillo San Sebastián
+PLAN REGIONAL DE DESARROLLO URBANO "GRAN AREA METROPOLITANA"
+ANEXO 1: DELIMITACION DEL AREA
+Artículo 1°—Se establece un "Área de Control Urbanístico" sobre la cual se aplicarán las disposiciones del presente Decreto, y que estará compuesta por los distritos de las provincias de San José, Alajuela, Heredia y Cartago que a continuación se indican, siempre y cuando los Gobiernos Municipales no hayan promulgado sus propios Reglamentos de Planificación y Desarrollo Urbano de conformidad con los artículos 169 de la Constitución Política y el artículo 15 de la Ley de Planificación Urbana.
+Provincia | | Distrito
+San José | San José | Carmen Merced Hospital Catedral Zapote San Feo. Dos Ríos Única Mata Redonda Pavas Hatillo San Sebastián*
 | Escazú | Escazú San Antonio San Rafael
-| Desamparados | Desamparados San Miguel San Juan de Dios
-| Desamparados | San Rafael Arriba San Antonio Patarra Damas San Rafael Abajo
+| Desamparados | Desamparados San Miguel San Juan de Dios San Rafael San Rafael Abajo San Antonio Patarrá Damas
 | Aserrí | Aserrí
 | Mora | Colón
-| Goicoechea | Guadalupe San Francisco Calle Blancos Carmen Ipís Rancho Redondo
-| Santa Ana | Santa Ana Salitral Pozos Uruca Piedades Brasil
+| Goicoechea | Guadalupe San Francisco Calle Blancos Mata de Plátano Ipís
+| | Santa Ana Salitral Pozos Úruca Piedades Brasil
 | Alajuelita | Alajuelita San Josecito San Antonio Concepción San Felipe
-| Vázquez de Coronado | San Isidro San Rafael Jesús Patalillo
-| Tibás | San Juan Cinco Esquinas Llórente
+| |
+| Vázquez de Coronado | San Isidro San Rafael Dulce Nombre de Jesús Patalillo
+| Tibás | San Juan Cinco Esquinas Anselmo LLorente
 | Moravia | San Vicente San Jerónimo La Trinidad
-| Montes de Oca | San Pedro Sabanilla Mercedes San Rafael
+| Montes de oca | San Pedro Sabanilla Mercedes San Rafael
 | Curridabat | Curridabat Granadilla Sánchez Tirrases
-Alajuela | Central | Alajuela San José Carrizal San Antonio Guácima San Isidro Sabanilla San Rafael Río Segundo Desamparados Turrúcares Tambor La Garita
+Alajuela | Alajuela | Alajuela San José Carrizal San Antonio Guácima San Isidro Sabanilla San Rafael Río Segundo Desamparados Turrúcares Tambor Garita
 | Atenas | Atenas Jesús Mercedes Concepción
-| Poás | San Pedro San Juan Sur San Rafael Carrillo Sabana Redonda
-Cartago | central | Oriental Occidental Carmen San Nicolás San Francisco Guadalupe Tierra Blanca Dulce Nombre Llano Grande
-| Paraíso | Paraíso Santiago Orosi Cachi
-| La Unión | Tres Ríos San Diego San Juan San Rafael Concepción Dulce Nombre San Ramón Río Azul
+| Poás | San Pedro San Juan San Rafael Camilos Sabana Redonda
+Cartago | Cartago | Oriental Occidente Carmen San Nicolás Agua Caliente o San Francisco Guadalupe Tierra Blanca Dulce Nombre Llano Grande
+| Paraíso | Paraíso Santiago Orosí Cachí
+| La Unión | Tres Ríos San Diego San Juan San Rafae Concepción Dulce Nombre San Ramón Río Azul
 | Alvarado | Pacayas Cervantes Capellades
 | Oreamuno | San Rafael Cot Potrero Cerrado Cipreses Santa Rosa
 | El Guarco | El Tejar San Isidro Tobosi
-Heredia | Central | Heredia Mercedes San Francisco Ulloa
+Heredia | Heredia | Heredia Mercedes San Francisco Ulloa
 | Barva | Barva San Pedro San Pablo San Roque Santa Lucía San José de la Montaña
-| Santo Domingo | Santo Domingo San Vicente San Miguel Sur Paracito Santo Tomás Santa Rosa Tures Para
-| Santa Bárbara | santa Bárbara San Pedro San Juan Jesús Santo Domingo Purabá
+| Santo Domingo | Santo Domingo San Vicente San Miguel Paracito Santo Tomás Santa Rosa Tures Pará
+| Santa Bárbara | Santa Bárbara San Pedro San Juan Jesús Santo Domingo Purabá
 | San Rafael | San Rafael San Josecito Santiago Los Angeles Concepción
 | San Isidro | San Isidro San José Concepción
-| Belén | San Antonio Ribera Asunción
-| Flores | San Joaquín Barrantes Llórente
+| Belén | San Antonio Rivera Asunción
+| Flores | San Joaquín Barrantes Llorente
 | San Pablo | San Pablo
-(NOTA: Por acuerdo tomado en sesión N° 3825, celebrada el 18 de mayo de 1987, se modifica el limite de contención urbana en el sector de Moravia, de acuerdo a plano que puede consultarse en la Dirección de Urbanismo del INVU).
-Artículo 2°— Establecer en el área anterior una "Zona Especial de Protección de conformidad con el artículo 25 de la Ley de Planificación Urbana y una "Zona de Crecimiento Urbano", según plano cuyo original puede ser consultado en el INVU, MIDEPLAN y municipalidades correspondientes. El límite indicado en dichos planos será ajustado por la Dirección de Urbanismo conforme con las características de la zona tomando en consideración, cuando menos, los aspectos geofísicos que incluyan entre otros, potencial y vocación del duelo y urbanísticos (accidentes naturales, pendientes, hidrografía, calle, luz, agua, etc.).
-(Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta N°74 de 20 de abril de 1983).
-Artículo 3°—Las fincas por cuyos terrenos se definió el límite de contención .urbana o que estén próximos con este a no más de 100 m podrán extender el uso urbano dentro del área de protección en un porcentaje no mayor del 50% del área total de la finca o hasta 200 m del límite, cualquiera que fuese menor".
-(Así adiciónado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta N°74 de 20 de abril de 1983).
-(Así reformado por Acuerdo de Junta Directiva del INVU N° 3539, publicado en La Gaceta N°151 de 10 de agosto de 1984)
-Artículo 4°—La zona especial de protección tendrá un uso predominantemente agrícola y queda sometida a las siguientes regulaciones:
-1) Dentro de la misma se permitirán urbanizaciones en las áreas de expansión urbana de los siguientes poblados y de cualquier otro de características similares a juicio de la Dirección de Urbanismo. Se entiende como área de expansión urbana un radio de un máximo de 200 metros medidos desde la terminación del cuadrante urbano consolidado de la población. No se podrán desarrollar urbanizaciones fuera de este límite de 200 metros salvo si se cumple lo estipulado en el inciso 3).
-1 1-11-2 2 2.2-2 3 3-1-3 4 2-1-3 5 2-1-7 6 2-1-13 7 2-5-1 8 2-8-1 9 2-8-8 10 3-1-8 11 3-2-2 12 3-2-2 13 3-2-3 14 3-6-1 15 3-6-3 16 3-6-2 17 3-7-5 18 4-2-2 19 4-4-1 20 4-4-4 21 4-6-1 22 4-6-2 | Las Nubes San José Cinco Esquinas Itiquís Sabanilla Tuetal Norte Atenas San Pedro San Rafael Tierra Blanca Ujarrás Ajenjal Orosí Pacayas Capellades Cot San Martín San Pedro Santa Bárbara Jesús San Isidro San José | San Rafael, Vázquez de Coronado Alajuela Carrizal, Alajuela San Isidro, Alajuela Alajuela Tambor, Alajuela Alajuela Poás, Alajuela Poás, Alajuela Cartago Paraíso Santiago de Paraíso Cartago Cartago Cartago Cartago Santa Rosa, Cartago Barva Heredia Santa Bárbara, Heredia Heredia San Isidro de Heredia
-2) Cuando a juicio del INVU y la Municipalidad correspondiente existan áreas en proceso de desarrollo, cuya posible expansión urbana sea necesaria pana llenar el déficit de vivienda del distrito (según datos del censo), se permitirá la urbanización de terrenos en forma restringida siempre que los terrenos colinden con el cuadrante urbano consolidado del poblado, dentro del límite de 200 metros mencionado en el inciso 1).
-3) Cuando existan terrenos que no tengan aptitud agrícola de acuerdo con la inspección agrícola y dictamen del Departamento de Investigación y Extensión Agrícola del Ministerio de Agricultura y Ganadería; que no tengan problemas de escorrentías, de acuerdo con estudio del Departamento de Aguas del Servicio Nacional de Electricidad: que no se indique su desarrollo a acuíferos que puedan ser susceptibles de contaminación, según estudio del SENARA; o que no tengan aptitud forestal o no requieran de arborización para contrarrestar problemas de estabilización de suelos, de acuerdo con la Dirección Forestal, podrán urbanizarse para llenar el déficit de vivienda del distrito, aun fuera del límite de 200 metros.
-(Así reformado por Acuerdo tomado en sesión N° 3912 del 17 de abril de 1989 y publicado en La Gaceta N° 96 de 19 de mayo de 1989).
-4) Mientras no exista Plan Regulador sé tomará como límite de expansión urbana el área comprendida dentro de los 200 metros alrededor del cuadrante consolidado. Sin embargo, este límite podrá ajustarse dentro de un radio de 50 metros adicionales si las condiciones topográficas lo requieren.
-El INVU y las municipalidades, podrán rechazar un permiso de urbanización o fraccionamiento cuando consideren que la urbanización propuesta no produce una expansión urbana orgánica o es prematura por pretender dar mayor crecimiento que el demandado por el déficit de vivienda del distrito. A tal efecto, el INVÜ podrá denegar permisos de urbanizaciones con base en lo establecido en las normas legales correspondientes a la Ley de Planificación Urbana.
-5) Sólo se permitirá el fraccionamiento frente a caminos públicos existentes previos a la promulgación de esta reforma cuando éstos ya cuenten con los servicios básicos y se deje el derecho de vía reglamentario. No se permitirá el fraccionamiento en caminos públicos que no cuenten con servicios . aunque éstos fueren habilitados si ésta fue efectuada luego de la promulgación del GAM. Se exceptúan los caminos dentro del área de expansión de los poblados tal como se define en el inciso 4).
-No obstante lo anterior, para fines estrictamente agrícolas se podrán permitir segregaciones" con frentes a servidumbres o caminos privados en porciones resultantes menores de 5 hectáreas. En estos casos el tamaño de la segregación mínima permitida será el que recomiende el Departamento de Investigación y Extensión Agrícola del Ministerio de Agricultura y Ganadería considerando la parcela productiva mínima. Estas servidumbres o caminos privados no podrán tener menos de 7 metros de derecho de vía.
-6) Corresponderá a la Municipalidad respectiva determinar si el camino existente frente al fraccionamiento que se pretende iniciar-existía al momento de aprobación del Reglamento GAM (junio de 1983), para definir si procede o no la autorización respectiva.
-7) Dentro de los cuadrantes urbanos consolidados y su área de influencia (200 metros), podrán aceptarse fraccionamientos frente a servidumbres siempre que las condiciones lo ameriten de acuerdo con el "Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones".
-8) La Municipalidad denegará los permisos de construcción en aquellos lotes cuya segregación no haya sido autorizada o cuyo uso no sea conforme con las regulaciones presentes.
-(Así modificada su numeración por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta N°74 de 20 de abril de 1983, pasándolo del 3° al 4°).
-(Así reformado este artículo por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta N°74 de 20 de abril de 1983, que adicionó los incisos 2 y 3, corriendo la numeración de los incisos 2, 3, 4 y 5 exitentes anteriormente a 4,5,6 y 7 respectivamente).
-(Así reformado por Acuerdo publicado en La Gaceta N° 185 de 28 de setiembre de 1987).
-Artículo 5°.__Zona Especial de protección solo se permitirá las siguientes construcciones:
-1.—Viviendas para usos de los propietarios y arrendatarios y otras necesidades para usos o servicios de las propiedades de que se trate.
-Industria agropecuaria bajo las siguientes condiciones:
-—Que sean para el procesamiento de productos derivados de la actividad principal de la zona y definida como agropecuaria por el Ministerio de Salud.
-—Ubicación: En carreteras que presenten rasgos de recorridos turísticos deberán estar a más de 100 metros de la línea de propiedad.
-—Retiros: Los fijará el Ministerio de Salud en concordancia con el grado de molestia, incomodidad, insalubridad o peligrosidad de la actividad.
-—Área mínima y cobertura: 10 hectáreas en la zona norte-noreste, 5 hectáreas en la zona noreste-este, 2 hectáreas en el resto del área de protección del GAM.
-—Análisis ambientales, cuyas variables establecerán el Ministerio de Salud y el INVU en conformidad con la calificación de la actividad y los riesgos potenciales de la misma.
-—No se aceptarán actividades con riesgos de contaminación de aguas a menos de 100 metros de cauce de río o aguas arriba de una naciente.
-—Estudio de drenaje de aguas servidas como un tipo de solución que permita minimizar la contaminación a través de una planta de tratamiento especialmente en 'aquellas zonas de recarga acuífera, autorizada por el Instituto Costarricense de Acueductos y Alcantarillados (AyA).
-—Análisis de vocación del suelo: Se deberá mantener por lo menos en un 50% en el uso definido por la vocación del suelo de acuerdo al patrón existente al momento de comenzar a edificar.
-—Si la actividad va a generar demanda de mano de obra mayor a 20 empleados, análisis de la disponibilidad de la mano de obra de la zona donde se instalará la edificación para asegurar que no se entrará en competencia con la mano de obra agrícola.
-—Desechos sólidos: Caso de generarse un volumen de desechos mayor al que genera la actividad agrícola, los interesados deberán presentar solución en cuanto a su disposición final.
-3.—Para servicios estatales.
-4.- Infraestructura redes nacionales y municipales.
-5.—Clubes campestres, hoteles, proyectos multifamiliares, servicios locales de culto, comerciales y profesionales, establecimientos educacionales privados organismos internacionales.
-5a.) Localización: Frente a caminos pavimentados que cuenten con todos los servicios.
-5b.) Altura de edificación fachada mayor: Menor de 12 metros o tres pisos. Se podrán aceptar alturas mayores siempre y cuando cumplan con los siguientes retiros.
-5c.) Retiros mínimo (lateral, frontal y posterior).
-—Para alturas inferiores o iguales a 12 metros o tres pisos: 20 metros. Para alturas mayores a 12 metros o Tres pisos: Adicionales a los 20 metros señalados, se deberá tejar 10 metros por cada piso en exceso.
-Si por causas topográficas, geneológicas o de forma de la finca no se pudiera cumplir con todos los retiros, siempre que se demuestre fehacientemente que este cambio no afectará la privacidad de los lotes vecinos o de la posibilidad de que en dichos lotes se lleven a cabo proyectos similares y que se mantenga el concepto estético de visibilidad desde el área urbana hacia las montañas.
-5d.) Área mínima y cobertura: 10 hectáreas en la zona norte-noreste, 5 hectáreas en la zona noreste-este, 2 hectáreas en el resto del área de protección del GAM.
-5e.) Cobertura: Menor 10%.
-5f.) Densidad: 12 habitaciones/ha, en la zona norte-noreste, 20 habitaciones/ha,
-en el resto del Anillo de Contención Urbana.
-(Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta N°74 de 20 de abril de 1983).
-(Así reformado por Acuerdo de Junta Directiva del INVU N° 3539, publicado en La Gaceta N°151 de 10 de agosto de 1984)
-(Así reformado por Acuerdo de Junta Directiva del INVU, tomado en sesión N°4295 de 25 de marzo de 1993).
+Artículo 2°—Se establece en el "Área de Control Urbanístico" antes delimitada, una "Zona Especial de Protección" de conformidad con el artículo 25 de la ley de Planificación Urbana número 4240 y se establece una "Zona de Crecimiento Urbano", según planos que se publican como anexos a este decreto y cuyos originales pueden ser consultados en el 1NVU, MIDEPLAM y las Municipalidades correspondientes.
+Articulo 3°—La Zona Especial de Protección tendrá un uso predominantemente agrícola y quedarán sometidas a las siguientes regulaciones:
+3.1 Dentro de esta zona sólo se permitirán urbanizaciones y servidumbres de tipo urbano en las áreas de expansión de los cuadrantes de las cabeceras de. los distritos. El área de expansión será el espacio comprendido hasta un radio de doscientos metros, medidos a partir de la terminación del cuadrante urbano, de conformidad con la demarcación que se realice a partir de la vigencia del presente Decreto. Las Fincas deben estar adecuadamente amarradas al sistema vial urbano existente. Se define como cuadrante urbano el sistema de ciudades en forma de cuadrícula en donde se encuentra la mayoría de bienes y servicios, la estructura vial y su área de influencia inmediata. Entendiendo además las áreas urbanas de conformidad con la Ley de Planificación Urbana número 4240.
+3.2 El INVU y las Municipalidades podrán rechazar un permiso para urbanizar cuando consideren que la urbanización propuesta no produzca una expansión urbana orgánica, o que esta sea prematura por pretender dar un mayor crecimiento que el demandado por las necesidades de la población local. A tal efecto, el INVU podrá denegar permisos para urbanizar o fraccionar con base en lo establecido en las normas legales correspondientes a la Ley de Planificación Urbana.
+3.3 Sólo se permitirá el fraccionamiento frente a caminos públicos existentes previos a la promulgación del GAM, (Gaceta número 119 del 22 de Junio de 1982), y cuando éstos cuenten con los servicios básicos y se deje el derecho de vía reglamentarios. No se permitirá el fraccionamiento en caminos públicos que no cuenten con los servicios aunque éstos hayan sido habilitados después de la promulgación del GAM. Se exceptúan los caminos dentro del área de expansión de los poblados tal como se definió en el inciso uno de este Artículo.
+No obstante lo anterior, para fines estrictamente agrícolas, se podrá permitir segregaciones con frente a servidumbres o caminos privados, en porciones resultantes no menores de siete mil (7.000) metros cuadrados.
+3.4 Corresponderá a la Dirección de Urbanismo determinar si el.camino, existente, frente al fraccionamiento que se pretende iniciar, existía al momento de aprobación del Reglamento del GAM (publicado en la Gaceta numero 119 del 22 de junio de 1982), para definir si procede o no la autorización respectiva.
+3.5 Dentro de los cuadrantes urbanos consolidados de las cabeceras de distrito y su área de influencia ( doscientos metros), podrán aceptarse fraccionamientos frente a servidumbres, siempre que -las condiciones lo ameriten, de acuerdo con el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones.
+3.6 La Municipalidad denegará los permisos de construcción en i aquellos lotes cuya segregación no haya sido autorizada o cuyo uso no sea conforme con las regulaciones presentes.
+Artículo 4°—En la Zona Especial de Protección sólo se permitirán las siguientes construcciones:
+4.1 Una vivienda por finca para uso del propietario o los propietarios y Otras construcciones necesarias para uso o servicios de las fincas.
+4.2 Actividades directamente relacionadas con la actividad agropecuaria local.
+4.3 Servicios estatales, infraestructura de redes nacionales y municipales, tales como redes eléctricas, agua, oleoductos y telecomunicaciones.
+4.4 Clubes campestres siempre que no incluyan vivienda permanente, hoteles, servicios locales de culto, comerciales y profesionales, establecimientos educacionales privados y organismos internacionales. Las actividades reguladas en este inciso se permitirán siempre y cuando cumplan con los siguientes requisitos:
+4.4.1 Localización frente a calles públicas que cuenten con todos los servicios.
+4.4.2 Altura de edificación: Menor de doce metros o tres pisos. Se podrán aceptar alturas mayores, siempre y cuando cumplan con los siguientes retiros:
+4.4.3 Retiros Mínimos. Para alturas inferiores o iguales a doce metros o tres pisos: veinte metros. Para alturas mayores a doce metros: adicionales a los veinte metros señalados, se deberá dejar diez metros por cada piso en exceso,
+4.4.4 Área mínima: Para clubes campestres y líeteles se requerirá un área de cinco hectáreas. Para los demás usos se requerirá un área de dos hectáreas.
+4.4.5 Cobertura: Hasta un diez por ciento.
+4.4.6 Densidad Hotelera: 12 habitaciones por hectárea.
+4.5 Industrias o actividades industriales de tipo inofensivo o incómodas, como se definen en los artículos 4,5,6,7,S,9,10 y 11 del Reglamento sobre Higiene Industrial vigente. Las de tipo incómodo, se permitirán siempre que las posibles molestias sean confinables en la propiedad en que se pretenda ubicar la industria, mediante requisitos constructivos especiales o de cualquier otro tipo que establezca el Ministerio de Salud. Las industrias o actividades industriales incómodas con molestias confinables en la propiedad, sólo se permitirán cuando cumplan con lo siguiente:
+4.5.1 Los requisitos estipulados en el artículo 2 del Reglamento de Zonificación Parcial de Áreas Industriales de la Gran Área Metropolitana.
+4.5.2 Estar frente a vías nacionales clasificadas como primarias, secundarias o terciarias.
+4.5.3 Altura de edificación: Menor de doce metros o tres pisos. Se podrán aceptar alturas mayores, siempre y cuando cumplan con los siguientes retiros: Retiros Mínimos. Para alturas inferiores o iguales a doce metros o tres pisos:veinte metros. Para alturas mayores a doce „. metros: adicionales a los veinte metros señalados, se deberá dejar diez metros por cada piso en exceso.
+4.5.4 Área mínima: se requerirá un área mínima de cinco hectáreas,
+4.5.5 Cobertura: Hasta un diez por ciento.
+4.5.6 Cuando no colinden por ninguno de sus linderos con viviendas y no se ubiquen contiguo a zonas residenciales. de alta densidad, asi definidas en el Reglamento de Zonificación de la Gran Área Metropolitana.
+4.5.7 La calificación de la industria o actividad industrial deberá ser efectuada por el Departamento de Seguridad e Higiene Industrial uel Ministerio de Salud. El permiso de ubicación será extendido por la Direcció.i de Urbanismo del 1NVU, teniendo a la vista el dictamen positivo de clasificación otorgado previamente por el Ministerio de Salud.
+Todas las edificaciones para los usos aceptados en este artículo, se construirán bajo un estricto control de impacto que pued.in generar en la zona donde se instalarán, proporcionando los elementos de juicio necesarios para evaluar dichos proyectos, debiendo aportarse lo siguiente:
+- Estudio de impacto ambiental, aprobado por el -Ministerio del Ambiente y la Energía (MINAE),
+Construcción de una planta de tratamiento para aguas residuales, autorizada por el Instituto Costarricense de Acueductos y Alcantarillados (ICAA) y el Ministerio de Salud evitando la contaminación de los mantos acuíferos y de los cauces fluviales a que desemboquen.
+(Este Anexo fue totalmente reformado mediante Decreto Ejecutivo N° 25902 -MIVAH-MP-MINAE, publicado en el Alcance N° 15 a la Gaceta N° 66 de 07 de abril de 1997).

@@ -1,5 +1,7 @@
 ANEXO N° 3
 EL INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+REGLAMENTO PARCIAL DE ZONIFICACION
+(NOTA: El el artículo 3° del Decreto Ejecutivo N° 25902 de 12 de febrero de 1997, deroga en forma parcial este Reglamento, únicamente para el área del cantón de San José, quedando vigente para las zonas de Goicoechea y Tibás. En el área de San José, se aplicarán los lineamientos del Plan Director Urban de San José, publicado en La Gaceta núemro 18, alcance número 3 del 27 de enero de 1997).
 Considerando:
 I°—Que es su obligación velar por la seguridad, salubridad, comodidad y agrado del habitante y usuario del área central de San José mediante el control del uso y la intensidad del uso del suelo, aplicado en el sentido de:
 a) Evitar una alta intensidad de uso del terreno;
