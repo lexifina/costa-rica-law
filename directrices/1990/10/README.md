@@ -13,3 +13,4 @@ Sobre Plan Nacional de Energía 1990-2010
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-05-18 | la propia norma |
+| 2 | 1990-05-18 | Ley 8 |
