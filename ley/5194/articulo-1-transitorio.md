@@ -1,0 +1,2 @@
+Transitorio.—A efecto de ajustar la mecánica de reposición de los directores dentro del nuevo sistema, los propietarios actuales terminarán su período de cinco años, para el que fueron nombrados. Los suplentes actuales completaran los cuatro años de acuerdo con lo dispuesto por el artículo 9° de esta ley.
+Casa Presidencial.—San José, a los dieciséis días del mes de abril de mil novecientos setenta y tres.
