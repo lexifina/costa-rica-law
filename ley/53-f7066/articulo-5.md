@@ -1,0 +1,1 @@
+Art. 5. Para sostener los gastos de alumbrado, y pagar el sueldo del guardian del Faro, se establece el impuesto de medio real por cada tonelada de las que constan en le patente de cualquier buque mercante que llegue à Puntarenas.
