@@ -1,6 +1,6 @@
 # Convenio Constitutivo del Banco Interamericano de Desarrollo BID
 
-Ley N° 2502 del 1959-12-19. SINALEVI, ficha 26824: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26824&param2=95791&param3=1>.
+Ley N° 2502 del 1959-12-19. SINALEVI, ficha 26824: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26824&param2=95788&param3=1>.
 
 Publicada en La Gaceta N° 294 del 1959-12-29.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 7 | 1959-12-29 | Ley 2502 | 1959-12-19 |
 | 2 de 7 | 1959-12-29 | SINALEVI | 1959-12-19 |
 | 3 de 7 | 1967-12-28 | Ley 4027 | 1967-12-23 |
+| 4 de 7 | 1972-02-05 | Ley 4947 | 1972-02-01 |

@@ -26,10 +26,15 @@ xii) Decidir la terminación de las operaciones del Banco y la distribución de 
 Sección 3.- Directorio Ejecutivo.
 (a) El Directorio Ejecutivo será responsable de la conducción de las operaciones del Banco y para ello podrá ejercer todas las facultades que le delegue la Asamblea de Gobernadores.
 (b) Habrá siete directores ejecutivos, que no serán gobernadores, y de los cuales:
-i) Uno será designado por el miembro que posea el mayor número de acciones del Banco; y
-ii) Seis serán elegidos, conforme a lo dispuesto en el Anexo C de este Convenio, por los gobernadores del resto de los países miembros.
-Los directores ejecutivos serán designados o elegidos por períodos de tres años y podrán ser designados o elegidos para períodos sucesivos. Deberán ser personas de reconocida capacidad y de amplia experiencia en asuntos económicos y financieros.
-(c) Cada director ejecutivo designará un suplente, quien tendrá plenos poderes para actuar en su lugar cuando no esté presente. Los directores y los suplentes serán ciudadanos de los países miembros. Entre los directores elegidos y sus suplentes no podrán figurar más de un ciudadano de un mismo país. Los suplentes podrán participar en las reuniones pero sólo tendrán derecho a voto cuando actúen en reemplazo de sus titulares.
+i) Los directores ejecutivos deberán ser personas de reconocida capacidad y de amplia experiencia en asuntos económicos y financieros y no podrán ser a la vez gobernadores.
+(Así reformado el inciso anterior por el artículo 1° aparte 3) de la ley N° 4947 del 1° de febrero de 1972)
+ii) Un director ejecutivo será designado por el país miembro que posea el mayor número de acciones del Banco y los demás serán elegidos por los gobernadores de los restantes países miembros.
+El número de directores ejecutivos a elegirse, que no sea menor de seis, y el procedimiento para su elección serán determinados por el reglamento que adopte la Asamblea de Gobernadores por mayoría de dos tercios del número total de los gobernadores que represente por lo menos tres cuartos de la totalidad de los votos de los países miembros. Cualquier modificación del reglamento antes referido requerirá para su aprobación la misma mayoría de votos.
+(Así reformado el inciso ii) anterior por el artículo 1° aparte 3) de la ley N° 4947 del 1° de febrero de 1972)
+(iii) Los directores ejecutivos serán designados o elegidos por períodos de tres años y podrán ser designados o elegidos para períodos sucesivos.
+(Así reformado y enunciado como inciso iii) anterior por el artículo 1° aparte 3) de la ley N° 4947 del 1° de febrero de 1972)
+(c) Cada Director Ejecutivo designará un Suplente, quien tendrá plenos poderes para actuar en su lugar cuando no esté presente. Los directores y los suplentes serán ciudadanos de los países miembros. Entre los directores elegidos y sus suplentes no podrá figurar más de un ciudadano del mismo país, exceptuándose el caso de países que no sean prestarios. Los suplentes podrán participar en las reuniones pero sólo tendrán derecho a voto cuando actúen en reemplazo de sus titulares.
+(Así reformado el inciso anterior por el artículo 1° aparte 4) de la ley N° 4947 del 1° de febrero de 1972)
 (d) Los directores continuarán en sus cargos hasta que se designen o elijan sus sucesores. Cuando el cargo de un director elegido quede vacante y falten más de 180 días para la expiración de su período, los gobernadores que lo eligieron procederán a elegir un nuevo director para el resto del período. Para esta elección se requerirá la mayoría absoluta de los votos emitidos. Mientras subsista la vacante, el suplente del referido director tendrá todas sus facultades, menos la de designar un suplente.
 (e) El Directorio Ejecutivo funcionará continuamente en la sede del Banco y se reunirá con la frecuencia que los negocios de la institución lo requieran.
 (f) El quórum para las reuniones del Directorio Ejecutivo será la mayoría absoluta de los directores que represente por lo menos dos tercios del total de los votos de los países miembros.
@@ -37,6 +42,7 @@ Los directores ejecutivos serán designados o elegidos por períodos de tres añ
 (h) El Directorio Ejecutivo podrá constituir los comités que considere convenientes. No será necesario que todos los miembros de tales comités sean gobernadores, directores o suplentes.
 (i) El Directorio Ejecutivo determinará la organización básica del Banco, inclusive el número y las responsabilidades generales de los
 principales cargos administrativos y profesionales, y aprobará el presupuesto de la institución.
+(Nota de Sinalevi: Mediante el artículo 2° de la ley N° 4947 del 1° de febrero de 1972, se ordenó suprimir el literal j) de la sección 3 del artículo VIII del presente Convenio. No obstante, no se pudo realizar dicha abrogación porque la sección 3) desde su publicación original no cuenta con el literal j).)
 Sección 4.- Votaciones.
 (a) Cada país miembro tendrá 135 votos más un voto por cada acción que posea en el capital del Banco.
 (b) En las votaciones de la Asamblea de Gobernadores cada gobernador podrá emitir el número de votos que corresponda al país miembro que represente. Salvo cuando en este Convenio se disponga expresamente lo contrario, todo asunto que considere la Asamblea de Gobernadores se decidirá por mayoría de la totalidad de los votos de los países miembros.

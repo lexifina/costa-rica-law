@@ -6,7 +6,8 @@ Sección 2.- Disposiciones Aplicables.
 El Fondo se regirá por las disposiciones del presente artículo y por las demás normas de este Convenio salvo las que contraríen lo estipulado en este artículo y las que se apliquen expresa y exclusivamente a las operaciones ordinarias del Banco.
 Sección 3.- Recursos.
 (a) Los miembros fundadores del Banco deberán contribuir a los recursos del Fondo de acuerdo con lo dispuesto en esta sección.
-b) Los miembros de la Organización de los Estados Americanos que se incorporen al Banco con posterioridad a la fecha estipulada en el Artículo XV, Sección 1 (a) contribuirán al Fondo con la cuota y en los términos que el Banco acuerde.
+b) Los miembros de la Organización de los Estados Americanos que se incorporen al Banco con posterioridad a la fecha estipulada en el Artículo XV, Sección 1 (a), el Canadá y los países que sean aceptados de acuerdo con el Artículo II, Sección 1 (b), contribuirán al Fondo con las cuotas y en los términos que el Banco acuerde.
+(Así reformado el literal b) anterior por el artículo1° aparte 2) de la ley N° 4947 del 1° de febrero de 1972)
 (c) El Fondo se constituirá con recursos iniciales de 150.000.000 (ciento cincuenta millones) de dólares de los Estados Unidos de América del peso y ley en vigor al 1º de enero de 1959, los que serán aportados por los miembros fundadores de acuerdo con las cuotas que se especifican en el Anexo B.
 d) El pago de las cuotas deberá hacerse de la manera siguiente:
 i) El 50 por ciento de cada cuota deberá pagarse por cada país miembro en cualquier momento a partir de la fecha en que, de acuerdo con el Artículo XV, Sección 1, se firme el presente Convenio y se deposite el instrumento de aceptación o ratificación en su nombre, pero a más tardar el 30 de setiembre de 1960.
