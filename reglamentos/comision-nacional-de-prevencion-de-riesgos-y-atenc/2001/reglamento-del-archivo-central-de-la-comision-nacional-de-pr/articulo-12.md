@@ -1,0 +1,1 @@
+Artículo 12.—Sobre los documentos devueltos que presenten daños, deberán notificársele al Responsable del Archivo Central para que se realice las gestiones correspondientes a fin de que sea sancionado el prestatario y éste asuma el costo de la correspondiente reparación o reposición según proceda.

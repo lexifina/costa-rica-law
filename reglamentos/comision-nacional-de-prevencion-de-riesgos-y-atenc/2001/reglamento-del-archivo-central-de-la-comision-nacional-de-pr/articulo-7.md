@@ -1,0 +1,1 @@
+Artículo 7°—El proceso de ingreso de la documentación al Archivo Central de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, se llevará a cabo mediante una lista de remisión especificando con exactitud el contenido de la misma.

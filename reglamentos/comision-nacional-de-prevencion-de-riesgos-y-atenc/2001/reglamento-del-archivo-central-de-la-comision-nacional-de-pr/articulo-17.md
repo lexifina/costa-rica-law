@@ -1,0 +1,1 @@
+Artículo 17.—Quien extravié o devuelva en mal estado la documentación prestada, no podrá ser objeto de nuevos préstamos y únicamente podrá hacer uso del servicio de consulta dentro del Archivo y obtención de fotocopias.

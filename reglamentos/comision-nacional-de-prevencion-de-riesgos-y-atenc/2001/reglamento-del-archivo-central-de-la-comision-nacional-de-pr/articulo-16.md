@@ -1,0 +1,1 @@
+Artículo 16.—Cuando un funcionario se ausente por un periodo mayor al del tiempo otorgado para el préstamo de la documentación, ya sea por vacaciones, licencias o permisos, deberá devolver al Archivo Central los documentos prestados, con la debida anticipación.

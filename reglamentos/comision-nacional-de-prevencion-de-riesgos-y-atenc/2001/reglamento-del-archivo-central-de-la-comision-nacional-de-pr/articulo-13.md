@@ -1,0 +1,1 @@
+Artículo 13.—Cuando los usuarios no efectúen la devolución de los documentos o expedientes al vencimiento del plazo conferido, el Archivo Central procederá a solicitarle por escrito la entrega de los mismos, dentro de los siguientes tres días.

@@ -1,0 +1,1 @@
+Artículo 15.—Los funcionarios que sean removidos de sus puestos, deberán devolver al Archivo Central todo documento que haya solicitado, antes de dejar su puesto de trabajo, con la debida anticipación.

@@ -1,0 +1,1 @@
+Artículo 19.—Cuando el préstamo sea solicitado por servidores de Instituciones Públicas, éste sólo se hará previo recibo de la petición expresa y en ella deberá indicarse como mínimo el nombre y el puesto que desempeña el funcionario que se hará presente para retirarla, así como el número de teléfono y la extensión en que puede ser localizado el solicitante.

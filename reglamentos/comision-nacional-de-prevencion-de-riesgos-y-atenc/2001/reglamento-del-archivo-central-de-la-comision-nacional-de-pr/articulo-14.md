@@ -1,0 +1,1 @@
+Artículo 14.—A quién vencido el término por el cual se le entregó en calidad de préstamo determinada documentación, no haya hecho devolución de ésta, se le mantendrá en suspenso cualquier otra solicitud en tanto persista esa situación.
