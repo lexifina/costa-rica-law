@@ -1,0 +1,3 @@
+Artículo 2
+El (Los) crédito(s) concesional(es) se usarán para la implementación y desarrollo del Programa de Renovación del Sistema Hospitalario Nacional costarricense. Los términos y condiciones específicas con respecto al subsidio proveído desde el presupuesto de cooperación para desarrollo serán acordadas en la decisión sobre crédito concesional tomada por el Ministerio.
+El usuario final del(os) crédito(s) será la Caja Costarricense del Seguro Social o cualquier otra Autoridad Costarricense mutuamente acordada, en adelante denominado el Prestatario. El Ministerio de Hacienda de Costa Rica actuará como garante de los créditos de manera que garantice el pago del (os) crédito(s) recibidos por el Prestatario.
