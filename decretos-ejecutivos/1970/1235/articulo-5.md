@@ -1,0 +1,1 @@
+Artículo 5°-La Dirección General Forestal del Ministerio de Agricultura y Ganadería gestionará la adquisición de los terrenos reducidos a dominio particular comprendidos dentro de la demarcación de este parque nacional. El traslado de ocupantes de terrenos sin inscribir, se gestionará con el Instituto de Tierras v Colonización.
