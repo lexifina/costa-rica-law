@@ -1,0 +1,1 @@
+2.—Precisar que no se somete a encaje aquellos fideicomisos o contratos de administración que se constituyen exclusivamente y en forma limitada para administrar un patrimonio, en los cuales los fines sólo se consiguen después de satisfacer ciertas condiciones, por lo que los recursos fideicometidos no se pueden transformar en efectivo hasta que éstas se cumplan.
