@@ -1,0 +1,1 @@
+Artículo 40.—En caso de duda sobre algún acuerdo tomado por el Consejo de Administración del FASMU, o por denuncia o reclamo formal de los mutualistas o beneficiarios de éstos, la Junta Directiva del Colegio tendrá facultad para resolver en alzada sobre la duda o diferendo presentado.

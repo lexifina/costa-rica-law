@@ -1,0 +1,1 @@
+Artículo 19.—Una vez aprobada una indemnización por parte del Consejo de Administración, se procurará que, dentro del términos de los treinta días siguientes, se gire el monto respectivo a quien corresponda.

@@ -1,0 +1,4 @@
+Artículo 22.—En caso de que a la muerte del mutualista uno o varios de los beneficiarios designados sean menores de edad, la parte proporcional que le correspondiere a cada menor se depositará a su nombre en el Patronato Nacional de la Infancia, a fin de que se proceda conforme a las disposiciones de este organismo estatal.
+Quedan exceptuados de lo anterior aquellos casos en que la voluntad manifiesta del mutualista sea que los beneficios se le entreguen a los menores de edad cuando cumplan la mayoría de edad.
+En estos casos el FASMU debe realizar una inversión específica en las mejores condiciones de seguridad y rentabilidad con el dinero de cada menor de edad, para que le sea entregado, junto con los intereses devengados, cuando cumpla la mayoría de edad.
+Se procederá de la misma forma indicada en el párrafo trasanterior cuando quien ejerza la patria potestad así lo indique, con el visto bueno del Patronato Nacional de la Infancia.

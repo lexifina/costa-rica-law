@@ -1,0 +1,3 @@
+CAPITULO V
+De los beneficiarios
+Artículo 21.—Todo mutualista debe nombrar uno o más beneficiarios, los que considere pertinentes, que serán quienes recibirán la indemnización en caso de muerte del afiliado. Para efectos de que se cumpla fielmente el mandamiento expreso por los mutualistas, la designación del o los beneficiarios se consignará en el formulario correspondiente, de la manera más explícita posible, con los siguientes datos: nombres y apellidos completos, número de cédula, si lo hubiera; parentesco o afinidad, así como otros detalles pertinentes para la oportuna identificación de los interesados, y también el monto o porcentaje del auxilio básico por girar a cada uno de ellos.

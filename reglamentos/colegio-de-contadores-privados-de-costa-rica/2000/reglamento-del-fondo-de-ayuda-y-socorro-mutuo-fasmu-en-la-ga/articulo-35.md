@@ -1,0 +1,1 @@
+Artículo 35.—Los miembros del Consejo de Administración ejercen sus funciones por un periodo de dos anos, contados a partir de su elección y se renuevan parcialmente de la siguiente manera: el presidente, el secretario y el fiscal en años impares; y el tesorero y los tres vocales en años pares. Podrán ser reelectos parcial o totalmente.
