@@ -1,0 +1,1 @@
+Artículo 3º.- Para los efectos de esta ley, se considera que las edificaciones escolares comprenden, además de los edificios propiamente dichos, mobiliario, talleres de enseñanza, campos de agricultura, de juegos y de deporte, y en general, toda la planta física necesaria para la enseñanza en cualquier de sus niveles.

@@ -1,0 +1,4 @@
+Artículo 5º.- Esta ley rige a partir de su publicación.
+Transitorio I.-Las construcciones escolares que a la fecha de publicarse esta ley, estén en proceso de construcción, seguirán, conforme a la ley Nº 3155, a cargo del Ministerio de Transportes, hasta su finalización, excepto aquellas edificaciones cuya terminación sea objeto de contrato, en cuyo caso la inspección del trabajo y recibo final de la obra quedará a cargo de la Dirección de Arquitectura Escolar.
+Transitorio II.-La organización de la Dirección de Arquitectura Escolar se efectuará con personal existente en el actual Ministerio de Obras Públicas mediante reforma del Presupuesto Ordinario en sus partidas de servicios personales y jornales.
+Los funcionarios y trabajadores trasladados, mantienen en su todo sus derechos laborales.
