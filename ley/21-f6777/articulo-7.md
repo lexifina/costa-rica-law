@@ -1,0 +1,1 @@
+Art. 7°-Al pasar los puentes cuidarán los arrieros, carreteros y conductores de carros y de carruajes, de no agruparse, y de pasar en buen orden uno en pos de otro; siendo responsables los que contravinieren á esta disposición, de los daños ó desgracias que por su culpa se ocasionaren.

@@ -1,0 +1,1 @@
+Art. 8°-Ningún carretero podrá parar voluntariamente en el camino, interrumpiendo la marcha de los que vinieren detrás. Buscará para esto los lugares aparentes del mismo camino, donde pueda esperar sin estorbar el paso á los demás transeúntes.
