@@ -1,0 +1,1 @@
+Artículo 23.- Las graduadas en Escuelas de Enfermería de otros países con los que no existen tratados de reciprocidad pero que si autorizan a enfermeras costarricenses el ejercicio de su profesión con la sola presentación de sus credenciales, podrán solicitar igual privilegio en Costa Rica, en la condición de "reciprocidad".

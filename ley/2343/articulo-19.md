@@ -1,0 +1,1 @@
+Artículo 19.- La Junta Directiva, de acuerdo con el Reglamento, podrá otorgar préstamos a sus asociadas, no mayores de quinientos colones (¢ 500.00). Para sumas mayores se requerirá autorización de la Asamblea General.

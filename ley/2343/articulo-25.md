@@ -1,0 +1,1 @@
+Artículo 25.- Para los efectos de esta ley, se considerará "Enfermera Profesional" la prestación de servicios profesionales que requieran comprensión de los principios de ciencias físicas, biológicas y sociales y la aplicación de estos principios a la prevención de enfermedades, a la conservación de la salud y al cuidado de enfermos bajo la dirección médica.
