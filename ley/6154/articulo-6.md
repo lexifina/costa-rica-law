@@ -1,0 +1,2 @@
+Artículo 6º.- Extendida que fuere el acta, en la forma que manda el artículo quinto, será enviada por el juez, por vía de mandamiento, al Registro de la Propiedad, para que se proceda a la inscripción, como finca nueva, del inmueble que en ella se indique, sin perjuicio de tercero de mejor derecho durante el plazo que manda el artículo décimo de esta ley.
+Igualmente, el juez enviará una copia fiel del acta, por vía de mandamiento, a la Dirección de la Tributación Directa, para que ésta, para efectos tributarios, tome nota de la nueva inscripción que se pretende.

@@ -1,0 +1,1 @@
+Artículo 7º.- Recibido que fuere el mandamiento por el Director del Registro de la Propiedad, con el acta a que se refieren los artículos quinto y sexto, se ordenará que se proceda, sin más trámites, a la inscripción que interesa y se devolverá el documento a su oficina de origen con indicación de las citas de inscripción respectivas.

@@ -1,0 +1,1 @@
+Artículo 9º.- Recibida por el juez el acta debidamente inscrita, conforme a los artículos sexto y sétimo anteriores, mandará, llamar -por los medios que estime convenientes- al interesado en la titulación, para hacerle entrega personal del documento.
