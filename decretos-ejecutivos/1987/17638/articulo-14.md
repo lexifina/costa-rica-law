@@ -1,3 +1,0 @@
-ARTÍCULO 14.-La Comisión sesionar en la sede del Ministerio de Agricultura y Ganadería una vez por semana en forma ordinaria y extraordinariamente cuando sea convocada por su Presidente o a solicitud de por lo menos tres de sus miembros, con no menos de 48 horas de antelación.
-La Comisión podrá sesionar y lidamente con la presencia de tres de sus miembros como mínimo, dos de los cuales deberán ser representantes de las instituciones de Estado. Ser indispensable la asistencia del Presidente de la Comisión. Los acuerdos de la Comisión se adoptar n por mayor¡a simple de votos.
-En caso de empate el Presidente ejercer doble voto.

@@ -1,2 +1,0 @@
-ARTÍCULO 17.-Perder su condición de miembro de la Comisión, aquel miembro propietario que habiendo sido convocado, no asista o se haga representar por su suplente, durante tres sesiones ordinarias consecutivas o cinco alternas, dentro de un per¡odo de seis meses.
-La Secretaría Técnica comunicar a la institución o sector de que se trate con el objeto de que se rectifique la irregularidad o en su defecto, que proceda al cambio del representante.

@@ -1,1 +1,0 @@
-ARTÍCULO 21.-El Ministerio de Agricultura y Ganadería controlar el uso y destino de los bienes así como la aplicación técnica de los insumos y maquinaria exonerados por las leyes a que se refiere este Reglamento.

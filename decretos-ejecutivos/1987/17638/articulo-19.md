@@ -1,4 +1,0 @@
-CAPITULO III
-Disposiciones finales
-ARTÍCULO 19.-No se conceder exención de tributos para aquellos productos qu¡micos que no están registrados en la Dirección de Sanidad Vegetal del Ministerio de Agricultura y Ganadería. Para los efectos de este artículo, el Ministerio de Agricultura y Ganadería en consulta con el Ministerio de Salud, publicar una lista actualizada de los productos sujetos a esta regulación.
-Conforme lo establece el artículo 56 de la Ley de Fodea, las personas físicas o jurídicas, importadoras de plaguicidas, hormonas vegetales y fertilizantes, deben estar inscritas en el Registro que abrir el Colegio de Ingenieros Agrónomos. Además deber contar con los servicios profesionales de un miembro de dicho Colegio o de cualquier otro profesional idóneo en la materia correspondiente, como requisito indispensable para poder importar las mercancías mencionadas exentas de todo tributo.

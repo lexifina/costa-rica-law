@@ -1,3 +1,0 @@
-ARTÍCULO 6.-Los Centros Agrícolas Cantonales podrán importar libres de derechos aduaneros y exentos de toda clase de impuestos, tasas y sobretasas, todas las mercancías que se describen en los artículos 3 y 4 del presente Reglamento siempre que sean necesarios para el cumplimiento de sus fines y objetivos.
-Las mercancías exoneradas podr n ser vendidas en cualquier momento, previo pago, por el adquiriente, de los impuestos correspondientes.
-Los Centros Agrícolas Cantonales presentarán las solicitudes de exoneración a la Subdirección de Extensión Agrícola del Ministerio de Agricultura y Ganadería, la que en un plazo no mayor de ocho días hábiles, proceder a recomendar la exoneración ante la Dirección General de Hacienda, la cual aprobar o rechazar la solicitud presentada.

@@ -1,1 +1,0 @@
-ARTÍCULO 5.-Las ampliaciones a las listas de maquinaria, equipo, herramientas e insumos agropecuarios de las leyes que aqu¡ se reglamentan serán autorizadas mediante Decreto Ejecutivo previa recomendación de la Comisión.
