@@ -1,0 +1,1 @@
+Artículo 44.—Todos los acuerdos deberán constar en el libro de actas. Los pagos e ingresos constarán en libros de tesorería y deberán estar respaldados por los comprobantes respectivos, facturas de gastos y libro de recibos.
