@@ -1,11 +1,13 @@
+(Derogado)
 N°6485
+(Esta norma fue derogada por el artículo 21 de la ley Tarifa de impuestos municipales del Concejo de Distrito de Colorado de Abangares, N° 7368 del 22 de noviembre de 1993)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 Decreta:
 Artículo único: Autorizase los siguientes impuestos al Consejo Distrital de Colorado:
 | | Trimestral por Categorías 1°o única 2 ¢ ¢
 Patentes por actividades de Agricultura, caza, silvicultura y pesca
 Explotación de vástago de mangle, cada uno:0.30 | |
-Explotación de madera: cada “tuca” de madera que salga del cantón ¢10,00 | |
+Explotación de madera: cada "tuca" de madera que salga del cantón ¢10,00 | |
 Patentes por actividades de explotación de minas y canteras
 Explotación de concha, cada quintal, ¢0.50 | |
 Explotación de piedra caliza, cada metro cúbico ¢8.00 | |
@@ -31,7 +33,7 @@ Tiendas de zapatos | 300,00 | 150,00
 Ventas ambulantes de muebles y colchones | 200 00 |
 Ventas de mercadería por mayor en camiones cada vez ¢20.00 | |
 Ventas ocasionales de verduras en vehículos grandes | 150,00 |
-Ventas ocasionales de verduras en vehículos pequeños (“pick up) | 100 00 |
+Ventas ocasionales de verduras en vehículos pequeños ("pick up) | 100 00 |
 Verdulerías | 50 00 | 25 00
 Otras actividades de comercio no clasificadas | 200 00 |
 Refresquerías | 200 00 |
