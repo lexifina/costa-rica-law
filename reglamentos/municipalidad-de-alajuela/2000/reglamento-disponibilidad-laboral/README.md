@@ -14,3 +14,4 @@ Reglamento Disponibilidad Laboral
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-08 | la propia norma |
+| 2 | 2000-05-08 | Ley 7 |
