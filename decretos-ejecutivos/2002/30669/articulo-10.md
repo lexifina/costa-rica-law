@@ -1,0 +1,2 @@
+Artículo 10.—Tarifa telefónica a reconocer por el Ministerio. El Ministro y el Viceministro, tendrán línea abierta y acceso a llamadas internacionales. Al Oficial Mayor, al Director General, al Coordinador del Nivel Institucional y al Director de la Policía Penitenciaria, se les reconocerá hasta cinco (5) tarifas básicas mensuales por el uso del teléfono celular.
+El exceso en los límites establecidos deberá ser cancelado por el funcionario, vía deducción automática de planilla, aceptada previamente por el usuario.

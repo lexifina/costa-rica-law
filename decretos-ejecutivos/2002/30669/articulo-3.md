@@ -1,0 +1,2 @@
+Artículo 3º—Funcionarios a quienes se les asigna teléfono celular. Este Ministerio, autoriza la utilización de teléfonos celulares de su propiedad, en atención de los cargos que desempeñan, a los siguientes funcionarios: Ministro, Viceministro, Oficial Mayor, Director General de Adaptación Social, Coordinador de Nivel Institucional y Director de la Policía Penitenciaria.
+La asignación y uso de teléfonos celulares se debe sujetar a los principios de razonabilidad, racionalidad y, en general, a las prácticas de sana administración de los recursos públicos.
