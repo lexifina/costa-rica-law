@@ -1,1 +1,2 @@
-Artículo 16.—En caso de que la cotización sea inferior a ¢ 500.000,00 (quinientos mil colones) la adjudicación la hará el Alcalde conjuntamente con el Proveedor si es superior a ¢ 500.000.00 (quinientos mil colones) la hará el Concejo Municipal.
+Artículo 16.—En caso de que la cotización sea inferior y hasta tres millones de colones (¢ 3.000.000.00) la adjudicación la hará el Alcalde conjuntamente con el Proveedor. Si es superior a los tres millones de colones (¢ 3.000.000,00) la hará el Concejo Municipal.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión No. 270, celebrada el 30 de agosto de 2001, publicada en La Gaceta No.179 de 18 de setiembre de 2001.)
