@@ -1,0 +1,1 @@
+Artículo 2°.- La estimación de las fajas de terreno es de ¢ 35.178.15 (treinta y cinco mil ciento setenta y ocho colones, quince céntimos), que corresponde al total de la suma a pagar de conformidad con los Avalúos números 13.767, 13.768 y 13.769 de la Sección de Avalúos Especiales de la Tributación Directa.
