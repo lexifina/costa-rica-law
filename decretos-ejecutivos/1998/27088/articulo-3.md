@@ -1,0 +1,1 @@
+Artículo 3°_El objetivo fundamental de la Comisión , será la toma de decisiones institucionales relacionadas con el dengue y la malaria, así como el traslado de recursos a utilizar en la lucha contra esas dos enfermedades.
