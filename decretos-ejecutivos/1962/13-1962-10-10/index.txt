@@ -1,6 +1,0 @@
-articulo-1.md
-articulo-12.md
-articulo-15.md
-articulo-24.md
-articulo-37.md
-articulo-38.md
