@@ -1,0 +1,2 @@
+Artículo 41.-
+Todas las instituciones deberán contar con un archivo central y con los archivos de gestión necesarios para la debida conservación y organización de sus documentos, lo que deberá hacer, salvo normativa especial, de acuerdo con las disposiciones de esta ley, su reglamento y las normas de la Junta Administrativa del Archivo Nacional, de la Comisión Nacional de Selección y Eliminación de Documentos y de la Dirección General del Archivo Nacional.

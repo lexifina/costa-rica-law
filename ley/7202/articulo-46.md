@@ -1,0 +1,2 @@
+Artículo 46.-
+Cada institución pública transferirá a la Dirección General del Archivo Nacional, la archivalía existente en su archivo central, de acuerdo con los requisitos que se fijen en el reglamento de la presente ley, y según las disposiciones de la Dirección General del Archivo Nacional. El plazo de envío no será mayor de veinte años, contados a partir de la fecha en que se originó el documento.

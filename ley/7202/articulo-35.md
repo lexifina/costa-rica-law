@@ -1,0 +1,2 @@
+Artículo 35.-
+Todas las instituciones a que se refiere el artículo 2 de la presente ley, incluida la Dirección General del Archivo Nacional, estarán obligadas a solicitar el criterio de la Comisión Nacional de Selección y Eliminación de Documentos, cada vez que necesiten eliminar algún tipo documental. También deberán considerar las resoluciones que al respecto emita la Comisión, las que serán comunicadas por escrito, por medio del director general del Archivo Nacional.
