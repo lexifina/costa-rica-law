@@ -14,3 +14,4 @@ Establece las Macroregiones Guanacaste, San Carlos y Pacífico Central dentro de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-13 | la propia norma |
+| 2 | 2005-01-10 | Decreto Ejecutivo 32227 (2005-01-10) |

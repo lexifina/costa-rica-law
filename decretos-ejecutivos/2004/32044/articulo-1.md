@@ -15,6 +15,5 @@ Artículo 1º—Créanse en la División de Obras Públicas del MOPT las siguien
 Hojancha, Nandayure, Carrillo, La Cruz, Liberia, Tilarán, Bagaces, Abangares, Santa Cruz, Nicoya y Cañas.
 1.2 Macroregión San Carlos, constituida por los siguientes cantones:
 San Carlos, Los Chiles, Upala y Guatuso.
-1.3 Macroregión Pacífico Central, constituida por los cantones de:
-Puntarenas, Garabito, Aguirre, San Mateo, Orotina y la Península:
-Paquera, Cóbano y Lepanto.
+1.3 Macroregión Pacífico Central, constituida por los cantones de: Puntarenas, Garabito, Aguirre, San Mateo, Orotina, Esparza, Montes de Oro, Parrita y la Península: Paquera, Cóbano y Lepanto.
+(Así reformado el inciso anterior, mediante el artículo 1° del Decreto Ejecutivo No. 32227 del 10 de enero del 2005.)
