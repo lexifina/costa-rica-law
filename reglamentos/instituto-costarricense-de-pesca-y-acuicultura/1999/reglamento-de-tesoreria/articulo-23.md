@@ -1,0 +1,1 @@
+Artículo 23.-En ningún caso deberá pagarse un cheque si no son aportados los respectivos documentos de respaldo al momento de retirar el cheque, como son las facturas originales, los recibos por dinero y las autorizaciones por escrito en caso de personas autorizadas.

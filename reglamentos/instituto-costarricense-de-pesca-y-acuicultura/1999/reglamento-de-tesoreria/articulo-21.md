@@ -1,0 +1,1 @@
+Artículo 21.-La autorización para emisión de cheques será dada por el Jefe de Finanzas o por el Director General Administrativo, previa verificación de la disponibilidad de efectivo. La emisión de cheques sin fondos o sin contenido presupuestario se considerará falta grave y se procederá según lo establece las leyes y reglamentos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 18.-Todos los comprobantes, documentos y facturas de respaldo que amparan una transacción pagada por el Instituto deberán ser marcados con el sello que indique el número de cheque y la fecha en que fue cancelado.

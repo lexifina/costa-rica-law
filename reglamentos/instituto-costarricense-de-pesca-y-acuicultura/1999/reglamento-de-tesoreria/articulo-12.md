@@ -1,0 +1,1 @@
+Artículo 12.-Los certificados que contengan valores así como cualquiera otros valores que sean recibidos por las dependencias recaudadoras del Instituto, deberán ser trasladados de inmediato a la Tesorería o depositados en las respectivas cuentas corrientes del Instituto.

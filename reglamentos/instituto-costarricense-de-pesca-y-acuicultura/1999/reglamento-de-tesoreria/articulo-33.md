@@ -1,0 +1,1 @@
+Artículo 33.-EI jefe de Finanzas y Auditoría Interna o sus representantes podrán efectuar en cualquier momento y sin previo aviso, todas aquellas revisiones o arqueos que juzguen convenientes sobre los valores y documentos en custodia en la Tesorería o sobre los procedimientos y medidas de control interno vigentes.

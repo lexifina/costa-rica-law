@@ -1,0 +1,1 @@
+Artículo 20.-Los cheques, documentos o comprobantes no deberán presentar tachaduras, borrones, manchas ni espacios en blanco que hagan dudar de su legitimidad o que puedan ser alterados fácilmente. Cuando esto suceda se solicitará sin excepción, la confección de nuevas facturas, comprobantes o cheques.

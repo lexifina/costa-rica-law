@@ -1,0 +1,1 @@
+Artículo 3°-Queda entendido que lo dispuesto en este Reglamento se complementa con lo establecido en la Ley General de la Administración Financiera, Ley General de la Administración Pública y Reglamento de Contratación Administrativa.

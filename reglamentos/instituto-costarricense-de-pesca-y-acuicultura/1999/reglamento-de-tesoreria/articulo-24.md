@@ -1,0 +1,1 @@
+Artículo 24.-Los cheques emitidos por la Tesorería pero que presentan algún error deberán ser anulados inmediatamente y luego serán trasladados a Contabilidad para que se proceda a su correspondiente registro.

@@ -1,0 +1,1 @@
+Artículo 13.-Tesorería gestionará ante las instancias correspondientes el depósito diario de los ingresos recaudados. En caso incumplimiento por parte de las dependencias recaudadoras, el Tesorero deberá informar por escrito de inmediato sobre la situación, a la jefatura de Finanzas.

@@ -1,0 +1,1 @@
+Artículo 9°-Controlar y registrar oportuna y eficientemente los ingresos percibidos por subvenciones ordinarias, extraordinarias, contrapartidas y cualquier otra transferencia proveniente del Gobierno Central u organismo internacional a las que tenga derecho el Instituto.

@@ -1,0 +1,1 @@
+Artículo 15.-Tendrán la responsabilidad de endosar los medios de pago y cheques del INCOPESCA, el Presidente Ejecutivo, el Tesorero y los funcionarios debidamente autorizados por la Presidencia Ejecutiva, los cuales firmarán mancomunadamente, pero nunca menos o más de dos de ellos.

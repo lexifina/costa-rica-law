@@ -1,0 +1,1 @@
+Artículo 34.-EI resguardo de los valores y documentos es responsabilidad del Tesorero y del personal de la Tesorería por lo tanto, es prohibida la entrada de funcionarios del Instituto y particulares al local de la Tesorería y cajas. Se exceptúa de lo anterior, el jefe de Finanzas y el Auditor Interno o sus representantes, en funciones propias de sus cargos.

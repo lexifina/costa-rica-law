@@ -1,0 +1,1 @@
+Artículo 16.-EI control de la existencia de fórmulas de cheques en blanco estará a cargo del Tesorero. Periódicamente el Tesorero y el funcionario que él autorice, informarán de la existencia, uso y necesidad de las fórmulas al Jefe de Finanzas y Director General Administrativo.

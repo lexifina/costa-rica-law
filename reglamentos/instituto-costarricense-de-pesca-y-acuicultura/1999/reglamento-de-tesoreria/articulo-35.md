@@ -1,0 +1,1 @@
+Artículo 35.- Tanto la Administración Superior como la Dirección Administrativa y la jefatura de Finanzas deberán velar porque la Tesorería cuente con el personal capacitado necesario y los equipos informático s y técnicos necesarios para el cabal cumplimiento de sus funciones y el eficaz cumplimiento de éste Reglamento.

@@ -1,0 +1,1 @@
+Artículo 11.-Los ingresos a que se refiere el artículo anterior, deben ser depositados íntegramente en las cuentas corrientes respectivas, según sea el caso y a más tardar el siguiente día hábil de su recibo. Todo depósito deberá respaldarse para efectos de registro contable, con los respectivos comprobantes de ingreso.

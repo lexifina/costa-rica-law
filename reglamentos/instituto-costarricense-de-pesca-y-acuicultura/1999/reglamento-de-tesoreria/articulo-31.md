@@ -1,0 +1,8 @@
+Artículo 31.-EI control de cuentas por pagar incluirá la siguiente información:
+a) Contratos por servicios: fecha de pago, nombre del beneficiario, mes que se cancela, número de contrato, oficio o nota que originó el compromiso, monto de la deuda, abono, saldo.
+b) Pago por servicios básicos (agua, energía eléctrica, teléfono, alquiler), honorarios profesionales, consultorías y otros: nombre del proveedor o Institución, número medidor, número teléfono, monto mensual por alquiler, número contrato, especificaciones varias, código contable y presupuestario, fecha vencimiento, fecha cheque, número cheque, mes que cancela y monto según el caso.
+c) Control de viáticos al exterior: nombre del servidor, puesto, unidad donde labora, número de cheque del adelanto, fecha del cheque, monto, número de liquidación, número de cheque para cancelar diferencia o comprobante de ingreso por devolución, fecha de liquidación.
+d) Control de cajas chicas: lugar, nombre del encargado del fondo, número de cuenta bancaria y banco (en caso de que exista), monto del fondo, código contable, reintegro número, cheque número, fecha y documentación soporte.
+e) Control pagos a exfuncionarios por liquidación: incluye número orden de pago, fecha, nombre del beneficiario, número de cheque, fecha, concepto, monto así como el detalle de las autorizaciones correspondientes.
+f)Control de retenciones del 2% del impuesto sobre la renta: contempla número de cédula o personería jurídica, nombre persona o empresa, importe retenido, número y fecha del cheque.
+g) Control de cheques emitidos por Tesorería: indica la fecha, número de cheque, nombre del beneficiario, detalle, monto, firma de quien retira, fecha de retiro, condición (cancelado o anulado).
