@@ -1,0 +1,1 @@
+Artículo 5°—Toda ayuda proveniente de organismos internacionales de carácter técnico, financiero o material destinada a Museos Regionales, será canalizada por el Ministerio de Cultura, Juventud y Deportes por medio del Centro de Investigación y Conservación del Patrimonio Cultural.
