@@ -1,0 +1,1 @@
+Artículo 77.—Para la elección del Directorio, conforme al artículo 29 del Código Municipal, solamente votarán los regidores propietarios, sin que sea necesario la existencia de debate alguno, pero sí es necesario autorizarse algún periodo de discusión para la presentación de los candidatos.

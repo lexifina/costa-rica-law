@@ -1,0 +1,1 @@
+Artículo 74.—Elección del Directorio. En ejercicio de las facultades reglamentarias, establecidas en el artículo 4 inciso a) del Código Municipal, para el caso de la Elección del Directorio del Concejo Municipal, se deben respetar los siguientes lineamientos:

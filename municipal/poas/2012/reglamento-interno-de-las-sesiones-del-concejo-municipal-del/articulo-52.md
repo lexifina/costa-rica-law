@@ -1,0 +1,1 @@
+Artículo 52.—El quórum para las Sesiones de Comisión, será de dos Regidores (as) Propietarios (as) o Suplentes. Ese mismo número deberá estar presente al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones, en el sitio designado para efectuarse las reuniones de Comisión.

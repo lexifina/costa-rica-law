@@ -1,0 +1,1 @@
+Artículo 39.—Todo Regidor (a) Propietario (a) o Suplente en propiedad, presentará sus mociones y proposiciones por escrito y se presentarán acorde con las reglas de establecidas en el artículo 19 del presente reglamento y bajo el formato previamente establecido. Exceptuándose únicamente las Mociones de Orden, contempladas en el artículo 44.

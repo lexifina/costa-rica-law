@@ -1,0 +1,1 @@
+Artículo 34.—Los acuerdos del Concejo originados por iniciativa del alcalde municipal o los regidores, se tomarán previa moción o proyecto escrito y firmado por los proponentes, acorde con las reglas de presentación establecidas en el artículo 19 del presente reglamento.

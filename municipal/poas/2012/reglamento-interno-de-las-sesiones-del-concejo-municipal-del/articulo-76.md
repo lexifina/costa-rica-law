@@ -1,0 +1,1 @@
+Artículo 76.—La Sesión Solemne mediante la cual se elige el Directorio, será de tipo extraordinario, y se celebrará a las doce horas, salvo acuerdo en contrario para variar la hora por mayoría absoluta del Concejo. Deberá celebrarse en el lugar sede de la Sala de Sesiones del Concejo Municipal.

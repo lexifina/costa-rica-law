@@ -1,0 +1,1 @@
+Artículo 46.—Al dar por discutido un asunto, el (la) Presidente (a) del Concejo, dará un término prudencial, para recibir la votación correspondiente; procurando que ésta se realice cuando todos los (las) Regidores (as) presentes estén ocupando sus curules. Caso contrario, se aplicarán las reglas contempladas en el artículo 10 del presente Reglamento.

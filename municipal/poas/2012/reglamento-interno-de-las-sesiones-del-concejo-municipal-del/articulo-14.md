@@ -1,0 +1,1 @@
+Artículo 14.— Por cuestión de orden y buen manejo de los temas discutidos, durante las sesiones ordinarias y extraordinarias, los Miembros del Concejo, propietarios (as), suplentes, síndicos (as) y público asistente, mantendrán sus aparatos celulares, localizadores o similares, con volumen bajo.

@@ -1,0 +1,1 @@
+Artículo 80.—Del conteo de votos debe hacerse por parte del Secretario (a) del Concejo Municipal, y otra persona a designar por parte del Concejo Municipal mediante votación de mayoría absoluta en la Sesión Solemne en el cual se elige el Directorio.

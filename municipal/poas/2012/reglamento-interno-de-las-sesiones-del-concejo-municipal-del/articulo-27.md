@@ -1,0 +1,1 @@
+Artículo 27.—Las actas de las sesiones deberán ser aprobadas en la sesión ordinaria inmediata posterior, salvo que circunstancias especiales de fuerza mayor lo impidan, en cuyo caso la aprobación se pospondrá para la sesión ordinaria siguiente.

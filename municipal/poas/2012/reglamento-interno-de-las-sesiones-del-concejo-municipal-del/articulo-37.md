@@ -1,0 +1,1 @@
+Artículo 37.—Durante las Sesiones, la alteración del Orden del Día se solicitará mediante una Moción de Orden, la cual puede hacerse verbalmente; para su justificación el (la) proponente hará uso de la palabra hasta por un máximo de cinco minutos, conforme a las reglas establecidas en el artículo 19.

@@ -1,0 +1,1 @@
+Artículo 22.—El (la) proponente de una moción, sea de la que se trate, tiene prioridad en el uso de la palabra y, para tal efecto se le concederán hasta cinco minutos. Podrá intervenir de nuevo sobre la moción propuesta hasta por tres minutos más, a efectos de que ejerza la replica a que tiene derecho, si su moción es combatida.

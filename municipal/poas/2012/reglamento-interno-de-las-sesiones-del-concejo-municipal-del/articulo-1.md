@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE POÁS
+La Suscrita Secretaria del Concejo Municipal, hace constar que el Concejo Municipal del cantón de Poás, en su sesión ordinaria Nº 112, celebrada el día 19 de junio de 2012, en forma unánime y definitivamente aprobado, aprobó publicar en La Gaceta lo siguiente: Acuerdo Nº 6733-06-2012: “… debido a que el Reglamento Interno de las Sesiones del Concejo Municipal del Cantón de Poás, fue publicado en La Gaceta Nº 46 del 7 de marzo del 2005, el cual rige, pero en cumplimiento al artículo 43 del Código Municipal, al no darse observaciones ni objeciones de fondo, se había obviado nuevamente la ratificación respectiva. Por tanto este Concejo Municipal en apego a la normativa, ratifica dicho Reglamento el cual empezó a regir pasados los diez días hábiles de consulta después de la primera publicación...”.
+San Pedro de Poás, 25 de junio del 2012.
+(Nota de Sinalevi: Tal como se indica en el párrafo anterior, el texto corresponde al publicado como proyecto en La Gaceta N° 46 del 7 de marzo del 2005 y se transcribe a continuación:)
+MUNICIPALIDAD DE POÁS
+Que el Concejo Municipal del cantón de Poás, en su sesión extraordinaria Nº 23, acuerdo Nº 1494-05-2004, celebrada el día veintiocho de mayo del 2004, por unanimidad aprobó el Reglamento Interno de las Sesiones del Concejo de la Municipalidad del Cantón de Poás.
+REGLAMENTO INTERNO DE LAS SESIONES
+DEL CONCEJO MUNICIPAL
+MUNICIPALIDAD DEL CANTÓN DE POÁS
+Artículo 1º—El Concejo Municipal del cantón de Poás, en uso de las atribuciones que le confiere la Ley Nº 7794, Código Municipal, artículos 4º, inciso a), 13, incisos c) d), 43 y 50 dicta el presente Reglamento que regulará los debates y el uso de la palabra durante las sesiones ordinarias y extraordinarias que celebre este cuerpo deliberativo en el recinto municipal o fuera de éste, cuando así fuere acordado.
