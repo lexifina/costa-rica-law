@@ -14,3 +14,4 @@ Crea Academia Nacional de Medicina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-22 | la propia norma |
+| 2 | 1997-03-07 | Decreto Ejecutivo 25899 (1997-03-07) |
