@@ -1,0 +1,1 @@
+Art. 7°-También podrá el Poder Ejecutivo conmutar en multa la pena de arresto, graduándola según la naturaleza del delito y los recursos pecuniarios del solicitante, de acuerdo con lo dispuesto en el artículo 31 del Código Penal.

@@ -1,0 +1,1 @@
+Art. 5°-Las penas de deportación y presidio podrán ser conmutadas por el Poder Ejecutivo en la de arresto en la cárcel de San José, por causa de enfermedad grave que ponga en peligro la vida del reo, comprobada con certificación médico-legal. Los efectos de la conmutación cesarán tan pronto como el reo recobre la salud.
