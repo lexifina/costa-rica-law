@@ -1,0 +1,12 @@
+N° 6863-SPPS
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD,
+De acuerdo con las disposiciones del inciso 3), del artículo 140 de la Constitución Política y a solicitud del Colegio de Enfermeras de Costa Rica.
+DECRETAN :
+Artículo 1°—Refórmanse los artículos 77, 78, 105, 107 y 109, inciso a) del Reglamento de la Ley Orgánica del Colegio de Enfermeras de Costa Rica (decreto N° 11 de 10 de agosto de 1961), para que se lean así:
+“Artículo 77.—Podrán ejercer la Obstetricia en el país solamente las personas que ostenten el título de Obstétrica Profesional expedido por el Colegio de Médicos y Cirujanos (antigua Facultad de Medicina), por el curso de Posgraduado de Obstetricia de la Escuela de Enfermería de Costa Rica, y las Obstétricas Profesionales tituladas en otros países incorporadas al Colegio de Médicos y Cirujanos, antes de la promulgación de la ley número 2343 de fecha 4 de mayo de 1959.
+El Colegio de Enfermeras de Costa Rica determinará internamente las actividades de las Enfermeras Obstétricas en las diferentes áreas profesionales de atención”.
+“Artículo 78.—Las Enfermeras Profesionales sólo atenderán partos en caso de inopia de enfermeras obstétricas y en situaciones específicas de emergencia”.
+“Artículo 105.—Las personas que hayan aprobado los Cursos de Enfermería Médico-Quirúrgico, Enfermería Materno Infantil y Enfermería Salud Comunitaria en la Escuela de Enfermería de la Universidad de Costa Rica, se les otorgará la licencia de Auxiliar de Enfermería igualándolas así a quienes hayan realizado el Curso Oficial”.
+“Articulo 107.—Se establece una cuota inicial fija de incorporación de ¢ 600.00. Que deben pagar con anticipación en la Tesorería del Colegio. Las Enfermeras Graduadas en el Colegio de Médicos y Cirujanos (antigua Facultad de Medicina), y en la Escuela de Enfermería de Costa Rica. El reconocimiento de títulos o Diplomas, en virtud de Tratados Internacionales para todas las Enfermeras Graduadas que pretenden ejercer su profesión en el territorio nacional, son de ¢ 1,200.00 de acuerdo con el artículo 56, Capítulo XI del presente Reglamento”.
+“Artículo 109.—Inciso a). Estarán exentas de contribuir para el fondo de mutualidad y subsidio, conservando todos sus derechos, las enfermeras que hayan cumplido 60 años, o aquellas quienes tuvieren incapacidad permanente con 20 años de ejercicio profesional y, temporalmente, las que la Junta Directiva del Colegio les conceda esa gracia en atención a dificultades económicas”.
