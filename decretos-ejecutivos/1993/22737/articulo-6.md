@@ -1,1 +1,0 @@
-Artículo 6°—Los Inspectores de Tránsito deberán velar por la debida observancia y cumplimiento de las prescripciones contenidas en la Ley de Tránsito, así como de toda otra disposición jurídica que resultare aplicable en lo concerniente a la circulación de vehículos y el transporte de personas y bienes en la Universidad de Costa Rica.

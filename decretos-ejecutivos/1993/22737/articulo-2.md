@@ -1,1 +1,0 @@
-Artículo 2°—Existirá un cuerpo de Inspectores de Tránsito destacados en la Universidad de Costa Rica, quienes ejercerán el control y vigilancia del tránsito en dichas instalaciones, haciendo cumplir las disposiciones técnicas y legales establecidas en cuanto al tránsito de vehículos y al transporte de personas.

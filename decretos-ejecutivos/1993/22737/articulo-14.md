@@ -1,1 +1,0 @@
-Artículo 14.—Los actuales Inspectores de Tránsito destacados de la Universidad de Costa Rica conservarán, en lo conducente, sus derechos adquiridos, conforme a la normativa jurídica vigente y al régimen que regula la relación de servicio de dichos funcionarios con la Universidad de Costa Rica.
