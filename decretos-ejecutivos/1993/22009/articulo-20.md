@@ -1,0 +1,1 @@
+Artículo 20.—Para los efectos de cálculo de los meses a que tiene derecho los servidores, que hayan laborado en las condiciones del inciso b), del artículo 2 de la Ley sin completar el término ahí establecido, se dividirá entre 9 si son educadores o misceláneos de enseñanza general básica y entre 11 en los demás casos.

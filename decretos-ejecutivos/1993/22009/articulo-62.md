@@ -1,0 +1,1 @@
+Artículo 62.—Las resoluciones de la Junta, en tanto confieran o denieguen derechos de pensión o Jubilación o cuando declaren sin lugar otras peticiones, deberán ser razonadas, y debidamente notificadas al interesado.

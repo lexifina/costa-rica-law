@@ -1,0 +1,1 @@
+Artículo 9°—A los efectos del derecho de sucesión que genera el fallecimiento de un beneficiario jubilado o con derecho a jubilación, la Junta requerirá, como medios de comprobación, certificaciones de defunción, de matrimonio o de nacimiento, según corresponda.

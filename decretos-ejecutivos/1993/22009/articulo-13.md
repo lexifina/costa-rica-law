@@ -1,0 +1,1 @@
+Artículo 13.En caso de acumulación de dos derechos de sucesión que sobrepase el tope que establece el artículo 9 de la ley, el monto jubilatorio se ajustará al mismo, sin perjuicio de ajustes sucesivos en tanto varía el tope.

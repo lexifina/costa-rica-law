@@ -1,0 +1,1 @@
+Artículo 37.—La Junta regulará, bajo los principios de conveniencia y oportunidad, la contratación de los bienes, servicios, y personal administrativo que demande su giro, así como todas aquellas actividades propias de su competencia; mediante el dictado de reglamentaciones autónomas y específicas para cada actividad.

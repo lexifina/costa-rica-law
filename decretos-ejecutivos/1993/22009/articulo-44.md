@@ -1,0 +1,1 @@
+Artículo 44.—La Junta Directiva, en lo referente a sus sesiones, quorum, mociones, acuerdos, cambios y ausencias o renuncias de sus miembros, queda sujeta a las formalidades, trámites y requisitos, que sobre tales extremos se establecen en el Estatuto Orgánico a que se hace referencia en los artículos anteriores.

@@ -1,0 +1,2 @@
+Artículo 33.—Corresponde al Presidente de la Junta Directiva, la representación judicial y extrajudicial de la Institución, con facultades de apoderado generalísimo, sin límite de suma, debiendo inscribirse su poder en la sección de personas del Registro Nacional; quien además estará facultado para otorgar en nombre de la Junta, poderes generales y judiciales, para atender eventos de extrema urgencia; debiendo en todo caso comunicarlo posteriormente a la Junta Directiva.
+El Director Ejecutivo tendrá las facultades de representación que le otorgue la Junta Directiva.

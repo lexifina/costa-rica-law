@@ -1,0 +1,5 @@
+CAPITULO SEGUNDO
+Monto de las jubilaciones y pensiones
+Artículo 15.—El monto de la pensión se determinará de conformidad con las siguientes reglas:
+Cuando la jubilación fuera ordinaria, será determinada con base en el promedio de los doce mejores salarios devengados durante los últimos dos años al servicio del Magisterio Nacional, calculados con una dedicación a tiempo completo, al cual se le sumará el promedio de los sobresueldos devengados durante el mismo período y por el mismo concepto. En todo caso, el monto anterior se proporcionará a la jornada promedio cumplida por el gestionante en los últimos diez años de servicio.
+Para dar cumplimiento a lo anterior, los Departamentos de Personal del MEP, de las Instituciones de Educación Superior Estatales, del INA y las instituciones privadas de enseñanza, certificarán a la Junta si el pétente laboró a tiempo completo o, en su defecto, brindará la información respectiva, para que se determine la jornada promedio, todo de conformidad con la legislación vigente aplicable a cada caso.

@@ -1,0 +1,1 @@
+Artículo 11.—Cuando se trate de traspasos por sobrevivencia y a efecto de determinar la proporción que corresponde a cada uno de los causahabientes que señala el artículo 18 de la Ley, se seguirán los principios establecidos en los Códigos Civil y de Familia, en lo referido a sucesiones y gananciales.

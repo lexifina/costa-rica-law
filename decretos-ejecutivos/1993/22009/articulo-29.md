@@ -1,0 +1,1 @@
+Artículo 29.—La calificación de zonas incómodas e insalubres, que debe realizar la referida comisión, ha de efectuarse por vía de decreto ejecutivo, que debe publicarse en el Diario Oficial. Tal calificación deberá revisarse cada dos años.

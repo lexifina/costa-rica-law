@@ -1,0 +1,1 @@
+Artículo 46.—La Junta, en relación con las Instituciones particulares a que se refiere el artículo 14 de la ley, deberá llevar el control de las cuotas obreras y patronales que tienen que pagar al fondo para lo cual solicitará a esas dependencias mensualmente las planillas correspondientes con la liquidación respectiva.

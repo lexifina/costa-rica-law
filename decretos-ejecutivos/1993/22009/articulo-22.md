@@ -1,0 +1,2 @@
+Artículo 22.—Si el monto del salario del puesto de la clase mínima, que fija la Ley de Salarios de la Administración Pública se incrementa, se entenderá a los efectos del artículo 9 párrafo segundo de la ley, que la Junta deberá de oficio, proceder al reajuste de las pensiones y jubilaciones que resultaran menores a la nueva suma.
+Para este efecto cada vez que ocurra una variación en el monto del salario de puesto de clase mínima de la Administración Pública, la Dirección General de Servicio Civil, deberá comunicarlo a la Junta.

@@ -1,0 +1,1 @@
+Artículo 58.—Recibida toda la documentación necesaria el expediente pasará a estudio del Departamento de Cálculo y previamente a elevarlo a conocimiento de la Dirección Administrativa, dicho Departamento deberá rendir un informe detallado, relativo al cómputo de años de servicio, el cual tendrá que ser suscrito por el servidor responsable y el Jefe del Departamento.

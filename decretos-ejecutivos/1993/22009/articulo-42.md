@@ -1,0 +1,1 @@
+Artículo 42.—La Junta Directiva, encargada de la Administración del Sistema de Jubilaciones del Magisterio Nacional, a que hace referencia el artículo 23 de la ley, tiene como atribuciones y obligaciones, además de las señaladas en la citada ley, las que de manera concreta y específica se puntualizan en el Estatuto Orgánico de la Junta.

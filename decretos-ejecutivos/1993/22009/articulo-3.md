@@ -1,0 +1,1 @@
+Artículo 3°—Cuando la Junta debe estudiar, conocer o resolver solicitudes de pensión o jubilación, además de los requisitos señalados por ley, deberá cumplir con los trámites o procedimientos señalados en este Reglamento.

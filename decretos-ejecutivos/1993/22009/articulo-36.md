@@ -1,0 +1,4 @@
+Artículo 36.—La supervisión de todas las actividades administrativas financieras de la institución, será ejercida exclusivamente por la Junta Directiva, mediante el control que ejerza el Departamento de Auditoria Interna, creado en el artículo 33 de la Ley, como órgano técnico auxiliar de esta; el que tendrá las funciones que se le asignen en el Reglamento General de la Organización y Funcionamiento.
+Para los efectos de esta ley, se definen como Controles Externos de las actividades administrativas y financieras de la Junta, los siguientes:
+a) El control que de sus operaciones, periódicamente realice la Junta, mediante la contratación de los servicios de auditoraje externo.
+b) El control por información, establecido en el inciso d) del artículo 24 de la ley, mediante el informe anual de labores que debe remitirse a la Contraloría General de la República y a las instituciones representadas en su seno.

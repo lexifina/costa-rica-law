@@ -1,0 +1,1 @@
+Artículo 34.—Asimismo, le corresponderá, al Director Ejecutivo verificar que los expedientes cumplan con los requisitos legales y contables que exige la ley, previo al envío a la Junta o a la Dirección de Pensiones para lo que corresponda. La Junta Directiva podrá conferir y revocar los poderes y facultades que se consideren necesarios para la buena marcha institucional.

@@ -1,0 +1,1 @@
+Artículo 35.—De conformidad con lo dispuesto en el artículo 33 de la Ley, y a partir de la estructura básica que en él se establece, la Junta, tendrá el modelo de organización administrativa que mejor satisfaga el cumplimiento de sus fines, que se determinará mediante el reglamento que al efecto dicte la Junta Directiva.

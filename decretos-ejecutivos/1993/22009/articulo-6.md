@@ -1,0 +1,1 @@
+Artículo 6°—Los servidores que se acogiesen a los beneficios contemplados en el artículo 2°, incisos b), c), ch) y d) de la Ley, deberán haber cotizado al régimen de pensiones y jubilaciones del Magisterio Nacional, el número de cuotas equivalente al número de años de servicio exigidos para tener derecho a la pensión ordinaria, según el caso.

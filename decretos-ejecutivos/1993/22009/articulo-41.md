@@ -1,0 +1,1 @@
+Artículo 41.—La Dirección Ejecutiva pondrá el informe a que se refiere el artículo 46 de este Reglamento, en conocimiento de la Junta Directiva para su análisis y decisión. Las acciones que decida tomar la Junta, deberán ser ejecutadas dentro de los 30 días hábiles siguientes a la fecha del acuerdo firme.

@@ -1,0 +1,1 @@
+Artículo 43.—Son atribuciones y deberes de los miembros de la Junta Directiva, de su Presidente y de su Secretario, todas aquellas que de manera formal y expresa se consagran en el referido Estatuto Orgánico de la Junta y las fijadas por la ley y su Reglamento.

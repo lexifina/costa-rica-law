@@ -1,0 +1,1 @@
+Artículo 26.—Para poder ser eximidos de la contribución especial a titulo de solidaridad a que hace referencia el artículo 12 inciso 5) de la ley, será necesario que el beneficiario postergue el beneficio de la pensión por el período de 7 años.

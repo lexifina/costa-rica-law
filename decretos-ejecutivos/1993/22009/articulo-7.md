@@ -1,0 +1,1 @@
+Artículo 7°—Tratándose de jubilaciones extraordinarias y para el cómputo de los años de servicio, se reconocerán cuatro meses por cada año laborado en zonas, que no cuenten con servicio y condiciones de salubridad y comodidad, en la enseñanza especial o con horario alterno, lo anterior de conformidad con lo dispuesto por los artículos 2 inciso c) y 8 inciso c) de la Ley.

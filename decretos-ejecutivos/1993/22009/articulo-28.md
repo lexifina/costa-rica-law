@@ -1,0 +1,1 @@
+Artículo 28.—La comisión a que se refiere el artículo anterior, tendrá el carácter de permanente y deberá reunirse cada dos meses o cuando la Junta así lo solicite para recabar opiniones o solicitar aclaraciones. Los integrantes de dicha Junta no recibirán remuneración por dietas.

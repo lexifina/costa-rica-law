@@ -1,0 +1,1 @@
+Artículo 12.—Cuando se extingan algunos de los derechos concebidos por la aplicación de los artículos 18 y 19 de la ley, será obligación de la Junta adoptar las medidas pertinentes y hacer las comunicaciones necesarias, para dar cumplimiento al artículo 22 de la ley.

@@ -1,0 +1,1 @@
+Artículo 55.—Para que los beneficios por invalidez a que se refiere el citado artículo de la ley sean procedentes, y así lo acuerde la Junta, es requisito indispensable que los dictámenes médicos sean coincidentes.

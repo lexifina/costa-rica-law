@@ -1,0 +1,1 @@
+Artículo 63 .—Todo acto de procedimiento que afecte derechos de las partes o de un tercero, deberá ser debidamente notificado al afectado, de conformidad con los artículos 239 siguientes y concordantes de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 39.—Sin perjuicio de lo establecido en el artículo anterior, la Junta podrá autorizar el traslado de recursos a la Hacienda Pública, con cargo al FONDO DE RESERVA, en el porcentaje que se acuerde financiar , para cubrir el fallante que pudiere resultar en las aportaciones de sus beneficiarios, según lo establecido en el artículo 30 de la ley.

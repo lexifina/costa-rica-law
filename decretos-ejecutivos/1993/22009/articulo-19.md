@@ -1,0 +1,2 @@
+Artículo 19.—La condición de pensionado o jubilado será suspendida de oficio, por la Junta, durante el tiempo que el interesado desempeñe cargo o empleo remunerado en Organismos del Estado, Instituciones Autónomas y Municipalidades.
+La disposición anterior no será de aplicación cuando se esté en presencia de los casos de calificada excepción a que se hace expresa referencia en el artículo 6 de la ley.

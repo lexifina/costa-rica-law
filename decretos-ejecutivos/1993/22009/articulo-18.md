@@ -1,0 +1,2 @@
+Artículo 18.—Los pensionados en forma extraordinaria que sean rehabilitados deberán demostrar a la Junta, como mínimo que han hecho oferta de servicios en los concursos anuales que lleva a cabo la Dirección General de Servicio Civil.
+Las personas rehabilitadas gozarán de prioridad para nombramientos a cargo del Ministerio de Educación, para lo cual la Dirección General del Servicio Civil deberá tomarlos en cuenta a fin de asignarles las puntuaciones preferenciales del caso.
