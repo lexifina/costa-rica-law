@@ -1,0 +1,5 @@
+N° 2533
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
+DECRETA:
+Artículo 1°-Apruébese en todas y cada una de sus partes el Convenio y las Actas del VII Congreso de la Unión Postal de las Américas y España, que fueron firmados en Bogotá, Colombia, el 9 de noviembre de 1955, y cuyo texto es el siguiente:
+(Nota de Sinalevi: Por tener articulado propio el Reglamento de Ejecución del Acuerdo Relativo a Encomiendas Postales; el Acuerdo Relativo a la Creación del Monumento en Honor de Colombia, Ecuador y Venezuela, con motivos alusivos al correo Aborigen y de la Colonia; el Acuerdo Relativo a Giros Postales; el Protocolo Final del Acuerdo Relativo a Giros Postales; el Acuerdo Relativo a Encomiendas Postales; el Acuerdo Relativo a Valores Declarados; el Protocolo Final del Acuerdo Relativo a Encomiendas Postales; el Protocolo Final del Convenio; el Reglamento de Ejecución del Convenio de la Unión Postal de las Américas y España y el Convenio de la Unión Postal de las Américas y España, deben consultarse en el sistema en forma independiente)

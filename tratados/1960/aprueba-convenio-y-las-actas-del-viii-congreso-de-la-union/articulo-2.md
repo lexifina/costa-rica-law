@@ -1,0 +1,1 @@
+Articulo 2° EI Gobierno de Costa Rica se reserva el derecho en lo tocante al artículo 43 sobre "Tarifas", de dejar a salvo la facultad de aplicar o no, según lo considere conveniente, las tarifas del servicio interior, a los países que formulen reservas al artículo 42, ”Gratuidad de Tránsito".
