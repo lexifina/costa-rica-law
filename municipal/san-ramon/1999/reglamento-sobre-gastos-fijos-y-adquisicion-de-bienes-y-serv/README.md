@@ -14,3 +14,4 @@ Reglamento sobre Gastos Fijos y Adquisición de Bienes y Servicios de Competenci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-21 | la propia norma |
+| 2 | 2004-03-20 | Reglamento municipal 179 (2004-03-20) |
