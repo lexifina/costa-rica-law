@@ -1,8 +1,0 @@
-Artículo 5º.- Los funcionarios activos del Ministerio de Educación
-Pública que, por ocupar cargos a tiempo completo en la dirigencia de
-las organizaciones gremiales, corporativas y sindicales directamente
-vinculadas con el Magisterio Nacional, hayan disfrutado de licencia
-sin goce de salario en el ejercicio de esa representación, tendrán
-derecho a que el tiempo destinado a tal actividad se les reconozca
-como años de servicio para efectos de pensión únicamente, lo que en
-ningún caso podrá exceder de diez años.
