@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio, por medio de su Unidad Técnica, velará por el cumplimiento de las disposiciones contenidas en la presente directriz e informará de su acatamiento al Presidente de la República.

@@ -1,0 +1,15 @@
+Nº 18
+EL PRESIDENTE DE LA REPÚBLICA
+LA MINISTRA DE LA PRESIDENCIA
+Y LA MINISTRA DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En ejercicio de las facultades que les confieren los artículos 140, incisos 3), 8), 18) y 20); y 188 de la Constitución Política; artículos 25, 27, 99 y 100 de la Ley General de la Administración Pública, y la Ley de protección al ciudadano del exceso de requisitos y trámites administrativos, Nº 8220 del 4 de marzo del 2002.
+Considerando:
+1º—Que la Ley de protección al ciudadano del exceso de requisitos y trámites administrativos, Nº 8220 del 4 de marzo del 2002, es de aplicación a toda la Administración Pública, central y descentralizada, incluso instituciones autónomas y semiautónomas, órganos con personalidad jurídica instrumental y empresas públicas del Estado:
+2º—Que el propósito de dicha normativa es orientar la actuación de la Administración Pública, conforme a principios básicos de racionalidad, uniformidad, publicidad, celeridad y precisión para resolver las gestiones que presenten los administrados en el ejercicio de su derecho de petición, información y/o derecho o acceso a la justicia administrativa.
+3º—Que todo trámite o requisito, con independencia de su fuente normativa, únicamente es oponible al administrado cuando haya sido publicado en el diario oficial, La Gaceta, junto, con los instructivos, manuales, formularios y demás documentos correspondientes.
+4º—Que a efectos de cumplir con ese principio esencial, en el transitorio único de la Ley Nº 8220, el legislador otorgó un plazo de tres meses calendario contados a partir de la publicación de la Ley, para que todos los órganos y entidades públicas procedieran a la publicación de los trámites y requisitos que se realizan en la respectiva unidad administrativa o dependencia.
+5º—Que la obligación anterior ha sido parcialmente desatendida, con lo que se perjudica la relación entre la Administración Pública y el administrado, así como el cumplimiento del fin último el Estado que es la satisfacción del interés público, considerado éste en los términos del artículo 113.1 de la Ley General de la Administración Pública.
+6º—Que es función prioritaria del Gobierno de la República, en el marco de su política de transparencia y combate a la corrupción, velar por el cabal y oportuno cumplimiento de lo dispuesto en Ley de protección al ciudadano del exceso de requisitos y trámites administrativos, así como promover su adecuada difusión. Por tanto,
+Emiten la siguiente,
+Directriz:
+Artículo 1º—Los órganos, y entes de la Administración Pública, central y descentralizada, y las empresas públicas del Estado, deberán revisar en forma periódica los trámites y requisitos que se realizan en su respectiva unidad administrativa o dependencia, con el propósito de ajustarlos a los principios establecidos en la Ley de protección al ciudadano del exceso de requisitos y trámites administrativos. En todo momento, en especial por medios electrónicos, mantendrán a disposición de los administrados los instructivos, manuales, formularios y demás documentos que sean necesarios para realizar el trámite o cumplir con el requisito de que se trate.
