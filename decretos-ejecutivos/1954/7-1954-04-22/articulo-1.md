@@ -1,0 +1,96 @@
+N° 7
+EL PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA,
+De conformidad con lo que dispone el articulo 1° de la ley No 1698 de 26 de noviembre de 1953 y por recomendación del Comité de Normas y Asistencia Técnica-Industrial.
+DECRETA:
+Articulo 1°—Aprobar la siguiente
+Norma Oficial para Abonos Minerales o Químicos
+I.—GENERALIDADES
+Para los efectos de esta Norma, consideranse abonos minerales o químicos, los materiales de tal naturaleza u origen, ya sean simples, catalíticos, polidinámicos, menores y/o mezclados, según las definiciones dadas en la Norma Oficial de Nomenclatura para abonos.
+II.—CLASIFICACIÓN
+Véase La Colección de Leyes y Decretos de 1954, I Semestre, Tomo I, Páginas 185 a 186.
+III.—ESPECIFICACIONES
+Los porcentajes mínimos de elementos fertilizantes y requisitos de finura para los productos usados como abonos, son los siguientes:
+Véase La Colección de Leyes y Decretos de 1954, I Semestre, Tomo I, Páginas 186 a 188.
+IV.—MUESTREO
+1) La extracción automática de muestras se efectuará con tomadores instalados en la fábrica y que deberán extraer una muestra no menor de 50 Kg. Por cada 100 toneladas métricas de producto.
+2) La extracción manual se hará separando al azar un número de envases no inferior al 2 % del lote o partida con un mínimo de cinco envases y cuyo peso se anotará. De cada uno de estos envases se extraerá una muestra individual. Para abonos envasados en sacos se sacará preferiblemente y de ser posible con un calador, muestra en el centro del saco desde arriba hasta el fondo o bien muestras pequeñas en las partes superior, media e inferior del saco. Las muestras individuales se mezclarán perfectamente y se llenará no menos de tres frascos de 500 ce. Sellándolos y rotulándolos con las indicaciones necesarias: tipo de abono, marca, vendedor y/o fabricante, composición, etc. Un frasco quedará en poder del vendedor o fabricante, otro se llevará al Laboratorio Químico del Ministerio y otro a la Dirección de Agricultura.
+V.—MÉTODOS DE ANÁLISIS
+A.—Análisis mecánico:
+Se usarán cien gramos de la muestra bien mezclados, si el material tuviera tendencia a aglomerarse, los terrones se desmenuzarán con pisón de hule blando, luego se pasará el abono a través de tamices que se ajusten a las disposiciones de la Norma, comenzando por el tamiz de 2.83 mm. de abertura.
+Las distintas fracciones se expresarán en porcentajes.
+B.—Preparación de las muestras para el análisis químico:
+Aproximadamente doscientos gramos de. la muestra bien mezclada se pulverizará rápidamente hasta que pase toda a través del tamiz de 0.149 mm. de abertura 'y se conservará en frasco bien cerrado.
+C.—Determinación de la humedad:
+a) Método de secamiento en la estufa:
+Dos gramos de muestra preparada de conformidad con lo especificado en el párrafo anterior se pondrán en estufa de 10C° C + 5° hasta peso constante, la pérdida de peso expresada en porcentaje representa el valor de la humedad.
+b) Método de corriente de aire:
+Señalado en el "Official and Tentativo Methods of Análisis" oí "The Association of Oficial Agricultural Chemists", Seventh edition. 1950, párrafo 2.5. (En los párrafos sucesivos se señalará el texto arriba citado por brevedad, como "A.O.A.C.")
+Este método se usará en el caso de abonos que contienen elementos volátiles o que se descomponen a la temperatura de secamiento, por ejemplo: urea, nitrato de Ca y de amonio y sales que contengan agua de cristalización.
+D.—Determinación del nitrógeno:
+a) Reconocimiento de nitrógeno nítrico:
+Método señalado para el párrafo 2.19 del A.O.A.C.
+b) Reconocimiento de nitrógeno amoniacal:
+Se agitará en tubo de ensayo algunos gramos de la muestra con agua destilada, después se filtrará. Al liquido filtrado se agregarán algunos mi. de solución de hidróxido de sodio y se calentará: la presencia de N amoniacal se reconocerá por el olor de NH3 que se desprende o por de cambio de color que experimenta el papel de tornasol humedecido.
+c) Reconocimiento del nitrógeno orgánico:
+Poner algunos gramos de muestra con cal sodada en un tubo de ensayo y calentar al rojo sombra obteniéndose, si contiene N orgánico, el mismo resultado (me en e! reconocimiento del nitrógeno amoniacal.
+d) Determinación del nitrógeno orgánico y amoniacal:
+Se harán de conformidad con los métodos de KjeldahI-Gunning y Kjel- nahI-Gunning-Arnold descritos en el A.O.A.C. en los párrafos: 2.20-2.21- 2.22-2.23 y 2.24.
+e) Determinación del nitrógeno total:
+Se hará de conformidad con el método Kjeldahí modificado y el método Gunning modificado, adscritos en los párrafos 2.25 y 2.26 del A.O.A.C.
+f) Determinación del nitrógeno amoniacal:
+Se hará siguiendo el método del óxido de magnesio descrito en el párrafo 2.27 del A.O.A.C.
+g) Determinación del nitrógeno nítrico y amoniacal:
+Se hará siguiendo los métodos descritos en los párrafos 2.29 y 2.30 del A.O.A.C., recordando que estos dos métodos no pueden aplicarse si el abono contiene materia orgánica, calcio-cianamida o urea.
+h) Determinación del nitrógeno nítrico:
+Se hará siguiendo los métodos Robertson, aconsejado cuando el abono contiene calcio-cianamida o urea y el método Robertson modificado por Jones, cuando no es necesaria la determinación del nitrógeno soluble en agua. Dichos métodos están descritos en los párrafos 2.31 y 2.32 del A.O.A.C.
+i) Determinación del nitrógeno insoluble en agua, contenido en la cianamida:
+Se hará siguiendo el método descrito en el párrafo 2.33 del A.O.A.C.
+k) Separación del nitrógeno soluble en agua, del nitrógeno orgánico insoluble en agua y soluble en solución de carbonato de potasio neutro:
+Se hará siguiendo el método descrito en los párrafos 2.35-2.36-2.37 y 2.38 del A.O.A.C.
+E- Determinación del anhídrido fosfórico a penta-óxido de fósforo (Pa05):
+a) Determinación de P2O5 total:
+Podrá hacerse siguiendo el método gravimétrico o el método volumétrico; ambos están descritos en los párrafos 2.8-2.9-2.10-2.11-2.12 y 2.13 del A.O.A.C.
+b) - Determinación de P2O5 soluble en agua:
+Podrá usarse también en este caso el método volumétrico o el gravimétrico siguiendo las indicaciones descritas en los párrafos 2.14 y 2.15 del A.O.A.C.
+c) Determinación del P205 soluble en cifrato de amonio:
+Se deberá seguir el método descrito en los párrafos 2.16 y 2.17 del A.O-A.C.
+d) Determinación del P2O5 soluble en ácido cítrico:
+Se deberá usar el método descrito en los párrafos 2.18-2.19 y 2.20 del A.O.A.C.
+Nota: En este caso únicamente los números de los párrafos se refieren a la sexta edición del año 1945, del A.O.A.C.
+F- Determinación de la potasa (K2O):
+a) Podrá usarse el método. Lindo-Gladding descrito en los párrafos 2.39- 2.40 y 2.41 del A.O.A.C. o bien el método del Perclorato que a continuación se describe:
+A 25 ó 50 mi. de la solución preparada siguiendo las indicaciones de los párrafos 2.41 y-2.42 del A.O.A.C., se agregarán 10 mi. de una solución caliente de cloruro de bario al 10 % ; se dejará reposar durante 3-5 horas y se filtrará a través de papel de filtro muy fino, lavando el filtro hasta que desaparezca la reacción del cloro en el líquido filtrado, se agregará al filtrado 20 mi. de solución de ácido perclórico. A continuación! se evaporará la solución en baño de arena, evitando la ebullición hasta consistencia de jarabe: se agregarán algunas gotas de agua caliente y otros 20 mi. De solución de ácido perclórico. se continuará evaporando hasta obtener residuo- húmedo, al que después de enfriado se agregarán 20 mi. de alcohol de 97° con ácido perclórico; ayudándose con espátula de vidrio se obtendrá la disolución de los cristales de percloruros solubles que se hubieren formado. Se dejará en reposo y se decantará el liquido claro filtrándolo a través de filtro Gooch o de crisol filtrante con fondo de vidrio poroso previamente serado a 130° C. y pesado. El precipitado se lavará dos veces más en la misma forma decantando cada vez y finalmente se pasará el precipitado al Gooch con ácido perclórico. Kl Gooch o crisol se secará en estufa a 130° C., se dejará enfriar y se pesará. El peso del precipitado se multiplicará por el factor 0.3399 para obtener el contenido en K2O.
+G- Determinación de! óxido de calcio (CaO):
+a) Determinación del calcio soluble en ácido:
+Se usarán los métodos descritos en los párrafos 2.53 y 2.54 del A.O.A.C.
+b) Determinación de la cal activa en la cal viva y en la cal apagada:
+Se coloca en matraz aforado de 200 mi. de capacidad 1 g. de la muestra, 100 mi. de cloruro de amonio al 7.5 % y agua hasta la marca. Se cerrará el matraz con tapón de hule y se agitará fuertemente el contenido cada 5 minutos durante una hora. Se filtrará a través del filtro rápido seco. 100 mi. del filtrado se-titularán con solución 0.5 de HCL en presencia de 5 gotas de anaranjado de metilo.
+El porcentaje de CaO se obtendrá multiplicando la cantidad de mililitros de la solución 0.5 n de HCL gastados por 2.8.
+c) Determinación del Ca CO3:
+Se seguirá el método descrito en los párrafos 1.5-1.6 y 1.7 del A.O.A.C.
+d) Determinación del CaO total:
+Se seguirá el método descrito en el párrafo 1.8 del A.O.A.C.
+H.—Determinación del MgO:
+a) Determinación del magnesio soluble en ácido:
+Se usarán los métodos descritos en los párrafos 2.55 y 2.56 del A.O.A.C-
+b) Determinación del magnesio soluble en agua:
+Se usará el método descrito en el párrafo 2.57 del A.O.A.C.
+I.—Determinación del boro:
+Determinación del boro soluble:
+Se usarán los métodos descritos en los párrafos: 2.45-2.46-2.47-2.48-2.49 y 2.50 del A.O.A.C.
+J—Determinación del cloro:
+Determinación del cloro soluble en agua:
+Se usará el método descrito en los párrafos 2.51 y 2.52 del A.O.A.C.
+K.—Determinación del manganeso :
+Determinación del manganeso soluble en ácido:
+Se usará el método colorimétrico o bien el método del bismutato, descritos en los párrafos 2.58-2.59 y 2.60 del A.O.A.C.
+L.—Determinación del cobre:
+Se usará el método descrito en los párrafos 2.61 y 2.62 del A.O.A.C., como método preferencial, pudiendo seguirse también el método volumétrico abreviado, descrito en el párrafo 2.63 del A.O.A.C.
+M.—Determinación del sinc:
+Para. muestras que contengan más de 0.1 % de Zn se usará el método gravimétrico descrito en el párrafo 2.64 del A.O.A.C. Para muestras que contengan menos del 4 % de Zn se usará el método colorimétrico descrito en el párrafo 2.65 del A.O.A.C.
+N.—Determinación del azufre libre:
+Se usará el método descrito en el párrafo 2.66 del A.O.A.C.
+O.—:
+En el análisis de los elementos fertilizantes menores, cuyos métodos no aparecen en la presente norma, la determinación se hará por alguno de los métodos conocidos, señalándose el porcentaje del elemento en la porción soluble, en agua.
+P__;
+Los métodos de análisis señalados en esta Norma son los oficiales. El análisis de los abonos podrá efectuarse por cualquier método que conduzca a obtener resultados comparables; no obstante, en caso de divergencia se tendrán como definitivos los resultados obtenidos por los métodos oficiales.

@@ -1,0 +1,1 @@
+Articulo 8°—La Norma Oficial para Abonos Minerales o Químicos a que se refiere el articulo 1° de este Decreto es de cumplimiento obligatorio de acuerdo con lo que dispone el articulo 5° de la ley No 1698 de 26 de noviembre de 1953 y por consiguiente las infracciones a ella que se cometan serán sancionadas con las puniciones establecidas por las leyes penales.
