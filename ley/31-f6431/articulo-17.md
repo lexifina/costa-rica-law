@@ -1,0 +1,1 @@
+17°.- Si de este acto resultase mayoría absoluta en favor de algún individuo, la elección se tendrá por hecha en él; pero si esto no tuviese lugar, el Congreso elegirá inmediatamente entre todos los designados, sin consideración a los más o menos votos que hayan tenido.

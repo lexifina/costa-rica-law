@@ -1,0 +1,1 @@
+13°.-Las elecciones se verificaran con arreglo al cenzo de Población, de manera que por cada cinco mil almas, se elijan un Diputado, un Elector de partido por cada quinientas, y uno de Parroquia por cada quinientas; pero todos los Pueblos por pequeños que sean no podrán dejar de tener un elector Parroquial. Las mismas elecciones las arreglará la tabla adjunta.

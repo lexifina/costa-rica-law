@@ -1,0 +1,1 @@
+5°.- Las Juntas de Partido se compondrán de los Electores nombrados por los de Parroquia y ellas deberán: 1°.- elegir el Diputado o Diputados que les correspondan en el Congreso: 2° sufragar por el Gefe y segundo Gefe del Estado, por quatro Consejeros, y dos suplentes, y por un Presidente, un Fiscal y tres Magistrados para la Corte Superior de Justicia y dos suplentes.
