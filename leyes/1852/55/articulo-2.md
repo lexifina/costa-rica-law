@@ -1,0 +1,1 @@
+Art. 2. Los Jefes de Policia y sus subalternos cuidaran del exacto cumplimiento de este decreto y ademas de todas las disposiciones relativas à diversiones públicas y juegos prohibidos y á la concurrencia de hijos de familia y domésticos.
