@@ -1,3 +1,2 @@
-Articulo 37.—Este Reglamento entra en vigencia desde su promulgación en el Diario Oficial.
-Dado en la Casa Presidencial.—San José, a los dieciséis días del mes de julio de mil novecientos cincuenta y cinco.
-Gaceta N° 163 de 23 de julio.
+Artículo 37.—El sistema de Ahorro y Préstamo estará regulado por lo que se dispone en los siguientes artículos de este Reglamento.
+(La reforma practicada a este artículo por el numeral 4° del decreto ejecutivo N° 1 del 5 de marzo de 1959, posteriormente fue derogada por el artículo 35 del Reglamento para el sistema de ahorro y préstamo del Instituto Nacional de Vivienda y Urbanismo, aprobado mediante sesión ordinaria N° 6495 del 6 de mayo del 2021. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma).

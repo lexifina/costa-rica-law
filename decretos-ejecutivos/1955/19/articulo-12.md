@@ -1,1 +1,2 @@
-Articulo 12.—El valor del inmueble dado en garantía-deberá ser igual o superior al de la suma suscrita, según avalúo hecho por el Instituto.
+Articulo 12.—La inversión podrá nacerse, según las necesidades del suscritor, ya en un inmueble de localización urbana, va en uno de carácter rural. Caso de tratarse de vivienda urbana, la inversión se hará de conformidad con las regulaciones municipales y de salubridad aplicables.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 4° del Decreto Ejecutivo N° 1 de 05 de marzo de 1959, publicado en La Gaceta N° 70 de 31 de marzo de 1959.)
