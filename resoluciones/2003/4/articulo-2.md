@@ -1,0 +1,1 @@
+Artículo 2°—Las empresas que desarrollen tales diseños, sean estos mediante plataformas basadas en Internet o mediante cualquier otro sistema, deberán ser autorizadas por la Administración Tributaria mediante resolución individualizada, conforme los términos de la presente resolución.
