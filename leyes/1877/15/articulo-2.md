@@ -1,0 +1,1 @@
+Art 2°.- Quedan, desde luego, facultadas las Municipalidades para enajenar y reducir á dominio particular la legua que á cada una se le concede, una vez que, después de denunciada y medida, obtenga el título de propiedad correspondiente.

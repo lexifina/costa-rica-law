@@ -1,0 +1,1 @@
+Art 4.- Por lo demás se observarán en las ventas las disposiciones contenidas en el art 114 de las Ordenanzas Municipales con la advertencia de que las Municipalidades, si lo creyesen conveniente, fijarán á los terrenos que deban venderse la base que deba servir á los peritos de precio mínimo.
