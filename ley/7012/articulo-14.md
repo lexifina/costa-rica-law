@@ -1,0 +1,1 @@
+Artículo 14.- Sólo podrán participar, como comerciantes, en el depósito libre comercial, personas físicas o jurídicas costarricenses. Cuando se trate de personas jurídicas será requisito que su capital esté representado por acciones nominativas.

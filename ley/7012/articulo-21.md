@@ -1,0 +1,2 @@
+Artículo 21.- Se autoriza a la Municipalidad de Golfito para que establezca una patente especial, para el Depósito libre comercial de Golfito. Las tarifas correspondientes quedan sujetas a la aprobación de la Contraloría General de la República.
+Hasta tanto las tarifas acordadas por la Municipalidad de Golfito no hayan recibido el refrendo de la Contraloría General de la República, los comerciantes podrán vender en el Depósito libre comercial de Golfito, al amparo de las patentes comerciales vigentes.
