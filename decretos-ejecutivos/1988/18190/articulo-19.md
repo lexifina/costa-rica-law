@@ -1,4 +1,5 @@
 Artículo 19.—La clasificación de los puestos de enfermería en relación con los niveles de cargos en que deben desempeñarse será la siguiente:
+Auxiliar de Enfermería | Ejecutor de los deberes auxiliares en enfermería (Así adicionado por el artículo 1° del decreto ejecutivo N° 20200 del 17 de enero de 1991) NOTA: El decreto 20200 que adicióno este aparte, fue derogado por el Decreto Ejecutivo N°.25592 de 29 de octubre de 1992.
 Enfermera (o) 1 | Enfermeras(os) Generales: Jefe de Enfermería de Clínica de Consulta Externa tipo 1 ó 2.
 Enfermera (o) 2 | Jefe de Enfermería de Clínica de Consulta Externa tipo 3. Jefe de Unidad de Enfermería o de Servicio (en proyecto para el establecimiento de módulos de enfermería en hospitalización, que constarán de varias enfermeras, jefe y subalternos).
 Enfermera (o) 3 | Enfermeras(os) especialistas: Materno Infantil, Salud Mental y Psiquiatría, otras reconocidas por el Colegio. Especialistas con grado universitario. Enfermeras docentes del Programa de Formación de Auxiliares de Enfermería.
