@@ -1,1 +1,0 @@
-Artículo 4º.- La Corporación proveerá a las Dirección General de Aduanas, las facilidades y asistencia requeridas por ésta, para el cumplimiento de sus responsabilidades, en lo relativo a la fiscalización e inspección de los materiales y mercaderías que entren y salgan de las zonas procesadoras de exportación.

@@ -1,1 +1,0 @@
-Artículo 31.- En caso de denegatoria de la solicitud, se podrá interponer recurso de reconsideración dentro de los tres días siguientes, que deberá resolverse dentro de los quince días siguientes. La denegatoria del recurso dará por agotada la vía administrativa.
