@@ -1,9 +1,1 @@
-Artículo 44.- La Junta Directiva establecerá un régimen especial de
-garantías y jubilaciones, que cubra a los funcionarios y empleados del
-Instituto, para cuyo mantenimiento destinará los fondos necesarios, que
-se incluirán en el presupuesto ordinario de gastos de la Institución. El
-monto de esos fondos no podrá exceder, en ningún caos, del diez por
-ciento del total de los sueldos pagados en el respectivo período. Dicho
-régimen no resta vigencia a las disposiciones de seguridad social
-contenidas en la Ley de la Caja Costarricense de Seguro Social, en los
-casos pertinentes.
+Artículo 44.- La Junta Directiva establecerá un régimen especial de garantías y jubilaciones, que cubra a los funcionarios y empleados del Instituto, para cuyo mantenimiento destinará los fondos necesarios, que se incluirán en el presupuesto ordinario de gastos de la Institución. El monto de esos fondos no podrá exceder, en ningún caso, del diez por ciento del total de los sueldos pagados en el respectivo período. Dicho régimen no resta vigencia a las disposiciones de seguridad social contenidas en la Ley de la Caja Costarricense de Seguro Social, en los casos pertinentes.

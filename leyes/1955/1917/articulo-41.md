@@ -1,6 +1,1 @@
-Artículo 41.- Se considerará como agravante en la comisión de
-cualquiera de las faltas previstas en el Código de Policía la
-circunstancia de aprovecharse el delincuente de la condición de turista
-del agraviado, y en todo caso se le aplicará la pena máxima prevista.
-Rige el mismo principio para los delitos, sin que por ello quede el Juez
-obligado a imponer la pena máxima.
+Artículo 41.- Se considerará como agravante en la comisión de cualquiera de las faltas previstas en el Código de Policía la circunstancia de aprovecharse el delincuente de la condición de turista del agraviado, y en todo caso se le aplicará la pena máxima prevista. Rige el mismo principio para los delitos, sin que por ello quede el Juez obligado a imponer la pena máxima.

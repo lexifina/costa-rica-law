@@ -1,5 +1,1 @@
-Artículo 47.- Se deroga la ley Nº 91 de 16 de julio de 1931,
-constitutiva de la Junta Nacional de Turismo, con sus reformas,
-incluyendo los Decretos Leyes Nos. 347 y 368, del 14 de enero y 2 de
-febrero de 1949, respectivamente. Asimismo se derogan o modifican todas
-las disposiciones legales que se opongan a la presente ley.
+Artículo 47.- Se deroga la ley Nº 91 de 16 de julio de 1931, constitutiva de la Junta Nacional de Turismo, con sus reformas, incluyendo los Decretos Leyes Nos. 347 y 368, del 14 de enero y 2 de febrero de 1949, respectivamente. Asimismo se derogan o modifican todas las disposiciones legales que se opongan a la presente ley.

@@ -1,13 +1,2 @@
-Artículo 20.- Los miembros de la Junta desempeñarán su cometido con
-absoluta independencia del Poder Ejecutivo y serán los únicos
-responsables por su gestión. Sin perjuicio de otras sanciones que les
-fueren aplicables, responderán personalmente con sus bienes, de las
-pérdidas que irroguen al Instituto por la autorización de operaciones
-prohibidas por la ley o realizadas sin los trámites requeridos. Quedarán
-exentos de esta responsabilidad únicamente quienes hicieren constar su
-voto disidente. Los miembros de la Junta Directiva deberán rendir caución
-por veinte mil colones (¢ 20,000.00), antes de entrar en el ejercicio del
-cargo. Esta caución puede ser hipotecaria, fiduciaria, mediante póliza de
-fidelidad del Instituto Nacional de Seguros o depósito en efectivo. Para
-la calificación de la garantía y otorgamiento de la escritura, en su
-caso, se seguirán las prescripciones del Código Fiscal.
+Artículo 20.- Los miembros de la Junta desempeñarán su cometido con absoluta independencia del Poder Ejecutivo y serán los únicos responsables por su gestión. Sin perjuicio de otras sanciones que les fueren aplicables, responderán personalmente con sus bienes, de las pérdidas que irroguen al Instituto por la autorización de operaciones prohibidas por la ley o realizadas sin los trámites requeridos. Quedarán exentos de esta responsabilidad únicamente quienes hicieren constar su voto disidente.
+Los miembros de la Junta Directiva deberán rendir caución por veinte mil colones (¢ 20,000.00), antes de entrar en el ejercicio del cargo. Esta caución puede ser hipotecaria, fiduciaria, mediante póliza de fidelidad del Instituto Nacional de Seguros o depósito en efectivo. Para la calificación de la garantía y otorgamiento de la escritura, en su caso, se seguirán las prescripciones del Código Fiscal.

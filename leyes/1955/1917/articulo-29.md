@@ -1,5 +1,2 @@
-Artículo 29.- En caso de ausencia o impedimento temporal del
-Presidente, será reemplazado por el Vicepresidente, quien en tal caso
-tendrá todas sus atribuciones, facultades y deberes. Cuando en alguna
-sesión estuvieren ambos ausentes, la Junta nombrará a uno de sus
-miembros como Presidente pro-témpore.
+Artículo 29.- En caso de ausencia o impedimento temporal del Presidente, será reemplazado por el Vicepresidente, quien en tal caso tendrá todas sus atribuciones, facultades y deberes. Cuando en alguna sesión estuvieren ambos ausentes, la Junta nombrará a uno de sus miembros como Presidente pro-témpore.
+(Nota de Sinalevi: En relación a la ausencia o impedimento temporal del Presidente, el numeral 6° párrafo 2) de la ley Nº 5507 de 19 de abril de 1974, estableció lo siguiente: “…En las instituciones indicadas, las ausencias temporales del Presidente Ejecutivo, serán suplidas por un Vicepresidente, que tendrá las mismas facultades; de designación de la Junta Directiva de la respectiva institución.”)

@@ -1,8 +1,1 @@
-Artículo 43.- Los turistas extranjeros víctimas de cualquiera de las
-faltas previstas en esta ley o en el Código de Policía, no están
-obligados a formular denuncia ante la autoridad competente. Bastará
-comunicar el hecho al Instituto, el cual levantará una investigación
-sumaria, y formulará la correspondiente denuncia. En ningún caso de los
-citados será obligatoria la comparecencia del turista ante la autoridad
-judicial, ya que se considerará representado por el Instituto para todos
-los efectos de ley.
+Artículo 43.- Los turistas extranjeros víctimas de cualquiera de las faltas previstas en esta ley o en el Código de Policía, no están obligados a formular denuncia ante la autoridad competente. Bastará comunicar el hecho al Instituto, el cual levantará una investigación sumaria, y formulará la correspondiente denuncia. En ningún caso de los citados será obligatoria la comparecencia del turista ante la autoridad judicial, ya que se considerará representado por el Instituto para todos los efectos de ley.

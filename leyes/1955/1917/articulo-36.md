@@ -1,7 +1,1 @@
-Artículo 36.- Las informaciones obtenidas por el Auditor y por sus
-subalternos, en el ejercicio de sus funciones, serán estrictamente
-confidenciales, no podrán revelar o comentar las datos obtenidos ni los
-hechos observados, salvo en el cumplimiento de sus deberes legales y
-reglamentarios. La contravención a las prohibiciones establecidas en este
-artículo podrá dar lugar a la destitución del infractor, sin
-responsabilidad alguna para el Instituto.
+Artículo 36.- Las informaciones obtenidas por el Auditor y por sus subalternos, en el ejercicio de sus funciones, serán estrictamente confidenciales, no podrán revelar o comentar las datos obtenidos ni los hechos observados, salvo en el cumplimiento de sus deberes legales y reglamentarios. La contravención a las prohibiciones establecidas en este artículo podrá dar lugar a la destitución del infractor, sin responsabilidad alguna para el Instituto.

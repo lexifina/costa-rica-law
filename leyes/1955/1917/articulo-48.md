@@ -1,4 +1,1 @@
-Artículo 48.- Para los efectos legales correspondientes, en toda
-clase de leyes, contratos, actos u operaciones, deberán tenerse por
-sustituidos los nombres "Junta Nacional de Turismo" por "Instituto
-Costarricense de Turismo".
+Artículo 48.- Para los efectos legales correspondientes, en toda clase de leyes, contratos, actos u operaciones, deberán tenerse por sustituidos los nombres "Junta Nacional de Turismo" por "Instituto Costarricense de Turismo".

@@ -1,4 +1,1 @@
-Artículo 3º.- El domicilio legal del Instituto será la ciudad de
-San José pero podrá establecer oficinas o agencias en cualquier lugar de
-la República, así como en el extranjero, por acuerdo de la Junta
-Directiva.
+Artículo 3º.- El domicilio legal del Instituto será la ciudad de San José pero podrá establecer oficinas o agencias en cualquier lugar de la República, así como en el extranjero, por acuerdo de la Junta Directiva.

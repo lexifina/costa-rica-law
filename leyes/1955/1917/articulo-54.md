@@ -1,5 +1,1 @@
-Artículo 54.- El Instituto Costarricense de Turismo establecerá el
-procedimiento a seguir para la forma de pago de los lotes, así como las
-restricciones para el traspaso de los mismos, y demás cuestiones que
-tengan relación los objetivos de carácter social y de fomento de turismo
-que persigue esta ley.
+Artículo 54.- (Derogado por el artículo 1º de la ley Nº 4071 de 22 de enero de1968, “Declara Zona Urbana de Ciudad de Puntarenas y Reforma Otras Leyes”)

@@ -1,4 +1,1 @@
-Artículo 9º.- El ejercicio financiero del Instituto será el año
-natural, pero al cierre de cada semestre se hará una liquidación completa
-de sus ganancias y pérdidas. Las pérdidas netas que durante un período
-semestral pudiera tener la Institución, deberán cargarse a sus reservas.
+Artículo 9º.- El ejercicio financiero del Instituto será el año natural, pero al cierre de cada semestre se hará una liquidación completa de sus ganancias y pérdidas. Las pérdidas netas que durante un período semestral pudiera tener la Institución, deberán cargarse a sus reservas.

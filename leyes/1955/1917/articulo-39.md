@@ -1,17 +1,4 @@
-Artículo 39.- Los restaurantes, bares, cantinas, cafés, clubes
-nocturnos y demás establecimientos análogos de primera o de segunda
-categoría, así como las empresas de transportes, agencias de viajes y
-otras similares, someterán a la aprobación del Ministerio de
-Gobernación-y pondrán en conocimiento del Instituto- las tarifas
-detalladas de los precios que cobran por sus servicios. Estas tarifas
-regirán por el tiempo que expresen y sólo podrán ser variadas, previa
-aprobación del Ministerio de Gobernación, después de hecha notificación
-escrita al Instituto con treinta días de anticipación.
-Al mismo trámite quedarán sujetos los hoteles y cualesquiera otros
-lugares de alojamiento para turistas respecto a las tarifas que cobren
-por alquileres de habitación. Dichas tarifas regirán durante dos
-períodos anuales que se fijarán por los propios interesados; para
-variarlas se seguirá el mismo procedimiento indicado en el párrafo
-primero de este artículo. Los establecimientos anteriormente citados que
-cumplieren con estas disposiciones, serán incluidos en las Guías que
-publique el Instituto Costarricense de Turismo para uso de los turistas.
+Artículo 39.- Los restaurantes, bares, cantinas, cafés, clubes nocturnos y demás establecimientos análogos de primera o de segunda categoría, así como las empresas de transportes, agencias de viajes y otras similares, someterán a la aprobación del Ministerio de Gobernación- y pondrán en conocimiento del Instituto- las tarifas detalladas de los precios que cobran por sus servicios. Estas tarifas regirán por el tiempo que expresen y sólo podrán ser variadas, previa aprobación del Ministerio de Gobernación, después de hecha notificación escrita al Instituto con treinta días de anticipación.
+Al mismo trámite quedarán sujetos los hoteles y cualesquiera otros lugares de alojamiento para turistas respecto a las tarifas que cobren por alquileres de habitación. Dichas tarifas regirán durante dos períodos anuales que se fijarán por los propios interesados; para variarlas se seguirá el mismo procedimiento indicado en el párrafo primero de este artículo.
+Los establecimientos anteriormente citados que cumplieren con estas disposiciones, serán incluidos en las Guías que publique el Instituto Costarricense de Turismo para uso de los turistas.
+(Nota de Sinalevi: De conformidad con el artículo 9° de la ley 2706 del 2 de diciembre de 1960, “Utilidad Pública Industria Turismo y Crea Impuesto Hospedaje para ICT”, se estableció que este numeral quedaba reformado en lo conducente por el artículo 9° de la norma antes referida. Dicho numeral dispone lo siguiente: “…Artículo 9º.-Para los efectos de control y fiscalización del impuesto establecido en el artículo 7º de esta ley, el Instituto Costarricense de Turismo tendrá, sobre los hoteles, pensiones y demás establecimientos dedicados al servicio del turismo, amplias facultades en cuanto a la clasificación de los mismos de acuerdo con las condiciones de comodidad, precios que rigen y servicios que presten. Sus inspectores tendrán derecho a fiscalizar en cualquier momento el cobro del impuesto, la aplicación de la tarifa de precios, y de inspeccionar las instalaciones. Para efectos de clasificación, y lo relacionado con las patentes, las Municipalidades se atendrán a la clasificación que haga el Instituto Costarricense de Turismo conforme a este artículo. Asimismo, el Instituto Costarricense de Turismo aprobará la lista de precios para todas estas entidades. Contra lo que resuelva el Instituto Costarricense de Turismo en discrepancia con la entidad, cabrá el recurso de apelación para ante el Departamento de Comercio del Ministerio de Economía y Hacienda, dentro del término de 10 días de recibida la comunicación contentiva de lo resuelto por el Instituto Costarricense de Turismo.”)

@@ -20,7 +20,7 @@ articulo-19.md
 articulo-20.md
 articulo-21.md
 articulo-22.md
-articulo-22~2.md
+articulo-23.md
 articulo-24.md
 articulo-25.md
 articulo-26.md
@@ -47,8 +47,8 @@ articulo-46.md
 articulo-47.md
 articulo-48.md
 articulo-49.md
+articulo-50.md
 articulo-51.md
-articulo-51~2.md
 articulo-52.md
 articulo-53.md
 articulo-54.md

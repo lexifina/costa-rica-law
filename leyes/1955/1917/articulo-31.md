@@ -1,9 +1,2 @@
-Artículo 31.- El Gerente queda sujeto a las mismas disposiciones que
-para los miembros de la Junta establecen los artículos 14 a 24 de la
-presente ley, en cuanto fueren racionalmente aplicables, dada la
-naturaleza de su cargo y el origen de su nombramiento. Dicho funcionario
-será nombrado por un período de cinco años y podrá ser reelecto. Será
-inamovible, salvo el caso de que, a juicio de la Junta y previa
-información, se hubiere comprobado que no cumple debidamente su cometido.
-Su remoción deberá acordarse con el mismo número de votos requerido para
-su nombramiento.
+Artículo 31.- El Gerente queda sujeto a las mismas disposiciones que para los miembros de la Junta establecen los artículos 14 a 24 de la presente ley, en cuanto fueren racionalmente aplicables, dada la naturaleza de su cargo y el origen de su nombramiento. Dicho funcionario será nombrado por un período de cinco años y podrá ser reelecto. Será inamovible, salvo el caso de que, a juicio de la Junta y previa información, se hubiere comprobado que no cumple debidamente su cometido. Su remoción deberá acordarse con el mismo número de votos requerido para su nombramiento.
+(Nota de Sinalevi: Sobre este tema véase artículo de la ley Nº 4646 del 20 de octubre de 1970, “Modifica Integración de Juntas Directivas de Instituciones Autónomas”)

@@ -1,4 +1,1 @@
-Artículo 68.- La Junta Directiva del Instituto Costarricense de
-Turismo queda obligada a preparar los reglamentos internos a que esta ley
-se refiere, así como el escalafón de empleados, en el curso de su primer
-año de operaciones.
+Artículo 68.- La Junta Directiva del Instituto Costarricense de Turismo queda obligada a preparar los reglamentos internos a que esta ley se refiere, así como el escalafón de empleados, en el curso de su primer año de operaciones.

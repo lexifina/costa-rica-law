@@ -1,5 +1,1 @@
-Artículo 60.- El Instituto Costarricense de Turismo podrá vender en
-forma directa los lotes situados en la zona deslindada, dentro de lo
-estatuido en la presente ley, a un precio nunca menor de dos colones el
-metro cuadrado, y con un frente nunca mayor de 25 metros, en el caso de
-residencias privadas.
+Artículo 60.- (Derogado por el artículo 1º de la ley Nº 4071 de 22 de enero de1968, “Declara Zona Urbana de Ciudad de Puntarenas y Reforma Otras Leyes”)
