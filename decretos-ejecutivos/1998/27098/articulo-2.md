@@ -3,7 +3,8 @@ Cartel de la licitación: Conjunto de normas y especificaciones administrativas,
 Oferta: El conjunto de documentos que forman las ofertas técnica y económica presentadas por el oferente, que comprende la documentación complementaria.
 Oferta en consorcio: El conjunto de documentos que forman las ofertas técnica y económica del oferente, quien las presenta en asocio con otras personas físicas o jurídicas.
 Oferente: Persona física o jurídica, o un grupo de ellas, que se presentan a una licitación según lo establecido en el presente Reglamento y en el cartel de la licitación. .
-Iniciativa Privada: Conjunto de documentos que, en virtud de lo dispuesto en el artículo 20 de la Ley de Concesión de Obras Públicas con Servicios Públicos, No 7762 del 14 de abril de mil novecientos noventa) ocho, presenta un particular de acuerdo con la señalado en este Reglamento.
+Iniciativa Privada: Conjunto de documentos que, en virtud de lo dispuesto en el artículo 20 de la Ley de Concesión de Obras Públicas con Servicios Públicos, Nº 7762 del 14 de abril de mil novecientos noventa y ocho, presenta un particular de acuerdo con lo señalado en el “Reglamento de los Proyectos de Iniciativa Privada de Concesión de Obra Pública o de Concesión de Obra Pública con Servicio Público” y sus reformas.
+(Así reformado por el artículo 37 del Decreto Ejecutivo N°31836 de 10 de junio de 2004).
 Adjudicatario: Oferente al que se le adjudicó la concesión.
 Contrato de concesión: Documento de formalización de la adjudicación donde se estipulan las obligaciones y derechos de las partes, así como demás reglas establecidas en el cartel y las condiciones de la oferta que regirán las etapas de construcción y de explotación de la concesión.
 Estructura tarifaria: Conjunto de tarifas a ser cobradas por el concesionario a los usuarios de los servicios básicos incluidos en el contrato de concesión.

@@ -18,3 +18,4 @@ Reglamento General Concesión de Obras Públicas con Servicios Públicos.
 | 3 | 2000-05-26 | Decreto Ejecutivo 28700 (2000-05-26) |
 | 4 | 2003-05-02 | Decreto Ejecutivo 31155 (2003-05-02) |
 | 5 | 2003-09-09 | Decreto Ejecutivo 31429 (2003-09-09) |
+| 6 | 2004-06-10 | Decreto Ejecutivo 31836 (2004-06-10) |
