@@ -14,3 +14,4 @@ Modifica Derechos Arancelarios a la Importación de Calamares(Contemplados en el
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-17 | la propia norma |
+| 2 | 1999-11-17 | SINALEVI (sin norma nombrada) |
