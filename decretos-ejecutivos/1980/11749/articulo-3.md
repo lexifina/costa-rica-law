@@ -1,0 +1,1 @@
+Artículo 3°-En el caso de las fichas catalográficas de obras editadas por las imprentas o editoriales del Poder Ejecutivo (Editorial Costa Rica, Imprenta Nacional, Dirección de Publicaciones del Ministerio de Cultura, Juventud y Deportes) las fichas serán elaboradas por la Dirección General de Bibliotecas, Departamento de Procesos Técnicos.

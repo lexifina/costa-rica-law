@@ -1,0 +1,1 @@
+Artículo 4°-La Dirección General de Bibliotecas del Ministerio de Cultura, Juventud y Deportes, se encargará en el caso de las editoriales del Estado de crear el mecanismo apropiado, para tal consignación en los materiales. (Editorial Costa Rica, Imprenta Nacional, Dirección de Publicaciones del Ministerio de Cultura, Juventud y Deportes) .
