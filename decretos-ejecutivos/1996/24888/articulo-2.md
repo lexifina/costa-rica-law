@@ -1,0 +1,4 @@
+Artículo 2º- Dicho incremento se aplicará sobre el salario de clase
+de todos los servidores públicos, según la determinación específica que
+para cada clase de puesto haga el organismo competente de acuerdo con la
+anterior directriz, según el proceder técnico y jurídico correspondiente.
