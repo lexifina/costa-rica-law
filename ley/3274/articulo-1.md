@@ -1,0 +1,5 @@
+Nº 3274
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
+DECRETA:
+Artículo 1º.- Refórmase el párrafo sétimo del artículo 34 de la Ley de Impuesto sobre la Renta, Nº 837 de 20 de diciembre de 1946, reformada por Ley Nº 3068 de 14 de noviembre de 1962, para que se lea así:
+"Los miembros propietarios del Tribunal no podrán realizar ninguna actividad profesional, salvo en sus propios negocios y en los de sus cónyuges, ascendientes, descendientes, hermanos, suegros, yernos y cuñados, ni desempeñar otros puestos públicos o privados, excepción hecha de los docentes. Tampoco podrán hacer reclamos de los contribuyentes ni asesorarlos en sus alegatos o representaciones en ninguna de las instancias. Iguales prohibiciones rigen para el Secretario y demás empleados administrativos del Tribunal. Se exceptúan de esta prohibición y de las que establecen los artículos 141 de la Ley Orgánica del Poder Judicial y 19 de la Ley Orgánica del Notariado, los miembros suplentes, si fueren abogados o notarios".
