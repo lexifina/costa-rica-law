@@ -1,0 +1,1 @@
+ARTÍCULO 10.-El art. 283, se modificará en estos términos: -"Si el Tribunal juzgare que la quiebra, sea ó no mercantil, corresponde á la primera ó segunda clase, decretará la absoluta libertad del quebrado, bien se halle detenido ó arraigado.-Esta providencia es apelable en un solo efecto."
