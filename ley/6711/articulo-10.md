@@ -1,0 +1,12 @@
+ARTICULO 10
+En la India británica, el principio de la semana de sesenta horas
+será adoptado para todos los trabajadores empleados en las industrias
+actualmente comprendidas en la legislación industrial cuya aplicación
+esté garantizada por el Gobierno de la India, así como en las minas en
+las categorías de trabajos ferroviarios que se enumeren a este efecto
+por la autoridad competente. Esta autoridad no podrá autorizar
+modificaciones al límite antes mencionado sino teniendo en cuenta las
+disposiciones contenidas en los artículos 6 y 7 del presente Convenio.
+Las demás disposiciones del presente Convenio no se aplicarán a la
+India, pero en una reunión próxima de la Conferencia General deberá
+estudiarse un límite más reducido de las horas de trabajo.
