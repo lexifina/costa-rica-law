@@ -1,0 +1,2 @@
+Artículo 3º.- Reformáse el artículo 387 de la Ley General de Salud, Nº 5395 del 30 de octubre de 1973, para que diga así:
+"Artículo 387.- Los que consumieren el producto de las plantas citadas en el artículo 371, o drogas estupefacientes o sustancias sicotrópicas, serán sometidos a los tratamientos de rehabilitación y de educación que determine el Instituto sobre Alcoholismo y Farmacodependencia sin perjuicio de las medidas de seguridad que pueda ordenar la autoridad judicial competente, en su caso".
