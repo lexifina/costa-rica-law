@@ -1,0 +1,1 @@
+Artículo 4°. -Para auxiliar al Gobernador en el ejercicio de las funciones que la presente ley le atribuye, habrá en la enunciada Comarca un Agente principal de Policía con las atribuciones que la ley tiene determinadas.

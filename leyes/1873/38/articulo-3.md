@@ -1,0 +1,1 @@
+Artículo 3°. -A la misma autoridad política, corresponde instruir las sumarias en las causas por delitos que deban terminarse en juicio escrito, con las cuales dar cuenta al Juez de 1° Instancia del Crimen de la Provincia de Cartago, a fin de que ‚este las prosiga y termina con arreglo a las leyes comunes de procedimientos.
