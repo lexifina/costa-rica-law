@@ -1,0 +1,1 @@
+Artículo 2°.-Todas las instituciones del Estado con objetivos o finalidades afines con los eventos de este orden o que de algún modo tengan relación con su ejecución, deberán brindar todas las facilidades y cooperación necesarias para la realización de los mismos.
