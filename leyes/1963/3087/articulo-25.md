@@ -1,1 +1,0 @@
-Artículo 25.- El Departamento de Planes Anuales no dará curso a peticiones de nuevas plazas de parte de los Ministerios, sin el correspondiente visto bueno del Departamento de Productividad y Eficiencia Administrativa.

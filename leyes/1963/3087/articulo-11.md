@@ -1,1 +1,0 @@
-Artículo 11.- Una vez confeccionado el estudio a que se refiere el artículo anterior, el Departamento de Planes Anuales preparará las recomendaciones de política económica necesarias para que el Estado, a través de sus diversos órganos, tome medidas aconsejables para que la iniciativa particular sea estimulada a alcanzar sus metas.

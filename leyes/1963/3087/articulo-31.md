@@ -1,1 +1,0 @@
-Artículo 31.- El Comité Técnico de Evaluación de Proyectos de Inversión, someterá las recomendaciones sobre prelación de tales proyectos al Presidente de la República, quien deberá consultar al Consejo de Gobierno antes de presentar a las instituciones relacionadas con el desarrollo de los mismos, la opinión del Poder Ejecutivo.

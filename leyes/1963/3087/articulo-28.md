@@ -1,1 +1,0 @@
-Artículo 28.- El Departamento de Control de Programas deberá rendir trimestralmente al Presidente de la República, un informe por conducto del Director de Planificación sobre el estado de ejecución de los programas, con la finalidad de que aquél tome la acción que corresponda cuando exista incumplimiento o atraso en la atención de lo dispuesto en cada programa anual.

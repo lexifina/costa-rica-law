@@ -1,3 +1,0 @@
-CAPÍTULO VI
-Del Departamento de Financiación
-Artículo 21.- El Departamento de Financiación tendrá como finalidad examinar y sugerir las diferentes posibilidades de financiar en el interior del país, o en el extranjero, todo proyecto del sector público y aquéllos del sector privado que voluntariamente se sometan, para efectos de su financiación en el exterior y que hayan sido aprobados por el Comité Técnico de Evaluación de Proyectos, para los que preparará los estudios correspondientes, a efecto de demostrar la capacidad de pago de cada proyecto dentro del plan y condiciones bajo los cuales se solicite la operación, pudiendo asimismo rectificar los cálculos originales, si las negociaciones preliminares de financiación así lo requieren.
