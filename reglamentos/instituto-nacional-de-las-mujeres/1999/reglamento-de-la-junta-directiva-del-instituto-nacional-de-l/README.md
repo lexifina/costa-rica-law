@@ -14,3 +14,4 @@ Reglamento de la Junta Directiva del Instituto Nacional de las Mujeres
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-30 | la propia norma |
+| 2 | 2000-01-21 | Reglamento 0 (2000-01-21) |

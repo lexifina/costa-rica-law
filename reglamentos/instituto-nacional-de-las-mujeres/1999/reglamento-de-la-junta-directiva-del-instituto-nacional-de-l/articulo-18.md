@@ -1,1 +1,1 @@
-Artículo 18.—Los acuerdos firmes serán ejecutados en forma inmediata.
+Artículo 18.—Las integrantes de la Junta podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos en que fundamentan su disidencia, quedando exentas, en tal caso, de las responsabilidades que pudieran derivarse del mismo.

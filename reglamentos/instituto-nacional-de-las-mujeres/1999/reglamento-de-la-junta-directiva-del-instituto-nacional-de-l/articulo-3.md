@@ -1,1 +1,1 @@
-Artículo 3°—La Junta Directiva elegirá de su seno una persona para que ejerza el cargo de Vicepresidenta, para lo cual se reunirá en votación y se requerirá la mayoría simple de los miembros presentes. En caso de empate, decidirá el /la Presidente/a, con su voto de calidad.
+Artículo 3.— La Junta Directiva elegirá de su seno una persona para que ejerza el cargo de Vicepresidenta, para lo cual se reunirá en votación y se requerirá la mayoría simple de las integrantes presentes. En caso de empate, decidirá el / la Presidente /a, con su voto de calidad.

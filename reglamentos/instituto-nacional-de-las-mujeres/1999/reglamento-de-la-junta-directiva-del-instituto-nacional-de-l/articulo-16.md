@@ -1,1 +1,3 @@
-Artículo 16.—El acta adquirirá firmeza en la sesión inmediata posterior a aquella que se tomen los acuerdos. No obstante y por las dos terceras partes de las integrantes presentes podrá determinarse la firmeza de los acuerdos el mismo día de su emisión. El acta será firmada por la Presidenta y por las personas que hubieran hecho constar su voto negativo.
+CAPITULO IX
+De las actas
+Artículo 16.—De cada sesión se levantará una acta que contendrá la indicación de las personas asistentes y de las ausentes con justificación, las circunstancias de lugar y tiempo en que se han celebrado, los puntos principales debatidos, la forma y el resultado de la votación y el contenido de los acuerdos.

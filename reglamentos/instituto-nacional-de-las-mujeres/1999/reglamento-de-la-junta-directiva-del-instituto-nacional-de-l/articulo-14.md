@@ -1,3 +1,1 @@
-CAPITULO VIII
-De los Recursos
-Artículo 14.—Contra los acuerdos tomados por la Junta Directiva cabrán los recursos previstos en la Ley General de Administración Pública y leyes conexas.
+Artículo 14.—Las sesiones de la Junta serán siempre privadas, pudiendo acordarse por mayoría, que se invite a terceras personas quienes tendrán derecho a voz pero sin voto sobre lo que se delibere.
