@@ -1,27 +1,7 @@
-ARTICULO 47.- Reglas de competencia
-Para determinar la competencia territorial de los tribunales, se
-observarán las siguientes reglas:
-a) El tribunal tendrá competencia sobre los hechos punibles cometidos
-dentro de la circunscripción judicial donde ejerza sus funciones. Si
-existen varios jueces en una misma circunscripción, dividirán sus tareas
-de modo equitativo, conforme a la distribución establecida al efecto. En
-caso de duda, conocerá del procedimiento quien haya prevenido. Se
-considerará que ha prevenido quien haya dictado la primera providencia o
-resolución del procedimiento.
-b) Cuando el delito cometido en territorio extranjero haya producido
-sus efectos en la República, conocerán los tribunales de la
-circunscripción judicial de la capital, aunque el imputado haya sido
-aprehendido en cualquier otra circunscripción judicial del país.
-c) Cuando el hecho punible haya sido cometido en el límite de dos
-circunscripciones judiciales o en varias de ellas, será competente el
-tribunal que haya prevenido en el conocimiento de la causa.
-d) Cuando el lugar de comisión del hecho punible sea desconocido,
-será competente el tribunal de la circunscripción judicial donde resida el
-imputado. Si, posteriormente, se descubre el lugar de comisión del delito,
-continuará la causa el tribunal de este último lugar, salvo que con esto
-se produzca un retardo procesal innecesario o se perjudique la defensa.
-e) En los delitos cometidos a bordo de naves o aeronaves, cuando
-naveguen en aguas jurisdiccionales o el espacio aéreo nacional, será
-competente el juez del lugar donde arribe la nave o aeronave. Cuando la
-nave o aeronave no arribe al territorio nacional, conocerá del asunto un
-tribunal de la capital de la República.
+ARTICULO 47.-
+Reglas de competencia Para determinar la competencia territorial de los tribunales, se observarán las siguientes reglas:
+a) El tribunal tendrá competencia sobre los hechos punibles cometidos dentro de la circunscripción judicial donde ejerza sus funciones. Si existen varios jueces en una misma circunscripción, dividirán sus tareas de modo equitativo, conforme a la distribución establecida al efecto. En caso de duda, conocerá del procedimiento quien haya prevenido. Se considerará que ha prevenido quien haya dictado la primera providencia o resolución del procedimiento.
+b) Cuando el delito cometido en territorio extranjero haya producido sus efectos en la República, conocerán los tribunales de la circunscripción judicial de la capital, aunque el imputado haya sido aprehendido en cualquier otra circunscripción judicial del país.
+c) Cuando el hecho punible haya sido cometido en el límite de dos circunscripciones judiciales o en varias de ellas, será competente el tribunal que haya prevenido en el conocimiento de la causa.
+d) Cuando el lugar de comisión del hecho punible sea desconocido, será competente el tribunal de la circunscripción judicial donde resida el imputado. Si, posteriormente, se descubre el lugar de comisión del delito, continuará la causa el tribunal de este último lugar, salvo que con esto se produzca un retardo procesal innecesario o se perjudique la defensa.
+e) En los delitos cometidos a bordo de naves o aeronaves, cuando naveguen en aguas jurisdiccionales o el espacio aéreo nacional, será competente el juez del lugar donde arribe la nave o aeronave. Cuando la nave o aeronave no arribe al territorio nacional, conocerá del asunto un tribunal de la capital de la República.

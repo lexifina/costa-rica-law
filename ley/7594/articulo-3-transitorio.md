@@ -1,0 +1,2 @@
+TRANSITORIO III.-
+Facultades transitorias de la Corte Suprema de Justicia Además de las facultades ya previstas en la ley, durante los primeros dos años de vigencia de este Código, la Corte Suprema de Justicia podrá trasladar funcionarios de una circunscripción a otra o de una oficina a otra, abrir o cerrar oficinas, asignar recargos, reorganizar despachos y redistribuir la competencia territorial de los tribunales, siempre que ello resulte indispensable para la mejor aplicación de este Código.

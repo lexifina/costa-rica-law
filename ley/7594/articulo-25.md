@@ -25,3 +25,9 @@ ejercicio de la acción civil ante los tribunales respectivos.
 Si la solicitud del imputado no se admite o el procedimiento se
 reanuda con posterioridad, la admisión de los hechos por parte del
 imputado no podrá considerarse como una confesión.
+En los asuntos por delitos sancionados exclusivamente con penas no
+privativas de libertad, también procederá la suspensión del procedimiento
+a prueba, siempre que concurran los demás requisitos exigidos por esta
+ley.
+(Así adicionado este párrafo por el artículo 15 de la Ley de
+Reorganización Judicial No.7728 de 15 de diciembre de 1997)

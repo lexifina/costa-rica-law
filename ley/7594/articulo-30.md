@@ -24,6 +24,12 @@ j) Por la reparación integral del daño particular o social causado,
 realizada antes del juicio oral, en delitos de contenido patrimonial sin
 grave violencia sobre las personas o en delitos culposos, siempre que la
 víctima o el Ministerio Público lo admitan, según el caso.
+Esta causal solamente se puede aplicar a una persona por una sola
+vez. Para ello el Registro Judicial llevará un registro de los
+beneficiados con esta norma. Una vez que pasen diez años sin cometer un
+hecho delictivo, se cancela el asiento correspondiente.
+(Así adicionado este párrafo por el artículo 15 de la Ley de
+Reorganización Judicial No.7728 de 15 de diciembre de 1997)
 k) Por la conciliación.
 l) Por el incumplimiento de los plazos máximos de la investigación
 preparatoria, en los términos fijados por este Código.

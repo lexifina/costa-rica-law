@@ -1,11 +1,3 @@
-ARTICULO 368.- Condena civil
-Cuando la acción civil ha sido ejercida, la sentencia condenatoria
-fijará además la reparación de los daños y perjuicios causados y la forma
-en que deberán ser atendidas las respectivas obligaciones.
-Cuando los elementos probatorios no permitan establecer con certeza
-los montos de algunas de las partidas reclamadas por el actor civil y no
-se esté en los casos en que pueda valorarse prudencialmente, el tribunal
-podrá acogerlos en abstracto para que se liquiden en ejecución de
-sentencia ante los tribunales civiles o contencioso-administrativos, según
-corresponda, siempre que haya tenido por demostrada la existencia del daño
-y el deber del demandado de repararlo.
+ARTICULO 368.-
+Condena civil Cuando la acción civil ha sido ejercida, la sentencia condenatoria fijará además la reparación de los daños y perjuicios causados y la forma en que deberán ser atendidas las respectivas obligaciones.
+Cuando los elementos probatorios no permitan establecer con certeza los montos de algunas de las partidas reclamadas por el actor civil y no se esté en los casos en que pueda valorarse prudencialmente, el tribunal podrá acogerlos en abstracto para que se liquiden en ejecución de sentencia ante los tribunales civiles o contencioso-administrativos, según corresponda, siempre que haya tenido por demostrada la existencia del daño y el deber del demandado de repararlo.
