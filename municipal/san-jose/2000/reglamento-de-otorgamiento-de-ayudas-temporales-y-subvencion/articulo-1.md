@@ -1,8 +1,10 @@
+(Derogado)
 REGLAMENTOS
 MUNICIPALIDADES
 MUNICIPALIDAD DE SAN JOSE
 REGLAMENTO PARA EL OTORGAMIENTO DE AYUDAS TEMPORALES Y SUBVENCIONES CONTEMPLADOS
 EN EL PARRAFO TERCERO DEL NUMERAL 62 DEL CODIGO MUNICIPAL
+(DEROGADO, por el artículo 12 del Reglamento para el otorgamiento de ayudas temporales y subvenciones aprobado en sesión No. 105 de 4 de mayo de 2004 y publicado en La Gaceta N° 99 de 21 de mayo de 2004).
 El Concejo Municipal del cantón Central de San José, de conformidad con las disposiciones de los artículos 169 y 170 de la Carta Magna, en relación con el numeral 4, párrafo primero e inciso a) y 13, incisos c) y d), 43 y 62, párrafo primero y tercero del Código Municipal, emite el presente "Reglamento para el otorgamiento de ayudas temporales y subvenciones contemplados en el párrafo tercero del numeral 62 del Código Municipal" que se regirá por las siguientes disposiciones:
 CAPITULO I
 De las ayudas por situaciones de desgracia e infortunio

@@ -15,3 +15,4 @@ Reglamento de Otorgamiento de Ayudas Temporales y Subvenciones
 | --- | --- | --- |
 | 1 | 2000-02-03 | la propia norma |
 | 2 | 2000-02-03 | Ley 7 |
+| 3 | 2004-05-04 | Reglamento municipal 105 (2004-05-04) |
