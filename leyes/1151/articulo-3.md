@@ -1,0 +1,1 @@
+Artículo 3°.- Los mencionados Magistrados con más de 10 años de servicio en el ramo judicial, que cesaron en sus cargos el 8 de mayo antes citado, si hubieran retirado las cuotas pagadas al Fondo de Jubilaciones del Poder Judicial, deberán, para poder acogerse a los beneficios aquí establecidos, reintegrar previamente la totalidad de las cuotas.
