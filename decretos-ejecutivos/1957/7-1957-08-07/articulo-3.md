@@ -1,0 +1,1 @@
+Artículo 3°-La Comisión se regirá por los artículos pertinentes del Código Sanitario vigente y por la ley N° 1207 del 9 de octubre de 1950 y decretos N° 7 del 27 de setiembre de 1951 y N° 14 del 27 de mayo de 1952 del Ministerio de Agricultura.
