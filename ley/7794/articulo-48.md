@@ -1,0 +1,8 @@
+ARTÍCULO 48.- Las actas del Concejo deberán ser aprobadas en la
+sesión ordinaria inmediata posterior; salvo que lo impidan razones de
+fuerza mayor, en cuyo caso la aprobación se pospondrá para la siguiente
+sesión ordinaria.
+Antes de la aprobación del acta, cualquier regidor podrá plantear
+revisión de acuerdos, salvo respecto de los aprobados definitivamente
+conforme a este código. Para acordar la revisión, se necesitará la misma
+mayoría requerida para dictar el acuerdo.

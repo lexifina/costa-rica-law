@@ -1,0 +1,4 @@
+ARTÍCULO 117.- Quedan protegidos por esta ley y son responsables de
+sus disposiciones todos los trabajadores municipales nombrados con base en
+el sistema de selección por mérito dispuesto en esta ley y remunerados por
+el presupuesto de cada municipalidad.

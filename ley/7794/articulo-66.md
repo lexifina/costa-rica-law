@@ -1,0 +1,8 @@
+ARTÍCULO 66.- Conforme al régimen interno, se determinará la
+responsabilidad pecuniaria en que incurran los funcionarios municipales,
+por acciones u omisiones en perjuicio de la municipalidad, con motivo de
+la custodia o administración de los fondos y bienes municipales.
+La resolución firme que se dicte, certificada por el contador o
+auditor interno, constituirá título ejecutivo y su cobro judicial deberá
+iniciarse dentro de los quince días naturales, contados a partir de su
+emisión.

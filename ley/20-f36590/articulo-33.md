@@ -1,2 +1,0 @@
-(Derogado)
-Artículo 33°-

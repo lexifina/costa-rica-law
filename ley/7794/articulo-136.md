@@ -1,0 +1,5 @@
+ARTÍCULO 136.- La evaluación o calificación anuales de servicios
+servirán como reconocimiento a los servidores, estímulo para impulsar
+mayor eficiencia y factor que debe considerarse para el reclutamiento y la
+selección, la capacitación, los ascensos, el aumento de sueldo, la
+concesión de permisos y las reducciones forzosas de personal.

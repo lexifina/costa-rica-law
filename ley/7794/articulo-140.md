@@ -1,0 +1,4 @@
+ARTÍCULO 140.- El desacuerdo entre el jefe inmediato y el subalterno
+respecto al resultado de la evaluación y calificación de servicios, será
+resuelto por el alcalde municipal, previa audiencia a todas las partes
+interesadas.

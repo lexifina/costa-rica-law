@@ -1,0 +1,5 @@
+ARTÍCULO 80.- La municipalidad deberá resolver las solicitudes de
+licencia en un plazo máximo de treinta días naturales, contados a partir
+de su presentación. Vencido el término y cumplidos los requisitos sin
+respuesta alguna de la municipalidad, el solicitante podrá establecer su
+actividad.
