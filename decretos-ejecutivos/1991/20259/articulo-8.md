@@ -1,0 +1,3 @@
+Artículo 8°.- En el caso de solicitudes para visitar el Parque provenientes de Agencias de Turismo para llevar grupos organizados, aparte de los requisitos antes exigidos se deberá cumplir lo siguiente:
+La agencia o empresa turística deberá presentar la respectiva licencia vigente del Instituto Costarricense de Turismo.
+La visita deberá efectuarse bajo la orientación de un guía de turismo debidamente autorizado por el Instituto Costarricense de Turismo. Para los efectos, en la solicitud que se presente ante la Administración del Parque, deberá consignarse el nombre, las calidades y la autorización del ICT del guía de turismo.

@@ -1,0 +1,1 @@
+Artículo 4°.- Corresponderá a la Administración del Parque Nacional Isla del Coco, dar la autorización para la visita. Dicha autorización deberá ser tramitada dentro de los cinco días siguientes al recibo a fin de que el interesado la conozca oportunamente.

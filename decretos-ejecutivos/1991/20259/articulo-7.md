@@ -1,0 +1,1 @@
+Artículo 7°.- Únicamente se permitirá el desembarco en el Parque Isla del Coco sin cumplir con los trámites señalados en este reglamente, cuando se trata de una emergencia por arribo forzoso o para recoger agua. En este último caso, el desembarco estará autorizado únicamente durante el período de tiempo normal y necesario para que se cumpla esta tarea.

@@ -1,0 +1,1 @@
+Artículo 11.- En materia de concesión de permisos, la Administración del Parque dará prioridad a aquellas empresas o grupos que dentro de su personal hubiesen celebrado contratos laborales con una mayoría de personal costarricense.

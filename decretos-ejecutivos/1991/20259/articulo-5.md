@@ -1,0 +1,1 @@
+Artículo 5°.- La Administración no estará obligada a otorgar todos los permisos de visita que le soliciten pues podrá denegarlos, limitar el número de visitantes y días de visita o cambiar la fecha de su conveniencia.

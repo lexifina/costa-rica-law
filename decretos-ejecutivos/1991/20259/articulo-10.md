@@ -1,0 +1,1 @@
+Artículo 10.- La Administración del Parque Nacional Isla del Coco, podrá otorgar a las empresas de turismo, una autorización anual sobre las visitas programadas que durante ese lapso deseen efectuar al Parque. Al respecto, la Administración deberá velar porque exista equidad en esos permisos de manera tal que una sola empresa no abarque todas las visitas en forma exclusiva.

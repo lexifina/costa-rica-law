@@ -1,0 +1,1 @@
+Artículo 9°.- Toda persona, grupo o empresa turística que obtenga la respectiva autorización de la Administración del Parque, para visitar la Isla, deberá presentar el permiso concedido ante la Capitanía del Puerto de Puntarenas, para que se le otorgue la autorización de salida. Sin este último requisito no podrá visitar la Isla del Coco.
