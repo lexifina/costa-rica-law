@@ -1,0 +1,14 @@
+N° 5465
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
+Decreta:
+Artículo 1º.- Refórmanse el artículo 7º y el transitorio I de la Ley Orgánica del Colegio de Enfermeras de Costa Rica Nº 2343 de 4 de mayo de 1959 y sus reformas, para que se lean de la siguiente manera:
+"Artículo 7º.- La Asamblea General se reunirá ordinariamente una vez al año para verificar la elección de la Junta Directiva y discutir toda clase de cuestiones relacionadas con el Colegio. La Junta Directiva se reunirá una vez cada quince días, y una y otra celebrarán las sesiones extraordinarias que fueren indispensables. El Presidente de la Junta Directiva convocará para las reuniones extraordinarias de este organismo y la Junta Directiva convocará para las sesiones extraordinarias de la Asamblea General, que también se reunirá cuando lo soliciten no menos de veinte colegiadas. Para que haya sesión de Asamblea General será necesaria la asistencia de no menos de un 10 % de la totalidad de las integrantes del Colegio, para la primera convocatoria. Caso de no haber quórum se hará una segunda convocatoria para una hora después, pudiendo efectuar la sesión con cualquier número de asociados presentes.
+Son atribuciones de la Asamblea General:
+a) Nombrar la Junta Directiva;
+b) Conocer de las quejas que se formulen contra los miembros de la Junta Directiva;
+c) Imponer, en sus casos, correcciones disciplinarias a los miembros de la Junta Directiva;
+d) Conocer en grado las resoluciones que dicte la Junta Directiva;
+e) Conocer de los informes y presupuestos anuales, aprobarlos, modificarlos o improbarlos; y
+f) Elegir a los miembros del Tribunal Examinador y del Tribunal de Moral Profesional".
+"Transitorio I.- Las personas graduadas en las Escuelas de Enfermería de los Hospitales Max Peralta de Cartago y Clínica Bíblica de San José que hayan ejercido por ocho o más años la profesión de enfermería antes de la promulgación de esta ley en Hospitales, Centros Asistenciales o de Beneficencia o Clínicas reconocidas, tendrán derecho a solicitar que se les permita seguir ejerciendo la enfermería previo examen práctico que deberá ser presentado dentro de los doce meses siguientes a la promulgación de esta ley ante un Tribunal designado por la Escuela de Enfermería y formado por profesores de la misma, de acuerdo con la reglamentación de que sea objeto esta ley. Las que fueren aplazadas tendrán derecho a solicitar un segundo examen, el cual puede hacerse después de transcurrido ese término, siempre y cuando la solicitud se hubiere hecho dentro de él.
+Transcurrido este plazo, las que no se presentaren, las que no hubieren hecho la solicitud para un segundo examen, y quienes no lo hubieren aprobado definitivamente, no podrán ejercer la profesión, pero sí podrán ejercer como Auxiliares. Las enfermeras así graduadas formarán también parte del Colegio de Enfermeras de Costa Rica".
