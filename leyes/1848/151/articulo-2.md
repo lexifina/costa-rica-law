@@ -1,0 +1,1 @@
+Art. 2. Se le concede durante su vida una pension mensual de cincuenta pesos que se pagará del tesoro público,- Dado en la ciudad de San José, á los seis dias del mes de noviembre de mil ochocientos cuarenta y ocho.-"
