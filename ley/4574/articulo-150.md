@@ -1,7 +1,6 @@
 Artículo 150.- El Ejecutivo otorgará licencias conforme a lo que dispone el Reglamento Interior de Trabajo, siempre que se cumplan las siguientes condiciones:
 a) Podrá conceder licencia hasta por una semana con goce de sueldo, en casos de matrimonio del servidor o de fallecimiento de cualquiera de sus padres, hijos, hermanos o cónyuge;
 b) Todos los demás permisos con goce de sueldo que conforme a disposiciones del Reglamento Interior de Trabajo sean procedentes, deberán ser deducidos del período de vacaciones, sin que el número de días de licencia pueda exceder el número de días de vacación que correspondan al servidor en el momento de otorgarse el permiso;
-c) Los permisos sin goce de sueldo podrán se otorgados hasta por seis meses, prorrogables por una sola vez por un plazo igual, en casos muy calificados que señalará el Reglamento Interior de Trabajo.
-Quien haya disfrutado de un permiso sin goce de sueldo, no podrá obtener otro si antes no ha transcurrido un tiempo igual al doble del tiempo del permiso anterior concedido; y
+c) Los permisos sin goce de sueldo podrán se otorgados hasta por seis meses, prorrogables por una sola vez por un plazo igual, en casos muy calificados que señalará el Reglamento Interior de Trabajo. Quien haya disfrutado de un permiso sin goce de sueldo, no podrá obtener otro si antes no ha transcurrido un tiempo igual al doble del tiempo del permiso anterior concedido; y
 ch) En cuanto a licencias para estudios, se estará a lo dispuesto en el inciso a) del artículo anterior, y sólo podrá otorgarlas el Ejecutivo con aprobación del Concejo.
 Siempre que se conceda una licencia se podrá ascender o nombrar interinamente por el término que dure la licencia.

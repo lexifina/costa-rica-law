@@ -1,1 +1,2 @@
-Artículo 159.- Antes de acordarse una expropiación, y con vista del respectivo plano catastrado del inmueble que interesa adquirir, el Concejo encargará al Ejecutivo el trámite del avalúo, indicándole el nombre del propietario o, en su defecto poseedor, la cita de inscripción en el Registro Público o si se trata de terreno no inscrito, así como la naturaleza, situación, linderos y cabida del expresado inmueble.
+Artículo 159.- DEROGADO.-
+(Derogado por el artículo 64, inciso l), de la Ley de Expropiaciones No.7495 del 3 de mayo de 1995)

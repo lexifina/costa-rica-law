@@ -1,0 +1,2 @@
+Artículo 189.- Cada tres meses, el Concejo municipal de distrito, por medio de su Intendente, informará a la municipalidad del cantón a que pertenece, sobre el movimiento de ingresos y egresos y especificará las obras en ejecución y en proyecto. Una copia del informe se enviará a la Contraloría General de la República.
+(Así adicionado por el artículo 1º de la ley No.7564 del 11 de diciembre de 1995. El antiguo numeral 189 pasó a ser el 197)

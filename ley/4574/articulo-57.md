@@ -6,7 +6,7 @@ ch) Proponer al Concejo normas generales de la política que debe llevarse adela
 d) Presentar al Concejo, para su aprobación, los proyectos de presupuestos de la municipalidad.
 e) Proponer al Concejo la creación de plazas y servicios indispensables para el buen funcionamiento del Gobierno local;
 f) Nombrar, promover, remover, conceder licencias e imponer sanciones al personal de la municipalidad, de acuerdo con lo establecido en este Código y los reglamentos respectivos.
-g) Vigilar el correcto desarrollo de la política adoptada por la municipalidad, la realización de los programas de trabajo y la ejecución de los presupuestos;
+g) Vigilar el correcto desarrollo de la política adoptada por la municipalidad, la realización de los programas de trabajo y la ejecución de los presupuesto;
 h) Ejecutar o hace ejecutar los acuerdos que dicte el Concejo;
 i) Convocar a sesiones extraordinarias: estará obligado a convocar cuando se lo pidan por escrito al menos dos regidores;
 j) Ejercer el veto conforme a este Código;

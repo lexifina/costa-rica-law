@@ -1,1 +1,2 @@
-Artículo 158.- El concepto del artículo anterior alcanza a aquellos inmuebles que la municipalidad disponga adquirir para su entrega al uso público o para ser dejados en propiedad, administración o uso de entidades estatales locales.
+Artículo 158.- DEROGADO.-
+(Derogado por el artículo 64, inciso l), de la Ley de Expropiaciones No.7495 del 3 de mayo de 1995)

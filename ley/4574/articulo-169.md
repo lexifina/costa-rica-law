@@ -1,1 +1,2 @@
-Artículo 169.- Del monto de la indemnización, la municipalidad o el Juez, en su caso, separarán las cantidades necesarias para cancelar de inmediato toda clase de gravámenes que afecten al inmueble expropiado.
+Artículo 169.- DEROGADO.-
+(Derogado por el artículo 64, inciso l), de la Ley de Expropiaciones No.7495 del 3 de mayo de 1995)
