@@ -9,6 +9,6 @@ Consejo Nacional de Rectores (CONARE).
 d) Un representante de la Cámara Nacional de Agricultura y
 Agroindustria.
 e) Un representante de la Cámara de Industrias de Costa Rica.
-f) Un representante seleccionado por el Ministro de Educación, de una
-terna que le presentará la Unión Nacional de Cámaras y Asociaciones de la
-Empresa Privada.
+f) Un representante seleccionado por el Ministro de Educación, de
+una terna que le presentará la Unión Nacional de Cámaras y Asociaciones
+de la Empresa Privada.

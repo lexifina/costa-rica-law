@@ -14,10 +14,11 @@ ch) La infraestructura de gestión tecnológica requerida para realizar
 lo anterior y para su funcionamiento.
 d) Los proyectos de investigación y desarrollo para el tratamiento y
 utilización de deshechos, así como otros aspectos y estudios que
-contribuyan al mejoramiento ambiental. La exoneración mencionada será
-concedida por el Ministerio de Hacienda, previa suscripción del Contrato de
-Incentivos, de acuerdo con el reglamento que al efecto dicte el Ministerio
-de Ciencia y Tecnología, en coordinación con el Ministerio de Hacienda.
+contribuyan al mejoramiento ambiental.
+La exoneración mencionada será concedida por el Ministerio de
+Hacienda, previa suscripción del Contrato de Incentivos, de acuerdo con
+el reglamento que al efecto dicte el Ministerio de Ciencia y Tecnología,
+en coordinación con el Ministerio de Hacienda.
 El beneficio otorgado por este artículo no podrá ser superior al
 treinta por ciento (30%) del impuesto sobre la renta total que deba pagar
 la empresa beneficiaria, el cual se aplicará en forma gradual.
@@ -27,3 +28,5 @@ adición resulte en un porcentaje mayor que el señalado.
 Los conceptos deducidos del impuesto sobre la renta no serán
 deducibles para efectos de determinar el gravable o imponible que
 corresponda.
+( DEROGADO TACITAMENTE por el artículo 1º de Ley Nº 7293 de 31 de marzo
+de 1992 ).
