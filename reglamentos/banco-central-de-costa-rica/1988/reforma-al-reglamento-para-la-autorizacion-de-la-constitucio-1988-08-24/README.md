@@ -14,3 +14,4 @@ Reforma al Reglamento para la Autorización de la Constitución, la Apertura y F
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-09-12 | la propia norma |
+| 2 | 1988-09-12 | Ley 8 |
