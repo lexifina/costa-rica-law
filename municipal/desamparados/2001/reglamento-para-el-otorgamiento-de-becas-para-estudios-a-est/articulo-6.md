@@ -1,0 +1,1 @@
+Artículo 6°—No podrán disfrutar de becas municipales dos o más hermanos, simultáneamente. No rige esta disposición cuando se trate de estudiantes con discapacidad probada, o cuando se trate de casos muy calificados, previo estudio.

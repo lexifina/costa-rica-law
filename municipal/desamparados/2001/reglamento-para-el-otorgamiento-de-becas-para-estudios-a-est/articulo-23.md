@@ -1,0 +1,1 @@
+Articulo 23.— La Comisión de Becas por sí misma promoverá servicios comunales voluntarios para que los beneficiarios participen en programas que eleven el espíritu de solidaridad con el desarrollo del cantón.

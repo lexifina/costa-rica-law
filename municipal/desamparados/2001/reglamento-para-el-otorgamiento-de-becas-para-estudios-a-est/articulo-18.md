@@ -1,0 +1,1 @@
+Artículo 18. —El segundo pago está sujeto al rendimiento académico y permanencia del estudiante en el respectivo centro educativo, para lo cual se aportarán los documentos respectivos por parte del estudiante.

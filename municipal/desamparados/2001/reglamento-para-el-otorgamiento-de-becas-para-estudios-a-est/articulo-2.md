@@ -1,0 +1,1 @@
+Artículo 2°—Las becas que se otorguen al amparo de este reglamento tienen como propósito ayudar a los beneficiarios en la prosecución y culminación de los estudios de secundaria hasta la obtención del bachillerato. No obstante, podrán ser beneficiarios de becas estudiantes de educación primaria de escasos recursos económicos y con alguna discapacidad probada.
