@@ -9,4 +9,4 @@ f) El Gerente o Subgerente del Instituto de Tierras y Colonización.
 g) El Gerente o Subgerente del Consejo Nacional de Producción.
 h) Un Representante del Sistema Bancario Nacional, escogido entre sus Gerentes o Subgerentes.
 i) Un Representante de la Universidad de Costa Rica, Miembro del Consejo Universitario.
-j) Un Representante del Sector Privado, de libre elección del Poder Ejecutivo de reconocida capacidad en la materia.
+j) Un Representante del Sector Privado, de libre elección del Poder Ejecutivo de reconocida capacidad en la materia. Cada uno de los miembros de este Consejo tendrá su correspondiente suplente, cuya elección se hará en la misma forma que la del propietario. (Así adicionado su último párrafo por el artículo 1 del Decreto Ejecutivo N° 20 de 28 de agosto de 1969)
