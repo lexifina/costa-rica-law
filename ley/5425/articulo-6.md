@@ -1,0 +1,2 @@
+Artículo 6
+Las empresas que se acojan a este Instrumento, instaladas en los Estados Parte del que prorroga el Protocolo al Tratado General de Integración Económica Centroamericana (Medidas de Emergencia de Defensa de la Balanza de Pagos), quedan afectas al impuesto de Estabilización Económica creado por dicho Protocolo, a menos que sean exoneradas del mismo, de conformidad con las normas previstas para tales casos.
