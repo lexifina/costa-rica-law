@@ -14,3 +14,4 @@ Reglamento del Seguro de Invalidez Vejez y Muerte de la Caja Costarricense de Se
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-10 | la propia norma |
+| 2 | 1995-11-28 | Reglamento 6979 (1995-11-28) |
