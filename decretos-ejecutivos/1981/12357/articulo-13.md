@@ -1,2 +1,0 @@
-Artículo 13.-Toda solicitud de autorización de viaje deberá presentarse en triplicado en el formulario correspondiente establecido por la Oficina de Planificación Nacional y Política Económica y deberá acompañarse con los documentos necesarios que justifican el viaje; tales como constancia de invitación, programa a desarrollar, financiamiento externo si lo hubiera.
-Además, deberá acompañarse constancia del auditor interno o del oficial presupuestal de la disponibilidad de fondos para el viaje.

@@ -1,2 +1,0 @@
-Artículo 12.-Todo funcionario que viaje al exterior dentro de los términos de este Reglamento, en representación oficial del Gobierno de la República, deberá contar, previamente a la salida del país, con las credenciales respectivas extendidas por el Ministerio de Relaciones Exteriores y Culto, que lo acrediten debidamente para el cumplimiento de la misión.
-La solicitud deberá ser formulada por la institución que promueva el viaje, con cinco días de anticipación ante el Ministerio de Relaciones Exteriores y Culto.
