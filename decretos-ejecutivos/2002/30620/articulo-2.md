@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el transitorio único del Decreto Nº 30471-MP, denominado "Reglamento para la Integración de la Asamblea de los Trabajadores del Banco Popular y de Desarrollo Comunal", emitido a los veintitrés días del mes de mayo del 2002 y publicado en La Gaceta Nº 106 del martes 4 de junio del 2002.
