@@ -1,0 +1,1 @@
+ARTICULO 22.-En caso de no haber destino en que colocarle, el Ejecutivo le declarar en el goce del sueldo de los jubilados y bajo las reglas establecidas para aquellos; mas si los servicios del cesante no alcanzasen los primeros diez a¤os para obtener el primer tercio, se le conceder la pension que le corresponda proporcionando ‚sta los a¤os de servicio que tenga.

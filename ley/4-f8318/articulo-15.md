@@ -1,0 +1,2 @@
+Departamento de Hacienda.
+ARTÍCULO 15.-El sueldo señalado al Intendente General y todos los empleados y dependientes de Hacienda de cualquier clase y condición que sean, lo disfrutar n ¡íntegramente, siendo de nombramiento en propiedad, y estando en ejercicio: los Oficiales mayores y Escribientes de estas oficinas quedan sujetos lo dispuesto en este Reglamento para los de la Secretaria del Gobierno.

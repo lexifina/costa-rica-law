@@ -1,0 +1,1 @@
+ARTÍCULO 31.-Los hijos varones dejar n de disfrutar de la pensión luego que lleguen la mayor edad, y las hijas mujeres cuando se casen; y en uno y en otro caso percibir n la pensión ¡integra los hijos que queden en el de seguir disfrutándola.
