@@ -14,3 +14,4 @@ Reglamento sobre Rellenos Sanitarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-23 | la propia norma |
+| 2 | 2004-04-19 | Decreto Ejecutivo 31771 (2004-04-19) |
