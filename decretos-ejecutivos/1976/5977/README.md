@@ -13,3 +13,4 @@ Reforma Reglamentos Oficina Normas y Unidades Medidas y Comité Técnico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-05-25 | la propia norma |
+| 2 | 1976-05-25 | SINALEVI (sin norma nombrada) |
