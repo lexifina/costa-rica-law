@@ -1,0 +1,1 @@
+Artículo 82.—Toda solicitud de segregación de parcelas deberá ser acompañada de las constancias o certificaciones indicadas en el artículo 63 en lo que al adquirente se refiere. Adicionalmente, se deberá aportar un detalle del uso que se va a dar al área que se pretende segregar.

@@ -1,0 +1,1 @@
+Artículo 67.—La Oficina Subregional, una vez recibida la solicitud de traspaso de un predio, contará con un plazo máximo de treinta días hábiles para analizar, estudiar y remitir a la Dirección Regional el expediente completo con la recomendación que corresponda conforme a las disposiciones legales y reglamentarias vigentes.

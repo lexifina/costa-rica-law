@@ -1,0 +1,1 @@
+Artículo 12.—Los técnicos y las técnicas autorizadas para realizar estudios de selección, como parte del procedimiento, deberán consultar obligatoriamente al Sistema de Selección y Adjudicación de Tierras, así como a las bases de datos de arrendamientos y proyectos de titulación. El resultado de las consultas se consignarán en los estudios respectivos.

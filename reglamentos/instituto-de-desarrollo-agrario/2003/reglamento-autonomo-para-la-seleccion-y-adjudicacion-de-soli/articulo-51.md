@@ -1,0 +1,1 @@
+Artículo 51.—Las familias adjudicatarias de parcelas podrán optar a un lote para vivienda o predio para otros fines, siempre y cuando demuestren su necesidad, en razón de las condiciones de la parcela con respecto a la ubicación y servicios generales requeridos, para lo cual se le aplicará, en lo que corresponda, lo establecido en este Capítulo.

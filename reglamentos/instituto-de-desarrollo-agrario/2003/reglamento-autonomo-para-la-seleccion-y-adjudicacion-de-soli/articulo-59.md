@@ -1,0 +1,1 @@
+Artículo 59.—El Área de Selección de Familias, con el visto bueno de la jefatura del Departamento de Formación de Asentamientos y de la Dirección de Formación y Desarrollo de Asentamientos, tramitará ante la Junta Directiva dicha solicitud con la recomendación correspondiente.

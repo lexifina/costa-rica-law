@@ -1,0 +1,1 @@
+Artículo 54.—Para el estudio de una solicitud de persona jurídica, se aplicarán las disposiciones y procedimientos generales establecidos en los capítulos I y II de este Reglamento en lo que corresponda, y en especial lo estipulado en el presente Capítulo.

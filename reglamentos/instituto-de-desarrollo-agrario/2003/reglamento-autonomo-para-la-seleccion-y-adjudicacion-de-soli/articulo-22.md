@@ -1,0 +1,1 @@
+Artículo 22.—Posteriormente a la aplicación de la encuesta y a la realización de la investigación complementaria, se realizará la revisión general de la encuesta para que sea procesada en el Área de Selección de Familias, la que procederá a ingresar la información en el Sistema de Selección y Adjudicación de Tierras, para las ponderaciones respectivas.

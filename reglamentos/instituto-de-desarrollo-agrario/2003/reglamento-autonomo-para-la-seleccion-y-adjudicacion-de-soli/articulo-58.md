@@ -1,0 +1,1 @@
+Artículo 58.—La oficina subregional analizará y valorará la solicitud y remitirá con su recomendación respectiva un informe al Área de Selección de Familias, con el visto bueno de la dirección regional y el criterio de la organización más representativa de la comunidad donde se llevaría a cabo el proyecto.

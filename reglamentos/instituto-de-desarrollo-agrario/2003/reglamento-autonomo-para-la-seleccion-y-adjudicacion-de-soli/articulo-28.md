@@ -1,0 +1,2 @@
+Artículo 28.—Para el sorteo la oficina subregional tendrá a disposición copia del estudio aprobado por la Junta Directiva. Así mismo se contará con dos recipientes, en uno se depositará los nombres de las familias elegibles que participan en el sorteo y en el otro, las fichas con los números de los predios a asignar.
+Primero se procederá a sacar el nombre de la familia elegible y seguidamente se sacará la ficha con el número del predio que le corresponderá.

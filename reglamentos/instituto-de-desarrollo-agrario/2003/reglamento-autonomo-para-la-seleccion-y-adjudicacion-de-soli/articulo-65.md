@@ -1,0 +1,1 @@
+Artículo 65.—Luego de aportados los documentos anteriores se suscribe la Solicitud de Autorización de Traspaso entre las personas vendedoras y las personas compradoras, las cuales deberán indicar la aceptación del precio del traspaso. Este formulario debe adjuntarse a la encuesta para el trámite correspondiente.

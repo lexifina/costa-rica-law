@@ -1,0 +1,1 @@
+Artículo 10.—Se tendrá por elegible la familia, que obtenga un puntaje mínimo de sesenta y cinco por ciento, siempre y cuando no se encuentre en una o más de las razones de exclusión a que se hace referencia en este Reglamento, según corresponda. La condición de elegible tendrá una vigencia de un año, a partir de la aprobación del estudio por parte de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 18.—El estudio se inicia con una sesión de trabajo con las personas solicitantes y sus respectivas parejas, cuando las haya, a fin de dar a conocer los criterios básicos de selección, las razones de exclusión, el proceso general de adjudicación de tierras por parte del Instituto y las características generales de las tierras a distribuir.

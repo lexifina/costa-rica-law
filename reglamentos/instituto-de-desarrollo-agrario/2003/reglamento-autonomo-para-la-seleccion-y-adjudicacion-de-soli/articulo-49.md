@@ -1,0 +1,1 @@
+Artículo 49.—Toda solicitud de predio para otros fines que no sean los de vivienda, deberá ser acompañada de las constancias o certificaciones que a juicio del Instituto deban presentarse, dentro de las cuales se adjuntarán invariablemente las indicadas en el artículo 63, en lo que al adquirente se refiere.

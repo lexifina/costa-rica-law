@@ -1,0 +1,1 @@
+Artículo 73.—Si la Junta Directiva denegara el traspaso, la oficina subregional correspondiente deberá darle seguimiento, a fin de verificar si el mismo se ha efectuado ilegalmente, en cuyo caso deberá proceder con los trámites de desalojo, revocatoria y subsecuente nulidad de título.

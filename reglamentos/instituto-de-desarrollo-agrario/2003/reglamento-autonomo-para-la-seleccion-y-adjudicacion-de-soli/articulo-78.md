@@ -1,0 +1,1 @@
+Artículo 78.—Una vez elaborada la resolución, la misma será comunicada a la oficina subregional, con copia al Área de Selección de Familias. Las oficinas subregionales tendrán la responsabilidad de notificar por escrito a las personas interesadas, lo que corresponda según dichas resoluciones.

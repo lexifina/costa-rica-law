@@ -1,0 +1,1 @@
+Artículo 80.—Una vez autorizada la segregación en cabeza de su dueño, deberá recurrir ante Notario Público para el trámite de inscripción ante el Registro Público de la Propiedad, para lo cual solicitará el refrendo ante la Dirección de Asuntos Jurídicos y deberá adjuntar el Primer Testimonio (original y tres copias) y tres copias de la resolución de autorización.

@@ -1,0 +1,1 @@
+Artículo 83.—En caso de segregaciones para traspasar áreas a personas físicas o jurídicas, además será necesario un informe técnico de la oficina subregional, donde indique que no se afecta la explotación de la parcela como unidad económica familiar.

@@ -1,0 +1,1 @@
+Artículo 14.—Los estudios de las personas solicitantes de tierra que elabore el Área de Selección de Familias, serán manejados con la mayor discrecionalidad, hasta tanto la Junta Directiva no haya tomado una resolución al respecto.

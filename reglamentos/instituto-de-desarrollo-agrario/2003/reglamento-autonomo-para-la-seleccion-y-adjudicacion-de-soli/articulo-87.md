@@ -1,0 +1,2 @@
+Artículo 87.—En caso de que la imposibilidad para atender el predio sea temporal, la persona adjudicataria y su pareja deberán comunicarlo a la oficina subregional respectiva, a fin de que se tomen las previsiones del caso y una vez cumplido el permiso, deberán asumir nuevamente la explotación directa de su predio.
+Las autorizaciones temporales serán tramitadas por la oficina regional respectiva y las mismas no excederán los seis meses.

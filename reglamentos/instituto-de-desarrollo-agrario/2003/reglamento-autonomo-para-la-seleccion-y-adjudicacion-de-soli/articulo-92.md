@@ -1,0 +1,1 @@
+Artículo 92.—Este Reglamento deroga al Reglamento Autónomo para la Selección de Beneficiarios, aprobado por la Junta Directiva en artículo V, sesión Nº 88-93 del 22 de noviembre de 1993, así como cualquier otra disposición reglamentaria que se le oponga.

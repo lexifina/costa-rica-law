@@ -1,0 +1,2 @@
+Artículo 50.—La oficina subregional valorará la solicitud y remitirá con su recomendación respectiva, un informe al Área de Selección de Familias, con el visto bueno de la dirección regional y el criterio de la organización más representativa de la comunidad donde se llevaría a cabo el proyecto.
+El Área de Selección de Familias, con el visto bueno de la jefatura del Departamento de Formación de Asentamientos y de la Dirección de Formación y Desarrollo de Asentamientos, tramitará ante la Junta Directiva dicha solicitud, con la recomendación correspondiente.

@@ -1,0 +1,1 @@
+Artículo 35.—La persona solicitante y su pareja deben comprometerse a explotar la parcela personalmente y con sus descendientes, hasta el segundo grado de consanguinidad y que vivan con ellos, siempre que estén en condiciones físicas de hacerlo.

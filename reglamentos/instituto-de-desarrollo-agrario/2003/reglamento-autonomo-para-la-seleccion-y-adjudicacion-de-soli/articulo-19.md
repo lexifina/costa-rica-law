@@ -1,0 +1,1 @@
+Artículo 19.—Posteriormente se procederá a realizar entrevistas con cada solicitante y su pareja, donde los técnicos o técnicas asignadas para el estudio aplicarán la Encuesta para la Selección de Solicitantes de Tierra, la cual será firmada por la persona solicitante y su pareja, así como por la persona que realice la entrevista.

@@ -1,0 +1,1 @@
+Artículo 66.—El técnico o la técnica de la oficina subregional, procederá a aplicar a las personas adquirentes la encuesta y a realizar la investigación complementaria, de conformidad con lo que al respecto establece el presente Reglamento.
