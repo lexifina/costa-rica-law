@@ -1,0 +1,2 @@
+G.- Revista general de la evolución del entorno comercial internacional
+El OEPC realizará anualmente además una revista general de los factores presentes en el entorno comercial internacional que incidan en el sistema multilateral de comercio. Para esa revista contará con la ayuda de un informe anual del Director General en el que se expongan las principales actividades de la OMC y se pongan de relieve los problemas importantes de política que afecten al sistema de comercio.
