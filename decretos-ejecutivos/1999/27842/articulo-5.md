@@ -1,2 +1,1 @@
-Artículo 5°—La Dirección del Triángulo de Solidaridad será la encargada de promover, capacitar y facilitar, en forma democrática, un proceso de concertación a nivel local entre la Sociedad Civil, las Municipalidades y el Sector Público, con el fin de constituir un foro que brinde apoyo logístico y permita a los tres actores alcanzar los acuerdos necesarios para promover el desarrollo humano en sus comunidades.
-(Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 3º al artículo 5º)
+Artículo 5°—DEROGADO por el artículo 3 del Decreto Ejecutivo N° 30688 de 4 de setiembre del 2002.

@@ -1,2 +1,2 @@
-Artículo 21—De la implementación de los acuerdos. Una vez firmada la Carta de Compromiso cada una de las partes, de acuerdo con su normativa, procederá a programar y desarrollar las acciones que permitan obtener en los plazos indicados, los recursos necesarios para desarrollar los proyectos y acciones en los distritos y comunidades.
+Artículo 21—DEROGADO por el artículo 3 del Decreto Ejecutivo N° 30688 de 4 de setiembre del 2002.
 (Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 19 al artículo 21)

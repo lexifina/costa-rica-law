@@ -1,2 +1,2 @@
-Artículo 16—De la Validación. Concluido el taller de planificación cada uno de los participantes valorará los posibles compromisos que estaría asumiendo, identificando las prioridades y los mecanismos de ejecución que serán sometidos a la Mesa de Negociación.
+Artículo 16—DEROGADO por el artículo 3 del Decreto Ejecutivo N° 30688 de 4 de setiembre del 2002.
 (Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 14 al artículo 16)

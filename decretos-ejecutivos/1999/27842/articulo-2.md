@@ -1,2 +1,1 @@
-Artículo 2°—Créase la Comisión Asesora del Triángulo de Solidaridad, como un órgano asesor de alto nivel de la Dirección del Triángulo de Solidaridad, que apoyará y articulará las acciones de las instituciones del Sector Público que participen en su ejecución.
-(Así adicionado por el artículo 2 del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000, corriendo la numeración del artículo 2º anterior al artículo 4º)
+Artículo 2°—DEROGADO por el artículo 3 del Decreto Ejecutivo N° 30688 de 4 de setiembre del 2002.

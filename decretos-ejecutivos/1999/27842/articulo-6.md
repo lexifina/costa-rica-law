@@ -1,2 +1,2 @@
-Artículo 6°—La Dirección del Triángulo de Solidaridad cumplirá con su cometido, sin que en ningún momento se sustituya las decisiones de la administración activa que compete a los distintos jerarcas y sin involucrarse en la ejecución de las acciones y proyectos que se acuerden bajo su marco, ni en el manejo de los fondos correspondientes.
+Artículo 6°—DEROGADO por el artículo 3 del Decreto Ejecutivo N° 30688 de 4 de setiembre del 2002.
 (Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 4º al artículo 6º)

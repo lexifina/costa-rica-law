@@ -1,2 +1,2 @@
-Artículo 20—De la Carta de Compromiso. Una vez recibidas las ratificaciones correspondientes, la Dirección del Triángulo de Solidaridad instará a cada una de las partes a ejecutar los proyectos y acciones de desarrollo; y convocará a la firma de las Cartas de Compromiso, acto que representa el acuerdo de cada uno y la voluntad expresa de llevar a cabo, según sus posibilidades, las acciones convenidas en materia de desarrollo y mejoramiento de la calidad de vida.
+Artículo 20—DEROGADO por el artículo 3 del Decreto Ejecutivo N° 30688 de 4 de setiembre del 2002.
 (Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 18 al artículo 20)

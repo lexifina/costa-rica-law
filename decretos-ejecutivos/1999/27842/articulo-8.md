@@ -1,2 +1,2 @@
-Artículo 8°—Los Concejos Municipales podrán integrase a este mecanismo de coordinación de políticas, programas y proyectos de desarrollo humano, como gestores y promotores de los intereses locales; para lo cual se requerirá el correspondiente acuerdo municipal.
+Artículo 8°—DEROGADO por el artículo 3 del Decreto Ejecutivo N° 30688 de 4 de setiembre del 2002.
 (Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 6º al artículo 8º)

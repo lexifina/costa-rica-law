@@ -15,3 +15,4 @@ Crea la Dirección del Triángulo de Solidaridad como Órgano del Ministerio de 
 | --- | --- | --- |
 | 1 | 1999-05-05 | la propia norma |
 | 2 | 2000-03-27 | Decreto Ejecutivo 28604 (2000-03-27) |
+| 3 | 2002-09-04 | Decreto Ejecutivo 30688 (2002-09-04) |

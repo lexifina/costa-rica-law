@@ -1,3 +1,2 @@
-Artículo 13— Comisiones de Desarrollo Distrital. Estarán integradas por al menos un representante de cada uno de los diferentes sectores de la sociedad civil, quienes efectuarán un diagnóstico de la realidad distrital o comunal. Elaborarán un Plan de Desarrollo, en conjunto con la Municipalidad y los órganos e instituciones de la Administración Pública, en el que definirán los aportes comunales para los proyectos seleccionados. De su seno se elegirán tres representantes ante la Mesa Cantonal de Negociación.
-(Así reformado por el artículo 1 del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000)
+Artículo 13— DEROGADO por el artículo 3 del Decreto Ejecutivo N° 30688 de 4 de setiembre del 2002.
 (Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 11 al artículo 13)

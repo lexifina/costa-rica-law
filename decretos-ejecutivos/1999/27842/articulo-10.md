@@ -1,2 +1,2 @@
-Artículo 10—Identificación de Sectores y Promoción. Previo a la convocatoria de la Asamblea de Vecinos, la Dirección del Triángulo de Solidaridad identificará y motivará a los principales representantes de las organizaciones comunales, así como a los líderes y vecinos interesados en participar en este proceso.
+Artículo 10—DEROGADO por el artículo 3 del Decreto Ejecutivo N° 30688 de 4 de setiembre del 2002.
 (Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 8º al artículo 10)

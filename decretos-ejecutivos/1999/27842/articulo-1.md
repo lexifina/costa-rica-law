@@ -20,5 +20,5 @@ e) Impulsar la descentralización y el fortalecimiento del régimen municipal co
 f) Incentivar procesos de formación cultural que promuevan el cambio de actitudes para la toma de decisiones, en donde prive la verdadera democracia.
 4°—Que para que el Ministerio de Cultura, Juventud y Deportes cuente con los elementos y mecanismos necesarios para llevar adelante la política de desarrollo humano del Gobierno, en el marco del Triángulo de Solidaridad, se requiere crear su Dirección. Por tanto,
 decretan:
-Artículo 1°. Créase la Dirección del Triángulo de Solidaridad como órgano adscrito a la Presidencia de la República, responsable de procurar mecanismos de participación social que le permitan a la Sociedad Civil, a las Municipalidades y al Sector Público, identificar sus prioridades y soluciones en materia de desarrollo humano.
-(Así reformado por el artículo 1 del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000)
+Artículo 1º—Trasládese la Dirección del Triángulo de Solidaridad, como un programa de la Dirección Nacional de Desarrollo de la Comunidad - en adelante denominada DINADECO - responsable de procurar mecanismos de participación social que le permitan a la Sociedad Civil, a las Municipalidades y al Sector Público, identificar sus prioridades y soluciones en materia de desarrollo humano.
+(Así reformado por el artículo 1 del Decreto Eejcutivo N° 30688 de 4 de setiembre del 2002)

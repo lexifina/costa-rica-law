@@ -1,2 +1,2 @@
-Artículo 17—Mesa de Negociación. Una vez validados los planes de desarrollo, la Dirección del Triángulo de Solidaridad convocará a la Mesa de Negociación, como la máxima instancia de concertación. Estará integrada por los tres representantes designados por las Comisiones de Desarrollo Distrital, por el Alcalde y el Concejo Municipal del cantón correspondiente, y por los representantes de los órganos e instituciones de la Administración Pública.
+Artículo 17—DEROGADO por el artículo 3 del Decreto Ejecutivo N° 30688 de 4 de setiembre del 2002.
 (Así corrida su numeración por el artículo 2º del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000 que traslada el artículo 15 al artículo 17)

@@ -1,8 +1,2 @@
-Artículo 3°—De su integración. La Comisión Asesora del Triángulo de Solidaridad estará integrada por:
-a- La Primera Vicepresidenta de la República, quien coordinara la Comisión.
-b- El Ministro de la Presidencia.
-c- La Presidenta Ejecutiva del Instituto Mixto de Ayuda Social.
-d- El Presidente Ejecutivo del Instituto de Fomento y Asesoría Municipal. e- La Directora Nacional de Desarrollo de la Comunidad.
-Tendrá derecho a asistir con voz voto pero sin voto el Director del Triángulo de Solidaridad, quien fungirá a la vez como Secretario Ejecutivo de la Comisión.
-Para su funcionamiento se regirá por lo dispuesto en la Ley General de Administración Pública.
-(Así adicionado por el artículo 2 del Decreto Ejecutivo Nº 28604 del 27 de marzo de 2000, corriendo su numeración del artículo 3º anterior al artículo 5º)
+Artículo 3º—La Dirección Nacional de Desarrollo de la Comunidad, será la encargada de promover, capacitar y facilitar, en forma democrática, un proceso de concertación a nivel local entre la Sociedad Civil, las Municipalidades y el Sector Público, con el fin de constituir un foro que brinde apoyo logístico y permita a los tres actores alcanzar los acuerdos necesarios para promover el desarrollo humano en sus comunidades.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 30688 de 4 de setiembre del 2002)
