@@ -1,0 +1,2 @@
+Artículo 4
+Respecto de los Estados Partes en el Pacto que hayan hecho una declaración en virtud del artículo 41, la competencia del Comité de Derechos Humanos para recibir y considerar comunicaciones en las que un Estado Parte alegue que otro Estado Parte no cumple con sus obligaciones se hará extensiva a las disposiciones del presente Protocolo, a menos que el Estado Parte interesado haya hecho una declaración en sentido contrario en el momento de la ratificación o la adhesión.
