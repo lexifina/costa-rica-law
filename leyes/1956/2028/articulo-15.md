@@ -1,4 +1,10 @@
-Artículo 15.- Los Bancos Nacionales podrán hacer a solicitud de la
-Caja, en calidad de préstamo a un interés no mayor del medio por ciento
-(1/2 %) mensual y por vía de redescuento, la suma necesaria para hacer la
-compra de giros que preceptúa el inciso a) del artículo 7º.
+CAPITULO IV
+Disposiciones Generales
+ARTÍCULO 15.- Para todos los efectos legales, en aquello en que no
+esté expresamente previsto en esta ley, la Caja se considerará como una
+Unión Cooperativa de Crédito y, por consiguiente, gozará de todos los
+privilegios que concede a las instituciones de esta índole la Ley de
+Asociaciones Cooperativas y Creación del Instituto de Fomento Cooperativo,
+número 4179 de 22 de agosto de 1968, reformada por la número 5185 de 20 de
+febrero de 1973, particularmente el inciso 8) del artículo 21 de ese
+ordenamiento, así como las demás leyes conexas.
