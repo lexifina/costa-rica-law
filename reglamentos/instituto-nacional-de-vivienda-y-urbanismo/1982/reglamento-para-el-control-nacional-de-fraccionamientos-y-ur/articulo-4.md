@@ -13,8 +13,8 @@ No de pisos | Tipo de construcción | Frente
 1 | Aislada | 8,00 m
 2 | Hilera | 4.00 m
 2 | Semiaislada | 7,00 m
-3 + pisos | Multifamiliar | 10,00 m
-(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3833 de 15 de junio de 1987)
+3 o más pisos | Multifamiliar | 10,00 m
+(Así reformado tácitamente por acuerdo de Junta Directiva, en su sesión N° 6 de 3 de agosto de 1987, el cual modificó la última fila de esta tabla)
 IV.2.2.2 Altura de edificación : En ausencia de Plan Regulador, la altura máxima de edificación se fija en 4 pisos y 5 en el caso de dúplex a partir de 4 piso.
 IV.2.2.3 Coberturas :
 Viviendas en 1 planta | 70 %
