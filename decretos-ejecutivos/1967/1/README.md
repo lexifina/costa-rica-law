@@ -14,3 +14,4 @@ Reglamento General de Seguridad e Higiene de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1967-02-23 | la propia norma |
+| 2 | 1980-04-30 | Decreto Ejecutivo 11429 (1980-04-30) |
