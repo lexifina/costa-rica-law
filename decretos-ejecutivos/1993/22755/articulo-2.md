@@ -1,0 +1,1 @@
+Artículo segundo.- La convocatoria para el premio la harán el Ministerio de Ciencia y Tecnología y la Academia Nacional de Ciencias en el mes de enero de cada año, en los medios de comunicación de alcance nacional.

@@ -1,0 +1,1 @@
+Artículo octavo.- El fallo del jurado se tomará por mayoría simple, será inapelable y entregado por el Ministerio de Ciencia y Tecnología a la Academia Nacional de Ciencias, el día 26 de junio de cada año, aniversario de la sanción de la Ley 7169 y de la creación de la Academia Nacional de Ciencias.

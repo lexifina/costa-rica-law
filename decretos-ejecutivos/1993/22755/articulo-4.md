@@ -1,0 +1,1 @@
+Artículo cuarto.- El premio constará de un pergamino y la suma de ¢ 150.000.00 (Ciento cincuenta mil colones). El MICIT y la Academia Nacional de Ciencias podrá revisar y ajustar este monto cuando lo esimen conveniente.

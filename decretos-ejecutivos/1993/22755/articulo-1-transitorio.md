@@ -1,0 +1,2 @@
+TRANSITORIO UNICO.- El premio TWAS se regirá aplicando para el año 1993 conforme a lo dispuesto en el acuerdo N° 904 del Consejo Directivo del CONICIT de 5 de abril de 1989, entrándose a regular con la fecha dispuesta en el artículo decimosegundo de este de este decreto a partir del año 1994.
+Dado en la Presidencia de la República.- San José, a los veinticuatro días del mes de noviembre de mil novecientos noventa y tres.

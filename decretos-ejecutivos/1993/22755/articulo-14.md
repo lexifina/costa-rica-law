@@ -1,0 +1,1 @@
+Artículo decimocuarto.- El premio a la promoción de la mejor actividad de divulgación científica y tecnológica, seguirá siendo regulado por el decreto 20604-MICIT y será entregado en conjunto por el MICIT, el CONICIT y la Asociación PROCIT el día 11 de noviembre de cada año.

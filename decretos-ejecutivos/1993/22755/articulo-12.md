@@ -1,0 +1,1 @@
+Artículo decimosegundo.- El premio TWAS para científicos jóvenes, seguirá siendo regulado, por el Acuerdo de Consejo Director del CONICIT N° 904 del 5 de abril de 1989, por el Convenio Respectivo y será entregado por el MICIT, CONICIT y Cámara de Empresas de Base Tecnológica, el día 1° de agosto de cada año, Día Nacional de la Ciencia y la Tecnología.

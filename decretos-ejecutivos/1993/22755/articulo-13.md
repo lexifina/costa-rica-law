@@ -1,0 +1,1 @@
+Artículo decimotercero.- El premio "Innovación Tacnológica" seguirá siendo regulado por la ley N° 7169 y el decreto N° 20604-MICIT y será entregado por el MICIT, CONICIT y Cámara de Empresas de Base Tecnológica, el día 14 de octubre de cada año, Día Internacional de la Metrología.

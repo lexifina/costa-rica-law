@@ -1,0 +1,1 @@
+Artículo sexto.- Para la integración del jurado, las intituciones en el representadas deberán enviar los nombres de los representantes en el mes de febrero del periodo correspondiente. En el caso de que los mismos no se envíen en el plazo establecido, el MICIT y la Academia Nacional de Ciencias quedan facultados para nombrar a dicho jurado.

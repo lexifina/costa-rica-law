@@ -1,0 +1,1 @@
+Artículo décimo.- El Premio Nacional “CLODOMIRO PICADO TWIGHT” seguirá siendo regulado por el decreto N° 22117-C-MICIT y sus reformas y será entregado por el MICIT y el Ministerio de Juventud, Cultura y Deportes.

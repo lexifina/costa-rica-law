@@ -1,0 +1,1 @@
+Artículo sétimo.- Juramentados por el Ministro de Ciencia y Tecnología, el jurado se reunirá ordinariamente una vez al mes y extraordinariamente cuando lo convoque su Presidente. En la primera reunión nombrará de su propio seno un Secretario de Actas. El quórum para sesiona será de la mitad más uno de sus integrantes y los acuerdos se tomarán por mayoría simple.
