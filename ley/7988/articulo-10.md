@@ -1,0 +1,1 @@
+Artículo 10°- Actividades en cantones diferentes. Las personas físicas o jurídicas cuyas actividades se realicen en uno o más cantones, deberán determinar qué proporción del volumen de sus negocios se genera en el cantón de Nicoya, para efectos del pago del impuesto.
