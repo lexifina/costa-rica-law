@@ -1,0 +1,2 @@
+Artículo 4°.-Comprobadas administrativamente las circunstancias expresadas y recibida que sea una joven en la Casa en virtud de ellas, recaer en la misma Casa la tutela de la hospiciana, en cuanto a la persona de ‚ ésta.
+En vista de certificación que de ello dar el Gobernador de la provincia, el Juez Civil respectivo, a solicitud de cualquier pariente de la menor, o del Ministerio Público, proceder a proveer a la hospiciana de tutor para la administración de los bienes de ella, si los tuviere.

@@ -1,0 +1,1 @@
+Artículo II.-Los derechos de patria potestad o de tutela asumidos por la casa volverán al padre o tutor si, por expulsión, tiene la hospiciana que dejar la Casa, o bien, cuando se cubran las pensiones que, como en el caso de admisión temporal, debieran haber sido satisfechas.

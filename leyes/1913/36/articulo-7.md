@@ -1,0 +1,1 @@
+Artículo 7°.-El Gobernador de la provincia dará certificación que inscribir el Registro Público, en la Sección de Personas, del hecho de haber recaído en la Casa de Refugio cualquiera de las tutelas mencionadas.
