@@ -1,0 +1,1 @@
+Artículo 2°—Del ámbito de aplicación. Estas directrices serán aplicadas por las autoridades del Ministerio de Salud para decidir cuáles requisitos debe cumplir un procedimiento analítico validado, de acuerdo a su aplicabilidad y uso en el registro de productos farmacéuticos o en el control de las buenas practicas de manufactura.

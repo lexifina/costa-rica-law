@@ -1,0 +1,21 @@
+Artículo 3°—Definiciones.
+Especificidad: habilidad de evaluar inequívocamente el analito en presencia de componentes que se puede esperar que estén presentes.
+Típicamente éstos pueden incluir impurezas, productos de degradación, la matriz, etc.
+Exactitud: (veracidad) expresa la cercanía entre el valor que es aceptado, sea como un valor convencional verdadero (material de referencia interno de la firma), sea como un valor de referencia aceptado (material de referencia certificado o estándar de una farmacopea) y el valor encontrado (valor promedio) obtenido al aplicar el procedimiento de análisis un cierto número de veces.
+Intervalo de linealidad: ámbito o rango entre la menor y la mayor concentración de analito en la muestra (incluyendo éstas concentraciones) para las cuales se ha demostrado que el procedimiento analítico tiene el nivel adecuado de precisión, exactitud y muestra que puede ser cuantitativamente determinada con exactitud aceptable. Es un parámetro del análisis cuantitativo para niveles bajos de compuestos en matrices de muestra y se usa particularmente para
+impurezas y productos de degradación. Se expresa como concentración del analito.
+Límite de detección: cantidad más pequeña de analito en una muestra que puede ser detectada por una única medición, con un nivel de confianza determinado, pero no necesariamente cuantificada con un valor exacto. Es comúnmente expresado como concentración del analito.
+Linealidad: habilidad (dentro de un ámbito dado) del procedimiento analítico de obtener resultados de prueba que sean directamente proporcionales a la concentración de analito en la muestra.
+Método analítico: adaptación específica de una técnica analítica para un propósito de medición seleccionado.
+Parámetros de desempeño analítico: características de validación que necesitan ser evaluadas y que típicamente corresponden a la siguiente lista: exactitud, precisión, especificidad, límite de detección, límite de cuantificación. linealidad, intervalo de linealidad y robustez.
+Libros oficiales: los aprobados mediante el Decreto No 28466-S del 8 de febrero del 2000 y sus modificaciones.
+Precisión: expresa la cercanía de coincidencia (grado de dispersión) entre una serie de mediciones obtenidas de múltiples muestreos de una misma muestra homogénea bajo condiciones establecidas. Puede considerarse a tres niveles: repetibilidad, precisión intermedia y reproducibilidad.
+Debe determinarse utilizando muestras originales y homogéneas.
+Sin embargo, si no es posible obtener una muestra homogénea puede ser determinada usando muestras preparadas o una disolución de la muestra.
+Procedimiento analítico: forma en que se realiza el análisis. Debe describir en detalle los pasos necesarios para realizar cada prueba analítica.
+Puede incluir, pero no necesariamente la siguiente información: características de la muestra, preparación de los estándares de referencia y reactivos, uso de los aparatos o instrumentos, generación de la curva de calibración, uso de fórmulas para los cálculos.
+Procedimiento analítico oficial: procedimiento analítico estandarizado contenido en una farmacopea oficial o libros oficiales. Se les supone validados y los laboratorios que los utilizan no están obligados a validar la exactitud de los mismos, solamente demostrar su aptitud para
+aplicarlos, validando la linealidad y precisión del sistema.
+Robustez: Medida de la capacidad de un procedimiento analítico de permanecer inafectado por pequeñas pero deliberadas variaciones en los parámetros del método y provee una indicación de su fiabilidad en condiciones de uso normales.
+Validación: confirmación que se da por la recopilación v análisis de la evidencia objetiva de que se cumplen los requisitos particulares para el uso especifico propuesto.
+Validación de un procedimiento analítico: procedimiento para establecer por medio de estudios de laboratorio, una base de datos que demuestren científicamente que un método analítico tiene las características de desempeño que son adecuadas para cumplir los requerimientos de las aplicaciones analíticas pretendidas. Implica la demostración de la determinación de las fuentes de variabilidad y del error sistemático y al azar de un procedimiento, no solo dentro de la calibración sino en el análisis de muestras reales.
