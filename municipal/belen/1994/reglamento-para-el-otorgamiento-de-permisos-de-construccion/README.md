@@ -17,3 +17,4 @@ Reglamento para el otorgamiento de Permisos de Construcción
 | 2 | 1997-03-11 | Reglamento municipal 15 (1997-03-11) |
 | 3 | 1998-10-13 | Reglamento municipal 58 (1998-10-13) |
 | 4 | 2000-01-11 | Reglamento municipal 2 (2000-01-11) |
+| 5 | 2004-08-10 | Reglamento municipal 51 (2004-08-10) |

@@ -1,7 +1,4 @@
-Artículo 48—De conformidad con el numeral 89, inc. a) de la Ley de Construcciones y al articulo 82 del Código Municipal cuando se diere el caso del inicio de una construcción sin el respectivo permiso municipal, el administrativo se aplicará la siguiente sanción.
-Una multa por concepto de recargo del 2% que se cobrará por cada mes o fracción de mes, el cual por ningún motivo podrá exceder del 50% del monto del impuesto adeudado.
-Por concepto de interés moratorios, el usuario está obligado a pagar un 2% que se calculará sobre la suma total de lo debido, las multas que corresponden hasta el día del pago efectivo.
-La referida multa y el interés correspondiente, se cobrará por la Municipalidad a partir del día siguiente en que las obras dieron inicio sin la respectiva licencia.
+Artículo 48—Así derogado por acuerdo de Consejo Municipal en sesión ordinaria N° 51 del 10 de agosto del 2004.
 (Así corrida su enumeración por acuerdo de Consejo Municipal en sesión ordinaria N° 2 del 11 de enero del 2000, que pasa del 45 al 48 actual)
 Se acuerda: Por unanimidad aprobar el Reglamento para el Otorgamiento Permisos de Construcción.
 Belén, 15 de febrero de 1994
