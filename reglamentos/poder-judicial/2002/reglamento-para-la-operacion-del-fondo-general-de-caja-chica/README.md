@@ -14,3 +14,4 @@ Reglamento para la operación del fondo general de caja chica del Poder Judicial
 | --- | --- | --- |
 | 1 | 2002-03-06 | la propia norma |
 | 2 | 2002-11-11 | Reglamento 51 (2002-11-11) |
+| 3 | 2004-02-23 | Reglamento 6 (2004-02-23) |

@@ -1,1 +1,1 @@
-Artículo 2°—Gastos autorizados. Los fondos de la Caja Chica deberán ser utilizados en el pago de gastos menores, así como en la adquisición de bienes y servicios indispensables, que se presenten en forma ocasional y que justifiquen su pago fuera de los trámites ordinarios establecidos.
+Artículo 2º—Gastos autorizados. Los fondos de la Caja Chica deberán ser utilizados en el pago de gastos menores, así como en la adquisición de bienes y servicios indispensables, que se presenten en forma ocasional y que justifiquen su pago fuera de los trámites ordinarios establecid
