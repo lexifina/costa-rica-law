@@ -1,4 +1,5 @@
 N° 4351
+(Nota de Sinalevi: Mediante el artículo 131 de la Ley de Presupuesto, N° 6700 del 23 de noviembre de 1973, se interpretó de forma auténtica, para todos los efectos y en forma permanente, que el Banco Popular y de Desarrollo y Comunal, creado por ley Nº 4351 del 11 de julio de 1969, es una institución de derecho público no estatal.)
 (Nota de Sinalevi: De conformidad con el artículo 30 de la Ley para Garantizar al País Mayor Seguridad y Orden, N° 6122 del 17 de noviembre de 1977, se estableció lo siguiente: “Artículo 30.- Las disposiciones de esta ley se aplicarán tanto al Banco Popular y de Desarrollo Comunal como al Monte Nacional de Piedad, los cuales se regirán en lo pertinente por las disposiciones de esta ley y su reglamento.”)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
