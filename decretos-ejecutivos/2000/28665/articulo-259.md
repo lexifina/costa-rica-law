@@ -1,1 +1,1 @@
-Artículo 259.—Las funciones de inspección de la producción y control del mercadeo de las mieles finales en los ingenios, las ejercerá la Liga de la Caña, durante la molienda, por medio del inspector del Departamento Técnico, destacado en el ingenio y, a posteriori y facultativamente por dicho Departamento y la Auditoría Interna.
+Artículo 259.— DEROGADO por el artículo 5 del Decreto Ejecutivo N° 29972 de 2 de noviembre del 2001.

@@ -36,8 +36,12 @@ Ingenio: Entidad dedicada al recibo y procesamiento de caña para la elaboració
 Junta Directiva o Junta: Junta Directiva de la Liga Agrícola Industrial de la Caña de Azúcar.
 Ley: La Ley Orgánica de la Agricultura e Industria de la Caña de Azúcar Nº 7818 de 2 setiembre de 1998.
 Liga Agrícola Industrial de la Caña de Azúcar, Liga de la Caña, Liga o LAICA: Corporación indicada por en el artículo 4 de la Ley.
+Miel final en cuota: Es la miel final resultante del procesamiento de la caña de azúcar entregada para producir azúcar en régimen de cuota, de conformidad con la ley.
+Miel final en extracuota o excedentes: Es la miel final resultante del procesamiento de la caña de azúcar entregada para producir azúcar en régimen de extracuota, de conformidad con la ley.
+Miel final o melaza: Es el residuo líquido resultante de separar, por medios centrífugos, del licor madre los cristales de azúcar, del cual no resulta económico extraer más azúcar.
 Molienda: Período comprendido desde el inicio hasta la conclusión de la industrialización de la caña de azúcar por un ingenio en una zafra.
 Organización del sector cañero: Federación o Unión a que se refiere el artículo 42 de la Ley.
 Productor independiente de caña, productor independiente de caña pequeño y mediano y productor independiente nuevo: Productores definidos en los artículos 54 y 56 de la Ley.
 Rendimiento provisional estimado: Es el producto del rendimiento calculado en azúcar de 96º Pol y miel final, mediante el Sistema Directo de Compra de Caña por su Calidad, multiplicado por el Factor de Adelanto de Azúcar (%AA) y de miel final (%AM).
 Rendimiento producido: Es el rendimiento en términos de azúcar de 96º Pol, producido por el ingenio.
+(Así ampliado por el artículo 1 del Decreto Ejecutivo N° 29972 de 2 de noviembre del 2001)

@@ -1,1 +1,3 @@
-Artículo 369.—Para la conversión a que se refiere el antepenúltimo párrafo del artículo 14 de la Ley, se aplicará lo siguiente: La conversión de azúcares de diferente grado de polarización a azúcar de 96º Pol, se hará mediante la división de la polarización correspondiente entre 96º Pol.
+Artículo 369.—Será obligación del ingenio informar a la Liga del precio de la miel final exportada, sin que se le permita deducir suma alguna no autorizada dentro del ordenamiento jurídico.
+Es facultad de la Junta Directiva de la Liga, previo dictamen del Consejo de Comercialización de la Liga de la Caña, rechazar cualquier negociación cuyo precio de venta sea visiblemente inferior a las cotizaciones de ventas de los mercados. La falta de pago parcial o total de cualquier exportación de miel final no podrá perjudicar directa ni indirectamente a los productores de caña.
+(Así adicionado por el artículo 3 del Decreto Ejecutivo N° 29972 de 2 de noviembre del 2001)

@@ -1,0 +1,2 @@
+Artículo 375.—Las funciones de inspección de la producción y control del mercadeo de las mieles finales en los ingenios, las ejercerá la Liga de la Caña, durante la molienda, por medio del inspector del Departamento Técnico, destacado en el ingenio y, a posteriori y facultativamente por dicho Departamento y la Auditoría Interna.
+(Así adicionado por el artículo 3 del decreto Ejecutivo N° 29972 de 2 de noviembre del 2001)

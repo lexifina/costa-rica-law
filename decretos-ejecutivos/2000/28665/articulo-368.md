@@ -1,3 +1,3 @@
-CAPÍTULO QUINTO
-Disposiciones varias
-Artículo 368.—La Asamblea General en su carácter de Órgano Superior de Dirección y Administración Internas de la Liga, cuando lo considere necesario para el mejor funcionamiento de la Corporación y más eficaz cumplimiento de sus fines, podrá autorizar al Consejo de Comercialización recargar, con el voto calificado previsto en el artículo 37 de la Ley, las funciones que corresponden al Director de Comercialización, en la persona que desempeñe el cargo de Director Ejecutivo, siempre que la Junta Directiva esté de acuerdo con tal recargo.
+Artículo 368.—Cada mes, los ingenios comunicarán a la Liga las ventas de miel de cuota. La Liga tendrá plena autoridad para revisar todos los comprobantes concernientes a estas ventas. Se aplicará lo dispuesto en los artículo 137 y 138 de la ley en relación con el literal n) del artículo 166 del expresado ordenamiento.
+También se aplicará lo dispuesto en los numerales 258, 259, 260, 261, 262 y 263 de este Reglamento.
+(Así adicionado por el artículo 3 del Decreto Ejecutivo N° 29972 de 2 de noviembre del 2001)

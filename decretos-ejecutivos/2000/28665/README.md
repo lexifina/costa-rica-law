@@ -14,3 +14,4 @@ Reglamento Ley Orgánica Agricultura e Industria de la Caña de Azúcar(Para Efe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-09 | la propia norma |
+| 2 | 2001-11-02 | Decreto Ejecutivo 29972 (2001-11-02) |

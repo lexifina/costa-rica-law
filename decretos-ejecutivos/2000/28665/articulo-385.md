@@ -1,0 +1,2 @@
+Artículo 385.—Para la conversión a que se refiere el antepenúltimo párrafo del artículo 14 de la Ley, se aplicará lo siguiente: La conversión de azúcares de diferente grado de polarización a azúcar de 96º Pol, se hará mediante la división de la polarización correspondiente entre 96º Pol.
+(Así modificada su numeración por el artículo 4 del Decreto Ejecutivo N° 29972 de 2 de noviembre del 2001, que lo pasó del 369 al 385)

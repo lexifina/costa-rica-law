@@ -1,5 +1,9 @@
 CAPÍTULO CUARTO
-Facultades de los inspectores de la Liga
-Artículo 364.—En aplicación del artículo 173 de la Ley, los inspectores nombrados por la Liga, División Corporativa, para velar por el cumplimiento de dicha legislación y sus reglamentos, tendrán la autoridad necesaria y suficiente para intervenir, investigar y actuar, con el propósito de asegurar el citado cometido.
-Es entendido que dentro de las facultades especificadas anteriormente, queda comprendida la de hacer las investigaciones o averiguaciones que consideren necesarias para determinar si se han cometido o no los actos u omisiones ilícitos a que se refieren los artículos 166, 168 y 174 de la Ley.
-Los inspectores de la Liga deberán tener, como mínimo, el título de Bachiller en Educación Media.
+Regulación y disposición de las mieles finales
+SECCIÓN I
+Artículo 364.—La Junta Directiva fijará anualmente, antes de iniciarse la zafra, el destino de las mieles finales de cuota que se produzcan conforme a sus estimaciones, con el propósito de:
+a) Satisfacer las necesidades de miel final, que requiere en ese período el consumo nacional para uso directo o bien como insumo en la elaboración de productos, independientemente de que se vendan en el mercado interno o externo, Los referidos requerimientos serán calculados por la Liga con arreglo a las estadísticas existentes, las encuestas que realice y los demás elementos de juicio que considere convenientes
+b) Satisfacer los mercados preferenciales internacionales que hubieren.
+c) Los remanentes de la miel final en cuota, una vez satisfechos los mercados indicados en los literales a) y b) anteriores, se destinarán a la exportación.
+Dicha fijación podrá variarse en el transcurso de la zafra, cuando la Junta Directiva lo considere conveniente.
+(Así adicionado por el artículo 3 del Decreto Ejecutivo N° 29972 de 2 de noviembre del 2001)
