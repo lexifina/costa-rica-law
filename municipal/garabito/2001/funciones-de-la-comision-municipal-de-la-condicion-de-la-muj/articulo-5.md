@@ -1,0 +1,1 @@
+5°—Promover iniciativas en el Concejo y en otros Organismos, que faciliten la ejecución de proyectos y el uso de recursos locales, nacionales e internacionales, que permitan impulsar acciones reales de igualdad y equidad de género.
