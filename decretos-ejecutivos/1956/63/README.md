@@ -16,3 +16,4 @@ Reglamento de Estaciones Inalámbricas
 | 2 | 1956-12-16 | SINALEVI (sin norma nombrada) |
 | 3 | 2000-11-09 | Decreto Ejecutivo 29080 (2000-11-09) |
 | 4 | 2001-04-24 | SINALEVI (sin norma nombrada) |
+| 5 | 2003-09-19 | Decreto Ejecutivo 31393 (2003-09-19) |
