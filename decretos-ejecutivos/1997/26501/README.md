@@ -13,3 +13,4 @@ Norma RTCR 248:1997 Productos del Petróleo Cementos Asfálticos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-12-08 | la propia norma |
+| 2 | 2002-12-13 | Decreto Ejecutivo 30911 (2002-12-13) |

@@ -26,6 +26,7 @@ Este reglamento técnico tiene por objeto establecer las características y requ
 3. REQUISITOS OBLIGATORIOS
 3.1 Los cementos asfálticos deben ser preparados mediante la refinación del crudo de petróleo por medios y procedimientos industriales científicamente sustentados, deben ser homogéneos, no deben contener agua ni formar espuma cuando se calientan a 175°C y deben cumplir con las especificaciones físicas y químicas descritas en las tablas siguientes.
 TABLA N° 1: Ver tabla en la Gaceta N° 236 del 8/12/1997, pág.5.
+(Nota: La tabla N°1 fue reformada por el artículo 1° del Decreto Ejecutivo N° 30911 de 13 de diciembre de 2002)
 TABLA N" 2: Requisitos químicos de los cementos asfálticos para todos los grados de viscosidad.
 CEMENTOS ASFÁLTICOS
 Características Máximo
