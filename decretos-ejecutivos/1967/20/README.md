@@ -19,3 +19,4 @@ Reglamento Ley sobre el Desarrollo de la Comunidad
 | 4 | 1972-02-04 | Decreto Ejecutivo 2199 (1972-02-04) |
 | 5 | 1972-05-08 | Decreto Ejecutivo 2348 (1972-05-08) |
 | 6 | 1972-08-18 | Decreto Ejecutivo 2498 (1972-08-18) |
+| 7 | 1974-04-18 | Decreto Ejecutivo 3715 (1974-04-18) |

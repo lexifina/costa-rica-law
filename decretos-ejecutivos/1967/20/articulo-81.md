@@ -1,2 +1,2 @@
-Artículo 81.- Las asociaciones de desarrollo especifico podrán con los mismos procedimientos de las asociaciones de desarrollo integral formar uniones cantonales, federaciones y confederaciones nacionales (Artículos 15 y 41 de la Ley). En las Juntas Directivas de las uniones cantonales de desarrollo específico tendrán una representación no mayor del 25% de la Junta Directiva con voz y voto”.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 6 del 6 de febrero de 1969)
+Artículo 81.- Las Asociaciones de Desarrollo Específico, podrán formar parte de la Unión Cantonal de la Jurisdicción, haciéndose representar en la Asamblea Constitutiva o afiliándose posteriormente, mediante solicitud dirigida a la Junta Directiva de la Unión, incluyendo una copia del Acuerdo de la Asamblea que autorizó la afiliación.
+(Así reformado por el artículo único del decreto ejecutivo N° 3715 del 18 de abril de 1974)
