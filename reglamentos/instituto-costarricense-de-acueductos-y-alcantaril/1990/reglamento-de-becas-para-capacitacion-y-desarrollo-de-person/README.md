@@ -14,3 +14,4 @@ Reglamento de Becas para Capacitación y Desarrollo de Personal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-05-14 | la propia norma |
+| 2 | 2004-01-09 | Reglamento 546 (2004-01-09) |
