@@ -1,0 +1,2 @@
+Artículo 25.—La anualidad en un tres coma cinco por ciento (3,5%), calculada sobre el salario base, se reconocerá para las personas profesionales en Enfermería, con grado académico de Licenciatura o uno superior. Además podrán acogerse al beneficio de la dedicación exclusiva, el cual se calculará como el cincuenta y cinco por ciento (55%) adicional sobre el salario base.
+( Así adicionado mediante el artículo 3° de la Ley N° . 8423 del 7 de octubre del 2004) .
