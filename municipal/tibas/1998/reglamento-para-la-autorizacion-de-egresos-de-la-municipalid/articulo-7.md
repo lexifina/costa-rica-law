@@ -1,0 +1,1 @@
+Artículo 7°—El Concejo autorizará la apertura de una Caja Chica, para realizar pagos menores al diez por ciento del fondo lijo. El fondo fijo de !a Caja Chica corresponderá al cero punto tres por ciento del presupuesto anual de la Municipalidad de Tibás.

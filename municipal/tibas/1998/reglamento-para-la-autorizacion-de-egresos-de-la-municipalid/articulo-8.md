@@ -1,0 +1,1 @@
+Artículo 8°—El Tesorero será el responsable del manejo y custodia de esa Caja Chica y deberá hacer una liquidación semanal de la misma para mantener actualizado el fondo fijo. Hará un informe del estado de esa Caja. que entregará mensualmente al Alcalde Municipal con copia para la Auditoría Interna.

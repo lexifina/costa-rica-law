@@ -1,0 +1,1 @@
+Artículo 5°—En lodos los demás casos, el Alcalde debe solicitar la autorización previa del Concejo Municipal, ames de la realización del desembolso, so pena de contravenir las normas administrativas y municipales aplicables a esta materia y en especial los artículos 6, 7 y 8 de la Ley de Administración Financiera de la República.
