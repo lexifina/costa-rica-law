@@ -1,0 +1,1 @@
+ARTICULO 3°.-La Comisión de Emergencia Nacional- Reservas Indígenas, CENRI, y la Asociación de Desarrollo Integral de la Reserva Indígena Cabécar de Tayni, Estrella, traspasarán sus derechos de propiedad al Servicio de Parques Nacionales del Ministerio de Agricultura y Ganadería, MAG, mediante escritura pública otorgada ante la notaría del Estado.
