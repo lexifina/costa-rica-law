@@ -1,0 +1,1 @@
+Artículo 29.—De la eliminación del beneficio. No se entregaran más aportes a las instituciones que incumplan en todo o en parte los alcances de su convenio con el ICODER y este Reglamento, hasta tanto no se efectúen las correcciones correspondientes.

@@ -1,0 +1,1 @@
+Artículo 9°—Del presupuesto. Todo beneficiario que pretenda un aporte debe elaborar un proyecto de presupuesto o plan de gastos a los que asignará los recursos que reciba. Dicho plan deberá ser elaborado siguiendo la clasificación de Ingresos y Egresos de la Contraloría, deberá ser aprobado por el Departamento Financiero y su liquidación deberá obedecer al mismo.

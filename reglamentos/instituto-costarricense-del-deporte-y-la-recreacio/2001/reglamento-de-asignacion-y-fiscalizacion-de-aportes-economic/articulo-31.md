@@ -1,0 +1,1 @@
+Artículo 31.—Acceso a información por parte del ICODER. Tanto las instituciones públicas como los beneficiarios estarán obligados a brindarle al ICODER, dentro del plazo que éste indique, toda la información que se les requiera, así como acceso a toda la documentación necesaria para el cumplimiento de su deber legal.

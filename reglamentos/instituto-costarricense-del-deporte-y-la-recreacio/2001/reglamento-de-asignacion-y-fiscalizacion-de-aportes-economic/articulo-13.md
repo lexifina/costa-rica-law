@@ -1,0 +1,1 @@
+Artículo 13.—De los aportes pendientes. Bajo ninguna circunstancia se podrá entregar un nuevo aporte al beneficiario si tiene un aporte anterior pendiente de liquidar o no ha presentado las justificaciones debidas que el ICODER aceptará según su criterio. Tampoco podrá recibir ningún aporte el beneficiario que haya incumplido injustificadamente con los términos del convenio.

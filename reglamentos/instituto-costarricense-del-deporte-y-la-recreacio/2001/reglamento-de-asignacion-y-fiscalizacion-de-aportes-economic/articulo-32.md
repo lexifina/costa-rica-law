@@ -1,0 +1,1 @@
+Artículo 32.—Facultades del ICODER en cuanto a fondos girados por otras instituciones. El ICODER estará facultado para tomar todas las acciones necesarias, incluyendo la determinación de plazos o presentación de denuncias ante las instancias administrativas y judiciales correspondientes, que garanticen la puntual y eficaz rendición de cuentas de esos fondos.

@@ -1,0 +1,1 @@
+Artículo 26.—De la intervención de la Auditoría Interna del ICODER. La Auditoria Interna del ICODER incluirá dentro de su Plan de Trabajo Anual la revisión de los aportes entregados y elaborará los informes o memorandos correspondientes.

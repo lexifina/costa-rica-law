@@ -1,0 +1,1 @@
+Artículo 7°—De la personería jurídica. No se otorgará ningún aporte si el ente beneficiario no cuenta con la personería jurídica vigente y su plazo sea lo suficientemente amplio como para que cubra el período de la liquidación del aporte y sus posteriores revisiones.

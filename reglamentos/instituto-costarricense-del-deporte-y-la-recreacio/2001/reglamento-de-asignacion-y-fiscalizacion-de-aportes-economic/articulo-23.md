@@ -1,0 +1,1 @@
+Artículo 23.—Del control de las sumas no liquidadas. El Departamento Financiero presentará al Consejo, junto con la liquidación presupuestaria correspondiente al primero, segundo, tercero o cuarto trimestre de cada año, un anexo detallando la lista de aportes no liquidados y explicando en cada caso la situación de cada uno de ellos en ese momento.

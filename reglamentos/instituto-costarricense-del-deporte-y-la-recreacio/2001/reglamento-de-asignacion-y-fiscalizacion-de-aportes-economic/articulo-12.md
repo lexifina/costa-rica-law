@@ -1,0 +1,1 @@
+Artículo 12.—De la administración del aporte. Los recursos serán administrados por el ente beneficiario y solo podrán ser utilizados para el fin señalado en el convenio, de manera que no podrán ser transferidos a terceros ni utilizados en otros fines.
