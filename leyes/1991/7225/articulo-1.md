@@ -1,3 +1,4 @@
+(Derogado)
 N° 7225
 (Nota de Sinalevi: Esta norma tendrá una vigencia de tres años a partir de su publicación en el Diario Oficial La Gaceta, según lo establecido en el numeral 7 de esta ley. Por tanto, estará vigente hasta el 8 de mayo de 1994)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
