@@ -1,0 +1,2 @@
+ARTICULO 99.- Refórmase el inciso ch) del artículo 13 de la ley Nº 4762 del 8 de mayo de 1971, modificado por la ley Nº 5388 del 19 de octubre de 1973, para que diga de la siguiente manera:
+ch) Disponer de los recursos que se obtengan por cualquier medio, para el mantenimiento y la construcción de la infraestructura penitenciaria, incluida la adquisición de bienes y la contratación de servicios, así como para el mejoramiento de las condiciones de los internos en el Sistema Penitenciario, a efecto de lograr un mayor respeto de los Derechos Humanos."
