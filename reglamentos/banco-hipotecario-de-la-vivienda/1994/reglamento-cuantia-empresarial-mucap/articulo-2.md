@@ -1,0 +1,2 @@
+2. TITULAR DE UNA CUENTA EMPRESARIAL - MUCAP
+Toda persona física mayor de edad o jurídica legal mente capaz, podrá ser titular de una Cuenta Empresarial; para tal efecto deberá presentar según corresponda copia de la cédula de identidad o copia de la cédula y certificación notarial de personería jurídica: en este segundo caso deberá presentarse además una carta firmada por el representante legal de la empresa, indicando quienes serán las personas autorizadas para realizar movimientos sobre la cuenta, los cuales no podrán ser más de dos.

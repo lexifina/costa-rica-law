@@ -1,0 +1,3 @@
+6. TASA DE INTERÉS
+a) La tasa de interés que se paga se ubica en un punto intermedio entre lo que paga MUCAP por certificados de depósito a un mes plazo y las Cuentas de Ahorro. La tasa de interés se revisará diariamente y se fijará una nueva tasa de acuerdo a las variaciones en la tasa de interés que paga MUCAP por depósitos a un mes plazo emitidos en ventanilla.
+b) La Junta Directiva de MUCAP será quien fije la tasa de interés aplicable a la Cuenta Empresarial, de conformidad con el art. 18 del Reglamento de Garantías y otras Operaciones afines al Sistema Financiero Nacional para la Vivienda.

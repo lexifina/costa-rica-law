@@ -1,0 +1,4 @@
+REGLAMENTO CUANTÍA EMPRESARIAL-MUCAP
+El presente Reglamento regula las relaciones entre el titular de la Cuenta Empresarial, en adelante denominado el inversionista, y la Mutual Cartago de Ahorro y Préstamo, citada en adelante como MUCAP. La aceptación de la Libreta "Cuenta Empresarial" por parle del inversionista o su apoderado, así como su firma en la "Tarjeta de Control", constituirán su aceptación a las disposiciones del presente Reglamento y a las futuras regulaciones.
+1. DESCRIPCIÓN
+La Cuenta Empresarial es una cuenta por medio de la cual el publico inversionista (personas físicas o jurídicas) en especial empresarios, pueden realizar colocaciones de dinero a la vista ganando intereses diarios pagaderos mensualmente y con todas tas transacciones reflejadas en un solo documento: la libreta de ahorro "Cuenta Empresarial".

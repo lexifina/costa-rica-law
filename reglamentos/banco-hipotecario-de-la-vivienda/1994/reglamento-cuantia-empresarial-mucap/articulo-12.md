@@ -1,0 +1,2 @@
+12. CLAUSULAS NO PREVISTAS
+Lo no previsto en el presente Reglamento, se regirá de conformidad con la Ley del Sistema Financiero Nacional para la Vivienda, con el Reglamento de Garantías y otras Operaciones Afines al Sistema Financiero Nacional para la Vivienda, con las Normas sobre los Depósitos de Ahorro de la MUCAP, las disposiciones emitidas por el Banco Hipotecario de la Vivienda (BANHVI) y la legislación común.
