@@ -1,0 +1,1 @@
+Art. 6. El presente decreto será sometido al Congreso de la República para que en los consejos de su sabiduria delibere lo que tenga á bien, -Dado en la ciudad de San José a los quince dias del mes de noviembre de mil ochocientos cuarenta y ocho.-José Maria Castro.-El Ministro de relaciones y gobernacion, Joaquin Bernardo Calvo.
