@@ -1,0 +1,1 @@
+Artículo 17.—Las modificaciones contempladas en el artículo anterior se comunicarán a los Gobiernos Centroamericanos y a la SIECA, a efecto de dar cumplimiento a lo dispuesto en el Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.

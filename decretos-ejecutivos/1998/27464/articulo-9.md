@@ -1,0 +1,1 @@
+Artículo 9°—La declaración aduanera debe indicar el número de VIN del vehículo, o en su ausencia el de chasis y motor. Tales números se confrontarán con los registros existentes, informáticos o de otra naturaleza que posea la Dirección General de Aduanas para verificar en lo conducente la veracidad de lo declarado.

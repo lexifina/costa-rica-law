@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 27464
+
+Reglamento de racionalización de la carga tributaria a los vehículos automotores y sus accesorios.
+
+- Tipo: Decreto Ejecutivo
+- Número: 27464
+- Fecha: 1998-11-26
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 232 del 1998-11-30, Alcance 86-A
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=53249&param2=57996&param3=1 (ficha 53249)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1998-11-30 | la propia norma |
