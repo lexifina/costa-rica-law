@@ -1,0 +1,2 @@
+Artículo 36.
+La determinación de la ubicación de los intermediarios financieros dentro de alguno de los niveles señalados en este Reglamento se efectuará mensualmente con base en la información financiera remitida por las entidades fiscalizadas con corte al mes inmediato anterior; con los montos de pérdidas estimadas en activos, cuantificados en la forma señalada en el anexo 2 de este Reglamento, y con la calificación del elemento gestión que esté vigente a la fecha corte con que se elabora la clasificación.

@@ -1,0 +1,2 @@
+Artículo 24.
+Cuando la entidad se encuentre dentro del plazo concedido por el Superintendente según el Capítulo III de este Reglamento, y su calificación global, o su índice de suficiencia patrimonial según el Acuerdo SUGEF 23, lo ubique en un grado de inestabilidad o irregularidad financiera mayor, regirá esta última calificación y se procederá conforme lo establece esta normativa para el nuevo grado de inestabilidad o irregularidad financiera.

@@ -1,0 +1,2 @@
+Artículo 15.
+Para definir la puntuación de cada uno de los elementos de riesgo, se suman las ponderaciones determinadas para cada indicador, resultando un valor entre 1 y 4. Corresponde entonces el 1 a un elemento en nivel normal y 4 a un elemento en nivel 3. Para obtener la calificación cuantitativa se suma el resultado obtenido en cada elemento y se divide entre 6, según se observa en el Anexo 1.

@@ -1,0 +1,2 @@
+Artículo 18.
+La calificación cualitativa de cada fiscalizado será revisada al menos una vez al año, salvo que el Consejo Nacional de Supervisión del Sistema Financiero, a pedido del Superintendente, determine que existan prioridades de evaluaciones "in situ" en otras entidades, en cuyo caso estará eximido de cumplir esta disposición. Ningún supervisado podrá variar la calificación asignada sin la autorización previa del Superintendente.
