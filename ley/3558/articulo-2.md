@@ -1,0 +1,1 @@
+Artículo 2º.- La Junta de Protección Social de San José formará un fondo específico con el producto recaudado en virtud de la aplicación de las disposiciones a que se refiere el artículo 1º de esta ley, para ser empleado única y exclusivamente en la construcción y atención del Hospital Neurosiquiátrico Manuel Antonio Chapuí.
