@@ -1,0 +1,1 @@
+Art.5°.- Es un deber en éstos casos la asistencia del Jefe Político superior, Comandante General, é intendente; de los Ministros generales de Hacienda, Juez de letras, oficiales, militares y Municipalidad de la capital. Colocados a la cabeza los tres primeros indistintamente, en seguida interpolados los demás.

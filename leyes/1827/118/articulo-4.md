@@ -1,0 +1,1 @@
+Art 4°.- En seguida se colocarán al mismo lado, los Diputados, Consejeros, Magistrados de la Corte y Secretario del Despacho, indistintamente, y después de éstos los Secretarios del Consejo y de la Corte.
