@@ -1,2 +1,0 @@
-Artículo 30.- La Corporación de Inversiones deberá informar al Banco Central a más tardar el primero de diciembre de cada año de sus planes a realizar durante el período siguiente. Asimismo, a más tardar el primero de febrero de cada año deberá informar al Instituto Emisor de las labores realizadas durante el período anterior.
-Para efecto de este artículo, cada período se extiende del primerode enero al treinta y uno de diciembre de cada año.

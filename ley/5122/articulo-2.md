@@ -1,1 +1,0 @@
-Artículo 2º.- La Corporación se constituye con las características de una sociedad anónima, y se regirá por las disposiciones de esta ley y sus reglamentos y supletoriamente por las disposiciones sobre la materia contempladas en el Código de Comercio.
