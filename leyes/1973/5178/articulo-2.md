@@ -1,0 +1,1 @@
+Artículo 2°-El Banco Central concederá las divisas oficiales que fuere necesario otorgar para el proyecto de construcción de las instalaciones para la Cooperativa de Electrificación Rural de los cantones de Alfaro Ruiz y Naranjo, zona Norte, en todo lo referente a la importación de materiales y equipos indispensables.
