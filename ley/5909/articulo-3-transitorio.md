@@ -1,12 +1,34 @@
-Transitorio III.- ¢ 4.000.000 (cuatro millones de colones), de los recursos indicados en el artículo 8º de esta ley, tendrán el siguiente destino:
-a) ¢ 1.600.000 (dos millones de colones), para la Comisión Provivienda de Familias Pobres de Paraíso, para captación del ojo de agua conocido como "Luis Guzmán, y otras obras de infraestructura y construcción de vivienda a personas de escasos recursos.
-b) ¢ 800.000 (ochocientos mil colones), para necesidades de capacitación de la zona atlántica del país.
-c) ¢ 200.000 (doscientos mil colones), para la Junta Administrativa del Colegio de Paraíso, para obras y gastos varios.
-ch) ¢ 400.000 (cuatrocientos mil colones), para el Centro Regional Universitario de Limón.
-d) ¢ 400.000 (cuatrocientos mil colones), iluminación estadio de Turrialba.
-e) ¢ 200.000 (doscientos mil colones), construcción parque infantil de San Rafael de Oreamuno.
-f) ¢ 50.000 (cincuenta mil colones), para la Filial de ANDE, de maestros pensionados de Paraíso, para construcción de la "Casa del Maestro Pensionado".
-g) ¢ 500.000 (Quinientos mil colones), para la Junta de Educación del cantón de Paraíso, distribuidos de la siguiente forma:
-h) ¢ 50.000 (cincuenta mil colones), a la Junta de Educación de Paraíso, para gastos y obras varias de la Supervisión Escolar de la Microrregión 10 de Paraíso. ¢ 1.000.000 (un millón de colones), para financiar la construcción, adquisición de equipo y funcionamiento de los centros educacionales, que este instituto tiene ubicados en los barrios del Sur de la cuidad de San José.
-Para los estudios, obras y programas indicados en el párrafo anterior, se autoriza al Instituto Nacional de Aprendizaje para negociar los créditos necesarios con la garantía de los Recursos señalados en el artículo 8º de esta ley. Los recursos que tenga el Instituto Nacional de Aprendizaje, obtenidos por medio de esta ley, serán traspasados hasta un monto de..... ¢ 4.000.000 (cuatro millones de colones), a las instituciones indicadas en este transitorio.
-(Así reformado por el artículo 9° de la ley N° 6542 de 22 de diciembre de 1980).
+Transitorio III.- Cuatro millones de colones (½4.000.000,00), de los recursos indicados en el artículo 8§ de esta ley, tendr n la siguiente finalidad:
+a) Un millón quinientos mil colones (½1.500.000,00) destinados al Instituto Costarricense de Acueductos y Alcantarillados, para trabajos de distribución de agua potable a la ciudadela, que por esta ley se establece.
+b) Un millón doscientos mil colones (½1.200.000,00) destinados al Instituto Nacional de Vivienda y Urbanismo, para obras de infraestructura y construcción de las viviendas a que se refiere esta ley. Estas obras se realizar n en un plazo de hasta un año a partir de la vigencia de ésta.
+c) Doscientos mil colones (½200.000,00) destinados a la Junta Administrativa del Colegio de Paraíso, para obras y gastos varios.
+ch) Cincuenta mil colones (½50.000,00) destinados a la filial de ANDE de maestros pensionados de Paraíso, para la construcción de la casa del maestro pensionado.
+d) Quinientos mil colones (½500.000,00) para las juntas de educación del cantón de Paraíso, distribuidos de la siguiente manera:
+Ajenjal...................................... ½ 20.000
+Alto de Araya................................ 15.000
+Vicente Lachner.............................. 20.000
+Florencio del Castillo....................... 25.000
+Alvaro Esquivel.............................. 20.000
+El Yas....................................... 20.000
+Jos‚ María Loría............................. 15.000
+Juan Evangelista Sojo........................ 20.000
+Mario Picado S enz........................... 15.000
+Loaiza....................................... 20.000
+Orosi........................................ 30.000
+Palomo....................................... 25.000
+Goicoechea................................... 50.000
+Eugenio Corrales............................. 40.000
+Felipe J. Alvarado........................... 20.000
+Purisil...................................... 15.000
+Queberi...................................... 15.000
+La Fuente.. .................................. 15.000
+Miguel Picado B.............................. 25.000
+Clemente Avendaño............................ 20.000
+Urasca....................................... 20.000
+Peñas Blancas................................ 20.000
+Escuela Nocturna............................. 15.000
+e) Cincuenta mil colones (½50.000,00) destinados a la Junta de Educación de Paraíso, para gastos y obras varias de la Supervisión de la Microrregión 10 de Paraíso.
+f) Doscientos mil colones (½200.000,00) destinados a la Municipalidad de Turrialba, para obras de infraestructura y construcción de viviendas a familias de escasos recursos económicos en la finca La Mora , en coordinación con el Instituto Nacional de Vivienda y Urbanismo y trescientos mil colones (½300.000,00) para el Centro Regional Universitario de Limón.
+g) Las Municipalidades de Paraíso, Alvarado y Turrialba pueden destinar los fondos acumulados, por efecto de la ley número 6282 del 10 de noviembre de 1977 "Plan Municipal de Desarrollo Urbano", a las obras de infraestructura y construcción de Viviendas a familias de escasos recursos económicos, durante diez a¤os consecutivos a partir de la vigencia de esta ley, en programas coordinados con el Instituto Nacional de Vivienda y Urbanismo.
+Los recursos obtenidos por el Instituto Nacional de Aprendizaje, mediante esta ley, ser n traspasados hasta un monto de ½4.000.000,00 (cuatro millones de colones), a las instituciones indicadas en este transitorio".
+(Así reformado por el artículo 5 de la ley N° 6589 de 15 de agosto de 1981).
