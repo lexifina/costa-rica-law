@@ -1,1 +1,0 @@
-Artículo 2°.—El trabajo que ejecuten las personas dichas en el artículo anterior, fuera de las horas normales estipuladas, se considerará como extraordinario y deberá pagarse así: el veinticinco por ciento más del jornal o sueldo corriente por las tres primeras horas del trabajo extraordinario y por las restantes el cincuenta por ciento más por lo menos.

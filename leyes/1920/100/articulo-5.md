@@ -1,2 +1,0 @@
-Artículo 5°—Comprobada administrativamente la violación de lo prescrito en esta ley, se declara la caducidad del pacto entre patrones y obreros que eluda lo que aquí se dispone y además será penada la falta con multas de quinientos a cinco mil colones, según la índole de la trasgresión y la importancia y número de trabajadores que estuvieron al servicio del patrón o de la Empresa y el radio de negocios de uno u otra.
-(Así adicionado por ley N° 166 del 27 de agosto de 1929)
