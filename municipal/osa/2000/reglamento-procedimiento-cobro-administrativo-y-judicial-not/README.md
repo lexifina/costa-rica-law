@@ -14,3 +14,4 @@ Reglamento procedimiento Cobro Administrativo y Judicial (NOTA: La Municipalidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-01 | la propia norma |
+| 2 | 2000-02-01 | Ley 7 |
