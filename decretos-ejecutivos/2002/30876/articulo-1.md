@@ -1,0 +1,12 @@
+Nº 30876-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, los artículos 26 y 27 de la Ley General de la Administración Pública y la Ley N° 7839 del 15 de octubre de 1998.
+Considerando:
+1º—Que el Instituto Nacional de Estadística y Censos (INEC), creado mediante Ley N° 7839 del 15 de octubre de 1998, como institución autónoma de derecho público, es el órgano rector técnico de las Estadísticas Nacionales y Coordinador del Sistema Estadístico Nacional (SEN).
+2º—Que con fundamento en el artículo 35 de la Ley de creación del INEC, esta institución puede recibir transferencias, aportes y donaciones de instituciones públicas, personas físicas o jurídicas y de cualesquiera otras entidades nacionales o extranjeras, así como recursos de cooperación internacional puestos a disposición del Estado para financiar actividades vinculadas con la recolección, procesamiento y difusión de la información estadística.
+3º—Que el Instituto Nacional de Estadística y Censos requiere realizar la Encuesta de Ingresos y Gastos de los Hogares y actualización del Índice de Precios al Consumidor, ejecutar el proyecto "Encuesta sobre Trabajo Infantil y Desarrollo de una Base de Datos sobre el Trabajo Infantil"; así como incorporar recursos de ejercicios anteriores con el fin de realizar el pago de compromisos adquiridos no cancelados a la fecha.
+4º—Que mediante Decreto Ejecutivo N° 29511-H, publicado en La Gaceta N° 93 del 23 de mayo del 2001, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2002, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo el límite de gasto presupuestario y efectivo del presente año, para las entidades cubiertas por el ámbito de la Autoridad Presupuestaria.
+5º—Que los límites fijados al INEC en el Decreto citado, no contemplan los gastos que conlleva la ejecución de encuestas y el pago de compromisos indicados en el punto 3 anterior, por lo que resulta necesario ampliar los límites de gasto presupuestario y efectivo de dicha institución. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase el artículo 1° del Decreto Ejecutivo N° 29511-H, publicado en La Gaceta N° 93 del 23 de mayo del 2001, para fijar en ¢1,032.0 millones los límites de gasto presupuestario y efectivo del Instituto Nacional de Estadística y Censos para el año 2002.
