@@ -1,0 +1,3 @@
+Artículo 26.-Para las sanciones en el caso de funcionarios que laboren en el Departamento de Auditoría Interna de la Junta de Protección Social de San José, se tendrán en aplicación:
+a) Las contempladas en los artículos 65 y 66 del Reglamento Autónomo de organización y servicio en el caso de transgresión de la ética que debe guardar todo funcionario que labore en la Auditoría Interna.
+b) Si el funcionario incurriera en dolo o colusión se aplicaría lo dispuesto en el capítulo de delitos y sanciones contempladas en la Ley del enriquecimiento ilícito de los servidores públicos y el Código de Trabajo.
