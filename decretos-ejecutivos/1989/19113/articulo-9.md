@@ -1,0 +1,1 @@
+Artículo 9°.-De previo a la concesión de la licencia y de acuerdo con las disponibilidades de plazas y con los requisitos del interesado, el Ministerio de Educación Pública, procederá a su reubicación, traslado o ascenso, según corresponda.

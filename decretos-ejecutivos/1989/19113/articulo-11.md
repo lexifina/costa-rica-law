@@ -1,0 +1,1 @@
+Artículo 11.-No obstante, esta licencia especial podrá ser suspendida, a juicio del Ministro de Educación Pública, a los efectos de asignar labores y funciones compatibles con sus condiciones personales, con las recomendaciones médicas y la formación académica del beneficiario, que con carácter temporal se requiera.

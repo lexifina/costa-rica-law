@@ -1,0 +1,1 @@
+Artículo 15.-El incumplimiento de las obligaciones que les impone el artículo anterior dará lugar a la interrupción de la licencia concedida y el servidor se colocará en la situación jurídica anterior a la licencia especial con las consecuencias legales correspondientes.

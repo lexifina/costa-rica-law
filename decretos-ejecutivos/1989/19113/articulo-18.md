@@ -1,0 +1,1 @@
+Artículo 18.-Se prohíbe a los beneficiarios de las licencias que con fundamento en esta reglamentación se concedan, ejercer actividades lucrativas o remuneradas de cualquier naturaleza. La violación de esta prohibición constituirá falta grave, acarreará la pérdida del beneficio y la correspondiente gestión de despido.

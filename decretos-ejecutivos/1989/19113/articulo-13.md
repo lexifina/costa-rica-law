@@ -1,0 +1,1 @@
+Artículo 13.-Cuando se proceda conforme con lo dispuesto en dos artículos precedentes, el Ministerio de Educación Pública procurará que la prestación de servicios se desarrolle en instituciones o dependencias cercanas y de fácil acceso con respecto a la residencia habitual del beneficiario.

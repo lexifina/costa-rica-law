@@ -1,0 +1,1 @@
+Artículo 22.-Salvo cuando se trate de sustituir a servidor regular por un período superior a noventa días, no se alterará ni el procedimiento ni el importe que se girará a los beneficiarios de la licencia.

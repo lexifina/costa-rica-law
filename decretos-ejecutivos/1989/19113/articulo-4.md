@@ -1,0 +1,1 @@
+Artículo 4°.-Tendrán derecho a que se les conceda una licencia permanente aquellos servidores que sean declarados por la Caja Costarricense de Seguro Social o por el Instituto Nacional de Seguros, en su valoración final, como incapacitados en forma total permanente o que sufran gran invalidez.

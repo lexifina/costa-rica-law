@@ -1,0 +1,1 @@
+Artículo 5°.-Tendrán derecho a que les conceda una licencia especial aquellos servidores respecto de los cuales la Caja Costarricense de Seguro Social o del Instituto Nacional de Seguros, en su valoración final, declaren una incapacidad menor permanente o una incapacidad parcial o permanente y recomienden un cambio de funciones.

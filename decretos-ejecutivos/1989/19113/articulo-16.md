@@ -1,0 +1,1 @@
+Artículo 16.-La pérdida del beneficio que señala el artículo anterior y el artículo 18 siguiente, la declarará el Ministro de Educación Pública, previa audiencia al beneficiario. Esta resolución agotará la vía administrativa.

@@ -1,0 +1,1 @@
+Artículo 10.-Cuando fuere viable, en forma inmediata, la aplicación de lo dispuesto en el artículo anterior se concederá la licencia especial hasta tanto se pueda realizar el movimiento de personal correspondiente.

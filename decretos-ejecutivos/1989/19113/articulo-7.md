@@ -1,0 +1,1 @@
+Artículo 7°.-No obstante, podrá requerirse, una valoración médica actualizada cuando medien circunstancias que hagan presumir que el beneficiario ha mejorado significativamente sus condiciones de salud, a los efectos de determinar si se justifica mantener el beneficio.

@@ -1,0 +1,1 @@
+Artículo 2°.-Las licencias a que se refiere la presente reglamentación se concederán a aquellos servidores que, por la disminución sufrida en sus facultades o aptitudes, no pudieren desempeñar, sin detrimento de su salud o del servicio, las funciones y atribuciones correspondientes al cargo que venían desempeñando en calidad de servidores regulares.
