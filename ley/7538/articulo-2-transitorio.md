@@ -1,0 +1,2 @@
+Transitorio II.- Los procesos de declaratoria judicial de abandono y los depósitos de menores, que se hayan iniciado antes de la vigencia de la presente ley, podrán continuar su trámite conforme a la legislación anterior, o bien, de acuerdo con las normas y los procedimientos que rigen en la presente ley.
+Dado en la Presidencia de la República.-San José, a los veintidós días del mes de agosto de mil novecientos noventa y cinco.
