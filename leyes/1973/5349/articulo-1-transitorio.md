@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS:
+Transitorio I.- Los trabajadores de las instituciones que se traspasen y los empleados del Consejo Técnico de Asistencia Médico Social conservarán todos los derechos adquiridos que tengan al momento del traspaso, concedidos por el Estatuto de Servicio Civil, el Código de Trabajo, leyes conexas y convenios colectivos de trabajo, sin interrupción alguna ni en cuanto a su tiempo de servicio ni en cuanto a las demás circunstancias derivadas de su relación de trabajo.
