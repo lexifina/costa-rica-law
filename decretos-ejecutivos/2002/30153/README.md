@@ -14,3 +14,4 @@ Modifica el límite de gasto presupuestario y efectivo establecido para el año 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-22 | la propia norma |
+| 2 | 2002-04-23 | Decreto Ejecutivo 30377 (2002-05-02) |

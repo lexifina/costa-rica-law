@@ -9,4 +9,5 @@ Considerando:
 4º—Que mediante el Decreto Ejecutivo Nº 29511-H, publicado en La Gaceta Nº 98 del 23 de mayo del 2001, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2002, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo los límites de gasto presupuestario y de gasto efectivo del presente año, para las entidades cubiertas por el ámbito del mencionado Organo Colegiado.
 5º—Que por lo anterior, resulta necesario modificar el límite de gasto presupuestario y efectivo fijado a dicho ente en el Decreto citado. Por tanto,
 Decretan:
-Artículo 1º—Modifícase el límite de gasto presupuestario y efectivo establecido en el artículo 1º del Decreto Ejecutivo Nº 29511-H al Museo Nacional de Costa Rica, fijándolo en ¢ 546,1 millones.
+Artículo 1º—Modifícase el límite de gasto presupuestario y efectivo establecido en el artículo 1º del Decreto Ejecutivo Nº 29511-H al Museo Nacional de Costa Rica, fijándolo en ¢ 648.3 millones.
+(Así reformado por el artículo primero del Decreto Ejecutivo N° 30377 del 2 de mayo del 2002)
