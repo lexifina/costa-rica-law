@@ -1,0 +1,1 @@
+Artículo 2º—Autorízase a la Municipalidad de Oreamuno para que arriende un área de dicho terreno, a fin de que allí se instale la feria del agricultor, mientras se construyen las obras de infraestructura indicadas en el artículo 1º de esta Ley.
