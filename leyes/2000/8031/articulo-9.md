@@ -1,0 +1,1 @@
+Artículo 9º—Inscripción de documentos. El Registro de la Propiedad Industrial del Registro Nacional negará la inscripción de documentos y marcas que pretendan registrar como marca comercial, signos y logotipos semejantes al emblema de la Cruz Roja o relacionados con él.

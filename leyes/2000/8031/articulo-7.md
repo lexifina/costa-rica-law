@@ -1,0 +1,3 @@
+Artículo 7º—Abuso del emblema. Será sancionada con multa equivalente a seis salarios base toda persona que use sin autorización el emblema de la Cruz Roja, las señales distintivas, la denominación Cruz Roja o imitaciones que puedan prestarse a confusión, tales como el uso en farmacias, servicios médicos, clínicas, hospitales, letreros, carteles, anuncios, prospectos o documentos comerciales, mercancías o embalajes, rótulos o membretes comerciales, placas de identidad u otros.
+Cuando el abuso se cometa en tiempo de conflicto armado, la pena será de doce salarios base.
+La denominación salario base referida en este artículo corresponde al salario de un oficinista 1, incluido en la relación de puestos del presupuesto ordinario de la República del periodo de que se trate.
