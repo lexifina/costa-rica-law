@@ -1,0 +1,2 @@
+Art. 4°-El que para burlar la aprehensión de una fábrica clandestina de aguardiente, fuere sorprendido destruyendo ó ocultando alguno de los objetos que la forma, ó derramando caldos, se presumirá dueño de ella para el consiguiente proceso, salvo la prueba en contrario.
+Dado en San José, en el Palacio Presidencial, á los diez y siete días del mes de julio de mil ochocientos ochenta, T. GUARDIA. -El Secretario de Estado en el Despacho de Hacienda y Comercio.-SAlVADOR LARA.
