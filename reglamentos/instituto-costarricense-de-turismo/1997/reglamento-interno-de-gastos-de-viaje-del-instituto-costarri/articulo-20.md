@@ -1,0 +1,2 @@
+Artículo 20.—Compra de dólares u otras divisas
+La compra de dólares u otras divisas para viajes al exterior, debe realizarse en los bancos del sistema bancario nacional, en las entidades financieras autorizadas por el Banco Central de Costa Rica y supervisadas por la Superintendencia General de Entidades Financieras.

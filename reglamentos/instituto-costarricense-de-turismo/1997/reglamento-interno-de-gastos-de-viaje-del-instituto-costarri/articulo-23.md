@@ -1,0 +1,2 @@
+Artículo 23.—Programa de actividades
+Cuando se participe en algún evento internacional, el funcionario deberá adjuntar dentro de los comprobantes, el "PROGRAMA DE ACTIVIDADES" emitido por el ente organizador, tanto al momento de solicitar el adelanto para los gastos, como al momento en que se presenta la correspondiente liquidación, asimismo, para la participación en "FERIAS PROMOCIONALES", deberá indicarse que rubros relacionados con viáticos, se incluyen en el pago de la inscripción.

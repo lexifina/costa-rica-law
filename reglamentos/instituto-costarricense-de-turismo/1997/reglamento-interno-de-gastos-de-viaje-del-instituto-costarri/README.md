@@ -1,0 +1,16 @@
+# Reglamento (1997-01-10)
+
+Reglamento Interno de Gastos de Viaje del Instituto Costarricense de Turismo (En La Gaceta N° 137 del 16/07/2009, se publicó el Reglamento Interno de Gastos de Gira o Viaje y de Transporte para los Funcionarios del Instituto Costarricense de Turismo)
+
+- Tipo: Reglamento
+- Número: 0
+- Fecha: 1997-01-10
+- Ente emisor: Instituto Costarricense de Turismo
+- Publicación: La Gaceta N° 27 del 1997-02-07
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=48690&param2=51903&param3=1 (ficha 48690)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1997-02-07 | la propia norma |

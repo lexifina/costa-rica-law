@@ -1,0 +1,1 @@
+Artículo 14.—Carencia del concepto original del gasto en el formulario de liquidación Cuando el concepto del gasto que se va a liquidar no esté estipulado en el formulario de liquidación originalmente, se deberá anotar el objeto del gasto con los números de facturas, para efectos de codificación entre otros.

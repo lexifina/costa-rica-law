@@ -1,0 +1,2 @@
+Artículo 32.—La aplicación de los dineros adelantados es de uso totalmente individual
+Todo adelanto de gastos para atenciones, es de trámite exclusivo del funcionario a quien se le autorice, si se emplea de otra forma, se considerará falta grave y será sancionado conforme lo dispone el Reglamento Autónomo de Trabajo.

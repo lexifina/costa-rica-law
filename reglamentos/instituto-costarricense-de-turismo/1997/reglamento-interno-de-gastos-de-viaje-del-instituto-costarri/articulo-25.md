@@ -1,0 +1,5 @@
+Artículo 25.—Reconocimiento de gastos migratorios
+Los trámites migratorios o el pago de impuestos de salida del país, se realizarán por medio de la agencia de viajes, contratada por el Instituto, con el fin de agilizarlos y a la vez, que se obtenga la factura correspondiente para efectos de liquidación.
+Cuando por la urgencia del viaje no sea posible utilizar el trámite a través de la agencia de viajes asignada, se realizará el pago de los impuestos en las ventanillas de "AGEF" en el Aeropuerto Internacional Juan Santamaría, donde se puede solicitar la factura correspondiente.
+En casos especiales, en donde el comprobante por pago de impuestos de salida no pueda ser presentado, bastará con la verificación en el pasaporte de los sellos de Migración de entrada y salida del país, además de nota de MIGRACIÓN que haga constar el costo de los impuestos para el día de salida del país.
+Para el reconocimiento de impuestos de aeropuerto en terminales fuera de Costa Rica, será indispensable presentar el comprobante correspondiente en todos los casos.

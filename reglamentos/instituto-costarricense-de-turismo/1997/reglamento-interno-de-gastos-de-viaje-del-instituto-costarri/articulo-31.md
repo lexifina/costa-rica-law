@@ -1,0 +1,2 @@
+Artículo 31.—Requisito indispensable para solicitar adelantos para gastos de representación o recepción
+Toda solicitud de adelanto a gastos por concepto de "Gastos de Representación" o "Artículos y Gastos para Recepciones", deberá de asegurarse de previo quien la tramite, de que existe disponibilidad presupuestaria.

@@ -1,0 +1,2 @@
+Artículo 26.—Reconocimiento de póliza de accidente y enfermedad
+Con fundamento en lo dispuesto por el Reglamento de Gastos de Viaje, se autoriza la suscripción de una póliza de accidente y enfermedad del INS con una prima básica por el término de la gira oficial, para aquellos eventos o actividades en que esta cobertura no se dé por el organismo auspiciador, o no existan convenios de reciprocidad con la Caja Costarricense de Seguro Social.

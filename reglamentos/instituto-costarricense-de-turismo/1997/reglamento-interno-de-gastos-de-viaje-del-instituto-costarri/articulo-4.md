@@ -1,0 +1,4 @@
+Artículo 4°—Informe de gira
+Anexo a las liquidaciones de gastos de viaje, todo funcionario, excepto los choferes, deberán presentar un informe de gira dirigido a su superior, en donde, además de las metas alcanzadas, se refleje o justifique la duración de la misma, adicionalmente debe de indicarse el nombre del chofer al lado del número de placa, del vehículo en que se viaja.
+Los miembros de Junta Directiva, el Presidente Ejecutivo con rango de Ministro, el Gerente y el Auditor, lo harán exclusivamente en las giras fuera del país.
+Las liquidaciones de gastos que presenten los choferes, deben de contar con el visto bueno del funcionario que viajó con él, o la persona que coordinó la gira. En el caso de las personas ajenas a la Institución, tales como periodistas, asesores externos, o cualquier otra persona, que no requieran presentar liquidación, deben adicionar el itinerario debidamente refrendado por el funcionario que coordinó la gira.

@@ -1,0 +1,1 @@
+Artículo 22.—Variación de rutas y fechas originalmente aprobadas por junta directiva Cuando las rutas originalmente aprobadas por Junta Directiva son variadas antes o en el transcurso del viaje, dicho cambio debe hacerse del conocimiento de Junta Directiva, con el propósito de que se apruebe el ajuste que corresponda.

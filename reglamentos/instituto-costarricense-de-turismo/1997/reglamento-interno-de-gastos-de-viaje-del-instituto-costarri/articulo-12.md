@@ -1,0 +1,2 @@
+Artículo 12.—Obligación de presentar los tiquetes de peaje
+Se deben presentar los tiquetes de peaje de las rutas anotadas en la liquidación, que reflejen efectivamente el paso por ellas y las fechas correspondientes.

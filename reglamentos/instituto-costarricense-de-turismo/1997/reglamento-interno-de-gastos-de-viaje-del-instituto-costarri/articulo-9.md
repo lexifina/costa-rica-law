@@ -1,0 +1,3 @@
+Artículo 9°—Autorización de viáticos a personas con ubicación especial dentro del ICT
+Las personas que se encuentren nombrados por servicios especiales y nombramientos interinos, debido a la naturaleza de su trabajo, se les podrá girar las sumas correspondientes como adelanto a gastos de viaje.
+Las personas que fungen como asesores ad-honorem y las que prestan su servicios por contratos por servicios profesionales, no tienen derecho al pago de viáticos, salvo que el contrato así lo estipule.

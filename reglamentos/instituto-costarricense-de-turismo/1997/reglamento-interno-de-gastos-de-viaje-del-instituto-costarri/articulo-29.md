@@ -1,0 +1,2 @@
+Artículo 29.—Alquiler de vehículos en el exterior
+En el caso de actividades en el exterior que por su índole hagan indispensable la contratación de vehículos de alquiler, deberá solicitarse la aprobación previa de la Junta Directiva, la cual emitirá el acuerdo debidamente razonado. (Resolución 724-OD de 13/06/96 de la Contraloría General de la República).
