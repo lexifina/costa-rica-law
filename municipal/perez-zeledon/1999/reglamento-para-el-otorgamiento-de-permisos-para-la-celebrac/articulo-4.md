@@ -1,0 +1,1 @@
+Artículo 4°—Contra la resolución que deniegue o apruebe la solicitud de permiso podrán interponerse los recursos ordinarios dentro del quinto día para ante la Unidad de Rentas y Cobranzas y el Alcalde Municipal, respectivamente, de acuerdo con lo que establece el Código Municipal en su numeral 162. Lo resuelto por el Alcalde agotará la vía administrativa.

@@ -1,0 +1,1 @@
+Transitorio 1° —La Municipalidad deberá implementar un programa de información oportuna y adecuada para las comunidades acerca de las nuevas regulaciones y requisitos que exige el presente Reglamento con el fin de que las comunidades conozcan y comprendan la trascendencia de los cambios operados en esta materia.

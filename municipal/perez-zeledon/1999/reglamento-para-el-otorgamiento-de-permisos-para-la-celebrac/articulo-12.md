@@ -1,0 +1,3 @@
+CAPITULO V
+Disposiciones finales y transitorias
+Artículo 12.—En cualquier caso que la Municipalidad conozca y firme el no cumplimiento de alguno(s) de los requisitos establecidos en este Reglamento y en la Ley de Licores y su Reglamento, o cualquier otra norma jurídica vigente a la fecha, por parte de aquel a quien se haya otorgado un permiso o patente en los términos regulados por este Reglamento, quedarán facultadas las autoridades municipales para acudir a la Fuerza Pública para proceder a la clausura del evento en los términos establecidos en el ordenamiento jurídico sin responsabilidad para esta Municipalidad.

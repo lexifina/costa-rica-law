@@ -1,0 +1,17 @@
+CAPITULO II
+Del procedimiento general para el trámite de permisos para fiestas cívicas y patronales
+Artículo 2°—Para el otorgamiento de permisos de fiestas cívicas, patronales y patentes temporales para el expendio de licores se requiere, que al menos quince días hábiles previos a la realización de la actividad, el interesado cumpla con la presentación de los siguientes requisitos:
+a) Escrito de solicitud dirigido a la unidad de Rentas y Cobranzas de esta Municipalidad. Esta solicitud deberá venir firmada por el representante judicial y extrajudicial de la persona jurídica que organiza la actividad. Este escrito deberá contener los siguientes requisitos, bajo pena de rechazo ad portas por falta de requisitos formales:
+i. Solicitud expresa y detallada del tipo de permiso que solicita según se trate de una fiesta cívica o una fiesta patronal y, en cada caso, si requiere además de patente temporal para la venta de licores.
+ii. Dirección exacta del lugar en que se realizará el evento, indicando al efecto las calles, plazas, parques, salones comunales o de recreo, redondeles, tarimas de conciertos o cualquier otro inmueble que sea usado en la actividad. Además indicará la distribución de los chinamos, locales, tiendas, furgones, carruseles u otros que sean necesarios en la actividad. Cuando la actividad a desarrollar se realizare en una calle o carretera de las descritas en la Ley General de Caminos como parte de la Red Vial Nacional deberá ajustarse a lo dispuesto en el inciso g) de este artículo.
+iii. Datos de la personería jurídica de quienes hacen la solicitud y nombre exacto de la persona jurídica que representan.
+iv. Lugar y fecha en que se realizará la actividad.
+v. Señalar un lugar para atender notificaciones dentro del perímetro de la ciudad de San Isidro de El General o bien un número de facsímil para este mismo fin.
+vi. Lugar, fecha y firma de quien suscribe la solicitud en nombre de su representada.
+b) Certificación de la personería de la persona jurídica solicitante.
+c) Visto bueno y recomendación para la actividad por parte del Concejo de Distrito respectivo. Si el visto bueno de que se habla en este artículo no pudiere ser conseguido a tiempo y desde ya se fija para resolver, un plazo máximo de quince días naturales, ya que de lo contrario se aplicará el silencio administrativo, o no fuere otorgado bajo criterios no fundamentados en los principios de legalidad u oportunidad por parte del Concejo de Distrito, la entidad solicitante así lo hará saber por escrito a la Unidad de Rentas y Cobranzas quien elevará el asunto a conocimiento del señor Alcalde para la dispensa de este requisito.
+d) Permiso sanitario de funcionamiento para la manipulación de alimentos, o de cualquier otra índole, cuando la actividad así lo requiera.
+e) Documento extendido por la Fuerza Pública del lugar, indicado en forma expresa que atenderá la vigilancia de la actividad.
+f) Programa de actividades, indicando techas de las actividades a realizar.
+g) Si en la actividad a desarrollar se utilizaren, total, parcial, permanente o temporalmente calles o carreteras de las descritas como parte de la Red Vial Nacional, según la Ley General de Caminos deberá adjudicarse una autorización para ese uso por parte de las autoridades del Ministerio de Obras Públicas y Transportes.
+h) Si se fueran a instalar carruseles o cualquier otro aparato electrónico que implique riesgo para la población, así como si se realiza juego de pólvora u otros actos afines se debe aportar fotocopia de la póliza extendida por el INS .

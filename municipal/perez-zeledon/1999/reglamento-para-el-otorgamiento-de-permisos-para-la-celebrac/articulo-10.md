@@ -1,0 +1,5 @@
+Artículo 10.—Las entidades organizadoras de las fiestas cívicas o patronales podrán celebrar convenios con uno o más patentados del lugar a efectos de hacer uso de los derechos que se concedieron al patentado para el ejercicio de la venia de licores dentro de su establecimiento. Sin embargo, este tipo de convenios deberá prevenir los siguientes criterios mínimos para poder obviar la solicitud de patente temporal y no incurrir en las faltas que prevé este Reglamento:
+a) Tendrán que ejercer la actividad de venta de licores de acuerdo con el régimen de horarios y a la categoría del establecimiento comercial en que opere la patente, de acuerdo con la ley No 7366.
+b) Tendrán que restringirse exclusivamente a las barras y mostradores ya existentes dentro del inmueble en que se encuentra la patente respectiva.
+c) No podrá ejercerse la actividad comercial por parte del patentado durante o a la vez en que se ejerce la misma actividad por parte de la entidad organizadora.
+d) No podrán establecerse chinamos o ventas adicionales a las ya existentes dentro o fuera del establecimiento respectivo.

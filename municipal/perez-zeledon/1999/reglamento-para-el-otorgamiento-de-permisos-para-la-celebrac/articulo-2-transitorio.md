@@ -1,0 +1,1 @@
+Transitorio 2°—Se establece una moratoria en el plazo de vigencia de este Reglamento de que comprende el año 1999 durante el cual no se aplicarán estas normas para el otorgamiento de estos permisos con el fin de informar a las comunidades y además con el fin de que se tomen las previsiones en cuanto plazos y términos por las comunidades para los fines de este Reglamento.

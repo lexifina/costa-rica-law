@@ -1,0 +1,1 @@
+Artículo 7°—Queda absolutamente prohibida la venta de licores y de cigarrillos, en cualquiera de sus formas o presentaciones, a menores de edad. El incumplimiento de esta norma se sancionará de acuerdo con lo establecido en la Ley de Licores y su Reglamento.
