@@ -1,0 +1,1 @@
+Artículo 2°—El arancel establecido en el listado anterior, incluye análisis fisico-químicos y microbiológicos que se practiquen previamente para efectos de Registro y análisis de verificación de calidad del producto que podrán ser realizados en cualquier momento durante la vigencia del registro.

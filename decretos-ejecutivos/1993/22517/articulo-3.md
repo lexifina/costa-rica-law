@@ -1,0 +1,1 @@
+Artículo 3°—Si los análisis practicados para efectos de registro y verificación no estuvieren conforme a las normas oficiales vigentes establecidas por el Ministerio de Economía Industria y Comercio o indicaren que el producto está deteriorado, contaminado, adulterado o falsificado, el solicitante deberá cancelar nuevamente los derechos de exámenes.
