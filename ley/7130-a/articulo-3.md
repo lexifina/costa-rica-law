@@ -1,0 +1,345 @@
+ARTICULO 3.- En la forma que se indica del Código de Comercio
+refórmanse los artículos 211, párrafo primero, 431, inciso f), 563,
+863, párrafo primero, inciso f), 871, 872, 876, incisos g), j) y n),
+877, 883, 884, 889, 890, 891, 896, 897, 898, 900, 901, párrafo primero,
+903, párrafo primero, 904, 908, párrafo primero e inciso a), 909, 910,
+911, 912, 915, 927, 928, 940, 950, párrafo segundo, y 956 digan:
+"Artículo 211. (Párrafo primero). La designación de los
+liquidadores se hará de conformidad con lo previsto en la escritura
+social. A falta de tal previsión, se hará por convenio de los socios en
+el mismo momento en el que se acuerde o reconozca la disolución. Si
+éstos no llegaren a un acuerdo, la designación la hará el juez a
+gestión de parte interesada, por los trámites establecidos en el Código
+Procesal Civil.
+Cuando la sociedad se disuelva por vencimiento del plazo o por
+sentencia, la designación deberá hacerse dentro de los treinta días
+siguientes a aquél en que terminó el plazo o en el que quedó firme la
+sentencia que ordenó la disolucion".
+"Artículo 431. Las obligaciones mercantiles y sus excepciones se
+prueban con:
+a) Documentos públicos.
+b) Las actas y las certificaciones del libro de registro de los
+corredores jurados, si éstos hubieren intervenido en la operación.
+c) Las facturas firmadas por el deudor.
+d) La correspondencia.
+e) La contabilidad mercantil.
+f) La declaración de testigos, pero esta prueba no será admitida
+como única, cuando la obligación principal exceda del valor indicado en
+el párrafo primero del artículo 351 del Código Procesal Civil, salvo
+que haya otra clase de prueba complementaria.
+g) Con cualquier otro medio de prueba admitido por las leyes
+civiles o los usos y costumbres."
+"Artículo 563. Cuando el deudor efectúe pagos parciales, si a ello
+lo autorizare el contrato, tendrá derecho a que se tome razón de ellos
+en el Registro y en el documento. Si el acreedor se negare a cancelar
+parcialmente estando obligado a ello, el interesado podrá consignar la
+suma correspondiente a la orden del juez.
+Si fueren varias las cosas dadas en prenda y en el contrato se
+hubiere fijado su responsabilidad por separado, le corresponderá al
+deudor, la imputación de pagos, salvo pacto en contrario, y en
+cualquier momento podrá solicitar la liberación del objeto cuyo valor
+e interés proporcionales queden cubiertos con el abono."
+"Artículo 863. Si la solicitud estuviere arreglada a derecho, el
+juzgado, con la mayor brevedad y nunca fuera del plazo de veinticuatro
+horas, declarará el estado de quiebra por resolución motivada que
+deberá contener, además de los requisitos del artículo 740 del Código
+Procesal Civil lo siguiente:
+a) Prohibición de hacer pago o entrega de efectos o bienes de
+cualquier clase al quebrado, bajo apercibimiento de nulidad de tal pago
+o entrega.
+b) Orden al Registro Público, al Registro General de Prendas y a
+cualquiera otra oficina que se estime conveniente, para que se
+abstengan de dar curso e inscribir cualquier documento emanado del
+deudor, en el que se consigne un traspaso de derechos o la imposición
+de un gravamen.
+c) Comunicación a los bancos, instituciones de crédito, almacenes
+generales de depósito y aduanas, para que se abstengan de entregar al
+deudor, apoderado o encargado suyo, títulos- valores, efectos de
+comercio, mercaderías y cualquier otro documento o efecto que tenga
+algún valor económico.
+d) Comunicación a las oficinas de correos, telégrafos, radios y
+cables, para que le entreguen al curador toda la correspondencia,
+encomiendas y despachos que lleguen dirigidos al quebrado.
+e) Comunicación a las oficinas y autoridades de migración,
+portuarias y demás dependencias, para que se abstengan de extender
+pasaporte al quebrado, visarlo o en otra forma facilitar su salida del
+país.
+f) Comunicación de la declaratoria al Ministerio Público, a fin de
+que inicie proceso para determinar si el quebrado ha incurrido en el
+delito de quiebra fraudulenta o culposa.
+Las autoridades administrativas o judiciales, o los personeros de
+instituciones de cualquier naturaleza, oficiales o particulares, que no
+acaten las órdenes que el juez de la quiebra imparta conforme con lo
+dispuesto en este artículo, serán juzgados como encubridores, si la
+quiebra llegare a declararse culpable o fraudulenta."
+"Artículo 871.- En la resolución en la que se declare la quiebra
+se ordenará poner tal declaratoria en cocimiento del Ministerio
+Público, para que inicie inmediatamente el proceso a fin de establecer
+si la quiebra es culpable o fraudulenta, y para que se impongan, si
+fuere del caso, las sanciones penales correspondientes."
+"Artículo 872.- Todo lo referente a la calificación de la quiebra
+se tramitará y resolverá en el proceso seguido en el tribunal penal
+correspondiente. De este proceso se comunicará en su oportunidad, al
+juzgado civil donde radique la quiebra, la sentencia o auto en el que
+se le ponga fin, una vez firmes tales resoluciones."
+"Artículo 876.- Son obligaciones del curador:
+a) Recibir los libros de contabilidad.
+b) Procurar que se aseguren e inventaríen, sin pérdida de tiempo,
+los bienes del quebrado.
+c) Gestionar ante el juzgado el envío de los mandamientos y
+comunicaciones a que se refiere el artículo 863 y activar la
+tramitación de la quiebra.
+d) Cobrar judicial y extrajudicialmente los créditos a favor de la
+quiebra, obtener la devolución de los bienes de ésta que se hallen en
+manos de terceros, y gestionar judicial y extrajudicialmente la
+interrupción de cualquier prescripción que pueda perjudicar al
+concurso.
+e) Continuar los juicios pendientes que activa o pasivamente
+interesen al concurso, y sostener los que contra éste se entablen.
+f) Si el deudor, personalmente, o el gerente de la sociedad
+hubieren solicitado la quiebra, el curador deberá verificar, y
+rectificar, si fuere del caso, la lista del activo y pasivo.
+g) Presentar al juzgado un informe pormenorizado de todos los
+créditos, con expresión concreta del fundamento del reclamo, y su
+opinión acerca de la procedencia y legitimidad de éste.
+h) Formar un balance o rectificar el que presentó el quebrado, y
+depositar en la cuenta del juzgado, dentro del inaplazable término de
+veinticuatro horas, todas las sumas de dinero que por cualquier
+concepto haya recibido y que pertenezcan al concurso.
+i) Recibir todos los bienes que componen el acervo común. Aquellos
+bienes que por no hallarse en el domicilio del concurso, estén
+depositados en terceras personas, se mantendrán en depósito, ya sea en
+manos de los mismos depositarios o en otras, si así conviniere a los
+intereses del concurso.
+j) Vender los bienes del concurso por suma no menor de la fijada
+en el avalúo, una vez aprobado éste. Para vender por suma menor,
+deberán autorizarlo los acreedores y aprobarlo el juez.
+k) Una vez reconocidos los créditos y cada vez que el concurso
+tenga una suma que represente por lo menos el veinticinco por ciento
+del pasivo, el curador formulará un plan de distribución que someterá
+a la junta de acreedores que aecto se convoque.
+l) Toda suma de dinero que el curador reciba deberá quedar
+depositada a la orden del juez, dentro del inaplazable término de
+veinticuatro horas. La falta de cumplimiento de esta obligación será
+suficiente para remover al curador, lo cual deberá hacer de oficio el
+juez.
+m) Cada último de mes el curador deberá rendir cuenta especificada
+y documentada de su administración. La falta de cumplimiento de esta
+disposición por sí sola será motivo de remoción, a solicitud de
+cualquier acreedor.
+n) Si se presentaren acreedores legalizar créditos fuera del
+término señalado al efecto, el curador dará su parecer por escrito
+acerca de la procedencia del reclamo.
+ñ) Poner en conocimiento del juez para que convoque a una junta,
+cualquier proyecto de arreglo que se proponga.
+o) Es obligación del curador procurar que se hagan las
+publicaciones oportunamente y se le dé a la tramitación de la quiebra
+la atención debida, a fin de acelerar los procedimientos.
+Estas diligencias deberá iniciarlas el curador dentro de los ocho
+días siguientes a su aceptación; de no hacerlo, se revocará su
+nombramiento, aun de oficio, y perderá todo derecho a percibir
+honorario alguno. En igual sanción incurrirá el curador que, habiendo
+iniciado las diligencias dentro del plazo indicado, no las active
+debidamente a efecto de acelerar la tramitación del proceso."
+"Artículo 877.- El curador propietario será independiente en sus
+funciones de administración y únicamente necesitará ser autorizado
+para:
+1) Transigir o comprometer en árbitros un negocio cuyo valor
+exceda de diez mil colones.
+2) Vender extrajudicialmente bienes inmuebles.
+3) Reconocer la reivindicación de bienes que valgan más de diez
+mil colones.
+4) Renunciar a una prescripción u otro derecho adquirido cuyo
+valor exceda de diez mil colones.
+5) Continuar el negocio del quebrado.
+De la solicitud el juzgado dará audiencia por tres días al deudor
+y a los acreedores, y luego resolverá lo que corresponda."
+"Artículo 883.- El curador ganará por concepto de honorarios el
+cinco por ciento de la cantidad que efectivamente produzca el concurso.
+Al aprobar la cuenta o cuentas distributivas, el juzgado separará un
+cinco por ciento de cada distribución, y la reservará para entregarla
+al curador, tan pronto como quede firme el auto en el que se aprueben
+la distribución y el pago de los honorarios correspondientes. En cuanto
+a los curadores específicos que se nombren para reemplazar al
+propietario en determinados casos, el juez les señalará su honorario,
+que se les pagará cuando hayan terminado su labor y el auto respectivo
+quede firme."
+"Artículo 884.- Los curadores podrán conferir poderes especiales
+en los procesos en los que intervengan. Aun cuando cesen los curadores
+en sus funciones, el apoderado judicial continuará en las suyas, en
+tanto no se disponga lo contrario."
+"Artículo 889.- Al hacer la legalización, el acreedor deberá
+presentar el documento en el que conste la obligación, hacer referencia
+a los libros del deudor, si tuviere el dato concreto, y acompañar una
+certificación emanada de un notario o de un contador público, del
+asiento o asientos de sus libros, si el legalizante fuere comerciante.
+Mientras el acreedor no compruebe su calidad de tal en forma
+satisfactoria, no se dará curso a su legalización, ni a gestión suya,
+ni tendrá voz ni voto, ni le será acordado dividendo alguno. El
+curador, bajo su responsabilidad, deberá informar al juzgado acerca de
+la procedencia o improcedencia de los créditos presentados."
+"Artículo 890.- Los acreedores hipotecarios y prendarios podrán
+cobrar sus créditos fuera del concurso, pero en el mismo juzgado en el
+que éste se tramita. Sin embargo, el curador podrá sacar a remate los
+bienes dados en garantía, aun cuando el plazo de la obligación no haya
+vencido. En todo caso, habiendo quebrado el deudor, el remate no será
+con sujeción a la base fijada en el documento en el que conste la
+obligación, sino por la que fije un perito de nombramiento del juzgado
+de la quiebra.
+Los procesos ejecutivos hipotecarios y prendarios iniciados antes
+de la declaratoria de la quiebra, continuarán en el tribunal en el que
+hubieren sido establecidos, si en ellos ya hubiere señalamiento para el
+remate; en caso contrario se remitirán al juzgado que tramita la
+quiebra.
+Rematado el bien, se le pagarán con su producto al acreedor, su
+crédito, los intereses corrientes y moratorios hasta el día del pago,
+y se cubrirán también los gastos de la ejecución. Si quedare algún
+saldo, formará parte del acervo común. Si, rematado el bien, el precio
+no alcanzare para cubrir en su totalidad el crédito hipotecario, sus
+intereses y gastos, el acreedor podrá legalizar ese saldo en la
+quiebra, sin que sea necesario que ese crédito ya en calidad de común,
+sea reconocido. Ya sea que el curador saque a remate el bien gravado,
+o que lo pida el acreedor, además del edicto en el Boletín Judicial se
+publicará un aviso en un periódico de circulación nacional, por lo
+menos con ocho días hábiles de anticipación al día fijado para el
+remate."
+"Artículo 891.- Los acreedores hipotecarios y prendarios podrán
+acogerse al vencimiento del plazo y legalizar su crédito en el concurso
+como crédito común, y renunciar a su privilegio. También podrán
+legalizar sin renunciar al privilegio, caso en el cual se autorizará al
+curador para que saque a remate el bien gravado, en cuyo caso se
+procederá de conformidad con lo que dispone el artículo anterior."
+"Artículo 896.- Los títulos valores de cualquier naturaleza que
+sean, que se hubieren remitido al quebrado en comisión de cobro o con
+instrucciones de invertir su producto en determinada negociación, serán
+entregados a sus legítimos dueños tan pronto como se le reconozca el
+derecho a quien reclama el título."
+"Artículo 897.- Serán también susceptibles de reivindicación todas
+las mercaderías, efectos, valores y demás títulos que se hayan
+entregado al quebrado en consignación de venta, o que los tenga por
+haberlos comprado por encargo de un tercero.
+Todos los créditos pendientes de cobro provenientes de la venta de
+mercaderías o efectos recibidos en consignación, pertenecerán al
+propietario de tales bienes; y el curador, una vez reconocido ese
+derecho por resolución firme, dará las instrucciones y firmará los
+documentos que sean necesarios, a fin de que el legítimo dueño reciba
+íntegramente y a la mayor brevedad, de manos de los deudores, las sumas
+correspondientes."
+"Artículo 898.- Si la quiebra ya hubiere recibido el valor total
+de los efectos dados al quebrado en comisión de cobro, en la resolución
+en laque se reconozca la respectiva legalización, se acordará pagar
+inmediatamente al propietario del título o títulos, la suma íntegra
+percibida por aquéllos. Si lo recibido por el concurso hubiere sido tan
+sólo una parte del valor, se ordenará pagarle esa suma y devolverle el
+título o títulos, en cuyo case se anotará el abono hecho, si aun no lo
+estuviere."
+"Artículo 900.- Todos aquellos objetos, títulos valores o efectos
+que aparezcan en posesión del quebrado pero que no le pertenezcan por
+haberlos recibido en comisión o simple consignación, o para entregarlos
+a un tercero, cuyo valor no exceda de diez mil colones, podrán ser
+entregados por el curador, bajo su responsabilidad, a los legítimos
+dueños que comprueben debidamente su derecho, de lo cual se dará cuenta
+al juzgado."
+"Artículo 901.- Son acreedores con privilegio sobre determinado
+bien, y podrán cobrar fuera del concurso con intervención del curador
+los siguientes:
+a) El Fisco y los Municipios por los impuestos que correspondan al
+año precedente a la declaración de quiebra, sobre el valor de las cosas
+sujetas a dichos impuestos.
+b) El acreedor hipotecario por el valor de la cosa hipotecada.
+c) El acreedor pignoraticio, por el precio de la cosa dada en
+prenda.
+d) Los acreedores que, teniendo derecho de retención hayan hecho
+uso de ese derecho, por el valor de la cosa o cosas retenidas. y
+e) El arrendador de fincas rústicas o urbanas, por el monto de lo
+que se le deba por causa del arrendamiento."
+"Artículo 903.- Las Juntas que celebren los acreedores tendrán
+lugar en el juzgado respectivo, o en el local que el mismo juzgado
+indique, bajo la presidencia del juez, quien dirigirá el debate y
+tomará nota de los asistentes y de aquellos que se hagan representar,
+hará el cómputo de votos, y dentro de los tres días siguientes dictará
+resolución en la que aprobarán o improbarán los acuerdos tomados, con
+explicación de las razones de su decisión."
+"Artículo 904.- Para que haya junta es indispensable que se
+publique la convocatoria en la forma prevista en el Código Procesal
+Civil."
+"Artículo 908.- Vencido el plazo para legalizar, procederá:
+a) Conocer y calificar los créditos.
+b) Autorizar, cuando fuere del caso, al curador para que lleve a
+cabo alguno o algunos de los actos comprendidos en el artículo 877. El
+curador no necesitará autorización para apersonarse en el juicio de
+calificación de la quiebra.
+c) Acordar la continuación de algún negocio del quebrado para
+facilitar la liquidación. Este acuerdo no se ejecutará en tanto no esté
+firme el auto que lo autorice.
+d) Conocer y resolver las consultas o cuestiones que proponga el
+curador."
+"Artículo 909.- La opinión del curador respecto a un crédito no
+obliga a los acreedores, no obstante la calificación favorable que
+éstos hagan de determinado crédito, el juzgado, al dictar la
+resolución, podrá rechazarlo si a su juicio no está debidamente
+comprobado el derecho del acreedor. El voto del crédito rechazado no se
+computará."
+"Artículo 910.- En la calificación de créditos, todo acreedor cuyo
+crédito haya sido debidamente legalizado tendrá un voto, cualquiera que
+sea el monto de su crédito. En lo demás, los acuerdos se tomarán por
+voto personal y de capital. El voto personal corresponderá a todo
+acreedor admitido; y el voto de capital se formará dividiendo el
+capital representado, por el número de acreedores admitidos. El
+cociente será el voto de capital."
+"Artículo 911- Convocada legalmente una junta, se celebrará si
+concurren dos o más acreedores, y las resoluciones que por mayoría
+adopten serán obligatorias para los acreedores de la minoría, lo mismo
+que para los que no concurrieren a la junta, salvo que el acuerdo haya
+sido tomado contra disposición expresa de la ley."
+"Artículo 912.- A la junta podrán concurrir los acreedores con sus
+abogados. También los acreedores podrán hacerse representar por medio
+de carta-poder otorgada a otro acreedor o a un abogado. La carta-poder
+es un mandato especial para cada junta, se extiende en papel simple con
+los timbres correspondientes firmada por el mandante y refrendada por
+dos testigos, o por un abogado o notario."
+"Artículo 915.- Cuando un acreedor que haya sido rechazado
+planteare demanda para que se le reconozca su crédito, mientras se
+tramita el proceso respectivo, no tendrá ni voz ni voto, ni
+intervención alguna, pero el curador, al hacer la distribución del
+activo, lo tomará en cuenta al reservar el dividendo respectivo para
+que el juzgado se lo entregue a quien corresponda, conforme con lo que
+resuelva en la sentencia definitiva."
+"Artículo 927.- Llenadas todas las formalidades legales y
+realizado el haber, el curador procederá el curador a formular una
+memoria explicativa, que resuma toda la actuación y contenga su parecer
+acerca de la distribución del haber entre los acreedores. Esa memoria,
+junto con el balance final, será presentada al juzgado con la solicitud
+de que se señale el día para verificar la junta que ha de conocer de
+ese proyecto de distribución."
+"Artículo 928.- El juzgado, tomando en consideración lo acordado
+en dicha junta, resolverá lo que en derecho corresponda, dentro de un
+plazo no mayor de quince días. Esa resolución tendrá el carácter de
+sentencia, con la autoridad y la eficacia de la cosa juzgada material."
+"Artículo 940.- Aprobado el convenio por la junta, se publicará
+por una vez en el Boletín Judicial y en un periódico de circulación
+nacional. Si dentro de los quince días posteriores a la última
+publicación no se presentare incidente alguno, el juzgado resolverá lo
+que en derecho corresponda, con la aprobación o improbación del
+arreglo. Esa resolución tendrá el carácter de sentencia, con la
+autoridad y eficacia de la cosa juzgada material."
+"Artículo 950.- Hecha la distribución del patrimonio total del
+concurso, se dará por terminado éste, y se rehabilitará al quebrado, si
+se le hubiere absuelto por ser excusable la quiebra.
+La rehabilitación también procederá si se hubieren extinguido por
+prescripción todos los créditos legalizados, o sus saldos, en el caso
+de que la distribución a que alude el párrafo anterior no hubiere
+alcanzado para pagar las deudas en su totalidad; en ambas situaciones,
+siempre y cuando en la causa penal correspondiente se hubiere declarado
+extinguida la acción penal o recayere sobreseimiento o sentencia
+absolutoria.
+Si el fallido fuere condenado por el delito de quiebra culpable o
+de quiebra fraudulenta, se observará lo dispuesto en los artículos 951
+y 952.
+El pronunciamiento sobre la prescripción de las obligaciones se
+hará en la vía incidental, con audiencia del curador y de los
+acreedores."
+"Artículo 956.- Resuelta con lugar la rehabilitación, el juzgado
+ordenará publicarla por una vez en el Boletín Judicial, y la comunicará
+a aquellas oficinas y dependencias a las cuales se les había hecho
+saber la declaratoria de quiebra."
