@@ -26,3 +26,5 @@ x) Notificar a su superior inmediato en el mismo día, oralmente o por escrito, 
 y) Laborar la jornada extraordinaria a que se refieren los artículos 32 y 33 de este reglamento. La negativa injustificada será calificada como falta grave.
 z) Velar por la buena imagen del Instituto y no comprometerlo con comportamientos inmorales o inadecuados.
 aa) Guardar la debida consideración y respeto a sus compañeros, tanto a nivel horizontal como vertical.
+bb) Observar el fiel cumplimiento de todos los principios y disposiciones contempladas en la Ley Sobre Igualdad de Oportunidades para las Personas con Discapacidad, N° 7600, de 29 de mayo de 1996 y su reglamento.
+(Así ampliado por la Sesión N° 5251 de 5 de febrero de 2003)
