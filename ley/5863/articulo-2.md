@@ -1,0 +1,1 @@
+Artículo 2º.- No obstante lo dispuesto en el artículo anterior, ninguna pensión o jubilación municipal otorgada sobre la base de la ley Nº 197 de 5 de agosto de 1941 y sus reformas por aquellas municipalidades que tengan regímenes de pensiones en vigor, podrá ser menor de quinientos colones (¢ 500.00).
