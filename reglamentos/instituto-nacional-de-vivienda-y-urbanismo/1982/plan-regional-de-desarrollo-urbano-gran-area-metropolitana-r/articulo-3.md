@@ -1,6 +1,8 @@
-Artículo 3°—El área necesaria para el establecimiento de servidumbres de agua potable, pluvial y alcantarillado, tendrá como mínimo un ancho de seis metros (6 metros) pudiendo ser mayor si así lo estableciere el Instituto Costarricense de Acueductos y Alcantarillados; además:
-a) Tales áreas no podrán edificarse pero sí podrán dedicarse a parques y juegos infantiles. El tipo de arborización en este caso deberá escogerse rigurosamente para que las raíces no afecten las tuberías;
+Artículo 3°—El área necesaria para el establecimiento de servidumbres de agua potable, pluvial y alcantarillado, tendrá como mínimo un ancho de seis metros (6 m) pudiendo ser mayor si así lo estableciere el Instituto Costarricense de Acueductos y Alcantarillados; además:
+a) Tales áreas no podrán edificarse pero sí podrán dedicarse a parques y juegos infantiles. El tipo de arborización en este caso deberá escogerse rigurosamente para que las raíces no afecten las tuberías, pudiendo computarse para efectos del artículo 40 de la Ley de Planificación Urbana siempre que estén integradas razonablemente a las áreas principales de parque.
 b) Igualmente podrán dedicarse a la construcción de calles y alamedas con las especificaciones que fije AyA;
 c) Los planos constructivos de urbanizaciones con servidumbres deberán ir acompañados de la nota de aprobación del anteproyecto por parte de AyA;
 d) Sobre las áreas de servidumbres de AyA no podrá realizarse ningún tipo de edificación; y
 e) Dichas servidumbres no podrán considerarse vías públicas para efectos de segregación de propiedades enfrentando a ellas, salvo que queden establecidas previamente como calles en los proyectos de urbanización.
+f) Cuando en fincas atravesadas o aledañas a ríos o quebradas cuyo cauce se pretende entubar, el área de servidumbre de no construcción, lo mismo que las características de diseño del entubamiento, serán establecidas por la Dirección de Obras Marítimas y Fluviales del Ministerio de Obras Públicas y Transportes o Acueductos y Alcantarillados, según sea el caso.
+(Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta Nª 74 de 20 de abril de 1983).

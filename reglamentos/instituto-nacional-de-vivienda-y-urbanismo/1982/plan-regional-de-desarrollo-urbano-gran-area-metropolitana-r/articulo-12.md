@@ -1,1 +1,1 @@
-Artículo 12.—Se establece como límite urbano de las poblaciones del barrio San José e Itiquís, ambas de Alajuela, las que se demarcan en el plano adjunto.
+(Eliminado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta Nª 74 de 20 de abril de 1983)

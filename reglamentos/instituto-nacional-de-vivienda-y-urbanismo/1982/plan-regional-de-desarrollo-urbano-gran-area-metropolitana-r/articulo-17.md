@@ -1,4 +1,3 @@
-Artículo 17.—En esta zona exclusivamente se permiten usos agrícolas o recreativos
-Zonas especiales de protección de acuíferos.
-Para proteger los mantos freáticos, se establecen estas zonas especiales, según plano que se adjunta; las cuales se denominarán "Zonas de Veda".
-En estas zonas se prohibe la segregación de lotes, la urbanización y la construcción.
+Artículo 17.—Aeropuerto Tobías Bolaños
+En los alrededores del Aeropuerto Tobías Bolaños, según plano que puede ser consultado en la Dirección General de Aviación Civil, la Dirección de Urbanismo del INVU y Municipalidad de San José, se establece una franja de control de altura que se medirá del centro del edificio terminal 250 m al norte y 250 m al sur hasta una distancia de 2 Km en direcciones este y oeste. Para este efecto cualquier edificación deberá contar con la autorización de la Dirección General de Aviación Civil.
+(Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta Nª 74 de 20 de abril de 1983).
