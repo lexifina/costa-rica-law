@@ -1,0 +1,1 @@
+Artículo 2º—Las dependencias del sector público y del sector privado dentro del marco legal respectivo, podrán contribuir con recursos económicos en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa consolidación del Turismo como una actividad sostenible, para el bienestar nacional.
