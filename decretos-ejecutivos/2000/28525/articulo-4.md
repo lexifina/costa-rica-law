@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión se reunirá ordinariamente el primer día hábil de cada mes, y tomará sus acuerdos por mayoría simple. No devengará dietas u honorarios y tendrá como sede el Ministerio de la Presidencia, quedando instalada desde la fecha de entrada en vigencia de este decreto.

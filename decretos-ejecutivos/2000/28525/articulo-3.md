@@ -1,0 +1,1 @@
+Artículo 3º—La coordinación de esta comisión estará a cargo del Ministerio de Trabajo y Seguridad Social, que la presidirá, y realizará sus funciones de conformidad con los procedimientos establecidos al efecto en el artículo 49 de la Ley General de Administración Pública.
