@@ -1,0 +1,3 @@
+Artículo 2°-Autorízase igualmente al Poder Ejecutivo para que, si el contrato hecho en arreglo de este reclamo fuere aprobado por la Comisión Permanente, pague á los reclamantes la suma convenida, pero deberá exigir garantía de devolución, para el caso de que el arreglo no fuera aprobado por el Congreso.
+AL PODER EJECUTIVO.
+Dado en el Salón de Sesiones del Palacio Nacional, en San José, á los veinticinco días del mes de Julio de mil ochocientos noventa y dos. -CARLOS DURÁN. -JOSÉ JOAQUÍN TREJOS, Secretario. -INOCENTE MORENO, Prosecretario. -Palacio Nacional. -San José, veintisiete de Julio de mil ochocientos noventa y dos. -Ejecútese. José J. RODRÍGUEZ.
