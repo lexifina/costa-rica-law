@@ -1,0 +1,1 @@
+Art 4°.- Los Gobernadores de las Provincias darán aviso a los prestamistas para que, en los días 15 y último del próximo mayo, enteren por mitades las cuotas que respectivamente les fueren asignadas, y pasaran al Ministerio de Hacienda las listas que los denominen, con la espresión de la cantidad que cada uno deba satisfacer.
