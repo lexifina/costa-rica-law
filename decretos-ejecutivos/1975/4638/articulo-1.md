@@ -1,0 +1,9 @@
+N° 4638-SPPS
+EL PRESIDENTE DE LA REPUBLICA Y
+EL MINISTRO DE SALUD,
+En uso de las facultades que les confieren los incisos 3) y 18) del artículo 140 de la Constitución Política y de acuerdo con el artículo 44 de la Ley Orgánica del Ministerio de Salud
+DECRETAN:
+Artículo 1°-Refórmase el párrafo final del artículo 2° del Reglamento General de Patronatos y Juntas Directivas de Protección de Social, decreto N° 27 del 20 de mayo de 1941, adicionado por decreto N° 1390-SPPS de 9 de diciembre, para que se lea así:
+Cuando por ausencias reiteradas e injustificadas por parte de los miembros de una Junta, se impida a ésta sesionar normalmente, o cuando existan dificultades para integrarla; o cuando sus miembros invadan los campos técnicos o asuman actitudes inconvenientes que interfieran en la buena marcha del o los establecimientos administrados; o cuando las necesidades del servicio no Justifiquen la existencia de la entidad, todo a juicio del Ministerio de Salud, este podrá declarar la disolución de la Junta; igualmente podrá, prescindiendo de aquélla, autorizar a la Dirección General de Salud, para que asuma la administración directa de los establecimientos que estuvieren a cargo de la Junta de que se trate, así como la de los fondos correspondientes a la Institución.
+En tales casos, la Dirección General de Salud, para todos los efectos legales y reglamentarios, asumirá los derechos y obligaciones de la Junta, quedando autorizado el Director General de Salud, para designar los peritos y abogados a que se refieren los artículos 6°, 21 y 22 de la ley N° 10 de 23 de diciembre de 1937 y sus reformas y los artículos 34, 35 y 36 de este Reglamento.
+Igualmente, quedará autorizada la Dirección General de Salud, para tomar todas las medidas administrativas que sean necesarias para el cumplimiento de las funciones que este artículo le confiere".
