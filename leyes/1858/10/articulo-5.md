@@ -1,0 +1,2 @@
+Artículo 5.
+Mientras tanto que Nicaragua no recobre la plena posesión de todos sus derechos en el Puerto de San Juan del Norte, la Punta de Castilla será de uso y posesión enteramente común igual para Nicaragua y Costa Rica, marcándose para entre tanto dure esta comunidad, como límite de ella, todo el trayecto del río Colorado. Y además se estipula que mientras el indicado Puerto de San Juan del Norte haya de existir con la calidad de franco, Costa Rica no podrá cobrar á Nicaragua derechos de Puerto en Punta de Castilla.

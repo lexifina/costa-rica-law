@@ -1,0 +1,2 @@
+Artículo 10.
+Siendo lo estipulado en el artículo anterior esencialmente importante á la debida guarda del puerto y del río contra agresiones exteriores que afectarían los intereses generales del país, queda su estricto cumplimiento, bajo la especial garantía, que á nombre del Gobierno mediador está dispuesto á dar, y en efecto da su Ministro Plenipotenciario presente, en virtud de las facultades que al intento declara estarle conferidas por su Gobierno.

@@ -1,0 +1,2 @@
+Artículo 3
+Se practicarán las medidas correspondientes á esta línea divisoria, en el todo ó en parte, por comisionados de los dos Gobiernos, poniéndose éstos de acuerdo para señalar el tiempo en que haya de verificarse la operación. Dichos comisionados tendrán la facultad de desviarse un tanto de la curva al rededor del Castillo, de la paralela á las márgenes del río y el Lago, o de la recta astronómica entre Sapoá y Salinas, caso que en ello pue dan acordarse para buscar mojones naturales.
