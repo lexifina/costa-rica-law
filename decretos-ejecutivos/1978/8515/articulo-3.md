@@ -1,0 +1,1 @@
+Artículo 3°—Las fincas mencionadas en los artículos 1° y 2° del presente decreto se regirán por el mismo estatuto que las otras Reservas Indígenas, establecidas por el decreto No 6036-G y la Ley Indígena No 6172 del 20 de diciembre de 1977.
