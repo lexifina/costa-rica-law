@@ -1,0 +1,3 @@
+Artículo 14.—Garantía de cumplimiento. A fin de asegurar la correcta ejecución de las obligaciones contraídas, todo adjudicatario de una contratación deberá rendir una Garantía de Cumplimiento equivalente al cinco por ciento del monto adjudicado.
+Tal garantía, en silencio del respectivo cartel, deberá rendirse en un plazo de 15 días hábiles contados a partir de la firmeza del acto de adjudicación y deberá cubrir un mínimo de cuarenta y cinco días hábiles adicionales a la fecha estimada de conclusión del contrato.
+La garantía podrá rendirse en alguna de las formas previstas en el artículo 37 del Reglamento General de la Contratación Administrativa.

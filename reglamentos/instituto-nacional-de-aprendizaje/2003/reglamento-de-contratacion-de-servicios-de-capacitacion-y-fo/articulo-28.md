@@ -1,0 +1,1 @@
+Artículo 28.—Normativa supletoria. En todo aquello no previsto en el presente Reglamento se aplicará la Ley de Administración Financiera y de Presupuestos Públicos de la República, la Ley de Contratación Administrativa, su Reglamento General.

@@ -1,0 +1,1 @@
+Artículo 7º—De los recursos de objeción al cartel. En apego a lo establecido en el artículo 89.1 del Reglamento General de Contratación Administrativa, los oferentes interesados podrán interponer los recursos de objeción ante la Unidad de Contratación de Servicios de Capacitación y Formación Profesional y ésta resolverá lo que corresponda.

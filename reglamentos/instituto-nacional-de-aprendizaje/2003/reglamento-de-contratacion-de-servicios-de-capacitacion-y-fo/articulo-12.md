@@ -1,0 +1,6 @@
+CAPÍTULO III
+De la ejecución y fiscalización del contrato
+Artículo 12.—Del contrato. El contrato que suscriba el INA con el ente o empresa seleccionada deberá contar con numeración consecutiva y la indicación del año y deberá contener: detalle claro y preciso del servicio a contratar de modo que se indiquen correctamente los resultados esperados con la contratación; período y lugar de la contratación; el pago y forma de pago; jefatura de la unidad que fiscalizará la ejecución del contrato; partida presupuestaria; estimación fiscal; vigencia; la manifestación expresa de que en el cumplimiento de las obligaciones pactadas observará las disposiciones contenidas en el presente reglamento, y otros aspectos que se estimen relevantes.
+Las modificaciones que deban operarse a un contrato serán aprobadas por la Comisión y se instrumentarán por vía de addéndum que será suscrito por ambas partes.
+La suscripción de los contratos por parte del INA, estará a cargo de la Subgerencia Técnica.
+Los contratos serán refrendados conforme a lo establecido en el Reglamento sobre Refrendos de las Contrataciones en la Administración Pública, publicada en el Diario Oficial La Gaceta, de fecha 28 de febrero del 2000 y su modificación.
