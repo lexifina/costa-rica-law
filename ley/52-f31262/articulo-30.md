@@ -1,0 +1,1 @@
+ARTICULO 30.-No se permitir trasladar a ningún paciente de enfermedad transmisible, cuyo aislamiento ha sido ordenado, del local que ocupa a otro cualquiera sin permiso escrito de la autoridad sanitaria.

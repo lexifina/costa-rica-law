@@ -1,0 +1,1 @@
+ARTICULO 54.-Para la construcción de cloacas as¡ como para la provisión de agua potable, o para le mejoramiento de esos servicios, las Municipalidades podrán contraer un empréstito previa autorización legal, hasta la concurrencia de la suma con que ellas deban contribuir para la ejecución de las obras de saneamiento mencionadas.

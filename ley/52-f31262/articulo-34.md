@@ -1,0 +1,3 @@
+ARTICULO 34.-La desinfección general o parcial de las casas y de los objetos contaminados es obligatoria y gratuita en todos los casos de enfermedades trasmisibles y en general en aquellos en que la autoridad de sanidad lo considere necesario como medida profiláctica. Nadie puede oponerse a ello.
+No podrá ser nuevamente ocupada ninguna casa, habitación u otro lugar donde hayan ocurrido casos de aquellas enfermedades, sin haber sido previamente desinfectados por la sanidad.
+Las autoridades de policía impondrán una multa de cien colones, con destino a los fondos para atención de higiene de la respectiva localidad, a todo propietario que prestare o arrendare una casa contraviniendo las disposiciones del presente artículo.

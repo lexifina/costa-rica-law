@@ -1,0 +1,1 @@
+ARTICULO 51.-Los gastos que demande el funcionamiento de los servicios sanitarios que se creen, a virtud de la autorización conferida en el artículo anterior, as¡ como los que exija el mayor desarrollo que haya que dar con el mismo objeto a los servicios sanitarios ya establecidos, en personal y en material, serán de cuenta del Estado.

@@ -1,0 +1,3 @@
+ARTICULO 62.-Calificada por la autoridad de sanidad de insalubre una habitación o edificio, comunicar el hecho al propietario, o en su defecto a quien corresponda, indicándole las deficiencias y reparaciones que debe ejecutar.
+Si la calificare de inhabitable por ruinosa o vetusta o por existir en ella una infección permanente, capaz de dañar a sus propios moradores o a los vecinos, o por otra causa que no permita la reparación en términos convenientes, para garantizar la seguridad y salubridad a sus moradores o vecinos, lo comunicar como queda mandado, indicándole la causa que la hace inhabitable.
+En dicha comunicación el Jefe de Sanidad o autoridad correspondiente fijar el plazo dentro del cual deben ejecutarse las reparaciones o llevarse a cabo la demolición.

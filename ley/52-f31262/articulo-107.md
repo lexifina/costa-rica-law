@@ -1,0 +1,2 @@
+ARTICULO 107.-En cada una de las ciudades capitales de provincia habrá por lo menos una botica destinada al servicio nocturno y de los días festivos. Este servicio empezar a la hora del cierre de las demás boticas y terminar al otro día con la apertura de estas. Durante ese tiempo se despachar n las recetas de los facultativos que fueren presentadas y se venderán las drogas y medicinas cuya venta esta‚
+permitida por la ley. Las Municipalidades respectivas son las encargadas de este ramo del servicio público y de costearlo con sus fondos.

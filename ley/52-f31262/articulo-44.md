@@ -1,0 +1,1 @@
+ARTICULO 44.-Los padres, tutores o cualquiera otra persona que tenga menores a su cuidado o servicio, están personalmente obligados a velar por el cumplimiento en dichos menores de lo dispuesto en el artículo precedente.

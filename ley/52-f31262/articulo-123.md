@@ -1,0 +1,2 @@
+ARTICULO 123.-Para trasladar un cadáver de un lugar a otro de la República se necesita un permiso de la autoridad sanitaria del lugar en que ha ocurrido la defunción, quien sólo lo conceder de conformidad con las prescripciones que se dicten en el Reglamento Sanitario.
+En ningún caso se permitir el traslado de un cadáver a otro lugar o a la iglesia para la celebración de ceremonias religiosas, si la causa de la defunción ha sido viruela, cólera morbus, peste bubónica, tifus exantemático, o si el cadáver se encuentra manifiestamente en putrefacción.

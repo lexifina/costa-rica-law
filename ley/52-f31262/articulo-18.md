@@ -1,0 +1,1 @@
+ARTICULO 18.-El Poder Ejecutivo dictar para todas aquellas Municipalidades que no lleguen a organizar la oficina de higiene de que se habla en los artículos anteriores, un Reglamento Sanitario General a cuyas reglas deben ajustar sus disposiciones los médicos del pueblo en su carácter de Jefe de Sanidad y las autoridades locales.

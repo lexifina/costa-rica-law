@@ -1,0 +1,1 @@
+ARTICULO 142.-Los encargados de la estadística de los hospitales y otros asilos de caridad, tanto públicos como privados, enviarán también mensualmente a la Subsecretaría de Higiene y Salud Pública, los datos estadísticos de los establecimientos mencionados.
