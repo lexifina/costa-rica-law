@@ -1,0 +1,1 @@
+Art. 2. El Ejecutivo pondrá fondos en la carga de moneda para amortizar los que se le presenten legítimos, aunque no tengan el peso correspondiente; y alli mismo se inutilizaran todos los que sean falsos, devolviéndose á los dueños de este modo.
