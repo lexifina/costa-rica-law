@@ -1,0 +1,1 @@
+Art. 2. El art. 151 de la Constitución no habla de las causas criminales por delitos exceptuados, sirio de los comunes; y de consiguiente no ha derogado el 695 de la tercera parte del Código general, que se halla vijente. —Dado en la ciudad de San José, á los siete días del mes de diciembre de mil ochocientos cuarenta y siete.
