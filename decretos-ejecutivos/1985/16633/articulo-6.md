@@ -1,0 +1,2 @@
+Artículo 6º.-La Comisión autorizará el ejercicio laboral a los refugiados que demuestren fehacientemente, haber permanecido en un trabajo determinado durante un período continuo de al menos cuatro meses anteriores al 31 de diciembre de 1984.
+Para estos efectos la Comisión recibirá y conocerá las exposiciones pertinentes que le presenten las agencias y organizaciones que participen en la atención de los refugiados.

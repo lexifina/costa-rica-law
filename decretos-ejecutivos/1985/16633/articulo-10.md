@@ -1,0 +1,1 @@
+Artículo 10.-Se reforma el artículo 15 del Decreto Ejecutivo número 14845-G, del 29 de agosto de 1983, que en adelante se leerá así: "Los refugiados reconocidos en los términos del presente Decreto, disfrutarán en el territorio nacional del derecho al trabajo. Los permisos se otorgarán de acuerdo con lo establecido en el presente Decreto.

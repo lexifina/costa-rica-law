@@ -1,0 +1,1 @@
+Artículo 8º.-Los permisos de trabajo serán aprobados por un término no mayor de un año y podrán ser renovados, ampliados o modificados siempre y cuando se respeten los criterios fijados en el presente Decreto.
