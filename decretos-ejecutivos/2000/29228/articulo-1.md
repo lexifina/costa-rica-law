@@ -1,0 +1,11 @@
+Nº 29228-C
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE CULTURA, JUVENTUD Y DEPORTES
+Con fundamento en los incisos 3) y 8) del artículo 140 de la Constitución Política, así como en la Ley de Creación del Instituto Costarricense del Deporte y la Recreación y del Régimen Jurídico de la Educación Física, el Deporte y la Recreación, (N° 7800 del 30 de abril de 1998), la Ley de Autorización a las Instituciones del Estado para colaborar con los Juegos Deportivos Nacionales (N° 7427 del 23 de agosto de 1994) y la Ley de Financiamiento Estatal para Construir Infraestructura Deportiva (N° 7843 del 21 de octubre de 1998).
+Considerando:
+1º—Que los Juegos Deportivos Nacionales constituyen el programa deportivo más importante y de mayor envergadura que se realiza a nivel nacional, por la población que participa en sus diferentes manifestaciones (competidores, entrenadores, árbitros, dirigentes, voluntarios, técnicos, funcionarios públicos, etc.); por los recursos que allí se invierten, tanto en su organización como en la construcción y remodelación de instalaciones deportivas; y por los frutos que de ellos se derivan, tanto al nutrir de nuevos valores a las diferentes asociaciones y federaciones de los diferentes deportes, como al poner a disposición de las comunidades las instalaciones necesarias para impulsar y mejorar las práctica del deporte y la recreación.
+2º—Que tales metas no se pueden alcanzar con la labor aislada de una sola institución estatal.
+3º—Que el Estado en su concepción global, es decir, tanto la administración central como las instituciones descentralizadas, deben colaborar entre sí para lograr el cumplimiento de los fines y objetivos de dicho programa deportivo.
+4º—Que es necesario racionalizar la inversión que históricamente se ha venido realizando en infraestructura deportiva en cada una de las sedes de la Etapa Final de los Juegos Deportivos Nacionales.
+Decretan:
+Artículo 1º—Declárense de Interés Público los Juegos Deportivos Nacionales que organizará el Instituto Costarricense del Deporte y la Recreación en el año 2001, así como los que se celebrarán en Nicoya en el año 2002 y en Esparza en el año 2003, según lo ha dispuesto el Consejo Nacional de Deporte y la Recreación.
