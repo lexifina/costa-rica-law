@@ -1,0 +1,1 @@
+Artículo 2°—Se autoriza a las organizaciones del Sector de Desarrollo Rural a suscribir entre sí convenios de cooperación técnica y financiera con el objetivo de restarse ayudas, pudiéndose hacer aportes de recursos en procura del cumplimiento de los objetivos del Sector.
