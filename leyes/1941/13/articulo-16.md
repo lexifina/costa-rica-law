@@ -13,4 +13,7 @@ Artículo 16.- Son atribuciones de la Directiva:
 12.-Nombrar los funcionarios que las leyes y reglamentos dejen a su cargo designar, no pudiendo recaer tales nombramientos en miembros de la propia Junta de Gobierno, salvo que esos textos expresamente lo indiquen;
 13.-Nombrar los Vocales correspondientes que en las cabeceras de provincia representen a la Directiva y sirva de medio de comunicación para con los miembros del Colegio que residan en la provincia respectiva, cuyo número no excederá de tres por provincia;
 14.-Examinar la Memoria de los trabajos de la Junta de Gobierno que formulará el Secretario y que éste presentará a la Asamblea; y
-15.-Las demás funciones que la ley y los reglamentos le señalen.
+15.- Fijar todas las tarifas de honorarios, sus modalidades y condiciones aplicables al cobro de servicios profesionales, que presten los abogados y los notarios. Tales tarifas se presentarán al Poder Ejecutivo para su revisión, estudio, aprobación y promulgación, mediante resolución razonada. Estas tarifas serán de acatamiento obligatorio para los profesionales, particulares y funcionarios de toda índole.
+(Así adicionado el inciso anterior por el artículo 1° aparte b) de la ley N° 6595 del 6 de agosto de 1981)
+16.-Las demás funciones que la ley y los reglamentos le señalen.
+(Corrida la numeración del inciso anterior por el artículo 1° aparte b) de la ley N° 6595 del 6 de agosto de 1981, que lo traspaso del inciso 15) al 16))
