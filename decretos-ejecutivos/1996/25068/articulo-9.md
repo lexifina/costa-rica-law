@@ -5,5 +5,5 @@ c) Autorización del colegio profesional respectivo.
 d) Los médicos graduados en universidades nacionales, deberán aportar certificación de haber realizado un año de internado rotatorio universitario. Los graduados en el extranjero, deberán aportar certificación de reconocimiento del internado extendido por la Facultad de Medicina de la Universidad de Costa Rica y el Colegio de Médicos Cirujanos.
 e) Lugar o número de fax donde oír notificaciones.
 f) Si el participante ha cursado alguna Especialidad y desea ejercerla durante el año de Servicio Social Obligatorio, deberá aportar la autorización del colegio profesional respectivo, siempre que exista interés de las instituciones involucradas y a juicio de la Comisión.
-g) Cuando el participante no sea hispanoparlante, deberá presentar un certificado extendido por la Escuela de Lenguas Modernas de la Universidad de Costa Rica, donde conste que lee, habla y escribe bien el idioma español.
-(Así Adicionado por el artículo 2° del Decreto Ejecutivo N° 25610 del 28 de Octubre de 1996)
+g) Cuando el participante no sea hispanoparlante, deberá presentar un certificado extendido por la Universidad de Costa Rica o la Universidad Nacional Autónoma, donde conste que lee, habla y escribe bien el idioma español
+(Así reformado el inciso anterior, por el artículo 1° del Decreto Ejecutivo N° 25841 del 5 de Febrero de 1997)

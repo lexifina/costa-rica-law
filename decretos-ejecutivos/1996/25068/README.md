@@ -15,3 +15,4 @@ Reglamento Servicio Social Obligatorio Profesionales Ciencias Salud
 | --- | --- | --- |
 | 1 | 1996-05-01 | la propia norma |
 | 2 | 1996-10-28 | Decreto Ejecutivo 25610 (1996-10-28) |
+| 3 | 1997-02-05 | Decreto Ejecutivo 25841 (1997-02-05) |
