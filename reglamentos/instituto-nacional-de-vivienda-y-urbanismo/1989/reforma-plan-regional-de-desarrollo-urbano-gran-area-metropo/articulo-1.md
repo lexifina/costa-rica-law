@@ -1,0 +1,5 @@
+Acuerdo tomado por la Junta Directiva del Instituto Nacional de Vivienda y Urbanismo, según consta en el artículo X del acta de la sesión ordinaria número 3912, celebrada el 17 de abril de 1989, que textualmente dice:
+SE ACUERDA:
+Modificar el artículo 4°, inciso 3) del Reglamento de la GAM, publicado en "La Gaceta" número 116 del 22 de julio de 1982, para que en lo sucesivo se lea así:
+"3 Cuando existan terrenos que no tengan aptitud agrícola de acuerdo con la inspección agrícola y dictamen del Departamento de Investigación y Extensión Agrícola del Ministerio de Agricultura y Ganadería; que no tengan problemas de escorrentías, de acuerdo con estudio del Departamento de Aguas del Servicio Nacional de Electricidad: que no se indique su desarrollo a acuíferos que puedan ser susceptibles de contaminación, según estudio del SENARA; o que no tengan aptitud forestal o no requieran de arborización para contrarrestar problemas de estabilización de suelos, de acuerdo con la Dirección Forestal, podrán urbanizarse para llenar el déficit de vivienda del distrito, aun fuera del límite de 200 metros".
+Rige a partir de su publicación en el Diario Oficial.
