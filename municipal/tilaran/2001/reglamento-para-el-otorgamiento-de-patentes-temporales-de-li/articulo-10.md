@@ -1,0 +1,1 @@
+Artículo 10.—En el caso de que un patentado preste a una agrupación su patente de licores para realizar alguna de las actividades enunciadas en el artículo primero de este reglamento, cerrara su negocio por el tiempo que dure la actividad.
