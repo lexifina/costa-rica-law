@@ -38,3 +38,4 @@ Reglamento para el Sistema de Ahorro y Préstamo del Instituto Nacional de Vivie
 | 23 | 1998-11-04 | Reglamento 4837 (1998-11-04) |
 | 24 | 1999-07-14 | Reglamento 4903 (1999-07-14) |
 | 25 | 2001-04-04 | Reglamento 5074 (2001-04-04) |
+| 26 | 2001-09-05 | Reglamento 5113 (2001-09-05) |

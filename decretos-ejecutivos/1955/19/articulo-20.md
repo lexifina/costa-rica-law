@@ -1,1 +1,1 @@
-Articulo 20.—El crédito será cancelado por medio de cuotas fijas mensuales vencidas que incluyen amortización e interés, éste a razón de 6% anual convertible mensualmente.
+Articulo 20.—DEROGADO por la Sesión Ordinaria N° 5113 de 05 de setiembre de 2001, publicada en La Gaceta N° 188 de 01 de octubre de 2001.)
