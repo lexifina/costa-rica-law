@@ -1,8 +1,3 @@
-ARTICULO 5.- Sanción por vender bebidas alcohólicas a menores
-Será sancionado con multa, quien venda
-bebidas alcohólicas a menores de edad.
-Quien tolere la permanencia de menores dentro de un establecimiento
-cuya actividad principal sea la venta de bebidas alcohólicas, sea como
-propietario, administrador, responsable o dependientes, será sancionado
-con multa.
-(Texto modificado por resolución de la Sala Constitucional No. 8744-00 de las14:47 horas del 4 de octubre de 2000)
+Artículo 5º—Sanción por vender bebidas alcohólicas a menores. Será sancionado con multa de uno a cinco salarios base, de acuerdo con lo dispuesto en la Ley Nº 7337, del 5 de mayo de 1993, quien venda bebidas alcohólicas a personas menores de edad. Asimismo, se impondrá una multa de uno a tres salarios base, a quien tolere la permanencia de personas menores de edad dentro de un establecimiento cuya actividad principal sea la venta de bebidas alcohólicas, sea como propietario, administrador, arrendatario o responsable del establecimiento.
+(Así reformado por el artículo 1° de la Ley N °8183 de 17 de diciembre de 2001).
+(La Procuraduría General de la República, mediante pronunciamiento N° C-197-10 del 16 de setiembre del 2010, concluyó que este artículo “fue derogado tácitamente, por el artículo 188 bis del Código Penal, que es norma posterior”.)
