@@ -14,3 +14,4 @@ Modifica Ley de presupuesto ordinario y extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-04-01 | la propia norma |
+| 2 | 2004-11-30 | Decreto Ejecutivo 32134 (2004-11-30) |

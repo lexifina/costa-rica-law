@@ -2830,3 +2830,44 @@ TOTAL AUMENTAR SUELDOS
 TÍTULO: 121 DEFENS. DE LOS
 HABIT. DE LA REP. 1.010.450
 TOTAL AUMENTAR SUELDOS 1.010.450
+Nota: Mediante el artículo 2° del decreto ejecutivo N° 32134 del 30 de noviembre del 2004, se hace una reforma al artículo 1° del decreto ejecutivo N° 31725 del 16 de marzo del 2004, quedando de la siguiente manera:
+En la pagina 15
+Donde dice:
+Lista de Obras Código Descripción
+Código Descripción
+OBRAS POR CONTRATO
+21.763.500
+21.763.500
+19.426.302
+001 B1BLIOTECA PUBLICA DE NARANJO
+DIRECCI6N Y SUPERVISION
+Debe decir:
+Lista de Obras
+Codigo Descripcion
+OBRAS POR CONTRATO
+30.013.500
+001 B1BLIOTECA PUBLICA
+004
+DE NARANJO
+PARA EL PAGO DE REAJUSTES,
+EXTRAS, 1NTERESES DE LAS
+OBRAS REFORZAMIENTO
+DE LA B1BLIOTECA NAC10NAL,
+REPARACION DE TECHO DE LA
+B1BLIOTECA PUBLICA DE
+PUNTARENAS.
+DIRECCI6N Y SUPERVISION
+21.763.500
+8.250.000
+11.176.302
+En la pagina 16
+Donde dice:
+Lista de Obras
+Debe decir:
+Lista de Obras
+Codigo Descripcion
+099 Gastos Varies
+Codigo Descripcion
+099 Gastos Varios
+19.426.302
+11.176.302
