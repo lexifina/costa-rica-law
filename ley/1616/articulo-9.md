@@ -1,0 +1,1 @@
+Artículo 9º.- El juzgamiento de las infracciones que se produzcan en relación con la presente ley, estará a cargo de la Agencia Judicial Específica del Café, en primera instancia, con jurisdicción en todo el territorio de la República.
