@@ -14,3 +14,4 @@ Deroga Decreto Ejecutivo N° 6166 (Expropiación de Derecho de Servidumbre en Fi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-09-18 | la propia norma |
+| 2 | 2003-09-23 | Decreto Ejecutivo 31448 (2003-09-23) |
