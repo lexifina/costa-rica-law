@@ -1,0 +1,1 @@
+Artículo 16.—Los derechos de zonas o espacios podrán ser revocados cuando se considere conveniente a los intereses de la Municipalidad o cuando se compruebe que no se le está dando el uso debido para el cual fue solicitado, para la revocatoria de los derechos se comunicará por escrito al interesado y surtirá efecto el día último del mes que fue comunicado.

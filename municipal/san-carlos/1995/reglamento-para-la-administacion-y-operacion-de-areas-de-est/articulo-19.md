@@ -1,0 +1,1 @@
+Artículo 19.—Las tarjetas de estacionamiento deberán exhibirse en lugares visibles del parabrisas delantero, indicándose además en la tarjeta desprendiendo la pestaña (arrancar) o marcando con tinta la numeración correspondiente al mes, día y hora y minutos de llegada al lugar de estacionamiento, además no se permitirá el uso de más de 5 tarjetas a la vez.

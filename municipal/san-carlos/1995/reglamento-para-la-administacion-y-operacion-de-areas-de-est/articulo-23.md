@@ -1,0 +1,3 @@
+Artículo 23.— La Municipalidad de San Carlos, por medio de un cuerpo de inspectores, cuidará el buen funcionamiento del sistema y de la aplicación de los alcances de la Ley No. 6852, quienes por medio del respectivo parte o aviso, informando al Departamento de Tesorería de la Municipalidad de San Carlos de cada infracción cometida.
+Este departamento en coordinación con el Departamento Legal procederá al cobro de la multa correspondiente dentro del término fijado por la Ley , en caso contrario o por daños a las zonas demarcadas para estacionamiento, se procederá con denuncia ante la alcaldía de Faltas y Contravenciones.
+San Carlos, 8 de marzo-de 1995.—

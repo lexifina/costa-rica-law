@@ -1,0 +1,1 @@
+Artículo 20. Las tarjetas se expedirán en la caja recaudadora Municipal, o en los establecimientos mercantiles que así lo convengan con la Municipalidad , los cuales obtendrán el ocho por ciento del valor de la tarjeta. La tarjeta es nula sin el sello de la Sección de Estacionamiento Autorizado.

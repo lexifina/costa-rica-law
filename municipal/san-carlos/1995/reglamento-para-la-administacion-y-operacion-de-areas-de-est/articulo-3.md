@@ -1,0 +1,1 @@
+Artículo 3°—La tarifa a pagar por el uso de zona de espacios para estacionamientos permanentes será equivalente al 50% de la tarifa vigente por estacionamiento por hora para el pago deberá efectuarse en forma anticipada por el valor total.

@@ -1,0 +1,1 @@
+Artículo 15.—Los adjudicatarios de espacios estarán obligados por su cuenta a demarcar con pintura blanca los espacios adjudicados y colocar en sitio visible de su estacionamiento la nota de adjudicación emitida por la Municipalidad.

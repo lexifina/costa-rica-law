@@ -1,0 +1,1 @@
+Artículo 6°- Tanto en la zona céntrica, como en la no céntrica podrá el Ejecutivo, determinar espacios para estacionamiento permanente, sobre todo si se trata de espacios destinados a la carga y descarga de mercadería. La tarifa se regulará de conformidad con lo señalado en el artículo 3° del presente reglamento.
