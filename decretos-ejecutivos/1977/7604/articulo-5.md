@@ -1,1 +1,0 @@
-Artículo 5°-Los representantes a que se refiere el artículo anterior serán designados por las mismas instituciones y juramentados por el Ministro de Planificación Nacional y Política Económica. OFIPLAN identificará las organizaciones con derecho a representación en el Consejo y las someterá a la aprobación de los respectivos Concejos Municipales.

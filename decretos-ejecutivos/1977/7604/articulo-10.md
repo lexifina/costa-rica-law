@@ -1,1 +1,0 @@
-Artículo 10.-La Asamblea General sesionará ordinariamente cada seis meses y extraordinariamente cuando lo solicite el diez por ciento de los representantes o la Junta Directiva, mencionando el asunto que Se tratará.
