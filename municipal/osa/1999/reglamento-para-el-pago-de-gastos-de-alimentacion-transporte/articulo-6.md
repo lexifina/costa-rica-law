@@ -1,0 +1,2 @@
+Artículo 6°.- Los regidores y síndicos, seberpan hacer la liquidación dentro de los siete días hábiles posteriores a efectuado el gasto de la comisión o acto realizado, de los ocntrario se perderá el derecho al cobro de los gastos.
+En ningún caso se autorizarán nuevamente gastos de transporte o combustible, alimentación y hospedaje a los regidores y síndicos que tengan pendiente la liquidación de adelantos de gastos.

@@ -1,0 +1,1 @@
+Artículo 4°.- Las sumas establecidas por el Reglamento de Gastos de Viajes y Transporte para Funcionarios o Empleados del Estado, aprobado por la Contraloría General de la República, son asignaciones máximas, en consecuencia la municipalidad se sujetará a dichas disposiciones.
