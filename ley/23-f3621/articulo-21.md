@@ -1,0 +1,2 @@
+Art 21° - El Presidente de la Junta de Gobierno convocará por sí o de acuerdo con la misma, la de señoras cuando sea necesario, pero deberá reunirse siempre al menos una vez al mes, y será el también quien deba presidirla.
+Único. Como esta Junta es puramente de auxilio no se llevará libro de actas ni se observará formalidad alguna sino que el Presidente informará a la Junta lo que se delibere, pudiendo si se creyese conveniente convocar a las señoras a las sesiones de la Junta de Gobierno.

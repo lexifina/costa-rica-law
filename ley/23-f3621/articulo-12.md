@@ -1,0 +1,1 @@
+Art 12°. – El Presidente y Vocales, incluso el Secretario y Tesorero de la Junta, deben visitar diariamente el Hospital, tomándose cada semana y el Lazareto, al menos una vez al mes igualmente por turno.
