@@ -1,0 +1,1 @@
+Artículo 7°—El PNVA será cerrado en caso de eminente emergencia por la actividad volcánica a criterio de los funcionarios del mismo y/o por recomendaciones de los personeros del OVSICORJ y la Comisión Nacional de Emergencias, debiéndose evacuar a los visitantes y personal en forma inmediata.

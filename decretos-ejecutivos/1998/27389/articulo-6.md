@@ -1,0 +1,1 @@
+Artículo 6°—El personal del PNVA velará por la seguridad de los visitantes y funcionarios del mismo, no permitiendo su acceso y permanencia en aquellas áreas consideradas de alto riesgo por la actividad volcánica o por restricción temporal.

@@ -1,0 +1,1 @@
+Artículo 28.—Queda prohibido dentro del parque el aterrizaje de helicópteros, excepto en casos de emergencia natural, investigación propia del PNVA, evacuación por desastres naturales y otras actividades relacionadas con la seguridad nacional.

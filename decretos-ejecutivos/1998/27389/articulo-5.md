@@ -1,0 +1,1 @@
+Artículo 5°—Se determinan como zonas de uso especial o alto riesgo volcánico las clasificadas así por el OVSICORI, la Comisión Nacional de Emergencias y las que se localizan en el sector norte, oeste y sur del Volcán Arenal, así cualquier otra zona adyacente al cono volcánico y que por la actividad volcánica así lo amerite.

@@ -1,0 +1,1 @@
+Artículo 14.—Los días, las compañías turísticas y los responsables de grupo, serán responsables ante la administración del parque, por la conducta del grupo visitante y el acatamiento a este Reglamento.

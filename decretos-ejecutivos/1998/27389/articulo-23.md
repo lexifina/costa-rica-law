@@ -1,0 +1,1 @@
+Artículo 23.—Los desechos (basura) producidos por los visitantes deberán ser depositados en los correspondientes recolectores que para tal fin se instalan en los sitios de uso público o deberán ser retirados del área por los visitantes, en caso de que en algunos sitios no se instalen recolectores por razones de manejo.

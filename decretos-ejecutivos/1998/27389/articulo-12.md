@@ -1,0 +1,1 @@
+Artículo 12.—La cuota de admisión será la que se fije mediante decreto ejecutivo, debiendo conservar el visitante el comprobante de pago, que podrá ser solicitado por funcionarios del parque u otras autoridades del ACA, debidamente identificados.

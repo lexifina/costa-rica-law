@@ -1,0 +1,1 @@
+Artículo 29.—Queda bajo criterio técnico de la Administración del parque (estudio de capacidad de carga) definir el número de vehículos estacionados en cada parqueo y la restricción o cierre temporal de alguno.
