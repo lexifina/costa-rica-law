@@ -1,0 +1,1 @@
+ARTICULO 21.- El mismo derecho, se suspende: 1º por incapacidad física ò moral, calificada judicialmente: 2º por ser deudor quebrado fraudulento ó deudor requerido de pago en las rentas públicas; siendo en uno y otro caso declarado: 3º por hallarse procesado criminalmente: 4º por el Estado de sirviendo doméstico cerca de la persona.

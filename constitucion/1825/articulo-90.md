@@ -1,0 +1,1 @@
+ARTICULO 90.- Para ser Magistrado se requiere ser natural de la República, Ciudadano en ejercicio de sus derecho, del estado seglar, mayor de treinta años y tener una propiedad que no baje de mil pesos ó una renta anual de doscientos, ó ser profesor de alguna ciencia. El Presidente y Fiscal deben tener además las cualidades de Letrados.

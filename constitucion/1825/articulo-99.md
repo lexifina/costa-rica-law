@@ -1,0 +1,1 @@
+ARTICULO 99.- Los Alcaldes de los Pueblos ejercerán en ellos el oficio de conciliadores en los asuntos civiles y sobre injurias que puedan ventilarse en juicio escrito: serán los únicos Jueces en los que no: y en uno y en otro caso deberán acompañarse de un hombre bueno nombrado por cada parte y oído su dictamen resolver, lo que crea justo.
