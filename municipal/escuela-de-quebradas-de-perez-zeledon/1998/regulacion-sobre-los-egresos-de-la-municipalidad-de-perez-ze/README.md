@@ -14,3 +14,4 @@ Regulación sobre los egresos de la Municipalidad de Pérez Zeledón sin Autoriz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-30 | la propia norma |
+| 2 | 2004-01-27 | Reglamento municipal 91 (2004-01-27) |
