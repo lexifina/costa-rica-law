@@ -14,3 +14,4 @@ Establece Cifra referente a la suma global destinada en los presupuestos públic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-29 | la propia norma |
+| 2 | 1998-08-25 | Decreto Ejecutivo 27268 (1998-08-25) |

@@ -6,95 +6,96 @@ En ejercicio de las atribuciones que les confiere el artículo 140, incisos 3), 
 Considerando:
 Que de acuerdo con el Transitorio I de la ley N° 7755, denominada Control de las Partidas Específicas con cargo al Presupuesto Nacional, publicada en "La Gaceta" N° 55 del 19 de marzo de 1998, y los parámetros establecidos por el artículo 5° de la misma ley, el Poder Ejecutivo debe publicar la cifra indicativa referente a la suma global destinada en los presupuestos públicos a dar contenido a las partidas específicas, así como señalar la cifra correspondiente a cada cantón, de acuerdo con los parámetros socioeconómicos y demográficos correspondientes. Por tanto,
 DECRETAN:
-Artículo 1°-Se establece la cifra indicativa referente a la suma global destinada en los presupuestos públicos a dar contenido a las partidas específicas para el año de 1999 en la suma de cuatro mil cien millones de colones, correspondiéndole a cada cantón, según los parámetros geográficos, demográficos y socioeconómicos definidos en el artículo 5° de la ley 7755, los montos que a continuación se detalla:
-Cantones | Monto/Área | Monto/Poblac. | Monto/lDS | Monto Total
-Costa Rica | 1,025,000,000.00 | 1,025,000,000.00 | 2,050,000,000.00 | 4,100,000,000.00
-PROVINCIA SAN JOSÉ | 99,609,540.12 | 370,762,830.63 | 486,319,486.50 | 956,691,857.25
-San José | 895,019.57 | 98,144,851.44 | 20,606,757.90 | 119,646,628.91
-Escazú | 691,824.85 | 13,591,235.42 | 9,724,072.50 | 24,007,132.78
-Desamparados | 2,372,142.86 | 46,658,882.21 | 42,694,885.15 | 91,725,910.22
-Puriscal | 11,105,704.50 | 9,545,879.68 | 48,934,843.16 | 69,586,427.34
-Tarrazú | 5,967,465.75 | 3,808,646.80 | 16,766,783.74 | 26,542,896.30
-Aserrí | 3,351,810.18 | 12,713,932.92 | 36,843,890.03 | 52,909,633.13
-Mora | 3,250,313.11 | 5,218,248.53 | 30,628,759.44 | 39,097,321.08
-Goicoechea | 631,849.32 | 32,553,396.63 | 16,261,959.55 | 49,447,405.49
-Santa Ana | 1,232,005.87 | 8,204,923.55 | 20,805,377.26 | 30,242,306.67
-Alajuelita | 424,642.86 | 14,254,908.10 | 19,357,111.14 | 34,036,662.10
-Vásquez de Coronado | 4,457,045.01 | 10,608,998.69 | 15,641,274.07 | 30,707,317.77
-Acosta | 6,864,892.37 | 6,122,772.55 | 34,973,557.79 | 47,961,222.71
-Tibás | 163,478.47 | 23,558,752.89 | 7,663,396.71 | 31,385,628.08
-Moravia | 574,080.23 | 12,841,755.75 | 8,797,182.19 | 22,213,018.17
-Montes de Oca | 304,090.02 | 15,623,973.42 | 7,870,291.87 | 23,798,355.31
-Turrubares | 8,330,181.02 | 1,809,048.05 | 24,835,694.97 | 34,974,924.04
-Dota | 8,027,896.28 | 1,995,456.34 | 16,758,507.93 | 26,781,860.56
-Curridabat | 319,936.40 | 13,521,998.05 | 9,939,243.47 | 23,781,177
-Pérez Zeledón | 38,222,069.47 | 36,483,356.76 | 64,476,807.56 | 139,182,233
-León Cortés | 2,423,091.98 | 3,501,812.84 | 32,739,090.06 | 38,663,994.
-PROVINCIA ALAJUELA | 195,723,449.12 | 183,491,146.51 | 483,588,470.39 | 862,803,066.02
-Alajuela | 7,791,404.11 | 53,279,631.20 | 46,005,207.70 | 107,076,243.01
-San Ramón | 20,432,602.74 | 17,027,361.53 | 56,308,586.65 | 93,768,550.93
-Grecia | 7,937, 632.09 | 16,135,560.61 | 25,878,446.57 | 49,951,639.27
-San Mateo | 2,525,391.39 | 1,410,489.38 | 14,697,832.14 | 18,633,712.91
-Atenas | 2,551,267.12 | 5,873,044.63 | 25,050,865.93 | 33,475,177 .68
-Naranjo | 2,539,833.66 | 9,908,340.24 | 28,253,603.00 | 40,701,776.90
-Palmares | 763,434.44 | 7,303,358.38 | 19,555,730.49 | 27,622,523.31
-Poás | 1,481,135.03 | 5,866,239.24 | 17,809,535.34 | 25,156,909.62
-Orotina | 2,846,731.90 | 4,135,601.02 | 23,395,704.65 | 30,378,037.58
-San Carlos | 67,156,154.60 | 34,386,411.46 | 73,373,299.42 | 174,915,865.49
-Alfaro Ruiz | 3,111,707.44 | 2,918,029.43 | 23,495,014.33 | 29,524,751.19
-Valverde Vega | 2,412,059.69 | 4,544,811.60 | 24,430,180.45 | 31,387,051.74
-Upala | 31,706,198.63 | 12,139,617.86 | 52,667,231.84 | 96,513,048.33
-Los Chiles | 27,256,976.52 | 5,322,696.35 | 31,663,235.23 | 64,242,908.10
-Guatuso | 15,210,919.77 | 3,239,953.58 | 21,003,996.61 | 39,454,869.96
-PROVINCIA CARTAGO | 62,676,844.42 | 114,952,369.54 | 200,075,895.20 | 377,705,109.17
-Cartago | 5,772,294.52 | 36,596,681.17 | 37,166,646.48 | 79,535,622.17
-Paraíso | 8,262,382.58 | 12,254,717.58 | 14,797,141.82 | 35,314,241.98
-La unión | 899,231.90 | 17 ,576,822.15 | 24,736,385.29 | 43,212,439.34
-Jiménez | 5,745,415.85 | 4,865,256.32 | 14,805,417.63 | 25,416,089.80
-Turrialba | 32,949,838.55 | 21,025,671.31 | 52,476,888.30 | 106,452,398.22
-Alvarado | 1,625,958.90 | 3,423,403.01 | 13,861,975.70 | 18,911,337.61
-Oreamuno | 4,058,077 .30 | 10,178,780.20 | 21,111,582.09 | 35,348,439.59
-El Guarco | 3,363,644.81 | 9,031,037.74 | 21,119,857.90 | 33,514,540.45
-PROVINCIA HEREDIA | 53,295,587.08 | 82,281,801.99 | 110,473,739.45 | 246,051,128.53
-Heredia | 5,668,591.00 | 22,843,004.24 | 10,973,719.27 | 39,485,314.51
-Barva | 1,079,158.51 | 8,052,246.28 | 10,667,514.43 | 19,798,919.23
-Santo Domingo | 498,258.32 | 9,353,553.67 | 17,809,535.34 | 27,661,347.33
-Santa Barbara | 1,067,323.87 | 6,943,856.68 | 19,257,801.46 | 27,268,982.02
-San Rafael | 970,640.90 | 9,353,553.67 | 11 ,387,509.59 | 21,711,704.15
-Cantones | Monto/Área | Monto/Poblac | Monto/IDS | Monto Total
-San Isidro | 540,782.78 | 3,515,423.61 | 9,624,762.83 | 13,680,969.21
-Belén | 243,713.31 | 4,903,721.53 | 4,353,074.16 | 9,500,508.99
-Flores | 139,608.61 | 3,704,494.87 | 4,146,179.00 | 7,990,282.48
-San Pablo | 151,042.07 | 4,700,743.61 | 1,655,161.28 | 6,506,946.96
-Sarapiquí | 42,936,467.71 | 8,911 ,203.84 | 20,598,482.10 | 72,446,153.64
-PROVINCIA GUANACASTE | 203,409,545.01 | 80,714,197.05 | 297,242,137.98 | 581,365,880.05
-Liberia | 28,813,732.88 | 12,548,236.66 | 23,693,633.68 | 65,055,603.22
-Nicoya | 26,751,898.24 | 14,475,935.07 | 42,628,678.70 | 83,856,512.01
-Santa Cruz | 26,322,441.29 | 12,164,472.30 | 49,373,460.90 | 87,860,374.49
-Bagaces | 25,544,564.58 | 4, 145,365.27 | 19,870,211.13 | 49,560,140.98
-Carrillo | 11,584,706.46 | 7,571,727.14 | 15,939,203.10 | 35,095,636.70
-Cañas | 13,684,050.88 | 7,266,668.49 | 22,261,919.18 | 43,212,638.56
-Abangares | 13,554,872.80 | 5,105,811.78 | 24,322,594.97 | 42,983,279.55
-Tilarán | 12,805,278.86 | 6, 174,256.751 | 29,188,769.13 | 48,168,304.74
-Nandayure | 11,345,004.89 | 3,786,751.23 | 35,503,209.40 | 50,634,965.52
-La Cruz | 27,759,246.58 | 5,112,321.28 | 27,939,122.36 | 60,810,690.21
-Hojancha | 5,243,747.55 | 2,362,651.08 | 6,521,335.43 | 14,127,734.07
-PROVINCIA PUNTARENAS | 225,975,190.80 | 114,270,056.03 | 312,635,137.86 | 652,880,384.70
-Puntarenas | 36,954,760.27 | 31,077,220.52 | 64, 476,807.56 | 132,508,788.35
-Esparza | 4,348,727.98 | 6,140,525.72 | 20,797,101.45 | 31,286,355.16
-Buenos Aires | 47,824,373.78 | 12,910,401.34 | 59,817,528.56 | 120,552,303.68
-Montes de Oro | 4,909,569.47 | 2,999,989.90 | 14,383,351.50 | 22,292,910.87
-Osa | 38,718,121.33 | 10,564,023.99 | 30,008,073.96 | 79,290,219.28
-Aguirre | 10,907,323.87 | 5,830, 437.02 | 18,943,320.82 | 35,681,081.71
-Golfito | 35,182,172.21 | 12,292,886.90 | 27,740,503.01 | 75,215,562.12
-Coto Brus | 18,733,028.38 | 14,438,949.30 | 32,904,606.19 | 66, 076,583.87
-Parrita | 9,603,909.00 | 3, 979,669.01 | 6,620,645.11 | 20,204,223.12
-Corredores | 12,448,434.44 | 12,510,067.35 | 23,900,528.84 | 48,859,030.63
-Garabito | 6,344,770.06 | 1,525,884.99 | 13,042,670.87 | 20,913,325.91
-PROVINCIA LIMON | 184,309,843.44 | 78,527,598.24 | 159,665,132.61 | 422,502,574.30
-Limón | 35,419,466.73 | 23,590,116.82 | 19,034,354.69 | 78,043,938.25
-Pococí | 48,210,905.09 | 21,224,802.77 | 32,283,920.71 | 101,719,628.57
-Siquirres | 17,254,300.39 | 13,222,857.13 | 36,843,890.03 | 67,321,047.56
-Talamanca | 56,363,566.54 | 5,802,031.94 | 22,245,367.57 | 84,410,966.05
-Matina | 15,498,160.47 | 7,11 1,328.25 | 19,762,625.65 | 42,372,114.38
-Guácimo | 11,563,444.23 | 7,576,461.32 | 29,494,973.96 | 48,634,879.51
+Artículo 1°-Se establece la cifra indicativa referente a la suma global destinada en los presupuestos públicos a dar contenido a las partidas específicas para el año 1999 en la suma de cuatro mil cien millones de colones, correspondiéndole a cada cantón, según los parámetros geográficos, demográficos y socioeconómicos definidos en el artículo 5° de la ley 7755, los montos que a continuación se detallan:
+Cantón/provincia | Total
+Costa Rica | 4.100.000.000,00
+SAN JOSE | 921.824.559,71
+Cantón San José | 108.848.042,80
+Cantón Escazú | 31.550.968,36
+Cantón Desamparados | 65.746.360,10
+Cantón Puriscal | 52.885.012,60
+Cantón Tarrazú | 39.707.153,24
+Cantón Aserrí | 45.996.783,77
+Cantón Mora | 41.300.610,88
+Cantón Goicoechea | 43.545.990,79
+Cantón Santa Ana | 26.704.837,50
+Cantón Alajuelita | 35.999.661,47
+Cantón Vásquez de Coronado | 30.031.564,04
+Cantón Acosta | 55.029.265,14
+Cantón Tibás | 31.780.588,47
+Cantón Moravia | 23.224.007,77
+Cantón de Montes de Oca | 23.986.420,54
+Cantón Turrubares | 52.733.402,35
+Cantón Dota | 41.105.587,18
+Cantón Curridabat | 25.952.493,99
+Cantón Pérez Zeledón | 105.787.660,79
+Cantón León Cortés | 39.908.147,93
+ALAJUELA | 764.450.113,05
+Cantón Alajuela | 76.635.176,46
+Cantón San Ramón | 59.931.268,66
+Cantón Grecia | 40.788.527,73
+Cantón San Mateo | 30.413.339,83
+Cantón Atenas | 24.541.025,96
+Cantón Naranjo | 33. 169.663,60
+Cantón Palmares | 21.328.546,23
+Cantón Poás | 25.213.903,17
+Cantón Orotina | 32.308.598,11
+Cantón/provincia | Total
+Cantón San Carlos | 132.624.800,61
+Cantón Alfaro Ruiz | 25.047.459,63
+Cantón Val. Vega | 32.283.136,48
+Cantón Upala | 89.340.998,32
+Cantón Los Chiles | 77.476.233,88
+Cantón Guatuso | 63.347.434,37
+CARTAGO | 356.754.980,49
+Cantón Cartago | 57.933.116,84
+Cantón Paraíso | 38.383.629,06
+Cantón La Unión | 35.191.389,08
+Cantón Jiménez | 38.239.325, 11
+Cantón Turrialba | 80.452.968,99
+Cantón Alvarado | 32.125.441,79
+Cantón Oreamuno | 33.807.153,33
+Cantón El Guarco | 40.621.956,30
+HEREDIA | 261.241. 712,17
+Cantón Heredia | 34.866.185,41
+Cantón Barva | 16.637.188,84
+Cantón Santo Domingo | 19.061.362,96
+Cantón Santa Bárbara | 24.726.515,58
+Cantón San Rafael | 20.684.939,42
+Cantón San Isidro | 19.620.347,54
+Cantón Belén | 11.502.025,01
+Cantón Flores | 10.198.693,66
+Cantón San Pablo | 12.357.569,73
+Cantón Sarapiquí | 91.586.884,02
+GUANACASTE | 612.858.664,23
+Cantón Liberia | 60.932.265,37
+Cantón Nicoya | 75.211.076,42
+Cantón Santa Cruz | 67.266.760,40
+Cantón Bagaces | 57.318.582,78
+Cantón Carrillo | 42.180.311,04
+Cantón Cañas | 45.724.411,51
+Cantón Abangares | 52.045.306,88
+Cantón Tilarán | 38.549.831,44
+Cantón Nandayure | 51.969.960,03
+Cantón La Cruz | 74.913. 168,07
+Cantón Hojancha | 46.746.990,29
+PUNTARENAS | 709.870.575,34
+Cantón Puntarenas | 96.811.827,60
+Cantón Esparza | 27.204.588,73
+Cantón Buenos Aires | 105.078.763,07
+Cantón Montes de Oro | 34.387,018,43
+Cantón Osa | 84. 969.155,37
+Cantón Aguirre | 48.971.189,32
+Cantón Golfito | 86.615.650,77
+Cantón Coto Brus | 72.312.569,33
+Cantón Parrita | 51.020.402,74
+Cantón Corredores | 58.343.124,08
+Cantón Garabito | 44.156.285,90
+Limón | 472.999.395,01
+Cantón Limón | 85.487.042,62
+Cantón Pococí | 10 1.116.563,22
+Cantón Siquirres | 63.861.779,82
+Cantón Talamanca | 107.062.159,50
+Cantón Matina | 61.197.507, 32
+Cantón Guácimo | 54.274.342,53
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 27268 del 25 de agosto de 1998).
