@@ -1,0 +1,1 @@
+Artículo 176.-Cuando para iniciar o continuar una acción penal sea necesario que se dicte resolución previa en otro juicio civil o penal, la prescripción no comenzará a correr sino desde que se dicte y haga firme tal resolución.

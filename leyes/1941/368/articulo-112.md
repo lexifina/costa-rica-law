@@ -1,0 +1,1 @@
+Artículo 112.-La internación no cesará sino en virtud de resolución judicial dictada, con audiencia de la Procuraduría General de la República, previo dictamen médico, que demuestre que el agente puede ser sometido a libertad vigilada sin peligro de que cause daño.

@@ -1,0 +1,2 @@
+Artículo 386.--El funcionario o empleado público que, abusando de su cargo, reclamare un servicio indebido, o exigiere o hiciere pagar, por sí o por interpuesta persona, un impuesto, contribución o derecho que legalmente no se deba, será castigado con inhabilitación para el ejercicio de cargos y oficios públicos de seis meses dos años.
+Si la exacción se verificare empleando fuerza o intimidación, se impondrá, además, multa de trescientos sesenta a dos mil colones.

@@ -1,0 +1,1 @@
+Artículo 341.-Las penas establecidas en los artículos anteriores, se aplicarán, también, cuando los hechos previstos en ellos fueren cometidos contra una potencia aliada de la República, en guerra contra un enemigo común.

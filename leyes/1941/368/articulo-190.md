@@ -1,0 +1,3 @@
+Artículo 190.-Se juzgará por cuasidelito de homicidio al que por imprudencia, descuido o negligencia causare la muerte a otro y será reprimido con prisión de uno a cuatro años o multa de setecientos veinte a tres mil colones y, además, en todo caso, con inhabilitación para el ejercicio del arte, comercio, industria o profesión, oficio o cargo en que se ocasionó la muerte, de uno a cuatro años, aunque el reo no lo tenga como medio de subsistencia.
+Cuando el ofendido haya incurrido a su vez en imprudencia, descuido o negligencia, la pena ordinaria podrá reducirse hasta en una mitad, atendiendo a la propia culpa del perjudicado y a las circunstancias modificativas de la responsabilidad.
+Al reincidente en cuasidelito de homicidio, no se le aplicará la pena de multa.

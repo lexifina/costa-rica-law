@@ -1,0 +1,1 @@
+Artículo 86.-Cuando el hecho no fuere del todo excusable, por no concurrir todas las condiciones o el grado requeridos para eximir de pena o de responsabilidad, la punición ordinaria se disminuirá, concurran o no, circunstancias modificativas de responsabilidad, desde uno hasta dos tercios.

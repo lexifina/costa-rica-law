@@ -1,0 +1,1 @@
+Artículo 429.-El que falsificare billetes o boletos de alguna empresa de transporte de personas o cosas o de alguna empresa de espectáculos públicos y los hiciere circular o los aprovechare personalmente y el que a sabiendas de que son falsificados los circulare, sufrirán prisión de seis meses a tres años.

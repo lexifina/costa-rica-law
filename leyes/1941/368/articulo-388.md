@@ -1,0 +1,5 @@
+CAPITULO IX
+Prevaricato
+Artículo 388.-Se impondrá prisión de seis meses a dos años o multa de trescientos sesenta a cinco mil colones y, además, en todo caso, inhabilitación para el ejercicio de cargos y oficios públicos de dos a diez años, a los funcionarios del orden judicial o administrativo que, a sabiendas, dictaren en los juicios, procesos o juzgamientos en que intervengan por razón de sus cargos, resoluciones manifiestamente contrarias al texto expreso y claro de la ley, o que, para fundarlas, invocaren hechos supuestos o evidentemente contrarios a las constancias de autos o se apoyaren en leyes o resoluciones supuestas.
+Si la resolución fuere una sentencia condenatoria y llegase a ser ejecutoria, la pena será, además de la inhabilitación, la de prisión de tres a diez años, si se diere en causa por delito o cuasidelito, y de seis meses a tres años, si se dictare en un juzgamiento por faltas de policía.
+Lo dispuesto en el párrafo primero de este artículo, se aplicará a los árbitros de derecho.

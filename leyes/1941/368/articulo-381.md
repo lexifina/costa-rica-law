@@ -1,0 +1,1 @@
+Artículo 381.-El funcionario o empleado público que por imprudencia, negligencia o inobservancia de los reglamentos o deberes de su cargo, diere ocasión a que otra persona sustraiga o se apropie los dineros, valores u otra cosa mueble de que trata el artículo anterior, será castigado con multa de trescientos sesenta a tres mil colones.

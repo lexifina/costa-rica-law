@@ -1,0 +1,1 @@
+Artículo 35.- Transcurridos diez años entre la perpetración de una y otra infracción, no se tomará en cuenta la condena anterior para el aumento de pena previsto en el artículo precedente, y aun se podrá abonar como atenuante la reforma de conducta según la naturaleza y circunstancias de los hechos anteriores y el comportamiento posterior del agente.

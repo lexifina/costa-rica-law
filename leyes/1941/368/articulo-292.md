@@ -1,0 +1,1 @@
+Artículo 292.-Serán penados como cómplices del delito de quiebra fraudulenta los que ejecutaren cualquiera de los actos que se determinan en los artículos 40, 46, párrafo final, y 47 de la Ley de Quiebras.

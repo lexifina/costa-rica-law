@@ -1,0 +1,1 @@
+Artículo 355.-Las penas señaladas en el artículo anterior se aplicarán en el tanto de cinco a diez años a los que después de haber inducido a la muchedumbre al alzamiento o sedición, colaboraren en ellos prestando auxilio; a los que figuraren como caudillos o jefes de armas del movimiento sedicioso, y a los que fueren funcionarios públicos.

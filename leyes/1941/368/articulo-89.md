@@ -1,0 +1,1 @@
+Artículo 89.-Para fijar la duración de las penas y para los demás efectos del presente Código en que haya de hacerse estimación de tiempo, el día constará de veinticuatro horas, el mes de treinta días y el año de doce meses, prescindiendo de cualquier fracción de horas que resulte, y el día comenzado se tendrá por terminado.

@@ -1,0 +1,4 @@
+Artículo 321.-Se infligirá prisión de seis meses a dos años o mu1ta de trescientos sesenta a mil quinientos colones, al 'que por imprudencia o negligencia, o por impericia en su arte, profesión u oficio, o por inobservancia de los reglamentos o deberes de su cargo, causare un descarrilamiento u otro accidente ferroviario, un naufragio, o cualquier otro de los accidentes a que este capítulo se refiere.
+Si del suceso resultaren lesiones de las previstas en los artículos 201, 202 ó 203, o la muerte de alguna persona, la pena será prisión de año y medio a cuatro años o multa de mil ochenta a cinco mil colones.
+Se impondrá, además, en todo caso, inhabilitación de uno a cuatro años para el ejercicio del arte, profesión, oficio o cargo en que se ocasionó el accidente, aunque no lo tenga el culpado como medio de subsistencia.
+En caso de reincidencia específica, no se aplicará la pena de multa.

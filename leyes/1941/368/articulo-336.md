@@ -1,0 +1,1 @@
+Artículo 336.-EI que por imprudencia o negligencia diere a conocer los secretos mencionados en el artículo precedente, los cuales posea en virtud de su empleo u oficio, será castigado con inhabilitación para el ejercicio de cargos y oficios públicos de seis meses a dos años.

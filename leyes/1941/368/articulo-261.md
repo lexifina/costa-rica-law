@@ -1,0 +1,1 @@
+Artículo 261.-Se infligirá multa de trescientos a mil colones, al que, tratándose de una religión permitida en la República, interrumpa la celebración de una ceremonia o función, o ejecute actos en menosprecio de los objetos destinados al culto.

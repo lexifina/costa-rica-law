@@ -1,0 +1,1 @@
+Artículo 204.-Se infligirá prisión de seis meses a tres años, en el caso de que la lesión no tenga ninguna de las consecuencias previstas en los tres artículos anteriores, pero determine enfermedad o incapacidad para trabajar por un término que pase de diez días sin exceder de treinta, o deje al ofendido cicatriz visible y permanente en el rostro.

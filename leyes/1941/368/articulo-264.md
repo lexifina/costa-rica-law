@@ -1,0 +1,1 @@
+Artículo 264.-Sufrirá la pena del artículo anterior, el que impida la libre circulación de un libro, un periódico, o cualquier otro impreso, a menos que éste contenga producciones literarias o gráficas contrarias a la honestidad y que quien obre sea la autoridad competente.

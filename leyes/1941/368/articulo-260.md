@@ -1,0 +1,1 @@
+Artículo 260.-Los que emplearen amenaza o cualquier medio fraudulento para alejar a los postores en una subasta o licitación pública, con el fin de alterar su resultado serán castigados con prisión de tres meses a un año o con multa de ciento ochenta a setecientos veinte colones

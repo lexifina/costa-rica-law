@@ -1,0 +1,1 @@
+Artículo 337.-Será condenado a prisión de seis meses a dos años el que indebidamente levantare planos de fortificaciones, buques, aeronaves, establecimientos, vías u obras militares o se introdujere con tal fin clandestinamente o con engaño en dichos lugares, no obstante estar su acceso prohibido al público.

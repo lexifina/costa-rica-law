@@ -1,0 +1,1 @@
+Artículo 39.-La tentativa no es punible cuando el agente de modo espontáneo desiste de la ejecución del delito o imposibilita su consumación; pero se penarán los actos ya realizados que constituyan una infracción por sí mismos.

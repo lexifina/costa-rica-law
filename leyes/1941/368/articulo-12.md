@@ -1,0 +1,1 @@
+Artículo 12.-Los extranjeros que se refugiaren en Costa Rica en estado de impunidad salvo en el caso que sean perseguibles en la República de acuerdo con el artículo 4, podrán ser ofrecidos al Gobierno de la Nación en donde hubieren delinquido.

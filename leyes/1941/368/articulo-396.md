@@ -1,0 +1,1 @@
+Artículo 396.-La acusación o la denuncia de algún hecho punible, que hubiese sido calificada de calumniosa por resolución firme, será castigada con prisión de seis meses a tres años o multa de trescientos sesenta a tres mil colones.

@@ -1,0 +1,1 @@
+Artículo 433.-Cuando alguno de los delitos previstos en este capítulo, fuere ejecutado por un funcionario o empleado público con abuso de su cargo, el culpado sufrirá, además, inhabilitación absoluta de dos a diez años.

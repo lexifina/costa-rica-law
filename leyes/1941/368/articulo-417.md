@@ -1,0 +1,1 @@
+Artículo 417.-El que habiendo recibido de buena fe moneda falsa, alterada o cercenada, la pusiere en circulación en suma que exceda de cincuenta colones, con conocimiento de la falsedad, alteración o cercenamiento, sufrirá prisión de seis meses a dos años o multa de trescientos sesenta a mil quinientos colones.

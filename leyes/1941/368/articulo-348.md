@@ -1,0 +1,2 @@
+Artículo 348.-El costarricense que sin autorización legítima levantare tropas en el territorio del Estado o destinare buques al corso, cualquiera que sea el objeto que se proponga o la nación que intente hostilizar, será castigado con prisión de seis meses a cinco años o multa de trescientos sesenta a cinco mil colones.
+Si el delincuente fuere un extranjero domiciliado en el país, se infligirá extrañamiento de dos a ocho años.

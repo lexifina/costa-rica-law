@@ -1,0 +1,1 @@
+Artículo 350.-Se pronunciará prisión de seis meses a dos años contra el que violare un tratado público o las treguas o armisticios convenidos con una potencia enemiga o entre las fuerzas beligerantes de mar, aire o tierra, o los salvoconductos debidamente expedidos.

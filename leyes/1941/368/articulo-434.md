@@ -1,0 +1,3 @@
+LIBRO III
+DISPOSICIONES FINALES
+Artículo 434.-Derógase expresamente el Código Penal de 22 de abril de 1924 y todas las leyes que, lo adicionan y reforman. Quedan asimismo derogadas, pero tan sólo en sus disposiciones de carácter punitivo, todas las leyes referentes a los hechos previstos y penados en el presente Código, con excepción de las relativas a delitos que tengan el carácter militar por referirse al servicio y disciplina del ejército, en tiempo de paz o en estado de guerra, y excluyendo también las puniciones que el Código Fiscal y leyes anexas establecen para sancionar las infracciones contra la Hacienda Pública.

@@ -1,0 +1,1 @@
+Artículo 225.-En los casos de estupro y en los de violación o rapto de una mujer soltera, el delincuente quedará exento de toda pena si se casare con ella, después de restituida a su casa o a otro lugar seguro.

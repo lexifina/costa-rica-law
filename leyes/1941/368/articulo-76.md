@@ -1,0 +1,1 @@
+Artículo 76.-La multa será satisfecha dentro de las veinticuatro horas siguientes a la firmeza de la sentencia que la imponga. Sin embargo, el juez podrá en casos muy calificados, conceder un plazo, hasta de noventa días para pagar de una vez o por terceras partes la multa, siempre que el multado diere garantía suficiente de pago, a juicio del juez.

@@ -1,0 +1,1 @@
+Artículo 412.-El que quebrantare una condena de interdicción de derechos, será reprimido con prisión de tres meses a dos años o multa de ciento ochenta a dos mil colones, sin perjuicio de que continúe cumpliendo la pena de interdicción hasta que se extinga por completo.

@@ -1,0 +1,3 @@
+Artículo 226.-Comete incesto y será sancionado con prisión de seis meses a dos años, el que, conociendo las relaciones que lo ligan, tenga acceso carnal con un ascendiente o descendiente por consanguinidad o afinidad legítimas o ilegítimas, o con un hermano consanguíneo legítimo o natural, si el hecho no está comprendido en los artículos 216 y 219.
+Los menores de edad no incurren en responsabilidad alguna, si han sido seducidos por una persona mayor de edad.
+Corresponde exclusivamente a la Procuraduría General de la República el ejercicio de la acción penal proveniente de este delito, cuando no haya otra persona llamada a ejercerla por la ley.

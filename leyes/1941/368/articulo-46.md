@@ -1,0 +1,1 @@
+Artículo 46.-Si al ejecutar el delito encargado o concertado, se cometiere uno distinto por alguno de los codelincuentes sin previo acuerdo, de esta otra infracción responderán los partícipes sólo cuando haya servido como medio necesario para ejecutar el concertado o haya sido su consecuencia natural.

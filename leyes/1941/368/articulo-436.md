@@ -1,0 +1,2 @@
+Artículo 436.-Los que deban cumplir penas de confinamiento, destierro o caución, bien sea porque hayan sido condenado antes de la vigencia de este Código o porque deba después aplicárseles dichas penas, cumplirán las expresadas puniciones en el tanto y en la forma establecidos en el Código Penal anterior.
+Las penas de relegación, sujeción a vigilancia especial de las autoridades e interdicción civil, no consignadas en el presente Código, dejarán de imponerse, o cesarán en su aplicación si ya hubieren sino impuestas.

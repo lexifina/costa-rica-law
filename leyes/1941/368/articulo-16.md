@@ -1,0 +1,1 @@
+Artículo 16.-Cuando la autoridad extranjera a quien se ofreciese la extradición no la pidiere, o cuando habiéndola solicitado, no la llevare a efecto, podrá ser expulsado el delincuente del territorio de Costa Rica.

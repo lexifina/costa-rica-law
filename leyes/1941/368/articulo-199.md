@@ -1,0 +1,2 @@
+Artículo 199.-El aborto practicado por un médico no es punible, si se ha realizado con el fin de evitar un peligro para la vida o la salud de la madre, si este peligro no pudo ser evitado por otros medios, y previa consulta de dos facultativos más.
+En los lugares en donde sólo haya uno o dos médicos, debe avisarse, previamente a toda intervención, al Presidente del Colegio de Médicos y Cirujanos para que autorice o no la operación. Si no hay telégrafo o radio en el lugar o si el caso fuere urgente, el médico procederá y dará aviso en seguida al Presidente de dicho Colegio.

@@ -1,0 +1,1 @@
+Artículo 24.-Cuando por error o accidente el mal recaiga sobre persona distinta de aquélla a quien el delincuente se proponía ofender, no se tomarán en consideración las circunstancias que se deriven de la condición de la víctima y sí las que habrían tenido en cuenta si la infracción se hubiera cometido en la persona contra quien se dirigía la acción.

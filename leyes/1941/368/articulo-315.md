@@ -1,0 +1,1 @@
+Artículo 315.-Se aplicará la pena de prisión de nueve meses a cinco años, al que, destruyendo o inutilizando diques u obras destinadas a la defensa común contra inundaciones u otros desastres, o cualquiera otra obra de protección contra las fuerzas naturales, hiciere surgir el peligro de que se produzca un desastre.

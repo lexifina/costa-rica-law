@@ -1,0 +1,1 @@
+Artículo 308.-El que ejecutare cualquiera de los hechos previstos en el artículo 27 de la Ley de Protección Comercial de 23 de Octubre de 1930, será reprimido con multa de seiscientos a cinco mil colones

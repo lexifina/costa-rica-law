@@ -1,0 +1,1 @@
+Artículo 247.-El que conduzca a una persona contra su voluntad o con engaño fuera de la República con el intento de someterla ilegalmente al poder de otro, sea éste autoridad o no, o para alistarla en un ejército extranjero, será condenado a prisión de dos a cinco años.

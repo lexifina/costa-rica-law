@@ -1,0 +1,1 @@
+Artículo 212.-Cuando el inculpado de homicidio o de lesiones haya sido herido por su adversario en la lucha habida con él, y la lesión fuere alguna de las definidas en los artículos 201, 202, y 203, la pena será la del caso, disminuidos en un tercio sus extremos mayor y menor.

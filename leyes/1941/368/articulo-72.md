@@ -1,0 +1,2 @@
+Artículo 72.-Siempre que el hecho punible se cometiere con abuso del ejercicio o con: infracción de los deberes inherentes a una profesión titular, un oficio, comercio, industria o arte, a la patria potestad, tutela, curatela o a la administración judicial de bienes, se impondrá, con juntamente con la pena que corresponda, la de inhabilitación especial a que se contraen los incisos 5° y 6° del artículo 68, por un término de seis meses a cinco años.
+En cuanto a la patria potestad, el juez podrá imponer la inhabilidad permanente para ejercerla, según el caso.

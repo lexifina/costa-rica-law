@@ -1,0 +1,1 @@
+Artículo 40.-La tentativa que no tuviere señalada pena especial, se sancionará con la ordinaria disminuida de uno a dos tercios, habida cuenta del mayor o menor desarrollo de la acción y de las circunstancias modificativas de la responsabilidad.

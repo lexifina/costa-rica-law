@@ -1,0 +1,1 @@
+Artículo 233.-El que se hiciere reo del delito de sodomía, sufrirá la pena de prisión de uno a tres años; y si uno de los procesados tuviere sobre su codelincuente poder de mando o disciplinario, como ascendiente, tutor, maestro, jefe, guardián o en cualquier otro concepto que implique influencia de autoridad o de dirección moral, la pena será de dos a cuatro años.
