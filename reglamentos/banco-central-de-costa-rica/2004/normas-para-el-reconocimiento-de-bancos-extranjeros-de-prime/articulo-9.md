@@ -1,0 +1,1 @@
+Artículo 9º—Plazas autorizadas. Con excepción de las entidades consignadas en el artículo 7° de estas normas, sólo se otorgará el reconocimiento de bancos de primer orden a entidades domiciliadas en países cuya calificación soberana sea AA- o superior. El Comité de Reservas podrá establecer las listas de plazas que reúnen los criterios antes mencionados.
