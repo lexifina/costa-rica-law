@@ -1,0 +1,1 @@
+Art. 4. La compañia se organizará entre un año contado desde esta fecha y en el segundo empezará la obra que deberá concluirse dentro los primeros seis del contrato. Si por algun caso fortuito, la obra no pudiese estar concluida en este término, el Ejecutivo queda autorizado para conceder, con conocimiento de causa, una próroga por el tiempo que crea necesario.

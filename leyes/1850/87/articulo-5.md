@@ -1,0 +1,1 @@
+Art. 5. Dentro de seis meses contados de la publicacion de esta ley, se presentarán los que quieran ser accionistas, por escrito de palabra, á la Gobernacion de Cartago, á fin de ser inscritos en la lista de socios; y espirado el tiempo señalado, se reunirán estos á nombrar la junta direcctora.

@@ -1,0 +1,1 @@
+Art. 8. Tan luego como la compañia haya concluido el camino y puedan transitar las carrétas. El presidente de la junta lo avisará al Excelentisiio Gobierno para que mande estender en favor de la Compañía el título de propiedad de los terrenos con que se le agracia, en virtud de la mensura que previamente hará practicar la Intendencia general.
