@@ -1,0 +1,1 @@
+Artículo 10.—Jurisdicción. Corresponderá a los juzgados contravencionales conocer de los hechos que configuren abuso del emblema y a los juzgados penales, los hechos que constituyan uso pérfido del emblema.
