@@ -1,0 +1,1 @@
+Artículo 3°─ En caso de que el servidor haya sido seleccionado por el mismo Ministerio para el disfrute de una Beca o auxilio semejante y, siempre que lo permita así el presupuesto respectivo, tendrá derecho a licencia con goce del sueldo completo.

@@ -1,0 +1,1 @@
+Artículo 4°─ Si el servidor ha gestionado la beca o auxilio, de acuerdo con sus personales intereses, pero con la ayuda del Ministerio, tendrá derecho con el 50% de su sueldo, si así lo permite el presupuesto respectivo.

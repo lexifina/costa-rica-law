@@ -1,0 +1,1 @@
+Artículo 2°─ Todo servidor del Ministerio que en procura de su mejoramiento profesional, deba retirarse temporalmente del servicio, tiene derecho a que le sea concedido el permiso respectivo, hasta por dos años.
