@@ -14,3 +14,4 @@ Integración del Consejo de Seguridad Vial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-09-10 | la propia norma |
+| 2 | 1987-07-29 | Decreto Ejecutivo 17684 (1987-07-29) |
