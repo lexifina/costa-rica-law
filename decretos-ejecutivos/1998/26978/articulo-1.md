@@ -1,6 +1,8 @@
+(Derogado)
 N-26978-MAG
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+DEROGADO por el artículo 12° del Decreto Ejecutivo N° 31344 de 21 de julio de 2003, publicado en La Gaceta N° 17 de 05 de setiembre de 2003.
 En uso de las facultades establecidas en el artículo 140. incisos 3) y 18) de la Constitución Política, la Ley No 6227 del 2 de mayo de 1978 la Ley N° 7064 del 29 de abril de 1987,
 Considerando:
 1°—Que la estructura productiva agropecuaria se encuentra en un proceso de modernización acelerado en el cual la tecnología de información juega un papel fundamental para su mejoramiento.

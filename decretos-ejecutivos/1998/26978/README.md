@@ -14,3 +14,4 @@ Crea Red de Información Agropecuaria Costarricense -INFOAGRO-.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-26 | la propia norma |
+| 2 | 2003-07-21 | Decreto Ejecutivo 31344 (2003-07-21) |
