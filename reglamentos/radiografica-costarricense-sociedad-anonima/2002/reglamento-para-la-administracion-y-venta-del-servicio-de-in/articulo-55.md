@@ -1,0 +1,1 @@
+Artículo 57.—RACSA pagará una sola vez al Agente Autorizado los honorarios respectivos por las ventas realizadas durante un mes, equivalentes al valor del paquete de INTERNET conmutado vendido, siempre y cuando el cliente de RACSA haya cancelado la primera mensualidad del servicio contratado.

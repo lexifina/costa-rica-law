@@ -1,0 +1,1 @@
+Artículo 6º—RACSA establecerá un tiempo máximo de ocho días naturales, a partir de su programación, para que el Agente Autorizado cumpla con la entrega del contrato de servicio de INTERNET conmutado.

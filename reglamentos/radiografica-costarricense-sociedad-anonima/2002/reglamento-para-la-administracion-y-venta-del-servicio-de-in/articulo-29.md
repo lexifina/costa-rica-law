@@ -1,0 +1,1 @@
+Artículo 30.—El Agente Autorizado estará en la obligación de verificar que la dirección indicada por el cliente en la respectiva solicitud de servicio de INTERNET conmutado cumpla con las condiciones necesarias para realizar el envío de la factura.

@@ -1,0 +1,1 @@
+Artículo 20.—RACSA suministrará a los agentes autorizados los contratos y sobres lacrados que los clientes deben suscribir en el momento de adquirir el servicio, además de material publicitario para incentivar la venta de los paquetes actuales del servicio de INTERNET conmutado.

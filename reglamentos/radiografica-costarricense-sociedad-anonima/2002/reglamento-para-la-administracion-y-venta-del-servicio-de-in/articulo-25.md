@@ -1,0 +1,1 @@
+Artículo 25.—El Agente Autorizado suministrará al cliente de RACSA información completa y oportuna sobre el servicio de INTERNET conmutado, de acuerdo con los requerimientos estipulados en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 46.—El Agente Autorizado podrá solicitar por escrito los suministros necesarios para la venta del servicio de INTERNET conmutado, mediante solicitud escrita y dirigida al coordinador de agentes autorizados.

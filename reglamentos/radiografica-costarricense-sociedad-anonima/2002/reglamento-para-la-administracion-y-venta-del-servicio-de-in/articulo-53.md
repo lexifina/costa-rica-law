@@ -1,0 +1,1 @@
+Artículo 55.—Con base en el artículo anterior, RACSA cobrará el total del tráfico de logines programados asociado a montos pre-establecidos por la empresa según el tipo de servicio programado y adquirido por el cliente.

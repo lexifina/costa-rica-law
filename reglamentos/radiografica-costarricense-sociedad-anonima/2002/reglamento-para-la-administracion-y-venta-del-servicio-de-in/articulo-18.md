@@ -1,0 +1,1 @@
+Artículo 18.—RACSA no será responsable del daño, pérdida o robo de los sobres lacrados, los formularios de solicitud del servicio de INTERNET conmutado y otros documentos para la venta del servicio de INTERNET conmutado.
