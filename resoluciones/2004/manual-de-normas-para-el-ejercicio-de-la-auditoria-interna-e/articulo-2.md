@@ -1,0 +1,1 @@
+2.—Derógase el "Manual para el ejercicio de la Auditoría Interna en las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República", publicado en La Gaceta Nº 225 del 26 de noviembre de 1984.
