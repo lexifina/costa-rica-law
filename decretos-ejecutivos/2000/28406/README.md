@@ -17,3 +17,4 @@ Autoridad Presupuestaria no Considerará Solicitudes para la Creación de Plazas
 | 2 | 2000-06-22 | Decreto Ejecutivo 28753 (2000-06-22) |
 | 3 | 2000-07-17 | Decreto Ejecutivo 28838 (2000-07-17) |
 | 4 | 2000-07-20 | Decreto Ejecutivo 28836 (2000-07-20) |
+| 5 | 2000-08-09 | Decreto Ejecutivo 28879 (2000-08-09) |
