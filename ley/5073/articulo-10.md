@@ -1,0 +1,1 @@
+Artículo 10.-Se autoriza al Poder Ejecutivo para trasladar, mediante decreto ejecutivo, los gastos y relación de puestos correspondientes al programa N° 103: Extensión Musical del Ministerio de Seguridad Pública y al Ministerio de Cultura, Juventud y Deportes, conforme al Decreto Ejecutivo N° 2372 de 20 de junio de 1972 y ley N° 4788 de 5 de julio de 1971.

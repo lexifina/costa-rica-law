@@ -1,0 +1,1 @@
+Artículo 8°-Se autoriza al Poder Ejecutivo para reglamentar la emisión de los bonos Deuda Interna 8% 1971 por ¢57.000.000 de modo que las características financieras de los títulos sean las mismas de los Bonos de Inversión Pública, establecidas en la ley N° 3657, de 5 de enero de 1966.
