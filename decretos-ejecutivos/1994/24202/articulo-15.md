@@ -1,0 +1,1 @@
+Artículo 15.- En todos los casos, el R.E.S.A.L. y el Registro Mercantil actuarán bajo los principios de coordinación y complementariedad, respecto de las sociedades anónimas laborales, realizando cada uno sus respectivas funciones, atribuciones y competencias, conforme a la ley.

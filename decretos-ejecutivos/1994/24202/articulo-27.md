@@ -1,0 +1,8 @@
+CAPITULO SETIMO
+De la transferencia de actividades menores, accesorías, de apoyo o no consustanciales
+de la administración pública al sector privado.
+Artículo 27.- Cuando la Administración prevea la transferencia de alguno o algunos de los servicios menores, accesorios, auxiliares, de apoyo, no consustanciales al servicio público, de previo a dicha transferencia se procederá:
+a) Permitir el acceso a los representantes sindicales de los servidores, empleados y funcionarios interesados, a otros representantes de dichos servidores y a éstos directamente, a la información sobre los motivos de la transferencia, el número y categoría de los empleados o servidores que puedan resultar afectados, así como respecto de los estudios de factibilidad que sirvan de base técnica al traslado de actividades o servicios y el plazo para llevarlo a acabo.
+b) Brindar a los representantes sindicales de los servidores, empleados y funcionarios interesados, a otros representantes de dichos trabajadores y a éstos directamente, lo antes posible, la oportunidad de entablar las consultas pertinentes ante la Administración, sobre las medidas que deban adoptarse para atenuar las consecuencias adversas para los citados servidores, empleados y funcionarios.
+c) Otorgar a los citados representantes y a los trabajadores, las facilidades posibles para efectuar las consultas necesarias, mediante asambleas y discusiones con los servidores, empleados y funcionarios del servicio o de la dependencia a afectar, sobre las medidas propuestas.
+d) El plazo para realizar las consultas a que se refiere el aparte anterior, y sugerir las medidas correspondientes, no será inferior a quince días ni mayor a un mes.

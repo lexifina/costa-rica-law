@@ -1,0 +1,3 @@
+Artículo 29.- Las actividades menores, accesorias, auxiliares, de apoyo, que no sean consustanciales al servicio público o al giro principal de la institución u órgano públicos de que se trate, podrán ser desarrolladas directamente por las sociedades anónimas laborales, de conformidad con lo establecido en la Ley y en este Reglamento.
+A tal efecto, la Administración Pública deberá otorgar prioridad a las sociedades anónimas laborales, para la contratación de los indicados servicios.
+La Administración interesada podrá negociar y concretar la contratación antes del traslado o movilización de los funcionarios públicos al sector privado.

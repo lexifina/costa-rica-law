@@ -1,0 +1,1 @@
+Artículo 9º.- Las sociedades mercantiles privadas que deseen acogerse a las disposiciones de la Ley, deberán reformar sus estatutos de acuerdo con las normas de dicha Ley y de este Reglamento, e inscribirse en el Registro Mercantil, previa calificación del R.E.S.A.L.

@@ -1,0 +1,3 @@
+Artículo 26.- El I.S.A.L. funcionará bajo la dirección de la Universidad hasta por un período máximo de diez años, a partir de la publicación de la Ley. Finalizado dicho período, el I.S.A.L. y su patrimonio pasarán a depender de una entidad, de carácter nacional, que represente los intereses de las sociedades anónimas laborales.
+Dicha entidad deberá contar con un estatuto que garantice los principios constitucionales de igualdad, representatividad, proporcionalidad y que establezca la obligación del Estado de velar por los intereses del sector de las sociedades anónimas laborales.
+De no crearse la citada entidad, los activos y pasivos del I.S.A.L. pasarán a formar parte del fideicomiso establecido en los artículos 30 de la Ley y 17 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 35.- Cuando la Administración o la Institución respectiva pretenda incorporar otras actividades como auxiliares, con base en lo dispuesto en el inciso 19) del artículo 7º de la Ley, para los efectos de dicha transferencia al sector privado, deberá someter y obtener la aprobación previa del Consejo Superior de Trabajo.

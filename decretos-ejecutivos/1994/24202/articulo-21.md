@@ -1,0 +1,1 @@
+Artículo 21.- El contenido económico para constituir el Fondo Nacional de Avales, a que se refieren los artículos 31 de la Ley y 20 inciso d) de este Reglamento, se tomará los réditos o dividendos que genere el crédito que contratará el Banco, al tenor de los numerales 30 de la Ley y 17 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 4º.- A solicitud de parte, el R.E.S.A.L. emitirá las certificaciones y constancias pertinentes sobre el estado de trámite en que se encuentran los documentos presentados para su homologación.
