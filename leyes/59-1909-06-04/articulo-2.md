@@ -1,0 +1,1 @@
+Artículo 2°-El nuevo cantón lo comprenderán los distritos del Centro, San José, San Antonio, la Concepción, San Felipe y Tejarcillos, los cuales por su orden se enumerarán 1°, 2°, 3°, 4°, 5° y 6° Será cabecera del cantón la población de Alajuelita, á la cual se confiere el título de villa.
