@@ -1,53 +1,17 @@
-Artículo 726- Para abonar al reo la prisión sufrida, se computará a
-razón de un día de arresto por cada día de prisión preventiva.
+Artículo 726- Para abonar al reo la prisión sufrida, se computará a razón de un día de arresto por cada día de prisión preventiva.
 Son penas accesorias para el contrabando:
 1º- La pérdida de los efectos, máquinas y utensilios aprehendidos; y
-2º- La pérdida de los semovientes, vehículos y embarcaciones en que
-se transporten o encuentren efectos estancados de ilícito comercio,
-salvo que pertenezcan a un tercero que no tuviere conocimiento del
-empleo que de ellos se proponía hacer el delincuente y así lo demuestre.
-El auto de prisión y enjuiciamiento contendrá decreto de embargo
-preventivo en bienes del inculpado, en cantidad suficiente para
-responder de la posible multa y un cincuenta por ciento más.
-(Párrafo cuarto). La sentencia condenatoria declarará, en su caso,
-firme el embargo y mandará rematar los bienes embargados o dados en
-garantía para la excarcelación, si los hubiere, y ante el propio alcalde
-o la autoridad de policía respectiva, por los procedimientos comunes a
-fin de satisfacer con su producto el importe de la condenatoria y las
-costas del procedimiento de apremio, salvo que el reo optare por la
-conmutación en trabajos públicos a que se refiere el artículo 471, en
-cuyo caso seguirá respondiendo la propia garantía para los efectos de
-ese texto legal.
-(Así reformado por ley Nº 2905 de 24 de noviembre de 1961).
-(Párrafos quinto y sexto). Firme el remate, el juzgador reducirá
-del precio el importe de la multa y demás indemnizaciones pecuniarias
-que debiere satisfacer el inculpado, debiendo enterar lo correspondiente
-en el Tesoro Nacional, como se ha dicho, y devolver al interesado
-cualquier sobrante.
-Si la garantía presentada por el reo fuere un depósito en dinero,
-el juzgador girará a favor del Tesoro Público el importe de la multa y
-costas indicadas en la sentencia o en la respectiva liquidación y
-devolverá al reo el sobrante, si lo hubiere, pues se considera que el
-depósito ha sido hecho por éste, aun cuando otras personas hayan
-facilitado el dinero o realizado ese depósito, excepto en el caso en que
-el reo se acoja a la conmutación en trabajos públicos, en cuyo evento se
-procederá conforme con lo dicho en el párrafo trasanterior de este mismo
-artículo.
-(Así reformado por ley Nº 2905 de 24 de noviembre de 1961).
-Si la garantía rendida consistiere en prenda en la forma que
-determina el inciso 3º del artículo 716, se hará la ejecución y apremio
-en la misma forma establecida anteriormente para las hipotecas.
-Tanto en los casos de prenda como en los de hipoteca, se
-prescindirá del avalúo pericial y los bienes se rematarán con la base
-que se hubiere fijado en la escritura de caución, aun cuando el garante,
-si fuere un tercero, ofrezca presentar al reo, hasta tanto no se
-verifique el ingreso en el establecimiento penal correspondiente.
-(Párrafo noveno). Todo el procedimiento lo seguirá el juzgador de
-oficio, pudiendo hacerlo también a instancias de cualquier interesado o
-del representante de la Procuraduría General de la República.
-(Así reformado por ley Nº 2905 de 24 de noviembre de 1961).
-Los extranjeros, comerciantes o no, que fueren condenados por
-delitos contra la Hacienda Pública o que reincidieran en dos o más
-faltas de esa índole, podrán ser expulsados del país mediante acuerdo
-del Poder Ejecutivo.
-(Así reformado por ley Nº 18 de 13 de noviembre de 1936).
+2º- La pérdida de los semovientes, vehículos y embarcaciones en que se transporten o encuentren efectos estancados de ilícito comercio, salvo que pertenezcan a un tercero que no tuviere conocimiento del empleo que de ellos se proponía hacer el delincuente y así lo demuestre.
+El auto de prisión y enjuiciamiento contendrá decreto de embargo preventivo en bienes del inculpado, en cantidad suficiente para responder de la posible multa y un cincuenta por ciento más.
+La sentencia condenatoria declarará, en su caso, firme el embargo y mandará rematar los bienes embargados o dados en garantía para la excarcelación, si los hubiere, y ante el propio alcalde o la autoridad de policía respectiva, por los procedimientos comunes a fin de satisfacer con su producto el importe de la condenatoria y las costas del procedimiento de apremio, salvo que el reo optare por la conmutación en trabajos públicos a que se refiere el artículo 471, en cuyo caso seguirá respondiendo la propia garantía para los efectos de ese texto legal.
+(Así reformado el párrafo anterior por el artículo 2° de la Ley Nº 2905 de 24 de noviembre de 1961).
+Firme el remate, el juzgador reducirá del precio el importe de la multa y demás indemnizaciones pecuniarias que debiere satisfacer el inculpado, debiendo enterar lo correspondiente en el Tesoro Nacional, como se ha dicho, y devolver al interesado cualquier sobrante.
+(Así reformado el párrafo anterior por el artículo 2° de la Ley Nº 2905 de 24 de noviembre de 1961).
+Si la garantía presentada por el reo fuere un depósito en dinero, el juzgador girará a favor del Tesoro Público el importe de la multa y costas indicadas en la sentencia o en la respectiva liquidación y devolverá al reo el sobrante, si lo hubiere, pues se considera que el depósito ha sido hecho por éste, aun cuando otras personas hayan facilitado el dinero o realizado ese depósito, excepto en el caso en que el reo se acoja a la conmutación en trabajos públicos, en cuyo evento se procederá conforme con lo dicho en el párrafo trasanterior de este mismo artículo.
+(Así reformado el párrafo anterior por el artículo 2° de la Ley Nº 2905 de 24 de noviembre de 1961).
+Si la garantía rendida consistiere en prenda en la forma que determina el inciso 3º del artículo 716, se hará la ejecución y apremio en la misma forma establecida anteriormente para las hipotecas.
+Tanto en los casos de prenda como en los de hipoteca, se prescindirá del avalúo pericial y los bienes se rematarán con la base que se hubiere fijado en la escritura de caución, aun cuando el garante, si fuere un tercero, ofrezca presentar al reo, hasta tanto no se verifique el ingreso en el establecimiento penal correspondiente.
+Todo el procedimiento lo seguirá el juzgador de oficio, pudiendo hacerlo también a instancias de cualquier interesado o del representante de la Procuraduría General de la República.
+(Así reformado el párrafo anterior por el artículo 2° de la Ley Nº 2905 de 24 de noviembre de 1961).
+Los extranjeros, comerciantes o no, que fueren condenados por delitos contra la Hacienda Pública o que reincidieran en dos o más faltas de esa índole, podrán ser expulsados del país mediante acuerdo del Poder Ejecutivo.
+(Así reformado por el artículo único de la Ley Nº 18 de 13 de noviembre de 1936).
