@@ -18,3 +18,4 @@ Crea Comisión Presidencial COPRE.
 | 3 | 2000-04-27 | Decreto Ejecutivo 28609 (2000-04-27) |
 | 4 | 2002-05-08 | Decreto Ejecutivo 30459 (2002-05-08) |
 | 5 | 2002-12-16 | Decreto Ejecutivo 30928 (2002-12-16) |
+| 6 | 2003-04-30 | Decreto Ejecutivo 31188 (2003-04-30) |

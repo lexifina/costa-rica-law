@@ -1,6 +1,7 @@
 Artículo 2º—La Comisión Presidencial estará integrada por:
-a) El Ministro de la Presidencia o su Viceministro, quien la presidirá.
-b) El Ministro de Hacienda o su Viceministro.
-c) El Ministro de Planificación Nacional y Política Económica o su Viceministro.
-d) Dos Asesores de la Presidencia, nombrados por el Presidente de la República.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo No. 30928 de 16 de diciembre de 2002, publicado en La Gaceta No. 15 de 22 de enero de 2003.)
+a) El Ministro de Hacienda y su Viceministro.
+b) La Ministra de Planificación Nacional o su Viceministro.
+c) El Ministro de Ciencia y Tecnología o su Viceministro.
+d) Dos asesores de la Presidencia, nombrados por el Presidente de la República.
+Uno de los asesores presidenciales presidirá la Comisión.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo No. 31188 de 30 de abril de 2003, publicado en La Gaceta No. 105 de 03 de junio de 2003, Alcance 26.)
