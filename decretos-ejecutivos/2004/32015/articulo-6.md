@@ -1,0 +1,2 @@
+Artículo 6º—Modificase el encabezado del artículo 29 del Decreto Nº 25148-H-TUR para que se lea como se indica a continuación, manteniéndose el resto sin modificación alguna:
+“Para efectos de las fiscalizaciones que realicen el Instituto o la Dirección para verificar el adecuado uso y destino de bienes exonerados, las empresas arrendantes quedan obligadas a presentar en las fechas y con el formato que la Dirección indique, un informe anual, que contendrá la información que se detalla:....”
