@@ -14,3 +14,4 @@ Reglamento Control y Erradicación Brucelosis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1958-02-11 | la propia norma |
+| 2 | 1965-02-25 | Decreto Ejecutivo 2 (1965-02-25) |
