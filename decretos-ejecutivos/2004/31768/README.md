@@ -14,3 +14,4 @@ Crea el subsistema de gestión organizacional y desarrollo regional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-04 | la propia norma |
+| 2 | 2004-05-04 | Decreto Ejecutivo 31781 (2004-05-03) |
