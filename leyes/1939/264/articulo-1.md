@@ -4,4 +4,5 @@ Tomando en consideración los reparos formulados por el Poder Ejecutivo al decre
 DECRETA;
 La siguiente
 LEY DE JUBILACIONES Y PENSIONES PARA LOS EMPLEADOS DEL FERROCARRIL ELECTRICO AL PACIFICO
-Artículo 1°-Los empleados y obreros al servicio del Ferrocarril Eléctrico al Pacífico, que se hallen en las condiciones previstas por esta ley, disfrutarán de la protección del Estado con arreglo a lo que disponen los artículos que siguen.
+Artículo 1°-El personal al servicio del Instituto Autónomo del Ferrocarril Eléctrico al Pacífico, que se halle en las condiciones previstas por esta ley, disfrutará de la protección de ese Instituto, con arreglo a lo que disponen los artículos siguientes:
+(Así reformado por el artículo 1° de la ley N° 4473 del 3 de diciembre de 1969)

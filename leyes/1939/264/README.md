@@ -1,6 +1,6 @@
 # Ley de Jubilaciones y Pensiones para los Empleados del Ferrocarril Eléctrico al Pacífico
 
-Ley N° 264 del 1939-08-23. SINALEVI, ficha 512: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=512&param2=79894&param3=1>.
+Ley N° 264 del 1939-08-23. SINALEVI, ficha 512: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=512&param2=79895&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 10 | 1947-03-12 | Ley 849 | 1947-03-12 |
 | 5 de 10 | 1948-09-10 | Ley 167 | 1948-09-10 |
 | 6 de 10 | 1950-11-21 | Ley 1229 | 1950-11-21 |
+| 7 de 10 | 1969-12-06 | Ley 4473 | 1969-12-03 |

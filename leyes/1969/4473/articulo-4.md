@@ -1,0 +1,1 @@
+Artículo 4º.- No gozarán del beneficio a que aluden los artículos 2º y 3º anteriores, los que en la tramitación de sus expedientes hayan actuado de mala fe, presentando documentos que necesariamente debían reputar de falsos en su contenido, o a quienes se haya otorgado el beneficio en flagrante violación de la ley.
