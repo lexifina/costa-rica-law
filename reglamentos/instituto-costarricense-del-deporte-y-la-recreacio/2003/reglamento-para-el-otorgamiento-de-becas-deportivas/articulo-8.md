@@ -1,0 +1,1 @@
+Artículo 8º—El atleta o deportista beneficiado con una beca deportiva, deberá dar un servicio al ICODER, sea en labores técnicas o administrativas y por un tiempo máximo de cuarenta horas según sea el periodo de la beca deportiva asignada.

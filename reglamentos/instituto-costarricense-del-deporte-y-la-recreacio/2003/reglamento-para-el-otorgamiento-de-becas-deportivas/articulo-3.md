@@ -1,0 +1,1 @@
+Artículo 3º—La beca deportiva se aplicará única y exclusivamente para cubrir gastos en: vestimenta deportiva, equipo o implementos deportivos, medicamentos, atención médica, transporte al interior y exterior del país y uso de instalaciones deportivas del ICODER para sus entrenamientos.

@@ -1,0 +1,1 @@
+Artículo 4º—El beneficio de la beca deportiva lo recibirá directamente el atleta o deportista a quien se le ha aprobado la solicitud o se hará efectiva según sea el caso por medio de la entidad deportiva legalmente constituida que lo respalda, (personería y cédula jurídica vigentes) entre ellas: una asociación deportiva o comité cantonal de deportes y recreación.

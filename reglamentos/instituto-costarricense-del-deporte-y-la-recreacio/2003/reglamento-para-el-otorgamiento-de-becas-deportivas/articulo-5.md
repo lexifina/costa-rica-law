@@ -1,0 +1,1 @@
+Artículo 5º—Las solicitudes para una beca deportiva se deberán retirar en la oficina del proceso de talentos deportivos del ICODER, dentro del periodo establecido y por medio del atleta o deportista interesado y la entidad deportiva que lo respalda.

@@ -1,0 +1,1 @@
+Artículo 9º—Las becas deportivas se asignarán por períodos anuales y podrán hacerse efectivas en tractos mensuales, trimestrales, semestrales o en uno solo, según sea el caso y a criterio del proceso previa consulta de disponibilidad presupuestaria.

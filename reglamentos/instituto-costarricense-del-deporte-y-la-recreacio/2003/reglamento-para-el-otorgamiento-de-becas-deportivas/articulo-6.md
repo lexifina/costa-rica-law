@@ -1,0 +1,1 @@
+Artículo 6º—Las solicitudes para una beca deportiva se deberán presentar en la oficina del proceso de talentos deportivos del ICODER, dentro de los periodos establecidos y cumpliendo con los requisitos establecidos en la misma.
