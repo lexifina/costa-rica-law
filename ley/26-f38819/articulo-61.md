@@ -1,1 +1,0 @@
-Art. 61.-Cuando los interesados quisieren hacer constar en escritura pública actos jurídicos ó contratos que por defectuosos, informales ó por cualquier otro motivo no puedan ser legalmente eficaces, el Cartulario lo advertirá así á los otorgantes, y si éstos insistieren extenderá la escritura, consignando en ella la advertencia.

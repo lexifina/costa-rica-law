@@ -1,2 +1,0 @@
-Art. 74.-El cuerpo de la escritura contendrá la relación clara y circunstanciada del acto ó contrato que se quiera hacer constar, tal como hubiere pasado ante el Cartulario y testigos instrumentales, ó como lo refieran los interesados en minutas escritas ó de palabra.
-Si se tratare de documentos sujetos á inscripción en los Registros de Propiedad ó de Hipotecas la relación contendrá cita del número, tomo, folio y asiento, en su caso, de la Inscripción de la finca ó derecho real á que aquellos afecten; y además expresará la naturaleza de la finca.

@@ -1,1 +1,0 @@
-Art. 78.-No es necesario que todos los requisitos y constancias de una escritura matriz se consignen en el mismo orden con que se han enumerado; pero las constancias y requisitos á que se refieren los últimos cinco incisos del artículo anterior deben ir siempre al pie de la escritura.

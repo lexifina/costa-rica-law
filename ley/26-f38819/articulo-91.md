@@ -1,1 +1,0 @@
-Art. 91.- De cada segundo ó ulterior testimonio que se expida dejará el Notario ó funcionario razón firmada por él y el solicitante al margen de la respectiva escritura, que exprese los derechos causados, la fecha de la entrega, la del testimonio y el mandato judicial en cuya virtud se expida.

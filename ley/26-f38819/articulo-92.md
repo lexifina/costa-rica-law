@@ -1,1 +1,0 @@
-Art. 92.-Las certificaciones de escrituras se extenderán en la forma común de toda certificación é irán firmadas por los testigos que presencien su confrontación con el original y en el papel correspondiente.

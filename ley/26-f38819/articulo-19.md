@@ -1,1 +1,0 @@
-Art. 19.-La persona que quiera ejercer el Notariado solicitará del Supremo Tribunal de Justicia que le autorice para ello. La solicitud se hará por escrito, acompañando el título de Notario y constancia del Ministro de Hacienda de haber rendido la garantía.

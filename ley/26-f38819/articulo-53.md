@@ -1,2 +1,0 @@
-Art. 53.-Pasados los treinta días, el Juez, en un libro protocolo que en su primera razón exprese el especial objeto á que está destinado, trascribirá por su orden cronológico los testimonios que le hubieren presentado de las escrituras que deban reponerse.
-Respecto de las que aun no se hubiere obtenido testimonios se trascribirán todos los datos que aparezcan del índice, de las certificaciones del Registro y Archivo y de cualquier otro documento auténtico.

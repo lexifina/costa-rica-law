@@ -1,1 +1,0 @@
-Art. 90.-Los testimonios de escrituras que deben ir al Registro llevarán en el ángulo superior izquierdo de la primera plana un cuadro en que el Notario ó funcionario que lo expida debe necesariamente consignar los datos que conforme al Reglamento de Registro son indispensables para extender el asiento de presentación.
