@@ -1,0 +1,1 @@
+Artículo 25.—La U.E. gestionará ante las Municipalidades de la provincia de Cartago, cuyos cantones tengan territorio dentro de la Cuenca Alta del Río Reventazón, de acuerdo al párrafo tercero del artículo 1º de la Ley, el destino y giro a la COMCURE de los recursos establecidos en el artículo 43 de la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998.

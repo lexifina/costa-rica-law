@@ -1,0 +1,1 @@
+Artículos 5º—Las instituciones públicas mencionadas en el artículo 8º de la Ley, así como la Federación de Municipalidades de Cartago y el Comité Consultivo, deberán acreditar por escrito ante el MINAE sus representantes oficiales en la COMCURE.

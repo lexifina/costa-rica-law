@@ -1,0 +1,1 @@
+Artículo 11.—El Director Ejecutivo podrá ser removido por las siguientes causas: incumplimiento de las funciones que le asigna la Ley, solicitud por parte de la organización que representa, acuerdo de la COMCURE, cuando incurra en alguna de las causales establecidas en el capítulo de sanciones.

@@ -1,0 +1,1 @@
+Artículo 10.—La COMCURE deberá realizar los trámites legales correspondientes para proceder a su incorporación en el Registro Nacional, así como para la inscripción de su libro de asambleas y de la personería del Director Ejecutivo.
