@@ -1,0 +1,1 @@
+Artículo 5°.- Autorízase a la Corporación Municipal de Puriscal para celebrar el o los contratos necesarios con el Instituto Costarricense de Electricidad , para la ejecución de la obra autorizada pro esta ley.
