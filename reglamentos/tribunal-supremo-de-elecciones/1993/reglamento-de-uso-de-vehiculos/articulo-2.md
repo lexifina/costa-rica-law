@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO: DEL AMBITO DE APLICACION: el presente reglamento regula el uso de los vehículos propiedad del Tribunal Supremo de Elecciones y del Registro Civil, así como todo lo relativo al transporte de personas, materiales y equipos de estos organismos electorales.
