@@ -1,8 +1,3 @@
-Artículo 309.- El Poder Ejecutivo reglamentará la concesión de los
-privilegios a que se refiere el artículo anterior, en forma que pueda
-revocarlos, suspenderlos o restringirlos en cualquier momento que la
-Secretaría de Trabajo y de Previsión Social compruebe que una
-cooperativa está haciendo uso indebido de ellos.
-Iguales facultades tendrá el Poder Ejecutivo, respecto de las
-cooperativas, en cuanto a la exención de que habla el párrafo primero
-el artículo 266.
+CAPITULO DECIMO
+ARTICULO 309.- Las faltas e infracciones a lo que disponen esta Ley y sus reglamentos y cuyas sanciones no estén expresamente contempladas en normas especiales, independientemente de la responsabilidad que acarreen al infractor, se sancionarán de acuerdo con las disposiciones del Título X, Sección Segunda del presente Código.
+(Así reformado por el artículo 2º de la ley No.7360 del 4 de noviembre de 1993)

@@ -1,4 +1,3 @@
-Artículo 195.- Los trabajos a domicilio o en familia quedan sometidos
-a las disposiciones que preceden, pero las respectivas obligaciones
-recaerán, según el caso, sobre los trabajadores o sobre el jefe de la
-familia.
+ARTICULO 195.-
+Constituyen riesgos del trabajo los accidentes y las enfermedades que ocurran a los trabajadores, con ocasión o por consecuencia del trabajo que desempeñen en forma subordinada y remunerada, así como la agravación o reagravación que resulte como consecuencia directa, inmediata e indudable de esos accidentes y enfermedades.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

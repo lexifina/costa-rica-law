@@ -1,3 +1,1 @@
-Artículo 117.- El trabajo y la enseñanza en los establecimientos
-correccionales y en las escuelas de artes y oficios reconocidas por el
-Estado, se regirá por disposiciones especiales.
+ARTICULO 117.-(Derogado por el artículo 29° de la Ley de Aprendizaje, N° 4903 de 17 de noviembre de 1971)

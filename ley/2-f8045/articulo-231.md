@@ -1,5 +1,4 @@
-Artículo 231.- Todo arreglo referente a conmutaciones que se realice
-sin observancia de lo dispuesto por los tres artículos anteriores será
-absolutamente nulo y el patrono no podrá repetir, compensar ni en otra
-forma reclamar del trabajador o sus causahabientes la suma o sumas que
-por tal motivo éstos hubieren recibido.
+ARTICULO 231.- Si el patrono no hubiere asegurado al trabajador contra los riesgos del trabajo, el pago de todas las prestaciones señaladas en los artículos 218 y 219, que el ente asegurador haya suministrado al trabajador víctima de un riesgo del trabajo, o a sus causahabientes, estará exclusivamente a cargo del patrono.
+En todo caso, el instituto asegurador atenderá todas las prestaciones señaladas en este Código para el trabajador víctima de un infortunio laboral, o sus causahabientes, y acudirá a los tribunales para cobrar al patrono las sumas erogadas, con los intereses del caso, todo sin perjuicio de las sanciones establecidas en la ley para el patrono remiso.
+De igual modo actuará el ente asegurador, cuando se presentaren discrepancias con el patrono, en relación con la interpretación y aplicación del seguro, su vigencia y cobertura.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

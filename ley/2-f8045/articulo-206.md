@@ -1,20 +1,5 @@
-Artículo 206.- No estarán amparados por las disposiciones de este
-Capítulo:
-a) Los trabajadores a domicilio;
-b) Los trabajadores que sean contratados eventualmente, sin ánimo
-de lucro, por una persona física que los utilice en obras que por
-razón de su importancia u otro motivo debieren durar menos de cinco
-días;
-c) Los trabajadores del servicio doméstico;
-d) Los trabajadores ocupados en labores que sean propiamente de
-agricultura, silvicultura o ganadería. Esta excepción no comprende
-al personal expuesto al peligro de máquinas o instrumentos movidos
-por fuerza motriz o por causa de ésta, y
-e) Los trabajadores ocupados en labores de transporte agrícola de
-tracción animal, salvo cuando éste se hiciere sobre rieles.
-El Poder Ejecutivo, oyendo de previo, en cada caso, a la Junta
-Directiva del Banco Nacional de Seguros, podrá decretar la restricción
-o eliminación total de alguna o algunas de las excepciones a que se
-refieren los anteriores incisos, de conformidad con las posibilidades
-y necesidades que se vayan presentando de extender la protección contra
-riesgos profesionales a otros sectores de la población asalariada.
+ARTICULO 206.-
+Emitido el seguro contra los riesgos del trabajo, en ente asegurador responderá ante el trabajador por el suministro y pago de todas las prestaciones médico- sanitarias, de rehabilitación y en dinero, que se establezcan en este Código, subrogando al patrono en los derechos y obligaciones que le corresponden. La responsabilidad de la institución aseguradora, en cuanto a prestaciones en dinero, se determinará sobre la base del monto de los salarios informados por el patrono, como devengados por el trabajador, con anterioridad a que ocurra el riesgo. Para este efecto, servirán de prueba las planillas presentadas por el patrono a la institución o cualesquiera otros documentos, que permitan establecer el monto verdaderamente percibido por el trabajador.
+Si los salarios declarados en planillas fueren menores de los que el trabajador realmente devengó, la institución aseguradora pagará, al trabajador o a sus causahabientes, las sumas correctas que en derecho correspondan y conservará la acción contra el patrono, por las sumas pagadas en exceso, más los intereses del caso.
+El trabajador podrá plantear administrativamente, cualquier disconformidad, en relación con el suministro que la institución aseguradora haga de las prestaciones señaladas en este artículo, y ésta deberá pronunciarse al respecto, en el término máximo de quince días hábiles, contados a partir de la interposición de la manifestación por escrito del trabajador. En cuanto al cálculo y fijación de las prestaciones en dinero, el trabajador o sus causahabientes podrán aportar o señalar cualesquiera medios de pruebas que lo favorezcan.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

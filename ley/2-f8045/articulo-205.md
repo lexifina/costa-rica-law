@@ -1,3 +1,4 @@
-Artículo 205.- Para los efectos de este Capítulo se considerarán
-trabajadores a los aficionados, aprendices y otras personas semejantes,
-aunque en razón de su falta de pericia no reciban salario.
+ARTICULO 205.-
+El seguro de riesgos del trabajo será administrado sobre las bases técnicas que el Instituto Nacional de Seguros establezca, para garantizar el otorgamiento de las prestaciones en dinero, médico-sanitarias y de rehabilitación, así como la solidez financiera del régimen.
+La institución aseguradora hará liquidaciones anuales, que incluyan la formación de las reservas técnicamente necesarias, para establecer los resultados del ejercicio económico transcurrido. Si se presentaren excedentes, éstos pasarán a ser parte de una reserva de reparto, que se destinará, en un 50%, a financiar los programas que desarrolle el Consejo de Salud Ocupacional y el resto a incorporar mejoras al régimen.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

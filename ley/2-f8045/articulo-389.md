@@ -1,4 +1,2 @@
-Artículo 389.- Además de sus otras funciones legales, corresponde al
-Secretario enviar un informe trimestral a la Oficina General de Trabajo
-sobre todas las actuaciones del Tribunal que interesen para fines
-estadísticos.
+ARTICULO 389.- El derecho de los patronos al paro y el de los trabajadores a la huelga son irrenunciables; pero será válida la cláusula en virtud de la cual se comprometan a no ejercerlos temporalmente, mientras una de las partes no incumpla los términos de la convención o contrato colectivo, suscrito este último entre el patrono o patronos de que se trate y el sesenta por ciento de sus trabajadores.
+(Anulado el párrafo segundo de este artículo por Resolución de la Sala Constitucional Nº 1317-98 de las 10:12 horas del 27 de febrero de 1998. El texto de dicho párrafo establecía lo siguiente: "Igualmente los Tribunales de Trabajo podrán prohibir el ejercicio de estos derechos por un tiempo no mayor de seis meses, siempre que al resolver un conflicto colectivo lo consideren indispensable para obtener mayor equilibrio en las relaciones de patronos y trabajadores").

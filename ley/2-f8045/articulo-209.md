@@ -1,3 +1,3 @@
-Artículo 209.- Gozarán de los beneficios que prevé este Capítulo los
-trabajadores extranjeros y sus derechohabientes que residan dentro o
-fuera del territorio costarricense.
+ARTICULO 209.-
+Se impondrán las sanciones legales correspondientes, al patrono que omita el envío regular de planillas al Instituto Nacional de Seguros.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,5 +1,3 @@
-Artículo 325.- Los actos o contratos que la Junta Directiva autorice
-obligan o benefician a la cooperativa, siempre que tenga relación con
-el giro y actividades de ésta. No se exceptúa el caso de que no hayan
-sido efectuados expresamente en nombre de la sociedad o no aparezca
-claramente la intención de obrar por ella.
+ARTICULO 325.- Las sanciones se aplicarán a quien resulte ser responsable de la falta o infracción. En el caso de que los responsables fueren varios, las sanciones se impondrán, separadamente, a cada infractor.
+Si la falta o infracción hubiera sido cometida por una empresa, compañía, sociedad o institución pública o privada, las sanciones se aplicarán contra quien figura como patrono, representante legal o jefe superior del lugar en donde el trabajo se presta; pero la respectiva persona jurídica quedará obligada, en forma solidaria con éstos, a cubrir toda clase de responsabilidades de orden pecuniario.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

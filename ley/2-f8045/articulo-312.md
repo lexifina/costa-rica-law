@@ -1,7 +1,2 @@
-Artículo 312.- Los Municipios quedan facultados para fomentar dentro
-de sus respectivas jurisdicciones y por los medios que estimen
-convenientes, el establecimiento y desarrollo de las cooperativas. Con
-tal objeto podrán convertirse en accionistas de éstas, auxiliares con
-subvenciones, donarles terrenos o locales, siempre que pidan, cuando
-corresponda, autorización previa del Poder Legislativo o del Poder
-Ejecutivo.
+ARTICULO 312.- La reincidencia específica, en un plazo de un año, en cuanto a faltas e infracciones a las disposiciones de este Título y sus reglamentos, se sancionará con la aplicación del doble de la multa que inicialmente se haya impuesto.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

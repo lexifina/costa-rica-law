@@ -1,4 +1,3 @@
-Artículo 354.- La distribución de los excedentes no autoriza a los
-asociados ni a terceros para intervenir en la dirección y administración
-de los negocios sociales, salvo el derecho que tienen los primeros de
-hacerse oír en la Asamblea General.
+ARTICULO 354.- Serán absolutamente nulos los actos o contratos celebrados o ejecutados por el sindicato después de disuelto, salvo los que se refieran exclusivamente a su liquidación.
+Es entendido que aun después de disuelto un sindicato se reputará existente sólo en lo que afecte a su liquidación.
+(La Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982, artículo 2º, trasladó el original 284 al presente)

@@ -1,18 +1,4 @@
-Artículo 211.- Si el riesgo profesional fuere causado por dolo,
-negligencia o imprudencia que constituya delito o cuasidelito atribuible
-al patrono, o falta inexcusable del mismo, la victima o sus
-causahabientes podrán recurrir simultáneamente ante los Tribunales
-Comunes y ante los de Trabajo; y en caso de que el patrono satisfaga las
-indemnizaciones respectivas en virtud de lo dispuesto en este Capítulo,
-los Tribunales Comunes le rebajarán el monto de las mismas, en el
-supuesto de que dictaren sentencia condenatoria contra dicho patrono.
-Si las acciones previstas en el párrafo anterior se entablaren sólo
-ante los Tribunales de Trabajo, éstos pondrán, de oficio, en
-conocimiento de los Tribunales Comunes, lo que corresponda.
-Si la víctima estuviere asegurada, el Banco Nacional de Seguros
-pagará inmediatamente la respectiva indemnización al trabajador o a sus
-causahabientes, en los casos a que se refiere este artículo; pero si el
-patrono fuere condenado por los Tribunales Comunes deberá reintegrar a
-dicha Institución la suma o sumas que ésta haya pagado, junto con los
-intereses legales. Al efecto, la sentencia correspondiente servirá de
-título ejecutivo para el Banco.
+ARTICULO 211.-
+Cualquier cambio o variación en la naturaleza, condiciones o lugar de los trabajos, cubiertos por seguro asumido por el Instituto Nacional de Seguros, que agraven las condiciones de riesgos, deberá ser puesto en conocimiento del Instituto, el cual podrá aplicar la prima que corresponda, de acuerdo con la variante que se produzca.
+No tendrá validez ningún cambio, alteración o traspaso de los términos del seguro que se consignan en el recibo- póliza, sin el consentimiento escrito del Instituto Nacional de Seguros.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,22 +1,4 @@
-Artículo 306.- Como excepción a lo dicho en el artículo anterior, las
-cooperativas de crédito podrán prestar sumas no mayores de dos mil
-colones a los trabajadores que no sean socios, con el exclusivo
-propósito de combatir la usura, mediante la refundición de las deudas
-que los mismos tengan a un tipo de ilegal interés o en condiciones
-desfavorables de pago. Estos préstamos se cancelarán en un plazo mínimo
-de veinte meses, podrán devengar hasta un diez por ciento anual de
-interés y el patrono quedará obligado a retener a la orden de las
-cooperativas las amortizaciones semanales, quincenales o mensuales
-correspondientes, una vez que éstas le hagan la respectiva comunicación
-escrita.
-El Poder Ejecutivo determinará en el respectivo decreto
-reglamentario los privilegios o preferencias de que gozarán lo créditos
-que tengan este origen, y las restricciones y requisitos a que se
-sujetará su concesión, a fin de que en la práctica no resulten
-desvirtuados en el espíritu protector de la presente disposición, ni la
-estabilidad de las cooperativas.
-Los saldos o excedentes que por este concepto ingresen irán a
-incrementar el fondo de previsión o se depositarán anualmente en la Caja
-Costarricense de Seguro Social o en el Banco Nacional de Seguros, con
-el fin de que los miembros de la cooperativa adquieran pensiones de
-vejez o seguros de vida.
+ARTICULO 306.- Si el riesgo del trabajo fuere causado por dolo, falta, negligencia o imprudencia, que constituya delito atribuible a terceros, el trabajador y sus causahabientes podrán reclamar a éstos, lo daños y perjuicios que correspondan, de acuerdo con las leyes de orden común ante los tribunales respectivos, simultáneamente y sin menoscabo de los derechos y acciones que pueden interponerse en virtud de las disposiciones de este Título.
+Los daños y perjuicios que deben satisfacer dichos terceros comprenderán también la totalidad de las prestaciones en dinero que se concedan en esta ley, siempre que el trabajador o sus causahabientes no hayan obtenido el pago de éstas. Si el trabajador o sus causahabientes reclamaren de los referidos terceros, una vez que se les hayan satisfecho las prestaciones que otorga este Título, los tribunales comunes ordenarán el pago de los daños y perjuicios que procedan, pero rebajados en la suma o sumas percibidas o que efectivamente puedan percibir el trabajador o sus causahabientes. En tal caso, el patrono que no estuviese asegurado y que depositare a la orden del trabajador o de sus derecho habientes, en el Instituto Nacional de Seguros, la suma necesaria para satisfacer las prestaciones previstas en este Título, tendrá acción subrogatoria hasta por el monto de su desembolso, contra los responsables del riesgo ocurrido, la que se ejercerá ante los tribunales comunes. Si el patrono estuviese asegurado, esa acción subrogatoria competerá sólo al mencionado Instituto.
+Para los efectos de este artículo, se entiende por terceros a toda persona con exclusión del patrono, sus representantes en la dirección del trabajo o los trabajadores de él dependientes.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,6 +1,2 @@
-Artículo 348.- Los excedentes deberán destinarse, por su orden, a
-constituir los fondos obligatorios e irrepartibles de reserva legal y
-de previsión; a pagar a los socios el interés por sus acciones de que
-habla el artículo 344, y a distribuir el saldo entre éstos, en
-proporción a las operaciones que hayan realizado con la sociedad. Dicho
-saldo, en su caso, también se distribuirá entre los particulares.
+ARTICULO 348.- Las obligaciones civiles contraídas por los directores de un sindicato obligan a éste, siempre que aquéllos obren dentro de sus facultades.
+(La Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982, artículo 2º trasladó el original 278 al presente)

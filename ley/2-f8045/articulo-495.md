@@ -1,19 +1,4 @@
-Artículo 495.- Una vez que los autos lleguen en apelación o, en su
-caso, en consulta de la sentencia ante el Tribunal Superior de Trabajo,
-éste revisará, en primer término, los procedimientos; si encontrare que
-se ha omitido alguna formalidad capaz de causar efectiva indefensión,
-decretará la nulidad de actuaciones o de resoluciones que proceda y
-hasta donde sea necesario para orientar el curso normal del juicio. En
-este caso devolverá el expediente al Juez, con indicación precisa de las
-omisiones que deban subsanarse y de la corrección disciplinaria que
-corresponda, si hubiere mérito para imponerla.
-En el supuesto contrario dictará su fallo, sin trámite alguno,
-dentro de los siete días posteriores a aquél en que recibió el
-expediente, salvo que ordene alguna prueba para mejor proveer, la cual
-se evacuará antes de quince días.
-Toda sentencia del Tribunal Superior de Trabajo contendrá, en su
-parte dispositiva, una declaración concreta de que no ha observado
-defectos de procedimiento en la tramitación del juicio de que se trate.
-Dicho Tribunal podrá confirmar, enmendar o revocar, parcial o
-totalmente, lo resuelto por el Juez, aunque el expediente le hubiere
-llegado en consulta o sólo por apelación de alguna de las partes.
+ARTICULO 495.- Aunque haya estipulación en contrario, la sentencia regulará prudencialmente los honorarios que corresponden a los abogados de las partes. Al efecto, los tribunales tomarán en cuenta la labor realizada, la cuantía de la cosa litigada y la posición económica del actor y del demandado. Dichos honorarios no podrán ser menores del quince por ciento ni mayores del veinticinco por ciento del importe líquido de la condenatoria o de la absolución en su caso; si el juicio no fuere susceptible de estimación pecuniaria, los tribunales se sujetarán a lo que su conciencia les dicte. La parte que hubiere litigado sin auxilio de abogado podrá cobrar los honorarios que a éste correspondieren, de acuerdo con lo dispuesto en el párrafo anterior.
+El contrato de cuota litis en materia laboral se regirá por las disposiciones de los artículos 1043 y 1045 del Código de Procedimientos Civiles.
+Sin embargo, tratándose del trabajador, los honorarios que deba pagar a su abogado no podrán ser superiores en ningún caso al veinticinco por ciento de beneficio económico que adquiera en la sentencia.
+(Así reformado por el artículo 2° de la ley N° 5487 del 4 de marzo de 1947)

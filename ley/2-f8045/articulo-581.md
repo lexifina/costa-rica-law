@@ -1,8 +1,1 @@
-Artículo 581.- A este efecto, la Secretaría de Trabajo y de
-Previsión Social estará dividida en las siguientes secciones:
-a) Oficina General de Trabajo;
-b) Dirección General de Previsión Social;
-c) Instituto Nacional de Investigaciones y de Estudios Sociales;
-d) Inspección General de Trabajo, y
-e) Las demás que determinen el Reglamento de este Capítulo o las leyes
-que posteriormente se dicten.
+ARTICULO 581.- No se dará publicidad a las sentencias firmes que se dicten en materia de faltas contra las leyes de trabajo o de previsión social, pero se enviará siempre copia autorizada de las mismas a la Inspección General de Trabajo.

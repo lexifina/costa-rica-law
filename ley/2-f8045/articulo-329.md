@@ -1,6 +1,2 @@
-Artículo 329.- Los miembros de la Junta Directiva, del Comité de
-Vigilancia y de la Gerencia serán, salvo el caso de las cooperativas
-escolares, legalmente capaces conforme a las leyes de orden común y en
-cuanto a sus demás calidades se estará a lo que digan los respectivos
-estatutos, que deberán exigir siempre condiciones especiales de
-solvencia moral para desempeñar tales puestos.
+ARTICULO 329.- De toda sentencia que se dicte en materia de faltas o infracciones contra este Título o sus reglamentos, deberá remitirse copia literal a la Inspección General de Trabajo y al Instituto Nacional de Seguros.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

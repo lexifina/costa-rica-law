@@ -1,8 +1,2 @@
-Artículo 259.- El patrono o el representante de éste en la dirección
-del trabajo, que no hiciere la denuncia correspondiente a la autoridad
-o que, en su caso, no cumpliere con lo que dispone el artículo 256,
-cuando ocurriere un riesgo profesional a alguno de sus trabajadores,
-será sancionado con multa de cien a quinientos colones.
-Si el patrono probare que el único responsable de las omisiones a
-que se refiere el párrafo anterior es su representante en la dirección
-de los trabajos, dichas multas se impondrán sólo a éste.
+ARTICULO 259.- Todo arreglo referente a conmutación de rentas, que se realice sin la observancia de los artículos de este capítulo, será absolutamente nulo, y quien hubiere pagado cualquier suma, no podrá repetir, compensar, ni reclamar en ninguna otra forma, al trabajador, o a sus causahabientes, las sumas que les hubiere entregado.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

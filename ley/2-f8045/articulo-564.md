@@ -1,9 +1,6 @@
-Artículo 564.- A continuación de la diligencia que encabeza, serán
-practicadas en una sola acta la indagatoria y confesión de cargos del
-inculpado. Si el reo reconociere su falta, se procederá a continuación
-a dictar el fallo, por resolución formal, a más tardar dentro de las
-veinticuatro horas siguientes a aquélla en que concluyó la diligencia.
-Mas si el indicado negare el hecho que se le atribuye, se practicará la
-investigación sumaria del caso, dentro del término improrrogable de diez
-días y trascurrido ese plazo, o evacuadas las pruebas, será pronunciada
-en seguida sentencia, a más tardar cuarenta y ocho horas después.
+CAPITULO SEXTO
+Del juzgamiento de faltas cometidas contra las leyes de trabajo o de previsión social
+ARTICULO 564.- Se confiere acción para hacer efectivas las responsabilidades que correspondan por la comisión de faltas contra las leyes de trabajo o dar previsión social, a las personas perjudicadas y a sus representantes legales o apoderados, a las autoridades administrativas de trabajo, a las entidades de protección a los trabajadores, y, cuando se trate de infracciones a disposiciones prohibitivas de este Código, también a los particulares.
+La acusación no podrá presentarse simultáneamente con la demanda de indemnizaciones que puedan ser consecuencia de la falta.
+El acusador podrá desistir de la acusación por él establecida; y cuando el desistimiento se fundare en haber habido error, o en arreglos no contrarios a derechos probados de las partes, o en cualquiera otra consideración de equidad que no implique infracción a las leyes de trabajo, se decretará la suspensión de procedimientos. También se decretará dicha suspensión cuando los hechos acusados o denunciados no constituyeren falta. En uno y otro casos caben contra lo resuelto los recursos legales.
+(Así reformado por el artículo 1° de la ley N° 668 de 14 de agosto de 1946)

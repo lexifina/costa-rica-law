@@ -1,12 +1,6 @@
-Sección VI.- De los impedimentos, de las recusaciones y de las
-excusas:
-Artículo 422.- El Título Noveno de la Ley Orgánica del Poder Judicial
-sobre impedimentos, recusaciones y excusas, es aplicable a los
-Tribunales de Trabajo.
-No obstante, se entenderá comprendido por la causal que prevé el
-artículo 201, inciso tercero, de la mencionada ley, al que hubiere sido
-en los doce meses anteriores patrono o trabajador o en cualquier forma
-hubiere dependido económicamente de alguna de las partes; e igualmente
-se asimilará, para los efectos del inciso noveno de la misma
-disposición, cualquier conflicto individual o colectivo de trabajo a los
-de carácter civil.
+ARTICULO 422.- Los conflictos de jurisdicción que se susciten entre los Tribunales Comunes y los Tribunales de Trabajo, o entre éstos y las autoridades administrativas, serán resueltos de acuerdo con las siguientes reglas:
+Si el funcionario que conoce del asunto se estimare incompetente en cualquier momento, lo declarará así de oficio, ordenando remitir el expediente al funcionario que a su juicio, le corresponda conocer;
+En el caso de que la parte demandada opusiere en tiempo la excepción correspondiente, el respectivo funcionario la resolverá una vez conferida la audiencia señalada en el artículo 470(*), y recibidas las pruebas que se hubieren ordenado en relación con ella;
+(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 463, siendo ahora el 470)
+Si dentro de las veinticuatro horas siguientes, alguna de las partes se manifestare inconforme con lo resuelto, se consultará la resolución a la Sala de Casación, la cual resolverá el conflicto jurisdiccional sin ulterior recurso, dentro de los cinco días siguientes a aquel en que reciba los autos. También procederá la consulta si el funcionario a quien se remite el expediente, se manifiesta inconforme con lo resuelto, dentro de las veinticuatro horas siguientes al recibo de los autos. En ambos casos, al ordenarse la consulta, se conferirá audiencia a las partes por veinticuatro horas.
+(Así reformado por el artículo 1° de la ley N° 3702 del 22 de junio de 1966)

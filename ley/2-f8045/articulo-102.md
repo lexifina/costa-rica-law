@@ -1,3 +1,3 @@
-Artículo 102.- Salvo prueba en contrario, se presume que la
-retribución de los domésticos comprende además del pago en dinero, el
-suministro de habitación y alimentos de calidad corriente.
+ARTICULO 102.- En el contrato de trabajo relativo al servicio doméstico, los primeros treinta días se consideran de prueba y cualquiera de las partes puede ponerle término sin aviso previo ni responsabilidad.
+Después de este tiempo, la parte que desee poner término al contrato tendrá que dar aviso a la otra con quince días de anticipación o, en su defecto, abonarle el importe correspondiente a ese tiempo: empero después de un año, el preaviso será de un mes. Durante el término del preaviso, el patrono concederá semanalmente al servidor media jornada para que busque colocación.
+(Así reformado por Ley Nº 3458 de 20 de noviembre de 1964, art. 1º).

@@ -1,26 +1,13 @@
-Artículo 274.- Para que se considere legalmente constituído un
-sindicato, en el pleno goce de su personería jurídica, es indispensable
-que se formule una solicitud suscrita por su Presidente o Secretario
-General y que se envíe a la Oficina General de Trabajo, directamente o
-por medio de las autoridades de trabajo o políticas del lugar, junto con
-copias auténticas de su acta constitutiva y de sus estatutos. El acta
-constitutiva forzosamente expresará el número de miembros, la clase de
-sindicato y los nombres y apellidos de las personas que componen su
-Directiva.
-El Jefe de la Oficina General de Trabajo examinará, bajo su
-responsabilidad, dentro de los quince días posteriores a su recibo, si
-los mencionados documentos se ajustan a las prescripciones de ley; en
-caso afirmativo librará informe favorable a la Secretaría de Trabajos
-y de Previsión Social, para que ésta ordene a la mayor brevedad su
-inscripción en registros públicos llevados al efecto, a lo cual no podrá
-negarse si se hubieren satisfecho los anteriores requisitos; en caso
-negativo, dicho funcionario señalará a los interesados los errores o
-deficiencias que a su juicio existan, para que éstos los subsanen si les
-fuere posible, o para que interpongan, en cualquier tiempo, recurso de
-apelación ante la mencionada Secretaría, la cual dictará resolución en
-un plazo de diez días.
-Si dentro de la primera hipótesis el Jefe de la Oficina General de
-Trabajo hace la referida inscripción, extenderá certificación de ella
-a solicitud de los interesados y ordenará que se publique gratuitamente
-un extracto de la misma, por tres veces consecutivas, en el Diario
-Oficial.
+ARTICULO 274.- Créase el Consejo de Salud Ocupacional como organismo técnico adscrito al Ministerio de Trabajo y Seguridad Social, con las siguientes funciones:
+a. Promover las mejores condiciones de salud ocupacional, en todos los centros de trabajo del país;
+b. Realizar estudios e investigaciones en el campo de su competencia;
+c. Promover las reglamentaciones necesarias para garantizar, en todo centro de trabajo, condiciones óptimas de salud ocupacional;
+ch. Promover, por todos los medios posibles, la formación de personal técnico subprofesional, especializado en las diversas ramas de la salud ocupacional y la capacitación de patronos y trabajadores, en cuanto a salud ocupacional;
+d. Llevar a cabo la difusión de todos los métodos y sistemas técnicos de prevención de riesgos del trabajo;
+e. Preparar manuales, catálogos y listas de dispositivos de seguridad y de equipo de protección personal de los trabajadores, para las diferentes actividades;
+f. Preparar proyectos de ley y de reglamentos sobre su especialidad orgánica, así como emitir criterios indispensables sobre las leyes que se tramiten relativas a salud ocupacional;
+g. Proponer al Poder Ejecutivo la lista del equipo y enseres de protección personal de los trabajadores, que puedan ser importados e internados al país con exención de impuestos, tasa y sobretasas;
+h. Llevar a cabo o coordinar campañas nacionales o locales de salud ocupacional, por iniciativa propia o en colaboración con entidades públicas o privadas;
+i. Efectuar toda clase de estudios estadísticos y económicos relacionados con la materia de su competencia; y
+j. Cualesquiera otras actividades propias de la materia.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

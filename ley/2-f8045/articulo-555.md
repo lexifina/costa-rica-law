@@ -1,7 +1,1 @@
-Artículo 555.- La Sala de Casación, dictará sentencia, sin más
-trámite dentro de los quince días siguientes a aquél en que se venció
-el término del emplazamiento, o dentro de los ocho días posteriores a
-aquél en que quedaron evacuadas las pruebas ordenadas para mejor
-proveer.
-El Tribunal apreciará la prueba de conformidad con las
-prescripciones del artículo 486.
+ARTICULO 555.- ANULADO por Resolución de la Sala Constitucional Nº 1807-99 de las 15:03 horas del 10 de marzo de 1999.

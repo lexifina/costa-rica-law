@@ -1,5 +1,2 @@
-Artículo 103.- El patrono podrá exigir como requisito esencial del
-contrato, antes de formalizarlo, un certificado de buena salud expedido
-dentro de los treinta días anteriores por cualquier médico que desempeñe
-un cargo remunerado por el Estado o por sus Instituciones, quien lo
-extenderá en forma gratuita.
+ARTICULO 103.- El patrono podrá exigir al servidor doméstico, como requisito previo para formalizar el contrato, así como semestralmente durante la vigencia del mismo, un certificado de buena salud expedido por cualquier médico que desempeñe un cargo remunerado por el Estado o por sus instituciones, el cual estará obligado a extenderlo en forma gratuita.
+(Así reformado por Ley Nº 3458 de 20 de noviembre de 1964, art. 1º).

@@ -1,6 +1,5 @@
-Artículo 336.- El capital puede constituirse con aportes de los socios
-en dinero, bienes muebles o inmuebles. Los aportes que no sean en
-dinero se estimarán, para cada caso, en acciones que los representen de
-conformidad con las reglas que al efecto contendrán los estatutos.
-Se tendrán como capital todos los auxilios y subvenciones que las
-cooperativas reciban de personas jurídicas o naturales.
+ARTICULO 336.- Las organizaciones sociales que se constituyan legalmente estarán exentas de cubrir los impuestos nacionales o municipales que pesen sobre sus bienes y serán personas jurídicas capaces de ejercer derechos y contraer obligaciones.
+No podrán utilizar las ventajas de la personalidad jurídica con ánimo de lucro, pero sí podrán hacerlo en todo lo que contribuya a llenar su finalidad esencial de obtener los mayores beneficios comunes para sus asociados.
+(La exención a que se refiere este artículo fue derogada por la Ley N° 641 del 23 de agosto de 1964, “Deroga Varias Exoneraciones de Impuestos a Nuevas Industrias”)
+(Ver artículo 3° inciso ch) de la Ley de Impuesto sobre la Renta. Ley N° 7092, modificado por Ley N° 7293, Ley Reguladora de todas las Exoneraciones Vigentes, su Derogatoria y sus Exoneraciones, con relación a la exención de las organizaciones sindicales como entidades no sujetas al impuesto sobre la renta.)
+(La Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982, artículo 2º, trasladó el original artículo 266 al presente)

@@ -1,0 +1,2 @@
+ARTICULO 617.- Cuando se trate de la negativa a otorgar informes, avisos, solicitudes, permisos, comprobaciones o documentos requeridos según este Código y las leyes de trabajo y seguridad social, para que las autoridades de trabajo puedan ejercer el control que les encargan dichas disposiciones, los responsables serán sancionados con la multa comprendida en el numeral 1 de la tabla de sanciones del artículo 614 de este Código, bajo prevención con un plazo de treinta días.
+(Así adicionado por el artículo 4º de la ley No.7360 del 4 de noviembre de 1993)

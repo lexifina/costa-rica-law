@@ -1,8 +1,13 @@
-Artículo 235.- Los derechos y acciones para reclamar las
-indemnizaciones prescriben en un año, contado desde el día en que
-ocurrió el riesgo profesional.
-Sin embargo, la prescripción no correrá para el trabajador no
-asegurado en el Banco Nacional de Seguros, cuando siga trabajando a las
-órdenes del mismo patrono sin haber obtenido el pago correspondiente,
-o cuando éste continúe reconociendo el total o parte del salario a la
-víctima o a sus causahabientes.
+ARTICULO 235.- Para los efectos de este Código, el cálculo de salario de los trabajadores se determinará de la siguiente manera:
+Salario diario es la remuneración, en dinero y en especie, cualquiera que sea su forma o denominación, que el trabajador perciba por jornada diaria de trabajo.
+Si el salario del trabajador fuere mensual, quincenal, semanal en comercio, o salario base de cotización establecido por el Ministerio de Trabajo y Seguridad Social, para efectos de este seguro, el salario diario se determinará dividiendo la remuneración declarada en las planillas presentadas por el patrono en los tres meses anteriores al acaecimiento del riesgo, o durante un tiempo inferior a ese plazo que el trabajador haya laborado para el patrono, entre el número de días naturales existentes en ese período.
+Para otras formas de remuneración no incluidas en el párrafo anterior, el salario diario se calculará dividiendo la remuneración declarada en las planillas presentadas por el patrono durante los tres meses anteriores al acaecimiento del riesgo, o durante un tiempo inferior a ese plazo que el trabajo haya laborado para el patrono, entre el número de días efectivamente trabajados en ese período.
+Los salarios de los trabajadores que tengan carácter eminentemente transitorio, ocasional, o de temporada, o con jornadas de trabajo intermitentes, serán determinados por el Ministerio de Trabajo y Seguridad Social, a solicitud expresa del Instituto Nacional de Seguros.
+Este Ministerio determinará el salario mensual base de cotización para el seguro contra riesgos del trabajo, en los casos señalados en este inciso.
+El salario anual será el resultado de multiplicar el salario diario por los factores que de inmediato se señalan:
+c.1) Para los salarios mensuales, quincenales, semanales en comercio, o fijados por el Ministerio de Trabajo y Seguridad Social, salario diario multiplicado por trescientos sesenta.
+c.2) Para los demás salarios diarios, el mismo, multiplicando por el factor de proporcionalidad que resulte de comparar los días efectivamente trabajados en el período de los tres meses anteriores al infortunio o durante un tiempo inferior a ese plazo que el trabajador haya laborado para el patrono, y los días hábiles transcurridos, multiplicados por trescientos doce; sea salario diario por días efectivamente trabajados, por trescientos doce, entre los días hábiles laborables existentes en el período computado.
+ch) En ningún caso el salario que se use para el cálculo de las prestaciones en dinero derivadas de este Título, será menor al salario mínimo de la ocupación que desempeñaba el trabajador al ocurrir el riesgo. El Instituto Nacional de Seguros determinará las prestaciones en dinero que deba hacer efectivas, con base en los reportes de planillas que el patrono haya presentado antes de la ocurrencia del riesgo, sin perjuicio de lo dispuesto en el artículo 206.
+Salvo estipulación contractual más beneficiosa para los intereses del trabajador, el salario anual de los aprendices o similares se fijará tomando como base el producto de multiplicar por trescientos doce el salario diario menor que establezca el Decreto de Salarios Mínimos para los trabajadores de la actividad de que se trate; y
+Para los efectos de este artículo, servirán de prueba preferente para la fijación del verdadero monto del salario las planillas, y demás constancias de pago de salario, así como las respectivas declaraciones del Impuesto sobre la Renta que haya presentado el trabajador.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

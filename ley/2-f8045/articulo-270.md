@@ -1,10 +1,5 @@
-Artículo 270.- Son actividades principales de los sindicatos:
-a) Celebrar convenciones y contratos colectivos;
-b) Participar en la formación de los organismos estatales que les
-indique la ley;
-c) Crear, administrar o subvencionar instituciones, establecimientos
-u obras sociales de utilidad común, tales como cooperativas,
-entidades deportivas, culturales, educacionales, de asistencia y
-de previsión, y
-d) En general, todas aquellas que no estén reñidas con sus fines
-esenciales ni con las leyes.
+ARTICULO 270.- Todo patrono está obligado a acatar, de inmediato, las órdenes de suspensión o cierre de los centros de trabajo; pero dentro del tercer día podrá impugnarlas ante el Juzgado de Trabajo de la jurisdicción donde se realizan las labores, aportando toda la prueba de descargo que sea del caso.
+El Juez dará audiencia a la autoridad que ordenó la suspensión o cierre del trabajo por un plazo de dos días. Levantará una información sumaria, para la cual recibirá la prueba que estime necesaria para la decisión que deba tomar.
+En un plazo máximo de diez días hábiles, contados a partir de la presentación de la impugnación del patrono, el juez deberá decidir si mantiene la orden o si la levanta.
+Contra la resolución que se tome, no cabrá recurso alguno. Se presume la responsabilidad del patrono, por la orden de suspensión o cierre del trabajo; por ello, los salarios de los trabajadores afectados por esa orden correrán a su cargo, durante el período en que no presten servicio por ese motivo.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

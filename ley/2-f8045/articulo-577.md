@@ -1,21 +1,2 @@
-CAPITULO OCTAVO
-De la intervención del Patronato Nacional de la Infancia
-Artículo 577.- Siempre que en un juicio de conocimiento de los
-Tribunales de Trabajo figure un trabajador menor de veintiún años o
-cuando se trate de acciones entabladas para proteger la maternidad de
-las trabajadoras, será notificado el Patronato Nacional de la Infancia
-por medio de su respectivo representante, a efecto de que intervenga,
-si lo tiene a bien, con todas las facultades que le conceden las leyes.
-Dicha notificación se hará, sin pérdida de tiempo, en cuanto
-aparezca en autos el interés de las referidas personas; contendrá
-indicación de la clase de juicio, del nombre completo de las partes y
-una síntesis muy breve de la naturaleza o causa del litigio; y se
-formulará telegráficamente en los casos muy urgentes, o por medio de
-simple nota escrita, que será entregada en las propias oficinas
-centrales del Patronato o en las de las Juntas Provinciales, según
-corresponda.
-Ningún Tribunal de Trabajo podrá dictar sentencia mientras no
-transcurran tres días después de la mencionada notificación, aunque debe
-prolongar los términos que señala este Título para pronunciar el fallo.
-Las disposiciones de este artículo no se aplicarán en los
-conflictos colectivos de carácter económico y social.
+ARTICULO 577.- Las sanciones se aplicarán sólo contra quien resulte culpable y en el caso de que muchos lo fueren, se impondrán separadamente a cada infractor.
+No obstante, si se tratare de infracciones cometidas por un sindicato o una cooperativa y la pena aplicable fuere multa, ésta se impondrá sólo a la organización social de que se trate; y si la culpable fuere una compañía, sociedad o institución pública o privada, las penas se aplicarán contra quien figure como patrono, director, gerente o jefe de la empresa, establecimiento, negocio o lugar donde el trabajo se preste, pero la respectiva persona jurídica quedará obligada solidariamente con éstos a cubrir toda clase de responsabilidades de orden pecuniario.

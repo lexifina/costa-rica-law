@@ -1,12 +1,11 @@
-Artículo 501.- Los delegados suscribirán por duplicado un pliego de
-peticiones de orden económico-social, cuya copia entregarán al
-respectivo Juez de Trabajo, directamente o por medio de cualquier
-autoridad administrativa local. Esta última queda obligada, bajo pena
-de destitución, a hacer el envío correspondiente con la mayor rapidez
-posible.
-El funcionario que reciba el pliego de manos de los delegados, les
-dará certificación de la hora exacta en que se le hizo la entrega.
-El original será remitido inmediatamente por los delegados a la
-otra parte afectada por la cuestión susceptible de provocar el
-conflicto.
-(La Sala Constitucional, mediante resolución N° 1696 del 23 de junio de 1992, declaró inconstitucional el presente artículo “…respecto de las administraciones públicas con régimen de empleo de naturaleza pública…”. “…Igualmente, considera necesario la Sala hacer la aclaración de tener por excluidos de este régimen, a los obreros, trabajadores y empleados que no participan de la gestión pública de la administración, cuando los mismos sean contratados por el Estado conforme al ejercicio de su capacidad de Derecho Privado…” De acuerdo con el contenido de la sentencia, los procedimientos de resolución de los conflictos colectivos de carácter económico y social, no son aplicables del todo a las administraciones regidas por el derecho público de empleo, ni al resto de las administraciones, en tanto no se subsanen las omisiones referentes a la falta de un régimen administrativo laboral adecuado a nuestro texto constitucional, y no se cree una norma administrativa expresa que permita al Estado, someterse a los tribunales de arbitraje en aras de solucionar conflictos colectivos.)
+ARTICULO 501.- El recurso de apelación contra las sentencias y los autos que pongan fin al juicio o imposibiliten su continuación se regirá, además, por las siguientes reglas especiales:
+No será admisible en asuntos de conocimiento de los Alcaldes cuando se formule en un juicio estimado en cien colones o menos, o cuando si no se hubiere estimado importe para el deudor la obligación de pagar la referida suma;
+Cuando la notificación se hiciere personalmente, el funcionario que practique la diligencia hará saber al notificado que puede apelar verbalmente en ese mismo momento; pondrá razón de haber cumplido con esa formalidad expresando en el acta respectiva si el notificado manifestó su voluntad de apelar, siempre a reserva de lo que acerca de la admisión del recurso se resolviere en virtud de la disposición del inciso anterior;
+Una vez notificadas las partes de las sentencias o autos a que se refiere este artículo, el expediente no se enviará al Superior, aunque los interesados hubieren apelado, sino un día después de transcurrido el término que señala el artículo 500, con el objeto de que tengan tiempo de razonar ante el mismo Tribunal de primera instancia los motivos de hecho o de derecho en que apoyan su inconformidad y que, a juicio de ellos, darán mérito para que el Superior enmiende total o parcialmente la resolución de que se trate.
+(Así reformado el inciso anterior por el artículo 2 de la ley N° 832 del 18 de diciembre de 1946)
+Las partes podrán apelar o hacer la exposición razonada de que habla el inciso anterior, en forma verbal o escrita; y al formular su recurso o al exponer su alegato, estarán facultadas para pedir al Superior que admita, a título de mejor proveer, las pruebas que estimen convenientes ofrecer; y
+(Así reformado el inciso anterior por el artículo 2 de la ley N° 832 del 18 de diciembre de 1946)
+Si no hubiere apelación de ninguna de las partes dentro del término a que alude el artículo 500(*), la sentencia o auto quedará firme.
+(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 493, siendo ahora el 500)
+(Modificado su texto por Resolución de la Sala Constitucional Nº 5798-98 de las 16:21 horas del 11 de agosto de 1998)
+(Así reformado por el artículo 1º de la ley N° 668 del 14 de agosto de 1946)

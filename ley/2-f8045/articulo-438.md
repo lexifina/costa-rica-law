@@ -1,4 +1,2 @@
-Artículo 438.- Las gestiones verbales se harán directamente ante los
-miembros de cada Tribunal de Trabajo con ocasión de alguna
-comparecencia, o por medio del Secretario o Prosecretario en los demás
-casos.
+ARTICULO 438.- Una vez extendida la constancia de que habla el artículo anterior, se dará audiencia por veinticuatro horas a la parte contraria. Si hubiere varias partes, dicho término será común a todas.
+Al contestar esa audiencia, deben indicarse las pruebas pertinentes si hubiere oposición a la recusación.

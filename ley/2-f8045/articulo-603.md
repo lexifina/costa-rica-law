@@ -1,5 +1,2 @@
-Artículo 603.- Los derechos y acciones de los patronos para
-despedir justificadamente a los trabajadores o para disciplinar sus
-faltas prescriben en un mes, que comenzará a correr desde que se dio
-causa para la separación o, en su caso, desde que fueron conocidos los
-hechos que dieron lugar a la corrección disciplinaria.
+ARTICULO 603.- Los derechos y acciones de los patronos para despedir justificadamente a los trabajadores o para disciplinar sus faltas prescriben en un mes, que comenzará a correr desde que se dio causa para la separación o, en su caso, desde que fueron conocidos los hechos que dieron lugar a la corrección disciplinaria.
+(Nota de Sinalevi: Sobre la responsabilidad administrativa del funcionario público por las infracciones previstas en la Ley Orgánica de la Contraloría General de la República y en el ordenamiento de control y fiscalización superiores, ver artículo 71 de dicha ley)

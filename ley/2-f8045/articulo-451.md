@@ -1,5 +1,1 @@
-Artículo 451.- El arraigo se decretará de oficio cuando el patrono se
-ausentare del territorio de la República estando pendiente de
-resolución un juicio de cualquier clase en los Tribunales de Trabajo,
-a menos que deje apoderado con las autorizaciones y bienes necesarios
-para responder del resultado del mismo.
+ARTICULO 451.- Las providencias deberán necesariamente dictarse dentro de las veinticuatro horas y los autos, salvo lo dispuesto para casos especiales, dentro de tres días.
