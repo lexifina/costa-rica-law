@@ -14,3 +14,4 @@ Reglamento para las Actividades de Carga y Descarga de Bienes y Materiales de lo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-27 | la propia norma |
+| 2 | 2004-11-03 | Decreto Ejecutivo 32111 (2004-11-03) |

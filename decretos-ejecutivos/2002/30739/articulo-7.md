@@ -1,1 +1,1 @@
-Artículo 7º—Vigencia y derogatoria. Rige a partir de su publicación y deroga el Decreto Ejecutivo Nº 28301-MOPT del 24 de noviembre de 1999, publicado en La Gaceta Nº 239 del 9 de diciembre del mismo año, así como toda otra norma de igual rango o jerarquía.
+Nota: Corrida su enumeración por el artículo 2° del decreto ejecutivo N° 32111 del 3 de noviembre del 2004, que ordenó pasarlo al artículo 6° actual.
