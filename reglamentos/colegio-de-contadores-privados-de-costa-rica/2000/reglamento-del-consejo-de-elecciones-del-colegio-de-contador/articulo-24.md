@@ -1,1 +1,1 @@
-Artículo 24.—Una vez emitido el voto, el Secretario de la junta receptora marcará, en el margen derecho, el registro de colegiados y, a la altura del nombre del colegiado, la frase "sí voto", lo cual hará constar el sufragio emitido.
+Artículo 24.—Los fiscales titulares o suplentes de las tendencias o candidatos independientes, debidamente acreditados ante el Tribunal, tendrán derecho a fiscalizar el proceso electoral y a que se les proporcionen las facilidades necesarias para el buen cumplimiento de sus funciones, durante el período del proceso electoral.

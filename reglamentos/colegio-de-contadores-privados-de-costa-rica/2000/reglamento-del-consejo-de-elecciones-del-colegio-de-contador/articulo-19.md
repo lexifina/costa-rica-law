@@ -1,3 +1,4 @@
 CAPITULO VI
 Las votaciones
-Artículo 19.—Las votaciones se realizarán en la sede del Colegio ante las Juntas Receptoras de votos, las cuales serán debidamente juramentadas por el Consejo Electoral. Serán propuestas por las tendencias o candidatos independientes participantes en el proceso. Mediante sorteo se nombrarán los puestos de presidente, secretario y los fiscales de mesa.
+Artículo 19.—La asamblea general para la presentación de papeletas y candidatos independientes y elección de puestos se llevará a cabo el tercer domingo del mes de marzo a partir de las 8,30 horas y se extenderá hasta las quince horas.
+En el momento del cierre solo podrán ejercer el voto aquellos Colegiados que se encuentren en el recinto electoral en ese momento.

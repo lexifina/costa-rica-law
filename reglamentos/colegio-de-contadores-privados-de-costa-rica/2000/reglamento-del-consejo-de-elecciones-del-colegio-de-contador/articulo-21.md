@@ -1,4 +1,1 @@
-CAPITULO VII
-Organización de tendencias
-Artículo 21.—Para votar, el colegiado presentará su identificación profesional o, en su defecto, su cédula de identidad.
-Comprobados sus derechos, se le hará entrega de la papeleta respectiva, debidamente firmada por todos los miembros de la Junta Receptora.
+Artículo 21.—La elección se hará por puesto. El colegiado emitirá su voto en forma secreta, marcando la papeleta con una equis en cada uno de los espacios para el puesto del candidato de su simpatía. Acto seguido, el votante doblará la papeleta de la misma forma en que le fue entregada, de modo que las firmas de todos los miembros de la Junta Receptora queden visibles, para luego proceder a introducirla en la urna electoral. La junta receptora no podrá reponer ninguna papeleta que haya sido inutilizada por el votante.
