@@ -1,0 +1,1 @@
+Artículo 20.—El auditor interno deberá formular y mantener actualizado un manual de procedimientos de Auditoría Interna, con el objeto de que cuente con un instrumento que defina las características y los procedimientos de Auditoría aplicables al Ministerio.

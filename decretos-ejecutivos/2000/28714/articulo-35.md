@@ -1,0 +1,1 @@
+Artículo 35.—El informe de la Auditoría interna advertirá a la Administración Activa, sobre la celeridad en la cual ha de atender las recomendaciones atinentes a las responsabilidades civiles y administrativas, para prevenir el transcurso de los plazos de transcripción.

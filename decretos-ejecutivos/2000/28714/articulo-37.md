@@ -1,0 +1,1 @@
+Artículo 37.—La Auditoría Interna no requiere satisfacer la garantía Constitucional del debido proceso. No obstante si lo estima oportuno, queda a juicio profesional del Auditor dar participación a los funcionarios involucrados en los hallazgos que puedan originarle algún género de responsabilidad.

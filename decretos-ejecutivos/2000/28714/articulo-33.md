@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De hechos o actos irregulares
+Artículo 33.—Cuando como parte de las Auditorías o Estudios Especiales de Auditoría, se detecten actos o hechos irregulares o ilegítimos que puedan eventualmente acarrear responsabilidades de distinta naturaleza (Administrativa - civil o ambos) sobre los servidores del Ministerio por la lesión patrimonial que se origine a la Hacienda pública, la auditoría deberá someterlo a conocimiento de la Administración Activa en forma inmediata. El informe que emita la Auditoría Interna con recomendaciones para iniciar un proceso administrativo o para que se emprendan acciones Judiciales o Administrativas será un insumo adecuado para la labor de la Administración Activa.

@@ -1,0 +1,1 @@
+Artículo 36.—Cuando la Auditoría Interna lo considere necesario, para guiar apropiadamente su estudio y fundamentar el informe que se llegue a emitir contará con la Asesoría Legal que estime pertinente.

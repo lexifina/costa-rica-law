@@ -1,0 +1,1 @@
+Artículo 8°—La Auditoría Interna estará bajo la responsabilidad del Auditor Interno quien deberá tener dominio sobre las normas generales de Auditoría y conocer además, las disposiciones legales que rigen en general a la Administración Pública y específicamente al Gobierno Central.

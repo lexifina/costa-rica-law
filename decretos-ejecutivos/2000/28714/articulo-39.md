@@ -1,0 +1,1 @@
+Artículo 39.—Lo mencionado en el Artículo anterior no impide la participación de la Auditoría Interna, a requerimiento del Órgano Director, para aportar información complementaria o aclarar aspectos que dicho órgano estime de su informe.

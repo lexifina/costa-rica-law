@@ -1,0 +1,1 @@
+Artículo 12.—El Auditor Interno actuará como superior jerárquico de su Unidad y en esa condición ejercerá las funciones que le son propias en la administración de personal, de acuerdo con el marco jurídico que en la materia rige para el Ministerio. Además, deberá contarse con su anuencia para el nombramiento, remoción y otros del personal de auditoría.
