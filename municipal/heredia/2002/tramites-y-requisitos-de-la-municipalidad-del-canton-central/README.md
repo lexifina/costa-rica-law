@@ -14,3 +14,4 @@ Trámites y requisitos de la Municipalidad del cantón Central de Heredia Ley N�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-13 | la propia norma |
+| 2 | 2004-05-10 | Acuerdo municipal 0 (2004-05-10) |
