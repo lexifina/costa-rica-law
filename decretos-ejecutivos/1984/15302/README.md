@@ -14,3 +14,4 @@ Reglamento del Subsistema de Capacitación y Desarrollo del Régimen de Servicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-03-27 | la propia norma |
+| 2 | 1989-12-06 | Decreto Ejecutivo 19513 (1989-12-06) |
