@@ -1,0 +1,1 @@
+Artículo 2°—Con el propósito de que la Comisión pueda dar fiel cumplimiento a sus objetivos, el Instituto Costarricense de Turismo, brindará todo el apoyo logístico, económico v administrativo para su buen funcionamiento, dentro del ámbito de sus posibilidades.

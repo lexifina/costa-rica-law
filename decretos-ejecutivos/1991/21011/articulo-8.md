@@ -1,0 +1,3 @@
+Artículo 8°—La Comisión, para el fiel cumplimiento de sus funciones, deberá de reunirse ordinariamente como mínimo una vez al mes y extraordinariamente cuando fuese convocada por el presidente de la misma.
+Habrá quórum con la presencia de seis miembros y sus acuerdos se tomarán por mayoría simple. En caso de empate el Presidente tendrá voto de calidad.
+La condición de miembro se pierde por dos ausencias injustificadas a sesiones ordinarias o extraordinarias. Para tal efecto el Presidente de la Comisión informará a la entidad correspondiente y procederá a publicar en "La Gaceta" un aviso para nombrar al nuevo miembro del Sector que lo sustituirá, lo que se hará bajo el procedimiento previsto en el presente decreto ejecutivo.
