@@ -14,3 +14,4 @@ Reglamento de Requisa a Personas e Inspección de Bienes en el Sistema Penitenci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-03-21 | la propia norma |
+| 2 | 1998-07-14 | Decreto Ejecutivo 27260 (1998-07-14) |
