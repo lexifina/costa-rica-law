@@ -1,0 +1,1 @@
+Artículo 2º—Modifícase el artículo 1° del Decreto Ejecutivo N° 28639-H, para fijar en ¢1.500,0 millones el límite de gasto presupuestario y efectivo de la Comisión Nacional de Prevención de Riesgo y Atención de Emergencias para el 2001.
