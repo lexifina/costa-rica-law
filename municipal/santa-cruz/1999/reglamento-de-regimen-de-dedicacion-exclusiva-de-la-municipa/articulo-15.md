@@ -1,0 +1,1 @@
+Artículo 15.-EI Departamento de Recursos Humanos debe velar por el cumplimiento de las disposiciones establecidas en el presente Reglamento y en los Contratos respectivos, sin perjuicio de la intervención que al respecto pueda nacer la Auditoría Municipal cuando lo considere oportuno.
