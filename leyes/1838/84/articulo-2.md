@@ -1,0 +1,1 @@
+Art. 2. La dotación del primero será la de cien pesos mensuales; y la del segundo, cincuenta; abonándoseles además los gastos de viaje de ida y vuelta. Para gastos extraordinarios, se dará orden separadamente.
