@@ -1,0 +1,1 @@
+Artículo 5° La Comisión Terra podrá solicitar a las instituciones y ministerios el suministro de documentos, información, recursos y la designación del personal necesario a tiempo completo para analizar, compatibilizar, estudiar y elaborar las propuestas técnicas de ordenamiento territorial.

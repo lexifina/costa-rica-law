@@ -1,0 +1,2 @@
+Artículo 3° La Comisión Terra tiene como objetivo general: proponer el ordenamiento del uso del territorio del país, de tal forma que sirva de apoyo a un desarrollo sostenible en alianza con la Naturaleza, manteniendo sus procesos para uso y disfrute de las futuras generaciones y mejorando la calidad de vida de sus habitantes.
+Como Objetivo específico la Comisión Terra, elaborará un primer nivel de ordenamiento y acción territorial nacional, a escala 1 :200.000.

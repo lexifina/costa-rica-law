@@ -1,0 +1,1 @@
+Artículo 2° La Comisión Terra estará integrada por un equipo muItidisciplinario de expertos vinculados al ordenamiento territorial, con un Coordinador General, designados por un tiempo de 2 años, pudiendo ser re-nombrados.
