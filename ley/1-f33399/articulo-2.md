@@ -1,0 +1,2 @@
+Art. 2°-Del presente decreto se dará cuenta á la Representación Nacional en la próxima legisla- tura ordinaria.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintinueve días del mes de diciembre de mil ochocientos ochenta y tres. -A. DE JESÚS SOTO, Presidente.- LEOVIGILDO CASTRO S., Secretario.-Palacio Presidencial-San José, á los veintinueve días del mes de diciembre de mil ochocientos ochenta y tres.-Ejecútese.-P. FERNÁNDEZ.-El Secretario de Estado en el Despacho de Hacienda.-BERNARDO SOTO.
