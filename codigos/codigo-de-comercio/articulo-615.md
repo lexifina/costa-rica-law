@@ -1,0 +1,3 @@
+ARTÍCULO 615.- Las cuentas corrientes bancarias son inviolables y los Bancos sólo podrán suministrar información sobre ellas a solicitud o con autorización escrita del dueño, o por orden de autoridad judicial competente. Se exceptúa la intervención que en cumplimiento de sus funciones determinadas por la ley haga la Superintendencia General de Entidades Financieras (*)
+Queda prohibida la revisión de cuentas corrientes por las autoridades fiscales.
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica No.7558 de 3 de noviembre de 1995)

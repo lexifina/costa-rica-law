@@ -1,0 +1,1 @@
+ARTÍCULO 432.- En las obligaciones mercantiles los codeudores serán solidarios, salvo pacto expreso en contrario. Todo fiador de obligación mercantil, aunque no sea comerciante, será solidario con el deudor principal y con los otros fiadores, salvo lo que se estipule en el contrato.

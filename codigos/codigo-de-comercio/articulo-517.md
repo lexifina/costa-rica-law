@@ -1,0 +1,2 @@
+ARTÍCULO 517.- La fianza otorgada a favor de un menor de edad o de un incapaz es nula; sin embargo, si el fiador al dar la garantía conocía las condiciones de su fiado, la fianza será buena y exigible aún cuando la obligación principal sea nula.
+En cuanto a la acción del fiador corresponde para el reembolso, quedará sujeta a la situación jurídica de todo reclamo contra un incapaz o contra un menor, conforme a las disposiciones del Código Civil.

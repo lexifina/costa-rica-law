@@ -1,0 +1,1 @@
+ARTÍCULO 85.- Las cuotas sociales no podrán ser cedidas a terceros si no es con el consentimiento previo y expreso de la unanimidad de los socios, salvo que en el contrato de constitución se disponga que en estos casos baste el acuerdo de una mayoría no menor de las tres cuartas partes del capital social.

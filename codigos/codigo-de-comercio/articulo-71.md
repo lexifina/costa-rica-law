@@ -1,0 +1,1 @@
+ARTÍCULO 71.- Si por cualquier motivo, el socio comanditario se viere obligado a pagar a terceros por cuenta de la compañía, tendrá derecho a exigir de los socios comanditados el reintegro de lo pagado en cuanto hubiere excedido de la suma de su aporte, si los comanditados hubieren consentido en la contravención.

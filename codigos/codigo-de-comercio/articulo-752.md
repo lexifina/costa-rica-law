@@ -1,0 +1,2 @@
+ARTÍCULO 752.- Cuando el librador hubiere indicado en la letra de cambio un lugar de pago distinto al domicilio del librado, sin designar a un tercero en cuya casa haya de hacerse el pago, el librado podrá indicar el nombre de ese tercero así en el momento de la aceptación. A falta de semejante indicación, se entenderá que el aceptante se ha obligado a pagar por sí mismo en el lugar del pago.
+Cuando la letra sea pagadera en el domicilio del librado, éste podrá indicar en la aceptación el sitio donde pagarse, siempre que sea en la misma localidad.

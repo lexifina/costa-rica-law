@@ -1,0 +1,6 @@
+ARTÍCULO 129.- La sociedad no podrá adquirir, a título oneroso, acciones representativas a su propio capital, si no es mediante autorización previa de la asamblea de accionistas, con sumas provenientes de utilidades netas resultantes de un balance legalmente aprobado, siempre que se trate de acciones totalmente liberadas. En ningún caso la sociedad podrá ser dueña de más del cincuenta por ciento (50%) de su propio capital.
+Para que la sociedad adquiera sus propias acciones a título gratuito, sólo se requiere que éstas estén totalmente liberadas.
+El ejercicio de los derechos inherentes a las acciones quedará en suspenso mientras pertenezcan a la sociedad. Si transcurrido un año desde la adquisición, la sociedad no ha enajenado sus propias acciones, deberá reducir su capital proporcionalmente a los títulos que posea.
+Las limitaciones establecidas en el primer párrafo de este artículo, no se aplicarán a la adquisición de acciones propias que se haga, en virtud de un acuerdo de asamblea en que se disponga la disminución de capital mediante el rescate y eliminación de acciones.
+La adquisición que no cumpla con los requisitos legales será absolutamente nula, sin perjuicio de la acción de responsabilidad que pudiera ejercer contra los administradores.
+(Así reformado por el artículo 2º de la ley Nº 7201 de 10 de octubre de 1990)

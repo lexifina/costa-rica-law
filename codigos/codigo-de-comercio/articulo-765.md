@@ -1,0 +1,1 @@
+ARTÍCULO 765.- A falta de presentación para su pago de la letra de cambio en el plazo fijado por el artículo 760, cualquier deudor podrá depositar el importe en la autoridad competente, por cuenta y riesgo del tenedor.

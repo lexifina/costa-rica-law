@@ -1,0 +1,1 @@
+ARTÍCULO 266.- Se exceptúan de la regla contenida en el artículo anterior las revisiones que, dentro de las limitaciones de la ley, pueda hacer la Dirección General de la Tributación Directa para efectos fiscales.

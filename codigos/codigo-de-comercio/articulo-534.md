@@ -1,0 +1,1 @@
+Artículo 534.- Pueden dar en prenda sus derechos el usufructuario y el arrendatario. Para ello han de expresar claramente en el contrato de prenda la clase y principales modalidades del derecho que tienen y acompañarán constancia auténtica de que tal derecho fue otorgado en instrumento público.

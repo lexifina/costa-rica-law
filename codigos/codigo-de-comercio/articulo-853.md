@@ -1,0 +1,1 @@
+ARTÍCULO 853.- El comerciante que cesare en el pago de una obligación, deberá, dentro de los diez días siguientes, ponerlo en conocimiento del Juez Civil de su domicilio, para que se declare la quiebra.

@@ -1,0 +1,1 @@
+ARTÍCULO 470.- El vendedor que después de perfeccionada la venta, enajenase, consumiese o deteriorase la cosa vendida, sin dolo de su parte, estará obligado a dar al comprador otra equivalente en especie, con estimación del uso que el comprador pretendía darle, y del lucro que le habría de proporcionar.

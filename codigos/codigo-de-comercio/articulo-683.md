@@ -1,0 +1,2 @@
+ARTÍCULO 683.- La emisión o transmisión de un título valor no extinguirá la relación causal, salvo pacto expreso en contrario. La acción causal podrá ejercitarse restituyendo el título al demandado, y no procederá sino en el caso de que el actor haya realizado los actos necesarios para que el demandado pueda ejercitar las acciones que pudieren corresponderle en virtud del título.
+(Así reformado por el artículo 3º de la ley Nº 7201 de 10 de octubre de 1990)

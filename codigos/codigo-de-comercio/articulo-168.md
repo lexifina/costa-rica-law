@@ -1,0 +1,1 @@
+ARTÍCULO 168.- Salvo estipulación contraria de la escritura social, las asambleas ordinarias o extraordinarias serán presididas por el presidente del consejo de administración; y a falta de éste, por quien designen los accionistas presentes; actuará como secretario el del consejo de administración, y en su defecto, los accionistas presentes elegirán uno ad-hoc.

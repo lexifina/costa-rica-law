@@ -1,0 +1,1 @@
+ARTÍCULO 827.- El banco que pagare un cheque en contravención de lo dicho en el artículo anterior, será responsable ante el verdadero dueño del cheque, por cualquier pérdida que éste sufriere por motivo del pago hecho.

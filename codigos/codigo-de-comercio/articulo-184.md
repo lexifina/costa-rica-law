@@ -1,0 +1,4 @@
+ARTÍCULO 184.- Salvo pacto en contrario, será presidente del consejo el consejero primeramente nombrado y, en defecto de éste, presidirá las sesiones el que le siga en el orden de la designación.
+Para que el consejo de administración funcione legalmente deberán estar presentes por lo menos la mitad de sus miembros, y sus resoluciones será válidas cuando sean tomadas por la mayoría de los presentes. En caso de empate, quien actúe como presidente del consejo decidirá con doble voto.
+La escritura social o los estatutos determinarán la forma de convocatoria del consejo, el lugar de reunión, la forma en que se llevarán las actas, y demás detalles sobre el funcionamiento del consejo.
+Las irregularidades en el funcionamiento del consejo, no perjudicarán a terceros de buena fe, sin perjuicio de la responsabilidad de los consejeros ante la sociedad.

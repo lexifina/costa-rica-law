@@ -1,0 +1,1 @@
+ARTÍCULO 862.- Cuando la solicitud de quiebra fuere hecha por el deudor o por el representante de la sociedad, debidamente autorizado al efecto, el Juez la decretará sin más trámite, si se han cumplido los requisitos de los artículos 854 y 855.

@@ -1,0 +1,1 @@
+ARTÍCULO 907.- También se convocará a los acreedores cuando el deudor, un acreedor o un tercero quieran proponer un arreglo. En ese caso debe acompañarse el proyecto de arreglo para que lo conozcan los acreedores antes de celebrar la junta.

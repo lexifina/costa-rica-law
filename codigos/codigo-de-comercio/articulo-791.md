@@ -1,0 +1,2 @@
+ARTÍCULO 791.- En caso de ejercitarse acción de regreso después de una aceptación parcial, el que pagare la cantidad que hubiere quedado sin aceptar en la letra, podrá exigir que este pago se haga constar en ella y que se le de el correspondiente recibo.
+El tenedor deberá, además, entregarle una copia certificada conforme de la letra, así como el protesto, para que puedan ejercerse cualesquiera recursos ulteriores.

@@ -1,0 +1,7 @@
+ARTÍCULO 459.- El vendedor es responsable de los daños que ocurran a las cosas vendidas y no entregadas al comprador, aunque provengan de casos fortuitos:
+a) Cuando la cosa vendida no sea un objeto determinado, identificable con marcas, números o señales distintivas que eviten su confusión con otras del mismo género;
+b) Cuando por la convención, por el uso o por la ley, el comprador tiene la facultad de examinar y probar la cosa y esta pereciere o se deteriorare antes de darse por satisfecho de ella;
+c) Cuando los efectos vendidos hubieren de entregarse por número, peso o medida;
+d) Cuando la venta se hubiere hecho a condición de hacer la entrega en un plazo determinado, o hasta que la cosa estuviere en estado de entregarse de acuerdo con las estipulaciones de la venta;
+e) Cuando el vendedor incurriere en mora de entregar la cosa vendida, estando el comprador dispuesto a recibirla.
+f) Cuando en las obligaciones alternativas pereciere fortuitamente una de las cosas vendidas, la obligación se limita a la cosa restante; más si hubiere perecido por culpa del vendedor, el comprador podrá solicitar la entrega de la existente o el precio de la pérdida. Si perecieren las dos, la obligación se cancelará con el precio de la última que pereció, y si hubieren perecido simultáneamente, con el de aquélla que el vendedor elija, salvo que el derecho de elección corresponda contractualmente al comprador.

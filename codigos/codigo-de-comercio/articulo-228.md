@@ -1,0 +1,1 @@
+ARTÍCULO 228.- Las sociedades extranjeras que hayan transferido su sede social a Costa Rica, deberán inscribir en el Registro Mercantil las modificaciones de su pacto social y los instrumentos de fusión y disolución que las afecten.

@@ -1,0 +1,1 @@
+ARTÍCULO 528.- En los depósitos de cosas fungibles el depositante podrá convenir en que le restituyan cosas de la misma especie y calidad. En este caso, sin que cesen las obligaciones propias del depositante, el depositario asumirá el carácter de propietario para los efectos de las pérdidas, daños y menoscabos que puedan sufrir las cosas depositadas.

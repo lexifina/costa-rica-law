@@ -1,0 +1,1 @@
+ARTÍCULO 96.- Las sociedades de responsabilidad limitada llevarán un libro de actas debidamente legalizado, en el cual se consignarán todos los acuerdos que se tomen y nombramientos que se hagan en las reuniones. Dichas actas deberán ser firmadas por los asistentes.

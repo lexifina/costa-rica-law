@@ -1,0 +1,1 @@
+ARTÍCULO 231.- A los efectos de los artículos anteriores, se entiende por sede social el lugar donde celebre sus reuniones el consejo de administración de la sociedad o donde está situado el centro de administración social.

@@ -1,0 +1,1 @@
+ARTÍCULO 902.- Los privilegios que acuerda el artículo anterior, se excluyen entre sí y caso de haber varios acreedores con privilegio especial sobre determinada cosa, deberá pagarse en el orden en que están expresados sus privilegios en dicho artículo.

@@ -1,0 +1,1 @@
+ARTÍCULO 638.- Si por cualquier causa faltare el fiduciario, el nombramiento del sustituto será hecho por el fideicomitente y en defecto de éste, por el juez civil de su jurisdicción a solicitud de parte interesada, siguiendo los trámites correspondientes a los actos de jurisdicción voluntaria.

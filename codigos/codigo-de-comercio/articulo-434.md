@@ -1,0 +1,1 @@
+ARTÍCULO 434.- Cuando el comerciante arregla sus cuentas en períodos fijos o la obligación está dividida en tractos sucesivos, el finiquito de una cuenta hará presumir el de las partidas anteriores referentes al mismo negocio.

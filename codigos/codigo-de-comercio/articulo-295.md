@@ -1,0 +1,1 @@
+ARTÍCULO 295.- Por muerte o inhabilitación del comisionista queda resuelto el contrato de comisión. La muerte del comitente no rescinde el contrato, pero los representantes de la sucesión, o los herederos en su caso, pueden revocarlo liquidando al comisionista su cuenta de honorarios y gastos, por el trabajo ejecutado.

@@ -1,0 +1,1 @@
+ARTÍCULO 899.- Si el quebrado por comisión de un tercero hubiere comprado títulos-valores, mercancías u otros efectos, el tercero reivindicante los recibirá si estuvieren en poder del concurso, pero debe reintegrar a éste la sumas que el quebrado hubiere pagado por su cuenta o gastos para la conservación de las mismas, todo debidamente comprobado.

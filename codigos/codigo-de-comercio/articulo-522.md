@@ -1,0 +1,1 @@
+ARTÍCULO 522.- Salvo pacto en contrario, el depositario tiene derecho a exigir retribución por el depósito, la cual se fijará en el respectivo contrato; y en defecto de convenio, cobrará conforme a la costumbre de la plaza en que quede depositado el objeto. Podrá hacer uso del derecho de retención en tanto no se le pague la retribución que le corresponde.

@@ -1,0 +1,1 @@
+ARTÍCULO 463.- Una vez perfeccionado el contrato de compra-venta, el contratante que cumpliere tendrá derecho a exigir del que no lo hiciere, la rescisión del contrato o el cumplimiento del mismo, y además, la indemnización de los daños y perjuicios.

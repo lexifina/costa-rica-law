@@ -1,0 +1,1 @@
+ARTÍCULO 310.- El corredor jurado que acepte el encargo de gestionar en determinado negocio, no puede abandonar su intervención sin causa justa. Al separarse del conocimiento del negocio, siendo justificada su actitud, tendrá derecho a que se le reconociera la parte proporcional del honorario o comisión correspondiente.

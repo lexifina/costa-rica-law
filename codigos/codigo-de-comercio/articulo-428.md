@@ -1,0 +1,1 @@
+ARTÍCULO 428.-La cláusula penal no podrá exigirse cuando el incumplimiento del contrato se deba a fuerza mayor, caso fortuito, falta del acreedor, o cuando se hubiere aceptado sin reservas el cumplimiento verificado.

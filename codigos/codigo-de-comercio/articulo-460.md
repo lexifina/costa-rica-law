@@ -1,0 +1,2 @@
+ARTÍCULO 460.- La factura será título ejecutivo contra el comprador por la suma en descubierto, si está firmada por éste, por su mandatario o por su encargado, debidamente autorizado por escrito y siempre que se le agregue timbre fiscal en el acto de presentarla al cobro judicial. El valor del timbre será el que correspondería a un pagaré y se cargará al deudor como gastos de cobro.
+La suma consignada en una factura comercial, se presume cierta y las firmas que la cubren, auténticas.

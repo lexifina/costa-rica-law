@@ -1,0 +1,1 @@
+ARTÍCULO 177.- La acción de nulidad a que da derecho el artículo anterior se regirá por las disposiciones del derecho común, y prescribirá en un año, contado desde la fecha en que se adoptó el acuerdo o de su inscripción en el Registro Mercantil, si esta inscripción fuere necesaria.

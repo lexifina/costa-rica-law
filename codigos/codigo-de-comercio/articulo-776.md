@@ -1,0 +1,9 @@
+SECCION XI
+Del Protesto
+ARTÍCULO 776.- La negativa de aceptación o de pago deberá hacerse constar por acta notarial (protesto por falta de aceptación o por falta de pago)
+Si no hubiere notario en el domicilio señalado para la aceptación o para el pago, levantará el acta cualquier autoridad administrativa, y a falta de ésta, lo harán dos personas del lugar, debiendo protocolizarse esa acta dentro de los ocho días naturales siguientes por un notario, que interrogará acerca del contenido del acta consignando lo que el girado haya contestado.
+El protesto por falta de aceptación deberá hacerse dentro del plazo fijado para la presentación a ese fin. Si en el caso previsto en el párrafo primero del artículo 749 la primera presentación hubiera tenido lugar el último día del plazo, el protesto podrá levantarse al día siguiente.
+El protesto por falta de pago de una letra de cambio pagadera a fecha fija, o a plazo cierto, desde su fecha, o desde la vista, deberá hacerse dentro de los ocho días siguientes a aquél en que la letra de cambio sea pagadera. Si se tratare de una letra pagadera a la vista, el protesto deberá extenderse en las condiciones indicadas en el párrafo precedente para el protesto por falta de aceptación.
+El protesto por falta de aceptación no eximirá de la presentación al pago y del protesto por falta de pago.
+El portador no podrá ejercitar sus acciones en el caso de suspensión de pagos por parte del librado, aceptante o no, aunque esté apenas solicitada, ni cuando resultare infructuoso el embargo de bienes, sino después de haber presentado la letra al librado para su pago y previa la formalización del protesto.
+En caso de quiebra declarada, suspensión de pagos o concurso del librado, haya éste aceptado o no la letra, así como en el caso de quiebra declarada del librador de una letra no sujeta a aceptación, la presentación de la resolución judicial correspondiente bastará para que el portador pueda ejercitar sus acciones.

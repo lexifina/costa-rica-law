@@ -1,0 +1,1 @@
+ARTÍCULO 212.- La liquidación se practicará de acuerdo con las normas de la escritura social. En su defecto, de conformidad con los acuerdos tomados por la mayoría de socios necesaria para modificar la escritura y con las disposiciones de este Capítulo.

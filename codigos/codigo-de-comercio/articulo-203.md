@@ -1,0 +1,1 @@
+ARTÍCULO 203.- La sociedad en nombre colectivo se disolverá por la muerte de uno de los socios, salvo el caso de que la escritura social disponga que continúe con los supervivientes o con los herederos. Igual regla se aplicará a los socios comanditados, en las sociedades de este tipo.

@@ -1,0 +1,1 @@
+ARTÍCULO 264.- Es absolutamente prohibido arrancar hojas o alterar la encuadernación o foliación de los libros a que este capítulo se refiere. Cuando una o varias hojas se inutilizaren o anularen, no por eso dejarán de figurar en el lugar que les corresponde a efecto de no alterar el orden de los folios.

@@ -1,0 +1,1 @@
+ARTÍCULO 629.- En caso de extravío, pérdida, hurto o robo del cuaderno de cheques, el cuentacorrentista dará aviso inmediato al Banco, y éste, por su parte, no pagará ningún cheque extendido en las fórmulas a que se refiere la denuncia del cliente.

@@ -1,0 +1,1 @@
+ARTÍCULO 42.- El uso de la firma social no es trasmisible. Para sustituir el mandato será indispensable que lo autorice la escritura social o expresamente lo consientan todos los socios. Sin embargo, los administradores podrán constituir apoderados judiciales.

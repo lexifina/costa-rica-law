@@ -1,0 +1,2 @@
+ARTÍCULO 669.- Sólo son oponibles a cualquier poseedor del título las excepciones de forma, las que se fundan en el texto del documento, las que dependan de la falsedad de la propia firma del deudor o de defectos de capacidad o de representación al momento de la emisión, o de la falta de las condiciones necesarias para el ejercicio de la acción.
+(Así reformado por el artículo 3º de la ley Nº 7201 de 10 de octubre de 1990)

@@ -1,0 +1,1 @@
+ARTÍCULO 818.- En aquellos caos en que cabe la acción penal por falta de fondos y se compruebe que el tomador del cheque tenía conocimiento de las circunstancias que justifican tal acción, será penado por cómplice.

@@ -1,0 +1,6 @@
+ARTÍCULO 235 bis.- Créase, en el Registro Mercantil del Registro público de la Propiedad Inmueble, la Oficina de reserva de nombre, cuya finalidad será garantizar un derecho de prioridad en la utilización de nombres de personas jurídicas a que se refieren el inciso a) del artículo 10 y el artículo 17 de este código.
+La solicitud de reserva de nombre se hará en escritura pública o en documento privado, firmado por los interesados y autenticado por un notario público o bien únicamente firmado por él. Esta solicitud no devengará impuestos ni timbres, salvo los derechos que se fijen dentro de la Ley de Aranceles del Registro Público.
+La solicitud deberá ser presentada por un notario ante la Oficina de reserva de nombre y surtirá el efecto de otorgar, al solicitante, un derecho provisional de prioridad para el uso del nombre reservado.
+A partir de la fecha en que se apruebe la reserva de nombre, el notario tendrá un período de tres meses para la inscripción respectiva. El derecho de reserva caducará transcurrido este período.
+El funcionamiento de esa Oficina estará sujeto a lo que para el afecto disponga el Reglamento de Organización del Registro Público.
+(Así adicionado por el artículo 186 del Código Notarial No.7764 de 17 de abril de 1998)

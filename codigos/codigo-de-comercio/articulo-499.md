@@ -1,0 +1,1 @@
+ARTÍCULO 499.- Los intereses se estipularán en dinero, aun cuando el préstamo no haya sido de dinero. Los intereses se pagarán en los términos del convenio, y, en su defecto, en los mismos plazos y condiciones en que haya de pagarse el capital.

@@ -1,0 +1,1 @@
+ARTÍCULO 616.- La cuenta corriente bancaria podrá ser cerrada a voluntad de cualquiera de las partes mediante aviso con tres días de anticipación. El cierre de una cuenta corriente termina con el contrato. Es obligación del Banco cancelar la cuenta corriente a aquellas personas que a su juicio, hicieren mal uso de la misma.

@@ -1,0 +1,2 @@
+ARTÍCULO 440.- La compra-venta de cosa ajena es válida siempre que el comprador ignore la circunstancia. En este caso el vendedor está obligado a entregarla o, en su defecto, a abonar daños y perjuicios. La compra-venta será nula cuando el comprador, al celebrarse el contrato, sabe que la cosa es ajena.
+La promesa de venta de cosa ajena será válida. Quien tal cosa ofreciere estará obligado a adquirirla y entregarla al comprador, bajo pena de abonar daños y perjuicios.

@@ -1,0 +1,2 @@
+ARTÍCULO 545.- La cosa dada en prenda tiene limitada su responsabilidad a la suma que se ganatiza con ella. Si fueren varios los bines dados en prenda y no hubiere limitado en el contrato la responsabilidad de cada uuno de ellos, se entenderá que todos y cada uno responden por la totalidad de la deuda; pero si se hubiere limitado la responsabilidad, cada cosa o grupo de cosas o bienes responderá por la parte que se le hubiere asignado en la garantía.
+(Así reformado por el artículo 1º de la ley Nº 3303 de 20 de julio de 1964)

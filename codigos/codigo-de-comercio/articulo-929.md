@@ -1,0 +1,1 @@
+ARTÍCULO 929.- Se considerará realizado el activo, aun cuando algunos créditos no se hayan podido cobrar por carecer los deudores de bienes sobre los cuales hacer efectivas las obligaciones, o ser por otras razones imposible el cobro.

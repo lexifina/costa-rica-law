@@ -1,0 +1,1 @@
+ARTÍCULO 327.- El caso fortuito o de fuerza mayor ocurrido antes de emprender el viaje, y que impida la realización de éste, dará lugar a la resolución del contrato sin responsabilidad para ninguna de las partes.

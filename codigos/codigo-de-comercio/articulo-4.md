@@ -1,0 +1,1 @@
+ARTÍCULO 4º.- Las costumbres mercantiles servirán no sólo para suplir el silencio de la ley, sino también como regla para apreciar el sentido de las palabras o términos técnicos del comercio usados en los actos o contratos mercantiles.

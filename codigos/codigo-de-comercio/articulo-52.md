@@ -1,0 +1,1 @@
+ARTÍCULO 52.- El socio que en virtud de su responsabilidad para con terceros por las obligaciones de la sociedad, efectuare el pago, tendrá derecho a que los consocios le reembolsen la parte proporcional que a cada uno de ellos corresponda, según su aporte.

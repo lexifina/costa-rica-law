@@ -1,0 +1,1 @@
+ARTÍCULO 808.- Cuando en un cheque estuviere incompleto o mal escrito el nombre del endosatario o tenedor, éste, al trasmitirlo o cobrarlo, lo hará con su firma usual, expresando cuál es su nombre correcto.

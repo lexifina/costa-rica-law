@@ -1,0 +1,2 @@
+ARTÍCULO 930.- El concurso no se dará por concluido mientras haya acciones judiciales pendientes en los tribunales ya sea que la quiebra figure como actora o como demandada. Eso no obsta para que se distribuyan los haberes en metálico entre los acreedores y se hagan las adjudicaciones de bienes que correspondan.
+Tampoco impedirán la ejecución del convenio con el deudor, siempre que en éste se consigne que queda sujeto a lo que en definitiva se resuelva en los juicios pendientes.

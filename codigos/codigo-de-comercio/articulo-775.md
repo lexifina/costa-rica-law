@@ -1,0 +1,3 @@
+ARTÍCULO 775.- El pagador por intervención adquirirá los derechos que resulten de la letra de cambio contra la persona por quien hubiere pagado y contra los responsables frente a esta última, en virtud de la letra de cambio. El interventor que pague, no podrá endosar la letra de nuevo.
+Los endosantes posteriores al obligado por quien se hace el pago, quedarán liberados.
+En caso de varios ofrecimientos para el pago por intervención, se dará preferencia al que tenga por consecuencia la liberación de un mayor número de interesados. El que, infringiendo a sabiendas esta regla, pagare por intervención, perderá su acción contra las personas que de otro modo habrían quedado liberadas.

@@ -1,0 +1,1 @@
+ARTÍCULO 705.- El que paga una obligación constante en un título a la orden, no está obligado a cerciorarse de la autenticidad de los endosos, ni tiene facultad de exigir que ésta se le compruebe; pero sí debe verificar la identidad de la persona que presenta el título como último tenedor, y la relación de continuidad de los endosos.

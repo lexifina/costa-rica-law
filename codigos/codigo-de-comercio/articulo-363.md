@@ -1,0 +1,1 @@
+ARTÍCULO 363.- El representante de casas extranjeras actúa siempre por cuenta de las firmas que representa y no será responsable por el incumplimiento de éstas. Su responsabilidad se limita al estricto cumplimiento de las instrucciones que reciba de las firmas que represente, ajustándose a la más rigurosa moralidad y ética comercial.

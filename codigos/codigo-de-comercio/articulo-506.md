@@ -1,0 +1,1 @@
+ARTÍCULO 506.- Tratándose de préstamos de cosas no fungibles, el deudor está obligado a devolver las mismas que recibió en el estado en que se las entregara el prestamista, salvo el deterioro natural por el transcurso del tiempo, de un uso moderado o de la naturaleza misma de la cosa.

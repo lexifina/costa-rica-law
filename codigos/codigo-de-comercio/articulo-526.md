@@ -1,0 +1,1 @@
+ARTÍCULO 526.- Cuando el depositario dispusiere, con asentimiento del depositante de las cosas depositadas, cesarán los derechos y obligaciones del contrato de depósitos y surgirán los del nuevo contrato que se celebrare.

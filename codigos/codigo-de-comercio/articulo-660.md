@@ -1,0 +1,1 @@
+ARTÍCULO 660.- Si en el acto constitutivo del fideicomiso se señalare a quién, una vez extinguido aquél, deben trasladarse los bienes, así se hará. Si no se dijere nada, serán devueltos al fideicomitente, y si éste hubiese fallecido la entrega será hecha a su sucesión.

@@ -1,0 +1,1 @@
+ARTÍCULO 631.- El Banco está obligado a enviar periódicamente a sus cuentacorrentistas, por lo menos cada trimestre, un estado de sus cuentas corrientes. Si dentro de los sesenta días siguientes al envío, el cliente no objetare el estado, se tendrán por reconocidas las cuentas en la forma presentada y aceptado el saldo deudor o acreedor que indique dicho estado.

@@ -1,0 +1,2 @@
+Artículo 497.- Denomínase interés convencional o contractual el que fijan las partes libremente, y legal el que señala en este artículo y que tiene validez cuando no existe convenio sobre el particular. Fíjase el tipo de interés legal en el 6% anual para obligaciones garantizadas con hipoteca y en el 8% anual para las demás obligaciones.
+El Banco Central de Costa Rica fijará el tipo máximo de interés que podrán cobrar las instituciones del Estado, en cada caso.

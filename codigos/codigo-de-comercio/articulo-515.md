@@ -1,0 +1,1 @@
+ARTÍCULO 515.- El fiador que paga se subroga en los derechos y garantías que tenía el acreedor, y puede exigir del deudor el reembolso del capital, y de los intereses por él satisfechos y los que corran con posterioridad, los gastos judiciales y de cualquier otro orden en que él hubiere incurrido por la falta de cumplimiento del deudor.

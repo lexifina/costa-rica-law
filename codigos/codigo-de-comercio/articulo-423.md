@@ -1,0 +1,1 @@
+ARTÍCULO 423.- Las obligaciones mercantiles no serán exigibles sino durante las horas habituales de trabajo. Si la obligación vence un día domingo, un feriado, un día de asueto o en otro día que por fuerza mayor el establecimiento donde deba efectuarse el pago esté cerrado, será satisfecha al siguiente día hábil.

@@ -1,0 +1,1 @@
+ARTÍCULO 619.- El cuentacorrentista sólo podrá girar sobre los fondos efectiva y definitivamente acreditados a su cuenta o contra créditos concedidos por el Banco. Los cheques deben ser emitidos en forma tal que no se presten a falsificaciones o alteraciones.

@@ -1,0 +1,1 @@
+ARTÍCULO 964.- Cuando una misma persona formare a un tiempo parte de diversas sociedades, y quebrare alguna en la que es solidariamente responsable, los acreedores de la misma sólo podrán dirigirse contra la parte líquida que el socio común tuviere en las sociedades solventes, sin perjuicio del derecho de perseguir otros bienes.

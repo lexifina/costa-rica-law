@@ -1,0 +1,1 @@
+ARTÍCULO 67.- El socio comanditario no podrá aportar como capital a la sociedad su capacidad, crédito o industria personal. Su aporte de capital podrá consistir en una patente de invención, marcas de fábrica o la comunicación de un secreto de arte o de ciencia, con tal de que no lo aplique por sí mismo ni coopere en su ejecución.

@@ -1,0 +1,1 @@
+ARTÍCULO 855.- Si el representante de una sociedad solicita la quiebra de ésta, además de los requisitos que indica el artículo anterior, en cuanto sean compatibles con la naturaleza de la persona jurídica, deberá acompañar constancia del acuerdo firme tomado por los socios, mediante el cual se le autoriza para solicitar la quiebra.

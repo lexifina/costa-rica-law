@@ -1,0 +1,1 @@
+ARTÍCULO 28.- El nuevo socio de una compañía ya constituida responderá, como los demás, de todas las obligaciones contraídas por ésta antes de su admisión, aunque haya cambiado el nombre o la razón social. Toda estipulación en contrario será nula.

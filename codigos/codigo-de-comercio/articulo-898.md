@@ -1,0 +1,2 @@
+ARTÍCULO 898.- Si la quiebra ya hubiere recibido el valor total de los efectos dados al quebrado en comisión de cobro, en la resolución en la que se reconozca la respectiva legalización, se acordará pagar inmediatamente al propietario del título o títulos, la suma íntegra percibida por aquéllos. Si lo recibido por el concurso hubiere sido tan sólo una parte del valor, se ordenará pagarle esa suma y devolverle el título o títulos, en cuyo caso se anotará el abono hecho, si aun no lo estuviere.
+(Así reformado por el artículo 3º de la ley Nº 7130 de 16 de agosto de 1989)

@@ -1,0 +1,1 @@
+ARTÍCULO 433.- El deudor que paga tiene derecho a exigir un recibo y no está obligado a conformarse con la simple devolución del título de la deuda, si en él no se escribe su cancelación firmada por el acreedor o su legítimo representante.

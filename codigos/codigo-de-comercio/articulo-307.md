@@ -1,0 +1,1 @@
+ARTÍCULO 307.- Los corredores jurados deben ejecutar por sí mismos las negociaciones que se le encomienden. No obstante, si por razones especiales no pudieran hacerlas personalmente, les será permitido ejecutarlas, bajo su entera responsabilidad, por un dependiente suyo o un delegado de su elección.

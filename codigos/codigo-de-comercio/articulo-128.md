@@ -1,0 +1,1 @@
+ARTÍCULO 128.- Si no hubiere sido posible efectuar la venta dentro del plazo de tres meses a partir de la fecha en que debió hacerse el pago, las acciones quedarán anuladas y el accionista perderá todo derecho a sus aportes, que quedarán a beneficio de la sociedad, la cual podrá emitir las acciones de nuevo.

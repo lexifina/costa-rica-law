@@ -1,0 +1,2 @@
+ARTÍCULO 63.- Además de las causas por las cuales terminan las sociedades en general, la sociedad en comandita termina por la muerte, quiebra, interdicción o imposibilidad para administrar del socio comanditado.
+Pero si fueren varios los socios comanditados y el caso estuviere previsto en la escritura social, la sociedad podrá continuar bajo la administración de los otros socios, debiendo modificarse, si fuere del caso, la razón social.

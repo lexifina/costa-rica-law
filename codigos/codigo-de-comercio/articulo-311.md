@@ -1,0 +1,1 @@
+ARTÍCULO 311.- Los corredores jurados tendrán todas las demás atribuciones que señala este Código y pueden especialmente llevar a cabo la labor de martilleros o rematadores, y la de peritos, de acuerdo con lo establecido en el Código de Procedimientos Civiles.

@@ -1,0 +1,1 @@
+ARTÍCULO 84.- La disolución de la sociedad por cualquier motivo, no exonera a los socios del pago de sus cuotas, en la parte y proporción necesarias para el cumplimiento de las obligaciones sociales contraídas.

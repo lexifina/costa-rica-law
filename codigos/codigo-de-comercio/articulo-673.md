@@ -1,0 +1,1 @@
+ARTÍCULO 673.- La trasmisión del título-valor, salvo pacto en contrario, implica no sólo el traspaso de la obligación principal, sino también el de los intereses, dividendos y cualesquiera otras ventajas devengadas y no pagadas. Comprende, además, las garantías que lo respalden, sin necesidad de mención especial de éstas, así como de cualquier otro derecho accesorio.

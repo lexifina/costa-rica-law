@@ -1,0 +1,3 @@
+ARTÍCULO 345.- Incurrirá en las responsabilidades que consigna el artículo 1048 del Código Civil, cualquier empresa pública de transporte en los casos de muerte o lesión de algún pasajero, lo mismo que en los casos de siniestros o accidentes ferroviarios motivados en los actos de sus agentes o factores en el desempeño de las funciones u oficios que ejerzan.
+Podrá incoarse la acción civil respectiva, si la víctima muere o se inhabilita, por las personas que enumera el artículo 162 del Código Civil (*), aun cuando no disfruten o no necesiten de la pensión alimenticia; en tal caso el monto de la indemnización lo fijarán los tribunales de justicia y se cancelará en una sola cuota.
+(*NOTA: se refiere al actual artículo 169 del Código de Familia)

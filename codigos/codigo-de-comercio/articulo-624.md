@@ -1,0 +1,1 @@
+ARTÍCULO 624.- La validez de los recibos por depósitos que los Bancos entreguen a sus depositantes, quedará sujeta a la condición de que los cheques, órdenes de pago o cualquier otra clase de títulos-valores incluidos en los depósitos, sean pagados por los respectivos girados en dinero efectivo o su equivalente a satisfacción del Banco.

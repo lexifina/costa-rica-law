@@ -1,0 +1,1 @@
+ARTÍCULO 505.- Es prohibido capitalizar intereses. Sin embargo, si hecha la liquidación de una deuda se estuvieran debiendo intereses, se podrán sumar éstos al capital para formar un solo total. Al otorgar nuevo documento o prorrogar el anterior, pueden estipularse intereses sobre la totalidad de la obligación.

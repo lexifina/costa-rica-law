@@ -1,0 +1,1 @@
+ARTÍCULO 243.- El comerciante podrá inscribir en el Registro de Marcas de Comercio, su firma o nombre comercial. En ese caso, gozará de la protección que la ley respectiva otorga a todas las inscripciones que se practican en ese Registro.

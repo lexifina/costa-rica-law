@@ -1,0 +1,4 @@
+ARTÍCULO 139 bis.- En caso de pignoración de acciones, el derecho de voto corresponde al socio, tanto en asambleas ordinarias como extraordinarias, salvo pacto en contrario, al acreedor pignoraticio en asambleas ordinarias y al socio de las extraordinarias.
+En caso de usufructo de las acciones, el derecho de voto corresponde, salvo pacto en contrario, al usufructuario en asambleas ordinarias y al nudo propietario en las extraordinarias.
+En los dos casos anteriores, el derecho de suscripción preferente corresponde siempre al socio. Si tres días antes del vencimiento del plazo, el socio no consignare las sumas necesarias para el ejercicio del derecho de opción, éste deberá ser enajenado por cuenta del socio por medio de un agente de bolsa, o de un agente libre.
+(Así adicionado por el artículo 6º de la ley 7201 de 10 de octubre de 1990)

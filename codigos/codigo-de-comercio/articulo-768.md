@@ -1,0 +1,4 @@
+SECCION IX
+Aceptación por Intervención
+ARTÍCULO 768.- Puede aceptarse por intervención en todos aquellos casos en que pueda ejercitarse una acción antes del vencimiento a favor del tenedor de una letra de cambio susceptible de aceptación.
+Cuando se haya indicado en la letra de cambio a una persona para que la acepte, o la pague en caso necesario, en el lugar del pago, el tenedor no podrá ejercer antes del vencimiento su derecho a recurrir contra el que hubiere puesto la indicación, ni contra los firmantes subsiguientes, a no ser que haya presentado la letra de cambio a la persona designada y que, habiéndose ésta negado a aceptar la letra o a pagarla, se haga constar la negativa en un protesto. En los demás casos de intervención, el tenedor podrá rechazar la aceptación por intervención, pero si la admitiere, perderá las acciones que le corresponderían antes del vencimiento contra aquél en cuyo nombre se haya dado la aceptación y contra los firmantes subsiguientes.

@@ -1,0 +1,7 @@
+ARTÍCULO 227.- Las sociedades extranjeras a que se refiere el inciso d) del artículo 5º que con arreglo a las leyes del país en que fueron creadas, estén autorizadas para transferir sus sedes sociales a otros países, podrán transferirlas al territorio de Costa Rica después de haber presentado al Registro Mercantil, para su inscripción, los siguientes documentos debidamente autenticados conforme a lo dispuesto en el artículo anterior:
+a) Copia del pacto social y de sus modificaciones;
+b) Certificado consular a que se refiere el párrafo segundo del artículo anterior;
+c) Certificado del acuerdo que autorice la transferencia de la sede social a la República; y
+d) Una relación que contenga los nombres y apellidos de las personas que integran el consejo de administración y de los personeros de la sociedad.
+La transferencia de la sede social al territorio de la República en la forma indicada, no implica la disolución o liquidación de la sociedad en su país de origen, ni tampoco la constitución de una nueva sociedad en el territorio costarricense. La declaración del capital de la compañía en su país de origen que consta en el pacto social o sus modificaciones, no tiene más objeto que el de hacer conocer aquí su solvencia económica y no implica obligación de pagar especialmente derechos de Registro por tal concepto
+(Así reformado por el artículo 1º de la ley Nº 4625 de 30 de julio de 1970)

@@ -1,0 +1,1 @@
+ARTÍCULO 607.- La admisión en la cuenta corriente de obligaciones anteriores de cualquiera de los contratantes en favor del otro, producirá novación, a menos que el acreedor o deudor hagan una formal reserva a este respecto. En ausencia de reserva expresa, la admisión de un valor en cuenta corriente se presumirá hecha pura y simplemente.

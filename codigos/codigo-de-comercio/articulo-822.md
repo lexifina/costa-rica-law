@@ -1,0 +1,1 @@
+ARTÍCULO 822.- Por causa de hurto, robo, pérdida o haberse ejercido violencia para la obtención de un cheque, el girador podrá dar contraorden de pago, en cuyo caso el banco se abstendrá de pagarlo. Dicha contraorden deberá darse por escrito con datos suficientes para identificar el documento, y deberá expresar con claridad la circunstancia del hecho en que se fundamente.

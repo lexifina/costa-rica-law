@@ -1,0 +1,1 @@
+ARTÍCULO 503.- Salvo pacto en contrario el pago deberá hacerse en el domicilio del acreedor. Si no se hubiere fijado el plazo para hacerlo, la obligación será exigible diez días después de la fecha de otorgamiento.

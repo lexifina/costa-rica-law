@@ -1,0 +1,1 @@
+ARTÍCULO 972.- La prescripción se puede plantear como acción para que se declare la extinción del derecho y su ejercicio, y como excepción, cuando se pretenda hacer efectivo un derecho ya extinguido por el transcurso del tiempo legal.

@@ -1,0 +1,1 @@
+ARTÍCULO 159.- El accionista o accionistas que representen por lo menos el veinticinco por ciento del capital social podrán pedir por escrito a los administradores en cualquier tiempo, la convocatoria de una asamblea de accionistas, para tratar de los asuntos que indiquen en su petición.

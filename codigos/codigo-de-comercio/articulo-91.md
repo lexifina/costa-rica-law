@@ -1,0 +1,1 @@
+ARTÍCULO 91.- Los gerentes y subgerentes no podrán delegar sus poderes sino cuando la escritura social expresamente lo permita. La delegación que se haga contra esta disposición convierte a quien la hace en responsable solidario, con el sustituto, por las obligaciones contraídas por éste. Sin embargo, los gerentes o subgerentes podrán conferir poderes judiciales.

@@ -1,0 +1,3 @@
+ARTÍCULO 681.- El título valor puede estar firmado personalmente por el obligado o por su apoderado.
+Quien emita, acepte, endose, avale o por cualquier otro concepto suscriba un título valor en nombre de otro sin poder suficiente o facultades legales para hacerlo, se obliga personalmente como si hubiera actuado en nombre propio, sin perjuicio de la responsabilidad penal que le cupiere; si hubiere pagado tendrá los mismos derechos que habría tenido la persona a quien pretendía representar. Lo mismo se entenderá del representante que hubiere excedido sus poderes.
+(Así reformado por el artículo 3º de la ley Nº 7201 de 10 de octubre de 1990)

@@ -1,0 +1,1 @@
+ARTÍCULO 322.- El sueldo o emolumento del factor se fijará de acuerdo con lo convenido en el contrato respectivo. A falta de estipulación, se estará a la costumbre del lugar donde el mandato se haya ejercido.

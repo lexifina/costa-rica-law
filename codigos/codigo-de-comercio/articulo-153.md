@@ -1,0 +1,1 @@
+ARTÍCULO 153.- Las asambleas de accionistas son generales y especiales. Las generales podrán estar integradas por la totalidad de los socios; las especiales, sólo por socios que tengan derechos particulares; las generales son ordinarias o extraordinarias.

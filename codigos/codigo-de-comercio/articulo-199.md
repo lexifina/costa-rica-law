@@ -1,0 +1,1 @@
+ARTÍCULO 199.- Las personas que ejerzan la vigilancia de las sociedades anónimas serán individualmente responsables por el cumplimiento de las obligaciones que la ley, el pacto social y los estatutos les impongan.

@@ -1,0 +1,1 @@
+ARTÍCULO 172.- A solicitud de quienes reúnan el veinticinco por ciento de las acciones representadas en una asamblea, se aplazará, por un plazo no mayor de tres días y sin necesidad de nueva convocatoria, la votación de cualquier asunto respecto del cual no se consideren suficientemente informados. Este derecho podrá ejercitarse sólo una vez para el mismo asunto.

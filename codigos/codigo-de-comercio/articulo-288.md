@@ -1,0 +1,1 @@
+ARTÍCULO 288.- El comisionista está obligado a cobrar oportunamente los créditos referentes a cada negocio. Si no lo hiciere a su debido tiempo o no usare los medios legales para conseguir el pago procediendo con la debida diligencia, será responsable de los perjuicios que causare su omisión o tardanza.

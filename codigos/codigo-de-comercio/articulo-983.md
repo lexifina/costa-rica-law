@@ -1,0 +1,1 @@
+ARTÍCULO 983.- Cuando la prescripción se cuente por días, se entenderán éstos de veinticuatro horas. La prescripción comenzará a correr el día siguiente del vencimiento o a la fecha en que pudo hacerse efectivo el derecho, si no había plazo determinado. En esos términos no se excluyen los días hábiles ni feriados.

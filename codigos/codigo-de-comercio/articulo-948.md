@@ -1,0 +1,1 @@
+ARTÍCULO 948.- El convenio produce la rehabilitación del quebrado; en consecuencia, será repuesto en el ejercicio de todos sus derechos y acciones con las limitaciones acordadas. Si no hay restricción alguna, una vez firme el fallo, el curador le entregará todos los bienes y efectos, rindiéndole cuenta de su administración.

@@ -1,0 +1,1 @@
+ARTÍCULO 985.- Las prescripciones que establece este capítulo son extintivas y no cabe contra ellas más excepción que la de suspensión cuando ésta legalmente se haya operado, y el mal cómputo en los términos.

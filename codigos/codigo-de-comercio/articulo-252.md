@@ -1,0 +1,3 @@
+ARTÍCULO 252.- Las sociedades anónimas y de responsabilidad limitada deben llevar un libro de actas de asambleas de socios. Las sociedades anónimas deberán llevar un libro de actas del consejo de administración y, si hubieren emitido obligaciones, el libro de registro correspondiente.
+Todos estos libros, así como el registro de socios, serán foliados y deberán legalizarse por la Dirección General de la Tributación Directa, para lo cual se presentará certificación de las respectivas inscripciones en el Registro Público.
+(Así reformado por el artículo 2º de la ley Nº 7201 de 10 de octubre de 1990)

@@ -1,0 +1,1 @@
+ARTÍCULO 283.- Está obligado el comisionista a someterse en un todo a las leyes y reglamentos vigentes en la materia, así como a las costumbres de la plaza donde actúe, y será responsable en forma exclusiva de toda violación u omisión de los mismos.

@@ -1,0 +1,1 @@
+ARTÍCULO 230.- Las sociedades extranjeras que transfieran su sede social a la República, podrán, en cualquier momento, retransferirla a cualquier otro país, a cuyo efecto deberán presentar, para su inscripción en el Registro Mercantil, un certificado del acuerdo mediante el cual se tome dicha decisión, debidamente autenticado.

@@ -1,0 +1,1 @@
+ARTÍCULO 701.- Todos aquellos endosos que no trasmiten la propiedad, autorizan al endosatario para cobrar y para llevar a cabo todas las diligencias necesarias para conservar los derechos inherentes al título, pero no los autoriza para endosar ni en ninguna otra forma gravar o traspasar el documento.

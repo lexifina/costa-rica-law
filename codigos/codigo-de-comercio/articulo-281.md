@@ -1,0 +1,1 @@
+ARTÍCULO 281.- Si el comisionista actuare fuera de las instrucciones recibidas, con evidente imprudencia, perjudicando al principal, debe indemnizar a éste de todos los daños y perjuicios, quedando por su cuenta y riesgo las consecuencias del negocio, si así lo dispone el comitente.

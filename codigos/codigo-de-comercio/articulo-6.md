@@ -1,0 +1,1 @@
+ARTÍCULO 6º.- Los que ocasionalmente lleven a cabo actos de comercio no serán considerados comerciantes, pero quedan sometidos, en cuanto a esos actos, a las leyes y reglamentos que rigen los actos de comercio.

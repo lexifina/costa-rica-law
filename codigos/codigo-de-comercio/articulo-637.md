@@ -1,0 +1,1 @@
+ARTÍCULO 637.- Puede ser fiduciario cualquier persona física o jurídica, capaz de adquirir derechos y contraer obligaciones. En el caso de personas jurídicas, su escritura constitutiva debe expresamente capacitarlas para recibir por contrato o por testamento la propiedad fiduciaria.

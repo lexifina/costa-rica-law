@@ -1,0 +1,1 @@
+ARTÍCULO 468.- Mientras la mercadería se halle en poder del vendedor, aunque sea en calidad de depósito, éste tendrá preferencia sobre cualquier otro acreedor, para pagarse con ella lo que se le adeuda por cuenta de su precio.

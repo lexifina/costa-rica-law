@@ -1,0 +1,1 @@
+ARTÍCULO 39.- La administración de la sociedad, y el uso de la firma social, corresponderán exclusivamente a la persona o personas a quienes de acuerdo con los términos del contrato se hubiere dado esa facultad. La firma de todos los socios obliga a la sociedad.

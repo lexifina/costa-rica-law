@@ -1,0 +1,1 @@
+ARTÍCULO 3º.- Para que la costumbre sea aplicable y supla el silencio de la ley, es necesario que haya sido admitida de modo general y por un largo tiempo, todo a juicio de los tribunales. El que invoque una costumbre debe probar su existencia, para lo cual toda clase de prueba es admisible.

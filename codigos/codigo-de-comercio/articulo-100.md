@@ -1,0 +1,1 @@
+ARTÍCULO 100.- No podrán pagarse dividendos ni hacerse distribuciones de ningún género a los socios, sino sobre utilidades realizadas y líquidas. El gerente o subgerente, en su caso, serán personalmente responsables de toda distribución hecha sin comprobación previa de las ganancias realizadas, o por suma que exceda de éstas.

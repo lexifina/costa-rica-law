@@ -1,0 +1,2 @@
+ARTÍCULO 604.- El cuentacorrentista que incluya en la cuenta un crédito garantizado con prenda o hipoteca, tendrá derecho de hacer efectiva la garantía por el importe del crédito garantizado, en cuanto resulte acreedor del saldo.
+Si por un crédito comprendido en la cuenta hubiere fiadores o co-obligados, éstos quedarán obligados en los términos de sus contratos por el monto de ese crédito en favor del cuentacorrentista que hizo la remesa y en cuanto éste resulte acreedor del saldo.

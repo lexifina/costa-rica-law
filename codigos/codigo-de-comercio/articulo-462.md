@@ -1,0 +1,1 @@
+ARTÍCULO 462.- Si se ha pactado la entrega de las mercancías en cantidad y plazo determinados, el comprador no estará obligado a recibirlas en condiciones diferentes; pero si aceptare entregas distintas, la venta quedará consumada en cuanto a tales entregas, sin perjuicio de la indemnización a que pueda tener derecho por la falta de cumplimiento del vendedor.

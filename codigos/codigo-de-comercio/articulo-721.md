@@ -1,0 +1,2 @@
+ARTÍCULO 721.- El poseedor de un título deteriorado, que ya no sea idóneo para la circulación, pero que sea todavía seguramente identificable, tendrá derecho de obtener del emisor un título equivalente, mediante la restitución del primero y el reembolso de los gastos de emisión. En caso de negativa del emisor se procederá conforme con lo dispuesto en el artículo 710.
+(Así reformado por el artículo 5º de la ley Nº 7201 de 10 de octubre de 1990)

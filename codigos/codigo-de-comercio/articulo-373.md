@@ -1,0 +1,1 @@
+ARTÍCULO 373.- Cuando un comerciante encarga a su dependiente la recepción de las mercaderías que deben entrar en su poder; y éste las recibe sin oponer reparo en su cantidad, se tiene por bien hecha la entrega y no se admitirán sobre ella más reclamaciones que las que podrían tener lugar si el comerciante en persona las hubiere recibido.

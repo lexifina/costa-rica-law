@@ -1,0 +1,1 @@
+ARTÍCULO 646.- Una vez aceptado el cargo, el fiduciario no podrá renunciarlo si no es por justa causa que el fideicomitente o el juez, en su caso, calificarán. El juez procederá a petición de parte interesada y por los trámites establecidos para los actos de jurisdicción voluntaria.

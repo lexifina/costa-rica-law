@@ -1,0 +1,1 @@
+ARTÍCULO 352.- El agente viajero independiente desarrollará sus actividades del modo que estime conveniente, y está en libertad de dedicarse a cualquier otra clase de negocios, siempre que sean distintos de aquéllos que realicen en virtud de su calidad de agente, salvo que en el contrato respectivo se excluya esa prohibición.

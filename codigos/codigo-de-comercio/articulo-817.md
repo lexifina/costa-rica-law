@@ -1,0 +1,1 @@
+ARTÍCULO 817.- Cuando el cheque no se haya pagado por falta de fondos, el tenedor, al cobrar el reembolso en vía ejecutiva al girador, tendrá derecho a exigir a título de daños y perjuicios y como indemnización fija, el veinticinco por ciento de la suma no cobrada.

@@ -1,0 +1,1 @@
+ARTÍCULO 957.- La sentencia que conceda o deniegue la rehabilitación será apelable en ambos efectos. Contra el fallo de segunda instancia cabrá recurso de casación si el pasivo de la quiebra alcanzare a la suma que lo permite.

@@ -1,0 +1,1 @@
+ARTÍCULO 92.- Cada gerente y subgerente, en su caso, responderá personal y solidariamente con la sociedad respecto a terceros, cuando desempeñare mal su mandato o violare la ley o la escritura social.

@@ -1,0 +1,1 @@
+ARTÍCULO 35.- La razón social se formará con el nombre y apellido o sólo el apellido de uno o más socios, con el aditamento "y Compañía" u otra expresión equivalente que indique la existencia de más socios, si los hubiere.

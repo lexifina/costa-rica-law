@@ -1,0 +1,2 @@
+ARTÍCULO 158.- La asamblea deberá ser convocada en la forma y por el funcionario u organismo que indica en la escritura social, y a falta de disposición expresa, por aviso publicado en "La Gaceta".
+Se prescindirá de la convocatoria cuando, estando reunida la totalidad de los socios, acuerden celebrar asamblea y se conformen expresamente con que se prescinda de dicho trámite, lo que se hará constar en el acta que habrán de firmar todos.

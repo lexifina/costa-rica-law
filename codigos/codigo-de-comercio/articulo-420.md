@@ -1,0 +1,1 @@
+ARTÍCULO 420.- Cuando se haya estipulado que la obligación ha de ser pagada por tractos sucesivos, salvo convenio en contrario, la falta de un pago dará por vencida y hará exigible toda la obligación.

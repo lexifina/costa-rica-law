@@ -1,0 +1,1 @@
+ARTÍCULO 442.- Cuando las partes traten de viva voz, ya sea reunidas o por teléfono, el contrato de compra-venta que de ahí resulte quedará perfecto desde que se convenga en cosa y precio, y demás circunstancias de la negociación.

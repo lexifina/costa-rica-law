@@ -1,0 +1,2 @@
+ARTÍCULO 912.- A la junta podrán concurrir los acreedores con sus abogados. También los acreedores podrán hacerse representar por medio de carta-poder otorgada a otro acreedor o a un abogado. La carta-poder es un mandato especial para cada junta, se extiende en papel simple con los timbres correspondientes firmada por el mandante y refrendada por dos testigos, o por un abogado o notario.
+(Así reformado por el artículo 3º de la ley Nº 7130 de 16 de agosto de 1989)

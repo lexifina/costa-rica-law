@@ -1,0 +1,1 @@
+ARTÍCULO 947.- Si el convenio fuese improbado por el juez, o si después de aprobado fuese declarado nulo o resuelto por falta de cumplimiento, o por cualquiera otra causa, el procedimiento de la quiebra reasumirá su curso, y las concesiones otorgadas quedarán sin efecto.

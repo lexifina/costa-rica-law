@@ -1,0 +1,1 @@
+ARTÍCULO 324.- El porteador podrá efectuar el transporte por sí mismo, por medio de sus agentes o empleados o por persona o compañía diferente. En este último caso el porteador original y la empresa que efectúe el transporte serán solidariamente obligados para con el remitente por las consecuencias que pudieren originarse por falta de cumplimiento del contrato de transporte.

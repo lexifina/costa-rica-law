@@ -1,0 +1,3 @@
+ARTÍCULO 669 bis.- Quien haya adquirido por justo título, de buena fe y sin culpa grave, la posesión de un título valor, de conformidad con las normas que disciplinan su circulación, adquiere válidamente el derecho representado en el título, aunque el transmitente no sea el titular, y cualquiera que sea la forma en que el titular haya sido desposeído.
+Se presumirá el justo título y la buena fe en toda compraventa de títulos valores realizada por medio de una bolsa de comercio legalmente autorizada, en lo cual será suficiente prueba la certificación emitida por la bolsa de comercio a solicitud del comprador, quien podrá hacer valer su derecho ante la autoridad correspondiente.
+(Así adicionado por el artículo 3º - y el 6º- de la ley Nº 7201 de 10 de octubre de 1990)

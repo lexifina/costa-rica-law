@@ -1,0 +1,2 @@
+ARTÍCULO 824.- Por las mismas razones que pueda invocar el girador para dar contraorden de pago de un cheque, podrá hacerlo el tenedor, pero en este caso esa suspensión no excederá de cuatro días hábiles, salvo que el girador lo confirme por escrito.
+En ambos casos de contraorden de pago, ya provenga del girador o del tenedor, éstos serán responsables de los daños y perjuicios que causen si tal contraorden resultare infundada.

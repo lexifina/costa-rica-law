@@ -1,0 +1,1 @@
+ARTÍCULO 54.- Los administradores estarán obligados a rendir cuentas detalladas y documentadas de su administración, siempre que lo pida la mayoría de los socios, aun cuando no sea la oportunidad fijada por la escritura social para hacerlo.

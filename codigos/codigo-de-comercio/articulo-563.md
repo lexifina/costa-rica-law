@@ -1,0 +1,3 @@
+ARTÍCULO 563.- Cuando el deudor efectúe pagos parciales, si a ello lo autorizare el contrato, tendrá derecho a que se tome razón de ellos en el Registro y en el documento. Si el acreedor se negare a cancelar parcialmente estando obligado a ello, el interesado podrá consignar la suma correspondiente a la orden del juez.
+Si fueren varias las cosas dadas en prenda y en el contrato se hubiere fijado su responsabilidad por separado, le corresponderá al deudor, la imputación de pagos, salvo pacto en contrario, y en cualquier momento podrá solicitar la liberación del objeto cuyo valor e interés proporcionales queden cubiertos con el abono.
+(Así reformado por el artículo 3º de la ley Nº 7130 de 16 de agosto de 1989)

@@ -1,0 +1,1 @@
+ARTÍCULO 192.- La responsabilidad de los administradores sólo podrá ser exigida por acuerdo de la asamblea general de accionistas, la cual designará a la persona que haya de ejercer la acción correspondiente.

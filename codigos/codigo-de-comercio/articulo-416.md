@@ -1,0 +1,1 @@
+ARTÍCULO 416.- Las disposiciones del derecho civil referentes a la capacidad de los contratantes, a las excepciones y a las causas que rescinden o invalidan los contratos, por razón de capacidad, serán aplicables a los actos y contratos mercantiles, con las modificaciones y restricciones de este Código.

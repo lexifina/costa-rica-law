@@ -1,0 +1,1 @@
+ARTÍCULO 664.- Este contrato no está sujeto a prueba escrita ni a registro. La cuenta en participación no constituye persona jurídica, por lo cual carece de nombre o razón social, patrimonio colectivo y domicilio propio. El uso de un nombre comercial común hará responder a todos los participantes en forma solidaria, de las obligaciones contraídas.

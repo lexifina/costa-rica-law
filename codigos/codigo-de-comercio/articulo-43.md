@@ -1,0 +1,1 @@
+ARTÍCULO 43.- No obligarán a la sociedad los actos, aun hecho a nombre de la firma social, de los socios que no sean administradores. Pero si sus nombres figuraran en la razón social, la sociedad soportará las resultas de los actos ejecutados a su nombre con terceros de buena fe, sin perjuicio de las acciones que procedan contra el socio que hubiere actuado sin derecho.

@@ -1,0 +1,1 @@
+ARTÍCULO 963.- Tratándose de sociedades en nombre colectivo o en comandita, declarados en quiebra los acreedores de la sociedad serán pagados con los bienes particulares de los socios y en concurrencia con los acreedores de éstos, si los tuviere, cuando los bienes sociales no bastaron a cubrir el importe de sus créditos.

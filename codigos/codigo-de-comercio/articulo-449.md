@@ -1,0 +1,1 @@
+ARTÍCULO 449.- El que de buena fe comprare en un establecimiento abierto al público cosas que sean de su giro normal, no podrá ser privado de ellas, y aunque no pertenecieren al vendedor y dolosamente las hubiere vendido.

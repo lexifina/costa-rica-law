@@ -1,0 +1,1 @@
+ARTÍCULO 471.- Si la falta de entrega de la mercadería procediere de pérdida causada por caso fortuito, el contrato quedará resuelto y el vendedor exclusivamente obligado a devolver el precio. Si se hubiere salvado parte de la mercancía, tendrá facultad el comprador para hacer bueno el contrato en ese tanto.

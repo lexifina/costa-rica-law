@@ -1,0 +1,1 @@
+ARTÍCULO 943.- En virtud del convenio quedan extinguidas las acciones de los acreedores por la parte de los créditos de que se hiciese remisión al quebrado, aun cuando éste viniera a mejor fortuna, o le quedare algún sobrante de los bienes del concurso salvo pacto en contrario. También aprovechará el convenio a los fiadores del quebrado y a los obligados solidariamente.

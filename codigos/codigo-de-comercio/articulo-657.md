@@ -1,0 +1,3 @@
+ARTÍCULO 657.- Cuando deban ser consultados los fideicomisario a quienes interese una decisión, y el acto constitutivo no disponga otra cosa, se procederá así:
+a) Si tuvieren la misma clase de derechos, sus acuerdos se tomarán por mayoría de votos, computados por intereses, y en caso de empate decidirá el juez civil, siguiendo los trámites establecidos para los actos de jurisdicción voluntaria; y
+b) Si fueron sucesivos o tuvieron diversas clases de derechos, en caso de que hubieren opiniones discrepantes resolverá el juez civil. En todo caso el fiduciario tomará las medidas urgentes que exija de inmediato el interés del fideicomiso.

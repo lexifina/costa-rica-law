@@ -1,0 +1,1 @@
+ARTÍCULO 99.- De las utilidades líquidas de cada ejercicio anual deberá destinarse un cinco por ciento a la formación de una reserva legal. Tal obligación cesará cuando esa reserva alcance al diez por ciento del capital.
