@@ -1,0 +1,1 @@
+Artículo XIII.—El Microbiólogo Químico Clínico responsable del laboratorio podrá autorizar, transitoriamente, a los Asistentes y Auxiliares para que realicen funciones no especificadas en este Reglamento, siempre y cuando sean procesos o etapas parciales y sencillas de alguna técnica más elaborada (etapas de lavados, de tinciones electroforéticas, etc.).

@@ -1,0 +1,1 @@
+Artículo VI.—Requisitos para el Registro del Asistente Diplomado de Laboratorio Clínico. Poseer certificado de Asistente Diplomado de Laboratorio Clínico extendido por una institución de Educación Superior autorizada para ello o por cualquier otra reconocida por el Colegio. Presentar original y copia.

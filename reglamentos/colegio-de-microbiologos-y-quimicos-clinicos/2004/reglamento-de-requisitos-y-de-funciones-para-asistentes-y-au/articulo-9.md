@@ -1,0 +1,1 @@
+Artículo IX.—La categoría de Asistente implica la obligatoriedad, cuando el caso lo requiera, de colaborar con actividades de guardias bajo la orientación, supervisión directa y responsabilidad de un Microbiólogo Químicos Clínicos y laborar en cualquier turno.

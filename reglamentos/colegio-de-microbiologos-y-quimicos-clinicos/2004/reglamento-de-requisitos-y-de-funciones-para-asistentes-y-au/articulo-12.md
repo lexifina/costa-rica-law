@@ -1,0 +1,1 @@
+Artículo XII.—Para un mejor funcionamiento de los laboratorios, las funciones específicas son limitantes en lo que a categorías superiores se refiere. Un asistente debe estar en capacidad y disposición de realizar las funciones de categorías inferiores a aquellas donde se desempeña ordinariamente, incluso aquellas de índole técnico-administrativo.
