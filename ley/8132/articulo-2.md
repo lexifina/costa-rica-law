@@ -1,0 +1,1 @@
+Artículo 2º—Autorización. Autorízase a la Municipalidad de Cartago para que done el terreno anteriormente descrito a la Asociación de Atención de Pacientes de Enfermedades Terminales Caminemos Juntos, cédula jurídica Nº 3-002-141988, con el fin de que en él se construyan un albergue de cuidados paliativos y las oficinas administrativas de la Asociación.
