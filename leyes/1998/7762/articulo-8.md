@@ -6,8 +6,7 @@ y procedimientos administrativos que realice la Secretaría Técnica del
 Consejo.
 b) Aprobar, rechazar o modificar el cartel de licitación de las
 concesiones.
-c) Adjudicar la concesión y suscribir el contrato, en nombre de la
-Administración concedente, cuando le corresponda.
+c) Adjudicar la concesión y suscribir el contrato, en nombre de la Administración concedente, cuando le corresponda.
 d) Velar porque la Secretaría Técnica ejerza las funciones de
 inspección y control de las concesiones otorgadas.
 e) Designar al Secretario Técnico responsable de la Secretaría

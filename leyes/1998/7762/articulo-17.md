@@ -31,3 +31,4 @@ ocurra alguno de los supuestos previstos en el inciso b) del artículo 16
 de esta ley.
 h) Los demás derechos que esta ley le otorgue o los derivados del
 contrato de concesión.
+(NOTA DE SINALEVI: El artículo 1 aparte b) punto 6) de la Ley N° 8643 del 30 de junio de 2008, adicionará el inciso h) a este numeral y en consecuencia se corre la numeración del inciso subsiguiente, a partir del día 17 de octubre de 2008, por lo que la respectiva adición será introducida a partir de la fecha indicada).

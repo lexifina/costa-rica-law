@@ -1,10 +1,3 @@
-ARTÍCULO 25.- Consultas y aclaraciones
-1.- La Administración concedente podrá solicitar a los oferentes y
-recibir de ellos proposiciones y observaciones escritas sobre el texto
-final del cartel de licitación y deberá realizar una sesión formal para
-tratar sobre las versiones finales de los documentos. Sin embargo, la
-Administración licitante tendrá la decisión final sobre los asuntos
-tratados.
-2.- Si como consecuencia de esa sesión formal se produjeren
-modificaciones del cartel, estas deberán ser publicadas en La Gaceta, al
-menos diez días hábiles antes de la fecha de recepción de las ofertas.
+Artículo 25.- Consultas y aclaraciones
+1.- La Administración concedente podrá solicitar a los oferentes y recibir de ellos proposiciones y observaciones escritas sobre el texto final del cartel de licitación y deberá realizar una sesión formal para tratar sobre las versiones finales de los documentos. Sin embargo, la Administración licitante tendrá la decisión final sobre los asuntos tratados.
+2.- Si como consecuencia de esa sesión formal se produjeren modificaciones del cartel, estas deberán ser publicadas en La Gaceta, al menos diez días hábiles antes de la fecha de recepción de las ofertas.
