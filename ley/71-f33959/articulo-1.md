@@ -1,6 +1,9 @@
+(Derogado)
 DECRETO No LXXI.
 (de 28 de septiembre.)
 Referente al uniforme de las Bandas militares de la República.
+La presente norma ha sido DEROGADA EN SU TOTALIDAD por el artículo 13 de la Ley Nº. 8347 de 19 de febrero de 2003,
+Ley de Creación del Centro Nacional de la Música.
 BERNARDO SOTO,
 GENERAL DE DIVISIÓN Y PRESIDENTE CONSTITUCIONAL
 DE LA REPÚBLICA DE COSTA RICA,

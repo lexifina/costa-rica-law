@@ -1,0 +1,1 @@
+Artículo 11.—Corresponderá a la Auditoría Interna del Ministerio de Cultura, Juventud y Deportes ejercer el control interno del órgano y de su Fondo; asimismo, a la Contraloría General de la República, el control y la fiscalización externa.
