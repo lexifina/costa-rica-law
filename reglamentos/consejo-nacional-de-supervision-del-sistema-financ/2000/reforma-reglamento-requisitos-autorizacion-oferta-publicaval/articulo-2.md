@@ -1,0 +1,1 @@
+2. Derogar el Capítulo IV Normativa General sobre emisiones de fideicomisos y en consecuencia deróguense los artículos 16, 17 y 18 del "Reglamento sobre requisitos para la autorización de la oferta pública de valores".
