@@ -1,3 +1,4 @@
-Artículo 1º.- Créase el Consejo Superior de Educación Pública que
-tendrá a su cargo, desde el punto de vista técnico, la orientación y
-dirección de la enseñanza oficial.
+N° 1362
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETAN:
+Artículo 1º.- Créase el Consejo Superior de Educación Pública que tendrá a su cargo, desde el punto de vista técnico, la orientación y dirección de la enseñanza oficial.
