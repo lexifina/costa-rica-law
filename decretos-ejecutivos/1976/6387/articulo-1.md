@@ -1,4 +1,6 @@
+(Derogado)
 N° 6387-G
+(Este decreto ejecutivo fue derogado por el artículo 33 del Reglamento de las Asociaciones Administradoras de Acueductos y Alcantarillados, y publicado en La Gaceta N° 28 del 10 de febrero de 1997)
 DANIEL ODUBER QUIROS
 PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE GOBERNACIÓN, POLICÍA, JUSTICIA Y GRACIAS,

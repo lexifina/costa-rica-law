@@ -14,3 +14,4 @@ Reglamento de los Comités Administradores de los Acueductos Rurales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-10-15 | la propia norma |
+| 2 | 1997-01-14 | Reglamento 0 (1997-01-14) |
