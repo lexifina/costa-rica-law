@@ -18,3 +18,4 @@ RELACIÓN DE PUESTOS DE SUELDOS PARA CARGOS FIJOS DEL GOBIERNO CENTRAL, PARA EL 
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29720 de 8 de agosto del 2001)
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 29779 de 5 de setiembre del 2001)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29805 de 12 de setiembre del 2001)
+(Modificado por el artículo 2 del Decreto Ejecutivo N° 29890 de 3 de octubre del 2001)
