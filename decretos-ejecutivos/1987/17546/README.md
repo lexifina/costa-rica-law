@@ -14,3 +14,4 @@ Crea Comisión Nacional de la Papa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-06-03 | la propia norma |
+| 2 | 1988-04-19 | Decreto Ejecutivo 18222 (1988-04-19) |
