@@ -14,3 +14,4 @@ Reglamento del Fondo de Caja Chica Sede Central, Parques Recreativos y Oficinas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-10 | la propia norma |
+| 2 | 2003-12-05 | Reglamento 335 (2003-12-05) |
