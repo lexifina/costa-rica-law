@@ -1,0 +1,3 @@
+2.—Adicionar al artículo 13 del Reglamento de Préstamos Hipotecarios párrafo siguiente:
+"No obstante lo indicado en el párrafo primero de este artículo, el Instituto por disposición general de la Junta Directiva podrá acordar un margen de hasta un 100% de la garantía, incluyendo las obras que se realicen y los gastos de cierre, para programas de evidente interés social, como los de vivienda progresiva y otros donde el fin principal es de dotar de vivienda a personas de muy bajos ingresos, semejantes a los de adjudicación de vivienda, pero que por motivos especiales deba otorgarse escritura de adquisición del inmueble a favor del beneficiario."
+San José, 8 de febrero de 1984.—
