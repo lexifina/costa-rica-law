@@ -1,0 +1,2 @@
+Art 3°. - Se excita al Poder Ejecutivo para que en las Sesiones próximas ordinarias presente un proyecto de ley orgánica de Instrucción Pública.
+A la Cámara de Senadores, dado en el Salón de Sesiones. - Palacio Nacional.- San José a veintiséis de julio de mil ochocientos sesenta y seis. Al Poder Ejecutivo. Sala de la Cámara de Senadores, San José, julio veintinueve de mil ochocientos sesenta y seis. Palacio Nacional, San José, julio treinta de mil ochocientos sesenta y seis.
