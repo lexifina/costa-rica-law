@@ -1,11 +1,3 @@
-CAPÍTULO VIII
-PATRIMONIO DEL COLEGIO
-ARTÍCULO 35.- Fondos
-Los fondos del Colegio serán administrados por la Junta Directiva y estarán constituidos por lo siguiente:
-a) Las contribuciones ordinarias y extraordinarias a cargo de sus miembros activos.
-b) Las donaciones que reciba el Colegio.
-c) Las subvenciones que acuerden en su favor el Gobierno de la República, las instituciones de educación superior y cualquier otra entidad.
-d) Los fondos que se generen según el artículo 5.
-TRANSITORIO ÚNICO.- La Junta Directiva, una vez integrada, presentará a la Asamblea General un reglamento de procedimientos internos, para que
-lo apruebe en el término de seis meses.
-Rige a partir de su publicación.
+ARTÍCULO 35.- Pago por consultas
+No causarán derechos las consultas que los Poderes del Estado formulen al Colegio. En los demás casos, por los dictámenes técnicos que el Colegio emita se pagarán los derechos indicados en la tarifa elaborada por la Junta Directiva. Los derechos de consulta ingresarán a los fondos generales del Colegio, sin perjuicio de que, en casos cuya investigación y decisión haya implicado una labor dilatada, completa y dificultosa, la Junta separe el setenta y cinco por ciento (75%) de los derechos y lo gire, por partes iguales, a los miembros del comité consultivo.
+(Así modificada su numeración por el artículo 2 de la Ley N° 8139 de 1 de octubre del 2001, que lo pasó del 34 al 35)

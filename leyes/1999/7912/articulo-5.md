@@ -1,2 +1,5 @@
-ARTÍCULO 5.- Inscripción
-La Junta Directiva del Colegio reglamentará la inscripción de los profesionales en quiropráctica como miembros del Colegio. A solicitud del interesado, la Junta Directiva del Colegio también resolverá sobre las inscripciones adicionales correspondientes a los miembros activos del Colegio que hayan obtenido otras especialidades mediante estudios universitarios.
+CAPÍTULO II
+MIEMBROS DEL COLEGIO
+ARTÍCULO 5.- Integrantes
+Integrarán el Colegio los miembros activos y los miembros honorarios.
+(Así modificada su numeración por el artículo 2 de la Ley N° 8139 de 1 de octubre del 2001, que lo pasó del 4 al 5)

@@ -1,2 +1,4 @@
-ARTÍCULO 15.- Quórum
-El quórum de la Asamblea General ordinaria estará formado por la mitad más uno de los miembros activos del Colegio. Cuando este quórum no pueda integrarse en el lugar y hora señalados, la Junta Directiva tendrá la facultad de hacer una segunda y última convocatoria a la Asamblea General, que podrá reunirse en el mismo lugar y día indicados en la primera convocatoria, al menos treinta minutos después de la hora fijada para ella. En esta oportunidad, cualquier número de miembros activos que concurran formará el quórum.
+ARTÍCULO 15.- Asamblea extraordinaria
+La Asamblea General se reunirá extraordinariamente cuando la convoque la Junta Directiva por iniciativa propia, del fiscal o a solicitud escrita que reciba para este efecto de por lo menos un tercio de los miembros activos del Colegio.
+La convocatoria para Asamblea extraordinaria se publicará dos veces en La Gaceta, y una vez en un periódico de circulación nacional. Señalará los puntos por conocer en la Asamblea General extraordinaria e indicará el sitio, el día y la hora de la reunión. Deben mediar por lo menos quince días hábiles entre la fecha de la primera publicación en La Gaceta y la fijada para celebrar la Asamblea.
+(Así modificada su numeración por el artículo 2 de la Ley N° 8139 de 1 de octubre del 2001, que lo pasó del 14 al 15)
