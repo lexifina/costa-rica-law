@@ -1,1 +1,1 @@
-Transitorio II.—Las reglas de distribución contenidas en este decreto se aplicarán igualmente al ferencial que obtenga el Consejo Nacional de Producción o, en su defecto, la Corporación Arrocera, como resultado de las importaciones a una tarifa arancelaria reducida realizadas al amparo del artículo 37 y concordantes de la Ley de Creación de la Corporación Arrocera, mientras no se haya implementado el programa previsto en el artículo 1° de este decreto.
+Transitorio II.—Derogado por el artículo 1° del decreto ejecutivo N° 32099 del 21 de setiembre del 2004.
