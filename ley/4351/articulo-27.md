@@ -1,0 +1,2 @@
+Artículo 27.- La Junta Directiva Nacional, por mayoría no inferior a seis votos, designará un Director Ejecutivo por un período de cuatro años, el que podrá ser reelecto. El Director Ejecutivo tendrá a su cargo la ejecución de los acuerdos tomados por la Junta Directiva Nacional, las labores administrativas inherentes a su cargo, y, además, tendrá la representación judicial y extrajudicial del Banco.
+La mayoría de seis votos antes indicada, deberá incluir por lo menos, dos votos de representantes de los trabajadores.

@@ -1,0 +1,1 @@
+Artículo 28.- La Junta Directiva nombrará por mayoría no inferior a seis votos, a un Auditor, quien durará en sus funciones cuatro años y podrá ser reelecto. El auditor dependerá exclusivamente de la Junta Directiva y deberá poseer el título de Contador Público Autorizado.

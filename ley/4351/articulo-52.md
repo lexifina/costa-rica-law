@@ -1,0 +1,1 @@
+Artículo 52.- La disolución del Banco sólo podrá declararse por la vía judicial y en este caso su patrimonio será traspasado a la Caja Costarricense de Seguro Social. Esta institución destinará dicho patrimonio a las finalidades que señale la ley que al efecto deberá promulgarse.

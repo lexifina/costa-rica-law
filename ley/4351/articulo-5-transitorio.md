@@ -1,0 +1,1 @@
+Transitorio V.- El personal del Monte Nacional de Piedad, pasará a formar parte del Banco conservando todos los derechos laborales que tengan a la fecha de la vigencia de la presente ley, en sus respectivos contratos de trabajo.
