@@ -1,0 +1,1 @@
+Artículo 7°—El extranjero no debe inmiscuirse en las actividades políticas privativas de los ciudadanos del país en que se encuentre; si lo hiciere, quedará sujeto, a las sanciones previstas en la legislación local.
