@@ -14,3 +14,4 @@ Se mantiene la Dirección General de Aviación Civil con las funciones y estruct
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-12-06 | la propia norma |
+| 2 | 1993-07-21 | Decreto Ejecutivo 22379 (1993-07-21) |

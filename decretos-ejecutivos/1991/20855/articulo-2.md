@@ -28,15 +28,21 @@ Artículo 2°-La Dirección General de Aviación Civil tendrá las siguientes fu
 27. Formular el presupuesto anual de ingresos y egresos, tanto el financiado por el Presupuesto Ordinario y Extraordinario de la República, como por fondos del Consejo Técnico de Aviación Civil.
 28. Rendir informes periódicos a la División de Transportes sobre los trabajos realizados.
 Para el cumplimiento de estas funciones tendrá a su cargo las siguientes dependencias:
-Asistencia Legal.
-Departamento de Tránsito Aéreo.
-Departamento de Operaciones Aeronáuticas.
-Departamento de Aeronavegabilidad.
-Departamento de Transporte Aéreo.
-Departamento de Infraestructura Aeronáutica.
-Departamento Administrativo.
-Departamento Financiero.
-Departamento de Información Aeronáutica.
-Departamento de Empresas Comerciales.
-Departamento de Planes y Programas.
+Subdirección General
+Asesoría Legal
+Departamento de Tránsito Aéreo
+Departamento de Operaciones Aeronáuticas
+Departamento de Aeronavegabilidad
+Departamento de Transporte Aéreo
+Departamento de Infraestructura Aeronáutica
+Departamento Administrativo
+Departamento Financiero
+Departamento de Información Aeronáutica
+Departamento de Empresas Comerciales
+Departamento de Planeamiento
+Administraciones Aeroportuarias
 Sección de Informática.
+(Así reformado el inciso 28) anterior por el artículo 1° del decreto ejecutivo N° 22379 del 21 de julio de 1993)
+29. Fungir como órgano ejecutivo de las disposiciones emanadas del Despacho del Ministro de Obras Públicas y Transportes y de las del Consejo Técnico de Aviación Civil, formuladas de acuerdo a la ley y los reglamentos que regulan la materia.
+El Director deberá asistir a las sesiones del Consejo con voz pero sin voto, pero sus-opiniones técnicas deberán tomarse como de máximo valor.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 22379 del 21 de julio de 1993)
