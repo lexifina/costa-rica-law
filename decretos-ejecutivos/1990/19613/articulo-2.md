@@ -1,0 +1,1 @@
+Artículo 2°-Para conmemorar ese día, en todos los centros educativos del país, se realizarán actos alusivos a esta fecha y se organizarán actividades que tiendan a fomentar este hábito entre la comunidad estudiantil.

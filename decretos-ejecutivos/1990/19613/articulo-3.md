@@ -1,0 +1,1 @@
+Artículo 3°.-Las entidades públicas relacionadas con el ahorro, aprovecharán este día, para divulgar la importancia del ahorro y podrán unirse a las actividades escolares y comunales que surjan con este motivo.
