@@ -1,1 +1,0 @@
-Artículo 54.-Autorización para la subcontratación. La empresa solicitará al Consejo Nacional de Inversiones autorización para la subcontratación por medio de la fórmula "Contrato de Subcontratación Productiva", el que deberá tener un tanto para la Aduana Matriz , que deberá ser firmada por el representante legal de la empresa.

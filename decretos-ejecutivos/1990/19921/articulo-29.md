@@ -1,1 +1,0 @@
-Artículo 29.-Documentación. Una vez autorizado por la Comisión del funcionamiento de una empresa, el Departamento comunicará a la Aduana Matriz , para que esta habilite las tarjetas y demás documentación individual que se requiera para el trámite y control de las operaciones.

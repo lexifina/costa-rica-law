@@ -1,1 +1,0 @@
-Artículo 77.-Traslado de las mercancías dadas en prenda. Las obligaciones del consignatario derivadas de la declaratoria de prenda no podrán ser trasladadas a un tercero, caso de que ello ocurra la autoridad aduanera podrá perseguir la mercadería aun encontrándose en posesión del mismo.

@@ -1,2 +1,0 @@
-Artículo 20.-Inicio de operaciones. La empresa dispondrá de un plazo de seis meses, contados a partir de la notificación de la resolución que les autoriza para funcionar, para iniciar operaciones de importación. Este plazo podrá ser prorrogado hasta por otros seis meses, previa solicitud justificada del interesado y a juicio del Consejo Nacional de Inversiones.
-De no iniciar operaciones en el plazo mencionado, la autorización será cancelada de oficio, debiendo notificarse esta resolución dentro de los tres días hábiles posteriores.

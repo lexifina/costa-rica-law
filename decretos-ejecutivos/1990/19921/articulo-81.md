@@ -1,2 +1,0 @@
-Artículo 81.-Plazo para el pago de tributos, cargos y multas. La empresa contará con treinta días para la cancelación de los tributos, cargos y multas que determine la Aduana Matriz como si se tratara de una nacionalización. Efectuado el pago, la empresa retornará o internará las mercancías.
-Si transcurrido el plazo citado no se cancelaren los tributos, cargos y multas, se ordenará la subasta inmediata de las mercancías, sin perjuicio de otras acciones legales.

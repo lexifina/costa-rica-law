@@ -1,1 +1,0 @@
-Artículo 80.-Cancelación de la autorización. De cancelarse, por cualquier causa, la autorización a la empresa, se ordenará al Departamento de Investigaciones Técnicas Aduaneras, el decomiso de las mercancías admitidas en poder de la empresa y su traslado a la bodega de la Aduana Matriz.

@@ -1,2 +1,0 @@
-Artículo 6°-Potestades del Consejo Nacional de Inversiones. El Consejo Nacional de Inversiones será el órgano superior del Régimen y como talle corresponderá definir las políticas de aplicación y desarrollo del mismo y de determinar los bienes que podrán ingresar al país mediante el Régimen. Para estos efectos el Consejo se ampliará con un funcionario de la Dirección General de Aduanas.
-Por su parte, la Dirección General de Aduanas será la encargada del control del Régimen.

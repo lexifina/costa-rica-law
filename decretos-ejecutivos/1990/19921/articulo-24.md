@@ -1,1 +1,0 @@
-Artículo 24.-De los registros, controles y archivos. Es obligación de la empresa, mantener los registros, controles y archivos de todas sus operaciones aduaneras bajo el Régimen, así como conservar la documentación durante, por lo menos 3 años.

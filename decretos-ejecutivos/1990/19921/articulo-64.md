@@ -1,1 +1,0 @@
-Artículo 64.-Cancelación del programa de producción. Se sancionará con la cancelación del respectivo Programa de Producción, a la empresa que use mercancías autorizadas para un programa en otro, sin autorización previa del Consejo Nacional de Inversiones.

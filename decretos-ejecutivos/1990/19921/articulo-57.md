@@ -1,1 +1,0 @@
-Artículo 57.-Préstamo de mercancías. Por causas de fuerza mayor, se podrán trasladar como préstamo mercancías admitidas, entre empresas autorizadas y por un período específico, manteniendo la responsabilidad original la empresa que la importó y registrando esta operación.

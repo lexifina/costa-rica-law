@@ -1,1 +1,0 @@
-Artículo 43.-Retiro de las mercancías. Con la copia de la declaración marcada "entréguese", se podrán retirar las mercancías dejando el documento en manos del jefe de la bodega o el encargado, otorgándose al interesado cinco días hábiles para el retiro de la mercancía. Pasado ese término, sin que se hayan retirado las mercancías, se les empezará a cobrar el almacenaje.

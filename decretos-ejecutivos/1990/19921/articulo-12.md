@@ -1,1 +1,0 @@
-Artículo 12.-Análisis de la solicitud. La Secretaría Técnica analizará y dictaminará la solicitud. Si esta no cumpliere con alguno de los requisitos, la Secretaría se abstendrá de darle trámite, pero indicará al interesado los requisitos omitidos o inforrmación faltante. para que corrija los defectos.

@@ -1,1 +1,0 @@
-Artículo 16.-Trámite para la autorización de programas. El trámite para la autorización de los programas será similar al de la autorización de la empresa, pero será aprobada por el Consejo Nacional de Inversiones.

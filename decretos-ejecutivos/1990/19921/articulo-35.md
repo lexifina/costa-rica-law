@@ -1,1 +1,0 @@
-Artículo 35.-Procedimientos internos y emisión de la prenda. Los procedimientos internos para la admisión y permanencia de equipo y repuestos, y la emisión del título de prenda aduanera, serán los mismos descritos para las materias primas e indicados en la siguiente sección.

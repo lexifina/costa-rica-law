@@ -1,1 +1,0 @@
-Artículo 67 .-Constitución del título de prenda aduanera. El título de prenda aduanera se constituirá en las fórmulas oficiales emitidas para el efecto y con firma del consignatario de la mercancía o de su representante legal y deberá ser firmado además por un testigo presencial o autenticado en su caso.

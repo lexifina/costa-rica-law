@@ -1,5 +1,0 @@
-Artículo 40.-Aforo, internamiento:
-a) Percibida la documentación el vista procede al aforamiento. El chequeo de la mercancía, en especial su clasificación, estado y otras informaciones pertinentes se deben anotar en la declaración.
-El consignatario o su representante tendrán derecho a presenciar la inspección y examen de las mercancías y sus documentos, para hacer las observaciones que juzguen convenientes. En caso de no comparecer, la Aduana dará por válido su examen. De comprobar posteriormente el consignatario que la mercancía no corresponde a su lista autorizada, o presenta diferencias sustanciales de peso y/o cantidad o estilos contará con un máximo de 15 días para plantear una revisión a la Declaración y Título de Prenda emitidos, aportando las suficientes pruebas.
-b) Se procede al cálculo de los tributos a caucionar con el título de prenda aduanera, anotando los datos y firmando la Declaración.
-c) El vista entregará al agente aduanero los tantos de la Declaración y trasladará el resto de la documentación a la Unidad de Aceptación.

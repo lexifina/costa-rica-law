@@ -1,1 +1,0 @@
-Artículo 70.-Renuncia de trámites. El consignatario o su representante legal al suscribir el título, hacen expresa renuncia a la notificación y plazo establecido en la sección 8:00 del RECAUCA por lo que la Aduana en cualquier momento puede ejecutar el título cuando exista motivos para ello, conforme con lo reglamentado.

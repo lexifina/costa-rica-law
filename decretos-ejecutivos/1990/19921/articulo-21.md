@@ -1,1 +1,0 @@
-Artículo 21.-Inspección del local o planta. Antes de ingresar, mercancías o iniciar operaciones, la empresa comunicará a la Aduana Matriz para que se proceda a la inspección del local o planta respectiva y su correspondiente habilitación, salvo que esto se haya cumplido previamente.

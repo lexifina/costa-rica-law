@@ -1,1 +1,0 @@
-Artículo 75.-Trámite para la emisión de la prenda. Para los efectos anteriores, no es necesario el reintegro de timbres de cualquier clase ni la inscripción del título en el Registro de Prendas ni otra institución o ente.

@@ -1,1 +1,0 @@
-Artículo 50.-Cancelación de pólizas de ingreso de maquinaria y equipo. La cancelación de pólizas de ingreso que amparen maquinaria y equipo, se ejecutará con base en las pólizas de reembarque de las mismas, una vez retornadas al extranjero.

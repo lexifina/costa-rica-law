@@ -1,3 +1,0 @@
-CAPITULO VIII
-Cancelación de declaraciones, títulos de prensa y pólizas
-Artículo 48.-Declaraciones de ingresos de materias primas y otras. La cancelación de las declaraciones de ingresos de materias primas, se hará en forma automática en la Unidad de Control de la Aduana Matriz , posterior al retorno de las mismas y una vez registrados los datos de la respectiva declaración de salida. Cuando la cantidad retornada iguale a la cantidad ingresada que ampara la declaración de ingreso y el título, confeccionará un memorándum a la Sección de Custodia de Valores con los datos de estos documentos para su cancelación y devolución al interesado.

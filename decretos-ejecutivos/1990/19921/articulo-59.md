@@ -1,1 +1,0 @@
-Artículo 59.-Procedimiento para la nacionalización. De aprobarse la nacionalización, se notificará a la Aduana Matriz , para que proceda al aforo bajo los procedimientos normales de importación. Una vez liquidada la póliza de internación, se procederá cancelar la declaración de ingreso el título de prenda aduanera respectivo.
