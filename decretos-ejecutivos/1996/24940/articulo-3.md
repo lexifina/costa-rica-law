@@ -1,0 +1,1 @@
+Artículo 3º- Modifícanse las tarifas del Impuesto Selectivo de Consumo de los incisos arancelarios: 8703.10.00, 8703.21.00, 8703.22.90, 8703.23.90, 8703.24.90, 8703.31.90, 8703.32.90, 8703.33.90, 8703.90.00, 87.04.21.11.90, 8704.31.11.90, para que a partir de la vigencia del presente decreto se aplique un cuarenta por ciento (40%).

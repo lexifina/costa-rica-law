@@ -1,0 +1,1 @@
+Artículo 2°-Para el cálculo de la base imponible de la ley N° 6946 el valor aduanero se determinará tomando como costo, el valor promedio para venta al por mayor utilizando como referencia los consignados en publicaciones especializadas de carácter nacional o internacional de uso común, adicionando los ajustes por flete y seguro.
