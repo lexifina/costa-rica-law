@@ -1,0 +1,1 @@
+Art 4°.- El contrato que se celebre entre el dueño de la carga y el arriero, se comprobará o con documentos o con la deposición de dos testigos contestes: y las averías o hurtos lo serán con arreglo a derecho.

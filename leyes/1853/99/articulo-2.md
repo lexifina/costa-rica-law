@@ -1,0 +1,1 @@
+Art 2°.- El arriero conductor de carga es así mimos responsables de la avería que por descuido sufra el propietario en dicha carga, mas si en el contrato se obligó a todo riesgo, responderá al interesado con arreglo a la estipulación.

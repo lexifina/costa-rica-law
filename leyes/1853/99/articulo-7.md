@@ -1,0 +1,1 @@
+Art´7°:- El que maliciosamente demore el pago de fletes a los arrieros, pagará el duplo del valor de dichos fletes a favor del fondo de propios del Cantón de su residencia, y a más, los perjuicios que cause al interesado por la demora.
