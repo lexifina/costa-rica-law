@@ -14,3 +14,4 @@ Reforma Fija precios de productos de consumo básico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-05-09 | la propia norma |
+| 2 | 1983-08-18 | Decreto Ejecutivo 14772 (1983-08-18) |
