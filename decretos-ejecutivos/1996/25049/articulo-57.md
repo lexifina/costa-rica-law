@@ -1,0 +1,5 @@
+Artículo 57.- Sustitución de los funcionarios designados
+Las actuaciones fiscalizadoras se llevarán a cabo, hasta su
+conclusión, por los funcionarios de fiscalización que las hubiesen
+iniciado, salvo cese, traslado, enfermedad o bien otra causa justa de
+sustitución de éstos, lo cual deberá ser comunicado al sujeto pasivo.

@@ -1,0 +1,15 @@
+Artículo 28.- Secuestro de documentos
+En caso de negativa de las personas obligadas a cumplir con los
+suministros generales o con los requerimientos individualizados de
+información, la Administración solicitará autorización a la autoridad
+judicial, mediante resolución fundada, para proceder al secuestro de
+documentos previsto en la ley, y en el marco de los procedimientos que
+establezca la Dirección General.
+No obstante lo anterior, cuando la Administración lo considere
+necesario para asegurar la preservación de la información, podrá
+prescindir del requerimiento previo a la persona en cuyo poder se halle
+la información, y solicitar ésta directamente a la autoridad judicial,
+por el procedimiento de secuestro de documentos.
+La autorización para el secuestro de documentos conllevará la de
+ingreso al lugar donde éstos se encuentran, únicamente para los efectos
+de obtener la información requerida.
