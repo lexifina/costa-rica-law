@@ -1,8 +1,11 @@
-Artículo 15.- Nadie podrá recibir más de una pensión del Estado, excepto en los siguientes casos:
-a) Que se trate de pensiones provenientes de regímenes de cotización obligatoria, y por servicios diferentes;
-b) Que se trate de pensiones convenidas entre la Caja Costarricense de Seguro Social y grupos de trabajadores independientes o colegiados, sin mediar cotización estatal de ninguna clase;
-c) Cuando se trate de pensiones no contempladas en los incisos anteriores, siempre que la suma de ambas no exceda de cinco mil colones mensuales.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 6737 del 5 de abril de 1982)
+Artículo 15.-Nadie podrá recibir más de una pensión del Estado, exceptos en los siguientes casos:
+a) Que se trate de pensiones provenientes de regímenes de cotización obligatoria, y por servicios diferentes.
+b) Que se trate de pensiones convenidas entre la Caja Costarricense de Seguro Social y grupos de trabajadores independientes o colegiados, sin mediar cotización estatal de ninguna clase.
+c) Cuando se trate de pensiones no contempladas en los incisos anteriores, siempre que la suma de ambas no exceda de ocho mil colones.
+Las pensiones por sucesión y las que sean por servicios propios se disfrutarán sin limitación alguna.
+No habrá pensiones inferiores a dos mil quinientos colones, y las que lo fueren serán reajustadas de oficio a esa cantidad.
+Cuando se produzcan aumentos de sueldos o salarios por el alto costo de la vida, las pensiones se incrementarán en el mismo porcentaje o cantidad acordada o decretada por el Poder Ejecutivo.
+(Así reformado el inciso c) anterior por el artículo 1° de la ley N° 6928 del 18 de noviembre de 1983)
 En este caso, el ajuste a la suma indicada se hará de oficio, Los organismos del Estado que otorguen o hayan otorgado pensiones están obligados a comunicar al Registro del Estado Civil, la nómina de las personas que reciban esas pensiones, con explicación detallada de sus calidades y el número de cédula de identidad.
 El Registro del Estado Civil tiene obligación de comunicar, por escrito, a la Oficina de Pensiones y Jubilaciones, al Oficial Presupuestal de Hacienda y al Tesorero Nacional, toda modificación en el estado civil de los pensionados, así como su fallecimiento. Tales comunicaciones deberán enviarse, a más tardar, ocho días después de que el Registro reciba el informe de cambio de estado civil o fallecimiento de los beneficiarios.
 A las personas que, a partir de la vigencia de esta ley, llegaren a recibir pensiones del Estado en los regímenes cubiertos o subvencionados en la Ley de Presupuesto, y que desempeñen cargos remunerados con sueldos, en cualquier poder, organismo o institución del Estado, o que teniendo la condición de pensionado llegaren a desempeñar esos cargos, se les suspenderá temporalmente el pago de la pensión, mientras subsista la dualidad de pensionado y empleado o funcionario.
