@@ -13,3 +13,4 @@ Circular sobre el Deber de Iniciar las Diligencias a la Hora Señalada
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-08 | la propia norma |
+| 2 | 2003-07-31 | Circular 69 (2003-07-03) |
