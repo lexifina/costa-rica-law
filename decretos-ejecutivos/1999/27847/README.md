@@ -13,3 +13,4 @@ Integra Comisión Nacional para Gestión de Biodiversidad.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-13 | la propia norma |
+| 2 | 1999-05-13 | Decreto Ejecutivo 28943 (2000-09-01) |
