@@ -16,3 +16,4 @@ Integración del Consejo Nacional de Desarrollo de la comunidad.
 | 1 | 2002-06-12 | la propia norma |
 | 2 | 2002-11-26 | Decreto Ejecutivo 30940 (2002-11-26) |
 | 3 | 2003-03-06 | Decreto Ejecutivo 31107 (2003-03-06) |
+| 4 | 2003-09-11 | Decreto Ejecutivo 31370 (2003-09-11) |
