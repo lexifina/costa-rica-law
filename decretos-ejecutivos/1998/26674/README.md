@@ -14,3 +14,4 @@ Creación de la Comisión Mixta Contra las Prácticas de Contrabando y Comercio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-19 | la propia norma |
+| 2 | 1998-02-19 | Ley 8 |
