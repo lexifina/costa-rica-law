@@ -13,3 +13,4 @@ Reglamento Interior del Servicio Postal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1921-07-08 | la propia norma |
+| 2 | 1937-09-10 | Reglamento 188 (1937-09-10) |
