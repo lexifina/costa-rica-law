@@ -1,0 +1,1 @@
+Artículo 2º—Esta Comisión tendrá como fin el cumplimiento efectivo de las funciones que le asigne el Concejo Municipal y cualquier otra que corresponda a su competencia de conformidad con el Código Municipal, los reglamentos que se dicten al afecto, la Ley vigente y su propio Plan Anual de Trabajo.

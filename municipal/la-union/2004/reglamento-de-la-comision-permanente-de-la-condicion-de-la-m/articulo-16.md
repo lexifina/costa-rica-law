@@ -1,0 +1,2 @@
+Artículo 16.—Todos los miembros del Concejo deberán participar en la Comisión cuando fueren designados por el Presidente del Concejo; de existir alguna imposibilidad para participar en la misma, solicitarán por escrito su exclusión al Presidente, dando las razones del caso. La presidencia tomará la determinación sobre la permanencia o exclusión de la regidora (regidor) o síndica (síndico).
+La Unión, 19 de julio del 2004.—

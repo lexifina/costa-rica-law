@@ -1,0 +1,1 @@
+Artículo 9º—La comisión atenderá los asuntos a su cargo a la mayor brevedad posible, salvo los casos especiales en que el Concejo en forma expresa fije un término menor, de acuerdo al inciso G del artículo 34 del Código Municipal.
