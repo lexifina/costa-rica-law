@@ -1,0 +1,1 @@
+ARTICULO 12.- Autorízase a la Caja Costarricense de Seguro Social para abrir una cuenta en dólares estadounidenses y otra en colones, a fin de que la Tesorería Nacional le acredite los recursos provenientes de los Contratos de Préstamos, aprobados en esta Ley, a efecto de cumplir con lo dispuesto en el artículo anterior.

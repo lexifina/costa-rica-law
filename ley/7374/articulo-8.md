@@ -1,0 +1,2 @@
+ARTICULO 8.- Autorízase el traslado a la Caja Costarricense de Seguro Social, del personal del Ministerio de Salud, asignado a los programas cuyo traspaso también se autoriza según el artículo anterior, para garantizar la adecuada operación del programa de atención integral de las personas.
+Ese traslado se autoriza de conformidad con las disposiciones del Transitorio I de la Ley No. 5349 del 24 de setiembre de 1973 y de los artículos 1, 2, 3, 4, 5 y 6 de la Ley No. 5541 del 10 de julio de 1974.

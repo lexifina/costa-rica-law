@@ -1,0 +1,1 @@
+ARTICULO 9.- El Ministerio de Hacienda, a efecto de cumplir con lo establecido en los artículos 7 y 8 de la presente Ley, tomará las previsiones presupuestarias, para trasladar mensualmente a la Caja Costarricense de Seguro Social los recursos financieros necesarios, a fin de cubrir las nuevas obligaciones asumidas por el traspaso del programa de atención a las personas.
