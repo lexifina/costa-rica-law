@@ -1,0 +1,1 @@
+Artículo 2°—Disposición transitoria. Para el caso de aeronaves que hayan colocado las marcas de nacionalidad y matrícula en forma distinta de lo establecido en las Secciones 45.25 y 45.27 del presente reglamento antes de su fecha de vigencia, tendrán un término de seis meses posteriores a la publicación del mismo para ajustarse a lo establecido en dichas Secciones.
