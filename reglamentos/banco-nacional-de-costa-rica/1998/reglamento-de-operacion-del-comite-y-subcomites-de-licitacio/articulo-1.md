@@ -12,11 +12,11 @@ El Director Corporativo Administrativo fungirá como Presidente y el Proveedor G
 1.2 Los Subcomités de Licitaciones estarán conformados de la siguiente manera:
 Casa Matriz:
 a. El Director de Bienes quien fungirá como Presidente.
-b. El proveedor General quien fungirá como Secretario.
+b. El Proveedor General quien fungirá como Secretario.
 c. El Abogado de la Dirección Jurídica asignado a la Dirección de Bienes.
-Bancos Regionales:
+Banco Regionales:
 a. El Director Regional quien fungirá como su Presidente.
 b. El Director Administrativo Regional.
-c. El Director de Finanzas Regional.
+c. El Director de Operaciones y Tecnología Regional.
 d. El Proveedor Regional, quien fungirá como Secretario del Subcomité, con voz pero sin voto.
-(Así reformado por acuerdo de Junta Directiva, en su sesión N° 11113 del 2 de octubre de 2001)
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 11195 del 4 de marzo de 2003)
