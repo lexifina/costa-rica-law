@@ -14,3 +14,4 @@ Formación del Sistema de Planificación Regional y Urbana
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-10-26 | la propia norma |
+| 2 | 1978-02-08 | Decreto Ejecutivo 7966 (1978-02-08) |
