@@ -1,0 +1,1 @@
+Art 2° La Tesorería llevará sus cuentas contratadas conforme a la ley o a las disposiciones que el gobierno dicte, y las reunirá en el mismo tiempo que las oficinas de Hacienda que administran caudales públicos.
