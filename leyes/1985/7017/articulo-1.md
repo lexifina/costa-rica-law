@@ -7480,4 +7480,20 @@ SAC | Descripción | DAI
 | (Phaseolus o Vigna angularis) | 30%
 0713.33 | Comunes (Phaseolus vulgaris) |
 0713.3310 | Negros | 30%
-)
+NOTA: El Decreto Ejecutivo N° 31068 de 5 de marzo del 2003, hizo una modificación en lo siguiente:
+DAI DAI
+(%) (%)
+CODIGO DESCRIPCIÓN C.A. GU
+1005.90.20 ---Maíz amarillo II 15
+2710.11.20 ---Gasolina de Aviación II 0
+2710.11.30 ---Las demás gasolinas II 0
+2710.11.5 ---Otros aceites para uso
+industrial:
+2710.11.51 -----Nafta II 0
+2710.11.59 ----Los demás II 0
+2710.11.90 -----Otros II 0
+2710.19.11 ----Keroseno para motores II 0
+de reacción "Avjet turbo fuel"
+2710.19.23 ----Los demás aceites II 0
+combustibles fuel oil
+2711.19.00 ----Los demás II 0
