@@ -1,1 +1,2 @@
 Artículo 2°_El Liceo José Joaquín Vargas Calvo recibirá el estímulo del Estado para experimentar las modernas técnicas de educación vocacional, organización de los estudios, evaluación del trabajo escolar y relaciones con la comunidad.
+Nota: Mediante el artículo 9° del decreto ejecutivo N° 3 del 6 de abril de 1962, se indica que se reforma este artículo, no obstante no se indica en que consiste dicha reforma.

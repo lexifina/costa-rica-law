@@ -13,3 +13,4 @@ Crea Colegio Oficial de segunda Enseñanza Liceo José Joaquín Vargas Calvo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1951-04-19 | la propia norma |
+| 2 | 1962-04-06 | Decreto Ejecutivo 3 (1962-04-06) |

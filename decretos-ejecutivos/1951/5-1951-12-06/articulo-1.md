@@ -9,3 +9,4 @@ Y cumpliendo con un elemental deber de reconocimiento al maestro, al artista y a
 Por tanto.
 DECRETA:
 Artículo 1°-Créase un Colegio Oficial de Segunda Enseñanza en San Pedro de Montes de Oca de la provincia de San José, que llevará el nombre de Liceo José Joaquín Vargas Calvo, en el cual se impartirán los conocimientos que señalan los programas oficiales de Educación Secundaria.
+Nota: Mediante el artículo 9° del decreto ejecutivo N° 3 del 6 de abril de 1962, se indica que se reforma este artículo, no obstante no se indica en que consiste dicha reforma.
