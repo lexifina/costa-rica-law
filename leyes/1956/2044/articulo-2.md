@@ -1,0 +1,1 @@
+Artículo 2°.- Se autoriza igualmente a la Municipalidad para que suscriba contratos parciales con la Empresa o Empresas concesionarias de energía eléctrica para las extensiones e intalaciones de servicios eléctricos a los lugares citados en el artículo 1°, debiendo supervigilar la Municipalidad la ejecución de las obras.
