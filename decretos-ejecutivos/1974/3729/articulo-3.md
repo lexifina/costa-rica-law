@@ -1,0 +1,1 @@
+Artículo 3°—El Ministerio de Obras Públicas y Transportes ejercerá el respectivo control y vigilancia a efecto de que los bienes dados en administración tengan el mantenimiento y mejoramiento necesarios, quedando facultado para dictar las disposiciones que se estimen convenientes en provecho de la mayor eficiencia del servicio y de su desarrollo.

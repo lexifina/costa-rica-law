@@ -1,0 +1,1 @@
+Artículo 5°—Cualquier cambio de trazado de los canales, cierre, apertura o modificación sustancial dentro del citado proyecto vial, o variación en el uso de terrenos e instalaciones, deberá ser consultado previamente con el Ministerio a fin de obtener, si procede, su aprobación, la cual será final y concluyente.
