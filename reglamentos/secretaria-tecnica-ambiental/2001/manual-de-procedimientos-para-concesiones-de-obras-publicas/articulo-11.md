@@ -1,0 +1,1 @@
+Artículo 11.—En el caso de que el documento presentado bajo lo que se ha dispuesto en el artículo 10. no cumpla con lo establecido por la SETENA, ésta lo informará tanto al concesionario como al Consejo Nacional de Concesiones. El plazo para subsanar los incumplimientos será el que rige en la reglamentación vigente de la SETENA.

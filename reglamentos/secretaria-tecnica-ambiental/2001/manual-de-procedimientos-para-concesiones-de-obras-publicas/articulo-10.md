@@ -1,0 +1,2 @@
+Artículo 10.—El concesionario, una vez adjudicado en firme el contrato, procederá a informar a la SETENA sobre el proyecto adjudicado, enfatizando el detalle sobre sus características, dimensiones y estudios económicos disponibles. A la vez, deberá requerir formal pronunciamiento sobre la evaluación ambiental final que la SETENA exigirá para la ejecución y operación del proyecto.
+Los plazos para tales efectos serán los establecidos en la Ley Orgánica del Ambiente y en su reglamentación vigente.
