@@ -1,0 +1,1 @@
+Artículo 7° El Poder Ejecutivo adscribirá por decreto los caseríos que corresponden a los nuevos distritos conforme la cartografía del mapa básico y podrá variarles el nombre, si se presentaran conflictos toponímicos, previo informe de la comisión creada por ley N° 3535 de 3 de agosto de 1965, y se autoriza al Instituto Geográfico Nacional para interpretar los límites descritos.

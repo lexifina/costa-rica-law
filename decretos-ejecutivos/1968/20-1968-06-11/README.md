@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 20-1968-06-11
+
+Crea Distritos Peralta La Suiza y Turrialba de Cartago
+
+- Tipo: Decreto Ejecutivo
+- Número: 20
+- Fecha: 1968-06-11
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 197 del 1968-08-31
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=16779&param2=17931&param3=1 (ficha 16779)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1968-08-31 | la propia norma |
