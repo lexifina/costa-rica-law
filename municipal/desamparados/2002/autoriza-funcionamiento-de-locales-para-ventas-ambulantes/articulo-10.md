@@ -1,0 +1,1 @@
+Artículo 10.—Por derecho de funcionamiento de la actividad el permisionario cancelará un monto mensual de cinco mil colones a la Municipalidad, dicho monto será actualizado anualmente mediante el porcentaje de variación del "Salario Base" establecido en la Ley Nº 7337, artículo 2º.

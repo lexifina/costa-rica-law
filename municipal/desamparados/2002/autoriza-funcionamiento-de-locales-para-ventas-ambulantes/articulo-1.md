@@ -1,0 +1,12 @@
+Nº 4-2002.—Alcaldía Municipal.—Desamparados, a las ocho horas del día tres de diciembre de dos mil dos.
+Considerando:
+1º—Que la Ley Nº 6587 de 30 julio de 1981, faculta a las municipalidades a autorizar el funcionamiento de ventas ambulantes o estacionarias.
+2º—Que la citada Ley otorga a la Municipalidad la potestad de conceder permiso de funcionamiento cuando se demuestra por autoridad competente la minusvalía del solicitante.
+3º—Que el Reglamento de Ventas Ambulantes y Estacionarias de la Municipalidad de Desamparados, publicado en La Gaceta N° 53 del 17 de marzo de 1998, regula el funcionamiento de estas actividades
+4º—Que de conformidad a la Ley General de Caminos, Nº 5060, artículo 32, corresponde al Ministerio de Obras Públicas y Transportes la autorización del funcionamiento de establecimientos en las vías nacionales.
+5º—Que mediante oficio Nº 20024643 de 15 de octubre del 2002, de la Dirección de Ingeniería de Tránsito, Departamento de Estudios y Diseños, Unidad de Asistencia Técnica a Municipalidades del Ministerio de Obras Públicas y Transportes, suscrita por el Ing. Ronny Rodríguez Vargas, establece un conjunto de condiciones y recomendaciones que se deben tener presente para autorizar el funcionamientos de esta actividad; tales como un tamaño adecuado y que no obstaculice las aceras, asimismo que no estén en ninguna circunstancia a menos de diez metros de las esquinas.
+6º—Que en caso requerido por la Municipalidad o el MOPT para hacer alguna mejora de la vía, el local puede ser reubicado o eliminado sin responsabilidad para la administración.
+7º—Que en la misiva mencionada el Ing. Rodríguez manifiesta, que en la avenida uno no se considera conveniente ubicar este tipo de negocios y que los sectores cuatro y diez de la propuesta municipal no se consideran aptos para estas actividades. Con respecto a los demás sectores indica que siempre que se garantice la no obstrucción de las aceras, no existe inconveniente alguno.
+8º—Que mediante estudio socioeconómico elaborado por el área social de la Municipalidad, se determinó e identificó a las personas que reúnen las condiciones para ser merecedoras del otorgamiento de un puesto de venta ambulante o estacionaria. Por tanto,
+RESUELVE:
+Artículo 1º—Autorizar el funcionamiento de locales para ventas ambulantes según el diseño elaborado y ajustado por el Departamento de Catastro Municipal a los requerimientos del MOPT.
