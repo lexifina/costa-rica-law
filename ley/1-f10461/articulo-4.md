@@ -1,0 +1,1 @@
+Art. 4. Si la vacuna se desvirtuare, bien por que no resulte la verdadera en el mayor número de los vacunados, ya por la pequeñez del grano, ó por su frecuente falsificacion, se vacunarán vacas en Ia ubre, y de sus granos se tomará el fluido: los Jefes Políticos proveerán de estos animales, cada vez que el encargado Ios pida.
