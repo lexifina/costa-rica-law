@@ -1,0 +1,1 @@
+ARTÍCULO 9°.-El denunciado elegir tres de los nueve, los que por mayora calificarán de nuevo el impreso; y oyendo tres veces verbalmente al denunciante y denunciado, absolver n o condenar n, y su fallo no tendrá recurso, dejando constancia de la sentencia, explicando en ella el grado del mínimum ad máximum en la clase de delito.

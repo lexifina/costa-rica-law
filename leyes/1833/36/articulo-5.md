@@ -1,0 +1,1 @@
+ARTÍCULO 5.-Todo Ciudadano en ejercicio tiene derecho para denunciar dentro del término de treinta das, cualesquiera escrito que ataque el orden público, y este derecho es un deber en los que están encargados de conservarle.
