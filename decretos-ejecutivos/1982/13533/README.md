@@ -13,3 +13,4 @@ Reglamento Importación Temporal Vehículos Particulares (Ver Observaciones)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-05-10 | la propia norma |
+| 2 | 1982-05-10 | SINALEVI (sin norma nombrada) |
