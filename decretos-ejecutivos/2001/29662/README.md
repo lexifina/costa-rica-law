@@ -14,3 +14,4 @@ Modifica el límite al gasto presupuestario y efectivo de Sistema Nacional de Ra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-06 | la propia norma |
+| 2 | 2001-08-24 | Decreto Ejecutivo 29792 (2001-08-24) |

@@ -10,3 +10,4 @@ Considerando:
 5º—Que por lo anterior, resulta necesario modificar los límites de gasto presupuestario y efectivo fijados al SINART en el Decreto citado. Por tanto,
 DECRETAN:
 Artículo 1º—Modifícase el límite de gasto presupuestario y efectivo establecido en el artículo 1° del Decreto Ejecutivo N° 28639-H al Sistema Nacional de Radio y Televisión Cultural, fijándolo en ¢604.2 millones.
+(Modificado por el artículo 1, del Decreto Ejecutivo 29792 del 24 de agosto del 2001)
