@@ -1,0 +1,1 @@
+Artículo 5°-A toda certificación que extienda la Municipalidad para que tenga validez jurídica, se Ie debe agregar un timbre Municipal de ¢10,00, un timbre fiscal de ¢13,00, un timbre de Archivo Nacional de ¢5,00, un timbre forense de ¢1,00 y un timbre de rehabilitación de ¢1,00.
