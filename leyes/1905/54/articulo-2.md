@@ -1,0 +1,1 @@
+Artículo segundo. El Poder Ejecutivo erogará la suma a que se refiere el artículo anterior a medida que vaya necesitándose para la ejecución de la obra y siempre que se hayan previamente invertido en ella, los seis mil colones de la contribución voluntaria.
