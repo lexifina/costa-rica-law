@@ -1,0 +1,1 @@
+Artículo 17.—El Alcalde y los Vice Alcaldes pueden disfrutar el pago de la Dedicación Exclusiva por el solo hecho de ocupar sus cargos sin cumplir los requisitos que se establecen en el artículo 3 sometidos al resto de las obligaciones que se establecen en el presente Reglamento y la Ley 7794.
