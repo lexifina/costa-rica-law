@@ -13,3 +13,4 @@ Decreta Reestructuración Reorganización Consejo Seguridad Vial MOPT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-11 | la propia norma |
+| 2 | 1996-06-11 | Decreto Ejecutivo 29959 (2001-10-17) |
