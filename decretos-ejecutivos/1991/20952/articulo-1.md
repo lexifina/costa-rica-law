@@ -46,12 +46,4 @@ del
 Reglamento al C¢digo Aduanero Uniforme Centroamericano.
 DECRETAN:
 De la recepci¢n de las mercanc¡as
-ARTÖCULO 1§- Las mercanc¡as arribadas a territorio nacional,
-se
-descargan y entregar n para su recepci¢n por la aduana
-correspondiente,
-mediante el procedimiento y con los documentos que para tal
-efecto
-contempla el C¢digo Aduanero Uniforme Centroamericano y su
-reglamento.
-Del dep¢sito de las mercanc¡as
+ARTÖCULO 1§- DEROGADO por el Decreto Ejecutivo N° 25270 de 14 de junio de 1996
