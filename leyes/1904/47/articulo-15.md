@@ -1,0 +1,1 @@
+Articulo 15° Asignase la cantidad de treinta y cinco mil (¢35000) con aplicación a la Cartera de Hacienda y destinados a la compra de dos lanchas para el servicio fiscal de la costa atlántica y para la creación del nuevos Resguardos en los puntos en que el Ejecutivo crea conveniente establecerlos.
