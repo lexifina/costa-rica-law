@@ -1,0 +1,1 @@
+ARTÍCULO 8°. -El art. 239, se modifica del modo siguiente: -"Para los procedimientos de que habla el artículo anterior, es Juez competente el del lugar donde está situado el inmueble respectivo, ó el del lugar donde está radicada la quiebra; pero si se hubiese renunciado el domicilio, el acreedor podrá deducir sus acciones ante el Juez que le convenga,"
