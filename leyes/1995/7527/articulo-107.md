@@ -5,3 +5,4 @@ b) Instrumentación de un contrato con el Estado para construir una edificación
 c) Fijación del precio para cada vivienda, con base en el área útil de ocupación y el reajuste anual del precio, según el índice oficial de precios al consumidor de la Dirección General de Estadística y Censos.
 d) Aceptación de los términos, las condiciones y las especificaciones para la construcción y la reparación de las edificaciones y su uso exclusivo, mediante el arrendamiento, para vivienda de carácter social.
 e) Beneficios impositivos que se establecen en los artículos siguientes.
+(Derogado parcialmente el inciso e) en lo referente al impuesto sobre la renta, por el inciso j) del artículo 22 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
