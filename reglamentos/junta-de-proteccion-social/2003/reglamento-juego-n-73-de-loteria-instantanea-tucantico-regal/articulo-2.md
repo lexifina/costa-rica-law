@@ -1,0 +1,1 @@
+Artículo 2º—Reglas del juego: Raspe el área de juego. Si una misma cantidad aparece 3 (tres) veces, gana esa misma cantidad. Si aparece la palabra "RASPA", participa directamente en el sorteo de La Rueda de la Fortuna.
