@@ -1,0 +1,1 @@
+Artículo 3° —Las concesiones para el reconocimiento, exploración. Explotación y beneficio de los recursos minerales comprendidos dentro de los límites del Humedal se regirán por las disposiciones del Código de Minería, pero necesitará del visto bueno de la Dirección General de Vida Silvestre de previo a otorgarse.
