@@ -1,0 +1,1 @@
+Artículo 15.-El personal a que la ley se refiere queda sujeto. al Estatuto del Servicio Civil y a la Ley de Personal Docente y Administrativo vigente en lo que se refiere a regímenes de sueldos, categorías, aumentos, vacaciones, permisos, seguros, pensiones, tal como se establece para el personal de colegios profesionales oficiales.

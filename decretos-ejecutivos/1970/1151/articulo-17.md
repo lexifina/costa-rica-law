@@ -1,0 +1,1 @@
+Artículo 17.-En cuanto no esté previsto en la ley y en su presente Reglamento, seguirán las disposiciones legales o reglamentarias que regulan la actividad de colegios de la misma naturaleza que tiene el Colegio Vocacional de Artes y Oficios de Cartago.

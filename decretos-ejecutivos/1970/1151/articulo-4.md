@@ -1,0 +1,1 @@
+Artículo 4°-El Colegio Vocacional de Artes y Oficios de Cartago, deberá seguir, en sus planes y programas de enseñanza, las directrices y normas establecidas o que en el futuro establezca el Consejo Superior de Educación. El Ministerio de Educación Pública otorgará el permiso correspondiente para la enseñanza de otras materias y el ejercicio de otras actividades.

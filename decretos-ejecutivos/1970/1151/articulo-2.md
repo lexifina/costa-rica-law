@@ -1,0 +1,4 @@
+Del Pago del Personal y Material de Enseñanza
+Artículo 2°-EI Estado, a través del Ministerio de Educación Pública, asume el pago del personal docente y administrativo y del material de enseñanza del Colegio Vocacional de Artes y Oficios de Cartago. El pago del personal docente y administrativo se hará de acuerdo con la escala que establece la Ley de Carrera Docente.
+Los gastos de material de enseñanza serán pagados por el Estado de acuerdo con presupuestos ordinarios y extraordinarios que de mutuo acuerdo entre el Ministerio de Educación Pública y el Colegio Vocacional de Artes y Oficios de Cartago, se presenten a la Contraloría General de la República para su estudio y aprobación.
+No forma parte del personal a que se refiere este reglamento, el que se ocupe de actividades propias de los legados que administra la Junta Administrativa del Hospicio de Huérfanos de Cartago.

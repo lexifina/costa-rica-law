@@ -1,0 +1,1 @@
+Artículo 12. -Con excepción de lo establecido en el presente Reglamento en relación a la Junta Administrativa del Colegio Vocacional de Artes y Oficios, las disposiciones contenidas en el Título III "De las Juntas Administrativas" del Libro II (Artículos 400 a 413) del Código de Educación son aplicables a la Junta Administrativa de este Colegio.

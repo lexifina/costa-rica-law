@@ -1,0 +1,1 @@
+Artículo 11.-Lo dispuesto por el artículo 402 del Código de Educación no rige para los representantes de la familia Jiménez ante la Junta Administrativa del Hospicio de Huérfanos en lo que se refiere a la duración en el ejercicio de sus funciones.

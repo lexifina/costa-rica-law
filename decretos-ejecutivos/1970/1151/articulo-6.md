@@ -1,0 +1,2 @@
+Artículo 6°-La Junta Administrativa constará de seis miembros propietarios y cuatro suplentes. Tres de los miembros propietarios serán nombrados por la familia Jiménez y tres propietarios por la Municipalidad del cantón central de Cartago. Tanto la familia Jiménez como la Municipalidad podrán nombrar hasta dos suplentes cada una.
+Los propietarios por parte de la familia Jiménez sólo podrán ser suplidos por los suplentes designados por ésta y los propietarios por parte de la Municipalidad, solo podrán ser suplidos por suplentes designados por la Municipalidad.

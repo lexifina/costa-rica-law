@@ -1,0 +1,1 @@
+Artículo 8°- Tanto la Municipalidad como la familia Jiménez, al nombrar a sus representantes ante la Junta lo comunicarán a ésta por escrito con la indicación de si la designación es en calidad de propietarios o de suplentes. Los miembros suplentes tendrán voz y voto en todas las sesiones.
