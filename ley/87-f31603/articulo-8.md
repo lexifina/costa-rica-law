@@ -1,0 +1,1 @@
+Art 8° Reunidos y examinados de esta manera todos los documentos de censo de una Provincia, el Gobernador los sujetará a nuevo examen y los trasmitirá a la oficina de estadística con una nota en que se consigne en juicio acerca del acierto o defectos del censo.
