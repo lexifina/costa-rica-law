@@ -1,0 +1,2 @@
+De las revalorizaciones
+Artículo 9°—Anualmente la Dirección Actuarial y de Planificación Económica realizará un estudio con el fin de determinar el comportamiento del poder adquisitivo del beneficio de retiro, con el fin de revalorizar sus montos en el tanto las posibilidades financieras del fondo lo permitan. Con base en ese estudio, la Junta Directiva aprobará la correspondiente revalorización del beneficio.

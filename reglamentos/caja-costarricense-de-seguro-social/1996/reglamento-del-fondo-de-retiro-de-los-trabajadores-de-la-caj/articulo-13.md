@@ -1,0 +1,3 @@
+Disposiciones comunes de la administración
+Artículo 13.—La administración del FRE estará a cargo de la Gerencia de la División de Pensiones, la que dictará los instructivos y actos de ejecución que fueren necesarios para la correcta aplicación de este reglamento.
+En el mes de marzo de cada año, la Gerencia de División de Pensiones, presentará a la Junta Directiva de la Caja, un informe anual de la gestión administrativa y financiera del FRE . Además remitirá informes periódicos a la Junta Administrativa del Fondo de Ahorro y Préstamo, sobre la gestión administrativa y financiera del FRE , para su análisis y avaluación pertinente.

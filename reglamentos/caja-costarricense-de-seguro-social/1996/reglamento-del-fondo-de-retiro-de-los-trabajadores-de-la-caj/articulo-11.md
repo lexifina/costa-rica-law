@@ -1,0 +1,2 @@
+Del sistema de protección adicional principios básicos
+Artículo 11.—El Sistema de Protección Adicional persigue incrementar el beneficio de retiro o el capital de retiro, mediante una contribución voluntaria del servidor, que en ningún caso podrá ser menor al 1 % (uno por ciento) del salario total. Tanto el aporte como los intereses se capitalizarán en cuentas individuales, y su producto final podrá liquidarse al servidor en un solo pago o por medio de una renta vitalicia calculada actuarialmente.

@@ -1,0 +1,2 @@
+De la devolución de aportes individuales
+Artículo 12.—En caso de que un servidor se separare del sistema por voluntad propia, por despido con o sin responsabilidad patronal, o por renuncia después de haber estado afiliado durante al menos un año, tendrá derecho a la devolución de sus aportes, más los intereses acreditados. Cuando el servidor se retirare del sistema antes de cumplir el año de estar dentro de él, por el motivo que fuere, tendrá derecho a la devolución total de sus aportes, más el 90% (noventa por ciento) de los intereses que tuviere acumulados.

@@ -1,0 +1,2 @@
+Del financiamiento
+Artículo 14.—Para el financiamiento de los beneficios estipulados en el Sistema de Protección Básica, la Caja como patrono contribuirá con el 3% (tres por ciento) de la planilla total de salarios fijos de sus servidores. El Sistema de Protección Adicional se financiará con el aporte voluntario del servidor, que en ningún caso será menor del 1% (uno por ciento) del salario total.
