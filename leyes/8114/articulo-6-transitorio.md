@@ -1,0 +1,1 @@
+Transitorio VI.—Autorízase a la Administración Tributaria para que, a la entrada en vigencia de la presente Ley, proceda a aplicar, por el resto del período fiscal 2001, las reformas a la Ley de impuesto sobre la renta incluidas en el capítulo IV de la presente Ley.

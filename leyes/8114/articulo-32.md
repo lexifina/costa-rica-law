@@ -1,0 +1,6 @@
+CAPÍTULO VIII
+Vigencias
+Artículo 32.—Vigencia. Esta Ley rige a partir de su publicación, con las siguientes excepciones:
+Los capítulos I, II, III y V, así como las reformas y adiciones contenidas en los artículos 19 y 21 de esta Ley, a los artículos 23, 32, 33, 34, 42 y 60 de la Ley del impuesto sobre la renta, Nº 7092, de 21 de abril de 1988 y sus reformas y el artículo 20 de esta Ley, regirán a partir del primer día del mes siguiente a la publicación de esta Ley.
+Las reformas y adiciones contenidas en los artículos 19 y 21 de esta Ley a los artículos 2, 6, 8, 15, 20, 21, 22, 73 y 74 de la Ley del impuesto sobre la renta, Nº 7092, de 21 de abril de 1988, y sus reformas, así como el artículo 22 de esta Ley regirán a partir del período fiscal siguiente a la publicación de esta Ley.
+La adición del artículo 61 bis a la Ley de impuesto sobre la renta, N° 7092, de 21 de abril de 1988, y sus reformas, contenida en el artículo 21 de esta Ley entrará a regir a partir de su publicación. Durante el primer año de vigencia de esta Ley, los impuestos referidos en el artículo 61 bis de la Ley de impuesto sobre la renta, Nº 7092, de 21 de abril de 1988, y sus reformas, deberán pagarse en forma proporcional al tiempo que reste entre la fecha de publicación y el final del período fiscal correspondiente.

@@ -1,0 +1,1 @@
+Transitorio II.—La primera actualización de los impuestos establecidos en los capítulos I y II de esta Ley, deberá realizarse de conformidad con el índice de precios al consumidor, determinado por el Instituto Nacional de Estadística y Censos tomando como punto de partida el mes de noviembre de 2000.

@@ -1,0 +1,1 @@
+Artículo 13.—Ubicación del impuesto. El impuesto creado en el artículo 9 de esta Ley deberá calcularse antes del impuesto establecido a favor del Instituto de Desarrollo Agrario y del impuesto general sobre las ventas, creado por la Ley Nº 6826, de 8 de noviembre de 1982, y sus reformas, de cuyas bases imponibles formará parte.

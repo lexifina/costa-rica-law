@@ -1,0 +1,1 @@
+Transitorio III.—Las personas físicas o jurídicas que, de conformidad con el artículo 28 de esta Ley, se dediquen a la actividad gravada por este impuesto y a la fecha se encuentren en operación, deberán cancelar el impuesto respectivo, dentro de los quince días naturales siguientes a la vigencia de la presente Ley.

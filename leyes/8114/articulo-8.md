@@ -1,0 +1,1 @@
+Artículo 8º—Derogación. Derógase la contribución especial del quince por ciento (15%) a favor del Consejo Nacional de Vialidad (CONAVI), establecida en el inciso a) del artículo 20, así como en el artículo 32, ambos de la Ley Nº 7798, de 30 de abril de 1998.

@@ -1,0 +1,1 @@
+Artículo 20.—Adición al nombre del título II de la Ley Nº 7092. Adiciónase al nombre del título II de la Ley del impuesto sobre la renta, Nº 7092, de 21 de abril de 1988, y sus reformas, la frase "u otras remuneraciones por servicios personales".
