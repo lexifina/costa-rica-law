@@ -1,0 +1,1 @@
+Art 18° Tanto los expendedores de Licor como los de Tabaco, deben proveerse de sus medidas, balanzas y pesas, y presentarlas a la Administración para que sean contrastadas. Las medidas y pesas serán fraccionadas conforme lo están actualmente en las ventas que el Gobierno tiene el menudeo.

@@ -1,0 +1,1 @@
+Art 19° Las patentes para venta al menudeo de Licores extranjeros, vinos y cervezas, serán extendidas en lo sucesivo por la Subsecretaría de Hacienda, con presencia de la certificación en que conste haber sido satisfecho los correspondientes derechos en la Administración Principal.

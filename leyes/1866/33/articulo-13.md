@@ -1,0 +1,1 @@
+Art 13° A los compradores de Tabaco o Licor parra expendido fuera del radio de una legua de esta ciudad, se les abonará el flete a razón de diez centavos la legua por cada cien libras de Tabaco, y de quince centavos por cada cien botellas de Licor.
