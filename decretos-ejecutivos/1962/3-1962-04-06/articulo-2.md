@@ -1,0 +1,1 @@
+Artículo 2°-Aplicará métodos acordes con el tipo de experiencia que realiza y las modernas técnicas pedagógicas y científicas más recomendables y cumplirá una tarea de orientación significativa para los educandos y para la comunidad, previa la aprobación del Consejo Superior de Educación.

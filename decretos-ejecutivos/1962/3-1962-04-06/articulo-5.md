@@ -1,0 +1,1 @@
+Artículo 5°-Aplicará sistemas de administración y organización propios de este tipo de institución y por normas que serán establecidas de mutuo acuerdo entre el Director General de Segunda Enseñanza y el Director del Liceo José Joaquín Vargas Calvo, siempre dentro de lo que establecen las leyes y reglamentos de la Enseñanza Media.

@@ -1,0 +1,1 @@
+Artículo 9°-Este decreto modifica los artículos 1° y 2° del Decreto Ejecutivo N° 5 del seis de diciembre de mil novecientos cincuenta y uno, publicado en "La Gaceta" Nº 283 del 14 de diciembre de ese mismo año.
