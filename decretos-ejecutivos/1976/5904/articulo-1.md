@@ -3,19 +3,19 @@ PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE GOBERNACIÓN POLICÍA, JUSTICIA Y GRACIA,
 Con fundamento en los incisos 3) y 18) del artículo 140 de la Constitución Política y ley N° 5251 de 11 de julio de 1973, y
 Considerando:
-1°—Que la población indígena de Costa Rica está gravemente amenazada en su existencia por un despojo continuo y arbitrario de sus tierras y que este fenómeno se acentuó de manera alarmante en los últimos años, llegando hasta actos de violencia.
-2°—Que el despojo se hizo posible por el hecho de que los indígenas no tienen ningún respaldo legal de propiedad de las tierras que ellos ocupan desde tiempos inmemoriales.
-3°—Que por otra parte, los indígenas han demostrado no poder contener por sí solos la invasión de sus tierras.
-4°—Que por las razones anteriores los indígenas han venido solicitando desde hace mucho tiempo la creación o la legalización de Reservas inalienables y el reconocimiento de su derecho a la garantía de la tierra.
-5°—Que aún existen territorios poblados exclusivamente por indígenas haciendo posible la delimitación de dichas Reservas.
-6°—Que la Cultura y la organización social de los indígenas son profundamente diferentes de las de los no indígenas, por lo que merecen ser respaldadas.
-7°—Que los métodos agrícolas de los indígenas son menos destructivos de los bosques que los de los no indígenas, permitiendo así una mejor protección de las cuencas hidrográficas, sobre todo en zonas de topografía accidentada; y que por otra parte, es obligación del Estado asegurar que los terrenos de vocación forestal permanezcan siempre con su cobertura de bosques.
-8°—Que los indígenas son explotados inmisericordemente y llevados al alcoholismo por las pulperías y cantinas respectivamente, establecidas a ese fin en sus territorios por no indígenas.
-9°—El desarrollo de la zona del Pacífico Sur, tuvo como consecuencia desastrosa la espoliación casi total de los indígenas, por falta de legislación y medidas adecuadas. Lo mismo que ocurre actualmente con las zonas indígenas de la región Atlántica y de Coto Brus donde ni siquiera existe legislación al respecto.
-10.—Que es de deber del Estado vigilar la seguridad de sus ciudadanos, e impedir las injusticias y malos tratos, especialmente en el caso de minorías indígenas actualmente marginadas.
+1°-Que la población indígena de Costa Rica está gravemente amenazada en su existencia por un despojo continuo y arbitrario de sus tierras y que este fenómeno se acentuó de manera alarmante en los últimos años, llegando hasta actos de violencia.
+2°-Que el despojo se hizo posible por el hecho de que los indígenas no tienen ningún respaldo legal de propiedad de las tierras que ellos ocupan desde tiempos inmemoriales.
+3°-Que por otra parte, los indígenas han demostrado no poder contener por sí solos la invasión de sus tierras.
+4°-Que por las razones anteriores los indígenas han venido solicitando desde hace mucho tiempo la creación o la legalización de Reservas inalienables y el reconocimiento de su derecho a la garantía de la tierra.
+5°-Que aún existen territorios poblados exclusivamente por indígenas haciendo posible la delimitación de dichas Reservas.
+6°-Que la Cultura y la organización social de los indígenas son profundamente diferentes de las de los no indígenas, por lo que merecen ser respaldadas.
+7°-Que los métodos agrícolas de los indígenas son menos destructivos de los bosques que los de los no indígenas, permitiendo así una mejor protección de las cuencas hidrográficas, sobre todo en zonas de topografía accidentada; y que por otra parte, es obligación del Estado asegurar que los terrenos de vocación forestal permanezcan siempre con su cobertura de bosques.
+8°-Que los indígenas son explotados inmisericordemente y llevados al alcoholismo por las pulperías y cantinas respectivamente, establecidas a ese fin en sus territorios por no indígenas.
+9°-El desarrollo de la zona del Pacífico Sur, tuvo como consecuencia desastrosa la espoliación casi total de los indígenas, por falta de legislación y medidas adecuadas. Lo mismo que ocurre actualmente con las zonas indígenas de la región Atlántica y de Coto Brus donde ni siquiera existe legislación al respecto.
+10.-Que es de deber del Estado vigilar la seguridad de sus ciudadanos, e impedir las injusticias y malos tratos, especialmente en el caso de minorías indígenas actualmente marginadas.
 Por tanto,
 DECRETAN:
-Artículo 1°—Establécese las Reservas Indígenas de Chirripó, Estrella, Guatuso, Guaymi y Talamanca, que comprenden los territorios ubicados dentro de las demarcaciones explicadas a continuación:
+Artículo 1°-Establécese las Reservas Indígenas de Chirripó, Estrella, Guatuso, Guaymi y Talamanca, que comprenden los territorios ubicados dentro de las demarcaciones explicadas a continuación:
 RESERVA INDÍGENA DE CHIRRIPÓ
 La Reserva Indígena de Chirripó, se encuentra en las hojas del Instituto Geográfico Nacional, Barbilla 3545-IV, Río Banano 3545-I, Matama 3544-IV, Chirripó 3545-III, Pejibaye 3445-II y Cuerici 3444-I, escala 1 : 50.000.
 La Reserva se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
@@ -101,8 +101,9 @@ S 05 43 W | 502,49 | 218 000 | 606 300
 S 85 02 E | 4 617,36 | 217 600 | 610 900
 Este último punto, es el inicio de la presente descripción.
 ÁREA DE LA RESERVA 59,037 Ha, 5 138 metros cuadrados.
-Además, la Reserva de Chirripó incluirá, como anexo administrativo, la "Reserva Indígena de Río Peje de Pacuare"*, su delimitación exacta será efectuada por el ITCO, en coordinación con la CONAI.
+Además, la Reserva de Chirripó incluirá, como anexo administrativo, la "Reserva Indígena de Nimari-Bukeri"."*(**), su delimitación exacta será efectuada por el ITCO, en coordinación con la CONAI.
 (Así reformado los linderos de la Reserva Indígena de Chirripó anterior por el artículo 2° del decreto ejecutivo N° 6036 del 26 de mayo de 1976)
+(**) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 7267 del 9 de agosto de 1976. Anteriormente se indicaba: "Reserva Indígena de Río Peje de Pacuare")
 RESERVA INDÍGENA DE GUAYMI DE COTO BRUS
 La Reserva Indígena de Guaymi de Coto Brus se encuentra en las hojas del Instituto Geográfico Nacional escala 1: 50.000, Coto Brus 3542-1 y Piedras Blancas 3542-II.
 La Reserva se localiza por los puntos, cuyos rumbos, distancias y coordenadas son: Vértice Anguciana N 307 230 y E 556 662.
@@ -186,7 +187,7 @@ De este punto se sigue aguas arriba por la quebrada Sarpueri hasta el punto de o
 RESERVA INDÍGENA DE GUATUSO
 La Reserva Indígena de Guatuso se encuentra en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Guatuso 3248 III y Arenal 3247 IV.
 La Reserva se localiza partiendo de un punto de coordenadas N 298 700, E 448 050, sigue, aguas arriba por el río La Muerte hasta un punto de coordenadas N 294 000, E 451 850, se continua con rumbo SW hasta un punto de coordenadas N 293 000, E 450 850, sigue aguas arriba por el río Cucaracha, hasta la unión de sus dos nacientes en coordenadas N 288 525 y E 451 650. Continua aguas arriba por una de estas nacientes hasta un punto de coordenadas N 286 725 y E 448 900.
-A partir de este punto la parcela está delimitada por los puntos cuyos rumbos,’ distancias y coordenadas son :
+A partir de este punto la parcela está delimitada por los puntos cuyos rumbos,' distancias y coordenadas son :
 S 43 40 W | 760.00 m. | 286 175 | 448 375
 N Franco | 1425.00 m. | 287 600 | 448 375
 N 36 52 E | 875.00 m. | 288 300 | 448 900
@@ -319,3 +320,62 @@ S 53 48 W | 1 080 | 385 525 | 536 775
 De este punto basta el punto de origen de la presente descripción, en coordenadas N 384 650 y E 532 300.
 ÁREA DE LA RESERVA: 9 187 Ha, 2 812 metros cuadrados.
 (Así adicionada la Reserva Indígena Telire anterior por el artículo 7° del decreto ejecutivo N° 6036 del 26 de mayo de 1976)
+Establécese la Reserva Indígena de Nimari-Bukeri:
+RESERVA INDÍGENA DE NIMARI-BUKERI
+La Reserva Indígena de Nimari-Bukeri se encuentra en las hojas del Instituto Geográfico Nacional, escala 1: 50 000, Barbilla 3545 IV y Tucurrique 34451 y se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
+N 13 38 E | 1 697.79 | 209 700 | 590 425
+N 37 23 W | 2 265.09 | 211 500 | 589 050
+N 37 05 E | 1 078.01 | 212 360 | 589 700
+N 02 21 E | 1 216.03 | 213 575 | 589 750
+N 71 13 E | 1 320.27 | 214 000 | 591 000
+N Franco | 1 000.00 | 215 000 | 591 000
+E Franco | 3 000.00 | 215 000 | 594 000
+S Franco | 940.00 | 214 060 | 594 000
+De este punto se sigue aguas abajo por la Quebrada Olomina, hasta su unión con el río Barbilla, en coordenadas N 212 890, E 596 450, se continúa aguas arriba por el río Barbilla hasta su naciente en coordenadas N 206 240, E 598 500. Se continúa con rumbo S 32° 06 E y una distancia de 1 552,37 metros, al río Moravis en coordenadas N 204 925, E 599 325, se sigue aguas arriba por el río Moravia hasta la unión con la quebrada Platanillo, en coordenadas N 203 390, E 600. De este punto se sigue con los siguientes rumbos, distancias y coordenadas:
+N 89 31 W | 1 200.04 | 203 400 | 598 800
+N 62 52 W | 898.94 | 203 810 | 598 000
+N 05 14 W | 1 646.85 | 205 450 | 597 850
+De este punto se sigue aguas arriba por el río Bohemia o Escobal hasta el punto de coordenadas N 205 100, E 595 725. Se sigue luego con los siguiente rumbos, distancias y coordenadas:
+W Franco | 725.00 | 205 100 | 595 000
+S 57 48 W | 1 595.31 | 204 250 | 593 650
+Se continúa aguas abajo por el río Peje hasta un punto de coordenadas N 203 950, E 592 750. De este punto se sigue con los siguientes rumbos, distancias y coordenadas:
+S 61 49 W | 1 588.24 | 203 200 | 591 350
+N 28 31 W | 523.55 | 203 660 | 591 100
+N 37 44 W | 1 062.12 | 204 500 | 590 450
+S 77 28 W | 460.98 | 204 400 | 590 000
+Se sigue aguas abajo por la Quebrada Jamari hasta su unión con el río Pacuare en coordenadas N 204 840, E 588 900. Se continúa aguas abajo por el río Pacuare hasta el punto de origen de la presente descripción en coordenadas N 207 E 589 000.
+Área de la Reserva: 7 439 Ha. 6 875 m2.
+(Así adicionada la Reserva Indígena de Nimari-Bukeri anterior por el artículo 2° del decreto ejecutivo N° 7267 del 9 de agosto de 1977. Posteriormente mediante el numeral 5° del decreto ejecutivo antes indicado, se estableció que la Reserva Indígena de Nimari-Bukeri es parte integrante de la Reserva Indígena de Chirripó y sus representantes serán integrados a la admiración de dicha Reserva; la Reserva será inscrita en el Registro de la Propiedad nombre de la misma comunidad indígena cabecar de Chirripó, pero como finca distinta (finca 2 Chirripó).
+RESERVA INDÍGENA DE-COCLES
+Esta Reserva se encuentra en las hojas del Instituto Geográfico Nacional Amubri 3644 TV y Sixaola 3644 I, y se localiza por los puntos cuyos rumbos, anclas y coordenadas son:
+S Franco | 1 225.00 | 398 100 | 604 150
+S 32 32 W | 1 097.14 | 397 175 | 603 560
+S 15 20 E | 907.32 | 396 300 | 603 800
+S 47 39 E | 1 150.27 | '395 525 | 604 650
+S Franco | 525.00 | 395 000 | 604 650
+W Franco | 550.00 | 395 000 | 604 100
+S 35 00 W | 1 220.66 | 394 000 | 603 400
+N 64 14 W | 1 610.12 | 394 700 | 601 950
+N 32 23 W | 1 213.72 | 395 725 | 601 300
+N Franco | 550.00 | 396 275 | 601 300
+N 48 01 W | 1 009.02 | 396 950 | 600 550
+S 59 02 W | 874.64 | 396 500 | 599 800
+S 05 43 W | 251.25 | 396 250 | 599 775
+S 68 26 W | 1 155.96 | 395 825 | 598 700
+N 88 56 W | 1 350.23 | 395 850 | 597 350
+N 71 49 W | 1 842.04 | 396 425 | 595 600
+N 46 12 W | 1 350.87 | 397 360 | 594 625
+N 33 26 E | 317.57 | 397 625 | 594 800
+N 47 07 E | 477.62 | 397 950 | 595 150
+N 18 26 W | 632.46 | 398 550 | 594 950
+N 48 01 E | 1 479.90 | 399 540 | 596 050
+S 87 05 E | 1 276.66 | 399 475 | 597 325
+N 02 39 E | 325.35 | 399 800 | 597 340
+S 77 55 E | 1 672.04 | 399 450 | 598 975
+N 30 58 E | 291.55 | 399 700 | 599 125
+N 85 48 E | 1 704.59 | 399 825 | 600 825
+S 78 41 E | 637.38 | 399 700 | 601 450
+N 42 48 E | 735.93 | 400 240 | 601 950
+De este punto, por la orilla de la playa, al punto de origen de la presente descripción en coordenadas N 399 325, E 604 150.
+Área de la Reserva: 3 538 Ha. 0 750 m2.
+(Así adicionada la Reserva Indígena De Cocles anterior por el artículo 3° del decreto ejecutivo N° 7267 del 9 de agosto de 1977. Posteriormente mediante el numeral 6° del decreto ejecutivo antes indicado, se estableció que la Reserva Indígena de Cocles es parte integrante de la Reserva Indígena de Talamanca y sus representantes serán integrados a la administración de dicha Reserva; la Reserva será inscrita en el Registro de la Propiedad a nombre de la misma comunidad indígena de Talamanca, pero como finca distinta (finca 2 Talamanca).)
