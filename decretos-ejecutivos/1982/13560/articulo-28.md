@@ -1,1 +1,0 @@
-Artículo 28.—Los honorarios por la acción civil resarcitoria son independientes de los correspondientes a la tramitación de la causa penal. El abogado cobrará honorarios por esta acción, de conformidad con el artículo 7°, pero podrá contratar con su cliente suma mayor siempre y cuando lo haga por escrito.

@@ -1,1 +1,0 @@
-Artículo 64.—El Colegio de Abogados, para efectos de la percepción de estos fondos, está obligado a emitir los timbres respectivos y podrá venderlos por medio de los bancos del Estado y conceder descuentos hasta el 6% en ventas mayores de ¢100,00.

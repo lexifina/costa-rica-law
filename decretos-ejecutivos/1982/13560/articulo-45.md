@@ -1,1 +1,0 @@
-Artículo 45.—Los honorarios de notario, en el caso de escrituras inscribibles, además de su redacción, comprenden los trámites necesarios para que el documento que no tenga defectos atribuibles al notario quede inscrito en el registro respectivo.

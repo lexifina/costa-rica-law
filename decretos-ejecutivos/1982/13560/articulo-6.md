@@ -1,3 +1,0 @@
-Artículo 6°—El abogado no podrá cobrar menor cantidad por honorarios que la señalada en este arancel. Los tribunales tampoco podrán fijar sumas inferiores a las que aquí se señalan.
-La violación de la prohibición establecida en este artículo será sancionada por la Junta Directiva del Colegio de Abogados, de conformidad con las disposiciones legales y vigentes.
-Como excepción a lo aquí dispuesto, el abogado podrá no cobrar honorarios. si lo hiciere en forma total y de manera expresa, o cuando se trate de ascendientes, descendientes o parientes colaterales, consanguíneos o afines, hasta tercer grado, o si el cliente fuere un colega. No estarán sujetos a lo aquí establecido, los profesionales que presten servicios a sus clientes por un sueldo fijo.

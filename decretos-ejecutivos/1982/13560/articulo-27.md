@@ -1,1 +1,0 @@
-Artículo 27.—En toda causa penal el abogado y su cliente podrán convenir sumas mayores a las mínimas establecidas siempre y cuando ese convenio se consigne por escrito. En ese contrato se fijarán las condiciones en las que se prestará el servicio y se determinará si los honorarios convenidos se aumentarán, en el supuesto de que fuere necesario establecer recursos extraordinarios.
