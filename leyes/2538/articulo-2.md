@@ -1,0 +1,10 @@
+Artículo 2º.- El Banco Central de Costa Rica, de acuerdo con la ley
+número 55 de 24 de diciembre de 1945 y sus reformas y con su propia Ley
+Orgánica, efectuará las suscripciones correspondientes y realizará su
+pago, a nombre del Gobierno de la República y de conformidad con los
+convenios internacionales existentes.
+Los aumentos autorizados por esta ley los pagará el Banco con fondos
+propios y por consiguiente los mantendrá, al igual que las aportaciones
+actuales, como un activo suyo, aunque la participación en el Fondo
+Monetario Internacional y las acciones en el Banco Internacional de
+Reconstrucción y Fomento aparezcan a nombre del Gobierno de la República.
