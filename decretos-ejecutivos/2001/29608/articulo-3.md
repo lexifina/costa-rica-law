@@ -1,0 +1,3 @@
+Artículo 3º—Este decreto se comunicará a los gobiernos centroamericanos y a la Secretaría de Integración Económica Centroamericana (SIECA), a efecto de dar cumplimiento con lo dispuesto en el Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.
+Dado en la Presidencia de la República.—San José, a los dieciocho días del mes de junio del año dos mil uno.
+Publíquese.—MIGUEL ÁNGEL RODRÍGUEZ ECHEVERRÍA.—Los Ministros de Comercio Exterior y de Economía, F. Tomás Dueñas, de Economía, Industria y Comercio, Gilberto Barrantes Rodríguez y de Agricultura y Ganadería, Alberto Dent Zeledón.—1 vez.—(Solicitud Nº 43914).—C-7720.—(D29608-43973).
