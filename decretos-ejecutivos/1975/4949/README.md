@@ -14,3 +14,4 @@ Faculta a la Dirección General Servicio Civil para valorar y reasignar puestos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-06-26 | la propia norma |
+| 2 | 1976-02-04 | Decreto Ejecutivo 5719 (1976-02-04) |
