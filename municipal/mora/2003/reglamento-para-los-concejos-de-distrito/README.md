@@ -14,3 +14,4 @@ Reglamento para los concejos de distrito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-29 | la propia norma |
+| 2 | 2004-04-26 | Reglamento municipal 137 (2004-04-26) |

@@ -1,5 +1,5 @@
 Artículo 35.—Son causales para perder la calidad de miembro del Concejo de Distrito las siguientes:
-a. La ausencia injustificada a las sesiones del Consejo de Distrito por más de dos meses consecutivos.
+a. (DEROGADO, por acuerdo tomado en sesión N° 137 de 26 de abril de 2004).
 b. Trasladar su domicilio fuera del distrito.
 c. Estar inhabilitado por sentencia judicial para el ejercicio de cargos públicos o derechos civiles o tener en contra auto de procesamiento o condena por delitos contra la Hacienda Pública.
 d. Padecer enfermedad que lo incapacite permanentemente para el ejercicio del cargo.
