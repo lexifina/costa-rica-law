@@ -1,0 +1,1 @@
+Artículo 3º.- Para las elecciones que hayan de efectuarse el año próximo entrante, mantiénese la vigencia de la disposición transitoria distinguida con el número III en el Código Electoral (ley Nº 1536 de 10 de diciembre de 1952).
