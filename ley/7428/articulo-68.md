@@ -1,0 +1,34 @@
+ARTICULO 68.- POTESTAD PARA ORDENAR Y RECOMENDAR SANCIONES
+La Contraloría General de la República, sin perjuicio de otras
+sanciones previstas por ley, cuando en el ejercicio de sus potestades
+determine que un servidor de los sujetos pasivos ha cometido infracciones
+a las normas que integran el ordenamiento de control y fiscalización
+contemplado en esta Ley o ha provocado lesión a la Hacienda Pública,
+recomendará al órgano o autoridad administrativa competente, mediante su
+criterio técnico, que es vinculante, la aplicación de la sanción
+correspondiente de acuerdo con el mérito del caso. La Contraloría formará
+expediente contra el eventual infractor, garantizándole, en todo momento,
+un proceso debido y la oportunidad suficiente de audiencia y de defensa en
+su favor.
+La autoridad competente del sujeto pasivo requerido deberá cumplir,
+dentro del plazo que le establezca la Contraloría, con la recomendación
+impartida por esta; salvo que, dentro del término de ocho días hábiles
+contados a partir de la comunicación del acto, se interponga una gestión
+de revisión, debidamente motivada y razonada, por parte del jerarca del
+sujeto pasivo requerido. En este caso y una vez resuelta la gestión
+indicada, deberá cumplir, sin dilación, con lo dispuesto en el
+pronunciamiento técnico jurídico final de la Contraloría, so pena de
+incurrir en el delito de desobediencia, sin perjuicio del régimen de
+prescripciones contemplado en esta Ley.
+La expiración del plazo fijado por la Contraloría General de la
+República para que el sujeto pasivo imponga la sanción ordenada, no hará
+prescribir, por sí, la responsabilidad del servidor ni caducar el derecho
+del sujeto pasivo a imponer dicha sanción, sin perjuicio del régimen de
+prescripciones contemplado en esta Ley.
+El derecho de la Contraloría General de la República a ejercer, en el
+caso concreto, la potestad para recomendar u ordenar la aplicación de
+sanciones prescribirá en el término de dos años contados a partir de la
+iniciación del expediente respectivo.
+El inicio del expediente se entenderá con la orden de la oficina
+competente de la Contraloría para comenzar la investigación del caso, en
+relación con determinados servidores.

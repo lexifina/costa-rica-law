@@ -1,0 +1,8 @@
+ARTICULO 27.- CONTRATACION DE AUDITORIAS EXTERNAS
+En casos de especial necesidad, los sujetos pasivos del control
+podrán contratar y la Contraloría General de la República podrá ordenar
+que se contraten, auditorías externas, que esta podrá supervisar y cuyo
+costo correrá por cuenta del respectivo sujeto pasivo. Si este no cuenta
+con el contenido presupuestario correspondiente, inmediatamente después de
+la comunicación de la Contraloría, deberá incluir, en su presupuesto, el
+monto estimado de la contratación.
