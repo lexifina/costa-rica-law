@@ -1,0 +1,1 @@
+Art 16° En vez de lo prescrito en el artículo 10 del Reglamento de 28 de julio de 1871, se limitarán los telegrafistas, a tomar nota en un libro, del número de palabras de cada parte que se reciba, y de su valor, y en libro diferente, del número de palabras de cada parte que se trasmita y de su importe.

@@ -1,0 +1,2 @@
+Art 13° Siendo de suma importancia garantizar del modo más eficaz el secreto de las transmisiones telegráficas, los empleados en este servicio, prestarán juramento de cumplir fielmente con las prescripciones del artículo 8° del citado Reglamento, y de no tomar conocimiento, bajo ningún pretexto, de las partes que no sean dirigidos a sus respectivas oficinas.
+Único. - Este juramento será recibido en esta capital, por el Director General del Telégrafo, y en las otras provincias, por los Administradores de correos.

@@ -1,0 +1,1 @@
+Art 9° A mayor distancia de mil varas de radio del centro de las poblaciones, los telegramas serán comunicados, mediante el pago previo al portador por la persona a quien vengan dirigidos de veinticinco centavos, que corresponderá a dicho portador.

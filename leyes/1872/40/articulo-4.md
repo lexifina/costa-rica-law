@@ -1,0 +1,2 @@
+Art 4° Todas las oficinas del Telégrafo deberán estar constantemente abiertas al servicio público, desde las seis de la mañana, hasta las ocho de la noche, alternándose de tal modo, que el servicio no sea interrumpido a ninguna de estas horas.
+Único: Exceptúense los Domingos y días de guarda, en los cuales se cerrarán las oficinas a las dos de la tarde, debiendo, sin embargo, reunirse en ellas de las seis a las seis y media, todos sea empleados para el servicio que ocurriere.

@@ -1,0 +1,1 @@
+Art 8° Cuando no se encuentre la persona a quien sea dirigido un parte, se entregará este en la Administración de correos, donde se fijará una lista sin perjuicio de lo dispuesto en el final del artículo 7° del Reglamento de 28 de julio de 1871.
