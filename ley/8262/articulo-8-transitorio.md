@@ -1,0 +1,1 @@
+Transitorio VIII.—El Consejo Asesor de las PYMES, de conformidad con el artículo 4 de la presente Ley, será integrado en un plazo máximo de noventa días contados a partir de la publicación de esta Ley; el Reglamento que regulará la organización y el funcionamiento del Consejo deberá ser dictado en el plazo de tres meses a partir de su integración.
