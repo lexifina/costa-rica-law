@@ -1,3 +1,0 @@
-Artículo 7º.- La Junta de Protección Social podrá acoger la solicitud de cuotas que hagan interesados comprendidos en el artículo anterior y siguiendo las prioridades del mismo, cuando estas solicitudes se ajusten a los términos establecidos en ese artículo y garanticen a juicio de la Junta, estabilidad y regularidad en el retiro de esas cuotas.
-En estos casos, la Junta podrá adjudicar esas cuotas reduciendo proporcionalmente las asignadas a compradores directos o que conjuntamente con socios o parientes tengan más de trescientos billetes.
-Para efectos de determinar los compradores directos de más de trescientos billetes a los fines de este artículo, se considerará la lista existente al 1º de octubre del 1966.

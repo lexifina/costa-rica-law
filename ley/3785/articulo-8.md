@@ -1,1 +1,0 @@
-Artículo 8º.- Cuando hubiere disminución del número de billetes de loterías, la rebaja se hará proporcionalmente dentro de los grupos de clientes mayores de cincuenta billetes, no pudiendo en ningún caso rebajar las cuotas de las loterías de los clientes que tengan adjudicaciones menores de esa cantidad.

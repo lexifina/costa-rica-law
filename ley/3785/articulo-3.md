@@ -1,1 +1,0 @@
-Artículo 3º.- La Junta de Protección Social estará obligada a publicar trimestralmente en el Diario Oficial, la lista de las personas a quienes les tenga adjudicadas cuotas de loterías, con indicación del monto de dichas cuotas y su lugar de expendio.
