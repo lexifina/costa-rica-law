@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-Se reduce á un mes el término de dos meses señalado en el artículo 104 del Código Fiscal para el libre bodegaje de las mercaderías gravadas con derechos aduaneros, y á diez días el de aquellas que estuvieren exentas de tales derechos.

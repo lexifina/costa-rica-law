@@ -1,0 +1,1 @@
+ARTÍCULO 7°.-Los inspectores de aduanas, que se nombren, tendrán fuera de las demás atribuciones reglamentarias que les señale el Poder Ejecutivo, la de instruir sumarias relativas á delitos fiscales.
