@@ -1,1 +1,0 @@
-Artículo 4°-La Comisión Nacional de Políticas de Población podrá sesionar con la presencia de cuatro de sus miembros y tomará sus acuerdos o resoluciones por mayoría absoluta de votos de los miembros presentes. La Comisión establecerá sus propios procedimientos y normas de trabajo.
