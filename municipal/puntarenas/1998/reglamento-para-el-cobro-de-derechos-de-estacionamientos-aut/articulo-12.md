@@ -1,0 +1,1 @@
+Artículo 12.-Cuando el conductor retire su vehículo antes de vencerse el tiempo registrado por el cual pagó, podrá aparcar en cualquier zona demarcada para estacionamiento siempre que el mismo no se haya vencido.

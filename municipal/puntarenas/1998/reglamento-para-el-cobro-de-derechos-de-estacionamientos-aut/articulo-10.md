@@ -1,0 +1,1 @@
+Artículo 10.-Los usuarios podrán ocupar los lugares. de, estacionamientos por el tiempo que hayan pagado y que así se indique en la tarjeta, podrá prolongarlo mediante la colocación de otras tarjetas cuyo fin del periodo coincida con el inicio de la otra.

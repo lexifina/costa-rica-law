@@ -1,0 +1,1 @@
+Artículo 3°-Para efectos del cobro del impuesto se divide el cantón central de Puntarenas en zona céntrica y zona no céntrica. La zona céntrica estará comprendida entre toda la zona comercial, y la zona no céntrica será el área residencial del distrito hasta los límites de la ciudad.

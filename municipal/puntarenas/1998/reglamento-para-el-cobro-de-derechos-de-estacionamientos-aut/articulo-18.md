@@ -1,0 +1,1 @@
+Artículo 18.-Queda terminantemente prohibido en las zonas demarcadas pasa estacionamiento autorizado, estacionar vehículos que no tengan placas de circulación. Todo vehículo que no porte la placa correspondiente, podrá ser retirado por las autoridades de tránsito a solicitud de la Municipalidad o del respectivo agente autorizado.

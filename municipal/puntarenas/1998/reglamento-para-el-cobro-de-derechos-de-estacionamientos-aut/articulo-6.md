@@ -1,0 +1,1 @@
+Artículo 6°-La regulación de los horarios para el funcionamiento y uso de zonas de aparcamiento, corresponderá fijarlas al Alcalde Municipal. Para la aplicación de este reglamento queda autorizado un horario de 7,00 a. m., de la mañana a 6,00 p. m., de la noche. Se exceptúan de esta regulación los días domingo, feriados por ley y fiesta nacional.

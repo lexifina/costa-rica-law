@@ -1,0 +1,1 @@
+Artículo 2°-A cada zona de estacionamiento se le demarcará claramente el área dentro de la cual deberán aparcar los vehículos, las cuales no podrán ser menores de cinco metros ni mayores de siete metros de largo por dos metros de ancho.

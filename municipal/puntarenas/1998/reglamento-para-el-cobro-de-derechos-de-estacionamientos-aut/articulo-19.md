@@ -1,0 +1,1 @@
+Artículo 19.-Pasa el mejor cumplimiento de esta Ley, la Municipalidad y la Dirección General de Tránsito tomarán las medidas pertinentes en estrecha y efectiva colaboración y sus delegados estarán en vestidos de autoridad para lo que atañe a sus actuaciones oficiales al respecto.
