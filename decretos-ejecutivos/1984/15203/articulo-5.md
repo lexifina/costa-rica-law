@@ -1,3 +1,2 @@
-Artículo 5º.—Para la explotación de los llamados servicios especiales, deberá utilizarse únicamente los vehículos autorizados por la Dirección General de Transporte Automotor, basado en la siguiente clasificación:
-a) Microbuses: capacidad mínima 10 personas. Capacidad máxima 29 personas.
-b) Autobuses: capacidad de 30 personas en adelante.
+Artículo 5º.—Para la explotación de los servicios especiales, deberá utilizarse únicamente los vehículos autorizados por la Dirección General de Transporte Automotor, los cuales no podrán tener, en ningún caso, una capacidad inferior a veinticinco pasajeros o un modelo inferior a diez años del año siguiente, salvo que la revisión técnica determinare cosa contraria en forma fehaciente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 20141 del 14 de diciembre de 1990)

@@ -14,3 +14,4 @@ Reglamento para la Explotación de Servicios Especiales de Transporte Automotor 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-02-22 | la propia norma |
+| 2 | 1990-12-14 | Decreto Ejecutivo 20141 (1990-12-14) |

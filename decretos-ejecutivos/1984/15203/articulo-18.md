@@ -1,1 +1,2 @@
-Artículo 18.—Los permisos para servicios especiales, únicamente serán otorgados si se cumplen en un todo y en forma estricta, las anteriores disposiciones.
+Artículo 18.—Los permisos para servicios especiales únicamente serán otorgados si se cumplen en un todo y en forma estricta las anteriores disposiciones; y pueden ser cancelados si se comprueba algún incumplimiento de las disposiciones y condiciones con que deben prestar el servicio.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 20141 del 14 de diciembre de 1990, el cual agregó la última oración)
