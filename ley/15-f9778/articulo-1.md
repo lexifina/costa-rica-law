@@ -1,0 +1,5 @@
+DECRETO XV
+Autoriza a los Alcaldes Constitucionales para seguir y fenecer todas las mortuales cuyo capitulo no exceda de 500 pesos.
+“ Juan Rafael Mora, Presidente de la República de Costa Rica.
+Con el deseo de favorecer, cuanto sea posible, las sucesiones para que estas no sean perjudicadas en sus intereses, y con presencia de los artículos 333 y 351 de la 3° parte del Código general, 18 y 19 de la ley de Administración de Justicia n° 41 de 4 de noviembre de 1845 y párrafos 1° y 2° art 48 de la Orgánica n° 4 de 18 de febrero de 1852, decreto:
+Art 1°.-Cuando por defunción de alguna persona haya de inventariarse un capital que no exceda de quinientos pesos, toca a los Alcaldes Constitucionales proceder en acto verbal al reconocimiento, justiprecio, participación de bienes y demás actos previos o consiguientes conforme a las leyes. En lo demás se observará lo prevenido a las leyes. En lo demás se observará lo prevenido en la segunda parte del art 18 citado de la ley de 4 de noviembre, quedando a las partes espedido el derecho de apelación en caso necesario.
