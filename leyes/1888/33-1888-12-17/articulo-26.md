@@ -1,0 +1,2 @@
+Art. 26.-Mientras no se dé en los colegios nacionales de las provincias cursos regulares y completos de segunda enseñanza, los exámenes de madurez se verificarán en el Liceo de Costa Rica. El Ministerio de Instrucción Pública expedirá el programa de exámenes.
+Dado en el Palacio Presidencial, en San José. á los diez y siete días del mes de diciembre de mil ochocientos ochenta y ocho. A. DE JESÚS Soto. El Ministro de Instrucción Pública, MAURO FERNÁNDEZ.
