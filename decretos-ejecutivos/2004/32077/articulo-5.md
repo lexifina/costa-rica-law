@@ -1,0 +1,3 @@
+Artículo 5º—Integración. La Comisión será integrada oficialmente por el Ministro de Relaciones Exteriores y Culto con los representantes de las instituciones debidamente acreditados, a más tardar 30 días después de la entrada en vigencia de este Decreto.
+Para su funcionamiento, la Comisión deberá contar como mínimo con siete representantes debidamente acreditados por las instituciones que la conforman.
+Se invitará a todas las instituciones-integrantes a efecto que dentro de los quince días a partir de la vigencia del presente Decreto. acrediten a sus respectivos Representantes Titular y Suplente ante la Comisión.

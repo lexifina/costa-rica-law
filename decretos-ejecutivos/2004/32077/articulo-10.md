@@ -1,0 +1,1 @@
+Artículo 10.—Apoyo Administrativo. El Ministerio de Relaciones Exteriores y Culto, a través de la Dirección Jurídica, dará apoyo administrativo y logístico a la Comisión, sin percibir emolumento alguno por tal gestión.

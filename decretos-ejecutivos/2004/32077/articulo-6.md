@@ -1,0 +1,1 @@
+Artículo 6º—Reuniones de la Comisión. La Comisión celebrará reuniones ordinarias una vez por mes, sin perjuicio de las sesiones extraordinarias que convoque el Presidente. La convocatoria para las sesiones extraordinarias se efectuará con anticipación de una semana.

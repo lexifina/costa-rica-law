@@ -1,0 +1,1 @@
+Artículo 11.—Asesoría. La Comisión podrá contar con la asesoría jurídica del Comité Internacional de la Cruz Roja, organización imparcial, neutral e independiente, fundada en 1863, que promueve la aplicación, difusión y adopción del Derecho Internacional Humanitario y de los Principios Humanitarios Universales. Por la naturaleza del Comité, dicha asesoría sería gratuita.

@@ -1,0 +1,1 @@
+Artículo 8º—Plan de trabajo. Una vez elaborado el Reglamento Interno, la Comisión se abocará a realizar su plan de trabajó anual. Al finalizar cada año de labores se realizará una evaluación de éste v se adoptará el plan del año siguiente.
