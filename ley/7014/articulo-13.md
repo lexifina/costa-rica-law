@@ -1,0 +1,1 @@
+Artículo 13.- La Junta Directiva elegirá de entre sus miembros un presidente, un vicepresidente y un secretario; los demás miembros fungirán como vocales. El presidente tendrá doble voto en caso de empate. Los miembros de la Junta Directiva referidos en los incisos ch) y d) del artículo anterior durarán en sus cargos dos años y podrán ser reelegidos.

@@ -1,0 +1,1 @@
+Artículo 6º.- La Asamblea será presidida alternativamente por un Delegado del grupo beneficiador y otro del grupo productor de arroz. El presidente será elegido por la Asamblea en su primera sesión ordinaria y ejercerá sus funciones durante el año económico correspondiente. También se nombrará un vicepresidente para que lo sustituya durante sus ausencias o en caso de renuncia.
