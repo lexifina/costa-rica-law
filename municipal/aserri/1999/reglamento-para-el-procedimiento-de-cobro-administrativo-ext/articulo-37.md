@@ -1,5 +1,6 @@
 SECCION II
 Sobre el Cobro de Honorarios Profesionales
 Artículo 37.—Cobro de honorarios profesionales. El cobro de honorarios profesionales lo hará directamente el abogado externo director del proceso, al sujeto pasivo, en caso de que este pretenda cancelar previo a la terminación del proceso judicial respectivo.
-Dicho cobro se realizará con base en la Tabla de Honorarios, que se adjunta a este reglamento.
+El costo del cobro extrajudicial deberá ser cubierto por el deudor de la Municipalidad, a razón de un 5% del monto de la deuda para un mínimo de ¢5.000,00 (cinco mil colones), que deberá cancelarse junto con el pago total o parcial de la deuda de la Municipalidad.
+(Así reformado mediante seseión ordinaria N° 118 del 26 de julio del 2004)
 La Sección de Cobros de la Municipalidad únicamente podrá recibir la cancelación del monto adeudado por el sujeto pasivo, mediante la presentación de nota del abogado externo director del proceso, de que le han sido cancelados de conformidad los honorarios de abogado, y se aportará además copia de la factura emitida por el abogado correspondiente. Asimismo, no se solicitará dar por terminado el proceso judicial respectivo, hasta tanto la Sección de Cobros de la Municipalidad le indique por escrito al abogado externo director del proceso que se ha recibido de conformidad en las cajas municipales la totalidad de la obligación vencida adeudada por el sujeto pasivo, sus intereses y multas.

@@ -1,5 +1,6 @@
 Artículo 15.—De la función de recaudación. La función de recaudación es el conjunto de actividades que realiza la Administración Tributaria Municipal destinadas a percibir efectivamente el pago de todas las obligaciones tributarias municipales de los contribuyentes. Esta función será desarrollada por la Sección de Cobros de la Municipalidad.
 La función recaudatoria se realizará en tres etapas sucesivas: voluntaria, administrativa y ejecutiva.
 En la etapa voluntaria, el sujeto pasivo de la obligación tributaria municipal cancelara sus obligaciones sin necesidad de actuación alguna por parte de la Sección de Cobros de la Municipalidad.
-En la etapa administrativa, la Sección de Cobros de la Municipalidad efectuara dos requerimientos persuasivos de pago a los sujetos pasivos morosos.
+En la etapa administrativa, la Sección de Cobros de la Municipal de Aserrí, efectuará directamente un requerimiento persuasivo de pago a los sujetos pasivos morosos y/o podrá delegar total o parcialmente esta función, a los abogados externos para trámite de cobro extrajudicial de los casos que considere pertinentes.
+(Así reformado mediante sesión ordinaria N° 118 del 26 de julio del 2004)
 En etapa ejecutiva, la recaudación se efectúa coactivamente, utilizando los medios legales establecidos y recurriendo a los órganos jurisdiccionales respectivos. Esta etapa es la que ejecutará los abogados externos.
