@@ -1,0 +1,1 @@
+Artículo 65. -El servidor que por dos años consecutivos no obtenga el grado mínimo de evaluación, pese a las advertencias del caso, se hará acreedor a la gestión de despido sin responsabilidad por parte de la Asamblea Legislativa, una vez substanciado el procedimiento administrativo disciplinario.

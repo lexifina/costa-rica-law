@@ -1,0 +1,1 @@
+Artículo 42.-Para ejecutar las labores, los servidores de confianza estarán subordinados, según corresponda, al Directorio Legislativo, al diputado jefe de la fracción parlamentaria o al diputado con quien trabajen, en las condiciones que establezca el Reglamento de servicio de esta Ley.

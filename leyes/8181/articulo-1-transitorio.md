@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio I.-Los servidores que al entrar en vigencia la presente Ley estén disfrutando de los beneficios establecidos en el artículo 2° de la Ley N° 5919, del 30 de julio de 1976, y sus reformas, conservarán ese derecho y se les retribuirá de acuerdo con el porcentaje determinado en el artículo 84 de esta Ley. Si por años de servicio les corresponde un aumento mayor del que disfrutan actualmente, este se calculará de conformidad con lo señalado en dicho Artículo.

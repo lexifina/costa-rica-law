@@ -1,0 +1,1 @@
+Artículo 94.-La concesión de permisos para estudiar constituye una facultad discrecional de la Institución; en consecuencia, su otorgamiento no reviste el carácter de derecho para el servidor ni el de obligación para la Asamblea Legislativa.

@@ -1,0 +1,1 @@
+Artículo 35.-El ascenso a un cargo inmediato superior podrá producirse en forma directa, previa recomendación del jefe inmediato, pero el servidor ascendido deberá reunir los requisitos del nuevo puesto.

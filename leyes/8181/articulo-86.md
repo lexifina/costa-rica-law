@@ -1,0 +1,1 @@
+Artículo 86.- Los servidores de la Asamblea Legislativa tanto en puestos regulares como de confianza, podrán acogerse a los beneficios del sistema de carrera profesional y/o grado profesional, en los términos que lo disponga el Reglamento de esta Ley.

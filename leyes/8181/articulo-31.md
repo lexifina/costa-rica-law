@@ -1,0 +1,1 @@
+Artículo 31.-El traslado de un servidor de otra institución a la Asamblea Legislativa y viceversa, solo procederá en calidad de préstamo interinstitucional y por un período no mayor de cuatro años; además, deberá ser aprobado por el Directorio Legislativo previa firma de un convenio entre las partes interesadas.

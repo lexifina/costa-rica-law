@@ -1,0 +1,1 @@
+Artículo 97.-Las licencias de capacitación para participar en programas en el país o en el extranjero, serán objeto de concurso por oposición, con el fin de que la Comisión de Becas recomiende una nómina con un máximo de cinco candidatos idóneos, según el Reglamento de esta Ley.

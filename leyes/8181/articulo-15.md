@@ -1,0 +1,1 @@
+Artículo 15.-En caso fortuito o de fuerza mayor que, como consecuencia, produzca la suspensión temporal, parcial o total del funcionamiento de la Asamblea Legislativa, no se extinguirán los derechos ni las obligaciones que emanen de la relación de servicio.

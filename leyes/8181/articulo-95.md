@@ -1,0 +1,1 @@
+Artículo 95.-El servidor beneficiado con permiso para estudios o capacitación, dentro o fuera del país, gozará de continuidad en su relación de servicio en el puesto que ocupe, así como del reconocimiento de los aumentos salariales que le correspondan.

@@ -1,0 +1,1 @@
+Artículo 112.-La Asamblea Legislativa, por medio de su presupuesto, deberá poner a disposición de los diferentes grupos parlamentarios, los recursos necesarios para su organización y funcionamiento; para ello creará un programa exclusivo, de conformidad con el artículo 113 de la Constitución Política.

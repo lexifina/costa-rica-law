@@ -1,0 +1,1 @@
+Artículo 100.-El servidor que haya disfrutado de una beca no podrá obtener una nueva licencia para estudios en el exterior, hasta que hayan transcurrido dos años. Si el plazo de la beca disfrutada es superior a dos años, no podrá solicitar licencia por este concepto, hasta que haya transcurrido cinco años.

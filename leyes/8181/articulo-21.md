@@ -1,0 +1,3 @@
+Artículo 21.—Para llenar una vacante que no sea objeto de ascenso directo, la Dirección Ejecutiva solicitará al Departamento de Recursos Humanos los nombres de los primeros tres lugares del registro permanente de elegibles de la categoría correspondiente.
+Si se trata de más de una plaza vacante, el Departamento de Recursos Humanos deberá agregar tres nombres más por cada una, guardando siempre el respectivo orden de calificación.
+De no existir elegibles para el cargo, la plaza se someterá a concurso interno. Si se declara desierto el citado concurso, se sacará a concurso externo, para cuyo efecto se seguirá el procedimiento establecido en esta Ley.

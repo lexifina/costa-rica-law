@@ -1,0 +1,1 @@
+Artículo 74.-Los puestos de trabajo se clasificarán, fundamentalmente, de acuerdo con la naturaleza y complejidad de sus actividades, en las siguientes categorías organizativas: grupos, serie de clases y clases ocupacionales, según los términos en que estos se definan en el Reglamento de esta Ley.

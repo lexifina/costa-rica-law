@@ -1,0 +1,1 @@
+Artículo 32.-Las permutas entre servidores regulares que ocupen cargos de igual clase serán acordadas, sin más trámite, por la Dirección Ejecutiva; pero previamente deberá mediar la recomendación favorable de los jefes respectivos y la anuencia de los interesados.

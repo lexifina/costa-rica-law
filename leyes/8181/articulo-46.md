@@ -1,0 +1,1 @@
+Artículo 46.-En los casos de renuncia para acogerse al derecho de pensión o jubilación, el pago de las prestaciones a los servidores de confianza se regirá por lo establecido en la presente Ley, al igual que en los casos en que se prescinda de sus servicios con responsabilidad patronal.

@@ -1,0 +1,1 @@
+Artículo 109.-Los actos, las solicitudes y actuaciones, de cualquier índole, que se realicen en aplicación de las disposiciones de este Estatuto y su Reglamento, estarán exentos del pago de especies fiscales.

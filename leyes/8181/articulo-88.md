@@ -1,0 +1,1 @@
+Artículo 88.-Declárase el 1° de diciembre de cada año, "Día del Servidor Legislativo". En esta fecha, los jerarcas de la Institución entregarán los reconocimientos a los servidores que se hayan hecho acreedores a ellos durante el último año, al igual que por años de servicio.

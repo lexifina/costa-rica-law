@@ -1,0 +1,1 @@
+Artículo 72.-En los casos de ausencia por enfermedad o maternidad, la Asamblea Legislativa le pagará al servidor su salario completo; el subsidio será reintegrado por las instituciones aseguradoras correspondientes, a la cuenta bancaria de la Asamblea Legislativa.

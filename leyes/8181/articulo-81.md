@@ -1,0 +1,1 @@
+Artículo 81.-Los salarios correspondientes a los puestos descritos en los manuales descriptivos de clases, o en cualquier otro instrumento técnico vigente de clasificación de puestos, deberán ser ubicables en la escala de salarios de la Asamblea Legislativa, la cual constituirá el sistema oficial de retribución.

@@ -1,0 +1,3 @@
+SECCION VI
+Licencias para estudiar fuera del país
+Artículo 98.-El Directorio Legislativo otorgara licencias a servidores regulares, cuya evaluación de servicios sea superior al grado mínimo establecido. En el caso de los servidores de confianza, únicamente podrán disfrutar de licencias hasta por un año dentro de un cuatrienio siempre y cuando tengan más de un año de desempeñar funciones en la Asamblea Legislativa y su evaluación de servicios sea superior al grado mínimo establecido. Si la licencia es por un plazo mayor y es de interés para la administración, el Directorio Legislativo podrá prórroga por un periodo igual.

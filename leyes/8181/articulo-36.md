@@ -1,0 +1,1 @@
+Artículo 36.-Para el mismo servidor solo podrá acordarse un nuevo ascenso después de transcurrido un plazo mínimo de doce meses, a partir de la fecha del anterior ascenso, salvo que, como resultado de un concurso interno, sea seleccionado de entre la lista de elegibles.

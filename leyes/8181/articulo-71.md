@@ -1,0 +1,5 @@
+Artículo 71.-El Directorio Legislativo podrá otorgar permisos, con goce de sueldo o sin él, en los siguientes casos:
+a) Treinta días naturales o más, para asistir, dentro o fuera del país, a actividades o actos culturales, administrativos o técnicos, de interés para la Asamblea Legislativa.
+b) Hasta por un máximo de cuatro años, para desempeñar cargos en el servicio exterior, organismos internacionales y otras instituciones o dependencias de la Administración Pública.
+c) A solicitud del servidor, por períodos superiores a un mes y hasta por tres meses dentro de un año calendario, en casos muy calificados Los permisos que sobrepasen este período serán otorgados sin goce de sueldo.
+d) Hasta por tres meses, para elaborar tesis de grado o trabajos finales de graduación, previo pronunciamiento favorable de la Comisión de Becas y Estudios. El servidor quedará obligado a presentar, ante el Departamento de Recursos Humanos constancia o certificación de la unidad académica respectiva, en la cual se indique que el trabajo o la tesis de grado fue presentado y aprobado.

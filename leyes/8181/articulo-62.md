@@ -1,0 +1,1 @@
+Artículo 62-No se reconocerá el trabajo extraordinario ejecutado sin la autorización previa y expresa del jerarca correspondiente, de acuerdo con las políticas institucionales y el Reglamento de esta Ley.
