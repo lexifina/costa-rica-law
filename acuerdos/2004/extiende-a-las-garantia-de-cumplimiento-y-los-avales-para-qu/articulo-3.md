@@ -1,0 +1,1 @@
+3) Comunicar a todas las instituciones públicas que hagan uso o planeen hacer uso de avales y garantías de cumplimiento, que deberán presentar la solicitud formal de autorización ante el Banco Central de Costa Rica, con base en su programación anual operativa, a más tardar el 31 de julio del presente año.

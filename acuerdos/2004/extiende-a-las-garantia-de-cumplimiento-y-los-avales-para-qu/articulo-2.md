@@ -1,0 +1,1 @@
+2) Reiterar a las instituciones públicas que a la fecha no hayan presentado la debida solicitud de aprobación de uso de líneas y cartas de crédito ante el BCCR, su obligación de cumplir con este lineamiento.
