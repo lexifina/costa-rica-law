@@ -1,0 +1,1 @@
+Artículo 3°—Ingresos. En ningún caso, la remuneración que reciba el profesional o la firma de profesionales por concepto de avalúos o valoraciones financieras realizadas a una misma sociedad administradora podrá representar más del quince por ciento (15%) de sus ingresos anuales.

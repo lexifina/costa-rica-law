@@ -1,0 +1,12 @@
+CAPÍTULO III
+Normas relativas al avalúo del perito
+Artículo 7°—Normas a aplicar en la práctica del avalúo. El propósito del avalúo será determinar el valor comercial de cada inmueble, entendiéndose éste como el valor por el que se puede vender la propiedad considerando un plazo de venta razonable y condiciones de mercado estables.
+Este tipo de valoración deberá comprender, por lo menos, los siguientes elementos:
+1) Análisis de las, características del inmueble.
+Situación legal: naturaleza del inmueble, uso autorizado del suelo (comercial, residencial, industrial, etc.); medidas y linderos; propietario, gravámenes y anotaciones.
+Características físicas: descripción del inmueble, uso actual y uso potencial, estado (en construcción, terminado, en obra gris u acabados); estado de conservación; forma y topografía; dimensiones, medidas y superficies de las áreas construidas, privativas y comunes; áreas principales de servicios, techadas, pavimentadas, etc.; tipo y calidad de la construcción; vida útil y edad, materiales, acabados, estructura, etc.; instalaciones especiales (aire acondicionado, sistema de agua potable de presión constante, tanques de captación de agua, sistemas contra incendios, ascensores, escaleras eléctricas, etc.).
+Características de la zona: clasificación (residencial, comercial, industrial, mixta,
+etc.); facilidad de acceso y 'comunicación; servicios públicos (alcantarillado pluvial y sanitario, electricidad, teléfonos, fibra óptica, aceras, pavimentos, parques); otros servicios (comerciales, médicos, entretenimientos, etc.).
+Otras características: cualquier otra característica o información sobre el inmueble que de acuerdo con el criterio del perito pueda incidir significativamente sobre el valor de la 'propiedad o pueda ser relevante para tomar una decisión de inversión o desinversión. En el caso de inmuebles desocupados o con un porcentaje de ocupación menor al setenta y cinco (75%), el perito deberá rendir su criterio sobre si existen características o condiciones en el inmueble que incidan en el nivel de ocupación.
+2) Análisis comparativo de mercado:
+El estudio comparativo de mercado deberá basarse, cuando sea posible, en información sobre el valor de transacciones de propiedades similares realizadas en forma reciente y en forma secundaria, apoyarse en información sobre precios actuales a los que se ofrecen vender propiedades similares, así como sobre los precios a los que se ofrecen vender propiedades que no se han podido vender después de un periodo y esfuerzo considerable.

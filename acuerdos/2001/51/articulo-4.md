@@ -1,0 +1,1 @@
+Artículo 4°—Rotación. Las sociedades administradoras deberán cambiar los profesionales que realizan los avalúos y las valoraciones financieras de los inmuebles de los fondos que administran cada tres años y podrán volver a contratarlos después de una interrupción no menor de tres años.

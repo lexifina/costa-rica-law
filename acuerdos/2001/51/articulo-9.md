@@ -1,0 +1,2 @@
+Artículo 9°—Tasa de descuento. Para estimar la tasa de descuento se deberá utilizar como tasa de descuento de Referencia la tasa meta del Fondo, la cual deberá ser ajustada cuando el riesgo de la inversión se separe significativamente de lo normal para bienes raíces.
+En todo caso el informe de valoración deberá incluir y fundamentar en forma clara y explícita los supuestos utilizados por el perito en la determinación de la tasa de descuento.
