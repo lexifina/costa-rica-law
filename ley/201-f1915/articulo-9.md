@@ -1,0 +1,2 @@
+Artículo 9°.- Las funciones de Cajero serán confiadas a la institución bancaria que se designe por ley, o por contrato, y fuera de la capital, a las Tesorerías Auxiliares que sean necesarias, para el mejor servicio, y determinen la Secretaría de Hacienda, el Centro de Control y la Tesorería, de común acuerdo.
+En cuanto a esas funciones oficiales, tales entidades se considerarán una dependencia de la Tesorería Nacional. La Tesorería Nacional no mantendrá en su propia caja, sino las sumas que estrictamente exijan los servicios de la Pagaduría Nacional.

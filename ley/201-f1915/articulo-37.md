@@ -1,0 +1,3 @@
+Artículo 37.- Deróganse los artículos 633 a 668 y 747 del Código Fiscal; el artículo 2 del acuerdo Nº 186 de 27 de octubre de 1887; decreto Nº 83 de 21 de diciembre de 1869; decreto Nº 4 de 19 de mayo de 1924; decreto Nº 6 de 21 de mayo de 1924 y el decreto Nº 1 de 9 de mayo de 1940, así como todas aquellas disposiciones y reglamentos que se opongan a la ejecución y cumplimiento de la presente ley.
+Dado en el Salón de Sesiones del Congreso.-Palacio Nacional.-San José, a los veinticuatro días del mes de agosto de mil novecientos cuarenta y cinco.
+Casa Presidencial.- San José, a los seis días del mes de setiembre de mil novecientos cuarenta y cinco.

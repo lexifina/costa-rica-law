@@ -1,0 +1,1 @@
+Artículo 33.- La Tesorería Nacional publicará, por lo menos una vez al mes un detalle de las entradas, salidas y saldos de Caja del Tesoro Público. Mediante acuerdo entre la Secretaría de Hacienda, el Centro de Control y la Tesorería, estos informes pueden ser más frecuentes y comprensivos.
