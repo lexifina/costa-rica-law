@@ -1,0 +1,1 @@
+Artículo 2º—Se declara de interés público la creación de la Red Nacional de Investigación Avanzada cuyo desarrollo y administración, estará a cargo del Ministerio de Ciencia y Tecnología en colaboración con las Instituciones de Educación Superior e Instituciones de Investigación miembros de la Red.
