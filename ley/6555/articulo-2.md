@@ -9,15 +9,15 @@ del seguro) al puerto o aeropuerto más apropiado en Costa Rica;
 -Proveer un número de becas para personal costarricense con el
 propósito de su capacitación en los Países Bajos;
 -El valor de la contribución del Gobierno de los Países Bajos no
-excederá del monto de F. 1.825.000 (un millón ochocientos veinticinco
-mil florines holandeses).
+excederá del monto de F. 1.825.000 (un millón ochocientos
+veinticinco mil florines holandeses).
 2) El Gobierno de Costa Rica se compromete a:
 -Proveer a los asesores con personal local competente y calificado de
 contraparte;
 -Proveer oficinas adecuadamente equipadas y sufragar los costos de
 operación y mantenimiento de las mismas, como también con respecto al
-equipo suministrado por el Gobierno de los Países Bajos, por la
-duración del proyecto;
+equipo suministrado por el Gobierno de los Países Bajos, por la duración
+del proyecto;
 -Sufragar los gastos del transporte y seguro del equipo mencionado
 desde el puerto de desembarque en Costa Rica hasta su destino final;
 -Encargarse del transporte de los asesores holandeses dentro de Costa
