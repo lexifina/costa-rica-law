@@ -1,0 +1,1 @@
+Artículo 171.-Los errores materiales y de concepto serán corregidos bajo la responsabilidad del Jefe del Departamento de Abonos y Plaguicidas, si del conjunto de la información contenida en los respectivos expedientes se desprenden tales errores.

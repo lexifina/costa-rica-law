@@ -1,0 +1,1 @@
+Artículo 127.-Al finalizar el experimento, el profesional que efectúa el experimento, así como el funcionario asignado del MAG, deberán aprobar la investigación y anotar su opinión sobre la eficiencia del producto en evaluación en el Libro de Protocolo de Investigador.

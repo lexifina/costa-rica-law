@@ -1,0 +1,1 @@
+Artículo 138.-Todo fabricante o representante de equipo utilizado en la aplicación de plaguicidas debe estar debidamente registrado en el Ministerio y cumplir con los requisitos establecidos para. el uso recomendado.

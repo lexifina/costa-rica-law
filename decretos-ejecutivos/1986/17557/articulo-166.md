@@ -1,0 +1,1 @@
+Artículo 166.-Toda persona natural o jurídica que aplique fumigantes en edificios y otras instalaciones es responsable de colocar previamente rótulos que adviertan el trabajo que se va a realizar, así como utilizar fumigantes con indicadores que permitan su detección.

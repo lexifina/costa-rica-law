@@ -1,0 +1,1 @@
+Artículo 47.-Toda renovación de registro debe. aparecer en el libro "Renovación de Plaguicidas", en donde se señale la fecha de la renovación, el sello y firma del Jefe del Departamento de Abono y Plaguicidas o subalterno autorizado en su ausencia.

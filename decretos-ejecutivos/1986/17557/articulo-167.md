@@ -1,0 +1,1 @@
+Artículo 167. -Toda persona natural o jurídica que realice fumigaciones, es responsable de tomar las medidas de seguridad para la protección del público durante el tiempo que persista el peligro del fumigante.

@@ -1,0 +1,1 @@
+Artículo 152.-Toda persona que participe en actividades de fabricación, formulación, reempaque, reenvase, almacenamiento, transporte, comercio; mezclar y aplicación de plaguicidas, debe someterse a un examen médico previo al ingreso a dichas actividades laborales y a exámenes médicos periódicos, de acuerdo con la norma establecida al respecto por el Ministerio de Salud.

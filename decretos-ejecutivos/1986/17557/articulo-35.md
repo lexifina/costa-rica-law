@@ -1,0 +1,1 @@
+Artículo 35 .-El registro de un plaguicida formulado, producto técnico y coadyuvantes y las autorizaciones de él se derivan, pueden ser canceladas en cualquier momento si se determinase posteriormente que el producto es perjudicial para la salud de las personas, animales y ambiente.

@@ -1,0 +1,1 @@
+Artículo 119.-Una vez presentado los documentos señalados en el artículo 115, el Ministerio debe someter la solicitud a conocimiento de los respectivos departamentos especializados, en el campo especifico que le corresponde a la investigación, para su estudio y recomendación. El Ministerio contará con un término de 30 días hábiles para resolver la solicitud.

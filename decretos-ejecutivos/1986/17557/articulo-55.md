@@ -1,0 +1,1 @@
+Artículo 55.-La labor de reempacado o reenvasado de un plaguicida de su empaque o envase unitario original, debe realizarse de una sola vez y en forma total. Se debe eliminar los remanentes de dicho producto, lavar adeecuadamente los envases originales y el equipo utilizado en dicha labor. Los productos reempacados o reenvasados deben ser sellados y etiquetados de inmediato.

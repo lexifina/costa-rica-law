@@ -1,0 +1,1 @@
+Artículo 177.-Toda persona. natural o jurídica que fabrique, reenvase, reempaque, almacene. transporte, manipule y aplique plaguicidas está obligada a recoger y desnaturalizar los derrames que se produzcan en tales actividades, de acuerdo con lo indicado en la etiqueta del producto.

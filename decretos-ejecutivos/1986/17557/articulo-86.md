@@ -1,0 +1,1 @@
+Artículo 86.-Las autoridades del Ministerio, así como aquellas de los ministerios de Salud, Trabajo y Seguridad Social, ordenarán retención de plaguicidas que no cumplan con los requisitos señalados en el presen e Reglamento, sin perjuicio de que posteriormente se proceda al decomiso en firme.

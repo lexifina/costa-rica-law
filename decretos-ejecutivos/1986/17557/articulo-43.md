@@ -1,0 +1,1 @@
+Artículo 43.-Las modificaciones al registro de un determinado plaguicida formulado, producto técnico y coadyuvantes, debe aparecer como anotación marginal. al registro original del producto. Dicha modificación conservará el número de registro correspondiente y fecha.

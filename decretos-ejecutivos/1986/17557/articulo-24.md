@@ -1,0 +1,1 @@
+Artículo 24.-Si la solicitud de registro de un plaguicida formulado, cumple con los requisitos establecidos en el presente Reglamento y en consulta previa con el Ministerio de Salud, el Ministerio procederá a la aprobación final del registro solicitado.

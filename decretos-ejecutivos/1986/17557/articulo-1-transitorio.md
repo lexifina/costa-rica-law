@@ -1,0 +1,2 @@
+Transitorio único.- Se concede un plazo de un año a partir de la publicación del presente Reglamento, a todas las personas físicas o jurídicas, ya sean éstas importadores, exportadores, fabricantes, formuladores, reempacadores, reenvasadores y vendedores de plaguicidas, productos técnicos o coadyuvantes, para que ajusten sus etiquetas a las disposiciones aquí establecidas.
+Dado en la Presidencia de la República.- San José, a los veintisiete días del mes de noviembre de mil novecientos ochenta y seis.

@@ -1,0 +1,1 @@
+Artículo 101.-Se prohíbe almacenar o transportar plaguicidas cuando los envases presenten .malas condiciones en el cierre, roturas, escapes, etiquetas rotas, decoloradas o sin rotulación que identifique el producto contenido.

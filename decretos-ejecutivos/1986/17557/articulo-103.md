@@ -1,0 +1,1 @@
+Articulo 103.-Los locales destinados al almacenamiento de plaguicidas, transitoria o permanentemente, deben contar con la aprobación del Ministerio de Salud y estar de acuerdo con lo establecido en el presente Reglamento.
