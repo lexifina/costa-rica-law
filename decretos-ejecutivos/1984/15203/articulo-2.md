@@ -1,0 +1,1 @@
+Artículo 2º.—Son servicios especiales, los que se prestan dentro de la explotación del transporte automotor remunerado, con vehículos de transporte colectivo, sin tener itinerario fijo y los cuales se contratan por viaje, por tiempo o en ambas formas.

@@ -1,0 +1,4 @@
+CAPÍTULO III
+Adjudicación de permisos
+Artículo 11.— El permiso se extenderá a nombre del propietario a quien aparece inscrito el vehículo, en el Registro de la Propiedad de Vehículos Automotores, si el peticionario estuviese en posesión del vehículo, sin que lo haya inscrito a su nombre en el Registro respectivo, se concederá el permiso por una única vez, con la advertencia de que deberá inscribirse a la mayor brevedad posible y contra la presentación de la carta venta del vehículo con la razón notarial de fecha cierta por un Notario, so pena de no conceder permiso alguno en el futuro si no se normaliza tal situación.
+En el caso de los permisos estables, se dará el permiso únicamente por tres meses, pasados los cuales sin traspasarse el vehículo a su propietario, se le negará un nuevo permiso, hasta que haya arreglado dicha anomalía.

@@ -1,0 +1,1 @@
+Artículo 17.—El Ministerio de Obras Públicas y Transportes, fomentará en la medida de lo posible el establecimiento de cooperativas de transportes que se dediquen a la prestación de servicios especiales.
