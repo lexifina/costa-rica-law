@@ -14,3 +14,4 @@ Reglamento Orgánico del Centro de Investigación y Perfeccionamiento para la Ed
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-04-07 | la propia norma |
+| 2 | 2001-12-17 | Decreto Ejecutivo 30075 (2001-12-17) |
