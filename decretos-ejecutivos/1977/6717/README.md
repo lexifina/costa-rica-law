@@ -14,3 +14,4 @@ Autoriza el Transporte Internacional Aéreo No Regular de Pasajeros originado en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-01-27 | la propia norma |
+| 2 | 1977-12-12 | Decreto Ejecutivo 7825 (1977-12-12) |

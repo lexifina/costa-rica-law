@@ -1,0 +1,2 @@
+Artículo 8°- El propietario o explotador de toda aeronave que realice un vuelo de los del tipo “todo comprendido” (ICT), que no sea propiedad de una empresa de Transporte Aéreo reconocida por la Dirección General de Aviación Civil, deberá demostrar a ese órgano todo lo relativo a cobertura de seguros, seguridad de la aeronave y cualquier otra información requerida por la citada Dirección General.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 7825 del 12 de diciembre de 1977)
