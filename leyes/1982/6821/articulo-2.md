@@ -1,0 +1,8 @@
+Artículo 2º.- Para los efectos de la presente ley, se establece la siguiente clasificación institucional del Sector Público:
+a) Sector Financiero Bancario:
+Comprende el Banco Central de Costa Rica, los bancos estatales del Sistema Bancario Nacional y el Banco Popular y de Desarrollo Comunal.
+b) Sector Financiero no Bancario:
+Comprende el Instituto Nacional de Seguros (INS), el Instituto Nacional de Vivienda y Urbanismo (INVU), el Instituto de Fomento y Asesoría Municipal (IFAM), el Instituto Nacional de Fomento Cooperativo (INFOCOOP), la Comisión Nacional de Préstamos para Educación (CONAPE), la Junta de Protección Social de San José, el Departamento Central de Ahorro y Préstamo (DECAP), la Corporación Costarricense de Desarrollo (CODESA), la Asociación Bananera Nacional (ASBANA) y todas aquellas empresas e instituciones del Estado que, aunque por definición se clasifican como no financieras, realizan actividades típicamente financieras, como la Caja Costarricense de Seguro Social (CCSS) y la Refinadora Costarricense de Petróleo (RECOPE).
+c) Sector no financiero:
+Comprende el Gobierno Central, las dependencias y entes adscritos a los ministerios, los fondos especiales y el patrimonio público cuyo control compete a la Contraloría General de la República, los organismos e instituciones descentralizadas y las empresas estatales e instituciones de esta naturaleza, como Ferrocarriles de Costa Rica, S. A. (FECOSA) y demás instituciones que se crearen en el futuro.
+La Autoridad Presupuestaria determinará los lineamientos que deban seguir las juntas de educación y las juntas administrativas de los colegios de Enseñanza Media en materia presupuestaria.

@@ -1,0 +1,2 @@
+Artículo 13.- El período de vigencia de los presupuestos de las instituciones del Sector Público será del 1º de enero al 31 de diciembre.
+A más tardar el 28 de febrero de cada año, esas instituciones deberán presentar ante la Contraloría General de la República, con copia para la Secretaría Técnica de la Autoridad Presupuestaria, la liquidación del presupuesto del año anterior, de acuerdo con las instrucciones que al respecto emita la Contraloría General de la República a fin de ejercer el control de eficacia a que se refiere el inciso c) del artículo 1º de esta ley.

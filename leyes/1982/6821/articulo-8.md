@@ -1,0 +1,1 @@
+Artículo 8º.- La Secretaría Técnica de la Autoridad Presupuestaria, el Ministerio de Planificación Nacional y Política Económica, y la Contraloría General de la República revisarán y prescribirán los sistemas de presupuesto, en lo que atañe a sus correspondientes áreas de competencia y en cuanto a presupuestos globales y sectoriales.
