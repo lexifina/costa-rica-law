@@ -1,0 +1,1 @@
+Artículo 4°—Se crea un Comité Asesor para el Parque Nacional Palo Verde para que apoye las actividades de manejo activo dentro del Parque Nacional Palo Verde y dé asesoramiento y seguimiento a las acciones de manejo por medio de un plan de intervención y monitoreo.
