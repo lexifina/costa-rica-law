@@ -1,0 +1,4 @@
+Artículo 8
+Principio de subrogación
+1.—Si una Parte Contratante o una de sus agencias realizara un pago a un inversor en virtud de una garantía o seguro otorgado contra riesgos no comerciales que hubiere contratado en relación con una inversión, la otra Parte Contratante reconocerá, de acuerdo con los procedimientos estipulados en su legislación, la validez de la subrogación en favor de aquella Parte Contratante o una de sus agencias respecto de cualquier derecho o título del inversor. La Parte Contratante o una de sus agencias estará autorizada, dentro de los límites de la subrogación, a ejercer los mismos derechos que el inversor hubiera estado autorizado a ejercer.
+2.—En el caso de una subrogación tal como se define en el párrafo 1 de este artículo, el inversor no interpondrá ningún reclamo a menos que esté autorizado a hacerlo por la Parte Contratante o su agencia.

@@ -1,0 +1,3 @@
+Artículo 9
+Condiciones más favorables
+Si las disposiciones de la legislación de cualquier Parte Contratante o las obligaciones de derecho internacional existentes o que se establezcan en el futuro entre las Partes Contratantes en adición al presente acuerdo o si un acuerdo entre un inversor de una Parte Contratante y la otra Parte Contratante contienen normas, ya sean generales o específicas que otorguen a las inversiones realizadas por inversores de la otra Parte Contratante un trato más favorable que el que se establece en el presente acuerdo, aquellas normas prevalecerán sobre el presente Acuerdo, en la medida que sean más favorables.
