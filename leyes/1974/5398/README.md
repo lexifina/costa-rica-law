@@ -1,9 +1,10 @@
 # Ley del Parque Nacional Rincón de la Vieja
 
-Ley N° 5398 del 1974-04-22. SINALEVI, ficha 8066: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8066&param2=8652&param3=1>.
+Ley N° 5398 del 1974-04-22. SINALEVI, ficha 8066: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8066&param2=8653&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 3 | 1974-01-01 | Ley 5398 | 1974-04-22 |
+| 2 de 3 | 1978-04-30 | Decreto Ejecutivo 8493 (1978-04-27) | 1978-04-27 |
