@@ -76,7 +76,7 @@ Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (A
 Instituto Nacional de las Mujeres (Así modificado por el artículo 1° del decreto ejecutivo N° 31067 de 20 de febrero de 2003) | 1062.0
 Instituto Nacional de Vivienda y Urbanismo | 6.102,0
 Instituto sobre Alcoholismo y Farmacodependencia IAFA (Así adicionado por el artículo 1° del decreto ejecutivo N° 30824 de 22 de octubre de 2002) | 945.3
-Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (Así modificado por el artículo 1° del decreto ejecutivo N° 31113 de 2 de abril de 2003) (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31407 de 25 de agosto de 2003, publicado en La Gaceta N° 204 de 23 de octubre de 2003.) | 17,483.7
+Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (Así modificado por el artículo 1° del decreto ejecutivo N° 31113 de 2 de abril de 2003) (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31407 de 25 de agosto de 2003, publicado en La Gaceta N° 204 de 23 de octubre de 2003.) (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31374 de 16 de setiembre de 2003, publicado en La Gaceta N° 187 de 30 de setiembre de 2003.) | 18.628,7
 Junta Administrativa de la Imprenta Nacional (Así adicionado por el artículo 1° del decreto ejecutivo N° 30824 de 22 de octubre de 2002) | 623.9
 Junta Administrativa del Registro Nacional | 3.923,3
 Junta de Desarrollo Portuario del Muelle de Golfito | 99,1
