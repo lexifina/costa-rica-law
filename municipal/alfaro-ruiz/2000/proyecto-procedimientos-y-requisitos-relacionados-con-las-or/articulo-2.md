@@ -1,0 +1,1 @@
+Artículo 2°- Del área de influencia. La Precalificación se realizará para aquellas organizaciones no gubernamentales que se localicen territorialmente en e! Cantón y que tengan programas o proyectos para ejecutar en los distritos del Cantón a través de la Ley 7755.
