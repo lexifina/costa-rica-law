@@ -1,0 +1,3 @@
+Artículo 7º—Del Comité Corporativo de Tecnología. Créase el Comité Corporativo de Tecnología, el cual será un órgano consultivo del Comité Ejecutivo Corporativo el cual será integrado por el Director de Macroproceso de Tecnología de la Información del Banco Popular, quien lo presidirá y los Jefes de tecnología de cada una de las sociedades.
+El objetivo de este comité será velar porque el desarrollo tecnológico del Banco Popular y de las sociedades esté acorde con una estrategia común que favorezca la integración de clientes y de negocios.
+Este Comité le reportará directamente a la Gerencia General Corporativa.

@@ -1,0 +1,1 @@
+Artículo 14.—De la elaboración de los presupuestos. La elaboración de los presupuestos de cada Sociedad se llevará a cabo en estrecha coordinación con la Gerencia General Corporativa, quien formulará sus comentarios al proyecto de previo a que el presupuesto se presente a la Junta Directiva de la Sociedad que corresponda para su debida discusión y aprobación final.
