@@ -1,0 +1,3 @@
+Artículo 2°.-Refórmase el artículo 19 del Decreto Ejecutivo N° 13746-TSS del 13 de julio de 1982, Reglamento del Consejo Nacional de Salarios, el cual en adelante se leerá así:
+"Artículo 19.-Pago de Dietas.-Los miembros propietarios del Consejo Nacional de Salarios devengarán por cada sesión celebrada a la que asistan, la cantidad de ¢ 525,00 (quinientos veinticinco colones) en calidad de dietas y los miembros suplentes y el Secretario ¢ 460,00 (cuatrocientos sesenta colones). En cuanto al Secretario rigen las limitaciones establecidas en el artículo 10, in fine, del Decreto-Ley N° 832 del 4 de noviembre de 1949. No podrán remunerarse más de seis sesiones mensuales.
+Las sesiones extraordinarias remuneradas no excederán de doce en el año calendario".
