@@ -1,0 +1,1 @@
+Artículo 29.—Los conductores no deben estacionar los vehículos en lugares donde se ponga en peligro la seguridad de los mismos o en locales cuya característica riña con la moral y las buenas costumbres.

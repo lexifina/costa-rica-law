@@ -1,0 +1,1 @@
+Artículo 46.—Utilización del vehículo fuera de la jornada ordinaria. Es prohibido el uso de vehículos administrativos fuera de la jornada de labores, salvo autorización expresa del Alcalde Municipal, Dirección Administrativa o Departamento de Transportes.

@@ -1,0 +1,1 @@
+Artículo 13.—Para lograr un mayor aprovechamiento de los vehículos de uso administrativo disponibles la Dirección Administrativa, deberá agrupar en un solo viaje, siempre que las circunstancias lo permitan, varias solicitudes de transporte que se generen hacia un mismo sitio o ruta, dando aviso oportuno a los interesados para lograr una adecuada coordinación del viaje.

@@ -1,0 +1,4 @@
+Artículo Nº 6º—En forma excepcional y debidamente justificado por escrito, con la anuencia del Alcalde Municipal y con dos días al menos de anticipación, salvo que se trate de asuntos imprevistos, urgentes o impostergables a criterio del Alcalde Municipal, podrá contratar la prestación de servicios de transporte bajo cualquiera de las siguientes modalidades:
+a) Contratación de servicios
+b) Alquiler de vehículos
+Tanto para la contratación específica del servicio como para el alquiler de vehículos se utilizarán los procedimientos usuales de contratación de la Municipalidad. El arrendamiento de vehículos tendrá lugar por vía excepción altamente calificada, le corresponderá al Alcalde Municipal autorizar dicho arrendamiento, siguiéndose los trámites anteriormente señalados. Queda entendido que el alquiler de vehículos regulado en el artículo 6º del presente Reglamento, no es extensivo a los servicios municipales.

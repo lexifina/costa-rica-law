@@ -1,0 +1,1 @@
+Artículo 21.—Será responsabilidad del Departamento de Transportes junto con el Taller Mecánico, recomendar al superior inmediato la aplicación de las sanciones que consideren pertinentes y por la vía que corresponda, para aquellos funcionarios que incumplan los programas de mantenimiento.

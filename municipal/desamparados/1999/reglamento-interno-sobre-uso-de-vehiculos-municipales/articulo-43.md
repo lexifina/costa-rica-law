@@ -1,0 +1,1 @@
+Artículo 47.—Intercambio de accesorios y combustible. Los conductores de vehículos de la Municipalidad de Desamparados, no podrán hacer intercambio de accesorios, combustibles o lubricantes de un vehículo a otro.

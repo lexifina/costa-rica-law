@@ -1,0 +1,1 @@
+Artículo 52.—Queda derogado el Reglamento anterior sobre el Uso de los Vehículos Municipales, aprobado en la Sesión Ordinaria Nº 367, celebrada por el Concejo Municipal el día jueves veinte de abril de mil novecientos ochenta y nueve.

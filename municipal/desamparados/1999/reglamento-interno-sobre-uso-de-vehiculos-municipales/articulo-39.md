@@ -1,0 +1,1 @@
+Artículo 43.—La Sección de la Guardia Municipal, bajo la responsabilidad del jefe, llevará los registros que permitan conocer el estado de los vehículos antes y después de cada servicio y todos los datos necesarios para el adecuado control del uso de los mismos, informando al Departamento de Transportes sobre cualquier anomalía.

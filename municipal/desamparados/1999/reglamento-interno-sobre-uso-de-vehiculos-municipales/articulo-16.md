@@ -1,0 +1,1 @@
+Artículo 17.—Cada chofer con vehículo asignado, es responsable del lavado de la unidad y el mantener la unidad limpia, excepto los choferes de Recolección Basura, donde su responsabilidad se limita a mantener aseada la cabina, en tanto, existe una persona para la limpieza general de estas unidades.

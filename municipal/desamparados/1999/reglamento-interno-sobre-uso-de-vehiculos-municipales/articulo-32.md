@@ -1,0 +1,1 @@
+Artículo 35.—Ningún conductor de la Municipalidad está autorizado para efectuar arreglos extrajudiciales en casos de accidentes con vehículos municipales. El Departamento de Transporte, quien en coordinación con la Dirección Legal, serán las dependencias autorizadas para efectuar las gestiones correspondientes.

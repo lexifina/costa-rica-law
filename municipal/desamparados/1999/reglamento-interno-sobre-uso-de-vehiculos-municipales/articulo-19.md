@@ -1,0 +1,1 @@
+Artículo 20.—Corresponderá al Departamento de Transportes, verificar la eficiencia, eficacia y oportunidad de la ejecución de los programas de mantenimiento y girar las recomendaciones que estime pertinentes al Taller Mecánico.

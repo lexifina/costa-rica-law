@@ -1,0 +1,1 @@
+Artículo 9º—Sin perjuicio de la fiscalización que realicen la Contraloría General de la República y la Auditoría Interna de la Municipalidad, el Departamento de Transportes, la Dirección Administrativa y el Alcalde Municipal, velarán por el fiel cumplimiento de este Reglamento.
