@@ -1,0 +1,1 @@
+Art 2°.-El Instituto Costarricense de Electricidad deberá destinar las dos partidas que según el artículo anterior, la traspasará la Municipalidad de Puntarenas, a trabajos de electrificación en Pitahaya, distrito 2° del cantón central de Puntarenas.
