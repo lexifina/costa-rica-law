@@ -1,0 +1,1 @@
+Artículo 4°-La coordinación de cada Subsistema Sectorial de Información estará bajo la dirección y responsabilidad de un Consejo Sectorial de Información, el cual estará constituido por los Coordinadores de Información de las Instituciones u organismos que los integren.
