@@ -1,0 +1,1 @@
+Artículo 31.—Las contrataciones de emergencia serán adjudicadas por el Director Ejecutivo debidamente autorizado por el Presidente de la Comisión mediante una Resolución razonada de delegación de funciones de conformidad con lo dispuesto por la Ley General de la Contratación Administrativa.

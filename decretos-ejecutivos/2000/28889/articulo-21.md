@@ -1,0 +1,1 @@
+Artículo 21.—Tanto la escritura pública, el contrato, como la orden de compra constituirán el documento idóneo para la autorización de la ejecución contractual en la adquisición de bienes y servicios y para el trámite de pago, bajo la responsabilidad del funcionario que la emite.

@@ -1,0 +1,1 @@
+Artículo 18.—El expediente completo se trasladará al funcionario que por el monto le corresponda adjudicar para que se dicte el acto debidamente razonado y lo devuelva al Departamento de Proveeduría, todo en un plazo de dos días hábiles. Inmediatamente se deberá comunicar a los oferentes el acto de adjudicación y se procede a emitir la orden de compra.

@@ -1,0 +1,4 @@
+Artículo 12.—Salvo que en el Registro de Proveedores de la Comisión o de la Proveeduría Nacional no exista una persona calificada para la prestación del servicio o bien, o que el número de oferentes sea menor al que se señala a continuación, la contratación directa de bienes y servicio se realizará bajo las siguientes disposiciones:
+- Para las compras directas de hasta un treinta y cinco por ciento del monto fijado por la Contraloría General de la República para las contrataciones directas, se invitará a cotizar al menos a tres proveedores idóneos
+- Para las compras directas superiores a un treinta y cinco por ciento del monto fijado por la Contraloría General de la República para las contrataciones directas se invitará a participar al menos a cinco proveedores idóneos
+En el caso de que participen menos proveedores de lo establecido para cada caso se deberá dejar constancia en el expediente de la razón.

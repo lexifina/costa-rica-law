@@ -1,0 +1,1 @@
+Artículo 11.—La solicitud para contratar directamente un bien o servicio podrá presentarla ante la Proveeduría el Presidente de la Comisión, el Director Ejecutivo, los Directores y los Jefes de Departamento. La Proveeduría procederá a cotizar lo requerido entre los oferentes incluidos en el Registro de Proveedores que ofrezcan el tipo de bien o servicio.

@@ -1,0 +1,1 @@
+Artículo 30.—La Comisión deberá solicitar el rendimiento de una garantía de participación y de cumplimiento en todas las contrataciones de emergencia cuyo monto sea superior a un millón de colones. Los porcentajes y la tramitación serán los que están estipulados en la Ley de Contratación Administrativa y el Reglamento General de Contratación.

@@ -1,0 +1,1 @@
+Artículo 5°—El Comité tendrá a su cargo el estudio, análisis y recomendación de adjudicación de todos los procesos de contratación que efectúe la Comisión, excepto las que se realicen por la modalidad de contratación directa por el monto.

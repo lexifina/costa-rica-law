@@ -1,0 +1,2 @@
+Artículo 22.—Para la ejecución de los contratos se utilizarán los procedimientos establecidos en la Ley de la Contratación Administrativa y en el Reglamento General de la Contratación Administrativa.
+Tratándose de la construcción de obras, la verificación de la correcta ejecución le corresponde a la Contraloría de Unidades Ejecutoras. En el caso de bienes y suministros este control lo llevará a cabo el encargado de la bodega de materiales en conjunto con el solicitante y tratándose de servicios, el control de la ejecución le corresponde al solicitante.

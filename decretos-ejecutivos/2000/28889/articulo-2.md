@@ -1,0 +1,2 @@
+Artículo 2°—El Jefe de Proveeduría deberá rendir caución por quinientos mil colones, mediante bono de fidelidad del Instituto Nacional de Seguros, monto que podrá ser variado sin necesidad de modificar este Reglamento.
+A solicitud de la Dirección Ejecutiva o de la Auditoría Interna de la Comisión, podrá ordenarse el aumento de dicha garantía cuando el monto de los bienes en custodia y el carácter de las funciones encomendadas así lo ameriten.

@@ -1,0 +1,1 @@
+Artículo 33.—Con las excepciones aquí señaladas, para las contrataciones de emergencia se deben aplicar las disposiciones que contiene la Ley de Contratación Administrativa y el Reglamento General de la Contratación Administrativa y supletoriamente las normas que al | respecto establece la Ley General de la Administración Pública.
