@@ -1,0 +1,1 @@
+Artículo 21.—En el momento de la apertura de las ofertas se levantará un acta en el Libro de Apertura de Ofertas, legalizado por la Auditoria Interna del ICODER en el que se dejará constancia del nombre de los concursantes, también de los detalles observados durante el concurso.

@@ -1,0 +1,1 @@
+Artículo 43.—El Proceso de Proveeduría no se hará responsable por bienes o servicios prestados a la institución, donde no medie de previo la respectiva orden de compra, sustentada mediante su respectivo pedido de compra.

@@ -1,0 +1,1 @@
+Artículo 20.—El representante de la Proveeduría procederá a la apertura de las ofertas a la hora, lugar y fecha señaladas en el cartel. No se recibirán ofertas con posterioridad a la fecha y hora de la apertura indicada en el cartel.

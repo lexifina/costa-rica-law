@@ -1,0 +1,1 @@
+Artículo 8º—Una vez que la Proveeduría Institucional recibe el pedido, se inicia el procedimiento de contratación según así corresponda, y utilizando a los proveedores inscritos en el Registro los artículos que necesite comprar. En el caso en que deba contratarse un bien o servicio y no exista en el registro un proveedor inscrito, podrá utilizar otro que no lo este.

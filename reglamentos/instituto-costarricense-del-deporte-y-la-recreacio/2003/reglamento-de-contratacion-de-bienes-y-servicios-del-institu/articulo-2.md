@@ -1,0 +1,1 @@
+Artículo 2º—La Proveeduría Institucional es el único proceso autorizado para efectuar la contratación de bienes y servicios que se requieran para el normal funcionamiento de la institución, así como todo lo relativo a la tramitación de los documentos exigidos por la Ley de Contratación Administrativa y su Reglamento.

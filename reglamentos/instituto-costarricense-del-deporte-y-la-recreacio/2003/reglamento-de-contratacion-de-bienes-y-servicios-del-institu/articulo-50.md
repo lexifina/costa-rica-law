@@ -1,0 +1,1 @@
+Artículo 50.—En caso de que el material deba ingresar al inventario del Almacén, se llenará el formulario diseñado para dar fe de que efectivamente el material se encuentra bajo la responsabilidad de la institución y ha cumplido con las especificaciones señaladas en la orden de compra respectiva.

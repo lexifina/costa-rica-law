@@ -1,0 +1,1 @@
+Artículo 44.—El Proceso de Proveeduría es el responsable del trámite de adquisición de los bienes y servicios que desee contratar la institución y los demás Procesos podrán intervenir o participar únicamente a petición expresa de esa Proveeduría, o cuando por la naturaleza del objeto de la contratación así lo requiera.

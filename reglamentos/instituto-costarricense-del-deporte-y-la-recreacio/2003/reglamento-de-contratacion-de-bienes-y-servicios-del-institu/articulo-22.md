@@ -1,0 +1,1 @@
+Artículo 22.—Todas las actuaciones y documentos relativos a los diferentes procedimientos de Contratación Administrativa mediante concurso desde los acuerdos iniciales hasta el último acto de liquidación y finiquito, se conservarán en expedientes enumerados, individuales y ordenados, los cuales serán conservados en el Departamento de Proveeduría.

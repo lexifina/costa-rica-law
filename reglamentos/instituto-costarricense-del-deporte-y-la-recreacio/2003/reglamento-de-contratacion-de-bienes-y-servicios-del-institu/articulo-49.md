@@ -1,0 +1,1 @@
+Artículo 49.—Si la mercadería debe entregarse de inmediato se informará al solicitante para que un plazo no mayor de dos días hábiles retire el material, para tal efecto se llenará el formulario diseñado para dar fe del material que se entrega, en caso de exceder este tiempo el material ingresará al inventario del Almacén.

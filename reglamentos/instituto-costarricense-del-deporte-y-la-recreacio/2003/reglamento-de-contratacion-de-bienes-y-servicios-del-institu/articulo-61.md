@@ -1,0 +1,1 @@
+Artículo 61.—Las requisiciones de materiales se distribuirán de manera que el original quedará en el almacén de suministros, una copia se remitirá a la Contabilidad para efecto de descargar las partidas y la tercera se devolverá al departamento solicitante para su control y archivo.

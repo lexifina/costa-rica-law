@@ -1,0 +1,1 @@
+Artículo 51.—Para el debido control de estas existencias periódicamente se harán inventarios físicos por sistema de muestreo o pruebas selectivas. Los resultados obtenidos de estos inventarios se cotejarán con los datos registrados en el sistema de cómputo. Por lo menos una vez al año se realizará un inventario físico total.

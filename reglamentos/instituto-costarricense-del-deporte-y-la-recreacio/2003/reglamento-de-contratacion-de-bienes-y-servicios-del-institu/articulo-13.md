@@ -1,0 +1,1 @@
+Artículo 13.—Una vez que se aprueba el cartel, deberá presentarse al Consejo Nacional del Deporte y la Recreación, para su aprobación correspondiente; posterior a ello, deberá ser publicado el aviso en La Gaceta y facultativamente en dos diarios de circulación nacional.

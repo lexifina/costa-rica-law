@@ -1,0 +1,1 @@
+Artículo 27.—Para todos los efectos la adjudicación quedará firme transcurridos 10 días hábiles posteriores al día en que se publica en La Gaceta el acuerdo respectivo sin que haya presentado recurso de apelación ante la Contraloría General de la República.

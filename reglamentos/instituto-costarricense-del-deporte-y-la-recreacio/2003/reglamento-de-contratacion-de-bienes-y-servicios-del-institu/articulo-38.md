@@ -1,0 +1,1 @@
+Artículo 38.—Las compras de bienes no existentes en el Almacén de Materiales estarán sujetas al trámite de cotización, tomándose en cuenta factores como el precio, la calidad, tiempo de entrega y forma de pago, entre otros.

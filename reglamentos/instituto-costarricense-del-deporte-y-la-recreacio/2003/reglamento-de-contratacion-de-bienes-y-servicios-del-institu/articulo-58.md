@@ -1,0 +1,2 @@
+Artículo 58.—Todo funcionario encargado de recibir, custodiar, pagar bienes o valores del Estado o cuyas atribuciones permitan o exigen su tenencia será responsable de ellos y de cualquier pérdida, daño, abuso, empleo o pago ilegal que sea o sean imputados a dolo, culpa o negligencia.
+Como empleo ilegal se considera además de otros, el manejo de los bienes o valores en forma distinta a la prescrita por este reglamento.
