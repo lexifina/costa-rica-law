@@ -1,0 +1,1 @@
+Artículo 5º—El objetivo general de Comcure será definir, ejecutar y controlar el Plan de ordenamiento y manejo de la cuenca alta del río Reventazón, con el apoyo del comité consultivo, la unidad ejecutora y el comité regional.

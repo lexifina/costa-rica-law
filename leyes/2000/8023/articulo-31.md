@@ -1,0 +1,2 @@
+DISPOSICIONES FINALES
+Artículo 31.—Esta Ley se sustentará en los acuerdos y convenios internacionales ratificados por el país, en la Ley Nº 7224, Convención relativa a los humedales de importancia internacional, especialmente como hábitat de las aves acuáticas Convención de Ramsar, de 9 de abril de 1991; así como en la Ley Nº 7416, Convenio sobre diversidad biológica y sus anexos, de 30 de junio de 1994.

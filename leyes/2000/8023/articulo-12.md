@@ -1,0 +1,1 @@
+Artículo 12.—Autorízase a las instituciones y organizaciones representadas en Comcure para que aporten recursos, tales como apoyo logístico, materiales, personal administrativo, pago de viáticos, gastos administrativos, otros gastos no personales y cualesquiera otros necesarios para el cumplimiento de esta Ley.
