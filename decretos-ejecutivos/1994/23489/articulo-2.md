@@ -1,0 +1,2 @@
+ARTICULO 2. Adiciónase el Decreta Ejecutivo N° 22612-MEP de 13 de octubre de 1993, con un nuevo artículo 67 bis, que dirá:
+Artículo 67 bis; Dependiendo del viceministerio, funcionará la Oficina de la Mujer encargada de velar por la incorporación de los enfoques de género en la documentación y actividades del Ministerio, incluyendo los diversos aspectos del proceso educativo, así como para recibir denuncias por discriminación de la mujer o por acoso sexual y, cuando estuvieren bien fundadas, remitirlas a las autoridades superiores competentes para su tramitación.
