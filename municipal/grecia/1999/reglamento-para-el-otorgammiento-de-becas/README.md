@@ -14,3 +14,4 @@ Reglamento para el Otorgammiento de Becas.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-25 | la propia norma |
+| 2 | 1999-02-25 | Ley 8 |
