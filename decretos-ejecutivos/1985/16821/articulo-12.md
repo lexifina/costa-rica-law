@@ -15,14 +15,23 @@ c) Haber satisfecho los impuestos y derechos respectivos;
 ch) En caso de traspaso, indicar la clase de vehículo, marca de
 fábrica, número de placas y color actual, si hubiere habido
 cambio de éste;
-d) En caso de vehículos a inscribirse por primera vez, debe
-acompañarse la certificación de aduana, que debe contener los
-datos del inciso anterior así como el modelo, estilo, categoría,
-número de motor y cilindros, combustible que emplea, número de
-chasis si lo contuviere y los demás datos constantes en el
-pedimento de desalmacenaje o que constaren en el vehículo, y
-el documento de revisión técnica que debe indicar la clase de
-placas a asignarse; y
+d) En caso de vehículos a inscribirse por primera vez, el Registro
+Público debe disponer de:
+1. Un certificado electrónico remitido por la Aduana vía Correo
+Electrónico, que contendrá los siguientes datos:
+a) Los descritos en el artículo 1º del presente decreto.
+b) Tipo de documento emitido por la autoridad aduanera que
+ampare el desalmacenaje del vehículo.
+c) Número y fecha del respectivo documento aduanero.
+d) Indicación de si los tributos fueron satisfechos, mediante
+pago o por aplicación de una exoneración. En este último
+caso, se señalará el número de documento, la ley que la
+crea y el plazo de vigencia de la exoneración.
+e) Observaciones por parte de la Aduana emisora.
+2. Y el documento de Revisión Técnica del Ministerio de Obras
+Públicas y Transporte.
+( Así reformado por el artículo 3º del Decreto Ejecutivo Nº 22636 de
+7 de octubre de 1993)
 e) Si se tratare de vehículos exonerados de impuestos debe
 aportarse la nota del Ministerio de Hacienda relativa al
 porcentaje de exoneración.

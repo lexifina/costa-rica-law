@@ -13,3 +13,4 @@ Reglamento Registro Público de la Propiedad Vehículos Automotores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-02-04 | la propia norma |
+| 2 | 1986-02-04 | SINALEVI (sin norma nombrada) |
