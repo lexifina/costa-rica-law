@@ -1,0 +1,2 @@
+Artículo 7º.- Refórmase el artículo 3º de la ley Nº 5712 del 11 de julio de 1975, el cual dirá:
+"Artículo 3º.- Cualquiera que sea la legislación aplicable, la prescripción de la acción penal se interrumpe con el auto de enjuiciamiento o de procesamiento, o con el de prórroga extraordinaria o de citación a juicio, aunque esas resoluciones no estuvieren firmes, así como con todos los actos procesales que se realicen posteriormente."
