@@ -1,0 +1,1 @@
+Art. 3. El Gefe Politico Superior hará la misma circulación al Juez Eclesiastico del Estado con suficiente numero de ejemplares para que los circule à los Parrocos del mismo, y á las Municipalidades de todos los Pueblos, inclusive la Diputacion del Mineral de Aguacate.
