@@ -1,1 +1,0 @@
-Artículo 45.-En general para toda refacción que modifique el estado de un mausoleo o de un nicho es necesaria la autorización escrita de la Junta Administrativa que ordenará una inspección ocular por uno de sus miembros y la negará si perjudicare las construcciones limítrofes a la que se pretende refaccionar, pudiendo el interesado hacerla repellar, encalar o adornar.

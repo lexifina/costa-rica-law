@@ -1,1 +1,0 @@
-Artículo 38.-Las paredes perimetrales de los nichos para inhumaciones deben tener el espesor suficiente para resistir el empuje de la tierra adyacente y deben ser de un material impermeable. El fondo y las paredes divisorias entre los nichos serán de material permeable para facilitar la difusión de los productos acuosos de la descomposición cadavérica.

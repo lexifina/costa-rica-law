@@ -1,1 +1,0 @@
-Artículo 39.-Los nichos se marcarán por el orden numeral ordinario en series horizontales, numerando éstas con números romanos en orden progresivo de abajo a arriba. Las inhumaciones se harán por orden, no ocupando ningún nicho de una serie superior mientras no estén llenos todos los de la serie inmediata inferior.

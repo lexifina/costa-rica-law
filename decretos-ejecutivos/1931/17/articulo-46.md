@@ -1,1 +1,0 @@
-Artículo .46.-Ningún cementerio que satisfaga las condiciones prescritas por las leyes sanitarias y los requisitos del presente Reglamento podrá ser suprimido sino por razones de necesidad higiénica o de orden público. La autorización para tal supresión deberá emanar de la Secretaría de Salubridad Pública, oído el parecer de las autoridades sanitarias de la localidad.

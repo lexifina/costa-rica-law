@@ -1,1 +1,0 @@
-Artículo 25.-Para proceder a las exhumaciones ordinarias no se necesita ninguna orden o permiso especial. El guardián del cementerio las hará bajo su propia responsabilidad, cuando sea necesario, después de transcurrido el período de cinco años de la inhumación.

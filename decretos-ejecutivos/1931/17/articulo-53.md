@@ -1,1 +1,0 @@
-Artículo 53.-En las órdenes que expida para inhumaciones en nichos, el Tesorero indicará el nicho que haya de ser ocupado. Si no obstante dicha orden el guardián se viese en la imposibilidad de cumplirla por cualquier motivo, dará aviso inmediatamente al Tesorero exponiendo las razones que tenga.

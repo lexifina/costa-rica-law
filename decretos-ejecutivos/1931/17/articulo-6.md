@@ -1,1 +1,0 @@
-Artículo 6°-La Junta Administrativa, o el vocal de la Junta de Caridad local encargado del cementerio, tendrá bajo sus órdenes a un empleado a sueldo que llevará el nombre de guardián, encargado de la vigilancia y manejo del propio cementerio.

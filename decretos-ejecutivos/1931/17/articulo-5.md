@@ -1,1 +1,0 @@
-Artículo 5°-Para atender a los gastos que demande el cumplimiento de sus obligaciones, la Junta queda facultada para percibir los derechos de sepultura y el producto del arrendamiento de los lotes de acuerdo con las tarifas que fije. De la inversión de estos fondos dará cuenta anualmente a la Junta de Caridad o Municipalidad de la cual dependa.

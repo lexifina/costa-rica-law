@@ -1,1 +1,0 @@
-Artículo 50.-El Tesorero de la Junta llevará un registro de mausoleos y nichos indicándolos por el número de la parcela y cuadro a que pertenezcan. Cada uno tendrá una página aparte encabezada por los números distintivos del lugar que ocupa y por el nombre del propietario.

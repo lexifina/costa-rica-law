@@ -1,1 +1,0 @@
-Artículo 11.-En el área del cementerio destinada a las sepulturas comunes deben marcarse las parcelas para las fosas de acuerdo con un plano regulador, distribuyéndolas por cuadros uno al lado de otro en filas continuas, simétricamente respecto de las callejuelas de comunicación. Uno o más de estos cuadros se reservarán para sepulturas de niñas.

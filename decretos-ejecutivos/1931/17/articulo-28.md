@@ -1,1 +1,0 @@
-Artículo 28.-En los permisos de exhumación extraordinaria extendidos por los Jefes de Sanidad y por la Secretaría de Salubridad Pública, se especificarán las. precauciones sanitarias que en cada caso deban observar los encargados de ejecutarlas.

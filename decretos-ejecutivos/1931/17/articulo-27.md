@@ -1,1 +1,0 @@
-Artículo 27.-Cuando se trate de exhumaciones extraordinarias ordenadas por las autoridades judiciales, el cadáver será trasladado a la sala de autopsias, observando todas las normas que la autoridad citada sugiera para conseguir mejor el propósito de sus investigaciones.

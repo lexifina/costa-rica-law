@@ -1,1 +1,0 @@
-Artículo 30.-No podrá autorizarse la exhumación de los fallecidos por viruela, escarlatina, tifo exantemático, difteria, cólera y peste bubónica, sino con permiso de la Secretaría de Salubridad Pública la cual consultará el parecer del Jefe de Sanidad local

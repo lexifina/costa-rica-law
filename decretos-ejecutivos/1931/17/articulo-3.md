@@ -1,1 +1,0 @@
-Artículo 3°-En todo distrito, tanto urbano como rural, siempre que las condiciones económicas lo permitan, la Municipalidad o la Junta de Caridad respectiva deben establecer un cementerio y procurar los medios adecuados para la traslación de los cadáveres. (Artículo 115, Ley sobre Protección se la Salid Pública.)
