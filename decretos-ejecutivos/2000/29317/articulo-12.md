@@ -1,0 +1,1 @@
+Artículo 12.—Si el producto industrializado con base en recursos naturales con cualidades medicinales no lleva indicación, la solicitud de inscripción debe venir acompañada de una declaración jurada indicando que el producto no lleva, ni se le adjudicarán después de su inscripción indicaciones de uso, asimismo en el etiquetado.

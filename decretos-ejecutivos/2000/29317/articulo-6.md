@@ -1,0 +1,1 @@
+Artículo 6º—Los productos con base en recursos naturales con cualidades medicinales, podrán ser administrados por vía oral o tópica y deben estar exentas de sustancias tóxicas o potencialmente tóxicas. Cualquier otra vía de administración solicitada será evaluada por la Comisión Técnica de Productos Naturales.

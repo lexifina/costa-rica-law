@@ -1,0 +1,1 @@
+Artículo 18.—En caso de la importación de materia prima para la fabricación de productos con base en recursos naturales el importador debe estar inscrito y con permiso vigente. Además, debe presentar la solicitud con original y copia de la factura firmada por el profesional responsable.

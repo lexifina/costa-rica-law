@@ -1,0 +1,1 @@
+Transitorio 2º—La implementación de las Buenas Prácticas de Manufactura en los establecimientos fabricantes existentes a la fecha de aprobación del mismo, se hará en un proceso gradual, para lo cual se concederá un término de tres años, los cuales empezarán a regir a partir de la fecha de publicación del presente reglamento.

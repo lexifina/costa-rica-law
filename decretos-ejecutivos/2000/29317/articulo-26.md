@@ -1,0 +1,1 @@
+Artículo 26.—Los cambios en los excipientes, en las etiquetas, empaques, envases, titular de la inscripción, en el nombre del producto, en las presentaciones comerciales u otro serán sometidas a consideración de la Dirección.
