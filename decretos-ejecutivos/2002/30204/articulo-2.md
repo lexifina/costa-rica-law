@@ -1,0 +1,1 @@
+Artículo 2º—El Ente Nacional de Acreditación (ENA), deberá notificar oportunamente a la Dirección General de Aduanas, el registro de las empresas acreditadas como entes de inspección, con su alcance, responsables de la acreditación y tiempo de vigencia de la acreditación, a efectos de hacerlo del conocimiento del Sistema Nacional de Aduanas, para su aplicación inmediata.
