@@ -1,0 +1,1 @@
+Artículo 3°—El Consejo Ministerial tendrá como objetivo, velar por la coherencia del trabajo articulado y complementario en cada una de éstas áreas, la promoción de una mayor racionalidad en el uso de los recursos, y mejorar los mecanismos de comunicación entre los diferentes órganos que conforman el Sector Cultura. Juventud y Deportes.
