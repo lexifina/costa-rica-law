@@ -1,7 +1,6 @@
 ARTICULO 194.- Cualquier otra infracción o negligencia en el
 cumplimiento de los deberes propios del cargo, no prevista en los
-artículos anteriores, será conocida por los órganos competentes,
-a efecto de examinar si constituyen falta gravísima, grave o
-leve, con el objeto de aplicar el régimen disciplinario. Para
-ello, se tomarán como referencia las acciones señaladas en los
-artículos anteriores.
+artículos anteriores, será conocida por los órganos competentes, a efecto
+de examinar si constituyen falta gravísima, grave o leve, con el objeto
+de aplicar el régimen disciplinario. Para ello, se tomarán como
+referencia las acciones señaladas en los artículos anteriores.

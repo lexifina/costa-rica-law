@@ -1,9 +1,2 @@
-ARTICULO 234.- Al jubilado o pensionado, se le suspenderá
-del goce del beneficio, durante el tiempo que esté percibiendo
-cualquier otro sueldo del Estado, de sus bancos, de sus
-instituciones, de las municipalidades, de las juntas de educación
-y de las empresas de economía mixta.
-También se podrá suspender, según las circunstancias, el
-goce del beneficio, cuando éste hubiera sido acordado en razón de
-enfermedad y se tenga noticia de que la persona está desempeñando
-otro empleo, mientras se mantenga esta última situación.
+ARTICULO 234.- Al jubilado o pensionado, se le suspenderá del goce del beneficio, durante el tiempo que esté percibiendo cualquier otro sueldo del Estado, de sus bancos, de sus instituciones, de las municipalidades, de las juntas de educación y de las empresas de economía mixta.
+También se podrá suspender, según las circunstancias, el goce del beneficio, cuando éste hubiera sido acordado en razón de enfermedad y se tenga noticia de que la persona está desempeñando otro empleo, mientras se mantenga esta última situación.

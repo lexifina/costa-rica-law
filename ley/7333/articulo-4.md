@@ -1,7 +1,7 @@
-ARTICULO 4.- Ningún tribunal puede avocar el conocimiento de
-causas pendientes ante otro. En casos muy calificados, se puede
-pedir un expediente ad effectum videndi, por no más de diez días.
-Si el expediente fuere retenido, injustificadamente, por
-mayor tiempo, se impondrá al omiso, salvo en el caso de fuerza
-mayor, una de las sanciones establecidas en el artículo 195, la
-cual será acordada si lo solicita parte interesada.
+ARTICULO 4.- Ningún tribunal puede avocar el conocimiento de causas
+pendientes ante otro. En casos muy calificados, se puede pedir un
+expediente ad effectum videndi, por no más de diez días.
+Si el expediente fuere retenido, injustificadamente, por mayor
+tiempo, se impondrá al omiso, salvo en el caso de fuerza mayor, una de
+las sanciones establecidas en el artículo 195, la cual será acordada si
+lo solicita parte interesada.

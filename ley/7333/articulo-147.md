@@ -1,20 +1,10 @@
-ARTICULO 147.- Las faltas accidentales de los notificadores,
-por impedimento, excusa o recusación en determinados asuntos,
-serán suplidas por un notificador para el caso, si no hubiere más
-de uno en la oficina respectiva.
-El nombramiento lo hará el tribunal correspondiente o el
-Jefe de la Oficina de Notificaciones, según el caso, y, cuando
-sea posible, deberá recaer en otro empleado del Despacho, quien
-no tendrá derecho a cobrar remuneración alguna por ese motivo,
-salvo que deba hacer una notificación fuera del perímetro
-judicial de la oficina en la que labora, caso en que se procederá
-conforme al artículo 10 de la presente Ley.
-Cuando la notificación deba hacerse en un lugar lejano, debe
-comisionarse para ello a la autoridad judicial o administrativa
-de la respectiva localidad.
-Para obviar errores u omisiones, cuando la notificación
-fuere encomendada a una autoridad administrativa, la oficina
-comitente hará extender en el pliego, la fórmula usual para esta
-clase de diligencias, y dejará en blanco, únicamente, las líneas
-que aquella haya de llenar indispensablemente, sin perjuicio de
-las instrucciones necesarias que le den en la nota de remisión.
+ARTICULO 147.- La Corte podrá disponer la utilización de sistemas
+informáticos para notificaciones, citaciones, comunicación entre oficinas
+judiciales y externas, públicas o privadas, archivo, manejo de
+documentación e información, atención al usuario, y para cualquier otro
+acto en que se demuestre que el uso de la informática agiliza el
+procedimiento, caso en el que las constancias propias del sistema
+resultan suficientes para acreditar la realización del acto procesal que
+las generó, salvo prueba en contrario.
+(Así reformado por el artículo 5º de la Ley de Reorganización
+Judicial No.7728 de 15 de diciembre de 1997)

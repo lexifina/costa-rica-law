@@ -1,8 +1,6 @@
-ARTICULO 129.- Las funciones del actuario no restringen la
-competencia del jefe de la oficina, quien podrá intervenir en la
-tramitación y decisión de los diversos asuntos aunque sean de los
-que corresponda resolver al actuario; pero el jefe de la oficina
-debe dictar y firmar sus propias resoluciones, y el actuario
-quedará exento de toda responsabilidad que pudiere establecerse
-por la ejecución de ellas o por la dirección impartida al
-proceso, en virtud de las mismas.
+ARTICULO 129.- En los tribunales que no cuenten con un juez
+tramitador, algunas de las funciones a él atribuidas podrán ser cumplidas
+por uno de los miembros del personal auxiliar, según lo determine la
+Corte o el Consejo.
+(Así reformado por el artículo 4º de la Ley de Reorganización
+Judicial No.7728 de 15 de diciembre de 1997)

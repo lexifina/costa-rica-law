@@ -1,14 +1,2 @@
-ARTICULO 211.- La acción para investigar las faltas deberá
-iniciarse, dentro del mes siguiente a la fecha en que quien deba
-levantar la investigación tenga conocimiento de ellas. La
-investigación deberá concluirse dentro del año siguiente a la
-fecha de su inicio y si procediere sancionar, la sanción que
-corresponda deberá imponerse dentro del mes siguiente a contar
-del momento en que quien deba hacerlo esté en posibilidad de
-pronunciarse. Contra lo resuelto siempre cabrá recurso de
-apelación, salvo que correspondiere a la Corte, contra cuyo
-pronunciamiento sólo cabrá el de reposición o reconsideración.
-Cuando se estimaren insuficientes los elementos de prueba
-para pronunciarse y hubiere proceso penal sobre los mismos
-hechos, la prescripción para aplicar la sanción disciplinaria se
-suspenderá.
+Artículo 211. La acción para investigar las faltas deberá iniciarse, dentro del mes siguiente a la fecha en que quien deba levantar la investigación tenga conocimiento de ellas. La investigación deberá concluirse dentro del año siguiente a la fecha de su inicio y si procediere sancionar, la sanción que corresponda deberá imponerse dentro del mes siguiente a contar del momento en que quien deba hacerlo esté en posibilidad de pronunciarse. Contra lo resuelto siempre cabrá recurso de apelación, salvo que correspondiere a la Corte, contra cuyo pronunciamiento sólo cabrá el de reposición o reconsideración.
+Cuando se estimaren insuficientes los elementos de prueba para pronunciarse y hubiere proceso penal sobre los mismos hechos, la prescripción para aplicar la sanción disciplinaria se suspenderá.

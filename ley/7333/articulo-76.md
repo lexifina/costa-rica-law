@@ -1,13 +1,10 @@
 ARTICULO 76.- El Consejo Superior del Poder Judicial deberá
 reunirse, ordinariamente, como mínimo dos veces por semana y,
-extraordinariamente, cuando sea convocado por su Presidente o por
-tres de sus miembros. El quórum se formará con el total de sus
-miembros.
-Salvo norma en contrario, las decisiones se tomarán por
-mayoría de votos. De no lograrse mayoría, el Presidente tendrá
-doble voto.
+extraordinariamente, cuando sea convocado por su Presidente o por tres de
+sus miembros. El quórum se formará con el total de sus miembros.
+Salvo norma en contrario, las decisiones se tomarán por mayoría de
+votos. De no lograrse mayoría, el Presidente tendrá doble voto.
 Sin perjuicio de la aplicación del régimen disciplinario, la
-inasistencia injustificada a las sesiones del Consejo por tres
-veces consecutivas, o por seis veces alternas durante un
-semestre, se considerará como causal de remoción del cargo de
-miembro del Consejo.
+inasistencia injustificada a las sesiones del Consejo por tres veces
+consecutivas, o por seis veces alternas durante un semestre, se
+considerará como causal de remoción del cargo de miembro del Consejo.

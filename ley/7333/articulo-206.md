@@ -1,4 +1,3 @@
-ARTICULO 206.- Concluido el trámite, el expediente pasará a
-estudio de los restantes inspectores generales; cada uno lo
-estudiará por tres días; luego, dictarán sentencia en un plazo no
-mayor de cinco días.
+ARTICULO 206.- Concluido el trámite, el expediente pasará a estudio
+de los restantes inspectores generales; cada uno lo estudiará por tres
+días; luego, dictarán sentencia en un plazo no mayor de cinco días.
