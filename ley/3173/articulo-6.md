@@ -7,3 +7,5 @@ un año a partir de la fecha en que debieron cancelarlo. Para efectos de
 probar lo anterior, bastará con mostrar recibo de la Tributación Directa
 o constancia de esta Oficina, en que se indique haber presentado las
 mencionadas declaraciones, o efectuado el pago, según sea el caso.
+(DEROGADO TACITAMENTE por ley Nº 7293 de 31 de marzo de 1992,
+artículo 48, inciso b) -"Constancia de Solvencia Tributaria")
