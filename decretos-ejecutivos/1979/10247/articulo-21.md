@@ -1,1 +1,0 @@
-Artículo 21.—Reasignaciones, Reclasificaciones y Revaloraciones. El servidor tendrá derecho a solicitar reasignaciones, reclasificaciones o revaloraciones de su puesto. Dichas solicitudes deberán ser resueltas dentro de los treinta días hábiles a partir de su presentación.

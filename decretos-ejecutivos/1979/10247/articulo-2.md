@@ -1,1 +1,0 @@
-Artículo 2°—Naturaleza de la Relación de Servicio. La relación de servicio de los funcionarios del Fondo del Plan Nacional de Desarrollo se regirá por el presente Estatuto. Dicha relación se considerará para todo efecto como de Derecho Público.

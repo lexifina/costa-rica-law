@@ -1,2 +1,0 @@
-Artículo 18.—Prestaciones Legales. Los servidores de confianza que fueren cesados sin justa causa, o que renunciaran a su puesto, después de tres meses de nombramiento, tendrán derecho a las prestaciones legales correspondientes: Igual derecho tendrán los funcionarios nombrados a plazo determinado que hayan laborado por más de un año.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 14939 del 14 de octubre de 1983)

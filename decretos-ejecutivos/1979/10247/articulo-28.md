@@ -1,1 +1,0 @@
-Artículo 28.—Horas Extra. La jornada extraordinaria de trabajo sólo podrá compensarse si ha sido autorizada debidamente por el Director Adjunto. Sólo procederá en casos excepcionales y respecto de funcionarios que no sean de confianza ni ocupen cargo de jefatura.

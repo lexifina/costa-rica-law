@@ -1,7 +1,0 @@
-Artículo 7°—Sobresueldo a Servidores en Préstamo. El otorgamiento de un sobresueldo, con cargo al Fondo del Plan Nacional de Desarrollo, a los funcionarios que laboren para la Oficina conforme al artículo 8° de la Ley de Planificación Nacional o en préstamo, debidamente formalizado, de otras administraciones públicas, no constituirá ninguna relación de servicio, sin perjuicio de que deba, sin embargo, cubrirse la parte proporcional de decimotercer mes correspondiente, y deberá sujetarse a lo siguiente:
-a) El pago de sobresueldo podrá ser acordado a los profesionales que al menos posean el título correspondiente al grado mínimo de licenciatura y cumplan funciones técnicas de alto nivel para la Oficina, conforme al artículo 8° de la Ley de Planificación Nacional, o en préstamo de otras administraciones públicas;
-b) Por concepto de sobresueldo se reconocerá hasta un máximo de un veinte por ciento del salario que percibe el funcionario en la Administración de procedencia;
-c) El pago de sobresueldo podrá ser hasta por dos años, prorrogables por una sola vez hasta por el mismo lapso. Al ponerse término a la relación, por finalización del período o por disposición de la Oficina, el beneficiario no tendrá derecho a recibir ninguna indemnización por parte de OFIPLAN;
-ch) El pago de sobresueldo se cubrirá por el tiempo efectivamente laborado en OFIPLAN; y
-d) Todo pago de sobresueldo deberá ser autorizado por el Ministro-Director.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 11712 del 25 junio de 1982)

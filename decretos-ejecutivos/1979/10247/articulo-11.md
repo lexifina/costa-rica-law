@@ -1,1 +1,0 @@
-Artículo 11.—Requisitos de Ingreso. Además de los requisitos que exija el Manual Descriptivo de Puestos, para ingresar como servidor del Fondo, se necesitará haber cumplido dieciocho años y demostrar buena conducta anterior.

@@ -1,1 +1,0 @@
-Transitorio I.—Manual de Puestos, Escala de Salarios y Régimen Disciplinario. En el plazo de dos meses, a partir de la publicación de este Estatuto, deberán estar emitidos y publicados en el Diario Oficial el Manual Descriptivo de Puestos, la Escala de Salarios y el Reglamento sobre el Régimen Disciplinario de los servidores del Fondo,

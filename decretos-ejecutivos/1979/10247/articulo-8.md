@@ -1,1 +1,0 @@
-Artículo 8°—Competencia. El Ministro-Director de la Oficina será el funcionario competente para hacer los nombramientos, ascensos, traslados, permutas, suspensiones y remociones del personal del Fondo.

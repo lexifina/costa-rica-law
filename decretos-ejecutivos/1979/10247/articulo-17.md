@@ -1,2 +1,0 @@
-Artículo 17.—Procedimiento Ordinario. Las destituciones y suspensiones mayores de diez días y las modificaciones graves a la relación de servicio, impuestas unilateralmente y de carácter individual, deberán seguir el procedimiento ordinario que señalan los artículos 308 y siguientes de la Ley General de la Administración Pública y deberán ser acordados dentro del mes siguiente a la conclusión del procedimiento.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 14939 del 14 de octubre de 1983)

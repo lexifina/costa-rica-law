@@ -1,2 +1,0 @@
-Artículo 4°—Leyes Aplicables. Serán aplicables a los servidores del Fondo las leyes especiales de Derecho Público que regulen aspectos de su relación de servicio y que no hayan quedado derogadas por la Ley General de la Administración Pública.
-Serán igualmente aplicables las leyes especiales complementarias del Código de Trabajo, que alcancen a los servidores del Poder Ejecutivo, que no hayan quedado derogadas por la Ley General de la Administración Pública, y en la medida en que no contradigan los principios generales del derecho público.

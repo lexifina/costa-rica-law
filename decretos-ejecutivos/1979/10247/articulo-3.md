@@ -1,1 +1,0 @@
-Artículo 3°—Relaciones que no son de Servicio. Quedan exceptuados de la aplicación de este Estatuto quienes fueren contratados por servicios profesionales conforme al artículo 105 de la Ley de la Administración Financiera de la República, y quienes devenguen dietas por la integración de organismos colegiados que sean parte de la Oficina o estén adscritos a ella.

@@ -1,1 +1,0 @@
-Artículo 34.—Criterios para Disciplinar. Al decidir sobre la aplicación de toda sanción se tomarán en cuenta los antecedentes del funcionario, la naturaleza de la falta, la gravedad de los perjuicios causados, y las demás circunstancias relativas al caso.

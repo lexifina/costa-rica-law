@@ -1,2 +1,0 @@
-Artículo 5°—Normas Supletorias. A falta de disposición en este Estatuto y en las demás normas aplicables a los servidores del Fondo, se aplicarán, en su orden, la jurisprudencia, los principios generales del derecho público, la costumbre, el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y la legislación conexa y sus principios en los que no resulten incompatibles con la naturaleza pública de la relación de servicio.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 14939 del 14 de octubre de 1983)
