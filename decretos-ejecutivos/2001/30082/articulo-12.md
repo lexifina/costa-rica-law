@@ -1,0 +1,1 @@
+Artículo 12.—La Unidad Técnica de la Dirección de Registros y Controles, estudiará la competencia de los instructores y el plan curricular a fin de emitir criterio sobre el registro, en un plazo no mayor de 10 días hábiles a partir de la fecha de recibo.

@@ -1,0 +1,1 @@
+Artículo 15.—Las acciones de capacitación a manipuladores de alimentos que hayan sido autorizadas, estarán sujetas a supervisiones periódicas, por parte de personal competente del Ministerio de Salud.

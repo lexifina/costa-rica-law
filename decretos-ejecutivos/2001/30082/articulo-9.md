@@ -1,0 +1,1 @@
+Artículo 9º—Se deberá ofrecer a los participantes materiales y equipo de apoyo audiovisual como pizarras, pantallas, proyectores y otros a conveniencia, con todos los accesorios para su buen funcionamiento.
