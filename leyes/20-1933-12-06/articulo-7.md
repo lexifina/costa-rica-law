@@ -1,0 +1,1 @@
+(Declarado inaplicable el párrafo final de este artículo, mediante resolución de la Corte Suprema de Justicia de las 15:00 horas del 24 de agosto de 1938, en la cual compareció como recurrente el Sr. Ricardo Tinoco Gutiérrez.)
