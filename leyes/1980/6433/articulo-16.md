@@ -1,5 +1,5 @@
-Artículo 16.- Créase un timbre de dos colones destinado al fomento de
-la industria de ganado porcino. El fondo que se constituya con la
+Artículo 16.- Créase un timbre de dos colones destinado al fomento
+de la industria de ganado porcino. El fondo que se constituya con la
 recaudación de este timbre será manejado por la Junta de Fomento Porcino,
 mediante cuentas que se abrirán en cualquiera de los bancos del Sistema
 Bancario Nacional.
