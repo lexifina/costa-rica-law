@@ -1,0 +1,1 @@
+Art 2°.- Este se cubrirá primero con mil novecientos setenta pesos que se han realizado de los bienes de Cofradías. 2°.- Con lo que a proporción del haber de cada una de las cinco que hay en aquel pueblo deberán contribuir, abandonándoseles la parte que hayan tenido en lo realizado.
