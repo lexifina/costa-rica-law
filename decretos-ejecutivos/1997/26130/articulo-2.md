@@ -1,0 +1,1 @@
+Artículo 2°—La calidad de los combustibles que RECOPE produzca o importe deberá ser controlada por un laboratorio acreditado, para lo cual RECOPE podrá firmar un convenio de cooperación con cualquiera de las universidades del Estado que disponga de dichas facilidades. Los resultados de dichos controles serán de carácter público.

@@ -1,0 +1,1 @@
+Artículo 6°—El Ministerio del Ambiente y Energía y RECOPE iniciarán, ante el Órgano Nacional de Reglamentación Técnica, los trámites necesarios para adoptar la Norma Nacional de Diesel a los estándares de calidad que se exigen en la actualidad.

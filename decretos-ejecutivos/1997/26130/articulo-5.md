@@ -1,0 +1,2 @@
+Artículo 5°—El Poder Ejecutivo apoyará las gestiones que impulse RECOPE a fin de garantizar los recursos necesarios para continuar con el proceso de modernización de la refinería, en especial lo referente a la construcción y puesta en operación de la Segunda Fase de la Primera Etapa del proyecto de Ampliación y Modernización de la Refinería.
+Asimismo, el modelo de estructura de costos para la fijación de los precios de los combustibles deberá reflejar el costo de la inversión necesaria para el mejoramiento de su calidad.
