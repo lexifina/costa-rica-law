@@ -1,0 +1,2 @@
+ARTÍCULO VIII
+Toda Parte contratante puede recurrir a los órganos competentes de las Naciones Unidas a fin de que éstos tomen, conforme a la Carta de las Naciones Unidas, las medidas que juzguen apropiadas para la prevención y la represión de actos de genocidio o de cualquiera de los otros actos enumerados en el artículo III.
