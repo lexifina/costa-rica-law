@@ -14,3 +14,4 @@ Convoca a la Asamblea Legislativa a Sesiones Extraordinarias, para conocer de pr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-07-31 | la propia norma |
+| 2 | 2001-08-09 | Decreto Ejecutivo 29704 (2001-08-09) |
