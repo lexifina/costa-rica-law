@@ -1,0 +1,1 @@
+Artículo 26.- Tanto la clasificación inicial, como la administración del plan de clasificación y valoración de puestos de la Dirección General de Educación Física y Deportes, deberá contar con el asesoramiento y visto bueno de la Dirección General de Servicio Civil.

@@ -1,0 +1,2 @@
+Artículo 8º.- Traspásanse a la Dirección General de Educación Física y Deportes, los bienes muebles e inmuebles, rentas y obligaciones, tanto de la actual Dirección General de Deportes como del antiguo Consejo Nacional de Educación Física.
+Queda facultado el Procurador General de la República para otorgar, en nombre de dichos organismos, y libre de todo impuesto o tasa, escritura de traspaso de dichos bienes a favor de la Dirección.

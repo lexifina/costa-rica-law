@@ -1,0 +1,1 @@
+Artículo 7º.- Queda facultada la Dirección General de Educación Física y Deportes para determinar cuáles son las otras actividades de tipo deportivo que, sin ser esencialmente físicas, están cubiertas por las disposiciones de la presente ley.

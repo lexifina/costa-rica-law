@@ -1,0 +1,1 @@
+Artículo 19.- El Director General de Educación Física y Deportes presentará cada año un informe general de actividades al Consejo, y éste a su vez, elevará una Memoria al Poder Ejecutivo, por medio del Ministerio de Educación Pública, haciendo las sugerencias que juzgue del caso para el mejor cumplimiento de sus fines.
