@@ -1,0 +1,1 @@
+Artículo 2°—Inscripción de oficio. Los fabricantes de bebidas alcohólicas podrán ser inscritos de oficio como contribuyentes, a partir de la fecha en que la Dirección General de Tributación detecte la omisión en la obligación de inscripción.
