@@ -15,3 +15,4 @@ Manual Procedimientos Administración Personal Docente
 | 1 | 1981-09-21 | la propia norma |
 | 2 | 1981-09-21 | SINALEVI (sin norma nombrada) |
 | 3 | 1996-12-20 | Decreto Ejecutivo 25754 (1996-12-20) |
+| 4 | 1997-02-07 | Decreto Ejecutivo 25871 (1997-02-07) |
