@@ -1,0 +1,2 @@
+Artículo 23.—Asignación de los bienes. Revisados e identificados los bienes y tramitados los documentos, se distribuirán en las oficinas que los solicitaron. En ningún caso podrá variarse la dependencia destino salvo aquellos casos autorizados por la Dirección Ejecutiva y solo en cuanto a los bienes de inventario.
+El Departamento de Proveeduría registrará el activo en su sistema de información de inventario permanente, sin perjuicio de que la dependencia judicial que lo reciba lleve su propio registro.

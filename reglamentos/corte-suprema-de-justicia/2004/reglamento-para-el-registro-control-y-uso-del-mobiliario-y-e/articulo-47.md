@@ -1,0 +1,1 @@
+Artículo 47.—Asignación temporal del mobiliario y equipo por reparación. El Departamento de Proveeduría podrá suministrar en forma temporal equipo en sustitución cuando las circunstancias así lo permitan y por haberse valorado que éste es indispensable para el funcionamiento normal de la dependencia judicial.

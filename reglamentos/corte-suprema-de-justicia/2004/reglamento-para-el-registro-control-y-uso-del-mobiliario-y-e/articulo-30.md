@@ -1,0 +1,2 @@
+Artículo 30—Reposiciones temporales. Las reposiciones temporales de equipo de cómputo a las dependencias judiciales serán aprobadas por la Dirección Ejecutiva, que a su vez ordenará al Departamento de Proveeduría el despacho del equipo sea éste nuevo o de redistribución.
+En este último caso corresponderá al Departamento de Tecnología de Información así como a los Profesionales en Informática de las Administraciones Regionales, velar por que el equipo para redistribución que se deba instalar funcione adecuadamente, previo a su entrega a las dependencias judiciales.

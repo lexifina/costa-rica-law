@@ -1,0 +1,1 @@
+Artículo 43.—Reportes. El servidor judicial está en la obligación de reportar al jefe inmediato cuando advierta la desaparición de algún bien o cuando se trasladen, se deterioren y se desprenda la identificación numérica.

@@ -1,0 +1,1 @@
+Artículo 55.—Deber de consignar en el acta de donación la prohibición de utilizar los bienes donados para otros fines. En el acta de donación de mobiliario y equipo se les prevendrá a los beneficiarios, que los bienes sólo pueden ser usados para los fines de la donación misma, por lo que no pueden ser donados, vendidos, ni traspasada su titularidad.

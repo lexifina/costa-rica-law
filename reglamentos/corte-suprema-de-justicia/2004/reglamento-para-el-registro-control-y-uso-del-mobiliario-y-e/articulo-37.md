@@ -1,0 +1,1 @@
+Artículo 37.—Responsables por el mantenimiento y custodia de activos. La jefatura de cada dependencia judicial deberá instruir adecuadamente a los servidores judiciales que ingresen a su centro de trabajo, los deberes y obligaciones que tienen con respecto al manejo, mantenimiento y custodia de los activos de la Institución.

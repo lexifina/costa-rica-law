@@ -1,0 +1,1 @@
+Artículo 8º—Identificación de Bienes. Todo bien que ingrese al Poder Judicial deberá ser identificado por un sistema de rotulado (placa de metal o plástica u otro sistema que garantice seguridad) en el que se indique el número de patrimonio impreso o grabado en el mismo bien.

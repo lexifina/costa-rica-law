@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Recepción, Registro y Almacenamiento de Bienes
+Artículo 22.—Recepción de bienes. Una vez adjudicada la compra, el proveedor entregará el bien a la Unidad del Almacén del Departamento de Proveeduría, la que se encargará de revisarlo cualitativamente y cuantitativamente contra la orden de compra y la factura, a fin de determinar si se ajusta a las características señaladas en los documentos. El Departamento de Proveeduría entregará el bien, debidamente identificado, a la dependencia judicial solicitante, a través del formulario respectivo. Será responsabilidad del servidor que reciba el activo, confrontar contra la orden de compra, para verificar que cuenta con las características solicitadas.

@@ -1,0 +1,1 @@
+Artículo 19.—Verificación de inventario. El Departamento de Proveeduría podrá verificar la existencia de los bienes inventariados a cargo de las dependencias judiciales y exigir el cumplimiento de las normas establecidas en este reglamento o instrucciones que se hayan emitido en esta materia.

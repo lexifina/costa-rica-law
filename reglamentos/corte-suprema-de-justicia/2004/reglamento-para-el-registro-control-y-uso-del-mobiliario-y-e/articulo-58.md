@@ -1,0 +1,2 @@
+Artículo 58.—Reposición de activos por destrucción, robos y desaparición de activos. La dependencia judicial estará en la obligación de gestionar ante el Departamento de Proveeduría la reposición del mobiliario y equipo, por robo, desaparición y destrucción del bien por caso fortuito.
+El Departamento de Proveeduría será el responsable de entregar el bien siempre que éste exista en inventario, caso contrario, procederá a tramitar la compra si la dependencia judicial cuenta con contenido presupuestario.

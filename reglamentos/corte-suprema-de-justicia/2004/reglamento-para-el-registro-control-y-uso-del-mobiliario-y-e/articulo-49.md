@@ -1,0 +1,1 @@
+Artículo 49.—Autorización de donaciones. La Administración podrá promover donaciones de mobiliario y equipo de oficina en desuso o desechado, conforme a lo dispuesto en el inciso e) del artículo 1º de la Ley Nº 6106, Sobre Bienes Caídos en Comiso. Le corresponderá al Jefe del Departamento de Proveeduría, dictar la resolución que autoriza la donación.

@@ -1,0 +1,1 @@
+Artículo 42.—Equipo dañado. Cuando un servidor judicial ingrese a un puesto de trabajo y encuentre equipo dañado tendrá que comunicarlo al jefe inmediato, éste a su vez, al Departamento de Proveeduría o a la Administración Regional en aquellas dependencias judiciales que cuenten con ésta, para que proceda a su reparación.

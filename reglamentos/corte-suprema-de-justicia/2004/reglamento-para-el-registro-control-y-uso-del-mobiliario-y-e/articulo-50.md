@@ -1,0 +1,1 @@
+Artículo 50.—Concepto de bienes en desuso. Se consideran bienes en desuso los obsoletos, faltos de repuestos o los descontinuados por sus fabricantes, previa calificación del Departamento de Proveeduría u otra unidad con capacidad para realizarla.

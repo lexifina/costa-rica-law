@@ -1,0 +1,1 @@
+Artículo 5º—Adquisición de bienes por confección. El Departamento de Proveeduría deberá incluir en el inventario de la oficina correspondiente, todos aquellos bienes que hayan sido confeccionados por servidores de la institución, especializados en construcción y mantenimiento.

@@ -1,0 +1,2 @@
+Artículo 53—Entrega de Donaciones. El Proceso de Administración de Bienes del Departamento de Proveeduría realizará la entrega física de los bienes objeto de donación que corresponden al Primer Circuito Judicial de San José.
+En los demás circuitos judiciales del país, el Jefe del Departamento de Proveeduría podrá comisionar a los Administradores de los Circuitos Judiciales para hacer la entrega de los bienes donados.
