@@ -1,14 +1,4 @@
 Artículo 12
 Disponibilidad de Registros
-Las entidades de intermediación financiera y las que realicen
-actividades financieras, a que se refiere el artículo 10 de este Convenio,
-deberán cumplir, pronto y dentro del plazo que se determine, las
-solicitudes de información que les dirijan las autoridades competentes
-respecto de la información y documentación citadas en el artículo
-anterior. Estos datos serán utilizados en investigaciones y procesos
-criminales, civiles o administrativos, según corresponda, relacionados con
-delitos de tráfico ilícito de drogas y delitos conexos, o con violaciones
-de lo dispuesto en este Convenio.
-Las autoridades competentes de un Estado podrán compartir información
-con las autoridades competentes de otros Estados, conforme al derecho
-interno de cada Estado Parte.
+Las entidades de intermediación financiera y las que realicen actividades financieras, a que se refiere el artículo 10 de este Convenio, deberán cumplir, pronto y dentro del plazo que se determine, las solicitudes de información que les dirijan las autoridades competentes respecto de la información y documentación citadas en el artículo anterior. Estos datos serán utilizados en investigaciones y procesos criminales, civiles o administrativos, según corresponda, relacionados con delitos de tráfico ilícito de drogas y delitos conexos, o con violaciones de lo dispuesto en este Convenio.
+Las autoridades competentes de un Estado podrán compartir información con las autoridades competentes de otros Estados, conforme al derecho interno de cada Estado Parte.
