@@ -1,0 +1,1 @@
+Artículo 9°—Las resoluciones del Consejo, deberán ser notificadas al Ministro de Seguridad Pública y adquirirán carácter de firmeza, 48 horas después de haber sido tomadas, en ese lapso el Ministro tendrá el derecho de veto por razones de legalidad u oportunidad. Sin embargo, el Ministro, cuando lo estime conveniente, podrá autorizar la firmeza de los acuerdos en forma inmediata.

@@ -1,0 +1,1 @@
+Artículo 11.—El Consejo nombrará un ejecutivo que deberá asistir alas sesiones cuando aquél así lo decida. El ejecutivo coordinará las labores y funciones del Consejo, ejecutará los acuerdos y resoluciones, levantará las informaciones e investigaciones administrativas que le comisione este organismo.

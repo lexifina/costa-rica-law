@@ -1,0 +1,1 @@
+Artículo 3°—El Consejo estará adscrito al Ministerio de Seguridad Pública, y dependerá directamente del titular de esa Cartera. Sus miembros no devengarán dietas por su gestión de integrantes del mismo.

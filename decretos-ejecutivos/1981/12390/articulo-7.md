@@ -1,0 +1,1 @@
+Artículo 7°—Cada miembro tendrá su respectivo suplente, que sustituirá al titular en las ausencias de éste. Sin embargo aun cuando el titular se encuentre presente podrá el suplente asistir a las sesiones con voz pero sin voto.

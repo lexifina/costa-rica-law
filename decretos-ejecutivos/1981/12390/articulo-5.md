@@ -1,0 +1,1 @@
+Artículo 5°—El Consejo dictará la política administrativa que se deba servir en la utilización de los recursos de vigilancia marítima. El Director de la Base Marítima deberá informar al Consejo, por escrito, cada mes, de las labores realizadas.

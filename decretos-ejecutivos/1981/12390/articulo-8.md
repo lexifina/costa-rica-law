@@ -1,0 +1,1 @@
+Artículo 8°—Las decisiones se tomarán por simple mayoría, en caso de empate el Presidente tendrá doble voto. El quórum necesario para sesionar, será de tres personas y sus reuniones serán en horas hábiles de labor.

@@ -1,0 +1,1 @@
+Artículo 6°—El Consejo estará formado por las siguientes personas: El Director de la Base Naval, el Proveedor General, el Oficial Presupuestal, un representante del Departamento Legal, el Oficial Mayor, quien será el Presidente M mismo.
