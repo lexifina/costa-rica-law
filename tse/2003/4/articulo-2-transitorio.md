@@ -1,0 +1,2 @@
+Transitorio II.—Dentro del plazo de un mes contado a partir de la promulgación de este decreto, los tesoreros de los partidos políticos deberán informar al Tribunal Supremo de Elecciones sobre las cuentas corrientes que tengan esas agrupaciones, destinadas a depositar las contribuciones, donaciones o aportes privados.
+Dado en San José, a las catorce horas con treinta minutos del dieciséis de junio del dos mil tres.

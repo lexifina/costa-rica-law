@@ -1,0 +1,1 @@
+Transitorio I.—Se exceptúa de la aplicación de las disposiciones resultantes de la presente reforma el informe que deberán presentar los partidos políticos sobre las contribuciones recibidas durante el período comprendido entre abril y junio del presente año.
