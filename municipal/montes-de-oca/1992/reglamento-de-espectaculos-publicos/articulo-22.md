@@ -1,1 +1,0 @@
-Artículo 22.- Los dueños de establecimientos y/o los responsables de los Espectáculos Públicos están obligados a denunciar de inmediato y por escrito ante la Municipalidad cualquier anomalía cometida por algún funcionario municipal de lo contrario y ante demostración posterior de un hecho ilícito será considerado para los efectos posteriores como coadyuvante.

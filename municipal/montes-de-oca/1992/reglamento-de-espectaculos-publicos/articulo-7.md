@@ -1,3 +1,0 @@
-CAPITULO III
-De la Declaración Jurada
-Artículo 7°—Las personas físicas o jurídicas interesadas en obtener la conmutación a que se refiere el artículo deberán con quince días de anterioridad a la fecha de la realización de la actividad o espectáculo público solicitarlo por escrito en papel común y con un timbre municipal, por valor de ¢105,00 (ciento cinco colones) y expresando claramente el interés en la conmutación. Deberán a su vez adjuntar constancia de la institución beneficiaría en caso de Comités o Asociaciones sin personería jurídica deberán haberse juramentado ante el Concejo Municipal, en la que indique que el producto íntegro de la recaudación se destinará a fines benéficos.

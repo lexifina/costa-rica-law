@@ -1,1 +1,0 @@
-Artículo 20.—Los funcionarios municipales responsables de la efectiva recaudación del impuesto coordinarán con la Gobernación de la provincia GAR y Civil fin de obtener la colaboración de estos en la aplicación de este reglamento. Toda acción para lograr los objetivos de este artículo deberán ser comunicados de previo al Ejecutivo Municipal.
