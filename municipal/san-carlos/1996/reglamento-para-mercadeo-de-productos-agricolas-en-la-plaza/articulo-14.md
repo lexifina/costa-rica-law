@@ -1,0 +1,1 @@
+Artículo 14.-En caso fortuito o de fuerza mayor, o cuando ajuicio del Concejo Municipal la medida sea aconsejable y necesaria, se podrá acordar la no prestación del servicio, sin previa notificación a los interesados, en caso que el Concejo no pudiera conocer del asunto se autoriza al señor Ejecutivo a tomar una resolución.

@@ -1,0 +1,1 @@
+Artículo 22.-EI vendedor de plaza pagará en la oficina del Administrador del Mercado, el derecho de uso en las primeras horas del día viernes, por el monto establecido por el Concejo Municipal, entregándose a éste un recibo en el que conste el monto pagado.

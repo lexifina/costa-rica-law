@@ -1,0 +1,1 @@
+Artículo 11.-Se permitirá la entrada de productos agrícolas para surtir los puestos el día jueves, después de las quince horas, permitiéndose dar inicio a las ventas después de cumplidas las diecisiete horas de ese mismo día.
