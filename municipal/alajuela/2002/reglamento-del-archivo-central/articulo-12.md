@@ -1,0 +1,1 @@
+Artículo 12.—Los investigadores que realicen trabajos con información del Archivo, se les solicitara una copia del trabajo realizado para incorporarlo, si así se considera conveniente, al patrimonio del Archivo Central de la Municipalidad de Alajuela.

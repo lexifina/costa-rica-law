@@ -1,0 +1,4 @@
+La Municipalidad de Alajuela con base en el acuerdo del Concejo Municipal, sesión ordinaria N° 8-2002, artículo 1º, capítulo VI, celebrada el día martes 19 de febrero del 2002, el cuál quedó definitivamente aprobado en la sesión ordinaria Nº 10-2002, artículo 1º, capítulo XII, del día martes 5 de marzo del 2002, procede a publicar el Reglamento del Archivo Central de la Municipalidad de Alajuela.
+CAPÍTULO I
+Definición
+Artículo 1º—El Archivo Central de La Municipalidad de Alajuela es un área de trabajo del Sistema Unificado de Información Institucional que tiene a cargo reunir, custodiar y administrar el conjunto de documentos recibidos y producidos por las diferentes dependencias de la Municipalidad de Alajuela, en ejercicio de sus funciones y que se conservan debidamente organizados para su utilización en la gestión administrativa, la investigación, la extensión, la protección, la información a los ciudadanos y la cultura.
