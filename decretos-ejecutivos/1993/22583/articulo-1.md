@@ -1,0 +1,9 @@
+EL PRESIDENTE DE LA REPUBLICA Y LOS MINISTROS DE COMERCIO EXTERIOR, PLANIFICACION NACIONAL Y POLITICA ECONOMICA, HACIENDA, PRESIDENCIA Y CIENCIA Y TECNOLOGIA,
+En uso de las facultades conferidas por el artículo 140, inciso 3) de la Constitución Política de la República, la ley N° 7040 de 25 de abril de 1986,
+Considerando:
+1.-Que como parte .de las atribuciones de esta institución se contempla el coadyuvar al crecimiento económico del país y su desarrollo a través de la definición de una política comercial externa que permita mejores condiciones de acceso a los mercados y una mayor incorporación de Costa Rica en la economía mundial, en forma coordinada con el resto de la política económica del país.
+2.-Que asimismo es de suma importancia para el desarrollo del país, que el gobierno se avoque a la tarea de formular, planificar y coordinar las políticas de fomento, de diversificación y de desarrollo de las exportaciones y de las inversiones para el comercio exterior.
+3.--Que el auge de la actividad exportadora conlleva la necesidad imperiosa de estimular las inversiones a través de una atención eficiente y eficaz al inversionista para así contribuir de mayor y mejor forma al crecimiento económico del país.
+4.--Que para lograr el objetivo propuesto resulta imprescindible la creación de un "Sistema Integrado de Servicios a la Inversión" que permita agilizar todos los servicios requeridos por el inversionista en nuestro país. Por tanto,
+DECRETAN:
+Artículo 1.-Créase el Sistema Integrado de Servicios a la Inversión en adelante el SISI, el cual estará integrado por todas aquellas instituciones que de una u otra forma estén involucradas con la prestación de servicios a la inversión, y cuyo objetivo común será el estimular las inversiones a través de una atención eficiente y eficaz al inversionista, las cuales estarán obligadas a prestarse el apoyo logístico necesario para el buen funcionamiento del SISI.
