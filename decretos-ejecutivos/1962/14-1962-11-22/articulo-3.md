@@ -1,0 +1,1 @@
+Articulo 3°-El cumplimiento y fiscalización del presente decreto estará a cargo de la Oficina de Estupefacientes del Ministerio de Salubridad Pública, debidamente asesorada por el Colegio de Cirujanos Dentistas.

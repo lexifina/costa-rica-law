@@ -1,0 +1,1 @@
+Articulo 4°-La tenencia de medicamentos, instrumentos, material o equipos destinados al ejercicio de la Cirugía Dental en poder de personas que no posean la credencial o patente que para el efecto librará el Colegio de de Cirujanos Dentistas, será penada de conformidad can los articulas 348 y 349 del Código Sanitario de Costa Rica.
