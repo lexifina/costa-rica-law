@@ -1,0 +1,1 @@
+Artículo 6°—Este Contrato, los que ha suscrito el Ministerio de Obras Publicas y Transportes para estudios de sueldos, disenos y supervisión de construcción en e! Puerto de Limón y los que se formalicen con fondos del préstamo que por esta ley se aprueba, están exentos de toda clase de impuestos y derechos.
