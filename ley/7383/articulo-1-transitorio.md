@@ -1,4 +1,5 @@
-TRANSITORIO ÚNICO: El centro de internación especial, al que se refiere esta Ley, debe empezar a funcionar en un plazo máximo de un año, contado a partir de su vigencia; dependerá del juzgado Tuelar de Menores y su funcionamiento se programará de acuerdo con las necesidades del servicio.
-Comuniquese al Poder Ejecutivo
+TRANSITORIO ÚNICO: El centro de internación especial, al que se refiere esta Ley, debe empezar a funcionar en un plazo máximo de un año, contado a partir de su vigencia; dependerá del juzgado Tutelar de Menores y su funcionamiento se programará de acuerdo con las necesidades del servicio.
+(La Sala Constitucional mediante resolución N° 1011 del 21 de febrero de 1995, estableció que este transitorio no resulta inconstitucional, en tanto “…se interprete que la actividad del Juez Tutelar no es típicamente administrativa sino de fiscalización y vigilancia, con la finalidad de dar seguimiento a las medidas impuestas a los menores prevenidos. Además, que la mayoría de edad es una causa de extinción de la acción tutelar y de la medida correspondiente y en consecuencia, quien alcance la mayoría de edad, no puede ser sometido a ninguna medida tutelar ni remitido a la jurisdicción penal ordinaria.”)
+Comuníquese al Poder Ejecutivo
 Asamblea Legislativa. San José, a los ocho días del mes de marzo de mil novecientos noventa y cuatro.
 Dado en la Presidencia de la República. San José, a los dieciséis días del mes de marzo de mil novecientos noventa y cuatro.
