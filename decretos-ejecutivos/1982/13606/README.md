@@ -14,3 +14,4 @@ Reglamento del Colegio de Contadores Públicos de Costa Rica
 | --- | --- | --- |
 | 1 | 1982-05-25 | la propia norma |
 | 2 | 1982-05-25 | Decreto Ejecutivo 17594 (1987-05-05) |
+| 3 | 2002-04-30 | Decreto Ejecutivo 30370 (2002-04-30) |
