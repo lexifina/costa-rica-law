@@ -1,0 +1,6 @@
+Artículo 3º—Prohibición. Prohíbese lo siguiente:
+a) Emplear o fomentar la utilización de minas.
+b) Desarrollar, producir, adquirir, almacenar, conservar, importar, exportar, poseer, transferir, traficar o trasegar, directa o indirectamente, minas, dispositivos antimanipulación, piezas o materia prima para la fabricación de estos.
+c) Instigar, ayudar, estimular o inducir, de una manera u otra, a cualquiera para que participe, directa o indirectamente, en una actividad con prohibición de ser realizada en el territorio nacional o fuera de él, conforme a lo estipulado en la Convención sobre la prohibición del empleo, el almacenamiento, la producción y transferencia de minas, su destrucción y la legislación interna sobre la materia.
+Toda persona que conozca de la comisión de alguna de las situaciones anteriormente enunciadas, está obligada a denunciarla ante la autoridad competente.
+Exceptúanse la cantidad de minas, dispositivos antimanipulación, piezas e implementos necesarios para la fabricación o el ensamblaje de los artefactos regulados en esta Ley, que sean absolutamente necesarios para el desarrollo de las técnicas de detección, la limpieza o destrucción de minas y el adiestramiento en dichas técnicas por parte de las fuerzas de policía.
