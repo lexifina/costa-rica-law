@@ -7,3 +7,4 @@ municipalidad. El producto de este impuesto deberá dedicarse
 exclusivamente a los programas de mantenimiento y conservación de calles
 urbanas y caminos vecinales y, además, a la adquisición de maquinaria y
 equipo para esos efectos.
+(Ver nota del artículo 4º)
