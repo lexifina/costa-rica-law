@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros de la Junta Directiva podrán hacer constar en el acta su voto contrario y los motivos que lo justifiquen, quedando en tal caso exento de las responsabilidades que en su caso pudieren derivarse de los acuerdos tomados. Si se tratare de formular dictámenes o propuestas los votos salvados se comunicarán con aquéllos.

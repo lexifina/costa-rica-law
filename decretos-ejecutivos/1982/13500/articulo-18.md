@@ -1,0 +1,1 @@
+Artículo 18.—Además de las indicadas en el artículo anterior, el Presidente., de la Junta Directiva, podrá nombrar las Comisiones Especiales que considere convenientes, para el estudio, examen o investigación, de cualquier asunto relativo al Consejo que amerite la constitución de la misma.

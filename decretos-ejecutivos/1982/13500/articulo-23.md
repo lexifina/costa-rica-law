@@ -1,0 +1,1 @@
+Artículo 23.—Los acuerdos tomados por la Junta Directiva quedarán firmes una vez aprobada el acta en que constan, a menos que se interponga y se acoja el recurso de revisión conforme con lo que dispone el artículo siguiente. Por unanimidad la Junta Directiva podrá declarar firme cualquier acuerdo en la misma sesión en que lo toma.

@@ -1,0 +1,1 @@
+Artículo 11.—Cuando un miembro de la Junta Directiva manifieste el deseo de estudiar más un asunto, petición o proposición sometida a conocimiento de la misma, se postergará la votación hasta la sesión siguiente.

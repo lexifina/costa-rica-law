@@ -1,0 +1,1 @@
+Artículo 13.—A las sesiones de la Junta Directiva deben asistir el Director Ejecutivo, el Auditor y los funcionarios del Consejo que la Junta Directiva o el Presidente crean conveniente llamar para que rindan informe en cuanto a los asuntos que figuren en el orden del día, concediéndoles o no el derecho a participar en las deliberaciones con voz pero sin voto.
