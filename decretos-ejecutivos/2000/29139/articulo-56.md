@@ -1,0 +1,1 @@
+Artículo 56.—Las licencias concedidas de acuerdo con lo dispuesto en el artículo anterior, tendrán vigencia por el período lectivo que se estipule en el contrato, cuyo tiempo será el necesario para asistir a lecciones y para el traslado al centro educativo correspondiente, debiéndose asistir al trabajo durante el período en que oficialmente no debe asistir a clases

@@ -1,0 +1,1 @@
+Artículo 40.—Se considerará llegada tardía el ingreso al trabajo después de cinco minutos de la hora exacta para el comienzo de las labores. En casos muy calificados, a juicio del superior inmediato, se justificarán las llegadas tardías a efecto de no aplicar la sanción correspondiente, dentro de los tres días hábiles posteriores a la fecha en que ocurrió el hecho.

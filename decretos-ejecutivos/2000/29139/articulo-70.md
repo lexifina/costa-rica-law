@@ -1,0 +1,1 @@
+Artículo 70.—Para realizar los ascensos, el Instituto acordará los movimientos con la participación de Gestión Humana y el superior correspondiente. Lo anterior, de conformidad con los lineamientos establecidos en el artículo 33 del Estatuto.

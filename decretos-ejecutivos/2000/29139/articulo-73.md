@@ -1,0 +1,1 @@
+Artículo 73.—Los recargos de puestos de clase diferente y de mayor categoría, cuando excedan de un mes, estarán sujetos a la aprobación de la Dirección General y serán acordados siempre que el colaborador reúna los requisitos de la clase que se pretende recargar.

@@ -1,0 +1,1 @@
+Artículo 101.—En un plazo irrevocable de veinticuatro horas posteriores a la denuncia, el Director General procederá a integrar el Órgano Director, el cual tendrá bajo su responsabilidad el procedimiento sumario administrativo.

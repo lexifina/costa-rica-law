@@ -1,0 +1,3 @@
+CAPÍTULO III
+Relaciones de Servicio
+Artículo 6º—Las relaciones de servicio entre el Instituto y sus colaboradores, se regirán por las disposiciones del Código de Trabajo y demás leyes conexas y complementarias, la Ley General de la Administración Pública, la Ley de Salarios de la Administración Pública, el Estatuto de Servicio Civil y su Reglamento, Reglamento General del IAFA, excluyéndose de su aplicación quienes fueran contratados por servicio conforme al artículo 105 de la Ley de la Administración Financiera de la República, así como quienes sean remunerados por medio de dietas por la integración de organismos colegiados que sean parte del Instituto o adscritos a él.

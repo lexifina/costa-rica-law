@@ -1,0 +1,1 @@
+Artículo 23.—Se exceptúan de la jornada y horario señalados en el artículo anterior, aquellos colaboradores de Servicios Generales que se requieran y a los cuales el Proceso de Servicios Administrativos les asignará un horario acorde con la naturaleza de sus funciones.

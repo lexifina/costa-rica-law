@@ -1,0 +1,1 @@
+Artículo 26.—A los colaboradores que realizan labores que por su indudable naturaleza, se encuentran excluidos de la limitación de la jornada de trabajo, de acuerdo con las disposiciones legales aplicables, se les podrá exigir una jornada de hasta doce horas diarias, con una hora y media de descanso.

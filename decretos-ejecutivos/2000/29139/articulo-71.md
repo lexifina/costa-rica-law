@@ -1,0 +1,1 @@
+Artículo 71.—Cuando el Coordinador del Área estime que han variado sustancial y permanentemente las tareas y responsabilidades de un puesto, solicitará a Gestión Humana el trámite para la reasignación de dicho puesto, todo esto de conformidad con lo que dispone el Capítulo XI del Reglamento del Estatuto

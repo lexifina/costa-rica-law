@@ -1,0 +1,1 @@
+Artículo 88.—La Dirección General autorizará y facilitará la creación de comisiones de seguridad e higiene del trabajo para que se capaciten en salud ocupacional, emergencias y riesgos del trabajo, que servirán de retroalimentación al resto de los colaboradores respecto a la difusión y práctica de métodos y sistemas técnicos de prevención en estas materias en forma permanente.

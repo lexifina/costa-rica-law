@@ -1,0 +1,1 @@
+Artículo 50.—Únicamente se podrán disfrutar vacaciones proporcionales cuando al no cumplir las cincuenta semanas de servicio continuo, deviene la terminación de la relación de servicio, o ante vacaciones colectivas que deba dar el Instituto. Para ese efecto se aplicará lo dispuesto en el artículo 29 del Reglamento del Estatuto.

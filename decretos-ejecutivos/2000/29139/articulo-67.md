@@ -1,0 +1,1 @@
+Artículo 67.—El colaborador que permaneciere enfermo por un período de tres meses o más, podrá a juicio de la Dirección General, ser separado del puesto, mediante el pago del importe del preaviso y del auxilio de cesantía correspondientes.

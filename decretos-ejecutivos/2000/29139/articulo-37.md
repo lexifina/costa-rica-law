@@ -1,0 +1,1 @@
+Artículo 37.—Los colaboradores o, en su defecto, el superior inmediato, deberán justificar las omisiones de marca de tarjeta en que incurran por motivo de giras o cuando se destaquen temporalmente en un lugar distinto a su lugar habitual de trabajo.

@@ -1,0 +1,1 @@
+Artículo 24.—No están sometidos a los límites de jornada de servicios el Director, los Coordinadores de Área, los Encargados de Procesos y Subprocesos. En ningún caso esta disposición deberá originar discriminaciones injustificadas, que afecten la buena marcha del Instituto.

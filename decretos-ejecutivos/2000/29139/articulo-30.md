@@ -1,0 +1,1 @@
+Artículo 30.—Son hábiles para el trabajo todos los días del año, excepto los feriados y los que el Poder Ejecutivo declare de asueto. Sin embargo, podrá laborarse dichos días de conformidad con las disposiciones reglamentarias correspondientes.

@@ -1,0 +1,2 @@
+Artículo 32.—Los días de asueto, serán libres para los funcionarios del Instituto, cuando el acto que los declare como tales, así lo establezca.
+Se tomarán como libres los días feriados reconocidos de esa forma por el Poder Ejecutivo. Se exceptúan del disfrute de estos días, aquellos colaboradores que por la naturaleza de sus funciones deban laborarlos y en cuyo caso tendrán derecho al pago de tiempo extraordinario de acuerdo con la normativa vigente.

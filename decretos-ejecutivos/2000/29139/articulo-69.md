@@ -1,0 +1,2 @@
+Artículo 69.—Todo traslado de colaboradores que se dé internamente en el Instituto, deberá contar con la anuencia tanto del superior inmediato y del Coordinador de Área que lo cede como del que lo recibe, salvo en los casos en que sea por disposición expresa del Director General.
+Si el traslado es externo, ya sea del Instituto a otra institución pública o bien de ésta hacia el Instituto, se deberá efectuar en observancia de lo que al respecto establezca la normativa vigente.

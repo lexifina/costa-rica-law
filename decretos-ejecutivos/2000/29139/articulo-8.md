@@ -1,0 +1,1 @@
+Artículo 8º—Se consideran colaboradores regulares todos los que hayan sido nombrados según los procedimientos y disposiciones contenidos en los capítulos IV y V del Estatuto y III y V de su Reglamento.

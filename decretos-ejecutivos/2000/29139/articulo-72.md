@@ -1,0 +1,1 @@
+Artículo 72.—En los casos de ascenso y de traslado y a juicio de la Administración, se aplicará el período de prueba, a fin de garantizar mejor los servicios que brinda el Instituto. Durante ese período el colaborador gozará de licencia en su puesto anterior el cual será aplicable también a su sustituto.

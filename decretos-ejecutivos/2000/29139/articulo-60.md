@@ -1,0 +1,1 @@
+Artículo 60.—Las licencias para asistir a cursos de adiestramiento mediante el otorgamiento de becas u otras facilidades, se regularán según las disposiciones de la Ley de Licencias para Adiestramiento de Servidores Públicos Nº 3009 del 18 de junio de 1962 y sus reformas.

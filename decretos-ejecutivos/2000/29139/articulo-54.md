@@ -1,0 +1,1 @@
+Artículo 54.—Los colaboradores del Instituto disfrutarán de licencia con goce de salario hasta por una semana por motivo de matrimonio, o por el fallecimiento de sus padres, hermanos, hijos y cónyuge.

@@ -1,0 +1,2 @@
+Artículo 11.—Para que un colaborador reciba la protección del Estatuto, deberá pasar satisfactoriamente un período de prueba de hasta tres meses. Al vencimiento de éste o antes, el superior inmediato y su superior deberán recomendar o rechazar por escrito su nombramiento en propiedad ante Gestión Humana, con base en el formulario establecido para tal efecto.
+Cumpliendo con lo anterior se dará por terminado el referido período de prueba y se procederá a nombrarlo en propiedad o a despedirlo de conformidad con el artículo 31 inciso b) del Estatuto de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 83.—Conjuntamente con el expediente personal, Gestión Humana confeccionará un prontuario, a fin de llevar un control expedito de: sus calificaciones de servicio, asistencia y puntualidad, aplicación de medidas disciplinarias y todos aquellos datos de importancia provenientes de las acciones de personal iniciándose el prontuario con los datos del ingreso del colaborador.

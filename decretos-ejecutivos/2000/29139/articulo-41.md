@@ -1,0 +1,1 @@
+Artículo 41.—La llegada tardía injustificada superior a treinta minutos implicará la pérdida de media jornada, con la deducción salarial respectiva, sin perjuicio de la sanción disciplinaria que le corresponda.

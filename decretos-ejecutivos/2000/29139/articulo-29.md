@@ -1,0 +1,2 @@
+Artículo 29.—El trabajo extraordinario, tanto en días hábiles como días feriados y de descanso semanal, solo podrá autorizarse en situaciones excepcionales, cuando sea indispensable satisfacer exigencias improrrogables del servicio público, según el artículo 17 de la Ley de Salarios de la Administración Pública.
+Cuando no fuere posible realizar el pago en dinero, el trabajo extraordinario podrá compensarse en tiempo proporcional a las horas laboradas por este concepto.

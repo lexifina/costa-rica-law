@@ -1,0 +1,1 @@
+Artículo 4º—El Director General, los Coordinadores de Área, Encargados de Procesos y Subprocesos, y, en general todos aquellos colaboradores que tengan bajo su responsabilidad tareas de administración, dirección y supervisión de personal, serán responsables de velar por la correcta aplicación de todas las disposiciones del presente Reglamento.

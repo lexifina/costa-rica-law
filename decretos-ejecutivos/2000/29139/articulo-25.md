@@ -1,0 +1,1 @@
+Artículo 25.—El Instituto podrá modificar transitoriamente los horarios establecidos en este reglamento, siempre que circunstancias especiales así lo justifiquen y no se perjudique el servicio público o a los colaboradores, para tal efecto deberá notificarse a sus colaboradores con un mínimo de treinta días de anticipación, salvo acuerdo escrito entre las partes.

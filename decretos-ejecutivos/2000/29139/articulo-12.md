@@ -1,0 +1,1 @@
+Artículo 12.—El Instituto está facultado para asignarle a sus colaboradores, las labores pertinentes de conformidad al Manual de Puestos correspondiente, siempre que éstas sean compatibles con sus aptitudes, fuerzas, estado o condición respecto a aquellas para cuyo ejercicio fueron nombrados.
