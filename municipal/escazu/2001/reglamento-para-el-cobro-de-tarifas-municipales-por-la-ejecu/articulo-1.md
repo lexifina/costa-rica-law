@@ -1,0 +1,17 @@
+MUNICIPALIDAD DE ESCAZÚ
+El Concejo Municipal del Cantón de Escazú, en su sesión ordinaria N° 165, celebrada el jueves tres de mayo del dos mil uno, acordó:
+"Aprobar la moción presentada por los regidores Hernández Molina y Aguilar Sandi miembros de la Comisión de Asuntos Jurídicos que literalmente: "Para que el Concejo municipal en acatamiento del procedimiento establecido en el párrafo segundo del procedimiento establecido en el párrafo segundo del articulo 43 del Código municipal que obliga a que una vez, transcurrido el plazo otorgado en la publicación de La Gaceta para la consulta pública no vinculante, se pronuncie sobre el tundo en lo que respecta a la aprobación del reglamento proceda a aprobar los reglamentos indicados que son "Reglamento pura el Cobro de Tarifas
+Municipales por la ejecución de las Obligaciones de los Munícipes, ante su Incumplimiento" y el "Reglamento para la Instalación de Publicidad Exterior en el Cantón de Escazú". Ordénese la
+publicación de los mismos como reglamentos aprobados. Aprobado, acuerdo Firme. Firme.
+Exposición de motivos
+La Municipalidad de Escazú en ejercicio de las competencias otorgadas por el articulo 169 de la Constitución Política y 3° del Código Municipal, debe administrar \ velar por los intereses y servicios locales, concepto que conlleva el salvaguardar la seguridad, la salud, el medio ambiente, el ornato y en general, e! velar por garantizarle a los vecinos del Cantón una vida digna, así como en ejercicio de la autonomía municipal constitucionalmente reconocida en el articulo 170 de nuestra Carta Magna; procede a Reglamentar el cobro de tarifas municipales por la ejecución de
+las obligaciones de los munícipes. ante su incumplimiento, de conformidad con lo establecido en los artículos 75, 76, 76 bis. y 76 ter del Código Municipal.
+Esta nueva normativa pretende lograr que los Munícipes no sólo conozcan cuáles son sus obligaciones, sino que conscientes de que deben ser asumidas por éstos, en aras de mejorar el nivel de vida de toda la comunidad del Cantón de Escazú, y directamente el de cada uno de ellos, ejecuten voluntariamente dichas obligaciones, de forma eficiente y oportuna. En consecuencia, la arrogación que realiza el Gobierno Local de las tareas de los Munícipes, debe ser excepcional, pues el mismo representa la negligencia de propietarios y su desinterés por procurar una vida digna, tanto de estos como de sus vecinos.
+Este Reglamento garantizará los principios constitucionales del debido proceso, proporcionalidad, generalidad e igualdad, de forma tal que los munícipes que incumplan sus obligaciones conozcan las consecuencias de su incumplimiento, así como las potestades de la administración municipal para asumir la ejecución de dichas obligación es; potestades que por ley le han sido asignadas al Gobierno Local en aras de salvaguardar efectivamente la seguridad, la salud, el medio ambiente y el órnalo del Cantón.
+Por lo tanto, el Concejo Municipal de la Municipalidad de Escazú, en uso de las facultades que le otorga la Constitución Política y el Código Municipal, acuerda emitir el siguiente:
+REGLAMENTO PARA EL COBRO DE TARIFAS MUNICIPAI ES
+POR LA EJECUCIÓN DE LAS OBLIGACIONES DE LOS
+MUNICIPES, ANTE SU INCUMPLIMIENTO
+CAPITULO PRIMERO
+Disposiciones generales
+Artículo 1°—Del objeto: El presente reglamento tiene por objeto establecer las lanías que deben pagar los munícipes del Cantón de Escazú por el incumplimiento de los deberes previstos en el artículo 75 del Código Municipal, y el procedimiento para su cobro.
