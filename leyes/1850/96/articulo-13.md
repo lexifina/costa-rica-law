@@ -1,0 +1,1 @@
+Art.13. Para evitar reclamos y facilitar las operaciones de entregar y recibir los licores, el Intendente proveerá á todas las administraciones de una botella sellada, y de una medida grande que contenga de veinte á veinticinco botellas, la cual será tambien sellada por la Intendencia.

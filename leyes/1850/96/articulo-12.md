@@ -1,0 +1,1 @@
+Art. 12. Los alcaides cuando reciban en el almacen una partida de licores de la proveduria respectiva, confrontaran el resultado con la guia del vigilante de la fábrica, y si hubiere alguna diferencia en favor ó en contra, la anotarán en su libro; no obstante que el recibo de la administracion debe constar de la cantidad que resultó por la medida en el almacen.

@@ -1,0 +1,1 @@
+Art. 15. Queda el Intendente encargado de la ejecusion de este decreto, el cual comenzará a tener efecto el dia 1º del mes de agosto próximo.-Dado en la ciudad de San José, a los dieziocho dias del mes de julio de mil ochocientos cincuenta,-Juan; Rafael Mora. -El Ministro de Estado en el Despacho de Hacienda y Guerra, Manuel José Carazo."

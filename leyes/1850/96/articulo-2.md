@@ -1,0 +1,1 @@
+Art. 2. Las administraciones de este ramo en los demas partidos, à excepcion de los de Esparza y Guanacaste, se compondrán de un Adininistrador con el sueldo de treinta y cinco pesos, y un alcaide vista con el de veinte pesos mensuales.
