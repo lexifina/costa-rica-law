@@ -1,0 +1,12 @@
+3º—Instrumentación inicial. Como requisito previo a la suscripción de un programa específico tendiente a perfeccionar, adaptar e instrumentar el SIPLA, las partes acuerdan desarrollar una primera etapa de cooperación tendiente a evaluar con detalle el alcance de las obligaciones descritas en la cláusula Principios generales - Obligaciones de las partes.
+Esta primera etapa consistirá en:
+i) Evaluar la información de los inventarios físicos y de estado de la infraestructura disponible en la República de Costa Rica, analizando la posibilidad de aprovecharla dentro del nuevo sistema.
+ii) Evaluar los criterios y/o sistemas de gestión utilizados actualmente, analizando la posibilidad de su aprovechamiento dentro del nuevo sistema.
+iii) Evaluar el soporte informático actual de la República de Costa Rica, realizando las recomendaciones pertinentes.
+iv) Formular un detallado programa y presupuesto de trabajo para el efectivo perfeccionamiento e instrumentación del SIPLA en la República de Costa Rica.
+Esta primera etapa se desarrollará de acuerdo con el plan de trabajo expuesto en el anexo de este Memorando de Entendimiento, el que se iniciará cuando ambas partes hayan procedido a comunicar a la otra su disposición a comenzar las tareas.
+En el anexo se esbozan los costos y recursos que insumirá el mencionado plan de trabajo para cada una de las partes, sobre la base que:
+i) Los honorarios del personal de cada parte corresponderán a cada una de ellas.
+ii) Los gastos de traslado, seguro, alojamiento y viáticos de los funcionarios de la República Oriental del Uruguay derivados de las misiones en Costa Rica, corresponderán a la República de Costa Rica, pudiéndolos atender directamente o por terceros.
+iii) Los honorarios y gastos de los consultores individuales o firmas consultoras que fueran necesarios contratar para completar las tareas a realizar por la República Oriental del Uruguay, corresponderán a la República de Costa Rica.
+iv) En la medida de lo posible se aplicarán a los funcionarios y expertos de cada una de las partes, designados a trabajar en el territorio de la otra, las normas tendientes a conceder a los mismos todas las facilidades necesarias para el cumplimiento de su labor, de índole migratoria, exoneración tributaria o privilegio que pudiera corresponder, de conformidad con lo enunciado en los artículos X, XI y XII del Convenio de Cooperación Técnica y Científica del 19 de febrero de 1998, ratificado como Ley N° 8082 de la República de Costa Rica y por la Ley N° 17103 de la República Oriental del Uruguay.

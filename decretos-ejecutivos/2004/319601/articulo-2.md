@@ -1,0 +1,17 @@
+2º—Principios generales.
+Obligaciones de las partes.
+Las partes acuerdan que las obligaciones generales de cada uno serán:
+i) Obligaciones generales:
+· La República Oriental del Uruguay cede (sin costo) a la República de Costa Rica los derechos de uso del SIPLA en su versión original; correspondiéndole a la República de Costa Rica el suministro del equipamiento informático (hardware y software comercial básico) necesario para su correcta implementación.
+· La República Oriental de Uruguay se compromete a asesorar la República de Costa Rica en la instrumentación del SIPLA en todo lo concerniente a capacitación de su funcionamiento, definición de políticas, estrategias, metodologías de relevamientos, etc.; correspondiéndole a la República de Costa Rica la efectiva ejecución de los relevamientos y los planes de inversión.
+· La República de Costa Rica, directamente o por terceros, se compromete a cubrir los gastos de traslado, seguro, alojamiento y viáticos que realicen los funcionarios de la República Oriental del Uruguay durante la instrumentación del SIPLA; correspondiéndole a la República Oriental del Uruguay el costo de los honorarios y beneficios sociales de sus funcionarios involucrados, de conformidad con los artículos X, XI y XII del Convenio de Cooperación Técnica y Científica del 19 de febrero de 1998.
+ii) Perfeccionamiento y adaptación del SIPLA:
+· La República de Costa Rica se compromete a perfeccionar y adaptar el SIPLA de acuerdo con términos de referencia que elaboren ambas partes en conjunto. Cuando a estos efectos la República de Costa Rica deba contratar consultores individuales o firmas consultoras, los mismos deberán reunir las condiciones de antecedentes, experiencia y capacidad acordadas con la República Oriental del Uruguay.
+· La República Oriental del Uruguay se compromete a asesorar a la República de Costa Rica en la supervisión técnica de los consultores o consultoras que realicen el perfeccionamiento y adaptación del software.
+· La República de Costa Rica, directamente o por terceros, se compromete a cubrir los eventuales gastos de traslado, seguro, alojamiento y viáticos que realicen los funcionarios de la República Oriental del Uruguay durante la supervisión del perfeccionamiento y adaptación del SIPLA; correspondiéndole a la República Oriental del Uruguay el costo de los honorarios y beneficios sociales de sus funcionarios involucrados de conformidad con los artículos X, XI y XII del Convenio de Cooperación Técnica y Científica del 19 de febrero de 1998.
+· La República de Costa Rica cede (sin costo) a la República Oriental del Uruguay los derechos de uso de las mejoras (perfeccionamiento) realizadas a la versión original del SIPLA; correspondiéndole a la República Oriental del Uruguay el suministro del equipamiento informático (hardware y software comercial básico) necesario para su correcta implementación.
+Derechos de propiedad del software
+Las partes acuerdan que los derechos de propiedad del SIPLA, en su versión original o perfeccionada, le pertenecerán a la República Oriental del Uruguay.
+Al respecto se acuerda que:
+i) La República de Costa Rica no podrá ceder a ninguna entidad de un tercer país, ni a ninguna entidad de carácter internacional, los derechos de uso de ninguna versión o módulo del SIPLA.
+ii) La República de Costa Rica podrá ceder los derechos de uso del SIPLA a otras entidades públicas de Costa Rica, sólo con el consentimiento previo por escrito de la República Oriental del Uruguay.
