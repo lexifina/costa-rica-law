@@ -1,0 +1,1 @@
+Artículo 17.-La Junta podrá alquilar las instalaciones. para actividades conexas y diversas, siempre que no afecte el giro principal de sus actividades. Toda solicitud de las instalaciones deberá resolverse en un plazo máximo de 8 días a partir de la solicitud escrita, en caso de rechazo el afectado podrá apelar ante el Alcalde Municipal.

@@ -1,0 +1,1 @@
+Artículo 6°-Las personas nombradas para la Junta inician su labor a partir de la juramentación ante el Presidente del Concejo, se levantará el acta respectiva. Los nombrados durarán en sus cargos dos años y podrán ser reelectos, no pudiendo ser removidos sin justa causa.

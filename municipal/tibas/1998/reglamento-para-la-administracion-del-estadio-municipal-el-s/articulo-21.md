@@ -1,0 +1,1 @@
+Artículo 21.-Toda actividad deberá regularse contractualmente y los contratos serán firmados por el Alcalde Municipal, siendo que los mismos no podrán superar al período de un año. Toda actividad que requiera permiso de la Municipalidad o de cualquier autoridad estatal deberá aportar el interesado el permiso respectivo cuando haga solicitud de las instalaciones.

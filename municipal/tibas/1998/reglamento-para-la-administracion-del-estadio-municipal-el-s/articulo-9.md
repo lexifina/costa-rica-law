@@ -1,0 +1,1 @@
+Artículo 9°-La Junta sesionará ordinariamente una vez por semana en las instalaciones del Estadio, que es su domicilio, y extraordinariamente cuando y donde sea necesario. Para las sesiones ordinarias se fijará día y hora. La convocatoria a sesiones extraordinarias debe hacerse con 24 horas de anticipación.

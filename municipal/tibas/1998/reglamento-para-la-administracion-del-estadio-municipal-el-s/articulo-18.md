@@ -1,0 +1,1 @@
+Artículo 18.-EI encargado de las instalaciones pedirá a los usuarios el permiso para ingresar y llenará la hoja de registro correspondiente. Es prohibido ingresar a las instalaciones con bebidas alcohólicas, cualquier droga enervante, con armas o pólvora. Asimismo se prohíbe el ingreso de vehículos, salvo en casos de emergencia.

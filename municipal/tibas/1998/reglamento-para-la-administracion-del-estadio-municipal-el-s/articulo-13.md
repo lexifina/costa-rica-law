@@ -1,0 +1,1 @@
+Artículo 13.-La Junta Administrativa regulará el uso de las instalaciones y su atención técnica para su mantenimiento y conservación. Sólo en casos graves se podrán suspender prácticas, partidos o actividades deportivas previamente programadas.
