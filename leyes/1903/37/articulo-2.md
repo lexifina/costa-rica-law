@@ -1,0 +1,1 @@
+Artículo 2°. -Atribuyese los Tribunales la facultad de fijar en cada caso los hechos que deben tenerse por ciertos examinando las pruebas conforme las reglas de la sana crítica y cualquiera que sea su número y entidad.
