@@ -1,3 +1,5 @@
+CONVENIO DE COOPERACION CULTURAL ENTRE ESPAÑA Y COSTA RICA
+(San José, 6 de noviembre de 1971)
 Artículo 1º.- Ratifícase en todas y cada una de sus partes el
 Convenio de Cooperación Cultural entre los Gobiernos de la República de
 Costa Rica y España, suscrito en la Ciudad de San José, el 6 de noviembre
