@@ -1,0 +1,1 @@
+Artículo 2°-El despacho de tales solicitudes podrá supeditarse al curso o capacidad receptiva de los programas del Instituto, principalmente en cuanto a la disponibilidad de viviendas destinables a realojamiento de las personas a desplazar de los tugurios.

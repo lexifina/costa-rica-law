@@ -1,0 +1,1 @@
+Artículo 5°-En aquellos cantones donde no se haya emitido aún reglamento de urbanización y fraccionamiento, los permisos para reedificar en áreas afectadas por los programas de erradicación de tugurios, serán sustanciados con- forme a lo dispuesto en subsidio por el artículo 18 y el transitorio único de la ley No 2760.

@@ -1,0 +1,1 @@
+Artículo 6°-El Ministerio de Salubridad Pública, la Tributación Directa y las autoridades de policía, prestarán la colaboración que les cabe en esta materia tan pronto reciban en ese sentido solicitud del Instituto Nacional de Vivienda y Urbanismo.

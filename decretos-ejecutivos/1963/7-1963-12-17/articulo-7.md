@@ -1,0 +1,1 @@
+Artículo 7°-Derógase el Reglamento Sanitario de Casas de Vecindad o Chinchorros, dictado por decreto. N° 4 de 25 de enero de 1936, el de Eliminación de Viviendas Insalubres o Peligrosas, aprobado por decreto No 24 del 31 de enero de 1958, y cualquier otra norma reglamentaria opuesta.
