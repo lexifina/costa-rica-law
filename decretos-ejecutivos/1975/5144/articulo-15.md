@@ -1,0 +1,1 @@
+Artículo 15.-La Administración es la única dependencia pública competente para extender permisos que faculten a su titular a ingresar en las áreas clasificadas de acceso restringido. No tendrá ningún valor toda otra autorización expedida y su portador podrá ser retirado por la Autoridad a requerimiento de la Administración.

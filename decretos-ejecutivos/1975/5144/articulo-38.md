@@ -1,0 +1,1 @@
+Artículo 38.-Dentro del Aeropuerto no podrán conducirse ni operarse aeronaves por personas en estado de alcoholismo, bajo el efecto de drogas, en forma imprudente o negligente, o, de cualquier otra que ponga en evidente riesgo la seguridad de otros.

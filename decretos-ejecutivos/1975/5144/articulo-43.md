@@ -1,0 +1,1 @@
+Artículo 43.-Todas las áreas de estacionamiento señaladas podrán ser reubicadas por el Consejo sin que para esto sea necesario contar con la anuencia de concesionarios y usuarios, quienes estarán obligados a acatar lo dispuesto.

@@ -1,0 +1,1 @@
+Artículo 61.-Queda prohibido realizar colectas o solicitar fondos para cualquier fin, dentro del Aeropuerto, excepto que dicha actividad haya sido autorizada por la autoridad competente, en cuyo caso se requerirá la autorización de , la Administración para efectuarla dentro del Aeropuerto.

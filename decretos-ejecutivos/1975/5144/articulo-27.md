@@ -1,0 +1,1 @@
+Artículo 27.-Los vehículos que circulen a una distancia menor de 15 metros de las aeronaves estacionadas, no excederán una velocidad máxima de 10 kilómetros por hora. Cuando la circulación de vehículos se produzca en reversa, sus movimientos estarán supervisados por una persona que acompañará esos movimientos.

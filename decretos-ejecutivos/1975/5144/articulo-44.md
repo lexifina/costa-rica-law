@@ -1,0 +1,1 @@
+Artículo 44.-Las autoridades de la Inspección de Tránsito del Ministerio de Obras Públicas y Transportes, que se encuentren destacadas en el Aeropuerto, estarán obligados a observar las disposiciones y órdenes que sobre el uso de estas áreas dicte la Administración. El incumplimiento de lo dispuesto tendrá como inmediata consecuencia la destitución del funcionario infractor.

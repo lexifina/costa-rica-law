@@ -1,0 +1,1 @@
+Artículo 8°-Acorde a los itinerarios y las necesidades del servicio de las aeronaves, la Dirección General podrá establecer un nuevo horario que determine las horas en que el Aeropuerto estará en servicio.

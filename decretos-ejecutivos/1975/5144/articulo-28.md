@@ -1,0 +1,1 @@
+Artículo 28.-Los tripulantes de vehículos que circulen en estas áreas restringidas deben ceder el derecho de paso a las aeronaves, alejándose de la dirección de las mismas y tomando las precauciones necesarias para dar un amplio margen de seguridad en el momento del cruce.

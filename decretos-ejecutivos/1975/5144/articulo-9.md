@@ -1,0 +1,3 @@
+CAPITULO IV
+De los servicios otorgados en concesión o permiso
+Artículo 9°-Obligatoriamente la Administración supervisará los servicios que se presten por particulares u otras Instituciones del Estado mediante concesión o permiso dentro de los terrenos del Aeropuerto. Procurará que dichos servicios sean brindados al usuario en la forma más eficiente posible y pondrá en conocimiento de la Dirección General cualquier irregularidad que denote en la prestación efectiva de los mismos. Si los explotare directamente el Consejo, la Administración será la encargada de coordinar la forma en que se brinden.

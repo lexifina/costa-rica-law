@@ -1,0 +1,1 @@
+Artículo 21.-EI personal encargado de la vigilancia conminará al infractor del reglamento a fin de que se sirva desalojar el área a la cual no está facultado para ingresar. El desacato será trasladado a la orden de la autoridad competente.

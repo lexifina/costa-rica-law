@@ -1,0 +1,1 @@
+Artículo 18.-Los cuerpos de vigilancia destacados en el Aeropuerto exigirán identificación a todas aquellas personas que por diferentes motivos deseen ingresar en las áreas clasificadas. Todo el que ingrese deberá portar su identificación y obligatoriamente la mostrará cuando así sea requerido.

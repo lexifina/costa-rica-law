@@ -1,0 +1,1 @@
+Artículo 26.-Los vehículos automotores que por los fines a que se destinen requieran necesariamente estacionar se frente a una aeronave, estarán colocados en forma tal que permita su rápido retiro en casos de emergencia. No se colocarán otros vehículos ni objetos que constituyan obstáculos para el libre tránsito de aquellos.

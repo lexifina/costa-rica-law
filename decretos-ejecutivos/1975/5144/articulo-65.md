@@ -1,0 +1,1 @@
+Artículo 65.-Las dependencias públicas laborarán cuando fuere necesario dado a la intensidad del tráfico aéreo, una jornada igual a la que labore la Administración. Obligatoriamente deberá permanecer en el Aeropuerto un Delegado de cada una de ellas con facultades suficientes de decisión.

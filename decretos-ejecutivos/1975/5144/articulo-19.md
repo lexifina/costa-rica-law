@@ -1,0 +1,1 @@
+Artículo 19.-Quienes tengan a su cargo las labores de vigilancia del Aeropuerto se encuentran facultados para proceder directamente, o a gestión de la Administración, al retiro de personas y vehículos que se encuentren sin autorización dentro de las zonas restringidas.

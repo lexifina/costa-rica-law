@@ -1,0 +1,1 @@
+Artículo 34. -En caso de ser otorgado el permiso a que hace referencia el artículo anterior, los operadores asignarán un encargado responsable de la aeronave, quien mantendrá abierta la puerta de salida de las mismas. Las rampas o escaleras deberán estar colocadas en forma tal que permita el fácil desalojo de la aeronave por parte de los pasajeros.

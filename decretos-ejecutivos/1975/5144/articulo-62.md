@@ -1,0 +1,1 @@
+Artículo 62.-El administrador del Aeropuerto velará por que se observen y cumplan las disposiciones contenidas en este Reglamento, a cuyo fin queda facultad o para tomar las medidas pertinentes pudiendo recurrir en caso necesario al auxilio de la fuerza pública.

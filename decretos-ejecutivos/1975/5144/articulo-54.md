@@ -1,0 +1,7 @@
+Artículo 54.-Se prohibe al público en general:
+a) El acceso a lugares del Aeropuerto que no sean los destinados para su uso y permanencia, según las delimitaciones que se efectúen;
+b) Fumar cerca de las aeronaves y o en los sitios en que expresamente se anuncie esta prohibición;
+c) Introducir al Aeropuerto artículos peligrosos como explosivos, material fácilmente inflamable, drogas y otros que por sus características o manejo impliquen peligro para sus portadores, terceros e instalaciones;
+d) Cometer actos que produzcan daños en los edificios, muebles, enseres o instalaciones del aeropuerto, o puedan originar escándalo público o pánico;
+e) Encender fuego dentro de la propiedad del aeropuerto, ni encender antorchas de oxiacetileno, arco eléctrico, o cualquier otro tipo de llama o chispa, sino en áreas cedidas bajo contrato o expresamente autorizadas para esos propósitos, y bajo entera responsabilidad del concesionario, operador o persona autorizada; y
+f) Guardar, almacenar, transportar o manipular artículos o materiales explosivos como dinamita, nitroglicerina, pólvora negra, fuegos artificiales, materiales inflamables, gasolina, alcohol, canfín, líquidos o sólidos oxidantes, ácidos cáusticos o corrosivos, o cualesquiera otra clase de materia o sustancia venenosa, gases comprimidos, materia radioactiva. Para su transporte dentro, desde o hacia el Aeropuerto requerirá autorización expresa de la Administración. La solicitud para este tipo de autorizaciones se gestionará por escrito con 24 horas de antelación cuando menos.

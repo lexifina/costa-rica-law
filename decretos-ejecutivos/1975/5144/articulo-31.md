@@ -1,0 +1,1 @@
+Artículo 31.-La construcción de instalaciones para estos fines en el aeropuerto, así como la remodelación o variación de las ya existentes, deberá ser aprobada por la Dirección General con intervención de las dependencias competentes de los Ministerios de Trabajo y Seguridad Social y de Salud, para la fijación de normas mínimas de seguridad e higiene.

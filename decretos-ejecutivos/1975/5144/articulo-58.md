@@ -1,0 +1,1 @@
+Artículo 58- Para poder distribuir publicaciones, volantes, impresos, fijar cartelones o mantas alusivas a cualquier actividad, dentro del Edificio Terminal, se requerirá la autorización previa y expresa de la Administración.

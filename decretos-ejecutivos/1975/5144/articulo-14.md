@@ -1,0 +1,1 @@
+Artículo 14.-Para poder ingresar en las áreas de acceso restringido, será necesario portar una autorización expedida por la Administración. La Administración mantendrá un registro actualizado de las personas autorizadas y los motivos en que se funde la autorización concedida.

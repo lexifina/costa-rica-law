@@ -1,0 +1,4 @@
+Artículo 42.-Para estos fines existirán las siguientes áreas:
+a) Estacionamiento de vehículos oficiales que estará claramente identificada y su permanencia en ella será gratuita;
+b) Estacionamiento de vehículos particulares, la cual podrá ser explotada directamente por el Consejo, o dada en concesión a otras instituciones estatales o a particulares. La tarifa para el cobro por servicios de estacionamiento serán fijadas por el Consejo y promulgadas por el Poder Ejecutivo mediante decreto ;y
+c) Estacionamiento de vehículos para el transporte remunerado de personas (taxis) que prestan sus servicios permanentemente dentro del aeropuerto. Esta área estará separada de las restantes y el Consejo establecerá una tarifa diferencial a cobrar siguiéndose para ello el procedimiento establecido en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 50.-El movimiento de equipaje de pasajeros en la terminal del Aeropuerto, así como las operaciones de embarque y desembarque de mercancías y equipaje facturado dentro del perímetro del mismo, se realizará bajo la exclusiva responsabilidad de los Operadores o de sus Agentes o empleados debidamente autorizados, quienes deberán presentarse uniformados.

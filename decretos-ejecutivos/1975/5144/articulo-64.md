@@ -1,0 +1,1 @@
+Artículo 64.-El personal que labore permanentemente en el Aeropuerto y tenga a su cargo la atención y despacho del público y usuarios estará debidamente identificado y uniformado, de una manera que permita su fácil identificación.

@@ -1,0 +1,1 @@
+Artículo 12.-Dentro del Aeropuerto existirán zonas destinadas al uso público en las cuales podrán permanecer los visitantes, pasajeros y usuarios del Aeropuerto. Existirán zonas de aterrizaje y de maniobras para aeronaves que obligatoriamente serán restringidas. Es absolutamente prohibida la permanencia de particulares dentro de las zonas de acceso restringido.
