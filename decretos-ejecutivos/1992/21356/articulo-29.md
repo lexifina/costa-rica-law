@@ -1,0 +1,2 @@
+Artículo 29.—Para ingresar a los programas de formación, es requisito indispensable que el estudiante haya obtenido el título de Bachiller en Enseñanza Media o su equivalente, así como cumplir con los requisitos aprobados por el Consejo Directivo.
+Al cumplir con los requisitos de graduación, el estudiante obtendrá el diplomado con el énfasis correspondiente. Este diplomado tendrá validez para todos los efectos legales.
