@@ -1,0 +1,1 @@
+Articulo 2°—Los obligados a presentar dicha declaración deberán utilizar para ello los formularios oficiales, ya sean preimpresos. o digitales; generados por el Sistema de Elaboración Digital de Declaración "EDDI" o por medio del Sistema de Declaración Electrónica, en tanto estos sistemas estén disponibles.

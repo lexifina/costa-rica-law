@@ -1,0 +1,1 @@
+Articulo 3°—EI formulario preimpreso deberá presentarse y pagarse el impuesto respectivo, en las entidades recaudadoras autorizadas, a más tardar el día hábil siguiente de aquel en que se efectúen las retenciones.
