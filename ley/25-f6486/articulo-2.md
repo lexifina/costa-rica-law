@@ -1,0 +1,1 @@
+Art. 2° Exceptúanse de esta disposición las nueve caballerías de tierra concedidas por la Ordenanza de 26 de junio de 1830 á los distritos de “Quebrada Honda,” “Corralillo” y “Machuca”, y tres caballerías más con que la presente ley se agracia al distrito mineral de “Ciruelitas de los baldíos de su circuito.
