@@ -5,3 +5,4 @@ Artículo 1°: Aprúebase los siguientes Ingresos Ordinarios y Extraordinarios, 
 Inciso A: (...)
 Inciso B: (...)
 Inciso C: (...)
+(Modificado por el artículo 2 del Decreto Ejecutivo N° 29426 de 23 de marzo del 2001)
