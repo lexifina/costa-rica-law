@@ -17,3 +17,4 @@ Reglamento de Ley de Creación Oficina del Arroz
 | 2 | 1986-11-07 | Decreto Ejecutivo 17382 (1986-11-07) |
 | 3 | 1987-03-23 | Decreto Ejecutivo 17507 (1987-03-23) |
 | 4 | 1991-02-27 | Decreto Ejecutivo 20332 (1991-02-27) |
+| 5 | 1996-08-27 | Decreto Ejecutivo 25543 (1996-08-27) |

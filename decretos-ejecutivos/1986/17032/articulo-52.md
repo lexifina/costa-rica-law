@@ -1,1 +1,1 @@
-Artículo 52.-El Auditor Interno deberá asistir a las sesiones de Junta Directiva, con derecho a voz pero no a voto.
+Artículo 52.(Derogado por el artículo 2° del decreto ejecutivo N° 25543 del 27 de agosto de 1996)
