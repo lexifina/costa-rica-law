@@ -1,6 +1,2 @@
-Artículo 291.- La Secretaría de Trabajo y de Previsión Social se
-encargará de fomentar el desarrollo del movimiento sindical en forma
-armónica y ordenada, por todos los medios legales que juzgue
-convenientes. Al efecto, dictará por medio de decretos ejecutivos todas
-las disposiciones que sean necesarias, en los casos ocurrentes, para
-arantizar la efectividad del derecho de sindicalización,
+ARTICULO 291.- Los equipos y elementos destinados a la protección personal del trabajador, a la seguridad en el trabajo y a la prevención de los riesgos del trabajo, podrán ser importados e internados exentos del pago de impuestos, tasas y sobretasas, siempre que su uso y características hayan sido aprobados y autorizados por el Consejo de Salud Ocupacional. El Poder Ejecutivo establecerá, por medio de decreto, el precio máximo de venta de estos artículos.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

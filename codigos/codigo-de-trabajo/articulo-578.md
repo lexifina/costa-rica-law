@@ -1,13 +1,4 @@
-TITULO OCTAVO
-DEL REGIMEN DE LOS SERVIDORES DEL ESTADO
-Y DE SUS INSTITUCIONES
-CAPITULO UNICO
-Disposiciones especiales para los servidores del Estado y de sus
-Instituciones
-Artículo 578.- Trabajador del Estado o de sus Instituciones, es
-toda persona que preste a aquél o a éstas un servicio material,
-intelectual o de ambos géneros, en virtud del nombramiento que le fuere
-expedido por autoridad o funcionario competente, o por el hecho de
-figurar en las listas del presupuesto o en las de pago por planillas.
-Cualquiera de estas últimas circunstancias sustituye, para todos los
-efectos legales, al contrato escrito de trabajo.
+ARTICULO 578.- Para el cobro de las multas procederán los Jueces de Trabajo como se dispone en los artículo 36 y 37 del Código de Policía; éstas se aplicarán a favor del Ministerio de Trabajo y de Seguridad Social, se destinarán a cubrir los gastos de que habla el último párrafo del artículo 53(*) y a otros fines análogos que determinará el Reglamento. Al efecto se dará aviso a la Contabilidad Nacional.
+(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 524, siendo ahora el 531)
+(El nombre del Ministerio fue así reformado por la Ley No. 5089 del 18 de octubre de 1972)
+Cuando la multa se hubiere satisfecho, el Secretario certificará en autos el recibo expedido por la Tesorería en donde fue pagada.

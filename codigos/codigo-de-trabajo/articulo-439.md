@@ -1,4 +1,2 @@
-Artículo 439.- Los escritos se presentarán ante los Tribunales de
-Trabajo por conducto del respectivo Secretario, quien pondrá al pie una
-razón en que consten el día y la hora de su recibo y el nombre de la
-persona que los entregue.
+ARTICULO 439.- Vencida la audiencia a que se refiere el artículo 438(*) y habiendo el o los recusados reconocido los hechos sin que ninguna de las partes interesadas se hubiere opuesto expresamente a la recusación, el Tribunal de Trabajo ante quien ésta se presentó decretará, sin más trámite, la separación de aquél o aquéllos, y mandará pasar el negocio a quien corresponda o hacer la o las reposiciones que procedan.
+(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 431, siendo ahora el 438)

@@ -1,12 +1,3 @@
-Sección VII.- De las pruebas:
-Artículo 467.- Si hubiere contradicción entre los litigantes
-respecto de los hechos alegados, el Juez fijará aquéllos sobre los que
-deba recaer la prueba y recibirá inmediatamente la que ofrezcan las
-partes, en lo que fuere procedente.
-Se rechazará de plano la prueba que el actor no ofrezca con su
-demanda o la que no aduzca el demandado al contestar ésta.
-En caso de reconvención o para combatir excepciones del demandado,
-el actor podrá ofrecer dentro de las veinticuatro horas siguientes a la
-comparecencia otras pruebas, que serán evacuadas en nueva audiencia.
-Igual regla rige para el contrademandante, cuando desee combatir
-las excepciones que el actor haya formulado a su reconvención.
+ARTICULO 467.- Si hubiere contrademanda, el Juez dará traslado de ella al reconvenido para que la conteste en forma verbal o escrita, concediéndole al efecto un término que fijará, según las circunstancias, entre tres y ocho días, con las prevenciones que indica el artículo 464(*).
+(Así reformado por el artículo 1° de la ley N° 3702 del 22 de junio de 1966)
+(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 457, siendo ahora el 464)

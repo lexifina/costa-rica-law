@@ -1,8 +1,2 @@
-Artículo 266.- Las organizaciones sociales que se constituyan
-legalmente estarán exentas de cubrir los impuestos nacionales o
-municipales que pesen sobre sus bienes y serán personas jurídicas
-capaces de ejercer derechos y contraer obligaciones.
-No podrán utilizar las ventajas de la personalidad jurídica con
-ánimo de lucro, pero sí podrán hacerlo en todo lo que contribuya a
-llenar su finalidad esencial de obtener los mayores beneficios comunes
-para sus asociados.
+ARTICULO 266.- A partir del primer dictamen médico que determine algún tipo de incapacidad permanente y sin perjuicio de los recursos de apelación que este Título establezca, el Instituto Nacional de Seguros procederá, de oficio, a la fijación de las rentas que correspondan las cuales serán provisionales hasta tanto no se establezca la valoración definitiva. Estas rentas se ajustarán a los términos finales, de forma que el ente asegurador recupere cualquier suma pagada en exceso, por motivo de simulación o fraude imputable al trabajador, descontando la misma de las rentas no percibidas; o en caso contrario, hará un sólo pago de las diferencias no cubiertas, a favor del trabajador.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,12 +1,8 @@
-Artículo 567.- En materia de faltas contra las leyes de trabajo o
-de previsión social, sólo la sentencia de primera instancia será
-notificada a las partes.
-Unicamente el reo o su defensor, y el acusador o su apoderado,
-podrán apelar en el acto de hacérseles saber el fallo o dentro de las
-veinticuatro horas siguientes. Para este efecto, el Notificador
-cumplirá lo dispuesto por el inciso b) del artículo 494.
-En ningún caso podrán apelar de la sentencia el denunciante y el
-ofendido que no se hubieren constituído en parte acusadora.
-Si hubiere alzada oportuna, el recurso será admitido para ante el
-Tribunal Superior de Trabajo, a quien se enviarán inmediatamente las
-diligencias originales.
+ARTICULO 567.- La denuncia podrá hacerse por escrito o de palabra, personalmente o por medio de apoderado especial que se constituirá aún por simple carta poder; y habrá de contener, de un modo claro y preciso, en cuanto fuere posible, los siguientes requisitos:
+Nombre completo y domicilio del denunciante o los de su apoderado, si compareciere por medio de éste;
+Relación circunstanciada del hecho, con expresión de lugar, año, mes, día y hora en que ocurrió, junto con cualquier otro dato que sobre el particular interese;
+Nombres y apellidos de los autores del hecho punible y los de sus colaboradores, si los hubiere, o las señas que mejor puedan darlos a conocer, e iguales datos en cuanto a los posibles perjudicados y a las personas que por haber estado presentes, o por cualquier otro motivo, tuvieren conocimiento de la falta cometida o pudieren proporcionar algún informe útil a la justicia;
+Todas las demás indicaciones y circunstancias que, a juicio del exponente, conduzcan a la comprobación de falta, a la determinación de su naturaleza o gravedad y a la averiguación de las personas responsables, y
+Cuando se interponga por escrito, la firma del denunciante, y si no supiere, la otra persona a su ruego, de conformidad en ambos casos, con las disposiciones del artículo 447(*); pero si fuere verbal, el funcionario que la reciba levantará acta y consignará en ella los requisitos que expresan los incisos anteriores.
+(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 440, siendo ahora el 447)
+Si la denuncia no estuviere en forma legal, el Juez de Trabajo se abstendrá de darle curso hasta tanto no se cumplan las exigencias de este artículo; al efecto quedará obligado, por todos los medios a su alcance, a procurar que se subsanen sin pérdida de tiempo las omisiones que hubiere.

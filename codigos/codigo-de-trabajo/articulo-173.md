@@ -1,7 +1,4 @@
-Artículo 173.- Los anticipos que haga el patrono al trabajador por
-cuenta de salarios en ningún caso devengarán intereses.
-Las deudas que el trabajador contraiga con el patrono por este
-concepto o por pagos hechos en exceso, se amortizarán durante la
-vigencia del contrato en un mínimum de cuatro períodos de pago. Es
-entendido que al terminar el contrato el patrono podrá hacer la
-liquidación definitiva que proceda.
+ARTICULO 173.-
+El anticipo que haga el Patrono al trabajador para inducirlo a aceptar el empleo se limitará, respecto a su cuantía, a una cuarta parte del salario mensual convenido; cuando exceda del límite fijado será legalmente incobrable y no podrá ser recuperado posteriormente compensándolo con las cantidades que se adeuden al trabajador.
+Las deudas que el trabajador contraiga con el patrono por concepto de anticipos o por pagos hechos en exceso, se amortizarán durante la vigencia del contrato en un mínimo de cuatro períodos de pago y no devengarán intereses. Es entendido que al terminar el contrato el Patrono podrá hacer la liquidación definitiva que proceda.
+(Así reformado por el artículo 2° de la ley N° 3636 de 16 de diciembre de 1965, “Ratifica Convenio OIT Nº 117 Sobre Normas de Política Social”)

@@ -1,2 +1,1 @@
-Artículo 449.- Cuando el arraigo se pida al entablar la demanda, se
-decretará sin más trámite.
+ARTICULO 449.- Cada hoja del expediente será numerada con tinta y señalada con media firma del Secretario respectivo, puesta en el margen interior.

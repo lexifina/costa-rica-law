@@ -1,3 +1,4 @@
-Artículo 327.- La representación judicial y extrajudicial, la ejecución
-de los acuerdos de la Junta Directiva y la administración de los
-negocios de la cooperativa, corresponden al Gerente.
+ARTICULO 327.- Para el cobro de las multas que se establecen en este Título, los jueces de trabajo procederán conforme lo disponen los artículos 53 a 56 del Código Penal.
+Las multas se girarán a favor del Consejo de Salud Ocupacional, quien las destinará, exclusivamente, a establecer un fondo que se utilizará para la prevención de los riesgos del trabajo.
+Las multas podrán cancelarse en las oficinas del Instituto Nacional de Seguros o en cualquiera de los bancos del Sistema Bancario Nacional. Todo pago de multas hecho en forma distinta de la establecida, se tendrá por no efectuado y el empleado que acepte ese pago o parte del mismo será despedido, por ese solo hecho, sin responsabilidad patronal.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

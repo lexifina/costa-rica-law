@@ -1,6 +1,2 @@
-Artículo 428.- Toda recusación debe fundarse en una de las causales
-expresamente señaladas por la ley, e interponerse ante el Tribunal de
-Trabajo que conoce del litigio antes de que dicte sentencia, indicando
-al mismo tiempo las pruebas de la existencia de la causal. Si la
-gestión no llenare estas formalidades no producirá efecto legal, ni
-podrá repetirse.
+ARTICULO 428.- Las acciones para obtener la disolución o alguna prestación de las organizaciones sociales, se establecerán ente el Juez del domicilio de éstas.
+Sin embargo, se estará a lo dispuesto por el artículo anterior cuando las organizaciones sociales actuaren como patronos en caso determinado.

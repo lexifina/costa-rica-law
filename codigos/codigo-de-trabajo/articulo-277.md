@@ -1,7 +1,3 @@
-Artículo 277.- La junta Directiva tendrá la representación legal del
-sindicato y podrá delegarla en su Presidente o Secretario General; y
-será responsable para con el sindicato y terceras personas en los mismos
-términos en que lo son los mandatarios en el Código Civil. Dicha
-responsabilidad será solidaria entre los miembros de la Junta Directiva,
-a menos que alguno de ellos salve su voto, haciéndolo constar así en el
-libro de actas.
+ARTICULO 277.- El consejo contará con los servicios de un director ejecutivo, quien actuará como su secretario y asistirá a todas las sesiones con derecho a voz.
+Todo lo relativo a estructura administrativa del consejo, sus dependencias y el personal técnico necesario será determinado en el reglamento de la ley, el cual deberá contener previsiones especiales relativas a la contratación temporal o permanente, del personal profesional especializado nacional o extranjero, que el Consejo estime pertinente para el mejor desempeño de sus funciones.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

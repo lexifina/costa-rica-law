@@ -1,9 +1,2 @@
-Sección III.- De la constitución y de la administración de las
-cooperativas:
-Artículo 316.- Las cooperativas no podrán funcionar si no se
-constituyen por instrumento público debidamente registrado y aprobado,
-junto con los estatutos, por la Secretaría de Trabajo y de Previsión
-Social.
-Este instrumento público, así como todos los actos o documentos que
-sea necesario extender para la obtención de la personería jurídica,
-gozarán de exención de impuestos y derechos fiscales.
+ARTICULO 316.- La gestión para solicitar la imposición de las sanciones que establece este Título, podrá pedirla cualquier persona perjudicada o quien la represente; pero la presentación de esta gestión será obligatoria para las autoridades administrativas de inspección del Ministerio de Trabajo y Seguridad Social, Instituto Nacional de Seguros y municipalidades, sin que por el ejercicio de esa obligación incurran en responsabilidad personal.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

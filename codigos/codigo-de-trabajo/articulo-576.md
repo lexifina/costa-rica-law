@@ -1,4 +1,1 @@
-Artículo 576.- No obstante las disposiciones del artículo anterior,
-el cobro de toda clase de salarios se hará por la vía de apremio
-corporal, una vez que los Tribunales de Trabajo hayan declarado en forma
-definitiva el respectivo derecho.
+ARTICULO 576.- Todo reo de faltas contra las leyes de trabajo o de previsión social, que hubiere sido detenido, podrá permanecer en libertad durante la tramitación de su proceso y hasta sentencia firme, si persona de notorio abono y buen crédito garantiza a satisfacción del respectivo Tribunal de Trabajo, la inmediata comparecencia del condenado, o su sumisión a la sentencia firme. Según el caso, podrá dispensarse de la fianza a las personas de honradez anterior reconocida, a juicio del juzgador.

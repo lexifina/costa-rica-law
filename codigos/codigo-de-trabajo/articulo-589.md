@@ -1,7 +1,1 @@
-Artículo 589.- Para el mejor desempeño de sus funciones, la
-Inspección General de Trabajo constará con un cuerpo de Visitadoras
-Sociales.
-Tanto los Inspectores como las Visitadoras Sociales, tendrán el
-carácter de autoridades, con los deberes y atribuciones que en este
-Capítulo se especifican, y para los efectos de su jurisdicción serán
-provinciales o cantonales.
+ARTICULO 589..-(Derogado por el artículo 119 de la ley Nº 1860 de 21 de abril de 1955 y por el artículo 139 de la ley Nº 3095 de 18 de febrero de 1963, la cual reprodujo íntegramente la anterior.)

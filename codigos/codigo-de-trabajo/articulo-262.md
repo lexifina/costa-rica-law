@@ -1,8 +1,3 @@
-TITULO QUINTO
-DE LAS ORGANIZACIONES SOCIALES
-CAPITULO PRIMERO
-Disposiciones generales
-Artículo 262.- Declarase de interés público la constitución legal de
-las organizaciones sociales, sean sindicatos o cooperativas, como uno
-de los medios más eficaces de contribuir al sostenimiento y desarrollo
-de la cultura popular y de la democracia costarricenses.
+ARTICULO 262.- Créase la junta médica calificadora de la incapacidad para el trabajo, con independencia funcional, la cual estará integrada por cinco miembros, en la que deberán estar representados los Ministerios de Trabajo y Seguridad Social, y de Salud, el Colegio de Médicos y Cirujanos, el Instituto Nacional de Seguros y los trabajadores. Las instituciones mencionadas nombrarán directamente sus representantes.
+El Poder Ejecutivo designará, en forma rotativa, al representante de los trabajadores, de las ternas que le sean sometidas por las confederaciones legalmente constituidas. En la primera oportunidad, en la designación se hará el sorteo correspondiente para establecer el orden respectivo.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

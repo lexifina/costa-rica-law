@@ -1,10 +1,5 @@
-Artículo 543.- Si el patrono hubiere cumplido con la obligación de
-hacer la oportuna denuncia y no hubiere gestión de la víctima o de sus
-causahabientes en demanda de sus derechos, el Juez, como primera medida,
-dispondrá que el caso quede en suspenso en espera de los informes
-posteriores sobre el resultado final del riesgo ocurrido. Si
-trascurrido el tiempo en que según el pronóstico respectivo deba
-conocerse tal resultado, el patrono no hubiere proporcionado los
-informes correspondientes, la autoridad, sin más demora, procederá a
-realizar la convocatoria de la ley y el caso se tramitará de oficio como
-cuando existe inconformidad entre las partes.
+CAPITULO CUARTO
+Del procedimiento en caso de riesgo profesional
+ARTICULO 543.- Cuando se realice un riesgo profesional, el patrono o quien lo represente en la dirección de la empresa, negocio o faena, deberá denunciarlo al respectivo Juez de Trabajo, sea directamente o por medio de la autoridad política o de trabajo más próxima, dentro de las cuarenta y ocho horas siguientes a su acaecimiento.
+Para efectos del párrafo anterior se presume que el patrono o, en su caso, el representante de éste, tiene conocimiento inmediato de los riesgos profesionales que ocurran en la empresa, negocio o faena del primero.
+Dicha denuncia podrá hacerla cualquier persona sin que por ello incurra en responsabilidad.

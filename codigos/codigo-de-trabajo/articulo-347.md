@@ -1,4 +1,2 @@
-Artículo 347.- Gastos generales son las sumas que se inviertan en
-impulsar el giro ordinario de la cooperativa o que se destinen al pago
-de las personas encargadas de servirla y a otros fines análogos que no
-se refieran a operaciones sociales determinadas.
+ARTICULO 347.- La Junta Directiva tendrá la representación legal del sindicato y podrá delegarla en su Presidente o Secretario General; y será responsable para con el sindicato y terceras personas en los mismos términos en que lo son los mandatarios en el Código Civil. Dicha responsabilidad será solidaria entre los miembros de la Junta Directiva, a menos que alguno de ellos salve su voto, haciéndolo constar así en el libro de actas.
+( La Ley Sobre Riesgos del Trabajo Nº 6727 de 9 de marzo de 1982, art. 2º trasladó el original 277 al presente).

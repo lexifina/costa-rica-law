@@ -1,4 +1,1 @@
-Sección VIII.- De la sentencia:
-Artículo 483.- Si estuvieren ambas partes conformes en los hechos
-alegados, el Juez procederá en el mismo acto, si fuere posible, o dentro
-de tercero día, a pronunciar sentencia.
+ARTICULO 483.- No podrán las partes recusar a los peritos, pero el Juez podrá reponerlos en cualquier momento si llegare a tener motivo para dudar de su imparcialidad o de su falta de pericia, sea por propia convicción o por gestiones de la parte perjudicada.

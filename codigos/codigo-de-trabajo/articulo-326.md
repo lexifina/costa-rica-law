@@ -1,9 +1,2 @@
-Artículo 326.- Corresponde al Comité de Vigilancia, que se integrará
-con mínimum de dos miembros que pueden ser socios o no, el examen y
-fiscalización de todas las cuentas y operaciones realizadas por la
-cooperativa, e informar lo que corresponda ante la Asamblea General y
-ante la Inspección General de Trabajo.
-La Secretaría de Trabajo y de Previsión Social podrá, cuando lo
-estime conveniente, autorizar a este último Departamento para que nombre
-un Inspector como miembro ad honórem del Comité de Vigilancia de
-cualquier cooperativa.
+ARTICULO 326.- Todo inculpado, por la comisión de faltas o infracciones a los términos de este Título podrá permanecer en libertad, durante la tramitación del proceso y hasta sentencia firme, si persona de buena reputación y buen crédito garantiza, a satisfacción del respectivo tribunal de trabajo, su inmediata comparecencia o su sumisión a la sentencia firme.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

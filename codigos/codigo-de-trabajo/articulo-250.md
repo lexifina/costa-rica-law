@@ -1,4 +1,2 @@
-Artículo 250.- El patrono, en los casos en que conforme al artículo 248
-deba reponer a alguno en su primitiva ocupación, podrá despedir al
-trabajador sustituto, sin que éste tenga derecho a ninguna
-indemnización.
+ARTICULO 250.- Si como consecuencia de un riesgo del trabajo, el trabajador quedare con enajenación mental, las prestaciones en dinero que le correspondan serán pagadas a la persona que conforme al Código Civil o de Familia lo represente. Igual regla regirá para los causahabientes del trabajador que falleciere, que sean menores de edad o enajenados mentales.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

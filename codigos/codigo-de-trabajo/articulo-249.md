@@ -1,4 +1,2 @@
-Artículo 249.- Cuando el trabajador no pueda desempeñar su trabajo
-primitivo, pero si uno distinto, el patrono está obligado a
-proporcionárselo, caso de ser posible, y con este objeto podrá hacer los
-movimientos de personal que sean necesarios.
+ARTICULO 249.- La prestaciones en dinero, que conforme a este Código correspondan por incapacidad permanente o por muerte, se otorgarán sin perjuicio de las que haya percibido el trabajador afectado por un riesgo, desde el acaecimiento del mismo hasta el establecimiento de la incapacidad permanente, o en su caso, la muerte.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

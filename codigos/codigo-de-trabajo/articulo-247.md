@@ -1,10 +1,2 @@
-Artículo 247.- Cuando un trabajador no asegurado, que esté protegido
-por las disposiciones del presente Capítulo, sufriere un riesgo
-profesional y ocurriere en demanda de asistencia u hospitalización a
-cualquier hospital o clínica, tendrá derecho a que se le presten sin
-dilación los servicios correspondientes, pero dichas Instituciones
-podrán cobrar por vía ejecutiva, al respectivo patrono, el valor de los
-servicios suministrados. Al efecto, los Presidentes de las Juntas de
-Protección Social o los Directores de las Instituciones privadas,
-extenderán en papel común una constancia que servirá de base para el
-juicio civil respectivo.
+ARTICULO 247.- Si a consecuencia de un riesgo del trabajo desapareciera un trabajador sin que haya certidumbre de su fallecimiento, y no se volviera a tener noticias de él dentro de los treinta días posteriores al suceso, se presumirá su muerte, a afecto de que los causahabientes perciban las prestaciones en dinero que dispone este Código, sin perjuicio de la devolución que procediere posteriormente, en caso de que se pruebe que el trabajador no había fallecido.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

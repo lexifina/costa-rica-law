@@ -1,8 +1,2 @@
-Artículo 229.- La conmutación se gestionará verbalmente o por escrito
-ante el Banco Nacional de Seguros, quien la tramitará en forma rápida
-y gratuita.
-El Banco remitirá siempre los cálculos respectivos al Tribunal
-Superior de Trabajo, a efecto de que éste los revise y apruebe o los
-devuelva con observaciones, en caso de que la suma que va a ser
-entregada al trabajador o a sus causahabientes sea diferente de la que
-les corresponda.
+ARTICULO 229.- El trabajador que sufra un riesgo del trabajo deberá someterse a las prestaciones médico-sanitarias y de rehabilitación que disponga y le suministre el Instituto Nacional de Seguros.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

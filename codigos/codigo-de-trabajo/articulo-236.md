@@ -1,18 +1,9 @@
-Sección IV.- De la asistencia médica y de los servicios análogos:
-Artículo 236.- En caso de riesgo profesional el patrono queda obligado
-a facilitar gratuitamente al trabajador, hasta que éste se halle
-completamente restablecido o por dictamen médico que se le declare
-incapacitado permanente o fallezca, los siguientes servicios:
-a) Asistencia médica y quirúrgica, y las medicinas, apósitos y demás
-artículos farmacéuticos;
-b) Los auxilios accesorios del tratamiento médico prescrito que sirvan
-para garantizar su éxito o atenuar las consecuencias de la lesión
-o enfermedad;
-c) Los aparatos ortopédicos que sean necesarios, pero si el costo de
-éstos fuere mayor de trescientos colones, el patrono cumplirá
-pagando dicha suma, y
-d) Los gastos de traslado y hospitalización de la víctima, y los que
-demanden su hospedaje y alimentación, cuando ésta deba tratarse y
-vivir en un lugar distinto a su residencia habitual o lugar de
-trabajo. El mínimum de dichos gastos de alimentación se fijará en
-dos colones diarios.
+ARTICULO 236.- Durante la incapacidad temporal, el trabajador tendrá derecho a un subsidio igual al 60% de su salario diario durante los primeros cuarenta y cinco días de incapacidad. Transcurrido ese plazo, el subsidio que se reconocerá al trabajador será equivalente al 100% del salario diario, si percibiere una remuneración diaria igual o inferior a cien colones. Si el sueldo fuere superior a cien colones por día, sobre el exceso se pagará un subsidio igual al 67%. La suma máxima sobre la cual se aplicará el 100% podrá ser modificada reglamentariamente.
+Cuando la remuneración del trabajador sea pagada en forma mensual, quincenal o semanal en comercio, y cuando se trate de trabajadores con salario base fijado por el Ministerio de Trabajo y Seguridad Social, el subsidio será pagado a partir de la fecha en que ocurrió el riesgo del trabajo, hasta cuando se dé el alta médica al trabajador, con o sin fijación del impedimento, o hasta que transcurra el plazo de dos años que señala el artículo 237.
+Si la forma de contratación fuere por salario diario, el subsidio se pagará considerando los días laborales existentes en el período de incapacidad, conforme a la jornada de trabajo semanal del trabajador. Para esos efectos se considerarán hábiles para el trabajo los días feriados, excluyendo los domingos.
+Servirán de referencia las planillas presentadas en el período de los tres meses anteriores al de la ocurrencia del infortunio, o un tiempo menor, si no hubiere trabajado durante ese período al servicio del patrono con quien le ocurrió el riesgo, sin perjuicio de lo dispuesto en los artículos 16 y 206.
+Cuando los trabajadores estén asegurados en el Instituto Nacional de Seguros, los pagos de subsidios se harán semanalmente, según las disposiciones internas que para efectos de tramitación se establezcan en el reglamento de la ley.
+El monto del subsidio diario, en los casos de trabajadores que laboren jornada ordinaria de trabajo completa, no podrá ser inferior al salario que establece el Decreto de Salarios Mínimos para todos los trabajos no contemplados en las disposiciones generales en las cuales se establece el salario por actividades, o en otras leyes de la República
+En los casos de trabajadores que laboran una jornada de trabajo inferior a la ordinaria, el subsidio mínimo se calculará con base en el salario indicado, pero en forma proporcional a las horas que trabajen siempre que laboren menos de la mitad de la jornada máxima ordinaria.
+Cuando el trabajador preste servicios a más de un patrono, el subsidio se calculará tomando en cuanta los salarios que perciba con cada patrono.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

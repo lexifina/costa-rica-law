@@ -1,14 +1,3 @@
-Artículo 260.- El patrono obligado al seguro contra riesgos
-profesionales que no obtenga la póliza respectiva o que la obtenga en
-forma incompleta, que la deje caducar o que no la renueve oportunamente
-por cualquier motivo, será sancionado con multa de cien a mil colones,
-de acuerdo con la importancia de sus trabajos y el número de
-trabajadores que ocupe.
-Los Jueces de Trabajo harán saber al patrono en la misma sentencia
-condenatoria su obligación de asegurar a sus trabajadores dentro de un
-plazo no mayor de diez días, y enviarán copia autorizada del fallo al
-Banco Nacional de Seguros, a efecto de que esta institución notifique
-a la autoridad, una vez vencido dicho término, si el patrono continúa
-renuente. En caso afirmativo la autoridad ordenará de oficio el arresto
-del inculpado por todo el tiempo que éste se niegue a asegurar a sus
-trabajadores.
+ARTICULO 260.- Establecida por parte del Instituto Nacional de seguros el alta del trabajador al que le ocurrió un riesgo del trabajo, con fijación de incapacidad permanente, la Institución aseguradora, de oficio, fijará las rentas que le corresponden, las que deberán empezarse a girar en un plazo no mayor de diez días hábiles a partir de la fecha del alta.
+Si el Instituto tramitó el riesgo como no asegurado, con base en el dictamen médico final en que se fijó la incapacidad permanente y fueron determinadas las rentas, el Instituto Nacional de Seguros solicitará al juez de trabajo que corresponda que conmine al patrono a depositar el monto de las rentas en la expresada institución, en un plazo no mayor de diez días hábiles, contados a partir de la notificación de esa resolución. Si el patrono no lo hiciere, el Instituto procederá al cobro de las sumas correspondientes por la vía ejecutiva.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

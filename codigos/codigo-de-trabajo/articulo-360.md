@@ -1,13 +1,3 @@
-Sección VII.- De las uniones de cooperativas:
-Artículo 360.- Las cooperativas podrán formar convenios
-circunstanciales para el mejor cumplimiento y mayor efectividad de su
-acción; o bien podrán unirse permanentemente en federaciones que puedan
-facilitar las operaciones de sus afiliadas y ampliar o realizar aún más
-eficazmente los fines sociales de la cooperación.
-El Poder Ejecutivo podrá crear una Confederación Nacional
-Cooperativa, a la cual pertenecerán todas las cooperativas existentes
-en el país, con el objeto de coordinar sus actividades, lograr mayores
-beneficios para sus miembros y resolver todos los conflictos que entre
-ellas se puedan suscitar.
-Cada cooperativa se hará representar por dos de sus socios en la
-Confederación.
+ARTICULO 360.- La Junta Directiva de todo sindicato, federación o confederación de sindicatos de trabajadores, tiene personería para representar judicial y extrajudicialmente a cada uno de sus afiliados en la defensa de sus intereses individuales de carácter económico- social, siempre que ellos expresamente lo soliciten. La Junta Directiva podrá delegar esa personería en cualquiera de sus miembros; y la delegación se comprobará con certificación del correspondiente acuerdo.
+(Así reformado por el artículo único de la ley N° 642 del 7 de agosto de 1946)
+(La Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982, artículo 2º, trasladó el original 290 al presente)

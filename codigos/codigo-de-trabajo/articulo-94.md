@@ -1,4 +1,4 @@
-Artículo 94.- Queda prohibido a los patronos despedir a las
-trabajadoras por el hecho del embarazo o de la lactancia. Todo despido
-justificado que de ellas se haga debe ser enviado previamente a las
-autoridades administrativas de trabajo.
+ARTICULO 94.-
+Queda prohibido a los patronos despedir a las trabajadoras que estuvieren en estado de embarazo o en período de lactancia, salvo por causa justificada originada en falta grave a los deberes derivados del contrato, conforme con las causales establecidas en el artículo 81. En este caso, el patrono deberá gestionar el despido ante la Dirección Nacional y la Inspección General de Trabajo, para lo cual deberá comprobar la falta. Excepcionalmente, la Dirección podrá ordenar la suspensión de la trabajadora, mientras se resuelve la gestión de despido.
+Para gozar de la protección que aquí se establece, la trabajadora deberá darle aviso de su estado al empleador, y aportar certificación médica o constancia de la Caja Costarricense de Seguro Social.
+(Así reformado por el artículo 32° (actual 35) de la Ley de Promoción de la Igualdad Social de la Mujer, Nº 7142 de 8 de marzo de 1990)

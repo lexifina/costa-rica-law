@@ -1,27 +1,21 @@
-Artículo 29.- Si el contrato de trabajo por tiempo indeterminado
-concluye por razón de despido injustificado, por alguna de las causas
-previstas en el artículo 83, u otra ajena a la voluntad del trabajador,
-el patrono deberá pagarle a éste un auxilio de cesantía de acuerdo con
-las siguientes reglas:
-a) Después de un trabajo continuo no menos de tres meses ni mayor de
-seis, con un importe igual a diez días de salario;
-b) Después de un trabajo continuo mayor de seis meses pero menor de
-un año, con un importe igual a veinte días de salario;
-c) Después de un trabajo continuo mayor de un año, con un importe
-igual a un mes de salario por cada año de trabajo o fracción no
-menor de seis meses;
-d) En ningún caso podrá exceder dicho auxilio del salario de ocho
-meses;
-e) El auxilio de cesantía deberá pagarse aunque el trabajador pase
-inmediatamente a servir a las órdenes de otro patrono, y
-f) No tendrá derecho a auxilio de cesantía el trabajador que al cesar
-su contrato quede automáticamente protegido por una jubilación,
-pensión de vejez o de retiro concedidas por el Estado o por la Caja
-Costarricense de Seguro Social; ni cundo el trabajador quede por
-el mismo hecho de despido acogido a los beneficios del seguro
-contra el desempleo involuntario de esta última Institución; o
-cuando en caso de fallecimiento del trabajador por un riesgo
-profesional, el patrono demuestre que tenía asegurado a éste contra
-dicho riesgo en el Banco Nacional de Seguros; o cuando el deceso
-del trabajador ocurra por otra causa y el occiso estuviere amparado
-contra el riesgo de muerte en la mencionada Caja.
+Artículo 29.-
+Si el contrato de trabajo por tiempo indeterminado concluye por despido injustificado, o algunas de las causas previstas en el artículo 83 u otra ajena a la voluntad del trabajador, el patrono deberá pagarle un auxilio de cesantía de acuerdo con las siguientes reglas:
+1. Después de un trabajo continuo no menor de tres meses ni mayor de seis, un importe igual a siete días de salario.
+2. Después de un trabajo continuo mayor de seis meses pero menor de un año, un importe igual a catorce días de salario.
+3. Después de un trabajo continuo mayor de un año, con el importe de días de salario indicado en la siguiente tabla:
+a) AÑO 1 19,5 días por año laborado.
+b) AÑO 2 20 días por año laborado o fracción superior a seis meses.
+c) AÑO 3 20,5 días por año laborado o fracción superior a seis meses.
+d) AÑO 4 21 días por año laborado o fracción superior a seis meses.
+e) AÑO 5 21,24 días por año laborado o fracción superior a seis meses.
+f) AÑO 6 21,5 días por año laborado o fracción superior a seis meses.
+g) AÑO 7 22 días por año laborado o fracción superior a seis meses.
+h) AÑO 8 22 días por año laborado o fracción superior a seis meses.
+i) AÑO 9 22 días por año laborado o fracción superior a seis meses.
+j) AÑO 10 21,5 días por año laborado o fracción superior a seis meses.
+k) AÑO 11 21 días por año laborado o fracción superior a seis meses.
+l) AÑO 12 20,5 días por año laborado o fracción superior a seis meses.
+m) AÑO 13 y siguientes 20 días por año laborado o fracción superior a seis meses.
+4. En ningún caso podrá indemnizar dicho auxilio de cesantía más que los últimos ocho años de relación laboral.
+5. El auxilio de cesantía deberá pagarse aunque el trabajador pase inmediatamente a servir a las órdenes de otro patrono.
+(Así reformado por el artículo 88 de la Ley de Protección al Trabajador N° 7983 del 16 de febrero del 2000)

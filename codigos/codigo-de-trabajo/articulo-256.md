@@ -1,5 +1,3 @@
-Artículo 256.- El patrono que asegure a sus trabajadores estará exento
-de las formalidades de denuncia ante la autoridad respectiva, lo mismo
-que de otras de índole procesal, siempre que dé aviso al Banco Nacional
-de Seguros dentro del término de cuarenta y ocho horas, contado a partir
-del acaecimiento del riesgo profesional.
+ARTICULO 256.- En casos calificados, en que por excepción el Instituto Nacional de Seguros resuelva a coger la solicitud de conmutación de rentas, entregará a quien corresponda, en lugar de las prestaciones en dinero que se adeudan, una suma global que se pagará de inmediato, la cual se calculará de acuerdo con las tablas actuariales que el Instituto Nacional de Seguros utiliza.
+Los cálculos que no merezcan conformidad del interesado deberán ser remitidos al Tribunal Superior de Trabajo, a efecto de que éste los revise y apruebe, o los devuelva con observaciones, en caso de que la suma que va a ser entregada al trabajador, o a sus causahabientes, sea diferente a la que les corresponde
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

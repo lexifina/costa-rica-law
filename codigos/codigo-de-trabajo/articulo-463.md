@@ -1,5 +1,2 @@
-Artículo 463.- Una vez contestada la demanda y la reconvención, si la
-hubiere, el Juez procurará avenir a las partes, proponiéndoles los
-medios de conciliación que su prudencia le sugiera, y acogerá en su
-fallo cualquier forma de arreglo, no contrario a las leyes de trabajo,
-en que convinieren.
+ARTICULO 463.- Si la demanda se interpusiere verbalmente, el Secretario levantará acta lacónica con todos los requisitos a que se refiere el artículo 461(*).
+(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 454, siendo ahora el 461)

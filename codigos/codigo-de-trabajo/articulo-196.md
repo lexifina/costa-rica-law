@@ -1,4 +1,8 @@
-Artículo 196.- En todos los establecimientos industriales o comerciales
-donde las funciones del personal lo permitan, los patronos tienen la
-obligación de mantener un número suficiente de sillas a disposición de
-los trabajadores.
+ARTICULO 196.-
+Se denomina accidente de trabajo a todo accidente que le suceda al trabajador como causa de la labor que ejecuta o como consecuencia de ésta, durante el tiempo que permanece bajo la dirección y dependencia del patrono o sus representantes, y que puede producirle la muerte o pérdida o reducción, temporal o permanente, de la capacidad para el trabajo.
+También se calificará de accidente de trabajo, el que ocurra al trabajador en las siguientes circunstancias:
+En el trayecto usual de su domicilio al trabajo y viceversa, cuando el recorrido que efectúa no haya sido interrumpido o variado, por motivo de su interés personal, siempre que el patrono proporcione directamente o pague el transporte, igualmente cuando en el acceso al centro de trabajo deban afrontarse peligros de naturaleza especial, que se consideren inherentes al trabajo mismo. En todos los demás casos de accidente en el trayecto, cuando el recorrido que efectúe el trabajador no haya sido variado por interés personal de éste, las prestaciones que se cubran serán aquellas estipuladas en este Código y que no hayan sido otorgadas por otros regímenes de seguridad social, parcial o totalmente.
+En el cumplimiento de órdenes del patrono, o en la prestación de un servicio bajo su autoridad, aunque el accidente ocurra fuera del lugar de trabajo y después de finalizar la jornada.
+En el curso de una interrupción del trabajo, antes de empezarlo o después de terminarlo, si el trabajador se encontrare en el lugar de trabajo o en el local de la empresa, establecimiento o explotación, con el consentimiento expreso o tácito del patrono o de sus representantes.
+ch) En cualquiera de los eventos que define el inciso e) del articulo 71 del presente Código.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

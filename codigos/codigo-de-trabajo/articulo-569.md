@@ -1,8 +1,2 @@
-Artículo 569.- Todo reo de faltas contra las leyes de trabajo o de
-previsión social, que hubiere sido detenido, podrá permanecer en
-libertad durante la tramitación de su proceso y hasta sentencia firme,
-si persona de notorio abono y buen crédito garantiza a satisfacción del
-respectivo Tribunal de Trabajo, la inmediata comparecencia del
-condenado, o su sumisión a la sentencia firme. Según el caso, podrá
-dispensarse de la fianza a las personas de honradez anterior reconocida,
-a juicio del juzgador.
+ARTICULO 569.- Tan luego como un Juez de Trabajo tenga noticia por impresión propia, si la importancia del caso lo requiere y se trata de las infracciones a que se refiere el párrafo segundo del artículo 34, o por denuncia o acusación en cualquier caso, de haberse cometido dentro de su jurisdicción territorial alguna infracción a las leyes de trabajo o de previsión social, procederá a la pronta averiguación del hecho, a fin de imponer sin demora la sanción correspondiente. Al efecto, podrá requerir el auxilio de las autoridades políticas o de trabajo de cada localidad, para que éstas levanten la información necesaria y le devuelvan los autos una vez que estén listos para el fallo.
+(Así reformado por el artículo 1° de la ley N° 668 del 14 de agosto de 1946)

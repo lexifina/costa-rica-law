@@ -1,13 +1,1 @@
-CAPITULO QUINTO
-Del recurso ante la Sala de Casación
-Artículo 549.- Contra las sentencias dictadas por el Tribunal
-Superior de Trabajo podrán las partes recurrir directamente y por
-escrito ante la Sala de Casación, dentro del término de cinco días,
-siempre que hubieren sido pronunciadas en conflictos individuales o
-colectivos de carácter jurídico de cuantía inestimable o mayor de dos
-mil quinientos colones, o que, si no se hubieren estimado, importen para
-el deudor la obligación de pagar una suma que exceda de la indicada
-cifra.
-Estas disposiciones se refieren únicamente a los juicios
-comprendidos por los incisos a), c), d) y e) del artículo 395 y no
-abarcan las diligencias de ejecución de fallo.
+ARTICULO 549.- Si dentro del término improrrogable de cuatro días, contados desde la fecha que se señaló para la comparecencia fracasada en su finalidad o no celebrada por cualquier motivo, los interesados no pidieren que el asunto se abra a pruebas, el respectivo Juez de Trabajo procederá a dictar sentencia dentro de los cinco días siguientes a la fecha de la expiración del primer término. Dicho Juez, por gestión de parte formulada dentro de los cuatro días posteriores a la comparecencia, abrirá el juicio a pruebas por el término improrrogable de quince días, de los cuales cinco serán para proponer y el resto para evacuar la prueba. Sin embargo, el Juez podrá abrir de oficio el asunto a pruebas, si estimare que hay hechos importantes que dan mérito para ello. La prueba no evacuada oportunamente por culpa de la parte, será impracticable después, salvo que luego se ordenare recibir para mejor proveer. Vencido el término expresado o luego que se haya practicado o declarado inevacuable la prueba ordenada, el Juez, dentro de los cinco vías siguientes, dictará sentencia.

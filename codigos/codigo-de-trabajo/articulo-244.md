@@ -1,12 +1,3 @@
-Artículo 244.- Los Médicos Oficiales tienen entre sus obligaciones:
-a) La asistencia sin demora o pretexto alguno en todos los riesgos
-profesionales ocurridos a los trabajadores, sea que éstos estén o
-no comprendidos en las disposiciones del presente Capítulo. En
-caso de que se trate de trabajadores de la primera categoría,
-dichos médicos tendrán derecho a cobrar al patrono los honorarios
-que fije la tarifa reglamentaria, pero en ningún momento podrán
-interrumpir la asistencia que tienen el deber de prestar, y
-b) La de suministrar sin demora alguna a las autoridades competentes
-los informes o dictámenes que les soliciten en todas las cuestiones
-médico-legales que surjan con motivo de la aplicación de las
-disposiciones de este Capítulo.
+ARTICULO 244.- La caducidad de la renta, por muerte de un beneficiario de los comprendidos en el artículo 243, o por cualquier otra causa, no configura derecho a favor de ninguno otro.
+Una sola persona no podrá disfrutar de dos rentas simultáneas, por razón de un mismo riesgo del trabajo, ocurrido a un mismo trabajador.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

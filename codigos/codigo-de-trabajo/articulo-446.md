@@ -1,3 +1,1 @@
-Sección II.- De las acumulaciones:
-Artículo 446.- La acumulación de acciones sólo será procedente cuando
-se haga en el mismo acto de la demanda o por vía de reconvención.
+ARTICULO 446.- Los escritos se presentarán ante los Tribunales de Trabajo por conducto del respectivo Secretario, quien pondrá al pie una razón en que consten el día y la hora de su recibo y el nombre de la persona que los entregue.

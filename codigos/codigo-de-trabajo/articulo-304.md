@@ -1,10 +1,3 @@
-Artículo 304.- Las cooperativas de producción tienen por objeto la
-manufactura o transformación de artículos naturales o elaborados, o la
-iniciación y desarrollo de toda clase de explotaciones agrícolas o
-ganaderas. Su funcionamiento se sujetará a estas reglas especiales:
-a) Deberán emplear de modo preferente en los trabajos u obras que
-emprendan sus asociados que lo deseen, y sólo podrán ocupar
-personal extraño en caso de que éstos por su número o competencia
-no satisfagan de modo evidente las necesidades respectivas, y
-b) Deberán formarse, de preferencia, adscritas a una o varias
-cooperativas de consumo.
+ARTICULO 304.- Los derechos y acciones para reclamar las prestaciones que establece este Título prescriben en dos años, contados desde el días en que ocurrió el riesgo o en que el trabajador esté en capacidad de gestionar su reconocimiento, y en caso de su muerte a partir del deceso.
+La prescripción no correrá para el trabajador no asegurado en el Instituto Nacional de Seguros, cuando siga trabajando a las órdenes del mismo patrono sin haber obtenido el pago correspondiente o cuando el patrono continúe reconociendo el total o parte del salario al trabajador o sus causahabientes.
+( Así ampliado por el artículo 1º de la Ley Sobre Riesgos del Trabajo Nº 6727 de 9 de marzo de 1982.)

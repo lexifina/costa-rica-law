@@ -1,15 +1,4 @@
-Artículo 253.- El seguro obligatorio, así como el facultativo respecto
-de las empresas y ocupaciones no comprendidas en el artículo
-trasanterior, será constituído a costa exclusiva del patrono, a favor
-de sus trabajadores, en el Banco Nacional de Seguros, y a condición de
-que los beneficios que dicha Institución otorgue, en cuanto a los
-riesgos que tome a su cargo, no sean inferiores a los que correspondan
-de acuerdo con este Capítulo.
-El Banco Nacional de Seguros, en cuanto a los riesgos que tome
-su cargo, subrogará al patrono en los derechos y obligaciones
-resultantes de las disposiciones del presente Capítulo, quedando a salvo
-la facultad que tiene el interesado para accionar contra el referido
-patrono por los riesgos que éste no haya asegurado.
-Es entendido que la responsabilidad del Banco se limitará de
-conformidad con las declaraciones del patrono en la póliza o planillas
-respectivas y anexos de una u otras.
+ARTICULO 253.- Las prestaciones médico- sanitarias de rehabilitación y en dinero que otorga el presente Código no podrán renunciarse, transarse, cederse, compensarse, ni gravarse, ni serán susceptibles de embargo, salvo las prestaciones en dinero, en un 50%, por concepto de pensión alimenticia.
+Para este efecto, los tribunales denegarán de plano toda reclamación que en ese sentido se plantee.
+Si por falta de aviso oportuno de la muerte de una de las personas que se hubieran hecho acreedoras a prestaciones en dinero, de acuerdo con los términos de este Código, o por cualquier otra ocultación hecha por el trabajador, o sus causahabientes, se hubieran pagado prestaciones no debidas, el Instituto Nacional de Seguros podrá cobrar o compensar lo que haya entregado indebidamente a los responsables, deduciendo las sumas de las prestaciones en dinero que se les adeuden a éstos, o mediante las gestiones cobratorias que correspondan, todo lo cual deberá comprobarse ante un juzgado de trabajo.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,7 +1,2 @@
-Artículo 359.- A falta de disposición expresa de los estatutos, el
-activo líquido de la cooperativa que se disuelva voluntariamente se
-destinará a engrosar, por partes iguales, el fondo de previsión de las
-cooperativas de igual índole que existan en el país.
-Igual destino se dará a dicho activo líquido, aunque haya
-estipulación en contrario, siempre que la disolución de la cooperativa
-fuere forzosa.
+ARTICULO 359.- Todo sindicato afiliado puede retirarse de un federación o confederación en cualquier tiempo, cuando la mayoría de sus miembros así lo dispusiere. Será absolutamente nula la disposición en contrario que se adopte en los respectivos estatutos.
+(La Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982, artículo 2º, trasladó el original 289 al presente)

@@ -1,9 +1,6 @@
-Artículo 148.- Salvo lo dispuesto en el párrafo tercero del artículo
-153, para el efecto de su pago únicamente se entenderán como días
-feriados, el 1º de enero, el Jueves y el Viernes Santos, el 15 de
-setiembre y el 25 de diciembre, a menos que el patrono hubiere convenido
-en pagar otros a los trabajadores.
-Dicho pago se hará de acuerdo con el salario ordinario, si el
-trabajador ganare por unidad de tiempo, y de acuerdo con el salario
-medio que éste hubiere devengado durante la semana inmediata anterior
-al descanso si el trabajo se realizare a destajo o por piezas.
+ARTICULO 148.- Se considerarán días feriados y, por lo tanto, de pago obligatorio los siguientes: el 1 de enero, el 11 de abril, el Jueves y Viernes Santos, el 1 de mayo, el 25 de julio, el 15 de agosto, el 15 de setiembre, y el 25 de diciembre. Los días 2 de agosto y 12 de octubre también se considerarán días feriados pero su pago no será obligatorio.
+El pago de estos días se efectuará de acuerdo con el salario ordinario, si el trabajador gana por unidad de tiempo, y de acuerdo con el salario promedio que haya devengado durante la semana inmediata al descanso, si el trabajo se realiza a destajo o por piezas.Cuando el 12 de octubre sea martes, miércoles, jueves o viernes, el patrono deberá disponer que se trabaje ese día y el disfrute lo trasladará para el lunes siguiente. Sin embargo, en las empresas y las entidades cuyo mayor movimiento se produce durante los sábados y los domingos, así como las actividades que, por su índole, no puedan paralizar las labores o interrumpirlas los lunes, previa aceptación del trabajador, el patrono deberá señalar el día en que se disfrutará el feriado, dentro de un plazo no mayor de quince días.
+Los practicantes de religiones distintas de la católica podrán solicitar a su patrono el otorgamiento de los días de celebración religiosa propios de su creencia como días libres y el patrono estará obligado a concederlo. Cuando ello ocurra, el patrono y el trabajador acordarán el día de la reposición, el cual podrá rebajarse de las vacaciones.
+Los días de cada religión, que podrán ser objeto de este derecho, serán los que se registren en el Ministerio de Relaciones Exteriores y Culto, siempre y cuando el número no exceda al de los días de precepto obligatorio, observados por la Iglesia Católica en Costa Rica. El Poder Ejecutivo reglamentará los alcances de esta disposición en los primeros sesenta días después de la vigencia de esta Ley.
+(Así reformado por el artículo 1º de la ley No.7619 de 24 de julio de 1996)
+(Este artículo se encuentra reglamentado por el Decreto Ejecutivo N° 25570 del 7 de octubre de 1996)

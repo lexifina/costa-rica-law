@@ -1,10 +1,3 @@
-Artículo 238.- Es obligación del patrono suministrar a la víctima de
-un riesgo profesional los primeros auxilios, aun cuando hubiere
-asegurado a sus trabajadores o aunque existan indicios fundados de que
-por cualquier motivo en definitiva podrá declararse la exención de la
-responsabilidad patronal.
-Al efecto, todo patrono deberá mantener en cada lugar de trabajo
-un botiquín de emergencia o de primeros auxilios, que contendrá lo que
-el Reglamento disponga. El respectivo decreto se emitirá tomando en
-cuenta la clase de trabajo, el número de trabajadores que lo desempeñan,
-la región de que se trate y demás detalles análogos.
+ARTICULO 238.- La declaración de incapacidad menor permanente establece para el trabajador el derecho a percibir un renta anual, pagadera en dozavos, durante un plazo de cinco años, la cual se calculará aplicando el porcentaje de incapacidad que se le ha fijado, conforme a los términos de los artículos 224 y 225, al salario anual que se determine.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)
+(Nota: Ver Reglamento sobre Botiquines de Emergencia, Decreto Ejecutivo N° 12 del 28 de setiembre de 1951)

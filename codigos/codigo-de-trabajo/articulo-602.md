@@ -1,4 +1,2 @@
-Artículo 602.- Salvo disposición especial en contrario, todos los
-derechos y acciones provenientes de contratos de trabajo prescribirán
-en el término de seis meses, contados desde la fecha de extinción de
-dichos contratos.
+ARTICULO 602.- Salvo disposición especial en contrario, todos los derechos y acciones provenientes de contratos de trabajo prescribirán en el término de seis meses, contados desde la fecha de extinción de dichos contratos.
+( Interpretado por Resolución de la Sala Constitucional Nº 5969-93 de las 15:21 horas del 16 de noviembre de 1993 que fue aclarada por Resolución Nº 280-I-94 de las 14:32 horas del 7 de junio de 1994).

@@ -1,8 +1,2 @@
-Artículo 319.- No podrá constituirse ninguna sociedad cooperativa
-mientras no esté suscrito íntegramente el capital inicial y no se pague,
-por lo menos, el veinticinco por ciento de su importe total.
-Corresponderá también al Gerente, bajo su responsabilidad, guardar
-en lugar secreto el dinero efectivo aportado por los socios, durante
-todo el tiempo que no esté legalmente constituída la cooperativa, y sólo
-podrá girar sobre dichos fondos para atender los gastos de tramitación
-a que se refiere el párrafo primero del artículo anterior.
+ARTICULO 319.- Si la denuncia no fuere presentada en forma legal, el juez de trabajo se abstendrá de darle curso, hasta tanto no se cumplan las exigencias del artículo 318; al efecto, queda obligado el juez, por todos los medios a su alcance, a procurar que se subsanen, sin pérdida de tiempo, las omisiones que hubiere.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

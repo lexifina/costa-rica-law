@@ -1,10 +1,3 @@
-Artículo 303.- Las cooperativas de compra y venta tienen por objeto
-principal impulsar el desarrollo de la agricultura y de la ganadería
-mediante la adquisición de materias primas, enseres, maquinarias,
-accesorios, herramientas, o la venta de productos naturales o
-elaborados, o indistintamente ambas operaciones realizadas en provecho
-de sus asociados.
-Se regirán de preferencia por las disposiciones contenidas en los
-incisos b), d) y f) del artículo 301, pero si hicieren uso de la
-facultad de extender sus servicios al público se constituirán bajo la
-forma de responsabilidad limitada.
+CAPITULO NOVENO
+ARTICULO 303.- Los reclamos por riesgos del trabajo se tramitarán en los juzgados de trabajo de la jurisdicción donde hubiesen ocurrido, operándose la prórroga de jurisdicción en beneficio del trabajador litigante, de conformidad con lo dispuesto en los artículos 461 y siguientes y demás concordantes del Código de trabajo, o de acuerdo con el procedimiento señalado en los artículos 543 a 555 del mismo Código, en lo que sea aplicable y no contradiga las disposiciones de este Código; todo ello atendiendo la naturaleza del reclamo y la conveniencia e interés de los trabajadores.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

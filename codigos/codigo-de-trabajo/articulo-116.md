@@ -1,3 +1,1 @@
-Artículo 116.- El aprendiz puede poner término al contrato con sólo un
-aviso previo de diez días, aunque se haya estipulado plazo para su
-duración.
+ARTICULO 116.- (Derogado por el artículo 29° de la Ley de Aprendizaje, N° 4903 de 17 de noviembre de 1971)

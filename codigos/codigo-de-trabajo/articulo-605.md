@@ -1,4 +1,1 @@
-Artículo 605.- Los derechos y acciones de los trabajadores para dar
-por concluído con justa causa su contrato de trabajo, prescriben en el
-término de un mes, contado desde el momento en que el patrono dio motivo
-para la separación.
+ARTICULO 605.-Anulado (Por resolución de la Sala Constitucional N°02339 de las 14:32 horas del 19 de Marzo del 2003, se anuló el texto de este artículo que establecía lo siguiente: "Los derechos y acciones de los trabajadores para dar por concluido con justa causa su contrato de trabajo, prescriben en el término de un mes, contado desde el momento en que el patrono dio motivo para la separación").

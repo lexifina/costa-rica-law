@@ -1,27 +1,6 @@
-Artículo 545.- Cuando el trabajador estuviere en condiciones de
-volver a su trabajo, o cuando en caso de incapacidad parcial o absoluta
-permanente estuvieren ya consolidadas las lesiones, o cuando ocurriere
-su muerte a consecuencia del riesgo profesional realizado, el patrono
-no asegurado presentará un informe sobre el resultado definitivo del
-accidente o enfermedad, que indicará la indemnización que haya pagado
-y la que reconoce a la víctima o a sus causahabientes, e irá acompañado
-del dictamen médico final correspondiente al caso. Este documento se
-expedirá bajo la responsabilidad del facultativo, firmante y contendrá,
-por lo menos, los siguientes requisitos:
-a) Nombre y apellidos de la víctima;
-b) Nombre completo del patrono;
-c) Fecha de la curación completa del trabajador o de la consolidación
-de las lesiones;
-d) Fecha en que puede volver a trabajar;
-e) Descripción, en caso de que quede algún impedimento, de los
-miembros u órganos afectados y de la extensión de éste;
-f) Especificación de si la pérdida del uso de los mismos es total o
-parcial, y del tanto por ciento en que se estima dicha pérdida a
-base del uso normal de los miembros u órganos de que se trate;
-g) En caso de muerte, fecha en que ésta ocurrió; si el fallecimiento
-se debe a las lesiones ocasionadas por el riesgo profesional
-realizado o a sus complicaciones y, en caso negativo, la causa de
-la misma;
-h) Observaciones del médico que asistió a la víctima y que calificó
-sus lesiones o dio los datos y conclusiones de la autopsia, e
-i) Fecha en que se expide el dictamen.
+ARTICULO 545.- Cuando la denuncia se hiciere ante una autoridad política o de trabajo, ésta debe poner el caso en conocimiento del respectivo Juez de Trabajo a la mayor brevedad que le sea posible; y mientras no reciba instrucciones concretas del citado funcionario judicial, empezará a levantar la información sumaria correspondiente en averiguación de lo hechos.
+El Juez, una vez recibida la denuncia, podrá constituirse en el lugar donde ocurrió el riesgo profesional o comisionar, de conformidad con lo dispuesto por el artículo 421(*), a cualquier autoridad judicial, política o de trabajo de su jurisdicción territorial para que continúe levantando la información del caso, parcialmente o hasta poner el asunto en estado de fallar.
+(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 414, siendo ahora el 421)
+Para ese efecto, el Juez podrá elegir a la autoridad con jurisdicción en el lugar donde ocurrió el hecho o donde esté situado el establecimiento al que concurre el trabajador a prestar sus servicios.
+Si el patrono y la víctima, o los causahabientes de ésta, en caso de muerte, tuvieren el mismo domicilio, podrá también comisionar a la autoridad cuya jurisdicción corresponda a dicho domicilio.
+Cualquier diligencia que hubiere de practicarse fuera de la jurisdicción de la autoridad comisionada, se encargará a la del lugar donde deba aquélla verificarse.

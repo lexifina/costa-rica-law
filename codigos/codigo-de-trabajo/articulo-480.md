@@ -1,6 +1,1 @@
-Artículo 480.- El Juez declarará, de oficio, inevacuables las pruebas
-que no se reciban en las comparecencias o dentro del término
-improrrogable que él señale, en caso de que para su recepción se haya
-comisionado a otro funcionario.
-Es entendido que no podrá declararse inevacuable la prueba no
-recibida en tiempo por culpa del Despacho.
+ARTICULO 480.- Queda prohibido a los patronos negar permiso a los trabajadores para ausentarse del lugar donde ejecutan sus labores, cuando éstos deban comparecer como testigos o actuar en alguna otra diligencia judicial. Tampoco podrán rebajarles sus salarios por tal motivo, siempre que los trabajadores muestren, por anticipado, la respectiva orden de citación o de emplazamiento.

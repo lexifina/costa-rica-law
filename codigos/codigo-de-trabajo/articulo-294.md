@@ -1,15 +1,4 @@
-Artículo 294.- A ninguna entidad o sociedad que no se ajuste
-rigurosamente a las formalidades prescritas en este Capítulo,
-cualesquiera que sean sus actividades, le será permitido adoptar la
-denominación "cooperativa" u otra análoga, ni inscribirla en su razón
-social o en sus títulos, ni usarla en forma alguna en sus documentos,
-papelería, avisos o publicaciones. Se exceptúa únicamente el caso de
-la Cooperativa de Casas Baratas La Familia y otras que tengan su origen
-en leyes especiales anteriores a la vigencia de este Código.
-Durante el período de organización de una cooperativa podrá ésta
-adoptar dicha denominación, pero agregando las palabras "en formación";
-y si fuere disuelta deberá conservarla agregando la frase "en
-liquidación."
-Los infractores de estas disposiciones serán sancionados por las
-autoridades represivas comunes con las penas previstas en los artículos
-307 y 308 del Código Penal.
+ARTICULO 294.- Son trabajos o centros de trabajos insalubres los que, por su naturaleza, pueden originar condiciones capaces de amenazar o dañar la salud de los trabajadores o vecinos, por causa de materiales empleados, elaborados o desprendidos, o por los residuos, sólidos, líquidos o gaseosos.
+Son trabajos o centros de trabajo peligrosos los que dañan o puedan dañar, de modo grave, la vida de los trabajadores o vecinos, sea por su propia naturaleza o por los materiales empleados, desprendidos o de desecho, sólidos, líquidos o gaseosos, o por el almacenamiento de sustancias tóxicas, corrosivas, inflamables o explosivas.
+El Consejo de Salud Ocupacional determinará cuáles trabajos o centros de trabajo son insalubres y cuáles son peligrosos; además, establecerá de cuál tipo o clase de sustancias queda prohibida la elaboración o distribución, o si éstas se restringen o se someten a determinados requisitos especiales.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

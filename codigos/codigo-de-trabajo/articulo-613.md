@@ -1,11 +1,3 @@
-Artículo 613.- Todas las infracciones que se hagan de este Código,
-de sus Reglamentos o de las leyes de trabajo o de previsión social, así
-como el incumplimiento de cualquier obligación impuesta por dichas
-disposiciones, siempre que por la naturaleza del derecho violado tengan
-el carácter de faltas y no estén sancionadas en ninguna otra forma,
-serán penadas con multa de dos a veinte colones en tratándose de
-trabajadores y con multa de treinta a sesenta colones si los infractores
-fueren patronos.
-En caso de dos o más reincidencias específicas, los Tribunales de
-Trabajo podrán imponer en lugar de dichas multas su equivalente legal
-en arresto, que en tal supuesto será inconmutable.
+ARTICULO 613.- La acción para solicitar la imposición de las sanciones establecidas en este Código, podrá interponerla cualquier persona perjudicada, su representante legal o la Inspección General del Ministerio de Trabajo y Seguridad Social.
+En materia de salud ocupacional, se estará a lo dispuesto en el artículo 316 de este Código.
+(Así reformado por el artículo 4º de la ley N° 7360 del 4 de noviembre de 1993)

@@ -1,10 +1,5 @@
-Artículo 548.- Si no fueren apeladas se someterán a consulta
-forzosa:
-a) Las resoluciones finales que dicten los Jueces de Trabajo con
-motivo de la aplicación de los artículo 242 y 243, y
-b) Las sentencias definitivas y los autos que pongan término al juicio
-o imposibiliten su continuación, cuando se tratare de riesgos
-profesionales que han causado la muerte o una incapacidad
-permanente, parcial o absoluta.
-Las dos reglas que preceden se observarán en todo caso, sin hacer
-distinción por la cuantía del respectivo negocio.
+ARTICULO 548.- Ocurrida la muerte del trabajador o fijada, en su caso, la incapacidad permanente, parcial o absoluta, por dictamen médico, el Juez de Trabajo convocará de oficio a las partes para que ante él lleguen, si fuere posible, a un arreglo sobre sus respectivos derechos y obligaciones. Se prescindirá de esta convocatoria sólo en los casos en que el patrono, al presentar el aviso sobre el resultado final del riesgo profesional ocurrido, acompañe constancia auténtica del arreglo pactado entre las partes, ajustado, a juicio del Juez, a las prescripciones legales. Es entendido que todos los gastos que demande la formalización de dicho arreglo serán de cuenta del patrono.
+La convocatoria será también imprescindible cuando el trabajador la solicite y en todos los casos de incapacidad temporal en que el patrono no diere oportunamente el aviso sobre el resultado final de riesgo profesional, con su respectivo dictamen médico, en los términos del artículo 552(*).
+(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 545, siendo ahora el 552)
+Se entenderá auténtica la constancia a que se refiere el párrafo trasanterior, cuando así lo certifiquen, bajo su responsabilidad, un abogado o un Inspector de Trabajo, o cuando el patrono y el trabajador la presenten conjuntamente ante el Tribunal.
+Si el Juez aprobare el arreglo dictará la resolución correspondiente y, sin pérdida de tiempo, procederá siempre a consultarla con el Superior.

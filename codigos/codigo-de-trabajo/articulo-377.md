@@ -1,3 +1,3 @@
-Artículo 377.- Se tendrá también por paro ilegal todo acto malicioso
-del patrono que imposibilite a los trabajadores el normal desempeño de
-su labores.
+ARTICULO 377.- La huelga ilegal termina, sin responsabilidad para el patrono, con los contratos de trabajo celebrados por los huelguistas; quedan a salvo las sanciones de orden represivo que en contra de éstos lleguen a declarar los Tribunales Comunes.
+Sin embargo, en los nuevos contratos que celebre el patrono, no podrán estipularse condiciones inferiores a las que, en cada caso, regían antes de declararse la huelga ilegal.
+(El párrafo final de este artículo fue interpretado mediante resolución de la Sala Constitucional N° 15907-07 del 31 de octubre del 2007, en el sentido de que el mismo no resulta inconstitucional, en el tanto en los contratos que celebre el patrono en una contratación inmediata, tras el despido de un trabajador como consecuencia de una huelga ilegal, no se estipulen condiciones inferiores a las que regían antes de declararse la huelga ilegal; restricción que se impone de modo justificado y razonable a la libertad de contratación, a efecto de paliar la situación de desventaja en que se encontrarían los trabajadores frente al patrono, a fin de evitar que éste se aproveche o busque sacar provecho para contratar en condiciones menos ventajosas para el trabajador.)

@@ -1,10 +1,2 @@
-TITULO SEXTO
-DE LOS CONFLICTOS COLECTIVOS DE CARACTER
-ECONOMICO Y SOCIAL
-CAPITULO PRIMERO
-De las huelgas legales e ilegales
-Artículo 364.- Huelga legal es el abandono temporal del trabajo en
-una empresa, establecimiento o negocio, acordado y ejecutado
-pacíficamente por un grupo de tres o más trabajadores, con el exclusivo
-propósito de mejorar o defender sus intereses económicos y sociales
-comunes.
+ARTICULO 364.- Toda persona o sindicato con interés puede acudir, ante la Dirección Nacional de Inspección de Trabajo, a denunciar por escrito la comisión de prácticas laborales desleales; pero esas prácticas también podrán ser investigadas de oficio.
+(Así adicionado por el artículo 3º de la ley N° 7360 del 4 de noviembre de 1993)

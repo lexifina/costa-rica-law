@@ -1,7 +1,2 @@
-Artículo 551.- Inmediatamente que se reciba el recurso, la
-Secretaría, sin necesidad de providencia al respecto, pedirá los autos.
-Con vista del oficio respectivo, el Tribunal Superior de Trabajo
-citará y emplazará a las partes para que comparezcan dentro de tercero
-día ante la Sala de Casación a hacer valer sus derechos. Si
-sobreviniere recurso de otra u otras partes, no se repetirá por eso la
-citación y emplazamiento.
+ARTICULO 551.- El Tribunal Superior de Trabajo revisará los acuerdos que hubieren celebrado las partes sobre los beneficios que en caso de riesgo profesional reconoce el presente Código al trabajador o a sus causahabientes y declarará la nulidad de dichos arreglos siempre que no se ajusten a las prescripciones de ley. En este caso el Tribunal devolverá el asunto al Juez de su procedencia, quien notificará a las partes la resolución del Superior y seguirá tramitando el asunto conforme a las reglas que establece el artículo 549(*), como si la comparecencia de partes hubiere fracasado en su finalidad.
+(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración del antiguo artículo 542, siendo ahora el 549)

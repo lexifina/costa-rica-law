@@ -1,6 +1,3 @@
-Artículo 330.- Ni los miembros de la Junta Directiva, ni el Gerente,
-ni los trabajadores al servicio de una cooperativa podrán dedicarse, por
-cuenta propia, a ninguna labor o negocio similar, que tenga relación con
-el giro de la sociedad.
-Si lo hicieren, deberán abandonar el cargo inmediatamente que así
-lo pida el Comité de Vigilancia.
+CAPITULO DECIMO PRIMERO
+ARTICULO 330.- La Caja Costarricense de Seguro Social y el Instituto Nacional de Seguros nombrarán, cada uno, dos funcionarios para que, dentro de una política de coordinación interinstitucional y para la mejor aplicación del presente Título en orden a los servicios médicos hospitalarios y de rehabilitación, estudien y propongan ante los respectivos órganos ejecutivos, soluciones a los problemas que se presenten y que afecten a los trabajadores y las dos entidades, en lo que a riesgos del trabajo se refiere.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

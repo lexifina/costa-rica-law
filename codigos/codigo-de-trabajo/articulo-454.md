@@ -1,15 +1,2 @@
-Sección IV.- De la demanda:
-Artículo 454.- Toda demanda contendrá:
-a) Los nombres y apellidos, la profesión u oficio, la edad aproximada
-y el vecindario del actor y del demandado;
-b) La exposición clara y precisa de los hechos en que se funda;
-c) La enunciación de los medios de prueba con que se acreditarán los
-hechos y la expresión de los nombres, apellidos y domicilio de los
-testigos. Si el demandante deseare que el Juzgado haga comparecer
-a éstos, indicará las señas exactas del lugar donde trabajan o
-viven; y si se tratare de certificaciones u otros documentos
-públicos, el actor expresará la oficina donde se encuentran, para
-que la autoridad ordene su expedición libres de derechos;
-d) Las peticiones que se someten a la resolución del Tribunal, y
-e) Señalamiento de casa para oír notificaciones.
-No es necesario estimar el valor pecuniario de la acción.
+ARTICULO 454.- La acumulación de autos procederá únicamente entre juicios de conocimiento de los Tribunales de Trabajo que se tramiten por los mismos procedimientos, siempre que no se haya dictado sentencia de primera instancia en uno de ellos. La resolución respectiva podrá ser dictada de oficio, sin recurso alguno, cuando las causas se encontraren radicadas en un mismo Despacho.
+Si los Tribunales de Trabajo denegaren una solicitud de acumulación de autos, o estimaren que ésta se hizo con ánimo de retrasar el curso de los procedimientos o con cualquier otro fin indebido, impondrán a la parte que interpuso la gestión improcedente una multa de veinticinco a cien colones. El monto de esta corrección disciplinaria se regulará atendiendo a la calidad de patrono o de trabajador de quien interpuso la gestión y se aplicará sólo al abogado director cuando el litigante lo tuviere.

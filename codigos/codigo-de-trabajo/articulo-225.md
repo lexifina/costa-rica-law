@@ -1,6 +1,3 @@
-Artículo 225.- Si un trabajador, por riesgo profesional realizado,
-quedare incapacitado total o permanentemente por enajenación mental, la
-indemnización será pagada sólo a la persona que conforme al Código Civil
-lo represente.
-Igual regla regirá para los causahabientes de la víctima que fueren
-menores o enajenados mentales.
+ARTICULO 225.- Toda enfermedad del trabajo debe tratarse y curarse cuantas veces sea necesario, antes de establecerse incapacidad permanente. En caso de llegarse a determinar la imposibilidad de curación, o cuando el trabajador se haya sensibilizado al agente que le produjo la enfermedad, se procederá a establecer incapacidad permanente.
+El Poder Ejecutivo, habiendo oído de previo a la Junta Directiva del Instituto asegurador, podrá dictar, por vías de reglamento, las tablas de enfermedades profesionales que darán derecho a una indemnización, sin perjuicio de que los tribunales de trabajo conceptúen otras enfermedades no enumeradas en el decreto o decretos respectivos, comprendidas dentro de las previsiones del párrafo anterior.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

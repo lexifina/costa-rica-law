@@ -1,10 +1,2 @@
-Artículo 307.- Las cooperativas de habitación tiene por objeto
-facilitar a sus asociados la adquisición o el arrendamiento de viviendas
-higiénicas y baratas.
-Fomentarán por todos los medios el ingreso de nuevos asociados,
-para los efectos del artículo 301, inciso b).
-Las disposiciones legales vigentes o que luego se dicten sobre
-construcción y venta de casas baratas, y las exenciones o facilidades
-que al respecto se hayan concedido o se concedan por leyes especiales,
-se aplicarán a esta clase de cooperativas en cuanto no contradigan las
-normas del presente Código.
+ARTICULO 307.- Si el patrono no hubiere asegurado al trabajador estará obligado a depositar, en el Instituto Nacional de Seguros el capital correspondiente a la suma de prestaciones debidas, las cuales se calcularán conforme a las bases actuariales que el Instituto utilice según este Título, además de lo que por cualquier otro concepto adeudare, dentro de los diez días siguientes a la notificación correspondiente, realizada por el Instituto asegurador. Vencido este término, el depósito del capital podrá exigirse por la vía ejecutiva.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

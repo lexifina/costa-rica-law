@@ -1,13 +1,4 @@
-Sección II.- De la responsabilidad en materia de riesgos
-profesionales:
-Artículo 210.- Se presume que el patrono es responsable de la
-reparación de los riesgos profesionales ocurridos a sus trabajadores,
-en los términos del artículo 203. Se exceptuarán, cuando se rinda la
-prueba judicial correspondiente, los casos debidos a fuerza mayor
-extraña y sin relación alguna con el trabajo, los provocados
-intencionalmente por la víctima y los debidos al estado de embriaguez
-imputable a ésta.
-La imprudencia profesional, o sea la omisión del trabajador de
-tomar ciertas precauciones debido a la confianza que adquiere en su
-supericia o habilidad para ejercer su oficio, no exime al patrono de
-responsabilidad.
+ARTICULO 210.-
+Las declaraciones hechas por el patrono, en la solicitud del seguro contra los riesgos del trabajo, se tendrán por incorporadas y formarán parte integrante del contrato de seguro correspondiente.
+El patrono garantiza la veracidad de las declaraciones y responderá por las consecuencias de declaraciones falsas.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

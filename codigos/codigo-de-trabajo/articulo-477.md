@@ -1,10 +1,1 @@
-Artículo 477.- El resultado de las pruebas evacuadas se consignará en
-una acta lacónica.
-Si se presentaren testigos o nombrare el Juez peritos, serán
-juramentados en debida forma, pero en dicha acta no se consignará nada
-al respecto. La simple referencia que en ella se haga del testigo o
-perito indicará que fue juramentado legalmente. Igual regla se
-observará respecto de las partes cuando se les pida confesión. En
-cuanto a las generales de ley con las partes, sólo se hará referencia
-en las actas cuando el declarante tenga algún nexo con los litigantes
-que pueda servir para calificar su declaración.
+ARTICULO 477.- Todo habitante del país que no esté justamente impedido o comprendido por las excepciones de ley, tiene obligación de concurrir al llamamiento judicial que se le haga para declarar en un juicio de conocimiento de los Tribunales de Trabajo, sobre lo que fuere preguntado.

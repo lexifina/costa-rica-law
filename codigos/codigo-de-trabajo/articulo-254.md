@@ -1,5 +1,7 @@
-Artículo 254.- El contrato de seguro contendrá las cláusulas que de
-conformidad con la técnica universal del mismo impidan una selección
-desfavorable, que pueda hacer más oneroso para el grupo de patronos
-asegurados el costo de la protección, siempre que dichas cláusulas no
-se opongan a lo dispuesto en el presente Capítulo.
+ARTICULO 254.- El patrono está obligado a reponer en su trabajo habitual al trabajador que haya sufrido un riesgo del trabajo, cuando esté en capacidad de laborar.
+Si de conformidad con el criterio médico, el trabajador no pudiera desempeñar normalmente el trabajo que realizaba cuando le aconteció el riesgo, pero si otro diferente en la misma empresa, el patrono estará obligado a proporcionárselo, siempre que ello sea factible, para lo cual podrá realizar los movimientos de personas que sean necesarios.
+En casos en que la reinstalación ocasione perjuicio objetivo al trabajador, ya sea por la índole personal del puesto, por el salario percibido, o porque afecta negativamente su proceso de rehabilitación, o bien porque incluso el trabajador se encuentra en contacto con las causas generativas del riesgo ocurrido, el patrono procederá a efectuar el pago de sus prestaciones legales correspondientes, extremos que serán procedentes si no es posible lograr la reubicación del trabajador en la empresa.
+Para los efectos antes señalados, el trabajador podrá solicitar, administrativamente, al ente asegurador, de previo, o una vez que se le haya dado de alta provisional o definitiva para trabajar, que adjunte a la orden de alta una copia del dictamen médico, en la que, sin perjuicio de otros datos se señale claramente la situación real del trabajador, en relación con el medio de trabajo que se recomienda para él, según su capacidad laboral.
+El trabajador podrá reclamar, por la vía jurisdiccional, este derecho, siempre que no hayan transcurrido dos meses desde que se le dio de alta, con o sin fijación de impedimento, y siempre que no se le haya señalado incapacidad total permanente.
+El Poder Ejecutivo, por la vía reglamentaria, habiendo oído de previo a la Junta Directiva del Instituto Nacional de Seguros, al Consejo de Salud Ocupacional y al Consejo Nacional de Rehabilitación y Educación Especial, fijará las condiciones de trabajo de los minusválidos, en tanto no se emita una ley especial, y establecerá las cuotas de colocación selectiva de minusválidos a que estarán obligadas las empresas públicas y privadas.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

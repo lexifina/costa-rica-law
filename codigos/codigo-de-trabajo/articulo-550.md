@@ -1,8 +1,1 @@
-Artículo 550.- El recurso no estará sujeto a formalidades técnicas
-especiales, pero necesariamente contendrá:
-a) Indicación de la clase de juicio, del nombre y apellidos de las
-partes, de la hora y fecha de la resolución recurrida y de la
-naturaleza de ésta;
-b) Las razones, claras y precisas, que ameritan la procedencia del
-recurso, y
-c) Señalamiento de casa para oír notificaciones.
+ARTICULO 550.- Si el patrono hubiere cumplido con la obligación de hacer la oportuna denuncia y no hubiere gestión de la víctima o de sus causahabientes en demanda de sus derechos, el Juez, como primera medida, dispondrá que el caso quede en suspenso en espera de los informes posteriores sobre el resultado final del riesgo ocurrido. Si transcurrido el tiempo en que según el pronóstico respectivo deba conocerse tal resultado, el patrono no hubiere proporcionado los informes correspondientes, la autoridad, sin más demora, procederá a realizar la convocatoria de la ley y el caso se tramitará de oficio como cuando existe inconformidad entre las partes.

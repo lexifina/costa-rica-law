@@ -1,3 +1,1 @@
-Artículo 444.- Las providencias deberán necesariamente dictarse dentro
-de las veinticuatro horas y los autos, salvo lo dispuesto para casos
-especiales, dentro de tres días.
+ARTICULO 444.- Las partes también podrán gestionar por escrito, pero no estarán obligadas a presentar copias. Tampoco se exigirán éstas cuando se aporten documentos, pues corresponderá al Secretario certificar en autos las piezas cuya pérdida pueda causar perjuicio irreparable o difícil de subsanar, y guardar cuidadosamente los originales en la caja del respectivo Tribunal de Trabajo.

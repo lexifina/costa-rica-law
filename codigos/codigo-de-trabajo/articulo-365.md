@@ -1,3 +1,2 @@
-Artículo 365.- La huelga legal suspende los contratos de trabajo
-vigentes en la empresa, lugar o negocio en que se declare, por todo el
-tiempo que ella dure.
+ARTICULO 365.- La Dirección Nacional de Inspección de Trabajo investigará, por los medios que estime conveniente, los hechos violatorios de que tenga conocimiento. Si determina que existe mérito para conocer sobre el fondo del asunto, convocará a las partes involucradas o, si los tienen, a sus representantes legales, a una audiencia en la que se recibirán todas las pruebas que se estimen necesarias.
+(Así adicionado por el artículo 3º de la ley N° 7360 del 4 de noviembre de 1993)

@@ -1,9 +1,3 @@
-Artículo 273.- Se reconoce a los patronos y a los trabajadores el
-derecho de formar sindicatos sin autorización previa, pero dentro de los
-treinta días siguientes deberán iniciar los trámites a que se refiere
-el artículo siguiente.
-Sin embargo, no podrá constituirse ninguno con menos de veinte
-miembros si se tratare de un sindicato de trabajadores o de personas de
-profesión u oficio independiente; ni con menos de cinco patronos de la
-misma actividad comercial, industrial, ganadera o agrícola, cuando se
-tratare de sindicatos patronales.
+CAPITULO OCTAVO
+ARTICULO 273.- Declárase de interés público todo lo referente a salud ocupacional, que tiene como finalidad promover y mantener el más alto nivel de bienestar físico, mental y social del trabajador en general; prevenir todo daño causado a la salud de éste por las condiciones del trabajo; protegerlo en su empleo contra los riesgos resultantes de la existencia de agentes nocivos a la salud; colocar y mantener al trabajador en un empleo con sus aptitudes fisiológicas y sicológicas y, en síntesis, adaptar el trabajo al hombre y cada hombre a su tarea.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,7 +1,4 @@
-Artículo 201.- Todos los trabajadores y los que se ocupen en el
-manipuleo, la fabricación o el expendio de productos alimenticios para
-el consumo público, deberán proveerse de un certificado médico cada mes,
-que acredite que no padecen de enfermedades infecto-contagiosas o
-capaces de inhabilitarlos para el desempeño de su oficio. A este
-certificado médico es aplicable lo dispuesto por el artículo 103, parte
-final.
+CAPITULO SEGUNDO
+ARTICULO 201.-
+En beneficio de los trabajadores, declárase obligatorio, universal y forzoso el seguro contra los riesgos del trabajo en todas las actividades laborales. El patrono que no asegure a los trabajadores, responderá ante éstos y el ente asegurador, por todas las prestaciones médico-sanitarias, de rehabilitación y en dinero, que este Título señala y que dicho ente asegurador haya otorgado.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

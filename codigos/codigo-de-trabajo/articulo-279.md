@@ -1,15 +1,3 @@
-Artículo 279.- Los sindicatos están obligados:
-a) A llevar libros de actas, de socios y de contabilidad debidamente
-sellados y autorizados por la oficina General de Trabajo;
-b) A suministrar los informes que les pidan las autoridades de
-trabajo, siempre que se refieran exclusivamente a su actuación como
-tales sindicatos;
-c) A comunicar a la Inspección General de Trabajo, dentro de los
-diez días siguientes a su elección, los cambios ocurridos en su
-Junta Directiva;
-d) A enviar cada año al mismo Departamento una nómina completa
-de sus miembros, y
-e) A iniciar centro de los quince días siguientes a la celebración de
-la Asamblea General, que acordó reformar los estatutos, los
-trámites necesarios para su aprobación legal, de acuerdo con lo
-dispuesto por el artículo 274.
+ARTICULO 279.- Con los recursos a que se refiere el artículo anterior, el Consejo de Salud Ocupacional preparará en cada ejercicio, su presupuesto ordinario, el cual deberá ser sometido por el Ministerio de Trabajo y Seguridad Social a la aprobación de la Contraloría General de la República.
+Igual trámite se seguirá en lo referente al presupuesto extraordinario.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

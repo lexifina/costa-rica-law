@@ -1,7 +1,4 @@
-Artículo 264.- Las organizaciones sociales no podrán conceder
-privilegios ni ventajas especiales a sus fundadores y directores, salvo
-las que sean inherentes al desempeño de un cargo; invariablemente se
-regirán por los principios democráticos del predominio de las mayorías,
-del voto secreto y de un voto por persona, sin que pueda acordarse
-preferencia alguna en virtud del número de acciones, cuotas o capital
-que sus socios hayan aportado.
+ARTICULO 264.- Aunque se hubieren conmutado las rentas, y a solicitud del trabajador, del patrono, o del ente asegurador, podrán revisarse los dictámenes que determinen el alta del trabajador, con o sin fijación de impedimento, cuando pueda presumirse que ha sobrevenido alguna modificación agravante en las condiciones físicas o mentales de éste. En caso de que se determine tal modificación, se fijará la readecuación en beneficio del trabajador.
+La revisión será admisible dentro de los dos años posteriores a la orden de alta, y así sucesivamente a partir de la fecha del último informe médico, sin exceder un término de cinco años a partir del primer dictamen final.
+En esos casos, las prestaciones en dinero a que tenga derecho el trabajador, se calcularán con base en el salario devengado en los últimos tres meses, o, en su caso, el que resulte más favorable a sus intereses.
+(Así ampliado por el artículo 1º de la Ley Sobre Riesgos del Trabajo Nº 6727 de 9 de marzo de 1982)

@@ -1,11 +1,4 @@
-Artículo 110.- Todo patrono que ocupe los servicios de uno o más
-trabajadores a domicilio deberá llevar un libro sellado y autorizado por
-la Oficina General de Trabajo, en el que anotará los nombres y apellidos
-de éstos, sus residencias, la cantidad y naturaleza de la obra u obras
-encomendadas y el monto exacto de las respectivas remuneraciones.
-Además hará imprimir comprobantes por duplicado, que le firmará el
-trabajador cada vez que reciba los materiales que deban entregársele o
-el salario que le corresponde; o que el patrono firmará y dará al
-trabajador cada vez que éste le entregue la obra ejecutada. En todos
-estos casos debe hacerse la especificación o individualización que
-proceda.
+ARTICULO 110.-
+Todo patrono que ocupe los servicios de uno o más trabajadores a domicilio deberá llevar un libro sellado y autorizado por la Oficina de Salarios del Ministerio de Trabajo y Seguridad Social, en el que anotará los nombres y apellidos de éstos, sus residencias, la cantidad y naturaleza de la obra u obras encomendadas y el monto exacto de las respectivas remuneraciones.
+Además hará imprimir comprobantes por duplicado, que le firmará el trabajador cada vez que reciba los materiales que deban entregársele o el salario que le corresponde; o que el patrono firmará y dará al trabajador cada vez que éste le entregue la obra ejecutada. En todos estos casos debe hacerse la especificación o individualización que proceda.
+(El nombre de la Oficina fue así reformado por el artículo 1, inciso k) de la ley No.3372 del 6 de agosto de 1964. El nombre de Ministerio fue así reformado por el artículo 2 de la ley No.5089 del 18 de octubre de 1972)

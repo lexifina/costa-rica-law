@@ -1,17 +1,7 @@
-Artículo 233.- En cualquier tiempo y mientras se ventila la obligación
-de indemnizar, por gestión de parte o de oficio, podrá la autoridad o
-el Tribunal que interviene en el caso, con vista de las pruebas
-recibidas y del mérito de los autos, ordenar discrecionalmente que se
-dé a la víctima o a sus causahabientes una pensión provisional dentro
-de las indemnizaciones o rentas señaladas por este Capítulo y sin
-perjuicio de la restitución, por parte del interesado, si la persona
-demandada obtiene sentencia absolutoria y aquél hubiere procedido de
-mala fe en la exposición de su caso.
-Si el Tribunal Superior de Trabajo, al conocer en consulta o
-apelación de la sentencia definitiva, encontrare mérito para ello,
-decretará también, de oficio, dicha pensión provisional, cuando el Juez
-no la hubiere decretado ya y la resolución del asunto se demorare por
-la práctica de alguna diligencia que el Tribunal hubiere acordado para
-mejor proveer o por otra causa análoga.
-Dicha pensión provisional se hará efectiva en la forma que
-establece el párrafo tercero del artículo 227.
+ARTICULO 233.- El trabajador que hiciere abandono de la asistencia médico- sanitaria o de rehabilitación que se le otorga, o que se negare, sin causa justificada, a seguir las prescripciones médicas, perderá el derecho a las prestaciones que dispone este Código, salvo el contemplado en el inciso c) del artículo 218.
+Para tales efectos se observará y agotará el siguiente procedimiento: El Instituto asegurador, administrativamente, impondrá al trabajador acerca de las posibles consecuencias legales y perjudiciales que podría ocasionarle esa conducta, en detrimento de su propia salud y situación jurídica.
+Si el trabajador persistiera en su abandono injustificado, el Instituto dará aviso inmediato de ello a un juez de trabajo, a fin de que éste, directamente o por medio de la autoridad de la localidad en que el trabajador resida, notifique al trabajador la situación planteada, para que manifieste su voluntad de someterse de nuevo al tratamiento prescrito, o para que señale los motivos que tuvo para renunciar al mismo, así como cualesquiera otras disconformidades o peticiones adicionales que crea conveniente hacer o manifestar. En cualquier caso, el juzgado de trabajo podrá solicitar la intervención del Departamento de Medicina Legal del Organismo de Investigación Judicial, o del Consejo Médico Forense, a fin de que se determine en definitiva la asistencia médico- sanitaria, quirúrgica o de rehabilitación, y las prescripciones médicas que el caso verdaderamente requiera.
+En el mismo auto de notificación, el juzgado de trabajo apercibirá al trabajador de las posibles consecuencias legales que su rebeldía o silencio podrían ocasionarle.
+En caso de que el trabajador no compareciera sin causa justificada, ante el juzgado de trabajo, dentro de diez días hábiles contados a partir de la notificación a que se refiere el párrafo anterior, o ante el Organismo de Investigación Judicial, dentro del mismo término, una vez avisado por éste por dos veces, el juzgado, en fallo razonado, absolverá al ente asegurador de toda responsabilidad en cuanto a las prestaciones a que se refiere este Código, sin que pueda luego el trabajador invocar al Instituto su suministro o el costo de las mismas.
+De igual manera, el juez de trabajo impondrá al ente asegurador de la obligación de suministrar al trabajador la asistencia médico- sanitaria, quirúrgica y de rehabilitación que la dependencia del Organismo de Investigación Judicial determine.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,6 +1,1 @@
-Artículo 437.- Las partes también podrán gestionar por escrito, pero
-no estarán obligadas a presentar copias. Tampoco se exigirán éstas
-cuando se aporten documentos, pues corresponderá al Secretario
-certificar en autos las piezas cuya pérdida pueda causar perjuicio
-irreparable o difícil de subsanar, y guardar cuidadosamente los
-originales en la caja del respectivo Tribunal de Trabajo.
+ARTICULO 437.- A más tardar dentro de las veinticuatro horas siguientes a la presentación del incidente, el o los funcionarios judiciales de trabajo recusados harán constar en autos si reconocen o no como ciertos los hechos que alega el recusante, debiendo hacer la correspondiente rectificación si estuvieren referidos de modo inexacto.

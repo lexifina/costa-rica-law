@@ -1,5 +1,3 @@
-Artículo 219.- Las indemnizaciones por incapacidad permanente o por
-causa de muerte no excluyen las que correspondieren a la víctima durante
-el período comprendido desde el acaecimiento del riesgo profesional
-hasta el establecimiento de la incapacidad permanente o muerte del
-trabajador.
+ARTICULO 219.- Cuando el riesgo del trabajo ocasionare la muerte al trabajador se reconocerá una suma global para cubrir gastos de entierro, que se determinará en el reglamento de la ley.
+Si la muerte ocurriera en el lugar distinto al de la residencia habitual del trabajador, se reconocerá, para gastos de traslado del cadáver, una suma que se fijará en el reglamento de la ley. Para gastos de entierro, la suma no será menor de tres mil colones, para gastos de traslado del cadáver, no será inferior a un mil colones. Ambas sumas serán revisadas por vía reglamentaria, cuando las circunstancias así lo exijan, en un plazo no mayor de dos años.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

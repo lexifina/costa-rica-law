@@ -1,7 +1,3 @@
-Artículo 610.- Dentro de los límites señalados por la ley, los
-juzgadores determinarán en cada caso, a su prudente arbitrio, la pena
-aplicable, tomando en cuenta el mal causado o el peligro corrido y las
-condiciones personales y los antecedentes del reo; sin embargo, cuando
-se tratare de la pena de multa, fijarán su cuantía no sólo en relación
-con las circunstancias antes dichas, sino atendiendo también el caudal
-y medios de subsistencia del culpado.
+ARTICULO 610.- Cuando se aplique una multa en las contempladas en esta Sección, la sentencia respectiva deberá disponer, ineludiblemente, la restitución de los derechos violados, la reparación del daño causado y las medidas necesarias que conduzcan a tales fines
+La ejecución se hará en el mismo expediente, a petición de parte, conforme al procedimiento establecido en este Código para la ejecución de sentencias.
+(Así reformado por el artículo 4º de la ley N° 7360 del 4 de noviembre de 1993)

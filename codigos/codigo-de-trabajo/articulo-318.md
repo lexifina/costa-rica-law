@@ -1,20 +1,9 @@
-Artículo 318.- Corresponde al Gerente diligenciar, con el visto bueno
-de la Junta Directiva, la aprobación de los estatutos y del acta
-constitutiva; aceptar en nombre de la cooperativa las modificaciones de
-los mismos que la autoridad correspondiente le indique y, en general,
-firmar todos los contratos, órdenes de pago y documentos conducentes a
-tener por legalmente constituída la sociedad.
-Al afecto presentará en la Oficina General de Trabajo una solicitud
-acompañada de copia auténtica de los estatutos y del acta constitutiva.
-Esta necesariamente expresará el número y los nombres y apellidos de los
-socios. Además, incluirá prueba satisfactoria de que se han cumplido
-los requisitos de que habla el artículo siguiente y, si se tratare de
-cooperativas de habitación, también acompañarán el informe que al efecto
-deberá rendir la Junta Nacional de la Habitación.
-El Jefe de la Oficina General de Trabajo y, en su caso, la
-Secretaría de Trabajo y de Previsión Social, procederá de conformidad
-con las indicaciones de los dos párrafos finales del artículo 274.
-A iguales trámites se sujetará, para entrar en vigor, cualquier
-reforma que la Asamblea General acuerde hacer a los estatutos, para lo
-cual será necesaria una mayoría de los dos tercios de los socios
-presentes o representados.
+ARTICULO 318.- La gestión se hará por escrito o en forma verbal, personalmente o por medio de apoderado especial, que se constituirá aun por simple carta poder y habrá de contener, de modo claro y preciso en cuanto fuere posible, los siguientes requisitos:
+Nombre completo, domicilio y demás calidades personales del denunciante o del apoderado, si comparece por medio de éste;
+Nombre completo, domicilio y demás calidades personales de los presuntos responsables de la infracción o falta y de sus colaboradores, si los hubiere y las señales que mejor puedan determinarlos e iguales datos en cuanto a los posibles perjudicados y las personas que, por hacer estado presentes o por cualquier otro motivo, tuvieren conocimiento de la falta o pudieren proporcionar algún informe último;
+Relación circunstancial de la infracción o falta, con expresión de lugar, año, mes, día y hora en que la misma se produjo, junto con cualquier otro dato que sobre el particular interese;
+ch) Enumeración precisa de la prueba que se ofrece para apoyar la gestión;
+Relación clara de todas las demás indicaciones y circunstancias que, a juicio del gestionante, conduzcan a la comprobación de la falta o a la determinación de su naturaleza o gravedad y a la averiguación de los responsables;
+Señalamiento de oficina para oír notificaciones; y
+Cuando se interponga por escrito, la firma del denunciante y si no supiere firmar o no pudiere hacerlo, la de otra persona a su ruego. En ambos casos deberá tenerse presente el artículo 447. Si fuera verbal, el funcionario del juzgado que la reciba levantará un acta, consignando en ella los requisitos que se indican en este artículo.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

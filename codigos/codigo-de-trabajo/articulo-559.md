@@ -1,3 +1,2 @@
-Artículo 559.- La denuncia o, en su caso, la acusación, deberá
-hacerse ante el respectivo Juez de Trabajo, sea directamente o por medio
-de la autoridad política o de trabajo más próxima.
+ARTICULO 559.- Recibidos los autos, la Sala rechazará de plano el recurso si se ha interpuesto contra lo que disponen los artículos 556 y 557(*). Lo mismo hará cuando en el recurso se pida únicamente la corrección, reposición o práctica de trámites procesales.
+(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración de los antiguos artículos 549 y 550, siendo 556 y 557)

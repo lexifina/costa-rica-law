@@ -1,7 +1,2 @@
-Artículo 230.- Sin embargo, tratándose de menores de dieciocho años,
-la conmutación no procederá, salvo que el Patronato Nacional de la
-Infancia rinda un informe favorable sobre su utilidad y necesidad. Al
-efecto, el Tribunal Superior de Trabajo, una vez que reciba la solicitud
-y cálculos respectivos del Banco Nacional de Seguros, dará audiencia por
-ocho días al Patronato, dentro de los cuales éste debe forzosamente
-rendir su informe.
+ARTICULO 230.- En caso de emergencia, el trabajador que haya sufrido un riesgo cubierto por el seguro a que se refiere esta ley, podrá ser atendido por cualquier profesional o centro de salud, público o privado, por cuenta del ente asegurador, según la tarifa establecida. Tan pronto como sea posible el trabajador sometido a tratamiento será trasladado a donde corresponda, según los reglamentos o disposiciones del ente asegurador.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

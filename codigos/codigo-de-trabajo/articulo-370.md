@@ -1,7 +1,3 @@
-Artículo 370.- La huelga ilegal termina, sin responsabilidad para el
-patrono, con los contratos de trabajo celebrados por los huelguistas;
-quedan a salvo las sanciones de orden represivo que en contra de éstos
-lleguen a declarar los Tribunales Comunes.
-Sin embargo, en los nuevos contratos que celebre el patrono, no
-podrán estipularse condiciones inferiores a las que, en cada caso,
-regían antes de declararse la huelga ilegal.
+ARTICULO 370.- Cuando en una empresa exista un sindicato al que estén afiliados, al menos la mitad más uno de sus trabajadores, al empleador le estará prohibida la negociación colectiva, cualquiera que sea su denominación, cuando esa negociación no sea con el sindicato.
+Los acuerdos que se tomen en contra de lo dispuesto en este artículo, no serán registrados ni homologados por el Ministerio de Trabajo y Seguridad Social ni podrán ser opuestos, a los sindicatos.
+(Así adicionado por el artículo 3º de la ley N° 7360 del 4 de noviembre de 1993)

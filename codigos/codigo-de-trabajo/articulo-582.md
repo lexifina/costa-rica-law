@@ -1,5 +1,10 @@
-Artículo 582.- La Oficina General de Trabajo tendrá funciones
-puramente administrativas como registro de las organizaciones sociales,
-registro de los contratos y convenciones de trabajo que se celebren en
-el país, servicios de estadísticas y colocaciones y todas las demás que
-le atribuya el Reglamento.
+CAPITULO SETIMO
+De la ejecución de sentencias
+ARTICULO 582.- En ejecución de fallo se seguirán, en cuanto fueren compatibles con las normas que contiene el Capítulo Segundo de este Título, los procedimientos señalados en los artículos 987 a 1018 del Código de Procedimientos Civiles, pero los términos los reducirá el Juez prudencialmente en lo que no prevean de modo expreso las siguientes disposiciones especiales:
+El Juez de Trabajo, una vez que esté firme la sentencia, procederá de oficio a embargar bienes del deudor en cantidad suficiente para asegurar los derechos del acreedor;
+El Juez de Trabajo podrá formular por sí mismo la liquidación cuando el expediente suministre datos suficientes o cuando la ley lo autorice para apreciar prudencialmente los daños y perjuicios que el deudor hubiere causado. En este último caso podrá requerir previamente la opinión de la Inspección General de Trabajo;
+El acreedor hará en los demás casos la liquidación correspondiente y, en el mismo acto, indicará las pruebas que demuestren sus peticiones. El Juez de Trabajo dará audiencia por cinco días a la contraria y, si fuere procedente, citará para una o dos comparecencias a efecto de evacuar la prueba que considere necesaria. Luego dictará sentencia dentro de los cinco días posteriores a aquél en que quedaron los autos conclusos para el fallo;
+La sentencia que fije o apruebe la liquidación se regirá, en cuanto a la apelación o la consulta, por las disposiciones de los artículos 500, 501 y 502(*), pero el fallo del Tribunal Superior de Trabajo no tendrá recurso alguno;
+(*) (Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración de los antiguos artículos 493, 494 y 495, siendo ahora 500, 501 y 502 )
+En cuanto el Tribunal de alzada haga el pronunciamiento definitivo y devuelva los autos, el respectivo Juez de Trabajo ordenará de oficio el avalúo y venta de los bienes embargados y, en su caso, mandará hacer el respectivo pago, y
+Para los remates de bienes mueles o inmuebles se observarán las reglas correspondientes del Código de Procedimientos Civiles, pero los edictos se mandarán insertar, de oficio, en el Boletín Judicial, con absoluta preferencia y libres de derechos.

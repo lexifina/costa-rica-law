@@ -1,9 +1,4 @@
-Artículo 240.- Cuando la víctima no recibiere del patrono los demás
-servicios a que se refiere el artículo 236, lo pondrá en conocimiento
-del respectivo Juez, quien de plano apercibirá al patrono para que
-cumpla sus obligaciones, o demuestre que no las ha incumplido, dentro
-de las veinticuatro horas siguientes, todo bajo pena de apremio corporal
-si hubiere renuencia.
-Igual procedimiento seguirán, en su caso, los causahabientes de la
-víctima, para obtener las prestaciones de que habla el artículo 237, o
-el reembolso que a ellas corresponda.
+ARTICULO 240.- La declaratoria de incapacidad total permanente determina para el trabajador el derecho a percibir una renta anual vitalicia, pagadera en dozavos, igual al 100% del salario anual, hasta un límite de treinta y seis mil colones y el 67% sobre el exceso de esa suma.
+Por vía reglamentaria se podrá aumentar el salario anual máximo sobre el cual se aplica el 100%.
+Ninguna renta mensual que se fije por incapacidad total permanente será inferior a mil quinientos colones o a la suma mayor que reglamentariamente se fije.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

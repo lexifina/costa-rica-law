@@ -1,12 +1,2 @@
-Artículo 570.- Las sanciones se aplicarán sólo contra quien resulte
-culpable y en el caso de que muchos lo fueren, se impondrán
-separadamente a cada infractor.
-No obstante, si se tratare de infracciones cometidas por un
-sindicato o una cooperativa y la pena aplicable fuere multa, ésta se
-impondrá sólo a la organización social de que se trate; y si la culpable
-fuere una compañía, sociedad o institución pública o privada, las penas
-se aplicarán contra quien figure como patrono, director, gerente o jefe
-de la empresa, establecimiento, negocio o lugar donde el trabajo se
-preste, pero la respectiva persona jurídica quedará obligada
-solidariamente con éstos a cubrir toda clase de responsabilidades de
-orden pecuniario.
+ARTICULO 570.- La sustanciación del juicio sobre faltas será verbal y sumaria, en legajo separado para cada caso que ocurra.
+Todo juzgamiento comenzará por la providencia que lo ordene y en ella se hará, constar si se procede en virtud de denuncia o acusación o por impresión personal, indicándose en cada caso el nombre y apellido del denunciante o acusador o agente de la autoridad que hace el cargo o da el informe. Dicha providencia contendrá por extracto la exposición del hecho que le da origen, cuando el Juez de Trabajo proceda por impresión personal.

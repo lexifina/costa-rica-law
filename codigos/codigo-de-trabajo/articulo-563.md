@@ -1,9 +1,1 @@
-Artículo 563.- La sustanciación del juicio sobre faltas será verbal
-y sumaria, en legajo separado para cada caso que ocurra.
-Todo juzgamiento comenzará por la providencia que lo ordene y en
-ella se hará, constar si se procede en virtud de denuncia o acusación
-o por impresión personal, indicándose en cada caso el nombre y apellido
-del denunciante o acusador o agente de la autoridad que hace el cargo
-o da el informe. Dicha providencia contendrá por extracto la exposición
-del hecho que le da origen, cuando el Juez de Trabajo proceda por
-impresión personal.
+ARTICULO 563.- Las resoluciones de la Sala de Casación no tienen recurso alguno, salvo el de responsabilidad penal; las sentencias deben quedar redactadas dentro de los ocho días siguientes a aquél en que se dictaron y se publicarán en el Boletín Judicial.

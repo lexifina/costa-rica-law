@@ -1,10 +1,4 @@
-Artículo 321.- La Asamblea General es la autoridad suprema de la
-cooperativa y fuera de las atribuciones señaladas por la ley o los
-estatutos, tendrá las siguientes:
-a) Acordar la unión o fusión con otras cooperativas;
-b) Acordar la disolución voluntaria; y
-c) Aprobar todo acto relacionado con la esencia del contrato social.
-Cuando los socios pasaren de doscientos la Asamblea General será
-sustituída por una Asamblea de Delegados, que nunca podrá tener menos
-de cincuenta miembros electos en la forma y condiciones que determinarán
-los estatutos.
+ARTICULO 321.- La sustanciación del juicio sobre infracciones o faltas será sumaria, en legajo separado para cada caso que ocurra.
+Todo juzgamiento comenzará por la providencia que lo ordene, y en ella se hará constar si se procede en virtud de la denuncia o por impresión propia, indicándose, en cada caso, el nombre y apellidos del denunciante o autoridad que hace el cargo o da el informe. Dicha providencia contendrá, por extracto, la exposición del hecho que le da origen, cuando el juez de trabajo proceda por impresión personal.
+A continuación de la diligencia que encabeza, serán practicadas en una sola acta, la indagatoria y confesión con cargo del inculpado. Si el imputado reconociere su falta, se procederá a continuación a dictar el fallo, por resolución formal, a más tardar dentro de las veinticuatro horas siguientes a aquella en que concluyó la diligencia. Si el indiciado negare el hecho que se le atribuye, se practicará la investigación sumaria del caso, dentro del término improrrogable de diez días y, transcurrido ese plazo y evacuadas las pruebas, será dictada la sentencia a más tardar cuarenta y ocho horas después. El imputado deberá dejar señalada oficina dentro del perímetro judicial, para oír notificaciones.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

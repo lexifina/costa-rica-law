@@ -1,9 +1,4 @@
-Artículo 288.- Dos o más sindicatos podrán formar federaciones y dos
-o más federaciones podrán formar confederaciones, que se regirán por las
-disposiciones de este Capítulo, en lo que les fueren aplicables.
-Sus estatutos determinarán, además de lo dispuesto en el artículo
-275, la forma en que los sindicatos que las componen serán representados
-en las Asambleas Generales; y el acta constitutiva expresará los
-nombres y domicilios de todos los sindicatos que las integrara. Esta
-lista deberá repetirse, para los efectos del inciso d) del artículo 279,
-cada seis meses.
+ARTICULO 288.- En cada centro de trabajo, donde se ocupen diez o más trabajadores, se establecerán las comisiones de salud ocupacional que, a juicio del Consejo de Salud Ocupacional, sean necesarias. Estas comisiones deberán estar integradas con igual número de representantes del patrono y de los trabajadores, y tendrán como finalidad específica investigar las causas de los riesgos del trabajo, determinar las medidas para prevenirlos y vigilar para que, en el centro de trabajo, se cumplan las disposiciones de salud ocupacional.
+La constitución de estas comisiones se realizará conforme a las disposiciones que establezca el reglamento de la ley y su cometido será desempeñado dentro de la jornada de trabajo, sin perjuicio o menoscabo de ninguno de los derechos laborales que corresponden al trabajador.
+El Consejo de Salud Ocupacional, en coordinación con el Instituto Nacional de Seguros, pondrá en vigencia un catálogo de mecanismos y demás medidas que tiendan a lograr la prevención de los riesgos del trabajo, por medio de estas comisiones.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

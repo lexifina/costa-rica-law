@@ -1,7 +1,3 @@
-Artículo 268.- Las únicas penas que se impondrán a las organizaciones
-sociales son la de multa, siempre que de conformidad con el presente
-Código se hagan acreedoras a ella, y la de disolución, en los casos
-expresamente señalados en ese Título.
-No obstante, sus directores serán responsables conforme a las leyes
-de trabajo y a las de orden común de todas las infracciones o abusos que
-cometan en el desempeño de sus cargos.
+CAPITULO SÉTIMO
+ARTICULO 268.- Se autoriza al Instituto Nacional de Seguros a crear un cuerpo de inspectores que velará por el estricto cumplimiento de este Título y los reglamentos que se promulguen. Estos inspectores tendrán la autoridad, el derecho, las facultades, las obligaciones y los deberes suficientes para el cumplimiento de su labor.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

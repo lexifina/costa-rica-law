@@ -1,7 +1,4 @@
-Artículo 490.- De todas las sentencias o autos que pongan término a los
-juicios o imposibiliten su continuación, dictados por los Tribunales de
-Trabajo, se dará copia fiel a las partes en el momento de hacerles la
-respectiva notificación, y otra, firmada por el Secretario, se
-conservará en el archivo de cada Despacho.
-Cuando dichas resoluciones estuvieren firmes se enviará también
-copia autorizada a la Inspección General de Trabajo.
+SECCION VIII
+De la sentencia:
+ARTICULO 490.- Si las partes estuvieren conformes en los hechos alegados el Juez procederá, sin más trámite, a dictar sentencia dentro del término de cinco días.
+(Así reformado por el artículo 1 de la ley No.3702 del 22 de junio de 1966)

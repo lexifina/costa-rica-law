@@ -1,6 +1,3 @@
-CAPITULO TERCERO
-Disposiciones finales
-Artículo 379.- Ni los paros ni las huelgas pueden perjudicar en
-forma alguna a los trabajadores que estuvieren percibiendo salarios o
-indemnizaciones por accidentes, enfermedades, maternidad, vacaciones u
-otras causas análogas.
+CAPITULO SEGUNDO
+De los paros legales e ilegales
+ARTICULO 379.- Paro legal es la suspensión temporal del trabajo ordenada por dos o más patronos, en forma pacífica y con el exclusivo propósito de defender sus intereses económicos y sociales comunes. El paro comprenderá siempre el cierre total de las empresas, establecimientos o negocios en que se declare.

@@ -1,16 +1,4 @@
-Artículo 234.- Las indemnizaciones a que se refiere este Capítulo no
-podrán cederse, compensarse ni gravarse, ni son susceptibles de embargo,
-salvo en la mitad por concepto de pensiones alimenticias. A este
-efecto, los Tribunales denegarán de plano toda reclamación en ese
-sentido.
-En caso de insolvencia, concurso, quiebra, embargo, sucesión u
-otros similares, gozarán los créditos que por dichas indemnizaciones
-correspondan a los trabajadores o a sus causahabientes del privilegio
-sin limitación de suma a que alude el artículo 33.
-Sin embargo, si por falta de aviso de la muerte de una de las
-personas con derecho a renta de acuerdo con lo dispuesto en los artículo
-213 y 218 o por cualquier otra ocultación realizada por el trabajador
-o sus causahabientes para obtener indemnizaciones no debidas, el patrono
-podrá compensar, previa demostración ante los Tribunales de Trabajo, lo
-que entregó indebidamente a los culpables, con las rentas o
-indemnizaciones aún adeudadas y no percibidas por éstos.
+ARTICULO 234.- Cuando el trabajador no reciba las prestaciones señaladas en el artículo 218, podrá demandar el suministro o el costo de éstas, los intereses legales correspondientes, más las costas procesales y personales que implique su acción ante el juez de trabajo. En concordancia con los procedimientos señalados en el artículo 233, el juez de trabajo apercibirá al obligado para que demuestre, dentro del quinto día, haber cumplido con las mismas. En caso contrario, ya sea porque no conteste dentro del término, o porque no demuestre del todo, o lo haga insuficientemente, haber cumplido con dichas prestaciones, o bien porque el Organismo de Investigación Judicial hubiese dictaminado prestaciones superiores a las otorgadas, el juez, en el fallo correspondiente, impondrá al obligado en cuanto a su obligación de preceder a su suministro o pago, así como de las accesorias de la acción.
+Igual procedimientos seguirán, en su caso, los causahabientes del trabajador que falleciere a consecuencia de un riesgo del trabajo, para obtener las prestaciones a que se refieren los artículos 219 y 243, o el reembolso que a ellas corresponda.
+Todo lo anterior, sin perjuicio de lo establecido en el artículo 303.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

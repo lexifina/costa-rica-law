@@ -1,16 +1,2 @@
-Artículo 542.- si dentro del término improrrogable de cuatro días,
-contados desde la fecha que se señaló para la comparecencia fracasada
-en su finalidad o no celebrada por cualquier motivo, los interesados no
-pidieren que el asunto se abra a pruebas, el respectivo Juez de Trabajo
-procederá a dictar sentencia dentro de los cinco días siguientes a la
-fecha de la expiración del primer término. Dicho Juez, por gestión de
-parte formulada dentro de los cuatro días posteriores a la
-comparecencia, abrirá el juicio a pruebas por el término improrrogable
-de quince días, de los cuales cinco serán para proponer y el resto para
-evacuar la prueba. Sin embargo, el Juez podrá abrir de oficio el
-asunto a pruebas, si estimare que hay hechos importantes que dan mérito
-para ello. La prueba no evacuada oportunamente por culpa de la parte,
-será impracticable después, salvo que luego se ordenare recibir para
-mejor proveer. Vencido el término expresado o luego que se haya
-practicado o declarado inevacuable la prueba ordenada, el Juez, dentro
-de los cinco días siguientes, dictará sentencia.
+ARTICULO 542.- Los Tribunales de Conciliación; y de Arbitraje apreciarán el resultado y valor de las pruebas que ordene con entera libertad, sin necesidad de sujetarse a las reglas de Derecho Común.
+(La Sala Constitucional, mediante resolución N° 1696 del 23 de junio de 1992, declaró inconstitucional el presente artículo “…respecto de las administraciones públicas con régimen de empleo de naturaleza pública…”. “…Igualmente, considera necesario la Sala hacer la aclaración de tener por excluidos de este régimen, a los obreros, trabajadores y empleados que no participan de la gestión pública de la administración, cuando los mismos sean contratados por el Estado conforme al ejercicio de su capacidad de Derecho Privado…” De acuerdo con el contenido de la sentencia, los procedimientos de resolución de los conflictos colectivos de carácter económico y social, no son aplicables del todo a las administraciones regidas por el derecho público de empleo, ni al resto de las administraciones, en tanto no se subsanen las omisiones referentes a la falta de un régimen administrativo laboral adecuado a nuestro texto constitucional, y no se cree una norma administrativa expresa que permita al Estado, someterse a los tribunales de arbitraje en aras de solucionar conflictos colectivos.)

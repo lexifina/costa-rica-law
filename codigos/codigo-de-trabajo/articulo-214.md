@@ -1,3 +1,8 @@
-Artículo 214.- Las lesiones que, sin producir impedimento, acarreen una
-grave mutilación o desfiguración de la víctima, se equipararán, para los
-efectos de su indemnización, a la incapacidad parcial permanente.
+ARTICULO 214.-
+Sin perjuicio de otras obligaciones que este Código impone, en relación con los riesgos del trabajo, el patrono asegurado queda también obligado a:
+Indagar todos los detalles, circunstancias y testimonios, referentes a los riesgos del trabajo que ocurran a sus trabajadores, y remitirlos al Instituto Nacional de Seguros, en los formularios que este suministre.
+Denunciar al Instituto Nacional de Seguros todo riesgo del trabajo que ocurra, dentro de los ocho días hábiles siguientes a su acaecimiento. La denuncia extemporánea originará responsabilidad del patrono ante el Instituto -la cual será exigible por la vía ejecutiva-, por las agravaciones o complicaciones sobrevenidas como consecuencia de la falla de atención oportuna.
+Cooperar con el Instituto Nacional de Seguros, a solicitud de éste, en la obtención de toda clase de pruebas, detalles y pormenores que tengan relación directa o indirecta con el seguro y con el riesgo cubierto, con el propósito de facilitar, por todos los medios a su alcance, la investigación que el Instituto asegurador crea conveniente realizar.
+ch) Remitir al Instituto Nacional de Seguros, cada mes como máximo, un estado de planillas en el que se indique el nombre y apellidos completos de los trabajadores de su empresa, días y horas laborados, salarios pagados y cualesquiera otros datos que se soliciten.
+Adoptar las medidas preventivas que señalen las autoridades competentes, conforme a los reglamentos en vigor, en materia de salud ocupacional.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

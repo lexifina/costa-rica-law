@@ -1,10 +1,4 @@
-Artículo 455.- Si la demanda se presentare por escrito y no estuviere
-en forma legal, el Juez, de oficio, ordenará al actor que subsane los
-defectos de forma y para ello le puntualizará los requisitos omitidos
-o no llenados como es debido. La resolución que dicte no tendrá recurso
-alguno y mientras no se cumpla lo que ella ordena no se dará trámite a
-ninguna gestión del actor.
-Caso de que el Juez no haga observación respecto de la forma de la
-demanda y de que la parte al oponer excepciones señale algún defecto
-legal, el Juez, si hallare procedente lo dicho por la parte demandada,
-actuará de conformidad con las disposiciones del párrafo anterior.
+SECCION III
+Del arraigo, del embargo y de la confesión prejudicial:
+ARTICULO 455.- El arraigo y el embargo preventivo serán procedentes, sin necesidad de fianza o garantía, si el actor se compromete a presentar su demanda dentro de las veinticuatro horas siguientes y si dos testigos declaran, a satisfacción del Tribunal de Trabajo, sobre la veracidad del hecho o hechos en que el pedimento se apoya.
+Si la acción no se presentare, se revocará el auto de arraigo o de embargo que se haya dictado, sin necesidad de gestión de parte. Además, el actor será condenado a pagar los daños y perjuicios que se hayan irrogado al demandado, a cuyo efecto el Juez decretará de oficio el embargo que corresponda y sea factible. El cobro de dicha indemnización podrá hacerlo el demandado en el mismo expediente y el monto mínimo de la misma será de un diez por ciento de la estimación que el actor haya dado a la gestión o que, en su defecto, el Tribunal fije a ésta.

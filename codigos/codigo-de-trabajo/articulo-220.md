@@ -1,7 +1,4 @@
-Artículo 220.- Si a consecuencia de un riesgo profesional realizado
-desapareciere un trabajador sin que haya certidumbre de su fallecimiento
-y no vuelven a tenerse noticias de él dentro de los treinta días
-posteriores al suceso, se presumirá su muerte, a efecto de que sus
-causahabientes perciban las indemnizaciones legales, sin perjuicio de
-lo que procediere posteriormente en caso de que se pruebe que está con
-vida.
+ARTICULO 220.- Cuando ocurra un riesgo del trabajo, todo patrono está obligado a procurar al trabajador, de inmediato, el suministro de las prestaciones médico-sanitarias que su estado requiera, sin perjuicio de la obligación que tiene de brindarle los primeros auxilios, para lo cual, en cada centro de trabajo deberá instalarse un botiquín de emergencia, con los artículos y medicamentos que disponga el reglamento de esta ley.
+Para el cumplimiento de esta disposición, el patrono deberá utilizar, preferentemente, los servicios que se brindan en los lugares concertados por el Instituto en sus centros propios destinados a ese efecto, salvo en aquellos casos de emergencia calificada, en que podrá recurrir al centro médico más cercano, hecho que deberá hacer del conocimiento inmediato del Instituto.
+Excepto en lo referente al botiquín de emergencia, y siempre que se le comunique esa circunstancia dentro de las cuarenta y ocho horas siguientes a la ocurrencia del riesgo, el Instituto reembolsará al patrono el monto de los gastos en que incurra, según lo dispuesto en este artículo.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,26 +1,7 @@
-Artículo 433.- Una vez vencida la audiencia de que habla el artículo
-431, si el o los recusados desconocieren los hechos en que se funda la
-recusación o si cualquiera de las partes los negare, los Tribunales de
-Trabajo procederán en la siguiente forma:
-a) Cuando se tratare de un Juez de Trabajo, éste pasará el incidente
-al funcionario llamado a reemplazarle en el caso de quedar
-inhibido, a efecto de que resuelva sobre la admisión de las
-pruebas, practique la recepción de las mismas y luego envíe los
-autos al Tribunal Superior de Trabajo, quien resolverá dentro de
-las cuarenta y ocho horas siguientes a aquélla en que recibió el
-expediente, sin lugar a recurso alguno;
-b) Cuando se tratare de recusación formulada contra uno o contra todos
-los miembros de un Tribunal de Arbitraje, el respectivo Presidente
-ordenará que se pase la articulación, a la mayor brevedad posible,
-al Tribunal Superior de Trabajo; éste podrá comisionar a cualquier
-Juez, Alcalde, autoridad política o de trabajo para la recepción
-de la prueba que admitiere y, una vez practicada ésta, resolverá
-en definitiva, dentro del término indicado, lo que corresponda
-en derecho, y
-c) Cuando se tratare de recusación formulada contra uno o contra todos
-los miembros del Tribunal Superior de Trabajo, su Presidente
-ordenará que pase el incidente a la Sala Primera Civil, la que
-podrá comisionar a un Juez o Alcalde para la recepción de la prueba
-que admitiere y, una vez practicada ésta, resolverá en definitiva,
-dentro de las cuarenta y ocho horas siguientes, lo que proceda en
-derecho.
+ARTICULO 433.- Cuando uno, varios o todos los miembros de un Tribunal de Trabajo, o los funcionarios subalternos de éste, tuvieren causal de impedimento para conocer de un negocio determinado, se observarán las reglas que a continuación se expresan:
+Si se tratare de un Juez de Trabajo, éste se inhibirá y mandará pasar los autos a quien haya de subrogarle;
+Si se tratare de uno o de dos miembros de un Tribunal de Conciliación y de Arbitraje, éstos se inhibirán para que el o los demás miembros del Tribunal, sin trámite alguno, los declaren separados y procedan a reponerlos conforme a la ley;
+Si se tratare de todos los miembros de un Tribunal de Conciliación y de Arbitraje, éstos se inhibirán y mandarán pasar los autos al funcionario judicial llamado, en su caso, a subrogar al respectivo Juez de Trabajo, para que los declare separados y proceda a reponerlos conforme a la ley;
+Si se tratare de uno o de dos miembros del Tribunal Superior de Trabajo, éstos se inhibirán para que el o los demás miembros de dicho Tribunal, sin trámite alguno, los declaren separados y procedan a reponerlos conforme a la ley;
+Si se tratare de todos los miembros del Tribunal Superior de Trabajo, éstos se inhibirán y mandarán pasar los autos a la Sala Primera Civil para que los declare separados y proceda a reponerlos conforme a la ley, y
+Si se tratare de Secretarios, Prosecretarios o Notificadores, éstos pondrán constancia de la causal y el Tribunal de Trabajo donde desempeñen sus funciones los declarará separados de plano y sin ulterior recurso hará la reposición del caso.
