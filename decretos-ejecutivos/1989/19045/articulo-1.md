@@ -1,4 +1,5 @@
 N° 19045-H
+(Este decreto fue dejado sin efecto por el artículo 2° del decreto ejecutivo N° 19729 del 13 de junio de 1989)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 En ejercicio de las facultades que les confieren los artículos 140, incisos 1), 3) y 18 de la Constitución Política , 4, 26 incisos b), h) y g) y 27 numeral 1) de la Ley General de la Administración Pública

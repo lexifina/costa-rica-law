@@ -14,3 +14,4 @@ Se nombra al señor Eduardo Valverde Marín como Asesor del Ministerio de Hacien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-06-16 | la propia norma |
+| 2 | 1989-06-16 | Decreto Ejecutivo 19729 (1989-06-13) |
