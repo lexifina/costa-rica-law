@@ -1,0 +1,2 @@
+Articulo 27.—Acuerdo firme. Transitorio. El articulado del presente Manual, atinente a regular el otorgamiento de licencias o carne por primera vez entrara en vigencia a partir de su publicación. El resto del articulado empezara a regir seis meses después de su publicación, con el objetivo de que los permisionarios adecuen y actualicen la información y documentación requerida.
+Puntarenas, 16 de setiembre del 2002
