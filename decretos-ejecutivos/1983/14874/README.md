@@ -14,3 +14,4 @@ Reglamento a Ley N° 6588 "Ley que Regula a la Refinadora Costarricense de Petr�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-10-14 | la propia norma |
+| 2 | 1990-05-03 | Decreto Ejecutivo 19707 (1990-05-03) |
