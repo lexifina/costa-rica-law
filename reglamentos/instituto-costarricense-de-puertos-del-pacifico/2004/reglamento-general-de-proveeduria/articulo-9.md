@@ -1,0 +1,1 @@
+Artículo 9º—La proveeduría deberá rechazar, sin excepción, cualquier gestión de un proveedor, para que se le entregue documento alguno, oficial o en borrador, antes de que el pliego de condiciones sea aprobado oficialmente y sea remitido por la vía ordinaria, a un mismo tiempo, a todas las personas inscritas en el registro de proveedores de INCOP.

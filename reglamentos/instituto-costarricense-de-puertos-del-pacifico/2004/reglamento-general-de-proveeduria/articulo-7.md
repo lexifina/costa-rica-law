@@ -1,0 +1,1 @@
+Artículo 7º—En las contrataciones directas o en los procedimientos de contratación Administrativa que así lo requieran, no se debe invitar a cotizar, solamente a empresas en las cuales sus Juntas Directivas estén conformadas, ya sea parcial o totalmente, por las mismas personas físicas.

@@ -1,0 +1,2 @@
+De la Recomendación de Adjudicación
+Artículo 26.—Para Licitaciones Restringidas. Una vez que el Departamento de Proveeduría haya hecho el análisis de los aspectos formales de la oferta y luego de haber recibido el criterio técnico, cuando se requiera, se convocará con al menos dos días hábiles de anticipación a los miembros de la Comisión de Contratación la cual deberá emitir recomendación de adjudicación ante la Gerencia General, a afecto de que ésta tome la decisión final con respecto a dicha recomendación.

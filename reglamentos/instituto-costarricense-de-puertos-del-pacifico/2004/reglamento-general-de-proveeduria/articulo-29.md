@@ -1,0 +1,1 @@
+Artículo 29.—De la selección directa del personal calificado. No existiere en el registro de proveedores una persona calificada para la prestación del servicio, se procederá a una selección directa, mediante un acto debidamente motivado.

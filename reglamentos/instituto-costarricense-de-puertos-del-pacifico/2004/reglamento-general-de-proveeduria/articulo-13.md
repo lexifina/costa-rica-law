@@ -1,0 +1,1 @@
+Artículo 13.—La Proveeduría cuando así lo requiera de acuerdo a las necesidades técnicas, podrá solicitar el criterio técnico respectivo a la Dirección, Departamento o Unidad que esta crea competente, para así realizar la respectiva adjudicación.

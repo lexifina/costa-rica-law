@@ -1,0 +1,1 @@
+Artículo 27.—Para Licitaciones por Registro, Públicas o Contrataciones Directas Autorizadas por la Contraloría General de la República. Se procederá con el mismo sistema descrito en el artículo anterior, con la salvedad, de que la recomendación será remitida por el Gerente General, a los Miembros de la Junta Directiva para que tomen la decisión final del respectivo concurso.

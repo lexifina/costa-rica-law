@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De la Comisión de Contratación Administrativa
+Artículo 19.—De la creación de la Comisión. Al amparo del artículo Nº 2.2.5 del Reglamento General de Contratación Administrativa, se crea la Comisión de Contratación Administrativa que estará integrada por el Gerente General o a quién él delegue, quien tendrá la coordinación de la misma, El Director Financiero, El Proveedor General, un Abogado del Departamento Legal y un técnico con voz y voto, éste último se integrará conforme a la naturaleza de la contratación. Asimismo se deberá contar una secretaria, la cual será la encargada de llevar el control de las actas que deba llevar la Comisión.

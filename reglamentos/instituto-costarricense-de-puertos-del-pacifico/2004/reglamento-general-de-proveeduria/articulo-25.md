@@ -1,0 +1,2 @@
+Del acto de apertura de Ofertas
+Artículo 25.—Presencia de los miembros de la Comisión. A efectos de contar con la presencia de los miembros de la Comisión de Contratación Administrativa, en el acto de apertura de ofertas de las diferentes licitaciones, remates y/o contrataciones directas autorizadas por la Contraloría General de la República, el Departamento de Proveeduría comunicará a todos los miembros de la Comisión la fecha y hora que se tenga prevista para tal efecto, con al menos dos días hábiles de anticipación.

@@ -1,0 +1,1 @@
+Artículo 37.—Una vez entregado por parte de la Unidad solicitante el recibido conforme al Departamento de Proveeduría, éste remitirá el recibido conforme con todos los documentos pertinentes, al Departamento de Contabilidad para el registro contable definitivo.

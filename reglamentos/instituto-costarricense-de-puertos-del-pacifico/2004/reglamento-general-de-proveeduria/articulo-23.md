@@ -1,0 +1,1 @@
+Artículo 23.—Aprobación del Cartel de Licitación Restringida. El cartel de licitación restringida deberá ser avalado por la Comisión de Contratación Administrativa, a afectos de que el mismo sea enviado a la Gerencia General para su aprobación final y posterior envió al Departamento de Proveeduría para que inicie el trámite al concurso.

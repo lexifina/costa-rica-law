@@ -1,0 +1,1 @@
+Artículo 34.—Recibida la documentación descrita en el artículo anterior, la Proveeduría la remitirá junto con la demás documentación de soporte al Departamento de Contabilidad para su registro y pago.

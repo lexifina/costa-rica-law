@@ -1,0 +1,1 @@
+Artículo 36.—La Unidad solicitante del servicio deberá de entregar al Departamento de Proveeduría el documento original denominado “Recibido Conforme” en el término de un día hábil, haciendo constar el recibido a satisfacción del servicio solicitado.

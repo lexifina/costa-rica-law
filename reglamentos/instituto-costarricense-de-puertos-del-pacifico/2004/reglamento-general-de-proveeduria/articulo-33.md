@@ -1,0 +1,1 @@
+Artículo 33.—El encargado del Almacén de Materiales deberá hacer llegar la factura y el reporte de artículos recibidos o el reporte de activo fijo, según sea el caso, todos originales, a la Proveeduría para el proceso de pago, a más tardar 24 horas después de recibido a satisfacción la mercadería.
