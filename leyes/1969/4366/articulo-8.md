@@ -7,7 +7,8 @@ La provincia de Alajuela comprende los cantones de Alajuela, San Ramón, Grecia,
 La provincia de Cartago comprende los cantones de Cartago, Paraíso, La Unión, Jiménez, Turrialba, Alvarado, Oreamuno y El Guarco.
 La provincia de Heredia comprende los cantones de Heredia, Barba, Santo Domingo, Santa Bárbara, San Rafael, San Isidro, Belén, Flores, San Pablo, Sarapiquí(*).
 (*) (Mediante el artículo 1° de la ley N° 4671 del 18 de noviembre de 1970, se creó el Cantón de Sarapiquí.)
-La provincia de Guanacaste comprende los cantones de Liberia, Nicoya, Santa Cruz, Bagaces, Carrrillo, Cañas, Abangares, Tilarán, Nandayure y La Cruz.
+La provincia de Guanacaste comprende los cantones de Liberia, Nicoya, Santa Cruz, Bagaces, Carrrillo, Cañas, Abangares, Tilarán, Nandayure, La Cruz, Hojancha(*).
+(*) (Mediante el artículo 1° de la ley N° 4887 del 2 de noviembre de 1971, se creó el Cantón de Hojancha.)
 La Provincia de Puntarenas comprende los cantones de Puntarenas, Esparta, Buenos Aires, Montes de Oro, Osa, Aguirre, Golfito, Coto Brus, Parrita(*).
 (*) (Mediante el artículo 1° de la ley N° 4787 del 5 de julio de 1971, se creó el Cantón de Parrita.)
 La provincia de Limón comprende los cantones de Limón, Pococí, Siquirres, Talamanca, Matina, Guácimo(*).
