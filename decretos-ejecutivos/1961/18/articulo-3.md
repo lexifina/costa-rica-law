@@ -1,0 +1,1 @@
+Artículo 3°—Todos los organismos estatales y particulares que se interesen en colocar, por su cuenta, señales de tránsito, deben contar con la aprobación previa del Ministerio de Obras Públicas, ante el que deben presentar solicitud por escrito, suministrando todos los diseños y otros detalles que se le soliciten.
