@@ -2,3 +2,7 @@ Artículo 6°—Durante el año 1992 no se podrá aumentar el número de vehícu
 La Autoridad Presupuestaria solo podrá tramitar un máximo de dos solicitudes anuales por cada entidad, las cuales deberán cumplir con todas las especificaciones señaladas por la Comisión de Vehículos del Sector Público.
 Toda operación relacionada con este artículo, sin excepción, deberá contar con la autorización previa de la Comisión de Vehículos del Sector Público, la que la analizara de acuerdo con los procedimientos existentes.
 Toda donación de vehículos deberá respaldarse en documentos que así lo demuestren además del avalúo que practique la Tributación Directa.
+*La Autoridad Presupuestaria podrá, excepcionalmente, y en casos sumamente justificados, calificados de urgentes y convenientes para la Administración, especialmente en el área de seguridad a la ciudadanía, autorizar canjes, permutas y ventas de vehículos cuyo modelo sea superior a 1987, sujeto a:
+a) Que el vehículo (s) modelo superior a 1987 sea sustituido por dos o más unidades de trabajo, sin erogación adicional. Se exceptúan las radiopatrullas que podrán permutarse según conveniencia de la Administración.
+b) Que los vehículos a recibir no se destinen en su totalidad a uso discrecional.
+*(Así adicionado mediante el artículo 1° del decreto ejecutivo N° 21149 del 17 de marzo de 1992).
