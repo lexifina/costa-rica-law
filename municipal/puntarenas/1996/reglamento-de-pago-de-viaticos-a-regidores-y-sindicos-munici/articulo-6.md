@@ -1,0 +1,1 @@
+6. Cuando el Regidor o Síndico le asista el derecho al reconocimiento de gastos de viaje y transporte por asistir a sesión deberá solicitar de previo un adelanto de acuerdo con las tablas incluidas en el reglamento.
