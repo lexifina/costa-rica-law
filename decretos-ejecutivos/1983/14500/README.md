@@ -1,0 +1,15 @@
+# Decreto Ejecutivo 14500
+
+Reforma Reglamento Estatuto Servicio Civil
+
+- Tipo: Decreto Ejecutivo
+- Número: 14500
+- Fecha: 1983-04-29
+- Publicación: La Gaceta N° 92 del 1983-05-16
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7132&param2=7625&param3=1 (ficha 7132)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1983-05-16 | la propia norma |
