@@ -1,0 +1,1 @@
+III. Establecer para el Bono Familiar de Vivienda del Programa de Reparaciones, Ampliaciones, Mejoras y Terminación de Vivienda, un monto mínimo de doscientos setenta y cinco mil colones exactos (¢275.000,00).
