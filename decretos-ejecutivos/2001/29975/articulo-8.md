@@ -1,0 +1,1 @@
+Artículo 8º—Condiciones técnicas. La diferenciación tarifaria a que se refiere este reglamento se aplicará conforme con las condiciones técnicas que defina el Instituto Costarricense de Electricidad (ICE).
