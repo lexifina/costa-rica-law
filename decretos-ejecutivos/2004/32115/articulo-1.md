@@ -1,0 +1,12 @@
+N° 32115
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso l), 27 inciso l) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001 y su Reglamento, Decreto Ejecutivo N° 30058-H-MP-PLAN de 19 de diciembre del 2001; Ley Nº 7403, Ley de Creación del Colegio para el Riego y Desarrollo del Trópico Seco de 3 de mayo de 1994 y Decreto Ejecutivo N° 31092-H de 11 marzo del 2003 y sus reformas.
+Considerando:
+1º—Que el Colegio Universitario para el Riego y el Desarrollo del Trópico Seco (CURDTS), creado mediante la Ley Nº 7403, publicada en La Gaceta Nº 89 del 10 de mayo de 1994, ofrece carreras cortas completas en el ámbito de la educación superior parauniversitaria y tiene como fin atender las necesidades de formación superior en la zona.
+2º—Que el Colegio ha experimentado un crecimiento considerable en la actividad académica y por ende en el campo administrativo; de ahí la necesidad de reforzar las partidas de Servicios No Personales y de Materiales y Suministros, para cubrir gastos imprescindibles.
+3º—Que mediante Decreto Ejecutivo Nº 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, la Autoridad Presupuestaria formuló las Directrices de Política Presupuestaria del 2004, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo en el artículo 1º del citado decreto, la forma de cálculo del gasto presupuestario máximo del año 2004, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+4º—Que mediante oficio STAP-Circular 647-03 del 29 de abril del 2003, se comunicó al CURDTS el gasto presupuestario máximo autorizado para el año 2004.
+5º—Que por lo anterior, se hace necesario modificar el gasto presupuestario del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco para el 2004. Por tanto:
+DECRETAN:
+Artículo 1º—Modifícase al Colegio Universitario para el Riego y el Desarrollo del Trópico Seco el gasto presupuestario para el año 2004 establecido según el artículo 1° del Decreto Ejecutivo N° 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, de manera que este no podrá exceder la suma de ¢333.2 millones.
