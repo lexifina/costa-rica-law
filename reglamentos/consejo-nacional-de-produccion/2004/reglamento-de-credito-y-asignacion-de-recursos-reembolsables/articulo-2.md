@@ -1,1 +1,0 @@
-Artículo 2º—Se entiende por beneficiarios a los profesionales y técnicos en ciencias agropecuarias, pequeños y medianos productores agropecuarios debidamente organizados, de acuerdo con la definición que al efecto establezca la Junta Directiva del Consejo Nacional de Producción.
