@@ -1,0 +1,1 @@
+Artículo 129.- Son aplicables a las concesiones de esta clase de servidumbre las prescripciones que se dejan establecidas para el otorgamiento de las de acueducto; al decretarlas, se fijará, según su objeto y las circunstancias de la localidad, la anchura de la vía o senda que haya de conducir al abrevadero o punto destinado para sacar agua.

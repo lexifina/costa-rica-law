@@ -1,0 +1,2 @@
+Artículo 192.- El Ministerio del Ambiente y Energía recibirá el expediente y podrá ordenar de oficio o a solicitud de parte que se reciban nuevas pruebas o que se amplíen las evacuadas, por medio del funcionario judicial o administrativo que comisionará al efecto o por el mismo Inspector de Aguas que falló en primera instancia.
+(Así reformado por el Transitorio V de la Ley Nº 7593 de 9 de agosto de 1996)

@@ -1,0 +1,1 @@
+Artículo 95.- El dueño del predio que recibe las aguas tiene derecho de hacer dentro de él ribazos, malecones o paredes que, sin impedir el curso de las aguas, sirvan para regularizarlas o para aprovecharlas en su caso.

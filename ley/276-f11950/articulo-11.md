@@ -1,0 +1,1 @@
+Artículo 11.- Mientras las aguas corran por sus cauces naturales y públicos y no lo impida una concesión particular, todos podrán usar de ellas para beber, lavar ropas, vasijas y cualesquiera otros objetos, bañarse y abrevar o bañar caballerías y ganado, con sujeción a los reglamentos de policía.

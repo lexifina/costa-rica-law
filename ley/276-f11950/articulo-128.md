@@ -1,0 +1,1 @@
+Artículo 128.- Las servidumbres de abrevadero y de saca de aguas llevan consigo la obligación, en los predios sirvientes, de dar paso a personas y ganados hasta el fundo donde hayan de ejercerse aquéllas, debiendo ser también extensiva a este servicio la indemnización.

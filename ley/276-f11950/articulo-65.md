@@ -1,0 +1,1 @@
+Artículo 65.- Si las obras produjeren anegamiento de terrenos particulares, no se dará la concesión sin que previamente se obtenga por el solicitante el correspondiente permiso de los propietarios de dichos terrenos.

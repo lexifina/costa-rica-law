@@ -1,0 +1,1 @@
+Artículo 130.- Los dueños de los predios sirvientes podrán variar la dirección de la vía o senda destinada al uso de estas servidumbres, pero no su anchura ni entrada y, en todo caso, sin que la variación perjudique el uso de la servidumbre.

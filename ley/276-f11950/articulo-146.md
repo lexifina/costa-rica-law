@@ -1,0 +1,1 @@
+Artículo 146.- Es prohibido destruir en los bosques nacionales los árboles que estén situados en las pendientes, orillas de las carreteras y demás vías de comunicación, lo mismo que los árboles que puedan explotarse sin necesidad de cortarlos, como el hulero, el chicle, el liquidámbar, el bálsamo y otros similares.

@@ -1,0 +1,1 @@
+Artículo 125.- El que para dar riego a su heredad o para mejorarla necesite construir parada o partidor en la acequia o regadera por donde haya de recibirlo sin vejamen ni mermas para los demás regantes, podrá exigir de los dueños de las márgenes que permitan su construcción, previo abono de daños y perjuicios, incluso los que se originen en la nueva servidumbre.

@@ -1,0 +1,1 @@
+Artículo 118.- El dueño del predio sirviente podrá construir sobre el acueducto puentes para pasar de una a otra parte del predio, pero lo hará con la solidez necesaria y de manera que no se amengüen las dimensiones del acueducto ni se entorpezca el curso del agua.

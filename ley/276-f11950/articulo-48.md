@@ -1,0 +1,1 @@
+Artículo 48.- Los dueños de predios lindantes con cauces públicos de caudal no continuo como ramblas, barrancos y otros semejantes de dominio público, pueden aprovechar en su regadío las aguas pluviales que por ellas discurran y construir al efecto, sin necesidad de autorización, malecones de tierra y piedra suelta o presas.

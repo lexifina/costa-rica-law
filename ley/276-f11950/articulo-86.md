@@ -1,0 +1,1 @@
+Artículo 86.- Las brozas, ramas y leñas que vayan flotando en las aguas o sean depositadas por ellas en el cauce o en terrenos de dominio público, son del primero que las recoja; las dejadas en terrenos de dominio privado, son del dueño de las fincas respectivas.

@@ -1,0 +1,1 @@
+Artículo 105.- Tampoco podrá tener lugar la servidumbre forzosa de acueducto por dentro de otro acueducto preexistente; pero si el dueño de éste la consintiere y el dueño del predio sirviente se negare, podrá obligarse a éste.

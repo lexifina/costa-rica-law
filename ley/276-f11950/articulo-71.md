@@ -1,0 +1,1 @@
+Artículo 71.- Las playas y vasos que contienen las aguas determinadas en el artículo 5º, pertenecen al propietario del terreno, así como los álveos o cauces en que discurran esas aguas dentro del mismoerreno hasta el lindero del predio siguiente.

@@ -1,0 +1,1 @@
+Artículo 210.- Las cuestiones de derecho, cuando se persigue una declaración de posesión definitiva de las aguas públicas, o la reivindicación de la posesión de derechos de las aguas privadas, cae dentro de la competencia de los Tribunales Ordinarios.

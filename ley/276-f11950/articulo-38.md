@@ -1,0 +1,1 @@
+Artículo 38.- Los aprovechamientos para abrevaderos, lecherías y baños, se regularán de acuerdo con las necesidades, pero quien desee acogerse a ellos deberá obtener la concesión correspondiente, mediante los trámites que se determinan en la presente ley.

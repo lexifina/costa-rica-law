@@ -1,0 +1,1 @@
+Artículo 106.- Cuando un terreno de regadío que recibe el agua por un solo punto se divida por herencia, venta u otro título entre dos o más dueños, los de la parte superior quedan obligados a dar paso al agua como servidumbre de acueducto para riego de las inferiores, sin poder exigir por ello indemnización, a no haberse pactado otra cosa.

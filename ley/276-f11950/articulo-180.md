@@ -1,0 +1,2 @@
+Artículo 180.- Si se presentaren oposiciones, el Ministerio del Ambiente y Energía las pondrá en conocimiento del solicitante de la concesión; y las pruebas que se ofrezcan en el escrito de oposición, así como las que indique el solicitante dentro de los tres días posteriores al vencimiento del término concedido para oponerse, se evacuarán por el Inspector Cantonal de Aguas respectivo, al practicar la diligencia a que se refiere el artículo siguiente.
+(Así reformado por el Transitorio V de la Ley Nº 7593 de 9 de agosto de 1996)

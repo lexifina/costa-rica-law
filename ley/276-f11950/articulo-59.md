@@ -1,0 +1,1 @@
+Artículo 59.- La duración de estas concesiones no podrá exceder de noventa y nueve años, pasados los cuales entrará el Estado en el libre y completo disfrute de las obras y del material en explotación, con arreglo a las condiciones establecidas en la concesión.

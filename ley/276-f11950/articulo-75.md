@@ -1,0 +1,1 @@
+Artículo 75.- Son propiedad del Estado las islas ya formadas o que se formen en la zona marítima o en la parte navegable de los ríos y en las rías y desembocaduras. Pero si estas islas se formaran con partes de una o varias fincas de propiedad particular, cortadas por un río, continuarán perteneciendo a los dueños de la finca o fincas desmembradas.
