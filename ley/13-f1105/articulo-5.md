@@ -1,1 +1,0 @@
-Art 5°.- No podrán los Defensores Públicos tomar en las elecciones populares del territorio en que ejercen sus funciones, más tomar parte activa en reuniones, manifestaciones u otros actos de carácter político.
