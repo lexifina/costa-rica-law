@@ -1,0 +1,1 @@
+Artículo 6-Podrán ser arrendadas las porciones de terreno comprendidas dentro de la zona determinada en el artículo 1° que no hubieren sido vendidas dentro de un año después de la publicación de esta ley.-A cada persona no podrá arrendarse una porción mayor de cien hectáreas.

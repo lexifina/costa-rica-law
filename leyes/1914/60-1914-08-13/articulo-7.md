@@ -1,0 +1,2 @@
+Artículo 7.-No podrá ser vendida, ni arrendada, ni enajenada en ninguna forma, una faja de terreno de doscientos metros en la zona a que se refiere esta ley, en las orillas del mar y ríos navegables y el Estado la reserva perpetuamente para el uso de los salineros, pescadores y navegantes, defensas, servicios de guardas y conservación de bosques.
+San José, trece de agosto de mil novecientos catorce.
