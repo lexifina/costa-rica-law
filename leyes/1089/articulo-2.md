@@ -1,0 +1,3 @@
+Artículo 2º.- El artículo 784 del Código de Procedimientos Civiles se leerá en la siguiente forma:
+"Artículo 784.- Dada la autorización se procederá al avalúo de los bienes del contrato por el mismo o mismos peritos que hubieren dictaminado sobre necesidad y utilidad. En cuanto al procedimiento de la subasta se estará a lo dicho en el título de juicio ejecutivo.
+Los honorarios del perito o de los peritos se fijarán conforme a la tarifa que establece el artículo 11. inciso 6º) de la ley Nº 10 de 23 de diciembre de 1937. Para el efecto del pago de honorarios, el dictamen sobre utilidad y necesidad y el avalúo se tendrán como un solo dictamen".
