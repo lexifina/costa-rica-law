@@ -1,0 +1,16 @@
+ARTICULO 17.- La Junta Administrativa del Registro Nacional
+transferirá al Ministerio de Hacienda los recursos necesarios para cubrir
+los gastos por servicios personales y las respectivas cargas sociales, de
+los funcionarios nombrados mediante el Decreto Ejecutivo No. 16697-J,
+publicado en la Gaceta No. 229 del 29 de noviembre de 1985, reformado por
+los Decretos Ejecutivos Nos. 17012-J del 15 de mayo de 1986, 17729-J del
+11 de setiembre de 1987, 18637-J del 25 de noviembre de 1988, 18801-J del
+10 de febrero de 1989 y 19361-J del 20 de diciembre de 1989 incorporados
+al Presupuesto Nacional en la presente Ley.
+Facúltase al Poder Ejecutivo para incorporar al Presupuesto Nacional,
+los fondos destinados a estos movimientos de personal.
+El financiamento de revaloraciones, aumentos anuales, cargas sociales
+y otros extremos salariales, que se autoricen en el futuro, se efectuará
+por el mismo procedimiento, transferencia de la Junta Administrativa del
+Registro Nacional al Presupuesto Nacional, mediante decreto ejecutivo del
+Ministerio de Hacienda.
