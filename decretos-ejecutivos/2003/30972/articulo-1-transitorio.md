@@ -1,0 +1,2 @@
+Transitorio I.—Las empresas dedicadas a la recepción y el procesamiento de datos que generan apuestas electrónicas, en operación al momento de entrar en vigor el presente reglamento, dispondrán del plazo de treinta días hábiles para cumplir con el pago del canon y el trámite de inscripción.
+Dado en la Presidencia de la República.—San José, a los veinticuatro días del mes de enero del dos mil tres.

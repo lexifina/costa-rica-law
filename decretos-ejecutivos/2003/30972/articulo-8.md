@@ -1,0 +1,1 @@
+Artículo 8º—Licencia de operación. La cancelación del canon de acuerdo con la tarifa establecida y la inscripción en el registro, otorgará a la empresa el derecho a obtener la licencia de operación para el año 2003.

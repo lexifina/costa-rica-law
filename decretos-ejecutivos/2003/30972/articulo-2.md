@@ -1,0 +1,1 @@
+Artículo 2º—Órgano competente. La Unidad de Estudios Económicos (UEE) del Ministerio de Economía, Industria y Comercio (MEIC), es el órgano responsable de implementar el registro de empresas de enlace de llamadas y apuestas electrónicas, para lo cual contará con el personal necesario.
