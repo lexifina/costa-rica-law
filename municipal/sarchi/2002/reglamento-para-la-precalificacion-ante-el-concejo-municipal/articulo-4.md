@@ -1,0 +1,1 @@
+Artículo 4º—El acuerdo que deniegue la precalificación a una entidad, tendrá los recursos ordinarios de revocatoria y apelación, dentro del quinto día de su comunicación, así como el extraordinario de revisión.
