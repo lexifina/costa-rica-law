@@ -1,1 +1,0 @@
-Artículo 5°—Ninguna persona podrá ser objeto de experimentaciones o investigaciones, si no ha otorgado previa y y expresamente su conocimiento por escrito, después de haber sido debidamente informada sobre los extremos indicados en el artículo siguiente.

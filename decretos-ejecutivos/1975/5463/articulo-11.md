@@ -1,1 +1,0 @@
-Articulo 11.—En los trabajos de investigación y experimentación en seres humanos realizados por personas o instituciones extranjeras o internacionales deberá darse prioridad, en igualdad de condiciones, a personal, materiales y equipa existentes en el país.

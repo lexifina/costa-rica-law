@@ -1,1 +1,0 @@
-Artículo- 10.—Cuando la Investigación en humanos propuesta por personas o instituciones internacionales o extranjeras sea similar a aquella que se ha planificado o se desarrolla en el país, deberá coordinarse con ésta, a través del Ministerio de Salud.

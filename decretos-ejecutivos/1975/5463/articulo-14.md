@@ -1,1 +1,0 @@
-Artículo 14.—Los datos y conclusiones que se obtengan de la investigación realizada por personas o instituciones nacionales, internacionales o extranjeras deberán ponerse a la disposición del Ministerio de Salud y de la institución que le da apoyo.

@@ -1,1 +1,0 @@
-Articulo 8°—Las investigaciones o experimentaciones en seres humanos sólo podrán realizarse en establecimientos previamente autorizados para tal efecto por el Ministerio de Salud y estarán necesariamente a cargo de profesionales especializados quienes serán responsables de las operaciones.

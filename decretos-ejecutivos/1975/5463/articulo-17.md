@@ -1,1 +1,0 @@
-Artículo 17.—En caso de que un programa sea cancelado, podrá ser nuevamente sometido a consideración haciendo los ajustes y modificaciones que sean necesarios para adecuarlo a las exigencias legales y reglamentarias pertinentes.
