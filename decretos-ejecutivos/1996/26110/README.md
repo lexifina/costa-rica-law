@@ -14,3 +14,4 @@ Reglamento para el Análisis de los Proyectos Mineros de Gran Escala
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-06-17 | la propia norma |
+| 2 | 1997-11-27 | Decreto Ejecutivo 26602 (1997-11-27) |

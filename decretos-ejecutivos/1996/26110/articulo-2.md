@@ -3,4 +3,6 @@ a) Un representante del MINAE, quien lo presidirá y será nombrado por el Minis
 b) Un representante del Ministerio de Comercio Exterior.
 c) Un representante del Ministerio de Hacienda
 d) Tres miembros externos que representarán una a las universidades públicas, al sector empresarial y a la sociedad civil respectivamente.
+e) Un representante de UPANACIONAL, el cual será propuesto por esta Organización.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 26602 del 27 de noviembre de 1997)
 Para el nombramiento de los miembros descritos en el inciso d), las Universidades enviarán una terna al Ministro del Ambiente y Energía, quien hará la escogencia con base en los atestados de los candidatos. Los representantes de la sociedad civil serán designados por el Contralor Ambiental, de las propuestas que envíen tanto las organizaciones no gubernamentales legalmente constituidas como las cámaras empresariales interesadas en ser parte.
