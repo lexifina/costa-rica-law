@@ -1,0 +1,2 @@
+Transitorio
+Hasta tanto no entre en vigencia el Reglamento sobre entidades de custodia, las cuentas individuales de la CEVAL por cada fondo podrán ser abiertas por el puesto de bolsa del grupo al que pertenece la sociedad administradora de fondos de inversión correspondiente. Igualmente les corresponderá realizar la conciliación de sus carteras con los registros de custodia que consten en la CEVAL.
