@@ -1,0 +1,1 @@
+II.—Modifiqúese el inciso j) del artículo 77 del supracitado Reglamento de Servicio, para que en lo sucesivo se lea así: "No guardar las debidas normas de aseo y buena apariencia personal y contravenir las disposiciones contenidas en el inciso d) del artículo 28 del citado Reglamento".
