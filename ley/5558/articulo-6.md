@@ -1,1 +1,1 @@
-Artículo 6º.- Esta ley rige desde su publicación.
+ARTICULO 6º.- Esta ley rige desde su publicación.
