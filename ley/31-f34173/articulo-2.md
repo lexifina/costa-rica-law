@@ -1,0 +1,1 @@
+Art. 2° En cada uno de los cantones menores habrá Municipalidad compuesta de los Alcaldes constitucionales, y de un Síndico Procurador que se nombrará en la forma que previene la ley. El Jefe Político de nombramiento del Gobierno será su Pre- sidente nato.
