@@ -1,0 +1,6 @@
+Artículo VI.—Bajo ninguna circunstancia se autorizará la explotación de una patente temporal de licores en iglesias, centros educativos e instalaciones deportivas. Tampoco se autorizará la explotación de estas patentes temporales cuando los festejos cívicos patronales, turnos, ferias y afines se realicen en la diferentes comunidades, en fechas que coincidan con celebraciones de la misma naturaleza a realizar en la cabecera del cantón o cuando se soliciten para más de dos comunidades en la misma fecha y se comprometa la capacidad de las autoridades de policía para brindar la vigilancia necesaria. En este último caso se respetará el principio de que el primero en tiempo es primero en derecho.
+Rige a partir de su publicación en el diario oficial La Gaceta.
+De conformidad con lo establecido en el artículo 43 del Código Municipal, se somete a consulta pública el presente proyecto por un plazo de diez días hábiles
+IX ACUERDO: El Concejo Municipal aprueba el proyecto reglamento para el otorgamiento de patentes temporales de licores, para la Municipalidad de Flores.
+Publíquese. Aprobado por unanimidad, en sesión ordinaria Nº 056 del 11 de mayo 1999 y ratificado en sesión ordinaria Nº 058 del 25 de mayo del mismo año.
+Flores, Heredia.—Mª de los Ang. Ulate Alfaro, Secretaria Concejo Municipal.
