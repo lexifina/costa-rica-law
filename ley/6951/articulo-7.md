@@ -1,1 +1,0 @@
-Artículo 7º.- Se mantiene vigente, en todas sus partes, el artículo 12 de la ley número 6695 del 10 de diciembre de 1981, con las modificaciones incorporadas en este proyecto. En especial, se exime al régimen de zonas procesadoras de exportación del pago de las impuestos de ventas y de consumo, los cuales sólo podrán ser variados por una ley específica.
