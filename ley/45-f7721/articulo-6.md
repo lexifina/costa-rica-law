@@ -1,0 +1,1 @@
+6. Las horas de despacho ordinario seràn desde las nueve del dia hasta las dos de la tarde, sin perjuicio del mas tiempo que se necesite, segun las circunstancias. Es obligacion de los oficiales mayores y escribientes presentarse en la oficina cualquiera hora que los mande comparecer el Ministro de que dependan.
