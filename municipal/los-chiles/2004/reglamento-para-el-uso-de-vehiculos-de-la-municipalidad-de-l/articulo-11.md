@@ -1,0 +1,1 @@
+Artículo 11.—Las disposiciones contenidas en este Reglamento son aplicables a todos los funcionarios que en razón de sus cargos usen, controlen o administren los recursos de transporte de la Municipalidad incluido el Alcalde y los miembros del Concejo.
