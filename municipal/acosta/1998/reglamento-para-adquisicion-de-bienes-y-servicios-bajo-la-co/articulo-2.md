@@ -1,0 +1,1 @@
+Artículo 2°—Para las compras de bienes y servidos de ¢250.001,00 a ¢ 500.000,00 las aprobará el Concejo Municipal mediante la presentación de facturas proformas y justificando las razones para su adjudicación.
