@@ -1,4 +1,4 @@
-Artículo 1º.- Autorízase a los banco del Estado para recibir garantía
+ARTICULO 1º.- Autorízase a los banco del Estado para recibir garantía
 prendaria de la producción de los primeros seis años futuros en aquellos
 casos de desarrollo de empresas bananeras que otorguen o hubieren otorgado
 en favor de los mismos banco garantías hipotecarias sobre las fincas en
