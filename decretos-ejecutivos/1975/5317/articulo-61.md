@@ -1,1 +1,0 @@
-Artículo 61.—No se autorizara el funcionamiento de derivaciones de laboratorios particulares tales como “tomas de muestras”, “sucursales”, “Anexos” o similares, si a cargo de estas no estuviera un MQC regente que cumpla con todos los requisitos estipulados para el regente de un laboratorio particular.

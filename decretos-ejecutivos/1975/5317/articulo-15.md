@@ -1,1 +1,0 @@
-Artículo 15.—Cuando un concurso comprenda varios puestos microbiológicos de igual categoría, el candidato que obtenga mayor puntaje tendrá prioridad para escoger la plaza que desee. En igual forma se adjudicaran las demás plazas a los otros candidatos, respetando el orden que por su puntuación hayan obtenido.

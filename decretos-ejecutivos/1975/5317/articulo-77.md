@@ -1,1 +1,0 @@
-Artículo 77.—El laudo será apelable en el plazo de cinco días comunes a partir de su notificación para ante el Tribunal Superior Civil y Contencioso Administrativo. El recurso se interpondrá ante el Tribunal Arbitral y los agravios contra el laudo se expresaran ante dicho Tribunal Superior dentro del término del emplazamiento que será de tres días comunes a las partes.

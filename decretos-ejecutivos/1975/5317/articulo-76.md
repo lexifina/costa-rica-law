@@ -1,1 +1,0 @@
-Artículo 76.—En caso de que un árbitro no fuera reelecto, conservará sin embargo sus atribuciones para fenecer los asuntos ante el tribunal de que formaba parte, salvo que su figuración en el propio tribunal hubiera dependido del ejercicio de un cargo en el desempeño del cual se nombró.

@@ -1,1 +1,0 @@
-Artículo 40.—El Director de Laboratorio o el Coordinador de Laboratorios en su caso, convocará y presidirá las sesiones de la comisión respectiva, la que se reunirá por lo menos una vez al mes. En ausencia de ellos, la presidirá el miembro presente de categoría superior.

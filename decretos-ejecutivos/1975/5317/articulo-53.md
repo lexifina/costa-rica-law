@@ -1,2 +1,0 @@
-Artículo 53.—Para la remuneración de los diferentes puestos de MQC no contemplados en el escalafón que tiene el Servicio Civil, cada institución o empresa, luego de establecida la clasificación y equivalencia con los que se detallan en el artículo 29 de este reglamento asignará los distintos salarios base, siguiendo las mismas pautas generales del Servicio Civil, basados en las diferencias de requisitos necesarios para ocupar cada puesto.
-Todo ello sin perjuicio de cualquier beneficio adicional que las instituciones empleadoras brinden a los MQC.

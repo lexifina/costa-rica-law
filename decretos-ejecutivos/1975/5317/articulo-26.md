@@ -1,2 +1,0 @@
-Artículo 26.—La calificación de los servicios quedará constando en el expediente personal del profesional, a quien se le entregara una copia de ella.
-Esta calificación se hará considerando los factores y porcentajes que se enumeran en el artículo 27 de este mismo reglamento. No obstante se tendrán como válidos otros sistemas de calificación que existan en la institución, siempre que sean de uso general en ella.

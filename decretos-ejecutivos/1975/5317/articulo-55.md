@@ -1,1 +1,0 @@
-Artículo 55.—La institución respectiva otorgara los aumentos de sueldo con base en lo dispuesto en este reglamento y en el ESTATUTO, conforme a los trámites legales y reglamentarios respectivos en cada caso.

@@ -1,2 +1,0 @@
-Artículo 56.—El reconocimiento de la antigüedad del MQC, por laborar en diferentes instituciones públicas, se hará sumando los años servidos ininterrumpidamente para así colocarlo en el respectivo paso de la categoría correspondiente de la Escala de Sueldos de la Ley de Salarios de la Administración Pública.
-Lo anterior sin perjuicio de otorgar además cualquier otro tipo de reconocimiento que se haga por concepto de antigüedad en cualquier puesto.

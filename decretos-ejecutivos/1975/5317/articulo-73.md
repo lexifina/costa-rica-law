@@ -1,1 +1,0 @@
-Artículo 73.—Serán igualmente aplicables a las actuaciones del tribunal los artículos 54, 57, 58, 59, 61, 65, 66, 68, 69 y 73 del Reglamento del Estatuto de Servicio Civil, relativos a las ausencias, la organización, las reuniones, el Presidente y sus facultades, los libros, las sustituciones, recusaciones, reconocimientos de las causales y régimen de excusas.

@@ -1,2 +1,0 @@
-Transitorio I.—Los-Microbiólogos Químicos Clínicos que a la fecha de la vigencia de la ley N° 5462 estuvieren nombrados en propiedad en cualquier institución pública o privada o empresa particular, quedaran de pleno derecho protegidos por este reglamento, aún cuando no llenaren los requisitos que se establecen para el puesto que desempeñan.
-Dado en la Casa Presidencial.—San José, a los diecisiete días del mes de octubre de mil novecientos setenta y cinco.

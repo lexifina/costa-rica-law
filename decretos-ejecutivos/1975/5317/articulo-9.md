@@ -1,1 +1,0 @@
-Artículo 9°—Cuando en una institución se produzca una vacante en un puesto microbiológico, la primera convocatoria para el concurso deberá publicarse dentro de los treinta días hábiles siguientes contados a partir del día en que la vacante se produjo, salvo que la institución razonadamente decida suprimir la plaza.

@@ -1,1 +1,0 @@
-Artículo 49.—La CPOL al actuar a pedido de la Junta Directiva del COLEGIO o a solicitud de terceros, pondrá en conocimiento del COLEGIO, del Ministerio de Salud y de la parte interesada, en un plazo no mayor de quince días hábiles sus conclusiones y resoluciones, para los efectos consiguientes.

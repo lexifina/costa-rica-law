@@ -1,3 +1,0 @@
-CAPITULO XI
-Del Conocimiento y Solución de los Conflictos
-Artículo 68.—Para conocer y dirimir las diferencias que se originen de la aplicación o interpretación del Estatuto de Servicio de Microbiología y Química Clínica y del presente Reglamento, existirá un tribunal de árbitros arbitradores integrado por tres miembros propietarios y tres suplentes, que se nombrarán así: el Ministro de Salud nombrará un propietario y un suplente; el Director General de Servicio Civil nombrará un propietario y un suplente; y la Junta Directiva del Colegio de Microbiólogos Químicos Clínicos nombrará un propietario y un suplente. Presidirá el tribunal el delegado del COLEGIO, su sede estará en la ciudad de San José, sus oficinas en el referido colegio y tendrá jurisdicción en todo el país.

@@ -1,1 +1,0 @@
-Artículo 39.—Los miembros indicados en los incisos a) y b) del artículo anterior, serán nombrados mediante votación directa y secreta de los MQC que trabajan en la institución, convocados expresamente para tal efecto. Durarán un año en sus cargos pudiendo ser reelectos hasta por dos periodos iguales sucesivos más.

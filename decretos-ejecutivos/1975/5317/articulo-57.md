@@ -1,1 +1,0 @@
-Artículo 57.—Sin perjuicio de lo establecido en el artículo 63 de este Reglamento y de cualquier situación especial o de emergencia, la jornada ordinaria de trabajo será de ocho horas diarias con un máximo de 44 horas semanales; el domingo será día de descanso semanal, salvo acuerdo en contrario entre el servidor y la institución.
