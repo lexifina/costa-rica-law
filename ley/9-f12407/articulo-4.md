@@ -1,0 +1,2 @@
+Art. 4°- El sobrante de las Rentas, que asciende á la suma de un millón doscientos seis mil setecientos noventa y siete pesos, setenta y tres centavos ($ 1.206,797-73) según se ve del Presupuesto de Ingresos, se aplicará á los gastos que demanda la continuación de la obra del Ferrocarril.
+Dado en el Palacio Presidencial, en San José, a los quince días del mes de julio de mil ochocientos ochenta. –T.GUARDIA. El secretario de Estado en el Despacho de Hacienda y Comercio. SALTADOR LARA.
