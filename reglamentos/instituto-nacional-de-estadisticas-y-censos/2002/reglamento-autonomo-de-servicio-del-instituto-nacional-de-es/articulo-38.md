@@ -2,7 +2,8 @@ CAPÍTULO XI
 De las licencias
 Artículo 38.—Los funcionarios podrán disfrutar de licencia ocasional, de conformidad con los requisitos y formalidades que establece el presente Reglamento, según los siguientes casos y condiciones:
 A. Licencias con goce de salario: Los Coordinadores podrán conceder una semana en casos de matrimonio de los funcionarios, el fallecimiento de alguno de sus padres, hijos, cónyuge, muerte de hermanos; tres meses calendario para la servidora que adopte un menor; en el caso de nacimiento o adopción de un menor, se concederán dos semanas al padre; y a tres días naturales en caso de traslado de domicilio de los funcionarios. A los efectos anteriores, los funcionarios deberán aportar copias de actas de matrimonio, certificaciones de defunción o de nacimiento, certificados de reconocimiento o de adopción, declaraciones juradas sobre patria potestad y certificaciones de la autoridad de policía sobre cambio de domicilio, respectivamente.
-B. Licencias sin goce de salario: El INEC podrá otorgar a los servidores licencia sin goce de salario, para atender asuntos personales, de la siguiente forma:
+B. Licencias sin goce de salario: El INEC podrá otorgar a los servidores regulares licencia sin goce de salario, para atender asuntos personales, de la siguiente forma:
+(Así reformado mediante sesión N° 237 de 8 de abril de 2003).
 1. Hasta una semana, otorgado por el Coordinador respectivo;
 2. Hasta un mes, autorizado por la Unidad de Recursos Humanos; y
 3. Por más de un mes, autorizado por el Gerente.

@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Instituto Nacional de Estadística y Censos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-15 | la propia norma |
+| 2 | 2003-04-08 | Reglamento 237 (2003-04-08) |

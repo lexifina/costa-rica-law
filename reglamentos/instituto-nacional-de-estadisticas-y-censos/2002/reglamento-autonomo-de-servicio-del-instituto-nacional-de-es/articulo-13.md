@@ -1,2 +1,4 @@
-Artículo 13.—Por regla general el período de prueba sólo se aplicará en los casos de iniciación de nombramiento, pero a juicio del Coordinador respectivo podrá exigirse en caso de ascenso o traslado, en que convenga para garantizar mejor el servicio público.
-El Coordinador podrá solicitar libremente el despido del funcionario durante el período de prueba, pero deberá informar a la Unidad de Recursos Humanos acerca de los motivos que tuvo para hacerlo.
+Artículo 13.—En toda contratación por tiempo indefinido habrá un período de prueba de hasta tres meses. Durante este período y sin previo aviso cualesquiera de las partes podrá dar por terminado el contrato o la relación que les une.
+Este período de prueba se aplicará también en los casos de traslado o ascenso, de tal manera que el servidor trasladado o ascendido podrá ser reintegrado a su anterior puesto, cuando el Coordinador inmediato compruebe que no reúne las condiciones requeridas o que no sea eficiente en el desempeño del puesto en cuestión.
+Los ascensos y nombramientos se consolidarán una vez aprobado dicho período. El puesto que deja el funcionario no podrá llenarse en propiedad, hasta tanto su anterior titular no haya consolidado el ascenso de que fue objeto.
+(Así reformado mediante sesión N° 237 de 8 de abril de 2003).
