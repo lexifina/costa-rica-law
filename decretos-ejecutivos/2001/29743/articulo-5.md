@@ -1,0 +1,3 @@
+Artículo 5º—Cambio de destino de la unidad. El Consejo de Transporte Público podrá autorizar el cambio de actividad de destino de una unidad de transporte público, siempre que se reúnan las condiciones y requisitos respectivos conforme al marco legal aplicable.
+Para tales efectos, entiéndase por cambio de actividad, la solicitud de inscripción de un vehículo previamente inscrito en flota de transporte regular para que sea utilizado en servicios especiales o viceversa.
+En cualquier cambio propuesto, se autorizará el menor rango de vida máxima permitida, a efectos de asegurar el mayor grado de seguridad y eficiencia en la prestación del servicio.

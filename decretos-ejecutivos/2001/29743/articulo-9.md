@@ -1,0 +1,1 @@
+Artículo 9º—Interpretación. Las normas del presente Decreto Ejecutivo deberán ser interpretadas de forma que se garantice la mayor seguridad, eficiencia y confortabilidad del usuario del sistema de transporte público, así como el debido cumplimiento de las políticas y estrategias para la modernización del sistema.

@@ -1,0 +1,1 @@
+Artículo 10.—Derogatorias. El presente Decreto Ejecutivo deroga los Decretos Ejecutivos 12827-T-MEIC y 28017-MOPT-MEIC, así como cualquier otra normativa de igual o inferior jerarquía en lo que se le oponga.

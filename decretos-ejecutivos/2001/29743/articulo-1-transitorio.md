@@ -1,0 +1,1 @@
+Transitorio I.—Las gestiones de refraccionamiento que hayan sido interpuestas con fundamento en los Decretos Ejecutivos 12827-T-MEIC y 28017-MOPT-MEIC y que a la fecha no hayan sido resueltas por el Consejo de Transporte Público, deberán atenerse a lo dispuesto en el presente instrumento, cuando resulte favorable al gestionante.
