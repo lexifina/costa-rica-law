@@ -1,1 +1,0 @@
-Artículo 42.—Caducidad: El contrato se tendrá por caduco cuando hubieran transcurrido seis (6) meses desde que se perfeccionó y no se hubiere iniciado su ejecución o cuando ésta se hubiere suspendido por el mismo lapso, salvo acuerdo en contrario de las panes.

@@ -1,1 +1,0 @@
-Artículo 47.—Instructivos: Este Reglamento será complementado con las condiciones generales que regirán los concursos públicos aprobados por la Junta Directiva, y con instructivos, dictados por la Gerencia General, salvo el relativo a las adquisiciones de crudo y derivados y a su fletamento, que será aprobado por la Junta Directiva.

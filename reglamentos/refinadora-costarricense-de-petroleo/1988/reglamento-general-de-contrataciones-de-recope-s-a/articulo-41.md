@@ -1,2 +1,0 @@
-Artículo 41.—Reajuste de precios: En los documentos contractuales podrán contemplarse cláusulas de reajuste, con sujeción a indicadores económicos a nivel nacional, a fin de reconocer diferencias de precios en contratos continuados de suministros, servicios o arrendamientos.
-Los reajustes en los contratos de obras se regirán por lo dispuesto en las leyes Nos. 5501 y 5518 del 7 de mayo de 1974 y sus reglamentos.

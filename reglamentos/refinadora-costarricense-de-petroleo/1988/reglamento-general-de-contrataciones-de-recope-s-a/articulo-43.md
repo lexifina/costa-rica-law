@@ -1,1 +1,0 @@
-Artículo 43.—Cancelación: Cuando las circunstancias lo obliguen, a juicio de RECOPE, ésta podrá cancelar un contrato en curso de ejecución. En estos casos se estará a lo que indiquen los documentos contracturales; a falta de previsión en éstos, RECOPE indemnizará al contratista los daños y perjuicios irrogados.

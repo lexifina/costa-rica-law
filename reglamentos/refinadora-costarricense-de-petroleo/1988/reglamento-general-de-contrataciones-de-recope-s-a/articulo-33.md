@@ -1,1 +1,0 @@
-Artículo 33.—Alcance de las sanciones: Las sanciones acordadas alcanzan a la persona o firma respectiva, tanto como individualmente a su presidente, gerente. subgerente y directores y sólo tendrán efectos en relación con actos posteriores a la fecha de la firmeza de la resolución correspondiente.

@@ -1,1 +1,0 @@
-Artículo 30.—Recursos de revocatoria: El apercibimiento será notificado por un medio idóneo a quienes alcance, y no tendrá otro recurso que el de revocatoria, el cual deberá interponerse ante la Gerencia General de RECOPE dentro de las cuarenta y ocho horas siguientes, debiendo ser resuelto en un plazo de cinco días hábiles.

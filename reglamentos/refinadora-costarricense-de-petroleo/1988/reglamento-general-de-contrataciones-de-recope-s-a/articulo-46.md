@@ -1,1 +1,0 @@
-Artículo 46.—Excepciones: La Junta Directiva de RECOPE podrá autorizar excepciones a lo dispuesto en este Reglamento, cuando circunstancias especiales así lo obliguen, a solicitud razonada de la Presidencia Ejecutiva o de la Gerencia General.
