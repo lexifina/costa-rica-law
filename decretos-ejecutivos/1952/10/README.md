@@ -13,3 +13,4 @@ Declara indenunciables las tierras baldíos para Colonia Agrícola San Vito de J
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1952-01-31 | la propia norma |
+| 2 | 1955-12-15 | Decreto Ejecutivo 22 (1955-12-15) |
