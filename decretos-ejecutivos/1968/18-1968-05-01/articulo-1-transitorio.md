@@ -1,0 +1,1 @@
+Transitorio único.—El Colegio podrá sustituir el Fondo de Mutualidad y Subsidios actual, de acuerdo con lo que al respecto dispuso su Junta General Extraordinaria el 27 de marzo de 1968. Asimismo, podrá disponer de los fondos acumulados hasta el momento de la sustitución, de acuerdo con lo que sobre eso dispuso la misma Junta General Extraordinaria.

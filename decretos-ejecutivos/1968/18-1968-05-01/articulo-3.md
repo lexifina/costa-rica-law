@@ -1,0 +1,1 @@
+Artículo 3°—Estarán exentos de contribuir para el Fondo de Mutualidad y Subsidios, conservando todos sus derechos, los miembros del Colegio mayores de setenta años; y temporalmente los miembros a quienes la Junta Directiva conceda esa gracia en atención a dificultades económicas (artículo 34 de la Ley Orgánica) .

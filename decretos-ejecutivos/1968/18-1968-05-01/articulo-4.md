@@ -1,0 +1,1 @@
+Artículo 4°—En el caso de que se establezca un Fondo de Mutualidad, la totalidad de los aportes recibidos para ese fin, deberá ser invertida en valores de fácil realización. La Junta Directiva del Colegio autorizará previamente y en cada caso, las inversiones a que se refiere este artículo.

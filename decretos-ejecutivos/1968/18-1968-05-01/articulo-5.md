@@ -1,0 +1,1 @@
+Artículo 5°—El sistema de seguridad social que adopte el Colegio deberá ser revisado cada cinco años, para verificar con vista de los resultados del período precedente, que está cumpliendo cabalmente con su finalidad.
