@@ -1,0 +1,10 @@
+ARTICULO IV
+Incumplimiento de Obligaciones del Gobierno
+Sección 4.01. Suspensión de desembolsos, El Administrador mediante aviso al Gobierno, podrá suspender los desembolsos si surge y mientras subsista alguna de las circunstancias siguientes:
+(a) El retardo en el pago de las sumas que el Gobierno adecue por capital, intereses y comisiones o por cualquier otro concepto, según el presente contrato de cualquier otro contrato celebrado entre el Gobierno y el Administrador;
+(b) El incumplimiento por parte del Gobierno de cualquier otra obligación estipulada en este Contrato.
+(c) El retiro o suspensión de Costa Rica como miembro del Banco Interamericano de Desarrollo.
+Sección 4.02. Vencimiento anticipado. Si alguna de las circunstancias previstas en las letras (a) y (h) de la Sección 4. 01 se prolongare por más de treinta (30) días, o si después de la correspondiente notificación la circunstancia prevista en la letra (c) de la misma Sección se prolongare por más de sesenta (60) días, el Administrador tendrá derecho para declarar vencido y pagadero de inmediato el Préstamo por parte de él, con los intereses y comisiones devengados hasta la fecha de pago.
+Sección 4.03. Obligaciones no afectadas. No obstante lo dispuesto en las Secciones 4.01 y 4.02, ninguna de las medidas previstas en este artículo afectará: (a) las cantidades sujetas a la garantía irrevocable de una carta de crédito; (b) las cantidades comprometidas por cuenta de compras contratadas con anterioridad a la suspensión, autorizadas por escrito por el Administrador y con respecto a las cuales se hayan colocado previamente órdenes específicas.
+Sección 4.04 No renuncia de derechos, El no ejercicio o el retardo en el ejercicio de los derechos del Administrador acordados en este artículo no podrán ser interpretados como una renuncia del Administrador a tales derechos ni como una aceptación de las circunstancias que lo habrían facultado para ejercerlos.
+Sección 4.05. Disposiciones no afectadas. La aplicación de las medidas establecidas en este articulo no afectará las demás disposiciones de este Contrato. las cuales quedarán en pleno vigor.
