@@ -1,0 +1,1 @@
+Artículo 2° La ausencia o fuga del reo no impide la prosecución, de la causa criminal hasta la sentencia firme, la cual se ejecutará en lo relativo o indemnizaciones civiles en favor del ofendido y aun en lo referente a penas pecuniarias, previa fianza de resultas para el caso de revisión.
