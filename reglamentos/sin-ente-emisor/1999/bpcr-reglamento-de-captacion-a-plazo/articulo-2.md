@@ -1,0 +1,1 @@
+Artículo 2°—El Banco podrá denegar la emisión de valores cuando lo considere conveniente a sus intereses, o si así procede de conformidad con la Ley sobre Estupefacientes, Sustancias Sicotrópicas y Drogas de uso no autorizado. El Banco podrá pagar mediante cheque aquellos valores cuya suma supere los $10.000,00 o su equivalente en otra moneda.

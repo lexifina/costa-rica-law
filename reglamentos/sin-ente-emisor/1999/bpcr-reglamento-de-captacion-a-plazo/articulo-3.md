@@ -1,0 +1,2 @@
+Artículo 3°—Además del dinero efectivo, el Banco podrá recibir por la captación cualquier valor vencido. En ese caso, el pago se considerará recibido hasta el momento en que el Banco haga efectivos los valores recibidos. Si dichos valores se hicieren efectivos, los intereses correrán a partir de su recibo, pero en caso contrario no correrán intereses.
+El valor así constituido quedará retenido por el plazo necesario para hacer efectivos los valores recibidos.
