@@ -1,0 +1,2 @@
+Artículo 2
+Las comunicaciones podrán ser presentadas por personas o grupos de personas que se hallen bajo la jurisdicción del Estado Parte y que aleguen ser víctimas de una violación por ese Estado Parte de cualquiera de los derechos enunciados en la Convención, o en nombre de esas personas o grupos de personas. Cuando se presente una comunicación en nombre de personas o grupos de personas, se requerirá su consentimiento, a menos que el autor pueda justificar el actuar en su nombre sin tal consentimiento.

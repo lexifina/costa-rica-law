@@ -1,0 +1,3 @@
+Artículo 6
+1. A menos que el Comité considere que una comunicación es inadmisible sin remisión al Estado Parte interesado, y siempre que la persona o personas interesadas consientan en que se revele su identidad a dicho Estado Parte, el Comité pondrá en conocimiento del Estado Parte, de forma confidencial, toda comunicación que reciba con arreglo al presente Protocolo.
+2. En un plazo de seis meses, ese Estado Parte presentará al Comité por escrito explicaciones o declaraciones en las que se aclare la cuestión y se indiquen las medidas correctivas que hubiere adoptado el Estado Parte, de haberlas.

@@ -1,0 +1,6 @@
+Artículo 7
+1. El Comité examinará las comunicaciones que reciba en virtud del presente Protocolo a la luz de toda la información puesta a su disposición por personas o grupos de personas, o en su nombre, y por el Estado Parte interesado, siempre que esa información sea transmitida a las partes interesadas.
+2. El Comité examinará en sesiones privadas las comunicaciones que reciba en virtud del presente Protocolo.
+3. Tras examinar una comunicación, el Comité hará llegar sus opiniones sobre la comunicación, conjuntamente con sus recomendaciones, si las hubiere, a las partes interesadas.
+4. El Estado Parte dará la debida consideración a las opiniones del Comité, así como a sus recomendaciones, si las hubiere, y enviará al Comité, en un plazo de seis meses, una respuesta por escrito, especialmente información sobre toda medida que se hubiera adoptado en función de las opiniones y recomendaciones del Comité.
+5. El Comité podrá invitar al Estado Parte a presentar más información sobre cualesquiera medidas que el Estado Parte hubiera adoptado en respuesta a las opiniones o recomendaciones del Comité, si las hubiere, incluso, si el Comité lo considera apropiado, en los informes que presente más adelante el Estado Parte de conformidad con el artículo 18 de la Convención.
