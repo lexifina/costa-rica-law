@@ -1,0 +1,1 @@
+Art. 14.-Trascurridos veinte días sin que el des- alojado haya satisfecho los alquileres y perjuicios causados, el propietario podrá pedir ante el Juez de la causa la venta de los muebles para hacerse indemnizar de unos y otros.

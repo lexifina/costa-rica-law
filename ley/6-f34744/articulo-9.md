@@ -1,0 +1,1 @@
+Art. 9°-Trascurrido el plazo que se dió al demandado para la desocupación de la finca, sin que haya opuesto excepción en tiempo oportuno, ó evacuadas las propuestas, se dictará sentencia, en la que, se ratificará la orden de desalojamiento, ó se declarará sin lugar éste.

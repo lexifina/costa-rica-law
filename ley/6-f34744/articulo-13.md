@@ -1,0 +1,3 @@
+Art. 13.-Una vez que se afirme la sentencia de desalojamiento, ó si se decretare la ejecución de la dictada en 1a instancia, de acuerdo con lo establecido en el artículo anterior, se procederá á ejecutarla medio de la autoridad de Policía, que será requerida para ello, mediante exhorto.
+El lanzamiento se verificará expulsando al demandado y familia, y poniendo familia, y poniendo en depósito sus muebles, caso de que no quisiere retirarlos en el acto de la expulsión, estando solvente.
+No podrá el demandado recoger sus muebles, mientras no cubriere los gastos que se hayan originado con motivo del depósito.
