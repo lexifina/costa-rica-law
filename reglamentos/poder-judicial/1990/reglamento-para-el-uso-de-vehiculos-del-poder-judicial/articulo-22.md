@@ -1,0 +1,1 @@
+Artículo 22.—Cuando las solicitudes cumplan las indicaciones y requisitos estipulados, la Sección de Transportes respectiva, deberá decidir sobre la disponibilidad del vehículo y en su caso tenerlo debidamente preparado para su uso con la anticipación necesaria.

@@ -1,0 +1,1 @@
+Artículo 2°.- La Sección de Cárceles, Transportes y Citaciones del Organismo de Investigación Judicial t la Sección de Transportes del Departamento de Servicios Generales, tendrán a su cargo el control directo sobre los vehículos del Poder Judicial, de acuerdo con los dispuesto en el presente reglamento.

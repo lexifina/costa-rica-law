@@ -1,0 +1,1 @@
+Artículo 29.—Con excepción de los funcionarios que tengan asignado un vehículo en forma discrecional, únicamente podrán conducir los vehículos del Poder Judicial aquellos servidores que ocupen puestos de chófer, de investigadores o auxiliares de investigación y los otros que autorice la Dirección Administrativa a ese efecto.
