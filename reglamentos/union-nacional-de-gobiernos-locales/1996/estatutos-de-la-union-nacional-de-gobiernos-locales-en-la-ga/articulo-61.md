@@ -1,0 +1,1 @@
+Artículo 61.—Se autoriza a la Contraloría General de la República a no aprobar el presupuesto ordinario del año siguiente de los miembros de esta Unión, si tuviera la municipalidad pendiente el pago de la cuota del año anterior.

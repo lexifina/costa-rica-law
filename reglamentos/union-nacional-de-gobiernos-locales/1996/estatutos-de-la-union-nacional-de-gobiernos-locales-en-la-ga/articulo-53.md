@@ -1,0 +1,1 @@
+Artículo 53.—Las comisiones especiales serán designadas por el Consejo Directivo, quien les fijará plazo para que rindan el informe correspondiente. Las comisiones permanentes y especiales tendrán su reglamento dictado por el Consejo Directivo.

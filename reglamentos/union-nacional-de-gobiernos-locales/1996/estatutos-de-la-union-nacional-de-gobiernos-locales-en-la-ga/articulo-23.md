@@ -1,0 +1,2 @@
+Artículo 23.—Las papeletas deberán contener regidores representantes de cada una de las provincias, de las Ligas de Municipalidades y de las mujeres regidoras. Procurando una representación de los distintos partidos políticos. Los suplentes se eligirán en papeletas enumeradas del uno al diez para efectos de sustituir a los directivos propietarios ausentes.
+El Consejo Directivo emitirá el reglamento electoral respectivo.

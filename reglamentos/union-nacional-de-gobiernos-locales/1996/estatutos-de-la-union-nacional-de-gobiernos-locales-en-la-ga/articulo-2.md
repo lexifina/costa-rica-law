@@ -1,0 +1,13 @@
+Artículo 2°—Los objetivos y funciones de la Unión Nacional de Gobiernos Locales Son:
+a. Representar los intereses del régimen municipal y promover la efectiva realización de la autonomía política, financiera, jurídica y administrativa de los gobiernos locales, promoviendo los principios democráticos y participativos en cada uno de ellos.
+b. Promover y apoyar la descentralización política funcionar y administrativa del Estado costarricense en favor del fortalecimiento de los gobiernos locales.
+c. Promover el establecimiento de un Sistema Nacional de Capacitación Municipal para las Municipalidades, Ligas de Municipalidades, Consejos Municipales de Distrito y funcionarios administrativos en conjunto con las instituciones públicas, organismos internacionales y regionales, gubernamentales y no gubernamentales.
+d. Representar al régimen municipal ante el Poder Ejecutivo, sus Ministerios e Instituciones Autónomas, el Poder Legislativo y sus comisiones especiales, que mediante legislación ordinaria o decreto ejecutivo se establezca la participación municipal.
+e. Mantener y desarrollar un intercambio permanente de ideas y experiencias en el campo municipal con organismos internacionales, autoridades institucionales, funcionarios y expertos, por medio de reuniones, seminarios y congresos nacionales o regionales.
+g. Canalizar los esfuerzos e inquietudes de las municipalidades ante los poderes Legislativo y Ejecutivo, procurando un efectivo cumplimiento y atención a las demandas de los gobiernos municipales.
+h. Gestionar, elaborar y canalizar ante organismos internacionales y países amigos mecanismos de cooperación externa con las municipalidades.
+i. Mantener comunicación e intercambio de información con entidades homologas organismos internacionales afines al régimen municipal e informar a las municipalidades de las actividades, cursos y seminarios que realizan anualmente en diversos países, procurando que el cuerpo político y administrativo de las municipalidades participen de esas actividades.
+j. Promover una activa y consciente participación de los regidores ejecutivos en las actividades de la Unión Nacional de Gobierno Locales y en aquellos eventos del régimen municipal.
+k. Impulsar y apoyar la creación de la carrera administrativa municipal.
+I. Fomentar actividades que los órganos de la Unión establezcan en pro del desarrollo y fortalecimiento de los gobiernos locales.
+II. Promover y gestionar la participación y acción del gobierno central y de las instituciones nacionales e internacionales de asistencia técnica y financiera con el fin de impulsar el mejoramiento de los gobiernos locales.

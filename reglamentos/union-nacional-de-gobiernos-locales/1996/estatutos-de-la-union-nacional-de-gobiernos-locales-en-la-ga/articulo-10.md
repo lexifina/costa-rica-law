@@ -1,0 +1,1 @@
+Artículo 10.—En el caso de que el Consejo Directivo no se reúna por falta de quórum o alguna otra circunstancia, corresponderá al Director Ejecutivo efectuar la convocatoria para la celebración de la Asamblea Nacional, indicando lugar, fecha y hora, siempre conforme a lo dispuesto en los artículos 8 y 9.

@@ -1,0 +1,1 @@
+Artículo 44.—Los congresos nacionales serán convocados por acuerdo del Consejo Directivo o por la Asamblea Nacional, con un año de anticipación a la fecha de celebrarse, para lo cual integrarán una comisión con representación de los sectores que más directamente trabajan con el gobierno municipal.

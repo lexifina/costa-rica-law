@@ -1,0 +1,1 @@
+Artículo 15.—Los acuerdos de la Asamblea Nacional serán tomados por mayoría simple de los votos presentes, salvo en los casos en que estos Estatutos señale una mayoría diferente, o en los casos de reformas estatutarias, asuntos presupuestarios y alteraciones del orden del día que requerirán de las dos terceras partes de los votos presentes.

@@ -1,0 +1,1 @@
+Artículo 27.—Los directores propietarios y suplentes devengarán una dieta igual por cada sesión ordinaria y extraordinaria a que asistan. No se remunerará más de cuatro sesiones al mes. No se pagarán dietas a las sesiones que faltaren justificadas por el Consejo Directivo, ni cuando se presente el directivo quince minutos después de fijada la hora de sesión.

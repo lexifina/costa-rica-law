@@ -1,0 +1,1 @@
+Artículo 14.—El quórum de la Asamblea Nacional será la mitad más uno del total de los delegados. De no haber quórum la Asamblea se celebrará treinta minutos después de la hora fijada, con un mínimo de un veinticinco por ciento (25% ) de los delegados presentes.

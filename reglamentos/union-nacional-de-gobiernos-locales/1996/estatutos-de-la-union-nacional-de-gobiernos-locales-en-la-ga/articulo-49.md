@@ -1,0 +1,1 @@
+Artículo 49.—Las Ligas son miembros activos de la Unión Nacional de Gobiernos Locales, se rigen por sus propios estatutos, gozan de personería jurídica propia. No obstante deben mantener una está relación de comunicación de sus actividades con la Unión Nacional de Gobiernos Locales, ésta a su vez proporcionará el máximo de apoyo a las Ligas en el plano organizativo y funcional.

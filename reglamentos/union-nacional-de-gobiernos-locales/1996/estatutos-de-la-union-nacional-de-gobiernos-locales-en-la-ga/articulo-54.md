@@ -1,0 +1,1 @@
+Artículo 54.—Ambas comisiones estarán integradas por miembros del Consejo Directivo, integrantes de la Asamblea General, y aquellas otras personas que el Consejo Directivo considere necesarias para el buen funcionamiento de éstas. Las comisiones permanentes tendrá un mínimo de cinco miembros y las especiales de tres como mínimo.

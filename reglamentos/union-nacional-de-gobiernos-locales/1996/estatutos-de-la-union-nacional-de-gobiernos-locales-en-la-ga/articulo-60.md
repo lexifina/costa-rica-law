@@ -1,0 +1,1 @@
+Artículo 60.—Las municipalidades miembros autorizan a la Contraloría General de la República, a presupuestar de oficio la cuota anual para la Unión Nacional de Gobiernos Locales, cuando no incluyeran la partida en su presupuesto ordinario correspondiente.

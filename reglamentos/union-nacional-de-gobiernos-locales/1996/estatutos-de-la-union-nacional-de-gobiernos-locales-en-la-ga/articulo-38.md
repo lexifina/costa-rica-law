@@ -1,0 +1,1 @@
+Artículo 38.—La Dirección Ejecutiva está constituida por el Director Ejecutivo, nombrado por el Consejo Directivo, por un período de dos años, pudiendo ser reelecto, no podrá pertenecer o ser miembro del Consejo Directivo.

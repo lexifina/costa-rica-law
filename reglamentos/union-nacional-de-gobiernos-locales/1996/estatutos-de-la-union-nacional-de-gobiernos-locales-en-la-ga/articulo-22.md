@@ -1,0 +1,1 @@
+Artículo 22.—El Consejo Directivo estará integrado por diez directores propietarios y diez suplentes electos por la Asamblea Nacional mediante papeletas que se presenten para optar a ser miembros del Consejo Directivo.

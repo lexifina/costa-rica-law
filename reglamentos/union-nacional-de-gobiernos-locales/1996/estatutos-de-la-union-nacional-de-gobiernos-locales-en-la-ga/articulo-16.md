@@ -1,0 +1,1 @@
+Artículo 16.—La Asamblea Nacional sólo conocerá de los asuntos incluidos en la agenda y de aquellos que ella disponga con una votación favorable no menor de las dos terceras partes de los miembros presentes.

@@ -1,0 +1,1 @@
+Artículo 41.—El Director Ejecutivo, deberá asistir a todas las sesiones del Consejo Directivo, y a la Asamblea General, en ambos casos tendrá derecho a voz, pero no a voto, mientras esté en funciones no podrá ser delegado a la Asamblea General, ni ser electo al Consejo Directivo.

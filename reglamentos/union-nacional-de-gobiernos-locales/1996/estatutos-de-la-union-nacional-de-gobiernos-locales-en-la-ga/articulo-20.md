@@ -1,0 +1,1 @@
+Artículo 20.—Podrá celebrar las sesiones extraordinarias que fueran necesarias, para lo cual serán convocados los Directores propietario y suplentes, con veinticuatro horas de anticipación por el medio más idóneo. En las sesiones extraordinarias sólo podrán conocerse los asuntos a que se refiere la convocatoria salvo que por mayoría se decida conocer otro asunto.

@@ -1,0 +1,1 @@
+Artículo 56.—Es obligación de los miembros dar el aporte correspondiente a que se refiere el inciso a) del artículo 55 y aquellos extraordinarios por acuerdo de la Asamblea Nacional se establezcan y sean que sean ratificados por las respectivas municipalidades.

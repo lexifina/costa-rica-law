@@ -1,0 +1,1 @@
+Artículo 46.—Las conclusiones y recomendaciones de los congresos, serán comunicadas a la Asamblea Nacional, las municipalidades, Ligas de Municipalidades y a los poderes del Estado, por el Consejo Directivo.

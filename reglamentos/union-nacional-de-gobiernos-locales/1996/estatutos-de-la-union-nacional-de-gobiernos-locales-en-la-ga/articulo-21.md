@@ -1,0 +1,1 @@
+Artículo 21.—El Consejo Directivo podrá mediante acuerdo, celebrar sus sesiones en cualquier parte del territorio nacional, por decisión propia o por invitación de Municipalidades, Ligas de Municipalidades o Concejos Municipales de Distrito.

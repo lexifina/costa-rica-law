@@ -1,0 +1,1 @@
+Artículo 31.—Serán atribuciones del primer vicepresidente y del segundo vicepresidente las mismas cuando se encuentren supliendo la ausencia temporal del Presidente, de acuerdo al orden de su nombramiento.

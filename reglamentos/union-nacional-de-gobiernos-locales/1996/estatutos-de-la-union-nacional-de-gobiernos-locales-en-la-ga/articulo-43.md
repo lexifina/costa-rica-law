@@ -1,0 +1,1 @@
+Artículo 43.—En los congresos podrán participar todos los regidores y ejecutivos de las Municipalidades, los miembros de los consejos municipales de distrito, los directores ejecutivos de las Ligas de Municipales, funcionarios municipales y los consultores expertos e invitados especialistas en el campo municipal.

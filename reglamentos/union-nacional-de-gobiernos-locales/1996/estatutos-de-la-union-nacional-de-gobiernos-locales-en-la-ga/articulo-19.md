@@ -1,0 +1,1 @@
+Artículo 19.—El Consejo Directivo, se reunirá en sesión ordinaria dos veces al mes, en la hora y día que de común acuerdo establezcan los directores. Deberá ser publicado en el Diario Oficial "La Gaceta". No podrán celebrarse dos sesiones remuneradas en el mismo día.
