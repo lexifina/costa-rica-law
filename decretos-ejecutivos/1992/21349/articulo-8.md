@@ -1,0 +1,1 @@
+Artículo 8°-Créase la Secretaría Ejecutiva del Consejo Provincial integrada por un Secretario Ejecutivo nombrado por el Consejo. Para el ejercicio de sus funciones, contará con el personal de apoyo que el Consejo le asigne.

@@ -1,0 +1,1 @@
+Artículo 13.-El plan de desarrollo de la Provincia de Heredia será instrumento básico de los planes nacionales de desarrollo. Las instituciones públicas quedan obligadas a tomar en cuenta los planes de desarrollo provincial dentro de su programación de corto, mediano y largo plazos.
