@@ -1,3 +1,0 @@
-CAPITULO VII
-Aguinaldo
-Artículo 24.—Todos los trabajadores del Ministerio, cualquiera que sea la función que desempeñen, tendrán derecho a un aguinaldo anual equivalente a la proporción que la ley otorgue. Para la concesión de este beneficio se acatarán las disposiciones del artículo 49 del Reglamento del Estatuto de Servicio Civil.

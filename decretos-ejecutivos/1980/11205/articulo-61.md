@@ -1,3 +1,0 @@
-Artículo 61.—Todos los servidores del Ministerio podrán disfrutar de licencia ocasional de excepción en las circunstancias que a continuación se indican:
-a) La Dirección Administrativa podrá conceder licencia hasta por una semana con goce de salario en caso de matrimonio del servidor, de fallecimiento de cualesquiera de sus padres, hermanos, cónyuge o hijos; y
-b) Todos los demás permisos con goce de sueldo que conforme a este Reglamento sean procedentes, podrá otorgárselos la Dirección Administrativa, restándolo del período de vacaciones, sin que el número de días de la licencia exceda al .de vacaciones que corresponde al servidor en el momento de otorgarse el permiso.

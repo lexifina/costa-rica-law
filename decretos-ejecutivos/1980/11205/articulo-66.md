@@ -1,1 +1,0 @@
-Artículo 66.—Serán también con goce de salario las licencias concedidas a aquellos servidores que por los cargos que ocupan, sigan cursos o asistan a congresos, etc., dentro O fuera del país, en lo que el Ministerio tenga interés.

@@ -1,1 +1,0 @@
-Artículo 4°—El Director Administrativo por delegación hecha por ésta en la Oficina de Personal, será quien tenga a su cargo todo lo relacionado con la aplicación de este Reglamento, así como también lo concerniente al personal y las relaciones del mismo con la Dirección General de Servicio Civil.
