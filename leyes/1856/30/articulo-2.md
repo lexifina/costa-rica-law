@@ -1,0 +1,1 @@
+Art 2°.- Los sueldos de los Ministros Jueces del Supremo Tribunal de Justicia quedarán arreglados en la tarifa de la manera siguiente: el Regente 1600 pesos anuales: el Fiscal 1425, el Presidente de la 2° sala 1360 y los cuatro Magistrados 1314 pesos cada uno.
