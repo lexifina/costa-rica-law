@@ -1,0 +1,2 @@
+Artículo VIII
+De conformidad con el Acuerdo sobre la FLACSO y el convenio Sede de la FLACSO con el Gobierno de la República de Costa Rica, se les aplicará a los funcionarios de la Sede Académica las disposiciones que estos convenios estipulan en cuanto a inmunidades y privilegios, una vez acreditados por la Secretaría General, de conformidad con el Artículo XII del Acuerdo sobre FLACSO y del VIII al XXV del Convenio sede de la Secretaría General.
