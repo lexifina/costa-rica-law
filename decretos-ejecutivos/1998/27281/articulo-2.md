@@ -1,0 +1,2 @@
+Artículo 2°—Modifiqúese el artículo veinticuatro del Reglamento del Registro Público, Decreto Ejecutivo No 26771-J de 18 de febrero de 1998, para que en adelante se lea:
+"Artículo 24.—Del control administrativo y fiscalización de las asociaciones. El control administrativo y la fiscalización de las asociaciones, será competencia de la Dirección de Personas Jurídicas del Registro Público, de conformidad con lo dispuesto en el Título IV Capítulo I del Reglamento a la Ley de Asociaciones, que es Decreto Ejecutivo No 18670-J de 20 de diciembre de 1988."

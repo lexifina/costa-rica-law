@@ -1,0 +1,1 @@
+Artículo 6°—Los asuntos pendientes de tramitarse con anterioridad a la vigencia de este Decreto se remitirán a la Dirección de Personas Jurídicas del Registro Público. Los asuntos que se encuentren tramitándose continuarán conociéndose en el Departamento de Asociaciones.
