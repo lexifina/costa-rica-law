@@ -1,0 +1,1 @@
+19) Cuando se requiera fotocopia de los expedientes de los diferentes concursos que ejecuta la Oficina de Compras; se deberá presentar solicitud por escrito ante esta oficina. Se procederá a suministrar estas copias de acuerdo al horario de la fotocopiadora pública que se encuentra en la Biblioteca Médica y previa coordinación con la Oficina de Compras.

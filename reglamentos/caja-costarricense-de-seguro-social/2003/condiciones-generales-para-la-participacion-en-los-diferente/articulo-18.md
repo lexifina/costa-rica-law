@@ -1,0 +1,1 @@
+18) En atención al inciso (g) del Artículo 5to, del Reglamento sobre Refrendo de las Contrataciones de la Administración Pública; se deberán aportar las especies fiscales de ley, correspondientes al 0.25% del monto adjudicado (artículo 272 del Código Fiscal). En caso de excepción al pago de estas, se deberá indicar la norma jurídica que exime su presentación.
