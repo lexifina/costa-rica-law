@@ -1,0 +1,3 @@
+Artículo 11º- Para los fines del Artículo anterior, las Partes acuerdan adoptar el régimen de origen establecido en las Resoluciones 82 (III)-83 (III) y 84(III) de la Asociación Latinoamericana de Libre Comercio (ALALC) y actualmente vigentes en la Asociación Latinoamericana de Integración (ALADI), incluidas en el Anexo 2.
+Independientemente de lo dispuesto en el Artículo anterior, las Partes podrán establecer requisitos específicos de origen basados en criterios porcentuales o en otros criterios.
+Cuando cualesquiera de las Partes utilicen en su producción insumos originarios y provenientes de la otra Parte se considerarán como insumos nacionales.

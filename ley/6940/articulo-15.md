@@ -1,0 +1,1 @@
+Artículo 15.- Sin perjuicio de lo establecido en el Artículo anterior, a solicitud de parte y en cualquier momento, las partes podrán realizar, coordinadamente, los ajustes que estimen necesarios para el mejor funcionamiento del presente Acuerdo.
