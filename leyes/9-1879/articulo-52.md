@@ -1,0 +1,1 @@
+Artículo 52.—Los demás documentos surtirán sus efectos, si son legalizados por el Agente Diplomático ó Consular de la República, ó de manera que la comprobación pueda hacerse por el Ministro de Relaciones Exteriores del país de la ejecución.

@@ -1,0 +1,1 @@
+Art. 54.—Las leyes, sentencias, contratos y demás actos jurídicos que hayan tenido origen en país extranjero, solo se observarán en la República, en cuanto, no sean incompatibles con su constitución. política, con las leyes de orden público ó con las buenas costumbres.

@@ -1,0 +1,1 @@
+Art. 15.—No habiendo capitulaciones matrimoniales, la ley del domicilio conyugal regirá los bienes muebles de los cónyuges, sea cual fuere el lugar en que aquellos se hallen, ó en que hayan sido adquiridos.

@@ -1,0 +1,1 @@
+Art. 3°—Los bienes inmuebles existentes en la República, y los muebles que tengan en ella una situación permanente, serán regidos por las leyes nacionales, aunque sus dueños sean extranjeros ó tío residan en el Estado; salvo lo dispuesto en el título de las sucesiones.

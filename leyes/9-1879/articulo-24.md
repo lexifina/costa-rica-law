@@ -1,0 +1,1 @@
+Art. 24.—La sucesión intestada se regirá por la ley nacional del difunto, con las limitaciones contenidas en el artículo 20. A falta de parientes con derecho a la herencia, los bienes existentes en la República, quedarán sujetos á las leyes de ésta.

@@ -1,0 +1,1 @@
+Art. 57.—No es indispensable, para la vigencia! de este Tratado, la aprobación de todas y cada una de sus estipulaciones por todas las naciones signatarias. La que le apruebe, en todo ó en parte, lo comunicará al Gobierno del Perú, para que lo trasmita á las demás naciones contratantes. Este procedimiento hará las veces de canje.

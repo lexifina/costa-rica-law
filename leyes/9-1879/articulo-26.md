@@ -1,0 +1,1 @@
+Art. 26.—También pueden serlo los extranjeros que se hallen en el país, aunque no sean domiciliadas, si esos contratos se hubiesen celebrado con los nacionales, ó con otros extranjeros domiciliados en la República.

@@ -1,0 +1,1 @@
+Art. 31.—Se juzgarán también por las mismas leyes, las excepciones provenientes de hechos que se hayan realizado en la República, así como las acciones rescisorias, resolutorias ó revocatorias que se funden en ellas; pero cuando se trate de probar la existencia de acto Jurídico ocurrido fuera del país, la prueba se arreglará a la ley del lugar donde ese acta, se realizó.

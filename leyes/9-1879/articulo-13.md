@@ -1,0 +1,1 @@
+Art. 13.—Los derechos y deberes personales que el matrimonio produce entre los cónyuges, y entre éstos y sus hijos, serán regidos por la ley del domicilio matrimonial; pero si éste variase, se regirán por las leyes del nuevo domicilio.
