@@ -1,0 +1,15 @@
+# Decreto Ejecutivo 27026
+
+Traspasa Inmuebles de Banco Anglo a Ministerio de Hacienda
+
+- Tipo: Decreto Ejecutivo
+- Número: 27026
+- Fecha: 1998-04-28
+- Publicación: La Gaceta N° 104 del 1998-06-01
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44751&param2=47193&param3=1 (ficha 44751)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1998-06-01 | la propia norma |
