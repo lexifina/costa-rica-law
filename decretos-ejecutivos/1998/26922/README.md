@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Ministerio de Agricultura y Ganadería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-21 | la propia norma |
+| 2 | 2001-11-21 | Decreto Ejecutivo 30036 (2001-11-21) |

@@ -23,3 +23,5 @@ r. Divulgar o hacer público el contenido de informes, documentos confidenciales
 s. Realizar actos, hacer comentarios o publicaciones que puedan desprestigiar al Ministerio o a cualquiera de sus funcionarios perjuicio del deber que les asiste de denunciar, ante quien corresponda, los hechos indebidos o delictuosos de que tengan conocimiento;
 t. Fomentar y mantener tertulias con otros servidores o particulares, en el centro de trabajo y en horas laborales, así como leer periódicos revistas y cualquier otra publicación que no tenga relación con las actividades del Ministerio; y
 u. Omitir, injustificadamente, la cancelación de deudas por concepto de alimentación, hospedaje y transporte, cuando el Ministerio haya reconocido en forma efectiva esos gastos.
+w. La exhibición de material pornográfico en cualquier lugar de la institución, utilizando el equipo de cómputo y/o los servicios de comunicación de la institución, asimismo el uso de equipo electrónico del Estado para observar o reproducir pornografía. El grave que será sancionada según las regulaciones vigentes.
+(Reformado por el Decreto N° 30036 del 21 de noviembre del 2001)

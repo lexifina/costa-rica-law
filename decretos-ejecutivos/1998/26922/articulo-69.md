@@ -1,1 +1,1 @@
-Artículo 69.—Serán consideradas faltas graves, la infracción a las disposiciones de los artículos 6, literales g., J., l., ñ. y o., y 8, literales c., d., e., h., m., n., ñ., o., r. y u. del presente Reglamento.
+Artículo 69.—Serán consideradas faltas graves, la infracción a las disposiciones de los artículos 6, literales g, ,j, 1, ñ y 8, literales c, d, e, h, m, n, ñ, o, r, u, y, w.
