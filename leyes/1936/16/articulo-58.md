@@ -1,3 +1,1 @@
-Artículo 58.- El Consejo fijará y variará cuando lo estime conveniente, las tasas máximas de interés que los bancos comerciales podrán pagar sobre las diferentes clases de depósitos, incluyendo los constituídos en sus Secciones de Ahorros. También podrá el Consejo prohibir a los bancos comerciales el pago de intereses sobre sus depósitos.
-Estas facultades del Consejo pueden ejecutarse en relación con una determinada clase de depósitos, con varias de ellas o con todas en conjunto, y siempre tendrán carácter general obligatorio para todos los bancos comerciales. Todas las resoluciones del Consejo que afecten tales tasas deberán ser puestas inmediatamente en conocimiento del Superintendente de Bancos, para lo de su cargo.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 58.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

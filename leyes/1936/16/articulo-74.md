@@ -1,2 +1,1 @@
-Artículo 74.- La fijación de los tipos de cambio se hará de acuerdo con las instrucciones que el Consejo le haya dado a la Comisión, a las cuales quedan supeditadas las facultades de los miembros de esta última, y con absoluto apego a los compromisos adquiridos al respecto por la Nación en virtud de los convenios y tratados internacionales suscritos por la República. Dentro de esas limitaciones, la Comisión podrá adoptar los métodos que considere convenientes para el mejor desempeño de sus funciones.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 74.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

@@ -1,2 +1,1 @@
-Artículo 71.- Las transacciones en oro, divisas extranjeras y moneda nacional que el Departamento Emisor ejecute, sea por cuenta propia como banco central, sea como agente o depositario del Estado, con instituciones económicas y monetarias de carácter y organización internacional, se ajustarán a las prescripciones de los convenios y tratados internacionales suscritos por la República.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 71.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

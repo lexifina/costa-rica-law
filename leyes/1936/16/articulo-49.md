@@ -1,2 +1,1 @@
-Artículo 49.- Caso de que los bancos comerciales no eligieren sus representantes dentro del plazo señalado, la elección será efectuada por la Junta Directiva General del Banco Nacional, y las personas así designadas servirán el cargo por todo el período legal correspondiente. Si hubiere empate en la elección, decidirá con su voto el Presidente del Consejo, sea que se trate de designación por parte de la Junta, sea que el empate se produjere en la elección hecha por los propios bancos comerciales.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 49.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

@@ -1,2 +1,1 @@
-Artículo 55.- El Departamento Emisor presentará al Superintendente de Bancos, regularmente, un estado de su situación financiera los días ocho, quince, veintitrés y último de cada mes, en la forma que el Superintendente determine. Tales estados serán acompañados de una lista de las tasas oficiales de interés y redescuento que rijan para las diferentes clases de operaciones de crédito que realice el Departamento. Sendos resúmenes de estos estados de situación serán publicados en "La Gaceta."
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 55.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

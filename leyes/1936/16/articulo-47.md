@@ -1,2 +1,1 @@
-Artículo 47.- Los miembros propietarios y suplentes del Consejo, a excepción del Presidente, serán designados por un período de dos años, pudiendo ser reelectos para períodos sucesivos iguales.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 47.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

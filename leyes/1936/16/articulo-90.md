@@ -1,2 +1,1 @@
-Artículo 90.- En caso muy calificados, el Consejo podrán autorizar, por acuerdo unánime y con aprobación de la Junta, la contratación de créditos en el extranjero con bancos centrales, bancos comerciales de primera clase o instituciones económicas y monetarias de organización internacional, para usos determinados del Departamento Emisor, los cuales deberán ser cancelados tan pronto como fuere posible.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 90.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")
