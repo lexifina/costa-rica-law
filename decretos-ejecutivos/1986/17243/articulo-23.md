@@ -1,0 +1,1 @@
+Artículo 23°__ Si el laboratorio fabricante tuviera concesionarios especiales para la exportación y comercialización de sus productos, así debe manifestarse claramente en la solicitud, indicando el nombre y dirección de aquello y presentando adjunto los documentos que demuestren esos extremos.

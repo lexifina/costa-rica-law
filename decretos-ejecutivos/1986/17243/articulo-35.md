@@ -1,0 +1,3 @@
+Artículo 35. __ El Departamento tendrá como elementos de juicio para inscribir un producto, los rejuisitos señalados en los artículos anteriores, asimismo para tal efecto, el Departamento tendrá la facultad de solicitar los documentos científicos pertinentes al interesado, así como a organizaciones nacionales o internacionales que considere necesarias. Si la aplicación de este artículo ocasiona gastos adicionales, los mismos correrán por cuenta del interesado.
+Los productos que por su naturaleza no hayan demostrado fehacientemente su eficacia terapéutica, serán sometidos a estudio del concejo, quien decidirá la aprobación o no del producto.
+Los productos que sean aprobados deberán además cumplir con los requisitos que faltaren para su inscripción.

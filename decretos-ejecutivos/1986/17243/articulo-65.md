@@ -1,0 +1,1 @@
+Artículo 65. __ La actividad de propaganda y promoción de medicamentos que se realiza mediante visitas a médicos, odontólogos y veterinarios, sólo podrá ser hecha por visitadores médicos debidamente acreditados conforme con la Ley y los reglamentos respectivos. El Departamento llevará un registro oficial de tales personas.

@@ -1,0 +1,1 @@
+Artículo 48._El Departamento, tratándose de productos homeopáticos descritos en farmacopeas homeopáticas o textos técnicos de reconocida autoridad, podrán eximir de las pruebas que sean indispensables para la inscripción.

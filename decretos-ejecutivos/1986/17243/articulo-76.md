@@ -1,0 +1,1 @@
+Artículo 76. __ El Departamento procederá a resolver la revocatoria en un término de tres días hábiles siguientes a la presentación y si fuere declarado sin lugar, elevará los autos al conocimiento del superior, quién deberá resolver, en definitiva, el recurso.

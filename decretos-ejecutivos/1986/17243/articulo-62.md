@@ -1,0 +1,1 @@
+Artículo 62. _ La información a que se refiere el artículo anterior, deberá estar redactada en español claramente y escrita con caracteres visibles para facilitar su lectura. No obstante lo anterior el uso simultáneo de otros idiomas.

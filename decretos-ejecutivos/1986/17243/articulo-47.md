@@ -1,0 +1,1 @@
+Artículo 47._ La inscripción de productos homeopáticos se solicitará por escrito de conformidad con lo dispuesto en el Título II de este Reglamento, con excepción de lo establecido en el artículo 29 en cuanto a los 2 g. de sustancia patrón o principios activos.

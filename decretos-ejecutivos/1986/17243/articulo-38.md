@@ -1,0 +1,1 @@
+Artículo 38.__El Departamento podrá entregar los ejemplares no utilizados a instituciones públicas, de asistencia, investigación o docencia o podrán ser utilizados por el propio Ministerio en la atención de sus programas de salud.

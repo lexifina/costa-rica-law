@@ -1,0 +1,1 @@
+Artículo 72.- Podrá ser cancelada temporal o definitivamente la inscripción de un medicamento o cosmético, cuando se incurriere en graves violaciones de las normas que sobre publicidad contiene el presente Reglamento. La cancelación será ordenada por el Departamento después de haber realizado el correspondiente estudio del caso.

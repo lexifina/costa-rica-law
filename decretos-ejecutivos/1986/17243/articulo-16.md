@@ -1,0 +1,1 @@
+Artículo 16°__ El Consejo será presidido por el Ministro o su representante. La Secretaría estará a cargo del Jefe del Departamento. Las demás funciones administrativas propias del Consejo, serán atendidas necesariamente por funcionarios y empleados del mismo Departamento.

@@ -1,0 +1,1 @@
+Artículo 41. _Las casas fabricantes de productos farmacéuticos están obligados a inscribir sus “medicamentos de servicio” necesarios para cubrir las exigencias terapéuticas del país, a la par de los medicamentos de rentabilidad económica.

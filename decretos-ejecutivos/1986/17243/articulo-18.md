@@ -1,0 +1,1 @@
+Artículo 18°__ El Consejo aprobará o improbará las inscripciones de los productos en su sesión ordinaria y ratificará los acuerdos en la siguiente sesión, lo que constará en el acta respectiva. No se asentarán las deliberaciones a menos que uno de los miembros expresamente así lo pida en un caso particular para razonar su voto.

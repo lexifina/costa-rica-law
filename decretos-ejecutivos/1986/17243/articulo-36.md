@@ -1,0 +1,1 @@
+Artículo 36. __Las resoluciones del Departamento tendrá los recursos de revocatoria y apelación para ante el Ministro. El trámite de estos recursos, como las notificaciones se regirán por lo dispuesto en el título VI de este Reglamento y en los artículos 51 y 52 de la Ley Orgánica del Ministerio.

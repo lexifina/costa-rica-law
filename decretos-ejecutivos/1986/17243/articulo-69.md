@@ -1,0 +1,1 @@
+Artículo 69. __ Es prohibido atribuir propiedades terapéuticas a los alimentos no adicionados con sustancias medicinales. En cuanto a los que sí están adicionados con tales sustancias, se procederá de acuerdo con las regulaciones referentes a medicamentos.

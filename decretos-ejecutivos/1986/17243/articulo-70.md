@@ -1,0 +1,1 @@
+Artículo 70. __ La fiscalización y el control de la propaganda de los productos será de competencia del Departamento el que deber revisar y aprobar e improbar de los textos antes de ser éstos enviados para su publicación en los diversos medios de comunicación colectiva del país.

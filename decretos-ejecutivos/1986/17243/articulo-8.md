@@ -1,0 +1,1 @@
+Artículo 8°__Las etiquetas, la información médica y demás documentos que acompañan el producto que se pretende inscribir, deberán estar redactados obligatoriamente en español, sin embargo, se permite el uso simultáneo de otros idiomas.

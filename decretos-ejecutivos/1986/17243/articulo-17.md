@@ -1,0 +1,1 @@
+Artículo 17°__Se fija el quórum del Consejo en un mínimo de cuatro miembros. Las resoluciones se tomarán por mayoría absoluta. Si no se produjera ésta, el caso se votará en sesión siguiente. Si nuevamente no hubiere, el Presidente dirimirá la cuestión haciendo uso de doble voto.

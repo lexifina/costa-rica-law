@@ -1,0 +1,1 @@
+Artículo 77. __ Si el Ministro confirma en todo o en parte la resolución apelada, se dará cuenta al Departamento para que continúe el procedimiento partiendo del estado en que se encuentre el asunto en este momento. Si fuere rechazado el recurso, se avisará en igual forma para que se rectifiquen los procedimientos, en forma tal que se ajusten a la determinación del superior.

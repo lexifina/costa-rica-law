@@ -1,0 +1,1 @@
+Artículo 29.__ Se requirirá, a juicio del Departamento, la entrega de tantos ejemplares como sean necesarios para realizar los análisis químicos, y microbiológicos. Además dos gramos de sustancia-patrón o principios activos y de cepas en casos específicos, si el Departamento lo requiere.

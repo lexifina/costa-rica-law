@@ -1,0 +1,1 @@
+Artículo 79. ___ Las resoluciones del Departamento serán notificadas con copia de lo resuelto a las partes que hubieren señalado casa u oficina para recibir notificaciones y las mismas se harán conforme a la ley.

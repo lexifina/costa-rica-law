@@ -1,0 +1,1 @@
+Artículo 31. __ Toda modificación cuali-cuantitativa, en el volumen, posología de una farméutica, así como en los envases o en las rotulaciones de un producto ya inscrito, requerirá la aprobación del Departamento.

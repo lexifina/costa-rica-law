@@ -1,0 +1,1 @@
+Artículo 3°__ El Registro es la Sección del Departamento encargado de hacer la inscripción y registro de los laboratorios fabricantes, nacionales y de extranjeros. También hará el registro de los medicamentos para uso humano y veterinario, cosméticos, plaguicidas domésticos y productos de higiene domésticos.

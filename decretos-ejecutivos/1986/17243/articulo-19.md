@@ -1,0 +1,1 @@
+Artículo 19°__Cuando lo estime conveniente, el Consejo podrá invitar o solicitar a organismos nacionales o internacionales y de la industria nacional o extranjera, la opinión y colaboración sobre una situación específica.

@@ -1,0 +1,1 @@
+Artículo 33. __ Cuando un producto se presente de diferentes formas farmacéuticas: cápsulas, tabletas, supositorios, etc. o en diferentes concentraciones, se requerirá una inscripción separada para cada una de esas variantes.

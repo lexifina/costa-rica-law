@@ -1,0 +1,2 @@
+Artículo 71.- Como consecuencia del artículo anterior, toda la interpretación y calificación de los textos de publicidad, queda a cargo del Departamento.
+Igualmente, el Departamento queda autorizado para ordenar la suspensión de la publicidad o propaganda que a juicio no se ajuste a los términos de este Reglamento, en todos los medios de comunicación colectiva. Para tales efectos, su fuere necesario, podrá requerir el auxilio de la fuerza pública.

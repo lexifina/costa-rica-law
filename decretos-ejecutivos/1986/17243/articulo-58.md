@@ -1,0 +1,1 @@
+Artículo 58. __ En caso de urgencia o necesidad pública, el Departamento podrá autorizar y ordenar la importación y el desalmacenaje de medicamentos no registrados, igualmente el Departamento podrá autorizar en cada caso, la importación de medicamentos no registrados o en trámite de registro, para fines de investigación, previa autorización escrita del señor Ministro.

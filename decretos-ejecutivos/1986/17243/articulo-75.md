@@ -1,0 +1,1 @@
+Artículo 75. __ Los recursos deberán presentarse en escritos formales ante el Departamento, la firma del recurrente deberá ser autenticada por un abogado a menos que la presentacnón la haga personalmente el firmante.
