@@ -14,3 +14,4 @@ Reglamento Autónomo de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-12-14 | la propia norma |
+| 2 | 1995-10-02 | Reglamento 78 (1995-10-02) |
