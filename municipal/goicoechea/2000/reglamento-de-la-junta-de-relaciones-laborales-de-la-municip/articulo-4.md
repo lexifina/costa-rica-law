@@ -1,0 +1,9 @@
+CAPÍTULO III
+De las funciones
+Artículo 4º—Son funciones propias de la Junta de Relaciones Laborales, además de las señaladas en el artículo 9 de la Convención Colectiva de Trabajo; las siguientes:
+A. Intervenir conciliatoriamente en aquellos diferendos de carácter individual o colectivo que se generen entre la Administración Municipal, trabajadores y sus organizaciones.
+B. Conocer en toda denuncia que se haga de su conocimiento por cualquiera de las partes señaladas en el artículo 2, y/o trabajadores, en forma directa.
+C. Conocer de toda infracción a las leyes de trabajo y conexas, Código Municipal o Convención Colectiva de Trabajo Vigente y que pueda dar lugar a la alteración de las relaciones de armonía existentes entre la administración, sus servidores y las organizaciones sindicales. Para el caso de lo señalado en el numeral 2, toda denuncia deberá ser presentada por escrito, ante la Secretaría de la Junta.
+D. Recomendar o denegar en forma razonada todo asunto que le sea sometido directamente por el Despacho del Alcalde o a través del Departamento de Recursos Humanos, por los trabajadores o por la organización sindical existente dentro de la Municipalidad de Goicoechea.
+E. Pronunciarse en forma razonada sobre los propósitos de despido o suspensión sin goce de salario, que obligatoriamente le serán hechos de su conocimiento por el Despacho del Alcalde a través de la Dirección de Recursos Humanos, observando para el caso lo señalado en los artículos del Código Municipal, lo mismo que el procedimiento señalado en el artículo 9 inciso d) de la Convención Colectiva de Trabajo, de las deliberaciones que se realicen se levantará un acta que debe ser firmada en el acto por las partes.
+F. Hacer al Despacho del Alcalde y/o trabajador, las recomendaciones pertinentes en los asuntos que a éstos les atañen.

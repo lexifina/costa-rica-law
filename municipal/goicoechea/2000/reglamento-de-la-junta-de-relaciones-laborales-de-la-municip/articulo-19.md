@@ -1,0 +1,1 @@
+Artículo 19.—El secretario levantará en cada sesión un acta, que será asentada en el libro que para el efecto esté autorizado por la secretaría municipal. Al evacuar la prueba testimonial será firmado por los miembros presentes, incluyendo el deponente; con copia del acta para el expediente personal.

@@ -1,0 +1,1 @@
+Artículo 14.—La Junta de Relaciones Laborales deberá pronunciarse en un plazo no mayor de 20 días a partir del día siguiente de recibido el oficio de traslado del Alcalde o la parte que haya solicitado la intervención en caso de que no sea despido o suspensión sin goce de salario.

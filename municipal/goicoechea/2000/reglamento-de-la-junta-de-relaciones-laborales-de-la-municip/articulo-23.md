@@ -1,0 +1,1 @@
+Artículo 23.—No obstante lo señalado en el artículo anterior, todas las acciones verán interrumpida la prescripción a partir del momento en que se sometan a conocimiento de la Junta de Relaciones Laborales; para cuyos efectos se considera como notificación y por ende interrumpe la prescripción, la comunicación que en forma oficial haga el Alcalde Municipal.

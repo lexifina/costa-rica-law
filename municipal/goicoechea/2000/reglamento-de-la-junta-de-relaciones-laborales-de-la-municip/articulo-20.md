@@ -1,0 +1,1 @@
+Artículo 20.—La secretaría preparará y entregará a cada miembro propietario y suplente de la Junta de Relaciones Laborales, en un plazo de tres días posteriores a la sesión anterior, copia del acta levantada.
