@@ -1,2 +1,0 @@
-Artículo 22.—Se prohíbe la pesca por tiempo indefinido en los ríos:
-Sarapiquí, entre la confluencia del Río Peje hasta la unión con el Puerto Viejo Puerto Viejo, entre la confluencia del Río Sábalo Esquina hasta la unión con el Sarapiquí.

@@ -1,1 +1,0 @@
-Artículo 25.—Se prohíbe por tiempo indefinido, la caza o captura de las especies que no aparezcan contempladas en las listas de especies autorizadas para la caza en los artículos 4º, 6º, 14 y 15 de este Decreto.
