@@ -1,0 +1,3 @@
+Artículo 3º.- Modifícase el artículo 1º del Decreto Ejecutivo
+Nº 24068-H publicado en "La Gaceta" Nº45 del 3 de marzo de 1995,
+en la forma que se indica a continuación: ...
