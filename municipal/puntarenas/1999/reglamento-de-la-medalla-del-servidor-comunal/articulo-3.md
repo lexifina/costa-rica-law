@@ -1,0 +1,1 @@
+Artículo 3°-Término para dictaminar. La Comisión dictaminará en un término no mayor de un mes, la misma dará un informe a los regidores en forma escrita, sin revelar los nombres de quienes presenten el o los informes.
