@@ -1,0 +1,1 @@
+Artículo 3°.-Tales tierras serán divididas para su adjudicación en lotes no mayores de cien hectáreas, y los adjudicatarios de los lotes tendrán derecho á que por cada hectárea cultivada de modo formal y estable, se cancele el precio del lote en cuanto á la hectárea cultiva da y dos más.
