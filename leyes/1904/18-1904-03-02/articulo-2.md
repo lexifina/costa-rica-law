@@ -1,0 +1,4 @@
+Artículo 2° Los expendedores de aguardiente establecidos en el cantón central de Liberia deberán comprar su provisión para el expendió, directamente en la Administración de Licores, del Tempisque, y para la debida fiscalización de su negocio, y llevarán un libro en que el Administrador Fiscal anotará bajo su firma las compras que ellos vayan haciendo.- Los referidos expendedores que no hagan su provisión en la forma antes indicada, incurrirán en las penas del contrabando, su licor será considerado como depósito de ilícita procedencia y su negocio como expendio de licores de fabricación clandestina.
+Al Poder Ejecutivo
+Dado en el Salón de Sesiones del Palacio Nacional, San José, a los dos días del mes de marzo de mil novecientos cuatro.
+San José, a los dos días del mes de marzo de mil novecientos cuatro.
