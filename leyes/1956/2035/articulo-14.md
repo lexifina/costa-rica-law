@@ -1,5 +1,5 @@
-CAPITULO III
-La Junta Directiva
-Artículo 14.- El Consejo funcionará bajo la dirección general de una Junta Directiva, integrada por cinco miembros, de la siguiente manera:
-a) Por un Ministro de Estado, y
-b) Por cuatro personas de reconocida experiencia en actividades agrícolas o económicas y con amplios conocimientos de los problemas relativos a la producción nacional, que serán de elección del Consejo de Gobierno.
+Artículo 14.- Los excedentes netos anuales del Consejo se distribuirán de la siguiente manera:
+a) El 30% para constituir una reserva destinada a cubrir las pérdidas que pudiere sufrir en su función de estabilización de precios. Cuando la reserva señalada en este inciso, alcanzare a una suma igual a la mitad del capital de la Institución, el correspondiente porcentaje de los excedentes netos de cada período podrá aplicarlo a la Junta Directiva a aumentar las reservas señaladas en los incisos b) y c) de este artículo;
+b) Hasta un 60% destinada a una reserva para invertir en instalaciones, terrenos, edificios, maquinaria o cualesquiera otros bienes o derechos similares de condición fija, así como también para las inversiones a que se refiere el inciso q) del artículo 5º; y
+c) El 10% para la reserva correspondiente al mantenimiento de un fondo de garantía y jubilaciones de los empleados del Consejo, no pudiendo este aporte anual exceder del 10% del total de los sueldos pagados durante el período respectivo.
+Sin embargo, a partir del ejercicio anual 1960, 1961, cuando no hubiere excedentes o el 10% de éstos no alcanzare a un 5% del total de los sueldos a que se ha hecho referencia, el Consejo de sus propios recursos aportará o completará, según el caso, una suma equivalente al mencionado 5%. Las sumas correspondientes a este fondo de garantía y jubilaciones pertenecen a los empleados en la proporción correspondiente a sus sueldos y deben serles entregadas bajo las condiciones que el Reglamento de Jubilaciones determine, si dejaren el servicio antes de haber alcanzado el derecho a una pensión de vejez. Cualquier remanente que quedará en la distribución de los excedentes netos anuales se abonará a cuenta de superávit de resultados.

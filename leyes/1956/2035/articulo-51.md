@@ -1,2 +1,1 @@
-Artículo 51.-El monto total de los créditos a cargo directo del Consejo Nacional de Producción no podrá exceder del triple de su capital y reserva.
-(Así reformado por el artículo 1° de la ley N° 3490 del 23 de enero de 1965)
+Artículo 51.- La Fábrica dirigirá su producción procurando darle una mayor importancia a la elaboración de productos de menor contenido alcohólico y de mínima toxicidad y conducirá su propaganda dando preferencia a los productos a que se refiere este artículo.

@@ -1,0 +1,1 @@
+TRANSITORIO III.- El programa necesario para impulsar la industrialización y ampliar la distribución de carne y sus derivados, a que se refieren los artículos 48 y 49, deberá darse a conocer al país dentro de los seis meses siguientes a la entrada en vigencia de esta ley.

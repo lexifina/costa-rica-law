@@ -1,1 +1,1 @@
-Artículo 46.- El Consejo podrá adquirir hasta el 30% de las acciones de sociedades cooperativas, siempre que se determine previamente que la operación de tales sociedades pudiere contribuir al buen éxito de un plan aprobado por el Consejo.
+Artículo 46.- El Consejo podrá contraer directamente obligaciones crediticias a largo, mediano y corto plazo, para ampliación, mejora o acondicionamiento de sus instalaciones o para el desempeño de sus diferentes actividades. Estas operaciones podrán garantizarse con hipoteca, con prenda, o con las rentas de la institución.

@@ -1,1 +1,2 @@
-Artículo 23.- Los miembros de la Junta no podrán participar en actividades político-electorales, salvo con la emisión de su voto o en las que sean obligatorias por ley. Esta prohibición será aplicable a los Gerentes, Auditores y aquellos otros funcionarios y empleados que determine la Junta Directiva.
+Artículo 23.- Los miembros de la Junta Directiva, Gerente, Subgerente, Auditor y Subauditor, no podrán participar en actividades político-electorales, salvo la emisión de su voto o las que sean obligatorias por ley.
+Esta prohibición será aplicable a los otros funcionarios y empleados del Consejo con poder de decisión, a partir de su inicio de funciones, según lo determine la Junta Directiva en un plazo no mayor de noventa días.

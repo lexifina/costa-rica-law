@@ -1,1 +1,1 @@
-Artículo 41.- El Consejo publicará en el Diario Oficial, dentro de los primeros sesenta días hábiles de su ejercicio financiero, un balance de su situación económica que comprenderá el estado de su activo, pasivo y patrimonio, con un detallado informe sobre la formación y aplicación de sus reservas.
+Artículo 41.- Los balances y estados del Consejo deberán ser firmados por el jefe de la contabilidad y el Gerente General, y refrendados por el Auditor del Consejo, y todos ellos serán solidariamente responsables de la exactitud y corrección de esos documentos.

@@ -1,3 +1,1 @@
-CAPITULO II
-Capital, Reservas y Excedentes
-Artículo 9º.- El capital inicial será el que tenga, al entrar en vigencia esta ley, el Consejo Nacional de Producción, de conformidad con los artículos 10 y 59 de la presente ley.
+Artículo 9º.- Los entes públicos están obligados a proveerse del Consejo todo tipo de suministros genéricos propios del tráfico de éste, a los precios establecidos. A tal efecto, quedan facultados dichos entes para contratar directamente esos suministros con el Consejo.

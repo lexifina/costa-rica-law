@@ -1,12 +1,11 @@
-Artículo 36.- Con el fin de verificar el cumplimiento debido de las leyes y disposiciones vigentes y de los procedimientos prescritos, el Auditor, y en su defecto el Subauditor, tendrá las siguientes funciones:
-1) Verificar que se les dé debido cumplimiento a las leyes, reglamentos y demás preceptos legales que afecten al Consejo;
-2) Verificar, cuando lo considere necesario, el cumplimiento de los procedimientos establecidos para ejecutar, fiel y oportunamente, las resoluciones y acuerdos de la Junta;
-3) Verificar los informes de contabilidad, cuando menos una vez al año y los de estadística, que prepare el Consejo, y certificarlos o refrendarlos cuando los encontrare correctos;
-4) Formular las recomendaciones que estime adecuadas en cuanto a todos los sistemas y procedimientos contables que han de usarse en el Consejo y conocer y aprobar los que sobre contabilidad y su terminología proponga la Gerencia, requisito sin el cual no podrán implantarse estos últimos;
-5) Conocer de todas las reclamaciones, ya sean activas o pasivas, en que intervenga el Consejo;
-6) Además de las otras actividades que realice la Auditoría, tendrá específicamente las siguientes:
-a) Fiscalizar la ejecución y liquidación de los presupuestos del Consejo;
-b) Refrendar todas las órdenes de compra y cheques, excepto los que emitan los agentes de compra, en adquisición de bienes de tráfico ordinario y los que emitan, con autorización especial de la Junta, otras dependencias del Consejo. Además, refrendará toda operación contractual que, en general, afecte el patrimonio del Consejo;
-c) Refrendar las certificaciones y constancias expedidas por el Consejo;
-7) Practicar las diligencias que le encomiende la Junta; y
-8) Presentar anualmente a la Junta un informe de sus actividades del período.
+Artículo 36.- Además de las que le fije la Junta Directiva, el Auditor, así como los subauditores en sus ausencias, tendrán las siguientes funciones:
+a) Verificar el debido cumplimiento de las leyes, reglamentos y demás preceptos relativos al Consejo, así como velar por su actualización;
+b) Verificar, cuando lo considere necesario, o cuando lo disponga la Junta Directiva, el cumplimiento de los procedimientos establecidos para ejecutar, fiel y oportunamente, los acuerdos de la Junta;
+c) Verificar los informes de contabilidad y los estados financieros cuando menos una vez al mes o con la frecuencia que disponga la Junta Directiva, con el objeto de refrendarlos y certificarlos si los encontrare correctos;
+d) Formular las recomendaciones que estime adecuadas en cuanto a los sistemas y procedimientos contables que han de usarse en el Consejo, que no podrá implantarse sin su aprobación;
+e) Conocer las reclamaciones, activas o pasivas, en que intervenga el Consejo;
+f) Fiscalizar la ejecución y liquidación de los presupuestos, por lo menos dos veces al año o cuando así lo disponga la Junta Directiva;
+g) Refrendar las órdenes de compra y cheques, excepto los que emitan los agentes de compra en adquisición de bienes en tráfico ordinario y los que emitan, con autorización especial de la Junta, otras dependencias del Consejo. Además, refrendará toda operación contractual que, en general, afecte el patrimonio del Consejo;
+h) Practicar o ejecutar las diligencias que le encomiende la Junta Directiva;
+i) Presentar anualmente a la Junta Directiva un informe de las actividades de la Auditoría durante el período fiscal correspondiente o durante cualquier otro período que ella indique; y
+j) Refrendar las certificaciones o constancias expedidas por el Consejo.
