@@ -1,4 +1,7 @@
-ARTICULO 2.- Los Protocolos adicionales al Tratado que por esta
-Ley se aprueba, que impliquen exoneración de gravámenes arancelarios,
-deberán ser aprobados por la Asamblea Legislativa, al igual que la
-solución de diferendos cuando ello fuera necesario.
+ARTICULO II
+Las Partes Contratantes convienen en otorgarse tratamientos
+preferenciales sobre los productos originarios de las mismas en las
+condiciones que se estipularán en Protocolos Adicionales al Presente
+Convenio, los cuales contendrán asimismo normas referentes al régimen de
+origen, cláusulas de salvaguardia, retiro de preferencias y otras que ambas
+Partes convengan de mutuo acuerdo.
