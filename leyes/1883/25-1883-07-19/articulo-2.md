@@ -1,0 +1,1 @@
+Art. 2°. - La alborada de este día se saludará con dianas que ejecutarán las bandas militares del ejército de la República, y con salvas de artillería en todas las capitales de provincia; y á las ocho de la noche se ejecutará frente al Palacio Presidencial, por la banda marcial, una retreta que corresponda á la solemnidad de esta fiesta.
