@@ -14,3 +14,4 @@ Procedimiento para la Atención de Denuncias relacionadas con el Bono Familiar p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-31 | la propia norma |
+| 2 | 2000-08-31 | Ley 8 |
