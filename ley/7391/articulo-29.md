@@ -1,0 +1,1 @@
+Artículo 29.- El auditor tendrá acceso a todos los libros, registros, cuentas, documentos y a la contabilidad en general de la cooperativa. Los responsables de la custodia de tales bienes deberán facilitarlos para su examen, en el momento en que sean solicitados.

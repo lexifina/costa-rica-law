@@ -1,0 +1,1 @@
+Artículo 10.- Los estatutos de estas cooperativas y sus modificaciones deberán someterse a la aprobación de la Auditoría General, antes de su entrada en vigencia, con el propósito de determinar si satisfacen los requisitos legales. La Auditoría General deberá aprobar o improbar estas modificaciones, dentro del mes siguiente a su recibo.

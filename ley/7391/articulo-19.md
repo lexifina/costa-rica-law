@@ -1,0 +1,1 @@
+Artículo 19.- Las operaciones de crédito que la cooperativa efectúe con los miembros del consejo de administración, los comités, los gerentes y los subgerentes, se regularán por las disposiciones especiales que deberá contener su estatuto, las cuales deberán notificarse a la Auditoría General.
