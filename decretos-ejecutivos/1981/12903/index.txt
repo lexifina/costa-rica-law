@@ -1,11 +1,1 @@
-articulo-2.md
-articulo-5.md
-articulo-7.md
-articulo-13.md
-articulo-22.md
-articulo-26.md
-articulo-27.md
-articulo-32.md
-articulo-42.md
-articulo-45.md
-articulo-47.md
+articulo-1.md
