@@ -1,0 +1,1 @@
+Artículo 23.—Toda modificación al presente Reglamento es potestad exclusiva de la Procuraduría General y para su aplicación deberá obtenerse la aprobación de la Contraloría General de la República y publicarse en el Diario Oficial.

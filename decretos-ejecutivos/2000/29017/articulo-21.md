@@ -1,0 +1,1 @@
+Artículo 21.—La Unidad de Presupuesto revisará periódicamente las pólizas que cubren dichos vehículos y la aplicación de las disposiciones del presente Reglamento, en la ejecución o funcionamiento del sistema y los contratos respectivos.

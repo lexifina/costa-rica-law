@@ -1,0 +1,1 @@
+Artículo 4°—La posibilidad de arrendar su vehículo y percibír remuneración por pago de kilometraje, está vedada para el Procurador General y el Procurador General Adjunto, quienes por su condición y para estos efectos, están excluidos de la posibilidad de aplicación de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 19.—El propietario deberá dar preferencia a las necesidades de la Procuraduría General y cuando los requerimientos de ésta indiquen que en una misma gira debe transportarse otros servidores, que no excedan en número el cupo autorizado del vehículo, el propietario deberá transportar bajo los términos del contrato.
