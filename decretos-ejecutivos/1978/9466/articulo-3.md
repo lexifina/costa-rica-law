@@ -1,0 +1,1 @@
+Artículo 3°-EI Ministro de Hacienda, en base a las recomendaciones de la Comisión de Recursos Humanos, enviará a la Dirección General de Servicio Civil las Acciones de Personal, Pedimentos de Personal y Solicitudes de Asignación de Puestos que considere procedentes para la correspondiente tramitación.
