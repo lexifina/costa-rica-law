@@ -1,0 +1,1 @@
+Artículo 12.-La Placa de Gran Oficial corresponderá a miembros de otros poderes del estado, enviados extraordinarios y ministros plenipotenciarios, arzobispos y obispos, viceministros y otros funcionarios de categorías equivalentes a las anteriores.

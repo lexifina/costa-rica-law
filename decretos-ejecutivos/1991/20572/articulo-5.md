@@ -1,0 +1,1 @@
+Artículo 5°.-El Consejo de la Orden se reunirá ordinariamente cada cuatro meses y extraordinariamente cuando será convocado por su Presidente o lo solicite alguno de sus miembros. Para que haya quórum deberán estar presentes al menos tres de ellos. Las votaciones se tomarán por mayoría, y en caso de empate corresponderá voto doble al Presidente del Consejo.

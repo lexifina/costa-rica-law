@@ -1,0 +1,1 @@
+Artículo 23.-La adquisición de la nacionalidad costarricense supone la renuncia a la Orden. En tal caso, el miembro de la Orden deberá devolver su diploma e insignias al Consejo, y ‚este recomendar al Poder Ejecutivo la emisión del decreto de admisión de la renuncia.

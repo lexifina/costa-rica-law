@@ -1,0 +1,1 @@
+Artículo 4°.-Será Presidente de la Orden y de su Consejo el Presidente de la República, Canciller el Ministro de Relaciones Exteriores y Culto, y Secretario el Director General de Protocolo y Ceremonial del Estado.

@@ -1,0 +1,1 @@
+Artículo 7°.-Las propuestas para otorgar la Orden solo podrán ser presentadas al Consejo por sus miembros, los jefes de las misiones diplomáticas de Costa Rica, los presidentes de los poderes del Estado y los ministros de Gobierno.

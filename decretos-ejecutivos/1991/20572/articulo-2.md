@@ -1,0 +1,1 @@
+Artículo 2°.-La Orden se concederá mediante decreto del Presidente de la República y el Ministro de Relaciones Exteriores y Culto, previa recomendación del Consejo establecido en los presentes estatutos. El Ministro de Relaciones Exteriores y Culto tendrá a su cargo la expedición del diploma y la insignia correspondientes.

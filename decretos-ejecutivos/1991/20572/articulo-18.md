@@ -1,0 +1,1 @@
+Artículo 18.-Los diplomáticos extranjeros que terminen su misión en la República y hubieren desempeñado sus funciones en Costa Rica de modo honroso y distinguido por más de dos años, deberán ser considerados preferentemente por el Consejo para recibir la Orden en la categoría que les corresponde.

@@ -1,0 +1,1 @@
+Artículo 11.-La Gran Cruz Placa de Plata corresponder á a jefes de gobierno, presidentes de poderes del estado, cardenales, principales de casas soberanas, ministros de estado, embajadores extraordinarios y plenipotenciarios y otros funcionarios de categorías equivalentes a las anteriores.

@@ -1,0 +1,1 @@
+Artículo 8°.-Las propuestas deberán contener los datos biográficos del postulado, exponer los servicios que haya prestado y las razones que justifiquen el otorgamiento de la Orden, e indicar, en lo posible, otras condecoraciones o dignidades que le hayan sido otorgadas, con mención del grado.

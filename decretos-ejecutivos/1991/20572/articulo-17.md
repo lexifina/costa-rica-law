@@ -1,0 +1,1 @@
+Artículo 17.-El otorgamiento de la Orden se hará preferentemente, a juicio del Consejo, durante las visitas a Costa Rica de jefes de estado o ministros de Relaciones Exteriores, o en ocasión de las visitas del Presidente de la República o el Ministro Relaciones Exteriores y Culto a otros países. Sin embargo, el Consejo podrá recomendar la concesión en cualquier otra oportunidad.
