@@ -1,0 +1,2 @@
+ARTÍCULO 2°. -Dichas monedas llevarán grabadas en el anverso las armas de la República, con la leyenda "REPUBLICA DE COSTA-RICA" y la fecha del año de la acusación; y en el reverso, en el centro, el valor de la moneda, y en derredor la leyenda "AMERICA CENTRAL", ley de la moneda‚ iniciales del nombre y apellido del ensayador.
+Dado en San José, en el Palacio Presidencial á los ocho días del mes de marzo de mil ochocientos ochenta. –T. GUARDIA. – El secretario de Estado en el Despacho de Hacienda y Comercio. –SALVADOR LARA.
