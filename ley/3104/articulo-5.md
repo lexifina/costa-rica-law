@@ -1,0 +1,1 @@
+Artículo 5°—El Poder Ejecutivo deberá incluir en sus Presupuestos Ordinarios o Extraordinarios las sumas en colones necesarias para hacer frente a la amortización e intereses del préstamo, así como a los gastos relacionados con el mismo, en los años en que corresponda hacer los pagos.
