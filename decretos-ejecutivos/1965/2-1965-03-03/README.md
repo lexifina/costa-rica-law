@@ -20,3 +20,4 @@ Reglamento General Establecimientos Oficiales de Educación Media
 | 5 | 1969-03-20 | Decreto Ejecutivo 11 (1969-03-20) |
 | 6 | 1970-02-14 | Decreto Ejecutivo 20 (1970-02-14) |
 | 7 | 1970-02-16 | Decreto Ejecutivo 17 (1970-02-16) |
+| 8 | 1970-03-20 | Decreto Ejecutivo 29 (1970-03-20) |
