@@ -1,0 +1,1 @@
+Artículo 9°- La Educación Tecnológica se ofrecerá mediante la organización y realización de diversos talleres, de los cuales el alumno deberá aprobar tres en el III Ciclo de la Educación General Básica, y dos en la Educación Diversificada, a los efectos de cumplir con el respectivo Plan de Estudios.

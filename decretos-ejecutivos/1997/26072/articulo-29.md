@@ -1,0 +1,1 @@
+Artículo 29.-Cuando mediare inopia para cumplir con las condiciones que fija el artículo anterior, los postulantes podrán realizar las pruebas en otras instituciones homólogas y los resultados se acreditarán en la instilación de procedencia.

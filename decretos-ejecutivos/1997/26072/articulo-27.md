@@ -1,0 +1,1 @@
+Artículo 27.--Las pruebas por suficiencia tendrán carácter nacional. Serán preparadas por los Asesores Nacionales en Evaluación , de común acuerdo con los Asesores Nacionales de la respectiva disciplina o asignatura. Serán comprensivas del respectivo programa.

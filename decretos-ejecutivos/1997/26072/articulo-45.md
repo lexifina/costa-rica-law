@@ -1,0 +1,1 @@
+Articulo 45.-La nota de presentación de los postulantes, para efectos del Bachillerato en Educación Media, se obtendrá como el promedio de las calificaciones obtenidas en la totalidad de cursos equivalentes al décimo año y del primer período del undécimo.

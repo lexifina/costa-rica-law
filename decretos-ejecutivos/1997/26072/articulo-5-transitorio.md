@@ -1,0 +1,1 @@
+V.-Durante el primer pe1iodo de 1997 no se realizarán pruebas por suficiencia. No obstante, los interesados que hubieren fom1alizado su petición, pueden optar por el sistema de tutorías para la aprobación del curso o cursos que pretendían aprobar por suficiencia,

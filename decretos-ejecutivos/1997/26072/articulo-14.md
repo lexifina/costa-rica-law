@@ -1,0 +1,1 @@
+Artículo 14.--Para ingresar a la Educación Técnica Nocturna el interesado deberá demostrar haber concluido o aprobado la Educación Diversificada, sea por el sistema formal regular o por los sistemas de educación abierta.

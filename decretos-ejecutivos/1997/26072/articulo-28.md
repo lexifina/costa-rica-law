@@ -1,0 +1,1 @@
+Artículo 28.-Las pruebas por suficiencia serán aplicadas y calificadas en la respectiva institución educativa, cuando ésta contare en su personal con no menos de tres profesores con grado de licenciatura en la especialidad.
