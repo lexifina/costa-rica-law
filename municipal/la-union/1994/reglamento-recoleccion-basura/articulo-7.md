@@ -1,0 +1,1 @@
+Artículo 7°—Se prohíbe la recolección de cualquier desecho que en una u otra forma atente contra la integridad física de los funcionarios en esta actividad y aquellos que puedan causar algún desperfecto a las unidades recolectoras.

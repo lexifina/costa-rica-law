@@ -1,0 +1,1 @@
+Artículo 6°—La negativa de la firma del contrato por parte de los usuarios del servicio indicado en el artículo 5 de este Reglamento, exime a la Municipalidad prestación del servicio de acuerdo con la Ley General de Salud, No 5395 del 30 de octubre de 1973, artículo 287. En tal caso la Municipalidad comunicará al Ministerio de Salud la situación presentada para lo que proceda.

@@ -1,0 +1,1 @@
+Artículo 4°—Se limitará la recolección de desechos sólidos a un máximo de 0.78689 m3 (1 estañón de 55 galones ), cada día que los recolectores en su ruta normal pasen por los respectivos frentes de su propiedad.
