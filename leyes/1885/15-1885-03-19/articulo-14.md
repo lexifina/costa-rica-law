@@ -1,0 +1,1 @@
+Art. 14.—Las blusas y las levitas serán de una sóla botonadura y cuello recto. Las levitas de los Generales serán de dos botonaduras, cerradas hasta arriba, y cuello volteado. Las bordaduras de los uniformes de General figurarán ramas de laurel y olivo entretejidas.
