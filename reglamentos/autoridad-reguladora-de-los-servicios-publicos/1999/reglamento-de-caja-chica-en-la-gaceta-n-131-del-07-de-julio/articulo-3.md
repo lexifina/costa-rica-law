@@ -1,0 +1,2 @@
+Artículo 3.—El fondo de caja chica será por un monto de ¢500.000, 00 (quinientos mil colones), y se aplicará en la adquisición de bienes y servicios eventuales y adelanto de viáticos de menor cuantía, cuyos montos se definen en el artículo 6º.
+El monto del fondo de "Caja Chica" podrá ser variado por la Junta Directiva, a solicitud de la Dirección Administrativa-Financiera, la cual deberá respaldarlo con un estudio adecuado.

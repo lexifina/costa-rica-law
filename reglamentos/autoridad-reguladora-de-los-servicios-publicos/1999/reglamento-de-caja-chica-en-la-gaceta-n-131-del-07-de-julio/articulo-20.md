@@ -1,0 +1,2 @@
+Artículo 20.—La liquidación de los vales deberá hacerse a más tardar el día hábil siguiente al retiro del dinero, con excepción de los viernes o un día inmediato anterior a un feriado, en que el reintegro del vale se hará dentro del mismo día de la emisión.
+Cuando la liquidación se realice con posterioridad al plazo fijado en el párrafo anterior, el encargado de la Caja Chica informará a su jefatura para lo que corresponda.

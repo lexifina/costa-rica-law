@@ -1,0 +1,1 @@
+Artículo 6.—La compra de bienes, servicios y solicitud de adelanto de viáticos no podrá exceder la suma de ¢50.000,00 (cincuenta mil colones). En casos especiales y a criterio del Regulador General o la Dirección Administrativa Financiera se autorizará la erogación de sumas mayores, siempre y cuando no excedan de ¢70.000,00 (setenta mil colones).

@@ -1,0 +1,1 @@
+Artículo 18.—La compra de bienes o servicios se tramitarán por Caja Chica bajo la responsabilidad de la jefatura de la Oficina de Proveeduría, solamente cuando exista contenido en la partida presupuestaria que se cargará con el gasto o que en la bodega no haya existencia del bien que se solicita.
