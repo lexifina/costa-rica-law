@@ -1,0 +1,1 @@
+Artículo 3º—Del trámite. Recibida la solicitud, la Dirección de Geología y Minas, asignará número de expediente, ubicará en el Padrón Minero y trasladará una copia de la solicitud, incluyendo el Plan de Explotación, a la Secretaría Técnica Nacional Ambiental.

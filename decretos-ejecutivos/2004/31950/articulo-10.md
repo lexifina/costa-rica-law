@@ -1,0 +1,1 @@
+Artículo 10.—Sanción. En caso de que no se presente el informe de labores indicado en el artículo anterior, o no haberse presentado el anexo prevenido, la Dirección de Geología y Minas no tramitará ninguna nueva solicitud del Gobierno Local o Ministerio incumpliente hasta tanto sea presentado el informe de labores correspondiente o el anexo requerido.

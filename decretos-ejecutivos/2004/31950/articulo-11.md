@@ -1,0 +1,1 @@
+Artículo 11.—De los plazos. El Ministerio del Ambiente y Energía, deberá resolver la solicitud presentada por el Gobierno Local o Ministerio en el plazo de un mes calendario, contado a partir de la fecha en que se presente en forma completa y correcta la solicitud.
