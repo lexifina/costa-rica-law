@@ -168,3 +168,7 @@ para el Museo Nacional de Costa Rica)
 para el Instituto Nacional de las Mujeres)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29565 de 28 de mayo del 2001,
 para la Junta de Protección Social de San José)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29603 de 1 de junio del 2001,
+para el Instituto Costarricense de Turismo)
+(Modificado por el artículo 1º del Decreto Ejecutivo Nº 29599 del 25 de junio del 2001, para el Instituto Costarricense de Acueductos y Alcantarillados)
+(Modificado por el artículo 1º del Decreto Ejecutivo Nº29600 del 25 de junio del 2001, para el Colegio Universitario de Cartago)
