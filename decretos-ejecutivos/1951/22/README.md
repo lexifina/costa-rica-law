@@ -14,3 +14,4 @@ Requisito para la Autorización y Exportación de Café
 | --- | --- | --- |
 | 1 | 1951-11-30 | la propia norma |
 | 2 | 1955-12-24 | Decreto Ejecutivo 32 (1955-12-24) |
+| 3 | 1964-12-12 | Decreto Ejecutivo 69 (1964-12-12) |
