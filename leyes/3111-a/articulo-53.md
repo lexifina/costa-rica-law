@@ -1,0 +1,7 @@
+ARTÍCULO 53
+1. Las marcas longitudinales consistirán en:
+i. líneas continuas. Cuando se emplea una línea continua, ella restringe la circulación de tal manera que ningún vehículo puede cruzar esta línea o circular sobre ella.
+ii. líneas discontinuas. Las líneas discontinuas, que son líneas directrices, tienen por objeto guiar y facilitar la libre circulación en las diferentes vías; pueden, ser cruzadas, siempre que ello se efectúe dentro de las condiciones normales de seguridad.
+2. En la primera subdivisión, las líneas continuas tienen por objeto prohibir que un vehículo adelante a otros o que pase de una vía a otra en puntos peligrosos, tales como curvas, cambios de rasantes, cruces de caminos o pasos a nivel, o delimitar los dos sentidos de circulación en los caminos que tienen dos o más vías en cada sentido.
+3. Una línea continua puede estar trazada junto a una línea discontinua. En tal caso los vehículos no deben cruzar la línea continua trazada a la derecha de una línea discontinua colocada en el lado izquierdo de la vía en que circulan estos vehículos. No obstante, estos vehículos los pueden cruzar la línea continua, si esta línea colocada a la izquierda de la vía en que circulan los vehículos, está trazada a la izquierda de una línea discontinua.
+Recomendación: Se recomienda que, al aplicar las disposiciones del artículo 52 en los casos típicos indicados a continuación, se siga el método ilustrado por los diagramas 2, 3 y 4.

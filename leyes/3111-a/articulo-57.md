@@ -1,0 +1,3 @@
+ARTÍCULO 57
+1. Las obstrucciones dentro del camino, o las colocadas peligrosamente cerca del borde del camino, tales como pilastras de puente, estribos, muros de alcantarillas de desagües, rebordes de burladeros, deben marcarse con franjas alternas negras y blancas de una anchura uniforme, de por lo menos 10 cm. o tanto más anchas como sea apropiado al tamaño de las obstrucciones. Las franjas deben sesgar hacia abajo a un ángulo de 45° hacia el lado de la obstrucción sobre el cual debe pasar el tráfico. En los rebordes bajos, las franjas pueden ser verticales.
+2. Los Diagramas 5 y 6 son ejemplos de marcas para indicar obstrucciones.
