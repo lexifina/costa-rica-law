@@ -1,0 +1,1 @@
+Art. 3. Es Presidente de aquella Corporación el primer nombrado en el art. antecedente, y compone la Sala de 2a instancia el mismo y el segundo, quedando para la tercera. el tercero y cuarto con el Fiscal; y observándose para la renovación sucesiva entre sí de las Salas, lo prevenido por el art. 14 del Decreto reglamentario de 1° de junio de 1842.
