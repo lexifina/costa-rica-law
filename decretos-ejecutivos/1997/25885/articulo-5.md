@@ -1,0 +1,1 @@
+Artículo 5°—Firmeza de la resolución; Transcurrido el plazo para recurrir la resolución sin que se presentase recurso alguno, o bien agotada la vía administrativa, la resolución adquirirá el carácter de firme.

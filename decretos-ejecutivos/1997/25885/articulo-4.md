@@ -1,0 +1,1 @@
+Artículo 4°—Recursos: El funcionario intimado podrá presentarlos recursos que establece la Ley General de la Administración Pública contra la resolución de cobro de un plazo de tres días hábiles contados a partir del día siguiente después de la notificación.

@@ -1,0 +1,2 @@
+Artículo 7°—Mecanismo de pago: Para ejecutar el pago, la Administración tendrá la facultad de fraccionar el monto total adeudado en cuatro tractos, pagaderos en cuotas mensuales.
+Cuando el monto de la deuda no permita dicho fraccionamiento por superar el monto del tracto la cuarta parte del salario total del funcionario, la Administración estará facultada para llegar a un arreglo de pago que obligue cuando mínimo a un rebajo de la cuarta parte del salario mensual neto de aquel hasta la cancelación total de la deuda.
