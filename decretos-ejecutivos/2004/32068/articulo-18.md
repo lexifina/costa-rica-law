@@ -1,0 +1,1 @@
+Artículo 18.—Criterios del Órgano de Reglamentación Técnica. Todos los criterios y recomendaciones del ORT estarán contenidos en el acta de cada sesión. Las actas se aprobarán de conformidad con el artículo 56 inciso 2) de la Ley N° 6227.

@@ -1,0 +1,2 @@
+Artículo 19.—Promulgación y Divulgación. Una vez que se haya cumplido con el procedimiento indicado en los artículos anteriores, el ORT enviará la propuesta final del reglamento técnico y su criterio correspondiente al ministerio del ramo para la firma de su jerarca.
+Posteriormente será enviado a la Presidencia de la República, a fin de integrar al Poder Ejecutivo, mediante la suscripción del Señor Presidente y para su correspondiente publicación en el Diario Oficial La Gaceta.
