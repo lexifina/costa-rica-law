@@ -14,3 +14,4 @@ Reglamento del Sistema de Pagos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-05 | la propia norma |
+| 2 | 2000-11-22 | Reglamento 5056 (2000-11-22) |
