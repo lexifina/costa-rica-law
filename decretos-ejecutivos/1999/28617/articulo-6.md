@@ -1,0 +1,2 @@
+Artículo 6º—De la Impugnación de Acuerdos. Contra los acuerdos del Consejo Portuario Nacional cabrá el recurso de revocatoria ante el mismo órgano, el que deberá interponerse dentro de los tres días hábiles siguientes a la firmeza del Acuerdo.
+El Ministro de Obras Públicas y Transportes, como Presidente del Consejo Portuario Nacional, se abstendrá de conocer y resolver el recurso de revocatoria, a efectos de conocer en alzada el recurso de apelación, en caso de ser interpuesto este último.
