@@ -2,73 +2,24 @@ CAPITULO VI
 Procedimientos de contratación
 Sección primera
 Generalidades
-ARTICULO 27.- Determinación del procedimiento.
-Cuando la ley no disponga un procedimiento específico en función del
-tipo de contrato, el procedimiento se determinará de acuerdo con las
-siguientes pautas:
-a) Las administraciones cuyo presupuesto ordinario sea superior a
-cuarenta mil millones de colones (¢40.000.000.000,oo), utilizarán la
-licitación pública para las contrataciones superiores a cuatrocientos
-cincuenta millones de colones (¢450.000.000,oo); la licitación por
-registro para las contrataciones entre veinticinco millones de colones
-(¢25.000.000,oo) y cuatrocientos cincuenta millones de colones
-(¢450.000.000,oo) y la licitación restringida para las contrataciones
-inferiores a veinticinco millones de colones (¢25.000.000,oo).
-b) Las administraciones cuyo presupuesto ordinario sea inferior a
-cuarenta mil millones (¢40.000.000.000,oo), pero superior a veinte mil
-millones de colones (¢20.000.000.000,oo), utilizarán el procedimiento de
-licitación pública para las contrataciones superiores a trescientos
-millones de colones (¢300.000.000,oo); el procedimiento de licitación por
-registro para las contrataciones entre veinte millones de colones
-(¢20.000.000,oo) y trescientos millones de colones
-(¢300.000.000,oo) y el procedimiento de licitación restringida para las
-contrataciones inferiores a veinte millones de colones (¢20.000.000,oo).
-c) Las administraciones cuyo presupuesto ordinario sea inferior a
-veinte mil millones (¢20.000.000.000,oo), pero superior a diez mil millones
-de colones (¢10.000.000.000,oo), utilizarán el procedimiento de licitación
-pública para las contrataciones superiores a ciento cincuenta millones de
-colones (¢150.000.000,oo); el procedimiento de licitación por registro para
-las contrataciones entre veinte millones de colones (¢20.000.000,oo) y
-ciento cincuenta millones de colones (¢50.000.000,oo) y el procedimiento de
-licitación restringida para las contrataciones inferiores a veinte
-millones de colones (¢20.000.000,oo).
-d) Las administraciones cuyo presupuesto ordinario sea inferior a
-diez mil millones de colones (¢10.000.000.000,oo), pero superior a cinco
-mil millones de colones (¢5.000.000.000,oo), utilizarán el procedimiento de
-licitación pública para las contrataciones superiores entre diez millones
-de colones (¢10.000.000,oo) y cien millones de colones (¢100.000.000,oo) y
-el procedimiento de licitación restringida para las contrataciones
-inferiores a diez millones de colones (¢10.000.000,oo).
-e) Las administraciones cuyo presupuesto ordinario sea inferior a
-cinco mil millones de colones (¢5.000.000.000,oo), pero superior a mil
-millones de colones (¢1.000.000.000,oo), utilizarán el procedimiento de
-licitación pública para las contrataciones superiores a setenta y cinco
-millones de colones (¢75.000.000,oo); el procedimiento de licitación por
-registro para las contrataciones entre diez millones de colones
-(¢10.000.000,oo) y setenta y cinco millones de colones
-(¢75.000.000,oo) y el procedimiento de licitación restringida para las
-contrataciones inferiores a diez millones de colones (¢10.000.000,oo).
-f) Las administraciones cuyo presupuesto ordinario sea inferior a
-mil millones de colones (¢1.000.000.000,oo), pero superior a quinientos
-millones de colones (¢500.000.000,oo), utilizarán el procedimiento de
-licitación pública para las contrataciones superiores a cincuenta
-millones de colones (¢50.000.000,oo); el procedimiento de licitación por
-registro para las contrataciones entre cinco millones de colones
-(¢5.000.000,oo) y cincuenta millones de colones (¢50.000.000,oo) y el
-procedimiento de licitación restringida para las contrataciones
-inferiores a cinco millones de colones (¢5.000.000,oo).
-g) Las administraciones cuyo presupuesto ordinario sea inferior a
-quinientos millones de colones (¢500.000.000,oo) se regirán por la tabla
-que, para tales efectos y mediante resolución, dicte la Contraloría
-General de la República. Esa tabla deberá ajustarse, anualmente, de
-acuerdo con los parámetros indicados en el último párrafo de este
-artículo.
-Los ministerios y los órganos que tengan su propia proveeduría, se
-considerarán como una unidad separada, para los efectos de la
-clasificación correspondiente.
-Las sumas establecidas en este artículo se ajustarán, cada año, por
-el monto correspondiente al porcentaje oficial de inflación de los doce
-meses anteriores. En la primera quincena de febrero de cada año, la
-Contraloría General de la República dictará una resolución que incorpore
-los incrementos y especifique los parámetros vigentes para cada uno de los
-órganos y los entes comprendidos en esta Ley.
+ARTICULO 27.- ANULADO por Resolución de la Sala Constitucional Nº
+998-98 de las 11:30 horas de 16 de febrero de 1998.
+(NOTA: Este artículo se reforma mediante ley N° 8251 de 29 de abril del 2002, con
+el siguiente texto, sin embargo entra en vigencia hasta el día 1 de enero del 2003:
+Artículo 27.—Determinación del procedimiento.
+Cuando la ley no disponga un procedimiento específico en función del tipo de contrato, el procedimiento se determinará de acuerdo con las siguientes pautas:
+a) Las administraciones cuyo presupuesto autorizado para el período, específicamente lo que se contempla para respaldar sus necesidades de contratar bienes y servicios no personales, sea superior a treinta mil millones de colones (¢ 30.000.000.000,00), utilizarán la licitación pública para las contrataciones superiores a ciento ochenta millones de colones (¢ 180.000.000,00); la licitación por registro para las contrataciones entre ciento ochenta millones de colones (¢180.000.000,00) y ochenta millones de colones (¢ 80.000.000,00); la licitación restringida para las contrataciones entre ochenta millones de colones (¢80.000.000,00) y veinticinco millones de colones (¢25.000.000,00) y la contratación directa para las contrataciones inferiores a veinticinco millones de colones (¢25.000.000,00).
+b) Las administraciones cuyo presupuesto autorizado para el período, específicamente lo que se contempla para respaldar sus necesidades de contratar bienes y servicios no personales, sea inferior a treinta mil millones de colones (¢ 30.000.000.000,00), pero superior a veinte mil millones de colones (¢20.000.000.000,00), utilizarán la licitación pública para las contrataciones superiores a cien millones de colones (¢100.000.000,00); la licitación por registro para las contrataciones entre cien millones de colones (¢100.000.000,00) y quince millones de colones (¢ 15.000.000,00); la licitación restringida para las contrataciones entre quince millones de colones (¢ 15.000.000,00) y cinco millones de colones (¢5.000.000,00) y la contratación directa para las contrataciones inferiores a cinco millones de colones (¢5.000.000,00).
+c) Las administraciones cuyo presupuesto autorizado para el período, específicamente lo que se contempla para respaldar sus necesidades de contratar bienes y servicios no personales sea inferior a veinte mil millones de colones (¢ 20.000.000.000,00), pero superior a diez mil millones de colones (¢10.000.000.000,00), utilizarán la licitación pública para las contrataciones superiores a setenta millones de colones (¢70.000.000,00); la licitación por registro para las contrataciones entre setenta millones de colones (¢70.000.000,00) y diez millones de colones (¢ 10.000.000,00); la licitación restringida para las contrataciones entre diez millones de colones (¢ 10.000.000,00) y cuatro millones quinientos mil colones (¢ 4.500.000,00) y la contratación directa para las contrataciones inferiores a cuatro millones quinientos mil colones (¢ 4.500.000,00)
+d) Las administraciones cuyo presupuesto autorizado para el período, específicamente lo que se contempla para respaldar sus necesidades de contratar bienes y servicios no personales, sea inferior a diez mil millones de colones (¢ 10.000.000.000,00), pero superior a cinco mil millones de colones (¢5.000.000.000,00), utilizarán la licitación pública para las contrataciones superiores a cincuenta millones de colones (¢50.000.000,00); la licitación por registro para las contrataciones entre cincuenta millones de colones (¢50.000.000,00) y ocho millones de colones (¢ 8.000.000,00); la licitación restringida para las contrataciones entre ocho millones de colones (¢ 8.000.000,00) y cuatro millones de colones (¢ 4.000.000,00) y la contratación directa para las contrataciones inferiores a cuatro millones de colones (¢4.000.000,00).
+e) Las administraciones cuyo presupuesto autorizado para el período, específicamente lo que se contempla para respaldar sus necesidades de contratar bienes y servicios no personales, sea inferior a cinco mil millones de colones (¢ 5.000.000.000,00), pero superior a mil millones de colones (¢ 1.000.000.000,00), utilizarán la licitación pública para las contrataciones superiores a treinta y cinco millones de colones (¢ 35.000.000,00); la licitación por registro para las contrataciones entre treinta y cinco millones de colones (¢ 35.000.000,00) y siete millones de colones (¢ 7.000.000,00); la licitación restringida para las contrataciones entre siete millones de colones (¢ 7.000.000,00) y tres millones quinientos mil colones (¢ 3.500.000,00) y la contratación directa para las contrataciones inferiores a tres millones quinientos mil colones (¢ 3.500.000,00).
+f) Las administraciones cuyo presupuesto autorizado para el período, específicamente lo que se contempla para respaldar sus necesidades de contratar bienes y servicios no personales, sea inferior a mil millones de colones (¢ 1.000.000.000,00), pero superior a quinientos millones de colones (¢ 500.000.000,00), utilizarán la licitación pública para las contrataciones superiores a treinta millones de colones (¢ 30.000.000,00); la licitación por registro para las contrataciones entre treinta millones de colones (¢ 30.000.000,00) y seis millones de colones (¢ 6.000.000,00); la licitación restringida para las contrataciones entre seis millones de colones (¢ 6.000.000,00) y tres millones de colones (¢3.000.000,00) y la contratación directa para las contrataciones inferiores a tres millones de colones (¢3.000.000,00).
+g) Las administraciones cuyo presupuesto autorizado para el período, específicamente lo que se contempla para respaldar sus necesidades de contratar bienes y servicios no personales, sea inferior a quinientos millones de colones (¢ 500.000.000,00), pero superior a trescientos millones de colones (¢300.000.000,00), utilizarán la licitación pública para las contrataciones superiores a veinte millones de colones (¢20.000.000,00); la licitación por registro para las contrataciones entre veinte millones de colones (¢20.000.000,00) y cuatro millones de colones (¢ 4.000.000,00); la licitación restringida para las contrataciones entre cuatro millones de colones (¢ 4.000.000,00) y dos millones quinientos mil colones (¢ 2.500.000,00) y la contratación directa para las contrataciones inferiores a dos millones quinientos mil colones (¢2.500.000,00).
+h) Las administraciones cuyo presupuesto autorizado para el período, específicamente lo que se contempla para respaldar sus necesidades de contratar bienes y servicios no personales, sea inferior a trescientos millones de colones (¢ 300.000.000,00), pero superior a cien millones de colones (¢ 100.000.000,00), utilizarán la licitación pública para las contrataciones superiores a quince millones de colones (¢ 15.000.000,00); la licitación por registro para las contrataciones entre quince millones de colones (¢15.000.000,00) y tres millones de colones (¢ 3.000.000,00); la licitación restringida para las contrataciones entre tres millones de colones (¢ 3.000.000,00) y un millón quinientos mil colones (¢1.500.000,00) y la contratación directa para las contrataciones inferiores a un millón quinientos mil colones (¢ 1.500.000,00).
+i) Las administraciones cuyo presupuesto autorizado para el período, específicamente lo que se contempla para respaldar sus necesidades de contratar bienes y servicios no personales, sea inferior a cien millones de colones (¢100.000.000,00), pero superior a treinta millones de colones (¢30.000.000,00), utilizarán la licitación pública para las contrataciones superiores a diez millones de colones (¢10.000.000,00); la licitación por registro para las contrataciones entre diez millones de colones (¢10.000.000,00) y dos millones de colones (¢2.000.000,00); la licitación restringida para las contrataciones entre dos millones de colones (¢ 2.000.000,00) y un millón de colones (¢1.000.000,00) y la contratación directa para las contrataciones inferiores a un millón de colones (¢ 1.000.000,00).
+j) Las administraciones cuyo presupuesto autorizado para el período, específicamente lo que se contempla para respaldar sus necesidades de contratar bienes y servicios no personales, sea inferior a treinta millones de colones (¢ 30.000.000,00), utilizarán la licitación pública para las contrataciones superiores a cinco millones de colones (¢ 5.000.000,00); la licitación por registro para las contrataciones entre cinco millones de colones (¢5.000.000,00) y un millón de colones (¢ 1.000.000,00); la licitación restringida para las contrataciones entre un millón de colones (¢ 1.000.000,00) y quinientos mil colones (¢ 500.000,00) y la contratación directa para las contrataciones inferiores a quinientos mil colones (¢ 500.000,00).
+La Contraloría General de la República se encargará de elaborar y enviar una lista con el nombre de cada administración y el monto de su presupuesto autorizado para respaldar la contratación de bienes y servicios no personales, con el fin de que se publique en La Gaceta a más tardar en la segunda quincena de febrero de cada año.
+Para establecer dicho monto, deberá considerarse el promedio de las sumas presupuestadas en el período vigente y en los dos períodos anteriores, en lo relativo a las partidas para respaldar las necesidades de contratar bienes y servicios no personales.
+Los ministerios y los órganos que hayan desconcentrado sus servicios de proveeduría, se considerarán como unidades separadas, para los efectos de la clasificación correspondiente.
+En todo caso, la Proveeduría Nacional se clasificará de acuerdo con el monto que arroje la suma de los presupuestos para respaldar las necesidades de contratar bienes y servicios no personales de los ministerios cuya actividad contractual sea desarrollada por dicha entidad.
+Las sumas establecidas en este artículo se ajustarán cada año, tomando como referencia, entre otros, la variación porcentual del índice general de precios al consumidor. A más tardar en la segunda quincena de febrero de cada año, la Contraloría General de la República dictará una resolución que incorpore los incrementos y especifique los parámetros vigentes para cada órgano y cada ente comprendidos en esta Ley.)
