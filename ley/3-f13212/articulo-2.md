@@ -1,0 +1,2 @@
+Art. 2°-El camino expresado debe tener, por lo menos, cuatro varas de latitud, y á lo más, un 25% de inclinación en las cuestas; y los empresarios quedan en la obligación de hacer los cortes ó excavaciones convenientes para allanar el camino en todos aquellos puntos en que el declive del terreno por donde deba pasar lo demande, y de construir puentes para el tránsito con bestias, en los ríos, riachuelos y cauces profundos que lo necesiten.
+§ único. -La presente concesión de tierras no perjudica en manera alguna derechos adquiridos por leyes anteriores.
