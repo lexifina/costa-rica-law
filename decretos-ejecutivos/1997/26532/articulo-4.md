@@ -1,0 +1,1 @@
+Artículo 4°—Será el Benemérito Cuerpo de Bomberos de Costa Rica del Instituto Nacional de Seguros en coordinación con el Ministerio de Economía, Industria y Comercio los encargados de velar por el cumplimiento del presente reglamento técnico.
