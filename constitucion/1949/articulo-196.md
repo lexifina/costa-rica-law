@@ -1,0 +1,1 @@
+Artículo 196.-La reforma general de esta Constitución, una vez aprobado el proyecto por los trámites establecidos en el artículo anterior, no podrá hacerse solo por una Constituyente convocada al efecto.

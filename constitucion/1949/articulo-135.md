@@ -1,0 +1,2 @@
+Artículo 135.-Habrá dos vicepresidentes de la Republica, quienes reemplazarán en su ausencia absoluta al presidente, por el orden de su nominación. En sus ausencias temporales, el Presidente podrá llamar a cualquiera de los Vicepresidentes para que lo sustituya.
+Cuando ninguno de los Vicepresidentes pueda llenar las faltas temporales o definitivas del Presidente, ocupará el cargo el Presidente de la Asamblea Legislativa.

@@ -1,0 +1,1 @@
+Artículo 179.-La Asamblea no podrá aumentar los gastos presupuestos por el Poder Ejecutivo, si no es señalando los nuevos ingresos que hubieren de cubrirlos, previo informe de la Contraloría General de la República sobre la efectividad fiscal de los mismos.

@@ -1,0 +1,1 @@
+Artículo 125.-Si el Poder Ejecutivo no aprobare el proyecto de ley votado por la Asamblea, lo vetará y lo devolverá con las objeciones pertinentes. No procede el veto en cuanto al proyecto que aprueba el Presupuesto Ordinario de República.

@@ -1,0 +1,1 @@
+Artículo 114.-La Asamblea residirá en la capital de la República, y tanto para trasladar su asiento a otro Jugar como para suspender sus sesiones por tiempo determinado, se requerirán dos tercios de votos del total de sus miembros.

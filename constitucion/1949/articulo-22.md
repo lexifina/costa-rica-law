@@ -1,0 +1,1 @@
+Artículo 22.--Todo costarricense puede trasladarse y permanecer en cualquier punto de la República o fuera de ella, siempre que se encuentre libre de responsabilidad, y volver cuando le convenga. No se podrá exigir a los costarricenses requisitos que impidan su ingreso al país.

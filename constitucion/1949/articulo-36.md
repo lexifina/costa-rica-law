@@ -1,0 +1,1 @@
+Artículo 36.-- En Materia penal nadie está obligado a declarar contra sí mismo, ni contra su cónyuge, ascendientes, descendientes o parientes colaterales hasta el tercer grado inclusive de consanguinidad o afinidad.

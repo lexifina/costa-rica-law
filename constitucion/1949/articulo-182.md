@@ -1,0 +1,1 @@
+Artículo 182.-Los contratos para la ejecución de obras públicas que celebren los Poderes del Estado, las Municipalidades y las instituciones autónomas, las compras que se hagan con fondos de esas entidades y las ventas o arrendamientos de bienes pertenecientes a las mismas, se harán mediante licitación, de con la ley en cuanto al monto respectivo.

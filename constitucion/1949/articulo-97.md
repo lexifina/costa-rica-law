@@ -1,0 +1,2 @@
+Artículo 97.-- Para la discusión y aprobación de proyectos de ley relativos a materias electorales la Asamblea Legislativa deberá consultar al Tribunal Supremo de Elecciones; para apartarse de su opinión se necesitará el voto de las dos terceras partes del total de sus miembros.
+Dentro de los seis meses anteriores y los cuatro posteriores a la celebración de una elección popular, la Asamblea Legislativa no podrá, sin embargo convertir en leyes los proyectos sobre dicha, materias respecto de los cuales el Tribunal Supremo de Elecciones se hubiese manifestado en desacuerdo.

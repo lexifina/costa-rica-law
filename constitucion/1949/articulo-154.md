@@ -1,0 +1,1 @@
+Artículo 154.-EI Poder Judicial sólo está sometido a la Constitución y a la ley, y las resoluciones que dicte en los asuntos de su competencia no le imponen en otras responsabilidades que las expresamente señaladas por los preceptos legislativos.

@@ -1,0 +1,1 @@
+Artículo 122.-Es prohibido a la Asamblea dar votos de aplauso respecto de actos oficiales, así como reconocer a cargo del Tesoro Público obligaciones que no hayan sido previamente declaradas por el Poder Judicial, o aceptadas por el Poder Ejecutivo, o conceder becas, pensiones, jubilaciones o gratificaciones.
