@@ -1,0 +1,1 @@
+Artículo 12.—Equivalencia en la frecuencia de pago. En los casos en que los aportes de los Afiliados se efectúen con frecuencias diferentes a la mensual, se debe equiparar la frecuencia de pago utilizada a un sistema de cotización mensual.

@@ -1,0 +1,1 @@
+Artículo 23.—De la documentación. La documentación que debe mantener dicho expediente individual debe organizarse en forma cronológica, ser fácilmente accesible y mantenerse permanentemente ordenada y actualizada con los datos más relevantes y recientes de cada Afiliado, para lo cual debe considerar lo señalado en los Artículos 7, 8, 13, 15, 18 y 19 de esta Directriz.

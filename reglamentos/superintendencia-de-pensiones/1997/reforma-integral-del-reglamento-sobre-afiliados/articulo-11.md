@@ -1,0 +1,1 @@
+Artículo 11.—Reposición de aportes. En los casos en que por causas ajenas a su voluntad el Afiliado no haya efectuado aportes en forma regular durante un lapso hasta de dos años podrá reponer, las cuotas atrasadas.

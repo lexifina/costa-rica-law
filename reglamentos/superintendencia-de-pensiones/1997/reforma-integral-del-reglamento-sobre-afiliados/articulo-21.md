@@ -1,0 +1,1 @@
+Artículo 21.—De la Remisión del Archivo de Afiliados. Dentro de los 5 días naturales siguientes al cierre de cada mes, la Operadora deberá remitir a la Superintendencia por los medios y en las condiciones que ésta establezca, toda la información contenida en el Archivo de Afiliados.

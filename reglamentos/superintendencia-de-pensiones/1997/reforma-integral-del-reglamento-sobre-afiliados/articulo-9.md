@@ -1,0 +1,2 @@
+Artículo 9°—Casos de excepción del plazo por edad. Si a un Afiliado en la fecha en que suscribe un Plan de Pensión Complementaria, le faltan menos de cinco años para hacerse acreedor a una pensión en cualquiera de los regímenes vigentes, tendrá derecho a disfrutar los beneficios pactados en su Contrato de Pensión Complementaria, de acuerdo con lo establecido en el segundo párrafo del Artículo 24 de la Ley 7523.
+Esta situación de excepción debe quedar claramente establecida en los contratos de afiliación.

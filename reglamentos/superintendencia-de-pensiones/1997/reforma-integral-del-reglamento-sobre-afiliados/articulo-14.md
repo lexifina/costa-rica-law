@@ -1,0 +1,1 @@
+Artículo 14.—De la fecha de afiliación a la Operadora. Se entenderá por fecha de afiliación, aquella en la que se firmó el Contrato de Afiliación, siempre y cuando el primer aporte haya ingresado en el mismo mes, y por ende a partir de ella, rigen los derechos y obligaciones de cada una de las partes.
