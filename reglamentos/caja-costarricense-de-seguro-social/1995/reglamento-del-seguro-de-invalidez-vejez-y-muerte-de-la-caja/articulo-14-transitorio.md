@@ -1,0 +1,5 @@
+Transitorio * XIV—
+Para la determinación del salario promedio a que se refiere el artículo 23, tanto para calcular la pensión por vejez como la pensión por invalidez, se considerarán los salarios devengados y efectivamente cotizados a partir del 1 ° de enero de 1997, considerando en todo caso un mínimo de 60 salarios. A partir del 1 ° de enero del año 2002, se ampliará la cantidad de cuotas para el cálculo de la pensión por vejez, hasta completar el máximo de 240. Si no se completare el número de cuotas requerido para cada tipo de pensión (invalidez o vejez) después de la fecha indicada, se tomarán en cuenta los salarios anteriores al 1° de enero de 1997, que fueren necesarios en cada caso.
+(NOTA: Rige a partir del 1° de abril de 1997, según lo dispuesto en el artículo 2° de la sesión número 7087 del 17 de diciembre de 1996).
+(Así adicionado por acuerdo tomado en sesión N° 7085 de 10 de diciembre de 1996)
+(Así corrida la numeración tácitamente, en sesión N° 7744 del 3 de abril del 2003, que lo pasó del N° 12 transitorio al 14 transitorio actual del artículo).

@@ -1,5 +1,7 @@
-Artículo 6°. Tiene derecho a la pensión por invalidez, el asegurado menor de 65 años de edad que sea declarado inválido por la Comisión Calificadora, conforme a lo previsto en los artículos 7° y 8° de este Reglamento y que haya aportado el número de cotizaciones según edad al momento de la declaratoria, de acuerdo con la tabla siguiente:
-Edad (Años cumplidos) | Cotizaciones mínimas (meses) | Edad (Años cumplidos) | Cotizaciones mínimas (meses)
+Artículo 6º—Tiene derecho a pensión por invalidez el asegurado que sea declarado inválido por la Comisión Calificadora, conforme a lo previsto en el artículo 8º de este Reglamento y que haya reportado el número de cotizaciones según edad al momento de la declaratoria, de acuerdo con la tabla siguiente:
+| Cotizaciones | | Cotizaciones
+Edad | mínimas | Edad | Mínimas
+(años cumplidos) | (meses) | (años cumplidos) | (meses)
 24 o menos | 12 | 43 | 90
 25 | 16 | 44 | 96
 26 | 20 | 45 | 102
@@ -21,8 +23,7 @@ Edad (Años cumplidos) | Cotizaciones mínimas (meses) | Edad (Años cumplidos) 
 42 | 84 | |
 Además, se requiere que el asegurado haya aportado, dependiendo de su edad, el número de cotizaciones que se detalla a continuación:
 a) Al menos doce cuotas mensuales, dentro de los últimos veinticuatro meses anteriores a la declaratoria del estado de invalidez, si el riesgo ocurre antes de los cuarenta y ocho años de edad.
-b) Al menos veinticuatro cuotas mensuales, dentro de los último cuarenta y ocho meses anteriores a la declaratoria del estado de invalidez, si la invalidez ocurre después de los cuarenta y ocho años de edad.
-Asimismo, tiene derecho a pensión por invalidez el asegurado aportado a este seguro ciento ochenta cuotas mensuales o más.
-(Así adicionado el párrafo anterior por acuerdo tomado en sesión N° 7284 de 3 de diciembre de 1998)
-Cuando con anterioridad al momento de la declaratoria de la invalidez, existiere una incapacidad continua o la Comisión Calificador; dictamine que la condición del padecimiento haya impedido al asegurado o asegurada laborar, el período dentro del cual se debe haber cotizado sé contará en relación con el inicio de la incapacidad o condición de padecimiento y no de la declaratoria. En cualquier caso, la vigencia de derecho se determinará de acuerdo con lo que establece el Artículo 19° de este Reglamento".
-(Así reformado por acuerdo tomado en sesión N° 7160 de 23 de setiembre de 1997)
+b) Al menos veinticuatro cuotas mensuales, dentro de los últimos cuarenta y ocho meses anteriores a la declaratoria del estado de invalidez, si la invalidez ocurre después de los cuarenta y ocho años de edad.
+Asimismo, tiene derecho a pensión por invalidez el asegurado que haya aportado a este seguro ciento ochenta cuotas mensuales o más.
+Cuando con anterioridad al momento de la declaratoria de la invalidez, existiere una incapacidad continua o la Comisión Calificadora dictamine que la condición del padecimiento haya impedido al asegurado o asegurada laborar, el período dentro del cual se debe haber cotizado se contará en relación con el inicio de la incapacidad o condición del padecimiento y no de la declaratoria. En cualquier caso, la vigencia del derecho se determinará de acuerdo con lo que establece el artículo 19 de este Reglamento.
+(Así reformado en sesión N° 7744 del 3 de abril de 2003)

@@ -1,4 +1,2 @@
-Transitorio IX.—
-A los asegurados que hubieren consolidado su derecho de pensión por invalidez, vejez o muerte, antes del 1° de enero de 1997, les serán aplicables los requisitos, condiciones y procedimientos vigentes hasta el 31 de diciembre de 1996. Igual tratamiento se dará a quienes consolidaren su derecho a pensión de vejez dentro de los dieciocho meses contados a partir del 1° de enero de 1997, conforme a la jurisprudencia constitucional, sin perjuicio de que, en caso de que fuere para él más conveniente el interesado en esa situación pueda optar por acogerse al nuevo sistema de cálculo.
-(Así adicionado por acuerdo tomado en sesión N° 7085 de 10 de diciembre de 1996)
-(NOTA: Rige a partir del 1° de abril de 1997, según lo dispuesto en el artículo 2° de la sesión número 7087 del 17 de diciembre de 1996).
+Transitorio IX.—A las personas declaradas inválidas entre el 24 de marzo de 1994 y el 3 de abril del año 2003, que contaban con 65 o más años de edad y que por esa razón quedaron cesantes o se les denegó la pensión por invalidez, la aplicación de los requisitos de cotización se realizará al momento de la declaratoria del estado de invalidez.
+(Así adicionado en sesión N° 7744 del 3 de abril del 2003)
