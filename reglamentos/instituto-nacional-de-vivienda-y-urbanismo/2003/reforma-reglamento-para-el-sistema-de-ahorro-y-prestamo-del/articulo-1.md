@@ -1,0 +1,4 @@
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+La Junta Directiva del Instituto Nacional de Vivienda y Urbanismo en Sesión Ordinaria Nº 5296, Artículo II, Inc. 9), celebrada el día 23 de julio del año en curso, acuerda modificar el artículo 24 del Reglamento para el Sistema de Ahorro y Préstamo, que textualmente dice:
+"Artículo 24.—El suscriptor debe atender los costos que se deriven del trámite del crédito tales como, honorarios de abogado, gastos legales y gastos de fiscalización. En los contratos que se fijó como cuota de ingreso el 4% y una cuota adicional del 2% podrán utilizar hasta un máximo del 2% para dichos gastos, si se produjera algún remanente, se le reembolsará al suscriptor, o también podrá optar por aplicarlos en las cuotas de cancelación de préstamo o abono extraordinario a la cuenta.
+Rige a partir de su publicación.
