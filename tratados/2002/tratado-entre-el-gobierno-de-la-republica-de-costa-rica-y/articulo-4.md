@@ -1,0 +1,5 @@
+Artículo 4
+1. Siempre que la policía, la aduana o cualquier otra autoridad de una Parte tenga información que indique que un vehículo o aeronave que haya detenido o capturado, es compatible con la descripción en los incisos 1) ó 2) del Artículo 2, o tenga información que indique que una aeronave que haya detenido o capturado, es fabricada en el territorio de la otra Parte, la primera Parte, dentro del período de 30 días a partir de dicha detención o captura, deberá notificar por escrito a la Autoridad Central de la otra Parte que sus autoridades tienen al vehículo o aeronave bajo su custodia.
+2. Para los vehículos, dicha notificación deberá incluir toda la información de identificación disponible enumerada en el Anexo 1.
+3. Para las aeronaves, dicha notificación deberá incluir toda la información de identificación disponible enumerada en el Anexo 2.
+4. Representantes de las Partes se reunirán periódicamente con el fin de examinar la aplicación y eficacia del presente Tratado e intercambiar información pertinente que se proponga facilitar la eficaz puesta en práctica del mismo.
