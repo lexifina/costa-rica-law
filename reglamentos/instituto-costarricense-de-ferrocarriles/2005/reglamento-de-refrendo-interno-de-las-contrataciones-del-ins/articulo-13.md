@@ -1,0 +1,1 @@
+Artículo 13.—Eficacia contractual. La Administración deberá gestionar y obtener el refrendo interno, previo a ordenar el inicio de ejecución del respectivo contrato. La inexistencia o denegación del refrendo interno, impedirán la eficacia jurídica del contrato y su ejecución quedará prohibida, bajo pena de sanción de nulidad absoluta.

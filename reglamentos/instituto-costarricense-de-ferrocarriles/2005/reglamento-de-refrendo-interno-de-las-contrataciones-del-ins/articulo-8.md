@@ -1,0 +1,1 @@
+Artículo 8º—Modificación contractual. Los documentos en que consten modificaciones a los elementos esenciales de los contratos refrendados internamente, deberán contar con el respectivo refrendo interno, de forma previa a su ejecución.
