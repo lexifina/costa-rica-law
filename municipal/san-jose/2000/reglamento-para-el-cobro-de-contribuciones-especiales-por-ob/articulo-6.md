@@ -1,0 +1,1 @@
+Articulo 6°—La contribución especial se pagará por trimestre vencidos, hasta cancelar el monto total y por el plazo que defina la Municipalidad , según la naturaleza y el costo de la obra, todo de conformidad con lo dispuesto en el Artículo anterior y otras disposiciones de este Reglamento.

@@ -1,0 +1,1 @@
+Articulo 7°—El Concejo Municipal aprobará por acuerdo municipal el monto de la contribución especial que cobrará la Municipalidad , a los contribuyentes beneficiados de conformidad con lo dispuesto en la ley y este reglamento. Dicho acuerdo debe ser publicado en el Diario Oficial La Gaceta. El cálculo se hará con base a criterios de legalidad y razonabilidad.
