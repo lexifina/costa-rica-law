@@ -1,0 +1,3 @@
+N° 4274
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RI' DECRETA:
+Artículo I°-Autorízase a la Municipalidad de Grecia para emprestar una de las instituciones del Sistema Bancario Nacional, o con cualquiera de instituciones del Estado, la suma de un millón quinientos mil colones (1.500,000.00), a un plaza no menor de diez afios y a un interés que no exceda deI 9% anual, pagadero en abonos anuales consecutivos de ciento cincuenta mil colones I (150,000.00) cada uno. Este empréstito será destinado a la construcción del mercado central de abastos de la ciudad de Grecia. Deberá ser garantizado con las rentas municipales o bien por medio de hipoteca de primer grado de sus propiedades.

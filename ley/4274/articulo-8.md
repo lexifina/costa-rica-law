@@ -1,0 +1,1 @@
+Artículo 8°-Los Bancos del Sistema Bancario Nacional y el Instituto Nacional de Seguros,la Caja Costarricense de Segura Social y las demás instituciones del Estado, podrán comprar, vender y conservar como inversión los bonos autorizados por esta ley, en igualdad de condiciones con los títulos de la deuda pública.

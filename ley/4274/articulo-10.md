@@ -1,0 +1,2 @@
+Artículo 10 .-Queda autorizada la Municipalidad para colocar parte los bonos que aquí se Ie autoriza a emitir con pacto de retroventa, en cuyo caso los intereses a pagar serán del 8% anual, debiendo indicar la Contraloría General de la República el monto o porcentaje que de esta emisión puede colocar Municipalidad con pacto de retroventa.
+Los tenedores de bonos deberán manifestar a la Municipalidad, por lo menos con treinta días de anticipación, su deseo de convertir los bonos en dinero efectivo.
