@@ -1,0 +1,1 @@
+Artículo 2° Tanto el Juez de Policía, como los Jueces Preventivos ejercer n las funciones que la presente ley les atribuye fuera de las poblaciones de la residencia del Gobernador y Jefes Políticos, el primero en toda la existencia de la Provincia, y los segundos en sus respectivos distritos.

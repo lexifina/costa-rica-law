@@ -1,0 +1,2 @@
+Artículo 8° De los fallos y resoluciones que dicten el Juez de Policía y los Jueces Preventivos tendrán los agraviados recursos de queja para ante el Jefe Político respectivo, de las de los Jueces Preventivos y para ante el Gobernador de las del Juez de Policía.
+único. Si los Jueces Políticos en el conocimiento esas quejas, encontraren que los jueces preventivos han cometido faltas o delitos por los cuales merezca la imposición de alguna pena dar n cuenta al Gobernador limitándose, en cuanto al recurso, a deshacer el agravio a costa del culpable.
