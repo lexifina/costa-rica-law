@@ -1,1 +1,0 @@
-Artículo 20.—El Notario debe presentar a la oficina que formaliza, un detalle claro de los honorarios cobrados, indicando las tarifas fijas establecidas en el Arancel de Profesionales en Derecho, y lo que corresponde a cancelación, traspaso o cualquier otro rubro contemplado en el cobro. Lo anterior con el fin de hacer una adecuada revisión.

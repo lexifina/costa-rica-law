@@ -1,1 +1,0 @@
-Artículo 27.—Si el Notario no cumple con lo estipulado en el Artículo 4 de este Reglamento, la Oficina Formalizadora, suspenderá la entrega de trabajo hasta tanto no regularice su situación con el Banco, perdiendo también su turno en el rol mientras persista la situación.

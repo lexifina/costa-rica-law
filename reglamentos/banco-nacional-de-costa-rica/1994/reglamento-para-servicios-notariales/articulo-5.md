@@ -1,1 +1,0 @@
-Artículo 5°—Los Notarios que fungen como empleados fijos y regulares del Banco y que, a la vez estén autorizados por la Junta Directiva General para la confección de escrituras, deben efectuar estas labores fuera de su horario en el Banco, salvo en casos especiales autorizados por la misma Junta Directiva General.

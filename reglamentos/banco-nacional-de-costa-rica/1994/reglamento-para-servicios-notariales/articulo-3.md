@@ -1,2 +1,0 @@
-Artículo 3°- Los profesionales en derecho que presten sus servicios a la institución como Notarios, no podrán bajo ningún concepto, asumir la dirección profesional de cualquier clase de proceso, causas o reclamos en contra del Banco; tampoco podrán actuar como asesores o consejeros de clientes o terceros que tengan derechos o intereses contrapuestos con los del Banco.
-Si lo anterior no se cumple se aplicará lo estipulado en el Artículo No 26 de este Reglamento.

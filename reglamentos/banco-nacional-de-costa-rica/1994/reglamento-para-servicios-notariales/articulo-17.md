@@ -1,1 +1,0 @@
-Artículo 17.—La colocación de los Notarios nuevos en los diferentes grupos del rol, se hará intercalándolos alfabéticamente en el mismo, asignándoles los trabajos sin variar el rol vigente en el momento de ingresar el nuevo Notarios.

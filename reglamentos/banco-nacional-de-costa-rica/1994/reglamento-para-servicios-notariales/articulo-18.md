@@ -1,7 +1,0 @@
-Artículo 18.—Los Notarios que se designen en el futuro, podrán efectuar trabajos de operaciones de todos los grupos detallados en el Artículo No 14.
-Durante los dos primeros años y en adelante, el cumplimiento de cada uno de los Notarios podrá ser evaluado por la Administración del Banco en el momento que se estime necesario. Para tal efecto la Oficina Formalizadora deberá enviar informe a la Subgerencia respectiva tomando como base los aspectos indicados en el Artículo No 32, cuyo resultado se clasificará de acuerdo con los siguientes casos.
-Si se determinará un cumplimiento insatisfactorio:
-La primera vez se le suspenderá una vuelta en los grupos del rol de distribución, en que se encuentre ubicada.
-La segunda vez, el Banco presindirá (sic) de los servicios del Notario.
-No obstante lo anterior el Banco se reserva el derecho de efectuar evaluaciones periódicas al resto de sus Notarios, pudiendo aplicar lo dispuesto en los puntos a y b de ese artículo.
-En cuanto al punto b) de este artículo, la Auditoria (sic) interna verificará lo reportado por la Oficina formalizadora y será ante esa Auditoría en combinación con el Area de Asuntos Legales donde el Notario presentará su defensa. Si se ratifica por parte de la Auditoría interna la falta existente, se aplicará lo indicado en este punto por parte de la Sub-Gerencia correspondiente, quien lo informará a la Junta Directiva General para su ratificación.

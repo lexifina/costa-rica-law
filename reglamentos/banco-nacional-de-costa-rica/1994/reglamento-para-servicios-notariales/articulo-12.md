@@ -1,1 +1,0 @@
-Artículo 12.—Constituye una obligación del Notario confeccionar y tramitar a su costo las escrituras principales adicionales o complementarias, o reproducciones que fueren necesarias, debido a causas imputables a el (sic), las cuales no devengarán honorario alguno.

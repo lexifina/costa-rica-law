@@ -1,1 +1,0 @@
-Artículo 25.—La Comisión de Servicios Notariales, determinará los pasos a seguir para cumplir con lo estipulado en el Artículo 8, de este Reglamento y normalizar la situación a favor del Banco, así como definir, cuando lo amerite, si se eleva el caso a la Corte Suprema de Justicia y/o Colegio de Abogados.

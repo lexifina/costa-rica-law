@@ -1,2 +1,0 @@
-Artículo 16.—Mensualmente la Sección de Formalizaciones confeccionará una lista de operaciones asignadas a cada Notario. Asimismo semestralmente, al finalizar los meses de junio y diciembre, presentará un resumen sobre las operaciones asignadas durante dicho período, ambos informes deberán ser del conocimiento de Junta Directiva General.
-En Oficinas Regionales dicha información se remitirá al coordinador de Crédito Regional respectivo para su seguimiento y control.

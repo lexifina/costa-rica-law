@@ -1,1 +1,0 @@
-Artículo 21.—Los honorarios serán pagados durante los tres días hábiles posteriores a la presentación del documento debidamente inscrito, (tanto de la escritura como de la prenda, si es que esta última existiera), para lo cual todos los Notarios deben tener una, Cuenta Corriente personal con el Banco, en la que se depositaran (sic) los gastos y honorarios respectivos.

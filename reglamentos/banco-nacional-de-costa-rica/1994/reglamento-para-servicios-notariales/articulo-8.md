@@ -1,1 +1,0 @@
-Artículo 8°—Los Notarios Externos del Banco son responsables de cualquier perdida o perjuicio para la Institución que se origine por errores, omisiones o negligencia atribuibles a ellos, en la confección y trámite general de hipotecas, prendas y otro contrato bancario relacionado con los créditos.
