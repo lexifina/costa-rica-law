@@ -1,0 +1,1 @@
+Artículo 2.-Por ser expresión de costumbres tradicionales, típicas y populares, las fiestas religiosas y cívicas que se celebran en enero de cada año en la ciudad de Santa Cruz de Guanacaste se declaran fiestas típicas nacionales.

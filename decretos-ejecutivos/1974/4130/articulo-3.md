@@ -1,0 +1,2 @@
+Artículo 3°- Con el propósito de estimular la música tradicional de marimba y reconocer la alta calidad artística que ha alcanzado el conjunto creado y dirigido por el maestro Ulpiano Duarte, se declara oficial y adscrito al Ministerio de Cultura, Juventud y Deportes la Marimba Diriá.
+Dado en la Casa Presidencial.- San José, a los dieciséis días del mes de setiembre de mil novecientos setenta y cuatro.
