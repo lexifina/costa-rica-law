@@ -1,0 +1,1 @@
+Artículo 2°─ El manejo y destino de los fondos que actualmente se encuentren en poder de la Junta Nacional de Cultura Física, así como los que en adelante produzca el Estadio, queda a cargo de la Secretaría de Gobernación, la cual los dedicará de preferencia a llenar las necesidades del mismo Estadio y a incrementar el desarrollo del deporte.
