@@ -1,1 +1,3 @@
-Artículo 110.— (Derogado por artículo 1 del Decreto Ejecutivo N°27132 de 10 de junio de 1998)
+Artículo 110.— Modificaciones. Modifiqúese el artículo primero del Decreto Ejecutivo No 19932-J del 4 de octubre de 1990, el cual en adelante deberá leerse así:
+"Artículo 1°—Se centraliza en el Registro de Asociaciones de la Dirección General del Registro Nacional, el trámite de autorización e inscripción de Asociaciones que se constituyan al amparo de la Ley de Asociaciones No 218 de 8 de agosto de 1939 y sus reformas".
+(Derogado por artículo 1 del Decreto Ejecutivo N°27132 de 10 de junio de 1998, posteriormente se restablece la vigencia de este artículo mediante artículo 3° del Decreto Ejecutivo N° 27281 de 19 de agosto de 1998)
