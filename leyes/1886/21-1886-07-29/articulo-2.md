@@ -1,0 +1,1 @@
+Art. 2°-Establécese el servicio de muestras en el interior de la República, conforme está adoptado con el exterior, y de acuerdo con la misma tarifa, siempre que su peso no exceda de 250 gramos. Excediendo de este peso se considerarán como encomiendas y pagarán el porte de tales.
