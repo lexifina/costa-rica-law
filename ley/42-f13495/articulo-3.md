@@ -1,0 +1,1 @@
+Art. 3. Todos los empleados mencionados, ora sean propietarios, ora interinos 6 accidentales gozaràn integra la dotacion que respectivamente se les asigna en este decreto, salvo lo dispuesto en el articulo 1l de la tarifa de I° de junio de 1841.
