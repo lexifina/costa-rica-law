@@ -14,3 +14,4 @@ Arancel Consular (1994)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-27 | la propia norma |
+| 2 | 2001-10-08 | Decreto Ejecutivo 29988 (2001-10-08) |

@@ -157,10 +157,7 @@ Por cada hoja | $ 20
 |
 NOTA: Se autentica el documento original en el cual se adhieren los timbres consulares, dejando constancia de que ellos han sido cancelados y adheridos al original en las copias, utilizando el mismo sello que en el original, pero sin pagar timbres adicionales en las copias. |
 |
-44.—Por la legalización de documentos para el despacho de naves lista de tripulantes, lista de pasajeros o declaraciones de no llevarlos, (*manifiesto de carga), zarpe, patente de sanidad y cartas de corrección ), por cada uno (*El presente inciso fue modificado por artículo 1° del Decreto Ejecutivo No 26798 en el sentido de que se elimina el timbre consular en el "manifiesto de carga" y posteriormente eliminado del todo por artículo 1° del Decreto Ejecutivo N° 29988 del 8 de octubre de 2001 en el siguiente sentido: Artículo 1°—Se elimina el numeral 44, artículo 1° del Decreto N° 23118-RE de 14 de marzo de 1994, y sus reformas, referente al cobro del Timbre Consular por la legalización de documentos para el despacho de naves, incluyéndose dentro de estos la lista de tripulantes, lista de pasajeros o declaraciones de no llevarlos, zarpe, patente de sanidad y cartas de corrección. .) | $ 60
-|
-NOTA: El zarpe se refiere al zarpe consular, que no debe confundirse con el zarpe extendido por la Capitanía de puerto para autorizar la salida de una nave del país. |
-|
+44.—DEROGADO por artículo 1° del Decreto Ejecutivo N° 29988 del 8 de octubre de 2001). |
 45.—Por la legalización de las copias o duplicados certificados de los documentos para el despacho de naves, que son obligatorios, por cada uno | $ 30
 |
 NOTA: La legalización obligatoria de las copias de estos documentos debe extenderse a cada copia por separado, tal como se expresa en el inciso anterior en relación con los originales. |
