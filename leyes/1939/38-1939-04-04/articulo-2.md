@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Redúcese a dos céntimos el valor del timbre que deben pagar los cheques bancarios girados y pagaderos en el país. Queda así modificado el artículo 2° de la ley N° 43 de 15 de julio de 1936.

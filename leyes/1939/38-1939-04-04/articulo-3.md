@@ -1,0 +1,5 @@
+ARTÍCULO 3°.-Refórmase el artículo 59 de la Ley General de Bancos, N° 15 de noviembre de 1936, el cual se leer así:
+"Artículo 59.-Los préstamos fiduciarios deberán otorgarse con no menos de dos firmas, y su monto no podrá exceder, por cada persona natural o jurídica, de cien mil colones si el capital pagado del banco es menor de un millón de colones, y de doscientos mil colones si el capital pagado del banco es de un millón de colones o más.
+Si a una misma persona, natural o jurídica, se otorgaren préstamos en cantidades mayores indicadas, deberá exigírsele, además, garantía hipotecaria o prendaria. Los bienes dados en garantía deberán cubrir con la mitad de su valor comercial el monto del préstamo.
+En todo caso podrá el banco exigir que se le presente un estado de la situación económica del prestatario y de la persona o personas que afiancen la operación".
+Dado en el Salón de Sesiones del Congreso.-Palacio Nacional.-San José, a los veintinueve días del mes de marzo de mil novecientos treinta y nueve.
