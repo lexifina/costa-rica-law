@@ -4,6 +4,8 @@ Quedan exentas del impuesto aquí previsto las veladas, tómbolas o ferias cuyo 
 (Así reformado el inciso 1) anterior por el artículo único de la ley N° 561 del 1° de julio de 1946)
 2)- Las rentas que recaude por intereses y amortizaciones que hagan los adjudicatarios de la Junta Nacional de la Habitación y de las "Cooperativas Casas Baratas, La Familia", así como las que en el futuro rindan las inversiones que realice la Caja en ejecución de esta ley, y el producto de las multas establecidas aquí y en la Ley Constitutiva del Seguro Social.
 3)- El veinticinco por ciento del mayor rendimiento que llegue a percibir el Fisco sobre las sumas recaudadas en el año novecientos cuarenta y cuatro, por concepto de impuestos directos de Tributación Territorial, Cedular de Ingresos y Patente Nacional.
+Sin embargo, cuando los porcentajes que quedan indicados produzcan en conjunto una suma anual mayor de quinientos mil colones, el excedente sobre esta suma pasará a formar parte de las rentas nacionales y la Caja Costarricense de Seguro Social sólo tendrá derecho a reclamar los quinientos mil colones indicados. La liquidación se hará anualmente.
+(Así adicionado el párrafo anterior por el artículo 4° de la ley N° 837 del 20 de diciembre de 1946, "Ley Impuesto sobre la Renta y Reformas al Impuesto Territorial")
 4)- Los depósitos judiciales, conforme se expresa en el artículo séptimo.
 5)- El producto de la emisión de bonos u obligaciones hipotecarias que se hagan de conformidad con el inciso f) del artículo anterior.
 6)- La parte de las reservas de la Caja Costarricense de Seguro Social indicada en el inciso g)del artículo segundo.
