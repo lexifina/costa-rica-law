@@ -1,0 +1,1 @@
+Artículo 37.- Cuando se acuerde la internación de un menor, el Juez enviará al establecimiento que deba recibirlo, copia de la resolución dictada, con las observaciones y recomendaciones que considere convenientes.

@@ -1,0 +1,2 @@
+Artículo 44.- Es obligación de los Jueces Tutelares visitar, por lo menos una vez a la semana, los establecimientos de internación de menores de su jurisdicción, con el propósito de verificar su buena marcha, la observancia de las normas legales sobre trato de recluso, la debida aplicación de las medidas y los resultados obtenidos.
+De cada visita levantará el Juez una acta en un libro especial, copia de la cual enviará el director del establecimiento al organismo bajo cuya dirección técnica se encuentre la institución.

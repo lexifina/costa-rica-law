@@ -1,0 +1,1 @@
+Artículo 66.- A fin de obtener cualquier clase de datos, practicar sus diligencias y aplicar las medidas conducentes, los Juzgados Tutelares podrán solicitar el auxilio, que no podrá serles negado, de cualquier institución, organismo u oficina del Estado, así como de los establecimientos mencionados en el artículo 35.

@@ -1,0 +1,1 @@
+Artículo 5º.- Las autoridades judiciales y administrativas que tuvieren conocimiento de que algún menor se encuentra en las condiciones indicadas en el artículo 2º de esta ley, estarán obligados a comunicarlo inmediatamente al Juez Tutelar.

@@ -1,0 +1,1 @@
+Artículo 67.- Todo expediente deberá estar listo para resolver en el término de tres meses a partir del momento en que el menor fue puesto a disposición del Juez; en casos excepcionales el juez prorrogará ese término por un mes más, dejando constancia en los autos.

@@ -1,0 +1,2 @@
+Artículo 9º.- La resoluciones indicadas en el artículo 69 serán comunicadas al Registro Judicial de Delincuentes, y no se suministrarán datos sobre ellas a ninguna autoridad ni se inscribirán en los archivos policíacos.
+Los resúmenes de esas resoluciones no serán inscritos en el casillero de penados que lleva el Registro, sino en una sección especial que deberá establecer esa oficina para efectos estadísticos y de información social, conforme al artículo siguiente.

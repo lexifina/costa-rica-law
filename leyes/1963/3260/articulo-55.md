@@ -1,0 +1,1 @@
+Artículo 55.- El menor será entregado a sus padres o representantes en forma definitiva cuando el hecho sólo amerite amonestación y la capacidad de la familia para impartir disciplina y educación al menor sea satisfactoria a juicio del Juzgado.

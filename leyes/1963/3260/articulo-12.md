@@ -1,0 +1,1 @@
+Artículo 12.- Prohíbese divulgar la identidad de un menor sujeto a la jurisdicción tutelar. Los funcionarios y empleados, los particulares y los responsables de medios de divulgación que violaren esta regla, serán penados con multa de trescientos a mil colones. Tal hecho constituirá una falta de policía de acción pública, y será de conocimiento de los Agentes respectivos.

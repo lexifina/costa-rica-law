@@ -1,0 +1,1 @@
+Artículo 42.- La aplicación de las medidas tutelares se hará por tiempo indeterminado, y su duración dependerá de los resultados que se obtengan con ellas, pero de hecho cesará cuando el menor alcance la mayoría de edad.

@@ -1,0 +1,1 @@
+Artículo 17.- Además de las funciones que le confiera la Ley Orgánica del Poder Judicial, el Secretario será el Jefe del personal y responderá ante el juez de la administración de la oficina. Los jefes de departamento, en materia administrativa, responderán ante el Secretario.

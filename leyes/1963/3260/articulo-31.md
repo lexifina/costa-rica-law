@@ -1,0 +1,1 @@
+Artículo 31.- La libertad asistida consistirá en confiar el menor a su familia o a un guardador, bajo la asistencia del Departamento de Servicio Social, sea del Juzgado o de otro organismo, de acuerdo con las recomendaciones que el Juez estime convenientes.
