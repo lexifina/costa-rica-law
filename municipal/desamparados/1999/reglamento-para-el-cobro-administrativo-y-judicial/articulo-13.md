@@ -1,0 +1,1 @@
+Artículo 13.-Es prohibido para los abogados hacer cualquier tipo de arreglo con el deudor que no haya sido autorizado por la administración, así como recibir pagos o abonos a la deuda, con excepción de la cancelación de sus honorarios.

@@ -1,0 +1,1 @@
+Artículo 16.-EI abogado director podrá realizar arreglos de pago debidamente autorizados por el Departamento de Cobro Administrativo y Judicial, Dirección Financiera o por el Alcalde Municipal. La Institución establecerá las directrices que se deben observar en estos casos.

@@ -1,0 +1,1 @@
+Artículo 11.-Los abogados deberán iniciar los trámites judiciales a más tardar dentro de los quince días posteriores al recibo del caso. Cada tres meses y durante los primeros ocho días de cada período deberán presentar un informe del estado de los procesos a su cargo.

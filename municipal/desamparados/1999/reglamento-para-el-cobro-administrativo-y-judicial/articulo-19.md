@@ -1,0 +1,1 @@
+Artículo 19.-Los profesionales que incumplan las obligaciones que les resulten de este Reglamento, violen las disposiciones relativas a honorarios o incurran en cualquier otra falta contraria a las leyes, serán sancionados con la rescisión del contrato, y la Municipalidad se reserva el derecho de realizar las denuncias correspondientes.

@@ -1,0 +1,1 @@
+Artículo 10.-Recibidas las certificaciones que constituyen el título ejecutivo, el Departamento de Cobro Administrativo y Judicial las distribuirá entre los abogados, tomando en cuenta el rol alfabético que al efecto se establezca. La entrega de certificaciones a los profesionales se hará contra recibo en un libro que se llevará para esa finalidad.

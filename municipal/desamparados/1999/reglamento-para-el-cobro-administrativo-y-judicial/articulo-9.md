@@ -1,0 +1,1 @@
+Artículo 9°-La Oficina que controle ingresos o créditos de la Municipalidad preparará las certificaciones del pendiente de pago del deudor o contribuyente moroso y ordenará retirar los recibos de las oficinas recaudadoras. Esas certificaciones se enviarán de inmediato al Departamento de Cobro Administrativo y Judicial para los efectos del respectivo cobro judicial.
