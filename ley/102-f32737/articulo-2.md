@@ -1,0 +1,1 @@
+Artículo 2: El Poder Ejecutivo dictará las providencias conducentes para que este acto sea solemnizado de la manera más conveniente. Al Poder Ejecutivo.-Dado en el Salón de sesiones en San José, a los dos días del mes de mayo de mil ochocientos cincuenta y tres. Por tanto: EJECUTESE. Palacio Nacional. San José, mayo tres mil ochocientos cincuenta y tres.
