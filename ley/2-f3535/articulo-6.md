@@ -1,0 +1,1 @@
+Art. 6°-El propietario ó inquilino que después de cerrado por el empleado respectivo el tubo ó tubos de la cañería correspondiente á una propiedad cualquiera, abriere de algún modo los conductos para proveerse de agua, incurrirá en una multa de diez á cincuenta pesos, que le podrá ser exigida con apremio, en los mismos términos y condiciones establecidos en el artículo 2o

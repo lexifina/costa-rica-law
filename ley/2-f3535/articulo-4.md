@@ -1,0 +1,1 @@
+Art. 4°-La policía podrá para asegurar el pago de deudas provenientes de estos impuestos, embargar cualesquiera existencias de dichos establecimientos. El derecho de la Muncipalidad sobre tales objetos será preferente al de los demás acreedores.

@@ -1,0 +1,2 @@
+Art. 3°-Los impuestos sobre industrias que tengan establecimiento abierto, sobre casas de comercio ó sobre puestos de venta en las plazas ó mercados públicos, deben satisfacerse por adelantado, so pena de que el establecimiento sea cerrado por la policía ú obligado el interesado á abandonar el puesto que tuviere.
+Si contra esa disposición de la autoridad se continuare el expendio de artículos en tales casas ó puestos, se impondrá al contraventor una multa de cincuenta á cien pesos.
