@@ -1,0 +1,1 @@
+2.—El MINAE, a través de la Dirección de Gestión de Calidad Ambiental (DIGECA), llevará a cada mesa de negociación, una propuesta de meta de reducción, para la zona de control específica, la cual pondrá en conocimiento de los representantes de cada sector para iniciar la negociación.

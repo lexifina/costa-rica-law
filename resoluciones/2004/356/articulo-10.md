@@ -1,0 +1,1 @@
+10.—En los casos que no hubiere representantes a una mesa de negociación o no se llegare a ningún acuerdo en tres meses contados a partir de la primera convocatoria, el MINAE, a través de la DIGECA, fijará de oficio las metas de reducción de la zona de control respectiva.

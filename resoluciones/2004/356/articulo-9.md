@@ -1,0 +1,1 @@
+9.—En caso de no llegarse a un acuerdo en la primera convocatoria, se designará ese mismo día hora, lugar y fecha para continuar las negociaciones. El acuerdo mismo se tendrá como convocatoria, sin necesidad de publicar nuevamente.

@@ -1,0 +1,1 @@
+6.—Cada representante debe solicitar a la Dirección de Gestión de Calidad Ambiental (DIGECA), que le acredite como tal, presentando una copia del acta respectiva, como mínimo tres días antes de la celebración de la mesa de negociación correspondiente.
