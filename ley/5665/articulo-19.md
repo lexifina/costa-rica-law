@@ -3,7 +3,8 @@ Artículo 19.- Los culpables de los delitos tipificados en el artículo anterior
 2) La segunda vez con prisión inconmutable de ocho a treinta días; y
 3) La tercera y posteriores reincidencias con prisión inconmutable de tres a seis meses.
 Dentro de los límites anteriores, el Tribunal Penal competente determinará la pena que debe aplicarse, con las circunstancias modificativas de la responsabilidad.
-En el caso de acaparamiento, definido en el inciso a) del artículo 18 de esta ley, podrá imponerse, además de las penas anteriores, una multa igual a diez veces el valor de la mercadería objeto de dicha infracción. En casos de reincidencia, el Tribunal podrá decretar, además, el cierre del establecimiento de que se trate, de conformidad con las siguientes reglas:
+En el caso de acaparamiento, definido en el inciso a) del artículo 18 de esta ley, podrá imponerse, además de las penas anteriores, una multa igual a diez veces el valor de la mercadería objeto de dicha infracción.
+En casos de reincidencia, el Tribunal podrá decretar, además, el cierre del establecimiento de que se trate, de conformidad con las siguientes reglas:
 a) La primera reincidencia de uno a tres meses de cierre; y
 b) Reincidencias posteriores de tres a seis meses de cierre.
 Se deberá entender que para los efectos de la aplicación de las penas descritas en este artículo, en lo que concierne a especulación definida en el inciso c) del artículo 18 de esta ley, ésta será considerada en las etapas de producción, importación y distribución.
