@@ -1,1 +1,2 @@
-Artículo 96.- Si se tratare de escrituras de sociedades o asociaciones o de actos o contratos complicados se cobrará, fuera de los honorarios del trabajo de notariado, los de abogacía por la redacción de la escritura.
+Artículo 96.- Si se tratare de escrituras de sociedades, asociaciones, arrendamientos o de otros actos o contratos complicados, se cobrará, además de los honorarios de notario, un cincuenta por ciento como honorarios de abogado, no pudiendo ser inferiores estos últimos, en ningún caso, de cien colones.
+(Así reformado por el artículo 6° de la ley N° 1128 del 17 de enero de 1950 “Tarifas de Honorarios de Abogado y Notario y reforma Ley Orgánica de Notariado”)
