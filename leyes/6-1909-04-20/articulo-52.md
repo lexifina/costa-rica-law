@@ -1,0 +1,1 @@
+Articulo 52.-El uso indebido de la razón social, más de la exclusión potestativa que autoriza el artículo 28 en su caso, dar lugar que los terceros lesionados puedan ocurrir vía represiva si el abuso llega revestir caracteres dolosos o fraudulentos, lo mismo que la indemnización de daños y perjuicios en todo evento y en favor de cualesquiera perjudicados.

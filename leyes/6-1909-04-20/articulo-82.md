@@ -1,0 +1,2 @@
+Artículo 82.-Si la compañía no llega constituirse dentro de los términos previstos o naturales, los suscritores podrán repetir sumariamente los pagos que hubiesen realizado, seis meses después de su fecha. Que, si ellos probaren que las dilaciones habidas en la formación de la empresa obedecen culpa o abandono de los fundadores, el reclamo y su ventilación pueden ser inmediatos, haciéndose refluir entonces sobre los culpables la condenatoria en ambas costas y la indemnización de los daños y perjuicios nacidos de la demora.
+2°. -De la administración

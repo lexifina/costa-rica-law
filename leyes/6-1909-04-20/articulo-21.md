@@ -1,0 +1,1 @@
+ARTÍCULO 21.-Tampoco podrán los socios, sin incurrir en las responsabilidades consiguientes y motivar su exclusión, extraer del fondo social otras cantidades que las que el convenio les asigne para sus gastos personales.

@@ -1,0 +1,1 @@
+Artículo 48.-Los efectos de los actos que ejecute o de los contratos que celebre un socio administrador por cuenta de la compañía recaen sobre la misma, aun cuando no se hubiese consignado el carácter con que obra el referido socio, si la intención de proceder en nombre de la empresa se desprende de las circunstancias del caso.

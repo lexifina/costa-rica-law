@@ -1,0 +1,1 @@
+Articulo 40.-La sociedad es en nombre colectivo cuando sus socios ejercen el comercio bajo una razón social común y siempre que de una manera ilimitada todos respondan personal y solidariamente de las obligaciones sociales.

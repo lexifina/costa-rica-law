@@ -1,0 +1,1 @@
+Artículo 152.-La prescripción especial estatuida por el artículo 33 es aplicable las obligaciones contraídas bajo el imperio de la legislación anterior, siempre que ellas les faltare m s de cinco años para prescribirse.

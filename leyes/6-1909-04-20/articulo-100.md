@@ -1,0 +1,1 @@
+Artículo 100.-Cualquier accionista o suma de accionistas que representen un quinto del capital social, puede exigir en cualquier tiempo que se convoque la asamblea general para que resuelva los puntos concretos que indicarán. Si dentro de ocho días no se accediere su petición, el juez la convocar por cuenta de las omisos.

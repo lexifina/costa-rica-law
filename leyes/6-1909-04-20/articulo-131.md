@@ -1,0 +1,1 @@
+Artículo 131.-También bajo la reserva de que la contratación no lo impida, puede la asamblea general reponer al socio gerente revocado, lo mismo que al fallecido o incapacitado; pero siendo varios los socios administradores, no ser válida la reposición de uno de ellos con otro, sin el asentimiento expreso de todos.

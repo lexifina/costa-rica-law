@@ -1,0 +1,2 @@
+Artículo 123.-Sin perjuicio de las otras obligaciones que la ley le impone, el comité‚ de vigilancia está llamado fiscalizar la gestión de los intereses de la compañía, en todos los ramos administrativos.
+Puede en cualquier momento, y lo hará por lo menos una vez en el año, imponerse de la marcha de los negocios de la empresa, asistiendo las reuniones del Consejo, visando los libros de contabilidad y procediendo al parqueo de caja u otras medidas de contraste.

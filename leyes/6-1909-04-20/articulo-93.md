@@ -1,0 +1,3 @@
+Artículo 93.-Si de los balances o en cualquier forma apareciere que se ha disminuido en un cincuenta por ciento el capital social, o que el mismo se redujo menos del mínimum previsto para la prosecución de operaciones, la administración debe convocar con urgencia la asamblea general, enterándola de la merma ocurrida.
+Si el activo de la empresa no cubre su pasivo, todos y cada uno de los socios informados pueden promover la quiebra, y los administradores deben hacerlo.
+En caso de solvencia, queda juicio de la asamblea general, ya la reconstitución del capital social, ya su limitación la suma restante, ya la disolución de la compañía, con arreglo los requisitos creados por los artículos 4°., 9°. y 109.

@@ -1,0 +1,3 @@
+Articulo 41.-La razón social es la fórmula con que se denomina la empresa como persona moral independiente de sus socios; y debe componerse del nombre de uno o más de esos socios, comprendiendo además los omitidos en un apéndice que hará mención de su compañía.
+Tan solo los nombres de los socios o sus firmas pueden emplearse en la composición de la razón social, no ser que en un aditamento se explique la ficción de cualquier nombre convencional.
+Las sociedades infractoras incurrirán en una multa de ciento quinientos colones, aparte del cargo de indemnizar los perjudicados con la simulación, de todos los daños y perjuicios que se les hubiere seguido.

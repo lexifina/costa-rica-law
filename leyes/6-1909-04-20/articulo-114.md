@@ -1,0 +1,2 @@
+Artículo 114.-Las acciones que, debiendo estar pagadas, se encuentren en descubierto, pueden ser vendidas en almoneda pública, por cuenta de sus dueños, quince días después de apercibidos ‚estos, en la forma de publicación que indica el artículo 79.
+Si no hubiere postores, la sociedad puede imputar el saldo adeudado pérdidas y ganancias, apropiándose las cantidades enteradas buena cuenta, o deducir contra los tenedores o sus causantes las acciones que preste margen su responsabilidad.

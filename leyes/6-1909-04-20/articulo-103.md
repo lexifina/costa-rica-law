@@ -1,0 +1,1 @@
+Artículo 103.-En la asamblea general cada acción propia cuenta por un voto hasta diez. De este número en adelante, cada cinco acciones constituyen un voto hasta ciento. De ahí en adelante cada diez acciones serán un voto. Las fracciones de cinco o diez no se contarán para el cómputo de sufragios.

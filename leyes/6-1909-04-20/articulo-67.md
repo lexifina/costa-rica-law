@@ -1,0 +1,1 @@
+Artículo 67.-En la sociedad anónima la responsabilidad de todos los socios o accionistas se halla limitada por el monto de sus aportes, y el comercio se ejerce por medio de mandatarios revocables y bajo la designación del objeto de la empresa o cualquiera otra denominación adecuada, que debe diferir de la de otras compa¤¡as preexistentes en el país.

@@ -1,0 +1,1 @@
+Artículo 139.-En las sociedades en nombre colectivo y en comandita simple, los socios gestores ejercer n el cargo de liquidadores, menos que uno o más de ellos, o todos los socios ajenos la administración, exijan el empleo de otro personal, de dentro o fuera de la compañía, el cual ser nombrado por mayoría absoluta, recurriéndose al Juez si no la hubiere.

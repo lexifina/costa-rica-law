@@ -1,0 +1,1 @@
+Articulo 15.-El socio que aportare créditos, salvo estipulación contraria, garantiza por el mismo hecho su cumplida cancelación, en términos que, una vez ejecutado infructuosamente el deudor, recaer sobre el referido socio la obligación de satisfacer las sumas no cubiertas, más de sus intereses desde la fecha del vencimiento, y los gastos originados por la cobranza.

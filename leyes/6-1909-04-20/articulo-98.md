@@ -1,0 +1,1 @@
+Artículo 98.- Si la estipulación que previene el inciso 10° del artículo 7 no determina los medios que se arbitrarán para la convocatoria de la asamblea general, se proceder convocarla ordinariamente por el Consejo de administración, mediante un aviso insertado en el diario oficial.

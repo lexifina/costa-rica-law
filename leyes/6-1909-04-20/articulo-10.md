@@ -1,0 +1,3 @@
+Artículo 10.-Una vez que haya expirado el término de duración de la empresa, ‚esta no podrá prorrogarlo sin inscribir y publicar el acuerdo que sobre el particular se suscitara.
+Los acreedores personales de los socios ilimitadamente responsables, cuyos créditos se registren en un título ejecutivo, gozarán de un término de treinta días para oponerse la prórroga de la sociedad.
+Presentada en tiempo y una vez anotada en el Registro, la demanda respectiva pondrá salvo los derechos del opositor, los cuales ser n, para lo de adelante de mejor condición legal que los nacidos de compromisos posteriores que pudieran hacer valer los acreedores de la sociedad.

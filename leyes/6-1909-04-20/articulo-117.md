@@ -1,0 +1,2 @@
+Artículo 117.-Antes de producir la cuenta de intereses y dividendos, se apartar un cinco por ciento de las ganancias netas del año, destinado la formación de un fondo de reserva, mientras este no cubra el décimo del capital social.
+Solamente sobre el remanente de los beneficios podrá servirse intereses o dividendos; pero los accionistas no quedan obligados restituir los que hubieren percibido de buena fe en virtud de balances aprobados.

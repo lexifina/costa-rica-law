@@ -1,0 +1,2 @@
+Artículo 87.-En una responsabilidad semejante incurrirán los administradores y el gerente, para lo que afecte la sociedad y terceros lesionados, con motivo de las inexactitudes que contengan sus referencias del estado de los aportes y sus cuentas de dividendos, así como por la inobservancia de las reglas que se relacionen con la contabilidad y por la inejecución de las medidas legales de la asamblea general.
+Esta responsabilidad ser eludida por aquellos que, siendo ajenos la infracción, la descubran con arreglo al apartado final del artículo 85.

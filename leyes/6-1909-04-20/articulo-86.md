@@ -1,0 +1,3 @@
+Artículo 86.-El gerente y el Consejo de administración deben, en el manejo de los negocios sociales, respetar en primer lugar las prohibiciones de la ley, luego los límites o restricciones impuestos por la escritura fundamental, y finalmente las disposiciones que legalmente emanen de la asamblea general.
+En caso contrario, responderán solidariamente con la sociedad para con la persona damnificada, aun cuando el acuerdo tomado en desobediencia de la ley o de las cláusulas constitutivas se funde en una decisión de la asamblea general.
+La responsabilidad del Consejo no gravar aquel de sus miembros que se hubiere opuesto la violación.

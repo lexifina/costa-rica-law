@@ -1,0 +1,1 @@
+Artículo 101.-Ni el gerente ni ninguno de los miembros del Consejo de administración o del comité‚ de vigilancia, ni ninguno de los empleados de la compañía podrá representar en la asamblea uno o más accionistas.

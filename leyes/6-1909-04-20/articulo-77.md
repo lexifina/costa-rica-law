@@ -1,0 +1,2 @@
+ARTíCULO 77.-Los suscritores harán el entero del quinto que prescribe el artículo 72, en el establecimiento de depósitos judiciales, la orden del Juez Civil y de Comercio del domicilio social, para que en su oportunidad puedan percibirlo los administradores de la compañía.
+Esos administradores no podrán, por su parte, retirar las sumas que así se consignen sin previa justificación de su personería y de que la sociedad ha sido definitivamente constituida y su escritura de fundación inscrita y publicada con arreglo derecho.

@@ -1,0 +1,2 @@
+Artículo 97.-Los accionistas deberán reunirse en asamblea general, por lo menos una vez al año.
+En su reunión ordinaria no podrá la asamblea general tratar del aumento o reducción del capital; ni de la fusión de la compañía con otra u otras; ni de la disolución prematura; ni de la modificación de la clausulas fundamentales, salvo que, con antelación de quince días, por lo menos, se haya hecho la convocatoria respectiva, con la nómina precisa de cuáles de esos asuntos extraordinarios van ser discutidos.

@@ -1,0 +1,1 @@
+Artículo 119.-Los síndicos depositar n esos documentos y piezas, ocho días antes del señalado para la reunión de la asamblea general, en las oficinas de la administración, en donde estarán la orden de los accionistas que quieran revisarlos.

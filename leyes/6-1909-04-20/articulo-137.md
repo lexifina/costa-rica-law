@@ -1,0 +1,1 @@
+Artículo 137.-Si la escritura de fundación o los estatutos hubiesen omitido determinar los trámites de la liquidación y reparto del haber social, se estar lo dicho en los artículos 135 y 138 140, inclusive.

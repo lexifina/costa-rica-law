@@ -1,0 +1,1 @@
+Artículo 89.-El consejo de administración delibera con sujeción las reglas establecidas por la escritura constitutiva, y falta de ellas en armonía con las que son peculiares de las asambleas deliberantes.

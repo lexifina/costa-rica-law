@@ -1,0 +1,2 @@
+Artículo 90.-La administración y la dirección deben velar muy especialmente porque los libros de comercio se ajusten las prescripciones legales.
+A más de los libros exigidos por la ley de contabilidad mercantil, llevar la sociedad un registro público de accionistas, que deber indicar el nombre y el domicilio de los suscritores, el número de sus acciones y el estado de sus enteros, lo mismo que las declaraciones de traspaso de acciones nominales y la minuta de las conversiones practicadas.
