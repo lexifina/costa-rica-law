@@ -14,3 +14,4 @@ Reglamento sobre Vehículos de Carga.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1960-05-12 | la propia norma |
+| 2 | 1962-09-14 | Decreto Ejecutivo 3 (1962-09-14) |
