@@ -1,6 +1,7 @@
 Artículo 4°-Créase por parte del Gobierno de la República un Comité Director para el Proyecto Osa-Golfito CEE NA/8506, el cual estará integrado de la siguiente forma:
 El Ministro de Agricultura y Ganadería, quien lo presidirá.
-El Ministro de Planificación Nacional y Política Económica.
+*El Ministro de Desarrollo Rural o su representante.
+*(Así reformado mediante el artículo 1° del decreto ejecutivo N° 23763 del 17 de octubre de 1994).
 El Presidente Ejecutivo del Instituto de Desarrollo Agrario.
 El Gerente del Banco Nacional de Costa Rica.
 El Delegado de la Comunidad Europea en Costa Rica.

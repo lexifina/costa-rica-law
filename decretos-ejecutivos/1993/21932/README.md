@@ -14,3 +14,4 @@ Autoriza a la Comisión de las Comunidades Europeas a desarrollar en Costa Rica 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-03-03 | la propia norma |
+| 2 | 1994-10-03 | Decreto Ejecutivo 23763 (1994-10-17) |
