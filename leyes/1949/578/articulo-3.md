@@ -1,0 +1,1 @@
+Artículo 3°-La forma de pago de las contribuciones la acordará el citado Concejo, respetando en lo posible las proposiciones y recomendaciones de la dependencia administrativa que al efecto el Concejo designará y delegando en dicha dependencia lo relativo a la particularización de las tasaciones y de las concesiones o facilidades otorgadas para efectuar el pago.
