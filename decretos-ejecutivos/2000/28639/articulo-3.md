@@ -4,3 +4,4 @@ En ambos casos deben deducirse las exclusiones de gasto señaladas en el artícu
 La Autoridad Presupuestaria realizará las modificaciones necesarias en el procedimiento de cálculo, con el fin de ajustarlo a las necesidades institucionales y hacerlo consistente con los límites de gasto fijados en el artículo 1° del Decreto Ejecutivo N° 28639-H y sus reformas.
 (Así reformado por el artículo 1 del Decreto Ejecutivo N° 29515 de 8 de mayo del 2001)
 (Modificados los límites de gasto corriente presupuestario y gasto corriente efectivo, mediante el Decreto Ejecutivo N° 29640 de 11 de junio del 2001)
+(Modificados los límites de gasto corriente presupuestario y gasto corriente efectivo, mediante el artículo 2 del Decreto Ejecutivo N° 29734 de 07de agosto del 2001)
