@@ -1,0 +1,1 @@
+Artículo 22.- Los planes y programas de instrucción para la Guardia Rural, serán elaborados por la Dirección y técnicos de la Escuela Nacional de Policía del Ministerio de la Presidencia, en colaboración con las personas que designe para tal efecto, el Ministerio de Gobernación, Policía, Justicia y Gracia.
