@@ -1,0 +1,2 @@
+Artículo 137.—A la persona física o jurídica, titular de un permiso o una concesión, que realice actividades de exploración o explotación minera una vez suspendido el permiso o la concesión, se le cancelará definitivamente el permiso o la concesión y no se le otorgará ningún otro dentro del plazo de cuatro años, contados a partir de la firmeza de la resolución que para tal efecto emita la DGM.
+(Así adicionado por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002)

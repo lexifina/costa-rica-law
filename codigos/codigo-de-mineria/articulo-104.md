@@ -1,4 +1,2 @@
-TITULO XVI
-Del Registro Nacional Minero
-Artículo 108.- Créase el Departamento de Registro Nacional Minero, el cual tendrá a su cargo, especialmente, el trámite de las solicitudes de permisos y concesiones, el cobro de los cánones de superficie y la organización y funcionamiento de un registro público denominado Registro Minero. Este Departamento dependerá de la Dirección de Geología, Minas e Hidrocarburos.
-(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 104 al 108)
+Artículo 104.- En el caso de áreas y terrenos forestales, así como en el caso de reservas biológicas e hidrográficas declaradas por ley o por el Poder Ejecutivo, que no conlleven prohibición de explotación en esta ley u otras leyes especiales, los interesados en realizar actividades mineras en ellas, deberán demostrar con estudios de factibilidad, de costo beneficio y de costo comparativo, la mayor utilidad económica o social para el Estado, si las actividades se realizaran o si las áreas se mantuvieran bajo cobertura forestal o como cuencas hidrográficas.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 100 al 104)

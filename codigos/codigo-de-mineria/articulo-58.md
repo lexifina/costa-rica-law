@@ -1,4 +1,3 @@
-TITULO XI
-De la extinción de los permisos y concesiones
-Artículo 62.- Sin perjuicio de los derechos que corresponden al Estado, los permisos y concesiones se extinguirán por las siguientes causas: vencimiento del plazo, renuncia total, nulidad y caducidad.
-(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 58 al 62)
+Artículo 58.- Se establece un impuesto del diez por ciento sobre el monto de toda exención de impuestos que conceda el Estado a la actividad minera. El producto de este impuesto será para fomentar la investigación geológica, preparar los cuadros técnicos e impulsar, por parte del Estado, la explotación de las riquezas minerales del país.
+A la Dirección de Geología, Minas e Hidrocarburos le corresponde elaborar los presupuestos correspondientes, para fijar el destino de lo recaudado mediante el presente impuesto.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 54 al 58)

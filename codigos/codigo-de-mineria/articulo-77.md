@@ -1,2 +1,7 @@
-Artículo 81.- Todo aquel que tuviere en trámite, o que le hubiese sido otorgado un permiso o concesión anteriores sobre la misma área, o un derecho preferente, podrá interponer oposición a la solicitud dentro del plazo de quince días, contados desde la fecha de la última publicación. También podrá interponer oposición todo aquel que, sin tener derecho preferente, permiso o concesión de ninguna especie, esté realizando trabajos de explotación de placeres a mano, en los mismos terrenos, desde antes de la presentación de la solicitud, siempre que las labores ejecutadas así lo justifiquen. Acogida la oposición, la Dirección de Geología, Minas e Hidrocarburos determinará la extensión que continuará en poder del oponente.
-(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 77 al 81)
+2.- De la solicitud de concesión de explotación.
+Artículo 77.- La solicitud de concesión de explotación contendrá los datos indicados en los incisos a), b), c), ch), d), e), f), g), j) y k) del artículo precedente y, además, los siguientes:
+a) Manifestación de si se ha obtenido, con anterioridad, un permiso de exploración sobre la misma área y, en tal caso, los detalles, incluso las fechas.
+b) Nombres de las sustancias minerales de interés económico que se propone explotar.
+c) Documentación técnica referente al área solicitada, que determine la posición, naturaleza y características del yacimiento; programa de trabajo inicial de la explotación e inversión mínima por realizar. Estos documentos deberán ser refrendados por un geólogo o por un ingeniero de minas, debidamente incorporado a su respectivo colegio profesional.
+ch) Las demás que señalen esta ley y su reglamento.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 73 al 77)

@@ -1,0 +1,2 @@
+Artículo 111.- El Registro será público y cualquier persona podrá examinarlo y solicitar, a su costa, copias autorizadas y certificaciones. El Reglamento determinará las inscripciones que proceda hacer en cada uno de los registros particulares, así como la forma, solemnidades y requisitos de las mismas.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 107 al 111)
