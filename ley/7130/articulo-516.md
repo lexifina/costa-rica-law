@@ -1,4 +1,2 @@
-ARTICULO 516.- Entrega del expediente.
-Aceptado el cargo por los árbitros y garantizadas ambas costas, el
-juez o alcalde entregará el expediente al árbitro o tribunal para su
-tramitación.
+ARTÍCULO 516.- Entrega del expediente.
+(Derogado por el artículo 75 de la Ley de Resolución Alterna de Conflictos No.7727 de 9 de diciembre de 1997)

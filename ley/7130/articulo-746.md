@@ -1,9 +1,3 @@
-ARTICULO 746.- Competencia del juez del concurso.
-Una vez promovido el concurso, el juez llamado a intervenir en éste,
-será el único competente para conocer de los procesos atraídos a ese
-concurso, a los que se refiere el artículo trasanterior.
-Desde que se hubiere promovido el concurso, se decretará la
-atracción prevenida en el artículo 744.
-El auto en el que se manden a pasar al juez del concurso los procesos
-pendientes, o los del fuero de atracción que se inicien contra éste, se
-proveerá aun de oficio.
+ARTÍCULO 746.- Solicitud admisible
+Si el juzgado estimare admisible la solicitud, declarará abierto el proceso; nombrará un curador específico, con los mismos requisitos exigidos en los otros procesos concursales; emplazará a los acreedores, mediante aviso que se publicará por una vez en un periódico de circulación nacional para que ellos, dentro de quince días, se apersonen a legalizar sus créditos; asimismo, dispondrá, en general, el cumplimiento de las medidas cautelares y de investigación que estime adecuadas para establecer y asegurar la situación del deudor, y para alcanzar el objeto del proceso.
+(Así adicionado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996. El antiguo artículo 746 es ahora 769)

@@ -1,16 +1,9 @@
-CAPITULO XI
-Sucesiones
-Sección primera
-Disposiciones generales
-ARTICULO 876.- Prueba de fallecimiento o de la muerte presunta.
-Para promover el aseguramiento de bienes o el procedimiento
-sucesorio, sea testado o intestado, deberá demostrarse, mediante
-certificación, el fallecimiento o la declaración de muerte de la persona
-de cuya sucesión se trate.
-Cuando por circunstancias graves que el juez calificará, no pueda
-presentarse esa certificación, podrá probarse la muerte por otro medio,
-con carácter provisional, pero la certificación deberá presentarse en todo
-caso para efectos de la declaratoria de herederos.
-Las sucesiones podrán ser puestas en estado de concurso o quiebra en
-los mismos casos que las particulares; y si lo fueren, se observará el
-procedimiento establecido para estos procesos.
+Sección segunda
+Presunción de muerte
+ARTÍCULO 876.- Solicitud y declaración.
+Para declarar la muerte presunta de una persona, se observará el siguiente procedimiento:
+1) Como hechos de la solicitud, deberán expresarse los que indica el artículo 60 del Código Civil.
+2) Demostrados los hechos, el juez declarará la muerte presunta del desaparecido y ordenará transcribir lo resuelto al Registro Civil, para su inscripción. La resolución se publicará de la manera indicada en el inciso 3) del artículo 849 (*).
+(* El artículo indicado es ahora el 872)
+3) Si los bienes estuvieren repartidos y no les fuere disputada a los poseedores su calidad correspondiente, se les tendrá por tales y se cancelarán las garantías dadas por ellos; y si no se hubieren repartido los bienes, se promoverá por separado el proceso sucesorio del causante.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 853 al 876)

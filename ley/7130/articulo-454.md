@@ -1,14 +1,3 @@
-ARTICULO 454.- Posesión y cobro de alquileres adeudados.
-La autoridad de policía pondrá al actor en perfecta posesión de la
-cosa, para lo que, si fuere necesario, sin más trámite practicará el
-allanamiento; expulsará a todo aquél que se opusiere, sin atender
-cualquier orden de embargo u otra semejante, la cual podrá ejecutarse, si
-procediere, una vez que se haya efectuado la expulsión.
-En el caso de que el demandado no pudiere retirar los muebles en el
-acto de la expulsión, la autoridad deberá ponerlos en depósito, cuyos
-gastos deberán ser cubiertos por aquél.
-Declarado con lugar el desahucio por resolución firme, el actor podrá
-gestionar, en forma de incidente que se tramitará en pieza separada, la
-aplicación del artículo 1143 del Código Civil sobre los bienes que sean
-legalmente embargables, la liquidación y el cobro de los alquileres
-debidos, sus intereses y ambas costas del incidente.
+ARTÍCULO 454.- Cobro de alquileres insolutos y otros y derecho de retención.
+El actor podrá gestionar, en proceso incidental que se tramitará en pieza separada, el cobro de los alquileres insolutos y de los servicios y gastos correspondientes al arrendatario. Por la misma vía, el actor podrá ejercer el derecho de retención sobre los bienes del arrendatario y sus familiares, conforme lo establece el artículo 66 de la Ley general de arrendamientos urbanos y suburbanos, para lo cual esos bienes se asegurarán, mediante diligencia de embargo.
+(Así reformado por el artículo 131 de la Ley de Arrendamientos Urbanos No.7527 del 10 de julio de 1995)

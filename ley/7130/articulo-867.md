@@ -1,12 +1,12 @@
-ARTICULO 867.- Cosa determinada.
-Si el objeto debido fuere una cosa determinada en su
-individualidad y pagadera, sea en el lugar en el que ella se encuentre o
-en otro lugar que no sea el del domicilio del acreedor, o si el objeto no
-fuere determinado sino en cuanto a su especie, no habrá necesidad de que
-las ofertas sean reales, sino que bastará con que el funcionario intime al
-acreedor, para que ocurra a recibir lo que se le debe, al lugar en el que
-ha de hacerse el pago. En el acta se consignará la intimación hecha y se
-determinará por indicaciones precisas el objeto que forme la materia de la
-prestación.
-En los casos de este artículo, las ofertas serán reales si el pago
-debe hacerse en el domicilio del acreedor.
+Sección segunda
+Curatela
+ARTÍCULO 867.- Legitimación.
+La Procuraduría General de la República podrá pedir el nombramiento
+o la remoción de un curador para una persona declarada en estado de
+interdicción.
+(Así reformado por el artículo 71 de la Ley sobre Igualdad de
+Oportunidades para las Personas con Discapacidad No.7600 del 2 de mayo de
+1996)
+(La numeración de este artículo fue así modificada por el artículo 1º
+de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo
+844 al actual)

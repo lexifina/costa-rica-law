@@ -1,4 +1,2 @@
-ARTICULO 529.- Ejecución del laudo.
-Una vez firme, el laudo se ejecutará por el juzgado o alcaldía que
-corresponda, a lo cual serán aplicables las normas sobre ejecución de
-sentencias.
+ARTÍCULO 529.- Ejecución del laudo.
+(Derogado por el artículo 75 de la Ley de Resolución Alterna de Conflictos No.7727 de 9 de diciembre de 1997)

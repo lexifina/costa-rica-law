@@ -1,4 +1,4 @@
-ARTICULO 447.- Revocatoria de la ejecución.
+ARTÍCULO 447.- Revocatoria de la ejecución.
 En cualquier tiempo, hasta tanto no se dicte sentencia en segunda
 instancia, si el ejecutado o un tercer opositor presentare un documento
 auténtico que destruya la fuerza del que haya servido para despachar la

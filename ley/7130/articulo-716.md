@@ -1,17 +1,3 @@
-ARTICULO 716.- Continuación del negocio.
-Inmediatamente después dedictada la resolución en la que se declare
-la apertura del proceso, y aunque no estuviere firme, el juzgado ordenará
-un estudio financiero del negocio y de sus posibilidades de recuperación
-económica, y si lo considerara procedente ordenará la continuación del
-negocio por un plazo no mayor de tres años, y nombrará, previo informe del
-curador, a la persona que tendrá a su cargo la administración.
-Este nombramiento podrá recaer en uno de los bancos estatales.
-El nombramiento de administrador no libera al curador de su deber
-de vigilar por la buena marcha del negocio. Para que colaboren con él y lo
-asesoren en esas funciones, el juzgado podrá designar un comité de
-acreedores.
-Si durante la administración se advirtiere que la empresa ha llegado
-a ese estado por una administración fraudulenta, el administrador o el
-comité de acreedores estarán en la obligación de ponerlo en conocimiento
-del juzgado, a fim de que éste lo informe al Ministerio Público para los
-fines penales correspondientes.
+ARTÍCULO 716.- Solicitud de los acreedores
+Los acreedores deberán expresar, sucintamente, el motivo de su solicitud y aportarán las pruebas en que se basan para sostener que la empresa se halla en el supuesto del artículo 709; además, presentarán, como fundamento de su derecho, un título ejecutivo o cualquier documento privado que, aunque no tenga esa condición, pueda ser considerado verdadero a criterio del juzgado, sin que necesariamente la obligación esté vencida.
+(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)

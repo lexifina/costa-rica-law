@@ -1,12 +1,12 @@
-ARTICULO 758.- Avalúo.
-El avalúo de los bienes se hará tan pronto lo solicite el curador o
-lo ordene el juez.
-Se practicará por un perito, de nombramiento del juez; éste podrá
-nombrar varios peritos, si la naturaleza de los bienes fuere diversa.
-En el caso de rechazo total o parcial, se practicará nuevo avalúo
-en la forma que disponga el juez.
-El curador no podrá vender bienes por menos de su avalúo aprobado,
-salvo autorización expresa de los acreedores para que lo haga por una suma
-menor. En este caso el juez podrá negar la autorización si lo juzgare
-inconveniente, o concederla, previa audiencia a los acreedores por el
-plazo de tres días.
+ARTÍCULO 758.- Recursos
+Las resoluciones que se dicten tendrán recurso de revocatoria y, con las excepciones resultantes de la ley, únicamente cabrá el de apelación contra las siguientes:
+1.- La que rechace de plano la petición de convenio.
+2.- La que se pronuncie sobre el concordato.
+3.- La que declare insubsistente el procedimiento o el convenio ya aprobado.
+4.- La que fije honorarios.
+5.- La que resuelva sobre autorizaciones.
+6.- La que resuelva o anule el concordato.
+7.- La que se pronuncie sobre gestiones de terceros o resuelva cuestiones sustanciales, no reguladas expresamente en las disposiciones relativas a este procedimiento.
+Si la cuantía del negocio lo permitiere, la sentencia que se pronuncie sobre el convenio, sobre su resolución o nulidad, tendrá, además, recurso de casación.
+En lo pertinente, se aplicará lo dispuesto en el artículo 741.
+(Así adicionado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996. El antiguo artículo 758 es ahora 781)

@@ -1,6 +1,6 @@
-ARTICULO 722.- Conversión en convenio preventivo.
-Si se denegare la apertura del proceso, o cuando, abierto éste, se
-estuviere en alguno de los casos del artículo 724, antes de decretar el
-concurso o quiebra, el juzgado dará audiencia por tres días al deudor,
-para que manifieste si opta por proponer un convenio preventivo y, si lo
-pidiere, podrá darle inicio.
+ARTÍCULO 722.- Remuneración del interventor
+Por el trabajo como supervisor y fiscalizador en la ejecución del plan de salvamento, el interventor devengará honorarios que serán equivalentes, por lo menos, a cinco salarios base mensuales del oficinista 1 que aparece en la relación de puestos de la Ley de Presupuesto Ordinario de la República vigente en el año correspondiente. No obstante, si la autoridad judicial, mediante resolución razonada, decreta el desapoderamiento de la empresa en los términos del inciso 6) del artículo 719, el interventor devengará una remuneración equivalente al salario del gerente general de la empresa por intervenir.
+En cualquier caso, si el interventor fuere removido de su cargo, perderá el derecho de percibir honorarios a partir de la firmeza de la resolución que así lo ordene. Si esto sucediere, no tendrá obligación de reintegrar las sumas ya percibidas.
+Si, conforme a lo estipulado en el artículo 739 de esta ley, el juez declarare cumplido el proceso antes de vencerse el plazo originalmente establecido, el interventor recibirá una bonificación igual al ciento por ciento (100%) de los salarios que dejaría de percibir por la conducción eficaz del proceso.
+Los honorarios del interventor se cancelarán mensualmente y la bonificación, a más tardar en la misma fecha en que hubiere terminado el proceso.
+(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)

@@ -1,13 +1,4 @@
-ARTICULO 250.- Reconocimiento judicial y pruebas pericial
-testimonial.
-Antes de presentar la demanda antes de que se ordene la práctica de
-las pruebas, podrá solicitarse y decretarse reconocimiento judicial cuando
-haya urgencia en hacer constar el estado de los lugares, y el estado, la
-calidad o la condición de las cosas, susceptibles de apreciación por el
-juez y que pueden cambiar o desaparecer en cualquier momento. El
-reconocimiento podrá completarse con prueba pericial, si fuere apropiada
-a criterio del juez.
-También podrá solicitarse y decretarse, en las oportunidades dichas,
-examen de testigos, cuando éstos sean ancianos o estén para ausentarse
-indefinidamente del país, y cuando haya otro motivo por el cual pueda
-temerse la imposibilidad de su examen en la fase probatoria.
+ARTÍCULO 250.- Reconocimiento judicial, pruebas pericial y testimonial.
+Antes de presentar la demanda, o antes de que se ordene la práctica de las pruebas, podrá solicitarse y decretarse reconocimiento judicial cuando haya urgencia en hacer constar el estado de los lugares y el estado, la calidad o la condición de las cosas, susceptibles de apreciación por el juez y que pueden cambiar o desaparecer en cualquier momento. El reconocimiento podrá completarse con prueba pericial, si es apropiada a criterio del juez.
+(Así reformado el párrafo anterior por el artículo 4º de la ley Nº 7421 del 18 de julio de 1994)
+También podrá solicitarse y decretarse, en las oportunidades dichas, examen de testigos, cuando éstos sean ancianos o estén para ausentarse indefinidamente del país, y cuando haya otro motivo por el cual pueda temerse la imposibilidad de su examen en la fase probatoria.

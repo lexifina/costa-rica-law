@@ -1,10 +1,3 @@
-ARTICULO 837.- Ejercicio de la tutela.
-Garantizada en forma la administración de la tutela, e inscrita la
-hipoteca que hubiere dado el tutor, o practicada cualquier otra diligencia
-que el juez haya creído conveniente para la eficacia de la garantía que se
-hubiere rendido, el juez decretará auto en el que se facultará al tutor
-para entrar en el pleno ejercicio de la tutela.
-De este auto se dará certificación, a fin de que el tutor pueda
-acreditar su personalidad.
-Dicha certificación deberá contener, además, lo que previene el
-artículo 835.
+ARTÍCULO 837.- Oposición maliciosa.
+Si la oposición se declarare maliciosa, se condenará al opositor a pagar los daños y perjuicios, y se impondrán cinco días multa, aplicables a los fondos de educación.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 814 al 837)

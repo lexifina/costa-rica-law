@@ -1,5 +1,3 @@
-ARTICULO 789.- Actas.
-El acta de toda junta será firmada por el juez, su secretario o
-testigos, y por los acreedores presentes, el curador y el concursado, si
-asistieren. Si alguno de éstos se hubiere ausentado de la junta antes de
-su terminación, no quisiere o no pudiere firmar, se hará constar así.
+ARTÍCULO 789.- Permanencia y demanda.
+Los acreedores con privilegio sobre determinado bien que hubieren sido aceptados, podrán permanecer en el concurso para que allí mismo se les pague, o si su crédito estuviere vencido podrán también, con sus títulos y la certificación en lo conducente del auto de aceptación, demandar por separado al concurso para el pago de sus créditos, en cuyo caso deberá seguirse el proceso por los trámites de la ejecución de las sentencias.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 766 al 789)

@@ -1,17 +1,12 @@
-ARTICULO 825.- Trámite.
-Recibido el escrito, el juez designará un curador para que represente
-al presunto insano dentro del proceso, y ordenará que el Departamento de
-Medicina Legal del Organismo de Investigación Judicial examine al presunto
-insano y emita un dictamen, el cual deberá comprender los siguientes
-extremos:
-1) El carácter propio de la enfermendad.
-2) Los cambios que puedan sobrevenir durante el curso de la
-enfermedad, la duración, la posible terminación, o si, por el contrario,
-es incurable.
-3) Las consecuencias de la enfermedad en el comportamiento social y
-en la administración de los bienes del enfermo;.
-4) El tratamiento idóneo.
-El dictamen deberá rendirse en un plazo no mayor de un mes, para lo
-cual se tomarán las medidas que fueren necesarias.
-En la misma resolución ordenará notificar a la Procuraduría General
-de la República, cuando ésta no fuera la promotora.
+TITULO II
+Disposiciones especiales
+CAPITULO I
+Depósito de personas
+ARTÍCULO 825.- Casos en que procede.
+Podrá decretarse el depósito:
+1) Del menor de edad, pero mayor de quince años, que estuviere sujeto a tutela y que se propusiere contraer matrimonio contra el parecer de su tutor.
+2) De los hijos, pupilos o incapacitados, a quienes sus padres, tutores o curadores trataren con excesiva dureza, o les dieren consejos, preceptos o ejemplos corruptores.
+3) Del menor que se encuentre en el caso que prevé el artículo 148 del Código de Familia.
+4) Del incapacitado que se hallare en estado de abandono por muerte, ausencia, o imposibilidad legal o física de su curador.
+5) Del menor cuyos padres hubieren desaparecido del lugar de su domicilio sin dejar persona encargada de su cuidado.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 802 al 825)

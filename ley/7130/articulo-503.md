@@ -1,4 +1,4 @@
-ARTICULO 503.- Conformidad del demandado.
+ARTÍCULO 503.- Conformidad del demandado.
 Si el demandado manifestare su conformidad, o si no se opusiere, se
 dictará sentencia estimatoria, a la que le es aplicable lo dispuesto en el
 artículo 436.

@@ -1,5 +1,4 @@
-ARTICULO 902.- Trámite del avalúo.
-Terminado el avalúo antes de la junta de la que habla el artículo
-903, en ella se dará cuenta de él. Hecho después, se dará audiencia por
-cinco días a los interesados; si durante ese plazo no se objetara, se
-aprobará por el tribunal sin otro trámite.
+ARTÍCULO 902.- Deber de legalizar.
+A la sucesión le será aplicable lo dicho en los artículos 748 y 749 (*).
+(* Los indicados artículos son ahora el 771 y 772, respectivamente)
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 879 al 902)

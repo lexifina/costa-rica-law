@@ -1,5 +1,2 @@
-ARTICULO 513.- Incompatibilidades.
-No podrán ser nombrados árbitros de derecho o de equidad:
-1) Quienes tengan motivo de impedimento, recusación o excusa.
-2) Los incapaces.
-Tampoco podrán ser nombrados árbitros de equidad los analfabetos.
+ARTÍCULO 513.- Incompatibilidades.
+(Derogado por el artículo 75 de la Ley de Resolución Alterna de Conflictos No.7727 de 9 de diciembre de 1997)

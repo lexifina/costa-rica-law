@@ -1,15 +1,3 @@
-ARTICULO 894.- Declaración de apertura.
-Cumplidos los requisitos establecidos en los dos artículos
-anteriores, y llenadas las formalidades del caso cuando se trate de
-testamentos cerrados, el tribunal declarará abierto el proceso sucesorio;
-llamará al albacea testamentario para que acepte el cargo, o nombrará el
-provisional; proveerá lo concerniente a la representación de los menores;
-conferirá la audiencia de ley al Patronato Nacional de la Infancia y a la
-Procuraduría General de la República; y citará a los herederos,
-legatarios, acredores y, en general, a todos los interesados para que,
-dentro del plazo de treinta días, comparezcan a hacer valer sus derechos,
-con el apercibimiento, a los que crean tener derecho a la herencia, de
-que, si no se presentan en ese plazo, aquélla pasará a quien corresponda.
-La citación de interesados se hará por medio de un edicto que se
-publicará una vez en el Boletín Judicial, y el emplazamiento comenzarán a
-correr desde la fecha de la publicación.
+ARTÍCULO 894.- Declaratoria de validez o nulidad.
+Si el acreedor no las aceptare, la declaratoria de validez o nulidad de las ofertas reales o de la consignación, se debatirá en proceso ordinario, o abreviado, según corresponda. Pero si sobre el pago de la deuda estuviere pendiente ya cualquier tipo de proceso, se hará en éste, en pieza separada y por el trámite de los incidentes. La sentencia determinará a cuenta de quién serán los gastos de las ofertas y de la consignación.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 871 al 894)

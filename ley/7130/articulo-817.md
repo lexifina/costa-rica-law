@@ -1,5 +1,3 @@
-ARTICULO 817.- Solicitud.
-La solicitud podrá ser hecha por ambos cónyuges o por uno solo de
-ellos. Si la hiciere uno solo, se dará audiencia por tres días al otro,
-para que manifieste lo que estime conveniente. Igual audiencia se dará al
-Patronato Nacional de la Infancia cuando hubiere hijos menores.
+ARTÍCULO 817.- Proceso penal.
+En cualquier momento en el que hubiere motivo para considerar que la insolvencia puede ser fraudulenta, el juez lo comunicará al Ministerio Público para lo que a éste le corresponda.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 794 al 817)

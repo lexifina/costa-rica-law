@@ -1,15 +1,9 @@
-ARTICULO 764.- Venta del bien.
-Una vez reconocido el crédito de cualquier acreedor que tuviere
-derecho preferente sobre un bien determinado, cuando tal requisito sea
-necesario, y aceptada la solicitud a que se refiere el artículo anterior,
-el curador hará vender la cosa afectada aunque el plazo no estuviere
-vencido, y procederá al pago respectivo. Para ese fin, si fuere mueble y
-estuviere en su poder, el acreedor deberá ponerla a disposición del
-curador.
-Todos estos acreedores tendrán derecho a participar, en proporción al
-total de su crédito, en los repartimientos de la masa que precedan a la
-venta de la cosa sobre la que tuvieren derecho real.
-Realizada la venta, se completará el pago del crédito y el sobrante
-ingresará en la masa común. Si el precio de la cosa no alcanzare a cubrir
-el crédito, el acreedor intervendrá en las reparticiones generales con los
-demás acreedores comunes, por lo que quedare en descubierto.
+ARTÍCULO 764.- Recursos.
+La resolución que decrete la apertura del concurso o la que lo deniegue, tendrá recurso de revocatoria y de apelación con efecto devolutivo. La primera admitirá, además, el recurso de casación, si lo permitiere la cuantía del asunto.
+(Así reformado este párrafo por el artículo 2º de la ley No.7643 de 17 de octubre de 1996)
+De previo a resolver la revocatoria, el juzgado podrá ordenar y recibir las pruebas que estime indispensables.
+No obstante que se admita la apelación contra el auto que el que se decrete la apertura, y mientras el superior no resuelva la alzada, el juzgado deberá seguir conociendo del proceso concursal, sin que se deba rendir garantía alguna.
+En la interposición y trámite de los recursos podrán intervenir el deudor, el curador y los acreedores.
+Revocada la declaratoria del concurso, volverán las cosas al estado que tenían con anterioridad; sin embargo, deberán respetarse los actos de administración legalmente realizados por el curador, lo mismo que los derechos adquiridos por terceros de buena fe.
+La revocatoria se publicará de la misma manera que la declaratoria del concurso.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 741 al 764)

@@ -1,25 +1,8 @@
-ARTICULO 889.- Testamento cerrado.
-En cuanto al testamento cerrado se observará el siguiente
-procedimiento:
-1) Al entregarse al tribunal un testamento cerrado, deberá ponerse
-razón del estado que presente la carpeta, lo escrito en ella y las
-cerraduras. A continuación el juez mandará que se reúnan el notario
-autorizante y los testigos del acta, a fin de que reconozcan sus firmas y
-la verdad de sus afirmaciones contenidas en la carpeta del testamento, con
-expresión de si aquélla se halla en el mismo estado que cuando autorizaron
-el acta. Hecho esto, el juez lo abrirá y leerá ante el secretario; deberá
-ponerse razón del estado que presenta la carpeta, lo escrito en ella y las
-cerraduras.
-2) Si un testigo no residiere en el lugar del tribunal y no quisiere
-o no pudiere comparecer ante él, se comisionará al tribunal respectivo
-para la práctica del reconocimiento de la firma de dicho testigo, y para
-recibirle su declaración.
-3) Si el notario o los testigos hubieren muerto o estuvieren ausentes
-de la República, se procederá al reconocimiento de las firmas por medio
-del cotejo de letras, y, no siendo posible el cotejo, posible, por medio
-de testigos conocedores de la firma de la persona a quien se le atribuye.
-Además, los otros testigos declararán si el muerto o ausente fue notario
-autorizante y si lo vieron firmar.
-4) Reconocidas las firmas y no habiendo señales de haberse violado la
-carpeta, el juez abrirá el testamento, lo leerá a los interesados
-presentes y lo insertará literalmente en el acta que deberá levantar.
+CAPITULO IX
+Consignación
+ARTÍCULO 889.- Ofertas reales.
+Para que pueda verificarse la consignación de lo que el deudor ofreciere en descargo de su deuda, será necesario que le haga ofertas al acreedor.
+Las ofertas de pago deberá hacerlas un notario, quien las hará en el lugar designado para el pago, o en su defecto en el domicilio del acreedor. Donde no hubiere notario, podrá hacerlas el alcalde del lugar.
+Si la deuda fuere pagadera en tractos, las ofertas reales se limitarán al primero de ellos que las hiciere necesarias.
+En el acta que debe levantar el funcionario que hiciere las ofertas deberá hacerse constar si son de una suma de dinero, de alhajas o de efectos de comercio, la cantidad y la calidad de las especies ofrecidas y el hecho de haber sido reales las ofertas.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 866 al 889)

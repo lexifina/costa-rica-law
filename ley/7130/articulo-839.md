@@ -1,9 +1,11 @@
-ARTICULO 839.- Entrega de bienes.
-Dictado el auto de que habla el artículo 837, se le entregará al
-tutor el caudal del menor, por inventario, que se unirá al expediente, si
-ya no obrare en él. El recibo de los bienes se acreditará en los autos
-mediante acta firmada por el juez, el secretario y el tutor.
-Igual entrega, y con la misma formalidad, se hará de los títulos y
-documentos que se refieran a dichos bienes. En el acta deberá cumplirse lo
-prevenido en el artículo 196 del Código de Familia, si antes no se hubiere
-hecho.
+CAPITULO III
+Divorcio y separación por mutuo consentimiento
+ARTÍCULO 839.- Requisitos.
+Se deberá presentar al juzgado un convenio de los cónyuges, en escritura pública, sobre los siguientes puntos:
+1) A quién le corresponde la guarda, la crianza y la educación de los hijos menores.
+2) Cuál de los dos cónyuges asume la obligación de alimentar a los hijos, o la proporción en la que se obligan ambos.
+3) El monto de la pensión que deba pagar un cónyuge al otro, si en ello conviene.
+4) Propiedad sobre los bienes de ambos cónyuges.
+El juzgado podrá pedir que se complete o aclare el convenio, si es omiso u oscuro en los puntos señalados en este artículo.
+Junto con el convenio deberán presentarse certificaciones de matrimonio y de nacimiento de los hijos menores.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 816 al 839)
