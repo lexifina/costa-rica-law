@@ -14,3 +14,4 @@ Declara el 27 de Julio como el Día Nacional Vida Antes de Nacer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-19 | la propia norma |
+| 2 | 1999-08-19 | Ley 7 |

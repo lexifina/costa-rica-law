@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Salud será el encargado de coordinar las acciones y actividades que tiendan a la celebración adecuada de dicha actividad dentro del respeto y promoción democrática del país, para lo cual las Instituciones Públicas deben colaborar con el Ministerio en la celebración del día indicado.
