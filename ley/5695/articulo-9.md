@@ -1,0 +1,1 @@
+Artículo 9º.- Se autoriza a las instituciones autónomas y semiautónomas del Estado a conceder empréstitos y a éstas y a los Poderes del Estado a hacer donaciones a la Junta Administrativa, para los propósitos de esta ley.

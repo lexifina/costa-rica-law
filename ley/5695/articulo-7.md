@@ -1,0 +1,1 @@
+Artículo 7º.- Para los efectos de cumplir con los objetivos de esta ley y darle la financiación correspondiente, el Banco Central de Costa Rica apartará diariamente y depositará en la cuenta corriente, que indique la Junta, el 50% de los ingresos que se obtengan como fondos específicos del Arancel de Derechos del Registro Público.

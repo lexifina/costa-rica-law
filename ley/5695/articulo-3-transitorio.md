@@ -1,0 +1,1 @@
+Transitorio III.- El Poder Ejecutivo, de común acuerdo con la Junta Administrativa, tomará las providencias necesarias para adscribir los demás registros que estime conveniente traspasar al Registro Nacional.

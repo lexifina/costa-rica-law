@@ -1,0 +1,1 @@
+Artículo 14.- La Junta podrá hacer compras y contratos directos, en casos necesarios o urgentes o para una mayor seguridad de sus funciones, con la sola autorización de la Contraloría General de la República.
