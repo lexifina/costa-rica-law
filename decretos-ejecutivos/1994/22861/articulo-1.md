@@ -1,3 +1,4 @@
+(NOTA: Mediante el artículo 1° del Decreto Ejecutivo N° 57295 de 17 de agosto de 1998, Reglamento para la Fijación de Tarifas en el Aeropuerto Internacional Juan Santamaría, se deroga todo lo relativo al Aeropuerto Internacional Juan Santamaría regulado en este decreto).
 N° 22861
 EL PRESIDENTE DE LA REPUBLICA
 EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES,
