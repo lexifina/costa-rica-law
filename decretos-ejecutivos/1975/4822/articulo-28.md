@@ -1,1 +1,0 @@
-Artículo 28.-La nota inferior a 65 repetida en dos semestres u obtenida en el último semestre, obligará al alumno a presentar pruebas de aplazado en todas las asignaturas en que tenga un promedio final inferior a 75.

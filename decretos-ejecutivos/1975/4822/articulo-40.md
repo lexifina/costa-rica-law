@@ -1,1 +1,0 @@
-Artículo 40. -Las apelaciones que presenten los alumnos se regirán por las normas establecidas en el capítulo XII del "Reglamento General de Evaluación y Normas de Promoción de la Educación General Básica".

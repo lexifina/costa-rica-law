@@ -1,1 +1,0 @@
-Artículo 24.-En la Rama Técnica el aplazamiento en un número mayor de asignaturas que las indicadas en los incisos a), b), e) del artículo 20 de este Reglamento, implicará la reprobación de tales asignaturas.
