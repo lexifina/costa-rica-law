@@ -15,3 +15,4 @@ Reglamento de Becas y Subsidios de Estudios y Trabajos de Graduación
 | --- | --- | --- |
 | 1 | 1994-11-28 | la propia norma |
 | 2 | 2000-10-23 | Reglamento 3035 (2000-10-23) |
+| 3 | 2001-10-08 | Reglamento 3129 (2001-10-08) |
