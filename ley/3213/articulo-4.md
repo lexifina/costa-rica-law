@@ -1,1 +1,1 @@
-Artículo 4º.- La Oficina de Jubilaciones y Pensiones, de oficio, hará las correcciones pertinentes en las planillas de pensionados.
+Artículo 4º.- Para la atención del gasto que demande esta ley, el Poder Ejecutivo podrá, durante años 1964, enviar a la Asamblea Legislativa proyectos de presupuestos extraordinarios. Para los años siguientes deberá consignarse la partida necesaria en los proyectos de presupuesto.

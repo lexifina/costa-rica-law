@@ -1,0 +1,1 @@
+Transitorio II.-El Poder Ejecutivo deberá enviar a conocimientos de la Asamblea Legislativa el correspondiente presupuesto para atender la erogación que significa esta ley durante el ejercicio económico de 1965. Para los años siguientes deberán aumentarse las partidas afectadas en el presupuesto de gastos de la Nación.
