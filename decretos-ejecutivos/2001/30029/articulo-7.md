@@ -1,0 +1,1 @@
+Artículo 7°—El concesionario de la soda deberá cumplir demás de lo establecido en el contrato con lo dispuesto en el Manual para el Funcionamiento de Sodas Escolares y Colegiales, el cual queda incorporado al contrato, así como con lo establecido en el Reglamento de Servicios de Alimentación al Público del Ministerio de Salud, Decreto Ejecutivo No 19479-S del 29 de enero de 1990.

@@ -1,0 +1,1 @@
+Artículo 9°—El Comité de Salud y Nutrición, tendrá una vigencia de un año y deberá ser integrado durante el primer mes lectivo de cada año escolar. Su función primordial será la de velar porque el concesionario de la soda cumpla con las disposiciones del contrato y del Manual para el Funcionamiento de las Sodas Escolares y Colegiales, aprobado por el Ministerio de Educación.

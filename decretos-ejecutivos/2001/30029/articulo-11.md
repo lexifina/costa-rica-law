@@ -1,0 +1,1 @@
+Artículo 11.—Los recursos generados por la concesión de la soda, deberán ser destinados a fortalecer la satisfacción de las necesidades del respectivo comedor escolar o estudiantil, por lo que, la correspondiente Junta no podrá cambiarle de destino.

@@ -1,0 +1,1 @@
+Artículo 13.—El Director del centro educativo, podrá asimismo, ejercer las inspecciones y evaluaciones sobre el funcionamiento de la soda y poner en conocimiento de la Junta de Educación o Junta Administrativa, las denuncias o consideraciones que estime a bien.

@@ -1,0 +1,1 @@
+Artículo 3°—Las sodas deberán fomentar en la población estudiantil, el consumo de alimentos de un alto valor nutritivo y promover el desarrollo de adecuados hábitos alimentarios, higiénicos y de urbanidad.

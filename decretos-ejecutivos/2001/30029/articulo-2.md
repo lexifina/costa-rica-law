@@ -1,0 +1,1 @@
+Artículo 2°—En las instituciones educativas dependientes del Ministerio de Educación, que impartan la Educación Preescolar, la Educación General Básica y la Educación Diversificada, podrán funcionar sodas que tengan como fin primordial expender alimentos de alto valor nutritivo a la comunidad educativa y estimular el consumo de alimentos producidos en la zona en que se ubican.
