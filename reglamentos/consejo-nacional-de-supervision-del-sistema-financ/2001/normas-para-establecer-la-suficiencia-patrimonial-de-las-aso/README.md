@@ -16,3 +16,4 @@ Normas para Establecer la Suficiencia Patrimonial de las Asociaciones Mutualista
 | 2 | 2001-06-11 | Reglamento 231 (2001-06-11) |
 | 3 | 2001-10-16 | Reglamento 258 (2001-10-16) |
 | 4 | 2002-08-20 | Reglamento 320 (2002-08-20) |
+| 5 | 2002-12-19 | Reglamento 347 (2002-12-19) |
