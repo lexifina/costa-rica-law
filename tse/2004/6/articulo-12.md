@@ -1,0 +1,4 @@
+Artículo 12.—Cheques. Los cheques deben permanecer en las cajas de seguridad que se tienen dispuestas para esos efectos. En cada uno constará el nombre de la persona física o jurídica a cuya orden se dispone hacer el pago. Queda prohibida la confección de cheques al portador o a caja y la existencia de cheques firmados en blanco.
+Los cheques girados y la orden de transferencia bancaria con cargo a la cuenta corriente del Fondo General de Elecciones, deben ir firmados conjuntamente por dos Magistrados y el Contador o Subcontador del Tribunal.
+De todo cheque que se gire debe quedar un comprobante en el que se detallará el concepto del pago efectuado.
+Los cambios ante el banco en las firmas de la cuenta corriente son responsabilidad del Contador del Tribunal, quién realizará el trámite de forma inmediata, una vez que se origine alguna variante en la conformación de los miembros autorizados a firmar.

@@ -1,0 +1,1 @@
+Artículo 9º—Refrendo órdenes de compra. Las órdenes de compra por montos iguales o inferiores al monto máximo autorizado para contratación directa por la Contraloría General de la República, serán aprobadas por la Dirección Ejecutiva, la cual informará al Tribunal. Aquellas que superen dicho monto por el Tribunal Supremo de Elecciones.

@@ -1,0 +1,2 @@
+Artículo 13.—Entrega de cheques. Los cheques una vez emitidos y firmados deberán permanecer en la caja de seguridad que disponga el encargado del Área de Tesorería para su custodia. Estos se entregarán únicamente a las personas autorizadas por las empresas proveedoras conforme al registro que para ese efecto llevará el Área de Tesorería.
+En las facturas pagadas se debe estampar el sello de cancelación y el número de cheque con que se realizó el pago, firma y número de cédula de la persona que lo retira.

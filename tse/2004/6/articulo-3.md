@@ -1,0 +1,2 @@
+Artículo 3º—Recursos del Fondo. Con el objeto de administrar el Fondo se dispondrá de una cuenta corriente en la que se depositarán los fondos asignados, conforme lo establezca la Tesorería Nacional de acuerdo con el principio de Caja Única.
+Para esos efectos, la Contaduría emitirá las respectivas Reservas de Crédito para separar los recursos y una vez que se encuentren debidamente aprobadas, procederá a confeccionar los documentos de ejecución que correspondan, indicando el número de cuenta corriente en la que se debe realizar el depósito.
