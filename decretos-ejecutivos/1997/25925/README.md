@@ -15,3 +15,4 @@ Reglamento sobre Criterios Objetivos de Selección de Contribuyentes para Fiscal
 | --- | --- | --- |
 | 1 | 1997-04-14 | la propia norma |
 | 2 | 1998-03-04 | Decreto Ejecutivo 26796 (1998-03-04) |
+| 3 | 1999-02-05 | Decreto Ejecutivo 27651 (1999-02-05) |
