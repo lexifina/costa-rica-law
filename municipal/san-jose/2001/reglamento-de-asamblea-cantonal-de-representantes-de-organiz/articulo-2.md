@@ -1,0 +1,1 @@
+Artículo 2°—Como principios rectores para la celebración de la Asamblea Cantonal, se tendrá la soberanía de la asamblea, así como los principios de impedimento del falseamiento de la voluntad popular y el de conservación del acto electoral.

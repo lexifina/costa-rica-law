@@ -1,0 +1,1 @@
+Artículo 25.—Toda acción de nulidad debe plantearse por escrito ante la Comisión de Comités Comunales del Comité Cantonal de Deportes y Recreación de San José, dentro del término de tres días contados a partir del día hábil posterior a la celebración de la Asamblea.

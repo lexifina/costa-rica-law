@@ -1,0 +1,1 @@
+Artículo 13.—Para la sustitución de delegados se deberá seguir el procedimiento estipulado en el artículo sesenta y tres, inciso f) del Reglamento; dentro del plazo acordado por la Junta Directiva para tal efecto, dicho plazo será publicado en un diario de circulación nacional.

@@ -1,0 +1,1 @@
+Artículo 21.—Elegidos los representantes ante la Junta, se hará la declaratoria oficial por parte del representante cantonal, quien indicará a los delegados si tienen alguna objeción o comentario que realizar en tomo a lo actuado. Acto seguido dará por levantada la asamblea.
