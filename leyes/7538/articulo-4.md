@@ -1,0 +1,9 @@
+Artículo 4°.- Adiciones a la Ley Orgánica del Patronato Nacional de la Infancia.
+Se adicionan los incisos s) y t) al artículo 6 de la Ley Orgánica del Patronato Nacional de la Infancia, No. 3286, del 28 de mayo de 1964, reformada por la Ley No. 6908, del 3 de noviembre de 1983. Los textos dirán:
+"Artículo 6.-
+...
+s) Participar, en los procedimientos de adopción internacional, como ente coordinador con entidades públicas u organismos acreditados en los Estados receptores de personas menores de edad costarricenses, previamente declaradas en estado de abandono y adoptables.
+Efectuar, por medio de los profesionales que designe, los estudios psicológicos y sociales de las personas menores de edad y sus familias de origen, para determinar si el niño o la niña es adoptable y llevar un registro de las personas menores de edad que lleguen a ser declaradas en esa condición.
+Recibir y tramitar las solicitudes de adopción de personas sin domicilio en el país para establecer el parentesco de una determinada persona menor de edad, utilizando el registro de menores adoptables.
+t) Realizar convenios interinstitucionales con organismos nacionales y solicitar al Poder Ejecutivo la suscripción de convenios con organismos internacionales reconocidos por Costa Rica y por el país donde esté la sede, para dar seguimiento y llevar el control de las personas menores de edad dadas en adopción a personas sin domicilio en el país. Ese control se mantendrá por un período no menor de cinco años, a partir de la fecha de ingreso del menor en su nueva residencia.
+TRANSITORIO.- Todas las adopciones que el Patronato Nacional de la Infancia (PANI) haya autorizado, antes de la vigencia de la reforma de esta ley, deberán regirse, en cuanto a seguimiento y control, por lo indicado en el inciso t) del artículo 4 de la presente ley."
