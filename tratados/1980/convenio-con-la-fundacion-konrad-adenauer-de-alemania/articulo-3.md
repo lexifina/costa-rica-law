@@ -1,0 +1,2 @@
+Artículo 3°
+En vista del carácter beneficioso de las actividades de la Fundación Konrad Adenauer que en adelante será llamada por el nombre de "Fundación" simplemente, el Gobierno de la República de Costa Rica, que en adelante será llamado "Gobierno" simplemente, conceder libre importación de enseres y equipos necesarios al buen desarrollo de tales actividades. Las exenciones correspondientes podrán alcanzar un monto anual equivalente al 10% del presupuesto de inversión asignado para ese mismo año.
