@@ -1,0 +1,12 @@
+Artículo 47.- Deróganse expresamente: la ley Nº 148 de 8 de agosto
+de 1945 que traspasa a la Caja Costarricense de Seguro Social
+obligaciones y haberes de la Junta Nacional de la Habitación, excepto el
+inciso 1) del artículo 4º; el artículo 4º.-Parte II-de la ley Nº 837 de
+20 de diciembre de 1946 que reforma el artículo 4º de la Nº 148 de 8 de
+agosto de 1945; la ley Nº 379 de 15 de febrero de 1949 que regula la
+adjudicación de casas, construídas en el Barrio San Cayetano; la ley Nº
+417 de 4 de marzo de 1949 que regula la adjudicación de casas construídas
+por el Departamento de la Habitación; la ley Nº 1444 de 29 de mayo de
+1952 que reforma el artículo 13 de la Nº 148 de 8 de agosto de 1945, así
+como los reglamentos dictados por el Poder Ejecutivo en cuanto a estas
+leyes.
