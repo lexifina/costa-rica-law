@@ -1,1 +1,1 @@
-Art. 9°-Los reos condenados á las penas de deportación ó presidio, que hayan observado una conducta ejemplar y no hayan tratado de fugarse del establecimiento, tienen derecho á que el Poder Ejecutivo les rebaje una décima parte de su pena. La solicitud deberá hacerse cuando se hayan descontado por lo menos ocho décimas partes de la pena.
+Art. 9°-(Derogado por el artículo 29 de Ley de Gracia, N° 118 del 19 de octubre de 1909)

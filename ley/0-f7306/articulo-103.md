@@ -4,4 +4,4 @@ Y DE LA REHABILITACION DE LOS DELINCUENTES.
 Capitulo primero.
 Del indulto.
 Artículo 103.
-Indulto es la remisión de la pena que un delincuente merece por su delito.—Puede ser general ó particular.
+(Derogado por el artículo 29 de Ley de Gracia, N° 118 del 19 de octubre de 1909)

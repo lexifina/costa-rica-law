@@ -1,3 +1,2 @@
 Artículo 104.
-Los indultos particulares son los que en alguna causa sobre delito determinado, se conceden al reo ó reos comprendidos en ella.
-Los generales son los que se conceden sin determinación de causas ni de personas, á todos los que hayan delinquido.
+(Derogado por el artículo 29 de Ley de Gracia, N° 118 del 19 de octubre de 1909)
