@@ -1,0 +1,1 @@
+Art. 4. Se faculta al Supremo Poder Ejecutivo para que subaste en el mejor postor ó postores por un término que no exceda de cinco años las rentas marítimas; con la condicion de que los rematarios han de cooperar eficazmente à impedir el contrabando de las especies estancadas, y bajo los conceptos prevenidos en la ley de 23 de marzo de 838.
