@@ -1,0 +1,5 @@
+DECRETO XXIII
+Declara que los empleados públicos a quienes se les dé por el Tribunal de cuentas su pliego de fenecimiento, quedan sin ninguna responsabilidad.
+“ Juan Rafael Mora, Presidente de la República de Costa Rica, Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente:
+El Excelentísimo Congreso Constitucional de la República de Costa Rica.- Teniendo en consideración que el Tribunal de rezagos que establece el 6° de la Ley de 10 de diciembre de 1839, solo tubo por objeto la solución y conclusión de las liquidaciones de negocios y cuentas rezagadas y que esto ha dado lugar a que se prolongue indefinidamente la responsabilidad de los empleados y aun de los comerciantes interesados en las cuentas y últimamente a que no se fenezcan cuentas y revisaciones en el tiempo que la ley ha fijado, ha venido a decretar y decreta:
+Art 1°.- Los empleados públicos a quienes el Tribunal de Cuentas diere el pliego de fenecimiento de su respectiva cuenta, quedan libres desde esa fecha de cualquiera reclamación que posteriormente se les haga, como también sus fiadores.
