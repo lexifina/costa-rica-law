@@ -1,0 +1,1 @@
+Artículo 4°- Vencidos quince días desde la publicación del primer edicto y si no se hubiere presentado oposición o presentada ésta se hubiere evacuado toda la prueba pertinente, la Procuraduría elevará el expediente ante el Ministerio de Economía y Hacienda, donde con vista de lo actuado se resolverá si procede el otorgamiento de la Patente de Corredor Jurado.

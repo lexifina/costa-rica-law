@@ -1,0 +1,1 @@
+Artículo 10. -De conformidad con el artículo transitorio de la ley, los Corredores Jurados que actualmente poseen la Patente, no podrán ejercer la Correduría hasta tanto no rindan la fianza correspondiente.

@@ -1,0 +1,1 @@
+Artículo 11. -Todo caso de infidelidad o de responsabilidad del Corredor Jurado que pueda ocasionar la cancelación de su Patente, deberá ser comunicado al Ministerio de Economía y Hacienda, el que ordenará a la Procuraduría que inicie la investigación correspondiente a efecto de dictar la resolución que corresponda.

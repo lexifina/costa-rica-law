@@ -1,0 +1,1 @@
+Artículo 9°-La Procuraduría de Hacienda comunicara al Ministerio todos los casos de caducidad de fianza para que se ordene la cancelación de la Patente. Al efecto, el Instituto Nacional de Seguros deberá comunicar a la Procuraduría los casos en que las fianzas otorgadas por ellos han quedado caducas por cualquier motivo.
