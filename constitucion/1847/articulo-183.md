@@ -1,0 +1,1 @@
+Artículo 183.-Para ser Jurados se requiere: 1º ser ciudadano en ejercicio de sus derechos: 2º mayor de edad, casado, viudo o cabeza de familia: 3º no haber sido alguna vez procesado por delito que merezca pena más correccional; y 4º ser natural o naturalizado con las posibles capacidades en el Derecho.

@@ -1,0 +1,1 @@
+Artículo 190.-Todo funcionario público de cualquiera clase que sea, para tomar posesión de su destino o continuar en el que haya obtenido, antes de decretarse la Constitución, deberá jurar previamente guardar, cumplir y hacer cumplir la Carta fundamental y leyes del Estado, y desempeñar su encargo debidamente.

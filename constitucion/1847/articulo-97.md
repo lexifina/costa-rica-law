@@ -1,0 +1,1 @@
+Artículo 97.-El Cuerpo Legislativo, sancionada una ley, usará de esta fórmula “Al Poder Ejecutivo” y cuando este la devuelva con su informe, hará uso de la siguiente “Vuelva al Poder Legislativo con el correspondiente informe”

@@ -1,0 +1,1 @@
+Artículo 77.-Ningún Diputado es responsable en tiempo alguno por la opinión que adopte ó palabras que profiera en puntos de su encargo Legislativo; y ninguna autoridad bajo pretexto alguno, podrá por ello reconvenirlo.

@@ -1,0 +1,1 @@
+Artículo 136.-Nombrados los Jueces de 1ª instancia por el Poder Ejecutivo, según lo previene el artículo 110 atribución 4ª, disfrutarán del sueldo que la ley les señale; debiendo pasar al tesoro público los derechos de actuación que se causen en los juzgados, y quedando la cartulación y sus derechos a los Alcaldes constitucionales.

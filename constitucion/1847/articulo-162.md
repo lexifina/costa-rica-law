@@ -1,0 +1,1 @@
+Artículo 162.-Los Gobernadores Políticos, bajo su mas estrecha responsabilidad conservarán en sus respectivos departamentos el orden y tranquilidad pública agotando con tal objeto, todos medios y recursos legales que estén a su alcance.

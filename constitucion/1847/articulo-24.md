@@ -1,0 +1,1 @@
+Artículo 24.-El Estado es uno de los cuerpos políticos que formaban la Nación Centro-Americana , y concurrirá a su reorganización, cuando los demás Estados estén de acuerdo para el establecimiento de un nuevo pacto de unión social.

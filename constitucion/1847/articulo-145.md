@@ -1,0 +1,1 @@
+Artículo 145.-Todo preso debe ser interrogado dentro de cuarenta y ocho horas, y el juez, según el mérito de lo actuado, deberá decretar su libertad ó permanencia en la prisión dentro de las veinticuatro horas siguientes

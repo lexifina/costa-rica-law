@@ -1,0 +1,1 @@
+Artículo 20.-Solo en los delitos de traición y en los casos de trastorno del orden público, se pueden ocupar los papeles de los habitantes del Estado, y únicamente podrá practicarse su examen por autoridad competente, cuando sea indispensable para la averiguación de la verdad, y a presencia del interesado, devolviéndose en el acto cuanto no tenga relación con lo que se indague

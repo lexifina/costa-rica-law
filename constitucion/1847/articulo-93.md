@@ -1,0 +1,1 @@
+Artículo 93.-Si fuese adoptado el proyecto, después de extendido en forma y leído en el Cuerpo Legislativo, se firmará y dirigirá por duplicado con el expediente respectivo al Poder Ejecutivo para los objetos de la ley.

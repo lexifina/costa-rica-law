@@ -1,0 +1,1 @@
+Artículo 50.-Las poblaciones se dividirán en juntas populares ó Cantones: la base mayor de cada una, será de seis mil habitantes, y la menor de trescientos cincuenta ó cuatrocientos; y las que no alcancen a este número se reunirán a las mas inmediatas.

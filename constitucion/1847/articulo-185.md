@@ -1,0 +1,1 @@
+Artículo 185.-Nombrados los individuos que deben componer el Jurado conforme al art. 79 atribución 22, se pasará lista certificada al Poder Ejecutivo para que a su tiempo practique el sorteo de doce que deben componer el Tribunal.

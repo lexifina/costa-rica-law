@@ -1,0 +1,1 @@
+Artículo 72.-Por muerte, nulidad de elección, u otro legítimo impedimento del propietario, entrará a reemplazarlo el respectivo suplente, quien para ser electo debe reunir las mismas cualidades que aquel.

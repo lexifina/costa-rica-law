@@ -1,0 +1,1 @@
+Artículo 140.-Los Alcaldes constitucionales en los pueblos de su residencia, ejercerán el oficio de conciliadores en los asuntos civiles ó sobre injurias que deban ventilarse en juicio escrito, y serán los únicos jueces en las verbales, fallando sin necesidad de hombres buenos, con apelación para ante uno de los Magistrados conforme lo disponga la ley.

@@ -1,0 +1,1 @@
+Artículo 171.-Todo el que educado fuera del Estado se presente en el a ejercer una profesión científica, cualquiera que sea, debe sujetarse a examen; a excepción de los naturales o naturalizados en Costa Rica que han salido a educarse fuera del país y acrediten su suficiencia con diplomas autorizados competentemente.

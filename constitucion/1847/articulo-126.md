@@ -1,0 +1,1 @@
+Artículo 126.- La Corte Suprema de Justicia en la plenitud de sus individuos conoce en segunda y última instancia en todos los asuntos civiles y criminales de todos los fueros, y la sustanciación corresponde indistintamente al Regente ó Magistrados según la distribución periódica que debe practicar el primero.

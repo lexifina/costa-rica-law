@@ -1,0 +1,1 @@
+Artículo 86.-Todo proyecto de ley ó proposición para ser admitida a discusión, deberá presentarse por escrito, y sufrir dos lecturas en días distintos con uno de intermedio por lo menos. Si fuese admitido, pasará a una comisión que lo examinará detenidamente, la cual no podrá presentar su informe sobre dicho proyecto, sino después de tres días

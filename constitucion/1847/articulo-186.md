@@ -1,0 +1,1 @@
+Artículo 186.-El primer Jurado estará reunido todo el tiempo necesario para el despacho de las quejas que ocurran por sentencias dadas con anterioridad a la Constitución ; pero los Jurados que se sucedan en los años siguientes, solo conocerán de los negocios que se versen en el año anterior.

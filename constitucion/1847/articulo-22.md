@@ -1,0 +1,1 @@
+Artículo 22.-El Estado de Costa Rica es un cuerpo político, soberano, libre e independiente, y su soberanía reside esencial y exclusivamente en él, sin que ningún poder público que lo represente pueda considerarse omnipotente.

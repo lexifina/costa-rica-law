@@ -1,0 +1,1 @@
+Artículo 28.-Son naturales los nacidos en el Estado, y los hijos de estos que nacieren en país extranjero, siempre que sus padres estuvieren al servicio del Estado ó que su ausencia no exceda de cinco años con conocimiento del Ejecutivo

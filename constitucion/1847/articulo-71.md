@@ -1,0 +1,1 @@
+Artículo 71.-Para declarar instalado el Cuerpo Legislativo, es necesaria la concurrencia de las dos terceras partes del número total de los individuos que lo componen; pero un número menor puede compeler al mayor, en caso de no verificarse la reunión.

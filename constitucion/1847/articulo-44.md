@@ -1,0 +1,1 @@
+Artículo 44.-Los declarados incursos en cualquiera de estos delitos, en el acto quedan privados por un año, del derecho de ciudadanía, cuya pena, en su caso, se impondrá también a los falsos calumniantes.

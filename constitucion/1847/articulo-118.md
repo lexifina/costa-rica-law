@@ -1,0 +1,1 @@
+Artículo 118.-En las faltas accidentales, y mientras tiene lugar el reemplazo de cualquiera de los Ministros del Despacho, hará sus veces uno de los jefes de sección que el Ejecutivo tenga a bien designar.

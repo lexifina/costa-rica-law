@@ -1,0 +1,1 @@
+Artículo 95.-Si el Ejecutivo hubiese hecho uso del veto suspensivo de que habla la fracción 2ª. artículo 110, dará cuenta al Poder Legislativo, como allí se previene, puntualizando las razones que haya tenido para verificarlo.

@@ -1,0 +1,1 @@
+Artículo 68.-Los individuos que hayan ocupado algún destino en los Supremos Poderes, no podrán ser obligados a servir otro de elección popular ó de nombramiento del Gobierno sin que hayan transcurrido dos años, ó que el nombrado quiera servir voluntariamente

@@ -1,0 +1,1 @@
+Artículo 189.-Todo costarricense tiene derecho de exigir ante el Cuerpo Legislativo, ante el Ejecutivo o el Judicial, la observancia de las leyes y reclamar los informes que crea necesarios, a condición de fundar su reclamo.

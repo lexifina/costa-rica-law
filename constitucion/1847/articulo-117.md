@@ -1,0 +1,1 @@
+Artículo 117.-Ninguno de los Ministros del Despacho, ni los respectivos jefes de sección que funcionen en lugar de estos en los casos del art. anterior, podrán ausentarse del Estado, dentro del término de seis meses, contados desde la fecha en que terminó su encargo; durante cuyo periodo precisamente será examinada y calificada su conducta.

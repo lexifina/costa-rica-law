@@ -1,0 +1,1 @@
+Artículo 43.-Las juntas populares y los colegios electorales decidirán definitivamente, en los casos que les correspondan, las dudas que ocurran sobre incapacidad legal de los sufragantes de que se compongan, y los reclamos sobre fuerza, cohecho ó soborno.

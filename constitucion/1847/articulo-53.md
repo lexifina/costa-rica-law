@@ -1,0 +1,1 @@
+Artículo 53.-Es obligatorio a todo ciudadano costarricense concurrir a las elecciones a que convoca la ley; y la autoridad política, bajo su mas estrecha responsabilidad, publicará en tres domingos anteriores la convocatoria, si fuere posible, dirigiendo sin embargo a los pueblos una escitacion por medio de sus subalternos.

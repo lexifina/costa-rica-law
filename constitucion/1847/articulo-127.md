@@ -1,0 +1,1 @@
+Artículo 127.-Queda abolida la tercera instancia conocida con el nombre de súplica; pero cuando el interés del pleito exceda de cinco mil pesos, ó haya de imponerse pena de muerte, ó extrañamiento del territorio del Estado, la votación debe ser uniforme. También debe serlo cuando la sentencia no haya de ser conforme de toda conformidad con la de 1ª instancia.

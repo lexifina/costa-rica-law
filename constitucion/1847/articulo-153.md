@@ -1,0 +1,1 @@
+Artículo 153.-El soborno, la prevención, el cohecho, la omisión ó sus suspensión de las formas judiciales, el procedimiento ilegal contra la libertad personal y contra la seguridad del domicilio, dan al agraviado, acción contra los Jueces.

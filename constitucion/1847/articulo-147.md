@@ -1,0 +1,1 @@
+Artículo 147.-Las personas contra quienes se decrete la detención, arresto ó prisión no podrán ser llevadas, ó detenidas en la cárcel pública, cuando presenten fianza, conforme lo establezcan las leyes.

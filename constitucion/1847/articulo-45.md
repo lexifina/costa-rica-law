@@ -1,0 +1,1 @@
+Artículo 45.-Las juntas populares se reunirán cuando corresponda, tanto para la primera elección de autoridades del Estado, como para la reposición de todos los funcionarios, que según la Constitución , deban renovarse en el periodo designado por ella misma
