@@ -1,4 +1,0 @@
-Artículo 5°—La Asociación, podrá vender el producto únicamente en el mercado nacional a consumidores directos o a propietarios de establecimientos debidamente autorizados por el Ministerio de Agricultura y Ganadería y que no estén ubicados en la vía pública.
-Los propietarios de establecimientos debidamente autorizados por el Ministerio de Agricultura y Ganadería, deberán vender los huevos de tortuga lora en el mercado nacional y a consumidores directos.
-La Asociación deberá vender el producto de empaques debidamente cerrados indicando además la procedencia, fecha de empaque, cantidad, precio al consumidor y características del mismo.
-Los propietarios de establecimientos deberán mantener y vender el producto en el empaque original cerrado. En aquellos casos en que el propietario venda u ofrezca huevos al público para ser consumidos dentro del mismo establecimiento, podrá abrir únicamente los empaques mínimos necesarios.

@@ -1,1 +1,0 @@
-Artículo 12.—En las doce millas del mar territorial, comprendidas entre Punta Guiones (aprox. 9" 54' 0" L. N. y 85" 40' 0" L. O.), y Punta India (aprox. 10" 0' 0" L. N. y 85° 42' 30" L. O.), se prohibe la operación de embarcaciones de pesca comercial que realicen como arte de pesca, redes de cerco.
