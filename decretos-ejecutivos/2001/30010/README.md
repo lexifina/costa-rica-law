@@ -14,3 +14,4 @@ Convoca a la Asamblea Legislativa a Sesiones Extraordinarias, a partir del 3 de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-28 | la propia norma |
+| 2 | 2001-11-30 | Decreto Ejecutivo 30011 (2001-11-30) |
