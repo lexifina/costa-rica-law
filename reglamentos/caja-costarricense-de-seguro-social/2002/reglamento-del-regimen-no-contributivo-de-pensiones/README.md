@@ -14,3 +14,4 @@ Reglamento del Regimen no Contributivo de Pensiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-15 | la propia norma |
+| 2 | 2003-01-30 | Reglamento 7725 (2003-01-30) |
