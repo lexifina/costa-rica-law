@@ -1,0 +1,2 @@
+Artículo 8º.- No se aplicará la legislación de trabajo a las
+relaciones entre el Colegio y sus alumnos.
