@@ -1,0 +1,2 @@
+Artículo 3º—En el caso de fallas técnicas del equipo de cómputo, el Departamento de Informática realizará un diagnóstico preliminar, con el objetivo de procurar la solución, o en su defecto, gestionar los trámites para su reparación.
+Los equipos de cómputo no podrán ser cambiados, abiertos o reparados por funcionarios legislativos que no pertenezcan al Departamento de Informática. Asimismo, sus componentes no podrán ser removidos por personal no autorizado por dicho departamento.
