@@ -1,2 +1,0 @@
-Artículo 3º.- Cuando los patentados consideren demasiado alta la calificación dada a su actividad, podrán solicitar una recalificación ante la comisión que para tal efecto estará integrada por el ejecutivo municipal, la contadora municipal y dos miembros de la Comisión de Hacienda y Presupuesto.
-Las resoluciones de la comisión tendrán recurso de revisión ante el Concejo. Este recurso deberá interponerse dentro de los ocho días hábiles siguientes al día de la respectiva notificación al interesado.
