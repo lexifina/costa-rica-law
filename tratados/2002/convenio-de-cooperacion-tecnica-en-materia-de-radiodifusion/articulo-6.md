@@ -1,0 +1,2 @@
+ARTÍCULO VI
+El Gobierno de Costa Rica de conformidad con los Convenios suscritos con la Unión Internacional de Telecomunicaciones (UIT), asigna al Sistema Nacional de Radio y Televisión Cultural, las frecuencias de onda corta necesarias para la difusión de los programas comprendidos en este Acuerdo. Dichas frecuencias podrán ser utilizadas tanto para las emisiones de Radio Nacional de Costa Rica como de Radio Nacional de España S. A., previo Memorándum de Entendimiento, sin perjuicio de las potestades exclusivas del Estado costarricense sobre la materia.
