@@ -1,0 +1,2 @@
+Art. 3. Se presentarán à ser juzgados en el término de nueve dias los reos Francisco Arias y Santiago Ramos bajo las penas que establece el decreto n° 12 de 5 del corriente y á que está sujeto el criminal Francisco Emigdio Aqueche.
+Lo tendrá entendido mi Secretario de la guerra y hará se imprima, publique y circule para su puntual cumplimiento.-Dado en la ciudad de San José á los quince dias del mes de octubre de mil ochocientos cuarenta y siete.-José Maria Castro.
