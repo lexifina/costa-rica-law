@@ -1,0 +1,1 @@
+Artículo 2°— El desempeño de la actividad de buhonero sin la respectiva patente, será reprimido mediante la acción efectiva de los inspectores municipales, en coordinación con las Autoridades de Policía y acorde a las disposiciones legales establecida, que incluyen el decomiso de las mercancías.
