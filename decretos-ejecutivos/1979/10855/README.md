@@ -13,3 +13,4 @@ Clasificación Institucional Sector Financiero y Crea ComisiónAutoridad Presupu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-12-04 | la propia norma |
+| 2 | 1982-03-30 | Decreto Ejecutivo 13478 (1982-03-30) |

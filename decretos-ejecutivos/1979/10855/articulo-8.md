@@ -1,1 +1,1 @@
-Artículo 8°-Los bancos comerciales mantendrán las cuentas corrientes de las instituciones públicas sin rebajar los fondos trasladados al Fondo de Compensación Financiera, a efecto de que éstas puedan utilizar los saldos de las mismas para su normal operación. Los bancos comerciales comunicarán al Banco Central sobre esos retiros a efecto de que les reintegre las sumas correspondientes.
+Artículo 8°-(DEROGADO, por el artículo 1° del Decreto Ejecutivo N° 13478 de 30 de marzo de 1982).

@@ -1,1 +1,1 @@
-Artículo 6°-Créase el Fondo de Compensación Financiera, en el Banco Central de Costa Rica, en el cual se depositarán todos los recursos financieros, excepto títulos y valores, de las instituciones que conforman el sector público no financiero.
+Artículo 6°-(DEROGADO, por el articulo 1° del Decreto Ejecutivo N° 13478 de 30 de marzo de 1982).
