@@ -1,0 +1,1 @@
+Artículo 30.-Las certificaciones que el Registro extienda a solicitud de particulares deberán escribirse en papel sellado de cincuenta céntimos y llevar un timbre de un colón por la primera foja o fracción, y de cincuenta céntimos por cada una de las demás. Salvo que se trate de las certificaciones expresamente exceptuadas por el Código Fiscal u otras leyes especiales.

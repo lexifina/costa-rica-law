@@ -1,0 +1,1 @@
+Artículo 14.-El día último de cada mes, el Registro enviará a la Secretaría de Justicia una lista completa de los delincuentes primarios que han sido inscritos durante ese mes y otra, también por orden alfabético, de los reincidentes a quienes se anotó nuevos juzgamientos en las tarjetas respectivas, durante el mismo lapso.

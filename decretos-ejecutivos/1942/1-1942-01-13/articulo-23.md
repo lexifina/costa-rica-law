@@ -1,0 +1,2 @@
+Capítulo V.-Rectificación, cancelación y revalidación de asientos
+Artículo 23.-El Jefe del Registro podrá rectificar por sí, bajo su responsabilidad, los errores u omisiones cometidos por la oficina y los que provengan de una repetición de resúmenes. El contenido de éstos, si no ha sido posible corregido mediante la devolución que autoriza el artículo 7°, sólo podrá rectificarse en virtud de oficio auténtico de la autoridad expedidora del resumen.

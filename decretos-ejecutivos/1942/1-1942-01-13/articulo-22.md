@@ -1,0 +1,1 @@
+Artículo 22.-Las certificaciones que expida el Registro sólo podrán hacer constar que la persona cuyos juzgamientos se piden no aparece inscrita en sus libros, o todos los asientos no cancelados o revalidados relativos a la misma, en su caso, excepto que el propio interesado o una autoridad represiva expresamente solicite la certificación de asientos cancelados.

@@ -1,0 +1,1 @@
+Artículo 27.-Todo acuerdo o decreto que la Secretaría de Gracia dicte concediendo amnistía, indulto o rehabilitación deberá ser comunicado al Registro, dentro de los tres días siguientes a la fecha en que se publique en La Gaceta Oficial, para que esta oficina anote tales acuerdos al margen de los asientos correspondientes y los incluya en las posteriores certificaciones.

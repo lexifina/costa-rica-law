@@ -1,0 +1,1 @@
+Artículo 19.-En casos urgentes pueden las autoridades pedir por telégrafo el envío de una certificación. El Registro contestará telegráficamente que no existen juzgamientos o que remite por correo la certificación de ellos, en su caso.

@@ -1,0 +1,1 @@
+Artículo 18.-Toda solicitud contendrá las datos necesarios para identificar la persona cuyos juzgamientos se piden. El Jefe del Registro podrá exigir todos !os detalles que estime necesarios para ese fin.

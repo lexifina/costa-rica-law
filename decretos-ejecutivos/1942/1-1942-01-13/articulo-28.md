@@ -1,0 +1,1 @@
+Artículo 28.-Asimismo, la Corte Suprema de Justicia, la Sala de Casación y los demás Tribunales y autoridades, cuando dicten, en virtud del recurso de revisión o por cualquier otro motivo, una resolución que anule o afecte una sentencia firme inscrita en el Registro Judicial, deberán comunicado a esa oficina dentro del plazo y para los efectos del artículo anterior.

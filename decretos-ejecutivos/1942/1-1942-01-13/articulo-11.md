@@ -1,0 +1,1 @@
+Artículo 11.-Cuando al Registro llegare un resumen que se refiera a una sentencia dictada ilegalmente o por autoridad incompetente, el de pondrá inmediatamente el hecho en conocimiento del señor Secretario de Estado en el Despacho de Justicia, para lo que tenga a bien resolver, dejando en suspenso la inscripción correspondiente hasta tanto no se subsane la deficiencia.

@@ -1,0 +1,2 @@
+Artículo 9°-El día primero de cada mes, los Tribunales y autoridades a que se refiere el artículo 2°, deben enviar al Registro una lista de los resúmenes que han remitido durante el mes anterior y constancia de que sólo esas sentencias quedaron firmes, o en su caso, informe de no haber quedado firme, durante ese lapso, ninguna sentencia.
+La demora en el envío de los resúmenes, listas, constancias e informes mencionados, será comunicada al superior respectivo para los efectos legales.

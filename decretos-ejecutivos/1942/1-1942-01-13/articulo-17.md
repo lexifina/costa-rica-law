@@ -1,0 +1,2 @@
+Artículo 17.-Por tener el Registro el carácter de privado, no serán atendidas las solicitudes de certificación de juzgamientos que hagan los particulares, salvo que se refieran a actos perpetrados por el mismo que las pide, quien deberá hacer la solicitud en persona o por medio de apoderado especialísimo.
+La solicitud podrá ser hecha por escrito, pero, si no la presenta el propio interesado. será necesario que la firma esté autenticada por un abogado o legalizada por la autoridad política de su vecindario.

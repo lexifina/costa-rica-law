@@ -1,0 +1,1 @@
+Artículo 29.-El Jefe del Registro y sus subalternos tienen la obligación de asistir a su despacho a las mismas horas de servicio público señaladas para las oficinas del Poder Judicial, y les son aplicables, en lo que cupiere las disposiciones que rigen en cuanto a licencias de los funcionarios y empleados de aquel Poder.
