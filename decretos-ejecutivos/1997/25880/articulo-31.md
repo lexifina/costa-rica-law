@@ -1,1 +1,0 @@
-Artículo 31.—Los servidores que en forma dolosa o culposa brinden información del proceso, con el fin de dar preferencia y protección a los concursantes, serán responsables de estos actos y sancionados de conformidad con este Reglamento y el derecho común.

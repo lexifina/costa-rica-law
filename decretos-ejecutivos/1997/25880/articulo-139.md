@@ -1,2 +1,0 @@
-Artículo 139.—Los despidos de los amparados por el Régimen de Servicio Civil, se tramitaran conforme lo dispuesto en el Estatuto de Servicio Civil, su Reglamento y las disposiciones contenidas en el presente Reglamento.
-Los despidos de los servidores no amparados por el Régimen de Servicio Civil, se regirán por lo que al efecto dispone el Código de Trabajo, la Ley General de la Administración Pública y el presente Reglamento.

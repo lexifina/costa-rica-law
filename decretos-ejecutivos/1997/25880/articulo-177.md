@@ -1,1 +1,0 @@
-Artículo 177.—El Recurso de Apelación deberá resolverse dentro de los quince días hábiles posteriores al recibo del expediente. De ser admisible, se confirmará, modificará o revocara el acto impugnado.

@@ -1,1 +1,0 @@
-Artículo 65.—La compensación económica por concepto de Prohibición del Ejercicio Particular de la Profesión, se regulara conforme con las disposiciones de la Ley No 5867 de 15 de diciembre de 1975, sus reformas y su reglamento.

@@ -1,1 +1,0 @@
-Articulo 15.—Corresponderá a la Dirección de Recursos Humanos convocar a los miembros de la Comisión de Ascensos, una vez que se haya acordado llevar a cabo el ascenso directo o el concurso interno, cuando una plaza quede vacante y se disponga lo señalado en el artículo anterior.

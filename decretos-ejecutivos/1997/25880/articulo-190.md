@@ -1,1 +1,0 @@
-Artículo 190.—La Comisión Institucional de Salud Ocupacional en coordinación con las Subcomisiones, establecerá los medios adecuados que permitan a los servidores de la Institución disponer de lugares de recreación en sus centros de trabajo.

@@ -1,1 +1,0 @@
-Artículo 197.—Los vehículos del Ministerio solo podrán ser conducidos por aquellos funcionarios expresamente designados al efecto. Eventualmente podrán hacerlo otros funcionarios previa autorización de la oficina encargada, quienes tendrán las mismas obligaciones y responsabilidades que los conductores nombrados expresamente.

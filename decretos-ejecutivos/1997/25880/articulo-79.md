@@ -1,1 +1,0 @@
-Artículo 79.—Las vacaciones serán absolutamente incompensables, pero si se trata de labores que no sean pesadas, insalubres o peligrosas y que exijan continuidad por la índole de las necesidades que satisfagan, el servidor podrá consentir en prestar sus servicios durante el período de vacaciones.

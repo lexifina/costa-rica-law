@@ -1,1 +1,0 @@
-Articulo 143.—La Dirección Jurídica analizara la denuncia a efecto de determinar si procede la investigación ordenada, en caso contrario, se remitirá al Superior Jerárquico respectivo, mediante un informe, indicando las razones que motivan su inadmisibilidad, salvo en los casos de acoso sexual que se procede a la apertura del expediente al recibo de la denuncia.

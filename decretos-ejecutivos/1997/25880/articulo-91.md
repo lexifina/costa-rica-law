@@ -1,2 +1,0 @@
-Artículo 91.—Para la concesión de las licencias de estudio, el interesado deberá presentar documentación completa en las unidades de coordinación de capacitación de cada Dependencia, que la remitirán al Departamento de Capacitación del Ministerio de (*)Justicia y Paz, previa valoración del cumplimiento de los requisitos formales que éste señala.
-(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)

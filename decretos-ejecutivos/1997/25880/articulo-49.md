@@ -1,1 +1,0 @@
-Artículo 49.—Los servidores del Ministerio tendrán la posibilidad de que se les brinde la debida capacitación, mediante cursos, seminarios, becas y otros, por medio del Departamento de Capacitación, el Centro Nacional de Capacitación Penitenciaria.

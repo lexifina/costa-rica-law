@@ -1,1 +1,0 @@
-Artículo 22.—La Sección de Reclutamiento y Selección de Personal, o quien sea designado como responsable de llevar a cabo el proceso de Reclutamiento y Selección, procederá a estudiar las ofertas presentadas con el propósito de verificar los requisitos establecidos y desechar aquellas ofertas que no cumplan con lo fijado en el momento de su presentación.

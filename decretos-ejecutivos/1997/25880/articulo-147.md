@@ -1,1 +1,0 @@
-Artículo 147.—Si el involucrado no ejerce su defensa en el término establecido, se continuara con el procedimiento hasta su conclusión, debiendo notificársele la resolución final en forma personal en su domicilio o lugar de trabajo.

@@ -1,1 +1,0 @@
-Artículo 167.—La Dirección de Recursos Humanos deberá remitir en el plazo máximo de diez días según la complejidad del asunto la información y documentos necesarios, a la Dirección Jurídica para el tramite correspondiente.

@@ -1,1 +1,0 @@
-Artículo 92.—El servidor a quien se le concedió licencia para asistir a cursos de estudio, deberá presentar a los Coordinadores de Capacitación de cada Dependencia, Certificación o Constancia del resultado de las materias contratadas. Dicho coordinador remitirá el documento correspondiente al Departamento de Capacitación de la Institución y al jefe inmediato del servidor.

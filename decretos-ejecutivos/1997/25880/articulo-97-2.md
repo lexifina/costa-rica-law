@@ -1,1 +1,0 @@
-Artículo 97.—Los servidores que disfruten de becas nacionales o extranjeras, quedaran obligados a impartir los conocimientos adquiridos, mediante el trabajo practico y la enseñanza teórica a otros servidores, según lo requiera el Departamento de Capacitación del Ministerio, el cual velará porque esto se cumpla.

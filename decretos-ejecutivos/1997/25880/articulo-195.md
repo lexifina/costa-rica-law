@@ -1,1 +1,0 @@
-Artículo 195.—El área de servicios generales será la encargada de ejecutar las medidas de conservación y control en cuanto al uso de los vehículos. El encargado de esta área velará porque las disposiciones contenidas en el presente Reglamento sean debidamente acatadas.

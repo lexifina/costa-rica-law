@@ -1,1 +1,0 @@
-Artículo 193.—Salvo los vehículos destinados al uso discrecional del Ministro, Viceministro, y los destinados a la Policía Penitenciaria, todos los demás vehículos del Ministerio llevarán permanentemente placas de matricula oficial, así como los distintivos visibles en sus costados.

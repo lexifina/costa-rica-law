@@ -1,1 +1,0 @@
-Artículo 113.—Las irregularidades en la asistencia por omisión de marca, llegadas tardías, marca anticipada o posterior a la entrada y ausencias, deberán ser justificadas dentro del mismo mes calendario.

@@ -1,1 +1,0 @@
-Artículo 20.—Los servidores interesados en participar en el concurso interno estarán obligados a presentarse con sus atestados y completar el Formulario para Concurso Interno ante la Dirección de Recursos Humanos.

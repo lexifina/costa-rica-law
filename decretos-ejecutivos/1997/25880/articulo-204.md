@@ -1,1 +1,0 @@
-Artículo 204.—Los conductores o usuarios de los vehículos no podrán hacer intercambio de accesorios, lubricantes o combustible de un vehículo a otro, sin la debida autorización del Director Administrativo.

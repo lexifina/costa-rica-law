@@ -1,1 +1,0 @@
-Artículo 207.—Queda prohibido al conductor efectuar arreglos extrajudiciales en caso de accidentes con vehículos propiedad del Ministerio. En caso de recibir ofrecimientos en ese sentido, deberá indicar al interesado que debe gestionar su solicitud ante el área de servicios generales.
