@@ -1,0 +1,2 @@
+V.
+El precio de los telegramas será fijado de común acuerdo entre las dos partes contratantes; pero es convenido que las tarifas que establezca el contratista al poner la linea al servicio público, deben ser menores que las que entonces cobrare en Costa Rica cualquiera otra Compañía de cable, y que en ningún caso, para lo futuro, podrán ser superiores á las señaladas por cualquiera otra compañía establecida o que se establezca
