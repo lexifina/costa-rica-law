@@ -1,2 +1,2 @@
-Artículo 13.—Vigencia. Rige a partir de su publicación el Diario Oficial.
-San José, 4 de mayo del 2001.—Lic. Carlos García López, Coordinador Subproceso Compras.
+Artículo 13.—Del Plan de Negocios Corporativo. La Gerencia General del Banco coordinará la elaboración de un Plan de Negocios Corporativo del Banco y sus Sociedades, el cual contendrá entre otros aspectos las estrategias publicitarias y de mercadeo. Este plan tendrá como referente el Plan Estratégico y Operativo Institucional, y los de cada una de las Sociedades, debiendo presentarse a la Junta Directiva Nacional para su aprobación.
+La ejecución de dicho plan, en lo que a su actividad específica compete, le corresponde a los Gerentes de cada Sociedad Anónima.

@@ -1,7 +1,3 @@
-Artículo 3°—De las funciones de las Juntas Directivas. La Junta Directiva de cada Sociedad Anónima tendrá las siguientes funciones:
-a) Definir la política general de la Sociedad Anónima, velando porque ésta responda a las políticas que dicte la Junta Directiva Nacional.
-b) Aprobar los reglamentos y procedimientos de operación de la Sociedad Anónima, los cuales deberán ser consistentes con la normativa aprobada por el Banco.
-c) Integrar las comisiones especiales que considere convenientes.
-d) Conocer y aprobar el presupuesto anual de la Sociedad y someterlo a la aprobación de la Contraloría General de la República.
-e) Designar o revocar el nombramiento del Gerente y del Auditor Interno, indicarles sus funciones y otorgarles los poderes necesarios para su cumplimiento.
-f) Todas las demás que le correspondan por naturaleza o que le sean asignadas por Ley, por Reglamento, o por el estatuto de la Sociedad.
+Artículo 3°—De la integración de la Juntas Directivas. La Junta Directiva de las Sociedades propiedad del Banco Popular estará integrada por cinco miembros, salvo la de la Operadora de Pensiones, que se conformará con siete miembros, todos nombrados por la Junta Directiva Nacional en su calidad de asamblea de accionistas de dichas empresas.
+En el caso de la Operadora de Pensiones, dos miembros serán nombrados de conformidad con la propuesta que al efecto formule la Asamblea de Trabajadores; en las demás Sociedades, un miembro será nombrado de conformidad con la propuesta que al efecto formule la Asamblea de Trabajadores. En todos los casos esa Asamblea determinará el procedimiento por seguir para formular las propuestas.
+Los restantes Directores serán nombrados del seno de la Junta Directiva Nacional, procurando una participación equilibrada entre los representantes de la Asamblea de Trabajadores y del Poder Ejecutivo.

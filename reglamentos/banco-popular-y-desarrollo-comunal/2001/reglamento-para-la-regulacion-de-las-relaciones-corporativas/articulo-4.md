@@ -1,1 +1,1 @@
-Artículo 4°—De la coordinación de planes. Para garantizar el cumplimiento de las políticas generales establecidas por la Junta Directiva Nacional, las propuestas de Planes Estratégicos y el Plan Operativo Anual que elaboren las Gerencias de cada Sociedad deberán ser necesariamente coordinados con la Gerencia General del Banco Popular y sometidos a aprobación de la Junta Directiva de la Sociedad correspondiente.
+Artículo 4°—Del período del ejercicio. Los miembros de la Junta Directiva durarán dos años en el ejercicio de sus funciones y podrán ser reelectos.
