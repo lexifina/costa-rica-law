@@ -1,0 +1,1 @@
+Artículo 21.—La Oficina de Recursos Humanos sólo realizará estudios por solicitud de los interesados, excepto en la ponderación del factor experiencia y en los ajustes por capacitación recibida dentro del Subsistema de Capacitación, lo cuales deberán hacer de oficio, por lo que requerirá llevar los controles indispensables para ello.

@@ -1,0 +1,4 @@
+Artículo 32.—Los servidores que estuviesen disfrutando del incentivo por concepto de Carrera Profesional de acuerdo con alguna de las resoluciones anteriores y que provengan de instituciones excluidas del Régimen de Servicio Civil, mantendrán el derecho a que se actualice el incentivo, siempre y cuando continúen ocupando un puesto de nivel profesional y aporten los documentos probatorios de tal situación. En estos casos la fecha de vigencia será a partir de la fecha de rige de su nombramiento en el Poder Ejecutivo, para garantizar la continuidad del beneficio.
+CAPÍTULO IX
+Disposiciones finales
+1º—Los profesionales que estén disfrutando de la Carrera Profesional con una formación académica no atinente a la especialidad del puesto o que ocupen actualmente en propiedad un puesto profesional en similares condiciones mantendrán el derecho a disfrutar de los beneficios de la Carrera Profesional.
