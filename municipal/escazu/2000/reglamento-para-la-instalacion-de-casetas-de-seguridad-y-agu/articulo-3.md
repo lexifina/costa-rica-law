@@ -1,1 +1,0 @@
-Artículo 3º-El Concejo Municipal conocerá la solicitud de los vecinos y evaluará los motivos que fundamentan su petición, procediendo a otorgar o no la autorización respectiva, en ejercicio de su poder discrecional. En caso de denegarse la autorización gestionada, deberá motivarse el acuerdo correspondiente.
