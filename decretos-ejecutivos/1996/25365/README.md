@@ -14,3 +14,4 @@ Declara estado necesidad y urgencia por calamidad pública a situación provocad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-27 | la propia norma |
+| 2 | 1996-09-30 | Decreto Ejecutivo 25533 (1996-09-30) |

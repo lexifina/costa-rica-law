@@ -10,4 +10,5 @@ Considerando:
 4°-Que en razón de lo expuesto, se prevén fuertes vientos y aguaceros, que implicarán posibles daños sobre los bienes y las personas, así como un crecimiento significativo en el caudal de todos los ríos y una mayor saturación de los suelos, ocasionando deslizamientos.
 5°-Que se hace necesaria la promulgación del marco jurídico indispensable para tomar todas las medidas de excepción para hacer frente a este desastre natural, para mitigar las consecuencias que pueda tener su impacto, sobre las personas y los bienes. Por tanto,
 DECRETAN:
-Artículo 1°-Declárese estado de necesidad y urgencia por calamidad pública, la situación provocada por el Huracán César, en todo el territorio nacional.
+Artículo 1°-Declárese estado de necesidad y urgencia por calamidad pública, la situación provocada por el Huracán César en los cantones de: Acosta, Aserrí, Puríscal, Pérez Zeledón, Tarrazú, Dota, León Cortés, Desamparados, Santa Ana, Alajuela, Grecia, Paraíso, Guarco, Jiménez, Aguirre, Parrita, Puntarenas, Montes de Oro, Cóbano, Barranca, Buenos Aires, Osa, Coto Brus, Golfito, Corredores, Garabito, Sarapiquí, Pococí, Siquirres, Abangares, San Carlos, Upala, Guatuso, Los Chiles.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 25533 del 30 de setiembre de 1996).
