@@ -1,0 +1,2 @@
+Artículo 2°—Las Altas Partes Contratantes convienen en someter a la decisión de la Corte Permanente de Arbitraje de La Haya, todas las controversias que sean materia de este tratado, a no ser que las partes se pongan de acuerdo para constituir una jurisdicción especial.
+En caso de someterse a la Corte permanente de La Haya, las Altas Partes Contratantes aceptan los preceptos de la Convención, relativos a la organización del tribunal arbitral, a los procedimientos a que éste haya de sujetarse y a la obligación de cumplir el fallo.
