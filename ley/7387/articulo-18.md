@@ -1,0 +1,2 @@
+DISPOSICIONES FINALES
+ARTICULO 18.- Cuando las leyes exoneren del pago del impuesto de patentes municipales o cuando la actividad se realice sin fines de lucro, los interesados deberán registrarse así ante la Municipalidad, para lo cual tendrán un plazo de tres meses a partir de la publicación de esta Ley. Transcurrido ese lapso, la exoneración se hará efectiva a partir de la fecha en que presenten la solicitud ante la Municipalidad.

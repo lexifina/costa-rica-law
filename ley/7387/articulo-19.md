@@ -1,0 +1,1 @@
+ARTICULO 19.- Los procedimientos establecidos en esta Ley para cobrar el impuesto de patentes no excluyen las actividades sujetas a licencia, que por sus características especiales sean objeto de gravámenes impositivos creados por leyes de alcance nacional.
