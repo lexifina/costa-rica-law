@@ -14,3 +14,4 @@ Permisos de Buseo a Pulmón, con Comprensor o con Trampas para la Langosta Panul
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-07 | la propia norma |
+| 2 | 2003-11-07 | Acuerdo 463 (2003-11-07) |
