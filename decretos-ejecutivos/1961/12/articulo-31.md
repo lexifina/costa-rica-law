@@ -1,2 +1,2 @@
-Artículo 31.—La Junta Directiva podrá conceder préstamos de ¢ 300.00 hasta ¢ 1,000.00 a las Auxiliares de Enfermería sujetas a las mismas tasas de intereses, condiciones y trámites anteriormente estipulados a un plazo de 12 a 24 meses dependiendo del monto del préstamo”.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 2115 del 27 de diciembre de 1971)
+Artículo 31.-La Junta Directiva podra conceder pristamos de trescientos colones hasta dos mil colones a las Auxiliares de Enfermerma sujetas a las mismas tasas de intereses, condiciones y tramites anteriormente estipulados, a un plazo de doce a veinticuatro meses dependiendo del monto del préstamo.
+(Así reformado por el artículo 10 del decreto ejecutivo N° 11709 del 22 de julio de 1980)
