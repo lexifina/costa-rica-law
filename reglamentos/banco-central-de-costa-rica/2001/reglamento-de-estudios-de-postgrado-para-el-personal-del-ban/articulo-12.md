@@ -1,0 +1,3 @@
+SECCIÓN II
+De la selección
+Artículo 12.—En los casos de Doctorados en el exterior, el centro de enseñanza en donde se llevará a cabo el programa de estudios, deberá ubicarse dentro de los primeros 25 puestos de las listas internacionales establecidas para tal efecto, como por ejemplo los trabajos de investigación que realizan Universidades de los Estados Unidos o revistas especializadas como "The Economist". Tratándose de universidades europeas, deberán contar con reconocido prestigio a nivel internacional. El Departamento de Recursos Humanos se encargará de mantener actualizadas dichas listas.

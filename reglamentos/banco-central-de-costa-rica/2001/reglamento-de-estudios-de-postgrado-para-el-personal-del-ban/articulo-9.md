@@ -1,0 +1,1 @@
+Articulo 9°—El conocimiento de otro idioma requerido para efectuar ciertos estudios, debe ser demostrado por el candidato por anticipado, rindiendo las pruebas respectivas, como puede ser el TORFL u otros similares reconocidos por la universidad o centro de estudios en donde se pretenden realizar los estudios de postgrado. El costo de dichas pruebas será asumido por el Banco.

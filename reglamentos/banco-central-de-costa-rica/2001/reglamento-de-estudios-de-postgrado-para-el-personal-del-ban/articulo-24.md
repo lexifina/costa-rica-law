@@ -1,0 +1,1 @@
+Articulo 24,—El Banco podrá aceptar la interrupción de los estudios de un servidor becado en casos muy calificados que previamente analizará, y sólo si el servidor lo comunica por escrito y antes de que ocurra dicho evento al Departamento de Recursos Humanos.

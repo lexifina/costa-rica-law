@@ -1,0 +1,1 @@
+Artículo 18.—Las becas que se otorguen dentro de este programa de estudios de postgrado no cubrirán cuotas por concepto de suscripciones o pagos de cualquier tipo, que den al becado el derecho a la utilización de servicios estudiantiles accesorios, como por ejemplo, cuotas de clubes. cuotas deportivas, de Fraternidades, etc.

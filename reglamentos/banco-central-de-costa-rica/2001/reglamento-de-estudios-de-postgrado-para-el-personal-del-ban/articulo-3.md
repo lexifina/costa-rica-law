@@ -1,0 +1,1 @@
+Articulo 3°—En igualdad de condiciones de calidad, los estudios de postgrado se desarrollarán en el país, a efecto de satisfacer criterios de razonabilidad y de utilización moderada de recursos presupuestarios, salvo que su realización en centros educativos del exterior deriven en una calidad superior del contenido académico del programa.

@@ -1,0 +1,1 @@
+Articulo 7°—El Departamento de Recursos Humanos atenderá administrativamente el programa de estudios de postgrado, que aprueben anualmente los Jerarcas Superiores Administrativos del Banco Central y sus Órganos Desconcentrados.

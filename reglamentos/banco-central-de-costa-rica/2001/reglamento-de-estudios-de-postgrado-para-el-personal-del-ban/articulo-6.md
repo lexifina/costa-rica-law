@@ -1,0 +1,1 @@
+Articulo 6°—El Departamento de Recursos Humanos es el órgano competente para brindar la asesoría técnica respectiva relacionada con el sistema de estudios de postgrado de la Institución, incluyendo el apoyo a los Jerarcas Administrativos del Banco en la orientación de las políticas en materia de capacitación y desarrollo para el personal.

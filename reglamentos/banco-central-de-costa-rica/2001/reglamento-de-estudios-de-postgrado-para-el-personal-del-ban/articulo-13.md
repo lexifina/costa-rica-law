@@ -1,0 +1,1 @@
+Articulo 13.—El servidor interesado en ser seleccionado para un programa de estudios de postgrado, deberá presentar al Departamento de Recursos Humanos una carta oficial en que la universidad o centro de estudios en que se propone realizar dicho programa, indique que ha sido admitido para esos fines.

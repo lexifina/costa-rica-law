@@ -1,0 +1,1 @@
+Articulo 22—Es obligación del servidor becado dar aviso de inmediato al Departamento de Recursos Humanos, sobre cualquier situación anómala en que pudiera encontrarse durante el desarrollo del programa.

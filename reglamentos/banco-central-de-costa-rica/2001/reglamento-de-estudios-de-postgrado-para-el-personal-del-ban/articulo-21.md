@@ -1,0 +1,1 @@
+Artículo 21.—El servidor beneficiario de este programa de estudios podrá disfrutar de vacaciones durante el periodo de estudios. Anualmente el periodo de vacaciones, será aplicado en su totalidad, como compensación a los periodos de vacaciones que establezca el centro académico.

@@ -1,0 +1,3 @@
+Articulo 11.—Revisada y analizada la información anterior, la División Administrativa elaborará un informe técnico, junto con el expediente administrativo del caso, y emitirá su recomendación, la que se agregará al respectivo expediente y se pondrá de inmediato en conocimiento del Jerarca Superior Administrativo correspondiente, quien aprobará o denegará la respectiva solicitud,
+La decisión que deniegue la posibilidad de realizar estudios al nivel de postgrado tendrá el recurso de revocatoria ante la Junta Directiva o el
+Consejo Nacional de Supervisión del Sistema Financiero, el cual deberá interponerse, debidamente fundamentado, en un plazo de tres días contados a partir del día siguiente de la notificación respectiva.

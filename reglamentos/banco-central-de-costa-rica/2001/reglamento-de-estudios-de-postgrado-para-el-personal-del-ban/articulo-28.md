@@ -1,0 +1,1 @@
+Articulo 28—Si el solicitante a ingresar en un programa de doctorado, fue beneficiado con una maestría financiada por el Banco. deberá presentar constancia de que el Centro Educativo donde desea hacer dichos estudios, le convalida la maestría, por lo que el Banco no tendrá que incurrir de nuevo en gastos sobre el programa de maestría.

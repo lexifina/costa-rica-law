@@ -1,0 +1,1 @@
+Articulo 30.—Los casos y situaciones no previstos por este Reglamento serán resueltos por el Jerarca Administrativo competente. contando para ello con la asesoría del Departamento de Recursos Humanos.

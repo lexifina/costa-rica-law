@@ -1,0 +1,1 @@
+Articulo 4°—Los beneficios que contiene el presente Reglamento se otorgarán solo en caso de que no se afecte el buen servicio tanto de la unidad administrativa a la que pertenece el servidor como de la Institución, así como cuando las condiciones así lo permitan.
