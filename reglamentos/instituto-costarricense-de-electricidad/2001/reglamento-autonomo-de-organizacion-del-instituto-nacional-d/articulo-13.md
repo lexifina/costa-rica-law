@@ -1,0 +1,1 @@
+Artículo 13.—Fondo de Garantías y Ahorro. El Fondo de Garantías y Ahorro mantendrá su estructura y organización actual como órgano adscrito directamente al Consejo Directivo con las mismas funciones y competencias.
