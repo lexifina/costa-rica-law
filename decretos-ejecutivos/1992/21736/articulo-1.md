@@ -9,3 +9,4 @@ Considerando:
 Por tanto,
 DECRETAN:
 Artículo 1°—Los miembros Directores de la Junta Nacional de Pensiones, Consejo Superior de Trabajo, del Consejo de Salud Ocupacional, del Consejo Nacional de Salarios, Junta de Drogas y Estupefacientes y el Consejo de Control y Registro de Medicamentos, devengarán las dietas mensuales que su reglamento o ley indique, con un monto de ¢ 4.783,50 (cuatro mil setecientos ochenta y tres colones, cincuenta céntimos) cada una. Solo tendrán derecho a dieta los directores que asistan a las respectivas sesiones.
+(Mediante decreto ejecutivo N° 23401 de 7 de junio de 1994, el artículo 1° dispuso lo siguiente: "Remunerar las dietas de los miembros Directores del Consejo de Salud Ocupacional para el año de 1994 por un monto de 6.101,32 por sesión a la que asistan.")
