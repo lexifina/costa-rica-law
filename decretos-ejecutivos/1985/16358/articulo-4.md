@@ -1,1 +1,1 @@
-Artículo 4º.- Corresponderá al Instituto Geográfico Nacional de demarcación en el terreno de sus respectivos linderos y la publicación de un mapa de este Refugio, debiendo confeccionar asimismo un mosaico fotográfico del mismo.
+ARTÍCULO 4º.- Corresponderá al Instituto Geográfico Nacional de demarcación en el terreno de sus respectivos linderos y la publicación de un mapa de este Refugio, debiendo confeccionar asimismo un mosaico fotográfico del mismo.
