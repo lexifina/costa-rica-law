@@ -1,14 +1,17 @@
 7129
-LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
+LA ASAMBLEA
+LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 DECRETA:
-MODIFICACION AL ARTICULO 3 DE LA LEY DE SALARIOS DEL
-PODER JUDICIAL, No. 2422 DEL 11 DE AGOSTO DE 1959 Y SUS
-REFORMAS
+MODIFICACION AL
+3 DE LA LEY DE SALARIOS DEL
+PODER JUDICIAL, No.
+2422 DEL 11 DE AGOSTO DE 1959 Y SUS REFORMAS
 ARTÖCULO 1.- Adici¢nase la escala de salarios que contiene
-el
-art¡culo 3o. de la Ley de Salarios del Poder Judicial, n£mero
-2422 del 11
-de agosto de 1959 y sus reformas, con las siguietes categor¡as.
+el art¡culo 3o. de la Ley de Salarios del Poder
+Judicial, n£mero 2422
+del 11 de agosto de 1959 y sus reformas, con las siguietes
+categor¡as.
+CATEGORIASUELDO BASEANUALIDADPRIMER PASO
 83 26.600 695 27.295
 84 27.000 700 27.700
 85 27.400 705 28.105
