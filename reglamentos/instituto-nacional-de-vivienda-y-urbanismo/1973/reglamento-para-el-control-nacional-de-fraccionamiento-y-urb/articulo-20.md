@@ -1,0 +1,1 @@
+Artículo 20.—La inspección y la aceptación de las obras no relevan al urbanizador de realizar, por su cuenta, la reparación de los defectos de construcción que se descubrieren durante los doce meses siguientes al recibo municipal de las obras.

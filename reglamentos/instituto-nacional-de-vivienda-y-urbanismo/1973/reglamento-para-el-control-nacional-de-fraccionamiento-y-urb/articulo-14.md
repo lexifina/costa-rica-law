@@ -1,0 +1,1 @@
+Articulo 14.—Los solicitantes inconformes con las razones en que se funde la negativa de visado, podrán recurrir ante la Gerencia, con apelación subsidiaria ante la Junta Directiva del INVU, para que se reconsidere la decisión, dentro de los quince días hábiles siguientes al de la notificación hecha conforme al artículo anterior.

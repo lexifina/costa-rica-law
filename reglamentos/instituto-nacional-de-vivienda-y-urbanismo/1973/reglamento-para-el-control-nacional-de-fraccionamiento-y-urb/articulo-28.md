@@ -1,0 +1,1 @@
+Artículo 28.—La aceptación de nuevos sistemas de normas para el fraccionamiento y urbanización de terrenos, sólo será permitida, por vía experimental, cuando se estime aceptable la perspectiva de éxito.

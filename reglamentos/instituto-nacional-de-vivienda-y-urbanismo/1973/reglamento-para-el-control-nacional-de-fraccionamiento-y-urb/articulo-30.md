@@ -1,0 +1,1 @@
+Artículo 30.—Compete al Instituto la calificación del interés social del respectivo proyecto de vivienda económica, tomando en cuenta para ello todos aquellos factores relativos a su costo y localización.
