@@ -13,3 +13,4 @@ Directriz sobre el Papel de Seguridad.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-07 | la propia norma |
+| 2 | 2003-03-31 | Directriz 0 (2003-03-31) |
