@@ -1,0 +1,1 @@
+Artículo 13.—Deróguense el párrafo final del artículo 3º y el artículo 55 del Decreto Ejecutivo Nº 7841-P del 16 de diciembre de 1977 y sus reformas, Reglamento a la Ley de la Zona Marítimo Terrestre.
