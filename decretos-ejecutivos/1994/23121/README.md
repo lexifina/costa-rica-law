@@ -14,3 +14,4 @@ Declara Refugio Nacional de Vida Silvestre Limoncito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-26 | la propia norma |
+| 2 | 1994-04-27 | Decreto Ejecutivo 23259 (1994-04-27) |
