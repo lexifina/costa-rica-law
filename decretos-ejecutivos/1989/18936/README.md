@@ -14,3 +14,4 @@ Reglamento a la Ley Pensión Vitalicia Personas Parálisis Cerebral
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-04-28 | la propia norma |
+| 2 | 1993-08-24 | Decreto Ejecutivo 22521 (1993-08-24) |
