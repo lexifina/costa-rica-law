@@ -1,0 +1,1 @@
+Artículo 3º.- El Consejo Nacional de Producción tendrá su domicilio legal en la ciudad de San José, pudiendo establecer oficinas y agencias en cualquier lugar de la República o en el extranjero a juicio de su Junta Directiva.

@@ -1,0 +1,17 @@
+Artículo 31.- El Gerente y en su defecto el Subgerente, tendrán las siguientes atribuciones:
+a) Ejercer las funciones inherentes a su condición de Administrador General, vigilando la organización y funcionamiento de todas sus dependencias, la observancia de las leyes y reglamentos y el cumplimiento de las resoluciones de la Junta;
+b) Suministrar a la Junta la información regular, exacta y completa que sea necesaria para asegurar el buen gobierno y dirección superior del Consejo; así como someter a la misma los asuntos de orden administrativo relativos a la Institución;
+c) Proponer a la Junta la normas generales de la política de la Institución que considere oportunas;
+d) Presentar a la Junta, para su aprobación, el Presupuesto anual del Consejo y los extraordinarios que fueren necesarios;
+e) Proponer a la Junta Directiva la creación de los Departamentos, Secciones y Servicios que considere necesarios para el mejor cumplimiento de las funciones del Consejo;
+f) Nombrar y remover a los empleados, con excepción de los de la Auditoría, de acuerdo con los reglamentos del personal de la Institución, que en ningún caso podrá quedar en inferioridad de condiciones a las prescritas en las leyes de trabajo; no podrá nombrar a quienes estuvieren ligados por parentesco de consanguinidad hasta tercer grado o de afinidad hasta el segundo, ambos inclusive, con el Auditor, Subauditor o con él mismo.
+No será, sin embargo, causal de remoción de un empleado, el que con posterioridad a su designación se nombre en dichos cargos a personas que tengan con él el parentesco mencionado o que lleguen a ser parientes por afinidad de alguno de ellos;
+g) Atender las relaciones con personeros del Estado o de las Instituciones Autónomas, procurando coordinar la política económica y social del Consejo, de acuerdo con las instrucciones que le imparta la Junta Directiva;
+h) Vigilar el correcto desarrollo de la política señalada por la Junta Directiva, la realización de los planes de trabajo y la ejecución de los presupuestos ordinarios y extraordinarios;
+i) Ejecutar, o hacer ejecutar los acuerdos o resoluciones que dicte la Junta Directiva. Si estimare que son contrarios a las disposiciones legales o a los intereses del Consejo, deberá dejar constancia expresa de su opinión negativa, con lo cual quedará exento de responsabilidad por esa causa;
+j) Atender las relaciones del Consejo con el público y dar a la prensa las informaciones que estime convenientes;
+k) Autorizar con su firma, conjuntamente con el Presidente de la Junta Directiva, los valores mobiliarios que emita el Consejo. Asimismo, autorizará los reglamentos y los acuerdos de la Junta Directiva;
+l) Resolver en último término los asuntos que no estuvieren reservados a la decisión de la Junta, y conjuntamente con el Auditor, decidir en casos de suma urgencia, cualquier asunto de competencia de la Junta, o suspender las resoluciones acordadas por ésta, convocándola inmediatamente para sesión extraordinaria, a fin de darle cuenta de sus acciones y exponerle las razones habidas para apartarse del procedimiento normal;
+m) Delegar sus funciones en otros funcionarios del Consejo, salvo cuando su intervención personal fuere legalmente obligatoria;
+n) Procurar la correcta coordinación con las instituciones y organismos oficiales a través del Comité Técnico Coordinador, para el mejor desempeño de las funciones del Consejo; y
+o) Ejercer las demás funciones y facultades que le correspondan, de conformidad con la ley, los reglamentos del Consejo y otras disposiciones pertinentes.

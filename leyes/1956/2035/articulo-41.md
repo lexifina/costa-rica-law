@@ -1,0 +1,1 @@
+Artículo 41.- El Consejo publicará en el Diario Oficial, dentro de los primeros sesenta días hábiles de su ejercicio financiero, un balance de su situación económica que comprenderá el estado de su activo, pasivo y patrimonio, con un detallado informe sobre la formación y aplicación de sus reservas.

@@ -1,0 +1,1 @@
+Artículo 26.- Estarán viciados de nulidad absoluta y se tendrán por inexistentes cualesquiera contratos u operaciones que directa o indirectamente celebre el Consejo con integrantes de la Junta Directiva o con alguno de sus parientes hasta el segundo grado por consanguinidad o afinidad, todo de conformidad con lo establecido por la Ley de Administración Financiera.
