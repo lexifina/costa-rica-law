@@ -1,1 +1,2 @@
-Artículo 5°.- La petición de justificación deberá presentarse por escrito, dentro de los cinco días hábiles siguientes al día en que cesó el motivo de la inasistencia, a la Secretaría de la Presidencia de la Asamblea Legislativa, con indicación de los motivos correspondientes.
+Artículo 5°—La solicitud de justificación, en la que se indicarán los motivos de la ausencia, deberá presentarse por escrito ante la Secretaría de la Presidencia a más tardar dentro de los cinco días hábiles después del regreso.
+Si por razón de fuerza mayor, la petición se presenta fuera de ese plazo, el Presidente podrá recibirla, sin perjuicio de lo establecido en el artículo 1° de este Reglamento.

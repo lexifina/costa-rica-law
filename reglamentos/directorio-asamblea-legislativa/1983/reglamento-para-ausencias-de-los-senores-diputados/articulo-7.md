@@ -1,2 +1,2 @@
-Artículo 7°.- Las resoluciones del Presidente, fuera del caso del silencio afirmativo, se consignará por escrito y se comunicarán a los interesados y a los servicios administrativos correspondientes de la Asamblea Legislativa. Son apelables para ante el Plenario de la Asamblea, en los términos que establece el Reglamento de Orden, Dirección y Disciplina Interior.
-Las resoluciones del Presidente en que se rechacen las solicitudes a que se refieren los artículo anteriores, deberá ser motivadas.
+Artículo 7°—Las resoluciones del Presidente, fuera del silencio afirmativo, en que se rechacen las solicitudes a que se refieren los artículos anteriores, deberán ser motivadas, se consignarán por escrito y se comunicarán a los interesados y a los correspondientes servicios administrativos de la Asamblea Legislativa.
+Esas resoluciones son apelables ante el Plenario de la Asamblea, en los términos establecidos en el Reglamento de Orden, Dirección y Disciplina Interior.
