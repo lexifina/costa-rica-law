@@ -1,0 +1,1 @@
+Artículo 5°- Fiscalización. La Contraloría General de la República velará porque esas asociaciones cumplan con las disposiciones legales pertinentes respecto de los fondos públicos utilizados para realizar los proyectos educativos objeto de esta ley.
