@@ -1,5 +1,1 @@
-Artículo 13.- Deróganse los artículos 1º a 12 inclusive y 16 de la
-ley Nº 34 de 21 de diciembre de 1940, Decreto-Ley Nº 355 de 20 de enero de
-1949 y el artículo 5º de la ley Nº 2072 de 15 de noviembre de 1956.
-Asimismo, deróganse los artículos 3º, 4º, y 5º de la ley Nº 2185 de 9 de
-diciembre de 1957.
+Artículo 13.- Deróganse los artículos 1º a 12 inclusive y 16 de la ley Nº 34 de 21 de diciembre de 1940, Decreto-Ley Nº 355 de 20 de enero de 1949 y el artículo 5º de la ley Nº 2072 de 15 de noviembre de 1956. Asimismo, deróganse los artículos 3º, 4º, y 5º de la ley Nº 2185 de 9 de diciembre de 1957.
