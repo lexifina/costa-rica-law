@@ -1,13 +1,10 @@
-Artículo 13.- a) Las frecuencias destinadas al servicio de
-radiodifusión no podrán ser utilizadas como enlaces de ninguna clase.
-b) Las frecuencias otorgadas, lo son para todo el
-territorio de la República y podrán ser repetidoras de las transmisiones
-de la misma frecuencia o de otras frecuencias de las bandas de
-radiodifusión, para cobertura de aquellas zonas no abarcadas por la
-frecuencia matriz.
-c) Lo indicado en el párrafo b) lo es también para las
-frecuencias superiores a 1 100 Khz. En todo caso, el otorgamiento de la
-concesión para la repetición de una frecuencia recaerá exclusivamente en
-el concesionario titular de la frecuencia matriz.
-(Así reformado TACITAMENTE por el artículo 1º del decreto Nº 11394 de 7
-de abril de 1980).
+Artículo 13.-
+Las frecuencias destinadas al servicio de la radiodifusión sonora no podrán ser utilizadas como enlaces de ninguna clase.
+Los concesionarios de frecuencias para el servicio de radiodifusión sonora se sujetarán a lo establecido en el Reglamento al Plan Nacional de Atribución de Frecuencias, según Decreto Ejecutivo Nº 27554-G y para cumplir con la cobertura que les corresponda, podrán utilizar uno o más transmisores en la misma frecuencia para cubrir aquellas zonas no abarcadas por la emisora matriz, pero todas las transmisiones se alimentarán necesariamente con la misma programación.
+La frecuencia otorgada para una zona y que se requiera utilizar en otra con programación diferente, requerirá de una nueva concesión, para la cual deberá presentar todos los requisitos establecidos en el artículo 7º de este reglamento.
+En cumplimiento del Convenio de Cooperación Cultural con el Principado de Liechtenstein firmado en Vaduz el 18 de enero de 1981, aprobado por la Asamblea Legislativa mediante Ley Nº 6606 de fecha 13 agosto de 1981 y ampliado por el Convenio de Cooperación Educativo, firmado en Vaduz en 12 de agosto de 1983 y aprobado por la Ley Nº 7299 del 28 de mayo de 1992, las frecuencias 1580 KHz y 1600 KHz y 101.5 MHz, serán de uso compartido con las estaciones del proyecto de pequeñas radioemisoras culturales, quienes utilizarán una potencia máxima de 500 vatios.
+Los concesionarios actuales de las frecuencias 1580 KHz y 1600 KHz que hace referencia el artículo anterior, no podrán variar la ubicación actual de sus plantas transmisoras y la potencia máxima permisible será de 1000 vatios a la salida del transmisor. Para Radio Nacional adjudicatario de la frecuencia 101.5 MHz podrá reutilizar la frecuencia donde técnicamente sea posible y no se le cause interferencia perjudicial a Radio Cultural Boruca y Radio Cultural Telire, con quienes serán los únicos con que compartan la frecuencia 101.5 MHz.
+El Instituto Costarricense de Enseñanza Radiofónica (ICER), como encargado de la realización práctica del convenio, en coordinación con el Departamento de Control Nacional de Radio, establecerán los lugares donde se instalarán las pequeñas radioemisoras en las frecuencias 1580 KHz y 1600 KHz.
+La frecuencia 88.1 MHz se declara reserva del Estado para uso exclusivo de Radio Nacional en la zona sur del país, con un transmisor ubicado en el Cerro Buena Vista (Cerro de la Muerte), con una potencia máxima de 500 vatios.
+(Así reformado tácitamente por el artículo 1° del decreto ejecutivo N° 29080- G del 9 de noviembre del 2000)
+.
