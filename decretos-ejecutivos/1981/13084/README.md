@@ -14,3 +14,4 @@ Reglamento del Artículo 9º de la Ley Nº 3656 de 6 de enero de 1966
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-11-18 | la propia norma |
+| 2 | 1984-12-12 | Decreto Ejecutivo 15802 (1984-12-12) |

@@ -10,4 +10,5 @@ El siguiente
 Reglamento del Artículo 9º de la Ley Nº 3656 de 6 de enero de 1966
 CAPITULO I
 Disposiciones generales
-Artículo 1º.-EL presente reglamento regula todo lo concerniente al otorgamiento y aplicación de los permisos de uso concedidos por la Dirección General de Educación Física y Deportes a entidades particulares, para la presentación de actividades deportivas, culturales, cívicas (el término "cívico", para los efectos de este reglamento, no incluye ningún acto como asambleas, convenciones, reuniones, etc., organizados por partidos políticos, tanto dentro o fuera del período de campaña electoral).
+Artículo 1°.-El presente reglamento regula todo lo concerniente al otorgamiento y aplicación de los permisos de uso concedidos por la Dirección General de Educación Física y Deportes a entidades particulares, para la presentación de actividades deportivas, culturales y cívicas (el término cívico para los efectos de este reglamento incluye los actos organizados por los partidos políticos, tanto dentro o fuera del periodo de campaña electoral).
+(Así reformado por el artículo 1° del decreto ejecutivo N° 15802 del 12 de diciembre de 1984)
