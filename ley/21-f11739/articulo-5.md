@@ -1,0 +1,1 @@
+Art 5°.- Se prohíbe la caza de aves o de cualquier otro animal en lugares inmediatos a las poblaciones de que se compone la República; y los contraventores incurren en las penas que establece el artículo citado 204 del Reglamento de Policía.
