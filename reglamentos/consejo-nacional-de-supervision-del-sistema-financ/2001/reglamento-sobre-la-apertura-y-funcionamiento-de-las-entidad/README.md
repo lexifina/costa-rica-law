@@ -16,3 +16,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | 1 | 2001-04-24 | la propia norma |
 | 2 | 2001-08-13 | Reglamento 245 (2001-08-13) |
 | 3 | 2001-09-17 | Reglamento 252 (2001-09-17) |
+| 4 | 2002-03-11 | Reglamento 288 (2002-03-11) |
