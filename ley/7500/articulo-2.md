@@ -1,14 +1,15 @@
-ARTICULO 2.- Autorización para manejar los recursos.
-Se autoriza a la Tesorería Nacional para manejar, en forma separada,
-los recursos asignados a la Dirección General de Estadística y Censos, del
-Ministerio de Economía, Industria y Comercio, en la Ley de Presupuesto
-para 1995, con el fin de realizar los censos nacionales. En forma
-idéntica, podrán manejarse los recursos que se obtengan en virtud de la
+ARTICULO 2.- Autorización para manejar los recursos
+Se autoriza a la Tesorería Nacional para manejar los recursos
+asignados a la Dirección General de Estadística y Censos, en las leyes de
+presupuesto de cada año, con el fin de realizar los Censos Nacionales
+indicados en el artículo 1 de la presente ley.
+Estos recursos se manejarán en forma separada y por medio de la
+apertura de una o varias cuentas corrientes en un banco estatal. De modo
+idéntico, podrán manejarse los recursos que se obtengan en virtud de la
 autorización establecida en el artículo anterior.
-Asimismo, se autoriza a la Tesorería Nacional para manejar, con el
-mismo procedimiento, las partidas que, en los años sucesivos, se asignen
-en las leyes de presupuesto para concluir los censos nacionales.
-Para girar contra los recursos mencionados en este artículo, la
-Tesorería Nacional deberá contar con la autorización previa del Ministro
-de Economía, Industria y Comercio o su representante y del Director
-General de Estadística y Censos.
+Para girar contra los recursos mencionados, la Tesorería Nacional
+deberá contar previamente con la autorización del Ministro de Economía,
+Industria y Comercio o su representante, y la del Director General de
+Estadística y Censos o su representante.
+(Así reformado por el artículo 1º de la ley No.7712 de 22 de octubre
+de 1997)
