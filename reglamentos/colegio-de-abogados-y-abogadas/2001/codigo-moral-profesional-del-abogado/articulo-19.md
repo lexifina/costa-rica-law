@@ -1,1 +1,0 @@
-Artículo 19.—El abogado debe respetar las disposiciones normativas que establecen incompatibilidades y prohibiciones en el ejercicio profesional. Debe abstenerse de desempeñar por sí o por interpuesta persona, cargos u ocupaciones incompatibles con la normativa citada.

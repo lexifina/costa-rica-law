@@ -1,1 +1,0 @@
-Artículo 49.—Cuando un abogado haya cesado en la judicatura o en algún cargo público, no debe aceptar asuntos que hubiese conocido en su carácter de funcionario público. Durante el plazo de un año no puede ejercer su profesión en asuntos que deben ser resueltos en la misma oficina donde ejerció puestos de autoridad.

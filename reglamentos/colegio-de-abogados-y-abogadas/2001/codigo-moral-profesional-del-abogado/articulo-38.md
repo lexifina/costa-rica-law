@@ -1,2 +1,0 @@
-Artículo 38.—El abogado debe emplear el más celoso cuidado con los bienes y documentos que estén bajo su posesión y sean propiedad de su cliente. Debe mantenerlos separados de los suyos propios; dar y exigir siempre recibos, conservarlos y no aceptar aquellos que no sean indispensables por su contenido.
-Debe evitar ejercer el derecho de retención sobre bienes, dinero o documentos de sus clientes para el cobro de sus honorarios.
