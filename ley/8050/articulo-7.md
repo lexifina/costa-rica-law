@@ -142,4 +142,4 @@ Los originados en la deuda bilateral del Gobierno con las instituciones del sect
 Los que reciba el Gobierno del Banco Nacional de Costa Rica como repago, según el contrato de préstamo subsidiario con este Banco, derivado del contrato de préstamo suscrito con el Banco Internacional de Reconstrucción y Fomento, Nº 2764-O-CR, aprobado mediante la Ley Nº 7090, de 10 de febrero de 1988. El mismo procedimiento se seguirá con los recursos provenientes de la Cooperativa Agroindustrial de Productos de Palma Aceitera, según la Ley Nº 7062, de 2 de abril de 1987, por el traspaso de las instalaciones financiadas por el Banco
 Interamericano de Desarrollo y la Commonwealth Development Corporation.
 Mientras se procede con el decreto ejecutivo correspondiente, estos recursos se trasladarán a la cuenta "Saldos del presupuesto por ejecutar de la Contabilidad Nacional".
-(Modificado por el artículo 1 del Decreto Ejecutivo N° 29522 de 14 de mayo del 2001)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29426 de 23 de marzo del 2001)
