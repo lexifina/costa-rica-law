@@ -1,0 +1,1 @@
+Artículo 2º—Agréguese el inciso II) al artículo 13 del Reglamento de Empresas y Actividades Turísticas, para que se lea como sigue: "Inciso II. Cumplir con todas aquellas disposiciones establecidas por la Ley de Igualdad de Oportunidad para Personas con Discapacidad, Nº 7600, especialmente las contenidas en sus artículos 41, 42, 43, 44 y 50 así como en su respectivo reglamento."
