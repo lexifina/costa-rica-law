@@ -1,0 +1,1 @@
+Artículo 2°.- Otorgase por el notario del Estado la correspondiente escritura de propiedad a favor del Instituto de Tierras y Colonización. El Director Administrativo del ITCO comparecerá a la suscripción de la escritura en representación de la Institución.
