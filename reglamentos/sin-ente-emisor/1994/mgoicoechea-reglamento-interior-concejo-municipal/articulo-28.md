@@ -1,0 +1,2 @@
+Artículo 28.—Todos los miembros del Concejo tiene derecho ha hacer uso de la palabra concentrándose en el tema objeto de discusión, si se desvía del tema, repite conceptos ya dichos, no aporte nada nuevo al debate su participación, de inmediato le será suspendido su derecho a continuar en el uso de la palabra.
+Para obtener la autorización en el uso de la palabra, ésta se hará levantando su mano en forma visible, o bien poniéndose de pie y manifestando su deseo a viva voz "Señor Presidente pido la Palabra ".

@@ -1,0 +1,1 @@
+Artículo 31,—Quién funja como Secretario del Concejo, llevará el control de tiempo autorizado en cada situación, y cuando el mismo se haya vencido, lo indicará al Presidente quién sonando su timbre, le indicará al exponente que el tiempo ha llegado a su fin.

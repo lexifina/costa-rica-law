@@ -1,0 +1,1 @@
+Artículo 15.—Las actas de las sesiones deberán ser aprobadas en la Sesión Ordinaria posterior, salvo que circunstancias especiales lo impidan, en cuyo caso la aprobación de las actas se pospondrá para la sesión ordinaria siguiente.

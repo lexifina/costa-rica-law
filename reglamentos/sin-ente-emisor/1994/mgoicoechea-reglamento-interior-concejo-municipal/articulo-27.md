@@ -1,0 +1,1 @@
+Artículo 27.—Los Regidores Suplentes, Síndicos y cualquier vecino del cantón puede presentar una Moción, siempre y cuando sea acogida para su trámite por un Regidor Propietario. De igual manera toda iniciativa que tienda a adaptar, reformar suspender o derogar disposiciones reglamentarias.

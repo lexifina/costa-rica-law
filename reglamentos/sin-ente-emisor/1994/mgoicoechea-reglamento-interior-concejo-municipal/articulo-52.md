@@ -1,0 +1,1 @@
+Artículo 52.—Cuando el objeto de la audiencia fuere un asunto de competencia del Ejecutivo, el Presidente ordenará a la Secretaria a remitir el memorial presentado a dicho funcionario, para que éste le de el trámite correspondiente. La Secretaria le hará del conocimiento a los interesados.

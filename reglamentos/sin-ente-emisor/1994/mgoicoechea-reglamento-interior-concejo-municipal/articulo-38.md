@@ -1,0 +1,1 @@
+Artículo 38.—Presentada usa moción de orden, se concederá el uso de la palabra en primer término al proponente y luego a los Regidores que la solicitan, sin que pueda excederse de cinco minutos cada intervención.

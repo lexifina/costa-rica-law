@@ -1,0 +1,1 @@
+Artículo 22.—El Presidente Municipal calificará los asuntos de trámite urgente y ordenará a la Secretaría incluirlos en la Orden del Día previa calificación, En sesión podrán incluirse asuntos de trámite urgente por iniciativa del Presidente o de uno o más Regidores, si el Concejo así lo acuerda por simple mayoría, mediante la presentación de una Moción de Orden.

@@ -1,0 +1,1 @@
+Artículo 45.—El Concejo Municipal podrá pasar los dictámenes de Comisión a conocimiento de otra Comisión, o alguna designada especialmente por el Presidente, para que se pronuncie sobre un caso concreto.

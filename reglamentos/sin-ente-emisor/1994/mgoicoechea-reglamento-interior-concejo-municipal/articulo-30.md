@@ -1,0 +1,2 @@
+Artículo 30.—Cualquier miembro del Concejo en uso de la palabra podrá, si así lo tiene a bien, permitir una interrupción para aclaración o adición del tema que trata.
+El tiempo que dure la interrupción se reputará cómo suyo, sin que tal interrupción sea superior a los dos minutos. El Presidente tendrá que hacerle ver al orador de turno que su tiempo de interrupción se ha agotado, para que quién fue interrumpido continué con su intervención.

@@ -1,0 +1,1 @@
+Artículo 23.— La alteración del Orden del Día se solicitará mediante una Moción de Orden, la cual puede hacerse verbalmente; para su justificación el proponente hará uso de la palabra hasta por tres minutos.

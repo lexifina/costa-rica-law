@@ -1,0 +1,1 @@
+Artículo 13.—Las sesiones del Concejo serán públicas, sin perjuicio de que en casos muy especiales determinada sesión o parte de ella sea declarada secreta; como podrán serlo la aprobación del Presupuesto Anual, el nombramiento del Ejecutivo Municipal y a cualquier otra sesión como lo establece el Código Municipal.

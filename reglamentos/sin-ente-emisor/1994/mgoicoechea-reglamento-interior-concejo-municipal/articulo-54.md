@@ -1,0 +1,2 @@
+Artículo 54.—El Presidente llamará la atención de los miembros del Concejo que no acaten las disposiciones contenidas en este Reglamento, haciéndoles ver las violaciones en que incurren y por no más de dos veces a cada miembro, llamándolos al orden.
+De persistir el desacato y de acuerdo a la gravedad de los hechos la Presidencia podrá levantar la Sesión en el acto, sin perjuicio de lo que reste por conocerse según el Orden del Día.

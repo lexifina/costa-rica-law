@@ -1,0 +1,1 @@
+Artículo 51.—El Concejo analizará y resolverá sobre la audiencia en cualquiera de las sesiones de la semana inmediata posterior a la fecha en que la misma fuera concedida. Queda facultado el Presidente para trasladar a Comisión o Dirección Ejecutiva el caso.

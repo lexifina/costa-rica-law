@@ -1,0 +1,1 @@
+Artículo 29.—El proponente original de una Moción tiene prioridad en el uso de la palabra y para tal efecto gozará en el uso de la palabra de cinco minutos. El Presidente podrá concederle una segunda ocasión en el uso de la palabra, no mayor de tres minutos, para que ejerza la réplica a que tiene derecho en caso de que su moción haya sido combatida.

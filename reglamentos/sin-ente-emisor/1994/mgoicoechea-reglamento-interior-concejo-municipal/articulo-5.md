@@ -1,0 +1,2 @@
+Artículo 5°— La Convocatoria a sesiones extraordinarias deberán hacerse por lo menos con veinticuatro horas de anticipación a la sesión, mediante convocatoria misma en Sesión anterior, notificación que puede ser en forma escrita, personal, telefónica,
+En uno u otro caso firmará la persona que reciba la notificación, debiendo la autoridad o el funcionario notificador hacerlo constar en el acta de notificación.

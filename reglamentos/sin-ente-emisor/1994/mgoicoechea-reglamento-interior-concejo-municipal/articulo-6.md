@@ -1,0 +1,1 @@
+Artículo 6°—En Sesiones Extraordinarias se conocerán exclusivamente los asuntos indicados en la convocatoria, salvo que por unanimidad de los Regidores Propietarios presentes se decida conocer otros asuntos, previo a la Orden del Día que indique el Presidente Municipal.

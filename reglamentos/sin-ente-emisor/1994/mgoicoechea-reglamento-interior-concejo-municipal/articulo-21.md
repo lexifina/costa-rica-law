@@ -1,0 +1,1 @@
+Artículo 21.—Los dictámenes de las comisiones serán incluidos en la Orden del Día siguiendo el orden en que fueron presentados a la Secretaría , para ese efecto la Secretaria al recibir los dictámenes consignará al pie de ellos la hora y fecha de presentación.
