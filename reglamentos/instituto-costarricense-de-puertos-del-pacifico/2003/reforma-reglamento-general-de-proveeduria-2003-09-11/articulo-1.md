@@ -1,5 +1,0 @@
-INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO
-El Instituto Costarricense de Puertos del Pacífico avisa que la Junta Directiva de esta Institución mediante acuerdo N° 1 tomado en la sesión N° 3194, celebrada el día 11 de setiembre del 2003, acordó:
-Acuerdo 1
-Atendiendo la recomendación 4.1 del oficio N° AG-344-2003 fechado 1º de setiembre del 2003, suscrito por el Lic. Franklin Stevanovich, Auditor General, se dispone modificar el artículo 8 del Reglamento de Proveeduría, que se leerá como sigue:
-Las compras hasta por ¢1.000.000,00 en casos excepcionales y con el debido criterio técnico, podrán realizarse con una sola cotización; para tales casos, la Proveeduría requiere previamente la autorización del Gerente General o Presidente Ejecutivo, debiéndose dejar constancia en el expediente respectivo de las razones que el caso amerita para que se dé esta situación, enviando copia de la motivación del acto tanto a la Gerencia General como a la Dirección Administrativa para verificar su correcta aplicación.
