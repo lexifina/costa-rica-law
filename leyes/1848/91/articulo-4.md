@@ -1,0 +1,1 @@
+Art. 4. Son responsables los Jueces de 1° Instancia al tesoro pùblico por el valor triplicado de las tasaciones que no fueren visadas, como en el presente decreto se previene, por el de las que por su morosidad no se cobren y por el de los tantos que se dejaren de tasar, sin perjuicio de las demás penas á que están sujetos los recaudadores de las rentas pùblicas.
