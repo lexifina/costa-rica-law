@@ -14,3 +14,4 @@ Modifica Ley de Fomento de las Exportaciones y reforma Reglamento a la Ley de Fo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-05-20 | la propia norma |
+| 2 | 1980-05-20 | SINALEVI (sin norma nombrada) |
