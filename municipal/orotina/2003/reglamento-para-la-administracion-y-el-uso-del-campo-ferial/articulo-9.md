@@ -1,0 +1,1 @@
+Artículo 9º—Los usuarios del inmueble serán responsables de la custodia y seguridad de aquellos bienes, que en virtud de su actividad, hayan introducido al Campo Ferial, por lo que la administración queda absolutamente eximida de toda responsabilidad por la pérdida o daños eventuales que pudiera darse en los objetos referidos.

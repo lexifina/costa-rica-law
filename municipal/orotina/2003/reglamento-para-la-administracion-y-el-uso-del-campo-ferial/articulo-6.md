@@ -1,0 +1,1 @@
+Artículo 6º—De la autorización para el uso. La Junta Administrativa no podrá autorizar el uso de locales en el período comprendido entre los meses de enero y mayo para no alterar el proceso de organización de la Feria Nacional de las Frutas, salvo autorización de la Comisión Municipal Organizadora de la Feria Nacional de las Frutas.

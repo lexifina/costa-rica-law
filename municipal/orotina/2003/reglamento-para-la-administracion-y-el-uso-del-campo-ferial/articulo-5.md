@@ -1,0 +1,1 @@
+Artículo 5º—De los usuarios. Las instalaciones del Campo Ferial podrán ser utilizadas por personas físicas y jurídicas, grupos organizados del cantón, instituciones públicas o privadas, cantonales, nacionales o internacionales, que trabajen a nivel comunal, regional o nacional, en la promoción, enseñanza y ejecución de actividades que promuevan el desarrollo del cantón.
