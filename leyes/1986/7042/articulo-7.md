@@ -1,0 +1,1 @@
+Artículo 7º.- En el caso de que, en el curso de los dos años previstos en esta ley, se llegare a convenir entre las Partes un convenio permanente, éste deberá ser aprobado por la Asamblea Legislativa.

@@ -1,0 +1,1 @@
+Artículo 8º.- Se autoriza al Poder Ejecutivo para que gestione el reingreso de Costa Rica como país integrante de la Comisión Interamericana del Atún Tropical (CIAT). Para el logro de este propósito, el Estado podrá firmar y suscribir los convenios y tratados que sean necesarios.

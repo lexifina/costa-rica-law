@@ -1,0 +1,1 @@
+Artículo 11.-Este Convenio no modifica la ley Nº 5775 del 14 de agosto de 1975 y su reforma, ley Nº 6267 del 29 de agosto de 1978, en lo concerniente a lo dispuesto en los artículos 7º, 8º, 9º, 10, 11, 12, 13 y 14.
