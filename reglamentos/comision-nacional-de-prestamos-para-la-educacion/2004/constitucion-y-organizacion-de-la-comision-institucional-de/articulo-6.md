@@ -1,0 +1,1 @@
+Artículo 6º—Herramientas de autoevaluación. La Comisión revisará y propondrá al Jerarca la herramienta de autoevaluación del sistema de control interno que se aplicará, acorde con las especificaciones emanadas por la Contraloría General de la República.

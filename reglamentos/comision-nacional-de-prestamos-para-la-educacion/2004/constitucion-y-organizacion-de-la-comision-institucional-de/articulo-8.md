@@ -1,0 +1,5 @@
+Artículo 8º—Atribuciones. Las atribuciones de la Comisión serán las siguientes:
+a) Solicitar informes a los titulares subordinados.
+b) Acceder a toda la información que se considere necesaria, con el fin de efectuar una valoración idónea de los riesgos que amenacen a CONAPE; siendo obligatorio para todos los funcionarios, dar pronta atención a las solicitudes de información y consultas que reciban de la comisión, en el plazo que ésta defina.
+c) Investigar e informar, cuando exista incumplimiento de la normativa de control interno, según lo establecido en el artículo 39 de la Ley General de Control Interno, en la unidad donde se presente tal situación, con el fin de que se aplique lo establecido en los artículos 41, 42 y 43 de la Ley supracitada.
+d) Solicitar la presencia de algún funcionario de la Institución en las reuniones ordinarias o extraordinarias que realice, con el objetivo de que se brinde asesoría a la Comisión en algún tema técnico específico de importancia para el control interno.
