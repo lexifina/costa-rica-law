@@ -1,0 +1,1 @@
+Artículo 2º—El traspaso del inmueble mencionado en el artículo anterior, estará a cargo de la Notaría del Estado de la Procuraduría General de la República y estará exento del pago de cualquier tipo de impuestos, tasas o derechos registrales.
