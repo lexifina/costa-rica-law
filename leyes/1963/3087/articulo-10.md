@@ -1,0 +1,1 @@
+Artículo 10.- El Departamento de Planes Anuales deberá preparar cada año un estudio acerca del probable desenvolvimiento del sector privado de la economía nacional. Para este efecto el Departamento pedirá la cooperación de las Cámaras Patronales.

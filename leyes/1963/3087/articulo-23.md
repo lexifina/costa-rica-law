@@ -1,0 +1,1 @@
+Artículo 23.- El Departamento de Financiación deberá remitir copia de los estudios, análisis y cálculos mencionados en el artículo 21 de esta ley, a la institución nacional que definitivamente se encargue de las gestiones relativas a un proyecto.
