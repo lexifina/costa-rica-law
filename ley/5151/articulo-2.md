@@ -1,0 +1,1 @@
+Artículo 2º.- Los detenidos preventivamente que observen las disposiciones del artículo anterior, tendrán derecho a ese beneficio, en cuyo caso se les abonará el descuento obtenido, si sobre ellos recayere sentencia condenatoria.
