@@ -1,2 +1,0 @@
-Artículo 12.- Los organismos públicos y las empresas, así como las personas físicas, estarán obligados a prestar toda la colaboración necesaria a la Junta Administrativa del Fondo, con el propósito de hacer eficiente la recaudación de los recursos.
-La Dirección General de la Tributación Directa y la Contraloría General de la República prestarán la colaboración necesaria y suministrarán la información que requiera la Junta, con el fin de verificar el correcto pago de las sumas correspondientes.
