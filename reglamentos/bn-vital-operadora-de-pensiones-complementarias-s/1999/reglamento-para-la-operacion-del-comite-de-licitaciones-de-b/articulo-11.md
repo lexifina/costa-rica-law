@@ -1,0 +1,1 @@
+Artículo 11.—Otras Regulaciones. En lo no regulado expresamente aquí, se estará en los dispuesto por la Ley de Contratación Administrativa y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Vital, Operadora de Pensiones Complementarias S. A.
