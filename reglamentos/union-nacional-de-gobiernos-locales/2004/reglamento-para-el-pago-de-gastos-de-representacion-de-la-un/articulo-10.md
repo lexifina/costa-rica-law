@@ -1,0 +1,1 @@
+Artículo 10.—El concepto de este tipo de gasto se refiere a aquellas erogaciones en que incurren los miembros del Consejo Directivo y la Dirección Ejecutiva en ejercicio de su cargo, con el objeto de brindar atenciones de carácter oficial a personas o instituciones, en el exterior ajenas a la entidad que otorga la atención.

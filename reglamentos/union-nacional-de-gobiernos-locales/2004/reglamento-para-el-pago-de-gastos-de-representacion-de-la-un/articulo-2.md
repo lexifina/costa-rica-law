@@ -1,0 +1,2 @@
+Artículo 2º—El Consejo Directivo será el Órgano encargado de aprobar los gastos de representación para los funcionarios que se encuentren autorizados de acuerdo con la reglamentación vigente para realizar dichos gastos.
+Además sus funciones se dirigirán a girar instrucciones generales para establecer los controles internos que la administración de la Institución, deberá poner en práctica, para mantener y perfeccionar la estructura de control interno sobre esta materia.

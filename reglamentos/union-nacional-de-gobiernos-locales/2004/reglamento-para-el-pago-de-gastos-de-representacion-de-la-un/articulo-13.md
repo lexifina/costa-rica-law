@@ -1,0 +1,1 @@
+Artículo 13.—Las sumas que se autoricen, no podrán dedicarse a la atención de funcionarios representantes o personeros del Gobierno de la República de Costa Rica o de algún ente público costarricense.

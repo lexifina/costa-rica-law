@@ -1,0 +1,4 @@
+Artículo 3º—Para efectos del presente Reglamento se entenderá por:
+U.N.G.L: Unión Nacional de Gobiernos Locales
+Consejo Directivo: Consejo Directivo de la U.N.G.L.
+Auditoría Interna: Auditoría Interna de la U.N.G.L. Administración Activa: Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico es el conjunto de órganos y entes de la función administrativa, que deciden y ejecutan; incluye al jerarca, como última instancia Contraloría General: Contraloría General de la República Ley 8343: Ley de Contingencia Fiscal Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos Circular Nº 5126 de la Contraloría General de la República Reglamento: Reglamento de Gastos de Representación de la U.N.G.L.

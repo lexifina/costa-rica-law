@@ -1,0 +1,19 @@
+CAPÍTULO TERCERO
+Gastos de representación fuera del país
+Artículo 9º—Para realizar este tipo de gastos en el exterior, se debe cumplir con lo que establece el capítulo V, artículos del 48 al 51 del Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos, emitido por la Contraloría General. (Se transcribe textualmente).
+CAPÍTULO V
+Gastos de representación ocasionales en el exterior
+Artículo 48.—Concepto. Por gastos de representación ocasionales se entiende aquellas erogaciones en que incurren ciertos funcionarios en el ejercicio de su cargo, con el objeto de brindar atenciones de carácter oficial a personas o instituciones, en el exterior, ajenas a la entidad que otorga la atención.
+Artículo 49.—Casos en los que corresponde su pago. Además de las sumas que en cada caso corresponda, según tarifas autorizadas en este Reglamento (artículos 32º, 33º, 34º y 41º), los miembros de los Supremos Poderes, los funcionarios pertenecientes al nivel determinativo y de ejecución o fiscalización superior (enumerados en el artículo 36º) y los jefes de delegación, podrán disponer, en los viajes al exterior, de una suma adicional para financiar otros gastos que consideren necesarios para la adecuada atención de funcionarios de otras organizaciones vinculadas con las actividades del ente público que representan, sujetos a la autorización que establece el artículo siguiente.
+Las sumas que se autoricen de acuerdo con lo dispuesto en el párrafo anterior, no podrán dedicarse a la atención de funcionarios, representantes o personeros del Gobierno de la República de Costa Rica o de algún ente público costarricense, cualquiera que sea su cargo, rango o nacionalidad.
+Cuando el tipo de atención que haya brindado el funcionario a quien se le han autorizado gastos de representación, sea similar con alguno de los tipos de servicio que cubre la tarifa diaria establecida por el artículo 34º, dicho funcionario no podrá cobrar la parte correspondiente de la tarifa diaria, equivalente al servicio brindado, según el desglose de la tarifa que estipula el artículo 35 de este Reglamento. Para verificar el cumplimiento de esta disposición, la Administración tendrá en cuenta la factura y la clase de atención que se incluye en la justificación que establece el artículo 51º siguiente.
+Por jefe de delegación se entenderá, el funcionario bajo cuya dirección actúan los demás miembros del grupo, siempre y cuando todos ellos hayan sido nombrados por acuerdo ejecutivo o por acuerdo del órgano superior del ente público respectivo, para representarlo en una misión oficial.
+Artículo 50.—Fijación del monto. Corresponde al órgano superior de cada ente público autorizar y fijar, en el acuerdo de viaje que regula el artículo 31, el monto del gasto de representación en los viajes al exterior y establecer el tipo de atención que el funcionario que goce de esa prerrogativa puede brindar a los funcionarios que va a visitar en cumplimiento de su misión. Dicho monto, además de ser razonable, debe guardar relación con la categoría del funcionario que efectúa el gasto y con el evento que lo origina.
+Las sumas giradas por concepto de gastos de representación, están sujetas a las mismas disposiciones del artículo 46 de este Reglamento.
+Artículo 51.—Autorización previa y presentación de facturas.
+Para el reconocimiento de los gastos de representación ocasionales será indispensable, además de la autorización previa que exige el artículo 7º, la presentación de las correspondientes facturas, acompañadas de una justificación con el siguiente detalle:
+a) Cargo y nombre de los funcionarios atendidos y de la entidad a que pertenecen.
+b) Nombre y firma del funcionario responsable del pago.
+c) Motivo de la atención.
+d) Clase o tipo de atención.
+El incumplimiento de este requisito obligará a reintegrar la suma que se hubiere girado como adelanto por ese concepto.
