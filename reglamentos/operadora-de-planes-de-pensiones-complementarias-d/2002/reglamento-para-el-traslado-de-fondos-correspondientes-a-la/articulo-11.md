@@ -1,0 +1,1 @@
+Artículo 11.—Vigencia. Este Reglamento fue aprobado por la Junta Directiva de la Operadora en sesión ordinaria Nº 88 celebrada el 18 de diciembre del 2002 y rige a partir de su publicación en el Diario Oficial La Gaceta.

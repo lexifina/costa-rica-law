@@ -1,0 +1,1 @@
+Artículo 4º—De las entidades. Las entidades que se mencionan en el artículo 3.2 anterior mantendrán una cuenta corriente en el Banco Popular, la que será utilizada exclusivamente para el depósito de los aportes que efectúe el patrono y su retiro por parte de la organización.
