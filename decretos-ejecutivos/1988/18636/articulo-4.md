@@ -2,8 +2,11 @@ ARTÍCULO 4°.-Alcances y honorarios de los servicios de consultoría
 A. Consultas profesionales
 La consulta profesional se refiere a una asesoría eventual sobre una materia específica, que el cliente solicita al consultar para obtener una opinión calificada.
 La consulta puede realizar en la oficina del consultor o fuera de ella, en cuyo caso el cliente deber aportar, por su cuenta, los gastos de viaje.
-Los honorarios profesionales se calcularán con base en el sistema de hora profesional con valor de mil cuarenta y un colones (½ 1.041,00) en enero de 1987. Este valor se ajustar mediante la aplicación del índice de variación de precios para edificios, promulgado mensualmente por el Ministerio de Economía, Industria y Comercio, cada vez que haya un incremento de 100 puntos en el índice en referencia.
+(*) Los honorarios profesionales se calcularán con base en el sistema de hora profesional con valor de mil cuarenta y un colones (¢ 1.041,00) en enero de 1987. Este valor se ajustar mediante la aplicación del índice de variación de precios para edificios, promulgado mensualmente por el Ministerio de Economía, Industria y Comercio, cada vez que haya un incremento de 100 puntos en el índice en referencia.
 El profesional devengar honorarios durante el tiempo de ida y regreso, ocupado en el desplazamiento desde su oficina hasta el sitio de consulta.
+(*) (Nota de Sinalevi: El Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, en sesión N° 40 del 7 de setiembre de 1995, establece que el monto indicado como honorario profesional en el sistema de hora (¢ 1.041.00), debe multiplicarse por el factor “i” el cual tiene un valor de 3.9439,
+i= Indice de ajuste inflacionario
+Hora Profesional: ¢ 1.041,00 x 3.9439 = ¢ 4.105,60 ))
 B. Estudios Básicos
 Por Tratarse de servicios realizados por otros profesionales especializados ajenos al consultor -previos al desarrollo de un proyecto-, sus alcances serán definidos para cada tipo de servicio por el "director del proyecto", evaluándose el grado de complejidad. El consultor coordinar , analizar e interpretar el estudio del especialista, antes de incorporarlo al proyecto.
 Los honorarios profesionales se calcularán con base en el sistema de reintegro de costos más una suma fija o porcentaje de esos costos.

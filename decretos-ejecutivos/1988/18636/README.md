@@ -14,3 +14,4 @@ Arancel de Servicios Profesionales de Consultoría para Edificaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-11-25 | la propia norma |
+| 2 | 1995-09-07 | Reglamento 40 (1995-09-07) |
