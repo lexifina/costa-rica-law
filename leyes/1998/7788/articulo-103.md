@@ -1,0 +1,6 @@
+ARTÍCULO 103.- Eliminación de incentivos negativos
+El Ministerio del Ambiente y Energía y las demás autoridades
+públicas, tomando en consideración el interés público, deberán revisar la
+legislación existente y proponer o realizar los cambios necesarios para
+eliminar o reducir los incentivos, negativos para la conservación de la
+biodiversidad y su uso sostenible y proponer los desincentivos apropiados.

@@ -1,0 +1,12 @@
+ARTÍCULO 76.- Reglas generales para el acceso
+Además de los requisitos específicamente señalados en los artículos
+precedentes, en la resolución respectiva la Oficina Técnica, de
+conformidad con las Normas Generales de la Comisión, establecerá la
+obligación del interesado de depositar hasta un diez por ciento (10%) del
+presupuesto de investigación y hasta un cincuenta por ciento (50%) de las
+regalías que cobre, en favor del Sistema Nacional de Áreas de
+Conservación, el territorio indígena o el propietario privado proveedor de
+los elementos por accesar; además, determinará el monto que en cada caso
+deberán pagar los interesados por gastos de trámites, así como cualquier
+otro beneficio o transferencia de tecnología que forme parte del
+consentimiento previamente informado.

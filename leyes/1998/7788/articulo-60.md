@@ -1,0 +1,7 @@
+ARTÍCULO 60.- Propiedad de las áreas silvestres protegidas
+Las áreas silvestres protegidas, además de las estatales, pueden ser
+municipales, mixtas o de propiedad privada. Por la gran importancia que
+tienen para asegurar la conservación y el uso sostenible de la
+biodiversidad del país, el Ministerio del Ambiente y Energía y todos los
+entes públicos, incentivarán su creación, además, vigilarán y ayudarán en
+su gestión.

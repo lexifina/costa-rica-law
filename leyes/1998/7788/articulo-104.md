@@ -1,0 +1,9 @@
+ARTÍCULO 104.- Promoción del mejoramiento tradicional
+El Ministerio del Ambiente y Energía y las demás autoridades públicas
+promoverán la conservación y el uso sostenible de los recursos biológicos
+y genéticos que hayan sido objeto de mejoramiento o selección por las
+comunidades locales o los pueblos indígenas, especialmente los que se
+encuentren amenazados o en peligro de extinción y que requieran ser
+restaurados, recuperados o rehabilitados. El Ministerio otorgará la
+asistencia técnica o financiera necesaria para cumplir con esta
+obligación.

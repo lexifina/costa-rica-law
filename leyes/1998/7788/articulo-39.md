@@ -1,0 +1,23 @@
+ARTÍCULO 39.- Concesiones y contratos
+Autorízase al Consejo Nacional de Áreas de Conservación, para aprobar
+los contratos y las concesiones de servicios y actividades no esenciales
+dentro de las áreas silvestres protegidas estatales, excepto el ejercicio
+de las responsabilidades que esta y otras leyes le encomiendan,
+exclusivamente, al Poder Ejecutivo por medio del Ministerio del Ambiente
+y Energía, tales como la definición, el seguimiento de estrategias, los
+planes y los presupuestos de las Áreas de Conservación. Estas concesiones
+y contratos en ningún caso podrán comprender la autorización del acceso a
+elementos de la biodiversidad en favor de terceros; tampoco la
+construcción de edificaciones privadas.
+Los servicios y las actividades no esenciales serán: los
+estacionamientos, los servicios sanitarios, la administración de
+instalaciones físicas, los servicios de alimentación, las tiendas, la
+construcción y la administración de senderos, administración de la visita
+y otros que defina el Consejo Regional del Área de Conservación.
+Estas concesiones o los contratos podrán otorgarse a personas
+jurídicas, con su personería jurídica vigente, que sean organizaciones sin
+fines de lucro y tengan objetivos de apoyo a la conservación de los
+recursos naturales; se les dará prioridad a las organizaciones regionales.
+Los concesionarios o permisionarios deberán presentar auditorías
+externas satisfactorias, realizadas en el último año; todo a juicio del
+Consejo Regional del Área de Conservación.

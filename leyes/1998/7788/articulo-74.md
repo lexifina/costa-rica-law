@@ -1,0 +1,13 @@
+ARTÍCULO 74.- Autorización de convenios y contratos
+La Oficina Técnica de la Comisión, autorizará los convenios y
+contratos suscritos entre particulares, nacionales o extranjeros, o entre
+ellos y las instituciones registradas para el efecto, si contemplaren
+acceso al uso de los elementos genéticos y bioquímicos de la biodiversidad
+costarricense. Para tramitarlos y aprobarlos, deberán cumplir con lo
+estipulado en los artículos 69, 70 y 71.
+Las universidades públicas y otros centros debidamente registrados
+podrán suscribir en forma periódica convenios marco con la Comisión, para
+tramitar los permisos de acceso y los informes de operaciones. En estos
+casos, los representantes legales de las universidades o instituciones que
+se acojan a este beneficio, serán penal y civilmente responsables por el
+uso que se le dé.
