@@ -46,3 +46,14 @@ m) Que estuvieren vinculados con sujetos pasivos que sean objeto de actuaciones 
 n) Que los intereses y otros gastos financieros deducidos superen el 50% de la renta imponible. Este criterio no se aplicará a entidades financieras.
 o) Que le hubieren sido practicadas liquidaciones previas como producto de actuaciones de comprobación abreviada o formal.
 (Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 30073 de 17 de diciembre de 2001 públicado en La Gaceta N° 10 de 15 de enero de 2002, el cual adicionó los incisos m), n) y o) del presenta artículo.)
+p) También se podrá seleccionar a aquellos comprendidos dentro de los siguientes sectores y actividades económicas:
+1. Importación y comercialización de vehículos automotores y sus repuestos.
+2. Venta y alquiler de bienes inmuebles.
+3. Prestación de servicios de educación.
+4. Ejercicio liberal de profesiones.
+5. Servicios relacionados con el turismo tales como hoteles, transporte, operadores turísticos, agencias de viaje, excursiones, esparcimiento, y similares.
+6. Centros de colocación de apuestas, de juegos de azar, casinos virtuales y explotación de máquinas tragamonedas.
+7. Extracción y comercialización de piedra, arcilla y arena.
+8. Imprentas y litografías.
+9. Sujetos pasivos de cualquier sector o actividad económica que, como consecuencia de haber sido objeto de actuaciones abreviadas, o que al iniciárseles dicho procedimiento, hubieren presentado las declaraciones tributarias o hubieren recti.cado las presentadas inicialmente.
+(Así ampliado el inciso p), mediante el artículo 1° de la resolución No. DGT-02, de las ocho horas del 14 de enero del 2005.)
