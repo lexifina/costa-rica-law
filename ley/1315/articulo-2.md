@@ -1,0 +1,1 @@
+Artículo 2°.- Autorizase la venta de la propiedad descrita en el artículo anterior Asimismo, si fuere necesario, a juicio de la Junta de Protección Social, la de la finca N°5168, asiento 1, tomo 872, folio 182 y su ampliación al tomo 831, folio 183, N° 4891, asiento 3, todo ello de acuerdo con lo que establece la ley N°28 del 13 de junio de 1944.
