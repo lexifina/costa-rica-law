@@ -14,3 +14,4 @@ Reglamento de Concurso de Oposición para el Ingreso a la Carrera Diplomática y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-10-01 | la propia norma |
+| 2 | 1996-05-27 | Decreto Ejecutivo 25186 (1996-05-27) |

@@ -1,1 +1,2 @@
-Artículo 5.—El Instituto del Servicio Exterior de Costa Rica "Manuel María de Peralta" realizará los procedimientos de idoneidad y las pruebas académicas requeridas para el concurso.
+Artículo 5.—Para la selección de los aspirantes y la comprobación de su idoneidad, conocimientos y calificaciones, la Comisión Calificadora podrá solicitar la colaboración de instituciones de enseñanza o de personas con conocimientos especializados o de reconocida experiencia en la materia de que se trate.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo N° 25186 del 27 de mayo de 1996, publicado en La Gaceta N° 106 del 04 de junio de 1996)

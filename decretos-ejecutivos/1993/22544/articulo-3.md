@@ -1,1 +1,5 @@
-Artículo 3.—La Comisión Calificadora del Servicio Exterior tramitará y resolverá los concursos de oposición de ingreso a la Carrera Diplomática.
+CAPITULO II
+Procedimiento del Concurso de Oposición para el Ingreso
+a la Carrera del servicio Exterior.
+Artículo 3.- Para convocar a los concursos de oposición de ingreso a la carrera del Servicio Exterior, el Ministro de Relaciones Exteriores y Culto dará las instrucciones correspondientes a la Comisión Calificadora del Servicio Exterior, por medio de su Secretaría. La convocatoria a concurso se hará mediante avisos colocados a la vista del público en la sede central del Ministerio de Relaciones Exteriores y Culto y mediante aviso en al menos un periódico de circulación nacional, con al menos treinta días de anticipación. La Comisión Calificadora podrá disponer otros medios para comunicar la convocatoria. Los concursos de oposición deberán realizarse ordinariamente cada dos años y extraordinariamente cuando el Ministro de Relaciones Exteriores y Culto lo considere conveniente, considerando las necesidades del Servicio Exterior.
+(Así REFORMADO TOTAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 28821 del 31 de julio del 2000, publicado en La Gaceta N° 152 del 09 de agosto del 2000.)

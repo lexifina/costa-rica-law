@@ -1,1 +1,2 @@
 Artículo 7.—Para convocar a los concursos de oposición de ingreso a la carrera diplomática, el Ministro de Relaciones Exteriores y Culto dará instrucciones correspodientes a la Comisión Calificadora del Servicio Exterior, por medio de su Secretaría. La convocatoria a concurso se hará mediante avisos colocados a la vista del público en la sede central del Ministerio de Relaciones Exteriores y Culto.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo N° 25186 de 27 de mayo de 1996, publicado en La Gaceta N° 106 del 04 de junio de 1996)
