@@ -1,0 +1,1 @@
+Artículo 13.- Casos especiales: En el caso contemplado en el artículo 3°, inciso b) del presente Reglamento, la Junta Directiva o la Gerencia General, según corresponda, dictarán las normas que regularán el otorgamiento del respectivo beneficio, en el acto de la aprobación de cada caso concreto.

@@ -1,0 +1,1 @@
+Artículo 10.-Transmisión de conocimientos: Los funcionarios que fueran favorecidos con el otorgamiento de los beneficios a que se refiere este Reglamento, quedarán obligados, cuando le fuere solicitado, a impartir en forma gratuita, charlas, conferencias a cursos que versen sobre la materia objeto del beneficio recibido.

@@ -1,0 +1,1 @@
+Artículo 17.- Becas o incentivos de otros organismos: Los beneficios en que la materia regulada por este Reglamento, pudiere recibir un funcionario del Banco con base en acuerdos o programas especiales que al efecto se establecieren con otros organismos o entidades, nacionales o extranjeras, quedarán sujetos también a la aplicación de estas disposiciones.
