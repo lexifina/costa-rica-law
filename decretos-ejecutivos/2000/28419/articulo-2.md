@@ -1,0 +1,1 @@
+Artículo 2º—Las autoridades de las instituciones públicas nacionales involucradas y las instancias del sector agropecuario, promoverán entre sus funcionarios interesados, la participación y divulgación de las investigaciones, trabajos y resultados que se realicen en este foro, brindando todas las facilidades que están a su alcance para la celebración de dichos congresos.
