@@ -1,5 +1,7 @@
-Artículo 70.- Si los propietarios de bosques y terrenos particulares
-no cumplieran con las normas establecidas en los planes técnicos de manejo
-forestal, la Dirección General Forestal cancelará la inscripción
-contemplada en el artículo 63 de esta ley. Asimismo, dejarán de gozar los
-incentivos establecidos en los artículo 66, 67 y 68.
+Artículo 70.- En general, los bosques y terrenos forestales
+declarados zonas protectoras, por disposición de leyes o decretos
+ejecutivos, están sometidos obligatoriamente al régimen forestal y
+gozarán de sus beneficios. En consecuencia, queda prohibido efectuar en
+ellos labores agropecuarias o eliminar la vegetación, salvo en los casos
+que, con sujeción a las normas técnicas, determine la Dirección General
+Forestal.

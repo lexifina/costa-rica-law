@@ -1,6 +1,8 @@
-Artículo 103.- Las infracciones indicadas en esta ley, penadas con
-multa, serán consideradas faltas de policía, hasta cien colones, y su
-juzgamiento corresponde a los agentes judiciales, jefes políticos y
-agentes principales de policía, los cuales ajustarán sus procedimientos a
-las disposiciones contenidas en los artículos 684 a 693, ambos inclusive,
-del Código de Procedimientos Penales.
+Artículo 103.- El Ministerio de Ambiente y Energía, por medio de la
+Dirección General Forestal, regulará y reglamentará la exportación o la
+importación de materia prima o de productos forestales, por volumen,
+calidad, precios y otros factores. Todo permiso de importación o
+exportación deberá ser aprobado por la Dirección General Forestal. Queda
+prohibida la exportación de trozas de madera.
+(Así modificado del nombre del Ministerio por el artículo 116 de la
+Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)

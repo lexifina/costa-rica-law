@@ -1,5 +1,5 @@
-Artículo 65.- La Dirección General Forestal prestará la asistencia
-técnica, según sus posibilidades, a los particulares, para cumplir lo
-establecido en el artículo anterior. Pero en todo caso, la elaboración de
-los planes técnicos de manejo forestal, correrá por cuenta de los
-interesados.
+Artículo 65.- Los bosques y terrenos forestales de propiedad privada
+que la Dirección General Forestal considere indispensables para cumplir las
+finalidades de esta ley, quedarán sometidos obligatoriamente al régimen
+forestal. El Poder Ejecutivo, mediante decreto, determinará en cada caso
+las áreas afectadas.

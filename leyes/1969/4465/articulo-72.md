@@ -1,4 +1,4 @@
-Artículo 72.- A los fines del cumplimiento de lo establecido en el
-artículo anterior, si hay negativa de los propietarios a acogerse al
-Régimen Forestal, procederá la explotación de tales bosques y terrenos
-forestales.
+Artículo 72.- Los propietarios de los animales que se introduzcan en
+áreas en regeneración natural o plantación, serán responsables por los
+daños que esos animales causen en esas áreas, sin perjuicio de otras
+sanciones.

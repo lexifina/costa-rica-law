@@ -1,10 +1,12 @@
-Artículo 25.- La posesión de los terrenos situados en las Reservas
-Nacionales y fincas del Estado, a que se refiere el artículo 19 de esta
-ley, no causará derechos de ninguna especie y la acción reivindicatoria
-del Estado, por los mismos, es imprescriptible, y la Dirección General
-Forestal, con los medios legales a su disposición, procederá a desalojar
-de tales terrenos a las personas que los ocupen total o parcialmente, en
-el caso de que se trate de Zonas Protectoras, Parques Nacionales, Reservas
-Forestales y Reservas Biológicas. Asimismo, el Instituto de Tierras y
-Colonización tiene la obligación de reubicar a las personas afectadas por
-esta disposición, previo acuerdo con el Poder Ejecutivo.
+Artículo 25.- Los ingresos del Fondo se depositarán en una cuenta
+especial que se abrirá en cualquiera de los bancos del Sistema Bancario
+Nacional. El retiro de los fondos se hará mediante cheque firmado
+conjuntamente por el Director o el Subdirector General Forestal y el
+Oficial Mayor del Ministerio de Ambiente y Energía, o su
+representante.
+Los procedimientos relativos a la apertura, forma de llevar la
+contabilidad y operación en general de dicha cuenta, serán indicados en
+el reglamento de operación del Fondo. Su revisión, reglamentación y
+control estarán a cargo de la Contraloría General de la República.
+(Así modificado del nombre del Ministerio por el artículo 116 de la
+Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)

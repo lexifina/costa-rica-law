@@ -1,8 +1,11 @@
-Artículo 59.- Las formas de aprovechamiento en las Reservas
-Forestales, tendrán dos variantes:
-a) Cuando existe la intervención directa de la Dirección General
-Forestal, o sea cuando esta Dirección elabora los planes técnicos de
-manejo; y
-b) Cuando la elaboración de los planes técnicos de manejo está a
-cargo de los particulares, bajo la supervisión de la Dirección General
-Forestal.
+Artículo 59.- Ninguna persona natural o jurídica podrá obtener
+concesiones del patrimonio forestal del Estado, en cantidades superiores a
+las necesidades de materia prima que demuestre requerir. A esta cantidad
+se le descontará la materia prima que obtenga por abastecimiento propio o
+la que adquiera de terceras personas.
+Serán nulas de pleno derecho, las autorizaciones que se obtengan,
+directamente o por medio de personas interpuestas, en contravención a lo
+dispuesto en este artículo.
+Quien infrinja lo dispuesto en este artículo le pagará a la Dirección
+General Forestal el doble de lo adquirido, sin perjuicio de las demás
+sanciones establecidas en esta ley.

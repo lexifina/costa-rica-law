@@ -1,4 +1,5 @@
-Artículo 23.- En los decretos creadores de las Reservas Forestales y
-de los Parques Nacionales, se establecerán claramente sus linderos y la
-obligación de materializarlos en el terreno, por parte de la Dirección
-General Forestal.
+Artículo 23.- El Fondo será administrado por la Dirección General
+Forestal del Ministerio de Ambiente y Energía, con la supervisión de la
+Contraloría General de la República.
+(Así modificado del nombre del Ministerio por el artículo 116 de la
+Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)

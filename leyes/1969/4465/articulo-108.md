@@ -1,5 +1,5 @@
-Artículo 108.- El Poder Ejecutivo podrá declarar la caducidad, por
-motivos de conveniencia pública de los arrendamientos otorgados en
-terrenos que no deben salir del Estado.
-La caducidad señalada se declarará en cualquier momento, en todo o en
-parte, con la debida indemnización por los cultivos y mejoras efectuadas.
+Artículo 108.- Todas las personas que habiten legalmente en predios
+que formen parte o sean incorporados al patrimonio forestal del Estado,
+tendrán preferencia, de acuerdo con sus calidades y condiciones, para la
+obtención de los empleos que se generen por la utilización que la Dirección
+General Forestal les dé a los predios.

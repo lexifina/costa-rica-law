@@ -1,3 +1,6 @@
-Artículo 89.- Toda persona queda obligada a cooperar y acatar las
-disposiciones que dicte la Dirección General Forestal, destinadas a
-prevenir y combatir los incendios forestales.
+Artículo 89.- En caso de incumplimiento por parte de los beneficiarios
+del contrato ya suscrito con el Estado, por causa a ellos imputable,
+tendrán que reintegrarle al fisco los montos que hubiesen recibido por
+concepto de incentivos otorgados mediante los certificados de abono
+forestal, conjuntamente con los intereses y demás recargos de ley, sin
+perjuicio de las demás sanciones que la ley determine.

@@ -1,3 +1,7 @@
-Artículo 92.- Las oficinas de telégrafos, teléfonos y las
-radioemisoras, deberán trasmitir de urgencia y sin costo alguno, las
-denuncias sobre los incendios forestales que se produzcan.
+TITULO CUARTO
+De la industrialización y transporte de la
+materia prima forestal
+Artículo 92.- La Dirección General Forestal procurará el desarrollo
+integrado de la industria forestal para fomentar, de acuerdo con lo
+dispuesto en este capítulo, la racionalización, reorganización y
+reubicación de la actividad industrial forestal.

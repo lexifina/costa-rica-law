@@ -1,6 +1,15 @@
-Artículo 67.- Serán considerados como gastos deducibles del impuesto
-sobre la renta, las inversiones realizadas en los trabajos de forestación
-y reforestación, en los bosques y terrenos forestales particulares
-sometidos voluntariamente al Régimen Forestal, y contemplados dentro de un
-plan técnico de manejo forestal, debidamente aprobado por la Dirección
-General Forestal.
+Artículo 67.- La Guardia de Asistencia Rural deberá desalojar a las
+personas que invadan inmuebles sometidos voluntariamente al régimen
+forestal, previa solicitud por escrito de la Dirección General Forestal. La
+intervención de la Dirección General Forestal será requerida por el
+propietario del terreno o plantación afectada, su representante o cualquier
+otro interesado. La Dirección tendrá la obligación de actuar de inmediato.
+En caso de reincidencia, el desalojo lo podrá solicitar a la Guardia de
+Asistencia Rural, directamente, el propietario del terreno, el
+representante o cualquier otro interesado, sin necesidad de recurrir a la
+Dirección General Forestal. En ambas circunstancias, la Guardia de
+Asistencia Rural dispondrá de un plazo máximo de cinco días para ejecutar
+el desalojo. Deberá presentar las respectivas denuncias ante los
+Tribunales competentes. Se exceptúan de esta norma los casos de desalojo
+que se encuentren actualmente en conocimiento de las autoridades
+judiciales.

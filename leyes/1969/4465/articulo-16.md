@@ -1,4 +1,3 @@
-Artículo 16.- El Consejo Forestal Nacional podrá invitar a sus
-deliberaciones a otros representantes de instituciones públicas o privadas
-cuyas actividades estén relacionadas con la protección, aprovechamiento y
-conservación de los recursos forestales.
+Artículo 16.- Todo proyecto que realice el Estado o alguna de sus
+instituciones, que implique la eliminación parcial o total de un bosque,
+deberá tener la aprobación de la Dirección General Forestal.

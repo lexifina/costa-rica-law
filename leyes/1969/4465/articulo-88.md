@@ -1,5 +1,10 @@
-Artículo 88.- Los bosques y terrenos forestales, declarados zonas
-protectoras y que sean de propiedad privada, estarán sometidos
-obligatoriamente al Régimen Forestal, según lo establece el artículo 6º de
-esta ley. Igualmente gozarán de los beneficios establecidos en los
-artículos 67 y 68.
+Artículo 88.- Los beneficiarios que disfruten de préstamos blandos
+para llevar a cabo proyectos de reforestación, no podrán disfrutar, al
+mismo tiempo, del certificado del abono forestal, salvo que se trate de
+áreas no cubiertas por el préstamo. El Banco Central de Costa Rica,
+conjuntamente con la Dirección General Forestal, fijará anualmente el tipo
+de interés de los préstamos considerados blandos, para efectos de la
+aplicación de este artículo. En el tanto en que existan fondos para
+financiar proyectos de reforestación en las condiciones previstas en el
+párrafo anterior, no regirá el sistema de certificado de abono forestal,
+excepto con respecto a los contratos ya suscritos.

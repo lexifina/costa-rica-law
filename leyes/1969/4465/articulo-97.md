@@ -1,4 +1,5 @@
-Artículo 97.- La Dirección General Forestal promoverá, fomentará y
-realizará, todos aquellos estudios que lleven a la normalización de la
-producción forestal y su tipificación, para el comercio ordenado de la
-misma.
+Artículo 97.- Toda industria o persona que adquiera materia prima para
+realizar sus actividades, deberá comprobar que el producto forestal está
+amparado por el respectivo permiso de aprovechamiento otorgado por la
+Dirección General Forestal, y que están cancelados los impuestos
+correspondientes.

@@ -1,9 +1,5 @@
-Artículo 95.- Toda actividad que por vía reglamentaria se declare
-como industria forestal, deberá inscribirse en un registro especial, que
-al efecto llevará la Dirección General Forestal. Asimismo, toda nueva
-instalación de industria forestal que se establezca a partir de la
-promulgación de esta ley, necesita para su funcionamiento, la autorización
-de la Dirección General Forestal.
-Todas las industrias forestales establecidas en el país, deberán
-además suministrar la información que con fines estadísticos, le sea
-requerida.
+Artículo 95.- La Dirección General Forestal sólo autorizará el
+funcionamiento de nuevas industrias forestales cuando éstas demuestren que
+cuentan con la materia prima necesaria para operar, en forma permanente,
+durante el lapso prudencial que la Dirección General Forestal considere
+necesario.

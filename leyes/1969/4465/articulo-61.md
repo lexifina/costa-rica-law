@@ -1,7 +1,6 @@
-Artículo 61.- Cuando la elaboración de los planes técnicos forestales
-está a cargo de los particulares, la Dirección General Forestal podrá
-otorgar concesiones a largo plazo. Para este caso, las personas dedicadas
-a la industria forestal podrán formular solicitudes de áreas forestales,
-para lo cual, por su cuenta, efectuarán los planes técnicos mencionados,
-una vez obtenida la autorización de la Dirección General Forestal, según
-lo indique el reglamento de esta ley.
+Artículo 61.- La corta y la extracción de productos forestales en
+terrenos de aptitud forestal, deberá realizarse de acuerdo con las
+disposiciones del respectivo plan de manejo. Cuando aquéllas se autoricen,
+deberán seguirse las disposiciones reglamentarias o especiales que dicte la
+mencionada Dirección. Iguales condiciones regirán para la construcción de
+caminos y para el uso de estas vías.

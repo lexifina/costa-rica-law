@@ -1,8 +1,11 @@
-Artículo 50.- Las concesiones de tierras que se otorgan con arreglo
-a otras leyes vigentes, tales como la Ley de Minería; traspaso de tierras
-al Instituto de Tierras y Colonización para fines de colonización y
-parcelación agrícolas, pecuarias, industriales y otros fines y en general
-cualquier otro tipo de concesión de tierras aprobadas por contratos
-especiales del Poder Ejecutivo, no darán derecho real alguno para disponer
-libremente de los productos forestales existentes en esos terrenos, salvo
-que la respectiva concesión lo autorice expresamente.
+Artículo 50.- El Banco Central de Costa Rica destinará,
+necesariamente, en cada presupuesto anual, una suma no inferior al cinco
+por ciento (5%) de los préstamos asignados para el sector agropecuario,
+exclusivamente, para financiar a un interés aceptable, la plantación de
+árboles, la operación de viveros forestales y la actividad silvicultural en
+general; todo ello sin perjuicio de los recursos extraordinarios que se
+obtengan, provenientes de préstamos del exterior destinados a ese sector.
+Los bancos comerciales del Sistema Bancario Nacional financiarán estas
+actividades si se desarrollan en los bosques y terrenos particulares de
+aptitud forestal, siempre que estén sometidos al respectivo plan de manejo
+aprobado por la Dirección General Forestal.
