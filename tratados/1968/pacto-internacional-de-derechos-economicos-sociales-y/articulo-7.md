@@ -1,0 +1,19 @@
+Artículo 7
+Los Estados Partes en el presente Pacto reconocen el derecho de toda
+persona al goce de condiciones de trabajo equitativas y satisfactorias que
+lo aseguren en especial:
+a) Una remuneración que proporcione como mínimo a todos los
+trabajadores:
+i) Un salario equitativo e igual por trabajo de igual valor, sin
+distinciones de ninguna especie, en particular, debe asegurarse a las
+mujeres condiciones de trabajo no inferiores a las de los hombres, con
+salario igual por trabajo igual;
+ii) Condiciones de existencia dignas para ellos y para sus
+familias conforme disposiciones del presente Pacto;
+b) La seguridad y la higiene en el trabajo;
+c) Igual oportunidad para todos de ser promovidos, dentro de su
+trabajo, a la categoría superior que les corresponda, sin más
+consideraciones que los factores de tiempo de servicio y capacidad.
+d) El descanso, del disfrute del tiempo libre, la limitación
+razonable de las horas de trabajo y las vacaciones periódicas pagadas, así
+como la remuneración de los días festivos.

@@ -1,0 +1,28 @@
+Artículo 8
+1. Los Estados Partes en el presente Pacto se comprometen a
+garantizar:
+a) El derecho de toda persona a fundar sindicatos y a afiliarse al de
+su elección, con sujeción únicamente a los estatutos de la organización
+correspondiente, para promover y proteger sus intereses económicos y
+sociales. No podrán imponerse otras restricciones al ejercicio de este
+derecho que las que prescriba la ley y que sean necesarias en una sociedad
+democrática e interés de la seguridad nacional o del orden público, o para
+la protección de los derechos y libertades ajenos;
+b) El derecho de los sindicatos a formar federaciones o
+confederaciones nacionales y el de éstas a fundar organizaciones
+sindicales internacionales o a afiliarse a las mismas;
+c) El derecho de los sindicatos a funcionar sin obstáculos y sin
+otras limitaciones que las que prescriba la ley y que sean necesarias en
+una sociedad democrática en interés de la seguridad nacional o del orden
+público, o para la protección de los derechos y libertades ajenos;
+d) El derecho de huelga, ejercido de conformidad con la leyes de cada
+país.
+2. El presente artículo no impedirá someter a restricciones legales
+el ejercicio de tales derechos por los miembros de las fuerzas armadas, de
+la policía o de la administración del Estado.
+3. Nada de lo dispuesto en este artículo autorizará a los Estados
+Partes en el Convenio de la Organización Internacional del Trabajo de 1948
+relativo a la libertad sindical y a la protección del derecho de
+sindicación a adoptar medidas legislativas que menoscaben las garantías
+previstas en dicho Convenio o a aplicar la ley en forma que menoscabe
+dichas garantías.
