@@ -14,3 +14,4 @@ Declara el 1° de Octubre Día Nacional del Rescate y Formación Valores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-01 | la propia norma |
+| 2 | 1999-10-01 | SINALEVI (sin norma nombrada) |
