@@ -1,0 +1,2 @@
+Artículo 2°—La Comisión estará integrada por tres profesionales en medicina debidamente incorporados al Colegio de Médicos y Cirujanos de Costa Rica, de los cuales, al menos uno habrá de ser especialista en medicatura forense y por el Director General de Aviación Civil, quien fungirá como Presidente.
+La designación de los médicos integrantes de la Comisión será atribución exclusiva del Consejo Técnico de Aviación Civil, el cual eligirá en base a las ternas que al efecto le remita el referido Colegio Profesional y durarán en sus cargos dos años.
