@@ -1,0 +1,5 @@
+DECRETO CXXXV
+Dispone la construcción de un puente sobre el “Virilla” en el “Paso Real”. Señala fondos para esta obra.
+“El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+La Asamblea Constitucional del Estado libre de Costa rica, considerando: que al cabo de seis años de fabricado el puente que se situó abajo del paso real del río del Virilla, no ha podido tener efecto por falta de fondos para indemnizar las propiedades particulares en que debe tocar el camino que a él conduce; y atendiendo á que si se hubiese situado en el punto del río llamado Paso real, sería de mucha mayor importancia y utilidad y en gran manera provechoso a las Ciudades de Heredia y Alajuela, ha tenido a bien decretar y decreta.
+Art 1°- El Poder Ejecutivo a la mayor posible brevedad dispondrá que el citado río del Virilla y lugar enunciado del paso real, se construya un puente de cal y piedra, autorizándosele para que disponga esta obra y todo lo concerniente a su construcción del modo que juzgue más expedido.
