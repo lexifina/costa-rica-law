@@ -1,0 +1,6 @@
+Artículo 10.—Integración de las Auditorías Ciudadanas. Las Auditorías Ciudadanas estarán conformadas por un grupo de ciudadanos de reconocida solvencia moral, previamente seleccionados de entre los candidatos que voluntariamente concurran a la invitación pública que se realice de conformidad con lo dispuesto en este Reglamento. Las Auditorías Ciudadanas estarán integradas por siete miembros, que tendrán la siguiente representación:
+1- Un miembro del Concejo Municipal que éste designará de entre los regidores propietarios, en forma rotativa, siguiendo el orden de la declaratoria oficial de regidores electos emitida por el Tribunal Supremo de Elecciones.
+2- Un representante de la Defensoría de los Habitantes de la República.
+3- Un representante del sector comercial que ejerza su actividad en el cantón, quien será llamado por sorteo del listado de elegibles.
+4- Dos representantes comunales, quienes serán elegidos por sorteo del listado previamente remitido por los Concejos de Distrito.
+5- Dos ciudadanos vecinos del cantón o contribuyentes de la Municipalidad de San José, que deberán ser funcionarios públicos de carrera, en ejercicio o pensionados, que se elegirán por sorteo del listado previamente conformado.

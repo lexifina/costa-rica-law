@@ -1,0 +1,1 @@
+Artículo 8º—Área de Rendición de Cuentas. Propiciará la transparencia en la gestión local, a través de la promoción y seguimiento de mecanismos de rendición de cuentas. De manera especial, vigilará el adecuado desarrollo de las audiencias públicas que, al menos una vez al año, realizará el Alcalde, para exponer ante la ciudadanía los resultados anuales de su gestión.

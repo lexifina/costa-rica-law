@@ -1,0 +1,1 @@
+Artículo 25.—Casos de atención colectiva. Si en relación con un mismo tema o problema, se presentan denuncias que por su cantidad sobrepasan las posibilidades reales de resolución y atención individualizada, la Instancia tratará el tema en forma colectiva y de tal circunstancia y de su resultado, se informará a los interesados.
