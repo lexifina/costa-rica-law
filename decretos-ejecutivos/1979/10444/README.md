@@ -14,3 +14,4 @@ Reglamento Bonos Deuda Interna 8% 1979 Primera Emisión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-08-30 | la propia norma |
+| 2 | 1981-10-15 | Decreto Ejecutivo 13034 (1981-10-15) |
