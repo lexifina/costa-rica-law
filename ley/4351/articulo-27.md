@@ -1,1 +1,4 @@
-Artículo 27.- La Junta Directiva Nacional, por mayoría no inferior a seis votos, designará al Gerente General y los Subgerentes por un período de seis años, los que podrán ser reelectos. El Gerente General tendrá a su cargo la ejecución de los acuerdos tomados por la Junta Directiva Nacional, las labores administrativas inherentes a su cargo y además, tendrá la representación judicial y extrajudicial del Banco. La mayoría de seis votos antes indicada, deberá incluir por lo menos, dos votos de representación de trabajadores.
+Artículo 27.- La Junta Directiva Nacional, por mayoría no inferior a cinco votos, designará al gerente y a los subgerentes por un período de cinco años, los que podrán ser reelegidos.
+El gerente general tendrá a su cargo la ejecución de los acuerdos tomados por la Junta Directiva Nacional y las labores administrativas inherentes a su cargo. Además, tendrá la representación judicial y extrajudicial del Banco.
+La indicada mayoría de cinco votos deberá incluir, por lo menos, a dos representantes de los trabajadores.
+(Así reformado por el artículo 1° de la ley N° 7031 del 14 de abril de 1986)
