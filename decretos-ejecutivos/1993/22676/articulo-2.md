@@ -1,2 +1,1 @@
-Artículo 2°—La Dirección General de la Policía de Tránsito tendrá como objetivo:
-Velar porque se cumpla el ordenamiento jurídico vigente en materia de tránsito terrestre.
+Artículo 2°—(La derogación practicada a este decreto por el artículo 9° del decreto ejecutivo N° 24880 del 20 de diciembre de 1995 "Reestructura la Unidad Policía de Tránsito Ministerio Obras Públicas MOPT", posteriormente fue derogada por el decreto ejecutivo N° 29625 del 7 de junio del 2001 "Reglamento de Organización y Servicio de las Autoridades de Tránsito". Se advierte que el ente emisor no indica expresamente que como consecuencia, debe volver éste artículo al estado anterior a dicha abrogación)

@@ -1,2 +1,1 @@
-Artículo 8°—Rige a partir de su publicación.
-Dado en la Presidencia de la República. —San José, a los nueve días del mes de noviembre de mil novecientos noventa y tres.
+Artículo 8°—(La derogación practicada a este decreto por el artículo 9° del decreto ejecutivo N° 24880 del 20 de diciembre de 1995 "Reestructura la Unidad Policía de Tránsito Ministerio Obras Públicas MOPT", posteriormente fue derogada por el decreto ejecutivo N° 29625 del 7 de junio del 2001 "Reglamento de Organización y Servicio de las Autoridades de Tránsito". Se advierte que el ente emisor no indica expresamente que como consecuencia, debe volver éste artículo al estado anterior a dicha abrogación)

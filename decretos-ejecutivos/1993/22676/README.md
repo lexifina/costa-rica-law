@@ -14,3 +14,4 @@ Modifica la Estructura de la Dirección General Policía de Tránsito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-12-03 | la propia norma |
+| 2 | 1995-12-20 | Decreto Ejecutivo 24880 (1995-12-20) |
