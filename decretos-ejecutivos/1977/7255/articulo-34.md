@@ -1,0 +1,1 @@
+Artículo 34.-El Auditor presentará informes trimestrales a la Junta o cuando le sean solicitados por ésta, conteniendo, principalmente, los resultados de su gestión. En el caso de que ocurriere alguna irregularidad, informará inmediatamente a la Junta proponiendo las soluciones más aconsejables para remediar la incorrección.

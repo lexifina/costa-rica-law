@@ -1,0 +1,2 @@
+Artículo 108.-De conformidad con lo dispuesto en el Decreto Ejecutivo N° 19 de 5 de julio de 1969, la Dirección General de Correos, remitirá a la Organización de las Naciones Unidas, por medio de giro bancario, el 90% del monto de las estampillas vendidas por cuenta de dicha Organización.
+El 10% restante se depositará por medio de cheque en la cuenta abierta en el Banco Nacional de Costa Rica y denominada "Junta Administrativa, Dirección Nacional de Comunicaciones".

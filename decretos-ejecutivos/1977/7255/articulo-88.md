@@ -1,0 +1,2 @@
+Artículo 88.-La Junta se reunirá ordinariamente una vez al mes y extraordinariamente cuando fuere convocada al efecto por su Presidente o a solicitud conjunta de dos o más de sus miembros.
+Las convocatorias tanto para sesiones ordinarias como extraordinarias, deberán ser notificadas a los integrantes con cuarenta y ocho horas por lo menos de anticipación. En cada sesión la Junta señalará la fecha de su próxima sesión ordinaria. Tres de sus miembros constituirán quórum.

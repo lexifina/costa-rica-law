@@ -1,0 +1,1 @@
+Artículo 31.-Toda información que recoja la Auditoría en el cumplimiento de su trabajo, será confidencial y utilizable únicamente para los fines que prescriben las leyes y los reglamentos vigentes. La infracción a esta disposición dará lugar a la destitución del infractor, conforme a los trámites que la legislación establece.

@@ -1,0 +1,1 @@
+Artículo 15.-El Banco Central de Costa Rica, para los fines que establece el transitorio I de la ley N° 5870, hará la separación de fondos del ingreso total de lo neto, por las compras que se le hagan de sellos postales, que previamente fueran calificados por la Junta de "Emisiones Filatélicas".

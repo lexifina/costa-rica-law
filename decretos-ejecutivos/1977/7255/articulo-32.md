@@ -1,0 +1,9 @@
+Artículo 32.-Son funciones del Auditor:
+a) Fiscalizar, por sí mismo o por medio de los funcionarios bajo su dirección, las diferentes operaciones realizadas por la Junta y por la Dirección Nacional de Comunicaciones; para este efecto, deberá verificar las actividades de la contabilidad, los inventarios, los balances y estados de cuenta y comprobarlo con los libros y documentos correspondientes, por lo menos tres veces al año, a intervalos irregulares y sin previo aviso. Realizará arqueos del efectivo que la Dirección Nacional de Comunicaciones maneja, así como, de los demás valores que en su poder existan;
+b) Ejercer control sobre todos los activos y valores de la Junta y sus dependencias y asegurarse de su correcta contabilización;
+c) Realizar revisiones parciales o generales en las dependencias de la Junta en la forma en que lo dispone el inciso a) de este artículo, cuidando en forma especial de examinar:
+1) Si los libros de contabilidad se llevan al día, de conformidad con las prescripciones de la ley y de los principios generales de la contabilidad.
+2) Si los valores, documentos, títulos, obligaciones, etc. incluidos en la revisión, están en orden y seguros y correctamente contabilizados y balanceados con los saldos correspondientes en el Libro Mayor o en los libros auxiliares;
+ch) Llevar un estricto y ordenado control de los gastos de la Junta y la Dirección Nacional de Comunicaciones para lo cual deberá establecer los controles necesarios, a fin de poder comprobar que los egresos se ajustan a las erogaciones autorizadas;
+d) Cuando lo considere conveniente, podrá asistir con voz pero sin voto a las sesiones de la Junta, la Junta Filatélica y del Patronato de Comunicaciones a fin de que los acuerdos y resoluciones que se tomen referentes a la materia contable, queden ajustados a las disposiciones legales y reglamentarias;
+e) Refrendar los gastos que autorice la Junta.

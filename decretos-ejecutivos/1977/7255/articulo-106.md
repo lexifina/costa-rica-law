@@ -1,0 +1,1 @@
+Artículo 106.-La Oficina Filatélica tendrá un libro de cuentas corrientes en el cual deberá aparecer el saldo de cada abonado. Un estado cuenta indicando dicho saldo deberá acompañar cada envío de estampillas al cuenta-correntista.

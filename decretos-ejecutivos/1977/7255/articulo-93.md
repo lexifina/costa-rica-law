@@ -1,0 +1,1 @@
+Artículo 93.-El Secretario de la Junta preparará la agenda, tomará la minuta de las sesiones, redactará el acta, se encargará de la correspondencia, será responsable de los expedientes de la Junta y tendrá las demás atribuciones que le fija este Reglamento.

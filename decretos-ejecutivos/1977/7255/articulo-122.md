@@ -1,0 +1,1 @@
+Artículo 122.-El presente Reglamento deroga los siguientes decretos ejecutivos: número 6081-G de 8 de junio de 1976 y número 20 de 25 de marzo de 1970, así como cualquier otra disposición reglamentaria que se le oponga.

@@ -1,0 +1,1 @@
+Artículo 68.-Corresponderá además a la Unidad de Servicios Generales, custodiar ordenadamente todos los documentos, libros y demás papelería que, por la importancia de su contenido, deba ser archivado. Para cumplir con esta disposición, cada dependencia de la Dirección Nacional remitirá los documentos mencionados, siempre y cuando no sean de uso inmediato.

@@ -1,0 +1,1 @@
+Artículo 90.-El Jefe de la Oficina Filatélica podrá concurrir a las sesiones de la Junta, con derecho a voz pero sin voto. No obstante, su asistencia a las sesiones de la Junta será obligatoria cuando fuere convocado formalmente por el Presidente de la misma.

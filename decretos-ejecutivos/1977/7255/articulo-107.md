@@ -1,0 +1,1 @@
+Artículo 107.-El Jefe de la Oficina Filatélica, así como cualquier otro funcionario de la misma a quien se le encargue el expendio de estampillas, recaudación y custodia de valores, deberá suscribir una póliza de fidelidad por cada cien mil colones cuyo valor será pagado por la Junta Administrativa de Comunicaciones.

@@ -1,0 +1,1 @@
+Artículo 26.-En caso en que se compruebe uso indebido del "sello", en los permisos otorgados a las Municipalidades y en lo "Oficial", la Junta Administrativa tomará las acciones pertinentes para que los funcionarios responsables sean debidamente sancionados; para los otros permisos, se procederá a la cancelación de los mismos, previo informe de la Dirección Nacional.

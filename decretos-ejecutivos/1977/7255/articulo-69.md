@@ -1,0 +1,1 @@
+Artículo 69.-Estos documentos podrán ser consultados por las personas que en ellos tengan interés, pero no podrán ser retirados sino solamente para uso interno y con una autorización del Jefe de la unidad.

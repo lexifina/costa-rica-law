@@ -1,0 +1,4 @@
+Artículo 111.-Son funciones del Patronato:
+a) Creación de la Casa del Empleado de Comunicaciones con fines sociales y culturales. Las diferentes organizaciones de todos los empleados de Correos, Telégrafos y Radios Nacionales podrán utilizar dichas instalaciones, según la reglamentación a que hace referencia el artículo 120 de este Reglamento;
+b) Establecimiento del Centro de Recreación para los empleados de Comunicaciones, con el objeto de estimular los hábitos deportivos y crear un ambiente de amistad y solaz para todos los servidores; y
+c) Establecimiento de un Plan de Becas para la capacitación de los empleados de Comunicaciones que permita el incremento de habilidades y conocimientos, en la ejecución de sus labores y promueva la superación de los funcionarios de las Dependencias de la Dirección Nacional.

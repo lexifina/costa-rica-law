@@ -1,0 +1,1 @@
+Artículo 58.-A la unidad de adiestramiento le corresponderá preparar los planes de estudio y requisitos de ingreso para los distintos cursos; formas de evaluación, los mejores métodos de instrucción; efectuar estudios de necesidades de adiestramiento, preparar y tramitar todo el material relativo a la capacitación del personal y relacionado con la administración de becas.

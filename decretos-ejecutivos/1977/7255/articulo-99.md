@@ -1,0 +1,1 @@
+Artículo 99.-La oficina venderá únicamente los sellos postales que existen en el Banco Central de Costa Rica y los provea la Organización de las Naciones Unidas. Queda prohibido vender en la Oficina Filatélica, otras estampillas que las indicadas o hacer cualquier otro negocio filatélico, ajeno a los fines y actividades de la misma.

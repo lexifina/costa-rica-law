@@ -1,0 +1,1 @@
+Artículo 109.-La Oficina Filatélica estará sujeta a inspecciones y auditoraje sin previo aviso, tanto por parte de la Auditoría de la Junta Administrativa como por parte de la Contraloría General de la República.

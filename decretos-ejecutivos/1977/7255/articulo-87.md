@@ -1,0 +1,1 @@
+Artículo 87.-Los miembros de la Junta desempeñarán sus funciones ad honórem. Tendrán su sede en la Dirección General de Correos, pero podrán sesionar válidamente en el lugar que indique la convocatoria. El Presidente de la Junta designará al Secretario de la misma, cargo que podrá recaer en el Asesor Filatélico o en uno de los funcionarios de la Dirección General de Correos.

@@ -1,0 +1,1 @@
+Artículo 79.-La asesoría postal colaborará con el Director General de Correos en las negociaciones, interpretación y ejecución de convenios y acuerdos postales con los diferentes países del mundo. Lo asesorará en la determinación de tasas postales y otros asuntos de interés de la Dirección General.

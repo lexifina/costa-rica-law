@@ -1,0 +1,1 @@
+Artículo 40.-Entre las diversas dependencias que integran la Dirección Nacional de Comunicaciones, existirá una completa coordinación, a fin de que todos los servicios administrativos y técnicos que se ofrecen al público, se realicen con la mayor eficiencia, oportunidad y con el mínimo de costo.

@@ -1,0 +1,1 @@
+Artículo 66.-El retiro de útiles o materiales deberá hacerse por medio de requisición autorizada por el Departamento Administrativo y el empleado a quien; se entreguen los artículos. Previamente a toda entrega, el empleado que despache una requisición, anotará en ésta todos los detalles físicos que permitan su identificación.

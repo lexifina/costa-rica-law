@@ -1,0 +1,1 @@
+Artículo 78.-Idénticas funciones corresponden a la administración central, la cual estará organizada en aquellas unidades que se requieran para lograr un desempeño óptimo entre ellas, venta de sellos postales al público y entregas de envíos de correspondencia sujetos a la intervención aduanera.

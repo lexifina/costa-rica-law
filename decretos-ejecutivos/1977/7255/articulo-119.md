@@ -1,0 +1,1 @@
+Artículo 119.-Los fondos del Patronato podrán emplearse únicamente en el cumplimiento de los fines que fija la ley N° 5870. La Contraloría General de la República velará para que esa disposición se cumpla.

@@ -1,0 +1,1 @@
+Artículo 120.-Cuando se establezca la Casa del Empleado de Comunicaciones, el Centro de Recreación y el Programa de Becas, deberá elaborarse un Reglamento específico que norme las condiciones con que operará cada uno de estos programas.

@@ -1,0 +1,1 @@
+Artículo 104.-Todo cheque emitido por la Oficina Filatélica, deberá llevar dos firmas; la del Director General o del Subdirector General de Correos y la del Jefe de la Oficina Filatélica o la de su sustituto.

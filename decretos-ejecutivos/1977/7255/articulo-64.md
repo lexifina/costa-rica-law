@@ -1,0 +1,1 @@
+Artículo 64.-Son funciones de la Unidad de Servicios Generales, efectuar las compras de útiles y materiales en cantidades suficientes para mantener existencias adecuadas que satisfagan las necesidades de la Dirección Nacional. Hará mensualmente un balance de exigencias el cual deberá coincidir con la cuenta que figurará en los libros de contabilidad.

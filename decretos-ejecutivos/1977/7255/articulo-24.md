@@ -1,0 +1,2 @@
+Artículo 24.-Las personas que se crean con derecho a beneficiarse de las franquicias o tasa reducidas elevarán la solicitud ante la Junta Administrativa de la Dirección Nacional de Comunicaciones, acompañando a ella 2 ejemplares de cada publicación. En cada solicitud se debe exponer el tipo de publicación.
+La Junta, para mejor resolver las solicitudes, podrá cuando lo estime oportuno, solicitar criterio técnico postal a instituciones y funcionarios calificados.

@@ -1,0 +1,1 @@
+Artículo 75.-Supervisará la vigilancia y el aseo de las oficinas, de manera que estas labores sean atendidas diariamente con el debido esmero y cuidado; así como cualquiera otra función que sea compatible con sus obligaciones.

@@ -1,0 +1,2 @@
+Artículo 60.-Organizar y mantener una biblioteca especializada en las diversas técnicas que sean de interés para contribuir a la capacitación del personal y al mejoramiento pedagógico del cuerpo docente.
+Con este fin, la unidad de adiestramiento deberá determinar y recomendar a la Dirección el material más adecuado pero incluir en una colección básica; seleccionar el material de actualidad, establecer un método eficaz de adquisición de libros y documentos, según las necesidades y posibilidades de los programas en acción.

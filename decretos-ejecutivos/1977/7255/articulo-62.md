@@ -1,0 +1,1 @@
+Artículo 62.-Mantener actualizados los registros relativos a la actuación de profesores y alumnos y comunicar a la unidad de personal las calificaciones obtenidas por los educandos a fin de que consten en su expediente.

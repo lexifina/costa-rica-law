@@ -1,0 +1,1 @@
+Artículo 71.-La Unidad de Servicios Generales deberá imprimir todos los formularios y demás material que considere necesario para el cumplimiento de sus funciones, debiendo hacer las provisiones adecuadas para que las existencias de material impreso no se agoten y causen perjuicio a las actividades de la institución.
