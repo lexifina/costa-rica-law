@@ -1,6 +1,6 @@
 # Protocolo Convenio del Régimen Arancelario y Aduanero Centroamericano
 
-Ley N° 7346 del 1993-06-07. SINALEVI, ficha 18480: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=18480&param2=19715&param3=1>.
+Ley N° 7346 del 1993-06-07. SINALEVI, ficha 18480: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=18480&param2=19716&param3=1>.
 
 Publicada en La Gaceta N° 130 del 1993-07-09.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 1993-07-09 | Ley 7346 | 1993-06-07 |
+| 2 de 2 | 1993-07-09 | SINALEVI | 1993-06-07 |
