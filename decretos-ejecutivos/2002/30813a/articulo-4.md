@@ -1,0 +1,2 @@
+Artículo 4
+Los dependientes que ejerzan actividad remunerada en los términos de este Acuerdo deberán cumplir con las obligaciones tributarias y de seguridad social derivadas de la referida actividad, quedando en consecuencia sujetos a la legislación aplicable a las personas físicas residentes o domiciliadas en el Estado receptor para todos los efectos transcurridos de aquella actividad remunerada.
