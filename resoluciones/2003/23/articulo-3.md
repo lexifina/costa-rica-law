@@ -1,0 +1,1 @@
+Artículo 3º—El formulario preimpreso deberá presentarse y pagarse el impuesto correspondiente, en las entidades recaudadoras autorizadas, dentro de los dos meses y quince días naturales siguientes a la terminación del período fiscal respectivo.
