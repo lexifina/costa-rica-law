@@ -1,0 +1,1 @@
+Artículo 3°-De acuerdo con las leyes citadas en los anteriores artículos, serán denunciados para su respectiva sanción, los comerciantes que alteren el empaque, el contenido o los precios del café molido.

@@ -1,0 +1,1 @@
+Artículo 5°-Todos los premios, obsequios o recompensas que otorguen los torrefactores de café, o sus intermediarios, estarán sujetos al pago del impuesto de diez veces su valor, conforme a lo establecido por el Artículo 17 de la Ley N ° 34 de 21 de diciembre de 1940.
