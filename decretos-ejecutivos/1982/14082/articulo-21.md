@@ -64,3 +64,8 @@ se calculará la proporción que corresponda a estos últimos, a efectos de esta
 noviembre de 1995).
 (Así reformados su párrafo tercero y siguientes por el inciso 3) del artículo 7 del
 Decreto Ejecutivo N° 29643 de 10 de julio del 2001).
+(Interpretado Tácitamente por el artículo 18 del Decreto Ejecutivo N° 30389
+del 2 de mayo del 2002, Reglamento para el Tratamiento Tributario de Arrendamientos
+Financieros y Operativos, en el sentido de que la expresión"arrendamiento
+con opción de compra", para todos los fines tributarios debe entenderse
+referida al arrendamiento tributario)

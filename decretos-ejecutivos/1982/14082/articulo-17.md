@@ -34,3 +34,8 @@ exceda los 250 kW/H mensuales, la tarifa del 5% que recae sobre dicho
 consumo se aplicará al total de kW/H mensuales consumidos.
 ( Adicionado este último párrafo por el artículo 5º del Decreto Nº
 22592 de 4 de octubre de 1993).
+(Interpretado Tácitamente por el artículo 18 del Decreto Ejecutivo N° 30389
+del 2 de mayo del 2002, Reglamento para el Tratamiento Tributario de Arrendamientos
+Financieros y Operativos, en el sentido de que la expresión"arrendamiento
+con opción de compra", para todos los fines tributarios debe entenderse
+referida al arrendamiento tributario)

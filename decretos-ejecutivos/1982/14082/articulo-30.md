@@ -73,3 +73,4 @@ cierre, no le eximirá de la aplicación de la sanción
 correspondiente, para la cual se estará a lo dispuesto en el
 párrafo final del artículo 29 de este Reglamento.
 ( Así reformado por el artículo 14 del Decreto Nº 24775 de 23 de noviembre de 1995 y artículos 2° y 3° del decreto ejecutivo N° 25047 de 26 de marzo de 1996).
+(Interpretado Tácitamente por el artículo 18 del Decreto Ejecutivo N° 30389 del 2 de mayo del 2002, Reglamento para el Tratamiento Tributario de Arrendamientos Financieros y Operativos, en el sentido de que la expresión"arrendamiento con opción de compra", para todos los fines tributarios debe entenderse referida al arrendamiento tributario)

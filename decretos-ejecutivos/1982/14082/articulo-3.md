@@ -8,6 +8,11 @@ dominio de mercancías; todo ello con independenciade las
 condiciones de pago pactadas por las partes contratantes. La
 obligación queda perfeccionada en la fecha de facturación o
 entrega de las mercancías, el acto que se realice primero.
+(Interpretado Tácitamente por el artículo 18 del Decreto Ejecutivo N° 30389
+del 2 de mayo del 2002, Reglamento para el Tratamiento Tributario de Arrendamientos
+Financieros y Operativos, en el sentido de que la expresión"arrendamiento
+con opción de compra", para todos los fines tributarios debe entenderse
+referida al arrendamiento tributario)
 b) La prestación remunerada o gratuita de servicios gravados,
 incluyendo la permuta, la dación en pago y, en general, toda
 contratación que tenga por fin último suministrar servicios
