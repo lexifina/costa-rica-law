@@ -14,3 +14,4 @@ Reglamento para la Administración y Prestación de los Servicios de Transporte 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-17 | la propia norma |
+| 2 | 1996-09-30 | Reglamento 0 (1996-09-30) |

@@ -8,6 +8,6 @@ b. Certificado de Fianza de Excarcelación:
 Es una garantía que ofrece la Institución, a sus conductores en caso de apremio corporal, por causa de accidentes de tránsito ocurridos con vehículos del AyA.
 c. Vehículos:
 Las unidades automotoras de la Institución están cubiertas por las siguientes coberturas:
-Responsabilidad Civil por lesión o muerte de funcionarios.
 Responsabilidad Civil por lesión o muerte de Terceros.
 Cualquier otro tipo de cobertura debe ser autorizado por la Administración Superior.
+(Así reformado el inciso c) anterior y publicado en La Gaceta N° 202 del 22 de octubre de 1996).
