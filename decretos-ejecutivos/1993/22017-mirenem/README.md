@@ -14,3 +14,4 @@ Reforma Reglamento a la Ley Forestal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-04-05 | la propia norma |
+| 2 | 1993-12-15 | Decreto Ejecutivo 23202 (1993-12-15) |
