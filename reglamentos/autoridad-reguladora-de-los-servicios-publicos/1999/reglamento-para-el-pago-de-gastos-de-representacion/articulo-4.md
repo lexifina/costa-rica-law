@@ -1,0 +1,2 @@
+Artículo 4°-Disponibilidad presupuestaria: El ejecutante del gasto estará obligado a verificar la existencia y disponibilidad de recursos presupuestarios suficientes para tal fin antes de efectuar el gasto. Si en el momento del acto no hay contenido presupuestario, deberá asumir su costo.
+La Dirección Administrativa Financiera rechazará el pago de aquellas facturas para las cuales no exista contenido presupuestario o que no reúnan los requisitos establecidos en los puntos 2 y 3 de este Reglamento.

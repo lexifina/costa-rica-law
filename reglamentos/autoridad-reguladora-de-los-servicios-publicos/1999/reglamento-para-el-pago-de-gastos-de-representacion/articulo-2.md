@@ -1,0 +1,1 @@
+Artículo 2°-Carácter oficial de la atención: La atención que se cubra mediante gastos de representación debe revestir carácter oficial, es decir, efectuarse dentro de un evento o actividad en la que el funcionario autorizado a incurrir en este tipo de gastos, participe en nombre o en representación de la Autoridad Reguladora.
