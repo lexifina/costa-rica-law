@@ -1,0 +1,7 @@
+Sobre la inspección
+Artículo 14.- La inspección sobre los centros docentes privados se
+ejercerá, en forma previa, desde el punto de vista técnico sobre la
+oferta educativa propuesta y su relación con los fines de la educación
+nacional y los objetivos estatales para los diversos niveles y
+modalidades. La resolución desfavorable deberá indicar los aspectos
+técnicos que deben ser superados o modificados.

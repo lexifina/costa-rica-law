@@ -1,0 +1,5 @@
+Artículo 11.- El Ministerio de Educación Pública aplicará a los
+estudiantes de estas instituciones las pruebas de acreditación o de
+evaluación que con carácter nacional se programen. La realización de
+estas pruebas se hará sin costo alguno para la institución o el
+estudiante.

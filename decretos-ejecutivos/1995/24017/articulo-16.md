@@ -1,0 +1,4 @@
+Artículo 16.- Para efectos de promoción y acreditación la inspección
+se ejerce mediante la aplicación de pruebas o instrumentos de evaluación,
+cuando éstos a su vez, se utilicen con carácter nacional en las
+instituciones estatales, mediante las misma formas y procedimientos.

@@ -1,0 +1,4 @@
+Artículo 18.- La inspección a que se refiere el artículo 15
+anterior, será ejercida por los funcionarios especializados que al efecto
+se nombre o por delegados del Ministerio de Educación, en casos
+especiales.

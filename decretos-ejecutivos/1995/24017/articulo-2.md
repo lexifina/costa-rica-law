@@ -1,0 +1,4 @@
+Artículo 2º.- Para los efectos de este Reglamento se entiende por
+"centro docente privado" la organización que tenga por objeto ofrecer
+servicios educativos como actividad permanente y con propósito de
+acreditación de estudios, títulos y certificados.

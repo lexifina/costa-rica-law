@@ -1,0 +1,10 @@
+Previsiones para las situaciones de mora.
+Artículo 22.- Cuando se previere, de conformidad con lo dispuesto en
+el artículo anterior, la suspensión de los servicios educativos por
+morosidad, ésta deberá decretarse haciéndola coincidir con la conclusión
+de un período escolar definido, el bimestre, el trimestre o semestre,
+según se encuentre organizado el desarrollo del proceso educativo. En
+este caso, deberá preavisarse al padre de familia o al estudiante o su
+representante legal, según sea el caso, con una antelación no inferior a
+quince días y poner a su disposición las certificaciones necesarias para
+un eventual traslado a otro centro educativo.

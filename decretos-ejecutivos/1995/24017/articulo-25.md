@@ -1,0 +1,4 @@
+Artículo 25.- Cuando la reglamentación en un centro docente privado
+fuere omisa o confusa, se utilizará, para la resolución de conflictos o
+para determinar la situación académica del estudiante, las normas y
+reglamentos del sistema estatal.

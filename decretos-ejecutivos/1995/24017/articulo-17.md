@@ -1,0 +1,5 @@
+Artículo 17.- El Ministerio de Educación Pública podrá aplicar
+pruebas generales tendentes a evaluar el sistema. Podrá hacerlo a una
+institución determinada cuando hubiere motivos técnicos suficientes para
+presumir un desajuste severo entre la oferta educativa y la realidad
+institucional.
