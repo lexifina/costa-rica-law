@@ -1,4 +1,1 @@
-Artículo 12.-Son miembros asociados los profesionales costarricenses
-y aquellos extranjeros con título profesional en ciencias políticas o
-relaciones internacionales debidamente reconocido y que no califiquen
-como miembro activo.
+Artículo 12.- Anulado. (Anulado mediante Resolución de la Sala Constitucional N°. 6733-06, de las catorce horas con cuarenta y cinco minutos, que dispuso anular este artículo cuyo texto disponía textualmente: "Son miembros asociados los profesionales costarricenses y aquellos extranjeros con título profesional en ciencias políticas o relaciones internacionales debidamente reconocido y que no califiquen como miembro activo."

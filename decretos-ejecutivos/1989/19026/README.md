@@ -13,3 +13,4 @@ Reglamento Ley Colegio Ciencias Políticas y Relaciones Internacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-06-14 | la propia norma |
+| 2 | 1989-06-14 | SINALEVI (sin norma nombrada) |

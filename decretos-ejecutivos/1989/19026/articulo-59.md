@@ -1,4 +1,4 @@
-Artículo 59.-Las empresas consultoras nacionales y extranjeras que
+Artículo 59.- Las empresas consultoras nacionales y extranjeras que
 desarrollen actividades en el campo de las ciencias políticas y
 relaciones internacionales, deberán estar inscritas en el Registro del
 Colegio, pagando la cuota mensual que fije la Asamblea. A partir de 1990

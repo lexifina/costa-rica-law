@@ -1,4 +1,4 @@
-Artículo 29.-Las resoluciones y acuerdos de la Asamblea se tomarán
+Artículo 29.- Las resoluciones y acuerdos de la Asamblea se tomarán
 por simple mayoría de los votos presentes. Sin embargo, los acuerdos
 para gravar el patrimonio del Colegio y el establecimiento de las cuotas
 de incorporación, mensuales y extraordinarias y las reformas al presente

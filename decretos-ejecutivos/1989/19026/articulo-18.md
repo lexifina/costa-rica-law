@@ -1,6 +1,6 @@
 CAPITULO V
 De las especialidades
-Artículo 18.-Las especialidades de la ciencia política y las
+Artículo 18.- Las especialidades de la ciencia política y las
 relaciones internacionales son las siguientes:
 a) Economía política y/o internacional.
 b) Sociología política.

@@ -1,4 +1,4 @@
-Artículo 53.-Recibida la queja o denuncia, el fiscal en un plazo no
+Artículo 53.- Recibida la queja o denuncia, el fiscal en un plazo no
 mayor de 8 días hábiles, citará al denunciante para imponerlo en los
 cargos otorgándole un plazo de ocho días para que presente las pruebas de
 descargo y sus alegatos por escrito. Si le fuere imposible presentar

@@ -1,5 +1,2 @@
-Artículo 30.-Solo tendrán voz y voto y podrán ser electos en los
-directores y el Tribunal, los miembros activos que estén al día en el
-pago de sus cuentas.
-Los miembros asociados tiene voz y podrán formar parte de las
-comisiones que designe la Directiva.
+Artículo 30.- Sólo tendrán voz y voto y podrán ser electos en los directores y el Tribunal, los miembros * que estén al día en el pago de sus cuentas.
+(Anulada la palabra "activo" del párrafo anterior, mediante Resolución de la Sala Constitucional N°. 6733-06, de las catorce horas con cuarenta y cinco minutos, misma que dispuso anular integramente de este artículo, el párrafo segundo, cuyo texto disponía textualmente: "Los miembros asociados tienen voz y podrán formar parte de las comisiones que designe la Directiva.")
