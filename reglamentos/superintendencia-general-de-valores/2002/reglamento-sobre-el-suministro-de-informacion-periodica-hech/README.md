@@ -16,3 +16,4 @@ Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y o
 | 1 | 2003-06-12 | la propia norma |
 | 2 | 2003-06-12 | Reglamento 0 (2003-03-19) |
 | 3 | 2003-10-17 | Reglamento 81 (2003-10-17) |
+| 4 | 2004-11-15 | Reglamento 98 (2004-11-15) |
