@@ -1,0 +1,2 @@
+Artículo 18.-La coordinación y armonía de las actividades de los distintos sectores en la formulación, ejecución y evaluación del Plan Nacional de Desarrollo y de los planes anuales operativos, corresponde a un Comité Técnico Intersectorial.
+El Comité Técnico Intersectorial estará integrado por el Director de la División de Planificación y Coordinación Sectorial de la Oficina de Planificación Nacional y Política Económica, quien lo presidirá, y por los Directores de las Secretarías Ejecutivas de Planificación Sectorial.

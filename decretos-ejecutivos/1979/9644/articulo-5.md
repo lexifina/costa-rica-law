@@ -1,0 +1,1 @@
+Artículo 5°-Cada sector de actividad incluirá el conjunto de ministerios, instituciones descentralizadas, programas y actividades públicas y de cualesquiera otros organismos o entidades que concurran en un mismo campo de acción para la consecución de objetivos básicos del Gobierno.

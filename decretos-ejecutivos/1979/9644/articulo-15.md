@@ -1,0 +1,2 @@
+Artículo 15.-Cada Secretaría Ejecutiva de Planificación Sectorial estará subordinada al Presidente del Consejo Nacional respectivo, y para efectos administrativos estará adscrita al Ministerio del que sea titular el Presidente del Consejo Nacional Sectorial.
+El personal técnico, administrativo y de servicio -salvo el Director- será facilitado preferentemente por las instituciones representadas en el Consejo Nacional. El aporte de recursos que corresponde a cada institución se determinará en el Consejo Nacional Sectorial.

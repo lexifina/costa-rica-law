@@ -1,0 +1,1 @@
+Artículo 3°- Por la naturaleza de sus actividades se considerarán como Ministerios con función intersectorial los siguientes: Ministerio de Relaciones Exteriores y Culto, Ministerio de Seguridad Pública, Ministerio de Gobernación, Ministerio de la Presidencia, Ministerio de Cultura, Juventud y Deportes y Ministerio de Justicia.
