@@ -1,0 +1,1 @@
+Artículo 3°-El resto de las tierras concedidas, que podrá ampliarse hasta dos leguas cuadradas, se destinan á la agricultura y se dividirán en lotes de seis hectáreas cada uno, dejando entre ellos los caminos rectos que la Dirección General de Obras Públicas juzgue indispensables para el servicio. Esos lotes irán también numerados.
