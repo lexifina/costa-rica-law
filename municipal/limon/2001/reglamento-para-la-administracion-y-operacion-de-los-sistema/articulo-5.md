@@ -1,0 +1,1 @@
+Articulo 5°—El horario para el Funcionamiento y uso de los estacionamientos autorizados, corresponde fijarlos a la Comisión de Estacionómetros para la aplicación de este Reglamento, queda autorizado el horario de lunes a sábado entre las 7,00 horas y las 18,00 horas. Los domingos, feriados y días de fiestas nacionales, no se exigirá el uso de tarjeta.

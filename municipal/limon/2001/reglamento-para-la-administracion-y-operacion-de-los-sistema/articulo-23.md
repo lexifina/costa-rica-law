@@ -1,0 +1,2 @@
+Articulo 23. —Las zonas o espacios para estacionamiento permanente solo será para un vehículo. A la vez se autorizaran exclusivamente para uso de empresas, en cuyo Frente este marcado zonas de estacionamiento, como establecimientos comerciales, industriales o de servicio.
+No podrán excederse de cuatro o cinco espacios, zonas permanentes para cada cien metros o por costado de cuadra. Podrán otorgarse a uno o más adjudicatarios por periodos mensuales, conforme con el interés de los solicitantes o la conveniencia municipal.

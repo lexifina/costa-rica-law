@@ -1,0 +1,1 @@
+Articulo 25.—Las zonas oficiales y paradas serán demarcadas bajo el criterio técnico de la Ingeniería , de tránsito del Ministerio de Obras Públicas y transportes, previo acuerdo de la Municipalidad de Limón.

@@ -1,0 +1,1 @@
+Articulo 24.—Las zonas o espacios para estacionamiento permanentes podrán adjudicarse por plazo de 3 meses a 6 meses. La dependencia responsable puede a su criterio prorrogarse el plazo de adjudicación o renunciarlo si lo considera conveniente.

@@ -1,0 +1,1 @@
+Articulo 30.—Los adjudicatarios que lo son a título precario de zonas o espacios, estarán obligados a vigilar y controlar el uso de los espacios y colocar en sitio visible de su estacionamiento, la nota o recibo de adjudicación emitido por la Municipalidad de Limón.

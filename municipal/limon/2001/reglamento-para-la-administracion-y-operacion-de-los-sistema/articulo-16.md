@@ -1,0 +1,1 @@
+Artículo 16.—El personal del Departamento de Estacionamiento Autorizado por medio de los inspectores, tendrán a su cargo el ordenamiento, regulación y vigilancia para el distrito central de Limón los que están obligados a velar por la aplicación del presente Reglamento.

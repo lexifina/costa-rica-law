@@ -1,0 +1,1 @@
+Articulo 15.—Quedarán sujetos a correspondientes sanciones que indica la normativa del proceso penal y el articulo 13 del presente Reglamento, aquellos propietarios de vehículos que cometan alteraciones o fraudes en las tarjetas de estacionamiento.

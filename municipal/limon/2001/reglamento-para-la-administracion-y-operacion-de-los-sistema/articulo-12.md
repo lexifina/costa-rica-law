@@ -1,0 +1,1 @@
+Artículo 12.—Las tarjetas .se venderán en las cajas recaudadoras de la Municipalidad de Limón y en los establecimientos mercantiles autorizados por esta Municipalidad. Estos últimos o cualquier persona que compre un valor superior de los 2.000,00 colones en tarjetas, tendrá un 10% de descuentos sobre el precio.

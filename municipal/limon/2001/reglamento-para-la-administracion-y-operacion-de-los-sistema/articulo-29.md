@@ -1,0 +1,1 @@
+Artículo 29. Para la adjudicación o arrendamiento de espacios en las zonas no reguladas por algún sistema de los que establece este Reglamento denominadas Zonas no Céntricas, se lomara en cuenta el criterio técnico del Ministerio de Obras Públicas y Transportes.
