@@ -1,2 +1,0 @@
-Artículo 4º.-El Director General será nombrado por el Presidente de la República. Sus atribución serán, además de las fijadas en el artículo siguiente, todas aquellas que se deriven de la naturaleza de su función y de las necesidades que presenten los Refugiados.
-De igual manera será nombrado también un Director General Adjunto, que tendrá las atribuciones que le fijen el Consejo Nacional y el Director General.

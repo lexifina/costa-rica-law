@@ -1,1 +1,0 @@
-Artículo 6º.-Los órganos y dependencias del Poder Ejecutivo, de acuerdo con su especialidad de funciones, ejecutarán aquellas políticas que llegaren a determinarse sobre esta materia por el Consejo Nacional para los Refugiados, sin perjuicio de sus atribuciones y competencias propias.

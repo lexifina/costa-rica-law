@@ -1,1 +1,0 @@
-Artículo 7º.-El Director General tendrá a su cargo, además de las atribuciones que le fija este Decreto, la de coordinar la ejecución através de los órganos y dependencias del Poder Ejecutivo, de las políticas dictadas por el Consejo Nacional para los Refugiados.

@@ -1,1 +1,0 @@
-Artículo 2º.-Corresponderá al Consejo la fijación de las políticas para la protección y la ayuda de los refugiados, en consulta con el Alto Comisionado de las Naciones Unidas para los Refugiados, cuando el Consejo lo juzgue conveniente.
