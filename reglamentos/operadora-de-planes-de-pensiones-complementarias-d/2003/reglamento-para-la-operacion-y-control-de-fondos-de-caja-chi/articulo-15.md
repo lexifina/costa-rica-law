@@ -1,0 +1,1 @@
+Artículo 15.—El Gerente de la Operadora girará las instrucciones para que, una vez deducidos los montos totales de vales provisionales no liquidados del salario del empleado o empleados responsables, se proceda a reintegrar tales montos al custodio de la caja chica.

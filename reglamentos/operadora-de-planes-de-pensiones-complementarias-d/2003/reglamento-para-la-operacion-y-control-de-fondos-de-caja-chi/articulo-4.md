@@ -1,0 +1,1 @@
+Artículo 4º—El monto máximo de las adquisiciones que se realicen por caja chica será de un 20% del fondo asignado. No obstante, esto podrá variar en el momento en que sea necesario, de acuerdo con los requerimientos de utilización y operación de la misma, siempre y cuando estos casos estén debidamente justificados y cuenten con autorización previa de la Gerencia de la Operadora.

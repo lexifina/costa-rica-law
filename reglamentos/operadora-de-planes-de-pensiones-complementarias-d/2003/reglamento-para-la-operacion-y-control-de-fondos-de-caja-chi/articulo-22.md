@@ -1,0 +1,1 @@
+Artículo 22.—En ningún caso el custodio y el empleado facultado para autorizar gastos por medio de caja chica podrán ser la misma persona. El custodio no podrá efectuar registros contables de los gastos ni de los reintegros de caja chica.

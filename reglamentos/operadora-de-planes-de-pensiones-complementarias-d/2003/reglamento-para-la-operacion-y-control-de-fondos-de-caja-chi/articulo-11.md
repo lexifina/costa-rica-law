@@ -1,0 +1,1 @@
+Artículo 11.—E1 retiro de fondos de la caja chica, para la compra de bienes y/o servicios, deberá hacerse por medio de vale provisional o definitivo; este debe contener la información del caso, así como una justificación pormenorizada de la compra.

@@ -1,0 +1,1 @@
+Artículo 6º—Los empleados autorizados, para todos los efectos, deberán registrar sus firmas ante el custodio, quien se abstendrá de tramitar vales provisionales o definitivos que no cuenten con la firma de al menos uno de los empleados autorizados.

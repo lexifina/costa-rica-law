@@ -1,0 +1,2 @@
+Artículo 8º—Con recursos de la caja chica podrán adquirirse activos fijos, siempre y cuando ello no implique la fragmentación de las adquisiciones.
+Es responsabilidad del custodio y/o los empleados autorizados comunicar tal adquisición a los órganos correspondientes, para que el activo adquirido con esos recursos sea identificando como propiedad de la Operadora y contabilizado dentro de los tres días hábiles siguientes a su adquisición, como un activo fijo.

@@ -1,0 +1,3 @@
+Artículo 17.—La reposición de fondos de la caja chica la solicitará el custodio ante la Jefatura del Departamento de Administración y Finanzas, conforme a las necesidades de efectivo, para atender los requerimientos de compra de bienes y/o servicios con fondos de la caja chica.
+Dicha solicitud de reposición de fondos de la caja chica deberá hacerse al menos dos veces al año, en el mes de junio y en el mes de diciembre, debiéndose aportar para ello la respectiva liquidación de los fondos utilizados, contar con el visto bueno de la Jefatura de Administración y Finanzas.
+La reposición de fondos de la caja chica se hará mediante cheque o comprobante de pago, a nombre del custodio, quien de inmediato lo hará efectivo e ingresará el monto correspondiente a la caja chica.

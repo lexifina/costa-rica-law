@@ -1,0 +1,1 @@
+Artículo 5º—Será prohibido fraccionar las compras de caja chica, ya sea por medio de vales provisionales o definitivos, so pena de incurrir en causal de falta grave, para lo cual se sancionará según el Literal 1 del Artículo 81 del Código de Trabajo.

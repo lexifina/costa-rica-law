@@ -1,0 +1,1 @@
+Artículo 19.—De cada uno de los arqueos que se realice, deberá quedar constancia escrita, mediante el levantamiento de un acta. Esta deberá ser firmada por el custodio y quien efectúa el arqueo y deben consignarse todos los datos que correspondan al arqueo.
