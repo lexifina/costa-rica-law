@@ -1,0 +1,1 @@
+Artículo 11° La Granja dependerá directamente de la Secretaría de Fomento, y se establecerá en el lugar que al efecto designe el Poder Ejecutivo, en la provincia de San José, y estará a cargo de un Director General y del número de auxiliares técnico y administradores que fueren indispensables.

@@ -1,0 +1,1 @@
+Art 3° La Granja Nacional, de Agricultura tendrá un departamento anexo, destinado a la manutención de sementales, de las mejores razas, importados, y a la crianza de animales domésticos de las mejores castas aclimatadas en Costa Rica.
