@@ -1,0 +1,1 @@
+Artículo 37.—Los países miembros en cuyo territorio el Fondo establezca sucursales, agencias o representaciones, otorgarán a los funcionarios internacionales que se desempeñen en ellas, las mismas inmunidades y privilegios que dichos países conceden a los funcionarios diplomáticos de rango comparable.

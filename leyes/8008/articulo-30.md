@@ -1,0 +1,1 @@
+Artículo 30.—El Presidente Ejecutivo será elegido por un período de tres años y podrá ser reelegido. No podrá desempeñar ninguna otra actividad profesional, remunerada o no, excepto las de naturaleza docente o académica.

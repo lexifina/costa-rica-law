@@ -1,0 +1,1 @@
+Artículo 38.—El Fondo celebrará convenios con los Gobiernos de los países miembros a efecto de precisar los privilegios e inmunidades de que gozarán el Fondo y sus funcionarios internacionales, de conformidad con las disposiciones de este capítulo, así como los tratamientos que corresponderán a los funcionarios y empleados nacionales.

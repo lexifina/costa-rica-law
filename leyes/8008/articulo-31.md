@@ -1,0 +1,1 @@
+Artículo 31.—En caso de que el cargo de Presidente Ejecutivo quede vacante, el Directorio procederá a elegir un nuevo Presidente Ejecutivo por un período de tres años. Mientras se procede a la elección del Presidente o en caso de su ausencia temporal, el cargo será desempeñado por la persona que señale el Reglamento que para estos efectos dicte el Directorio.

@@ -1,0 +1,1 @@
+Artículo 2º—El Fondo tiene su sede en la ciudad de Bogotá, República de Colombia, y podrá establecer las sucursales, agencias o representaciones que sean necesarias para el cumplimiento de sus funciones, en cualquiera otra ciudad de los países miembros o fuera de ellos, si así lo acuerda el Directorio.
