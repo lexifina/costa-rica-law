@@ -1,0 +1,1 @@
+Artículo 28.—Toda empresa financiera fiscalizada deberá contar con los servicios de un auditor externo, el cual deberá ser Contador Público Autorizado, debidamente incorporado y miembro activo del respectivo colegio cuyo nombre deberá ser registrado ante la Auditoría General de Entidades Financieras. A contar con un contador, quien deberá estar debidamente incorpora colegio.

@@ -1,0 +1,2 @@
+Artículo 22.—Las empresas financieras, podrán realizar operaciones de fideicomiso de acuerdo con lo establecido por el Código de Comercio y en general operaciones y actividades lícitas que sean compatibles con la naturaleza de las empresas financieras.
+La Auditoría General de Entidades Financieras podrá reclasificar estas operaciones según su real naturaleza. Las empresas financieras deberán, sin excepción alguna llevar un registro de toda operación que realicen, independientemente su finalidad, su clase o tipo de que se trate.

@@ -1,0 +1,1 @@
+Articulo 41.- En caso de reincidencia no se admitirá excusa alguna que disminuya la responsabilidad de los infractores y la Auditoría General de Entidades Financieras podrá dar por cancelada de inmediato, la autorización para el funcionamiento de la empresa infractora.

@@ -1,0 +1,1 @@
+Artículo 25.—Las tasas de interés y las comisiones máximas sobre las operaciones activas se fijarán en forma anual. En casos especiales la Junta Din Central de Costa Rica podrá variarlas de manera general.

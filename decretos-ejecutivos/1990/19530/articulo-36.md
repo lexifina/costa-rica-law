@@ -1,0 +1,2 @@
+Artículo 36- Si se comprobare la participación ilegal en las actividades reguladas por la ley y este reglamento por parte de una empresa financiera no inscrita ante .la Auditoría General de Entidades Financieras, ésta última ordenará de inmediato a la infractora que se ajuste a las disposiciones vigentes.
+Dicha orden se comunicará mediante carta certificada u otro medio idóneo y los afectados tendrán un plazo de diez días hábiles para ponerse a derecho.

@@ -1,0 +1,1 @@
+Artículo 27.—Todo contrato de crédito emitido por una empresa financiera bancaria deberá expresar necesariamente, la razón de que la Auditoría General de Entidades Financieras podrá inspeccionar y verificar los planes de inversión relativos a dichos créditos, así como la comprobación del uso final de los recursos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 38-- -En caso de que el requerimiento a que alude el artículo 35 no sea atendido debidamente por su destinatario, se procederá a denunciar al infractor conforme lo dispuesto en el Código Penal vigente.

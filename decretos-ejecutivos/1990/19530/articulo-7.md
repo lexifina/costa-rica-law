@@ -1,0 +1,4 @@
+Artículo 7°—Recibida la documentación completa la Auditoría procederá en un plazo no mayor de treinta días al estudio de él para comprobar si llena los requisitos legales y reglamentarios, en cuyo caso y dentro de este mismo lapso, deberá proceder al registro de la entidad solicitante.
+Si la documentación resultara defectuosa o incompleta, la Auditoría notificará a la empresa solicitante por escrito mediante carta certificada, o cualquier otro medio que resulte idóneo, a la empresa financiera solicitante, para que subsane los defectos u omisiones, a cuyo efecto se concederá un plazo de diez días hábiles; para lo cual el referido plazo de treinta días se prorrogará automáticamente.
+Queda entendido que el plazo de diez días a que se refiere este artículo podrá otorgarse por una única vez, salvo situaciones muy calificadas, en las que la Auditoría podrá disponer su ampliación.
+Si las omisiones o defectos no se subsanaran en los plazos, la solicitud será denegada.

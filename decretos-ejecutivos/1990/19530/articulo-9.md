@@ -1,0 +1,2 @@
+Artículo 9°—Toda la documentación citada en el artículo 6° de este Reglamento formará parte del expediente de la entidad solicitante y se considerará propiedad de la Auditoría General de Entidades Financieras desde el momento de su recibo. Únicamente en casos especiales y con el objeto de corregir defectos u omisiones en los documentos, podrán ser devueltos para ese fin, llenando las formalidades correspondientes.
+En ningún caso procederá la devolución o entrega de documentos que respalden inscripciones ya practicadas o resoluciones que hayan denegado la inscripción.

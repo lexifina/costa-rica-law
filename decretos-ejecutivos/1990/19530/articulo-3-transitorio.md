@@ -1,0 +1,2 @@
+III.—Las empresas financieras no bancarias disponen de un plazo máximo de 18 meses para ajustar su capital, de acuerdo con lo establecido en el artículo 3° de la ley No 5044 del 13 de setiembre de 1972 y sus reformas, entendiéndose que dicho plazo corre a partir del 22 de noviembre de 1988.
+Dado en la Presidencia de la República.—San José, a los seis días del mes de marzo de mil novecientos noventa.

@@ -1,0 +1,1 @@
+Artículo 29.—Las empresas financieras están obligadas a informar a sus clientes de las condiciones del crédito que pueden ofrecerles, para lo cual en lugares visibles de sus oficinas información amplia y precisa sobre los plazos, tasas de interés sobre saldos, comisiones y demás cargas financieras. Esta también figurar en su literatura de promoción y propaganda.

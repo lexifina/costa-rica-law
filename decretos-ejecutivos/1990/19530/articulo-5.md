@@ -1,0 +1,1 @@
+Artículo 5° —Todas las empresas financieras, deberán inscribirse como tales en registro que para ese efecto llevará la Auditoría General de Entidades Financieras no mayor de noventa días a partir de su constitución. En dicho registro también las modificaciones y cancelaciones posteriores.

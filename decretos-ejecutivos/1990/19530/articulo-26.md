@@ -1,0 +1,2 @@
+Artículo 26.—Las disposiciones que se dicten de acuerdo con I a que se refieren los artículos 24 y 25 de este Reglamento serán igualmente aplicables a los Departamento y Secciones Financieras de los bancos integrantes del Sistema Bancario Nacional.
+La aprobación de las medidas anteriores requerirá el voto afín de los miembros de la Junta Directiva del Banco Central de Costa Rica, sin embargo si este número de votos no se alcanzara en dos sesiones consecutivas i se resolverá en la sesión siguiente por simple mayoría.

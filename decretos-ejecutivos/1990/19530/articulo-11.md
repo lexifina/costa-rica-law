@@ -1,0 +1,2 @@
+Artículo 11.—Toda empresa financiera no bancaria regulada por la ley y este Reglamento deberá mantener un capital suscrito y pagado no inferior a una quinta parte del capital mínimo establecido para los bancos privados, el cual deberá ser calificado y, en su caso, aceptado por la Auditoría General de Entidades Financieras.
+Cualquier modificación que se haga al capital social deberá contar previamente con la calificación y aceptación de la Auditoría General de Entidades Financieras.

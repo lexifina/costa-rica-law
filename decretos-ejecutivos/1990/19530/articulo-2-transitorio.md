@@ -1,0 +1,1 @@
+II.—Las empresas financieras no bancarias que participen en empresas agrícolas, industriales, comerciales o de cualquier otra índole, disponen en un plazo máximo de tres años para ajustarse a lo estipulado en el artículo 10 de la ley No 5044 del 13 de setiembre de 1972 y sus reformas. Se entiende que ese plazo corre a partir del 22 de noviembre de 1988.

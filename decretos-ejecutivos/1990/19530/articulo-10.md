@@ -1,0 +1,1 @@
+Artículo 10.—Las empresas financieras registradas deberán comunicar a la Auditoría en un plazo no mayor de noventa días cualquier cambio o modificación que se produzca en relación con los requisitos establecidos en el artículo 6° de este Reglamento.

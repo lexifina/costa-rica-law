@@ -1,0 +1,2 @@
+Artículo 17.—Los bienes* que le fueren transferidos a una empresa financiera en pago de obligaciones, o que le fueren adjudicados en remates judiciales, deberán venderse dentro de un plazo de un año, contado a partir de su adjudicación. Este plazo podrá ser ampliado por la Auditoría hasta por un año más a solicitud del interesado.
+En estos casos dicha adquisición debe ser puesta en conocimiento de la Auditoría en un plazo no mayor de 30 días, con el objeto de llevar un registro de estos bienes.

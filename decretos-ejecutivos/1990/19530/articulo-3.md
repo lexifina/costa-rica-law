@@ -1,0 +1,1 @@
+Artículo 3°—Para efectos de lo dispuesto en el artículo 2° de este Reglamento, las empresas ahí mencionadas deberán aportar a la Auditoría General de Entidades Financieras, cuando así lo solicite ésta, toda la documentación necesaria, a fin de proveer los elementos pertinentes que demuestren el hecho de no ser sujetos de fiscalización por parte de esta Entidad.

@@ -1,0 +1,2 @@
+Artículo 15.—El límite máximo de crédito directo o indirecto y los descuentos que las empresas financieras podrán conceder a una persona física o jurídica será del veinte por ciento (20,0%) de su capital y reservas. El crédito directo o indirecto y los descuentos otorgados a grupos de interés económico deberá computarse dentro del límite indicado.
+Cuando se trate de operaciones de descuentos, la limitación señalada se aplicará a las personas físicas o jurídicas que aparezcan como deudores constituyentes en los documentos cuyo descuento se realice.

@@ -1,0 +1,1 @@
+Artículo 21.—La razón de endeudamiento de las empresas financieras no podrá exceder de siete a uno. Se define ésta como la relación ante el pasivo total, incluidos los pasivos contingentes, y el capital suscrito y pagado no redimible y las reservas patrimoniales. La Auditoría General de Entidades Financieras calificará los conceptos de la relación citada.
