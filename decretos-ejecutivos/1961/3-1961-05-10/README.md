@@ -14,3 +14,4 @@ Reforma de la Norma Oficial de Nomenclatura para Jabones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1961-05-13 | la propia norma |
+| 2 | 1977-03-24 | Decreto Ejecutivo 6882 (1977-03-24) |
