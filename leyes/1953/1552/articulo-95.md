@@ -1,0 +1,2 @@
+Artículo 95.- Cuando por razones de conveniencia nacional en relación con la política monetaria, se justifique, a juicio exclusivo de la Junta Directiva, quedarán fuera del control establecido en el artículo 93, en su totalidad o en parte, los ingresos en divisas que ella determine. Este régimen de excepción será regulado en sus condiciones, amplitud y períodos de vigencia por la Junta.
+(Así reformado por el artículo 1º de la ley Nº 5199 de 17 de mayo de 1973 )

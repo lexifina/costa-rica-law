@@ -1,0 +1,2 @@
+Artículo 111.- El Banco Central procurará mantener la estabilidad externa de la moneda nacional y asegurar su convertibilidad. Con tales fines el Banco podrá adquirir, mantener y utilizar oro físico, Derechos Especiales de Giro, divisas que sean de libre uso, así como otros activos que tengan la calidad de reservas monetarias internacionales.
+(Así reformado por el artículo 3º de la ley Nº 6223 de 27 de abril de 1978)

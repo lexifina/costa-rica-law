@@ -1,0 +1,1 @@
+Artículo 52.- La Comisión será presidida por el Presidente del Banco Central y estará integrada por los presidentes y gerentes de todos los bancos o sus delegados, por el Auditor General de Entidades Financieras y por los representantes de los bancos comerciales ante la Junta Directiva del Banco Central.

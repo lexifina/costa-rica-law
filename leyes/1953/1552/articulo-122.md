@@ -1,0 +1,4 @@
+CAPITULO VII
+Operaciones y relaciones con otras instituciones
+Artículo 122.- El Banco Central podrá efectuar, con instituciones monetarias y bancarias internacionales, las operaciones que le correspondan, como Banco Central y como Agente del Estado, de acuerdo con los convenios internacionales respectivos y con las leyes sobre la materia. También podrá obtener y conceder créditos y realizar todas las demás operaciones compatibles con la naturaleza de un banco central, con otros bancos centrales y con bancos extranjeros de primer orden. Asimismo, el Banco Central podrá convenir, a nivel centroamericano, acuerdos relacionados con materias de su competencia, los cuales cuando requieran la aprobación de la Asamblea Legislativa, entrarán en vigencia al ser ratificados por la misma a petición del Poder Ejecutivo.
+(Así reformado por el artículo 3º de la ley No. 6223 de 27 de abril de 1978 )

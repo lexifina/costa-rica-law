@@ -1,0 +1,1 @@
+Artículo 65.- Todos los documentos redescontados, aceptados como garantía o constituyentes de un préstamo, deberán ser plena y solidariamente garantizados con la firma de la institución que los entregare u otorgare al Banco Central.

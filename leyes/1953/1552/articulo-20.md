@@ -1,0 +1,6 @@
+Artículo 20.- Dentro de los primeros seis meses de cada año, el Banco Central publicará una memoria anual en que dará a conocer su situación financiera y las operaciones que hubiere efectuado en el curso del año anterior. La memoria deberá contener, por lo menos, lo siguiente:
+1) Una relación analítica acerca de la situación financiera del Banco, de sus operaciones y resultados económicos y demás actividades internas durante el año en referencia;
+2) Una exposición resumida del desarrollo de los principales acontecimientos económicos, monetarios, financieros y bancarios del país en ese año;
+3) Un análisis explicativo de la política monetaria, cambiaria y crediticia seguida por el banco en ese lapso; y
+4) Un informe del Auditor General de Entidades Financieras acerca de la situación financiera del Sistema Bancario Nacional, así como de cada una de las instituciones bancarias sujetas a su fiscalización y del cumplimiento de las funciones a su cargo.
+Además los cuadros numéricos, gráficos y anexos estadísticos que seconsideren convenientes, y el texto completo de las disposiciones legales, dictadas durante el periodo que se reseña, en relación con las funciones y operaciones del banco y con sus actividades en la economía de Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 6º.- Para ejercer las facultades y cumplir con los deberes que le son propios, el Banco Central contará con su influencia moral y técnica, con sus poderes legales para la regulación de la moneda, la banca, el crédito y el cambio exterior, y con la más completa ayuda y cooperación del Estado y de todas sus dependencias e instituciones.

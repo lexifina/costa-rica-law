@@ -1,0 +1,5 @@
+Artículo 19.- El Banco deberá publicar en el Diario Oficial todos aquellos acuerdos de la Junta Directiva que sean de interés general y preferentemente los siguientes:
+1) Los acuerdos que determinen o modifiquen los tipos de cambio y las tasas de redescuento e interés que computará el Banco en sus operaciones, así como las tasas de descuento e interés para las operaciones activas y pasivas de las demás instituciones bancarias;
+2) Los acuerdos que se refieren a la determinación de los encajes bancarios mínimos, de los límites máximos cuantitativos o cualitativos para las carteras de los bancos y demás normas que se apliquen para el control del Sistema Bancario del país; y
+3) Los acuerdos de carácter general referentes a las actividades cambiarias y monetarias del país, que tengan aplicación para la regulación de la moneda, el crédito, el medio circulante y la economía nacional.
+La Junta podrá disponer que no se publiquen aquellos acuerdos que a su juicio, sean de carácter confidencial o cuya publicidad considere perjudicial por cualquier razón.

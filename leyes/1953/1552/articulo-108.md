@@ -1,0 +1,1 @@
+Artículo 108.- Cuando los saldos en monedas extranjeras que tuviere un banco fueren insuficientes para atender adecuadamente sus operaciones normales, el Banco Central le traspasará, a su petición, las sumas en divisas extranjeras que necesitare para completar sus tenencias, dentro de los límites establecidos en el artículo anterior.

@@ -1,0 +1,5 @@
+Artículo 64.- Para ejercer el debido control de las tasas de interés en armonía con el desarrollo económico del país, la Junta fijará:
+1) Las tasas de interés y redescuento que cobrará el Banco sobre las operaciones de crédito que puede efectuar de conformidad con lo establecido en esta ley.
+2) Las tasas máximas de interés y descuento que podrán cobrar los bancos a sus deudores por las diversas clases de préstamos y descuentos, y por cualesquiera otras operaciones de crédito que realicen.
+3) Las tasas máximas que en concepto de comisiones u otras cargas podrán cobrar a sus deudores el Banco Central y los demás bancos del país por las diferentes clases de operaciones de crédito que efectúen.
+Estas facultades de la Junta podrán ejecutarse en relación con una determinada clase de operaciones de crédito, con varias de ellas o con todas en conjunto, y siempre tendrán carácter general obligatorio para todos los bancos. La contravención a estas disposiciones hará incurrir al banco infractor, en la obligación de devolver la suma cobrada ilegalmente.

@@ -1,0 +1,1 @@
+Artículo 50.- El Reglamento del Banco contendrá normas adecuadas que regulen la organización de cada uno de los departamentos, así como las facultades y obligaciones que les correspondan a los funcionarios encargados de los mismos.
