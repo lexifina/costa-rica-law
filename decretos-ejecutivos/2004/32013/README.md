@@ -14,3 +14,4 @@ Modifica el límite del Gasto Presupuestario para el Instituto Costarricense de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-10 | la propia norma |
+| 2 | 2004-09-07 | Decreto Ejecutivo 32129 (2004-09-07) |

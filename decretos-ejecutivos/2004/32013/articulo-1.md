@@ -10,4 +10,5 @@ Considerando:
 5º—Que mediante Decreto Ejecutivo Nº 31756-H de fecha 26 de marzo del 2004 y publicado en el Alcance Nº 15 a La Gaceta Nº 83 del 29 de abril del 2004 se estableció el gasto presupuestario total del INCOP, en la suma de ¢ 5.445.9 millones.
 6º—Que a los efectos de cumplir con los objetivos propuestos, la Entidad solicitó mediante oficio Nº G.G. 01623-2004 del 22 de junio del 2004, la ampliación del límite de gasto total presupuestario para el año 2004. Por tanto,
 DECRETAN:
-Artículo 1º—Modificase para el Instituto Costarricense de Puertos del Pacífico, el gasto presupuestario total para el año 2004, establecido en el Decreto Ejecutivo Nº 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, de manera que éste no podrá exceder la suma de ¢ 5.842.9 millones, en ese período.
+Artículo 1º—Modificase para el Instituto Costarricense de Puertos del Pacífico, el gasto presupuestario total para el año 2004, establecido en el Decreto Ejecutivo Nº 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, de manera que éste no podrá exceder la suma de *¢ 21.292.9millones, en ese período.
+(*Así reformado por el artículo 1° del decreto ejecutivo N° 32129 del 7 de septiembre del 2004)
