@@ -1,1 +1,0 @@
-Articulo 2°—Se deja sin efecto la resolución N° 41-02 de las ocho horas del dia veintitrés de setiembre del dos mil dos dictada por la Dirección General, publicada en el Diario Oficial La Gaceta N° 202 de 21 de octubre del 2002.
