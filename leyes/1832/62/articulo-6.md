@@ -1,0 +1,22 @@
+De los procuradores ó Agentes de pleitos.
+Art. 1° Por la agencia en un juicio ordinario ó concurso de acreedores cuyo interés no exediere de un mil pesos, ó cosa equivalente, llevaràn veinte y un pesos en la 1a Instancia, y por la segunda, diez pesos cuatro reales. Y en el caso que la cantidad sea muy corta, se valdràn de Letrado para que prudencialmente haga la tasacion.
+Art. 2. De los pleitos que pasaren de un mil pesos hasta diez mil, llevaràn à mas de lo asignado en la partida antecedente, á razon de tres pesos seis reales por millar en la 1a Instancia, y en la segunda, à razon de trece reales.
+Art. 3. De los pleitos que pasaren de diez mil pesos hasta veinte mil, llevarán sobre lo regulado en las dos antecedentes partidas, á dos pesos dos reales por millar en la 1a Instancia, y en segunda, à nueve reales.
+Art. 4. De los pleitos que pasaren de veinte mil pesos sea en la cantidad que fuere, llevarán á mas de lo asignado en los antecedentes artìculos, seis reales por millar en cada Instancia, con advertencia, que de las cantidades intermedias de millar á millar, no pasando de quinientos pesos, no deberán llevar derechos algunos, y en pasando de esta cantidad, cobraràn como del millar completo.
+Art. 5. Por el seguimiento de un juicio ordinario sobre cosa indefinida, llevarán en la Instancia, treinta pesos, y en 24 quince, y si atendidas las cireunstancias del negocio, pareciere esta regulacion mucha o poca, se ocurrirá á un Letrado para que la formalise.
+Art. 6. Por un juicio ejecutivo, llevarín quince pesos, y cuando la cantidad por que se ejecuta, no exeda de doscientos pesos, llevaràn la mitad.
+Art. 7. Por los derechos en un juicio de cuentas, cobraràn segun lo tasado en el juicio ordinario.
+Art. 8. Por cualesquiera articulos y juicios, sumarios de posesion y otros semejantes, no habiendo pruebas y siguiendose dos Instancias, llevarán é tres pesos por cada una, y habiendo prueba en ama ò en otra, llevaràn diez y ocho reales mas en la que la hubiere.
+Art. 9. Por la asistencia de inventarios, aprecios y almonedas á que concurrieren como Curadores de menores, defensores de ausentes, fatuos, o con poder de las partes, siendo por mañana á tarde, llevarán doce reales; pero si se repitieren dos actos en cada dia, llevaran por ambos, diez y ocho reales.
+Art. 10. De pedir la aprobacion de unos inventarios, habiendo contradiccion y siguiendose un articulo, llevarán tres pesos, y cuando se haga sin contradiccion, quince reales.
+Art. 11 De la asistencia á posesiones, vistas de ojos y otros casos semejantes, llevarán doce reales, y ocupandose el dia entero, diez y ocho reales.
+Art. 12. De la asistencia à remates en que no haya juicio, llevaràn doce reales por cada una, y cuando el remate sea resultivo de un juicio, llevaràn solamente lo que en ellos les está asignado.
+Art. 13. De los testimonios que pidieren independientes del pleito, llevaràn à seis reales por cada uno.
+Art. 14 En los pleitos que defendieren como procuradores ad litem, llevaràn lo que les queda asignado por la agencia en los respectivos juicios.
+Art. 15. Por todas las diligencias que practiearen, inclusive la provision ordinaria, llevarán tres pesos, y no habiendola, quince reales.
+Art. 16. Por la solicitud y diligeneias que hicieren para la expedicion de despachos ordinarios, llevarán doce reales; y siendo por decreto que sirva de despacho seis reales; y precediendo para librarse respuesta fiscal ó de Acesor, quince reales; entendiendose lo dicho cuando practiquen estas diligencias fuera de un pleito que les esta encomendado.
+Art. 17. En las causas criminales en que los reos los nombren, por tener con que pagarles, llevarán en la primera Instancia, diez y ocho pesos, y en la segunda, nueve.
+Art. 18: De las peticiones ordinarias, lletarán dos reales fuera de papel.
+Art. 19. De los conocimientos que firman para llevar autos y trabajo de cargarlos, llevaràn un real.
+Art. 20. Por la asistencia de los remates de Hacienda pública á que concurrieren con poder y órden especial de sus Poderdantes, verificandose en ellos el remate, llevaràn diez y seis pesos cuatro reales, y no verificandose, diez pesos cuatro reales; entendiéndose las dichas asignaciones, cuando el remate exeda de cinco mil pesos, y bajando de está cantidad, llevaràn la mitad; y cuando haya puja del cuarto, diezmo ó medio diezmo, perecibiran a mas de lo referido, lo mismo que por el seguimiento de un articulo.
+Art. 21 De los enterós que hicieren por encargo e la Hacienda pública, siendo independientes de un juicio que sigan, llevarán doce reales.
