@@ -21,12 +21,12 @@ del Norte.
 ========================================================================
 ADDENDUM
 PÁRRAFO ACLARATORIO:
-En referencia entre el Gobierno de la República de
-Costa Rica y el Gobierno del Reino Unido de Gran Bretaña e Irlanda del
-Norte sobre protección y fomento de inversiones, firmado hoy en San José,
-se entiende que en el artículo VI del Convenio la frase "libre
-transferencia" no exime a las inversiones y rentas del pago de impuestos
-conforme a las leyes y reglamentos vigentes.
+En referencia entre el Gobierno de la República de Costa Rica y el
+Gobierno del Reino Unido de Gran Bretaña e Irlanda del Norte sobre
+protección y fomento de inversiones, firmado hoy en San José, se entiende
+que en el artículo VI del Convenio la frase "libre transferencia" no
+exime a las inversiones y rentas del pago de impuestos conforme a las
+leyes y reglamentos vigentes.
 San José, 7 de setiembre de 1982.
 Fernando Volio Jiménez, Michael Brown."
 ARTÍCULO 2.- Interpretación
