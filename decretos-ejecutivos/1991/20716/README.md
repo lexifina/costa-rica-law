@@ -14,3 +14,4 @@ Reforma al Reglamento de Valores en Custodia y Fondo de Ayuda a los Internos del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-09-30 | la propia norma |
+| 2 | 1991-10-02 | Decreto Ejecutivo 20797 (1991-10-02) |

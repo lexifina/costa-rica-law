@@ -6,6 +6,5 @@ DECRETAN:
 Artículo 1”—Refórmese el artículo primero del decreto ejecutivo N” 18706-J, del 13 de diciembre de 1988, para que en lo sucesivo se lea así:
 “Son valores en custodia:
 a) Aquellos bienes tales como joyas, dinero o cualquier otro objeto de valor, que porten las personas al ingresar a los Centros de la Dirección General de Adaptación Social, o los que adquieran durante el término de su permanencia en dichos centros, los que deberán ser entregados a la administración por razones de seguridad y orden.
-b) Los dineros que por concepto de pago de jornales, no sean reclamados por los internos en el plazo de tres meses a partir de la fecha de pago.
-c) ...”
-Dado en la Presidencia de la República.—San José, a los diez días del mes de setiembre de mil novecientos noventa y uno.
+b) Los dineros que por concepto de pago de jornales, no sean reclamados por los internos en el plazo de tres meses a partir de la fecha de pago."
+(Así reformado parcialmente mediante el artículo 1 del Decreto Ejecutivo No. 20797, del 02 de octubre de 1991).
