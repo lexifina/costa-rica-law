@@ -1,1 +1,0 @@
-Artículo 8°—El cargo de Tesorero Municipal no es incompatible con el de Tesorero cantonal de Enseñanza Primaria, pero quien desempeñe ambos cargos deberá garantizar por separado su responsabilidad, de acuerdo con las leyes respectivas.
