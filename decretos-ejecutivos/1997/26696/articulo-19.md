@@ -1,0 +1,1 @@
+Artículo 19.—En lo no dispuesto o regulado en el presente Reglamento, se aplicará supletoriamente en lo que fuere pertinente y procedente, con carácter vinculante y de acatamiento obligatorio, las disposiciones contempladas en la ley N° 7202- Ley del Sistema Nacional de Archivos.

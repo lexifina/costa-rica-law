@@ -1,0 +1,1 @@
+Artículo 9°—Las investigaciones se considerarán oficialmente terminadas hasta que el expediente original se encuentre en el Archivo Técnico Oficial de la DIA, Dirección Regional o Estación Experimental respectiva.

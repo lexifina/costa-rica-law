@@ -1,0 +1,1 @@
+Artículo 3°—La supervisión de los Archivos Técnicos será realizada por la DIA en coordinación con el Coordinador Nacional de Archivos Técnicos ubicado en el Sistema Unificado de Información Institucional (SUNII).

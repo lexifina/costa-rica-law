@@ -1,0 +1,1 @@
+Artículo 14.—Cualquier funcionario, persona física o jurídica, que desee publicar información basada total o parcialmente en experimentos realizados por el MAG por convenios o programas cooperativos, deberá consignar en la publicación respectiva, en forma claramente visible el origen o fuente de la información, otorgando los créditos respectivos.

@@ -1,0 +1,1 @@
+Artículo 4°—El Coordinador Nacional de Archivos Técnicos definirá, en conjunto con la DIA y los encargados de la investigación regional, el lugar físico donde estarán los archivos en las diferentes instancias del MAG, así como los lineamientos para el nombramiento de un responsable oficial del archivo en cada una de ellas y cuyas funciones se definen en el presente Reglamento.

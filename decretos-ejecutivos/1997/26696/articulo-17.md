@@ -1,0 +1,1 @@
+Artículo 17.—La DIA promoverá revisiones externas a fin de garantizar la calidad y veracidad de los proyectos de investigación. La DIA definirá el método, momento y calidades de los expertos, estableciéndose así una Auditoría Técnica Externa en respaldo al contenido de los Archivos Técnicos.

@@ -1,0 +1,1 @@
+Artículo 18.—Cualquier cambio en el manejo de los archivos, en los códigos de experimentos y los formatos para captar información, deberá ser de previo autorizado por la DÍA y coordinado con el SUNII.
