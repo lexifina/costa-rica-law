@@ -6,7 +6,7 @@ En uso de las facultades que les confiere el artículo 140, incisos 30 y 18) de 
 Considerando:
 1°.-Que el Captafol (cis-N(1.12.2-tetracloroctiltio), 4-ciclohexeno 1-2-dicarbiximida,) es fungicida no sistemático, utilizado para el control de las enfermedades foliares en ciertos cultivos frutales y vegetales, como protector de ciertas semillas y preservantes para madera.
 2°.-Que el Captafol ha sido identificado como producto con riesgo potencial cancerígeno para humanos, altamente tóxico para peces, tóxico para invertebrados acuáticos.
-3°-Que la experiencia ha demostrado que la venta de productos restringidos bajo receta profesional no ha sido lo eficiente que se quería.
+3°-(Dejado sin efecto por el artículo 1° del decreto ejecutivo N° 19260 del 11 de setiembre de 1989).
 Por tanto,
 DECRETAN:
 Artículo 1°.-Se prohíbe el registro, importación, almacenamiento, tránsito, venta y uso del Captafol como ingrediente activo.

@@ -14,3 +14,4 @@ Se prohíbe el registro, importación, almacenamiento, tránsito, venta y uso de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-10-06 | la propia norma |
+| 2 | 1989-09-11 | Decreto Ejecutivo 19260 (1989-09-11) |
