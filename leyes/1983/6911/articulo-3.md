@@ -1,2 +1,0 @@
-Articulo 3°-Cuando por cualquier circunstancia sea necesario romper una vía pública, la persona física o jurídica que lo haga, estará obligada, dentro de los quince días naturales después de concluido el trabajo, a dejar la vía en condiciones semejantes a las que tenía antes de romperse. Se autoriza a la Municipalidad para que lo haga, si después de estos quince días la vía no ha sido reparada, y cobre el trabajo, con un diez por ciento de recargo sobre el costo de la reparación.
-Esta disposición rige para todo el territorio nacional.
