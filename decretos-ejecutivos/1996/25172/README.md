@@ -13,3 +13,4 @@ Interés Cultural Actividad ""Un Canto a la Vida, Juntos Contra el SIDA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-11 | la propia norma |
+| 2 | 1996-06-11 | SINALEVI (sin norma nombrada) |
