@@ -1,12 +1,2 @@
-ARTÖCULO 5§.-El remate de las prendas se har en
-casa del prestamista, y con intervenci¢n de un notario
-¢ corredor jurado, quien firmar el acta luego que el
-remate hubiere concluido.
-El notario ¢ corredor que haya autorizado el remate
-podr expedir las certificaciones que de lo conducente
-del acta solicitaren los rematarios para comprobar
-su propiedad de la prenda que se les hubiere
-adjudicado. Estas certificaciones se extender n en el
-papel del sello correspondiente.
-Los honorarios del notario ¢ corredor ser n
-cargo del prestamista.
+Art. 5°. - El remate de las prendas se hará en casa del prestamista con intervención de un Notario y de la autoridad de Policía que designe el respectivo Gobernador, la cual autoridad firmará el acta luego que el remate haya concluido y expedirá las certificaciones que de lo conducente del acta solicitaren los rematarios para comprobar la propiedad de la prenda que se les hubiere adjudicado, las cuales se extenderán en el papel correspondiente. Los honorarios del Notario son á cargo del prestamista.
+(Así reformado por el artículo 1° de la Ley N° 49 de 18 de agosto de 1904).

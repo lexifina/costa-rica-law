@@ -1,10 +1,5 @@
-ARTÖCULO 6§.-Si la prenda fuere rematada en m s de
-la suma adeudada por capital ‚ intereses, el sobrante
-deber devolverse por el notario ¢ corredor al due¤o
-de la cosa empe¤ada o a quine lo represente.
-Cuando varias prendas respondan por una misma
-deuda, si con el precio obtenido por una o m s alcanzare
-cubrirse lo adeudado a la casa de pr‚stamos
-se evitar el remate de la prenda ¢ prendas restantes,
-que ser n recogidas por el notario ¢ corredor y devueltas
-al due¤o ¢ su representante.
+Art. 6°.- Si la prenda fuere rematada en más de la suma adeudada por capital‚ intereses, el sobrante deber devolverse por el Notario al dueño de la cosa empeñada, ó á quien lo represente. Si el dueño de la prenda no estuviere presente, ni representado por otro en el acto de la liquidación que hará el Notario, éste depositará la suma sobrante en la respectiva Tesorería Nacional, la orden del dueño.
+Si la prenda fuere rematada por más de la suma adeudada, la autoridad respectiva publicará un aviso, indicando el número de la boleta de empeño que se refiere á dicha prenda, en el periódico oficial, para que las personas interesadas ocurran á retirar el sobrante que les corresponda. También dará aviso particular al interesado, á fin de que haga su reclamo oportunamente.
+Si pasados seis meses después de haberse publicado el aviso á que se refiere el párrafo anterior, no se presentare el interesado á cobrar el sobrante, la Tesorería Nacional imputará esos sobrantes, lo mismo que los demás valores que no fueren retirados por sus dueños, al fondo del Monte Nacional de Piedad, creado por ley de 15 de Enero de 1901.
+Cuando varias prendas respondan por una misma deuda, si con el precio obtenido por una ó más alcanzare á cubrirse lo adeudado, se evitará el remate de la prenda ó prendas restantes y éstas serán recogidas por la autoridad que presencie el remate y devueltas al dueño ó su representante.
+(Así reformado por el artículo 1° de la Ley N° 49 de 18 de agosto de 1904).

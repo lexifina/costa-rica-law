@@ -1,5 +1,2 @@
-ARTÖCULO 2§.-El due¤o de la casa de pr‚stamos debe
-dar fianza en cantidad equivalente al veinticinco por
-ciento del capital que va ponerse en giro, para asegurar
-el valor de las prendas que reciba. Esta fianza
-ser satisfacci¢n del Gobernador de la provincia.
+Art. 2°.- El dueño de la casa de préstamos debe dar fianza equivalente al cuarenta por ciento del capital que pone en giro, para asegurar el valor de las prendas que recibe, el sobrante del valor del remate de prendas, y garantizar cualesquiera otras responsabilidades en que incurra. Esta fianza será á satisfacción del Gobernador de la provincia y aumentará á medida que aumente el capital ¢ el valor de las prendas que tenga en garantía.
+Esta fianza se cancelará un año después de terminados los negocios de la casa de préstamos, previa publicación de edictos en tres periódicos, inclusive el Diario oficial, en los cuales se citará los interesados por ocho veces consecutivas, para que dentro de sesenta días se presenten á hacer valer sus derechos. Cumplidas estas formalidades, el Gobernador que aceptó la garantía, la cancelará. (Así reformado por el artículo 1° de la Ley N° 49 de 18 de agosto de 1904).

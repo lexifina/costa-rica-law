@@ -1,0 +1,3 @@
+Art. 16.- Las circunstancias determinadas en cada uno de los incisos del artículo anterior pueden probarse con la declaración de tres o más testigos contestes en haber realizado cada uno de ellos con una misma apersona, dentro de los seis meses anteriores, alguno de los actos o contratos en las condiciones especificadas en dichos incisos.
+Esos mismos testigos u otros podrán declarar para afianzar la convicción del juzgador, -caso que éste lo creyere necesario, - si les consta que el indiciado hace habitualmente la clase de negocios de que se le acusa, aunque no los hubiere realizado personalmente con ellos.
+(Así adicionado por Ley N° 2 de 27 de noviembre de 1914).
