@@ -10,25 +10,31 @@ III.2.2 Cuando se urbanicen terrenos contiguos a una vía de acceso restringido,
 III.2.3. La interconexión entre calles y vías de acceso restringido se hará únicamente en los sitios y de la manera que determine el Ministerio de Obras Públicas y Transportes.
 III.2.4. Clasificación de vías : El diseño geométrico para Vías públicas en Urbanizaciones, (cuyas normas incluyen el ancho de pavimento, franjas verdes y aceras y los elementos críticos de diseño) dependerá del volumen de tránsito promedio diario, de los accidentes topográficos, de las pendientes, de la densidad de uso y de otros similares. Su clasificación, por otro lado, se hace de acuerdo a su importancia dentro de los desarrollos urbanos.
 En esta clasificación se definen seis (6) tipos de vías, las que se enumeran a continuación, de acuerdo al orden decreciente de su derecho de vía y de su importancia.
-III.2.5 Vías reglamentadas por el Ministerio de Obras Públicas y transportes ( M.O.P.T.). El derecho de vía de las carreteras, y de los caminos públicos será el que indique el M.O.P.T., sin que pueda ser menor de veinte (20) metros para las primeras y catorce (14) metros para los segundos.
-III.2.6 Calles locales : Reglamentadas por la Municipalidad :
+III.2.5 Vías reglamentadas por el Ministerio de Obras Públicas y transportes ( M.O.P.T.). El derecho de vía de las carreteras y de los caminos públicos será el que indique el MOPT, pero las características geométricas de calzada y aceras se regirán por lo establecido en los puntos siguientes, quedando el resto del derecho de vía como zona verde. La vigencia de los alineamientos será de 18 meses.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+III.2.6 Calles locales : Reglamentadas por la Municipalidad :cuando exista el respectivo reglamento aprobado; de lo contrario se regirán por lo dispuesto en este Reglamento, de acuerdo con la ley N? 5990 de 19 de abril de 1976:
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.2.6.1. Especiales : Aquellas que se indican en los planes reguladores o en proyectos especiales o parciales debidamente aprobados, por el Instituto Nacional de Vivienda y Urbanismo (I.N.V.U.).
 Su sección será la indicada en cada caso y deberán integrarse adecuadamente a la vialidad existente o propuesta para la zona.
-III.2.6.2 Primarias : Aquellas que constituyen una red vial continua, sirven para canalizar las vías locales hacia sectores de la ciudad o bien, hacia carreteras de enlace entre el desarrollo propuesto y otros núcleos poblados o que se considere que puedan llegar a tener esta función.
-Requieren de las siguientes dimensiones : de catorce metros (14,00 m) de derecho de vía, nueve metros (9,00 m) de calzada, un metro con cincuenta centímetros (1,50 m) de acera y un metro (1,00 m) de franjas verdes. En zonas industriales el derecho de vía será de 17,00 m. De acuerdo a la dimensión de la urbanización el INVU y la Municipalidad podrán exigir calles especiales con derechos de vía mayores.
-III.2.6.3 Secundarias : Aquellas vías colectoras de las vías internas de la urbanización; tendrán un derecho de vía de 14 m. La calzada será como mínimo de 3,00 m cuando sea de una vía de circulación y sirva a menos de 120 lotes o unidades de vivienda en caso de proyectos con vivienda, caso contrario, cuando sea de dos vías o sirva a más de 120 lotes o unidades de vivienda, la calzada será de 7 m de ancho. El área restante del derecho de vía podrá ser repartida para aceras y franjas verdes a juicio del urbanizador, manteniendo un ancho mínimo de aceras de l,50 m.
-III.2.6.4 Terciarias : Aquellas que sirvan a menos de 80 unidades de vivienda o lotes o bien que por sus características sean de continuidad limitada, presente o futura. Tendrán un derecho de vía de 14 m. Cuando sean de dos vías de circulación la calzada tendrá un ancho mínimo de 5,50 m y 3,00 m cuando sean de una sola vía. También podrán hacerse de 11 m de derecho de vía, cuando no excedan de 120 m y en casos muy calificados el INVU y la Municipalidad podrán autorizar el uso de calles terciarias hasta con 6,00 m de derecho de vía.
-III. 2.6.5 De uso restringido : Aquellas vías diseñadas para servir a menos de 60 unidades de vivienda o lotes. Tendrán un derecho de vía mínimo de seis metros (6 m) totalmente pavimentado.
-En los casos definidos en el Capítulo V se podrá admitir una calzada de tres metros (3 m), inclusive sin pavimento.
-Estas vías deberán tener áreas de estacionamiento cuya dimensión se calculará a razón de una por cada dos lotes o unidades de vivienda en caso de proyectos de vivienda;
-Cuando se demuestre que la relación de unidades de vehículos por familia puede ser menor, el INVU y la Municipalidad podrán admitir hasta un (1) puesto de estacionamiento por cada 10 unidades habitacionales. Se necesita además un puesto de estacionamiento por cada 50,00 m2 de comercio residencial requerido para la urbanización, ubicado preferentemente al frente de éstos o dentro de un radio de 100 m.
-Cuando el diseñador coloque vías con estas características en un mismo eje, deberá aislarlas adecuadamente mediante la construcción de franjas verdes que tengan un ancho no menor a los seis metros (6,00 m), para evitar que el tránsito de vehículos pueda en un futuro llegar a ser continuo.
-Si el diseño de esta franja separatoria se adecúa para área de juegos infantiles, podrá contabilizarse dentro de las áreas a ceder al Municipio.
+III.2.6.2 Primarias : Aquellas que constituyen una red vial continua, sirven para canalizar las vías locales hacia sectores de la ciudad o bien, hacia carreteras de enlace entre el desarrollo propuesto y otros núcleos poblados o que se considere que puedan llegar a tener esa función.
+Requieren de las siguientes dimensiones: de catorce metros (14 m) de derecho de vía, nueve metros (9 m) de calzada, un metro con cincuenta centímetros (1,50 m) de acera y un metro (1 m) de franjas verdes.
+Podrán habilitar un número ilimitado de lotes. En zonas industriales el derecho de vía será de 17 m.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+III.2.6.3 Secundarias : Aquellas vías colectoras de las vías internas de la urbanización, tendrán un derecho de vía de 10 m, la calzada será de 7 m y el resto se repartirá entre aceras y zonas verdes.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+III.2.6.4 Terciarias : Aquellas que sirvan a 100 o menos unidades de vivienda o lotes. Tendrán un derecho de vía de 8,50 m, con una calzada de 5,50 m y el resto se repartirá entre aceras y zonas verdes.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+III. 2.6.5 De uso restringido : Son las terciarias que por sus características de continuidad limitada tendrán un derecho de vía de 7 m, una calzada de 5 m y el resto podrá ser acera o zona verde. Su longitud máxima será 120 m.
+En los casos definidos en el Capítulo V se podrá admitir una calzada de tres metros (3 m) inclusive sin pavimento.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.2 6.6 Calles en proyectos acogidos a la Ley de Propiedad Horizontal :
 En estos casos los edificios deberán ubicarse de tal forma que, en una posible segregación posterior, las calles previstas como privadas puedan entregarse al uso público cumpliendo con las normas anteriores. El derecho de vía se calculará conforme a las normas anteriores, según número de viviendas.
 III. 2.6.7 Peatonales :
-III.2.6.7.1 En terrenos abruptos se podrán aceptar calles peatonales. En otros casos sólo se aceptarán cuando el diseño sea tal que estos pasos no puedan transformarse en vehiculares y cuando sirvan a no más de 60 unidades de vivienda. El ancho de estas calles podrá ser variable, nunca menor de 6,00 m. El diseño podrá contemplar desniveles en su sección transversal y longitudinal (incluidas gradas).
+III.2.6.7.1 Alamedas o senderos peatonales: Tendrán un derecho de vía mínimo de 6 m con acera de 2 m al centro y el resto para zonas verdes. Cuando tengan salida a dos calles vehiculares su longitud podrá ser de 200 m; si no, la longitud máxima será de 135 m.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.2.6.7.2 Cuando la distancia entre dos vías vehiculares sea mayor de doscientos cuarenta (240) metros, deberá subdividirse el bloque mediante un espacio abierto para producir un paso peatonal intermedio no menor de 6,00 m de ancho. En este caso no se exigirá el antejardín si no hay lotes que enfrenten a él.
+III.2.6.7.3 Derogado
+(Así derogado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986, aunque en la publicación de este reglamento en la Colección de Leyes y Decretos de 1983, semestre I tomo II, no aparece dicho numeral)
 III.2.6.8 Normas generales
 Las calles sin salida deberán rematarse con un ensanchamiento que facilite el viraje de los vehículos, pudiendo hacerlo mediante el diseño de rotondas, "te" o "martillo" (ver esquema de diseño geométrico).
 III.2,6.8.1 El INVU y la Municipalidad revisarán, a nivel de anteproyecto, el tipo de vía que se puede utilizar en cada urbanización, para lo cual tomarán en cuenta los accidentes topográficos, el número de viviendas servidas, la generación de tránsito y continuidad vial, entre otras.
@@ -37,7 +43,8 @@ III.2.6.8.3 En el caso de urbanizaciones en cuyo diseño se utilice más de un 2
 III. 2.6.8.4 La pendiente máxima de las vías será del siguiente orden: Para calles primarias y especiales un 12 %; en tramos menores a cincuenta metros se podrán tener pendientes hasta de un 15 %; para calles secundarias, terciarias y de uso restringido un 15 % y en tramos no mayores a cincuenta (50) metros se podrán tener pendientes hasta de un 20 %.
 III. 2.6.9 Intersecciones
 ÍII.2.6.9.1 La distancia mínima entre dos intersecciones vehiculares será de cuarenta (40) metros, entre las líneas de centro de las calles.
-III.2.6.9.2 En toda intersección de vías, una de ellas se considerará como principal y las que empaten con éstas deberán tener como máximo una pendiente del 3 % en una distancia mínima de quince metros (15,00 m) fuera del derecho de vía. antes del empate. Los niveles de calle y alcantarillado al desembocar en calles existentes, deberán ser definidos por la Municipalidad en congruencia con lo existente; si el empate es con carretera existente o proyectada, el urbanizador deberá presentar al MOPT el perfil longitudinal para su estudio.
+III.2.6.9.2 En toda intersección de vías, una de ellas se considerará como principal y las que empaten con estas deberán tener como máximo una pendiente del 5% en una distancia mínima de quince metros (15 m) fuera del derecho de vía, antes del empate. Los niveles de calle y alcantarillado al desembocar en calles existentes, deberán ser definidos por la Municipalidad en congruencia con lo existente, si el empate es con carretera existente o proyectada, el urbanizador deberá presentar al MOPT, el perfil longitudinal para su estudio.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.2.6.9.3 El inicio de los espacios de estacionamiento público sobre las vías no podrá quedar a menos de 100 m de una intersección de carreteras y de 40 m en el caso de calles.
 III.2.6.10 Diseño Geométrico
 III.2.6.10.1 Las vías públicas deberán construirse según el folleto del INVU denominado Normas Mínimas de Diseño Geométrico en Urbanizaciones o según se detalla en los cuadros denominados "Clasificación de Carreteras y Caminos" para vías reguladas por el Ministerio de Obras Públicas y Transportes.
@@ -55,17 +62,18 @@ III.2.7.4 El número de cruces transversales a la vía férrea debe ser el míni
 III.2.7.5 En los sitios en donde no se prevean calles marginales, parte del área pública a ceder a las Municipalidades se deberá ubicar a lo largo de la vía férrea con un ancho mínimo de (6) metros, como parque lineal con acceso por los extremos y en donde no se permitirá ningún tipo de construcción.
 Las construcciones en los lotes colindantes con la vía férrea, cuando no existe calle marginal, deberán guardar un retiro de construcción de 3 m sobre esa colindancia.
 III.2.7.6 Los planos de urbanización o de fraccionamiento en terrenos atravesados o colindantes con vía férrea, deberán contar con la aprobación del MOPT.
-III.2.8 Aceras:
-La construcción de aceras se exigirá como parte de las obras de urbanización cuando se vayan a construir viviendas simultáneamente; cuando no se contempla esto, sólo se exigirá en los desarrollos frente a las calles primarias. En los otros casos, la construcción de aceras podrá diferirse hasta la realización de obras sobre cada lote en particular, a criterio municipal. No obstante, la previsión de éstas mantendrá una debida relación con las cunetas de drenaje pluvial y las rasantes del pavimento. El ancho mínimo de aceras será de 1,50 m en calles de 14 m de derecho de vía y de 1,20 en calles de 11 m de derecho de vía. Para usos comerciales se podrá exigir un ancho mayor de acera a criterio del INVU y la Municipalidad.
+III.2.8 Aceras: La construcción de aceras se exigirá como parte de las obras de urbanización cuando se. vayan a construir viviendas simultáneamente; cuando no ¿e contempla esto, se exigirá en los desarrollos frente a las calles primarias. En los otros casos la construcción de aceras podrá diferirse hasta la realización de obras sobre cada lote en particular, a criterio municipal. No obstante, la previsión de estas mantendrá una debida relación con las cunetas de drenaje pluvial y las rasantes del pavimento. Para usos comerciales se podrá exigir un ancho de acera mayor al fijado en este Reglamento, a criterio del INVU y la Municipalidad.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.2.8.1 El acabado de las aceras será antideslizante.
 III. 2.8.2 No se permitirán gradas en las aceras, salvo en las vías peatonales.
 III.2.8.3 La pendiente en el sentido transversal tendrá como máximo el 3 % y como mínimo el 2 %.
 III.2.8.4 En el caso de acceso vehicular a los predios, el desnivel debe salvarse con rampas construidas en la franja verde. Cuando esta no exista, la rampa se deberá resolver en una longitud máxima de cincuenta centímetros (50 cm.). Los desniveles que se generan en los costados también deberán resolverse con rampas de pendiente no mayor en un 30% de la que tiene la acera.
 III.2.9 Franjas verdes:
-III.2.9.1 Las franjas verdes intermedias entre la calzada y la acera, deberán existir en toda urbanización, con la correspondiente arborización utilizando especies de árboles o arbustos que por sus características de crecimiento no interfieran con el buen funcionamiento de las obras de infraestructura; dichas franjas serán interrumpidas en las esquinas de modo que la acera quede construida desde el límite de propiedad hasta el cordón.
+III.2.9.1 Las franjas verdes intermedias entre la calzada y la acera, tendrán arborización utilizando especies de árboles o arbustos que por sus características de crecimiento no interfieran con el buen funcionamiento de las obras de infraestructura; dichas franjas serán interrumpidas en las esquinas de modo que la acera quede construida desde el límite de propiedad hasta el cordón.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.2.9.2 En caso que los urbanizadores construyan las aceras, las franjas verdes podrán sustituirse por jardineras, cuyo diseño debe ser aprobado por el INVU y la Municipalidad.
-III.2.9.2.1 El ancho mínimo de las franjas verdes será de 0,90 m. para calles de 11 m. y de 1,00 m. para calles de 14 m. de derecho de vía; en el caso de calles secundarias y terciarias, a criterio del INVU y la Municipalidad, las franjas verdes podrán ampliarse reduciéndose la calzada en lo correspondiente, según se indica en el punto II.6.3 y II.6.4.
-Cuando las franjas verdes no sean iguales en ambos lados de la calzada, la franja más angosta deberá colocarse en el lado en donde se ubiquen las líneas eléctricas.
+III.2.9.2.1 Cuando las franjas verdes no sean iguales en ambos lados de la calzada, la franja más angosta deberá colocarse en el lado en donde se ubiquen las líneas eléctricas.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986, el cual eliminó el párrafo 1°)
 III.2.9.2.2 Las cunetas tendrán un diseño tal que permitan el acceso de vehículos al área no pavimentada de la calle (espaldón) para su eventual utilización como estacionamiento.
 III. 2.10 Ochavos:
 En todo cruce de calles se recortarán las esquinas en el límite de propiedad, mediante un ochavo de dos metros cincuenta centímetros (2,50) por cada lado. En el caso de preferirse una curva, ésta deberá estar inscrita dentro de las líneas de propiedad y el ochavo.
@@ -85,44 +93,44 @@ III.3.1 Amanzanamiento:
 El tamaño y tipo de las manzanas o bloques de lotes dependerá del desarrollo urbano circundante y de las condiciones existentes de la zona, adaptadas a la forma y cabida de parcelas y a la provisión de espacios públicos, estacionamientos, accesos y otras facilidades conexas.
 III.3.2 Lotificación:
 III.3.2.1 El área, el frente y la forma de los lotes se ajustarán a los requisitos de zonificación y en ausencia de éstos, a los siguientes:
-ZONA | ÁREA MÍNIMA | FRENTE MÍNIMO
-Con servicio de cloaca | Vivienda progresiva. | 60 a 120 m2 | — — —
-| Urbanización | 96 m2 | 6 m.
-Sin servicio de cloaca. | Vivienda progresiva. | 120 a 240 m2 | — — —
-| Urbanización. | 150 m2 | 8 m.
-III.3.2.2 El área arriba indicada es la mínima pero ésta deberá estar apoyada en pruebas de filtración del suelo que deberán efectuarse previamente al diseño. Si estas pruebas indican la necesidad de un lote mayor este será el mínimo aplicable. El área máxima se aplicará a criterio del INVU conforme a las posibilidades de los servicios urbanos que permitan incrementar la densidad, reservándose el INVU el derecho a rechazar proyectos de baja densidad cuando considere que no son convenientes.
+Zona | Área mínima | | Frente mínimo
+Con servicio de cloaca: | 1 nivel | 72 m2 | 6 metros
+| 2 niveles | 60 m2 | 4 metros
+| urbanización | 90 m2 | 6 metros
+|
+Sin servicio de cloaca: | Tanto en urbanización como en conjuntos habitacionales, los frentes serán los mismos que los establecidos para lotes con servicio de cloaca. El área se determinará por la prueba de infiltración.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+III.3.2.2 Frente a curvas y rotondas, el frente podrá ser de 3,50 m siempre que el área sea la mínima establecida.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.3.2.3 Las pruebas de filtración deberán efectuarse (según especificaciones del Ministerio de Salud) por cada 5000 m2. Los resultados se deben reportar en función del tiempo que tarda en bajar el nivel de agua 2,5 cm. en condiciones saturadas del terreno en cada hueco (prueba).
-III.3.2.4 Las pruebas de filtración se harán conjuntamente con los estudios preliminares y su resultado será enviado a la Dirección de Urbanismo del INVU. En caso que se alteren sustancialmente las condiciones naturales del terreno por razones de topografía u otros, se requerirá una nueva prueba de filtración para los niveles finales. La Dirección de Urbanismo y el Ministerio de Salud se reservan la facultad de modificar el área mínima o la norma de diseño si las pruebas así lo exigieran.
-III.3.2.5 El fondo del lote no será mayor de siete veces el frente. Los lotes esquineros con frente menor a los diez metros (10 m.) tendrán un frente mayor a los demás en un tanto igual al del antejardín mínimo exigido en la zona.
-En lotes para uso agrícola el fondo del lote no será mayor de diez veces el frente.
-(Así ampliado por acuerdo de Junta Directiva, en su sesión N° 3522 de 9 de abril de 1984, el cual agregó el último párrafo)
-III.3.2.6 En los lotes que enfrentan a una calle en curva, su frente reglamentario será medido sobre la línea de construcción y no sobre la de propiedad.
+III.3.2.4 Las pruebas de infiltración se harán conjuntamente con los estudios preliminares y su resultado será enviado a la Institución u oficina encargada en la zona. En casos de que se alteren sustancialmente las condiciones naturales del terreno por razones de topografía u otros, se requerirá una nueva prueba de filtración para los niveles finales.
+La Dirección de Urbanismo y el Ministerio de Salud se reservan la facultad de modificar el área mínima o la norma de diseño si las pruebas así lo exigieran.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+III.3.2.5 El fondo del lote no será mayor de siete veces el frente. Los lotes esquineros con frente menor de 6 m tendrán un frente mayor a los demás en un tanto igual al del antejardín mínimo exigido en la zona.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+III.3.2.6 Derogado
+(Así derogado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.3.2.7 Hasta donde sea posible, los linderos laterales de los lotes serán perpendiculares a la línea de cordón y caño.
 III.3.2.8 Para el diseño de los drenajes de aguas negras se aplicarán las normas establecidas por el Ministerio de Salud en caso de tanque séptico y de A y A para caso de colectores.
-III.3.2.9 El tamaño de los lotes se ajustará a las siguientes normas según la pendiente que tenga el terreno:
-% de gradiente | % cobertura | Tamaño mínimo m2 *
-0 - 10 | 70 | 96 |
-10 - 15 | 70 | 210 |
-15 - 20 | 60 | 280 |
-20 - 25 | 50 | 420 |
-25 - 30 | 40 | 700 |
-30 - 35 | 30 | 1400 |
-35 - 50 | 20 | 3500 |
-50 - 60 | 10 | 10000 |
-Este tamaño mínimo se aplicará para terrenos donde haya cloaca en funcionamiento. Para el caso de lotes cuyo drenaje de aguas negras deba solucionarse con tanque séptico, el tamaño mínimo deberá incrementarse en 50 m2 hasta los terrenos con 25% de pendiente; de aquí en adelante, permanece constante.
-En pendientes superiores al 60% el área mínima será de 5 ha., salvo que se acojan al régimen forestal, en cuyo caso el MAG definirá el tamaño mínimo aceptable.
-III.3.2.10 En terrenos en que se vayan a hacer terrazas deberá presentarse, a nivel de proyecto lo siguiente: planos de movimiento de tierra, indicándose áreas de préstamo, corte y relleno, taludes, muros de retención, alteración a los escurrimientos naturales y en terrenos con pendientes mayores al 20%, estudio que demuestre la estabilidad del terreno.
-III.3.2.11 En lotes de hasta 200 metros cuadrados cuando no hay cloaca y hasta 100 m2 si la hay, solamente se permitirá una unidad habitacional.
+III.3.2.9 En los terrenos con pendientes mayores del 15% deberá presentarse un estudio preliminar de suelos y terraceo, para determinar el tamaño de los lotes y sus taludes. En terrenos con pendientes mayores del 25%, deberá presentar estudio de estabilidad del terreno.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+III.3.2.10 Derogado
+(Así derogado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+III.3.2.11 Derogado
+(Así derogado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.3.2.12 En lotes de mayor tamaño se podrán construir más unidades de vivienda por lote, ya sean unifamiliares o multifamiliares.
-En este caso privarán las densidades que fije la zonificación en su defecto se aplicará la siguiente norma:
-- Cobertura máxima 60%.
-- Área de piso 180% del tamaño del lote.
-- El número de unidades se calculará considerando el siguiente cuadro:
-UNIDADES DE VIVIENDA POR LOTE (Área de acuerdo a dormitorios) Resultan de la división del área del lote entre el área permisible según el cuadro;
-N° DE DORMITORIOS | SIN CLOACA * | CON CLOACA | CONJ. HABITACIONALES
-3 | 150 | 96 | 60
-2 | 135 | 80 | 45
-1 | 120 | 65 | 30
+En este caso privarán las densidades que fije la zonificación y en su defecto se aplicará la siguiente norma:
+— Cobertura máxima: 60%
+— Área de piso: 180% del tamaño del lote.
+— El número de unidades se calculará considerando el siguiente cuadro:
+UNIDADES DE VIVIENDA POR LOTE (Área de acuerdo con dormitorios) Resultan de la división del área del lote entre el área permisible según el cuadro.
+No de dormitorios | sin cloaca * | con cloaca | Conjuntos habitacionales
+3 | | 90 | 60
+2 | | 75 | 45
+1 | | 60 | 30
+_______ * Prueba de infiltración. | | |
+Las regulaciones en cuanto a acueductos, alcantarillados sanitarios y drenaje pluvial se regirán por las normas que fije el Instituto Costarricense de Acueductos y Alcantarillados.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.3.3 Áreas Industriales: Cuando no exista zonificación industrial se aplicará la siguiente norma: Las parcelas no podrán tener un frente menor de catorce (14) metros, ni un área menor a cuatrocientos veinte (420 metros cuadrados).
 III.3.4 Áreas Comerciales: Los lotes para comercio podrán ser de dimensiones menores a las establecidas para áreas residenciales, siempre y cuando formen parte de un conjunto o centro comercial debidamente planeado para el cual se provean facilidades de estacionamiento público y de carga o descarga de mercaderías fuera de las calles.
 * Estas áreas serán aplicables siempre y cuando la permeabilidad del terreno lo permita.
@@ -132,15 +140,15 @@ III.3.5.2 Usos Mixtos : Un proyecto de urbanización puede incluir a la vez áre
 III. 3.6 Áreas Públicas :
 La Ley de Planificación Urbana, al obligar a la cesión de áreas públicas, prevé que en las urbanizaciones existan los terrenos necesarios para la instalación de edificios comunales y áreas recreativas.
 El propósito de estas normas es el de revalorar dichas áreas y exigir su dotación en relación con las necesidades reales para una población creciente cuyos servicios no son previstos.
-III.3.6.1 Áreas a ceder : El urbanizador cederá gratuitamente, como mínimo, para áreas verdes y equipamiento comunal el porcentaje del "área urbanizable",* en relación de las parcelas habilitadas para uso urbano, del terreno a fraccionar o urbanizar, que a continuación se indica :
-III.3.6.1.1 Fraccionamiento 10°/o
-III.3.6.1.2 Urbanización :
-Residencial | 15 %
-Comercial | 10 %
-Industrial | 10 %
-Turístico | 20 %
-Multifamiliares | 20 %
-En el caso de fraccionamientos y urbanizaciones residenciales fuera de distritos urbanos, el INVU y la Municipalidad en forma conjunta, podrán reducir este porcentaje hasta el 5 °/o en el primer caso y el 10 °/o en el segundo. En proyectos turísticos cuando los terrenos comprenden zona marítimo terrestre, por lo menos la mitad del área a ceder deberá colindar con la zona de atracción turística, a juicio del I.C.T. y en no menos de un décimo (1/10 de la longitud de dicha colindancia).
+III.3.6.1 Áreas a ceder : El urbanizador o fraccionador cederá gratuitamente para áreas verdes y equipamiento comunal el siguiente porcentaje de área urbanizable:
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+III.3.6.1.1 Urbanización o fraccionamiento residencial: El criterio a utilizar es el de densidad habitacional debiendo cederse (20) metros cuadrados por lote o 25 m unidad de vivienda. Esta cantidad en porcentaje no podrá ser menor de un 5% ni mayor de un 20% del área urbanizable, salvo en viviendas de interés social en cuyo caso el mínimo será del 10%.
+— Comercial 10%
+— Industrial 10%
+— Turismo 15%
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+III.3.6.1.2 Derogado
+(Así derogado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.3.6.1.3 Del porcentaje citado, en los desarrollos industriales, comerciales y en los residenciales de baja densidad (menos de 80 hab./ha), se ubicará necesariamente en el sitio de la urbanización un tercio y podrán negociarse los otros dos tercios con el municipio, para que éste invierta el dinero en la compra de terrenos para uso comunal en otros sitios, todo de acuerdo con el artículo 41 de la Ley de Planificación Urbana.
 En estos casos, se deberá contar con el avalúo de Tributación Directa y recabar la autorización de la negociación de la Dirección de Urbanismo.
 El dinero que se obtenga deberá invertirse en mejorar áreas comunales existentes o en la compra de nuevos terrenos para este uso donde se hayan reservado o se consideren necesarios.
@@ -195,12 +203,14 @@ La prioridad o el uso puede variarse al aprobarse los planos, de acuerdo a las c
 III.3.6.3.3 Fondo Municipal para el Equipamiento Urbano : '
 Cuando el urbanizador haya pagado en efectivo el área pública para servicios, el dinero deberá ser empleado por la Municipalidad únicamente para la compra y habilitación de terrenos reservados para los usos definidos en el artículo III.3.6.3. Las reservas de terreno para uso público deberán ubicarse de preferencia alrededor de las escuelas o colegios propuestos o existentes, siempre y cuando se de cumplimiento a las normas de distancia para recorridos peatonales. Estas zonas se denominan "unidades integrales de servicio". Las áreas que se deben reservar para cada uso se calcularán con base en las tablas anteriores y la densidad prevista en el área.
 III.3.7 Protección de ríos :
-III.3.7.1 En el caso que se pretenda urbanizar fincas atravesadas por ríos o quebradas o que colinden con éstos, deberá proveerse una franja de no construcción con un ancho mínimo de 10 m a lo largo del lecho máximo y medidos a cada lado del mismo, en la proyección horizontal. Esta franja será entregada al uso público en exceso de la indicada en el artículo III.3.6.3, para efectos de limpieza, rectificación de cauces, bosque urbano, colocación de infraestructura de aguas y similares. Sin embargo, cuando esté integrado plenamente al área de parque o que siendo de pendiente no mayor del 20% enfrente a una calle y no a fondos de lote, se podrá computar como área pública.
-La cesión de área para uso público se aplicará siempre que no exceda el 20% que fija la Ley de Planificación Urbana.
+III.3.7.1 En el caso de que se pretenda urbanizar fincas atravesadas por ríos o quebradas o que colinden con estos, deberá proveerse una franja de no construcción con un ancho mínimo de 10 m a lo largo del lecho máximo y medidos a cada lado del mismo, en la proyección horizontal. Esta franja será entregada al uso público en exceso de la indicada en el artículo III.3.6.3, para efectos de limpieza, rectificación de cauces, bosque urbano, colocación de infraestructura de aguas similares. Sin embargo, cuando esté integrado plenamente el área de parque o que siendo de pendiente no mayor del 25% en frente a una calle y no a fondos del lote, se podrá computar como área pública.
+La cesión del área para uso público se aplicará siempre que no exceda el 20% que fija la Ley de Planificación Urbana.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.3.7.2 Para acequias y cauces de agua intermitentes, se considerarán 5 m en lugar de 10 m.
 III.3.7.3 En distritos urbanos, en el caso de que una vez cumplido el párrafo anterior queden franjas no construibles a orillas de cauces de agua, éstas deberán conformar una sola finca entre calles, no aptas para la construcción y deben tener carácter de protección al cauce.
-III.3.7.4 En el caso de cañones de río, los terrenos aledaños al cauce que tengan más del 20% de pendiente no podrán urbanizarse para efectos de la cesión de áreas públicas estos terrenos no se computarán por no formar parte del área urbanizable. En dichas laderas no se podrán realizar movimientos de tierra que alteren la topografía natural del terreno, esto implica prohibición de terraceo y depósito o extracción de materiales.
-En casos muy calificados el INVU y la Municipalidad podrán autorizar algunas de estas obras cuando se demuestre que no producirán deterioro a la ecología local.
+III.3.7.4 En el caso de cañones de río, los terrenos aledaños al cauce que tengan más del 25% de pendiente no podrán urbanizarse, para efectos de la cesión de áreas públicas estos terrenos no se computarán por no formar parte del área urbanizable. En dichas laderas no se podrán realizar movimientos de tierra que alteren la topografía natural de terreno, esto implica prohibición de terraceo y depósito o extracción de materiales.
+En casos muy calificados el INVU y la municipalidad podrán autorizar algunas de estas obras cuando se demuestre que no producirán deterioro a la ecología local.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.3.7.5 En el caso de terrenos con pendientes de más del 20 °/o o con laderas a orillas de cauces de agua, se deberán presentar, acompañando al anteproyecto de la urbanización, estudios geológicos de la zona a urbanizar que demuestren que los terrenos son aptos para construir.
 III.3.7.6 En caso que una corriente de agua permanente nazca en un área a urbanizar, el ojo de agua deberá protegerse en un radio de 50 metros como mínimo, zona en que no se podrá construir ninguna obra, salvo las de aprovechamiento del agua. Esta área podrá entregarse dentro del porcentaje a ceder al Municipio para uso público y en este caso deberá destinarse a parque.
 III.3.8 Entubamiento de ríos :
