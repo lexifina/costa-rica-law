@@ -1,0 +1,1 @@
+Artículo 2°.- Dicho empréstito será garantizado con las rentas municipales, particularmente la que por concepto al impuesto ad-valorem corresponde a esta Municipalidad, y será pagado en sumas anuales de noventa mil colones (¢90,000.00), calculando abono e intereses.
