@@ -14,3 +14,4 @@ Reglamento de karaokes, discomóviles, música en vivo y similares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-14 | la propia norma |
+| 2 | 2004-02-25 | Reglamento municipal 8 (2004-02-25) |
