@@ -1,0 +1,1 @@
+Artículo 2°-Previamente a la venta de los inmuebles indicados, podrán éstos ser hipotecados, a fin de ir adquiriendo los terrenos necesarios para edificar la nueva Cárcel de Mujeres; a este fin se destinará el producto íntegro de la hipoteca y de la venta posterior.

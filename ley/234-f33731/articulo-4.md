@@ -1,0 +1,1 @@
+Artículo 4°-El o los nuevos inmuebles que se pretenden adquirir para la ubicación del Cárcel de El Buen Pastor, deberán ofrecer todas las conveniencias necesarias al desenvolvimiento de la institución, de acuerdo con lo que informe el Director General de Prisiones y Madre Superiora de El Buen Pastor.
