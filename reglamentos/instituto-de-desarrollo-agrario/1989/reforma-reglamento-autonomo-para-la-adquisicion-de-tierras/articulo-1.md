@@ -4,8 +4,8 @@ ADQUISICION DE TIERRAS POR EL INSTITUTO DE DESARROLLO AGRARIO
 a) Adicionar al Artículo 1° lo siguiente:
 "El Instituto no comprará, con los inmuebles que adquiera, maquinaria, equipo, semovientes, construcciones e instalaciones. Por excepción se adquirirán dichos activos cuando el Departamento de Estudios Básicos así lo recomendare y la Junta Directiva lo acuerde.
 Otra excepción la constituirá la circunstancia de que las construcciones e instalaciones ubicadas en el inmueble sean de muy difícil o imposible separación del mismo, de suerte que irremediablemente lo accesorio, siga el destino de lo principal".
-b) "Propuesta de modificación al Artículo 27, Punto A.3 del actual Reglamento de Compra de Fincas" (hoja adjunta).
-c) "Propuesta de modificación al Artículo 28, Punto B.1 del actual Manual de Compra de Tierras" (hoja adjunta).
+(*)b) "Propuesta de modificación al Artículo 27, Punto A.3 del actual Reglamento de Compra de Fincas" (hoja adjunta).
+(*)c) "Propuesta de modificación al Artículo 28, Punto B.1 del actual Manual de Compra de Tierras" (hoja adjunta).
 PROPUESTA DE MODIFICACION AL ARTICULO 27, PUNTO A.3
 DEL ACTUAL REGLAMENTO DE COMPRA DE FINCA
 (En Has./Región)
@@ -31,3 +31,4 @@ Tierra Clase VI 5
 Tierra Clase VII 2
 Tierra Clase VIII y más 0
 San José, febrero de 1989.
+(*) (Así anulado y dejado sin ningún valor ni efecto mediante sesión N° 66 del 22 de agosto de 1989)

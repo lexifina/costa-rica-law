@@ -14,3 +14,4 @@ Reforma Reglamento Autónomo para la Adquisición de Tierras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-02-23 | la propia norma |
+| 2 | 1989-08-22 | Reglamento 66 (1989-08-22) |
