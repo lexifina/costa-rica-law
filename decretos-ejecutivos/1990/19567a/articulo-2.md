@@ -1,0 +1,13 @@
+ARTICULO II
+Ambito de Cooperación
+Las partes tomarán las medidas de cooperación necesarias, para dar pleno efecto, entre ambas y de la manera más eficaz, a las obligaciones que asuman conforme a la Convención, y procurarán llevar a cabo dicha cooperación, en la medida de lo posible, conforme a los objetivos y recomendaciones del Plan, La asignación y aplicación de recursos humanos, financieros y materiales, necesarios para la ejecución de programas concretos en materia de combate de narcotráfico y a la farmacodependencia, cuyas acciones se instrumentarán en un marco de corresponsabilidad, se definirán en cada caso por las partes, en la medida de sus posibilidades presupuestales, mediante un Memorándum de Entendimiento, celebrado de conformidad con lo dispuesto por el artículo V del presente Acuerdo. Con apego a lo dispuesto por el artículo I, la cooperación a que se refiere el presente Acuerdo procurará instrumentar programas, en cada uno de los Estados, destinados a:
+a) Reducir la demanda ilícita de estupefacientes y sustancias psicotrópicas, mediante actividades de prevención, tratamiento y conciencia pública;
+b) Erradicar los cultivos ilícitos de estupefacientes y, en caso, establece programas de sustitución para el desarrollo de cultivos lícitos;
+c) Realizar actividades tendientes a frenar y perseguir el desarrollo de actividades relacionadas con el narcotráfico y la farmacodependencia;
+d) Identificar y destruir laboratorios y demás instalaciones en donde se proceda a la elaboración ilícita de estupefacientes y sustancias psicotrópicas;
+e) Reglamentar la producción, la importación, la exportación, el almacenamiento, la distribución y la venta de insumos, productos químicos, solventes y demás procursores químicos, cuya utilización se desvía a la elaboración ilícita de estupefacientes y sustancias psicotrópicas;
+f) Establecer sistemas de intercambio de información en materia de combate al narcotráfico y a la farmacodependencia, con absoluto respecto a la competencia de las autoridades nacionales;
+g) Fortalecer las acciones de combate al narcotráfico y a la farmacodependencia, mediante la asignación y aplicación de mayores recursos humanos, financieros y materiales, considerando las posibilidades presupuestales de cada una de la Partes;
+h) Elaborar nuevos instrumentos legales que las Partes consideren convenientes para combatir, con mayor eficacia, el narcotráfico y la farmacodependencia;
+i) En general, todas aquellas actividades que se consideren pertinentes, para alcanzar una mejor cooperación entre las Partes;
+j) Facilitar el decomiso de los productos derivados del narcotráfico, acordando en cada caso la manera en que ha de disponerse de dichos bienes de conformidad con el decreto interno de las Partes.

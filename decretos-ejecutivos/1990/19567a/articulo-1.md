@@ -1,0 +1,14 @@
+DECRETO
+N° 19567
+ARTÍCULO 1°.-Promulgar y tener como vigente, para los efectos internos e internacionales correspondientes, el acuerdo entre Costa Rica y los Estados Unidos Mexicanos sobre Cooperación para Combatir el Narcotráfico y la Farmacodependencia, firmado el día 13 del mes de octubre de 1989, cuyo texto es el que se expone seguidamente:
+ACUERDO ENTRE COSTA RICA Y LOS ESTADOS UNIDOS MEXICANOS SOBRE COOPERACION PARA COMBATIR EL NARCOTRAFICO Y LA FARMACODEPENDENCIA
+Costa Rica y los Estados Unidos Mexicanos (las Partes),
+CONSCIENTES de la necesidad de proteger la vida y la salud de sus respectivos pueblos, de los graves efectos del narcotráfico y la farmacodependencia, ACEPTANDO que estas conductas deben atacarse en forma integral, bajo cuatro grande rubros: prevención, y reducción de la demanda ilícita de estupefacientes y sustancias psicotrópicas, control de oferta, supresión del tráfico ilícito, tratamiento y, rehabilitación.
+RECONOCIENDO que los distintos aspectos del narcotráfico y la farmacodependencia amenazan la seguridad y los intereses esenciales de cada una de las partes, RESUELTOS a brindarse mutuamente la cooperación necesaria para combatir efectivamente el narcotráfico y la farmacodependencia dadas sus características de fenómenos de naturaleza y alcance internacionales.
+ALENTADOS por el espíritu de las recomendaciones contenidas en el Plan Amplio y Multidisciplinario de Actividades Futuras en Materia de Fiscalización del Uso Indebido de Drogas (El Plan), adoptado en Viena, Austria, el 26 de junio de 1987 y ANIMADOS por el objetivo de que la cooperación a la que se refiere el presente Acuerdo complemente la que ambas partes se brindarán en cumplimiento de las obligaciones internacionales que asumen conforme a la Convención de las Naciones Unidas contra el Tráfico Ilícito de Estupefacientes y Sustancias Psicotrópicas (La Convención), adoptado en Viena, Austria, el 20 de diciembre de 1988,
+Han acordado lo siguiente:
+ARTICULO I
+Alcance del Acuerdo
+1°.-El propósito del presente Acuerdo es promover la cooperación entre las Partes a fin de que puedan combatir con mayor eficacia el narcotráfico y la farmacodependencia, fenómenos que trascienden las fronteras de ambas Partes. Las Partes adoptarán las medidas necesarias en el cumplimiento de la obligaciones que hayan contraído en virtud del presente Acuerdo, comprendidas las de orden legislativo y administrativo, de conformidad con las disposiciones fundamentales de sus respectivos ordenamientos jurídicos internos.
+2°.-Las Partes cumplirán sus obligaciones derivadas del presente Acuerdo conforme con los principios de autodeterminación, no intervención en asuntos internos, igualdad jurídica y respecto a la integridad territorial de los Estados.
+3°.-Una Parte no ejercerá en el territorio de la otra parte, competencias ni funciones que correspondan a las autoridades de esa otra Parte por su derecho interno y soberanía.
