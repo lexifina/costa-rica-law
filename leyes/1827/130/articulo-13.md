@@ -1,0 +1,1 @@
+Art.13.- Las Municipalidades a consecuencia harán los cobros por terceras partes cada dos meses, haciendo el entero en la Tesorería General, donde, percibiendo el recibo correspondiente, y concluídos los pagos, se librará por la misma el documento de seguridad al sujeto prestamista con referencia al art siguiente.

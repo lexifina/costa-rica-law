@@ -1,0 +1,1 @@
+Art 11°.- Si alguno se encontrase agraviado por el exceso en la contribución, ocurra dentro el preciso término de ocho días a la misma Comisión para que lo enmiende, y entonces ésta, pareciéndole justo el reclamo, repartirá en otros aquel exceso
