@@ -1,24 +1,14 @@
 (*)TITULO VI
 Disposiciones sobre la reserva de liquidez
 (*)(Así adicionado este título en sesión N° 4931 del 24 de octubre de 1997)
-(*) A. Deberán mantener una reserva de liquidez del 10% de la totalidad de sus captaciones de recursos (tanto en moneda nacional como en moneda extranjera), las siguientes entidades:
-1. Las asociaciones solidanstas.
+(*) A. Deberán mantener una reserva de liquidez del 15% de la totalidad de sus captaciones de recursos (tanto en moneda nacional como en moneda extranjera), las siguientes entidades:
+1. Las asociaciones solidaristas.
 2. Las cooperativas de ahorro y crédito que realizan operaciones financieras exclusivamente con sus asociados.
 3. Las cooperativas de ahorro y crédito que realizan operaciones con no asociados y cuyo nivel de activos netos al 31 de diciembre, 1995, era inferior a ¢200,0 millones.
-4.Las cooperativas de vivienda que realizan actividades de intermediación al amparo de la Ley del Sistema Financiero para la Vivienda y cuyo nivel de activos netos era al 31 de diciembre, 1995 inferior a ¢200,0 millones.
+4. Las cooperativas de vivienda que realizan actividades de intermediación al amparo de la Ley del Sistema Financiero para la Vivienda y cuyo nivel de activos netos era, al 31 de diciembre de 1995, inferior a ¢200,0 millones.
 Estos intermediarios se ajustarán a dicha tasa con la gradualidad que se indica a continuación:
 Fecha | Tasa
 A partir del |
-01 de diciembre, 1997 | 0,5%
-01 de enero, 1998 | 1,0%
-01 de febrero, 1998 | 1,5%
-01 de marzo, 1998 | 2,0%
-01 de abril, 1998 | 2,5%
-01 de mayo, 1998 | 3,0%
-01 de junio, 1998 | 3,5%
-01 de julio, 1998 | 4,0%
-01 de agosto, 1998 | 4,5%
-01 de setiembre, 1998 | 5,0%
 01 de octubre, 1998 | 5,5%
 01 de noviembre, 1998 | 6,0%
 01 de diciembre, 1998 | 6,5%
@@ -27,12 +17,13 @@ A partir del |
 01 de marzo, 1999 | 8,0%
 01 de abril, 1999 | 8,5%
 01 de mayo, 1999 | 9,0%
-01 de junio, 1999 | 9,5%
-01 de julio, 1999 | 10,0%
-01 de agosto, 1999 | 10,5%
-01 de setiembre, 1999 | 11,0%
-01 de octubre, 1999 | 10,0%”
-(*) (Así reformado el literal A anterior en sesión N° 4960 del 17 de junio de 1998)
+01 de junio, 1999 | 10,0%
+01 de julio, 1999 | 11,0%
+01 de agosto, 1999 | 12,0%
+01 de setiembre, 1999 | 13,0%
+01 de octubre, 1999 | 14,0%
+01 de noviembre, 1999 | 15,0%
+(*) (Así reformado el literal A anterior en sesión N° 4971 del 23 de setiembre de 1998)
 B. Las cooperativas de ahorro y crédito y las cooperativas de vivienda amparadas a la Ley del Sistema Financiero para la Vivienda, cuyos activos netos al 31 de diciembre de 1995 eran inferiores a los £200,0 millones y que lleguen a sobrepasar esa suma, serán incorporadas al control del encaje por parte del BCCR y de la SUGHF, para lo cual se observará lo acordado por el Consejo Directivo de la SUGEF mediante Artículo 21 de la Sesión 19-56, del 27 de junio de 1996.
 C. Las cooperativas de ahorro y crédito cuyos activos netos, al 31 de diciembre de 1996, fueron iguales o superiores a los 0200,0 millones deberán, para quedar eximidas del requisito de encaje, presentar semestralmente ante la SUGEF los atestados correspondientes de que no han realizado operaciones financieras con no asociados.
 D. Las reservas de liquidez en moneda nacional y en moneda extranjera deben calcularse por separado y, los respectivos fondos mantenerse en la moneda correspondiente.
