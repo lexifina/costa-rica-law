@@ -14,3 +14,4 @@ Modifica los límites de gasto presupuestario y efectivo del 2002, para el Conse
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-01 | la propia norma |
+| 2 | 2002-03-12 | Decreto Ejecutivo 30272 (2002-03-12) |

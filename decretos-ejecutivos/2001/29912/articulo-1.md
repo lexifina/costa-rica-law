@@ -8,3 +8,4 @@ Considerando:
 4°—Que para poder brindar los recursos y mecanismos necesarios en el desarrollo científico y tecnológico de las pequeñas y medianas empresas del país, es necesario ampliar al CONICIT los limites de gasto Presupuestario y Efectivo del 2002. Por tanto,
 decretan:
 Articulo 1°—Modifícanse para el Consejo Nacional para Investigaciones Científicas y Tecnológicas, los límites de gasto presupuestario y efectivo para el año 2002, establecidos en el Decreto Ejecutivo No 29511-H, de manera que el gasto presupuestario y el gasto efectivo total no excedan la suma de 1161.6 millones, en ese período.
+(Modificado el límite de gasto presupuestario y efectivo parar el 2002 del Consejo Nacional para Investigaciones Científicas y Tecnológicas, por el Decreto Ejecutivo N° 30272 de 12 de marzo del 2002)
