@@ -139,7 +139,8 @@ a) Promover la adquisición de buenos hábitos y actitudes en el
 educando;
 b) Atender al desarrollo de su actividad sensomotora, y
 c) Favorecer su adaptación escolar y social.
-Artículo 17.- Los Estados centroamericanos convienen en intensificar, de acuerdo con sus posibilidades, la educación pre-primaria.
+Artículo 17.- Los Estados centroamericanos convienen en intensificar,
+de acuerdo con sus posibilidades, la educación pre-primaria
 CAPITULO III
 DE LA EDUCACION PRIMARIA
 Principios:
@@ -682,8 +683,8 @@ deberá asegurar:
 3.- Una preparación filosófica y pedagógica reforzada a través de
 una práctica docente amplia y sistematizada.
 4.- El conocimiento objetivo de la realidad nacional en sus más
-importantes aspectos, sin perder de vista los propósitos y
-factores de integración centroamericana.
+importantes aspectos, sin perder de vista los propósitos y factores de
+integración centroamericana.
 Artículo 67.- En la formación de sus profesores de enseñanza normal,
 los Estados signatarios se prestarán mutua cooperación y utilizarán en
 común, mediante un sistema de becas, las instituciones formadoras ya
@@ -757,10 +758,9 @@ más países de Centroamérica, la concederá el Estado donde más tiempo haya
 trabajado el maestro, sumándole para ese efecto, los años servidos en los
 otros Estados.
 Artículo 74.- Los Estados signatarios se comprometen a que, cuando
-un maestro goce de beca dentro o fuera del país, con fines de superación en la
+un maestro goce de beca dentro del país, con fines de superación en la
 docencia, se le computará el tiempo de duración de la beca como tiempo de
 servicio.
-(Ver Fe de Erratas en La Gaceta N° 171 de 6 de setiembre del 2001)
 Artículo 75.- Los Estados signatarios se comprometen a informarse
 mutuamente sobre las providencias que dicten en relación con la carrera
 docente; a estimular la organización gremial del profesorado, con vistas
