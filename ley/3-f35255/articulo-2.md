@@ -1,0 +1,1 @@
+Artículo 2° Designase al señor Licenciado don Luís Dávila para Presidente de la Sala Primera de Apelaciones del mismo Tribunal, en virtud de haber pasado el electo, señor Serrano, a desempeñar otras funciones.
