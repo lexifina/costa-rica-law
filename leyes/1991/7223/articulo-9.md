@@ -1,7 +1,8 @@
 ARTICULO 9
-Investigación, desarrollo, intercambio de información y conciencia pública
+Investigación, desarrollo, sensibilización del público e intercambio de información
 1.—Las Partes cooperarán, de conformidad con sus leyes, reglamentos y prácticas nacionales, teniendo en cuenta en particular las necesidades de los países en desarrollo, para fomentar, directamente y por conducto de los órganos internacionales competentes, la investigación, el desarrollo y el intercambio de información sobre:
-a) Las tecnologías más idóneas para mejorar el almacenamiento seguro, la recuperación, el reciclado o la destrucción de las sustancias controladas o reducir emisiones de las sustancias controladas.
+a) Las tecnologías más idóneas para mejorar el confinamiento, la recuperación, el reciclado o la destrucción de las sustancias controladas o reducir de cualquier otra manera las emisiones de estas
+(Así reformado por el artículo 1° punto S de la Ley N° 7808 del 11 de junio de 1998 y por el artículo 2° anexo III punto AA, de la Ley N° 7808 del 11 de junio de 1998)
 b) Posibles alternativas de las sustancias controladas, de los productos que contengan estas sustancias y los manufacturados con ellas;
 c) Costes y ventajas de las correspondientes estrategias de control.
 2.—Las Partes,, a título individual o colectivo o por conducto de los órganos internacionales competentes, cooperarán para alertar la conciencia pública ante los efectos que las emisiones de las sustancias controladas y de otras sustancias agotadoras de la capa de ozono tienen para el medio ambiente.
