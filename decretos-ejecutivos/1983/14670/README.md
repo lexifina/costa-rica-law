@@ -16,3 +16,4 @@ Reglamento para la operación de la caja chica de departamento Topográfico del 
 | 1 | 1983-07-19 | la propia norma |
 | 2 | 1987-07-29 | Decreto Ejecutivo 17674 (1987-07-29) |
 | 3 | 1990-02-13 | Decreto Ejecutivo 19494 (1990-02-13) |
+| 4 | 1999-12-21 | Decreto Ejecutivo 28583 (1999-12-21) |
