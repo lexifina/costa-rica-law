@@ -1,0 +1,1 @@
+Artículo 17.—De la convocatoria de candidatos inscritos. En el transcurso de los ocho días previos a la elección, la Junta Directiva podrá convocar a los candidatos inscritos a un foro, donde se presentarán y podrán exponer sus planes de trabajo y responder a inquietudes de los agremiados. Este foro sería moderado por miembros de la Junta Directiva y del Comité Electoral.

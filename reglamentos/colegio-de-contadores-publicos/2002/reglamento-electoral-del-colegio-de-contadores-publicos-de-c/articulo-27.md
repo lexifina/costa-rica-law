@@ -1,0 +1,1 @@
+Artículo 27.—De transcripción en libro de actas. Las actas referidas en el artículo anterior deberán transcribirse en el Libro de Actas de Junta General, labor que estará a cargo de la Secretaría de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 8º—Del aviso de apertura de inscripciones. El Comité Electoral mediante aviso en un diario de mayor circulación nacional informará a los miembros del Colegio interesados en inscribir sus candidaturas para los puestos de Junta Directiva, la fecha de apertura y cierre de inscripciones.

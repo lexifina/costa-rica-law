@@ -1,0 +1,1 @@
+Artículo 32.—Del rige del reglamento. Este reglamento deroga el aprobado por la Junta General en su Asamblea Extraordinaria 129, celebrada el 9 de octubre de 1998 (Acuerdo III) y sus modificaciones. Publíquese como corresponde.

@@ -1,0 +1,1 @@
+Artículo 13.—Postulación de un miembro de la junta directiva. Si un miembro de Junta Directiva se postula o es propuesto como candidato, deberá presentar su renuncia al cargo que ocupa en el momento de su postulación válida, en cuyo caso la Junta procederá al nombramiento del sustituto en el puesto vacante por el periodo faltante para que entren en funciones los nuevos miembros.

@@ -1,0 +1,1 @@
+Artículo 31.—Del cumplimiento del reglamento. Corresponderá al Presidente de la Junta Directiva referirse al cumplimiento del presente reglamento, en el momento mismo de declarar los candidatos inscritos.

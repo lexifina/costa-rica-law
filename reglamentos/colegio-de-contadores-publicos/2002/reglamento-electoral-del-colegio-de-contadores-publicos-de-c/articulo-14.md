@@ -1,0 +1,2 @@
+Artículo 14.—De la elección de miembros del tribunal de honor y del comité técnico consultivo. La postulación y elección de los miembros del Tribunal de Honor y del Comité Técnico Consultivo se hará en la Asamblea de Junta General Ordinaria convocada al efecto por la Junta Directiva.
+Solo podrán ser elegidos como miembros del Tribunal de Honor quienes tuvieren diez años o más de incorporados y fueren de reconocidas condiciones morales.

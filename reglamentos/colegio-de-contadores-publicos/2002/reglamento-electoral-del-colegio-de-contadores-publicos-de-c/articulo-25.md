@@ -1,0 +1,1 @@
+Artículo 25.—De la recepción de votos: La recepción de votos será ininterrumpida y se iniciará inmediatamente de abierta la Asamblea de Junta General. La recepción de votos concluirá en la hora señalada en la Agenda de Convocatoria.

@@ -1,0 +1,1 @@
+Artículo 2º—De los electores. Todos los miembros activos del Colegio que se encuentren al día en sus obligaciones de conformidad con los artículos 29 y 28 de la Ley 1038 y artículo 37 del Reglamento General, Decreto Ejecutivo 13606-E., tienen derecho a elegir y ser electos.

@@ -1,0 +1,1 @@
+Artículo 7º—De las etapas del proceso electoral. El proceso electoral tendrá las siguientes etapas: Inscripción de candidaturas a los puestos elegibles de Junta Directiva; divulgación o propaganda; preparación del material electoral; proceso de elección, escrutinio de votos y preparación de actas.
