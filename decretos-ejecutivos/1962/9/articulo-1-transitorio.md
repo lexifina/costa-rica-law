@@ -1,0 +1,2 @@
+Transitorio I.-Queda autorizada la Contraloría General de la República para presentar al Poder Ejecutivo el proyecto de reformas al Presupuesto en lo que le concierne, a fin de que éste lo someta a Asamblea Legislativa, a fin de que mismo esté de acuerdo con la organización que en este Reglamento se establece.
+Dado en la Casa Presidencial.- San José, a los veintisiete días del mes de marzo de mil novecientos sesenta y dos

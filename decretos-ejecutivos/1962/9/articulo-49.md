@@ -1,0 +1,1 @@
+Articulo 49.-EI Presupuesto, una vez aprobado definitivamente, no podrá ser reformado ni adicionado en el total o en algunas de sus partes, a no ser que en casos plenamente justificados, fuere necesario hacerlo y se obtuviera la aprobación de la Contraloría.

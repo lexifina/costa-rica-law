@@ -1,0 +1,1 @@
+Artículo 62 .-Debe examinar, revisar, fiscalizar, verificar y en general realizar actos propios de una auditoria externa que tenga por objeto establecer el cumplimiento debido de las leyes y disposiciones vigentes, la veracidad y fidelidad de las cuentas, la autenticidad de la documentación respectiva y la exactitud de las operaciones aritméticas y de contabilidad.

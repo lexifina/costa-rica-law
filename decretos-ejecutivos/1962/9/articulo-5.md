@@ -1,0 +1,1 @@
+Artículo 5°-Es de la incumbencia del Contralor, conjuntamente con el Sub Contralor, formular los proyectos de presupuesto de la institución que se remitan a la Asamblea Legislativa para los efectos del artículo 15 de su Ley Orgánica.

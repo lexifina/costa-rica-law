@@ -1,0 +1,1 @@
+Artículo 37.-El sumario administrativo se tramitará directamente por el Jefe del Departamento Legal sin perjuicio de que para la recepción de alguna prueba fuera de su oficina, pueda comisionar a uno de sus auxiliares.

@@ -1,0 +1,1 @@
+Artículo 77.-De todas las resoluciones se enviará copia a los interesados, sin perjuicio de su publicación en "La Gaceta" cuando la misma sea obligatoria, y en estos últimos casos los términos comenzarán a contar, para todos sus efectos, desde el día siguiente de la publicación referida.

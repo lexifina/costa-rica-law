@@ -1,0 +1,1 @@
+Artículo 13.-En caso de imposibilidad del Contralor y del Subcontralor para atender algún asunto interno, el Secretario General los representará y cuando ocurriere la ausencia o inhabilidad temporal y simultánea de ambos funcionarios, asumirá la jefatura de la Contraloría para efectos de disciplina.

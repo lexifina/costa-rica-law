@@ -1,0 +1,2 @@
+Artículo 74.-Todo escrito de particulares debe ser presentado en la secretaría General de la Contraloría, la que anotará en el mismo la razón de recibido con fecha y hora de presentación, y entregará al interesado un recibo en el que se hagan constar esos datos, y una relación suscinta de los documentos con que se acompañó.
+Tratándose de escritos en apelaciones, si el interesado no presenta directamente su escrito, deberá su firma venir debidamente auténticada por un abogado incorporado.

@@ -1,0 +1,1 @@
+Articulo 16.-El Secretario estudiará, dentro de los límites justificables, las dificultades de toda índole porque atraviesen los empleados, y propondrá al Contralor o al Subcontralor las posibilidades de ayuda para los mismos.

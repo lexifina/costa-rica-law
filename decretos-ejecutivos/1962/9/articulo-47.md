@@ -1,0 +1,1 @@
+Artículo 47.--En la preparación del proyecto no podrán considerarse reformas o adiciones a la organización de los servicios municipales, a no ser que hubieren sido determinados por acuerdos anteriores que estuvieren firmes.

@@ -1,0 +1,1 @@
+Artículo 2°-Los Departamentos tendrán un jefe y los sub-jefes que demanden el ejercicio de sus funciones. Podrán organizarse a su vez en sub-departamentos los cuales dependerán de los jefes de departamento.

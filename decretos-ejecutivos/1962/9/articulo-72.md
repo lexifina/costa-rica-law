@@ -1,0 +1,7 @@
+Artículo 72. -En cuanto a la inspección de obras:
+Si el Departamento de Asesoría Técnica determinara que existe algún defecto importante en cualesquiera de las obras inspeccionadas, procederá en la siguiente forma:
+a) Enviará directamente una nota con sus observaciones (con aprobación del señor Contralor) al departamento, oficina o empresa encargados de la construcción. Si las observaciones fueran atendidas, y se le comunica así a la Contraloría en un lapso no mayor de quince días, el asunto será archivado;
+b) Caso de que las observaciones anteriormente mencionadas no fueran atendidas, enviará otra comunicación escrita al jefe superior de la entidad realiza la obra. Si esta comunicación es atendida y se le comunica así a la Contraloría en un lapso no mayor de un mes, el asunto será archivado;
+c) Caso de que las dos anteriores comunicaciones no hubieran sido atendidas, la Contraloría someterá el asunto a la Asamblea Legislativa;
+d) Cuando lo considere del caso, la Contraloría puede omitir cualesquiera de los pasos anteriores y dirigirse directamente al jefe superior de la entidad que realiza la obra o a la Asamblea Legislativa;
+e) Queda facultado el Departamento de Asesoría Técnica para hacer comunicaciones verbales en los casos en que, según su criterio, los defectos observados, por su magnitud, no ameriten una comunicación escrita. En todo caso, estas comunicaciones deberán ser anotadas y debidamente archivadas.
