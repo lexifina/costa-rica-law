@@ -1,0 +1,1 @@
+Artículo 10.-Que los bailes que se efectúen en los salones establecidos y que cuenten con patente o licencia municipal de salón de baile, solamente cancelen los impuestos municipales y los del Teatro Nacional y Autores y Compositores Musicales de Costa Rica.

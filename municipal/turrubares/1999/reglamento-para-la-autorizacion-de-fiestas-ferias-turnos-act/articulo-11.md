@@ -1,0 +1,1 @@
+Artículo 11.-La Municipalidad de Turrubares cobrará e15% (cinco por ciento) sobre espectáculos públicos y de diversión, en todos los bailes, corridas de toros, novilladas, rodeos, otros espectáculos públicos y actividades de diversión. Las organizaciones podrán solicitar la respectiva exoneración del 5% de espectáculos públicos y de diversión al Concejo Municipal.

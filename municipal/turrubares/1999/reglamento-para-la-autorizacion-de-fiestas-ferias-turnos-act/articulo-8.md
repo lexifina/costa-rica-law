@@ -1,0 +1,1 @@
+Artículo 8°-Los beneficiarios de un permiso para las actividades incluidas en este reglamento, deberán presentar a la Municipalidad de Turrubares, a más tardar 15 días hábiles después de haber finalizado la actividad, un informe económico de entradas y salidas obtenido. No se tramitarán nuevas solicitudes a la agrupación que no cumpla con este requisito.
