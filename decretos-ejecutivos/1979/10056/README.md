@@ -14,3 +14,4 @@ Zonas excluidas de la Ley Titulación para Vivienda Campesina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-06-05 | la propia norma |
+| 2 | 1981-02-13 | Decreto Ejecutivo 12314 (1981-02-13) |

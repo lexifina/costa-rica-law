@@ -1,8 +1,5 @@
-Artículo 3°-No se inscribirán títulos de propiedad, extendidos de conformidad con el procedimiento establecido en la Ley de Titulación para Viviendas Campesina, sobre inmuebles ubicados en los siguientes distritos de la provincia de Puntarenas:
-1- Puntarenas (distrito 1° del cantón de Puntarenas). Se exceptúan la zona de Chacarita delimitada por Decreto Ejecutivo N° 9576-P de 26 de enero de 1979.
-2-Barranca (distrito 8° del cantón 1° Puntarenas)
-3-Espíritu Santo (distrito 1° del cantón 2° Esparza)
-4-Cortés (distrito 1° del cantón 5°, Osa)
-5-Palmar (distrito 2° del cantón 5°, Osa)
-6-Quepos (distrito 1° del cantón 6°, Aguirre)
-7-Jiménez (distrito 2° del cantón 7°, Golfito)
+Artículo 3º.- No se inscribirán títulos de propiedad extendidos de conformidad con el procedimiento establecido en la Ley de Titulación para Vivienda Campesina, sobre inmuebles ubicados en los siguientes distritos de la provincia de Puntarenas:
+1º.- Puntarenas (distrito del cantón de Puntarenas 1), se exceptúa la zona de Chacarita delimitada por Decreto Ejecutivo Nº 9576-P de 26 de enero.
+2º.- Barranca (distrito 8º del cantón I de Puntarenas).
+3º.- Espíritu Santo (distrito 1º del cantón II, Esparza).
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12314 del 13 de febrero de 1981)
