@@ -1,0 +1,1 @@
+Artículo 12.—Del Órgano Director. Corresponde al Órgano ' Director, conformado por un funcionario de la Intendencia de Entidades Comercializadoras y un Abogado de la Asesoría Jurídica, cursar el procedimiento administrativo.

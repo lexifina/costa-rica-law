@@ -1,0 +1,1 @@
+Artículo 5°. Función de la Unidad de Investigaciones. La Unidad de Investigaciones tendrá a su cargo la investigación preliminar, a cuyo efecto podrá recabar todo tipo de evidencias, indicios o pruebas, que se relacionen con los fines y propósitos del procedimiento.
