@@ -1,0 +1,1 @@
+Artículo 6°—Se ratifica en todas sus partes el "Convenio entre el Gobierno de la República Federal de Alemania sobre Ayuda Financiera", suscrito por el Ministro de Relaciones Exteriores de Costa Rica y el Embajador de la República Federal de Alemania en San José, a los nueve días del mes de febrero de mil novecientos setenta y seis.

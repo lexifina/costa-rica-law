@@ -1,0 +1,1 @@
+Artículo 4°—Se faculta al Poder Ejecutivo para que por medio de Decreto y de acuerdo con la codificación vigente, incorpore al Presupuesto Nacional los ingresos y egresos aprobados por la presente ley.
