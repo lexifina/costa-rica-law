@@ -1,0 +1,1 @@
+Artículo 7°—Independencia dé la obligación. El cumplimiento dé las obligaciones establecidas en esta resolución es independiente de las de atender los requerimientos de información individualizados que la Administración Tributaria realice.

@@ -1,0 +1,1 @@
+Artículo 9°—Sanciones. El incumplimiento de suministrar la información en los términos antes señalados, dará base para que la Administración Tributaria inicie el proceso para aplicar las sanciones establecidas en el Código de Normas y Procedimientos Tributarios.

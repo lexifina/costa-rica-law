@@ -1,0 +1,1 @@
+Artículo 5°—Especificaciones de soportes magnéticos. La especificaciones que deben cumplir los soportes magnéticos que contengan la información requerida en el formulario D-152 se establecer mediante anexo a la presente resolución.
