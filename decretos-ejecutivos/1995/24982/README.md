@@ -13,3 +13,4 @@ Crea Premio Nacional de Periodismo Pio Víquez
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-04 | la propia norma |
+| 2 | 1997-03-05 | Decreto Ejecutivo 25915 (1997-03-05) |
