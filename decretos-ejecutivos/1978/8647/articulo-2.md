@@ -1,1 +1,0 @@
-Artículo 2°-La coordinación de cada Unidad de Información, creada según el artículo anterior del presente decreto, estará bajo la responsabilidad de un Coordinador de Información, cuyo nombramiento será dado por el Ministro, Junta Directiva o Consejo de Administración según sea el caso.
