@@ -1,1 +1,2 @@
-Artículo 4°-Cuando el día 31 de agosto no fuere hábil, las actividades a que se refiere el artículo 2° anterior, se realizarán el día hábil inmediato anterior.
+Artículo 4°-El Ministerio de Educación Pública, reforzará con material didáctico las unidades de los programas de estudio vigentes, en particular los de Estudios Sociales, que se refieran directa o indirectamente al conocimiento de la historia del negro en Costa Rica, así como la contribución de la comunidad afrocostarricense a la realidad social del país.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 25698 del 09 de setiembre de 1996)

@@ -1,1 +1,2 @@
-Artículo 3°-El Ministerio de Educación Pública, incorporará en los programas de Estudios Sociales unidades destinadas al conocimiento de la historia del negro en Costa Rica, así como la contribución de este importante grupo humano a la realidad social costarricense.
+Artículo 3°-Todas las instituciones educativas, tanto oficiales como privadas, Comités de Casas de la Cultura del país, organizarán eventos para dar a conocer la cultura afrocostarricenses
+(Así reformado por el artículo 1° del decreto ejecutivo N° 25698 del 09 de setiembre de 1996)

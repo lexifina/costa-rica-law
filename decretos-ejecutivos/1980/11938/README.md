@@ -14,3 +14,4 @@ Declara el 31 de agosto de cada año como el "Día del Negro Cultura Afrocostarr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-10-24 | la propia norma |
+| 2 | 1996-09-09 | Decreto Ejecutivo 25698 (1996-09-09) |

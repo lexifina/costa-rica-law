@@ -1,1 +1,2 @@
-Artículo 2°-Todas las instituciones educativas, tanto oficiales como privadas, organizarán y desarrollarán actividades destinadas a dar a conocer la historia, la trayectoria y, en general, los valores culturales del negro costarricense.
+Artículo 2°-Los Ministerios que suscriben este decreto, desarrollarán actividades destinadas a dar a conocer, conservar y desarrollar la cultura afrocostarricense
+(Así reformado por el artículo 1° del decreto ejecutivo N° 25698 del 09 de setiembre de 1996)

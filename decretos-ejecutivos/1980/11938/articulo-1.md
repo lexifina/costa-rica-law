@@ -14,4 +14,5 @@ II .-Que es necesario promover un diálogo libre, integral, fraternal y la inter
 III.-Que es imperativo del sistema educativo costarricense establecer los mecanismos pedagógicos e institucionales que garanticen el rescate y preservación de la cultura de la población negra costarricense.
 Por tanto,
 DECRETAN:
-Artículo 1°-Declárase el día 31 de agosto de cada año como Día del Negro Costarricense.
+Artículo 1°-Declárase el 31 de agosto de cada año como el "Día del Negro Cultura Afrocostarricense”
+(Así reformado por el artículo 1° del decreto ejecutivo N° 25698 del 09 de setiembre de 1996)
