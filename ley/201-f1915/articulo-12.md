@@ -1,0 +1,1 @@
+Artículo 12.- El Poder Ejecutivo hará el nombramiento del personal de la Tesorería, escogido de ternas que presentará el Tesorero Nacional. No podrán nombrarse personas que tengan entre sí, parentesco hasta el cuarto grado inclusive.
