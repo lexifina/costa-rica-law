@@ -1,0 +1,1 @@
+Artículo 12.- El Departamento de Recursos Humanos podrá suspender el pago por concepto de zonaje, previa audiencia y defensa del servidor afectado, a aquellos funcionarios para los que se compruebe cambios en su domicilio legal y que el mismo coincida con la zona en la que presta regularmente sus servicios.

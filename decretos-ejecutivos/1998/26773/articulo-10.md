@@ -1,0 +1,1 @@
+Artículo 10.- El Departamento de Recursos Humanos será el responsable de ejecutar y velar por el fiel cumplimiento de las disposiciones de esta reglamentación, quedando todos los funcionarios del Registro Nacional obligados a observar y acatar los procedimientos que para tal efecto se dicten.

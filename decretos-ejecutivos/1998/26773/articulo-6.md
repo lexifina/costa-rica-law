@@ -1,0 +1,1 @@
+Artículo 6°- El servidor que por razones de capacitación u otro motivo se vea obligado a permanecer más de un mes fuera de su zona de trabajo y que en ese tiempo tuviera suspendido este beneficio, a su regreso, previa comunicación por escrito al Departamento de Recursos Humanos dando aviso de su reintegro a las labores, recobrará el derecho del mismo.

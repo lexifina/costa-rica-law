@@ -1,0 +1,1 @@
+Artículo 7°- Los gastos de viaje y de transporte seguirán regulándose de manera independiente al zonaje de acuerdo con las disposiciones en el Reglamento correspondiente, promulgado por la Contraloría General de la República.
