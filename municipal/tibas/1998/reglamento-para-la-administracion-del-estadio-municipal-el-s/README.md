@@ -14,3 +14,4 @@ Reglamento para la Administración del Estadio Municipal "El Sanjuaneño"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-13 | la propia norma |
+| 2 | 1999-01-26 | Reglamento municipal 50 (1999-01-26) |
