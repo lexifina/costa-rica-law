@@ -1,2 +1,2 @@
-Artículo 29.-Este reglamento rige diez días después de su publicación y deroga el Reglamento de Uso de Vehículos, aprobado mediante acuerdo Nº 2 de la sesión Nº 15 del 3 de marzo de 1988 de la Junta Directiva del Banco, y publicado en "La Gaceta" Nº 67 del jueves 7 de abril de 1988.
-Publíquese.-
+Artículo 29.-Cualquier reforma o adición de este reglamento, será aprobado por la Junta Directiva del BANHVI y requerirá para su puesta en práctica de la aprobación definitiva de la Contraloría General de la República y de su publicación en "La Gaceta".
+(Así corrida su numeración mediante sesión N° 17-93 del 25 de febrero de 1993, que lo traspasó del antiguo artículo 28 al 29 actual)
