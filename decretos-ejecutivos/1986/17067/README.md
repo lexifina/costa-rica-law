@@ -19,3 +19,4 @@ Declara emergencia nacional el funcionamiento del Sistema Aduanero Nacional y cr
 | 4 | 1987-11-18 | Decreto Ejecutivo 17887 (1987-11-18) |
 | 5 | 1987-12-28 | Decreto Ejecutivo 17929 (1987-12-28) |
 | 6 | 1988-11-30 | Decreto Ejecutivo 18672 (1988-11-30) |
+| 7 | 1989-06-13 | Decreto Ejecutivo 19045 (1989-06-13) |
