@@ -14,3 +14,4 @@ Reglamento Interno del Consejo Directivo y de la Gerencia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-05 | la propia norma |
+| 2 | 2002-03-12 | Reglamento 185 (2002-03-12) |
