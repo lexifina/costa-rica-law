@@ -1,0 +1,1 @@
+Artículo 9º—El plazo máximo para la presentación de solicitudes para el pago de servicios ambientales para el año dos mil cuatro, vence en el caso de reforestación el 15 de mayo, en protección y plantaciones establecidas el treinta de junio del dos mil cuatro.

@@ -1,0 +1,6 @@
+Artículo 3º—El monto máximo a pagar por hectárea y por árboles según sea el caso para los proyectos de los incisos c), d), e), f), g) y h) del artículo 1º de este decreto será de:
+a. Pago de servicios ambientales para protección del bosque en noventa y cinco mil ochocientos colones exactos (¢95.800), desembolsados en un período de cinco años.
+b. Pago de servicios ambientales para reforestación en doscientos cuarenta y cinco mil colones exactos (¢245.000) desembolsados en un plazo de cinco años.
+c. Pago de servicios ambientales para proyectos de reforestación integrados a sistemas agroforestales un pago por árbol de trescientos cincuenta y dos colones (¢352), por árbol, desembolsados en un plazo de tres años.
+Estos montos establecidos en los incisos a, b, c, aplican únicamente para proyectos aprobados a partir del año 2004.
+Los montos pendientes de desembolsar de años anteriores regirán según lo establecen los Decretos Ejecutivos N° 26977-MINAE para los proyectos aprobados durante 1998, el N° 27831-MINAE para los proyectos aprobados durante 1999, N° 28610-MINAE para proyectos aprobados en el 2000, N° 29394-MINAE para proyectos aprobados en el 2001, N° 30090-MINAE para proyectos aprobados en el año 2002 y 31081-MINAE para proyectos del año 2003.

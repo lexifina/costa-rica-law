@@ -1,0 +1,1 @@
+Artículo 11.—Los contratos para la ejecución de pago de servicios ambientales que se financien con los recursos autorizados en este decreto deben firmarse a más tardar el 15 de diciembre del año dos mil cuatro.
