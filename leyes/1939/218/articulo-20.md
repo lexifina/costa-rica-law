@@ -1,1 +1,3 @@
-Artículo 20.- Antes de inscribirse la asociación deberá publicarse un anuncio en el Diario Oficial que contenga un extracto de las bases que indica el artículo 7º y de quien es su representante legal. Esa publicación es asimismo de rigor siempre que ocurra la disolución facultativa, se alteren o amplíen los términos de la contratación, se modifique el nombre de la asociación o se cambie de representante.
+Artículo 20.- Las reformas parciales o totales de los estatutos deberán sufrir los mismos trámites que señala el artículo anterior y no surtirán efecto alguno respecto a terceros mientras no estén inscritos en el "Registro de Asociaciones.
+La disolución de una asociación deberá también inscribirse en el citado Registro y publicarse en el Diario Oficial.
+(Así reformado por el artículo 1° de la ley N° 6020 del 3 de enero de 1977)
