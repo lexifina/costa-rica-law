@@ -1,5 +1,9 @@
-Artículo 18.- La Junta Directiva notificará al Tribunal de Honor los
-casos de periodistas colegiados con atrasos de más de tres meses en sus
-obligaciones para con el Colegio. El atraso superior a los tres meses,
-permitirá al Tribunal de Honor suspender al colegiado en forma temporal
-mientras se pone a derecho.
+ARTICULO 18.- El Tribunal de Honor deberá oir a los afectados,
+buscar información y llamar a los que considere oportuno para rendir su
+fallo en un plazo no mayor de treinta días naturales, contado a partir de
+la fecha en que se les eleva una denuncia.
+No obstante la Junta Directiva podrá prorrogar este plazo por un
+período de quince días naturales si así lo solicitare el Tribunal de
+Honor por escrito. El fallo del Tribunal deberá estar ajustado a las
+disposiciones de la Ley Orgánica del Código de Etica y conforme con su
+propia conciencia.

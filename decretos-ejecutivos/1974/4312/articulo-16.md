@@ -1,4 +1,9 @@
-Artículo 16.- Una vez vertido el fallo, el Tribunal de Honor
-trasladará el expediente a la Junta Directiva, dentro de las cuarenta y
-ocho horas siguientes, para que ésta por medio de la fiscalía notifique
-por medio de transcripción a los interesados el texto del fallo.
+CAPITULO VII
+Del Club de Prensa
+ARTICULO 16.- Los bienes del Club de Prensa constituyen parte del
+patrimonio del Colegio. Las actividades propias del Club de Prensa
+constituyen parte de las responsabilidades del Colegio y su movimiento
+económico será registrado como proveniente de actividades sociales.
+La Junta Directiva habrirá un concurso o licitación pública con las
+especificaciones del caso para la administración del Club de Prensa, cada
+vez que sea necesario con el fin de lograr un mejor servicio.

@@ -1,10 +1,6 @@
-CAPITULO V
-De las Obligaciones
-Artículo 10.- Quienes se incorporen al Colegio, para poder ejercer la
-profesión, deben cubrir la cuota de ingreso, cumplir con el pago de las
-cuotas mensuales y con los deberes vigentes establecidos para los
-colegiados de acuerdo con la Ley Orgánica, los reglamentos y disposiciones
-internas del Colegio.
-Los estudiantes de periodismo autorizados para ejercer en forma
-temporal, deberán cubrir la cuota mensual fijada para el ejercicio del
-periodismo a los miembros del Colegio.
+ARTICULO 10.- Para poder separarse del Colegio temporal o
+definitivamente, el interesado deberá hacerlo saber por escrito a la
+Junta Directiva, para lo cual deberá estar al día en sus obligaciones
+económicas con la institución. Mientras esté separado del colegio no
+puede ejercer la profesión. Para reiniciar el ejercicio profesional, es
+necesario notificar ese propósito por escrito ante la Junta Directiva.

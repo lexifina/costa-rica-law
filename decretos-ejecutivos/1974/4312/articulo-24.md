@@ -1,9 +1,8 @@
-CAPITULO XII
-De las Credenciales
-Artículo 24.- La Junta Directiva está obligada a publicar por lo
-menos una vez al año, al menos en un periódico de circulación nacional, la
-lista completa de los miembros y los debidamente autorizados en los
-términos que señala la ley para el ejercicio temporal de la profesión, con
-el propósito de mantener informado al país de quienes pueden ejercer como
-periodistas profesionales. La publicación deberá hacerse en la primera
-semana de marzo de cada año.
+ARTICULO 24.- La Junta Directiva del Colegio deberá llevar un
+Registro completo y al días de las publicaciones comprendidas dentro del
+artículo 26 de la Ley Orgánica y velará por que se mantengan dentro de
+ese campo, sin evadir ilegalmente el campo profesional reservado para los
+miembros del Colegio. Para dar cumplimiento a esta disposición, los
+responsables de estas publicaciones deberán comunicar a la Junta
+Directiva del Colegio de Periodistas quienes son los directores y
+escritores y la organización de que son voceros.

@@ -1,8 +1,11 @@
-Artículo 15.- El Tribunal de Honor deberá oir a los afectados, buscar
-información y llamar a quienes considere oportuno, para rendir su fallo en
-un plazo no mayor de quince días naturales, contados a partir de la fecha
-en que se les eleva una denuncia. No obstante, la Junta Directiva podrá
-prorrogar este plazo por un solo período más de quince días naturales si
-así lo solicitara el Tribunal de Honor por escrito. El Fallo del Tribunal
-deberá estar ajustado a las disposiciones de la Ley Orgánica, del Código
-de Etica y conforme a su propia conciencia.
+ARTICULO 15.- Para un mejor desenvolvimiento de la Asamblea General
+Ordinaria anual, la Junta Directiva deberá rendir cada año los siguientes
+informes:
+1.- Informe de actividades realizadas;
+2.- Proyectos sugerencias y asuntos pendientes para la próxima Junta
+Directiva;
+3.- Inventario de bienes al treinta de setiembre; y
+4.- Informe de tesorería sobre ingresos, cortes de caja trimestrales y
+salidas detalladas durante, el período. Deberá incluirse, además, el
+proyecto de presupuesto de gastos a aprobar o improbar para el próximo
+período.

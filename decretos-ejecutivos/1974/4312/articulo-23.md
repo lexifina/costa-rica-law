@@ -1,14 +1,11 @@
-CAPITULO XI
-De los Extranjeros
-Artículo 23.- Cuando ocurren en el país actos de importancia
-internacional, a juicio del Colegio, éste podrá autorizar a periodistas
-extranjeros no residentes en el país para que los cubran para los medios
-del exterior que representan, previa comprobación de su condición
-profesional. Estas autorizaciones de ejercicio profesional temporal,
-tendrán un límite máximo de un mes en caso de comprobada necesidad, a
-partir del inicio del evento para el cual fueron extendidas.
-Las autoridades de migración de los puestos de entrada al país,
-comunicarán a los interesados en el momento de su ingreso esta
-disposición. Asimismo, comunicarán al Colegio dentro de las veinticuatro
-horas siguientes, todo ingreso al país de personas con documentación de
-periodista.
+ARTICULO 23.- La Junta Directiva deberá llevar permanentemente para
+facilitar el acatamiento de las disposiciones de la Ley Orgánica, los
+siguientes Registros:
+a) Un tarjetero actualizado con el nombre de los directores,
+subdirectores, jefes de redacción, jefes de información o coordinadores
+de medios periodísticos;
+b) Un tarjetero con los nombres de los directores, jefes o encargados
+de las oficinas de Relaciones Públicas; y
+c) Un tarjetero con los nombres de los periodistas colegiados
+responsables y corresponsables de agencias noticiosas extranjeras
+establecidas en el país.

@@ -1,10 +1,6 @@
-CAPITULO IX
-De los Registros
-Artículo 19.- La Junta Directiva llevará un registro actualizado de
-los columnistas y comentaristas permanentes de los medios de comunicación.
-Este registro tiene como finalidad el que los columnistas y comentaristas
-permanentes u ocasionales que no son miembros del Colegio, tal como lo
-dispone el artículo 25 de la Ley Orgánica, no cubran el campo del
-reportero especializado o no. cuando incurran en esta violación, la Junta
-Directiva deberá establecer de inmediato las acciones legales
-correspondientes.
+ARTICULO 19.- Una vez vertido el fallo el Tribunal de Honor
+trasladará el expediente a la Junta Directiva, dentro de los tres días
+siguientes, para que este notifique por medio de transcripción a los
+interesados el texto del fallo, en forma personal y contra recibo. Se
+designa para notificar al fiscal de la Junta Directiva o en su defecto
+este buscará los medios adecuados para hacerlo.
