@@ -1,0 +1,1 @@
+Art. 2. Por consiguiente, los Ministros de la Administracion General de licores nacionales desempeñarán, con respecto al partido de San José, las mismas oblignciones que por las leyes corresponden a las Administraciones de los otros partidos.

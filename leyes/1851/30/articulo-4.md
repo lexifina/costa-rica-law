@@ -1,0 +1,1 @@
+Art. 4. El presente decreto comenzará á tener efecto precisamente desde el dia1° del próximo agosto, -Dado en la ciudad de San José à los veintiún dias del mes de julio de mil ochocientos cincuenta y uno.- Juan Rafael Mora,-El Ministro de Estado en el Despacho de Hacienda y Guerra, Manuel José Carazo.
