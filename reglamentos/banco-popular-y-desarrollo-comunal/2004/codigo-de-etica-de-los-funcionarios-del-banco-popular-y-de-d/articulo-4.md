@@ -1,0 +1,1 @@
+Artículo 4º—Me comprometo a desarrollar una moral humanista abierta, basada en principios y que a la vez conozca las situaciones personales para responder de la manera más acertada, aceptada, simple y entendida a las necesidades de la mayoría de los ciudadanos, en especial de aquellos que más lo necesitan.

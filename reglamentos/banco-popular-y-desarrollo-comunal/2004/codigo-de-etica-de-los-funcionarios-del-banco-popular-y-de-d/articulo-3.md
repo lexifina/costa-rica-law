@@ -1,0 +1,1 @@
+Artículo 3º—Me comprometo a promover los principios básicos de una conciencia moral autónoma para mí y para cada uno de mis compañeros, así como una ética que vele por el mejor comportamiento individual y que se apoye en una ética social, que fortalezca y enriquezca la sana convivencia comunitaria y el desarrollo de un verdadero trabajo de equipo.

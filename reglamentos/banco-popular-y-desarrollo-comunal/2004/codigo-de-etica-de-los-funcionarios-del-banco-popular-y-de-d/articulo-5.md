@@ -1,0 +1,1 @@
+Artículo 5º—Me comprometo a respetar la dignidad de la persona humana, promover y divulgar las acciones más positivas de la Institución, de los clientes y compañeros así como desarrollar a través de la motivación, disposición al trabajo en equipo, colaboración, comprensión y respeto, la amistad y buen trato que se merece toda persona.

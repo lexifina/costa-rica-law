@@ -1,0 +1,1 @@
+Artículo 14.—Acepto que una vez recibida la denuncia o recomendación de reconocimiento por la Comisión de Centros de Conciliación y Atención de Conflictos, ella la analice con el fin de determinar si procede el inicio de una investigación preliminar que servirá de base para la recomendación inicial de sanción o el reconocimiento por servicio distinguido a un funcionario.

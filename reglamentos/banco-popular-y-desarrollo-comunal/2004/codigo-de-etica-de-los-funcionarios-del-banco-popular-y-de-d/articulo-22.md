@@ -1,0 +1,1 @@
+Artículo 22.—Me comprometo a no recibir regalos o dádivas de los clientes, para evitar que las organizaciones criminales y los blanqueadores de dinero compren conciencias de los funcionarios y empleados, con el fin de eludir los controles al lavado de activos.

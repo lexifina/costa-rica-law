@@ -1,0 +1,1 @@
+Artículo 21.—Me comprometo a no suministrar información de los clientes para que se aprovechen de ella; es el caso del uso de cuentas de terceros que, sin su conocimiento, ni consentimiento, son utilizadas para colocar dineros producto de actividades ilícitas; salvo orden de una autoridad competente.
