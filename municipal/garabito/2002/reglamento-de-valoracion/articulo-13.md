@@ -1,0 +1,1 @@
+Artículo 13.—Cuando un contribuyente no presente su declaración inicial dentro del plazo establecido por la Municipalidad, se considerará omiso y por lo tanto sus bienes inmuebles serán sujetos de valoración.

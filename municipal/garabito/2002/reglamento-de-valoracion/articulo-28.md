@@ -1,0 +1,1 @@
+Artículo 28.—La Municipalidad creará un respaldo en formato digital de toda la información relativa al Impuesto sobre Bienes Inmuebles de cada uno de los contribuyentes y la mantendrá en custodia en un lugar fisicamente separado de las instalaciones de la Municipalidad. Dicho lugar será definido por la Oficina de Valoraciones y aprobado por el Alcalde Municipal.

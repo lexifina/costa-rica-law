@@ -1,0 +1,1 @@
+Artículo 25.—En el caso de bienes inmuebles pertenecientes a varios copropietarios, la exoneración del pago del impuesto, se determinará comparando la cantidad que resulte de 45 salarios base, a los montos imponibles correspondientes a cada porcentaje de posesión.

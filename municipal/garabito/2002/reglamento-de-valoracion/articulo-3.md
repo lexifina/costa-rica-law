@@ -1,0 +1,1 @@
+Artículo 3º—De acuerdo con el artículo 7) de la Ley, cuando una propiedad pertenezca a varios condueños cada uno pagará una parte del impuesto proporcional a su derecho sobre el inmueble, por lo que cada copropietario deberá declarar el valor correspondiente a su porcentaje de posesión.

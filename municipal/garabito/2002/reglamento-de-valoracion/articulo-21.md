@@ -1,0 +1,4 @@
+Artículo 21.—Durante el período de recepción de declaraciones la Municipalidad fiscalizará todas las declaraciones recibidas y seleccionará aquellas que tengan al menos alguna de las siguientes condiciones:
+a. Valores por debajo de los mínimos vigentes, tanto para los terrenos como para las edificaciones y considerando el porcentaje de tolerancia, si existiera, que previamente se haya definido de acuerdo con el artículo 10.
+b. Características físicas de las propiedades que no correspondan a la realidad, tanto en lo relativo al terreno como a las construcciones.
+Con estas declaraciones seleccionadas se procederá a instar al contribuyente a rectificar voluntariamente su declaración, de acuerdo con lo establecido en el artículo 29 del Reglamento, adjuntando el valor estimado de su propiedad para efectos fiscales.

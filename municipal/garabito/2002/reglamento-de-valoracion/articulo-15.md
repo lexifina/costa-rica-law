@@ -1,0 +1,1 @@
+Artículo 15.—Cuando la Municipalidad lleve a cabo valoraciones generales, de acuerdo a la Ley y al Reglamento éstas podrán hacerse habiendo definido de previo distritos específicos en función ya sea de los recursos municipales disponibles o partiendo de consideraciones relativas a mayor generación de tributos.

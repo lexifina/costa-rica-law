@@ -1,0 +1,1 @@
+Artículo 17.—Los funcionarios designados por la Municipalidad para la recopilación de la información de campo deberán estar debidamente identificados, pudiendo utilizar para tales efectos un carné con sello de la Municipalidad o una carta con firma del Alcalde Municipal y sello de la Municipalidad.
