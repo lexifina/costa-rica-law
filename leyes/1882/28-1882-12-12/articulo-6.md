@@ -1,0 +1,1 @@
+Art. 6° - Cada escuela será dotada de un Director, con el sueldo mensual de $80, de una Inspectora con el de $17, y de un portero con el de $15 todos de libre nombramiento y remoción del Poder Ejecutivo.

@@ -1,0 +1,1 @@
+Art. 32-De todos los exámenes que se verifiquen en cada sesión del Tribunal, el examinador Secretario extenderá una acta en que se hará relación sucinta de cada examen, con expresión de la materia del examen, nombre del examinado y resultado de la votación. Esta acta la firmarán el Presidente del Tribunal y el Secretario.

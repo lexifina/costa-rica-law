@@ -1,0 +1,1 @@
+Art. 36 - Terminado el examen, en el cual tampoco ha de tener voto el presidente, el Secretario Municipal, que lo será del acto, recibirá la votación, que efectuará por bola blanca el que apruebe, y bola negra el que repruebe, decidiendo el caso el color de que resultare mayor número de bolas.

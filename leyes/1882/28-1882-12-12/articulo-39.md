@@ -1,0 +1,1 @@
+Art. 39.--En el caso de reprobación del candidato, se extenderá también en el expediente, del modo dicho, el acta e que aquella conste, y se hará también la devolución indicada, manifestando el presidente al interesado, privadamente, que trascurrido un año puede reiterar su demanda por última vez.

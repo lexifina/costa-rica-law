@@ -1,0 +1,1 @@
+Art. 12. -Solo tendrán acceso a oir las lecciones de Ias escuelas normales, sus alummos: y en calidad de asistentes, los maestros titulares que quieran mejorar su instrucción, y todas aquellas personas que se hallen ejerciendo el magisterio, aun cuando carezcan de título.

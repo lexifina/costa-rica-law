@@ -1,0 +1,1 @@
+Art. 29.-Terminado el examen, el Tribunal quedará solo en el salón, y el Presidente recogerá los votos de los examinadores, cada uno de los cuales dar concienzudamente y por escrito el suyo, limitándose a usar del calificativo que corresponda entre los siguientes: Sobresaliente. -Bueno. -Reprobado.

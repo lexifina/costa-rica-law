@@ -1,0 +1,1 @@
+Art. 25.-Todos los temas principales de cada materia, sobre que ha de recaer examen, se tomarán de ella, se incluirán en el programa que con anterioridad á los mismos exámenes debe publicarse en el Diario Oficial, y se escribirán separadamente en cédulas que arrolladas han de colocarse en una urna.

@@ -1,0 +1,1 @@
+Art. 3°. –Cada escuela se radicará en un edificio central, decente y capaz, de condiciones higiénicas y provisto, así de los muebles necesarios, como de las precisas obras de texto, mapas, esferas y demás objetos convenientes á la enseñanza, inclusa la objetiva.

@@ -1,0 +1,1 @@
+Art. 14.- La matrícula es gratuita, y se concederá á todo el que, reuniendo las condiciones requeridas por el artículo 16, la solicite en tiempo, ante el Director respectivo, quien hará en el libro correspondiente el asiento del caso, conforme al modelo número 1, del que dará al interesado constancia arreglada al modelo número 2.
