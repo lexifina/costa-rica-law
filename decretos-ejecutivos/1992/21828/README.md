@@ -14,3 +14,4 @@ Reglamento del fondo de desarrollo turístico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-02-04 | la propia norma |
+| 2 | 1993-07-02 | Decreto Ejecutivo 22426 (1993-07-02) |
