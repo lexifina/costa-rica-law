@@ -1,0 +1,1 @@
+Art 6° En las letras de cambio y en los conocimientos de embarque de mercaderías que deben darse por triplicado, el timbre deberá ser proporcionalmente distribuidos y puesto en los dos primeros ejemplares.
