@@ -1,0 +1,2 @@
+Artículo 3°—En el caso de que la Asociación se disuelva, el inmueble y las instalaciones que se hayan introducido en él pasarán gratuitamente al Instituto de Desarrollo Agrario.
+Si en el término de cinco años no se hubiere efectuado la construcción de la sede, en el inmueble que mediante esta ley se traspasa a la Asociación, éste pasará nuevamente a ser propiedad del Instituto de Desarrollo Agrario.
