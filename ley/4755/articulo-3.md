@@ -1,0 +1,1 @@
+Artículo 3º.- Resoluciones administrativas internas. Las órdenes e instrucciones internas de carácter general impartidas por los órganos administrativos o sus subordinados jerárquicos, no son de observancia obligatoria para los contribuyentes y responsables.
