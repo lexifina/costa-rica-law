@@ -1,0 +1,1 @@
+Artículo 17.—La cantidad de horas extraordinarias solicitadas a la Comisión de Recursos Humanos no podrá ser mayor a las autorizadas para el 2002, con excepción de los casos que así lo estime la Comisión.
