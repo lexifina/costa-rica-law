@@ -11,6 +11,5 @@ Las peticiones escritas de las partes se presentarán al despacho de
 la respectiva oficina judicial, donde el empleado que las reciba asentará
 la razón al pie de cada escrito, firmada por el secretario del tribunal,
 en la que se indicará:
-a) Nombre de la persona que presenta el escrito ante el
-tribunal.
+a) Nombre de la persona que presenta el escrito ante el tribunal.
 b) Hora y fecha de la presentación del escrito.

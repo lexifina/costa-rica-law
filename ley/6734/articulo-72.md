@@ -1,7 +1,3 @@
-Artículo 72.- El perito que designe la parte interesada, de acuerdo
-con el artículo 67 anterior, deberá ser un profesional de reconocida
-idoneidad, con experiencia en la materia y miembro activo del Colegio de
-Ingenieros Agrónomos de Costa Rica.
-Si la persona designada por el propietario no reuniera los anteriores
-requisitos, el juez lo declarará así, de oficio, y procederá al
-nombramiento respectivo en su reemplazo.
+Artículo 72.- DEROGADO.-
+(Derogado por el artículo 64, inciso ñ), de la Ley de Expropiaciones
+No.7495 del 3 de mayo de 1995)
