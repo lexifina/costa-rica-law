@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-Los recursos en efectivo depositados en este Fondo a la fecha de emisión de este decreto, ser n reintegrados al Sistema Bancario Nacional, debiendo el Banco Central de Costa Rica efectuar los ajustes necesarios en el encaje legal para mantener la liquidez de los bancos a los niveles actuales.
