@@ -1,0 +1,1 @@
+Transitorio único.—Los permisionarios y concesionarios del transporte remunerado de personas, modalidades autobús, buseta y microbús, tendrán un plazo improrrogable de quince días hábiles, contados a partir de la publicación del presente Decreto, para eliminar radicalmente los "trompos" y cualquier otro aditamento que impida la normal entrada y salida de pasajeros a sus unidades.
