@@ -1053,43 +1053,59 @@ S 77 28 W | 460.98 | 204 400 | 590 000
 Se sigue aguas abajo por la Quebrada Jamari hasta su unión con el río Pacuare en coordenadas N 204 840, E 588 900. Se continúa aguas abajo por el río Pacuare hasta el punto de origen de la presente descripción en coordenadas N 207 E 589 000.
 Área de la Reserva: 7 439 Ha. 6 875 m2.
 (Así adicionada la Reserva Indígena de Nimari-Bukeri anterior por el artículo 2° del decreto ejecutivo N° 7267 del 9 de agosto de 1977. Posteriormente mediante el numeral 5° del decreto ejecutivo antes indicado, se estableció que la Reserva Indígena de Nimari-Bukeri es parte integrante de la Reserva Indígena de Chirripó y sus representantes serán integrados a la admiración de dicha Reserva; la Reserva será inscrita en el Registro de la Propiedad nombre de la misma comunidad indígena cabecar de Chirripó, pero como finca distinta (finca 2 Chirripó).
-RESERVA INDÍGENA DE-COCLES(*)
+RESERVA INDÍGENA BRIBRÍ DE KEKÖLDI (COCLES)(*)
 (*) (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 16568 del 25 de setiembre de 1985, se estableció que la Reserva Indígena de Cocles constituye en adelante una reserva independiente de la Reserva Indígena Bribrí de Talamanca, con el nombre oficial de "Reserva Indígena de Cocles".)
-La Reserva Indígena de Cocles se encuentra en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Amubri 36 44 IV y Sixaola 36 44 I.
-(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 7736 del 20 de setiembre de 1977)
-La Reserva se localiza como sigue:
-Partiendo de un punto en la playa, coordenadas N 399 325, E 604 150, se continúa con los siguientes rumbos, distancias y coordenadas:
-S Franco | 1 225.00 | 398 100 | 604 150
-S 32 32 W | 1 097.14 | 397 175 | 603 560
-S 15 20 E | 907.32 | 396 300 | 603 800
-S 47 39 E | 1 150.27 | '395 525 | 604 650
-S Franco | 525.00 | 395 000 | 604 650
-W Franco | 550.00 | 395 000 | 604 100
-S 35 00 W | 1 220.66 | 394 000 | 603 400
-N 64 14 W | 1 610.12 | 394 700 | 601 950
-N 32 23 W | 1 213.72 | 395 725 | 601 300
-N Franco | 550.00 | 396 275 | 601 300
-N 48 01 W | 1 009.02 | 396 950 | 600 550
-S 59 02 W | 874.64 | 396 500 | 599 800
-S 05 43 W | 251.25 | 396 250 | 599 775
-S 68 26 W | 1 155.96 | 395 825 | 598 700
-N 88 56 W | 1 350.23 | 395 850 | 597 350
-N 71 49 W | 1 842.04 | 396 425 | 595 600
-N 46 12 W | 1 350.87 | 397 360 | 594 625
-N 33 26 E | 317.57 | 397 625 | 594 800
-N 47 07 E | 477.62 | 397 950 | 595 150
-N 18 26 W | 632.46 | 398 550 | 594 950
-N 48 01 E | 1 479.90 | 399 540 | 596 050
-S 87 05 E | 1 276.66 | 399 475 | 597 325
-N 02 39 E | 325.35 | 399 800 | 597 340
-S 77 55 E | 1 672.04 | 399 450 | 598 975
-N 30 58 E | 291.55 | 399 700 | 599 125
-N 85 48 E | 1 704.59 | 399 825 | 600 825
-S 78 41 E | 637.38 | 399 700 | 601 450
-N 42 48 E | 735.93 | 400 240 | 601 950
-De este punto, por la orilla de la playa, al punto de origen de la presente descripción en coordenadas N 399 325, E 604 150.
-Área de la Reserva: 3 538 Ha. 0 750 m2.
+(*) (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 25296 del 24 de junio de 1996, se estableció que la Reserva Indígena Bribrí de Cocles se denominará en adelante "Reserva Indígena Bribrí de Keköldi (Cocles)".)
+La Reserva Indígena Bribrí de Këköldi se localiza en las hojas cartográficas del Instituto Geográfico Nacional, escala 1:50.000, Amubri 3644 IV, Sixaola 3644 I y Cahuita 3645 III, y se delimita por los puntos cuyas coordenadas son las siguientes:
+Partiendo de la Cima del Cerro Pirripli, 220m/snm, al sur de Puerto Viejo, en coordenadas N 399 825 E 600 825, se continúa hacia el este por una estribación del cerro Pirripli, pasando por los puntos de coordenadas:
+N 399 725 | E 601 405 | (cerro, 100 m.)
+N 399 800 | E 601 600 |
+De este último punto se sigue al punto de coordenadas N 399 525 E 601 715. De allí una recta siguiendo aproximadamente un camino hacia el sur, hasta el punto de coordenadas N 398 975 E 601 600, para continuar al punto de coordenadas N 398 700 E 601 450 (cerrito, 80 metros). Se continúa por los puntos de coordenadas siguientes:
+N 398 620 | E 601 425 |
+N 398 225 | E 602 075 | (Río Caño Negro)
+Se sigue por el río Caño Negro aguas arriba, hasta la confluencia de sus dos nacientes principales, en coordenadas N 396 750 E 602 225. De ahí, una recta al punto de coordenadas N 396 575 E 601 800.
+El lindero continúa hacia el suroeste, por una estribación, hasta el punto de coordenadas N 396 150 E 601 275 (cerro, 112 m.).
+De este punto, se sigue con líneas rectas por los puntos de coordenadas siguientes:
+N 395 745 | E 601 280 | (cerrito, 80 m.)
+N 395 475 | E 598 725 | (cerro al norte de Margarita,120 m.)
+N 395 525 | E 597 630 |
+N 396 450 | E 595 600 |
+N 397 270 | E 593 600 |
+N 397 350 | E 593 100 | (cerro, 220 m.)
+N 397 450 | E 592 360 | (carretera de Home Creek a Bribrí)
+N 397 625 | E 591 875 |
+De este punto se continúa por la fila divisoria de aguas entre el Río Sand Box por una parte los Ríos Sixaola, Carbón y Quebrada Carbón; por otra parte, pasando por los puntos de coordenadas:
+N 397 840 | E 590 700 | (Cerro, 318 m.)
+N 398 740 | E 589 070 | (Cerro, 320 m., aproximadamente)
+El límite sigue por los puntos de coordenadas: N 399 075 E 588 480 (cerro, 342 m.), N 399 125 E 587 750, N 399 250 E 587 520.
+De este último punto, una recta al punto de coordenadas N 398 650 E 586 790. A partir de este punto, se inicia el límite común con la Reserva Indígena Bribrí de Talamanca, continuando el lindero por los puntos de coordenadas:
+N 399 150 | E 586 125 |
+N 399 775 | E 585 850 | (Río Carbón)
+De ahí se sigue aguas arriba por el río Carbón, hasta el punto de coordenadas N 399 725 E 585 590, para tomar una recta con rumbo noroeste hacia la fila Carbón, en el punto de coordenadas N 400 150 E 585 460. En este último punto, termina el límite común descrito, siguiendo el límite de la Reserva Indígena de Këköldi, con una recta al punto de coordenadas N 401 000 E 585 900. Punto que interseca una naciente del Río Carbón ("Dos"), dibujada por curvas de nivel en el mapa. Se sigue aguas abajo por esta naciente, hasta su confluencia con la naciente principal del Río Carbón ("Dos"), hasta el punto de coordenadas N 185 250 E 660 375. Continúa aguas arriba por la naciente principal del río Carbón ("Dos") hasta el punto de coordenadas N 183 850 E 561 720. De ahí una recta al punto de coordenadas N 401 600 E 590 075. Punto que interseca un afluente de la quebrada Carbón. Se sigue aguas arriba por este afluente, hasta el punto de coordenadas N 400 975 E 590 075. De ahí, se continúa pasando por los puntos de coordenadas siguientes:
+N 400 340 | E 590 665
+N 99 775 | E 591 000
+De este punto, se sigue por la divisoria de aguas entre los ríos Carbón ("Dos"), Río Sand Box y Río Patiño, con las siguientes coordenadas:
+N 399 920 | E 591 400 | (Cerro, 390 m.)
+N 399 875 | E 592 225 |
+N 400 195 | E 593 000 | (Cerro, 320 m.)
+N 399 875 | E 594 100 |
+N 399 990 | E 594 520 | (Empalme entre la carretera principal y el camino viejo de Puerto Viejo a Patiño)
+De este punto continúa por el camino viejo que va a Puerto Viejo, hasta el punto de coordenadas N 399 700 E 595 400.
+De allí, se sigue por los puntos de coordenadas siguientes:
+N 399 900 | E 595 440 |
+N 400 120 | E 595 750 | (Carretera de Home Creek a Puerto Viejo)
+N 399 995 | E 595 900 | (Carretera de Home Creek a Puerto Viejo)
+N 399 875 | E 595 800 |
+N 399 605 | E 596 050 |
+N 399 525 | E 596 800 |
+N 399 650 | E 596 900 |
+N 399 700 | E 597 780 |
+N 399 455 | E 598 950 | (Cerro, 100 m.)
+N 399 700 | E 599 105 |
+N 399 825 | E 600 825 | (Cerro Pirripli, punto inicial de la descripción).
+(Así reformada la Reserva Indígena Bribrí de Keköldi (Cocles) anterior por el artículo 2° del decreto ejecutivo N° 25296 del 24 de junio de 1996)
 (Así adicionada la Reserva Indígena De Cocles anterior por el artículo 3° del decreto ejecutivo N° 7267 del 9 de agosto de 1977. Posteriormente mediante el numeral 6° del decreto ejecutivo antes indicado, se estableció que la Reserva Indígena de Cocles es parte integrante de la Reserva Indígena de Talamanca y sus representantes serán integrados a la administración de dicha Reserva; la Reserva será inscrita en el Registro de la Propiedad a nombre de la misma comunidad indígena de Talamanca, pero como finca distinta (finca 2 Talamanca).)
+(Nota de Sinalevi: Mediante el artículo 4° del decreto ejecutivo N° 25296 del 24 de junio de 1996, se estableció que la carretera principal de Hone Creek Bribrí, por su carácter nacional, no forma parte de la Reserva Indígena de Keköldi.)
 RESERVA INDÍGENA DE SIBUJU NORTE
 Esta Reserva se encuentra en las hojas del Instituto Geográfico Nacional Amubri 36 44 IV y Telire 3544 I, y localizada por los puntos cuyos rumbos, distancias y coordenadas son:
 Partiendo de un punto situado en uno de los brazos del río Moín, coordenadas N 396 850, E 571 600, se sigue aguas abajo por dicho brazo hasta el río Moín, en coordenadas N 397 550, E 571 650, se continúa por el río Moín, aguas abajo, hasta un punto de coordenadas N 398 960, E 575 200. A partir de este punto se sigue con los siguientes rumbos, distancias y coordenadas:
