@@ -1,0 +1,1 @@
+Artículo 7°— La Municipalidad tendrá 10 días hábiles para dar respuesta a una solicitud de instalación de rótulos. Pasado ese lapso sin que se hubiera pronunciado, quedará de pleno derecho autorizada. Una vez el derecho tendrá el interesado cancelar el impuesto establecido según la Ley de Patentes Municipales.

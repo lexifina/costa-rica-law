@@ -1,0 +1,1 @@
+Articulo 14.— La Municipalidad tiene facultades plenas al tenor de la Ley de Construcciones, Reglamento de Construcciones y la Ley de Planificación Urbana, lo mismo que las disposiciones que emanan del presente Reglamento para limitar la superficie de un anuncio, un conjunto de anuncios o para no permitir su colocación.

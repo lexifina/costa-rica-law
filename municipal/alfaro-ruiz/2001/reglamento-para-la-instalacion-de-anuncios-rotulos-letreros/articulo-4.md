@@ -1,0 +1,1 @@
+Articulo 4°—Para el cumplimiento de lo anterior el propietario de la estructura en que se va a exhibir el anuncio o su representante deberá solicitarlo por escrito y además especificar detalles del rótulo presentar por escrito visto bueno del dueño de predio o lote donde se instalara, si fuera del caso.
