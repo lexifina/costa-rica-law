@@ -1,0 +1,1 @@
+Art 13.- El Contador de acuerdo con el Intendente visitará cada mes las Oficinas de Hacienda pública de cuenta y razón, y hará las prevenciones necesarias para su mejor arreglo, y todos los años pasará al Gobierno para conocimiento de la Asamblea, un estado de todos sus trabajos, en el mismo año.
