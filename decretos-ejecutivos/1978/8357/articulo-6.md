@@ -1,0 +1,1 @@
+Artículo 6°-El Poder Ejecutivo suscribirá un convenio cooperativo con el Instituto de Tierras y Colonización en el que se tomarán acuerdos sobre el levantamiento de un censo del uso activo de la tierra, forma de pago, reubicación de los simples poseedores y cualquier otro aspecto que consideren conveniente.
