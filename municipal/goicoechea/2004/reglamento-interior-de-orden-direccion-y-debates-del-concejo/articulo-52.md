@@ -1,0 +1,2 @@
+Artículo 52.—La interposición del veto por parte del Alcalde Municipal tendrá prioridad en el orden del Concejo Municipal y el Presidente no podrá negarse a dar trámite a ese Veto ni posponer su conocimiento en el Concejo. En la siguiente Sesión inmediatamente a la presentación del Veto el Concejo deberá rechazarlo o acogerlo, en el caso de rechazarlo el expediente se remitirá al Tribunal Contencioso Administrativo para que resuelva lo pertinente.
+La interposición del Veto suspende el acuerdo recurrido.

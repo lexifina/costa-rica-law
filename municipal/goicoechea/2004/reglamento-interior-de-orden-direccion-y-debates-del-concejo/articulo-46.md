@@ -1,0 +1,1 @@
+Artículo 46.—Durante el transcurso de las sesiones del Concejo, solo podrán permanecer en el Recinto Parlamentario, los regidores propietarios y suplentes, los síndicos propietarios y suplentes, el Alcalde, el Secretario Municipal, el Auditor Municipal y los asesores del Concejo.
