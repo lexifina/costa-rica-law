@@ -1,0 +1,1 @@
+Art 4°.- Las personas morosas para hacer los pagos en los plazos señalados, sufrirán la pena del duplo exigido sumariamente sin prórroga ni apelación, y aquellas que se nieguen serán además obligados a incorporarse en el ejercicio expedicionario
