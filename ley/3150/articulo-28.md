@@ -1,0 +1,3 @@
+Artículo XXVIII
+Las Partes contratantes convienen en efectuar consultas en el Consejo Ejecutivo, con anterioridad a la suscripción entre ellas de nuevos tratados que afecten el libre comercio.
+El Consejo Ejecutivo analizar el caso y determinar los efectos que podría tener la celebración de dichos convenios sobre el régimen de libre comercio establecido en el presente Tratado. Con base en el estudio efectuado por el Consejo Ejecutivo la Parte que se considere afectada por la celebración de esos nuevos tratados podrá adoptar las medidas que el Consejo recomiende a fin de salvaguardar sus intereses.

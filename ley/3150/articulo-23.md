@@ -1,0 +1,5 @@
+Artículo XXIII
+Se crea una Secretaría Permanente, con carácter de persona jurídica, que lo ser a la vez del Consejo económico Centroamericano y del Consejo Ejecutivo creados por este Tratado.
+La Secretaría tendrá su asiento y sede principal en la ciudad de Guatemala, capital de la
+República de Guatemala, y estar a cargo de un Secretario General nombrado por un período de tres años por el Consejo económico Centroamericano. La Secretaría establecer los departamentos y secciones que fueren necesarios para el desempeño de sus funciones. Sus gastos se conformar a un presupuesto general aprobado anualmente por el Consejo económico Centroamericano y cada una de las Partes contratantes deber contribuir a su sostenimiento con un suma anual mínima equivalente a cincuenta mil dólares de los Estado Unidos de América (US $ 520.000.00), pagaderos en las respectivas monedas de los países signatarios.
+Los funcionarios de la Secretaría gozarán de inmunidad diplomática. Los demás privilegios diplomático se otorgan únicamente a la Secretaría y al Secretario General.

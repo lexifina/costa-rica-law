@@ -1,0 +1,4 @@
+Artículo XXVII
+El presente Tratado prevalecer , entre las Partes contratantes, sobre el Tratado Multilateral de Libre Comercio e Integración Económica Centroamericana y sobre los demás instrumentos de libre comercio suscritos bilateral o multilateralmente entre las Partes contratantes; pero no afectar la vigencia de dichos convenios.
+Entre los respectivos países signatarios se aplicarán las disposiciones de los convenios de comercio e Integración Económica a que se refiere el párrafo anterior en lo que no se considere en el presente Tratado.
+Mientras algunas de las Partes contratantes no hubiere ratificado el presente Tratado o en el caso de denuncia por cualquiera de ellas, sus relaciones comerciales con los demás Estados signatarios se regir n por los compromisos contraídos previamente en los instrumentos vigentes a que se hace referencia en el preámbulo de este Tratado.
