@@ -1,0 +1,1 @@
+Artículo 4º.- El Ministerio de Agricultura y Ganadería será el órgano asesor en la rama agrícola, y el acatamiento a sus indicaciones será indispensable para la obtención de la póliza, su vigencia y eventual cobro.

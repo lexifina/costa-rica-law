@@ -1,0 +1,1 @@
+Artículo 7º.- El Poder Ejecutivo, mediante decreto, organizará una Comisión Coordinadora de los organismos interesados en el desarrollo del Seguro de Cosechas. El Instituto Nacional de Seguros será miembro permanente de esta Comisión.
