@@ -1,0 +1,2 @@
+Artículo 11.—Requisitos para el arreglo de pago. El interesado, sea persona física o jurídica, deberá presentar original y copia de la cédula respectiva y la propuesta de pago dirigida a la Gerencia General. Para deudas iguales o superiores a los ¢ 200.000,00, se deberá firmar la garantía a través de un título ejecutivo que al efecto confeccione el Departamento de Tesorería. Dicho documento consignará, la renuncia de domicilio del deudor, requerimientos de pago y trámite del Proceso Ejecutivo.
+El Departamento de Tesorería custodiará dichos títulos ejecutivos.

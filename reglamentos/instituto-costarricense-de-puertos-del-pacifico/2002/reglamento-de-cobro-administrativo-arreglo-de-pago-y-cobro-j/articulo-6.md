@@ -1,0 +1,5 @@
+Artículo 6º—Suspensión de cobro judicial por arreglo de pago. Por suspensión del Cobro Judicial se entenderá la solicitud escrita que formule el INCOP, ante el órgano judicial competente de no continuar gestión alguna en la tramitación del proceso, en un plazo que no podrá exceder de dos meses, de conformidad con el Artículo 202 inciso 3 del Código Procesal Civil. Vencido dicho plazo, se continuará con el Proceso de Cobro judicial.
+Dicha suspensión podrá ser solicitada en los siguientes casos:
+a) Cuando se formalice un arreglo de pago entre el INCOP y el interesado.
+b) Cuando lo autorice la Gerencia General, en casos plenamente justificado y previo depósito del interesado de no menos del 25% de la cuantía del proceso. Artículo 7. -Conclusión anticipada de Procesos Judiciales.
+Por conclusión anticipada del Proceso Judicial se entenderá la solicitud escrita que formule la Dirección de Asesoría Jurídica del INCOP, ante el órgano judicial correspondiente, cuando el interesado cancele en su totalidad las cuentas morosas junto con los intereses y gastos legales incurridos, previa acreditación de lo anterior por parte del Departamento de Contabilidad.
