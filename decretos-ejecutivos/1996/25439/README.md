@@ -14,3 +14,4 @@ Reglamento a la Ley para el Desarrollo y Ejecución del Proyecto Turístico Golf
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-09-11 | la propia norma |
+| 2 | 2001-08-30 | Decreto Ejecutivo 29794 (2001-08-30) |
