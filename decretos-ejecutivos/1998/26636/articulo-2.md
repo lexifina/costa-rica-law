@@ -1,0 +1,1 @@
+Artículo 2°—Estas modificaciones arancelarias Se comunicarán a los Gobiernos Centroamericanos y a la SIECA, a efecto de dar cumplimiento a lo dispuesto en el Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.
