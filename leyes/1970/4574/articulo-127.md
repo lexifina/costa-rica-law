@@ -1,0 +1,2 @@
+Artículo 127.- Las municipalidades no podrán hacer nombramientos ni adquirir compromisos económicos, si no existe subpartida presupuestaria que ampare el egreso, o cuando la subpartida aprobada esté agotada o resultare insuficiente; tampoco podrán pagar con cargo a una subpartida egresos que correspondan a otra.
+La violación de lo antes dispuesto será motivo de suspensión del funcionario o empleado responsable, y la reincidencia será causa junta de separación.

@@ -1,0 +1,1 @@
+Artículo 109.- No se podrá dedicar a la atención de empréstitos o emisiones de bonos un porcentaje superior al 10% de los ingresos ordinarios de la municipalidad, cuando se tratare de financiar obras de inversión no recuperables.

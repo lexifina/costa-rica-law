@@ -1,0 +1,3 @@
+Artículo 42.- Las sesiones del Concejo deberán iniciarse dentro de los quince minutos siguientes a la hora señalada al efecto, conforme al reloj del despacho.
+Pasados los quince minutos anteriores, si no hubiere quórum se dejará constancia en el libro de actas.
+El regidor suplente que sustituyere a un propietario tendrá derecho a permanecer durante toda la sesión como miembro del Concejo, si la sustitución hubiere comenzado después de los quince minutos a que se refiere el primer párrafo o si aunque hubiere comenzado con anterioridad el propietario no se hubiere presentado dentro de los quince minutos sobredichos.

@@ -1,0 +1,1 @@
+Artículo 75.- La Contraloría General de la República podrá actuar como coadyuvante en todos los procesos en que puedan resultar condenas por responsabilidad civil en contra de las municipalidades y podrá demandar responsabilidades civiles y penales de los funcionarios municipales derivadas de su función.

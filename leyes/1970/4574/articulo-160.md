@@ -1,0 +1,1 @@
+Artículo 160.- El Ejecutivo cumplimentará lo acordado por el Concejo por medio de una solicitud de avalúo, acompañada de una transcripción del acuerdo municipal y del respectivo plano, dirijida a la Dirección General de Tributación Directa.

@@ -1,0 +1,2 @@
+Artículo 156.- Las disposiciones contenidas en este Título sobre procedimientos de nombramiento y remoción, no serán aplicables a los funcionarios que dependan directamente del Concejo, ni a los empleados ocasionales contratados con cargo a las partidas presupuestarias de Servicios Especiales o Jornales.
+Las acciones laborales que afecten a los funcionarios que dependen directamente del Concejo serán acordadas por éste.

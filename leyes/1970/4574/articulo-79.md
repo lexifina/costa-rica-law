@@ -1,0 +1,2 @@
+Artículo 79.- Las operaciones que hagan las municipalidades con sus inmuebles cuyo valor sea superior a cincuenta mil colones, necesitarán autorización de la Contraloría General de la República, la que examinará tanto la legalidad como la oportunidad de la operación.
+Cuando la municipalidad estime que el bien vale cincuenta mil colones o menos, el valor del inmueble se determinará por peritaje de la Dirección General de la Tributación Directa.

@@ -1,0 +1,3 @@
+Artículo 100.- La licencia a que se refiere el artículo 98 sólo podrá suspenderse por falta de pago de dos a más trimestres, o por cumplimiento de los requisitos que exigen las leyes para el desarrollo de la respectiva actividad.
+La suspensión de la licencia implicará el cierre del local o el impedimento de comerciar ambulantemente, medidas que se ejecutarán a través de las autoridades de policía.
+La licencia caducará cuando se abandone la actividad y así sea comunicado a la municipalidad por el interesado, o cuando venza el plazo para el que haya dado, tratándose de comercios o industrias temporales.

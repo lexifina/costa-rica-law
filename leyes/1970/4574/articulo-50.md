@@ -1,0 +1,1 @@
+Artículo 50.- El Secretario del Consejo formará un expediente para cada proyecto de acuerdo, al cual se agregará el dictamen de Comisión y las mociones que se presenten durante el debate y en el que se transcribirán los acuerdos tomados, con las firmas al pie del Presidente y del Secretario.

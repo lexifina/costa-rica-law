@@ -1,0 +1,2 @@
+Artículo 121.- Las modificaciones de los presupuestos vigentes sólo procederán dentro de un mismo programa presupuestado, salvo situaciones de emergencia en que se podrá modificar un programa mediante afectación de otro.
+El presupuesto ordinario no podrá ser modificado para aumentar sueldos o crear nuevas plazas, salvo que se trate de reajustes por aplicación del Decreto de Salarios Mínimos, en el primer caso, o que se requieran nuevos empleados con motivo de la ampliación de sus servicios o de la prestación de uno nuevo.
