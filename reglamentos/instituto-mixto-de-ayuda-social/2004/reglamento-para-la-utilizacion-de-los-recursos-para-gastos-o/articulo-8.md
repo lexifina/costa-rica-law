@@ -1,0 +1,1 @@
+Artículo 8º—No se tramitarán solicitudes de desembolso por montos inferiores a los diez mil colones; estos deben ser tramitados por medio de la Caja Chica, administrada por la Unidad Ejecutora del citado fideicomiso.

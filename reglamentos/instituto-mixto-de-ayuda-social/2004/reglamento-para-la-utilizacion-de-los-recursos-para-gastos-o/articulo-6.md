@@ -1,0 +1,4 @@
+VERIFICACIÓN:
+Artículo 6º—Para efectos de comprobar que las solicitudes de adquisición de bienes y servicios, se realicen de conformidad con los procedimientos que dicte BICSA S. A., en coordinación con la Unidad Ejecutora y el presente Contrato de Fideicomiso y su Reglamento, actuarán como verificadores los siguientes funcionarios:
+a) La Gerencia de la Unidad Ejecutora; quien coordinará y verificará todo lo relacionado a las contrataciones de servicios y quien verifica que todas las solicitudes de desembolso, correspondan a las partidas presupuestadas y que se ejecuten de acuerdo con el presente Reglamento, al Presupuesto aprobado por la Contraloría General de la República y el Comité Director del Fideicomiso.
+b) La Unidad Ejecutora verificará que las propuestas guarden las mejores condiciones económicas de igualdad y oportunidad y llevará el expediente completo de todo el proceso de contratación.

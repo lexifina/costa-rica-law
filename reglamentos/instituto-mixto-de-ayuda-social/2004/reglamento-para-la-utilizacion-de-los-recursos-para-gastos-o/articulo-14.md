@@ -1,0 +1,1 @@
+Artículo 14.—Este reglamento podrá ser modificado todo o en parte por el Comité Director del Fideicomiso 73-2002, siempre que las modificaciones realizadas se encuentren dentro de lo establecido en el Contrato de Fideicomiso 73-2002 y sean realizadas formalmente en los mismos términos que el presente.

@@ -1,0 +1,2 @@
+OTRAS CONDICIONES:
+Artículo 13.—Según el presupuesto presentado y aprobado por la Contraloría General de la República para el ejercicio y lo indicado en la cláusula sexta inciso H del Contrato de Fideicomiso 73-2002, podrá ser modificado en cambio de subpartidas velando porque se cumpla las partidas generales del presupuesto aprobado por la Contraloría General de la República. Los cambios de subpartidas deben someterse para su aprobación al Comité Director del Fideicomiso.
