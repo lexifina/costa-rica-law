@@ -29,3 +29,4 @@ Reglamento General Establecimientos Oficiales de Educación Media
 | 14 | 1975-10-28 | Decreto Ejecutivo 5402 (1975-10-28) |
 | 15 | 1977-06-30 | Decreto Ejecutivo 7158 (1977-06-30) |
 | 16 | 1982-03-29 | Decreto Ejecutivo 13488 (1982-03-29) |
+| 17 | 1982-04-29 | Decreto Ejecutivo 13578 (1982-04-29) |
