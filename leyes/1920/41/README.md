@@ -1,6 +1,6 @@
 # Ley de Nulidades contra Normativa Emitida en Régimen de Tinoco
 
-Ley N° 41 del 1920-08-21. SINALEVI, ficha 36355: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36355&param2=74015&param3=1>.
+Ley N° 41 del 1920-08-21. SINALEVI, ficha 36355: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36355&param2=74016&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1920-08-21 | Ley 41 | 1920-08-21 |
 | 2 de 3 | 1947-03-18 | Ley 846 | 1947-03-18 |
+| 3 de 3 | 1969-09-04 | Ley 4399 | 1969-09-04 |
