@@ -14,3 +14,4 @@ Código de Moral del Colegio de Abogados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-16 | la propia norma |
+| 2 | 2001-11-19 | Reglamento 38 (2001-11-19) |

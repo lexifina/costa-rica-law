@@ -1,4 +1,5 @@
 COLEGIO DE ABOGADOS DE COSTA RICA
+(Nota de Sinalevi: El Colegio de Abogados y Abogadas aprobó un nuevo Código de Deberes Jurídicos, Morales y Éticos del Profesional en Derecho, en sesión N° 47 del 11 de noviembre de 2004.)
 CÓDIGO DE MORAL DEL COLEGIO DE ABOGADOS
 La Junta Directiva del Colegio de Abogados de la República de costa Rica en su sesión N° 57-2000 del 18 de diciembre de 2000, ratificada el 3 de enero del 2001, acordó aprobar el nuevo Código de Moral del Colegio de Abogados de Costa Rica, en los siguientes términos:
 Considerando:
