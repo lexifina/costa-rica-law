@@ -1,0 +1,1 @@
+Art. 2° Las patentes serán libradas por el Administrador principal en papel del sello 3° a costa del interesado, previo el entero correspondiente que se hará en la misma oficina. Las que pertenezcan a la ciudad de Puntarenas continuarán librándose en la forma y por la autoridad que se ha hecho hasta aquí, no obstante quedar sujetas al impuesto establecido por la presente ley.

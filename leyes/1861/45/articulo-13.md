@@ -1,0 +1,3 @@
+Art. 13. Quedan derogados los decretos del Poder Ejecutivo n. 1 de 17 de febrero de 1852 y no 5 de 26 de febrero del corriente año, y reformados los artículos 105 y 106, sección 2a, capítulo 11 del nuevo Reglamento de Hacienda. -A la Cámara de Representantes.
+Dado en el Salón de sesiones del Palacio Nacional. San José, Julio veinticuatro de mil ochocientos sesenta y uno.
+Poder Ejecutivo. -Sala de la Cámara de Representantes. San José, agosto ocho de mil ochocientos sesenta y uno. -. San José, agosto veinte de mil ochocientos sesenta y u no.-EJECUTESE. -José María Montealegre. -El Secretario de Estado en el Despacho de Hacienda, Francisco Montealegre.

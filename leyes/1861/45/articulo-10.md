@@ -1,0 +1,1 @@
+Art. 10. No se concederán patentes por más tiempo que el de un año, ni por menos de un trimestre, debiendo ser estas libradas también por el Administrador principal, previo el entero del correspondiente derecho.

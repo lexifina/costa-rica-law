@@ -1,0 +1,1 @@
+Art. 12. Las disposiciones contenidas en los artículos anteriores no serán alteradas durante el término de dos años, contados desde el dia 19 de enero de 1862 en que comenzará á tener efecto esta ley.

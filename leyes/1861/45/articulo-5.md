@@ -1,0 +1,1 @@
+Art. 5 Para las poblaciones que no sean capitales de Provincia ni de Comarca, el derecho de patente será solamente de ciento ochenta pesos anuales, pagaderos también por trimestres adelantados. Respecto de la Provincia del Guanacaste, este derecho será de ciento cincuenta pesos anuales, que se pagarán en la misma forma.
