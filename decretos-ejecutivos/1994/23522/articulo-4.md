@@ -6,4 +6,4 @@ materiales y registros que se crean convenientes para valores de
 esta naturaleza.
 Para los propósitos de control interno mecanizado del Banco
 Central de Costa Rica, esta emisión llevará impreso tanto en los
-bonos como en los cupones el siguiente número de referencia: 351.
+bonos como en los cupones el siguiente número de referencia: 350.
