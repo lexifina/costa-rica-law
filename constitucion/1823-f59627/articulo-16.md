@@ -1,0 +1,1 @@
+Artículo 16.- El Gobierno superior de la provincia y autoridades política, militar y de hacienda residirán en esta ciudad de San José como capital de ella, según se declaró por la Asamblea general en sesión 7ª, artículo 1º del 2 de mayo del corriente año.

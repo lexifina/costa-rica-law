@@ -1,0 +1,1 @@
+Artículo 3º.- La declaratoria indicada en el artículo anterior sólo podrá hacerla el actual Congreso de representantes, a quien se convocará al efecto y tiempo llegado por el presidente, o vice, y secretario, o vice, a quienes se faculta para atender en esta parte de política al bienestar de la provincia.

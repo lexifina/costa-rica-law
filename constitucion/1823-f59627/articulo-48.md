@@ -1,0 +1,1 @@
+Artículo 48.- El jefe político tendrá un secretario con la dotación que el Gobierno designe, el que se pagará de la hacienda pública, así como también los gastos de oficina de éste y demás jefes superiores.

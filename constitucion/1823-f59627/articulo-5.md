@@ -1,0 +1,1 @@
+Artículo 5º.- Todo acto o pronunciamiento en el sentido del artículo 2º, hecho por otros medios que los designados en el artículo 3º, será nulo, y las autoridades que lo provoquen, o exciten, responsables a la provincia.

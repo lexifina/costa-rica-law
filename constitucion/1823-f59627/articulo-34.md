@@ -1,0 +1,1 @@
+Artículo 34.- Señalará el juez constitucional inmediato que deba conocer en las civiles que se versen entre dos pueblos, o entre un pueblo y un particular, y podrá establecer un juez letrado en la provincia inmediatamente, observándose en este caso, para la administración de la justicia, la Ley de tribunales.

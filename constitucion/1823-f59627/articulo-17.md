@@ -1,0 +1,1 @@
+Artículo 17.- La Junta nombrará de su seno un presidente y tendrá un secretario, que podrá nombrarse de entre los individuos de su seno o de fuera, con la dotación que juzgue conveniente el mismo Gobierno.

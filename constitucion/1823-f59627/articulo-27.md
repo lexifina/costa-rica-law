@@ -1,0 +1,1 @@
+Artículo 27.- Los tribunales de comercio de Guatemala o de otra provincia no tendrán intervención en lo económico y gubernativo respecto a ésta y los productos del ramo se invertirán exclusivamente en los objetos relativos a ella misma.

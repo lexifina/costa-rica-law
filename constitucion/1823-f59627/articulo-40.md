@@ -1,0 +1,1 @@
+Artículo 40.- Tendrá a la vista la Constitución y leyes vigentes en sus operaciones y muy especialmente las decisiones de la actual Asamblea y el presente Estatuto, de cuyo espíritu no podrá desviarse.
