@@ -14,3 +14,4 @@ Aplicación del Régimen de Importación temporal al material especial, elemento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-25 | la propia norma |
+| 2 | 2005-01-06 | Resolución 6 (2005-01-06) |
