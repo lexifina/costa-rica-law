@@ -1,0 +1,1 @@
+Art 4° La Contaduría Mayor trabajará no solamente durante las cuatro horas diarias en que lo ha hecho hasta aquí, sino también de las tres a las cinco de la tarde, cuando la necesidad lo exija en concepto del Poder Ejecutivo.
