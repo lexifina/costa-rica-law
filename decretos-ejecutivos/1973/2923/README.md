@@ -17,3 +17,4 @@ Reglamento Ley Forestal
 | 2 | 1973-07-09 | Decreto Ejecutivo 3074 (1973-07-09) |
 | 3 | 1977-07-22 | Decreto Ejecutivo 7237 (1977-07-22) |
 | 4 | 1978-11-22 | Decreto Ejecutivo 9338 (1978-11-22) |
+| 5 | 1979-01-12 | Decreto Ejecutivo 9495 (1979-01-12) |
