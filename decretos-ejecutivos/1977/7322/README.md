@@ -13,3 +13,4 @@ Integra la Junta de Protección Social de Alajuela
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-09-03 | la propia norma |
+| 2 | 2002-09-09 | Decreto Ejecutivo 30730 (2002-09-09) |
