@@ -14,3 +14,4 @@ Reglamento del Estatuto de Servicios de Enfermería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-07-08 | la propia norma |
+| 2 | 1990-09-20 | Decreto Ejecutivo 19952 (1990-09-20) |

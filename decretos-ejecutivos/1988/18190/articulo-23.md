@@ -1,2 +1,4 @@
 Artículo 23.—(Modelo teórico del régimen salarial de enfermeras(os) profesionales).
 El régimen salarial de las enfermeras(os) está compuesto verticalmente por ocho categorías, cada una de las cuales corresponde a las ocho clases de puestos de enfermeras(os) profesionales, respectivamente, según se especifican en este Reglamento. Entre cada una de las categorías se establece una diferenciación salarial ascendente, acorde con la asignación de tareas de mayor complejidad, dificultad, mayores responsabilidades, experiencia, supervisión y otros factores propios de valoración.
+Además de las categorías salariales que se contemplan en este capítulo, se establece una categoría salarial correspondiente a los Auxiliares de Enfermería.
+(Así adicionado por el artículo 1° del Decreto Ejecutivo N° 19952 del 20 de setiembre de 1990)
