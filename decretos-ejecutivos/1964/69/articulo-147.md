@@ -1,0 +1,1 @@
+Articulo 147.-Sobre el café a que se refiere el artículo anterior, la Oficina del Café hara un adelanto al productor al momento de la entrega y le hará luego una liquidación del definitiva conforme al precio que merezca en remate, deducido el total de los gastos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 163. -Cuando para un remate no hubieron suficientes partidas pequeñas inscritas para cubrir las necesidades de los pequeños tostadores Ia Dirección Ejecutiva de la Oficina del Café podrá acordar dividir en dos o más partes, una o varias de las partidas mayores de cien quintales.

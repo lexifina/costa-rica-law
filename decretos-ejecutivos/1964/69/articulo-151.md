@@ -1,0 +1,1 @@
+Artículo 151.-También se teñirán, sin costo alguno, aquellas partidas de la cuota de exportación que de acuerdo con las disposiciones del artículo 112 de este Reglamento hayan sido adquiridas por torrefactores para ser industrializadas y expor tadas, cuando ellas tengan que ser llevadas a plantas que también industrializan caté de consumo nacional.

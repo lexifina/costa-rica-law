@@ -1,0 +1,1 @@
+Artículo 46. -Los beneficiadores deben realizar sus ventas de café para consumo nacional a través de la Bolsa del Café de Consumo Nacional, de acuerdo con las disposiciones del Título Cuarto de este Reglamento.

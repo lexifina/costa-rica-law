@@ -1,0 +1,1 @@
+Artículo 41. -El precio de venta para exportación debe estar comprendido dentro de los márgenes de fluctuación del mercado, para el mismo tipo, clasificación y calidad. de acuerdo con los estudios permanentes que sobre ventas locales para exportación y del mercado internacional mantenga la Oficina del Café.

@@ -1,0 +1,5 @@
+CAPITULO III
+De los Remates
+Artículo 161. -Sólo podrán intervenir en las operaciones de la Bolsa del Café de Consumo Nacional, además de los beneficiadores en cuanto al café por ellos inscrito y de la Oficina del Café cuando actúe como organismo estabilizador de precios, los comerciantes de café y los torrefactores que se inscriban en el registro que al efecto deberá llevar la Oficina del Café y que cumplan además con los siguientes requisitos:
+a) Rendir a favor de la Oficina del Café y ante la Auditoria de esta dependencia, una garantía no menor al quince por ciento del monto de las compras que realicen en cualquiera de los remates, la cual no podrá ser menor de cinco mil colones; y
+b) Suscribir un acta en la que formalmente prometan acatar las disposiciones que reglan la Bolsa del Café de Consumo Nacional y las ordenes y providencias que dicte la Oficina del Café y cumplir los términos de las adjudicaciones que les sean hechas y las decisiones periciales previstas en este Reglamento,

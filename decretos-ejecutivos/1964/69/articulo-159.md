@@ -1,0 +1,1 @@
+Artículo 159, - Para que sea presentado en el transcurso de los ocho días siguientes, la Oficina del Café ordenará a los interesados con café inscrito, la entrega del mismo, para ser teñido e incluido en remate.

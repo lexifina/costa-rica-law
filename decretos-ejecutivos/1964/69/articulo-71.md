@@ -1,0 +1,1 @@
+Articulo 71.-La Oficina del Café, para efectos del cálculo de los precios de liquidación final, no podrá tomar en cuenta rendimientos de café en fruta a café oro, inferiores a los rendimientos mínimos oficiales establecidos para cada cosecha y zona.

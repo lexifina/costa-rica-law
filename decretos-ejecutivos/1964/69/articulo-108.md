@@ -1,0 +1,7 @@
+Articulo 108. -La inscripción de contratos de compra-venta de café para la exportación y de compra-venta de café para la exportación por consignación, una vez aprobada por la Oficina del Café será definitiva. Por vía de excepción antes del último de julio del respectivo año cafetalero, serán causales para la decisión de este tipo de contratos y sin perjuicio de las responsabilidades civiles entre beneficiador y exportador, las siguientes:
+a) Voluntad de ambas partes, cuando simultáneamente se haya de sustituir por otro contrato de mejor precio, o cuando los niveles de venta prevalecientes para el café al momento de solicitarse la rescisión, sean superiores al precio consignado originalmente:
+b) Imposibilidad material del beneficiador para cumplir la entrega por falta de café o de cuota, cuando el respectivo contrato fue celebrado en momentos en que el vendedor no pudiere precisar la cantidad de café por recibir o la cuota que le sería fijada;
+c) Cuando la calidad del grano, dentro de las disponibilidades del beneficio, no coincida con la calidad pactada: y
+ch) Situaciones de caso fortuito o fuerza mayor, debidamente justificadas, a juicio de la Junta Directiva.
+La solicitud de rescisión del contrato deberá ser firmada por el exportador y el beneficiador respectivo, y en la misma deberá indicarse si de acuerdo con los términos del citado contrato se había hecho entrega alguna de café.
+La rescisión de los contratos se entenderá que no lesiona derechos de terceros ,

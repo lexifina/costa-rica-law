@@ -1,0 +1,1 @@
+Artículo 120. - El precio oficial de venta del café de exportación, será aquel que conste en los contratos inscritos en el registro que al efecto lleve la Oficina del Café, incluyendo la corrección de precio que se hubiere hecho de acuerdo con las disposiciones del artículo 140 de este Reglamento.

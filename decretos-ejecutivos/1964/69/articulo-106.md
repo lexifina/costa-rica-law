@@ -1,0 +1,1 @@
+Articulo 106 -Los traspasos de contratos entre beneficiadores deberían comunicarse a la Oficina del Café y sólo serán permitidos, cuando a los clientes del beneficio transmitente no perjudique la cesión o el traspaso en la correspondiente determinación de precios de liquidación final, a juicio de la Dirección,

@@ -1,0 +1,2 @@
+Artículo 158. -Cuando no hubiere ofertas suficientes para el counsumo nacional, la Oficina del Café podrá ordenar la inscripción de las partidas necesarias de acuerdo con la fijación de cuotas que hubiere realizado la Junta Directiva.
+Para los beneficios de las áreas de maduración temprana, la Oficina del Café, cuando lo considere oportuno, podrá ordenar que la inscripción de la cuota de Café de Consumo Nacional se haga antes de que se inicie la recolección de la cosecha siguiente,

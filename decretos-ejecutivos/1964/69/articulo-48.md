@@ -1,0 +1,2 @@
+Articulo. 48 -La cuota de exportación no imputada a las cuotas internacionales, sólo podrá ser destinada a aquellos países incluidos en el Anexo B del Convenio Internacional del Café 1962, y su venta no estará supedita a las disposiciones de los artículos 41,. 42, 43, 44, 114, 115, 116 y 117 de este Reglamento.
+El café de la cuota de exportación no imputada a las cuotas internacionales, no vendido y Io no exportado al treinta de setiembre, pasará a formar o aumentar la cuota de retención del respectivo beneficio.

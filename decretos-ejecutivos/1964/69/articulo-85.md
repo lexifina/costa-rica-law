@@ -1,0 +1,1 @@
+Artículo 85. -Como acto previo a la inscripción en el Registro de Prendas de los créditos dados directamente por los Bancos a los caficultores, éstos deberán ser anotados en e! registro de productores a que se refiere el articulo 4° de este Reglamento.

@@ -1,0 +1,8 @@
+Artículo 104.- No se inscribirán los contratos de compra-venta de café de aquellos beneficiadores que se encuentren en cualquiera de las siguientes condiciones:
+a) Que no se hayan inscrito en el registro del Departamento de Exportación de la Oficina del Café, de acuerdo con lo establecido por el artículo 18 de este Reglamento:
+b) Que contravengan, con el contrato que pretenden inscribir, las disposiciones que sobre marcas establece el artículo 21 de este Reglamento:
+c) Que no hayan satisfecho el impuesto ad-valórem de la cosecha anterior establecido por la Ley N° 1411 de 19 de enero de 1952, modificada por la Ley N° 2127 de 8 de junio de 1957 y por la Ley N° 2802 de 1° de setiembre de 1961;
+ch) Que no hayan inscrito en la Bolsa del Café de Consumo Nacional en el término establecido por el articulo 38 de este Reglamento, el saldo de café no vendido de la cuota de exportación de la cosecha anterior;
+d) Que no hayan entregado a la Oficina riel Café la cuota de retención de la cosecha anterior, cuando ésta se hubiere acordado en las fechas y condiciones que hubiere establecido la Junta Directiva y según se establece en el artículo 49 de este Reglamento:
+e) Que no hubieren presentado la declaración de cuentas para la liquidación final de la cosecha anterior, en los términos y condiciones establecidos en el artículo 64 de este Reglamento y mientras ésta no se haya hecho de oficio; y
+f) Que no hubieren inscrito o presentado a la Bolsa del Café de Consumo Nacional, las partidas que se les hubiere ordenado. de acuerdo con las disposiciones de los artículo 158 y 159 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 98.-Los contratos de compra-venta de café para la exportación por consignación, no podrán serlo por un plazo mayor de tres meses después de la fecha de embarque, ni la fecha de vencimiento de las consignaciones podrá ser posterior al quince de setiembre del respectivo año cafetalero.

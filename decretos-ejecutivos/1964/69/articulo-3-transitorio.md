@@ -1,0 +1,1 @@
+Transitorio III. (Al Artículo 85) .-La Oficina del Café notificará a los Bancos cuando tenga organizado el Registro de Productores para que den cumplimiento a lo establecido por el artículo 85 de este Reglamento.

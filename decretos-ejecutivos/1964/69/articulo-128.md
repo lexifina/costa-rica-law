@@ -1,0 +1,1 @@
+Artículo 128.-Los certificados de origen a que se refiere el artículo anterior, en los cuales el término café verde se entenderá como lo definido por café oro en este Reglamento, se ajustarán al modelo que determine la Organización Internacional del Café.

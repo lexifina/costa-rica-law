@@ -1,0 +1,1 @@
+Artículo 63. -Los precios definitivos que los beneficiadores deberán pagar a sus clientes por el café recibido, serán determinados por la Junta de Liquidaciones de la Oficina del Café, y en última instancia por la Junta Directiva de dicha Institución.

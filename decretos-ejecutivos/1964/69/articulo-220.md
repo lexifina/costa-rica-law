@@ -1,0 +1,1 @@
+Artículo 220. -Dentro de los primeros seis meses de cada año financiero, la Oficina del Café publicará una memoria anual en la que dará a conocer su situación económica y las operaciones y labores que hubiere efectuado en el curso del período anterior.

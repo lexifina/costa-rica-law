@@ -1,0 +1,2 @@
+Artículo 93.-Toda negociación de "compra-venta de café para la exportación” de "compra-venta de café para la exportación por consignación", de “compra-venta de café para la exportación con fines de financiación" y de “compra -venta de café para la exportación entre beneficios" será regida por contratos escritos, que para su perfeccionamiento y ejecución deben inscribirse en la Oficina del Café.
+Los citados contratos deberán presentarse para su inscripción, dentro de los treinta días siguientes a su inclusión en el respectivo Informe Diario de Compras.

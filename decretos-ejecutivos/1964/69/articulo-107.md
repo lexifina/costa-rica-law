@@ -1,0 +1,1 @@
+Articulo 107.-Cuando el beneficiador actúe como exportador de su propio café, le serán aplicables las mismas disposiciones y adquirirá las mismas obligaciones impuestas a los exportadores por este Reglamento, con excepción de las contenidas en sus artículos 86, 87, 89, 90 y 105.

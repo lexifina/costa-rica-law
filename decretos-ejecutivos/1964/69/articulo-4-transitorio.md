@@ -1,0 +1,1 @@
+Transitorio IV. (A los Artículos 193, 208 y 212) .-Los actuales miembros de la Junta Directiva , Director Ejecutivo, Subdirector Ejecutivo y Auditor continuarán con sus funciones hasta el último de junio de mil novecientos sesenta y seis.

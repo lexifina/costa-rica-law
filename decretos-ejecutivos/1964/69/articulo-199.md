@@ -1,0 +1,2 @@
+Artículo 199.-La junta Directiva se reunirá en sesión ordinaria una vez por semana y extraordinariamente cuando ella así lo acuerde o cada vez que sea convocada al efecto por el Director Ejecutivo, por sí o a petición del Presidente o de dos de los miembros de la Junta Directiva.
+Los miembros de la Junta Directiva , propietarios y suplentes, devengarán dietas, cuyo monto se determinará en los presupuestos anuales de la Oficina.

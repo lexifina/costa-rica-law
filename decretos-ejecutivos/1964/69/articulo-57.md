@@ -1,0 +1,1 @@
+Artículo 57.-Los inspectores de la Oficina del Café tendrán acceso a las plantas de beneficio, bodegas e instalaciones en que se guarde o procese café, en cualquier momento que lo soliciten a los encargados de la vigilancia.

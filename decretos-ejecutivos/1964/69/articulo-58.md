@@ -1,0 +1,1 @@
+Artículo 58.-Las partidas de café pertenecientes a un beneficio que se compruebe que no fueron inventariadas o informadas en la oportunidad señalada en los artículos 55 y 56 de este Reglamento, se tendrán como ocultadas con el fin de defraudar a los productores.

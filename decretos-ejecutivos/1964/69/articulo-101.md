@@ -1,0 +1,2 @@
+Artículo 101.-Los contratos de compra-venta de café para la exportación entre beneficios, una vez aprobados por el Director Ejecutivo, se inscribirán por orden de presentación y con numeración seguida abierta para cada cosecha.
+La inscripción de estos contratos se abrirá el primero de octubre y se cerrará el último de setiembre del respectivo año cafetalero y será estrictamente confidencial. salvo para los productores que en la cosecha a que se refieren los mismos, hubieren entregado café al beneficio vendedor.

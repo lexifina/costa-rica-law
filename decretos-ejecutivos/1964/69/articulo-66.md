@@ -1,0 +1,1 @@
+Articulo 66.-El precio definitivo del café verde recibido se calculará con treinta por ciento de menos que el precio promedio de liquidación del beneficio, agregándose el monto de ese porcentaje al saldo distribuible, para dividir éste entre eI número de libras de café maduro y determinar así el precio promedio del café maduro.

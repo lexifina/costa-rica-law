@@ -1,0 +1,9 @@
+Artículo 105.-Tampoco se inscribirán los contratos de aquellos exportadores que se encuentren en cualquiera de las siguientes condiciones:
+a) Que no se hayan inscrito en el registro de exportadores del Departamento de Exportación de la Oficina del Café, de acuerdo con lo establecido por el artículo 86 de este Reglamento;
+b) Que no hubieren rendido la garantía estatuida en el artículo 87 de este Reglamento o que la misma estuviere caduca o gravada o que durante el año hayan adquirido compromisos para la exportación de café, que sobrepasen el límite correspondiente a la garantía otorgada;
+c) Que contravengan con el contrato que pretenden inscribir, las disposición que sobre marcas establece el artículo 88 de este Reglamento;
+ch) Que no hayan reintegrado cualquier suma retenida por concepto del impuesto ad-valórern establecido por la Ley N° 1411 de 19 de enero de 1952, modificada por la Ley N° 2127 de 8 de junio de 1957 y por la Ley N° 2802 de 19 de setiembre de 1961;
+d) Que no hubieren anotado oportunamente la compra a que se refiere el contrato, en el Informe Diario de Compras a que se refiere el articulo el artículo 89 de este Reglamento;
+e) Que no hubieren presentado para su inscripción algún contrato de compra-venta de café que tuviere más de treinta días de haber sido incluido en el Informe Diario de Compras a que se refiere el artículo 89 de este Reglamento;
+f) Que no hayan inscrito en la Bolsa del Café de Consumo Nacional, en el término establecido por el artículo 135 de este Reglamento el saldo de café de la cuota de exportación de la cosecha anterior, recibido y no exportado al último de setiembre; y
+g) Que no hubieren presentado a la Bolsa del Café de Consumo Nacional, las partidas que se les hubiere ordenado, de acuerdo con lo establecido por el artículo 159 de este Reglamento.

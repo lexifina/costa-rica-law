@@ -1,0 +1,1 @@
+Artículo 50.-La Junta Directiva podrá acordar la compra de la cuota de retención; caso de venta de este café las eventuales ganancias deberán ser distribuidas proporcionalmente entre los productores a través de la liquidación correspondiente al año cafetalero en que se efectúa la venta.

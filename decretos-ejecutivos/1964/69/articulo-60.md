@@ -1,0 +1,2 @@
+Artículo 60.-Con base en las ventas realizadas al último de marzo posterior a la recolección de la respectiva cosecha los beneficiadores están obligados a hacer una liquidación provisional a sus clientes, siguiendo para este efecto el mismo procedimiento que se establece en el artículo 65 de este Reglamento para la liquidación final, excepto los gastos realizados que podrán ser deducidos en su totalidad.
+El pago provisional a que se refiere esta liquidación, deberá ser hecho a solicitud del productor interesado, a partir del diez de abril del respectivo año cafetalero.

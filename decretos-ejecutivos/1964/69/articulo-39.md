@@ -1,0 +1,1 @@
+Artículo 39.-Por ningún concepto podrán los beneficiadores disponer del café elaborado, con omisión de los procedimientos oficiales de venta establecidos o que se establezcan por las leyes y reglamentos vigentes y por la Oficina del Café.

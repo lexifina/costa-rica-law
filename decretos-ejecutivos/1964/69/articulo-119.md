@@ -1,0 +1,1 @@
+Artículo 119. -El precio de los contratos de compra-venta de café para la exportación no podrá estar afectado por intereses, comisión ni descuento alguno originados en financiación o adelantos recibidos por el beneficiador.

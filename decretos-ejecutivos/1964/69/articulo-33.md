@@ -1,0 +1,1 @@
+Artículo 33. -Todos los propietarios de beneficios secos están obligados a mostrar a los inspectores de la Oficina del Café los libros de contabilidad en cuanto sea necesario para comprobar la veracidad de cualquiera de Ios datos por ellos suministrados.

@@ -1,0 +1,1 @@
+Artículo 154.-El precio base para el remate del café será establecido por el productor, beneficiador o propietario del café, por quintal neto ensacado, puesto en la Oficina del Café o en un Almacén General de Depósito, lo cual deberá indicarse

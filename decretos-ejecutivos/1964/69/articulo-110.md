@@ -1,0 +1,1 @@
+Articulo 110. -La anulación de los contratos solamente procederá en el caso de que éstos hayan sido declarados inexistentes por vicio de nulidad relativa no subsanada o nulidad absoluta en su conformación, por resolución de los Tribunales y la misma deberá anotarse en el respectivo registro de contratos.

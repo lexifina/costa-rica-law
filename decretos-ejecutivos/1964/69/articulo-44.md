@@ -1,0 +1,1 @@
+Artículo 44. -En atención al prestigio del café de Costa Rica, para cada cosecha y para determinados mercados, podrán establecerse otras condiciones y requisitos además de los establecidos de acuerdo con las disposiciones del artículo anterior.

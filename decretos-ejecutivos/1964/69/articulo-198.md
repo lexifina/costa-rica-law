@@ -1,0 +1,2 @@
+Artículo 198.-En caso de ausencia o impedimento temporal del Presidente, será reemplazado por el Vicepresidente, quien en tal caso tendrá todas sus atribuciones, facultades y deberes. En caso de ausencia de ambos. la Junta Directiva nombrará a uno de sus miembros como Presidente ad-hoc . En caso de ausencia del Secretario, la Junta nombrará a uno de sus miembros como Secretario ad-hoc.
+Los acuerdos se tomarán por mayoría absoluta de los votos presentes, salvo disposición en contrario. En caso de empate, el Presidente o quien actúe en su lugar, tendrá doble voto.

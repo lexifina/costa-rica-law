@@ -1,0 +1,1 @@
+Artículo 187. -El ejercicio financiero de la Oficina del Café se extenderá del primero de octubre al último de setiembre, al final de cada ejercicio financiero se hará una liquidación completa de sus operaciones, que deberá someterse a conocimiento de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 169. -El acta de adjudicación será firmada por el Corredor Jurado, por el Jefe del Departamento de la Bolsa del Café de Consumo Nacional y por el comprador; el original de la misma será archivado en la Oficina del Café y una copia entregada al vendedor.

@@ -1,0 +1,1 @@
+Artículo 179.-En virtud de lo prescrito en el artículo anterior, la Oficina deI Café tendrá responsabilidad propia en la ejecución de sus funciones, lo cual impone a los miembros de su Junta Directiva la obligación y de actuar conforme a su criterio en la dirección y administración de la misma y dentro de las disposiciones de las leyes y reglamentos respectivos.

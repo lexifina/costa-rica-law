@@ -1,0 +1,10 @@
+CAPITULO IV
+De la Junta Directiva
+Artículo 190.- La Oficina del Café funcionará bajo la dirección de una Junta Directiva. de nombramiento del Ministerio de Economía y Hacienda. integrada por cinco miembros, de la siguiente manera:
+a) Por un representante del Ministerio de Economía y Hacienda que será miembro ex-oficio;
+b) Por un representante de los productores de café, escogido de las ternas que para el efecto deberán enviar al Ministerio de Economía y Hacienda las cooperativas cafetaleras y las asociaciones que incluyan en su seno a productores de café y que estuvieren legalmente inscritas por lo menos seis meses antes de la fecha de envió de las citadas listas;
+c) Por un representante de los beneficiadores de café, escogido de las ternas que para el efecto deberán enviar al Ministerio de Economía y Hacienda las federaciones de cooperativas y las asociaciones que incluyan en su seno a beneficiadores de café y que estuvieren legalmente inscritas por lo menos seis meses antes a la fecha de envío de las citadas listas;
+ch) Por un representante de los torrefactores de café, escogido de las ternas que para el efecto deberán enviar al Ministerio de Economía y Hacienda las asociaciones que incluyan en su seno a torrefactores de café y que estuvieren legalmente inscritas por lo menos seis meses antes a la fecha de envio de las citadas listas; y
+d) Por un representante de los exportadores de café, escogido de las ternas que para el efecto deberán enviar al Ministerio de Economía y Hacienda las asociaciones que incluyan en su seno a exportadores de café y que estuvieren legalmente inscritas por lo menos seis meses antes de la fecha de envío de las citadas listas.
+En la misma forma se nombrará un suplente para cada uno de los miembros propietarios, los cuales deberán asistir a las sesiones de Junta Directiva.
+El Ministerio de Economía y Hacienda podrá escoger al representante propietario aun cuando en la terna se proponga como suplente. La misma facultad tendrá cuando se trate de escoger al suplente.
