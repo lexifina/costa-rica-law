@@ -1,0 +1,12 @@
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 7° de la sesión 7317, celebrada el 25 de marzo de 1999, dispuso adicionar un último párrafo al artículo 12° del Reglamento del Seguro de Invalidez, Vejez y Muerte, para que en adelante se lea así:
+"Artículo 12° ...
+En todo caso la Junta Directiva únicamente podra declarar la posesión notoria de estado, cuando existiere la posibilidad de que el solicitante fuere el hijo biológico".
+En consecuencia, el citado artículo deberá leerse así:
+"Artículo 12°:
+Tienen derecho a pensión por orfandad los hijos que al momento del fallecimiento dependían económicamente del causante, de acuerdo con la determinación que en cada caso hará la Caja:
+a) Los solteros menores de 18 años.
+b) Los solteros menores de 25 años que estuvieron realizando estudios secundarios, técnicos, universitarios o de consagración religiosa. mientras acrediten anualmente la matrícula respectiva.
+c) Los inválidos, independientemente de su estado civil, según los términos de los artículos 7° y 8° de este Reglamento.
+d) En ausencia del cónyuge del asegurado o pensionado fallecido, los hijos mayores de 55 años. solteros, que vivían con el fallecido, siempre que no gocen de pensión alimenticia, no sean asalariados y no tengan otros medios de subsistencia, en razón de limitaciones tísicas, mentales o sociales, según determinación que en cada caso hará la Caja.
+Los hijos no reconocidos ni declarados como tales en virtud de sentencia judicial, tienen derecho si la Junta Directiva determina que existió evidente posesión notoria de estado. Lo mismo será aplicable a los hijos extramatrimoniales postumos, caso en el cual la Junta Directiva hará la correspondiente declaratoria de posesión notoria por reconocimiento de vientre.
+En todo caso la Junta Directiva únicamente podrá declarar la posesión notoria de estado, cuando existiere la posibilidad de que el solicitante fuere el hijo biológico.
