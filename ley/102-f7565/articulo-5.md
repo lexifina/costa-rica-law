@@ -1,0 +1,1 @@
+Art. 5. Los editores serán recompensados, por su trabajo, con el producto del periódico, deducido únicamente el gasto del papel; por que el Gobierno, marchando al grandioso fin que ha indicado, ofrece la imprenta sin exijir nada por ella.
