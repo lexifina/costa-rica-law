@@ -14,3 +14,4 @@ Reglamento General para el Otorgamiento de permisos de Funcionamiento por parte 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-29 | la propia norma |
+| 2 | 2004-09-09 | Decreto Ejecutivo 32161 (2004-09-09) |
