@@ -13,3 +13,4 @@ Reglamento CONESUP Consejo Nacional Educación Superior UniversitariaPrivada
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-01-28 | la propia norma |
+| 2 | 1983-01-28 | SINALEVI (sin norma nombrada) |
