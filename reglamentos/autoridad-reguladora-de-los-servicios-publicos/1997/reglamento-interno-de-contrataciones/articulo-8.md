@@ -1,4 +1,5 @@
-De la proveeduría
-Artículo 8°—La Oficina de Proveeduría es la unidad encargada de la tramitación de los procedimientos de contratación que requieran las distintas dependencias de la Autoridad Reguladora.
-En caso de compra de repuestos y servicios para el mantenimiento de vehículos, la Proveeduría contará para la tramitación de los procedimientos, con la colaboración de la Jefatura de la Oficina de Transportes, Mantenimiento y Vigilancia.
-Además, la Dirección Administrativa-Financiera, será competente para tramitar y adjudicar contrataciones de bienes y servicios, en los supuestos excluidos de los procedimientos ordinarios por el monto, hasta por la suma autorizada en el artículo 4°, inciso c), de este Reglamento.
+De la Oficina Proveeduría
+Artículo 8º—La Oficina de Proveeduría es la unidad encargada de la tramitación de los procedimientos de contratación que requieran las distintas dependencias de la Autoridad Reguladora. Contará con un Proveedor General, quien responderá directamente a la Dirección Administrativa Financiera por las actuaciones realizadas, aplicando lo que establece la Ley de Contratación Administrativa, su Reglamento General, y el presente Reglamento Interno.
+En caso de compra de repuestos y servicios para el mantenimiento de vehículos, la Proveeduría contará para la tramitación de los procedimientos, con la colaboración del Coordinador del área de Transportes, Mantenimiento y Vigilancia.
+Además, la Dirección Administrativa Financiera, será competente para tramitar y adjudicar contrataciones de bienes y servicios, en los supuestos excluidos de los procedimientos ordinarios por el monto, hasta por la suma autorizada en el artículo 4, inciso c), de este Reglamento.
+(Así reformado por acuerdo tomado en la sesión N° 4 de 29 de nero del 2002)

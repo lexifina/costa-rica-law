@@ -15,3 +15,4 @@ Reglamento Interno de Contrataciones.
 | --- | --- | --- |
 | 1 | 1997-09-11 | la propia norma |
 | 2 | 2001-10-31 | Reglamento 272 (2001-10-31) |
+| 3 | 2002-01-29 | Reglamento 4 (2002-01-29) |
