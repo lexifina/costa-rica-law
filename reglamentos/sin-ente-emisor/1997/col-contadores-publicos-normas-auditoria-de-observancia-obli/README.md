@@ -13,3 +13,4 @@ COL CONTADORES PUBLICOS: Normas Auditoría de Observancia Obligatoria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-06-03 | la propia norma |
+| 2 | 1998-11-25 | Acuerdo 3 (1998-11-24) |

@@ -1,1 +1,1 @@
-Artículo 7°.- Texto no disponible
+Artículo 7°.- (Derogado mediante sesión ordinaria N° 34 del 24 de noviembre de 1998 "Adopta las Normas técnicas Internacionales de Auditoría")
