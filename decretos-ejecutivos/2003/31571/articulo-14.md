@@ -1,0 +1,3 @@
+Artículo 14.—Aprobación por parte de la Contraloría General de la República. El expediente del concurso y la terna correspondiente, serán sometidos a conocimiento de la Contraloría General de la República, quien aprobará o improbará el concurso realizado.
+De aprobarse por parte de la Contraloría General de la República el procedimiento seguido, con base en la terna respectiva el Ministro de Comercio Exterior procederá a elegir a la persona que ocupará el cargo de Auditor Interno.
+En el evento de que la Contraloría General de la República no apruebe el concurso realizado, se repondrán los trámites pertinentes que fueren objetados por dicho órgano, o bien se tramitará un nuevo proceso, de conformidad con lo que al respecto señale la indicada entidad.

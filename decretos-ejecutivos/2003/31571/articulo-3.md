@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos del puesto. Los requisitos del puesto de Auditor Interno son los que se encuentran definidos en el Manual Descriptivo de Clases que fue aprobado mediante Decreto Ejecutivo Nº 24014-MP, publicado en el diario oficial La Gaceta Nº 36 del 20 de febrero de 1995.

@@ -1,0 +1,1 @@
+Artículo 16.—Inopia. En caso de inopia tanto la Dirección Administrativa como el Departamento de Recursos Humanos tendrá la potestad de variar de manera temporal aquellos requisitos establecidos en el Manual de Clases.

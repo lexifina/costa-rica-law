@@ -1,0 +1,1 @@
+Artículo 9º—Supuestos de exclusión de ofertas. Los interesados que vencido el plazo concedido en el artículo anterior, no hayan cumplido con las prevenciones realizadas serán excluidos del procedimiento. Igualmente se excluirán del procedimiento, quienes no se presenten, sin justa causa, a las actividades o evento de evaluación a los que hayan sido convocados.

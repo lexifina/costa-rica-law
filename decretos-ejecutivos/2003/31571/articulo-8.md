@@ -1,0 +1,1 @@
+Artículo 8º—Ofertas incompletas. Cuando una oferta presentada esté incompleta, se podrá conceder un plazo de hasta cuatro días hábiles con posterioridad al cierre del período de recepción de las ofertas, para que los interesados puedan completar su solicitud.
