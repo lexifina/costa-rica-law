@@ -1,5 +1,4 @@
 Artículo 25.—Procedimiento para situaciones de procesos productivos o empaques:
-25.1. En casos especiales en que por razón del proceso productivo resulten variantes de acuerdo con la cantidad adjudicada, la Caja podrá aceptar diferencias, de hasta un 5% menos o más del producto.
-25.2. Excedentes por producción o empaque:
-Cuando existan excedentes ocasionales por razones de producción y que supere éstos límites, el proveedor deberá ofrecer directamente el exceso del producto y la administración estará facultada para aceptarlo o rechazarlo. Todo excedente será facturado por separado.
-25.3. En aquellos casos en que el oferente deba ajustarse a un determinado empaque señalado en el cartel, se admitirá ofrecer un 5% menos o más del producto.
+25.1 Cuando existan excedentes ocasionales por razones en el proceso productivo que supere hasta un máximo de un 10% de los límites establecidos en el contrato, el proveedor podrá ofrecer directamente el exceso del producto y la administración, mediante un acto razonado, podrá aceptarlo o rechazarlo. Todo excedente será facturado y por separado al mismo precio establecido en el contrato.
+25.2 El contratista está obligado a cumplir fielmente con la condiciones del contrato. En casos excepcionales por razones de fuerza mayor debidamente acreditadas por el contratista se autorizaran prórrogas para la ejecución del contrato; si no se puede cumplir con éstas por las mismas razones de fuerza mayor, debidamente acreditadas en el expediente, la Caja podrá aceptar diferencias de hasta un 10% menos del producto o del empaque. En este último caso la Caja cobrará los daños y perjuicios que pueden derivarse por este incumplimiento.
+(Así reformado total y expresamente por el Reglamento No.7495 de 09 de noviembre de 2000)
