@@ -1,0 +1,1 @@
+Artículo 2º—Para operar dentro de los límites del Parque Nacional Isla del Coco, las Empresas Turísticas y Embarcaciones deben obtener con antelación las reservaciones y permisos correspondientes ante el Área de Conservación Marina Isla del Coco, con base en lo dispuesto en el Reglamento de Uso Público del Área.

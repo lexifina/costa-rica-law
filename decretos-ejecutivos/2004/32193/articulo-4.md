@@ -1,0 +1,1 @@
+Artículo 4º—El Ministerio de Ambiente y Energía en el futuro podrá dejar sin efecto la disposición contenida en los artículos 1º, 2º y 3º del presente Decreto, si las causas que dan origen a esta disposición sufrieran alguna modificación.
