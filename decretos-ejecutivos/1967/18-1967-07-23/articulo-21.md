@@ -1,0 +1,3 @@
+Artículo 21.-Negocios que no deben inscribirse.
+A los efectos de lo dispuesto en el artículo 5°, párrafo primero de la ley, no procede la inscripción de personas naturales y jurídicas que se dediquen exclusivamente a la prestación de los siguientes servicios: trabajos de fotografía; reencauche de llantas de vehículos automotores y similares; construcción de edificios y obras en general; sastrerías y talleres de moda; optometría; mecánica dental; imprenta; fotograbado; litografía fotocromía; funerarias; salones de belleza y barberías; y otros de conformidad con la ley.
+En tales casos dentro de la prestación de los servicios se deben incluir las mercancías que fueren complemento de los mismos.

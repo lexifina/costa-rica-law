@@ -1,0 +1,6 @@
+Artículo 27. -Liquidación por la prestación de servicios gravados. Para liquidar el impuesto referente a la prestación de servicios gravados, corresponde deducir del monto bruto total de ellos, lo siguiente:
+a) El importe de los descuentos otorgados por pronto pago y conceptos similares, siempre que se refieran a operaciones gravadas, y sean acordes con las costumbres de plaza, y el impuesto sobre tales descuentos haya sido reintegrado al prestatario.
+b) El valor total de los servicios prestados por terceras personas, con motivo de los servicios gravados, siempre que aquéllos hayan sido facturados y contabilizados por separado.
+El saldo resultante de practicar las deducciones precedentes determina el valor neto de los servicios gravados.
+Cuando el valor de los servicios que se hubiera considerado para establecer el indicado valor neto, incluyese las sumas pagadas por el impuesto, éstas últimas deben ser restadas, a fin de determinar el monto imponible de servicios gravados. Para ello se debe restar de tal valor de los servicios las sumas que equivalgan al impuesto y que al ser adicionadas a dicho monto imponible permitan obtener el valor neto de los servicios gravados.
+Sobre aquel monto imponible se debe aplicar la tasa que corresponda del gravamen, a fin de liquidar el importe del impuesto a pagar.
