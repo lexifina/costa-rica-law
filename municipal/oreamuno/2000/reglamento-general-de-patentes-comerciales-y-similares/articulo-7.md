@@ -1,2 +1,2 @@
-Articulo 7°—De la aprobación. Con el informe de la inspección municipal, se trasladará el expediente a consulta con el Departamento Legal y posteriormente se le hace llegar a la Alcaldía para su presentación y recomendación al Concejo Municipal, en donde se hará la resolución del caso.
-(Así reformado por acuerdo tomado en Sesión N° 158 de 22 de agosto del 2000)
+Artículo 7º—De la Aprobación. Una vez realizada la inspección la Unidad de Administración Tributaria, procederá al análisis y verificación de requisitos y aprobará o rechazará la patente junto a la Alcaldía Municipal en primera instancia, de no aprobarse esta pasaría al Concejo Municipal.
+(Así reformado por acuerdo municipal tomado en sesión N° 27 de 28 de agosto del 2002)
