@@ -1,0 +1,1 @@
+Artículo 4°—Será el Benemérito Cuerpo de Bomberos del Instituto Nacional de Seguros, en coordinación con el Ministerio de Economía Industria y Comercio el encargado de velar por el cumplimiento del presente reglamento técnico.
