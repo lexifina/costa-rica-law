@@ -1,0 +1,1 @@
+Artículo 3°—De la integración de la Comisión de Becas. La Comisión de Becas estará conformada por un representante de cada uno de los Concejos de Distrito, y dos miembros de la Comisión Permanente de Asuntos Sociales, elegidos por esa misma Comisión. Asimismo, el Supervisor Regional del Ministerio de Educación, participará en la Comisión de Becas, en calidad de asesor.
