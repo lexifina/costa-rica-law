@@ -1,1 +1,0 @@
-3°—Conceder un plazo de hasta cuarenta y cinco días naturales, a partir de su publicación en el Diario Oficial "La Gaceta", a todos los legítimamente interesados en la aplicación de las normas aquí dictadas para que presenten su oposición o comentarios.
