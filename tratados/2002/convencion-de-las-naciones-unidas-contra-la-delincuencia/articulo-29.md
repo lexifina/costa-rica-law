@@ -1,0 +1,15 @@
+Artículo 29
+Capacitación y asistencia técnica
+1º—Cada Estado Parte, en la medida necesaria, formulará, desarrollará o perfeccionará programas de capacitación específicamente concebidos para el personal de sus servicios encargados de hacer cumplir la ley, incluidos fiscales, jueces de instrucción y personal de aduanas, así como para el personal de otra índole encargado de la prevención, la detección y el control de los delitos comprendidos en la presente Convención. Esos programas podrán incluir adscripciones e intercambios de personal. En particular y en la medida en que lo permita el derecho interno, guardarán relación con:
+a) Los métodos empleados en la prevención, la detección y el control de los delitos comprendidos en la presente Convención;
+b) Las rutas y técnicas utilizadas por personas presuntamente implicadas en delitos comprendidos en la presente Convención, incluso en los Estados de tránsito, y las medidas de lucha pertinentes;
+c) La vigilancia del movimiento de bienes de contrabando;
+d) La detección y vigilancia de los movimientos del producto del delito o de los bienes, el equipo u otros instrumentos utilizados para cometer tales delitos y los métodos empleados para la transferencia, ocultación o disimulación de dicho producto, bienes, equipo u otros instrumentos, así como los métodos utilizados para combatir el blanqueo de dinero y otros delitos financieros;
+e) El acopio de pruebas;
+f) Las técnicas de control en zonas y puertos francos;
+g) El equipo y las técnicas modernos utilizados para hacer cumplir la ley, incluidas la vigilancia electrónica, la entrega vigilada y las operaciones encubiertas;
+h) Los métodos utilizados para combatir la delincuencia organizada transnacional mediante computadoras, redes de telecomunicaciones u otras formas de la tecnología moderna; y
+i) Los métodos utilizados para proteger a las víctimas y los testigos.
+2º—Los Estados Parte se prestarán asistencia en la planificación y ejecución de programas de investigación y capacitación encaminados a intercambiar conocimientos especializados en las esferas mencionadas en el párrafo 1 del presente artículo y, a tal fin, también recurrirán, cuando proceda, a conferencias y seminarios regionales e internacionales para promover la cooperación y fomentar el examen de los problemas de interés común, incluidos los problemas y necesidades especiales de los Estados de tránsito.
+3º—Los Estados Parte promoverán actividades de capacitación y asistencia técnica que faciliten la extradición y la asistencia judicial recíproca. Dicha capacitación y asistencia técnica podrán incluir la enseñanza de idiomas, adscripciones e intercambios de personal entre autoridades centrales u organismos con responsabilidades pertinentes.
+4º—Cuando haya acuerdos o arreglos bilaterales y multilaterales vigentes, los Estados Parte intensificarán, en la medida necesaria, sus esfuerzos por optimizar las actividades operacionales y de capacitación en las organizaciones internacionales y regionales, así como en el marco de otros acuerdos o arreglos bilaterales y multilaterales pertinentes.

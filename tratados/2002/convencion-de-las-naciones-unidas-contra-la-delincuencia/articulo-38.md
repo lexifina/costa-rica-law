@@ -1,0 +1,4 @@
+Artículo 38
+Entrada en vigor
+1º—La presente Convención entrará en vigor el nonagésimo día después de la fecha en que se haya depositado el cuadragésimo instrumento de ratificación, aceptación, aprobación o adhesión. A los efectos del presente párrafo, los instrumentos depositados por una organización regional de integración económica no se considerarán adicionales a los depositados por los Estados miembros de tal organización.
+2º—Para cada Estado u organización regional de integración económica que ratifique, acepte o apruebe la presente Convención o se adhiera a ella después de haberse depositado el cuadragésimo instrumento de ratificación, aceptación, aprobación o adhesión, la presente Convención entrará en vigor el trigésimo día después de la fecha en que ese Estado u organización haya depositado el instrumento pertinente.

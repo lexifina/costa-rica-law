@@ -1,0 +1,5 @@
+Artículo 23
+Penalización de la obstrucción de la justicia
+Cada Estado Parte adoptará las medidas legislativas y de otra índole que sean necesarias para tipificar como delito, cuando se cometan intencionalmente:
+a) El uso de fuerza física, amenazas o intimidación, o la promesa, el ofrecimiento o la concesión de un beneficio indebido para inducir a falso testimonio u obstaculizar la prestación de testimonio o la aportación de pruebas en un proceso en relación con la comisión de uno de los delitos comprendidos en la presente Convención;
+b) El uso de fuerza física, amenazas o intimidación para obstaculizar el cumplimiento de las funciones oficiales de un funcionario de la justicia o de los servicios encargados de hacer cumplir la ley en relación con la comisión de los delitos comprendidos en la presente Convención. Nada de lo previsto en el presente apartado menoscabará el derecho de los Estados Parte a disponer de legislación que proteja a otras categorías de funcionarios públicos.

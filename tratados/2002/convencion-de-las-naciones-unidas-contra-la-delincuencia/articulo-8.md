@@ -1,0 +1,8 @@
+Artículo 8
+Penalización de la corrupción
+1º—Cada Estado Parte adoptará las medidas legislativas y de otra índole que sean necesarias para tipificar como delito, cuando se cometan intencionalmente:
+a) La promesa, el ofrecimiento o la concesión a un funcionario público, directa o indirectamente, de un beneficio indebido que redunde en su propio provecho o en el de otra persona o entidad, con el fin de que dicho funcionario actúe o se abstenga de actuar en el cumplimiento de sus funciones oficiales;
+b) La solicitud o aceptación por un funcionario público, directa o indirectamente, de un beneficio indebido que redunde en su propio provecho o en el de otra persona o entidad, con el fin de que dicho funcionario actúe o se abstenga de actuar en el cumplimiento de sus funciones oficiales.
+2º—Cada Estado Parte considerará la posibilidad de adoptar las medidas legislativas y de otra índole que sean necesarias para tipificar como delito los actos a que se refiere el párrafo 1 del presente artículo cuando esté involucrado en ellos un funcionario público extranjero o un funcionario internacional. Del mismo modo, cada Estado Parte considerará la posibilidad de tipificar como delito otras formas de corrupción.
+3º—Cada Estado Parte adoptará también las medidas que sean necesarias para tipificar como delito la participación como cómplice en un delito tipificado con arreglo al presente artículo.
+4º—A los efectos del párrafo 1 del presente artículo y del artículo 9 de la presente Convención, por "funcionario público" se entenderá todo funcionario público o persona que preste un servicio público conforme a la definición prevista en el derecho interno y a su aplicación con arreglo al derecho penal del Estado Parte en el que dicha persona desempeñe esa función.

@@ -1,0 +1,6 @@
+Artículo 35
+Solución de controversias
+1º—Los Estados Parte procurarán solucionar toda controversia relacionada con la interpretación o aplicación de la presente Convención mediante la negociación.
+2º—Toda controversia entre dos o más Estados Parte acerca de la interpretación o la aplicación de la presente Convención que no pueda resolverse mediante la negociación dentro de un plazo razonable deberá, a solicitud de uno de esos Estados Parte, someterse a arbitraje. Si, seis meses después de la fecha de la solicitud de arbitraje, esos Estados Parte no han podido ponerse de acuerdo sobre la organización del arbitraje, cualquiera de esos Estados Parte podrá remitir la controversia a la Corte Internacional de Justicia mediante solicitud conforme al Estatuto de la Corte.
+3º—Cada Estado Parte podrá, en el momento de la firma, ratificación, aceptación o aprobación de la presente Convención o adhesión a ella, declarar que no se considera vinculado por el párrafo 2 del presente artículo. Los demás Estados Parte no quedarán vinculados por el párrafo 2 del presente artículo respecto de todo Estado Parte que haya hecho esa reserva.
+4º—El Estado Parte que haya hecho una reserva de conformidad con el párrafo 3 del presente artículo podrá en cualquier momento retirar esa reserva notificándolo al Secretario General de las Naciones Unidas.

@@ -1,0 +1,13 @@
+Artículo 12
+Decomiso e incautación
+1º—Los Estados Parte adoptarán, en la medida en que lo permita su ordenamiento jurídico interno, las medidas que sean necesarias para autorizar el decomiso:
+a) Del producto de los delitos comprendidos en la presente Convención o de bienes cuyo valor corresponda al de dicho producto;
+b) De los bienes, equipo u otros instrumentos utilizados o destinados a ser utilizados en la comisión de los delitos comprendidos en la presente Convención.
+2º—Los Estados Parte adoptarán las medidas que sean necesarias para permitir la identificación, la localización, el embargo preventivo o la incautación de cualquier bien a que se refiera el párrafo 1 del presente artículo con miras a su eventual decomiso.
+3º—Cuando el producto del delito se haya transformado o convertido parcial o totalmente en otros bienes, esos bienes podrán ser objeto de las medidas aplicables a dicho producto a tenor del presente artículo.
+4º—Cuando el producto del delito se haya mezclado con bienes adquiridos de fuentes lícitas, esos bienes podrán, sin menoscabo de cualquier otra facultad de embargo preventivo o incautación, ser objeto de decomiso hasta el valor estimado del producto entremezclado.
+5º—Los ingresos u otros beneficios derivados del producto del delito, de bienes en los que se haya transformado o convertido el producto del delito o de bienes con los que se haya entremezclado el producto del delito también podrán ser objeto de las medidas previstas en el presente artículo, de la misma manera y en el mismo grado que el producto del delito.
+6º—Para los fines del presente artículo y del artículo 13 de la presente Convención, cada Estado Parte facultará a sus tribunales u otras autoridades competentes para ordenar la presentación o la incautación de documentos bancarios, financieros o comerciales. Los Estados Parte no podrán negarse a aplicar las disposiciones del presente párrafo amparándose en el secreto bancario.
+7º—Los Estados Parte podrán considerar la posibilidad de exigir a un delincuente que demuestre el origen lícito del presunto producto del delito o de otros bienes expuestos a decomiso, en la medida en que ello sea conforme con los principios de su derecho interno con la índole del proceso judicial u otras actuaciones conexas.
+8º—Las disposiciones del presente artículo no se interpretarán en perjuicio de los derechos de terceros de buena fe.
+9º—Nada de lo dispuesto en el presente artículo afectará al principio de que las medidas en él previstas se definirán y aplicarán de conformidad con el derecho interno de los Estados Parte y con sujeción a éste.
