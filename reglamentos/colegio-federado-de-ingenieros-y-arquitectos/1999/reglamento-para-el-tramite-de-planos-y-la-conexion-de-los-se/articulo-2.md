@@ -4,7 +4,8 @@ Requerimientos
 2.2 Todos los planos de instalaciones eléctricas y de telecomunicaciones, de voz y datos deberán cumplir donde corresponda con:
 a) CODEC (Código Eléctrico de Costa Rica, aprobado en Asamblea de Representantes del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica en 1984) o el que en su momento se encuentre vigente según las regulaciones del C.F.I.A.
 b) Normas ANSI/EIA/TIA 568a, 569, 570, 606, 607.
-c) Este reglamento y otros reglamentos y normas aprobados por el CFIA.
+c) Este Reglamento y otros Reglamentos y Normas aprobadas por el C.F.I.A. y/o la Autoridad Reguladora de los Servicios Públicos (ARESEP) y las empresas públicas distribuidoras de energía.
+(Así reformado por acuerdo tomado en sesión N° 18 de abril del 2002)
 2.3 Todo proyecto de remodelación eléctrica que requiera cambio de medidor, debe presentar los planos eléctricos respectivos, de acuerdo con los procedimientos y requerimientos que mas adelante se indican
 2.4. Los proyectos definidos como Obra Mayor, tendrán como requisito obligatorio, para la elaboración, cálculo, diseño, firma e inspección, de un profesional responsable, debidamente incorporado y miembro activo del CFIA. según se detalla seguidamente.
 Estos profesionales responsables, según sea el caso deberán ser:
