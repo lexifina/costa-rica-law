@@ -1,0 +1,1 @@
+Artículo 9º—Ampliación de plazos. El INFOCOOP, previo estudio técnico podrá ampliar el plazo original del crédito hasta por la suma que permita que la nueva cuota no sea inferior en un 50% a la cuota vigente en el momento de solicitar el arreglo de pago. De ser necesario se suscribirá un título adicional que garantice a la Institución la recuperación de las cuotas no pagadas.
