@@ -1,0 +1,2 @@
+Transitorio I.- Otórgase un plazo máximo de doce meses, contados a partir de la entrada en vigencia de esta ley, a todas las personas que posean armas permitidas sin inscribir o sin el permiso de portación, para que procedan a la inscripción del arma o a la solicitud y la aprobación del permiso, según corresponda.
+(Así adicionado por el artículo 1° aparte d) de la ley N° 7957 del 17 de diciembre de 1999)
