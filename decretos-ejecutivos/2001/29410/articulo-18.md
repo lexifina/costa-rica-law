@@ -1,0 +1,1 @@
+Artículo 18.—La Comisión Permanente debe conocer los asuntos que le someta la Junta Directiva o la Fiscalía, sobre materias de avalúos y peritajes agropecuarios y forestales, tratándolos con la mayor objetividad, imparcialidad y confidencialidad.

@@ -1,0 +1,1 @@
+Artículo 28.—El Protocolo será un libro con folios numerados consecutivamente, sellados por el Colegio y deberá llenarse en idioma español, con bolígrafo o cualquier otro medio de escritura que no permita ser borrado.

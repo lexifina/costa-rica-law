@@ -1,0 +1,1 @@
+Artículo 19.—La Comisión debe rendir su informe sobre el asunto tratado, con las recomendaciones que estime pertinentes, en el plazo que le haya fijado el órgano correspondiente, pudiendo dicho plazo ser ampliado a solicitud de la Comisión.

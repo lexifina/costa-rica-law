@@ -1,0 +1,1 @@
+Artículo 32.—El Protocolo debe permanecer siempre al día; no podrá tener tachaduras, entrerrenglonaduras, borrones, ni anotaciones en los márgenes. Cualquier error u omisión debe subsanarse por medio de una nota.

@@ -1,0 +1,1 @@
+Transitorio Único.—Las personas físicas o jurídicas que a la fecha de entrada en vigencia de este Reglamento se encuentren inscritos como Peritos y Tasadores del Colegio, conservarán su inscripción y serán reclasificadas de oficio en la categoría de Perito-Tasador que corresponda, según su campo de inscripción inicial.

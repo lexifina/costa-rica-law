@@ -1,0 +1,1 @@
+Artículo 26.—Todo Perito-Tasador Agropecuario o Forestal que realice un avalúo o peritaje en forma liberal, o que labore para una persona jurídica que realice avalúos o peritajes que no sean para uso interno de la misma, debe incluir en el informe final del trabajo correspondiente, la referencia sobre la anotación del mismo en su Protocolo, citando Tomo, Folio y Asiento.

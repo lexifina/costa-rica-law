@@ -1,0 +1,1 @@
+Artículo 17.—La Comisión estará formalmente constituida, cuando estén presentes tres de sus miembros y las votaciones serán por mayoría absoluta de los presentes; en caso de empate el Coordinador decidirá por medio del doble voto.

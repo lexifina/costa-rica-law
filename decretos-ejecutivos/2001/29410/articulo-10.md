@@ -1,0 +1,1 @@
+Artículo 10.—Cualquier miembro del Colegio que no se encuentre inscrito en el Registro, que efectúe avalúos o peritajes en materia agropecuaria o forestal, se hará acreedor, conforme al debido proceso, a las sanciones disciplinarias que le puedan imponer los órganos competentes del Colegio.

@@ -1,0 +1,1 @@
+Artículo 8º—Cualquier Perito-Tasador Agropecuario o Forestal o persona jurídica inscrita, podrá retirarse temporal o definitivamente del Registro en el momento que lo desee, para lo cual deberá comunicarlo por escrito a la Junta Directiva del Colegio con un mes de anticipación, entregando al vencimiento de dicho término, el Libro de Protocolo.

@@ -1,0 +1,11 @@
+CAPÍTULO II
+De las definiciones
+Artículo 2º—Para los efectos de este Reglamento, se tienen las siguientes definiciones:
+Avalúo agropecuario o forestal: Es la determinación del valor de un activo de naturaleza agropecuaria o forestal, referido a la moneda oficial del país, emitido en una fecha determinada y que se efectúa siguiendo procedimientos técnicos. Puede incluir también la estimación de la magnitud en que se puede afectar el valor actual de dicho activo, por nuevas condiciones especiales como: servidumbres, expropiaciones, daños ocasionales, etc.
+Colegio: Colegio de Ingenieros Agrónomos de Costa Rica.
+Comisión Permanente: Grupo de cinco miembros del Colegio encargados de brindar asesoría, apoyo y colaboración a los diferentes órganos en materia de peritajes y avalúos. Órgano encargado de fiscalizar y resolver conflictos entre colegiados en relación con avalúos y dictámenes periciales.
+Peritaje agropecuario o forestal: Es el dictamen de un profesional en el cual se analizan profundamente y mediante procedimientos técnicos y científicos, el estado, las propiedades y la condición de un activo de naturaleza agropecuaria o forestal, así como los posibles agentes causales de su alteración en un determinado momento.
+Perito-Tasador Agropecuario: Es el profesional incorporado al Colegio de Ingenieros Agrónomos, que se encuentra inscrito en el Registro de Peritos-Tasadores de este Colegio y autorizado para efectuar peritajes y avalúos en materia agropecuaria.
+Perito-Tasador Forestal: Es el profesional incorporado al Colegio de Ingenieros Agrónomos, que se encuentre inscrito en el Registro de Peritos - Tasadores de este Colegio y autorizado para efectuar peritajes y avalúos en materia forestal.
+Protocolo: Libro con folios numerados consecutivamente, sellado y registrado en el Colegio, en donde el Perito-Tasador Agropecuario o Forestal consignará un resumen de cada trabajo en efectúe en esta materia.
+Registro: Es el sistema de inscripción y administración que llevará el Colegio de Ingenieros Agrónomos, sobre las personas físicas acreditadas como Peritos - Tasadores Agropecuarios o Forestales, así como de las personas jurídicas inscritas en el Colegio para estos fines.

@@ -1,0 +1,1 @@
+Artículo 25.—La Comisión Permanente puede solicitar a cualquier Perito-Tasador Agropecuario o Forestal en el momento que lo considere oportuno y para su respectiva revisión el Libro de Protocolo, estando el profesional en la obligación de presentarlo en un plazo no mayor de 15 días naturales, a partir de la fecha en que le es requerido.

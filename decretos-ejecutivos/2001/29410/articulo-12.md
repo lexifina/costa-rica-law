@@ -1,0 +1,1 @@
+Artículo 12.—Ningún miembro del Colegio debe cobrar honorarios inferiores a los establecidos en las tarifas mínimas fijadas por el Poder Ejecutivo para avalúos y peritajes en materia agropecuaria y forestal, de lo contrario se hará acreedor a las sanciones que le imponga el órgano correspondiente del Colegio.

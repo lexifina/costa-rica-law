@@ -1,0 +1,1 @@
+Artículo 16.—La Comisión nombrará un Coordinador y un Secretario y se reunirá en forma ordinaria una vez al mes en el Colegio y extraordinariamente cuando la convoque el Coordinador o tres de sus miembros. El Secretario levantará el acta correspondiente a cada una de las sesiones de la Comisión

@@ -1,0 +1,1 @@
+Artículo 6º—Las personas jurídicas que presten servicios en los campos de avalúos y peritajes agropecuarios o forestales, cuyos trabajos no sean para su uso interno, deben inscribirse en el Registro. En cualquier caso los trabajos efectuados deben ser firmados por colegiados inscritos en el Registro respectivo.

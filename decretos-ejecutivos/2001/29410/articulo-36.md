@@ -1,0 +1,1 @@
+Artículo 36.—El Colegio autorizará la apertura de un nuevo Protocolo, siempre y cuando el profesional haya entregado el anterior, salvo en caso de pérdida del mismo y que el profesional haya efectuado la debida comunicación al Colegio.

@@ -1,0 +1,1 @@
+Artículo 7º—Todo Perito - Tasador Agropecuario o Forestal, así como las personas jurídicas, deben cancelar a más tardar el 31 de enero de cada año, la tarifa anual que fije la Junta Directiva del Colegio, para mantener su inscripción en el Registro correspondiente, con la excepción establecida en el artículo 20, inciso f de este Reglamento.

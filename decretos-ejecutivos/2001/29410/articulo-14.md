@@ -1,0 +1,1 @@
+Artículo 14.—Los avalúos y peritajes agropecuarios y forestales que realicen las personas jurídicas, deben ser cobrados acatando las tarifas mínimas de honorarios que apruebe el Poder Ejecutivo para estos efectos, excepto en aquellos casos que dichos trabajos sean exclusivamente para fines internos de estas entidades.

@@ -1,0 +1,1 @@
+Artículo 33.—Cuando el Protocolo esté lleno, el profesional responsable del mismo debe anotar y firmar en la última hoja una razón de conclusión, indicando la fecha de cierre. Una vez efectuado este cierre, el profesional debe depositarlo en el Colegio para su debida custodia.

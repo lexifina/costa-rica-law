@@ -1,0 +1,1 @@
+Artículo 21.—En casos muy calificados la Junta Directiva del Colegio podrá aprobar, por vía de excepción, la inscripción de profesionales como peritos-tasadores en una categoría distinta a la de su orientación académica, si el interesado demuestra que su ejercicio profesional se ha dirigido durante los últimos cinco años al área que pretende inscribir.
