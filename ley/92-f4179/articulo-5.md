@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-Si no pudiese tener efecto lo dispuesto en el art. anterior, el Poder Ejecutivo queda autorizado para hacer la venta de dichos caldos del modo que le parezca mas conveniente, consultando siempre los intereses del erario nacional; y para que resuelva las dudas y dificultades que se presenten en la ejecución de esta ley.
