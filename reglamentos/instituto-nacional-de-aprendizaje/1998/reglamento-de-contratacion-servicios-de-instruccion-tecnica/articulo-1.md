@@ -1,0 +1,2 @@
+(NOTA DE SINALEVI: La Junta Directiva del Instituto Nacional de Aprendizaje, mediante sesión Nº 4037, celebrada el 20 de enero del 2003, acuerdo 16-2003 JD, artículo V, sesión Nº 4055, celebrada 12 de mayo del 2003, acuerdo 107-2003 JD, artículo V y sesión Nº 4056, celebrada 19 de mayo de 2003, acuerdo 117-2003 JD artículo VII, acordó la aprobación de un nuevo Reglamento de Contratación de Servicios de Instrucción Técnica, publicado en La Gaceta N° 102 del 29 de mayo del 2003, el cual puede consultarse en el Sistema).
+Artículo 1°-
