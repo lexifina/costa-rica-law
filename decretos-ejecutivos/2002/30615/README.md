@@ -14,3 +14,4 @@ Reforma Intervención Administrativa, Financiera, Técnica y Operativa del Proye
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-13 | la propia norma |
+| 2 | 2003-08-20 | Decreto Ejecutivo 31353 (2003-08-20) |
