@@ -1,0 +1,1 @@
+Art 3°.- Para la enajenación de estos terrenos se procederá á dividirlos en lotes que no excedan de treinta manzanas, pudiendo las Municipalidades conceder plazo para el pago hasta de nueve años, verificando los pagos por décimas partes, la primera anticipada, y reconociendo un interés que no baje seis por ciento, ni exceda del doce.
