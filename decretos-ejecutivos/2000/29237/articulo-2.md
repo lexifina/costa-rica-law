@@ -1,0 +1,1 @@
+Artículo 2º—La bitácora es un documento oficial que permite hacer constar la relación laboral o contractual de los profesionales asociados y sus contratantes. Cualquier otro registro por otras entidades u organizaciones, no sustituye la bitácora.

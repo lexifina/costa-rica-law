@@ -1,0 +1,1 @@
+Artículo 6º—Toda anotación en la bitácora será hecha con tinta indeleble, precedida por el nombre del profesional, su número de colegiado, la fecha y la ubicación geográfica, política o administrativa, al finalizar deberá consignarse la firma y el número de cédula del profesional anotando posteriormente las palabras: "última línea".

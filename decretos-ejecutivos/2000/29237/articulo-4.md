@@ -1,0 +1,1 @@
+Artículo 4º—La bitácora contiene una hoja original y su copia será de uso exclusivo del profesional, la primer hoja permanecerá donde sirva para dar fe pública de su labor y la segunda permanecerá adherida al cuaderno de bitácora. Cuando la bitácora se utilice en más de una actividad, las anotaciones serán consignadas en folios separados.
