@@ -1,0 +1,1 @@
+Artículo 12.—De los recursos humanos, materiales y tecnológicos. Todos los recursos humanos, materiales y tecnológicos anteriormente asignados al Consejo Directivo de Pensiones se trasladan íntegramente al Consejo Asesor.

@@ -1,0 +1,1 @@
+Artículo 9º—De las sesiones ordinarias y extraordinarias. Las sesiones ordinarias y extraordinarias estarán regidas por los principios establecidos en el artículo 52 de la Ley General de la Administración Pública.

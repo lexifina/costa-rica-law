@@ -1,0 +1,1 @@
+Artículo 5º—De la Presidencia del Consejo. Los integrantes del Consejo Directivo nombrarán por mayoría simple al Presidente, quien durará en su cargo dos años, pudiendo ser reelecto hasta por un período consecutivo más.

@@ -1,0 +1,1 @@
+Artículo 7º—Del Vicepresidente. De manera similar al Presidente, el Consejo elegirá de entre sus miembros un vicepresidente; quien en ausencia de aquel, tendrá sus mismas facultades, atribuciones y obligaciones.

@@ -1,0 +1,12 @@
+N° 30476-MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las facultades que les confieren los incisos 3), 18) y 20) del artículo 140 y 146 de la Constitución Política, con fundamento en los numerales 24, 25, 27,28, 59,83 y 103 de la Ley General de la Administración Pública y en ejecución de los artículos 4, 69 a 72, y 143 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social.
+Considerando:
+I.—Que el tema de Pensiones constituye un punto importante dentro de la agenda nacional de desarrollo.
+II.—Que el Decreto Número 30397-MTSS publicado en La Gaceta Número 95 del 20 de mayo del 2002; es omiso en cuanto a la creación de un órgano de segunda instancia, concebido como opción del administrado para el respeto de la legalidad.
+III.—Que el Ministro del ramo, se constituye en órgano de decisión administrativa final y que por lo tanto requiere de la asesoría especializada; para lo cual tiene potestades para crear un Departamento que cumpla con esas finalidades de conformidad con los artículos 4º y 143 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social.
+IV.—Que el decreto Número 30397-MTSS publicado en La Gaceta Número 95 del 20 de mayo del 2002, en su transitorio IV autoriza a trasladar todos lo recursos humanos, materiales y tecnológicos asignados al Consejo Directivo de Pensiones creado mediante los Decretos Número 25908-MP-MTSS del 24 de marzo de 1997 y número 26093-MP-MTSS del 26 de mayo de 1997, a cualquier dependencia a la cual se le asignan las funciones, atribuciones, actividades, tareas y competencias que hayan estado a cargo de dicho Consejo. Por lo tanto, el citado Decreto Número 30397-MTSS, dejó sin efecto el funcionamiento del Consejo Directivo de Pensiones, que venía ejerciendo sus labores en forma eficaz, como órgano asesor del Ministro desde marzo de 1997. Por tanto,
+DECRETAN:
+Artículo 1º—Creación del Consejo Directivo en materia de Pensiones y Jubilaciones. Créase el Consejo Directivo de Pensiones como órgano Asesor del Ministro en materia de Pensiones y Jubilaciones con cargo al Presupuesto Nacional; adscrito a la Oficina del Ministro de Trabajo.
+Se entenderá por régimen de pensiones y jubilaciones con cargo al presupuesto nacional, a todos aquellos regímenes contributivos y no contributivos amparados a leyes especiales modificadas por la Ley Número 7302 del 15 de julio de 1992; exceptuando el Capítulo VI, "Reformas a la Ley Número 1922 del 5 de agosto de 1955 y sus reformas, Ley de Pensiones e Indemnizaciones de Guerra".
