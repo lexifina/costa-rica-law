@@ -7,5 +7,5 @@ la renta líquida gravable, cantidad que se dividirá entre cuatro.
 En los casos en que los declarantes del impuesto sobre la renta no
 obtengan renta líquida gravable, o en aquellos casos en que las personas,
 por no ser declarantes de dicho impuesto, no puedan calcular la renta
-líquida gravable, se aplicará el factor correspondiente a las ventas o los
-ingresos brutos.
+líquida gravable, se aplicará el factor correspondiente a las ventas o
+los ingresos brutos.
