@@ -1,0 +1,1 @@
+Artículo 15.-Si el estudiante hubiera realizado trabajos de investigación adicionales en los últimos años de estudio, ya sea como autor o como co-autor debidamente certificados, esos atestados serán considerados por la Comisión Ad-Hoc como criterio adicional para la selección final.

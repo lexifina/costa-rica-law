@@ -1,0 +1,1 @@
+Artículo 11.-La Junta Directiva y la Comisión Ad-Hoc divulgarán la apertura del concurso a través de los medios de comunicación colectiva necesarios, en las unidades académicas de los Centros de Enseñanza Superior del país que impartan especialidades biológicas, a más tardar a principios del mes de julio.

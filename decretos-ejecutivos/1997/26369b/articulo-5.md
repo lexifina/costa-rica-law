@@ -1,0 +1,1 @@
+Artículo 5°-Poseer experiencia en el campo de la investigación acreditada por el profesor que dirigió la investigación. EI trabajo debe ser original y el tema elegido debe constituir un aporte científico.

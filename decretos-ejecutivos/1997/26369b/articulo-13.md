@@ -1,0 +1,1 @@
+Artículo 13.-La Junta Directiva dará a conocer el resultado del concurso en el Boletín Oficial del Colegio, en uno de los medios de comunicación colectiva y a través de las unidades académicas respectivas.

@@ -1,0 +1,1 @@
+Artículo 16.-El trabajo de investigación cumplirá con los requisitos mínimos de presentación, tal y como se exigen para publicar un artículo científico en una revista especializada con comité editorial. El interesado presentará original y dos copias.

@@ -1,0 +1,1 @@
+Artículo 2°-El premio consta de dos partes: a) Una Mención Honorífica emitida por la Junta Directiva, b) Una gratificación acorde al presupuesto del Colegio y al costa de vida, fijado por la Junta Directiva.
