@@ -14,3 +14,4 @@ Impuesto Selectivo de Consumo establecido sobre los Combustibles tomando en cuen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-17 | la propia norma |
+| 2 | 2001-05-11 | Decreto Ejecutivo 29521 (2001-05-11) |
