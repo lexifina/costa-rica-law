@@ -40,28 +40,27 @@ VIII) La fijación de precios hecha por el SNE, conforme con la ley y a este reg
 IX) Antes de dictar la resolución de fondo sobre la fijación de precios el SNE deber á obtener el criterio del Ministerio de Industria, Energía y Minas sobre las políticas energéticas nacionales.
 X) Una vez tomada la resolución sobre la fijación de precios, el SNE suministrará a RECOPE los estudios y documentos que sirvieron de base a la misma.
 (*)XI-El procedimiento extraordinario consiste en la aplicación de la siguiente fórmula de ajuste que operará, siempre y cuando la variación de:
-| [imagen]
+|PR X TCR| ≥1
+|PE X TCE|
 Donde:
-PR═ Es el precio promedio del petróleo y sus derivados, pagado por RECOPE, desde la última fijación de precios ($/BBL)
-PE═ Es el precio promedio utilizado por el SNE para el petróleo crudo y sus derivados ($/BBL), en la última fijación de precios (ordinaria o extraordinaria).
+PR═ Es el precio promedio del petróleo crudo y sus derivados, pagados por RECOPE, desde la última fijación de precios ($/BBL)
+PE═ Es el precio promedio utilizado por el Servicio Nacional de Electricidad para el petróleo crudo y sus derivados ($/BBL), en la última fijación de precios (ordinaria o extraordinaria).
 TCR═ Es el tipo de cambio promedio producidos en el petróleo transcurrido desde la última fijación de precios internos (¢/US$).
-TCE ═ Es el tipo de cambio promedio utilizado por el SNE (¢/US$), en la última fijación de precios (ordinario o extraordinaria)
+TCE ═ Es el tipo de cambio promedio utilizado por el Servicio Nacional de Electricidad (¢/US$), en la última fijación de precios (ordinario o extraordinaria)
 El Servicio Nacional de Electricidad aplicará la siguiente fórmula de ajuste en precios de venta internos.
-| [imagen]
-A═
-Donde.
-A═ Es la proporción de ajuste en los precios internos de todos y cada uno de los productos que expende RECOPE, en el mercado nacional.
-X═ Es la proporción del gasto total que corresponde al gasto por importación de petróleo crudo y sus derivados, conforme con el presupuesto anual vigente.
-X ═ Razón del impuesto de ventas.
+A═(PR X TCR –PE X TCE) X P
+PE X TCE
+Donde:
+A═ Es la proporción de ajuste en los precios de venta internos de todos y cada uno de los productos que expende RECOPE, en el mercado nacional.
+P═ Es la proporción del gasto total que corresponde al gasto por importación de petróleo crudo y sus derivados, conforme con el presupuesto anual vigente.
 Los nuevos precios de venta están dados por el siguiente cálculo:
 PV═ PA *(1 + A)
 Donde:
-PV ═ Nuevo precio de venta de todos y cada uno de los combustibles que expende RECOPE en el mercado nacional.
-PA ═ Precio actual de cada combustible.
-(*)(Así adicionado el procedimiento anterior por el artículo 1° del decreto ejecutivo N° 19707 del 3 de mayo de 1990)
-(*)XII-Para la aplicación de la fórmula antes descrita, RECOPE presentará al SNE la siguiente información:
+PV ═ Es el nuevo precio de venta interno de todos y cada uno de los productos que expende RECOPE en el mercado nacional.
+PA ═ es el precio de venta actual al consumidor final de cada combustible que se consume en el mercado nacional.
+“XII-Para la aplicación de la fórmula antes descrita, RECOPE presentará al Servicio Nacional de Electricidad la siguiente información:
 a) Lista mensual de precios internacionales pagados por RECOPE, desde la última revisión de precios, y el tipo de cambio vigente en el momento del pago de la importación.
-b) Gastos totales estimados por RECOPE, en su presupuesto anual vigente, lo mismo que el gasto estimado correspondiente a la importación de petróleo crudo y derivados, previsto en su presupuesto anual vigente.
-(*)(Así adicionado el procedimiento anterior por el artículo 1° del decreto ejecutivo N° 19707 del 3 de mayo de 1990)
-(*)XIII-Analizada la información contenida en el artículo precedente, si se produseje el resultado previsto en el artículo 1° de este Decreto, el Servicio Nacional de Electricidad procederá, a solicitud de RECOPE, a ajustar los preciso internos de todos los productos que expende en el mercado local, conforme con la fórmula expuesta, para lo cual la Junta Directiva del citado ente tomará la respectiva resolución, que regirá a partir de su publicación en “La Gaceta.
-(*)(Así adicionado el procedimiento anterior por el artículo 1° del decreto ejecutivo N° 19707 del 3 de mayo de 1990)
+b) Gastos totales estimados por RECOPE, en su presupuesto anual vigente, lo mismo que el gasto total estimado correspondiente a la importación de petróleo crudo y derivados, previsto en su presupuesto anual vigente.”
+XIII-Analizada la información contenida en el artículo precedente, si se produseje el resultado previsto en el artículo 1° de este Decreto, el Servicio Nacional de Electricidad procederá, a solicitud de RECOPE, a ajustar los preciso internos de todos los productos que expende en el mercado local, conforme con la fórmula expuesta, para lo cual la Junta Directiva del citado ente tomará la respectiva resolución, que regirá a partir de su publicación en “La Gaceta”:
+XIV. El procedimiento contenido en el presente decreto ejecutivo no requiere la consulta previa al Ministerio de Recursos Naturales, Energía y Minas.
+(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 19839 del 4 de julio de 1990)
