@@ -1,0 +1,1 @@
+Artículo 8º—Los datos básicos de los oferentes que deberán ser registrados, serán: nombre o razón social, número de cédula de la persona física o jurídica, número de teléfono o telefax, apartado postal, correo electrónico, citas de inscripción, personería jurídica, naturaleza y propiedad de las acciones en el caso de sociedades y licencia de representante de casas extranjeras.

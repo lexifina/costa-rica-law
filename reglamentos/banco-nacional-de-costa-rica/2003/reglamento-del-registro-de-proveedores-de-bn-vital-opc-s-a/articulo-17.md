@@ -1,0 +1,1 @@
+Artículo 17.—Una vez que el particular subsana los defectos, BN Vital cuenta con cinco días hábiles para rechazar o efectuar la inscripción solicitada. Si BN Vital incumple con este plazo, se tendrá por efectuado el registro pedido.

@@ -1,0 +1,1 @@
+Artículo 22.—Cuando sea procedente suspender o excluir a un proveedor del registro respectivo, se le dará un plazo de cinco días hábiles para que realice su defensa. Pasado este lapso, BN Vital resolverá lo pertinente.

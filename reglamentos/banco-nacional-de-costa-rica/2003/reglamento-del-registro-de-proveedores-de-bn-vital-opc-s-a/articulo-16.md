@@ -1,0 +1,1 @@
+Artículo 16.—En el caso de que la solicitud de registro presente defectos o deficiencias, al particular se le dará un plazo máximo de cinco días hábiles para que los subsane. Si el particular incumple este plazo, se tendrá por rechazada la inscripción solicitada en esta oportunidad.

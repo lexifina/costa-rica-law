@@ -1,0 +1,1 @@
+Artículo 15.—En un plazo máximo de diez días hábiles, contados a partir de la recepción de la solicitud de registro por el particular, BN Vital tiene que emitir la resolución respectiva. Si BN Vital incumple este plazo, se tendrá por hecho el registro solicitado.

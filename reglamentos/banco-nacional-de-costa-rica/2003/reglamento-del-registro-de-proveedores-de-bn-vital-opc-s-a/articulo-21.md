@@ -1,0 +1,1 @@
+Artículo 21.—Cuando al particular se le apliquen las sanciones previstas en los artículos 99 y 100 de La Ley de Contratación Administrativa y 106 de su Reglamento, tal circunstancia se hará constar en el registro de proveedores, en su sección de sanciones, con el fin de dar cumplimiento a ellas.
