@@ -1,0 +1,1 @@
+Articulo 6°—Los miembros de la Comisión , en el desempeño de estas labores, no gozarán de ninguna remuneración adicional. Sin embargo, se entiende que la institución o dependencia a la cual pertenecen, los autoriza a destinar parte de su jornada habitual al cumplimiento de las responsabilidades y del programa de trabajo de la Comisión.
