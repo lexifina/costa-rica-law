@@ -1,0 +1,1 @@
+Artículo 25.—Dependiendo de las circunstancias en que se hubiese originado dicho faltante se podrá considerar como simple o grave. De ser grave se Someterá a investigación a fin de aplicar la medida disciplinaria correspondiente.

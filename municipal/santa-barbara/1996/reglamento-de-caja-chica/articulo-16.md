@@ -1,0 +1,1 @@
+Artículo 16.—El encargado de caja chica no tramitará el adelanto si no se cumple a cabalidad con los requisitos que se exigen en los artículos Nos. 12, 13, 14 y 15 (de los formularios; del uso y de las compras).

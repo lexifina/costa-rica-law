@@ -1,0 +1,1 @@
+Artículo 19.—Cuando se establezca atraso en la liquidación, el encargado del fondo deberá comunicarlo al ejecutivo municipal al siguiente día hábil, en caso de no hacerlo será responsable de tal erogación.

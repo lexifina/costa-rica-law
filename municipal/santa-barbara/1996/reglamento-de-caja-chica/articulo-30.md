@@ -1,0 +1,1 @@
+Artículo 30.—Así mismo el funcionario que incumpla el artículo N° 18 (de liquidar al día hábil siguiente a la fecha de retiro más un día de gracia previa justificación), de girará la orden a planillas de rebajar de su salario la suma igual a la del vale.

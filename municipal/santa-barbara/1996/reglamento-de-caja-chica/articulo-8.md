@@ -1,0 +1,2 @@
+De la administración de caja chica
+Artículo 8°-—En caso de que el encargado de la caja chica se ausente de la institución por vacaciones, incapacidad, permiso sin goce de salario o permiso temporal, los recursos del fondo se traspasarán transitoriamente al funcionario que lo sustituya. Para dicho traspaso se hará el arqueo respectivo, cuyo resultado será firmado de conformidad, por ambos funcionarios, igual procedimiento se realizará cuando el titular de puesto se reincorpore a sus tahúres.
