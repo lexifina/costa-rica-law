@@ -1,1 +1,0 @@
-Artículo 9°.- La Dirección General Forestal hará un inventario forestal de la Reserva, dará los datos básicos para hacer planos de ordenación del bosque y su zonificación según su capacitación de uso.

@@ -1,1 +1,0 @@
-Artículo 3°.- Dentro de la Reserva Forestal se incluye la faja de terreno Forestal de la reserva indígena de Salitre y la faja de terreno de dos kilómetros de ancho a lo largo de la frontera con Panamá.

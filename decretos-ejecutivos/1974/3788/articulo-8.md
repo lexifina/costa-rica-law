@@ -1,1 +1,0 @@
-Artículo 8°.- Las zonas protectoras, los parques nacionales que en esta Reserva Forestal se establezcan, así como los bosques y terrenos forestales de propiedad privada existentes en la misma, quedarán automáticamente sometidos al Régimen Forestal todo de conformidad con lo dispuesto por los artículos 6° y 71 de la Ley Forestal, N° 4465 de 25 de noviembre de 1969.
