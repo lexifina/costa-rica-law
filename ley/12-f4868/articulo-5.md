@@ -1,0 +1,5 @@
+Artículo V
+La República de Costa Rica y la República de Panamá tendrán a perpetuidad en idénticas condiciones y sin limitación o gravamen de ninguna naturaleza, la libre navegación en el río Sixaola, desde su confluencia con el Yorkín hasta su desembocadura, y en el río Yorkín, desde el paralelo de latitud 9°. 30° Norte de Ecuador hasta su confluencia con el Sixaola.
+En el caso de que alguno de estos nos cambiara de curso, la línea de frontera seguirá siendo el thalweg de dicho río al momento de firmarse éste Tratado; pero las dos Naciones continuaran disfrutando de la libre navegación aquí estipulada, aun en aquella parte del río que por la variación de su curso haya quedado en territorio de una ellas y la que hubiere perdido la ribera del río, podrá usar la del nuevo cauce en caso de emergencia para los efectos de la navegación.
+Esto no impedirá que cualquiera de las dos Naciones pueda en cualquier tiempo y a su costo encauzar el río por su thalweg actual.
+Toda obra que uno de los dos Gobiernos desee realizar en los ríos medianeros, debecontar previamente con la aprobación de la otra parte.
