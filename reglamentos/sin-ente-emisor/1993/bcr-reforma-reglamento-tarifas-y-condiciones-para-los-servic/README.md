@@ -13,3 +13,4 @@ BCR: Reforma Reglamento Tarifas y Condiciones para los Servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-10-20 | la propia norma |
+| 2 | 1994-09-26 | Reglamento 0 (1994-09-26) |
