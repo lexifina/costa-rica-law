@@ -1,0 +1,9 @@
+ARTICULO 11.- La Junta Directiva se reunirá, en sesión ordinaria,
+cuatro veces al mes, en la sede del Instituto, el día y a la hora que ella
+determine. Asimismo, sesionará en forma extraordinaria en el lugar que
+ella señale cuando sea absolutamente necesario, por convocatoria del
+Presidente o del Vicepresidente o de cuatro o más de sus miembros,
+mediante comunicación escrita, presentada por lo menos con doce horas de
+antelación, salvo en los casos en que todos los miembros estén presentes
+y acuerden prescindir de la convocatoria por tratarse de un caso de
+urgencia.

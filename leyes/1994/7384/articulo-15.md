@@ -1,0 +1,5 @@
+ARTICULO 15.- Los miembros de la Junta Directiva durarán en sus
+cargos cuatro años. Serán nombrados en el mes de junio del mismo año en
+que se inicie el período presidencial del Gobierno de la República;
+empezarán a ejercer sus funciones el primero de julio de ese mismo año y
+podrán ser reelegidos.

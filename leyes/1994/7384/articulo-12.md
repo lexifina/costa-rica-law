@@ -1,0 +1,8 @@
+ARTICULO 12.- La asistencia puntual de los miembros de la Junta
+Directiva a las sesiones, les dará el derecho al cobro de dietas; estas se
+establecerán por medio de decreto ejecutivo y serán las únicas
+remuneraciones que podrán percibir por el desempeño de sus funciones.
+Sólo se podrán celebrar seis sesiones remuneradas cada mes,
+incluyendo las ordinarias y extraordinarias. No tendrán derecho de dietas,
+el Presidente Ejecutivo, el Auditor ni ningún otro funcionario del
+Instituto que asista a las sesiones de la Junta Directiva.

@@ -1,0 +1,6 @@
+ARTICULO 6.- El Instituto tendrá capacidad para comprar, vender y
+arrendar bienes muebles o inmuebles y títulos valores; podrá recibir
+donaciones; tendrá, asimismo, capacidad para prestar, financiar, hipotecar
+y realizar las gestiones comerciales y legales que sean de contratación,
+de conformidad con lo que dispone la Ley de la Administración Financiera
+de la República No. 1279, del 2 de mayo de 1951.
