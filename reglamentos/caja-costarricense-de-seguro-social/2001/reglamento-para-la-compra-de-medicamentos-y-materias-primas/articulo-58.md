@@ -1,0 +1,1 @@
+Artículo 58.—La Caja aceptará una única reposición por cada partida que llegare a rechazar su Laboratorio de Normas y Calidad de Medicamentos y ello deberá cumplirse dentro del plazo que la Caja, en cada caso indique.

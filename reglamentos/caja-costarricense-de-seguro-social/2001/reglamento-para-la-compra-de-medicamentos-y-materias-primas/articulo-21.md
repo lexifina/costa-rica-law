@@ -1,0 +1,1 @@
+Artículo 21.—La vigencia de la oferta debe ser de un mínimo de 60 días naturales, para la compra de medicamentos y materias primas para su fabricación. Estos plazos se contarán a partir de la fecha de apertura.

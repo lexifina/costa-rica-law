@@ -1,0 +1,2 @@
+Artículo 13.—El costo del análisis de control de calidad para los productos que ingresen al Departamento de Almacenamiento y Distribución, efectuado por el LNCM, será por cuenta de la Caja. Los costos de análisis adicionales que sea necesario para aceptar reemplazos o reclamos serán pagados por el interesado.
+El cobro de los análisis se hará con base a la tarifa que establezca la Caja, cuyo monto se publicará en el documento denominado "Modelo Tarifario" que emite la Sección de Contabilidad de Costos Industriales de la Dirección Financiero Contable.

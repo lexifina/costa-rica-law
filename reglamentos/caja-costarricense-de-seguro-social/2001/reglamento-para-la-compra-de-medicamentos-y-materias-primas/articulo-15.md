@@ -1,0 +1,1 @@
+Artículo 15.—El Departamento de Adquisiciones comunicara al interesado el resultado de su solicitud de inscripción en el Registro de Oferentes, en un plazo máximo de sesenta días naturales a partir de la fecha en que fue recibida.

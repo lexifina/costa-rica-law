@@ -1,0 +1,5 @@
+Artículo 25. Procedimiento para situaciones de procesos productivos o empaques:
+Cuando los proveedores tengan variantes de producción, por razones del proceso productivo o empaque, podrán ofrecerlos a la Institución y ésta aceptarlos en los siguientes términos: Diferencias hasta de un 5%, menos o más de la cantidad contratada, se aceptan de oficio.
+Diferencias mayores al 5% y hasta un máximo del 10%, menos o más de la cantidad contratada, el interesado deberá plantear la solicitud de autorización y la Administración, mediante un acto razonado, podrá aceptarlo o rechazarlo.
+En ambos casos, las cantidades adicionales que se acepten como parte de la ejecución de este artículo, serán recibidas por parte del Departamento de Almacenamiento y Distribución con la última entrega que haga el proveedor al amparo de la orden de compra o contrato.
+Las mismas deberán facturarse en forma separada de la última entrega de la orden de compra o contrato y su precio no podrá ser mayor al precio de contratación.

@@ -1,0 +1,1 @@
+Artículo 4°—Las personas físicas o jurídicas interesadas en inscribirse, deben llenar los formularios correspondientes y presentar los Estos deben ser presentados en idioma español, con dos copias y acompañados de los documentos correspondientes conforme a lo establecido en el presente reglamento.

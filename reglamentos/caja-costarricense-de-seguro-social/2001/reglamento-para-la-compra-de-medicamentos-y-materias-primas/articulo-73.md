@@ -1,0 +1,1 @@
+Artículo 73.—Cuando la Garantía de cumplimiento fuere ejecutada antes del vencimiento del contrato por incumplimiento del co-contratante particular: excepto en caso de resolución, éste quedara obligado a rendir una nueva garantía de manera que el contrato quede debidamente garantizado hasta la ejecución total.

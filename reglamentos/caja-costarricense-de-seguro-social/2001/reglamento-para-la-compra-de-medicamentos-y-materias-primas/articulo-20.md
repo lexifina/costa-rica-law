@@ -1,0 +1,2 @@
+OFERTAS
+Artículo 20.—Las ofertas deberán ser dirigidas a la Caja- Departamento de Adquisiciones, formularse en original y dos copias. Se recibirán en el Departamento de Adquisiciones de la Caja, a más tardar, a la hora y fecha establecida en el respectivo cartel, la administración no asumirá ninguna responsabilidad en el caso de ser inducida a error por las indicaciones anotadas en los sobres que contienen las ofertas.

@@ -1,0 +1,7 @@
+CAPÍTULO III
+De la inscripción y reinscripción en el Registro de Oferentes
+Artículo 7°—La solicitud para el registro de medicamentos y las materias primas para su elaboración debe incluir la siguiente información, si corresponde:
+Certificación de la inscripción, en el Ministerio de Salud de Costa Rica, del producto, con la indicación de su vigencia, extendida por el Ministerio de Salud, original y copia certificada más una copia.
+Nombre del representante de casas extranjeras, apoderado o distribuidor autorizado, número de cédula de identidad o jurídica y sus citas de inscripción en el Registro Público para el caso de personas jurídicas, como número de teléfono, fax, telex, correo electrónico, apartado postal dirección exacta del solicitante y su representante en el país y cualquier otro dato o medio de comunicación que facilite el envío de solicitudes de cotización y correspondencia. Todos estos documentos deben estar firmados por quien tenga la representación legal en el país o por la persona autorizada legalmente para hacerlo. Estas mismas regulaciones se aplicaran para las compras de materias primas.
+Compromiso expreso del proveedor, de reponer en un máximo de 90 días naturales a partir de su notificación, los productos que hubieren sufrido deterioro dentro del plazo máximo de conservación o que fueren rechazados por el LNCM.
+El compromiso incluirá en el caso de que no se efectuare la reposición, la obligación de reintegrar a la Caja, en el mismo plazo indicado, el precio pagado más los daños y perjuicios causados a la Institución.

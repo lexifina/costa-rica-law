@@ -1,0 +1,1 @@
+Artículo 38.—El vendedor queda comprometido a facilitar a la Caja cuando ésta lo requiera, la obtención de muestras de las mercancías mientras éstas se encuentren en aduanas, a efecto de proceder a los análisis previos que estime necesarios.

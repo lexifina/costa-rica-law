@@ -1,0 +1,2 @@
+Artículo 30.—Las cotizaciones de mercancías extranjeras que arriben independientemente del modo de transporte (aéreo, marítimo o terrestre) deben efectuarse en términos DDU (Delivered Duty Unpaid) (entregado con impuestos sin pagar). Destino final el especificado en el cartel.
+Se entiende que el vendedor termina su obligación de entrega, cuando las mercancías hayan sido puestas a disposición de la Caja en el depósito aduanero o en el destino final especificado en la orden de compra o contrato, asumiendo todos los gastos, riesgos y tramites hasta el lugar indicado.

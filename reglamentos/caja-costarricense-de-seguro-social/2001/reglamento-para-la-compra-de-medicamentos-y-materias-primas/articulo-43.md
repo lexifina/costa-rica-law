@@ -1,0 +1,2 @@
+Artículo 43.—Se autorizarán prórrogas para la ejecución del contrato por razones de fuerza mayor debidamente acreditadas por el contratista o por demoras ocasionadas por la administración.
+En uno u otro caso. el contratista solicitara dicha prórroga a más tardar dentro de los ocho días siguientes al conocimiento del hecho que demorara la ejecución. No se considerarán prórrogas vencidos los términos de ejecución previstos, sin perjuicio del derecho de justificar el incumplimiento por los medios legales establecidos.

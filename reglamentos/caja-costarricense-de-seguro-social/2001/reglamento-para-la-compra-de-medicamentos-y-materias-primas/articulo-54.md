@@ -1,0 +1,1 @@
+Artículo 54.—Deben incluir declaración jurada de encontrarse al día en las obligaciones relativas al régimen de impuestos directos a que se refiere el artículo 6° de la Ley N° 3173 del 12 de agosto de 1963, en concordancia con el artículo 56 del reglamento de Contratación Administrativa.
