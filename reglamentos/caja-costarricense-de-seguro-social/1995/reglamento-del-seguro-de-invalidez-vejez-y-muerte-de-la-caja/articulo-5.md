@@ -1,5 +1,6 @@
 Artículo 5°
-Tiene derecho a pensión por vejez, el asegurado que alcance los 65 años de edad, siempre que haya contribuido a este seguro al menos 240 cuotas mensuales.
+Tiene derecho a la pensión por vejez el asegurado que alcance los 65 años de edad, siempre que haya aportado a este Seguro al menos 240 cuotas mensuales.
+(Así reformado el párrafo primero por acuerdo tomado en sesión N° 7085 de 10 de diciembre de 1996)
 El asegurado podrá anticipar su retiro con derecho a pensión por vejez siempre que cumpla los requisitos mínimos en cuanto a cotización y edad, según sexo, conforme con las siguientes tablas
 SEXO: MASCULINO | | SEXO: FEMENINO |
 COTIZACIONES | PENSIONARSE | COTIZACIONES | PENSIONARSE
