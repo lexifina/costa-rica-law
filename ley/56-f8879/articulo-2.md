@@ -1,0 +1,1 @@
+Art 2°.- Los mismos consignatarios o dueños, para poder salir el buque de la bahía o continuar su viaje, deben presentar con la anterioridad suficiente un manifiesto de los frutos del país y efectos que en el exportan, señalando su valor en el mismo puerto.
