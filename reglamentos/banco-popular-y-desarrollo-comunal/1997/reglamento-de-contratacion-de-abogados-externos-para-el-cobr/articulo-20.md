@@ -1,0 +1,1 @@
+Artículo 20.—En los juicios ejecutivos simples, el Abogado Director deberá realizar, antes de instaurar el proceso, estudios regístrales de bienes de todos los demandados, y solicitar los embargos cuando corresponda, deberá además actualizar anualmente dichos estudios, salvo que la Oficina Contralora le indique lo contrario.

@@ -1,0 +1,1 @@
+Artículo 19.—En juicios ejecutivos prendarios el abogado deberá solicitar el embargo del bien con la interposición de la demanda, en los juicios ejecutivos hipotecarios, la oficina contralora valorará, de acuerdo a los riesgos a que esté expuesta la propiedad hipotecada, si instruye al abogado para que gestione el embargo.

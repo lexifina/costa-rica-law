@@ -1,0 +1,5 @@
+Artículo 17.—El abogado deberá realizar además de otras gestiones indicadas en este Reglamento, las siguientes:
+A) Presentar a la Oficina Contralora del Cobro, la demanda con las certificaciones pertinentes dentro del quinto día hábil posterior a la comunicación del pase, para la firma del apoderado del Banco. El abogado tendrá un término de dos días hábiles para retirar las demandas firmadas la presentación de la demanda al despacho judicial se deberá realizar dentro de los dos días hábiles posteriores a su recibo y se comprobará mediante copia debidamente sellada, siendo requisito indispensable para el cobro de los honorarios.
+Cuando sea necesario aportar certificaciones emitidas por oficinas públicas, el plazo de entrega se prolongará por un día hábil adicional a la entrega de la certificación.
+B) Enviar a la oficina contralora del cobro, dentro de un plazo de tres días hábiles, copia sellada por el despacho judicial de toda gestión que realice, así como informar del resultado de remates.
+C) Solicitar en el momento procesal oportuno a la oficina contralora respectiva las bases para liquidación de costas e intereses.

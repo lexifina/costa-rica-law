@@ -1,0 +1,2 @@
+Articulo 4°—La Distribución, El Control y La Dirección Administrativa para el Cobro Judicial, y el Notariado, se hará por las oficinas designadas al efecto por la Gerencia General- La asignación será rotativa, por monto y en estricto orden alfabético.
+En aquellos casos en que la obligación al cobro corresponda a un deudor ya demandado, o a una garantía a favor del Banco que ya se razones de conveniencia institucional.

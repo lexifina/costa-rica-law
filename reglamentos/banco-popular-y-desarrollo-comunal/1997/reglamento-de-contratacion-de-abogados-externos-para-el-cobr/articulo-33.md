@@ -1,0 +1,1 @@
+Artículo 33.—Las Oficinas Contraloras indicarán a los abogados los nombres y calidades de las personas que fungirán como depositarios judiciales de los bienes cuya custodia ha sido encomendada al Banco por mandato judicial.

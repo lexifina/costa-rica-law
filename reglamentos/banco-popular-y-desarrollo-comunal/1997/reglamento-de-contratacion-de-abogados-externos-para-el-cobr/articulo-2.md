@@ -1,0 +1,1 @@
+Articulo 2°—En aquellos casos en que las circunstancias lo ameriten, a criterio razonado de la Gerencia General, se podrá prescindir de las disposiciones de este Reglamento para la asignación y gestión del Cobro Judicial, así como de los Servicios Notariales, lodo sin perjuicio de lo estipulado por el artículo 173 de La Ley Orgánica del Banco Central de Costa Rica.

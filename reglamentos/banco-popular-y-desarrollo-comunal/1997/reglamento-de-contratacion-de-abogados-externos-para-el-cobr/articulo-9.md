@@ -1,0 +1,1 @@
+Artículo 9°—Las oficinas encargadas del control y dirección del cobro judicial y notariado deberán mantener actualizados los formatos de conveniencia para el Banco en la confección de los documentos que deberán tramitar los profesionales en las áreas respectivas, para lo cual requerirá la asesoría de la División de Asuntos Jurídicos.

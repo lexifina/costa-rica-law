@@ -1,0 +1,2 @@
+Articulo 18.—Los Títulos Ejecutivos Originales que sean requeridos por despacho judicial, podrán ser entregados por la oficina encargada al abogado, quien será responsable de su custodia, entrega al tribunal, y devolución al Banco a la conclusión del proceso cuando proceda.
+Los documentos deberán entregarse al Despacho Judicial al día hábil siguiente de recibidos por el abogado y deberán devolverse al Banco dentro del mes siguiente a la conclusión del proceso.

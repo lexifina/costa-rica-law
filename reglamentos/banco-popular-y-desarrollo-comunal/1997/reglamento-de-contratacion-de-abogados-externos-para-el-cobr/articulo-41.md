@@ -1,0 +1,1 @@
+Artículo 41.—El procedimiento disciplinario estará a cargo de la respectiva Oficina Contralora, salvo los casos indicados en el artículo anterior, que lo dirigirá la Gerencia General y será el ordinario indicado en la Ley General de Administración Pública.

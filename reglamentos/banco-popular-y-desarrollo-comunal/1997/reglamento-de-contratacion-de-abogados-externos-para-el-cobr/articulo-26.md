@@ -1,0 +1,2 @@
+Artículo 26.—Dentro de los tres días hábiles siguientes a la fecha del remate el abogado deberá informar por escrito de su resultado a la oficina encargada del cobro.
+A partir de la firmeza de la resolución que aprueba la subasta donde se adjudiquen bienes al Banco, el abogado contará con un plazo de dos meses para entregar a la Oficina Contralora el testimonio inscrito de la adjudicación, cuando la naturaleza del bien así lo demande, para el caso de los bienes no inscribibles, el plazo para entregar la documentación pertinente será de quince días naturales.

@@ -1,0 +1,1 @@
+Artículo 28.—El abogado dará por terminada su intervención cuando no exista saldo en descubierto, se ponga al Banco en posesión del bien y se haya inscrito, cuando proceda, en el registro correspondiente la adjudicación a favor del Banco.

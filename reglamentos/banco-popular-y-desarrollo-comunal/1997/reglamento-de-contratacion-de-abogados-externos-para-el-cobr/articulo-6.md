@@ -1,0 +1,1 @@
+Artículo 6°—La Gerencia General establecerá los medios idóneos para remitir y recibir cualquier tipo de comunicación para y de los profesionales incluidas las notificaciones de resoluciones judiciales. Dichos medios podrán ser los contemplados en la ley de notificaciones, citaciones y otras comunicaciones judiciales.

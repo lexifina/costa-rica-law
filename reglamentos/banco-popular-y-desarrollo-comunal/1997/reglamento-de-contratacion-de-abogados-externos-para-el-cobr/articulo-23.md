@@ -1,0 +1,1 @@
+Artículo 23.—Las oficinas encargadas de la formalización, con base en el borrador de la escritura revisada y aprobada e informe de aprobación del crédito, girarán el importe correspondiente. Si se tratare de cheques, los mismos serán entregados al beneficiario por parte del notario en el momento de la formalización.

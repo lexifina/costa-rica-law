@@ -1,0 +1,9 @@
+Artículo 3°—El nombramiento de profesionales para el cobro Judicial y servicios notariales, lo hará la Gerencia General de conformidad con el procedimiento consagrado en el Reglamento de Contratación Administrativa del Banco, previa aprobación de un estudio técnico que demuestre esa necesidad, el cual deberá estar basado en el volumen de operaciones, debidamente estratificado por regiones.
+El Cartel de Contratación deberá incluir como mínimo los siguientes requisitos:
+A) Que el oferente cuente con una oficina debidamente instalada dentro del perímetro judicial en donde le corresponda desplegar su labor;
+B) Que no ha tenido obligaciones morosas con la institución durante los últimos seis meses;
+C) Que deberá suscribir una póliza de fidelidad u otra garantía similar a satisfacción del Banco, hasta por la suma de veinte millones de colones;
+D) Un sistema de valoración y comparación de las ofertas, con expresa indicación de los factores a considerar, el grado de incidencia de cada uno de ellos en la calificación total, así como el método para la asignación de los respectivos porcentajes, debiendo señalarse cual es la calificación mínima necesaria para ser contratado;
+E) Que el plazo del contrato será por cuatro años, prorrogable a juicio del Banco.
+La Gerencia General no podrá contratar para la prestación de estos servicios, a quienes sean funcionarios del Banco, medie o no Relación Laboral.
+Sin embargo, el Banco por motivos de conveniencia institucional podrá contratar profesionales para la prestación de servicios notariales y cobro judicial por sueldo fijo. de conformidad con lo establecido en el numeral sesenta y siete de La Ley de Contratación Administrativa. Estos profesionales tendrán, además de las obligaciones derivadas del contrato de trabajo, todas las contenidas en el presente Reglamento y estarán sometidos al régimen disciplinario de los empleados regulares.

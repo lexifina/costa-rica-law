@@ -1,0 +1,1 @@
+Articulo Transitorio I.—Se autoriza a La Gerencia General para que, en un plazo de seis meses, contados a partir de la publicación del presente Reglamento, negocie el cese de funciones que, como abogados y notarios externos, actualmente desempeñan empleados y funcionarios del Banco. Esa negociación deberá aprobarla en definitiva, la junta Directiva Nacional.

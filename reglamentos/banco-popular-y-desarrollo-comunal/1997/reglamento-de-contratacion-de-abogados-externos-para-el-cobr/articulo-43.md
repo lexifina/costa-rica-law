@@ -1,0 +1,1 @@
+Artículo 43.—Para efectos de pago de honorarios la oficina contralora del cobro deberá rendir un dictamen a la Gerencia General, dentro de los ocho días hábiles siguientes a la recepción de los expedientes, acerca del resultado general de la gestión del profesional cesante, recomendando lo pertinente en salvaguarda de los intereses del Banco.

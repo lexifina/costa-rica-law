@@ -1,0 +1,3 @@
+Artículo 7°—Las costas procesales y los gastos para los informes regístrales que solicite El Banco, serán suplidos en primera instancia por el abogado y reintegrados por el Banco en los ocho días naturales siguientes al cobro, de conformidad con el sistema establecido para ello.
+Los gastos judiciales superiores a veinte mil colones y los relativos a servicios notariales, tales como derechos de registro, timbres, e impuestos de bienes adjudicados, serán girados previamente por el Banco.
+Los costos por localizaciones serán reconocidos al abogado dentro de los ocho días naturales siguientes a la entrega del documento que demuestre la comunicación efectuada al respectivo demando o al tercer interesado en el proceso.
