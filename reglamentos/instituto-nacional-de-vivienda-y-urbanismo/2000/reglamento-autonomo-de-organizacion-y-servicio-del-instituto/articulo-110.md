@@ -1,1 +1,2 @@
-Artículo 110.—En caso de terminación de la relación de servicios, el interesado deberá plantear en tiempo el correspondiente reclamo en relación con los extremos que considere adeudados. Caso contrario, el Instituto declarará la prescripción legal, cuando proceda.
+Artículo 110.—La relación de servicios terminará sin responsabilidad para el Instituto en los casos de renuncia o de despido justificado del servidor, según las disposiciones del Código de Trabajo, de este reglamento y de la Ley de Protección al Trabajador.
+(Así reformado por acuerdo tomado de la Junta Directiva, en su sesión ordinaria N° 4968 de 8 de marzo de 2000)

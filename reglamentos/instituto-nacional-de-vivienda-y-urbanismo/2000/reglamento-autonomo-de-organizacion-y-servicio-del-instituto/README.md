@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio del Instituto Nacional de Vivie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-21 | la propia norma |
+| 2 | 2000-03-08 | Reglamento 4968 (2000-03-08) |
