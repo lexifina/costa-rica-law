@@ -1,0 +1,1 @@
+Art 2°. - Tres declaraciones de los cómplices, en el juego, serán suficientes para que las Autoridades llenen lo dispuesto en el artículo precedente, quedando en semejante caso, dichos cómplices libre de la pena que les correspondía
