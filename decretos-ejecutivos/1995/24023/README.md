@@ -14,3 +14,4 @@ Reglamento a la Ley del Sistema Nacional de Archivos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-04-07 | la propia norma |
+| 2 | 1997-09-17 | Decreto Ejecutivo 26424 (1997-09-17) |
