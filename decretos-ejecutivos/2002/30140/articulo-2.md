@@ -1,0 +1,1 @@
+Artículo 2º—A partir de la entrada en vigencia del presente Decreto Ejecutivo, la Liga Agrícola Industrial de la Caña de Azúcar y el Ministerio de Salud realizarán un plan piloto para desarrollar todos los aspectos tecnológicos de la fortificación y asegurar su alcance nacional a partir de febrero del 2003.
