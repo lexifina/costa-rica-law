@@ -14,3 +14,4 @@ Prorroga al ICAFE, autorización para habilitar temporalmente como bodegas del A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-01 | la propia norma |
+| 2 | 2005-01-14 | Decreto Ejecutivo 32426 (2005-01-14) |
