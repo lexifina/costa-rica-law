@@ -1,0 +1,1 @@
+Artículo 25.-Contará también la Biblioteca con los servicios de un empleado (a) misceláneo (a) que tendrá a su cargo las labores que se estipulan en el manua1 descriptivo de puestos de la Municipalidad.

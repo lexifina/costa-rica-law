@@ -1,0 +1,1 @@
+Artículo 43.-La Municipalidad podrá retener la partida asignada en el presupuesto ordinario de cada año, si la Junta incumple lo establecido en los artículos 13, incisos b), c), d) y f), y los artículos 16 y 21 de este Reglamento.

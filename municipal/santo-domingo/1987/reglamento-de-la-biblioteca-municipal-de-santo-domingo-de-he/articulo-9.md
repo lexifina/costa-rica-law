@@ -1,0 +1,1 @@
+Artículo 9°-Los representantes de la ADEU, del Colegio Santa María de Guadalupe y de las Juntas de Educación, serán escogidos por la Municipalidad de las temas que la misma solicitará a estos organismos en el mes anterior al vencimiento de cada periodo para el que fueron nombrados.

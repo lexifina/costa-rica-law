@@ -1,0 +1,1 @@
+Artículo 18.-Al cumplimiento de cada período, la Junta deberá renovarse parcialmente en número de tres miembros, los cuales serán designados por sorteo siempre y cuando no medie el acuerdo de reelección total o parcial a que se refiere el artículo 10 de este Reglamento.

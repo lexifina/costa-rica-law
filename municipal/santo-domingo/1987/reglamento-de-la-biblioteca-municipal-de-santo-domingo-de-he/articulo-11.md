@@ -1,0 +1,1 @@
+Artículo 11.-El acuerdo de nombramiento o de reelección, será comunicado por la Municipalidad al o a los interesados para efectos de aceptación y juramentación en el cargo, y a la junta para los fines correspondientes,

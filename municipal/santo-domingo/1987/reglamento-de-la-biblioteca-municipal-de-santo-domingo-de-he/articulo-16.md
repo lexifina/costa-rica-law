@@ -1,0 +1,1 @@
+Artículo 16.- Cada dos años, una vez incorporados a la Junta sus nuevos miembros, la misma nombrará de su seno la directiva que estará constituida por un presidente, secretario, tesorero, fiscal y un vocal.

@@ -1,0 +1,1 @@
+Artículo 36.-Cada persona. se hará responsable de los daños o pérdidas que sufra el material bibliográfico que se le facilite. El préstamo que se haga I a terceras personas quedará bajo su responsabilidad.

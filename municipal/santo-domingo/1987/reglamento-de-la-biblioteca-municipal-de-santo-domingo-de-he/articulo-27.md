@@ -1,0 +1,1 @@
+Artículo 27.-El personal misceláneo, y en el futuro los asistentes, si los hubiese serán nombrados por el Ejecutivo Municipal y el Ministerio de Educación según corresponda y de acuerdo a lo que convengan ambas entidades.

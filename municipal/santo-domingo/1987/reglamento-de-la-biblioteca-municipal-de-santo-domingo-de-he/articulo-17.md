@@ -1,0 +1,1 @@
+Artículo 17.- Perderá su condición de miembro de Junta Directiva, quien falte injustificadamente a tres sesiones consecutivas seis alternadas, ordinarias o extraordinarias. En todo caso, la pérdida de credencial de miembro de la Junta Directiva deberá ser reconocida para su ratificación por la Municipalidad.

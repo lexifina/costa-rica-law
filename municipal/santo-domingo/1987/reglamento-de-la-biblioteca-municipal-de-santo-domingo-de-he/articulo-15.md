@@ -1,0 +1,1 @@
+Artículo 15.- La Junta Directiva sesionará por lo mensos una vez al mes en el edificio de la Biblioteca, en el día y hora que la misma establezca y extraordinariamente cuando la convoque el presidente o dos de sus miembros. El quórum para sesionar válidamente será la mayoría absoluta de sus integrantes (la mitad más uno).

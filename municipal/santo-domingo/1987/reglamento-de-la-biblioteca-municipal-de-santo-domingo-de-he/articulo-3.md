@@ -1,0 +1,1 @@
+Artículo 3°-La Biblioteca será un instrumento básico de desarrollo, encargada de fomentar, orientar y coordinar aquellos programas dirigidos a proporcionar los servicios necesarios de información, educación y cultura.

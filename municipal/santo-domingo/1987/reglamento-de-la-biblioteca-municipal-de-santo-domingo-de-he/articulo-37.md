@@ -1,0 +1,1 @@
+Artículo 37.-El lector se obliga a cuidar debidamente las obras y/o materiales facilitados, absteniéndose de hacer en ellos marcas, señales o alteraciones de cualquier género y a devolverlos en el mismo estado que los recibió.

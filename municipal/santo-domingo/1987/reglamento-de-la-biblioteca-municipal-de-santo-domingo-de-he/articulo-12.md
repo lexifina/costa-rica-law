@@ -1,0 +1,1 @@
+Artículo 12.-Las vacantes en la integración de la Junta que se por cualquier razón durante un periodo, serán llenadas del mismo modo por el resto del periodo correspondiente, entendiéndose por periodo el lapso de dos años o fracción.

@@ -1,0 +1,1 @@
+Artículo 10.-Los miembros de la Junta durarán dos años en sus funciones que comienzan a regir a partir de la fecha del acuerdo municipal acredita como tales. Podrán ser reelectos por una vez consecutiva o forma alterna indefinidamente, a juicio de la Municipalidad, en cuyo caso se omitirá solicitud de ternas.
