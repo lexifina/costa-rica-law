@@ -1,10 +1,5 @@
 Multa.
-ARTÍCULO 53.- La multa obliga al condenado a pagar a la institución
-que la ley designe, dentro de los quince días siguientes a la sentencia
-ejecutoriada, una suma de dinero que se fijará en días multa. El importe
-del día multa se determinará de acuerdo con la situación económica del
-condenado, atendidos especialmente su caudal, rentas, medios de
-subsistencia, nivel de gastos u otros elementos de juicio que el Juez
-considere apropiados. Si el condenado viviere exclusivamente de su
-trabajo, el día multa no podrá exceder del monto de su salario diario. El
-límite máximo es de trescientos sesenta días multa.
+Artículo 53.- La pena de multa obliga a la persona condenada a pagar una suma de dinero a la institución que la ley designe, dentro de los quince días posteriores a la firmeza de la sentencia.
+Cuando se imponga la pena de días multa, el juez, en sentencia motivada, fijará en primer término el número de días multa que deberá cubrir la persona condenada, dentro de los límites señalados para cada delito, según la gravedad del hecho, las circunstancias de modo, tiempo y lugar así como las características propias del autor, directamente relacionadas con la conducta delictiva. Esta pena no podrá exceder de trescientos sesenta días multa.
+En dicha sentencia, en forma motivada, el juez deberá determinar la suma de dinero correspondiente a cada día multa, conforme a la situación económica de la persona condenada, tomando en cuenta su nivel de vida, todos sus ingresos diarios y los gastos razonables para atender tanto sus necesidades como las de su familia. Cada día multa no podrá exceder de un cincuenta por ciento (50%) del ingreso diario del sentenciado. El fiscal o el juez en su caso, con la colaboración de la Oficina de Trabajo Social del Poder Judicial deben realizar las indagaciones necesarias para determinar la verdadera situación económica del imputado y sus posibilidades de pago.
+(Así reformado por el inciso b) del artículo 1 de la Ley N° 8250 de 2 de mayo del 2002)

@@ -1,5 +1,3 @@
-SECCION IV
-Duelo
-Duelo.
-ARTÍCULO 131.- Los que se batieren en duelo serán reprimidos con
-veinte a sesenta días multa.
+SECCIÓN IV
+DUELO
+Artículo 131.- (Derogado por el artículo 4° de la Ley N° 8250 de 2 de mayo de 2002).

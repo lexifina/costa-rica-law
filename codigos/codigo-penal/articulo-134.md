@@ -1,9 +1,2 @@
 Vilipendio por causa caballeresca.
-ARTÍCULO 134.- El que desacreditare públicamente a otro por no haber
-desafiado, por haber rehusado un desafío o por no haberse batido, será
-reprimido con diez a treinta días de multa.
-El que amenazare con desacreditar públicamente a alguien para
-inducirlo a retar a duelo, a aceptar un reto o a batirse, será reprimido
-con prisión de dos a seis meses, si el duelo tuviere lugar.
-Si de éste resultaren lesiones graves o la muerte de algún duelista,
-la pena será prisión de uno a cuatro años.
+Artículo 134.- (Derogado por el artículo 4° de la Ley N° 8250 de 2 de mayo de 2002).

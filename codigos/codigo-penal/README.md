@@ -1,6 +1,6 @@
 # Código Penal
 
-Ley N° 4573 del 1970-05-04. SINALEVI, ficha 5027: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5027&param2=5328&param3=1>.
+Ley N° 4573 del 1970-05-04. SINALEVI, ficha 5027: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5027&param2=5329&param3=1>.
 
 Publicada en La Gaceta N° 257 del 1970-11-15.
 
@@ -20,3 +20,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 10 de 104 | 2002-01-15 | Ley 8185 | 2001-12-18 |
 | 11 de 104 | 2002-01-15 | Ley 8189 | 2001-12-18 |
 | 12 de 104 | 2002-04-04 | Ley 8224 | 2002-03-13 |
+| 13 de 104 | 2002-11-10 | Ley 8250 | 2002-04-17 |

@@ -1,2 +1,2 @@
 Duelo concertado a muerte.
-ARTÍCULO 138.- Los padrinos que concertaren un duelo a muerte o en condiciones tales que ésta debiere resultar, serán reprimidos con prisión de uno a cuatro años, si se verificare la muerte de alguno de los combatientes. Si no se verificare, la pena será de diez a treinta días multa.
+Artículo 138.- (Derogado por el artículo 4° de la Ley N° 8250 de 2 de mayo de 2002).

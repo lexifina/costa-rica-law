@@ -1,0 +1,4 @@
+Prestación de servicios de utilidad pública
+Artículo 56 Bis.—La prestación de servicios de utilidad pública consiste en el servicio gratuito que ha de prestar la persona condenada a favor de instituciones estatales o de bien público. El servicio se prestará en los lugares y horarios que determine el juez, quien procurará, al establecer el horario de servicio, no interrumpir la jornada laboral habitual de la persona condenada, si posee trabajo. El control de la ejecución corresponderá a la Dirección General de Adaptación Social, que coordinará con la entidad a cuyo favor se prestará el servicio.
+Si la persona condenada incumple injustificadamente las obligaciones propias de la prestación de servicios de utilidad pública, derivadas de la sustitución de la pena de multa, esta se convertirá en un día de prisión por cada día de prestación de dichos servicios.
+(Así adicionado por el inciso a) del artículo 3) de la ley N° 8250 de 2 de mayo del 2002).

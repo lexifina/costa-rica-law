@@ -1,5 +1,2 @@
 Combatiente irregular.
-ARTÍCULO 136.- El combatiente que dolosamente faltare a las
-condiciones ajustadas por los padrinos y causare la muerte o lesiones a
-su adversario, será reprimido con las penas establecidas para el
-homicidio calificado o lesiones gravísimas en su caso.
+Artículo 136.- (Derogado| por el artículo 4° de la Ley N° 8250 de 2 de mayo de 2002).

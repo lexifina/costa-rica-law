@@ -1,2 +1,2 @@
 Duelo con alevosía.
-ARTÍCULO 137.- Los padrinos de un duelo que usaren cualquier género de alevosía en la ejecución del mismo, serán reprimidos con las penas señaladas en el artículo anterior, según fueren las consecuencias que resultaren.
+Artículo 137.- (Derogado por el artículo 4° de la Ley N° 8250 de 2 de mayo de 2002).
