@@ -1,1 +1,0 @@
-Transitorio 2º—Durante el año 2001 la "nota de presentación" a que se refiere el inciso a) del artículo 121 tendrá, un valor del 50% del total de la calificación y el resultado obtenido en la prueba nacional a la que se refiere el inciso b) de ese mismo artículo tendrá un valor del 50% del total de la calificación.

@@ -1,1 +1,0 @@
-Artículo 147.—Del envío de información por parte del Director de la Institución. Será obligación del Director de cada Institución remitir, en su oportunidad, en la forma y mediante el procedimiento que indique la División de Control de Calidad y Macroevaluación del Sistema Educativo, toda la información que se requiera para la adecuada administración del proceso.

@@ -1,3 +1,0 @@
-Artículo 85.—De las acciones correctivas por comisión de faltas leves. Los alumnos que asumieren conductas tipificadas como faltas leves serán objeto de cualesquiera de las siguientes acciones correctivas, además de lo estipulado en el artículo 78 de este Reglamento:
-a) Amonestación verbal o escrita por parte del docente concernido, con copia al padre, a la madre de familia o al encargado, al expediente personal del alumno y al orientador respectivo, si lo hubiere.
-b) Amonestación escrita en los términos anteriores y, además, obligación de reparar en forma efectiva y verificable, el daño moral, material o personal causado.

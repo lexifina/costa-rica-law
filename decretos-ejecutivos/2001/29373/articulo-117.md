@@ -1,1 +1,0 @@
-Artículo 117.—Del certificado de Conclusión de II Ciclo con mención de excelencia. El certificado de conclusión de II Ciclo de la Educación General Básica se hará acompañar de una mención de excelencia, cuando el postulante hubiese obtenido una calificación igual o superior a noventa en cada una de las respectivas pruebas nacionales de Conclusión de II Ciclo.

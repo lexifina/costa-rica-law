@@ -1,3 +1,0 @@
-CAPÍTULO II
-Disposiciones especiales de evaluación en los Colegios Nocturnos, Centros Integrados de Educación para Jóvenes y Adultos e Institutos Profesionales de Educación Comunitaria
-Artículo 42.—De las disposiciones especiales. Sin perjuicio de todo lo establecido en el Capítulo I de este Reglamento, en los colegios nocturnos, tanto académicos como técnicos, así como en los Centros Integrados de Educación para Jóvenes y Adultos (CINDEA) y los Institutos Profesionales de Educación Comunitaria (CINDEA) la evaluación estará sujeta, adicionalmente, a las normas especiales dispuestas en este Capítulo.

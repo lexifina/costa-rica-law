@@ -1,3 +1,0 @@
-Artículo 31.—De las condiciones de aplicación de las pruebas. Ni en el período de pruebas ordinarias ni en el de extraordinarias se podrá aplicar a un estudiante más de dos pruebas en un mismo día.
-El tiempo máximo de aplicación de las pruebas ordinarias y extraordinarias será de 80 minutos y las de aplazados será de 120 minutos. En el caso de las pruebas de ejecución de aquellas asignaturas con lecciones de una hora reloj, tendrán un tiempo máximo de 120 minutos.
-Las pruebas deben presentar los elementos de forma que garanticen una adecuada aplicación. Debe procurarse aplicar las pruebas en el momento más adecuado del período lectivo diario considerando las mejores condiciones climáticas y de ambiente.

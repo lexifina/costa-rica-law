@@ -1,1 +1,0 @@
-Artículo 137.—De la convocatoria para los postulantes que improbasen la prueba de Bachillerato. Los postulantes que, de conformidad con las normas anteriores quedaren improbados en una o varios disciplinas tendrán derecho a postularse por una sola vez, en la convocatoria inmediata siguiente que se administre, según lo dispuesto en el artículo 129.

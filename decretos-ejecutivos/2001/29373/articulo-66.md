@@ -1,1 +1,0 @@
-Artículo 66.—De la composición de la calificación de la conducta en el II Ciclo. La calificación de la conducta del estudiante en II Ciclo, será el resultado de la sumatoria de los siguientes porcentajes: 85% correspondiente a la evaluación realizada por el docente y 15% correspondiente a la calificación de la conducta realizada por la directiva de la sección.
