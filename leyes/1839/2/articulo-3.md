@@ -1,0 +1,1 @@
+Art. 3. Tan luego como se vea el monto á que suba la suscripción, se formará el plano del edificio, y se nombrará un director un director de la obra con los agentes necesarios para que dé principio á ella.
