@@ -1,3 +1,3 @@
-Artículo 5°-Las pequeñas industrias y artesanías que sean beneficiadas por este decreto tendrán derecho a una exoneración máxima de cien mil colones (¢100.000,00) al año. De este monto podrá destinarse un máximo de sesenta y cinco mil colones (¢65.000,00) a exoneraciones sobre la importación de materias primas y un máximo de treinta y cinco mil colones (¢35.000,00) sobre la importación de maquinaria, equipo y herramientas necesarias en el proceso productivo. Estos montos son intransferibles.
+Artículo 5°-Las pequeñas industrias y artesanías que sean beneficiadas por este decreto tendrán derecho a una exoneración máxima de doscientos sesenta mil colones (¢260.000,00) al año, sobre la importación de materias primas, maquinaria, equipo y herramientas necesarios para su proceso productivo.
 Para los efectos anteriores, las importaciones que se realicen con franquicia deberán corresponder a las necesidades normales para el funcionamiento adecuado de las empresas.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 12664 del 25 de mayo de 1981).
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 14487 del 28 de abril de 1983).
