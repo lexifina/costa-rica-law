@@ -1,0 +1,1 @@
+Art 2.- En fuerza de su segunda parte dice “ sin sujeción ni responsabilidad a otro que a si mismo”. El Estado no puede ser reconvenido ni es responsable en modo alguno á la Nación durante el periodo de la mencionada ley.
