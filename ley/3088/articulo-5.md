@@ -1,1 +1,0 @@
-Artículo 5º.- Sin perjuicio de las funciones que la ley asigna a la Editorial Costa Rica, la Dirección General de Artes y Letras podrá presentar ante la Editorial iniciativas y planes acordes con los fines de ambas entidades.
