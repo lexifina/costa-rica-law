@@ -1,0 +1,1 @@
+Artículo 17.—La cantidad de horas extraordinarias que se autoricen por parte de la Comisión de Recursos Humanos no podrá ser mayor a las autorizadas durante el 2003, con excepción de los casos que así lo estime la Comisión. Para la autorización de mayor cantidad de horas deberá la institución solicitante presentar el informe de liquidación de horas extras del periodo anterior.

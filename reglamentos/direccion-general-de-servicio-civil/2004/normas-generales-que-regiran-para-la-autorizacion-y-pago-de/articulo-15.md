@@ -1,0 +1,1 @@
+Artículo 15.—A quien corresponda ejercer cargo de jefatura (dirección, administración y fiscalización de labores que ejecute personal bajo responsabilidad y al que supervisan en aspectos administrativos) no procede el pago de horas extras (Procuraduría General de la República, oficios Nº C-193-94, Nº C-224-95 y Nº C-047-2003).
