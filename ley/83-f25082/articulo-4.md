@@ -1,0 +1,1 @@
+Art 4°.- Sin embargo de lo dispuesto en el artículo anterior el Gobierno destinará la cantidad necesaria con tal que no exeda de la octava parte de lo practicado al pago de la deuda contrahida por los gastos de la Administración publica del año anterior.
