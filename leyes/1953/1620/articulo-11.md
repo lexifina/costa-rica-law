@@ -1,0 +1,1 @@
+Artículo 11°.-En caso de menores abandonados o de incapacitados, los Agentes Judiciales podrán actuar de oficio, o a instancia o denuncia del Patronato Nacional de la Infancia, de las Juntas Provinciales, o de los Jefes de los establecimientos que tuvieren la guarda, custodia o protección de aquellos demandantes.

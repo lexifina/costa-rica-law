@@ -1,0 +1,1 @@
+Artículo 30°.-La sentencia se notificará cuando concurra el interesado al despacho; si no se apelare dentro del término indicado, quedará firme y se ejecutará. Caso de que no concurriere, se le citará bajo apercibimientos de desobediencia a la autoridad, para que se presente al despacho, y si hubiere renuencia, no obstante la citación, se le hará venir mediante la policía.

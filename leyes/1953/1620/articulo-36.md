@@ -1,0 +1,1 @@
+Artículo 36°.-La solicitud para que se permita el pago en tractos de las pensiones atrasadas, se hará acompañando los objetivos y fundamentos de la solicitud; la autoridad acordará favorable o desfavorablemente apreciando a conciencia el caso. Esa resolución es apelable, en los mismos términos antes indicados.

@@ -1,0 +1,1 @@
+Artículo 22.-Para el conocimiento en primera instancia de las demandas de pensión y demás incidencias procedentes, serán competentes las Agencias Judiciales del país; en virtud de apelación conocerán los Alcaldes como se dijo por riguroso turno, en relación a cada caso y Agencia.

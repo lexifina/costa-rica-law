@@ -1,0 +1,1 @@
+Artículo 29°.-La sentencia contendrá una ligera exposición preámbulo, a modo de resultando único y los considerandos precisos referentes a los hechos probados, y el por tanto, todo en la forma más lacónica posible.

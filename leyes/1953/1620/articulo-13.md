@@ -1,0 +1,1 @@
+Artículo 13°.-No será obstáculo para el secuestro de las pensiones ordenado por la autoridad respectiva, la existencia de embargos sobre los sueldos ni de ventas o cesiones de los mismos; éstas sólo valdrán en el tanto no cubierto por la imposición alimentaria.

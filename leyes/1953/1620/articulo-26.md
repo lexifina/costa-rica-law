@@ -1,0 +1,3 @@
+Articulo 26°.-Si el demandado no respondiere a la audiencia, se dictará sentencia; en otros casos ésta se dictará ocho días después de concluidas las prueba. Será apelable dentro de tercero día ante el Superior, y en el memorial de apelación o en el acta de apelación si se hiciere verbal ante la autoridad sentenciadora se motivará la inconformidad que hubiere.
+El Superior fallará a los cinco días después de recibidos los autos. Se notificará sólo a quien hubiere señalado dentro del perímetro judicial, casa u oficina donde recibirlas en primera instancia.
+Son apelables igualmente las resoluciones posteriores que modifiquen o extingan el derecho a pensión o que se pronuncien sobre su aumento o disminución.
