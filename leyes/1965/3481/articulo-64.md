@@ -6,6 +6,5 @@ siempre que aquéllas no emanen directamente del Ministro, las partes
 interesadas pueden apelar de las mismas ante el titular del ramo, dentro
 de los quince días siguientes al recibo de la repectiva notificación,
 por escrito, recurso que estará exento de toda clase de formalidades.
-TITULO VI
-CAPITULO UNICO
-De las Disposiciones Finales
+(NOTA: Como relación, véase la Ley General de la Administración
+Pública No.6227 del 2 de mayo de 1978).

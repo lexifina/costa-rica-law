@@ -1,5 +1,5 @@
-Artículo 66.- Para el buen entendimiento de esta ley, los términos
-y nombres se abreviarán así:
+Artículo 66.- Para el buen entendimiento de esta ley, los términos y
+nombres se abreviarán así:
 a) El Ministerio, por el Ministerio de Educación Pública;
 b) El Ministro, por el Ministro de Educación Pública;
 c) El Oficial Mayor, por el Oficial Mayor de Educación Pública;
