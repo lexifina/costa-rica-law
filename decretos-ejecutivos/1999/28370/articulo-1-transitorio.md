@@ -1,0 +1,1 @@
+Transitorio I.—Todas aquellas compras o adquisiciones de bienes que se hayan perfeccionado con el Consejo Nacional de la Producción y que por las definiciones del presente instrumento se encuentren ahora excluidas del deber institucional establecido en el artículo 9º de la ley orgánica del Consejo Nacional de Producción, deberán concluirse normalmente.

@@ -1,0 +1,1 @@
+Artículo 3º—En cuanto a la forma y procedimiento mediante el cual deban los órganos del Estado o sus instituciones antes indicadas, integrar sus registros, promover contratos y realizar el abastecimiento de los bienes antes adquiridos al Consejo Nacional de la Producción, quedan obligados a seguir los procedimientos y formar que establece la Ley de la Contratación Administrativa.
