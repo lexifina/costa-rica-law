@@ -1,0 +1,1 @@
+Artículo 5º—Se realizará un reconocimiento por alimentación a los regidores y síndicos, cuando la sesión se prolongue por más de cinco horas; la suma a reconocer será la que tenga establecida la Contraloría General de la República, en el Reglamento de gastos de viaje y transporte para funcionarios públicos.

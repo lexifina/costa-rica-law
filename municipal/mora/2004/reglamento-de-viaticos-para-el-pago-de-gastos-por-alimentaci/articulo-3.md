@@ -1,0 +1,1 @@
+Artículo 3º—Los gastos a que se refiere este reglamento cubrirán únicamente a aquellos regidores y síndicos que se presenten dentro de los quince minutos inmediatos posteriores a la hora fijada para comenzar la sesión y que no se retiren antes de finalizar ésta.

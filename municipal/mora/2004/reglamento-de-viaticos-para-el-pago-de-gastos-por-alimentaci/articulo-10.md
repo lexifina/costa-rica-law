@@ -1,0 +1,1 @@
+Artículo 10.—Los formularios de transporte y/o alimentación, deben ser llenados al final de la sesión municipal y entregados a la secretaria del Concejo Municipal, quien con su firma y sello dará fe de la asistencia del regidor o síndico y transferirá los documentos a la tesorería municipal para lo que corresponda.
