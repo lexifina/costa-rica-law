@@ -22,3 +22,6 @@ ARTÍCULO 2°: EGRESOS ORDINARIOS EXTRAORDINARIOS PARA 2004.
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 31993 del 26 de julio del 2004.)
 (Modificado tácitamente por el artículo 2° del Decreto Ejecutivo N° 31993 del 26 de julio del 2004.)
 (Modificado por el artículo 3° del Decreto Ejecutivo N° 32016 del 26 de julio del 2004.)
+(Modificado por el artículo 1° del decreto ejecutivo N° 31936 del 9 de setiembre del 2004, publicado en el Alcance N° 47 de La Gaceta N° 192 del 1° octubre del 2004)
+(Modificado por el artículo 2° del decreto ejecutivo N° 31936 del 9 de setiembre del 2004, publicado en el Alcance N° 47 de La Gaceta N° 192 del 1° octubre del 2004)
+(Modificado por el artículo 1° del decreto ejecutivo N° 31937 del 9 de setiembre del 2004, publicado en el Alcance N° 48 de La Gaceta N° 192 del 1° de octubre del 2004)
