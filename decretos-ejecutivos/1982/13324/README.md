@@ -14,3 +14,4 @@ Declara Parque Nacional " Parque Internacional La Amistad: Costa Rica- Panamá"
 | --- | --- | --- |
 | 1 | 1982-02-04 | la propia norma |
 | 2 | 1986-01-23 | Decreto Ejecutivo 16848 (1986-01-23) |
+| 3 | 1988-10-28 | Decreto Ejecutivo 18639 (1988-10-28) |

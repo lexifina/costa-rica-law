@@ -118,7 +118,7 @@ De este punto, se continúa aguas arriba del afluente hasta los puntos de coorde
 329 530 N | 591 925 E | (Cerros Burú)
 331 000 N | 593 480 E | (Cordillera de Talamanca, frontera Panamá -Costa Rica)
 De allí se sigue por la divisoria de aguas entre Pacífico y Atlántico (Cordillera de Talamanca, límite Costa Rica-Panamá ) hasta el vértice Echandi, punto inicial de la presente descripción.
-Superficie del Parque Internacional de la Amistad: Costa Rica-Panamá (Parque Nacional de la Cordillera de Talamanca): Aproximadamente 190 513 hectáreas.
+Superficie del Parque Internacional de la Amistad: Costa Rica-Panamá (Parque Nacional de la Cordillera de Talamanca): Aproximadamente 190 513 hectáreas
 (Mediante el artículo 1° del decreto ejecutivo N° 16848 del 23 de enero de 1986 se adiciona el área que se describe seguidamente de acuerdo con las hojas cartográficas del Instituto Geográfico Nacional escala 1:50.000, Estrella 3545 II y Telire 3544 I.
 Partiendo de la confluencia del río Morein (Muleyn) con un afluente (sin nombre en el mapa), en coordenadas N 396 850 E 549 300, el limite sigue este afluente aguas arriba hasta el punto de coordenadas N 397 925 E 550 800.
 De allí una recta hasta Ia naciente en el mapa de Ia quebrada Miei (Myey), en coordenadas N 397 750 E 551 425, y de este punto otra recta hasta la naciente en el mapa de un afluente del río Karveri (Calberi), en coordenadas N 398 425 E 552 200; se sigue afluente aguas abajo hasta su confluencia con el río Karveri (Calberi), en coordenadas N 397 875 E 553 525.
@@ -155,3 +155,20 @@ N 390 250 | E 553 875 | (cerro, 1 120 m ).
 390 700 | 552 975 | (naciente de un afluente del río Chiquei o Xiqey).
 El límite continúa aguas abajo por este afluente hasta su confluencia con el río Chiquei (Xiney), en coordenadas N 392 900 E 552 450.
 De este punto se sigue el río Chiquei (Xiqey) aguas arriba hasta la confluencia de este río con un afluente, en coordenadas N 391 150 E 549 660, punto inicial de la descripción.)
+(Mediante el artículo 1° del decreto ejecutivo N° 18639 del 28 de octubre de 1988 se amplía en el terreno comprendido dentro de la siguiente demarcación del Instituto Geográfico Nacional:
+Hoja Cabagra, Escala 1:50.000,
+Partiendo de un punto ubicado en el límite del Parque, en las coordenadas 336000 N y 569225 E, se continúa por una serie de puntos cuyas coordenadas se describen a continuación:
+335943 N | 569192 E | 334801 N | 570266 E
+335862 N | 569094 E | 334573 N | 570417 E
+335610 N | 569983 E | 334602 N | 570599 E
+335450 N | 569351 E | 334638 N | 570735 E
+335477 N | 569464 E | 334713 N | 570799 E
+335488 N | 569623 E | 334878 N | 570784 E
+335544 N | 569785 E | 335078 N | 570780 E
+335547 N | 569943 E | 335278 N | 570839 E
+335374 N | 569976 E | 335438 N | 570983 E
+335246 N | 570067 E | 335758 N | 570939 E
+335067 N | 570152 E | 335918 N | 570999 E
+De este último punto se continúa por una línea recta hasta el punto en coordenadas 336000 N y 569225 E, que es el punto de partida de la presente descripción.
+Estos límites concuerdan con el plano catastrado N° P-771941-88, a nombre de Agropecuaria El Singri, S. A.)
+.
