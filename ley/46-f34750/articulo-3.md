@@ -1,0 +1,2 @@
+III.
+El Gobierno pagará á los señores Guardia y Jiménez por cada litro de ron blanco y colorado, el precio de veinticinco centavos (0-25 cs.) y por cada litro de aguardiente, el de veintidós y medio centavos (221 cs.) en moneda & papel corriente en el país, tres días después de recibidos sin objeción, y ellos deberán hacer las entregas de estos licores por mitades cada quince días, en la ciudad de Liberia ó en el lugar que oportunamente indique el Gobierno, siempre que el trasporte no tenga mayor costo que el que origina la conducción á Liberia.
