@@ -1,0 +1,1 @@
+Artículo 4°—La planificación en el área específica de micro y pequeña empresa, coordinación y administración del Programa Nacional de Apoyo a la Micro y Pequeña Empresa corresponderá al Ministerio de Trabajo y Seguridad Social, dentro de las políticas que al efecto establezcan la Comisión Gubernamental del Sector Social Productivo.

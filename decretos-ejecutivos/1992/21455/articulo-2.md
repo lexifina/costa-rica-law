@@ -1,0 +1,1 @@
+Artículo 2°—Se crea la Comisión Nacional de Apoyo a la Micro y Pequeña empresa; la cual tendrá la responsabilidad de aprobar el plan operativo del Programa Nacional de Apoyo a la Micro y Pequeña Empresa, dentro de los objetivos del Programa del Sector Social Productivo, establecido por decreto N° 20228-P-PLAN-MEP del 18 de enero de 1991.

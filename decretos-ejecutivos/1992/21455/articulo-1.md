@@ -1,0 +1,18 @@
+N° 21455
+EL PRESIDENTE DE LA REPUBLICA
+Y LOS MINISTROS DE ECONOMIA, INDUSTRIA Y COMERCIO
+Y DE TRABAJO Y SEGURIDAD SOCIAL
+Considerando:
+1°—Que el Plan Nacional de Desarrollo 1990-1994 del Gobierno de la República, tiene como objetivo fundamental reactivar la economía del país, a través de la activa participación de los diferentes entes económicos y sociales.
+2°—Que asimismo, el Gobierno de la República creó el Programa del Sector Social Productivo, conducente a ampliar las bases de democratización y humanización de la economía y de la sociedad costarricense en general, mediante la promoción de la organización social con fines productivos, y con especial énfasis en la organización micro empresarial.
+3°—Que en virtud de que este Programa del Sector Social Productivo, busca apoyar y consolidar los esfuerzos del sector privado, para facilitar su desarrollo, resulta de fundamental importancia apoyar a pequeñas y microempresas, que constituyen un importante porcentaje de las unidades productivas del país.
+4°—Que paralelamente, el Gobierno de la República también impulsa programas para la generación de empleo, mediante los cuales se procura incorporar al aparato productivo nacional, sectores que demandan mano de obra y presentan posibilidades de crecimiento y desarrollo.
+5°—Que el sector de la micro y pequeña empresa requiere de un apoyo permanente, decidido e integral, tanto de parte del sector público, como de los otros sectores de la economía para superar las debilidades que este sector presenta en áreas tales como: la capacitación, asesoría técnica y administrativa, financiamiento, mercadeo y comercialización.
+6°—Que el proceso de apertura y liberalización de la economía, que el Gobierno de la República impulsa, hace necesaria la modernización de la micro y pequeña empresa, de forma tal que tenga una participación más activa en la vida económica nacional, mediante niveles de competitividad cada vez más altos.
+7°—Que en la Administración Pública Central existen varias dependencias que apoyan, promocionan, colaboran y ejecutan labores relacionadas con la pequeña y microempresa.
+8°—Que con el fin de evitar duplicidad de funciones y la consiguiente mala asignación de los recursos públicos, es necesaria la reestructuración de las diversas oficinas que en el sector público atienden asuntos relacionados con esta materia.
+9°—Que es fundamental la consolidación de una sola estructura organizativa central a nivel nacional, con capacidad de realizar el análisis, la ejecución de políticas, formulación y evaluación de programas y proyectos, de tal forma que permita hacer un uso más eficiente de los recursos públicos, así como unificar políticas y esfuerzos que se impulsan desde el sector público en apoyo al sector de la pequeña y de la microempresa. Por tanto,
+En uso de las atribuciones contempladas en el artículos 140, incisos 3) y 18) de la Constitución Política y en ejecución de lo dispuesto en los numerales 25, 27 y 28 de la Ley General de la Administración Pública y en la Ley Orgánica del Ministerio de Economía, Industria y Comercio, N° 6054 del 14 de junio de 1977 y la Ley Orgánica del Ministerio de Trabajo y Seguridad Social, N° 1860 del 21 de abril de 1955 y sus reformas,
+DECRETAN:
+Artículo 1°—Se crea el Programa Nacional de Apoyo a la Micro y Pequeña Empresa “PRONAMYPE”, directamente vinculado al Despacho del Ministro de Trabajo y Seguridad Social, quien como titular de dicha Cartera ejercerá la función de Director Nacional.
+La finalidad de este programa será diseñar, ejecutar, planificar, coordinar y administrar un servicio integral de apoyo al desarrollo de la micro y pequeña empresa.

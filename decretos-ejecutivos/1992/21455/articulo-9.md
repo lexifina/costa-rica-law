@@ -1,0 +1,1 @@
+Artículo 9°—El Programa Nacional de Apoyo a la Micro y Pequeña Empresa, se financiará con recursos del Fondo de Desarrollo Social y Asignaciones Familiares y de cualquier otra fuente, pública o privada que se establezca.
