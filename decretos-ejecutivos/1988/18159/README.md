@@ -14,3 +14,4 @@ Disposiciones reguladoras para la actividad de las empresas de arrendamiento de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-06-08 | la propia norma |
+| 2 | 1988-06-08 | SINALEVI (sin norma nombrada) |
