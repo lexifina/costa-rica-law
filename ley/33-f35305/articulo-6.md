@@ -1,0 +1,2 @@
+Art 6° Se declara el Limón puerto principal de la República, en la costa del Atlántico. El Poder Ejecutivo queda autorizado, para que, cuando lo juzgue oportuno, lo declare abierto al comercio y, establezca en el las autoridades y empleados necesarios.
+A las Cámaras de Senadores, dado en el Salón de Sesiones, Palacio Nacional, San José, octubre diecinueve de mil ochocientos sesenta y cinco. – Al Poder Ejecutivo. – Sala de la Cámara de Senadores, San José noviembre seis de mil ochocientos sesenta y cinco, San José noviembre nueve de mil ochocientos sesenta y cinco.
