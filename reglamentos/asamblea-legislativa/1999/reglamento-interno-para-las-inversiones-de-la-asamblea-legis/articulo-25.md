@@ -1,0 +1,1 @@
+Artículo 25.- Los intereses de las inversiones se registrarán como ingresos en la fecha en que vencen y se procederá a cobrarlos inmediatamente o bien a más tardar veinticuatro horas después del vencimiento.

@@ -1,0 +1,1 @@
+Artículo 18.-Los puestos de bolsa con los cuales contrate la Asamblea Legislativa, deberán cumplir, además, con las obligaciones dispuestas en el artículo 58 de la Ley Reguladora del Mercado de Valores, N° 7732, del 17 de diciembre de 1997.

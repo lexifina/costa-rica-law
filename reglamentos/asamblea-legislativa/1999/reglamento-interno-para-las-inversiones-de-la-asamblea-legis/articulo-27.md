@@ -1,0 +1,1 @@
+Artículo 27.-EI registro de la contabilidad del ingreso de intereses, así como de los títulos no reinvertidos depositados en la cuenta corriente, se efectuará contra las boletas de depósito, previa confección del recibo por dinero que indicará, entre otros datos, el monto y número de los cupones y los títulos vencidos.

@@ -1,0 +1,1 @@
+Artículo 20.-El Departamento Financiero separará las funciones de registro y custodia de las inversiones en valores. Para cada función, la dirección del departamento nombrará a un servidor responsable.

@@ -1,0 +1,1 @@
+Artículo 7°-Las inversiones se clasificarán en temporales permanentes. Las temporales comprenden depósitos constituidos a plazos máximos de ciento ochenta días naturales y las permanentes no excederán de los trescientos sesenta y cinco días naturales.

@@ -1,0 +1,1 @@
+Artículo 31.-La Tesorería del Departamento Financiero conciliará por escrito, los títulos valores que se mantienen en custodia en la entidad financiera, contra los registros que ésta lleve e informará por escrito de los resultados, al Director del Departamento Financiero.

@@ -1,0 +1,1 @@
+Artículo 30.-El Departamento Financiero deberá elaborar, para la admistración, informes periódicos mensuales, relevantes y oportunos sobre el manejo de inversiones, los cuales deberán ser remitidos al Departamento de Auditoría cuando los soliciten.

@@ -1,0 +1,1 @@
+Artículo 42.- Tanto para las inversiones permanentes como para las transitorias, el dinero deberá trasegarse en un vehículo de la institución. El funcionario que trasiega dinero deberá ir acompañado de un oficial que lo custodie.

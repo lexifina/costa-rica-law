@@ -1,0 +1,1 @@
+Artículo 33.-EI Director del Departamento Financiero solicitará al encargado de Tesorería que compare, por lo menos una vez al mes, la existencia física de las copias de los valores y los originales de las inversiones, con lo indicado en el registro diario de tesorería y dejará evidencia del resultado.

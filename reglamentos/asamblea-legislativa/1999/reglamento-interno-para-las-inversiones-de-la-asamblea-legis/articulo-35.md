@@ -1,0 +1,1 @@
+Artículo 35.-Si los valores adquiridos como inversión se guardan en una caja fuerte, para el acceso a ella se requerirá la presencia de al menos dos funcionarios autorizados por la Dirección del Departamento Financiero.

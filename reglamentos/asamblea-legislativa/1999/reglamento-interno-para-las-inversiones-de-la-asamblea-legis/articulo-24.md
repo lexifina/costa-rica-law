@@ -1,0 +1,1 @@
+Artículo 24.-Los registros que se lleven para el control financiero contable de los títulos valores o las inversiones servirán de control cruzado entre ellos y los informes que remita el puesto de bolsa o la entidad encargada de manejar la inversión.
