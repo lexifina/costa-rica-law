@@ -35,3 +35,4 @@ Junta de Protección Social de San José 1,821.3 2,344.4 3,772.8 4,633.8
 OCIS DESAF 2,069.6 2,913.8 3,775.8 4,928.0
 Radiográfica Costarricense 2,618.0 3,246.5 3,885.1 4,492.1
 Refinadora Costarricense de Petróleo 6,437.1 9,296.0 13,228.3 21,710.2
+(Modificado mediante artículo 4 del Decreto Ejecutivo N°29867 del 24 de setiembre del 2001)
