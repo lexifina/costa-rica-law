@@ -1,0 +1,3 @@
+Artículo VI
+Indemnización por pérdidas
+A los inversionistas de una Parte Contratante cuyas inversiones en el territorio de la otra Parte Contratante sufran pérdidas debidas a guerra u otro conflicto armado, revolución, un estado de emergencia nacional, insurrección, disturbio o cualquier otro acontecimiento de conmoción interior similar, se les concederá, a título de restitución, indemnización, compensación u otro acuerdo, un tratamiento no menos favorable que aquel que la Parte Contratante conceda a las inversiones de sus propios inversionistas o a las inversiones de los inversionistas de cualquier tercer Estado.
