@@ -1,0 +1,1 @@
+Artículo 16.—El aporte de los miembros del fondo, se iniciará en el momento de la incorporación al Colegio de Cirujanos Dentistas de Costa Rica y terminará en las fechas de su muerte o en caso de invalidez, o cuando se acojan al beneficio de retiro por jubilación a los 65 años de edad.

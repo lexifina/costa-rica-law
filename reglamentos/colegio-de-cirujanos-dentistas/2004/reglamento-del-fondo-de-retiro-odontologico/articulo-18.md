@@ -1,0 +1,1 @@
+Artículo 18.—La junta directiva dictará las disposiciones, directrices y procedimientos que considere necesario, con el fin de obtener la eficiente administración y manejo de los recursos del fondo y la entrega oportuna de los beneficios estipulados en este Reglamento.

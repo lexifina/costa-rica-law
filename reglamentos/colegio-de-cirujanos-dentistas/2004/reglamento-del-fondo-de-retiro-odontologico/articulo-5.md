@@ -1,0 +1,2 @@
+Artículo 5º—Delegación de funciones. En caso de que la junta directiva considere pertinente la delegación de funciones, deberá exigir por medio de contrato, responsabilidad solidaria y fiduciaria del ente administrador, cuando éste ejerza una actividad discrecional, realice la programación y control de inversiones, manejo de los recursos financieros o realice la administración en general de recursos del fondo.
+En todo caso el contrato deberá ser refrendado por el auditor y el actuario asesor del fondo.

@@ -1,0 +1,1 @@
+Artículo 23.—Todo pago por concepto de los beneficios que establece este reglamento se efectuará en los lugares designados por la junta directiva. En caso de que la persona interesada estuviere imposibilitada para recibir personalmente los beneficios que le corresponden, la junta directiva establecerá los requisitos y procedimientos para la realización del pago.

@@ -1,0 +1,1 @@
+Artículo 11.—De la cuota de colegiatura se destinará al Fondo de Retiro Odontológico, el monto que defina la asamblea general, siempre que no sea inferior al 10% indicado en el artículo 8º de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 25.—El presente Reglamento deroga el anterior aprobado en Asamblea General del Colegio el 17 de octubre de 1998, reformado el 15 de mayo del 2003, sin perjuicio de los derechos adquiridos con base en este último y rige a partir de su publicación en el Diario Oficial La Gaceta.

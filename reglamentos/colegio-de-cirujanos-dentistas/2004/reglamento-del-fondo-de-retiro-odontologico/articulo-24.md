@@ -1,0 +1,1 @@
+Artículo 24.—Las únicas circunstancias admitidas para que un colegiado salga del grupo de activos cotizantes del fondo son: muerte, invalidez, alcanzar los 65 años de edad o renuncia que éste haga a los derechos de inscripción o derechos del colegio.
