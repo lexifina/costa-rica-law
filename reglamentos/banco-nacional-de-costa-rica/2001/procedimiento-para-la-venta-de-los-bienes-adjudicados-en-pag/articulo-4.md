@@ -1,0 +1,7 @@
+4. Venta de bienes muebles adjudicados en pago de obligaciones o dación de pago
+Proceso: Venta de bienes muebles adjudicados en pago de obligaciones o dación de pago. Producto: Políticas de venta. Propósito: Establecer las políticas generales para la venta de bienes muebles.
+Fecha: 6 de agosto de 1998.
+4.1 Inicio: Los bienes muebles, mercaderías u otros excepto vehículos que se regirá con el mismo procedimiento de los inmuebles, se podrán vender a la primera oferta que se reciba, por un monto igual o superior al avalúo, sin necesidad de publicarlos, dado el costo que conlleva dicha publicación.
+4.2 Proceso: Dependiendo del tipo de bien o que por su naturaleza y deseabilidad, los mismos se publicarán para su venta, con el propósito de obtener más ofertas y mayor precio de venta por dichos bienes.
+4.3 Proceso: Se podrá utilizar los rebajos aplicados a los bienes inmuebles de la misma forma, para lo cual deberá de transcurrir un plazo de un mes después de puesto en venta el bien o de acuerdo a las publicaciones, para lo cual debe quedaren el expediente las justificaciones del caso, así como el visto bueno del responsable y de la jefatura inmediata.
+4.4 Final: En los casos de mercaderías obsoletas o en mal estado, si su venia ha sido infructuosa se podrá desechar, para lo cual se levantará un acta en la que se detalle los artículos desechados y será firmada por la jefatura correspondiente y dos funcionarios más y proceder a realizar la liquidación con cargo a la reserva correspondiente.
