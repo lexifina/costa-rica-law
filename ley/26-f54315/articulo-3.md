@@ -1,0 +1,1 @@
+Artículo 3°.- Desde que se abra al servicio público el nuevo muelle y mientras no se hubiere cancelado el principal e intereses del empréstito que se levante para su construcción, la Aduana de Puntarenas liquidará el impuesto de muellaje a razón de dos céntimos el kilogramo, en vez de medio céntimo que es la actual tarifa.

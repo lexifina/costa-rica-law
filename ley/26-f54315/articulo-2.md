@@ -1,0 +1,1 @@
+Artículo 2°.- Con ese objeto de le autoriza, igualmente, para que levante un empréstito hasta por la suma de medio millón de dollars en las condiciones que juzgue más convenientes para el Estado, y en garantía del cual podrá afectar el impuesto de muellaje que se cobre por la Aduana de Puntarenas.
