@@ -19,3 +19,4 @@ Reglamento a la Ley de Seguro Integral de Cosechas
 | 4 | 1975-12-02 | Decreto Ejecutivo 5521 (1975-12-02) |
 | 5 | 1976-09-27 | Decreto Ejecutivo 6373 (1976-09-27) |
 | 6 | 1982-10-11 | Decreto Ejecutivo 13962 (1982-10-11) |
+| 7 | 1983-04-07 | Decreto Ejecutivo 14427 (1983-04-07) |
