@@ -1,2 +1,2 @@
-Artículo 60.-En la distribución de los incrementos de cuotas dispuestos por el país importador, o de los sobrantes de las cuotas nacionales que se produjeran por cualquier causa, el MEIC dará prioridad, tomando en cuenta la recomendación del Centro, a las empresas: a) Que tengan excedentes de producción, siempre que hayan utilizado mejor sus cuotas; b) Que hayan efectuando ampliaciones en su capacidad productiva de tal manera que aseguren un adecuado aprovechamiento de la cuota.
-Las disminuciones de la cuota dispuesta por el país importador afectarán proporcionalmente a los beneficiarios nacionales.
+Artículo 60.-La cuota se fijará en términos físicos, usando las medidas de peso, volumen, o unidades excepto que el país importador adopte una medida que obligue a efectuar la conversión del sistema utilizado.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 59 al 60 actual)

@@ -1,1 +1,2 @@
-Artículo 24.-Presentada la solicitud, la Dirección Ejecutiva procederá sin tardanza a comprobar si reúne los requisitos señalados en la Ley y en este Reglamento.
+Artículo 24.-En el momento de la entrega de la solicitud, la Dirección Ejecutiva estampará al pie de aquélla una nota o sello en la que hará constar la fecha de su presentación y la numerará en orden ascendente. Deberá además, dar recibo de la solicitud y de los documentos que se le entreguen.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 23 al 24 actual)

@@ -1,1 +1,2 @@
-Artículo 75.-Todas aquellas situaciones no expresamente contempladas en este Reglamento, podrán ser resueltas por el Banco aplicando supletoriamente, en lo que corresponda, las disposiciones de la Ley y de este Reglamento.
+Artículo 75.-Para los efectos de lo establecido en el artículo anterior, los CIEX tendrán como fecha de emisión la misma de la venta de las divisas al Banco. Cuando la exportación se haya pagado en forma anticipada, sea mediante carta de crédito o remesa directa se tendrá como fecha de emisión la del embarque del producto.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 74 al 75 actual)

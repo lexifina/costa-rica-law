@@ -1,1 +1,2 @@
-Artículo 46.-Pueden ingresar al país bajo el sistema previsto en este capítulo, por un plazo no mayor de ciento ochenta días, muestras, modelos, patrones y artículos similares para fines demostrativos, de investigación, de instrucción o de exposición en ferias nacionales o internacionales que se celebren en el país.
+Artículo 46.-No pueden acogerse a los beneficios de este capítulo las importaciones de materias primas, productos semimanufacturados o productos terminados, que sean in sumos de alguna de las mercancías a que se refieren los artículos 2°, párrafo segundo de la Ley y 3° de este Reglamento.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 45 al 46 actual)

@@ -1,1 +1,2 @@
-Artículo 57.-La distribución de la cuota se efectuará con base en el promedio de las exportaciones de la respectiva empresa durante el año inmediato anterior, destinadas al país cuya cuota se distribuyó pero sin tomarse en cuenta las que se hubieren efectuado de la cuota fijada, si fuere el caso.
+Artículo 57.-Para los efectos de esa distribución, las empresas exportadoras estarán obligadas a informar mensualmente al MEIC y al Centro el total de las exportaciones efectuadas al país cuya cuota se distribuyó y a suministrar cualquier otro dato o informe que se requiera.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 56 al 57 actual)

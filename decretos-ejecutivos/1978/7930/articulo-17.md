@@ -1,1 +1,6 @@
-Artículo 17.-A las personas comprendidas en el inciso a) del artículo 16 anterior, se les podrá otorgar los beneficios indicados en los artículos 6°, 8° Y 10 de la Ley. A las comprendidas en el inciso b) únicamente se les podrá otorgar el beneficio indicado en el artículo 6° de la Ley, correspondiendo al fabricante o productor, en este último caso, los beneficios de los artículos 8° y 10 de la Ley, debiendo sujetarse a lo dispuesto en este capítulo.
+CAPITULO IV
+De las Solicitudes para Obtener el Certificado de Abono Tributario y su Tramitación
+Artículo 17.-Pueden solicitar los beneficios de la Ley , las personas físicas o jurídicas que:
+a) Exporten directamente las mercancías de su propia producción o elaboración; y
+b) Exporten las mercancías producidas o elaboradas por otras personas.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 16 al 17 actual)

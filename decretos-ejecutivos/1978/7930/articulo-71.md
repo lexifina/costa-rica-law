@@ -1,4 +1,12 @@
-Artículo 71.-Los exportadores previamente calificados para la obtención del CIEX lo solicitarán al Banco en el formulario que éste ponga a su disposición para tal efecto, acompañando copia de la Licencia de Exportación, la póliza de exportación debidamente cumplimentada y la guía de embarque (bilI of landing).
-El Banco preparará la emisión del CIEX cuando el exportador demuestre al Banco que el valor FOB de sus exportaciones de productos, realizadas durante el año, hayan excedido a las del año base y que dichas exportaciones hayan cumplido con todas las disposiciones legales y reglamentarias aplicables a ese tipo de transacciones.
-El exportador recibirá los certificados en el momento en que reintegre al Banco las divisas producidas por exportaciones no tradicionales. El Banco podrá exigir cualquier otro documento que considere necesario.
-Las solicitudes de emisión de los CIEX deberán ser presentadas dentro de un período que prescribirá seis meses después de finalizado el año calendario para el cual se concedió este beneficio.
+Artículo 71.-Las personas físicas o jurídicas facultadas para solicitar la obtención del CIEX, presentarán ante el Centro la respectiva solicitud de clasificación, en el formulario que para tal efecto pondrá a su disposición ese Organismo.
+La solicitud una vez tramitada por el Centro y acompañada de su dictamen favorable para el otorgamiento del CIEX, será trasladada por dicho organismo al Banco para los fines pertinentes.
+El Banco comunicará al interesado la resolución final, enviando copia de ella al MEIC y al Centro.
+Tal resolución contendrá como mínimo los siguientes datos:
+a) Período de vigencia;
+b) Referencia a las disposiciones con base en las cuales se autoriza la emisión de los CIEX;
+c) Nombre del exportador;
+d) Decreto del MEIC por medio del cual se otorga el CAT al exportador; y
+e) Descripción de los productos o actividad para los cuales se otorga el beneficio.
+Las personas físicas o jurídicas facultadas para recibir este beneficio podrán presentar su solicitud a partir del momento en que el incremento se manifieste.
+Tal derecho caducará seis meses después de finalizado el año calendario para el cual se pida este beneficio.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 70 al 71 actual)

@@ -1,4 +1,3 @@
-CAPITULO VI
-De las Franquicias Aduaneras o Devolución de Impuestos
-Artículo 35.-Las personas que se encuentren en el caso del artículo 4°, inciso a) de la Ley, además del beneficio del CAT, podrán solicitar al Ministerio de Hacienda únicamente la devolución de los impuestos pagados o el otorgamiento de franquicias, por la importación de materias primas y demás materiales utilizados en la producción, elaboración o acondicionamiento de mercancías que sean exportadas.
-Las que se encuentre en el caso del inciso b) del mismo artículo recibirán, además del CAT, la devolución de impuestos o la franquicia por las materias primas y demás materiales utilizados en la producción, elaboración o acondicionamiento de mercancías que sean exportadas y de los impuestos pagados por maquinaria y equipo, repuestos y accesorios.
+Artículo 35.-La solicitud de prórroga para continuar gozando los beneficios de los capítulos III y IV de la Ley , debe presentarse por lo menos con 90 días de anticipación al vencimiento del plazo cuya prórroga se pide. La solicitud de prórroga se tramitará siguiendo los procedimientos establecidos en el Capítulo IV de este Reglamento.
+El MEIC, tomando en cuenta los estudios y recomendaciones del Centro, otorgará o denegará la prórroga dentro de los 90 días siguientes a la fecha de presentación de la solicitud.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 34 al 35 actual)

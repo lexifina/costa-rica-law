@@ -1,1 +1,2 @@
-Artículo 41.-EI Centro dará la asistencia técnica y administrativa, dentro de los límites de su organización, que se requiera de parte de las empresas para acogerse a los beneficios de la Ley.
+Artículo 41.-Las mercancías que se hayan importado sin pagar total o parcialmente los derechos de aduana aplicables, no podrán ser enajenadas a ningún título, o utilizadas para fines distintos de los que señale el correspondiente acuerdo o resolución, sin la previa autorización del MEIC.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 40 al 41 actual)

@@ -1,2 +1,7 @@
-Artículo 29.-Para quien disfrute de los beneficios de la Ley , el MEIC llevará un expediente con la documentación y correspondencia y por separado un registro con la anotación clasificada de los beneficios de que va haciendo uso, incluyendo en él la lista de materias primas, productos semielaborados, productos terminados que sean parte o componente del producto a exportar, envases y material de empaque.
-El exportador quedará comprometido y obligado a mostrar a los funcionarios del MEIC y del Centro en cualquier tiempo, todos sus registros contables, documentos y libros de contabilidad, correspondencia, libros de actas, y registros de socios, asimismo materias primas, mercancías y otros bienes materiales que se utilicen en la fabricación de los bienes exportables, para que una u otra dependencia, conjunta o separadamente, puedan determinar o no que continúa manteniendo los requisitos exigidos por la Ley o por este Reglamento.
+Artículo 29.-Las resoluciones que dicte el MEIC deberán contener la siguiente información mínima:
+a) fecha de presentación de la solicitud;
+b) Nombre, razón social y demás generales del solicitante;
+c) Enumeración de las mercancías específicas que exportará la empresa, con indicaciones de su naturaleza;
+d) Término de vigencia del beneficio indicando fecha de inicio del goce del mismo; y
+e) Enumeración de los beneficios de la Ley que disfrutará el solicitante y del porcentaje de CAT que le corresponde, en su caso. Un resumen de la solicitud que se presente lo mismo que el texto de la resolución respectiva que adopte el MEIC se publicará en el Diario Oficial, por una sola vez. El Ministerio remitirá copia de la resolución debidamente firmada y por correo certificado al interesado y al Banco.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 28 al 29 actual)

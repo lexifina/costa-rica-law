@@ -20,3 +20,4 @@ Reglamento a la Ley de Fomento de las Exportaciones
 | 5 | 1979-12-12 | Decreto Ejecutivo 11014 (1979-12-12) |
 | 6 | 1980-05-08 | Decreto Ejecutivo 11460 (1980-05-08) |
 | 7 | 1981-04-01 | Decreto Ejecutivo 12442 (1981-04-01) |
+| 8 | 1981-05-12 | Decreto Ejecutivo 12606 (1981-05-12) |

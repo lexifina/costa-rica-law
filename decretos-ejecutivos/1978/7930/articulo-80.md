@@ -1,1 +1,2 @@
-Artículo 80.-Sólo podrán gozar de los beneficios del CAT al amparo de este capítulo, quienes sean fabricantes de artesanías.
+Artículo 80.-En caso de que el MEIC apruebe la solicitud de beneficios, lo comunicará al Banco para que éste entregue al interesado los CAT previo el cumplimiento de los requisitos establecidos para tal efecto por el Banco. Si la solicitud de beneficios fuere denegada, el MEIC devolverá las diligencias al Centro y éste comunicará al interesado la denegatoria.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 79 al 80 actual)

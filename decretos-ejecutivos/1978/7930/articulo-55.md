@@ -1,4 +1,2 @@
-CAPITULO IX
-De las Exportaciones a Países con Controles
-Cuantitativos de Importación
-Artículo 55.-Corresponde al MEIC distribuir entre las empresas exportadoras nacionales, tomando en consideración la recomendación del Centro, las cuotas de exportación de productos que gocen los beneficios de la Ley , asignadas al país por los países con controles cuantitativos y cualitativos de importación.
+Artículo 55.-Las solicitudes para acogerse al Capítulo IV de la Ley se presentarán al Centro y regirán los mismos trámites establecidos en los artículos 21 y 22 de este Reglamento en lo que fueren aplicables.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 54 al 55 actual)

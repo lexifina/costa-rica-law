@@ -1,2 +1,2 @@
-Artículo 25.-Si a la solicitud le faltare algún requisito o documento, la Dirección Ejecutiva se abstendrá de darle curso, pero indicará al interesado dentro de los 15 días siguientes, los requisitos omitidos o información faltante para que corrija los defectos.
-El plazo de sesenta días que menciona el artículo 5° de la Ley , empezará a contarse en este caso, a partir del momento de entrega del memorial del interesado en el que supla los requisitos o documentos omitidos.
+Artículo 25.-Presentada la solicitud, la Dirección Ejecutiva procederá sin tardanza a comprobar si reúne los requisitos señalados en la Ley y en este Reglamento.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 24 al 25 actual)

@@ -1,1 +1,2 @@
-Artículo 53.-Cuando la incorporación de dichos desechos fuere en productos cuyo destino es el mercado nacional, la Dirección General de Aduanas cobrarlos impuestos y recargos correspondientes.
+Artículo 53.-Cuando se originen desechos en la producción, la Dirección General de Aduanas podrá autorizar por escrito, libre de derechos, su reembarque, destrucción, donación a instituciones públicas o de beneficencia, debidamente reconocidas por el Estado, o el traslado a otras empresas para ser incorporados en su producción que éstas destinen a la exportación.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 52 al 53 actual)

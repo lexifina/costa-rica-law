@@ -1,5 +1,2 @@
-CAPITULO IV
-De las Solicitudes para Obtener el Certificado de Abono Tributario y su Tramitación
-Artículo 16.-Pueden solicitar los beneficios de la Ley , las personas físicas o jurídicas que:
-a) Exporten directamente las mercancías de su propia producción o elaboración; y
-b) Exporten las mercancías producidas o elaboradas por otras personas.
+Artículo 16.-El Banco comunicará mensualmente al Ministerio de Hacienda, al MEIC y al Centro, las nóminas de emisión de CAT entregadas a los exportadores durante el mes próximo anterior.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 15 al 16 actual)

@@ -1,2 +1,3 @@
-Artículo 88.-La resolución que admita e! desistimiento dará por terminadas las gestiones que tenga el solicitante, dejando la situación en el estado en que se hallaban antes de presentarse el escrito de desistimiento.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 11014 del 12 de diciembre de 1979, que lo traspaso del antiguo artículo 84 al 88 actual)
+Artículo 88.-El desistimiento deberá presentarse ante la Dirección Ejecutiva o ante el MEIC, si la solicitud se encontrare ya ante éste. Deberá presentarse por escrito y la firma que lo ampare deberá ser autenticada por un abogado, o en su caso, debidamente legalizado el documento en que conste.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 11014 del 12 de diciembre de 1979, que lo traspaso del antiguo artículo 83 al 87 actual)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 87 al 88 actual)

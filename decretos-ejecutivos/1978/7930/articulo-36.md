@@ -1,5 +1,5 @@
-Artículo 36.-En los dos casos del artículo anterior, sólo se puede solicitar la devolución o la franquicia de los siguientes impuestos:
-a) De aduanas;
-b) Consumo;
-c) Ventas; y
-d) Estabilización económica.
+CAPITULO VI
+De las Franquicias Aduaneras o Devolución de Impuestos
+Artículo 36.-Las personas que se encuentren en el caso del artículo 4°, inciso a) de la Ley, además del beneficio del CAT, podrán solicitar al Ministerio de Hacienda únicamente la devolución de los impuestos pagados o el otorgamiento de franquicias, por la importación de materias primas y demás materiales utilizados en la producción, elaboración o acondicionamiento de mercancías que sean exportadas.
+Las que se encuentre en el caso del inciso b) del mismo artículo recibirán, además del CAT, la devolución de impuestos o la franquicia por las materias primas y demás materiales utilizados en la producción, elaboración o acondicionamiento de mercancías que sean exportadas y de los impuestos pagados por maquinaria y equipo, repuestos y accesorios.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 35 al 36 actual)

@@ -1,2 +1,4 @@
-Artículo 67.-El Banco fijará anualmente el monto global de los CIEX y pagará su importe utilizando recursos del Fondo de Fomento de las Exportaciones y del Turismo, aprobado por la Junta Directiva del Banco Central en la sesión N° 3075-75, artículo 4° del 27 de diciembre de 1975.
-Se tendrá como causa de suspensión de la emisión del CIEX el hecho de que el Fondo no tenga recursos disponibles, total o parcialmente para su pago. El Banco comunicará al interesado oportunamente la ocurrencia de este hecho, así como que la concesión futura de este beneficio se sujetará a la asignación de nuevos recursos al Fondo.
+CAPITULO X
+De los Certificados de Incremento de Exportaciones
+Artículo 67.-Los CIEX son títulos al portador, emitidos por el Banco en moneda nacional, libremente negociables, exentos de toda clase de impuestos e intereses, pagaderos por el Banco a su presentación y caducarán dos años después de la fecha de emisión.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 66 al 67 actual)

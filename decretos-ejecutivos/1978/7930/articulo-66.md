@@ -1,3 +1,2 @@
-CAPITULO X
-De los Certificados de Incremento de Exportaciones
-Artículo 66.-Los CIEX son títulos al portador, emitidos por el Banco en moneda nacional, libremente negociables, exentos de toda clase de impuestos e intereses, pagaderos por el Banco a su presentación y caducarán dos años después de la fecha de emisión.
+Artículo 66.-La distribución de la cuota nacional entre las empresas beneficiarias se consignará en un acuerdo que emitirá el MEIC y se publicará en el Diario Oficial.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 65 al 66 actual)
