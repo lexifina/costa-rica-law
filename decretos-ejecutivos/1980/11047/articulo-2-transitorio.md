@@ -1,1 +1,0 @@
-Transitorio Il.-El personal técnico y administrativo que actualmente labora en la Oficina Sectorial de Planificación Industrial, conserva sin solución de continuidad, todos sus derechos laborales, privilegios por años de servicio y los demás derechos de que han venido gozando.
