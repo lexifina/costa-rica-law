@@ -1,0 +1,1 @@
+4°-La maquinaria y materiales que al intento se introduzcan han de estar de acuerdo con los últimos adelantos en el ramo, y serán de condiciones capaces para que los taladros alcancen, á lo menos, á trescientos metros de profundidad.

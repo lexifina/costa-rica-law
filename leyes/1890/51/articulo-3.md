@@ -1,0 +1,1 @@
+Art. 3°-Si dentro de diez y ocho meses contados desde la emisión de esta ley, no hubieren los empresarios introducido toda la maquinaria y útiles indispensables para la instalación de los pozos, caducará la presente concesión, y los empresarios pagarán desde luego depositarán ó la suma de mil pesos por vía de multa, suma que por la que rendirán garantía equivalente.
