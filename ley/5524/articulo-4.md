@@ -1,0 +1,59 @@
+Artículo 4º.- El Organismo tendrá, entre otras que legalmente le sean
+señaladas, las siguientes atribuciones:
+1) Recibir denuncias;
+2) Cuidar que se conserve todo lo relacionado con el hecho punible y que
+el estado de las cosas no se modifique hasta que llegue al lugar la
+autoridad competente. No obstante, cuando se tratare de heridos, tomará
+las medidas necesarias para su curación, trasladándolos inmediatamente a
+donde se les preste auxilio. Mientras llega al lugar de los hechos la
+respectiva autoridad, los miembros del Organismo practicarán las
+diligencias técnicas de su incumbencia que consideren necesarias para el
+éxito de la investigación;
+3) Ordenar, si es necesario, la clausura del local en que se ejecutó el
+delito, o en que se suponga, por vehementes indicios, que alguno se ha
+cometido; que ninguna persona se aparte o ingrese al local o lugar y sus
+inmediaciones antes de concluir las primeras diligencias, pudiendo
+aprehender, por el tiempo estrictamente indispensable, a las personas cuyas
+declaraciones puedan ser útiles para el éxito de la investigación;
+4) Hacer constar el estado de las personas, cosas y lugares, mediante
+los exámenes, inspecciones, planos, fotografías, y demás operaciones
+técnicas aconsejables;
+5) Recoger todas las pruebas y demás antecedentes, que tengan
+importancia en el caso;
+6) Proceder a la aprehensión de los presuntos culpables. Sin embargo,
+todo el que fuere detenido deberá ser puesto a la orden de la autoridad
+judicial competente, dentro del término perentorio de veinticuatro horas.
+Si en el curso de su detención y mientras no esté a la orden de la
+autoridad judicial, se desvirtuaren en cualquier forma los indicios de su
+culpabilidad, será puesto de inmediato en libertad;
+7) Disponer la incomunicación, por resolución escrita, de los presuntos
+culpables, para evitar que puedan ponerse de acuerdo con terceras personas
+que entorpezcan la investigación. Tal resolución se pondrá, de inmediato,
+en conocimiento de la autoridad competente, quien podrá revocarla si la
+considerare injustificada. La incomunicación no podrá exceder de cuarenta
+y ocho horas sin orden del respectivo Juez y, en todo caso, deberá
+ajustarse estrictamente a los requisitos de ley. Los menores de diecisiete
+años sujetos a investigación no podrán ser incomunicados en ningún caso;
+8) Recibir declaración del imputado en la forma y con las garantías que
+establece la ley;
+9) Proceder a interrogar a todas la personas que pudieran aportar datos
+de interés a la investigación, practicando los reconocimientos,
+reconstrucciones, inspecciones y confrontaciones convenientes;
+10) Efectuar todos los exámenes, indagaciones y pesquisas que juzgue
+oportunas para la buena marcha de las investigaciones;
+11) Practicar peritaciones de toda naturaleza, solicitando la colaboración
+de técnicos foráneos, cuando se requieran conocimientos científicos
+especiales, los cuales no podrán negar su cooperación. Asimismo, puede
+solicitar la asistencia de intérpretes, cuando fuere necesario, los que
+tampoco podrán negar su colaboración. Tales técnicos e intérpretes
+prestarán juramento de cumplir bien y lealmente su encargo, y de guardar
+secreto sobre la materia en que intervinieron;
+12) Proceder a los registros, allanamientos y requisas que fueren
+necesarias para la buena marcha de las investigaciones, con las
+formalidades que prescribe el Código Procesal Penal; y
+13) Solicitar la colaboración de otras autoridades, las que no podrán
+negarla. La policía administrativa actuará siempre que no pueda hacerlo
+inmediatamente la judicial, pero desde que ésta intervenga, la
+administrativa será su auxiliar. En casos urgentes o cuando cumpla órdenes
+de autoridades judiciales, la policía administrativa tendrá las mismas
+atribuciones que la judicial.
