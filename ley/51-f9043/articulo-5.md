@@ -1,0 +1,1 @@
+Art 5°.- Todos los Códigos, leyes y reglamentos vijentes continuarán observándose en cuanto no se opongan a la Constitución decretada en este día y mientras que, conforme a ella no se promulguen otros nuevos.
