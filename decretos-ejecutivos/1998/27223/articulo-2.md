@@ -1,0 +1,1 @@
+Artículo 2°-En esta área el Ministerio del Ambiente y Energía deberá de realizar los desalojos en sede administrativa, que le correspondan en el control del sitio, y no permitirá nuevas invasiones que se produzcan en el lugar. Para tal efecto podrá solicitar colaboración de autoridades de otras instituciones públicas o no.
