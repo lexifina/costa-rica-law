@@ -1,0 +1,1 @@
+Artículo 79.—Las Reformas al presente Reglamento deberán ser aprobadas por dos tercios de los regidores con derecho a voto. Seguirán el mismo trámite que las iniciativas para los regidores y deberán necesariamente dictaminarse en la Comisión de Asuntos Jurídicos.

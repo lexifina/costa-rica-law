@@ -1,0 +1,1 @@
+Artículo 8°—En la votación para elegir al presidente vicepresidente definitivos del Directorio del Concejo, que serán escogidos de entre los propietarios, votarán únicamente los regidores propietario Para tal elección bastará con la mayoría relativa de los votos presentes. E existir empate será la suerte la que decidirá.

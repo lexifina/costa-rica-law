@@ -1,0 +1,2 @@
+Artículo 68.—El Alcalde podrá vetar los acuerdos del Concejo por motivos de legalidad y oportunidad, dentro del quinto día después de aprobado definitivamente el acuerdo.
+El veto deberá ser presentado por escrito, y se fundamentará en las normas o principios jurídicos violadas. La falta de presentación del veto en el tiempo estipulado, implicará la obligatoriedad absoluta del Alcalde de ejecutar el acuerdo.

@@ -1,0 +1,1 @@
+Artículo 60.—Cuando la Contraloría General de la República, negare la aprobación al presupuesto, el Alcalde dispondrá de un plazo improrrogable de 24 horas para elevar ante el plenario municipal el respectivo Recurso de Insistencia.

@@ -1,0 +1,1 @@
+Artículo 58.—Durante la discusión del Presupuesto Municipal por parte del Concejo, no habrá sesiones de las Comisiones, con el fin de que los Regidores y Síndicos puedan estudiar y analizar el Proyecto de Presupuesto, salvo para el trámite de asuntos urgentes.

@@ -1,0 +1,1 @@
+Artículo 14.—Pasado los quince minutos de ley, si no concurre el quórum necesario para sesionar, el presidente encargará al secretario del Concejo para que deje constancia de tal circunstancia en el libro de actas, y se lomará la nómina de los presentes, a fin de acreditar su asistencia a la sesión a efecto del pago de la dieta respectiva.

@@ -1,0 +1,2 @@
+Artículo 59.—Si el presupuesto Municipal no se llegare a aprobar en el tiempo dispuesto para ese efecto, por razones que sean imputables a los funcionarios o Regidores Municipales; el Alcalde tendrá un plazo improrrogable de diez días para presentar las acciones legales, administrativas, civiles o penales que sean imputables.
+Del recibo de dichas acciones deberá enviar copia de inmediato a la Auditoría y a la Contraloría General de la República.

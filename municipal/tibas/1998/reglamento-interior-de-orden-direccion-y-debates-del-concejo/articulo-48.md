@@ -1,0 +1,2 @@
+Artículo 48.—La asistencia de los empleados y funcionarios municipales y Asesores de Fracción será obligatoria a las sesiones del Concejo y Comisiones, cuando sean expresamente convocados, a efecto de asesorarlos sobre asuntos relacionados con sus respectivas dependencias.
+En caso de fuerza mayor y con la anuencia del Alcalde Municipal, podrán hacerse representar por otro funcionario de su dependencia, debiendo en todo caso permanecer sin interrumpir la sesión, en la sala dispuesta para este efecto.

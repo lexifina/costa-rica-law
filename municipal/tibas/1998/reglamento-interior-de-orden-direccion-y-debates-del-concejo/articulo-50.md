@@ -1,0 +1,1 @@
+Artículo 50.—Serán designadas como sesiones solemnes, mediante acuerdo del Concejo las dedicadas exclusivamente, para recibir un invitado especial y programadas para rendir homenaje a un funcionario o ciudadano; las que así correspondan protocolariamente.

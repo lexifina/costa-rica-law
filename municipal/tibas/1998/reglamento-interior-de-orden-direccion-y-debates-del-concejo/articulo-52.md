@@ -1,0 +1,1 @@
+Artículo 52.—Serán sesiones extraordinarias las convocadas por la Presidencia, siguiente el procedimiento establecido en el presente reglamento y en el Código Municipal, en fecha u hora diferente a las de las sesiones ordinarias, en el salón del palacio municipal o en otro lugar.

@@ -1,0 +1,1 @@
+Artículo 10.—En esta sesión solemne, tendrán derecho a hacer uso de la palabra, además del presidente, los Jefes de Fracción de los Partidos Políticos representados en la Municipalidad, hasta por espacio de treinta minutos, para referirse a asuntos de interés para la Municipalidad y de 1 localidad.

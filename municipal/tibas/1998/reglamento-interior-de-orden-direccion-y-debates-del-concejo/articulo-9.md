@@ -1,0 +1,1 @@
+Artículo 9°—La Secretaría Municipal en presencia de un fiscal debidamente acreditado por cada fracción, especialmente para este acto contabilizará los votos emitidos y anunciará al plenario municipal el resultado.

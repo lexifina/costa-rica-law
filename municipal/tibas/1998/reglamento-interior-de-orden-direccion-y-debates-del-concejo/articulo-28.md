@@ -1,0 +1,1 @@
+Artículo 28.—La Presidencia concederá receso hasta por un lapso quince minutos, a las fracciones políticas cuando así lo solicite el Jefe de una de las distintas fracciones, vencido el tiempo, la Presidencia esta (acuitada para reiniciar la sesión tan pronto como disponga del quórum respectivo.

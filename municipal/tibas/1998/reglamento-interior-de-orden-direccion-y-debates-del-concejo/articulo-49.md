@@ -1,0 +1,1 @@
+Artículo 49.—Cuando se hiciere presente un invitado de honor, miembros de los Supremos Poderes, Contralor y Sub-Contralor de la República, representantes de alto nivel de Instituciones Autónomas y Organismos Oficiales extranjeros, se le ingresará a la sesión en el momento determinado por la Presidencia.

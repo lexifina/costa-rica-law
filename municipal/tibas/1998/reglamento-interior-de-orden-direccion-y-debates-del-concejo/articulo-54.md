@@ -1,0 +1,1 @@
+Artículo 54.—Para la configuración del presupuesto, se partirá del sistema de información de ingresos que haya determinado la Contraloría General de la República, y sobre estos se determinarán los egresos por programas.

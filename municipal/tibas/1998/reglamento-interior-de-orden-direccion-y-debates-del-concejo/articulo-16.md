@@ -1,0 +1,1 @@
+Artículo 16.—El Consejo sesionará en forma ordinaria el día y la hora que determine. Las sesiones ordinarias podrán ser realizadas cualesquier otro día siempre y cuando cuente con la aprobación del Concejo y de lo estipulado en el artículo 5 de este capítulo.

@@ -1,0 +1,1 @@
+Artículo 70.—De la interposición del velo por parte del Alcalde, dentro del plazo estipulado en el articulo 68, el Concejo deberá rechazarlo o acogerlo en la sesión inmediata a la presentación del veto.

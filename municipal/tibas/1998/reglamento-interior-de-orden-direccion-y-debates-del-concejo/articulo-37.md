@@ -1,0 +1,1 @@
+Artículo 37.—Habrá también un secretario cuyo nombramiento compete al Concejo Municipal, el cual se dedicará exclusivamente al desempeño de las funciones que le determina el articulo 53 del Código Municipal y otras que le señale el Manual de Clasificación y Valoración de Puestos de la Municipalidad.

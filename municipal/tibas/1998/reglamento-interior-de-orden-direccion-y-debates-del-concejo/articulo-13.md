@@ -1,0 +1,1 @@
+Artículo 13.—Las sesiones del Concejo deberán efectuarse en e local sede le la municipalidad. Sin embargo, podrán celebrarse sesiones e cualesquier otro lugar del cantón, cuando vayan a tratarse de asunto relativos a los intereses de los vecinos de esa localidad.

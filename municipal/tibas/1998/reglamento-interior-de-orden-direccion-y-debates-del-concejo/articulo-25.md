@@ -1,0 +1,1 @@
+Artículo 25.—Toda posposición de un asunto incluido en el Orden del día implica alteración de este, excepto cuando el Concejo hay comenzado su debate, en cuyo caso, la moción correspondiente cabe, como moción de orden, en cualquier instante de la discusión del asunto que se pretenda posponer.

@@ -1,0 +1,1 @@
+Artículo 56.—En las sesiones en las que se discuta el presupuesto Municipal se le dará curso únicamente a mociones destinadas a aumentar o disminuir una transferencia, mediante el traslado de fondos, destinados a crear o ampliar otra transferencia contenida en el mismo proyecto.

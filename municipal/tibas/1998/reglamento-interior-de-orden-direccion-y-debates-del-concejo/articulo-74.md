@@ -1,0 +1,2 @@
+Artículo 74.—Cuando el presidente Municipal tuviese que mocionar o en alguna forma involucrarse en la defensa de algún asunto en discusión del Plenario Municipal, dejará su asiento al vicepresidente llamándolo a sustituirlo de inmediato.
+Si fuese el Vicepresidente en ese momento el Presidente en ejercicio, el regidor propietario de mayor edad será el llamado a sustituirlo hasta que el asunto haya sido votado en definitiva.

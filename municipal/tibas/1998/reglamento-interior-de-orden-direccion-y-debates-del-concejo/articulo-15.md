@@ -1,0 +1,1 @@
+Artículo 15.—El regidor suplente sustituirá al propietario con derecho a permanecer como miembro del Concejo durante toda la sesión. La sustitución del propietario se tendrá por efectiva, si durante los quince minutos establecidos de ley el propietario no se hubiere presentado, de igual forma sin iniciar y ya pasados los quince minutos.

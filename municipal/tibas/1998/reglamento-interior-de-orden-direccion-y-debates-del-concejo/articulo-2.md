@@ -1,0 +1,1 @@
+Artículo 2°—Las sesiones del Concejo Municipal deben celebrarse en el recinto, destinado para este efecto, no obstante, podría celebrarse previo acuerdo del Concejo, sesiones extraordinarias en otros sitios del cantón.

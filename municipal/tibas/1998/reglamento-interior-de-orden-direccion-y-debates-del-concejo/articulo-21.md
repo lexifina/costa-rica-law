@@ -1,0 +1,2 @@
+Artículo 21.—Los acuerdos del Concejo que sean originados por iniciativa del Alcalde Municipal o de los regidores, se lomarán previa moción o proyecto escrito y firmado por lo proponentes.
+Los acuerdos se tomarán previo dictamen de una Comisión del Concejo y subsiguiente deliberación; pudiendo dispensarse de dicho trámite de dictamen, si lo acuerda el Concejo por medio de una votación calificada de los presentes.

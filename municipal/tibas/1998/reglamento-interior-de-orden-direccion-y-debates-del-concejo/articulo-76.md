@@ -1,0 +1,1 @@
+Artículo 76.—Cuando un dictamen fuese devuelto a Comisión a solicitud del Concejo o de la Presidencia, y la Comisión se excusare de conocerlo, esta deberá ser admitida por la presidencia, y deberá remitirse a otra Comisión.

@@ -1,0 +1,1 @@
+Artículo 39.—Los miembros del Directorio del Concejo durarán en sus funciones el término que señale el Código Municipal, sea del primero de mayo al treinta de abril que corresponda a su periodo, pudiendo ser reelectos.

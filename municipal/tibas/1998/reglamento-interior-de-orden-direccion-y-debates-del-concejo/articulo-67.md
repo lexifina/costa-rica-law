@@ -1,0 +1,2 @@
+Artículo 67.—El recurso de Revisión podrá ser presentado por ei interesado contra el acuerdo municipal que teniendo los recursos ordinarios de revocatoria y apelación no los haya promovido en tiempo; siempre y cuando no hubiesen transcurrido diez años de tomado el acuerdo y que el acto no hubiere agotado todos sus efectos.
+Este recurso sólo podría ser fundado en motivos que originen la nulidad absoluta del acto.

@@ -1,0 +1,4 @@
+Artículo 23.—En cualquier estado del debate podrán presentarse; mociones de orden, en relación con el asunto que se discute, las cuales una vez aceptadas por la Presidencia, se pondrán en discusión tan pronto como cese en el uso de la palabra el miembro del Concejo que la tuviere en el momento de su aceptación.
+Han de ser debatidas en riguroso orden de presentación y resueltas sin dilación y sólo se permitirá la palabra al proponente y a un regidor… por cada una de las fracciones políticas representadas en el Concejo, por un tiempo máximo de cinco minutos y por una sola vez.
+Puesta a votación una moción de orden y aceptada por mayoría simple, se establece que de manera implícita el Concejo la ha dispensado de todo trámite de Comisión.
+Sobre una moción de orden no cabe otra moción que pretenda posponerla.

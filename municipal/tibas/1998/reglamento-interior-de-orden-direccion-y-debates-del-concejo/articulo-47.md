@@ -1,0 +1,2 @@
+Artículo 47.—En el capítulo de iniciativas de los regidores, se presentarán al Directorio las mociones y proposiciones por escrito y debidamente firmadas por estos, las cuales serán recibidas mediante reloj marcador.
+La hora y fecha de recepción serán registradas por un reloj marcador que determinará el orden para su análisis, para el traslado a la comisión correspondiente o para su discusión y votación. Se excepciona de este artículo las mociones con alteración del orden y las que traslade la Presidencia al capítulo de Asuntos de Trámite Urgente.
