@@ -1,0 +1,6 @@
+SECCION VI
+Academia del Servicio
+Articulo 12.-Personal de apoyo docente y administrativo. La Academia, contar con el siguiente personal de apoyo docente y administrativo:
+a) Director Academico. Es el responsable de la administracion de los recursos y del personal docente y administrativo de la Academia del Servicio, adem s de planificar, coordinar y dirigir el Programa Curricular de la Academia del Servicio en coordinacion con la Direccion de Guardacostas, velar por el correcto funcionamiento de las unidades encargadas de la instruccion en la capacitacion tecnica-policial nautica, procurando en todo momento la excelencia en la preparacion profesional del personal a capacitar.
+b) Personal docente. Instructores Calificados de asuntos tecnico-policiales, Instructores Calificados de asuntos tecnico-nauticos, Instructores en fortalecimiento de la personalidad, don de mando, liderazgo, Instructores de preparacion y acondicionamiento f¡sico, y otros que la Academia requiera.
+c) Personal administrativo. Asistente administrativo, Secretaria, Cocineras, Encargados de mantenimiento, Encargados de seguridad, bodega y otros que la Academia requiera. Las materias ambientales y de legislacion, ser n abordadas por los profesionales de los Departamentos de Asesoria Juridica y Ambiental, de acuerdo a la Ley y este Reglamento.

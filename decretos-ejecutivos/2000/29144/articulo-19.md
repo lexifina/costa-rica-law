@@ -1,0 +1,12 @@
+CAPITULO V
+Del personal tecnico - policial
+Articulo 19.-Ser considerado como personal tecnico - policial, de conformidad con el articulo 22 de la Ley N 8000, asi como las funciones de cada uno de ellos, los que a continuacion se detallan:
+Agente Guardacostas I Ejecuta labores policiales- nauticas de nivel basico, solicitadas por sus superiores con el proposito de brindar el soporte operativo que el servicio requiere, en las areas de navegacion, tecnica y ambiental
+Agente Guardacostas II Supervisa y ejecuta labores policiales-nauticas de nivel medio en las diferentes areas de operacion (nautica, tecnica y ambiental) del Servicio.
+Suboficial Guardacostas I Supervisa y ejecuta labores policiales- nauticas de un grupo de marineros, en una Estacion de Guardacostas o embarcacion, asi como los aspectos operacionales, de inteligencia y cualquier otro que el Servicio requiera.
+Suboficial Guardacostas II Supervisa y ejecuta labores policiales- nauticas y tecnicas, de un grupo de funcionarios especializados en una Estacion de Guardacostas o embarcacion, asi como los aspectos operacionales, de inteligencia, tecnicos y cualquier otro que el Servicio requiera.
+Capitan Guardacostas I Es responsable y conduce embarcaciones de 65 hasta 105 pies. Coordina, supervisa y ejecuta actividades relacionadas con la operacion y navegacion de una embarcacion de guardacostas, con el debido cuidado de la embarcacion y la integridad fisica de su tripulacion, para la seguridad y vigilancia de las aguas jurisdiccionales.
+Capitan Guardacostas II Es responsable y conduce embarcaciones de 65 pies en adelante sin limite cuando sea necesario. Planifica coordina, supervisa y ejecuta actividades relacionadas con la navegacion de una embarcacion de guardacostas, con el debido cuidado de la embarcacion y la integridad fisica de su tripulacion, para la seguridad y vigilancia de las aguas jurisdiccionales.
+Oficial Ambiental Guardacostas Planifica, coordina, ejecuta, asesora y supervisa las labores de la Unidad Ambiental de una Estacion de Guardacostas.
+Oficial Ingeniero Mantenimiento Naval Es el Jefe de Mantenimiento del Servicio, es responsable, coordina y supervisa las diferentes labores que realizan los diversos tecnicos relacionadas con el mantenimiento de las embarcaciones.
+Oficial Juridico Guardacostas Asiste al Asesor Juridico del Servicio Nacional del Guardacostas, en materia legal de contratacion administrativa, operacional policial, capacitacion, seguimiento a causas administrativas y penales en las que el Servicio tenga conocimiento.

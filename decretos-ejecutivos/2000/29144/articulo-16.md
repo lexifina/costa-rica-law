@@ -1,0 +1,1 @@
+Articulo 16.-Todo el personal del Servicio Nacional de Guardacostas y la Academia de este, sera reclutado y facilitado por el Ministerio de Seguridad Publica. El Director del Servicio, solicitar y establecer la cantidad, area de especialidad para la asignacion de dicho personal. La seleccion y nombramiento ser potestad exclusiva del Director del Servicio Nacional de Guardacostas.

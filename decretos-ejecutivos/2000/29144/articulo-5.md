@@ -1,0 +1,3 @@
+SECCION I
+La Direccion General
+Articulo 5-La Direccion General estar a cargo de un director general que ser responsable de las funciones del Servicio, de acuerdo al articulo 6 de la Ley N 8000. En el orden jerarquico se reportar directamente al Ministro de Seguridad Publica. Para el optimo cumplimiento de sus funciones, estar apoyado por un consejo asesor, que estar conformado por los encargados de los departamentos; administrativo, operaciones, asesoria legal, ambiental y un representante de los oficiales directores, y ser presidido por el director, dicho consejo recomendar lo pertinente al director, quien en ultima instancia tomar la decision que corresponda. Los miembros del consejo asesor no devengar n dietas por su gestion como integrantes del mismo.

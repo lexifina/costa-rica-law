@@ -1,0 +1,1 @@
+Articulo 13.-Venta de servicios. Se autoriza la venta de servicios de capacitacion por parte de la Academia dentro de su giro normal, por lo tanto, el Consejo Directivo de la Academia, definir semestralmente o cuando se requiera, los servicios a brindarse y los costos de ellos, de acuerdo a un estudio tecnico realizado al efecto.
