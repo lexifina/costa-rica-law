@@ -1,0 +1,2 @@
+Artículo 4°—Los interesados podrán solicitar la información al Gerente al tiempo que requieran, únicamente en la estructura de que brindó el proveedor al ICT, de acuerdo con las contrataciones preestablecidas.
+En caso de que el usuario solicite información específica de la base de datos del 1-800, de acuerdo con sus intereses en particular, podrá dirigirse directamente al proveedor y cubrir el costo de elaboración que esto implique.

@@ -1,0 +1,1 @@
+Artículo 6°—-Cuando el usuario del servicio, haga mal uso de la información de la base de datos 1-800, incumpliendo lo estipulado en el artículo 3 de este Reglamento y quebrantando el compromiso adquirido en la solicitud, previsto en el artículo anterior, no se aprobarán posteriores solicitudes a su favor.

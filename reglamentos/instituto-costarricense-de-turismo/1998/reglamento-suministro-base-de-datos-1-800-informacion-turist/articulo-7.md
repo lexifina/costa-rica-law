@@ -1,0 +1,1 @@
+Artículo 7°—El Área de Información de la Dirección de Promoción del Instituto, llevará un registro de las solicitudes de suministro de la base de daos y se designará un funcionario de dicha Área, quien será el del manejo del trámite respectivo.

@@ -1,0 +1,2 @@
+Artículo 2°—Para obtener la base de datos el interesado deberá presentar una solicitud de en el Área de Información Turística del Departamento de Promoción, donde se le dará el trámite correspondiente de conformidad con las finalidades y funciones del Instituto.
+El solicitante se comprometerá a utilizar la información únicamente para los fines de promoción y fomento de la actividad turística del país.
