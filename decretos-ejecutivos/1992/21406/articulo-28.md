@@ -1,1 +1,0 @@
-Artículo 28.-EI Ministerio de Salud previa recomendación del Departamento de Registro y Control de Sustancias Tóxicas y Medicina del Trabajo mediante reglamento podrá dictar medidas adicionales en todo lo referente al almacenamiento de Sustancias y Productos Tóxicos y Sustancias, Productos u Objetos Peligrosos.

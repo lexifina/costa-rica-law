@@ -1,1 +1,0 @@
-Artículo 6°-En la solicitud de Registro de Sustancias, Productos Tóxicos y Sustancias, Productos u Objetos Peligrosos se deberá indicar el material, tipo y tamaño de los envases o empaques a ser utilizados en la comercialización y garantizar que el material utilizado en el envase es resistente a la acción física o química del producto.

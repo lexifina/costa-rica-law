@@ -1,1 +1,0 @@
-Artículo 48.-Deróguese el decreto ejecutivo N° 16335-S Reglamento de Clasificación General y Terminología de Sustancias Peligrosas en todas sus disposiciones, y deroga todos aquellos decretos que se le opongan.

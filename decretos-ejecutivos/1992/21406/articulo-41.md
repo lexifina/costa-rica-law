@@ -1,1 +1,0 @@
-Articulo 41.-El Departamento resolverá el Recurso de Revocatoria en un término de 8 días hábiles siguientes a la presentación y si fuere declarado sin lugar, elevara los autos a conocimiento del Ministro quien resolverá en definitiva el recurso.

@@ -1,1 +1,0 @@
-Artículo 18.-Concedida la renovación de registro y publicada en el Diario Oficial, al solicitante se le extenderá el Certificado de Renovación debidamente sellado y con la firma de jefe del Departamento y el jefe de la unidad de Registro.

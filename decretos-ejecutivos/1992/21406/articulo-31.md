@@ -1,1 +1,0 @@
-Artículo 31.-El Departamento podrá revocar el Permiso Sanitario de Funcionamiento a toda persona natural o jurídica que venda con conocimiento o dolo sustancias, productos u objetos que puedan ser utilizados por menores de 18 años.

@@ -1,1 +1,0 @@
-Artículo 35.-Queda terminantemente prohibido la manipulación, almacenamiento, venta, transporte, distribución, o suministro por personas naturales o jurídicas de Sustancias o Productos Tóxicos y Sustancias, Productos u Objetos Peligrosos sin él debido Permiso de Funcionamiento o Permiso de Ubicación emitido por el Departamento.
