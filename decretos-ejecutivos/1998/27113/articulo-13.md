@@ -1,0 +1,1 @@
+Artículo 13.—Por un valor de comodidad, puede convocarse a sesiones en la que sólo participen algunos miembros u otros invitados temporalmente (Consejo Especial), para tratar asuntos específicos, en cuyo caso la sesión sería convocada por el presidente del Consejo y presidida por el Coordinador del SINETEC, de los cuales serán informados todos los miembros.

@@ -1,0 +1,1 @@
+Artículo 16.—Esta Comisión Técnica, presidida por el Coordinador del Sistema, estará formada por las más altas autoridades de nivel técnico, nombradas por los miembros del Consejo del Sistema, ya sea en forma permanente o temporal.

@@ -1,0 +1,1 @@
+Articulo 9°—Será potestad del presidente del Consejo del SINETEC invitar a representantes del sector empresarial o instituciones de educación públicas o privadas para conocer su criterio sobre acuerdos que tome el Consejo Nacional de Educación Técnica, o incorporarse en grupos de estudio, en asuntos relacionados con el técnico profesional.

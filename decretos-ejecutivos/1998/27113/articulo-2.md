@@ -1,0 +1,1 @@
+Artículo 2°—El SINETEC lo conforman el conjunto de instituciones, entidades y órganos del sector público y del sector privado, con actividades reconocidas oficialmente en el campo de la educación técnica, junto con los organismos del sector productivo que demanden servicios especializados de los recursos técnico profesionales.
