@@ -1,0 +1,1 @@
+Artículo 13.-Por cada solicitud de beca, la secretaría de comisiones abrirá un expediente en donde constarán todos los documentos aportados por el interesado. La Comisión de Educación no dará trámite a aquellas solicitudes que sean entregadas en forma incompleta o carentes de documentos.

@@ -1,0 +1,1 @@
+Artículo 8°-Los estudiantes que deseen acogerse al programa de becas deberán comprobar ante la Municipalidad que no están disfrutando de otro régimen becario. Dicha comprobación se hará mediante nota emitida por las autoridades de la institución educativa en donde estudia. En caso contrario se le dará prioridad a aquellos que no tienen dichos beneficios.
