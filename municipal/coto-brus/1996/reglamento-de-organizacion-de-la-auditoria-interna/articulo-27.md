@@ -1,0 +1,1 @@
+Artículo 27.-EI funcionario ejecutivo responsable de disponer la implantación de las recomendaciones, comunicadas por la auditoría Interna mediante informes, dispondrá de un plazo máximo de treinta días hábiles, contados a partir del día siguiente de su recibo, para informar a esa Unidad sobre la aceptación de tales recomendaciones.

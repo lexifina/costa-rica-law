@@ -1,0 +1,1 @@
+Artículo 32.-Las disposiciones de este Reglamento son de aplicación en todas las unidades que conforman la organización de la Municipalidad, en lo que corresponda, según el caso. Cualquier discrepancia que se presente en cuanto a su interpretación y ejecución, será resuelta por el Concejo Municipal de común acuerdo con el Auditor Interno.

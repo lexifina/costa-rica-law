@@ -1,0 +1,1 @@
+Artículo 33.-Las modificaciones que se estimen convenientes a este Reglamento serán propuestas a la máxima autoridad de la Municipalidad. Al respecto, se deberá solicitar el criterio del Auditor Interno previo a la toma de la decisión.
