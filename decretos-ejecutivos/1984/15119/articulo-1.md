@@ -1,4 +1,6 @@
+(Derogado)
 N° 15119
+(Este Decreto fue derogado por el artículo 2 del decreto ejecutivo N°20082 del 09 de noviembre de 1990)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
 En ejercicio de las facultades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política, y

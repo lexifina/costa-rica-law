@@ -14,3 +14,4 @@ Rectifica linderos del Refugio Nacional de Vida Silvestre Dr. Rafael Lucas Rodr√
 | Versi√≥n | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-01-20 | la propia norma |
+| 2 | 1990-11-09 | Decreto Ejecutivo 20082 (1990-11-09) |
