@@ -1,4 +1,5 @@
-Artículo 13.- La Asamblea o Junta General es la autoridad suprema del
-Colegio, siendo de su competencia la resolución de todos aquellos asuntos
-que, por su índole o por mandato expreso, legal o reglamentario, no puedan
-ser resueltos por la Junta Directiva.
+Artículo 13.- Las personas que ejerzan la profesión contra lo
+dispuesto en la presente ley, quedan sujetas a las sanciones legales
+establecidas para el ejercicio ilegal de profesiones. Los miembros
+temporales y asociados ejercerán sus profesiones de acuerdo a lo dispuesto
+en el Capítulo III que antecede.

@@ -1,3 +1,4 @@
-Artículo 11.- Las personas que ejerzan indebidamente la Profesión de
-Químico, y contra lo dispuesto en esta ley, quedan sujetas a las sanciones
-legales vigentes.
+Artículo 11.- Para ejercer la profesión de Químico o Ingeniero
+Químico, se requiere estar en pleno goce de los derechos civiles y ser de
+reconocida solvencia moral y académica, conforme al inciso a) del artículo
+5 de esta ley, además de pertenecer al Colegio Federado.

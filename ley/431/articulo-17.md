@@ -1,2 +1,4 @@
-Artículo 17.- El quórum de la Junta se formará con cuatro de sus
-miembros; los acuerdos se tomarán por mayoría de los votos presentes.
+Artículo 17.- Las Jefaturas de los Departamentos de Química o
+Ingeniería Química, así como también las Jefaturas de Laboratorios Químicos
+o de Ingeniería Química en un establecimiento público o privado, sólo
+pueden ser ocupadas por personas incorporadas al Colegio Federado.
