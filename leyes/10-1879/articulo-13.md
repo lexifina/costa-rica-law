@@ -1,0 +1,2 @@
+Art. 13.—Si el reo cuya extradición se solicita, estuviese acusado ó hubiese sido condenado por crimen ó delito cometido en la jurisdicción territorial de la República en que se encuentra, no será entregado sino después de haber sido absuelto, y, en caso de condenación, después de haber sufrido la pena.
+En los casos en que el reo cuya entrega se pida, hubiese contraído obligaciones que no pueda cumplir á causa de la extradición, esta se llevará siempre a efecto, quedando la parte interesada en libertad de gestionar sus derechos ante la autoridad competente.

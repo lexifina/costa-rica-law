@@ -1,0 +1,1 @@
+Art. 11.—Cuando haya lugar á la extradición, todos los objetos aprehendidos que tengan relación con el delito y sus autores, se entregarán, sin perjuicio del derecho de tercero, á la República reclamante. Dicha entrega se verificará también, aunque por la muerte ó fuga del inculpado, no pueda llevarse á efecto la extradición,

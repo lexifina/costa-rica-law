@@ -1,0 +1,1 @@
+Art. 5°—Cuando la pena del crimen ó delito que motiva la extradición, no sea igual en la Nación reclamante y en la del refugio, sufrirá el delincuente la menor, y en ningún caso se le aplicará la de muerte.

@@ -1,0 +1,1 @@
+Art. 21.—Si alguna de las Naciones contratantes, creyese necesario introducir modificaciones en este Tratado, antes ó después de estar en vigor, lo hará saber á las demás; pero en el segundo caso, no quedará desligada, sino un año después de este acto, termino en que se procurará llegar á un nuevo acuerdo, por vía y en la forma que se crea más conveniente.

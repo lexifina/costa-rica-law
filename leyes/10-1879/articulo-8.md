@@ -1,0 +1,2 @@
+Art. 8°—Para la extradición se entenderán entre sí los Gobiernos, sea directamente, sea por la vía diplomática ó por cualquier funcionario debidamente autorizado. En la reclamación se especificará la prueba ó principio de prueba que por las leyes del Estado en que se haya cometido el delito, sea bastante para justificar la captura ó enjuiciamiento del inculpado.
+En caso de fuga del reo, después de estar condenado, y antes de haber sufrido totalmente la pena, la reclamación expresará esta circunstancia e irá acompañada únicamente de la sentencia.

@@ -1,0 +1,1 @@
+Art. 2°—La pena de dos años de prisión mencionada en el artículo anterior, es para señalar la naturaleza de los delitos que motivan la extradición, cuando ésta se pide durante el enjuiciamiento; pero no limita los efectos del juicio, si por circunstancias atenuantes ú otros esclarecimientos favorables al reo, fuese éste sentenciado á sufrir una pena menor.
