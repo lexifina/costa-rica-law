@@ -1,0 +1,1 @@
+Art. 4. Es del deber de las Autoridades políticas asi como de las militares cuidar del orden público, de la seguridad de las personas y bienes de los habitantes en sus respectivas comarcas, y de que las leyes sean puntualmente cumplidas y sus ejecutores respetarlos y obedecidos

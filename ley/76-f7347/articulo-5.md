@@ -1,0 +1,1 @@
+Art. 5. Las demas autoridades y corporaciones asi civiles como eclesiásticas; de hacienda y militares conservan en el Estado el lugar que les ha señalado la ley; estando expeditas sus atribuciones de conformidad con las reglas preestablecidas.

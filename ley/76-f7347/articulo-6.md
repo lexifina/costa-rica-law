@@ -1,0 +1,1 @@
+Art. 6. La presente declaratoria se imprimirá, circulará y publicara inmediatamente para que surta sus efectos.- Dada en la ciudad de San José, á los diez dias del mes de junio de mil ochocientos cuarenta y seis –José Maria Alfaro.—Al Ministro de relaciones y gobernacion."
