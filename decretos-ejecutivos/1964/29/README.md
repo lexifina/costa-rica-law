@@ -24,3 +24,4 @@ Reglamento General del Instituto Nacional de Seguros.
 | 9 | 1975-01-15 | Decreto Ejecutivo 4484 (1975-01-15) |
 | 10 | 1983-08-19 | Decreto Ejecutivo 14862 (1983-08-19) |
 | 11 | 1983-10-06 | Decreto Ejecutivo 14967 (1983-10-06) |
+| 12 | 1987-11-13 | Decreto Ejecutivo 17829 (1987-11-13) |
