@@ -1,0 +1,1 @@
+Artículo 2: Autorícese a la Junta Directiva del Instituto Nacional de Vivienda y Urbanismo para crear una junta administradora que coadyuve en el diseño y posterior administración del complejo de parques objeto de este decreto.
