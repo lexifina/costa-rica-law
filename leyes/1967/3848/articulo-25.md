@@ -1,1 +1,0 @@
-Artículo 25°-.Los funcionarios de la Procuraduría General de la República deberán excusarse de intervenir en los negocios en que tengan interés directo sus tíos o sobrinos por consanguinidad -legítima o natural notoriamente conocida- o por afinidad y en los negocios que del mismo modo interesen a personas con quienes tengan amistad íntima o enemistad.

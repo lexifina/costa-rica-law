@@ -1,1 +1,0 @@
-Artículo 26°.-Es admisible toda clase de pruebas en los juicios sobre rescisión y nulidad de actos o contratos en que hayan intervenido indebidamente los funcionarios de la Procuraduría General de la República, o en que hayan infringido las prohibiciones contenidas en esta ley, o incurrido en fraudes en perjuicio de la Hacienda Pública.

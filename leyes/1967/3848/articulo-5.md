@@ -1,1 +1,0 @@
-Artículo 5°-El Procurador General prestará el juramento constitucional ante el Presidente de la República. El Subprocurador y los Procuradores, ante el Procurador General. Del nombramiento, aceptación y juramento se levantará acta, la cual se publicará en el Diario Oficial para acreditar la correspondiente personería.

@@ -1,1 +1,0 @@
-Artículo 23°.-La contravención a lo dispuesto por el artículo 21 será corregida con amonestación la primera vez, suspensión hasta por quince días la segunda y despido justificado cuando exceda de dos infracciones. En lo que respecta al artículo 22, su infracción será corregida con suspensión hasta por quince días y su reincidencia justificará el despido.

@@ -1,2 +1,0 @@
-Artículo 8°-La representación de la Procuraduría General de la República, en los lugares que determine el Poder Ejecutivo, estará a cargo de un fiscal. En los cantones y distritos donde no exista representación de la Procuraduría, servirán como tales, ante los Tribunales de Justicia, los empleados o funcionarios que determine el Poder Ejecutivo, quienes lo desempeñarán como recargo a sus funciones y sin goce de sueldo
-(Así reformado po el artículo 1° de la ley N° 5028 del 21 de julio de 1972)
