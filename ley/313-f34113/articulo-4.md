@@ -1,0 +1,1 @@
+Artículo 4º.- Dichos capitales y reservas se integrarán mediante la subrogación total de los activos y pasivos al 1º de enero de 1949 de los bancos nacionalizados, a favor de nuevas Instituciones de derecho público, completados con "Bonos del Sistema Bancario Nacional, 7%, 1949."

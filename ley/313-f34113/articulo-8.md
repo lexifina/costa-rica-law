@@ -1,0 +1,1 @@
+Artículo 8º.- Hasta tanto no sea promulgada una nueva legislación bancaria, el Sistema Bancario Nacional seguirá operando bajo el Estatuto legal existente, excepto en cuanto quede modificado por el presente Decreto-Ley.
