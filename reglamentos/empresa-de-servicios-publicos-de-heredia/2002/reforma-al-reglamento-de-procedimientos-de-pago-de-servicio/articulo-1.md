@@ -1,8 +1,10 @@
+(Derogado)
 EMPRESA SERVICIOS PÚBLICOS DE HEREDIA
 COMUNICACIÓN INTERNA DE ACUEDUCTOS
 JUNTA DIRECTIVA
 MODIFICACIONES REGLAMENTO DE PROCEDIMIENTOS
 PAGO DE SERVICIOS AMBIENTAL HÍDRICO
+(Este Reglamente fue DEROGADO mediante el Acuredo No. JD-028-2005, del 1° de febrero del 2005.)
 Sesión Nº 2425 de fecha 9 de setiembre del 2002, artículo III, inciso 13), con fecha de comunicación 10 de setiembre del 2002.
 Señor Ing. Édgar Benavides Vílchez, MBA., Gerente General.
 Asunto Publicación Diario Oficial La Gaceta-modificaciones Reglamento de Procedimientos Pago de Servicios Ambiental Hídrico

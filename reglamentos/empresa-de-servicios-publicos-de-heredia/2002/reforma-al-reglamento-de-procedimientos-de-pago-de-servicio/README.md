@@ -14,3 +14,4 @@ Reforma al Reglamento de procedimientos de pago de servicio ambiental hídrico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-14 | la propia norma |
+| 2 | 2005-02-01 | Reglamento 28 (2005-02-01) |
