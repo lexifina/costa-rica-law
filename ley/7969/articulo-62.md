@@ -43,16 +43,18 @@ dedique a prestar el servicio de transporte público en cualquiera de sus
 modalidades, sin las autorizaciones respectivas, violando el numeral 1 del
 inciso a) o el numeral 1 del inciso b), ambos del artículo 97 y el
 artículo 112 de esta ley.
-Para aplicar la sanción regulada por este numeral y el juzgamiento,
-las autoridades judiciales impondrán plenamente el régimen de prueba por
-presunciones e indicios claros y concordantes, que definen tanto las
-legislaciones procesales civiles como penales; así como las reglas de la
-lógica, conveniencia, oportunidad, razonabilidad y la sana crítica. Se
-tomarán como presunciones e indicios la habitualidad en la prestación del
-servicio no autorizado o los signos externos e internos colocados en los
-vehículos para llamar la atención del usuario, a fin de inducirlo a usar
-el vehículo que utiliza un taxi autorizado.
+(*) Para aplicar la sanción regulada por este numeral y el
+juzgamiento, las autoridades judiciales impondrán plenamente el régimen
+de prueba por presunciones e indicios claros y concordantes, que definen
+tanto las legislaciones procesales civiles como penales; así como las
+reglas de la lógica, conveniencia, oportunidad, razonabilidad y la sana
+crítica. Se tomarán como presunciones e indicios la habitualidad en la
+prestación del servicio no autorizado o los signos externos e internos
+colocados en los vehículos para llamar la atención del usuario, a fin de
+inducirlo a usar el vehículo que utiliza un taxi autorizado.
 [...]"
+(*) ANULADO por resolución de la Sala Constitucional No. 2992-00 de las
+15:27 horas del 12 de abril de 2000.
 e) Adición de un inciso d) al artículo 144, cuyo texto dirá:
 "Artículo 144.-
 [...]
