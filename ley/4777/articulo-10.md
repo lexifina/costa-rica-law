@@ -1,20 +1,11 @@
-Artículo 10.- Son atribuciones del Rector:
-a) Ejercer la representación legal del Instituto y fungir como
-representante patronal para los contratos de trabajo;
-b) Convocar al Consejo Director, así como ejecutar y hacer que se
-cumplan todas las resoluciones que éste adopte;
-c) Elaborar y someter a conocimiento del Consejo Director los
-proyectos anuales de presupuestos ordinario y extraordinarios, por
-programas de la Institución;
-d) Autorizar con su firma y con las del Ministro de Educación Pública
-y Secretario General, los diplomas de los títulos y grados
-otorgados por el Instituto;
-e) Proponer al Consejo el nombramiento del personal técnico y docente
-del Instituto. Nombrar y remover el personal administrativo, de
-acuerdo con las normas establecidas;
-f) Presentar anualmente una memoria detallada y razonada en relación
-con la marcha del Instituto y proponer las reformas que crea
-necesarias;
-g) Velar en general por la buena marcha del Instituto; y
-h) Asumir funciones de iniciativa en todo lo que corresponda a la
-buena marcha, desarrollo progresivo y consolidación del Instituto.
+ARTICULO 10.- El Instituto está exento del pago de toda clase de
+impuestos nacionales o municipales, generales o especiales; también del
+pago de tasas, timbres y derechos de inscripción en el Registro Público,
+de todas las operaciones relativas a los bienes inmuebles que constituyen
+o llegaren a constituir su patrimonio.
+( NOTA: Complementado por leyes 5684 del 30 de abril de 1975 y artículos
+2 inciso l) y 6 de la Ley Nº 7293 del 31 de marzo de 1992. Esta última
+ley (artículos 50 y 55) deroga tácitamente la exención de pago de futuros
+impuestos. No goza de Franquicia Postal según el artículo 15 de la Ley
+Nº 5870 de 11 de diciembre de 1975 y su reforma por el 17 de la Nº 7088
+de 30 de noviembre de 1987).

@@ -1,7 +1,9 @@
-CAPITULO III
-Del Régimen Financiero
-Artículo 12.- Los presupuestos anuales y todo egreso deberá ser
-aprobado por la Contraloría General de la República y su gestión
-económica estará sometida a las disposiciones de la Ley de la
-Administración Financiera de la República. El Presupuesto Ordinario será
-sometido cada año, a más tardar el 30 de setiembre.
+ARTICULO 12.- Le corresponderán los derechos de patente o propiedad
+intelectual sobre los inventos, textos y manuales, artículos, ayudas
+audiovisuales, técnicas de enseñanza o de trabajo, material informativos,
+científicos y divulgatorio, desarrollados en la institución. Autorizado
+por el Organos Director Superior, podrá convenir con quien corresponda de
+realización de proyectos que tiendan a la producción de un invento o
+cualquier otro hecho que origine derechos de propiedad intelectual, a fin
+de explotarlos comercialmente, con participación de sus autores en las
+utilidades.
