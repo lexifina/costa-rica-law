@@ -1,0 +1,1 @@
+Art. 11. La Intendencia hará reconocer y contar en cada año todas las siembras de las Provincias: las de Heredia, Alajuela y Guanacaste en el mes de noviembre, y las de San José y Cartago en el de enero. Esta diligencia se repetirá en los mismos ó en otros diversos tiempos cada vez que el Poder Ejecutivo lo disponga; pero nunca por los individuos que la hubieren practicado ántes.

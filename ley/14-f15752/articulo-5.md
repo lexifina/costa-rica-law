@@ -1,0 +1,1 @@
+Art. 5. Tampoco podrá espedirse para mas de un año, ni para plantio de menos de diez mil matas, ni cuando el número de las ya autorizadas para la temporada hubiese llegado a diez millones, de cuya cantidad no debe exceder la siembra general, asi como tampoco bajar de ocho millones.
