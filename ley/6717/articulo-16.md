@@ -28,12 +28,12 @@ Servicio de taxi: ¢ 250,00.
 i) Los lotes incultos en el área urbana pagarán ¢ 2,00 por metro lineal de frente, excepto en las zonas turísticas, que pagarán ¢ 20,00 por metro lineal de frente. La zona turística será determinada por el reglamento que establece el artículo 59.
 j) Lotes que tengan cordón y caño en su frente, construido sin acera, pagarán ¢ 20,00 trimestrales por metro lineal.
 k) Anuncios comerciales a orillas de vías publicas o en lotes incultos permitidos por ley, pagarán ¢ 500,00 trimestrales. Se exceptúa el rótulo propio del establecimiento.
-1) Zonas reservadas de estacionamiento, previamente autorizadas por la Dirección General de Ingeniería de Tránsito, pagarán ¢ 50,00 trimestrales por metro lineal.
+l) Zonas reservadas de estacionamiento, previamente autorizadas por la Dirección General de Ingeniería de Tránsito, pagarán ¢ 50,00 trimestrales por metro lineal.
 ll) Las repetidoras de radioemisoras, o éstas, pagarán por trimestre ¢ 2.000,00.
 m) Las repetidoras de canales de televisión, o éstos, pagarán ¢ 3.000,00 por trimestre.
 n) Lanchas de cincuenta a cien toneladas para el servicio de cabotaje, pagarán ¢ 500,00 por trimestre. Lanchas de más de cien toneladas, para el servicio de cabotaje, pagarán ¢ 1. 000,00 trimestrales.
 ñ) Trasbordadores o ferrys pagarán por unidad ¢ 2.000,00 trimestrales.
-0) Naves de lujo, hasta de trece metros de eslora, pagarán ¢ 1.000,00 trimestrales.
+o) Naves de lujo, hasta de trece metros de eslora, pagarán ¢ 1.000,00 trimestrales.
 De trece metros en adelante pagarán ¢ 2.000,00 trimestrales.
 p) Embarcaciones, excepto las de bandera costarricense por cada derecho de zarpe, pagaran según la siguiente tabla:
 Hasta 100 toneladas ¢ 100,00
@@ -47,7 +47,8 @@ de 10 001 a en adelante 3.000,00
 La Capitanía de Puerto no autorizará el zarpe de naves extranjeras que no hayan pagado el impuesto municipal.
 q) Los establecimientos que se dediquen, única y exclusivamente, a la venta de los productos medicinales que determinan los reglamentos respectivos, estarán exentos del pago del impuesto a que esta ley se refiere.
 r) Los bailes ocasionales, no gratuitos, pagarán ¢ 100,00 cada vez.
-s) Por cada metro cúbico de piedra o arena que se extraiga de ríos o playas del cantón, ¢ 5,00.
+s) Por cada metro cúbico de piedra o arena que se extraiga de ríos o playas del cantón ¢ 7,00.
+(Así reformado el inciso anterior por acuerdo Nº 18 aprobado en sesión Nº 122 del 12 de diciembre de 1986)
 t) Explotación maderera:
 Por cada camión trailero 0 carro plano de ferrocarril, de madera que se consuma dentro del cantón, ¢ 100,00.
 Fuera del cantón, ¢ 150,00.
