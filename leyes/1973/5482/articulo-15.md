@@ -1,6 +1,1 @@
-Artículo 15.- Para ingresar al sistema de administración de personal de
-la policía, se requiere:
-1) ser costarricense y mayor de edad.
-2) Acreditar buena salud y demostrar antecedentes de buena conducta.
-3) Demostrar idoneidad para el desempeño del cargo y poseer las demás
-condiciones que establezca el Reglamento.
+Artículo 15.-(Derogado por el artículo 98 aparte b) (actual 120) de la Ley General de Policía, N° 7410 del 26 de mayo de 1994)

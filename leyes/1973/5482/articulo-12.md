@@ -1,7 +1,3 @@
 CAPITULO IV
 La Carrera Policial
-Artículo 12.- El personal del Ministerio de Seguridad Pública no
-protegido por el Estatuto de Servicio Civil, se regirá por lo dispuesto en
-los artículos siguientes. Se exceptúa de ambos sistemas el Ministro, los
-asesores, los empleados de confianza, los directores, jefes regionales que
-determine el Reglamento y todo el que ostente grado oficial.
+Artículo 12.-(Derogado por el artículo 98 aparte b) (actual 120) de la Ley General de Policía, N° 7410 del 26 de mayo de 1994)

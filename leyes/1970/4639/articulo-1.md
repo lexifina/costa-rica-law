@@ -1,4 +1,6 @@
+(Derogado)
 Ley Nº 4639
+(Esta norma fue derogada por el artículo 98 aparte a) (actual 120) de la Ley General de Policía, N° 7410 del 26 de mayo de 1994)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 La siguiente:

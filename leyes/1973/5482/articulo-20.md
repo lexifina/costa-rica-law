@@ -1,7 +1,1 @@
-Artículo 20.- Se establecerá un sistema para evaluar periódicamente los
-servicios del personal, de modo que se aprecie objetivamente la
-eficiencia, disciplina, iniciativa, carácter, conducta y aptitudes del
-servidor.
-En todo ascenso, dentro del sistema de administración de personal de la
-policía, se tomará en cuenta fundamentalmente la calificación que tenga el
-servidor.
+Artículo 20.-(Derogado por el artículo 98 aparte b) (actual 120) de la Ley General de Policía, N° 7410 del 26 de mayo de 1994)
