@@ -1,0 +1,1 @@
+Art. 5. Mensualmente les dará cuenta el encargado, para que ellos lo hagan al Gobierno, del resultado que haya habido en su departamento, proponiendo las mejoras, de que sea suceptible un ramo tan interesante á Ia policía de salubridad.
