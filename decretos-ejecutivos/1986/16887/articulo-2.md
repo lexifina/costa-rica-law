@@ -13,6 +13,8 @@ Carabina: Arma de fuego portátil, similar al fusil pero más pequeña que éste
 Cañón: Pieza de artillería, parte de las armas que guían los proyectiles.
 Departamento: El Departamento de Armas y Explosivos.
 Discrecionalidad: Reacción o acción razonada, nacida de un principio de justicia y protectora de un interés público.
+Escopeta: Arma de fuego permitida, portátil, que dispara de tiro a tiro, usada para fines cinegéticos y seguridad de personas jurídicas.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 20435 del 23 de abril de 1991)
 Explosivos: Material susceptible para hacer explosión, cuerpo, mezcla que en determinadas ocasiones puede producir rápidamente una gran cantidad de gases con violentos efectos mecánicos o térmicos.
 Fusil: Arma de fuego portátil, con peso, tamaño, alcance y calibre mayor que la carabina.
 Fusil automático de asalto: Arma intermedia entre el fusil y la ametralladora, de menor peso y tamaño que el fusil corriente, con selector para hacer ráfagas.
