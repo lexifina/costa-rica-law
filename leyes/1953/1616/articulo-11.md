@@ -1,0 +1,1 @@
+Artículo 11.- La Oficina del Café los gastos que demande el cumplimiento de la presente ley y prestará a los funcionarios encargados de su ejecución y vigilancia toda la ayuda necesaria y el asesoramiento técnico.
