@@ -1,0 +1,3 @@
+Art. 3 -El tres de noviembre de este año, se reunirán las Asambleas Electorales, elegidas conforme á lo prevenido en los artículos anteriores y procederán á la elección del Presidente de la República para el próximo período constitucional y de los Diputados que se han mandado reponer por el Congreso.
+AL PODER EJECUTIVO.
+Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintinueve días del mes de julio de mil ochocientos ochenta y nueve. -MANL. ARAGÓN. -F. AGUILAR B., Secretario. -FÉLIX GONZÁLEZ, Secretario. Palacio Presidencial. -San José, tres de agosto de mil ochocientos ochenta y nueve. -Ejecútese.- ASCENSIÓN ESQUIVEL. El Secretario de Estado en el despacho de Gobernación.-SANTIAGO DE LA GUARDIA.
