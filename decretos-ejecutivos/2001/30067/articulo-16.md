@@ -1,0 +1,10 @@
+Artículo 16.—Quedan exentos del pago de las tarifas de ingreso, los siguientes tipos de personas y organizaciones:
+a. Las personas menores de seis años de edad.
+b. Las personas que visitan el área silvestre protegida en misión oficial, siempre que la misma sea de evidente interés para el Ministerio del Ambiente y Energía (MINAE). Para tal efecto, la Administración del Área Silvestre Protegida debe contar con una autorización expedida por la Dirección General del SINAC.
+c. Las personas o grupos como voluntarios comunales, brigadas de fuego, scouts, que son de interés para las Áreas de Conservación, por su trabajo en la conservación y manejo de los recursos naturales.
+d. Los visitantes nacionales y residentes mayores de 65 años, con carné de Ciudadano de Oro de la Caja Costarricense del Seguro Social (CCSS)
+e. Los estudiantes de centros educativos (primaria y secundaria) ubicados en distritos con menor desarrollo social relativo, según el índice de desarrollo social establecido por el Ministerio de Planificación y Política Económica (MIDEPLAN); así como aquellos ubicados en las comunidades más cercanas a las ASP, que así lo soliciten a la Dirección del Área de Conservación.
+f. Los guías que se inscriban en los registros que para tal efecto llevan los diferentes parques nacionales y áreas silvestres protegidas y que cumplan con los requisitos establecidos por el Sistema Nacional de Áreas de Conservación.
+g. Las instituciones y organismos que tengan suscritos convenios de cooperación con el Ministerio de Ambiente y Energía. Para tal efecto los organismos e instituciones deberán realizar solicitud de exoneración de ingreso, a la Dirección del Área de Conservación respectiva. Cuando se trate del desarrollo de proyectos de larga ejecución, los miembros de estas agrupaciones deberán portar carné de identidad con el fin de gozar de la exoneración respectiva por parte de la Dirección del Área de Conservación,
+h. Funcionarios y funcionarias del MINAE, los que en todo caso deberán acreditar esta condición mediante la presentación de su identificación.
+i. Otras que a juicio de los Directores/as de las Área de Conservación se justifique.

@@ -1,0 +1,1 @@
+Artículo 37.—El presente Decreto Ejecutivo deroga el Decreto Ejecutivo que establece y regula tarifas para las áreas silvestres protegidas administradas por el Sistema Nacional de Áreas de Conservación, Nº 27857-MINAE, del 18 de mayo de 1999.

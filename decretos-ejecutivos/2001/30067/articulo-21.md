@@ -1,0 +1,1 @@
+Artículo 21.—Quedarán exentas del pago de la tarifa del artículo 18, las investigaciones promovidas por el Ministerio del Ambiente y Energía, definida, por el Área de Conservación respectiva, como de prioridad para el manejo de la biodiversidad o la administración del área silvestre protegida.

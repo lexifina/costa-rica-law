@@ -1,0 +1,1 @@
+Transitorio 1º—El Sistema Nacional de Áreas de Conservación del Ministerio del Ambiente y Energía deberá emitir para cada uno de los servicios que se ofrecen en las Áreas Silvestres Protegidas los tiquetes en papel se seguridad indicando el tipo de servicio y el monto respectivo

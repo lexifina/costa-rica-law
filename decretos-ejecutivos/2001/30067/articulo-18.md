@@ -1,0 +1,2 @@
+Tarifa por investigación
+Artículo 18.—Por el uso de las áreas silvestres administradas por el Sistema Nacional de Áreas de Conservación del MINAE, para realizar investigación de carácter científico, se cobrará la tarifa por 1 permiso hasta de 3 meses de cinco dólares (USA $5,00), hasta 6 meses diez dólares (USA $10,00) y hasta 12 meses quince dólares (USA $15,00). Para cada Área de Conservación se deberá tramitar un permiso de investigación por aparte. Todo permiso de investigación se otorgará según los requisitos que para su ejecución establece la legislación vigente.
