@@ -1,0 +1,4 @@
+El Concejo Municipal de San Pablo de Heredia, en el ejercicio de las facultades conferidas por los artículos 4, inciso a), 13, inciso c), 43 y 169 del Código Municipal, decreta la siguiente,
+REFORMA AL REGLAMENTO PARA LA ORGANIZACIÓN Y FUNCIONAMIENTO DEL COMITÉ CANTONAL DE DEPORTE Y RECREACIÓN DE SAN PABLO DE HEREDIA
+Artículo 1º—Reforma al artículo 9: Refórmese el artículo 9 del Reglamento para la Organización y Funcionamiento del Comité Cantonal de Deporte y Recreación de San Pablo de Heredia, cuyo texto dirá:
+“Artículo 9—La Junta Directiva del Comité Cantonal es la máxima autoridad de este organismo y es la encargada de su gobierno y administración. De conformidad con lo dispuesto en el artículo 165 del Código Municipal, estará integrada cinco miembros residentes del cantón de San Pablo, quienes nombrarán de su seno un presidente, un vicepresidente, un secretario, un tesorero y un vocal, una vez juramentados por el Concejo Municipal”.
