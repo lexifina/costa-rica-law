@@ -15,3 +15,4 @@ Reglamento de Organización del Registro Público
 | 1 | 1995-06-12 | la propia norma |
 | 2 | 1995-06-12 | SINALEVI (sin norma nombrada) |
 | 3 | 1998-02-18 | Decreto Ejecutivo 26771 (1998-02-18) |
+| 4 | 1998-02-18 | Ley 8 |
