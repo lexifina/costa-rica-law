@@ -1,0 +1,1 @@
+Art. 2. Concluido el remate en estos términos el 15 de Noviembre de cada año, como está dispuesto por el art. 2° de la Ley de 28 de Setiembre del año de 1827, se admitirán mejoras de cada remate en los quince dias siguientes, del medio diezmo, diezmo- entero, y cuarto, en razon de cinco dias por cada mejora.
