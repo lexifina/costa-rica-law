@@ -15,3 +15,4 @@ Disposiciones para normar los art√≠culos 52 literal a), inciso i) de la Ley Org√
 | --- | --- | --- |
 | 1 | 1996-11-04 | la propia norma |
 | 2 | 1997-04-02 | Reglamento 4908 (1997-04-02) |
+| 3 | 1998-07-09 | Reglamento 4962 (1998-07-09) |
