@@ -14,3 +14,4 @@ Reglamento del Proceso de Contratación Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-09-19 | la propia norma |
+| 2 | 1998-09-02 | Reglamento 1459 (1998-09-02) |
