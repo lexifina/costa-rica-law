@@ -1,0 +1,13 @@
+Nº 30659-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que le confieren los incisos 3) y 18) del numeral 140 y 146 de la Constitución Política, los artículos 26 y 27 de la Ley General de la Administración Pública, la Ley Nº 8131 Administración Financiera de la República y Presupuestos Públicos y la Ley Nº 7023 del 7 de abril de 1986.
+Considerando:
+1º—Que la Ley Nº 7023 faculta al Teatro Popular Melico Salazar a fomentar y desarrollar las artes del espectáculo y la popularización de la cultura, la presentación de espectáculos de alto valor cultural, con el fin de fomentar y difundir las diferentes expresiones del quehacer artístico tanto nacional como internacional.
+2º—Que mediante Decreto Ejecutivo Nº 27990-C publicado en La Gaceta Nº 144 del 26 de julio de 1999 la Compañía Nacional de Teatro se constituye en programa del Teatro Popular Melico Salazar, para difundir el arte teatral en todo el territorio nacional.
+3º—Que la Compañía Nacional de Teatro requiere disponer de los recursos necesarios para la producción y difusión de diversas obras teatrales que se llevarán a cabo en el Teatro de la Aduana.
+4º—Que mediante el Decreto Ejecutivo N° 29511-H, publicado en La Gaceta Nº 98 del 23 de mayo del 2001, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2002, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo los límites de gasto presupuestario y de gasto efectivo del 2002, para las entidades cubiertas por el ámbito del mencionado Organo Colegiado.
+5º—Que mediante Decreto Ejecutivo N° 30076-H, publicado en La Gaceta Nº 10 del 15 de enero del 2002, se modificó el límite de gasto presupuestario y efectivo del 2002 establecido para el Teatro Popular Melico Salazar, en el artículo 1° del Decreto Ejecutivo N° 29511-H, fijándolo en ¢533.3 millones, para asumir los gastos relacionados con el VIII Festival Internacional de las Artes, San José 2002.
+6º—Que resulta necesario modificar de nuevo el límite de gasto presupuestario y efectivo fijado al Teatro Popular Melico Salazar en el decreto N° 30076-H, para asumir gastos relacionados con la presentación de diversas obras de teatro promovidas por la Compañía Nacional de Teatro. Por tanto,
+Decretan:
+Artículo 1º—Modifícase el límite de gasto presupuestario y efectivo del 2002 establecido para el Teatro Popular Melico Salazar, en el artículo 1° del Decreto Ejecutivo Nº 30076-H, fijándolo en ¢563.3 millones, para asumir los gastos relacionados con la producción y difusión de diversos espectáculos públicos en lo que a obras de teatro se refiere por parte de la Compañía Nacional de Teatro.
