@@ -1,0 +1,5 @@
+SECCIÓN III
+Garantía y forma de ejecución
+Artículo 11.—Subsidiaridad. La garantía del BANHVI sobre los Títulos Valores emitidos por las Entidades Autorizadas y las cuentas de ahorro de las Mutuales es subsidiaria e igualmente tendrá la garantía subsidiaria del Estado.
+La garantía se hará efectiva a favor de los inversionistas y ahorrantes sólo en caso de que la respectiva Entidad Autorizada se encuentre en un estado de insolvencia para hacer frente al pago de sus obligaciones y que se hayan agotado los mecanismos de cobro contra la misma, no teniendo ésta activos o valores con los cuales responder. Mediante la garantía subsidiaria prevista en las presentes normas se permite suplir la falta de recursos en los términos comprometidos por el BANHVI, una vez certificado el agotamiento de los activos y valores de la respectiva Entidad.
+Mediante acuerdo de su Junta Directiva, el BANHVI establecerá casuísticamente los procedimientos por medio de los cuales se hará el pago correspondiente a los inversionistas y ahorrantes.

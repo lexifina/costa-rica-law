@@ -1,0 +1,1 @@
+Artículo 21.—Registros contables. El BANHVI mantendrá registros contables separados para las actividades del Fondo de Estabilización. La información deberá registrarse al día en forma tal que permita su análisis desde el punto de vista económico y financiero por clase de Títulos, plazos de vencimiento, emisor y otros alcances de similar naturaleza.

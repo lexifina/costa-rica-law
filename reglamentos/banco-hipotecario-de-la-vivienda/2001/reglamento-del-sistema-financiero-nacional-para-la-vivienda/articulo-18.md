@@ -1,0 +1,1 @@
+Artículo 18.—Administración del Fondo. La administración del Fondo corresponderá al BANHVI por medio de su Junta Directiva, la cual revisará y actualizará las políticas del Fondo de Estabilización y evaluará periódicamente sus resultados.

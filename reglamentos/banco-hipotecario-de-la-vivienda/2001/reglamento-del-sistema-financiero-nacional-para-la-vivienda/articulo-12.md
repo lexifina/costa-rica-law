@@ -1,0 +1,1 @@
+Artículo 12.—Aviso al BANHVI. El BANHVI procederá a la aplicación de la garantía cuando las autoridades correspondientes, judiciales o administrativas, determinen la imposibilidad de la Entidad Autorizada de proceder a la devolución de los depósitos una vez concluido el procedimiento de cobro previsto en el artículo anterior y de acuerdo con la normativa vigente al respecto.

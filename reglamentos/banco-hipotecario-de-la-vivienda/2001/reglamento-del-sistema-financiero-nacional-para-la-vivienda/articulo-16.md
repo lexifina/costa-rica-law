@@ -1,0 +1,1 @@
+Artículo 16.—Naturaleza del fondo. Los recursos financieros del fondo de garantías a que se refieren las normas de la presente sección son propiedad del BANHVI y no existe derecho a reintegro de las primas o comisiones en caso de que no se llegaren a presentar contingencias.

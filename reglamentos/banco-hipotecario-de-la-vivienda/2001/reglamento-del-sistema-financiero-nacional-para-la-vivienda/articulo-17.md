@@ -1,0 +1,3 @@
+SECCIÓN II
+Fondo de estabilización del Mercado Secundario de Títulos Valores del Sistema
+Artículo 17.—Objetivo del Fondo. El objetivo básico del Fondo de Estabilización del Mercado Secundario de Títulos Valores, en adelante el Fondo, es el de asegurar el precio y la liquidez de los Títulos Valores del Sistema en el Mercado Secundario cuando en circunstancias normales de mercado el nivel de demanda de dichos Títulos en relación con otros similares sea insuficiente, a criterio del BANHVI, y se requiera prevenir situaciones que puedan poner en peligro la estabilidad y confiabilidad del Sistema Financiero Nacional para la Vivienda.

@@ -1,0 +1,1 @@
+Artículo 25.—Vigencia y derogatoria. Este Reglamento rige dos meses después de su publicación en el Diario Oficial y deroga los Artículos 141 a 166 del Reglamento de Operaciones del Sistema Financiero Nacional para la Vivienda, publicado en La Gaceta del 20 de mayo de 1996.

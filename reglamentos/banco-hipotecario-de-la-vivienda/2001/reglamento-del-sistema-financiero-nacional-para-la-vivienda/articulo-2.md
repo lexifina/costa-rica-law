@@ -1,0 +1,2 @@
+Artículo 2°—Emisión de Títulos. El BANHVI podrá autorizar, por medio de su Junta Directiva, la emisión de Títulos Valores por parte de las Entidades autorizadas del Sistema Financiero Nacional para la Vivienda, al tenor de lo indicado en la Ley del Sistema Financiero Nacional para la Vivienda y de conformidad con lo establecido en las presentes disposiciones.
+La emisión de Títulos Valores dentro del Sistema Financiero Nacional para la Vivienda, en cualquier moneda, requerirá de la autorización previa del BANHVI.

@@ -1,0 +1,1 @@
+Artículo 5°—Formato de los títulos valores. Los Títulos emitidos por las Entidades autorizadas en el Sistema Financiero Nacional para la Vivienda no podrán llevar impreso el logotipo del BANHVI. En los casos en que el BANHVI haya aprobado un formato específico sobre determinado título, deberá ser utilizado obligatoriamente por la Entidad autorizada emisora.
