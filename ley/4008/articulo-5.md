@@ -1,0 +1,1 @@
+Artículo 5°-Se autoriza al Ministerio de Hacienda para que, en cumplimiento de los fines de esta ley, y en nombre del Estado haga entrega a la Conferencia Episcopal de Costa Rica de la emisión de bonos indicada.
