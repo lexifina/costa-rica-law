@@ -13,3 +13,4 @@ Reforma Reglamento Ejercicio Privado Correduría Bienes Raíces
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-02-19 | la propia norma |
+| 2 | 1976-02-19 | SINALEVI (sin norma nombrada) |
