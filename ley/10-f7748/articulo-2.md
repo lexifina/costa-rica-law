@@ -1,0 +1,1 @@
+Art. 2°-El Jefe, así como los guardas, cuidarán con el mayor celo de que no se expone ninguno de los frutos naturales del pais, sin haber satisfecho previamente los derechos designados en la tarifa de Aduanas vigente.

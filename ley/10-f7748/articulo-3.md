@@ -1,0 +1,1 @@
+Art. 3°-Corresponde al Jefe del Resguardo cobrar y percibir los derechos que canse la exporta y dar cuenta con su producto a la Secretaria de Hacienda; á cuyo efecto llevará un libro en que se asienten las partidas de entero, firmando cada partida en union del enterante.
