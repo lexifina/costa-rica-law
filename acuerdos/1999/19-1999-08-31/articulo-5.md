@@ -1,0 +1,1 @@
+5°—La obligación de comunicar surge con posterioridad a la adquisición de las acciones u otros valores y deberá realizarse a la Superintendencia General de Valores, a las bolsas en las que el capital de la sociedad esté inscrito y a la sociedad afectada en el plazo de cinco días hábiles contados a partir de la realización de la transacción.
