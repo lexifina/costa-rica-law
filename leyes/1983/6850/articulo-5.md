@@ -1,0 +1,1 @@
+Artículo 5°—Las construcciones que contempla esta ley estarán exentas del pago de derechos municipales y nacionales, así como de los derechos de inscripción en el Registro Público de la Propiedad. Se autoriza a la Procuraduría General de la República para que extienda las escrituras correspondientes
