@@ -164,6 +164,56 @@ A partir de este punto se sigue aguas abajo por la quebrada de Platanillo hasta 
 (*) (Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 8515 del 2 de mayo de 1978, se acordó excluir de la Reserva Indígena de Chirripó la finca conocida como "La Quebrada" y delimitada por los puntos cuyos rumbos, distancias y coordenadas, antes mencionada)
 Reserva de "El Tigre", situada al Este del río Pacuare y al Norte de la Reserva Bukeri.
 (Así adicionada la reserva anterior por el artículo 6° del decreto ejecutivo N° 8515 del 2 de mayo de 1978)
+HACIENDA CHIRRIPÓ NORTE Y BOCA ZENT
+La finca "Hacienda Chirripó Norte y Boca Zent" se localiza en las hojas Barbilla 3445 IV y Matina 3546 III, escala 1:50.000 del Instituto Geográfico Nacional.
+La finca se delimita como sigue:
+Partiendo de la unión del río Chirripó con el río Zent, se sigue por éste aguas arriba hasta el punto N 218500, E 613450 continúa por el brazo muerto del río Zent, hasta el punto N 216700, E 615200, continúa por los vértices cuyas coordenadas son:
+N 217250 | E 612550
+N 218400 | E 611850
+De este último punto, en el río Chirripó, se sigue por éste aguas abajo hasta su unión con el río Zent, punto inicial de la presente descripción.
+Área aproximada 503 hectáreas.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 10038 del 21 de mayo de 1979, se acordó excluir de la Reserva Indígena Cabecar de Chirripó, la zona llamada "Hacienda Chirripó Norte y Boca Zent", antes indicada)
+PUERTO RICO NORTE
+La finca Puerto Rico Norte se localiza en la hoja Barbilla 3545 escala 1:50.000 del I.G.N.
+La finca se delimita como sigue:
+Partiendo de un punto de coordenadas N 213850 - E 617500, se sigue por la Quebrada Dueri (Cabro), aguas abajo hasta su confluencia con el río Zent; sigue aguas abajo por éste hasta el punto N 215000 - E 615300, se continúa con rumbo E, hasta la quebrada Zopilote en N 215000; E 616500; se sigue por ésta aguas arriba hasta el punto N 213700; E 617900. De este punto se sigue hasta el punto inicial de la presente descripción.
+Área aproximada 205 hectáreas.
+(Así adicionada la finca llamada "Puerto Rico Norte", propiedad ya adquirí por el ITCO, anterior por el artículo 3° del decreto ejecutivo N° 10038 del 21 de mayo de 1979)
+PACUARE ARRIBA
+La Reserva Indígena de "Pacuare Arriba" se localiza en la hoja Pejibaye 3445 II, escala 1: 50.000 del I.G.N.
+La reserva se delimita como sigue:
+Partiendo de la unión de la quebrada Súrtuba en N 191750 - E 590150 con el río Pacuare, se continúa aguas arriba por aquélla hasta un punto N 191575 - E 589200; luego los siguientes valores de coordenadas señalan los vértices de la reserva:
+N 189000 | E 588000
+N 189000 | E 586500
+N 190000 | E 587500
+N 191825 | E 588700
+N 193200 | E 588250
+N 193775 | E 589150
+N 193675 | E 589500
+N 194125 | E 589800
+N 194800 | E 590900
+N 194700 | E 591400
+N 192900 | E 591200
+De este punto ubicado en el río Pacuare, se continúa aguas arriba hasta el punto inicial de la presente descripción.
+Área aproximada 868 hectáreas.
+(Así adicionada la reserva llamada Pacuare Arriba anterior por el artículo 4° del decreto ejecutivo N° 10038 del 21 de mayo de 1979)
+BOSQUE DE TSIPIRI-WARI
+El "Bosque de Tsipiri-Wari" se localiza en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Barbilla 3545 IV y Chirripó 3545 III.
+Partiendo de la unión del río Moravia con la quebrada Tsipiri-Platanillo, en coordenadas N 203 390, E 600 000, se continúa por la quebrada Tsipiri, aguas arriba, hasta el punto de coordenadas N198 975 - 601 250.
+De este punto se sigue con los siguientes rumbos, distancias y coordenadas:
+N 20 33 W | 427.20 | 199 125 | | 600 850
+S 21 48 W | 269.26 | 199 025 | | 600 600
+S 56 19 W | 180.28 | 198 875 | | 600 500
+N 22 05 W | 1.284.29 | 199 358 | (Vértice) | 599 310
+| | | (I.G.N. Queza) |
+N 72 34 E | 1.301.79 | 200 600 | | 599 700
+N 65 30 W | 1.868.32 | 202 300 | | 598 925
+N 31 46 W | 1.852.36 | 203 275 | | 597 350
+N 40 02 E | 816.24 | 203 800 | | 597 975
+S 24 27 E | 906.23 | 203 425 | | 598 800
+De este punto al punto de origen de la presente descripción en coordenadas N 203 390, E 600 000.
+Área aproximada 900 hectáreas.
+(Así adicionada la finca llamada "Bosque de Tsipiri-Wari anterior por el artículo 5° del decreto ejecutivo N° 10038 del 21 de mayo de 1979. Asimismo, por el artículo 6° del decreto ejecutivo antes mencionado, se estable que la finca "Tsipiri-Wari" tendrá un estatuto especial de "Bosque Protector" tal como lo define la Ley Forestal, a efecto de conservar indefinidamente el carácter forestal de esta zona. No se permite el establecimiento de cultivos, de potreros, ni de viviendas en esta área con excepción a casas forestales. El Bosque Protector de Tsipiri-Wari quedará como reserva de madera y de cacería de la región. La cacería será regulada de conformidad con las disposiciones légales existentes, de manera a mantener su potencial de fauna permanente. La vigilancia de toda esta área estará a cargo de los Guardas - Reserva Indígenas del TCO.")
 RESERVA INDÍGENA DE GUAYMI DE COTO BRUS
 La Reserva Indígena de Guaymí de Coto Brus se encuentra en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Coto Brus 3542- I y Piedras Blancas 3542- II.
 La Reserva se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
