@@ -1,0 +1,1 @@
+Artículo 2°-La Comisión estará bajo la coordinación del Primer Vicepresidente de la República y adscrita a la Presidencia de la República, la que facilitará los medios necesarios para el correcto desempeño de las funciones encomendadas a la Comisión.
