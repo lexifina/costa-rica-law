@@ -1,0 +1,2 @@
+Art 3° Cuando algún individuo haya de ser Juzgado por un Consejo de Guerra, y el Juez del Crimen de la respectiva Provincia no fuese Abogado, el Jefe que corresponda, nombrará un Auditor especifico que lo sea, cuyos honorarios serán satisfechos por el Tesoro Nacional.
+Único. Si en el lugar donde haya de reunirse el Consejo, no hubiese letrado hábil, aunque el Juez del Crimen y Auditor de Guerra no lo sean, asesorará a dicho Consejo.
