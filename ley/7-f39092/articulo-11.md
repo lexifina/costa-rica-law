@@ -1,0 +1,1 @@
+Art 11°.- En la Administración de Puntarenas, serán buenas todas las que expresa el artículo anterior y las siguientes: - 1°.- Sueldo de guarda vigilante, y 2° El valor del aguardiente recibido, tanto en la Administración de la Comarca con en la de Moracia.
