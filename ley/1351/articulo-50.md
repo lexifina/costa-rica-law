@@ -1,0 +1,2 @@
+Modificaciones y Derogatorias:
+Artículo 50.- Quedan derogadas la ley Nº 1148 de 28 de marzo de 1950; la ley Nº 1176 de 28 de junio de 1950; la ley Nº 1180 de 4 de julio de 1950; y la ley Nº 1188 de 22 de julio de 1950, y todas las disposiciones que se hayan dictado para reformar, interpretar o reglamentar dichas leyes, excepto las contenidas en la ley Nº 1307 de 20 de junio de 1951, salvo en los casos previstos en las disposiciones transitorias de la presente ley.
