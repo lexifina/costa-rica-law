@@ -1,0 +1,1 @@
+Art. 6. Durante los veinte años prefijados en el articulo 2 ninguna autoridad podrá imponer al canal fluvial, ni á los edificios y tierras accesorias, contribuciones ni derechos de cualquiera clase que sean.

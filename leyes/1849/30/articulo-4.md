@@ -1,0 +1,1 @@
+Art. 4. Se autoriza al Gobierno para auxiliar la empresa con fondos de la Universidad, ó de la Junta Itineraria hasta la cantidad de doce mil pesos, que afianzara la compañia a satisfaccion de la Intendencia general; debiendo reintegrar esta suma un año despues de la conclusion del canal.
