@@ -1,0 +1,1 @@
+Artículo 4°-El visitador médico debe tener el más alto comportamiento ético y la capacitación científica y técnica adecuada, para llevar a cabo actividades de promoción de los productos farmacéuticos en forma correcta y responsable, en aras de contribuir al mantenimiento de la salud pública.

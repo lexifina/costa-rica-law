@@ -1,0 +1,1 @@
+Artículo 2°-El visitador médico es representante profesional de la compañía para la cual labora, ante los profesionales en ciencias de las instituciones públicas o privadas del ramo de la salud, que requieren información sobre productos farmacéuticos.

@@ -1,0 +1,1 @@
+Artículo 7°-El visitador médico tendrá el compromiso de participar activamente en los programas de superación profesional, así como los de carácter cívico y comunal que promuevan los Colegios de Farmacéuticos, de Médicos y Cirujanos y de Médicos Veterinarios.
