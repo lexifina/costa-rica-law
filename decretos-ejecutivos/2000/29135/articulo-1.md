@@ -1,0 +1,6 @@
+N 29135-C EL PRESIDENTE DE LA REPUBLICA Y LA MINISTRA DE CULTURA, JUVENTUD Y DEPORTES
+Con fundamento en el articulo 25.1 de la Ley General de la Administracion Publica, y Considerando:
+1-Que el III Taller de Lideres Juveniles Constructores de la Paz, Para un Mundo Sostenible, se llevar a cabo en el marco de las celebraciones del Año Internacional de la Cultura de Paz.
+2-Que dicho Taller, pretende potenciar las actitudes del cambio de las nuevas generaciones, promoviendo una serie de valores que seran contundentes en el alcance del desarrollo sostenible y en una cultura de paz, en armon¡a con el ambiente.
+3-Que el III Taller de L¡deres Juveniles Constructores de la Paz, Para un Mundo Sostenible, significa abrir un espacio de interaccion, donde los jovenes participantes tendr n la oportunidad de intercambiar ideas y experiencias personales y laborales, para la definicion y formulacion de proyectos productivos en el aspecto social, economico, cultural y ambiental. Por tanto, Decretan:
+Articulo 1-Declarar de Interes Cultural el evento denominado "III Taller de L¡deres Juveniles Constructores de la Paz, Para un Mundo Sostenible", a realizarse del 14 al 17 de diciembre del 2000, en Esterillos de Puntarenas.
