@@ -1,1 +1,0 @@
-Artículo 2°- Todos los habitantes de la República, sean o no propietarios de fundos y especialmente los de las zonas rurales invadidas por la langosta, están en la obligación de destruirla por todos los medios que tengan a su alcance -sea cualquiera la forma que se presente-, huevo, mosquito, saltón o langosta voladora.
