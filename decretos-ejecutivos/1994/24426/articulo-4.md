@@ -1,0 +1,1 @@
+Artículo 4.— Los terrenos particulares existentes en este Parque Nacional, se considerarán parte del Parque Nacional, cuando el Estado los adquiera mediante compra o expropiación, mientras tanto sus propietarios gozarán de todos los atributos de dominio.
