@@ -1,0 +1,2 @@
+Artículo 17. — El portador de un warrant no pagado en la fecha del vencimiento de la deuda que garantiza, podrá protestarlo como las letras de cambio y requerir al Director del Almacén para que enajene los efectos depositados en cantidad bastante para el pago; y tendrá preferencia sobre los demás débitos del depositante, excepto los que reza el artículo 14 que gozan de prelación.
+Satisfecha la deuda garantizada con el warrant, y pagados los gastos, el resto quedará a favor del tenedor del conocimiento de depósito.

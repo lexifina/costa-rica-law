@@ -1,0 +1,1 @@
+Artículo 7°.—El portador del conocimiento de depósito y del warrant conjuntamente, tendrá derecho a exigir a su costa, la división de la cosa depositada y que por cada uno de los lotes que se formen se le expidan títulos parciales en sustitución del único y total que deberá anularle.
