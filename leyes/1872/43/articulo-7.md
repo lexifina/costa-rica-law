@@ -1,0 +1,2 @@
+Art 7° Si después de agotada la partida para gastos extraordinarios de un Departamento, ocurriesen otros en él de naturaleza imperiosamente urgente, el Poder Ejecutivo ordenará el gasto, con tal calidad, bajo la responsabilidad del Secretario de ese solo, si él mismo fuere girador. El Congreso en sus próximas sesiones resolverá lo conveniente sobre estos gastos. - Al Poder Ejecutivo. Dado en veintinueve de julio de mil ochocientos setenta y dos.
+Palacio Nacional, San José setiembre tres de mil ochocientos setenta y dos. Ejecútese.
