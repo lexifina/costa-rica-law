@@ -1,9 +1,3 @@
-ARTICULO XX
-1.- El Director General de la Oficina Internacional del Trabajo,
-notificará a todos los Miembros de la Organización Internacional del
-Trabajo el registro de cuantas ratificaciones, declaraciones y denuncias le
-comuniquen los Miembros de la Organización.
-2.- Al notificar a los Miembros de la Organización el registro de la
-segunda ratificación que le haya sido comunicada, el Director General
-llamará la atención de los Miembros de la Organización sobre la fecha en
-que entrará en vigor el presente Convenio.
+ARTICULO 20
+1.-El Director General de la Oficina Internacional del Trabajo, notificará a todos los Miembros de la Organización Internacional del Trabajo el registro de cuantas ratificaciones, declaraciones y denuncias le comuniquen los Miembros de la Organización.
+2.-Al notificar a los Miembros de la Organización el registro de la segunda ratificación que le haya sido comunicada, el Director General llamará la atención de los Miembros de la Organización sobre la fecha en que entrará en vigor el presente Convenio.

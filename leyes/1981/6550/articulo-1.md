@@ -1,50 +1,10 @@
-Artículo 1º.- Ratifícase el Convenio Nº 148 sobre la Protección de los
-Trabajadores contra Riesgos Profesionales en el lugar de trabajo, debidos a
-la contaminación del aire, el ruido y las vibraciones, adoptado por la
-Conferencia Internacional del Trabajo en su reunión sexagésima tercera,
-celebrada en 1977. Su texto es el siguiente:
+Artículo 1º.- Ratifícase el Convenio Nº 148 sobre la Protección de los Trabajadores contra Riesgos Profesionales en el lugar de trabajo, debidos a la contaminación del aire, el ruido y las vibraciones, adoptado por la Conferencia Internacional del Trabajo en su reunión sexagésima tercera, celebrada en 1977. Su texto es el siguiente:
 Convenio 148
-CONVENIO SOBRE LA PROTECCION DE LOS TRABAJADORES CONTRA
-LOS RIESGOS PROFESIONALES DEBIDOS A LA CONTAMINACION DEL
-AIRE, EL RUIDO Y LAS VIBRACIONES EN EL LUGAR DE TRABAJO
+CONVENIO SOBRE LA PROTECCION DE LOS TRABAJADORES CONTRA LOS RIESGOS PROFESIONALES DEBIDOS A LA CONTAMINACION DEL AIRE, EL RUIDO Y LAS VIBRACIONES EN EL LUGAR DE TRABAJO.
 La Conferencia General de la Organización Internacional del Trabajo:
-Convocada en Ginebra por el Consejo de Administración de la Oficina
-Internacional del Trabajo, y congregada en dicha ciudad el 1º de junio de
-1977 en su sexagésima tercera reunión;
-Recordando las disposiciones de los convenios y recomendaciones
-internacionales del trabajo pertinentes, y en especial la Recomendación
-sobre la protección de la salud de los trabajadores, 1953; la Recomendación
-sobre los servicios de medicina del trabajo, 1959; el Convenio y la
-Recomendación sobre la protección contra las radiaciones, 1960; el Convenio
-y la Recomendación sobre la protección de la maquinaria; 1963; el Convenio
-sobre las prestaciones en caso de accidentes del trabajo y enfermedades
-profesionales, 1964; el Convenio y la Recomendación sobre la higiene
-(comercio y oficinas), 1964; el Convenio y la Recomendación sobre el
-benceno, 1971, y el Convenio y la Recomendación sobre el cáncer
-profesional, 1974;
-Después de haber decidido adoptar diversas proposiciones relativas al
-medio ambiente de trabajo: contaminación atmosférica, ruido y vibraciones,
-cuestión que constituye el cuarto punto del orden del día de la reunión, y
-Después de haber decidido que dichas proposiciones revistan la forma
-de un convenio internacional,
-adopta, con fecha de veinte de junio de mil novecientos setenta y
-siete, el presente Convenio, que podrá ser citado como el Convenio sobre el
-medio ambiente de trabajo (contaminación del aire, ruido y vibraciones),
-1977:
+Convocada en Ginebra por el Consejo de Administración de la Oficina Internacional del Trabajo, y congregada en dicha ciudad el 1º de junio de 1977 en su sexagésima tercera reunión; recordando las disposiciones de los convenios y recomendaciones internacionales del trabajo pertinentes, y en especial la Recomendación sobre la protección de la salud de los trabajadores, 1953; la Recomendación sobre los servicios de medicina del trabajo, 1959; el Convenio y la Recomendación sobre la protección contra las radiaciones, 1960; el Convenio y la Recomendación sobre la protección de la maquinaria; 1963; el Convenio sobre las prestaciones en caso de accidentes del trabajo y enfermedades profesionales, 1964; el Convenio y la Recomendación sobre la higiene (comercio y oficinas), 1964; el Convenio y la Recomendación sobre el benceno, 1971, y el Convenio y la Recomendación sobre el cáncer profesional, 1974; Después de haber decidido adoptar diversas proposiciones relativas al medio ambiente de trabajo: contaminación atmosférica, ruido y vibraciones, cuestión que constituye el cuarto punto del orden del día de la reunión, y Después de haber decidido que dichas proposiciones revistan la forma de un convenio internacional, adopta, con fecha de veinte de junio de mil novecientos setenta y siete, el presente Convenio, que podrá ser citado como el Convenio sobre el medio ambiente de trabajo (contaminación del aire, ruido y vibraciones), 1977:
 Parte I. Campo de Aplicación y Definiciones
-ARTICULO I
-1.- El presente Convenio se aplica a todas las ramas de actividad
-económica.
-2.- Todo Miembro que ratifique el presente Convenio, después de
-consultar a las organizaciones representativas de empleadores y de
-trabajadores interesadas, si tales organizaciones existen, podrá incluir de
-su aplicación las ramas de actividad económica en que tal aplicación
-presente problemas especiales de cierta importancia.
-3.- Todo Miembro que ratifique el presente Convenio deberá enumerar en
-la primera memoria sobre la aplicación del Convenio que someta en virtud
-del artículo 22 de la Constitución de la Organización Internacional del
-Trabajo las ramas que hubieren sido excluidas en virtud del párrafo 2 de
-este artículo, explicando los motivos de dicha exclusión, y deberá indicar
-en memorias subsiguientes el estado de su legislación y práctica respecto
-de las ramas excluidas y la medida en que aplica o se propone aplicar el
-Convenio a tales ramas.
+ARTICULO 1
+1.-El presente Convenio se aplica a todas las ramas de actividad económica.
+2.-Todo Miembro que ratifique el presente Convenio, después de consultar a las organizaciones representativas deempleadores y de trabajadores interesadas, si tales organizaciones existen, podrá incluir de su aplicación las ramas deactividad económica en que tal aplicación presente problemas especiales de cierta importancia.
+3.-Todo Miembro que ratifique el presente Convenio deberá enumerar en la primera memoria sobre la aplicación delConvenio que someta en virtud del artículo 22 de la Constitución de la Organización Internacional delTrabajo las ramas que hubieren sido excluidas en virtud del párrafo 2 de este artículo, explicando los motivos de dichaexclusión, y deberá indicar en memorias subsiguientes el estado de su legislación y práctica respectode las ramas excluidas y la medida en que aplica o se propone aplicar el Convenio a tales ramas.
