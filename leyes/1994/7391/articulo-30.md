@@ -1,0 +1,1 @@
+Artículo 30.- El auditor presentará su informe al consejo de administración de la cooperativa y remitirá copia al comité de vigilancia, al organismo al cual esté afiliada la cooperativa y a la Auditoría General de Entidades Financieras.

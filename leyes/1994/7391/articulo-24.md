@@ -1,0 +1,1 @@
+Artículo 24.- Las operaciones señaladas en el artículo anterior podrán efectuarse con asociados o con no asociados. Los excedentes generados por las operaciones con estos últimos, no serán retornables y deberán destinarse a reservas irrepartibles.

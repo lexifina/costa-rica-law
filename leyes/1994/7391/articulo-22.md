@@ -1,0 +1,1 @@
+Artículo 22.- Las comisiones e intereses de operaciones de préstamos y descuentos, vencidas a más de ciento ochenta días, devengados pero no percibidos, se contabilizarán como ingresos cuando se perciban.
