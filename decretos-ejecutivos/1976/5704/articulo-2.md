@@ -1,0 +1,1 @@
+Artículo 2°-EI régimen tarifario aplicable a los servicios en aeropuertos que se prestan por el Estado o Concesionarios serán los establecidos en el Apéndice al Decreto Ejecutivo que crea el Departamento Financiero de la Dirección General de Aviación Civil.
