@@ -1,0 +1,1 @@
+Artículo 7°—La Dirección General levantará el acta en la que se hará constar la posición que ocupará cada partido en la papeleta o papeletas respectivas y será firmada por los representantes de los partidos participantes. En caso de que alguno de ellos no quiera o no pueda firmar, así se consignará en el documento.

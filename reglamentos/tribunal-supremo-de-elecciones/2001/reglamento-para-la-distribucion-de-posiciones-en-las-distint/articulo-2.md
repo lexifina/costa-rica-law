@@ -1,0 +1,1 @@
+Artículo 2°—Para realizar el sorteo, la Dirección General del Registro Civil presentará una papeleta general, idéntica en su forma a la que se utilizará en la respectiva elección, que estará dividida en tantos espacios como partidos participantes y cada casilla estará debidamente numerada.
