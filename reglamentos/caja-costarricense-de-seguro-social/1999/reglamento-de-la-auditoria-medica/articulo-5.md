@@ -1,0 +1,1 @@
+Artículo 5°-Las intervenciones se realizarán con absoluta independencia funcional y de criterio y sobre la base de la programación anual operativa, de estudios especiales, de los procesos, cronogramas y metodologías de trabajo, con la aplicación de prácticas y técnicas establecidas, según los principios y normas de aceptación general que rigen la función de Auditoria.
