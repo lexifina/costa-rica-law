@@ -1,0 +1,1 @@
+4°—A los efectos del artículo 52 de la Ley de Hidrocarburos, la tarifa a cobrar para efectos de la reproducción de la información será fijada por el Ministerio de Recursos Naturales, Energía y Minas mediante resolución fundamentada según el tipo y extensión de la documentación que se solicite.
