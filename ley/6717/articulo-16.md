@@ -1,5 +1,5 @@
 Artículo 16.-Las actividades que se citan a continuación en este artículo pagarán el impuesto de patente, conforme con el criterio que se indica para cada una de ellas.
-a) Bancos y establecimientos financieros (casa de banca, de cambio financieras y similares e instituciones aseguradoras). Se excluyen los bancos del Estado. Pagarán por cada trimestre sobre ingresos por intereses brutos o por comisiones, o por ambos, percibidos en el año anterior:
+a)Bancos y establecimientos financieros (casa de banca, de cambio financieras y similares e instituciones aseguradoras). Se excluyen los bancos del Estado. Pagarán por cada trimestre sobre ingresos por intereses brutos o por comisiones, o por ambos, percibidos en el año anterior:
 A menos del 8% anual ¢ 3,00 por ¢ 1.000,00 trimestral
 A 8% anual ¢ 4,00 por ¢ 1.000,00 trimestral
 A más del 8% anual ¢ 5,00 por ¢ 1.000,00 trimestral
@@ -15,7 +15,7 @@ Primera Categoría ¢ 35.736,70 trimestral
 Segunda Categoría ¢ 21.441,40 trimestral
 Tercera Categoría ¢ 14.293,80 trimestral
 La Municipalidad establecerá categorías tomando en cuenta la ubicación, número de mesas de juego o similares, la calidad y presentación del local y las circunstancias de si el salón es exclusivo para la actividad, o es complementario de otros principal, dentro del mismo edificio.
-g)Servicios de almacenaje (almacenes de depósitos y similares). Uno por ciento anual sobre la entrada bruta del año anterior, pagadero en cuatro tractos trimestrales iguales
+g)Servicios de almacenaje (almacenes de depósitos y similares). Uno por ciento anual sobre la entrada bruta del año anterior, pagadero en cuatro tractos trimestrales iguales.
 h)Estacionamientos (comerciales para automotores).
 Primera categoría: Solares dedicados a la prestación del servicio no incluidos en la siguiente categoría ¢ 14,30 trimestrales por metro cuadrado del área destinada para el uso y control de la actividad.
 Segunda categoría: Edificios destinados, total 0 parcialmente, a la prestaci6n de este servicio ¢ 7,10 trimestral por cada metro cuadrado del área destinada para uso y control de la actividad.
@@ -59,4 +59,4 @@ Dentro del cantón: ¢ 425,50
 Fuera del Cantón ¢ 855,50
 v)Aceras sin construir o en mal estado, donde existe cordón y caño trimestrales por metro lineal de frente ¢ 14,30
 w)Canoas y bajantes en mal estado, o sin instalar, frente a la vía pública trimestrales por cada metro lineal de frente de la propiedad ¢ 14,30
-(Así reformado por resolución de la Contraloría General de la República, Nº 1 del 13 de octubre de 1995)
+(Así reformado por la resolución Nº 1 del 13 de octubre de 1995)
