@@ -14,3 +14,4 @@ Crea Taller Nacional de Danza como Institución Adscrita al Ministerio de Cultur
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-05-25 | la propia norma |
+| 2 | 1998-02-11 | Decreto Ejecutivo 26766 (1998-02-11) |
