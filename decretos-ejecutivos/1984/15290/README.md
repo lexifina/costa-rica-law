@@ -14,3 +14,4 @@ Reforma Sector Industria, Energía y Minas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-04-06 | la propia norma |
+| 2 | 1984-07-16 | Decreto Ejecutivo 15658 (1984-07-16) |

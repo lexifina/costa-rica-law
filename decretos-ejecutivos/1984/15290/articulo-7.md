@@ -21,10 +21,11 @@ h) Cumplir las demás funciones que le asigne el Consejo Subsectorial de Industr
 Articulo 45.-Para el cumplimiento de sus funciones, la Secretaría Técnica Subsectorial de Industria estará subordinada a la Secretaría Ejecutiva del Sector Industrial, Energía y Minas y para efectos administrativos estará adscrita al Ministerio de Industria, Energía y Minas.
 Articulo 46.-La Secretaría Técnica Subsectorial de Industrias dispondrá para el cumplimiento de sus funciones de:
 a) Las partidas ordinarias y extraordinarias contenidas en los presupuestos ordinarios y extraordinarios del Ministerio de Industria, Energía y Minas;
-b) Aportes de las instituciones del Subsector que acuerden sus Juntas Directivas, asignadas específicamente para la Secretaría, mediante convenio;
-c) Personal técnico, administrativo y de servicios, facilitado por las instituciones representadas en el Subsector de Industrial cuando la Secretaría Ejecutiva lo solicite por conducto del Presidente del Consejo; y
-ch) Los recursos provenientes de organismos nacionales e internacionales aplicables al área del Subsector.
-Artículo 47.-Las instituciones integrantes del Subsector proveerán, mediante convenio, a la Secretaría con los recursos humanos, técnicos y financieros, para lo cual la citada Secretaría presentará cada año un proyecto de presupuesto al Consejo Subsectorial, quien lo remitirá al Ministro Rector para su aprobación; en el cual necesariamente deberán indicarse cuáles son los recursos necesarios y cuáles deberá aportar cada institución.
+b) Personal técnico, administrativo y de servicios, facilitado por las instituciones representadas en el Subsector de Industrial cuando la Secretaría Ejecutiva lo solicite por conducto del Presidente del Consejo; y
+c) Los recursos provenientes de organismos nacionales e internacionales aplicables al área del Subsector.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 15658 del 16 de julio de 1984).
+Artículo 47.-Las instituciones integrantes del Subsector proveerán, mediante convenio, a la Secretaría con los recursos humanos, técnicos, para lo cual la citada Secretaría presentará cada año un proyecto de presupuesto al Consejo Subsectorial, quien lo remitirá al Ministro Rector para su aprobación; en el cual necesariamente deberán indicarse cuáles son los recursos necesarios y cuáles deberá aportar cada institución.
+(Así reformado mediante el artículo 2° del decreto ejecutivo N° 15658 del 16 de julio de 1984).
 Artículo 48.-La Secretaría Técnica. Subsectorial de Industria estará a cargo de un Director, nombrado y removido por el Presidente del Consejo Nacional Sectorial de Industria, Energía y Minas.
 Artículo 49.-EI Director llevará a cabo las siguientes funciones:
 a) Ejecutar el programa de trabajo aprobado por el Consejo Nacional Sectorial de Industria, Energía y Minas;
@@ -84,10 +85,11 @@ n) Darse su Reglamento Interno;
 ñ) Las demás funciones que le asigne el Consejo Subsectorial de Energía.
 Artículo 56.-La .Dirección Subsectorial dispondrá, para el cumplimiento de sus funciones, de:
 a) Personal técnico, administrativo y de apoyo facilitado por las instituciones integrantes del Subsector;
-b) Aportes de las instituciones integrantes del Subsector, según lo acuerden sus Juntas Directivas, los cuales se asignarán específicamente para la Dirección mediante convenio suscrito al efecto;
-c) Las partidas ordinarias y extraordinarias contenidas en los presupuestos ordinarios y extraordinarios del Ministerio de Industria, Energía y Minas;
-d) Recursos provenientes de organismos nacionales e internacionales aplicables al área de la energía.
-Artículo 57.-Las instituciones integrantes del Subsector proveerán, mediante convenio, a la Dirección con los recursos humanos, técnicos y financieros necesarios, para lo cual la citada Dirección presentará cada año un Proyecto de Presupuesto al Consejo Subsectorial, quien lo remitirá al Ministro Rector para su aprobación; en el cual necesariamente deberán indicarse cuáles son los recursos necesarios y cuáles deberá aportar cada institución.
+b) Las partidas ordinarias y extraordinarias contenidas en los presupuestos ordinarios y extraordinarios del Ministerio de Industria, Energía y Minas;
+c) Recursos provenientes de organismos nacionales e internacionales aplicables al área de la energía.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 15658 del 16 de julio de 1984).
+Artículo 57.-Las instituciones integrantes del Subsector proveerán, mediante convenio, a la Dirección con los recursos humanos, técnicos necesarios, para lo cual la citada Dirección presentará cada año un Proyecto de Presupuesto al Consejo Subsectorial, quien lo remitirá al Ministro Rector para su aprobación; en el cual necesariamente deberán indicarse cuáles son los recursos necesarios y cuáles deberá aportar cada institución.
+(Así reformado mediante el artículo 2° del decreto ejecutivo N° 15658 del 16 de julio de 1984).
 Artículo 58.-Son atribuciones exclusivas del Director Subsectorial de Energía:
 a) Supervisar la ejecución del programa de trabajo aprobado por el Consejo Subsectorial;
 b) Presidir el Comité Técnico Subsectorial de Energía;
@@ -135,10 +137,11 @@ ll) Darse su reglamento interno; y
 m) Las demás funciones que le asigne el Consejo Subsectorial de Minas.
 Artículo 63.-La Secretaría Técnica Subsectorial de Minas dispondrá, para el cumplimiento de sus funciones de:
 a) Personal técnico, administrativo y de apoyo facilitado por las instituciones integrantes del Subsector;
-b) Aportes de las instituciones integrantes del Subsector, según lo acuerdan sus Juntas Directivas, los cuales se asignarán específicamente para la Secretaría, mediante convenio suscrito al efecto;
-c) Las partidas contenidas en los presupuestos ordinarios y extraordinarios del Ministerio de Industria, Energía y Minas; y
-d) Recursos provenientes de organismos nacionales e internacionales aplicables al área de la minería.
-Articulo 64.-Las instituciones integrantes del Subsector proveerán, mediante convenio, a la Secretaría Técnica con los recursos humanos, técnicos y financieros necesarios, para lo cual la citada Secretaría presentará cada año un proyecto de presupuesto al Consejo Subsectorial, quien lo remitirá al Ministro para su aprobación; en el cual deberá necesariamente indicarse cuáles son los recursos y cuáles deberá aportar cada institución.
+b) Las partidas contenidas en los presupuestos ordinarios y extraordinarios del Ministerio de Industria, Energía y Minas; y
+c) Recursos provenientes de organismos nacionales e internacionales aplicables al área de la minería.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 15658 del 16 de julio de 1984).
+Articulo 64.-Las instituciones integrantes del Subsector proveerán, mediante convenio, a la Secretaría Técnica con los recursos humanos, técnicos necesarios, para lo cual la citada Secretaría presentará cada año un proyecto de presupuesto al Consejo Subsectorial, quien lo remitirá al Ministro para su aprobación; en el cual deberá necesariamente indicarse cuáles son los recursos y cuáles deberá aportar cada institución.
+(Así reformado mediante el artículo 2° del decreto ejecutivo N° 15658 del 16 de julio de 1984).
 Articulo 65.-Son atribuciones exclusivas del Secretario Técnico Subsectorial de Minas:
 a) Supervisar la ejecución del programa de trabajo por el Consejo Subsectorial;
 b) Presidir el Comité Técnico Subsectorial de Minas;
