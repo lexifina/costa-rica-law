@@ -1,0 +1,1 @@
+ARTÍCULO 118.-No se ha de entender dividida la compañía de minas por muerte de alguno de los compañeros antes han de quedar obligados los compañeros a seguir en ella, pero con el libre albedrío de vender su parte en la forma prevenida en el artículo antecedente.

@@ -1,0 +1,1 @@
+ARTÍCULO 55.-Los placeres y cualquiera género de criaderos de oro y plata se descubrir n, registrar n y denunciar n en la misma forma que las minas en veta, entendiéndose lo dicho para toda clase de metales.

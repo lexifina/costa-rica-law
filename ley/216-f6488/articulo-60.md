@@ -1,0 +1,1 @@
+ARTÍCULO 60.-Los administradores, mayordomos, veladores, mineros o guarda minas y en general cualquier sirviente u operario de los dueños de minas, sean ordinarios o sobresalientes, podrán registrar, denunciar o de otra manera adquirir minas, a continuación de las de su patrones, con tal que en todo obren con arreglo a esta ordenanza.

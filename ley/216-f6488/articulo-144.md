@@ -1,0 +1,1 @@
+ARTÍCULO 144.-Cuando se haga embargo de mina o hacienda, se le administrar n a su dueño los alimentos necesarios, si hubiere de donde y lo preciso para el sostén del trabajo, dejando en beneficio del acreedor el superávit para de este modo indemnizar el descubierto.

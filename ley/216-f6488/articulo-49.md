@@ -1,0 +1,1 @@
+ARTÍCULO 49.-Si el antiguo poseedor de la mina o quien su causa hubiere, reclamase haber dejado en ella algunas obras exteriores y movedizas, hechas a su costa, como cubiertas de galera, m quinas u otras cosas de esta clase y de que £ltimamente pueda servirse, el denunciante las pagar a sus due¤os por lo que las valuaren los peritos.

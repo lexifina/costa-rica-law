@@ -1,0 +1,1 @@
+ARTÍCULO 116.-Si estando la mina en frutos, algunos de los compañeros no quisiesen contribuir a los costos de las faenas muertas (deliberadas con la formalidad que va prefinida) por consumirse en ellas una parte o todo lo que la mina produce, podrán los demás compañeros retenerle e invertir en este destino, una parte o todos los metales que le correspondieren.

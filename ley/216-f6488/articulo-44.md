@@ -1,0 +1,1 @@
+ARTÍCULO 44.-Los restauradores de antiguos minerales desiertos y abandonados tendrán el mismo privilegio que los descubridores, eligiendo y gozando tres pertenencias en la veta principal y una en cada una de las demás, y unos y otros deber n ser especialmente premiados y atendidos con preferencia en igualdad de circunstancias, y en todo lo que hubiere lugar.

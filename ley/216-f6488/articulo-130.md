@@ -1,0 +1,1 @@
+ARTÍCULO 130.-Si el origen de las fuentes o ríos estuviere fuera del distrito de la diputación, ‚esta exhortar a la autoridad respectiva, la que cumplir y hará cumplir lo dispuesto en el artículo anterior.

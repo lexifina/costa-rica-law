@@ -1,0 +1,1 @@
+ARTÍCULO 7°.-Los sustitutos harán en el mineral las veces de síndicos procuradores, para que pidan la diputación lo que les pareciese conveniente al bien común de los mineros, teniéndose su servicio en consideración para elegirlos en diputados £ otros empleos de minería.

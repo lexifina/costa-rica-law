@@ -1,0 +1,1 @@
+ARTÍCULO 64.-Por el hilo, dirección o rumbo de la veta, sea de oro, plata o cualquiera otro metal, se concede a los mineros sin distinci¢n de los descubridores (que ya tienen asignado su premio). doscientas varas castellanas que llaman de medir tiradas a nivel, y como hasta ahora se han entendido.

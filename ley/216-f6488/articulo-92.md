@@ -1,0 +1,1 @@
+ARTÍCULO 92.-Siendo de mayor comodidad desaguar las vetas, contraminándolas por medio de socavones o taladros, se manda que los due¤os de tales vetas, si ‚estas fuesen de algún interés y su situación lo permitiese, están obligados a darle el correspondiente taladro de desagüe para la habilitación de sus labores.

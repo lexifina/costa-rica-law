@@ -1,0 +1,1 @@
+ARTÍCULO 14.-Los diputados territoriales y los peritos de minas no tendrá n sueldo alguno señalado de las rentas del Estado, y en los casos particulares que ocurran, se arreglar n al arancel que el Superior Gobierno aprobare para los asuntos judiciales.
