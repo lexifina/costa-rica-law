@@ -13,3 +13,4 @@ Ratifica Tratado Cañas - Jerez de Límites con Nicaragua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1858-04-16 | la propia norma |
+| 2 | 1858-05-10 | Ley 8 |
