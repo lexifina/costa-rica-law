@@ -1,0 +1,1 @@
+Artículo 14.—Los miembros del Tribunal Calificador nombrados por el Consejo Coordinador de Farmacia, se mantendrán en sus puestos por el período de tiempo necesario para dar por concluido el concurso.

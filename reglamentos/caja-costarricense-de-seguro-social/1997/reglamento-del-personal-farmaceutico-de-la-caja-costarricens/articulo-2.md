@@ -1,0 +1,1 @@
+Artículo 2°—En el futuro sólo podrán ser nombrados en propiedad, como Profesionales en Farmacia, quienes cumplan con los requisitos exigidos por este Reglamento y en todo caso deben superar satisfactoriamente el período de prueba legal.

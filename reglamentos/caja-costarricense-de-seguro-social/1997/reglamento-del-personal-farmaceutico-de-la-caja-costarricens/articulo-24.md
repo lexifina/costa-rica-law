@@ -1,0 +1,1 @@
+Artículo 24.—Las Comisiones Técnicas de Farmacia, Regionales, Hospital desconcentrados y de otras Áreas, deben velar porque se cumplan fielmente las Normas y Reglamentos de la Institución, en el área de farmacia.

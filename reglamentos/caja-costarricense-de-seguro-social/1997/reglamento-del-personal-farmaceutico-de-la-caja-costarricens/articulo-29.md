@@ -1,0 +1,2 @@
+Artículo 29.—La Jefatura de la Sección de Farmacia, la supervisión Regional o la Coordinación de Hospitales Desconcentrados, convocará y coordinará las sesiones de la Comisión Técnica correspondiente, las que se reunirán por lo menos una vez al mes.
+En ausencia del coordinador (a), la comisión será coordinada por el miembro presente de categoría superior en el escalafón, si hubiere varios de la misma categoría, coordinará el de mayor antigüedad en la Caja.

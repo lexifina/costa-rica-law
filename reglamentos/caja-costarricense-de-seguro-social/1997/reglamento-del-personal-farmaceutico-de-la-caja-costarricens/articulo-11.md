@@ -1,0 +1,3 @@
+Artículo 11.—Los interesados en los concursos deberán presentar todos los atestados y certificaciones en el lugar señalado y plazos fijados para su recepción y deben indicar las plazas por las que concursan, así como el lugar para las notificaciones bajo pena de nulidad.
+Los profesionales que laboran en la CCSS, quedan eximidos de presentar certificado o constancia de salud.
+La Oficina de Personal respectiva, recibirá los documentos que se les presenten. No se recibirán documentos después del plazo estipulado en los avisos, que será de 30 días naturales, después de la segunda publicación, en uno de los periódicos de mayor circulación en el país.

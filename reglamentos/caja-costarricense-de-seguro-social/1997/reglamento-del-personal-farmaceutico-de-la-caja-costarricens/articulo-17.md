@@ -1,0 +1,1 @@
+Artículo 17.—La Oficina de Personal correspondiente comunicará por escrito a cada participante la calificación obtenida en el concurso, en un término de 15 (quince) días hábiles posteriores al informe del Tribunal Calificador. Para tal efecto, los interesados deben indicar claramente el lugar donde se les pueda enviar la comunicación.

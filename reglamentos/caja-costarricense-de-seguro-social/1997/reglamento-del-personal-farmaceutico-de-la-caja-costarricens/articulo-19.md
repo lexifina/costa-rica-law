@@ -1,0 +1,1 @@
+Artículo 19.—El farmacéutico que sea nombrado para la plaza por la que optó, desempeñará su labor en la unidad propietaria de esa plaza, en caso de renuncia inmediata posterior, que se entiende por el lapso de tiempo en que debe ocupar la plaza, ésta se puede adjudicar al profesional que le sigue en puntuación.
