@@ -1,5 +1,6 @@
 Artículo 18.
-El dictamen de los auditores externos indicado en el inciso c) del Artículo anterior deberá contener la siguiente información:
+Artículo 18.—El dictamen de los auditores externos indicado en el inciso c) de los Artículos 16 y 17 anteriores deberá contener la siguiente información en lo que les sea aplicable:
+(Así reformado su primer párrafo mediante acuerdo tomado en sesión N° 305 de 11 de junio del 2002)
 a) Estados Financieros:
 1. Opinión sobre los estados financieros y las Notas a éstos, las cuales son parte integrante de los mismos.
 2. Estimación de incobrables.

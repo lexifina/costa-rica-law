@@ -1,0 +1,2 @@
+Transitorio VII.—Para efecto de la aplicación de las modificaciones que se establecen al Artículo 25 de este Reglamento, se entenderá que las mismas aplicarán en forma prospectiva a partir de su fecha de publicación en el Diario Oficial La Gaceta. En el plazo de tres meses a partir de dicha fecha de publicación, cada grupo financiero por intermedio de su sociedad controladora, someterá a la aprobación del respectivo órgano supervisor, un plan de adecuación para regularizar su situación.
+(Así adicionado mediante acuerdo tomado en sesión N° 305 de 22 de junio del 2002)
