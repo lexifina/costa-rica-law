@@ -1,0 +1,3 @@
+Artículo 5°—
+El estacionamiento de vehículos de dos ruedas o más que se aparquen en las calles de la ciudad ocupando uno de los sistemas que fija este Reglamento para el de las zonas de estacionamiento autorizado, causará una tasa mínima de Ë 29,40 (veintinueve colones, cuarenta céntimos) cada hora y Ë 14,70 (catorce colones, setenta céntimos) cada media hora; multas por infracción a la Ley de Estacionamientos Ë 294,00 (doscientos noventa y cuatro colones).
+El precio anteriormente fijado estará sujeto a los ajustes que decrete el Poder Ejecutivo para los estacionamientos privados y conforme con la ley N° 6852 del 16 de febrero de 1983, esta tarifa no podrá en ningún caso ser menor a un que cobren los estacionamientos privados por servicios similares.

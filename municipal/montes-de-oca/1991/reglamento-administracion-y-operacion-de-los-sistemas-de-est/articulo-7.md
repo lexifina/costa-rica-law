@@ -1,0 +1,2 @@
+Artículo 7°—
+La Municipalidad de Montes de Oca, por medio de la sección a cuyo cargo tenga la regulación de estacionamiento, demarcará aquellas esquinas en que sea necesario triángulos no menores de cinco metros para el estacionamiento de motocicletas sin cobro alguno. Cuando este tipo de vehículos se estacionen ocupando algún sistema de estacionamiento fijado por este Reglamento deberá satisfacerla tasa correspondiente, de lo contrario incurrirá en las sanciones del artículo 11 del presente Reglamento.

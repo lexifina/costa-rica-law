@@ -1,0 +1,2 @@
+Artículo 18.—
+Dichas zonas o espacios podrán adjudicarse por plazos de seis meses a un año o por tiempo menor, la dependencia responsable podrá, a su criterio, prorrogar el plazo de adjudicación o renunciarlo si lo considera conveniente.
