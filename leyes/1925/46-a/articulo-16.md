@@ -1,6 +1,6 @@
 CAPITULO III
 De las licencias, remociones y sustituciones
-Artículo 16.- Los Cónsules Generales podrán separarse de su cargo
+ARTICULO 16.- Los Cónsules Generales podrán separarse de su cargo
 durante tres meses consecutivos cuando no se ausenten del distrito de su
 jurisdicción. Saliendo de éste o siendo la separación por más tiempo,
 deberán solicitar y obtener licencia de la Secretaría de Relaciones

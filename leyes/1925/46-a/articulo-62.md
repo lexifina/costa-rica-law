@@ -1,4 +1,4 @@
-Artículo 62.- Si se suscitasen litigios respecto a los bienes
+ARTICULO 62.- Si se suscitasen litigios respecto a los bienes
 intestados mientras estuviesen éstos en poder del Cónsul, la decisión y
 resolución de ellos corresponde necesariamente a las autoridades
 competentes del país y la intervención del Cónsul será con las facultades

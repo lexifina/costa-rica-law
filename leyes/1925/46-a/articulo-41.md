@@ -1,6 +1,6 @@
 CAPITULO VIII
 De los Cónsules como Agentes Judiciales
-Artículo 41.- Las atribuciones judiciales de los Cónsules son:
+ARTICULO 41.- Las atribuciones judiciales de los Cónsules son:
 Intervenir como árbitros en las desavenencias entre costarricenses
 que sean sometidas a su fallo.
 Resolver las cuestiones que se susciten entre patrones y tripulantes

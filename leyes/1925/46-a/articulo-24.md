@@ -1,4 +1,4 @@
-Artículo 24.- Llamados los funcionarios consulares a intervenir en
+ARTICULO 24.- Llamados los funcionarios consulares a intervenir en
 una u otra forma en las operaciones de carga o descarga de un buque que
 se dirija o proceda de un puerto de Costa Rica, u otro acto de navegación
 en que se hallasen comprometidos los intereses de costarricenses o

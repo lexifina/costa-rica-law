@@ -1,4 +1,4 @@
-Artículo 6º.- El nombramiento de todo Cónsul corresponde al Poder
+ARTICULO 6º.- El nombramiento de todo Cónsul corresponde al Poder
 Ejecutivo y se hará por medio de letras patentes que no surtirán efectos
 sin que antes el Gobierno de la nación respectiva les haya concedido el
 exequatur, y tal nombramiento, así como el de los demás empleados que el

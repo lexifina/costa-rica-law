@@ -1,4 +1,4 @@
-Artículo 38.- Las copias autorizadas que los Cónsules expidan de las
+ARTICULO 38.- Las copias autorizadas que los Cónsules expidan de las
 actas del Estado Civil registradas en su Consulado, harán fe ante los
 tribunales de la República.
 Las disposiciones legales que a los Cónsules especialmente interesan

@@ -1,4 +1,4 @@
-Artículo 3º.- Los Cónsules Generales, Cónsules y Vicecónsules no
+ARTICULO 3º.- Los Cónsules Generales, Cónsules y Vicecónsules no
 pueden cobrar más derechos por sus servicios que los que les correspondan
 según la Tarifa Consular anexa a esta ley.
 Los Vicecónsules no podrán tener a su cargo otras funciones que las

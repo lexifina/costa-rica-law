@@ -1,6 +1,6 @@
 CAPITULO IX
 De la fe pública de los Cónsules
-Artículo 66.- Los Cónsules de la República revisten el carácter de
+ARTICULO 66.- Los Cónsules de la República revisten el carácter de
 notarios y tienen autoridad para dar fe, conforme a las leyes, de los
 actos y contratos.
 Se puede, pues, ante ellos, otorgar documentos públicos, extender

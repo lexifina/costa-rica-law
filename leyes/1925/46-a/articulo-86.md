@@ -1,4 +1,4 @@
-Artículo 86.- No podrán cobrarse otros derechos que los determinados
+ARTICULO 86.- No podrán cobrarse otros derechos que los determinados
 en la tarifa consular por cada acto.
 La tarifa estará en toda oficina consular a la vista y disposición
 de quien debiendo satisfacer derechos, quiera consultarla.

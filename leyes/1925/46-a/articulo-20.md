@@ -1,4 +1,4 @@
-Artículo 20.- Todas las notas, comunicaciones y despachos consulares
+ARTICULO 20.- Todas las notas, comunicaciones y despachos consulares
 deberán llevar el número de orden correlativo, que se cerrará anualmente.
 Cuando a las comunicaciones vayan anexos otros papeles o documentos se
 enumerarán éstos por orden cronológico, pero terminando la enumeración

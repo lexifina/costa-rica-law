@@ -1,4 +1,4 @@
-Artículo 27.- Los Cónsules que residan en puertos de origen o escala
+ARTICULO 27.- Los Cónsules que residan en puertos de origen o escala
 para buques que tomen o dejen carga para o de Costa Rica, exigirán a los
 agentes o consignatarios de las compañías a que pertenezcan dichos
 buques, la presentación de dos copias autorizadas del sobordo o

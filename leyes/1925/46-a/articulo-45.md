@@ -1,4 +1,4 @@
-Artículo 45.- En las cuestiones que puedan suscitarse entre patrones
+ARTICULO 45.- En las cuestiones que puedan suscitarse entre patrones
 y tripulantes de una nave costarricense que arribe a un puerto de un
 distrito consular, intervendrán los Cónsules asegurándose de si la
 cuestión procede de reclamaciones pecuniarias o por servicios no

@@ -1,4 +1,4 @@
-Artículo 25.- Si por investigación directa o por denuncia o por otro
+ARTICULO 25.- Si por investigación directa o por denuncia o por otro
 medio cualquiera que un funcionario consular utilizase, llegase a su
 conocimiento que bien en el tráfico de exportación, bien en otra forma se
 tratase de defraudar o perjudicar al Erario de la República, lo pondrá

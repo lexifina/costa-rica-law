@@ -1,4 +1,4 @@
-Artículo 72.- Sólo son válidos los actos practicados por los
+ARTICULO 72.- Sólo son válidos los actos practicados por los
 Cónsules dentro del límite de los distritos respectivos que se les hayan
 señalado y revestidos de todas las formalidades legales, salvo los casos
 en que por disposición superior se les encargue o habilite para ejercer

@@ -1,4 +1,4 @@
-Artículo 9º.- Una vez obtenida por el funcionario consular la
+ARTICULO 9º.- Una vez obtenida por el funcionario consular la
 concesión del exequatur, reclamará de su antecesor la posesión del cargo
 y la entrega de lo que constituya el archivo, documentación, sellos y
 demás utensilios de pertenencia del Consulado.

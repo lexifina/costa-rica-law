@@ -1,4 +1,4 @@
-Artículo 28.- Los Cónsules tienen la obligación de no permitir la
+ARTICULO 28.- Los Cónsules tienen la obligación de no permitir la
 salida de su jurisdicción con destino a Costa Rica a ninguna nave sin que
 vaya provista de su respectiva patente de sanidad extendida por ellos. En
 dicha patente harán constar no sólo el estado de salubridad del puerto de

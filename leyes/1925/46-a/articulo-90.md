@@ -1,6 +1,6 @@
 CAPITULO XIII
 Libros, registros y útiles del Consulado
-Artículo 90.- Los Cónsules llevarán los siguientes libros:
+ARTICULO 90.- Los Cónsules llevarán los siguientes libros:
 Copiador de la correspondencia oficial.
 Copiador de la correspondencia que sobre asuntos del Consulado
 dirijan a particulares.

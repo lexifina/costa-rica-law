@@ -1,6 +1,6 @@
 CAPITULO VI
 De los Cónsules como Agentes Administrativos
-Artículo 29.- La protección y amparo que la República debe prestar a
+ARTICULO 29.- La protección y amparo que la República debe prestar a
 los costarricenses en sus vidas y haciendas, considérase delegada en sus
 Cónsules.
 Para esa prestación deberán los Cónsules sujetarse estrictamente a

@@ -1,4 +1,4 @@
-Artículo 43.- El Cónsul ejercerá las funciones de árbitro en
+ARTICULO 43.- El Cónsul ejercerá las funciones de árbitro en
 desavenencias ocurridas entre costarricenses residentes en su distrito,
 cuando se solicite ese arbitraje o intervención de los litigantes o sea
 llamado a ello por juez, tribunal o autoridad competente.

@@ -1,4 +1,4 @@
-Artículo 91.- Los Cónsules formarán con la correspondencia que
+ARTICULO 91.- Los Cónsules formarán con la correspondencia que
 reciban, los siguientes legajos:
 Correspondencia recibida de la Secretaría de Relaciones Exteriores,
 Legación, otros Consulados costarricenses y autoridades de Costa Rica.

@@ -1,4 +1,4 @@
-Artículo 35.- Si un ciudadano costarricense ya inscrito en el
+ARTICULO 35.- Si un ciudadano costarricense ya inscrito en el
 Consulado o no inscrito aún por lo reciente de su llegada, pero cuya
 identificación conste, fuese víctima de algún abuso o vejamen por parte
 de algún particular, el Cónsul, probada la verdad del hecho, reclamará

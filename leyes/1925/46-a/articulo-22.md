@@ -1,6 +1,6 @@
 CAPITULO V
 De los Cónsules como Agentes de Comercio
-Artículo 22.- En su carácter de Agentes Consulares les corresponde a
+ARTICULO 22.- En su carácter de Agentes Consulares les corresponde a
 los funcionarios consulares, promover el desarrollo de las relaciones
 comerciales entre Costa Rica y el país de su residencia, poniendo en este
 servicio toda su actividad e inteligencia, y teniendo siempre presente

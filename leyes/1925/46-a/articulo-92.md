@@ -1,4 +1,4 @@
-Artículo 92.- En cada Consulado debe haber:
+ARTICULO 92.- En cada Consulado debe haber:
 Dos ejemplares del presente Reglamento.
 Un ejemplar de las leyes fundamentales de la República.
 Un ejemplar del Código de Comercio.

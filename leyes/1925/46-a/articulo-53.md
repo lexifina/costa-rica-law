@@ -1,4 +1,4 @@
-Artículo 53.- Si entre los bienes inventariados existen algunos que
+ARTICULO 53.- Si entre los bienes inventariados existen algunos que
 se hallen expuestos a deteriorarse o perderse, el Cónsul, asesorado por
 dos personas competentes, autorizará al administrador para enajenarlos en
 subasta pública.

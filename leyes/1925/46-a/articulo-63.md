@@ -1,4 +1,4 @@
-Artículo 63.- Si no se oponen a ello las leyes del país en que el
+ARTICULO 63.- Si no se oponen a ello las leyes del país en que el
 Cónsul resida, tendrá las facultades y ejercerá las funciones de
 guardador de los menores que por muerte de un costarricense quedaran
 abandonados y sin amparo en su distrito y, como tal, se encargará de
