@@ -1,0 +1,1 @@
+Artículo 3°.-El Centro utilizará, mientras logra completar su organización propia, las instalaciones físicas y el equipo que hasta ahora ha empleado, pero, mantendrá su independencia administrativa en la Farmacia del Hospital de Niños, sin perjuicio de la estrecha vinculación que guarda con esta y de la colaboración mutua que ambos deben prestarse.
