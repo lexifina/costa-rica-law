@@ -1,0 +1,2 @@
+Artículo 40.—Todo egreso se hará por medio de cheque contra el Banco estatal del sistema Bancario Nacional donde el Colegio tiene su cuenta corriente, expedido nominalmente a favor del interesado.
+Existirá una Caja Chica. Los reembolsos a ésta se harán con cheque expedido a favor de la persona que la administre, cuando el dinero disponible en dicha caja sea menor o igual al diez por ciento del monto autorizado por la Junta Directiva.

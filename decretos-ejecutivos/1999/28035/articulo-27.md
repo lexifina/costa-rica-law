@@ -1,0 +1,1 @@
+Artículo 27.—La Junta Directiva constituirá una Comisión Permanente que actuará como su órgano auxiliar en todo lo relacionado con las especialidades. La comisión se denominará COMISIÓN DE ESPECIALIDADES.

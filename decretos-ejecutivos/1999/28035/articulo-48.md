@@ -1,0 +1,1 @@
+Artículo 48.—La convocatoria a sesión de Asamblea General se hará con un mínimo de cinco días hábiles de anticipación por medio de una publicación en un diario de circulación nacional y dos veces en el diario oficial; indicando lugar, día y hora de la reunión, así como los asuntos a tratar.

@@ -1,0 +1,1 @@
+Artículo 62.—Los acuerdos y las resoluciones de la Junta Directiva, en materia de su competencia, se ejecutarán de inmediato si contra ellos no se oponen oportunamente , los recursos de revocatoria y apelación.

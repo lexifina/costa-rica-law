@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del ejercicio profesional
+Artículo 21.—Sólo podrán ejercer la profesión las personas que tengan título con grado académico mínimo de bachillerato en Física o en alguna de sus especialidades (incluyendo: Física Teórica, Física Atómica y Molecular, Física Nuclear Aplicada, Dosimetría, Estado Sólido , Ciencia de Materiales, Metrología Física, Astrofísica, Astronomía, Ciencia Planetaria, Ciencias Espaciales, Biofísica, Ciencias Atmosféricas, Meteorología, Oceanografía Física, Sismología, Geofísica, Percepción Remota, Óptica, Física Matemática y Computacional, Física Forense, Acústica, Enseñanza de la Física y las que en el futuro determine la Junta Directiva), y que estén debidamente inscritas e incorporadas al Colegio de Físicos.

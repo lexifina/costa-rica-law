@@ -1,0 +1,1 @@
+Artículo 83.—El Tribunal de Honor tendrá sesiones ordinarias cada dos meses, la primera en diciembre de cada año para integrarse como un cuerpo colegiado y sesiones extraordinarias cada vez que le sea remitido un caso o se presente una situación que amerite la convocatoria.

@@ -1,0 +1,1 @@
+Artículo 124. El Colegio no inscribirá Agrupaciones Gremiales que persigan los mismos fines. En caso de conflicto la Junta Directiva definirá y en todo caso tendrá prioridad aquella Agrupación Gremial que hubiera sido inscrita con anterioridad.

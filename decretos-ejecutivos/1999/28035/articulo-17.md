@@ -1,0 +1,1 @@
+Artículo 17.—Los miembros tienen derecho de retirarse del Colegio, previa cancelación de sus compromisos económicos pendientes. En este caso perderán todos los derechos que la Ley Orgánica del Colegio otorga.

@@ -1,0 +1,1 @@
+Artículo 49.—El quórum para constituir la Asamblea General será de la mitad más uno de los Miembros Activos. Caso de que no se reúna ese número, podrá celebrarse la Asamblea General en el local señalado, en la siguiente media hora con cualquier número de miembros activos que concurran.

@@ -1,0 +1,1 @@
+Artículo 4º—El Colegio ejercerá sus funciones conforme la ley 7503, este Reglamento, y los reglamentos y códigos internos del Colegio, por medio de la Asamblea General, Junta Directiva y los órganos que una u otra establezcan.

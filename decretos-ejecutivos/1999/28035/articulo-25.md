@@ -1,0 +1,1 @@
+Artículo 25.—Para promover el interés por las especialidades, la Junta Directiva tomará en cuenta y recomendará el nombramiento de especialistas inscritos para efectos de concursos, delegados a congresos, conferencias de especialidad, comisiones de estudio especializado y peritazgos.

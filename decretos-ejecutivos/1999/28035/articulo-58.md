@@ -1,0 +1,1 @@
+Artículo 58.—Para que la Junta Directiva pueda sesionar se necesita que concurran al menos cuatro de sus integrantes. Todo acuerdo o resolución se tomará por simple mayoría de los miembros presentes. En caso de empate, el Presidente podrá ejercer doble voto.

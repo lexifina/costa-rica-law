@@ -1,0 +1,1 @@
+Artículo 130.—Las Agrupaciones Gremiales se reunirán en su propia Asamblea General cada febrero para elegir un año la mitad de los integrantes del Consejo Directivo, al siguiente la otra mitad y así sucesivamente.

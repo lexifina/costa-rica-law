@@ -1,0 +1,1 @@
+Artículo 56.—La Junta Directiva señalara día, hora y lugar para sesionar. Debe celebrar por lo menos dos sesiones al mes. La asistencia a las sesiones es obligatoria. En caso de fuerza mayor los directivos podrán justificar ausencias a una sesión en los cinco días hábiles posteriores a la misma.

@@ -1,0 +1,1 @@
+Artículo 126.—La constitución, modificación y disolución de las Agrupaciones Gremiales se hará mediante un acta. La autenticidad de las firmas las certificará el Presidente o Secretario de la Junta Directiva. El contenido del acta deberá transcribirse en el Libro de Registro de Agrupaciones Gremiales del Colegio.

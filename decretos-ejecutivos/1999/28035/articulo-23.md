@@ -1,0 +1,1 @@
+Artículo 23.—Quien ejerza la Profesión sin estar incorporado al Colegio de Físicos, será denunciado por el Colegio, ante las autoridades competentes, por infringir los Artículos correspondientes del Código Penal.

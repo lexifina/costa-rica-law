@@ -1,0 +1,1 @@
+Artículo 53.—Los acuerdos firmes de la Asamblea General que tengan un recurso de revisión no se ejecutarán hasta tanto no se hayan tomado la resolución definitiva, la cual da por agotada la vía administrativa. Ningún asunto podrá revisarse más de una vez.

@@ -1,0 +1,2 @@
+Artículo 39.—Se expedirá para cada ingreso de dinero un recibo y por cada egreso un comprobante de pago, que carecerá de eficacia si no llevan la firma de una persona autorizada por la Junta Directiva y el sello respectivo.
+Fondos donados al Colegio pero a nombre de un colegiado quien debe hacer la liquidación ante el Colegio y ante el donante, deben ser depositados en las cuentas del colegio como fondos restringidos, bajo un costo determinado por la Junta Directiva. Sobre dichos fondos autorizará los egresos el colegiado quien recibió la donación.

@@ -1,0 +1,1 @@
+Artículo 15.—Los miembros tienen derecho de examinar la contabilidad, archivos, libros de actas y todo asunto relacionado con el Colegio; mediante solicitud escrita que resolverá en un plazo no menor de diez días por el Director Ejecutivo o la Junta Directiva en ausencia del primero, deberá velarse por el correcto uso de los documentos examinados.

@@ -1,0 +1,1 @@
+Artículo 133.—Las Agrupaciones Gremiales podrán sesionar en las instalaciones del Colegio y utilizar las facilidades administrativas y el Boletín informativo del Colegio de acuerdo con los procedimientos establecidos por la Dirección Ejecutiva o la Junta Directiva.

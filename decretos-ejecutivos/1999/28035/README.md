@@ -14,3 +14,4 @@ Reglamento a la Ley Orgánica del Colegio de Físicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-17 | la propia norma |
+| 2 | 1999-08-17 | Ley 7 |

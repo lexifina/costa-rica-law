@@ -1,0 +1,1 @@
+Artículo 26.—Los miembros que estén estudiando para obtener un grado o especialidad, relevante para la Física, podrán solicitar a la Junta Directiva reducción en sus cuotas. Dicha reducción, de ser aceptada, se hará por periodo definido.

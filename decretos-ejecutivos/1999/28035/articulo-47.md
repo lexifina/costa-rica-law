@@ -1,0 +1,1 @@
+Artículo 47.—La Asamblea General se reunirá ordinariamente la segunda quincena de noviembre de cada año; en forma extraordinaria cuando lo soliciten por escrito a la Junta Directiva, no menos de quince Miembros Activos. También podrá ser convocada extraordinariamente por la Junta Directiva por iniciativa propia.

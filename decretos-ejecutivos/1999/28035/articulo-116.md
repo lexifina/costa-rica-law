@@ -1,0 +1,1 @@
+Artículo 116.—El Consejo Directivo estará formado por los siguientes cargos: Presidente, Secretario, Vocal, Tesorero y Fiscal; quienes durarán dos años en sus puestos. El quórum lo formarán dos de sus integrantes.

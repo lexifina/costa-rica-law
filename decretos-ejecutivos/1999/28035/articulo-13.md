@@ -1,0 +1,1 @@
+Artículo 13.—Todos los Miembros Activos tienen derecho de elegir y ser electos para los cargos de Junta Directiva. Para lo anterior deben cumplir con los requisitos que se determinan en este Reglamento y los Códigos y Reglamentos Internos correspondientes.

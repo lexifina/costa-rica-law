@@ -1,0 +1,1 @@
+Artículo 103.—La Junta Directiva queda autorizada para anular por justa causa, previa consulta con el Comité Consultivo y Tribunal de honor, la aprobación, inscripción y registro de las regencias y asesorías dados a uno de sus miembros.

@@ -1,0 +1,1 @@
+Artículo 44.—Todos los fondos se depositarán en cuentas corrientes o de ahorros del Colegio, en bancos estatales del Sistema Bancario Nacional, de donde para efectuar retiros se requieren siempre dos firmas, la del Tesorero, y, la del Presidente o en su defecto la del Vicepresidente.

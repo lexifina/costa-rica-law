@@ -1,0 +1,1 @@
+Artículo 94.—El Comité de Vigilancia debe vigilar y velar para que en los establecimientos citados en los Artículos 98 y 99 se cumpla lo estipulado en la Ley Orgánica, los Decretos Ejecutivos, los Reglamentos y Códigos Internos de la Física y sus especialidades.

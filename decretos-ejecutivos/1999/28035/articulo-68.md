@@ -1,0 +1,1 @@
+Artículo 68.—Durante la sesión ordinaria de la Asamblea General el Presidente del Tribunal Electoral dará a conocer el resultado de las elecciones y tomará juramento a los nuevos integrantes de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 87.—En los casos de presunta transgresión al Código de Etica la Junta Directiva por medio del Fiscal, referirá la información al Tribunal de Honor, órgano que dictaminará al respecto y luego procederá en la forma descrita en el Artículo anterior.

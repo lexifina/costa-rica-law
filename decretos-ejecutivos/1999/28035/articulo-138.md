@@ -1,0 +1,1 @@
+Artículo 138.—El Fondo será administrado por una Comisión Permanente, constituida por tres integrantes que durarán en sus cargos tres años. Los integrantes serán nombrados por la Asamblea General. La primera vez los integrantes se nombrarán: el primero por un año, el segundo por dos años y el tercero por tres años.

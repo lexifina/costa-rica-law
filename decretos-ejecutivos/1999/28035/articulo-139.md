@@ -1,0 +1,1 @@
+Artículo 139.—La Comisión Administradora del Fondo, de acuerdo con su Reglamento Interno, podrá otorgar préstamos personales a los miembros. Estos préstamos no pueden ser superiores al monto de la mutualidad que apruebe la Comisión Administradora del Fondo en el año de concretar la Operación.

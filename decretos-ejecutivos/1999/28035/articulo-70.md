@@ -1,0 +1,1 @@
+Artículo 70.—Podrá reelegirse para un mismo cargo de Junta Directiva, ejerciendo su cargo por un máximo de cuatro años; pudiendo optarse nuevamente por la misma posición después de transcurridos dos años fuera de la Junta Directiva.

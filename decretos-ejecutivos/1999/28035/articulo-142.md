@@ -1,0 +1,1 @@
+Artículo 142.—Los premios serán conferidos una vez cada dos años - en los años impares - pudiendo declararse desiertos. Se regirán por el Reglamento Interno que confeccionará el Tribunal de Honor y que aprobará la Asamblea General.

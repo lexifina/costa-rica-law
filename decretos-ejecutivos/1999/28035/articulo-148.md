@@ -1,0 +1,1 @@
+Artículo 148.—Se declara el siete de junio como el día del Físico Costarricense . La Junta Directiva deberá realizar lo necesario para que los miembros del Colegio rindan homenaje especial a su Profesión en este día.

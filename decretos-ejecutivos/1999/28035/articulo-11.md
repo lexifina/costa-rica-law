@@ -1,0 +1,1 @@
+Artículo 11.—Las funciones públicas y privadas para las cuales la legislación exige un título en Física o en alguna de sus especialidades, solo podrán ser desempeñadas por los miembros activos del Colegio, conforme con la ley 7503 y este Reglamento.

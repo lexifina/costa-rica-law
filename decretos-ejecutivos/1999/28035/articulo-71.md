@@ -1,0 +1,1 @@
+Artículo 71.—Los candidatos a Presidente y Vicepresidente necesitarán ser mayores de treinta años, haber recibido el título de Físico por lo menos cinco años antes de su designación y haber sido miembro del Colegio los últimos dos años antes de la elección. Todos los candidatos a cargos de Junta Directiva deben ser Miembros Activos.

@@ -1,0 +1,1 @@
+Artículo 102.—La Junta Directiva a través del Comité de Vigilancia, vigilará que las regencias y asesorías permanentes se brinden procurando la defensa de los intereses de la sociedad civil, de los consumidores, de la educación y de la salud pública.

@@ -1,0 +1,1 @@
+Artículo 131.—La integración del Consejo Directivo, será comunicada a la Junta Directiva en los treinta días naturales siguientes a su elección. De no haber comunicación se considerará disuelta la Agrupación Gremial.

@@ -1,0 +1,1 @@
+Artículo 118.—Las Filiales Regionales podrán acordar Cuotas Especiales para su beneficio que pagarán sus respectivos afiliados. Las Cuotas Especiales se regirán por las normas de los fondos del Colegio.

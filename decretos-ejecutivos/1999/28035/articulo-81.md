@@ -1,0 +1,1 @@
+Artículo 81.—Los integrantes del Tribunal de Honor durarán en sus cargos dos años. La Asamblea General, en su sesión anual ordinaria, nombrará un año dos integrantes y la siguiente los otros tres integrantes y así sucesivamente. La primera vez dos integrantes serán nombrados un año y tres integrantes dos años.

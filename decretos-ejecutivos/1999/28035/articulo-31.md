@@ -1,0 +1,3 @@
+Artículo 31.—Para los efectos de la aceptación de los requisitos se aclara lo siguiente:
+a. Los títulos, grados académicos y certificaciones de especialidad en el campo deberán ser otorgados por una de las instituciones de educación superior de Costa Rica, cualquier universidad o institución académica extranjera, reconocida por alguna de las mencionadas instituciones de educación superior de Costa Rica u otra que acepte la Comisión de Especialidades;
+b. La experiencia profesional adquirida , deberá ser comprobada, evaluada y verificada debidamente, por la Comisión de Especialidades quien también tendrá a su cargo la valoración de las publicaciones.

@@ -1,0 +1,1 @@
+Artículo 32.—Además de los atestados presentados ante la Dirección Ejecutiva, el aspirante al reconocimiento de la especialidad, deberá brindar una charla pública ante la Comisión de Especialidades sobre un tema de su especialidad.

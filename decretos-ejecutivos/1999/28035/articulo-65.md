@@ -1,0 +1,1 @@
+Artículo 65.—Corresponde exclusivamente al Tribunal Electoral, la organización, la dirección, la vigilancia, la aprobación de la propaganda y todo lo relacionado con el proceso de elección de la Junta Directiva.
