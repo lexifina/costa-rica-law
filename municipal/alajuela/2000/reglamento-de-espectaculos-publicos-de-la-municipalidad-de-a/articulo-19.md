@@ -1,0 +1,2 @@
+Artículo 19.—Incineración de entradas. Una vez verificados los boletos de entrada, corroboradas las declaraciones juradas y cancelado el impuesto respectivo, los Departamentos de Rentas y Patentes y Tesorería conjuntamente con la Auditoría Interna, procederán a la incineración de las entradas.
+Para ello se levantará un acta en la cual se indicará fecha, lugar y hora de la incineración, nombre del negocio y tipo de actividad, número y clasificación de las entradas incineradas, y número de la declaración del impuesto a que éstas se refieren.

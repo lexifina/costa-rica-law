@@ -1,0 +1,1 @@
+Artículo 7º—Exención. Se exceptúan del pago del impuesto, los espectáculos y actividades señaladas en el artículo 4º, cuando el producto íntegro se destine a fines escolares, de beneficencia, religiosos y sociales.

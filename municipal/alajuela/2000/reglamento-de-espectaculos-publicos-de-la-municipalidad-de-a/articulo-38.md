@@ -1,0 +1,1 @@
+Artículo 38.—Patentes temporales. Cuando los interesados en realizar eventos de esta naturaleza, requieran explotar patentes temporales, deberán realizar la solicitud formal para su otorgamiento ante el Concejo Municipal, en cuyo caso deberán cumplir con los requisitos que se exigen para cada tipo de patente.
