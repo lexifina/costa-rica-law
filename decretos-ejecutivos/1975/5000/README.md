@@ -21,3 +21,4 @@ Reglamento a la Ley de Protección al Consumidor
 | 8 | 1990-02-20 | Decreto Ejecutivo 19517 (1990-02-20) |
 | 9 | 1990-05-03 | Decreto Ejecutivo 19689 (1990-05-03) |
 | 10 | 1990-08-28 | Decreto Ejecutivo 19883 (1990-08-28) |
+| 11 | 1992-03-13 | Decreto Ejecutivo 21162 (1992-03-13) |

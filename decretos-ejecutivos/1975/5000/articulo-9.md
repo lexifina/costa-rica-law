@@ -1,1 +1,2 @@
-Artículo 9°-Para la fijación de precios al detallista, se-considerará la incidencia de los gastos de transporte hasta su respectiva localidad, para aquellos bienes cuyo precio no los tenga incluidos. La respectiva Dirección podrá revisar tales gastos y formular las denuncias pertinentes en caso de que fueren exagerados.
+Artículo 9º.- Para la fijación de precios y márgenes de utilidad en las diferentes etapas de comercialización, se considerará la incidencia de los gastos de transporte hasta su respectiva localidad para aquellos bienes cuyo precio no los tenga incluidos. La Dirección podrá revisar tales gastos y formular las denuncias pertinentes en caso de que fueren exagerados.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 21162 del 13 de marzo de 1992)
