@@ -1,0 +1,2 @@
+Artículo 4°—Sistema nacional de capacitación y formación profesional
+El sistema nacional de capacitación y formación profesional está constituido por las actividades de esta clase que realizan el INA directamente o por intermedio de terceros, así como las instituciones y empresas particulares de capacitación y formación profesional debidamente autorizadas, tengan o no fines de lucro. Es a la vez un subsistema educativo nacional.

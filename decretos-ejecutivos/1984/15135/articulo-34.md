@@ -1,0 +1,2 @@
+Artículo 34.—Participación de empleados y trabajadores
+Siempre que sea posible, se hará participar en la elaboración, aplicación y evaluación de las pruebas prácticas junto a técnicos del INA especializados en la ocupación que se vaya a certificar, a empleadores y trabajadores de notoria idoneidad, extraídos de listas presentadas por las organizaciones profesionales representativas de la actividad o por los respectivos comités de enlace.

@@ -1,0 +1,2 @@
+Artículo 7°—Asistencia técnica
+Se entiende por asistencia técnica, a los fines del inciso e) del artículo y de la Ley Orgánica, el suministro de información y documentación, la realización de investigaciones o estudios, la presentación de servicios de asesores, consultores, expertos y docentes, el préstamo o arriendo de instalaciones, equipos y materiales didácticos y toda otra acción análoga relacionada con la creación, estructuración y funcionamiento de servicios de capacitación y formación profesional e instituciones o empresas.

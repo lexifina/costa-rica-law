@@ -1,0 +1,3 @@
+Artículo 19.—Patronos del sector agropecuario
+Son los patronos particulares de explotaciones propiamente agrícolas o ganaderas en todas sus formas. Entiéndese que integran el sector, el cultivo del campo o huertas, el de árboles, arbustos y flores, la cría y reproducción de ganado, especies menores y aves, y toda otra actividad de similares características .
+No integran este sector, los patronos de establecimientos donde se industrialicen los productos de la actividad agropecuaria, cualquiera sea el lugar de su ubicación. En tales casos, el régimen de contribuciones será el común de los demás sectores económicos.

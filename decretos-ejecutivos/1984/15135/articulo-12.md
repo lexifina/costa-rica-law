@@ -1,0 +1,4 @@
+Artículo 12.—Nombramiento de los representantes del sector empresarial
+A los efectos del nombramiento de los representantes del sector empresarial, la Unión Nacional de Cámaras Empresariales presentará directamente al Consejo de Gobierno entre el 8 y el 15 de mayo del año en que deba hacerse la respectiva elección, la nómina de sus nueve candidatos, que será representativa de los tres sectores de la economía.
+El Consejo de Gobierno hará los nombramientos en la segunda quincena del mes de mayo indicado.
+En los casos de pérdida de la representación del sector, la comunicación de ese hecho debe ser acompañada por la presentación de una terna por cada representante que deba ser sustituido. En las demás situaciones de vacancia de representantes del sector empresarial durante el periodo para el que hayan sido elegidos, la Unión Nacional de Cámaras Empresariales presentará las respectivas ternas dentro de los siguientes diez días hábiles de haber sido avisadas.

@@ -1,0 +1,2 @@
+Artículo 3°—Capacitación y formación profesional
+A los efectos de la Ley Orgánica y del presente Reglamento, se entiende por capacitación y formación profesional un proceso permanente destinado a permitir a los individuos desarrollar aptitudes y adquirir o mejorar conocimientos y destrezas que los habiliten para participar en el mundo del trabajo de manera inteligente, comprendiendo el medio en que se desenvuelven e de manera inteligente, comprendiendo el medio en que se desenvuelven e integrándose en él.

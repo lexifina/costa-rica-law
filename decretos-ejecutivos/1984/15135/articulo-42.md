@@ -1,0 +1,2 @@
+II.— Representante del solidarismo
+Para el caso de que a la fecha en que deba hacerse el nombramiento del miembro del sector laboral correspondiente a las actividades solidaristas, no existiera ninguna organización suficientemente representativa del mismo, que tuviera personería jurídica, el Consejo de Gobierno nombrará a una persona de reconocida experiencia vinculada con el movimiento solidarista.

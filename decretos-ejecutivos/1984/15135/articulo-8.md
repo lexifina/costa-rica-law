@@ -1,0 +1,2 @@
+Artículo 8°—Empresas didácticas
+Las empresas didácticas son centros de capacitación y formación profesional que funcionan bajo la administración del INA como empresas comerciales en el área de actividad económica, con el objeto se permitir a los participantes el desarrollo de experiencias prácticas en un ambiente real de trabajo. La adquisición y venta de bienes y servicios de estos centros se considerará actividad ordinaria del INA y se regulará en el Reglamento Interno que al efecto dictará la Junta Directiva del INA.

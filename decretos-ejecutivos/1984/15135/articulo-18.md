@@ -1,0 +1,3 @@
+Artículo 18.—Trabajadores ocupados en forma permanente
+Para el cómputo a que se refiere el artículo anterior, se entiende por trabajadores ocupados en forma permanente, aquellas personas que presten servicios que constituyan una necesidad permanente de la empresa, independientemente de su propia duración o continuidad. Quedan, por consiguiente, únicamente excluidos de esta categoría, las personas que desempeñen tareas de corta duración que no forman parte de las actividades normales, constantes y uniformes de la empresa.
+Los trabajadores que las empresas o agencias de trabajo temporal ponen a disposición de otras empresas, se considerarán trabajadores permanentes de la empresa o agencia que los coloca.
