@@ -1,0 +1,1 @@
+Artículo 8°—Para el respaldo de estas obligaciones el Departamento de Riesgos del Trabajo mantendrá vigente una póliza de "Saldos Deudores" con el Departamento de Accidentes y Salud, con cargo al Régimen de Riesgos del Trabajo.

@@ -1,0 +1,1 @@
+Artículo 10.—No se podra gestionar ningún adelanto hasta tanto no se haya cancelado cualquier otro anterior. En casos excepcionales y muy calificados, previa autorización de la Junta Directiva, el Departamento de Riesgos del Trabajo podrá apartarse de esta norma.

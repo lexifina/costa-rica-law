@@ -1,0 +1,2 @@
+Articulo 9°—La propiedad que se adquiera o se construya utilizando este beneficio, no podrá venderse, traspasarse ni gravarse; para tales efectos se constituirá la escritura correspondiente que debe ser inscrita en el Registro de la Propiedad.
+Esta limitación no será de aplicación cuando la propiedad se adquiera bajo los términos del Convenio celebrado entre el Instituto y el Banco Hipotecario de la Vivienda, en cuyo caso, el inmueble podra gravarse a favor del BANHVI.
