@@ -1,0 +1,1 @@
+Art 2°.- Por ahora, y mientras se establece el Lazareto decretado por la ley de 21 de mayo de 830, se invertirán los productos de estos impuestos en proporcionar la subsistencia a los lazarinos de aquel distrito.
