@@ -15,3 +15,4 @@ Reglamento a la Ley Creación Timbre del Colegio de Contadores Privados de Costa
 | --- | --- | --- |
 | 1 | 2000-03-30 | la propia norma |
 | 2 | 2000-03-30 | Ley 7 |
+| 3 | 2001-01-28 | Reglamento 112 (2001-01-28) |
