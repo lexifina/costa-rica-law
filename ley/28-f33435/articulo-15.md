@@ -1,0 +1,1 @@
+Artículo 15. —Autorízase al Poder Ejecutivo para introducir en los departamentos y oficinas de su dependencia las modificaciones y supresiones que considere necesarias, dentro del límite del presente Presupuesto.
