@@ -1,1 +1,0 @@
-Artículo 177.-Si el delincuente reincidiere durante el término de la prescripción en curso, perderá todo el tiempo trascurrido hasta el día de la comisión del último hecho, y el plazo comenzará a correr nuevamente desde ese día.

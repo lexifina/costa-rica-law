@@ -1,1 +1,0 @@
-Artículo 6°-El fallo condenatorio ordenará necesariamente la inscripción del nombre del reo en el Registro General de Sospechosos; y, firme la sentencia, el juzgador enviará un resumen auténtico de ésta al Registro, el cual comprenderá todos los datos indicados en el artículo 33.

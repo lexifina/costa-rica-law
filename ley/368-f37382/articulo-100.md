@@ -1,1 +1,0 @@
-Artículo 100.-La libertad condicional será revocada cuando el penado reincidiere o violare sin razón suficiente cualquiera de las obligaciones que le impone el artículo anterior. En ese caso se hará efectivo el resto de la pena sin computar el tiempo de la libertad y no podrá el penado obtenerla nuevamente.

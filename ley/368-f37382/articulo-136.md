@@ -1,1 +1,0 @@
-Artículo 136.-EI que por título lucrativo participare de los efectos de un hecho punible, aunque éste no le sea imputable penalmente, estará obligado a reparar el daño hasta la cuantía en que hubiere participado.

@@ -1,1 +1,0 @@
-Artículo 246.-Cuando cualquiera de los delitos comprendidos en el artículo anterior estuviere calificado por alguna de las circunstancias enumeradas en el artículo 244, se aplicará la pena en este último caso establecida.

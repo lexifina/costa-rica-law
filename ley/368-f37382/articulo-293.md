@@ -1,2 +1,0 @@
-Artículo 293.- Las penas de la quiebra dolosa o culpable se aplicarán a los gerentes, administradores, directores o liquidadores de las sociedades mercantiles que hubieren sido declaradas en quiebra, así como a los tutores y curadores que ejerzan el comercio en nombre de menores o incapacitados, cuando personalmente hubieren ejecutado los actos a que se refieren los artículos anteriores.
-(Así reformado por el artículo 4 de la ley N° 4327 del 17 de febrero de 1969)

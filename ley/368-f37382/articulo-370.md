@@ -1,1 +1,0 @@
-Artículo 370.-Se aplicará inhabilitación para el ejercicio de cargos y oficios públicos de seis meses a un año, al funcionario público que admitiere dádivas que le fueren hechas en consideración a su cargo y para influir en sus determinaciones.

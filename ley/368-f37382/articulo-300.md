@@ -1,1 +1,0 @@
-Artículo 300.-Si el perturbador o despojador de la posesión hubiere obrado en virtud de título cuestionable o controvertido, la pena ordinaria, según las circunstancias, podrá rebajarse en un tercio, y si su título no fuere contestable, ni estuviere en litigio, hasta en dos tercios.

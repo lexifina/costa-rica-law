@@ -1,1 +1,0 @@
-Artículo 425.-Cuando el culpado de alguno de los delitos comprendidos en los artículos anteriores, fuere funcionario o empleado público y cometiere el hecho abusando de su cargo, se le impondrá, además, inhabilitación absoluta de dos a diez años.
