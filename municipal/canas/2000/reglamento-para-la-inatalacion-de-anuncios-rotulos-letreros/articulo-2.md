@@ -1,0 +1,1 @@
+Artículo 2º—Se considerará como anuncio o rótulo todo letrero, pintura impresa, dibujo y cualquier otro medio publicitario como pintar paredes, aceras etc. que se haga con el propósito de llamar la atención sobre un producto, servicio, recreación, profesión u ocupación que se ofrece, vende o lleve a cabo, o bien el que se encuentre sirviendo de localización o identificación.
