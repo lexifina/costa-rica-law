@@ -1,0 +1,1 @@
+Artículo 6°—De doce años será el plazo máximo para esta clase de préstamos. Estos se pagarán mediante el sistema de cuotas fijas mensuales y adelantadas, que comprendan amortización de capital e intereses al 6 % anual. No obstante, el interesado podrá hacer abonos a la deuda, o cancelarla totalmente, en cualquier fecha antes de su vencimiento.

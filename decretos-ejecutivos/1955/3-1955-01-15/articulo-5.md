@@ -1,0 +1,1 @@
+Artículo 5°—Los préstamos no podrán exceder de ¢ 10,000.00, debiendo garantizarse con hipoteca sobre cada inmueble. En ningún caso podrán exceder del 50 % del avalúo actual de la propiedad, dado por perito que designe el Instituto.

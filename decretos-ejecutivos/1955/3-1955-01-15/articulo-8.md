@@ -1,0 +1,2 @@
+Articulo 8°—Caso de no satisfacer el prestatario cualquiera de las estipulaciones consignadas en esta reglamentación en el contrato respectivo, el Instituto podrá dar por vencida y exigible la deuda, pudiendo en consecuencia proceder al cobro judicial de la misma con daños y perjuicios, si fuere del caso, sin necesidad de requerir al interesado.
+La falta de pago de una mensualidad vencida, constituye incumplimiento.

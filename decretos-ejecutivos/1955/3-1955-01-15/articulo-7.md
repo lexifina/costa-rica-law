@@ -1,0 +1,2 @@
+Artículo 7°—El contrato será otorgado ante el notario que designe el Instituto y .contendrá todas las cláusulas que indique la Gerencia. Este Reglamento se considerará incluido tácitamente en el contrato respectivo y aceptado por el peticionario.
+Si, en el transcurso de dos meses de concedido el préstamo por la Junta Directiva, el interesado no formalizare la operación ni diere comienzo a los trabajos, se tendrá por caduco el préstamo, sin responsabilidad alguna para el Instituto.

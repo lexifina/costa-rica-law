@@ -1,0 +1,1 @@
+Articulo 11.—En el otorgamiento de los préstamos, la Junta Directiva seleccionará las solicitudes tomando en cuenta la mayor necesidad social de los solicitantes y la más conveniente seguridad que ofrezcan para la atención regular de los pagos.
