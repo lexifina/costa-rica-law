@@ -1,0 +1,9 @@
+PARTE VI
+DISPOSICIONES TRANSITORIAS
+Artículo 65
+Disposiciones transitorias
+1.- Sin perjuicio de lo dispuesto en los párrafos 2, 3 y 4, ningún Miembro estará obligado a aplicar las disposiciones del presente Acuerdo antes del transcurso de un período general de un año contado desde la fecha de entrada en vigor del Acuerdo sobre la OMC.
+2.- Todo país en desarrollo Miembro tiene derecho a aplazar por un nuevo período de cuatro años la fecha de aplicación, que se establece en el párrafo 1, de las disposiciones del presente Acuerdo, con excepción de los artículos 3, 4 y 5.
+3.- Cualquier otro Miembro que se halle en proceso de transformación de una economía de planificación central en una economía de mercado y libre empresa y que realice una reforma estructural de su sistema de propiedad intelectual y se enfrente a problemas especiales en la preparación o aplicación de sus leyes y reglamentos de propiedad intelectual podrá también beneficiarse del período de aplazamiento previsto en el párrafo 2.
+4.- En la medida en que un país en desarrollo Miembro esté obligado por el presente Acuerdo a ampliar la protección mediante patentes de productos a sectores de tecnología que no gozaban de tal protección en su territorio en la fecha general de aplicación del presente Acuerdo para ese Miembro, según se establece en el párrafo 2, podrá aplazar la aplicación a esos sectores de tecnología de las disposiciones en materia de patentes de productos de la sección 5 de la Parte II por un período adicional de cinco años.
+5.- Todo Miembro que se valga de un período transitorio al amparo de lo dispuesto en los párrafos 1, 2, 3 ó 4 se asegurará de que las modificaciones que introduzca en sus leyes, reglamentos o prácticas durante ese período no hagan que disminuya el grado de compatibilidad de estos con las disposiciones del presente Acuerdo.

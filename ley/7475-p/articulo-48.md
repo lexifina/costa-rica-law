@@ -1,0 +1,4 @@
+Artículo 48
+Indemnización al demandado
+1.- Las autoridades judiciales estarán facultadas para ordenar a una parte a cuya instancia se hayan adoptado medidas y que haya abusado del procedimiento de observancia que indemnice adecuadamente a la parte a que se haya impuesto indebidamente una obligación o una restricción, por el daño sufrido a causa de tal abuso. Las autoridades judiciales estarán asimismo facultadas para ordenar al demandante que pague los gastos del demandado, que pueden incluir los honorarios de los abogados que sean procedentes.
+2.- En relación con la administración de cualquier legislación relativa a la protección o a la observancia de los derechos de propiedad intelectual, los Miembros eximirán tanto a las autoridades como a los funcionarios públicos de las responsabilidades que darían lugar a medidas correctoras adecuadas sólo en el caso de actuaciones llevadas a cabo o proyectadas de buena fe para la administración de dicha legislación.

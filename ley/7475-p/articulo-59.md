@@ -1,0 +1,3 @@
+Artículo 59
+Recursos
+Sin perjuicio de las demás acciones que correspondan al titular del derecho y a reserva del derecho del demandado a apelar ante una autoridad judicial, las autoridades competentes estarán facultadas para ordenar la destrucción o eliminación de las mercancías infractoras de conformidad con los principios establecidos en el artículo 46. En cuanto a las mercancías de marca de fábrica o de comercio falsificadas, las autoridades no permitirán, salvo en circunstancias excepcionales, que las mercancías infractoras se reexporten en el mismo estado ni las someterán a un procedimiento aduanero distinto.

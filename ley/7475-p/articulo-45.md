@@ -1,0 +1,4 @@
+Artículo 45
+Perjuicios
+1.- Las autoridades judiciales estarán facultadas para ordenar al infractor que pague al titular del derecho un resarcimiento adecuado para compensar el daño que este haya sufrido debido a una infracción de su derecho de propiedad intelectual, causada por un infractor que, sabiéndolo o teniendo motivos razonables para saberlo, haya desarrollado una actividad infractora.
+2.- Las autoridades judiciales estarán asimismo facultadas para ordenar al infractor que pague los gastos del titular del derecho, que pueden incluir los honorarios de los abogados que sean procedentes. Cuando así proceda, los Miembros podrán facultar a las autoridades judiciales para que concedan reparación por concepto de beneficios y/o resarcimiento por perjuicios reconocidos previamente, aun cuando el infractor, no sabiéndolo o no teniendo motivos razonables para saberlo, haya desarrollado una actividad infractora.

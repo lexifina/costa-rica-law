@@ -1,0 +1,6 @@
+Artículo 4
+Trato de la nación más favorecida Con respecto a la protección de la propiedad intelectual, toda ventaja, favor, privilegio o inmunidad que conceda un Miembro a los nacionales de cualquier otro país se otorgará inmediatamente y sin condiciones a los nacionales de todos los demás Miembros. Quedan exentos de esta obligación toda ventaja, favor, privilegio o inmunidad concedidos por un Miembro que:
+a) se deriven de acuerdos internacionales sobre asistencia judicial o sobre observancia de la ley de carácter general y no limitados específicamente a la protección de la propiedad intelectual;
+b) se hayan otorgado de conformidad con las disposiciones del Convenio de Berna (1971) o de la Convención de Roma que autorizan que el trato concedido no esté en función del trato nacional sino del trato dado en otro país;
+c) se refieran a los derechos de los artistas intérpretes o ejecutantes, los productores de fonogramas y los organismos de radiodifusión, que no estén previstos en el presente Acuerdo;
+d) se deriven de acuerdos internacionales relativos a la protección de la propiedad intelectual que hayan entrado en vigor antes de la entrada en vigor del Acuerdo sobre la OMC, a condición de que esos acuerdos se notifiquen al Consejo de los ADPIC y no constituyan una discriminación arbitraria o injustificable contra los nacionales de otros Miembros.

@@ -1,0 +1,5 @@
+SECCION 4: DIBUJOS Y MODELOS INDUSTRIALES
+Artículo 25
+Condiciones para la protección
+1.- Los Miembros establecerán la protección de los dibujos y modelos industriales creados independientemente que sean nuevos u originales. Los Miembros podrán establecer que los dibujos y modelos no son nuevos u originales si no difieren en medida significativa de dibujos o modelos conocidos o de combinaciones de características de dibujos o modelos conocidos. Los Miembros podrán establecer que esa protección no se extenderá a los dibujos y modelos dictados esencialmente por consideraciones técnicas o funcionales.
+2.- Cada Miembro se asegurará de que las prescripciones que hayan de cumplirse para conseguir la protección de los dibujos o modelos textiles -particularmente en lo que se refiere a costo, examen y publicación- no dificulten injustificablemente las posibilidades de búsqueda y obtención de esa protección. Los Miembros tendrán libertad para cumplir esta obligación mediante la legislación sobre dibujos o modelos industriales o mediante la legislación sobre el derecho de autor.
