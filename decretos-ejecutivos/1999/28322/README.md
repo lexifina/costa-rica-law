@@ -14,3 +14,4 @@ Crea Premio Nacional de Cultura Popular Tradicional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-12-21 | la propia norma |
+| 2 | 2002-10-29 | Decreto Ejecutivo 30872 (2002-10-29) |
