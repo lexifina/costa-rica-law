@@ -14,3 +14,4 @@ Modifica a la Ley de Presupuesto Ordinario y Extraordinario para el ejercicio ec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-10 | la propia norma |
+| 2 | 2001-11-19 | Decreto Ejecutivo 29992 (2001-11-19) |
