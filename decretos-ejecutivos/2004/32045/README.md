@@ -14,3 +14,4 @@ Reforma al Procedimiento Especial para el Ingreso y Permanencia en el País de E
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-13 | la propia norma |
+| 2 | 2005-02-23 | Decreto Ejecutivo 32304 (2005-02-23) |
