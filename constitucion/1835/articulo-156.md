@@ -1,0 +1,1 @@
+Artículo 156.- Ninguno debe usurpar el nombre de pueblo soberano usando del derecho de petición, ni arrogarse este título empleando la fuerza, ya sea para resistir el cumplimiento de las leyes o para innovar lo que ellas establecen.

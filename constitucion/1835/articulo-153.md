@@ -1,0 +1,1 @@
+Artículo 153.- En el caso del artículo anterior, las autoridades de un estado violentamente constituidas serán desconocidas por las autoridades federales, y por los demás estados de la unión, todos los cuales procederán desde luego a restablecer en dicho estado el orden constitucional.

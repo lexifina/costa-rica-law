@@ -1,0 +1,1 @@
+Artículo 58.- Abrirán y cerrarán sus sesiones a un mismo tiempo: ninguna de ellas podrá suspenderlas ni prorrogarlas mas de tres días sin la sanción de la otra; ni trasladarse a otro lugar sin el convenio de ambas.

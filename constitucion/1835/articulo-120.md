@@ -1,0 +1,1 @@
+Artículo 120.- Podrá separar libremente y sin necesidad de instrucción de la causa a los secretarios del despacho-trasladar con arreglo a las leyes a todos los funcionarios del poder ejecutivo federal-suspenderlos por seis meses-removerlos con pruebas justificativas de ineptitud, desobediencia o malversación.

@@ -1,0 +1,1 @@
+Artículo 125.- Podrá devolver a las cámaras dentro de diez días los proyectos de ley u orden que le pasen aprobados, si a su juicio tuviere inconvenientes su ejecución, o fuese perjudiciales, puntualizando las razones en que se funde su opinión.

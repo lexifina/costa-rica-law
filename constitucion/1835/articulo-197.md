@@ -1,0 +1,1 @@
+Artículo 197.- Cuando la reforma o adición se versare sobre algún punto que altere en lo esencial la forma de gobierno adoptada, la cámara de representantes, después de la aceptación de los estados convocará una Asamblea constituyente para que definitivamente resuelva.

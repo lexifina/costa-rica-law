@@ -1,0 +1,1 @@
+Artículo 93.- Reconsiderado el proyecto en esta ultima cámara se podrá ratificar por dos tercios de votos; en este caso se pasará a la otra cámara que, tomándolo de nuevo en consideración, lo podrá también ratificar con los mismos dos tercios pasándolo al Ejecutivo para que lo publique como ley.

@@ -1,0 +1,1 @@
+Artículo 51.- Los ciudadanos que hayan servido por el término constitucional cualquier destino electivo en la federación, no serán obligados a continuar en el mismo, ni admitir otro diverso, sin que haya transcurrido el intervalo de un año.

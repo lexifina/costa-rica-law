@@ -1,0 +1,1 @@
+Artículo 192.- Todo proyecto de ley sobre formación de nuevo estado debe ser propuesto a la cámara de representantes por la mayoría de los diputados de los pueblos que han de formarlo, y apoyado en los precisos datos de tener una población de cien mil o más habitantes, y de que el estado de que se separa queda con igual población, y en capacidad de subsistir.

@@ -1,0 +1,1 @@
+Artículo 45.- Siempre que resulte mayoría absoluta de votos la elección está hecha. Si esta mayoría la obtuvieren dos, o tres individuos se declarará popularmente electo el que reúna más numero, y en caso de empate decidirá la Cámara de Representantes sin intervención del Senado que se retirará al efecto.

@@ -1,0 +1,1 @@
+Artículo 143.- Conocerá originalmente con arreglo a las leyes en las causas civiles de los ministros diplomáticos y cónsules; y en las criminales de todos los funcionarios en que declare el senado según el artículo 86, facultad 3, haber lugar a la formación de causa.

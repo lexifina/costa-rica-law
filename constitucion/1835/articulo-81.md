@@ -1,0 +1,1 @@
+Artículo 81.- Presidirá el senado el Vice-presidente de la República, no tendrá voto sino en caso de empate. En falta del Vice-presidente nombrará el Senado entre sus miembros al que le haya de sustituir. También nombrará de su seno al secretario, o secretarios que su reglamento establezca.

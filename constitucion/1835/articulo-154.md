@@ -1,0 +1,1 @@
+Artículo 154.- Es nula de derecho toda resolución, acuerdo o decreto de los poderes nacionales y de los estados en que intervinieren coacción ocasionada por la fuerza pública, o por el pueblo en tumulto.

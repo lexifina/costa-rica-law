@@ -1,0 +1,1 @@
+Artículo 122.- Dará a las cámaras los informes que le pidieren y cuando sean sobre asuntos de reserva, lo expondrá así para que le dispensen de manifestación, o se la exijan si el caso lo requiere. Mas no estará obligado a manifestar los planes de guerra ni las negociaciones de alta política pendientes con las potencias extranjeras.

@@ -1,0 +1,1 @@
+Artículo 88.- Los representantes y senadores en su respectiva cámara y los secretarios del despacho a nombre del Gobierno en cualquiera de ellas, tienen facultad de proponer los proyectos de ley u orden que juzguen convenientes; pero los senadores y los secretarios del despacho no podrán presentar proyectos o hacer proposición sobre contribuciones o impuesto de ninguna clase.

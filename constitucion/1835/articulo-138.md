@@ -1,0 +1,1 @@
+Artículo 138.- Para ser individuo de la Suprema Corte se requiere ser-americano de origen con siete años de residencia no interrumpida e inmediata a la elección-ciudadano en el ejercicio de sus derechos-del estado seglar-y mayor de treinta años.

@@ -1,0 +1,1 @@
+Artículo 94.- Si un proyecto no fuese admitido a discusión, o si en cualquiera de los trámites anteriores fuese reprobado o negada su ratificación por alguna de las cámaras, no tendrá efecto alguno ni podrá volver a tratarse en ellas sino hasta el año siguiente.

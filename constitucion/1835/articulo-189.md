@@ -1,0 +1,1 @@
+Artículo 189.- Esta Constitución, y las leyes federales que se hagan en virtud de ella y todos los tratados hechos que se hicieren bajo la autoridad federal, serán la suprema ley de la república, y los jueces en cada uno de los estados están obligados a determinar por ellas, no obstante cualesquiera leyes, decretos u ordenes que haya en contrario en cualquiera de los estados.

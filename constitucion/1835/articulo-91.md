@@ -1,0 +1,1 @@
+Artículo 91.- Discutido y aprobado un proyecto en una cámara se pasará a la otra para que examinándolo en la propia forma lo apruebe o deseche. Si se aprueba se pasará al poder ejecutivo para que, si no tuviese objeciones que hacerle, lo publique como ley.

@@ -1,0 +1,1 @@
+Artículo 165.- Todo preso debe ser interrogado dentro de cuarenta y ocho horas; y el juez está obligado a decretar la libertad o permanencia en la prisión dentro de los veinte y cuatro siguientes, según el mérito de lo actuado.

@@ -1,0 +1,1 @@
+Artículo 80.- Para ser Senador se requiere naturaleza en la República, tener treinta años cumplidos-haber sido siete ciudadano-estar en actual ejercicio de sus derechos-y poseer un capital libre de tres mil pesos o tener alguna renta u oficio que produzca trescientos pesos anuales.

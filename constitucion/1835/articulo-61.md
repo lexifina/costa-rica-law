@@ -1,0 +1,1 @@
+Artículo 61.- En ningún tiempo ni con motivo alguno los Representantes y Senadores pueden ser responsables por proposición, discurso o debate en las cámaras o fuera de ellas sobre asuntos relativos a su destino. Y durante los meses de sesiones y uno después no podrán ser demandados civilmente ni ejecutados por deudas.

@@ -1,0 +1,1 @@
+Artículo 48.- En caso de que algún ciudadano obtenga dos o más elecciones para un mismo destino, preferirá la que se haya efectuado por mayor número de votos, y siendo estos iguales se determinará por la voluntad del electo.

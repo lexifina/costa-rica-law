@@ -1,0 +1,1 @@
+Artículo 76.- El Senado actual se renovará en su totalidad, haciendo antes la calificación de los nuevamente electos. La suerte designará los que deban renovarse en cada estado, el primero, segundo y tercer años.

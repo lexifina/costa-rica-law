@@ -1,0 +1,1 @@
+Artículo 27.- Los recursos sobre nulidad de elecciones de las juntas populares serán definitivamente resueltos en las de distrito. Las Cámaras que verifican las elecciones deciden de las calidades de los últimos electos cuando sean tachados, y de los reclamos sobre nulidad en los actos de las juntas de distrito.
