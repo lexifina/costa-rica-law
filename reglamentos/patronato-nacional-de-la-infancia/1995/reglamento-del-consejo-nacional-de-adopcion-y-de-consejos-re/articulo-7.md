@@ -1,0 +1,1 @@
+Artículo 7°— El Consejo Nacional tendrá como Presidente a un miembro de la Junta Directiva y un Secretario que será elegido entre los demás integrantes del Consejo y que durará en su cargo un año, pudiendo ser reelecto.

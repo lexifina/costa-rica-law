@@ -1,0 +1,1 @@
+Artículo 28.— En lo no previsto en este Reglamento, se estará a lo que indiquen el interés superior y el bienestar integral de los niños, niñas y adolescentes; la Ley Orgánica del Patronato y demás normativa vigente relativa a esta materia.

@@ -1,0 +1,1 @@
+Artículo 13.— Los Consejos Regionales tendrán un Presidente y un Secretario. El Presidente será el Representante Legal del Patronato. El Secretario será elegido entre los demás integrantes del Consejo.

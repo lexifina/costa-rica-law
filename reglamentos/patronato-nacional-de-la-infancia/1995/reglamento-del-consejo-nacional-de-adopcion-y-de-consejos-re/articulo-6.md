@@ -1,0 +1,2 @@
+Artículo 6°— Los representantes de la sociedad civil serán designados por la Junta Directiva mediante ternas presentadas por las organizaciones sociales cuyo fin sea velar por la protección y atención de la niñez.
+Asimismo, para el conocimiento de cada caso, se convocará un profesional o particular que represente los intereses del niño(a). El nmbramiento de los nuevo miembros deberá hacerse por lo menos con treinta días de antelación al vencimiento del periodo respectivo. El Consejo Nacional dará aviso oportuno acerca de lo vencimientos que corresponden.

@@ -1,0 +1,1 @@
+Artículo 19. —Para cumplir con sus fines y realizar las funciones encomendadas, del Consejo Nacional contará con una oficina técnica interdisciplinaria, la cual se denominará Secretaría Técnica y dependerá administrativamente de la Dirección Ejecutiva. Cada Consejo Regional contará a su vez con un órgano auxiliar que se denominará Secretaría Técnica Regional.

@@ -1,0 +1,1 @@
+Artículo 26.— En casos especiales a juicio del Consejo o a solicitud de quien tenga interés legítimo y directo, podrán ser oídas en audiencia las personas interesadas y otros funcionarios o profesionales especializados.

@@ -1,0 +1,1 @@
+Artículo 11.— En aquellas regiones en que el Patronato no cuente con funcionarios especializados en las dos áreas técnicas, la Junta Directiva solicitará su designación a las instituciones del Sector Social y de Salud, con asiento en la región correspondiente.
