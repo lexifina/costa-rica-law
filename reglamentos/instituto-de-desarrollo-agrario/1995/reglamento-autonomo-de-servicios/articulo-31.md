@@ -1,0 +1,1 @@
+Artículo 31.—Del Abandono del Trabajo: Se considera abandono del trabajo, el dejar, en jornadas estipuladas en este Reglamento y en el Convenio Colectivo, la labor objeto del contrato. Para efectos de calificar el abandono, no es necesario que el trabajador salga del local en donde presta sus servicios, basta que de modo evidente deje de realizar la labor que le ha sido confiada.

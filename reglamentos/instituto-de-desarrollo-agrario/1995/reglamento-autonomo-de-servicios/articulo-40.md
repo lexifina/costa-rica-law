@@ -1,0 +1,1 @@
+Artículo 40.—Revaloraciones Generales: Los funcionarios del IDA disfrutarán en los mismos términos y condiciones de las revaloraciones salariales generales, y de las otras ventajas de carácter económico que se acuerden para los funcionarios de la Administración Pública.

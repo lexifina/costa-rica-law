@@ -1,0 +1,1 @@
+Articulo 18.—Procedimiento Ordinario: Las destituciones, suspensiones y las modificaciones graves a la relación de servicio, impuestas unilateralmente y de carácter individual, deberán seguir el procedimiento que señala el Reglamento Autónomo de Procedimientos y el Convenio Colectivo y tienden a garantizar el debido proceso y el derecho de defensa del funcionario.

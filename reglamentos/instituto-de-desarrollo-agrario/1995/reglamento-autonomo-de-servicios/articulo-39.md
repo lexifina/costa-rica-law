@@ -1,0 +1,1 @@
+Artículo 39.—A juicio de la Dirección que corresponda y con intervención del Jefe de Departamento, podrán justificarse las ausencias por enfermedad, con la presentación de un certificado médico extendido por un médico particular y siempre que aquellas no excedan de 4 días.

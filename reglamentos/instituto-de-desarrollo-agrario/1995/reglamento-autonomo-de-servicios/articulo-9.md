@@ -1,0 +1,2 @@
+DE LA RELACIÓN DE SERVICIO
+Articulo 9°—Manual de Puestos y Escala de Salarios: Todos los puestos desempeñados por los funcionarios del IDA deberán estar comprendidos dentro de un Manual Descriptivo de Puestos, el cual será necesariamente complementado con una escala de salarios. Dichos instrumentos serán promulgados por la Junta Directiva del ÍDA, la que respetará los lineamientos que en la materia dicte la Autoridad Presupuestaria.

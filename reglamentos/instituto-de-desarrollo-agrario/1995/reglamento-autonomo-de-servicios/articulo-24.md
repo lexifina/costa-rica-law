@@ -1,0 +1,1 @@
+Articulo 24.—De las Incapacidades: Las incapacidades para trabajar por enfermedad, maternidad, o riesgo profesional, salvo dispuesto por el articulo 39, serán reconocidas si son certificadas por un médico de la Caja Costarricense de Seguro Social o del Instituto Nacional de Seguros.

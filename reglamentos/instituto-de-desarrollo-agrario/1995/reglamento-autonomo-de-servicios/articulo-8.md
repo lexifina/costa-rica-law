@@ -1,0 +1,1 @@
+Artículo 8°—Impugnación de Decisiones: Las decisiones del Presidente Ejecutivo en la administración de personal tienen recurso de revocatoria y apelación para ante la Junta Directiva , debiendo interponerse dentro del tercer día. Lo resuelto por el citado Órgano Colegiado agota la vía administrativa.

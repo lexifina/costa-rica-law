@@ -1,0 +1,1 @@
+Artículo 10.—Requisitos de Ingreso: Además de los requisitos que exige el Manual Descriptivo de Puestos, para ingresar como servidor del IDA, se necesitará haber cumplido 18 años y demostrar buena conducta anterior.

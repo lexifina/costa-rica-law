@@ -1,0 +1,7 @@
+Articulo 19.—Prestaciones Legales: Se aplica lo dispuesto por el articulo 37 del Convenio.
+"37. El IDA pagará por concepto de Auxilio de Cesantía a cualquier trabajador que cese en sus funciones por cualquier motivo no imputable a él y en contratos a tiempo indefinido, la indemnización correspondiente será conforme a las siguientes reglas:
+37.1. Después de un trabajo continuo no menor de tres meses ni mayor de seis meses, un importe igual a diez días de salario.
+37.2. Después de un trabajo continúo mayor de seis meses pero menor de un año con un importe igual a veinte días de salario.
+37.3. Después de un trabajo continúo de un año con un importe igual a un mes de salario por cada año de trabajo o fracción no menor de seis meses, hasta un máximo de diez meses de salario.
+El cálculo de salario se hará sobre el promedio de salario devengado por el trabajador en los seis meses de labor anterior a la cesación en el trabajo."
+Los servidores de confianza que fueren cesados sin justa causa, después de tres meses de nombramiento, tendrán derecho a las prestaciones legales correspondientes. Los funcionarios nombrados a plazo determinado que hayan laborado por más de un año por esa sola circunstancia no tendrán derecho a que la Institución los ubique en una plaza permanente o de tiempo indefinido. pero sí tendrán derecho al pago del correspondiente auxilio de cesantía, no así al del preaviso.

@@ -1,0 +1,1 @@
+Artículo 32.—El abandono injustificado del trabajo, cuando no implique falta grave a las obligaciones que le impuso su contrato de trabajo, será sancionado con amonestación escrita la primera vez, con suspensión del trabajo por 8 días la segunda vez, y con despido la tercera vez.

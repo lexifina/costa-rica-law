@@ -1,0 +1,4 @@
+Artículo 13.—Concursos: Se aplicará lo dispuesto por el artículo 33 del Convenio Colectivo.
+"33.1. El IDA sacará a concurso interno las plazas vacantes (con excepción de las de Director), de acuerdo a lo dispuesto en el Manual de Puestos en vigencia. En caso de no concursar por lo menos dos trabajadores del IDA, deberá declararse desierto el concurso interno procediendo el concurso externo. De persistir la situación de inopia, el Instituto podrá nombrar funcionarios afines a la formación, responsabilidad o funciones que el puesto demanda.
+33.2. El Departamento de Recursos Humanos del IDA dará a conocer el resultado final del proceso de selección mediante circular.
+Contra la resolución de nombramiento procederá el recurso de revisión ante la Presidencia Ejecutiva , el que deberá interponer el interesado dentro de los cinco días siguientes a la fecha en que se comunique el resultado final."

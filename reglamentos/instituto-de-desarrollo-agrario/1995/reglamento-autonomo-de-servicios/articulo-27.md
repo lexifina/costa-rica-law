@@ -1,0 +1,1 @@
+Artículo 27.—Adelanto, Acumulación y Fraccionamiento de Vacaciones: El adelanto de vacaciones podrá otorgarse solo en la medida en que proporcionalmente se haya adquirido el derecho. El período de vacaciones solo podrá ser acumulado y fraccionado por una vez.

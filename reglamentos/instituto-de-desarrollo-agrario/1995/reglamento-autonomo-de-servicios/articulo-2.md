@@ -1,0 +1,1 @@
+Artículo 2°—Naturaleza de la Relación de Servicio: La relación de servicio de los funcionarios con el IDA se regirá por el presente Reglamento y por lo dispuesto en el Convenio Colectivo. Dicha relación se considerará para todo efecto como de derecho público.
