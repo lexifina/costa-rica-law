@@ -1,0 +1,1 @@
+Artículo 47.—La CPOL en su primera sesión de su seno nombrará un presidente y un secretario; fijará el lugar de reuniones y su modo de operación y adoptará sucesivamente todas las disposiciones y reglamentaciones que considere necesarias para su funcionamiento.

@@ -1,0 +1,2 @@
+Artículo 71.—El tribunal procederá en lo que sea aplicable conforme lo dispuesto en los artículos 395 a 404 y 418 a 424 del Código de Procedimientos Civiles, con exclusión de lo dispuesto en el artículo 403 y en el párrafo segundo del artículo 424.
+Se aplicarán igualmente al procedimiento del tribunal las disposiciones de los artículos 74 a 80 párrafo primero del Reglamento del Estatuto de Servicio Civil.

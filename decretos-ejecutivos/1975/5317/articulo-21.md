@@ -1,0 +1,1 @@
+Artículo 21.—En las instituciones que cuenten con más de un laboratorio el traslado entre plazas existentes en sus laboratorios se hará mediante concurso interno entre los MQC de la institución, siguiendo las mismas pautas generales establecidas en este Reglamento en materia de concursos.

@@ -1,0 +1,2 @@
+Artículo 59.—Para dar cumplimiento a lo establecido por el artículo 11 del ESTATUTO, todo lo concerniente a regímenes especiales, recargos, bonificaciones por peligro, zonajes y otros conceptos, así como lo correspondiente a licencias por enfermedad y las condiciones en que podrán concederse auxilios de sueldos a los MQC, será objeto de reglamentación especial por parte del Poder Ejecutivo oyendo el parecer del COLEGIO.
+Tal reglamentación cuando se emita pasará a ser parte integrante del presente reglamento.

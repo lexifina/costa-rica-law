@@ -1,0 +1,2 @@
+Artículo 8°—Los interesados en participar en los concursos deberán presentar todos sus atestados y exámenes en el lugar y plazo fijados en el aviso. No se recibirán documentos ni exámenes después de los plazos estipulados en los avisos, pero en caso de haberse remitido los atestados por correo, valdrá la hora y fecha de su depósito en la oficina de correos a cuyo efecto esa remisión deberá hacerse por certificado.
+El plazo para recibir atestados y exámenes será de treinta días a partir de la publicación del aviso.

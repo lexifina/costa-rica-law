@@ -1,0 +1,1 @@
+Artículo 3°—No interrumpirán la continuidad de los servicios y contratos laborales las licencias para adiestramiento patrocinadas o autorizadas por la institución o empresa en que trabaje el profesional amparado por este reglamento. Los regímenes de aumento de sueldo y los beneficios derivados de las leyes laborales y especiales subsistirán durante esas licencias.

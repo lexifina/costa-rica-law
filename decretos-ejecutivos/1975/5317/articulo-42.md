@@ -1,0 +1,1 @@
+Artículo 42.—Cuando no hubiere Comisión Técnica General, las funciones señaladas en el artículo anterior estarán a cargo de la Comisión Técnica de Microbiología y Química Clínica de cada laboratorio, en Io que proceda.

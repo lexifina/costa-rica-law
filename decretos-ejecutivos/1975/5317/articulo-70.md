@@ -1,0 +1,4 @@
+Artículo 70.—Los árbitros serán nombrados por períodos anuales pudiendo ser reelectos indefinidamente y serán juramentados ante el Presidente de la Corte Suprema de Justicia. Una vez realizada la juramentación quedará instalado el tribunal, que se reunirá cada vez que su presidente lo convoque para conocer de un conflicto.
+En caso de ausencia o impedimento del delegado propietario del COLEGIO, presidirá su suplente. En ausencia o impedimento de los dos, presidirá el árbitro que los demás miembros, propietarios y suplentes, designen por mayoría.
+Las ausencias temporales de los miembros propietarios serán cubiertas por los respectivos suplentes.
+En caso de renuncia o separación definitiva de uno de los miembros se nombrará un nuevo árbitro que fungirá hasta la terminación del período para el cual había sido nombrado el miembro a quien sustituye. Estos nombramientos se harán conforme a lo estipulado en el artículo 68 de este reglamento.

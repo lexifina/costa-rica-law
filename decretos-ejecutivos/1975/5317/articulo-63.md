@@ -1,0 +1,1 @@
+Artículo 63.—Los laboratorios de toda clase de establecimientos hospitalarios deberán establecer guardias diurnas y nocturnas con el número adecuado de MQC, acatando todas las disposiciones vigentes al respecto.

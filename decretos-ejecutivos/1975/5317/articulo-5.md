@@ -1,0 +1,1 @@
+Artículo 5°—Para poder ser admitido a concurso, el candidato debe tener como mínimo la categoría de MQC exigida para el puesto, de acuerdo con lo establecido en el artículo 29 de este mismo reglamento.

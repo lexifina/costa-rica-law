@@ -1,0 +1,1 @@
+Artículo 72.—En lo relativo a impedimentos, recusaciones y excusas de los árbitros se aplicara lo dispuesto en el Titulo IX de la Ley Orgánica del Poder Judicial en lo conducente. Si quedare incompleto el tribunal por estas razones, se proveerán nuevos nombramientos para el caso concreto en la misma forma dispuesta para los nombramientos originales.
