@@ -1,2 +1,0 @@
-Artículo 39.- Los jefes Políticos y Agentes de Policía, son auxiliares de los funcionarios del Patronato, y deberán prestar la colaboración necesaria para que sus investigaciones, estudios, resoluciones y actuaciones se ejecuten de inmediato.
-NOTA: La cita de Jefes Políticos y Agentes de Policía, debe entenderse referida a los actuales Delegados Cantonales y Delegados Distritales de la Guardia de Asistencia Rural. Nota: Ver Transitorio lX de la Ley Orgánica de dicha Guardia, Nº 4639 de 15 de setiembre de 1970, adicionado por la Nº 4766 de 9 de junio de 1971.

@@ -1,1 +1,0 @@
-Artículo 33.- El Representante Legal deberá proponer al Director Ejecutivo, el nombramiento de los empleados de su jurisdicción, por medio de ternas. También presentará al Director Ejecutivo los presupuestos ordinarios y extraordinarios que sean necesarios para la buena marcha de su sección.
