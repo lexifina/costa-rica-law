@@ -1,0 +1,1 @@
+Art. 107. Eu cuanto á la responsabilidad que a dichos Jueces resulte, ya sea por culpa, ya por delito cometido en el ejercicio de sus funciones, así como también por lo que toca á la autoridad que en tales casos deba juzgárseles, se estará en un todo a lo dispuesto por las leyes.

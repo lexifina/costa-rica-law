@@ -1,0 +1,1 @@
+Art. 39. El servicio de las Tesorerías generales lo prestará una persona sola de nombramiento de las Municipalidades, amovible a voluntad de estas. Tal empleado asegurará su responsabilidad, confianza á satisfacción del Cuerpo, é hipoteca también, á satisfacción, de valor de dos mil pesos, propia del Tesorero de su fiador.

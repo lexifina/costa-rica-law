@@ -1,0 +1,1 @@
+Art. 36. No se extraerá cantidad alguna de las rentas de propios, de las de enseñanza ó de las de policía, si no es para los gastos que en sesión acuerde la Municipalidad, y la orden de pago será autorizada por el Presidente y Secretario, con inserción del acuerdo que la haya motivado.

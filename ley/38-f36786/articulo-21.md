@@ -1,0 +1,1 @@
+Art. 21. Los empleados municipales durarán en el ejercicio de su destino el término de dos años, debiendo renovarse la mitad de ellos. La suerte designará en el primer año los que deben dejar su asiento.

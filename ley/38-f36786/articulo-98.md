@@ -1,0 +1,1 @@
+Art 98° Corresponde a los Jefes Políticos el cumplimiento de las leyes de Policía en el respectivo Cantón de su mando, ocurriendo en casos arduos o dudosos al Gobernador de la Provincia, para que este resuelva lo conveniente.

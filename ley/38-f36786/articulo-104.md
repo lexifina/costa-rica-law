@@ -1,0 +1,1 @@
+Art 104° En todo lo concerniente a la seguridad del Distrito y de su régimen, político y económico, están subordinadas al Juez de Paz, los Comisarios de que habla la sección siguiente, sin que esto afecte en nada la obediencia que dichos Comisarios deben a sus superiores.
