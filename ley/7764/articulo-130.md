@@ -1,0 +1,4 @@
+ARTÍCULO 130.- Procedimiento
+Las actuaciones de los notarios serán extraprotocolares. Se exceptúan los actos o contratos que, como consecuencia de los asuntos sometidos a su conocimiento, deban documentarse en esa forma para hacerse valer en las oficinas públicas; además lo que disponga en contrario este código o cualquier otra ley.
+Para el trámite de los asuntos, las actuaciones notariales se ajustarán a los procedimientos y las disposiciones previstas en la legislación.
+La intervención del notario deberá ser requerida en forma personal y esta gestión se hará constar en un acta, con la que se iniciará el expediente respectivo. Otras intervenciones podrán realizarse por escrito; pero, el notario será siempre responsable de la autenticidad de toda actuación o presentación que se formule ante él.

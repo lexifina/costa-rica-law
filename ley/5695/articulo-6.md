@@ -1,5 +1,6 @@
 Artículo 6º.- Habrá un Director General, de quien dependerán jerárquicamente, para efectos administrativos, los directores de las diversas dependencias integradas del Registro Nacional.
-El Director General deberá ser abogado, debidamente incorporado al Colegio, y notario público con experiencia no menor de cinco años en notariado o en materia registral y en administración pública.
+El Director General deberá ser licenciado en Derecho y notario público, incorporado al Colegio de Abogados de Costa Rica y por lo menos con cinco años de ejercicio profesional.
+(Así reformado el párrafo anterior por el artículo 173 del Código Notarial, N° 7764 del 17 de abril de 1998)
 El Director General del Registro Nacional será nombrado por el Poder Ejecutivo, escogido de una terna que al efecto elaborará la Junta Administrativa.
 Al Director General corresponderá:
 1) Ejercer la labor de funcionarios ejecutivos de la Junta, en cuyas sesiones tendrá voz pero carecerá de voto.

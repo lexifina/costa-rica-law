@@ -1,0 +1,6 @@
+ARTÍCULO 84.- Representaciones
+Cuando el compareciente actúe en nombre de otra persona, física o jurídica, deberá indicarse a quién representa, con expresión del nombre y los apellidos de esta, así como las calidades referidas en el artículo anterior y, en su caso, la clase y el número, si lo tuviere, del documento de identificación o el nombre, el domicilio y la dirección exactos de la persona representada.
+El notario público dará fe de la personería vigente con vista del documento donde conste, mencionando el funcionario que la autoriza y la fecha; además, dejará agregado el poder original en su archivo de referencias. Cuando la personería conste en registros públicos, indicará la personería vigente con vista del registro respectivo. De comprobarse que la personería indicada no está vigente, se cancelará el asiento de presentación.
+Si intervinieren entidades de derecho público, el notario deberá dar fe con vista del acuerdo o aviso publicado en La Gaceta.
+Tratándose de menores costarricenses, el notario público deberá dar fe de la representación respectiva con vista de las citas de inscripción del nacimiento en el Registro Civil.
+Cuando un acto o contrato se realice por medio del apoderado, el notario deberá consignar las referencias del instrumento donde consta dicho poder.

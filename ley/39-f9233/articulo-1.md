@@ -1,4 +1,6 @@
+(Derogado)
 N° 39
+(Esta norma fue derogada por el artículo 190 del Código Notarial, N° 7764 del 17 de abril de 1998.)
 El Congreso Constitucional de la República de Costa Rica
 DECRETA:
 La siguiente

@@ -1,0 +1,2 @@
+ARTÍCULO 50.- Razón inicial
+En la primera página de cada tomo del protocolo, se consignará una razón donde consten el número del tomo, los folios que contiene, su estado, la fecha y el nombre del notario público o, en su caso, el del funcionario consular. El funcionario que autoriza el uso del protocolo y el notario o funcionario que lo recibe firmarán la razón. Esta suscripción hace presumir absolutamente que el tomo se recibe con sus hojas completas, limpias y en buen estado.

@@ -1,0 +1,3 @@
+ARTÍCULO 60.- Custodia definitiva de los protocolos
+Corresponde al Archivo Notarial la custodia de los tomos de protocolos, los cuales no podrán salir de esta dependencia, salvo por orden de los tribunales de justicia o la Dirección Nacional de Notariado. En estos casos, deberán ser devueltos al Archivo Notarial en un plazo máximo de tres meses. Vencido ese término sin haber sido devueltos, el Archivo Notarial informará la situación a la Corte Suprema de Justicia para lo procedente.
+Asimismo, para conservar los tomos en condiciones óptimas, la Junta Administrativa del Archivo Nacional cobrará, por la encuadernación y cualquier otro medio de protección, la suma que considere conveniente.

@@ -1,0 +1,2 @@
+ARTÍCULO 16.- Responsabilidad Civil.
+La indemnización por los daños y perjuicios ocasionados por la actuación del notario público a los otorgantes, partes o terceros, será cubierta una vez que lo establezca una resolución judicial firme, dictada en la jurisdicción común o la vía disciplinaria. Para indemnizar, se hará efectiva la garantía rendida, sin perjuicio de la responsabilidad personal del notario por cualquier saldo en descubierto.
