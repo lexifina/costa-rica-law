@@ -1,0 +1,2 @@
+Art. 5°_-Senálanse las doce del día de mañana, para recibir a los nombrados el juramento de ley.
+AL PODER EJECUTIVO, -Dado en el Salón de Sesiones. -Palacio Nacional, en San José, á diez de octubre de mil ochocientos ochenta y uno.-BRUNO CARRANZA, Presidente. JESUS SOLANO, Secretario; Por tanto: ejecútese. -Palacio Presidencial. - San José, a diez de octubre de mil ochocientos ochenta y uno. –SALVADOR LARA. –El Secretario de Estado en el Despacho de Gracia y Justicia-MANUEL ARGÜELLO.
