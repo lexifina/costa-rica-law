@@ -1,0 +1,1 @@
+Artículo 2º—Los plazos y términos establecidos en el presente manual son de acatamiento obligatorio, y se entenderá que todos ellos corren en días hábiles. Todo incumplimiento debe ser debidamente justificado ante la Dirección General del Registro Nacional, y quedar documentado en el expediente del procedimiento administrativo correspondiente.

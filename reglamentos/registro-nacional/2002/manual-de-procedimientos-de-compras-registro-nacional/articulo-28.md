@@ -1,0 +1,1 @@
+Artículo 28.—Las contrataciones relativas a servicios técnico y/o profesionales se formalizarán mediante contrato legal firmado entre las partes, el cual se tramitará ante el Departamento de Asesoría Jurídica, esto con independencia del monto de la contratación; salvo en aquellos casos que, a criterio de la Proveeduría no resulte indispensable por la naturaleza del objeto.

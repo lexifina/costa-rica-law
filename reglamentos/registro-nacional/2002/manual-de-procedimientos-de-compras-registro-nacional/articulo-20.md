@@ -1,0 +1,1 @@
+Artículo 20.—En general a toda la contratación que lleve a cabo la Junta deberá designársele un Órgano Fiscalizador que será el responsable de la buena marcha y ejecución de los contratos, caso contrario se procederá a la apertura del expediente disciplinario administrativo correspondiente.

@@ -1,0 +1,1 @@
+Artículo 37.—Para iniciar el trámite de pago, el proveedor (empresa) deberá presentar a la bodega de ingreso la factura original de la orden de compra, la cual contará con el Recibido Conforme del lugar de ingreso.

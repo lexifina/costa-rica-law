@@ -1,0 +1,2 @@
+Artículo 13.—Todos los Proveedores incluidos en el Registro de Proveedores, están en la obligación de comunicar a la Proveeduría los cambios que se produzcan tales como: sustitución del apoderado legal, cambio de dirección, teléfono, fax de la empresa, o cambios en la línea comercial e inclusión de nuevos materiales, suministros o servicios.
+Asimismo al menos una vez al año deberán actualizar la información que consta en el expediente del Registro de Proveedores.

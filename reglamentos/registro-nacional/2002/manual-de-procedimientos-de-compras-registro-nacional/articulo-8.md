@@ -1,0 +1,1 @@
+Artículo 8º—Cualquier modificación al programa de Adquisiciones deberá ser autorizado por acuerdo de la Junta Administrativa, debiendo proceder la Proveeduría a la publicación de la modificación en el Diario Oficial La Gaceta.

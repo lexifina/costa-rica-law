@@ -1,0 +1,1 @@
+Artículo 4º—Compete y es responsabilidad del Jefe de la Bodega Central de la Proveeduría y de cualquier otra unidad que se creare dependiente de ésta, para la custodia de los activos y suministros adquiridos por la Junta, la recepción, custodia, despacho y distribución de los bienes que se encuentren en la misma.

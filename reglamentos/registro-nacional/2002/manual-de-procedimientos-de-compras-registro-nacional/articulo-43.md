@@ -1,0 +1,1 @@
+Artículo 43.—El funcionario que esté a cargo de la bodega será el responsable de las existencias en el Almacén. Velará para que en ningún momento ingresen o tengan acceso otros funcionarios del Registro Nacional, proveedores o personas ajenas a la institución.
