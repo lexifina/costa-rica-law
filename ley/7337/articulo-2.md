@@ -18,3 +18,5 @@ considerarán como variación al tipo penal, a los efectos del artículo
 13 del Código Penal y 490, inciso 4) del Código de Procedimientos
 Penales, excepto en los casos pendientes a la entrada en vigencia de
 la presente Ley, en los que no haya recaído sentencia firme.
+(NOTA: ver observaciones de la ley sobre el monto ACTUALIZADO del
+salario base).
