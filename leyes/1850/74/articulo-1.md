@@ -1,0 +1,6 @@
+DECRETO LXXIV.
+Determina el modo de practicar el valuo de las tierras baldias que se denuncien. (1)
+(1) Véase el cap. 10. Secc. 1* del Reglamento de Hacienda n° 2 de 30 de julio de 1858 y la ley n° 13 de 24 de julio de 1860.
+"Juan Rafael Mora Presidente de la República de Costa Rica.
+Teniendo en consideración: que las empresas de agricultura y ganadería en el país, aumentan diariamente la composicion de los baldíos sin que el tesoro nacional reporte la utilidad que ha tenido en mira la ley miéntras que los empresarios sacan inmensas ventajas de la compra de dichos baldios: que en tal concepto la basa que para su valuacion fijó el artículo 4° de la ley n° 24 de 3l de agosto de 1812, es no solo módica sinó ínfima; y que los peritos al ejecutar su oficio, no examinan la calidad de la tierra sino que, cualquiera que esta sea, fijan siempre el precio por la basa. Para prevenir este abuso y evitar ei perjuicio que por él sufre el erario público, en uso de las facultades concedidas al Supremo Poder Ejecutivo, decreto:
+Art 1° La Intendencia mandará se valuen por peritos imparciales de nombramiento del Fiscal de Hacienda los terrenos denunciados y medidos para su composicion, tomando para ello la basa de cincuenta pesos por cada caballeria, en inteligencia que las buenas calidades de tierra aumentará el valor de dicha basa.

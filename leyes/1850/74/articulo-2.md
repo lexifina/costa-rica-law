@@ -1,0 +1,1 @@
+Art. 2. Queda así reformado el articulo 4° citado de la ley n° 21 de 31 de agosto de 1842. -Dado en la ciudad de San José a los nueve dias del mes de abril de mil ochocientos cincuenta. -Juan Rafael Mora,- El Ministro de Relaciones encargado accidentalmente del Despacho de Hacienda y Guerra, Joaquin Bernardo Calvo.
