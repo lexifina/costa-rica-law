@@ -31,11 +31,14 @@ A.3) Cabida familiar estimada | | 12
 Puntaje = 0,15 x (cabida familiar) | |
 B.- Criterios Técnicos | | 30
 B.1) Capacidad de uso | | 25
-tierras Clase I a III | 25 |
-tierras Clase IV | 12 |
-tierras Clase V | 8 |
-tierras Clase VI | 4 |
-tierras Clases VII y VIII | 0 |
+Tierra Clase I | 25 |
+Tierra Clase II | 23 |
+Tierra Clase III | 20 |
+Tierra Clase IV | 15 |
+Tierra Clase V | 8 |
+Tierra Clase VI | 5 |
+Tierra Clase VII | 2 |
+Tierra Clase VIII y más (Así reformado el inciso anterior mediante sesión N° 66 del 22 de agosto de 1989). | 0 |
 B 2) Disponibilidad de aguas: | |
 Superficiales | | 5
 Todo el año. Buena distribución y acceso | 5 |
