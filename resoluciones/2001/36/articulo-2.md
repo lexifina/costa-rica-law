@@ -1,0 +1,6 @@
+Artículo 2º. Rige a partir de su publicación
+ATINENCIAS POR PROCESOS
+DIRECCIÓN GENERAL
+OBJETIVO GENERAL: Dirigir coordinar y orientar a nivel superior todas las acciones encaminadas a poner a disposición de la Sociedad el conocimiento adquirido por medio de las diversas acciones institucionales, sobre el patrimonio cultural y natural costarricense, a fin de fortalecer las identidades culturales del país:
+PROCESOS | OBJETIVOS ESPECIFICOS | CLASE INSTITUCIONAL | CARGOS | ATINENCIAS | ENFASIS
+Dirección, supervisión y control superior de todos los procesos del Museo Nacional de C.R. | ·Dirigir y supervisar a nivel superior los procesos de: Difusión del conocimiento sobre el patrimonio cultural y natural costarricense Rescate, 7conservación y defensa del patrimonio cultural y natural de costa Rica Investigación orientada al conocimiento sobre el patrimonio cultural y natural Establecimiento de un sistema administrativo moderno y en constante actualización. | Director del Museo Nacional Profesional del Museo Nacional 2 ·Asistente Administ. del Museo Nacional Grupo C | Director General Profesional Licenciado en Derecho Asistente de Gestión Administrativa | HistoriaAntropología Biología Museografía Administración de Empresas Administración de Negocios Derecho Secretariado | Todos los énfasis
