@@ -16,3 +16,4 @@ Normativa Contable para Puestos de Bolsa, Sociedades Administradoras de Fondos d
 | 1 | 2000-01-01 | la propia norma |
 | 2 | 2000-08-24 | Acuerdo 38 (2000-08-24) |
 | 3 | 2002-02-11 | Acuerdo 54 (2002-02-11) |
+| 4 | 2002-06-24 | Acuerdo 63 (2002-06-24) |
