@@ -1,0 +1,1 @@
+Artículos 19.-A más tardar veintidós días después de efectuada la actividad deberán los organizadores rendir ante la Municipalidad informe económico global que contengan los ingresos y egresos de la actividad.

@@ -1,0 +1,1 @@
+Artículo 7°-La Comisión de fiestas o los organizadores del evento taurino deberán tener por lo menos dos toreros o vaqueteros de reconocida experiencia en esa materia a fin de proteger al montador y a los toreros improvisados. Deberán certificar ante el Concejo su nombre completo y calidades.

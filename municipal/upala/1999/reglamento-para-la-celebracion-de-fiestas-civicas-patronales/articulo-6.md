@@ -1,0 +1,1 @@
+Artículo 6°-La comisión de fiestas o los organizadores del evento taurino deberán tener por lo menos un par de espuelas de reglamento disponibles y una desmochadora, y así lo deberán certificar a este Concejo.

@@ -1,0 +1,1 @@
+Artículo 8°-La Guardia de Asistencia Rural o Civil tendrá la obligación de prestar toda la colaboración a la Comisión de Fiestas para la vigilancia y aplicación del reglamento en las actividades taurinas.

@@ -1,0 +1,1 @@
+Artículo 20.-Sobre las ganancias que generó la actividad deberán los organizadores pagar en la Tesorería Municipal por concepto de Espectáculos Públicos un 5% (cinco por ciento); no podrá la Municipalidad exonerar de esta obligación a ningún organizador.

@@ -1,0 +1,1 @@
+Artículo 21.-0eberán certificar los organizadores del evento, una vez que hayan cumplido todos los requisitos, que cualquier situación que se presente durante los eventos establecidos en la actividad y que genere daños a terceros, será de su exclusiva responsabilidad, comprometiéndose a resarce.r los daños a terceros.

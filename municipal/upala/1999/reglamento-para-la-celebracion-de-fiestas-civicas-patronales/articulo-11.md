@@ -1,0 +1,1 @@
+Artículo 11.-En cualquier momento la Municipalidad podrá prohibir la explotación de cualquier establecimiento, si recibiere quejas fundamentadas de los vecinos por actos que atenten contra la moral pública y las buenas costumbres; por exceso de ruido o por irrespeto de los horarios establecidos en el artículo anterior.
