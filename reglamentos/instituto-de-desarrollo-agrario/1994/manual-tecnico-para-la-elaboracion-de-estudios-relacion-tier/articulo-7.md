@@ -1,0 +1,1 @@
+Artículo VII—El funcionario encargado del estudio, podrá efectuar una reunión con los representantes de los agricultores; a efecto de explicarles el procedimiento utilizado para la determinación del tamaño de la unidad de producción, así como para conocer la experiencia agrícola y pecuaria de los mismos y las expectativas que tienen hacia futuro.

@@ -1,0 +1,2 @@
+Artículo X.—El profesional encargado del estudio, deberá analizar diferentes modelos o combinaciones de áreas para las distintas actividades, hasta encontrar aquella que permita un ingreso total (ingreso neto más jornales ganados) igual o mayor que el ingreso meta establecido.
+La estructura de costos y rendimientos para cada actividad serán los utilizados por el Sistema Bancario Nacional para el otorgamiento de créditos, o en su defecto los preparados por la Dirección Regional de la zona o por la Caja Agraria del Instituto.

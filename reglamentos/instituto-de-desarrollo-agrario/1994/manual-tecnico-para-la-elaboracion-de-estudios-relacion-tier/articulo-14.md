@@ -1,0 +1,2 @@
+Artículo XIV.—El funcionario responsable del estudio deberá presentar el informe al Jefe de la Sección Estudios Agroeconómicos, quién lo revisa, lo aprueba con su firma y envía copia del informe final a la Sección Topografía , Departamento Formación de Asentamientos y a la Dirección Técnica , para que ésta ultima lo eleve a conocimiento de Junta Directiva.
+Si el estudio se elabora en una Oficina Subregional, el informe debe ser aprobado y firmado por el Director Regional, enviando copias a las instancias anteriormente indicadas para continuar con los trámites subsiguientes.
