@@ -1,0 +1,1 @@
+Artículo 7º—Curaduría de las obras. Seleccionado el expositor la Comisión Curatorial del Teatro Nacional, realizará visitas al taller del artista, con la finalidad de llevar a cabo la selección de las obras a exponer.

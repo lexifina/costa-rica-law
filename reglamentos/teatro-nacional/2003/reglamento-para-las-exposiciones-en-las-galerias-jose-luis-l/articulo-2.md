@@ -1,0 +1,1 @@
+Artículo 2º—Sujetos. Podrán acceder al espacio de las galerías del Teatro Nacional, cualquier persona o grupo artístico con conocimientos o experiencia en cualquier área de las artes visuales, interesado en mostrar su obra o propuesta artística, previo cumplimiento de los requisitos establecidos en este Reglamento.

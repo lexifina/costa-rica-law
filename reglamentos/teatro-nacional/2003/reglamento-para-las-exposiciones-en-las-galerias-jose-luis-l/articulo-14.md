@@ -1,0 +1,1 @@
+Artículo 14.—Beneficios. Las galerías del Teatro Nacional se encuentran ubicadas en el centro de San José, tienen una trayectoria de exposiciones reconocidas y cuentan con instalaciones adecuadas bajo el amparo de la Institución.

@@ -1,0 +1,1 @@
+Artículo 6º—Comisión Curatorial. La Comisión Curatorial del Teatro Nacional recibirá las solicitudes de las propuestas artísticas, y verificará la información suministrada, además de las fechas disponibles en las galerías según corresponda.

@@ -1,0 +1,1 @@
+Artículo 8º—Informe. La Comisión Curatorial del Teatro Nacional rendirá un informe para conocimiento del Consejo Directivo, donde indican las solicitudes aceptadas o no aceptadas, con su opinión y el Consejo Directivo tomará la decisión.

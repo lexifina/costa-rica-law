@@ -1,0 +1,1 @@
+Artículo 5º—Período. La Dirección del Teatro Nacional, recibirá solicitudes para el préstamo del los espacios señalados, en el período indicado en la solicitud de exposición, que se entregará en la recepción del Teatro.

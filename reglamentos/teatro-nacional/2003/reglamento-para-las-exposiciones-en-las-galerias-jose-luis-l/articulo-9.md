@@ -1,0 +1,1 @@
+Artículo 9º—Comunicación. Una vez seleccionados los expositores, la Dirección General del Teatro Nacional llevará a cabo la comunicación de la selección a los interesados. Igual comunicación deberá hacerse a los solicitantes no seleccionados.
