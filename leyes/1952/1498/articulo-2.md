@@ -1,0 +1,1 @@
+Artículo 2°.- El producto del empréstito se usará en las siguientes obras: Instalación de luz eléctrica con la planta recientemente adquirida por esa municipalidad, reparación de las calles que conducen al lado en que se ubicará la Unidad Sanitaria; y reparación de cañería del distrito del centro.
