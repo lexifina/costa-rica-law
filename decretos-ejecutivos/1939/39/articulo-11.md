@@ -1,0 +1,1 @@
+Artículo 11.—La persona que resulte nombrada para Tesorero del distrito, no podrá tomar posesión del cargo sin rendir previamente la garantía de ley consistente en póliza de fidelidad del Banco Nacional de Seguros en un tanto equivalente al 25 % del monto de los ingresos alcanzados durante el año anterior.

@@ -1,0 +1,1 @@
+Artículo 15.—Instalado el Concejo de Distrito, su Presidente lo comunicará así, por medio del Jefe Político, a la Municipalidad respectiva, para que ésta dentro de los quince días siguientes, a más tardar, haga entrega a la nueva Corporación de los fondos pertenecientes al distrito autónomo.

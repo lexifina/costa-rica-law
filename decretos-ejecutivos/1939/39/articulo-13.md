@@ -1,0 +1,1 @@
+Artículo 13.—La visación, glosa y aprobación definitiva de las cuentas de las tesorerías de los distritos que se administren de acuerdo con la ley que reglamenta este decreto, corresponde a la Inspección de Hacienda Municipal, en concordancia con la número 178 de 16 de agosto de 1938.

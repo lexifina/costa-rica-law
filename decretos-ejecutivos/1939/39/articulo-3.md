@@ -1,0 +1,3 @@
+Artículo 3°—Nombrados el Presidente y el Vicepresidente, los concejales procederán seguidamente a elegir, de fuera de su seno, un Secretario-Contador, y señalar el local, los días y horas para sus sesiones ordinarias, que como mínimum se fijan en dos mensuales.
+El Agente Principal de Policía levantará una acta de la instalación y de los acuerdos tomados, la que firmará con los concejales y Síndico Municipal quien ha de ser convocado para que concurra al acto. La inasistencia de este funcionario no motivará nulidad de lo actuado.
+Copia del acta se enviará a la Secretaría de Gobernación para ser publicada en el Diario Oficial.
