@@ -27,7 +27,7 @@ la renta bruta para determinar la renta líquida, en realidad gran parte
 del aguinaldo viene a ser un ingreso menor del Estado.
 Por tanto,
 DECRETA:
-Artículo 1º.- Todo patrono particular está obligado a conceder a sus
+ARTÍCULO 1º.- Todo patrono particular está obligado a conceder a sus
 trabajadores, de cualquier clase que sean y cualquiera que sea la forma en
 que desempeñen sus labores y en que se les pague el salario, un beneficio
 económico anual equivalente a un mes de salario.
