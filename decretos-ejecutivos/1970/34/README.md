@@ -13,3 +13,4 @@ Fija Precios Máximos Venta Consumidor Leche
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-03-01 | la propia norma |
+| 2 | 1970-03-01 | Decreto Ejecutivo 1295 (1970-10-08) |
