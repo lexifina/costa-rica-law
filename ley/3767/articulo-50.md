@@ -1,0 +1,7 @@
+ARTICULO 50
+Franquicia aduanera y exención de inspección aduanera
+1. El Estado receptor permitirá, con arreglo a las leyes y reglamentos que promulgue, la entrada, con excención de todos los derechos de aduana, impuestos y gravámenes conexos, salvo los gastos de almacenaje, acarreo y servicios análogos, de los objetos destinados:
+a) Al uso oficial de la oficina consular; y
+b) Al uso personal del funcionario consular y de los miembros de su familia que vivan en su casa, incluidos los efectos destinados a su instalación. Los artículos de consumo no deberán exceder de las cantidades que esas personas necesiten para su consumo directo..
+2. Los empleados consulares gozarán de los privilegios y exenciones previstos en el párrafo 1 de este artículo, en relación con los objetos importados al efectuar su primera instalación.
+3. El equipaje personal que lleven consigo los funcionarios consulares y los miembro de su familia que vivan en su casa estará exento de inspección aduanera. Sólo se lo podrá inspeccionar cuando haya motivos fundados para suponer que contiene objetos diferentes de los indicados en el apartado b) del párrafo 1 de este artículo, o cuya importación o exportación esté prohibida por las leyes y reglamentos del Estado receptor, o que estén sujetos a medidas de cuarentena por parte del mismo Estado. Esta inspección sólo podrá efectuarse en presencia del funcionario consular o del miembro de su familia interesado.
