@@ -1,0 +1,1 @@
+Artículo 4°—Cada nueva licencia que otorgue el Ministerio será publicada en "La Gaceta". También se publicarán las licencias que han sido suprimidas o suspendidas. Cada año se publicará una lista completa de las mantequillas con licencia.

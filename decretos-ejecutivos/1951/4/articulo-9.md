@@ -1,0 +1,1 @@
+Artículo 9°—Sólo se permitirá el expendio de mantequilla con licencia del Ministerio de Salubridad. Los expendedores o productores que contravengan esta disposición serán sancionados conforme a lo que establece el Código Sanitario.

@@ -1,0 +1,2 @@
+Artículo 11.—Los derechos para la obtención de licencia, deberán pagarse en el Banco Central y el recibo correspondiente será presentado a la Sección de Control de Alimentos. Los derechos serán de veinticinco colones; de lo cual el 10 %, pasará al Colegio de Químicos.
+Transitorio.—Las licencias otorgadas con anterioridad por la Sección de Control de Alimentos, gozarán de un plazo de tres meses para ajustarse al presente Reglamento.

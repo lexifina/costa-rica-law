@@ -1,0 +1,1 @@
+Artículo 7°—Todos los recipientes o utensilios usados en la fabricación, manejo, empaque, almacenamiento o transporte de la mantequilla o la crema serán adecuados, de ese sólo' uso y se mantendrán escrupulosamente limpios.

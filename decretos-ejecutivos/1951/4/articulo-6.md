@@ -1,0 +1,1 @@
+Artículo 6°—Cada fábrica de mantequilla contará con el equipo necesario para efectuar sanitariamente todas las operaciones que se requieren para elaborar, manipular, empacar, etc., la mantequilla. Queda terminantemente prohibido manipular la crema o la mantequilla directamente con las manos.

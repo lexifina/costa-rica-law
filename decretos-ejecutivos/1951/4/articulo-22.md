@@ -1,0 +1,1 @@
+Artículo 22.—Queda permitida la producción de margarina, para lo cual se seguirán los mismos trámites que especifica el artículo 1° y se observarán las mismas disposiciones sanitarias y administrativas que establece este Reglamento para la mantequilla. Ningún productor de mantequilla lo será a la vez de margarina.

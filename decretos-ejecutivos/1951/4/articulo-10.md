@@ -1,0 +1,1 @@
+Artículo 10.—Las licencias serán concedidas por el término de un año, debiendo renovarse al finalizar el período y se otorgarán siempre que el historial, que de cada marca llevará la Sección de Control de Alimentos, acredite dicha renovación.

@@ -1,0 +1,1 @@
+Artículo 16.—Se tolerará en las mantequillas la adición de las siguientes materias colorantes: achiote (annato) puro, los amarillos permitidos por el Reglamento respectivo o los colorantes que vendidos bajo una denominación especial tengan licencia del Ministerio.

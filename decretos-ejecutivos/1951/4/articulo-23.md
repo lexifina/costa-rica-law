@@ -1,0 +1,1 @@
+Artículo 23.—Con el nombre de grasas para pasteles o grasas para pastelería, se aceptan grasas blancas, semejantes a las margarinas y a la mantequilla, que no deben ser vendidas al público, directamente cómo substitutos de esos productos y que se destinan exclusivamente para confeccionar o adornar productos de pastelería o de repostería.

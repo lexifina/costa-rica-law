@@ -1,0 +1,1 @@
+Artículo 13.—Se entenderá por mantequilla la grasa proveniente del batido de leche de vaca o de su grasa; la que provenga de otros mamíferos deberá llevar la especificación del nombre de la especie animal que la produzca.
