@@ -31,3 +31,5 @@ Provincia de Alajuela: San Carlos, Los Chiles, Guatuso, Upala, Distrito de Sarap
 Provincia de Heredia: Cantón de Sarapiquí.
 (Así reformado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 18423 del 20 de julio de 1988).
 (Así reformado mediante el artículo 1° del decreto ejecutivo N° 16068 del 15 de febrero de 1985).
+VII) Región Provincia de Heredia:
+(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 21349 del 10 de junio de 1992, se modifica la actual regionalización incorporando una nueva región constituida por la provincia de Heredia, artículo 2° establece que el cantón de Sarapiquí de la provincia de Heredia forma parte del esquema de regionalización de esa provincia, artículo 3° crea el Concejo Provincial de Heredia, artículo 8° crea la Secretaría Ejecutiva del Concejo Provincial y artículo 10 crea el Comité Consultivo).
