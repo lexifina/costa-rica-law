@@ -1,0 +1,9 @@
+Articulo 5°—Si se van a efectuar ventas de licores, solicitar además de la patente temporal de licores:
+a. Indicar el nombre completo, calidades y lugar para escuchar notificaciones dentro del perímetro administrativo de la persona jurídica, con una certificación de la personería jurídica actualizada; que pretenda explotar la patente y una declaración jurada de que no está en los supuestos del artículo 19 de la Ley de Licores y su Reglamento.
+b. En ningún caso se permitirá que se instale venta de licores en casas de habitación. Los puestos deberán ser ubicados únicamente en el área donde se celebren eventos, debiendo contar con medidas de salubridad propias y adecuadas.
+c. El expendio de licores deberá darse dentro del horario autorizado expresamente, el cual estará comprendido de conformidad a la Ley N ° 7633 y su Reglamento.
+d. Visto bueno de la autoridad policial.
+e. En lugares autorizados para el funcionamiento de patentes temporales de licores, será absolutamente prohibido la venta de licores a menores de edad, lo mismo que su permanencia.
+f. La Municipalidad de Palmares suspende o cancela en cualquier momento y sin responsabilidad de ningún tipo (penal ni civil); las patentes temporales de licores, cuando en el local autorizado o sus alrededores se produzcan escándalos o alteraciones al orden público cuando se violen las disposiciones de este Reglamento, la Ley de Licores y su Reglamento, la Ley de Regulación de Horarios de Funcionamiento en Expendios de Bebidas Alcohólicas y otras similares a la materia, independientemente de las penas que pudiere imponer la autoridad judicial correspondiente y la Comisión de Fiestas deberá correr con los gastos de los inspectores municipales.
+g. La entidad responsable de la denuncia o parte, será quien realice la solicitud respectiva.
+h. No se permitirá en ningún caso la venta de licores en centros de enseñanza, estadios, gimnasios y campos deportivos.
