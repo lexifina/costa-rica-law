@@ -1,0 +1,1 @@
+Art 2° Se le autoriza igualmente para subvencionar dicha empresa hasta con la suma de diez mil pesos de los cuales pagará la mitad, cuando todos los útiles indispensables para la línea, se hallen en Puntarenas y la otra mitad seis meses después que la enunciada línea se haya establecido.
