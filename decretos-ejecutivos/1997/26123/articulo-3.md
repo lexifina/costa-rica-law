@@ -17,4 +17,6 @@ Deberá todo vehículo observar el siguiente recorrido:
 Ruta Nacional No 2 a Paso Canoas-Palmar Norte-Buenos Aires de Osa-San Isidro de Pérez Zeledón-Cartago-San José (según los recorridos establecidos supra)-Ruta Nacional No 32-Carretera Guápiles-Siquirres-Limón-Ruta No 36-Sixaola.
 3.6 Para el tránsito Paso Canoas-Peñas Blancas (Resto del País)
 Deberá cumplirse con el siguiente recorrido:
-Ruta Nacional No 2 a Paso Canoas-Palmar Norte-Buenos Aires de Osa-San Isidro de Pérez Zeledón-Cartago-San José (según los recorridos establecidos supra)-Ruta Nacional No 1- Autopista General Cañas-Carretera Bernardo Soto-Esparza-Barranca-Caftas-Liberia-La Cruz-Peñas Blancas.
+a. Para transporte dirigido a entregas nacionales (almacenes fiscales, zona franca o mercancías nacionalizadas): Ruta Nacional N° 2 a Paso Canoas-Palmar Norte-Buenos Aires de Osa-San Isidro de Pérez Zeledón-Cartago-San José (según los recorridos establecidos supra)-Ruta Nacional N° 1-Autopista General Cañas-Carretera Bernardo Soto-Esparza-Barranca-Cañas-Liberia-La Cruz-Peñas Blancas.
+b. Para tránsito internacional con mercancías en tránsito podrán utilizarse la vía Costanera Sur, salvo que se presentaran situaciones especiales de caso fortuito o fuerza mayor que requiera transitar por otras vías y fueran previamente autorizados por la autoridad competente para usar dichas vías.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31603 de 19 de enero de 2004)
