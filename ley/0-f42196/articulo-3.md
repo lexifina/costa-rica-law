@@ -1,0 +1,1 @@
+3 —Debe entenderse por punto céntrico de la Bahía de Salinas el centro de la figura geométrica formada como queda dicho. El límite de la Bahía hacia el Océano es una línea recta tirada desde la extremidad de Punta Arranca Barba, yendo casi directamente hacia el Sur, hasta la parte más Occidental de la tierra inmediata a Punta Sacate.

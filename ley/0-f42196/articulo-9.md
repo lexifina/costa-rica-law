@@ -1,0 +1,1 @@
+9.—La República de Costa Rica puede negar a la República de Nicaragua el derecho de desviar las aguas del río San Juan, en caso de que dicha desviación ocasione la destrucción, ó serio daño de la navegación de dicho río o de cualquiera de sus brazos, en cualquier punto en que Costa Rica tiene derecho a navegarlos.
