@@ -1,0 +1,1 @@
+Artículo 3°—La presentación de ese documento será necesaria cuando el niño requiera atención en cualquier establecimiento de salud, público o privado, y el mismo será requisito para la matrícula anual de los escolares.
