@@ -1,0 +1,1 @@
+Artículo 3º—El Servicio Nacional de Aduanas realizará estudios e investigaciones sobre las importaciones tramitadas bajo la modalidad de Entrega Rápida, a los efectos de determinar la naturaleza, frecuencia y monto de las transacciones que se ejecutan bajo este modo. Los estudios e investigaciones citadas se llevarán a cabo en un plazo de 70 días.

@@ -1,0 +1,13 @@
+Nº 29486-H
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades que le confieren los artículos 140 incisos 3) y 18) de la Constitución Política, el artículo 28, inciso b) de la Ley General de la Administración Pública, Código Aduanero Uniforme Centroamericano II, la Ley General de Aduanas N° 7557 y su Reglamento promulgado mediante Decreto N° 25270 del 14 de junio de 1996.
+Considerando:
+1º—Que el uso y aplicación de la normativa aduanera requiere revisiones constantes que se ajusten a la realidad cambiante de esta actividad, a efecto de lograr un adecuado ejercicio del control aduanero, la facilitación y agilización de las operaciones aduaneras y la correcta percepción de tributos.
+2º—Que la Dirección General de Aduanas, busca nuevas formas de ajustarse a los objetivos de asegurar, por un lado, que el proceso aduanero sea conforme con lo establecido en la Ley General de Aduanas y su Reglamento y por otro, crear las facilidades que sean necesarias para el comercio internacional.
+3º—Que de conformidad con lo establecido en el artículo 127 de la Ley General de Aduanas N° 7557, "Las mercancías ingresadas al territorio aduanero por vía aérea, según la modalidad de entrega rápida "courier", deben venir con manifestación expresa de tal régimen y reseña de contenido. Las mercancías calificadas como correspondencia, impresos, mensajería y paquetería documental recibirán el mismo tratamiento tributario que las mercancías arribadas en el sistema postal general. Las mercancías que califiquen dentro de cualquiera de las otras modalidades especiales contempladas en la presente ley recibirán el tratamiento tributario que corresponda".
+4º—Que el artículo 319 del Reglamento a la Ley General de Aduanas otorga la facultad para que mediante Decreto el Poder Ejecutivo amplíe las excepciones establecidas para la presentación de la Declaración del Valor.
+5º—Que la modalidad de importación definitiva denominada "Entrega Rápida" por su naturaleza, exige de procedimientos aduaneros más ágiles respecto a las modalidades de importación.
+Decretan:
+Artículo 1º—En virtud de las características propias de celeridad y oportunidad que demanda del servicio de Entrega Rápida en cuanto a su operación, no se requerirá, la transmisión electrónica de la Declaración del Valor para la nacionalización de las mercancías ingresadas bajo esa modalidad de importación, a que obliga el artículo 319 del Decreto Nº 25270-H "Reglamento a la Ley General de Aduanas" y sus Reformas, durante el plazo en el que se efectúen los estudios e investigaciones sobre las importaciones tramitadas bajo la modalidad de Entrega Rápida, citados en el artículo 3º del presente decreto.

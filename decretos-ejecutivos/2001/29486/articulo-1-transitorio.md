@@ -1,0 +1,1 @@
+Transitorio I.—La Autoridad Aduanera deberá exigir el formulario de la Declaración del Valor según lo estipulado en el artículo 2º de este Decreto, a partir del sexto día natural posterior a la vigencia del presente decreto.
