@@ -1,6 +1,6 @@
 # Ley de Reforma Tributaria de 1976
 
-Ley N° 5909 del 1976-06-10. SINALEVI, ficha 35007: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35007&param2=75654&param3=1>.
+Ley N° 5909 del 1976-06-10. SINALEVI, ficha 35007: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35007&param2=75656&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 9 | 1980-12-24 | Ley 6542 | 1980-12-22 |
 | 7 de 9 | 1981-04-27 | Ley 6575 | 1981-04-27 |
 | 8 de 9 | 1981-08-15 | Ley 6589 | 1981-08-15 |
+| 9 de 9 | 1983-05-06 | Ley 6868 | 1983-05-06 |
