@@ -1,7 +1,7 @@
 ARTÍCULO 102.- Requisitos
 Las actas notariales deberán contener los siguientes requisitos:
 a) En la introducción, deberá hacerse constar a solicitud de quién se procede y el motivo por el cual interviene el notario.
-b) En caso de representación, el notario indicará la que exprese laparte interesada, sin necesidad de comprobar la personería.
+b) En caso de representación, el notario indicará la que exprese la parte interesada, sin necesidad de comprobar la personería.
 c) El notario que no conozca a quienes debe notificar, informar, intimar o prevenir, deberá procurar identificarlos y hacerles saber por encargo de quién procede, su calidad de notario, la diligencia por efectuar y el derecho que les asiste de hacer constar las manifestaciones que tengan a bien sobre esa diligencia, siempre que sean pertinentes a juicio del profesional.
 d) En la descripción se relatarán, objetiva y concretamente, todas las circunstancias necesarias para los fines jurídicos de las diligencias y los detalles o condiciones solicitados.
 e) La presencia del solicitante no es necesaria a menos que deba suscribir legalmente el acta.

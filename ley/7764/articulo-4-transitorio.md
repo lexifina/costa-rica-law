@@ -1,0 +1,1 @@
+TRANSITORIO IV.- En el curso de los seis meses siguientes a la vigencia de este código, los notarios públicos deberán informar el lugar exacto de su oficina a la Dirección Nacional de Notariado, el Colegio de Abogados, el Registro Nacional y el Archivo Notarial.

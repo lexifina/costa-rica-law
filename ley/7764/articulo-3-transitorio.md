@@ -1,0 +1,1 @@
+TRANSITORIO III.- Las garantías de fidelidad rendidas por los notarios públicos y vigentes al entrar a regir el Código de Notariado, deberán ajustarse a la nueva suma establecida en él, al régimen aquí creado, dentro de los doce meses siguientes a la vigencia de este código.

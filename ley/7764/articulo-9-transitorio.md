@@ -1,0 +1,2 @@
+TRANSITORIO IX.- El término de caducidad fijado en el inciso 5) del artículo 468 del Código Civil, empezará a regir tres meses después de la entrada en vigencia de esta ley.
+Respecto de las anotaciones anteriores a la vigencia, el término de caducidad será de cinco años, contados a partir de la vigencia de esta ley y serán canceladas por el registrador, al inscribir nuevos títulos sobre el derecho real o cuando así lo determine la dirección respectiva.
