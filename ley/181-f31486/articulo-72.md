@@ -1,0 +1,4 @@
+Artículo 72.- No podrán las Juntas acordar pagos de carácter
+permanente ni por anualidades. Los giros que se extiendan con cargo a
+ellas deberán ser autorizados en cada caso por un acuerdo especial
+comunicado conforme se establece en los artículos precedentes.

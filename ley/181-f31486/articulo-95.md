@@ -1,0 +1,5 @@
+Artículo 95.- Los Consejos Agrícolas Escolares en unión de los
+demás miembros del Patronato y del Personal Docente de la respectiva
+jurisdicción, harán una campaña metódica y constante de protección a los
+animales empleados en trabajos agrícolas y de los que deban también
+cuidarse con esmero por ser de utilidad doméstica.

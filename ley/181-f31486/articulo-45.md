@@ -1,0 +1,5 @@
+Artículo 45.- Los Tesoreros Escolares de distrito están obligados
+a entregar antes del día diez de cada mes al Tesorero Cantonal, los
+fondos manejados durante el mes anterior, acompañando los comprobantes
+de ingresos y gastos. La falta de cumplimiento de esta disposición será
+motivo para la remoción del Tesorero.

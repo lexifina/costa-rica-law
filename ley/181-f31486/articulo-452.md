@@ -1,0 +1,17 @@
+Artículo 452.- Siempre que las condiciones del Erario lo permitan,
+el Estado mantendrá un servicio permanente de treinta becas para
+estudios en el extranjero, distribuídas en la siguiente forma:
+Cinco, para estudiantes nacidos en la provincia de San José;
+Dieciocho, para estudiantes nacidos en las otras provincias, que se
+adjudicarán a razón de tres para cada una de ellas. Las siete restantes
+se otorgarán libremente con el voto de cinco miembros del Patronato, a
+jóvenes especialmente distinguidos por sus dotes personales, que
+encuentren lleno el cupo correspondiente a la provincia de que son
+nativos.
+Si las condiciones del Erario no permitieren el número de becas
+arriba expresado, pero sí uno menor, una vez determinado éste, el
+Patronato hará su distribución en la misma proporción que queda
+consignada. Si al hacer la distribución proporcional resultaren
+fracciones, se sumarán éstas y el número de becas que resulten de la
+suma se otorgará libremente de acuerdo con lo dicho en el aparte
+anterior.
