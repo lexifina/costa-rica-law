@@ -1,0 +1,6 @@
+Artículo XII.5 Revisión e Impugnación
+1. Cada Parte establecerá y mantendrá tribunales o procedimientos judiciales, cuasi-judiciales o de naturaleza administrativa para efectos de la pronta revisión y, cuando proceda, la corrección de las acciones administrativas definitivas relacionadas con los asuntos comprendidos en este Tratado. Estos tribunales serán imparciales e independientes de la dependencia o la autoridad encargada de la ejecución administrativa y no tendrán interés sustancial en el resultado del asunto.
+2. Cada Parte se asegurará que en cualquiera de dichos tribunales o procedimientos, las partes tengan derecho a:
+(a) una oportunidad razonable para apoyar o defender sus respectivas posiciones; y
+(b) una resolución fundada en las pruebas y argumentos contenidos en el expediente o, en casos donde lo requiera la legislación interna, en el expediente compilado por la autoridad administrativa.
+3. Sujeto a los medios de impugnación o revisión ulterior a que se pudiese acudir de conformidad con su legislación interna, cada Parte se asegurará que dichas resoluciones se ejecuten por las dependencias o autoridades y rijan la práctica de las mismas en lo referente a la acción administrativa en cuestión.

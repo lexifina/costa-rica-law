@@ -1,0 +1,5 @@
+Artículo XII.4 Procedimientos Administrativos
+Con el fin de administrar en forma compatible, imparcial y razonable todas las medidas de aplicación general que afecten asuntos cubiertos por este Tratado, cada Parte se asegurará que en sus procedimientos administrativos en que se apliquen las medidas mencionadas en el Artículo XII.2 respecto a personas, mercancías o servicios de la otra Parte en casos específicos:
+(a) siempre que sea posible, las personas de la otra Parte que se vean directamente afectadas por un procedimiento reciban, conforme a las disposiciones internas, aviso razonable del inicio del mismo, incluyendo una descripción de su naturaleza, el fundamento legal sobre el cual se inicia el procedimiento y una descripción general de cualquier cuestión en controversia;
+(b) cuando lo permitan el tiempo, la naturaleza del procedimiento y el interés público, a dichas personas les sea concedida una oportunidad razonable para presentar hechos y argumentos en apoyo de sus pretensiones, previamente a cualquier acción administrativa definitiva; y
+(c) sus procedimientos se ajusten a la legislación interna.
