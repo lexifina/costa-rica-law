@@ -17,13 +17,15 @@ a) Para todas las entidades, según corresponda:
 15. Montos asignados para la atención de lo dispuesto en Ley Nº 7972.
 16. Recursos que transfieran las entidades públicas a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, de conformidad con lo que establece el párrafo segundo artículo 37 de la Ley N° 7914 y el transitorio I de la Ley 8276 que modifica el transitorio I de la Ley 7914.
 17. Recursos orientados a proyectos y programas en apoyo a la Igualdad de Oportunidades para las personas con discapacidad, de conformidad con la Ley Nº 7600.
+18. Recursos que transfieran las entidades autónomas y semiautónomas del Estado al Instituto Costarricense del Deporte y la Recreación para la realización de los Juegos Deportivos Nacionales del año 2005.
+(Así adicionado por decreto ejecutivo N° 32073 del 17 de setiembre del 2004)
 b) Adicionalmente, se excluye para las siguientes:
 Entidad | Concepto
 Colegio Universitario para el Riego y el Desarrollo del Trópico Seco | Tarifa de riego (Canon al SENARA
 Comisión Nacional de Préstamos para la Educación (CONAPE) | Reintegro Efectivo Fondos Administrados Seguro Vida Prestatarios. Concesión de préstamos.
 Comisión Nacional de Prevención de Riesgos y Atención de Emergencias | Recursos destinados a la atención de emergencias referidos en el transitorio I de la Ley No. 8276 y recursos para la atención de emergencias declaradas por el Poder Ejecutivo.
 Compañía Nacional de Fuerza y Luz | Compra de energía
-Consejo de Seguridad Vial | Transferencia al PANI según Ley No. 7331. Cruz Roja Costarricense. Gobiernos Locales. (Municipalidades), según Ley No. 7331.
+Consejo de Seguridad Vial | Transferencia al PANI según Ley No. 7331. Cruz Roja Costarricense. Gobiernos Locales. (Municipalidades), según Ley No. 7331. Consejo Nacional de Vialidad, según Ley Nº 7798 (Así ampliado por el artículo 1° del decreto ejecutivo N° 31984 del 26 de julio de 2004.)
 Consejo Nacional de Producción | Materias Primas y Mercaderías del Programa Abastecimiento Institucional. Reserva Alimenticia y Emergencia Nacional. Transferencia a FANAL según Ley No. 6050. Transferencia a SEPSA según Ley No. 7064.
 Consejo Técnico Asistencia Médico Social | Transferencia al Inciensa según Ley N° 5412 y sus reformas. Transferencia a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, según Ley N° 5412, Ley Orgánica del Ministerio de Salud.
 Correos de Costa Rica | Canon de la ARESEP
