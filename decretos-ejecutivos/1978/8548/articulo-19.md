@@ -1,0 +1,1 @@
+Artículo 19.—Los recursos a que se refieren los artículos anteriores se admitirán para los efectos de fondo y forma, y es obligación de los órganos que los conocen en alzada fallarlos dentro de los tres días siguientes a la fecha en que el inferior le traslade el expediente respectivo.

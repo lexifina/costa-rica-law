@@ -1,0 +1,3 @@
+CAPITULO VI
+De los Impedimentos, las Excusas y las Recusaciones
+Artículo 20.—No pueden intervenir directa o indirectamente en la adjudicación de las becas a que se refiere este Reglamento aquellos funcionarios que tuvieren interés en ellas, bien porque se encuentren concursando en su carácter personal, o bien porque lo hacen parientes suyos hasta el segundo grado de consanguinidad o afinidad. En estos casos, es obligación del funcionario excusarse ante el superior inmediato en el momento mismo en que tenga conocimiento de los motivos de su impedimento. Si el superior encontrare procedente la excusa, conocerá del asunto v entrará a resolverlo observando las mismas formalidades a que se encuentra sujeto el inferior.

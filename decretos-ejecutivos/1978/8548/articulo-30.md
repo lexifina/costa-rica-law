@@ -1,0 +1,1 @@
+Artículo 30.—No son aplicables las disposiciones de este Reglamento a los permisos con goce de sueldo que el Ministerio hubiere previamente otorgado de conformidad con las leves laborales vigentes y para que empleados del Ministerio de Hacienda asistan a cursos de sindicalismo o cooperativismo.

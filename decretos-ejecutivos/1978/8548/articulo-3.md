@@ -1,0 +1,1 @@
+Articulo 3°—El financiamiento total o parcial de la participación de sus funcionarios, por parte del Ministerio de Hacienda, en cursos de adiestramiento que se lleven a cabo en el país o en el extranjero, queda sujeto a que existan disponibilidades presupuestarias adecuadas.
