@@ -1,8 +1,15 @@
 Artículo 9°—En la fijación de la responsabilidad que exigirá el INFOCOOP para las garantías que respalden los créditos a otorgar, se seguirán en términos generales los siguientes porcentajes.
-a) Garantías hipotecarias, hasta el 80% del avalúo. En casos especiales, a juicio de la junta directiva, este límite llegará hasta el 100% del avalúo.
+a) Garantía hipotecaria de primer grado, hasta el 80% del avalúo. En casos especiales, ajuicio de la Junta Directiva este límite llegará hasta el 90% del avalúo.
+Se aceptaran garantías hipotecarias de menor grado, hasta un 70% del monto del avalúo solamente en los siguientes casos:
+1) Cuando los grados mayores estén a favor del INFOCOOP, o;
+2) Cuando los acreedores que tienen los grados mayores, certifiquen que los créditos respaldados con esas garantías han sido atendidos normalmente y que se encuentran totalmente al día y con un detalle de su situación actual.
+El procedimiento para aceptar garantías hipotecarias de grados menores es el siguiente:
+Del monto del avalúo se considera un 70%, y a este nuevo monto se le restan los grados mayores, tomando en cuenta: principal, intereses y otros conceptos que puedan afectar esa garantía. El monto que resulta de esta operación es el que se consideraría como garantía para el INFOCOOP.
+(Así reformado parcialmente por acuerdo de Junta Directiva N° 1972 de 28 de junio de 1990)
 b) Prendas ganaderas, hasta el 100% del avalúo, con garantía colateral suficiente.
 c) Otras garantías prendarias, hasta el 80% del avalúo, excepto en aquellos casos en que el Banco Central de Costa Rica disponga cosa contraria.
 d) Documentos negociables endosados en garantía, hasta el 60% de su saldo actual, siempre y cuando no excedan de una tercera parte del monto del crédito, salvo en aquellos casos de cooperativas que no dispongan de garantías reales, en cuyo evento esta proporción puede ser mayor, pero su responsabilidad no podrá exceder del 60% antes indicado.
 e) Cuando se trate de garantías hipotecarias o prendarias, el correspondiente avalúo debe ser hecho por un perito autorizado por el INFOCOOP, para lo cual la cooperativa prestataria debe, previamente, hacer el depósito del costo del avalúo en la Tesorería del INFOCOOP. Lo anterior no rige cuando se trate de prendas sobre maquinaria y equipos, totalmente nuevos para lo cual se tomará como base la factura de compra.
-(Así ampliado por acuerdo de la Junta Directiva, en su sesión N° 1937 de 22 de febrero de 1990, el cual agregó el inciso e)
+f) Tratándose de cédulas hipotecarias, la cooperativa debe aportar copia del avalúo con base en el cual se emitieron esa cédulas, además, se debe realizar un análisis sobre el número de cédulas en poder de la cooperativa y cuántas en poder de otros acreedores, con detalle de estos y certificación del estado actual de las operaciones que están garantizando.
+(Así ampliado por acuerdo de la Junta Directiva, en su sesión N° 1972 de 28 de junio de 1990, el cual agregó el inciso f)
 En los créditos garantizados parcial o totalmente con documentos negociables, las cooperativas deudoras presentarán, al momento de constituirse las garantías así como con posterioridad y trimestralmente durante la vigencia del préstamo, una lista de los documentos entregados en garantía que contenga el nombre completo y direcciones exactas de los obligados en dichos documentos; el número, monto inicial, saldo de la obligación a la fecha del informe y vencimiento de la misma.
