@@ -1,0 +1,3 @@
+ARTÍCULO 10.
+Si el trazado del ferrocarril lo exigiere, podrán ocuparse, para el lecho de la línea ó para estaciones ó edificios, terrenos de los exceptuados en el artículo anterior, sin que haya de pagar el concesionario indemnización alguna al Estado, ni á la Compañía del Canal en su caso ésta hubiere enajenado á particulares el terreno de que se trate.
+El Estado, á su vez, se reserva el derecho de ocupar en los terrenos cedidos al concesionario, del mismo modo, los espacios necesarios para los caminos ó edificios públicos que estime convenientes, y sin reconocer ninguna indemnización, mientras los terrenos que se ocupen no hayan sido enajenados á particulares.
