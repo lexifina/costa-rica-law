@@ -1,0 +1,2 @@
+Artículo 2º.- Modifíquese el inciso f) del artículo 21 del Reglamento supracitado para que en lo sucesivo se lea así:
+"f) Mantener en perfectas condiciones de funcionamiento y operación y a la vista del público consumidor, las pesas, medidas, básculas, registradoras, etc., que se usen en los establecimientos comerciales en el desempeño de su actividad, así como efectuar de inmediato, a requerimiento de los inspectores de precios, la reposición o reparaciones de aquellos instrumentos que se encuentren en mal estado."
