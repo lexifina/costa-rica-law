@@ -1,1 +1,0 @@
-Artículo 8°—La Dirección de Salud Animal y del Programa de Control y Erradicación de Brucelosis no permitirán el uso, ni aún con fines experimentales, de ningún otro producto biológico a utilizar en el control de la brucelosis. Cualquier investigación en este campo será exclusividad de ambas direcciones.

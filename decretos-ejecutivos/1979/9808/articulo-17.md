@@ -1,1 +1,0 @@
-Artículo 17.—La Dirección del Programa de Control y Erradicación de Brucelosis podrá utilizar con fines diagnósticos las llamadas pruebas complementarias, recomendadas por el grupo de expertos FAO/OMS en los casos en que lo juzgue conveniente.

@@ -1,1 +1,0 @@
-Articulo 12.—Los propietarios que así lo deseen y estén participando en el programa de vacunación de terneras, podrán solicitar el saneamiento de sus fincas mediante pruebas diagnósticas y eliminación de todos los animales que resultaren reaccionantes con base en el convenio firmado, sin responsabilidad alguna para la Dirección del Programa.

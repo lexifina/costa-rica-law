@@ -1,2 +1,0 @@
-Artículo 16.—Los animales reaccionantes sólo podrán ser movilizados con con certificado oficial de vacunación.
-destino al matadero y serán acompañados de una guía de movilización por cuadruplicado que extenderá el Médico Veterinario Regional y el Jefe del matadero en donde se sacrifiquen los animales, enviara a la Dirección del Programa de Control y Erradicación de Brucelosis, una copia de la guía haciendo constar el sacrificio de los animales amparados por la misma.

@@ -1,1 +1,0 @@
-Articulo 14.—Los animales que resultaren clasificados como reaccionantes, tanto en las pruebas serológicas dirigidas como en las voluntarias y en las obligatorias, serán claramente marcadas en forma indeleble y visible en el masétero izquierdo y segregadas en la finca, no podrán venderse más que para sacrificio lo que deberá efectuarse a la mayor brevedad posible.
