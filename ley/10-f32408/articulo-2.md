@@ -1,0 +1,1 @@
+Art. 2°-El Poder Ejecutivo cuidará de que se reúnan, para los fines legales, las Juntas Electorales de comarca y distrito, de que se llenen los puestos vacantes, si los hubiere; de que se forme por quien corresponda la lista respectiva de sufragantes, y de que en todo lo demás se guarden los procedimientos marcados por la Ley de Elecciones.
