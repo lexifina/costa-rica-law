@@ -14,3 +14,4 @@ Reglamento de Uso y Mantenimiento de la Flotilla de Vehículos del Instituto Nac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-25 | la propia norma |
+| 2 | 2005-01-04 | Reglamento 311 (2005-01-04) |
