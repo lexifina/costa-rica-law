@@ -1,0 +1,1 @@
+Artículo 7°—La Secretaría del Plan Nacional de Desarrollo Urbano estará conformada por un equipo técnico de funcionarios de las instituciones del Estado así como por funcionarios municipales de las diferentes regiones del país, cuando así lo defina cada municipalidad o federación de municipios.
