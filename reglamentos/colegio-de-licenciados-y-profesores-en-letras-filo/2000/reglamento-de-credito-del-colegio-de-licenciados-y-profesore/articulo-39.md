@@ -1,0 +1,1 @@
+Articulo 39.—El Colegio puede hacer los desembolsos directamente al deudor o a terceras personas, según la naturaleza del crédito. En los casos de embargo o pago de deudas a terceros, el cheque se girara a los acreedores del solicitante, o a los apoderados legales de ellos.

@@ -1,0 +1,1 @@
+Articulo 4°—Para los efectos del presente Reglamento se conformara una Comisión Administrativa de Crédito, compuesta por el Jefe de Crédito y Cobro, el Jefe Financiero, el Tesorero y el Vocal 1 de la Junta Directiva. La Comisión pasara un informe con los préstamos aprobados para conocimiento de Junta Directiva.

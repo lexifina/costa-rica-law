@@ -1,0 +1,1 @@
+Articulo 24.—Todos los créditos deberán garantizarse con alguno de los medios que señala el articulo 22 del presente Reglamento. Si se trata de garantía fiduciaria, la persona o las personas que garantizan el préstamo deberán ocupar una plaza en propiedad en el sector público.

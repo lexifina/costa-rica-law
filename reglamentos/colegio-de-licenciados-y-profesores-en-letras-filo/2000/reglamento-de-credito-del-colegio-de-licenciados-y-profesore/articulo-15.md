@@ -1,0 +1,1 @@
+Articulo 15.—Si la Comisión Administrativa de Crédito deniega la aprobación de un préstamo, el colegiado podrá interponer recurso de revisión ante la Comisión, y, en caso de no prosperar, ante la Junta Directiva; podrá entonces aportar nuevos elementos y argumentos que sirvan de pruebas para mejor resolver.

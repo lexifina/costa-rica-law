@@ -1,0 +1,1 @@
+Articulo 14.—La Comisión Administrativa de Crédito presentara informes mensuales a la Junta Directiva sobre la labor realizada en el campo crediticio. Ellos constarán en el Libro de Actas que la Comisión lleve con tal efecto. Además, se incluirá un informe de esta Comisión en la Memoria Anual de Trabajo del COLYPRO.

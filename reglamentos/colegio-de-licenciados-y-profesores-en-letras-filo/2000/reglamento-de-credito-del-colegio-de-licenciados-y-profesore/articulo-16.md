@@ -1,0 +1,1 @@
+Articulo 16.—Las resoluciones de la Comisión Administrativa de Crédito y de la Junta Directiva en lo que se refiere a la aprobación de las solicitudes de crédito estudiadas, serán acuerdos firmes por simple mayoría de votos.

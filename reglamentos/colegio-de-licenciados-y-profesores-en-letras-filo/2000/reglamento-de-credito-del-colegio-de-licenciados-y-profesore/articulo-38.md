@@ -1,0 +1,1 @@
+Articulo 38.—Una vez aprobadas las solicitudes de crédito, la Administración organizará los desembolsos de acuerdo con la disponibilidad de fondos y con la resolución de la Comisión Administrativa de Crédito que estudió la solicitud respectiva. Deudores y fiadores, deberán pasar a la oficina del Colegio mencionada en la solicitud para la formalización del crédito.

@@ -1,0 +1,3 @@
+Articulo 8°—Toda solicitud de préstamo deberá incluir las certificaciones de salarios emitidas por la Oficina de Personal o el Departamento Financiero del Ministerio de Educación, o en su detecto por el patrono del solicitante o del fiador, previo visto bueno de la Comisión Administrativa de Crédito.
+Los pensionados deberán aportar constancia de la Junta de Pensiones y Jubilaciones del Magisterio Nacional o de la Caja Costarricense de Seguro Social, y la pignoración de la póliza de vida de la Sociedad de Seguros de Vida del Magisterio Nacional.
+Se aceptaran fotocopias de los documentos mencionados cuando estos vengan acompañados de sus originales con miras a su confrontación; en caso contrario, ellas deberán estar certificados por notario público.

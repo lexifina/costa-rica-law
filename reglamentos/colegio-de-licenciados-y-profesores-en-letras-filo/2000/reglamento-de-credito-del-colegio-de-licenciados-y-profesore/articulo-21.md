@@ -1,0 +1,1 @@
+Articulo 21.—En caso de fuerza mayor o fallecimiento del cónyuge o un familiar en primer grado de consanguinidad del colegiado, se podrá renovar el crédito o los créditos que tenga activos, hasta el tope vigente.

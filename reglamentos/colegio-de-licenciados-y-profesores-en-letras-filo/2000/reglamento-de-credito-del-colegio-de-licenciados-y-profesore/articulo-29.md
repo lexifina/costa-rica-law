@@ -1,0 +1,1 @@
+Articulo 29.—Será aceptadas como fiadores las personas que estén trabajando con plaza en propiedad para el magisterio nacional, las universidades públicas, el Instituto Tecnológico de Costa Rica, el Gobierno central y las Instituciones Autónomas. No se aceptarán personas que tengan el salario embargado, ni educadores pensionados, interinos o incapacitados.

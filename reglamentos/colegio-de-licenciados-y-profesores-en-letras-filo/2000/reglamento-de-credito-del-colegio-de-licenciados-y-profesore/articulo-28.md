@@ -1,0 +1,1 @@
+Articulo 28.—Si un solicitante presenta un fiador que tiene un crédito moroso, la solicitud no se tramitara hasta que la situación de morosidad se normalice o hasta que el solicitante cambie de fiador.
