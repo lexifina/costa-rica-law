@@ -1,24 +1,12 @@
-Artículo 3°—Se agrega como anexo a la *Reserva Indígena Guaymí de Conteburica la *"Reserva Indígena Guaymí de Abrojo de Montezuma".
-*(Modificada su denominación por el artículo 1°del decreto ejecutivo N° 16052 del 3 de diciembre de 1984 y mediante el artículo 3° se indica que el nombre correcto es Reserva Indígena Guaymi de Conteburica).
-Los límites de esta Reserva son los mencionados a continuación:
-*RESERVA INDÍGENA GUAYMÍ DE ABROJO DE MONTEZUMA
-*(Modificada su denominación por el artículo 1° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984).
-Establécese la *Reserva Indígena Guaymi de Abrojo de Montezuma.
-*(Modificada su denominación por el artículo 1° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984).
-La *Reserva Indígena Guaymi de Abrojo de Montezuma se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000, Canoas 3641 IV y Cañas Gordas, 3642 III.
-*(Modificada su denominación por el artículo 1° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984).
-La reserva está delimitada por los puntos cuyas coordenadas se detallan a continuación:
-N 288 950 | E 588 150 | Río Abrojos.
-N 289 100 | E 587 650 |
-N 288 250 | E 583 650 |
-N 289 000 | E 583 250 |
-N 289 900 | E 582 175 | Río Corredor.
-Continúa aguas arriba por la margen izquierda de dicho río, hasta un punto de coordenadas:
-N 292 675 | E 584 450 | Río Corredor.
-N 292 150 | E 585 350 |
-N 290 900 | E 586 950 |
-N 291 100 | E 588 250 | Río Abrojos.
-Sigue aguas abajo por el río Abrojos, margen derecha, hasta el punto inicial de esta descripción en:
-N 288950 | E 588150
-Área aproximada. 1 480 hectáreas.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 12115 del 9 de diciembre de 1980).
+Artículo 3°—Se establece la Reserva Indígena de Abrojo de Montezuma como reserva Indígena independiente de cualquier otra reserva, dejando de ser anexo de la Reserva Indígena Guaymí de Conteburica. La Reserva Indígena Guaymí de Abrojo Montezuma se localiza en las hojas cartográficas del Instituto Geográfico Nacional, escala 1:50.000, Canoas 3641 IV y Cañas Gordas, 3642 III.
+La Reserva Indígena se delimita por los puntos de coordenadas siguientes: Partiendo de la confluencia de la quebrada Planes con el Río Corredor en el punto de coordenadas N 292 700 E 584 450. De ahí se sigue por los puntos de coordenadas N 292 150 E 585 350 (cerro, 490 m.), N 291 950 E 586 250. Punto que interseca un camino (trillo) que conduce en sentido noreste al camino principal que va de Montezuma (Bellavista) a Planes. Se sigue por este camino con rumbo noreste pasando por los puntos de coordenadas N 292 000 E 586 400, N 292 160 E 586 525. Punto este último que interseca el camino principal de Montezuma a Planes. De ahí una recta al Río Abrojo, en el punto de coordenadas N 292 155 E 587 100. De este punto se sigue aguas abajo por el Río Abrojo hasta el punto de coordenadas N 291 625 E 588 350. Punto de confluencia de una quebradilla sobre el Río Abrojo. Se sigue aguas arriba por esta quebradilla (dibujada en el mapa por curvas de nivel), mediante una recta, hasta el punto de coordenadas N 292 290 E 588 675. Punto ubicado sobre la línea fronteriza Costa Rica – Panamá. El lindero sigue por la línea fronteriza Costa Rica – Panamá en sentido sureste, la cual es a su vez línea divisoria de aguas entre los ríos Abrojo (de Costa Rica) y Chiriquí Viejo (de Panamá), hasta el punto de coordenadas N 288 050 E 591 800 (Hito, 911 m.). De este punto se continúa por los puntos de coordenadas N 287 950 E 591 700, N 287 940 E 591 525. Este último punto interseca la naciente principal de la quebrada Callejonuda, por lo que el límite de la reserva sigue aguas abajo por esta quebrada, hasta el punto de coordenadas N 287 175 E 590 925. De este punto una recta a la naciente en el mapa, de la quebrada Mamey, en el punto de coordenadas N 288 675 E 589 800. Se sigue aguas abajo por esta quebrada, hasta su confluencia con la quebrada Ojo de Agua en el punto de coordenadas N 289 075 E 588 425. Se continúa por esta última quebrada aguas abajo, hasta su confluencia con el Río Abrojo en el punto de coordenadas N 289 000 E 588 310. De ahí, el límite sigue aguas abajo por el Río Abrojo hasta el punto de coordenadas N 288 950 E 588 150. A partir de este punto se deja el Río Abrojo para continuar por los puntos de coordenadas siguientes:
+N 289 100 E 587 650
+N 288 250 E 583 650
+N 288 200 E 583 000
+N 288 700 E 581 920
+De este último punto, una recta al punto de coordenadas N 288 870 E 581 945. Punto que interseca una quebrada sin nombre en el mapa pero definida por curvas de nivel. Se sigue aguas abajo por esta quebrada, hasta su desembocadura sobre el Río Corredor en el punto de coordenadas N 289 700 E 581 575.
+De este punto, el lindero de la reserva sigue aguas arriba por el Río Corredor, hasta el punto de coordenadas N 290 950 E 583 550. Punto donde confluye una pequeña quebrada definida en el mapa por curvas de nivel, sobre el Río Corredor. Se sigue por esta quebrada aguas arriba, hasta el punto de coordenadas N 291 575 E 583 175. De ahí, una recta al punto de coordenadas N 291 825 E 583 345, punto de confluencia entre las quebradas Luis Umaña y Grande. El límite continúa aguas arriba por la Quebrada Grande, hasta el punto de coordenadas N 292 198 E 583 230 para continuar por los puntos de las siguientes coordenadas:
+N 292 300 E 583 800
+N 292 675 E 584 000
+N 292 700 E 594 450 (punto inicial de la presente descripción).
+(Así reformado mediante los artículos 1° y 2° del decreto ejecutivo N° 29960 del 26 de octubre del 2001).
