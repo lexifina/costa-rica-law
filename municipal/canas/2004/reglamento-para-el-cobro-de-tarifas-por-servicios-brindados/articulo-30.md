@@ -1,0 +1,1 @@
+Artículo 30.—Si el contribuyente no cumpliere con la prevención, la Municipalidad deberá realizar los servicios u obras a costa del contribuyente, aplicando los procedimientos establecidos en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 14.—Previo a aplicar las multas señaladas en el artículo anterior, la Municipalidad deberá notificar al propietario o poseedor del bien, su deber de cumplir con tales obligaciones, otorgándoles un plazo de ocho días hábiles para cumplir con lo prevenido. Una vez vencido tal plazo se procederá a imponer la multa que corresponda.

@@ -1,0 +1,1 @@
+Artículo 23.—El cordón y/o cuneta, será construido conforme al diseño que para tales efectos tendrá dispuesto la Municipalidad, y se utilizará hormigón según las especificaciones que esta misma proporcionará.

@@ -1,0 +1,1 @@
+Artículo 24.—En las esquinas de cuadra deberán construirse las rampas para discapacitados, adaptándose a los niveles entre acera-calle, de tal forma que permita la continuidad y fluidez de los recorridos urbanos; de toda suerte, dichas construcciones deberán ajustarse en un todo a las disposiciones de la Ley N° 7600.
