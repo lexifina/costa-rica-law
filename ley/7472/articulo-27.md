@@ -1,2 +1,11 @@
-Artículo 27°.-Caducidad de la acción.
-La acción para iniciar el procedimiento con el fin de perseguir las infracciones caduca en un plazo de seis meses, que se debe contar desde que se produjo la falta o desde su conocimiento efectivo por parte del agraviado. Sin embargo para los hechos continuados, comienza a correr a partir del acaecimiento del último hecho.
+Artículo 27°.- Potestades de la Comisión.
+La Comisión para promover la competencia tiene las siguientes potestades:
+a) Velar porque los entes y los órganos de la Administración Pública cumplan con la obligación de racionalizar los procedimientos y los trámites que deban mantenerse; además, eliminar los innecesarios, según se dispone en los artículos 3 y 4 de esta Ley. En caso de incumplimiento, le compete recomendar al jerarca imponer las sanciones administrativas correspondientes a los funcionarios que cometan faltas graves en el ejercicio de sus funciones.
+b) Recomendar, a la Administración Pública, la regulación de precios y el establecimiento de restricciones que no sean arancelarias, cuando proceda de conformidad con los artículos 5 y 6 de esta Ley.
+c) Investigar la existencia de monopolios, carteles, prácticas o concentraciones prohibidas en esta Ley, para lo cual puede requerir a los particulares y los demás agentes económicos, la información o los documentos relevantes y sancionar cuando proceda.
+d) Sancionar los actos de restricción de la oferta estipulada en el artículo (*)33 de esta Ley, cuando lesionen, en forma refleja, la libre competencia en el mercado.
+(*)(Actualmente corresponde al artículo 36)
+e) Establecer los mecanismos de coordinación para sancionar y prevenir monopolios, carteles, concentraciones y prácticas ilícitas.
+f) Cuando lo considere pertinente, emitir opinión, en materia de competencia y libre concurrencia, respecto de las leyes, los reglamentos, los acuerdos, las circulares y los demás actos administrativos, sin que tales criterios tengan ningún efecto jurídico. La Comisión no puede ser obligada a opinar.
+A esta Comisión no le corresponde conocer de los actos de competencia desleal en los términos estipulados en el artículo 17 de esta Ley. Estos casos son del conocimiento exclusivo de los órganos jurisdiccionales competentes.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 24 al 27 actual)

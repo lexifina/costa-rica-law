@@ -1,0 +1,3 @@
+Artículo 52.—Tarifas. Se aplicará una tarifa de un cero coma cinco por ciento (0,5%) sobre los rendimientos gravados por el impuesto único y definitivo previsto en el párrafo segundo del artículo 100 de la Ley reguladora del mercado de valores, Nº 7732, de 17 de diciembre de 1997.
+Se aplicará una tarifa de un cero coma cinco por ciento (0,5%) sobre las ganancias de capital gravadas por el impuesto único y definitivo previsto en el tercer párrafo del artículo 100 de la Ley citada Nº 7732.
+Se aplicará una tarifa de un cero coma cinco por ciento (0, 5%) sobre los rendimientos gravados por el impuesto a las recompras, previsto en el inciso c bis) del artículo 23 de la Ley del impuesto sobre la renta, Nº 7092, de 21 de abril de 1988, y sus reformas.

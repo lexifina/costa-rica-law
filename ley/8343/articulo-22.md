@@ -1,0 +1,1 @@
+Artículo 22.—Aumento de aranceles de registros. Increméntase en un cien por ciento (100%), la tarifa de los aranceles de registro establecidos en los artículos 1 y 2 de la Ley de aranceles del Registro Público Nº 4564, de 29 de abril de 1970. El producto de este incremento deberá ingresar al fondo general del Gobierno con el fin de disminuir el déficit fiscal del Gobierno.

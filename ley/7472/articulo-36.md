@@ -1,2 +1,10 @@
-Artículo 36.- Bienes usados y reconstruidos.
-Cuando se vendan productos defectuosos, usados o reconstruidos, antes de la compra, el comerciante debe indicar al consumidor, de manera precisa y clara, tales condiciones y dejarse constancia en las facturas o los comprobantes. El comerciante debe advertir los extremos anteriores si anuncia la venta de esos productos usando cualquier medio. Si no existe advertencia sobre el particular, esos bienes se consideran nuevos y en perfecto estado.
+Artículo 36.- Prohibiciones.
+Se prohíben todas las acciones orientadas a restringir la oferta (abastecimiento), la circulación o la distribución de bienes y servicios. La Comisión nacional del consumidor debe sancionar tales acciones sin perjuicio de las potestades que también tenga la Comisión para promover la competencia, de conformidad con el artículo (*)24, inciso d) de esta Ley, para conocer y resolver sobre ellas cuando:
+(*)(Actualmente corresponde al artículo 27)
+a) Se sustraigan, adquieran, almacenen, oculten o retengan bienes intermedios o finales, de uso o consumo interno, superiores a los necesarios para el giro normal de la actividad, con el fin de provocar escasez o alza en el precio, salvo que se trate de insumos requeridos para satisfacer necesidades propias de la empresa o que, por causa ajena al interesado, no se puedan transar (acaparamiento).
+b) Se condicione el perfeccionamiento de una venta o la prestación de servicios a la adquisición de otro producto o a la contratación de otro servicio, a menos que así se haya ofrecido, públicamente y de manera inequívoca, a los consumidores (ventas atadas o condicionadas).
+c) Se ofrezcan o se vendan bienes o servicios, en los diversos niveles de la comercialización, a precios superiores a los regulados u ofrecidos de conformidad con los artículos 5; (*)31, inciso b); (*)34 y (*)38 de esta Ley (especulación).
+(*)(Actualmente corresponden a los artículos 34, 37 y 41 respectivamente)
+d) Se niegue a proveer un producto o prestar un servicio, o cuando lo ofrezca o lo preste en forma irregular o dilatoria, salvo que medie justa causa, debidamente comprobada por el comerciante o el productor (discriminación al consumo).
+e) Cualquier otra forma de restricción o manipulación injustificada de la oferta de bienes y servicios.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 33 al 36 actual)

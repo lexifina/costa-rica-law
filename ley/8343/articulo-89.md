@@ -1,0 +1,1 @@
+Artículo 89.—Vigencia. Esta Ley rige por doce meses a partir de su promulgación, excepto el Capítulo VI "Impuesto a los Moteles destinado al Instituto Mixto de Ayuda Social y el Capítulo VII, referente a otras leyes.

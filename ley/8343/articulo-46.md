@@ -1,0 +1,1 @@
+Artículo 46.—Base imponible. La base imponible del impuesto extraordinario sobre rendimientos del mercado financiero estará constituida por la prevista en los incisos c) y c bis) del artículo 23 de la Ley de impuesto sobre la renta, Nº 7092, de 21 de abril de 1988.

@@ -1,0 +1,1 @@
+Artículo 59.—Reglamentación de esta Ley. En un período máximo de quince días posteriores a la publicación de esta Ley, el Poder Ejecutivo reglamentará las disposiciones contenidas en el presente capítulo.

@@ -1,0 +1,2 @@
+Transitorio VI.—Durante el período de vigencia de la presente Ley, los nombramientos de funcionarios en proyectos especiales con cargo a recursos de presupuesto y en programas financiados con recursos de préstamos internacionales, se llevarán a cabo por medio de concurso de antecedentes, con la debida publicidad para garantizar la transparencia en el proceso y eficiencia en la selección.
+Presidencia de la República.- San José, a los dieciocho días del mes de diciembre de dos mil dos.

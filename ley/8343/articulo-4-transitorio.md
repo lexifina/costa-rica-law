@@ -1,0 +1,1 @@
+Transitorio IV.—Cualquier medida adicional al Plan de Contingencia relativa al recorte del presupuesto ordinario del ejercicio económico del año 2003, no podrá reducir las partidas destinadas a financiar los programas sociales y el sector agropecuario.

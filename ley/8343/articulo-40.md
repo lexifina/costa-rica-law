@@ -1,0 +1,1 @@
+Artículo 40.—Sujetos pasivos. Serán sujetos pasivos las personas jurídicas o demás entidades mencionadas en el capítulo VIII del título I de la Ley de impuesto sobre la renta, Nº 7092, de 21 de abril de 1988. La entidad que distribuya la renta disponible fungirá como agente retenedor del impuesto, de conformidad con lo dispuesto en dicho capítulo VIII de la Ley Nº 7092.
