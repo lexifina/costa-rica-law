@@ -1,0 +1,1 @@
+Transitorio 4º—La Junta Administrativa en un plazo de 3 meses aprobará la Política de Inversiones y los procedimientos de Inversión del Fondo de Retiro en concordancia con las disposiciones emitidas por el CONASSIF y lo hará del conocimiento de las autoridades competentes.

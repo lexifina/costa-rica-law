@@ -1,0 +1,2 @@
+Tope máximo de la Pensión Complementaria
+Artículo 5º—El monto de la pensión complementaria estará sujeto a un tope máximo, que será revisado periódicamente por la Junta Administrativa de acuerdo con las recomendaciones que al efecto dicte la Dirección Actuarial y de Planificación Económica. Los acuerdos suscritos por la Junta Administrativa serán elevados a la Junta Directiva para su respectiva aprobación.

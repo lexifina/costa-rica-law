@@ -1,0 +1,2 @@
+De las revalorizaciones de las pensiones
+Artículo 6º—Semestralmente la Junta Administrativa solicitará a la Dirección Actuarial y de Planificación Económica la realización de un estudio del comportamiento del poder adquisitivo de las pensiones complementarias, con el fin de revalorizar sus montos en el tanto las posibilidades financieras del fondo lo permitan. Con base en ese estudio, la Junta Administrativa recomendará la correspondiente revalorización del beneficio que será aprobada por la Junta Directiva de la Caja.

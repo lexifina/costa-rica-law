@@ -1,0 +1,1 @@
+Transitorio 2º—En el plazo de seis meses a partir de la entrada en vigencia de este Reglamento, la Junta Administrativa solicitará un estudio actuarial sobre la posibilidad de mejorar el monto de las pensiones de invalidez.

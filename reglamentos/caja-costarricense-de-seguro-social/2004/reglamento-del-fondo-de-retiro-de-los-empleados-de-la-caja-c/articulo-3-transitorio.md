@@ -1,0 +1,1 @@
+Transitorio 3º—Los fondos de reserva inicial para garantizar el financiamiento del FRE, se tomarán de los recursos existentes con lo que establece el artículo 21 de la Ley Constitutiva de la Caja y serán establecidos por la Junta Directiva de la Caja, de acuerdo con los resultados de la evaluación actuarial realizada por la Dirección Actuarial y de Planificación Económica.

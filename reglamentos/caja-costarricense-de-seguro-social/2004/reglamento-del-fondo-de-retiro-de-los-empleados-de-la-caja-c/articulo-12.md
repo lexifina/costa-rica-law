@@ -1,0 +1,3 @@
+Del sistema contable y la fiscalización
+Artículo 12.—La contabilidad del FRE deberá ajustarse a las normas y directrices dictadas por el CONASSIF y la SUPEN, los responsables deberán presentar mensualmente a la Junta Administrativa los estados financieros para su análisis y recomendaciones. La auditoría y fiscalización interna se ajustará a los lineamientos y directrices de la auditoría interna de la Caja y de la Contraloría General de la República.
+En todo caso las operaciones y manejo de fondos del FRE estarán sujetos a los reglamentos emitidos por el CONASSIF y a la regulación, supervisión y fiscalización de la SUPEN.
