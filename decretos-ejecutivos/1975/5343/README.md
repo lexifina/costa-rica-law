@@ -14,3 +14,4 @@ Inscribe a nombre del Estado áreas de terreno de la Reserva Nacional en Sierpe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-10-31 | la propia norma |
+| 2 | 1977-04-26 | Decreto Ejecutivo 6953 (1977-04-26) |
