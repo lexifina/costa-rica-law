@@ -1,1 +1,0 @@
-Artículo 15.—Vigencia: El presente reglamento entrará en vigencia a partir de la fecha de su publicación en el Diario Oficial "La Gaceta", Dado en la sala de sesiones de la Junta Directiva de la ESPH a los dieciocho días del mes de febrero de mil novecientos noventa y nueve".

@@ -1,1 +1,0 @@
-Artículo 14.—Preferencia: Sin perjuicio de lo dispuesto en los artículos anteriores, en igualdad de condiciones, la Empresa concederá derecho preferente de dotación de servicios, a aquellas personas o entidades que, al formular sus solicitudes, gestionen conjuntamente la prestación de los servicios de agua potable y energía eléctrica.
