@@ -1,0 +1,1 @@
+Artículo 6°-En el caso de que el Empresario llegue a colocarse de hecho en situación de monopolio el Ministerio de Industria y Comercio podrá supervigilar los costos de producción y fijar el precio de venta de sus productos.
