@@ -14,3 +14,4 @@ Reglamento General del Instituto sobre Alcoholismo y Farmacodependencia (IAFA)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-08-13 | la propia norma |
+| 2 | 1994-06-30 | Decreto Ejecutivo 23497 (1994-06-30) |
