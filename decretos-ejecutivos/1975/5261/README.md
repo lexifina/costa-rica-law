@@ -14,3 +14,4 @@ Reglamento Ley Fomento Avícola
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-10-21 | la propia norma |
+| 2 | 1983-02-11 | Decreto Ejecutivo 14336 (1983-02-11) |
