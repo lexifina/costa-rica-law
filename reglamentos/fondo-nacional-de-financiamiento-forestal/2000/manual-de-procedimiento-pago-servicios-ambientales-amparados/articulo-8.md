@@ -1,0 +1,1 @@
+8°—Del monto a pagar. Se reconocerá un monto de $40.00 por hectárea por año, los cuales se pagarán al tipo de cambio en el momento de la firma del contrato, para las actividades de establecidas en el contrato.

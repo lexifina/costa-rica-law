@@ -1,0 +1,1 @@
+2°—Áreas a incluir. Todos los terrenos con bosque y en proceso de sucesión dentro de las cuencas de interés para la Compañía Nacional de Fuerza y Luz, que son: a) Cuenca del Río Balsa superior, b-) Cuenca del Río Aranjuez y c-) Cuenca del Lago Cote.
