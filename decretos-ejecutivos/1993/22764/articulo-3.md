@@ -1,0 +1,1 @@
+Artículo 3°-La Dirección General de Vida Silvestre podrá suscribir convenios de cooperación con las Asociaciones de Desarrollo o Asociaciones Conservacionistas de la localidad para la protección de los recursos naturales del Refugio.

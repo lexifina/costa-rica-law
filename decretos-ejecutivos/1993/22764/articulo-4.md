@@ -1,0 +1,1 @@
+Artículo 4°-Con el fin de manejar y conservar las poblaciones de vida silvestre del refugio, la presente declaratoria no afecta su condición de abrevadero público y el pastoreo para ganado vacuno, equino y porcino.
