@@ -1,0 +1,1 @@
+Art. 39.-Si algún reo se enfermase, el médico del pueblo pasará inmediatamente á visitarlo, y si el estado de su salud exigiese su traslación, lo indicará al Gobernador para que la disponga al Hospital de Puntarenas, en donde será mantenido, mientras se cura con la debida seguridad.

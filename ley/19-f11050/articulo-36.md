@@ -1,0 +1,1 @@
+Art. -36.-El establecimiento proveerá también de vestuario á los reos cuya pobreza lo exigiere. Dicho vestuario será sencillo y de abrigo, y su provisión podrá también contratarse, por el mismo medio indicado para la de los alimentos.

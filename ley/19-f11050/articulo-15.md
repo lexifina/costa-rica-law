@@ -1,0 +1,1 @@
+Art. 15.-El Gobernador asentará en un libro que llevará al efecto, el día y la hora en que recibe al reo, su filiación y demás señales que lo caractericen, el delito por que ha sido condenado, la pena impuesta y tiempo líquido de presidio, y lo enviará inmediatamente á la isla con una nota en que consten todas estas circunstancias.

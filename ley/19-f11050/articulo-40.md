@@ -1,0 +1,1 @@
+Art. 40.-El Gobernador, con aprobación del Poder Ejecutivo, contratará con el mismo médico del pueblo ó con otra persona, la provisión de las medicinas que se necesiten en el presidio para los reos que no hayan de pasar al Hospital, y dirigirá al Gobierno el presupuesto correspondiente, á fin de que se disponga su pago.

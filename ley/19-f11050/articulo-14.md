@@ -1,0 +1,1 @@
+Art. 14.-El Juez á quien corresponda la ejecución de la sentencia en que se haya impuesto cualquiera de las penas antedichas, remitirá el reo á Puntarenas, lo más tarde dentro de los treinta días siguientes, y lo pondrá á disposición del Gobernador, al cual enviará conjuntamente testimonio de la sentencia.

@@ -1,0 +1,1 @@
+Art. 10.-Cuando el importe de la realización anual de los productos de la isla, excediere del de los gastos totales del establecimiento en el mismo año, se destinarán dos terceras partes para el fondo de que habla el artículo 27 y la otra para el Teniente Gobernador de la isla, quien la gozará sin perjuicio de la dotación que le queda asignada en el artículo anterior.

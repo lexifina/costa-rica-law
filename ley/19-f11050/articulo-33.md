@@ -1,0 +1,1 @@
+Art. 33.-Cada vez que necesario fuere, á juicio del Teniente Gobernador, éste puede nombrar un racionero entre los reos que merecieren su confianza, quien pasará diariamente al Ecónomo cuenta del número de raciones que se necesiten para el día siguiente, en cuya mañana, temprano, el Ecónomo debe entregárselas conforme á la apreciación que hubiere hecho del pedido.
