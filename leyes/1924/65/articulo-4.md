@@ -1,0 +1,1 @@
+Artículo 4°—Con el fin de facilitar la venta de los Bonos Nacionales Oro de 1923 se faculta al Banco para conceder, por cuenta del Estado, hasta un diez por ciento de descuento sobre su valor nominal.
