@@ -1,0 +1,1 @@
+Artículo XXX.—Dentro del plazo establecido en el artículo de este reglamento, el Concejo Municipal llamará a los Concejos entrante y saliente para efectuar el intercambio de poder y la juramentación de rigor. De no cumplir alguno de los Concejales con esta disposición, el Concejo Municipal podrá recurrir a la autoridad competente, para que se cumpla con lo dispuesto.

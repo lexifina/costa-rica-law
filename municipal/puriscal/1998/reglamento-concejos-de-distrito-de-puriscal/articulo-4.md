@@ -1,0 +1,1 @@
+Artículo IV. — Los Concejos de Distrito serán integrados por 5 miembros propietarios, uno de los cuales será el síndico propietario, y cinco suplentes, uno de los cuales será el síndico suplente. Los suplentes en su orden de elección, suplirán a los propietarios ausentes en forma temporal o definitivamente.

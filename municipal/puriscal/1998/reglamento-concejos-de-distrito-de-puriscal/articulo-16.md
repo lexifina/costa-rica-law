@@ -1,0 +1,1 @@
+Artículo XVI.—La Municipalidad ejecutará sus obras o servicios públicos en cada distrito, atendiendo fundamentalmente las prioridades fijadas por el Concejo de Distrito en su plan de trabajo y que deben de ser incluidas en el plan general de la Municipalidad. Asimismo la Municipalidad les brindará informes trimestrales sobre los recursos invertidos y disponibles para el distrito.
