@@ -1,0 +1,1 @@
+Artículo 2º—Se comisiona al Director del Catastro Nacional del Registro Nacional, para que en coordinación con el Instituto Nacional de Vivienda y Urbanismo, se ordene el levantamiento e inscripción en el Catastro Nacional, del plano del área a segregar arriba descrita y del resto del inmueble.
