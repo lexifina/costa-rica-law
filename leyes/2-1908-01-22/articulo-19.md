@@ -1,0 +1,2 @@
+Artículo XIX
+El presente Tratado permanecerá en vigor por el término de diez años, contados desde el día del canje de las ratificaciones. Sin embargo, si un año antes de expirar dicho término no se hubiere hecho por alguna de las Partes contratantes notificación especial á las otras sobre la intención de terminarlo, continuará rigiendo hasta un año después de que se haya hecho la referida notificación.
