@@ -1,0 +1,1 @@
+Artículo 7º.-En el toril solo se permitir la permanencia de las personas que laboran en el miembros de la comisión, la autoridad policial encargada de la vigilancia y los delegados de la gobernación en función de inspección.

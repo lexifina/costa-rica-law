@@ -1,0 +1,1 @@
+Artículo 16.-No podrán utilizarse para la monta aquellos toros que han sido comprobados como "Cabeceadores", o tener manías que pongan en mayor riesgo al montador. Todo animal que se disponga para la monta, debe ser objeto de cumplimiento por el artículo 13 del presente Reglamento.

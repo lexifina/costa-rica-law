@@ -1,0 +1,1 @@
+Artículo 4º.-La autoridad policial deber supervisar el ingreso de personas a la plaza. Se prohíbe la entrada de menores de edad o mayores perturbados por consumo de bebidas alcohólicas o consumo de drogas.

@@ -1,0 +1,1 @@
+Artículo 12.-Los lanzadores formarán un equipo de trabajo y deberán tomar las medidas necesarias a fin de evitar accidentes. Los toreros improvisados no podrán interferir en el trabajo del lazador. La autoridad debe velar por el cumplimiento estricto de esta norma.

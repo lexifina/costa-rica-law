@@ -1,0 +1,2 @@
+Artículo 21.-Todo montador que sea llamado al toril, dispondrá de un máximo de cinco minutos para presentarse listo en la manga de salida.
+Una vez que esté sobre el lomo del toro, el montador tiene un máximo de treinta segundos para pedir la puerta, siempre y cuando el toro lo permita. En caso contrario, no podrá hacer la monta. Es prohibido al montador espuelar antes de pedir puerta, palmetear al toro ni sujetarse de la verijera.

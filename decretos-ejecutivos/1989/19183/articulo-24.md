@@ -1,0 +1,1 @@
+Artículo 24.-Para poder clasificar los montadores, deberán permanecer sobre el lomo del animal, el tiempo que la comisión haya estipulado, pero que no sea mayor del máximo señalado en el artículo 22 del presente Reglamento

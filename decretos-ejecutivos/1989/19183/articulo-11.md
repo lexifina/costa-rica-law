@@ -1,0 +1,1 @@
+Artículo 11.-Todo toro que se juegue, tiene que ser desmochado y arreglado, no debiendo existir ninguna astilla en los cuernos, que ofrezca peligro y deber encontrarse en el toril como mínimo una hora antes del inicio de las corridas.

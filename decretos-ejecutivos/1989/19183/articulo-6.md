@@ -1,0 +1,1 @@
+Artículo 6º.-No se permitir la permanencia en la plaza de personas ajenas a los actos del espectáculo taurino. Se permitir la permanencia de tres personas para asistir el torero en el caso de los toreros profesionales.

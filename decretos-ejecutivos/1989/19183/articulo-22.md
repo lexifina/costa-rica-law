@@ -1,0 +1,1 @@
+Artículo 22.-Cumplido el tiempo reglamentario, entre ocho y doce segundos, el cual depender de las condiciones de la plaza, el montador debe desalojar al animal en el primer instante que este lo posibilite.

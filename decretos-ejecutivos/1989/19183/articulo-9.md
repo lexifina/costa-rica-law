@@ -1,0 +1,1 @@
+Artículo 9º.-La comisión deber designar un encargado del toril, con conocimientos, cuyas funciones ser n de vigilar y colaborar con la autoridad, a fin de que se respeten las disposiciones que se expresan en este Reglamento. Especial atención debe dar al cuido de los animales.

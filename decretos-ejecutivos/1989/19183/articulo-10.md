@@ -1,0 +1,1 @@
+Artículo 10.-En toda plaza donde se jueguen "toros a la tica", se deber contar necesariamente con la presencia de dos toreros de reconocida capacidad como mínimo, para que acudan a socorrer, en caso de peligro, a las personas actoras del espectáculo.

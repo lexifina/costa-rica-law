@@ -1,0 +1,1 @@
+Artículo 8º.-Todo el personal que permanezca en el toril deber ser previamente acreditado por la comisión, a excepción del personal de la gobernación provincial, en funciones de inspección, Cruz Roja y autoridades de policía.
