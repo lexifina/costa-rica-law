@@ -16,3 +16,4 @@ Reglamento del Régimen de Excepción 1999
 | 1 | 1999-09-14 | la propia norma |
 | 2 | 2000-05-03 | Reglamento 0 (2000-05-03) |
 | 3 | 2002-06-21 | Reglamento 0 (2002-06-21) |
+| 4 | 2003-09-24 | Reglamento 0 (2003-09-24) |

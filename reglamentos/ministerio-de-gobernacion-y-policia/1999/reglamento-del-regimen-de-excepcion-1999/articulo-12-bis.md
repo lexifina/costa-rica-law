@@ -1,0 +1,2 @@
+Artículo 12 bis.—Tratándose de menores de edad representados por el Patronato Nacional de la Infancia, la declaración jurada a que se refiere el artículo 12 de este Reglamento, podrá sustituirse por un documento debidamente suscrito por el representante de esa Institución con poder suficiente, a efectos de tramitar la renovación respectiva.
+(Así adicionado y publicado en La Gaceta N° 219 del 13 de noviembre del 2003)
