@@ -1,0 +1,1 @@
+Artículo 30.—Pago y reintegro de dinero. Cuando a un funcionario se le compruebe culpa o dolo en pérdida o robo de bienes públicos, deberá restituir o pagar el bien de acuerdo con el valor de mercado. El pago del bien se hará de conformidad con los lineamientos establecidos para ese efecto.

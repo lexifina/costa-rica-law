@@ -1,0 +1,1 @@
+Artículo 4º—Formularios. El sistema informático de bienes contará con los formularios correspondientes para tramitar las altas de bienes, asignación, reasignación, préstamo concesión y baja de bienes. Asimismo, la institución podrán contar con otros formularios internos necesarios para dichos trámites.

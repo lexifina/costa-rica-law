@@ -1,0 +1,1 @@
+Artículo 5º—Inscripción de bienes. Las Oficinas Administrativas, a cuyo cargo se asignen bienes inscribibles, realizarán las gestiones necesarias para inscribir los bienes que por su naturaleza requieran ser inscritos en los respectivos registros públicos existentes. Esta actividad estará a cargo de las jefaturas administrativas de cada gerencia.

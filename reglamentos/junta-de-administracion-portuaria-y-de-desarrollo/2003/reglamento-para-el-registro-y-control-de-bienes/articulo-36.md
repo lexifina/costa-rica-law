@@ -1,0 +1,3 @@
+CAPÍTULO II
+Exclusión del registro de bienes
+Artículo 36.—Exclusión de bienes del inventario. Una vez que el acta esté debidamente aprobada y los bienes entregados a la institución beneficiada o hayan sido dados de baja por cualquier otro concepto, la instancia responsable de llevar este control procederá a excluir física y contablemente los mismos del inventario.
