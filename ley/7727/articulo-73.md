@@ -1,0 +1,10 @@
+ARTÍCULO 73.- Regulación de los centros
+Las regulaciones de los centros deben estar a disposición del público
+y contener, por lo menos, la lista de mediadores, conciliadores, árbitros
+o facilitadores, así como las tarifas, los honorarios y gastos
+administrativos y las reglas propias del proceso.
+Las entidades que operan con fines de lucro deben mantener a
+disposición del público, además de lo indicado, la información sobre otros
+rubros que se establezcan vía reglamento. Estas entidades podrán
+condicionar su servicio al otorgamiento de garantías razonables, las
+cuales serán establecidas en el reglamento de la presente ley.

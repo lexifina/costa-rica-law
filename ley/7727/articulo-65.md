@@ -1,0 +1,7 @@
+ARTÍCULO 65.- Recurso de nulidad
+El recurso de nulidad deberá interponerse ante la Sala Primera de la
+Corte Suprema de Justicia, por las causales establecidas en el artículo 67
+de la presente ley, dentro de los quince días siguientes a la notificación
+del laudo o la resolución que aclare o adicione la resolución. Este
+recurso no estará sujeto a formalidad alguna, pero deberá indicar la causa
+de nulidad en que se funda.
