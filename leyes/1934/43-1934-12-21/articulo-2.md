@@ -1,10 +1,2 @@
-ARTÖCULO 2§- El Poder Ejecutivo, una vez practicado el estudio
-del
-plano y especificaciones, podr , o bien construir el edificio por
-administraci¢n, o bien contratarlo, previa licitaci¢n. Para lo
-primero
-podr obtener un cr‚dito interior, dando en hipoteca la renta de
-Timbre
-de Archivos que por esta ley se crea; y para lo segundo, podr dar
-en
-favor del contratista la misma garant¡a.
+Artículo 2º- DEROGADO
+(Derogado por el artículo 3º de la Ley Nº 7202 de 24 de octubre de 1990).

@@ -1,11 +1,7 @@
-ARTÖCULO 8§- Una vez pagado el edificio para Archivos
-Nacionales a
-que se refiere esta ley, o antes si fuere posible, se proceder a
-construir en esa misma manzana el edificio o edificios que a juicio
-del
-Poder Ejecutivo fueren del caso, como Registro P£blico, oficinas
-judiciales o cualquier otro para instalar dependencias del
-Gobierno,
-siempre con los mismos arbitrios, o sea la renta del Timbre de
-Archivos.
-
+Artículo 8º- DEROGADO
+(Derogado por el artículo 3º de la Ley Nº 7202 de 24 de octubre de 1990).
+TRANSITORIO I: Los fondos generados por el timbre de archivos
+pasarán directamente a la Junta Administrativa del Archivo Nacional,
+hasta que esté totalmente construido y equipado el nuevo edificio del
+Archivo Nacional. Posteriormente retornarán a la caja única del Estado.
+(NOTA: Transitorio de la Ley Nº 7202 de 24 de octubre de 1990).

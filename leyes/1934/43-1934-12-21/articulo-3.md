@@ -1,13 +1,8 @@
-ARTÖCULO 3§- Para el objeto determinado en el pre mbulo de
-este
-decreto, se establece un impuesto de Timbre de Archivos. La
-Secretar¡a de
-Hacienda emitir timbres especiales, de los siguientes valores:
-diez y
-cincuenta c‚ntimos, uno y dos colones, y el producto de la venta de
-‚stos
-lo acreditar la Administraci¢n de Rentas P£blicas en cuenta
-separada.
-Mientras pueda pedir o imprimir esos sellos, dicha Secretar¡a
-habilitar los timbres correspondientes de esas denominaciones,
-cruz ndolos en tinta roja con la palabra "Archivos".
+Artículo 3.- Para el objeto determinado en el artículo anterior, se
+establece el Timbre de Archivos. El Banco Central de Costa Rica emitirá
+timbres especiales de los siguientes valores: cinco, diez, veinte, cien y
+doscientos colones. El producto de la venta de estos timbres, deducidos
+los costos, lo acreditará en la cuenta corriente de la Junta
+Administrativa del Archivo Nacional.
+(Así reformado por el artículo 3º de la Ley Nº 7202 de 24 de octubre de
+1990).
