@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión creada trabajará en forma ad honorem, como un servicio para sus propios compañeros; manejará el fondo creado, pero los cheques que se aprueben serán girados por JAPDEVA para los efectos de fiscalización. El fondo creado será puesto en una cuenta especial bancaria a nombre de JAPDEVA en cualquiera de los bancos del Estado.

@@ -1,0 +1,1 @@
+Artículo 16.—Cada propietario del lote adjudicado está en la obligación ineludible de limpiar el mismo al menos una vez al mes, incluyendo desde el canal de desagüe hasta la mitad de la calle. El incumplimiento de este artículo durante tres meses consecutivos le dará derecho a la Comisión de Vivienda de revocarle la adjudicación respectiva.

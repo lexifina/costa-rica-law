@@ -1,0 +1,1 @@
+Artículo 10.—La tramitación de las solicitudes de préstamo se harán en formularios especiales que suministrará la Empresa, a los que se agregarán los documentos que dichos formularios indiquen. Para tales efectos la institución diseñará y confeccionará los formularios apropiados, con los datos e información necesarios.

@@ -1,0 +1,9 @@
+Artículo 6º—Los préstamos se otorgarán solamente a los empleados de JAPDEVA que reúnan los siguientes requisitos:
+a) Tener aprobado un préstamo para la compra de una casa de habitación con alguna empresa, dedicada a la financiación de viviendas o tener necesidad comprobada de reparación o ampliación de su vivienda.
+b) Tener por lo menos dos (2) años de trabajar ininterrumpidamente con JAPDEVA.
+c) Se obligarán a garantizar el préstamo con hipoteca de segundo grado y fianza solidaria que se otorgará en la misma escritura que se compromete, en primer grado con la entidad prestataria la propiedad.
+d) Se exceptúan aquellos casos en que el beneficiario posea únicamente derecho de posesión, en cuyo caso se exigirá garantía fiduciaria y la firma del contrato correspondiente.
+e) El plazo máximo para el pago de dicho préstamo será de cuatro (4) años, con un período de tres meses de gracia, sin intereses corrientes, pero con un uno por ciento (1%) de intereses mensuales en caso de demora sobre los saldos atrasados.
+f) Los trabajos a realizar por los trabajadores beneficiarios de préstamos de vivienda, deberán iniciarse a más tardar un mes después de haber recibido el dinero, caso contrario se hará exigible el reintegro del mismo en su totalidad.
+g) Deberá autorizar a JAPDEVA para que ésta pueda retener de su salario el abono mensual correspondiente, todo lo cual constará en la escritura de hipoteca. Los intereses y plazo que rigen serán replanteados al descontar el documento.
+h) Cuando se trate de empleados que aporten certificados de matrimonio podrán solicitar préstamo dando como garantía la propiedad aunque esté a nombre del otro cónyuge, siempre y cuando aporte la correspondiente garantía hipotecaria y el empleado firmen y sin cónyuge y/o compañero (a) el pagaré por el monto de la operación.

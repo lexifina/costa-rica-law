@@ -1,0 +1,1 @@
+Artículo 18.—Este reglamento tiene vigencia y aplicabilidad en lo relativo a aspectos de adjudicación de lotes para todos los trabajadores con lotes adjudicados en la urbanización Los Cocos y cualquier otro proyecto de vivienda impulsado por la Institución.
