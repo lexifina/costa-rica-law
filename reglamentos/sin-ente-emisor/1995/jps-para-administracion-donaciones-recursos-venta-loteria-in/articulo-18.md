@@ -1,0 +1,1 @@
+Artículo 18.—Cuando se hubiera aprobado y comunicado una donación en los términos señalados en este Reglamento, el beneficiario deberá suscribir un convenio de responsabilidad con la Presidencia Ejecutiva de la Junta , en el que debe estipularse la forma en que se presentarán las liquidaciones correspondientes.

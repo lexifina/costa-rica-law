@@ -1,0 +1,1 @@
+Artículo 27.— La Auditoria Interna de la Junta velará por el fiel cumplimiento de este Reglamento así como de la correcta aplicación de los fondos en los proyectos aprobados por la Junta Directiva , para lo cual brindará los informes respectivos a la Junta Directiva.

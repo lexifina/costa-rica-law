@@ -1,0 +1,1 @@
+Artículo 12.—Cuando se trate de construcciones, se deben tener legalmente aprobados, los requisitos necesarios para el inicio de la construcción, tales como planos, estudio de factibilidad, permisos del INVU, IMAS, SNAA, etc.; además de garantizar y demostrar que cuentan con los recursos complementarios al aporte que apruebe la Junta.

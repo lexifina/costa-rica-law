@@ -1,0 +1,2 @@
+Artículo 20.—Las entidades beneficiadas con fondos de la Junta de Protección Social de San José, deben presentar semestralmente, un reporte completo sobre la utilización de dichos fondos. Caso de omitir su presentación, la Auditoria Interna de la Junta , realizará las intervenciones necesarias para verificar si cumplen o no con lo estipulado en estos extremos, con tas consecuencias legales respectivas.
+En caso de la finalización de un proyecto en un plazo menor al antes citado, deberá notificarlo en forma inmediata con la liquidación respectiva.

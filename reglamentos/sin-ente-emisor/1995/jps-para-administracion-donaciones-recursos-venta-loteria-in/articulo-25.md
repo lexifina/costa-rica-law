@@ -1,0 +1,1 @@
+Artículo 25.—Los fondos girados por concepto de donaciones, podrán ser invertidos momentáneamente, hasta su utilización en el fin específico que le dio orígen, en inversiones a plazo fijo y otros títulos valores adquiridos en el mercado primario del Sector Público.

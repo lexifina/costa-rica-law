@@ -1,0 +1,1 @@
+Articulo 4°—Esta Comisión tiene como objeto el recibir, de la Presidencia de la Junta de Protección Social de San José, las solicitudes de donación con el propósito de analizarlas y remitirlas nuevamente a la Presidencia con las observaciones del caso para la decisión que corresponda por parte de la Junta Directiva.

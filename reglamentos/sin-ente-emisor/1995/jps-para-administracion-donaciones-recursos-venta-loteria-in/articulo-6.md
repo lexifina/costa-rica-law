@@ -1,0 +1,1 @@
+Artículo 6°— La Comisión sesionará ordinariamente el último miércoles de cada mes y extraordinariamente cuando así lo considere la Comisión , o al menos tres de sus miembros, o a solicitud expresa de la Presidencia.
