@@ -1,0 +1,2 @@
+Art. 4:-La presente concesión caducará de hecho si la construcción del camino expresado no estuviese concluída dentro del término de dos años.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los cinco días del mes de marzo de mil ochocientos ochenta y seis.-AND. SÁENZ,-Vicepresidente.-JUAN J. U- LLOA G., Secretario.-Palacio Presidencial.-San José, á los cinco días del mes de marzo de mil ocho- cientos ochenta y seis.-Ejecútese.-BERNARDO SOTO. El Secretario de Estado en el despacho de Fomento, C. DURÁN.
