@@ -1,0 +1,1 @@
+Artículo 3°—La Comisión cumplirá sus funciones durante un plazo de quince meses a partir de la publicación del presente decreto, a cuyo vencimiento informará al Ministerio de Planificación Nacional y Política Económica y al Instituto de Fomento Cooperativo de su actuación, asumiendo este último los proyectos y funciones que viniere desempeñando la Comisión.
