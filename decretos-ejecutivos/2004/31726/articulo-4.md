@@ -1,0 +1,1 @@
+Artículo 4°—De la Mecánica de los Sorteos. La mecánica de los sorteos de la Lotería Popular denominada Tiempos, para cada una de sus modalidades de “Tiempos” y de “Tiempos Apuntaditos” los determinará la Junta, atendiendo a su conveniencia y a los factores del mercado que enfrenta.

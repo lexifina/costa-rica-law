@@ -1,0 +1,1 @@
+Artículo 7°—De la Forma de Pago de los Descuentos. La Junta de Protección Social de San José reglamentará la metodología, el plazo, la forma, las fechas y forma de distribución en que se procederá para realizar el pago de los descuentos y de las comisiones a los vendedores autorizados.

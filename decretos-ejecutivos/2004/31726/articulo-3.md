@@ -1,0 +1,3 @@
+Artículo 3°—De la Comercialización, Distribución y Modalidades de la Lotería Tiempos. La Lotería Popular denominada Tiempos se distribuirá por la Junta de Protección Social de San José en las modalidades de:
+a. “Tiempos”, emitida en billetes con numeración preimpresa, en números del 00 al 99, que participan en el sorteo respectivo para elegir los números ganadores, y.
+b. “Tiempos Apuntaditos”, comercializada con boletos o billetes cuyos números para participar en el sorteo respectivo se anotan por parte del vendedor autorizado de conformidad con la elección del cliente y según el importe monetario que éste desee invertir.

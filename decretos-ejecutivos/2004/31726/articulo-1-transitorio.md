@@ -1,0 +1,3 @@
+DISPOSICIONES TRANSITORIAS
+Transitorio único.—De los Recursos Publicitarios. A partir de la vigencia del presente reglamento, para el lanzamiento de la Lotería Popular denominada Tiempos, en su modalidad de “Tiempos Apuntaditos”, la Junta podrá utilizar, por una única vez en el ejercicio presupuestario 2004, los recursos publicitarios destinados para sus otros productos, con el objeto de realizar las campañas publicitarias de lanzamiento y mantenimiento con cargo a los productos de donde se tomaron los recursos.
+Dado en la Presidencia de la República.—San José, a los veinticinco días del mes de marzo del

@@ -1,0 +1,1 @@
+Artículo 10.—De la Modalidad de Juegos y los Planes de Premios. La modalidad de los juegos y el plan de premios de la Lotería Popular denominada Tiempos, en cualquiera de sus modalidades, serán definidos, a solicitud de la Gerencia General, por la Junta Directiva de la Junta de Protección Social de San José.
