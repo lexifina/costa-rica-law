@@ -1,0 +1,1 @@
+Artículo 47. -En todo caso, la aplicación de las sanciones previstas, excepción hecha de las menores de conformidad con el artículo anterior, acarreará la suspensión definitiva de nuevos' beneficios fiscales en favor de la empresa sancionada.

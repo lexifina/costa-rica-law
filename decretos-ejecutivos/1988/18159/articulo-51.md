@@ -1,0 +1,1 @@
+Artículo 51.-Las empresas arrendantes están obligadas a conservar los vehículos automotores en buen estado de mantenimiento e higiene y a suscribir seguros que los proteja de colisión y vuelco, daños a terceros y destrucción total.
