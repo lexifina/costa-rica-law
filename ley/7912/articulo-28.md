@@ -1,4 +1,9 @@
-CAPÍTULO VI
-TRIBUNAL DE HONOR Y LAS SANCIONES DISCIPLINARIAS
-ARTÍCULO 28.- Competencia
-La Asamblea General ordinaria nombrará un Tribunal de Honor compuesto de tres miembros, que actuará como cuerpo colegiado y conocerá las discrepancias o diferencias personales que surjan entre los miembros activos del Colegio. Este Tribunal será escogido de entre los miembros del Colegio de reconocida solvencia moral.
+ARTÍCULO 28.- Funciones del fiscal
+Son funciones del fiscal:
+a) Velar por el cumplimiento de esta ley y de los reglamentos del Colegio, así como por la debida ejecución de los acuerdos y las resoluciones de la Asamblea General y la Junta Directiva.
+b) Revisar trimestralmente los registros de tesorería o los estados bancarios y visar las cuentas del tesorero.
+c) Promover, junto con el presidente, las acusaciones judiciales contra quienes ejerzan ilegalmente la profesión de los miembros activos del Colegio.
+d) Presentar un informe anual ante la Asamblea General sobre las actuaciones de la Junta Directiva.
+e) Velar tanto por el buen ejercicio de la profesión como por los derechos y deberes de los asociados.
+f) Levantar las informaciones sumarias de las quejas presentadas contra los miembros del Colegio y presentar un informe con sus recomendaciones a la Junta Directiva conforme al artículo 30 de la presente ley.
+(Así modificada su numeración por el artículo 2 de la Ley N° 8139 de 1 de octubre del 2001, que lo pasó del 27 al 28)

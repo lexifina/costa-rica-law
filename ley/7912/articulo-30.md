@@ -1,2 +1,9 @@
-ARTÍCULO 30.- Imposición de sanciones
-El procedimiento para imponer las sanciones será fijado por la Asamblea General del Colegio, especialmente convocada para el efecto y en él se garantizarán los principios del debido proceso.
+ARTÍCULO 30.- Sanciones
+Corresponde suspender en el ejercicio de su profesión a un quiropráctico colegiado cuando:
+a) Publique o autorice cualquier documento firmado por él, con información falsa o incompleta.
+b) Revele información, violando así el secreto profesional.
+c) Trate de desviar, en provecho propio o de un tercero, la clientela de otro colegiado, mediante actuaciones dolosas o propaganda desleal.
+d) Exhiba o acredite públicamente o con fin ilícito, referencias o atestados profesionales falsos.
+e) Se niegue, sin motivo justificado, a brindar información o rendir cuentas a sus clientes.
+f) Cometa faltas en general, contra la probidad u honradez en el ejercicio de la profesión, no comprendidas en los incisos anteriores.
+(Así modificada su numeración por el artículo 2 de la Ley N° 8139 de 1 de octubre del 2001, que lo pasó del 29 al 30)

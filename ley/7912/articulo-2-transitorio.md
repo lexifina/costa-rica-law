@@ -1,0 +1,2 @@
+Transitorio II.- Para el reconocimiento y la equiparación de los títulos otorgados en el extranjero, el CONARE realizará el trámite respectivo. El Colegio podrá celebrar su primera Asamblea General cuando existan, en el país, profesionales debidamente acreditados por CONARE, quienes se considerarán colegiados de pleno derecho.
+(Así adicionado por el artículo 2 de la Ley N° 8139 de 1 de octubre del 2001)
