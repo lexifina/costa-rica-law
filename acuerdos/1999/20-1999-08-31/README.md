@@ -14,3 +14,4 @@ Instrucciones para el Cumplimiento de la Obligación de Comunicación a que se R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-12 | la propia norma |
+| 2 | 2004-07-13 | Acuerdo 92 (2004-07-13) |
