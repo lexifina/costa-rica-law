@@ -1,1 +1,0 @@
-Artículo 41.—Los vehículos no deben dejarse estacionados en ' lugares donde se ponga en peligro la seguridad de los mismos, sus accesorios, materiales o equipos que transportan. Así como estacionarlos innecesariamente frente a lugares donde se expendan bebidas alcohólicas, etc.; que dañen la imagen de la Institución.

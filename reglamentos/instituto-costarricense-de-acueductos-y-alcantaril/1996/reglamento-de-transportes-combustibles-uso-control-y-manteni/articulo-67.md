@@ -1,1 +1,0 @@
-Artículo 67.—Mensualmente cada Proceso deberá remitir al Proceso de Bienes y Servicios un informe con el detalle del recorrido y consumo de todos los vehículos, mediante la fórmula "Control de Combustible y Kilómetros Recorridos", indicando las observaciones correspondientes para los vehículos que no circularon durante el período.

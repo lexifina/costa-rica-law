@@ -1,1 +1,0 @@
-Artículo 75.—Los usuarios deben presentarse a realizar su liquidación de cupones consumidos y retirar los nuevos, de acuerdo al cronograma que para tai efecto cada Proceso tenga en vigencia, y dependiendo además de las techas límites de envío de las Boletas de Movimiento de Vehículos, que establezca el Proceso Financiero Contable.

@@ -1,1 +1,0 @@
-Artículo 43.—Es responsabilidad exclusiva de cada conductor el cumplimiento de lo establecido en el presente capítulo, de ahí que si acata . órdenes que contravenga dichas disposiciones asumirá las consecuencias í que esa acción origine, quedando a salvo el deber de obediencia contemplado en el Artículo 107, 108, 109 y 110 de la Ley General de la Administración Pública.

@@ -1,2 +1,0 @@
-Artículo 18.—El Proceso de Bienes y Servicios podrá por probada conveniencia, redistribuir o reasignar vehículos en operación, de un Proceso a otro en el tanto con ello se logre una utilización más racional de este recurso, previa autorización de la Presidencia Ejecutiva.
-Se exceptúan los vehículos adquiridos con fondos específicos externos, los cuales deben ser utilizados en actividades propias de dicho programa.

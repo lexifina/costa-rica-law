@@ -1,1 +1,0 @@
-Artículo 31.—Existirán diferentes tipos de licencias institucionales, las cuales corresponden a los descritas en la Ley de Tránsito. Se definirá i cada caso; y dependiendo de las características de los vehículos que inducirá regularmente el funcionario; el tipo de licencia del AyA que se .tenderá y su vigencia.

@@ -1,1 +1,0 @@
-Artículo 94.—Cuando un vehículo requiera reparaciones mecánicas cuyas causas, según informe técnico, se deban a negligencia del conductor, éste podría ser sancionando disciplinaria y pecuniariamente de acuerdo con el acto final que adopte el órgano competente, previa realización del debido proceso.

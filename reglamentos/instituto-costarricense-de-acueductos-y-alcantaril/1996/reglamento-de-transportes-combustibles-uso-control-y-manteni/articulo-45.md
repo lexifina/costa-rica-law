@@ -1,1 +1,0 @@
-Artículo 45.—Desde el momento en que se le otorga la licencia de AyA para conducir los vehículos de la Institución, el conductor acepta conocer las Leyes de Tránsito, su Reglamento y los Reglamentos de la Institución, Por ello debe velar por su cumplimiento. Sus infracciones son sancionadas a nivel penal, de tránsito y laboral.

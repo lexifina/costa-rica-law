@@ -1,1 +1,0 @@
-Artículo 8°—La Administración Superior, mantendrá la desconcentración parcial o total de la Administración y Prestación de los Servicios de transporte en otro u otros procesos toda vez que con ello se logre una mayor oportunidad y eficiencia.

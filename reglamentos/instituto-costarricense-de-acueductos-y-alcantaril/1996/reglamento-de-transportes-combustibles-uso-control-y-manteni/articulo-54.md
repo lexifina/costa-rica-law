@@ -1,1 +1,0 @@
-Artículo 54.—Los Procesos que distribuyen el combustible en forma independiente deben reportar mensualmente al Proceso de Bienes y Servicios el consumo en litros y recorrido en kilómetros de cada vehículo, para el control y evaluación del rendimiento.

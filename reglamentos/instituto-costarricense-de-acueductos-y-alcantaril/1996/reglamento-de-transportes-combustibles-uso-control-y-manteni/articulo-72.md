@@ -1,1 +1,0 @@
-Artículo 72.—El fiscalizador archiva la fórmula "Justificación de Cantidad a Pedir", y envía al Proceso de Bienes y Servicios (Administración de Materiales) la Solicitud de Equipo y Materiales, con el debido trámite de contenido presupuestario, con la cual podrá hacer retiro de los cupones solicitados.

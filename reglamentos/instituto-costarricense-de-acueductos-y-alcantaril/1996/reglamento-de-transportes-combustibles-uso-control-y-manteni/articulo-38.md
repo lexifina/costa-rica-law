@@ -1,1 +1,0 @@
-Artículo 38.—Los conductores de vehículos institucionales no podrán hacer intercambios de componentes mecánicos o accesorios entre unidades, aun desechadas, si no cuentan con la aprobación del Proceso de Bienes y Servicios.

@@ -1,1 +1,0 @@
-Artículo 95.—Los conductores son responsables de la buena conservación de todos los accesorios que usan los vehículos para su funcionamiento y comodidad, así como también de aquellas herramientas y artículos que les sean entregados por medio de Vale de Herramientas.

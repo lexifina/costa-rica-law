@@ -1,1 +1,0 @@
-Artículo 21.—Son requisitos indispensables de orden administrativo, para que un automotor propiedad del AyA pueda circular, estar debidamente rotulado con el emblema de la Institución, número AyA correspondiente y tener placa oficial o permiso provisional o temporal extendido por el Registro Público de la Propiedad de Vehículos.

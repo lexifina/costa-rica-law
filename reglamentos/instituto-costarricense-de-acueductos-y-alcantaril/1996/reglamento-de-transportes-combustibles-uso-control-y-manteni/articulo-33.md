@@ -1,1 +1,0 @@
-Artículo 33.—El Proceso de Bienes y Servicios, podrá suspender la licencia del AyA, de cualquier conductor de la Institución que contravenga [crudamente lo dispuesto en la Ley de Tránsito, en otras leyes vigentes la materia, en este Reglamento o los procedimientos establecidos. Ver inciso "1" del artículo 7.

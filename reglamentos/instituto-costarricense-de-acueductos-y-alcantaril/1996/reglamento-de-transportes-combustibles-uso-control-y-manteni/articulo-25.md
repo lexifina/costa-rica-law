@@ -1,1 +1,0 @@
-Artículo 25.—Corresponde al Proceso de Bienes y Servicios, establecer las normas de mantenimiento, trámites y procedimientos de reparación de los vehículos del AyA. Todos los Procesos que tengan a su servicio vehículos institucionales, tienen también la responsabilidad por medio de sus Coordinadores de velar por el buen cuido y mantenimiento de las unidades.

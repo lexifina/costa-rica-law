@@ -1,1 +1,0 @@
-Artículo 81.—En la fórmula "Entrega y Liquidación de Cupones de Combustible", en Encargado del Combustible llena los espacios correspondientes a la liquidación, firmando de conformidad el usuario y el Encargado del Combustible.

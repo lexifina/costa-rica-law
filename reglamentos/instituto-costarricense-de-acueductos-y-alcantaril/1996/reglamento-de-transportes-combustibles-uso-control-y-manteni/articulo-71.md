@@ -1,1 +1,0 @@
-Artículo 71.— El encargado de combustible preparará cada mes la fórmula "Solicitud de Equipo y Materiales" para los cupones de Recope, con base en la fórmula "Justificación de Cantidad a Pedir" y será firmada por el fiscalizador, previa revisión de ambos formularios.

@@ -1,1 +1,0 @@
-Artículo 82.—En caso de que queden cupones sin liquidar o devueltos, se registrará en el espacio correspondiente, en la fórmula "Entrega y Liquidación de Cupones de Combustible", y se rebajarán de la nueva entrega.
