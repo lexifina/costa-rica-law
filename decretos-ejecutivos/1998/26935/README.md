@@ -15,3 +15,4 @@ Reglamento a la Ley Sobre Desarrollo de la Comunidad
 | --- | --- | --- |
 | 1 | 1998-05-21 | la propia norma |
 | 2 | 2002-06-27 | Decreto Ejecutivo 30546 (2002-06-27) |
+| 3 | 2002-11-26 | Decreto Ejecutivo 30940 (2002-11-26) |

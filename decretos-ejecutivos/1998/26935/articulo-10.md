@@ -1,1 +1,2 @@
-Artículo 10.—En ausencia del Director General, éste será sustituido por el funcionario que él designe, previa comunicación al Ministro de Gobernación y Policía y al Consejo Nacional de Desarrollo de la Comunidad.
+Artículo 10.— En caso de ausencia temporal del Director Nacional, éste será suplido por el funcionario que el Presidente de la República designe a sugerencia del primero.
+(Así reformado por Decreto Ejecutivo N° 30940 de 26 de noviembre de 2002)
