@@ -13,3 +13,4 @@ CGR: Reglamento Interno de Trabajo, Aprobado por Inspección de Trabajo
 | --- | --- | --- |
 | 1 | 1955-05-24 | la propia norma |
 | 2 | 1996-05-03 | Reglamento 4 (1996-05-03) |
+| 3 | 1996-05-03 | Ley 8 |
