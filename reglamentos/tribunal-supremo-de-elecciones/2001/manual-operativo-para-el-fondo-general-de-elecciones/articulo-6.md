@@ -1,19 +1,17 @@
 6º—Responsables de cada proceso
 a) Solicitud de contratar con cargo al fondo Proveeduría
-b) Autorización para contratar con cargo al fondo Tribunal Supremo
-de Elecciones
+b) Autorización para contratar con cargo al fondo Tribunal Supremo de Elecciones
 c) Contratación del bien o servicio Proveeduría
-d) Autorización para contratar en forma directa Tribunal Supremo
-de Elecciones
+d) Autorización para contratar en forma directa Tribunal Supremo de Elecciones
 e) Emisión de Orden de Compra. Proveeduría
 f) Visado Orden de Compra. Asesoría Jurídica
-g) Recibido conforme del bien o servicio. Organo Fiscalizador
+g) Recibido conforme del bien o servicio. Coordinador de Programas Electorales o Encargado de programa.
+(Así reformado por decreto del Tribunal Supremo de Elecciones N° 14 de 21 de noviembre del 2002)
 h) Recepción y envío de facturas a Contaduría Proveeduría
 i) Autorización de confección de cheque Contador o Subcontador
 j) Confección de cheque Jerry Araya *
 k) Confrontación de cheque Minor Castillo *
-l) Firma de cheques. Dos Magistrados y
-Contador o Subcontador
+l) Firma de cheques. Dos Magistrados y Contador o Subcontador
 m) Registro de cheques Minor Castillo *
 n) Custodia de cheques. Fabián Jiménez *
 o) Registro firmas de proveedores Fabián Jiménez *
