@@ -1,0 +1,1 @@
+Artículo 14.—El estudiante que goce del beneficio de beca deberá entregar a la Secretaría Municipal Bimestral, Trimestral o Semestralmente, de acuerdo en la institución correspondiente que estudie, una copia de su nota o reporte de calificaciones, además de una certificación o constancia emitida por el Departamento de Orientación o Registro de cada institución.

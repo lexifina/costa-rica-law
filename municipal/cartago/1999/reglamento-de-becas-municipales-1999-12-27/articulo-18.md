@@ -1,0 +1,1 @@
+Artículo 18.—La Comisión de Educación realizará las gestiones correspondientes para abrir una libreta de ahorros para cada estudiante becado en el Banco Crédito Agrícola de Cartago a fin de que en la primera semana de cada mes el monto correspondiente asignado por concepto de beca municipal sea depositado a cada uno de los beneficiarios.

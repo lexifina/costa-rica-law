@@ -1,0 +1,1 @@
+Artículo 19.—La Tesorería Municipal girará en los tres primeros días hábiles del cada mes el listado de becados y el monto general correspondiente por concepto de pago de becas municipales al Banco Crédito Agrícola de Cartago para que dicha entidad bancaria deposite en la cuenta de ahorros correspondiente de cada becado el monto asignado para cada uno.
