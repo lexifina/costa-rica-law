@@ -1,0 +1,1 @@
+Artículo 29.—La entidad debe considerar dentro del plan de continuidad, un apartado donde se detallen acciones, procedimientos y recursos que consideren los riesgos posibles, que afecten de forma parcial o total la operativa normal de los servicios financieros por Internet.

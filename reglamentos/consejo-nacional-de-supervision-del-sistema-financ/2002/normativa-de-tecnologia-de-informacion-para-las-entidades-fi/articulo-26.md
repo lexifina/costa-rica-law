@@ -1,0 +1,1 @@
+Artículo 26.—La entidad debe contar con cobertura de seguros para los principales equipos de cómputo y comunicaciones que permita mitigar el riesgo provocado por incendio, impacto de rayo, explosión, implosión, humo, gases o líquidos corrosivos, corto circuito, variaciones de voltaje, huelga, motín, robo, asalto y fenómenos naturales.

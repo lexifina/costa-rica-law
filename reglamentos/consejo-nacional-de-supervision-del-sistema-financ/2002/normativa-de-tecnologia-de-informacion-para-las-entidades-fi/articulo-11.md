@@ -1,0 +1,1 @@
+Artículo 11.—La entidad que subcontrate parte o la totalidad de su procesamiento de datos en nuestro país, deberá incluir en los contratos que suscriba, una cláusula que permita a esta Superintendencia la supervisión de las tareas contratadas en las instalaciones del proveedor.

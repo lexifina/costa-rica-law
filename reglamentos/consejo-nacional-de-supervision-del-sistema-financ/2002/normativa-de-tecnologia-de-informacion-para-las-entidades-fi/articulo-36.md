@@ -1,0 +1,1 @@
+Artículo 36.—La entidad debe remitir a la Superintendencia General de Entidades Financieras, durante el mes de mayo de cada año, todos aquellos informes sobre el área de tecnología de información en el sitio remoto, emitidos por las auditorías internas y externas. Estos informes deben traducirse al idioma castellano por un traductor autorizado.

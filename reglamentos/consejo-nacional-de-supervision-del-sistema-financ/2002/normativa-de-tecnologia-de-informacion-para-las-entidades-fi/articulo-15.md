@@ -1,0 +1,1 @@
+Artículo 15.—La entidad debe contar con procedimientos de control que regulen las condiciones ambientales del (los) centro(s) de cómputo y comunicaciones, que proporcionen un ambiente físico conveniente para su funcionamiento y protejan los recursos materiales y al personal de TI contra peligros naturales o fallas humanas.

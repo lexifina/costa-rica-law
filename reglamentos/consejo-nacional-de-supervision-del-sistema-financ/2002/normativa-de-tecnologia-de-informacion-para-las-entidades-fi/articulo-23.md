@@ -1,0 +1,1 @@
+Artículo 23.—La entidad debe establecer y mantener actualizadas políticas y procedimientos para el respaldo y recuperación de la información, que le permitan tener acceso a la misma durante periodos de emergencia, causados por desperfectos en los equipos, pérdida de información u otras situaciones similares.
