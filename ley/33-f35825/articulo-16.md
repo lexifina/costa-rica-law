@@ -1,0 +1,1 @@
+Art 16° Las cantidades de Tabaco o Licor fijadas, como mínimum de venta, en el artículo 5° del citado Decreto de 5 de julio, se refieren a una sola clase del respectivo género, y no pueden comprender.
