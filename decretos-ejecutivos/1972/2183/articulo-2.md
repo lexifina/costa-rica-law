@@ -1,0 +1,2 @@
+Artículo 2°—Declárense oficiales los nombres geográficos aprobados por la Comisión Costarricense de Nomenclatura, a saber;
+Platanillo, para la villa cabecera del distrito de Tayutic, 8° del cantón de Turrialba. Cereceda (conocida como Barreal o Guadalupe), para la villa cabecera del distrito de Curubandé, y del cantón de Liberia, a fin de perpetuar la memoria de don Andrés de Cereceda, Tesorero y compañero de Gil González de Ávila, durante la expedición realizada en Costa Rica por los españoles en 1522 y 1523.

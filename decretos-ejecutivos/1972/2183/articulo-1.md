@@ -1,0 +1,8 @@
+N° 2183-G-C
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE GOBERNACIÓN, POLICÍA, JUSTICIA
+Y GRACIA Y DE CULTURA, JUVENTUD Y DEPORTE,
+De conformidad con lo dispuesto por la ley No 3535 y lo acordado por la Comisión Costarricense de Nomenclatura, en las sesiones celebradas el 19 de noviembre y el 2 de diciembre de 1971,
+DECRETAN:
+Artículo 1°—Declárense oficiales los nombres geográficos aprobados por la Comisión Costarricense de Nomenclatura, a saber:
+Mogote, para el distrito 3° del cantón de Bagaces, por ser nombre autóctono. Sámara, para el distrito 5° del cantón de Nicoya, por ser nombre autóctono. Carrandi, para el distrito 3° del cantón de Matina, en memoria del ilustre Gobernador capitán interino de Costa Rica, de 1730-1739, don Francisco Antonio de Carrandi y Menán. Guaycara, para el distrito 5° del cantón de Golfito en recuerdo del cacique Guaycara, principal del pueblo de Cucaca. Mayorga, para el distrito 3° de Liberia, como homenaje al distinguido ciudadano guanacasteco y propulsor de la cultura como maestro de escuela. Lic. Francisco Mayorga Rivas, Diputado de varios periodos y Ministro en la Segunda Administración González Víquez. Nacascolo y Curubandé, para los distritos 4° y 5° del cantón de Liberia, por ser nombres autóctonos. Cutris, nombre indígena del río San Carlos, para el distrito 11 del cantón de San Carlos. Tures y Pará, para los distritos 7° y 8° del cantón de Santo Domingo de Heredia, por ser nombres autóctonos. Rodriguez, para el distrito 5° del cantón de Valverde Vega, en memoria del ejemplar ciudadano don Herminio Rodríguez González, quien en vida fuera persona muy preocupada por los problemas del lugar y zonas aledañas.
