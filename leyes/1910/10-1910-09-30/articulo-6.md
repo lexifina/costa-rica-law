@@ -1,0 +1,1 @@
+Artículo 6° Luego que el deudor haya consignado el valor o precio respectivo, se resolverá mandando considerar el inmueble libre de la hipoteca. Del auto firme que así lo decida, se dará certificación al interesado a fin de que le sirva de título y pueda, presentadola al Registro Público, obtener la cancelación de la inscripción o inscripciones respectivas.
