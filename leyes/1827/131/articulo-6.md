@@ -1,0 +1,1 @@
+ARTÍCULO 6°.-Los trabajos comenzarán el 15 de noviembre. Serán gobernados por la persona ó personas, según la multitud de ellos, que la Municipalidad nombre con la dotación que ella juzgue proporcionada, y se suspender n cuando ella misma crea oportuno, según los tiempos y lugares.
