@@ -1,0 +1,1 @@
+Artículo 8. El Patronato Nacional de la Infancia propiciará las campañas educativas e informativas dirigidas a los padres de familia para que preferentemente sus hijos asistan a cafés Internet certificados como "libres de pornografía".

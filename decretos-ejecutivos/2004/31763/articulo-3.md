@@ -1,0 +1,1 @@
+Artículo 3º—Las solicitudes para el otorgamiento del Permiso Sanitario de Funcionamiento se regirán por lo que al respecto establece el Reglamento General para el otorgamiento de los Permisos Sanitarios de Funcionamiento por parte del Ministerio de Salud, emitido mediante Decreto Ejecutivo Nº 30465-S del 9 de mayo del 2002, publicado en La Gaceta Nº 102 del 29 de mayo del 2002.

@@ -1,0 +1,1 @@
+Artículo 6º—Las autoridades del Ministerio de Seguridad Pública, del Ministerio de Salud y del Patronato Nacional de la Infancia, cada una en el ejercicio de sus propias competencias y en forma coordinada, están facultadas para hacer cumplir el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 2º—Las autoridades de Salud podrán otorgar o renovar el permiso sanitario de funcionamiento a los establecimientos comerciales que se definen en el inciso b) del artículo primero, en apego a las normas aquí establecidas.
