@@ -1,0 +1,1 @@
+Artículo 17.—Cuando un abogado tenga que retirarse de su bufete por un plazo mayor a ocho días hábiles, deberá comunicarlo previamente por escrito al Departamento de Rentas y Cobranzas e indicar el profesional en derecho que queda a cargo de los casos que le fueron asignados para cualquier duda o consulta que se presente por parte de la Institución.

@@ -1,0 +1,1 @@
+Artículo 16.—Todos los abogados nombrados por la Municipalidad deberán presentar informes de los casos asignados en la forma prevista por este Reglamento y dentro de los primeros cinco días hábiles de cada mes, el incumplimiento de esta disposición faculta a la oficina a suspender la entrega de nuevos casos de cuentas morosas.
