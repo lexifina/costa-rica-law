@@ -1,0 +1,1 @@
+Artículo 14.- Las sesiones del Consejo, se desarrollarán conforme con el orden del día, previamente elaborado, la cuál podrá ser modificada o alterada mediante moción aprobada por el Concejo por simple mayoría.

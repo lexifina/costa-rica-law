@@ -1,0 +1,1 @@
+Artículo 43.- Si se presentan memoriales que dirijan los particulares al Concejo, la Secretaría lo examinará y si resulta que lo solicitado es de competencia del ejecutivo, lo enviará a dicho funcionario para le dé el trámite que corresponda, de lo anterior se informará al informante.

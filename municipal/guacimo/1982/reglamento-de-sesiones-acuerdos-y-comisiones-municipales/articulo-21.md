@@ -1,0 +1,2 @@
+Artículo 21.- De toda sesión del Concejo, se levantará un acta en la que se harán constar los acuerdos tomados suscitadamente las deliberaciones habidas, salvo en casos de nombramientos o elecciones, en lo que se hará constar únicamente el acuerdo tomado.
+Las actas deberán ser firmadas por el Presidente y el Secretario, una vez aprobada por el Concejo. Podrán llevarse en hojas sueltas, sólo si fueren previamente foliadas y selladas por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 37.- Los dictámenes de las comisiones deberán presentarse por escritos y firmados por todos los miembros de la comisión. Los que no lo aprueban podrán rendir dictamen por separado, si lo estiman conveniente.

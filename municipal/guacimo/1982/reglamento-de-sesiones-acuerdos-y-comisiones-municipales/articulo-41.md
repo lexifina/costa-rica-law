@@ -1,0 +1,1 @@
+Artículo 41.- La Secretaría remitirá al Concejo, en orden de presentación las solicitudes que representen a los particulares. El Concejo decidirá si acepto o no la petición formulada, tomando en cuenta el interés municipal, la oportunidad y cualquier otro elemento que se considere pertinente.

@@ -1,0 +1,3 @@
+CAPITULO III
+De las votaciones.
+Artículo 32.- Al dar por discutido un asunto, el Presidente del Concejo dará un término prudencial para recibir la votación correspondiente, procurando que ésta se realice cuando todos los regidores esté ocupando lo curules. Los regidores deberán dar su voto necesariamente en sentido afirmativo o negativo. El regidor que razone su voto deberá circunscribirse al tema objeto de la votación y no podrá emplear más de diez minutos en esa intervención, además deberá presentarlo por escrito al Secretario para su inclusión en el acta. Un regidor puede solicitarle a otro, que razone su voto.

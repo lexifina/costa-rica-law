@@ -1,0 +1,1 @@
+Artículo 12.- El regidor que sustituye al propietario, tendrá derecho a permanecer durante la sesión como miembro del Concejo, con voz y voto y el derecho a devengar dieta, si la situación se hubiere efectuado después de los quince minutos a que se refiere el artículo anterior o si aunque se hubiere efectuado con anterioridad el propietario no se hubiere presentado.

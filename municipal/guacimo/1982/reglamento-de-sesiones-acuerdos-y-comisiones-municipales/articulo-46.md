@@ -1,0 +1,1 @@
+Artículo 46.- Finalizadas las exposiciones de los particulares el Presidente concederá el uso de la palabra a los regidores que lo solicitan con el fin de que puedan intercambiar opiniones con los visitantes sobre el asunto que se trate.

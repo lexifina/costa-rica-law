@@ -1,0 +1,1 @@
+Artículo 35.- Una vez designadas las comisiones, por el Presidente Municipal, sus miembros en la sesión de instalación que de instalación que deberá celebrarse dentro de los quince días si siguientes, nombrará de su seno a un coordinador y un secretario.

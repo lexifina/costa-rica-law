@@ -1,0 +1,1 @@
+Artículo 28.- En cualquier momento, en el debate, podrán presentarse mociones de orden en relación con el asunto que se discute. La moción de orden, suspenderá el debate, hasta no sea discutida y votada por el Concejo.

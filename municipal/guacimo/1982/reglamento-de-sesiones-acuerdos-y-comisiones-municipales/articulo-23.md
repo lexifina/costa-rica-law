@@ -1,0 +1,1 @@
+Artículo 23.- Todo acuerdo se tomará previo dictamen de una comisión del Concejo y después de considerarse suficientemente discutido el asunto. El dictamen de comisión podrá dispensarse en casos urgentes si el Concejo lo acuerda de simple mayoría de votos.

@@ -1,0 +1,1 @@
+Artículo 30.- Presentada una moción de orden se concederá el uso de la palabra en primer término al proponente y luego a los regidores que la solicitan, sin que pueda exceder los diez minutos, cada intervención y un máximo de dos intervenciones obre la misma moción.

@@ -1,0 +1,1 @@
+Artículo 18.- El Presidente municipal, calificará los asuntos de trámites urgentes, por iniciativa del Presidente de o uno de los regidores, o más de los regidores, si el Concejo así lo acuerda por simple mayoría.

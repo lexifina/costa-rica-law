@@ -1,0 +1,1 @@
+Artículo 38.- El Concejo municipal, podrá pasar dictámenes de comisión a conocimiento de otra comisión o alguna designada especialmente por el Presidente, para que se pronuncia sobre el caso concreto.

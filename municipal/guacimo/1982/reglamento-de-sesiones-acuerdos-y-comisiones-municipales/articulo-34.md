@@ -1,0 +1,1 @@
+Artículo 34.- Toda comisión estará integrada por cinco o más miembros, de éstos deberán escogerse necesariamente de entre los regidores propietarios y suplente. Podrán integrar estas comisiones funcionarios y empleados de la Municipalidad y personas ajenas a ella. Los jefes de departamento formarán parte de las comisiones.
