@@ -1,5 +1,10 @@
-SECCION V
-Riña y Agresión
-Riña
-Artículo 139.- Se impondrá de cinco a cuarenta días multa o prisión de dos a seis meses al que tomare parte en una riña en la que intervinieren dos o más personas.
-Si en la riña resultare la muerte de alguno sin que se determine quién o quiénes fueron los autores, se impondrá prisión de tres a seis años a los que ejercieron violencia física sobre la persona del ofendido o intervinieron con armas. Se resultaren lesiones gravísimas la pena será de dos a cinco años de prisión; si fueren graves, de uno a tres años y si fueren leves, de seis meses a un año.
+SECCIÓN V
+Homicidio o lesiones en riña(*)
+(*) (Mediante el artículo 2º de la ley Nº 6726 de 10 de marzo de 1982 se modificó el título de esta sección)
+Muerte o lesiones en riña
+Artículo 139.- Cuando en una riña o agresión en que pelearen varios contra varios, o varios contra uno, resultaren lesiones o muerte, si que conste su autor, a los que ejercieron violencia física sobre el ofendido o intervinieron usando armas, se les impondrá prisión de la siguiente manera:
+1) De tres a seis años, en caso de muerte;
+2) De año y medio a cuatro años, si resultaren lesiones gravísimas;
+3) De seis meses a tres años, si resultaren lesiones graves; y
+4) De uno a seis meses, si resultaren lesiones leves.
+(Así reformado por el artículo 1° de la ley N° 6726 del 10 de marzo de 1982)
