@@ -13,3 +13,4 @@ Reglamento General de Gestión Fiscalización y Recaudación Tributaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-28 | la propia norma |
+| 2 | 1996-03-28 | SINALEVI (sin norma nombrada) |
