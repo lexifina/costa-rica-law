@@ -1,0 +1,4 @@
+ANEXO No. 7
+RESOLUCIÓN No. 118-2004 (COMIECO)
+CERTIFICADO DE REGISTRO Y LIBRE VENTA DE PLAGUICIDAS AGRÍCOLAS Y SUSTANCIAS AFINES
+(Por tratarse de un formulario ver Gaceta impresa No. 179 del 13 de setiembre del 2004)
