@@ -1,0 +1,1 @@
+Artículo 10.-Los propietarios serán reemplazados, en sus ausencias temporales o definitivas, por los suplentes. El cargo vacante de suplente hasta completar el período, será llenado por la propia Junta, integrada para este efecto con el otro u otros suplentes, que en esa ocasión tendrán derecho a voto; pero este nombramiento deberá ser ratificado por la Dirección de Operaciones.

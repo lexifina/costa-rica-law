@@ -1,0 +1,1 @@
+Articulo 11.-La Dirección de Operaciones podrá cesar de su cargo a cualquier miembro de la Junta que faltare a tres reuniones consecutivas sin causa justificada, o cuando, previa denuncia e investigación, se le comprobar-en faltas o hechos no compatibles con sus funciones, deberes y responsabilidades.

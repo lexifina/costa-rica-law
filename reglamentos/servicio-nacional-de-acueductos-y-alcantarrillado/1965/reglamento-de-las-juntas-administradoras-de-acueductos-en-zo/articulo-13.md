@@ -1,0 +1,2 @@
+Articulo 13.-EI quórum para las sesiones, tanto ordinarias como extraordinarias, se completará con tres miembros, uno de ellos necesariamente su Presidente, Las resoluciones se tomarán por mayoría simple de votos, y quedarán firmes una vez aprobadas por el delegado del Servicio, salvo aquellas que éste deba elevar a consideración de la Dirección de Operaciones, en cuyo caso quedarán firmes en la próxima sesión ordinaria.
+En caso de empate, el Presidente tendrá doble voto.

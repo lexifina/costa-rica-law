@@ -1,0 +1,3 @@
+Artículo 17.-La Junta Administradora se encargará de recoger y controlar los aportes de la comunidad que se indican en el inciso e) del artículo anterior.
+Si los aportes son en dinero efectivo, deberá depositarlos, a nombre del Servicio en la sucursal bancaria más cercana en una cuenta especial abierta al efecto si son en materiales, o en cualesquiera otros bienes deberá guardarlos a la orden del Servicio, y custodiarlos; si son en transporte o mano de obra, deberá ponerlos a la disposición del Servicio para la oportunidad en que éste haya de emplearlos.
+Para cubrir el aporte en dinero efectivo, la comunidad gozará de un año de plazo, a partir de la fecha de instalación de la Junta, y podrá hacerla de una sola vez o en pagos mensuales.

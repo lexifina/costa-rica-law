@@ -1,0 +1,2 @@
+Artículo 14.-A las sesiones de la Junta deberán asistir los suplentes, con derecho a voz, salvo en los casos en que sustituyan a los propietarios, en que tendrán también derecho a voto.
+Cualquier vecino podrá asistir a las sesiones, salvo cuando la Junta acordare sesionar en privado. El Presidente podrá dar la palabra a los vecinos cuando lo considere conveniente, y para referirse únicamente a los asuntos que se estarán tratando.
