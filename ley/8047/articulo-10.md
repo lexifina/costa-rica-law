@@ -1,0 +1,1 @@
+ARTÍCULO 10.- Para acogerse a los beneficios de esta Ley, se analizará la información sobre los agricultores presentada ante el CNP por los acreedores señalados en el artículo 2 de esta Ley, a más tardar quince días hábiles después de la publicación del Reglamento de la presente Ley.

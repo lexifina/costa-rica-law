@@ -1,0 +1,1 @@
+ARTÍCULO 11.- El CNP deberá proceder, dentro de los dos meses siguientes contados a partir de la fecha en que se apruebe el respectivo presupuesto extraordinario, a cancelar las obligaciones señaladas en la presente Ley.

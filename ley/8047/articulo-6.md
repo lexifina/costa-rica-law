@@ -1,0 +1,1 @@
+ARTÍCULO 6.- Antes de realizar cualquier pago, el CNP determinará cuáles son las entidades acreedoras y las sumas adeudadas por concepto de intereses y gastos legales, según certificaciones emitidas por estas entidades. Asimismo, requerir una declaración jurada en la que cada beneficiario indique cultivos perdidos, lugar de siembra, porcentaje de pérdida y monto estimado de esta.

@@ -1,0 +1,1 @@
+ARTÍCULO 8.- Para el cumplimiento de esta Ley, el CNP procederá a cancelar directamente a las entidades acreedoras los extremos indicados en el artículo 2 de esta Ley. Después de realizar el pago, el CNP le entregará al beneficiario una copia del documento que acredite la cancelación respectiva.
