@@ -1,0 +1,1 @@
+Articulo 13.—Fiscalización. La Fiscalización de cumplimiento de este Reglamento estará a cargo de la Auditoria Interna de BN SFI. El Comité de Licitaciones deberá remitir copia de las actas a la Auditoria Interna de la sociedad dentro de los cinco días hábiles después de firmadas las mismas.

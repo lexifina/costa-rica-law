@@ -1,0 +1,1 @@
+Articulo 10.—Sesiones. El órgano, se reunirá con la frecuencia y el día, hora y lugar que el mismo órgano disponga, sin embargo, quedará válidamente constituido sin existir los requisitos referentes a convocatoria y orden del día, cuando esté presente la mayoría absoluta de sus miembros.

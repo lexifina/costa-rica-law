@@ -1,0 +1,1 @@
+Articulo 4°—De las ausencias. Las ausencias del presidente serán suplidas por el funcionario de mayor jerarquía de entre los miembros del Comité, en caso de existir dos o más miembros, que por su jerarquía pudieran sustituir al presidente en sus ausencias, el puesto recaerá en el funcionario de mayor antigüedad en el servicio a BN SFI.
