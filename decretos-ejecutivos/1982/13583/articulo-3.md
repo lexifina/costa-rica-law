@@ -1,0 +1,1 @@
+Artículo 3°—Para los efectos de la Ley General de Administración Pública, N9 6227 de 2 de mayo de 1978, el citado Plan que el Poder Ejecutivo acoge, constituye una directriz que deberá ser acatada en los términos de la citada ley.
