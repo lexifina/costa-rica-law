@@ -1,0 +1,1 @@
+Artículo 7°—Plazo para solicitudes. Toda solicitud de autorización de un espectáculo público deberá realizarse por lo menos con seis días hábiles de anticipación a la realización de la actividad, incluso las que puedan ser exoneradas. Se excluyen los espectáculos de carácter deportivo.

@@ -1,0 +1,1 @@
+Artículo 3°—Base imponible. La base imponible para efectos del impuesto aquí reglamentado es el valor total de cada boleto, tiquete o entrada individual. Cuando se establezca consumo mínimo en algún espectáculo de los descritos en el artículo anterior, se deberá pagar también sobre este el impuesto correspondiente, se cobre aparte de la entrada al espectáculo o no.

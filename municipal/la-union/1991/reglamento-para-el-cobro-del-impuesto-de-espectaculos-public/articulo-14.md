@@ -1,0 +1,1 @@
+Artículo 14.—Coordinación. Las personas autorizadas por este reglamento coordinarán constantemente con la Dirección Ejecutiva, la Guardia de Asistencia Rural y la Gobernación de la Provincia con el fin de obtener la máxima colaboración en el cumplimiento cabal de este reglamento y la ley respectiva.

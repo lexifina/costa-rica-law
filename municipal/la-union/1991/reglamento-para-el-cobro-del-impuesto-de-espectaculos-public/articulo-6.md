@@ -1,0 +1,1 @@
+Artículo 6°—Limitación a exenciones. Toda solicitud para exonerar del impuesto aquí reglamentado a una actividad, deberá contar con el visto bueno del Concejo de Distrito respectivo o en su defecto de la Asociación de Desarrollo Integral de la comunidad donde se ha de realizar.

@@ -1,0 +1,1 @@
+Artículo 4°—Monto del impuesto. El monto del impuesto consistirá en un 5% (cinco por ciento) del valor de las entradas a los espectáculos anteriormente descritos, o en su defecto del consumo mínimo establecido.
