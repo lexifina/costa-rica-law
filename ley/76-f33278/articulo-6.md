@@ -1,0 +1,1 @@
+Art. 6. Las ventas al menudeo de toda clase de vinos solo se permitirán en las establecidas legalmente para licores extranjeros; no exigiendose por aquellas ningun derecho en el referido puerto; pero las que se establezcan en el Departamento del Guanacaste serán con entera sujecion à lo dispuesto por los articulos 3, 4 y 5 Sección 1° del reglamento de 8 de julio de 1846.
