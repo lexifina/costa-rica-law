@@ -1,0 +1,1 @@
+Artículo 24.-El vista asignado hará el registro y reconocimiento de la mercancía en la bodegas de la empresa compradora y procederá en lo que corresponda tal como indican las normas vigentes en cuanto a exportación.

@@ -1,0 +1,1 @@
+Artículo 13.-Para el traslado de la mercancía de la Aduana de ingreso a la Zona, se utilizará como documento único el manifiesto de carga correspondiente. Cuando lo considere estrictamente necesario el administrador de la aduana asignará un custodia al vehículo que transporta la mercancía.

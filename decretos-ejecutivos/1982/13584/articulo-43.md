@@ -1,0 +1,1 @@
+Artículo 43.-Las empresas industriales que tengan a su vez actividades comerciales de bienes no fabricados por ellas, para tener derecho a los privilegios fiscales establecidos en el artículo 12 inciso f) de la Ley, deberán registrar en su contabilidad por separado los ingresos y gastos provenientes de cada una de esas actividades.

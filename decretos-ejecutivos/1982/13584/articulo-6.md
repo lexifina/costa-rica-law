@@ -1,0 +1,1 @@
+Artículo 6º.-El ingreso y salida de vehículos en la Zona sólo podrá hacerse en los lugares destinados para tal efecto. Previo al ingreso y permanencia de vehículos, la administración emitirá el permiso correspondiente, ya sea permanente u ocasional.

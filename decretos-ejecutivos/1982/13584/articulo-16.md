@@ -1,0 +1,1 @@
+Artículo 16.-Una vez revisado los documentos de solicitud de descarga y desalmacenamiento de la mercadería y revisado los marchamos y el estado general del vehículo, la aduana autorizará la descarga de los bultos en las bodegas de la empresa, los cuales serán contados y pesados por un funcionario aduanero, para la verificación de la cantidad y peso declarados.

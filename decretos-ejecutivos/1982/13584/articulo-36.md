@@ -1,0 +1,1 @@
+Artículo 36.-La aduana de redestino recibirá la mercancía, de acuerdo con los procedimientos y requisitos al respecto. Ingresada la mercancía bajo la jurisdicción de la aduana de redestino, corren todos los términos que se establecen en la Cauca Recauca para la mercadería almacenada.

@@ -1,0 +1,1 @@
+Artículo 41.-El equipo de oficina, o industrial y la maquinaria usada, podrán ser vendidos por las empresas establecidas en las Zonas, en el mercado costarricense, previo el pago de los impuestos correspondientes, previa solicitud a la Corporación, la cual podrá hacer la recomendación al MEIC.

@@ -1,0 +1,1 @@
+Artículo 35.-La aduana de la Zona, autorizará el traslado de la mercancía a la aduana del redestino con la guía, como documento único. La aduana podrá asignar custodia al vehículo que transporta la mercancía, cuando lo considere pertinente. No mediará la caución de los impuestos de importación correspondientes a la mercancía redestinada.

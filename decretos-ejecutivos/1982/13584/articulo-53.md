@@ -1,0 +1,1 @@
+Artículo 53.-Si la Corporación determina el incumplimiento, por parte de una empresa de una o más condiciones establecidas en el Acuerdo, lo comunicará al MEIC, el cual realizará las investigaciones pertinentes y procederá en lo que corresponda de acuerdo con lo que establece la Ley.

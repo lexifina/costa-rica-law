@@ -1,0 +1,1 @@
+Artículo 5º.-La entrada y salida de toda persona únicamente podrá hacerse por el puesto principal de la Zona, en donde se establecerá la vigilancia correspondiente exigiendo la presentación y entrega del pase en su caso cuando la persona abandone el recinto de la misma.

@@ -1,0 +1,1 @@
+Artículo 38.-La aduana hará los cálculos de los gravámenes que afectan la importación de estas mercancías, previa deducción a la base imponible del valor de la mano de obras nacional directa incorporado al precio del producto final.

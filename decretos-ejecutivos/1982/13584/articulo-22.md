@@ -1,0 +1,1 @@
+Artículo 22.-Para los efectos del artículo 16 de la Ley, las mercancías vendidas por empresas nacionales a empresas ubicadas en la Zonas, se considerarán como exportaciones nacionales; dichas mercancías se someterán a lo dispuesto en el capítulo I del Título 6 del Recauca y en leyes nacionales conexas.

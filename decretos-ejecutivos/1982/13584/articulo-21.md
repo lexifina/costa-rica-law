@@ -1,0 +1,1 @@
+Artículo 21.-Si las anomalías a que se refieren los tres artículos anteriores se producen reiteradamente, la aduana lo pondrá en conocimiento de la Corporación y el MEIC, para que éstos analicen si es procedente multar al consignatario o revocar su concesión todo de acuerdo a la ley.

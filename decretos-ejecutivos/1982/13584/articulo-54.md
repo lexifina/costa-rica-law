@@ -1,0 +1,1 @@
+Artículo 54.-Le corresponderá al MEIC asistido por la Corporación velar por el correcto uso y destino de la maquinaria, equipo, materia prima y cualesquiera otros artículos importados al amparo de la Ley.

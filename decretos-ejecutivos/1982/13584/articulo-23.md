@@ -1,0 +1,1 @@
+Artículo 23.-Al ingreso de las mercancías a que se refiere el artículo anterior, a la Zona; se deberá presentar en el puesto de aduana, la póliza de exportación, copia de factura (0/1) y cuando se trate de materia prima la autorización del MEIC.

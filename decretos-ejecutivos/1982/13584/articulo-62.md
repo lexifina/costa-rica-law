@@ -1,0 +1,1 @@
+Artículo 62.-El MEIC, la Corporación y la Administración Aduanera emitirán los instructivos y disposiciones adicionales sobre la materia que considere necesario y serán de acatamiento obligatorio para las empresas y funcionarios de dichas instituciones públicas.

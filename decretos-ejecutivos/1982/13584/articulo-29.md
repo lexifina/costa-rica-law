@@ -1,0 +1,1 @@
+Artículo 29.-La aduana por donde se embarcará la mercancía, con las tres copias de la póliza de exportación automáticamente permitirá el embarque de ésta. Sin embargo, en casos excepcionales podrá revisar la mercancía y contar los bultos cuando lo estime necesario.

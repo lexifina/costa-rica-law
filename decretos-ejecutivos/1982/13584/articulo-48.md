@@ -1,0 +1,1 @@
+Artículo 48.-Las divisas de las empresas establecidas en la zona requieran para hacer sus pagos de insumos locales y de sus gastos fijos, deberán ser cambiadas en los bancos del Sistema Bancario Nacional, al tipo libre bancario o de similar naturaleza que se establezca.

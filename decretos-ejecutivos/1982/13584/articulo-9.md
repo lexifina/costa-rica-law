@@ -1,0 +1,1 @@
+Artículo 9º.-La administración aduanera podrá asimismo ejercer vigilancia cuando lo considere oportuno y necesario en el lugar que crea conveniente, para lo efectos del artículo 55 de este reglamento.
