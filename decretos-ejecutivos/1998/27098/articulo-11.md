@@ -1,1 +1,3 @@
-Artículo 11.—Precalificación. Cuando la Administración concedente lo estime oportuno, en la decisión inicial, podrá disponer que el proceso de licitación se realice previa etapa de precalificación para evaluar la experiencia técnica, financiera y de disponibilidad de los oferentes
+Artículo 11.—Precalificación. Cuando la Administración concedente lo estime oportuno, en la decisión inicial, podrá disponer que el proceso de licitación se realice previa etapa de precalificación para evaluar la experiencia técnica, 'financiera y de disponibilidad de los oferentes.
+Para realizar la precalificación no será requisito que el estudio de factibilidad esté acompañado de la consulta a la Autoridad Reguladora de los Servicios Públicos a que se refiere el numeral 7.3, que podrá realizarse en una etapa posterior, pero siempre de previo a la publicación del cartel de la licitación
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 27253 de 25 de agosto de 1998)

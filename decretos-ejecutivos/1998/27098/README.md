@@ -14,3 +14,4 @@ Reglamento General Concesión de Obras Públicas con Servicios Públicos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-16 | la propia norma |
+| 2 | 1998-08-25 | Decreto Ejecutivo 27253 (1998-08-25) |
