@@ -1,0 +1,1 @@
+Art. 16.-Zelará el desembarque de efectos, aunque sean partidas pequeñas, sin que se haya previamente dado la licencia escrita de desembarque por el Administrador de la Aduana, cuya copia debe conservar, y confrontar con el manifiesto: todo efecto que se presente sin este requisito caer en comiso.

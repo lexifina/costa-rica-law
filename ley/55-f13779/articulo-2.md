@@ -1,0 +1,1 @@
+Art. 2°. -Habrá igualmente un Jefe de resguardado conocida honradez que sepa leer y escribir y tenga conocimientos de contabilidad, el cual dará fianza en proporción de su sueldo, que deber ser el de quinientos pesos anuales.
