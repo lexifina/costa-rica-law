@@ -14,3 +14,4 @@ Crea la Red Nacional de Formación Ambiental (RNFA)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-04-19 | la propia norma |
+| 2 | 1989-08-29 | Decreto Ejecutivo 19144 (1989-08-29) |
