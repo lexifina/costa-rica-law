@@ -1,0 +1,2 @@
+Artículo 2º—En virtud de esta Declaratoria de Utilidad Pública, cada vez que dicha Asociación desee hacer uso de franquicias y concesiones de orden administrativo y económico, deberá contar con la aprobación del Ministerio de Hacienda.
+Artículo 3º—Es deber de la Asociación rendir anualmente un informe ante el Ministerio de Justicia, de conformidad con lo indicado en el artículo 32 del Reglamento a la Ley de Asociaciones.
