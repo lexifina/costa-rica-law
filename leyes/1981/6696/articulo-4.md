@@ -1,0 +1,4 @@
+CAPITULO II
+Del control de precios, de la canasta básica y de los salarios
+ARTÍCULO 4º.- El Ministerio de Economía, Industria y Comercio queda obligado a organizar y a poner en marcha, a más tardar treinta días después de la vigencia de esta ley, un programa específico de control selectivo de los precios, costo y margen de utilidad de las medicinas esenciales incluidas en el cuadro básico de la Caja Costarricense de Seguro Social, de los insumos e implementos agrícolas y de los alimentos de la llamada "canasta básica", señalados por ese Ministerio. El Ministerio deberá publicar, una vez al año, en el Diario Oficial "La Gaceta", las listas de los artículos y los precios correspondientes.
+Para la ejecución de este programa, el Ministerio podrá solicitar personal calificado a otras dependencias del Poder Ejecutivo, las cuales quedan autorizadas para facilitarlo.

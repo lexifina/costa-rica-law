@@ -1,0 +1,11 @@
+ARTÍCULO 8º.- Para los efectos del artículo 96 de la Ley Orgánica del Banco Central de Costa Rica, y sin perjuicio de las atribuciones que dicho artículo otorga al mencionado Banco, los siguientes rubros serán considerados entre las importaciones y servicios esenciales:
+8.1.- Insumos e implementos agrícolas;
+8.2.- Utiles, textos y libros, escolares y universitarios;
+8.3.- Medicamentos incluidos en el cuadro básico de la Caja Costarricense de Seguro Social, y otros considerados esenciales, a juicio del Ministerio de Salud.
+(Así reformado por el artículo 1 de la ley No.6707 de 22 de diciembre de 1981)
+8.4.- Papel y tinta para los medios de información, para la Editorial Costa Rica, para las editoriales de los centros de enseñanza superior estatales, y para los materiales necesarios del Centro Costarricense de Producción Cinematográfica, adscrito al Ministerio de Cultura, Juventud y Deportes.
+(Así reformado por el artículo 1 de la ley No.6707 de 22 de diciembre de 1981)
+8.5.- Importaciones que haga el Consejo Nacional de la Producción, de artículos de consumo básico;
+8.6.- Gastos de estudiantes costarricenses, que al momento de publicarse la ley Nº 6696 se encontraren siguiendo cursos universitarios o de enseñanza superior en el extranjero, conforme al reglamento que dictará el Banco Central de Costa Rica.
+(Así reformado por el artículo 1 de la ley No.6707 de 22 de diciembre de 1981)
+(Este inciso fue interpretado auténticamente por el artículo 50 de la Ley de Presupuesto No.7018 de 20 de diciembre de 1985 en el sentido de que la presente norma obliga al Poder Ejecutivo a subvencionar a los estudiantes costarricenses que sigan estudios universitarios de enseñanza superior fuera del país, que por sus circunstancias económicas así lo requieran, únicamente con los ingresos provenientes de los tributos creados por esa ley, según el orden de prioridades ahí establecido. Igualmente se interpreta que es obligación del Banco Central de Costa Rica, en su condición de cajero del Gobierno, entregar dicha subvención únicamente si de previo ha recibido la orden en ese sentido, de parte de la Tesorería Nacional; así como que el Banco Central de Costa Rica está obligado a proveer divisas al tipo de cambio oficial vigente al momento de la venta de las divisas, a todos los estudios universitarios de enseñanza superior fuera del país.)

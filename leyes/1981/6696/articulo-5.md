@@ -1,0 +1,1 @@
+ARTÍCULO 5º.- Para los efectos de esta ley, el Ministerio de Economía, Industria y Comercio elaborará, dentro de los treinta días siguientes a la vigencia de esta ley, la lista de artículos de la "canasta básica".
