@@ -1,4 +1,4 @@
-Artículo 3º.- La Junta Administrativa del Museo Nacional negociará
+ARTICULO 3º.- La Junta Administrativa del Museo Nacional negociará
 con el Banco Central la emisión, distribución y venta del timbre que en
 esta ley se establece. El importe del impuesto deberá ser destinado por
 la citada Junta a la adquisición de piezas arqueológicas, artísticas y de

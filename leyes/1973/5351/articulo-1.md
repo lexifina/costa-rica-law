@@ -1,7 +1,6 @@
-Artículo 1º.- Se establece un impuesto de dos colones (¢ 2.00) sobre
-todo pasaje a cualquier lugar de la República, expedido por las empresas
-de aviación que trabajen dentro del territorio nacional.
-Asimismo, se establece un impuesto de cinco colones (¢ 5.00) por
-cada pasaje internacional emitido a título gratuito u oneroso, tanto que
-se expida en el país como en el exterior, para viajes que se originen en
-Costa Rica.
+ARTICULO 1º.- Se establece un impuesto de cien colones (100,00) por
+cada pasaje aéreo internacional, emitido a título oneroso, que se expida
+tanto en el país como en el exterior, por parte de agencias de viaje o
+empresas aéreas con actividad comercial en Costa Rica.
+(Así reformado por el artículo 23, numeral 9, de Ley de Presupuesto No.
+7108 de 8 de noviembre de 1988)
