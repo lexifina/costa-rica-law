@@ -1,0 +1,1 @@
+Artículo 8°-El responsable de la calificación y la afiliación será el Ministerio de Salud, por lo que la Oficina de Afiliación de la Caja se limitará a proveer a los beneficiarios el respectivo carné, con base en la constancia otorgada por el Ministerio.
