@@ -1,0 +1,4 @@
+Artículo 5º—Del recurso humano. Se establecen los siguientes requisitos para el recurso humano que labora en los establecimientos que se regulan en la presente normativa:
+1) El establecimiento debe estar a cargo de una persona que asuma la administración y responsabilidad legal de los procedimientos que se llevan a cabo.
+2) El establecimiento debe contar con personal de aseo y oficinista o recepcionista que atienda las solicitudes y el manejo de la agenda.
+3) El personal técnico encargado de realizar el procedimiento debe contar con capacitación o constancia de idoneidad en materia de tatuajes o procesos invasivos con fines de estética y con cursos reconocidos por el Ministerio de Salud sobre: manejo de desechos infecto-contagioso, técnicas de desinfección y esterilización y primeros auxilios.
