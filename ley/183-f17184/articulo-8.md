@@ -1,0 +1,1 @@
+8°.- La pencion que los Curas hasta ahora han pagado a la Mitra y Colegio de Nicaragua la pagarán en lo sucesivo al Estado para la educación pública exigiéndola doble al que por qualquiera pretesto se resista.
