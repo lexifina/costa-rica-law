@@ -1,0 +1,1 @@
+Artículo 10. — La Comisión a que se refiere el artículo anterior, funcionará como órgano de cooperación de los Concejos de Distrito, con el fin de brindarles la asistencia que proceda relacionada con los proyectos que sean de interés para un distrito o grupo de ellos aislada o conjuntamente.
