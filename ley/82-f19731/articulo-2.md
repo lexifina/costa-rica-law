@@ -1,0 +1,1 @@
+Art 2.- Podrá igualmente contratar el mismo efecto con otros Gobiernos, o con personas particulares que quieran comprarlo para estraher fuera del Estado, hasta con un real menos del precio establecido en las tercenas del mismo.
