@@ -1,0 +1,1 @@
+ARTICULO 8°.-El Registrador General ejercer la inspección, as¡ sobre la recaudación exacta de los derechos, como sobre la contabilidad, dictando las órdenes que tenga por convenientes fin de que no se defrauden los derechos del fisco.

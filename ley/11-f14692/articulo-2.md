@@ -1,0 +1,1 @@
+ARTICULO 2°.-Dicho Oficial auxiliar recibir del Oficial primero todos los documentos que causen derechos con la debida anotación de ellos, asentando la correspondiente partida en el libro de cargo respectivo.
