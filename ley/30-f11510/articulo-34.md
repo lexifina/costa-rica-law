@@ -1,0 +1,1 @@
+Artículo 34.-Siempre que se hipotequen bienes pertenecientes á personas que no tengan la libre disposición de ellos, se asegurará el Cartulario de que se han cumplido los requisitos y formalidades que para tales casos exijen las leyes, y lo hará constar en la escritura.

@@ -1,0 +1,1 @@
+Artículo 33.-Cuando se hipotecaren ferro-carriles, canales, puentes ú otras obras destinadas al servicio público, que haya concedido el Gobierno por diez ó mas años se declarará que queda pendiente dicha hipoteca de la resolucion del derecho del concesionario

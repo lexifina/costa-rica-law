@@ -1,0 +1,1 @@
+Artículo 27.-Los Cartularios no insertarán en ninguna escritura, aunque los otorgantes lo reclamen, la claúsula jeneral de quedar hipotecados todos los bienes presentes ó futuros, en seguridad del cumplimiento de las obligaciones estipuladas.

@@ -1,0 +1,1 @@
+Artículo 31.-La escritura en se hipoteque la mera propiedad de alguna finca, espresará la circunstancia de que si el usufructo se consolidare con ella, se estenderá á este la hipoteca, á menos que los otorgantes estipulen algo en contrario, lo cual se hará necesariamente constar.

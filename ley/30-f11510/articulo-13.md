@@ -1,0 +1,1 @@
+Artículo 13.-En ningun caso omitirán los Cartularios, en las escrituras que se refieran á fincas, la espresion de su cabida ó estension, con arreglos á la medida legal del pais. Si los interesados no pudieren señalar con exactitud, pero sí aproximadamente, se espresará de este modo en la escritura; y si tampoco así pudieren determinarla, se hara constar esta circunstancia.
