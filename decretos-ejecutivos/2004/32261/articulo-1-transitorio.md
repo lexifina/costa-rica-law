@@ -1,0 +1,2 @@
+Transitorio I.—En tanto se emite la norma técnica a que hace referencia el artículo 4 anterior, los vehículos taxis que se inscriban en una concesión destinada a la transportación de personas con discapacidad, deberán contar con las características del artículo 2 inciso 6 del Decreto Nº 28913-MOPT.
+Dado en la Presidencia de la República.—San José, a los 29 días del mes de noviembre del dos mil cuatro.

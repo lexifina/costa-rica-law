@@ -1,0 +1,2 @@
+Artículo 2º—Característica de taxis de bases urbanas. Los vehículos taxi catalogados como urbanos, serán vehículos para el transporte de personas, con capacidad para cinco pasajeros, incluyendo al conductor, con acceso a los asientos por cuatro puertas laterales. Podrán contar con un acceso a la parte trasera o al portaequipaje por una o dos compuerta en su parte trasera, según el tipo de carrocería del vehículo.
+Asimismo deberán cumplir con las condiciones generales establecidas en el artículo 1 anterior.

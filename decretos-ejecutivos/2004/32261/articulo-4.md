@@ -1,0 +1,2 @@
+Artículo 4º—Característica de taxis adaptados para personas
+con discapacidad. Los vehículos taxis adaptados para personas con discapacidad deberán cumplir con las disposiciones técnicas que al efecto emita el Consejo y que deberán considerar la utilización de la estructura, tecnología y dispositivos que permitan un servicio eficiente para las personas con discapacidad. Deberán tener una capacidad para cinco pasajeros incluyendo el conductor.
