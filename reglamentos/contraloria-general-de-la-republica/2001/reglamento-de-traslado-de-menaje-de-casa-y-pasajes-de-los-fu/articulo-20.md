@@ -1,0 +1,1 @@
+Artículo 20.—De la devolución de billetes o boletos. Los funcionarios que por cualquier circunstancia no hicieren uso de su pasaje o de los que se otorguen a los miembros de su núcleo familiar y servidores domésticos, deberán hacer devolución de los mismos, dentro de los 10 días hábiles siguientes a aquel en que debieron haber sido utilizados.

@@ -1,0 +1,1 @@
+Artículo 4°—Definición de Funcionario del Servicio Exterior. Para los efectos de este Reglamento, se entiende por funcionario del Servicio Exterior a aquel legalmente nombrado por el Poder Ejecutivo, para el desempeño de cargos en las diferentes misiones diplomáticas y consulares de nuestro país en el extranjero, con un salario asignado en la ley de Presupuesto de la República.

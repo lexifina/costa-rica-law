@@ -1,0 +1,1 @@
+Artículo 3°—Definición de pasajes. Se entiende por pasaje, el billete o boleto aéreo, marítimo o terrestre que acredite el pago del precio respectivo y faculta para realizar el viaje al funcionario y demás personas indicadas en el artículo 1°.

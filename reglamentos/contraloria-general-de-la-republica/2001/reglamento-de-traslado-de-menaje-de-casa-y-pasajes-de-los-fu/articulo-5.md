@@ -1,0 +1,1 @@
+Artículo 5°—Definición de Núcleo Familiar. Se entenderá por núcleo familiar, con derecho de pasaje, únicamente al cónyuge, hijos e hijas menores de edad o discapacitados física o mentalmente, hijas solteras, hijos mayores dependientes y estudiantes, en ambos casos hasta la edad de 25 años.

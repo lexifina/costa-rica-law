@@ -1,0 +1,3 @@
+CAPÍTULO III
+Pasajes
+Artículo 17.—De la cotización y de la emisión de la orden de compra. El Departamento de Proveeduría del Ministerio de Relaciones Exteriores y Culto verificará el cumplimiento de los requisitos de la solicitud de pasajes y emitirá la orden de compra correspondiente, en caso de que exista un proveedor previamente contratado conforme a los procedimientos de ley. Caso contrario requerirá según su registro de proveedores al menos tres proformas con la cotización que indiquen la ruta que el usuario necesite. El Departamento de Proveeduría adjudicará a la empresa cuya cotización incluya toda la ruta del traslado y sea la más económica, directa y segura y emitirá la orden de compra correspondiente.
