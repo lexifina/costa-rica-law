@@ -1,4 +1,6 @@
-Artículo 26.-Si un inmueble no reúne las condiciones mínimas de calidad o puntaje para los criterios de escogencia, tal situación debe indicarse claramente por escrito.
-En estos casos, se procurará reubicar a los ocupantes en precario en una finca que satisfaga los requerimientos mínimos exigidos en este Reglamento y en la legislación vigente.
-(Así adicionado mediante sesión N° 83 del 06 de noviembre de 1987).
-(Así reformado mediante sesión N° 85 del 26 de noviembre de 1990).
+CAPITULO CUARTO
+De la adquisición de inmuebles para el establecimiento granjas
+familiares
+Artículo 26.
+El Instituto, dentro de sus facultades y obligaciones contenidas en su ley de creación así como en la Ley de Tierras y Colonización, como una modalidad de dotación de tierras y de explotación de la misma, establecerá en aquellas zonas que por sus condiciones, tales como ubicación, geomorfológicos, edafológicas, hidrología, etc. y socioeconómicas que así lo requieran, granjas familiares que consistirán en la adjudicación de inmuebles con un máximo de área de cinco mil metros cuadrados, los cuales se destinaran exclusivamente para habitación familiar y cultivos agrícolas de subsistencia, para tales fines podrá adquirir inmuebles de dimensiones considerablemente inferiores a los que adquiera para el establecimiento de asentamientos campesinos.
+(Así adicionado mediante sesión N° 060 del 29 de octubre de 1996).
