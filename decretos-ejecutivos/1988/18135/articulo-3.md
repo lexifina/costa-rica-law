@@ -1,1 +1,0 @@
-Artículo 3°.- Los productores que posean actualmente plantaciones cultivadas con esta especie deberán informar al Instituto del Café de Costa Rica y al Ministerio de Agricultura y Ganadería su ubicación y área sembrada y será obligatorio entregarlo por separado a cada firma beneficiadora.

@@ -1,1 +1,0 @@
-Artículo 5°.- En caso de que el Instituto de Café de Costa Rica detectara café destinado a la exportación mezclado en contravención a lo dispuesto en el artículo anterior, el mismo será enviado a Consumo Nacional y el beneficiador deberá liquidar la totalidad del café mezclado al precio promedio de exportación, obtenido por esa firma beneficiadora.

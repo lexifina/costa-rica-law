@@ -1,1 +1,0 @@
-Artículo 2°.- Se exceptúa de la anterior prohibición las siembras que con autorización y seguimiento del Programa Cooperativo Instituto del Café de Costa Rica-Ministerio de Agricultura y Ganadería realice cualquier institución nacional internacional para fines de investigación.
