@@ -1,0 +1,1 @@
+Artículo 5º—Obligaciones del Coproductor Público o Privado. El coproductor público o privado, está obligado a cumplir cabalmente con lo ofrecido en su propuesta y en cualquier manifestación formal- documentada que haya aportado adicionalmente.

@@ -1,0 +1,1 @@
+Artículo 2º—Finalidad de las Coproducciones. Mediante la figura de la coproducción, el Ministerio podrá dar y recibir fínanciamiento tanto de entidades privadas como públicas, haciendo posible la producción conjunta que permita la realización de espectáculos, así como actividades didácticas para el enriquecimiento cultural del pueblo costarricense.

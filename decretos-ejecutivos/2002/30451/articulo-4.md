@@ -1,0 +1,1 @@
+Artículo 4º—Derechos del Coproductor Público o Privado. El coproductor público o privado tendrá derecho a ejecutar plenamente lo pactado en cuanto a la prestación y entrega de los aportes en el plazo convenido, salvo que la Administración de conformidad con lo establecido por la Ley de Contratación Administrativa y su Reglamento, ejerza los derechos de rescisión y resolución.

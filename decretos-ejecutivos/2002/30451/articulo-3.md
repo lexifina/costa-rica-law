@@ -1,0 +1,5 @@
+Artículo 3º—Clases de Coproducción
+3.1- Cuando se trate de una coproducción en que participen dos o más programas de un mismo órgano desconcentrado del Ministerio, bastará con un acuerdo del Órgano Colegiado en el que se establezcan los términos y alcances de la coproducción.
+3.2- En todos los demás casos, deberá suscribirse un convenio en el que se definirán claramente los derechos y obligaciones de las partes, los alcances de la coproducción y la liquidación o finiquito del convenio.
+3.3- El convenio deberá establecer con precisión en qué consistirán los aportes de las partes, los cuales podrán ser en recursos financieros o artísticos, uso de equipo técnico cinematográfico, iluminación, tramoya, asignación de personal técnico y uso de instalaciones físicas, entre otros.
+3.4- El convenio deberá detallar los procedimientos de liquidación por los cuales se regirá la distribución de los ingresos que produzca el espectáculo u obra coproducida en caso de que los haya. Una vez aprobada la liquidación deberá suscribirse un finiquito.

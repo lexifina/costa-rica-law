@@ -1,0 +1,1 @@
+Artículos 8º—Del plazo. El plazo de los convenios será definido por las partes y quedará sujeto a la aprobación de los órganos de fiscalización, de previo a su entrada en vigencia. Cuando, una misma coproducción sea presentada en diferentes temporadas, el convenio debe prever la prórroga respectiva, en el tanto se cumplan las mismas condiciones originalmente pactadas.
