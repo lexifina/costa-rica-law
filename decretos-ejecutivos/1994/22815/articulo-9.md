@@ -1,1 +1,0 @@
-Artículo 9.-Todas las instalaciones, locales, sistemas sanitarios, con sus partes, componentes y accesorios de una granja porcina, deberán mantenerse completos y en buenas condiciones de funcionamiento y mantenimiento.

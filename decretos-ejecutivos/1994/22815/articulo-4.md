@@ -1,1 +1,0 @@
-Artículo 4.-Toda persona física o jurídica que deseé construir, instalar, operar, ampliar o modificar una granja porcina, deberá contar con permiso otorgado por el Departamento de Seguridad e Higiene Industrial de la División de Saneamiento Ambiental del Ministerio de Salud y del Departamento de Urbanismo del Instituto Nacional de Vivienda y Urbanismo

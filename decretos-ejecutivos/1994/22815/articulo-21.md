@@ -1,1 +1,0 @@
-Artículo 21.-El Ministerio de Salud y el Instituto Nacional de Vivienda y Urbanismo, velarán por el estricto cumplimiento de las presentes disposiciones, ante un posible desarrollo habitacional, comercial o industrial, en linderos de una granja porcina, manteniendo los derechos de los porcicultores establecidos.

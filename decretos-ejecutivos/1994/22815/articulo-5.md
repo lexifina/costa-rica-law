@@ -1,1 +1,0 @@
-Artículo 5.-Queda prohibida la tenencia de porcinos, cualquiera sea su número, en las ciudades, centros de población y grupos de viviendas, sin el respectivo permiso otorgado por el Departamento de Seguridad e Higiene Industrial de la División de Saneamiento Ambiental del Ministerio de Salud.

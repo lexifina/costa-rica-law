@@ -1,1 +1,0 @@
-Artículo 17.-Los propietarios, administradores o encargados de granjas porcinas, quedan obligados a permitir y facilitar el ingreso y acceso a la propiedad, instalaciones y locales, a las autoridades de salud, debidamente identificadas, autorizadas y comisionadas, para realizar inspecciones, verificaciones o toma de muestras, cuando así se requiera.
