@@ -1,1 +1,0 @@
-Artículo 4°—Las sumas establecidas en el Reglamento de Gastos de Viajes y de Transportes para Funcionarios Públicos aprobado por la Contraloría General de la República, son asignaciones máximas, en consecuencia de la Municipalidad de Aguirre en casos muy especiales que a su juicio así lo justifiquen, pueden aplicar tarifas menores a las establecidas en dicho reglamento.
