@@ -1,0 +1,1 @@
+Artículo 2°—La administración de las zonas protectoras delimitadas corresponde a la Dirección General Forestal del Ministerio de Agricultura y Ganadería, sin perjuicio de las facultades .que la Ley General de Salud, otorga al Ministerio de Salud.

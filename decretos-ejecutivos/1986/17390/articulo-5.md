@@ -1,0 +1,1 @@
+Artículo 5°—Para el aprovechamiento de las aguas, todos los particulares deben contar con la debida concesión otorgada por el Servicio Nacional de Electricidad, pagando los cánones respectivos. Toda explotación de aguas subterráneas deberá mantener en uso y buen funcionamiento un medidor de caudal con el fin de que no se sobreexplote el acuífero.

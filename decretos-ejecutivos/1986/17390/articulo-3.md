@@ -1,0 +1,1 @@
+Artículo 3°—Una comisión integrada por un representante del Instituto Costarricense de Acueductos y Alcantarillados, un representante del Instituto de Desarrollo Agrario, un representante de la Municipalidad de Pococí y Guácimo y un representante de la comunidad, colaborarán en calidad de Asesoría con la Dirección General Forestal, en la administración de la zona protectora.
