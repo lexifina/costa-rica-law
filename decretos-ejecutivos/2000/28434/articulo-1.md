@@ -470,7 +470,7 @@ Tabla 1 Mínimos de planificación - Alternativos de ruta y de destino
 Tipo de aproximación | Mínimos de planificación
 Cat II y III | Cat I(Nota 1)
 Cat I | De no-precisión (Notas 1 y 2)
-De no-precisión | De no-precisión (Notas 1 y 2)más 200 pies/1000 m
+De no-precisión | De no-precisión (Notas 1 y 2) más 200 pies/1000 m
 Circulando | Circulando
 Nota 1 RVR.
 Nota 2 El techo debe estar en o por encima de la MDH.
@@ -646,13 +646,12 @@ iv) Cuando no haya visibilidad meteorológica ni RVR reportadas, el despegue sol
 3. RVR/Visibilidad requerida
 i) En el caso de aviones multimotores, cuyo rendimiento es tal que, en caso de falla de un motor crítico en cualquier punto durante el despegue, el avión pueda continuar el despegue hasta una altura de 500 metros (1500 pies) sobre el aeropuerto, mientras franquea los obstáculos por los márgenes requeridos, los mínimos de despegue que establezca el operador deberán expresarse como valores de RVR/visibilidad que no sean menores de los que se dan en la siguiente tabla 1 excepto lo que se dispone en el párrafo 4)
 Tabla 1 - RVR/Visibilidad para el despegue
-Tipo de aproximación | Mínimos de planificación (RVR/visibilidad requerida y techo si es aplicable)
-| Aeropuerto con
-Al menos, 2 procedimientos distintos de aproximación basados en 2 radioayudas distintas que sirven a 2 pistas independientes (véase MEI OPS 1295 c) 1) ii)) | Al menos 2 procedimientos distintos de aproximación basados en 2 radioayudas distintas que sirven a 1 pista, o
-| Al menos 1 prodecimiento (sic) de aproximación basado en 1 radioayuda que sirve a 1 pista.
-Aproximación de Precisión Cat, II, III (ILS, MLS) Aproximación de Precisión Cat I (ILS, MLS) | Mínimos Cat I de Aproximación de Precisión Mínimos de Aproximación de No Precisión | Mínimos de Aproximación de No Precisión Mínimos de circulada o, si no disponibles, mínimos de Aproximación de no precisión más 200 pies/ 1000 m
-Aproximación de No Precisión | El más bajo de entre los mínimos de Aproximación de no Precisión más 200 Pies/1000 m o los Mínimos de circulación | El más alto de entre los mínimos de circulada olos mínimos de aproximación de no precisión más 200 pies/1000 m.
-Aproximación Circulando | Mínimos de circulando (en circuito)
+RVR/Visibilidad para el Despegue
+Instalaciones | RVR/Visibilidad (Nota 3)
+Ninguna (sólo de día) | 500 m
+Luces de borde de pista y/o marcas de eje de pista | 250/300 m(Notas 1 y 2)
+Luces de borde de pista y de eje de pista | 200/250 m (Nota 1)
+Luces de borde de pista y de eje de pista e información múltiple sobre RVR | 150/200 m (Notas 1 y 4)
 Nota 1: Los valores mayores son aplicables a los aviones de Categoría D.
 Nota 2: Para las operaciones nocturnas se requieren, como mínimo, las luces de borde de pista y de extremo de pista.
 Nota 3: El valor representativo del RVR/visibilidad reportado para la parte inicial del recorrido de despegue se puede sustituir por el criterio del piloto.
@@ -707,7 +706,8 @@ viii) Las luces del área de toma de contacto;
 ix) Las luces de borde de pista; u
 x) Otras referencias visuales aceptadas por la Dirección General de Aviación Civil.
 4. RVR requerido. Los mínimos más bajos que empleará el operador para las aproximaciones de no-precisión son:
-Tabla 4a - RVR para la aproximación de no-precisión - Facilidades completas
+Tabla 4a - RVR para la aproximación de no-precisión -
+Facilidades completas
 Mínimos de aproximación de no-precisión
 Facilidades completas (Notas 1, 5 y 6)
 MDH | RVR / Categoría de Avión
@@ -715,7 +715,8 @@ Metros | (pies) | A | B | C | D
 75-100 | 250-320 | 800 m (1) | 800 m (1) | 800 m (1) | 1600 m (2)
 1. 1200 metros de Visibilidad/RVR para NDB.
 2. 1200 metros de Visibilidad/RVR para localizador, con punto de referencia de aproximación final (FAF) y radiobaliza intermedia (MM).
-Tabla 4b- RVR para la aproximación de no precisión -Facilidades intermedias
+Tabla 4b- RVR para la aproximación de no precisión -
+Facilidades intermedias
 Mínimos de aproximación de no-precisión
 Facilidades completas (Notas 2, 5 y 6)
 MDH | RVR / Categoría de Avión
@@ -797,9 +798,9 @@ v) 100 pies.
 4. RVR requerida. Los mínimos más bajos que utilizará el operador para las operaciones de Categoría II son:
 Tabla 6 - RVR para la aproximación de Cat II comparado con la DH
 Mínimos de Categoría II
-| Piloto automático acoplado hasta por debajo de la DH (Nota 1)
+Piloto automático acoplado hasta por debajo de la DH (Nota 1)
 Altura de decisión (DH) | RVR/Avión Categorías A,B,C,D
-100 pies 350 m |
+100 pies 350 m
 Nota 1: La referencia a "Piloto automático acoplada hasta por debajo de la DH" en esta tabla, significa la utilización continuada del piloto automático hasta una altura que no sea mayor que el 80% de la DH aplicable. Por lo tanto, los requisitos de Aeronavegabilidad podrán, por causa de la altura mínima de conexión del piloto automático, afectar la DH aplicable.
 Nota 2: En las fases de evaluación operacional, previas a la autorización de los mínimos básicos de Categoría II, se aplicará mínimos de CATEGORIA II RESTRINGIDA: DH 150 pies, RVR 500 metros.
 f) Aproximación de precisión - Operaciones de Categoría III
@@ -833,6 +834,7 @@ RVR | 300 m (1) | 300 m (1) | 100 m (1)
 g) Vuelo en circuito
 1. Los mínimos más bajos que emplearán los operadores para el vuelo en circuito son:
 Tabla 8 - Visibilidad y MDH para el vuelo en circuito en relación con la categoría de avión
+Categoría de Avión
 MDH | A 400 pies | B 500 pies | C 600 pies | D 700 pies
 Visibilidad | | | |
 Meteorológica | 1600 m | 1600 m | 2400 m | 3600 m
@@ -1032,13 +1034,13 @@ g) Entrenamiento y Verificaciones Periódicas - Operaciones de Baja Visibilidad
 3. El operador debe garantizar que, para las operaciones de Categoría III en aviones con un sistema de control de vuelo de falla pasiva, al menos se complete una aproximación fallida como resultado de una falla del piloto automático en o por debajo de la altitud de decisión, cuando el último RVR reportado sea de trescientos m. o menor, por lo menos una vez durante un período de tres verificaciones de competencia consecutivas.
 4. La Dirección General de Aviación Civil podrá autorizar el entrenamiento periódico y verificación para as operaciones de Categoría II y LVTO en un tipo de avión, del que no se disponga de simulador aprobado.
 Nota La experiencia reciente para LVTO y CAT II/III, basada en aproximaciones automáticas y/o aterrizajes automáticos, se mantendrá con el entrenamiento periódico y las verificaciones prescritas en este párrafo.
-Sección OPS. 2455 Operaciones con baja visibilidad -Procedimientos Operativos (Véase Apéndice 1 de Sección OPS. 2455)
+Sección OPS. 1455 Operaciones con baja visibilidad -Procedimientos Operativos (Véase Apéndice 1 de Sección OPS. 1455)
 a) El operador establecerá procedimientos e instrucciones para su utilización en despegues de baja visibilidad, y operaciones de Categoría II y III. Estos procedimientos se incluirán en el Manual de Operaciones y contendrán las obligaciones de los miembros de la tripulación de vuelo durante el taxeo, despegue, aproximación, nivelación, aterrizaje, carrera de aterrizaje y aproximación fallida, en su caso.
 b) El piloto al mando deberá asegurarse de que:
 1. El estado de las ayudas visuales y no visuales, sea suficiente antes de iniciar un despegue con baja visibilidad o una aproximación de Categoría II ó III;
 2. Los LVP adecuados estén en vigor según la información recibida de ATS, antes de iniciar un despegue en baja visibilidad o una aproximación de Categoría II ó III; y
 3. Los miembros de la tripulación de vuelo, estén debidamente calificados antes de iniciar un despegue con baja visibilidad con un RVR menor de ciento setenta y cinco m. o una aproximación de Categoría II ó III.
-Apéndice 1 / Sección OPS. 2455 Operaciones de Baja Visibilidad - Procedimientos operacionales
+Apéndice 1 / Sección OPS. 1455 Operaciones de Baja Visibilidad - Procedimientos operacionales
 a) Generalidades. Las operaciones de baja visibilidad incluyen:
 1. El despegue manual (con o sin sistemas electrónicos de guía);
 2. Aproximación automática por debajo de la DH, con nivelación, aterrizaje y carrera de aterrizaje manuales,
@@ -1063,38 +1065,39 @@ xi) La utilización de información sobre la velocidad del viento, cortante de v
 xii) Procedimientos que se utilizarán para las aproximaciones y aterrizajes de prácticas en pistas en las cuales los procedimientos de aeropuerto de Categoría II/III, no estén en vigor;
 xiii) Limitaciones operacionales que resulten de la certificación de aeronavegabilidad; y
 xiv) Información sobre la máxima desviación permitida de la trayectoria de planeo y/o del localizador ILS.
-Sección OPS. 2460 Operaciones con baja visibilidad - Equipo mínimo
+Sección OPS. 1460 Operaciones con baja visibilidad - Equipo mínimo
 a) El operador incluirá en el Manual de operaciones el equipo mínimo que tiene que estar operativo al comienzo de un despegue con baja visibilidad o una aproximación de Categoría II ó III, de acuerdo con el Manual de vuelo del avión u otro documento aprobado.
 b) El piloto al mando se asegurará que la condición del avión y de los sistemas de a bordo necesarios sean adecuados para la operación específica que se va a realizar.
-Sección OPS. 2465 Mínimos de Operación VFR (Véase Apéndice 1 de Sección OPS. 1465)
+Sección OPS. 1465 Mínimos de Operación VFR (Véase Apéndice 1 de Sección OPS. 1465)
 a) El operador garantizará que:
 1. Los vuelos VFR se realicen de acuerdo con las reglas de vuelo visual y la tabla del Apéndice 1 de Sección OPS.1465.
 2. No se efectúen vuelos VFR especiales cuando la visibilidad sea menor de 5 Km.
 Apéndice 1 / Sección OPS. 1465 Visibilidades mínimas para las operaciones VFR
 | B | C D E | F | G
-Clase deespacio aéreo | | Por encima de 9000 m (3000 ft) AMSL | A 900 m (3000 ft)
-| o por encima de100m (1000 ft) sobre el terreno de ambos valores el mayor | AMSL o por debajo o a 300 m (1000 ft) sobre el terreno de ambos valores el mayor
-| |
+Clase deEspacio aéreo | | Por encima de 9000 m (3000 ft) | A 900 m(3000 ft)
+| AMSL o por Encima de100(1000 ft) | AMSL ft por debajo o a300 m (1000 ft) sobre el terreno de ambos
+valores
+| sobre el terreno, de ambos valores el mayor | el mayor
 Distancia de las nubes | Libre de nubes | 1500 m (4950 ft) horizontalmente300 m (1000 ft) verticalmente | | Libre de nubes y a la vista de la superficie
 Visibilidad de vuelo | 8 Km. a 3050 m (10000 FT) AMSL o por encima | | 5 Km. (Nota 2)
 | 5 Km. por debajo de 3050 m (10 000 FT) AMSL |
-Nota 1: Cuando la altura de la altitud de transición está por debajo de 3050 m (10000 pies) AMSL, se debería utilizar FL 100 en lugar de 10000 pies.
-Nota 2: Los aviones de Cat. A y B se podrán operar con visibilidades de vuelo hasta 3000 m, siempre que la correspondiente autoridad ATS permita la utilización de una visibilidad de vuelo menor de 5 km., y las circunstancias sean tales que la probabilidad de encuentros con otro tráfico sea baja, y la IAS sea de 140 kt o menor.
+Nota 1 Cuando la altura de la altitud de transición está por debajo de 3050 m (10000 pies) AMSL, se debería utilizar FL 100 en lugar de 10000 pies.
+Nota 2 Los aviones de Cat. A y B se podrán operar con visibilidades de vuelo hasta 3000 m, siempre que la correspondiente autoridad ATS permita la utilización de una visibilidad de vuelo menor de 5 km., y las circunstancias sean tales que la probabilidad de encuentros con otro tráfico sea baja, y la IAS sea de 140 kt o menor.
 CAPITULO V
 Rendimiento / Perfomance
 Generalidades
-Sección OPS. 2470 Aplicabilidad
+Sección OPS. 1470 Aplicabilidad
 a) El operador debe asegurar que aviones multimotor equipados con motores turbohélice con un peso máximo de despegue mayor de 5700 Kg. y que todo avión multimotor turbojet sean operados de acuerdo con el CAPITULO VI RENDIMIENTO (PERFORMANCE) CLASE A.
 b) El operador debe asegurar que los aviones equipados con motores recíprocos y con pesos máximos de despegue mayores de 5700 Kg. se operen de acuerdo con el CAPITULO VII RENDIMIENTO (PERFORMANCE) CLASE C.
 c) Cuando no se pueda demostrar el pleno cumplimiento de los requisitos del CAPITULO respectivo debido a características de diseño específicas ( p.e. aviones supersónicos o hidroaviones ), el operador debe aplicar normas de rendimiento aprobadas que garanticen un nivel de seguridad equivalente a las del respectivo CAPITULO.
-Sección OPS. 2475 Generalidades
+Sección OPS. 1475 Generalidades
 a) El operador asegurará que el peso del avión:
 1. En el inicio del despegue; o, en el caso de redespacho en vuelo
 2. En el punto donde sea aplicable, el plan de vuelo operativo revisado, no sea mayor que el peso con que se puedan cumplir con los requisitos de rendimiento de los Capítulos VI y VII para el vuelo que se vaya a realizar, teniendo en cuenta las reducciones previstas de peso en el transcurso del vuelo, y el caso del lanzamiento de combustible si fuese requerido.
 b) El operador asegurará que se empleen los datos aprobados del rendimiento que se incluyen en el Manual de vuelo del avión para determinar el cumplimiento con los requisitos del Capítulo correspondiente, complementados cuando sea necesario con otros datos que sean aceptables para la Dirección General de Aviación Civil. Cuando se apliquen los factores prescritos en los citados Capítulos, se podrán tomar en cuenta los factores operacionales incorporados en los datos de rendimiento (perfomance) del Manual de Vuelo del Avión para evitar la doble aplicación de los mismos. (Véase MAC OPS 1475(b) y MEI OPS 1475 (b)).
 c) Al mostrar el cumplimiento con los requisitos del Capítulo correspondiente, se tendrá en cuenta la configuración del avión, las condiciones ambientales y la operación de sistemas que tengan un efecto adverso en el rendimiento.
 d) A los efectos del rendimiento (performance), se podrá considerar seca una pista mojada, siempre que no sea una pista de hierba.
-Sección OPS. 2480 Terminología
+Sección OPS. 1480 Terminología
 a) Los términos que se emplean en los Capítulos V, VI, VII y VIII, y que no sean objeto de definición en el RAC correspondiente de definiciones, tendrán el siguiente significado:
 1. Distancia de aceleración-parada disponible (ASDA). La longitud de la carrera de despegue disponible más la longitud de la zona de parada (stop way), si la misma está declarada disponible por la Dirección General de Aviación Civil y/o por la autoridad del Estado del aeropuerto y es capaz de soportar el peso del avión en las condiciones de operación prevalecientes.
 2. Pista contaminada. Se considera una pista contaminada cuando más del 25% de la superficie de la misma (tanto en zonas aisladas o no), comprendida en la longitud y anchura requerida que se está empleando, este cubierta de la siguiente manera:
@@ -1446,28 +1449,8 @@ b) Para vuelos nocturnos, además de los equipos que se especifican en el párra
 Sección OPS.1645 Limpiaparabrisas
 El operador no operará un avión con un peso máximo certificado de despegue de 5700 kg o más, a no ser que esté equipado en cada puesto de piloto, con un limpiaparabrisas u otro medio equivalente para mantener limpio el parabrisas durante las precipitaciones.
 Sección OPS.1650 Operaciones VFR diurnas- Instrumentos de vuelo y de navegación y equipos asociados (Véase MAC OPS 1650, 1652 y MEI OPS 1650, 1652)
-El operador no operará un avión de día de acuerdo con la reglas de vuelo visual (VFR) a no ser que esté equipado con los instrumentos de vuelo y de navegación y sus equipos asociados y, cuando sea aplicable, de acuerdo con las condiciones establecidas en los siguientes subpárrafos:
-a) Una brújula magnética;
-b) Un reloj de precisión que muestre el tiempo en horas, minutos y segundos;
-c) Un altímetro barométrico calibrado en pies o su equivalente en metros con un ajuste de subescala, calibrado en hectopascales/ milibares o su equivalente en pulgadas de mercurio, ajustable durante el vuelo a cualquier presión barométrica probable;
-d) Un anemómetro calibrado en nudos; o su equivalente en Km/hr.
-e) Un indicador de velocidad vertical (variómetro);
-f) Un indicador de giro y deslizamiento, o un coordinador de virajes que incorpore un indicador de deslizamiento; según sea aplicable.
-g) Un indicador de actitud ;
-h) Un indicador de dirección giroestabilizado ; y
-i) Un indicador de temperatura del aire exterior en la cabina de mando, TAT o SAT calibrado en grados celsius (Véase MAC OPS 1650 (i) y 1652 (i) ).
-j) Para vuelos cuya duración no exceda de 60 minutos, que despeguen y aterricen en el mismo aeropuerto, y que permanezcan dentro de un radio de 50 NM de ese aeropuerto, todos los instrumentos que se indican en los subpárrafos f), g) y h) anteriores, y los subpárrafos k)4), k)5) y k)6) siguientes, se podrán sustituir por un indicador de giro y de deslizamiento, o un coordinador de virajes que incorpore un indicador de deslizamiento, o un indicador de actitud en vuelo y un indicador de deslizamiento.
-k) Cuando sean requeridos dos pilotos, el puesto del segundo piloto dispondrá de los siguientes instrumentos independientes.
-1. Un altímetro barométrico calibrado en pies o su equivalente en metros con un ajuste de subescala, calibrado en hectopascales/milibares o su equivalente en pulgadas de mercurio, ajustable durante el vuelo a cualquier presión barométrica probable;
-2. Un anemómetro calibrado en nudos; o su equivalente en Km./hr.
-3. Un indicador de velocidad vertical (variómetro);
-4. Un indicador de giro y deslizamiento, o un coordinador de virajes que incorpore un indicador de deslizamiento;
-5. Un indicador de actitud ; y
-6. Un indicador de dirección giroestabilizado.
-l) Cada sistema indicador de velocidad debe estar equipado con un tubo pitot calentado o dispositivo equivalente para prevenir el mal funcionamiento en caso de condensación o formación de hielo para: aviones a quienes se les emitió un certificado de aeronavegabilidad individual por parte de un Estado equivalente u otro Estado después de 03 años de entrada en vigor este Reglamento.
-m) Cuando se requiera duplicación de instrumentos para cada piloto, el requisito se refiere a pantallas, selectores individuales y otros equipos asociados.
-n) Todos los aviones deben estar equipados con medios que indiquen cuando el suministro de potencia no es el adecuado para los instrumentos de vuelo requeridos; y
-o) Todos los aviones con limitaciones de compresibilidad, que no sea indicada por los anemómetros requeridos estarán equipados con un indicador de número de Mach en cada puesto de pilotaje.
+Los vuelos VFR que se realicen como vuelos controlados estarán equipados de conformidad con Sección OPS 1652.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 29331- MOPT del 26 de octubre del 2001)
 Sección OPS.1652 Operaciones IFR o nocturnas - Instrumentos de vuelo y de navegación y equipos asociados (Véase MAC OPS 1650,1652 y MEI OPS 1650,1652).
 El operador no operará un avión de acuerdo con las reglas de vuelo por instrumentos (IFR), o de noche de acuerdo con las reglas de vuelo visual (VFR), a no ser que esté equipado con los instrumentos de vuelo y de navegación y sus equipos asociados y, cuando sea aplicable, de acuerdo con las condiciones establecidas en los subpárrafos siguientes:
 a) Una brújula magnética;
@@ -1513,7 +1496,8 @@ Sección OPS.1665 Sistema de advertencia de la proximidad del terreno (GPWS)
 a) Todos los aviones con motores de turbina, con una masa máxima certificada de despegue, superior a 5700 Kg. y todos los aviones turbojet estarán equipados con un sistema de advertencia de la proximidad del terreno
 b) El sistema de advertencia de proximidad al terreno que se requiere en este párrafo deberá proporcionar automáticamente a la tripulación de vuelo, mediante señales audibles que se podrán complementar con señales visuales, un aviso oportuno y distintivo del régimen de hundimiento, la proximidad al terreno, la pérdida de altitud después del despegue o de ida al aire, o una configuración incorrecta de aterrizaje y desvío por debajo de la trayectoria de planeo.
 Sección OPS.1668 Sistema anticolisión de a bordo (ACAS II) (Véase MEIC OPS 1668)
-a) El operador no operará un avión de turbina que tenga un peso máximo certificado de despegue de más de 5700 Kg. y ningún avión turbojet, después del 01 de Enero del año 2005, a no ser que esté equipado al menos con un sistema anticolisión ACAS II, el cual deberá funcionar de conformidad con las disposiciones pertinentes del Anexo 10, Volumen IV.
+a) El operador no operará un avión de turbina que tenga un peso máximo certificado de despegue de más de 15,000 Kg. y ningún avión turbojet, después del 1º de enero del año 2003, a no ser que esté equipado al menos con un sistema anticolisión ACAS II, el cual deberá funcionar de conformidad con las disposiciones pertinentes del Anexo 10, Volumen IV.
+(Así reformado por el artículo 1° del Decreto N° 29934- MOPT del 26 de octubre del 2001)
 Sección OPS.1670 Equipos de radar meteorológico de a bordo
 a) El operador no operará:
 1. Un avión presurizado; o
@@ -1578,6 +1562,7 @@ o) Se debe suspender el uso de registradores de datos de vuelo de banda metálic
 p) Se debe discontinuar el empleo de registradores de datos de película fotográfica y de registradores de datos analógicos en frecuencia modulada (FM) para el 01 de Enero del 2001.
 Apéndice 1 / Sección OPS.1715
 Tabla 1
+Parámetros para registradores de datos de vuelo
 Número de Serie | Parámetro | Margen de medición | Intervalo de registro (segundos) | Límites de precisión (entrada del sensor comparada con salida FDR)
 1 | Hora (UTC cuando se disponga, si no tiempo transcurrido | 24 horas | 4 | 0.125% por hora
 2 | Altitud - presión | -300m (-1000ft) hasta la máxima altitud certificada del avión + 1500m (+500ft) | 1 | 30m a 200m(100ft a 700ft)
@@ -1654,7 +1639,7 @@ Número de asientos de pasajeros instalados | Número de Botiquines de primeros 
 0 a 99 | 1
 100 a 199 | 2
 200 a 299 | 3
-300 y más |
+300 y más | 4
 b) El operador garantizará que los botiquines de primeros auxilios sean:
 1. Inspeccionados periódicamente para comprobar, que el contenido se mantiene en las condiciones necesarias para su utilización prevista; y
 2. Reaprovisionados periódicamente, de acuerdo con las instrucciones de sus etiquetas, o según requieran las circunstancias.
@@ -1695,7 +1680,7 @@ v) Los requisitos de suministro de oxígeno, según se especifican en el Apéndi
 Apéndice 1 / Sección OPS 1770 Oxígeno - Requisitos mínimos de oxígeno suplementario para aviones presurizados (Nota 1)
 Tabla 1
 a) Suministro para: | b)| Duración y altitud - Presión de cabina
-1.Todos los ocupantes de asientos de la cabina de mando en servicio | La totalidad del tiempo de vuelo en que la altitud - presión de la cabina exceda los 13000 pies y la totalidad del tiempo de vuelo en que la altitud - presión de cabina exceda los 10000 pies pero no exceda los 13000 pies después de los primeros 30 minutos a esas altitudes, pero en ningún caso menos de:i) 30 minutos para aviones certificados para volar a altitudes que no superen los 25000 pies (Nota 2) (ii) 2 horas para aviones certificadas para volar a altitudes mayores de 25000 pies (Nota 3).
+1.Todos los ocupantes de asientos de la cabina de mando en servicio | La totalidad del tiempo de vuelo en que la altitud - presión de la cabina exceda los 13000 pies y la totalidad del tiempo de vuelo en que la altitud - presión de cabina exceda los 10000 pies pero no exceda los 13000 pies después de los primeros 30 minutos a esas altitudes, pero en ningún caso menos de: i) 30 minutos para aviones certificados para volar a altitudes que no superen los 25000 pies (Nota 2) (ii) 2 horas para aviones certificadas para volar a altitudes mayores de 25000 pies (Nota 3).
 2. Todos los miembros de la tripulación de cabina | La totalidad del tiempo de vuelo en que la altitud - presión de la cabina exceda los 13000 pies pero no menos de 30 minutos (Nota 2), y la totalidad del tiempo de vuelo en que la altitud de presión de cabina sea mayor de 10000 pies pero no exceda los 13000 pies después de los primeros 30 minutos a esas altitudes.
 3. 100% de los pasajeros(Nota 5) | La totalidad del tiempo de vuelo en que la altitud - presión de la cabina exceda de 15.000 pies, pero nunca menos de 10 minutos. (Nota 4)
 4. 30% de los pasajeros(Nota 5) | La totalidad del tiempo de vuelo en que la altitud - presión de la cabina exceda de 14000 pies sin sobrepasar los 15000 pies.
@@ -1720,8 +1705,8 @@ Tabla 1
 a) Suministro para: | b) Duración y altitud - Presión
 1. Todos los ocupantes de los asientos en la cabina de mando | La totalidad del tiempo de vuelo a altitudes - presión por encima de 10000 pies.
 2. Todos los miembros de la tripulación de cabina | La totalidad del tiempo de vuelo a altitudes de presión por encima de 13000 pies y para cualquier período que exceda 30 minutos a altitudes de presión superiores a 10000 pies pero sin exceder los 13000 pies.
-3. 100% pasajeros(Véase Nota) | La totalidad del tiempo de vuelo a altitudes - presión por encima de 13000 pies.
-4. 10 % de los pasajeros(Véase Nota) | La totalidad del tiempo de vuelo después de 30 minutos a altitudes - presión superiores a 10000 pies pero que no excedan de 13000 pie
+3. 100% pasajeros (Véase Nota) | La totalidad del tiempo de vuelo a altitudes - presión por encima de 13000 pies.
+4. 10 % de los pasajeros(Véase Nota) | La totalidad del tiempo de vuelo después de 30 minutos a altitudes - presión superiores a 10000 pies pero que no excedan de 13000 pies
 Nota: A los efectos de esta tabla "pasajeros" significa los pasajeros realmente transportados e incluye a los infantes.
 Sección OPS.1780 Equipo para la protección respiratoria (P.B.E.) de la tripulación.
 a) El operador no operará un avión presurizado o, un avión no presurizado con un peso máximo de despegue certificado mayor de 5700 kg. a menos que:
@@ -1754,9 +1739,9 @@ a) El operador no operará un avión con un peso máximo de despegue certificado
 b) Las hachas y "patas de chancho" que se sitúen en el compartimento de pasajeros no deben estar visibles a los mismos.
 Sección OPS.1800 Marcas de zonas de penetración
 El operador garantizará que si existen en un avión áreas designadas del fuselaje adecuadas para penetración por parte de personal de rescate en una emergencia, se marquen según se indica a continuación. Las marcas deben ser de color rojo o amarillo y si fuera necesario se deben perfilar en blanco para contrastar con el fondo. Si las marcas de las esquinas distan más de 2 metros entre sí, se deben insertar líneas intermedias de 9 cm x 3 cm para que las marcas adyacentes no disten más de 2 metros.
-SECCION OPS. 1800 Marcas de Zonas de Penetración
-Nota: Por lo extenso del contenido de esta tabla, véase la Gaceta N°50 del 10 de Marzo del 2000, página 31.
-Sección OPS.1805 Medios para la evacuación de emergencia
+Sección OPS.1800 Marcas de zonas de penetración
+Nota: Por lo extenso del contenido de esta tabla, véase La Gaceta N°50 del 10 de Marzo del 2000, página 31.
+Sección OPS.1805 Medios para la evacuación de emergencia.
 a) El operador no debe operar un avión con alturas de los marcos de las salidas de emergencia pasajeros:
 1. Que estén a más de 1,83 metros (6 pies) desde el suelo, cuando el avión está en tierra y el tren de aterrizaje está extendido; o
 2. Que estarían a más de 1,83 metros (6 pies) desde el suelo después del colapso o la falla en la extensión de una o más piernas del tren de aterrizaje, en caso de aviones para los que se solicite por primera vez el Certificado de Tipo a partir del 01 de abril del año 2000 inclusive, a no ser que disponga de equipos o dispositivos en cada salida, a las que sean aplicables los subpárrafos 1) ó 2), que permitan a los pasajeros y la tripulación llegar a tierra con seguridad, en una emergencia.
@@ -1858,7 +1843,8 @@ a) El operador garantizará que los aviones operados en espacio aéreo RVSM est�
 CAPITULO XI
 Mantenimiento del avión
 Sección OPS.1875 Generalidades (Véase MEI OPS 1875)
-a) El operador no operará un avión a menos que sea mantenido y puesto en servicio por una organización aceptada de acuerdo con el RAC-145 excepto las inspecciones de prevuelo que no tienen que ser realizadas necesariamente por una organización regulada de conformidad con dicho RAC.
+a) El Operador no operará un avión a menos que sea mantenido y puesto en servicio por una organización aceptada de acuerdo con el RAC 145, o con arreglo a un sistema equivalente, siempre que uno de esos modos de mantenimiento sea aceptable para el estado de matrícula, excepto las inspecciones de prevuelo que no tienen que ser realizadas necesariamente por una organización regulada de conformidad con dicho RAC.
+(Así reformado por el artículo 1° del Decreto N° 29934- MOPT del 26 de octubre del 2001)
 b) Este Capítulo establece los requisitos de mantenimiento del avión necesarios para cumplir con los requisitos de certificación del operador contenidos en el RAC 119.
 Sección OPS.1880 Terminología
 Las siguientes definiciones del RAC 145 aplican en este Capítulo:
@@ -1877,6 +1863,8 @@ a) El operador debe garantizar la aeronavegabilidad del avión y las buenas cond
 4. El análisis de la eficacia del programa de mantenimiento del operador (véase MAC OPS 1890 a)4).
 5. El cumplimiento de cualquier directiva operacional, directiva de aeronavegabilidad y cualquier otro requisito para la aeronavegabilidad hecho mandatorio por la Dirección General de Aviación Civil, conforme al RAC 39 o Sección OPS. 1015.
 6. El cumplimiento de modificaciones de acuerdo con una norma aprobada y, para modificaciones no obligatorias, el establecimiento de una política de incorporación (véase MAC OPS 1890 a)
+De conformidad con procedimientos aceptables para el Estado de matrícula.
+(Así adicionado el último párrafo, por el artículo 1° del Decreto N° 29931- MOPT del 26 de octubre del 2001)
 b) El operador garantizará que el Certificado de aeronavegabilidad emitido o aceptado de acuerdo al RAC 21 de cada avión que se opere mantiene su validez con respecto a:
 1. Los requisitos del subpárrafo (a) anterior.
 2. Cualquier fecha de vencimiento que se especifique en el Certificado; y
@@ -1895,7 +1883,8 @@ a) A los efectos del mantenimiento, del sistema de calidad del operador, que se 
 b) Cuando el operador esté aprobado de acuerdo con el RAC 145, el sistema de calidad se podrá combinar con el que se requiere en RAC 145.
 Sección OPS.1905 Manual de Control de Mantenimiento del Operador (Véase MEI OPS 1905)
 a) El operador proporcionará para uso y orientación del personal de Mantenimiento y el operacional en cuestión, un Manual de Control de Mantenimiento, el cual debe enmendarse según sea necesario para mantener actualizada la información que contiene.
-b) El operador someterá a aprobación por parte de la Dirección General de Aviación Civil, o por parte del Estado de matrícula, si existe un convenio entre Estados que establezca funciones y obligaciones para el mantenimiento (Estados Equivalentes), el Manual de Control de Mantenimiento, e incorporará en éste los textos obligatorios que la Dirección General de Aviación Civil o el Estado de matrícula puedan exigir.
+b) El Operador someterá a aprobación por parte de la DGAC o por parte del estado de matrícula si existe un convenio entre estados que establezca funciones y obligaciones para el mantenimiento (Estados equivalentes), el Manual de Control de Mantenimiento e incorporará en este los textos obligatorios que la DGAC o el estado de matrícula puedan exigir, suministrando copias del mismo a ambos.
+(Así reformado por el artículo 1° del Decreto N° 29934- MOPT del 26 de octubre del 2001)
 c) El operador se asegurará que el Manual de control de mantenimiento se envíe a todos los organismos o personas que realicen mantenimiento o que tengan relación directa con éste. De igual forma enviará todas las revisiones que se le hayan incorporado y que hayan sido aprobadas.
 d) El manual contendrá al menos la siguiente información la cual puede ser presentada en un solo volumen o en volúmenes separados:
 1. Una descripción de procedimientos para cumplir con lo requerido en la Sección OPS.1890.
@@ -2289,8 +2278,7 @@ c) El operador asegurará que:
 1. El entrenamiento de conversión se lleve a cabo de una forma estructurada y adecuada a la realidad, de acuerdo con el Apéndice 1 de Sección OPS.11010;
 2. El entrenamiento sobre diferencias se lleve a cabo de una forma estructurada; y
 3. El entrenamiento de conversión y, si fuera necesario, el entrenamiento de diferencias, incluya el uso de todos los equipos de emergencia y todos los procedimientos de normales y de emergencia aplicables al tipo o versión de avión que implique entrenamiento y prácticas en ya sea en el avión adecuado o en un dispositivo de enseñanza que lo represente.
-Apéndice 1 / Sección OPS.11010 Entrenamiento de Conversión y Diferencias (Véase MEI al Apéndice 1 de la Sección OPS 11010, 11015)
-(Véase MEI al Apéndice 1 de la Sección OPS 11005, 11010, 11015, 11020)
+Apéndice 1 / Sección OPS.11010 Entrenamiento de Conversión y Diferencias (Véase MEI al Apéndice 1 de la Sección OPS 11010, 11015)(Véase MEI al Apéndice 1 de la Sección OPS 11005, 11010, 11015, 11020)
 a) Generalidades. El operador asegurará que:
 1. El entrenamiento de conversión y diferencias se imparta por personas adecuadamente calificadas; y
 2. Durante el entrenamiento de conversión y diferencias, se dé entrenamiento sobre la ubicación, remoción y empleo de todos los equipos de emergencia y supervivencia llevados en el avión, así como todos los procedimientos y entrenamiento de emergencia para el tipo, versión y configuración de avión que se opera.
@@ -2815,7 +2803,7 @@ Apéndice 1 / OPS.11065 Período de conservación de documentos
 El operador asegurará que la siguiente información/documentación se archive (conserve) de una forma aceptable, accesible a la Dirección General de Aviación Civil, durante los períodos indicados en las tablas siguientes.
 Nota: Información adicional con respecto a los registros de mantenimiento se prescribe en el CAPITULO XI.
 Tabla 1 - Información utilizada en la preparación y ejecución de un vuelo
-Información utilizada en la preparación y ejecución del vuelo descrita en OPS.1135 |
+Información utilizada en la preparación y ejecución del vuelo descrita en OPS.1135
 Plan operacional de vuelo | Tres meses
 Bitácora de mantenimiento | Veinticuatro meses a partir de la última anotación
 Documentación de información | Tres meses
@@ -2827,6 +2815,7 @@ Informes
 Informe/s de vuelo en los que se registren detalles de cualquier suceso, según lo prescrito en OPS.1420, o cualquier suceso cuyo informe/registro el piloto al mando considere necesario | Tres meses
 Informes sobre excesos de períodos de actividad y/o reducciones de períodos de descanso | Tres meses
 Tabla 3 - Registros de la tripulación de vuelo
+Registros de la Tripulación de Vuelo
 Tiempo de vuelo, actividad y descanso | Quince meses
 Licencia | Mientras el tripulante de vuelo ejerza los privilegios de la licencia para el operador
 Entrenamiento de conversión y su comprobación | Tres años

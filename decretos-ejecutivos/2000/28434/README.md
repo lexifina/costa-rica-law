@@ -15,3 +15,4 @@ Reglamento Aeronáutico CostarricenseParte I Operaciones de Transporte Aéreo Co
 | --- | --- | --- |
 | 1 | 2000-03-10 | la propia norma |
 | 2 | 2000-03-10 | Ley 7 |
+| 3 | 2001-10-26 | Decreto Ejecutivo 29931 (2001-10-26) |
