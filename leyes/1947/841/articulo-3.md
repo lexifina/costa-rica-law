@@ -1,19 +1,3 @@
-Artículo 3º.- El artículo 3º de la ley número 15 de 18 de octubre
-de 1940, se leerá así:
-"Artículo 3º.-Sin perjuicio del tributo creado por las leyes
-números 296 de 26 de agosto de 1939 y 362 de 26 de agosto de 1940,
-establécese el de un cuatro por ciento sobre las entradas brutas que a
-las mencionadas empresas proporcionen los espectáculos públicos a que se
-refiere el artículo anterior.
-Los teatros o salones de cine situados en los distritos que no sean
-cabecera de provincia, pagarán por concepto del impuesto a que se
-refiere este artículo únicamente un dos por ciento de la entrada
-obtenida en cada espectáculo.
-Los espectáculos deportivos pagarán únicamente el seis por ciento
-que por las leyes anteriormente citadas perciben los Colegios de Segunda
-Enseñanza, Escuela Normal, el Patronato Nacional de la Infancia, las
-Juntas Provinciales de Protección a la Infancia y la Universidad.
-Los teatros o salones de cine situados en distritos que no sean
-cabeceras de provincia pagarán únicamente un tres por ciento de la
-entrada bruta que obtengan en cada espectáculo, por concepto del
-impuesto a que se refieren las leyes citadas en el aparte primero.
+Artículo 3º.- Los espectáculos deportivos y los que tengan como finalidad la beneficencia pública, pagarán únicamente el seis por ciento que por las leyes Nº 296 de 26 de agosto de 1939 y Nº 362 de 26 de agosto de 1940, perciben los Colegios de Segunda Enseñanza, la Escuela Normal, el Patronato Nacional de la Infancia, las Juntas Provinciales de Protección a la Infancia y la Universidad. La calificación de estos espectáculos será a juicio de la Tributación Directa.
+Los teatros o salones de cine situados en distritos que no sean cabeceras de provincia, pagarán, por el anterior concepto, el tres por ciento de la entrada bruta obtenida en cada espectáculo.
+(Así reformado por el art. 2 de la ley Nº 228 del 13 de octubre de 1948 y por el artículo 28 de la Ley Nº 7465 del 6 de diciembre de 1994, en cuanto al porcentaje con que grava los espectáculos deportivos; el párrafo 2º del artículo dicho define el término espectáculo deportivo.)
