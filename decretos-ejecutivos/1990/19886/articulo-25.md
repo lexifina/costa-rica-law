@@ -1,1 +1,1 @@
-Artículo 25.- (Derogado por el artículo 1° del decreto ejecutivo N° 23202 del 15 de diciembre de 1993)
+Artículo 25.- (Derogado por el artículo 1° del decreto ejecutivo N° 23202 del 15 de diciembre de 1993. Posteriormente mediante resolución de la Sala Constitucional N° 00031 del 3 de enero de 1995, se declaró insconstitucional las afectaciones realizadas a esta artículo por los decretos ejecutivos N° 22017 del 15 de febrero de 1993 y artículo 1° del decreto ejecutivo N° 21198 del 23 de marzo de 1992)
