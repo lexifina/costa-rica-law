@@ -1,0 +1,5 @@
+En caso de homicidio
+Artículo 215,-En caso de homicidio el importe de la reparación del daño se fijará atendiendo a las siguientes reglas:
+1°.-Si el occiso fuere un padre de familia o fuere su esposa, comprenderá el pago al cónyuge sobreviviente, o en su defecto a Ios hijos, y a falta de éstos, a los nietos, de una pensión mensual equivalente a Ia suma que en la condición y capacidades del interfecto podía él proporcionar cada mes a su familia o en que deba apreciarse, la asistencia familiar, sí se tratare de la esposa, durante todo el tiempo que trascurra mientras el menor de los hijos o, en su caso, los nietos, no llegue a su mayor edad.
+Dicha pensión no podrá bajar nunca de sesenta colones mensuales.
+2.-Si el homicidio se cometiere en persona soltera y sin hijos, ni nietos, la reparación se cumplirá pagando el penado a los herederos del ofendido una suma que debe reguIarse teniendo en cuenta la fortuna del reo y las necesidades de dichos herederos, sin que pueda ser inferior a quinientos colones.

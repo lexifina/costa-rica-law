@@ -1,0 +1,2 @@
+Lesiones por imprudencia.
+Artículo 243.-Sufrirá la pena de multa mayor en su grado primero e inhabilitación temporal en el mínimum de su grado primero, del cargo o de la profesión en cuyo ejercicio hubiere causado el daño, el que por imprudencia o negligencia, por impericia en su arte o profesión, o por inobservancia de los reglamentos o deberes de su cargo, causaré a otro en el cuerpo o en la salud, uno de los daños indicados en los artículos anteriores.

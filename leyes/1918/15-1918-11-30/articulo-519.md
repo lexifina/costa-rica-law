@@ -1,0 +1,2 @@
+Actos contrarios a leyes, estatutos ordenanzas
+Artículo 519.-Sin perjuicio de la mayor responsabilidad penal que conforme a este Código haya, de imputarse, será reprimido con multa mayor el director, gerente o administrador de una sociedad anónima o cooperativa, o de una persona jurídica de otra Índole, que prestare su concurso o consentimiento para actos contrarios a las leyes, estatutos u ordenanzas que la rijan, a consecuencia de los cuales, la persona jurídica o la asociación quedare imposibilitada de satisfacer sus compromisos o en la necesidad de ser disuelta.

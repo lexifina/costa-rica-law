@@ -1,0 +1,2 @@
+Hallazgo de cosa ajena
+Articulo 364.-EI que encontraré perdida una cosa ajena o un tesoro y se apropiare la cosa o la parte del tesoro correspondiente al propietario del suelo, sin observar las prescripciones del Código Civil, y el que fuera de Ios casos previstos en el mismo Código, se apropiare una cosa ajena llegada a sus manos por causa de error a fortuitamente, siempre que en cualquiera de esos casos el valor de Io apropiado exceda de cincuenta colones, sufrirán confinamiento o destierro o multa, los tres en su grado primero.

@@ -1,0 +1,3 @@
+Uso de sellos, timbres o marcas inutilizados
+Artículo 508.-Será reprimido con prisión en su grado primero, cuando la defraudación resultante exceda de veinticinco colones, el que hiciere desaparecer de cualquiera de sellos, timbres, marcas o contraseñas a que se refieren los artículos anteriores, el signo que indique haber ya servido, o haberse ya justificado para el efecto de su expedición o venta, y los usare o diere para que otro los use o los exponga a ser usados.
+El que a sabiendas pusiera en venta dichos sellos, timbres, marcas o contraseñas inutilizados, sufrirá la pena dicha en su grado máximo, cualquiera que sea el valor de la defraudación resultante.
