@@ -1,3 +1,0 @@
-Art. 2. Las traslaciones de archivos y demás inherentes del Gobierno, deberán hacerse en adelante en el mes de Febrero, para que la Asamblea comience su residencia ordinaria en dichas ciudades el 1° de Marzo.—Al Consejo Representativo.
-—Dado en la ciudad de Alajuela á los veintisiete dias del mes de Mayo de mil ochocientos treinta y cuatro.—Juan D. Bonilla, Diputado Presidente.—Apolonio de Lara, Diputado Secretario.—José Gabriel Padilla, Diputado Secretario.
-—Sala del Consejo.—Alajuela Junio siete de mil ochocientos treinta y cuatro.—Pase al Poder Ejecutivo.—Ag-ustin Gutiérrez LizaurzabaL—José Alaria Alvarado, Secretario.—Por tanto : Ejecútese.—Alajuela Junio nueve de mil ochocientos treinta y cuatro.—
