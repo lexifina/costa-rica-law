@@ -1,0 +1,1 @@
+Artículo 3º—Entiéndase por organizaciones deportivas y recreativas aquellas que se encuentran debidamente inscritas ante el Registro Público, con cédula y personería jurídica al día, ante el Instituto Costarricense del Deporte, ante el Comité Central de Deportes y Recreación cuyas juntas directivas sean electas popularmente en asambleas comunes.

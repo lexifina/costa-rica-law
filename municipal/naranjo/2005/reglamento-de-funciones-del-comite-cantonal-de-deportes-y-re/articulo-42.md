@@ -1,0 +1,1 @@
+Artículo 42.—Todo terreno que sea propiedad de la Municipalidad y que se encuentre ocupado por alguna instalación deportiva deberá pasar a ser administrado por la Junta Administradora que designe el Comité Cantonal de Deportes y Recreación de Naranjo.

@@ -1,0 +1,1 @@
+Artículo 63.—Cada subcomisión específica por deporte tendrá la misma vigencia de la Comisión de Juegos Deportivos Comunales y Nacionales. Sus miembros podrán ser reelectos. No devengarán dietas ni remuneración alguna.

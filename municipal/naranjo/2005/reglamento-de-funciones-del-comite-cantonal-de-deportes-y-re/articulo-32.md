@@ -1,0 +1,3 @@
+CAPÍTULO X
+Recurso de revisiones, sanciones y sustituciones
+Artículo 32.—Los miembros de la Junta Directiva del Comité podrán presentar recurso de revisión de acuerdos. Se necesitará la misma mayoría requerida para dictar el acuerdo acerca del que se solicita revisión para acordar ésta.

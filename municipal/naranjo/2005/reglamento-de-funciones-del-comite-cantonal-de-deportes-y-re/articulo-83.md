@@ -1,0 +1,1 @@
+Artículo 83.—Los subcomités dependerán de los Comités Comunales. La Junta Directiva del Comité Cantonal supervisará directamente a aquellos subcomités ubicados en distritos en los que no haya comité comunal.
