@@ -1,6 +1,6 @@
 ARTICULO 18.- Se desarrollarán y fortalecerán, dentro de este
-Convenio, como prioridad, las áreas protegidas fronterizas en las regiones
-terrestres y costeras siguientes, conocidas como:
+Convenio, como prioridad, las áreas protegidas fronterizas en las
+regiones terrestres y costeras siguientes, conocidas como:
 - Reserva de la Biosfera Maya.
 - Reserva de la Biosfera Fraternidad o Trifinio.
 - Golfo de Honduras.
