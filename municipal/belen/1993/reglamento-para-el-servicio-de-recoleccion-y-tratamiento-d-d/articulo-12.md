@@ -1,0 +1,1 @@
+Artículo 12.- La Municipalidad no procederá a la recolecctón de desechos que en una u otra forma atente contra la integridad físiIca de los funcionarios en esta actividad, o de aquellos que pudieran causar algún daño en la unidades recolectora .

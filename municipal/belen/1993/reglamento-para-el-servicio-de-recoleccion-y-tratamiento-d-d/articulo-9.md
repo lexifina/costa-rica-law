@@ -1,0 +1,1 @@
+Artículo 9°-Queda prohibido a toda persona natural o jurídica arrojar o acumular desechos sóhdos en lugares no autorizado para el efecto, utilizar medio inadecuados para su transporte y acumulación y proceder a su utilizacion, tratamiento o disposición final mediante sistemas no aprobados por el Ministerio de Salud o la Municipalidad de Belén.

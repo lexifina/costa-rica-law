@@ -1,0 +1,1 @@
+Artículo 18.-Para determinar la categoría del servicio de basura especial la Municipalidad considerará, la cantidad de unidades construidas en la propiedad, el uso al que se destinan y el volumen de desechos que recolectará.

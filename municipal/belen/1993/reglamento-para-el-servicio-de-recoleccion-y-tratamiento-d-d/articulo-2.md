@@ -1,0 +1,1 @@
+Artículo 2°-El sujeto activo: será sujeto activo de la tasa, la Municipalidad de Belén, la cual para los efectos de la relación jurídico tributaria y en su condición de Administración Tributaria, hará uso de las potestades y prerrogativas que el Código de Normas y Procedimientos Tributarios y el Código Municipal le asigna.

@@ -1,0 +1,1 @@
+Artículo 11. Prohíbese toda acción, práctica y operación con los desechos sólidos que deteriore el ambiente natural, de manera que haga insensible sus elementos básicos, especialmente el aire, el agua y el suelo. para los usos a que están destinados.

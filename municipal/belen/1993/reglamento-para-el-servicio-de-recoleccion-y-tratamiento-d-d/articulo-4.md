@@ -1,0 +1,1 @@
+Artículo 4°-Materia imponible: la tasa es una carga pública determinada por el costo del servicio prestado al beneficiario de esta, es decir que la misma será determinada por la prestación cumplida o potencial, brindada por la Municipalidad de Belén para la recolección de los desechos sólidos.

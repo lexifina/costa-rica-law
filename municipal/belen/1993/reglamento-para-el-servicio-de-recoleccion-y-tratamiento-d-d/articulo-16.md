@@ -1,0 +1,1 @@
+Artículo 16.-Todo volumen de desechos sólidos que exceda al volume indicado en el artículo anterior, se clasificará como basura especial y por ese servicio se pagará otro monto adicional al de la tasa básica, de conformidad con los estudios de costos que el ente municipal realice al efecto.

@@ -1,0 +1,1 @@
+Artículo 15.-La Municipalidad prestará su sen icto de recolección de basura por la tasa básica. por un volumen máximo de do cientos ocho decímetros cúbicos, lo equivalente a un estañón de cincuenta y cinco galone por día.
