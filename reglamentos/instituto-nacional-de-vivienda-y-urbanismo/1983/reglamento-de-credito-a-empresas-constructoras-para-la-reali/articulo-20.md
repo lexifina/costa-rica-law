@@ -1,0 +1,1 @@
+Artículo 20.—El servicio de la obligación se hará por cuotas que incluyan amortización e intereses, pagaderas en cajas autorizadas del Instituto. Los adelantos que haga el Instituto a cargo del obligado devengarán los correspondientes intereses mientras se inicie el servicio de la obligación.

@@ -1,0 +1,1 @@
+Artículo 11.—El Instituto deberá aprobar los planos, presupuestos, avalúo del inmueble y otros elementos que el solicitante del crédito deberá agregar a la solicitud, junto con las demás referencias al inmueble, normas y especificaciones de construcción, acabado y el nivel socioeconómico de las familias para las que va dirigido el programa.

@@ -1,0 +1,1 @@
+Artículo 6°—El Instituto concederá los créditos procurando una mayor equidad y distribución entre la lista de precalificados, en concordancia con el volumen, clase y condiciones de las obras a realizar.

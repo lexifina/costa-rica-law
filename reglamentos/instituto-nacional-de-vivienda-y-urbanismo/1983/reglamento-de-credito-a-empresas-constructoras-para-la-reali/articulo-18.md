@@ -1,0 +1,1 @@
+Artículo 18.—Corresponde al prestatario, como dueño del proyecto, el pago de las cargas sociales, tasas e impuestos, así como de los servicios del proyecto y de todas las obligaciones que se deriven del mismo, para lo cual deberá incluir las partidas correspondientes en los presupuestos.

@@ -1,0 +1,1 @@
+Articulo 14.—El Instituto fiscalizará los trabajos y los contratos con los clientes del prestatario, pudiendo suspender los pagos o desembolsos cuando sea procedente, si el proceso de construcción o de traspasos no se realiza en los términos estipulados.

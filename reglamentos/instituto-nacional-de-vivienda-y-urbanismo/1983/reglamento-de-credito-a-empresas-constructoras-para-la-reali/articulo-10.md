@@ -1,0 +1,1 @@
+Artículo 10.—El Instituto girará los desembolsos contra obra efectuada, según los elementos presupuestos y el cronograma de avance de las obras. El atraso en la ejecución de los trabajos dará derecho al Instituto para dar por vencida y exigible la obligación y proceder a su cobro judicial.

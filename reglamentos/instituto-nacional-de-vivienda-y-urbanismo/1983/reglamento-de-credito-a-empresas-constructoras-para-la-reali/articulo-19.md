@@ -1,0 +1,1 @@
+Artículo 19.—Igualmente, quienes adquieran lotes o viviendas del prestatario y garanticen el pago de todo o parte del precio con hipoteca que se descuente en el Instituto, deberán estar al día en toda clase de impuestos nacionales o municipales, así como de los servicios que les corresponda en razón de la adquisición o propiedad del inmueble.

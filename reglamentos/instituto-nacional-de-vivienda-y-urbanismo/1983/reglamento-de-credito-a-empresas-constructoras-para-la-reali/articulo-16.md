@@ -1,0 +1,1 @@
+Articulo 16.—Mientras esté hipotecado el inmueble los adquirentes de parcelas no podrán traspasarlo, enajenarlo, ni gravarlo, si no es con el consentimiento del Instituto. El incumplimiento de esta cláusula dará derecho al Instituto para dar por vencida y exigible la obligación.
