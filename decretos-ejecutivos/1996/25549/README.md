@@ -14,3 +14,4 @@ Modifica el monto asignado al pago de dietas de los miembros del Consejo de Salu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-01 | la propia norma |
+| 2 | 1998-03-11 | Decreto Ejecutivo 26872 (1998-03-11) |
