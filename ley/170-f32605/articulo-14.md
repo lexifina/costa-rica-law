@@ -1,0 +1,1 @@
+Artículo 14.-Todo deudor deber dar informe bimestral al Banco de las condiciones en que se encuentra el ganado pignorado, bajo pena de que se tenga por vencido el plazo en el caso de que faltare a su obligación. Este informe se tendrá como confesión auténtica para todos los efectos contractuales y legales.
