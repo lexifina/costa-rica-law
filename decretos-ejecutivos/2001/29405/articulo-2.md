@@ -1,0 +1,1 @@
+Artículo 2º—Que por acuerdo Nº 9 del 5 de marzo del dos mil uno, y tomando en cuenta que por varios problemas presentados se suspendió la celebración oficial del 115 aniversario de la fundación del cantón de Naranjo; el Concejo Municipal solicitó se dejara sin efecto el asueto indicado.
