@@ -14,3 +14,4 @@ Reglamento del Colegio de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-09-07 | la propia norma |
+| 2 | 1986-06-08 | Decreto Ejecutivo 17158 (1986-06-08) |
