@@ -14,3 +14,4 @@ Reforma Organización Administrativa Oficinas Ministerio Educación Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-11-03 | la propia norma |
+| 2 | 2003-10-17 | Decreto Ejecutivo 31579 (2003-10-17) |

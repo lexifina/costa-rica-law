@@ -2,6 +2,7 @@ N°22612-MEP
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE EDUCACIÓN PUBLICA
 NOTA DE SINALEVI: Este Decreto fue reformado por el Decreto Ejecutivo No. 23489 de 11 de julio de 1994, pero por ser este una reforma integral al Decreto orignal No. 21896 de 25 de enero de 1993, las reformas se hicieron en éste último.
+REFORMADO por artículo 4° del Decreto Ejecutivo No. 31579 de 17 de octubre de 2003, reformas que, por las razones antes expuestas, deben consultarse en el Decreto N° 21896 de 25 de enero de 1993.
 Considerando:
 1°—Que la Educación es prioritaria para el desarrollo y bienestar de la persona y de la sociedad, debiéndose fundamentar en los valores cristianos y en los principios de la democracia y el orden jurídico costarricenses.
 2°—Que el sistema educativo, por su naturaleza, ha de ser lo suficientemente flexible y dinámico para incorporar los cambios y las innovaciones que determinen los avances sociales, culturales, científicos y tecnológicos.
