@@ -1,0 +1,2 @@
+VI.—Modificación del reglamento y vigencia. Las modificaciones y variantes que se deseen introducir en el presente reglamento se someterán al criterio técnico del I.C.T. y al trámite previsto en el artículo 17° de la Ley de Planificación Urbana No 4240 del día 15 de noviembre de 1968.
+rige a partir de su publicación en el Diario Oficial La Gaceta y queda derogada toda disposición Municipal que se oponga a sus normas.
