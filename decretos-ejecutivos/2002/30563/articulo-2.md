@@ -1,0 +1,1 @@
+Artículo 2º—Exceptúase de los límites de gasto presupuestario y efectivo fijados mediante Decreto Ejecutivo N° 29511-H y sus reformas, los recursos que administra la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias destinados a la atención de emergencia nacional declaradas por el Poder Ejecutivo.
