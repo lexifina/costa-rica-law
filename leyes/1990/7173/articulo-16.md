@@ -1,7 +1,7 @@
-ARTICULO 16.- Para gravar toda actividad lucrativa recién establecida,
-razón por la cual no pueda sujetarse al procedimiento impositivo del
-artículo 4, el impuesto se calculará de conformidad con la siguiente
-tarifa, según la categoría respectiva:
+ARTICULO 16.- Para gravar toda actividad lucrativa recién
+establecida, razón por la cual no pueda sujetarse al procedimiento
+impositivo del artículo 4, el impuesto se calculará de conformidad con la
+siguiente tarifa, según la categoría respectiva:
 Categoría Impuesto trimestral
 ¢
 1 50,00
@@ -20,8 +20,8 @@ Categoría Impuesto trimestral
 14 6.000,00
 15 6.600,00
 La Municipalidad aplicará esta tarifa tomando en consideración los
-siguientes aspectos, como factores para la imposición: actividad principal,
-ubicación del establecimiento, condición física del local, materiales,
-número de empleados, principalmente por analogía o comparación con
-establecimientos que ejerzan la misma actividad y estén incluidos dentro
-del artículo 14.
+siguientes aspectos, como factores para la imposición: actividad
+principal, ubicación del establecimiento, condición física del local,
+materiales, número de empleados, principalmente por analogía o
+comparación con establecimientos que ejerzan la misma actividad y estén
+incluidos dentro del artículo 14.
