@@ -16,3 +16,4 @@ Reglamento General de Crédito de la Comisión Nacional de Préstamos para la Ed
 | 1 | 1992-12-14 | la propia norma |
 | 2 | 1995-03-02 | Reglamento 10 (1995-03-02) |
 | 3 | 1995-08-24 | Reglamento 36 (1995-08-24) |
+| 4 | 1996-06-13 | Reglamento 22 (1996-06-13) |
