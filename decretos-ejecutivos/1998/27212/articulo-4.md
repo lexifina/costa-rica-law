@@ -1,0 +1,1 @@
+Artículo 4°—Dichos inmuebles estarán sometidos a la categoría de Refugio de Vida Silvestre, durante un periodo de diez años prorrogables por periodos iguales para lo cual los propietarios deberán solicitarlo por escrito, con un mes de antelación a la finalización de dicho período.

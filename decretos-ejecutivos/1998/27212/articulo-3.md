@@ -1,0 +1,1 @@
+Artículo 3°—Las actividades descritas se encuentran en el Plan General de Manejo. La vigilancia de este Refugio y el cumplimiento de las disposiciones técnicas que al efecto emita el Área de Conservación Cordillera Volcánica Central, serán responsabilidad de los propietarios de los inmuebles.
