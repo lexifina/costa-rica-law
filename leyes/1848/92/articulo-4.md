@@ -1,0 +1,1 @@
+Art. 4. La guarnición de Puntarenas queda exclusivamente sujeta al Gobernador Comandante, asì como el cuadro de marineros al Capitan de puerto; pero ambas autoridades se prestaràn mutuo auxilio en os casos que sea necesario.
