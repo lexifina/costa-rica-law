@@ -1,0 +1,1 @@
+Artículo 15.—El CENAREC contará con el personal necesario para el cumplimiento de sus funciones que aportará el Ministerio de Educación y la Fundación Mundo de Oportunidades, con fundamento en los convenios de cooperación mutua que ambos suscriban.
