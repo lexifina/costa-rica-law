@@ -1,0 +1,2 @@
+Artículo 8°.-EI capital de fundación del Banco se constituye con cuatro millones de colones (¢ 4.000,000.00) en Bonos del Estado que redituarán el 8 % de interés anual y 1% de amortización acumulativa y que se cr earán mediante de cr eto ejecutivo que señalará las garantías y demás condiciones. A esté efecto se autoriza al Ejecutivo para asignar la rentas que juzgue convenientes.
+Todas las Municipalidades de la República, Juntas de Educación o de Caridad, podrán sus cr ibir Bonos del Estado, por pagos trimestrales que representen un 25 % del valor nominal del Bono.

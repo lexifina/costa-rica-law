@@ -1,0 +1,1 @@
+Artículo 16.- Nada de esta ley, se entenderá que aminore para la Directiva de la Institución las responsabilidades que la legislación común señala a las Directivas de los sociedades particulares; por el contrario los directores, vocales, administradores, y empleados del Banco, pesa el máximun de las responsabilidades que las leyes del país puedan atribuirles.
