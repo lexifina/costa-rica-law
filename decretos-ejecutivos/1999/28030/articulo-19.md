@@ -1,0 +1,1 @@
+Artículo 19.—Los recursos provenientes de la partida de ayuda económica a las personas privadas de libertad, serán destinados únicamente para solventar las necesidades económicas básicas de dicha población penal o de su núcleo familiar, en caso de urgencia comprobada, y dentro las posibilidades institucionales.

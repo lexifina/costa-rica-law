@@ -1,0 +1,1 @@
+Artículo 24.—El Órgano se reunirá ordinariamente una vez por quincena o extraordinariamente si las circunstancias lo ameritan previa convocatoria por escrito del Presidente con al menos un día hábil de anticipación.
