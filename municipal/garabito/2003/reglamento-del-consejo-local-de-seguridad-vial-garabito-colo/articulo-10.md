@@ -1,0 +1,1 @@
+Artículo 10.—Cada miembro representante de COLOSEVI-JACÓ, será identificado mediante un carné. Asimismo se hace saber que el no asistir a 3 reuniones consecutivas sin justificación o 6 ausencias justificadas, perderá la credencial otorgada como miembro del COLOSEVI-JACÓ.
