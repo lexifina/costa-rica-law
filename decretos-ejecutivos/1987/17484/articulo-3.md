@@ -1,0 +1,1 @@
+Articulo 3°—El Instituto Costarricense de Ferrocarriles cuando estime que alguna de las instituciones o empresas estatales ha procedido al trasiego de mercaderías usando otros medios, por haber cumplido el procedimiento fijado en el artículo anterior, pondrá el asunto en conocimiento del Consejo Económico riel Consejo de Gobierno.
