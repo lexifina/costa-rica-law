@@ -1,0 +1,1 @@
+Artículo 3°- El Estado garantiza que la presente ley, durante los veinte años referidos no será revocada ni alterada en sentido desfavorable para quienes en Guanacaste se dediquen a cultivar café; e indemnizar a los interesados los daños y perjuicios que la revocatoria o modificación de esta ley les irrogue.

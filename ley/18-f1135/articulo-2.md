@@ -1,0 +1,1 @@
+Artículo 2°-Para gozar de las exenciones y premios dichos, el café deberá ser producido por costarricenses o por extranjeros residentes en Costa Rica. La condición de residencia se exige a todos los socios de cualquier empresa productora de café.

@@ -1,0 +1,1 @@
+Artículo 4°- Los agricultores que cultivaren café en Guanacaste en una extensión mayor de cien hectáreas tendrán derecho a gozar de las exenciones y premios que esta ley establece hasta por la producción de cien hectáreas, solamente.
