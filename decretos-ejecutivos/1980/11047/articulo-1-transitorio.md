@@ -1,0 +1,1 @@
+Transitorio l.-Los miembros del Consejo Nacional de Economía, Industria y Comercio, deberán juramentarse a más tardar quince días a partir de la publicación de este decreto. Deberán tener su primera reunión no más de ocho días después de que todos hayan sido juramentados.

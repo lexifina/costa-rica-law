@@ -1,0 +1,1 @@
+Artículo 8°-A las sesiones del Consejo Nacional Sectorial de Economía, Industria y Comercio, podrán ser convocados por su Presidente, con derecho a voz, representantes de otras instituciones públicas o privadas.

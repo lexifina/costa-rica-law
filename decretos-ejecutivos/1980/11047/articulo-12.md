@@ -1,0 +1,1 @@
+Artículo 12. - Para el cumplimiento de sus funciones, la Secretaría Ejecutiva de Planificación Sectorial de Economía, Industria y Comercio, estará subordinada al Presidente del Consejo y para efectos administrativos estará adscrita al Ministerio de Economía, Industria y Comercio.
