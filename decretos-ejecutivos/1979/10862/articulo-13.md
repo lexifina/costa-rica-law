@@ -1,0 +1,1 @@
+Artículo 13.—La Imprenta acondicionará convenientemente los locales necesarios, para que los servidores puedan tomar sus alimentos y bebidas durante su tiempo de descanso, según lo dispuesto por el artículo 97 del Decreto Ejecutivo número 1 de 2 de enero de 1967 (Reglamento de Seguridad e Higiene en el Trabajo).

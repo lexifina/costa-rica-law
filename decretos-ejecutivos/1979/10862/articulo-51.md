@@ -1,0 +1,1 @@
+Artículo 51.—Cuando se produzca una llegada tardía injustificada superior a quince minutos, rentados a partir de la hora de entrada, el trabajador no deberá permanecer laborando durante esa fracción de jornada, la cual se calificará y computará como media ausencia para efectos de sanción y de no pago del salario.

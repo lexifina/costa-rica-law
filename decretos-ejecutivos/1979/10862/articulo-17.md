@@ -1,0 +1,2 @@
+Artículo 17.—El pago de sueldos se hace quincenalmente, en el lugar de trabajo, en las fechas que señale la Pagaduría Nacional con relación a los servidores que reciben sus giros directamente de esa dependencia, o en las fechas que indique la Junta para los demás servidores.
+Al acordarse recargo total de funciones, el trabajador sustituto tiene derecho a recibir el sueldo de base del puesto de categoría superior, si fuere mayor.

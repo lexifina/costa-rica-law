@@ -1,0 +1,2 @@
+Artículo 2°—Los servidores de la Imprenta Nacional son de dos tipos:
+los pagados con fondos del Presupuesto Nacional, Ministerio de Gobernación y Policía, cuyo régimen fundamental está definido en el Estatuto de Servicio Civil y los pagados con fondos administrados por la Junta Administrativa de la Imprenta Nacional, creada por la ley número 5394 de 5 de noviembre de 1973, sujetos al Código de Trabajo y a las demás leyes sociales aplicables.

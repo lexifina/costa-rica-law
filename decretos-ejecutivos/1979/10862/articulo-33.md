@@ -1,0 +1,1 @@
+Artículo 33.—Se declaran aplicables, en lo conducente, a los servidores no protegidos por las disposiciones, las establecidas en el Régimen de Servicio Civil sobre vacaciones, licencias, incluidas las de estudios y subsidios por enfermedad y la ley número 1810 de 15 de octubre de 1954 sobre becas.

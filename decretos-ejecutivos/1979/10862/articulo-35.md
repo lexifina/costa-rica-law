@@ -1,0 +1,3 @@
+CAPITULO XIII
+Registro de Asistencia
+Artículo 35.—El registro de asistencia y puntualidad al trabajo, se llevará "con el debido cuidado" de manera que quede impreso con claridad, toda vez que las marcas defectuosas, manchadas o confusas que no se deban a desperfectos del reloj, se tendrán por no hechas para efectos de sanción por el sistema de "reloj marcador", sin perjuicio de que la Dirección de la Imprenta pueda dis- poner otro sistema igualmente idóneo. Todo servidor deberá marcar su tarjeta individual de registro, salvo los exonerados por escrito de la Dirección en el reloj eléctrico que para ese fin se encuentra instalado a la entrada del centro de labores.
