@@ -1,0 +1,1 @@
+Artículo 32.—Cuando el número de oradores inscritos sobrepase de 6, el Presidente podrá limitar la concesión del uso de la palabra hasta ese tanto, a razón de un número igual de oradores que estén a favor o en contra del punto en discusión.

@@ -1,0 +1,1 @@
+Artículo 29.—Corresponde al ICAFE, dar el asesoramiento técnico, proporcionar los documentos de estudio y los materiales necesarios que requieran estas comisiones. Asimismo, dar todo el apoyo logístico que requieran.

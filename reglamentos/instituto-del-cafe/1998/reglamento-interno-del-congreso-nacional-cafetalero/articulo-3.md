@@ -1,3 +1,3 @@
-Artículo 3° Los miembros del Congreso Nacional Cafetalero serán designados por un periodo de un año, contado a partir del primer domingo de diciembre de cada año.
-Ante la eventualidad de que un delegado no pueda asistir al Congreso, la entidad que lo propuso solicitará por escrito su sustitución, aportando las calidades del nuevo delegado, si no fuera posible hacer acreditación antes del Congreso esto se hará durante la sesión en el momento oportuno y deberá dejarse constancia en el acta.
-El delegado propuesto deberá presentar su denominación como tal a cargo de la entidad a la que representa, antes de que se abra la sesión.
+CAPÍTULO II
+Sobre la integración del Congreso
+Artículo 3º—El Congreso se encuentra constituido por delegados propietarios y suplentes de los sectores antes mencionados.

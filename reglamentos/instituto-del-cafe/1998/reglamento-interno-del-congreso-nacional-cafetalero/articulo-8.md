@@ -1,2 +1,7 @@
-Artículo 8° El proyecto de agenda para las sesiones extraordinarias del Congreso sólo podrá contener los temas mencionados específicamente en la convocatoria y en este caso el Congreso no podrá agregar otros temas que no hubieren sido incluidos en la convocatoria, la cual deberá hacerse con no menos de un mes de antelación.
-Para agregar otros temas a la agenda de la sesión extraordinariamente, deberán estar presentes tres cuartas partes de los delegados del Congreso, todos ellos deberán estar de acuerdo con la inclusión de los temas y éstos deberán ser declarados como urgentes de conocer.
+Artículo 8º—Son deberes de los delegados:
+a) Identificarse con la presentación del carné suministrado para tal propósito.
+b) Portar durante las sesiones del Congreso, visiblemente, la insignia que los distinga como delegado.
+c) Asistir puntualmente a las sesiones de comisión y del Congreso.
+d) Cumplir con esmero y responsabilidad los cargos para los que fuere electo.
+e) Los delegados acreditados como propietarios, manifestar su voluntad mediante la emisión de su voto para aprobar o desaprobar un asunto sometido a votación.
+f) Comunicar al Directorio su retiro o ausencia de la sesión del Congreso, sea esta temporal o definitiva.

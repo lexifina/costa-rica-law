@@ -1,0 +1,1 @@
+Artículo 33.—Agotadas las intervenciones de los delegados, el Presidente podrá ilustrar a los congresistas sobre el fondo de lo que se discute o sobre el procedimiento de votación, y seguidamente se procederá a recibir la misma.

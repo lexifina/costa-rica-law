@@ -1,3 +1,6 @@
-Artículo 7° En las sesiones ordinarias del Congreso Nacional Cafetalero se recibirán los informes del Instituto del Café de Costa Rica, Banco Central y Ministerio de Agricultura a los que se refiere el artículo 115 de la Ley 2762 de 21 de junio de 1961.
-El Instituto de Café de Costa Rica, elaborará un informe que deberá enviar a los delegados por lo menos con un mes de anticipación a la fecha de la reunión. Será un informe sobre la política integral relativa a la actividad cafetalera y deberá referirse a aspectos agronómicos, industriales, comercialización tanto nacional como internacional sobre los convenios y compromisos internacionales y a la aplicación de la Ley Sobre el Régimen de Relaciones entre Productores, Beneficiarios y Exportadores de Café, y cualesquiera otros asuntos concernientes a la actividad cafetalera.
-Igualmente, se presentará ante los delegados un informe sobra la situación económica y administrativa del Instituto del Café de Costa Rica, distribuyéndose con quince días de anticipación a los señores Delegados los estados financieros auditados al 30 de setiembre anterior a la sesión ordinaria del Congreso.
+CAPÍTULO IV
+De los derechos y deberes de los delegados
+Artículo 7º—Corresponde a los delegados sin distinción alguna:
+a) Participar en todas las actividades del Congreso Nacional Cafetalero.
+b) Participar en cualquiera de las Comisiones de Trabajo que se conformen para analizar asuntos propios de la actividad cafetalera.
+c) Intervenir en los debates de las sesiones del congreso y suscribir mociones.

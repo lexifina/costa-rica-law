@@ -1,1 +1,3 @@
-Artículo 16° Cuando una moción haya sido adoptado o rechazada, no podrá ser examinada de nuevo, a no ser que el Congreso así lo decida por una mayoría de tres cuartas partes. Queda a criterio del presidente el calificar si una moción presentada es igual o similar a otra que haya sido adoptada o rechazada. El permiso para hacer uso de la palabra sobre la moción para examinar nuevamente un asunto, será concedido sólo al proponente de esta moción y a un orador opuesto a la misma e inmediatamente después se someterá a votación.
+CAPÍTULO VIII
+Sobre los órganos de Dirección
+Artículo 16.—El Congreso Nacional Cafetalero estará dirigido por un Presidente y dos Secretarios, los cuales serán nombrados en ese orden por mayoría simple y durarán en sus cargos por un período de un año a partir de su nombramiento, pudiendo ser reelectos.

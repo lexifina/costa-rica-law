@@ -1,0 +1,1 @@
+Artículo 26.—Cada Comisión elegirá de su seno y por simple mayoría, un Presidente, un secretario y un relator. Contará con los asesores que designe el ICAFE y funcionará con al menos 3 de los integrantes presentes. Estarán compuestas por un número abierto de miembros y podrá estar conformada tanto por delegados, como por los asesores externos que el Congreso determine.

@@ -1,1 +1,1 @@
-Artículo 2° a mas tardar el 15 de agosto de cada año, el Presidente de la Junta Directiva del Instituto del Café de Costa Rica, solicitará a las organizaciones citadas en el artículo ciento diez de la Ley N°2762 reformada por la Ley 7736 la designación de sus delegados para el siguiente Congreso.
+Artículo 2º—El presente Reglamento regula la forma de funcionamiento del Congreso Nacional Cafetalero.

@@ -14,3 +14,4 @@ Reglamento Interno del Congreso Nacional Cafetalero
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-09-14 | la propia norma |
+| 2 | 2003-04-04 | Reglamento 0 (2003-04-04) |

@@ -1,1 +1,1 @@
-Articulo 13° Ningún Delegado puede dirigirse al Congreso sin haber obtenido previamente el permiso del presidente. El Presidente puede llamar la atención a un orador si sus observaciones no son pertinentes al asunto objeto del debate.
+Artículo 13.—En las sesiones extraordinarias del Congreso Nacional Cafetalero, la agenda será determinada por el Directorio dentro de las regulaciones de ley y dentro de lo estipulado en este reglamento.

@@ -1,1 +1,3 @@
-Artículo 4° En la oportunidad en que las municipalidades de los cantones de mayor producción de café en la cosecha anterior a la celebración del Congreso indiquen el nombre y calidades del delegado que las representará, deben mencionar el nombre de la organización a la que pertenece, para verificar que de previo operó la acreditación a esta última. Para los efectos de la designación del delegado, el Instituto del Café de Costa Rica, verificará que el nombre propuesto corresponda al de un productor que figure en nómina de productores de la institución.
+Artículo 4º—Para los congresos se convocará tanto a los delegados propietarios como a los suplentes. Los suplentes sustituirán a los propietarios en los siguientes casos:
+a) En caso de ausencia temporal o definitiva del propietario.
+b) En caso de muerte o inhabilitación del propietario

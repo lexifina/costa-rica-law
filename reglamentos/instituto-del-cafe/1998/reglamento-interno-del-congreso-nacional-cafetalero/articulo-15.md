@@ -1,1 +1,1 @@
-Artículo 15° Todas las mociones se presentarán por escrito al presidente, salvo las de procedimientos y sus enmiendas.
+Artículo 15.—En las reuniones del Congreso no se entrará a conocer de ningún asunto que esté fuera de la agenda del día, excepto que se presentare moción de alteración de la agenda acogida para su trámite por el Directorio y se aprobare por las dos terceras partes de los delegados presentes.

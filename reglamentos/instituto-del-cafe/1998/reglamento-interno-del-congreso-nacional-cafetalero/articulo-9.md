@@ -1,2 +1,3 @@
-Artículo 9° El Presidente de la Junta Directiva del Instituto del Café de Costa Rica enviará por escrito a cada persona designada conforme a lo establecido en este reglamento, una nota acerca de la fecha fijada para la sesión del Congreso junto con el proyecto de agenda. Dicha nota se enviará con no menos de un mes de antelación a la fecha fijada para la reunión.
-Durante la sesión del Congreso todas las mociones se presentarán por escrito al presidente, salvo las de procedimientos y sus correspondientes enmiendas.
+CAPÍTULO V
+Sobre las sesiones ordinarias y extraordinarias del Congreso
+Artículo 9º—El Congreso se reunirá ordinariamente el primer domingo del mes de diciembre de cada año conforme la Ley Nº 2762 lo indica, y tendrá como puntos de agenda los que dicha normativa estipula.

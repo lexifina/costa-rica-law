@@ -1,1 +1,1 @@
-Artículo 20° Para que la votación sea nominal se requiere que tal propuesta sea votada por mayoría simple. Después de cada votación se anunciará los resultados correspondientes.
+Artículo 20.—Corresponde al Segundo Secretario llevar el control de los oradores en estricto orden de solicitud y leer las mociones en orden alternativo cuando corresponda.

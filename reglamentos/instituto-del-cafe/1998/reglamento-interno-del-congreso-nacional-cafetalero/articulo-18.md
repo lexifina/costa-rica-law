@@ -1,1 +1,11 @@
-Articulo 18° Una moción es considerada como de enmienda a una moción inicial si agregada o elimina algo de dicha propuesta. Cuando se haya presentado una enmienda a una moción, la enmienda será votada en primer lugar. Cuando se hayan presentado dos o más enmiendas a una moción, el Congreso votará primero sobre la enmienda que más se aparte del fondo de la moción inicial y después sobre la enmienda siguiente según dicho criterio, continuando de esta forma hasta que se haya votado sobre todas las enmiendas. Sin embargo, cuando la adopción de una enmienda implique necesariamente el rechazo de otra, esta última no se podrá en votación
+Artículo 18.—Corresponde al Presidente del Congreso Nacional Cafetalero:
+a) Presidir y representar oficialmente al Congreso.
+b) Dar los mensajes de apertura y clausura del Congreso.
+c) Dirigir los debates.
+d) Tener por agotada la discusión y someter a votación cada asunto en el momento oportuno.
+e) En caso de empate, decidir la votación con su voto de calidad.
+f) Decretar los recesos que estime convenientes para verificar el quórum, armonizar o conciliar mociones, y ante situaciones imprevistas que lo justifiquen.
+g) Recibir y atender a los invitados especiales.
+h) Velar porque el Congreso cumpla las leyes y reglamentos relativos a su función.
+i) Designar a los miembros del Tribunal de Elecciones del Congreso Nacional.
+j) Firmar el libro de actas junto con los dos secretarios.

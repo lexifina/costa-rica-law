@@ -1,0 +1,1 @@
+Artículo 27.—Corresponde a las comisiones estudiar, discutir y dictaminar sobre los asuntos sometidos a su consideración por el Congreso Nacional; y sobre los que, conexos con aquellos, presenten por escrito sus integrantes en forma de ponencias o mociones.

@@ -1,0 +1,1 @@
+Artículo 47.—Para que queden firmes los acuerdos en la misma sesión del Congreso, éstos deben ser declarados como tales por las dos terceras partes de la totalidad de los miembros del Congreso conforme lo estipula el artículo 56, inciso 2), de la Ley General de la Administración Pública.
