@@ -1,0 +1,1 @@
+Artículo 13.-Las cotizaciones se recibirán en sobre sellado y serán depositadas en el buzón, que para tal efecto mantendrá la oficina de Proveeduría. Además del buzón, podrá utilizar el fax para enviar las cotizaciones.

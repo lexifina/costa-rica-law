@@ -1,0 +1,1 @@
+Artículo 14.-EI buzón de cotización se abrirá el día y la hora señalados conforme en la invitación, en presencia del Director Financiero y el Jefe de la Sección de Proveeduría; y en ausencia alguno de los dos, estará presente el Alcalde Municipal.

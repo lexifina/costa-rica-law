@@ -1,0 +1,1 @@
+Artículo 35.-EI cupón se confeccionará previa solicitud del interesado; el cual deberá tramitarse por lo menos con dos días de anticipación, con el fin de evitar paralización de operaciones, con ausencia del proveedor.

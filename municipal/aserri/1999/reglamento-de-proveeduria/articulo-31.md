@@ -1,0 +1,1 @@
+Artículo 31.-La sección de Proveeduría, tendrá la facultad de fiscalizar la existencia de materiales en los diferentes departamentos de la Institución y podrá realizar inventarios, cuando lo estime conveniente. Lo anterior incluye la bodega auxiliar.

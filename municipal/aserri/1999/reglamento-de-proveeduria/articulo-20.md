@@ -1,0 +1,1 @@
+Artículo 20.-Una vez analizados y hechas las recomendaciones del caso, el dictamen se elevará a conocimiento del Alcalde Municipal, el cual lo remitirá al Concejo Municipal y los trámites siguientes, cuando corresponda.

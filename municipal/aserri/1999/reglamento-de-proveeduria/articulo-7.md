@@ -1,0 +1,1 @@
+Artículo 7°-La solicitud de compra y bienes, deberá efectuarse a la sección de proveeduría, por parte del departamento para su trámite. Estos deberán estar de acuerdo con el programa de compras respectivo.

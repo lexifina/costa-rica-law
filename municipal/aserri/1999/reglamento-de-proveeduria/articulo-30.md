@@ -1,0 +1,1 @@
+Artículo 30.-De acuerdo a la necesidad de la Institución, se procederá a crear otra bodega auxiliar, en cuyo caso se nombrará un Encargado aparte del Encargado de la Bodega Principal; el cual deberá cumplir con las mismas disposiciones y responsabilidades, señaladas en los artículos 26-27-28 de este Reglamento.

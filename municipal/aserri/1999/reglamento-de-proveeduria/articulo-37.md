@@ -1,0 +1,1 @@
+Artículo 37.-Todo lo dispuesto en el presente Reglamento, se regirá por las disposiciones de la Ley General de Administración Financiera y la Ley de Contratación Administrativa y su Reglamento; incluye las sanciones respectivas

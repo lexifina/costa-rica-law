@@ -1,0 +1,3 @@
+CAPITULO II
+Adquisición de bienes y servicios
+Artículo 6°-Cuando los departamentos requieran bienes y servicios, enviarán sus requerimientos a la Oficina de la Proveeduría (si no existe este departamento, el responsable de realizar las compras), por medio de un formulario: "Solicitud de Bienes y Servicios", conteniendo el nombre del departamento, solicitante, cantidad de descripción, detalle de lo requerido y la autorización del Director del Departamento. Con respecto a lo referente al alquiler de maquinaria, deberá llevar el visto bueno del Director del Area Obras y Servicios, aprobando la obra

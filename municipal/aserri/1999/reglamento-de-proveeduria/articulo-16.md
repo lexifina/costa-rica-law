@@ -1,0 +1,1 @@
+Artículo 16.-En caso de que la cotización sea inferior a doscientos setenta mil colones, la adjudicación la hará el Alcalde conjuntamente con el Director Financiero; y en caso de que sea superior a doscientos setenta mil colones, lo hará el Concejo Municipal.
