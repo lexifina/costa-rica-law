@@ -13,3 +13,4 @@ Regula Venta de Artículos de Consumo Básico en Zona Fronteriza Panamá
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-09-12 | la propia norma |
+| 2 | 1983-09-12 | Decreto Ejecutivo 22208 (1994-03-10) |
