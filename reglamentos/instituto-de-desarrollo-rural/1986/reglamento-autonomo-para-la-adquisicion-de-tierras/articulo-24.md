@@ -1,4 +1,29 @@
-CAPITULO IV
-De la adquisición de tierras para solucionar
-conflictos de ocupación precaria
-Artículo 24.-Si durante la tramitación, o ya enteramente cumplidos los procedimientos que señale el capítulo sexto de la Ley, de Tierras y Colonización denominados "Regulación de Conflictos entre Propietarios y Poseedores en Precario", el Instituto decide adquirir el inmueble objeto de conflicto como una forma para solucionarlo, para dicha compra se seguirán los procedimientos señalados en 107 articulos 17,18. 19 y 20 de este Reglamento.
+Artículo 24.-EI acuerdo de compra necesariamente comprenderá:
+1) Una parte considerativa, que abarcará los siguientes aspectos:
+a)Necesidad o justificación de la compra.
+b) Indicación de que existe disponibilidad presupuestaria para la adquisición.
+c) Indicación de que se tuvo a la vista el estudio .agrológico sobre la totalidad del área que se pretende adquirir.
+ch) Indicación de que se tuvieron a la vista otras alternativas de compra o la justificación del porqué ello no ocurrió así.
+d) Indicación de que se tuvieron .a la vista los avalúos respectivos, realizados por el Instituto de Desarrollo Agrario y cuando corresponda por la Dirección General de la Tributación Directa.
+e) Indicación de que se analizaron la opción y opciones de venta presentadas por el o los vendedores.
+f) Indicación de que se estudió la situación legal de los inmuebles mediante estudio practicado en el Registro de la Propiedad, en lo tocante a gravámenes, anotaciones y documentos pendientes de inscripción
+g) Indicación de que se tuvo a la vista el criterio del Jefe Regional en cuya jurisdicción se encuentra ubicada la finca sobre la conveniencia o necesidad de su adquisición.
+(Así reformado el inciso anterior mediante sesión N° 83 del 06 de noviembre de 1987).
+h) Indicación de que se tuvieron a la vista los planos respectivos y tratándose de fincas sin inscribir, el documento que demuestre la propiedad del vendedor.
+i) En caso de expropiaciones, que se ha. cumplido con los requisitos y
+comprobaciones que exige el artículo 144 de la Ley de Tierras y Colonización. .
+j) Indicación de que se tuvo a la vista la medida efectuada por eI IDA, en aquellos casos en .que la. misma haya sido efectuada antes de la fecha del acuerdo de compra.
+2) Una parte dispositiva, que abarcará los siguientes aspectos:
+a) Descripción de los inmuebles.
+b) Precio, forma de pago y valor por hectárea.
+c) Retención de dinero de parte del precio para la comprobación de área y levantamiento de .anotaciones.
+ch) Orden para .la Sección de Topografía a fin de que verifique en el terreno el área real .adquirida. En tratándose de fincas sin inscribir, la orden para el levantamiento topográfico y catastro del área respectiva. Ambas obligaciones deberá ser ejecutadas en un plazo de dos meses después de la suscripción de la escritura de traspaso.
+d) Orden a la Sección de Proveeduría y a la Oficina Subregional correspondiente, para que de inmediato, en coordinación con el propietario, procedan a la recepción del inmueble y al inventario de los bienes que se adquieren.
+De dicha recepción se levantará un acta de recibo. según formulario recomendado por la Auditoria acta que suscribirán el Jefe Regional, el Delegado de la Proveeduría (cuando corresponda) y el vendedor.
+(Así reformado el inciso anterior mediante sesión N° 83 del 06 de noviembre de 1987).
+e) Orden a la Sección Selección de Beneficiarios para que efectúen los estudios de los grupos que ocupan o vayan a ocupar el inmueble adquirido.
+f) Orden al notario asignado para que confeccione la escritura de compra,. previo estudio de registro el mismo día de la firma de ese documento, independientemente de .los otros estudios legales que se haya efectuado antes.
+(Así adicionado el inciso anterior mediante sesión N° 83 del 06 de noviembre de 1987).
+g) Autorización al notario asignado para que solicite se efectúen las rebajas necesarias del precio de venta a fin de cancelar. los gravámenes hipotecarios, los impuestos nacionales y municipales y cualquier otro gasto necesario para la inscripción del documento en el Registro Público.
+(Así reformado y corrida la numeración del inciso anterior mediante sesión N° 83 del 06 de noviembre de 1987, que lo traspasó del anterior f) al g) actual).
+(Así corrida su numeración mediante sesión N° 83 del 06 de noviembre de 1987, que lo traspasó del anterior artículo 23 al 24 actual).

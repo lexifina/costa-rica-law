@@ -1,1 +1,2 @@
-Artículo 15.-Cuando un grupo tenga pretensiones sobre una finca especifica, la Presidencia Ejecutiva ordenará los estudios técnicos y legales a fin de determinar si es procedente o no su adquisici6n. Si la decisión fuese negativa, se le hará saber al grupo, que queda sujeto a ser ubicado en cualquier otra finca que se adquiera en la zona.
+Artículo 15-En los. casos de zonas identificadas como no prioritarias, la Presidencia Ejecutiva y la Junta Directiva determinarán en cada caso la política a seguir.
+(Así corrida su numeración mediante sesión N° 83 del 06 de noviembre de 1987, que lo traspasó del anterior artículo 14 al 15 actual).

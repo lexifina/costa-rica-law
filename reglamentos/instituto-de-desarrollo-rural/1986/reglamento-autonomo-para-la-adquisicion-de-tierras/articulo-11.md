@@ -1,1 +1,9 @@
-Artículo 11.-Con base en los estudios mencionados en el articulo anterior; la misma unidad informará a la Junta Directiva la demanda potencial de tierras en cada una de las zonas, delimitadas y recomendará un rango de tierras .a adquirir, en términos de hectáreas, para cada zona.
+Artículo 11.-La Dirección de Planificación con la colaboración de cualquier otra unidad que ésta requiera, recomendará a la Junta Directiva zonas de acción del Instituto, tomando en cuenta criterios técnicos sustentados en lo posible en los resultados de:
+a) Análisis de las políticas y estrategias Institucionales.
+b) Análisis de tenencia de tierras,
+c) Análisis de la dinámica poblacional.
+d) Análisis de los índices de pobreza y desocupación.
+e) Análisis de la presión por las tierras.
+f) Análisis de planes de desarrollo rural existentes o en preparación.
+g) Análisis general de la capacidad de uso de las tierras en el área.
+(Así corrida su numeración mediante sesión N° 83 del 06 de noviembre de 1987, que lo traspasó del anterior artículo 10 al 11 actual).

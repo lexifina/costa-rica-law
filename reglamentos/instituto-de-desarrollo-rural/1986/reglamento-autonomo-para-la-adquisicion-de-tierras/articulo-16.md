@@ -1,1 +1,2 @@
-Artículo 16.-La Comisión Técnica y la Presidencia Ejecutiva analizarán las ofertas recibidas, y clasificarán las fincas en grupos, con el fin de determinar las prioridades de adquisici6n.
+Artículo 16.-Cuando un grupo tenga pretensiones sobre una finca especifica, la Presidencia Ejecutiva ordenará los estudios técnicos y legales a fin de determinar si es procedente o no su adquisición. Si la decisión fuese negativa, se le hará saber al grupo, que queda sujeto a ser ubicado en cualquier otra finca que se adquiera en la zona.
+(Así corrida su numeración mediante sesión N° 83 del 06 de noviembre de 1987, que lo traspasó del anterior artículo 15 al 16 actual).

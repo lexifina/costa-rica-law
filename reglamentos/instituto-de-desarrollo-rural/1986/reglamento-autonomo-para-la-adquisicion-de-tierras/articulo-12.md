@@ -1,6 +1,2 @@
-Artículo 12.-Los Directores Regionales podrán identificar y recomendar a la Presidencia Ejecutivos a fincas de interés para el Instituto, mediante los siguientes criterios:
-a) Potencial productivo aparente.
-b) Ubicación respecto a otras tierras afectadas por e1 IDA.
-c) Facilidad de vías de acceso presente o futura.
-d) Cercanía a centros de servicios.
-e) Otros.
+Artículo 12.-Con base en los estudios mencionados en el articulo anterior; la misma unidad informará a la Junta Directiva la demanda potencial de tierras en cada una de las zonas, delimitadas y recomendará un rango de tierras .a adquirir, en términos de hectáreas, para cada zona.
+(Así corrida su numeración mediante sesión N° 83 del 06 de noviembre de 1987, que lo traspasó del anterior artículo 11 al 12 actual).

@@ -14,3 +14,4 @@ Reglamento Autónomo para la Adquisición de Tierras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-07-31 | la propia norma |
+| 2 | 1987-11-06 | Reglamento 83 (1987-11-06) |

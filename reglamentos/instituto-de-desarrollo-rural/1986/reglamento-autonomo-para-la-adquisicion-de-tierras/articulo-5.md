@@ -1,1 +1,3 @@
 Artículo 5°-La Comisión estará integrada por el Jefe del Departamento de Estudios Básicos, el Jefe de la Sección de Estudios Agroeconómicos y el Jefe de Sección de Avalúos; además podrá ser reforzada con los funcionarios que se consideran necesarios a juicio de la presidencia Ejecutiva.
+b) Los miembros de la Comisión gozarán de inamovilidad laboral mientras formen parte de ella y durante un lapso de dos años a partir de su retiro de dicho organismo excepto que incurrieren en causal de despido de conformidad con el Código de Trabajo y leyes atinentes al caso. Se exceptúa de este beneficio al Presidente Ejecutivo y a los Gerentes.
+(Así adicionado el inciso anterior mediante sesión N° 83 del 06 de noviembre de 1987).

@@ -1,1 +1,2 @@
-Artículo 22.-Una .vez que la Junta Directiva .apruebe la compra de la. finca, la Comisión Técnica y el Departamento Legal coadyuvarán con el Secretario ,General en la redacción del acuerdo de compra, el que una vez firmado será remitido por la Presidencia Ejecutiva a los órganos correspondientes para su ejecución:
+Artículo 22.-Si la Junta Directiva resuelve la oferta de compra en forma; negativa, se procederá a informar al propietario, se registrará en el Banco de Datos y se archivará el expediente. Si la resolución es positiva, se procederá como se indica en los artículos siguientes.
+(Así corrida su numeración mediante sesión N° 83 del 06 de noviembre de 1987, que lo traspasó del anterior artículo 21 al 22 actual).
