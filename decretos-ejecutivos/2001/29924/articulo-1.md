@@ -11,3 +11,4 @@ Decretan:
 Artículo 1º—Modifícanse para el Instituto de Fomento y Asesoría Municipal, los límites de gasto presupuestario y efectivo para el año 2002, establecidos en el Decreto Ejecutivo Nº 29511-H, de manera que el gasto presupuestario y el gasto efectivo total no excedan la suma de ¢1.096.8 millones, en ese período.
 (Modificado límite de gasto presupuestario y efectivo para el 2002 del Instituto de Fomento y Asesoría Municipal)
 (Modificado límite de gasto presupuestario y efectivo para el 2002 del Instituto de Fomento y Asesoría Municipal, mediante Decreto Ejecutivo N° 29990 de 8 de noviembre del 2001)
+(Modificado límite de gasto presupuestario y efectivo para el 2002 del Instituto de Fomento y Asesoría Municipal, mediante Decreto Ejecutivo N° 30163 del 25 de enero del 2002)
