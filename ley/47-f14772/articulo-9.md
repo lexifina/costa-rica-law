@@ -1,0 +1,1 @@
+Art 9° El Procurador que abusando de sus funciones posponga un título o documento de los que se le encomiendan a otro presentado posteriormente, será reo de suplantación en documentos públicos, castigado conforme al Código Penal, y que exija de las partes interesadas derechos o gajes en cualquiera cantidad, será juzgado como reo de injusta exacción o estafa, según el caso.

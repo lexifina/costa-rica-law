@@ -1,0 +1,1 @@
+Art 8° El Poder Ejecutivo queda autorizado para invertir el sobrante de los derechos que se tasen por la intervención del Procurador, satisfecha su dotación, en recompensar trabajos extraordinarios y en promover mejoras en la misma oficina.

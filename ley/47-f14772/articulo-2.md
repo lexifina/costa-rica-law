@@ -1,0 +1,1 @@
+Art 2° Este funcionario anotará en un libro foliado y rubrica por el Registrador, el día y la hora de la recepción de cada título, expresando el nombre, apellido y vecindario del comitente, en un orden, sin dejar renglones en blanco. Además, dará el recibido correspondiente a la parte que lo pida.
