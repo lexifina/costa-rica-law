@@ -1,0 +1,1 @@
+Artículo 11° Para la inscripción del título de un órgano de publicidad periódica, basta el depósito de un ejemplar y la presentación de un certificado expedido por la autoridad competente, de que han sido cumplidos los requisitos que previene la Ley de Imprenta.

@@ -1,0 +1,1 @@
+Artículo 6° Los libros, grabados, dibujos, fotografías, diseños y demás reproducciones de obras literarias, artísticas y científicas que se depositen en cumplimiento de la ley, se archivarán y se les pondrá una anotación que haga constar el número de la inscripción y folio en que ésta esté asentada. Se les pondrá, además, el sello de la oficina.

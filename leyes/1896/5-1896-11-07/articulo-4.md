@@ -1,0 +1,1 @@
+Artículo 4° Las certificaciones que expida el Director General de las Bibliotecas Públicas contendrán los mismos detalles que determina el artículo 2° para la inscripción y además, el folio del registro en que ha sido asentada. Toda certificación deberá extenderse en papel de un peso.
