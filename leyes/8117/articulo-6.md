@@ -1,0 +1,1 @@
+ARTÍCULO 6.- Los procedimientos de adquisición de bienes y servicios, incluso los servicios de consultoría, fijados por el JBIC en el Contrato de préstamo externo Nº CR-P3, prevalecerán sobre los procedimientos y las normas del ordenamiento jurídico nacional, en lo que atañe a las adquisiciones realizadas al amparo de dicho Contrato.

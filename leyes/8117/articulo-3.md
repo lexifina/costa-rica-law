@@ -1,0 +1,1 @@
+ARTÍCULO 3.- No estarán sujetos al pago de ninguna clase de impuestos, tasas, contribuciones ni derechos, los documentos requeridos para formalizar el Contrato de préstamo externo Nº CR-P3 y la Garantía asociada del Estado. Asimismo la inscripción de estos documentos, en los registros correspondientes, estará exonerada de todo tipo de pago.

@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Los recursos que el ICE retire y utilice del Contrato de préstamo externo Nº CR-P3, deberán también considerarse y registrarse como ingresos corrientes, siempre y cuando sean reembolsos de pagos efectuados con recursos provengan de los ingresos corrientes del Instituto.

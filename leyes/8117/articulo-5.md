@@ -1,0 +1,1 @@
+ARTÍCULO 5.- Las adquisiciones de bienes y servicios requeridas para la construcción y operación comercial del Proyecto Hidroeléctrico Pirrís, no estarán sujetas al pago de ninguna clase de impuestos, tasas, sobretasas, contribuciones ni derechos.
