@@ -1,1 +1,2 @@
-Artículo 17.- Son causas para terminar con el contrato de aprendizaje, las señaladas en el Código de Trabajo y su leyes conexas, respecto del contrato individual de trabajo. No obstante, el empleador no podrá, ni aun mediante anuencia del aprendiz, retirarlo de su empresa ni sustituirlo por otro, sin obtener autorización previa de la Comisión Mixta.
+Artículo 17.- Son causas para terminar con el contrato de aprendizaje las señaladas en el Código de Trabajo y sus leyes conexas, respecto del contrato individual de trabajo. No obstante, el empleador no podrá, ni aun mediante anuencia del aprendiz, retirarlo de su empresa ni sustituirlo por otro, sin obtener autorización previa del INA.
+(Así reformado por el artículo 1° de la ley N° 5833 del 30 de octubre de 1975)
