@@ -1,0 +1,9 @@
+Artículo 18
+Examen de la aplicación de los compromisos
+1.- El Comité de Agricultura examinará los progresos realizados en la aplicación de los compromisos negociados en el marco del programa de reforma de la Ronda Uruguay.
+2.- Este proceso de examen se realizará sobre la base de las notificaciones presentadas por los Miembros acerca de las cuestiones y con la periodicidad que se determinen, y sobre la base de la documentación que se pida a la Secretaría que prepare con el fin de facilitar el proceso de examen.
+3.- Además de las notificaciones que han de presentarse de conformidad con el párrafo 2, se notificará prontamente cualquier nueva medida de ayuda interna, o modificación de una medida existente, respecto de la que se alegue que está exenta de reducción. Esta notificación incluirá detalles sobre la medida nueva o modificada y su conformidad con los criterios convenidos, según se establece en el artículo 6 o en el Anexo 2.
+4.- En el proceso de examen los Miembros tomarán debidamente en consideración la influencia de las tasas de inflación excesivas sobre la capacidad de un Miembro para cumplir sus compromisos en materia de ayuda interna.
+5.- Los Miembros convienen en celebrar anualmente consultas en el Comité de Agricultura con respecto a su participación en el crecimiento normal del comercio mundial de productos agropecuarios en el marco de los compromisos en materia de subvenciones a la exportación contraídos en virtud del presente Acuerdo.
+6.- El proceso de examen brindará a los Miembros la oportunidad de plantear cualquier cuestión relativa a la aplicación de los compromisos contraídos en el marco del programa de reforma establecido en el presente Acuerdo.
+7.- Todo Miembro podrá señalar a la atención del Comité de Agricultura cualquier medida que a su juicio debiera haber sido notificada por otro Miembro.
