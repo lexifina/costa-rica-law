@@ -1,0 +1,2 @@
+Artículo 5
+Respecto de los Estados Partes en el primer Protocolo Facultativo del Pacto Internacional de Derechos Civiles y Políticos, aprobado el 16 de diciembre de 1966, la competencia del Comité de Derechos Humanos para recibir y considerar comunicaciones de personas que estén sujetas a su jurisdicción se hará extensiva a las disposiciones del presente Protocolo, a menos que el Estado Parte interesado haya hecho una declaración en sentido contrario en el momento de la ratificación o la adhesión.
