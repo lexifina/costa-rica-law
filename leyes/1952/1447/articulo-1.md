@@ -1,4 +1,6 @@
+(Derogado)
 N° 1447
+(esta ley fue derogada por el por el artículo 1° del la ley N° 1561 del 6 de mayo de 1953)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 Decreta:
 Artículo único.- Adiciónase la Ley General de Caminos Públicos N° 1338 de 29 de agosto de 1951, del siguiente modo:
