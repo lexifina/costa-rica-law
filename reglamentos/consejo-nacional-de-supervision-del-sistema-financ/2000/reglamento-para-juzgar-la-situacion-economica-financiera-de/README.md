@@ -18,3 +18,4 @@ Reglamento para Juzgar la Situación Económica-Financiera de las Entidades Fisc
 | 3 | 2001-10-16 | Reglamento 258 (2001-10-16) |
 | 4 | 2001-11-12 | Reglamento 263 (2001-11-12) |
 | 5 | 2002-08-20 | Reglamento 320 (2002-08-20) |
+| 6 | 2002-12-10 | Reglamento 345 (2002-12-10) |

@@ -19,7 +19,7 @@ D (20020) Obligaciones por compras a futuros de divisas sin costo financiero -
 D (20021) Obligaciones por ventas a futuros de divisas sin costo financiero -
 D (20022) Otras obligaciones con entidades financieras a plazo sin costo financiero
 D (20037) Otras captaciones a la vista sin costo financiero.
-Morosidad ampliada
+Morosidad ampliada (NOTA: Mediante sesión N° 345 de 10 de diciembre de 2002, se elimina la fila correspondiente a morosidad ampliada de este anexo).
 D (20002) + C(151) + Variación de los últimos 24meses de la cuenta 81501
 C(131) + C(132) + C(133) + C(134) + C(137) + C(151) + Variación de los últimos 24 meses de la cuenta 81501
 Gastos de administración / Utilidad operacional bruta 3

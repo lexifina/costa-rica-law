@@ -35,7 +35,7 @@ Pérdida Esperada en Cartera / Cartera total
 3.70%
 8.60%
 1.00
-MANEJO
+*MANEJO
 Activo productivo de intermediación / pasivo con costo
 33.33333%
 1.00 V
@@ -114,3 +114,5 @@ Nivel 3
 Calificación global
 Nivel Normal
 Nivel Normal
+*(NOTA: mediante tomado en sesión N° 345 de 10 de diciembre de2002, se dispuso: " 8. Modificar el apartado "MANEJO" del anexo 1 de los acuerdos SUGEF 24-00 ... de manera que ... el elemento sea evaluado solo con los indicadores de (Activo Productivo de Intermediación / Pasivo con costo) y (Gastos de administración / Utilidad operacional bruta) y cada uno de ellos represente el 50% de la calificación del elemento, según el texto siguiente:
+(Consultar cuadro en Gaceta N° 15 de 22 de enero de 2003)
