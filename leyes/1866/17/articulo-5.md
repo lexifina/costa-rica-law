@@ -1,0 +1,6 @@
+CAPITULO V
+Obligaciones comunes a los tres Ministros
+Art 1° Desde que a las tres de la tarde se cierra la Administración al público, los Ministros se dedicarán a sentar en los libros las operaciones del día, de manera que todas estén registradas y arregladas, antes de abrir la Oficina siguiente.
+Art 2° Antes de separarse de la Oficina el Contador-Cajero hará un balance de los valores de billetes y dinero en caja para certificarse de si estas están en conformidad con el “Libro de Caja” que lleva, y el Administrador y el Tenedor de Libros se que estén de su exactitud, podrán sus respectivas iniciales en frente de los saldos expresados en el referido libro.
+Art 3° Todos los días a las diez de la mañana se remitirá a la Secretaria de Hacienda, un balance sacado del “Libro Mayor” firmado por todos los Ministros y demostrando a la vez la exactitud de los libros, sentadas las partidas del día precedente el valor en cada cuenta en los libros. Para economizar trabajo, se harán estos balances según el modelo B.
+Art 4°. – A las diez de la mañana del día lunes de cada semana, se remitirá también a la Secretaría de Hacienda, un estado sacado del “ Libro de sumas que deben ingresar y egresar en cada uno de los días de la misma semana.
