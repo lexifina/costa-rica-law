@@ -1,0 +1,1 @@
+Artículo 13.—Se deberá brindar acceso al público de todo tipo de información, salvo que se trate de asuntos que sean de interés privado o hayan sido declarados previamente por decreto ejecutivo como secreto de Estado, exclusivamente en aquellos casos admitidos por la Sala Constitucional.

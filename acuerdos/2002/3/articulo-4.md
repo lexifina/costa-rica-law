@@ -1,0 +1,1 @@
+Artículo 4°—No se podrán hacer erogaciones con fondos públicos para remodelaciones innecesarias en las oficinas personales y de su equipo de confianza, salvo las reparaciones que fueren indispensables.

@@ -1,0 +1,1 @@
+Articulo 9°—Se prohibe colocar placas, emblemas o enseñas con el nombre de funcionarios de este Gobierno en obras e instalaciones construidas total o parcialmente con fondos públicos. Únicamente se podra indicar el nombre de la Administración presidencial y su período.

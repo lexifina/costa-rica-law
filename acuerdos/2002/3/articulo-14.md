@@ -1,0 +1,1 @@
+Artículo 14.—No se podrá incurrir en gastos con fondos públicos para la adquisición de licores en las instituciones y entidades que están a su cargo, con la excepción de las necesidades de la Casa Presidencial, el Ministerio de Relaciones Exteriores y Culto y el Instituto Costarricense de Turismo.

@@ -1,0 +1,1 @@
+Artículo 15.—No se podrá incurrir en gastos con fondos públicos para la publicación de esquelas, adquisición de regalos y arreglos florales, salvo por la Casa Presidencial v el Ministerio de Relaciones Exteriores y Culto.

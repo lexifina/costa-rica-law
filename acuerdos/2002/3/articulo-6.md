@@ -1,0 +1,1 @@
+Artículo 6°—Los vehículos oficiales no podrán ser utilizados en actividades particulares, familiares, ni recreativas. Deberán permanecer en las instalaciones del Ministerio o institución cuando no se estén utilizando en labores oficiales. Los de uso discrecional no podrán ser utilizados por particulares ni familiares.
