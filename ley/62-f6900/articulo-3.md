@@ -1,0 +1,2 @@
+ARTICULO 3°. -Este empleado gozar de la dotación de cincuenta pesos mensuales, siendo de su cuenta los gastos que haga en los viajes que sean necesarios, siempre que no sea mayor distancia de cuatro leguas de la Capital. Siendo mayor distancia, el Gobierno le reconocer un peso por cada día de camino, así de ida como de vuelta.
+Dado en el Palacio Nacional, de San José a los once días del mes de agosto de mil ochocientos setenta y seis.
