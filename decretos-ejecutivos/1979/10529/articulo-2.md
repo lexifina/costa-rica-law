@@ -1,0 +1,2 @@
+Artículo 2º- Además de las zonas señaladas anteriormente, se reconoce también como zona primaria de cada aduana, todo recinto que sirva a las empresas autorizadas por la Dirección General de Aduanas, para guardar, ocasionalmente, vehículos de transporte que contengan mercancías extranjeras, mientras son entregadas a dicha aduana.
+La autorización concedida debe ser regulada mediante resolución de la Dirección General de Aduanas, estableciendo las garantías y los controles que estime conveniente.

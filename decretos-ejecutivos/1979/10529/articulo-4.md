@@ -1,0 +1,1 @@
+Artículo 4º- Todo informe, trámite, custodia, etc., que deba realizar algún funcionario aduanero será solicitado a la Administración de Aduanas a la que corresponda la zona de jurisdicción donde se haya cometido la defraudación fiscal o su tentativa, o se inicie la operación aduanera correspondiente.

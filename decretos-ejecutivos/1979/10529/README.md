@@ -13,3 +13,4 @@ Establece Zonas Aduaneras Primarias y Secundarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-09-26 | la propia norma |
+| 2 | 1979-09-26 | SINALEVI (sin norma nombrada) |
