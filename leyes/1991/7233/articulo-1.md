@@ -142,7 +142,8 @@ c) El Ministro de Justicia y Gracia.
 ch) El Director del Organismo de Investigación Judicial.
 d) El Director de la Dirección de Inteligencia y Seguridad.
 e) El representante del Ministerio Público.
-Artículo 43.-El Ministro de Gobernación y Policía será el Presidente de la Junta Administrativa y su representante legal.
+Artículo 43.-El Ministro que designe el Presidente de la República será el representante legal y el Presidente de la Junta Administrativa.
+(Así reformado por el artículo 97 de la Ley General de Policía N° 7410 del 26 de mayo de 1994)
 Artículo 44.-El Centro estará a cargo de un director, quien será su personero ejecutivo y coordinará con cada uno de los miembros representantes de las instancias que lo conforman.
 Artículo 45.-Para el desarrollo de sus funciones, el Centro de Inteligencia Conjunto Antidrogas (CICAD) podrá abrir una cuenta bancaria especial y presentará su presupuesto a la Contraloría General de la República, para la correspondiente aprobación.
 Artículo 46-EI Centro se financiará con los recursos que se le asignen como transferencia global en el presupuesto nacional y con las donaciones y legados de cualquier naturaleza, tanto nacionales como internacionales que se le concedan.
