@@ -1,0 +1,1 @@
+Artículo 17.-Corresponderá a la Dirección Ejecutiva verificar la eficiencia, eficacia y oportunidad de ejecución de los programas de mantenimiento y girar las recomendaciones que considere pertinentes a la Sección de Mecánica.

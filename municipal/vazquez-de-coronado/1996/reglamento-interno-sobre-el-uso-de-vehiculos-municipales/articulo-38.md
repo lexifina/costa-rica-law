@@ -1,0 +1,1 @@
+Artículo 38.-La Guardia Municipal, bajo la responsabilidad del jefe, llevará los registros que permitan conocer el estado de los vehículos antes y después de cada servicio y todos los datos necesarios para el adecuado control del uso de los mismos, informando a la Dirección Ejecutiva cualquier anomalía.

@@ -1,0 +1,1 @@
+Artículo 33.-La Dirección Ejecutiva analizará todo accidente de tránsito en el que participe un vehículo de la Municipalidad y adoptará las medidas disciplinarias del caso o someterá lo ocurrido a conocimiento de la Junta de Relaciones Laborales, cuando sea pertinente.

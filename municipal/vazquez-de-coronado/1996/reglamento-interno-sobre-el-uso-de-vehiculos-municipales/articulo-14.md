@@ -1,0 +1,1 @@
+Artículo 14.- Cada chofer con vehículo y equipo especia! asignado, es responsable de mantenerlo en perfectas condiciones, como también de entregarlo aseado. Sin embargo, los de recolección de basura deben lavarse diariamente.

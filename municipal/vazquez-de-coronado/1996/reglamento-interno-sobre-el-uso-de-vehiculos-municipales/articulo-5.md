@@ -1,0 +1,1 @@
+Artículo 5°-Todos los vehículos municipales, excepto el de uso discrecional, deberán estar rotulados con una leyenda que diga "MUNICIPALIDAD DE VAZQUEZ DE CORONADO" en los costados, el número que le corresponde y llevar una placa permanente de matrícula especial con carácter oficial en los lugares donde reglamentariamente ésta debe colocarse.

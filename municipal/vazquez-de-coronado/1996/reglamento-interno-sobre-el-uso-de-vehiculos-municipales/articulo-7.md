@@ -1,0 +1,1 @@
+Artículo 7°-Sin perjuicio de la fiscalización que realicen la Contraloría General de la República y la Auditoría Interna de la Municipalidad, la Dirección Ejecutiva velará por el fiel cumplimiento de este Reglamento.

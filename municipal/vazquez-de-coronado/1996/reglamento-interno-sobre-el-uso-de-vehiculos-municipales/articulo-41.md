@@ -1,0 +1,1 @@
+Artículo 41.-La aplicación de este Reglamento es de responsabilidad del Ejecutivo Municipal y de la propia administración. La Auditoría ejercerá sus controles sobre este particular, cuando lo juzgue conveniente dentro de su programa de trabajo o a solicitud del Concejo Municipal.
