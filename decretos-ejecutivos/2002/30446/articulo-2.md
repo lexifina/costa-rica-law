@@ -1,0 +1,3 @@
+Artículo 2º—Adiciónense nuevas definiciones al artículo 3º del Decreto Ejecutivo Nº 28466-S del 8 de febrero del 2000, publicado en la Gaceta Nº 42 del 29 de febrero del 2000 "Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos", que se leerán así:
+"País de origen: Es el país donde se fabrica el producto. En el caso de fabricación por terceros o entre filiales puede ser también el país donde se localiza el dueño o representante de la comercialización del producto."
+"País de procedencia: Es el país desde donde se distribuye o exporta el producto si interviene en el proceso de fabricación."
