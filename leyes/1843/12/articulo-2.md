@@ -1,0 +1,1 @@
+Art. 2°. -La operación de cotejar las marcas y números de los bultos, el peso de ellos, y el reconocimiento y aforo de las mercancías que contengan, se hará públicamente, y en presencia de dos testigos, por lo menos, y el Receptor de la misma Ciudad, quien hará de Contador vista al practicar el aforo; y de Fiscal, en los negocios que interesen a la renta.

@@ -1,0 +1,1 @@
+Art. 4°. -Los manifiestos se harán por mayor; y a mas de las formalidades que deben tener según el decreto de 22 de Mayo de 1839, serán triplicados. Deben presentarse al guarda mayor, y éste, conservando uno, dirigir otro al Administrador, y el tercero al Intendente, para que este lo pase a la Contaduría mayor.

@@ -1,0 +1,1 @@
+Art. 9°. -El Administrador de la Aduana cuidar de tener siempre francos los pasos de los ríos Pacuare y Reventazón, estableciendo en cada uno de ellos un canoero que sepa leer y escribir, contratándolos con la mayor economía, y dando cuenta al Intendente, del sueldo a que se han ajustado, para que ‚este lo haga al Gobierno y a la contaduría mayor.
