@@ -13,3 +13,4 @@ Autoriza Consejo Nacional de Producción Construir LaboratorioLaboratorio Físic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-19 | la propia norma |
+| 2 | 1999-02-19 | SINALEVI (sin norma nombrada) |
