@@ -1,0 +1,1 @@
+Artículo 32.—Aprobación de actas: Las actas de las sesiones de la Junta Directiva del Comité Cantonal deberán ser aprobadas en la sesión inmediata posterior, salvo que lo impidan razones de fuerza mayor, en cuyo caso la aprobación se pospondrá para la siguiente sesión ordinaria.

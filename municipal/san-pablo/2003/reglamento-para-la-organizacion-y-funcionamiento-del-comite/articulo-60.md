@@ -1,0 +1,1 @@
+Artículo 60.—Otras instalaciones deportivas: Las demás instalaciones deportivas existentes en el cantón, pertenecientes a otras instituciones tales como escuelas y colegios, que hayan sido construidas con fondos públicos, podrán ponerse al servicio de las respectivas comunidades del cantón, según las regulaciones que rijan en cada caso.

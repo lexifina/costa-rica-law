@@ -1,0 +1,1 @@
+Artículo 53.—Prohibición: Se prohíbe el uso de carácter personal de dineros provenientes de ingresos por actividades deportivas o recreativas. En caso de incumplimiento de esta disposición, el responsable sería expulsado del organismo u órgano correspondiente debiendo reintegrar el dinero, sin perjuicio de las responsabilidades a que alude el artículo anterior.

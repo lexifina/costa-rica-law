@@ -1,0 +1,1 @@
+Transitorio II. Dentro del plazo indicado en el transitorio anterior, los miembros activos del Comité Cantonal de Deportes y el Concejo Municipal deberán proceder conforme lo establece el artículo 10 del presente reglamento para el nombramiento del nuevo Comité Cantonal.

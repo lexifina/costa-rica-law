@@ -1,0 +1,1 @@
+Artículo 59.—Anuncios publicitarios: El Comité Cantonal podrá autorizar la instalación de vallas publicitarias en las instalaciones deportivas, siempre y cuando obtenga un beneficio económico por tal autorización.

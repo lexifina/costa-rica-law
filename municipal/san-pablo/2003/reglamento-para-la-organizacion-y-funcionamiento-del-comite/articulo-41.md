@@ -1,0 +1,1 @@
+Artículo 41.—Sesiones: Los Comités Comunales deberán reunirse, ordinariamente en sesión pública, al menos dos veces al mes y extraordinariamente cuando lo requieran o sean convocados por el Comité Cantonal.

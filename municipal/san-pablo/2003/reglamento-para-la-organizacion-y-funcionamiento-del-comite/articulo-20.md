@@ -1,0 +1,1 @@
+Artículo 20.—Sesiones ordinarias: La Junta Directiva sesionará en forma ordinaria y pública, una vez a la semana, el día y hora acordados en la sesión inaugural. Por motivos especiales y a criterio de la mayoría simple de sus miembros, podrá variarse la fecha y hora establecida para las sesiones ordinarias.

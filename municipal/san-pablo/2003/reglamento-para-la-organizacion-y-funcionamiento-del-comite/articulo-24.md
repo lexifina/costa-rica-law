@@ -1,0 +1,1 @@
+Artículo 24.—Acuerdos: Las determinaciones o decisiones que tome la Junta Directiva se denominarán acuerdos. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si este reglamento señala un mayor número de votos. En caso de empate en una votación, el Presidente tendrá voto calificado.
