@@ -140,3 +140,5 @@ respecto de la Dirección General del Archivo Nacional)
 para el Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29354 de 2 de marzo del 2001,
 respecto del Patronato de Construcciones, Instalaciones y Adquisición de Bienes)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29351 de 13 de marzo del 2001,
+para la Junta de Protección Social)
