@@ -1,0 +1,1 @@
+Artículo 2°—Dentro de los ocho días siguientes al nombramiento de los miembros de la Comisión, deberá celebrarse la primera sesión en la que tomarán posesión de sus cargos y procederán, de su seno, a designar para períodos de dos años, pudiendo ser reelectos,, un Presidente, un Vicepresidente, un Secretario,. un Tesorero, un Fiscal y dos Vocales.

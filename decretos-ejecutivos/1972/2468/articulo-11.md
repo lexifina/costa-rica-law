@@ -1,0 +1,1 @@
+Artículo 11.—El Fiscal deberá velar por que los acuerdos de la Junta Directiva sean cumplidos. Igualmente velará por que las actividades económicas de la Comisión se desenvuelvan normalmente. Deberá asimismo, investigar cualquier denuncia que reciba la Comisión y rendir informe a la misma.

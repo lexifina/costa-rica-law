@@ -1,0 +1,1 @@
+Artículo 9°—El Secretario deberá tomar la minuta denlas sesiones y confeccionar las actas, las que deberán estar en limpio en la sesión siguiente. Igualmente deberá darle curso a la correspondencia de la Comisión, conforme a lo resuelto en las sesiones. Además deberá ejecutar otros trabajos afines no especificados.
