@@ -14,3 +14,4 @@ Nuevos Formularios para el Trámite de Solicitud, Traspaso, Cambio de Razón Soc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-08 | la propia norma |
+| 2 | 2005-02-22 | Acuerdo municipal 0 (2005-02-22) |
