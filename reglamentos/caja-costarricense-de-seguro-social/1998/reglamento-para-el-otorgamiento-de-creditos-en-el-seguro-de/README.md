@@ -15,3 +15,4 @@ Reglamento para el otorgamiento de créditos en el seguro de invalidez, vejez y 
 | --- | --- | --- |
 | 1 | 1998-02-17 | la propia norma |
 | 2 | 1998-07-07 | Reglamento 7238 (1998-07-07) |
+| 3 | 1998-10-22 | Reglamento 7269 (1998-10-22) |
