@@ -1,0 +1,1 @@
+Artículo 18.—Las decisiones de esta junta tendrán recurso de revocatoria y apelación 5 días hábiles posterior al acuerdo en firme de la Junta ante el Concejo Municipal, y este en definitiva decidirá lo que considere pertinente.
