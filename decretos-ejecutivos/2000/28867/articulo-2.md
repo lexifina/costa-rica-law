@@ -1,0 +1,1 @@
+Artículo 2°—Dichas campañas, de acuerdo con sus características, deberán incorporar una referencia a la existencia del Consejo Nacional de la Persona Adulta Mayor, una vez que se cuente con la aprobación del Consejo para dicha incorporación.
