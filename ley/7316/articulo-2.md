@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Lo dispuesto en el artículo 10 del Convenio que por esta Ley se aprueba, se aplicará en concordancia con lo que estatuye el artículo 33 de la Constitución Política y la legislación penal costarricense.
