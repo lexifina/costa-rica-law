@@ -1,0 +1,5 @@
+ARTICULO 2.- El tipo y la categoría correspondientes a cada actividad
+y, por consiguiente, el monto del impuesto, los fijará la Municipalidad por
+medio de la oficina designada para ese efecto, cuyos funcionarios estarán
+facultados para visitar los establecimientos, con el fin de aplicar la
+tarifa que corresponda.
