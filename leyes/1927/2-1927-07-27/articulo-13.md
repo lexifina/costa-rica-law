@@ -1,0 +1,1 @@
+Artículo 13.-La caducidad establecida en los artículos 9, 11 y 12 será declarada administrativamente por la Municipalidad o por la Comisión de Sanidad, y contra lo resuelto hay el recurso de apelación. Firme la caducidad se arrendará nuevamente el local o puesto según las reglas precedentes.

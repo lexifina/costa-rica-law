@@ -1,0 +1,1 @@
+Artículo 8°.-Efectuado el remate se otorgará por el Gobernador o Jefe Político en representación de la Municipalidad y de la Comisión de Sanidad, donde la hubiere, y por el rematario, el contrato de arrendamiento, a costa de este último.
