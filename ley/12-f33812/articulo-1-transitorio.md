@@ -1,2 +1,1 @@
-Transitorio.—La actual Junta Directiva de la Caja de Préstamos y descuentos estará en funciones hasta un mes después de entrar en vigencia esta ley.
-(Así adicionado por el artículo único de la ley N° 1108 del 27 de diciembre de 1947)
+Transitorio.—(Nota: La adición del presente transitorio realizado por el artículo 1° de la ley N° 1108 del 27 de diciembre de 1947, quedó sin efecto, al ser derogada esta última por el artículo único de la ley N° 11 del 14 de mayo de 1948, restableciendo así el texto de la presente ley antes de dicha afectación)
