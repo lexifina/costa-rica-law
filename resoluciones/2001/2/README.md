@@ -14,3 +14,4 @@ Reforma la Estructura y la División Interna de la Dirección General de Tributa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-12 | la propia norma |
+| 2 | 2002-11-11 | Resolución 45 (2002-11-11) |
