@@ -1,0 +1,1 @@
+Artículo 153.-De hoy m s ninguna sociedad podrá prorrogar el plazo de su duración, ni modificar sus bases constitutivas, sin ajustarse los términos de la presente ley, la cual empezar regir, para lo demás, el día de su publicación.

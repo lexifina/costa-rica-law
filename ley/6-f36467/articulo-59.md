@@ -1,0 +1,1 @@
+Artículo 59.-La gestión de los negocios de la empresa en general y todas las facultades que de ahí se sigan quedan vedadas los socios comanditarios, especialmente aquellas que pudieran inducir en error terceros acerca de la naturaleza de su responsabilidad.

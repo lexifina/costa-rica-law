@@ -1,0 +1,1 @@
+Artículo 135.-Los liquidadores deben confeccionar oportunamente el inventario y balance del caudal social y la cuenta distributiva del fondo líquido partible. El Juez conocer de las diferencias que se susciten con ese motivo, así como de todas las acciones que, en virtud de sus funciones, se dirijan contra esos liquidadores y de las que ellos ejerciten.

@@ -1,0 +1,1 @@
+Artículo 54.-La asignación de un porcentaje en las utilidades, que suele concederse los factores y dependientes como retribución de sus servicios, no los inviste de ninguna de las atribuciones y prerrogativas que distinguen los socios.

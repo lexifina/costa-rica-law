@@ -1,0 +1,1 @@
+Artículo 12.-Las obligaciones de los socios comienzan el día que señale el contrato, y falta de señalamiento en la fecha en que se inicien las operaciones sociales. Esas obligaciones se extinguen por todos los medios ordinarios que les sean aplicables y además por la prescripción quinquenal creada por el artículo 33.

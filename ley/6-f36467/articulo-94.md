@@ -1,0 +1,2 @@
+Artículo 94.-El administrador que directa o indirectamente sustente intereses encontrados con los de la sociedad, deber al punto manifestarlo sus colegas de administración y los síndicos, absteniéndose de deliberar en lo concerniente.
+Si no obstante la improbación del comité‚ de vigilancia, se dictaren sobre el particular acuerdos que redunden en perjuicio de la empresa, las pérdidas no vendrán en su daño, sino en el de los consentidores.

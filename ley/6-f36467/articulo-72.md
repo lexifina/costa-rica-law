@@ -1,0 +1,2 @@
+Artículo 72.-La asamblea anteriormente descrita debe celebrarse ante un notario, quien levantar acta de sus deliberaciones.
+Si en ella justifican los fundadores que han sido observados los términos del artículo 72, y después de haberse llenado las formalidades del artículo 4°., se declarar por esos mismos fundadores, previa votación conforme de la mayoría de los suscritores presentes, que la sociedad ha sido definitivamente constituida, procediéndose insertar dicha resolución en el periódico oficial, la mayor brevedad posible.

@@ -1,0 +1,1 @@
+Artículo 31.-Las disposiciones de los dos anteriores artículos serán aplicables, falta de convención especial, al socio que se retire voluntariamente, conforme lo prevé‚ el inciso 4° del artículo 25, contándose para el caso su separación, en lo que se refiere sus relaciones con la empresa, desde el día en que se notifique en forma la renuncia.

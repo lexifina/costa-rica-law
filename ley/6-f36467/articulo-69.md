@@ -1,0 +1,1 @@
+Artículo 69.-Las sociedades anónimas no ejercerán legalmente el comercio sino después de suscrito íntegramente el capital social y una vez percibido el veinte por ciento al menos del valor de los aportes que deban introducirse en metálico.

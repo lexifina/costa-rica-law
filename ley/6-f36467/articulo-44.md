@@ -1,0 +1,1 @@
+Artículo 44.-La solidaridad nacida de las obligaciones sociales no se extiende los vínculos contraídos entre consocios, salvo si el socio acreedor ha figurado como extraño en sus relaciones con la empresa.

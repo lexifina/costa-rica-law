@@ -1,0 +1,1 @@
+Articulo 34.-Esta prescripción privilegiada no se aplica los bienes que no hayan dejado formar parte del fondo social, ni puede tampoco invocarla en su provecho el socio que se haga cargo del activo y pasivo de la empresa.

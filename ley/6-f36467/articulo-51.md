@@ -1,0 +1,1 @@
+Artículo 51.-La persona que tolere la inserción de su nombre en la razón social de una empresa de que no sea socio, comprometer hacia terceros, por ese hecho, toda su fortuna, en los mismos términos y condiciones de un socio efectivo.

@@ -1,0 +1,2 @@
+Artículo 9°. -No podrá la compañía reducir el capital social con que se constituyó o sino después de trascurrido un término de noventa días, contado desde la publicación del acuerdo que se tomara al efecto, y siempre que en el anuncio respectivo se indique los interesados la obligación en que están de formular sus reparos dentro del expresado plazo.
+Las oposiciones que oportunamente se produzcan, estorbarán la reducción del capital, mientras no sean retiradas, declaradas desiertas o desechadas por resolución judicial firme

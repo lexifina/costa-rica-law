@@ -1,0 +1,2 @@
+ARTíCULO 58.-La sociedad en comandita también se constituye para ejercer el comercio bajo una razón social común; pero en tanto que alguno o varios de sus socios contraen, con respecto terceros, una responsabilidad siempre ilimitada, y solidaria en el caso de su pluralidad, el otro o los otros reducen esa responsabilidad al monto determinado de sus aportes.
+Cuando sean varios los socios ilimitada y solidariamente responsables, y en lo que les concierne, las sociedades de esta especie se reputar n formadas la vez en nombre colectivo.

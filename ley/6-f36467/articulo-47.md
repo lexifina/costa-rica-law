@@ -1,0 +1,1 @@
+Artículo 47.-Sólo podrán hacer uso de esa firma los socios autorizados al efecto; pero en el silencio de la escritura social se presume que todos y cada uno de los socios se hallan investidos de la facultad de representar la empresa.

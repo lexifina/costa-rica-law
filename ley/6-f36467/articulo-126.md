@@ -1,0 +1,1 @@
+Artículo 126.-Por los mismos medios que señala el artículo anterior puede constituirse, al lado del comité‚ de vigilancia, una comisión de expertos, nombrada por la asamblea general para que contraste anualmente las cuentas de la administración, las confronte con los libros y documentos respectivos y vierta luego su dictamen.

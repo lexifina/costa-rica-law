@@ -1,0 +1,1 @@
+Artículo 35.-La prescripción creada por el artículo 33 no ser interrumpida, en cuanto favorece los socios retirados o excluidos, por gestiones judiciales enderezadas contra la sociedad o sus socios restantes. 6°. -De la fusión de sociedades

@@ -1,0 +1,1 @@
+Artículo 81.-La misma nulidad recaer sobre los actos o contratos que ejecuten o celebren los fundadores, saliéndose de la esfera de aquellos que fueren cohonestados por la fundación de la empresa, menos que la asamblea general, ratificándolos, purgare el vicio.

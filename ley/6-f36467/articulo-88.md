@@ -1,0 +1,3 @@
+Artículo 88.-En el silencio de los estatutos se proveer llenar las vacantes que ocurran en la administración mediante el nombramiento que hagan todos los administradores restantes conjuntamente con los síndicos.
+Pero en su desavenencia, así como cuando la administración o la dirección quedasen acéfalas, se proceder reorganizarlas por la asamblea general, perentoriamente convocada al efecto por el comité‚ de vigilancia.
+Los administradores que en la primera hipótesis fuesen nombrados, cesar n en sus funciones si la asamblea general próxima inmediata no confirma su designación, y de toda suerte al vencer el período del mandato primitivo.

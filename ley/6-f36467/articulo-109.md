@@ -1,0 +1,2 @@
+Artículo 109.-Las acciones pueden fraccionarse en cupones. Estos serán de necesidad partes alícuotas de aquellas y confieren sus mismos derechos cuando se reúnen en número suficiente. Las unas y los otros deben ser de un valor igual entre sí, que nunca bajar de cincuenta colones.
+Las acciones ser n nominales o al portador y pueden ser objeto de conversiones, siempre que con ello no se quebrante la doctrina del artículo 111.

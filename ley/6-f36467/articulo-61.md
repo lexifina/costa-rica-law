@@ -1,0 +1,1 @@
+Artículo 61.-A igual sanción quedan sometidos, en las comanditas por intereses, aquellos que, procediendo por mandato especial, no hicieran constar en sus gestiones su calidad de socios comanditarios y la circunstancia de obrar por procuración.

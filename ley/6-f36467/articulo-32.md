@@ -1,0 +1,1 @@
+Artículo 32.-El socio excluido o el renunciante deber n conformarse con la liquidación de su parte en dinero o en bienes de la misma naturaleza de sus aportes, si bien en este último caso pueden promover el castigo de las estimaciones con que se juzguen perjudicados. 5°. -De la prescripción de las acciones contra los socios

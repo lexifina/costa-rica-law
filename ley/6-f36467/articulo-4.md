@@ -1,0 +1,2 @@
+Artículo 4°. -Las sociedades se forman y prueban por escritura pública debidamente inscrita en el Registro Mercantil y publicada en extracto en el periódico oficial.
+Estas formalidades son asimismo de rigor siempre que ocurra la sustitución, el retiro, la exclusión o la muerte de un socio colectivo o comanditario, se modifique la razón social, sobrevenga la disolución facultativa o se alteren o amplíen los términos del contrato.

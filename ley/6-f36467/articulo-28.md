@@ -1,0 +1,1 @@
+Articulo 28.-Podrán también ser excluidos de la sociedad, más de los socios relacionados en los anteriores artículos 14, 20, 21 y 26, los que se ingieran desautorizadamente en la administración, así como los administradores que usen la razón social en sus negocios propios o abandonen sin justa causa las obligaciones de su cargo.

@@ -1,0 +1,1 @@
+Articulo 63.-La razón social comprender necesariamente el nombre de uno o más de los socios de responsabilidad ilimitada, pero sólo esos nombres. El comanditario que consienta en la inserción del suyo, asumir para con los acreedores de la compañía la misma condición legal de un socio colectivo.

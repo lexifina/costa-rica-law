@@ -1,0 +1,1 @@
+Artículo 50.-La sociedad no se obliga por los actos de sus socios o de extraños que no tengan facultad de representarla, aun cuando estos hagan uso de la razón social, siempre que en esta no figuren expresamente sus nombres.

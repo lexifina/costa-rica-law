@@ -1,0 +1,1 @@
+Artículo 16.-Si los aportes fuesen propiedades inmuebles, patentes de invención, mercaderías u otros bienes cuyo valor y modo de avaluó callare el contrato, se estimarán ‚estos por peritos de nombramiento de la mayoría de los socios, o del Juez civil del domicilio de la sociedad, de no haber mayoría.

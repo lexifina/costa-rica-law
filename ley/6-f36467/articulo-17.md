@@ -1,0 +1,1 @@
+ARTíCULO 17.-Las ganancias y pérdidas que experimente la sociedad, en ausencia de estipulaciones especiales, se prorratearán con arreglo al artículo 1201 del Código Civil; pero el socio industrial no participar en las últimas con su fortuna personal mientras no arroje un déficit la liquidación de la empresa.

@@ -1,0 +1,2 @@
+Artículo 38.-La fusión no surtir efecto con respecto terceros antes de noventa días contados desde la publicación de la escritura constitutiva de la nueva empresa, menos que ‚esta satisfaga todas las deudas de las compañías que la forman o garantice su descargo satisfacción de todos los acreedores.
+En tanto no se hayan realizado esas condiciones y dentro del plazo prefijado, pueden los acreedores de las sociedades que hayan acordado la fusión, impedir que se opere y mantenerla sin efectos hasta que recaiga la resolución firme que deba dirimir la dificultad.

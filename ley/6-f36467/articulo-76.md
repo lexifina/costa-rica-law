@@ -1,0 +1,2 @@
+Artículo 76.-Una vez suscrito el capital social, los fundadores pueden emplazar los suscritores que aún no hayan satisfecho el quinto que se refiere el artículo 72, para que dentro de un término que no bajar de diez días procedan verificarlo.
+Este emplazamiento se insertar por dos veces en el periódico oficial; y una vez que en renuencia de los suscritores expire el plazo concedido, quedar opción de los interesados relevará de su obligación los morosos, disponiendo de las correspondientes suscriciones para colocarlas de nuevo, o compelerlos al descargo por las vías comunes.

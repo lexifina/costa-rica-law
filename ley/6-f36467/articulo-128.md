@@ -1,0 +1,2 @@
+Artículo 128.-El capital de las sociedades en comandita podrá dividirse en acciones nominales o al portador y subdividirse ‚estas en cupones, como no se infrinjan por ahí las prohibiciones de los artículos 69 y 111.
+En el caso previsto por el párrafo anterior la compañía se regirá por las disposiciones relativas las sociedades anónimas, cuando ‚estas se acomoden las reglas generales y especiales establecidas en las secciones tercera y presente.

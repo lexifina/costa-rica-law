@@ -1,0 +1,1 @@
+Artículo 53.-El uso de la firma social no es trasmisible sino mediante la autorización de todos los socios; y de no concurrir esta los actos del delegatario sólo obligarán la empresa en la medida en que ellos la hubieren beneficiado.

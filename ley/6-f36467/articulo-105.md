@@ -1,0 +1,3 @@
+Artículo 105.-Para aumentar o reducir el capital social es preciso que lo acuerde una asamblea general.
+La escritura de fundación o los estatutos deber n determinar que‚ proporción del número total de socios ha de concurrir la asamblea en que se reduzca o aumente el capital; o en que se modifiquen las cláusulas constitutivas; o en que se disuelva anticipadamente la sociedad.
+En ningún caso podrá ser menor de dos terceras partes del total de acciones el capital que concurra la asamblea que haya de tratar esos objetos; pero para que sea v lida la resolución que recaiga, es preciso que la mayoría que la imponga represente la mitad m s una de las acciones de la compañía.
