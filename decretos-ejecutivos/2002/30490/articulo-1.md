@@ -1,0 +1,13 @@
+N° 30490-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en lo establecido en los artículos 140, inciso 8) y 146 de la Constitución Política, el artículo 105 de la Ley N° 7494 denominada Ley de la Contratación Administrativa y el artículo segundo del Decreto Ejecutivo N° 28656-H.
+Considerando:
+1º—Que la Ley de Contratación Administrativa N° 7494, publicada el 8 de junio de 1995 y sus reformas, denominada "Ley de contratación Administrativa", dispone en su artículo 105 que es competencia del Poder Ejecutivo el regular mediante decreto la organización y funcionamiento de las Proveedurías Institucionales que considere pertinente crear dentro del Gobierno Central, a efecto de llevar a cabo las etapas de la contratación administrativa que se encuentran asignadas a la Proveeduría Nacional (actualmente y en adelante Dirección General de Administración de Bienes y Contratación Administrativa) de conformidad con el inciso a) del artículo 103 del mismo cuerpo legal.
+2º—Que el Decreto Ejecutivo N° 28656-H, publicado en La Gaceta N° 104 del día 31 de mayo de 2000, dispone en su artículo 2° que el Poder Ejecutivo creará en cada caso y mediante Decreto Ejecutivo, la Proveeduría Institucional de cada Ministerio que a la fecha no cuente con ella.
+3º—Que el artículo 3 del citado decreto señala en su artículo que los requisitos a cumplir por la Proveeduría Institucional de cada Ministerio deben ser, de previo a su creación y a efectos de poder iniciar su operación, definidos por la Dirección General de Administración de Bienes y Contratación Administrativa mediante resolución razonada, a efecto de contar con la estructura organizacional idónea.
+4º—Que según resolución N° DGABCA-155 de las 10,05 horas del veintidós de mayo del 2002, la Dirección General de Administración de Bienes y Contratación Administrativa, aprobó el cumplimiento por parte del Ministerio de Salud de los requerimientos previos para contar con una estructura organizacional idónea para la creación e inicio de operaciones de una Proveeduría Institucional.
+5º—Que en atención a lo expuesto se estima procedente la creación de la Proveeduría Institucional del Ministerio de Salud. Por tanto,
+Decretan:
+"Creación de la Proveeduría Institucional del Ministerio de Salud"
+Artículo 1º—Se crea la Proveeduría Institucional del Ministerio de Salud, la cual se regirá por lo dispuesto en el Decreto Ejecutivo N°28656-H
