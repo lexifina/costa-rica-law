@@ -1,0 +1,4 @@
+Artículo 2º.- Será el Ministerio de Economía, Industria y Comercio
+por medio de la Oficina Nacional de Normas y Unidades de Medida, el
+organismo señalado para dictaminar cualquier asunto relacionado con una
+etiqueta.
