@@ -14,3 +14,4 @@ Normas para la aplicación de la dedicación exclusiva para las instituciones de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-03-15 | la propia norma |
+| 2 | 1993-10-25 | Decreto Ejecutivo 22630 (1993-10-25) |
