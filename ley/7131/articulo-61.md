@@ -1,0 +1,1 @@
+ARTICULO 61.-Autorízase a la Municipalidad de Desamparados para que, de la partida consignada a su favor en el código 663 564 1 132 19 7, del programa 900, de la ley No. 7111 del 12 de diciembre de 1988, le gire la suma de ¢65.000 a la Asociación Curime Tradiciones Populares de Costa Rica, para gastos de viaje en el exterior.

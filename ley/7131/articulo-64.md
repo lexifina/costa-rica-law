@@ -1,0 +1,1 @@
+ARTICULO 64.-Otórgasele personería jurídica a la Comisión Nacional de la Papa, creada por decreto ejecutivo No. 17546-PLAN-MAG del 24 de marzo de 1987. La representación legal de la Comisión, para todos los efectos, será ejercida por su presidente.

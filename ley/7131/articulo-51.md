@@ -1,0 +1,1 @@
+ARTICULO 51.-Modifícase el párrafo primero del artículo 22 de la Ley de Loterías, No. 3785 del 11 de noviembre de 1966, reformada por la ley No. 6404 del 20 de diciembre de 1979 para que, después de "premios prescritos", se le agregue el siguiente texto: "y no vendidos".
