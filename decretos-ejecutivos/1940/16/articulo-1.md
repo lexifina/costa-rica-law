@@ -1,0 +1,13 @@
+N° 16
+EL PRESIDENTE DE LA REPÚBLICA
+Considerando:
+1°) Que se han recibido en los establecimientos bancarios solicitudes de extranjeros que desean depositar en ellos sus capitales; pero que naturalmente quieren tener la seguridad de que, en caso de que no se decidieran a dejar indefinidamente esos fondos en el país, no encontrarán obstáculos legales para retirarlos cuando así conviniere a sus intereses;
+2°) Que consultado el caso al Consejo Emisor del Banco Nacional de Costa Rica, que es organismo regulador del cambio nacional, emitió su opinión en el sentido de que para la economía nacional sería ventajosa la importancia de divisas, que podrían dar la oportunidad de que capitalisas extranjeros estudien las posibilidades de emplearlas aquí en actividades arícolas, industriales o de otra índole que contrbuirán a desarrollar la riqueza pública;
+3°) Que el artículo tercero de la ley N° 57 de 23 de febrero de 1935, que orescribe la obligación en que están los dueños de divisas extranjeras, de venderlas dentro del plazo de sesenta días, claramente se refiere a los exportadores o a personas residentes en Costa Rica, y por consiguiente no comprende el caso a que este decreto de contrae. De ello se deduce que dicha prevención no debe aplicarse a personas domiciliadas en el exterior o en tránsito que intenten traer al país sus haberes en forma de divisas;
+4°) Que de acuerdo con la opinión del Consejo Emisor puede autorizarse el ingreso de dichos capitales, sin que queden sujetos a la obligación de convertirse en colones, mientras permanezcan en depósito en los bancos, pero la parte de ellos que fuere transmutada en colones quedará sometida al régimen legal cambiario que rige para todos los capitales;
+Por tanto, de acuerdo con el artículo 12 de la citada ley e inciso 27 del artículo 103 de la Consttución,
+Decreta:
+Adiciónase el reglamento de la ley N° 57 de 23 de febrero de 1935 con las disposiciones siguientes:
+"La obligación de vender las divisas dentro del término de sesenta días que impone esta ley en el párrafo tercero de su artículo 3°. No se aplicará a las que ingresen al país pertenecientes a extranjeros domiciliados en el exterior o en tránsito en esta República que las mantengan depositadas en los bancos comerciales, mientras tales divisas permanezcan así en depósito sin ser transformadas en colones. Una vez hecha esa transformación, quedarán sujetos esos fondos a las mismas disposiciones legales y requisitos de control que rigen para todos los demás".
+Este decreto rige desde su publicación.
+Dado en la Casa Presidencial.- San José, a los tres días del mes de setiembre de mil novecientos curenta.
