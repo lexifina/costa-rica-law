@@ -1,3 +1,5 @@
+(Derogado)
+(Mediante artículo 11 del Acuerdo AJDIP 109 del 4 de marzo del 2005 este acuerdo se dejó sin efecto)
 AJDIP/534.—Puntarenas, a los cinco días del mes de diciembre del año dos mil tres
 Considerando:
 1º—Que mediante acuerdo MDIP/132-99 del 21 de abril de 1999, publicado en La Gaceta Nº 104 del 31 de mayo de 1999, artículo primero, se dispuso no otorgar sustitución temporal de embarcaciones con fines comerciales.

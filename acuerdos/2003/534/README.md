@@ -14,3 +14,4 @@ Autoriza Sustitución Temporal de Embarcaciones dedicadas a la Pesca Marítima c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-11 | la propia norma |
+| 2 | 2005-03-04 | Acuerdo 109 (2005-03-04) |
