@@ -1,4 +1,3 @@
-(Derogado)
 INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
 REGLAMENTO GENERAL DE PROVEEDURÍA
 La Junta Directiva del Instituto de Fomento y Asesoría Municipal (IFAM). acordó en la sesión extraordinaria 2609 del día 1 de julio de 1996, aprobar el siguiente reglamento:
