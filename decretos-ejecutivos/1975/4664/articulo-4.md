@@ -1,0 +1,2 @@
+Artículo 4°—La Junta sesionará ordinariamente una vez por semana en el lugar, día y hora que fije.
+Extraordinariamente se reunirá cuando lo juzgue necesario la Junta Directiva, el Director Ejecutivo o alguno de sus miembros que lo solicite por intermedio del Presidente. La convocatoria en estos casos deberá hacerse con un mínimo de 24 horas de anticipación indicándose concretamente los asuntos a conocer.
