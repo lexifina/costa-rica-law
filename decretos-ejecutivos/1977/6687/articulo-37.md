@@ -1,1 +1,1 @@
-Artículo 37.-Al finalizar las carreras cortas que se señalan en el artículo 32. anterior, se realizarán las pruebas de graduación bajo la supervisión del Ministerio de Educación Pública.
+Artículo 37.- (Derogado por artículo N° 71 del Reglamento de la Educación Superior Parauniversitaria. Aprobado mediante Decreto Ejecutivo N° 12711 del 10 de junio de 1981)

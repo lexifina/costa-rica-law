@@ -1,1 +1,1 @@
-Artículo 34.-Las carreras cortas a que se refiere el inciso b) del artículo 32 tendrán un valor que oscile entre los 64 y 96 créditos, según corresponda al nivel de dos o tres años.
+Artículo 34.- (Derogado por artículo N° 71 del Reglamento de la Educación Superior Parauniversitaria. Aprobado mediante Decreto Ejecutivo N° 12711 del 10 de junio de 1981)

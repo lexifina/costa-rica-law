@@ -1,1 +1,1 @@
-Artículo 38. -Al cumplir satisfactoriamente con las pruebas de graduación el alumno adquirirá el certificado, título o diploma correspondiente.
+Artículo 38. -(Derogado por artículo N° 71 del Reglamento de la Educación Superior Parauniversitaria. Aprobado mediante Decreto Ejecutivo N° 12711 del 10 de junio de 1981)

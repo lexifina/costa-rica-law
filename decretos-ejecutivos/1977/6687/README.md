@@ -14,3 +14,4 @@ Reglamento de Establecimientos Privados de Enseñanza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-01-26 | la propia norma |
+| 2 | 1981-06-10 | Decreto Ejecutivo 12711 (1981-06-10) |

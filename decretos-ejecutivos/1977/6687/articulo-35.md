@@ -1,2 +1,1 @@
-Artículo 35.-Un crédito es igual a una hora lectiva semanal, durante un semestre de 18 semanas. para cursos predominantemente teóricos.
-En aquellos cursos de carácter más práctico, el valor de los créditos se reduce a la mitad.
+Artículo 35.- (Derogado por artículo N° 71 del Reglamento de la Educación Superior Parauniversitaria. Aprobado mediante Decreto Ejecutivo N° 12711 del 10 de junio de 1981)

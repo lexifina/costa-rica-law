@@ -1,1 +1,1 @@
-Artículo 40.-Las disposiciones que se consignan en el presente capítulo con carácter especial para las Instituciones de Educación Superior Parauniversitaría, se aplicarán sin perjuicio de as otras disposiciones que con carácter general establece este reglamento.
+Artículo 40.- (Derogado por artículo N° 71 del Reglamento de la Educación Superior Parauniversitaria. Aprobado mediante Decreto Ejecutivo N° 12711 del 10 de junio de 1981)
