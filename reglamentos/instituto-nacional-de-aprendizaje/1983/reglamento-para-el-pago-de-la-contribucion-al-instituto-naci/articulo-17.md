@@ -1,2 +1,3 @@
 Intereses
-Artículo 17.—En todo arreglo de pago se cobrará un interés corriente del 24% anual sobre el saldo de la deuda y si los pagos se realizan fuera del término convenido se deberá pagar además intereses moratorios del mismo tipo, sobre las cuotas dejadas de pagar.
+Artículo 17.—En todo arreglo de pago se cobraráá un interés comente, sobre e saldo de la deuda, equivalente a un 2% por encima de la tasa de interés activa comercial, a seis meses, fijada por el Banco Central de Costa Rica, para los bancos comerciales del Sistema Bancario Nacional, o, en su defecto, un porcentaje igual sobre la tasa correspondiente fijada por el Banco Nacional de Costa Rica. Si los pagos se realizan fuera el término convenido, se cobrará un interés moratorio del mismo tipo sobre las cuota a dejadas de pagar.
+(Así Reformado por Sesiones No. 2389 y 2394, celebradas el 16 de marzo y 6 de abril de 1987, publicado en La Gaceta No. 100 del 27 de mayo de 1987)

@@ -14,3 +14,4 @@ Reglamento Para el Pago de la Contribución al Instituto Nacional de Aprendizaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-09-02 | la propia norma |
+| 2 | 1987-03-16 | Reglamento 2389 (1987-03-16) |
