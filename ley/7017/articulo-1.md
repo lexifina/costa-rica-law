@@ -7694,3 +7694,7 @@ Nota El artículo 2 del Decreto Ejecutivo N° 31233 de 03 de junio del 2003,de c
 Nota: el Decreto Ejecutivo No. 31233 de 03 de junio de 2003 hizo una modificación tácita de la siguiente manera:
 Código Descripción DAI %valor CIF
 0713.33.10 —-Negros 46
+Nota: el artículo 1° del Decreto Ejecutivo No. 31450 de 08 de octubre de 2003, publicado en La Gaceta No 220 de 14 de noviembre de 2003, hizo una modificación de la siguiente manera:
+SAC Descripción DAI
+8524.3 - Discos para sistemas de lectura por rayos láser:
+8524.32.00 —Para reproducir únicamente sonido 9
