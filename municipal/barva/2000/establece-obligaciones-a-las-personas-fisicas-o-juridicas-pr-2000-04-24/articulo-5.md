@@ -1,0 +1,1 @@
+Artículo 5º—Para efectos de realizar las modificaciones del caso, la Municipalidad queda facultada para utilizar los medios descritos en el artículo 7º de la Ley de Notificaciones, Citaciones y otras Comunicaciones Judiciales Nº 7637.
