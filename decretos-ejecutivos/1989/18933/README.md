@@ -15,3 +15,4 @@ Crea el Centro Nacional de Infraestructura Física Educativa
 | --- | --- | --- |
 | 1 | 1989-04-27 | la propia norma |
 | 2 | 1994-04-07 | Decreto Ejecutivo 23140 (1994-04-07) |
+| 3 | 2002-09-09 | Decreto Ejecutivo 30753 (2002-09-09) |

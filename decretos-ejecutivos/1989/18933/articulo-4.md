@@ -1,7 +1,2 @@
-Del Consejo Directivo
-Artículo 4°—El Consejo Directivo estará integrado así:
-a) Un representante del Ministro de Educación Pública, quien lo presidirá.
-b) Un representante designado por el Consejo Superior de Educación.
-c) Un representante de los Directores Regionales de Enseñanza escogido por el Ministerio de Educación Pública.
-ch) El director de la División de Planeamiento y Desarrollo Educativo.
-d) El director de la División de Operaciones.
+Artículo 4º—La definición de las políticas en materia de construcción, mantenimiento y rehabilitación de infraestructura, así como de mobiliario, será competencia exclusiva del Consejo Superior de Educación.
+(Así reformado por el artículo 3 del decreto ejecutivo N° 30753 de 9 de setiembre del 2002)

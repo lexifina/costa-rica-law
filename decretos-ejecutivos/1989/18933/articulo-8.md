@@ -1,1 +1,1 @@
-Artículo 8°—El Consejo Directivo solo podrá sesionar válidamente con la presencia de al menos cuatro de sus integrantes. Sus acuerdos se adoptarán por mayoría absoluta de los asistentes.
+Artículo 8°—DEROGADO por el artículo 2 del decreto ejecutivo N° 30753 de 9 de setiembre del 2002.

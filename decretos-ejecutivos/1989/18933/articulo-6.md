@@ -1,1 +1,1 @@
-Artículo 6°—Además de las funciones y atribuciones señaladas en el artículo anterior, el Consejo Directivo ejercerá, en lo pertinente y con respecto al CENIFE, las funciones y atribuciones que el Código de Educación estipula para las juntas administrativas.
+Artículo 6°—DEROGADO por el artículo 2 del decreto ejecutivo N° 30753 de 9 de setiembre del 2002.

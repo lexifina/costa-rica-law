@@ -1,1 +1,1 @@
-Artículo 7"—El Consejo Directivo sesionará ordinariamente dos veces al mes y, extraordinariamente, cuando fuere convocado por su presidente.
+Artículo 7"—DEROGADO por el artículo 2 del decreto ejecutivo N° 30753 de 9 de setiembre del 2002.
