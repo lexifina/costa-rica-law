@@ -1,2 +1,0 @@
-Artículo 22.—Si el funcionario con impedimento comprobado es una de los miembros del Comité Permanente, su superior así lo declarará ordenando que se nombre un miembro suplente por parte de quien corresponda para que conozca y resuelva conjuntamente con los otros integrantes el caso particular de que se trate.
-La designación del miembro suplente deberá hacerse dentro de los tres días hábiles siguientes a la fecha en que se dictó la resolución en ese sentido.

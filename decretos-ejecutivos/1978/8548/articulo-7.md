@@ -1,1 +1,0 @@
-Articulo 7°—Las ofertas para participar en un concurso, las presentarán los interesados en formularios previamente confeccionados para ese efecto de pre-concurso o concurso según se trate de proyectos donde medie o no la participación de organismos internacionales, gobiernos extranjeros o proyectos nacionales inter-institucionales .

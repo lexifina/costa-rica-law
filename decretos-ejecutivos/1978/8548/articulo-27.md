@@ -1,1 +1,0 @@
-Artículo 27.—Los funcionarios sancionados con corrección disciplinaria de más de dos semanas de suspensión no podrán concursar para obtener becas dentro de los doce meses siguientes a la fecha en que les haya sido impuesta.

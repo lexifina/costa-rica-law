@@ -1,2 +1,0 @@
-Articulo 10.—Concluido el trámite de recepción de solicitudes de participación, se entrará de inmediato a calificar a los candidatos admitidos y se resolverá la adjudicación de la beca en un término no mayor de cinco días, plazo que se contará desde la fecha de cierre del periodo de recepción de solicitudes.
-La resolución respectiva la dictará el Departamento de Análisis Administrativo y Capacitación, conforme a lo dispuesto en el articulo 18 de este Reglamento.

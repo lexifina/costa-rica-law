@@ -1,1 +1,0 @@
-Articulo 9°—Los avisos de apertura del concurso se exhibirán con la mayor anticipación posible a la fecha del cierre de recepción de las inscripciones por parte del organismo auspiciante o facultado para ello, de conformidad con las circunstancias especiales de cada caso.
