@@ -3,8 +3,8 @@ Las tarifas están fijadas en dólares norteamericanos y serán cobrados por el 
 TARIFAS DE COBROS DE SERVICIOS DEL STF
 Cod | Descripción | Fumigación | Aspersión | Nebulización | Inmersión | Incineración
 1 | Trailer | 17,00 | $ 5,95* | 8,50 | |
-2 | Camión de dos ejes | 14,00 | 7,50 | 7,50 | |
-3 | Camión de un eje | 14,00 | 6,50 | 6,50 | |
+2 | Camión de dos ejes | 14,00 | $ 5,25* | 7,50 | |
+3 | Camión de un eje | 14,00 | $ 4,55* | 6,50 | |
 4 | Buses | 10,50 | 5,50 | 5,50 | |
 5 | Microbuses | 9,50 | 4,50 | 4,50 | |
 6 | Pick Up | 8,00 | 4,50 | 4,50 | |
@@ -59,3 +59,4 @@ Cod | Descripción | Fumigación | Aspersión | Nebulización | Inmersión | Inc
 | Cuarentenaria (incineración) | | | | | 0,75
 Los montos que se obtengan por la aplicación del presente artículo serán administrados de conformidad con el Acuerdo de Cooperación entre el Gobierno de Costa Rica por medio del Ministerio de Agricultura y Ganadería (MAG) y el Organismo Internacional Regional de Sanidad Agropecuaria (OIRSA) para el establecimiento y operación de un programa nacional e internacional de fumigación (SIF) de productos agropecuarios, suscrito en San José, Costa Rica el 15 de diciembre de 1998.
 (*Así reformada la tarifa del Cobro de Servicios del SIF para el código de servicio N° 1, mediante el artículo 1° del decreto ejecutivo N° 30818 del 24 de octubre de 2002, el cual reformo el artículo 1° del decreto ejecutivo N° 29327 del 16 de enero de 2001)
+(*Así reformada la tarifa del Cobro de Servicios del SIF para los códigos de servicio N° 2 y 3, mediante el artículo 1° del decreto ejecutivo N° 31148 del 3 de abril de 2003, el cual reformo el artículo 1° del decreto ejecutivo N° 29327 del 16 de enero de 2001)
