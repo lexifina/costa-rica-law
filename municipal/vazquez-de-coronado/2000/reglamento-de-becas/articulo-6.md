@@ -1,1 +1,2 @@
-Artículo 6°—La solicitud de beca podrá ser retirada en la Oficina de la Secretaría Municipal o con los Síndicos en cada Distrito, a partir del 1° de noviembre y hasta el 20 de diciembre, de cada año.
+Artículo 6º—La solicitud de beca será entregada por los Concejos de Distrito, según el artículo 57, inciso a) del Código Municipal y por la Secretaria Municipal de la siguiente forma: 20 solicitudes cada Concejo de Distrito y 50 solicitudes en la Secretaría para un total de 150. El retiro de ésta solicitud será del 1° al 30 de noviembre de cada año y la recepción será del 1º al 20 de diciembre de cada año, en la Secretaría Municipal.
+(Así reformado por acuerdo tomado en sesión N° 26 de 24 de octubre del 2002)
