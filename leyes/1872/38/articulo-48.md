@@ -1,0 +1,2 @@
+Art 48° Los porteros de las diversas Oficinas que los requieran, gozarán igualmente de la dotación que el Ejecutivo tenga a bien señales, conforme a las tareas que deban desempeñar, no pasando de treinta pesos.
+Único: Cuando el Secretario de Estado en el Despacho de Hacienda encargue al portero o a alguno de sus escribientes la operación de sellar papel, el encargado disfrutará de un sobresueldo de diez pesos mensuales.

@@ -1,0 +1,1 @@
+Art 57° Los empleados públicos que se envejecieren en el servicio de la Nación, y se hallen sin recursos o incapaces de trabajar para mantenerse en una medida decencia, podrán ocurrir al Poder Ejecutivo pidiendo retiro o pensión a fin de que este recabe del Congreso la resolución a que sean acreedores.

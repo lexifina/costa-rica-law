@@ -1,0 +1,1 @@
+Art 24° Los escribientes y porteros de los diferentes Oficinas disfrutarán de la dotación mensual que se les acuerde según sus aptitudes, inclusive los escribientes notificadores, cuyo máximum no pasará para los primeros, de cuarenta pesos, para los segundos, de veinticinco, y para los terceros o notificadores cuarenta y cinco pesos.

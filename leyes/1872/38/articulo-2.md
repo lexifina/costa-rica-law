@@ -1,0 +1,1 @@
+Art 2° Los individuos del Poder Legislativo, vecino o residentes a diez lenguas o más de la capital tendrán derecho a que se le reconozca, por una vez en cada periodo, un viatico de dos pesos por legua, tanto de ida como de vuelta al lugar de su residencia.
