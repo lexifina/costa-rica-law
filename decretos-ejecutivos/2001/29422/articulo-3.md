@@ -1,0 +1,1 @@
+Artículo 3º—Aplicación de los Índices energéticos regulatorios por actividad económica. Estos índices energéticos regulatorios serán aplicados a todas las empresas privadas de acuerdo a la declaración jurada de consumo energético indicada en el artículo 7 del reglamento de la Ley, correspondiente al período fiscal 1998-1999, según lo establece el artículo 4 de este decreto.
