@@ -1,0 +1,1 @@
+Art. 2. Este decreto se imprimirà, circular publicara para que surta sus efectos. –Dado en la ciudad de San José á los veinticuatro dias del mes de setiembre de mil ochocientos cuarenta y cinco. –José Rafael de Gallegos. –Al Ministro de relaciones y gobernacion.”
