@@ -1,0 +1,5 @@
+Art 6°-Con respecto á la sección del ferrocarril que debe constituirse entre Reventazón y la ciudad de Cartago, para inscribirla al mismo tiempo bastará consten del título los requisitos 19 y 2: del artículo 2°, según lo que resulte de los planos hechos y aprobados por el Gobierno.
+Pero una vez que esté concluida dicha sección deberá otorgarse escritura de ratificación ó modifica- ción de los datos dados provisionalmente.
+También deberán otorgarse escrituras adiciona- les con respecto á los nuevos terrenos que se den á la Empresa para el servicio del ferrocarril.
+Lo dicho en el artículo anterior será aplicable á las escrituras adicionales de que habla el presente.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los siete días del mes de octubre de mil ochocientos ochenta y siete.-AND. SÁENZ, Presidente. -José Ma SOTO ALFARO, Secretario. -Palacio Presidencial, San José, siete de octubre de mil ochocientos ochenta y siete.- Ejecútese.-BERNARDO SOTO.-El Ministro de Hacienda, MAURO FERNÁNDEZ.
