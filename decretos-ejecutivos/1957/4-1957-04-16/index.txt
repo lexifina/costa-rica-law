@@ -1,5 +1,0 @@
-articulo-1.md
-articulo-8.md
-articulo-12.md
-articulo-17.md
-articulo-22.md
