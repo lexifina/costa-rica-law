@@ -1,0 +1,2 @@
+Sustitución:
+Artículo 18.—Cuando algún miembro de la Comisión se retirare voluntariamente o fuese removido, el Secretario de la Comisión informará de inmediato al Presidente del Concejo Municipal y solicitará la resignación de un sustituto. Si el miembro retirado ocupase un cargo directivo, la Comisión procederá a. nombrar un sustituto, siguiendo el procedimiento establecido en el artículo 6, y que asumirá sus funciones por el resto del período.

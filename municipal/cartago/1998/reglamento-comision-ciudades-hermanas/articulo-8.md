@@ -1,0 +1,2 @@
+Relación con actividades públicas y embajadas:
+Artículo 8°—La Comisión procurará mantener una relación estrecha con las instituciones públicas que, de alguna manera, puedan coadyuvar en el logro de los objetivos que aquí se establecen. Igualmente, coordinarán con las embajadas o representaciones diplomáticas de los países a que pertenecen las ciudades hermanas, la obtención de obras informativas a la ejecución de actividades conmemorativas o culturales específicas.
