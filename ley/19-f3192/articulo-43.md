@@ -1,0 +1,1 @@
+Artículo 43.—En casos urgentes pueden los Directores de Escuela o los Presidentes de Junta de Educación, en su caso, conceder permiso hasta por cuatro días improrrogables, y de ello darán cuenta al Inspector. Cuando esto ocurriere, puede el Director designar sustituto, sujeto a la aprobación del Inspector.

@@ -1,0 +1,1 @@
+Artículo 42.—Los Inspectores de Circuito sólo pueden dar permiso por ocho días y por quince el Jefe de Educación Primaria. Por más tiempo, corresponde la concesión al Ministro del ramo; pero las solicitudes deberán presentarse al Inspector, quien las elevará al superior.

@@ -1,0 +1,2 @@
+Artículo 13.—El sueldo de los maestros acrecerá en cada categoría o grupo en un 15% sobre el de la categoría o grupo inmediato inferior. Servirá de base el sueldo correspondiente a la quinta categoría de maestros, que fijará anualmente el Presupuesto.
+Cuando desempeñen el cargo de Inspector de Escuelas tendrán el sueldo de su categoría, mejorado en un 25%, pudiendo el Ministerio de Instrucción Pública aumentarlo en algo más cuando el servicio exija gastos de locomoción.

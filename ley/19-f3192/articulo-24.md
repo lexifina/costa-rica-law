@@ -1,0 +1,1 @@
+Artículo 24.—El maestro de grado a quien se recargue el servicio de clases especiales en las escuelas en donde aquéllas estén establecidas, tendrá derecho a un sobresueldo equivalente al 25 % de las dotaciones establecidas en el artículo 23.

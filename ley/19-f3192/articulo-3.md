@@ -1,0 +1,5 @@
+Artículo 3°.—La aptitud para el puesto de maestro se justifica:
+a) Con certificación de la partida de nacimiento o información judicial de tener la edad requerida;
+b) Con diploma expedido por la Escuela Normal, o con Certificado de Aptitud expedido por la Inspección General de Enseñanza o que expida la Sección Técnica;
+c) Con certificado de moralidad procedente de la Junta de Educación del lugar donde resida el pretendiente y visado por la primera autoridad política del cantón. Dicho certificado no podrá ser expedido sino en virtud de la información secreta que al efecto ha de levantar la misma Junta.. Si se tratare de normalistas que hayan de entrar en servicio lectivo inmediatamente después de terminados sus estudios, el certificado será expedido por el Director de la Escuela Normal respectiva, habida cuenta del conocimiento que tenga del alumno y según los atestados que obren en la Secretaría del establecimiento;
+d) Con certificado del Médico Escolar y, en su defecto, del Médico del Pueblo.

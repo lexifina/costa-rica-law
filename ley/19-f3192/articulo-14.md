@@ -1,0 +1,1 @@
+Artículo 14.—Los maestros en servicio tendrán un sobresueldo de dirección equivalente al 20% sobre el sueldo de su respectiva categoría, en las escuelas de primer orden. En las escuelas de segundo orden se computará el 15% y en las de tercer orden el 10%, siempre sobre el sueldo correspondiente a la categoría que tenga el maestro-director.

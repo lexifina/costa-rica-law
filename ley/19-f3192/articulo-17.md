@@ -1,0 +1,2 @@
+Artículo 17.—Las dotaciones de que disfruten los maestros, según su categoría y el cargo que sirven, no podrán sufrir descuento alguno sino en el caso de que la disposición sea decretada como medida general para los empleados públicos.
+Todos los maestros tienen derecho a sueldo en las vacaciones, proporcionalmente al tiempo de servicio, con excepción de los que se hubieren separado del puesto por destitución o renuncia.

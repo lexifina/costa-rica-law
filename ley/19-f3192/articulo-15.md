@@ -1,0 +1,2 @@
+Artículo 15.—Los maestros en servicio que tengan horario alterno—o sea dos o más grupos de diversos grados,—paralelo—o sea dos o más grupos del mismo grado—o combinado—o sea dos o más clases distintas,—recibirán un sobresueldo correspondiente al 20 % sobre el sueldo de su categoría.
+El tanto por ciento del sobresueldo de zona para las regiones apartadas del país, reconocidas como insalubres, queda a juicio del Ministerio de Instrucción Pública, pero nunca pasará del 50% del sueldo de categoría del maestro.

@@ -1,0 +1,1 @@
+Artículo 16.—Para el efecto del sobresueldo a que se refiere el artículo 14, el Ministerio de Instrucción Pública clasificará las escuelas en escuelas de primer orden, de segundo y de tercero, de acuerdo con las condiciones especiales de cada plantel de enseñanza y de la localidad.

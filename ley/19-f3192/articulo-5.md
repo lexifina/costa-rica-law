@@ -1,0 +1,1 @@
+Artículo 5°.—Los maestros titulados en el extranjero no serán ocupados en la enseñanza sin que hayan revalidado sus títulos, mediante examen que deberán rendir ante la Junta Calificadora del Personal Docente, salvo lo dispuesto en los Tratados Internacionales.
