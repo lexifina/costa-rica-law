@@ -1,1 +1,1 @@
-Artículo 44.- Todos los fondos que administre el Banco se mantendrán depositados a su nombre en Bancos Comerciales Estatales.
+Artículo 44.- Los miembros de la Junta Directiva Nacional, de las Juntas de Crédito Locales, el Gerente General, los Subgerentes, el Auditor y los Gerentes de Sucursal de este Banco, deberán guardar la más estricta imparcialidad en asunto de política electoral.

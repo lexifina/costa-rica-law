@@ -1,1 +1,1 @@
-Artículo 41.- El Banco establecerá una Sección de Pignoración, cuyas operaciones serán reglamentadas por la Junta Directiva Nacional.
+Artículo 41.- Quedan exentos del pago de los impuesto nacionales y municipales, los bienes que adquiera el Banco para el normal desarrollo de sus actividades. Asimismo queda exento el Banco del uso de papel sellado, timbres, derechos de registro hasta en un 50% en los actos y contratos en que participe.

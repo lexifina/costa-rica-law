@@ -1,1 +1,1 @@
-Artículo 3º.- El domicilio del Banco será la ciudad de San José. Existirán Oficinas Regionales dirigidas por Juntas Directivas Regionales y Comités Locales, cuyos domicilios se fijarán de acuerdo con el Reglamento de esta ley.
+Artículo 3º.- El domicilio del Banco será la ciudad de San José. Existirán sucursales dirigidas por Juntas de Crédito locales nombradas por la Junta Directiva Nacional, cuyos domicilios se fijarán de acuerdo con el Reglamento de esta ley. Además el Banco creará Oficinas Auxiliares en los lugares que considere conveniente.

@@ -1,5 +1,2 @@
-Artículo 36.- Son funciones de los Comités Locales:
-a) Calificar y resolver las solicitudes de créditos personales;
-b) Promover el ahorro en la localidad;
-c) Supervisar los créditos y cobros; y
-d) Promover la financiación de proyectos de desarrollo comunal en formar sobre éstos a la Junta Directiva Regional.
+Artículo 36.- El Banco deberá mantener permanentemente en disponibilidad el equivalente al 10% del monto de los ahorros exigibles a la vista, sea en efectivo, en cuentas bancarias en los Bancos Comerciales Estatales, o en títulos valores adquiridos con pacto de retroventa a la vista de las instituciones bancarias del Estado.
+El Banco Central, por medio de la Auditoría General de Bancos, supervisará el cumplimiento de esta disposición.
