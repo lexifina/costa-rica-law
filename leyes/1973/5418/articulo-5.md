@@ -1,1 +1,0 @@
-Artículo 5º.- La inscripción se hará libre de derechos y la Dirección suministrará asesoría legal a las asociaciones que se la demanden, sin costo alguno para ellas en lo que atañe a subsanar defectos y en general a facilitar la inscripción de los documentos inscribibles.

@@ -1,1 +1,0 @@
-Artículo 9º.- Las resoluciones que disuelvan las Asociaciones Deportivas y cancelen su inscripción sea en las circunstancias previstas en el artículo 6º, o en el 8º, tendrán apelación ante el Ministro de Cultura, Juventud y Deportes, cuya resolución dejará abierta para los interesados la vía contencioso-administrativa.
