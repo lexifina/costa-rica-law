@@ -1,0 +1,1 @@
+Artículo 7º.- La Dirección General de Artes y Letras tendrá funciones consultivas respecto de la Junta Directiva del Museo Nacional, respecto a la preservación del patrimonio histórico de la nación, y a la creación y mantenimiento de una sección de artes plásticas en el Museo.
