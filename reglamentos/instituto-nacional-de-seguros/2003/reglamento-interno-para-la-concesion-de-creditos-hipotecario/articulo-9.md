@@ -1,0 +1,1 @@
+Artículo 9º—Gastos derivados de la tramitación del crédito. Todos los gastos derivados de la aprobación y formalización del crédito, estará a cargo del solicitante; dentro de estos gastos figuran los honorarios a profesionales por la revisión de planos y la inspección de la inversión de los fondos.
