@@ -1,0 +1,1 @@
+Art. 7. Se gravan asimismo en favor del enunciado Hospital: el curato de Cartago con la pencion mensual de seis pesos: el de San José con la de doce: el de Heredia con la de diez; y el de Alajuela con la de ocho, en lugar de la que à cada uno de dichos Curatos està impuesta en el articulo 8° de la ley de 11 de mayo de 1833.
