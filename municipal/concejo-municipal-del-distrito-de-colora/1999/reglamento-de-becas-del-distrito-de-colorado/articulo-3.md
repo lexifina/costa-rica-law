@@ -1,0 +1,1 @@
+Artículo 3°—Para efectos de esta reglamentación se establecen dos clases de ayuda, a saber: Becas: Se considera beca la ayuda que se entregará mensualmente durante el periodo lectivo a jóvenes estudiantes, en dinero en efectivo. Subsidio: Se considera subsidio toda ayuda en útiles y materiales de estudio que el Concejo otorgue a estudiantes para solucionar problemas.

@@ -1,0 +1,1 @@
+Artículo 10.—En caso de quitársele la beca a un estudiante por alguno de los casos anteriormente expuestos, se le podrá otorgar a otro alumno que la haya solicitado y que reúna los requisitos enumerados en este Reglamento.

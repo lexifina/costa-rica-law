@@ -1,0 +1,1 @@
+Artículo 2°—El presente Reglamento regula la concesión de becas y ayudas económicas que el Concejo Municipal de Distrito de Colorado. podrá otorgar a jóvenes que deseen seguir un carrera académica o de formación profesional.

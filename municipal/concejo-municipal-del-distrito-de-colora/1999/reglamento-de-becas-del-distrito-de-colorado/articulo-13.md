@@ -1,0 +1,1 @@
+Artículo 13.—En el caso de los alumnos de formación profesional o estudios superiores el monto de la beca será de 10.000 (diez mil colones) por mes y se entregara por mes vencido, con el entendido de que cada estudiante tendrá que realizar trabajos u obras comunales, cuando el Concejo se lo solicite. Esta cantidad puede aumentarse cada año.
