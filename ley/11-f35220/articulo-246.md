@@ -1,3 +1,4 @@
 Artículo 246
 Homicidio por imprudencia
-Será reprimido con multa mayor en sus grados primero a segundo e inhabilitación temporal en su grado primero. del cargo o de la profesión en cuyo ejercicio hubiere contraído la responsabilidad penal, el que por imprudencia, negligencia, impericia en su arte, oficio o profesión o inobservancia de los reglamentos o de los deberes de su cargo, causare a otro la muerte.
+Artículo 246.- El que por cualquier imprudencia, descuido o negligencia causare la muerte a otro, será reprmido con multa mayor en sus grados primero a segundo, y si el hecho proviene de imprudencia, descuido neglegencia o i mpericia en el ejercicio de una profesión titular o un cargo público, se le impondrá a demás inhabilitación temporal en su grado primero de la profesión o cargo dichos.
+(Así reformado por el artículo único de la ley N° 19 del 30 de mayo de 1925)
