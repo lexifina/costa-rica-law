@@ -1,0 +1,1 @@
+Art. 5. Aun cuando la pena que debe imponerse según las leyes, no consista en multa pecuniaria, siempre que haya denunciante, el juez condenará al culpable a satisfacer una multa proporcionada a sus facultades y al daño que hubiera causado, para gratificar al delator.
