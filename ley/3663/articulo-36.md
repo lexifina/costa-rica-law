@@ -1,3 +1,1 @@
-Artículo 36.- La deliberación y votación del Tribunal serán secretas,
-previa audiencia a las partes cuando el caso lo requiera. El fallo se
-publicará en el Diario Oficial cuando el Tribunal lo considere necesario.
+Artículo 36.- Las asambleas ordinarias de cada uno de los colegios miembros se reunirán por lo menos una vez en los últimos seis meses de cada año, de conformidad con el calendario que la Junta Directiva de cada uno de los colegios establezca. Las asambleas extraordinarias se reunirán cuando así lo acuerde la Junta Directiva por sí, o; a petición de diez miembros activos.

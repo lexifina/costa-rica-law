@@ -1,5 +1,4 @@
-Artículo 11.- Los avalúos y peritajes sobre asuntos y materias
-relacionadas con las profesiones de Ingeniería y Arquitectura que ordenen
-las oficinas públicas, las instituciones autónomas y semiautónomas del
-Estado, y las municipalidades, deberán ser realizados por miembros activos
-del Colegio.
+Artículo 11.- Las funciones públicas para las cuales la ley o decretos
+ejecutivos exijan la calidad de ingeniero o de arquitecto, sólo podrán ser
+desempeñadas por los miembros activos del Colegio Federado de acuerdo a
+esta ley y en las profesiones en que hayan sido incorporados.
