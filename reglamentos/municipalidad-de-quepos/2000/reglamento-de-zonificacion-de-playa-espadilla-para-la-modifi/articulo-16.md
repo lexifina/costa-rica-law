@@ -31,4 +31,26 @@ b. Los sistemas de acueductos y alcantarillados pluvial deberán demostrar que s
 5. En la Zona Marítimo Terrestre, previo a la realización de construcciones, se deberá presentar Estudio de Impacto Ambiental de acuerdo con lo que indique la Secretaría Técnica Nacional del Ambiente (SETENA) y lo dispuesto en la Ley Orgánica del Ambiente, Nº 7554.
 El Concejo acuerda: aprobar y adoptar la propuesta del Plan Regulador de Playa Espadilla, pasarlo al Instituto Costarricense de Turismo y al Instituto Nacional de Vivienda y Urbanismo, y a DEPPAT, una vez que se apruebe se publique en el Diario Oficial La Gaceta, cuyo monto correrá por cuenta de la Municipalidad de Aguirre. 4 votos a favor.
 Todos los actuales concesionarios, cuya resolución razonada Municipal, fue otorgada con base en el Actual Plan Regulador elaborado por el INVU y publicado en La Gaceta Nº 233 del 11 de diciembre de 1989, mantendrán sus derechos y obligaciones relativos a retiros, alturas, coberturas, y otras normas, tal como aparecen en el Reglamento de Zonificación del citado Plan Regulador. Estos derechos y obligaciones deberán respetarse durante el plazo restante de la concesión otorgada. Los concesionarios quedan facultados para solicitar a la Municipalidad la inclusión de un adéndum a su contrato, donde se especifiquen estas condiciones. 4 votos a favor, 1 voto en contra de la regidora Marina Espinoza Pérez, por cuanto primero debe verlo la Comisión de Zona Marítimo Terrestre para que emita una recomendación.
-(Nota: Mediante acuerdo publicado en La Gaceta Nº 187 del 29 de setiembre del 2000, se publican las láminas Nº 28 Vialidad y la Nº 29 Plan de Uso del Suelo a fin de incluirlas en el Plan Regulador de Playa Espadilla, lo anterior por cuanto fueron aprobadas en la misma sesión que el mencionado Plan Regulador y no fueron publicadas anteriormente.)
+(Nota: Mediante acuerdo publicado en La Gaceta Nº 187 del 29 de setiembre del 2000, se publican las láminas Nº 28 Vialidad y la Nº 29 Plan de Uso del Suelo a fin de incluirlas en el Plan Regulador de Playa Espadilla, lo anterior por cuanto fueron aprobadas en la misma sesión que el mencionado Plan Regulador y no fueron publicadas anteriormente).
+(Nota: Mediante el artículo 7 de la sesión ordinaria Nº 27 de la Municipalidad de Aguirre, publicado en La Gaceta Nº 62 del 31 de marzo del 2005, se efectuaron cambios en aspectos de localización de las áreas creadas en el Reglamento de Zonificación del Plan Regulador de Playa Espadilla; cambios que se reflejan en el cuadro de áreas de la siguiente manera, disminuyendo la Zona Verde (ZVP) y la Residencial Turística (ZRT) y aumentando la Zona de Alojamiento Turístico (ZAT)
+Cuadro 5
+Modificación Plan Regulador de Playa Espadilla
+Áreas ocupadas por los usos de suelo (*)
+Zona | Sigla | Área Propuesta | %
+Zona de Alojamiento Turístico Hotelero y Cabinas | (ZAT) | 167 304 | 60.00
+Zona Verde y Protección de Humedales | (ZVP) | 27 705 | 9.93
+Zona de Servicios Básicos | (ZSB) | 1 802 | 0.64
+Zona Comercial Turística | (ZCT) | 4 333 | 1.48
+Zona Residencial Turística | (ZRT) | 8 803 | 3.20
+Zona Cooperativas | (ZCO) | 3 136 | 1.12
+Zona Protección de Quebradas | (ZPQ) | 15 800 | 5.66
+Zona de Parque Nacional | (ZPN) | 26 647 | 9.56
+Zona de Estacionamiento | (ZE) | 4 361 | 1.56
+Zona de Vialidad | (ZV) | 17 825 | 6.40
+Zona Pública ** | (ZP) | 108 680 |
+Zona Institucional | (ZIN) | 1 135 | 0.40
+| | 278.851 | 100%
+(*) Todas las áreas son aproximadas.
+(**) No se contempla en la totalización de áreas.
+Fuente: DEPPAT S.A. Elaboración propia octubre 2001.
+(Nota: Ver Plano de la zonificación propuesta en la página 38 de La Gaceta Nº 62 del 31 de marzo del 2005).

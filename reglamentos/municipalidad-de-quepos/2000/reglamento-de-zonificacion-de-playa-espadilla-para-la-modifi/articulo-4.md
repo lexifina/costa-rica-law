@@ -1,6 +1,6 @@
 Artículo 4º—Zona de Alojamiento Turístico Hotelera y Cabinas (ZAT).
 a. Propósito: Casas familiares. Servicio de hospedaje y alimentación a los visitantes, así como dotar de otros servicios básicos al turista nacional e internacional.
-b. Localización: Zonas denominadas en las siglas (ZAT) en el mapa Nº 29, anexo Nº 5, localizadas a lo largo de la playa entre los mojones Nº 166 al Nº 151 m, del mojón Nº 20 + 58 al mojón 13 + 75 excluyendo la Zona Verde de Protección detrás del mojón Nº 11 + 10 m al 7 + 30 m, y del mojón Nº 5 + 22 hasta el mojón Nº 101 + 20 m.
+b. Localización: Zonas denominadas en las siglas ZAT) en el mapa Nº 29 anexo Nº 5, localizadas a lo largo de la playa entre los mojones Nº 166 al Nº 151 m, del mojón Nº 149 al mojón 13+75, excluyendo la Zona Verde de Protección, detrás del mojón Nº 11+10 m al 7+30 m, y del mojón Nº 5+22 hasta el mojón Nº 101+20 m.
 c. Usos permitidos: Hoteles, cabinas, albergues, además pueden incluir dentro de sus instalaciones restaurantes, cafeterías, bar, áreas de deportes al aire libre y piscina.
 d. Usos condicionales: Comercio de artículos deportivos.
 e. Uso conflictivo: Cualquier instalación que no sea de carácter turístico.
@@ -36,3 +36,4 @@ Altura máxima 4 m
 Ancho de caminos internos 7 metros
 · No se permitirá corta de árboles sin los debidos permisos extendidos por las autoridades competentes.
 · Se permitirán construcciones de 7 metros máximo o de dos plantas en sitios donde no se intercepte el paisaje natural.
+(Así reformado mediante el artículo 7 de la sesión ordinaria Nº 27 de la Municipalidad de Aguirre, según publicación efectuada en La Gaceta Nº 62 del 31 de marzo del 2005).
