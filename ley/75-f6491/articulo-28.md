@@ -1,0 +1,1 @@
+Art 28. Quedan exentos del derecho de tonelaje, los buques que llegen de arribada obligados de algún riesgo ó necesidad de hacer aguada, ó á porveerse de mantenimientos, en especial los balleneros: los que no descarguen absolutamente nada: los que solo traigan el objeto de cargar frutos del país y los que se hallen empleados en el servicio de paquetes.

@@ -1,0 +1,1 @@
+Art 15. Del tanto por ciento de alcabala para el Estado que se detalla en las disposiciones que preceden para todas las mercaderías que no sean de libre introducción, no vengan para el uso del Gobierno, deberá deducirse en dos por ciento para el fondo del consulado, que ahora pertenece á la sociedad de caminos.

@@ -1,0 +1,1 @@
+Art 14. Todos los frutos ó manufacturas, mercaderías u objetos que no estén prohibidos ni comprendidos en alguna de las clases anteriores, pagarán un veinte por ciento de alcabala para el Estado, siempre que se introduzcan para su consumo.

@@ -1,0 +1,1 @@
+Art 20. Cuándo algún objeto ó clase de mercaderías no se halle nominalmente designada en la tarifa, se buscará expresión genérica que mejor le cuadre, y si alguna se encuentra se evaluará de conformidad con ella.

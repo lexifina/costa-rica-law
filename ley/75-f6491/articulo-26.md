@@ -1,0 +1,1 @@
+Art 26. Los buques extranjeros que viniendo del exterior de la República descarguen frutos ó efectos en los puertos del Estado, pagarán dos reales por cada tonelada de su registro. Si procedieren de puertos de los otros estados, pagarán solamente un real por tonelada.

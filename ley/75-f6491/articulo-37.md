@@ -1,0 +1,1 @@
+Art 37. El presente decreto comenzará á regir después de seis meses contados desde su publicación, á no ser que los interesados quieran conformarse en un todo con la nueva tarifa y arancel luego que sean publicados. Dado en la ciudad de San José, á los nueve días del mes de junio del mil ochocientos cuarenta y seis.

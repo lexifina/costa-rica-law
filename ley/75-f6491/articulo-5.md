@@ -1,0 +1,1 @@
+Art 5. El Gobierno, sin embargo, podrá celebrar contratas, é introducir por su propia cuenta las cantidades que necesite para el abasto de las tercenas, de rapé manufacturado, polvillo ó tabaco en rama de aquellas especies que tienen consumo en el Estado, y no se cosecha dentro de su territorio.
