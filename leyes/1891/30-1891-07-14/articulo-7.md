@@ -1,0 +1,2 @@
+VII.
+Igualmente se compromete la empresa á no cobrar más flete que el de diez centavos de nuestra moneda nacional por cada tonelada de novecientos veinte kilogramos de peso y por cada kilómetro, sobre los artículos siguientes: maíz, arroz, frijoles, azúcar, dulce, (panela) y sal común. En ningún caso se variará la naturaleza de la moneda en que haya de efectuarse el pago o del flete sobre los citados artículos. En cuanto á los demás artículos, se estará á lo estipulado en el contrato principal.
