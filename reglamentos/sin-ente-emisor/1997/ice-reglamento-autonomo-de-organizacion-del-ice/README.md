@@ -13,3 +13,4 @@ ICE: Reglamento Autónomo de Organización del ICE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-01-09 | la propia norma |
+| 2 | 2001-09-25 | Ley 7 |
