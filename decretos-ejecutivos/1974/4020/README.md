@@ -13,3 +13,4 @@ Reglamento de Emergencias Nacionales (1974)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-08-24 | la propia norma |
+| 2 | 1974-08-24 | SINALEVI (sin norma nombrada) |
