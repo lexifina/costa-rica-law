@@ -1,1 +1,0 @@
-Artículo 77.- Cuando por algún incidente extraordinario no pudiese expedirse la convocatoria para elecciones, éstas indispensablemente deberán celebrarse en su época, y en tal caso tendrán toda la validez de la ley.

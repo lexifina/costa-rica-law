@@ -1,1 +1,0 @@
-Artículo 176.- En cada pueblo por pequeño que sea habrá Municipalidad electa popularmente, y sus atribuciones serán las que designe la ley, igualmente que el número de sus individuos y las calidades y periodo de la duración de estos.

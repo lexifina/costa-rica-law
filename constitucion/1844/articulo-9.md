@@ -1,1 +1,0 @@
-Artículo 9º.- Ningún hombre puede ser inquietado, molestado ni perseguido por sus opiniones de cualquiera clase y naturaleza que sean, con tal que por un acto positivo no infrinja alguna ley, pues en este caso quedará sujeto a la pena por ella establecida.

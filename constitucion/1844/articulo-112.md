@@ -1,1 +1,0 @@
-Artículo 112.- Toda ley, resolución legislativa ó decreto de una Cámara, para que tengan fuerza de tales, necesitan la sanción de la otra, ó adquirirla por el transcurso del tiempo que falte para la reunión inmediata y sucesiva de la Cámara de Representantes y los días que ella dure.

@@ -1,1 +1,0 @@
-Artículo 120.- Para ser Senador se requiere: 1º ser ciudadano en el ejercicio de sus derechos: 2º tener naturaleza en el Estado: 3º ser mayor de treinta y cinco años: 4º ser del Estado seglar ó del eclesiástico secular, debiendo en el primer caso ser padre de familia; y 5º tener por lo menos mil pesos de propiedad raíz.

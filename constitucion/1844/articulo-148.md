@@ -1,1 +1,0 @@
-Artículo 148.- La Corte Suprema de Justicia se renovará por mitad cada dos años, debiendo salir la primera vez los que designe la Cámara de Representantes por suerte, y en lo sucesivo los mas antiguos.

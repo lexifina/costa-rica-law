@@ -1,1 +1,0 @@
-Artículo 137.- Para ser Ministro del Despacho se requiere: 1º ser ciudadano en ejercicio de sus derechos: 2º ser natural del Estado ó de la República naturalizado en él: 3º poseer en el Estado una propiedad raíz que no baje de mil pesos: y 4º ser mayor de treinta años o de veinticinco siendo profesor de alguna ciencia.
