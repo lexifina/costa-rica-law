@@ -1,0 +1,1 @@
+Artículo 3°.- Los beneficiarios que por este decreto se otorgan a “Sulfatos, Sociedad Anónima”, podrán ser modificados o regulados por el Ministerio de Economía Industria y Comercio en virtud de convenios, protocolos, acuerdos, resoluciones o cualquier otra disposición de los organismos del Tratado General de integración Centroamericana.
