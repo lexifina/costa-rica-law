@@ -9,4 +9,5 @@ Considerando:
 3º—Que mediante el Decreto Ejecutivo N° 30214-H, publicado en La Gaceta N° 54 del 18 de marzo del 2002, se estableció el límite de gasto presupuestario del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
 4º—Que por lo anterior, resulta necesario modificar los límites de gasto presupuestario fijado para la Fábrica Nacional de Licores (FANAL), en el decreto citado. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase a la Fábrica Nacional de Licores, el límite de gasto presupuestario para el 2003, establecido en el artículo 1° del Decreto Ejecutivo N° 30214-H, publicado en La Gaceta N° 54 del 18 de marzo del 2002, de manera que el gasto presupuestario no exceda la suma de ¢1936.6 millones.
+Artículo 1º—Modifícase a la Fábrica Nacional de Licores, el límite de gasto presupuestario para el 2003, establecido en el Decreto Ejecutivo Nº 31131-H, publicado en La Gaceta Nº 85 del 6 de mayo del 2003, de manera que el gasto presupuestario no exceda la suma de ¢2.124,0 millones
+(Así REFORMADO PARCIALMENTE por el artículo 1° del Decreto Ejecutivo N° 31528 del 16 de octubre de 2003, publicado en La Gaceta No. 240 de 12 de diciembre de 2003.)
