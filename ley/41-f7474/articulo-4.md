@@ -1,0 +1,1 @@
+Art 4. En compensación se agracia al Sr. Chamorro con diez caballerías de tierra en los baldíos, divididas en cinco partes cuadradas que el privilegiado hará medir a su costa en los lugares que de acuerdo con el Gobierno señalen, quedando además exento de la contribución de peaje sobre el ganado que introduzca por la nueva vía.
