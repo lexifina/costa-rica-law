@@ -9,10 +9,11 @@ b) Que no exista posibilidad razonable de obtener el título de
 propiedad a corto o mediano plazo, conforme a los procedimientos legales
 establecidos.
 c) Que el inmueble no aparezca inscrito a nombre de otra persona o
-bien, que el propietario otorgue su consentimiento. Se incluyen los casos
-en que el ocupante tenga un derecho de uso reconocido, como ocurre en las
-zonas fronterizas y en el área restringida no pública de la zona marítimo-
-terrestre.
-ch) Que el inmueble no se encuentre amparado por regímenes legales que
-prohíben la ocupación, como en el caso de los caminos públicos, parques
-nacionales, reservas forestales o de la zona pública marítimo- terrestre.
+bien, que el propietario otorgue su consentimiento. Se incluyen los
+casos en que el ocupante tenga un derecho de uso reconocido, como ocurre
+en las zonas fronterizas y en el área restringida no pública de la zona
+marítimo-terrestre.
+ch) Que el inmueble no se encuentre amparado por regímenes legales
+que prohíben la ocupación, como en el caso de los caminos públicos,
+parques nacionales, reservas forestales o de la zona pública
+marítimo-terrestre.
