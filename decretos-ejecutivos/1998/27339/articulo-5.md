@@ -1,0 +1,6 @@
+Artículo 5°.-La Secretaría Técnica tendrá las siguientes funciones:
+a) Será un ente adscrito a la Unidad Coordinadora del Plan de Reactivación Económica y Laboral de la Provincia de Limón, quien será la encargada de asignarle las funciones respectivas.
+b) Dar informes mensuales a la Unidad Coordinadora del Plan de Reactivación Económica y Laboral de la Provincia de Limón y al Movimiento Limón en Lucha, así cuando también, se le solicite por alguno de ellos.
+c) Podrá recomendar a la Unidad Coordinadora del Plan de Reactivación Económica y Laboral de la Provincia de Limón proyectos propios así como aquellos que les' haga llegar cualquier otra instancia, siempre y cuando estén orientados hacia los fines del plan.
+d) No podrán utilizarse los recursos económicos que se establecen en el Decreto N° 25608MP-MTSS por los órganos de la Unidad Coordinadora para gastos administrativos, sólo para la realización de proyectos. Le corresponde a JAPDEVA aportar los recursos económicos, materiales y humanos para efectos administrativos.
+e) Contribuir con la acción concertadora de las iniciativas del sector público, comunal y privado; así como en la formulación de propuestas que solucionen las problemáticas identificadas, especialmente aquellas que aparecen en los acuerdos entre el Gobierno y el Movimiento Limón en Lucha.

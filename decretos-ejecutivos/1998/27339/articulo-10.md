@@ -1,0 +1,1 @@
+Artículo 10.-Exhortar a esas mismas entidades para que consideren las asignaciones presupuestarias para garantizar el financiamiento oportuno de las acciones que necesitan la dotación de recursos financieros.

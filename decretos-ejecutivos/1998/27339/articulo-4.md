@@ -1,0 +1,1 @@
+Artículo 4°-La Secretaría Técnica estará conformada por un Director, quien será escogido por la Unidad Coordinadora del Plan de Reactivación Económica y Laboral de la Provincia de Limón de una tema cuyos nombres presentará el Movimiento Limón en Lucha. Durará en su cargo un año y podrá ser reelegido por períodos iguales.

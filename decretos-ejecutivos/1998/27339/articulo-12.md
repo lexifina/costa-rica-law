@@ -1,0 +1,1 @@
+Artículo 12.-lnstar a las Juntas Directivas de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica y del Instituto Mixto de Ayuda Social, para que apoyen la reestructuración propuesta en este decreto y adopten las medidas administrativas y faciliten los recursos para poder desarrollar los proyectos en beneficio de la provincia de Limón.

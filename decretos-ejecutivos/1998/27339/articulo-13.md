@@ -1,0 +1,1 @@
+Artículo 13.-Agregar al Decreto N° 25608-MP-MTSS en el artículo 2° , punto 1 el inciso e) que dirá así como sigue: "e) La Unidad Coordinadora del Plan de Reactivación Económica y Laboral para la Provincia de Limón, tomando en cuenta las necesidades imperantes en la Provincia de Limón, podrá aprobar proyectos en otras áreas fundamentales que vengan a solucionar esas necesidades."
