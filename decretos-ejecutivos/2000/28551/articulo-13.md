@@ -1,0 +1,1 @@
+Artículo 13.—De la certificación del adeudo en las operaciones con fideicomisos: La certificación del adeudo será emitida por el Banco fiduciario de los fondos girados por el IMAS, a petición de los deudores o de las unidades administrativas autorizadas por la Gerencia de Desarrollo Social del IMAS.

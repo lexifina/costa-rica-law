@@ -1,0 +1,4 @@
+CAPITULO V
+De las escrituras de cancelación de las deudas
+Artículo 16.—De la formalización de las cancelaciones de las deudas hipotecarias: A solicitud del beneficiario, el Gerente de Desarrollo Social del IMAS remitirá a la Notaría del Estado los documentos necesarios para que se realicen las escrituras de cancelación hipotecaria. Ante la imposibilidad manifiesta de la Notaría del Estado la Institución podrá contratar los servicios profesionales de notarios externos para que realicen las escrituras.
+No obstante, el beneficiario también podrá gestionar de sus propios recursos la contratación de un Notario externo para la formalización de la respectiva escritura de cancelación hipotecaria a firmar por el representante legal de! IMAS. previa autorización de la Asesoría Jurídica de dicha Institución.

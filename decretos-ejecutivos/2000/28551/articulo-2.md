@@ -1,0 +1,5 @@
+Articulo 2°—De las operaciones contempladas en los beneficios del presente reglamento: En virtud de la aplicación del presente reglamento, serán condonadas las operaciones que se encuentren comprendidas dentro de las siguientes situaciones:
+1. Operaciones originadas con motivo de créditos individuales, destinados a la construcción, reparación o mejoramiento de \ hienda otorgados a personas calificadas como beneficiarias por el IMAS en aplicación de sus programas sociales.
+2. Operaciones originadas con motivo del otorgamiento de créditos puente destinados a la construcción, implementación y desarrollo de proyectos de vivienda, otorgados a organizaciones integradas por personas calificadas como beneficiarios del IMAS.
+3. Operaciones originadas con motivo del otorgamiento de crédito base complementario al bono familiar de la vivienda con recursos del IMAS, otorgados a personas calificadas como beneficiarías por el IMAS.
+4. Operaciones originadas con motivo de valor de adjudicación o de lote otorgados a personas calificadas como beneficiarias por el IMAS.

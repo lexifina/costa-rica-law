@@ -1,0 +1,3 @@
+Artículo 5°—De la condonación de las deudas en el caso de adjudicaciones o de titulaciones no formalizadas: El IMAS condonará también todas aquellas deudas existentes con motivo de valor de lote o de adjudicación, que hayan sido contraidas por beneficiarios, aún y cuando no se haya inscrito la respectiva escritura de titulación o hipoteca o no exista operación a su nombre.
+Para tal fin, el respectivo beneficiario deberá contar al menos con un acuerdo del Consejo Directivo del IMAS en donde se disponga la segregación y venta de su lote.
+Los procedimientos para el trámite de condonación serán los establecidos en el presente reglamento.

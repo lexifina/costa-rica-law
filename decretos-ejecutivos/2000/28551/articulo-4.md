@@ -1,0 +1,1 @@
+Artículo 4°—De las Operaciones Prescritas: En el caso de aquellas operaciones que se encuentren prescritas de conformidad con la normativa aplicable, la unidad responsable de gestión de cobro del IMAS podrá declarar a gestión de parte la respectiva prescripción.

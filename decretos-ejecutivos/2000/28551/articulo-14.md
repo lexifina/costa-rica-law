@@ -1,0 +1,1 @@
+Artículo 14.— De la condonación de las deudas con las operaciones con fideicomisos: Una vez emitida la respectiva recomendación social, la Gerencia de Desarrollo Social o las unidades administrativas autorizadas ante el fideicomiso, procederán a solicitar al fiduciario la condonación de las respectivas deudas.

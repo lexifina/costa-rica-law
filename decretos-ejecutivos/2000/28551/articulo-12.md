@@ -1,0 +1,2 @@
+Artículo 12—De las condiciones para que se condone una deuda con los fideicomisos del IMAS: Para la condonación de operaciones con los fideicomisos en que el IMAS sea fídeicomitente, deberá existir una recomendación social por parte un funcionario competente de dicha Institución.
+Los procedimientos para efectuar la condonación de deudas con los beneficiarios del fideicomiso se realizarán de conformidad con lo establecido en el presente reglamento.
