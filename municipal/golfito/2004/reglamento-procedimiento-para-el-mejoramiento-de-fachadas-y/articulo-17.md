@@ -1,0 +1,1 @@
+Artículo 17.—Rampa para discapacitados. En las esquinas de cuadra, deberá construirse las rampas para discapacitados, adaptándose a los niveles entre acera-calle de tal forma que permita la continuidad y fluidez del recorrido urbano, pendiente no mayor al 10%.

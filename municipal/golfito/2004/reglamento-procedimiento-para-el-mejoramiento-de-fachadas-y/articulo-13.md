@@ -1,0 +1,1 @@
+Artículo 13.—Vigencia de la multa por incumplimiento. La multa trimestral establecida en los artículos 75 y 76 del Código, procederá y se impondrá hasta tanto no haya sido cumplida la obligación, o cancelado el costo en el caso de haber sido realizada por la Municipalidad. La notificación se hará trimestralmente por parte del Departamento de Rentas y Cobros de la Municipalidad.

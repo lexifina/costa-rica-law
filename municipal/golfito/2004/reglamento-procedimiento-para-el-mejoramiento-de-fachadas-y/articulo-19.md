@@ -1,0 +1,1 @@
+Artículo 19.—Actualización del valor. El valor del metro de construcción de aceras se actualizará en el mes de enero de cada año, previo estudio de la División de Ingeniería y Operaciones de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 3º—Deberes y obligaciones. Son deberes de los propietarios y poseedores por cualquier título, los establecidos en el artículo 75 del Código Municipal, sin perjuicio de la licencia Municipal y el alineamiento respectivo.

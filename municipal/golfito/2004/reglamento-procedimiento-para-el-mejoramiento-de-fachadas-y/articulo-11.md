@@ -1,0 +1,1 @@
+Artículo 11.—Efectos del incumplimiento: Vencido el plazo, sin que el obligado haya cumplido totalmente la obligación, la Municipalidad procederá a la imposición de las multas contenidas en los artículos 76 y 76 bis del Código, y facultativamente a realizar los servicios u obras respectivas.

@@ -1,0 +1,1 @@
+Artículo 4º—Incumplimiento de deberes: Cualquier incumplimiento a los deberes y obligaciones establecidos en el artículo 75 del Código Municipal, acarreará la imposición por parte de la Municipalidad, de las multas contenidas en los artículos 76 y 76 bis del Código Municipal, mediante los procedimientos indicados en este Reglamento.

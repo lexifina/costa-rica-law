@@ -1,0 +1,3 @@
+SECCIÓN I
+Construcción de aceras
+Artículo 14.—Aceras en mal estado o sin construir. Conforme lo establecen los artículos 75 y 76 del Código, se procederá a notificar a los propietarios o poseedores por cualquier título de los inmuebles, respecto a la obligación de la construcción de aceras y mantener estas en buen estado. Se consideran aceras en mal estado, objeto de notificación, aquellas que contengan huecos, repello levantado, grietas superiores a cinco milímetros, tapas de caja de registro y albañales en mal, diferencias de niveles, las entradas a garajes sin cumplir con las normas de la Ley de Construcciones y su Reglamento, el cordón de caño resquebrajado o demolido, hecha con material distinto al indicado en este Reglamento.

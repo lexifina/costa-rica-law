@@ -1,0 +1,1 @@
+Artículo 26.—Efectos del incumplimiento. Si el contribuyente no cumpliere con lo prevenido, la Municipalidad deberá realizar los servicios u obras a costa del contribuyente, mediante el procedimiento de cobro establecido en este Reglamento.

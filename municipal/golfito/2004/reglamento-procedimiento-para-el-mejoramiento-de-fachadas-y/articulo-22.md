@@ -1,0 +1,1 @@
+Artículo 22.—Actualización del valor. Los valores de actualización del metro cuadrado de limpieza y construcción de cerca, serán actualizados por la División de Ingeniería y Operaciones de la Municipalidad en el mes de enero de cada año, el cual será publicado en La Gaceta.
