@@ -1,3 +1,5 @@
-Artículo 123.—Dentro del proceso de reorganización, los servidores de la Contraloría General que así lo quisieren y acepten expresamente, podrán ocupar puestos de inferior categoría y remuneración, en cuyo caso serán indemnizados, por una sola vez, con un pago único y suficiente, calculado de la siguiente forma: se multiplicará la diferencia de salarios que existiere entre el puesto que tenía al momento de la reorganización y el nuevo cargo asumido, por el número de años laborados o fracción superior a seis meses".
-(Así adicionado por acuerdo tomado en sesión de fecha 7 de junio de 1999)
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 124 al 123)
+CAPITULO XVIII
+Disposiciones finales
+Artículo 124.—En todo aquello no contemplado expresamente (este Estatuto, se recurrirá a lo dispuesto por la Ley de Salarios y Régimen de Méritos de la Contraloría General de la República y su Reglamento, Ley General de la Administración Pública, Ley Orgánica de la Contraloría General de la República, la Ley General de la Administración Pública, el Estatuto del Servicio Civil y su Reglamento y el Código de Trabajo en ese orden.
+(Así reformado por acuerdo tomado en sesión N° 19 de 13 de noviembre de 1996)
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 125 al 124)

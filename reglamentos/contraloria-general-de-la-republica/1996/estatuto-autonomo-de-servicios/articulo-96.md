@@ -1,5 +1,7 @@
-.Artículo 95.—La prescripción de la potestad disciplinaria se interrumpirá:
-a) Por toda comunicación escrita de la Unidad de Recursos Humanos o del superior inmediato del funcionario, dirigido al Contralor General o a los Directores Generales según sea el caso. haciendo de su conocimiento los hechos susceptibles de generar responsabilidad.
-b) Por el acto dictado por el Contralor General que acuerde el inicio del procedimiento administrativo respectivo.
-c) Por los actos de trámite dictados en el curso del procedimiento administrativo.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 96 al 95)
+Artículo 96.—Las omisiones de registro de asistencia injustificadas me un mismo mes calendario, para efectos del control de la asistencia y puntualidad del personal, se sancionarán en la forma siguiente:
+a) Por una. amonestación verbal.
+b) Por dos. amonestación escrita.
+c) Por tres. suspensión sin goce de salario hasta por dos días.
+d) Por cuatro, suspensión sin goce de salario hasta por ocho días.
+e) Por cinco o más, despido sin responsabilidad patronal.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 97 al 96)

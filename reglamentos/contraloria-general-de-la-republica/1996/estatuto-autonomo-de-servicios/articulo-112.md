@@ -1,8 +1,8 @@
-CAPITULO XV
-Del hostigamiento sexual
-Artículo 111.—Se entiende por acoso u hostigamiento sexual, toda conducta sexual indeseada por quien la recibe, reiterada y que provoca efectos perjudiciales en los siguientes casos:
-a) Condiciones materiales de empleo.
-b) Desempeño y cumplimiento en la prestación de servicios.
-c) Estado general de bienestar personal.
-También se considera acoso sexual la conducta grave que habiendo ocurrido una sola vez, perjudique a la víctima en cualquiera de los aspectos indicados.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 112 al 111)
+Artículo 112.—Constituyen manifestaciones de acoso sexual las siguientes:
+1)
+a) Promesa implícita o explícita de un trato preferencial. Respecto de la situación de empleo, actual o futura, de quien la recibe.
+b) Amenazas explícitas o implícitas, físicas o morales, de daños o castigos referidos a la situación de empleo, actual o futura, de quien las recibe.
+c) Exigencia de una conducta cuya sujeción o rechazo sea, en forma explícita o implícita, condición para el empleo.
+2) Uso de palabras de naturaleza sexual, escritas u orales, que resulten hostiles, humillantes y ofensivas para quien las reciba.
+3) Acercamientos corporales u otras conductas físicas de naturaleza sexual, indeseados y ofensivos para quien los reciba.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 113 al 112)

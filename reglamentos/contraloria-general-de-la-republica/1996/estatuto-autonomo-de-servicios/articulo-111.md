@@ -1,2 +1,8 @@
-Artículo 110.—Contra la resolución final que dicte el Director General, el servidor declarado responsable podrá recurrir, dentro del tercer día. mediante revocatoria presentada ante el órgano director del procedimiento y apelación ante el Contralor General de la República: sin embargo, si la sanción proviene del Contralor General, cabrá el recurso de reposición conforme a la Ley Reguladora de la Jurisdicción Contenciosa Administrativa. El acto que agote la vía administrativa deberá contar, de previo, con el dictamen de la Dirección General de Asuntos Jurídicos, la cual deberá emitirlo dentro de los seis días siguientes al recibo de la solicitud del criterio.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 111 al 110)
+CAPITULO XV
+Del hostigamiento sexual
+Artículo 111.—Se entiende por acoso u hostigamiento sexual, toda conducta sexual indeseada por quien la recibe, reiterada y que provoca efectos perjudiciales en los siguientes casos:
+a) Condiciones materiales de empleo.
+b) Desempeño y cumplimiento en la prestación de servicios.
+c) Estado general de bienestar personal.
+También se considera acoso sexual la conducta grave que habiendo ocurrido una sola vez, perjudique a la víctima en cualquiera de los aspectos indicados.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 112 al 111)

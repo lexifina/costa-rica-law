@@ -1,2 +1,2 @@
-Artículo 119.—De conformidad con el artículo 288 del Código de Trabajo se establecerán las comisiones de Salud Ocupacional que sean necesarias, constituidas por representantes designados por la Contraloría y otros por el personal, cuyos fines sean investigar las causas de los riesgos profesionales y proponer medidas a los Contralores Generales por medio de la Unidad de Recursos Humanos con el fin de prevenirlos y vigilar que las mismas se cumplan.
-(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 120 al 119)
+Artículo 120.—Los servidores de la Contraloría General estarán protegidos por una póliza de Riesgos del Trabajo.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 121 al 120)

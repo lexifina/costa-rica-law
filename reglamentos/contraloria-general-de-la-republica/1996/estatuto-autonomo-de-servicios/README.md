@@ -19,3 +19,4 @@ Estatuto Autónomo de Servicios
 | 4 | 2000-01-20 | Reglamento 0 (2000-01-20) |
 | 5 | 2000-03-16 | Reglamento 0 (2000-03-16) |
 | 6 | 2001-11-29 | Reglamento 0 (2001-11-29) |
+| 7 | 2002-08-14 | Reglamento 0 (2002-08-14) |

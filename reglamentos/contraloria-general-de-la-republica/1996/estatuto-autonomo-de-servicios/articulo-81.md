@@ -1,20 +1,15 @@
-CAPITULO XI
-De las obligaciones
-Artículo 80.—Son obligaciones de los servidores:
-a) Cumplir con la jomada de trabajo que este Estatuto establece.
-b) Asistir puntualmente a su trabajo todos los días hábiles.
-c) Registrar la entrada y la salida las veces que sea necesario para garantizar la seguridad institucional y un adecuado control de asistencia y puntualidad.
-d) Pedir permiso al superior jerárquico inmediato antes de salir del centro de trabajo por razón de cualquier asunto oficial o personal, y reportar con exactitud el lugar en que se encontrará.
-e) Desempeñar los servicios propios de su cargo con toda diligencia, así como cualquier otra función compatible con el cargo, que sus superiores le encomienden.
-f) Tratar con respeto y cortesía a sus jefes, compañeros y público visitante.
-g) Asistir a laborar con una adecuada presentación personal.
-h) Portar el gafete de identificación como funcionario de la Contraloría. cuando se encuentre en instalaciones de la Institución.
-i) Cuidar el equipo, mobiliario y útiles de la propiedad o al servicio de la Contraloría y no usarlos para trabajos ajenos a los propios de ésta, e informar de cualquier desperfecto en el equipo y mobiliario mencionado.
-(Así reformado por acuerdo tomado en sesión de fecha 29 de noviembre del 2001)
-j) Observar disciplina y buenas costumbres dentro y fuera del local de la Institución.
-k) Reportar a su superior sin demora cualquier irregularidad de la que se dieran cuenta o de la que fueran informados para la correcta marcha de esta Contraloría General, o de las atribuciones de ella.
-l) Guardar absoluta discreción y confidencialidad sobre los asuntos relacionados con su trabajo.
-II) Asistir a las conferencias, reuniones y eventos de entrenamiento a que fueran convocados, siempre que no se los impida causa justa.
-m) Someterse a reconocimiento médico en cualquier momento a solicitud del Servicio Médico de la Contraloría o de algún organismo oficial de salud pública o de seguridad social.
-n) Acatar las medidas que tiendan a prevenir el acaecimiento de accidentes de trabajo y enfermedades profesionales.
-ñ) Cumplir con las demás disposiciones que en forma expresa establece este Estatuto, la Ley Orgánica de la Contraloría General de la República y su Reglamento, y demás legislación conexa. El incumplimiento de cualquiera de las obligaciones de este artículo e sancionará, dependiendo de la gravedad de la falta, según lo dispone el capítulo XIII de este Estatuto.
+Artículo 81.—Además de las contempladas en el artículo precedente, los Directores Generales, Directores Adjuntos, Subdirectores, los Jefes, Subjefes y los Supervisores tendrán las obligaciones siguientes:
+a) Cumplir con los cometidos propios de las funciones que tiene encomendadas.
+b) Orientar y supervisar las labores de todos los servidores que estén a su cargo.
+c) Velar para que los servidores no acumulen sus vacaciones, para ello deberán coordinar que los programas de trabajo no coincidan con los programas de disfrute de vacaciones de los servidores.
+d) Informar sobre la marcha de la unidad respectiva periódicamente a su superior jerárquico, y en forma inmediata cuando ocurra un hecho que requiera pronta atención.
+e) Cuidar de la disciplina y asistencia de los servidores bajo su responsabilidad, informar a su superior las irregularidades que en uno u otro aspecto se presenten.
+f) Vigilar y motivar el buen uso que sus subalternos hagan del equipo. materiales y mobiliario de la Institución.
+g) Estar atentos a que sus subalternos lleven al día y en debida forma el trabajo que les ha sido asignado, y tomar las medidas pertinentes para que las labores se efectúen eficientemente y sin trasos.
+h) Emitir las instrucciones necesarias para el orden y el trabajo de la unidad bajo su responsabilidad.
+i) Evaluar en forma objetiva a sus subalternos, llenando oportunamente el formulario de calificación anual de servicios; así como analizar con el funcionario respectivo el resultado de la evaluación.
+j) Brindar especial atención a los servidores nuevos, tanto en los aspectos propios del desempeño, como de su integración con el resto de compañeros durante el período en que estén a prueba.
+k) Cumplir sus funciones sin sujeción a los límites de la jornada establecida por este Estatuto, cuando sea necesario.
+I) Motivar a sus subalternos para que estos brinden eficientemente sus servicios.
+II) Cumplir con todas las demás obligaciones propias de su cargo.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 82 al 81)
