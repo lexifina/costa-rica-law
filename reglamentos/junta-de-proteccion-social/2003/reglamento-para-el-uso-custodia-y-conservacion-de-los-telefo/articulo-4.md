@@ -1,0 +1,2 @@
+Artículo 4º—Contratos para la asignación de teléfonos celulares.
+Para la asignación y uso de los teléfonos celulares la Junta Directiva comunicará al Departamento Legal el nombre de los funcionarios a los cuales se les asigna este servicio debiendo cada uno de éstos coordinar para suscribir un contrato, mismo que será proporcionado por el Departamento Legal en el que se indique las regulaciones de uso de los teléfonos.

@@ -1,0 +1,2 @@
+Artículo 6.—Control de teléfonos asignados. El Departamento de Contabilidad y Presupuesto así como la Unidad de Control de Activos deberá llevar un registro actualizado de los teléfonos celulares asignados.
+En dicho registro se consignará el número de teléfono, el número de serie, marca, modelo, color, número de patrimonio del teléfono y sus accesorios, el nombre, el número de cédula y el cargo del funcionario a quien se le autorizó el uso del teléfono celular, así como la fecha de su asignación y cualquier otro dato que se considere de importancia.
