@@ -10,26 +10,20 @@ Considerando:
 2º—Que en ese mismo decreto, se estableció un aumento en el precio mínimo del arroz granza al productor nacional, lo que obliga a hacer un reajuste en los precios máximos de venta en las diferentes etapas de comercialización del arroz pilado, conforme con lo dispuesto en el párrafo cuarto del artículo 17 del Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor.
 3º—Que se ha cumplido con las exigencias que establece la ley para mantener la medida regulatoria de precios en todos los niveles de producción y comercialización y se consideró la información brindada por el sector industrial y por la Oficina del Arroz. Por tanto,
 Decretan:
-Artículo 1º—De acuerdo con el estudio de costos preparado por la Unidad de Estudios Económicos del Ministerio de Economía, Industria y Comercio, se establecen los siguientes precios máximos de venta en todos los niveles de comercialización, así:
+"Artículo 1º—Se establecen los siguientes precios máximos de venta en todos los niveles de comercialización de arroz:
 PRECIOS MÁXIMOS DE VENTA
-Arroz pilado en sacos De industrial De mayorista De detallista
-de 46 kilogramos a mayorista a detallista a consumidor
-colones/saco colones/saco colones/kilo
-Con un máximo del 40%
-grano quebrado ¢6.902,00 ¢7.109,00 ¢170,00
-Con un máximo del 30%
-grano quebrado 7.342,00 7.562,00 181,00
-Con un máximo del 20%
-grano quebrado 7.754,00 7.987,00 191,00
-PRECIOS MAXIMOS DE VENTA
+De industrial De mayorista De detallista
+Arroz pilado en sacos a mayorista a detallista a consumidor
+de 46 kilogramos colones/saco colones/saco colones/kilo
+Con un máximo del 40% grano quebrado ¢ 6.513,00 ¢ 6.709,00 ¢ 160,00
+Con un máximo del 30% grano quebrado 6.920,00 7.128,00 170,00
+Con un máximo del 20% grano quebrado 7.327,00 7.547,00 180,00
+PRECIOS MÁXIMOS DE VENTA
 Arroz empacado en bultos De industrial De mayorista De detallista
 de 12 bolsas de 2 kilogramos a mayorista a detallista a consumidor
-netos cada una: colones/24 k colones/24 k colones/2 k
-De 31% a 40%
-grano quebrado ¢3.686,00 ¢3.796,00 ¢348,00
-De 26% a 30%
-grano quebrado 3.908,00 4.025,00 369,00
-De 21% a 25%
-grano quebrado 4.025,00 4.146,00 380,00
-De 11% a 20%
-grano quebrado 4.137,00 4.261,00 390,00
+netos cada una: colones/24 kg colones/24 kg colones/2 kg
+De 31% a 40% grano quebrado ¢ 3.484,00 ¢ 3.588,00 ¢ 329,00
+De 26% a 30% grano quebrado 3.701,00 3.812,00 349,00
+De 21% a 25% grano quebrado 3.810,00 3.924,00 360,00
+De 11% a 20% grano quebrado 3.919,00 4.036,00 370,00
+(Así reformado por el artículo 2 del Decreto ejecutivo N° 30868 de 3 de diciembre de 2002. Esta reforma rige a partir del 01 de enero de 2003)

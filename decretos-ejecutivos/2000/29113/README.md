@@ -14,3 +14,4 @@ Establece Precios Máximos de Venta en Comercialización de Arroz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-28 | la propia norma |
+| 2 | 2002-12-03 | Decreto Ejecutivo 30868 (2002-12-03) |
