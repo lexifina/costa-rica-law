@@ -14,3 +14,4 @@ Modifica el límite de gasto presupuestario y efectivo para el 2002, del Consejo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-19 | la propia norma |
+| 2 | 2003-07-28 | Decreto Ejecutivo 31336 (2003-07-28) |

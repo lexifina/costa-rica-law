@@ -1,4 +1,4 @@
-Nº 30832-H
+N° 30832-H
 LA PRIMERA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
@@ -9,4 +9,5 @@ Considerando:
 3º—Que mediante el Decreto Ejecutivo Nº 30214-H, publicado en La Gaceta Nº 54 del 18 de marzo del 2002, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el año 2003; las cuales fueron conocidas por el Consejo de Gobierno y debidamente aprobadas por el Presidente de la República, estableciendo el límite de gasto presupuestario del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
 4º—Que para poder brindar los recursos y mecanismos necesarios en el desarrollo científico y tecnológico de las pequeñas y medianas empresas del país, es necesario ampliar al CONICIT el límite de gasto Presupuestario del 2003. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícanse para el Consejo Nacional para Investigaciones Científicas y Tecnológicas, el límite de gasto presupuestario para el año 2003, establecido en el Decreto Ejecutivo Nº 30214-H, publicado en La Gaceta Nº 54 del 18 de marzo del 2002, de manera que el gasto presupuestario no exceda la suma de ¢866.5 millones, en ese período.
+Artículo 1º—Modifícanse para el Consejo Nacional para Investigaciones Científicas y Tecnológicas, el límite de gasto presupuestario para el año 2003, establecido en el Decreto Ejecutivo Nº 30214-H, publicado en La Gaceta Nº 54 del 18 de marzo del 2002, de manera que el gasto presupuestario no exceda la suma de ¢896.5 millones, en ese período.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo N° 31336-H del 28 de julio de 2003, publicado en La Gaceta No. 168 de 02 de setiembre de 2003.)
