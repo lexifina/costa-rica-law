@@ -14,3 +14,4 @@ Declara Emergencia Construcción o Demolición Edificio SNE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-04-25 | la propia norma |
+| 2 | 1988-04-25 | SINALEVI (sin norma nombrada) |
