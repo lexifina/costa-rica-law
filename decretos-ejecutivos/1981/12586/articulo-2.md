@@ -1,0 +1,1 @@
+Artículo 2°—El manejo de la fauna y flora silvestre y demás recursos naturales presentes en el área descrita, quedará sujeta a criterio técnico del Departamento de Vida Silvestre de la Dirección General Forestal.

@@ -1,0 +1,1 @@
+Artículo 4°—Refórmase el citado Decreto Ejecutivo número 10535, artículos 2° y 4°, en el sentido de que en lugar de la Dirección General de Recursos Pesqueros y Vida Silvestre, se lea Dirección General Forestal.
