@@ -1,0 +1,3 @@
+5. NORMAS DE CALIDAD
+5.1. El oferente deberá indicar las normas bajo las cuales se fabricarán los bienes por él ofrecidos. Cualquier discrepancia con lo especificado por el ICE, en cuanto a estas normas, deberá ser indicada por el oferente agregando la norma a utilizar y la equivalencia con las normas que el ICE indicó en este cartel.
+5.2. Donde quiera que se mencione una norma o especificación, debe entenderse que se aceptará, a criterio exclusivo del ICE, cualquier otra internacionalmente reconocida que garantice una calidad igual o superior a lo estipulado. El oferente deberá indicar las normas bajo las cuales se fabricarán los bienes por ellos ofrecidos para cumplir con las especificaciones estipuladas en el cartel, así como suministrar copia de las mismas.
