@@ -1,0 +1,1 @@
+Artículo 2°-Facúltase al Poder Ejecutivo para aplicar las leyes de ordenamiento fiscal números 199, 200 y 201 de 6 de setiembre ultimo, durante enero y. febrero de 1946, únicamente en cuanto ellas no sean incompatibles con el régimen transitorio que establece el artículo 1°.
