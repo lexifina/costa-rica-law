@@ -1,0 +1,7 @@
+Artículo 7°—El solicitante para autorización, para médico examinador, debe estar debidamente inscrito en el Colegio de Médicos y Cirujanos, los interesados deberán cumplir con los siguientes requisitos:
+a) Presentar una fórmula de solicitud, con los datos que en ella se soliciten. Dirigida a la Comisión Médica Coordinadora.
+b) Tener cursos de capacitación en medicina aeronáutica, autorizados por el Consejo Técnico y presentación de atestados.
+c) Las autorizaciones para médico examinador del personal técnico aeronáutico tendrá validez por un año, y vencerán el 15 de enero de cada año, la cual puede ser renovada mediante solicitud por escrito a la Comisión Médica, esta remitirá al Consejo Técnico, la petición debe presentarse 30 días a la fecha del vencimiento de la autorización.
+d) Debe demostrar que cuenta con las instalaciones y equipo adecuado para desempeñar como médico examinador.
+e) La Dirección General de Aviación Civil, en coordinación con la Comisión Médica, concederá la autorización o su renovación como médico examinador, del personal técnico aeronáutico, de acuerdo con la demanda de servicios, se estime conveniente.
+f) La Dirección General de Aviación Civil, renovará la autorización de los médicos examinadores del personal Técnico Aeronáutico, cuando la propia Dirección, en coordinación con la Comisión Médica, compruebe que las funciones del médico examinador, no se deben a los procedimientos médicos y administrativos, para tal propósito prescritos por la Dirección y Comisión Médica. Por renuncia voluntaria del propio examinador.

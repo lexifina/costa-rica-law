@@ -1,0 +1,2 @@
+Artículo 16.—La Comisión fungirá como Órgano Auxiliar de la Comisión Investigadora de Incidentes y Accidentes Aeronáuticos, creada por decreto ejecutivo N° 3429-T de 10 de diciembre de 1973.
+En las funciones propias de la misma, la Comisión se integrará al órgano investigador, a fin de realizar las encuestas necesarias sobre los incidentes y accidentes aéreos que acontezcan en el país o fuera del país cuando se trata de una aeronave nacional.

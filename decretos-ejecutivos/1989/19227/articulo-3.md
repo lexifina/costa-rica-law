@@ -1,0 +1,1 @@
+Artículo 3°—Los miembros de la Comisión serán nombrados por acuerdo firme del Consejo Técnico de Aviación Civil, elegidos de una lista de candidatos que la Dirección General de Aviación Civil presentará ante el Consejo.
