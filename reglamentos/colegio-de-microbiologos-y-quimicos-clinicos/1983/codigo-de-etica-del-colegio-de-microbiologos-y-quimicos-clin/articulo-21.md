@@ -1,0 +1,1 @@
+Artículo 21.—Es deber del MQC responsabilizarse plenamente del encargo gremial o científico que se le confía. Su facultad representativa o ejecutiva, cuando de asuntos gremiales se trata, no debe excederse del límite que se le haya fijado.

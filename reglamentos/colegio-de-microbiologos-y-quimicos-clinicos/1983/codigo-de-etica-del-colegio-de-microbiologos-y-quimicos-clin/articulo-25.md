@@ -1,0 +1,1 @@
+Artículo 25.—Es un deber del MQC, con las salvedades debidas a su edad, a su estado de salud, o a su eventual especialización, ayudar a cualquier acción que organicen las autoridades competentes, en caso de desastre, para la protección de la salud donde sea necesario y posible.

@@ -1,0 +1,1 @@
+Artículo 33.—Constituye violación flagrante de los principios de la ética profesional, la participación activa o pasiva del MQC en cualquier forma de tortura tal como se la define el artículo 1° de la Declaración de las Naciones Unidas sobre la tortura. Así como no observar los principios de la Declaración de Ginebra y los del Código de Ética Médica de las Naciones Unidas.

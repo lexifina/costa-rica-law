@@ -1,0 +1,1 @@
+Artículo 12.—Es prohibido a todo MQC rebajar sus honorarios a un interés de competencia por debajo de los que razonablemente deben cobrarse. Sin embargo, fuera de las tañías usuales, debe subsistir el principio general del acuerdo discreto entre el MQC y el paciente. Si se le solicita con anticipación el MQC debe aclarar el importe de sus honorarios.

@@ -1,0 +1,1 @@
+Artículo 35.—Las faltas a este Código serán calificadas a juicio del Tribunal de Honor (ley N° 771, artículos 32, 33, 34 y 35) y de acuerdo con la gravedad de la falta con: amonestaciones, multas o suspensiones temporales o permanente del ejercicio de la profesión.

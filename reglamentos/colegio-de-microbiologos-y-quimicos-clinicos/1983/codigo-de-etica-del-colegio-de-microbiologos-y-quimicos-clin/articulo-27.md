@@ -1,0 +1,1 @@
+Artículo 27.— El MQC que desempeña un cargo público en cualquier institución está obligado, en el desempeño del mismo, a respetar lo establecido en este Código. Las obligaciones con el Estado y sus instituciones no lo eximen de sus deberes para con el Colegio, los colegas y los pacientes.

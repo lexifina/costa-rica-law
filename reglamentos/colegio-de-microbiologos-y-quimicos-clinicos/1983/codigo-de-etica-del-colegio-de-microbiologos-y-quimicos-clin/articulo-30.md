@@ -1,0 +1,1 @@
+Artículo 30.—El profesional, al ofrecer al público los servicios de su laboratorio, por medio de anuncios en periódicos, revistas u otros medios de comunicación, deberá hacerlo discretamente, limitándose a poner el nombre de los regentes, centros de estudios y títulos o grados y debidamente aceptados por el Colegio, su dirección y número de teléfono.

@@ -1,0 +1,1 @@
+Artículo 9°—Guardar el secreto profesional es para el MQC obligación jurídica y moral, con la salvedad de las excepciones que establece la ley. El secreto se extiende a todo lo que el MQC tuviere de conocimiento: por razón de su profesión, porque le fue confiado y porque él ha podido ver, entender o bien intuir.

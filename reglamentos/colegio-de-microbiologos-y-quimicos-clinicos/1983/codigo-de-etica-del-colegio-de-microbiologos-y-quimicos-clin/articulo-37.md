@@ -1,0 +1,1 @@
+Artículo 37.—Los fallos definitivos del Tribunal de Honor se comunicarán a la Junta Directiva del Colegio, la cual sin más trámites, aplicará la o las sanciones correspondientes o comunicará las resoluciones finales.

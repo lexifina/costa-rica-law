@@ -1,0 +1,1 @@
+Artículo 26.—Al MQC que trabaja para una institución y ejerza también la profesión en forma privada, le está prohibido utilizar irregularmente su posición en aquella para aumentar su clientela particular o sus recursos materiales.

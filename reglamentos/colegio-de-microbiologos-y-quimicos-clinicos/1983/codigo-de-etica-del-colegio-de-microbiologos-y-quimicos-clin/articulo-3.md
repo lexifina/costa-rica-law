@@ -1,0 +1,1 @@
+Artículo 3°—El MQC debe ser consciente de sus deberes sociales y profesionales hacia la comunidad y aportar su colaboración a aquellas políticas que tengan por finalidad asegurar a la colectividad el mayor grado de salud posible, respetando las normas de la deontología, la dignidad y los derechos del paciente.

@@ -1,0 +1,1 @@
+Artículo 28.—En ningún caso (salvo en emergencias) el MQC debe ejercer su profesión en condiciones que pueden comprometer la calidad de los resultados de los exámenes y por lo tanto de un diagnóstico correcto.

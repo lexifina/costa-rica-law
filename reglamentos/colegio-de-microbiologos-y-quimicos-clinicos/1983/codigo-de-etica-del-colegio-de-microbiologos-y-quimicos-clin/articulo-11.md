@@ -1,0 +1,1 @@
+Artículo 11.—El MQC no puede abandonar sus deberes en situaciones de peligro, excepto en circunstancias plenamente justificadas. Es su deber, en estas situaciones, el tratar de proveer recursos apropiados a aquellas personas incapaces de valerse por sí mismas.

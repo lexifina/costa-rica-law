@@ -1,0 +1,1 @@
+Artículo 4°—Es obligación del MQC evitar que aparatos, productos y reactivos de uso profesional sean utilizados por personas no autorizadas legalmente para ello. Es su deber denunciar ante el Colegio cualquier contravención a esta disposición.
