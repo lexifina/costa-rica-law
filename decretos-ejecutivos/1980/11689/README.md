@@ -14,3 +14,4 @@ Crea Comisión Desarrollo Integral Cuenca Arenal y Cuenca Baja RíoTempisque
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-07-24 | la propia norma |
+| 2 | 1980-07-24 | Decreto Ejecutivo 13216 (1981-12-15) |
