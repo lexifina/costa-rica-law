@@ -1,0 +1,1 @@
+Art. 76.-La posesión notoria del estado de hijo legítimo, consiste en que sus padres le hayan tratado como tal, proveyendo su educación y establecimiento de un modo competente, y presentándole en ese carácter á sus deudos y amigos; y en que éstos y el vecindario de su domicilio; en general, le hayan reputado con fundamento como hijo legítimo de tales padres.

@@ -1,0 +1,1 @@
+Art.10.-Los actos que deben inscribirse y que ocurran en el extranjero, se inscribirán siempre en el registro del Agente Diplomático ó Consular, aun cuando por las leyes del país en que se verifiquen deban tener inscripción, y la tengan, en los registros de ese país.

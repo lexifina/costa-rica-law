@@ -1,0 +1,1 @@
+Art. 75.-La posesión notoria del estado matrimonio consiste en haberse tratado los supuestos cónyuges como marido y mujer en sus relaciones domésticas y sociales; y en haber sido la mujer recibida en ese carácter por los deudos y amigos de su marido, y por el vecindario de su domicilio en general.

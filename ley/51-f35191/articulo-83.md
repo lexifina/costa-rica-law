@@ -1,0 +1,1 @@
+Art. 83.-Siempre que fuere imposible hacer constar en una inscripción todas las circunstancias que la ley exige, ó cumplir con alguno de sus requisitos, la inscripción se llevará á cabo, manifestando la imposibilidad de llenar el vacío, y las causas que la originan.

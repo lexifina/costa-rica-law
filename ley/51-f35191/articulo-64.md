@@ -1,0 +1,1 @@
+Art. 64.-Todo costarricense que traslade su domicilio lugar del extranjero en que haya Agente Diplomático ó Consular de Costa-Rica, está obligado presentarse en el registro, para hacer constar su intención de conservar su ciudadanía.

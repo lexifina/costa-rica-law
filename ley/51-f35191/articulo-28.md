@@ -1,0 +1,1 @@
+Art. 28.-Los encargados del registro civil y los que intervengan como notario ó cancilleres, no podrán autorizar los asientos que se refiera sus personas ó las de sus parientes ó afines en línea recta, ó en la colateral hasta el segundo grado; para estas inscripciones los reemplazarán lo que deben sustituirles en el desempeño de sus respectivos cargos.
