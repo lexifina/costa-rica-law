@@ -1,0 +1,2 @@
+Proyección de intereses y dividendos
+Artículo 14.—Con base en las proyecciones de los ejercicios económicos anuales, y para los efectos de las liquidaciones que pudieren presentarse durante el periodo, la Junta Administrativa del FAP determinara los tipos de interés que se reconocerán cada año sobre los ahorros de los afiliados, lo mismo que el porcentaje de dividendos por distribuir, de conformidad con los estudios aduanales pertinentes.

@@ -1,0 +1,3 @@
+Préstamo extraordinario plazo de amortización y tipo de interés
+Artículo 4—La Junta Administrativa del FAP fijará los plazos tasas de interés y momos anuales a ser destinados para la línea de crédito extraordinario, según las recomendaciones que para tal efecto brinde la Dirección Actuaría! y de Planificación Económica.
+El plazo máximo para amortizar los préstamos extraordinarios será de 6 años. La tasa que se fije siempre será superior al 19% anual efectivo. El monto total que anualmente se destine al programa de crédito extraordinario, no podrá exceder el equivalente al 10% del total de los recursos anuales disponibles por el Fondo.

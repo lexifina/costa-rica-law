@@ -1,0 +1,1 @@
+Artículo 28.—En los casos de saldos de préstamos de los afiliados que se retiren del servicio de la Caja para acogerse a una pensión, se aplicara la liquidación prevista en el artículo 9 de este Reglamento. Los saldos insolutos se liquidaran con el beneficio que otorga el fondo de Retiro de los Trabajadores de la Caja (F.R.E.).
