@@ -1,0 +1,1 @@
+Artículo 2°.- La estimación de la faja de terreno es de ¢767.17 (setecientos setenta y siete colones diecisiete céntimos) que corresponden al total de la suma a pagar de conformidad con la resolución N° 421 “A” de las nueve horas y cincuenta minutos del veintisiete de noviembre de mil novecientos setenta del Tribunal Fiscal Administrativo.
