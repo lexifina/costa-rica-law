@@ -1,0 +1,1 @@
+Artículo 3º—Autorízase al Poder Ejecutivo para que, por medio del Ministerio de Economía y Hacienda, o su representante, y previa la ratificación del Convenio de Préstamo a que se refiere el artículo 2º de la presente ley, otorgue la fianza del Estado, de acuerdo con el artículo 19 de esta ley.

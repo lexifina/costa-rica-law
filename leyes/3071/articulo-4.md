@@ -1,0 +1,1 @@
+Artículo 4º—Los recursos originados en el préstamo a que se refiere esta ley, se destinarán a la concesión de créditos en los Departamentos de Crédito Rural y Fomento de Cooperativas del Banco Nacional de Costa Rica, para fines relacionados con la producción agropecuaria y el desarrollo de cooperativas, a mediano y largo plazo.
