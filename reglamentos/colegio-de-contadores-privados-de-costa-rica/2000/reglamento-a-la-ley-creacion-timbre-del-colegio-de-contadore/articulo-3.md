@@ -1,0 +1,1 @@
+Artículo 3º—El Colegio de Contadores Privados de Costa Rica efectuará las emisiones del Timbre por el valor que acuerde su Junta Directiva y podrá expenderlas por medio de los bancos del Estado, en este caso con descuentos del seis por ciento (6%) en ventas mayores de cien colones.

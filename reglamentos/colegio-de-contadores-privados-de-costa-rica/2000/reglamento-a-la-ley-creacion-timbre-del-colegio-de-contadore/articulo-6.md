@@ -1,0 +1,1 @@
+Artículo 6º—Igualmente, cuando no se agregue y cancele el Timbre a documentos contables, los funcionarios respectivos harán la correspondiente prevención, y mientras no se efectúe tal cancelación el documento se tendrá por no presentado y sin efecto legal alguno.

@@ -1,0 +1,1 @@
+Artículo 7º—Corresponde al fiscal del Colegio de Contadores Privados, a sus delegados, velar porque se cumplan fielmente las disposiciones del presente Reglamento en todo documento contable que requiera la cancelación del Timbre. Asimismo, podrá denunciar en la vía correspondiente, el incumplimiento de tales disposiciones.

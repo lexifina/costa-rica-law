@@ -1,0 +1,1 @@
+Artículo 9º—El contador privado incorporado al Colegio que no cumpla con las disposiciones de este Reglamento se hará acreedor a las sanciones que se mencionan en el artículo 27 de la Ley Orgánica del Colegio de Contadores Privados de Costa Rica.
