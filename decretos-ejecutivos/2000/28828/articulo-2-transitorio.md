@@ -1,0 +1,1 @@
+Transitorio II.—Los establecimientos con los códigos A005, A007, A008, A009, A010, A011, B103, B104, B109, B110 del Anexo 1, se les tramitará la solicitud del habilitación a partir del mes de enero del año 2001. Estos establecimientos deben llenar el formulario ("DSS001") para efectos de registro.
