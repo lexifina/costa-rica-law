@@ -1,0 +1,1 @@
+Artículo 3°-En el plazo máximo de tres días hábiles posteriores al recibo de la denuncia formulada ante la Gerencia, ésta procederá a constituir el Organo Director del Procedimiento en el que tendrá bajo su responsabilidad del procedimiento de sustanciación del expediente.

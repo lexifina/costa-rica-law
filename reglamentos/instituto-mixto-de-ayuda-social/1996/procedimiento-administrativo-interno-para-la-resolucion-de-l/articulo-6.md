@@ -1,0 +1,4 @@
+Artículo 6°-El Órgano Director dará traslado a la persona denunciada dentro de los tres días hábiles posteriores al conocimiento de la denuncia.
+En la citación se indicará claramente el o los hechos denunciados, nombre del o la denunciante, un plazo de cinco días hábiles para que se refiera a todos y cada uno de los hechos que se le imputan y que ofrezcan los medios de prueba en descargo de los mismos, con posibilidad de asesorarse con abogado(a) y el derecho a tener acceso al expediente administrativo que con motivo de la denuncia se abra.
+En dicha resolución se establecerá expresamente que contra la misma proceden los recursos de revocatoria con apelación en subsidio ante el Órgano Director.
+Si el o la denunciante no ejerce su derecho de defensa, se continuará el procedimiento hasta el informe final.

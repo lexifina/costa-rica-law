@@ -1,0 +1,1 @@
+Artículo 7°-Transcurrido el plazo de los quince días hábiles, el Órgano Director citará a las partes y testigos en comparecencia oral y privada, recibiendo los distintos medios de prueba pertinentes, así como las respectivas declaraciones.

@@ -1,0 +1,1 @@
+Artículo 2°-En un plazo irrevocable de 24 horas hábiles siguientes a la presentación de la denuncia, el Director(a) de Recursos Humanos procederá a informar a la Gerencia General sobre la denuncia planteada.
