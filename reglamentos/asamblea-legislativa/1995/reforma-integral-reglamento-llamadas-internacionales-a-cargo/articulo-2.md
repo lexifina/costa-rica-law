@@ -1,0 +1,5 @@
+ARTICULO 2.- Incorpóranse los siguientes artículos al Reglamento de Llamadas Internacionales con Cargo a la Asamblea Legislativa:
+"Articulo 16.- Los diputados deberán velar por el uso racional del Servido de Telecomunicaciones Internacionales con que cuente el teléfono de su despacho.
+Artículo 17.- Los diputados tendrán derecho a hacer uso del Servicio de Telecomunicaciones Internacionales hasta por un monto máximo de diez mil colones mensuales, debiendo pagar de su propio peculio el exceso, para to cual al momento de llenar la solicitud de conexión al Servicio de Telecomunicaciones Internacionales, tos diputados interesados autorizarán a la administración para que deduzca los excedentes que pudieren resultar, de conformidad con to dispuesto en el presente artículo, del monto correspondiente a sus gastos de representación.
+Artículo 18.- En cualquier momento que lo considere oportuno y sin mayor trámite el Directorio Legislativo podrá disponer la desconexión del teléfono del despacho de tos diputados del Servicio Internacional de Telecomunicaciones.
+Artículo 19.-El presente reglamento rige a partir de su publicación."
