@@ -14,3 +14,4 @@ Reglamento Trámite Solicitudes Ley Residentes Pensionados y Rentistas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1972-06-03 | la propia norma |
+| 2 | 1972-09-20 | Decreto Ejecutivo 2545 (1972-09-20) |
