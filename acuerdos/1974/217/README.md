@@ -14,3 +14,4 @@ Crea Comisión Coordinadora para el Desarrollo Integral de la Cuenca del Río te
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-12-13 | la propia norma |
+| 2 | 1975-02-24 | Acuerdo 306 (1975-02-24) |
