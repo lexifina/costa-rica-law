@@ -1,0 +1,1 @@
+5°.- Los terrenos quedan hipotecados legalmente en este caso, por el valor del principal y réditos que devenguen; siendo á cargo de la Municipalidad el que, pasados dos años sin satisfacerse la pensión, proceda á subasta de la tierra que la adeudade, pues por el mismo hecho se pierde el derecho adquirido.
