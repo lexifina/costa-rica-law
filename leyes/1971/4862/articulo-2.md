@@ -1,0 +1,1 @@
+Artículo 2º.- La Municipalidad realizará un censo de la situación y estado actual de esa propiedad, determinando en cada caso la causa de adquisición, tiempo de poseer y si reúnen los requisitos especificados en el Reglamento Ejecutivo de 4 de abril de 1940, publicado en "La Gaceta" Nº 81 de 14 de abril de ese mismo año.
