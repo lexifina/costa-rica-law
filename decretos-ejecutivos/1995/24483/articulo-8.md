@@ -1,0 +1,2 @@
+Artículo 8°.—La Dirección General Forestal, la Dirección del Servido Parques Nacionales y la Dirección de Vida Silvestre mantendrán sus competencias y funciones, en lo que concierne a la administración, manejo y uso, en los casos que el ordenamiento jurídico así lo prevea, de las áreas silvestres protegidas que se ha¡ incluido dentro de las Áreas Marinas de Uso Múltiple.
+Sin embargo, deberán sujetar sus actuaciones, en materia de las áreas comprendidas, a las disposiciones contenidas en el Plan General de Manejo que elabore para cada una de las Áreas Marinas de Uso Múltiple.

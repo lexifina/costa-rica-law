@@ -1,0 +1,1 @@
+Artículo 9°.—El Poder Ejecutivo y las entidades competentes se encargan ejecutar el Plan de Manejo de las Áreas Marinas de Uso Múltiple, elaborado según lo dispuesto por el Decreto Ejecutivo No 24282-MP-MAG-MIRENEM.

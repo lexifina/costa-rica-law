@@ -1,0 +1,2 @@
+Artículo 6°.—Se establece el Área Marina de Uso Múltiple Isla del Coco. Delimita por las doce millas náuticas de mar territorial.
+Esta área estará constituida por el área marino costera del Parque Nacional del Coco, definida en los Decretos Ejecutivos Nos. 8748-A y 15514-MAG, manejo se hará conforme a esa categoría de manejo, y por el resto de área marina completar las doce millas náuticas de mar territorial.
