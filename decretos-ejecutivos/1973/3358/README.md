@@ -13,3 +13,4 @@ Regula Identificación Cilindros que Contienen Gases Medicinales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1973-11-23 | la propia norma |
+| 2 | 1973-11-23 | SINALEVI (sin norma nombrada) |
