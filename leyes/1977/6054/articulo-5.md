@@ -1,2 +1,3 @@
 De su Estructura, Organización y Mecanismo de Coordinación
 Artículo 5º.- El Ministerio de Economía, Industria y Comercio tendrá, para el cumplimiento de sus funciones, un titular con rango de Ministro que constituye la máxima autoridad; los viceministros que, a juicio del Poder Ejecutivo, sean necesarios para el mejor desempeño de sus labores, así como la organización administrativa necesaria al efecto. Uno de los viceministros podrá sustituir en sus ausencias temporales al Ministro, cuando así lo disponga el Presidente de la República.
+( NOTA: Reformado tácitamente por los artículos 47 y 48 de la Ley Nº 6227 de 2 de mayo de 1978: sólo puede existir un Viceministro).
