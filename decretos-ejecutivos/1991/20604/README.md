@@ -14,3 +14,4 @@ Reglamento Ley Promoción Desarrollo Científico y Tecnológico Nº 7169
 | --- | --- | --- |
 | 1 | 1991-08-29 | la propia norma |
 | 2 | 1995-09-04 | Decreto Ejecutivo 24666 (1995-09-04) |
+| 3 | 2002-05-14 | Decreto Ejecutivo 30491 (2002-05-14) |
