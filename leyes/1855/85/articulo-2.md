@@ -1,0 +1,1 @@
+Art. 2. Estos licores para ser desalmacenados pagarán previamente en la Aduana de aquel puerto cuatro centavos por cada libra de peso bruto que tenga cada caja ó barril que de este artículo se deposite.

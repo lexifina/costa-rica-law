@@ -1,0 +1,1 @@
+Art. 5. Los que, contraviniendo á las disposiciones anteriores, sacaren de á bordo alguna cantidad de licores extranjeros para conducirlos directamente á sus almacenes, quedan sujetos, por el mismo hecho, á las penas establecidas en el cap. 7 de las Ordenanzas de Aduanas n° 6 de 30 de Agosto del año de 1854.

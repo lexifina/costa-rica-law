@@ -1,0 +1,1 @@
+Art. 6. Las disposiciones anteriures no comprenden los licores fermentados como vinos, cerveza, cidra, etc., y solamente se refieren á los licores destilados de cualquiera naturaleza que sean y sus compuestos como mistelas y cordiales.
