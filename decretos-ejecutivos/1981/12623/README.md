@@ -14,3 +14,4 @@ Equipara Comisión de Recursos Humanos y Establece cuotas mínimas de economía 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-04-20 | la propia norma |
+| 2 | 1981-08-04 | Decreto Ejecutivo 12851 (1981-08-04) |

@@ -4,7 +4,7 @@ Ministerio de la Presidencia | 222.950,00
 Ministerio de Gobernación y Policía | 6.802.538,00
 Ministerio de Seguridad Pública | 8.106.200,00
 Ministerio de Relaciones Exteriores y Culto | 2.201.150,00
-Ministerio de Hacienda | 6.769.800,00
+Ministerio de Hacienda | ¢5.186,425,00 (cinco millones ciento ochenta y seis mil cuatrocientos veinticinco colones). (Así reformado el monto anterior mediante el artículo 1° del decreto ejecutivo N° 12851 del 04 de agosto de 1981).
 Ministerio de Agricultura y Ganadería | 13.411.414,00
 Ministerio de Economía, Industria y Comercio | 1.540.350,00
 Ministerio de Obras Públicas y Transportes | 8.966.054,00
