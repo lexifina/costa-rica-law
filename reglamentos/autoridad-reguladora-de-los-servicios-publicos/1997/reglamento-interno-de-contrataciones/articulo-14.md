@@ -1,0 +1,1 @@
+Artículo 14.—Las solicitudes de modificación al Programa de Adquisiciones se someterán al conocimiento de la Proveeduría, incluyendo además de los requisitos ordinarios, una explicación de su omisión dentro de la proyección original. La aprobación de la modificación seguirá el mismo trámite que el Programa anual.
