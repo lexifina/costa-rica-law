@@ -1,6 +1,8 @@
-Artículo 43.—Renuncia del Régimen. Cuando el beneficiario decida renunciar al régimen, remitirá una solicitud en este sentido a la Gerencia de Operaciones a la que adjuntará la siguiente documentación:
-· Detalle de las declaraciones de ingreso, pólizas y títulos pendientes de liquidación o inventario;
-· Certificación de no tener adeudos tributarios; y,
-· Certificación de no tener adeudos obrero-patronales.
-La Gerencia de Operaciones ordenará la publicación, en La Gaceta de un edicto por tres días consecutivos para escuchar objeciones de terceros dentro de los quince días naturales posteriores a la última publicación.
-Pasado dicho plazo, COMEX previo informe elaborado por la Gerencia de Operaciones de PROCOMER, emitirá una resolución cancelando la autorización de la empresa, de los programas de producción y otorgará un plazo a la empresa para el retomo, nacionalización,” donación al Estado o su entrega a la aduana, de las mercancías admitida temporalmente y la correspondiente liquidación, efectuando la respecto comunicación a las autoridades aduaneras.
+Artículo 43.—Renuncia del régimen. Cuando el beneficiario decida renunciar al Régimen, debe realizar la comunicación correspondiente a la Gerencia y a la Aduana de Control debidamente firmada por el Representante Legal con facultades de apoderado generalísimo sin límite de suma o con poder suficiente para ese acto. PROCOMER debe verificar el cumplimiento de los requisitos siguientes:
+a) Certificación emitida por un Contador Público Autorizado en la que se detalle los títulos pendientes de liquidación o inventario a la fecha de la renuncia. Lo anterior sin perjuicio de las verificaciones que, de conformidad con sus potestades legales, decida realizar la Dirección o la respectiva aduana de jurisdicción.
+b) Que la empresa esté al día en el pago las cuotas obrero - patronales.
+c) Que la empresa anuncie su intención de renunciar al Régimen mediante un aviso que deberá publicarse en un diario de circulación nacional.
+d) Que la empresa haya presentado su solicitud de renuncia a la aduana de control.
+A partir del momento en que la empresa presente la comunicación de renuncia a la aduana de control, no se le tramitarán declaraciones de ingreso de mercancías al amparo del Régimen.
+COMEX previo informe elaborado por la Gerencia, aprobará la cancelación del régimen a la empresa y le otorgará un plazo, legalmente establecido, para el retorno, nacionalización, donación al Estado o su entrega a la aduana, de las mercancías admitidas temporalmente y la correspondiente liquidación, efectuando la respectiva comunicación a las autoridades aduaneras, para lo de su competencia.
+(Así reformado mediante Decreto Ejecutivo 31848 del 25 de mayo del 2004)
