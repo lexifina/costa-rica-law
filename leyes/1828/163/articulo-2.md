@@ -1,0 +1,1 @@
+Art 2°.- Dicho Abogado recidirá en qualequiera de las cuatro Ciudadanos principales. Su dotación será la de dos pesos cada día que empleare en el despacho de sus atribuciones y los derechos causados en el curso del negocio: y la de los Colegas un peso diario que satisfará el Alcalde reo o el querellante temerario.
