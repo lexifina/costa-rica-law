@@ -14,3 +14,4 @@ Constitución del Sector Economía y Comercio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-03-29 | la propia norma |
+| 2 | 1983-04-21 | Decreto Ejecutivo 14480 (1983-04-21) |
