@@ -1,0 +1,7 @@
+CIRCULAR Nº 93-2003
+Asunto: Sobre recomendar apertura de "cuenta cliente", a aquellas personas beneficiarias de una pensión alimentaria.
+A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS QUE ATIENDEN MATERIA DE PENSIONES ALIMENTARIAS
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión Nº 57-03, celebrada el 5 de agosto de 2003, artículo LX, dispuso comunicarles que deben recomendar a todas aquellas personas beneficiarias de una pensión alimentaria, y que dicho beneficio provenga de personas funcionarias públicas, para que realicen la apertura de una "cuenta cliente" en el banco de su elección, ya sea del Sistema Bancario Nacional o privado, con la finalidad de agilizar el pago del rubro a que tiene derecho, en virtud de que el sistema de cómputo del Ministerio de Hacienda, mediante el cual se lleva a cabo el pago a los funcionarios públicos, permitiría que el día de pago automáticamente se remita la cuota de pensión alimentaría a esa cuenta bancaria, es decir a la "cuenta cliente" del beneficiario.
+Asimismo, se les solicita a los jueces y juezas, que tomen en cuenta en las resoluciones judiciales, que tanto el aguinaldo, salario escolar y los aumentos, serán automáticos, con la única excepción de que se varíen los montos por resolución judicial. Además, deben girar las instrucciones pertinentes, a fin de que la información que se remita al Ministerio de Hacienda, sea consignada en forma correcta.
+San José, 8 de setiembre del 2003.
