@@ -41,6 +41,8 @@ También se incluye dentro de la presente definición; las trozas que se encuent
 - Plan de manejo de un área silvestre: El conjunto de normas técnicas que regularán las actividades a desarrollar en una reserva forestal, zona protectora, parque nacional, refugio nacional de fauna silvestre, reserva biológica y áreas afines, para su uso, conservación, manejo y desarrollo.
 - Plantación forestal: Es aquella establecida en un terreno con una o más especies arbóreas, donde el objetivo principal pero no el único será la producción maderera.
 (Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 20618 del 12 de julio de 1991)
+- Predominación de árboles: "Todas aquellas aosicaciones vegetales cuya área basal comercial de los árboles no sea inferior a diez metros cuadrados por hectárea o bien, exita como mínimo veinte árboles por hectárea de especies comerciales con un diámetro a la altura de pecho (dap) superior a veinte centímetros.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 22024 de del 24 de febrero de 1993)
 - Quema: Se entiende por quema la provocada voluntariamente con un plan, incluso en los tratamientos de los despojos de corta, con propósito de limitarla a un área previamente determinada.
 - Racionalización industrial: Es el sistema que permite determinar de acuerdo con las fuerzas de mercado la cantidad mínima necesaria de materia prima para que opere eficientemente la industrias forestal.
 - Reorganización y reubicación del sector industrial forestal: Es el proceso de ordenamiento necesario para asegurar una integración bosque-industria, un mejor aprovechamiento del recurso y acercamiento en distancias a las fuentes de materia prima.

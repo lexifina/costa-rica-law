@@ -23,3 +23,4 @@ Reglamento a la Ley Forestal
 | 8 | 1992-06-30 | Decreto Ejecutivo 21445 (1992-06-30) |
 | 9 | 1992-10-19 | Decreto Ejecutivo 21692 (1992-10-19) |
 | 10 | 1993-02-15 | Decreto Ejecutivo 22017 (1993-02-15) |
+| 11 | 1993-02-24 | Decreto Ejecutivo 22024 (1993-02-24) |
