@@ -12,7 +12,7 @@ IV.- OTRAS COMISIONES DE CONFIANZA 11. Mandatos de Administración e inversión 
 V.- OTROS SERVICIOS ADICIONALES DE LA BANCA DE INVERSIÓN 12.- Sobre estados financieros o de cuenta adicionales | - Comisión de $ 5.00 por cada uno o su equivalente en colones *
 13.- Sobre transferencias, cheques de gerencia y cheques de cuenta corriente de la Banca de Inversión adicionales | - Comisión de $ 10.00 por cada uno, o su equivalente en colones *.
 14- Emisión de Constancias | - Comisión de $ 5.00 por c/u, equivalente en colones
-VI.-ADMINISTR. FONDOS 15.- SINPE Sistema Interbancario de Negociación y Pagos Electrónicos, desarrollado por el B.C.C.R. Afecta en tiempo real la Cuenta de Reserva de dicho organismo, TCR Transferencias entre Cuentas de Reserva | Transferencias Entrantes y Salientes: 0,050 % sobre el monto de la transferencia. Mínimo de $10.00 Máximo de $50.00
+VI.-ADMINISTR. FONDOS 15.- SINPE Sistema Interbancario de Negociación y Pagos Electrónicos, Desarrolladopor el B.C.C.R. Afecta en tiempo real la cuenta de reserva de dicho organismo, TCR Tranferencias entre cuentas de Reserva. | Lo establecido en el acuerdo interbancario en lo referente al modelo transferencia fondos a terceros, entrantes y salientes del Banco Central de C. R., $6,00, desglosado de la siguiente forma: $1,00 c/u para BCCR. $5,00 c/u entidad destino. (Así reformado en sesión N° 26 del 7 de julio del 2004)
 VII.- CAJITAS DE SEGURIDAD 16.-Depósito inicial de garantía | 50 % del costo anual de la cajita.
 17.- Reposición de llave en caso de extravío | $17.00 costo ADM,, más costo de cerrajería.
 18.- Costo anual de la cajita | T-1, $ 25.00 T-2, T-3, T-4 $ 40.00 T-5, T-6, $ 90-00 T-7. T-8 $ 190.00
@@ -37,13 +37,13 @@ Fiscalización de inversiones 21.- Comprende la revisión del presupuesto y la f
 Por concepto de pago de kilometraje22.- Debido al desplazamiento de los profesionales designados por el Banco para hacer los avalúos, inspecciones y la fiscalización de inversiones. | Se cobrará al cliente de acuerdo con la tarifa vigente de la Contraloría General de la República.
 IX-GARANTÍAS PARTICIPACIÓN CUMPLIMIENTO
 23.-Porcent.Ctes. a- Bono de participación | .
-EMISIÓN | En colones: 0,75% por trimestre o fracción mínimo $20.00 En dólares: 0,60% por trimestre o fracción mínimo $20.00
-EXTENSIÓN DE PLAZO | En colones: 1,25% por trimestre o fracción mínimo $20.00 En dólares: 0,60% por trimestre o tracción mínimo $20.00
-INCREMENTO DEL VALOR | En colones 1,25% y en dólares 0,60 % sobre el monto del incremento, por trimestre o fracción existente entre la fecha de la modificación y el vencimiento de la garantía, Mínimo $20
+EMISIÓN | En colones: 0,75% por trimestre o fracción Mínimo $20.00 por trimestre. En dólares: 0,60% por trimestre o fracción Mínimo $20,00 por trimestre (Así reformado en sesión N° 26 del 7 de julio del 2004)
+EXTENSIÓN DE PLAZO | En colones: 0,75% por trimestre o fracción mínimo $20.00 por trimestre En dólares: 0,60% por trimestre o fracción mínimo $20.00 por trimestre (Así reformado en sesión N° 26 del 7 de julio del 2004)
+INCREMENTO DEL VALOR | En colones: 0,75% y en dólares 0,60% sobre el monto del incremento, por trimestre o fracción existente entre la fecha de la modificación y el vencimiento de la garantía, mínimo $20.00 por trimestre (Así reformado en sesión N° 26 del 7 de julio del 2004)
 b- Bono cumplimiento
-EMISIÓN | En colones: 1,25% por trimestre o fracción mínimo $20.00 En dólares: 0,60% por trim o fracción mínimo $20.00
-EXTENSIÓN DE PLAZO | En colones: 1,25% por trimestre o fracción mínimo $20.00 En dólares: 0,60% por trim o fracción mínimo $20.00
-INCREMENTO DEL VALOR | En colones: 1,25% por trimestre o fracción En dólares 0,60% por trimestre o fracción. Del monto existente entre la fecha de la modificación y el venc de la garantía. Mínimo $20
+EMISIÓN | En colones: 1,25% por trimestre o fracción Mínimo $20.00 por trimestre. En dólares: 0,60% por trimestre o fracción Mínimo $20,00 por trimestre (Así reformado en sesión N° 26 del 7 de julio del 2004)
+EXTENSIÓN DE PLAZO | En colones: 1,25% por trimestre o fracción mínimo $20.00 por trimestre En dólares: 0,60% por trimestre o fracción mínimo $20.00 por trimestre (Así reformado en sesión N° 26 del 7 de julio del 2004)
+INCREMENTO DEL VALOR | En colones: 1,25% por trimestre o fracción por trimestre En dólares: 0,60% por trimestre o fracción. Del monto existente entre la fecha de la Modificación y el venc. De la garantía mínimo $20.00 por trimestre (Así reformado en sesión N° 26 del 7 de julio del 2004)
 c- Bono de Garantía tramitado y no retirado o enmiendas | $20.00 NOTA: Los montos mínimos de las Garantías de Participación y Cumplimiento dentro del Bono de Garantía será de $ 180.00 y fuera del Bono el mínimo será de $ 1.100.00 por garantía. En caso de montos menores deben ser autorizados por funcionarios autorizados del área.
 24,- Porcentajes con tratos bono abierto | .
 a- Comisión de Apertura Anual (línea de Garantía) | .
@@ -52,7 +52,7 @@ Hasta $350.00 aplica un | .
 Sobre exceso de $ 350.00 a $1.750.00 | .
 Sobre exceso de $ 1.750.00 a $ 3.500.00 | .
 Sobre exceso de $ 3,500.00 se aplica | .
-b- Comisión para emisión de garantías dentro del Bono Abierto. | Participación ¢ 0,75% por trim o fracción mínimo $20 Participación $: 0,60% por trim o fracción mínimo $20.00 Cumplimiento $1,25% por trim o fracción mínimo $20.00 Cumplimiento $: 0,60%por trim o fracción mínimo $20.00
+b- Comisión para emisión de garantías dentro del Bono Abierto. | Participación ¢: 0,75% por trim. o fracción mínimo $20 por trimestre. Participación $: 0,60% por trim. o fracciónmínimo $20.00 por trimestre. Cumplimiento ¢: 1,25% por trim. o fracciónmínimo $20.00 por trimestre. Cumplimiento $: 0,60% por trim. o fracciónmínimo $20.00 por trimestre (Así reformado en sesión N° 26 del 7 de julio del 2004)
 XI OP. CRÉDITO
 26.- Gastos de formalización de operaciones nuevas y prórrogas al vencimiento definitivo | Colones y Dólares la comisión es del 1.50% aplicable directamente al monto del crédito en forma general y por una sola vez Notas: Esta comisión será cobrada por una única vez al formalizarse el crédito o al establecerse prórrogas el vencimiento definitivo. No se cobrará la comisión de formalización en los contratos que se realicen de líneas de crédito revolutivas, tampoco se cobrará comisión de formalización a los contratos de empleados y de Tarjetas de Crédito (VISA - BCR)
 28.- Comisión de manejo de Líneas de Crédito Revolutivas | Colones: 1,50% anualizado al formalizar Dólares: 1.00% anualizado al formalizar
@@ -115,7 +115,7 @@ Reportes y constancias por cdp's para negociación en la Bolsa de Valores | $7,5
 70.- Uso de Fax Nacional * internacional América Otros | Nacional $1,00 Inter. $5,00 *** ***Nos ajustamos a tarifa de RACSA ($2) + plus ($3) Se exceptúa el envío del estado VISA cuando el cliente no lo recibió.
 71.- Cheques rechazados por insuficiencia de fondos Colones y Dólares | $15.00 * Los empleados deberán pagar el 100%.
 72.- Traspaso de Operaciones de cobro administrativo a cobro judicial | 1% s/el total adeudado de cada operación Mínima $10.00 Máxima $ 120.00
-73.-Venta de Cheques de Gerencia (¢) | 0,25 % sobre el monto del cheque (¢ y $). Colones: mínimo $6.00 máximo $35.00 Dólares: mínimo $10.00 máximo $20.00
+73.-Venta de Cheques de Gerencia (¢) | 0,25% sobre el monto del cheque (¢ y $) Colones: mínimo $6.00 máximo $35.00 Dólares: mínimo 10.00 máximo 20.00 (Así reformado en sesión N° 26 del 7 de julio del 2004)
 74.- Bancatel | .
 Banca Fax-Módulo de Negocios | $2,00 fijo mensual ** ** Con derecho a 10 consultas de cheques mensuales sin costo. Cada consulta adicional $0.25
 75.- Saldo impreso en el Módulo de Banca de Personas | $0,20 por hoja
@@ -203,6 +203,7 @@ $25.00
 118.-Retiro de efectivo en ventanilla, pensionados de la C.C.S.S. | . | ¢100.00 POR CADA RETIRO.
 119.- Reposición de pin para tarjeta de Crédito y Débito. | . | $2.00
 120.- Entrega de monedas en bolsas predefinidas | . | $2.00 por transacción, montos superiores a ¢5000.00
+121. Pago de cheques viajero (Así adicionado mediante sesión N° 26 del 7 de julio del 2004) | | En colones: 1%, mínima $ 1.00
 Aspectos generales
 1. De las tarifas establecidas en el Banco para los diferentes servicios, los señores directores, exdirectores, empleados y pensionados del Banco pagarán un 50 % de las fijadas para el público en cada caso (con las excepciones establecidas en el presente reglamento), siempre y cuando los documentos que amparan tales transacciones estén a nombre del funcionario o bien sea su ordenante directo.
 2. Están exentas del cobro de la comisión las Misiones Diplomáticas (Embajador, Consejero, Agregado, Primero, Segundo y Tercer Secretario, Cónsul y Vicecónsul), en el entendido de que la calificación del documento a negociar queda a juicio exclusivo de los funcionarios del Banco que tienen facultades para negociar esos valores de acuerdo con sus atribuciones.
