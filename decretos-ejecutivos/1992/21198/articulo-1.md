@@ -9,4 +9,4 @@ Considerando:
 4°- Que el decreto N° 20501-MAG-MIRENEM establece la "Metodología para la Determinación de la Capacidad de Uso de las Tierras de Costa Rica" y es política de este Gobierno el incentivar el plantar árboles, con recursos propios, en cualquier tipo de tierra ya que toda reforestación incrementará el área boscosa del país.
 5°- Que la Dirección General Forestal como parte de sus funciones, deberá procurar el desarrollo integrado de la industria forestal. Por tanto,
 DECRETAN:
-Artículo 1°- (Derogado por el artículo1° del decreto ejecutivo N° 23202 del 15 de diciembre de 1993)
+Artículo 1°- (Derogado por el artículo1° del decreto ejecutivo N° 23202 del 15 de diciembre de 1993. Posteriormente mediante resolución de la Sala Constitucional N° 00031 del 3 de enero de 1995, se declaró insconstitucional este artículo).
