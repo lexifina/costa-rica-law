@@ -83,8 +83,9 @@ g) Otras funciones:
 6. Cumplir aquellas otras funciones que le asignen en la Ley Orgánica, este Reglamento y en las leyes y reglamentos que regulan la actividad pertinente.
 III. DEROGADO por el artículo 2° del Decreto Ejecutivo N° 27914 de 24 de mayo de 1999, publicado en La Gaceta N° 106 de 02 de junio de 1999, Alcance 44.
 IV. DEROGADO por el artículo 2° del Decreto Ejecutivo N° 27914 de 24 de mayo de 1999, publicado en La Gaceta N° 106 de 02 de junio de 1999, Alcance 44.
-VI.—Categoría E: Personas físicas o jurídicas que vendan o distribuyan productos biológicos y material genético de origen vegetal o las empresas dedicadas a la producción, procesamiento y comercialización de semillas y material vegetativo."
+V.—Categoría D: Personas físicas o jurídicas que fabriquen alimentos balanceados para animales con fines de venta, así como las que distribuyan, al por mayor, dichos alimentos
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 2° del Decreto Ejecutivo N° 27914 de 24 de mayo de 1999, publicado en La Gaceta N° 106 de 02 de junio de 1999, Alcance 44.)
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 28465 de 15 de enero de 2000, publicado en La Gaceta N° 41 de 28 de febrero de 2000.)
 Serán funciones del regente o asesor técnico:
 a) En inscripción y etiquetado:
 1. Recopilar, revisar y avalar la información y documentación técnica, legal y de cualquier otra índole, requerida para la inscripción de las materias primas y alimentos balanceados ante la autoridad competente, la cual deberá ser suministrada por la empresa regentada.

@@ -15,3 +15,4 @@ Reglamento de Regencias Agropecuarias del Colegio de Ingenieros Agrónomos de Co
 | --- | --- | --- |
 | 1 | 1997-12-16 | la propia norma |
 | 2 | 1999-05-24 | Decreto Ejecutivo 27914 (1999-05-24) |
+| 3 | 2000-01-15 | Decreto Ejecutivo 28465 (2000-01-15) |
