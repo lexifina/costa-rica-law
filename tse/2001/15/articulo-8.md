@@ -1,0 +1,1 @@
+Artículo 8º—Del Régimen de Responsabilidad. Los actos que, en ejecución de sus funciones, llegaren a adoptar los Delegados del Tribunal estarán sujetos al régimen de responsabilidad establecido en el Título Sétimo del Libro Primero de la Ley General de la Administración Pública.

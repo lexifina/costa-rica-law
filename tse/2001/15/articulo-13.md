@@ -1,0 +1,1 @@
+Artículo 13.—De la Competencia del Cuerpo de Delegados. El Cuerpo de Delegados cumplirá sus funciones a partir de la convocatoria a elecciones y hasta el día en que se haga la declaratoria de la elección.

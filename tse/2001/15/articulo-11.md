@@ -1,0 +1,1 @@
+Artículo 11.—Del Subjefe Nacional de Delegados. El Tribunal nombrará a un Subjefe, quien coadyuvará en el funcionamiento y en todo aquello que concierna al Cuerpo de Delegados, así como en las funciones del Jefe Nacional, según delegación o encargo expreso que le hagan aquél o el Tribunal. Además, sustituirá al Jefe Nacional en sus ausencias temporales.
