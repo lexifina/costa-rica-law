@@ -1,0 +1,1 @@
+Artículo 3°.- Las entidades referidas pueden convenir el pago del precio de la propiedad en materiales de que disponga la Municipalidad, para la construcción o reconstrucción del edificio del Hospicio de Huérfanos de Cartago.
