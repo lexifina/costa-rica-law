@@ -1,0 +1,1 @@
+Art. 2. Se han por Magistrados suplentes para la misma Corte Suprema de Justicia á los Señores Don Francisco de Paula Gutierrez, Don Juan Maria Solera, Don Pedro Saborio; Don Pio Murillo y Don Paulino Ortiz, electos tambien por el Congreso.
