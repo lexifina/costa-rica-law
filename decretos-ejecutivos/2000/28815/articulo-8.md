@@ -1,0 +1,1 @@
+Artículo 8º—En un plazo de sesenta días debe prepararse un reglamento que especifique las bases de participación, orientación, evaluación, retroalimentación y reconocimiento público a las organizaciones que participen en el "Premio a la Excelencia".

@@ -1,0 +1,1 @@
+Artículo 7º—Este proceso abarca todo un año en el cual se realizarán las diversas actividades como son la convocatoria, inscripción, reuniones de orientación, evaluación, visitas evaluatorias a los participantes, congreso de la Excelencia, visitas de los interesados a empresas ganadoras y retroalimentación a las participantes, entre otras.

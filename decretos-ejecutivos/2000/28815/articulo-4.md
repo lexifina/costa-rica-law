@@ -1,0 +1,1 @@
+Artículo 4º—Este proceso será dirigido por un Comité Director integrado por el Ministro o Viceministro de Ciencia y Tecnología, el Presidente de la Cámara de Industrias de Costa Rica y los Gerentes Generales de las empresas promotoras.

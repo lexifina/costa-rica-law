@@ -1,0 +1,1 @@
+Artículo 5º—Los aspectos técnicos del proceso serán coordinados por un Comité Técnico integrado por representantes del Ministerio de Ciencia y Tecnología, de la Cámara de Industrias de Costa Rica y de las empresas promotoras.
