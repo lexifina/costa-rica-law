@@ -1,0 +1,3 @@
+Artículo 2°—Las sumas indicadas en el artículo anterior serán administradas por las siguientes organizaciones:
+a. Las que de conformidad con el artículo 8 de la Ley de Protección al Trabajador correspondan al Fondo de Capitalización Laboral, por cualquier persona jurídica autorizada legalmente al efecto.
+b. Las demás sumas, por las asociaciones solidaristas y las cooperativas de ahorro y crédito mayoritariamente integradas por empleados del Banco Popular, siempre y cuando el órgano competente haya expresamente consentido en el control por parte del Banco Popular en los términos indicados en el artículo 8 de este Reglamento.

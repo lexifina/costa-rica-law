@@ -1,0 +1,7 @@
+Artículo 4°—Dentro de los primeros ocho días hábiles del mes siguiente al recibo de la petición a la cual se refiere este artículo, o de determinado el devengo, el Banco Popular depositará el equivalente al 5.33% del salario bruto de cada trabajador correspondiente al mes anterior al depósito, siempre y cuando el trabajador así lo haya solicitado expresamente mediante solicitud dirigida al Proceso de Desarrollo Humano, la cual contendrá:
+a. Las calidades del empleado.
+b. El nombre de la organización autorizada en cuya cuenta corriente desea que se depositen sus haberes.
+c. Manifestación expresa de que el empleado, con el depósito dé por recibida, y en consecuencia, cancelada por parte del Banco Popular, la cesantía en el monto correspondiente a los depósitos que el Banco Popular hubiese realizado, sin que ello exonere a la Institución de la responsabilidad que de conformidad con la ley pueda caberle por el monto de la eventual diferencia entre lo que le corresponda al trabajador como auxilio de cesantía y lo que el Banco Popular hubiere aportado.
+d. Manifestación expresa de que el empleado exime al Banco Popular de cualquier responsabilidad que resulte de una administración culposa o dolosa de los fondos acreditados.
+e. Certificación que lo acredite como asociado activo de la organización autorizada en cuya cuenta corriente desea que se depositen las sumas.
+El giro del 3% de las sumas indicadas en el artículo 1° de este Reglamento, que corresponden al Fondo de Capitalización Laboral, se regirá por lo dispuesto en la Ley de Protección al Trabajador.

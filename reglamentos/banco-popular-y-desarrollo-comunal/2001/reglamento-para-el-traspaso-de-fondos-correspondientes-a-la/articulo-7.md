@@ -1,0 +1,3 @@
+Artículo 7°—En caso de cese de la relación laboral, se procederá de conformidad con el artículo 6 de la Ley de Protección al Trabajador en lo que corresponde a sumas del Fondo de Capitalización Laboral.
+En cuanto al resto de las sumas, se aplicará lo dispuesto en el artículo 21 ch. de la Ley 6970 en el caso de sumas depositadas en asociaciones solidaristas por empleados cubiertos por la Convención Colectiva, y lo dispuesto en el artículo 21 c. y ch. de esa Ley, según corresponda, cuando se hayan depositado en asociaciones solidaristas y el empleado no esté cubierto por la Convención.
+Si el resto de las sumas se hubiere depositado en una cooperativa de ahorro y crédito, se procederá de conformidad con lo indicado en el artículo 23 ch. iii. de la Ley 7391.
