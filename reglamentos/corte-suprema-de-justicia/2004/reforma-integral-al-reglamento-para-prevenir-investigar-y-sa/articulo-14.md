@@ -1,0 +1,1 @@
+Artículo 14.—La víctima como parte en el proceso. La víctima será expresamente reconocida como parte en el proceso, con todos los derechos inherentes a esta condición, incluyendo la posibilidad de ser asistida por un(a) profesional en derecho. (Adicionado por acuerdo de Corte Plena, Artículo XXI, sesión Nº 13-04 del 19 de abril del 2004).

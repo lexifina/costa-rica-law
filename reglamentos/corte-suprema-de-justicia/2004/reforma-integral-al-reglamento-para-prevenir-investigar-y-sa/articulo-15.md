@@ -1,0 +1,1 @@
+Artículo 15.—Secretaría técnica de género como coadyuvante. Que la Secretaría Técnica de Género del Poder Judicial, será reconocida expresamente como coadyuvante en todos los procesos por hostigamiento sexual. (Adicionado por acuerdo de Corte Plena, Artículo XXI, sesión Nº 13-04 del 19 de abril del 2004).

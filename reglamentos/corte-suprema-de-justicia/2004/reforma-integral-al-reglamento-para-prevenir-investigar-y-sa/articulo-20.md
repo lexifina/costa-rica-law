@@ -1,0 +1,1 @@
+Artículo 20.—Audiencia sobre la contestación de la denuncia. Una vez contestada la denuncia, en tiempo y forma, el Órgano Instructor dará audiencia por tres días hábiles, de ella y de las pruebas ofrecidas, al denunciante. Cumplida esa audiencia, procederá a las excepciones previas y propuestas por las partes.
