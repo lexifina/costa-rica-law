@@ -1,0 +1,1 @@
+Artículo 2º. Se exceptúa de la aplicación de este decreto las importaciones amparadas a la sección X, capítulo 47, partidas arancelarias puntos 47.01 y 47.02.00 00 del Arancel de Aduanas, ley No. 7017.
