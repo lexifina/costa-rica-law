@@ -1,0 +1,1 @@
+Artículo 9º—Traducciones. Para lograr una efectiva participación y el alcance de las metas específicas, se expondrán en los "stand" materiales en idioma español y de autores de la ECR traducidos a otros idiomas.

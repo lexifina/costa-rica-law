@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Modalidades de participación
+Artículo 13.—De la participación en ferias. La ECR contemplará, dentro del plan anual de trabajo, su participación en las ferias y eventos en el extranjero que considere, a la luz de la experiencia histórica y de sus mejores intereses, importantes para la proyección de sus autores, venta de libros y establecimiento de convenios de cooperación con instituciones de otros países. Con este fin, la Gerencia presentará anualmente a la aprobación del Consejo Directivo un plan de participaciones, que podrá realizarse con fondos propios debidamente presupuestados, o mediante invitaciones que cubran parcialmente los gastos de participación.
+Otras participaciones serán presentadas por la Gerencia a conocimiento y resolución del Consejo con toda la información pertinente.
