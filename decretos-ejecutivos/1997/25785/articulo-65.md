@@ -1,3 +1,1 @@
-Artículo 65.—Cesión.
-No podrán cederse, gravarse o disponerse total o parcialmente los derechos y obligaciones que confiere el contrato, sin autorización de la Dirección General de Hidrocarburos. Toda estipulación hecha en contrario a lo aquí dispuesto, se tendrá por absolutamente nula e ineficaz y podrá dar lugar a la resolución del contrato, con pago de daños y perjuicios a la Administración
-La Administración tomará en cuenta, para autorizar la cesión, que el cesionario reúne las mismas condiciones cualitativas y cuantitativas que en su momento reunió el cedente, con el fin de asegurarse la correcta ejecución de las obligaciones acordadas.
+Artículo 65.—(DEROGADO por el artículo 16 del Decreto Ejecutivo N° 28148, del 30 de agosto de 1999)
