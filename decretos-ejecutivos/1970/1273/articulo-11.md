@@ -1,0 +1,1 @@
+Artículo 11.-El Consejo podrá constituir comisiones integradas por sus miembros y por personas extrañas al mismo para el estudio y análisis de determinados asuntos o formulación de proyectos, así como para coordinar la ejecución de programas específicos. Labor que desarrollarán en forma coordinada con la Secretaría Técnica del Consejo.

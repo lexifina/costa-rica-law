@@ -1,0 +1,1 @@
+Articulo 2°-El Consejo asesorará al Gobierno y a los entes públicos en la formulación de la política agropecuaria nacional y en la coordinación de la ejecución de los programas y planes agropecuarios y la correspondiente evaluación de los mismos.

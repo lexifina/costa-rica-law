@@ -1,0 +1,1 @@
+Artículo 6°-El Consejo podrá constituir comisiones integradas por sus miembros y por personas extrañas al Consejo para estudiar y analizar problemas, asi como para coordinar la ejecución de programas específicos.

@@ -1,0 +1,1 @@
+Artículo 7°-Cuando el Consejo coordine programas en que participan varios organismos públicos, éstos tendrán representación en el mismo. También podrá invitar a las deliberaciones del Consejo a los funcionarios de otros organismos y a técnicos y representantes del sector privado.
