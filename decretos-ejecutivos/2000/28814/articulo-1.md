@@ -21,4 +21,5 @@ La Dirección Regional IX- a los cantones de: Guácimo, Pococi, Siquirres.
 La Dirección Regional X- a los cantones de: Pérez Zeledón, Buenos Aires.
 La Dirección Regional XI- a los cantones de: Corredores, Golfito, Osa y Coto Brus.
 La Dirección Regional XII- a los cantones de: Puntarenas, Montes de Oro, Garabito, Esparza, Parrita y Aguirre.
-La Dirección Regional XIII- a los cantones de: Nicoya, Nandayure y Hojancha.
+La Dirección Regional XIII- (Eliminada)
+(Así derogada mediante artículo 3 del Decreto Ejecutivo N° 32044 del 22 de julio del 2004, publicado en gaceta N° 200 de 13 de octubre del 2004)

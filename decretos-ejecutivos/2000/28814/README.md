@@ -14,3 +14,4 @@ Reforma Organizativa y Funcional del MOPT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-09 | la propia norma |
+| 2 | 2004-07-22 | Decreto Ejecutivo 32044 (2004-07-22) |
