@@ -1,0 +1,1 @@
+Artículo 4º—En caso de que los propietarios tomen la decisión de cambiar el destino al Refugio deberán notificar al Ministerio del Ambiente y Energía con al menos seis meses de antelación al período de vencimiento del plazo de diez años por el cual se someten voluntariamente al régimen de protección.

@@ -1,0 +1,1 @@
+Artículo 2º—El manejo y aprovechamiento de la vida silvestre dentro del Refugio queda sujeto al Plan de Manejo aprobado. El Ministerio del Ambiente y Energía supervisará además su ejecución y podrá emitir normas técnicas y científicas que deberán seguir los propietarios.
