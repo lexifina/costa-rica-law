@@ -1,0 +1,1 @@
+Artículo 19.-Los comités sectoriales de reforma administrativa se reunirán ordinariamente una vez al mes y extraordinariamente cada vez que sean convocados por su coordinador, o por la División de Reforma Administrativa del Ministerio de Planificación Nacional y Política Económica, por medio del coordinador del sector.

@@ -1,0 +1,1 @@
+Artículo 2°-El Subsistema de Reforma Administrativa tendrá el propósito primordial de generar mayores niveles de eficacia y eficiencia en la Administración Pública y de ejecutar el respec1ivo Plan de Reforma Administrativa que el Poder Ejecutivo promulgue.

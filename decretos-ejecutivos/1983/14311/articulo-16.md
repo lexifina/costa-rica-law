@@ -1,0 +1,3 @@
+CAPITULO VI
+De los comités sectoriales de reforma administrativa
+Artículo 16.-Existirán Comités Sectoriales de Reforma Administrativa, integrados por los funcionarios responsables de Reforma Administrativa de las instituciones del sector; estos comités serán asesorados por un funcionario de la División de Reforma Administrativa del Ministerio de Planificación Nacional y Política Económica; participará asimismo el funcionario que la respectiva Secretaría Ejecutiva de Planificación Sectorial designe. La División de Reforma Administrativa reportará por los canales adecuados, el grado de participación de tales enlaces de las instituciones, para que se tomen las medidas correctivas que se requieran.

@@ -1,0 +1,2 @@
+Artículo 26.-Los ministerios e instituciones podrán contratar asesoráis en análisis administrativos, con estricto apego a Las directrices que al respecto emanen del Gobierno.
+En todos los casos el Ministerio de Planificación Nacional y Política Económica, por medio de su División de Reforma Administrativa, a través de los mecanismos del Subsistema de Reforma Administrativa. deberá coordinar y evaluar tales asesorías, e informar frecuentemente a la Presidencia de la República y a la Comisión de Eficiencia Administrativa.

@@ -1,0 +1,1 @@
+Artículo 3°-Los órganos del Subsistema de Reforma Administrativa tendrán las funciones que se establecen por medio del presente decreto y las que con posterioridad establezca como complemento el Poder Ejecutivo.

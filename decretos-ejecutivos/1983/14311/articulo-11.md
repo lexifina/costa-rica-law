@@ -1,0 +1,1 @@
+Artículo 11.-Cada ministro deberá dirigir y coordinar políticamente y fiscalizar a los distintos organismos y entes de su ramo, en su adecuada organización y funcionamiento administrativo general en función de los requerimientos de política Gubernativa.
