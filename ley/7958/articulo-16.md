@@ -1,0 +1,1 @@
+Artículo 16°.-Autorización. Autorízase a la Municipalidad de Valverde Vega para que dicte el reglamento correspondiente, con el fin de hacer eficaz el cumplimiento de la presente ley y adopte las medidas administrativas necesarias para aplicarlo, en un plazo máximo de sesenta días contados a partir de la publicación de esta ley.
