@@ -1,0 +1,1 @@
+Artículo 38.—La aprobación o rechazo de la solicitud se comunicará al o los petentes, mediante resolución administrativa dictada por el Consejo Nacional de Adopciones. Dicha resolución tendrá los recursos de impugnación establecidos en la Ley General de la Administración Pública.

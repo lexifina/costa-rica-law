@@ -1,0 +1,1 @@
+Artículo 4º—En lo no previsto en el presente reglamento, se estará a lo dispuesto en la Convención de La Haya, la Convención Sobre los Derechos del Niño, la Ley Orgánica del PANI, el Código de Familia, el Código de la Niñez y Adolescencia y demás normativa vigente.

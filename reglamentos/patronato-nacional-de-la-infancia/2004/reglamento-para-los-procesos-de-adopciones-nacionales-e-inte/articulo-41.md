@@ -1,0 +1,1 @@
+Artículo 41.—El correspondiente acto de aprobación o rechazo de la solicitud de acreditación, se comunicará al petente, otorgándole los recursos de impugnación establecidos en la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 13.—Los/las representantes de la sociedad civil organizada designados en los Consejos así como los representantes de las Juntas de Protección a la Niñez y la Adolescencia que funjan como miembros de los Consejos no devengarán dieta ni remuneración económica alguna por su participación en dichas instancias.

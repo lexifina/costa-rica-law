@@ -1,0 +1,2 @@
+Artículo 43.—Serán causales de cancelación de la respectiva acreditación e inscripción de la organización, el incumplir cualesquiera de las obligaciones que impone el Convenio de la Haya, el convenio bilaterial, multilateral o las exigidas en este Reglamento, así como incurrir en actos que a juicio del Consejo Nacional de Adopciones violentan los derechos de los niños, niñas o adolescentes.
+En todo caso esa cancelación será el resultado de un debido proceso, con todas las garantías procesales indicadas en la Ley General de la Administración Pública.

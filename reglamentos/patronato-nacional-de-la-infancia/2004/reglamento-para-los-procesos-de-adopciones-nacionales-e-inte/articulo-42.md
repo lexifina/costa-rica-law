@@ -1,0 +1,1 @@
+Artículo 42.—Firme el acto que concede la acreditación, se inscribirá a la Organización en un libro que al efecto llevará el Consejo Nacional de Adopciones. Esa inscripción tendrá vigencia de un año, y para su prórroga será necesario que la organización acredite su vigencia y su personería jurídica.

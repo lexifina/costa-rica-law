@@ -1,0 +1,1 @@
+Artículo 40.—Cuando del examen de la documentación presentada se apreciare omisión o defecto, se prevendrá a la persona solicitante para que en un plazo de 10 días lo subsane, con indicación de que, si así no lo hiciere, se considerará desistida de su petición y ésta se archivará sin más trámite.

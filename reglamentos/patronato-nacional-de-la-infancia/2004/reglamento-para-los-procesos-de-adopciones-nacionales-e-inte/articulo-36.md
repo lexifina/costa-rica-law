@@ -1,0 +1,1 @@
+Artículo 36.—La solicitud deberá hacerse a través de la Autoridad Central del país de origen de los promoventes, o en su defecto, por medio de la Entidad u Organismo Internacional debidamente acreditado para tal efecto, ante el Consejo Nacional de Adopciones.
