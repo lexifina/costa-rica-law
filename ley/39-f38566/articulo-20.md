@@ -1,0 +1,2 @@
+Art 20° La remuneración de los servicios expresados en el Título, se arreglará al arancel decretado el 27 de julio de 1859, siempre que no haya convenio especial con los interesados sobre una cantidad menor.
+El Juez tasará los honorarios con calidad de alimenticios entre las costas judiciales o daños y perjuicios y los cobrará de quien corresponderá con arreglo al artículo 28 de la ley adicional de 17 de Octubre de 1864, quedando obligados subsidiariamente los fondos municipales para el caso de no poderse cobrar de la parte condenada en costas.
