@@ -1,0 +1,1 @@
+Artículo 42.- El Poder Ejecutivo reglamentará esta Ley dentro de los noventa días siguientes a su publicación; sin embargo, el incumplimiento de este requisito no podrá retrasar, de ninguna manera, la aplicación de esta Ley.
