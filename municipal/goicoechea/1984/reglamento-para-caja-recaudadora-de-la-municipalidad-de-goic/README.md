@@ -14,3 +14,4 @@ Reglamento para Caja Recaudadora de la municipalidad de Goicoechea
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-06-11 | la propia norma |
+| 2 | 1990-08-16 | Reglamento municipal 21 (1990-08-16) |
