@@ -14,3 +14,4 @@ Reglamento para el Registro de Productos Peligrosos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-06 | la propia norma |
+| 2 | 2002-08-28 | Decreto Ejecutivo 30718 (2002-08-28) |

@@ -2,7 +2,8 @@ ANEXO 3
 Información mínima que debe contener la
 HOJA DE SEGURIDAD-MSDS
 La siguiente es la Hoja de Seguridad (MSDS) que tiene el formato adoptado por la International Standarization Organization (ISO). No es necesario que la hoja que se presente, siga el mismo formato, pero sí que contenga la información que se solicita como mínima en cada sección.
-En caso de productos importados cuya Hoja de Seguridad se encuentre en un idioma diferente al español se debe llenar la ficha técnica adjunta a este Anexo y presentar junto con el documento original.
+En el caso de productos peligrosos importados cuya Hoja de Seguridad se encuentre en un idioma diferente al español, se debe presentar el Formulario del Anexo N° 3 de este Decreto, firmado por el responsable técnico en Costa Rica y la Hoja de Seguridad que suministre el fabricante o distribuidor del producto, sea la original que traía el producto o fotocopia de la Hoja de Seguridad que se baja de Internet de alguna de las Bases de Datos de las casas fabricantes o de otras entidades reconocidas.
+(Así reformado el párrafo segundo por el artículo 1 del decreto ejecutivo N° 30728 de 28 de agosto del 2002)
 Para cada una de las secciones del documento se deben incluir al menos los parámetros indicados1.
 Para productos de fabricación nacional, se debe indicar el método utilizado para determinar cada parámetro.
 SECCION I
