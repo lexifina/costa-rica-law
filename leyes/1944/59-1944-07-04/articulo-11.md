@@ -1,4 +1,1 @@
-Artículo 11.- El Instituto Geográfico Nacional podrá autorizar la
-ejecución de aquellos trabajos que sean necesarios para su determinación,
-cuando no esté en condiciones de ejecutarlos o de proporcionar a los
-interesados los antecedentes técnicos que soliciten.
+Artículo 11.- El Instituto Geográfico Nacional podrá autorizar la ejecución de aquellos trabajos que sean necesarios para su determinación, cuando no esté en condiciones de ejecutarlos o de proporcionar a los interesados los antecedentes técnicos que soliciten.

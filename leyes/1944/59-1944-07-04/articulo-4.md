@@ -1,21 +1,15 @@
-Artículo 4º.- El Instituto Geográfico Nacional estará constituído,
-en su pleno funcionamiento, por:
+Artículo 4º.- El Instituto Geográfico Nacional estará constituído, en su pleno funcionamiento, por:
 Una Dirección
 Una Secretaría Administrativa, subordinada a la cual estarán la
 Oficina de Partes y la Oficina de Contabilidad.
 Una Secretaría Técnica, compuesta de tres Sub-secciones:
-Informaciones y Publicaciones, Control y Estadística, y Archivo
-Técnico.
+Informaciones y Publicaciones, Control y Estadística, y Archivo Técnico.
 Una Sección Geodésica, compuesta de tres Sub-secciones:
-Astronomía y Medicion de Bases, Trigonométrica, y Nivelación de
-Precisión.
+Astronomía y Medición de Bases, Trigonométrica, y Nivelación de Precisión.
 Una Sección Topográfica, compuesta de tres Sub-secciones:
-Levantamiento Regular, Levantamiento Fotogramétrico Aéreo, y
-Revisora.
-Una Sección Geológica y una Sección Hidráulica y de otros Recursos
-Naturales.
+Levantamiento Regular, Levantamiento Fotogramétrico Aéreo, y Revisora.
+Una Sección Geológica y una Sección Hidráulica y de otros Recursos Naturales.
 Una Sección Cartográfica, compuesta de tres Sub-acciones:
 Cartográfica, Litográfica e Imprenta y Fotograbado.
-El Instituto contará, además, con los servicios y dependencias
-indispensables a juicio de la Dirección, para el normal funcionamiento de
-una organización de esta naturaleza.
+El Instituto contará, además, con los servicios y dependencias indispensables a juicio de la Dirección, para el normal funcionamiento de una organización de esta naturaleza.
+(Nota: La Ley Nº 4381 de 27 de agosto de 1969, crea el Departamento Topográfico)
