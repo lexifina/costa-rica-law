@@ -1,0 +1,4 @@
+Artículo 11.- El Ministerio no autorizará el desalmacenaje de aquellas
+plantas, material de propagación, productos vegetales o artículos con
+material de empaque, que hubieren sufrido el ataque de cualquier plaga o
+enfermedad durante el transporte.
