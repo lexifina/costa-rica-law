@@ -1,5 +1,4 @@
-Artículo 23.-
-1.- Las carteras ministeriales serán:
+Artículo 23.- 1.- Las carteras ministeriales serán:
 a) Presidencia;
 b) Relaciones Exteriores y Culto;
 c) Gobernación y Policía;
@@ -9,15 +8,15 @@ d) Seguridad Pública;
 e) Hacienda;
 f) Agricultura y Ganadería;
 g) Economía, Industria y Comercio;
-( Así reformado por el artículo 15 de la Ley Nº 7152 de 5 de junio
-de 1990)
+( Así reformado por el artículo 15 de la Ley Nº 7152 de 5 de junio de 1990)
 h) Ambiente y Energía;
 (El artículo 116 de la Ley Orgánica del Ambiente Nº 7554 del 4 de octubre de 1995 modificó el nombre del Ministerio en la forma indicada)
 i) Obras Públicas y Transportes;
 j) Educación Pública;
 k) Salud;
 l) Trabajo y Seguridad Social;
-m) Cultura, Juventud y Deportes;
+m) Cultura, Juventud y Deportes*;
+*(NOTA: Según el dictamen C-023 de 31 de enero 2007, de la Procuraduría General de la República, este inciso se encuentra derogado parcialmente en forma tácita por la Ley No. 7800 de 30 de abril de 1998, en lo que respecta a "Deportes", en este caso debe leerse "Cultura y Juventud").
 n) Planificación Nacional y Política Económica;
 (El párrafo 1 de este artículo, referente a la enumeración de las carteras ministeriales, fue así reformado por el artículo 11 de la Ley de Reestructuración del Poder Ejecutivo, Nº 6812 de 14 de setiembre de 1982)
 ñ) Ciencia y Tecnología.

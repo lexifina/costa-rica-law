@@ -1,7 +1,0 @@
-(Derogado)
-Ley Nº 5418
-La presente norma ha sido DEROGADA EN SU TOTALIDAD por la Ley N° 7800 de 30 de abril de 1998,
-Ley que Crea Instituto del Deporte y Recreación (ICODER) y su Régimen Jurídico.
-LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
-DECRETA:
-Artículo 1º.- Establécese en la Dirección General de Educación Física y Deportes el Registro de Asociaciones Deportivas, en el cual se inscribirán la constitución, poderes, modificaciones y disolución de las asociaciones que tengan ese carácter.
