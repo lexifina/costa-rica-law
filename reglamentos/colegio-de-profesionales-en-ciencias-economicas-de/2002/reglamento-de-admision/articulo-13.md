@@ -1,0 +1,1 @@
+Artículo 13.—En las sesiones de la Comisión de Admisión se estudiarán solamente las solicitudes cuyos expedientes hayan sido remitidos en forma completa, ordenados y clasificados en una lista por la administración del Colegio, con la antelación debida mediante oficio dirigido al Presidente de la Comisión.

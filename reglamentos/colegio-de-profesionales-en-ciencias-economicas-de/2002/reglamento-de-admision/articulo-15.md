@@ -1,0 +1,1 @@
+Artículo 15.—En su resolución, la Comisión de Admisión debe especificar para cada solicitud aprobada el grado o nivel académico, la condición de miembro activo o asociado y el área de acción profesional en que queda registrado el nuevo miembro para ejercer la profesión.

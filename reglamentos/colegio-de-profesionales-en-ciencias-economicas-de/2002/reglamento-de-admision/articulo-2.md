@@ -1,0 +1,1 @@
+Artículo 2º—Conforme el artículo 36, inciso d) de la Ley orgánica No 7105 la Comisión de Admisión será nombrada por el Presidente de la Junta Directiva, sus miembros fungirán por un período de dos años pudiendo ser reelectos y cumplirán sus funciones en forma adhonorem. Asumirán sus cargos previa juramentación por la Junta Directiva del Colegio.

@@ -1,0 +1,1 @@
+Artículo 5º—La Comisión de Admisión será la encargada de preparar la información que requiere la Junta Directiva en relación con la incorporación de nuevos miembros, para lo cual recibirá la documentación pertinente, y hará la ivestigación preliminar de cada solicitud.

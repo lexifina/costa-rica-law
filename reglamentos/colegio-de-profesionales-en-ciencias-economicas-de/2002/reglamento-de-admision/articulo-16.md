@@ -1,0 +1,1 @@
+Artículo 16.—La Comisión presentará a la Junta Directiva las resoluciones a que se refiere el Artículo anterior, con carácter recomendativo, indicando en cada caso las razones en que fundamenta la respectiva recomendación.

@@ -1,0 +1,1 @@
+Artículo 4º—Para el cumplimiento de sus funciones, la Comisión de Admisión tendrá el apoyo administrativo necesario y podrá dar instrucciones y ordenar los trabajos requeridos a la Administración del Colegio.

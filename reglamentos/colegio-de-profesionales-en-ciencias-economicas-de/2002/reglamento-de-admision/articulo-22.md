@@ -1,0 +1,2 @@
+Artículo 22.—Las propuestas de incorporación de miembros honorarios Colegio serán presentadas por escrito a la Junta Directiva, quien las remitirá a la Comisión de Admisión para su estudio, análisis y recomendación correspondiente, a cual debe fundamentarse debidamente en la trayectoria y méritos del candidato.
+Si el estudio da resultados favorables, la Comisión lo comunicará a la Junta a fin que sea sometido a la Asamblea General del Colegio.
