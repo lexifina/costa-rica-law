@@ -1,4 +1,4 @@
-Artículo 4º.- El Parque Nacional de Barrahonda contará para su
+ARTICULO 4º.- El Parque Nacional de Barrahonda contará para su
 mantenimiento con recursos provenientes de:
 a) El cobro de una cuota de entrada a las cavernas a toda persona mayor
 de seis años;

@@ -1,4 +1,4 @@
-Artículo 3º.- Se autoriza a la Municipalidad de Nicoya y al Instituto
+ARTICULO 3º.- Se autoriza a la Municipalidad de Nicoya y al Instituto
 Costarricense de Turismo a tomar la previsiones del caso para preparar
 programas se desarrollo turístico en el Parque Nacional, que por esta ley
 se crea, destinado primordialmente a la explotación turística de las
