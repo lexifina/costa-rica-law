@@ -1,0 +1,1 @@
+Artículo 3º—Autorízase a la Contraloría General de la República para que tramite las modificaciones presupuestarias que la Junta de Desarrollo Regional de la Zona Sur de la Provincia de Puntarenas requiera para hacer efectivo lo dispuesto en esta Ley.
