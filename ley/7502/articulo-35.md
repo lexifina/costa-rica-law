@@ -1,12 +1,4 @@
-Artículo 35.- Este Protocolo y sus instrumentos complementarios y
-derivados prevalecerán sobre cualquier Convenio, Acuerdo o Protocolo
-suscrito entre los Estados Miembros, bilateral o multilateralmente, sobre
-las materias relacionadas con la integración centroamericana. No
-obstante, quedan vigentes entre dichos Estados las disposiciones de
-aquellos Convenios, Acuerdos o Tratados siempre que las mismas no se
-opongan al presente instrumento u obstaculicen el logro de sus propósitos
-y objetivos.
-Toda controversia sobre la aplicación o interpretación de las
-disposiciones contenidas en el presente Protocolo y demás instrumentos a
-que se refiere el párrafo anterior, deberá someterse a la Corte
-Centroamericana de Justicia.
+Artículo 35.—Este Protocolo y sus instrumentos complementarios y derivados prevalecerán sobre cualquier Convenio, Acuerdo o Protocolo suscrito entre los Estados Miembros, bilateral o multilateralmente, sobre las materias relacionadas con la integración centroamericana. No obstante, quedan vigentes entre dichos Estados las disposiciones de aquellos Convenios, Acuerdos o Tratados, siempre que las mismas no se opongan al presente instrumento u obstaculicen el logro de sus propósitos y objetivos.
+Salvo lo dispuesto en el párrafo siguiente, las controversias sobre la aplicación o interpretación de las disposiciones contenidas en el presente Protocolo y demás instrumentos a que se refiere el párrafo anterior, deberán someterse a la Corte Centroamericana de Justicia.
+Las diferencias surgidas en el Subsistema de la Integración Económica como consecuencia de las relaciones comerciales intrarregionales, se someterán al mecanismo de solución de controversias que establezca el Consejo de Ministros de Integración Económica que contendrá un método de solución alterno de controversias comerciales incluido el arbitraje, cuyas decisiones serán vinculantes para los Estados Miembros que intervengan en la respectiva diferencia. El incumplimiento de un laudo arbitral dará lugar a la suspensión de beneficios de efecto equivalente a los dejados de percibir, según se decida en el respectivo laudo.
+(Así reformado por el artículo 1 de la ley N° 8318 de 24 de octubre del 2002)
