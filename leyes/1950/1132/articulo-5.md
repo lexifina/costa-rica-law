@@ -1,0 +1,1 @@
+Artículo 5°.- Para los reclamos que se hicieren contra los Detalles de Caminos fijados de acuerdo con esta ley, no serán necesarios los requisitos de pago previo de los mismos, ni presentación de plano catastrado de la propiedad.

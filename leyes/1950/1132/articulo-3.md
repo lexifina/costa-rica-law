@@ -1,0 +1,1 @@
+Artículo 3°.- Decláranse insubsistentes las fijaciones de Detalles de Caminos Vecinales hechas en este año conforme al artículo 5° anteriormente citado, las cuales deberán determinarse de conformidad con las disposiciones de la presente ley.
