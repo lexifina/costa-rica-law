@@ -10,4 +10,5 @@ Considerando:
 5°—Que mediante Decreto Ejecutivo N° 28466-S del 8 de febrero del 2000, el Poder Ejecutivo emitió el Reglamento de Inscripción, Control.
 Importación y Publicidad de Medicamentos, en el cual se establece como requisito para la solicitud de registro de un medicamento, el pago del registro o inscripción. Por tanto.
 DECRETAN:
-Articulo 1°—Para efectos de registro de medicamentos fijase la tasa prevista en el articulo 112 de la Ley General de Salud, en la suma de US$500 o su equivalente en moneda nacional. Dichos fondos serán utilizados en el programa de control estatal y de vigilancia de la calidad del medicamento en el mercado, que tiene a su cargo el Ministerio de Salud.
+Articulo 1°—Para efectos de trámite, registro y control de medicamentos fíjase la tasa prevista en el artículo 112 de la ley General de Salud, en la suma de $500 o su equivalente en moneda nacional. Dichos fondos serán utilizados en el programa de control estatal y de vigilancia de la calidad del medicamento en el mercado, que tiene a su cargo el Ministerio de Salud.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31847 del 2 de junio del 2004.)
