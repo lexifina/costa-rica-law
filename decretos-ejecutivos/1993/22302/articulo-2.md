@@ -1,0 +1,1 @@
+Artículo 2°—La parte de los recursos que se destinan a Servicios No Personales, Materiales y Suministros y Adquisición de Equipo de los programas "Erradicación de la Malaria , Fiebre Amarilla y Dengue", "Salud Rural" y "Saneamiento Básico", se trasladarán al Consejo Técnico de Asistencia Médico Social, para el cumplimiento de los fines de los mismos, como transferencia.

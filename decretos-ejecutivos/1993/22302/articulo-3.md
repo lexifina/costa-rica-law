@@ -1,0 +1,1 @@
+Artículo 3°— La Oficina de Cooperación Internacional de la Salud , deberá proporcionar a la Dirección de Presupuesto Nacional, las relaciones de puestos de los programas involucrados y coordinar con la Oficina Técnica Mecanizada la inclusión de las mismas.

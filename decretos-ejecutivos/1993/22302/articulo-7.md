@@ -1,0 +1,1 @@
+Articulo 7°—Los trabajadores que pertenezcan a la Oficina Cooperación Internacional de la Salud , cuyo presupuesto de gastos se incorpora al Presupuesto Nacional, conservarán todos los derechos laborales adquiridos que se deriven de leyes o convenciones colectivas de trabajo, a la vigencia de la Ley de Presupuesto Ordinario y Extraordinario de la República para 1994.

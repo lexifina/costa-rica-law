@@ -1,0 +1,1 @@
+Artículo 5°—Las Oficinas de la Administración Financiera Básica del Estado, así como la Oficina Técnica Mecanizada coordinarán con tas oficinas involucradas, a fin de realizar la correcta formulación y ejecución de estos gastos que se incorporarán en la Ley de Presupuesto Ordinario y Extraordinario de la República para 1994.

@@ -1,0 +1,1 @@
+Artículo 4°— La Oficina encargada de formular el anteproyecto de presupuesto del Ministerio de Salud deberá incorporar el desglose de los gastos de la Oficina de Cooperación Internacional de la Salud (OCIS) al mismo.
