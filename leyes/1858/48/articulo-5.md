@@ -1,0 +1,1 @@
+Art. 5° Los reparos que deduzca el Contador en- cargado de visar las pólizas, los hará presentes al Administrador: y si este no los desvaneciere debida- mente, la póliza o pólizas quedarán reformadas.

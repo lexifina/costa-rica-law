@@ -1,0 +1,1 @@
+Art. 6. Si algún comerciante se creyere perjudicado en sus intereses con la reforma de la liquidación, pedirá al Contador mayor que se vise de nuevo la póliza, hecho lo cual deberá conformarse el interesado con el resultado.
