@@ -9,4 +9,5 @@ Considerando:
 4º—Que el límite de gasto presupuestario fijado al CUC en el Decreto Ejecutivo N° 30214-H, no considera los gastos operativos institucionales producto del incremento en la demanda de servicios.
 5º—Que por lo anterior, resulta necesario ampliar el límite de gasto presupuestario fijado al Colegio Universitario de Cartago en el Decreto citado. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase el artículo 1° del Decreto Ejecutivo N° 30214-H, para fijar el límite de gasto presupuestario del Colegio Universitario de Cartago en ¢722.7 millones.
+Artículo 1º—Modifícase el artículo 1° del Decreto Ejecutivo N° 30214-H, para fijar el límite de gasto presupuestario del Colegio Universitario de Cartago en ¢768.4 millones.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo N° 31335-H de 28 de julio de 2003, publicado en La Gaceta No. 168 de 02 de setiembre de 2003.)

@@ -14,3 +14,4 @@ Modifica Directrices Generales de Política Presupuestaria del 2003 para los min
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-28 | la propia norma |
+| 2 | 2003-07-28 | Decreto Ejecutivo 31335 (2003-07-28) |
