@@ -1,0 +1,1 @@
+Artículo 6º—Elección de los miembros de la Junta de Crédito Local. La Junta Directiva Nacional deberá realizar los nombramientos de los designados como miembros de la Junta de Crédito Local, a más tardar quince días naturales antes del inicio del siguiente período.

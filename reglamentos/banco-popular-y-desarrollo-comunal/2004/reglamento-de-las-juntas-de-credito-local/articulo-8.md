@@ -1,0 +1,1 @@
+Artículo 8º—Caución. Los miembros de las Juntas de Crédito Local deberán rendir una caución por la suma de doscientos mil colones, antes de entrar en el ejercicio del cargo. La referida caución podrá consistir en hipoteca, fianza, prenda o póliza de fidelidad extendida por el Instituto Nacional de Seguros, o mediante depósito en dinero en efectivo.

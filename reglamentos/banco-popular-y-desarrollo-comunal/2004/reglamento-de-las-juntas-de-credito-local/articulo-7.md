@@ -1,0 +1,1 @@
+Artículo 7º—Duración en el cargo. Los miembros de la Junta de Crédito Local serán nombrados en sus cargos por el término de dos años, cuyo ejercicio iniciará el primero de enero de cada año impar, y podrán ser reelectos.

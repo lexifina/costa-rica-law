@@ -1,0 +1,1 @@
+Artículo 9º—Reemplazo de los miembros de la Junta de Crédito Local. En caso de ausencia temporal del miembro propietario, entrará en el desempeño de su cargo el respectivo suplente. Si la ausencia fuere definitiva, el suplente asumirá la propiedad del cargo.
