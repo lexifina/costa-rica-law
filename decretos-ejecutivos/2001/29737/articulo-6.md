@@ -1,0 +1,1 @@
+Artículo 6º—Los gastos en que deba incurrir la Comisión, deberán ser sufragados a través del aporte de las instituciones y organismos representados en ella, en la medida en que sus propios presupuestos así se lo posibiliten, o a través de donaciones.

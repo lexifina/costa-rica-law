@@ -1,0 +1,1 @@
+Artículo 5º—Corresponderá a la Comisión aludida, conmemorar este hecho histórico, promoviendo la realización de diferentes actividades, para lo que tomará en consideración el espacio que ofrece el sistema educativo nacional en sus diferentes niveles, el Museo Nacional y particularmente el Museo Etnohistórico de Limón, de manera que el enfoque sea fundamentalmente educativo.
