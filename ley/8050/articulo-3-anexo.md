@@ -1,3 +1,4 @@
 ANEXO N°. 3°
 RELACION DE PUESTOS DE SERVICIOS ESPECIALES DEL GOBIERNO CENTRAL, PARA EL EJERCICIO ECONÓMICO DEL AÑO 2001.
 (.....)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29271 de 29 de enero del 2001)
