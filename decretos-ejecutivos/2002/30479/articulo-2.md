@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza al Ministerio del Ambiente y Energía, a través del Área de Conservación Pacífico Central en un plazo no mayor a seis meses revisar, analizar posibles ampliaciones y demarcar en el campo los linderos del Parque Nacional.
