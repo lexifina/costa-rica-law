@@ -1,4 +1,1 @@
-ARTICULO 8º.- Cuando en un mismo establecimiento ejerzan actividades
-lucrativas conjuntamente varias sociedades o personas físicas o jurídicas,
-el monto del impuesto se determinará según la suma de los montos que
-corresponda a cada una individualmente.
+Artículo 8º.- Cuando en un mismo establecimiento ejerzan actividades lucrativas conjuntamente varias sociedades o personas físicas o jurídicas, el monto del impuesto se determinará según la suma de los montos que corresponda a cada una individualmente.
