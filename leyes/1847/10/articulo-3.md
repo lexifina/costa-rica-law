@@ -1,0 +1,1 @@
+Art. 3. Expedidas las cartas, los Gobernadores pasaràn los registros á cada uno de los cantones en donde se hizo la calificacion para lo mas que corresponda, y todo debe verificarse con tal puntualidad y anticipacion, que en manera alguna dejen de celebrarse los actos electorales en los dias señalados por la ley.

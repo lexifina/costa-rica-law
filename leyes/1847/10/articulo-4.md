@@ -1,0 +1,1 @@
+Art. 4. El presente decreto se imprimirà, circulará y publicará de toda preferencia para su cumplimiento. -Dado en la ciudad de San José. á los diez y siete dias del mes de marzo de mil ochocientos cuarenta y siete. –José Maria Castro. –Al Ministro de relaciones y gobernacion Sr. Don Joaquin Bernardo Calvo.
