@@ -1,0 +1,6 @@
+ARTICULO 4º.- Cuando el patentado considere demasiado alta la
+calificación dada a su actividad, podrá solicitar recalificación ante una
+comisión que para tal efecto estará integrada por el ejecutivo municipal,
+el contador municipal y un miembro de la Comisión de Hacienda y
+Presupuesto. Las resoluciones de esta comisión tendrán recurso de
+revisión, el que podrá interponerse ante el Concejo.
