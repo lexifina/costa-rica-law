@@ -13,3 +13,4 @@ Regula Solicitud Permisos realizar Desfiles y Concentraciones Públicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-07-17 | la propia norma |
+| 2 | 1980-07-17 | SINALEVI (sin norma nombrada) |
