@@ -1,0 +1,1 @@
+Artículo 2º—Para los efectos correspondientes, están comprendidas dentro de la presente declaratoria de emergencia las tres fases de atención de un estado de emergencia, de conformidad con los términos y alcances preceptuados en el artículo 6º de la Ley Nacional de Emergencia, Nº 7914 del 13 de octubre de 1999.
