@@ -1,1 +1,0 @@
-Artículo 24.—El presente decreto ejecutivo deroga los Decretos Ejecutivos que establecen y regulan tarifas para las áreas silvestres administradas por el Servicio de Parques Nacionales: No 24416-MIRENEM de 7 de junio de 1995 y No 25045-MINAE de 20 de marzo de 1996.

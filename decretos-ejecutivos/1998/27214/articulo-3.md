@@ -1,1 +1,0 @@
-Artículo 3°—Por derecho de ingreso a las áreas silvestres protegidas bajo la administración del Sistema Nacional de Áreas de Conservación, los visitantes extranjeros no residentes, pagarán por el concepto de ingreso a los mismos, un monto de seis dólares, moneda de los Estados Unidos de América (USA $6,00) o su equivalente en colones, por día.

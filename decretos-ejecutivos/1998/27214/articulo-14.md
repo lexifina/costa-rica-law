@@ -1,1 +1,0 @@
-Artículo 14.—Las filmaciones de carácter científico, cultural o educativo, deberán ser autorizadas por escrito, por las autoridades respectivas de las áreas silvestres protegidas del Sistema Nacional de Áreas de Conservación.

@@ -1,3 +1,0 @@
-Tarifas de ingreso
-Artículo 2°—Por derecho de ingreso a las áreas silvestres protegidas bajo la administración del Sistema Nacional de Áreas de Conservación, los visitantes nacionales y residentes, entiéndese por estos últimos, aquellos extranjeros con cédula de residencia vigente, y los centroamericanos (belizeños, panameños, guatemaltecos, hondureños, salvadoreños y nicaragüenses) con pasaporte, pagarán la suma de trescientos cincuenta colones nacionales (¢350,00) o su equivalente en dólares moneda de los Estados Unidos, por día, por área silvestre protegida.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo No. 27347 de 18 de agosto de 1998, publicado en La Gaceta No. 199 de 14 de octubre de 1998.)
