@@ -1,0 +1,5 @@
+DECRETO XVII.
+El Exmo. Congreso aprueba los actos del Poder Ejecutivo constantes en la memoria del Ministro de relaciones y gobernación.
+"José María Castro Presidente de Costa Rica, etc. Etc -Pon cuanto el Exelentisimo Congreso ha decretado lo siguiente.
+El Excelentísimo Congreso constitucional de la República de Costa Rica, habiendo tomado en conisideracion la memoria presentada por el Señor Ministro de relaciones y gobernacion acerca del estado de los negocios del Ministerio de su cargo, decreta.
+Art. único. Se aprueban las operaciones del Poder Ejecutivo constantes de la memoria del Ministro de relaciones y gobernacion presentada con fecha 8 de mayo próximo pasado.-Al Poder Ejecutivo –Dado en el Palacio de los Supremos Poderes en San José á los seis dias del mes de junio de mil ochocientos cuarenta y nueve.-Manuel José Carazo, Presidente -Modesto Guevara, Secretario.-Rafael Barroeta, Pro -Sécretario. Por tanto: EJECÚTESE. Palacio Nacional. San José junio ocho de mil ochocientos cuarenta y nueve.-José María Castro.-El Ministro de Estado en el Despacho de gobernacion. -Joaquin Bernardo Calvo."
