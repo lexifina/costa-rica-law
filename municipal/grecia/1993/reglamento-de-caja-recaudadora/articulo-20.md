@@ -1,0 +1,1 @@
+Artículo 20.—El funcionario designado ocasionalmente como Cajero recaudador, tendrá las mismas sanciones, obligaciones y responsabilidades que el titular de tal puesto y contará también con una Póliza de Fidelidad que garantice el fiel cumplimiento de su labor.

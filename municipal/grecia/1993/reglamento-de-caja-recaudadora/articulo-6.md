@@ -1,0 +1,1 @@
+Artículo 6°—El Cajero deberá estar cubierto por, una Póliza de Fidelidad otorgada por el Instituto Nacional de Seguros o en su defecto rendirá garantía fiduciaria, mientras se siguen los trámites de la Póliza. El monto de ésta debe ser de acuerdo con lo establecido en el Artículo 133 del Código Municipal y será cubierta por la Institución.

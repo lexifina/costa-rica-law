@@ -1,0 +1,1 @@
+Artículo 8°—El Cajero no podrá tener valores que superen el 50% de la garantía que cubre la Póliza rendida, de superar dicha suma deberá efectuar las remesas del monto superado a la Tesorería , reservándose copia del documento extendido que demuestre la suma parcial entregada, asimismo el Concejo fijará la suma límite que mantendrá el Cajero en su poder.

@@ -1,0 +1,1 @@
+Artículo 15.—Todo faltante originado del movimiento diario, será depositado de inmediato por el Cajero en la Tesorería para su confirmación. Comprobado este hecho, será depositado a más tardar un día después de comprobado. Caso contrario dicha suma será devuelta al Cajero, denotando en donde se originó el faltante.

@@ -1,0 +1,1 @@
+Artículo 21.—Los fondos de la Caja Recaudadora podrán ser intervenidos por el Departamento de Auditoria en el momento que lo estime conveniente y en casos muy calificados podrá paralizar la labor de la Caja para su auditoraje.

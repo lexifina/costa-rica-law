@@ -1,0 +1,2 @@
+Artículo 9°—Todo cheque que reciba el Cajero debe ser girado a nombre de la Municipalidad de Grecia por el monto exacto del pago efectuado, dejándolo registrado en la fórmula respectiva, indicando: nombre del girador, fecha, número del cheque, Banco, monto, teléfono y dirección.
+Queda prohibido a este funcionario, hacer efectivos cheques que no vengan a nombre de la Institución y que no sean para cancelar sumas adeudadas a la Municipalidad.

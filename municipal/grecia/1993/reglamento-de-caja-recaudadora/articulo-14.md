@@ -1,0 +1,1 @@
+Artículo 14.—Los sobrantes que resultaren del movimiento originado por la recaudación, deben ser depositados emitiéndose el respectivo Comprobante de Ingreso de inmediato, una vez comprobado por el Tesorero.

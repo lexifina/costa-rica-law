@@ -1,0 +1,1 @@
+Artículo 12.—El Tesorero verificará los documentos efectivos y los que no fueron cancelados, los anulará en todos lo tanto, mediante sello estampado en los mismos, procediendo a más tardar el día siguiente a remitirlos a la Contabilidad a fin de que esta proceda a remitirlos a Cómputo para lo procedente.
