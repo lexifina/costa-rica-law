@@ -1,1 +1,0 @@
-Artículo 10.—Votaciones. Los integrantes del órgano deberán votar por alguna de las tesis en discusión, salvo abstención autorizada en los términos del Capítulo único del Título Segundo de la Ley General de la Administración Pública.
