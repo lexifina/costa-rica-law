@@ -1,0 +1,1 @@
+Artículo 4º—Para que las sesiones de esta Comisión sean válidas se requerirá la presencia de la mayoría simple de sus miembros. Los acuerdos se tomarán por votación y requerirán de la mayoría simple de los presentes para su aprobación.

@@ -1,0 +1,1 @@
+Artículo 5º—Para mayor efectividad en su labor, la Comisión podrá crear en su seno subcomisiones permanentes y ad hoc que sean necesarias, cuidando la participación de los diversos sectores en cada una de ellas.

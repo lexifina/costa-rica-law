@@ -1,0 +1,1 @@
+Artículo 7º—Una vez integrada la Comisión, ésta nombrará de su seno, mediante votación y por lapso de un año, al Presidente, Vicepresidente y Secretario. Podrán ser reelectos por períodos consecutivos.
