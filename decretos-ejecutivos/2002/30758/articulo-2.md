@@ -1,0 +1,1 @@
+Artículo 1º—Conceder asueto a los empleados públicos del cantón de Los Chiles de la provincia de Alajuela, el día 4 de octubre del 2002, con las salvedades que establecen las leyes especiales, con motivo de la celebración de los festejos cívicos de dicho cantón.
