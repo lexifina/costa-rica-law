@@ -44,3 +44,4 @@ Directrices Política Presupuestaria 2001 Ministerios y EntidadesPúblicas Cubie
 | 29 | 2001-05-08 | Decreto Ejecutivo 29517 (2001-05-08) |
 | 30 | 2001-05-08 | Decreto Ejecutivo 29516 (2001-05-08) |
 | 31 | 2001-05-15 | Decreto Ejecutivo 29553 (2001-05-15) |
+| 32 | 2001-05-17 | Decreto Ejecutivo 29554 (2001-05-17) |

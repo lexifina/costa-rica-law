@@ -162,3 +162,5 @@ de sentencias judiciales en firme, así como el separar del cumplimiento de la m
 de inversiones las cauciones que deben rendirse en los estrados judiciales).
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29553 de 15 de mayo del 2001,
 para el Instituto Costarricense de Electricidad)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29554 de 17 de mayo del 2001,
+para el Museo Nacional de Costa Rica)
