@@ -1,0 +1,1 @@
+Artículo 6º.- MIDEPLAN, a través de su Área de Evaluación y Seguimiento elaborará y difundirá metodologías marco para la evaluación de planes, políticas, programas y proyectos, para ser utilizadas por las instituciones públicas como base para la evaluación.

@@ -1,0 +1,4 @@
+Artículo 9º.- Son funciones de las Unidades de Evaluación y Seguimiento:
+a) El establecimiento de mecanismos que garanticen, de conformidad con los criterios establecidos en este Decreto, el seguimiento permanente y la evaluación periódica del Plan Anual de Trabajo, de acuerdo con los lineamientos metodológicos definidos por MIDEPLAN;
+b) Incorporar los principios de sostenibilidad económica, social y ambiental establecidos en el Plan Nacional de Desarrollo, en la evaluación que la institución debe hacer de los planes, políticas, programas y proyectos incluidos en su Plan Anual de Trabajo; y
+c) Garantizar que la información generada por las Contralorías de Servicios, creadas mediante Decreto Nº 23721-PLAN, del 6 de octubre de 1994, se incorpore al proceso evaluativo de cada institución, como medio para asegurar que los servicios respondan a las necesidades de los usuarios.

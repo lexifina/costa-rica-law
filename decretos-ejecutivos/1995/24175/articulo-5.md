@@ -1,0 +1,1 @@
+Artículo 5º.- Antes del 31 de marzo de cada año las instituciones remitirán a MIDEPLAN y a la Secretaría Técnica de la Autoridad Presupuestaria, el Plan Anual de Trabajo correspondiente al año siguiente, el cual servirá de base para la formulación presupuestaria.
