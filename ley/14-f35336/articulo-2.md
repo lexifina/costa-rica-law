@@ -40,10 +40,8 @@ dispuesto en el artículo 2º de la ley Nº 105 de 9 de agosto de 1928.
 1935).
 Todas las demás pensiones, jubilaciones, gratificaciones o auxilios
 del Tesoro Público, se considerarán pensiones de gracia.
-Ninguna pensión de gracia será menor de doscientos colones (¢
-200.00) mensuales. En el caso de concurrencia de grupos o partes en un
-mismo grupo, salvo los casos de hijos de soldados de la Campaña Nacional,
-la pensión se prorrateará.
+Ninguna pensión de gracia será menor de doscientos colones ( ¢ 200.00) mensuales. En el caso de concurrencia de grupos o partes en un mismo grupo, salvo dos casos de hijos de soldados de la Campaña Nacional , la pensión se prorrateará.
+(Así reformado el párrafo anterior por el artículo 2° de la ley N° 3551 del 7 d eoctubre de 1965)
 Toda pensión de gracia existente de más de doscientos colones (¢
 200.00), será reducida de hecho a esta suma.
 (Estos dos últimos párrafos fueron incorporados por ley Nº 35 de 3
