@@ -10,4 +10,4 @@ Podrá el Órgano Director disponer del personal técnico y de apoyo que fuere n
 3. En caso de que por motivos de inhibición o recusación uno de los integrantes del citado Órgano debiere retirarse, el Ministro designará en el mismo acto en que se resuelve sobre el impedimento que afecta al servidor en cuestión, el funcionario que le sustituirá, con el fin de evitar que el asunto no sufra retrasos o demoras injustificadas.
 4. Los distintos actos procesales, con excepción del acto final o Resolución, según lo establece el artículo siguiente, podrán ser objeto de la interposición del recurso de revocatoria, en el término de las siguientes veinticuatro horas y en un plazo similar deberá ser resuelto por el Órgano Director.
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996).
-(Así reformado por el artículo 1° del decreto ejecutivo N° 26145 del 21 de abril de 1997).
+(Así reformado por el artículo 1° del decreto ejecutivo N° 26500 del 29 de agosto de 1997).
