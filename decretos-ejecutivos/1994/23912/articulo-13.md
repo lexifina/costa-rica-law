@@ -1,0 +1,2 @@
+Artículo 13—DURACIÓN DEL PROCEDIMIENTO.
+A partir de la presentación de la solicitud, o de su inicio de oficio, el procedimiento no podrá exceder de un mes calendario. Este plazo, no obstante, se podrá prorrogar por 15 días naturales adicionales, si la naturaleza de la investigación y la recolección de datos fuere difícil hacerla en el plazo señalado o si el aviso a que se refiere el artículo siguiente no se hubiere publicado 15 días naturales después de la fecha de la resolución que le da inicio al procedimiento.

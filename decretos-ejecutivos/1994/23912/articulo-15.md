@@ -1,0 +1,2 @@
+Artículo 15—INVESTIGACIÓN.
+A partir del inicio del procedimiento, el MAG iniciará la investigación del caso, recabara las pruebas que se ofrezcan y tendrá amplias facultades para gestionar cualquier tipo de pruebas que tiendan a comprobar la existencia de las causales para la interposición de una SGE, o la exención de dicha medida respecto de ciertas importaciones, de conformidad con el Acuerdo sobre la Agricultura y este Reglamento.

@@ -1,0 +1,3 @@
+Artículo 10—NATURALEZA DE LA MEDIDA Y DURACIÓN.
+La SGE por precio consistirá en un aumento en el nivel del derecho arancelario de importación correspondiente al producto agropecuario.
+En ningún caso ese aumento podrá exceder de los porcentajes definidos en la escala señalada en el párrafo 5 del artículo 5 del Acuerdo sobre la Agricultura. Se podrá mantener en vigencia la SGE por precio por todo el plazo en que el precio de importación sea menor, de conformidad con la escala a que se refiere el párrafo anterior, al precio de referencia para ese producto determinado en el Anexo 3 de este Reglamento.

@@ -1,0 +1,3 @@
+Artículo 7°—NATURALEZA DE LA MEDIDA Y DURACIÓN.
+La SGE por volumen consistirá en un aumento en el nivel del derecho arancelario de importación correspondiente al producto agropecuario. En ningún caso ese aumento podrá exceder de un tercio del nivel del derecho arancelario de importación vigente en el momento de imponerse la SGE.
+Se podrá mantener en vigencia la SGE por volumen únicamente hasta el último día del año en que se impuso la misma. Una vez iniciado un nuevo año calendario, se deberá iniciar un nuevo procedimiento, de conformidad con este Reglamento, para volver a aplicarle una SGE al producto en cuestión.

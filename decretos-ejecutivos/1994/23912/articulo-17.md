@@ -1,0 +1,3 @@
+Artículo 17.—RESOLUCIÓN FINAL.
+Una vez recabada la información y si hay mérito, el MAG, en forma conjunta con el Ministerio de Comercio Exterior y el Ministerio de Economía, Industria y Comercio, emitirá un Decreto Ejecutivo, con estricta sujeción al plazo a que se refiere el artículo 10, en el cual se pondrá en vigencia la SGE. Si no hubiere mérito para interponer la medida, el MAG simplemente emitirá una resolución administrativa motivada, la cual se le comunicará a las partes directamente interesadas apersonadas que hayan señalado domicilio para notificaciones en la ciudad de San José y al Ministerio de Comercio Exterior.
+La Dirección General de Aduanas ejecutará la medida de SGE en los términos, niveles y plazos que el Decreto Ejecutivo disponga.

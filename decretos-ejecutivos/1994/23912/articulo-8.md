@@ -1,0 +1,4 @@
+Artículo 8°—IMPORTACIONES EN CURSO.
+Estarán exentos de pagar el monto del arancel de la SGE, aquellos productos agropecuarios cuyo contrato para la exportación hacia Costa Rica se haya perfeccionado antes del día en que entre en vigencia la medida de SGE y su transporte hacia Costa Rica se haya iniciado con anterioridad a esa fecha.
+Se demostrará tal fecha mediante la presentación de la póliza de carga o mediante cualquier otro documento auténtico y legalizado consularmente que demuestre fehacientemente la fecha en que se inició efectivamente el transporte, por cualquier medio, del producto hacia Costa Rica.
+No obstante la exención anterior, el volumen de los productos exentos podrá imputarse al volumen de importación total del año inmediato posterior para efectos del cálculo del volumen de este año.
