@@ -1,0 +1,1 @@
+Artículo 10°.- La Contraloría General de la República no refrendará ni dará pase a aquellos giros que se destinen a pagar reparaciones, repuestos, gasolina, etc., para vehículos que no sean autorizados por esta ley.

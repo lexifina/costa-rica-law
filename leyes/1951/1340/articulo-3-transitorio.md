@@ -1,0 +1,1 @@
+Transitorio III.- Dentro de los treinta días siguientes a la publicación de la primera lista de vehículos autorizados de acuerdo con lo que establece el transitorio anterior la Proveeduría Nacional procederá a vender en pública subasta aquellos vehículos oficiales que deban salir del servicio oficial.

@@ -1,0 +1,2 @@
+Artículo 3°.- Cada Ministerio dispondrá, para el desarrollo de sus labores, del mismo número de vehículos que autorice la Contraloría General de la República.
+Las unidades podrán ser usadas única y exclusivamente para los trabajos oficiales dentro de las horas de oficina que marca la ley. Sin embargo, cada Ministro, cuando considere imposible que una labor determinada pueda llevarse a cabo dentro de esas horas, podrá autorizar el uso de vehículos de trabajo fuera de las horas de ley.

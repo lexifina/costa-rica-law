@@ -1,0 +1,1 @@
+Artículo 11°.- La Contraloría General aprobará y fiscalizará el fiel cumplimiento de los Reglamentos que los gobiernos municipales, las instituciones autónomas y semiautónomas del Estado deberán dictar para uso correcto de los vehículos de que dispongan.

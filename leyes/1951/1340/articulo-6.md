@@ -1,0 +1,1 @@
+Artículo 6°. La Dirección General de Tránsito está en la obligación de detener aquellos vehículos oficiales que circulen fuera de las horas de oficina, y de reportar el caso al correspondiente Ministro o Jefe de Poder. Se exceptúan de esta medida los vehículos comprendidos en el artículo 2° y el párrafo final del artículo 3.
