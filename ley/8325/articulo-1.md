@@ -1,0 +1,3 @@
+Artículo 1º—Con el propósito de adoptar las medidas necesarias para garantizar los fines de esta Ley y los compromisos adquiridos por el país en los instrumentos internacionales ratificados sobre la materia, se declara de interés público la investigación científica relacionada con las tortugas marinas y su hábitat.
+Todas las instituciones públicas que posean información científica relacionada con las tortugas marinas, estarán obligadas a facilitarla, sin costo alguno, al Ministerio del Ambiente y Energía (MINAE), cuando así se les solicite, con el fin de manejar racionalmente estas especies.
+Las organizaciones privadas que posean información relacionada con esta materia, podrán facilitársela al MINAE, cuando les sea requerida.
