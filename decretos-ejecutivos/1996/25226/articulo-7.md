@@ -1,0 +1,3 @@
+CAPITULO III
+Del trámite para la declaratoria turística
+Artículo 7°—Toda solicitud de clasificación como empresa o actividad turística, deberá presentarse ante el Departamento Técnico del Instituto, suscrita por el propio interesado o por el representante legal en caso de ser persona jurídica, con las firmas debidamente autenticadas por abogado y el timbre de ley. Dicha solicitud deberá especificar la actividad que se desarrollará, así como el lugar específico desde donde se opera, el nombre comercial a utilizar, el plazo a partir del cual se iniciarán operaciones, esto último en el caso de tratarse de un proyecto. Asimismo, deberá indicar bajo fe de juramento, la fidelidad de los documentos que se presentan.

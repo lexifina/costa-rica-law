@@ -1,0 +1,1 @@
+Artículo 18.—Contra las resoluciones señaladas en el artículo anterior, cabrá recurso de revocatoria ante la Junta Directiva del Instituto, dentro de los tres días siguientes a la fecha de su comunicación.

@@ -1,0 +1,2 @@
+Artículo 10.—El estudio de las solicitudes será efectuado por el Departamento Técnico respectivo del Instituto, a quien le corresponderá remitir una recomendación fundamentada a la Junta Directiva, que es el órgano con facultad para resolver en definitiva.
+Los gastos ocasionados en las diligencias a realizar, por los funcionarios del Instituto fuera del perímetro de la ciudad de San José, serán cubiertos por los interesados conforme a las tarifas autorizadas por la Contraloría General de la República.

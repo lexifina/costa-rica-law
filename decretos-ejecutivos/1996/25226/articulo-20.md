@@ -1,0 +1,5 @@
+Artículo 20.—Para los efectos del artículo 27 de la Ley sobre Venta de Licores y sus reformas, se entenderá que:
+a) Sólo los establecimientos declarados turísticos, de acuerdo a este reglamento, podrán optar a las patentes sin limitación para el cierre.
+b) El valor de está patente será el equivalente al doble del correspondiente a la patente de licores del establecimiento y cubrirá un período de dos años, debiendo renovarse a su termino.
+c) El Instituto recomendará a la autoridad competente, el otorgamiento de dichas patentes, para lo cual deberá solicitar previamente el criterio de las gobernaciones, o a la autoridad competente en esa materia y a las autoridades de salud, entidades que deberán emitir su anuencia. Podrá asimismo solicitar el criterio de otras entidades o personas y; realizar encuestas o. investigaciones, de previo a resolver cualquier solicitud de recomendación, si así lo estimare conveniente.
+d) El Instituto podrá recomendar la cancelación de dicha patente a las municipalidades o autoridad competente, cuando se infrinjan este Reglamento o las leyes y reglamentos relativos a la moralidad, seguridad y orden público.

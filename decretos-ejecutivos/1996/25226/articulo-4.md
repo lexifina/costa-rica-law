@@ -1,0 +1,1 @@
+Artículo 4°—Son actividades turísticas. Todas aquellas que por su naturaleza recreativa o de esparcimiento, y por estar relacionadas con el turismo, tengan como finalidad accesoria la prestación de servicios al turista, tales como transporte, venta de productos típicos o artesanales, y manifestaciones culturales.
