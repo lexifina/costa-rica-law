@@ -1,4 +1,4 @@
-Artículo 6º.- Toda embarcación atunera de bandera extranjera
+ARTICULO 6º.- Toda embarcación atunera de bandera extranjera
 interesada en obtener una licencia o permiso de pesca, deberá pagar la
 suma de $ 54,00 pesos centroamericanos (dólares) por tonelada neta de
 registro.

@@ -13,3 +13,4 @@ Reglamento Licencias Pesca Buques Extranjeros en Aguas de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-01-13 | la propia norma |
+| 2 | 1995-01-13 | Decreto Ejecutivo 24120 (1995-02-28) |

@@ -1,4 +1,4 @@
-Artículo 3º.- Para los efectos pertinentes, la Dirección General de
+ARTICULO 3º.- Para los efectos pertinentes, la Dirección General de
 Transporte Marítimo reconocerá aquéllas inspecciones de arqueo efectuadas
 por las Casas Clasificadoras reconocidas por el Gobierno de Costa Rica,
 siempre y cuando las mismas cumplan con las disposiciones contempladas en
