@@ -1,0 +1,1 @@
+Artículo 9°-Las instituciones o agencias privadas de interés social que ejecuten acciones en el campo de población, deberán presentar sus programas anuales de trabajo a esta Secretaría, quien deberá elaborar informes periódicos al Consejo sobre el desarrollo de los mismos.
