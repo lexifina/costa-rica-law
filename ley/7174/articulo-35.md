@@ -1,9 +1,0 @@
-Artículo 35.- Dentro del patrimonio forestal del Estado se constituirán:
-a) Reservas forestales: Estarán formadas por los bosques cuya función principal sea la producción de madera, y por aquellos terrenos forestales que por naturaleza sean especialmente aptos para ese fin.
-b) Zonas protectoras: Estarán formadas por los bosques y terrenos de aptitud forestal, en que el objetivo principal sea la protección del suelo, la regulación del régimen hidrológico y la conservación del ambiente y de las cuencas hidrográficas.
-c) Parques nacionales: Son las regiones establecidas para la protección y la conservación de las bellezas naturales y de la flora y la fauna de importancia nacional, a fin de que, al estar bajo vigilancia oficial, el público pueda disfrutar mejor de ellas.
-Estas áreas presentan uno o varios ecosistemas no transformados y poco modificados por la explotación y ocupación humana, en que las especies vegetales y animales, los sitios geomorfológicos y los habitats son de especial interés científico y recreativo o contienen un paisaje natural de gran belleza.
-Corresponde a la más alta autoridad competente del país adoptar medidas adecuadas para prevenir o eliminar, tan pronto como sea posible, la explotación u ocupación en toda el área, y para hacer respetar las características ecológicas, geomorfológicas y estéticas que han determinado su establecimiento.
-Los parques nacionales y reservas biológicas serán administrados por el Servicio de Parques Nacionales.
-ch) Refugios nacionales de vida silvestre: Estarán formados por aquellos bosques y terrenos cuyo uso principal sea la protección, la conservación, el incremento y el manejo de especies de la flora y la fauna silvestres.
-d) Reservas biológicas: Estarán formadas por aquellos bosques y terrenos forestales cuyo uso principal sea la conservación, el estudio y la investigación de la vida silvestre y de los ecosistemas que en ellos existan.

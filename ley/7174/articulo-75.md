@@ -1,1 +1,0 @@
-Artículo 75.- Compete al Ministerio de Recursos Naturales, Energía y Minas, por medio de la Dirección General Forestal, ordenar y encauzar todas las acciones que tengan por objeto la prevención de los incendios forestales.

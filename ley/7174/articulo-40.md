@@ -1,1 +1,0 @@
-Artículo 40.- El área de las reservas forestales, zonas protectoras, parques nacionales, refugios de vida silvestre, reservas biológicas del patrimonio forestal, sólo podrá ser reducida por ley de la República, previos los estudios técnicos correspondientes que justifiquen esta medida.

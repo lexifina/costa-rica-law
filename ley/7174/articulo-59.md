@@ -1,3 +1,0 @@
-Artículo 59.- Ninguna persona natural o jurídica podrá obtener concesiones del patrimonio forestal del Estado, en cantidades superiores a las necesidades de materia prima que demuestre requerir. A esta cantidad se le descontará la materia prima que obtenga por abastecimiento propio o la que adquiera de terceras personas.
-Serán nulas de pleno derecho, las autorizaciones que se obtengan, directamente o por medio de personas interpuestas, en contravención a lo dispuesto en este artículo.
-Quien infrinja lo dispuesto en este artículo le pagará a la Dirección General Forestal el doble de lo adquirido, sin perjuicio de las demás sanciones establecidas en esta ley.

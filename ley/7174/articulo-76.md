@@ -1,1 +1,0 @@
-Artículo 76.- Las medidas restauradoras que se adopten como consecuencia de los incendios forestales que hayan destruido la riqueza forestal, serán reguladas en un plan especial y urgente que al efecto se elaborará.

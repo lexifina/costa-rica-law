@@ -1,1 +1,0 @@
-Artículo 41.- La Dirección General Forestal podrá otorgar concesiones para el aprovechamiento de productos forestales provenientes de terrenos y bosques del patrimonio forestal del Estado, lo cual no origina derecho real alguno sobre el inmueble a favor del concesionario.

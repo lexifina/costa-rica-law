@@ -1,1 +1,0 @@
-Artículo 39.- El Poder Ejecutivo, por medio del Ministerio de Recursos Naturales, Energía y Minas, administrará las reservas nacionales. También deberá traspasar al Instituto de Desarrollo Agrario aquellos terrenos que éste le solicite, exclusivamente cuando hayan sido calificados de aptitud agropecuaria.
