@@ -1,0 +1,1 @@
+Artículo 100.—Únicamente en casos muy calificados, a juicio del superior, se podrán justificar las llegadas tardías, hasta un máximo de cinco, dentro del mismo mes calendario, con el propósito de no aplicar la sanción disciplinaria que corresponda.

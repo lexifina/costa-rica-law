@@ -1,0 +1,1 @@
+Artículo 25.—Solo en caso de inopia interna comprobada, la Dependencia correspondiente, procederá a llenar la vacante por el procedimiento de Pedimento de Personal ante la Dirección General de Servicio Civil.

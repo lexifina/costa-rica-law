@@ -1,0 +1,1 @@
+Artículo 130.- Es de interés para el Ministerio, promover y facilitar la sana recreación de sus funcionarios con el propósito de contemplar la labor cotidiana del personal con una formación humanista intelectual, estética y deportiva, que procure integrarlo positivamente en la realidad nacional.

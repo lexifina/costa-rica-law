@@ -1,0 +1,1 @@
+Artículo 96.—No se exime de las marcas a la hora de almuerzo a los servidores del Ministerio. El control de la entrada y salida del tiempo destinado al almuerzo de los funcionarios que según este reglamento se han liberado de esta obligación, queda bajo responsabilidad de cada jefe inmediato o Director General.

@@ -1,0 +1,2 @@
+Artículo 29.—Las permutas dentro de una misma Dependencia del Ministerio, podrán ser acordadas, sin otro trámite, por los jefes respectivos, siempre que se trate de puestos de igual clase y remuneración, si hubiere anuencia de los servidores.
+Toda permuta deberá ser tramitada a través de la Sección o Departamento de Personal correspondiente, con el objeto de tener el expediente al día, la cual deberá ser aprobada por la Dirección General de Servicio Civil.

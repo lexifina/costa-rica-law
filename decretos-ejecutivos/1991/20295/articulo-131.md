@@ -1,0 +1,1 @@
+Artículo 131.- Creáse en cada dependencia una Comisión de Recreación conformada de igual forma que la Comisión de Salud Ocupacional, la cual tendrá a su cargo lo relacionado con la recreación de los funcionarios, pudiendo organizar, coordinar y realizar actividades culturales y deportivas.

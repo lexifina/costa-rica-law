@@ -1,0 +1,1 @@
+Artículo 53.—Los salarios de los servidores declarados de confianza por resolución razonada de la Dirección General del Servicio Civil conforme lo dispuesto en el artículo 4°, inciso f) del Estatuto de Servicio Civil, serán fijados con las normas que establezca la Autoridad Presupuestaria.

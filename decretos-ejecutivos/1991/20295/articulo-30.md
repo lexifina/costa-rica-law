@@ -1,0 +1,1 @@
+Artículo 30.—Las permutas entre puestos de clase diferente pero de igual remuneración, requerirán además del consentimiento de los servidores y de los respectivos jefes, la aprobación de la Dirección General de Servicio Civil.

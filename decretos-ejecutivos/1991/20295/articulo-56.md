@@ -1,0 +1,1 @@
+Artículo 56.—La compensación económica por concepto de Prohibición del Ejercicio Particular de la Profesión, se regulará conforme con las disposiciones de la ley No 5867 del 15 de diciembre de 1975 y sus reformas.

@@ -1,0 +1,3 @@
+Artículo 109.—La suspensión del servidor se aplicará hasta por quince días sin goce de sueldo, una vez que se haya oído al interesado y a los compañeros de trabajo que él indique, en un máximo de tres días en los siguientes casos:
+a) Cuando el servidor, después de haber sido amonestado por escrito, incurra de nuevo en la falta que motivó la amonestación.
+b) Cuando el servidor viole alguna de las prohibiciones del artículo 37 anterior, después de haber sido amonestado verbalmente o por escrito, salvo que la falta diere mérito para el despido o estuviera sancionada por otra disposición de este reglamento.

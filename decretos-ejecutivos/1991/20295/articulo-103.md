@@ -1,0 +1,1 @@
+Artículo 103.—En aquellos casos calificados y no contemplados en este reglamento, ni en el Estatuto del Servicio Civil y su Reglamento quedará a juicio del jefe inmediato el justificar las ausencias para efectos de sanción, hasta por un período de cuatro días. No obstante en estos casos se procederá al rebajo automático de salario de los días no laborados.

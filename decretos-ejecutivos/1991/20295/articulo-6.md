@@ -1,0 +1,3 @@
+Artículo 6°—La jornada semanal de prestación de servicios es de lunes a viernes, se iniciara a las 7,30 a. m., y concluirá a las 16,00 horas. Lo anterior sin perjuicio a los ajustes que sea necesario realizar debido a la naturaleza del servicio. Dentro de esta jornada, los servidores disfrutarán de un lapso de 45 minutos para el almuerzo y 15 minutos en la mañana y en la tarde para tomarse un refrigerio.
+Los Directores y Jefes Departamentales son los responsables de aplicar esta disposición.
+El Ministerio podrá modificar los horarios establecidos siempre que existan circunstancias especiales que así lo exijan y no se cause perjuicio al servicio público y a los servidores.

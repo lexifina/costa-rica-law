@@ -1,0 +1,1 @@
+Artículo 91.—En caso de no existir reloj marcador en los locales de trabajo, el jefe inmediato dispondrá la forma en que se lleve el control de asistencia, de acuerdo con la Dirección General de cada Dependencia, debiendo remitir el informe de la asistencia, dentro de los diez primeros días de cada mes, a la Sección o Departamento de Personal.

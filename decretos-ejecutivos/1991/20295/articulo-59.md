@@ -1,0 +1,1 @@
+Artículo 59. —En caso de recargo de funciones por más de un mes, el servidor sustituto tendrá derecho a recibir su salario de acuerdo con el salario base del servidor sustituido siempre y cuando reúna los requisitos mínimos que señala el Estatuto de Servicio Civil, para el puesto indicado.

@@ -1,0 +1,2 @@
+Artículo 42.—Todos los servidores gozaran del derecho de inamovilidad salvo que el contrato de trabajo disponga, que está sujeto a ser trasladado a cualquier lugar del país, siempre y cuando se trate de puestos no cubiertos por el Régimen de Servicio Civil.
+El Ministro cuando el servicio público lo exija, podrá asignar a un servidor regular cubierto por dicho Régimen, funciones diferentes a las de su puesto, pero únicamente por un plazo de dos meses.

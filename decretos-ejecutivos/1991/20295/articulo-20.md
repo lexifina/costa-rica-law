@@ -1,0 +1,1 @@
+Artículo 20.—Las calificaciones de los aspectos señalados en el artículo anterior, se harán de conformidad con las tablas y criterios que al efecto utiliza el Departamento de Selección de Personal de la Dirección General de Servicio Civil.

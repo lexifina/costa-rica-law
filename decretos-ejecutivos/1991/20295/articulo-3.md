@@ -1,0 +1,1 @@
+Artículo 3°—Los Directores y Subdirectores, Jefes de Departamento, Jefes de Sección y en general todos aquellos funcionarios, que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables ante el Ministerio de velar por la correcta aplicación de las disposiciones del presente Reglamento.

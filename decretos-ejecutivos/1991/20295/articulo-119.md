@@ -1,0 +1,2 @@
+Artículo 119.- Los despidos de los trabajadores amparados por el Régimen de Servicio Civil, se tramitarán conforme lo dispuesto en el Estatuto de Servicio Civil, su Reglamento y las disposiciones contenidas en el presente reglamento.
+Los despidos de los de los servicios no amparados por el Régimen de Servicio Civil, se regirán por lo que al efecto dispone el Código de Trabajo, la Ley General de la Adminsitración Pública y el presente reglamento.

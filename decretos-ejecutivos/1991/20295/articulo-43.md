@@ -1,0 +1,1 @@
+Artículo 43.—Los servidores nombrados en propiedad, podrán solicitar a la Dirección de Recursos Humanos, el trámite ante la Dirección General de Servicio Civil, de reasignación siempre que se considere que las funciones del mismo han variado sustancialmente y con sujeción a lo establecido en el artículo 106 del Reglamento de Estatuto de Servicio Civil.

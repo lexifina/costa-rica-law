@@ -1,0 +1,1 @@
+Artículo 128.- Estas comisiones elaborarán su propio manual de funcionamiento y crearán las subcomisiones de salud ocupacional, que a juicio del consejo sean necesarias por dependencias y coadyuvarán en el cumplimiento de lo estipulado en el presente reglamento sobre Salud Ocupacional.

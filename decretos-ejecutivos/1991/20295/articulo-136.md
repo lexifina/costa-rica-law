@@ -1,0 +1,1 @@
+Artículo 136.- Deberá hacerse del conocimiento de los servidores mediante exhibición impresa en caracteres fácilmente legibles, en forma permanente, en por lo menos dos de los lugares más visibles de cada centro de trabajo.

@@ -1,0 +1,1 @@
+Artículo 82.- Los funcionarios que disfruten de becas nacionales o extranjeras, quedarán obligados a impartir los conocimientos adquiridos, mediante el trabajo práctico y la enseñanza teórica a otros servidores, según los requieran las unidades o centros de capacitación de las diferentes dependencias del Ministerio así como el Departamento de Adiestramiento del Ministerio.
