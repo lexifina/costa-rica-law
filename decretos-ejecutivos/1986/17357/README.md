@@ -13,3 +13,4 @@ Declara Día de la Abolición del Ejército el 1º de Diciembre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-12-24 | la propia norma |
+| 2 | 1986-12-24 | SINALEVI (sin norma nombrada) |
