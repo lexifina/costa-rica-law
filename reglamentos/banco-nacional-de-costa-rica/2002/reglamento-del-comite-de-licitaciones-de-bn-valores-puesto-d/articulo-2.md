@@ -1,0 +1,9 @@
+Artículo 2°—Funciones del Comité de Licitaciones.
+i. Corresponderá al Comité de Licitaciones:
+a. Conocer, aprobar, rechazar o corregir los pliegos de condiciones de las licitaciones restringidas, por registro y públicas de conformidad con lo dispuesto en este reglamento y en la Ley de Contratación Administrativa y su Reglamento.
+b. Adjudicar o en su caso declarar desiertas, con base en los criterios técnicos y económicos del caso, las licitaciones
+restringidas, por registro y públicas de BN Valores, Puesto de Bolsa de conformidad con lo dispuesto en este reglamento y en la Ley de Contratación Administrativa y su Reglamento.
+c. Conocer y resolver todas las objeciones y recursos que sean planteados contra el pliego de condiciones o el acto de
+adjudicación de las licitaciones restringidas. Además, conocer y resolver los Recursos de Revocatoria planteados contra los actos de adjudicación de las Licitaciones por Registro, al tenor de lo dispuesto por la Ley de Contratación Administrativa y su Reglamento General.
+d. Conocer y resolver los Recursos de Revocatoria planteados contra los actos de adjudicación de las Licitaciones por Registro, al tenor de lo dispuesto por la Ley de Contratación Administrativa y su Reglamento General.
+La adjudicación de licitaciones restringidas, por registro y las licitaciones públicas le corresponde al Comité de Licitaciones.

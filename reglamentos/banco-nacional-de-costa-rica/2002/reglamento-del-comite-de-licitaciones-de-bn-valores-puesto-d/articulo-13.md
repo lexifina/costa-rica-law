@@ -1,0 +1,1 @@
+Artículo 13.—Fiscalización. La Fiscalización de cumplimiento de este reglamento estará a cargo de la Auditoría Interna de BN Valores, Puesto de Bolsa, S. A. El Comité de Licitaciones deberá remitir copia de las actas a la Auditoría Interna de BN Valores, Puesto de Bolsa dentro de los cinco días hábiles después de firmadas las mismas.

@@ -1,0 +1,3 @@
+Artículo 8°—Actas. De cada sesión se levantará un acta con indicación de los asistentes, lugar, hora de inicio y de conclusión, los puntos principales de las deliberaciones, la forma y el resultado de la votación y el contenido de los acuerdos.
+Las actas se aprobarán en la siguiente sesión ordinaria y antes de ello, los acuerdos carecerán de firmeza a menos que los miembros presentes en la sesión en que se adoptan, mediante votación no menor de dos tercios de la totalidad de los miembros del Órgano, acuerden declarar su firmeza.
+Dichas actas serán firmadas por los miembros del Órgano presentes en la respectiva sesión. Quienes hayan votado en contra de un acuerdo adoptado por el Comité, deberán hacer constar en el acta tal circunstancia y sus justificantes.

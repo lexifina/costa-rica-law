@@ -1,0 +1,3 @@
+Artículo 9°—Refrendo a los acuerdos del Comité de Licitaciones.
+Para efectos de lo dispuesto en el artículo 8° del "Reglamento sobre el Refrendo de las contrataciones de la Administración Pública", se designa al Jefe de Control de Riesgo, como la unidad interna encargada de dar el refrendo a las contrataciones administrativas, cuando éstas lo requieran.
+El Jefe de Control de Riesgo remitirá a la Gerencia General del Puesto de Bolsa un informe sobre los acuerdos adoptados por el Comité de Licitaciones. La Gerencia informará, cuando así lo estime conveniente, a la Junta Directiva del Puesto de Bolsa, de los acuerdos tomados por dicho Órgano.
