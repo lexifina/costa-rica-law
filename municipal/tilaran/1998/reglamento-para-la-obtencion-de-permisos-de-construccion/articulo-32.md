@@ -1,0 +1,1 @@
+Artículo 32.—Este Reglamento rige en todo el Cantón de Tilarán por lo tanto, no podrá ser construido, ampliado, reparado, remodelado o demolido ningún edificio si no ha llenado los trámites y cumplido las disposiciones contenidas en el mismo

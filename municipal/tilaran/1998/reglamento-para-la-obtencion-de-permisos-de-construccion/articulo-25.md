@@ -1,0 +1,1 @@
+Artículo 25.—No se permitirá abrir balcones ni ventanas que den vista, amenos que intervenga una distancia de dos metros y medio, medida entre el plano vertical de la línea más sobresaliente de la ventana o balcón, y el plano vertical de la línea divisoria de los predios, en el que dichas líneas se estrechan más, si son paralelas.

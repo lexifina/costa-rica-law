@@ -1,0 +1,1 @@
+Artículo 7° — El propietario y el Ingeniero o Arquitecto responsables del diseño de la edificación responderá de los datos que se indiquen en el proyecto o diseño. La Municipalidad será responsable únicamente por los daños que se refieren a alineamientos o niveles.

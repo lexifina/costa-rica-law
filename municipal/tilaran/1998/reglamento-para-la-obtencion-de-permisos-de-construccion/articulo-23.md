@@ -1,0 +1,1 @@
+Artículo 23.— El número oficial será colocado a la entrada de cada predio y deberá tener características que lo hagan claramente visibles. La Municipalidad está autorizada para colocar placas de numeración de calles y de casa en las paredes. En caso requerido el propietario deberá dejar el espacio necesario en al fachada si se requiere.

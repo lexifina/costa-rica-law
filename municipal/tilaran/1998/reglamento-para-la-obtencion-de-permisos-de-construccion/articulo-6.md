@@ -1,0 +1,1 @@
+Artículo 6° — La ubicación de edificios públicos y privados se hará de acuerdo a lo previsto en el plan regulador si lo hubiera, y en su defecto, donde lo autoricen los Ministerios correspondientes, la Municipalidad y el Invu, salvo que la ubicación de los mismos deba obedecer a razones de carácter técnico.

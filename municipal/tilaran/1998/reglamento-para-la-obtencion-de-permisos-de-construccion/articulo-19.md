@@ -1,0 +1,1 @@
+Artículo 19.—La Municipalidad garantizará la libertad para adoptar la arquitectura o diseño de las fachadas de las construcciones. Sin embargo, podrá hacer objeciones a la misma a fin de que guarde relación estética con la zona en que se ubiquen.

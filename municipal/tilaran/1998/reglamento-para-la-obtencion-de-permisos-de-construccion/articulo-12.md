@@ -1,0 +1,2 @@
+Artículo 12.—Si el Consejo Municipal o el Inspector encontrare algún defecto u omisión, o considerare que algún aspecto técnico en los planos deban modificarse, lo comunicará al interesado a efecto de que procedan a hacer las enmiendas señaladas.
+La omisión de cualquiera de los requisitos anteriores, impedirá a la Municipalidad conocer de la solicitud. Su tramitación se mantendrá en suspenso hasta que el interesado complete la misma.
