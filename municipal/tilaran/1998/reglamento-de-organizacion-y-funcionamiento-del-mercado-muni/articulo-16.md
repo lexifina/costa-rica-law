@@ -1,1 +1,0 @@
-Artículo 16.—Podrán también ser inquilinos los causahabientes a título universal y los cesionarios del adjudicatario; pero las cesiones para su validez, necesitan de la aprobación del Administrador del mercado si lo hubiere o del Ejecutivo Municipal, sin cuya autorización esos contratos carecerán de valor y e principal podrá ser resuelto de pleno derecho por la Municipalidad.

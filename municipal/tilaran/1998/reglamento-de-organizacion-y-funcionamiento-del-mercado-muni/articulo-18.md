@@ -1,1 +1,0 @@
-Artículo 18.—Ningún inquilino de puestos permanentes o transitorios podrá vender o expender artículos o mercancías diferentes a aquellas para las cuales le fue adjudicado el puesto. La infracción a esta disposición dará lugar a la cancelación automática del contrato y al cierre del negocio durante 8 días.

@@ -1,1 +1,0 @@
-Artículo 19.—El cambio de destino de puesto para expendio de artículos o mercaderías distintas a alas autorizadas, exige al interesado a dirigir una solicitud escrita al Consejo Municipal, dicha solicitud deberá contener un timbre municipal de 5,000.00 colones, indicando el número de puesto, ubicación, los artículos o mercadería que actualmente expende y los que aspira a vender.
