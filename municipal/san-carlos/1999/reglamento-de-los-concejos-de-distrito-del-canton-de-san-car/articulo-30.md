@@ -1,0 +1,1 @@
+Artículo 30.-Finalizada la exposición del ciudadano o ciudadanos, el presidente concederá el uso de la palabra a los concejales que lo soliciten para que puedan formular las preguntas que estimen convenientes.

@@ -1,0 +1,1 @@
+Artículo 21.-Los Concejos de Distrito deberán reunirse ordinariamente al menos dos veces al mes, debiendo comunicar a la Municipalidad y a los vecinos del distrito el día, lugar y hora que designen para tal efecto;

@@ -1,0 +1,1 @@
+Artículo 27.-Las sesiones extraordinarias deberán ser convocadas personalmente, por el presidente del Concejo de Distrito o por un mínimo de tres concejales con veinticuatro horas de antelación y solo se conocerá del asunto indicado.

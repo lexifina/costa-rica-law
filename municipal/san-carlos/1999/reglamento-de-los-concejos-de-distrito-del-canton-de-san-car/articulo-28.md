@@ -1,0 +1,1 @@
+Artículo 28.-Cuando uno o varios vecinos deseen presentar algún asunto de interés para el distrito, deberán presentarse a una sesión en el domicilio del Concejo de Distrito y antes de iniciar la sesión, solicitar audiencia a quien presida, informando el motivo.

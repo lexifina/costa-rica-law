@@ -1,0 +1,1 @@
+Artículo 33.-Los acuerdos serán tomados por simple mayoría de votos de los miembros presentes y se tendrán por firmes. En caso de empate se somete de nuevo a votación y si persistiera el empate se pasará al Concejo Municipal para que lo defina.
