@@ -14,3 +14,4 @@ Disposiciones sobre el Procedimiento Administrativo para Entidades Comercializad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-09-18 | la propia norma |
+| 2 | 2002-09-13 | Reglamento 0 (2002-09-13) |
