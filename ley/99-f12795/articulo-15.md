@@ -1,0 +1,1 @@
+Artículo 15.-El quince por ciento que el referido decreto de 13 de noviembre de 1845 establece en favor del Hospital, se entiende deducidos los gastos que se emprendan cada vez que se celebre la lotería.

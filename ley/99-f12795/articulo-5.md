@@ -1,0 +1,1 @@
+Artículo 5°. -Para que el valor de los números no sufra variaciones, se sellar n para cada vez, mil ciento cincuenta billetes que se dividir n en cuatro cuartas los que puedan venderse íntegros al precio de un peso o por cuarto al valor de dos reales.

@@ -1,0 +1,1 @@
+Artículo 13.-Hecha la publicación, el Secretario apunta el número, un vocal el premio, y otro, en una gran pizarra que estar a la vista, apunta uno y otro, y los niños colocarán las bolas en una tabla con sus cóncavos, la cual tendrá su cubierta de vidriera para que al fin del acto se vean a la vez los números que se publicaron.
