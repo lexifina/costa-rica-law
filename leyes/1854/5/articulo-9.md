@@ -1,0 +1,1 @@
+Art 9°.- Si el tabacal estuviese plantado en terreno de otro dueño, y se le probare a este que se ha cometido semejante delito con su consentimiento, será reputado como cómplice y acreedor a las penas que la ley designa.
