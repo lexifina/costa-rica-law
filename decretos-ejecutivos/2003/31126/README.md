@@ -15,3 +15,4 @@ Integra la Comisión Nacional para la Gestión de la Biodiversidad
 | --- | --- | --- |
 | 1 | 2003-04-01 | la propia norma |
 | 2 | 2003-10-08 | Decreto Ejecutivo 31501 (2003-10-08) |
+| 3 | 2004-08-09 | Decreto Ejecutivo 32047 (2004-08-09) |

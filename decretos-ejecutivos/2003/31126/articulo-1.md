@@ -13,8 +13,10 @@ a) Señor Allan Flores Moya, representante del Ministro del Ambiente y Energía,
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 b) Señor Raúl Solórzano Soto, Director Superior del Sistema Nacional de Áreas de Conservación.
 c) Señor Alfredo Bolaños Herrera, representante del Ministerio de Agricultura y Ganadería.
-d) Señora Rosy Carballo Picado, representante de la Ministra de Salud.
-e) Señora Susana Vásquez Álvarez, representante del Ministro de Comercio Exterior.
+d) Fanny Levin Vargas, representante de la Ministra de Salud.
+(Así reformado el inciso d) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
+e) Alejandra Aguilar Schramm, representante del Ministro de Comercio Exterior.
+(Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
 f) Señor Carlos Hernández Porras, representante de la Asociación Mesa Nacional Campesina.
 g) Señor Reynaldo González Segura, representante de la Asociación Mesa Nacional Indígena.
 h) Señor Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y Acuacultura.
@@ -29,11 +31,13 @@ b) Señora Lesbia Sevilla Estrada, representante del Director Superior del Siste
 c) Señor Carlos Cordero Morales, representante del Ministro de Agricultura y Ganadería.
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 d) Señor Jorge Mena Arce, representante del Ministro de Salud.
-e) Señora Tatiana Mora Rodríguez, representante del Ministro de Comercio Exterior.
+e) Natalia Hernández Ramírez, representante del Ministro de Comercio Exterior.
+(Así reformado el inciso e) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
 f) Señor Rafael Salazar Murillo, representante de la Asociación Mesa Nacional Campesina.
 g) Señor Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
 h) Señora Ana Rita Vásquez Arias, representante del Instituto Costarricense de Pesca y Acuacultura.
 i) Señora Irina Ramos Arrocha, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
 (Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 j) Señor Ruperto Quesada Monge, representante de la Comisión Nacional de Rectores.
-k) Señor Carlos Luis Sandí Chinchilla representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
+k) Eduardo Aguilar Espinoza, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
+(Así reformado el inciso k) mediante el Decreto Ejecutivo N°. 32047, de fecha 9 de agosto del 2004.)
