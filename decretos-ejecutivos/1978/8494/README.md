@@ -14,3 +14,4 @@ Establece Reserva Forestal Golfo Dulce
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-06-01 | la propia norma |
+| 2 | 1978-11-30 | Decreto Ejecutivo 9388 (1978-11-30) |

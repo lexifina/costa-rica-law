@@ -14,10 +14,10 @@ Artículo 1°.—Establécese la Reserva Forestal Golfo Dulce que comprende el t
 Línea | Lugar | Rumbo | Distancia | Coordenadas
 1 | 1 Km. Noreste de Sierpe sigue el margen de los pantanos del río Sierpe hasta el punto 9 | N 48° 19’E | 2 444 | 313,175 | 522,175
 2 | | S 68° 12’ E | 2154 | 314,800 | 524,000
-3 | | N 8° 32’ W | 2 022 | 314,000 | 526, 000
-4 | N 68° 12’ E | 1077 | 316,000 | 525,700
-5 | | S 72° 51’ E | 2 119 | 316,400 | 526,700
-6 | | S 35° 41’ E | 2 185 | 315,775 | 528,725
+(*)3 | Viene desde la línea 1, a 1 Km Noreste de Sierpe, bordeando los pantanos del río Sierpe. Desde aquí los atraviesa hasta el punto 7 continuando por el margen para llegar a la línea 9. | S 45° 00’ E | 1.414.21 | 313 000 | 527 000
+(*)4 | | E FRANCO | 1. 000 | 313 000 | 528 000
+(*)5 | | N 45° 00’ E | 1. 414.21 | 314 000 | 529 000
+(*)6 (Así reformadas las líneas 3,4,5 y 6 por el artículo 1° del decreto ejecutivo N° 9388 del 30 de noviembre de 1978) | | E FRANCO | 1.000 | 314 000 | 530 000
 7 | | S 56° 19’ E | 7 211 | 314,000 | 530,000
 8 | | S 14° 41’ E | 2 171 | 310,000 | 536,000
 9 | | S 58° 50’ E | 7 537 | 307, 900 | 536,550
