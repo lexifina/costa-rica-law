@@ -1,0 +1,3 @@
+Artículo 25.—Periodo de prueba.
+Todo aspirante nombrado como miembro de la Policía Penitenciaria deberá demostrar su idoneidad para el puesto durante un periodo de prueba de tres meses. Corresponderá al Jefe inmediato hacer la evaluación correspondiente y remitir el resultado de la misma, al menos con quince días naturales de antelación al vencimiento de dicho periodo, a la Dirección de Recursos Humanos.
+Una vez concluido y aprobado satisfactoriamente, su nombramiento en propiedad le dará derecho a todas las prerrogativas de ley. Dicho nombramiento deberá ser solicitado por su Superior Policial jerárquico inmediato en forma escrita al Director de la Policía Penitenciaria y éste lo remitirá a la Dirección de Recursos Humanos para lo pertinente.

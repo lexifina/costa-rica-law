@@ -1,0 +1,2 @@
+Artículo 132.—Resolución.
+El Consejo de Personal resolverá el asunto en primera instancia, debiendo comunicar al servidor, la conclusión del proceso seguido en su contra y la sanción disciplinaria a aplicar. El servidor afectado por una medida disciplinaria, tendrá derecho a recurrir ante el Ministro del ramo, dentro de los tres días siguientes al de la notificación. Si no se apela, el asunto se remitirá al Ministro, quien resolverá en definitiva y dará por agotada la vía administrativa.

@@ -1,0 +1,2 @@
+Artículo 24.—Nombramiento.
+Una vez que se produzca la vacante, la Dirección de Recursos Humanos tendrá ocho días hábiles para efectuar el nombramiento. Para tal efecto, comunicará la vacante a quienes formen parte del registro de elegibles, para que estos dentro del tercer día hábil a partir de la comunicación, manifiesten su interés en la vacante. Pasado tal plazo de los tres días hábiles, se nombrará de inmediato entre aquéllos que hayan expresado su anuencia al posible nombramiento.

@@ -1,0 +1,2 @@
+Artículo 26.—Reingreso a la Policía Penitenciaria.
+El personal que reingrese a brindar servicios a la Policía Penitenciaria, deberá ajustarse a los mismos requisitos de admisión que establece el artículo 21 de este Reglamento. En el caso de que uno de los aspirantes haya aprobado cualesquiera de los Cursos de Formación Profesional, se le revalidara el mismo, salvo que su contenido sea diferente, en cuyo caso deberá tomar el Curso correspondiente y aprobarlo.

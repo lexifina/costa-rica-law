@@ -1,0 +1,2 @@
+Artículo 92.—Impedimento.
+Estará impedido de intervenir directa o indirectamente en la adjudicación de becas, aquél miembro de la Comisión de Becas que tuviere interés personal en ello por concursar a título personal, o/y por ser pariente hasta segundo grado de consanguinidad o afinidad con alguno de los concursantes. En este caso, al funcionario que le asiste el impedimento, deberá excusarse ante la Comisión, la cual deberá designar al miembro suplente respectivo.

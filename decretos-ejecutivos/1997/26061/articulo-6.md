@@ -1,0 +1,9 @@
+Artículo 6°—De la policía penitenciaria
+Son funciones generales de la Policía Penitenciaria, además de las que establece la Ley General de Policía de acuerdo a su competencia, las siguientes:
+a) Mantener el orden y la seguridad en todos los Centros Penitenciarios del País, mediante el control de aquellos actos de insubordinación, individual o colectiva, protestas masivas, motines, riñas y evasiones y otras acciones que pongan en peligro la seguridad personal e institucional;
+b) Realizar el registro de visitantes, funcionarios, objetos y vehículos a la entrada y salida de los Centros y demás edificaciones del Sistema Penitenciario, de conformidad con lo que establece el reglamento respectivo;
+c) Realizar el registro de las personas privadas de libertad que permanezcan o transiten por los Centros o Unidades del Sistema Penitenciario cuando fuere necesario, de acuerdo con las disposiciones legales y reglamentarias dictadas al efecto;
+d) Efectuar la requisa y el decomiso de armas y objetos utilizados como armas o suceptibles de ser utilizados como tales, drogas y demás sustancias de uso no autorizado, así como cualquier otro objeto o artefacto que por razones de seguridad se consideren inconvenientes en los Centros o Unidades del Sistema Penitenciario, de conformidad con las disposiciones legales y reglamentarias dictadas al efecto;
+e) Mantener el control de armas y equipos de seguridad dispuestos para el cumplimiento de su misión;
+f) Utilizar las armas de fuego y equipos de seguridad designados para el cumplimiento efectivo de la función, de acuerdo con las disposiciones legales y reglamentarias vigentes; y.
+g) Coordinar con los otros cuerpos policiales y órganos judiciales del País, así como de otros Ministerios e Instituciones, aquéllas acciones que resulten de competencia de éstos y cuyo origen o desarrollo esté relacionado con la institución.

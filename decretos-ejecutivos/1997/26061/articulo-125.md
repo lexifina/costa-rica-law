@@ -1,0 +1,2 @@
+Artículo 125.—Subsistema de promoción.
+El Subsistema de promoción se aplicara con base en concursos de antecedentes para llenar todas las plazas vacantes autorizadas y para llevar el registro de elegibles, el cual se conformará de acuerdo a las disposiciones que para tal efecto emita el Consejo de Personal a través de la Dirección de Recursos Humanos. Abarcara todas las clases de puestos existentes en el Manual Descriptivo de Puestos para la Policía Penitenciaria.

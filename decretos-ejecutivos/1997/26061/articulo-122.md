@@ -1,0 +1,3 @@
+Artículo 122.—Período de la evaluación del desempeño.
+La evaluación se realizará en el mes de enero de cada año, y comprenderá los doce meses anteriores a la fecha en que aplique, debiéndose remitir a la Dirección de Recursos Humanos dentro del mes siguiente tal evaluación.
+En el caso de los servidores que no fueron oportunamente evaluados por circunstancias especiales, una vez superadas las mismas, deberá evaluarse y remitirse a la Dirección de Recursos Humanos dentro del mes siguiente a la evaluación. En los casos de servidores que se encuentren disfrutando de becas o licencias con goce de salario superiores a seis meses, se les dará el incentivo económico con base en la calificación obtenida en el periodo anterior.

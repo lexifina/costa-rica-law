@@ -1,0 +1,3 @@
+Artículo 71.—Gestión institucional.
+El Ministerio de Justicia a través de la Escuela Nacional de Policía Penitenciaria, gestionara ante los diferentes Gobiernos, Organismos e Instituciones, la participación de sus funcionarios en todo programa de capacitación que se realice en nuestro País y en el extranjero, y que tengan relación con la función policial, promoviendo a la vez la adjudicación de becas para la realización de estudios de interés institucional.
+De toda gestión que la Escuela Nacional de Policía Penitenciaria realice, se deberá participar a la Dirección de la Policía Penitenciaria para que realice las observaciones que procedan.

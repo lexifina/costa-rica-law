@@ -1,0 +1,2 @@
+Artículo 43.—Solicitudes de permiso.
+Las solicitudes de permiso deberán ser presentadas por el interesado ante el Jefe inmediato, al menos con diez días hábiles de anticipación a la fecha de disfrute. La solicitud de permiso deberá indicar todos los detalles posibles que la justifiquen y adjuntar todos los documentos probatorios que sustenten su petición. El Jefe inmediato del interesado, deberá poner en conocimiento al Director de la Policía Penitenciaria dentro de los dos días naturales siguientes a la presentación de toda solicitud de permiso que se tramite.

@@ -1,0 +1,3 @@
+Artículo 57.—Lapso para imponer sanciones.
+Las amonestaciones verbales o escritas por faltas al régimen disciplinario, deberán imponerse dentro de los quince días naturales posteriores a aquél en que se cometió la falla o que los Superiores tuvieron conocimiento de ella; las suspensiones y despidos deberán imponerse en el transcurso del mes posterior al día en que se cometió la falta o que los Superiores tuvieron conocimiento de ello.
+En los casos en que se requiera de investigación para comprobar la existencia de la falta que se imputa al servidor, el término indicado se contará a partir de la fecha en que la investigación concluyó y se ponga en conocimiento del Jerarca respectivo.

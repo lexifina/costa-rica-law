@@ -1,0 +1,2 @@
+Artículo 121.—Cursos de promoción y ascensos.
+Para poder ingresar a los cursos de promoción y ascenso, se tomara en cuenta, además del respectivo grado policial que se requiera conforme las regulaciones sobre promoción y concursos que se establecen en el presente Reglamento, el récord laboral (antigüedad, méritos, calificaciones de servicios, etc.), pudiéndose además considerar los resultados de su participación en Cursos anteriores.

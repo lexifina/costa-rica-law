@@ -1,0 +1,2 @@
+Artículo 23.—Registro de elegibles.
+Los aspirantes que aprueben las diferentes pruebas y exámenes requeridos para su nombramiento como miembro de la Policía Penitenciaria, integraran un registro de elegibles por cada concurso, el cual se regirá por un orden descendente de acuerdo con la nota obtenida. Dicho registro tendrá una vigencia de dos años; concluido este periodo de tiempo, se eliminarán todos los atestados y ofertas de servicio.

@@ -1,0 +1,2 @@
+Artículo 81.—Informe a la Escuela Nacional de Policía Penitenciaria.
+Todo funcionario que goce de una beca y haya finalizado la misma, debe rendir un informe a la Escuela Nacional de Policía Penitenciaria dentro del plazo de treinta días naturales, sobre su participación en el programa o curso donde asistió, bajo pena de aplicación de una sanción disciplinaria de apercibimiento por escrito o una mayor si el caso lo amerita, en caso de incumplimiento de esta disposición.

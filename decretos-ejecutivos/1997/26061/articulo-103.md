@@ -1,0 +1,3 @@
+Artículo 103.—Horario para asistir al comedor y su comportamiento.
+En el caso de que la cantidad de estudiantes así lo requiera, se establecerá un horario para que cada grupo de estudiantes asista al comedor, horario que deberá ser observado obligatoriamente. En todo caso, los estudiantes antes de ingresar al comedor, procederán a formarse, ingresando en orden.
+Los estudiantes deberán comportarse de una manera seria y ordenada, pudiendo conversar en un tono de voz moderada, sin emitir bromas fuera de tono. Inmediatamente después de haber terminado de ingerir los alimentos, el estudiante recogerá los utensilios y luego podrá retirarse del comedor pidiendo el permiso necesario y guardando el respeto debido a los compañeros que allí queden.

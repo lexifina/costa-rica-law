@@ -1,0 +1,3 @@
+Artículo 99.- Sanción.
+Todo acto irregular, comisión de delito o falta del educando que demande la aplicación de una sanción, deberá ajustarse al debido proceso. En el caso de las faltas leves, se instruirá el expediente por parte de la Dirección de la Escuela Nacional de Policía Penitenciaria. En caso de faltas graves, deberá remitirse el informe correspondiente a la Dirección Jurídica, a efecto de que se levante el respectivo procedimiento disciplinario.
+Toda medida correctiva se consignará en el respectivo expediente que al efecto llevara la Dirección de la Escuela Nacional de Policía Penitenciaria.
