@@ -1,0 +1,3 @@
+Art 2° En el caso de existir la compañía de que habla el artículo 1° de la contrata de camino, formada dentro del término estipulado en el art 9° y de la prórroga de seis meses concedida por el Gobierno Provisorio y bajo las condiciones que establece el art 1° ya citado, podrá aquella, no obstante la de declaratoria del art 1° de este decreto, hacer uso del derecho que le concede el art 12 de la referida contrata, procurando en este caso el Poder Ejecutivo trata; procurando en este caso el Poder Ejecutivo obtener, cuanto antes el correspondiente laudo.
+Dado en San José, julio treinta y uno de mil ochocientos sesenta y uno.
+Poder Ejecutivo. San José, agosto cinco de mil ochocientos sesenta y uno.
