@@ -10,5 +10,6 @@ Considerando:
 decretan:
 El siguiente,
 REGLAMENTO SOBRE LA ASIGNACIÓN DE CONTINGENTES PARA EXPORTACIÓN OTORGADOS POR LOS TRATADOS DE LIBRE COMERCIO
-Artículo 1°—Este Reglamento regula la asignación y administración de los contingentes de exportación que le corresponden a Costa Rica al amparo del Tratado de Libre Comercio entre la República de Costa Rica y los Estados Unidos Mexicanos, del Tratado de Libre Comercio entre Centroamérica y República Dominicana y de cualquier otro tratado de libre comercio que Costa Rica suscriba en el futuro en la medida en que la normativa de este último así lo permita.
-En lo no previsto expresamente en este Reglamento, se aplicarán las normas de los tratados comerciales suscritos por el país, la Ley General de la Administración Pública y demás leyes y reglamentos aplicables.
+NOTA: Este Reglamento fue reformado integralmente mediante Decreto Ejecutivo N° 30899 de 20 de diciembre de 2002, a fin de que su texto se lea de la siguiente forma:
+Artículo 1º—Este Reglamento regula la asignación y administración de los contingentes de exportación que le corresponden a Costa Rica al amparo del Tratado de Libre Comercio entre la República de Costa Rica y los Estados Unidos Mexicanos.
+En lo no previsto expresamente en este Reglamento, se aplicarán en lo conducente las normas del referido Tratado, la Ley General de la Administración Pública y demás leyes y reglamentos aplicables.

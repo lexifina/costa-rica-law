@@ -15,3 +15,4 @@ Reglamento . Asignac. Contingentes Exportación por Tratados Libre Comercio
 | --- | --- | --- |
 | 1 | 1999-10-08 | la propia norma |
 | 2 | 2000-04-03 | Decreto Ejecutivo 28603 (2000-04-03) |
+| 3 | 2002-12-20 | Decreto Ejecutivo 30899 (2002-12-20) |

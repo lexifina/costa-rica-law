@@ -1,2 +1,0 @@
-Transitorio III.—Para efectos de la asignación de los contingentes de exportación que para el año de 2000 le corresponden a Costa Rica al amparo del Tratado de Libre Comercio entre la República de Costa Rica y los Estados Unidos Mexicanos, la fecha de la convocatoria ordinaria estipulada en el artículo 3° de este Reglamento no será aplicable.
-Dado en la Presidencia de la República.—San José, a los cinco días del mes de octubre de mil novecientos noventa y nueve.
