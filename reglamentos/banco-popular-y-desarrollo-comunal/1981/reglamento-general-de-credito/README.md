@@ -14,3 +14,4 @@ Reglamento General de Crédito.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-01-13 | la propia norma |
+| 2 | 1982-06-04 | Reglamento 1348 (1982-06-04) |
