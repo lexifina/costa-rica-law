@@ -1,0 +1,1 @@
+Art 4° Las patentes serán expedidas por la Subsecretaría de Hacienda, por un tiempo que no baje de tres meses ni pase de un año, previo pago de cincuenta pesos por trimestre, y registrados en la Inspección General de Hacienda en conformidad con la orden Suprema n° 157 de 21 de abril de 1874.
