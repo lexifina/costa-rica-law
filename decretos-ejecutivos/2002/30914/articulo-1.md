@@ -1,3 +1,4 @@
+(NOTA DE SINALEVI: El Poder Ejecutivo mediante el decreto N° 33948 del 21 de mayo del 2007, aprobó una nueva Fijación de dietas que devengarán los miembros del Consejo Nacional de Migración por las sesiones ordinarias y extraordinarias, en la suma de de veinticuatro mil ciento cuarenta y un colones con treinta y dos céntimos (¢ 24.141,32).
 Nº 30914-G
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE GOBERNACIÓN Y POLICÍA,
@@ -12,4 +13,5 @@ Considerando:
 6º—Que con base en la indicada variación, el monto de cada sesión del Consejo Nacional de Migración para el 2002, se estima en la suma de diecisiete mil doscientos cuarenta y cuatro colones ochenta y siete céntimos (¢ 17.244,87).
 7º—Que el pago de las dietas está sujeto al presupuesto de cada institución y a la asistencia a las correspondientes sesiones, según lo establece el artículo 6° del Reglamento a la Ley General de Migración y Extranjería, Decreto Ejecutivo Nº 19010-G, del 11 de mayo de 1989. Por tanto,
 Decretan:
-Artículo 1º—Se fijan las dietas que devengarán los miembros del Consejo Nacional de Migración por las sesiones ordinarias y extraordinarias que se celebren durante el año 2002, en la suma de diecisiete mil doscientos cuarenta y cuatro colones ochenta y siete céntimos (¢17.244,87).
+Artículo 1º—Se fijan las dietas que devengarán los miembros del Consejo Nacional de Migración por las sesiones ordinarias y extraordinarias, en la suma de diecisiete mil doscientos cuarenta y cuatro colones ochenta y siete céntimos (¢17.244,87).
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31217 del 10 de junio de 2003)

@@ -14,3 +14,4 @@ Fija dietas miembros del Consejo Nacional de Migración sesiones ordinarias y ex
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-08 | la propia norma |
+| 2 | 2003-06-10 | Decreto Ejecutivo 31217 (2003-06-10) |
