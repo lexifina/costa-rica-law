@@ -1,1 +1,0 @@
-Artículo 52.-No pueden ser nombrados Representantes en una Provincia los que, al tiempo que se hace la elección en ella, ejerzan alguna autoridad o jurisdicción que se extienda a todo el territorio de la misma Provincia.

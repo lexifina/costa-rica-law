@@ -1,1 +1,0 @@
-Artículo 87.-Los Ministros de Estado presentarán al Congreso los proyectos de ley o de otros actos legislativos que acordare el Poder Ejecutivo, y tomarán parte en la discusión de dichos proyectos y en la de cualesquiera otros; más no tendrán voto deliberativo.

@@ -1,1 +1,0 @@
-Artículo 55.-Ningún proyecto de ley ó de otro acto legislativo podrá ser aprobados, sin haber sufrido antes tres diversas discusiones y en distinto día cada una, excepto que la Cámara lo declare urgente, en cuyo caso se tendrá una discusión en cada sesión.

@@ -1,1 +1,0 @@
-Artículo 27.-La votación para elección de Presidente y Vice-Presidente de la República , se hará sufragando cada elector en el edificio electoral por medio de una papeleta en que esté escrito el nombre del individuo por quien se vota, bajo la firma del sufragante; y lo mismo se practicará en las elecciones para Representantes.

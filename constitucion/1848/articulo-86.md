@@ -1,1 +1,0 @@
-Artículo 86.-Cada Ministro de Estado presentará al Congreso, en los primeros ocho días de su sesiones ordinarias, una memoria escrita acerca del estado en que se hallen los negocios del ministerio de su cargo, proponiendo lo que el Congreso deba hacer para mejorarlos.

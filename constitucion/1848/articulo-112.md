@@ -1,1 +1,0 @@
-Artículo 112.-A excepción de las contribuciones establecidas por la ley, ningún costarricense será privado de su propiedad sin su libre consentimiento: a menos que la necesidad pública, calificada tal con arreglo a la ley, así lo exija, previa indemnización de su justo valor determinado por peritos.

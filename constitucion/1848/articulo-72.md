@@ -1,1 +1,0 @@
-Artículo 72.-Cuando por muerte, renuncia u otra causa vacare el destino de Presidente o el de Vice Presidente de la República, deberá en los casos que determine la ley, hacerse elección extraordinaria para llenar la vacante, y el electo durará todo el tiempo que falte para completar el período constitucional.

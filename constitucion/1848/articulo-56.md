@@ -1,1 +1,0 @@
-Artículo 56.-Ningún proyecto de ley ó de otro acto legislativo, aunque aprobado por el Congreso, tendrá fuerza de ley sin la sanción del Poder Ejecutivo: si este hallare por conveniente dársela, lo hará mandándoles ejecutar; mas si la rehusare, los objetará y devolverá al Congreso con las observaciones que le haga.

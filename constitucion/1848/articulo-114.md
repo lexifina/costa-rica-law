@@ -1,1 +1,0 @@
-Artículo 114.-Todos los costarricenses tienen la facultad de reclamar sus derechos ante los depositarios de la pública autoridad, con la moderación y respecto debidos; más ningún individuo o asociación particular podrá representar a nombre del pueblo, ni arrogarse tal calificación. Los que contravinieren a esta disposición serán juzgados conforme a las leyes.

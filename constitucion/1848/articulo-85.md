@@ -1,1 +1,0 @@
-Artículo 85.-Los Ministros de Estado darán al Congreso, con anuencia del Poder Ejecutivo, todos los informes y noticias que les pida sobre los negocios que se versan en sus respectivos ministerios, excepto sobre aquello que merezca reserva, mientras la merezca a juicio del Poder Ejecutivo.

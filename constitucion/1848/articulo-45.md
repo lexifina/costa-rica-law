@@ -1,1 +1,0 @@
-Artículo 45.-Puede también suspenderlos cuando falten gravemente al debido respeto a la Cámara ; pero para esto, es necesario que la decisión se haga por las dos terceras partes de los miembros que concurran a la sesión y que hayan pasado cuarenta y ocho horas entre la falta y la decisión.

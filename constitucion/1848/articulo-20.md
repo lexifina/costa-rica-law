@@ -1,1 +1,0 @@
-Artículo 20.-La autoridad a quien corresponda recibir los votos procederá a ello, llegado que sea el tiempo señalado por la ley, y convocará al efecto a los sufragantes parroquiales con ocho días de anticipación.
