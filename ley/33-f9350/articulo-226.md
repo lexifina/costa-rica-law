@@ -1,1 +1,0 @@
-Artículo 226.-Quien conscientemente contagiare a otro una enfermedad venérea, por relación sexual o de cualquier otro modo, será reprimido con prisión de seis meses a dos años. Este artículo deroga y sustituye el N° 208 del Código Penal vigente.
