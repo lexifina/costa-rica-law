@@ -1,0 +1,1 @@
+Artículo 8º.- El Ministro podrá establecer Consejos Consultivos de Coordinación con el sector privado para estudiar, con los diversos grupo sociales y económicos interesados, las decisiones gubernamentales en los campos de su competencia.

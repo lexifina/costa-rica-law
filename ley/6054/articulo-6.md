@@ -1,0 +1,1 @@
+Artículo 6º.- Corresponderá al Poder Ejecutivo determinar la organización interna del Ministerio, que comprende la asignación de funciones de las unidades administrativas y de los mecanismos de coordinación interna y externa.
