@@ -1,0 +1,1 @@
+Artículo 10.—Las pruebas, exámenes destaque se sometan los interesados que pretendan ingresar como funcionarios del IFAM, a fin de demostrar su idoneidad, se calificarán con una escala de uno a] cien, siendo la calificación mínima aceptable la de setenta por ciento.

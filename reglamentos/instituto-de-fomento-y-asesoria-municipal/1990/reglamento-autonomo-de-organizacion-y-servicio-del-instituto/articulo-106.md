@@ -1,0 +1,1 @@
+Artículo 106-—PAGO DE ZONAJE: Todo servidor que por motivos especiales fuere trasladado a laborar a otro lugar de trabajo distinto de su domicilio habitual, tendrá derecho al pago de un sobresueldo denominado "Zonaje" equivalente a un 25% del salario base.

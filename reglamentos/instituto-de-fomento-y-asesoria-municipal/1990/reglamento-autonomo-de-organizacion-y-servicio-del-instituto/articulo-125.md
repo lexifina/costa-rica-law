@@ -1,0 +1,1 @@
+Artículo 125.—Con las excepciones indicadas en el artículo anterior, desde el momento en que un trabajador inicie la prestación de servicios en el IFAM, se le harán las deducciones para el pago del Seguro de Invalidez, Vejez y Muerte, y a su vez el IFAM pagará la cuota patronal correspondiente.

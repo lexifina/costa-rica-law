@@ -1,0 +1,1 @@
+Artículo 146. —Para casos muy calificados, no contemplados en este Reglamento, queda ajuicio del Jefe de dependencia y el respectivo Director o Jefe de Departamento o Sección, justificar ausencias que no sean por enfermedad comprobada, sin que ello signifique obligación al pago del salario,

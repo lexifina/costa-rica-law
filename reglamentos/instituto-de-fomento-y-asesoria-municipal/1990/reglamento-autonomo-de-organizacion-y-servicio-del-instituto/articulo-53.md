@@ -1,0 +1,1 @@
+Artículo 53.—El sistema de clasificación, con su correspondiente Manual Descriptivo de Puestos, servirá de base para la valoración de los puestos, el reclutamiento y selección de personal, la elaboración del presupuesto de .salarios y para otros fines de la administración de personal del Instituto.

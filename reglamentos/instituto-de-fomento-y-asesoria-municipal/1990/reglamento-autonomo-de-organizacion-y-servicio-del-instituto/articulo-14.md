@@ -1,0 +1,1 @@
+Artículo 14.—Los empleados que procedan de los Poderes de! Estado, de sus Instituciones Autónomas, semiautónomas. Municipalidades y Ceñiros de Educación Superior del Estado, que se trasladen a servir al IFAM, conservarán su antigüedad laboral, para efectos de vacaciones, preaviso, cesantía y reconocimiento salarial por ese motivo.

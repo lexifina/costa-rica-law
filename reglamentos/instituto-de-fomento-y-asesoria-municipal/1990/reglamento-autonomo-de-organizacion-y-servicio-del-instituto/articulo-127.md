@@ -1,0 +1,1 @@
+Artículo 127. —Todo trabajador del IFAM. excepto los excluidos por la ley estarán protegidos por una póliza contra riesgos del trabajo, conforme a lo dispuesto en la Ley 6727 del 9 de marzo de 1982 y su Reglamento.

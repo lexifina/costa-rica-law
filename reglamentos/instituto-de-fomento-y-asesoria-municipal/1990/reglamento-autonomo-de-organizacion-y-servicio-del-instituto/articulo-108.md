@@ -1,0 +1,1 @@
+Artículo 108.—El moneo del zonaje será acordado solamente por disposición formal de la Dirección Ejecutiva y su pago tendrá efecto a partir de la techa en que ia misma lo apruebe y por todo el tiempo que se mantengan las condiciones que motivaron su concesión.

@@ -1,0 +1,1 @@
+Artículo 131.—En caso de que un trabajador que sufra un accidente del trabajo, no pudiere desempeñar el puesto que ocupaba antes de ocurrirle el accidente o se le haya diagnosticado la enfermedad, por prescripción médica, el IFAM estará obligado a reubicarlo a un nuevo puesto acorde con su capacidad física, motora y laboral, garantizando le todos sus derechos.

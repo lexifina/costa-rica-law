@@ -1,0 +1,1 @@
+Artículo 155.—Las gestiones presentadas por los trabajadores, que no sigan el procedimiento anterior, se tendrán por no interpuestas y por ese solo hecho no tienen el efecto de interrumpir la prescripción de los derechos reclamados.

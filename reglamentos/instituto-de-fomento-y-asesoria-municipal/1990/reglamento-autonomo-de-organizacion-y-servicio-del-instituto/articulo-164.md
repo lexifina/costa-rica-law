@@ -1,0 +1,1 @@
+Artículo 164.—La calificación de las faltas, como leves o graves, para efectos de su sanción y en los casos en que no esté específicamente indicado en este Reglamento, será a juicio de la Dirección Ejecutiva, tomando en consideración la opinión del Jefe inmediato y la trayectoria laboral del servidor a quien se debe sancionar.

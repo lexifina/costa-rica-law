@@ -1,0 +1,1 @@
+Artículo 128—EI IFAM deberá dar aviso al Instituto Nacional de Seguros de cualquier riesgo del trabajo que le ocurra a sus trabajadores, dentro del término de ocho (8) días hábiles contados a partir del acaecimiento del infortunio, si el IFAM incumpliere esta obligación, correrá con las responsabilidades derivadas de los riesgos,

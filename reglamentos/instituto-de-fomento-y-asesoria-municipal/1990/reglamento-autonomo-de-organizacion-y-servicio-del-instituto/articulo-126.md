@@ -1,0 +1,1 @@
+Artículo 126—Los derechos y beneficios que el trabajador tiene en el Régimen de Invalidez, Vejez y Muerte, administrado por la Caja Costarricense de Seguro Social, están reguladas en la Ley Constitutiva y en los Reglamentos de esa Institución. Su otorgamiento y administración son responsabilidad exclusiva de la Caja.

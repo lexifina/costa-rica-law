@@ -1,0 +1,1 @@
+Artículo 121—La Caja Costarricense de Seguro Social reconoce un subsidio al trabajador incapacitado por enfermedad, después de los primeros tres días de incapacidad. El subsidio consiste en el sesenta por ciento del salario promedio que hubiere devengado el trabajador.

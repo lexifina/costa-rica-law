@@ -1,0 +1,1 @@
+Artículo 152-—Cuando e! servidor haga abandono de sus labores o tareas sin causa justificada o sin permiso del patrono, o de sus representantes, por dos días alternos dentro del mismo mes calendario, incurrirá en causal de despido sin responsabilidad patronal.

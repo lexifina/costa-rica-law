@@ -1,0 +1,1 @@
+Artículo 139. —No obstante lo dispuesto ene! artículo anterior, si el servidor que marcó la tarjeta de otro compañero por error evidente, informa el hecho ante quien corresponda, a más tardar en la jornada siguiente, no se le impondrá ninguna sanción.

@@ -1,0 +1,1 @@
+Artículo 112. —Los montos percibidos por concepto de zonaje, se tomarán en cuenta para el pago de cualquier derecho o extremo laboral que le corresponda al trabajador conforme a la Ley y a este Reglamento.
