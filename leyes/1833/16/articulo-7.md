@@ -1,0 +1,1 @@
+Art. 7. Las Municiplidades exijiran cuando haya peligro, la renovacion de seguridades, prefiriendo á cualquiera otra las especiales hipotecas : y ellas mismas son responsables á las quiebras que hubiese por descuido ó culpa suya, de los redituarios, y al efecto se revisarán en el principio de cada año las que estos hubiesen dado, aprobandose si fuesen bastantes.

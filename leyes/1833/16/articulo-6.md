@@ -1,0 +1,1 @@
+Art. 6. Los réditos serán satisfechos annualmente con un mes de antelacion al plazo que debe ser el dia destinado para su inversion; y esta será la misma que por el fundador estuviese señalada ó tenga reconocida la Cofradía.
