@@ -14,3 +14,4 @@ Declara Emergencia Nacional Los Cuadros Ipís de Goicoechea
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-03-21 | la propia norma |
+| 2 | 1984-03-21 | SINALEVI (sin norma nombrada) |
