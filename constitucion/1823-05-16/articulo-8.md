@@ -1,0 +1,1 @@
+Artículo 8º.- Si algún extranjero de diversa religión ingresare a la provincia, el Gobierno señalará el tiempo perentorio de su residencia en ella, protegerá su libertad y demás derechos, y le expelerá en el momento mismo que se advierta que trata de diseminar sus errores o de subvertir el orden social.

@@ -1,0 +1,1 @@
+Artículo 29.- Para determinar y combinar sobre datos exactos y aproximados las mejoras y reformas que reclame en interés público, en orden a lo político, militar y de hacienda, se exigirán de los respectivos funcionarios los datos y conocimientos que se crean necesarios.

@@ -1,0 +1,1 @@
+Artículo 47.- Estos jefes tendrán el tratamiento de Señoría. El político y el de hacienda gozarán el honorario de un peso diario, y en cuanto al militar obrará el Gobierno conforme al artículo 39 (del primer Estatuto).

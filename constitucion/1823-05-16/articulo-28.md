@@ -1,0 +1,1 @@
+Artículo 28.- Si para desempeñar estos objetos juzgare el Gobierno nombrar comisiones, lo hará, y los individuos en quienes recaigan no podrán excusarse sin causa bastante, a juicio del mismo Gobierno.

@@ -1,0 +1,1 @@
+Artículo 55.- Esta Junta de residencia citará al juicio a los acusados, y si alguno probare no haber sido miembro de la Junta que cometió el exceso, o que siéndolo salvó su voto en el libro que corresponde, éste no se suspenderá de su oficio y rango, ni entrará en el juicio promovido a la Junta gubernativa.

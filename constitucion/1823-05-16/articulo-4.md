@@ -1,0 +1,1 @@
+Artículo 4º.- El presente Congreso se reunirá el 1º de agosto y 1º de diciembre para continuar sus sesiones, fuera de todos los demás casos que las circunstancias lo exijan, debiendo entenderse instalado con dos tercios de la totalidad de diputados.

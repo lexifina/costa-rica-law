@@ -1,0 +1,1 @@
+Artículo 21.- Si el arreglo definitivo de la Constitución del Estado a que la provincia se adhiriese dilatara más de dos años, la Junta se renovará cada bienio por mitad, saliendo en el primero los tres últimos nombrados.

@@ -1,0 +1,1 @@
+Artículo 22.- Para el caso de que habla el artículo anterior, las juntas de parroquias se celebrarán el último domingo de noviembre y las de partido el 10 de diciembre, para que así puedan éstos reunirse a celebrar la junta provincial en esta ciudad el cuarto domingo del mismo diciembre, observando en lo demás el plan que se agrega bajo este número.
