@@ -1,0 +1,1 @@
+Artículo 3º—Para efectos de ejecución de las labores encomendadas a la Comisión, las instituciones públicas del Sector Agropecuario, aportarán los recursos necesarios de acuerdo con sus posibilidades y brindarán el apoyo logístico, técnico y de equipo requerido.
