@@ -1,0 +1,1 @@
+Artículo 8°-Las comisiones evaluadoras deberán coordinar estrechamente con cada Comisión Interna de Racionalización Administrativa (CIRA), que la Autoridad Presidencial de Reforma del Estado (APRE), ha promovido.

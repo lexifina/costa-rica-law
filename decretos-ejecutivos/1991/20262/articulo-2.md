@@ -1,0 +1,1 @@
+Artículo 2°-Deberán constituirse comisiones evaluadoras en cada una de las instituciones que conforman el Sector Público, integradas por tres personas de reconocida solvencia moral, independencia de criterio y capacidad técnica en el campo particular de la institución.

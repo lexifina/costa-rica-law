@@ -1,0 +1,1 @@
+Artículo 9°-Las comisiones evaluadoras deberán vincular su acción en forma estrecha con el programa de movilidad laboral que actualmente se ejecuta, especialmente en lo que son aspectos definidos sobre movilidad voluntaria.

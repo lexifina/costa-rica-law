@@ -1,0 +1,3 @@
+Artículo 7°-Las comisiones evaluadoras tendrán los siguientes plazos para emitir su informe final; a más tardar el 29 de mayo de 1991 en las siguientes instituciones:
+Instituto Costarricense de Electricidad, Caja Costarricense de Seguro Social, Instituto Nacional de Seguros, Banco Popular y de Desarrollo Comunal, RECOPE, CODESA y su subsidiarias, INCOFER, Instituto Costarricense de Turismo, IAFA y el 29 de junio de 1991, para el resto del Sector Público.
+Dichos informes se remitirán directamente a la Asamblea Legislativa, Poder Ejecutivo, Contraloría General de la República y a la institución evaluada, a fin de que se pongan en práctica las recomendaciones acogidas.
