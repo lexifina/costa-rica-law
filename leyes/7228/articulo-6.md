@@ -1,0 +1,20 @@
+ARTICULO 6
+Conferencia de las Partes
+1. Queda establecida una Conferencia de las Partes. La Secretaría establecida con carácter interino de conformidad con el artículo 7 convocará la primera reunión de la Conferencia de las Partes a más tardar un año después de la entrada en vigor del presente Convenio. Ulteriormente, se celebrarán reuniones ordinarias de la Conferencia de las Partes a los intervalos regulares que determine la Conferencia en su primera reunión.
+2. Las reuniones extraordinarias de la Conferencia de las Partes se celebrarán cuando la Conferencia lo estime necesario o cuando cualquiera de las Partes lo solicite por escrito, siempre que, dentro de los seis meses siguientes a la fecha en que la solicitud les sea comunicada por la Secretaría, un tercio de las Partes, como mínimo, apoye esa solicitud.
+3. La Conferencia de las Partes acordará y adoptará por consenso su reglamento interno y su reglamentación financiera y los de cualesquiera órganos auxiliares que pueda establecer, así como las disposiciones financieras aplicables al funcionamiento de la Secretaría.
+4. La Conferencia de las Partes examinará en forma continua la aplicación del presente Convenio y, asimismo:
+a) Establecerá la forma e intervalos para transmitir la información que se habrá de presentar con arreglo al artículo 5 y examinará esa información, así como los informes presentados por cualquier órgano subsidiario;
+b) Examinará la información científica sobre el estado de la capa de ozono, sobre su posible modificación y sobre los efectos de tal modificación;
+c) Promoverá, de conformidad con el artículo 2, la armonización de políticas, estrategias y medidas adecuadas encaminadas a reducir al mínimo la liberación
+de sustancias que causen o puedan causar modificaciones de la capa de ozono,
+y formulará recomendaciones sobre otras medidas relativas al presente Convenio;
+d) Adoptará, de conformidad con los artículos 3 y 4, programas de investigación y observaciones sistemáticas, cooperación científica y tecnológica, intercambio dé información y transferencia de tecnología y conocimientos;
+e) Considerará y adoptará, según sea necesario y de conformidad con los artículos 9 y 10, las enmiendas al Convenio y a sus anexos;
+f) Considerará las enmiendas a cualquier protocolo o a cualquier anexo al mismo y, si así se decide, recomendará su adopción a las partes en los protocolos pertinentes;
+g) Considerará y adoptará, según sea necesario de conformidad con el artículo 10, los anexos adicionales al presente Convenio;
+h) Considerará y adoptará, según sea necesario, los protocolos de conformidad con el artículo 8;
+i) Establecerá los órganos auxiliares que se consideren necesarios para la aplicación del presente Convenio;
+j) Recabará, cuando proceda, los servicios de órganos internacionales competentes y de comités científicos, en particular de la Organización Metereológica Mundial y de la Organización Mundial de la Salud, así como del Comité Coordinador sobre la Capa de Ozono, en la investigación científica y en las observaciones sistemáticas y otras actividades pertinentes a los objetivos del presente Convenio, y empleará, según proceda, la información proveniente de tales órganos y comités;
+k) Considerará y tomará todas las medidas adicionales que se estimen necesarias para la consecución de los fines de este Convenio.
+5. Las Naciones Unidas, sus organismos especializados y el Organismo Internacional de Energía Atómica, así como todo Estado que no sea parte en el Convenio, podrán estar representados por observadores en las reuniones de la Conferencia de las Partes. Podrá admitirse a todo órgano u organismo con competencia en los campos relativos a la protección de la capa de ozono, ya sea nacional o internacional, gubernamental o no gubernamental, que haya informado a la Secretaría de su deseo de estar representado en la reunión de la Conferencia de las Partes como observador, salvo que se oponga a ello por lo menos un tercio de las Partes presentes. La admisión y participación de observadores estarán sujetas al reglamento aprobado por la Conferencia de las Partes.
