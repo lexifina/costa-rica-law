@@ -1,0 +1,2 @@
+ARTICULO 141.- Reemplázase el último párrafo del artículo 28 de la ley Nº 7092 del 21 de abril de 1988 por el siguiente:
+"Artículo 28.- (Último párrafo) El monto anual del impuesto que deba pagarse, en ningún caso podrá ser superior al promedio mensual de las rentas gravadas por el inciso a) del artículo 27, ocurridas entre el primero de octubre de un año y el 30 de setiembre del año siguiente. Los excesos de dicho monto deberán ser tratados conforme se establece en el párrafo segundo del artículo 41 de esta ley."
