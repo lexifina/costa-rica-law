@@ -1,3 +1,1 @@
-CAPITULO II
-De las Normas de Conducta
-Artículo 15.—Los funcionarios del Banco Nacional de Costa Rica deben de conocer los términos de este Código de Ética y comprometerse a cumplir sus principios.
+Artículo 15.—Deber de Integridad. Los funcionarios del Banco serán responsables por todas aquellas situaciones irregulares en las que participen, con las que menoscaben la integridad y la reputación del Banco en los mercados en los que opera la Corporación, las que pongan en entredicho el cumplimiento estricto de la normativa y regulación por parte de nuestra Institución y aquellas que la expongan a sanciones, multas, costos adicionales y erogaciones que no corresponden a su giro ordinario.

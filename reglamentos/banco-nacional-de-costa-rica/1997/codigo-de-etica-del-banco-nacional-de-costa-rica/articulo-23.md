@@ -1,1 +1,1 @@
-Articulo 23.—Los funcionarios deben guardar absoluta reserva y confidencialidad con la información que maneje el Banco sobre sus clientes u operaciones que se tramiten en él.
+Artículo 23.—Los funcionarios no utilizarán las instalaciones, los recursos energéticos, los recursos materiales, los procedimientos, la metodología, los sistemas de cómputo, los datos o los servicios del Banco, en negocios o asuntos personales o de sus empresas.

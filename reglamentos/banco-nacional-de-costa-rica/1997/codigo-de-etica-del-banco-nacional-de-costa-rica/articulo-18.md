@@ -1,1 +1,1 @@
-Articulo 18.—Es prohibido para los funcionarios tener relaciones comerciales con empresas o personas de reconocida falta de honorabilidad o reputación o que se sospeche de manera fundada que están en actividades de legitimación de capitales ilícitos u otras actuaciones ilícitas.
+Artículo 18.—En sus relaciones con los clientes o compañeros de trabajo, los funcionarios deben de actuar siempre de manera justa, leal, honesta, íntegra y eficiente.

@@ -1,1 +1,1 @@
-Artículo 21.—Integración de la Comisión. La Comisión de Etica estará formada por tres funcionarios, designados por el Gerente General.
+Artículo 31.—Será responsabilidad de los funcionarios del Banco asegurar que la información crítica sea resguardada mediante la creación de los respaldos respectivos, para evitar así la pérdida de los datos. Queda prohibido a los funcionarios utilizar en el equipo de cómputo destinado para sus labores programas no autorizados por el Banco o que no cuenten con la licencia respectiva de uso.

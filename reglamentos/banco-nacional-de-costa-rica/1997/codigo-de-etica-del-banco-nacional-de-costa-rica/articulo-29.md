@@ -1,2 +1,1 @@
-De la Comisión de Ética
-Artículo 19.—Ámbito, de aplicación. En el Banco Nacional funcionará una Comisión de Ética que será nombrada en enero de cada alto, cuyas funciones serán las estipuladas en el siguiente articulo.
+Artículo 29.—Incurrirá en falta gravísima aquel funcionario del Banco que se aproveche de sus poderes y facultades de acceso a los sistemas informáticos de la Institución, para realizar o facilitar transacciones indebidas que puedan ocasionar pérdidas económicas. Incurrirá en la misma falta aquel funcionario que efectúe manipulaciones fraudulentas de aplicaciones al software propiedad del Banco.

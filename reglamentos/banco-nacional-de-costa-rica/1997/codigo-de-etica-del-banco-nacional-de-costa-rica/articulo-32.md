@@ -1,5 +1,3 @@
-Articulo 22.—Requisitos para ser miembro de la Comisión. Los miembros de la Comisión deberán llenar los siguientes requisitos:
-a. Ser funcionarios de la Institución, con no menos de cinco años de servicio.
-b. Haber destacado por su alto espíritu de servicio al cliente, por su honestidad, eficiencia, lealtad hacia la Institución, y buen manejo de las relaciones interpersonales.
-c. No haber sido sancionado a causa de falta laboral.
-d. No haber sido condenado judicialmente por delito contra los deberes de funcionario público.
+CAPÍTULO III
+Procedimiento a seguir en las denuncias por incumplimiento del presente código, para la correspondiente aplicación del régimen disciplinario
+Artículo 32.—Las denuncias por incumplimiento a cualesquiera de los principios contenidos en este Código, serán atendidas en primera instancia por la jefatura correspondiente.

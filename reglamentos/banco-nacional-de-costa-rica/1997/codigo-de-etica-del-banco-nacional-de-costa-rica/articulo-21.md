@@ -1,1 +1,1 @@
-Articulo 21.—Los funcionarios no utilizarán las instalaciones, los recursos energéticos, los recursos materiales, los procedimientos, las metodología, los sistemas de cómputo, los datos o los servicios del Banco, en negocios o asuntos personales o de sus empresas.
+Artículo 21.—Los funcionarios no darán ni recibirán obsequios, descuentos, invitaciones o dinero en efectivo, a cambio de un acto propio de sus funciones o a cambio de un acto contrario a sus funciones.

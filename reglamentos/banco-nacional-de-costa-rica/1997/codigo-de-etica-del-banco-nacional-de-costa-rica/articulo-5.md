@@ -1,1 +1,1 @@
-Artículo 5°—Deber de inspirar confianza a los clientes. El funcionario del Banco Nacional debe prestar sus servicios de forma tal, que inspire a los clientes confianza y credibilidad en la imagen de la Institución.
+Artículo 5º—Deber de inspirar confianza a los clientes. El funcionario del Banco Nacional debe prestar sus servicios de forma tal, que inspire a los clientes confianza y credibilidad en la imagen de la Institución.

@@ -1,1 +1,1 @@
-Articulo 24.—Gratuidad del Cargo. El cargo de miembro de la Comisión de Ética se ejercerá en forma ad-honorem. El Banco aportará los recursos económicos y humanos que requiera la Comisión, para el fiel cumplimiento de sus fines.
+Artículo 34.—El trámite de investigación de toda denuncia, deberá realizarse con la mayor celeridad posible.

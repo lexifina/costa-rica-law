@@ -1,1 +1,3 @@
-Artículo 17.—Los negocios con los clientes deberán ser analizados tan detallada y minuciosamente como sea posible, siguiendo las políticas fijadas por el Banco, a fin de evitar relaciones con personas de reconocida falta de honorabilidad y reputación.
+CAPÍTULO II
+De las normas de conducta
+Artículo 17.—Los funcionarios del Banco Nacional de Costa Rica deben de conocer los términos de este Código de Ética y comprometerse a cumplir sus principios.

@@ -1,3 +1,1 @@
-CAPITULO III
-Procedimiento a seguir en las Denuncias por Incumplimiento del presente Código, para la correspondiente Aplicación del Régimen Disciplinario
-Articulo 16.—Las denuncias por incumplimiento a cualesquiera de los principios contenidos en este Código, serán atendidas en primera instancia por la jefatura correspondiente.
+Artículo 26.—Los funcionarios no pueden tratar al cliente en forma displicente o poco respetuosa, de manera que pueda dar lugar a que se sienta maltratado o que no se dio la debida atención.
