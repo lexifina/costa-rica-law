@@ -1,0 +1,1 @@
+Art. 2°-No se admitirán en dicha Escuela bequistas ni alumnos externos, ni se dará otra instrucción que la prescrita en el artículo 17 del Decreto de 22 de octubre de 1869, arreglada á los detalles del capítulo XIII del reglamento de diez de noviembre del propio año.
