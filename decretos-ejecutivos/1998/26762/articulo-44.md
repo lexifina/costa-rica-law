@@ -1,0 +1,1 @@
+Artículo 44.- Ninguna sesión del Consejo tendrá validez si no es presidida por quien corresponda, y si a ella no asiste el Secretario General de la SIECA o quien haga sus veces, a quien compete dar fe de lo actuado mediante el faccionamiento, certificación y firma de las actas del Consejo.

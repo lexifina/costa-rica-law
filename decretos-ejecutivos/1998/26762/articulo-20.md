@@ -1,0 +1,1 @@
+Artículo 20.- Las reuniones ordinarias del Consejo de Ministros de Integración Económica deberán celebrarse cuatro veces al año. Las reuniones extraordinarias podrán celebrarse en cualquier tiempo, cuando ello fuere necesario.

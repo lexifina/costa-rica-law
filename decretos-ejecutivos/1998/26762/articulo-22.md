@@ -1,0 +1,2 @@
+Artículo 22.- La SIECA cursará la correspondiente convocatoria a todos los miembros de los respectivos órganos con suficiente anticipación a la reunión de que se trate, y en ella se consultará la Agenda Preliminar propuesta.
+Los documentos técnicos o informativos que se relacionen con la Agenda de las reuniones se enviarán a los miembros de los órganos de que se trate con 10 días hábiles de antelación, cuando ello sea posible.

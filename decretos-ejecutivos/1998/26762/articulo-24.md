@@ -1,0 +1,1 @@
+Artículo 24.- En las reuniones extraordinarias del Consejo se conocerán únicamente el punto o puntos para los cuales hubiere sido convocado, no pudiéndose adicionar tema alguno a menos que decida por consenso.

@@ -1,0 +1,2 @@
+Artículo 3°- El Consejo de Ministros de Integración Económica está conformado por los Ministros de los Gabinetes Económicos y los Presidentes de los Bancos Centrales de los Estados Parte del Protocolo de Guatemala. Se podrá acreditar, en su lugar, a un Viceministro o, en su caso, al Vicepresidente o Representante del respectivo Banco Central, debidamente autorizado. (1)
+(1) Ver Artículo Transitorio

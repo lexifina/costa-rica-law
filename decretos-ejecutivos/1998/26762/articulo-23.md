@@ -1,0 +1,2 @@
+Artículo 23.- La Agenda Preliminar de cada reunión del Consejo, así como cualquier tema suplementario que se proponga, serán sometidos a consideración del mismo en su primera sesión de trabajo, para su aprobación o modificación.
+En el transcurso de cualquier reunión ordinaria el Consejo podrá modificar, incorporar o eliminar los temas de la Agenda aprobada, excepto aquellos que esté obligado a conocer por disposición de los instrumentos de la Integración Económica.

@@ -1,0 +1,1 @@
+Artículo 48.- La SIECA llevará un registro oficial de las actas y decisiones del Consejo, el cual estará a disposición de los miembros de éste y será archivado en al SIECA bajo la custodia y responsabilidad del Secretario General.
