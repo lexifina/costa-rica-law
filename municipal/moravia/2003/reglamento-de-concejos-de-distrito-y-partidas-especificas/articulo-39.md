@@ -1,0 +1,2 @@
+Artículo 39.—Este reglamento deroga cualquier otra disposición reglamentaria o acuerdo municipal que se le oponga.
+Los programas y proyectos de inversión aprobados por los Concejos de Distrito Ampliados, podrán sustituirse únicamente por otros que hayan sido previamente presentados ante estos concejos de distrito o por uno nuevo que fortalezca un proyecto anterior, siempre y cuando estén de acuerdo el Concejo de Distrito Ampliado y el Concejo Municipal.

@@ -1,0 +1,2 @@
+Artículo 15.—El quórum para las sesiones se formará con tres miembros. En las sesiones podrán participar los suplentes con derecho a voz, teniendo derecho al voto únicamente cuando sustituyan a miembros propietarios ausentes o conforme al siguiente artículo. Al presidente solo podrá sustituirlo el vicepresidente.
+Cada uno de los propietarios restantes tendrá su respectivo suplente. En ausencia del Presidente y del Vicepresidente, asumirá el cargo el miembro de mayor edad.

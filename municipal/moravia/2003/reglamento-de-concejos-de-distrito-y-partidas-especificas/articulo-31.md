@@ -1,0 +1,3 @@
+CAPÍTULO V
+De las partidas específicas
+Artículo 31.—Para el proceso de identificación, selección y aprobación de los programas y proyectos de inversión a realizarse con fondos provenientes de partidas específicas, de conformidad con lo establecido en la ley número 7755 y el artículo 16 de su reglamento, los concejos de distrito se ampliarán con la participación de un representante de cada una de las organizaciones comunales declaradas por la Contraloría General de la República, idóneas para administrar fondos públicos. Además formará parte, en igualdad de condiciones, un representante de la municipalidad en el caso de que esta sea proponente de proyectos a financiar con fondos de partidas específicas.

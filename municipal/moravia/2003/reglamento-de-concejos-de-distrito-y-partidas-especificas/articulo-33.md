@@ -1,0 +1,1 @@
+Artículo 33.—A fin de seleccionar y aprobar los proyectos a financiar con partidas específicas, durante el mes de mayo, deberán efectuar al menos una sesión ordinaria semanal. Podrán celebrar las sesiones extraordinarias que se requieran, debiendo convocarse las mismas por lo menos con veinticuatro horas de antelación.
