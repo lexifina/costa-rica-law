@@ -1,0 +1,1 @@
+ARTICULO 50.-Los ex menes generales son ordinarios y extraordinarias: los primeros se verificar n en el último mes del curso, sin suspenderse las lecciones de clase, y los segundos en los últimos quince días de vacaciones y los que preceden la colación de grados.

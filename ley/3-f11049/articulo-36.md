@@ -1,0 +1,1 @@
+ARTICULO 36.-Se establecen dos becas para cada una de las Provincias y Comarcas, cargo del Tesoro Nacional. Las Municipalidades respectivas presentar n al Ministerio de Instrucción Pública, cuatro seis niños pobres de reconocida capacidad ‚ instruidos en las materias de primera enseñanza superior, entre los cuales se elegirán los dos que deban disfrutar de la gracia.

@@ -1,0 +1,1 @@
+ARTICULO 38.-Es permitido los particulares fundar Becas en el Instituto, debiendo asegurarlas con el capital suficiente, con aprobación del Ministerio de Instrucción pública: los bequistas quedan sujetos todas las prescripciones de este Reglamento.

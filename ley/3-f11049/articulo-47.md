@@ -1,0 +1,1 @@
+ARTICULO 47.-Son días lectivos todos los que comprende el año académico, excepto los Domingo y demás días de fiesta religiosa, incluso el del Glorioso Patrón Santo Tomas de Aquino, los tres últimos días de la Semana Santa y los de fiesta nacional.

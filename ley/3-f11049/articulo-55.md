@@ -1,0 +1,1 @@
+ARTICULO 55.-Para preparar el tercero, el Rector uno de los examinadores, con media hora de anticipación, sacar en suerte el texto sobre que deba hacerse el análisis. Los graduandos se podrán incomunicado en una pieza con los libros necesarios. Trascurrida media hora, principiar el ejercicio.

@@ -1,0 +1,1 @@
+ARTICULO 59.-Aprobado que sea el alumno, el Rector le conferir el grado en la forma prescrita en los Estatutos Universitarios y expedir el título correspondiente. El resultado de los ejercicios se pondrá por acta en el expediente respectivo, cuyas actas ser n firmadas por el Rectos y examinadores y autorizadas por el Secretario.

@@ -1,0 +1,1 @@
+ARTICULO 32.-Los alumnos podrán matricularse por años académicos por signaturas sueltas sin mes restricción que la exigida por el orden científico en los estudios que deben preceder seguirse otros, cuyo orden se seguir rigurosamente.

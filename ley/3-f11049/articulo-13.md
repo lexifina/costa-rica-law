@@ -1,0 +1,2 @@
+ARTICULO 13.-El Director debe vivir en el Establecimiento y no podrá ausentarse sino es con licencia
+del Rector si la ausencia no durase más de tres días. Para ausentarse por más tiempo la obtendrá de la Secretaría de Instrucción Pública. En el primer caso el Rector asumir sus funciones durante su ausencia, y en el segundo, el Gobierno encargar interinamente las funciones de Director uno de los Profesores otra persona, según convenga.
