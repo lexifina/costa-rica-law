@@ -1,0 +1,1 @@
+Vigésimosétima: Corresponderá a la Auditoría Interna del IICA ejercer la fiscalización administrativa y financiera del CATIE y su auditoría; y los Auditores Externos del IICA serán los Auditores Externos del CATIE.
