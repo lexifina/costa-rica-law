@@ -7,7 +7,8 @@ d) Dictar su propio reglamento y aprobar los reglamentos de organización y func
 Someter a la aprobación del Poder Ejecutivo los proyectos de reglamentos vinculados a la actividad turística.
 e) Dictar el Estatuto de Personal con la correspondiente escala de salarios para los empleados y funcionarios del ICT.
 f) Autorizar la contratación de empréstitos nacionales, internacionales o extranjeros, para el cumplimiento de sus fines.
-g) Aprobar previamente las erogaciones superiores a la suma de C 50,000.00 cuyo concepto no esté expresamente definido dentro del objeto del gasto o dentro de los programas de publicidad y promoción.
+g) Aprobar previamente las erogaciones superiores a la suma de ( 50.000,00 cuyo concepto no esté expresamente definido dentro del objeto del gasto o dentro de los programas de Publicidad y Promoción.
+(Así reformado por acuerdo tomado en sesión N° 4277 de 1 de julio de 1992)
 h) Conocer y resolver de oficio o a instancia de parte, de los actos del Presidente Ejecutivo, Gerente o del Auditor.
 i) Autorizar la adquisición, hipoteca, gravámenes de bienes inmuebles y enajenación de bienes muebles.
 j) Poner en conocimiento del Consejo de Gobierno, el hecho de la ausencia del Presidente Ejecutivo por más de un mes, para que decida si designa un Presidente Ejecutivo interino.
