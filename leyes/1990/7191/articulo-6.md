@@ -1,0 +1,16 @@
+ARTICULO 6.- Se autoriza a la Municipalidad para que verifique ante la
+Dirección General de la Tributación Directa la exactitud de los datos
+suministrados por los patentados. Si se comprobare que existe alteración
+de tales datos, por lo cual el monto del impuesto es incorrecto, la
+Municipalidad efectuará la recalificación correspondiente.
+Asimismo, cuando la Dirección General de la Tributación Directa
+hiciere alguna recalificación en el Impuesto sobre la Renta, deberá
+comunicarlo de oficio a la Municipalidad, para lo que corresponda. La
+certificación de la Contaduría Municipal en la que se indique la diferencia
+adeudada por el patentado en virtud de la recalificación, servirá de título
+ejecutivo para efectos de su cobro.
+Queda a salvo el derecho del contribuyente para impugnar la
+recalificación hecha por la oficina respectiva, conforme con las
+disposiciones del Código Municipal. Agotada la vía administrativa, el
+patentado estará obligado a pagar la suma establecida, mientras no exista
+pronunciamiento en sentido contrario de la autoridad judicial competente.
