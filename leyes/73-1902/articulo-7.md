@@ -1,0 +1,2 @@
+Artículo 7° los miembros de la Facultad y los que de ella dependan están obligados a concurrir a la Juntas Generales y de Gobierno para que se les llame, a suministrar los informes que se les pida.
+Quedan exentos de la primera de dichas obligaciones, los miembros residentes fuera de esta capital. No obstante, la junta de Gobierno, cuando las circunstancias a los que residieren en otros lugares unidos por ferrocarril a esta capital, o distante de la misma a lo sumo treinta kilómetros.

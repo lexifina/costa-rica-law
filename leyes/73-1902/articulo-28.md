@@ -1,0 +1,1 @@
+Artículo 28.-La constancia dada por el Tesorero de la Facultad con el V° B° del Presidente, de que cualquiera de los miembros debe pagar una determinada cantidad por multa alcance de cuentas en fondos que haya administrado, tendrá fuerza ejecutiva ante los Tribunales.

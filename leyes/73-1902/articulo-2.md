@@ -1,0 +1,1 @@
+Artículo 2°. -Formar n dicha facultad todos los Médicos y Cirujanos incorporados en ella. Se tendrán desde luego, por incorporados, los que en la actualidad existan en el país y que hayan sido legalmente reconocidos.

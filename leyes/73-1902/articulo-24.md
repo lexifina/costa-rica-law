@@ -1,0 +1,1 @@
+Artículo 24° Contra las resoluciones de la Junta de Gobierno procede el recurso de apelación para ante la Junta General. Este recurso deberá interponerse dentro de los tres días siguientes a aquél en que la resolución se hubiere hecho saber al interesado.

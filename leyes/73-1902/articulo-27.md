@@ -1,0 +1,1 @@
+Artículo 27.-La ejecución de las resoluciones relativas dichas correcciones se suspender hasta que sean aprobadas por la Junta General, si se interpone apelación, caso contrario, hasta que trascurra el término de ese recurso.
