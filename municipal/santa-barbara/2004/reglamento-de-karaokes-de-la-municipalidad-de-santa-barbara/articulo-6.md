@@ -1,0 +1,1 @@
+Artículo 6º—De la contaminación sónica: Las actividades deberán respetar en todo momento la normativa que establece la Ley General de Salud referente a los niveles autorizados de sonido y confinamiento de ruido y lo establecido en el reglamento de Seguridad e Higiene del Ministerio de Salud en sus artículos 10 y 50.

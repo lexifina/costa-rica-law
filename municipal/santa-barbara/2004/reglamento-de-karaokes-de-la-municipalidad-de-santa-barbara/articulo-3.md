@@ -1,0 +1,1 @@
+Artículo 3.—Del Permiso Municipal: Toda actividad social y comercial que se programe, donde se pretenda desarrollar Karaoke, deberá contar con el correspondiente Permiso Municipal para su realización.
