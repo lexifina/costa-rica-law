@@ -1,0 +1,1 @@
+Artículo 7°.-El Departamento Administrativo podrá delegar los fondos de trabajo que sean necesarios, pero su cuantía no podrá exceder de ¢ 3.000,00 (tres mil colones) y la operación deberá ser determinada mediante reglamentación interna.

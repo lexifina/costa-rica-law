@@ -1,0 +1,1 @@
+Artículo 3°.-Las sumas a pagar con este fondo no deben ser mayores a ¢ 10.000,00 y deberán hacerse mediante cheques firmados conjuntamente por el Director General y el Jefe del Departamento Administrativo del Instituto Geográfico Nacional, o en sus ausencias, por el Subdirector General y el Jefe de la Sección de Contabilidad respectivamente.

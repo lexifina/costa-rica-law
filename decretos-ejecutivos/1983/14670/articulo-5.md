@@ -1,0 +1,1 @@
+Artículo 5°.-La Caja Chica operar bajo el sistema de fondo fijo, haciendo reembolsos para reponer las sumas pagadas contra la Cuenta del Departamento Topográfico N° 30912-0 Banco Nacional de Costa Rica, cada quince días como máximo, utilizando el formulario diseñado por el Departamento Administrativo, el cual contiene un detalle de los documentos que lo conforman.

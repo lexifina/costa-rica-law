@@ -1,0 +1,1 @@
+Artículo 18.-Los faltantes que se detecten al practicarse el arqueo, deberán ser cubiertos de inmediato por el responsable del mismo. En caso sobrante debe ser depositado en la Cuenta Departamento Topográfico N° 30912-0 a través del Departamento Administrativo del Instituto Geográfico Nacional.

@@ -1,0 +1,1 @@
+Artículo 12.-Los adelantos de dinero para imprevistos en las giras que realizan los funcionarios del Instituto Geográfico Nacional, se harán mediante solicitud escrita firmada por el Jefe del Departamento respectivo, indicando a nombre de quien se hace el adelanto; no pudiendo su monto exceder de ¢ 3.000,00.

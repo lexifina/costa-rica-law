@@ -1,0 +1,1 @@
+Artículo 19.-El encargado de operación de la Caja Chica y/o los responsables del fondo de la misma, que incumpla cualquiera de las disposiciones de este Reglamento, se hará acreedor de las sanciones estipuladas al efecto en el Reglamento Interior de Trabajo y demás estatutos que regulan la materia.

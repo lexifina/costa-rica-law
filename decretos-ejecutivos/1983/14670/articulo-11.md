@@ -1,0 +1,1 @@
+Artículo 11.-Los adelantos de dinero por concepto de viáticos se hará en formulario de "Solicitud de Gastos de Viaje Adelantado", el cual deberá ser llenado en todos sus extremos y firmado por el jefe respectivo.
