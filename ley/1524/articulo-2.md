@@ -1,0 +1,1 @@
+Artículo 2°.- El precio de la compra será la suma de treinta cinco mil quinientos colones (¢35,500.00), de los cuales pagará el Concejo de Distrito citado inicialmente la suma de catorce mil quinientos colones (¢14,500.00), cientos colones (¢5,300.00) y el saldo en julio del mismo año por la suma de quince mil setecientos colones (¢15,700.00)
