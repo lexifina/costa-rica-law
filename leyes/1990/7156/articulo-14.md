@@ -1,6 +1,6 @@
 CAPÍTULO II
 De las tarifas del impuesto
-ARTÍCULO 14.- Por todas las actividades lucrativas que seguidamente se señalan, comprendidas en la clasificación internacional de actividades económicas, los patentados pagarán conforme con el procedimiento del artículo 5 de la tarifa que adelante se indica, con excepción de aquellas actividades que estén comprendidas en otro artículo de esta ley.
+Artículo 14.- Por todas las actividades lucrativas que seguidamente se señalan, comprendidas en la clasificación internacional de actividades económicas, los patentados pagarán conforme con el procedimiento del artículo 5 de la tarifa que adelante se indica, con excepción de aquellas actividades que estén comprendidas en otro artículo de esta ley.
 Definiciones:
 a) Industria (Manufacturera o extractiva):
 Se refiere al conjunto de operaciones materiales ejecutadas para la obtención o transformación de uno o varios productos.

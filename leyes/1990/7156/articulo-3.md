@@ -1,1 +1,1 @@
-ARTÍCULO 3.- El impuesto de patentes se pagará durante todo el tiempo que se haya tenido abierto el establecimiento o se haya ejercido el comercio en forma ambulante, y durante el tiempo en que se haya poseído la licencia, aunque la actividad no se hubiese realizado.
+Artículo 3.- El impuesto de patentes se pagará durante todo el tiempo que se haya tenido abierto el establecimiento o se haya ejercido el comercio en forma ambulante, y durante el tiempo en que se haya poseído la licencia, aunque la actividad no se hubiese realizado.

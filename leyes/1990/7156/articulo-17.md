@@ -1,4 +1,4 @@
-ARTÍCULO 17.- Los establecimientos que se dediquen principalmente al hospedaje se regirán conforme con la siguiente clasificación:
+Artículo 17.- Los establecimientos que se dediquen principalmente al hospedaje se regirán conforme con la siguiente clasificación:
 a) Moteles y similares:
 Por establecimientos cuya actividad sea permitir el hospedaje momentáneo, se pagarán trimestralmente ¢1.000,00 por cada
 habitación.

@@ -1,4 +1,4 @@
-ARTÍCULO 16.- Por las siguientes actividades los patentados pagarán el impuesto de patentes conforme con el criterio que se indica para cada una de ellas:
+Artículo 16.- Por las siguientes actividades los patentados pagarán el impuesto de patentes conforme con el criterio que se indica para cada una de ellas:
 a) Bancos y establecimientos financieros:
 Casas de banca, de cambio, financieras y similares y agentes aseguradores. Se excluyen las instituciones del Estado.
 Pagarán, cada trimestre, sobre ingresos por intereses brutos, o por comisiones, o por ambos, percibidos en el año anterior:
