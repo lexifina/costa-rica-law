@@ -1,0 +1,8 @@
+ARTÍCULO 37.- Si se destruye total o parcialmente el condominio y la
+mayoría de los propietarios decide reconstruirlo, el monto del seguro se
+destinará a este fin, y si es insuficiente, todos los propietarios deberán
+contribuir en la proporción fijada según la escritura constitutiva.
+Quienes se nieguen crearán, en favor de los otros propietarios, el derecho
+de comprarles su propiedad a justa tasación de peritos, en un plazo máximo
+de quince días hábiles. Vencido este plazo el propietario queda en
+libertad de ofrecer a terceros la venta de su filial.

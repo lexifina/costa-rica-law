@@ -1,1 +1,0 @@
-Artículo 17.- Cada piso, departamento o local pertenece en forma exclusiva a su propietario, quien tendrá derecho, como condueño, de aprovechar conforme a su destino y sus necesidades, las cosas comunes.

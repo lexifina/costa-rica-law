@@ -1,1 +1,0 @@
-Artículo 39.- Los acuerdos de la asamblea se consignarán en un libro de actas debidamente legalizado y se protocolizarán cuando deban inscribirse en el Registro Público, o cuando así lo ordene la asamblea.
