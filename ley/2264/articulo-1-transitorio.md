@@ -1,0 +1,1 @@
+Transitorio I.- Para el resto del presente ejercicio fiscal, el egreso se tomará de la partida Nº 152 del Presupuesto General Ordinario para 1958 y en lo sucesivo deberá ser incluida en cada presupuesto ordinario, con la misma prioridad que se da al sueldo de los miembros de los Supremos Poderes del Estado.
