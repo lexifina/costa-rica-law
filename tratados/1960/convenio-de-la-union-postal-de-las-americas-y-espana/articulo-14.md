@@ -1,0 +1,5 @@
+ARTICULO 14
+Oficina Internacional de Transbordos
+1.-Funciona en la República de Panamá, con el nombre de Oficina Internacional de Transbordos, una Oficina a la cual corresponde recibir y reexpedir los despachos postales originarios de las Administraciones de los países miembros y que transitando por el Istmo den lugar a operaciones de transbordo.
+2.- Todos los despachos cerrados de los países miembros que deban ser transbordados en el Istmo de Panamá, serán manejados por la Oficina con la excepción de los despachos provenientes de Administraciones que tengan servicios propios de acuerdo con convenios bilaterales firmados con la República de Panamá.
+3.-La organización y funcionamiento de la Oficina Internacional de Transbordos quedan sometidos a la vigilancia y fiscalización de la Dirección de Correos y Telecomunicaciones de Panamá y de la Oficina Internacional de la Unión, a la cual incumbe, además, actuar como mediadora y asesora en cualquier situación que surja entre la Administración Postal de Panamá y las Administraciones Postales de los países miembros que efectúen operaciones de transbordo en el Istmo.

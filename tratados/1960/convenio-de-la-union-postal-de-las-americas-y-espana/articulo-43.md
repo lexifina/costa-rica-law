@@ -1,0 +1,5 @@
+ARTICULO 43
+Tarifas
+1.-La tarifa de portes y derechos postales aplicables a los objetos de correspondencia del servicio interior de cada país, regirá en las relaciones de los países miembros, excepto cuando dicha tarifa interna o derechos postales sean superiores a los que se apliquen a la correspondencia destinada a los países de la Unión Postal Universal, en cuyo caso regirán estos últimos.
+2.-También regirá la tarifa internacional cuando se trate de servicios que no existan en el régimen interior.
+(Nota de Sinalevi: Mediante el numeral 5° del Tratado Internacional “Protocolo Final del Convenio”, N° 2533 del 17 de febrero de 1960, se formula una reserva a este artículo, en el sentido de que: “… no pueden cumplir sus estipulaciones” Posteriormente mediante el numeral 6° del mismo Tratado; los países de Argentina, Costa Rica, Chile, Estados Unidos del Brasil, Honduras, Perú y Uruguay formulan una reserva a este artículo, en el sentido de: “… dejar a salvo a sus Gobiernos la facultad de aplicar o no, según lo consideren conveniente, las tarifas del servicio interior, a los países que formulen reservas al Artículo 42, "Gratuidad del Tránsito" ” ).
