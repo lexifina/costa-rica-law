@@ -1,0 +1,1 @@
+Artículo 7°- Todas las afirmaciones del titulante, tendrán carácter de declaración jurada y por consiguiente, cualquier falsedad le hará incurrir en las penas del falso testimonio, si no incurriere en delito de mayor gravedad.
