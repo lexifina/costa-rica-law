@@ -1,0 +1,1 @@
+Art. 2 Al fin de cada mes las Administraciones de Aduanas pasarán a la Contaduría mayor las pólizas que se hayan liquidado, para que allí se revisen; y con la nota de estar conformes las devuelva à la Aduana póliza; hecho lo cual, deberá conformarse el interesa do con el resultado.

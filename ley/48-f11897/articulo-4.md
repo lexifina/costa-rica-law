@@ -1,0 +1,1 @@
+Art. 4. Para que los Administradores puedan dar puntual cumplimiento al artículo 2° de este decreto, el Administrador de Puntarenas y los Comandantes de Sarapiquí y Moin, remitirán con la posible brevedad a la Administración respectiva los manifiestos que reciban del comercio y el duplicado de las guías que dieren cada mes.
