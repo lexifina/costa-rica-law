@@ -7698,3 +7698,64 @@ Nota: el artículo 1° del Decreto Ejecutivo No. 31450 de 08 de octubre de 2003,
 SAC Descripción DAI
 8524.3 - Discos para sistemas de lectura por rayos láser:
 8524.32.00 —Para reproducir únicamente sonido 9
+Nota: El artículo N°1 del Decreto Ejecutivo N°31565, publicado en El Alcance N° 63-A a La Gaceta N° 245 del 19 de diciembre de 2003, realizó una modificación de la siguiente manera:
+Código | Descripción | DAI
+02031200 | Jamones, paletas y sus trozos, sin deshuesar. | 45
+02031900 | Los demás | 45
+02032200 | Jamones, paletas y sus trozos, sin deshuesar. | 45
+02032900 | Los demás | 45
+02063090 | Otros | 45
+02064990 | Otros | 45
+02101100 | Jamones, paletas y sus trozos, sin deshuesar. | 45
+02101200 | Tocino entreverado de panza (panceta) y sus trozos. | 45
+04062090 | Otros. | 35
+07019000 | Las demás | 45
+07031011 | Amarillas | 45
+07031012 | Blancas | 45
+07031013 | Rojas | 45
+07031019 | Las demás | 45
+07101000 | Papas (patatas) | 45
+12021090 | Otros | 0
+12022090 | Otros | 0
+12030000 | Copra | 0
+12040000 | Semilla de lino, incluso quebrantada | 0
+12051090 | Otras | 0
+12059090 | Otras | 0
+12071090 | Otras | 0
+12076000 | Semilla de cártamo | 0
+12079100 | Semilla de amapola (adormidera) | 0
+12079900 | Los demás | 0
+12121000 | Algarrobas y sus semillas | 0
+12122000 | Algas | 0
+12123000 | Huesos (carozos) y almendras de albaricoque (damasco, chabacano),de melocotón (durazno) (incluidos los griñones y nectarinas) o de ciruela | 0
+12129100 | Remolacha azucarera | 0
+12129910 | Caña de azúcar | 0
+12129990 | Otros | 0
+17011100 | De caña | 45
+17011200 | De remolacha. | 45
+17019100 | Con adición de aromatizante o colorante. | 45
+17019900 | Los demás. | 45
+85243900 | Los demás | 1
+85249190 | Otros | 0
+85249990 | Otros | 1
+85254000 | Vídeocamaras, incluidas las de imagen fija | 0
+85291000 | Antenas y reflectores de antenas de cualquier tipo; partes apropiadas para su utilización con dichos artículos. | 0
+85366900 | Las demás | 2
+85444900 | Los demás | 2
+Nota: El artículo N° 1° del Decreto Ejecutivo No. 31727 de 23 de marzo de 2004 hizo una modificación para Guatemala, de la siguiente manera:
+| | | DIA | DAI
+| | Volúmenes Activados | Dentro del contingente | Fuera del Contingente
+Código | Descripción | T.M. | (%) | (%)
+0808.10.00 | Manzana | 11,500 | 12 | 25
+1006.10 | Arroz con cáscara (Arroz "Paddy"): | | |
+1006.10.10 | Para la siembra | 550 | 0 | 23.7
+1006.10.90 | Otros | 55,000 | 0 | 23.7
+1006.20.00 | Arroz descascarillado (arroz cargo o arroz pardo) | 390 | 11.8 | 23.7
+1006.30 | Arroz semiblanqueado o blanqueado, incluso pulido o glaseado: | | |
+1006.30.10 | Grano tamaño medio fraccionado en uno de sus extremos con rango, de contenido de grasa de 0.60% a 0.75% destinado al proceso de insuflado y envasado en sacos de 50 kg. Debidamente identificados | 2,400 | 0 | 23.7
+1006.30.90 | Otros | 195 | 11.8 | 23.7
+1006.40.00 | Arroz partido | 195 | 11.8 | 23.7
+1005.90.20 | Maíz amarillo | 463,700 | 5 | 35
+Nota: El artículo N° 1° del Decreto Ejecutivo No. 31727 de 23 de marzo de 2004 hizo una modificación, para Costa Rica, de la siguiente manera:
+Código Descripción DAI(%)
+8524.32.00 Para reproducir únicamente sonido 10
