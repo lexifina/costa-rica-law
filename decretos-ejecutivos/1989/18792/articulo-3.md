@@ -1,0 +1,1 @@
+Artículo 3°—Dejar sin efecto todos los permisos para la pesca artesanal de camarón en pequeña escala, que el Ministerio de Agricultura y Ganadería haya otorgado para la zona 3 de la parte interior del Golfo de Nicoya, con base en el decreto N° 16804 de fecha citada.
