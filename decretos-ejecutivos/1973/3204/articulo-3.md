@@ -1,0 +1,2 @@
+Artículo 3°—División de Asesoría Jurídica y Asuntos Internacionales de Trabajo. Ministerio de Trabajo y Seguridad Social.—San José, a las dieciséis horas del día diez de setiembre de mil novecientos setenta y tres. Por llenar los requisitos necesarios y por estar de acuerdo con la ley se aprueba el presente Reglamento Interior de Trabajo.
+Dado en la Casa Presidencial.-San José, a los doce días del mes de setiembre de mil novecientos setenta y tres.
