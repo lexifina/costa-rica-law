@@ -1,0 +1,1 @@
+Artículo 8º—De las Normas Supletorias. En lo no dispuesto en el presente reglamento, el Comité Gerencial de Informática se regirá por las normas contenidas en la Ley General de la Administración Pública en lo relativo a los órganos colegiados, así como cualquier otra disposición de derecho público que resulte aplicable al caso concreto.
