@@ -1,1 +1,0 @@
-Artículo 2°-La Caja pertenecerá como Institución Anexa al Sistema Bancario Nacional y tendrá personería jurídica propia, distinta a la de los demás órganos e instituciones del Estado, y gozará de la autonomía administrativa y financiera establecida por la presente ley.
