@@ -14,3 +14,4 @@ Reglamento Autónomo de Trabajo del Servicio Nacional de Aguas Subterráneas, Ri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-09-27 | la propia norma |
+| 2 | 2001-06-04 | Reglamento 387 (2001-06-04) |
