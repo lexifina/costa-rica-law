@@ -1,4 +1,4 @@
-CAPÍTULO III
+CAPITULO III
 Restitución del Menor
 Artículo 8°- Toda persona, institución u organismo que sostenga que un menor ha sido objeto de traslado o retención con infracción del derecho de custodia, podrá dirigirse a la Autoridad Central de la residencia habitual del menor, o a la de cualquier otro Estado contratante, para que, con su asistencia, quede garantizada la restitución del menor.
 La solicitud incluirá:
