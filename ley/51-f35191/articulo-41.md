@@ -1,1 +1,0 @@
-Art. 41.-Con respecto á los hijos habidos de legitimo matrimonio, ó en tiempo en que legalmente deban reputarse necios dentro de é no puede expresarse en el registro civil declaración alguna contraria su legitimidad, mientras no lo disponga el tribunal competente en sentencia firme.

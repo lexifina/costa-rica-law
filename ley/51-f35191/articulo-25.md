@@ -1,1 +1,0 @@
-Art. 25.-Si por circunstancias extraordinarias se interrumpiere una inscripción, se extender cuando pueda continuarse la diligencia, un nuevo asiento, en que antes que todo se exprese la causa de la interrucción, poniéndose notas de referencia al margen de la inscripción interrumpida y de la nueva.
