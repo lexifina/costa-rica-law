@@ -1,0 +1,1 @@
+Artículo 170.-La instrucción pública de ambos sexos será uniforme en todo el Estado, bajo los principios que establezca el reglamento general y bajo la inspección y dirección del Jefe Director de que habla el art. 168, cuya autoridad no intervendrá en el régimen particular de la Universidad.

@@ -1,0 +1,1 @@
+Artículo 100.-La promulgación de la ley se hará con esta fórmula “El Presidente del Estado de Costa Rica.-Por cuanto el Poder Legislativo ha decretado y sancionado lo siguiente.”-(Aquí el texto.)- “Por tanto: ejecútese.”

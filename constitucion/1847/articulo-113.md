@@ -1,0 +1,1 @@
+Artículo 113.-Para ser jefe de sección se requiere: 1º ser ciudadano en ejercicio de sus derechos: 2º natural del Estado ó naturalizado: 3º poseer un capital en bienes conocidos que no baje de mil pesos; y 4º ser mayor de edad y tener todas las aptitudes para el manejo de una oficina.

@@ -1,0 +1,1 @@
+Artículo 85.-Para los casos de iniciativa de las leyes de que habla el artículo 110 fracción 20, para lo que previene el mismo artículo y fracción relativamente a los informes que el Ejecutivo debe dar al Cuerpo Legislativo, y para dar cuenta con las memorias de que habla el artículo citado atribución 16, los Ministros del Despacho tienen asiento en el Cuerpo Legislativo.

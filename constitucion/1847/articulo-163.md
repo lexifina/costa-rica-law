@@ -1,0 +1,1 @@
+Artículo 163.-Además de los Gobernadores Políticos departamentales, se establecen Cuerpos Municipales compuestos, en las cabeceras de departamento, del mismo Gobernador Político en calidad de Presidente, de los Síndicos procuradores y de los Alcaldes 2º y 3º constitucionales.

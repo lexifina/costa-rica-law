@@ -1,0 +1,1 @@
+Artículo 6º.-Todos los ciudadanos costarricenses en ejercicio de sus derechos, tienen expedito el de representar activa y pasivamente ante las autoridades del Estado y conforme a las leyes; el de poseer para su defensa las armas que no sean prohibidas por la ley; y el de trasladarse a cualquiera país ó lugar, siempre que esté libre de toda responsabilidad

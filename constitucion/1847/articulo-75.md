@@ -1,0 +1,1 @@
+Artículo 75.-El Congreso de Diputados se renovará por mitad cada año, decidiendo la suerte en el primer periodo, lo que deban, salir, y renovándose los mas antiguos. Dicha renovación, se entiende lo mismo en el suplente que en el propietario.

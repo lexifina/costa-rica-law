@@ -1,0 +1,1 @@
+Artículo 3º.-Cuando el Gobierno infrinja públicamente las leyes, causando males de consideración al Estado ó a sus habitantes, ó cuando abandone el cumplimiento de sus deberes, entonces el pueblo y cada no de sus habitantes, tienen derecho de hacerlo presente directamente al Poder Legislativo.

@@ -1,0 +1,1 @@
+Artículo 15.-Queda reducida la pena de muerte a los casos siguientes: 1º el de homicidio premeditado ó seguro; y 2º el de atentado contra el orden público, de cuya ejecución resulte la muerte de alguno ó algunos individuos, en cuyo único caso solamente los principales motores podrán ser condenados a esta pena.

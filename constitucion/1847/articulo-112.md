@@ -1,0 +1,1 @@
+Artículo 112.-Para ser Ministro del Despacho se requiere: 1º ser ciudadano en ejercicio de sus derechos: 2º natural del Estado: 3º ser casado: 4º ó viudo con hijos: 5º poseer un capital en bienes conocidos que no baje de tres mil pesos; y 6º ser mayor de edad y del estado seglar.

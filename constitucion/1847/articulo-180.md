@@ -1,0 +1,1 @@
+Artículo 180.-El Cuerpo Legislativo con presencia de las memorias y datos conducentes que debe presentar el Ejecutivo, al abrir sus sesiones, resolverá lo conveniente y declarará la legalidad de los actos del mismo Poder Ejecutivo, o exigirá la responsabilidad en el caso de no estar arreglados y conformes a las leyes.

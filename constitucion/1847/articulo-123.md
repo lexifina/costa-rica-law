@@ -1,0 +1,1 @@
+Artículo 123.-El periodo constitucional de los Magistrados, será de seis años; pero la renovación se practicará por mitad cada tres años, saliendo tres la primera vez por la suerte, y después los cuatro restantes, quedando así establecido para lo sucesivo, el orden de antigüedad, y pudiendo ser reelectos a voluntad del Poder Legislativo y de los candidatos.

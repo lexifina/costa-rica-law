@@ -1,0 +1,1 @@
+Artículo 131.-Los acuerdos del Tribunal Supremo de Justicia serán autorizados completamente por un Secretario que el mismo Tribunal nombrará de fuera de su seno, el cual será sustituido por un Pro-Secretario nombrado de la misma manera.

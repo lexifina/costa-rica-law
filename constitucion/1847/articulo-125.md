@@ -1,0 +1,1 @@
+Artículo 125.-Cuando en el Estado haya por lo menos, diez profesores del Derecho, naturales y radicados en él, en igualdad de las circunstancias mencionadas en el art. 122, será condición indispensable para ser Regente y Fiscal, la calidad de Abogado; y cuando haya por lo menos dieciséis Abogados en el concepto expreso, toda la Corte será compuesta de ellos.

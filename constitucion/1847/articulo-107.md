@@ -1,0 +1,1 @@
+Artículo 107.-Para ser Presidente del Estado se requiere: 1º ser ciudadano en ejercicio de sus derechos: 2º natural del Estado: 3º del estado seglar: 4º tener un capital en bienes conocidos que no baje de ocho mil pesos: 5º ser casado: 6º ó viudo con hijos; y 7º ser mayor de edad.

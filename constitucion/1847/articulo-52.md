@@ -1,0 +1,1 @@
+Artículo 52.-Para calificar a los habitantes del Estado, con derecho a votar, se formarán registros en que serán inscritos solamente los que tengan las calidades de ciudadano. Al presentarse a votar, deben hacer ostentación de su carta de ciudadanía, la cual se extenderá a cada uno por la autoridad competente, al tiempo de verificar el registro.

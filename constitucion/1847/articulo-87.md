@@ -1,0 +1,1 @@
+Artículo 87.-El informe que emita dicha Comisión, sufrirá una lectura y dos discusiones en tres días distintos; cuya lectura y discusiones, se versarán sobre el proyecto en general, debiendo discutirse en particular sobre los artículos si los tuviere

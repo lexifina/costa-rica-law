@@ -1,0 +1,1 @@
+Artículo 105.-Inmediatamente y sin pérdida de tiempo, los pueblos serán convocados a elecciones en los casos de que habla el art. anterior, y el Poder Legislativo se reunirá oportunamente para declarar la elección según queda prevenido.

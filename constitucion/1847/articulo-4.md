@@ -1,0 +1,1 @@
+Artículo 4º.-Todo hombre puede libremente comunicar sus pensamientos por la palabra, por la escritura y por la imprenta, sin previa censuras, mas en los dos últimos casos bajo su firma y a condición de quedar sujeto a las penas establecidas por la ley, cuando traspase los límites de este derecho.

@@ -1,0 +1,1 @@
+Artículo 66.-Si no resultase en este segundo acto elección popular, el Cuerpo Legislativo lo verificará entre los que hayan reunido, de un tercio arriba; y sino alcanzare a este número, entre los que reúnan mas votos.

@@ -1,0 +1,1 @@
+Artículo 103.-El periodo constitucional del Presidente y Vice-Presidente del Estado será el de seis años, contados desde el día en que se les declare su elección. Podrán ser reelectos a voluntad del pueblo y de las personas nombradas, y deberá admitirse su renuncia tanto a uno como a otro, cuando transcurridos cuatro años, la presente aun sin fundamentos legales.

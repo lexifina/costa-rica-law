@@ -1,0 +1,1 @@
+Artículo 120.- La Corte Suprema de Justicia se compondrá de individuos, en razón de uno por cada Departamento, y además de un Regente y un Fiscal: todos responsables ante el Jurado, por faltas que cometan en el desempeño de sus funciones, e igualmente recusables, uno por cada parte sin expresión de causa.

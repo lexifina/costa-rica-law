@@ -1,0 +1,1 @@
+Artículo 17.-Ninguna autoridad puede poner fuera de la ley, sino al que manifieste y tumultuariamente desconozca la Constitución y las Autoridades establecidas por ella, y al que sustrayéndose del poder de las leyes y del conocimiento de los Jueces, quiera inhibirse del castigo por la fuerza.

@@ -1,0 +1,1 @@
+Artículo 51.-Las juntas populares elegirán un elector por cada quinientos habitantes. Las poblaciones que alcancen al número de trescientos cincuenta ó cuatrocientos, elegirán, sin embargo, un elector, conforme lo establece el artículo que antecede.

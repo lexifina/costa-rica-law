@@ -1,0 +1,1 @@
+Artículo 70.-Se reunirá el día primero de mayo de cada año, haya ó no convocatoria, y funcionará ordinariamente tres meses continuados, prorrogables a cuatro; pero dicha Prórroga debe ser acordada previamente por dos terceras partes de votos de sus individuos, cuando la urgencia de los negocios pendientes así lo exija.

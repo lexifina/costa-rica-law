@@ -1,0 +1,1 @@
+Artículo 65.-Cuando del escrutinio que debe hacer el Cuerpo Legislativo de las listas de sufragios para Presidente y Vice-Presidente del Estado, no resultase elección popular, se devolverá a los colegios , con copia del resultado del escrutinio, para que repitan la elección.

@@ -1,0 +1,1 @@
+Artículo 161.-Dichos Gobernadores Políticos posesionados de su destino, serán reconocidos y respetados por todos los individuos comprendidos en su departamento; pero en todo lo concerniente a la policía, serán obedecidos sin distinción de fuero

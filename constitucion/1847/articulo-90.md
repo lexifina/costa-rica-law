@@ -1,0 +1,1 @@
+Artículo 90.-Discutido y aprobado un proyecto de ley, se pasará a informe del Poder Ejecutivo, quien lo verificará dentro de cinco Díaz contados desde la fecha en que se le pase, y prorrogables hasta diez en los casos de leyes reglamentarias que demanden mas tiempo para su resolución.

@@ -1,0 +1,1 @@
+Artículo 11.-El orden de procedimientos en las casas civiles y criminales, debe ser el mas pronto y eficaz para su terminación, y las leyes que lo arreglen, deben ser estrictamente justas y razonables, para que no peligren la vida, el honor y los bienes del inocente, y para que el crimen jamás quede impune.

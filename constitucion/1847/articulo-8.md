@@ -1,0 +1,1 @@
+Artículo 8º.-Todos tienen acción a los destinos públicos, conforme a la ley, y en igualdad de circunstancias, la experiencia, las virtudes, el saber y los méritos por servicios distinguidos al Estado, serán considerados y preferidos.

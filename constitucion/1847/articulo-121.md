@@ -1,0 +1,1 @@
+Artículo 121.-El Regente, los Magistrados y el Fiscal serán electos nominalmente por tres cuartas partes de votos de los Diputados presentes, conforme lo previene el art. 79 atribución 7ª La elección de los suplentes que deben subrogar a dichos Magistrados, será practicada del mismo modo.
