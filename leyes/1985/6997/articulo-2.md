@@ -1,16 +1,4 @@
-Artículo 2º.- Refórmanse el encabezamiento del artículo 4º y sus
-incisos a) y d), de la Ley de Pensiones y Jubilaciones del Magisterio
-Nacional, Nº 2248 del 5 de setiembre de 1958 y sus reformas, cuyos textos
-dirán:
-"Artículo 4º.- El monto del beneficio se determinará de conformidad
-con las siguientes reglas:
-a) Cuando la jubilación fuere ordinaria, será igual al mejor salario
-recibido en los últimos cinco años de servicio, más el promedio de los
-sobresueldos y las dietas mensuales nominales devengados en el mismo
-período.
-d) Cuando la jubilación fuere extraordinaria, se determinará como se
-indica en el inciso a) anterior, pero dividiendo esa suma entre el número de
-años exigido para la jubilación ordinaria o, según sea el caso, si se ha
-desempeñado el servicio con horario alterno, en la enseñanza especial o en
-zonas calificadas como incómodas o insalubres, y multiplicando la cantidad
-obtenida por el número de años de servicio, que no podrá ser mayor de treinta."
+Artículo 2º.- Refórmanse el encabezamiento del artículo 4º y sus incisos a) y d), de la Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 del 5 de setiembre de 1958 y sus reformas, cuyos textos dirán:
+"Artículo 4º.- El monto del beneficio se determinará de conformidad con las siguientes reglas:
+a) Cuando la jubilación fuere ordinaria, será igual al mejor salario recibido en los últimos cinco años de servicio, más el promedio de los sobresueldos y las dietas mensuales nominales devengados en el mismo período.
+d) Cuando la jubilación fuere extraordinaria, se determinará como se indica en el inciso a) anterior, pero dividiendo esa suma entre el número de años exigido para la jubilación ordinaria o, según sea el caso, si se ha desempeñado el servicio con horario alterno, en la enseñanza especial o en zonas calificadas como incómodas o insalubres, y multiplicando la cantidad obtenida por el número de años de servicio, que no podrá ser mayor de treinta."
