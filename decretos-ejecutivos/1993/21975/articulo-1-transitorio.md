@@ -1,0 +1,1 @@
+TRANSITORIO I.- Las disposiciones previstas en este Reglamento serán aplicables a quienes ya estuvieran acogidos a los beneficios de la ley No. 4812 y su reglamentación anterior, únicamente en cuanto les favorezca. En ese sentido, seguirán gozando de los beneficios que establece dicha ley.

@@ -1,0 +1,1 @@
+Artículo 7º- Para dar trámite a la cancelación o la solicitud de renuncia a las categorías de pensionado o de rentista, la Dirección deberá comprobar a través de constancia emitida por la Dirección General de Hacienda: que el interesado se encuentra a derecho con respecto a las obligaciones que se hayan derivado del otorgamiento de las exoneraciones tributarias.

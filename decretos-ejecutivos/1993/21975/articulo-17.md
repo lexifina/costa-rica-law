@@ -1,0 +1,1 @@
+Artículo 17. La falsedad comprobada en los documentos o informes suministrados para el otorgamiento de la residencia como pensionados o rentistas ocasionará el rechazo de la solicitud o la cancelación del status ya otorgado sin perjuicio de las sanciones que correspondan.

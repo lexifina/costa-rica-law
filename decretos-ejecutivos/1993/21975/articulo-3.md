@@ -1,0 +1,1 @@
+Artículo 3º- Se entiende por residente rentista toda aquella persona extranjera a quien la Dirección le conceda esa condición por haber demostrado ante esa institución que durante un período no menor de cinco años percibirá una renta no inferior al equivalente a la suma mensual de un mil dólares, moneda de los Estados Unidos de América, generado en forma estable.

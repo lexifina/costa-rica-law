@@ -1,0 +1,1 @@
+TRANSITORIO II.- Aquellas solicitudes de residencia que a la fecha de la publicación de este Reglamento se estuvieran tramitando ante el Instituto Costarricense de Turismo, continuarán su trámite procurando aplicar las nuevas normas, armonizándolas en cuanto fuere posible, con las actuaciones ya practicadas.

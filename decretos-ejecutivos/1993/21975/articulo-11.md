@@ -1,0 +1,1 @@
+Artículo 11. En caso de fallecimiento del beneficiario, los derechos le serán adjudicados a cualquiera de sus dependientes que demuestren mejor derecho de conformidad con la legislación costarricense, y que cumpla además con los requisitos legales y reglamentarios.
