@@ -1,8 +1,0 @@
-Artículo 6°-Cuando se trate de una solicitud para que el establecimiento quede inscrito dentro de la clasificación “Reconocido”, deberá ser acompañada, además de los documentos a que se refiere el artículo 5°, de los siguientes:
-a) Póliza de garantía expedida por el Instituto Nacional de Seguros por valor de ¢10,000.00 (diez mil colones), para responder por los compromisos que adquiera y por los posibles daños y perjuicios que causare la eventual clausura anticipada del establecimiento;
-b) Nómina del personal directivo, docente y administrativo de la institución, con indicación de sus antecedentes profesionales relacionados con la enseñanza;
-c) Nómina detallada del material existente en sus laboratorios o gabinetes de Física, Química, Ciencias Naturales, Estudios Sociales y Biblioteca, acompañada de una constancia del correspondiente Supervisor que lo visitó;
-d) Copia fiel del Plan de Estudios y de los Programas que van a seguir. Declaración de títulos o diplomas que van a expedir;
-e) Compromiso formal que adquiere la institución de pagar a los miembros del personal los sueldos que corresponden a su grupo y categoría, de acuerdo con lo que al efecto se haya dispuesto en el régimen oficial;
-f) Compromiso de que depositará en el Ministerio de Educación Pública todos los documentos y archivos del establecimiento, en el caso de una suspensión temporal o definitiva de sus actividades; y
-g) Pruebas fehacientes de que ninguno de los miembros del personal figura o ha figurado como afiliado a organizaciones nacionales o extranjeras de tendencias contrarias al régimen democrático o a la moral.

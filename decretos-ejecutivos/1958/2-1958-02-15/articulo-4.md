@@ -1,1 +1,0 @@
-Artículo 4°-La solicitud para abrir un establecimiento docente privado debe ser presentada ante el Consejo Superior de Educación por la persona o la entidad interesada, con estricto acatamiento de las disposiciones legales y reglamentarias, en papel de la novena clase.

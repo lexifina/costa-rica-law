@@ -1,1 +1,0 @@
-Artículo 11-Los alumnos y ex-alumnos de los centros docentes privados tienen derecho a solicitar y obtener del Director y Secretario respectivo, en forma gratuita, la certificación legal de los estudios hechos y de las materias aprobadas, con la calificación correspondiente.
