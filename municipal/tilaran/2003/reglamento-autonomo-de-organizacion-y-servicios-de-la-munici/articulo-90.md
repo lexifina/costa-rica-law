@@ -1,0 +1,1 @@
+artículo 95 del Código de Trabajo. Durante el plazo de la licencia, la Municipalidad le pagará el monto restante del subsidio que reciba de la Caja Costarricense de Seguro Social, hasta completar el ciento por ciento (100%) de su salario.

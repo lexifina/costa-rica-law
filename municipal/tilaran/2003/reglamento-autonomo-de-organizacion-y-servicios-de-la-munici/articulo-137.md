@@ -1,0 +1,1 @@
+Artículo 137.—Salvo los casos previstos en este Reglamento la omisión de marca a cualquier de las horas de entrada o salida, hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el trabajador no la justifique a más tardar dentro de los tres días del conocimiento de la Oficina de Personal, con su respectivo criterio.

@@ -1,0 +1,5 @@
+Artículo 131.—La jornada ordinaria de trabajo de los servidores municipales, se desarrollará de la siguiente manera.
+a) Personal administrativo: de lunes a jueves de 7:00 a. m. a las 4:00 p. m. (jornada continua), descanso de 60 minutos para almorzar. Los viernes de 7:00 a. m. a 3:00 p. m.
+b) Personal de campo: de lunes a jueves de 6:00 a. m. a 4:00 p. m., descanso de 60 minutos para almorzar. Los viernes de 6:00 a. m. a 2:00 p. m.
+c) Además de un descanso de 15 minutos en la mañana y 15 minutos por la tarde. Entre las nueve y diez horas y entre las catorce y quince horas reguladas por la alcaldía.
+No obstante, la Municipalidad, podrá establecer jornadas ordinarias inferiores a estas por razones de salud, ocupación, u horarios de trabajo distintos a los allí señalados. En cuanto a la jornada y horario de trabajo de los conserjes, guardas, chóferes y cualquier otro puesto que lo justifique, será regulado por el Alcalde y la oficina de personal, en conjunto con el jefe de la dependencia respectiva.

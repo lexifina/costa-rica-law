@@ -1,0 +1,1 @@
+Artículo 123.—Los funcionarios con grado académico de licenciado, podrán acogerse al pago por concepto de dedicación exclusiva o disponibilidad, según las disposiciones legales vigentes en esa materia.

@@ -1,0 +1,1 @@
+Artículo 9º—Corresponde al Alcalde Municipal realizar nombramientos, promociones y remoción de los empleados municipales, con excepción de los empleados que dependan directamente del Concejo Municipal, asimismo, los empleados ocasionales contratados con cargo a las partidas presupuestarias de servicios especiales o jornales ocasionales.

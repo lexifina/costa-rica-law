@@ -1,0 +1,1 @@
+Artículo 62.—La Municipalidad de Tilarán deberá adoptar las medidas necesarias para los servidores (as) cuya permanencia no sea aconsejable, por razones médicas, en un puesto que entrañe exposiciones a los riegos de su trabajo debiendo en este caso, proceder al traslado del funcionario (a) a un puesto más adecuado.

@@ -1,0 +1,4 @@
+Artículo 4º—Son principios éticos del servidor municipal los siguientes:
+a) Orientar el ejercicio de la función municipal a la satisfacción del bien común, que es su fin último y esencial.
+b) La lealtad, eficacia, la honradez y la responsabilidad, son valores fundamentales que deberán tenerse presentes en el ejercicio de la función municipal. También se tendrán presentes los principios del servicio público. Los deberes y prohibiciones que deben acatar los funcionarios municipales se fundamentan en esos valores y principios.
+c) El funcionario municipal es un servidor de los administrativos del cantón de Tilarán, y en particular de cada individuo o administrativo que con él se relacione en virtud de la prestación del servicio y de la función que desempeña la cual debe atender de una manera integral con aplicación plena de conocimientos, aptitudes y valores.

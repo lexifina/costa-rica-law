@@ -1,0 +1,2 @@
+Artículo 146.—La llegada tardía injustificada mayor de quince minutos, contados a partir de la hora de ingreso estipulada en el artículo anterior, impedirán al funcionario laborar en la respectiva fracción de la jornada y se calificará como media ausencia para efectos de sanción y no pago del salario que a ella corresponda.
+En todo caso, el funcionario habrá de registrar obligadamente el ingreso al centro de trabajo mediante el sistema correspondiente.

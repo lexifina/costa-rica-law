@@ -1,0 +1,1 @@
+Artículo 68.—Todo trabajador está en la ineludible obligación de dar aviso a la Oficina de Servicios Administrativos o al jefe inmediato o Alcalde, de algún accidente que haya sufrido, dentro del día posterior al accidente.

@@ -1,0 +1,1 @@
+Artículo 30.—Todo funcionario (a) de la Municipalidad de Tilarán deberá pasar satisfactoriamente un periodo de prueba hasta de tres meses de servicio, contados a partir de la fecha de vigencia del acuerdo de su nombramiento.

@@ -1,0 +1,1 @@
+Artículo 40.—Los incentivos pueden ser de dos tipos: individuales o colectivos. Entendiendo los individuales los aplicados a un funcionario determinado y el colectivo cuando se aplica a una unidad, sección o departamento de la Municipalidad.
