@@ -1,0 +1,1 @@
+Artículo 2º—Adiciónase a las exclusiones indicadas en el artículo Nº 2 inciso b) del Decreto Ejecutivo Nº 29511-H las Materias Primas y Mercaderías, compradas a través del Programa de Abastecimiento Institucional del Consejo Nacional de Producción.
