@@ -1,0 +1,1 @@
+Artículo 15.—Es obligatorio para todo beneficiario, en cada período o cuando lo requiera la Municipalidad en casos especiales, presentar la documentación que se les pida con el objeto de observar el rendimiento académico.

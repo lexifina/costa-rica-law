@@ -1,0 +1,1 @@
+Artículo 27.—Según se estipula en el artículo 36 inciso c).De la Convención Colectiva suscrita por esta Municipalidad, las becas para tos hijos de los funcionarios municipales, se regirán en cuanto a procedimiento, monto y requisitos por el presente reglamento.

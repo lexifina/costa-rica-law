@@ -1,0 +1,1 @@
+Artículo 5°—Los becarios serán los hijos e hijas de los vecinos del Cantón Central de Heredia, que cursen el tercer ciclo y enseñanza diversificada, ya sea en horarios diurnos o nocturnos y de enseñanza normal o especial. Y a los que se les aplicarán separadamente estas reglamentaciones.

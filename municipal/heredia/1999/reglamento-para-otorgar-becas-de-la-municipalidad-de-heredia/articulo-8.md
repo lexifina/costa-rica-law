@@ -1,0 +1,1 @@
+Artículo 8°—Las solicitudes de becas se recibirán en la Secretaría Municipal hasta la primera semana de enero, para lo cual anualmente la comisión de Becas redactará el respectivo aviso para la debida información al público.

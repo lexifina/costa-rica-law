@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE HEREDIA
+(Nota de Sinalevi: La Municipalidad de Heredia, aprobó un nuevo Reglamento de becas municipales, y publicado en La Gaceta N° 19 del 1° de febrero de 2018.)
+REGLAMENTO PARA OTORGAR BECAS
+Artículo 1°—En virtud de que el artículo 62 párrafo tercero del Código Municipal dispone: "...Como excepción de lo dispuesto en el párrafo anterior, las Municipalidades podrán otorgar ayudas temporales a vecinos del cantón que enfrenten situaciones debidamente comprobadas de desgracia o infortunio. También podrán subvencionar a centros de educación pública, beneficencia o servicio social que presten servicios al respectivo cantón. Además podrán otorgar becas para estudio a sus munícipes de escasos recursos y con capacidad probada para estudiar. Cada Municipalidad emitirá el reglamento para regular lo anterior.
