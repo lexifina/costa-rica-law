@@ -1,0 +1,1 @@
+Artículo 8°—El incumplimiento a lo establecido en los artículos 4 y 6 incisos a y b del presente reglamento, será sancionado de conformidad con las estipulaciones del Título IX, Capítulo III, de la Ley Reguladora del Mercado de Valores N° 7732.

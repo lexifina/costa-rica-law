@@ -1,0 +1,1 @@
+Artículo 2°—Se establece el 30 de junio de 1999 como fecha límite para que las entidades fiscalizadas por la SUGEVAL, de conformidad con lo establecido en el artículo uno, implementen en sus sistemas informáticos los ajustes requeridos para enfrentar el riesgo asociado con el cambio del año 2000.
