@@ -1,0 +1,1 @@
+3.- El Jefe Político Superior y las Municipalidades deben certificarse continuamente de la ocupación de los forasteros que ingresen en el Estado, así como deben hacerlo respecto de todos sus vecinos, obrando en consecuencia con los vicios, vagos y mal entretenidos, como disponen las Leyes del caso.

@@ -1,0 +1,1 @@
+6.- En consecuencia de las disposiciones precedentes se hará en el Estado, en el perentorio término de un mes de publicado este Decreto, una expurgación o calificación general de las personas que hayan ingresado en él, su procedencia, punto en que residen, y ocupación que tengan, obrándose con los vagos sean o no vecinos, conforme al tenor de las Leyes.
