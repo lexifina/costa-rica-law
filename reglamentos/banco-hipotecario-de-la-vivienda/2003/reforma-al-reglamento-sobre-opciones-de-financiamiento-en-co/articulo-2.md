@@ -1,0 +1,1 @@
+2°-Se reitera a la Administración que estos proyectos de vivienda deberán cumplir con todos los requisitos señalados en el Formulario BANHVI 3-99 y sus anexos, así como con toda la normativa aplicable de conformidad con lo establecido en el Reglamento de Operaciones del Sistema Financiero Nacional para la Vivienda y en el Artículo 59 de la LSFNV y sus reformas.
