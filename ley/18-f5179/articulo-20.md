@@ -1,0 +1,2 @@
+ARTÍCULO 20.-El Capitán de Puerto, bajo sus mas estrecha responsabilidad, vigilará por la limpieza y buen estado de las máquinas, cuya operación es a cargo del maquinista respectivo, bajo las órdenes del Jefe mecánico, y por el aseo y buen estado del resto de la embarcación, lo cual es a cargo del timonel ó piloto. Inmediatamente después del regreso de cada vapor, el Capitán de Puerto pasará a bordo a inspeccionar su estado, y dictará las providencias conducentes a fin de que se practique, sin pérdida de tiempo, cualquiera reparación que sea necesaria.
+.

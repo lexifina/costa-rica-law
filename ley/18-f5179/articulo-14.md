@@ -1,0 +1,1 @@
+ARTÍCULO 14.-Los billetes de pasaje y fletes se expedir n por el Administrador de correos de Puntarenas, y en los puertos de la Provincia de Guanacaste, mientras no haya allí empleados a cuyo cargo esta esta atribución, por el Alcaide de turno que vaya a bordo, ó por la persona que el mismo Administrador recomiende, bajo su propia responsabilidad.
