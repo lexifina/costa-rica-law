@@ -1,1 +1,1 @@
-Transitorio III.—Los productos farmacéuticos registrados deben presentar los estudios de estabilidad y validación de métodos. Además de lo anterior, los productos multiorigen de riesgo sanitario deben presentar los estudios de equivalencia terapéutica. Esta disposición entrará a regir veinticuatro meses después de publicada la normativa que regula los estudios correspondientes.
+Transitorio III.-(Derogado mediante el artículo 1 del decreto ejecutivo N°28774 del 26 de junio del 2000).
