@@ -1,0 +1,3 @@
+CAPITULO II
+Servicios y horarios
+Artículo 4°-Los puestos varios u ocasionales funcionarán únicamente los días de feria, sea los días jueves, viernes a partir de las 12 m, sábados y domingos según el horario que establezca el ejecutivo municipal o en su defecto el Concejo Municipal. Dicho horario podrá ser variado por la Municipalidad cuando así lo juzgue conveniente. Queda terminantemente prohibido a los usuarios de estos puestos despachar o vender mercadería en días y horas que no sean de feria. El abastecimiento de estos puestos estará sujeto a las disposiciones que al efecto dicte el Concejo. El usuario de derecho de piso que infrinja cualquiera de las dos anteriores disposiciones, se les cancelará en forma inmediata y automática su derecho sin lugar a indemnización.
