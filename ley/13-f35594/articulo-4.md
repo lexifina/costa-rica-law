@@ -1,0 +1,14 @@
+Artículo 4° Son condiciones de las franquicias que se conceden:
+a) La Compañía de Luz Eléctrica de Cartago deberá aprontar dentro del término de doce meses, de una manera satisfactoria al Poder Ejecutivo, el capital necesario para la construcción, equipo y funcionamiento del tranvía proyectado;
+b) Los trabajos, para esos fines, deberán comentarse dentro del plazo de diez y ocho meses, y la obra deberá estar concluída y en servicio, dos años después.
+c) La obra, incluidos todos sus anexos y accesorios deberá ofrecer las mayores condiciones de solidez, seguridad y servicio de primera clase, que prestan las más recientes empresas de tranvías eléctricos en otros países.
+d) La obra no podrá construirse sin que el Poder Ejecutivo de su aprobación a los planos y localización de la línea, sobre los cuales habrá dictaminado antes la Oficina Técnica.
+e) El servicio diario de carros entre San José y Cartago, principiará a las 6 a.m. desde cada ciudad el último carro partirá de dichos puntos a las 8 p.m. Cada hora, si el tráfico lo requiere, entre las expresadas, saldrá de Cartago y San José un carro y desde que el servicio lo exija, a juicio del Ejecutivo, se aumentará el número de viajes diarios.
+f) El precio máximo de transporte de pasajeros, será a razón de tres céntimos de colón por kilómetros y el mínimum de un pasaje será de diez céntimos de colón. Si la empresa transportare carga, la tarifa requerirá la aprobación del Poder Ejecutivo;
+g) La Compañía estará obligada a cumplir las disposiciones de buen gobierno que en cualquier tiempo emita el Estado para el funcionamiento de tranvías;
+h) La Compañía no podrá traspasar sus derechos sin la aprobación del Legislativo. Tampoco podrá arrendar el tranvía ni darlo en administración sin este requisito. No podrá tener empleados o directores que lo sean de otra empresa de tranvía o ferrocarril.
+i) Es entendido que para que el tranvía funcione en el circulo de las ciudades de San José y Cartago, así como de cualquier villa, será necesaria la aquiescencia de la respectiva Municipalidad;
+j) Las secciones de carretera que atraviese el tranvía deberán mantenerse en buen estado de conservación, arreglando por su cuenta la Compañía cualquier desperfecto que ocasione.
+La empresa abrirá y mantendrá en buen estado los desagües de la carretera, por el lado que ocupe la trocha del tranvía, sujetándoseles, a las instrucciones que reciba de la Dirección General de Obras Públicas;
+k) El Presidente de la República, Secretarios y Subsecretarios de Estado, Magistrados y Diputados, propietarios y suplentes, tendrán libre pasaje en el tranvía.
+l) Si la Compañía interrumpiere su servicio durante seis meses, salvo por caso fortuito como derrumbamiento, crecientes de los ríos, temblores, etc, etc, que impidan reparar los daños causados dentro del periodo estipulado, pagará una multa mensual de mil colones.
