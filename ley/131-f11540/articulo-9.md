@@ -1,0 +1,1 @@
+ARTÍCULO 9°.-las comisiones del art. 4° y los sobrestantes del 6° son responsables ante la Municipalidad por la calificación falsa, negligencia ó fraude en sus encargos; la Municipalidad responder de estos últimos dos defectos, y del nombramiento de sobrestantes ímprobos o imperitos ante el Jefe Político superior; y ‚este en su caso por alguno de dichos defectos ser destituido.
