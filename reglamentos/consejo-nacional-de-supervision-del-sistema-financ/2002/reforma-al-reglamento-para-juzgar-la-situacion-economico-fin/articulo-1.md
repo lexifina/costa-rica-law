@@ -1,0 +1,12 @@
+BANCO CENTRAL DE COSTA RICA
+CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO
+Mediante artículo 13 del acta de la sesión 275-2002, celebrada el 14 de enero del 2002,
+considerando:
+a. que en el marco de la globalización y de la consolidación de capitales, las entidades se ven en la obligación de definir estrategas para enfrentar un mercado cada vez más competitivo. Dentro de estas estrategias, las fusiones ofrecen nuevas fuentes de ingresos, reducción de costos, mayor rentabilidad, eficiencia, diversifícación del riesgo y fortalecimiento patrimonial;
+b. que el propósito de los indicadores financieros contenidos en el Acuerdo SUGEF 27-00 "Reglamento para Juzgar la Situación Económico-Financiera de las Asociaciones Mutualistas de Ahorro y Préstamo para la Vivienda, es recoger los resultados reales de la operación de estas entidades;
+c. que el indicador Rentabilidad sobre el Activo Productivo de Intermediación Promedio y el de Rentabilidad sobre Patrimonio Promedio pretenden medir el rendimiento generado por el activo productivo de intermediación y el de patrimonio, respectivamente durante un año. Dichos indicadores incorporan nota aclaratoria en el sentido de que: "Cuando dos o más intermediarios se fusionan los índices del elemento de evaluación de la utilidad se calculan como si la fusión hubiese ocurrido doce meses atrás ";
+d. que en línea con los considerados b. y c. anteriores, es claro que la nota citada introduce un elemento que contraviene el propósito de la normativa al conceptuar una situación financiera al inicio del período analizado, que realmente no existió y que revela una interpretación incorrecta y que a la postre desalienta a concretar un proceso de fusión;
+e. que con fundamento en el artículo 361, inciso 2, de la Ley General de la Administración Pública, no se somete en consulta que confieren las audiencias a las entidades representativas de carácter general o corporativo, ya que el CONASSIF estima que esta medida favorece a las entidades al eliminar un elemento que distorsiona negativamente el cálculo de uno de los índices de rentabilidad.
+dispuso:
+1. Derogar la nota al pie número cinco, asociada con el indicador de Rentabilidad sobre el Activo Productivo de Intermediación Promedio y el de Rentabilidad sobre Patrimonio Promedio, del Anexo 2 del Acuerdo SUGEF 27-00 "Reglamento para Juzgar la Situación Económico-Financiera de las Asociaciones Mutualistas de Ahorro y Préstamo para la Vivienda ".
+2. El acuerdo precedente rige a partir de su comunicación.
