@@ -1,4 +1,6 @@
+(Derogado)
 N° 12
+(Esta norma fue Derogada por el artículo 243 del Decreto Nº 69 de 12 de diciembre de 1964)
 EL PRESIDENTE DE LA JUNTA FUNDADORA
 DE LA SEGUNDA REPUBLICA
 DECRETA:

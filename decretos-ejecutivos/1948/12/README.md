@@ -13,3 +13,4 @@ Reglamento para la Junta de Liquidaciones del Café
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1948-11-12 | la propia norma |
+| 2 | 1964-12-12 | SINALEVI (sin norma nombrada) |
