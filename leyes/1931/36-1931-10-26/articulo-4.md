@@ -1,0 +1,1 @@
+Artículo 4°.-La residencia de los Médicos Oficiales será fijada en cada circuito por dicha Secretaría, la cual procederá de acuerdo con los factores tomados en cuenta al hacer la división de los circuitos médicos.

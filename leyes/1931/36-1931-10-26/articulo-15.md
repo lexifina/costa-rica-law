@@ -1,0 +1,1 @@
+Artículo 15.-La asistencia médica debe ser proporcionada al enfermo pobre con cargo a los respectivos fondos municipales del cantón donde tiene su domicilio conforme a las ¢órdenes que por escrito diere el Médico Oficial.

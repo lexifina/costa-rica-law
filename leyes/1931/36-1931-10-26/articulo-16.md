@@ -1,0 +1,1 @@
+Artículo 16.-En los lugares en donde no haya botica regentada por farmacéutico titulado o autorizado conforme a la Ley, los Médicos Oficiales pueden tener su botiquín particular y despachar allí¡ sus propias recetas.
