@@ -1,0 +1,1 @@
+Art 5°.- Las bolsas de arroz empacado, para todas las mezclas deberán llevar impreso en el empaque el tipo de mezcla, las disposiciones de la norma oficial de etiquetas para productos alimenticios y cualquier otra disposición que este Ministerio considere pertinente.

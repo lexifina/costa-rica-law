@@ -1,0 +1,2 @@
+Art 2°.- Las existencias actuales de arroz adquiridos por los industriales hasta el 15 de julio de 1983 deberán ser traspasadas al Consejo Nacional de Producción, al precio de ¢826,60 el saco de 73.6 kilogramos de granza, más los costos de manejo debidamente comprobados.
+Este traspaso se hará bajo la supervisión del Ministerio de Economía y Comercio de acuerdo con los inventarios realizados por este.
