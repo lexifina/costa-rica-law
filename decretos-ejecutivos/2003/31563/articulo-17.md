@@ -1,1 +1,1 @@
-Artículo 17.—Sobre la vigencia del Registro de Elegibles: El Registro de Elegibles tendrá una vigencia de dos años, y se utilizará en caso de quedar vacante el puesto en fechas posteriores a la que originó el Concurso Público. No obstante, el plazo de vigencia del Registro de Elegibles, podrá ser variado, mediante Resolución fundada, emitida por la Junta Administrativa del Archivo Nacional.
+Artículo 17.—Derogado por el artículo 1° del decreto ejecutivo N° 32124 del 16 de setiembre del 2004.

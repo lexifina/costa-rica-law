@@ -14,3 +14,4 @@ Reglamento de Concurso Público para la Selección y Nombramiento del Auditor y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-19 | la propia norma |
+| 2 | 2004-09-16 | Decreto Ejecutivo 32124 (2004-09-16) |

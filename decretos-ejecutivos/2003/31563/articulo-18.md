@@ -1,1 +1,1 @@
-Artículo 18.—Sobre los supuestos en los cuales se caduca el Registro de Elegibles: Se caducará el Registro de Elegibles en caso que se varíen sustancialmente los requisitos u otras condiciones en relación con las que dieron origen al Concurso Público con el que se constituyó dicho Registro.
+Artículo 18.—Derogado por el artículo 1° del decreto ejecutivo N° 32124 del 16 de setiembre del 2004.
