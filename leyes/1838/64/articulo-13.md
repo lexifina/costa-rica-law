@@ -1,0 +1,1 @@
+ARTICULO 13.-El conocimiento de los árbitros, deber tener efecto, cuando el interés que se ventile exceda de cien pesos, ó su valor sea incalculable, pues siendolo, se le deber dar, para esclarecer el que sea.

@@ -1,0 +1,1 @@
+ARTICULO 22.-Los jueces de 1° Instancia despacharán las causas en lo criminal por el orden de sus fechas; no ser que los delitos sean de los comprendidos en el artículo 19, que merecen pena de la vida, que en este caso serán preferentes.

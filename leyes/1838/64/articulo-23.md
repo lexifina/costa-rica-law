@@ -1,0 +1,1 @@
+ARTICULO 23.-Los Jueces de 1° Instancia deberán dar cuenta la Corte para la confirmación de las sentencias, aun en los casos de que habla el artículo 38 de la Ley de 16 de Enero, que queda reformado por este.
