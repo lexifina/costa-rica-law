@@ -1,0 +1,1 @@
+Artículo 3º—Verificación del pago. Corresponderá a cada Administración Territorial de la Dirección General de Tributación, la comprobación de que cada empresa haya cancelado correctamente los tributos, según sea la información presentada por las mismas y la información suministrada por la Promotora de Comercio Exterior.
