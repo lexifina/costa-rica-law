@@ -1,0 +1,8 @@
+4. Adquisición y certificado de equipos de medición.
+4.1. Requisitos para adquirir instrumentos o sistemas de medición.
+Las empresas eléctricas adquirirán instrumentos o sistemas de medición, para la medición de sus abonados o usuarios, que tengan las mismas características técnicas del modelo inscrito.
+4.2. Certificación de los instrumentos o sistemas de medición.
+Los instrumentos o sistemas de medición que adquieran las empresas eléctricas, deben contar, cada uno de ellos, con su correspondiente certificado, expedido por el fabricante, de que el instrumento o sistema de medición, cumple, como mínimo, con la correspondiente norma ANSI o su equivalente internacional. Asimismo, cada aparato o sistema de medición poseerá un sello de garantía que impida el acceso a los mecanismos de ajuste o calibración del aparato, el cual será instalado por la Autoridad Reguladora, o la entidad competente designada por está. Los sellos serán numerados de manera consecutiva.
+4.3. Retiro del sello en los instrumentos o sistemas de medición.
+Ni la empresa eléctrica, ni el abonado o usuario, ni ninguna otra persona física que no sea la Autoridad Reguladora o la entidad competente por ella asignada, están autorizados para quitar el sello de certificación.
+Las empresas eléctricas, en sus propios laboratorios de medidores, podrán remover el sello sólo en caso de reparación o realización de ajustes de programación para garantizar la exactitud del sistema de medición o debido a la realización de las pruebas para control estadístico, indicadas en el apartado 9 de esta norma técnica. La reposición del sello deberá efectuarla la Autoridad Reguladora, o la entidad competente designada por está.

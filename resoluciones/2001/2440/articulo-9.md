@@ -1,0 +1,18 @@
+9. Pruebas a medidores en uso.
+9.1. Periodicidad del muestreo estadístico.
+Las empresas eléctricas ejecutarán en un laboratorio de medidores, las pruebas de verificación de las condiciones de funcionamiento de los contadores en uso. Para los medidores trifásicos y monofásicos con demanda, las pruebas se realizarán cada cinco años y para los monofásicos cada siete años.
+9. 2 Criterio de aprobación o rechazo.
+El procedimiento de muestreo de los lotes de medidores en uso por parte de las empresas eléctricas se realizará estadísticamente, según el lote de medidores instalados en el año en estudio, de la siguiente manera:
+Lotes de contadores instalados menores a diez mil unidades: Se extraerá aleatoriamente, una muestra de cuarenta medidores (40), a los cuales se les realizarán todas las pruebas de exactitud. El lote será aceptado si de la muestra un único contador, no supera las pruebas requeridas. La totalidad del lote instalado ese año será revisado, cuando cinco o más de ellos no superen las pruebas.
+Cuando sean, dos, tres o hasta cuatro contadores que no cumplan las pruebas requeridas, se procederá a extraer de ese mismo lote una segunda muestra de cuarenta medidores (40), para un tamaño de muestra acumulada de ochenta unidades (80).
+El lote será aceptado en su totalidad, cuando de esa muestra acumulada cuatro medidores no superen las pruebas. La totalidad del lote instalado ese año será revisado, cuando cinco o más contadores de la muestra acumulada no superen las pruebas.
+Lotes de contadores instalados mayores a diez mil unidades: Se aplicará el mismo procedimiento con los valores establecidos en la Tabla Nº 2. En todos los casos las empresas eléctricas realizarán las sustituciones que resulten necesarias
+Contadores con registro de máxima demanda: Se verificará la totalidad de los medidores, rechazando aquellos que incumplan las pruebas requeridas.
+[imagen]
+Nota: Cuando la cantidad de medidores se encuentre fuera del rango de los porcentajes de error especificados en las normas ANSI correspondiente, exceda al valor indicado en la quinta columna de la Tabla Nº 2, se efectuará una segunda prueba. Si en esa segunda prueba la cantidad de medidores excede nuevamente dicho valor, se verificará la totalidad de los contadores instalados durante ese año en estudio.
+9.3. Fiscalización de las pruebas realizadas a los sistemas de medición.
+La Autoridad Reguladora en ejercicio de sus potestades efectuará, por el medio que ella designe, auditorías técnicas necesarias para verificar y fiscalizar las pruebas a los medidores en uso.
+9.4. Sello de Garantía.
+Todo medidor al que se le haya retirado el sello de garantía instalado por el fabricante, según lo indicado en el numeral 4.2 de esta norma, ya sea por haberle realizado pruebas de laboratorio por control estadístico, queja por alto consumo o uso ilícito de energía, reparación, calibración, etc., deberá ser sellado nuevamente, previa verificación del buen funcionamiento del mismo, por la Autoridad Reguladora, o la entidad competente designada por ella. En los laboratorios de las empresas eléctricas se podrá efectuar el sellado de tales instrumentos, siempre y cuando se realice en presencia de personal calificado de la Autoridad Reguladora o de la entidad competente acreditada.
+9.5. Verificación de campo.
+La Autoridad Reguladora o la entidad competente designada por está, en coordinación con las empresas eléctricas, podrán cuando lo consideren pertinente efectuar pruebas de verificación de campo a los sistemas de medición. Esas pruebas serán realizadas con el equipo de verificación necesario y siguiendo las indicaciones contenidas en la sección “8” de la norma estadounidense “American National Standard Code for Electricity Metering”, ANSI C12.1 vigente.
