@@ -1,2 +1,1 @@
-Artículo 13.-Monto máximo del sobregiro:
-El monto máximo de cada sobregiro será el que indica el anexo para cada modalidad de cuenta corriente.
+Artículo 13.-(Derogado y publicado en La Gaceta N° 7 del 12 de enero de 1999).

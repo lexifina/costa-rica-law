@@ -1,4 +1,5 @@
 CAPITULO II
 De los sobregiros en Cuentas Corrientes
-Artículo 9°-Definición:
-El sobregiro bancario o crédito en una cuenta corriente es un contrato por medio del cual el Banco abre un crédito a una cuenta correntista para sobregirarse en su cuenta por un monto mayor a sus haberes.
+Artículo 9°-De los sobregiros en cuenta corriente.
+En materia de sobregiros, regirá lo indicado en el Reglamento General de Crédito.
+(Así reformado y publicado en La Gaceta N° 7 del 12 de enero de 1999).

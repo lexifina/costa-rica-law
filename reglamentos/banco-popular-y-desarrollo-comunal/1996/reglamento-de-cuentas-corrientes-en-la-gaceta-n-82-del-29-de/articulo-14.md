@@ -1,2 +1,1 @@
-Artículo 14.-Moneda del sobregiro:
-Los sobregiros podrán ser autorizados, tanto en moneda nacional como en moneda extranjera en cuyo caso el tipo de cambio será el indicado en el artículo 89 de la Ley Orgánica del Banco Central.
+Artículo 14.-(Derogado y publicado en La Gaceta N° 7 del 12 de enero de 1999).
