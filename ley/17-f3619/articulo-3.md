@@ -1,0 +1,1 @@
+Art 3°. - El Juicio será sustanciado y fenecido en terminación verbal por el Inspector de Tesorerías Subalternas, si el delito ha sido cometido en alguna de las Provincias del Interior, o por los Jueces de 1° Instancia respectivos, si lo fuere en la Provincia de Moracia, o comarca de Puntarenas.

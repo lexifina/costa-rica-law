@@ -1,0 +1,1 @@
+Art 4°.- Todos los empleados de Hacienda, los Gobernadores, Jueces y Alcaldes, los Jueces de Paz y ajentes de Policía, deben zelar y perseguir las ventas clandestinas de licores, y poner a los reos a disposición del Juez competente para su juzgamiento.

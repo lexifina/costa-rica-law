@@ -1,0 +1,2 @@
+Art 5°. - Las ventas de licores extranjeros por botella cerrada, se harán bajo las restricciones y formalidades establecidas por leyes anteriores. Los que hayan obtenido permiso o patente para tales ventas y abusando de ella expendieren licores al menudeo por copas, incurrirán en la pena señalada en el artículo 1° del presente decreto.
+Dado en San Jose, a los once días del mes de setiembre de mil ochocientos cincuenta y siete.
