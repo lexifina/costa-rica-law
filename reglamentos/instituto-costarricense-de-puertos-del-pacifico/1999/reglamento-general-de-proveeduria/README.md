@@ -17,3 +17,4 @@ Reglamento General de Proveeduría.
 | 2 | 1999-10-27 | Reglamento 2880 (1999-10-27) |
 | 3 | 2000-05-18 | Reglamento 2922 (2000-05-18) |
 | 4 | 2000-05-18 | Reglamento 2918 (2000-05-18) |
+| 5 | 2003-05-22 | Reglamento 3169 (2003-05-22) |
