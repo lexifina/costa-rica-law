@@ -1,0 +1,1 @@
+Artículo 26.—La Comisión será presidida por el Director o por quien éste designe como suplente, y le corresponderá convocar a las reuniones ordinarias y extraordinarias. Además tendrá doble voto en caso de empate. La labor de secretario la desempeñará el Administrador, a quien le corresponde llevar el registro de las actas.

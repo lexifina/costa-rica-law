@@ -1,0 +1,1 @@
+Artículo 6°—El paquete sellado en el que se depositen los bienes sólo será abierto en presencia del privado de libertad a su egreso definitivo, o de la persona que éste haya autorizado al exterior del Centro Penitenciario para su retiro.

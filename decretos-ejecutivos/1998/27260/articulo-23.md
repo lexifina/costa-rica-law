@@ -1,0 +1,1 @@
+Artículo 23.—Podrán gestionar la ayuda económica, las personas privadas de libertad que deban cubrir necesidades básicas urgentes, suyas o de su núcleo familiar, siguiendo los procedimientos establecidos.

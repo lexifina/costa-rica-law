@@ -1,0 +1,1 @@
+Artículo 37.—La Administración del Centro deberá llevar, además del libro de actas, un registro de los casos analizados, a efecto de informar mensualmente a la Dirección Administrativa lo que corresponda.

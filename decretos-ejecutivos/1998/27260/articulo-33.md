@@ -1,0 +1,1 @@
+Artículo 33.—El trámite de emisión de pago se hará mediante cheque o cheques girados a nombre del o de los destinatarios, el cual deberá ser claramente identificado en las recomendaciones del estudio.

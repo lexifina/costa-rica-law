@@ -1,0 +1,3 @@
+CAPITULO II
+Valores no retirados
+Artículo 16.—La Administración y la Dirección de cada Centro en coordinación con la Dirección General de Adaptación, están obligados a realizar toda actividad posible a efecto de localizar al egresado que por alguna circunstancia particular no hubiera retirado sus bienes, o a la persona autorizada para el retiro de los mismos. De las gestiones que se realicen deben dejarse constancia documental. No obstante si estas recitaran infructuosas, se dispondrá de los valores en custodia que no habían sido retirados en los tres meses posteriores al egreso definitivo o de que permanezca en fuga.
