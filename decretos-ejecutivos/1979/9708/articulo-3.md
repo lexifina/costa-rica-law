@@ -1,1 +1,0 @@
-Artículo 3°—Se autoriza a la Comisión Nacional de Energía para que solicite, contrate y coordine los servicios de profesionales expertos en el campo energético dentro o fuera del país, con el objeto de que el Plan de Desarrollo Energético responda a criterios, científicos de alta calidad, todo con sujeción a la Ley de la Administración Financiera de la República.
