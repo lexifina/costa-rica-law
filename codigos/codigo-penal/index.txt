@@ -188,6 +188,7 @@ articulo-183.md
 articulo-183-bis.md
 articulo-184.md
 articulo-184-bis.md
+articulo-184-ter.md
 articulo-185.md
 articulo-186.md
 articulo-187.md
@@ -221,6 +222,7 @@ articulo-212.md
 articulo-213.md
 articulo-214.md
 articulo-215.md
+articulo-215-bis.md
 articulo-216.md
 articulo-217.md
 articulo-217-bis.md
@@ -437,4 +439,3 @@ articulo-420.md
 articulo-421.md
 articulo-422.md
 articulo-423.md
-articulo-184-ter.md

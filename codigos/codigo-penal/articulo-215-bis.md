@@ -1,0 +1,4 @@
+Secuestro de persona menor de doce años o persona con discapacidad en estado de indefensión.
+Artículo 215 bis.- Será reprimido con prisión de diez a quince años, quien sustraiga del poder de sus padres, guardadores, curadores, tutores o personas encargadas a una persona menor de doce años de edad o a una persona que padezca de una discapacidad que le impida su defensa.
+La pena será de veinte a veinticinco años de prisión si se le infligen a la persona secuestrada lesiones graves o gravísimas, y de treinta y cinco a cincuenta años de prisión si muere.
+(Así adicionado por el artículo único de la Ley Adición de un nuevo artículo 215 BIS al Código Penal para crear el delito de Secuestro contra Menores de Edad y Discapacitados, con el fin de hacer justicia a la niñez costarricense; ley N°. 8389 de 9 de octubre de 2003).
