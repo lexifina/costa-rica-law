@@ -14,3 +14,4 @@ Reglamento para el Reconocimiento de la Compensación Económica por Disponibili
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-20 | la propia norma |
+| 2 | 2003-03-05 | Reglamento 4095 (2003-03-05) |

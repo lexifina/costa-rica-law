@@ -1,10 +1,3 @@
-Artículo 4º—La retribución económica pagada por este concepto se calculará en forma porcentual sobre el salario base por período de la categoría en la que se desempeña el trabajador, de conformidad con los porcentajes indicados en este artículo. Esta retribución económica no podrá ser reputada como aumento salarial, ni servir como base de cálculo para otros complementos salariales, ni tampoco para aumentar el salario base.
-Requerimiento estimado de tiempo
-mensual para atender necesidades
-dentro del horario de disponibilidad El porcentaje a reconocer:
-- Hasta 11 horas 10%
-- Más de 11 horas y hasta 17 horas 15%
-- Más de 17 horas y hasta 23 horas 20%
-- Más de 23 horas 25%
-El requerimiento estimado se refiere al tiempo que usualmente se va a necesitar del servidor durante el mes.
-El jefe respectivo, basado en la información técnica de que disponga, deberá determinar el porcentaje que, con base en la presente normativa, corresponderá al servidor.
+Artículo 4º—Por pago de reconocimiento de compensación económica por disponibilidad se reconocerá al trabajador un 25% sobre su salario base. Entratándose de un trabajador contratado bajo el régimen de Salario Único, el cálculo se realizará tomando como punto de referencia el mismo salario base de un trabajador que ocupa igual clase y puesto, pero que se encuentra bajo el sistema salarial constituido por un salario base.
+Esta retribución económica no podrá ser reputada como aumento salarial, ni servir como base de cálculo para otros complementos salariales, ni tampoco para aumentar el salario base.
+(Así reformado por acuerdo de Junta Directiva en la sesión ordinaria 4095 del 5 de marzo del 2003)
