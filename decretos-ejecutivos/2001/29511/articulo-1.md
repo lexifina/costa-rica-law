@@ -134,3 +134,4 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado el límite de gastos para el año 2002 del Instituto Costarricense de Puertos del Pacífico, por el artículo 1 del Decreto Ejecutivo N° 30254 de 6 de marzo del 2002)
 (Modificado el límite de gasto presupuestario y efectivo del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco , por el artículo 1 del Decreto Ejecutivo N° 30249 de 13 de marzo del 2002)
 (Modificado el límite de gasto presupuestario y efectivo del Instituto Nacional del Deporte y la Recreación , por el artículo 1 del Decreto Ejecutivo N° 30232 de 13 de marzo del 2002)
+(Modificados los límites de gasto del Instituto de Desarrollo Agrario, por el artículo 1 del decreto ejecutivo N° 30284 de 4 de abril del 2002)
