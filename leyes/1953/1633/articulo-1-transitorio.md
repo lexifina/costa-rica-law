@@ -1,0 +1,3 @@
+Transitorio.- Los cheques timbrados en circulación o en poder de los Bancos continuarán pagando el impuesto de timbre de ¢ 0.02 a que se refiere el inciso 18) del artículo 273 del Código Fiscal, pero estarán exentos del impuesto a que se refiere el artículo 59 de esta ley.
+Dado en el Salón de Sesiones de la Asamblea Legislativa.-Palacio Nacional.-San José, a los once días del mes de setiembre de mil novecientos cincuenta y tres.-A. Bonilla B.,Presidente.-Alvaro Rojas E., Primer Secretario, Mario Fernández Alfaro, Segundo Secretario.
+Casa Presidencial.-San José, a los doce días del mes de setiembre de mil novecientos cincuenta y tres.-Ejecútese.-OTILIO ULATE.- El Ministro de Economía y Hacienda,-A.E.Hernández.

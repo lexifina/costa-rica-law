@@ -1,0 +1,2 @@
+Expresión del Cheque en Relación con su Pago
+Artículo 39.- Siendo el cheque una orden pagadera a la vista, puede cobrarse y el girado hará buen pago, cualquiera que sea la fecha que ostente. Toda razón indicativa de que el cheque debe ser cobrado en fecha futura, se tendrá por no puesta. Sin embargo, lo anterior no elimina la responsabilidad de los que alteraren la exactitud de la fecha, cuando por ella resultare perjudicado un tercero.

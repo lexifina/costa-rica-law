@@ -1,0 +1,2 @@
+Duplicación de un Cheque por Extravío
+Artículo 51.- Si un cheque se extravía, la persona a quien pertenece puede exigir que el girador extienda un duplicado, si hubiere habido endoso, será obligación de todos los endosantes repetir los endosos, siempre que el reclamante garantice al girador y endosantes contra cualquier acción que pudiera establecerse por aquel a quien perjudicare tal duplicado. Dicha garantía será hipotecaria, o de otra clase de satisfacción de los interesados y prescribirá a los cuatro años de extendido el duplicado.

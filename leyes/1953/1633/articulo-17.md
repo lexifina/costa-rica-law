@@ -1,0 +1,4 @@
+Giro de los Fondos en Cuenta Corriente
+Artículo 17.- Para el giro de fondos de las cuentas corrientes, el Banco suministrará las fórmulas adecuadas y es obligación del cuentacorrentista tener el más estricto cuidado y vigilancia sobre ellas, debiéndosele cancelar su cuenta por su negligencia o imprudencia.
+El cuentacorrentista cuya cuenta se hubiere clausurado por cualquier motivo y no devolviere las fórmulas sin usar, será responsable de las defraudaciones o falsificaciones que se cometieren por su negligencia.
+Los retiros de fondos de una cuenta corriente, deberán hacerse en las fórmulas especiales que el Banco suministra y sólo en casos especiales admitirá éste otro medio de giro. No incurre en responsabilidad el Banco que retarde o niegue el pago de una orden que no venga en la forma usualmente establecida.
