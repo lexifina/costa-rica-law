@@ -1,0 +1,1 @@
+Artículo 2°—El responsable institucional de la gestión de pagos será el Director Administrativo, o en su defecto el Oficial Presupuestal o quien lo sustituya como responsable de la ejecución presupuestaria.
