@@ -14,3 +14,4 @@ Reglamento para el Financiamiento de Viviendas Escolares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-05-17 | la propia norma |
+| 2 | 1995-07-10 | Decreto Ejecutivo 24714 (1995-07-10) |
