@@ -1,0 +1,1 @@
+Art. 5 En las mismas preces se consultará á su Santidad en quien deban recaer las facultades en caso de fallecimiento del Obispo que sea nombrado para la nueva Silla, respecto á que por ahora no son bastantes las rentas para sostener Canónigos.

@@ -1,0 +1,1 @@
+Art. 2. Tan luego como vuelva de Leon la solicitud aprobada por aquel Cabildo, será elevada por los mismos medios anteriormente indicados, al Cabildo Metropolitano de Guatemala, quien también debe intervenir en ella, puesto que se le debe agregar un sufragáneo.

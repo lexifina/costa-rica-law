@@ -1,0 +1,1 @@
+Art 8. Se autoriza al Ejecutivo para nombrar al Legado que deba enviar cerca del Internuncio, ó de su Santidad: Para decretar su dotación y demás gastos extraordinarios como son los de Palacio Episcopal, Pontificales, y el adorno necesario de la Iglesia Catedral etc.
