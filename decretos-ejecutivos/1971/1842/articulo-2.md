@@ -1,0 +1,1 @@
+Artículo 2°—Las expresadas reservas por estar comprometidas en los resultados de las operaciones de seguro serán admitidas por la Dirección General de la Tributación Directa, en las declaraciones que formula el Instituto Nacional de Seguros en su condición de Contribuyente del Impuesto sobre la Renta.

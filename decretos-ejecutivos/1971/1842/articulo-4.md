@@ -1,0 +1,4 @@
+Artículo 4°—La reserva de Contingencias será usada:
+a) Cuando el ramo de vida sufra un quebranto de sus operaciones corrientes de cualquier período, o haya variación en las bases de cálculo del seguro. El cargo lo soportará la Reserva de esa línea.
+b) Cuando los demás ramos de seguro, excepto Cosechas, experimenten conjuntamente un déficit luego de haber sido hechos los ajustes necesarios. El déficit se eliminará con cargo a la Reserva formada por tales ramos.
+c) Cuando la Reserva Técnica de Contingencias del Seguro Integral de Cosechas bajare de cinco millones de colones por efectos de siniestralidad. El aporte aquí previsto será reembolsado a la Reserva General de Contingencias del Instituto con los recursos que indica el artículo 6° de la ley N° 4461 de 10 cíe noviembre de 1969, a la que queda sujeta aquella Reserva Técnica.
