@@ -1,0 +1,1 @@
+Artículo 2°-El regidor propietario o suplente, así como también el síndico propietario o suplente, que abandone por cualquier causa el recinto donde se realiza la sesión de Concejo, antes de que la sesión de Concejo se tenga por terminada por parte del Presidente del Concejo, perderá en su totalidad el derecho al pago de dieta correspondiente a la sesión abandonada.
