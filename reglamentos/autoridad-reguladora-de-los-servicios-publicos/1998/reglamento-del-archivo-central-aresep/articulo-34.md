@@ -1,0 +1,1 @@
+Artículo 34.—Sistema de clasificación de documentos. El Archivo Central utilizará un sistema de clasificación por estructura orgánica y por series documentales. Se utilizará numeración simple y de ser necesario se podrá complementar alfabéticamente.

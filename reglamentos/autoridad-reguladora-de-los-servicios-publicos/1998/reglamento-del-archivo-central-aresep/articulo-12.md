@@ -1,0 +1,1 @@
+Artículo 12.—Custodia y administración de documentos. Toda información que se refiera a expedientes administrativos, estará bajo la custodia y administración del Archivo Central; quién además de expediente administrativo, conformará los expedientes espejo en la cantidad necesaria, según las dependencias encargadas de tramitar el asunto.
