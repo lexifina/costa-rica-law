@@ -1,0 +1,1 @@
+Artículo 8°—Una vez que el Administrador haya conocido la solicitud tomará el acuerdo correspondiente, acogiéndola o denegándola. Dicho acuerdo será comunicado al solicitante con copia a Servicios Generales y Seguridad y Vigilancia, cuando corresponda.

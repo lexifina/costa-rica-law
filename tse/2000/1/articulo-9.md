@@ -1,0 +1,2 @@
+Artículo 9°—En los casos en que se acordare acoger la solicitud será requisito previo e indispensable, que el usuario responsable de la actividad manifieste expresamente y por escrito mediante un formulario confeccionado para su efecto, que se obliga a devolver el auditorio en el mismo estado en que lo reciba y a respetar las disposiciones de este reglamento y a reparar cualquier daño ocasionado.
+Se exigirá, además, un depósito de garantía en efectivo por la suma que fije el Administrador, el cual deberá ser entregado en la Contaduría del Tribunal.

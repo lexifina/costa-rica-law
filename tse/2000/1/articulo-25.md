@@ -1,0 +1,1 @@
+Artículo 25.—La infracción a cualquiera de las disposiciones de este Reglamento, será sancionada con el no préstamo del auditorio dentro de los dos a cinco años siguientes, dependiendo de la gravedad de la falta. Lo anterior sin perjuicio del pago de cualquier daño que se haya causado a las instalaciones.

@@ -1,0 +1,1 @@
+Artículo 23.—Queda prohibido a los asistentes a la actividad que se celebra en el auditorio, desplazarse a otras áreas del edificio salvo autorización expresa. El usuario responsable de la actividad deberá velar también por el cumplimiento de esta disposición.

@@ -1,0 +1,1 @@
+Artículo 7°—Cuando a juicio del Administrador una solicitud estuviera incompleta o requiera ser aclarada, se le hará saber así al solicitante para que proceda a cumplir con lo prevenido. De no hacerlo dentro del plazo concedido para ello, se tendrá por desistida la solicitud.

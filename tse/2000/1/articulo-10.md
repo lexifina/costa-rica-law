@@ -1,0 +1,1 @@
+Artículo 10.—El Administrador del Auditorio, en casos muy calificados, podrá relevar al solicitante de efectuar el mencionado depósito de garantía, pero no de la obligación de firmar el referido formulario.
