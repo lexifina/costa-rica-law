@@ -18,3 +18,5 @@ al que se remite el expediente, se manifiesta inconforme con lo
 resuelto, dentro de los tres días siguientes al recibo de los autos.
 En ambos casos, al ordenarse la consulta, se conferirá audiencia a
 las partes por tres días.
+(Reformado tácitamente por la Ley Nº 7333 de 5 de mayo de 1993, artículos
+54, 102 y 110)
