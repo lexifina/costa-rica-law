@@ -1,0 +1,1 @@
+Artículo 3°—La Dirección de Prevención mantendrá un espacio de coordinación y planificación de su accionar, en el que participará la Dirección Ejecutiva y el equipo de asesores/as, o bien representantes o responsables de las áreas que puedan crearse en el futuro. Esta instancia funcionará como un Consejo Asesor de la Dirección Ejecutiva.
