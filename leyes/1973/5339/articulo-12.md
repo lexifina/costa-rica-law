@@ -6,20 +6,20 @@ b) Cumplir con la presente ley, sus reglamentos y demás disposiciones
 legales y administrativas conexas, así como con las recomendaciones del
 Instituto Costarricense de Turismo.
 c) Acatar estrictamente las tarifas que para turismo receptivo y para
-operaciones locales hay autorizado debidamente el Instituto Costarricense
-de Turismo.
+operaciones locales haya autorizado debidamente el Instituto
+Costarricense de Turismo.
 d) Reportar al Instituto Costarricense de Turismo las deficiencias que
 advierta en la prestación de cualquier servicio turístico.
-e) Otorgar las garantías que les fije el Instituto Costarricense de
-Turismo conforme se dispone en esta ley.
+e) DEROGADO
+( DEROGADO por el artículo 70, inciso i) del segundo grupo de incisos, de
+la Ley Nº 7472 de 20 de diciembre de 1994).
 f) Tener oficinas adecuadas y permanentes en el lugar en que estén
 domiciliadas.
 g) Cumplir en todas sus partes los convenios que celebren con los
 turistas y demás entidades relacionadas con la misma actividad.
-h) Hacer constar su nombre o razón social y en su caso, el de las
-subagencias, en anuncios, propaganda, membretes y demás impresos que
-utilicen con la frase "Autorizada por el Instituto Costarricense de
-Turismo".
+h) DEROGADO
+( DEROGADO por el artículo 70, inciso i) del segundo grupo de incisos, de
+la Ley Nº 7472 de 20 de diciembre de 1994).
 i) En la prestación de sus servicios extender recibos con referencia
 exacta al contrato que se obligan a realizar.
 j) Proporcionar, dentro del plazo que el efecto se señale y que no

@@ -2,7 +2,7 @@ Artículo 7º.- Las personas físicas o jurídicas que soliciten un
 título-licencia para funcionar como agencias de viajes, deberán cumplir
 con las siguientes formalidades:
 a) Indicar nombre, nacionalidad, estado civil, profesión, y cédula de
-identidad del solicitante; si se trata de una persona física. Si es
+identidad del solicitante, si se trata de una persona física. Si es
 extranjero, acreditar su derecho de residencia en el país.
 b) Certificado demostrativo de carencia de antecedentes penales del
 lugar en donde se ha residido durante los últimos cinco años.
@@ -26,5 +26,8 @@ debidamente autorizado y firmado por un Contador Público Autorizado y por
 el propio interesado.
 i) Hacer una relación de los proyectos iniciales de viajes y turismo
 que pretende desarrollar, así como también de los relativos a promoción y
-propaganda en su caso, y el funcionamiento de sus actividades, haciendo
-énfasis en el fomento de turismo receptivo.
+propaganda en su caso, y al funcionamiento de sus actividades, haciendo
+énfasis en el fomento del turismo receptivo.
+(REFORMADO en cuanto deroga lo referente al título-licencia, por el
+artículo 70, inciso i) del segundo grupo de incisos, de la Ley Nº 7472 de
+20 de diciembre de 1994)

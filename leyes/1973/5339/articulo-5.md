@@ -10,10 +10,11 @@ hoteleros y similares.
 c) La organización y realización de visitas a lugares turísticos así
 como de viajes y excursiones de carácter individual o colectivo, con o
 sin inclusión de todos los servicios propios de los denominados viajes
-"todo pagado". d) La recepción y asistencia de turistas en los viajes y
-excursiones expresados o durante su permanencia en el país, y la
-prestación a los mismos de los servicios de intérpretes o acompañantes
-con fines turísticos.
+"todo pagado".
+d) La recepción y asistencia de turistas en los viajes y excursiones
+expresados o durante su permanencia en el país, y la prestación a los
+mismos de los servicios de intérpretes o acompañantes con fines
+turísticos.
 e) La representación de otras agencias, tanto nacionales como
 extranjeras a objeto de prestar en su nombre cualesquiera de los
 servicios enumerados.

@@ -1,5 +1,3 @@
-Artículo 17.- Las agencias de viajes pagarán al Instituto
-Costarricense de Turismo, en concepto de título-licencia, la suma de un
-mil doscientos colones anuales. Ese pago podrá hacerse semestralmente en
-los meses de enero y junio de cada año. De no efectuarse en el plazo
-estipulado, se cancelará automáticamente la respectiva licencia.
+Artículo 17.- DEROGADO
+( DEROGADO por el artículo 70, inciso i) del segundo grupo de incisos, de
+la Ley Nº 7472 de 20 de diciembre de 1994).

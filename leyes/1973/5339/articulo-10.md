@@ -13,10 +13,16 @@ que para su respectivos proyectos deben registrar con anticipación a su
 ejecución en el Instituto.
 c) Comprobar la vigencia de la garantía que debe mantener cada agencia
 de viajes y llevar un expediente de cada una de ellas.
+(REFORMADO en cuanto deroga lo referente al título-licencia, por el
+artículo 70, inciso i) del segundo grupo de incisos, de la Ley Nº 7472 de
+20 de diciembre de 1994)
 d) Requerir de los administradores de las agencias de viajes toda la
 información que juzgue necesaria para la comprobación de los cargos que
 se les hubieren formulado o de incorrecciones que hayan llegado a
 conocimiento del Instituto.
 e) Aplicar el régimen de sanciones que la ley establece a las
-infracciones que cometen las agencias de viajes en el ejercicio de sus
+infracciones que cometan las agencias de viajes en el ejercicio de sus
 actividades.
+(REFORMADO en cuanto deroga lo referente al título-licencia, por el
+artículo 70, inciso i) del segundo grupo de incisos, de la Ley Nº 7472 de
+20 de diciembre de 1994)
