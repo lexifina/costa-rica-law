@@ -1,0 +1,1 @@
+Artículo 6°. —Las obras enumeradas en el artículo 1°. serán ejecutadas de acuerdo entre el Ejecutivo y la Municipalidad de San José, por medio del director de trabajos ó de la comisión en que convengan.

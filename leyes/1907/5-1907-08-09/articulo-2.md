@@ -1,0 +1,1 @@
+Artículo 2°. —Dichos bonos se llamarán de Saneamiento de San José, ganarán el interés anual de 9 % y serán ofrecidos á la suscrición pública al tipo de 93 %. Serán firmados, en facsímile, por el Secretario de Hacienda y por el Jefe de la Contabilidad Nacional.
