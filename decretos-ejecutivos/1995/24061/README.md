@@ -14,3 +14,4 @@ Declara Zona Portuaria destinada a la pesca y a actividades conexas, Muelle el P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-10 | la propia norma |
+| 2 | 1999-01-25 | Decreto Ejecutivo 27757 (1999-01-25) |

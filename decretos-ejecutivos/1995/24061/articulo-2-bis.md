@@ -1,0 +1,3 @@
+Artículo 2 bis.—El INCOPESCA estará facultado para determinar y definir el uso, utilización y destino de las edificaciones o construcciones existentes en dicha Terminal Pesquera o que se llegaren a construir, de conformidad con los procedimientos legales correspondientes y normativa aplicable en la materia.
+Del cobro por la prestación de servicios que el INCOPESCA brinde en la Terminal, los cuales formaran parte de su patrimonio, podrá destinar los recursos necesarios para reinvertirlos en la realización de obras, construcciones o edificaciones y mantenimiento de la Terminal Pesquera, que garanticen la continuidad y mejoría de la prestación de los servicios.
+(Así adicionado este artículo mediante el artículo 1° del Decreto Ejecutivo No. 27757 del 25 de enero de 1999.)
