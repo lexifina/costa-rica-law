@@ -13,3 +13,4 @@ MPOCOCI: De Funcionamieno para Ventas Callejeras (Buhoneros)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-03-10 | la propia norma |
+| 2 | 1999-08-19 | Reglamento municipal 45 (1999-08-19) |
