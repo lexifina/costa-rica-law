@@ -1,0 +1,1 @@
+Artículo 33.—En ningún caso podrán los abonados reconectar un servicio que ha sido suspendido. De hacerlo, se procederá a desconectarlo en el acto y no será reconectado si fuera del caso hasta tanto no se haya pagado una multa de quince mil colones(15.000,00) que será fijada por la Corporación Municipal.

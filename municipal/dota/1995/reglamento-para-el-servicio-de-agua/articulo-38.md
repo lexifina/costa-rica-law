@@ -1,0 +1,1 @@
+Artículo 38.— La Municipalidad que no cuente con personal capacitado para realizar estudios sobre la calidad del agua, deberá hacer las gestiones que sean necesarias para que las instituciones especializadas, privadas o publicas, se encarguen de efectuarlos, por lo menos una vez al año, garantizando así la potabilidad del agua al usuario.

@@ -1,0 +1,1 @@
+Artículo 15.—El solicitante deberá indicar siempre el destino que va a dar al servicio que solicita y la Municipalidad no podrá rechazar dicha solicitud, salvo que técnica o reglamentariamente no sea posible.

@@ -1,0 +1,1 @@
+Artículo 44.—Se permitirá durante los meses de diciembre, enero, febrero, marzo, abril y mayo el uso del agua potable para lavado de vehículos, los días miércoles y sábados, utilizando llave de detención (pistola), a partir de las quince horas (3 p. m.).
