@@ -1,0 +1,1 @@
+Artículo 2°─ Las dependencias del Poder Ejecutivo deberán laborar con jornada continua iniciando sus labores a las 8:00 horas, salvo aquellas que por la índole de sus servicios estén imposibilitadas de ajustarse a este horario. Este nuevo horario no implica, necesariamente, la obligatoriedad de acumular tiempo para no laborar los sábados.
