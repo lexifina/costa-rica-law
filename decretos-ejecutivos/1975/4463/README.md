@@ -14,3 +14,4 @@ Fija Tasas Ordinarias Especiales Respuestas de Cartas y TarjetasComerciales y Ot
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-01-01 | la propia norma |
+| 2 | 1976-03-04 | Decreto Ejecutivo 5835 (1976-03-04) |

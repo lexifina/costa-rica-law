@@ -67,17 +67,19 @@ Más 1.000/ 2.000 g. ....... 43.20 …… 10.80 ……
 Más 1.000/g. adic. ............. ……. …… 5.40 ……
 Impresos tasa reducida 50% tarifa impresos
 B — TASAS PARA REVISTAS Y LIBROS DE EDICION COSTARRICENSE
-Y PARA EDITORIALES
-Régimen Régimen
-Escalas de Pesos UPAE UPU
+Y PARA DIARIOS Y PERIÓDICOS EDITADOS EN
+COSTA RICA, Y PARA EDITORIALES
+Régimen Régimen UPU
+Escalas de Pesos s/anuncio-c/ anuncie
 _______________________________________________________________________________
-Hasta / 20 g. ………………… ¢ 0.15 ¢ 0.20
-Más 20/ 100 g. ………………… 0.20 0.25
-Más 100/ 250 g. ………………… 0.40 0.50
-Más 250/ 500 g. ………………… 0.60 0.75
-Más 500/ 1.000 g. ………………… 1.20 1.50
-Más 1.000/ 2.000 g. ………………… 2.00 3.00
-Cada 1.000/g. adic. ….………………… 1.00 1.50
+Hasta 20 gms ¢ 0.15 ¢ 0.20 ¢ 0.25
+“ 20/ 100 “ 0.20 0.25 0.30
+“ 100/ 250 “ 0.40 0.55 0.65
+“ 250/ 500 “ 0.60 0.80 0.95
+“ 500/1000 “ 1.20 1.60 2.00
+“ 1000/2000 “ 2.00 2.65 3.65
+Cada 1000 adicionales 1.00 1.35 1.85
+(Así reformado por el artículo 1° del decreto ejecutivo N° 5835 del 4° de marzo de 1976)
 C — TASAS ESPECIALES
 _______________________________________________________________________________
 Designación de la Tasa Monto
@@ -95,12 +97,10 @@ Entrega correspondencia en mano propia..........................................
 _______________________________________________________________________________
 D — MODALIDAD DE FRANQUEO ESPECIAL
 Cupones de Respuesta International
-Expendio de Cupones Respuesta International y emitidos por la Oficina International
-de la UPU, validos hasta el 31 de diciembre de 1975, a 0.60 de francos oro, cada
-uno................................................................................................................................ ¢ 2.05
 Expendio de Cupones Respuesta Internacional y emitidos por la Oficina Internacional
-de la UPU, validos desde el 1? de enero de 1976, vigencia Convenio
-UPU-Lausana/1974, a 1.00 franco oro cada uno......................................................... 3.40
-Canje de Cupones Respuesta Internacional en las Oficinas de Correos Nacionales,
-igual a un porte por vía de superficie y Régimen UPAE y UPU, en sellos postales
-equivalentes a............................................................................................................... 1.00
+de la UPU, validos desde el 1° de enero de 1976 (Convenio UPU-Lausana/1974, a 1.00
+franco oro), cada uno........................................................................................................ ¢ 3.40
+Canje de Cupones Respuesta Internacional en las Oficinas de Correos de Costa Rica,
+igual a un porte por vía de superficie. (Régimen UPAE y UPU), en sellos postales
+equivalentes a............................................................................................................... $ 1.60
+(Así reformado por el artículo 1° del decreto ejecutivo N° 5835 del 4° de marzo de 1976)
