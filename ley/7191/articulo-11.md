@@ -1,0 +1,5 @@
+ARTICULO 11.- A las personas físicas o jurídicas que estén excluidas
+de la obligación de presentar la declaración sobre la renta, o que no se
+hayan incluido en ninguno de los casos especiales definidos en el artículo
+anterior, se les aplicará la tarifa que establece el artículo 14 de esta
+ley.
