@@ -14,3 +14,4 @@ Crea el Distrito de Acapulco N° 14 del Cantón de Puntarenas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-30 | la propia norma |
+| 2 | 1999-07-30 | SINALEVI (sin norma nombrada) |
