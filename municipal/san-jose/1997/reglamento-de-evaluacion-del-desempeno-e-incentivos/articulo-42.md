@@ -1,0 +1,1 @@
+Artículo 42.-Si el servidor es trasladado en forma temporal a otra dependencia de la Municipalidad de San José, su evaluación del desempeño debe efectuarla el funcionario que actúe como su Jefe Inmediato durante el período de su traslado, siempre que dicho período no sea inferior al requerido para ser evaluado, de conformidad, con lo establecido en el artículo anterior.

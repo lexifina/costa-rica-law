@@ -1,0 +1,1 @@
+Artículo 60.-El jefe inmediato deberá enviar a la Dirección de Recursos Humanos el formulario de Evaluación del Desempeño de cada servidor en los próximos ocho días naturales, contados a partir de la fecha en que el proceso de evaluación haya concluido.

@@ -1,0 +1,1 @@
+Artículo 26.-El jefe Inmediato deberá convocar al evaluado a una entrevista en la que tanto la Jefatura como el servidor intercambiarán criterios con respecto a los factores de evaluación y en la que el Jefe objetivamente deberá hacer su apreciación para cada uno, en caso contrario el Proceso de Evaluación no tendrá validez.

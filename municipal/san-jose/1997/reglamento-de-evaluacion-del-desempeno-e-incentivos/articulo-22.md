@@ -1,0 +1,1 @@
+Artículo 22.-El proceso de Evaluación comprenderá en dos fases: Evaluación Intermedia y Evaluación Final; cada una de éstas cubre un período de seis meses; promediados ambos se obtendrá la Evaluación anual.

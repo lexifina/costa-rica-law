@@ -1,0 +1,1 @@
+Artículo 51.- Si no existiera un jefe técnico para evaluar a los servidores de acuerdo con las funciones que realizan, el proceso de evaluación quedará a cargo del jefe administrativo, quien deberá basarse en los informes y cualquier otro medio de control que le permita externar criterios sobre el desempeño del servidor.

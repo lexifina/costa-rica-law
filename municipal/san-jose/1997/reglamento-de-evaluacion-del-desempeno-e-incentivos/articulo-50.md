@@ -1,0 +1,1 @@
+Artículo 50.-Cuando el servidor dependa técnicamente de un jefe y administrativamente de otro, la evaluación deberá hacerse de la siguiente manera: el jefe técnico actuará como jefe inmediato y estará a cargo del expediente del desempeño.

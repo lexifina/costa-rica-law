@@ -1,0 +1,1 @@
+Artículo 56.-En caso de que el servidor manifieste disconformidad con el resultado de la evaluación, para convocarle a una nueva entrevista el jefe inmediato contará con tres días hábiles, contados a partir de la fecha en que éste presente sus objeciones.

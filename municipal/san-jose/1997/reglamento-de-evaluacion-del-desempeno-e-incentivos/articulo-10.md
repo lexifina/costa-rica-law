@@ -1,0 +1,1 @@
+Artículo 10.-La sede de la Comisión de Evaluación del desempeño será la Dirección de Recursos Humanos. Sesionará dos veces al mes en forma ordinaria, siempre y cuando haya algún asunto que tratar y extraordinariamente, cuando dos miembros la convoquen. Los asuntos tratados serán resueltos por simple mayoría; en caso de empate el coordinador aplicará el doble voto.

@@ -1,0 +1,1 @@
+Artículo 28.-Le corresponderá al Jefe inmediato determinar con sus propias apreciaciones tomando en cuenta el criterio del evaluado, las acciones de capacitación, asesoría y orientación que pueden contribuir a la corrección y mejoramiento del desempeño que se obtuvo tanto en la Evaluación Intermedia como final.

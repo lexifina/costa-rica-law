@@ -1,0 +1,1 @@
+Artículo 68.-Para la asignación de los Incentivos de Evaluación del Desempeño se dispondrá de una partida presupuestaria que se incluirá dentro del presupuesto ordinario de cada año, ajustada según las necesidades en presupuesto extraordinario.

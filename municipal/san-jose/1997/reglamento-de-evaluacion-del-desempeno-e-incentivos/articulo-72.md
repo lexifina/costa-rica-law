@@ -1,0 +1,4 @@
+Artículo 72.-De la ejecución del trabajo.
+El Agente de Cuenta deberá presentar a la jefatura inmediata, a inicio del trimestre un plan detallado del trabajo a realizar con las cuentas asignadas, para lo que deberá coordinar con ésta, incorporando las estrategias contempladas en el documento de Agentes de Cuenta, elaborado por la Dirección Financiera. Este Plan deberá ser aprobado por la Jefatura del Departamento.
+Con el equipo que la Municipalidad ponga a disposición del Agente de Cuenta, éste deberá aplicar las estrategias y el plan elaborado oportunamente hacia los contribuyentes, a fin de que logre los objetivos propuestos.
+Una vez finalizado el trimestre, deberá elaborar un informe de resultados, de acuerdo al plan establecido, el que presentará a su Jefatura inmediata, siendo este instrumento parte de la documentación que sustentará la evaluación que realice dicha jefatura.

@@ -1,0 +1,1 @@
+Artículo 4°-Se conocerá como miembros transitorios a las Jefaturas intermedias que deben justificar el desempeño de sus subordinados directos e indirectos en el caso de que sean requeridos por la Comisión de Evaluación del Desempeño.

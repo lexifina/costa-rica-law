@@ -1,0 +1,1 @@
+Artículo 18.-La información contenida en el expediente de Evaluación del servidor tendrá vigencia sólo por el periodo laboral que se trate. Por lo que se concluye el ciclo de Evaluación anual, esta deberá descartarse.

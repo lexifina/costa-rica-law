@@ -1,0 +1,1 @@
+Artículo 47.-Los jefes y los miembros de la Comisión de Evaluación del Desempeño, que intervengan en el proceso de evaluación del desempeño serán responsables por el atraso en la remisión o el extravío de los formularios, razón por la cual podrán ser sancionados de acuerdo con la naturaleza y gravedad del daño causado con su actuación negligente.

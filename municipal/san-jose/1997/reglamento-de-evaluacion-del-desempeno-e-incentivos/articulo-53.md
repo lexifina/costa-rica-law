@@ -1,0 +1,1 @@
+Artículo 53.-La Dirección de Recursos Humanos contará con un plazo máximo de 15 días hábiles, contados a partir de la fecha de recibo de los formularios, para revisarlos y registrar la información y trasladar a la Comisión.

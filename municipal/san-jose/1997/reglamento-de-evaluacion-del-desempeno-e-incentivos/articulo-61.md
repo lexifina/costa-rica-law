@@ -1,0 +1,1 @@
+Artículo 61.-La Comisión de Evaluación del Desempeño gozará de 30 días hábiles, contados a partir de la fecha en que haya recibido el formulario ponderado para devolver al jefe inmediato los resultados de la evaluación en original y copia (para el servidor y otra para el expediente del desempeño de éste).

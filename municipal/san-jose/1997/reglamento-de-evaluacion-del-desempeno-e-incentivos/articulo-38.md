@@ -1,0 +1,1 @@
+Artículo 38.-Todo servidor podrá impugnar en la Vía Administrativa ante el Superior Jerárquico el resultado de la Evaluación Intermedia o Final estableciéndose como plazo un mes (días naturales) posterior a la fecha en que reciba el original de esta.

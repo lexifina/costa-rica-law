@@ -1,0 +1,1 @@
+Artículo 14.-La Evaluación Intermedia se efectuará en el mes de julio y comprende el periodo de enero a junio. La Evaluación Final se realizará en el mes de enero y comprende le periodo de Julio a diciembre.

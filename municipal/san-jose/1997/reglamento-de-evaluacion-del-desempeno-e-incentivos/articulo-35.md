@@ -1,0 +1,1 @@
+Artículo 35.-En el caso en que el servidor se negare a firmar la Evaluación o a asistir a la entrevista de la Evaluación el Jefe Inmediato o Evaluador levantará un acta firmada por lo menos por dos testigos del acto, con sus respectivas calidades.

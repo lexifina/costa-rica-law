@@ -1,0 +1,1 @@
+Artículo 57.-En caso de que el servidor mantenga su disconformidad luego de la entrevista el jefe Inmediato contará con un día para trasladar el expediente del desempeño y el formulario de evaluación a su superior el día hábil siguiente de haber manifestado disconformidad.

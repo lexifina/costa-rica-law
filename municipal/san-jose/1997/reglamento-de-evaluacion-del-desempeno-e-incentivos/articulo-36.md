@@ -1,0 +1,1 @@
+Artículo 36.-Se exceptúa del proceso de Evaluación al servidor que durante el período de evaluación haya o este disfrutando de una licencia a tiempo completo por un período mayor a tres meses encuentre incapacitado, con licencia, beca o cualquier otro aspecto relevante será considerado por el Jefe inmediato, Superior o la Comisión.

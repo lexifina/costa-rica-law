@@ -1,0 +1,1 @@
+Artículo 16.-En cada unidad administrativa donde se ubica el área el Servidor (Dirección, Departamento, Sección, Unidad, Cuadrilla), deberá existir un expediente de la Evaluación del Desempeño bajo la custodia y responsabilidad del respectivo Jefe Inmediato o encargado Inmediato. Este expediente tendrá todos los documentos pertinentes al desempeño del servidor.

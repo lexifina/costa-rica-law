@@ -1,0 +1,1 @@
+Artículo 58.-El superior del jefe inmediato dispondrá de tres días hábiles contados a partir de la fecha en que reciba el formulario de evaluación y el expediente del desempeño del servidor para resolver en definitiva la evaluación.

@@ -1,0 +1,1 @@
+Artículo 30.-Para la obtención del Resultado de la Evaluación Intermedia se deberá sumar los puntos asignados a cada factor. El total de puntos deberá anotarse en el espacio correspondiente descrito en el Apartado E de los Formularios de la Evaluación del Desempeño.

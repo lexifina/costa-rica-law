@@ -1,0 +1,1 @@
+Artículo 5°-La finalidad de la comisión de Evaluación del Desempeño será mantener la estandarización y generalización de los criterio de evaluación, ejerciendo influencia objetiva acorde al manejo real de los criterios del desempeño de los evaluados.

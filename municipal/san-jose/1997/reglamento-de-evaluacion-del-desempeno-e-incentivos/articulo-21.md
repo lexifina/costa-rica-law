@@ -1,0 +1,1 @@
+Artículo 21.-Cuando se operan cambios de Jefe, la evaluación deberá hacerla el que haya permanecido más tiempo a cargo del evaluado siempre y cuando este se encuentre laborando para la Municipalidad de San José ante la existencia de un evaluador con menos de tres meses de trabajar con sus subalternos, se recurrirá a la Dirección de Recursos Humanos para su respectiva orientación.

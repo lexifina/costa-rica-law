@@ -1,0 +1,1 @@
+Artículo 23.-El fin de la Evaluación Intermedia será el de permitir al servidor y a su jefe inmediato conocer el desempeño cotidiano y determinar necesidades de capacitación u otras, en procura de una reorganización y mejoría del desempeño durante el segundo semestre del año.

@@ -1,0 +1,1 @@
+Artículo 8°-La Comisión de Evaluación del Desempeño no atenderá las solicitudes de apelación de oficio; solo realizará aquellos que soliciten los interesados o bien las que la comisión considere de interés municipal, sin que medie solicitud formal.

@@ -1,0 +1,1 @@
+Artículo 44.-En caso de que el servidor se encuentre ausente de su puesto por motivo de licencia sin goce de salario no deberá exigirse su Evaluación del Desempeño para ningún efecto administrativo ni legal.

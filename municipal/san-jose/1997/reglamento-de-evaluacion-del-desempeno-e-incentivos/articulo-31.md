@@ -1,0 +1,1 @@
+Artículo 31.-Para obtener el resultado de la Evaluación final deberá seguirse el mismo procedimiento señalado en el artículo anterior procediendo posteriormente a ponderar los Promedios de la Evaluación Intermedia y Final para obtener el resultado anual.

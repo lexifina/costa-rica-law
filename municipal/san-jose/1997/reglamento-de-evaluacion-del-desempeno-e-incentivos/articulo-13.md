@@ -1,0 +1,1 @@
+Artículo 13.-El ciclo de Evaluación comprenderá un periodo de un año, con dos Evaluación semestrales, la primera se denominará evaluación Intermedia y la Segunda Evaluación Final, que ponderadas ambas nos dará como resultado la Evaluación anual.

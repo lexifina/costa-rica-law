@@ -1,0 +1,1 @@
+Artículo 27.-Le corresponderá al Jefe Inmediato llenar con claridad y exactitud cada uno de los espacios del Apartado A que se encuentra en los diferentes formularios de evaluación. La información deberá aparecer nítida, sin borrones, tachaduras, ni uso de correctores de escritura.
