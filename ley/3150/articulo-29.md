@@ -1,0 +1,2 @@
+Artículo XXIX
+Para los efectos de reglamentación aduanera relacionados con el libre comercio, el tránsito de mercancías y la aplicación del Arancel Centroamericano Uniforme a la importación, las Partes contratantes suscribirán dentro de un plazo no mayor de un año a partir de la entrada en vigencia del presente Tratado, protocolos especiales mediante los cuales se adopte un Código Aduanero Uniforme Centroamericano y los reglamentos necesarios de transporte.

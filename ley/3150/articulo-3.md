@@ -1,0 +1,7 @@
+Capítulo II
+RÉGIMEN DE INTERCAMBIO
+Artículo III
+Los Estados signatarios se otorgan el libre comercio para todos los productos originarios de sus respectivos territorios, con las únicas limitaciones comprendidas en los regímenes especiales a que se refiere el Anexo A del presente Tratado.
+En consecuencia, los productos naturales de los países contratantes y los productos manufacturados en ellos, quedarán exentos del pago de derechos de importación y de exportación, inclusive los derechos consulares, y de todos los demás impuestos, sobrecargos y contribuciones que causen la importación y la exportación, o que se cobren en razón de ellas, ya sean nacionales, municipales o de otro orden.
+Las exenciones contempladas en este Artículo no comprenden las tasas o derechos de gabarraje, muellaje, almacenaje y manejo de mercancías, ni cualesquiera otras que sean legalmente exigibles por servicios de puerto, de custodia o de transporte; tampoco comprenden las diferencias cambiarias que resulten de la existencia de dos o más mercados de cambio o de otras medidas cambiarias adoptadas en cualquiera de los países contratantes.
+Las mercancías originarias del territorio de los Estados signatarios gozarán de tratamiento nacional en todos ellos y estarán exentas de toda restricción o medida de carácter cuantitativo, con excepción de las medidas de control que sean legalmente aplicables en los territorios de los Estados contratantes por razones de sanidad, de seguridad o de policía.

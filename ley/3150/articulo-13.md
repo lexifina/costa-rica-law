@@ -1,0 +1,4 @@
+Artículo XIII
+Si alguna de las Partes contratantes considerara que existen prácticas de comercio desleal no comprendidas en el Artículo XI, no podrá impedir el intercambio por decisión unilateral, debiendo presentar el problema a la consideración del Consejo Ejecutivo para que éste dictamine si en efecto se está incurriendo en tales prácticas. El Consejo rendir un dictamen en un plazo máximo de 60 días a partir de la fecha de recibo de la comunicación respectiva.
+Cuando alguna de las Partes considere que hay evidencia de comercio desleal, solicitará del Consejo Ejecutivo autorización para exigir fianza por el monto de los impuestos a la importación.
+Si el Consejo Ejecutivo no dictaminare dentro de 8 días, la Parte afectada podrá exigir la fianza en tanto, el Consejo Ejecutivo no resuelva en definitiva.

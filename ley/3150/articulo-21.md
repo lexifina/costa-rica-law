@@ -1,0 +1,4 @@
+Artículo XXI
+Con el objeto de aplicar y administrar el presente Tratado, así como de realizar todas las gestiones y trabajos que tengan por objeto llevar a la práctica la unión Económica de Centroamérica, se crea un Consejo Ejecutivo integrado por un funcionario propietario y un suplente designados por cada una de las Partes contratantes.
+El Consejo Ejecutivo se reunir cuantas veces sea necesario, a petición de una de las Partes contratantes o por convocatoria de la Secretaría Permanente, y sus resoluciones se tomarán por mayoría de votos del total de los miembros del Consejo. En caso de que no haya acuerdo, se recurrir al Consejo económico Centroamericano, a fin de que éste llegue, a una resolución definitiva al respecto.
+Antes de decidir un asunto el Consejo económico determinar por unanimidad si deber ser resuelto con el voto concurrente de todos sus miembros o por simple mayoría.
