@@ -1,0 +1,2 @@
+Artículo 46.—El Alcalde Municipal deberá asistir a todas las sesiones, asambleas, reuniones y actos del Concejo, de conformidad con el Código Municipal. Si el señor Alcalde se ausentare o se retire injustificadamente de los mismos se someterá a conocimiento del Concejo una amonestación en su contra, para que sea votada, lo anterior, sin perjuicio de la responsabilidad administrativa y disciplinaria que proceda de conformidad con la legislación vigente.
+(Así adicionado mediante sesión N° 171 de 17 de mayo de 2001).
