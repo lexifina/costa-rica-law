@@ -1,0 +1,1 @@
+Artículo 8°— A los arrendatarios de locales en el Mercado Municipal se le prohíbe el subarriedo, el cual en caso de comprobarse, faculta a la Municipalidad para adjudicar el local al respectivo subarrendatario por el precio del subarriendo.

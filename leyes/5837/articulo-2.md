@@ -1,0 +1,1 @@
+Artículo 2°—La solicitud de una patente municipal se hará en papel sellado ¢, 1.00, acompañada de un timbre municipal de ¢, 20.00; además deberán adjuntarse dos fotografías del solicitante y certificación médica de buena salud.
