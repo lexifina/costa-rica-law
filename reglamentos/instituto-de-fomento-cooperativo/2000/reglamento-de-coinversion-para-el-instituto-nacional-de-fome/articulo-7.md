@@ -1,0 +1,1 @@
+Artículo 7º—El proyecto de coinversión para efectos de control en cuanto al uso de los recursos financieros, deberá manejarse en cuentas separadas de la Contabilidad general de la entidad cooperativa y en una cuenta corriente separada.

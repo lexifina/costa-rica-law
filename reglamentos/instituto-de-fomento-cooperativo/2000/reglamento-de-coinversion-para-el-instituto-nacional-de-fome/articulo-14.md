@@ -1,0 +1,1 @@
+Artículo 14.—El plazo de la coinversión será determinado con base en el estudio de factibilidad respectivo. Hasta un plazo de máximo de 10 años según lo que establece el reglamento general de créditos y avales del INFOCOOP.

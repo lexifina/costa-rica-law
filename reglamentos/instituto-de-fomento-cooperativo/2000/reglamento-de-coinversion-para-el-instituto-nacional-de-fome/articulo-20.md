@@ -1,0 +1,2 @@
+Artículo 20.—Los proyectos de coinversión se garantizarán por medio de un Contrato de Coinversión y el estudio de factibilidad de la coinversión formará parte integrante de este contrato y el incumplimiento del mismo dará la posibilidad al INFOCOOP de intervenir al organismo cooperativo.
+Todo contrato de coinversión deberá ser protocolizado e inscrito en el Registro Público cuando corresponda y según el criterio de la Junta Directiva del INFOCOOP.

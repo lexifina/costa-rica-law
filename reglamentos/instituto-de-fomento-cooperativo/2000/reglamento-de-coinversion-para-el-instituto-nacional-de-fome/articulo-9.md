@@ -1,0 +1,1 @@
+Artículo 9º—Los recursos de coinversión deberán ser única y exclusivamente para financiar el capital de trabajo y la infraestructura del proyecto, excluyendo toda posibilidad de usar dichos recursos para financiar capitalización de deudas, reconversión de deudas y pago de gastos administrativos.
