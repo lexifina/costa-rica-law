@@ -14,3 +14,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-11-30 | la propia norma |
+| 2 | 1982-11-30 | SINALEVI (sin norma nombrada) |

@@ -1,0 +1,4 @@
+Artículo 36.- Orden de reapertura del negocio: La orden de
+reapertura del negocio, procederá únicamente cuando el contribuyente se
+haya puesto a derecho, lo que debe constar en resolución dictada por la
+Administración Tributaria.

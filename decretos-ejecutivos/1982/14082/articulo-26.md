@@ -1,15 +1,21 @@
 Artículo 26.- Sistema especial de determinación y pago del impuesto
-a nivel de fábrica y aduana: Tratándose del impuesto sobre aguardientes,
-licores, cervezas, cigarros, cigarrillos y bebidas gaseosas, la
-Administración Tributaria está facultada para determinar la base
-imponible y ordenar la recaudación del impuesto a las citadas mercancías
-a nivel de fábrica y aduana, sobre los precios de venta al consumidor
-final.
-Los intermediarios de las mercancías arriba indicadas, están
-obligados a emitir facturas conforme se establece en el artículo 18 de
-este Reglamento; en este caso, el impuesto que debe detallarse en las
-facturas será el efectivamente pagado en la etapa de fabricación o en la
-aduana, calculado sobre el precio de venta al consumidor final.
-El procedimiento anterior podrá ser establecido también para otras
-mercancías, siempre que sea conveniente a los intereses fiscales, para lo
-cual, la Administración Tributaria deberá dictar resolución razonada.
+a nivel de fábrica, mayorista y aduanas.
+La Administración Tributaria está facultada para determinar la base
+imponible y ordenar la recaudación a nivel de fábrica, mayorista y
+aduanas, sobre los precios de venta al consumidor final en el nivel de
+detallista, en aquellas mercancías en las que se dificulte la percepción
+del tributo. El procedimiento anterior deberá ser adoptado mediante
+resolución razonada, emitida por la Tributación Directa.
+En estos casos, los intermediarios que al momento de entrar en
+vigencia el sistema de cobro a nivel de fábrica, mayorista o aduana,
+tengan en sus inventarios mercancías de las contempladas en la
+correspondiente Resolución, deberán reintegrar el crédito aplicado por el
+impuesto pagado en las adquisiciones respectivas, mediante la cancelación
+del impuesto sobre dichas existencias a su precio de costo, el cual
+deberán incluir en la declaración del impuesto sobre las ventas del mes
+inmediato anterior al que entre en vigencia el cobro del impuesto a nivel
+de fábrica, aduana o mayorista. Asimismo, estos intermediarios deberán
+conservar a disposición de la Administración Tributaria los listados de
+inventario respectivo.
+( Así reformado por el artículo 10 del Decreto Nº 24775 de 23 de
+noviembre de 1995).
