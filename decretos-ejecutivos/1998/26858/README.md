@@ -15,3 +15,4 @@ Reglamento de Gastos de Viaje y de Transporte para Funcionarios del Ministerio d
 | --- | --- | --- |
 | 1 | 1998-05-08 | la propia norma |
 | 2 | 1999-10-29 | Decreto Ejecutivo 28315 (1999-10-29) |
+| 3 | 2005-03-08 | Decreto Ejecutivo 32423 (2005-03-08) |
