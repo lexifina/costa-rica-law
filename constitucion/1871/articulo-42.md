@@ -1,0 +1,1 @@
+Artículo 42.- A nadie se hará sufrir pena alguna, sin haber sido oído y convencido en juicio y sin que le haya sido impuesta por sentencia ejecutoriada de Juez ó autoridad competente. Exceptuándose el apremio corporal, la rebeldía y otras de esta naturaleza en materia civil, y las de multa ó arresto en materia de policía.

@@ -1,0 +1,1 @@
+Artículo 101.- El Presidente de la República no puede salir del territorio de Costa-Rica mientras dure su destino, ni dentro de un año después de haber dejado el mando sino es con el permiso del Congreso.

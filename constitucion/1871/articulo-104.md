@@ -1,0 +1,1 @@
+Artículo 104.- El Presidente de la República mientras dure en su destino, ó encargado del Poder Ejecutivo, no podrá ser perseguido ni juzgado por delitos comunes, sino después que a virtud de acusación interpuesta, haya declarado el Congreso haber lugar a formación de causa.

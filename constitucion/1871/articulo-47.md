@@ -1,0 +1,1 @@
+Artículo 47.- Todo costarricense ó extranjero, ocurriendo a las leyes, debe encontrar remedio para las injurias ó daños que haya recibido en su persona, propiedad u honra. Debe hacérsele justicia pronta cumplidamente y sin denegación y en estricta conformidad con las leyes.

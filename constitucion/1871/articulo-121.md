@@ -1,0 +1,1 @@
+Artículo 121.- Cada Sala se compondrá de su Presidente y dos Magistrados; mas cuando alguna de ellas conozca en 3ª Instancia de juicio escrito, se compondrá de cinco miembros, aumentándose con los dos Magistrados que con tal objeto se nombren.

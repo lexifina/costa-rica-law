@@ -1,0 +1,1 @@
+Artículo 87.- Ningún proyecto de ley aunque esté aprobado por el Congreso, tendrá fuerza de ley sin la sanción del Poder Ejecutivo. Si este tuviere a bien dársela, lo hará mandándole ejecutar y publicar; pero si la recusare, lo objetará y devolverá al Congreso con las objeciones que le hagan.

@@ -1,0 +1,1 @@
+Artículo 88.- El Poder Ejecutivo puede objetar cualquier proyecto de ley, bien sea porque lo juzgue del todo inconveniente, ó bien porque crea necesario hacerle variaciones ó reformas, y en este caso las propondrá.
