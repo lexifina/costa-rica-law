@@ -1,0 +1,1 @@
+Artículo 3º.- Seguirá cobrándose el pendiente adeudado del impuesto que se deroga, relativo a sus cuotas primera, segunda, tercera, cuarta y quinta, así como los ajustes verificados respecto a las mismas por la Tributación Directa, con las multas respectivas.
