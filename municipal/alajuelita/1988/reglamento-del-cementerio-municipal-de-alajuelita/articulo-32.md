@@ -1,0 +1,1 @@
+Artículo 32.-Cualquier daño o deterioro ocasionado por la construcción de ,una bóveda tendrá que ser reparado de inmediato por el interesado. En caso contrario el costo de la reparación se le cargará a su cuenta en la Municipalidad y constituirá gravamen sobre el derecho respectivo.

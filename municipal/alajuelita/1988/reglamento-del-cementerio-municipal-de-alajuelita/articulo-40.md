@@ -1,0 +1,1 @@
+Artículo 40.-La pintura para conservación de las bóvedas deberá ser de color blanco o gris. Sólo se permitirán otros colores en los materiales no sujetos a ser pintado como piedras o mosaicos que estuvieren colocados en las bóvedas construidas en la sección antigua del Cementerio a la fecha de aprobación del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 31.-Las construcciones de bóvedas quedan sujetas al pago de permisos de construcción, cuyo monto será objeto de determinación por parte del Ingeniero Municipal, de acuerdo con el valor de la obra.

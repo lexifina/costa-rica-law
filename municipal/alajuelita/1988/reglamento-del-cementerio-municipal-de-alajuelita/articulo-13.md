@@ -1,0 +1,1 @@
+Artículo 13.-Se consideran exhumaciones ordinarias por interés de la Administración Municipal, las que tienen lugar en nichos de alquiler, 'vencido el plazo. antes se le notificará con tiempo de tres meses. ya que no hay renovación de contrato. salvo en el caso de que sea momia.

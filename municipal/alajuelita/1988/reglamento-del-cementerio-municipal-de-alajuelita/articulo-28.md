@@ -1,0 +1,2 @@
+De las construcciones
+Artículo 28.-En ninguna parcela se permitirá la construcción de más de un nicho subterráneo y uno sobre la superficie. Por encima de los nichos superficiales, sólo se permitirá la construcción de osarios, cuyo diseño será previamente aprobado por la Ingeniería Municipal. Las bóvedas solamente se construirán de diseño sencillo en forma de prisma rectangular y con una altura máxima sobre el suelo de 70 cm.
