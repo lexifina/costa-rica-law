@@ -1,0 +1,1 @@
+Articulo 21.—Queda terminantemente prohibido la cesión, donación, venta o cualquier forma de traspaso de los puestos estacionarios o ambulantes y licencias. Al que se le comprobare tal negociación se le cancelará la patente.

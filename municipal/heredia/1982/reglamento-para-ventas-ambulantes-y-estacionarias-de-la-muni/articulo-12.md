@@ -1,0 +1,1 @@
+Artículo 12.—Los revendedores de lotería y chances, periódicos y revistas, limpiadores de calzado, deberán solicitar el permiso municipal, para ejercer esta actividad, pero se eximirán de los requisitos del inciso b), del artículo 49 de este reglamento. No podrán hacer uso de ningún tipo de mobiliario para ejercer la actividad en las vías públicas.

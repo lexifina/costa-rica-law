@@ -1,0 +1,1 @@
+Artículo 3°—La licencia deberá ser solicitada por escrito ante el Ejecutivo Municipal en papel sellado de un colón con veinte colones en timbres municipales, acompañada del estudio socioeconómico del solicitante, efectuado por el Instituto Mixto de Ayuda Social.
