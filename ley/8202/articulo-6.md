@@ -1,0 +1,1 @@
+Artículo 6º—Contratación. Para adquirir los bienes originados en este convenio, la CCSS seguirá los principios de eficiencia, igualdad, libre competencia y publicidad propios de la contratación administrativa.
