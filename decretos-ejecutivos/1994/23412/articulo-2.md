@@ -1,0 +1,1 @@
+Artículo 2°. En todos los artículos del referido decreto número 11276, donde se lea Dirección Ejecutiva, Subdirección Ejecutiva, Director Ejecutivo y Subdirector Ejecutivo debe leerse Gerencia, Subgerencia, Gerente y Subgerente, respectivamente.
