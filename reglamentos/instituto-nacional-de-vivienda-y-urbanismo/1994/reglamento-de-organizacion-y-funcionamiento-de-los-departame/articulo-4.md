@@ -1,0 +1,1 @@
+Artículo 4°-Toda preadjudicación, adjudicación, readjudicación, opción de venta o venta de inmuebles, así como la venta de productos agrícolas, o las posposiciones hipotecarias, deberán contar con la autorización previa de la Gerencia.

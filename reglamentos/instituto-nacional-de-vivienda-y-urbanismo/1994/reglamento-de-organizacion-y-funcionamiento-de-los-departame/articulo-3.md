@@ -1,0 +1,1 @@
+Artículo 3°-Para la emisión de sus actos administrativos en ejercicio de las atribuciones establecidas en los Incisos b), c),e) y f), otorgados en el numeral anterior, deberá emitir el acuerdo respectivo, con numeración consecutiva, para lo cual llevará un libro de registro anual.
