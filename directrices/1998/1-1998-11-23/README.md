@@ -13,3 +13,4 @@ Directriz sobre la Firma de Protocolos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-09 | la propia norma |
+| 2 | 1999-03-25 | Directriz 8 (1999-03-25) |
