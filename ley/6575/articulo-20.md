@@ -1,17 +1,2 @@
-ARTÍCULO 20.- Los documentos, actos o contratos, cualquiera que
-fuere su naturaleza, ya sea que tuvieren su origen en compras directas o
-mediante licitaciones públicas o privadas, o autorizadas por leyes
-especiales, aún de fecha anterior a la presente ley, en que adquirieren
-inmuebles el Estado directamente (Gobierno Central) o sus instituciones
-de educación, salud, beneficencia o asistencia públicas y municipalidades
-estarán exentos, respecto a todas las partes incluyendo los particulares,
-de impuestos sobre esas operaciones, timbres de toda clase, derechos de
-registro y de requisitos sobre constancia de valores, impuestos debidos
-por todas esas partes y cualesquiera otras condiciones o requisitos
-fiscales o tributarios que exigieren las leyes a los particulares, para
-tramitarlos o inscribirlos.
-(Reformada TACITAMENTE por el inciso d) del artículo 5º de la Ley de
-Impuesto sobre Traspaso de Bienes Inmuebles No.6999-A de 3 de setiembre
-de 1985, que señala exoneración sólo para el Estado; y el artículo 1º de
-la Ley Reguladora de Exoneraciones, Derogatoria y Excepciones No.7293 de
-31 de marzo de 1992).
+ARTÍCULO 20.- Los documentos, actos o contratos, cualquiera que fuere su naturaleza, ya sea que tuvieren su origen en compras directas o mediante licitaciones públicas o privadas, o autorizadas por leyes especiales, aún de fecha anterior a la presente ley, en que adquirieren inmuebles el Estado directamente (Gobierno Central) o sus instituciones de educación, salud, beneficencia o asistencia públicas y municipalidades estarán exentos, respecto a todas las partes incluyendo los particulares, de impuestos sobre esas operaciones, timbres de toda clase, derechos de registro y de requisitos sobre constancia de valores, impuestos debidos por todas esas partes y cualesquiera otras condiciones o requisitos fiscales o tributarios que exigieren las leyes a los particulares, para tramitarlos o inscribirlos.
+(Nota de Sinalevi: Mediante el artículo 179 del Código Notarial, Ley N° 7764 del 17 de abril de 1998, se reformó la ley N° 4564 del 29 de abril de 1970 y se estableció lo siguiente: “Quedan vigentes las exenciones tributarias referidas en el artículo 20 de la Ley No. 6575, de 27 de abril de 1981; el artículo 2 de la Ley No. 7293, de 3 de abril de 1992, así como la constitución de gravámenes en garantía de excarcelaciones, certificaciones y mandamientos provenientes de autoridades judiciales en materia penal, de trabajo, agraria y de familia.")
