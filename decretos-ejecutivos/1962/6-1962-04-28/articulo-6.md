@@ -1,1 +1,0 @@
-Artículo 6°— La Junta Directiva, en su primera reunión anual, nombrará de su seno un Presidente, un Secretario y un Tesorero. En caso de ausencia o incapacidad temporal de una de ellos, lo reemplazará en sus funciones el miembro de la Junta que designe.

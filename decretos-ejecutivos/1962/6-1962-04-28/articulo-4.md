@@ -1,2 +1,0 @@
-Artículo 4°— Dicha Junta estará integrada de la siguiente forma:
-El Director del Departamento de Extensión Cultural del Ministerio de Educación Pública. Dos representantes de los músicos de la Orquesta y cuatro miembros nombrados libremente por el mencionado Ministerio. Los representantes de los músicos serán escogidos de ternas que presentará el personal de la Orquesta y aparte de éstos, ninguna otra persona que forme parte del personal de la Orquesta podrá ser miembro de la Junta Directiva.

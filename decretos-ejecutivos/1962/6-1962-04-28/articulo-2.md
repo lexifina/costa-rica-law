@@ -1,1 +1,0 @@
-Artículo 2°—El fin de la Orquesta Sinfónica es difundir la buena música. Para contribuir a ese fin debe, aparte de sus actividades propias, dar once conciertos al año para el Ministerio de Educación Pública. Este, a través de su Departamento de Extensión Cultural y de acuerdo con el Director de la Orquesta, indicará la fecha, el lugar y la hora de cada uno.
