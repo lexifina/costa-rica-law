@@ -1,0 +1,1 @@
+Artículo 80.—En efecto de disposiciones propias de este Reglamento deberán tenerse como supletorias el Código de Trabajo, y demás leyes, decretos y reglamentos conexos de la materia que estén en vigencia en el país. Rige a partir de su publicación aprobado en sesión 8-98 artículo N° 4 del 7 de mayo de 1998.

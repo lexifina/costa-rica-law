@@ -1,0 +1,1 @@
+Artículo 8°—En todo contrato o relación de trabajo por tiempo indefinido, habrá un período de prueba de tres meses, salvo aquellos casos en que la Legislación Laboral contenga disposiciones de excepción, o en que se convenga un plazo menor. Durante este período y sin previo aviso, término al contrato o relación

@@ -1,0 +1,3 @@
+CAPITULO XV
+De las llegadas tardías
+Artículo 51.—Se considera llegada tardía el ingreso al trabajo después de cinco (5) minutos de la hora señalada para el comienzo de labores 8,00 a.m. para la Administración y el campo (Cementerios). Sin embargo, es necesario aclarar que la hora oficial de ingreso son las ya indicadas y que el uso de los cinco minutos es para casos especiales, motivo por el cual se faculta a la Jefe de Personal para que ante un uso irregular y constante de ese período de gracia proceda a efectuar las llamadas de atención pertinentes, salvo casos donde medie constancia de la CCSS o del INS, cualquier otra justificación quedará a criterio del Jefe inmediato, debiendo esta presentar al Departamento de Personal en el transcurso del medio día.

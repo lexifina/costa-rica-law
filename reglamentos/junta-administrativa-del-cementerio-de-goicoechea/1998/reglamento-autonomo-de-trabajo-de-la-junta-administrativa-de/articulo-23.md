@@ -1,0 +1,4 @@
+Artículo 23.—Son hábiles para el trabajo todos los días del año excepto los feriados.
+Sin embargo, podrá trabajarse en tales días siempre y cuando ello fuera posible, al tenor de las excepciones contenidas en los artículos 150 151 del Código de Trabajo.
+Para efectos de pago obligatorio se entenderán como feriados el 1 de enero, jueves y viernes santo, el 11 de abril, 1 de mayo; 25 de julio, 15 de agosto, 15 de setiembre y 25 diciembre el disfrute de los feriado; contemplados en el Código de Trabajo, artículo 147, de manera que si se labora un feriado se tendrá que abonar al trabajador de pago mensual un salario adicional sencillo en virtud de que con la modalidad de salarie quincenal los feriados contemplados en el artículo 147 del Código de Trabajo, remunerados.
+En caso de que los feriados recaigan en días hábiles y se laboran se les reconocerá un sencillo adicional.

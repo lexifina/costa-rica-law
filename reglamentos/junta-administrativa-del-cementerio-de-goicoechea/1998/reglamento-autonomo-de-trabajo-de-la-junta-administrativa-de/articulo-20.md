@@ -1,0 +1,1 @@
+Artículo 20.—El patrono señalará la época en que el trabajador gozará de sus vacaciones, pero deberá hacerlo dentro de las quince semanas posteriores al día en que se cumplan las cincuenta de servicios continuo, tratando de que no se altere la buena marcha de la Institución, ni la efectividad del descanso:

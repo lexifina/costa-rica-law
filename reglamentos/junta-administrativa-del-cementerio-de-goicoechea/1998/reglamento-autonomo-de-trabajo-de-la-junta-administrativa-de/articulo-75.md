@@ -1,0 +1,1 @@
+Artículo 75.—Las permutas y traslados, definitivamente o temporales, entre puestos de igual clase y remuneración, serán efectuados por la Junta. En el caso de permutas definitivas es necesario la anuencia de los interesados.

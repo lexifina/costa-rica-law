@@ -1,0 +1,1 @@
+Artículo 9°—En los casos de ascensos o traslados habrá un período de prueba de tres meses, da tal manera que el trabajador ascendido o trasladado podrá ser reintegrado a su anterior ocupación cuando el patrono estime que no reúna satisfactoriamente las condiciones requeridas para el desempeño del empleo en cuestión.

@@ -1,0 +1,1 @@
+Artículo 41.—En caso de no existir reloj marcador en el centro de trabajo, dicho control se llevará a cabo valiéndose de un libro en el cual se apuntarán las horas de entrada, almuerzo, y salida y en el cual el trabajador debe firmar.

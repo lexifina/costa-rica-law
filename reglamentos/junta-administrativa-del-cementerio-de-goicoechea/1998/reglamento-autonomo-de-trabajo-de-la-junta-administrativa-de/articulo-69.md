@@ -1,0 +1,1 @@
+Artículo 69.—En caso de que el trabajador contraiga matrimonio, o le sobrevenga el fallecimiento de alguno de sus padres, hijos, hermanos o cónyuge la Junta le concederá licencia con goce de salario de tres días hábiles, a una semana, de acuerdo con lo que estime conveniente sobre el particular.

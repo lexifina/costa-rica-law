@@ -1,0 +1,1 @@
+Artículo 68.—Los permisos sin goce de sueldo, podrán ser otorgados hasta por 6 meses, prorrogables por una sola vez por un plazo igual en casos muy calificados. Quien haya disfrutado de un permiso sin goce de sueldo, no podrá obtener otro si antes no ha transcurrido un tiempo igual al doble del tiempo del permiso anterior concedido.

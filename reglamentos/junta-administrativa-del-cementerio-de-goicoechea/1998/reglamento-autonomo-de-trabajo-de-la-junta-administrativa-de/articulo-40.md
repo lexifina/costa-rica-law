@@ -1,0 +1,1 @@
+Artículo 40.—Las asistencias al Seguro Social o al Instituto Nacional de Seguros, cuando sean en horas laborales, se considerarán orno licencias con goce de salario, siempre y cuando se presente al Apartamento de Personal la respectiva boleta de asistencia médica.

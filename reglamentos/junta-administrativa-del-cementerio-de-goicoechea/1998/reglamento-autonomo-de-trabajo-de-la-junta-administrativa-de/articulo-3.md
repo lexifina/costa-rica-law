@@ -1,0 +1,1 @@
+Artículo 3°—La aplicación del presente Reglamento corresponde al Presidente, y demás señores de la Junta y Jefe Administrativo, ante dudas en su aplicación o interpretación corresponde resolver al Presidente de la Junta.

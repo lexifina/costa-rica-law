@@ -1,0 +1,1 @@
+Artículo 13.—La Junta Administrativa podrá modificar transitoriamente los horarios establecidos en este reglamento, siempre que circunstancias especiales así lo exijan deberá ser comunicado a los trabajadores, afectados con un mínimo de tres días de anticipación.

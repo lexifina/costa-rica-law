@@ -1,0 +1,1 @@
+Artículo 39.—No obstante lo dispuesto en el artículo anterior dejará imponerse la sanción disciplinaria si el trabajador que por error hubiese arcado la tarjeta, o aquél a quién le hubiesen marcado la suya, informe el hecho a quién corresponda a más tardar en el curso de la jornada de abajo siguiente a aquella en que el mismo sucedió.

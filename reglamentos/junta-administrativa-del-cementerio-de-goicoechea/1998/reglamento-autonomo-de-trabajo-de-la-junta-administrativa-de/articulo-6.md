@@ -1,0 +1,5 @@
+Artículo 6°—Los contratos de trabajo serán:
+a) Por tiempo indefinido: Qué se llevarán a cabo con aquellos trabajadores indispensables para satisfacer las necesidades propias de la Junta.
+b) Por tiempo determinado: Qué se celebrarán con los trabajadores que vengan temporalmente a ejecutar las labores de quién o quienes se encuentran disfrutando de vacaciones, bajo licencia, así como en aquellos casos excepcionales en que su celebración resulte procedente conforme a la naturaleza de los servicios que se van a prestar.
+c) De Aprendizaje: Qué se formalizarán por escrito de acuerdo con las disposiciones de la Ley de Aprendizaje, su reglamento y disposiciones conexas y suplementarias, y que tiendan a la formación profesional, metódica y completa del individuo.
+d) Por otra Determinada: Qué se podrá celebrar para satisfacer las necesidades que eventualmente se presentaran en la Junta y en el cual, sin previa fijación de tiempo, el objeto de prestación personal del servicio subordinado será la misma obra producida.

@@ -1,0 +1,1 @@
+Artículo 71.—El monto del subsidio será de los primeros 4 días los paga el patrono, a partir del 5 día paga el 50% del salario que esté devengado el trabajador, pagando el otro 50%, la institución aseguradora, esta si es por la CCSS.

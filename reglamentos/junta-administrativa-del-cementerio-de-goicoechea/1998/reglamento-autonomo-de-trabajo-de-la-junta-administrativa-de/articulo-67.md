@@ -1,0 +1,1 @@
+Artículo 67.—Todas las licencias que se concedan a los trabajadores serán sin goce de salario, salvo aquellos casos previstos por la Ley o que, sin serlo, la Junta considere oportuno otorgar con goce de salario.

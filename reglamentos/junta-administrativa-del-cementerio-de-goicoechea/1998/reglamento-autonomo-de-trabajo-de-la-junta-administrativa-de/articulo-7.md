@@ -1,0 +1,1 @@
+Artículo 7°—La jefe de personal, llevará por cada trabajador un expediente personal que contenga los documentos relativos a su empleo y constancia de aquellos datos que sirvan para mantener un historial de los trabajadores lo más exacto posible.
