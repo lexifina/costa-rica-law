@@ -18,21 +18,21 @@ Refugiados (llamado en adelante "el Alto Comisionado" o alternativamente
 "el ACNUR"), ha establecido su Oficina Regional para el Norte de América
 Latina (llamada en adelante la "Oficina Regional de ACNUR") en San José;
 Considerando que la Convención sobre Prerrogativas e Inmunidades de
-las Naciones Unidas adoptada por la Asamblea General de las Naciones
-Unidas el 13 de febrero de 1946 (llamada en adelante "La Convención
-General") en la cual Costa Rica es parte, es aplicable al ACNUR, un órgano
-subsidiario de la Asamblea General de las Naciones Unidas establecido de
-acuerdo con el artículo 22 de la Carta de las Naciones Unidas y por lo
-tanto parte integrante de las Naciones Unidas;
+las Naciones Unidas adoptada por la Asamblea General de las Naciones Unidas
+el 13 de febrero de 1946 (llamada en adelante "La Convención General") en
+la cual Costa Rica es parte, es aplicable al ACNUR, un órgano subsidiario
+de la Asamblea General de las Naciones Unidas establecido de acuerdo con el
+artículo 22 de la Carta de las Naciones Unidas y por lo tanto parte
+integrante de las Naciones Unidas;
 Considerando que es deseable concluir un acuerdo complementario a la
 Convención General para regular algunas materias no contempladas en esa
-Convención y derivadas del establecimiento de la Oficina Regional del
-ACNUR en Costa Rica; han acordado lo siguiente:
+Convención y derivadas del establecimiento de la Oficina Regional del ACNUR
+en Costa Rica; han acordado lo siguiente:
 ARTICULO 1
 Funciones
 La oficina Regional del ACNUR ejercerá las funciones relativas a su
-competencia que le asigne el Alto Comisionado en relación a sus
-actividades en la región.
+competencia que le asigne el Alto Comisionado en relación a sus actividades
+en la región.
 ARTICULO 2
 Estatuto de la Oficina Regional
 1) Los locales de la Oficina Regional del ACNUR y las residencias del
@@ -47,20 +47,20 @@ servicios públicos, en términos equitativos.
 ARTICULO 3
 Funciones del ACNUR
 1) Los funcionarios del ACNUR, que no tengan la nacionalidad
-costarricense y no residentes en el país (excepto los remunerados por
-hora) gozarán dentro y respecto de Costa Rica de las siguientes
-prerrogativas e inmunidades:
+costarricense y no residentes en el país (excepto los remunerados por hora)
+gozarán dentro y respecto de Costa Rica de las siguientes prerrogativas e
+inmunidades:
 a) Inmunidad de proceso legal de cualquier naturaleza respecto de
-palabras habladas o escritas, y de actos realizados en su carácter
-oficial. Dicha inmunidad continuará aún cuando las personas en cuestión
-hayan cesado de ser funcionarios del ACNUR.
+palabras habladas o escritas, y de actos realizados en su carácter oficial.
+Dicha inmunidad continuará aún cuando las personas en cuestión hayan cesado
+de ser funcionarios del ACNUR.
 b) Inmunidad de embargo o confiscación de su equipaje oficial y personal;
 c) Inmunidad de inspección de su equipaje;
-d) Exención de impuestos respecto de sueldos, emolumentos, indemnizaciones y
-pensiones pagadas a ellos por el ACNUR, por servicios pasados o presentes, o
-relativos a servicios en el ACNUR;
-e) Exención de toda forma de impuestos sobre rentas de fuentes externas
-a Costa Rica;
+d) Exención de impuestos respecto de sueldos, emolumentos,
+indemnizaciones y pensiones pagadas a ellos por el ACNUR, por servicios
+pasados o presentes, o relativos a servicios en el ACNUR;
+e) Exención de toda forma de impuestos sobre rentas de fuentes externas a
+Costa Rica;
 f) Exención para ellos, sus cónyuges, sus familiares dependientes y otros
 miembros de su establecimiento familiar, de restricciones de inmigración y
 registro de extranjeros;
