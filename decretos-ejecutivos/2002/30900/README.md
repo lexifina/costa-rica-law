@@ -14,3 +14,4 @@ Reglamento General sobre la Distribución Asignación de Contingentes Arancelari
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-01 | la propia norma |
+| 2 | 2005-02-08 | Decreto Ejecutivo 32237 (2005-02-08) |

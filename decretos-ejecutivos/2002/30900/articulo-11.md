@@ -1,1 +1,2 @@
-Artículo 11.—Principio de asignación. COMEX no asignará a ningún solicitante, bajo ninguna circunstancia, un volumen del contingente que exceda al volumen solicitado.
+Artículo 11.—Principios de asignación y utilización. COMEX no asignará a ningún solicitante, bajo ninguna circunstancia, un volumen del contingente que exceda al volumen solicitado. De igual forma, ninguna persona física o jurídica que haya sido beneficiada con una asignación podrá importar al amparo del respectivo contingente un volumen mayor al que se le haya efectivamente asignado en el período que corresponda.
+(Así reformado este artículo mediante artículo 1° del Decreto Ejecutivo No. 32237-COMEX-MAG, de fecha 8 de febrero del 2005.)
