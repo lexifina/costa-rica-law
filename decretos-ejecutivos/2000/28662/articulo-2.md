@@ -1,0 +1,1 @@
+Articulo 2°—Fijar las dietas de los miembros de la Junta Médica Calificadora de la Incapacidad para el Trabajo, a partir del 1° de enero del año 2000. en un monto de ¢l4.044.90 (catorce mil cuarenta y cuatro colones con noventa céntimos) por sesión a la que asistan, sujeto a la existencia del contenido presupuestario correspondiente.
