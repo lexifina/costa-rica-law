@@ -15,3 +15,4 @@ Reglamento a la Ley de Armas (1986)
 | --- | --- | --- |
 | 1 | 1986-04-07 | la propia norma |
 | 2 | 1986-04-07 | SINALEVI (sin norma nombrada) |
+| 3 | 1988-06-11 | Decreto Ejecutivo 18313 (1988-06-11) |

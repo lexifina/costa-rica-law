@@ -1,1 +1,2 @@
-Artículo 65.-El Departamento tendrá facultades de control y fiscalización en cuanto a la fabricación, importación, exportación, desalmacenaje, traslado y almacenaje de los explosivos. El importador, vendedor, comprador, fabricante o exportador, acarreará con cualquier posible daño ocasionado a terceros.
+Artículo 65.-El Departamento tendrá facultades de control y fiscalización en cuanto a fabricación, importación, desalmacenaje, traslado y almacenaje de armas, municiones explosivos y afines. El importador, vendedor, comprador, fabricante o exportador, acarreará con cualquier posible daño ocasionado a terceros.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 18313 del 11 de junio de 1988)
