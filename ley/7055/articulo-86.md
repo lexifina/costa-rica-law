@@ -1,0 +1,1 @@
+Artículo 86.-Se autoriza a la Asociación Integral de Desarrollo de la Comunidad de San Isidro de Alajuela para que utilice la partida específica consignada en el código 637-242-1-131-20 de la ley N° 7018 (Presupuesto Ordinario para 1986), por un monto de cincuenta y cuatro mil colones (¢ 54.000,00), en el mejoramiento y asfaltado del camino a Pilas de San Isidro.

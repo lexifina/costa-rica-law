@@ -1,0 +1,1 @@
+Articulo 65.-Se autoriza al Banco Popular y de Desarrollo Comunal para que nombre, si así lo requiere, un consejo con representación de todos los sectores mencionados en el artículo 14 de su ley orgánica, cuyas funciones e integración serán reglamentadas por el Poder Ejecutivo, previa instancia de la Asamblea de Trabajadores del Banco.

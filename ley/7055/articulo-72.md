@@ -1,0 +1,1 @@
+Artículo 72.-Se autoriza a la Empresa de Servicios Públicos de Heredia para que, de la partida que le fue asignada en el Presupuesto Nacional, destine recursos a la terminación de las obras de la infraestructura necesaria para la prestación de los servicios de agua potable, electricidad, alumbrado público y alcantarillado de la Urbanización Aries de San Francisco de Heredia.

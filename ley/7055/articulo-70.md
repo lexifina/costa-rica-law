@@ -1,0 +1,1 @@
+Artículo 70.-Autorízase al Ministerio de Cultura, Juventud y Deportes para que cree una plaza de vigilante, una de conserje y una de recepcionista, en el Museo Etnohistórico de Limón. Los salarios de estos tres empleados serán incluidos dentro del presupuesto corriente de la Dirección General de Museos Regionales, de ese ministerio.

@@ -1,0 +1,2 @@
+Artículo 64.-Se autoriza al Banco Popular y de Desarrollo Comunal para que establezca sucursales, con el fin de suministrar un mejor servicio a sus usuarios. Estas sucursales contarán con una junta directiva regional.
+El funcionamiento, la integración, las atribuciones y el control de estas sucursales se establecerán por medio de un reglamento que será aprobado por la Junta Directiva Nacional, previa consulta con el Consejo de la Asamblea de Trabajadores.

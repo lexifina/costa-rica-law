@@ -1,0 +1,1 @@
+Artículo 53.-Se autoriza al Club de Leones de Guadalupe para que compre un vehículo exento de todo tipo de impuestos, tasas, sobretasas y otros. Este vehículo será rifado y los fondos provenientes de dicha rifa serán destinados a programas de vivienda a cargo del IMAS en el cantón de Goicoechea.

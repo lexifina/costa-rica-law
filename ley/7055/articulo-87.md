@@ -1,0 +1,1 @@
+Artículo 87.-La partida de ciento treinta y cinco mil colones (¢ 135.000,00) destinada a la Asociación de Desarrollo de Barrio Corazón de Jesús de Heredia, para la construcción de la biblioteca pública de Heredia, giro número 850565307, girará a la Asociación de Desarrollo de Barrio Corazón de Jesús de Heredia, para el proyecto de la cancha multiuso "Vico Trejos" .

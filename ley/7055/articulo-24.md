@@ -1,0 +1,2 @@
+Artículo 24.-Se autoriza al Ministerio de Obras Públicas y Transportes para que venda, mediante licitación pública, todas las propiedades sobrantes de expropiaciones, y las propiedades no utilizadas para las cuales no haya dispuesto ningún uso futuro.
+Los fondos provenientes de estas ventas se trasladarán al programa de Edificaciones Nacionales y se utilizarán en la construcción de instalaciones para el MOPT, que le eviten el pago de alquileres. Lo anterior de conformidad con lo que establece la ley de la Administración Financiera de la República.

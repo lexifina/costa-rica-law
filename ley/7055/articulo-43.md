@@ -1,0 +1,1 @@
+Artículo 43.-Se autoriza al Club Rotario de Cartago para que compre un vehículo exento de todo tipo de impuestos, tasas, sobretasas y otros. Este vehículo será rifado y los fondos que se obtengan serán destinados a obras de bien social que realizará dicha agrupación en la provincia de Cartago.
