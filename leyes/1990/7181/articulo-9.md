@@ -1,8 +1,8 @@
-ARTICULO 9.- Autorízase a la Municipalidad para que verifique ante la
-Dirección General de la Tributación Directa la exactitud de los datos
+ARTICULO 9.- Autorízase a la Municipalidad para que verifique ante
+la Dirección General de la Tributación Directa la exactitud de los datos
 suministrados por los patentados. Si se comprobara que existe alteración
-de ellos, circunstancia que determine que el monto asignado es incorrecto,
-la Municipalidad hará la recalificación correspondiente.
+de ellos, circunstancia que determine que el monto asignado es
+incorrecto, la Municipalidad hará la recalificación correspondiente.
 Asimismo, cuando la Dirección General de la Tributación Directa
 hiciere alguna recalificación en el impuesto sobre la renta, deberá
 comunicarlo de oficio a la Municipalidad, para lo que corresponda.
