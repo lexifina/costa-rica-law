@@ -1,0 +1,1 @@
+ARTICULO 15. EI total de los ingresos brutos anuales de las activo hayan operado únicamente durante una parte de todo el periodo fiscal determinara con base en el promedio mensual del periodo de la actividad.
