@@ -12,4 +12,8 @@ e) Resolver cualquier asunto en caso de empate, en cuyo evento tendrá voto dobl
 f) Conceder licencia a los Directores para retirarse de las sesiones, salvo acuerdo en contrario de la Junta Directiva.
 g) Sin perjuicio de que la Junta Directiva tome acuerdo en sentido diferente, determinar cuando se llevarán a cabo las sesiones con asistencia exclusiva de los Directores, fijando los procedimientos que considere necesarios para tal efecto.
 h) Llevar la representación de la Junta Directiva en actos protocolarios y otros semejantes.
-i) Las demás que le asignen las leyes y reglamentos.
+(Así reformado el inciso anterior mediante sesión N°2295 del 30 de setiembre de 1993).
+i) Comunicar las resoluciones de la Junta Directiva, en ausencia del Director y Subdirector Ejecutivos.
+(Así reformado el inciso anterior mediante sesión N°2295 del 30 de setiembre de 1993).
+j) Las demás que le asignen las leyes y reglamentos.
+(Así adicionado el inciso anterior mediante sesión N°2295 del 30 de setiembre de 1993).
