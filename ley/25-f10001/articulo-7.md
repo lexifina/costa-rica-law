@@ -1,0 +1,1 @@
+Art. 7. El bongo ó cualquier embarcacion que fuese empleada en embarcar ó desembarcar artículos estancados por el Gobierno, sin la licencia correspondiente, será subastada y dividido su valor por mitad el Tesoro de la Nacion y el aprehensor.

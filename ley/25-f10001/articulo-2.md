@@ -1,0 +1,1 @@
+Art. 2. El administrador de Puntarenas; al dar el permiso de que habla el art. anterior, enviará un guarda á bordo del buque, cuyo empleado se irá en la misma embarcación que va a recibir los artículos que exprese la referida licencia, debiendo hacer tantos viages cuantos haga la enunciada embarcacion.
