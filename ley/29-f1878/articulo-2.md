@@ -2,7 +2,7 @@ Artículo 2º.- Autorízase al Poder Ejecutivo a cubrir las cuotas que
 se asignen a la República para el mantenimiento del referido Instituto,
 de conformidad con las estipulaciones de la Convención aprobada.
 (*) El texto de la referida Convención consta en el Decreto
-Ejecutivo Nº 1 de 23 de mayo de 1944, cuyo texto original dice:
+Ejecutivo Nº 1 de 23 de mayo de 1944, cuyo texto vigente dice:
 " Nº 1
 TEODORO PICADO
 PRESIDENTE DE LA REPUBLICA
@@ -13,8 +13,8 @@ en Washington el 15 de enero de este año, la Convención para el
 establecimiento del Instituto Interamericano de Ciencias Agrícolas, que
 dice:
 CONVENCION SOBRE EL INSTITUTO INTERAMERICANO DE CIENCIAS AGRICOLAS
-Los Gobiernos de las Repúblicas Americanas, animados del propósito
-de fomentar el adelanto de las ciencias agrícolas, así como las artes y
+Los Gobiernos de los Estados Americanos, animados del propósito de
+fomentar el adelanto de las ciencias agrícolas, así como las artes y
 ciencias conexas, y deseosos de dar cumplimiento en forma práctica a la
 resolución aprobada por el Octavo Congreso Científico Americano que se
 celebró en Washington en 1940, recomendando el establecimiento de un
@@ -23,35 +23,45 @@ una Convención para reconocer como institución permanente al Instituto
 Interamericano de Ciencias Agrícolas, que en el texto de esta Convención
 se designará como el "Instituto", sobre las bases que se determinan en
 los siguientes artículos:
-ARTICULO I.- Los Estados Contratantes reconocen mediante Convención
-como Institución permanente al Instituto Interamericano de Ciencias
-Agrícolas, organizado como sociedad organizada de acuerdo con las leyes
-del Distrito de Columbia, Estados Unidos de América, con fecha 18 de
-junio de 1942; y convienen en darle al Instituto el carácter de persona
-jurídica de acuerdo con su propia legislación. El Instituto gozará de
-todos los derechos, beneficios, capital, terreno y otros bienes que ha
-adquirido o adquiera, en calidad de corporación y asumirá todas las
-obligaciones y cumplirá los contratos que ha celebrado o celebre en la
-misma capacidad.
-La oficina central ejecutiva del Instituto tendrá su sede en
-Washington D.C. La oficina principal de actividades radicará en
-Turrialba, Costa Rica, Oficinas regionales del Instituto podrán ser
-establecidas en todas las otras Repúblicas Americanas.
+(Así reformado por el Protocolo de Enmiendas a la presente
+Convención - ARTICULO I - aprobado por el artículo 1º de la Ley Nº 2527
+de 17 de febrero de 1960, que ordenó cambiar el término "República" o
+"Repúblicas", existentes en su texto, por el de "Estado" o "Estados",
+según el caso).
+Artículo I.- Los Estados Contratantes, por medio del presente
+instrumento, reorganizan el Instituto Interamericano de Ciencias
+Agrícolas y lo establecen como organismo internacional, reconociéndole
+personalidad jurídica de acuerdo con su propia legislación. En tal
+carácter, el Instituto goza de todos los derechos, títulos e intereses en
+los bienes, terrenos y otras propiedades de cualquier naturaleza que sean
+y que pertenezcan al Instituto Interamericano de Ciencias Agrícolas,
+según fue organizado, con fecha de 18 de junio de 1942, como corporación
+establecida de acuerdo con las leyes del Distrito de Columbia, Estados
+Unidos de América; y asume todas las obligaciones de que se haya hecho
+responsable dicho Instituto en esa calidad de corporación.
+El Instituto tendrá su sede en Turrialba, Costa Rica, y podrá
+establecer oficinas en otros lugares de dicho país. Podrá tener también
+oficinas o centros regionales en otros países de América.
+(Así reformado por el Protocolo de Enmiendas a la presente
+Convención - ARTICULO I - aprobado por el artículo 1º de la Ley Nº 2527
+de 17 de febrero de 1960, que ordenó cambiar el término "República" o
+"Repúblicas", existentes en su texto, por el de "Estado" o "Estados",
+según el caso y por el ARTICULO II del citado Protocolo).
 Fines
 Artículo II.- Los fines del Instituto serán los de estimular y
-promover el desarrollo de las ciencias agrícolas en las Repúblicas
-Americanas mediante la investigación, la enseñanza y la divulgación de la
+promover el desarrollo de las ciencias agrícolas en los Estados
+Americanos mediante la investigación, la enseñanza y la divulgación de la
 teoría y de la práctica de la Agricultura, así como de otras artes y
 ciencias conexas.
 Para realizar estos fines, el Instituto podrá, de conformidad con
 las leyes de los distintos países, hacer uso de las siguientes
 atribuciones: crear, sostener y administrar establecimientos similares e
-instalaciones en una o más de las Repúblicas Americanas; prestar ayuda al
+instalaciones en uno o más de los Estados Americanos; prestar ayuda al
 establecimiento y mantenimiento de organizaciones que persiguen
-finalidades análogas en dichas Repúblicas; comprar, vender, arrendar,
-mejorar o administrar cualquiera propiedad en las Repúblicas Americanas,
+finalidades análogas en dichos Estados; comprar, vender, arrendar,
+mejorar o administrar cualquiera propiedad en los Estados Americanos,
 de acuerdo con las finalidades del Instituto; colaborar con el Gobierno
-de cualquiera República Americana o con cualesquiera otros organismos o
+de cualquiera Estado Americano o con cualesquiera otros organismos o
 entidades y prestar ayuda a los mismos; aceptar contribuciones y
 donativos en forma de dinero o bienes, tanto muebles como inmuebles;
 celebrar y llevar a cabo contratos y acuerdos; cultivar o adquirir toda
@@ -59,132 +69,113 @@ clase de productos agrícolas y sus derivados o disponer de los mismos en
 cualquiera forma cuando sea esencial para fines de investigación o
 experimentación; y efectuar cualquiera otro negocio o llevar a cabo
 cualquiera otra actividad que sean convenientes para los fines indicados.
+(Así reformado por el Protocolo de Enmiendas a la presente
+Convención - ARTICULO I - aprobado por el artículo 1º de la Ley Nº 2527
+de 17 de febrero de 1960, que ordenó cambiar el término "República" o
+"Repúblicas", existentes en su texto, por el de "Estado" o "Estados",
+según el caso).
 La Junta Directiva
-Artículo III.- Los representantes de las veintiuna Repúblicas
-Americanas en el Consejo Directivo de la Unión Panamericana actuarán como
-miembros del Instituto y se considerarán como miembros de la Junta
-Directiva del mismo. Si alguno de ellos no pudiere asistir a una reunión
-de la Junta Directiva se podrá designar a un suplente para ese fin, ya
-sea por el propietario o por su respectivo Gobierno. Las decisiones de la
-Junta serán adoptadas por la mayoría de los votos de sus miembros, cuya
-mayoría de votos incluirá una mayoría de votos de los representantes de
-los Estados Contratantes. La Junta tendrá, entre otras, las siguientes
-atribuciones:
-Elegir al Director del Instituto y ratificar el nombramiento del
-Secretario.
-Remover tanto al Director como al Secretario.
-Fijar la remuneración del Director y del Secretario.
-Vigilar las actividades del Director, quien será responsable de dar
-cumplimiento a todas las órdenes y resoluciones de la Junta.
-Nombrar un Comité Administrativo asignándole sus deberes y fijándole
-sus gastos o emolumentos, el que consistirá de más de ocho personas,
-entre las cuales servirá de miembro ex officio el Director del Instituto.
-No se requiere que los miembros de este Comité sean miembros de la Junta
-Directiva del Instituto.
-Aprobar el presupuesto que someterá anualmente el Director para la
-Administración del Instituto.
-La Junta fijará las cuotas anuales del Instituto.
-La Junta recibirá del Director un informe anual sobre las
-actividades del Instituto, así como de su estado general y situación
-financiera.
-Funcionarios
-Artículo IV.- El Instituto tendrá un Director y un Secretario. El
-Director será elegido por la Junta Directiva en sesión plenaria y durará
-seis años en su cargo; podrá ser reelecto una o más veces. El primer
-período del Director para los fines de la presente Convención,
-principiará el día que ésta entre en vigor.
-El Secretario será nombrado por el Director con la aprobación de la
-Junta Directiva del Instituto, y será directamente responsable ante el
-Director.
-El Director y el Secretario desempeñarán sus cargos hasta que sus
-sucesores respectivos sean designados y entren al desempeño de sus
-cargos; pero podrán ser removidos por el voto de la mayoría de los
-miembros del Instituto.
+Artículo III.- La Junta Directiva, autoridad suprema del Instituto,
+se compone de un representante por cada Estado Contratante. Cada Estado
+designará como su representante preferentemente a un alto funcionario del
+Ministerio o Secretaría de Agricultura, especialista en materias
+agrícolas. Asimismo, cada Estado podrá nombrar un representante suplente
+y los asesores que considere necesarios.
+Para las decisiones de la Junta Directiva se requiere el voto
+favorable de la mayoría absoluta de los Estados Contratantes, excepto en
+lo referente a asuntos presupuestarios en que es necesaria una mayoría de
+dos tercios.
+Son atribuciones de la Junta las siguientes:
+Elegir al Director del Instituto y determinar su remuneración;
+Remover al Director;
+Considerar el Proyecto de Programa de Trabajo que le someta el
+Director, y aprobar anualmente el Programa de Trabajo del Instituto;
+Aprobar el presupuesto del Instituto y fijar las cuotas anuales de
+los Estados Contratantes;
+Cooperar con el Director en asuntos de índole técnico-agrícola;
+Aprobar el Acuerdo que el Instituto, en su calidad de Organismo
+Especializado, celebre con el Consejo de la Organización de los Estados
+Americanos, y en el que se determinen las relaciones que deben existir
+entre el Instituto y la Organización;
+Aprobar acuerdos entre el Instituto y otros organismos
+internacionales cuyos objetivos sean similares a los de éste;
+Recibir del Director un informe anual sobre las actividades, estado
+general y situación financiera del Instituto; y
+Formular su propio Reglamento y aprobar el Reglamento para la
+administración del Instituto.
+La Junta establecerá, entre sus miembros, una comisión que prepare
+las reuniones de aquélla, y lleve a cabo los demás trabajos que la Junta
+le encomienda.
+La Junta celebrará anualmente una reunión ordinaria y podrá celebrar
+reuniones extraordinarias cuando una mayoría de los Estados Contratantes
+lo acuerde. Las reuniones de la Junta tendrán lugar en la sede del
+Instituto a menos que aquélla fije otro lugar en casos determinados.
+(Así reformado por el Protocolo de Enmiendas a la presente
+Convención - ARTICULO I - aprobado por el artículo 1º de la Ley Nº 2527
+de 17 de febrero de 1960, que ordenó cambiar el término "República" o
+"Repúblicas", existentes en su texto, por el de "Estado" o "Estados",
+según el caso y por el ARTICULO III del citado Protocolo).
 El Director
-Artículo V.- 1.- El Director tendrá amplios y plenos poderes para
-dirigir las actividades del Instituto, bajo la vigilancia de la Junta
-Directiva del mismo; y será responsable del cumplimiento de todas las
-órdenes y resoluciones de dicha Junta.
-2.- El Director tendrá la representación legal del Instituto bajo la
-vigilancia de la Junta Directiva del mismo; y podrá legalizar con el
-sello del Instituto todos los contratos, traspasos y otros instrumentos
-que requieren ese trámite y que en su opinión sean necesarios y
-convenientes para el funcionamiento del Instituto. Además estará
-facultado para tomar cualquiera otra medida necesaria para dar fuerza
-legal a tales instrumentos, de conformidad con los requisitos o
-disposiciones de la ley. El Director podrá otorgar poderes a otras
-personas para todos aquellos que no pueda realizar él personalmente.
-3.- El Director, sujeto a la supervigilancia de la Junta Directiva
-del Instituto, tendrá facultad para nombrar y remover empleados y fijar
-su remuneración.
-4.- El Director preparará el presupuesto del Instituto para cada año
-fiscal y lo someterá a la Junta Directiva, con no menos de dos meses de
-anticipación a la reunión anual, en la cual se considerará su aprobación.
-5.- El Director presentará un informe anual a la Junta Directiva dos
-meses antes de celebrarse la reunión anual, en la que él dará cuenta de
-las labores del Instituto durante el año, así como de su estado general y
-situación financiera; y someterá a la aprobación de la misma Junta el
-presupuesto y los planes para el año siguiente.
-El Secretario
-Artículo VI.- El Secretario tendrá bajo su cuidado las actas y
-archivos del Instituto, gozará de todas las facultades y desempeñará
-todas las funciones administrativas que le encomiende el Director.
-El Consejo Técnico Consultivo
-Artículo VII.- Se establecerá un Consejo Técnico Consultivo, que se
-organizará en la forma siguiente:
-1.- Cada uno de los Estados Contratantes podrá designar un experto
-agrícola quien actuará como su representante en el seno del Consejo
-Técnico Consultivo del Instituto. Este Consejo cooperará con el Director
-en asuntos de índole técnica agrícola. El nombramiento de cada
-representante se comunicará oficialmente al Secretario del Instituto. Los
-Miembros del Consejo sujetos a la voluntad de sus gobiernos, ejercerán
-sus funciones durante un período de cinco años, pudiendo ser nombrados
-nuevamente una o más veces para continuar en el desempeño de sus cargos.
-2.- El Consejo Técnico Consultivo se reunirá, a lo menos una vez al
-año, bajo la presidencia del Director del Instituto, en el lugar en que
-las actividades del Instituto lo requieran. El Director podrá citar al
-Consejo a reuniones, extraordinarias por su propia iniciativa, cuando la
-buena marcha del Instituto así lo requiera. Cada una de estas reuniones
-deberá convocarse con dos meses de anticipación por lo menos, indicándose
-el motivo o motivos de la reunión propuesta. Una mayoría de los Miembros
-del Consejo constituirá quórum.
-3.- Ningún miembro del Consejo Técnico Consultivo recibirá del
-Instituto, en tal capacidad, remuneración pecuniaria alguna por sus
-servicios; pero el Instituto podrá sufragar los gastos de viaje de los
-miembros del Consejo para su reunión anual.
-Agente Fiscal
-Artículo VIII.- La Unión Panamericana actuará como agente fiscal del
-Instituto, y en tal capacidad recibirá y administrará los fondos del
-Instituto.
+Artículo IV.- El Director del Instituto será elegido por la Junta
+Directiva en sesión plenaria para un período de seis años y podrá ser
+reelecto una sola vez. Desempeñará su cargo hasta que su sucesor sea
+elegido y entre en funciones.
+El Director, bajo la supervisión de la Junta Directiva, tendrá
+amplios y plenos poderes para dirigir las actividades del Instituto;
+tendrá la representación legal del mismo; y será responsable del
+cumplimiento de todas las órdenes y resoluciones de la Junta.
+El Director tendrá, además, las siguientes atribuciones y deberes:
+Preparar el proyecto de presupuesto y el programa de trabajo del
+Instituto para cada año fiscal y someterlos a los miembros de la Junta
+Directiva con no menos de dos meses da anticipación a la reunión anual en
+la que se considere su aprobación;
+Presentar un informe anual a la Junta Directiva dando cuenta de las
+labores del Instituto durante el año fiscal anterior, así como del estado
+general y de la situación financiera del mismo;
+Celebrar contratos y arreglos para la realización de proyectos y
+actividades específicas que, en su opinión, resulten en beneficio del
+Instituto, de acuerdo con las normas generales que establezca la Junta
+Directiva;
+Nombrar y remover funcionarios y empleados y fijar su remuneración,
+de acuerdo con las normas generales que determine la Junta Directiva; y
+Procurar la mayor coordinación posible entre las actividades del
+Instituto y las de otros organismos internacionales cuyos objetivos sean
+similares a los de éste.
+Cuando lo estime necesario y bajo su responsabilidad, el Director
+podrá delegar en otros funcionarios del Instituto las atribuciones
+inherentes a su cargo.
+( Así adicionado por el Protocolo de Enmiendas a la presente
+Convención - ARTICULO IV - aprobado por el artículo 1º de la Ley Nº 2527
+de 17 de febrero de 1960, en reemplazo de los artículos IV, V y VI
+originales).
+Artículo V.-
+( Ver Nota del artículo IV anterior)
+Artículo VI.-
+( Ver Nota del artículo IV anterior)
+Artículo VII.-
+( Sin efecto de conformidad con lo dispuesto expresamente por el
+artículo V del Protocolo de Enmiendas a la presente Convención, aprobado
+por el artículo 1º de la Ley Nº 2527 de 17 de febrero de 1960).
+Artículo VIII.-
+( Sin efecto de conformidad con lo dispuesto expresamente por el
+artículo V del Protocolo de Enmiendas a la presente Convención, aprobado
+por el artículo 1º de la Ley Nº 2527 de 17 de febrero de 1960).
 Sostenimiento del Instituto
-Artículo IX.- Los recursos para sostener y fomentar las labores del
-Instituto consistirán en las cuotas anuales que cubran los Estados
-contratantes, así como en los legados, donativos y contribuciones que el
-Instituto acepte. Tales fondos y contribuciones se utilizarán
-exxclusivamente para fines que estén de acuerdo con el carácter del
-Instituto.
-La Junta Directiva del Instituto fijará las cuotas anuales en el
-entendimiento de que el voto deberá ser unánime en lo que respecta a los
-miembros que representen a los Estados Contratantes. El monto de las
-cuotas respectivas se fijará en proporción con el número de habitantes de
-cada Estado Contratante, tomándose como base las últimas estadísticas
-oficiales que existan en la Unión Panamericana, el 1º de julio de cada
-año.
-Se fijará la cuota anual de cada Estado Contratante, la que no
-excederá de un dólar en la moneda de los Estados Unidos de América, por
-cada mil habitantes. Sin embargo esa cuota podrá aumentarse medianate la
-recomendación unánime de los Miembros de la Junta Directiva que
-represente los Estados Contratantes y con la aprobación de las
-autoridades competentes de cada Estado Contratante.
-La Unión Panamericana comunicará a los Gobiernos de los Estados
-Contratantes las cantidades que les correspondan, las que deberán pagarse
-antes del 1º de julio de cada año.
-El pago de la cuota correspondiente a cada Estado Contratante se
-comenzará a partir de la fecha en que esta Convención entre en vigor con
-respecto a ese Estado, calculándose la cantidad a base del número de
-meses completos que quedaren por terminarse dentro del año fiscal en
-curso.
-El año fiscal del Instituto comenzará cada 1º de julio.
+Artículo IX.- Los Estados Contratantes contribuirán al sostenimiento
+del Instituto mediante cuotas anuales que serán fijadas por la Junta
+Directiva de acuerdo con las bases utilizadas en la determinación de las
+cuotas para el sostenimiento de la Unión Panamericana. El Instituto
+podrá, además, aceptar de fuentes oficiales o de fuentes particulares,
+contribuciones especiales, legados o donaciones para realizar actividades
+que estén de acuerdo con el carácter y los propósitos del Instituto.
+El año fiscal del Instituto comienza el 1º de julio y termina el 30
+de junio.
+Las cuotas anuales que correspondan a los Estados Contratantes se
+comunicarán con anticipación a los Gobiernos y se considerarán debidas
+desde el primer día del precitado año fiscal.
+( Así reformado por el Protocolo de Enmiendas a la presente
+Convención - ARTICULO VI - aprobado por el artículo 1º de la Ley Nº 2527
+de 17 de febrero de 1960).
 Idiomas
 Artículo X.- Serán idiomas oficiales del Instituto el español, el
 inglés, el portugués y el francés.
@@ -213,6 +204,8 @@ de cada uno de los Estados Contratantes, los fondos y otros bienes que se
 empleen para los fines del Instituto, y todos los contratos y actos
 oficiales del Instituto, que se mantengan dentro de los límites de sus
 funciones.
+( NOTA: Sobre privilegios e inmunidades del Instituto y sus
+funcionarios, ver Ley Nº 3367 de 6 de agosto de 1964).
 Circulación de Fondos
 Artículo XIII.- Cada uno de los Estados Contratantes tomará las
 medidas que sean necesarias para facilitar el movimiento de los fondos
@@ -227,8 +220,8 @@ reglamentos.
 Firma y Ratificación
 Artículo XV.- 1.) El original de la Presente Convención, redactado
 en los idiomas español, inglés, portugués y francés, será depositado en
-la Unión Panamericana y abierto a la firma de los Gobiernos de las
-Repúblicas Americanas. La Unión Panamericana enviará copias certificadas
+la Unión Panamericana y abierto a la firma de los Gobiernos de los
+Estados Americanos. La Unión Panamericana enviará copias certificadas
 auténticas de la presente Convención a los Gobiernos de los Estados no
 signatarios que sean miembros de la Unión Panamericana. La Unión
 Panamericana informará a todos los Gobiernos de los países miembros de la
@@ -244,10 +237,15 @@ que se hayan depositado en la Unión Panamericana cinco ratificaciones
 cuando menos. Cualquiera ratificación que se reciba después de que la
 presente Convención entre en vigor, tendrá efecto un mes después de la
 fecha del depósito de dicha ratificación en la Unión Panamericana.
+(Así reformado por el Protocolo de Enmiendas a la presente
+Convención - ARTICULO I - aprobado por el artículo 1º de la Ley Nº 2527
+de 17 de febrero de 1960, que ordenó cambiar el término "República" o
+"Repúblicas", existentes en su texto, por el de "Estado" o "Estados",
+según el caso).
 Denuncia
 Artículo XVI.- 1.- La presente Convención, de acuerdo con lo
 dispuesto en el párrafo 2º de este artículo, regirá indefinidamente, pero
-podrá ser denunciada por cualquier Estado Contratante, dano aviso por
+podrá ser denunciada por cualquier Estado Contratante, dando aviso por
 escrito a la Unión Panamericana, la cual informará a todos los otros
 Estados Contratantes acerca de cada ratificación de denuncia que sea
 recibida. Transcurrido un año a contar de la fecha en que haya sido
@@ -297,8 +295,12 @@ Por Chile: (f.) R. Michels, 13 de mayo de 1944 (Sello.)
 Certifico que el documento preinserto es copia fiel del original,
 con las firmas hasta esta fecha, de la Convención sobre el Instituto
 Interamericano de Ciencias Agrícolas, depositado en la Unión Panamericana
-y abierta a la firma de las Repúblicas Panamericanas el 15 de enero de
-1944.
+y abierta a la firma de los Estados Panamericanos el 15 de enero de 1944.
+(Así reformado por el Protocolo de Enmiendas a la presente
+Convención - ARTICULO I - aprobado por el artículo 1º de la Ley Nº 2527
+de 17 de febrero de 1960, que ordenó cambiar el término "República" o
+"Repúblicas", existentes en su texto, por el de "Estado" o "Estados",
+según el caso).
 Washington, D.C., 18 de mayo de 1944.
 (f.) L.S. Rowe, Director General de la Unión Panamericana (Sello.)
 DECRETA:
