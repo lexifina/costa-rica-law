@@ -1,0 +1,1 @@
+Artículo 2°.- La Refinadora Costarricense de Petróleo S.A deberá formalizar contratos con toda persona física o jurídica que desee comprar sus productos directamente en las terminales de la Refinadora en Limón, Turrialba, EL Alto, Puntarenas o en las que establezcan en el futuro.
