@@ -21,3 +21,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 6 | 1997-04-02 | Reglamento 4908 (1997-04-02) |
 | 7 | 1997-04-09 | Reglamento 4909 (1997-04-09) |
 | 8 | 1997-05-07 | Reglamento 4912 (1997-05-07) |
+| 9 | 1997-07-16 | Reglamento 4915 (1997-07-16) |

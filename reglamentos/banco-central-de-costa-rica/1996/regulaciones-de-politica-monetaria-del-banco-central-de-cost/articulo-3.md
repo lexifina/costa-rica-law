@@ -4,7 +4,7 @@ CAPITULO I
 REQUISITOS DE ENCAJE
 A. Tasas de encaje mínimo legal
 1. Los depósitos y obligaciones en moneda nacional de los entes financieros que a la entrada en vigencia de la Ley 7558, del 27 de noviembre, 1995, se encontraban sujetos al requisito de encaje mínimo legal, estarán sometidos a los siguientes requerimientos de encaje:
-(*)a) Para los depósitos en cuenta corriente, sean los exigibles a simple requerimiento del depositante o acreedor, mediante la libranza de cheques; los depósitos constituidos por medio del sistema de ahorro por libreta; los depósitos y obligaciones a plazo vencido; los pasivos originados en las operaciones de venta de títulos con pacto de retrocompra a la vista; las obligaciones por cheques presentados al cobro por otras entidades mediante la Cámara de Compensación, así como otras obligaciones de exigibilidad inmediata, aplican las siguientes tasas:
+a) Para los depósitos en cuenta corriente, sean los exigibles a simple requerimiento del depositante o acreedor, mediante la libranza de cheques; los depósitos constituidos por medio del sistema de ahorro por libreta; los depósitos y obligaciones a plazo vencido; los pasivos originados en las operaciones de venta de títulos con pacto de retrocompra a la vista; las obligaciones por cheques presentados al cobro por otras entidades mediante la Cámara de Compensación, así como otras obligaciones de exigibilidad inmediata, aplican las siguientes tasas:
 Fecha | Tasa
 Hasta el 28 de febrero, 1997 | 25%
 a partir del: |
@@ -18,7 +18,7 @@ a partir del: |
 1° de enero, 1998 | 17%
 1° de febrero, 1998 | 16%
 1° de mareo, 1998 | 15%
-(*)(Así reformado el inciso anterior en sesión N° 4912 del 7 de mayo de 1997)
+(Así reformado el inciso anterior en sesión N° 4912 del 7 de mayo de 1997)
 b) Para los depósitos y obligaciones exigibles a plazos menores de ciento ochenta días, así como los pasivos originados en las operaciones de venta de títulos con pacto de retrocompra a tasas:
 Fecha | Tasa
 Hasta el 30 de junio, 1997 a partir del: | 17%
@@ -33,7 +33,7 @@ Hasta el 28 de febrero, 1997 a partir del: | 10%
 1° de junio, 1997 | 14%
 1° de julio, 1997 | 15%
 2. Los depósitos y obligaciones en moneda extranjera de los entes financieros que a la entrada en vigencia de la Ley 7558, del 27 de noviembre, 1995, se encontraban sujetos al requisito de encaje mínimo legal, estarán sometidos a los siguientes requerimientos de encaje:
-(*)a) Para los depósitos y obligaciones exigibles a la vista, a plazo vencido, a plazos no mayores de treinta días y para las obligaciones por cheques presentados al cobro por otras entidades mediante la Cámara de Compensación, aplican las siguientes tasas:
+a) Para los depósitos y obligaciones exigibles a la vista, a plazo vencido, a plazos no mayores de treinta días y para las obligaciones por cheques presentados al cobro por otras entidades mediante la Cámara de Compensación, aplican las siguientes tasas:
 Fecha | Tasa
 Hasta el 28 de febrero, 1997 | 25%
 a partir del: |
@@ -47,7 +47,7 @@ a partir del: |
 1° de enero, 1998 | 17%
 1° de febrero, 1998 | 16%
 1° de marzo, 1998 | 15%
-(*)(Así reformado el inciso anterior en sesión N° 4912 del 7 de mayo de 1997)
+(Así reformado el inciso anterior en sesión N° 4912 del 7 de mayo de 1997)
 b) Para los depósitos y obligaciones exigibles a plazos iguales o mayores de treinta días de los intermediarios financieros, aplica una tasa del 5%.
 3. Los intermediarios financieros no bancarios, que a la fecha de entrada en vigencia de la Ley 7558 del 27 de noviembre, 1995, no estaban sujetos al requisito de encaje mínimo legal, pero que en virtud de la citada ley deben estarlo, estarán obligados a cumplir con los requerimientos de encaje que se indican a continuación.
 a) El 15% de todos los depósitos y obligaciones en moneda nacional. Este porcentaje aplica sobre cualesquiera otra operación de captación de recursos financieros que realicen los intermediarios financieros, cuyas características sean similares a las de los depósitos bancarios.
@@ -142,8 +142,8 @@ DE ENCAJE MÍNIMO LEGAL
 A. Se entenderá por “insuficiencia en el encaje mínimo legal”, sea en moneda nacional o extranjera, aquella situación en la que el estado de encaje de un intermediario financiero muestre deficiencia en el promedio quincenal de depósitos que por concepto de encaje mínimo legal debe mantener en el Banco Central de Costa Rica.
 B. Cuando un ente financiero mostrare insuficiencia en el encaje mínimo legal, la Superintendencia General de Entidades Financieras lo informará inmediatamente, por escrito, a la Gerencia del Banco Central de Costa Rica o a quien ésta designe, y enviará una nota de apercibimiento al Gerente de la entidad infractora. El Director de la División Financiera del Banco Central de Costa Rica, o quien éste designe, procederá a debitar en todos los casos la cuenta corriente de esa entidad, por una suma resultante de aplicar al monto del desencaje en la quincena de la insuficiencia en el encaje, una tasa de interés equivalente a la tasa cobrada en las operaciones de crédito de redescuento, por el uso realizado de la suma de dinero a la que ascendió su insuficiencia.
 (Así reformado el literal anterior en sesión N° 4908 del 2 de abril de 1997)
-C. Si el intermediario financiero incumple con el requisito de encaje dos veces o más dentro de un período de tres meses, la Junta Directiva, previo debido proceso realizado por la Superintendencia General de Entidades Financieras y con base en el informe final que esa Superintendencia remita del caso concreto, aplicará las suspensiones a que hace referencia el Artículo 67 de la Ley Orgánica del Banco Central de Costa Rica, en los términos, plazo y condiciones que la misma Junta Directiva establezca.
-(Así reformado el literal anterior en sesión N° 4908 del 2 de abril de 1997)
-“D. Cuando un intermediario financiero, no envíe dentro de los plazos estipulados el estado sobre la situación de encaje al que se refiere el literal C del Capítulo II, dicha entidad financiera será sancionado, de acuerdo con lo establecido en el Artículo 155, literal a) de la Ley Orgánica del Banco Central de Costa Rica.
-(Así reformado el literal anterior en sesión N° 4908 del 2 de abril de 1997)
+C. La nota de aviso prescrita en el artículo 67 de la Ley 7558 y remitida por la Superintendencia General de Entidades Financieras a la Junta Directiva del Banco Central de Costa Rica será acompañada por los atestados técnicos emanados del sistema informatizado encargado de mostrar las deficiencias quincenales en los encajes mínimos legales, cualquier nota de descargo enviada por la entidad financiera que demuestre el desencaje y el criterio técnico de la SUGEF relacionado con lo manifestado por la entidad.
+(Así reformado el literal anterior en sesión N° 4915 del 16 de julio de 1997)
+D. En el caso que la deficiencia persistiere dos o más veces dentro de un período de tres meses calendario, la Superintendencia General de Entidades Financieras enviará la nota de estilo con los anexos previstos en el literal anterior. La Junta Directiva del Banco Central de Costa Rica podrá imponer la sanción prevista en el numeral 67 in fine, atendiendo principios elementales de justicia, lógica y conveniencia.
+(Así reformado el literal anterior en sesión N° 4915 del 16 de julio de 1997)
 (*) (Así reformado esteTítulo III en sesión N° 4904 del 22 de enero de 1997)
