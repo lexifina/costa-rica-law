@@ -1,0 +1,1 @@
+Artículo 34.—Requisito indispensable para autorizar la cesión total o parcial del contrato será que el cedente se encuentre al día en el cumplimiento de sus obligaciones económicas respecto al Instituto.

@@ -1,0 +1,1 @@
+Artículo 6°—El plazo de todo arrendamiento que otorgue el Instituto, será hasta por un máximo de cinco años, prorrogable por un período igual a voluntad de las partes. Lo anterior sin perjuicio de la eventual existencia de casos calificados, a los cuales la Junta Directiva del Instituto de Desarrollo Agrario, podrá excepcionar otorgándoles mayor o menor plazo de vigencia.
