@@ -1,0 +1,1 @@
+Art. 2° Se permite al reo Francisco Emigdio Aqueche volver al territorio de Costa Rica, á condicion de residir en Puntarenas, de cuyo punto no sin prévio permiso del Gobierno.- -Dado en la ciudad de San José, á los veintisiete días del mes de noviembre de mil ochocientos cuarenta y ocho. -José Maria Castro.-El Ministro de relaciones y Gobernacion.-Joaquin Bernardo Calvo."
