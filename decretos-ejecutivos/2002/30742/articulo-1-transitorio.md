@@ -1,0 +1,1 @@
+Transitorio único.—Se concede un plazo de tres meses a partir de la publicación del presente Decreto, para que las personas interesadas en la extracción y comercialización de estos productos, cumplan con todos los requisitos establecidos.
