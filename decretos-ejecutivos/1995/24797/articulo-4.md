@@ -1,2 +1,2 @@
-Artículo 4°—No se podrá restringir la comercialización e internamiento al país de cebolla seca que no cumpla con las características relativas a calidad y o calibre, salvo en lo relativo a la podredumbre.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 2° del Decreto Ejecutivo N° 25507 de 18 de setiembre de 1996, publicado en La Gaceta N° 194 de 10 de octubre de 1996.)
+Artículo 4°—En el caso de la podredumbre no se permitirá el internamiento al país o la comercialización en el mercado local de cebolla seca en estado de pudrición o que presente indicios de deterioro biológico o fisiológico en ese sentido. Las infracciones a los límites contenidos en los numerales 5.1.1 (daño por insectos) y 5.1.2 (daño por hongos, se admitirán en la medida en que no contravengan lo dispuesto en materia de pudrición."
+(Así ADICIONADO por el artículo 2° del Decreto Ejecutivo N° 25674 de 16 de octubre de 1996, publicado en La Gaceta N° 247 de 24 de diciembre de 1996.)

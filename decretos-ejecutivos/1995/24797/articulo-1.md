@@ -3,16 +3,18 @@ EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO,
 En el uso de las potestades que les confiere el artículo 140, de la Constitución Política en sus incisos 3) y 18) artículo 28.2.b de la Ley General de la Administración Pública, la Ley de Normas Industriales N° 1698 del 26 de noviembre de 1953 y en la Ley del Sistema Internacional de Medidas N° 5292 del 9 de agosto de 1973.
 DECRETAN
-Artículo 1°—Aprobar la siguiente norma:
-NCR 69:1995. Cebolla seca.
-1 Objetivo y ámbito de aplicación
-Este reglamento técnico tiene por objeto definir las características de la cebolla seca para consumo local, tanto nacional como importada, después de su acondicionamiento y empacado para ser suministradas al consumidor.
-2 Definiciones
-2.1 cebolla seca: es el bulbo de las variedades (cultivares), cultivadas de Allium cepa (inciso arancelario 0703.10.00 del Sistema Arancelario Centroamericano) convenientemente secado, caracterizado por presentar las cascaras externas secas y quebradizas (que le proporcionan protección) y el follaje seco, si lo presenta.
-2.2 brotes: crecimientos de la yema en los bulbos posteriores al secado.
-2.3 bulbo curado: es aquel bulbo seco que se ha expuesto a una temperatura elevada durante un corto tiempo, con el fin de ayudar a la formación del color de la cubierta externa.
-2.4 defecto acumulado: suma de todos los defectos de calidad.
+Artículo 1°—Aprobar el siguiente Reglamento Técnico para la Comercialización de la Cebolla Seca.
+RTCR 69:1995. CEBOLLA SECA
+1°—Objetivo y ámbito de aplicación
+Este reglamento técnico tiene por objeto definir las características de la cebolla seca para consumo local, tanto nacional como importada, después de su acondicionamiento y empacado para ser suministrados al consumidor.
+2°—Definiciones
+2.1) Cebolla seca: es el bulbo de las variedades (cultivares). cultivadas de Allium cepa (inciso arancelario 0703.10.00 del Sistema Arancelario Centroamericano) convenientemente secado, caracterizado por presentar las cascaras externas secas y quebradizas (que le proporcionan protección) y el follaje seco, si
+lo presenta.
+2.2) Brotes: crecimientos de la yema en los bulbos posteriores al secado.
+2.3) Bulbo curado: es aquel bulbo seco que se ha expuesto a una temperatura elevada durante un corto tiempo, con el fin de ayudar a la formación del color de la cubierta externa.
+2.4) Defecto acumulado: suma de todos los defectos de calidad.
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 25507 de 18 de setiembre de 1996, publicado en La Gaceta N° 194 de 10 de octubre de 1996.)
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 25674 de 16 de octubre de 1996, publicado en La Gaceta N° 247 de 24 de diciembre de 1996.)
 3.—Disposiciones relativas a la calidad
 3.1—Características mínimas. En todas las categorías, sin perjuicio de las disposiciones especiales para cada categoría y las tolerancias admitidas, los bulbos deben ser
 - consistentes;

@@ -15,3 +15,4 @@ NCR 69:1995. Cebolla Seca.
 | --- | --- | --- |
 | 1 | 1996-02-01 | la propia norma |
 | 2 | 1996-09-18 | Decreto Ejecutivo 25507 (1996-09-18) |
+| 3 | 1996-10-16 | Decreto Ejecutivo 25674 (1996-10-16) |
