@@ -1,0 +1,2 @@
+Artículo 11.—Denuncia penal. Cuando el uso de los sellos, emblemas o denominación SINAES se realice por parte de universidades ajenas al sistema o sea aplicada en forma directa a carreras o programas no acreditados, el Consejo Nacional de Acreditación planteará la denuncia por el delito de falsificación de señas y marcas, previsto y sancionado por el Código Penal, sin perjuicio de cualquier otro delito que haya sido cometido con esa acción.
+Aprobado en artículo tercero de la sesión número 244 celebrada por el Consejo del SINAES el 9 de marzo de 2004.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+Procedimientos y sanciones
+Artículo 8°—Denuncias por usos indebidos o engañosos. Dado el carácter público que la acreditación posee, cualquier ciudadano podrá denunciar el uso indebido de los sellos, emblemas y denominación del SINAES. Bastará para ello que el aviso correspondiente se haga llegar a la Dirección del SINAES por cualquier medio que permita comprobar la existencia e identidad del remitente y señale domicilio exacto donde pueda ser notificado. Si no se acompañan ejemplares, publicaciones o papelería en la que se cometió la infracción que se denuncia, deberá darse la información necesaria para individualizarla.

@@ -1,0 +1,6 @@
+Artículo 6°—En documentos, papelería y publicidad. Las universidades que tengan carreras o programas acreditados podrán utilizar el sello SINAES o la referencia a la condición de acreditación en documentos, impresos publicitarios, folletos, anuncios, papelería, emblemas, cintas adheribles, en páginas Web y en cualquier otro objeto con propósitos de publicidad bajo las siguientes condiciones:
+a. Se deberá indicar claramente cuál o cuáles carreras o programas están acreditados, la sede a que pertenecen y los años de inicio y de conclusión de su vigencia, según lo establezca el certificado correspondiente.
+b. En la publicación de listados deberán separarse las carreras o programas acreditados de forma tal que no puedan interpretarse como incluidas o referidas directa o indirectamente otras carreras o programas.
+c. En las cintas adheribles a los vehículos y emblemas, siempre que se identifique expresamente el nombre de la carrera o programa acreditado.
+d. La publicidad, sea cual fuere el medio u objeto escogido, deberá respetar los principios de decoro, veracidad y de la sana y leal competencia entre universidades.
+e. Todo acto publicitario deberá observar además las normas contenidas en la Ley Nº 7472 de 20 de diciembre de 1994, Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor y sus reformas.

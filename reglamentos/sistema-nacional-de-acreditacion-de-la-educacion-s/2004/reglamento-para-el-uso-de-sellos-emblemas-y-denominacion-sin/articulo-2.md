@@ -1,0 +1,2 @@
+Artículo 2°—Propiedad de sellos, emblemas y denominación
+SINAES. Los diferentes sellos y emblemas que sean adoptados por el SINAES y su propia denominación poseen carácter oficial y son de su exclusiva propiedad intelectual, por lo que su uso por terceros está expresamente prohibido. El acto de acreditación conferirá por sí a la universidad titular de la carrera o programa respectivo una licencia de uso temporal sobre la que nunca podrá reclamar derechos mayores a los que este reglamento le conceda.
