@@ -1,0 +1,4 @@
+ARTICULO 23.- POTESTAD REGLAMENTARIA
+La Contraloría General de la República tendrá la potestad exclusiva
+para dictar los reglamentos autónomos de servicio y de organización, en
+las materias de su competencia constitucional y legal.

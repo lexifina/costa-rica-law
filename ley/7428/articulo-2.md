@@ -1,0 +1,9 @@
+ARTICULO 2.- GARANTIA DE INDEPENDENCIA
+En el ejercicio de sus potestades, la Contraloría General de la
+República goza de absoluta independencia funcional y administrativa,
+respecto de cualquier Poder, ente u órgano público. Sus decisiones
+solamente se encuentran sometidas a la Constitución Política, a tratados
+o convenios internacionales y a la ley.
+El Contralor General de la República y el Subcontralor General de la
+República responden ante la Asamblea Legislativa por el cumplimiento de
+sus funciones.

@@ -1,0 +1,15 @@
+ARTICULO 30.- COMPETENCIA Y VALIDEZ DE SUS ACTOS
+Las competencias de la Contraloría General de la República no se
+extinguirán por el transcurso del plazo legalmente señalado para
+ejercerlas; en consecuencia, los actos extemporáneos que emita, en
+cumplimiento de su función de fiscalización superior, no adolecerán de
+nulidad por esa sola circunstancia, sin perjuicio de las responsabilidades
+disciplinarias de orden interno, ni de las propias de los sujetos pasivos
+y de sus servidores.
+Sin embargo, en el caso de que la Contraloría no resuelva o no se
+pronuncie dentro del plazo legal o reglamentariamente establecido, en
+relación con los recursos de apelación en licitaciones públicas, el acto
+de adjudicación se tendrá como válido y eficaz. En los casos de
+autorizaciones, refrendo de contratos y aprobación de modificaciones
+presupuestarias, se entenderá el silencio positivo y la administración
+podrá ejecutar válidamente el acto respectivo.
