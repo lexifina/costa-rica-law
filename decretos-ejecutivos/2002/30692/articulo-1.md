@@ -1,0 +1,12 @@
+N° 30692-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades conferidas en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; los artículos 26 y 27 de la Ley General de la Administración Pública y los artículos, 21, 23, 24 y 25 de la Ley N° 8131 y su Reglamento, así como la Ley N° 7800 del 29 de mayo de 1998.
+Considerando:
+1º—Que la Ley Orgánica N° 7800, faculta al Instituto Costarricense del Deporte y la Recreación (ICODER), para apoyar y estimular las acciones de organización, promoción y práctica individual y en grupo del deporte y la recreación, realizadas por las entidades deportivas y recreativas gubernamentales y no gubernamentales.
+2º—Que dicha Ley establece que el ICODER estimulará el desarrollo integral de todos los sectores de la población por medio del deporte y la recreación. Asimismo, deberá fomentar e incentivar el deporte en el ámbito nacional e internacional, razón por la cual, requiere incorporar recursos este año para los Juegos Deportivos Centroamericanos, para el Proyecto Complejo Deportivo Recreativo Comunal a realizarse en la provincia de Limón y para iniciar las obras de los Juegos Deportivos Nacionales Esparza 2003.
+3º—Que los Juegos Deportivos Nacionales y Centroamericanos, así como el Proyecto indicado son prioridad para el Gobierno de la República ya que exaltan los valores sociales y culturales de la ciudadanía costarricense mediante la actividad deportiva.
+4º—Que mediante Decreto Ejecutivo N° 29511-H y sus reformas, publicado en La Gaceta N° 98 del 23 de mayo del 2001, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2002, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo los límites de gasto presupuestario y de gasto efectivo para el año 2002, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+5º—Que por lo anterior, resulta necesario modificar los límites de gasto fijados para el ICODER en el Decreto citado. Por tanto,
+DECRETAN:
+Artículo 1º—Modifícase para el Instituto Costarricense del Deporte y la Recreación los límites de gasto presupuestario y de gasto efectivo para el año 2002 establecidos en el artículo 1° del Decreto Ejecutivo N° 29511-H y sus reformas, publicado en La Gaceta N° 98 del 23 de mayo del 2001, fijándolos en ¢ 2.217,30 millones.
