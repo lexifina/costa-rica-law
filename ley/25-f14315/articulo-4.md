@@ -1,0 +1,1 @@
+Art. 4-Las oficinas públicas se mantendrán cerradas desde esta fecha hasta el día de la inhumación inclusive, con excepción de las de los Gobernadores, de la policía, Correos, Telégrafo, Ferrocarril, Receptorías y Fábrica Nacional.
