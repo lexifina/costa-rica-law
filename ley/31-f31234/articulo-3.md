@@ -1,0 +1,1 @@
+Articulo 3°-Las autoridades respectivas negarán el permiso correspondiente para el establecimiento de comisariatos en las fincas de bananos y cancelarán los permisos otorgados, cuando los dueños de dichos comisariatos no se comprometan a vender, o no venden las mercaderías, a los precios corrientes de las mismas en los centros de población próximos, y con su pesa exacta.
