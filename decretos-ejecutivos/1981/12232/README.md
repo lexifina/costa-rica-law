@@ -15,3 +15,4 @@ Reforma Reserva Indígena Guaymí de Coto Brus
 | --- | --- | --- |
 | 1 | 1981-02-05 | la propia norma |
 | 2 | 1981-06-26 | Decreto Ejecutivo 12751 (1981-06-26) |
+| 3 | 2001-03-22 | Decreto Ejecutivo 29449 (2001-03-22) |

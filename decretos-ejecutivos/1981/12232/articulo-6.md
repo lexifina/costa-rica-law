@@ -1,1 +1,2 @@
-Artículo 6°—La zona forestal de la fila "Las Cruces", tendrá un estatuto especial de "Bosque Protector"; será utilizada como zona de reserva ,de fauna y de protección de cuencas hidrográficas. Se prohibe arrasar los bosques en esta área.
+Artículo 6°—La zona forestal de la Fila Cruces tendrá un Estatuto especial de zona protectora, tanto en sentido norte como sur y será únicamente utilizada como zona de Flora y Fauna y protección de Cuencas Hidrográfica, quedando prohibida la deforestación y caza en la mismo y no se dará lugar a ningún tipo de aprovechamiento forestal o cualquier otra forma de explotación del bosque, en esta zona.
+(Así reformado mediante el artículo 5° del decreto ejecutivo N° 29449 del 22 de marzo del 2001).
