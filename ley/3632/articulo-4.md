@@ -1,0 +1,7 @@
+Artículo 4º.- Para el empleo del dinero percibido, la Junta
+Directiva elaborará, con el asesoramiento del Departamento de
+Arquitectura Escolar, un plan de trabajo a seguir, y con base en él un
+presupuesto trimestral que someterá a la aprobación y fiscalización de
+la Contraloría General de la República. Este presupuesto no comprenderá
+partidas que no estén dedicadas exclusivamente a la finalidad que esta
+ley persigue.
