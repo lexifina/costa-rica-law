@@ -1,0 +1,1 @@
+Artículo 9°—En toda construcción de acera, cerca y tapia, el propietario del inmueble o poseedor por cualquier titulo, deberá acatar las directrices de los funcionarios municipales en resguardo de la salubridad, seguridad y ornato.

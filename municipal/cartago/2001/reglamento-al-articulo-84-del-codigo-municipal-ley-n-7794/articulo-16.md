@@ -1,0 +1,1 @@
+Artículo 16.—En las aceras que construyan los propietarios y poseedores de bienes inmuebles por cualquier título, los cortes para la entrada de vehículos no deberán entorpecer, ni hacer molesto el paso de los peatones.

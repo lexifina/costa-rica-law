@@ -1,0 +1,1 @@
+Artículo 7°—Para construcción de toda obra de entubamiento de aguas pluviales, a orilla de vías públicas, o construcción de entradas, el propietario o poseedor de inmueble por cualquier titulo, deberá gestionar y obtener previamente el permiso municipal respectivo, debiendo acatar los requerimientos establecidos en el permiso municipal.

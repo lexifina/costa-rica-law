@@ -1,0 +1,1 @@
+Artículo 11.—El propietario será responsable de colocar banderas y letreros durante el día y señales luminosas, claramente visibles durante !a noche a una distancia no menos de quince metros de los obstáculos, de forma que prevengan anticipadamente al que transite por la vía.
