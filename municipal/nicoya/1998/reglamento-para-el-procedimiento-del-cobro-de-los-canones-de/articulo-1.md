@@ -1,0 +1,3 @@
+CAPITULO I
+Disposiciones generales
+Artículo 1°—El presente reglamento tiene por objetivo establecer las normas que regularán el cobro de cánones de las cuentas vencidas y aplicando el artículo 51 del Reglamento a la Ley de la Zona Marítimo Terrestre que indica que el canon debe ser cancelado por anualidades adelantadas y regirá a partir de la fecha en que se firme la resolución que apruebe la solicitud. En caso de mora, el derecho de la Municipalidad para hacer efectivas las sumas que se le adeuden prescribirá en el plazo de cinco años, conforme lo establece el artículo 86 del Código Municipal.
