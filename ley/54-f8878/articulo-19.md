@@ -1,0 +1,2 @@
+Art 19°.- Todos los peones y trabajadores de la cartera estarán sujetos estrictamente a las órdenes de los Superintendentes, que en cualquier caso preciso acudirán a los Gobernadores y Alcaldes inmediatos que quedan obligados a auxiliarlos en cuanto demanden, y a coadyuvar a la fiel observancias de este Reglamento.
+Dado en la ciudad de San José, a los veinte días del mes de noviembre de mil ochocientos cincuenta y cuatro.

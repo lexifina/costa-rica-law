@@ -1,0 +1,1 @@
+Art 16°.- Cuando se esté recomponiendo alguna parte de la calzada, se pondrán señales en los puntos por donde no se deba pasar, cuidando los camineros de que haya en todo caso una parte transitable para que no se entorpezcan nunca las comunicaciones.

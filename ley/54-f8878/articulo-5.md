@@ -1,0 +1,1 @@
+Art 5°.- Ninguno podrá construir nuevas acequias zanjas acueductos, tapias ni cercas, sin notificarlo antes a los Superintendentes para que el Ingeniero general rectifique la líneas y disponga el orden y construcción que deben tener, para no perjudicar la vía pública y contribuir a su mayor regularidad.

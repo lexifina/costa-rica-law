@@ -1,0 +1,1 @@
+Art 14°.- En las cuestas demasiado larga se construirán descansaderos para las paradas momentáneas, para que, colocándose siempre a su derecha respectiva los que suban o bajen, no obstruyan el camino generalmente angosto de las montañas.

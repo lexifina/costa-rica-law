@@ -1,0 +1,1 @@
+Art 12°.- Marcharán inclinándose siempre al centro de su derecha según el rumbo que lleven, procurando de su derecha según el rumbo que lleven, procurando no pasar sobre las cadenas del medio ni de los lados, para evitar derrumbes, topes y entorpecimientos
