@@ -1,0 +1,1 @@
+Artículo 6°.- Cuando las solicitudes de crédito hechas a otras instituciones públicas requieren de garantía del Fondo Nacional, deberán contar también de previo con el aval aprobado por la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal.
