@@ -1,0 +1,1 @@
+Artículo 25.- Para combinar y determinar sobre datos exactos y aproximados las mejoras y reformas que reclama el interés público en orden a lo político, militar y de hacienda, se exigirá a los respectivos funcionarios los datos y conocimientos que se crean necesarios.

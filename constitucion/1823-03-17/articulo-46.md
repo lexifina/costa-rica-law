@@ -1,0 +1,1 @@
+Artículo 46.- En el caso de que la Diputación infrinja alguno de los artículos de este Estatuto o abuse de sus facultades, cualquier individuo podrá acusarla ante el alcalde constitucional de su vecindario, quien examinará a los testigos exigiendo de ellos sigilo, que guardarán el alcalde y secretario del ayuntamiento que hayan instruido el sumario.

@@ -1,0 +1,1 @@
+Artículo 47.- El alcalde y secretario compulsarán testimonio al actor, si lo pidiere, y entregarán el original cerrado y sellado al jefe político, con la advertencia de que lo ponga en manos del actual presidente del Congreso.
