@@ -1,4 +1,6 @@
+(Derogado)
 N° 7073
+(Esta norma fue derogada por el artículo 20 de la ley N° 7248 del 26 de julio de 1991, “Impuestos Municipales de Cartago”)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1°-Adiciónase el siguiente texto, como artículo 18, a la Tarifa de Impuestos Municipales del Cantón de Cartago, ley N° 6342 del 30 de mayo de 1979:
