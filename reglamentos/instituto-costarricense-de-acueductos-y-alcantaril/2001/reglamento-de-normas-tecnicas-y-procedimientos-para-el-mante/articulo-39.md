@@ -1,0 +1,1 @@
+Articulo 39.—Previa notificación a los poseedores, usuarios, administradores, propietarios o sus representares, los encargados del acueducto podrán ingresar a las fincas con el fin de realizar estudios, investigaciones o mejoras conforme lo dispone el inciso i) del artículo 5° de la Ley Constitutiva de AYA.

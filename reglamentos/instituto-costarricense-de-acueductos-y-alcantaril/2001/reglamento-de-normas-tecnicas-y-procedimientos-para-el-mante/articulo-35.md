@@ -1,0 +1,1 @@
+Artículo 35.—En lo posible veinte centímetros después de la tubería enterrada, se instalará una cinta plástica color celeste a efectos de que cuando se excave para realizar reparaciones, se ubique la tubería sin producirle averías.

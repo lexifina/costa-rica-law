@@ -1,0 +1,1 @@
+Articulo 56.—Los sistemas de entrada y mezcladores. Los sistemas de entrada a las Plantas de Tratamiento consisten en válvulas o compuertas de admisión, vertedero y unidad de aforo. Los mezcladores son sistemas utilizados para producir la mezcla del coagulante con el agua.

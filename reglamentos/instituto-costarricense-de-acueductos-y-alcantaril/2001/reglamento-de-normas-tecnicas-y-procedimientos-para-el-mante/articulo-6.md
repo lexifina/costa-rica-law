@@ -1,0 +1,1 @@
+Articulo 6°—Todos los costos de regulación, inspección, asesorías, supervisión, inscripción de caudales, y cuales quiera otros, deberán ser integrados por el ente administrador como parte de los costos de inversión del sistema, y en su caso deberá pagarlos al quien corresponda por la prestación de tal servicio.

@@ -1,0 +1,1 @@
+Artículo 33.—Con el fin de garantizar la clara identificación de las líneas conductoras o distribuidoras de agua potable, entre fincas, se instalaran mojones color celeste, al menos cada cincuenta metros con el fin de identificarlas claramente.

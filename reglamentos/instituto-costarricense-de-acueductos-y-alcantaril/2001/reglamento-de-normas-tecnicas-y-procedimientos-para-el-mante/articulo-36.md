@@ -1,0 +1,1 @@
+Articulo 36.—En las zonas protectoras de las tomas, se sembrarán especies arbóreas autóctonas, según recomendación del MAG y MINAE, las tomas deberán estar cercadas a electos de impedir que los ganados u otros animales tenga acceso a la captación.

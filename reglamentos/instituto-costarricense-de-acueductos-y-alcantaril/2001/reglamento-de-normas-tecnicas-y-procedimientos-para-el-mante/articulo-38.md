@@ -1,0 +1,1 @@
+Articulo 38.—Todas las actividades agrarias, mineras, construcciones de caminos y otras obras deberán garantizar el cumplimiento de la ley de uso y manejo del suelo, a efectos de evitar las erosiones y sedimentaciones en los sitios de captación de las aguas.

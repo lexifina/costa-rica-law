@@ -1,0 +1,1 @@
+Artículo 10.—Determinada técnicamente la necesidad de utilizar el agua para las poblaciones, el AYA remitirá un informe al MINAE, a efectos de que registre los caudales en el Registro Nacional de Aguas, y no los tenga disponibles para otros usos, reservándola para ese fin público.

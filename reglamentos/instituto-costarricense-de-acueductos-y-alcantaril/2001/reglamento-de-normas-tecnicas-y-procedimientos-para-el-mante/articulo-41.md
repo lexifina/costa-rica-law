@@ -1,0 +1,3 @@
+Artículo 41.—Tomas. Las tomas son estructuras de concreto diseñadas para captar el recurso hídrico, generalmente se pueden encontrar dos tipos: tomas de fondo y tomas laterales.
+1 - Las tomas de fondo son estructuras que se extienden transversalmente en una sección del río, generalmente consisten en represas con un canal recolector en su parte superior, el cual tiene una rejilla de metal dimensionada apropiadamente para el paso del agua.
+2- Las tomas laterales consisten en una caja de captación ubicada en la margen del río, con rejilla de metal colocada verticalmente. En algunas ocasiones las tomas laterales cuentan con una estructura dentro del cauce del río que permite direccionar el flujo para su captación.

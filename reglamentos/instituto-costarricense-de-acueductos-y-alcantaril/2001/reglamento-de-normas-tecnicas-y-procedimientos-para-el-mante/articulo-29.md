@@ -1,0 +1,2 @@
+Artículo 29. —La construcción de pozos privados y la utilización de sistemas privados de abastecimiento de agua para el uso y consumo humano en las áreas del país donde exista acueducto público en funciones deberá ser autorizado por el Ministerio de Salud y AYA.
+Los pozos existentes, podrán ser clausurados, sellados y mantenidos en reserva, cuando así lo determine el Ministerio de Salud en común acuerdo con AYA de conformidad con el artículo 270 de la Ley General de Salud Pública.

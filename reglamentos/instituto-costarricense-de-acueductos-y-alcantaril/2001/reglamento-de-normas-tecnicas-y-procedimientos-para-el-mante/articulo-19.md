@@ -1,0 +1,1 @@
+Artículo 19.—El Dpto de Aguas del MINAE deberá mantener actualizado el Registro Nacional de dotaciones de agua, en el cual registrará la ubicación geográfica de la fuente, nombre de la fuente, caudales de la fuente, caudales dados en concesión, permiso o asignación y sus plazos, para lo cual cada ente Administrador le cancelará los costos administrativos de registro.

@@ -1,0 +1,1 @@
+Artículo 14.—Se entiende por agua potable para efectos legales y reglamentarios, la que naturaleza o con los tratamientos debidos, reúne las características físicas, químicas y biológicas que la hacen apta para el consumo humano de acuerdo con lo establecido en el Decreto Ejecutivo N° 25991-S publicado en La Gacela N° 100 del 27 de mayo de 1997.

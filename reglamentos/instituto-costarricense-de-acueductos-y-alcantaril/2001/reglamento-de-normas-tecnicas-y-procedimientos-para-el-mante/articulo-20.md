@@ -1,0 +1,1 @@
+Artículo 20.—El MINAE por medio del Departamento de Aguas registrara las Asignaciones de las aguas destinadas a las poblaciones, que utilicen AYA, las Municipalidades, Empresa de Servicios Públicos de Heredia y otras organizaciones comunales administradoras de los acueductos y alcantarillados comunales.

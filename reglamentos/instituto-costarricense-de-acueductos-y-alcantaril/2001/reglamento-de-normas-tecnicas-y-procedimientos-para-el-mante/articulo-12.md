@@ -1,0 +1,2 @@
+Artículo 12. -Con excepción de las aguas destinadas al servicio de las poblaciones, todo usuario de las aguas, indistintamente de su uso requiere de concesión otorgada por el MINAE por medio del Departamento de Aguas.
+Cuando se trate de explotación de aguas subterráneas, de previo al otorgamiento de la concesión el MINAE, ordenará el estudio hidrogeológicos correspondiente, a efectos de determinar que no se irrogan electos negativos al aprovechamiento para las poblaciones, tanto en calidad como en cantidad.

@@ -1,0 +1,1 @@
+Artículo 34.—Con el fin de garantizar la realización de investigaciones, estudios, mejoras o actividades de mantenimiento, se inscribirán las servidumbres en el Registro nacional con una clara referencia al plano catastrado de la finca o en su caso de la respectiva hoja geográfica.

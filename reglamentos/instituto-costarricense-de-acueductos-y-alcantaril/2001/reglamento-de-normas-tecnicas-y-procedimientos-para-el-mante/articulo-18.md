@@ -1,0 +1,1 @@
+Artículo 18.—Si la Gerencia o Junta Directiva de AYA, mantiene, modifica o revoca la decisión de la Unidad Técnica de AYA; se remitirá copia autorizada al Dpto. de Aguas del MINAE., para que continúe o archive según el caso la solicitud de concesión, y se agolará la vía administrativa, para el interesado recurra a las instancias judiciales conforme con la ley.

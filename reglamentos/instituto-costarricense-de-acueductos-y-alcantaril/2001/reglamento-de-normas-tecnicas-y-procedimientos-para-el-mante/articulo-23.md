@@ -1,0 +1,1 @@
+Artículo 23.—Recibida la nota de reserva de aguas, el MINAE, determinará, según el Registro si el agua se encuentra o no disponible y en su caso coordinara con el AYA los periodos y caudales de disponibilidad o los demás trámites previstos en la ley y reglamentos.

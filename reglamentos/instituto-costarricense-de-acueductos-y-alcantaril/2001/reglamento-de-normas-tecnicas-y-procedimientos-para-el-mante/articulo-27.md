@@ -1,0 +1,1 @@
+Artículo 27.—Todo administrador de sistemas de acueductos y/o alcantarillados, debidamente autorizado por AYA. deberá registrar la asignación de las aguas utilizadas o vertidas por su sistema, ante el Departamento de Aguas del MINAE, a efectos de garantizar la confiabilidad del Registro Nacional de Aguas y facilitar el inventario y política Nacional del Sector.

@@ -1,0 +1,1 @@
+Articulo 8°—Únicamente pueden administrar y prestar servicios públicos derivados de los sistemas de Acueductos y Alcantarillados, el AYA, las Municipalidades, la Empresa de Servicios Públicos de Heredia y las Organizaciones comunales constituidas conforme con el Reglamento de Delegación y debidamente autorizadas por AYA.

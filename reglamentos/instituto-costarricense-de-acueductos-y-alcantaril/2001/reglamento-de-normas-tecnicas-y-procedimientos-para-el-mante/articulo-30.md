@@ -1,0 +1,1 @@
+Artículo 30.—Corresponde al Ministerio de Salud, emitir las políticas, directrices, controles y órdenes sanitarias especificas relativas a la calidad y cantidad de los sistemas de acueductos y alcantarillados en todo el país, así como ordenar al AYA que adopte las medidas o intervenga los sistemas que así lo considere necesario.

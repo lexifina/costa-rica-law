@@ -1,0 +1,2 @@
+Artículo 49.—Obras de pre-tratamiento. Dentro de las obras de pre-tratamiento se incluyen desarenadores y sedimentadores primarios, es decir estructuras utilizadas para eliminar partículas discretas de las aguas superficiales captadas y evitar su sedimentación en las líneas de conducción, tanques e instalaciones de tratamiento.
+Estas estructuras consisten básicamente de un tanque, generalmente de forma rectangular, el cual incluye un sistema de entrada, recolección, salida y limpieza.

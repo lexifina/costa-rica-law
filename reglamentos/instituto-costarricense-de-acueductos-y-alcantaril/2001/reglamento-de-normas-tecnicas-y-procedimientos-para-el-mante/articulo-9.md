@@ -1,0 +1,1 @@
+Articulo 9°—Para utilizar aguas superficiales o subterráneas, es necesario que la entidad administradora de los sistemas da acueductos o alcantarillados, proceda a solicitar y justificar técnicamente la Asignación de las aguas.

@@ -1,0 +1,2 @@
+Artículo 31.—Los asociados, miembros Directivos o trabajadores de las Asociaciones Administradoras de los sistemas de Acueductos y/o alcantarillados, que así lo soliciten, al MINAE y al Ministerio de Salud, podrán ser nombrados como Policía o Inspectores de Salud y Ambientales y de Recursos Naturales, con el fin de que velen por el adecuado manejo de la cuenca hidrográfica y la protección de los Recursos Naturales, al tenor de la reglamentación de los COVIRENAS.
+Para tales efectos quedan sometidos a las leyes y reglamentos respectivos.
