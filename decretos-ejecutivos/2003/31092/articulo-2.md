@@ -52,3 +52,5 @@ Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA) | Transfe
 Teatro Nacional de Costa Rica | Transferencias a: Museo de Arte Costarricense. Compañía Nacional de Teatro Transferencia al Centro Nacional de la Música-Unidad Técnica Especializada Orquesta Sinfónica Nacional (Así reformado por el decreto ejecutivo N° 31240 de 16 de junio de 2003)
 La Transferencia del Servicio Nacional de Aguas Subterráneas Riego y Avenamiento, destinada al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria.
 (Así Adicionado por el artículo N° 1 del Decreto Ejecutivo N° 31265 de 23 de junio de 2003.)
+La Transferencia del Instituto Costarricense de Pesca y Acuacultura, destinada al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria.
+(Así AMPLIADO por el artículo N° 1 del Decreto Ejecutivo N° 31511 de 20 de noviembre de 2003, publicado en La Gaceta N° 240 del 12 de diciembre de 2003.)
