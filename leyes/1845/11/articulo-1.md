@@ -1,0 +1,5 @@
+DECRETO XI
+La Camara de Representantes prorroga el período de sus sesiones.
+El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica –Por cuanto las Cámaras han decretado lo siguiente.
+La Asamblea general del Estado libre de Costa Rica, en atención á que aun están pendientes varios asuntos de interés del resorte de la Cámara de Representantes, para cuyo despacho es muy limitado el tiempo que resta del periodo legal, ha venido en decretar y decreta:
+Art. único. Se prorroga el actual periodo de sesiones de la Cámara de Representantes por cinco días mas que permite el artículo 102 de la Constitución. –Comuníquese al Poder Ejecutivo para que lo haga imprimir, circular y publicar. –Dado en la ciudad de San José a los dos días del mes de abril de mil ochocientos cuarenta y cinco. –José Maria Castro, Presidente –Telésforo Peralta, Representante segundo Secretario. –Por Tanto: EJECUTESE. San José, abril dos de mil ochocientos cuarenta y cinco. –Rafael Moya –Al Ministro de gobernación y relaciones.”
