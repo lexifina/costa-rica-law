@@ -1,0 +1,1 @@
+Art. 9°. Un día después de vencido el emplazamiento, sin necesidad de mejorarse el recurso ni de presentarse las partes, el Gobernador ó Juez del Crimen señalará día y hora para la vista, quedando el expediente en la oficina, á la orden de las partes que estén presentes, para su examen, las primeras veinticuatro horas después de la providencia en que señale hora para la vista.

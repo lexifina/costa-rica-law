@@ -1,0 +1,1 @@
+Art. 10. – El día y hora de la vista, se oirá verbalmente á las partes y á los testigos y peritos que estén presentes, y el fallo se dictará dentro de las veinticuatro horas siguientes, el cual causará ejecutoria. La segunda instancia no ocasiona derechos en estos juicios.
