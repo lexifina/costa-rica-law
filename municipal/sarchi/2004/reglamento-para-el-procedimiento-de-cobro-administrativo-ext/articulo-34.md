@@ -1,0 +1,1 @@
+Artículo 34.—El día hábil siguiente al remate el abogado deberá informar por escrito a la sección de gestión de cobro, el resultado del remate, si pasado un lapso de ocho días no cumpliera con lo anterior, la Sección le enviará una nota solicitando el informe, con copia al Concejo Municipal y al Alcalde para que proceda de conformidad.

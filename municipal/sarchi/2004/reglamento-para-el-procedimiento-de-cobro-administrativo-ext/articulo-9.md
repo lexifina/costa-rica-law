@@ -1,0 +1,1 @@
+Artículo 9º—A fin de que haya la mayor equidad posible, la sección de gestión de cobro hará la distribución de las cuentas que se asignan a cobro judicial, clasificando las mismas alfabéticamente por apellido, no se tomarán en cuenta aquellos abogados que se encuentren suspendidos por incumplimiento de las disposiciones de este Reglamento.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+Organización y funcionamiento de la Oficina de Cobro
+Artículo 4º—La atribución y obligación de la Sección de Gestión de Cobro es crear e implementar los mecanismos y controles necesarios para hacer efectivo el cobro y correspondiente pago de las cuentas morosas, tanto administrativo como extrajudicial y judicial. Serán sujeto de cobro administrativo las obligaciones que se encuentren vencidas con la Municipalidad. Para el trámite extrajudicial solo aplicarán las cuentas que tengan más de tres trimestres de vencimiento y para el trámite de cobro judicial los cuentas que tengan más de cuatro trimestres de vencimiento.

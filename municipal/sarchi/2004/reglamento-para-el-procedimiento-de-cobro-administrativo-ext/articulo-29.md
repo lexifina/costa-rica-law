@@ -1,0 +1,1 @@
+Artículo 29.—Los arreglos de pago se harán con deudas superiores a los diez mil colones sin céntimos. En cuentas inferiores a ese monto no se autorizan los arreglos de pago. Sólo se dará plazo para su cancelación.
