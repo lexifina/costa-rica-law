@@ -1,0 +1,1 @@
+Artículo 26.-Si el respectivo marco jurídico de los contratos de préstamos con los organismos internacionales lo permite, los bancos del Estado podrán ampliar el plazo de los créditos amparados a los mismos hasta por un máximo de doce años, manteniendo las condiciones de la tasa de interés originalmente pactada, según lo previsto en el artículo 20 de la ley.

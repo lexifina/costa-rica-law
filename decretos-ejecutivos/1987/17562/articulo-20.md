@@ -1,0 +1,2 @@
+Artículo 20.-Los posibles beneficiarios del artículo 15 de la ley, deberán acreditar que sus deudas agropecuarias del Sistema Bancario Nacional a partir de 1982, fueron adecuadas o readecuadas en forma directa o mediante el otorgamiento de un nuevo crédito, conforme con los decretos que se señalan en el artículo 7° de la ley.
+Se entiende que las garantías deberán mantenerse en las condiciones originalmente pactadas.

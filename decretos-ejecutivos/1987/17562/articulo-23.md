@@ -1,0 +1,2 @@
+Artículo 23.-En caso de pérdida de la garantía, incumplimiento del plan de inversión o disposición de bienes dados en garantía los bancos podrán otorgar los beneficios que contempla el artículo 18 de la ley, cuando a satisfacción de la respectiva Junta Directiva General de cada banco o el órgano que ésta designe se demuestre que tales eventos no fueron ocasionados por dolo o mala fe.
+Para tales fines los que soliciten el beneficio deberán ofrecer y presentar las pruebas respectivas.

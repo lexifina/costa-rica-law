@@ -1,0 +1,2 @@
+Artículo 6°-Los bancos podrán aceptar en dación en pago toda clase de bienes, a su exclusivo criterio, de manera que les es facultativo aceptarlas o no. Lo mismo se aplicará en el caso de que los grandes productores ofrezcan el pago de la totalidad de su deuda de ese modo.
+Los beneficios de la dación en pago también serán aplicables a los medianos productores, todo ello sujeto a la conveniencia del respectivo banco y a la libre negociación entre las partes.

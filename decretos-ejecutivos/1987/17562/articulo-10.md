@@ -1,0 +1,1 @@
+Artículo 10.-Lo dispuesto en el numeral 7 del artículo 9° de la ley, en cuanto al cálculo de los intereses regirá a partir del 8 de mayo de 1987 para los pequeños, medianos y grandes productores que formalicen sus operaciones de acuerdo con la ley y este Reglamento.

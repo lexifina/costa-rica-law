@@ -1,0 +1,1 @@
+Artículo 21.-Sin perjuicio de lo que establece el artículo 16 de la ley a los productores agropecuarios los bancos podrán considerarlos nuevamente como sujeto de crédito a partir del momento en que presenten sus respectivas solicitudes de adecuación o readecuación con los requisitos que señala la ley y este Reglamento.

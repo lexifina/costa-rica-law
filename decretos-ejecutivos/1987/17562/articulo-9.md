@@ -1,0 +1,5 @@
+Artículo 9°-El plazo de las obligaciones de los pequeños y medianos productores agropecuarios que se constituyan al amparo de la ley lo establecerá cada banco según cada caso dentro de los márgenes previstos en el artículo 9 de la ley, sea entre 12 y 16 años y según la capacidad de pago.
+Los intereses de las nuevas operaciones serán pagaderos por trimestre vencido, incluidos los correspondientes al período de gracia, y a que los intereses de los bonos son pagaderos en esa misma forma.
+La amortización de las adecuaciones y readecuaciones se fijará en relación con la actividad de que se trate, a juicio del banco.
+Los tractos y el monto de las amortizaciones se ajustarán proporcionalmente al plazo y al capital adeudado.
+La tasa básica pasiva indicada en el artículo 9° de la ley, numerales 3, 4, 6 y 7, aplicable a los pequeños, medianos y grandes productores, será la tasa básica pasiva del Sistema Bancario Nacional que determine el Banco Centra. de Costa Rica, variable y ajustable semestralmente, de acuerdo con la tasa que esté vigente al día que se inicie cada período semestral.

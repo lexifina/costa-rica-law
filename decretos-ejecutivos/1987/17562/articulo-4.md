@@ -1,0 +1,1 @@
+Artículo 4°-Tratándose de créditos de adecuación o readecuación otorgados a los pequeños y medianos productores agropecuarios, en los que el Estado compró la cartera, los bancos no podrán modificar las condiciones que de acuerdo con la ley y este Reglamento se estipulen en cuanto a tasas de interés, plazo y forma de pago.

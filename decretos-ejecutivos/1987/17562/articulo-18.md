@@ -1,0 +1,1 @@
+Artículo 18.-Por tratarse de adecuaciones o readecuaciones automáticas, los bancos estarán exentos de responsabilidad sobre las garantías aportadas por los pequeños y medianos productores agropecuarios, en la cartera que traspasen al Ministerio de Hacienda.
