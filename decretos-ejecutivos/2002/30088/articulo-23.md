@@ -1,0 +1,1 @@
+Artículo 23.—Devuelto el expediente del Departamento de Gestión Financiera a Proveeduría Institucional, se procederá de conformidad con el trámite señalado según el procedimiento de contratación que corresponda.

@@ -1,0 +1,1 @@
+Artículo 2º—El acto de adjudicación de toda contratación de bienes y servicios lo dictará el Proveedor Institucional y en ausencia de éste, el Director General de Adaptación Social conforme la resolución ministerial respectiva Nº 2935 de las nueve horas del quince de noviembre del dos mil.

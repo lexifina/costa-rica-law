@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión se reunirá en forma ordinaria al menos una vez por semana sin necesidad de convocatoria previa y de manera extraordinaria cuando sus miembros así lo requieran o lo convoque el presidente de la Comisión.

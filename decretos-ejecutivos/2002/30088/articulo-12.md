@@ -1,0 +1,1 @@
+Artículo 12.—Una copia del proyecto de trabajo y su respectivo plan de necesidades deberá ser enviado a la Dirección Administrativa de cada programa. Este documento final constituye la base para la elaboración del presupuesto y el plan de compras institucional.

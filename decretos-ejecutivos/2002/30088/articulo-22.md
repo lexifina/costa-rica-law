@@ -1,0 +1,1 @@
+Artículo 22.—En el caso de licitaciones corresponderá al Departamento de Gestión Financiera emitir el compromiso presupuestario mediante certificación que deberá suscribir el responsable de dicho Departamento.

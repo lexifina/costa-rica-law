@@ -1,0 +1,1 @@
+Artículo 10.—Tomando en cuenta el citado plan de trabajo el Director de Centro en conjunto con el administrador o la Jefatura del Departamento o Sección, en tratándose de las oficinas centrales, según corresponda, deben elaborar el Plan Anual de Compras.

@@ -1,0 +1,1 @@
+Artículo 11.—El Plan Anual de Compras constituye un compendio de necesidades del Centro u oficina para la ejecución del plan de Trabajo, considerando para esos efectos la totalidad de servicios que se deben prestar, los insumos que se requerirán para la ejecución del plan, estableciendo prioridades y calendarización probable en que serán necesarios los recursos solicitados.

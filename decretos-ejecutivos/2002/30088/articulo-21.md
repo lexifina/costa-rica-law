@@ -1,0 +1,1 @@
+Artículo 21.—Tratándose de compras directas, la Proveeduría Institucional trasladará el expediente al Departamento de Gestión Financiera a fin de que, mediante sello y firma, verifique y comprometa el disponible presupuestario para la realización de ese trámite de compra.

@@ -1,0 +1,1 @@
+Artículo 14.—Corresponderá a la Proveeduría Institucional la elaboración y publicación del Plan Anual de Compras, así como las modificaciones que presenten las instancias superiores, a efecto de satisfacer de mejor manera el interés público.

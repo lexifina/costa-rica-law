@@ -1,0 +1,1 @@
+Artículo 15.—La Proveeduría Institucional será la responsable de tramitar la solicitud de bienes y servicios ante la Comisión de Contratación Administrativa de conformidad con el Plan Anual de Compras y la ejecución presupuestaria del programa.

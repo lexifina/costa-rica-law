@@ -1,0 +1,2 @@
+Artículo 13.—Una vez aprobado el proyecto institucional por parte de la respectiva Dirección Administrativa, se remitirá a la Comisión de Contratación Administrativa y de ahí al Jerarca de la institución. Corresponderá a los Directores Administrativos de cada programa comunicar a la Proveeduría institucional sobre la necesidad de la adquisición de bienes y servicios requeridos para la ejecución de dicho plan.
+Asimismo, el Director administrativo informará a los Centros u oficinas los términos en que se aprobó el proyecto por ellos presentado.

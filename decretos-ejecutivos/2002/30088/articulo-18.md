@@ -1,0 +1,1 @@
+Artículo 18.—Las solicitudes de compra deben hacerse en el formulario diseñado para tal efecto. Será el Director Administrativo de cada programa quien aprueba las solicitudes de mercadería que trasladará a la Proveeduría Institucional para el trámite respectivo.
