@@ -14,3 +14,4 @@ Reglamento de Mutualidad y Subsidios del Colegio de Enfermeras de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1961-08-17 | la propia norma |
+| 2 | 1968-11-12 | Decreto Ejecutivo 11 (1968-11-12) |

@@ -1,1 +1,1 @@
-Artículo 32 . -Para los préstamos por la suma de ¢ 1,000.00 (un mil colones) y ¢ 1,500.00 (un mil quinientos) a los plazos convenidos anteriormente, se incluirá en las tablas de amortización un ahorro obligatorio, equivalente al 25% de las sumas solicitadas el cual se devolverá al final de la operación o se acreditará al liquidar el préstamo a su debido tiempo.
+Artículo 32 . -(Derogado por el artículo 2° del decreto ejecutivo N° 11 del 12 de noviembre de 1968)
