@@ -1,0 +1,1 @@
+Artículo 2°—Para los efectos de la delimitación establecida en el artículo 1° del presente Decreto, modifíquese en lo conducente los decretos números 6036-G y 7268-G; la Reserva llamada antiguamente "Chase" (establecida por decreto "N° 7268-G) queda incluida en la demarcación de la Reserva Indígena Bribri de Talamanca.
