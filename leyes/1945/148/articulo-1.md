@@ -1,5 +1,4 @@
 N° 148
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
-Artículo 1º.- A partir de la vigencia de esta ley, todos los bienes muebles e inmuebles, rentas y recursos de la Junta Nacional de la Habitación y de las "Cooperativas Casas Baratas, La Familia", organizadas en el país, pasarán a ser propiedad de la Caja Costarricense de Seguro Social, que tendrá - además de las funciones que le son propias-, las que aquí se le confieren a efecto de que centralice los esfuerzos para el aumento y mejoramiento de la vivienda popular en todo el país.
-La Caja asumirá las obligaciones financieras actualmente a cargo de las referidas entidades.
+Artículo 1º.- (Derogado por el artículo 47 de la Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo INVU, N° 1788 del 24 de agosto de 1954, que expresamente dispone: "Artículo 47.-Deróganse expresamente: la ley Nº 148 de 8 de agosto de 1945 que traspasa a la Caja Costarricense de Seguro Social obligaciones y haberes de la Junta Nacional de la Habitación, excepto el inciso 1) del artículo 4º;...")

@@ -1,1 +1,1 @@
-Artículo 16º.- Para los efectos de esta ley no se aplicarán las disposiciones del artículo 58 de la ley N° 17 de 22 de octubre de 1943.
+Artículo 16º.- (Derogado por el artículo 47 de la Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo INVU, N° 1788 del 24 de agosto de 1954, que expresamente dispone: "Artículo 47.-Deróganse expresamente: la ley Nº 148 de 8 de agosto de 1945 que traspasa a la Caja Costarricense de Seguro Social obligaciones y haberes de la Junta Nacional de la Habitación, excepto el inciso 1) del artículo 4º;...")
