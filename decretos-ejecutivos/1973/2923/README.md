@@ -14,3 +14,4 @@ Reglamento Ley Forestal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1973-04-24 | la propia norma |
+| 2 | 1973-07-09 | Decreto Ejecutivo 3074 (1973-07-09) |
