@@ -1,0 +1,1 @@
+Art. 2. Este decreto será puesto en conocimiento del Cuerpo Legislativo para su aprobación. –Dado en la Ciudad de San José a los siete días del mes de Mayo de mil ochocientos cuarenta y cuatro. –Francisco María Oreamuno. –Al Ministro de Gobernación y Relaciones Sr. Doctor José María Castro.
