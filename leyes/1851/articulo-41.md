@@ -1,2 +1,0 @@
-Artículo 41.- Ningún propietario tendrá derecho a cerrar su fundo por el lado de un camino público sin previa autorización escrita del Ministerio de Obras Públicas en carreteras, de la Junta Cantonal en los caminos vecinales y de la Municipalidad en las calles, sino después de la fijación o demarcación de la línea correspondiente que le indiquen tales organismos.
-De lo contrario el deslinde no tendrá ningún valor ni efecto legal, y si el propietario fuere sindicado de usurpación, por ese motivo se tendrá el acto como presunción de su culpabilidad.
