@@ -1,0 +1,1 @@
+Artículo 19.-La nación que obtenga la extradición de una persona que no haya sido sentenciada, estará obligada a comunicar a la nación que concedió la extradición la sentencia firme que se dicte en el juicio para el cual se hubiere solicitado la extradición.

@@ -1,0 +1,1 @@
+Artículo 10.-El individuo cuya extradición se ha concedido no podrá ser procesado por delito distinto de aquel que motivó la extradición, a no ser que el Estado que la concedió lo hubiere consentido previamente, o cuando se trate de un delito conexo con aquél y que aparezca de las mismas pruebas presentadas con la solicitud.
