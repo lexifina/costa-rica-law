@@ -1,0 +1,1 @@
+Artículo 2°-Todos aquellos moluscos bivalbos de origen nacional, que se hubieren sometido a un proceso de congelamiento para su comercialización posterior, deberá procederse a su destrucción, por el incremento que dicho proceso genera en la toxicidad que afecta a estos productos.

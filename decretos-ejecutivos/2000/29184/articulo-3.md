@@ -1,0 +1,1 @@
+Artículo 3°-Las Instituciones Públicas competentes, a través de sus programas y proyectos pertinentes, podrán brindar las ayudas económicas o de otra especie, a las personas que sean identificadas como extractoras de estos moluscos bivalbos y que tengan en esta actividad su única fuente de ingresos.
