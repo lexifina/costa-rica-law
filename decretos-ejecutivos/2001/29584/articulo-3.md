@@ -1,0 +1,2 @@
+Artículo 3º—Modifícase en lo conducente el Decreto Ejecutivo 15203-MOPT publicado en el Diario Oficial La Gaceta Nº 38 del 22 de febrero de 1984, reformado por el Decreto Ejecutivo 20141-MOPT publicado en La Gaceta Nº 13 del 18 de enero de 1991, para que donde se lea Comisión Técnica de Transportes" y/o "Dirección General de Transporte Automotor", se lea "Consejo de Transporte Público".
+Así mismo donde se lea "Departamento de Transporte Público", se lea correctamente "Departamento de Administración de Concesiones y Permisos".
