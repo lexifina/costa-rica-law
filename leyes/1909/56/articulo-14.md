@@ -1,0 +1,2 @@
+Artículo 14.1) El Poder Ejecutivo, oyendo a las autoridades y municipalidades interesadas, determinará cuales son los límites de todos y cada uno de los distritos de la República. Esta demarcación se publicará en el periódico oficial.
+2) Los límites que fije el ejecutivo a los distritos de un cantón, situados en el extremo, y confinantes con distritos de otro cantón, no serán tenidos como definitivos, mientras una ley no señale la línea divisoria entre los cantones respectivos. Fijada ésta a ella deberán conformarse los límites de los distritos en cuestión.

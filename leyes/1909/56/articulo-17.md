@@ -1,0 +1,3 @@
+Artículo 17. 1) Para los efectos de aumentar aquellas poblaciones que invaden otros distritos con sus construcciones y de que rija en pueblos continuados una sola autoridad administrativa, el Poder Ejecutivo puede disponer, de acuerdo con la Municipalidad interesada, que se agregue al distrito contiguo más pequeño, siempre que uno u otro fueren partes del mismo cantón.
+2) Que cuando la agregación que se pretenda toque el territorio de cantones y distritos, se hace precisa la emisión de una ley.
+Dado en el salón de sesiones del congreso. Palacio Nacional. San José, a los cuatro días del mes de junio de mil novecientos nueve.
