@@ -1,0 +1,1 @@
+Artículo 32.—La confección y cálculos de las órdenes de pedido deben ser realizadas por los Agentes. De comprobarse un error de cálculo que origine m nota de débito, será el Agente el responsable del faltante.

@@ -1,0 +1,1 @@
+Artículo 45.—La Administración de la Fábrica pondrá en uso los documentos necesarios para el debido control de las promociones, bonificaciones y degustaciones, designando las responsabilidades de quienes tengan a cargo dicha documentación.

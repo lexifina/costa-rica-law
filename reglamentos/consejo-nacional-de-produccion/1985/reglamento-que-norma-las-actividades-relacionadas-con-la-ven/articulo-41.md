@@ -1,0 +1,1 @@
+Artículo 41.—Las cuotas autorizadas en los dos artículos anteriores, no tendrán carácter acumulativo, por lo que se perderá la cuota del período de no hacerse uso de ella dentro del mes correspondiente.

@@ -1,0 +1,1 @@
+Artículo 46.—Los formularios que se utilicen en la actividad a que se refiere este capítulo, deberán estar respaldados por el documento que justifique la salida del licor el cual deberá contar con la firma, nombre y sello (si existiere) del beneficiario, exceptuando las cantidades establecidas en el artículo 39 de este Reglamento.
