@@ -1,1 +1,0 @@
-Artículo 12.—Cuando el conocimiento de depósito fuere nominativo, deberá tomarse nota de su endoso en el Almacén General de Depósito, en donde se pondrá la indicación correspondiente en la partida de entrada de los artículos o mercancías.
