@@ -1,0 +1,1 @@
+Artículo 10°. El Juez de Policía recorrer así mismo constantemente todos los cantones o distritos de la Provincia y además de ejercer las atribuciones que se han consignado, vigilar especialmente que los Jueces Preventivos cumplan sus obligaciones, dándoles las órdenes e instrucciones que crean necesarias.
