@@ -1,0 +1,2 @@
+Transitorio 1.- Las empresas que hayan presentado su declaración jurada del periodo 95-96 antes de la promulgación del presente decreto tendrán un plazo de hasta tres años para ejecutar el programa obligatorio de uso racional de la energía, previa autorización del MINAE.
+Para la ejecución de este programa obligatorio, la empresa deberá acogerse al control con seguimiento establecido en el artículo 26 del reglamento del Reglamento de la Ley.

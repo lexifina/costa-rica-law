@@ -1,0 +1,3 @@
+Artículo 3° Empresas privadas con índices energéticos mayores a los índices energéticos regulatorios fijados por el MINAE.
+Las empresas privadas que según la declaración jurada de consumo energético definida en el artículo 6 de la Ley correspondiente al periodo fiscal 96-97 que presenten índices energéticos mayores a los índices energéticos regulatorios, fijados por el MINAE en el artículo anterior, estarán sujetas a lo indicado en los artículos 9, 10, 11, 12 y 13 del Reglamento de la Ley.
+Cuando la empresa presenta un programa obligatorio de uso racional de energía deberá ajustarse a lo establecido en el artículo 16 del reglamento de la Ley.
