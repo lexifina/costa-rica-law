@@ -29,3 +29,5 @@ Vicio administrativo que consiste en adquirir por medio de * mecanismos de adqui
 limitados, un mismo suministro o servicio objeto de contratación, mediante la entrega sucesiva de partes suministradas por un mismo proveedor o varios proveedores, con la intención de evadir con ello los procedimientos de contratación administrativa vigentes.
 k. Justificación expresa:
 Razonamiento escrito emitido por el responsable de autorizar los trámites de uso de los Fondos Rotativos para justificar la solicitud del monto o para aclarar cualquier situación de carácter excepcional.
+l. Viático: Es aquella suma de dinero destinada a la atención de gastos de hospedaje, alimentación, y otros gastos menores, efectivamente realizados, que el INA reconoce a sus servidores cuando estos deban desplazarse en forma transitoria de su centro de trabajo con el fin de cumplir con las obligaciones de su cargo.
+(Así adicionado el inciso l) mediante sesión N° 3918 de 19 de noviembre del 2001)

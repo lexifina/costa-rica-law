@@ -14,3 +14,4 @@ Reglamento Fondos Rotativos de Trabajo, Caja Chica y Viáticos (El Instituto Nac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-06 | la propia norma |
+| 2 | 2001-11-19 | Reglamento 3918 (2001-11-19) |
