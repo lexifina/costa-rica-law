@@ -1,0 +1,1 @@
+Artículo 1.- (NOTA: La Municipalidad de Tibás emitió un nuevo Reglamento sobre Normas y Procedimientos Inscripción Registro Proveedores, publicado en La Gaceta N° 32 DE 16/02/1999 y que puede consultar en el sistema).
