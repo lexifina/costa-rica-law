@@ -1,0 +1,1 @@
+Artículo 5°-De no cumplirse con el requisito establecido en el artículo anterior, el Departamento de Drogas, Controles y Registros no dará trámite al registro del producto, ni autorizará su desalmacenaje.

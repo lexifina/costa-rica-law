@@ -1,0 +1,1 @@
+Artículo 2°-Asimismo, es obligatorio que los fabricantes certifiquen que los hemoderivados de origen humano, con fines terapéuticos, que fabriquen, ofrezcan, vendan y provean, también están libres de anticuerpos del VIH.

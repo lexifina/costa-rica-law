@@ -1,0 +1,1 @@
+Artículo 9°-Asimismo, es obligatorio que los fabricantes certifiquen que las gamaglobulinas específicas e hiperinmunes que fabriquen, ofrezcan, vendan y provean, también están libres de anticuerpos anti-VIH.

@@ -1,0 +1,1 @@
+Artículo 6°-Los representantes de las industrias fabricantes tienen la obligación de entregar en cualquier momento, cuantas muestras del producto sean requeridas por el Departamento de Drogas, Controles y Registros, para realizar pruebas que se consideren necesarias.

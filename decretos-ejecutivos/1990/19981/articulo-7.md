@@ -1,0 +1,1 @@
+Artículo 7°-El médico que vaya a aplicar hemoderivados deberá solicitar por escrito el consentimiento del paciente o su responsable, teniendo la obligación de explicarle que, a pesar de que estos productos han sido sometidos a métodos recomendados mundialmente para evitar la presencia de VIH, no existe garantía absoluta de que el producto no transmita el VIH.

@@ -1,0 +1,1 @@
+Artículo 13.-Las personas que incumplan las disposiciones contenidas en el presente decreto, serán denunciadas ante la autoridad judicial competente con base en los artículos 378 y 380 de la Ley General de Salud, sin perjuicio de otras acciones que se puedan tomar con base en la ley citada y las demás leyes existentes.

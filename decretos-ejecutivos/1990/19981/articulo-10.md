@@ -1,0 +1,1 @@
+Artículo 10.-Los fabricantes de gamaglobulinas específicas o hiperinmunes para uso terapéutico, deben asegurar que han sido preparados por métodos reconocidos de precipitación y tratamiento de laboratorio, a fin de asegurar que la posible presencia de partículas virales ha sido destruida.
