@@ -8,7 +8,9 @@ Del monto del avalúo se considera un 70%, y a este nuevo monto se le restan los
 (Así reformado parcialmente por acuerdo de Junta Directiva N° 1972 de 28 de junio de 1990)
 b) Prendas ganaderas, hasta el 100% del avalúo, con garantía colateral suficiente.
 c) Otras garantías prendarias, hasta el 80% del avalúo, excepto en aquellos casos en que el Banco Central de Costa Rica disponga cosa contraria.
-d) Documentos negociables endosados en garantía, hasta el 60% de su saldo actual, siempre y cuando no excedan de una tercera parte del monto del crédito, salvo en aquellos casos de cooperativas que no dispongan de garantías reales, en cuyo evento esta proporción puede ser mayor, pero su responsabilidad no podrá exceder del 60% antes indicado.
+d) Las acciones de sociedades anónimas se recibirán hasta el 60% de su valor en libros. Dicho valor debe ser determinado por un Contador Público Autorizado, con base en los estados financieros del último período, debidamente dictaminados.
+Cuando se trate de acciones de empresas públicas que estén siendo trasladadas al sector privado, dicho porcentaje podrá ampliarse hasta un 90% de su valor de compra.
+(Así reformado parcialmente por acuerdo de Junta Directiva N° 2269 de 1° de julio de 1993)
 e) Cuando se trate de garantías hipotecarias o prendarias, el correspondiente avalúo debe ser hecho por un perito autorizado por el INFOCOOP, para lo cual la cooperativa prestataria debe, previamente, hacer el depósito del costo del avalúo en la Tesorería del INFOCOOP. Lo anterior no rige cuando se trate de prendas sobre maquinaria y equipos, totalmente nuevos para lo cual se tomará como base la factura de compra.
 f) Tratándose de cédulas hipotecarias, la cooperativa debe aportar copia del avalúo con base en el cual se emitieron esa cédulas, además, se debe realizar un análisis sobre el número de cédulas en poder de la cooperativa y cuántas en poder de otros acreedores, con detalle de estos y certificación del estado actual de las operaciones que están garantizando.
 (Así ampliado por acuerdo de la Junta Directiva, en su sesión N° 1972 de 28 de junio de 1990, el cual agregó el inciso f)
