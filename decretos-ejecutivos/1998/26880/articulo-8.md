@@ -1,0 +1,3 @@
+CAPITULO III
+De la Unidad Coordinadora del Proyecto
+Artículo 8°—La UCP es el órgano encargado de la ejecución del Proyecto. Corresponde a ella orientar y canalizar los recursos que se utilizarán en tal ejecución, así como llevar a cabo la contratación con organizaciones, la suscripción de convenios con entes de la administración pública y personas naturales idóneas para brindar los servicios requeridos para el cumplimiento de los fines del Proyecto, debiendo asimismo supervisar el cumplimiento de esos contratos y convenios, lo que realizará a través de los dos órganos que la integran, sea la JEL y la SEP.

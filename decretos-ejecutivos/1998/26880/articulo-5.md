@@ -1,0 +1,1 @@
+Artículo 5°—Es el órgano máximo en materia de gobierno y estará integrado por el Ministro de Agricultura y Ganadería, quien lo presidirá, por el Ministro de Hacienda y por el Jerarca del Programa de Desarrollo Rural, o por sus representantes.

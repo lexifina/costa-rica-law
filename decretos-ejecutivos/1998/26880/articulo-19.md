@@ -1,0 +1,1 @@
+Artículo 19.—Lo que resuelva la JEL vía recurso o directamente, con excepción de lo referido a materia de contratación administrativa, tendrá recurso de apelación para ante el Ministro de Agricultura y Ganadería, quien agotará la vía administrativa. Este recurso debe interponerse dentro del plazo de cinco días hábiles contados a partir de la notificación del acto.

@@ -1,0 +1,1 @@
+Artículo 15.—La Dirección de la SEP serán responsabilidad de un director designado por la JEL y que a su vez será el director del Proyecto y su representante ante los organismos públicos y privados. Durará en su cargo el tiempo de ejecución del Proyecto. Su remoción por causa justificada debe ser previamente consultada por el Fondo y el BCIE.

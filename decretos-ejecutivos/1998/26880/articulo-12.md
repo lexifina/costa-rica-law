@@ -1,0 +1,1 @@
+Artículo 12.—La JEL se reunirá en forma ordinaria, una vez por mes y extraordinariamente cada vez que la convoquen sus miembros o el Director de la SEP. Asimismo, podrá constituir las comisiones que consideren necesarias de conformidad con lo establecido en el artículo 11 del Anexo 3 del contrato de préstamo mencionado.

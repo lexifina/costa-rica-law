@@ -1,0 +1,1 @@
+Artículo 14.—Los procedimientos para la adquisición de bienes y servicios, consultores y personas de asistencia técnica, serán implementados por la SEP conforme a las directrices que en la materia hayan dictado el Fondo y el BCIE.

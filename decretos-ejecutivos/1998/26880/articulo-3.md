@@ -1,0 +1,1 @@
+Artículo 3°—A falta de disposición expresa en este Reglamento, en la Ley 7659 de 28 de febrero de 1997, y en las normas del BCIE, se aplicarán, en su orden la legislación vigente, el Derecho Público, la Jurisprudencia, los Principios Generales de Derecho Público, la costumbre y las disposiciones del derecho privado que le fueren aplicables.
