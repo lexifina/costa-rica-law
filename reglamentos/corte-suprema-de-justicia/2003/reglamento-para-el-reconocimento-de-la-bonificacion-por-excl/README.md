@@ -14,3 +14,4 @@ Reglamento para el reconocimento de la bonificación por exclusividad policial.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-23 | la propia norma |
+| 2 | 2003-06-16 | Reglamento 23 (2003-06-16) |

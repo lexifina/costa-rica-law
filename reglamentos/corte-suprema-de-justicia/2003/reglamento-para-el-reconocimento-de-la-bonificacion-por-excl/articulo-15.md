@@ -1,1 +1,2 @@
-Artículo 15.—De los beneficiarios. Serán objeto de los beneficios aquí establecidos únicamente aquellos servidores dentro del Organismo de Investigación Judicial, dedicados a las labores policiales de investigación criminal, ubicados en puestos de Investigador 1 e Investigador 2. Cuyo requisito académico exigido es inferior al grado universitario de bachiller.
+Artículo 15.—De los beneficiarios. ELIMINADO SEGÚN ARTÍCULO XXV, TOMADO POR LA CORTE PLENA EN SESIÓN N° 23-03, CELEBRADA EL 16 DE JUNIO DE 2003.
+DEROGADO en Sesión N° 23-03, celebrada el 16 de junio de 2003, publicada en El Boletín Judicial N° 138 de 18 de julio de 2003.
