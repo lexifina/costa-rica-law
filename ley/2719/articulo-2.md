@@ -1,0 +1,1 @@
+Artículo 2º.-Se autoriza al Poder Ejecutivo para gestionar préstamos o líneas de crédito, en el país o en el extranjero, hasta por la suma de $15.000,000.00 (quince millones de dólares), moneda de los Estados Unidos de América, o su equivalente en otras monedas extranjeras, con el objeto de financiar, total o parcialmente, obras de este Plan.
