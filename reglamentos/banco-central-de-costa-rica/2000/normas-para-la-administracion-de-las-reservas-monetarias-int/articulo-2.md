@@ -1,1 +1,0 @@
-Artículo 2º—Definición de políticas: La Junta Directiva del Banco Central de Costa Rica es responsable de la definición de las políticas y los lineamientos generales para la custodia, la administración y la inversión de las Reservas Monetarias Internacionales.
