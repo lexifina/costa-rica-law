@@ -1,6 +1,7 @@
 Artículo 15.- Nadie podrá recibir más de una pensión del Estado, excepto en los siguientes casos:
 a) Que se trate de pensiones provenientes de regímenes de cotización obligatoria, a cargo del Poder Central, y por servicios diferentes;
-b) Que se trate de pensiones convenidas entre la Caja Costarricense de Seguro Social y grupos de trabajadores independientes o colegiados, sin mediar cotización estatal de ninguna clase; y
+b) Que se trate de pensiones convenidas entre la Caja Costarricense de Seguro Social y grupos de trabajadores independientes o colegiados. El Estado aportará su propia cuota, las Asociaciones, Sindicatos o colegios profesionales la correspondiente a la cuota patronal, y los trabajadores independientes o colegiados la que les corresponda.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 4494 del 15 de diciembre de 1969)
 c) Que se trate de pensiones que aun no estando contempladas, en los dos incisos anteriores, no excedan en total de quinientos colones mensuales. En estos casos, el ajuste a la suma indicada se hará de oficio.
 Los organismos del Estado que otorguen o hayan otorgado pensiones están obligados a comunicar al Registro del Estado Civil, la nómina de las personas que reciban esas pensiones, con experiencia detallada de sus calidades y el número de cédula de identidad.
 El Registro del Estado Civil tiene obligación de comunicar por escrito, a la Oficina de Pensiones y Jubilaciones, al Oficial Presupuestal de Hacienda y al Tesorero Nacional, toda modificación en el estado civil de los pensionados, así como su fallecimiento. Tales comunicaciones deberán enviarse a más tardar, ocho días después de que el Registro reciba el informe del cambio del estado civil o fallecimiento de los beneficiarios.
