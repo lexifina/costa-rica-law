@@ -1,0 +1,1 @@
+Artículo 8º—Desembolsos. Todo desembolso de recursos por parte del FOSUVI implica por parte de éste una verificación previa del avance de obra, con excepción del primer desembolso que deberá fundamentarse en la evaluación técnica del proyecto.

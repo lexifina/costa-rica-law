@@ -1,0 +1,1 @@
+Artículo 10.—Informes de la Gerencia. La Gerencia General del BANHVI presentará a la Junta Directiva un informe mensual del estado de los proyectos, individuales o colectivos, ejecutados por medio del artículo 59 de la LSFNV.
