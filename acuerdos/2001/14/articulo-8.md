@@ -1,0 +1,1 @@
+8°—Los jefes de Oficinas Administrativas, dependientes de la Dirección Ejecutiva deberán comunicar a esa Dirección con la debida antelación, la fecha en que tomarán sus vacaciones, a fin de disponer lo concerniente a la sustitución.

@@ -1,0 +1,3 @@
+Sustitución, nombramientos y comunicaciones
+6°—Los despachos con más de un Juez presentarán un Plan Anual de Vacaciones al Consejo Superior, procurando una distribución equitativa de las vacaciones de tal manera que siempre haya una mayoría de funcionarios laborando y se evite coincidencia de fechas. Esta regla se aplicará para el resto de los servidores del despacho.
+6.1 Para la ejecución del plan, el Coordinador del Despacho enviará la solicitud de vacaciones de los jueces con 15 días de antelación y mientras no se le comunique la aprobación, el funcionario no podrá retirarse de sus labores.

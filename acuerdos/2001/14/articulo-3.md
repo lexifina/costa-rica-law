@@ -1,0 +1,5 @@
+3°—El Departamento de Personal proporcionará las boletas correspondientes, en las que se indicará la fecha en que el servidor propietario adquiere el derecho a disfrutar su período de vacaciones, así como otros detalles de interés para la oficina en que se desempeña el servidor judicial, con el propósito de que la oficina tenga control sobre el saldo de vacaciones del personal adscrito a ella.
+El control de las vacaciones estará a cargo del Departamento de Personal sin perjuicio de la responsabilidad del Jefe del Despacho de llevar ese control y mantenerlo actualizado.
+3.1 Es obligación del Jefe de Oficina reportar las vacaciones concedidas a sus empleados. De no precederse en esta forma, el Departamento de Personal pondrá el caso en conocimiento de la Inspección Judicial.
+3.2 El Jefe procurará otorgar las vacaciones de manera que el servicio se afecte lo menos posible.
+3.3 Una vez adquirido el nuevo derecho y saldado el período anterior, la Boleta deberá remitirse al Departamento de Personal.

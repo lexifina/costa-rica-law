@@ -1,0 +1,4 @@
+Fraccionamiento
+5°—Al solicitar por primera vez sus vacaciones el servidor indicará el sistema a escoger (días hábiles o naturales), en el entendido de que en caso de optar por el disfrute de días naturales podrá fraccionarlas en plazos no menores a 7 días salvo que sea el último.
+5.1 En caso de que el servidor disfrute en forma fraccionada sus vacaciones, queda a criterio del Jefe del Despacho otorgar una prórroga del período originalmente definido, dependiendo de la eventual afectación del servicio público que esto genere.
+5.2 Cuando un servidor judicial se encuentre disfrutando vacaciones y se incapacite o se le otorgue licencia con goce de sueldo de conformidad con el artículo 44 de la Ley Orgánica del Poder Judicial, las vacaciones se suspenden y el saldo podrá disfrutarse en fecha que considere oportuno.

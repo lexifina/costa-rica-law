@@ -1,0 +1,1 @@
+9°—Una vez que sean establecidas y comunicadas al Departamento de Personal las fechas para el disfrute del derecho, éstas no podrán variarse sino por causa justificada ante el Jefe inmediato, quien comunicará la modificación respectiva al Departamento de Personal.
