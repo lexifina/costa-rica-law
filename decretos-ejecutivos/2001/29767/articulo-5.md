@@ -1,0 +1,1 @@
+Artículo 5º—Mientras tanto el Banco Central de Costa Rica no tenga en su poder la nueva emisión de los CPU que se detallan en el presente decreto, los montos correspondientes a dichos comprobantes se seguirán cancelando con los timbres existentes.
