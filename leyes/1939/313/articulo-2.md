@@ -1,0 +1,2 @@
+Artículo 2.- Estas pensiones no quedan sujetas a los trámites de solicitud ante la Junta Consultiva de Pensiones ni de revalidación; ni sufrirán mermas o deducciones de naturaleza alguna. Para cubrir las mismas, en la Ley de Presupuesto de cada ejercicio fiscal se hará figurar la partida correspondiente.
+Casa Presidencial. San José, a los veintitrés días de agosto de mil novecientos treinta y nueve.
