@@ -1,0 +1,5 @@
+ARTICULO 35.- En los casos de falta absoluta de jueces o
+alcaldes, el órgano competente podrá demorar el nombramiento
+definitivo hasta por tres meses, mientras tanto llamará al
+suplente respectivo al ejercicio de sus funciones o nombrará un
+sustituto interino.

@@ -1,0 +1,16 @@
+ARTICULO 112.- El Juzgado de Ejecución de la Pena conocerá
+del mantenimiento, sustitución, modificación o cesación de las
+medidas de seguridad impuestas. También podrá conceder o revocar
+la libertad condicional, cumpliendo los requisitos que establece
+el Código Penal.
+En todos los casos anteriores, la resolución tendrá
+únicamente recurso de apelación ante el Tribunal que dictó la
+sentencia, el que podrá ser interpuesto por el Ministerio Público
+o la defensa, según sea el caso.
+El Juez de Ejecución de la Pena visitará todos los centros
+de internamiento del país, por lo menos una vez cada tres meses e
+informará al Consejo Superior del Poder Judicial y al Instituto
+Nacional de Criminología, según corresponda, sobre las
+situaciones irregulares que note. Oirá a los internos cuando
+estos lo soliciten y dará curso a sus quejas, para lo cual tomará
+las providencias que estime necesarias.

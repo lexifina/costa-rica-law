@@ -1,0 +1,5 @@
+ARTICULO 200.- El instructor, al inicio de la investigación,
+pondrá los hechos en conocimiento del denunciado, sobre los
+cuales le pedirá un informe o le recibirá declaración sin
+juramento; siempre le concederá un plazo de cinco días para que
+ofrezca la prueba de descargo.

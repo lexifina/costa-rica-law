@@ -1,0 +1,13 @@
+ARTICULO 46.- Los jueces de la materia penal están obligados
+a visitar, al menos una vez cada tres meses y sin previo aviso,
+las prisiones del lugar de su residencia, a fin de indagar si se
+aplican debidamente los respectivos reglamentos y si se da a los
+presos la alimentación y el tratamiento que corresponden; oirán
+las quejas de los reos y las transmitirán, inmediatamente, al
+Jefe de la prisión. El resultado de la visita lo consignarán en
+el informe que, al efecto, presentarán al Consejo Superior del
+Poder Judicial. Si hubiere personas que estén indebida o
+ilegítimamente detenidas, deberán promover su libertad, si ello
+fuere posible, y subsanar los defectos que notaren.
+La obligación impuesta en este artículo no puede ser
+delegada por los jueces entre sí ni en otros funcionarios.

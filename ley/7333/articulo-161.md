@@ -1,0 +1,4 @@
+ARTICULO 161.- La Corte dictará normas reguladoras para la
+selección de los curadores, de los notarios inventariadores en
+los procedimientos de concurso mercantil y civil y de los peritos
+judiciales en general.

@@ -1,0 +1,13 @@
+ARTICULO 237.- Los depósitos judiciales pertenecientes a
+juicios abandonados por más de cuatro años, el cincuenta por
+ciento (50%) de los intereses que estos hubieran producido
+mientras el juicio estuviere activo y no hayan sido retirados -
+estos con carácter devolutivo-, ingresarán a una cuenta corriente
+abierta para tal fin, en alguno de los bancos del Estado y se
+invertirán en títulos valores del sector público, procurando el
+mejor rédito.
+Los intereses que produzca esa inversión durante los
+primeros cinco años, corresponderán al "Régimen no contributivo
+de pensiones" de la Caja Costarricense de Seguro Social. Despúes
+de ese plazo, los intereses ingresarán a la cuenta del Fondo de
+Jubilaciones y Pensiones del Poder Judicial.

@@ -1,0 +1,4 @@
+ARTICULO 23.- Los trámites indicados en el artículo anterior
+no son necesarios cuando se trate de garantía fiduciaria, la cual
+queda extinguida cuando se realicen las condiciones indicadas en
+el artículo 21.

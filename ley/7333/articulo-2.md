@@ -1,0 +1,5 @@
+ARTICULO 2.- El Poder Judicial solo está sometido a la
+Constitución Política y a la ley y las resoluciones que dicte, en
+los asuntos de su competencia, no le imponen otras responsabi-
+lidades que las expresamente señaladas por los preceptos
+legislativos.
