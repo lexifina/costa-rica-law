@@ -6,6 +6,7 @@ También podrá permitirse la vivienda del propietario en lotes para uso agríco
 Otros usos tales como: comerciales, institucionales, o cualquier otro que no sea industrial, quedará sujeto a estudio por la Dirección de Urbanismo según su compatibilidad con la zona industrial, siempre que se ubiquen en la periferia de esta y no exista conflicto manifiesto con el uso predominante industrial.
 Fuera de las áreas industriales no se permitirán industrias salvo las especificadas en el artículo 12.
 Transitorio
-En la Zona Industrial de San Rafael de Ojo de Agua, en un área ubicada a ambos lados de la calle Potrerillo, desde la Empresa Italcon hasta la radial San Antonio de Belén - Santa Ana con una extensión hasta doscientos metros en ambos lados, dado el desarrollo lineal en viviendas unifamiliares que de hecho se ha dado, se permitirá únicamente la construcción de viviendas unifamiliares que enfrenten a la mencionada vía o se den por un proceso mínimo de urbanización, sobre lotes ajustados al artículo 2° de este reglamento.
-Los propietarios aceptan las molestias de las industrias establecidas o por establecerse.
+En la Zona Industrial de San Rafael de Ojo de Agua, en un área ubicada a ambos lados de la calle Potrerillo, desde la empresa Italcon hasta la radial San Antonio de Belén - Santa Ana, en una extensión hasta cien metros en ambos lados, dado el desarrollo lineal en viviendas unifamiliares que de hecho se da dado, se permitirá únicamente la construcción de viviendas unifamiliares que enfrenten a la mencionada vía, sobre lotes ajustados al artículo 2° de este Reglamento.
+Los propietarios aceptan las molestias de las industrias establecidas o por establecerse
 (Así adicionado transitorio mediante sesión 4404 celebrada el 28 de abril de 1994)
+(Así reformado el transitorio anterior mediante sesión No 4434, celebrada el día 10 de agosto de 1994)
