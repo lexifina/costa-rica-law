@@ -1,0 +1,2 @@
+Art 2° Las sentencias interlocutorias que tengan lugar en la misma vía ordinaria son apelables en ambos efectos, 1° Cuando en ellos se resuelve la excepción de incompetencia de jurisdicción ya se declare el juez competente o incompetente, y 2° cuando se denegare la prueba en el pleito o el término extraordinario para producirla.
+Son apelables en el efecto devolutivo, 1° Cuando tengan por objeto resolver cualquiera de la excepciones
