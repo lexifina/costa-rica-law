@@ -1,2 +1,0 @@
-Utilidades o Pérdidas Bancarias en el Mercado Libre
-Artículo 33.- Las utilidades o pérdidas que los bancos obtengan por sus intervenciones autorizadas en el mercado libre, las recibirá o asumirá el Banco Central para lo cual los bancos presentarán, semanalmente, a dicho Banco, informe detallada de todas las operaciones efectuadas y la utilidad o pérdida habida. El traspaso efectivo de la utilidad o de la pérdida se hará mensualmente.

@@ -1,3 +1,0 @@
-Entradas Oficiales
-Artículo 17.- Cuando el Gobierno de la República o cualquier entidad oficial, aunque tenga el carácter de autónoma o semiautónoma, recibiere divisas, tendrá obligación de declararlas al Banco y de venderlas en el mercado oficial de cambio de acuerdo con lo dispuesto en el inciso c) del artículo 7º.
-Las personas que recibieren noticia de un posible ingreso de divisas que conforme al inciso f) del artículo 7º corresponda al mercado oficial de cambios, deberán declararlos al Banco dentro de los 8 días hábiles siguientes a la fecha en que se tuvo conocimiento de la noticia, debiendo efectuar la venta dentro de los 3 días hábiles siguientes a la recepción de las divisas.

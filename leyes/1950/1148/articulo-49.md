@@ -1,2 +1,0 @@
-Declaraciones Juradas
-Artículo 49.- Todas las declaraciones, afirmaciones o manifestaciones, inclusive las facturas de importación y las solicitudes para licencias de exportación o de divisas que los exportadores, importadores, agentes o cualesquiera otras personas realicen en su nombre, o a nombre de terceros, conforme a los preceptos de esta ley, tendrán la trascendencia de una declaración jurada
