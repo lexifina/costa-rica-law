@@ -14,3 +14,4 @@ Establece Reserva Indígena Guaymí de Osa. Reforma Existencia Oficial de Grupos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-06-20 | la propia norma |
+| 2 | 1988-08-24 | Decreto Ejecutivo 18508 (1988-08-24) |
