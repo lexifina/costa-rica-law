@@ -3,7 +3,7 @@ a) Presentar denuncias sobre infracción a la Ley Forestal.
 b) Efectuar vigilancia en las reservas forestales y zonas protectoras especialmente las estipuladas en el articulo 68 de la Ley Forestal y proyectos de interés para la DGF.
 c) Colaborar con los guardas forestales del Estado y funcionarios de la DGF en las inspecciones y rutas de vigilancia.
 d) Presentar informes mensuales a los administradores de reservas y asistir a las reuniones generales.
-e) Efectuar decomisos a los infractores de la Ley Forestal , para lo cual deberá disponer de las respectivas actas de decomiso que serán suministradas únicamente por la DGF. El decomiso será presentado junto con la denuncia respectiva ante la autoridad judicial competente, dentro de los tres días posteriores a que determinó la infracción.
+e) Efectuar decomisos a los infractores de la Ley Forestal, para lo cual deberá disponer de las respectivas actas de decomiso que serán suministradas únicamente por la DGF. El decomiso será presentado junto con la denuncia respectiva ante la autoridad judicial competente, dentro de los tres días posteriores a que determinó la infracción.
 f) Recibir capacitación sobre la protección de Recursos Forestales.
 g) Cumplir con las disposiciones de la Ley Forestal y su Reglamento.
 h) Integrarse a las brigadas de control de incendios forestales.

@@ -9,4 +9,4 @@ Guapinol negro | Cymonetra hemitomophylla | Leguminosae
 Guapinol real | Guaicacum sanetum | Zygophyllcae
 Lechillo, ojoche macho | Botacarpus costarricense | Moraceae
 Ocora | Guarea longipetiola | Meliaceae
-Reseco | Tachigalia versicolor | eliaceae
+Reseco | Tachigalia versicolor | Meliaceae

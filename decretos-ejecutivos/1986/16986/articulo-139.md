@@ -1,4 +1,4 @@
-Artículo 139.- La DGF autorizará el funcionamiento de aserraderos portátiles, únicamente en los siguientes casos:
+Artículo 139.-La DGF autorizará el funcionamiento de aserraderos portátiles, únicamente en los siguientes casos:
 a) Cuando se trate de aserríos para mejoras de su propia finca (vivienda, corrales, puentes, postes, otros).
 b) Para la obtención de madera para obras comunales como escuelas, unidades sanitarias, puentes, instalaciones para turnos, capillas y otras.
 c) Para integrarlo al aprovechamiento del recurso maderable de su propia finca sometido al plan de manejo, siempre que no preste servicios a terceros.

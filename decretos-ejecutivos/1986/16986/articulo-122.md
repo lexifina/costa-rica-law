@@ -1,4 +1,4 @@
-Artículo 122.-Toda industria o persona que adquiera materia prima para realizar sus actividades, deberá comprobar que el producto forestal está amparado por el respectivo permiso de aprovechamiento otorgado por la DGF, ésta comprobación es válida cuando adquiere la madera en el área de aprovechamiento. Cuando la materia prima se adquiere en tránsito o en la industria (aserradero y otros) la comprobación se hará sobre la "guía de transporte de madera" que deberá contener las siguientes anotaciones:
+Artículo 122.-Toda industria o persona que adquiera materia prima para realizar sus actividades, deberá comprobar que el producto forestal está amparado por el respectivo permiso de aprovechamiento otorgado por la DGF , ésta comprobación es válida cuando adquiere la madera en el área de aprovechamiento. Cuando la materia prima se adquiere en tránsito o en la industria (aserradero y otros) la comprobación se hará sobre la "guía de transporte de madera" que deberá contener las siguientes anotaciones:
 a) Nombre del permisionario.
 b) Número del permiso.
 c) Fecha de emisión.

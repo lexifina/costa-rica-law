@@ -1,1 +1,1 @@
-Artículo 32.-Las resoluciones del Consejo serán tomadas por mayoría de votos, en caso de empate el Presidente tendrá doble voto. Para efectos de lo establecido en el artículo 19 de la Ley, el acuerdo correspondiente deberá ser tomado por ocho de sus miembros.
+Artículo 32.-Las resoluciones del Consejo serán tomadas por mayoría de votos, en caso de empate el Presidente tendrá doble voto. Para efectos de lo establecido en el artículo 19 de la Ley , el acuerdo correspondiente deberá ser tomado por ocho de sus miembros.

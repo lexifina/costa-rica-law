@@ -1,4 +1,4 @@
-Artículo 130,-Para efectos de exportación e importación se consideran como productos forestales los que a continuación se indican requiriendo, consecuentemente, la autorización e inspección previa de la DGF , aún tratándose de muestras:
+Artículo 130,-Para efectos de exportación e importación se consideran como productos forestales los que a continuación se indican requiriendo, consecuentemente, la autorización e inspección previa de la DGF, aún tratándose de muestras:
 1-Madera en troza para fines de investigación.
 2-Madera aserrada o madera cepillada.
 3-Postes para alumbrado.
@@ -31,5 +31,5 @@ Artículo 130,-Para efectos de exportación e importación se consideran como pr
 30-Bambú.
 31-Arboles.
 32-Pulpa.
-33-Madera moldura (espesor no mayor de 5 cm ).
-34-Cualquier otro producto forestal a juicio de la DGF , que se tendrá como incluido en la presente lista.
+33-Madera moldura (espesor no mayor de 5 cm).
+34-Cualquier otro producto forestal a juicio de la DGF, que se tendrá como incluido en la presente lista.

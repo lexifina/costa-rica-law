@@ -14,3 +14,4 @@ Reglamento Ley Forestal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-05-30 | la propia norma |
+| 2 | 1986-05-30 | SINALEVI (sin norma nombrada) |

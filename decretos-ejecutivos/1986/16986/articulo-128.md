@@ -1,1 +1,1 @@
-Artículo 128.- La DGF determinará por vía administrativa la forma de medir los distintos productos forestales, las normas de clasificación y garantías para su comercialización interna y de exportación y lo pondrá en conocimiento de los interesados por los medios de comunicación colectiva.
+Artículo 128.-La DGF determinará por vía administrativa la forma de medir los distintos productos forestales, las normas de clasificación y garantías para su comercialización interna y de exportación y lo pondrá en conocimiento de los interesados por los medios de comunicación colectiva.

@@ -16,4 +16,6 @@ MAG: Ministerio de Agricultura y Ganadería.
 SPN: Servicio de Parques Nacionales.
 Consejo: Consejo Forestal Nacional.
 CAF: Certificado de Abono Forestal.
-La Ley : Ley Forestal.
+La Ley: Ley Forestal.
+GAR: Guardia de Asistencia Rural.
+PRF: Programa Regional Forestal.

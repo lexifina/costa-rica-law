@@ -1,1 +1,1 @@
-Artículo 82.-No se podrán realizar labores de pastoreo en bosques y terrenos forestales sin la autorización de la DGF , para lo cual re establecerán administrativamente los requisitos necesarios de acuerdo con la extensión y características fisiográficas y ecológicas del área, entre otros.
+Artículo 82.-No se podrán realizar labores de pastoreo en bosques y terrenos forestales sin la autorización de la DGF, para lo cual re establecerán administrativamente los requisitos necesarios de acuerdo con la extensión y características fisiográficas y ecológicas del área, entre otros.

@@ -1,1 +1,1 @@
-3.-La DGF dentro de los noventa días posteriores a la publicación del presente Reglamento, deberá dictar las disposiciones referentes a forma de medición, normas de clasificación y garantía para la comercialización interna y exportación de los diferentes productos forestales.
+3.- La DGF dentro de los noventa días posteriores a la publicación del presente Reglamento, deberá dictar las disposiciones referentes a forma de medición, normas de clasificación y garantía para la comercialización interna y exportación de los diferentes productos forestales.
