@@ -1,0 +1,1 @@
+Artículo 8°—Los miembros del Consejo Directivo permanecerán en sus cargos dos años, excepto el representante estudiantil que durará uno, y podrán ser reelegidos. La credencial se perderá por ausencia a tres sesiones consecutivas o a seis alternas, en ambos casos injustificadas.

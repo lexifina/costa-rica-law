@@ -1,0 +1,1 @@
+Artículo 9°—Los integrantes del Consejo Directivo que no sean funcionarios de la Institución, obtendrán una retribución económica por concepto de asistencia a sesiones, la cual estará fijada en el presupuesto. No podrán pagarse más de tres sesiones al mes. El representante estudiantil no tendrá derecho al estipendio, pero sí gozará de exención del pago de matrícula.
