@@ -1,1 +1,0 @@
-ARTÍCULO °4.-La Aduana auxiliar de Limón, como aduana de tránsito para las mercaderías que deban venir á la de esta capital, desempeñar las funciones que el Código Fiscal y demás disposiciones establecían para las aduanas de esa clase.

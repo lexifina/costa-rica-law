@@ -1,2 +1,0 @@
-ARTÍCULO 3°.-La aduana auxiliar de Limón ser también de registro para las mercaderías destinadas á esa comarca; para las que destinadas á otros puntos estuvieren exentas de derechos, siempre que á solicitud del interesado lo disponga así la Secretaría de Hacienda, y para las que se exporten al extranjero.
-Como Aduanas de registro desempeñarán una y otra las atribuciones que á las de esa clase señalan el Código Fiscal y demás leyes vigentes sobre la materia.
