@@ -1,0 +1,1 @@
+Artículo 8°-Las comunicaciones del BANHVI en materia de supervisión auxiliar, se efectuarán por medio de su Gerente General o a la instancia que esa Gerencia General autorice, previa notificación a la SUGEF.

@@ -1,0 +1,7 @@
+Artículo 2°-Para los efectos de este Reglamento se entenderá por:
+SUGEF: Superintendencia General de Entidades Financieras.
+BANHVI: Banco Hipotecario de la Vivienda.
+Sistema: Sistema Financiero Nacional para la Vivienda. Entidades autorizadas: Las instituciones y entes públicos y privados autorizados por el BANHVI para operar dentro del Sistema y que conforme a lo dispuesto en el Artículo 116 de la Ley Orgánica del Banco Central de Costa Rica, realicen intermediación financiera.
+Ente Supervisor Auxiliar: EI Banco Hipotecario de la Vivienda, institución de derecho público y por mandato expreso de la ley, apoyará a la SUGEF en la fiscalización de las entidades autorizadas;
+Ente Supervisor Auxiliar: El Banco Hipotecario de la Vivienda, institución de derecho público y por mandato expreso de la ley, apoyará a la SUGEF en la fiscalización de las entidades autorizadas así como en la asesoría, evacuación de consultas y similares relacionadas con los trabajos realizados en dichas entidades. Es entendido que la asesoría se hará sin perjuicio de las decisiones y opiniones que al efecto pueda emitir la SUGEF.
+Supervisión Auxiliar: Es la función de colaborar con la SUGEF en la fiscalización de las entidades autorizadas, con el fin de velar por el cumplimiento de las disposiciones legales y reglamentarias vigentes, asimismo con las directrices que para estos efectos lIegare a dictar la SUGEF.

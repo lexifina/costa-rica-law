@@ -1,0 +1,5 @@
+Artículo l3.-Los trabajos de fiscalización que efectúe el Ente Supervisor Auxiliar, conforme requerimientos de SUGEF, deben contemplar como mínimo:
+a.Evaluación y profundización de los riesgos mas relevantes que pueda estar enfrentando una entidad autorizada y que pueda estar enfrentando una autoridad autorizada y que pueda ocasionar deterioro en su estabilidad financiera, conforme con los requerimientos emitidos por la SUGEF.
+b.Existencia y aplicación de procedimientos y políticas para la concesión de créditos y realizaci6n de inversiones, así como otras operaciones relacionadas con las actividades propias de las entidades fiscalizadas.
+c.Evaluación de los sistemas de control interno, para determinar la calidad de los mismos y su aplicación en las operaciones revisadas que realiza la entidad fiscalizada. Para esto tomara en cuenta de previo las evaluaciones realizadas por la auditoria interna y auditoria externa de la entidad, tomando en consideración la frecuencia, alcance y comprobaciones llevadas a cabo.
+d.Acatamiento de las disposiciones legales y reglamentarias que sean pertinentes.

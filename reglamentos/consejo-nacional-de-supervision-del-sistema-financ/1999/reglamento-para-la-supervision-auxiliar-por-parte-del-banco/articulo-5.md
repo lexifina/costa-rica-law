@@ -1,0 +1,1 @@
+Artículo 5°-La SUGEF podrá solicitar al Ente Supervisor Auxiliar, e independientemente de lo indicado en el Artículo 3 anterior y previa coordinación con este, cualquier información adicional referente a las entidades supervisadas conforme a directrices emitidas para cada caso particular.
