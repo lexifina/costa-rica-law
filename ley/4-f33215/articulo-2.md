@@ -1,0 +1,1 @@
+Artículo 2°-Los que tengan más de treinta años de servicio y más de cincuenta de edad, tendrán derecho a pedir su pensión con una cantidad mensual igual al promedio de los sueldos devengados en los últimos cinco años.

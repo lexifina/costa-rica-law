@@ -1,0 +1,1 @@
+Artículo 12.-Los pagos de pensiones se harán por medio de giros mensuales, extendidos por el Director o Jefe de la oficina respectiva, a la orden del pensionado y contra el Tesoro Nacional, en la misma forma y con los trámites usuales para el pago corriente de sueldos.
