@@ -1,0 +1,12 @@
+MUNICIPALIDAD DE TILARAN
+PROYECTO DE REGLAMENTO DE lNCENTlVOS TRIBUTARIOS
+EI Concejo Municipal de Tilarán en la sesión ordinaria numero cuarenta y uno, celebrada el doce de febrero del dos mil tres, Capítulo de Informe de Comisiones, articulo 40, Acuerdo N° 51, se acordó por unanimidad y en firme aprobar el Proyecto de Reglamento de incentivos Tributarios. Dicho reglamento se transcribe a continuación.
+PROYECTO DE REGLAMENTO DE lNCENTlVOS TRIBUTARIOS.
+1°-Que el otorgamiento de incentivos por pronto pago de los tributos municipales beneficia al contribuyente en forma económica disminuyendo la carga tributaria.
+2°-Que la Municipalidad de Tilarán, se beneficia desde el punta de vista económico al recaudar por adelantado sus ingresos por concepto de tributos municipales.
+3°-Que la aplicación del incentivo económico fortalece la acción financiera y disminuye el pendiente de cobro, lo que a su vez reduce los costos operativos destinados a la gestión y recaudación de tributos.
+4°-Que se incrementara la eficacia y la eficiencia en la gestión de cobro y recaudación de los tributos municipales, si la actividad operacional disminuyera, optimizando y maximizando los recursos humanos y técnicos.
+5°-Que el artículo 69 del Código Municipal establece la facultad de otorgar incentivos a los contribuyentes que, en el primer trimestre, cancelen por adelantado los tributos de todo el año.
+6°-Que el artículo veinticinco de la Ley de Impuestos sobre Bienes Inmuebles, indica que la Municipalidad podrá crear incentivos para el pago adelantado del impuesto sobre bienes inmuebles, hasta en un porcentaje equivalente a la tasa básica pasiva del Banco Central en el momento del pago.
+De conformidad con las anteriores consideraciones y las disposiciones de los artículos 169 y 170 de la Constitución Política, en relación con el numeral 4, párrafo primero, inciso a) y 13, incisos c) y d), 43 y 62, párrafo tercero del Código Municipal vigente, se emite el presente Proyecto de Reglamento para el Otorgamiento de Incentivos Tributarios a los contribuyentes de la Municipalidad del cantón de Tilarán, que se regirá por las siguientes disposiciones:
+Artículo 1°-Del incentivo. Se aplicará un descuento, en forma porcentual, por el pago adelantado que el contribuyente realice de sus tributos municipales del todo el año, no obstante para hacerse acreedor de este incentivo, deberá pagar todos los tributos que se encuentren registrados, a su nombre, en la base de datos de la Municipalidad de Tilarán. Dicha aplicación será automatizada en el momento de su cancelación.
