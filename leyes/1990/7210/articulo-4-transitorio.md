@@ -1,1 +1,2 @@
-Texto no disponible
+TRANSITORIO IV.- Se autoriza al Ministerio de Trabajo y Seguridad Social para atender, con cargo al fondo del Programa nacional para la generación de empleo, las obligaciones contraídas, antes de la vigencia de esta Ley, con empresas localizadas en zonas de menor desarrollo relativo y que se deriven de la aplicación de ese Programa.
+(Así adicionado por el artículo 2º de la ley Nº 7467 de 20 de diciembre de 1994)

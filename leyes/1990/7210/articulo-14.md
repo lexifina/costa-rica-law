@@ -1,5 +1,3 @@
-ARTICULO 14.- Los administradores de los parques y las empresas amparadas
-por el Régimen de Zona Franca proveerán a la Dirección General de Aduanas
-las facilidades y asistencia requeridas, por ésta, para el cumplimiento de
-sus responsabilidades, relativas a la fiscalización e inspección de los
-materiales y mercaderías que entren y salgan de las Zonas Francas.
+ARTÍCULO 14.- Los administradores de los parques y las empresas amparadas por el Régimen de Zona Franca proveerán a la Dirección General de Aduanas las facilidades y asistencia requeridas, por ésta, para el cumplimiento de sus responsabilidades, relativas a la fiscalización e inspección de los materiales y mercaderías que entren y salgan de las Zonas Francas.
+Igualmente, esos administradores suministrarán al Ministerio de Comercio Exterior y a PROCOMER las facilidades y la asistencia que estas entidades requieran para ejercer sus funciones relativas a las empresas beneficiarias del Régimen de Zonas Francas.
+(Así adicionado el párrafo anterior por el artículo 2º, inciso a), de la ley No.7830 de 22 de setiembre de 1998)
