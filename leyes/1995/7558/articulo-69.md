@@ -1,0 +1,4 @@
+Artículo 69.- Cámara de compensación
+La Junta Directiva del Banco Central organizará y reglamentará el funcionamiento de la Cámara de Compensación de tal forma que se garantice, a los usuarios de los servicios financieros y bancarios, que las entidades autorizadas para operar en la Cámara acreditarán el valor de los instrumentos compensables propios y los pertenecientes a otros intermediarios, a más tardar al día siguiente de haberlos recibido.
+La Cámara será un organismo auxiliar del Banco Central y estará sometida a la vigilancia y fiscalización de la Superintendencia General de Entidades Financieras.
+El Banco Central podrá establecer sistemas electrónicos de transferencia de fondos y compensación de pagos y deberá cobrar por la prestación de esos servicios. El funcionamiento de esos sistemas será reglamentado por la Junta Directiva del Banco Central, la cual será la encargada de establecer las tarifas que se cobrarán a los usuarios.

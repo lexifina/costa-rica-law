@@ -1,0 +1,2 @@
+Artículo 89.- Transacciones del sector público no bancario
+Las instituciones del sector público no bancario efectuarán sus transacciones de compra-venta de divisas por medio del Banco Central o de los bancos comerciales del Estado, en los que este delegue la realización de tales transacciones. En todo caso, estas transacciones se realizarán a los tipos de cambio del día, fijados por el Banco Central para sus operaciones.

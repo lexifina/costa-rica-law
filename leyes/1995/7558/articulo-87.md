@@ -1,0 +1,2 @@
+Artículo 87.- Compra-venta de divisas
+El Banco Central podrá comprar y vender divisas en el mercado, para evitar fluctuaciones violentas del tipo de cambio y para llenar sus propias necesidades, de acuerdo con lo establecido en el artículo 28 de esta ley. La Junta Directiva deberá dictar la política de compra venta de divisas del Banco Central en el mercado cambiario. En consecuencia, debe establecer los límites dentro de los cuales puede actuar la Administración del Banco.

@@ -1,0 +1,1 @@
+TRANSITORIO VII.- Al entrar en vigencia la presente ley, la Junta Directiva del Banco Central procederá a nombrar a los miembros del Consejo Directivo de la Superintendencia General de Entidades Financieras por los términos necesarios que permitan dar cumplimiento a lo establecido en el artículo 122 de la presente ley.

@@ -1,0 +1,1 @@
+TRANSITORIO II.- No podrá realizarse ninguna operación de redescuento, según lo establecido en el artículo 52 de esta ley, antes de que se haya emitido el respectivo reglamento, el cual deberá contener los criterios para establecer los montos de redescuento a que tendrán acceso las instituciones financieras.

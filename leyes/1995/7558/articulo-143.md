@@ -1,0 +1,2 @@
+Artículo 143.- Denominación de las empresas
+Sólo las empresas que formen parte de un grupo financiero registrado ante el órgano supervisor correspondiente, podrán utilizar denominaciones iguales o semejantes a las usadas por otras entidades financieras, actuar de manera conjunta, ofrecer servicios complementarios o presentarse como parte de un mismo grupo financiero. Lo anterior sin perjuicio de las limitaciones previstas en la ley en cuanto al uso de ciertas denominaciones como "banco", "financiera" u otras semejantes.

@@ -1,0 +1,2 @@
+Artículo 91.- Liquidación de divisas
+Toda persona física o jurídica que haya obtenido divisas por la exportación de bienes, servicios y turismo, deberá liquidarlas en alguno de los entes autorizados o demostrar su ingreso al país ante el Banco Central, por los medios que este determine. La Junta establecerá, en el reglamento correspondiente, los plazos y las demás condiciones para cumplir con este requisito.

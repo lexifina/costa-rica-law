@@ -1,0 +1,3 @@
+Artículo 30.- Nombramiento del Vicepresidente
+La Junta Directiva del Banco Central nombrará de su seno, anualmente, un Vicepresidente, quien reemplazará al Presidente en sus ausencias o en caso de impedimento temporal, con todas las atribuciones, facultades y deberes.
+El Vicepresidente podrá ser reelegido. Cuando en alguna sesión ambos estuvieren ausentes, la Junta nombrará a uno de sus miembros como director del debate quien, en tal caso, tendrá las atribuciones, facultades y deberes del Presidente en relación con la Junta Directiva. La designación del Vicepresidente no podrá recaer en el Ministro de Hacienda.

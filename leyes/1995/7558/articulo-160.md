@@ -1,0 +1,4 @@
+Artículo 160.- Trámite de denuncias
+El Superintendente e Intendente Generales serán responsables de denunciar, al Ministerio Público, los actos ilícitos de que tuviere conocimiento, para que se impongan las sanciones señaladas en la presente ley y otras leyes conexas, por medio de los tribunales competentes, a las entidades fiscalizadas, así como a los directores, apoderados, funcionarios y empleados que infrinjan las disposiciones legales respectivas.
+Al momento de sentar la denuncia, las entidades fiscalizadas deberán constituir una provisión contable, por un monto equivalente al de la posible responsabilidad estimada por el Superintendente, hasta que se dicte sentencia.
+Los actos ilícitos denunciados por la Superintendencia al Ministerio Público, relacionados con una entidad fiscalizada o sus directores, apoderados, funcionarios o empleados, deberán ser puestos en conocimiento de la asamblea de sus miembros, la cual deberá ser convocada de inmediato.

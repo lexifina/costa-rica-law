@@ -1,0 +1,4 @@
+Artículo 63.- Límite del encaje mínimo
+La Junta Directiva del Banco Central fijará los encajes mínimos legales con respecto al saldo de los depósitos y las captaciones, con un límite máximo de un quince por ciento (15%). El porcentaje de encaje mínimo que establezca la Junta será de aplicación general para todo tipo de depósitos o captaciones y para todas las instituciones. La única diferencia que podrá establecerse en el nivel de encajes es entre los depósitos o captaciones en colones y en moneda extranjera.
+El Banco Central no reconocerá interés alguno sobre el encaje, salvo lo establecido en el artículo 80 de esta ley.
+Estarán sujetas a encaje las entidades que lleven a cabo operaciones de intermediación, definidas como tales en el artículo 116. En el caso del Banco Popular y de Desarrollo Comunal únicamente serán sujeto de encaje los depósitos por concepto de cuenta corriente.

@@ -1,0 +1,2 @@
+Artículo 98.- Riesgos
+Correrán por cuenta de los entes autorizados, los riesgos inherentes al incumplimiento de las letras por ellos adquiridas y de los contratos correspondientes, así como el riesgo de que sus depósitos en divisas no fuesen reembolsados por sus corresponsales y cualesquiera otros riesgos típicamente comerciales o bancarios, que afectaren las divisas que hubiesen comprado, las hubiesen traspasado al Banco Central o no. Correrán por cuenta del Banco Central, los mismos riesgos en relación con sus propias compras y tenencias de monedas extranjeras.

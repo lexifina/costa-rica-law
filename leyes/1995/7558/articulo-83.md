@@ -1,0 +1,3 @@
+Artículo 83.- Ventas de divisas de exportación
+Cuando, a juicio de la Junta Directiva del Banco Central, exista un desequilibrio de la balanza de pagos que no puede ser enfrentado con los instrumentos que fija esta ley, la Junta Directiva podrá establecer que toda persona, física o jurídica, que haya obtenido divisas por concepto de exportaciones de bienes y servicios, deba venderlas, total o parcialmente, a las entidades autorizadas para operar en ese mercado, en los plazos que ella determine. Esta medida no podrá establecerse por un período mayor de un año.
+La Junta, cuando use esta potestad, deberá respetar las excepciones establecidas por leyes especiales y no podrá adicionar excepción alguna o trato discriminatorio.

@@ -1,0 +1,4 @@
+Artículo 44.- Derecho de emisión
+El Banco Central tendrá el derecho exclusivo de la emisión de billetes y monedas en el territorio nacional. Ni el Estado ni ninguna otra persona, natural o jurídica, podrá emitir billetes, monedas ni otros documentos o títulos que puedan circular como dinero.
+Se exceptúan de esta prohibición las personas autorizadas, en forma temporal y restringida, por leyes especiales, para usar signos representativos de dinero, en la forma y las condiciones establecidas en tales leyes. Tampoco rige esta prohibición para los documentos de pago o de crédito de carácter mercantil, tales como letras de cambio, cheques, pagarés y cualesquiera otros de ese género, cuya circulación limitada esté reconocida y establecida por las leyes.
+Cualquier contravención a las disposiciones de este artículo será castigada con una multa equivalente al veinticinco por ciento (25%) del monto total emitido.

@@ -1,0 +1,1 @@
+TRANSITORIO IV.- El Banco Central y la Superintendencia podrán realizar la reorganización administrativa que consideren oportuna para el cumplimiento de las funciones y atribuciones que, por esta ley, se le otorgan. Dicha reorganización podrá incluir la creación, supresión o transformación de plazas.

@@ -1,0 +1,1 @@
+TRANSITORIO XII.- El Departamento de Fomento del Banco Central de Costa Rica, a que se refiere el Capítulo III de esta ley, ejercerá las atribuciones allí indicadas hasta el 31 de diciembre de 1996; fecha máxima en que estas funciones deben ser asumidas por una nueva entidad o fondo que se ha de crear al efecto.

@@ -1,0 +1,2 @@
+Artículo 80.- Plazo para aumentar encajes legales
+La Junta Directiva, durante un plazo máximo de seis meses, podrá aumentar los encajes legales por encima del límite del quince por ciento (15%) establecido en el artículo 63 de esta ley y hasta un máximo del veinticinco por ciento (25%). Sobre el exceso del quince por ciento (15%), el Banco Central deberá pagar una tasa de interés igual a la tasa básica pasiva para dicho exceso en colones, y la tasa LIBOR a seis meses para los excesos de encajes en monedas extranjeras.

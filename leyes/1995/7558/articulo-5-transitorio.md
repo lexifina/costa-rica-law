@@ -1,0 +1,1 @@
+TRANSITORIO V.- Al entrar en vigencia la presente ley, el Banco Central procederá a nombrar al Intendente General de Entidades Financieras. El cargo de Superintendente General será ocupado por quien actualmente funge como Auditor General de Entidades Financieras hasta el vencimiento del plazo para el que fue nombrado.

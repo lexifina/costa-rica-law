@@ -1,0 +1,1 @@
+TRANSITORIO IX.- La Junta Directiva del Banco Central tendrá un plazo de seis meses a partir de la vigencia de esta ley, para ajustar la aplicación de los instrumentos monetarios a esta nueva normativa.

@@ -1,0 +1,2 @@
+Artículo 127.- Prohibición
+Ningún funcionario de la Superintendencia podrá ser director, gerente, representante legal, personero, empleado o socio de ninguna de las entidades sujetas a la fiscalización de la Superintendencia, ni tener participación, directa o indirecta, en esas entidades, excepto ser asociado en las cooperativas de ahorro y crédito, en las mutuales de vivienda o en las asociaciones de los propios empleados de la Superintendencia General de Entidades Financieras o del Banco Central de Costa Rica.
