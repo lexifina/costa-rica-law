@@ -15,24 +15,16 @@ investigación o desarrollo:
 a) el derecho de que le sean reveladas, sin pago, todas las
 invenciones y la información técnica generadas por el trabajo de que se
 trate;
-b) (Texto Actual) el derecho, sin pago alguno, de revelar y hacer que
-se revelen estas invenciones e información técnica a las Partes, a los
-signatarios y a otras personas sometidas a la jurisdicción de cualquier
-Parte, y el de utilizar tales invenciones e información técnica, en
-relación con el segmento, espacial de INMARSAT y toda estación terrena
-terrestre, de barco o de aeronave que opere en asociación con dicho
-segmento, así como el de autorizar y hacer que se autorice a las Partes,
-a los Signatarios y a las otras personas mencionadas a que utilicen dichas
-invenciones e información;
-b) (Texto Enmendado) el derecho, sin pago alguno, de revelar y hacer
-que se revelen estas invenciones e información técnica a las Partes, a los
-Signatarios y a otras personas sometidas a la jurisdicción de cualquier
-Parte, y el de utilizar tales invenciones e información técnica, en
-relación con el segmento espacial de INMARSAT y toda estación terrena
-móvil o terrena terrestre que opere en asociación con dicho segmento, así
-como el de autorizar y hacer que se autorice a las Partes, a los
-Signatarios y a las otras personas mencionadas a que utilicen dichas
-invenciones e información;
+b) el derecho, sin pago alguno, de revelar y hacer que se revelen
+estas invenciones e información técnica a las Partes, a los Signatarios y
+a otras personas sometidas a la jurisdicción de cualquier Parte, y el de
+utilizar tales invenciones e información técnica, en relación con el
+segmento espacial de INMARSAT y toda estación terrena móvil o terrena
+terrestre que opere en asociación con dicho segmento, así como el de
+autorizar y hacer que se autorice a las Partes, a los Signatarios y a las
+otras personas mencionadas a que utilicen dichas invenciones e
+información;
+(Así reformado según enmienda incluida en la misma ley de emisión)
 3.- En el caso de trabajos efectuados por contrato, los contratistas
 conservarán la propiedad de los derechos sobre las invenciones y la
 información técnica que genere el contrato.
@@ -73,12 +65,10 @@ revelar o hacer que se revelen a otras personas sometidas a la
 jurisdicción de cualquier Parte y el de utilizar dichas invenciones e
 información técnica, así como autorizar y hacer que se autorice a las
 citadas personas a que las utilicen también:
-i) (Texto Actual) sin pago alguno, en relación con el segmento
-espacial de INMARSAT o con cualquier estación terrena en tierra, de barco
-o de aeronave que opere con el mismo;
-i) (Texto Enmendado) sin pago alguno, en relación con el
-segmento espacial de INMARSAT o con cualquier estación terrena terrestre
-o terrena móvil que opere con el mismo;
+i) sin pago alguno, en relación con el segmento espacial de
+INMARSAT o con cualquier estación terrena terrestre o terrena móvil que
+opere con el mismo;
+(Así reformado según enmienda incluida en la misma ley de emisión)
 ii) para cualquier otro propósito, en condiciones justas y
 razonables que habrán de ser convenidas entre los Signatarios u otras
 personas o entidades sometidas a la jurisdicción de cualquier Parte, y la

@@ -10,22 +10,15 @@ las disposiciones del presente Convenio y con los propósitos y principios
 de la Carta de las Naciones Unidas, y con lo dispuesto en cualquier otro
 tratado en virtud del cual la Organización haya contraído obligaciones por
 decisión propia;
-c) (Texto Actual), autorizar, previa recomendación del Consejo, el
-establecimiento de instalaciones adicionales de segmento espacial cuyo
-propósito especial o primordial sea proveer servicios de
-radiodeterminación, de socorro y de seguridad. Sin embargo, las
-instalaciones de segmento espacial establecidas para proveer servicios
-marítimos y aeronáuticos de correspondencia pública podrán utilizarse para
-las telecomunicaciones destinadas a operaciones de socorro, seguridad y
+c) autorizar, previa recomendación del Consejo, el establecimiento de
+instalaciones adicionales de segmento espacial cuyo propósito especial o
+primordial sea proveer servicios de radiodeterminación, de socorro y
+seguridad. Sin embargo, las instalaciones de segmento espacial
+establecidas para proveer servicios marítimos, aeronáuticos y otros
+servicios móviles de correspondencia pública podrán utilizarse para las
+telecomunicaciones destinadas a operaciones de socorro, seguridad y
 radiodeterminación, sin dicha autorización;
-c) (Texto Enmendado) autorizar, previa recomendación del Consejo, el
-establecimiento de instalaciones adicionales de segmento espacial cuyo
-propósito especial o primordial sea proveer servicios de
-radiodeterminación, de socorro y seguridad. Sin embargo, las instalaciones
-de segmento espacial establecidas para proveer servicios marítimos,
-aeronáuticos y otros servicios móviles de correspondencia pública podrán
-utilizarse para las telecomunicaciones destinadas a operaciones de
-socorro, seguridad y radiodeterminación, sin dicha autorización;
+(Así reformado según enmienda incluida en la misma ley de emisión)
 d) decidir acerca de otras recomendaciones del Consejo y expresar su
 opinión sobre los informes de este;
 e) elegir cuatro representantes en el Consejo de conformidad con el
