@@ -1,0 +1,1 @@
+Articulo 32.—Solo podrán realizarse inhumaciones de cuerpos cuyo fallecimiento se encuentre entre las 24 y las 36 horas después de ocurrido el deceso. Y solamente en casos determinados por autoridad de salud o judicial, podrá realizarse fuera de estas horas.

@@ -1,0 +1,1 @@
+Articulo 30.—La inhumaciones deberán realizarse en cajas de madera liviana de fácil descomposición, y solo con autorización del Ministerio de Salud se permitirán funerales en cajas metálicas selladas.

@@ -1,0 +1,1 @@
+Articulo 60. —Se faculta a la municipalidad para que se notifique por medio de avisos colocados en ¡a oficina del cementerio, sobre las deudas y otros que tengan que notificarse a aquellos propietarios que no hayan registrado el lugar para oír notificaciones.

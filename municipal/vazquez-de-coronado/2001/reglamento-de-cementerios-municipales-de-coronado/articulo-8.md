@@ -1,0 +1,1 @@
+Articulo 8°—El área del cementerio estará dividida según el plano general del cementerio, en cuadros, los que subdividen en líneas y estas a su vez, se subdividen en tosas, las que contendrán los nichos respectivos.

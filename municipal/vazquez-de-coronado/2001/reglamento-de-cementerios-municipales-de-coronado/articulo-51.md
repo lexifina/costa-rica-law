@@ -1,0 +1,1 @@
+Articulo 51. —Para sufragar los pagos a realizar por instalación de nuevos cementerios, se destinarán los ingresos por arriendo de derechos, que serán determinados en razón del cosió efectivo de instalación del cementerio, más los costos financieros, un 10% de gastos administrativos de un 5% para desarrollo.

@@ -1,0 +1,1 @@
+Articulo 43.—Queda prohibida la exhumación ordinaria de los fallecidos de Coccidiodomicosis o Fiebre del Valle de San Joaquín. Las exhumaciones extraordinarias de los fallecidos por Coccidiodomicosis o Fiebre del Valle de San Joaquín, Peste, Cólera o Fiebre Amarilla, requieren necesariamente del permiso escrito del Departamento de Vigilancia Epidemiología del Ministerio de Salud.

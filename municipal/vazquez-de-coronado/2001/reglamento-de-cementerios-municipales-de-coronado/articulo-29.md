@@ -1,0 +1,1 @@
+Articulo 29.—Las inhumaciones se realizarán de las 7,00 horas a las 17,00 horas, de conformidad con el Reglamento General, los cuerpos deberán estar en el cementerio 30 minutos antes de la hora señalada, y solamente en casos determinados por autoridad de salud o judicial, podrá realizarse fuera de estas horas, debiendo el interesado sufragar los costos que ello demande.

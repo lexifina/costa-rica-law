@@ -1,0 +1,1 @@
+Articulo 42.—Una vez retirados los restos del cementerio, la responsabilidad sobre el cuido, transporte y uso que se le de a los mismos correrá por cuenta del solicitante, liberando a la municipalidad de tal responsabilidad.

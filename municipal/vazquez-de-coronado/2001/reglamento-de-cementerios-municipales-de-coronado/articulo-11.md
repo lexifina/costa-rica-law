@@ -1,0 +1,1 @@
+Artículo 11.—Los derechos solo podrán ser traspasados a terceras personas físicas, ajenas a la familia, cuando no hayan sido ocupados, y cuando habiendo sido usados se hubiesen exhumado los restos que contengan.

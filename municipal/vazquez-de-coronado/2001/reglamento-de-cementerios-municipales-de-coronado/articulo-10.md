@@ -1,0 +1,1 @@
+Articulo 10.—El propietario es el autorizado para realizar gestiones que le otorgan el presente reglamento en su derecho. Deberá nombrar por lo menos dos personas a quienes se autorizara para que realicen gestiones en nombre del titular y en ausencia de este.

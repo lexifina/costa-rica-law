@@ -1,0 +1,1 @@
+Articulo 26. —Todo propietario de un derecho deberá mantener en buen estado de conservación y presentación su bóveda, bastará notificación de las anomalía, para que en un plazo de dos meses proceda a las reparaciones respectivas. Caso contrario, no se permitirán inhumaciones o exhumaciones en esa bóveda.

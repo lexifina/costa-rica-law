@@ -1,0 +1,1 @@
+Articulo 53.—Todos los ingresos que genere el cementerio serán depositados en Caja Municipal, asignada para tal efecto y depositados en la cuenta corriente municipal, debiendo emitir un recibo debidamente sellado y firmado.
