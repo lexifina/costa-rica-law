@@ -1,4 +1,2 @@
 ARTÍCULO 9.- Fondos
-Los fondos provenientes de la aplicación de esta ley serán destinados
-exclusivamente al programa de difusión de la Cruz Roja Costarricense.
-Rige a partir de su publicación.
+DEROGADO por el artículo 11 de la Ley N° 8031 de 19 de octubre del 2000.
