@@ -1,0 +1,1 @@
+Artículo 4°—El presidente del Consejo podrá invitar y convocar a sesiones del Consejo a personas que por su experiencia y conocimiento considere oportuno, con el propósito de dar cumplimento a los fines y funciones de este Consejo.

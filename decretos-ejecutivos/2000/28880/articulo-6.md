@@ -1,0 +1,1 @@
+Artículo 6°—Este consejo se reunirá ordinariamente una vez al mes y extraordinariamente cuando el Ministro de Ciencia y Tecnología lo considere necesario, en ambos casos este será quien realice la convocatoria.
