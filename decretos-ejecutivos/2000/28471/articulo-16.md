@@ -1,0 +1,3 @@
+SECCION III
+De la Dirección de Aplicación de Acuerdos Comerciales Internacionales
+Artículo 16.—La Dirección de Aplicación de Acuerdos Comerciales Internacionales tendrá a su cargo la verificación del cumplimiento, tanto por parte del Gobierno de Costa Rica como por parte de los gobiernos de sus socios comerciales, de todas las obligaciones derivadas de los tratados, acuerdos y demás instrumentos comerciales o de inversión bilaterales, regionales o multilaterales suscritos por el país. Esta Dirección tendrá también a su cargo la evaluación periódica de la aplicación de dichos tratados y acuerdos, tanto en términos económicos como jurídicos.
