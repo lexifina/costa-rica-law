@@ -1,0 +1,11 @@
+ARTICULO 4.- Sujeción al ordenamiento jurídico
+Las normas, las disposiciones y los procedimientos contenidos en
+estos contratos de préstamo y sus anexos, prevalecerán sobre lo que se
+estipule acerca de la materia en el ordenamiento jurídico interno, excepto
+en cuanto al manejo de los recursos provenientes de dichos créditos, los
+cuales serán administrados por la Tesorería Nacional, atendiendo al
+principio de caja única del Estado.
+En lo relativo a la ejecución del proyecto, el organismo ejecutor, se
+conformará respetando la legislación nacional, de modo que los alcances de
+los artículos contenidos en los contratos de préstamo, quedarán limitados
+a lo dispuesto en el ordenamiento costarricense.
