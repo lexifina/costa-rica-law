@@ -1,0 +1,1 @@
+Artículo 26.—Recurso de reposición. Contra la resolución final podrá interponerse el recurso de reposición ante la Presidencia Ejecutiva, por cualquiera de las partes dentro de los 5 días hábiles siguientes a la notificación de la resolución.

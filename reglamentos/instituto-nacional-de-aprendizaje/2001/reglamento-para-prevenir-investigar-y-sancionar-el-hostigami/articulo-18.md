@@ -1,0 +1,1 @@
+Artículo 18.—Comunicación de la denuncia. En el plazo de tres días hábiles contados a partir de recibida la denuncia la Presidencia Ejecutiva o el O.D.P. según corresponda, deberán informar a la Defensoría de los Habitantes de la denuncia recibida.

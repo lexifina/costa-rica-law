@@ -1,0 +1,9 @@
+Artículo 2°—Nomenclatura y definiciones. Para efectos de este reglamento se entenderá por:
+1. INA: El Instituto Nacional de Aprendizaje.
+2. ODP: órgano director del procedimiento.
+3. La Comisión: La comisión de hostigamiento sexual.
+4. Condiciones materiales de empleo: se refiere a todas aquellas manifestaciones que suceden en el ámbito de las relaciones laborales, tales como modificaciones perjudiciales al salario, a los incentivos salariales y de otra índole, rebajas de horas extras, alteración de derechos, despidos, traslados, permutas, eliminación de beneficios y cualquier otro trato discriminatorio en intención o resultado.
+5. Condiciones materiales de docencia: Se refiere a todas aquellas manifestaciones que suceden en el ámbito de las relaciones docentes, tales como trato desigual en evaluaciones, becas, ubicación, hospedaje, asignación de trabajos, pruebas, horarios y cualquier otro trato discriminatorio en intención o resultado.
+6. Desempeño y cumplimiento laboral o educativo: son todas las acciones que afectan el desarrollo normal de las relaciones laborales y que originen baja eficiencia, ausencias, incapacidades, desmotivación, deserción, alteración de estados de ánimo, estrés.
+7. Estado general de bienestar personal: son todas aquellas acciones que afectan negativamente el estado general necesario para enfrentar las actividades de la vida cotidiana, tales como estrés, inseguridad, ansiedad, jaqueca, asco, nervios.
+8. Acoso u hostigamiento sexual: el acoso u hostigamiento sexual es toda conducta con un contenido sexual indeseada por quien la recibe, reiterada, y que perjudique a la víctima en las condiciones materiales de empleo o de docencia, en el desempeño y cumplimiento laboral o educativo, o en el estado general de bienestar personal. También se considera hostigamiento sexual la conducta grave que ocurra al menos una vez.

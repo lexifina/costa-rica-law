@@ -1,0 +1,2 @@
+Artículo 24.—De la valoración de la prueba. Para la valoración de la prueba deberán tomarse en consideración todos los elementos indiciarios y directos aportados. Para los efectos probatorios deberán tomarse en cuenta las alteraciones provocadas por los hechos que se denuncian en el estado de ánimo de la persona que presente la denuncia, así como en su desempeño, cumplimiento y dinámica laboral.
+Cualquier valoración de la vida personal de la o el denunciante es improcedente e ilegal.

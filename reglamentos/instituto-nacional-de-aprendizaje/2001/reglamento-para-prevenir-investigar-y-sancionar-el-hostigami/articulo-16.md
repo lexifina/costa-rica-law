@@ -1,0 +1,1 @@
+Artículo 16.—De la persona denunciante. La persona que presenta una denuncia por hostigamiento sexual será considerada como parte en el proceso que se instruya, para efecto de la defensa de sus derechos dentro del mismo.

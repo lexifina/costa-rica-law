@@ -1,0 +1,2 @@
+Artículo 7°—Designación de los miembros de la Comisión. La persona representante de la Unidad de Recursos Humanos y Asesoría de Formación Profesional de la Mujer deberán tener conocimiento sobre el tema de hostigamiento sexual y serán designadas por las respectivas jefaturas.
+La persona representante de las Unidades Regionales será nombrada por la Jefatura de la Subgerencia Técnica de entre las personas encargadas de dichas Unidades.

@@ -1,0 +1,1 @@
+Artículo 12.—Sesiones de la comisión. La comisión sesionará en forma ordinaria como mínimo dos veces al año. Podrán sesionar en forma extraordinaria cuando así lo disponga la persona que preside quien deberá convocar con al menos 3 días hábiles de anticipación. Si todos los miembros se encuentran presentes se puede prescindir del requisito de previa convocatoria.

@@ -1,0 +1,2 @@
+Artículo 25.—Conclusión y resolución. El O.D.P, deberá rendir un informe sobre los hechos denunciados a la Presidencia Ejecutiva, mediante el cual se emitirán las conclusiones del proceso y las recomendaciones correspondientes.
+El procedimiento correspondiente no puede exceder de 3 meses incluyendo el dictado de la resolución final, contados a partir del recibo de la denuncia del procedimiento. Si la Presidencia Ejecutiva se aparta de la recomendación del O.D.P. deberá indicar las razones por las cuales se aparta de ésta.

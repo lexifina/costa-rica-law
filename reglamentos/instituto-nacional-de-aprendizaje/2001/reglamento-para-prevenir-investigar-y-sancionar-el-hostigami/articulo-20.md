@@ -1,0 +1,1 @@
+Artículo 20.—Audiencia para la ampliación de la denuncia. El O.D.P. podrá en el término de tres días hábiles a partir de recibida la denuncia para su trámite, fijar hora y fecha para que la persona amplíe o aclare los términos de la denuncia.
