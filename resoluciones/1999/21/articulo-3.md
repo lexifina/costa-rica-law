@@ -1,0 +1,1 @@
+Artículo 3°-EI monto a que se refiere el artículo primero, será actualizado por la Dirección General de Tributación, cada tres años, mediante resolución dictada al efecto, la cual deberá publicarse el primero de enero del año que corresponda. Mientras no se dicte nueva resolución, regirá el monto previamente establecido.
