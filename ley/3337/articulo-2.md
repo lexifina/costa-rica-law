@@ -1,0 +1,1 @@
+Art 2°.- El notorio que autorice la escritura de donación queda facultado para corregir cualquier diferencia en los linderos y en la cabida de la finca en relación con los datos que brinde el Registro Público, siempre que lo haga con base en un plano reciente, autorizado por un ingeniero y debidamente catastrado.
