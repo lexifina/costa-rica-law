@@ -1,0 +1,3 @@
+Artículo 3º—Adiciónese al Capítulo VI: “Disposiciones transitorias”, artículo 26 del Decreto Ejecutivo Nº 30381, dos incisos que se numerarán 3) y 4) cuyos textos, respectivamente, dirán:
+“3.—Los requisitos de antigüedad y calificación exigidos en el inciso 2), apartes a) y b), respectivamente, del numeral 15 del presente Reglamento, regirán a partir del primero de mayo del año dos mil cuatro.”
+“4.—El requisito de un año de antigüedad como Subintendente, exigido en el inciso 2), aparte a) del artículo 13 del presente Reglamento, podrá equipararse transitoriamente hasta el primero de mayo del dos mil cuatro, con el requisito de al menos tres años de experiencia en el área operativo policial.”
