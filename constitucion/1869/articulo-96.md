@@ -1,0 +1,1 @@
+Artículo 96.-Para que se considere objetado por el Poder Ejecutivo un proyecto de ley es indispensable que sea devuelto a la Secretaría de la Cámara que lo pasó, dentro del preciso término de diez días. Si así no se verificare se tendrá por ley de la República.

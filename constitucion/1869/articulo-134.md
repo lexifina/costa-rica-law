@@ -1,0 +1,1 @@
+Artículo 134.-El Congreso nombrará además, en cada período, cuatro Conjueces para cada Sala, que reúnan las calidades de los propietarios, excepto la de Abogado, quienes serán llamados a suplir las faltas de los Conjueces natos.

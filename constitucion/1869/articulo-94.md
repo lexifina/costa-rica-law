@@ -1,0 +1,1 @@
+Artículo 94.-El Poder Ejecutivo puede objetar cualquier proyecto de ley, bien sea por que lo juzgue del todo inconveniente, ó bien por que crea necesario hacerle algunas variaciones ó reformas, y en este caso las propondrá.

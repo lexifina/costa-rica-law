@@ -1,0 +1,1 @@
+Artículo 129.-Para ser Magistrado de la Sala 2ª se exigen los mismos requisitos; pero pueden ser nombrados los que tengan treinta años de edad. Para ser Magistrado Fiscal se exigen los mismos requisitos prevenidos en este artículo.

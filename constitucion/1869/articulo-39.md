@@ -1,0 +1,1 @@
+Artículo 39.-La pena de muerte solo se impondrá en la República en los casos siguientes: 1º en el delito de homicidio premeditado y seguro, ó premeditado y alevoso: 2º en los delitos de alta traición; y 3º en los de piratería.

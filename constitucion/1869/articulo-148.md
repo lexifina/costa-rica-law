@@ -1,0 +1,1 @@
+Artículo 148.-La reforma general de esta Constitución, una vez acordado el proyecto por los trámites de que habla el artículo anterior, no podrá hacerse, sino por una Constituyente convocada al efecto.

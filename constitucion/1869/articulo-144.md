@@ -1,0 +1,1 @@
+Artículo 144.-Habrá el la Capital de cada Provincia una Municipalidad, a quien corresponde la administración, cuidado y fomento de los intereses y establecimientos de la Provincia; la formación y custodia del Registro Cívico y del Censo de población, y exclusivamente la administración e inversión de los fondos Municipales, todo conforme a las leyes respectivas.

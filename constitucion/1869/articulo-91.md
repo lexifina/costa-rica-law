@@ -1,0 +1,1 @@
+Artículo 91.-Los proyectos aprobados en una Cámara se pasarán a la cita, con expresión de los días en que hayan sido sometidos a discusión, y esta deberá observar para su aprobación los mismos requisitos establecidos en el artículo anterior.

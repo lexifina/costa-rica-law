@@ -1,3 +1,5 @@
+(Derogado)
+(Esta Constitución Política fue derogada por el artículo 149 de la Constitución Política N° 10 del 15 de abril de 1869)
 CONSTITUCION POLITICA
 27 de diciembre de 1859
 DECRETO L

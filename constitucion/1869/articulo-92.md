@@ -1,0 +1,1 @@
+Artículo 92.-Las Cámaras tiene recíproco derecho de proponer las alteraciones y variaciones que estimen convenientes a los proyectos que se pasen una a otra. Si las modificaciones no fueren aceptadas se reunirán ambas Cámaras en Congreso, y con una sola discusión se resolverá; quedando así perfeccionada la ley para pasarla al Poder Ejecutivo.

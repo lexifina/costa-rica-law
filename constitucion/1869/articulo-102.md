@@ -1,0 +1,1 @@
+Artículo 102.-La dotación del Presidente de la República no podrá aumentarse ni disminuirse en el período para que ha sido electo, ni recibirá durante el ningún otro gaje ó emolumento, aun bajo el concepto de gastos extraordinarios.

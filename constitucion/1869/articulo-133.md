@@ -1,0 +1,1 @@
+Artículo 133.-Para llenar las faltas de los Magistrados de la Corte Suprema, en cada una de las Salas, y del Ministro Fiscal, se sorteará, en calidad de conjueces natos, entre los Abogados que reúnan las mismas calidades respectivamente, que no sean empleados de los otros Supremos Poderes, ni subalternos de la misma Corte.

@@ -1,0 +1,1 @@
+Artículo 105.-Cuando por muerte, renuncia u otra causa vacare el destino de Presidente de la República, se procederá a elección extraordinaria, siempre que falte más de un año para cumplir el período constitucional.

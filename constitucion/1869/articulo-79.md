@@ -1,0 +1,1 @@
+Artículo 79.-Ambas Cámaras residirán en la capital de la República, y tanto para trasladar su residencia a otro lugar, como para suspender sus sesiones por tiempo determinado, se necesita su mutuo consentimiento.
