@@ -1,0 +1,1 @@
+Artículo 17.—Los sobrantes que se produzcan en los cierres diarios de operaciones de la caja, deberán ser depositados a nombre de la Municipalidad a más tardar tres días hábiles siguientes de establecido, mediante depósito de dinero en la misma caja, utilizando el recibo de ingreso.

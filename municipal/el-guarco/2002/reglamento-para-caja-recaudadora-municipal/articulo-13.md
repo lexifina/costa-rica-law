@@ -1,0 +1,1 @@
+Artículo 13.—En el evento de que la recaudación sobrepase el monto de la Póliza de Fidelidad antes de la hora fijada para el cierre diario, el cajero deberá entregar el dinero al tesorero, mediante el documento Remesas Parciales.
