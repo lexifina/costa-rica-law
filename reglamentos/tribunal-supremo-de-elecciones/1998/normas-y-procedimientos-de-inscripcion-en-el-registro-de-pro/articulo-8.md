@@ -1,0 +1,4 @@
+Artículo 8°—Historial del Proveedor.
+1° El registro incluirá un detalle de las relaciones contractuales establecidas entre el proveedor y el Tribunal Supremo de Elecciones, cuando las haya, sin demérito de los antecedentes que aporte el proveedor o se le solicite en su relación con otras instituciones del Estado.
+2° Los Órganos Fiscalizadores de contratos celebrados por el Tribunal tan pronto como adviertan alguna irregularidad en la ejecución de los contratos que fiscalizan, deberán informarlo a la Proveeduría sin perjuicio de las acciones legales que puedan corresponder.
+3° En el historial se incluirá también los datos de las resoluciones sancionatorias que le hayan sido impuestas al proveedor de conformidad con lo que disponen los artículos 106.1 y 106.5 del Reglamento General de Contratación Administrativa.
