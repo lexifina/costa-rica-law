@@ -1,0 +1,1 @@
+6º—En ningún caso, la Administración Municipal autorizará el desarrollo de dichas actividades como las descritas, mas allá de las 23:00 horas, con esta hora como límite, deberán cesar completamente todas las actividades de este tipo, lo anterior en resguardo del interés público.

@@ -1,0 +1,1 @@
+3º—Toda actividad social con karaoke, música en vivo, discomóvil o similares que se programen en establecimientos comerciales, salones comunales, casas de habitación y otros, deberá contar con el correspondiente permiso municipal para su realización, en caso de no tener patente.

@@ -1,0 +1,1 @@
+10.—Para la celebración de actividades con karaoke, discomóvil, música en vivo o similares se deberá cancelar el impuesto sobre espectáculos públicos cuando aquellas se enmarquen en la definición que del hecho generador de la obligación hace el artículo 1° del Reglamento para la aplicación del impuesto sobre espectáculos públicos a Ley 6844 de 11 de enero de 1963.

@@ -1,0 +1,1 @@
+11.—Las personas físicas o jurídicas que se dediquen a brindar servicios como los enunciados a los patentados de negocios en el cantón de Moravia, deberán contar con la licencia municipal para tales efectos en concordancia con lo que establece el artículo 79 del Código Municipal, 1, 2, 3, 4, siguientes y concordantes de la Ley 6721.
