@@ -1,0 +1,1 @@
+Artículo 21.—La Dirección de Recursos Humanos establecerá un plazo máximo de cinco días hábiles para la recepción de las ofertas de servicios, salvo en aquellos casos en los cuales por la naturaleza del puesto deba ampliarse a un máximo de diez días hábiles.

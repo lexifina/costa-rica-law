@@ -1,0 +1,1 @@
+Artículo 63.—Los salarios de los servidores declarados de confianza por resolución razonada de la Dirección General de Servicio Civil conforme lo dispuesto en el Estatuto de Servicio Civil, serán fijados con las normas que establezca la Autoridad Presupuestaria del Ministerio de Hacienda.

@@ -1,0 +1,1 @@
+Artículo 97.—Todos los Contratos para Adiestramiento se regularán de conformidad con la ley 3009, del 18 de julio de 1962 y sus reformas, así como por su reglamento. Decreto Ejecutivo No 17339-P del 17 de agosto de 1988.

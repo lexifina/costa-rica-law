@@ -1,0 +1,1 @@
+Artículo 138.—Las faltas no previstas en el presente Reglamento serán sancionadas conforme la Ley General de la Administración Pública, Estatuto de Servicio Civil, su Reglamento, Código de Trabajo y demás leyes conexas y supletorias.

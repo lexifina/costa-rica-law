@@ -1,0 +1,1 @@
+Artículo 109.—Los encargados del control de asistencia de los Centros de Trabajo deberán remitir a la Dirección de Recursos Humanos, el informe mensual de asistencia dentro de los primeros cinco días de cada mes.

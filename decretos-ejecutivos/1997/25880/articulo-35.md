@@ -1,0 +1,2 @@
+Artículo 35.—Las permutas dentro de una misma dependencia del Ministerio, podrán ser acordadas por los jefes respectivos, siempre que se trate de puestos de igual clase y remuneración, concediendo de previo al servidor un período razonable para que manifieste lo que considere pertinente.
+Toda permuta deberá ser tramitada a través de la Dirección de Recursos Humanos, con el objeto de tener el expediente al día, confeccionándose la respectiva Acción de Personal, la cual deberá ser aprobada por la Dirección General de Servicio Civil.

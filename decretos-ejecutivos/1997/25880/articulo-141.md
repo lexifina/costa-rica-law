@@ -1,0 +1,1 @@
+Artículo 141.—La Dirección Jurídica del Ministerio de Justicia, será el Órgano Director del Procedimiento y se encargara de investigar preliminarmente toda acusación que implique la suspensión temporal o el despido del servidor, a excepción de aquellas, faltas que sean evidentes y manifiestas.

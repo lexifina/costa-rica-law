@@ -1,0 +1,1 @@
+Artículo 37.—Los recargos de puestos de clases diferentes y de mayor categoría, cuando excedan de un mes, estarán sujetos a aprobación previa de la Dirección General de Servicio Civil, se otorgara si el servidor a quien se le concede el recargo consiente y reúne los requisitos de preparación y de experiencia que para el desempeño del puesto sean necesarios.

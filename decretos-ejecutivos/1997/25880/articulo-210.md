@@ -1,0 +1,1 @@
+Artículo 210.—Las infracciones de los funcionarios del Ministerio de Justicia a las disposiciones del presente Reglamento serán sancionadas, según su gravedad, en conformidad con las disposiciones que en materia de empleo público correspondan.

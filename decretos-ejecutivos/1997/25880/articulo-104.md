@@ -1,0 +1,1 @@
+Artículo 104.—La Dirección de Recursos Humanos deberá velar por la confidencialidad de los expedientes, a los cuales tendrán acceso únicamente el interesado, así como los servidores de la Asesoría Jurídica y Auditoría previa autorización del Jefe respectivo.

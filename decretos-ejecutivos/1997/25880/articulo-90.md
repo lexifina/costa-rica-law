@@ -1,0 +1,2 @@
+CONTRATOS DE LICENCIA PARA ESTUDIOS
+Artículo 90.—Todo servidor que disfrute de licencia para asistir a estudios deberá firmar el respectivo Contrato de Licencia para Estudios, el cual se tramitara conforme a lo establecido en el Reglamento del Estatuto de Servicio Civil. Estas licencias incluyen horas lectivas y tiempos de traslado al centro de estudio y deberán contar además con la anuencia de las Jefaturas respectivas y del Superior Jerárquico de la Dependencia.

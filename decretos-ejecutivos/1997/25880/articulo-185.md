@@ -1,0 +1,1 @@
+Artículo 185.—En cada Dependencia del Ministerio existirá una Subcomisión de Salud Ocupacional que técnicamente dependerá de la Comisión Institucional de Salud Ocupacional, las cuales se deben conformar en un plazo no mayor de seis meses a partir de la integración de la Comisión Institucional.

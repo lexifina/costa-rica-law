@@ -1,0 +1,1 @@
+Artículo 171.—Los recursos serán ordinarios y extraordinarios. Se consideran ordinarios el de revocatoria, de reposición cuando el acto impugnado sea emitido por el máximo jerarca y de apelación, y extraordinario el de revisión.

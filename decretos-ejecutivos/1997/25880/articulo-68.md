@@ -1,0 +1,1 @@
+Artículo 68.—Los servidores de la Dirección General de Adaptación Social tendrán derecho al pago de Riesgo Penitenciario, según el artículo 6to. de la Ley No 6966 de 25 de setiembre de 1984 y sus reformas, además de los beneficios otorgados en la legislación vigente.

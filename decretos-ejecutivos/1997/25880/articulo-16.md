@@ -1,0 +1,1 @@
+Artículo 16.—La Comisión de Ascensos deliberará, controlara y regulara el proceso de los ascensos directos y los concursos internos; no sustituirá la función sustantiva de la Dirección de Recursos Humanos.

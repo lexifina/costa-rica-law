@@ -1,0 +1,1 @@
+Artículo 194.—Los vehículos de uso administrativo serán únicamente para atender servicios regulares de transporte de funcionarios del Ministerio en el desarrollo normal de las funciones y actividades institucionales.

@@ -1,0 +1,1 @@
+Articulo 32.—Los recursos que se produjeren, cuando se presuma violación a las normas y procedimientos establecidos en los ascensos directos y concursos internos, serán elevados a conocimiento de quien corresponda, entendiéndose que el Ministro agotara la vía administrativa.

@@ -1,0 +1,1 @@
+Artículo 24.—Las calificaciones de los aspectos señalados en el artículo anterior, se harán de conformidad con los criterios que al efecto se establezcan según la naturaleza del puesto el Departamento de Selección de Personal de la Dirección General de Servicio Civil.

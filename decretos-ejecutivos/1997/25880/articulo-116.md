@@ -1,0 +1,1 @@
+Artículo 116.—De acuerdo con el artículo anterior, la justificación de las llegadas tardías tendrá como efecto la no aplicación del régimen disciplinario. No obstante, la Dirección de Recursos Humanos deberá proceder tal como se indica en el artículo 120 del presente reglamento, en cuanto al aspecto salarial.

@@ -1,0 +1,1 @@
+Artículo 70.—Los empleados que deban viajar en el ejercicio de sus funciones tendrán derecho a gastos de transporte y viáticos consistentes en pasajes, alimentación y hospedaje, los cuales serán otorgados, según los reglamentos respectivos. Los viáticos no se consideraran salarios para ningún efecto legal.

@@ -1,0 +1,1 @@
+Artículo 108.—En caso de no existir reloj marcador en los centros de trabajo, el jefe inmediato dispondrá la forma en que se lleve el control de asistencia, de acuerdo con los lineamientos que para tal efecto establecerá la Dirección de Recursos Humanos.

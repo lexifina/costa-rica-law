@@ -1,0 +1,3 @@
+Artículo 78.—Los servidores del Ministerio tendrán derecho a gozar sin interrupción su período de vacaciones, y sólo estarán obligados a dividirlas hasta un máximo de tres fracciones cuando se trate de labores de índole especial que no permitan una ausencia muy prolongada.
+Si vencido el periodo vacacional no se hubiese disfrutado el mismo, el servidor podrá solicitar por escrito a la Dirección de Recursos Humanos el disfrute de las mismas, para lo cual deberá aportar constancia escrita de haberlas solicitado previamente a su Jefe inmediato.
+El trámite de vacaciones deberá efectuarse con cinco días de anticipación salvo casos de urgencia. La solicitud deberá contar con el Visto Bueno de la Dirección de Recursos Humanos previa aprobación del jefe inmediato.

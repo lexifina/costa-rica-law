@@ -1,0 +1,1 @@
+Artículo 184.—De conformidad con el articulo 288 del Código de Trabajo se establecerá una Comisión Institucional de Salud Ocupacional, la cual dictará todas las directrices en materia de salud ocupacional.

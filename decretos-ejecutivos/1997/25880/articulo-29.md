@@ -1,0 +1,1 @@
+Artículo 29.—Solo en casos de inopia interna comprobada, la dependencia correspondiente procederá a llenar la vacante por el procedimiento de concurso interno ampliado o por pedimento de personal ante la Dirección General de Servicio Civil.

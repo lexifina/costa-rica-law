@@ -1,0 +1,1 @@
+Articulo 62.—Los salarios de los servidores que no pertenezcan al Régimen de Servicio Civil, se regularán por las disposiciones que sobre salarios mínimos dicte el Poder Ejecutivo y la legislación correspondiente.
