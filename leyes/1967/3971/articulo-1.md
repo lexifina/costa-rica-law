@@ -1,4 +1,6 @@
+(Derogado)
 N° 3971
+(Esta ley fue derogado por el artículo 25° de la ley de Informaciones Posesorias, N° 4545 del 20 de marzo de 1970)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRET A:
 Artículo 1°-Se autoriza al Instituto de Tierras y Colonización para otorgar administrativamente, por una sola vez a cada persona física, títulos de propiedad inscribibles en el Registro Público, a los poseedores de parcelas de reservas nacionales que sean enajenables y de fincas rurales no inscritas, cuya extensión no sea superior a cincuenta hectáreas. La calificación de fincas rurales la hará el Instituto.
