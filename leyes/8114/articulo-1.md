@@ -5,35 +5,35 @@ Modificación de la carga tributaria
 que pesa sobre los combustibles
 Artículo 1º—Objeto, hecho generador y sujetos pasivos. Establécese un impuesto único por tipo de combustible, tanto de producción nacional como importado, según se detalla a continuación:
 Tipo de combustible por litro | Impuesto en colones (¢)
-|
 Gasolina regular | 80,00
 Gasolina súper | 83,25
 Diesel | 47,00
 Asfalto | 16,00
-Emulsión Asfáltica | 12,00
-Bunker | 8,00
+Emulsión asfáltica | 12,00
+Búnker | 8,00
 LPG | 16,00
 Jet Fuel A1 | 48,00
 Av Gas | 80,00
-Queroseno | 23,00
-Diesel pesado (Gasóleo) | 15,00
-Nafta pesada | 11,00
-Nafta liviana | 11,00
-(Los montos aquí establecidos fueron modificados por el artículo 1° del Decreto Ejecutivo N° 31893 de 5 de julio de 2004 de la siguiente manera:
+Queroseno | 23.00
+Diesel pesado (Gasóleo) | 15.00
+Nafta pesada | 11.00
+Nafta liviana | 11.00
+(Los montos aquí establecidos fueron modificados por el artículo 1° del Decreto Ejecutivo N° 32075 de 5 de octubre de 2004 de la siguiente manera:
 Tipo de combustible por litro | Impuesto en colones (¢)
-Gasolina regular | 113.00
-Gasolina súper | 118.00
-Diesel | 66.75
-Asfalto | 22.50
-Emulsión asfáltica | 17.00
-Búnker | 11.75
-LPG | 22.50
-Jet Fuel A1 | 67.75
-Av Gas | 113.00
-Queroseno | 32.50
-Diesel pesado (Gasóleo) | 21.25
-Nafta pesada | 15.75
-Nafta liviana | 15.75
+Gasolina regular | 116.50
+Gasolina súper | 121.50
+Diesel | 68.75
+Asfalto | 23.25
+Emulsión asfáltica | 17.50
+Búnker | 12.00
+LPG | 23.25
+Jet Fuel A1 | 69.75
+Av Gas | 116.50
+Queroseno | 33.50
+Diesel pesado (Gasóleo) | 22.00
+Nafta pesada | 16.25
+Nafta liviana | 16.25
+")
 Exceptúase del pago de este impuesto el producto destinado a abastecer las líneas aéreas comerciales y los buques mercantes o de pasajeros en líneas comerciales, todas de servicio internacional; asimismo, el combustible que utiliza la flota de pescadores nacionales para la actividad de pesca no deportiva, de conformidad con lo establecido en la Ley Nº 7384.
 El hecho generador del impuesto establecido en el primer párrafo ocurre, en la producción nacional, en el momento de la fabricación, la destilación o la refinación, entendiendo por producción nacional el momento en el cual un producto está listo para la venta, lo que excluye su reproceso, y en la importación o internación, el momento de la aceptación de la declaración aduanera.
 En la producción nacional y en la importación, es contribuyente de este impuesto la Refinadora Costarricense de Petróleo, Sociedad Anónima (RECOPE), ya sea en su condición de productora o de importadora.
