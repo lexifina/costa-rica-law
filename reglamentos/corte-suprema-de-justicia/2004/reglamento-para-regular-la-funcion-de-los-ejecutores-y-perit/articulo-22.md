@@ -1,0 +1,1 @@
+Artículo 22.—La inscripción de los Traductores Oficiales o Intérpretes Oficiales se regirá por lo establecido en la Ley de Traducciones e Interpretaciones Oficiales (Nº 8142 de 26 de noviembre del 2001) y su Reglamento (Decreto Nº 30167-RE, publicado en La Gaceta Nº 43 del 1 de marzo del 2002).

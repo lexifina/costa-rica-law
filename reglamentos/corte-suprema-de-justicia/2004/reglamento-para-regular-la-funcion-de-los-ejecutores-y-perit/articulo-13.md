@@ -1,0 +1,2 @@
+Artículo 13.—Si el Auxiliar Ejecutor no acepta la designación, deberá presentar ante el despacho judicial y por escrito, las razones o motivos que lo justifiquen. Caso contrario, el Jefe de la Oficina dejará constancia de que dicho Auxiliar no aceptó el cargo e informará a la Oficina de Ejecutores y Peritos Valuadores.
+El Jefe del despacho judicial deberá informar a la citada oficina las faltas que cometan los Ejecutores en el desempeño de su labor, para que se proceda a tramitar el correspondiente procedimiento administrativo.
