@@ -1,0 +1,1 @@
+Artículo 23.—Las instituciones públicas, con el propósito de promover una efectiva desconcentración institucional, consultarán sus nuevas gestiones de interés regional ante las instancias administrativas regionales y los órganos de los Consejos Regionales de Desarrollo.

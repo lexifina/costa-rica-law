@@ -1,0 +1,2 @@
+Artículo 8º—Los miembros de la Asamblea General durarán en su período dos años, pudiendo ser reelectos. La Asamblea General de los Consejos Regionales de Desarrollo sesionará en forma ordinaria cada seis meses y extraordinariamente cuando lo solicite un tercio de sus miembros.
+Aquellos representantes que pierden credenciales según se establece en el reglamento a este Decreto serán sustituidos mientras dure el período asignado en la Asamblea General, por otro miembro que la organización o institución designe.

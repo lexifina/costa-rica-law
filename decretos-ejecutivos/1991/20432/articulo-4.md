@@ -1,0 +1,12 @@
+CAPITULO III
+Del Ministerio de Planificación Nacional y Política Económica
+Artículo 4°—Corresponderá al Ministro de Planificación Nacional y Política Económica:
+a) Proponer al Presidente de la República la política nacional para el desarrollo socioeconómico de las regiones en concordancia con las políticas generales del Gobierno.
+b) Apoyar y orientar cuando corresponda, a las instancias nacionales y regionales en la elaboración de los diagnósticos regionales para los sectores prioritarios, así como en la formulación, seguimiento y evaluación de los Planes, Programas y Proyectos Regionales de Desarrollo y de inversión y su coordinación con los correspondientes esfuerzos sectoriales.
+c) Velar por el buen funcionamiento del Sistema, mediante la adopción de las medidas y mecanismos de coordinación, asesoría, control y evaluación que fueren pertinentes.
+d) Definir los mecanismos que correspondan para lograr una adecuada coordinación y evaluación de las actividades socioeconómicas que se desarrollen en la región por medio de los órganos de los Consejos Regionales de Desarrollo.
+e) Garantizar la compatibilidad e integración necesaria de los planes sectoriales nacionales con los respectivos planes regionales para asegurar que la, ejecución de los programas, proyectos y actividades sectoriales estén acordes con las necesidades regionales y viceversa.
+f) Establecer los lineamientos globales para la definición de prioridades de inversión pública con base en las características socioeconómicas de las regiones y de conformidad con las previsiones y prioridades establecidas en el Plan Nacional de Desarrollo, los Planes Regionales y en los respectivos Planes Sectoriales.
+g) Recomendar los programas y proyectos de cooperación técnica y financiera internacionales que se estimen necesarios para impulsar el desarrollo regional.
+h) Propiciar medidas de política organizativa para el desarrollo de las regiones, mediante una eficaz y racional desconcentración y descentralización del aparato público y del fortalecimiento del Gobierno Municipal; así como de la estructura de participación de las comunidades en coordinación con los órganos nacionales pertinentes. Además dar seguimiento y evaluación a la ejecución de esa política.
+i) Solicitar a los jerarcas institucionales que tomen las medidas del caso para que sean trasladadas a las direcciones regionales, las actividades y recursos necesarios para que la prestación de bienes y servicios de su institución, satisfaga oportunamente las necesidades de la población.
