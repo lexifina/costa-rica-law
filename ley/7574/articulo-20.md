@@ -4,5 +4,5 @@ Procedimiento de votación de la Junta Ejecutiva
 número de votos que haya recibido en virtud de lo dispuesto en los
 ordinales 6 y 7 del artículo 18. No se permitirá votar por delegación.
 Ningún Miembro de la Junta Ejecutiva tendrá derecho a dividir sus votos.
-2.- Las decisiones de la Junta Ejecutiva serán adoptadas por la misma
-mayoría que se requiera en caso de adoptarlas el Consejo.
+2.- Las decisiones de la Junta Ejecutiva serán adoptadas por la
+misma mayoría que se requiera en caso de adoptarlas el Consejo.

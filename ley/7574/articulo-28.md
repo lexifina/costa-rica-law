@@ -12,6 +12,6 @@ el Consejo establezca, por un organismo competente que será escogido por
 el Miembro de que se trate y aprobado por la Organización.
 3.- Todo Miembro exportador comunicará a la Organización el nombre
 del organismo, gubernamental o no gubernamental, que desempeñará las
-funciones descritas en el ordinal 2 del presente artículo. La Organización
-aprobará específicamente los organismos no gubernamentales, de conformidad
-con las normas aprobadas por el Consejo.
+funciones descritas en el ordinal 2 del presente artículo. La
+Organización aprobará específicamente los organismos no gubernamentales,
+de conformidad con las normas aprobadas por el Consejo.
