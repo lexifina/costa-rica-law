@@ -1,0 +1,1 @@
+Art. 5°-Habrá igualmente una Comisión meteorológica, compuesta de cinco miembros, formada por el Director del Instituto, el del Liceo de Costa Rica y tres miembros elegidos por el Poder Ejecutivo. El Director del Liceo de Costa Rica será miembro nato de la Comisión, mientras el observatorio radica que en el Liceo;
