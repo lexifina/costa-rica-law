@@ -1,6 +1,1 @@
-ARTICULO 3.- Con sujeción a lo dispuesto en el presente Convenio, la
-Comisión Centroamericana Permanente para la Erradicación de la Producción,
-Tráfico, Consumo y Uso Ilícitos de Estupefacientes y Sustancias
-Psicotrópicas, establecerá sus planes de acción y expedirá su propio
-Reglamento, que contendrá normas relativas a su organización y
-funcionamiento.
+ARTICULO 3.- Con sujeción a lo dispuesto en el presente Convenio, la Comisión Centroamericana Permanente para la Erradicación de la Producción, Tráfico, Consumo y Uso Ilícitos de Estupefacientes y Sustancias Psicotrópicas, establecerá sus planes de acción y expedirá su propio Reglamento, que contendrá normas relativas a su organización y funcionamiento.

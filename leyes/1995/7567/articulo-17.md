@@ -1,4 +1,1 @@
-ARTICULO 17.- El Secretario Ejecutivo tendrá la representación legal
-de LA COMISION. Será elegido por un período de dos años, pudiendo ser
-reelecto, y al efecto se seguirá el orden alfabético inverso de los
-Estados Miembros.
+ARTICULO 17.- El Secretario Ejecutivo tendrá la representación legal de LA COMISION. Será elegido por un período de dos años, pudiendo ser reelecto, y al efecto se seguirá el orden alfabético inverso de los Estados Miembros.
