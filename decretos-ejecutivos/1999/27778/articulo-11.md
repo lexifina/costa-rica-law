@@ -1,0 +1,3 @@
+Artículo 11.—Comunicación a los interesados.
+Una vez efectuada la verificación, y subsanados los defectos en las liquidaciones actuariales si los hubiera, la Tesorería Nacional notificará a los reclamantes el resultado de la liquidación, para que éstos manifiesten si se oponen o no al monto establecido, en el plazo de ocho días posteriores a la notificación.
+En caso de no plantearse oposición, la Tesorería Nacional emitirá una certificación de los montos a traspasar a la Caja Costarricense de Seguro Social y el reconocimiento del pago al reclamante, la cual remitirá junto con el expediente a la Dirección Jurídica del Ministerio de Hacienda.

@@ -1,0 +1,4 @@
+Artículo 13.—Oposición.
+De existir disconformidad por parte de los interesados, basado en diferencias en los montos de salarios reportados, los períodos y salarios tomados en consideración o las tasas de cotización aplicadas para la realización de la liquidación actuarial, los mismos podrán plantear su
+oposición, debidamente fundamentada y con las pruebas del caso, ante la Tesorería Nacional, en el plazo establecido en el artículo 11°.
+La Tesorería Nacional resolverá sobre la procedencia de la oposición, y si la misma es acogida determinará las diferencias que deban traspasarse a la Caja Costarricense de Seguro Social o pagarse al interesado según corresponda y lo comunicará a la Dirección Jurídica del Ministerio de Hacienda, en los términos del artículo 11° , para que confeccione la resolución correspondiente.

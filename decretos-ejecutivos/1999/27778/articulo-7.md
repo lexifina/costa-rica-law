@@ -1,0 +1,2 @@
+Artículo 7°—Determinación del monto a traspasar.
+La determinación del monto de las cotizaciones a traspasar del Régimen de Pensiones de Comunicaciones al Seguro de Invalidez, Vejez y Muerte, y al reclamante; deberá realizarse mediante una liquidación actuarial en los términos del artículo 8° , que se entenderá como el mecanismo mediante el cual se calculará el valor presente acumulado de las cuotas referidas en el artículo 6°.

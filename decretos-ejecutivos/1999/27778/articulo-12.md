@@ -1,0 +1,2 @@
+Artículo 12.—Registro de cuotas.
+La Tesorería Nacional, transcurrido el plazo indicado en el artículo 11, comunicará a la Caja Costarricense de Seguro Social el período y el monto correspondiente al valor presente de las cuotas a traspasar, que deberán registrarse en la cuenta individual de cada afiliado en el Seguro de Invalidez, Vejez y Muerte. Este registro será independiente del trámite de pago que realice el Estado.
