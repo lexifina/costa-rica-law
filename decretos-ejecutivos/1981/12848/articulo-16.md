@@ -1,0 +1,1 @@
+Artículo 16.-Los acuerdos se tomarán por mayoría de votos. Se exceptúa de lo anterior, los acuerdos para el nombramiento y remoción del Auditor y del Director Ejecutivo, para lo cual se requiere un mínimo de ocho votos y mediante el sistema de votación que señala el artículo 17.

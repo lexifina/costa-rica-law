@@ -1,0 +1,1 @@
+Artículo 10.-Las sesiones serán convocadas por el Presidente. El Director Ejecutivo podrá convocar a sesión extraordinaria cuando por escrito así lo .soliciten seis de los miembros con un aviso previo mínimo de veinticuatro horas e indicación de los temas a tratar.

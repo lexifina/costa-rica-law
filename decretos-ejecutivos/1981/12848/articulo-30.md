@@ -1,0 +1,1 @@
+Artículo 30.-En caso de ausencia o de enfermedad y, en general, cuando ocurra alguna causa justa, el Presidente y el Secretario del Consejo serán sustituidos por el Vicepresidente, o un Presidente y un Secretario nombrados ad hoc.

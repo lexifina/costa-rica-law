@@ -1,0 +1,1 @@
+Artículo 19.-Cuando alguno de los representantes del Consejo tenga impedimento para asistir a una sesión, lo hará saber a la Dirección Ejecutiva para los efectos consiguientes, y podrá enviar opinión e:crita sobre cualquier asunto en trámite o que pueda ser tramitado en esa sesión.

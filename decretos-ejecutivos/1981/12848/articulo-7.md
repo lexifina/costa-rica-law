@@ -1,0 +1,1 @@
+Artículo 7°_El juramento constitucional, tanto de los nuevos representantes en el Consejo, como del Vicepresidente y del Secretarío electos o reelectos, lo tomará el Presidente ante el Consejo. El Vicepresidente tomará al Presidente, electo o reelecto, su juramento constitucional ante el Concejo.

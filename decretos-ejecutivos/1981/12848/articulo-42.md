@@ -1,0 +1,1 @@
+Artículo 42.-Las inversiones que el Consejo deba efectuar para la realización de sus fines. estarán incluidas en el presupuesto de la imtitución, previamente aprobado por la Oficina de, Planüicación Nacional y la Contraloría G!meral de la República.

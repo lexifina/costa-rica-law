@@ -1,0 +1,1 @@
+Artículo 11.-La orden del día se hará de acuerdo con los asuntos que la Dirección Ejecutiva- deba llevar a conocimiento y aprobación del Consejo, tomándose obligadamente en cuenta, en su caso, las peticiones de los representantes, formuladas por escrito con veinticuatro horas de anticipación a la fecha de la sesión.

@@ -1,0 +1,1 @@
+Artículo 17.-Las votaciones para elegir Presidente, Vicepresidente y Secretario serán secretas, mediante el trámite de papeletas individuales; el recuento de las mismas lo realizarán, acto seguido, dos representantes del Consejo, nombrados ad hoc.

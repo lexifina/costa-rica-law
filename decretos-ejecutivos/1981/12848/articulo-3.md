@@ -1,0 +1,1 @@
+Artículo 3°-El Consejo también podrá celebrar sus sesiones. en la sede de cualquiera de las otras entidades representantes en él y en las demás públicas o privadas que le sean afines, siempre que así lo acuerde el Consejo por mayoría de los votos presentes.

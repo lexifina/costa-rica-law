@@ -1,0 +1,1 @@
+Artículo 15.-Si no se lograra completar el quórum a los treinta minutos de la hora señalada para iniciar la sesión. los representantes podrán constituirse en comisión de trabajo y los acuerdos que se tomen se pondrán a conocimiento del Consejo en la siguiente sesión para su ratificación o improbación.

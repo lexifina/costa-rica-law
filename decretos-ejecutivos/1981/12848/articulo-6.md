@@ -1,0 +1,1 @@
+Artículo 6°-En la última sesión ordinaria del mes de diciembre de cada año, el Consejo nombrará entre los delegados de su seno, el Presidente, el Vicepresidente y el Secretario que desempeñarán los cargos en el próximo período de un año que se inicia con la primera sesión ordinaria del mes de enero siguiente, los cuales pueden ser reelectos hasta por tres períodos sucesivamente.

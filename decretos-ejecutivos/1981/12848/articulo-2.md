@@ -1,0 +1,1 @@
+Artículo 2°-La institución tendrá su sede en la ciudad de San José, sin perjuicio de poder establecer otras dependencias para la ejecución de sus programas, en cualquier lugar de la República, cuando a bien lo tenga y la conveniencia de sus funciones así lo requiera.

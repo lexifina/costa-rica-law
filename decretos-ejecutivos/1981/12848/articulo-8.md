@@ -1,0 +1,1 @@
+Artículo 8°-Los representantes durarán en sus puestos cuatro años, pudiendo ser reelectos; los que se nombren iniciado el período de cuatro años, lo serán por el tiempo que falte al representante sustituido para concluir su original período.

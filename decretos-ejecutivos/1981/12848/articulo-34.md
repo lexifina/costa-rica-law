@@ -1,0 +1,1 @@
+Artículo 34.-Para los. efectos de su trabajo, las comisiones de estudio coordinarán sus actividades con el Director Ejecutivo, excepto en aquellos casos en que éste tenga interés personal en los resultados de la misma, o se trate de confrontar su responsabilidad de funcionario.

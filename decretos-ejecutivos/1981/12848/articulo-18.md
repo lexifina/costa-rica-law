@@ -1,0 +1,1 @@
+Artículo 18.-Los delegados y los suplentes cuando asistan conjuntamente a sesiones del Consejo, tendrán derecho a voz, pero únicamente el delegado ejercerá el derecho a voto; en ausencia de éste, lo hará su respectivo suplente, asumiendo todos los derechos y funciones de aquél.
