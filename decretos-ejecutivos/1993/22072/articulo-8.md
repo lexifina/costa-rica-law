@@ -1,0 +1,3 @@
+Artículo 8: Los planes, programas de estudio y el material didáctico serán elaborados de consuno entre el Ministerio de Educación Pública y el Consejo Directivo de las Reservas Indígenas.
+El Ministerio de Educación Pública velará porque se lleven a cabo las adecuaciones curriculares necesarias, con el propósito de satisfacer las necesidades y expectativas de los miembros de las Reservas Indígenas.
+En el currículum deberán contemplarse prácticas de valoración de las costumbres tales como cantos, bailes, artesanía, medicina tradicional y otras manifestaciones culturales propias de los indígenas.

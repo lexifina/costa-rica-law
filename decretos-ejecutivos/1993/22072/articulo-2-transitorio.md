@@ -1,0 +1,1 @@
+Transitorio II: El Ministerio de Educación Pública suscribirá los convenios necesarios con las universidades, con el propósito de formar el personal docente que requieran las Reservas Indígenas a la luz de lo preceptuado en este Decreto.

@@ -1,0 +1,1 @@
+Artículo 7: En las Reservas Indígenas que opten por la enseñanza bilingüe deberá, como mínimo, enseñarse a los estudiantes a leer y a escribir en su propia lengua indígena, así como asegurarse que los mismos lleguen a dominar el español como idioma oficial de la Nación.

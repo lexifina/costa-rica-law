@@ -1,0 +1,3 @@
+Artículo 9: Los educadores de las Reservas Indígenas deberán pertenecer a la etnia local y ser, preferiblemente, nativos de la respectiva Reserva Indígena. El Ministerio de Educación Pública acordará con los Consejos Directivos planes de promoción de estudios pedagógicos para jóvenes de las reservas que muestren interés.
+Igualmente en las Reservas Indígenas, en las que la enseñanza sea bilingüe, los educadores deberán dominar totalmente el idioma materno, así como el español.
+(Nota de Sinalevi: Sobre este tema ver numerales 4°, 6°, 7°, 8°, 9°, 10, 11, 12, 13 y 14 del decreto ejecutivo N° 37801 del 17 de mayo de 2013)

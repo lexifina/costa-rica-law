@@ -1,0 +1,2 @@
+Artículo 12: El Consejo Directivo de cada Reserva Indígena velará por el buen desempeño del personal docente, debiendo informar inmediatamente al Ministerio de Educación Pública cualquier irregularidad, y brindar al final de cada curso lectivo un informe general sobre su desempeño.
+(Nota de Sinalevi: Sobre este tema ver numerales 4°, 6°, 7°, 8°, 9°, 10, 11, 12, 13 y 14 del decreto ejecutivo N° 37801 del 17 de mayo de 2013)

@@ -1,0 +1,1 @@
+Artículo 4: El Ministerio de Educación Pública promoverá la formación y capacitación docente de los miembros de las Reservas Indígenas y su participación en la formulación y ejecución de los programas educativos, con miras a transferir progresivamente a dichas Reservas la responsabilidad de la ejecución de dichos programas.

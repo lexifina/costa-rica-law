@@ -1,0 +1,1 @@
+Artículo 3: Los programas y servicios educativos destinados a las Reservas Indígenas deberán ser planificados y desarrollados por las propias comunidades indígenas, en coordinación permanente con las autoridades educativas locales y nacionales, con el propósito de responder al contenido del artículo 2 de este decreto.
