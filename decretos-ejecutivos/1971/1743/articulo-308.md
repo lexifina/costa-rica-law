@@ -1,0 +1,2 @@
+Artículo 308. -Los contratos con las instituciones a que se refiere el artículo anterior deberán elaborarse con base en los costos reales de los establecimientos en que los pacientes reciban atención. En aquellas instituciones que no tengan establecidos los costos reales, se aplicarán los costos promedio.
+En casos de pacientes de las instituciones señaladas atendidos con carácter "de urgencia" en establecimientos que no tengan celebrados contratos con ellas, el cobro de tales atenciones se hará con base en las tarifas habituales del establecimiento que los proporcionó.

@@ -1,0 +1,1 @@
+Artículo 221.-Antes de iniciar el desempeño de sus funciones, el Proveedor deberá recibir adiestramiento en los Departamentos de Proveeduría, Auditoría y Administración de Hospitales del Consejo Técnico de Asistencia Médico-Social, cuya duración dependerá de la capacitación del empleado y de la categoría del Hospital.

@@ -1,0 +1,2 @@
+Artículo 73.-Cuando las facilidades de organización y recursos de un Hospital lo permitan, podrán agregarse al Servicio de Emergencias camas de emergencia para hospitalización transitoria. Tal disposición deberá ser previamente aprobada por la Dirección General de Asistencia, con base en las necesidades v recursos que justifiquen tal medio.
+Todo enfermo que ocupe una cama de emergencia debe ser trasladado al servicio clínico dentro de las 24 horas siguientes. salvo indicación médica fundada en sentido contrario.

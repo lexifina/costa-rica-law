@@ -1,0 +1,1 @@
+Artículo 67.-Las atenciones de emergencia a pensionistas a que se refiere la letra a) del artículo 62 de este Reglamento, sólo dan derecho al cobro de honorarios, cuando sean requeridas por el paciente o sus acompañantes, e implican la obligación de dar cuenta de ellas al Médico tratante con la oportunidad conveniente,

@@ -1,0 +1,1 @@
+Artículo 124.-Para la distribución del horario de trabajo del Departamento o Servicio de Radiología se seguirán las normas establecidas por la Dirección y el jefe de la Dependencia, de acuerdo con las necesidades del establecimiento.

@@ -1,0 +1,2 @@
+Artículo 311.-A todo paciente se le deberá proporcionar, a su dada de alta, un documento con el diagnóstico de su enfermedad, el tratamiento empleado, especialmente cuando se refiere a intervenciones quirúrgicas y las principales indicaciones que debe observar, así como la fecha en que deba regresar al establecimiento para su control.
+Estos documentos no tendrán el carácter de certificados extendidos por el establecimiento.

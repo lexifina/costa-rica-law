@@ -1,0 +1,1 @@
+Artículo 55.-La atención de consulta externa deberá iniciarse en la oficina encargada del registro de pacientes en Estadística y Documentos Médicos, con el procedimiento administrativo para identificar al enfermo, captar los datos que se requieran e iniciar la historia clínica si consulta por primera vez o buscar la de ocasiones anteriores, si es subsecuente.

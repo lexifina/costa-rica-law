@@ -1,0 +1,1 @@
+Artículo 29.-En los Hospitales Clase B las funciones del jefe de Departamento se recargarán en el jefe de Servicio y en los de Clase C, en el Director del Hospital, quien podrá delegar algunas de ellas en el Médico que considere más capacitado para desempeñarlas.

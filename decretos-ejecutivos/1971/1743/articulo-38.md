@@ -1,0 +1,1 @@
+Artículo 38.-Los requisitos necesarios para el desempeño de todos los cargos anteriormente descritos, serán los señalados en la Ley y el Reglamento del Estatuto de Servicios Médicos y en el presente Reglamento.

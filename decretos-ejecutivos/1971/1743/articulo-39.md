@@ -1,0 +1,3 @@
+Artículo 39.-Para desempeñar el cargo de Médico Residente deberá haberse cumplido durante un año el cargo de Médico Interno Regular y durante un año con el servicio médico-sanitario, salvo autorización expresa del Ministro de Salubridad Pública para que el cumplimiento de este último requisito se efectúe en el hospital en que se atienda la residencia.
+Para ejercer el cargo de Médico Interno Regular, deberá contarse con la autorización del Colegio de Médicos y Cirujanos.
+Para cumplir con las actividades correspondientes al Médico Interno Universitario, deberá contarse con la autorización expresa de la Universidad de Costa Rica, a través de la Facultad de Medicina.

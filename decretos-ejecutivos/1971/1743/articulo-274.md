@@ -1,0 +1,1 @@
+Artículo 274.-Fuera de las excepciones que establezcan la ley, este Reglamento y otras disposiciones aplicables, los funcionarios prestarán servicios en jornadas de 8 horas diarias y 48 por semana y deberán aceptar como laborables todos los días del año y los turnos de trabajo (diurnos, nocturnos o mixtos) que les asignen de acuerdo con las necesidades de los servicios.

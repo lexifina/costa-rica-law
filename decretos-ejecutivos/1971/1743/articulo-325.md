@@ -1,0 +1,2 @@
+Artículo 325.-Queda prohibido establecer hospitales sin la previa autor¡7ación del Ministerio de Salubridad Pública, a través de la Dirección General, de Asistencia Médico-Social. Dicha autorización y la clasificación correspondientes se otorgarán siempre que el establecimiento reúna las condiciones técnicas que establece este Reglamento.
+Conforme lo determina el artículo 324 del Código Sanitario, el Ministerio de Salubridad Pública podrá ordenar la clausura del establecimiento hospitalario que no haya llenado las formalidades establecidas para autorizar su operación.

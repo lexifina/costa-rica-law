@@ -1,0 +1,2 @@
+Artículo transitorio-Los trabajadores que al formularse este Reglamento estuviesen desempeñando un cargo en un establecimiento hospitalario sin reunir todos los requisitos que en él se señalan, podrán continuar en el desempeño de su cargo, en el mismo establecimiento, mientras lo hagan en forma eficiente. Asimismo todos los trabajadores hospitalarios conservarán sus derechos adquiridos.
+Dado en la Casa Presidencial. -San José, a los cuatro días del mes de junio de mil novecientos setenta y uno.

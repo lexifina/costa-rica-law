@@ -1,0 +1,1 @@
+Artículo 328.-Para la distribución de rentas señaladas en el artículo inmediato anterior, el Consejo Técnico de Asistencia Médico-Social tomará en cuenta fundamentalmente, las actividades realizadas en el establecimiento en las áreas le hospitalización, consulta externa y atención de urgencias y las necesidades del mismo.

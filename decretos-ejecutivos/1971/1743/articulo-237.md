@@ -1,0 +1,1 @@
+Artículo 237.-La Dependencia estará a cargo de un jefe, que deberá ser bachiller con conocimientos y experiencia en labores administrativas y en manejo del personal y tendrá a su cargo el personal auxiliar necesario, de acuerdo con las necesidades y los recursos disponibles.

@@ -1,0 +1,1 @@
+Artículo 128. -Con la excepción de los médicos que estén haciendo su especialización en esta disciplina, todo el personal médico del servicio deberá encontrarse registrado como Especialista en Anatomía Patológica en el Colegio de Médicos y Cirujanos.

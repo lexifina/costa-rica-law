@@ -1,0 +1,1 @@
+Artículo 194.-El Servicio Social deberá contar con el personal profesional y auxiliar necesarios para el adecuado cumplimiento de sus labores, de acuerdo con las necesidades y los recursos disponibles.

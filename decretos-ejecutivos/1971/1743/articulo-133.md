@@ -1,0 +1,1 @@
+Artículo 133.-El jefe de Anatomía Patológica deberá mantener contacto con los jefes de otros Servicios y procurar que se practique el examen histopatológico de todo tejido u órgano que se extirpe quirúrgicamente en el establecimiento.

@@ -1,0 +1,1 @@
+Artículo 82.-La intervención del Servicio o Unidad de Anestesiología deberán solicitarla los médicos tratantes y será satisfecha a la mayor brevedad posible, de común acuerdo con el jefe de las Salas de Operaciones, quedando a juicio del anestesiólogo la selección del agente y la técnica anestésica a emplear.

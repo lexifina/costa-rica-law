@@ -1,0 +1,1 @@
+Artículo 3º-Hospital es el establecimiento destinado a realizar todas o algunas actividades de recuperación, rehabilitación, fomento y protección de la, salud, mediante atención cerrada o ambulatoria. Son además centros de enseñanza e investigación.

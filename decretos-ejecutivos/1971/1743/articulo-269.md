@@ -1,0 +1,1 @@
+Artículo 269.-Todo funcionario o empleado deberá suscribir un contrato de trabajo, en el cual se especificarán las condiciones que se convengan de acuerdo con la ley, este Reglamento y las necesidades de la institución.

@@ -1,0 +1,2 @@
+PARRAFO IV.-Salas de Operaciones:
+Artículo 75.-Todas las salas de operaciones de un hospital deberán estar, dentro de lo posible, concentradas en un sólo sector del mismo y bajo la responsabilidad del Departamento o Servicio de Cirugía en los Hospitales Clases A o B respectivamente y del propio Director en los Hospitales Clase C. Podrá encargarse su manejo a un médico con especialización quirúrgica o anestésica ayudado por tina enfermera, según los recursos de que se disponga

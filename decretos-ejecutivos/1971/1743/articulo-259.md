@@ -1,0 +1,1 @@
+Artículo 259.-Los Consejos serán cuerpos consultivos y asesores de 1-1 función directora, destinados a servir de vínculo entre la Dirección y los servicios del establecimiento. No tendrán facultad para tomar acuerdos de carácter ejecutivo, ni autoridad para imponerlos.

@@ -1,0 +1,1 @@
+Artículo 306.-Al solicitar atención en cualesquiera de los establecimiento s del Sistema Hospitalario Nacional, el paciente deberá exhibir su propia cédula de identidad o la de su representante legal. Se exceptúan de esta disposición los casos de emergencia, en los cuales tal, requisito deberá llenarse dentro de las 24 horas siguientes a la admisión.

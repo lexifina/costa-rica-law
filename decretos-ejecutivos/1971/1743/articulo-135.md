@@ -1,0 +1,1 @@
+Artículo 135.-Efectuada la autopsia y dentro de la mayor brevedad que permitan los recursos disponibles, se enviará copia del informe de la misma en que se consignarán los datos más importantes de ella, los diagnósticos y las causas de muerte, según la autopsia para su inclusión en la historia clínica.

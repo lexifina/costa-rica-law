@@ -1,0 +1,1 @@
+Artículo 12.-De acuerdo con el artículo 8º de la Ley del Estatuto de Servicios Médicos, para los fines que específicamente señala esta ley, se considerarán de categoría "A" los Hospitales especializados. Para otros efectos serán clasificados en A, B y C, de acuerdo con sus recursos, en forma similar a los hospitales generales.

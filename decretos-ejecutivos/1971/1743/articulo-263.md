@@ -1,0 +1,1 @@
+Artículo 263.-Corresponderán al Consejo Administrativo las mismas funciones señaladas en el artículo 261 al Consejo Técnico, pero circunscritas a las funciones asignadas a los servicios administrativos.

@@ -1,0 +1,1 @@
+Artículo 2º--Conforme lo establece el artículo 322 del Código Sanitario, las instituciones de asistencia médica –oficiales o privadas- estarán sujetas a la supervigilancia técnica de la Dirección General de Asistencia Médico-Social, debiendo someterse, en consecuencia, a las disposiciones de orden técnico del presente Reglamento.

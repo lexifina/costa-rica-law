@@ -1,0 +1,1 @@
+Artículo 63.-La atención médica continua se organizará en cada establecimiento de acuerdo con sus recursos y las necesidades de la población. Estará a cargo de un médico o de un equipo médico de turno y contará con el personal necesario para el cumplimiento integral de sus funciones. Cuando se trate de un equipo, habrá un jefe de él.

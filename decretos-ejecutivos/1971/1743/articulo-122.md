@@ -1,0 +1,1 @@
+Artículo 122.-En los hospitales Clase A los informes radiológicos deberán ser entregados dentro de las 24 horas siguientes al término del examen. En los hospitales Clases B o C, este plazo podrá prolongarse, de acuerdo con la disponibilidad de profesionales con que cuente el servicio. De todos los informes deberá dejarse copia en los archivos.

@@ -1,0 +1,1 @@
+Artículo 134.-La autopsia de los enfermos que fallezcan en un establecimiento que cuente con servicios de Anatomía Patológica se hará de acuerdo a las normas de la Dependencia, elaboradas con la activa participación de su jefe.

@@ -1,0 +1,2 @@
+Artículo 158.-En los Hospitales Clase A el Departamento deberá contar, además, con Enfermeras Supervisoras y jefes de Sala graduadas e incorporadas al Colegio respectivo. Las Supervisoras además, deberán tener una experiencia mínima de tres años como jefe de Sala y haber aprobado un curso de Administración y Supervisión de Enfermería.
+En los Hospitales Clases B y C, de acuerdo con los recursos disponibles. una misma Enfermera graduada podrá tener a su cargo las labores de varias jerarquías y áreas de trabajo.

@@ -1,0 +1,2 @@
+PARRAFO VI.-Mantenimiento:
+Artículo 224.-En cada hospital deberá existir una dependencia encargada del mantenimiento correctivo y, preventivo de las construcciones, áreas circundantes. instalaciones, mobiliario y equipos del establecimiento. Se entenderá por "mantenimiento correctivo" el conjunto de reparaciones necesarias cuando ya se han producido daños en los elementos a cuidado de la Dependencia y por "mantenimiento preventivo" al proceso de inspección del establecimiento en buenas condiciones de operación, para evitar la necesidad de mayores reparaciones y gastos.

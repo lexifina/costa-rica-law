@@ -1,0 +1,1 @@
+Artículo 4º-Centro Rural de Asistencia es el establecimiento destinado a realizar dentro del área rural funciones de recuperación, fomento y protección de la salud, mediante atención ambulatoria y domiciliaria e internamiento en casos de obstetricia y emergencias.

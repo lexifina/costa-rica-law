@@ -1,0 +1,1 @@
+Artículo 317.-Todo Hospital deberá atender los casos de cualquiera írea de atracción hospitalaria, cuando se trate de casos de urgencia o existan motivo.,-, justificados ' a juicio del Director del establecimiento, o del funcionario en quien delegue tal atribución.

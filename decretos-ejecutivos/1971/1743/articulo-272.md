@@ -1,0 +1,1 @@
+Artículo 272.-Se tendrán por justificadas las ausencias debidas a incapacidad por enfermedad debidamente comprobada, matrimonio, muerte de algún pariente, hasta segundo grado de consanguinidad o primero de afinidad y otras causas justificadas o imprevistas que puedan ser demostradas.

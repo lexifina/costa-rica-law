@@ -1,0 +1,1 @@
+Artículo 111.-El uso señalado de equipos e instalaciones para particulares queda reservado exclusivamente al personal del correspondiente servicio del Hospital, salvo lo que establezcan convenios señalados con otras instituciones.

@@ -1,0 +1,1 @@
+Artículo 25.-El criterio del servicio frente a los problemas de diagnóstico y terapéutica debe ser el producto de la discusión y análisis de ellos por todos sus integrantes; el jefe debe oir las opiniones de su personal y resolver en definitiva. En ausencia del jefe, las determinaciones las adoptará el médico de mayor jerarquía.

@@ -1,0 +1,2 @@
+Artículo 118.-En los hospitales Clase A, la Dependencia deberá contar además con Médicos Especialistas en Radiología en número suficiente, hasta donde lo permita la disponibilidad de profesionales y que se distribuirán en categorías similares a las señaladas para los demás profesionales médicos de los Servicios Técnicos, de Atención Directa al Paciente.
+Los servicios de radiología de los hospitales Clases B o C, deberán contar con "horas-radiólogo" suficientes, hasta donde lo permita la disponibilidad de profesionales.

@@ -1,0 +1,1 @@
+Artículo 198.-Tal como se señaló en los otros servicios técnicos, el criterio de cada servicio frente a los problemas de su especialidad debe ser el producto del análisis de ellos por todos sus integrantes y además deberá sujetarse a las normas señaladas por la Dirección del Hospital y/o por la Dirección General de Asistencia Médico-Social.

@@ -1,0 +1,1 @@
+Artículo 270.-Todo trabajador tendrá derecho a vacaciones después de 50 semanas de trabajo continuo, de acuerdo con lo que establezcan el Código de Trabajo y el Reglamento Interno complementario de cada institución.

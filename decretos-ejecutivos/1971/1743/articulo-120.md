@@ -1,0 +1,7 @@
+Artículo 120.-Además de las obligaciones señaladas en el artículo 115 de este Reglamento, corresponderá especialmente al jefe del Departamento o Servicio:
+a) Cuidar del progreso científico del personal a sus órdenes, organizar reu niones científicas para el personal de la Dependencia, velar por la asistencia del personal médico del mismo a las reuniones clínicas o anatómicas de otros servicios del establecimiento y estimular el estudio, las publicaciones y los trabajos de investigación;
+b) Colaborar con la labor del Director del establecimiento, asistiendo a las reuniones a que lo convoque, tomando parte en las comisiones en que sea nombrado y aportando su esfuerzo e interés para la mejor marcha del establecimiento;
+c) Velar porque la aplicación de radiaciones ionizantes (radium, roentgenterapia, telecobaltoterapia, etc.) en el tratamiento de los enfermos se efectúe de preferencia por los médicos especialistas;
+d) Velar por la corrección y oportunidad de entrega de los informes radio lógicos;
+e) Velar por la organización y actualización de los archivos de placas e informes radiológicos;
+f) Velar especialmente por la protección del personal a sus órdenes frente a la acción nociva de las radiaciones, procurándoles la protección material aconsejable, distribuyendo los turnos, exigiendo los exámenes de control y los descansos necesarios, vigilando el uso de los elementos de protección y el cumplimiento de las disposiciones al respecto y dando cuenta inmediata a la Dirección de toda infracción o negligencia.

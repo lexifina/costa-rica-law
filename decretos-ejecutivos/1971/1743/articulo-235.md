@@ -1,0 +1,1 @@
+Artículo 235.-Cuando el establecimiento no haga directamente el lavado de su ropa, un empleado responsable de esta Dependencia deberá entregarla, recibirla por inventario firmado, dando cuenta oportuna a sus superiores de toda pérdida o diferencia. Deberán adoptarse, además, todas las medidas necesarias para garantizar su adecuado control.

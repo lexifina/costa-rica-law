@@ -1,0 +1,1 @@
+Artículo 288.-Son causas justas que facultan para dar por terminado el contrato de trabajo sin responsabilidad patronal fuera de las estipuladas en otros las autorizadas por las leyes de trabajo, según el artículos de este Reglamento, artículo 81 del Código de Trabajo.

@@ -1,0 +1,2 @@
+PARRAFO VIII. Alimentación
+Artículo 181---La dependencia encargada de alimentación tendrá por objeto asegurar la adecuada alimentación de los enfermos y del personal cuya permanencia en los establecimientos así lo exija. Se considerará como Servicio de Colaboración Diagnóstica y Terapéutica cuando esté a cargo de un profesional idóneo (nutricionista, dietista), que dirija su adecuado funcionamiento como auxiliar terapéutico; en otros casos, se considerará como una unidad de colaboración técnica administrativa.

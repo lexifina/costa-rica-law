@@ -1,0 +1,4 @@
+Artículo 268.-El período de prueba será de tres meses o de tres a seis meses para el personal médico de conformidad con la Ley del Estatuto respectivo y se regirá por las siguientes disposiciones:
+a) Se aplicarán en todos los casos de iniciación de contrato o de ascenso;
+b) En los casos de ascenso, el servidor ascendido que no pasare satisfactoriamente el período de prueba, será reintegrado al cargo que servía con anterioridad y así sucesivamente otro servidor que hubiera sido promovido como resultado del ascenso, y
+c) No menos de ocho días antes de finalizar el período de prueba, el jefe respectivo deberá calificar al servidor en un formulario especial que deberá suministrar el Departamento de Personal del establecimiento. Si la calificación obtenida no es satisfactoria, el funcionario podrá ser separado de su cargo sin responsabilidad patronal o reintegrado a su puesto anterior, según el caso.

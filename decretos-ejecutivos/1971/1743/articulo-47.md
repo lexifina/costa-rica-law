@@ -1,0 +1,1 @@
+Artículo 47.-A las reuniones de que trata el artículo anterior deberá asistir todo el personal médico del establecimiento ; a las que se efectúen en los Hospitales Regionales y Periféricos deberán ser invitados los médicos de las Unidades Sanitarias (fijas y móviles) y Centros Rurales de Asistencia vecinos.

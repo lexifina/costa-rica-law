@@ -1,0 +1,1 @@
+Artículo 43.-Los médicos designados por la Universidad de Costa Rica para labores docentes en los servicios que tengan ese carácter, tendrán que ajustarse a lo señalado por este Reglamento en cuanto a atribuciones y obligaciones, mientras permanezcan en el establecimiento.

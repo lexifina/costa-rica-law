@@ -1,0 +1,1 @@
+Artículo 17.-En los establecimientos Clase "A", podrá existir el cargo de Subdirector Médico, a quien corresponderán las funciones que le encomiende el Director de acuerdo con las necesidades del establecimiento y que deberá llenar los mismos requisitos necesarios para Director de un Hospital de esa categoría.

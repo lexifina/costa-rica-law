@@ -1,0 +1,2 @@
+PARRAFO II1.-Del establecimiento de nuevas Instituciones de Asistencia Médica y ampliaciones o modificaciones a las existentes:
+Artículo 318.-De acuerdo con lo establecido en el artículo 29 del Código Sanitario y en los artículos 39 y 59 de la Ley General de Asistencia Médico-Social. corresponde a la Dirección General de Asistencia Médico-Social la supervigilancia técnica de las instituciones de' asistencia médica oficiales y particulares que funcionen en el país, de acuerdo con las normas que dicte el Consejo Técnico de Asistencia Médico-Social.

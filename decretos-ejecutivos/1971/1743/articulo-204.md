@@ -1,0 +1,1 @@
+Artículo 204.-En los establecimientos en que por su tamaño y por la complejidad de su labor se demuestre conveniente, podrán existir los cargos de Subadministrador o de asistente administrativo, para asumir parte de las funciones descritas y sustituir al Administrador en sus ausencias temporales.

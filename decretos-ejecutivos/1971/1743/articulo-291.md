@@ -1,0 +1,2 @@
+PARRAFO VI. -Calificación de servicios:
+Artículo 291.-Los servicios del personal del Sistema Hospitalario Nacional podrán ser calificados anualmente en forma individual. Dicha evaluación servirá para reconocimiento a los buenos servicios, como medio para obtener una mayor eficiencia y como factor a considerar para adiestramientos, ascensos, aumentos de salarios, reducción forzosa de personal y otros.

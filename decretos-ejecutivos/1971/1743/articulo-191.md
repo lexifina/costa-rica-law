@@ -1,0 +1,1 @@
+Artículo 191.-El personal de estadística no podrá suministrar información alguna a particulares sin expresa autorización de sus superiores, sin perjuicio de las facultades que corresponden a los funcionarios de la Dirección General de Asistencia Médico-Oficial.

@@ -1,0 +1,1 @@
+Artículo 277.-Para efectos de pago, se entenderán como días feriados del año los siguientes: 19 de enero ' jueves y Viernes Santos, 19 de mayo, 15 de setiembre y 25 de diciembre, a menos que el Organismo Directivo de la Institución hubiere convenido en pagar otros a sus empleados.

@@ -1,0 +1,1 @@
+Artículo 249.-La Dirección determinará, de común acuerdo con la Administración, las horas de funcionamiento de la Biblioteca y las condiciones en que sus libros y revistas pueden ser llevados a domicilio, debiendo establecerse que cualquier libro o revista que pierda el lector deberá ser repuesto por éste de inmediato.

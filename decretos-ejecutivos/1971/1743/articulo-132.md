@@ -1,0 +1,3 @@
+Artículo 132.-Toda solicitud de biopsia será pedida oportunamente por el médico tratante en el formulario correspondiente, debiendo proporcionar la totalidad de los datos exigidos.
+Todo cadáver del establecimiento que se reciba para autopsia deberá acompañarse de una epicrisis de la que será responsable el médico tratante o en su defecto el médico residente responsable del servicio en que fallezca el paciente. Este documento será calificado para efecto de la valuación anual del personal médico.
+Los informes de autopsias y biopsias deberán consignarse por escrito y se dejará copia de ellos en el archivo de la Dependencia.

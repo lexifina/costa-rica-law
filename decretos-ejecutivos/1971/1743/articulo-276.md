@@ -1,0 +1,1 @@
+Artículo 276.-Quedan excluidos de la limitación de la jornada de trabajo los funcionarios que por la naturaleza de sus labores no puedan someterse a ellas, conforme a lo establecido en el artículo 143 del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 189.-Las historias clínicas deberán considerarse documentos de. carácter privado y confidencial, de utilidad para el enfermo, el establecimiento, la investigación, la docencia y la justicia, por lo que no se podrá autorizar su uso para otros fines, guardando en todos los casos el secreto profesional.

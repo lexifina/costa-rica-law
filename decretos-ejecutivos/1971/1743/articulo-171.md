@@ -1,0 +1,1 @@
+Artículo 171.-Las obligaciones y atribuciones del personal de enfermería de Pensionado, Servicio de Esterilización, salas de operaciones y anestesia se ajustarán en primer término a las disposiciones especiales consignadas en cada tino de estos servicios, a las disposiciones de este párrafo y a las que imparta el Director del Establecimiento, previo informe de la Enfermera jefe.

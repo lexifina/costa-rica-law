@@ -1,0 +1,1 @@
+Artículo 19º. En caso de ausencia o impedimento momentáneo, el Director del establecimiento será sustituido en forma interina por el Subdirector Médico, o cuando éste no exista o sufra impedimento momentáneo, por el Médico del establecimiento que nombre la junta Directiva, escogiéndolo en orden jerárquico.

@@ -1,0 +1,1 @@
+Artículo 188.-Los Hospitales a través de Estadística y Archivo de Documentos Médicos, actuarán con carácter de registradores auxiliares del Registro Civil para la inscripción de nacimientos vivos y nacimientos muertos que ocurran dentro del establecimiento.

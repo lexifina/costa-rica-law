@@ -1,0 +1,1 @@
+Artículo 245.-Las salidas de los vehículos se ordenarán en formulario-~ especiales, en los que por lo menos se registrarán: las horas de salida y de regreso, la causa del viaje; el nombre del conductor del vehículo, los kilómetros de salida y de regreso; el tiempo empleado; el nombre del funcionario que autorizó la salida.

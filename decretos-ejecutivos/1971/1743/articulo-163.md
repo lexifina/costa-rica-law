@@ -1,0 +1,1 @@
+Artículo 163.-En Hospitales Clases A y B podrá existir el cargo de Supervisora de Educación en Servicio que, además de los requisitos de las Supervisoras de Area Clínica, deberá haber aprobado un curso de post-grado en educación y métodos de enseñanza.

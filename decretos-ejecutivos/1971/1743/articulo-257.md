@@ -1,0 +1,1 @@
+Artículo 257.-Sin perjuicio de las disposiciones anteriores, las religiosas podrán, individualmente, desempeñar cargos técnicos o administrativos para los cuales estén capacitados, en cuyo caso estarán sujetas a las disposiciones laborales y, reglamentarias vigentes.

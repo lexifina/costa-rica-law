@@ -1,0 +1,1 @@
+Artículo 251.-El Capellán tendrá obligación de permanecer dentro del establecimiento durante el horario que le fije la Dirección, sin perjuicio de concurrir al llamado de los pacientes, a cualquiera hora que se le requiera.

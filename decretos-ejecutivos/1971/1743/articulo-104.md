@@ -1,0 +1,1 @@
+Artículo 104. -El Director del Hospital podrá dar alta a cualquier enfermo del Pensionado cuando la única razón de su permanencia sea un caso de conflicto de honorarios con el médico que lo atiende, notificando a éste la medida que se toma.

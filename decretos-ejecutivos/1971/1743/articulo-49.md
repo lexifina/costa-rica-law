@@ -1,0 +1,1 @@
+Artículo 49.-Todo servicio hospitalario clínico, incluye la atención de la consulta externa, en consecuencia, todo su personal está obligado a participar en las actividades de ésta. Las atenciones externas organizadas deben merecer 'a constante preocupación del Director y del cuerpo médico del establecimiento.

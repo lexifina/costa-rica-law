@@ -1,0 +1,1 @@
+Artículo 243.-Cuando el establecimiento posea vehículos propios, su manejo y mantenimiento de rutina estará encomendado a la Dependencia de Transportes, que estará a cargo de un Jefe que deberá tener la respectiva licencia de conductor, así como conocimientos y experiencia en mecánica automotriz.

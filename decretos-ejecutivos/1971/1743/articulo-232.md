@@ -1,0 +1,1 @@
+Artículo 232.-La Dependencia estará a cargo de un jefe que deberá conocer el funcionamiento de las maquinarias a su cargo, las técnicas de lavado y costura y, las normas generales sobre la materia en establecimientos hospitalarios.

@@ -1,0 +1,1 @@
+Artículo 216.-Antes de iniciar el desempeño de sus funciones, el Jefe de Contabilidad deberá recibir adiestramiento en los Departamentos de Auditoría y Contabilidad del Consejo Técnico de Asistencia Médico-Social, cuya duración dependerá de la capacitación del empleado y de la categoría del Hospital.

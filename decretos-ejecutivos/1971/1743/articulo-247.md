@@ -1,0 +1,1 @@
+Artículo 247.-La Biblioteca estará en los Hospitales Clase A, dentro de lo posible, a cargo de un funcionario con conocimientos de biblioteconomía y experiencia en manejo de biblioteca. En los Hospitales Clase B, será la Administración la encargada de su manejo por delegación, a tiempo parcial, en tino de sus funcionarios.

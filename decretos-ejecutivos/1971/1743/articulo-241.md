@@ -1,0 +1,1 @@
+Artículo 241. La Dependencia estará bajo la responsabilidad directa la Administración, la cual podrá encargar su jefatura a un funcionario. En los Hospitales en que exista el cargo de ecónomo, será a éste a quien se encargue dicha jefatura.

@@ -1,0 +1,1 @@
+Artículo 7º-Se entiende por Unidad una dependencia de un Departamento o de un servicio destinada a realizar una parte específica de las labores de éstos, constituyendo su unidad básica de trabajo. Debe contar con la dotación suficiente para el cumplimiento de las funciones descritas específicamente ente en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 71.-El Servicio de Emergencias debe contar con facilidades para el uso de las salas de operaciones del establecimiento con carácter de prioridad. Aquellos establecimientos cuyo volumen de atención así lo aconseje, podrá disponer de salas de cirugía en el Servicio de Emergencias, para los casos cuya gravedad o premura de atención así lo requieran.

@@ -1,0 +1,1 @@
+Artículo 113.-Tal como se señaló para los servicios técnicos de atención directa al paciente. el criterio de cada Servicio frente a los problemas de su especialidad debe ser el producto de su análisis por sus distintos integrantes.

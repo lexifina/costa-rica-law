@@ -1,0 +1,1 @@
+Artículo 52.-La consulta externa y el servicio domiciliario deben considerarse en todo sentido como parte del respectivo establecimiento y trabajar en íntima coordinación con las demás dependencias dedicadas a acciones de salud.

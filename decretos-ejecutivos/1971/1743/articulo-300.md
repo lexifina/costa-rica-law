@@ -1,0 +1,1 @@
+Artículo 300.-Para poder apreciar la disciplina y puntualidad se utilizará el control de asistencia que habitualmente use el establecimiento. Asimismo, se considerará el cumplimiento de los reglamentos de la Institución y el acatamiento de las instrucciones de sus superiores.

@@ -1,0 +1,1 @@
+Artículo 230.-Para el cumplimiento de algunas de las labores de mantenimiento, los establecimientos podrán realizar contratos con casas especializadas, de acuerdo con las necesidades y los recursos disponibles.

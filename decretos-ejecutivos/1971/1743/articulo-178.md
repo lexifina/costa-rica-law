@@ -1,0 +1,1 @@
+Artículo 178.-El Servicio Central de Esterilización y Equipo permanecerá abierto 8 horas diarias como mínimo. Su horario será fijado por el Director del establecimiento, de acuerdo con el jefe de la Dependencia y deberá considerar los turnos de guardias que fueran necesarios.

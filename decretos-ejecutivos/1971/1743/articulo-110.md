@@ -1,0 +1,1 @@
+Artículo 110.-El Hospital no intervendrá ni en la regulación ni en el cobro que los profesionales fijen por la atención de los enfermos particulares, no consultantes, pero no permitirá cobro profesional por servicios prestados a pacientes de salas generales.

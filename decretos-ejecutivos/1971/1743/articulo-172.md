@@ -1,0 +1,1 @@
+Artículo 172.-El personal de enfermería de cada establecimiento deberá reunirse por lo menos una vez al mes para el estudio de problemas de su competencia. De acuerdo con la magnitud de los mismos, tales reuniones podrán ser globales o parciales, con representantes de las distintas áreas de trabajo.

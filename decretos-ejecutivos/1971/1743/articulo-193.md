@@ -1,0 +1,2 @@
+Artículo 193.-El Servicio Social estará a cargo de un jefe, que deberá ser graduado en una Escuela de Servicio Social debidamente reconocida y tener experiencia en labores de Servicio Social y en supervisión y manejo de personal, así como ser incorporado al Colegio de Trabajadores Sociales de Costa Rica.
+En Hospitales Clases B y C, en caso de inopia y previa autorización de la Dirección General de Asistencia Médico-Social, podrá nombrarse interinamente al candidato más capacitado, que por lo menos deberá ser bachiller adiestrado en las labores específicas de esta disciplina.

@@ -1,0 +1,2 @@
+Artículo 121.-Todo enfermo enviado a Radiología para examen deberá llevar la orden correspondiente firmada por el médico tratante, en la cual por lo menos se indicará el nombre del paciente, el número de la historia clínica. la información clínica más sobresaliente sobre el padecimiento que motiva el estudio radiológico, el segmento anatómico cuyo estudio se desea y la presunción diagnóstica que lo justifica.
+Corresponderá al radiólogo resolver el procedimiento técnico más adecuado de acuerdo con el médico tratante.

@@ -1,0 +1,1 @@
+Artículo 293.-El jefe del Departamento, Servicio o Unidad correspondiente deberá poner en conocimiento del interesado su calificación y éste dispondrá hasta de quince días hábiles para agregar los antecedentes que en su opinión puedan modificarla. Oportunamente un Comité, presidido por el Director del establecimiento será el que en definitiva acuerde las calificaciones.

@@ -1,0 +1,1 @@
+Artículo 267.-Será nulo cualquier nombramiento que se hiciese en contravención a este Reglamento, pero las actuaciones del funcionario así nombrado que se ajusten a la ley y a los reglamentos serán válidas.

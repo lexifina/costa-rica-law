@@ -1,0 +1,2 @@
+Artículo 143.-Todo pedido de análisis deberá enviarse al Laboratorio en el respectivo formulario, firmado por el médico responsable.
+Los informes de los resultados de los análisis de laboratorio deberán hacerse por escrito dentro del menor tiempo posible, en un formulario especial firmado sólo por el personal autorizado para ello y retirados por funcionarios responsables del Servicio correspondiente. Copia de ellos deberá guardarse en los Archivos.

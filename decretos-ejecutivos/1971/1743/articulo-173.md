@@ -1,0 +1,1 @@
+Artículo 173.-La jefe, las Subjefes y las Supervisoras se reunirán mensualmente para evaluar la calidad del trabajo de enfermería. Para facilitar tal evaluación, deben existir instrumentos que registren adecuadamente la atención de enfermería.

@@ -1,0 +1,2 @@
+Artículo 80.-En los Hospitales Clase A el Servicio estará bajo la dependencia de un Jefe que deberá ser Médico-Cirujano, registrado como especialista en anestesiología en el respectivo colegio profesional.
+En los Hospitales Clase B, cuando haya imposibilidad de conseguir un anestesiólogo para ocupar la jefatura del Servicio, la responsabilidad de la Unidad estará a cargo del Jefe del Servicio de Cirugía y, en las mismas circunstancias, en los Hospitales Clase C la responsabilidad corresponderá al Director Médico del establecimiento.

@@ -1,0 +1,7 @@
+Artículo 153.-Para el despacho de recetas se observarán las siguientes reglas :
+a ) La Farmacia permanecerá abierta 8 horas como mínimo y su horario se fijará de común acuerdo entre el Director y el jefe de la dependencia; además, éste dispondrá los turnos del personal en las horas de trabajo y el] los días festivos, de acuerdo con las necesidades del establecimiento;
+b) Las recetas se prescribirán de puño y letra del médico tratante en formularios contra cuya presentación la Farmacia procederá a su despacho. Tales formularios deben indicar por lo menos: fecha, nombre del paciente, edad, servicio a que corresponde, medicamento prescrito, cantidad del mismo e indicaciones para su uso, y firma del médico responsable; en pacientes de consulta externa deberá además anotarse la edad y las indicaciones para el uso del medicamento;
+c) Cada prescripción que se despache debe quedar registrada en la Farmacia anotándose el número de orden, fecha, indicaciones y nombre del médico responsable;
+d) Se dará preferencia a las recetas de urgencia. En este caso la prescripción deberá tener en forma visible la palabra "urgente" escrita por el médico tratante; y
+e) Las recetas serán individuales, por una cantidad no superior a la prescripción de dos días para pacientes hospitalizados y de cinco para los de consulta externa. Para el tratamiento de enfermedades crónicas, las prescripciones podrán ser efectuadas para plazos más largos.
+Las excepciones a esta disposición serán autorizadas por el jefe del Servicio o por el Director del Hospital.

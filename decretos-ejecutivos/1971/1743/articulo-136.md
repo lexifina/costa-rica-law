@@ -1,0 +1,2 @@
+PARRAFO IV.-Laboratorios Clínicos y Banco de Sangre:
+Artículo 136.-La Dependencia encargada de Laboratorios Clínicos y Banco de Sangre tendrá por objeto la elaboración, el análisis y el informe de los exámenes de laboratorio solicitados por el personal del establecimiento y la recolección, clasificación, almacenamiento y distribución de la sangre o fracción indicados por dicho personal para el adecuado tratamiento de los enfermos.

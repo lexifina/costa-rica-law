@@ -1,0 +1,1 @@
+Artículo 137.-La Dependencia estará a cargo de un jefe que deberá ser Microbiólogo y Químico Clínico graduado en una Escuela de Microbiología debidamente reconocida por la Universidad de Costa Rica e incorporado al Colegio de Microbiólogos y Químicos de Costa Rica.

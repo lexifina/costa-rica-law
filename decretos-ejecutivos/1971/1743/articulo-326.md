@@ -1,0 +1,1 @@
+Artículo 326.-Los establecimientos destinados a proporcionar atención médica que sean sostenidos o subvencionados por el Estado o por las Municipalidades, estarán sujetos a la dirección técnica y a la fiscalización económica de la Dirección General de Asistencia Médico-Social, de conformidad con lo dispuesto por a la ley N9 1153 (38) de 14 de abril de 1950.

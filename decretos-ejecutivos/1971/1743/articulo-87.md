@@ -1,0 +1,1 @@
+Artículo 87.-Los odontólogos deberán actuar en estrecho contacto con los médicos, solicitando su cooperación en las intervenciones quirúrgicas de importancia. Las indicaciones de esas intervenciones requerirán la aprobación del jefe del Servicio de Odontología.

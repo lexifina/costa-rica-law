@@ -1,0 +1,1 @@
+Artículo 86.-En la historia clínica de cada paciente atendido en el Servicio de Odontología, se dejará constancia en un diagrama de las conclusiones bucodentarias y de las intervenciones dentales efectuadas o por efectuar.

@@ -1,0 +1,1 @@
+Artículo - 129.-La Dependencia deberá contar con personal técnico auxiliar en número suficiente, que debe haber recibido cursillos de adiestramiento en un Hospital Clase A o bajo los programas que imparta la Escuela de Medicina, durante no menos de 3 meses.

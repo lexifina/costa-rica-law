@@ -1,0 +1,1 @@
+Artículo 69.-En las localidades en que haya un solo médico dependiente de alguna institución gubernamental o semiautónoma, éste tendrá residencia obligada en ella y no podrá alejarse del área a su cuidado sin autorización superior. Tendrá también obligación de prestar atención a los casos de emergencia.

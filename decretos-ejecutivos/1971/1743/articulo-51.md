@@ -1,0 +1,1 @@
+Artículo 51. En los hospitales donde ello sea factible, podrá existir el servicio domiciliario, atendido por personal de la Institución. Este servicio se dará a los pacientes, cuya condición de salud así lo requiera de acuerdo con las normas que a estos efectos establezca la Dirección.

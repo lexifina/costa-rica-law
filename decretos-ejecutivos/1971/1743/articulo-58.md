@@ -1,0 +1,1 @@
+Artículo 58.-Los pacientes tratados en la consulta externa que deban ser hospitalizados, lo serán acompañando sus documentos médicos de consulta externa a los de hospitalizaciones anteriores si las hubiera, con el objeto de facilitar el diagnóstico y la terapéutica.

@@ -1,0 +1,2 @@
+PARRAFO II.-De las áreas de atracción y referencia de enfermos:
+Artículo 314.-Para determinar las áreas geográficas que deben ser cubiertas por cada hospital, deberá existir, independientemente de la división política del país, una división por Zonas, Regiones o Distritos Sanitarios, que serán determinados por las autoridades nacionales al nivel del Ministerio de Salubridad Pública, tomando en consideración, fundamentalmente, la densidad de población, las vías de comunicación y los recursos de salud existentes.

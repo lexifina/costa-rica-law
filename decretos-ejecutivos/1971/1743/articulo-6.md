@@ -1,0 +1,1 @@
+Artículo 6º-Se entiende por Servicio de un Hospital la dependencia destinada a funciones técnicas especializadas. Debe contar con la dotación suficiente para el cumplimiento de las funciones específicas descritas en este Reglamento, y deben estar a cargo de un Jefe de Servicio y del personal subalterno necesario.

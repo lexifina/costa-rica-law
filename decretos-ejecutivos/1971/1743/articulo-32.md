@@ -1,0 +1,1 @@
+Artículo 32.-En los Hospitales Clase C, las funciones del jefe de Servicio se recargarán en el Director del Hospital, quien podrá delegar algunas de ellas en el médico que considere más capacitado para desempeñarlas.

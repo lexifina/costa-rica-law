@@ -1,0 +1,2 @@
+Artículo 175-Podrá depender del Servicio o Departamento de Enfermería y estará a cargo de una Enfermera graduada o de una persona que haya recibido adiestramiento especial para el manejo del mismo; en ambos casos, deberá contar con amplia experiencia en la ejecución y supervisión de las labores propias del servicio.
+En Hospitales Clase C, la jefatura del Servicio podrá recargarse en la Enfermera jefe del establecimiento.

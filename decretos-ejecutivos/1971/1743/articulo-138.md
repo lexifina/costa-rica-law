@@ -1,0 +1,1 @@
+Artículo 138.-En los Hospitales Clase A la Dependencia deberá contar además con jefes de Unidades y Microbiólogos, que deberán ser Microbiólogos y Químicos, incorporados al Colegio respectivo. También podrán desempeñar el cargo de Microbiólogo Analista, en casos de inopia, egresados de la Escuela de Microbiología.

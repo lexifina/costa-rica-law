@@ -1,0 +1,1 @@
+Artículo 102.-El Director del Hospital y la Enfermera del Pensionado y, en defecto de ésta, la Enfermera jefe del Hospital, serán los encargados del orden y de la disciplina dentro de él. Sus facultades llegarán hasta poder disponer la salida de las visitas y limitar su número.
