@@ -1,0 +1,1 @@
+Artículo 45.—Casos en que se puede prescindir de la convocatoria a concurso. Se podrá prescindir del concurso interno, cuando la plaza vacante pueda ser llenada mediante ascenso o permuta, o en el caso de servidores escogidos del registro de elegibles o desempeñen un puesto interino el cual ganaron mediante concurso.

@@ -1,0 +1,1 @@
+Artículo 35.—Ámbito de aplicación. El sistema de carrera policial se aplicará a todo el personal que cumpla funciones de autoridad de tránsito o desarrolle su actividad en áreas indispensables de la parte administrativa policial y operacional de la Policía.

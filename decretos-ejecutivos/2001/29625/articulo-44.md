@@ -1,0 +1,1 @@
+Artículo 44.—Convocatoria a concurso. La Unidad Recursos Humanos convocará a concurso, cuando haya menos de tres candidatos elegibles en el correspondiente registro, o cuando se prevea la insuficiencia de personal, dada la necesidad de llenar en el menor término posible, una o más plazas.

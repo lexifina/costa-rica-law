@@ -1,0 +1,1 @@
+Artículo 96.—Obligaciones dentro de la sala de clases. La sala de clases debe ser considerada como el lugar de estudio y de trabajo intelectual. Allí el alumno debe observar el máximo de atención y respeto para con los instructores, profesores y sus compañeros.

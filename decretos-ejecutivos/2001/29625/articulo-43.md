@@ -1,0 +1,1 @@
+Artículo 43.—Pruebas psicológicas, médicas y psicosociales. Recursos Humanos aplicará a los interesados, las pruebas médicas y psicológicas, y podrá realizar un estudio psico-social adicional si el perfil del puesto requiere una revisión más exhaustiva de los candidatos. La elaboración y resultados de los exámenes serán estrictamente confidenciales.

@@ -1,0 +1,1 @@
+Artículo 81.—Entidad definitoria. Los cursos de especialización que se impartan en la Escuela los definirá la Dirección General de la Policía de Tránsito de conformidad con la política del Ministerio de Obras Públicas y Transportes y las recomendaciones del Consejo de Personal.

@@ -1,0 +1,1 @@
+Artículo 82.—Requisito para la graduación. Es requisito para graduación, en cualquier tipo de programas, haber aprobado la totalidad de las materias que lo conforman, con una nota no inferior a ochenta, en la escala de uno a cien, además aprobar las prácticas dirigidas en los cursos en que esto sea pertinente.

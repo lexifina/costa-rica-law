@@ -1,0 +1,1 @@
+Artículo 40.—Concurso interno para el sistema de promoción. El sistema de promoción se aplicará por el procedimiento de concurso interno para llenar todas las plazas vacantes y llevará un registro de elegibles que abarcará todas las clases de puestos existentes en el escalafón policial.

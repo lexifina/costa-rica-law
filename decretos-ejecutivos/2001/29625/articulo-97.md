@@ -1,0 +1,1 @@
+Artículo 97.—Obligatoriedad de asistencia a lecciones. La asistencia a lecciones es obligatoria. La ausencia de una lección no es justificante para que el estudiante alegue que no dispone de la materia.

@@ -1,0 +1,1 @@
+Artículo 14.—Terna y escogencia. Una vez conformada la lista con los candidatos elegibles, se remitirá al Consejo de Personal con el fin de que se realice la escogencia del más idóneo y a los no elegidos se les incorporará nuevamente en la nómina de elegibles.

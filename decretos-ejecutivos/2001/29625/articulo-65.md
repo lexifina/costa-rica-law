@@ -1,0 +1,3 @@
+Artículo 65.—Suspensión hasta por un mes. La suspensión del trabajo por un máximo de un mes sin goce de sueldo, se aplicará una vez que se haya cumplido el trámite previsto por la Ley de Policía en los siguientes casos:
+a) Cuando el servidor viola en forma notable alguna de las obligaciones o prohibiciones de la Ley de Policía o del artículo 57 de este Reglamento o cuando reincida en una de las faltas contenidas en el artículo 56 de este cuerpo normativo.
+b) Cuando estando la falta contemplada entre las causales de despido, el Consejo, discrecionalmente y en atención a consideraciones tales como la antigüedad, calidad de servicios, méritos y no ser reincidente, determine no destituir al servidor.

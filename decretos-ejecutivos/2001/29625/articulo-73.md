@@ -1,0 +1,1 @@
+Artículo 73.—Acceso del servidor a la información. El servidor tendrá acceso a la información contenida en su evaluación del desempeño; y deberá firmar si se encuentra conforme; en caso de inconformidad podrá recurrir por escrito dentro de los diez días hábiles siguientes, ante Recursos Humanos.

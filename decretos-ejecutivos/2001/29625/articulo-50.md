@@ -1,0 +1,1 @@
+Artículo 50.—Incentivo automático por concepto de antigüedad. En forma automática se seguirá aplicando el incentivo por concepto de antigüedad hasta un máximo de 30 anualidades. Por concepto de disponibilidad se reconocerá un 25% a la base del salario, por servicios sin sujeción de horario, según las necesidades y libre disposición requeridas por el superior jerárquico.

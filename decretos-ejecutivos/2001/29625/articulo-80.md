@@ -1,0 +1,1 @@
+Artículo 80.—Cursos de especialización. Los cursos de especialización tienen como propósito de aumentar los conocimientos y habilidades adquiridos por el servidor policial para el desempeño de su cargo, en función con las necesidades administrativas y operativas específicas del puesto que desempeñe.

@@ -1,0 +1,1 @@
+Artículo 87.—Entrevistas de previo a resolver una terna. Para resolver una terna, de previo el Director de la Escuela en consulta con el Director General realizará las entrevistas pertinentes y completará los formularios que para ese efecto se tenga y las remitirá al Director de la Policía de Tránsito, para su refrendo, quien posteriormente la remitirá al Consejo.

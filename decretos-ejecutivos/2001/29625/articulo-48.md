@@ -1,0 +1,2 @@
+Artículo 48.—Reconocimiento de estudios compatibles y aumento salarial. Un aumento salarial según se avance en la instrucción académica formal o en la instrucción especializada en áreas a fines a la labor policial. Lo anterior según el siguiente criterio:
+a) Un aumento hasta de un 35% del salario base, como máximo, según avance en la instrucción general del sistema Educativo Costarricense o en la Especializada, recibida en la Escuela Nacional de la Policía de Tránsito o en otras instituciones autorizadas de conformidad con lo que establezca el Consejo.
