@@ -1,5 +1,7 @@
 (Derogado)
 LEY Nº 6939
+La presente norma ha sido DEROGADA TÁCITAMENTE EN SU TOTALIDAD por el artículo 63 de la Ley N° 7629 de 26 de Septiembre de 1996,
+Ley del Tratado General de Integración Económica Centroamericana (Guatemala) Protocolo de Guatemala.
 Artículo 1º.- Apruébase en todas y cada una de sus partes el Cuarto protocolo al Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial, suscrito en la Ciudad de Guatemala el día 7 de noviembre de 1983, cuyo texto es el siguiente:
 "CUARTO PROTOCOLO AL CONVENIO CENTROAMERICANO DE INCENTIVOS FISCALES AL DESARROLLO INDUSTRIAL
 Los gobiernos de las Repúblicas de Guatemala, El Salvador, Nicaragua y Costa Rica.
