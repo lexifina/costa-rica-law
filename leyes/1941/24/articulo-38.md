@@ -1,4 +1,4 @@
-Artículo 38.- El Tribunal a que se refiere el artículo anterior será
+ARTICULO 38.- El Tribunal a que se refiere el artículo anterior será
 integrado por el Presidente del Colegio o por un Vocal en su defecto, por
 el Secretario de la Directiva y por dos dentistas sorteados de la lista
 del Comité Consultivo o, en casos excepcionales, designados por la

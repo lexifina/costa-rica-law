@@ -1,8 +1,11 @@
-Artículo 11.- Para que se verifique una Asamblea Extraordinaria es
-preciso una convocatoria que se publicará en La Gaceta, durante dos días
-consecutivos, debiendo mediar cinco días hábiles por lo menos entre la
-primera publicación y el día señalado para la reunión, e insertar en el
-aviso el objeto de la convocatoria con relación al proyecto respectivo.
-Constituirá quórum la mitad más uno de los miembros del Colegio. Toda
-Asamblea Ordinaria se reunirá el tercer domingo de diciembre de cada año,
-y la nueva Directiva se instalará el primero de enero siguiente.
+ARTICULO 11.- Para que se verifique una Asamblea Extraordinaria u
+Ordinaria es preciso una convocatoria que se publicará en "La Gaceta"
+durante los días consecutivos, debiendo mediar cinco días hábiles por
+lo menos entre la primera publicación y el día señalado, e indicar en
+el aviso el objeto de la convocatoria con relación al proyecto.
+Constituirán quórum doce miembros del Colegio. En caso de no formarse
+quórum se hará una segunda convocatoria y en este caso lo formarán un
+mínimum de cinco miembros. Toda Asamblea debe verificarse en el
+edificio o salón de actos del Colegio.
+(Así reformado por el artículo único de la ley No.53 de 4 de
+febrero de 1944)

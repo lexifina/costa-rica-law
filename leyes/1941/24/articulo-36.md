@@ -1,4 +1,4 @@
-Artículo 36.- Verificada la sesión en forma legal, se procederá a
+ARTICULO 36.- Verificada la sesión en forma legal, se procederá a
 discutir por su orden el dictamen de la mayoría y el de la minoría si no
 es el caso de un solo dictamen; se recogerán los votos de los dentistas
 presentes en el acto sobre la base de la discusión y sobre las enmiendas

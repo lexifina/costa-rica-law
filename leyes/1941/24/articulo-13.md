@@ -1,6 +1,6 @@
 CAPITULO IV
 De la Junta de Gobierno o Directiva
-Artículo 13.- La Junta de Gobierno o Directiva se compondrá de un
+ARTICULO 13.- La Junta de Gobierno o Directiva se compondrá de un
 Presidente, un Secretario, un Fiscal, un Tesorero y tres Vocales.
 Los miembros de la Junta de Gobierno durarán en sus funciones dos
 años, si se trata de los que desempeñan cargos no remunerados; y uno si se
