@@ -1,0 +1,1 @@
+Artículo 6º—Cuando las entidades públicas presenten una reestructuración orgánica ante MIDEPLAN, deberán observar que los costos que ésta genere estén contemplados en el gasto presupuestario autorizado para el presente período.

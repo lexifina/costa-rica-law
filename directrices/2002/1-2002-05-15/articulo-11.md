@@ -1,0 +1,1 @@
+Artículo 11.—La Autoridad Presupuestaria velará por el cumplimiento de las disposiciones contenidas en el presente Decreto e informará al Presidente de la República del cumplimiento del mismo y de las rebajas ordenadas.
