@@ -14,3 +14,4 @@ Reglamento sobre la Custodia y Destino de Drogas, Estupefacientes, Psicotrópica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-09-27 | la propia norma |
+| 2 | 1985-09-27 | Ley 8 |
