@@ -1,0 +1,1 @@
+Artículo 15.-EI Ministerio de Educación revocará en cualquier momento la validez de estudios reconocidos en favor de un alumno, si comprueba que ha habido falsedad o inexactitud en los documentos en que se basó ese reconocimiento.

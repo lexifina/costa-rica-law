@@ -1,0 +1,1 @@
+Artículo 12.-Todos los documentos, diplomas, certificados, etc., ,que extiendan las instituciones particulares de enseñanza, para que surtan efecto en la República, estarán redactados en castellano, salvo los diplomas o títulos de conclusión de estudios; éstos podrán estarlo en latín y podrán emitirse copias en otros idiomas.
