@@ -1,0 +1,1 @@
+Articulo 34.—La responsabilidad de JAPDEVA para con niños y niñas en caso de accidentes u otros rubros que la Ley de Guarderías Infantiles exige, se limitará al pago de las respectivas pólizas de seguros en los montos exigidos por la Ley.

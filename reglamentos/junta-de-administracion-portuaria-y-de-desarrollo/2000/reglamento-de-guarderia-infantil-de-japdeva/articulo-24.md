@@ -1,0 +1,1 @@
+Articulo 24.— La Cocinera , el Conserje y el Guarda serán los responsables bajo la dependencia directa de la Dirección del cuidado y mantenimiento de la Guardería , del mobiliario y enseres de la misma.
