@@ -1,0 +1,1 @@
+Artículo 2° Los Registradores del Registro Nacional, actuarán a tal efecto, como auxiliares de la Administración Tributaria. A su vez, el personal de Tributación Directa, destacado en el Registro Nacional deberá evacuar las consultas que formulan tanto usuarios como personal del Registro en el desempeño de sus funciones.

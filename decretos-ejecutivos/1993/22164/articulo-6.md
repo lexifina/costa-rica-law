@@ -1,0 +1,1 @@
+Articulo 6° El Registro Nacional hará todos los ajustes necesarios a fin de que los valores de los inmuebles que constan en las cuentas de Tributación Directa sean publicitadas en la Base de Datos Computarizada como parte de la información relativa a un inmueble.

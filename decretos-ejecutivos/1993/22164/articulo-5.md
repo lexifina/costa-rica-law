@@ -1,0 +1,1 @@
+Artículo 5° A efecto de dar cumplimiento a lo dispuesto en el artículo 48 de la Ley 7293 de 3 de abril de 1992, no deberá exigirse a los interesados la Constancia de Solvencia Tributaria, sino que, con base en la información constante en el Sistema Integral Tributario (S.I.T), el Registro Mercantil señalará si la persona jurídica está atrasada o no en el pago de los impuestos.
