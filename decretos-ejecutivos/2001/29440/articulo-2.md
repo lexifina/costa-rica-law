@@ -1,0 +1,1 @@
+Artículo 2º—En consecuencia dicho Centro Educativo podrá emitir los certificados correspondientes a los certificados de asistencia al Ciclo de Trasición de la Educación Preescolar, y el Certificado de Aprobación de Estudios de los ciclos Primero y Segundo de la Educación General Básica, los cuales se equiparan con los del sistema educativo estatal.
