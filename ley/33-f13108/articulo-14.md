@@ -1,0 +1,2 @@
+XIV.
+La Compañía se obliga á no permitir á bordo de sus vapores el trasporte de tropas ó municiones de guerra desde los puertos en los cuales tocan al de Costa Rica ó adyacentes, si tiene motivo para suponer que el material pueda ser usado contra el Gobierno de esta República, ó que se intente guerra ó pillaje.
