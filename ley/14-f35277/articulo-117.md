@@ -1,0 +1,1 @@
+Art. 117.-El capitán que quiera eximirse de la obligación impuesta por el anterior artículo, puede obtenerla pagando diez centavos por cada tonelada de registro que mida el buque. En ese caso, podrá arrojar el lastre en cualquier otro sitio que le designe el Capitán del puerto

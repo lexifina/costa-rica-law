@@ -1,0 +1,2 @@
+Art. 18.-Los prácticos deberán cumplir, sin excusa ni tardanza alguna, las órdenes del capitán del puerto sobre auxiliar los buques en peligro al ancla, sea por garrear ésta, ó por reventarse los cables, de esperanza; ya por irse á pique ó vararse, ó por incendio comunicable; en cuyos casos deberán llevar a la lancha de auxilio los recursos necesarios para el salvamento.
+§ único.-En los casos expresados en este artículo, las partes favorecidas satisfarán los costos del auxilio, salvo imposibilidad absoluta para efectuarlo.

@@ -1,0 +1,1 @@
+Art. 82.-Si durante el tiempo de estadía de un buque en la cuarentena, falleciere alguna de las personas que se hallen en él, su cadáver será arrojado al mar en principio de vaciante, con peso suficiente para que llegue al fondo.

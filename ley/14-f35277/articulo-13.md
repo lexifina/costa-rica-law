@@ -1,0 +1,2 @@
+Art. 13.-Si el buque viniere desarbolado, el práctico se abstendrá de dirigir su maniobra, y limitará su ingerencia, en el caso, á dar instrucciones al capitán sobre el rumbo que debe seguir, la fuerza de vela, viradas, orzadas y arribadas necesarias.
+§ único.-En los casos de este artículo y del 12, será deber del práctico dar pronto aviso á la Capitanía del puerto, para que ésta ordene que se dé al buque el correspondiente auxilio.

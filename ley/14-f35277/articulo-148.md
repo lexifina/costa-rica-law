@@ -1,0 +1,1 @@
+Art. 148.-No es permitido dar de quilla sin licencia del Capitán del puerto, ni en otro sitio que el indicado por él; y no será otorgada cuando haya fundado motivo para temer las consecuencias de esa maniobra.

@@ -1,0 +1,1 @@
+Art. 162.-Si ocurriere que se incurra en infracción de modo que un mismo acto viole dos ó más de las prescripciones de este capítulo, como deslastrar sin licencia y ejecutarlo sin las precauciones requeridas, se impondrá al infractor una multa que comprenda las que estén asignadas á cada una de las faltas que haya cometido, ó en defecto de ella, treinta días de reclusión.

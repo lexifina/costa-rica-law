@@ -1,0 +1,1 @@
+Art. 49.-Es limpia la patente que exprese que no reinaba alguna enfermedad importante ó sospechosa, en el puerto de que el buque proceda, al tiempo en que éste salió de él; y sucia en el caso contrario.

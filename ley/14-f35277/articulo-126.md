@@ -1,0 +1,1 @@
+Art. 126.-Cuando algún individuo de la tripulación de un buque deseare permanecer por días ó quedarse en tierra, con el consentimiento de su capitán, ó porque éste lo haya despedido, lo expondrá al Capitán del puerto, quien deberá concederle el permiso correspondiente.

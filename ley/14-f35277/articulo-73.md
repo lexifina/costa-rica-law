@@ -1,0 +1,1 @@
+Art. 73.-La guardia de la cuarentena tendrá á su disposición la lancha de auxilio, para ir al costado del buque siempre que el capitán de éste lo llame, ya para encargarle la compra de las provisiones ó del agua que necesite, ya para pedir auxilio médico si él ó alguna otra persona de á bordo estuviere enferma.

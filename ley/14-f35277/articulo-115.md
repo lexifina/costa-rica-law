@@ -1,0 +1,1 @@
+Art. 115. -Ningún buque podrá descargar lastre sin permiso del Capitán del puerto, ni hacerlo en otro punto distinto del que éste designare, bajo la pena de quinientos á tres mil pesos, según el daño causado con la infracción.

@@ -1,0 +1,1 @@
+Art. 23.-La mitad del derecho que cobrarán los prácticos conforme al artículo 16, forma el fondo de responsabilidades; y al efecto, las administraciones de rentas lo exigirán y guardarán en arcas como par- te del tesoro nacional.

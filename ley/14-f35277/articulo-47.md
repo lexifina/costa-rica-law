@@ -1,0 +1,1 @@
+Art. 47.-Todo buque nacional, extranjero, de guerra lo mismo que mercante, debe esperar la visita de que trata el anterior artículo, teniendo enarbolada la bandera de su nación desde que se acerque al puerto, y conservándose á la capa hasta que se le permita entrar en él.

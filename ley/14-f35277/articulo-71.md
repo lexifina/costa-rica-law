@@ -1,0 +1,1 @@
+Art. 71.-El capitán del puerto, con vista del parte á que se refiere el artículo anterior, dispondrá inmediatamente que marchen un cabo y cuatro hombres del Resguardo á estacionarse en el lazareto, dándoles las instrucciones correspondientes á fin de hacer efectiva la incomunicación del buque.

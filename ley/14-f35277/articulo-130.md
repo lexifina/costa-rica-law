@@ -1,0 +1,1 @@
+Art. 130.-Todo Capitán de puerto podrá castigar las faltas de sus subordinados, en lo relativo á sus deberes oficiales, hasta con treinta días de arresto, y hasta con cincuenta pesos de multa; mas respecto de delitos y de faltas penadas por el código general, deberá remitir su conocimiento al juez competente.

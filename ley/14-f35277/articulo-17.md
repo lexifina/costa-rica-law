@@ -1,0 +1,1 @@
+Art. 17.-Es prohibido á los prácticos revelar las órdenes reservadas que reciban del capitán del puerto y hacer contrato alguno con los capitanes, contramaestres y mismos, ó por comisión. demás gente de los buques, sea por sí ó por comisión.

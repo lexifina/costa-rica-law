@@ -1,0 +1,1 @@
+Art. 134.-Cuando se vaya á examinar un buque de vapor en cumplimiento de la atribución 5a del artículo 132, el respectivo Comité de Marina acompañará de un ingeniero mecánico para que examine la máquina y dé su opinión respecto de ella, lo que deberá consignarse en el proceso verbal.

@@ -1,0 +1,1 @@
+Art. 185.-En los casos de fallecimiento ó falta repentina del Capitán del puerto, le sustituirá su ayudante, quien seguidamente dará cuenta al Ministerio de Guerra y Marina, para el nombramiento de nuevo propietario en el primer caso, y para llenar la interinaria si la falta temporal hubiere de durar más de un mes.

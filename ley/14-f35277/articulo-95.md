@@ -1,0 +1,1 @@
+Art. 95.-La visita de fondeo deberá practicarse, á más tardar, dentro de las cuarenta y ocho horas siguientes á aquella en que el capitán del buque solicite la licencia á que se refiere el artículo 93.

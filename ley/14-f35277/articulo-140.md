@@ -1,0 +1,1 @@
+Art. 140.-Los capitanes de los puertos en que deben constituirse los Comités de marina, propondrán sin pérdida de tiempo al Ministerio del ramo los carpinteros navales con quienes convenga organizarlos, á fin de que se les expida el correspondiente nombramiento.

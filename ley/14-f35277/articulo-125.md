@@ -1,0 +1,1 @@
+Art. 125.-Todo buque cuyo capitán ó comandante no quisiere sujetarse á las disposiciones de este Reglamento que le conciernen, deberá salir del puerto en el perentorio término de tres horas; sin perjuicio de hacerse efectivo el cobro de las cantidades que adeude por derechos fiscales, auxilio, ó por cualesquiera otros motivos.

@@ -1,0 +1,1 @@
+Art. 174.-El Capitán del puerto notificará al comandante del buque de Guerra, ó corsario, que vaya á salir primero, en las circunstancias del anterior artículo, que no deberá detener su marcha en aguas de la República, y que tampoco podrá volver al punto de su salida antes de tres días, salvo tormenta ó necesidad de reparos.

@@ -1,0 +1,1 @@
+Art. 54.-Si un buque conductor de esos efectos aumentare cuarentena, todos ellos se desembarcarán por la tripulación en la playa y casa del lazareto, para que se ventilen durante el tiempo que el médico de sanidad expresará al capitán.

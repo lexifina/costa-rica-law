@@ -1,0 +1,1 @@
+Art. 159.-Los Capitanes de puertos deberán redactar una tarifa de multas aplicables por infracciones de lo preceptuado relativamente á basuras, escorias, lastre, deslastre y escombros; la que fijarán en la parte exterior de su oficina y de la Aduana del puerto, previa aprobación del Poder Ejecutivo.

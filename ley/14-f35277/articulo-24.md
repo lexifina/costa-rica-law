@@ -1,0 +1,1 @@
+Art. 24.-Si alguien sin título de práctico desempeñare en algún caso las funciones de tal, perderá el precio que reciba por su trabajo, y sufrirá una multa le impondrá el capitán del puerto, ascendente á la misma paga, todo con aplicación al fondo de responsabilidad.

@@ -1,0 +1,1 @@
+Art. 187.-El Comandante de armas y los de los buques de guerra nacionales, auxiliarán con las fuerzas de su mando al Capitán del puerto, siempre que éste lo necesite para reprimir algún desórden en los muelles, ó para aprehender á las personas que en ellos hayan delinquido.

@@ -1,0 +1,1 @@
+Art. 110.-Las embarcaciones que hayan de salir fuera de puerto en horas extraordinarias, de conformidad con los artículos 108 y 109, atracarán al muelle de la Aduana para que las reconozcan los empleados del Resguardo, quienes en vista de la guía, y cerciorados de que ellas no conducen contrabando, les permitirán la salida.

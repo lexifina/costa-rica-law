@@ -1,0 +1,1 @@
+Art. 27.-Cuando algún buque se estrelle ó naufrague sobre la costa exterior ó interior del puerto, en bajo ó playa, se le dará todo el auxilio posible para salvar su gente, equipajes, cargamento, y la parte de él cuya pérdida puede evitarse.

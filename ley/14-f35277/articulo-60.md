@@ -1,0 +1,1 @@
+Art. 60.-Los días de cuarentena serán de veinticuatro horas; y si en un buque cuarentenario ocurriere algún caso sospechoso de contagio, la cuarentena comenzará á contarse desde el día en que cese todo temor fundado.
