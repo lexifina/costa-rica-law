@@ -1,0 +1,1 @@
+Artículo 26.—Departamento de Recursos Humanos. Deberá emitir criterio técnico sobre la excepcionalidad, el carácter ocasional de la contratación de servicios profesionales y técnicos, los términos de referencia, idoneidad de los oferentes y el valor monetario de la consultoría.

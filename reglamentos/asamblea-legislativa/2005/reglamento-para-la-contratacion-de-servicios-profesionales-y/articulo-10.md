@@ -1,0 +1,1 @@
+Artículo 10.—Autorizaciones. La contratación de servicios profesionales y técnicos será autorizada únicamente mediante acuerdo del Directorio Legislativo; de la misma manera se autorizará el contratista que ejecutará el trabajo requerido, de conformidad con la recomendación que al respecto emita la Comisión Técnica Contratante.

@@ -1,0 +1,1 @@
+Artículo 38.—Sanciones. Cualquier infracción a las disposiciones contenidas en este reglamento dará lugar a la aplicación del régimen disciplinario a los funcionarios involucrados, según los artículos del 95 al 98 de la Ley de Contratación Administrativa y lo estipulado en la Ley de Personal y el Reglamento Interior de Trabajo de la Asamblea Legislativa.

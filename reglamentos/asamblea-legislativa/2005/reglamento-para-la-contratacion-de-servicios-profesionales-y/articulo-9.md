@@ -1,0 +1,1 @@
+Artículo 9º—Contenido presupuestario. Previo a la autorización de la contratación de la consultoría el Departamento Financiero, mediante nota, hará constar la existencia de contenido presupuestario para la contratación.

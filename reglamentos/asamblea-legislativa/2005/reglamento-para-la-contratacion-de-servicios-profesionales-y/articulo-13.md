@@ -1,0 +1,1 @@
+Artículo 13.—Idoneidad de los oferentes. La Administración deberá gestionar y asegurarse de que los oferentes participantes en el concurso sean idóneos, cumplan con el perfil requerido y estén incorporados y al día en los pagos ante el colegio profesional, según sea el caso.

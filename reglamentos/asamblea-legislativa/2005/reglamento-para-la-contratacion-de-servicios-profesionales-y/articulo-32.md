@@ -1,0 +1,3 @@
+CAPÍTULO V
+De los controles
+Artículo 32.—Incumplimiento de las obligaciones. En caso de que el contratista no cumpla con los resultados definidos en los términos de referencia, los plazos de ejecución para la entrega de los avances y resultados, o estos no sean los esperados, el contratante podrá disolver el contrato unilateralmente sin ningún tipo de responsabilidad, debiendo el consultor resarcir a la institución por los daños y perjuicios ocasionados. Además será aplicable la sanción de apercibimiento o inhabilitación, según el caso, de conformidad con los artículos 99 y 100 de la Ley de Contratación Administrativa.

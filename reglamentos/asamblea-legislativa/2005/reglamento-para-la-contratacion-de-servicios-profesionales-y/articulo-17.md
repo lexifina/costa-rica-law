@@ -1,0 +1,1 @@
+Artículo 17.—Del contrato. Del El contrato debe contener los términos de referencia, objeto, objetivos, resultados esperados, informes de avances y final, tipo de control para la verificación de cumplimiento, monto y formas de pago y fecha de entrega de los resultados concretos.

@@ -1,0 +1,1 @@
+Artículo 18.—De la firma del contrato. Todo contrato debe estar debidamente firmado, con anterioridad a su ejecución, por el contratista en calidad de oferente de un servicio profesional o técnico y el Presidente de la Asamblea Legislativa como contratante, en su condición de representante legal de la Asamblea Legislativa.
