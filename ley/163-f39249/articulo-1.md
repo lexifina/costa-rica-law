@@ -1,0 +1,5 @@
+DECRETO 163
+El Gefe Supremo del Estado Libre de Costa rica
+Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente
+La Asamblea Constitucional del Estado libre de Costa rica: Conciderando que los Alcaldes Constitucionales de los pueblos por falta de la Corte Superior de Justicia, acaso podrían cometer exesos de autoridad contra las garantías sociales de los ciudadanos o inferirles agravio de qualesquiera otro modo, y que la Asamblea por el artículo 55 atribución 7ª de la Ley Fundamental del Estado, puede exigir un Tribunal que los contenga sin traspasar la bahía de sus facultades, ha tenido a bien decretar y decreta.
+Art°1°.- Se erige provicionalmente un Tribunal Superior de agravios que conosca en las faltas, ó exesos de autoridad, cometidos por los Alcaldes Constitucionales de los pueblos, que se compondrá de tres individuos asaber: de un Letrado, nombrado y juramentado por el Executivo, y dos Colegas nombrados por el Alcalde, y la Parte agraviada cuyo juramento recibirá el Abogado.
