@@ -15,3 +15,4 @@ Reglamento de Sesiones Acuerdos y Comisiones Municipales.
 | --- | --- | --- |
 | 1 | 1998-11-04 | la propia norma |
 | 2 | 2002-05-17 | Reglamento municipal 3 (2002-05-17) |
+| 3 | 2002-05-17 | Ley 8 |
