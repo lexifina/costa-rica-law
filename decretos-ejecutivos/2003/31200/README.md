@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-12 | la propia norma |
+| 2 | 2003-06-24 | Decreto Ejecutivo 31261 (2003-06-24) |
