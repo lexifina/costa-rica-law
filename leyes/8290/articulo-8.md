@@ -1,0 +1,1 @@
+Artículo 8º—Corresponderá a la Contraloría General de la República la fiscalización del Fondo del Teatro Nacional. Los miembros del Consejo serán solidariamente responsables por el uso de los recursos del Fondo.

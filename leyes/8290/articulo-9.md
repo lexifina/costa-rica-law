@@ -1,0 +1,1 @@
+Artículo 9º—Autorizase las instituciones del Estado, municipalidades, instituciones autónomas y semiautónomas para que den contribuciones y donaciones que coadyuven a la realización de las actividades del Teatro Nacional y al mantenimiento de este.
