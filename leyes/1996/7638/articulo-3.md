@@ -1,8 +1,1 @@
-ARTICULO 3.- Apoyo interinstitucional
-Conforme a las leyes respectivas, los Ministerios vinculados con la
-producción de determinados productos y las instituciones públicas
-relacionadas con servicios específicos, participarán en la administración
-y aplicación nacional de los tratados, convenios e instrumentos del
-comercio o la inversión, en armonía con las políticas, directrices y
-reglamentos dictados por el Ministerio de Comercio Exterior en consulta
-con esos Ministerios e instituciones.
+ARTICULO 3.- (Derogado por el artículo 12 de Ley para las Negociones Comerciales y la Administración de los Tratados de Libre Comercio, Acuerdos e Instrumentos de Comercio Exterior, N° 8056 del 21 de diciembre del 2000)

@@ -1,0 +1,2 @@
+Artículo 2 bis.- El Ministerio de Comercio Exterior tendrá la organización interna que requiera, según lo defina por reglamento el Poder Ejecutivo. Contara al menos con una Dirección General de Comercio Exterior y una Dirección de Aplicación de Acuerdos Comerciales Internacionales.
+(Así adicionado por el artículo 9° de la Ley para las Negociones Comerciales y la Administración de los Tratados de Libre Comercio, Acuerdos e Instrumentos de Comercio Exterior, N° 8056 del 21 de diciembre de 2000)
