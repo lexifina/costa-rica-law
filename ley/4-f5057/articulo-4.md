@@ -1,0 +1,2 @@
+Art 4°.- Tanto los resguardos como los demás empleados civiles y militares de los puertos y fronteras son obligados a vigilar por el esacto cumplimiento del presente decreto.
+Único. En el producto de la multa establecida en el artículo 3°, tendrán los denunciantes y aprehensores del artículo prohibido, la parte que las leyes han designado. Dado en el Palacio Nacional, en San José, a los veinte ocho días del mes de Enero de mil ochocientos cincuenta y nueve.
