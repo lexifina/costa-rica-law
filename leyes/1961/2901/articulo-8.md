@@ -1,0 +1,1 @@
+Artículo 8°.-En los Presupuestos Ordinarios de la República deberán aparecer las partidas específicas equivalentes al nuevo recargo establecido en el artículo 6° de esta ley, que se destinarán a atender los propósitos a que se refieren los artículos 1°, 2° y 7° de este mismo cuerpo legal.
