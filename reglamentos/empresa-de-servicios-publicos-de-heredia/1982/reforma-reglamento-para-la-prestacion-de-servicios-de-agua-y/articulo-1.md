@@ -1,0 +1,11 @@
+EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA
+REFORMA A REGLAMENTO
+La Empresa de Servicios Públicos de Heredia acuerda modificar los artículos 53 y 75 del Reglamento para la Prestación de Servicios de Agua y Alcantarillado para que se lean así:
+"Artículo 53.—Todo abonado o urbanizador potencial que solicite servicios de acueducto o de alcantarillado sanitario pagará una contribución por cada concepto (acueductos o colectores) de ¢ 5,00 por metro cuadrado del lote. Si el área de construcción es mayor que el área de la propiedad (varios pisos), la tasa se aplicará por área de construcción y en el caso de urbanizaciones, de acuerdo con el área que indica el plano catastrado".
+"Artículo 75.—Cuando se quebrante alguna de las siguientes prohibiciones causará un recargo, en dinero, sobre el valor de los servicios, por el tiempo en cada caso señalado:
+a) Está totalmente prohibida la conexión de mecanismos de bombeo que succionen el agua directamente de las acometidas del acueducto. La contravención dará lugar a la suspensión del servicio de agua hasta que el mecanismo haya sido retirado y al pago de una multa de ¢ 1.500,00 (mil quinientos colones), además, si fuere el caso, al pago de las reparaciones que haya tenido que hacer la Empresa, como consecuencia de tal anomalía.
+b) Está igualmente prohibido a los abonados reconectar un servicio que haya sido suspendido. El abonado cuyo servicio de acueducto se encontrare reconectado fraudulentamente, deberá pagar el valor de los servicios y su recargo desde la fecha de la corta hecha por la Empresa y mientras no haya cubierto ambas sumas no se le reconectará el servicio, además deberá pagar el valor de la reconexión.
+c) Bajo ninguna circunstancia podrá variar la finalidad de una acometida de desagüe; si un abonado contraviniera esta prohibición incurrirá en falta grave, por lo cual se le suspenderá el servicio el cual no se reconectará hasta tanto no corrija la anomalía comprobada, debiendo pagar una multa de ¢ 600,00 (seiscientos colones)".
+Los restantes artículos del Reglamento aludido permanecen en las mismas condiciones vigentes.
+Publíquese en el Diario Oficial "La Gaceta". Rige a partir de su publicación. Acuerdo firme.
+Heredia, agosto de 1982.-
