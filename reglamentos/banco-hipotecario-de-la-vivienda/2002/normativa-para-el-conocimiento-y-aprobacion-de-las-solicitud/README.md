@@ -14,3 +14,4 @@ Normativa para el conocimiento y aprobación de las solicitudes de subsidio para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-15 | la propia norma |
+| 2 | 2002-02-20 | Reglamento 14 (2002-02-20) |
