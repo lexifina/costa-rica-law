@@ -15,3 +15,4 @@ Reglamento de las Juntas de Salud Hospitalaria.
 | --- | --- | --- |
 | 1 | 1997-07-01 | la propia norma |
 | 2 | 1997-10-09 | Reglamento 7158 (1997-10-09) |
+| 3 | 1998-04-28 | Reglamento 7219 (1998-04-28) |
