@@ -1,0 +1,10 @@
+N° 4
+EL PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA,
+Vista la instancia que hacen la señora Presidenta de la Comisión Interamericana de Mujeres, y el Comité de Cooperación de Costa Rica, del mismo organismo,
+DECRETA:
+Artículo 1°—Adherirse, con las reservas y limitaciones que determinen las leyes de Costa Rica, a la Convención sobre Nacionalidad de la Mujer, suscrita en Montevideo, con motivo de la VII Conferencia Internacional Americana, y que dice:
+“Artículo 1°—No se hará distinción alguna, basada en el sexo, en materia de nacionalidad, ni en la legislación ni en la práctica.
+Artículo 2°—La presente Convención será ratificada por las Altas Partes Contratantes, de acuerdo con sus procedimientos constitucionales. El Ministro de Relaciones Exteriores de la República Oriental del Uruguay que encargado de enviar copias certificadas auténticas a los Gobiernos, para el referido fin. Los instrumentos de ratificación serán depositados en los archivos de la Unión Panamericana, en Washington, que notificará dicho depósito los Gobiernos signatarios; tal notificación valdrá como canje de ratificación
+Artículo 3°—La presente Convención entrará en vigor entre las Altas Partes Contratantes en el orden en que vayan depositando sus respectivas ratificaciones.
+Artículo 4°—La presente Convención regirá indefinidamente, pero podrá ser denunciada mediante aviso anticipado de un año a la Unión Panamericana, que la transmitirá a los demás Gobiernos signatarios-
+Articulo 5°—La presente Convención quedará abierta a la adhesión y accesión de los Estados no signatarios. Los instrumentos correspondientes serán depositados en los archivos de la Unión Panamericana, que los comunicará a las otras Altas Partes Contratantes. En fe de los cuales, los Plenipotenciarios que a continuación se indican, firman y sellan la presente Convención español, inglés, portugués y francés, en la ciudad de Montevideo, República Oriental del Uruguay, este vigésimosexto día del mes de diciembre del año mil novecientos treinta y tres.”
