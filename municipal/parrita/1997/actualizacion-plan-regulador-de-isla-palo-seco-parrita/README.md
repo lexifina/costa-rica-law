@@ -14,3 +14,4 @@ Actualización Plan Regulador de Isla Palo Seco- Parrita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-05-14 | la propia norma |
+| 2 | 2004-09-13 | Reglamento municipal 1857 (2004-09-13) |
