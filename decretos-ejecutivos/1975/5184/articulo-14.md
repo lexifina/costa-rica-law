@@ -1,9 +1,1 @@
-Artículo 14.—Contratación de personal. La contratación de personal con cargo a los recursos del Fondo se regirá por las siguientes normas:
-i) La creación de plazas estará a cargo de una comisión integrada por el Ministro de Planificación Nacional o el Director Adjunto y los Directores de Divisiones de la Oficina de Planificación Nacional.
-ii) Los nombramientos correspondientes competen al Ministro de Planificación con base en las recomendaciones de la comisión a que se refiere el inciso anterior.
-iii) Podrán nombrarse:
-a) Profesionales especializados en labores de preparación, ejecución y evaluación del Plan Nacional de Desarrollo;
-b) Técnicos cuya experiencia los acredite para la realización de las labores mencionadas en el literal anterior; y
-c) El personal subprofesional y auxiliar requerido para la realización de estudios específicos en el campo socio-económico. Este personal deberá destinarse exclusivamente a labores relacionadas con la preparación, ejecución y evaluación del Plan Nacional de Desarrollo.
-iv) Los contratos de trabajo de los servidores pagados con recursos del fondo tendrán vigencia de un año, pero se podrán prorrogar por períodos iguales, a juicio de la Oficina de Planificación Nacional.
-v) Las remuneraciones correspondientes se regirán por una escala de salarios específica, que se denominará "Escala de Salarios, para los puestos remunerados por el Fondo del Plan Nacional de Desarrollo", la cual será sometida por la Oficina de Planificación a la aprobación del Consejo de Coordinación Interinstitucional. Dicha escala estará compuesta por un sueldo base mínimo v además cinco aumentos anuales por méritos para los casos en que los contratos de trabajo sean prorrogados. Los aumentos anuales respectivos sólo se concederán previa calificación del Ministro de Planificación, quien podrá asesorarse, para el efecto, con los respectivos Directores de División.
+Artículo 14.—(DEROGADO por el artículo 38 del decreto ejecutivo N° 10247 del 3 de julio de 1979)

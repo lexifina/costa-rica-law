@@ -14,3 +14,4 @@ Reglamento del Fondo del Plan Nacional de Desarrollo.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-09-20 | la propia norma |
+| 2 | 1979-07-03 | Decreto Ejecutivo 10247 (1979-07-03) |
