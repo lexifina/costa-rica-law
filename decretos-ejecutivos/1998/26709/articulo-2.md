@@ -1,1 +1,0 @@
-Artículo 2°—La Oficina Ministerial de la Mujer tendrá como propósito el guiar, fortalecer y monitorear dentro del Ministerio, acciones dirigidas a lograr igualdad y equidad entre las y los funcionarios policiales o administrativos y en atención de las mujeres que componen la población meta de la institución, en el marco de las políticas públicas de género vigentes en el país.
