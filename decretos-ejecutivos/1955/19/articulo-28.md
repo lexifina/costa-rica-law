@@ -6,7 +6,9 @@ d) El monto del crédito a otorgar, en todo caso, será igual a la diferencia en
 Sin embargo, si el suscritor no ha cubierto la cuota de ingreso al tiempo de resultar favorecido en un sorteo, el monto del crédito no se incrementará con lo que falte para completar dicha cuota.
 (Así AMPLIADO por el artículo 2° del Decreto Ejecutivo N° 7 de 21 de julio de 1959, publicado en La Gaceta N° 180 de 12 de agosto de 1959, el cual adicionó el segundo párrafo al inciso d).)
 e) Los beneficiados con la posesión anticipada podrán acogerse a cualquiera de los planes de vivienda que realice el Instituto, de acuerdo con las normas que en cada caso señale la Junta Directiva.
-f) El servicio de la deuda proveniente del préstamo, se hará en la forma establecida en el articulo 20 de este Reglamento, durante un plazo igual a lo que falta para completar el período de integración y todo el curso del periodo de cancelación indicado en el plan correspondiente.
-Para atender el servicio de anticipación de préstamo, la Junta Directiva asignará las partidas necesarias, de modo que se mantengan invertidos los fondos no aprovechados en la colocaciones de vencimiento ordinario: la partida para asignaciones será determinada por el Departamento de Ahorro y Préstamo, con la aprobación de la Auditoría, después de haberse completado fondos suficientes para los compromisos inmediatos.
+f) Para los anticipos de préstamos tener como política lo siguiente:
+- Tasa de interés pasiva del Banco Nacional a 6 meses plazo + 4 puntos porcentuales
+- El presupuesto anual se calcula de la siguiente forma: (Reserva matemática al 1 de enero - 50% de la maduración del año) * 25%".
 (Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 13 de 30 de agosto de 1958, publicado en La Gaceta N° 216 de 26 de setiembre de 1958.)
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 3517 de 26 de marzo de 1984, publicada en La Gaceta N° 88 de 09 de mayo 1984, la cual reformó el inciso b) y el último párrafo del presente artículo.)
+(Así REFORMADO PARCIAL y EXPRESAMENTE por la Sesión Ordinaria N° 4903 de 14 de julio de 1999, publicada en La Gaceta N° 150 de 04 de agosto de 1999, el inciso f).)
