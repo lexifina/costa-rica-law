@@ -1,21 +1,3 @@
-Artículo 168.- La aplicación del producto de la liquidación al pago
-de las obligaciones del Banco, se hará en la siguiente forma:
-Tan pronto como la Junta Liquidadora haya verificado la lista del
-activo y pasivo, destinará una parte correspondiente del activo al pago
-de las obligaciones del Banco que tuvieren preferencia sobre las demás.
-Una vez pagadas estas obligaciones, destinará los fondos líquidos
-que hubiere o que resultaren de la realización del activo, en forma
-proporcional, al pago de las deudas comunes debidamente aprobadas.
-Sin embargo, la Junta Liquidadora tendrá la facultad de pagar, de
-una vez, las obligaciones que no excedan de mil colones por persona
-natural o jurídica.
-Si aún quedaren valores del activo en poder de la Junta Liquidadora,
-después de efectuados todos los pagos y depositada en el Banco Central
-una provisión suficiente para los créditos sobre los cuales hubiere
-litigio pendiente, y después de pagados todos los gastos a que se refiere
-el artículo 166 de esta ley, deberán destinarse dichos valores al pago de
-intereses sobre todas las deudas aprobadas del Banco desde la fecha de la
-declaratoria de quiebra hasta la fecha del pago de las obligaciones
-respectivas. La tasa de interés se regirá por los fondos que hubiere
-disponibles para este efecto, pero no podrá ser superior a la que rigió
-para las obligaciones respectivas en el momento de declararse la quiebra.
+Artículo 168.-
+En los casos mencionados en el inciso 3) del artículo anterior, y una vez vencido el plazo ahí indicado, la Junta, por medio del Superintendente (*), podrá abrir las cajas de seguridad cuyo contenido no hubiere sido reclamado, en presencia de un delegado especial y de un notario. Los objetos depositados en las cajas deberán ser inventariados y los paquetes respectivos sellados y marcados a nombre de sus propietarios. Los paquetes serán entregados, junto con la lista en que se haya inventariado y descrito su contenido, al Banco Central, para que éste los guarde en custodia a nombre de sus propietarios.
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

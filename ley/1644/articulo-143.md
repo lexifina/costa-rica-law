@@ -1,8 +1,2 @@
-Artículo 143.- Los estatutos de cada Banco establecerán las
-condiciones personales requeridas para ser miembro de la Junta Directiva;
-las incompatibilidades e incapacidades para serlo; las causales de
-cesación en el cargo; las obligaciones, facultades y deberes de sus
-miembros; las inhibiciones que les correspondan; y todos los demás
-requisitos, condiciones y procedimientos que se aplicarán en el
-nombramiento, actuación y reposición de los miembros de la Junta
-Directiva.
+Artículo 143.-
+La duración legal de los bancos privados será de treinta años contados desde su instalación, lapso que podrá prorrogarse por períodos sucesivos iguales, previa aprobación del Banco Central, dada de acuerdo con lo establecido con el artículo anterior.

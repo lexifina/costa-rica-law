@@ -1,10 +1,7 @@
-Artículo 68.- Todas las garantías, principales o adicionales,
-constituídas en favor de un Banco en alguna de las formas especificadas
-en esta ley, le darán al Banco el privilegio de pago preferente de sus
-créditos con el valor de las garantías y los frutos o rendimientos que se
-obtengan de ellas, hasta la cancelación total del crédito, con sus
-intereses ordinarios y moratorios y los gastos correspondientes, todo sin
-perjuicio de créditos de mejor derecho.
-Este privilegio se extiende al valor de los seguros que hubiere, y a
-cualquier indemnización que tuvieren que abonar terceros por daños y
-perjuicios que sufra la cosa dada en garantía.
+Artículo 68.-
+Todas las garantías, principales o adicionales, constituidas en favor de un Banco en alguna de las formas especificadas en esta ley, le darán al Banco el privilegio de pago preferente de sus créditos con el valor de las garantías y los frutos o rendimientos que se obtengan de ellas, hasta la cancelación total del crédito, con sus intereses ordinarios y moratorios y los gastos correspondientes, todo sin perjuicio de créditos de mejor derecho.
+Este privilegio se extiende al valor de los seguros que hubiere, y a cualquier indemnización que tuvieren que abonar terceros por daños y perjuicios que sufra la cosa dada en garantía.
+En caso de remates judiciales promovidos por un banco, si el postor adjudicatario fuere un tercero, podrá éste gestionar el otorgamiento de un crédito con el banco rematante, a efecto de cubrir el saldo del precio ofrecido en la subasta. La gestión deberá presentarse al Banco por el interesado dentro de los tres días siguientes a la subasta y la resolución acordando o rechazando el crédito, deberá tomarla la institución dentro del mes siguiente a la presentación de la solicitud respectiva. Mientras no corran esos términos, no podrá acusarse la rebeldía del postor adjudicatario.
+De la gestión del interesado y de la resolución favorable sobre la misma deberá el Banco dar inmediato aviso a la autoridad judicial correspondiente, lo que hará por simple oficio.
+Si el Banco no acordare el otorgamiento del crédito, o si acordándolo el interesado no formalizare la operación dentro del término que al efecto se le haya indicado, la vía judicial quedará expedita a la institución para continuar los procedimientos.
+( Así reformado por el artículo 1º de la ley Nº 4937 de 24 de diciembre de 1971).

@@ -1,9 +1,4 @@
-Artículo 30.- Cada Junta se reunirá en sesión ordinaria una vez por
-semana, en el lugar, día y hora que ella misma determine; en sesión
-extraordinaria cada vez que sea convocada por su Presidente, por el
-Gerente del Banco o por tres de sus miembros.
-Tres miembros harán quórum para sesionar válidamente, con excepción
-del Banco Nacional de Costa Rica en el que se requerirán cinco; los
-acuerdos se tomarán por mayoría de los votos presentes salvo los casos en
-que la ley exija una mayoría especial determinada. Cuando se produjere
-empate, el Presidente tendrá doble voto y resolverá.
+Artículo 30.-Cada Junta se reunirá en sesión ordinaria una vez por semana, en el lugar, día y hora que ella misma determine, en sesión extraordinaria cada vez que sea convocada por su Presidente, por el Gerente del Banco o por tres de sus miembros.
+Tres miembros harán quórum para sesionar válidamente, con excepción del Banco Nacional de Costa Rica en el que se requerirán cinco: los acuerdos se tomarán por mayoría de los votos presentes salvo los casos en que la ley exija una mayoría especial determinada. Cuando se produjere empate el Presidente tendrá doble voto y resolverá.
+(Nota de Sinalevi: Mediante el artículo 6° de la ley sobre Pago de Dietas a Directivos de Instituciones Autónoma, N° 3065 del 20 de noviembre de 1962, se indica que se modifica en lo conducente este numeral. Por su parte el artículo 3º de dicha establecer que: "Las Juntas Directivas de las instituciones autónomas no podrán celebrar más de ocho sesiones remuneradas por mes, incluyendo ordinarias y extraordinarias, éstas cuando sean absolutamente necesarias").
+( NOTA: Este artículo fue reformado tácitamente por el artículo 7º de la ley Nº 5507 del 19 de abril de 1974, al establecer que: "Las Juntas Directivas de las instituciones autónomas no podrán celebrar más de ocho sesiones remuneradas por mes, incluyendo ordinarias y extraordinarias, éstas cuando sean absolutamente necesarias").

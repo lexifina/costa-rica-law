@@ -1,18 +1,12 @@
-Artículo 55.- Los Bancos comerciales sólo podrán computar en su
-Activo y Saldos Deudores los siguientes valores, bienes, recursos y
-cuentas de resultados, que serán contabilizados en sus libros y
-detallados en sus balances de acuerdo con la naturaleza e índole
-particular de cada uno de ellos, a juicio del Auditor General de Bancos:
+Artículo 55.-
+Los bancos comerciales sólo podrán computar en su activo y saldos deudores los siguientes valores, bienes, recursos y cuentas de resultados, que serán contabilizados en sus libros y detallados en sus balances de acuerdo con la naturaleza e índole particular de cada uno de ellos, a juicio del Superintendente General de Entidades Financieras (*):
 1) Los fondos disponibles que tuvieren en moneda nacional y extranjera.
-2) Las operaciones de crédito que efectúen con arreglo a las
-disposiciones de esta ley.
-3) Las inversiones en valores mobiliarios que mantengan conforme a las
-prescripciones de la presente ley.
-4) Las inversiones en bienes raíces que sean necesarias para el
-servicio propio de cada Banco, y las que eventualmente hayan tenido que
-hacer en cobro de obligaciones a su favor; y las que realicen en muebles,
-materiales, instalaciones y útiles necesarios para su funcionamiento, así
-como el costo de bibliotecas y otras inversiones semejantes; y
-5) Los saldos de las cuentas originadas por el movimiento normal de
-gastos, pérdidas y resultados, y los demás que provengan de las
-operaciones previstas por esta ley.
+2) Las operaciones de crédito que efectúen con arreglo a las disposiciones de esta ley.
+3) Las inversiones en valores mobiliarios que mantengan conforme con las prescripciones de la presente ley.
+4) Las inversiones en bienes raíces que sean necesarias para el servicio propio de cada banco, y las que eventualmente hayan tenido que hacer por cobro de obligaciones a su favor; y las que realicen en muebles materiales, instalaciones y útiles necesarios para su funcionamiento, así como el costo de bibliotecas y otra inversiones semejantes; y
+5) Los saldos de las cuentas originadas por el movimiento normal de gastos, pérdidas y resultados y los demás que provengan de las operaciones previstas por esta ley.
+Dentro del rubro indicado en el inciso 5), los bancos estatales incluirán una suma equivalente al diez por ciento (10%) del total de los sueldos de los empleados del respectivo banco, para el mantenimiento del fondo de garantías y jubilaciones de esos empleados. Esta suma les pertenecerá a estos en la proporción correspondiente a sus sueldos, y deberá serles entregada bajo las condiciones que se determinen en el reglamento de jubilaciones, si dejaren el servicio antes de haber alcanzado el derecho a una pensión por invalidez. Ese aporte de los bancos será único para toda clase de beneficios sociales. En el reglamento de cada institución podrán establecerse las sumas adicionales con las que los empleados deberán contribuir para el fortalecimiento del fondo, a fin de que ellos puedan obtener una pensión adecuada, de acuerdo con su sueldo, su edad y el tiempo de servicio. El sistema que así se crea es complementerio del establecido por la Caja Costarricense de Seguro Social, sin perjuicio de las obligaciones de sus beneficiarios para con la Caja.
+Se declaran inembargables las sumas que les correspondan alos empleados que dejaren el servicio antes de haber alcanzado el derecho a una pensión por invalidez.
+En las juntas administrativas del fondo de garantías y jubilaciones de cada banco se les dará representación a los empleados bancarios, quienes elegirán a dos de sus miembros.
+( Así reformado por Ley Nº 7107 de 4 de noviembre de 1988, artículo 4º).
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

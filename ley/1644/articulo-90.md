@@ -1,16 +1,5 @@
-Artículo 90.- La Dirección inmediata de cada Junta Rural que el
-Banco estableciere estará a cargo de una Junta integrada por cinco
-miembros propietarios, de nombramiento de la Junta Directiva del Banco,
-que deberán ser personas de notoria honorabilidad, y buena conducta,
-mayores de veinticinco años, vecinos de la zona geográfica en que opere
-la Junta y de preferencia agricultores o personas de amplios
-conocimientos en problemas relativos a la producción local. No podrán
-ser miembros de una misma Junta quienes tuvieren entre sí parentesco de
-consanguinidad o afinidad hasta el segundo grado, inclusive. Durarán un
-año en sus funciones y podrán ser reelectos. Elegirán de su seno un
-Presidente, un Vicepresidente, un Secretario y dos Vocales que tendrán
-las funciones propias de sus respectivos cargos.
-Las Sucursales del Banco podrán ser investidas con carácter de Juntas
-Rurales de Crédito Agrícola para operar como tales en sus respectivas
-zonas geográficas, de acuerdo con las regulaciones especiales para su
-funcionamiento dicte la Junta Directiva del Banco.
+Artículo 90.-
+Queda a juicio de las Juntas Directivas de los bancos nombrar directivas locales para asumir la dirección inmediata de estas actividades o trabajar sin ellas, y en todo caso esas juntas estarán integradas hasta por tres miembros, todos de nombramiento de la Junta Directiva General del respectivo Banco, que deberán ser personas de notoria honorabilidad y buena conducta, mayores de veinticinco años, vecinos de la zona geográfica en que opere la junta u oficina y de preferencia agricultores o personas de amplios conocimientos en problemas relativos a la producción local. No podrán ser miembros de una misma junta u oficina quienes tuvieren entre sí parentesco de consanguinidad o afinidad hasta el segundo grado inclusive. Durarán un año en sus funciones y podrán ser reelectos. Elegirán de su seno un Presidente, un Secretario y un Vocal que tendrán las funciones propias de sus respectivos cargos.
+Las sucursales, agencias y demás oficinas bancarias, en las poblaciones fuera de las oficinas centrales, podrán ser investidas con carácter de Juntas Rurales de Crédito Agrícola u Oficinas de Crédito al Pequeño Agricultor, para operar como tales en su respectiva zona geográfica, si así lo dispusiere la Directiva del respectivo Banco. Estas Juntas u Oficinas operarán de acuerdo con las regulaciones especiales que para su funcionamiento dicten las Junta Directivas Generales correspondientes, en las zonas geográficas que se le asignen.
+Los bancos, en los casos que lo estimaren conveniente, podrán establecer o continuar por medio de sus oficinas centrales planes de crédito agrícola al pequeño agricultor, con las mismas ventajas que este capítulo de la ley establece.
+( Así reformado por el artículo 1º de la Ley No. 2147 de 19 de julio de 1957 ).
