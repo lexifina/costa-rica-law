@@ -14,3 +14,4 @@ Reforma Régimen Tarifario para la Prestación de Servicios y Facilidades Aeropo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-02-08 | la propia norma |
+| 2 | 1994-02-04 | Decreto Ejecutivo 22861 (1994-02-04) |
