@@ -7,7 +7,7 @@ GOBIERNO
 DEL REINO UNIDO DE GRAN BRETAÑA E IRLANDA DEL NORTE
 El Gobierno de Costa Rica y el Gobierno del Reino Unido de Gran
 Bretaña e Irlanda del Norte, con el deseo de ampliar sus relaciones
-culturales y de estimular una relación más cercana entre los dos países
+culturales y de estimular una relación más cercana entre los dos países.
 Ha acordado lo siguiente:
 ARTICULO I
 Con el propósito de esta Convención los términos "territorio" y "país"
