@@ -1,0 +1,1 @@
+ARTICULO 2° El artículo 740 de la 3a parte del Código general, debe leerse asi- "Si el delito de que se juzgara, fuere de naturaleza que por la ley no merezca pena mas que puramente pecuniaria, no lo alternativa con la corporal o infamante, se otorgar al reo la libertad bajo la fianza de haz."
