@@ -1,0 +1,1 @@
+Artículo XVII.—El Area Financiera realizará arqueos periódicos en los fondos utilizados y en el manejo de los recursos financieros que administran las Juntas de Protección, sin perjuicio de las auditorias que sean necesarias.

@@ -1,0 +1,4 @@
+Artículo IX.—El giro de los recursos podrá hacerse de dos formas:
+a. Mediante el pago de los servicios por medio de cheques emitidos por la institución directamente a los proveedores, para lo cual cotizarán los bienes y servicios necesarios por cada componente y en todo caso se deberán presentar al menos 3 (tres) facturas proforma para aprobar la compra.
+b. Por medio del pago directo de la Junta de Protección correspondiente, la que deberá tener una cuenta corriente en un banco del Sistema Bancario Nacional, con firma mancomunada del presidente y el tesorero de la Junta según se detalla.
+El presidente (a) de la Junta de Protección será responsable del manejo de las cuentas corrientes y deberá atender todas las consultas y controles que se le hagan por parte de los otros miembros, de los funcionarios del PANI y de la Contraloría General de la República.
