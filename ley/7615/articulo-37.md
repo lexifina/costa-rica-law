@@ -1,0 +1,3 @@
+ARTICULO 37.- Revocación o modificación de obligaciones o de derechos de terceros Estados.
+1.- Cuando de conformidad con el artículo 35 se haya originado una obligación para un tercer Estado, tal obligación no podrá ser revocada ni modificada sino con el consentimiento de las partes en el tratado y del tercer Estado, a menos que conste que habían convenido otra cosa al respecto.
+2.- Cuando de conformidad con el artículo 36 se haya originado un derecho para un tercer Estado, tal derecho no podrá ser revocado ni modificado por las partes si consta que se tuvo la intención de que el derecho no fuera revocable ni modificable sin el consentimiento del tercer Estado.

@@ -1,0 +1,3 @@
+ARTICULO 61.- Imposibilidad subsiguiente de cumplimiento.
+1.- Una parte podrá alegar la imposibilidad de cumplir un tratado como causa para darlo por terminado o retirarse de él si esa imposibilidad resulta de la desaparición o destrucción definitivas de un objeto indispensable para el cumplimiento del tratado. Si la imposibilidad es temporal, podrá alegarse únicamente como causa para suspender la aplicación del tratado.
+2.- La imposibilidad de cumplimiento no podrá alegarse por una de las partes como causa para dar por terminado un tratado, retirarse de él o suspender su aplicación si resulta de una violación, por la parte que la alegue, de una obligación nacida del tratado o de toda otra obligación internacional con respecto a cualquier otra parte en el tratado.
