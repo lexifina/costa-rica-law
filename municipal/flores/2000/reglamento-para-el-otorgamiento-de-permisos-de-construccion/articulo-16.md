@@ -1,0 +1,1 @@
+Artículo 16.-En caso de construcción de pequeñas industrias, talleres, hoteles y urbanizaciones de más de 50 unidades habitacionales, deben presentar planos eléctricos y un estudio de impacto ambiental conforme al Reglamento de la Tutela del Medio Ambiente.

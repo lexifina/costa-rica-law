@@ -1,0 +1,1 @@
+Artículo 4°-Si en la ejecución de una obra debe ocuparse una via o acceso público, el subsuelo o espacio aéreo de la misma se deberá obtener un permiso de oC4pación de vía de la Municipalidad o del MOPT según corresponda.

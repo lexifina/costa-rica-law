@@ -1,0 +1,1 @@
+Artículo 15.-Si la Oficina de Ingeniería Municipal o la comisión de obras encontrase algún defecto u omisión o considerase que algún aspecto técnico en los planos debe modificarse, se notificará al interesado a efecto de que proceda a hacer las enmiendas señaladas.

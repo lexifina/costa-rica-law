@@ -1,0 +1,1 @@
+Artículo 31.-Será obligatorio para todo propietario que solicite permiso de construcción, construir acera, cordón de caño y entubado pluvial. Obras que deberán ser realizadas cuando la construcción este en un 50% de desarrollo.

@@ -1,0 +1,1 @@
+Artículo 21.- Toda alteración al trazo de una construcción hacia fuera del alineamiento oficial será considerado como una invasión a la vía pública, quedando obligado el dueño de construcción a demoler la parte de la misma que motive dicha invasión dentro del plazo que al efecto le señale la Municipalidad.

@@ -1,0 +1,2 @@
+Artículo 28.- Todo edificio o casa de habitación que se construya o fue construida deberá tener canales o canoas y los tubos necesarios para recoger las aguas pluviales. Dichas aguas deberán ser descargadas directamente en las vías públicas, los desagües particulares previamente diseñados y su paso por las aceras deberán hacerse bajo el pavimento, no permitiéndose caídas libres de aguas pluviales sobre la vía pública.
+Los tubos para el drenaje pluvial sobre la fachada podrán sobresalir del plano de la pared en más de diez centímetros.

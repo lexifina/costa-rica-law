@@ -1,0 +1,1 @@
+Artículo 22.-La Municipalidad por medio de la Oficina de Ingeniería deberá llevar un libro de registro en el cual se asentará el acta para cada solicitud, en la misma se indicará el nombre, ubicación de la obra, tipo de obra, área de la misma, valor total de la obra, impuesto de construcción, número de acta en que se aprobó, el número de recibo en que se canceló el impuesto.

@@ -1,0 +1,2 @@
+Artículo 25.-Los dueños de construcciones que deben retirarse con apego al alineamiento oficial no podrá ejecutar en ellas, obras que tiendan a consolidarse en su totalidad y por lo tanto perpetualizar su estado actual. Se entenderá obras que tiendan a consolidarse estado actual.
+Los cambios de paredes, refuerzos de estructuras, cambio de construcción total o parcial de techos, remodelaciones de fachadas, apertura de puertas o ventanas.
