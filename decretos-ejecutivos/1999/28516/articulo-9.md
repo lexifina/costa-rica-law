@@ -1,0 +1,1 @@
+Artículo 9º—Los animales positivos deberán marcarse con una "S" (sacrificio), en los maseteros del animal, acción que debe ejecutar el técnico o profesional oficial o privado que tomó la muestra de sangre y es quien puede dar fe de a cual animal corresponde, dentro de los tres días hábiles siguientes a partir del recibido de la confirmación laboratorial.

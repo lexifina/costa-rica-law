@@ -1,0 +1,1 @@
+Artículo 4º—El Laboratorio de Diagnóstico Veterinario del MAG o acreditados por éste, solo procesarán muestras tomadas por Médicos Veterinarios particulares autorizados para el ejercicio de su profesión o técnicos y Médicos Veterinarios Oficiales.

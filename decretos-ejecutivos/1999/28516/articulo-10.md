@@ -1,0 +1,1 @@
+Artículo 10.—Las personas responsables de un animal afectado por Anemia Infecciosa Equina, solo podrán trasladar a dicho animal a un matadero. El traslado deberá ser efectuado con el menor número posible de interrupciones y sin bajar nunca al animal del vehículo.

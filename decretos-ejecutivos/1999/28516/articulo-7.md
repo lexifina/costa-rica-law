@@ -1,0 +1,1 @@
+Artículo 7º—El regente de todo laboratorio queda obligado a reportar mensualmente, a la Dirección General de Salud Animal los resultados de las pruebas de Anemia Infecciosa Equina. Queda especialmente obligado a denunciar dentro de las veinticuatro horas siguientes al diagnóstico cierto o probable de la enfermedad.

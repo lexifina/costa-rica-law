@@ -1,0 +1,1 @@
+Artículo 6º—La prueba oficial para el Diagnóstico de la AIE, será inmunodifusión en Agar Gel (test de Coggins) la que tendrá una validez de 60 días y como prueba alterna y/o complementaria se usará ELISA, pudiendo ser autorizada alguna otra, a solicitud de los interesados y que a juicio de la Dirección de Salud Animal proceda técnicamente.

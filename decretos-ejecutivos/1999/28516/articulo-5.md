@@ -1,0 +1,1 @@
+Artículo 5º—Para exportación y vigilancia de los animales importados la prueba de AIE solo podrá realizarse en el laboratorio oficial del MAG y en este caso la toma de la muestra podrá hacerse por Médicos Veterinarios particulares o Médico Veterinario Oficial.

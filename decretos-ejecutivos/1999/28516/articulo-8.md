@@ -1,0 +1,1 @@
+Artículo 8º—En caso de confirmación de un caso de Anemia Infecciosa Equina, el Médico Veterinario deberá ordenar las medidas necesarias para evitar la propagación de la enfermedad, de acuerdo con las normas fijadas por la Dirección General de Salud Animal.

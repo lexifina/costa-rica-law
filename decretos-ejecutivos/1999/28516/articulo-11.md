@@ -1,0 +1,1 @@
+Artículo 11.—El regente veterinario de los mataderos o plantas de sacrificio, deberán informar a través de la copia respectiva de la bitácora de regencia, a la Dirección General de Salud Animal, del sacrificio de animales marcados con "S" en los maseteros.

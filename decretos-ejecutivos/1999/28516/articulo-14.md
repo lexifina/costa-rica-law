@@ -1,0 +1,1 @@
+Artículo 14.—Cuando las muestras para análisis de Anemia Infecciosa Equina arrojen resultados positivos, éstas deben almacenarse hasta por treinta días para análisis de comprobación y por lo tanto deberán de mantenerse a buen seguro.
