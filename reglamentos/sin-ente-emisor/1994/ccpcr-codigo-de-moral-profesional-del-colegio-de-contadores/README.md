@@ -13,3 +13,4 @@ CCPCR: Código de Moral Profesional del Colegio de Contadores Privados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-11-18 | la propia norma |
+| 2 | 2002-04-01 | Reglamento 82 (2002-04-01) |
