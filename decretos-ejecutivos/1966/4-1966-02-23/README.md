@@ -14,3 +14,4 @@ Declara Ríos Navegables en el Territorio Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1966-02-25 | la propia norma |
+| 2 | 1966-02-25 | SINALEVI (sin norma nombrada) |
