@@ -1,0 +1,8 @@
+Artículo 4°—Estacionamientos:
+El número de espacios para estacionamiento de automóviles es el que indica el reglamento de construcciones para cada uso. El número y su ubicación podrá variarse de acuerdo a las siguientes condiciones:
+1°—Que el inversionista provea en otros sitios los espacios de estacionamiento para automóviles qus requiere su edificio. Para este objeto podrán asociarse los propietarios de dos o más edificios, para edificar o rentar edificios de estacionamientos elaborados por terceros. La ubicación deberá ser aprobada por la municipalidad y el Instituto Nacional de Vivienda y Urbanismo.
+2°—Que el inversionista entregue a la municipalidad el monto de la inversión de lo correspondiente a estacionamiento. Para este efecto la municipalidad creará un fondo especial para habilitar espacios de estacionamiento dentro de los cuatro distritos centrales.
+El costo de dichos estacionamientos será establecido por la municipalidad, previa consulta al Departamento de Avalúos de la Tributación Directa.
+3°—Que el inversionista entregue para uso público áreas equivalentes en superficie a la que destinaría a estacionamiento de automóviles en su proyecto. Estas podrán estar en el propio terreno o en otro que acepte la municipalidad.
+Debe entenderse que cualquiera de estas opciones son a criterio de la municipalidad y de la Dirección de Urbanismo; podrá darse una combinación de opciones, o no darse ninguna; por otro lado. podrá no aceptarse espacios de estacionamiento en proyectos de edificios, aunque el inversionista quiera hacerlos.
+Este reglamento complementa en lo concerniente al Reglamento de Construcciones dictado por el INVU y deroga cualquier norma reglamentaria, establecida previamente, que se le oponga.
