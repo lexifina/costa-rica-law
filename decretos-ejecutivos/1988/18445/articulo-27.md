@@ -1,0 +1,31 @@
+Artículo 27.-Empresas de construcción y similares. Las empress
+dedicadas a al construcción o actividades similares, que realicen
+contratos u obras que abarquen dos o más períodos fiscales, deberán
+establecer empresas resultados de sus operaciones por aplicación de
+cualquiera de los siguientes métodos:
+a) Asignar a cada período fiscal, como renta neta, la suma que resulte
+de aplicar, sobre los importes efectivamente percibidos, el
+porcentaje de ganancia calculado para toda la obra. Si hubiere
+evidente variación del cálculo efectuado, el porcentaje puede ser
+modificado por la parte correspondiente a los períodos fiscales
+posteriores. En todo caso los porcentajes referidos pueden ser
+modificados por la Dirección cuando compruebe que no ajustan a la
+realidad; y
+b) Asignar a cada período fiscal el resultado neto que sa consecuencia
+de deducir del importe de la obra contratada, al parte que fue
+realmente ejecutada en el período, los costos efectivamente
+efectuados y lo gastos ocurridos en el mismo período fiscal. Cuando
+fuere difícil la determinación del resultado en la forma indicada,
+la utilidad obtenida por la parte construida se puede establecer
+mediante un procedimiento análogo al señalado en el inciso anterior.
+En este caso, la Dirección puede también ejercer las facultades
+señaladas en dicho inciso.
+La diferencia que s obtenga entre el resultado neto al final de toda
+al obra y el establecido mediante cualquiera de los procedimientos
+indicados, debe incidir en el período fiscal en que la obra se concluya,
+aún cuando no se haya percibido su importe, sin perjuicio de prorratearla
+equitativamente en los períodos no prescritos
+Elegido uno de los métodos mencionados, el mismo debe se aplicado
+por el declarante a todas las obras o trabajos que realice y sólo puede
+ser cambiado con la previa autorización de la Dirección, la que
+establecerá a partir de cual período se debe efectuar el cambio.
