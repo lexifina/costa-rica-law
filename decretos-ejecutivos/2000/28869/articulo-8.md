@@ -1,0 +1,1 @@
+Artículo 8°—La Dirección General de Seguridad Marítima y Portuaria, comunicar previamente a las demás autoridades públicas que ejercen controles en los puertos costarricenses, la potencial apertura de nuevos lugares de atraque, con la finalidad de que las mismas puedan realizar las observaciones técnicas pertinentes antes de su apertura.

@@ -1,0 +1,1 @@
+Artículo 2°—El Ministerio de Obras Públicas y Transportes en su condición de órgano rector y físcalizador sobre esta materia, debe establecer las condiciones que se deben cumplir en determinando lugar para ser calificado de puerto óptimo para el arribo de buques extranjeros.

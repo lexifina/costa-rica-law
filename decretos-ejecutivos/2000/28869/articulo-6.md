@@ -1,0 +1,1 @@
+Artículo 6°—La Dirección de Seguridad Marítima y Portuaria del MOPT queda facultada para determinar otros lugares geográficos que sean aptos para el arribo de buques extranjeros y verificará que cuente con los requerimientos esenciales para entrar en operación, con el fin de velar por la seguridad de los pasajeros y de la tripulación.
