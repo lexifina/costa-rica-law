@@ -1,110 +1,34 @@
 CAPITULO SEGUNDO
 De los incentivos y beneficios
-ARTÍCULO 7º.- A las empresas calificadas para obtener los beneficios
-de esta Ley, se les podrán otorgar, total o parcialmente, los siguientes
-incentivos de acuerdo con la actividad en que se clasifiquen:
+ARTÍCULO 7º.- A las empresas calificadas para obtener los beneficios de esta Ley, se les podrán otorgar, total o parcialmente, los siguientes incentivos de acuerdo con la actividad en que se clasifiquen:
 a) Servicios de hotelería:
-i) Exención de todo tributo y sobretasas que se apliquen a la
-importación o compra local de los artículos indispensables para el
-funcionamiento o instalación de empresas nuevas o de aquellas que, al
-estar establecidas, ofrezcan nuevos servicios, así como para la
-construcción, ampliación o remodelación del respectivo edificio, con
-excepción de vehículos automotores y combustibles.
-Esta exención no se aplicará a la importación de aquellos bienes
-similares, que se fabriquen en el territorio de los países signatarios
-del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, en
-igualdad de condiciones en cuanto a calidad, cantidad y precios, a juicio
-del Ministerio de Economía, Industria y Comercio.
-ii) Depreciación acelerada de los bienes que por su uso y naturaleza
-se extinguen con mayor rapidez, de conformidad con la Ley del Impuesto
-sobre la Renta.
-iii) Concesión de las patentes municipales que requieran las
-empresas para el desarrollo de sus actividades. Las municipalidades
-concederán estas patentes en el plazo máximo de los treinta días
-naturales posteriores a la presentación de la solicitud y cobrarán el
-impuesto correspondiente. No se podrán conceder patentes para salas de
-juegos prohibidos por otras leyes.
-iv) Autorización del Banco Central de Costa Rica para que empresas
-hoteleras costarricenses dedicadas a la atención del turismo
-internacional, sean contratadas como cajas auxiliares de dicha
-Institución para la compra de divisas a los turistas extranjeros. Las
-operaciones se realizarán en nombre y por cuenta del Banco Central de
-Costa Rica, el cual establecerá, en el convenio respectivo, los plazos y
-condiciones en que los hoteles le traspasarán las divisas que reciban
-mediante esa actividad.
-v) Exoneración del impuesto territorial, hasta por un período de
-seis años a partir de la firma del contrato, a aquellos establecimientos
-que se instalen fuera de la región metropolitana establecida por el
-Ministerio de Planificación.
+i) Exención de todo tributo y sobretasas que se apliquen a la importación o compra local de los artículos indispensables para el funcionamiento o instalación de empresas nuevas o de aquellas que, al estar establecidas, ofrezcan nuevos servicios, así como para la construcción, ampliación o remodelación del respectivo edificio, con excepción de vehículos automotores y combustibles.
+Esta exención no se aplicará a la importación de aquellos bienes similares, que se fabriquen en el territorio de los países signatarios del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, en igualdad de condiciones en cuanto a calidad, cantidad y precios, a juicio del Ministerio de Economía, Industria y Comercio.
+(NOTA: * Ver observaciones de la ley)
+(Nota de Sinalevi: Mediante el artículo 18 de la ley de Simplifaciones y Eficiencia Tributaria, N° 8114 del 4 de julio del 2001 se establece lo siguiente: “Artículo 18.—Empresas amparadas a la Ley de incentivos al desarrollo turístico. Las empresas que presten servicios de hotelería amparadas a los beneficios referidos en la Ley de incentivos para el desarrollo turístico, Nº 6990, de 15 de julio de 1985, y sus reformas, gozarán de la exención dispuesta en el subinciso i) del inciso a) del artículo 7 de dicha Ley, solamente en cuanto a la inversión inicial para adquirir artículos indispensables y materiales para la construcción de instalaciones destinadas a poner en operación cada proyecto. Todas las adiciones, ampliaciones, remodelaciones o adquisiciones de equipo estarán sujetas al pago del impuesto sobre las ventas, de conformidad con la Ley del impuesto general sobre las ventas, Nº 6826, de 8 de noviembre de 1982, y sus reformas; sin embargo, en estos casos procederá el crédito fiscal sobre el impuesto realmente pagado, según las disposiciones vigentes a la entrada en vigencia de esta Ley.”)
+ii) Depreciación acelerada de los bienes que por su uso y naturaleza se extinguen con mayor rapidez, de conformidad con la Ley del Impuesto sobre la Renta.
+iii) Concesión de las patentes municipales que requieran las empresas para el desarrollo de sus actividades. Las municipalidades concederán estas patentes en el plazo máximo de los treinta días naturales posteriores a la presentación de la solicitud y cobrarán el impuesto correspondiente. No se podrán conceder patentes para salas de juegos prohibidos por otras leyes.
+iv) Autorización del Banco Central de Costa Rica para que empresas hoteleras costarricenses dedicadas a la atención del turismo internacional, sean contratadas como cajas auxiliares de dicha Institución para la compra de divisas a los turistas extranjeros. Las operaciones se realizarán en nombre y por cuenta del Banco Central de Costa Rica, el cual establecerá, en el convenio respectivo, los plazos y condiciones en que los hoteles le traspasarán las divisas que reciban mediante esa actividad.
+v) Exoneración del impuesto territorial, hasta por un período de seis años a partir de la firma del contrato, a aquellos establecimientos que se instalen fuera de la región metropolitana establecida por el Ministerio de Planificación.
 b) Transporte aéreo internacional y nacional de turistas:
-Clasifican en este aparte únicamente las empresas, que transporten
-turistas en las rutas internacionales y en vuelos de itinerario dentro
-del territorio nacional. Incentivos:
-i) Depreciación acelerada, de conformidad con la Ley de Impuesto
-sobre la Renta.
-ii) Suministro de combustible a un precio competitivo no mayor al
-promedio establecido en el mercado internacional.
-iii) Exención de todo tributo y sobretasas para la importación o
-compra local de los repuestos necesarios para el correcto funcionamiento
-de las aeronaves.
+Clasifican en este aparte únicamente las empresas, que transporten turistas en las rutas internacionales y en vuelos de itinerario dentro del territorio nacional. Incentivos:
+i) Depreciación acelerada, de conformidad con la Ley de Impuesto sobre la Renta.
+ii) Suministro de combustible a un precio competitivo no mayor al promedio establecido en el mercado internacional.
+iii) Exención de todo tributo y sobretasas para la importación o compra local de los repuestos necesarios para el correcto funcionamiento de las aeronaves.
 c) Transporte acuático de turistas:
-i) Exención de todo tributo y sobretasas que se aplique a la
-importación o compra local de bienes indispensables para la construcción,
-ampliación o remodelación de muelles y otros lugares destinados al
-embarque o desembarque de turistas, así como para la construcción y
-mantenimiento de marinas, balnearios y acuarios destinados a la atención
-del turismo, siempre y cuando los bienes que se vayan a importar no se
-fabriquen en el territorio de los países signatarios del Convenio sobre
-el Régimen Arancelario y Aduanero Centroamericano, en condiciones
-competitivas de precio, cantidad, calidad y oportunidad, a juicio del
-Ministerio de Economía, Industria y Comercio.
-ii) Depreciación acelerada, de conformidad con la Ley de Impuesto
-sobre la Renta.
-iii) Exoneración de todo tributo y sobretasas, excepto de los
-derechos arancelarios a la importación cuya tarifa se fija en un veinte
-por ciento (20%), a la importación o compra local de naves acuáticas
-destinadas exclusivamente al transporte turístico de pasajeros, para lo
-que se deberá contar con facilidades adecuadas para el atraque, embarque
-y desembarque de pasajeros.
-Las actividades de cabotaje turístico en cualesquiera de sus formas,
-de puerto a puerto costarricense, quedarán única y exclusivamente
-reservadas a los yates, barcos tipo crucero turístico y similares, de
-bandera nacional.
-La clasificación de las embarcaciones, sus características y
-requisitos de verificación sobre el uso y el destino de los bienes
-exonerados, se fijarán mediante Decreto Ejecutivo.
-ch) Turismo receptivo de agencias de viajes que se dediquen
-exclusivamente a esta actividad: Exoneración de todo tributo y
-sobretasas, excepto de los derechos arancelarios para la importación de
-vehículos para el transporte colectivo con una capacidad mínima de quince
-personas. Si la tarifa del impuesto ad valórem supera el cinco por ciento
-(5%), se exonerará la obligación tributaria correspondiente a dicho
-exceso tarifario.
-d) Arrendamiento de vehículos a turistas extranjeros y nacionales.
-Exonérase el cincuenta por ciento (50%) del monto total resultante
-de aplicar los impuestos vigentes que afecten la importación de los
-vehículos automotores destinados exclusivamente a arrendarlos a los
-turistas.
-Estos vehículos deberán estar debidamente autorizados para circular,
-mediante licencia que otorgará el Instituto Costarricense de Turismo.
-También deberá identificárseles con la respectiva placa y las calcomanías
-especiales que extenderá y controlará la Dirección General de Transporte
-Automotor del Ministerio de Obras Públicas y Transportes.
-Los vehículos exonerados mediante esta Ley deberán renovarse cada
-tres años como máximo.
-Las tarifas y el servicio serán regulados por el Instituto
-Costarricense de Turismo.
-El uso indebido de los vehículos mencionados conlleva la cancelación
-automática de la licencia indicada y de la respectiva patente comercial
-de operación. Igualmente se exigirá la cancelación de todos los impuestos
-no cubiertos y, además, se impondrá una multa equivalente a diez veces el
-monto exonerado.
-El traspaso de los bienes exonerados por esta Ley, que efectúen las
-empresas turísticas beneficiarias a terceros que no gocen de idénticos
-beneficios legales, en cualquier tiempo, sólo podrá hacerse válidamente
-previo pago, por parte de dichas empresas, de los tributos y sobretasas
-correspondientes. El Poder Ejecutivo en el Reglamento de esta Ley
-establecerá los controles adecuados para la correcta aplicación de las
-normas contenidas en este artículo.
-(Así reformado por el artículo 13 de la ley Nº 7293 de 31 de marzo
-de 1992).
+i) Exención de todo tributo y sobretasas que se aplique a la importación o compra local de bienes indispensables para la construcción, ampliación o remodelación de muelles y otros lugares destinados al embarque o desembarque de turistas, así como para la construcción y mantenimiento de marinas, balnearios y acuarios destinados a la atención del turismo, siempre y cuando los bienes que se vayan a importar no se fabriquen en el territorio de los países signatarios del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, en condiciones competitivas de precio, cantidad, calidad y oportunidad, a juicio del Ministerio de Economía, Industria y Comercio.
+ii) Depreciación acelerada, de conformidad con la Ley de Impuesto sobre la Renta.
+iii) Exoneración de todo tributo y sobretasas, excepto de los derechos arancelarios a la importación cuya tarifa se fija en un veinte por ciento (20%), a la importación o compra local de naves acuáticas destinadas exclusivamente al transporte turístico de pasajeros, para lo que se deberá contar con facilidades adecuadas para el atraque, embarque y desembarque de pasajeros.
+Las actividades de cabotaje turístico en cualesquiera de sus formas, de puerto a puerto costarricense, quedarán única y exclusivamente reservadas a los yates, barcos tipo crucero turístico y similares, de bandera nacional.
+La clasificación de las embarcaciones, sus características y requisitos de verificación sobre el uso y el destino de los bienes exonerados, se fijarán mediante Decreto Ejecutivo.
+ch) Turismo receptivo de agencias de viajes que se dediquen exclusivamente a esta actividad: Exoneración de todo tributo y sobretasas, excepto de los derechos arancelarios para la importación de vehículos para el transporte colectivo con una capacidad mínima de quince personas. Si la tarifa del impuesto ad valórem supera el cinco por ciento (5%), se exonerará la obligación tributaria correspondiente a dicho exceso tarifario.
+d) Arrendamiento de vehículos a turistas extranjeros y nacionales. Exonérase el cincuenta por ciento (50%) del monto total resultante de aplicar los impuestos vigentes que afecten la importación de los vehículos automotores destinados exclusivamente a arrendarlos a los turistas.
+Estos vehículos deberán estar debidamente autorizados para circular, mediante licencia que otorgará el Instituto Costarricense de Turismo.
+También deberá identificárseles con la respectiva placa y las calcomanías especiales que extenderá y controlará la Dirección General de Transporte Automotor del Ministerio de Obras Públicas y Transportes.
+Los vehículos exonerados mediante esta Ley deberán renovarse cada tres años como máximo.
+Las tarifas y el servicio serán regulados por el Instituto Costarricense de Turismo.
+El uso indebido de los vehículos mencionados conlleva la cancelación automática de la licencia indicada y de la respectiva patente comercial de operación. Igualmente se exigirá la cancelación de todos los impuestos no cubiertos y, además, se impondrá una multa equivalente a diez veces el monto exonerado.
+El traspaso de los bienes exonerados por esta Ley, que efectúen las empresas turísticas beneficiarias a terceros que no gocen de idénticos beneficios legales, en cualquier tiempo, sólo podrá hacerse válidamente previo pago, por parte de dichas empresas, de los tributos y sobretasas correspondientes. El Poder Ejecutivo en el Reglamento de esta Ley establecerá los controles adecuados para la correcta aplicación de las normas contenidas en este artículo.
+(Así reformado por el artículo 13 de la Ley Reguladora de Exoneraciones Vigentes, Derogatorias y Excepciones, Nº 7293 de 31 de marzo de 1992)
+(Nota de Sinalevi: Mediante el aparte b) del artículo 17 de la Ley de Simplificación y Eficiencia Tributarias, N° 8114 del 4 de julio de 2001, se ordena derogar las exenciones del impuesto sobre las ventas, indicadas en este artículo)
+(Nota de Sinalevi: Respecto de las exenciones parciales o totales del impuesto sobre la renta, hechas a este artículo por el inciso c) del artículo 22 de la Ley N° 8114 de 4 de julio del 2001, Ley de Simplificación y Eficiencia Tributarias, se concibe un evidente error del legislador al afectar una norma en su estado original, ya que no existe concordancia entre algunos de los incisos afectados y el texto vigente del presente artículo. Al respecto ver dictamen de la Procuraduría General de la República C-004-2002)

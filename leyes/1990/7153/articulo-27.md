@@ -1,7 +1,4 @@
 CAPITULO IV
 Régimen de financiación
-ARTICULO 27.- Los agricultores e industriales de la cabuya
-contribuirán con un mínimo del medio del uno por ciento (0.5%) de sus
-ventas para el mantenimiento de la Junta Nacional de la Cabuya. Una
-contribución mayor podrá ser acordada por esos sectores en una asamblea
-general de la Junta.
+ARTICULO 27.- DEROGADO por el inciso i) del artículo 31 de la Ley N° 8114,
+Ley de Simplificación y Eficiencia Tributarias de 4 de julio del 2001.

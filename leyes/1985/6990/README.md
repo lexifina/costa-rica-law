@@ -1,6 +1,6 @@
 # Incentivos para el Desarrollo Turístico
 
-Ley N° 6990 del 1985-07-15. SINALEVI, ficha 1388: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=1388&param2=1494&param3=1>.
+Ley N° 6990 del 1985-07-15. SINALEVI, ficha 1388: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=1388&param2=1495&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 5 | 1985-07-15 | Ley 6990 | 1985-07-15 |
 | 2 de 5 | 1992-04-03 | Ley 7293 | 1985-07-15 |
+| 3 de 5 | 2001-07-09 | Ley 8114 | 2001-07-04 |

@@ -1,6 +1,6 @@
 # Ley de Tierras y Colonización (ITCO INDER)
 
-Ley N° 2825 del 1961-10-14. SINALEVI, ficha 32840: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32840&param2=34654&param3=1>.
+Ley N° 2825 del 1961-10-14. SINALEVI, ficha 32840: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32840&param2=34655&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 6 | 1973-07-31 | SINALEVI (2 normas) | 1961-10-14 |
 | 2 de 6 | 1998-05-21 | SINALEVI (10 normas) | 1961-10-14 |
+| 3 de 6 | 2001-07-09 | Ley 8114 | 2001-07-04 |

@@ -1,5 +1,3 @@
-CAPITULO VII
-Disposiciones Generales
 Artículo 38.- Se conceden al Instituto los siguientes beneficios:
 a) Exoneración de toda clase de impuestos y tasas, nacionales, (y municipales)* o en favor de cualquier otra entidad estatal, incluyendo también los aduanales, selectivos de consumo, sobre las ventas y estabilización económica, referentes a la adquisición de materiales de construcción necesarios para vivienda de interés social, que requiera para obras que contrate o ejecute directamente.
 (Así reformado por el artículo 134 de la ley No. 6995 de 22 de julio de 1985).

@@ -1,6 +1,6 @@
 # Ley de Exoneración de Impuestos a Instrumentos Musicales y Accesorios
 
-Ley N° 7243 del 1991-06-03. SINALEVI, ficha 7285: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7285&param2=7801&param3=1>.
+Ley N° 7243 del 1991-06-03. SINALEVI, ficha 7285: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7285&param2=7802&param3=1>.
 
 Publicada en La Gaceta N° 110 del 1991-06-12.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1991-06-12 | Ley 7243 | 1991-06-03 |
 | 2 de 3 | 1991-06-12 | SINALEVI | 1991-06-03 |
+| 3 de 3 | 2001-07-09 | Ley 8114 | 2001-07-04 |

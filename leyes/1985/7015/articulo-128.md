@@ -1,3 +1,1 @@
-Artículo 128.- Créase el timbre migratorio, cuyo valor será de veinte colones, que deberán agregar los extranjeros a toda solicitud que presenten a la Dirección General de Migración y Extranjería. La emisión y venta del timbre estará a cargo del Banco Central de Costa Rica, el cual depositará lo recaudado en una cuenta especial denominada "Fondo Especial de la Dirección General de Migración y Extranjería".
-Los recursos que este artículo crea serán utilizadas únicamente, en caso necesario, para cubrir los costos de repatriación, deportación o expulsión de extranjeros.
-(Así reformado por el artículo 151 de la ley de Migración y Extranjería, N° 7033 del 4 de agosto de 1986)
+Artículo 128.- (Derogado por el inciso x) del artículo 31 de la Ley N° 8114, Ley de simplificación y Eficiencia Tributarias de 4 de julio del 2001.

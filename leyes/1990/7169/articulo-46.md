@@ -4,21 +4,8 @@ a) Una compensación económica adicional al salario que devenga como
 investigador en un ente u órgano de investigación y desarrollo en ciencia
 y tecnología, de acuerdo con el escalafón establecido en el reglamento de
 dicho régimen.
-b) Cuando se trate de un declarante del impuesto sobre la renta,
-deducción del monto que deba pagar por concepto de ese impuesto, de
-1) El valor de compra de hasta tres programas de computadora
-por año, en su área de investigación.
-2) Un veinticinco por ciento (25%) del valor de la compra que
-se haga cada dos años, de una computadora personal.
-3) El valor de la suscripción de un máximo de ocho revistas
-científicas por año.
-4) La cuota por inscripción en congresos nacionales e
-internacionales en los que el investigador presente un trabajo
-científico.
-El beneficio total otorgado en este inciso b) no podrá superar el
-sesenta por ciento (60%) del impuesto sobre la renta total por pagar.
-( DEROGADO TACITAMENTE este inciso por el artículo 1º de Ley Nº 7293 de
-31 de marzo de 1992 ).
+b) DEROGADO por el inciso i) del artículo 22 de la Ley N° 8114,
+Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001.
 c) Exoneración, por una sola vez, del pago de todo tributo, gravamen
 o sobretasa, para el internamiento de un vehículo con una cilindrada
 máxima de 1.600 c.c., con un año mínimo de uso, y del menaje de casa
