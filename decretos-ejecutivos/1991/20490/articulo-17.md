@@ -1,1 +1,0 @@
-Artículo 17.-EI miembro del COVIRENA al que se le revoque su nombramiento de inspector forestal o de fauna ad honórem por haber cometido alguna infracción a la legislación vigente, queda inhabilitado para volver a ser nombrado como tal.

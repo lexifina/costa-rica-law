@@ -1,1 +1,0 @@
-Artículo 9°-La Secretaria Nacional del CONACOVlRENA, asesorará al Departamento de Adiestramiento del MIRENEM sobre los planes de instrucción, capacitación y adiestramiento a efectuar. Asimismo, le corresponde a la Secretaría Nacional del CONACOVlRENA facilitar a los interesados los formularios y la literatura necesaria para tales efectos.

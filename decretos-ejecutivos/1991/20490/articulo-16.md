@@ -1,1 +1,0 @@
-Artículo 16.-El Ministro podrá revocar los nombramientos hechos, por razones de conveniencia u oportunidad; debiendo comunicar tal decisión al interesado y a la Secretaría Nacional del CONACOVlRENA, para que proceda a cancelar dicho nombramiento en el registro respectivo.

@@ -1,1 +1,0 @@
-Artículo 18.-Las Direcciones del Ministerio de Recursos Naturales, Energía y Minas que integran el CONACOVIRENA, de conformidad con el artículo 5° deberán prestar su colaboración a las distintas instancias a que se refiere este decreto ejecutivo.
