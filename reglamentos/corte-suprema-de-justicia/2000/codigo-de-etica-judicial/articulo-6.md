@@ -1,0 +1,3 @@
+Artículo 6°—El deber de capacitación.
+Como un medio para que la judicatura preste un servicio de calidad y oportuno a la comunidad, quienes administran justicia están obligados a recibir la capacitación a la que se les convoque. Constituye, a la vez, un derecho que no puede serles negado injustificadamente cuando ellos lo requieran.
+Cuando en atención a sus condiciones y conocimientos, se les solicite brindar servicios de docencia a favor de sus colegas o compañeros, los servidores judiciales están en el deber de colaborar con la capacitación judicial, en la forma y con los reconocimientos que reglamentariamente se acuerden para esas actividades.

@@ -1,0 +1,2 @@
+Artículo 12.—Divulgación de la presente normativa. Se declara de interés para la administración de justicia, la difusión más amplia posible de estas normas, no solamente para una mejor comprensión de parte de quienes quedan sujetos a sus disposiciones, sino también para que el público usuario de la justicia sepa a qué atenerse cuando acuda en procura del servicio."
+Por lo anterior, queda sin efecto la circular N° 23-99 de 17 de mayo de 1999, publicada en el Boletín Judicial N° 103 de 28 de mayo de 1999.
