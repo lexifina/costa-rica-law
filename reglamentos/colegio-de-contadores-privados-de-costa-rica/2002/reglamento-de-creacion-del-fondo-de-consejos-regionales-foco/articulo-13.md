@@ -1,0 +1,1 @@
+Artículo 13.—La adquisición de bienes y servicios la hará la Administración del Colegio previa solicitud de FOCORE, para tal efecto se regirán por los procedimientos de compra establecidos por el Colegio.

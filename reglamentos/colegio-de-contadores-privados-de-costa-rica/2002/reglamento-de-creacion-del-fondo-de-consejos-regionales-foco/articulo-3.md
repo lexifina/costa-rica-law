@@ -1,0 +1,1 @@
+Artículo 3º—Su administración corresponderá a un Consejo de Administración, cuyos deberes y obligaciones detallará el presente Reglamento, el cual será electo en la Asamblea General, el segundo domingo de diciembre de cada año.

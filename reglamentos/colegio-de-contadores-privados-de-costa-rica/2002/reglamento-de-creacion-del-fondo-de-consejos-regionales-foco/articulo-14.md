@@ -1,0 +1,1 @@
+Artículo 14.—El Colegio, de la cuenta de FOCORE cubrirá los pagos de los seguros de los inmuebles y bienes muebles impuesto a la propiedad, vigilancia y servicios municipales, salarios y cargas sociales correspondientes a la Casa del Contador.

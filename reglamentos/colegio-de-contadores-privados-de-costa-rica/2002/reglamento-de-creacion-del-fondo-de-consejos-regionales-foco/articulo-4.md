@@ -1,0 +1,1 @@
+Artículo 4º—La elección del Consejo de Administración se hará conforme lo establezca el presente Reglamento, estará integrado por cinco miembros que serán: Presidente, Secretario, Tesorero y dos vocales. Los vocales suplirán en sus ausencias temporales a los demás en su orden de elección.
