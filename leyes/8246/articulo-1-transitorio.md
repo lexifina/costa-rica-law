@@ -1,0 +1,5 @@
+Disposiciones transitorias
+Transitorio I.—Los permisos y las concesiones otorgados por la presente Ley, se regirán conforme a los derechos conferidos sobre áreas de reconocimiento, exploración o explotación.
+Los pagos de los derechos de superficie, las tasas y los impuestos establecidos en la presente reforma, entrarán a regir seis meses después de la publicación de esta Ley en La Gaceta, por lo tanto, serán de acatamiento obligatorio para los interesados.
+Igualmente, tres meses después de la entrada en vigencia de esta reforma, los concesionarios que estén haciendo uso de sus derechos, deberán realizar las formalizaciones pertinentes ante las municipalidades de la zona respectiva, con el fin de integrarse al régimen de pago por los derechos de explotación de los recursos mineros.
+De lo contrario, vencido el permiso y/o la concesión de extracción de materiales, a quienes contravengan lo dispuesto en este transitorio, se les impondrán las sanciones estipuladas en esta Ley, según corresponda.
