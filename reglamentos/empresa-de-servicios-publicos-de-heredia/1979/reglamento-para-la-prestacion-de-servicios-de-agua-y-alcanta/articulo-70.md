@@ -1,0 +1,1 @@
+Artículo 70.— Para que la Empresa instale las acometidas y preste sus servicios, deberá cancelarse de previo el costo de las obras requeridas y la suma que en cada caso corresponda como valor de sus servicios durante el plazo solicitado y por lo tanto más para prever extensiones del mismo.

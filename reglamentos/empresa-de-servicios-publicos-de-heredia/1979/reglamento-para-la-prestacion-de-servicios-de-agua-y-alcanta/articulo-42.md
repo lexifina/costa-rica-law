@@ -1,0 +1,1 @@
+Artículo 42.—Para solicitar devoluciones de sumas por pagos duplicados, se requiere la presentación de ambos recibos cancelados o en su defecto de una gestión suscrita por el interesado, en la cual se expliquen a satisfacción de la Empresa las razones por las cuales no puede presentar esos recibos.

@@ -1,0 +1,1 @@
+Artículo 77.— Para todos los efectos el inmueble soportará los gravámenes por servicios prestados, no será causal de revocación de una determinación de la Empresa el hecho de que la persona responsable ya no ocupe o posea dicho inmueble.
