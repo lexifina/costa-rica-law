@@ -1,6 +1,6 @@
 # Ley de Presupuestos Ordinarios y Extraordinario de la República, Fiscal y por Programas, para el ejercicio Fiscal de 1977
 
-Ley N° 6025 del 1976-12-20. SINALEVI, ficha 10136: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=10136&param2=101094&param3=1>.
+Ley N° 6025 del 1976-12-20. SINALEVI, ficha 10136: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=10136&param2=101095&param3=1>.
 
 Publicada en La Gaceta N° 248 del 1976-12-28.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 7 | 1977-07-27 | SINALEVI (1 normas) | 1976-12-20 |
 | 2 de 7 | 1977-07-27 | SINALEVI | 1977-07-26 |
+| 3 de 7 | 1977-11-25 | Ley 6185 | 1977-11-23 |
