@@ -45,3 +45,5 @@ n) Contraer deudas o compromisos a nombre del Ministerio sin contar
 con la debida autorización para ello.
 ñ) Extralimitarse en las funciones o deberes que tienen a cargo y
 tomarse atribuciones que no les competen.
+o) La exhibición de material pornográfico en cualquier lugar de la institución utilizando el equipo de cómputo y/o los servicios de comunicación de la institución, asimismo el uso de equipo electrónico del Estado para observar o reproducir pornografía. El incurrir en el incumplimiento de esta normativa, acarrea una falta grave que será sancionada según las regulaciones vigentes.
+(Así adicionado el inciso o) por el artículo 1 del decreto ejecutivo N° 29927 de 26 de octubre del 2001)

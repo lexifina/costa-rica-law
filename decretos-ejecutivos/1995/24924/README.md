@@ -13,3 +13,4 @@ Reglamento Autónomo Servicio Ministerio de Comercio Exterior
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-16 | la propia norma |
+| 2 | 2001-10-26 | Decreto Ejecutivo 29927 (2001-10-26) |
