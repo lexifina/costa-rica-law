@@ -2,9 +2,10 @@ Artículo 37. - De la comisión por administración. La comisión por administra
 La comisión por administración de los fondos se determinará de la siguiente forma:
 1) Para los fondos de pensiones complementarias obligatorios y los fondos de capitalización laboral la comisión por administración podrá estar compuesta por:
 a) Un máximo del 8% de los rendimientos brutos obtenidos por las inversiones realizadas con los recursos del fondo.
-b) Un máximo del 4% sobre los aportes realizados por el afiliado al fondo.
+b) Un máximo del 4% sobre los aportes al fondo en el momento de su registro. Esta comisión no será aplicable a los traslados que se realicen al Régimen de Pensiones Complementarias provenientes del Fondo de Capitalización Laboral.
 c) La comisión que cobre la operadora de la CCSS se regirá por lo dispuesto en el artículo 49 de la Ley de Protección al Trabajador.
 2) Para los fondos voluntarios la operadora determinará la comisión por administración como un porcentaje de los rendimientos obtenidos por las inversiones realizadas con los recursos del fondo.
 Los porcentajes máximos mencionados anteriormente son determinados por el Consejo Nacional de Supervisión del Sistema Financiero y serán revisados cuando a criterio del Superintendente existan condiciones financieras en el Sistema de Pensiones que ameriten su modificación.
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 245-2001, celebrada el 13 de agosto de 2001, publicada en La Gaceta N° 191 de 04 de octubre de 2001.)
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 346-2002, celebrada el 19 de diciembre de 2002, publicada en La Gaceta N° 33 de 17 de febrero de 2003.)
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 396-2003, celebrada el 07 de octubre de 2003, publicada en La Gaceta N° 200 de 17 de octubre de 2003, la cuál reformó el inciso b) del presente artículo.)
