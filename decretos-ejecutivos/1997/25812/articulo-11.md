@@ -1,0 +1,1 @@
+Artículo 11.— La Secretaría Técnica informará a la Autoridad Nacional sobre los conflictos de competencia que se susciten entre esta y otras dependencias de la Administración Pública a fin de que se proceda conforme a lo establecido en los artículos 78 al 80 de la Ley General de la Administración Pública.
