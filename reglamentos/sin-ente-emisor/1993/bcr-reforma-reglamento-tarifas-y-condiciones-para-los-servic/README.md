@@ -14,3 +14,4 @@ BCR: Reforma Reglamento Tarifas y Condiciones para los Servicios
 | --- | --- | --- |
 | 1 | 1993-10-20 | la propia norma |
 | 2 | 1994-09-26 | Reglamento 0 (1994-09-26) |
+| 3 | 1994-09-26 | Ley 8 |
