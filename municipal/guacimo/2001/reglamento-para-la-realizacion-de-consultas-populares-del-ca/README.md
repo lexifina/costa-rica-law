@@ -14,3 +14,4 @@ Reglamento para la realización de Consultas Populares del Cantón de Guacimo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-29 | la propia norma |
+| 2 | 2001-08-22 | Reglamento municipal 32 (2001-08-22) |
