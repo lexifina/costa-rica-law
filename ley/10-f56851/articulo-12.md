@@ -1,0 +1,1 @@
+Art. 12.—No será concedida la extradición, si el reo reclamado hubiese sido ya juzgado y sentenciado por el mismo hecho en la República donde reside, ó en otra de las signatarias, ó si hubiese transcurrido el tiempo necesario para la prescripción de la acción ó de la pena, conforme á las leyes de la República, en cuyo territorio se encuentre.

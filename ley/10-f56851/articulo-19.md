@@ -1,0 +1,1 @@
+Art. 19.—No es indispensable para la observancia de este Tratado, su aprobación por todas las Naciones signatarias; la que lo apruebe, comunicará su ratificación al Gobierno del Perú, para que instruya de ella á las demás Naciones contratantes. Este procedimiento hará las veces de canje.

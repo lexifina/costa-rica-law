@@ -1,0 +1,1 @@
+Art. 16.—Cuando para cumplirse la extradición solicitada por cualquiera de las Repúblicas contratantes, hubiese de pasar el reo por territorio de otra de ellas, sus autoridades proporcionarán los medios necesarios para impedir la evasión de aquél, y la interrupción de su viaje.

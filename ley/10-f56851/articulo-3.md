@@ -1,0 +1,1 @@
+Art. 3°—Cuando la extradición se pidiese en virtud de sentencia ejecutoriada, el reo será entregado siempre que la pena impuesta no baje de un año de prisión, cualquiera que sea la infracción legal que haya causado el juicio y la sentencia.

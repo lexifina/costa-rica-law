@@ -1,0 +1,1 @@
+Art. 6°—El presente Tratado podrá aplicarse á los crímenes y delitos cometidos antes de estar en vigor; pero en tal caso, la persona entregada no será perseguida en la República reclamante, por ninguna infracción distinta de la que haya motivado la extradición.
