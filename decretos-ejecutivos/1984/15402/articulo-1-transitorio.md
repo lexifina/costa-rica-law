@@ -1,0 +1,2 @@
+Transitorio.—Dentro de los siguientes noventa días a partir de la publicación del presente Decreto, todos los propietarios, arrendatarios y administradores de salinas o proyectos de maricultura establecidos en la Reserva Forestal aquí creada, deberán inscribirse en un Registro Especial que al efecto llevará la Dirección General Forestal. Caso contrario, quedará esta facultada para tomar las medidas del caso y realizar las acciones’ que correspondan.
+Dado en la Presidencia de la República.—San José, a los veintitrés días del mes de marzo de mil novecientos ochenta y cuatro.
