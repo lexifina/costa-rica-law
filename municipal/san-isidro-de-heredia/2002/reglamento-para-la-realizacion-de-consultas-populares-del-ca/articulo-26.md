@@ -1,0 +1,1 @@
+Artículo 26.—Del resultado: Una vez efectuado el escrutinio, durante la siguiente sesión del Concejo Municipal, se tomará un acuerdo que legitime el resultado de la consulta popular. Este acuerdo será por unanimidad, en firme y no susceptible de vetar o derogar.
