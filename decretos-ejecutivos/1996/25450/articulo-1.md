@@ -1,6 +1,8 @@
+(Derogado)
 No 25450-RE
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+DEROGADO EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo N° 27365 del 14 de setiembre de 1998, publicado en La Gaceta N° 204 del 21 de octubre de 1998
 En uso de las facultades que le confiere el artículo 140 inciso 1), de la Constitución Política y la Ley No 3530 del 5 de agosto de 1965, Estatuto del Servicio Exterior de la República.
 decretan:
 Artículo I.—Modificar el inciso 1 del artículo 1 del Reglamento de la Comisión Calificadora del Servicio Exterior, No 17333 del 17 de noviembre de 1986 y el decreto No 23419-RE del 1° de junio de 1994, para que en lo sucesivo diga:

@@ -14,3 +14,4 @@ Reforma Reglamento Comisión Calificadora de Servicio Exterior.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-09-16 | la propia norma |
+| 2 | 1998-09-14 | Decreto Ejecutivo 27365 (1998-09-14) |
