@@ -1,0 +1,11 @@
+ARTICULO III
+Empleo del Importe del Préstamo y Retiros de la Cuenta del Préstamo Sección tres punto cero uno (3.01).
+a) El Prestatario hará que el importe del Préstamo se aplique al financiamiento de los gastos del Proyecto de acuerdo con las disposiciones de este Contrato.
+b) El Prestatario hará disponible los recursos provenientes del Préstamo a las siguientes entidades y de la siguiente forma para asistir al financiamiento de los gastos del Proyecto, de acuerdo con estas disposiciones:
+i) a la UCP los montos que esta requiera para cumplir sus responsabilidades en la ejecución del Proyecto bajo términos y condiciones satisfactorios para el Fondo; y
+ii) al BPDC y/o a otras IF, los montos que se requieran para la ejecución de la Parte B del Proyecto, bajo el/los Contrato(s) de Fideicomiso, en forma y contenido aceptables para el Fondo.
+c) Respecto a el/los Contrato(s) de Fideicomiso, el Prestatario asumirá el riesgo de cambio.
+d) El Prestatario ejercerá sus derechos bajo el/los Contrato(s) de Fideicomiso de forma que se protejan los intereses del Prestatario y del Fondo y se consigan los propósitos del Préstamo, y no obstante cualquier disposición en las Condiciones Generales, excepto que el Fondo acuerde lo contrario, el Prestatario no cederá, enmendará, abrogará o renunciará a el/los Contratos(s) de Fideicomiso ni ninguna de sus disposiciones.
+Sección tres punto cero dos (3.02). Para los propósitos del Proyecto, el Prestatario abrirá y mantendrá en su Banco Central o en un banco comercial aceptable para el Fondo, una Cuenta Especial bajo términos y condiciones satisfactorios para el Fondo. Los depósitos y pagos relativos a la Cuenta Especial serán hechos conforme con las disposiciones del Anexo 4 de este Contrato. El Director de la SEP conjuntamente con el responsable de la Unidad de Administración de la SEP estarán plenamente autorizados para operar esta Cuenta Especial.
+Sección tres punto cero tres (3.03). La asignación de los recursos del Préstamo, tal como está prevista en la Sección 6.08 de las Condiciones Generales, se efectuará conforme a las disposiciones del Anexo 2 de este Contrato.
+Sección tres punto cero cuatro (3.04). La Fecha de Cierre será el 31 de diciembre de 2001 o aquella otra fecha posterior que el Fondo establezca. El Fondo notificará inmediatamente al Prestatario de dicha fecha.
