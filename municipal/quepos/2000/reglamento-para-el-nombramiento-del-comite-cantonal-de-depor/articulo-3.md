@@ -1,0 +1,1 @@
+Artículo 3º—Entiéndase por organizaciones deportivas y recreativas aquellas que se encuentren debidamente inscritas ante el Registro de Asociaciones Deportivas del Instituto Costarricense del Deporte y Recreación y/o el Registro Público con cédula y personería jurídica al día, cuya sede o radio de acción será el cantón de Aguirre.

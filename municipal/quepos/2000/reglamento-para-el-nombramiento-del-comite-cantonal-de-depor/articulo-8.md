@@ -1,0 +1,4 @@
+CAPÍTULO III
+De la elección de representante de las organizaciones
+Se entenderá por Organizaciones Comunales, las Asociaciones de Desarrollo Integral, Asociaciones de Desarrollo Comunal, las Asociaciones de Desarrollo Específico (Ley Nº 218) las Asociaciones de Bien Social y los Comités Comunales de Deportes que tengan su radio de acción en el cantón de Aguirre y posean cédula jurídica y personería jurídica al día lo cual debe ser autenticado por un abogado.
+Artículo 8º—Para realizar y fiscalizar el desarrollo de la asamblea de elección del representante de las organizaciones comunales se conformará un Tribunal de Elecciones integrado por dos representantes del Concejo Municipal, uno lo presidirá el presidente de la Unión Cantonal de Asociaciones de Desarrollo o un representante elegido por la Junta Directiva.

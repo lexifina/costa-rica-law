@@ -1,0 +1,1 @@
+Artículo 14º—En caso de que por fuerza mayor, las organizaciones deportivas y recreativas o las organizaciones comunales no pudieran nombrar el o los miembros a la Junta Directiva del Comité Cantonal el Concejo Municipal quedará facultado después de agotar lo que corresponde, para nombrar los miembros restantes y así cumplir con la nómina necesaria del Comité Cantonal.
