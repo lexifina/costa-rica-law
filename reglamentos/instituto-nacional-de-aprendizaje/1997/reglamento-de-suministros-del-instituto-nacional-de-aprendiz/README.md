@@ -14,3 +14,4 @@ Reglamento de Suministros del Instituto Nacional de Aprendizaje.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-10-01 | la propia norma |
+| 2 | 2000-12-04 | Reglamento 3811 (2000-12-04) |
