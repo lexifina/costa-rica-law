@@ -1,0 +1,6 @@
+ARTÖCULO 2§.- Labores de abogac¡a y notariado. El
+profesional en
+Derecho puede prestar sus labores ya como abogado, ya como
+notario, o
+ejercer ambas funciones en forma conjunta. Tales actuaciones son
+independientes y deben retribuirse en forma separada.
