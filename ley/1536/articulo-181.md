@@ -1,5 +1,4 @@
 Artículo 181.- Los intereses de los "Bonos Deuda Política" serán pagados por trimestre, que se contarán a partir de la fecha de su emisión. Se destinará una cuota fija trimestral para atender amortización e intereses. El plazo máximo de los bonos será de cuatro años, pero el Estado se reservará el derecho de hacer amortizaciones extraordinarias por medio de sorteos, llamar al pago a la par del saldo de bonos en circulación o de anticipar la amortización del trimestre siguiente, siempre por medio de sorteos.
-Los intereses de los bonos pertenecerán al partido político a que corresponda, desde la fecha de la emisión.
 (Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)
 (Así reformado por el artículo 1° de la ley N° 4794 del 16 de julio de 1971)
-(La Sala Constitucional mediante resolución N° 980 del 24 de mayo del 1991, anuló este artículo "en cuanto prevé que los llamados bonos de Deuda Política, que conforme a ellos se emitan para el financiamiento previo de los gastos de los partidos, devengarán intereses.")
+(Así reformado mediante resoución de la Sala Constitucional N° 980 del 24 de mayo del 1991; misma que anuló este artículo "en cuanto prevé que los llamados bonos de Deuda Política, que conforme a ellos se emitan para el financiamiento previo de los gastos de los partidos, devengarán intereses.")

@@ -1,2 +1,3 @@
 Artículo 192.- De acuerdo con el inciso e) del artículo 96 de la Constitución Política , el Estado contribuirá a la financiación de los gastos que demanden las actividades electorales de los partidos políticos. Con tal objeto hará uso de la emisión de bonos a que se refiere el artículo 179, de acuerdo con las disposiciones siguientes.
 (Así adicionado por el artículo 1° de la ley N° 4794 del 16 de julio de 1971)
+(La Sala Constitucional mediante resolución N° 980 del 24 de mayo del 1991, anuló este artículo "en cuanto se fundamenta expresamente en el artículo 96 inciso e) de la Constitución, declarado inconstitucional, pero no en cuanto autoriza la contribución del Estado a la financiación anticipada de los gastos electorales de los partídos políticos")
