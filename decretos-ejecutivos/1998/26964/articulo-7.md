@@ -1,0 +1,1 @@
+Artículo 7°-Internamente la Comisión determinará su sistema de funcionamiento. Asimismo la Comisión invitará a personas u organizaciones, tanto del Sector Público cómo del Privado, a integrar Comisiones Ad-Hoc para la solución de problemas particulares.
