@@ -1,0 +1,1 @@
+Artículo 2º—Del monto total recaudado durante el mes anterior por concepto de este tributo, las Municipalidades deberán depositar durante los primero quince días naturales del mes siguiente, el diez por ciento a favor de la Comisión Nacional de Gestión de la Biodiversidad y en la cuenta corriente que se indique por parte del Ministerio del Ambiente y Energía.

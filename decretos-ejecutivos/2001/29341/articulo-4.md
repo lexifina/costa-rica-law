@@ -1,0 +1,1 @@
+Artículo 4º—Los montos de dinero que se hayan recaudado con anterioridad a la publicación de este Decreto Ejecutivo deberán ser presupuestados y girados en los términos aquí indicados por parte de las Municipalidades del país de conformidad con los requisitos y disposiciones de la Contraloría General de la República.

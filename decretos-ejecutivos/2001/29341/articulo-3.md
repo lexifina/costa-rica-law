@@ -1,0 +1,1 @@
+Artículo 3º—Del producto restante luego del depósito del diez por ciento a favor de la Comisión Nacional de Gestión de la Biodiversidad que se indica en el artículo anterior, el setenta por ciento restante será depositado en el Fondo de Parques Nacionales, en los mismos términos y plazo que se señala en el artículo precedente.
