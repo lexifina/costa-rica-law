@@ -1,2 +1,0 @@
-Transitorio .-Los juicios que se hubieren establecido con anterioridad a la vigencia de esta ley, seguirán tramitándose hasta su fenecimiento, con base en las leyes con que se iniciaron, pero las autoridades judiciales podrán simplificar los procedimientos, aplicando esta nueva ley en cuanto fue re posible.
-Casa Presidencial. -San José, a los veinte días del mes de marzo de mil novecientos setenta.
