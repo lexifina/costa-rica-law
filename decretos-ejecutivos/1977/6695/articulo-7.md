@@ -1,0 +1,1 @@
+Artículo 7°.- La falta de cumplimiento de las obligaciones aquí estipuladas se tendrán por renuncia irrevocable de la empresa a los beneficios concedido y dará base para que administrativamente se declare caduco el presente decreto, todo sin perjuicio de la responsabilidad legal de cualquier orden que le pueda caber a la empresa o sus representantes por el incumplimiento.
