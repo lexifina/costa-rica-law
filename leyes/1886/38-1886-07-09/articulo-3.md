@@ -1,0 +1,2 @@
+III.
+La duración de este contrato será de diez años, contados desde el día en que termine el que el Gobierno tiene actualmente celebrado con la "Pacific Mail Steam Ship Co", fecha en la cual los señores Irigoyen y March deberán tener establecido el servicio de sus vapores. La Empresa tiene obligación de notificar al Gobierno, lo más tarde el quince de octubre próximo, que están listos los vapores de la línea que va á establecer. En caso contrario, el Gobierno puede de hecho declarar caduco este contrato.
