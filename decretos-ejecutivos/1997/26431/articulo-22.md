@@ -1,5 +1,6 @@
-DE LA DIRECCIÓN DE SALUD ANIMAL
-Artículo 22—La Dirección de Salud Animal tendrá las siguientes funciones:
+DE LA DIRECCIÓN DE SALUD ANIMAL Y PRODUCCION PECUARIAL
+Artículo 22—La Dirección de Salud Animal y Producción Pecuarial tendrá las siguientes funciones:
+(Así modificado por el artículo 2° del Decreto Ejecutivo N° 29252 del 11 de enero del 2001)
 1. Recomendar las políticas técnicas de Salud Animal a los diferentes niveles jerárquicos para beneficio del país y de los productores y productoras.
 2. Fortalecer los programas de servicios de protección zoosanitarios mediante mecanismos innovadores y sostenibles.
 3. Coordinar la ejecución de las estrategias y políticas necesarias para desarrollar los programas de protección de todos los niveles.
@@ -16,4 +17,7 @@ Artículo 22—La Dirección de Salud Animal tendrá las siguientes funciones:
 14. Realizar el control microbiológico de alimentos de origen animal.
 15.Constatación de la calidad de medicamentos y productos biológicos.
 16. Establecer y controlar el programa de bioseguridad que garantice la seguridad personal y el buen manejo de desechos.
-17. Cualquier otra función que las autoridades superiores, leyes y reglamentos le asignen.
+17. Mantener colecciones de germoplasma animal tendientes a la producción de genotipos de importancia para la producción pecuaria.
+(La versión original del presente inciso fue derogada por el artículo 1° y posteriormente adicionada por el artículo 3°, ambos del Decreto Ejecutivo N° 29252 del 11 de enero del 2001)
+18. Cualquier otra función que las autoridades superiores, leyes, reglamentos o disposiciones normativas le asignen.
+(Ampliado por el artículo 3° del Decreto Ejecutivo N° 29252 del 11 de enero del 2001)

@@ -8,7 +8,7 @@ Artículo 12—La Dirección de Investigaciones Agropecuarias tendrá las siguie
 6. Promover la generación, validación y difusión de tecnología que incrementen la producción agropecuaria en los rubros de importancia económica y social nacional.
 7. Realizar estudios sobre zonificación, capacidad de uso de las tierras, su uso potencial y actual para contribuir al ordenamiento territorial agropecuario.
 8. Generar manuales de procedimientos, metodologías y técnicas de investigación además de asesorar, apoyar y capacitar al recurso humano de las agencias de servicios agropecuarios.
-9. Mantener colecciones de germoplasma de especies estratégicas tendientes a la producción de genotipos de importancia para la , producción agropecuaria.
+9. (Así derogado por el artículo 1° del Decreto Ejecutivo N° 29252 del 11 de enero del 2001)
 10. Garantizar que las investigaciones agropecuarias consideren las condiciones socioeconómicas de los productores, productoras y sus familias para los cuales se desarrolla la tecnología.
 11. Establecer las normas y procedimientos necesarios para la elaboración y ejecución del Programa Nacional de Investigación Agropecuaria, con base en las necesidades de los productores y las productoras en coordinación con el Área Agropecuaria.
 12. Establecer mecanismos de coordinación con las Direcciones de Extensión, Salud Animal, y Servicios de Protección Fitosanitaria, para lograr acciones conjuntas en beneficio de los productores agropecuarios.
