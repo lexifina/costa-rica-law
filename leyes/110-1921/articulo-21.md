@@ -1,0 +1,1 @@
+Artículo 21.-Las autoridades políticas prestarán a los funcionarios y Juntas creadas por esta ley, todo el apoyo que les solicitaren, y si no lo hicieren incurrirán en multa de veinte a doscientos colones, más los daños y perjuicios que su falta de cumplimiento ocasionare.

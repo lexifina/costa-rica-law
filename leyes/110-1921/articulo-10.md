@@ -1,0 +1,1 @@
+Artículo 10.-El detalle deberá llevar el visto bueno del Gobernador en las capitales provincia o el de los Jefes Políticos en los demás cantones. Se ordenará su publicación en el periódico oficial, y se le remitirá a la autoridad política para que lo ponga de manifiesto en un lugar público, sin perjuicio de su notificación a cada interesado por medio de cédula.
