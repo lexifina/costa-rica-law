@@ -1,0 +1,1 @@
+Artículo 3°—Los Directores de los diferentes Registros que conforman la Institución, serán los encargados de conocer y tramitar los documentos que son elevados para su calificación desde las diferentes oficinas regionales, de conformidad a la especialidad de cada materia.
