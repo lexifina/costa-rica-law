@@ -1,0 +1,2 @@
+Artículo 14.—Registro de cuotas.
+La Caja Costarricense de Seguro Social contará con un plazo de diez días hábiles a partir de la comunicación a que se refiere el artículo anterior, para registrar las cuotas en la cuenta individual de cada afiliado en el Seguro de Invalidez, Vejez y Muerte. Este registro será independiente del trámite de pago que realice el Estado a la Caja Costarricense de Seguro Social.

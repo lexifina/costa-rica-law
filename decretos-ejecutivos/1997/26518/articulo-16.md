@@ -1,0 +1,2 @@
+Artículo 16.—Traspaso de las diferencias por cotización obrera a los diputados.
+Cuando por razón del traslado del Régimen al de Invalidez, Vejez y muerte de la Caja Costarricense de Seguro Social, quede un saldo a favor del funcionario cotizante, por diferencia en la cotización obrera, la Tesorería Nacional del Ministerio de Hacienda contará con un plazo máximo de ocho días hábiles para comunicar y emitir a favor del funcionario cotizante el giro por la diferencia correspondiente.

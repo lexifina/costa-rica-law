@@ -1,0 +1,3 @@
+Artículo 3. Determinación de la población.
+El Departamento de Recursos Humanos de la Asamblea Legislativa, procederá a realizar de oficio, la exclusión del Régimen de Pensiones de los Diputados y la inclusión en el Seguro de Invalidez, Vejez y Muerte que administra la Caja Costarricense del Seguro Social, dentro de los quince días hábiles posteriores a la emisión de este decreto.
+En ese mismo plazo, deberá informar a la Dirección de Presupuesto Nacional y al Departamento de Cuenta Individual de la Caja Costarricense de Seguro Social, sobre los traslados realizados y remitir a la Caja Costarricense de Seguro Social la información necesaria para realizar las liquidaciones actuariales a que se refieren los artículos 6 y 8 de este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 4°—Obtención de los beneficios del seguro de invalidez, vejez y muerte.
+A partir del momento de la inclusión y con independencia de que se haya realizado el traspaso efectivo de cuotas, el funcionario trasladado gozará de todos los beneficios del Seguro de invalidez, vejez y muerte que administra la Caja Costarricense de Seguro Social, siempre y cuando cumpla con las condiciones en él establecidas.
