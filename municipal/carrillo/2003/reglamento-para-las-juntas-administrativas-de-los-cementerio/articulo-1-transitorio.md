@@ -1,0 +1,2 @@
+Transitorio.—El artículo 43, rige para los camposantos que se crearan después de la vigencia del presente Reglamento. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta. Asimismo este Reglamento deja sin efecto el acuerdo adoptado por el Concejo Municipal de Carrillo en sesión extraordinaria Nº 15-87 celebrada el 19 de agosto de 1987. De igual manera, el acuerdo Nº 1 de la sesión extraordinaria Nº 14-95 celebrada el 21 de setiembre de 1995.
+Filadelfia, Carrillo, Guanacaste, 20 de noviembre del 2003.

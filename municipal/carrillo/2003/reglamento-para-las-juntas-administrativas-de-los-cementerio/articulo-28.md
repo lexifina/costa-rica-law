@@ -1,0 +1,1 @@
+Artículo 28.—Cuando se desee efectuar una inhumación en una fosa que contenga restos con más de cinco años, podrá permitirse la nueva inhumación siempre y cuando entre el cadáver inhumado y el que se pretende inhumar existan los vínculos familiares exigidos por ley. No se permitirá la inhumación después de cinco años en la misma bóveda, si en ese nicho hay una momia.

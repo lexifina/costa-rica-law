@@ -1,0 +1,1 @@
+Artículo 9º—Las Juntas deberán presentar al Concejo Municipal el anteproyecto del presupuesto de ingreso y gastos para el siguiente periodo, en el mes de julio de cada año a fin de que una vez sometida a consideración del Concejo sea incluido parcial o total en el presupuesto ordinario del siguiente año.

@@ -1,0 +1,1 @@
+Artículo 3º—Las Juntas están integradas por un presidente, vicepresidente, secretario, tesorero, dos vocales y un fiscal. Todos los cargos se escogerán en el transcurso de la primera sesión y serán adhonórem.

@@ -1,0 +1,1 @@
+Artículo 7º—Dejará de ser miembro de la Junta el que faltare a tres (3) sesiones consecutivas sin causa justificada. Para sustituirlo la Junta enviará una terna al Concejo del Distrito para que este lo lleve al Concejo Municipal y proceda al nombramiento respectivo por el periodo restante del miembro que cesó en su cargo.

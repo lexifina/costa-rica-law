@@ -1,0 +1,1 @@
+Artículo 30.—Las exhumaciones ordinarias se realizarán a solicitud de los interesados ante la Junta y deberá estar presente al menos en el momento un miembro de la Junta y dos parientes cercanos a la persona fallecida. Para lo anterior se levantará un acta.

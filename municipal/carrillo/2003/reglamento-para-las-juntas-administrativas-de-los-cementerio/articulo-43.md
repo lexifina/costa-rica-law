@@ -1,0 +1,1 @@
+Artículo 43.—Cada uno de los frentes de las bóvedas, tumba o mausoleo a construir llevará acera, construidas por cuenta del arrendatario, indicándose por la Junta el ancho, todo esto dependiendo del acuerdo tomado por cada junta al respecto.

@@ -1,0 +1,1 @@
+Artículo 40.—La Junta no se responsabiliza por ninguna clase de accidente que ocurriere en las construcciones y en los trabajos que se hagan dentro del cementerio, salvo aquellos casos en que resultaren afectados sus empleados. Las construcciones, reparaciones y otros trabajos serán por cuenta y riesgo de los arrendatarios.

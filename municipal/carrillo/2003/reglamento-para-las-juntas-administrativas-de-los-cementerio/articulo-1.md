@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE CARRILLO
+La Municipalidad de Carrillo, Guanacaste, de conformidad con lo que establece el Código Municipal, en su artículo 13, inciso c), a través del acuerdo Nº 1, emitido en la sesión extraordinaria Nº 26-2003, celebrada el día 5 de setiembre del 2003, dispuso decretar el Reglamento para las Juntas Administrativas de los Cementerios del Cantón de Carrillo, que literalmente dice:
+CAPÍTULO I
+De las Juntas Administrativas de los cementerios
+Artículo 1º—Las Juntas Administrativas de los Cementerios del cantón de Carrillo, serán nombradas bajo la dirección del Concejo de Distrito respectivo, escogiendo para su integración a personas de reconocida idoneidad y espíritu para garantizar el buen desempeño de sus funciones. Las Juntas deben de estar integradas por siete personas. El quórum estará formado por la mitad más uno de sus miembros y los acuerdos se tomarán por simple mayoría. En caso de empate, el asunto se decidirá en la próxima sesión ordinaria; si la situación persiste se dará por desechado.

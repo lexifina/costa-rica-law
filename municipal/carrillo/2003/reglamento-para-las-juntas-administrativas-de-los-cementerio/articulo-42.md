@@ -1,0 +1,1 @@
+Artículo 42.—Todos los dineros provenientes de arrendamientos de las parcelas o derechos en el cementerio deberán invertirse en mejoras del mismo y dar un servicio acorde con las necesidades vigentes y planes futuros, así como en cancelación de recibos de agua, luz y otros inherentes a la función del cementerio.

@@ -1,0 +1,1 @@
+Artículo 22.—Por toda solicitud de traspaso de derechos de parcelas, pagará la suma de mil colones por gastos de administración. No podrán ser traspasados a terceros aquellos derechos donde permanezcan restos de adultos y niños de cinco y tres años respectivamente, del último sepelio.

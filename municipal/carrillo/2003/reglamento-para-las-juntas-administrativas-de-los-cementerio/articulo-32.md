@@ -1,0 +1,1 @@
+Artículo 32.—El acta para traslados de restos deberá contener la autorización de los propietarios de ambas bóvedas en caso de traslados dentro del cementerio o del propietario de la bóveda que contengan los restos en caso de traslado a otro cementerio.

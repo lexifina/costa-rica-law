@@ -1,0 +1,1 @@
+Artículo 16.—Ningún propietario podrá hacer uso de su bóveda o construcción si tiene deuda pendiente con plazo vencido ante la Junta. Sin embargo, mantendrá sus derechos si garantiza su deuda a conveniencia de los intereses de la Junta, quedando facultada ésta de efectuar cualquier arreglo con los interesados.

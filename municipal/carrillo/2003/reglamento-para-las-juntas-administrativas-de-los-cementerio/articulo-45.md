@@ -1,0 +1,1 @@
+Artículo 45.—Los derechos de arrendamiento sobre parcelas o tumbas privadas, no pueden ser vendidas con pacto de retroventa, no son susceptibles de embargo, ni pueden ser dadas en garantía o gravados en forma alguna.

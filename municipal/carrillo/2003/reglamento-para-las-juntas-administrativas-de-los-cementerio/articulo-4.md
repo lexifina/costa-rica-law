@@ -1,0 +1,1 @@
+Artículo 4º—Las Juntas deben fijar dos sesiones ordinarias al mes. Se reunirán extraordinariamente cada vez que haya cosas que lo ameriten. A estas sesiones pueden concurrir los regidores con interés particular teniendo derecho a voz únicamente.

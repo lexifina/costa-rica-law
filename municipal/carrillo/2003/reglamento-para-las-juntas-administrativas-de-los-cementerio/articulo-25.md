@@ -1,0 +1,1 @@
+Artículo 25.—La presentación del comprobante de ingreso cancelado deberá hacerse por lo menos con dos (2) horas para la inhumación, deberá hacerse por lo menos con dos horas de anticipación en caso de bóvedas particulares, con el fin de determinar el sitio exacto y la ausencia de restos con más de cinco años de inhumación.

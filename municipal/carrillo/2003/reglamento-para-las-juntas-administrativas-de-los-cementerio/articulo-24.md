@@ -1,0 +1,1 @@
+Artículo 24.—Si la inhumación fuese a realizarse en una bóveda particular, deberá mediar autorización de la persona propietaria del derecho o de aquella que previamente se haya designado como corresponsable en el contrato de adquisición, pudiendo ser autenticada por notario público en caso de ser necesario.
