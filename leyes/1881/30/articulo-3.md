@@ -1,0 +1,1 @@
+Art. 3°-El establecimiento en que se tolerase juego prohibido, ó juego autorizado en las horas ó en los Iocales no permitidos; queda sujeto á las penas establecidas en el decreto número 15 de 23 del presente mes.
