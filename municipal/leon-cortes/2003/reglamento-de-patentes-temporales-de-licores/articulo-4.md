@@ -1,0 +1,1 @@
+Artículo 4º—Si se van a realizar corridas de toros, presentar permisos sanitarios de funcionamiento del redondel, póliza del INS, documento que garantice la participación de la Cruz Roja y de la autoridad policial que atenderá la actividad, contrato taurino y programación del evento.

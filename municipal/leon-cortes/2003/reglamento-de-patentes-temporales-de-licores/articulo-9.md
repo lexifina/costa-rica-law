@@ -1,0 +1,1 @@
+Artículo 9º—No se permitirá la explotación de ninguna patente temporal en: ferias escolares, colegios, centros de enseñanza, centros deportivos como gimnasios, estadios y plazas de deportes (según Decreto Ejecutivo Nº 21562-11-G del 31 de agosto de 1992 y Decreto Ejecutivo Nº 17757-G, artículo 18) además de las actividades culturales.

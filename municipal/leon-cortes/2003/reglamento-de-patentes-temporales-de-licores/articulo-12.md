@@ -1,0 +1,1 @@
+Artículo 12.—Los grupos solicitantes de una patente temporal de licores deben presentar un informe económico detallado, e indicar el destino que se le darán a estos recursos, posterior al evento realizado en un plazo no mayor a 30 días naturales, caso contrario se denegarán futuras concesiones de patentes temporales.

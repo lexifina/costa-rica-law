@@ -1,0 +1,1 @@
+Artículo 5º—Las patentes temporales de licores se podrán otorgar hasta por un tiempo máximo de 4 días naturales, (queda a criterio del concejo si se extienden por más tiempo), solo se permitirá el uso del derecho ya adquirido por patentados de cada distrito, según lo establece el artículo 17 del Decreto Ejecutivo Nº 17757-G, sin excepción.
