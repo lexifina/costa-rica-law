@@ -1,0 +1,1 @@
+Artículo 7°—Para el cumplimiento de sus funciones la Secretaría Técnica del Consejo Nacional del Sector Salud estará técnicamente subordinada al Consejo y al Ministro de Salud, y para efectos administrativos estará adscrita al Ministerio de Salud.
