@@ -1,0 +1,1 @@
+Artículo 4°-Se faculta a todos los Ministerios, Instituciones Descentralizadas e Instituciones Integrantes del Sector Agropecuario, para que faciliten al IMAS los recursos materiales y humanos necesarios para coadyuvar en el proceso de levantamiento y digitación de las indicadas fichas dentro del menor plazo posible.
