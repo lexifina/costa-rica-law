@@ -1,0 +1,1 @@
+Artículo 2° Se dará al agraciado el pasaje de ida y vuelta, quinientos francos al año para taxas universitarias y compra de libros, y doscientos francos cada mes para su sostenimiento francos cada mes para su sostenimiento durante el tiempo reglamentario que invierta en coronar sus estudios.
