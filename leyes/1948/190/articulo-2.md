@@ -1,12 +1,12 @@
-Artículo 2º.- Quedan comprendidas dentro de las prescripciones de
-esta ley:
+Artículo 2º.- Quedan comprendidas dentro de las prescripciones de esta
+ley:
 a) El ejercicio de la pesca en aguas nacionales;
 b) Las aguas municipales o de propiedad privada cuando por su
 ubicación o curso o por razones de continuidad biológica, de sanidad o de
 conservación de la fauna o flora, requieren la aplicación de la ley o cuyo
 uso se encuentre regulado en Convenios Internacionales, así como también
-las operaciones de pesca que en ellas se realicen y los productos
-extraídos cuando sean librados al tráfico comercial;
+las operaciones de pesca que en ellas se realicen y los productos extraídos
+cuando sean librados al tráfico comercial;
 c) El ejercicio de la caza marítima;
 d) El ejercicio de la caza o de la pesca en aguas jurisdiccionales;
 e) El ejercicio de la caza o de la pesca en mar libre por medio de

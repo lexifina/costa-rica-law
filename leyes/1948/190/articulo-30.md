@@ -1,6 +1,2 @@
-Artículo 30.- Los infractores a la presente ley o a sus reglamentos,
-serán penados con multa de cien a cinco mil colones o su equivalente en
-arresto, de acuerdo con la importancia de la infracción cometida, y además
-a sufrir el comiso de los productos, artefactos de pesca, embarcaciones y
-demás instrumentos; tanto ellos como las multas ingresarán al departamento
-de pesca del Ministerio de Agricultura e Industrias.
+Artículo 30.- (ANULADO por Resolución de la Sala Constitucional Nº
+778-95 de las 16:48 horas del 8 de febrero de 1995).

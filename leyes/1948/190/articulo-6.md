@@ -4,9 +4,8 @@ a) Los procedimientos y requisitos necesarios para el ejercicio de la
 pesca y de la caza marítimas;
 b) Fijar las épocas permitidas para la pesca y la caza marítimas, ya lo
 sean permanentes o temporales, generales o regionales, zonas de reserva y
-demás condiciones que garantizan una explotación racional y metódica,
-desde el punto de vista biológico, sanitario, comercial, industrial o
-deportivo;
+demás condiciones que garantizan una explotación racional y metódica, desde
+el punto de vista biológico, sanitario, comercial, industrial o deportivo;
 c) Reglamentar la forma de pesca a usarse y sus características; y
 d) Dictar los reglamentos sanitarios y las demás normas que sea
 necesario adoptar para regular la acuicultura, el tráfico, transporte,
