@@ -1,2 +1,0 @@
-ARTICULO 53.- Todo trabajador manual o intelectual tendrá derecho a un sueldo o salario mínimo que cubra las necesidades de su hogar en el orden material, moral y cultural, el cual será fijado periódicamente, atendiendo a las modalidades de su trabajo y a las particulares condiciones de cada región y de cada actividad intelectual, industrial, comercial, ganadera o agrícola.
-(Así reformado por ley Nº 24 de 2 de julio de 1943)

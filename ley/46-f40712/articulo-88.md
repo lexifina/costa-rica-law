@@ -1,1 +1,0 @@
-ARTICULO 88.- El Congreso residirá en la capital de la República, y tanto para trasladar su residencia a otro lugar como para suspender sus sesiones por tiempo determinado, se necesitan dos tercios de votos.
