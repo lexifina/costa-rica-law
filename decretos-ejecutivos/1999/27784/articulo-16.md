@@ -1,0 +1,1 @@
+Artículo 16.—Liquidación del servicio. La liquidación de servicio de arrendamiento la efectuará el Departamento de Servicios Generales del MEP al respectivo propietario, mediante el sistema de pago por gira o por mes, según lo estime conveniente.

@@ -1,0 +1,1 @@
+Artículo 6°—De la autorización del superior inmediato. Todo funcionario que estuviese interesado en arrendar su vehículo a este Ministerio e inscribirse dentro del “Registro de Elegibles” deberá obtener autorización de su superior inmediato, la cual deberá adjuntar a su solicitud.

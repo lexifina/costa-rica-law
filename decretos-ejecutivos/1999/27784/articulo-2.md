@@ -1,0 +1,3 @@
+Artículo 2°—Objeto:
+2.1El presente Reglamento tiene por objetivo primordial establecer las regulaciones que permitan que el MEP autoricen a sus funcionarios para el uso de sus propios vehículos en funciones exclusivas de su cargo, entendiéndose por éstas, el desempeño de los trabajos oficiales de la Institución que le son normalmente asignados o que les fueren encargados y que, a tales fines, requieran su traslado a distintas dependencias administrativas del Estado o a diversas zonas del territorio nacional.
+2.2 Todo funcionario que, con sujeción al presente Reglamento, pusiere a disposición de este Ministerio el vehículo de su propiedad, obtendrá por este concepto una retribución, según lo establecido al efecto.

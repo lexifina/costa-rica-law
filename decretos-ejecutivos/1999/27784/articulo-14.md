@@ -1,0 +1,1 @@
+Artículo 14.—Cálculo del recorrido o gira. Para determinar el recorrido de la gira y su respectivo kilometraje, se tomará en cuenta partiendo del sitio donde se origina el viaje, el lugar de destino y viceversa, por la ruta más corta y adecuada.
