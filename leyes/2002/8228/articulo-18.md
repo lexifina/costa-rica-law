@@ -1,0 +1,1 @@
+Artículo 18.—Potestad de autoridad. La potestad de ejercer actos de autoridad en los recintos indicados en el artículo anterior es excepcional; únicamente se llevará a cabo en las labores propias de su cargo y deberá efectuarse según los límites generales de razonabilidad, proporcionalidad y empleo del procedimiento técnico.

@@ -1,0 +1,1 @@
+Artículo 24.—Abastecimiento de agua. El Cuerpo de Bomberos podrá abastecerse, sin costo alguno, de los acueductos y las fuentes de agua, públicos o privados, para la atención de emergencias y otras actividades propias de sus funciones.

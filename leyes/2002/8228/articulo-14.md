@@ -1,0 +1,1 @@
+Artículo 14.—Requerimientos técnicos en edificaciones. Las instalaciones, construcciones, obras civiles o plantas industriales, según se establezca, deberán contar con los requerimientos técnicos, las previsiones y los requisitos de edificación; asimismo, cumplirán lo estipulado en la normalización técnica y en el Reglamento de la presente Ley.

@@ -1,0 +1,2 @@
+Artículo 6º—Excepciones. Prohíbese la participación del Cuerpo de Bomberos en actividades de carácter represivo.
+No obstante, cuando se presenten situaciones de emergencia derivadas de la represión estatal de actividades delictivas, que atenten contra la seguridad y la tranquilidad general, el Cuerpo de Bomberos estará obligado a atender la emergencia una vez que, a su criterio, esté controlado el conflicto y asegurada la escena por parte de los cuerpos policiales.
