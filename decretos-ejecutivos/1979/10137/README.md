@@ -14,3 +14,4 @@ Reforma al Reglamento Interior de Trabajo del Ministerio de Educación Pública.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-07-07 | la propia norma |
+| 2 | 1979-07-07 | Decreto Ejecutivo 10230 (1979-05-05) |
