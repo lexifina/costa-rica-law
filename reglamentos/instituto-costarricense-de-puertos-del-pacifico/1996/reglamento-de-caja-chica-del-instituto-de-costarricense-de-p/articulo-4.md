@@ -1,0 +1,1 @@
+ARTICULO 4: De conformidad con el Manual sobre Normas de Auditoría y de Control Interno para la Contraloría General de la República y las Entidades y Organos Sujetos a su Fiscalización, la Dirección Financiera deberá realizar los arqueos correspondientes de las cajas chicas, en forma periódica.

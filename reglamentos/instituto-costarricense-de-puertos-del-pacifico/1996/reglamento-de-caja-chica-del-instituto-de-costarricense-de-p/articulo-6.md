@@ -1,0 +1,1 @@
+ARTICULO 6: Los responsables de la custodia de los fondos de caja chica deberán suscribir la correspondiente Póliza de Fidelidad y responderán por el correcto manejo de los fondos asignados ante sus superiores inmediatos y ante la Auditoría General, cada vez que así lo soliciten, de acuerdo al Artículo 3 de este Reglamento.
