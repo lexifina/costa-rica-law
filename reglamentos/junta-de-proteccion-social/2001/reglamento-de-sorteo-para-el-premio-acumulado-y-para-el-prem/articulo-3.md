@@ -1,0 +1,1 @@
+Articulo 3° -El Fondo también se puede distribuir entre el público jugador de loterías, otorgando otros premios, en electivo o en especie, en los diferentes sorteos que la Junta Directiva determine, para cualquiera de las loterías que administra la Junta.
