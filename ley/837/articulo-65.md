@@ -1,2 +1,2 @@
-Artículo 65: Los declarantes del impuesto sobre la renta están obligados a presentar constancia, exenta del pago de especies fiscales, expedida por la Dirección General de la Tributación Directa, de estar al día en la presentación de sus declaraciones en las gestiones administrativas con instituciones o empresas públicas y dependencias del Estado, según lo establezca el Reglamento.
+Artículo 65: (Derogado por el artículo 19 de la Ley de Presupuesto Extraordinario, N° 6966 del 28 de setiembre de 1984)
 (Así adicionado por el artículo 38 de la ley N° 6955 del 24 de febrero de 1984)
