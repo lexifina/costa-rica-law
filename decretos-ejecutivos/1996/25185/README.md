@@ -13,3 +13,4 @@ Ministerio de Hacienda Asume y Administra Bienes Junta Liquidadora BAC
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-11 | la propia norma |
+| 2 | 1996-06-11 | Decreto Ejecutivo 26033 (1997-04-08) |
