@@ -1,0 +1,1 @@
+Artículo 13.—Director y Subdirector de las Direcciones. Cada una de las Direcciones contará con un Director y un Subdirector; ambos serán responsables por los resultados de la gestión de la Dirección correspondiente.

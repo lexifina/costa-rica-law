@@ -1,0 +1,1 @@
+Artículo 11.—Mando Técnico de la División Administrativa. La División Administrativa tendrá mando técnico sobre las unidades de apoyo administrativo designadas en las Divisiones de este Ministerio incluidas las respectivas Regionales. A tales efectos, establecerá los lineamientos y normativas que garanticen el efectivo cumplimiento de esta materia.

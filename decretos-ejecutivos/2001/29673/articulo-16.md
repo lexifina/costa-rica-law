@@ -1,0 +1,1 @@
+Artículo 16.—Derogatoria. El presente Decreto deroga el artículo Nº 8 del decreto ejecutivo Nº 27917-MOPT del 31 de mayo de 1999 y cualquier otra disposición normativa de similar o inferior rango jerárquico en cuanto se le aponga.

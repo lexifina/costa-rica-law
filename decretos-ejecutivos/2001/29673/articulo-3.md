@@ -1,0 +1,1 @@
+Artículo 3º—Producto. El producto, resultado del cumplimiento eficiente de la labor de la División Administrativa se define como: factor humano, recursos materiales, recursos financieros y servicios de la mejor calidad, administrados y suministrados efectivamente.

@@ -1,0 +1,1 @@
+Artículo 15.—Ajustes a las funciones y los Departamentos. Los ajustes en cuanto a las funciones y la definición de los Departamentos para el MOPT, serán realizados por la Dirección de Planeamiento Administrativo de dicha División.

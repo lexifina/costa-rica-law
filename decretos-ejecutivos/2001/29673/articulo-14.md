@@ -1,0 +1,1 @@
+Artículo 14.—Departamentos. Las Direcciones definidas por el presente Decreto que así lo requieran, previo estudio de la Dirección de Planeamiento Administrativo, podrán conformarse en Departamentos, de conformidad con las necesidades de cada Dirección.

@@ -1,0 +1,1 @@
+Artículo 12.—Director y Subdirector de la División Administrativa. En la División Administrativa existirán un Director y un Subdirector General, quienes responderán ante el Ministro por los resultados de la gestión en dicha División.
