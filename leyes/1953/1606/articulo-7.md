@@ -1,0 +1,2 @@
+Artículo 7º.- La resolución del Ministerio que otorgue la patente, se publicará en el periódico oficial y se protocolizará ante un notario, para su inscripción en el Registro Mercantil, todo por cuenta del interesado.
+Toda cancelación o suspensión de patente, deberá comunicarse al Registro Público por mandamiento del Ministerio, ordenando su anotación en el Registro Mercantil, y debe además, publicarse en el periódico oficial.
