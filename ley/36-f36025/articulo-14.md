@@ -1,0 +1,6 @@
+Artículo 14.- Las diligencias de expropiación se tramitarán con la
+persona que tenga inscrito el inmueble en su favor, al remitir el
+Ministerio al interesado la nota ó copia de que hablan los artículos 5º y
+6º. Si no hubiere inscripción, con la que entonces posea como dueño, y
+caso de estar, además, en litigio el inmueble, con las que aparezcan del
+expediente respectivo, como partes directamente interesadas.
