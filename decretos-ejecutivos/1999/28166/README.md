@@ -14,3 +14,4 @@ De Interés Público II Congreso Nacional sobre Desarrollo SostenibleCosta Rica 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-22 | la propia norma |
+| 2 | 1999-10-22 | Decreto Ejecutivo 28443 (1999-12-09) |
