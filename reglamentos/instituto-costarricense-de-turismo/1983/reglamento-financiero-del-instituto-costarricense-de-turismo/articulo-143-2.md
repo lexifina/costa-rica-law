@@ -1,0 +1,1 @@
+Artículo 143.—Es prohibido mantener o sustituir los fondos de caja chica por otros valores que no sean los que indica el artículo 135 de este reglamento. La violación de esta disposición se considera falta grave y se sancionará según lo estipula el artículo 39 del Reglamento de Trabajo.

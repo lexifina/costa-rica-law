@@ -1,0 +1,1 @@
+Artículo 149.—No obstante lo establecido en el artículo 144, las liquidaciones de los pagos hechos con estos fondos, deberán hacerse semanalmente o cuando se hubiere agotado el cincuenta por ciento de los fondos. Las liquidaciones de estos fondos serán refrendadas por el Director Financiero.

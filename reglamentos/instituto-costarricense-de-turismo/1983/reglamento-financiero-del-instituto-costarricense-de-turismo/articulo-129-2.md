@@ -1,0 +1,1 @@
+Artículo 129.—La auditoría procederá a la revisión y refrendo de las liquidaciones de gastos de viaje y transporte, tanto en giras dentro como fuera del país, en aquellos casos en que las encontrare ajustadas en todo a las disposiciones del reglamento de gastos de viaje y a éste mismo, devolviendo las que no se encontraren a derecho, para lo que corresponda.

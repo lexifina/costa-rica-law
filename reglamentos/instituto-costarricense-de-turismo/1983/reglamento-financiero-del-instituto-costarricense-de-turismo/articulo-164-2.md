@@ -1,0 +1,1 @@
+Artículo 164.—Se exceptúa de este fondo la prohibición establecida por los artículos 138, inciso a) y 142, inciso a). Tampoco se requerirá en los pagos tramitados mediante este fondo, lo establecido por el artículo 139 de este reglamento, en cuanto a la autorización previa de Presupuesto.

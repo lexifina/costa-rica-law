@@ -1,0 +1,1 @@
+Artículo 88.—En caso de negociación fc deberá dar igual oportunidad a las firmas escogidas para tal efecto, de conocer las mejoras que cada una presente y de ofrecer las suyas propias. Logrado un cuadro definitivo de calificaciones y cotizaciones, se podrá proceder a adjudicar el concurso a la oferta que considere más conveniente. (Artículo 178 del Reglamento de Contratación)

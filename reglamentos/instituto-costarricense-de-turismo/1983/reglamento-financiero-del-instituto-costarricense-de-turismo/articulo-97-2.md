@@ -1,0 +1,1 @@
+Artículo 97.—Los artículos en desuso y los de desecho cuyo valor en libros o según peritaje, no excedan el límite fijado por el artículo 208 del Reglamento de Contratación, por unidad, podrán ser donados por la Institución a otros entes públicos, a cooperativas o a organismos de bien social o de interés comunal.

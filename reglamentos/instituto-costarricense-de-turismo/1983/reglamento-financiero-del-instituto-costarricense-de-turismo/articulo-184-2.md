@@ -1,0 +1,1 @@
+Artículo 184.—-Para los efectos de este fondo no se aplicará los procedimientos estipulados en el artículo 139 de este reglamento en cuanto a la autorización previa de presupuesto. La aprobación final de estas erogaciones estará a cargo del Director de Recreación, sin cuyo refrendo no ^se dará trámite a los reintegros correspondientes.

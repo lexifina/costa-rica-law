@@ -1,0 +1,2 @@
+Artículo 45.—Cuando se disponga promover una licitación privada, el ICT procurará invitar a cotizar a todos los interesados que figuren en la lista registro. Si el número de éstos fuere tan crecido que haga impráctico invitar a todos ellos, se tratará de dar oportunidades en futuras contrataciones a los no seleccionados en la anterior. Como mínimo se invitará a cotizar a 5 de ellos si los hubiere. (Art.
+164 Reglamento de Contratación).

@@ -1,0 +1,1 @@
+Artículo 94.—En caso de licitación infructuosa (si hay ofertas o no se logra el valor indicado), la base de venta podrá rebajarse hasta un 20% en un nuevo procedimiento de concurso, previa autorización de la Contraloría. (Artículo 26 del Reglamento de Contratación).

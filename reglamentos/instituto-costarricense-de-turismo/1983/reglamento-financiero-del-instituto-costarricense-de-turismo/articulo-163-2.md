@@ -1,0 +1,1 @@
+Artículo 163.—Para los efectos de este fondo, la autorización de los gastos la efectuará el Gerente Regional. El encargado de los fondos será solidariamente responsable ante sus superiores inmediatos de los gastos que autorice. Las liquidaciones de estos fondos serán refrendadas por el superior jerárquico del Gerente Regional.

@@ -1,0 +1,3 @@
+Artículo 63.—Cualquier modificación, prórroga al plazo para recibir las ofertas, aclaraciones e interpretaciones deben publicarse en "La Gaceta", a más tardas el día anterior a la fecha fijada para la presentación de las ofertas.
+Si una modificación introduce una alteración importante en la concepción original del objeto del concurso o lo sustituye, los nuevos plazos para recibir ofertas se extenderán conforme se indica en el artículo 62 anterior, a partir de la fecha de su publicación.
+Si la modificación no produce tal alteración el nuevo plazo no será menor de 15 días hábiles entre su publicación y el vencimiento para recibir ofertas. (Articulo 46 del Reglamento de Contratación).

@@ -1,0 +1,1 @@
+Artículo 35.—Durante el mes siguiente, la Auditoría procederá a efectuar una revisión, total o por muestreo, según lo determine el titular de esta Oficina, de los justificantes que amparan los cheques emitidos en el mes anterior, para comprobar que se ajusten en todo, a las disposiciones reglamentarias.

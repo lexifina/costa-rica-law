@@ -1,0 +1,1 @@
+Artículo 15.—En todo lo concerniente a contrataciones administrativas, la Proveeduría debe sujetarse a las disposiciones de este Reglamento, a las normas de la Ley Financiera y el Reglamento de Contratación, procurando en todo caso el mejor beneficio para la Institución en sus actuaciones.

@@ -1,0 +1,1 @@
+Artículo 135.—Todos los fondos que al amparo de este reglamento se est blezcan, operarán por el sistema de "fondo fijo", lo que requiere que en toe momento el encargado de los fondos tenga la suma total asignada, bien sea € dinero en efectivo, vales de caja chica oficiales o provisionales o solicitudes c reintegro en trámite.

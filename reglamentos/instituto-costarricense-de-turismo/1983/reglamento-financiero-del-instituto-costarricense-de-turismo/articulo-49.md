@@ -1,0 +1,1 @@
+Artículo 49.—La apertura de los sobres con las ofertas se realizará en la Proveeduría el día y a la hora señalados, en presencia de los interesados que tengan a bien asistir, un representante de la Auditoría, que firmará las ofertas y documentos adicionales a las mismas, pudiendo asistir otros funcionarios de las dependencias interesadas.

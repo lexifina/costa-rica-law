@@ -1,0 +1,1 @@
+Artículo 38.—El sistema se aplica a la compra de bienes y a la contratación de servicios, rigiéndose por disposiciones internas que otorgan a la Proveeduría la facultad de decidir el trámite que dará a las "solicitudes de materiales y servicios" formuladas, que no sobrepasen el límite a que hace referencia el artículo anterior.

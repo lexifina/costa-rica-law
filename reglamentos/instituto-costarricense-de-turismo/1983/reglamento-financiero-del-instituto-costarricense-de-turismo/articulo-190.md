@@ -1,0 +1,1 @@
+Artículo 190.—El cuidado y manejo de estos fondos estará a cargo del funcionario del Instituto encargado de su administración, quien será el responsable directo de su correcto manejo de acuerdo con las disposiciones de este reglamento.

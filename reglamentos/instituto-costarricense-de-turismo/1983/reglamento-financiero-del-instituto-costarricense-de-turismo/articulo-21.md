@@ -1,0 +1,1 @@
+Artículo 21.—La contratación de servicios profesionales y técnicos sin relación de subordinación jurídica laboral cuyo costo dentro de dos años calendario sea superior al límite fijado por el artículo 37 de este Reglamento, se ajustarán a los trámites previstos por el Capítulo XIV, "Del concurso de antecedentes".

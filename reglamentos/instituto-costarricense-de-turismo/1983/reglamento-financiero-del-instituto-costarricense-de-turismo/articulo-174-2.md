@@ -1,0 +1,1 @@
+Artículo 174.—El cuidado y manejo de estos fondos estará a cargo del funcionario del Instituto encargado de su administración, quien será el responsable directo de su correcto manejo de acuerdo a las disposiciones de este reglamento.

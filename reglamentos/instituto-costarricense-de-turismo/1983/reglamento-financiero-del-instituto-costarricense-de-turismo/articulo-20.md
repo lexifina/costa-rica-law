@@ -1,0 +1,1 @@
+Artículo 20.—Para las compras de bienes y servicios según el límite fijado por la Ley Financiera en su artículo 93, inciso a), se ajustará a los trámites previstos en el Capítulo XIII, "De la licitación pública".

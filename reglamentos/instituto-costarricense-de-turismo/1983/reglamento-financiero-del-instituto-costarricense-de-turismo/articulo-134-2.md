@@ -1,0 +1,2 @@
+CAPITULO XXIV Fondo de caja chica - Disposiciones generales
+Artículo 134.—Las disposiciones contenidas en el presente reglamento s' de carácter general y se aplicarán a los "fondos de caja chica", existentes o q en el futuro se establezcan con las excepciones que la Junta Directiva determi] para cada fondo, al dictar la reglamentación específica que se anexará con capítulo adicional a este reglamento.

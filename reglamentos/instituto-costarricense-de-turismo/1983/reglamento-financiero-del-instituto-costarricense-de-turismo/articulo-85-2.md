@@ -1,0 +1,1 @@
+Artículo 85.—Por su carácter de público, los actos importantes relacionados con ei concurso de antecedentes, deben publicarse en "La Gaceta", desde ía invitación a participar y sus condiciones hasta la resolución de adjudicación, incluyendo aclaraciones, ampliación de plazos para recibir ofertas, etc. (Artículo 175 del Reglamento de Contratación).

@@ -1,0 +1,3 @@
+CAPITULO VIII
+Del papel de la Auditoría en el proceso de contratación administrativa
+Artículo 26.—La Auditoría revisará la orden de compra verificando la correcta aplicación, a nivel institucional de las normas y procedimientos indicados por este Reglamento, la Ley Financiera y el Reglamento de Contratación en todo lo relativo al proceso de contratación, utilizando los medios y pruebas que estime convenientes y sustentándose en los refrendos de las demás unidades encargadas del trámite en cada una de sus fases aprobando u objetando la orden de compra respectiva.

@@ -1,0 +1,1 @@
+Artículo 169.—El impuesto se le reintegra al comprador del tiquete u orden de canje, con la cédula o pasaporte, pero cuando por razones especiales éste no pueda presentarse a gestionar el reembolso, podrá enviar con otra persona una autorización debidamente firmada y acompañada con la cédula de identidad o pasapotre tanto de él como del representante autorizado.

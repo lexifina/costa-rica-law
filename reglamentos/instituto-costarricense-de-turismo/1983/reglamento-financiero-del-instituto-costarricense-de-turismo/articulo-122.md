@@ -1,0 +1,1 @@
+Artículo 122.—La contabilidad contará con el decimonoveno día hábil para la recolección de ürma en los cheques. La caja separará el original y las copias conforme con los incisos a), b), y c) del artículo 116 de este reglamento y hará entrega de los cheques a partir del vigésimo día hábil.

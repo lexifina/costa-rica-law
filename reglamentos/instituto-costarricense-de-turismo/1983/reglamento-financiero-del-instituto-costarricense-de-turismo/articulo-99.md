@@ -1,0 +1,1 @@
+Artículo 99.—En los artículos 97 y 98 anteriores, cuando la negociación exceda el límite fijado por el artículo 213 del Reglamento de Contratación, es preciso obtener la autorización previa de la Contraloría.

@@ -1,0 +1,1 @@
+Artículo 19.—Para las compras de bienes y servicios inferiores al límite establecido por la Ley Financiera, en su artículo 93, inciso a), deberá de cumplirse con los trámites previstos por el capítulo XII "de la licitación privada".

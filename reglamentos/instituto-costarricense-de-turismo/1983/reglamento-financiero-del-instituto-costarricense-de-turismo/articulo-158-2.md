@@ -1,0 +1,1 @@
+Artículo 158.—Para los efectos de este fondo, la autorización de los gastos la efectuará el superior jerárquico del Delegado, quien refrendará la liquidación respectiva. El encargado de estos fondos será solidariamente responsable ante sus superiores inmediatos de los gastos que autorice.

@@ -1,0 +1,1 @@
+Artículo 107.—Todas las compras de artículos y materiales para existencia que hagan las distintas dependencias de la Institución, deberán ser canalizadas y estar bajo la custodia de la proveeduría, a fin de que se ordene su reposición, si es del caso.

@@ -1,0 +1,1 @@
+Artículo 89.—A juicio de la Administración y según la naturaleza del concurso, se podrán exigir garantías de participación y cumplimiento dentro de los límites y regulaciones que señalan los artículos 65 y 66 de este Reglamento. (Artículo 179 del Reglamento de Contratación).

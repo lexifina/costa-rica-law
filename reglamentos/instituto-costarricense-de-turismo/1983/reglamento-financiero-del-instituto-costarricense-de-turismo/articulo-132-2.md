@@ -1,0 +1,1 @@
+Artículo 132.—Se clasifican como "productos alimenticios" los aümel para consumo humano y animal además de bebidas no alcohólicas, para uso la institución, presentándose justificantes originales y detallados e indicándose destino que se les dará y su justificación.

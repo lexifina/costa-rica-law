@@ -1,0 +1,2 @@
+Artículo 81.—Para todos los efectos, la adjudicación quedará firme transcurridos los tres días hábiles posteriores al día en que se publica en '-La Gaceta'* el acuerdo respectivo sin que se haya piesentado recurso de apelación ante ia Coniraloría o de revocatoria ante ia Institución.
+Dentro de e¿os tres días, también se podría anular o revocar el acuerdo tomado por razones de oportunidad o legalidad por parte de la Institución. (Artículo 131 del Reglamento de Contratación).

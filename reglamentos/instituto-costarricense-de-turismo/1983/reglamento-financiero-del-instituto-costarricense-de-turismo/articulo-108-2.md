@@ -1,0 +1,1 @@
+Articulo 108.—Para retirar útiles o materiales de la existencia en proveeduría. la unidad solicitante deberá presentar una "requisición", cumpliendo con lo estipulado en los artículos 4. 12 y 13 de este Reglamento, si se entrega cualquier material contraviniendo estas disposiciones, el proveedor será responsable del valor de la entrega.

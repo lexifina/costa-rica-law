@@ -1,0 +1,1 @@
+Artículo 171.—La liquidación de los fondos de esta caja chica deberá hacerse el último día hábil de todos y cada uno de los meses o cada vez que se agote el 50% de los fondos asignados. Las liquidaciones de estos fondos serán refrendadas por el Director Financiero.

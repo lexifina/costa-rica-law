@@ -1,0 +1,1 @@
+Artículo 79.—Toda adjudicación de una licitación se hará a la persona física o jurídica que aparece en la oferta correspondiente. Ningún contrato, pedido u orden, ni interés alguno en los mismos podrá ser traspasado o cedido a terceros sin el consentimiento de la Gerencia.

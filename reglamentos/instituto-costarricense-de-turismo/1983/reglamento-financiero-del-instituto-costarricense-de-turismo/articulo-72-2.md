@@ -1,0 +1,1 @@
+Artículo 72.—Recibida formalmente una oferta, no podrá ser retirada. Si el oferente deseare dejarla sin efecto o introducirle alguna modificación, ésta podrá hacerse antes de su apertura siempre y cuando sea en beneficio de la institución. Deberá hacerse por escrito, en sobre cerrado, que se entregará a la Proveeduría y en el que se indicará la hora y fecha de recibo.

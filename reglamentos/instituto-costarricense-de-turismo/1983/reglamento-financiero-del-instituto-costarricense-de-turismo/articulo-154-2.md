@@ -1,0 +1,1 @@
+Artículo 154.—Se exceptúa de este fondo, cuando las circunstancias lo ameriten, la prohibición establecida por el artículo 138, incibo a). Tampoco se requerirá en los pagos tramitados con estos fondos, lo establecido por el artículo 139 de este reglamento, en cuanto a la autorización previa de Presupuesto.

@@ -1,0 +1,1 @@
+Artículo 152.—Únicamente podrá tramitarse mediante estos fondos, aquellas compras de bienes y servicios que no sobrepasen la suma de (p 500,00 (quinientos colones) quedando expresamente prohibido fraccionar compras mayores de ese monto.

@@ -1,0 +1,1 @@
+Artículo 167.—Únicamente podrá tramitarse mediante estos fondos, los reintegros del impuesto del 5% sobre pasajes internacionales no utilizados en su totalidad, que no sobrepasen la suma de ® 1.000,00 (mil colones) en cada caso, con la aprobación del jefe de ingresos.

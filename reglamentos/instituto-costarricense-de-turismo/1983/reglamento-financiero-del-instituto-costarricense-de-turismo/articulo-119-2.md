@@ -1,0 +1,1 @@
+Artículo 119.—Durante los días decimocuarto y decimoquinto hábiles, la Auditoría revisará los cálculos hechos por la Contabilidad. Si son aprobados los remitirá a la oficina mecanizada para su trámite y en caso contrario los devolverá a la Contabilidad con las objeciones respectivas para que sean subsanadas.

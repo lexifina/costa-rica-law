@@ -1,0 +1,1 @@
+Artículo 52.—Los participantes interesados que se sintiesen lesionados en sus derechos con la resolución de adjudicación podrán pedir revocatoria de ese acto dentro de los 3 días hábiles siguientes de la recepción de la respectiva notificación. (Art. 171 del Reglamento de Contratación).

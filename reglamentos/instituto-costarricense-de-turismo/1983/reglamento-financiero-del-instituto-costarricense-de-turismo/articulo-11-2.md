@@ -1,0 +1,1 @@
+Artículo 11.—La justificación de las compras que en cada caso se reouieran o el retiro de artículos de inventario permanente, serán de responsabilidad solidaria del funcionario que la recibe y el superior jerárquico que la autoriza, debiendo estar en disposición de justificar su uso o destino ante sus superiores jerárquicos o ante la Auditoría, cuando fuere requerido.

@@ -1,0 +1,4 @@
+Artículo 86.—El precio no constituye factor primordial para adjudicar un concurso de antecedentes. Sin embargo, al respecto, debe tenerse en cuenta lo siguiente:
+a) Cuando el precio y honorarios estuvieren regulados por aranceles legales con tarifa fija y obligatorios, se entenderá que los mismos regirán para las ofertas presentadas. (Artículo 176 del Reglamento de Contratación);
+b) Si estuvieren regulados por aranceles mínimos, regirá como precio u honorario el mínimo de ia tarifa correspondiente. (Artículo 176 del Reglamento de Contratación); y
+c) Cuando no existan aranceles legales obligatorios, los honorarios deberán cotizarse en sobre cerrado, independientemente de la propuesta de antecedentes. En este caso los sobres de honorarios serán abiertos en acto formal, previamente notificado a las firmas participantes y después de haber establecido el orden de excelencia de las ofertas de antecedentes. (Artículo 177 del Reglamento de Contratación).

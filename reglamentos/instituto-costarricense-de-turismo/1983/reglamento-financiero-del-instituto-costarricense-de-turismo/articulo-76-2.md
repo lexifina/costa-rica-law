@@ -1,0 +1,1 @@
+Artículo 76.—Los documentos relacionados con las licitaciones, deberán ser agrupados en archivos aeoidamente ciaaüicados, conjuntamente con los muestrarios de materiales, catálogos y demás relerencias. Estos archivos serán conservados por la Proveeduría.

@@ -1,0 +1,1 @@
+Artículo 105.—Para el debido control de estas existencias procederá a hacerse periódicamente por la Auditoría, un inventario físico de las existencias en bodega, por sistema de muestreo o pruebas selec4ivas. Los resultados obtenidos de estos inventarios se cotejarán con los datos de las tarjetas de Contabilidad.

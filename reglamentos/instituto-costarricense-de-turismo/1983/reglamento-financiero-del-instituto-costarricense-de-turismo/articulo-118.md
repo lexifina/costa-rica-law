@@ -1,0 +1,1 @@
+Artículo 118.—La Contabilidad con base en la información de horas extraordinarias trabajadas, órdenes de personal por pago de vacaciones o recargo de funciones, confeccionará los cálculos durante los días del decimoprimero al decimotercero hábiles.

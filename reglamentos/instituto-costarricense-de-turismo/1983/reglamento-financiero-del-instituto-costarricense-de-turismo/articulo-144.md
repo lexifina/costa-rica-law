@@ -1,0 +1,1 @@
+Artículo 144.—La liquidación de los fondos de caja chica deberá hacerse, por lo menos, el último día hábil del mes, en la fórmula editada al efecto, o cuando se hubiere gastado más del cincuenta por ciento de los fondos asignados.

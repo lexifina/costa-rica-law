@@ -1,0 +1,1 @@
+Artículo 6°—Para el trámite anterior, la unidad solicitante suministrará la información directamente en la fórmula "orden de compra", la que deberá ser firmada en el espacio "utilizar cuando no aplique solicitud" y debiendo obtenerse además las firmas indicadas en el artículo 29 de este Reglamento, presentándose directamente a Presupuesto para su trámite de rutina.

@@ -1,0 +1,1 @@
+Artículo 172.—Las disposiciones generales contenidas en los artículos 137, 138, 139, 140, 141 y 142 del presente reglamento, no son aplicables a este fondo. La liquidación de estos fondos la refrenderá el Director Financiero.

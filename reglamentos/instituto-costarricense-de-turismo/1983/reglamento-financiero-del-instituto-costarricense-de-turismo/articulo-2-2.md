@@ -1,0 +1,3 @@
+CAPITULO II
+De las "solicitudes de materiales y servicios" y las "requisiciones"
+Artículo 2°—Para la compra de bienes y contratación de servicios que requiera la Institución, salvo las excepciones que contempla el artículo 59, deberá confeccionarse la fórmula "solicitud de materiales y servicios", la cual es de uso obligatorio para todas las dependencias y en la que se indicará, además de las cantidades, características y especificaciones inherentes al bien o servicio solicitado, toda la información concerniente al uso, o destino que se le dará y demás detalles que la contratación demande, tanto por lo dispuesto en este Reglamento, como por las regulaciones establecidas en la Ley Financiera y el Reglamento de Contratación en cuanto sean aplicables.

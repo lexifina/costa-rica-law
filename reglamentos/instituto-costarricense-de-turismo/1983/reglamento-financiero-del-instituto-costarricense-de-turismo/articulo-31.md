@@ -1,0 +1,1 @@
+Artículo 31.—Los documentos referidos en el artículo anterior, una vez completado su trámite deberán ser sellados y fechados por la Proveeduría al momento de su recibo. Las facturas que no tengan membrete o sello del Proveedor, serán firmadas por el Director respectivo o el superior jerárquico que corresponda.

@@ -1,0 +1,1 @@
+Artículo 53.—La resolución a la solicitud de revocatoria deberá ser resuelta por la Gerencia dentro de los 10 días hábiles posteriores a la presentación del recurso y comunicado el fallo al recurrente (y al adjudicatario en el caso de ser declarado con lugar) dentro de los tres días hábiles siguientes. (Art. 171 del Reglamento de Contratación).

@@ -1,0 +1,1 @@
+Artículo 71.—Las ofertas, enmiendas, piezas o documentos conexos que no se hayan depositado en la Proveeduría antes de la hora señalada para la recepción de ofertas no podrán entrar en concurso, careciendo de valor en cuanto impliquen, modifiquen o dejen sin efecto responsabilidades, compromisos o condiciones de la oferta. (Artículo 112 del Reglamento de Contratación).

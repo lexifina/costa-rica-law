@@ -1,0 +1,2 @@
+Artículo 50.—La Proveeduría con la colaboración del jefe de la unidad solicitante, procederá a estudiar detenidamente las ofertas e indicará a la Gerencia cuál recomienda para su adjudicación.
+El acto de adjudicación será notificado en forma escrita por la Proveeduría a los concursantes, dentro de los quince días hábiles siguientes a la fecha fijada para recibir las ofertas. (Art. 170 del Reglamento de Contratación).

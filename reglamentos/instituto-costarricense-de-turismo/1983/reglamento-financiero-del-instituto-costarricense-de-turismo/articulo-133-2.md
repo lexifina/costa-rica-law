@@ -1,0 +1,1 @@
+Artículo 133.—Podrán realizar gastos descritos en el artículo 130. Pr< dente Ejecutivo o Gerente o bien por delegación expresa y escrita de ellos. cada caso, los de otros niveles. También podrán efectuar dichos gastos los d< gados de oficinas regionales en el exterior. Para los gastos indicados en artículo 131, se requerirá de acuerdo de Junta Directiva.

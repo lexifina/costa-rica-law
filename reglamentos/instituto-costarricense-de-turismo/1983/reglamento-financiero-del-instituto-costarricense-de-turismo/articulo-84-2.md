@@ -1,0 +1,1 @@
+Articulo 84.—Corresponderá a la unidad solicitante la elaboración de las bases del canel del concurso de antecedentes y a la Proveeduría su formato definitivo para ser sometido a la aprobación de la Gerencia.

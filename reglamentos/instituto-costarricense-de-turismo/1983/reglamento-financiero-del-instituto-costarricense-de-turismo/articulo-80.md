@@ -1,0 +1,1 @@
+Articulo 80.—Tanto en el acta de apertura como de la adjudicación, deberán estar presentes y refrendar su contenido, el representante de la Auditoria y el de la unidad solicitante que promovió la acción.

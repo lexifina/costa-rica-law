@@ -1,0 +1,1 @@
+Artículo 191.—Únicamente podrá tramitarse mediante estos fondos las compras que no sobrepasen la suma de c500,00 (quinientos colones).

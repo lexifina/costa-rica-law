@@ -1,0 +1,1 @@
+Artículo 58.—La Proveeduría prepara, con base en los delineamientos establecidos por este Reglamento, el cartel de la licitación que se promueve, asesorándose de los funcionarios que tengan relación directa con el objeto de la compra y lo presentará a consideración de la Gerencia para su aprobación.

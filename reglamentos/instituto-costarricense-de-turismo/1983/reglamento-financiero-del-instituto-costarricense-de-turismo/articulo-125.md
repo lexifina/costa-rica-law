@@ -1,0 +1,1 @@
+Artículo 125.—Para la realización de viajes fuera del territorio nacional, deberá cumplirse con los dictados de la Junta Directiva además de contarse con el previo permiso de salida de la Oficina de Planificación Nacional.

@@ -1,0 +1,1 @@
+Artículo 41.—La Proveeduría pondrá en conocimiento de la unidad solicitante las pruebas o muestras que reciba de los artículos que se han solicitado, así como las ofertas de cotización, para que sean analizadas por el jefe de ésta y conjuntamente con Proveeduría las estudien para efectuar la adjudicación respectiva.

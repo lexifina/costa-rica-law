@@ -1,0 +1,1 @@
+Artículo 110.—La Proveeduría debe preparar durante los tres últimos meses del año, una licitación para la adquisición de materiales y útiles de oficina de uso corriente para recibir mensual, trimestral o semestralmente según las necesidades de la Institución.

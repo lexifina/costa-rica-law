@@ -1,0 +1,2 @@
+Artículo 192.—Para los efectos de este fondo no se aplicará los procedimientos estipulados en el artículo 139 de este reglamento en cuanto a la autorización previa de presupuesto. La aprobación final de estas erogaciones estará a cargo del Director de Recreación, sin cuyo refrendo no se dará trámite a los reintegros correspondientes.
+Aprobado por Junta Directiva, en Sesiones Nº 3347 de 02 de febrero de 1983 y Nº 3358 de 23 de marzo de 1983.

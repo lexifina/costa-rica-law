@@ -1,0 +1,1 @@
+Artículo 127.—Cuando en los viajes que se realicen tanto dentro como fuera del país, el funcionario de la institución incurra en gastos de representación y/o de recepción, deberá sujetarse a las disposiciones contempladas en el Capítulo XXIII de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 121.—Durante el decimosétimo día hábil, la Contabilidad procederá a la revisión y protección de los cheques. La Auditoría contará con el decimoctavo día hábil para la revisión final de la planilla.

@@ -1,0 +1,1 @@
+Artículo 73.—Las ofertas extemporáneas podrán recibirse, pero no serán consideradas. Los sobres en que éstas vengan incluidas se conservarán cerrados, anotándose en ellos una razón exp icativa con la indicación precisa de la hora en que fueron recibidas; de todo lo cual se tomará noia.

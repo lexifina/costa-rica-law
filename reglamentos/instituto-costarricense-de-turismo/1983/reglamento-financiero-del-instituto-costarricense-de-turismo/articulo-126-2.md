@@ -1,0 +1,1 @@
+Artículo 126.—Los adelantos de gastos para viajes dentro o fuera del país. se harán en moneda nacional o extranjera, según corresponda, debiendo practicarse la liquidación en la misma moneda que se hizo el adelanto, los gastos dentro del país que impliquen los viajes en el exterior, se liquidarán en moneda nacional.

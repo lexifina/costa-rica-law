@@ -1,0 +1,1 @@
+Artículo 98.—Bienes de la misma naturaleza de mayor precio unitario, hasta el limite que fija el mismo artículo 208, podrán ser vendidos por la Institución a esas mismas entidades u organizaciones por la mitad de su valor.

@@ -1,0 +1,1 @@
+Artículo 136.—Los encargados de la custodia de los fondos asignados a cad caso en particular, responderán por el correcto manejo de los mismos ante su superiores inmediatos, así como ante la auditoría. Esta última, de acuerdo co lo establecido en el artículo 3º, inciso b) de la Ley Orgánica, realizará arqueo y verificaciones periódicas de estos fondos.

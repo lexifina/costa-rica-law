@@ -1,0 +1,1 @@
+Artículo 147.—El cuidado y manejo de estos fondos estará a cargo del cajero de la institución, quien será responsable directo de su correcto manejo en apego a las disposiciones generales del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 93.—El precio mínimo de los inmuebles propiedad del Instituto, será aquel fijado por un avalúo reciente de la oficina especializada de la Dirección General de la Tributación Directa. (Artículo 97 de la Ley Financiera).

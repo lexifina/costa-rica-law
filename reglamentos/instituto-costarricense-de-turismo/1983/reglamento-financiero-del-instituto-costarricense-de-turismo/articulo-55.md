@@ -1,0 +1,1 @@
+Artículo 55.—A criterio de la Administración se podrá exigir en las licitaciones privadas una garantía de cumplimiento del 1 al 5% sobre el monto adjudicado, de la manera en que lo regula el artículo 66 de este Reglamento.

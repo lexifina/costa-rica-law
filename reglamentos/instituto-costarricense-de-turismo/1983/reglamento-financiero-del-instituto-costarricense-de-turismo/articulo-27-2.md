@@ -1,0 +1,4 @@
+Artículo 27.—
+a) Las órdenes de compra refrendadas por la Auditoría serán enviadas a la Proveeduría para que inicien los trámites "de adquisición de los bienes o servicios y pago respectivos o a la Contabilidad las de trámite previsto en el capítulo III;
+b) Las órdenes de compra objetadas por incumplimiento de las disposiciones reglamentarias, errores u omisiones serán devueltas a la Proveeduría o a la unidad solicitante las de trámite previsto en el capítulo III, para las enmiendas del caso, de acuerdo con las indicaciones de Auditoría; y
+c) Para los casos en que la Administración no comparta el criterio de la Auditoría al devolver sin refrendo una orden de compra, se elevará a la consideración de la Presidencia Ejecutiva para su resolución en primera instancia. Si subsistiera la disparidad de criterio, se llevará a consideración de la Junta Directiva, quien resolverá en definitiva, sin perjuicio del trámite previsto por el artículo 89 de la Ley Financiera.
