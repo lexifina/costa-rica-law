@@ -100,7 +100,7 @@ Programa Ganadero de Salud Animal PROGASA (Así modificado por el artículo 1° 
 Programa Integral de Mercadeo Agropecuario | 1.458,7
 Proyecto Desarrollo Agrícola de Pen. Nicoya (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31264 de 23 de junio de 2003) | 530.9
 Proyecto Pequeños Productores Zona Norte MAG | 11,6
-Radiográfica Costarricense .S.A. | 4.152,9
+Radiográfica Costarricense .S.A. (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31281 de 02 de julio de 2003, publicado en La Gaceta N° 144 de 29 de julio de 2003.) | 4.652.9
 Refinadora Costarricense de Petróleo | 25.483,3
 Secret. Eject. De Planificación Sector Agropecuario | 22,3
 Servicio Nacional de Aguas Subterráneas Riego y A. | 1.501,4
