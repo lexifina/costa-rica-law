@@ -1,3 +1,2 @@
-Artículo 11.- Los Timbres Forenses serán impresos por cuenta del
-Estado, pudiendo usarse los fiscales de cualquier año, con el resello
-respectivo.
+Artículo 11.- DEROGADO por el inciso u) del artículo 31 de la Ley N° 8114,
+Ley de simplificación y Eficiencia Tributarias de 4 de julio del 2001.
