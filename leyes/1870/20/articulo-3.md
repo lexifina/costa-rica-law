@@ -1,0 +1,3 @@
+Art 3° Cada Sala tendrá un Presidente nombrado por ella. - El Presidente de la 1° Sala lo será de la Corte Plena en los casos que funcione como tal conforme a la ley.
+1° Tendrá también cada Sala un Secretario y tres Escribientes, y un Oficial notificador y un Portero para todas tres Salas. El Secretario de la 1° Sala funcionará como Secretario de la Corte Plena, reemplazándole en sus faltas los otros dos Secretarios por su orden.
+2° Las atribuciones especiales fijadas al Regente de la Corte y al Secretario de la Sala de Súplica, por las leyes anteriores, las ejercerán respectivamente el Presidente y el Secretario de la 1° Sala del Tribunal que organiza este decreto.

@@ -1,0 +1,1 @@
+Art 8° La Corte Suprema de Justicia, una vez que se halle constituida, procederá en Sala Plena a hacer los nombramientos de Jueces de 1° Instancia referidos, de los Secretarios y demás empleados subalternos de aquello oficina, dando cuenta al Jefe del Gobierno provisorio.
