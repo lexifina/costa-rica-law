@@ -14,3 +14,4 @@ Fíjase Contribución Obligatoria Financiamiento Promotora Comercio Exterior (PR
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-11-13 | la propia norma |
+| 2 | 2001-08-31 | Decreto Ejecutivo 29799 (2001-08-31) |

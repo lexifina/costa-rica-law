@@ -1,0 +1,2 @@
+Artículo 5º—Modificación del Techo Industrial. Las empresas que operan bajo el régimen de zonas francas clasificadas como procesadoras de exportación, en lo que a techo industrial se refiere, están obligadas a comunicar inmediatamente a PROCOMER cualquier tipo de modificación que se haga al mismo, a efecto de proceder con la verificación correspondiente.
+(Así adicionado el artículo anterior por el artículo 3° del decreto ejecutivo N° 29799 de 31 de agosto de 2001).
