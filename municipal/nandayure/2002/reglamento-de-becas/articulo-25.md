@@ -1,0 +1,1 @@
+Artículo 25.—El solicitante una vez notificado por el Concejo de Distrito que el Concejo Municipal le ha otorgado la aprobación definitiva a la beca que fue solicitada, éste formalizará junto con su padre o encargado un documento donde conste su derecho y obligaciones, que aseguren la correcta aplicación de dicha beca.

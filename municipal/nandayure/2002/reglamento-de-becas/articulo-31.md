@@ -1,0 +1,1 @@
+Artículo 31.—Se crea el fondo de becas, cuyos recursos económicos serán a cargo del presupuesto ordinario municipal y de haber algún remanente del año anterior se incluiría dentro del presupuesto ordinario del año siguiente, donaciones de instituciones públicas y privadas.

@@ -1,0 +1,1 @@
+Artículo 22.—Si un beneficiario no retira la beca en dos meses consecutivos, automáticamente el Concejo de Distrito solicitará al Concejo Municipal su cancelación habida comprobación y ratificación al Concejo de Distrito para que éste tome la decisión correspondiente

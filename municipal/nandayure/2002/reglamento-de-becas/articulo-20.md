@@ -1,0 +1,1 @@
+Artículo 20.—Perderá el derecho de subsidio de beca el estudiante que no concluyese satisfactoriamente sus estudios y que se le comprobase que dejó de asistir al curso lectivo, para lo cual se solicitará al Liceo o Colegio la respectiva información.

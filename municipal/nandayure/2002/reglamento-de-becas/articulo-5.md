@@ -1,0 +1,1 @@
+Artículo 5º—La Municipalidad de Nandayure incluirá anualmente en su presupuesto ordinario una partida para dar contenido a la ayuda económica para becas de estudio. Dichos recursos se manejarán de conformidad con lo dispuesto por el artículo 31 del presente Reglamento.

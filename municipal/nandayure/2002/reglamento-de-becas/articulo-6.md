@@ -1,0 +1,1 @@
+Artículo 6º—El Concejo Municipal deberá establecer, a más tardar en la primera sesión ordinaria del mes de agosto de cada año, el monto de la ayuda económica de las becas municipales; aplicable para el ejercicio fiscal del año siguiente.

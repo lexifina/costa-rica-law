@@ -1,0 +1,3 @@
+Artículo 18.—Los Concejos de Distrito deben revisar periódicamente los montos asignados y de acuerdo con el análisis de la situación económica de los becados, recomendar un incremento o una disminución de dicho monto. En el caso de que amerite un incremento, debe determinar si el mismo será por el resto de la vigencia de la beca o si será un auxilio temporal.
+El auxilio temporal citado también podrá ser otorgado a estudiantes que no se encuentren becados, siempre que se demuestre fehacientemente el motivo que fomenta la solicitud.
+En ambos casos, el auxilio temporal cesará en el momento mismo en que el motivo que le dio origen desaparezca.

@@ -1,0 +1,1 @@
+Artículo 12.—El Concejo de Distrito se reunirá para analizar las solicitudes y procederá minuciosamente a hacer la adjudicación preliminar. Dicha adjudicación deberá llevarse a cabo en el plazo improrrogable de diez días hábiles, contados a partir del día siguiente a aquel en que concluyó la recepción de solicitudes.

@@ -1,0 +1,1 @@
+Artículo 27.—Para pedir revocación de una beca o apelación ante el concejo de Distrito, el interesado debe presentar la misma por escrito dentro del plazo establecido en el artículo 14 del presente reglamento.

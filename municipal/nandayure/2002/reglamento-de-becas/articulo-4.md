@@ -1,0 +1,1 @@
+Artículo 4º—Se entiende por beca para estudios en el país una pequeña ayuda económica que esta Municipalidad dará a los alumnos que clasifiquen según los requisitos establecidos. En los casos en que dos o más alumnos pertenezcan a la misma familia, se le otorgará la beca a aquel cuyas calificaciones sean más altas.

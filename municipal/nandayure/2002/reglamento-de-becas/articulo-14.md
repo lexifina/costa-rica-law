@@ -1,0 +1,1 @@
+Artículo 14.—Efectuada la adjudicación preliminar, el Concejo de Distrito, comunicará por escrito los resultados a todos los solicitantes dándole audiencia por 15 días hábiles para cualquier reclamo u observación, lo cual deberá efectuarse por escrito. El Concejo de Distrito deberá resolver los reclamos o observaciones en el plazo improrrogable de cinco días hábiles.
