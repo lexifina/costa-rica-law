@@ -1,0 +1,1 @@
+Art. 2°. -Por falta absoluta o accidental, y también por ausencia o impedimento del Jefe, suplir en sus funciones interinamente el Presidente del Senado; y en defecto de este, el Senador que suceda en el orden de su nombramiento.

@@ -1,0 +1,1 @@
+Art. 7°. -Para el despacho de los negocios habrá dos Ministerios, el de Gobernación y Relaciones interiores y exteriores, y del de Hacienda y guerra, con atribuciones en la marina en lo que corresponda al Estado.

@@ -1,0 +1,1 @@
+Art. 11.-Quede reformado el reglamento de 23 de Setiembre de 1831, y se observarán las demás disposiciones que no se hayan alterado por la presente ley o por la Constitución, entendiéndose para la Cámara de Representantes y la de Senadores, lo que en aquel Reglamento se refería a la Asamblea de Diputados y al Consejo Representativo. -Por tanto: ejecútese."
