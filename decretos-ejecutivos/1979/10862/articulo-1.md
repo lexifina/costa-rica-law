@@ -1,4 +1,6 @@
+(Derogado)
 N° 10862-G
+(Este decreto fue derogado por el artículo 115 del decreto ejecutivo No. 19422 de 16 de noviembre de 1989).
 RODRIGO CARAZO ODIO
 PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE GOBERNACIÓN Y POLICÍA,
