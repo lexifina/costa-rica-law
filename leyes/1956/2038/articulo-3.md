@@ -1,0 +1,1 @@
+Artículo 3º.- Esta ley estará en vigencia durante todo el tiempo a que se refiere el artículo 1º. En caso de que, antes de transcurrido dicho plazo, fuere derogada, o que se modifique restringiendo sus beneficios, dará lugar a reclamar los daños y perjuicios que la nueva situación pueda ocasionar a los interesados.

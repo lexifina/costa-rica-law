@@ -1,0 +1,1 @@
+Artículo 4º.- Cualesquiera ventajas existentes o modificaciones futuras a las contrataciones celebradas con la Compañía Bananera de Costa Rica, o con la Chiriquí Land Cº o con sus afiliadas, relacionadas con exenciones aduaneras e impuesto de la fruta que beneficien a las citadas empresas, se tendrán como incorporadas a la presente ley.
