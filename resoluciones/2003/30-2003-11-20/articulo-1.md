@@ -1,0 +1,14 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+DGT-30.—San José, a las ocho horas del veinte de noviembre del dos mil tres.
+Considerando:
+1º—Que el artículo 105 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaría para dictar normas generales tendentes a la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+2º—Que mediante resoluciones emitidas al efecto, la Dirección General, con base en la facultad otorgada por los artículos 11 de la Ley del Impuesto General sobre las Ventas y 26 de su Reglamento, ha establecido la recaudación del impuesto a nivel de fábrica o aduana sobre el precio de venta al consumidor final para varias mercancías.
+3º—Que se ha logrado detectar, que en varias de esas resoluciones se ha indicado que, en el caso de que las personas que se dediquen a la intermediación de los productos sobre los cuales se recauda el impuesto a nivel de fábrica o aduana, se encuentren inscritos como contribuyentes del impuesto general sobre las ventas, en razón de otras actividades, no deberán incluir en sus declaraciones mensuales las ventas de esos productos.
+4º—Que para determinar el factor de retención que establece el artículo 15 bis de la Ley del Impuesto General sobre las Ventas, Ley Nº 6826, de 8 de noviembre de 1982, y sus reformas, la Administración Tributaria necesita tanto la información de las ventas sujetas como de las no sujetas al impuesto sobre las ventas.
+5º—Que es de vital importancia para la Administración Tributaria contar con toda la información de las ventas efectuadas por los contribuyentes del impuesto general sobre las ventas, incluso de las ventas de mercancías que se encuentren gravadas a nivel de fábrica o aduanas.
+Por tanto:
+RESUELVE:
+1º—Las personas que comercialicen mercancías exentas o no sujetas al impuesto general sobre las ventas, así como bienes sobre los cuales se haya establecido la recaudación del impuesto de ventas a nivel de fábrica o aduana, que se encuentren inscritos como contribuyentes del impuesto general sobre las ventas, en razón de que venden mercancías gravadas, deberán incluir en sus declaraciones las ventas de los bienes citados. Para ello, deberán utilizar la casilla Nº 21, denominada "Ventas exentas y autorizadas sin impuesto", del formulario D-104 "Declaración Jurada del Impuesto General sobre las Ventas".
+2º—Es obligación del contribuyente del impuesto sobre las ventas reportar la totalidad de sus ventas, se encuentren o no sujetas al impuesto sobre las ventas, utilizando para ello las casillas que al efecto posee el formulario D-104 "Declaración Jurada del Impuesto General sobre las Ventas".
+3º—Se deroga toda disposición que se oponga o regule de forma distinta a lo establecido en esta resolución.
+4º—Esta resolución rige a partir del 1º de enero del 2004.
