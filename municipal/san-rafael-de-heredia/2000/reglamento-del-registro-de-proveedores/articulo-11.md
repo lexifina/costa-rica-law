@@ -1,0 +1,1 @@
+Artículo 11.—En caso de que la solicitud presente defectos o deficiencias, el solicitante tendrá un plazo máximo de cinco días hábiles para que los subsane. Vencido ese plazo, se tendrá por rechazada la inscripción solicitada.
