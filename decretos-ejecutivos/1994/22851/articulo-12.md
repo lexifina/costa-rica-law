@@ -1,0 +1,3 @@
+Artículo 12.—Al realizarse las pruebas prácticas, en el vehículo únicamente podrán viajar el conductor y el examinador, teniendo este último la potestad paratomar aquellas medidas que sean necesarias para evitar cualquier accidente.
+Si fuere del caso, podrá requerir el auxilio de los funcionarios y oficiales de la Dirección General de la Policía de Tránsito o de la Fuerza Pública.
+Asimismo, el examinador tendrá la obligación de efectuar una revisión preliminar del vehículo, con el propósito de verificar el estado de sus frenos, sistemas de dirección y suspensión, espejos reglamentarios, luces de freno, indicador de velocidad en buen estado (aspirómetro) y la visibilidad óptima del vehículo desde la cabina.

@@ -1,0 +1,3 @@
+Artículo 11 .—La licencia tipo D-3 autoriza para conducir maquinaria tal como grúas, motoniveladoras, montacargas, dragas, compactadores, mototraillas, distribuidoras de asfalto y equipo similar, distinto de los tractores de llanta (Licencia tipo D-l) y de los tractores de oruga (Licencia tipo D-2).
+Corresponderá a la Dirección General de Educación Vial determinar el tipo de vehículo idóneo para la realización de la prueba correspondiente.
+No obstante lo anterior, en el caso de los vehículos destinados al servicio de grúa, deberá realizarse el examen práctico con un vehículo de ese tipo, debidamente acoplado.

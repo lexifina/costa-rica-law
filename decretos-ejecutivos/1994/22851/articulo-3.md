@@ -1,0 +1,1 @@
+Artículo 3°—Para los efectos correspondientes, se establece como disposición general que deberá existir una estricta correspondencia entre el tipo de vehículo a utilizar en la realización del examen práctico, y la clase de licencia que se aspira a obtener.

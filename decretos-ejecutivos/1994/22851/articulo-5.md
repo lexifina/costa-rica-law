@@ -1,0 +1,1 @@
+Artículo 5°—Aquellas bicimotos y motocicletas, de cualquier tipo, que no estuvieren dotadas de fábrica con luces direccionales, podrán válidamente ser utilizadas para la realización de las pruebas prácticas. Sin embargo, deberán portar en buen estado de funcionamiento las restantes luces.

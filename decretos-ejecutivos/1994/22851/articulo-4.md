@@ -1,0 +1,1 @@
+Artículo 4°—Las bicimotos y motocicletas a utilizar para la obtención de las licencias tipo A, además de estar equipadas con todos los requisitos mecánicos y de seguridad dispuestos por las leyes vigentes, deberán ser de dos ruedas y estar comprendidas dentro de la cilindrada a que se refiere el artículo 68 de la Ley de Tránsito por Vías Públicas Terrestres, No 7331.

@@ -1,0 +1,1 @@
+Artículo 7°—En los casos en que se pretenda obtener licencia B-2 o B-3, no se admitirán vehículos que no porten las placas respectivas con las iniciales CL (carga liviana) o C (carga pesada), según corresponda, debidamente ubicadas y que concuerden con el marchamo y la tarjeta de circulación.
