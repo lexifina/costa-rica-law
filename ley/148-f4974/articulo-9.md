@@ -1,0 +1,1 @@
+9°.- Quando vacase dentro del año algun destino Municipal se repondrá por la Junta electoral de Parroquia respectiva, eligiéndose un individuo para el propio destino vacante, y si la elección recayese en uno de los otros Municipes repondrá en este acto.

@@ -1,0 +1,1 @@
+5°.- El tercer Domingo de Diciembre deberán reunirse los electores parroquiales de cada Pueblo en junta presidida por la misma Autoridad Política y nombrando dos Escrutadores y un Secretario de su seno elegirán uno a uno los Municipes que deberán posecinarse y las de Parroquia conocerán en el mismo acto y resolverán en las nulidades por cohecho o soborno que se reclamen.

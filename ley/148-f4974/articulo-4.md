@@ -1,0 +1,1 @@
+Art 4°.- Los electores primarios se reunirán presididos por la Autoridad Política del lugar el segundo Domingo de diciembre y nombrado dos Escrutadores y un Secretario de su seno para el acto, elegirán dos electores parroquiales por cada Municipe de los que correspondan á aquel Pueblo que podrán ser de dentro o fuera de la Junta.
