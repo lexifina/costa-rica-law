@@ -1,0 +1,2 @@
+Artículo 6°-Los recursos asignados por el Estado, según el artículo 19 de la ley N° 3859, reformado por ley N° 4890, se distribuirán en forma tal que a cada Asociación Integral se le asigne el doble que a cada Asociación Específica. A cada Unión Cantonal o Zonal el doble que a cada Asociación de Desarrollo Integral.
+A cada Federación Regional o Provincial el doble que a cada Unión Cantonal o Zonal. A la Confederación Nacional, el doble que a cada Federación Regional o Provincial.

@@ -1,0 +1,1 @@
+Artículo 23.-Caso de disolución de una organización, DINADECO nombrará un liquidador y lo informará al Banco. Los fondos que le correspondan de acuerdo con la ley se utilizarán para cancelar las deudas pendientes al hacer la liquidación final dándose prioridad a las deudas contraídas con el Banco y con el Fondo de Garantía. Para estos efectos DINADECO girará dichos pagos.

@@ -1,0 +1,2 @@
+Artículo 5°-Tendrán derecho a recibir fondos las organizaciones constituidas inscritas debidamente en el Registro Nacional de Asociaciones de Desarrollo de la Comunidad que tengan su personería jurídica vigente.
+Estos fondos no se girarán hasta que las organizaciones hayan presentado el plan de trabajo y los informes que determine la ley N° 3859 del 7 de abril de 1967 y su Reglamento. La Fecha tope de presentación de este documento será fijada por el Departamento de Economía Comunitaria de DINADECO.

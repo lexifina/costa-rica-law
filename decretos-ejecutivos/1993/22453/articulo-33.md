@@ -1,0 +1,1 @@
+Artículo 33.-Cada amortización en las operaciones garantizadas por el Fondo, libera a este en una proporción igual al porcentaje avalado. Para estos efectos los cálculos y reintegros al Fondo de Garantía se harán anualmente.

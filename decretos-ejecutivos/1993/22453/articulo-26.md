@@ -1,0 +1,3 @@
+Artículo 26.-En todos aquellos casos de operaciones de crédito que se encuentren garantizados con el 100% del Fondo de Garantía y A vales, serán formalizadas por la totalidad del monto sin necesidad de otra garantía.
+En el caso de morosidad manifiesta y agotadas las gestiones de cobro de acuerdo al orden de prioridades señalado en el artículo 24 de este reglamento. El Fondo de Garantía cubrirá el principal más los intereses de mora. En estos casos no procede el cobro judicial.
+El fondo de garantía se resarcirá posteriormente con las partidas siguientes que se giren a la Asociación, hasta la extinción de la deuda, que incluirá un 10% suplementario al monto aplicado por el Banco y asumido por el Fondo de Garantía.

@@ -1,0 +1,1 @@
+Artículo 22.-EI Banco y DINADECO podrán, supervisar el uso de los recursos garantizados con el Fondo de Garantía, a fin de que se inviertan en lo estipulado en el Plan de Inversión presentado y según lo aprobado por el Banco y el Consejo.
