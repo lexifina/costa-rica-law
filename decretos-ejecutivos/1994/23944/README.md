@@ -14,3 +14,4 @@ Reforma e Integra Comisión Nacional Rescate Valores Morales Cívicos y Religios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-02-03 | la propia norma |
+| 2 | 1995-02-03 | SINALEVI (sin norma nombrada) |
