@@ -30,7 +30,7 @@ Farmacopea: Conjunto o colección de normas sobre principios activos, productos 
 FDA: Administración de Drogas y Alimentos de los Estados Unidos.
 Forma farmacéutica: Forma dosificada en la cual se expende el producto farmacéutico terminado.
 Formulario Será el formulario dado por la Dirección de Registros y Controles para la inscripción de medicamentos.
-Importación paralela de medicamentos: Es la importación de medicamentos registrados en la Dirección
+Importación paralela de medicamentos: Es la importación de medicamentos registrados en la Dirección.
 (Así adicionado el término anterior por artículo 1° del Decreto Ejecutivo No. 28596 de 22 de marzo de 2000).
 Importador: Persona física o jurídica que se dedica a la importación de medicamentos y cosméticos medicados o materias primas para la elaboración de los mismos.
 Laboratorios certificados: son aquellos laboratorios farmacéuticos cuyas Buenas Prácticas de Manufactura son certificadas por el FDA o por las autoridades sanitarias de Costa Rica, u otro organismo reconocido por el Ministerio.
@@ -68,8 +68,8 @@ Ministro: Ministro de Salud.
 Muestra: Parte de la porción finita representativa de un lote de producción o de una cantidad de medicamento almacenada, transportada o en uso que se somete a análisis a efectos de verificar las características de calidad o su adecuación para el uso, ya sea para registro o control.
 Muestras médicas: Las unidades o ejemplares de un medicamento que se facilitan gratuitamente a profesionales médicos, odontólogos y veterinarios para su promoción.
 Normas farmacológicas: Son el conjunto de reglas farmacológicas oficialmente establecidas o aprobadas por el Consejo, siguiendo criterios técnicos señalados por la Dirección, que rigen la inscripción de productos y que deben ser adecuadamente divulgados.
-País de origen: Es el país donde se fabrica el producto. En el caso de fabricación por terceros o entre filiales puede ser también el país donde se localiza el dueño o representante de la comercialización del producto.
-(Así adicionado por el artículo 2 del decreto ejecutivo N° 30446 de18 de abril del 2002)
+País de origen: Es el país donde se fabrica el producto. En el caso de fabricación por terceros o entre filiales puede ser también el país donde se localiza el dueño o responsable de la comercialización del producto.
+(Así adicionado por el artículo 2 del decreto ejecutivo N° 30446 de18 de abril del 2002, y posteriormente reformado por el artículo 1 del decreto ejecutivo N 30875 de 23 de octubre dEL 2002))
 País de procedencia: Es el país desde donde se distribuye o exporta el producto si interviene en el proceso de fabricación.
 (Así adicionado por el artículo 2 del decreto ejecutivo N° 30446 de18 de abril del 2002)
 Planta farmacéutica: Lugar específico donde se lleve a cabo la fabricación o manufactura secundaria.
