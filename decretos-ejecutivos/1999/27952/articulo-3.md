@@ -1,0 +1,1 @@
+Artículo 3º—Los miembros del Consejo deberán ser juramentados por el Presidente de la República previo al inicio de sus funciones, comprometiéndose a cumplir con eficiencia y responsabilidad las obligaciones necesarias para lograr sus objetivos.
