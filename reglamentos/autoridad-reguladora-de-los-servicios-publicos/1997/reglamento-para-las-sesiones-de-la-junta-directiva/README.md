@@ -14,3 +14,4 @@ Reglamento para las Sesiones de la Junta Directiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-02-27 | la propia norma |
+| 2 | 2001-03-21 | Reglamento 240 (2001-03-21) |
