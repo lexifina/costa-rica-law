@@ -14,5 +14,6 @@ proveedores.
 f) Copia de la escritura social, cuando corresponda.
 g) Estimación de las ventas para los próximos dos años, en caso de
 empresas nuevas o en formación.
-La Administración Tributaria notificará al interesado al
-inscripción, su vigencia y el número asignado.
+La Administración Tributaria notificará al sujeto pasivo las inscripciones que se realicen de oficio conforme se establece en el artículo anterior.
+Las inscripciones realizadas por actuación propia del interesado no requerirán de notificación; el sujeto pasivo será responsable por la veracidad y exactitud de la información contenida en la solicitud presentada.
+(Así reformado por Decreto Ejecutivo N° 31018 de 10 de enero de 2003).
