@@ -1,0 +1,1 @@
+Artículo 10.—Liquidación de avales. El banco público que otorgó un crédito avalado con recursos del fondo de garantía, deberá demostrar la debida diligencia en las gestiones de cobro judicial, siendo que, para poder liquidar el aval, será requisito indispensable la liquidación aprobada por la autoridad judicial competente donde se esté tramitando el cobro judicial.
