@@ -1,0 +1,1 @@
+Artículo 10.—Una vez aprobada la solicitud por el Comité de Admisión y la Junta Directiva del Colegio de Contadores Públicos, previo al Acto Formal de Incorporación, deberá asistir al Seminario de Etica Profesional que se imparte a los nuevos Colegiados.

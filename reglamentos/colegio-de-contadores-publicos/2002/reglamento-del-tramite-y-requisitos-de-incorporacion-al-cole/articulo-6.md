@@ -1,0 +1,1 @@
+Artículo 6º—Los defectos formales de las solicitudes serán señalados y subsanados conforme lo indica la Ley Nº 8220. La prevención la hará el órgano al cual la Junta encargue la tramitación y en el lugar señalado para notificaciones. Cuando se considere insuficiente la prueba de la experiencia, se prevendrá la prueba debida.

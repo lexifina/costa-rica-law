@@ -1,0 +1,1 @@
+Artículo 4º—Es entendido que toda solicitud se hace jurando que son ciertos los datos y los documentos presentados. Serán absolutamente nulas las solicitudes que incurran en falsedades y las admisiones acordadas con base en ellas y se procederá a rechazar la solicitud.
