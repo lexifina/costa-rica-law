@@ -1,0 +1,1 @@
+Art. 5° Este decreto se comunicará á todos los Gobiernos de los Estados para que lo secunden si lo tuvieren á bien, esperándose en todo caso la reciprocidad. –Dado en la Ciudad de San José a veinte de Junio de mil ochocientos cuarenta y cuatro. –Francisco María Oreamuno. –Al Ministro de Hacienda y Guerra.”
