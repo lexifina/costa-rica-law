@@ -1,0 +1,9 @@
+AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+La Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, con fundamento en los artículos 45 y 53, inciso m) de la Ley Nº 7593 del 9 de agosto de 1996, artículo 59 de la Ley General de la Administración Pública del 2 de mayo de 1978 y sus reformas, artículo 2º del Decreto Ejecutivo Nº 29732-MP del 16 de agosto del 2001 que es el Reglamento a la Ley Nº 7593
+Considerando:
+1º—Que el Reglamento Autónomo de Organización de la Autoridad Reguladora de los Servicios Públicos, es el marco jurídico por el cual la Institución debe cumplir las diversas funciones de los servicios que regula y los que presta.
+2º—Que la Autoridad Reguladora ha hecho un intenso proceso de revisión institucional, en perspectiva de lograr una transformación integral encaminada a la modernización, tanto de su estructura y sus prácticas de trabajo, como del sistema de regulación de los servicios públicos.
+3º—Que es necesario una racionalización y modernización de la organización, para producir decisiones regulatorias de un nivel de calidad comparable en las mejores prácticas internacionales.
+4º—Que en la sesión ordinaria 278-2001 del 19 de diciembre del 2001, se aprobó la separación de la Secretaría de Desarrollo, las funciones referentes a apoyo informático y, en la sesión ordinaria 004-2002 del 29 de enero del 2002 las reformas al Reglamento Autónomo de Organización de la Autoridad Reguladora de los Servicios Públicos. Por tanto,
+DECRETA:
+1º—Refórmanse el Capítulo VIII De la Secretaria de Desarrollo, artículo 10; el Capítulo XIV de la Dirección Administrativa Financiera, Sección Primera de las Funciones y la Organización de la Dirección Administrativa Financiera, artículos 16 y 17; la Sección Cuarta de las Funciones del Departamento de Servicios Generales, artículo 20 del Reglamento Autónomo de Organización de la Autoridad Reguladora de los Servicios Públicos.
