@@ -14,3 +14,4 @@ Reglamento del Mercado Municipal de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-11-10 | la propia norma |
+| 2 | 1997-07-28 | Reglamento municipal 423 (1997-07-28) |
