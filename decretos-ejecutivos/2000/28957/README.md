@@ -14,3 +14,4 @@ Modifica Gasto Presupuestario Junta Administrativa Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-03 | la propia norma |
+| 2 | 2000-11-17 | Decreto Ejecutivo 29125 (2000-11-17) |

@@ -11,3 +11,4 @@ Considerando:
 6º—Que por lo anterior, resulta necesario ampliar a la Junta Administrativa del Registro Nacional el límite de gasto establecido en el decreto ejecutivo Nº 28639-H. Por tanto,
 Decretan:
 Artículo 1º—Modifíquese el artículo 1º del decreto ejecutivo Nº 28639-H, para fijar en ¢2.520,3 millones el límite de gasto presupuestario y efectivo de la Junta Administrativa del Registro Nacional para el año 2001.
+(Modificado Gasto Presupuestario y Efectivo para la Junta Adinistrativa del registro Nacional, mediante DE-29125 del 17 de noviembre del 2000)
