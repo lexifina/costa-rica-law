@@ -1,0 +1,2 @@
+Artículo 7º.- Los beneficios de esta ley también cubren a los costarricenses pensionados o jubilados por instituciones o gobiernos de otros países y a los que no teniendo ese carácter, comprueben disfrutar de rentas en las condiciones que establece el artículo 2º anterior y que hayan residido permanentemente no menos de diez años en el exterior.
+Los extranjeros residentes en el país, que adquieran la condición de pensionados jubilados podrán obtener los beneficios de esta ley.
