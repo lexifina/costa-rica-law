@@ -1,1 +1,0 @@
-Artículo 6°- La Contabilidad Nacional acreditará en cuentas separadas al Ferrocarril de Guanacaste y a la Carretera de San Carlos, la parte de la renta de destace de ganado vacuno que perciba en la provincia y cantón dichos, y corresponda al Tesoro Público.
