@@ -1,1 +1,0 @@
-Artículo 34.—La persona a quien se comprobare que al amparo de la presente ley ha aprovechado el tote denunciado, únicamente para explotar las maderas, sin que esta explotación obedezca a los demás fines de esta ley, será castigado como defraudador con las consiguientes responsabilidades civiles y penales.
