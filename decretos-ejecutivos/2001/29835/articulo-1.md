@@ -1,0 +1,15 @@
+PODER EJECUTIVO
+DECRETOS
+Nº 29835-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los incisos 3) y 18) del numeral 140 de la Constitución Política, los artículos 26 y 27 de la Ley General de la Administración Pública, las Leyes Nº 7554 del 4 de octubre de 1995, Nº 7174 del 28 de junio de 1990, Nº 7575 del 16 de abril de 1996, los Decretos Ejecutivos Nº 24652-MIRENEM del 20 de setiembre de 1995 y Nº 25721-MINAE.
+Considerando:
+1º—Que según lo dispuesto en la Ley Orgánica del Ambiente Nº 7554 y en la Ley Forestal Nº 7575, le corresponde al Estado costarricense a través del Ministerio del Ambiente y Energía (MINAE), velar por la conservación, protección y administración de los bosques naturales y por la producción, aprovechamiento, industrialización y fomento de los recursos forestales del país destinados a ese fin en el marco del uso adecuado y sostenible de los recursos naturales.
+2º—Que mediante artículo 20 de la Ley Forestal Nº 7174 y 42 de la Ley Forestal Nº 7575, se establece un impuesto general forestal y se precisa su cálculo y metodología de cobro, el cual constituye una de las fuentes de financiamiento del Fondo Forestal, según la distribución de tales ingresos que prevén las citadas leyes.
+3º—Que de conformidad con el oficio PGR-588-98 del 4 de diciembre de 1998, la Procuraduría General de la República señala que la base imponible del impuesto forestal al amparo de las Leyes Nº 7174 y Nº 7575 no estaba bien determinada, por lo que, si no hay base imponible no hay obligación y por ende no hay tributo, por lo que el Estado costarricense se encuentra en obligación de devolver los ingresos recaudados por concepto del citado gravamen.
+4º—Que el Fondo Forestal requiere presupuestar recursos adicionales para financiar la devolución de montos indebidamente cobrados por concepto de impuesto forestal, así como los intereses dejados de percibir por parte de los contribuyentes, durante el período en que los recursos estuvieron en caja del ministerio, según lo dispuesto en los artículos 43, párrafo 1 y 58 del Código de Normas y Procedimientos Tributarios.
+5º—Que mediante el Decreto Ejecutivo Nº 28639-H, publicado en La Gaceta Nº 101 del 26 de mayo del 2000 y sus reformas, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2001, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo los límites de gasto presupuestario y de gasto efectivo del presente año, así como los de gasto corriente presupuestario y gasto corriente efectivo, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+6º—Que por lo anterior, resulta necesario modificar los límites de gasto fijados a dicho ente en el Decreto citado. Por tanto,
+Decretan:
+Artículo 1º—Modifícase el límite presupuestario y de gasto efectivo establecido en el artículo 1° del Decreto Ejecutivo Nº 28639-H y sus reformas al Fondo Forestal, fijándolo en ¢90.4 millones.
