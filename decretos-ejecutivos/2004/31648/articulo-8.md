@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión Nacional del Programa Bandera Azul Ecológica, seleccionará los centros educativos ganadores a más tardar en la primera semana del mes de diciembre del año evaluado, y organizará un acto de premiación a inicios del curso lectivo siguiente, donde se entregará el galardón.

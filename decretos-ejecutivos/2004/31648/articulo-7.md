@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión Nacional del Programa-Bandera Azul Ecológica, realizará a través del equipo técnico de trabajo, auditorías ambientales con el propósito de evaluar el desarrollo del plan de trabajo presentado por cada centro educativo participante.

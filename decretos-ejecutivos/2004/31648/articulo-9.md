@@ -1,0 +1,1 @@
+Artículo 9º—El Ministerio de Educación, al igual que las otras instituciones participantes en la Comisión Nacional del Programa Bandera Azul Ecológica, deberá incluir en sus planes de trabajo y de igual forma asignar los recursos que le darían contenido para su efectiva ejecución.
