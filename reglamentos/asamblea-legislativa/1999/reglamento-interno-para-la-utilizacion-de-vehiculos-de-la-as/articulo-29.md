@@ -1,1 +1,0 @@
-ARTÍCULO 29.- Las infracciones al presente Reglamento se consideran faltas al contrato laboral, las cuales serán sancionadas de conformidad con lo dispuesto en la Ley de Personal de la Asamblea Legislativa, Estatuto del Servicio Civil o penales que deba asumir el infractor.

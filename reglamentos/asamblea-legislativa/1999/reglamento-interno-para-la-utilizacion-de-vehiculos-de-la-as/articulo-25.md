@@ -1,1 +1,0 @@
-ARTÍCULO 25.- La Jefatura de la Unidad de Transportes deberá denunciar el accidente de tránsito ante la Corte Suprema de Justicia, en coordinación con el Departamento de Asesoría Legal y la Procuraduría General de la República, según sea el caso.
