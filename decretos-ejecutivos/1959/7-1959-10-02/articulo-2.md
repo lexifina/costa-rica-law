@@ -1,1 +1,0 @@
-Artículo 2°-La Oficina del Café podrá destinar los fondos necesarios para sufragar los gastos que la agencia demande, tomándolos del reintegro que le hace el Fisco del impuesto de propaganda al café, establecido por ley N° 1244 de 5 de diciembre de 1950.
