@@ -1,0 +1,2 @@
+Artículo 5
+Las Autoridades Administrativas graduarán las exoneraciones a que se refiere este Instrumento en atención a la naturaleza e importancia de la respectiva actividad y deberán coordinar regionalmente, a través de la Secretaría Permanente del Tratado General de Integración Económica Centroamericana, a fin de evitar las situaciones de disparidad competitiva que pudieran presentarse, sin perjuicio de la asesoría directa que tal organismo presta a cada gobierno con los mismos propósitos.
