@@ -1,0 +1,1 @@
+Artículo 14.—De conformidad con lo establecido en el artículo 43 del Código, este Reglamento se somete a consulta pública por un plazo de diez días. Los interesados en hacer oposiciones al mismo, deberán dirigir sus planeamientos por escrito en memorial razonado, ante el despacho del Alcalde Municipal ubicado en Curridabat en el Edificio Municipal, 4° piso.
