@@ -1,0 +1,1 @@
+9°.- En caso de rematarse en otro terreno cultivado por el que lo posee, el rematario será obligado á pagarle inmediatamente las cercas, pastos, árboles, plantas y la casa si la hubiere, todo por su valúo hecha la tasación por peritos que nombren, y un terreno de común acuerdo para en caso de discordia.
