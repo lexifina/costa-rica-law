@@ -1,0 +1,2 @@
+Artículo 5.—Los exámenes finales serán administrados, en los meses de febrero, julio y diciembre de cada año en cada institución que ofrezca servicios correspondientes la Educación Diversificada. Cuando el número de postulantes así lo justifique el Ministerio de Educación Pública podrá establecer sedes regionales.
+Las fechas específicas y la distribución de las asignaturas serán determinadas por el Ministerio de Educación Pública, en el correspondiente calendario escolar.

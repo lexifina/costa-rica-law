@@ -1,0 +1,1 @@
+Artículo 12.—Se tendrá por aprobado el postulante que alcance, según lo dispuesto en el artículo anterior, una calificación definitiva igual o superior a sesenta y cinco en cada una de las asignaturas objeto de examen final.

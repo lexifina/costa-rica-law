@@ -1,0 +1,1 @@
+Artículo 3.—Para ser inscritos como postulantes al título de Bachillerato en Educación Media los interesados deberán tener y comprobar, debidamente su condición de egresados de la Educación Diversificada, así como cumplir con los demás requisitos de trámite y con el calendario de los exámenes finales determinados por el Ministerio de Educación Pública.

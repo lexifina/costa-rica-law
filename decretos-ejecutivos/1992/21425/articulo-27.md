@@ -1,0 +1,3 @@
+Del recurso de apelación
+Artículo 27.—El postulante disconforme con su calificación obtenida en los exámenes finales podrá apelar en forma escrita ante el Delegado General, a más tardar el día hábil siguiente a aquel en que los resultados fueron comunicados formalmente Al efecto deberá señalar los puntos objeto de su disconformidad y expresará las razones y los argumentos que tuviere en su apoyo. Cuando fuere pertinente, ofrecerá las citas bibliográficas que respalden sus afirmaciones.
+El postulante que no se presentare a retirar el resultado en la sesión a que se hace referencia en el artículo 24, estará haciendo con ello renuncia al derecho de apelación.

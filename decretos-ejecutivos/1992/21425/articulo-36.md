@@ -1,0 +1,1 @@
+Artículo 36.—Si durante el desarrollo del examen final se sorprendiere infraganti a uno o varios postulantes en la comisión de fraude, se suspenderá de inmediatos infractor el desarrollo del mismo y se levantará un acta suscinta del hecho, que se firmada por el Delegado General y el Delegado Auxiliar.

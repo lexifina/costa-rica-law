@@ -1,0 +1,1 @@
+Artículo 8.—Los exámenes finales serán elaborados por funcionarios del Ministerio de Educación Pública, con la participación de otras entidades especializadas en el campo de la medición y evaluación educativas, cuando así se establezca mediante convenio.

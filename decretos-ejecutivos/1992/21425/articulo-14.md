@@ -1,0 +1,1 @@
+Artículo 14.—Recibirá el Título de Bachiller en Educación Media, el postulante que obtuviere promedios superiores a sesenta y cinco en todas las asignaturas objeto de examen final, de conformidad con lo que establecen los artículos 4 y 10 anteriores.
