@@ -1,0 +1,1 @@
+Artículo 4°—Será el Consejo Nacional de Producción a través del convenio con el Ministerio de Economía, industria y Comercio los encargados de velar por el cumplimiento del presente reglamento técnico.
