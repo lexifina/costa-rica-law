@@ -1,1 +1,1 @@
-Artículo 24.-Los detalles de Caminos Vecinales se pagarán, dentro del plazo que indica el artículo 13, en la Tesorería Municipal respectiva, la que acreditará las sumas recaudadas en cuenta especial a cada camino o sección del mismo, conforme se hubiere formulado el detalle.
+Artículo 24.-(Derogado por el artículo 1° del la ley N° 1561 del 6 de mayo de 1953)
