@@ -1,0 +1,1 @@
+Artículo 6º.-Los bancos cooperativos gozarán de las facultades establecidas en el párrafo segundo del artículo 59 de la Ley Orgánica del Sistema Bancario Nacional, número 1644, del 26 de setiembre de 1953.
