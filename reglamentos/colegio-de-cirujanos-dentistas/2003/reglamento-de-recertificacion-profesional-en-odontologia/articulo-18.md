@@ -1,0 +1,1 @@
+Artículo 18.—Cada Entidad Proveedora de Educación Continua (E.P.E.C.O.), será responsable de la calidad académica de su actividad. El Consejo Académico en Odontología será el encargado de fiscalizar dicha actividad.

@@ -1,0 +1,1 @@
+Artículo 6º—El Consejo Académico en Odontología tendrá a su cargo el trámite de la solicitud de aval de actividades de Educación Continua y Permanente en Odontología presentada por las entidades proveedoras de acuerdo con la normativa vigente del Programa de Recertificación Profesional.

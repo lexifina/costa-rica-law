@@ -1,0 +1,2 @@
+Artículo 14.—Los miembros del Consejo Académico en Odontología, deben ser miembros activos del Colegio de Cirujanos Dentistas de Costa Rica.
+El Director Académico o la Directora Académica será quien dirija las sesiones del Consejo Académico en Odontología, con voz pero sin voto. Tanto el Director como la Directora Académica, debe ser miembro activo del Colegio de Cirujanos Dentistas de Costa Rica.

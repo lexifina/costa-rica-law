@@ -1,0 +1,1 @@
+Artículo 42.—La odontóloga o el odontólogo participante del Programa tendrá la obligación de presentar los certificados adquiridos por la participación en actividades de educación continua con el debido aval del Consejo Académico en Odontología., un mes antes de cumplir el año de la fecha de inscripción al Programa.

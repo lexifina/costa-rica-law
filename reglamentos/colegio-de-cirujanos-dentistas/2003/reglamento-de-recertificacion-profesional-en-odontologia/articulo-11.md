@@ -1,0 +1,1 @@
+Artículo 11.—Las resoluciones del Consejo Académico en Odontología podrán ser apeladas ante un Tribunal de acuerdo al proceso establecido por el Colegio de Cirujanos Dentistas de Costa Rica. Las resoluciones del Tribunal no serán apelables, solo contarán con un recurso de revisión o revocatoria ante el mismo Tribunal.

@@ -1,0 +1,1 @@
+Artículo 34.—El Consejo Académico en Odontología, tiene potestad para suspender la acreditación de un proveedor o de una actividad educativa con aval otorgado previamente en caso de falsedad de datos por parte del proveedor.

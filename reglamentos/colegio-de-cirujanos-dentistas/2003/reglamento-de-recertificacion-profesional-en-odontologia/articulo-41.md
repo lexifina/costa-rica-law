@@ -1,0 +1,1 @@
+Artículo 41.—El Programa de Recertificación es voluntario, por lo que la odontóloga o el odontólogo, debe solicitar su inscripción en el Programa de Recertificación para iniciar el control de créditos acumulados de acuerdo con el reporte escrito, títulos obtenidos en Educación Continua, con el aval del Colegio de Cirujanos Dentistas de Costa Rica, de cada participante.

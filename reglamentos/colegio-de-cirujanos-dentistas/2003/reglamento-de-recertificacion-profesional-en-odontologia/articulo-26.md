@@ -1,0 +1,1 @@
+Artículo 26.—El Consejo Académico en Odontología, debe pronunciarse y comunicar el resultado de solicitud de aval de la actividad educativa en dos semanas a partir de su recibimiento formal con extensión extraordinaria de quince días en caso necesario.

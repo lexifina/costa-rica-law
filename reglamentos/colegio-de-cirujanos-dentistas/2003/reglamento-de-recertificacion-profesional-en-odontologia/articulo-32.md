@@ -1,0 +1,1 @@
+Artículo 32.—La Dirección Académica, dará asesoría a las entidades proveedoras de actividades educativas a las que se les rechace la solicitud de aval, por no cumplir requisitos mínimos establecidos por el Consejo Académico en Odontología.

@@ -1,0 +1,1 @@
+Artículo 38.—Una actividad educativa de aprovechamiento, debe cumplir con un mínimo de 21 horas docentes. Debe poseer un instrumento de evaluación aprobado por el Consejo Académico en Odontología y el 85% mínimo de asistencia comprobable.

@@ -1,0 +1,1 @@
+Artículo 5º—El Consejo Académico en Odontología garantizará la actualización tanto del Programa de Recertificación como de los créditos acumulados por año y reportados al sistema de información del Programa.

@@ -1,0 +1,1 @@
+Artículo 35.—En caso de suspensión de la actividad educativa por falsedad de datos, la entidad proveedora tiene la obligación de devolver a los participantes, contra recibo, el valor total de la cuota cobrada, en un plazo no mayor a 15 días. Además, será penalizada por dos años de no impartir actividades educativas con aval del Colegio de Cirujanos Dentistas de Costa Rica.

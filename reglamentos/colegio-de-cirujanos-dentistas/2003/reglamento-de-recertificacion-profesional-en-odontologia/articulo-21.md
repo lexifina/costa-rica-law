@@ -1,0 +1,1 @@
+Artículo 21.—El quórum para sesiones del Consejo Académico en Odontología, será de tres de sus integrantes. Cuando no esté presente el Director o la Directora, el Consejo escogerá de entre los o las presentes la persona que dirigirá esa sesión. Las votaciones serán tomadas por mayoría simple de los presentes.

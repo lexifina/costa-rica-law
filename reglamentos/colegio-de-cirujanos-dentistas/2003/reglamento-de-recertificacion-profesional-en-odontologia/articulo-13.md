@@ -1,0 +1,3 @@
+CAPÍTULO II
+Funciones del Consejo Académico en Odontología
+Artículo 13.—El Consejo Académico en Odontología, será de nombramiento de la Asamblea General y estará integrado por cinco miembros propietarios y dos suplentes, quienes duran en funciones tres años, pudiendo ser reelectos indefinidamente y se renovarán por mitades así: al vencimiento del primer período serán nombrados dos, al vencimiento del segundo período tres y así sucesivamente. Las ausencias temporales serán suplidas por los suplentes y las definitivas también los serán por los suplentes hasta tanto la Asamblea General, no se reúna para hacer el nombramiento respectivo el cual será por el resto del período para el que fuera electo quien produjo la vacante. (Ver transitorio).

@@ -1,0 +1,1 @@
+Artículo 36.—La Entidad Proveedora de Educación Continua tendrá el deber de permitir la participación sin costo a un o una representante del Consejo Académico en Odontología y a la Dirección Académica del Colegio de Cirujanos Dentistas de Costa Rica, en calidad de observador.

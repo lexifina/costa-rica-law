@@ -1,0 +1,1 @@
+Artículo 17.—El Consejo Académico en Odontología deberá recomendar temas de interés y necesidad nacional para implementarlos en las actividades de Educación Continua, asegurando una proporcionalidad en los temas expuestos durante el año y así incluir salud pública, prevención, administración, investigación, etc.

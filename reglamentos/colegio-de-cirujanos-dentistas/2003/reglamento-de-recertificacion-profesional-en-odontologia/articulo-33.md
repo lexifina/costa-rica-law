@@ -1,0 +1,1 @@
+Artículo 33.—La acreditación de una actividad educativa será valida por dos años. Durante este período el ente proveedor tendrá derecho a repetir la actividad educativa, previo permiso solicitado del Consejo Académico en Odontología, el cual resolverá en ocho días hábiles y pagando por cada una de esas veces el importe acordado desde la primera vez.

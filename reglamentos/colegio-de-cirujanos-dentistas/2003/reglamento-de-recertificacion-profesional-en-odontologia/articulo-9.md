@@ -1,0 +1,1 @@
+Artículo 9º—El Consejo Académico en Odontología garantizará la transparencia, la oportunidad y la eficacia de todos los procesos que se desarrollen en el Programa de Recertificación Profesional en Odontología.

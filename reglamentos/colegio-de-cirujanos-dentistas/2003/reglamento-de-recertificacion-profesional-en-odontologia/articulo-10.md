@@ -1,0 +1,1 @@
+Artículo 10.—La Educación Continua y Permanente o sí la actividad Educativa Presencial adquirida fuera de Costa Rica será valorada por el Consejo Académico en Odontología, para aportar créditos al Programa de Recertificación o de acuerdo con lo establecido por la normativa del Consejo.

@@ -1,0 +1,1 @@
+Artículo 40.—Actividad educativa presencial, debe cumplir con 4 a 12 horas docentes con un 100% de asistencia y permanencia comprobable con certificado de asistencia. Debe existir hoja de asistencia con firma del participante al inicio y al final de la actividad.

@@ -1,0 +1,1 @@
+Artículo 15.—El Consejo Académico en Odontología es el encargado de conocer, tramitar y extender o denegar la autorización a los entes proveedores de Educación Continua y verifica el cumplimiento de las actividades educativas avaladas a través de instrumentos de evaluación y observaciones del mismo.

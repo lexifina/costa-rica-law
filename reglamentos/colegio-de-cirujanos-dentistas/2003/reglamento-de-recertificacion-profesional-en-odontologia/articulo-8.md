@@ -1,0 +1,1 @@
+Artículo 8º—Los créditos acumulados superiores al mínimo no son válidos de un año a otro. El año de recertificación se inicia en la fecha en que la odontóloga y el odontólogo se inscribe en el Programa, y concluye doce meses después con posibilidades de congelamiento.

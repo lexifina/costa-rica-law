@@ -1,0 +1,1 @@
+Artículo 30.—Las actividades académicas de Educación Continua, sin costo para el participante seguirán el mismo procedimiento para su autorización del Consejo Académico en Odontología y no se les cobrará cuota por ningún concepto, conforme lo disponen los artículos 28 y 29 de este Reglamento.
