@@ -13,3 +13,4 @@ CCSS: Requisitos Candidatos para Recibir Beneficios para Estudio.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-03 | la propia norma |
+| 2 | 2000-03-03 | Ley 7 |
