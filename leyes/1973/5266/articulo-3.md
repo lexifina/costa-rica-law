@@ -1,0 +1,1 @@
+Artículo 3°-La Procuraduría General de la República como notaría del Estado, extenderá las respectivas escrituras, las que estarán exentas del pago de derechos de registro, excepto el timbre del Colegio de Abogados.
