@@ -1,7 +1,10 @@
 Artículo 2º—La Comisión estará integrada por:
-El Ministro de la Presidencia o su representante
-La Segunda Vicepresidenta de la República o su representante
-Un representante del Ministerio de la Presidencia
-Cuatro personas designadas por el Ministro de la Presidencia que representen a las Municipalidades
-Un representante de la Unión de Gobiernos Locales
-Tres Representantes del Instituto de Fomento y Asesoría Municipal
+La Segunda Vicepresidencia de la República o su representante, quien ejercerá la coordinación gubernamental.
+El Ministro de la Presidencia o su representante.
+El Ministro de Justicia o su representante.
+El Ministro de Hacienda o su representante.
+Un representante del Registro Nacional.
+Un representante del Instituto de Fomento y Asesoría Municipal (IFAM)
+Tres personas designadas por la Segunda Vicepresidencia que representen a las municipalidades de todo el país.
+Un representante de la Unión Nacional de Gobiernos Locales
+(Así reformado por el artículo 1 del decreto ejecutivo N° 29320 de 6 de fecrero del 2001)

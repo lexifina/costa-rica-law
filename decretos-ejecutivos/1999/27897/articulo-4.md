@@ -1,1 +1,2 @@
-Artículo 4º—La primera acción de esta comisión será la integración de toda la información inmobiliaria disponible y la coordinación de los esfuerzos de todas las instituciones involucradas para obtener un catastro único y sostenible a nivel nacional.
+Artículo 4º—Crear un Comité Técnico que tendrá a su cargo preparar los trabajos que demanda el "Programa de Regularización del Catastro y del Registro (CR-0134) para su ejecución; actuar como asesor y consultor de los órganos de dicho Programa denominados "Consejo Consultivo" y "Unidad Ejecutora" y cumplir con lo que le soliciten en el marco del Programa los jerarcas de las instituciones responsables.
+(Así adicionado por el artículo 3 del decreto ejecutivo N° 29320 de 6 de febrero del 2001)

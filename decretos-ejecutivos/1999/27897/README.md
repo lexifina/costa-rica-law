@@ -14,3 +14,4 @@ Crea Comisión Interinstitucional Fortalecimiento del Régimen Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-23 | la propia norma |
+| 2 | 2001-02-06 | Decreto Ejecutivo 29320 (2001-02-06) |
