@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión será de caráeter consultivo y asesor del Canciller y Vicecanciller y para la consecución de sus fines estudiará todos aquellos asuntos de su competencia en el ámbito del Derecho Internacional Público y Privado y todos aquellos otros asuntos que le encarguen el Canciller o Vicecanciller.
