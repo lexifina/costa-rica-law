@@ -1,0 +1,1 @@
+Art. 13.—E1 uniforme de la tropa debe ser de franela azul, y el de los oficiales y jefes, de paño fino. —El aro encarnado de los kepis para la tropa debe tener veinticinco milímetros de ancho, y el de los oficiales y jefes treinta y dos milímetros.
