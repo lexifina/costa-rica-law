@@ -1,0 +1,13 @@
+Nº 29797-MP-MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE LA PRESIDENCIA
+Y DE TRABAJO Y SEGURIDAD SOCIAL
+En ejercicio de las atribuciones conferidas por los artículos 140 incisos 3), 8) y 18) de la Constitución Política y 26 y 27 de la Ley General de la Administración Pública.
+Considerando:
+1º—Que mediante Decreto Ejecutivo Nº 27155-MTSS de fecha 29 de junio de 1998, el Gobierno de República crea la Comisión Liquidadora del Programa de Compensación Social, la cual tiene como función primordial liquidar el citado Programa (Decreto Ejecutivo Nº 24478-MP, derogado), en virtud de que dicho programa carecía de los mecanismos de control que exigía la sana administración de fondos públicos.
+2º—Que para la ejecución de la Liquidación del Programa de Compensación Social, se emitió el Reglamento de Funcionamiento de la Comisión Liquidadora del citado programa, mediante el Decreto Ejecutivo 27288-MP-MTSS, de fecha 25 de agosto de 1998.
+3º—Que en el citado Reglamento señala como parámetros de liquidación, el que el Programa de Compensación Social fue creado para procurar apoyo económico, única y exclusivamente a las familias que calificaran de acuerdo con lo dispuesto en la Ley Nº 5662, Ley de Desarrollo Social y Asignaciones Familiares, y con la finalidad de que se les aplicaran los recursos, para que pudieran hacerle frente a las obligaciones y deudas relacionadas con sus lotes, parcelas, viviendas y servicios.
+4º—Que con la finalidad de evitar que los grupos familiares de escasos recursos económicos deban asumir directamente la carga financiera por concepto de réditos en virtud de la imposibilidad financiera de hacerle frente en el tiempo debido al desembolso de la transferencia de las obligaciones contraídas por la anterior Administración, resulta indispensable. Por tanto,
+DECRETAN:
+Artículo 1º—Refórmese párrafo primero del artículo 3º del Decreto Ejecutivo Nº 27288-MP-MTSS del 25 de agosto de 1998 para que se lea de la siguiente forma:
+"Artículo 2º—Parámetros de liquidación. Se tiene como lineamiento fundamental a tomar en consideración por parte de la comisión liquidadora, el que de manera precisa y puntual el Programa de Compensación Social fue creado para procurar apoyo económico única y exclusivamente a las familias que clasificaran de acuerdo con lo dispuesto en la Ley Nº 5662 del 23 de diciembre de 1974 Ley de Desarrollo Social y de Asignaciones Familiares y con la finalidad de que se les aplicaran los recursos para que pudieran hacerles frente a las obligaciones y deudas, en el entendido de que este último concepto, se extiende al principal y réditos correspondiente a la fecha de la efectiva cancelación de la totalidad de la deuda, relacionada con sus lotes, parcelas, viviendas, y servicios…"
