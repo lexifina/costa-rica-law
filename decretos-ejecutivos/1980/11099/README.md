@@ -13,3 +13,4 @@ Aprueba la Carrera Técnica para los Controladores de Tránsito Aéreo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-01-29 | la propia norma |
+| 2 | 1980-01-29 | Decreto Ejecutivo 18157 (1988-05-16) |

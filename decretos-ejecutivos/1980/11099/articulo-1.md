@@ -16,7 +16,7 @@ Por tanto,
 DECRETAN:
 (Modificado en lo conducente por Decreto 18157 de 16 de mayo de 1988)
 Artículo 1º.- Apruébase la carrera técnica para los Controladores de
-Tránsito Aéreo que se regirá, para efectos de compensación econmímica, de
+Tránsito Aéreo que se regirá, para efectos de compensación económica, de
 acuerdo con las siguientes especificaciones:
 Grupo A: Este grupo comprende a los funcionarios cuyos estudios no
 sobrepasen al de los requisitos mínimos establecidos para el
