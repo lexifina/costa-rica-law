@@ -1,4 +1,4 @@
-Artículo 10.- El Director General del Instituto Meteorológico
+ARTICULO 10.- El Director General del Instituto Meteorológico
 Nacional tendrá las siguientes atribuciones:
 a) Dirigir las labores científicas, técnicas y administrativas del
 Instituto;
