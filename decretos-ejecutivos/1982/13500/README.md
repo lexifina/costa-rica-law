@@ -20,3 +20,4 @@ Reglamento Interno de la Junta Directiva del Consejo de Seguridad Vial
 | 5 | 1996-02-09 | Decreto Ejecutivo 24962 (1996-02-09) |
 | 6 | 1998-09-28 | Decreto Ejecutivo 27625 (1998-09-28) |
 | 7 | 2002-09-16 | Decreto Ejecutivo 30722 (2002-09-16) |
+| 8 | 2002-12-17 | Decreto Ejecutivo 30913 (2002-12-17) |
