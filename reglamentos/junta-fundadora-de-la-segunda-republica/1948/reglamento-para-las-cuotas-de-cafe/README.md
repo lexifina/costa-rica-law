@@ -13,3 +13,4 @@ Reglamento para las cuotas de café
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1948-09-10 | la propia norma |
+| 2 | 1954-09-21 | Decreto Ejecutivo 26 (1954-09-21) |
