@@ -14,9 +14,9 @@ DECRETAN:
 Artículo 1º—Modifícase el artículo 1° del Decreto Ejecutivo N° 30214-H, publicado en La Gaceta N° 54 de 18 de marzo del 2002, sobre las Directrices Generales de Política Presupuestaria del 2003, para los Ministerios, demás órganos según corresponda y entidades públicas cubiertas por el ámbito de la Autoridad Presupuestaria, a fin de establecer los siguientes límites de gasto presupuestario máximo para las Instituciones que se indican:
 Institución | Límite 2003
 | millones de ¢
-Consejo Técnico de Asistencia Médico Social CTAMS | 1.116.3
+Consejo Técnico de Asistencia Médico Social CTAMS (Así REFORMADO PARCIAL Y EXPRESAMENTE por el Artículo 1° del Decreto Ejecutivo N°31469 del 08 de octubre de 2003, publicado en el Alcance N°56 a La Gaceta N°225 de 21 de noviembre de 2003.) | 1.558.4
 Instituto sobre Alcoholismo y Farmacodependencia IAFA | 945.3
-Junta Administrativa de la Imprenta Nacional | 623.9
+Junta Administrativa de la Imprenta Nacional (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31409 de 13 de octubre de 2003, publicado en La Gaceta N° 205 de 24 de octubre de 2003.) | 1,202.1
 Oficina de Cooperación Internacional de la Salud OCIS (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31387 de 24 de setiembre de 2003, publicado en La Gaceta N° 196 de 13 de octubre de 2003.) | 4.042,3
 Patronato de Construcciones, Instalaciones y Adquisición de Bienes | 2.685.5
 Teatro Nacional (Véase el artículo 1° del decreto ejecutivo N° 31179 de 2 de mayo de 2003, el cual modifica el presente límite) | 322.3
