@@ -1,0 +1,26 @@
+Artículo 2°—Glosario de términos. Para los efectos de aplicar este Reglamento se establecen las siguientes definiciones:
+- Alineamiento: línea fijada por la Municipalidad o el MOPT, con el límite o aproximación máxima de la construcción, con respecto a la vía pública.
+- Antejardín: espacio fijado por la Municipalidad o el MOPT comprendido entre la línea de propiedad y la línea de construcción, sobre este espacio existe una restricción para construir, no obstante constituye propiedad privada.
+- Anuncio: todo letrero, escritura, impreso, pintura, emblema, dibujo u otro medio cuyo propósito sea hacer una propaganda comercial, o llamar la atención hacia un producto, artículo, marca de fábrica o hacia una actividad comercial, negocio, servicio, recreación, profesión u ocupación domiciliaria que se ofrece, vende o lleva a cabo en un sitio, distinto de aquel donde aparece el anuncio.
+- Aviso: todo letrero que no tenga fines de publicidad comercial.
+- Aviso de tránsito: todo aviso instalado para dirigir el tránsito.
+- Calle: vías públicas dentro del cantón sujetas a la jurisdicción municipal, con excepción de las carreteras que lo atraviesan.
+- Carreteras: vías públicas sujetas a la jurisdicción del Ministerio de Obras Públicas y Transportes.
+- Derecho de vía: el ancho de la carretera o calle, esto es la distancia entre las líneas de propiedad incluyendo calzadas, fajas verdes y aceras.
+- Línea de propiedad: segmento que demarca los límites de la propiedad particular.
+- Mobiliario urbano: estructuras dentro del derecho de las vías públicas, plazas, parques, etc., tales como casetas de autobuses, basureros, barandas, postes, bancas, macetones decorativos y similares.
+- Monumento: comprende tanto una creación arquitectónica artística aislada así como un sitio urbano o rural que nos ofrece el testimonio particular de la lectura o de un suceso histórico.
+- Nomenclatura predial: representación numérica que identifica las edificaciones y las propiedades (manzanas, fincas, lotes).
+- Nomenclatura vial: representación nominal o numérica que identifica las vías públicas.
+- Perspectiva panorámica: vista que se da en menor o mayor grado en determinados sectores del cantón, en el recorrido de los caminos públicos, en los cuales la composición de los elementos del paisaje circundante brindan una belleza natural escénica digna de exaltarse, mantenerse, protegerse y liberarse de obstáculos visuales que la limiten, la deformen o la alteren en perjuicio de los derechos básicos del hombre.
+- Propietario: persona física o jurídica que ejerce dominio sobre bienes inmuebles mediante escritura pública.
+- Publicidad exterior: toda publicidad por medio de rótulos, avisos, vallas o similares cuyo propósito sea hacer una propaganda comercial o llamar la atención hacia un producto, artículo o marca de fábrica o hacia una actividad comercial o negocio, servicio, recreación, profesión u ocupación domiciliaria que se ofrece, vende o lleva a cabo dentro del cantón de Siquirres y que puede ser vista desde la vía pública.
+- Reparación: renovación de cualquier parte de un rótulo para darla en condiciones iguales o mejores.
+- Riesgo: contingencia o probabilidad de un accidente, daño o perjuicio.
+- Rótulo: todo letrero, escritura, impreso, emblema, pintura, dibujo u otro cuyo propósito sea llamar la atención sobre algún producto o actividad que se ofrezca o se elabore en el mismo sitio donde el rótulo está ubicado.
+- Rótulos o avisos de obras en construcción o temporales: todo rótulo o aviso cuyo propósito sea llamar la atención hacia la construcción de un proyecto público o privado o que su instalación haya sido autorizada por la Municipalidad para una finalidad transitoria y por un período de tiempo determinado.
+- Seguridad: Conjunto de disposiciones legales y reglamentarias dirigidas a crear y mantener la tranquilidad de poder circular sin preocupaciones especiales y sin distracciones en cuanto a rótulos o cualquier punto de las vías del cantón.
+- Vallas publicitarias: estructura sobre la cual se coloca el anuncio fijado directamente en el suelo por uno o más soportes, que exceden en escala a lo dispuesto en la definición de rótulo.
+- Vía pública: infraestructura vial del dominio público y de uso común que por disposición de la autoridad administrativa se destinare a libre tránsito, de conformidad con las leyes y reglamentos y que de hecho esté destinado a ese uso público.
+- Visibilidad: Efecto de percepción y distancia necesarios para que el conductor pueda circular por una vía sin peligro de accidente.
+- Zona de retiro: zona de terreno privado que el MOPT o la Municipalidad definen como de no-utilización para efectos por parte del dueño del terreno; usándose generalmente como jardín o área verde.

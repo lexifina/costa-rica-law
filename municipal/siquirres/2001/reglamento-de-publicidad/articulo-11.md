@@ -1,0 +1,2 @@
+Artículo 11.—Exención del pago de licencias. Los rótulos de interés público, previamente categorizados por la Municipalidad de que cumplen exclusivamente una finalidad pública de provecho evidente para la comunidad, están exentos del pago de licencia, siempre que no lleven publicidad, salvo casos expresamente autorizados por la Municipalidad.
+Estos rótulos podrán ser de nomenclatura de calles, avenidas, predios, parques o plazas, placas de ubicación de sitios históricos, placas de homenaje y los rótulos guía para indicación de servicios públicos varios.
