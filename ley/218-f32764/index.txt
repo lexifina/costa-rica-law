@@ -33,4 +33,7 @@ articulo-32.md
 articulo-33.md
 articulo-34.md
 articulo-35.md
+articulo-36.md
+articulo-37.md
 articulo-1-transitorio.md
+articulo-2-transitorio.md
