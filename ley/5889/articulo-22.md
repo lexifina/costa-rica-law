@@ -1,0 +1,1 @@
+Artículo 22.-Los miembros de la Junta Directiva, el Gerente y el Auditor deberán rendir caución de su ejercicio por ¢ 50,000.00 (cincuenta mil colones), mediante garantías reales o póliza de fidelidad del Instituto Nacional de Seguros, en cuyo caso las primas, correrán por cuenta de la Empresa.
