@@ -13,3 +13,4 @@ Reglamento Ley del Colegio Federado de Químicos e Ingenieros Químicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-03-21 | la propia norma |
+| 2 | 1980-03-21 | SINALEVI (sin norma nombrada) |

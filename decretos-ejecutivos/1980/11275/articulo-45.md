@@ -1,6 +1,6 @@
-ARTICULO 45.- Cuando un órgano del Colegio Federado deniegue
-una apelación, podrá el interesado apelar de hecho ante el
-superior dentro del término de tres días y el escrito deberá contener:
+ARTICULO 45.- Cuando un órgano del Colegio Federado deniegue una
+apelación, podrá el interesado apelar de hecho ante el superior dentro del
+término de tres días y el escrito deberá contener:
 a) Los datos generales del asunto que sean necesarios para su
 identificación;
 b) La fecha de la resolución que se apeló;

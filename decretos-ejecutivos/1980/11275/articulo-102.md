@@ -1,4 +1,5 @@
-ARTICULO 102.- El timbre Químico tendrá las siguientes denominaciones:
+ARTICULO 102.- El timbre Químico tendrá las siguientes
+denominaciones:
 a) Un colón;
 b) Dos colones;
 c) Tres colones;

@@ -1,4 +1,2 @@
-ARTICULO 26.- La Junta Directiva General dictará seguidamente las
-medidas necesarias para acomodar los aspectos administrativos y de toda
-índole a la creación del nuevo colegio o a la variación de la composición
-interna del o los existentes, acordado por la Asamblea de Representantes.
+ARTICULO 26.- (ANULADO por Resolución de la Sala Constitucional Nº
+7123-98 de las 16:33 horas del 6 de octubre de 1998).
