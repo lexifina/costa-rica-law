@@ -1,11 +1,13 @@
-Artículo 39.—Pago de subsidio El servidor regular que fuere declarado incapacitado para trabajar, por enfermedad o riesgo profesional, gozará de subsidio en proporción al tiempo servido, conforme con las siguientes regulaciones:
-Durante el primer trimestre de servicios hasta por quince días.
-Durante el segundo trimestre de servicios, hasta por un mes.
-Durante el tercer trimestre de servicios, hasta por dos meses.
-Durante el cuarto trimestre de servicios, hasta por tres meses.
-Durante el segundo año de servicios, hasta por cuatro meses.
-Durante el tercer año de servicios, hasta por cuatro meses.
-Después de tres años de servicios, hasta por seis meses.
-En casos excepcionales, después de cinco años de servicios, previo dictamen favorable del médico de Empresa del INA, la Gerencia podrá autorizar el reconocimiento del subsidio hasta por un año, mediante resolución razonada.
-El monto del subsidio será de un 100% del salario que está devengando el a momento de incapacitarse. El INA completará el monto del subsidio pagado por la Caja Costarricense del Seguro Social o el Instituto Nacional de seguros, según el caso, en los porcentajes y períodos indicados."
-(Así reformado mediante sesión 2394 celebrada el 6 de abril de 1987)
+Artículo 39.- Pago de subsidio:
+El servidor que fuere declarado incapacitado para trabajar por enfermedad o riesgo profesional, gozará de subsidio en proporción al tiempo servido, conforme con las siguientes regulaciones:
+a) Durante el primer trimestre de servicios, hasta por quince días.
+b) Durante el segundo trimestre de servicios, hasta por un mes.
+c) Durante el tercer trimestre de servicios, hasta por dos meses.
+ch) Durante el cuarto trimestre de servicios, hasta por tres meses.
+d) Durante el segundo año de servicio, hasta por cuatro meses.
+e) Durante el tercer año de servicio, hasta por cinco meses.
+f) Después de tres años de servicio, hasta por seis meses.
+En los casos anterior, previo dictamen favorable del Médico de Empresa la Gerencia podrá prorrogar el reconocimiento del subsidio hasta por otro periodo igual al otorgado originalmente, mediante resolución razonada.
+Para efecto de computar los plazos establecidos, se tomarán en cuenta todas las incapacidades, continuas o no, presentadas por el servidor dentro de un período no superior a los 730 días anteriores a la fecha de presentación de la última incapacidad siempre y cuando entre una y otra incapacidad no haya transcurrido un plazo superior a 180 días.
+El monto del subsidio será un 100% del salario devengando el trabajador al momento de incapacitarse. El INA complementará el monto del subsidio pagado por la Caja Costarricense del Seguro Social o el Instituto Nacional de Seguros, según el caso, en los porcentajes y períodos indicados. Cuando el servidor sea incapacitado por un período continuo superior a quince días, el pago del subsidio requerirá la aprobación del Médico de Empresa. Una vez agotado el derecho al subsidio, el INA suspenderá todo pago por ese concepto, y no podrá reiniciarlos sino una vez transcurrido un año a partir de la fecha que se produjo el agotamiento."
+(Así reformado mediante sesión 2970 celebrada el 9 de noviembre de 1992)
