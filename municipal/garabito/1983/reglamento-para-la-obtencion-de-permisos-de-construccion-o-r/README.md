@@ -14,3 +14,4 @@ Reglamento para la Obtención de Permisos de Construcción o Reparación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-09-09 | la propia norma |
+| 2 | 2000-04-12 | Reglamento municipal 118 (2000-04-12) |

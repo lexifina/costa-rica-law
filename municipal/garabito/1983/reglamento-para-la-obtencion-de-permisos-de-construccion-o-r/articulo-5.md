@@ -9,4 +9,5 @@ g) Copia fiel de la escritura de la propiedad, o constancia de abogado de que es
 h) Si la construcción se realiza dentro de una propiedad ajena, deberá presentar autorización del dueño y su título.
 i) Construcciones con un valor mayor de ¢150.000,00, deben tener los timbres del Colegio de Ingenieros y de Arquitectos de Costa Rica y deberá presentar la Póliza de Riesgos Profesionales.
 j) Debe dejar retiros de tres metros laterales y frontales.
-k) El tamaño de los lotes debe de ser de 420 m2, como mínimo.
+k) El tamaño de los lotes debe ser de 180 m2 como mínimo, excepto cuando se tratare de proyectos urbanísticos de interés social.
+(Así reformado el inciso anterior mediante sesión N° 118 del 12 de abril del 2000)
