@@ -1,0 +1,15 @@
+Nº 31882-MICIT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE CIENCIA Y TECNOLOGÍA
+En uso de las atribuciones que les confiere el artículo 140 de la Constitución Política en sus incisos 3), y 18), y con fundamento en la "Ley de Promoción del Desarrollo Científico y Tecnológico" Nº 7169, del 26 de junio de 1990.
+Considerando:
+1º—Que el Programa Iberoamericano de Ciencia y Tecnología para el Desarrollo (CYTED) fue creado en 1984 mediante un Acuerdo Marco Interinstitucional firmado por 19 países de América Latina, España y Portugal.
+2º—Que el Programa CYTED se define como un programa internacional de cooperación científica y tecnológica multilateral, con carácter horizontal y de ámbito iberoamericano.
+3º—Que el Programa CYTED tiene como objetivo principal contribuir al desarrollo armónico de la Región Iberoamericana mediante el establecimiento de mecanismos de cooperación entre grupos de investigación de las Universidades, Centros de I+D (Invasión más Desarrollo) y Empresas innovadoras de los países iberoamericanos, que pretenden la consecución de resultados científicos y tecnológicos transferibles a los sistemas productivos y a las políticas sociales.
+4º—Que es importante para el desarrollo de nuestro país pertenecer al Programa Iberoamericano de Ciencia y Tecnología para el Desarrollo (CYTED), como una forma de participar en Redes Internacionales de apoyo a la Investigación Tecnológica.
+5º—Que esta Asamblea del Programa Iberoamericano de Ciencia y Tecnología para el Desarrollo (CYTED), es un medio para contar con la presencia de expositores internacionales de muy alto nivel, los cuales comparten sus experiencias y por lo tanto se estimula la búsqueda de cooperación entre los mismos.
+6º—Que el Programa CYTED, asimismo, colabora con otras iniciativas con objeto de rentabilizar los recursos y facilitar el desarrollo científico y tecnológico en la Región. De esta manera, ha servido de puente para la cooperación entre América Latina y la Unión Europea, consolidando iniciativas y líneas de colaboración, que se concretan en las Conferencias Iberoamericanas-Unión Europea de Cooperación Científica y Tecnológica (IBERUE) celebradas anualmente.
+7º—Que desde 1993, el Programa CYTED ha venido organizando anualmente y de manera conjunta con el Organismo Signatario del país sede, las Conferencias Científicas preparatorias de las Cumbres Iberoamericanas de Jefes de Estado y de Gobierno.
+8º—Que desde 1995, el Programa CYTED se encuentra formalmente incluido entre los Programas de Cooperación de las Cumbres Iberoamericanas de Jefes de Estado y de Gobierno. Por tanto:
+DECRETAN:
+Artículo 1º—Se declara de Interés Nacional la XXXIII Asamblea Extraordinaria del Programa Iberoamericano de Ciencia y Tecnología para el Desarrollo (CYTED) 2004, la cual se realizará del 22 al 23 de julio del presente año, con el fin de abordar el tema de la interrelación y cooperación entre instituciones públicas y privadas interamericanas para lograr la transferencia de tecnología, transferencia de conocimiento, desarrollo de proyectos de investigación e innovación, desarrollo de redes temáticas.
