@@ -13,3 +13,4 @@ Declara el 9 de Setiembre Día del Niño
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1946-07-12 | la propia norma |
+| 2 | 1999-09-13 | Decreto Ejecutivo 28117 (1999-09-13) |
