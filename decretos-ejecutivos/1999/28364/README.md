@@ -14,3 +14,4 @@ Ref. Servicio Cabotaje Río Tempisque Puerto Alegre y Puerto Moreno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-07 | la propia norma |
+| 2 | 2001-03-05 | Decreto Ejecutivo 29347 (2001-03-05) |
