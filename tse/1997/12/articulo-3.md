@@ -1,0 +1,1 @@
+Artículo 3°—En observancia de las disposiciones de los artículos 74 y 137 del Código Electoral, los partidos políticos que participen en las elecciones de Diputados, designarán además un exceso de candidatos a Diputados en número de cinco por la provincia de San José y de dos por cada una de las otras provincias.

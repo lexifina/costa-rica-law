@@ -1,0 +1,1 @@
+Artículo 6°—El término para la presentación de candidaturas para su debida inscripción en el Registro Civil, vence a las quince horas y treinta minutos del día jueves dieciséis de octubre del año en curso, según el artículo 76 del Código Electoral.
