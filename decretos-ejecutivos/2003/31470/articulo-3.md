@@ -1,0 +1,1 @@
+Artículo 3º—De igual forma promoverán entre sus funcionarios la participación en el citado Seminario y otorgarán los permisos correspondientes para que los funcionarios designados participen en el evento.
