@@ -1,0 +1,1 @@
+Art 5°.- Las disposiciones anteriores no comprometerán la libertad del Tribunal en los juicios, siempre que las personas se presenten a ser juzgadas, y aun las penas referidas podrán relajarse, acreditándose, a juicio del Gobierno de acuerdo con el Consejo, servicios posteriores al Estado, adhesión a las instituciones que nos rijen y a la tranquilidad pública.
