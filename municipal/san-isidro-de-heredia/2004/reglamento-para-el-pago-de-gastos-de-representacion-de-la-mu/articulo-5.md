@@ -1,0 +1,8 @@
+Artículo 5º—Procedimiento de liquidación y reconocimiento de gastos: La liquidación de gastos de representación estará sujeta en cada caso a la presentación de las facturas originales timbradas o autorizadas mediante oficio de la Dirección General de Tributación Directa y formalmente emitidas por la Casa Comercial correspondiente, sin borrones ni tachaduras. Al emitirse la factura, el ejecutante del gasto deberá verificar que se indique:
+A. Fecha, nombre de la casa comercial que la emite, deberá estar emitida a nombre de la Municipalidad de San Isidro de Heredia, y deberá constar en ella la descripción detallada del concepto o servicio por el cual se pagó y la cantidad correspondiente debidamente desglosada, así como también el monto total.
+B. Para la liquidación del gasto, las facturas deberán ser acompañadas de una nota de solicitud de pago e indicar los siguientes aspectos:
+1. Nombre de la persona o personas atendidas, cargos que ostenta y entidad a la que pertenece.
+2. Motivo de atención brindada.
+3. Nombre y firma del ejecutante del gasto.
+C. La liquidación del gasto de representación debe presentarse para cobro a más tardar dentro de los ocho días hábiles siguientes, contados a partir de la fecha de ejecución del gasto o bien a partir de la fecha de finalización de la gira. No se procederá al pago de las sumas que no se liquiden dentro de ese período.
+D. Las facturas junto con las notas de solicitud de pago, serán presentadas a los encargados del área financiera institucional, quienes tendrán la responsabilidad de verificar el cumplimiento de los requisitos exigidos. De encontrarse el cobro ajustado a derecho, procederán de conformidad autorizando dicho desembolso.

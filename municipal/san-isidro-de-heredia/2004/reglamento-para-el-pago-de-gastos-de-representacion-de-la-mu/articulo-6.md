@@ -1,0 +1,1 @@
+Artículo 6º—Facultades de verificación: El área administrativafinanciera institucional de la Municipalidad de San Isidro de Heredia queda facultada para verificar cualquier dato relacionado con el gasto de representación que esté en trámite de pago.

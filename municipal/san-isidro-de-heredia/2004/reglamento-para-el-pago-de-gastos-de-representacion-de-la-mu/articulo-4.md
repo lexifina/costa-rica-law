@@ -1,0 +1,1 @@
+Artículo 4º—Disponibilidad presupuestaria: No se podrá autorizar ningún egreso por concepto de gastos de representación, sin el previo visto bueno de la Tesorería Institucional, donde se haga constar la existencia de contenido presupuestario para tal efecto, debidamente aprobado por la Contraloría General de la República.
