@@ -1,0 +1,1 @@
+Artículo 67.—Acumulación de sanciones. Cuando el abogado haya acumulado tres sanciones, entre amonestaciones y suspensiones temporales del rol de cobro judicial, en el término de los últimos doce meses, será retirado definitivamente del rol de abogados.

@@ -1,0 +1,1 @@
+Artículo 91.—Protocolización de piezas de remate. La protocolización de piezas por bienes adjudicados a la Municipalidad, estará a cargo del mismo profesional director del proceso judicial respectivo.

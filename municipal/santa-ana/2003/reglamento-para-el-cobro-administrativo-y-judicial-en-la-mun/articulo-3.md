@@ -1,0 +1,6 @@
+Artículo 3°—Definición de obligación del contribuyente. Para los fines de este Reglamento se entiende por obligaciones tributarias documentadas y no documentadas y por deudas de los contribuyentes lo siguiente:
+1) Aquellas que representen deudas por concepto de impuestos municipales e impuestos nacionales bajo administración del Municipio, que presenten atraso en el pago del principal, y/o intereses, o que se encuentren vencidas.
+2) Aquellas que representen deudas por concepto de tasas y contribuciones especiales que presenten atraso en el pago del principal, y/o intereses, o que se encuentren vencidas.
+3) Aquellas que representen deudas por concepto de alquileres, arrendamientos, préstamos o créditos que se hayan otorgado a beneficiarios de programas municipales que presenten atraso en el pago del principal, y/o intereses, que se encuentren vencidas o que exista algún tipo de incumplimiento que obligue a su vencimiento.
+4) Aquellas obligaciones que incumplan alguna de las cláusulas pactadas entre la Municipalidad y el deudor que faculten al municipio a darlas por vencidas, en forma anticipada o con el vencimiento del plazo de la obligación, del crédito o de la deuda.
+5) Aquellas en las cuales el deudor incurra en cualesquiera de las causales de vencimiento anticipado, que contemplen las leyes y reglamentos aplicables y vigentes.

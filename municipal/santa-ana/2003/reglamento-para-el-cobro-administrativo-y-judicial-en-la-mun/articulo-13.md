@@ -1,0 +1,1 @@
+Artículo 13.—Del rol de asignaciones. El rol de asignaciones consistirá en una lista de los abogados externos contratados por la Municipalidad, ordenada alfabéticamente, que indicará la secuencia en que se le asignará al profesional cada caso.

@@ -1,0 +1,1 @@
+Artículo 23.—Nombramiento o destituciones. Corresponde a la Alcaldía Municipal el promover el nombramiento o destituciones de abogados para cualquier caso, cuando las necesidades de la Municipalidad así lo requieran, previa aplicación del debido proceso.

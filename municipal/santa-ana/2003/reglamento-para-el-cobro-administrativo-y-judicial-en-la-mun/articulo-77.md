@@ -1,0 +1,1 @@
+Artículo 77.—Casos de perjuicio. En aquellos casos en que se determine que la aprobación de una suspensión sea perjudicial a los intereses de la Municipalidad, el Director de Asuntos Jurídicos Municipal enviará una nota explicativa a quien la otorgó a fin de que la modifique o acepte el riesgo apuntado, bajo su responsabilidad.

@@ -1,0 +1,1 @@
+Artículo 120.—Legislación supletoria. Se considera para lo no contemplado en este Reglamento, al Código Civil, Código Procesal Civil, la Ley General de Administración Pública y el Código de Normas y Procedimientos Tributarios como legislación supletoria.

@@ -1,0 +1,1 @@
+Artículo 43.—Inicio de cobro contra abogado. Si producto de algún incumplimiento imputable al abogado, a lo estipulado en el Artículo anterior, la institución inicia un proceso de cobro administrativo o judicial en contra del mismo, lo excluirá en forma definitiva del rol de abogados.

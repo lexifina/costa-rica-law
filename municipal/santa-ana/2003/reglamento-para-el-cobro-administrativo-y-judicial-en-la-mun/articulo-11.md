@@ -1,0 +1,1 @@
+Artículo 11.—Cálculo de gastos administrativos. Para el cálculo de los gastos administrativos de cobro judicial, se aplica lo establecido en la legislación vigente (el Decreto Ejecutivo No. 20307-J del 4 de abril de 1991 y sus reformas).

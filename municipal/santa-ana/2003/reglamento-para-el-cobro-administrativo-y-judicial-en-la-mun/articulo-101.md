@@ -1,0 +1,1 @@
+Artículo 101.—Presentación de la solicitud. El contribuyente debe hacer una exposición escrita de las causas o motivos que lo llevan a presentar la solicitud. Debe anotar el tipo de impuesto, monto de la deuda sin incluir intereses y dirección exacta para atender notificaciones, entre otras cosas.

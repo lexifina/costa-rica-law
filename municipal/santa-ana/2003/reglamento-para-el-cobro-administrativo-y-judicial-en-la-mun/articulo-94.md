@@ -1,0 +1,1 @@
+Artículo 94.—Adjudicación insuficiente. Si adjudicados los bienes, el producto de dicha adjudicación no alcanzare para cancelar el total adeudado, el abogado director deberá presentar liquidación al juzgado, a fin de que se fije el saldo al descubierto, para proceder a perseguir otros bienes a los demandados.

@@ -1,0 +1,1 @@
+Artículo 25.—Caución. Sin perjuicio de los requisitos que establezca el cartel de procedimiento administrativo, el abogado designado para llevar procesos de cobro judicial deberá rendir una caución no menor al equivalente a tres salarios base, por el plazo del nombramiento. El concepto de salario base será el establecido en el artículo 2 de la Ley N° 7337 del 05 de mayo de 1993.

@@ -1,0 +1,1 @@
+Artículo 71.—Suspensión del abogado. Si el abogado fuese suspendido en forma definitiva, y tuviere asignados casos, el profesional deberá devolver a la Municipalidad los expedientes y demás documentos que formen parte de los mismos para proceder a su reasignación, y presentar inmediatamente a la autoridad judicial correspondiente el respectivo escrito de renuncia.

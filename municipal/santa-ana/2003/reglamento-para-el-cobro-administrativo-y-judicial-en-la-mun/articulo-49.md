@@ -1,0 +1,1 @@
+Artículo 49.—Requerimientos mínimos del bufete. Todo abogado deberá contar como mínimo en su oficina, con un teléfono, facsímil, correo electrónico y oficina abierta dentro del circuito judicial de Santa Ana y/o el Segundo Circuito Judicial, Goicoechea.

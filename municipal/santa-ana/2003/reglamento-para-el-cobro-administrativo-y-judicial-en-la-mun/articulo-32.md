@@ -1,0 +1,1 @@
+Artículo 32.—Embargos de salarios. Tratándose de embargos de salarios, corresponde al abogado director del juicio velar porque la resolución que resuelve en su oportunidad la petición presentada, se ajuste a lo que la institución liquidó y se estén realizando las respectivas retenciones y tramitar su giro a la Municipalidad.
