@@ -1,0 +1,1 @@
+Artículo 9º—No obstante lo indicado anteriormente, la Gerencia y Subgerencia General, así como la Dirección Jurídica de CORBANA S. A. podrán participar activamente en las funciones de gestión tributaria de la Sección de Ingresos y Egresos, en el área de sus respectivas competencias.

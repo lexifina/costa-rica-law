@@ -1,0 +1,1 @@
+Artículo 26.—En toda demanda judicial se solicitará el embargo de bienes muebles e inmuebles, cuentas de ahorro y corrientes, cajas de seguridad y demás valores bancarios, derechos en general y acciones del deudor y sus fiadores o avalistas, estos dos últimos si los hubiere.

@@ -1,0 +1,3 @@
+SECCIÓN IV
+De los arreglos de pago y readecuación de deudas
+Artículo 34.—Procederá el arreglo de pago en toda gestión de cobro administrativo y/o judicial en que el deudor moroso lo solicite a alguno de los órganos que conforman la Administración de CORBANA S. A., y esta o alguno de sus órganos debidamente legitimados aprueben un arreglo o plan de pagos, con las garantías y demás condiciones que así se requieran para el caso particular. Queda claro que no podrá condonarse intereses y capital, siendo que lo relativo a las costas irrogadas se cancelará al abogado director del asunto, legitimado para el cobro

@@ -1,0 +1,1 @@
+Artículo 7º—Las actuaciones de CORBANA S. A. como administración tributaria se notificarán a tenor de lo dispuesto por el artículo 137 del Código de Normas y Procedimientos Tributarios, operando como normativa supletoria a este respecto la Ley de Notificaciones, Citaciones y otras Comunicaciones Judiciales, Ley General de Administración Pública y el Código Procesal. Civil

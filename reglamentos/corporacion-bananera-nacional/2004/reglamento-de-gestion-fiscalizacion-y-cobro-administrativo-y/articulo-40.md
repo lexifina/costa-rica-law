@@ -1,0 +1,1 @@
+Artículo 40.—En esos casos, la Junta Directiva resolverá la incobrabilidad de la deuda, luego de conocer el Informe planteado para esos efectos, mismo que se sujetará lo dispuesto por el presente Reglamento.

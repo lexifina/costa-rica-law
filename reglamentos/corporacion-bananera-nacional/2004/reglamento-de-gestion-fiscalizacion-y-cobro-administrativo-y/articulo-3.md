@@ -1,0 +1,3 @@
+CAPÍTULO II
+Principios generales
+Artículo 3º—CORBANA S. A. como administración tributaria de la contribución parafiscal de los cinco centavos ejecutará sus funciones en este campo a través de la materialización de todas las diligencias, acciones, medidas y actuaciones tendientes a asegurar el efectivo y cabal cumplimiento por parte de los sujetos pasivos, de la obligación dispuesta en el artículo 23 de Ley Nº 4895 y sus reformas, sea la efectiva contabilización, acreditación y cobro de la citada contribución. En ese sentido, deberá implementar y ejecutar todos los mecanismos de control, supervisión, coordinación y planificación necesarios a fin de lograr esa atribución legal.

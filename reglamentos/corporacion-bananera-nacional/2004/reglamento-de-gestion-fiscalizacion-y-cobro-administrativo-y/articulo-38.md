@@ -1,0 +1,1 @@
+Artículo 38.—La terminación del proceso judicial a instancia del deudor, procederá solo cuando el mismo formalice arreglo de pago con CORBANA S. A. o cancele de forma total la deuda por concepto de la contribución parafiscal de los cinco centavos.

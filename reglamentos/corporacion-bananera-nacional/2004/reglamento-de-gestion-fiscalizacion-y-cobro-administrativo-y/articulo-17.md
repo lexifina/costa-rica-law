@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la función de recaudación
+Artículo 17.—A través de la función de recaudación, CORBANA S. A. como administración tributaria de la contribución parafiscal de los cinco centavos, debe ejecutar todas las actividades necesarias a fin de materializar la efectiva recepción de los recursos provenientes de la citada contribución, sea en la etapa en que se encuentre la respectiva gestión. De no verificarse el pago de la forma preceptuada por la ley y este Reglamento, CORBANA S. A. se encuentra habilitada para ejercer el cobro coactivo a través de dos grandes actuaciones, por un lado, lo relativo a la gestión de cobro administrativo, y por el otro, todo lo concerniente a la función de cobro judicial.

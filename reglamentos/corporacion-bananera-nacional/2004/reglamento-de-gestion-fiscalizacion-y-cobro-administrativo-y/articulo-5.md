@@ -1,0 +1,1 @@
+Artículo 5º—Todas las funciones de CORBANA S. A. como administración tributaria se realizarán en horas y días hábiles, requiriéndose de habilitación expresa del respectivo superior corporativo, en caso de que se requiera la actuación administrativa en días u horas distintos de los anteriores.
