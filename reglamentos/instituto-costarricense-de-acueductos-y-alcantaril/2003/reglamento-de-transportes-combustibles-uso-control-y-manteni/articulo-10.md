@@ -1,0 +1,1 @@
+Artículo 10.—La Dirección de Servicios Generales, tendrá bajo su responsabilidad la coordinación y control a nivel nacional en materia de flota automotor, razón por la cual hará ante la Administración Superior las recomendaciones que considere pertinentes para lograr un uso racional del recurso.

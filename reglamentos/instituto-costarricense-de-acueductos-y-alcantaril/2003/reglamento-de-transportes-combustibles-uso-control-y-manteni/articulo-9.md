@@ -1,0 +1,1 @@
+Artículo 9º—La Administración Superior anualmente planificará estratégicamente y se apoyará en todo lo relacionado a la adquisición, uso, control y mantenimiento de los vehículos en todo el país en la Dirección de Servicios Generales.2

@@ -1,0 +1,1 @@
+Artículo 77.—El Apéndice "A" regula lo relativo a la Boleta de Control y Autorización de Ruedo (jornada ordinaria) y en el APÉNDICE "B" lo relativo a la BOLETA DE CONTROL Y AUTORIZACIÓN DE RUEDO (JORNADA EXTRAORDINARIA Y EL APÉNDICE C) A LO RELATIVO A COMBUSTIBLE.

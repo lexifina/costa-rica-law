@@ -1,0 +1,1 @@
+Artículo 32.—Los cupones para combustible de vehículos, no deben ser utilizados para otros fines; se asignarán cupones específicos para el abastecimiento de equipo de bombeo o equipo especial o maquinaria.

@@ -1,0 +1,14 @@
+CAPÍTULO VIII
+De los usuarios de los servicios de transportes deberes y responsabilidades
+Artículo 20.—Son usuarios todas las personas autorizadas que se trasladen o transportes en vehículos de AyA. Con independencia de su relación de servicios con AyA, y deben cumplir las siguientes disposiciones:
+1. Conocer y cumplir las disposiciones establecidas en el presente reglamento.
+2. Portar el carné que lo identifica como funcionario de este Instituto, mientras viaja en vehículos del AyA; salvo el caso de particulares autorizados por escrito por la Administración Superior, Jefes Regionales, Directores Funcionales o la Dirección de Servicios Generales; consignando el nombre y número de cédula o residencia o pasaporte en los casos previstos en el inciso veintitrés del artículo diecinueve de este Reglamento.
+3. Las personas que laboran para la institución en la modalidad por contrato deberán portar una credencial extendida preferiblemente por la Oficina de Recursos Humanos desconcentrada o por el encargado de Transportes correspondiente, cuando se haya previsto facilitar el vehículo, y así lo haya establecido el proceso licitatorio o convenio institucional debidamente aprobado por el ente Contralor.
+4. Hacer uso de los servicios de transportes que presta el AyA, en situaciones plenamente justificadas y por razón del desempeño de las labores propias de la Institución.
+5. Mantener una actitud de respeto hacia el conductor quien es el encargado del vehículo, así como para con otras personas que viajan dentro del vehículo, transeúntes, autoridades y las que se encuentran fuera de éste.
+6. Reportar al Encargado de Transportes respectivo correspondiente cualquier irregularidad que observe en el transcurso del servicio, ya fuese en el vehículo o en el cumplimiento del presente Reglamento.
+7. Ningún usuario está autorizado para:
+1. Obligar al conductor a continuar operando un vehículo cuando se vea en la necesidad de detener la marcha debido a un posible desperfecto mecánico, eléctrico o del clima, derrumbes o desastres, o cuando fisiológicamente el conductor no se encuentre en estado saludable para realizar la gira, así como cuando lo impidan otras circunstancias para la seguridad de las personas y los bienes de AyA o de terceros.
+2. Obligar al conductor a conducir un vehículo en un lapso mayor de 8 horas casi ininterrumpidamente o un recorrido mayor de 400 kilómetros en un mismo día, o no permitirle descansar cuando fisiológicamente él lo requiera.
+3. Exigir la conducción del vehículo a una velocidad mayor o menor de la permitida en la zona. En el primer caso no podrá aducirse urgencia en el servicio.
+4. Obligar al conductor trasladarlo en el vehículo, si el pasajero se encuentra en estado de ebriedad o intoxicado con otras drogas, fumar dentro del vehículo, o recibir improperios.

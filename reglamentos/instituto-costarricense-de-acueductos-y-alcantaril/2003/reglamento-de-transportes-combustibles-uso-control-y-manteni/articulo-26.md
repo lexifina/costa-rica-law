@@ -1,0 +1,1 @@
+Artículo 26.—Las Unidades de Transportes les corresponderá distribuir los cupones de combustible y en forma individual por vehículo, maquinaria o equipo especial, informar mensualmente a la Dirección de Servicios Generales el consumo en litros, recorrido en kilómetros y actividad de cada vehículo, para el control y evaluación del rendimiento.

@@ -1,0 +1,1 @@
+Artículo 41.—El encargado de Transportes y combustible para su abastecimiento, debe calcular cada mes la cantidad de cupones de Recope y/o Internos, de acuerdo a las cuotas establecidas y a las existencias: la cuota global no debe incrementarse en más de un 5% del consumo mensual promedio. Para esto utilizará la fórmula "Justificación de Cantidad a Pedir".

@@ -1,0 +1,1 @@
+Artículo 38.—Mensualmente cada Proceso deberá de remitir a la Dirección de Servicios Generales un informe con el detalle del recorrido y consumo de todos los vehículos, mediante la fórmula "Control de Combustible y Kilómetros Recorridos", indicando las observaciones correspondientes para vehículos que no circularon durante el periodo.

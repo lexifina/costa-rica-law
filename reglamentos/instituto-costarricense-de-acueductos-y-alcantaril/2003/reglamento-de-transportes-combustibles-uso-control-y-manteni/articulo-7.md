@@ -1,0 +1,17 @@
+Artículo 7º—Para los efectos de este Reglamento se definen los siguientes términos:
+AyA: Instituto Costarricense de Acueductos y Alcantarillados. Administración Superior: Presidencia Ejecutiva, Gerencia y Subgerencia.
+Conductor: Toda persona autorizada mediante la licencia oficial y la de AyA y Permisos de Autorización de Ruedo, a conducir vehículos de AyA prestando servicios a la Institución.
+Dar de alta a un vehículo: Dar de alta a un automotor cuando se realiza la inclusión en el registro de la contabilidad de la Institución.
+Dar de baja a un vehículo: La baja de automotor es cuando se excluye de los registros contables, se tramita su desincripción y venta.
+Director Regional: Es el jefe de mayor jerarquía dentro de las regiones Metropolitana, Brunca, Pacífico Central, Chorotega, Central y Huetar.
+Director de Área: Es el jefe de mayor jerarquía dentro de las direcciones con injerencia técnica en todo el país.
+Estacionamiento oficial: Instalaciones de AyA donde deben guardarse los vehículos y maquinarias.
+Institucional: Lo relativo o perteneciente a AyA.
+Jornada ordinaria administrativa de ruedo: Es el lapso comprendido entre las 7:45 a. m. hasta las 4:00 p. m. en que se autoriza a los vehículos de AyA a circular normalmente y así se consigna en la BOLETA DE AUTORIZACIÓN DE RUEDO (Jornada ordinaria), la cual se hace de forma mensual. Esta boleta es obligatorio portarla ya que en cualquier momento podrían solicitarla las autoridades de la Policía de Tránsito.
+Jornada ordinaria de ruedo para áreas de operación mantenimiento e investigación en sistemas: Responde a la orden de trabajo diario autorizada por el Director respectivo y corresponde al lapso de tiempo entre las 5:00 a. m hasta las 20:00 p. m. en que se autoriza a los vehículos de AyA a circular normalmente según la naturaleza de las actividades del funcionario y que así se consigna en la BOLETA DE AUTORIZACIÓN DE RUEDO (Jornada ordinaria), la cual se hace de forma diaria, semanal o mensual según las actividades a realizar con el vehículo. Esta boleta es obligatorio portarla ya que en cualquier momento podrían solicitarla las autoridades de la Policía de Tránsito.
+Jornada extraordinaria de ruedo: Es el lapso comprendido entre las 16:00 horas hasta las 22:00 horas en que se autoriza a los vehículos de AyA a circular en forma extraordinaria y así se consigna en las BOLETAS DE AUTORIZACIÓN DE RUEDO (Jornada extraordinaria), que se hace cada vez que el funcionario requiere conducir un vehículo de AyA en el cumplimiento de sus funciones dentro del horario indicado. La Boleta es diaria o semanal, no puede ser mensual. Casos muy especiales debe autorizarlos la Dirección de Servicios Generales. Esta boleta es obligatorio portarla ya que en cualquier momento podrían solicitarla las autoridades de la Policía de Tránsito.
+MOPT: Ministerio de Obras Públicas y Transportes.
+Pool de vehículos: Es la agrupación de vehículos administrados en forma centralizada por Servicios Generales, el Encargado de Transportes de la Región o Dirección Funcional.
+Pernoctar: Lugar donde el funcionario pasa la noche.
+Salida de operación de un vehículo: Retiro del automotor del servicio de la institución, entrega de placas y el trámite de su correspondiente desinscripción en el Registro Público de la Propiedad de Vehículos Automotores, y actividad para vender a terceros la chatarra.
+Usuario: Toda persona debidamente autorizada, para ser traslada en vehículos de AyA.

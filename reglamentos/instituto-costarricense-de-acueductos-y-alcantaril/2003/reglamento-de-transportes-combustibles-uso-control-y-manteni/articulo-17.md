@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De los conductores de vehículos, maquinaria y equipos especiales de AyA, protecciones, deberes y responsabilidades
+Artículo 17.—Los vehículos de AyA, son exclusivamente para el cumplimiento de las actividades, la prestación eficiente y eficaz de los servicios públicos, por lo que su uso queda sujeto a las leyes, reglamentos, normas y directrices que al efecto emita la Administración Superior, de tal forma que su asignación a un funcionario no es exclusiva, no le genera derechos adquiridos ni corresponde a salario en especie, en cualquier momento podrá suprimirse, variarse o dimensionarse su uso y destino.

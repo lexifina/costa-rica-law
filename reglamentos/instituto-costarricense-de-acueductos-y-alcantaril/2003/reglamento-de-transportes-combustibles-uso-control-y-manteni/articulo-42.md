@@ -1,0 +1,1 @@
+Artículo 42.—El encargado preparará cada mes la fórmula "Solicitud de Equipo y Materiales", para los cupones de RECOPE, con base en la fórmula "Justificación de Cantidad a Pedir" y será firmada por el Director de Servicios Generales, previa revisión de ambos formularios.

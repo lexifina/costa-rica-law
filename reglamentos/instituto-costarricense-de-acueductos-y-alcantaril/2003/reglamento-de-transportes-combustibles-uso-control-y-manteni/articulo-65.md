@@ -1,0 +1,1 @@
+Artículo 65.—No se podrán efectuar modificaciones presupuestarias para la compra de vehículos, maquinaria o equipo especial, salvo que la misma sea llevada a cabo por el Área de Transportes de la Dirección de Servicios Generales. En este caso la compra también se efectuará por la Dirección de Suministros.

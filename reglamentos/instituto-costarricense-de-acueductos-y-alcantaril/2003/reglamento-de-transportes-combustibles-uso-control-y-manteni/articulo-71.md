@@ -1,0 +1,1 @@
+En Reglamento de Transporte, Combustible, Uso, Control y Mantenimiento de Vahículos, Maquinaria y Equipos Especiales del Instituto Costarricense de Acueductos y Alcantarillados (AyA), publicado en La Gaceta N° 152 de 8 de agosto del 2003, no tiene artículo 71.

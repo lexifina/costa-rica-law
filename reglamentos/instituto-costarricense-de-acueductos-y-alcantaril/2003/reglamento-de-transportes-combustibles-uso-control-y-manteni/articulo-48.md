@@ -1,0 +1,1 @@
+Artículo 48.—El usuario debe presentar las facturas de combustible, expedidas por las distribuidoras de combustible, en buenas condiciones y libre de tachones. En caso de que no se encuentren en las condiciones establecidas y el proceso responsable decida aceptarlas, deberá justificar la acción y asumir la responsabilidad del estado del documento.

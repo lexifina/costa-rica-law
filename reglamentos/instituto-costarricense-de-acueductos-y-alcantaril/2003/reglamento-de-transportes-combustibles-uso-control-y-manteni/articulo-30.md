@@ -1,0 +1,1 @@
+Artículo 30.—El Director de Área o Regional es responsable de la determinación de la cuota de combustible anual, que utilizará la zona así como la de la asignación individual para cada vehículo, maquinaria o equipo especial.

@@ -1,0 +1,40 @@
+CAPÍTULO IV
+De la Dirección de Servicios Generales, deberes y responsabilidades
+Artículo 14.—Corresponde a la Dirección de Servicios Generales, como dependencia subordinada jerárquicamente de la Gerencia General, la responsabilidad de controlar la flota automotor de AyA y tendrá a su cargo las siguientes funciones:
+1. Planificar, organizar, coordinar y controlar todas las actividades de orden administrativo relacionadas con el uso, control y mantenimiento de los vehículos, conforme con la ley, reglamentos, normas, directrices y políticas que al respecto dicte la Administración Superior.
+2. Formular objetivos y metas generales sobre uso, control y mantenimiento de los vehículos.
+Definir las políticas que orienten la actividad de AyA hacia el logro de los objetivos y metas en el uso, control y mantenimiento de los vehículos.
+3. Velar y mantener actualizados los procedimientos esenciales para el desarrollo de la actividad: uso, control y mantenimiento de los vehículos.
+4. Plantear y desarrollar proyectos de factibilidad que tiendan a optimizar los recursos de transporte.
+5. Definir los deberes y responsabilidades del uso, control y mantenimiento de los vehículos, desde la Dirección que dirige hasta los encargados de transportes de región y dependencias desconcentradas.
+6. Definir y asignar por escrito cada una de las funciones de las Oficinas de Transportes así como el perfil técnico profesional de quien debe desempeñarlas.
+7. Mantener actualizadas las funciones de supervisión (inspección de vehículos) relacionadas con el uso, control y mantenimiento de los vehículos.
+8. Realizar inventarios e inspecciones de todas las unidades incluyendo las de uso discrecional.
+9. Velar por que cada unidad responsable del vehículo, lleve actualizado el expediente individualizado, que contenga los registros e información actualizadas, las estadísticas necesarias que reflejen la evaluación y control de los vehículos, combustible, refracciones y demás actividades a que alude este Reglamento en especial el artículo dos inciso cuatro.
+Recomendar a la Administración superior dar de baja y sacar de operación los vehículos que no se encuentren aptos para operar. Una vez aprobado realizar los trámites de entrega de placas y desincripción del vehículo, así como gestionar ante la Dirección de Suministros la venta, según los procedimientos en Manual de Procedimientos y Reglamento de Activos Fijos vigente.
+Llevar el control de los vehículos que están en desuso y realizar las gestiones necesarias para su venta inmediata y cuando corresponda gestionar los trámites de desinscripción antes de que culmine el proceso licitatorio y cancelación de gravámenes cuando existan.
+12. Recibir las solicitudes de adquisición de nuevos vehículos, maquinaria y equipos especiales, elaborar los carteles de licitaciones en concordancia con el Reglamento de Activos, recibir las adquisiciones de nuevos automotores y constatar que las mismas correspondan a las especificaciones solicitadas en el cartel u ofrecidas por los oferentes y aceptadas por AyA.
+13. Recibir las solicitudes para el arrendamiento de maquinarias, equipos especiales, así como el arrendamiento de vehículos de los funcionarios, y recomendar su procedencia a la Administración Superior, confrontando las estadísticas en la prestación del respectivo servicio que se trate y velar por el cumplimiento del control y pago del arrendamiento y los trámites para alquilar servicios de transporte sean hechos dentro de la mayor transparencia y en cumplimiento con la ley.
+14. Cuando corresponda, gestionar ante los organismos competentes los permisos de salida del país de los vehículos, previa autorización de la Administración Superior.
+15. Realizar los trámites de inscripción de los automotores nuevos o donados a nombre de la Institución, y todo lo que sea necesario para que las unidades inicien la circulación de acuerdo con los términos de las leyes reguladoras en la materia.
+16. Velar porque los vehículos y maquinaria nuevos, adquiridos por la institución o donados, sean debidamente inscritos, rotulados, preferiblemente pintados de siam - celeste, patrimonializados y contabilizados, que cuenten con los permisos de circulación, revisión técnica y depreciados, de acuerdo con lo que al respecto establecen las leyes, reglamentos y el Reglamento de Activos Fijos.
+17. Coordinar con otras instituciones, ministerios o Poderes del Estado, el préstamo de vehículos entre AyA, la decisión emanará de la Administración Superior (según artículos 241, 242 y 243 de la Ley de Tránsito). Y en especial en los procesos electorales, de emergencia nacional, actividades propias de AyA donde deba trasladarse personas que no sean funcionarios u otras actividades temporales de colaboración interinstitucional, debidamente aprobadas, legalmente procedentes y razonablemente justificadas para el adecuado servicio público que se trate.
+18. Definir el procedimiento de atención, investigación y trámite de todos los aspectos administrativos y análisis técnicos que sean necesarios llevar a cabo, con motivo de accidentes de tránsito en que se involucren vehículos de AyA.
+19. Llevar expediente por cada conductor autorizado, estadísticas y registro de accidentes de tránsito, con indicación de los daños y perjuicios, costos, pólizas pagadas, multas y sanciones impuestas a nivel administrativo y judicial a los que se sometan los funcionarios. Remitir al Área Legal correspondiente de la Dirección Jurídica, el respectivo informe. Dependiendo de la frecuencia, magnitud y culpabilidad de éstos, se podrá, con la anuencia de la Administración Superior, suspender de inmediato el permiso para conducir vehículos de AyA de aquellos funcionarios no nombrados en puestos como conductores de vehículos; en caso que los funcionarios estuvieran nombrados como conductores de vehículos, para lo cual la recomendación deberá de emitirse dentro del respectivo proceso garantizando el debido proceso, salvo casos de evidente infracción a la normativa legal y reglamentaria, en la cual en forma preventiva se ordenará interlocutoriamente la respectiva suspensión de conducción de vehículos institucionales.
+20. Recomendar y solicitar a la Administración Superior la adopción de las directrices y procedimientos para la realización de las pruebas correspondientes para la entrega de las licencias para conducir vehículos y maquinarias institucionales a los funcionarios que por la índole de sus labores, requieran conducir vehículos de la Institución.
+21. Cuando así corresponda, mantener informada a la Secretaría Técnica de la Autoridad Presupuestaria del Ministerio de Hacienda o de cualquier otro ente fiscalizador o regulador del estado, del ingreso de nuevos vehículos, desecho y venta de unidades sacadas de operación así como del tamaño de la flota y cualquier otra información requerida.
+22. Dirección de Servicios Generales, presentará a la Administración Superior las estadísticas correspondientes y velará por el cumplimiento de los siguientes controles:
+Control del uso eficiente de los vehículos, maquinaria y equipo especial.
+Control y mecanismos de seguridad de los vehículos que transportan cloro y otras sustancias peligrosas.
+Control de uso y rendimiento de combustible, para lo cual solicitará informes mensuales a los correspondientes encargados de transportes de las regiones.
+Control de estacionamientos.
+Control de gastos de mantenimiento preventivo y correctivo.
+Control de uso y políticas de compra de para llantas.
+Control de uso de baterías y repuestos.
+Control del destino de los repuestos retirados del vehículo.
+Control de la existencia de los expedientes de vehículos y conductores.
+Control de pago de kilometraje de los vehículos de funcionarios que se encuentren arrendados y la evaluación de actividades y resultados.
+Control de la vigencia y cobertura de las pólizas de seguros de vehículos.
+Cualesquiera otra que establezcan las leyes y el Reglamento.
+1 Artículo 228 de la Ley de Tránsito por Vías Públicas Terrestres
+2 Artículo 229 de la Ley de Tránsito por Vías Públicas Terrestres

@@ -1,0 +1,1 @@
+Artículo 43.—Servicios Generales archiva la fórmula "Justificación de Cantidad a Pedir", y envía a la Dirección de Suministros la solicitud de compra de combustible, con el debido trámite de contenido presupuestario, con la cual podrá hacer retiro de cupones solicitados.

@@ -1,0 +1,1 @@
+Artículo 12.—La Dirección de Servicios Generales cuando lo considere conveniente, convocará a talleres de capacitación, trabajo y planificación a los encargados de transportes desconcentrados. Para efectos de lograr una comunicación más fluida y efectiva respecto de las políticas, directrices y procedimientos en materia de transportes.
