@@ -13,3 +13,4 @@ Guia Estudio Impacto Ambiental para Explotación Cauces Dominio Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-02-23 | la propia norma |
+| 2 | 1997-10-13 | Decreto Ejecutivo 26540 (1997-10-13) |
