@@ -1,0 +1,1 @@
+Art. 4°. Vencido el término de la exención de que habla el artículo anterior, y por otro período de quince años, la empresa pagará por todo derecho de importación y muellaje del carbón mineral que necesite, solamente un peso por cada mil kilogramos de peso.
