@@ -1,0 +1,1 @@
+Artículo 2°—La superficie de la reserva así definida en el artículo 1°, siendo un poco inferior a la establecida por el decreto No 8514-G y ante la imposibilidad de extender más la reserva en la Zona de Abrojos, se compensará por la inclusión de una superficie equivalente en la reserva Guaymí de Coto Brus.
