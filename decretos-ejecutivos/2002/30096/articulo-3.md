@@ -1,0 +1,1 @@
+Artículo 3°—La Escuela Iberoamericana de Gobierno y Políticas Públicas, sede en Costa Rica, coordinará con las Instituciones y Empresas Estatales los asuntos correspondientes a su organización y planeamiento, quienes podrán brindar todas las facilidades y cooperación necesarias en procura del desenvolvimiento exitoso del Seminario.
