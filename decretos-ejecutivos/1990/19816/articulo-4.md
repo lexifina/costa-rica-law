@@ -1,0 +1,1 @@
+Artículo 4°.— La designación de cada miembro por sus instituciones deberá hacerse tomando en cuenta su reconocida labor en los campos de educación ambiental, tanto a nivel profesional como en las labores de formación ambiental costarricense.

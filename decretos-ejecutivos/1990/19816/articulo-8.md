@@ -1,0 +1,1 @@
+Artículo 8°.— La RNFA podrá invitar a sus sesiones, a miembros de otras comisiones o entidades para conocer, coordinar o establecer mecanismos de cooperación. Los invitados podrán intervenir en las sesiones con derecho a voz, pero sin voto.
