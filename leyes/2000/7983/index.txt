@@ -97,6 +97,7 @@ articulo-6-transitorio.md
 articulo-7-transitorio.md
 articulo-8-transitorio.md
 articulo-9-transitorio.md
+articulo-10-transitorio.md
 articulo-11-transitorio.md
 articulo-12-transitorio.md
 articulo-13-transitorio.md
@@ -105,4 +106,3 @@ articulo-15-transitorio.md
 articulo-16-transitorio.md
 articulo-17-transitorio.md
 articulo-18-transitorio.md
-articulo-19-transitorio.md

@@ -1,1 +1,4 @@
-TRANSITORIO XV.- Para los afiliados a un plan colectivo o individual de fideicomiso, que deseen participar en el Régimen Voluntario de Pensiones Complementarias y Ahorro Voluntario, trasladando la totalidad o parte de los recursos acumulados en el fideicomiso, se les respetará la antigüedad acumulada y las demás condiciones establecidas en los contratos respectivos.
+TRANSITORIO XVI.- La suma fijada en el artículo 76 de esta ley se conformará paulatinamente, como mínimo, en la siguiente forma:
+a) Durante el primer año de vigencia de la ley: mil millones de colones (¢1.000.000.000,00).
+b) Durante el segundo año de vigencia de la ley: dos mil millones de colones (¢2.000.000.000,00).
+c) Durante el tercer año de vigencia de la ley: tres mil millones de colones (¢3.000.000.000,00).
