@@ -1,0 +1,2 @@
+Art 3° La administración de los terrenos y de los caudales que su venta produzca corresponde a la Municipalidad de la Provincia, sin que tales terrenos y caudales, por el fin a que se destinan puedan considerarse como bienes eclesiásticos.
+Al Poder Ejecutivo. – Dado en el Salón de Sesiones, Palacio Nacional, San José julio veintinueve de mil ochocientos setenta y seis. Palacio Nacional, San José, julio veintinueve de mil ochocientos setenta y seis.
