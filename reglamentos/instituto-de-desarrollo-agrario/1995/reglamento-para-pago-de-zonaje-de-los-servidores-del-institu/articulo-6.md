@@ -1,0 +1,1 @@
+Artículo 6°—Los trabajadores que devengan Zonaje, podrán cobrar viáticos, cuando por motivo de su trabajo, deban movilizarse fuera de la zona dentro de un radio no menor de veinte kilómetros. Dichos gastos (alimentación, hospedaje y pasaje) se regirán por el reglamento de Viáticos vigente.

@@ -1,0 +1,1 @@
+Artículo 8°—El servidor que por permanecer fuera de su lugar de trabajo por un lapso de 30 días o más, recobrara el beneficio del Zonaje a partir de la fecha de su reingreso. Es indispensable la comunicación previa por escrito al Departamento de Recursos Humanos del Instituto de Desarrollo Agrario.

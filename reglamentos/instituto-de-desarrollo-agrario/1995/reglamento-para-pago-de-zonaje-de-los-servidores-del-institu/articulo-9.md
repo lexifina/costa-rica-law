@@ -1,0 +1,1 @@
+Artículo 9°—Para el cumplimiento de lo dispuesto en los artículos anteriores, el Departamento de Recursos Humanos vigilará la permanencia del servidor, en la jurisdicción territorial asignada conjuntamente con la Dirección correspondiente.

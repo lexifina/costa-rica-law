@@ -1,0 +1,1 @@
+Artículo 17.—Este reglamento deroga el Reglamento de Zonaje vigente en el Instituto de Desarrollo Agrario, aprobado por la Junta Directiva en artículo XVII, de la sesión No 2525 del 1° de diciembre de 1981, publicado en “La Gaceta” del 11 de enero de 1982, y cualquier otra disposición que se le oponga.

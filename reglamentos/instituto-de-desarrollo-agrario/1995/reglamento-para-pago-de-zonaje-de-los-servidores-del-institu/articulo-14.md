@@ -1,0 +1,1 @@
+Artículo 14.—Las planillas para el pago de Zonaje a servidores de la institución se confeccionan bajo la responsabilidad de la Sección de Planillas, a cuyo efecto toda inclusión deberá contar con la correspondiente Acción de Personal debidamente autorizada.

@@ -1,0 +1,1 @@
+Artículo 15.—Las infracciones a lo establecido en el presente Reglamento, se sancionaran al tenor de lo dispuesto en el Reglamento Autónomo de Servicio, Estatuto del Servicio Civil y su Reglamento, Código de Trabajo y Lineamientos de la Junta Directiva del Instituto de Desarrollo Agrario.
