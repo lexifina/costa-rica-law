@@ -1,0 +1,3 @@
+MUNCIPALIDAD DE MATINA
+REGLAMENTO PARA COBRO DE IMPUESTO A CONCESIONARIOS DE CANTERAS Y/O EXTRACCION DE MATERIALES EN LOS CAUCES DE DOMINIO PUBLICO UBICADO EN EL CANTON DE MATINA
+Artículo 1°-De conformidad con lo establecido en el artículo 36 del Código de Minería, Ley 6797 del 4 de octubre de 1982, Código de Normas y Procedimientos Tributarios, ley número 4755 del 3 de mayo de 1971 y el artículo 4 inc. A) y el artículo 13 inciso c) del Código Municipal ley 7794 del 27 de abril de 1998: La Municipalidad de Matina dicta el presente Reglamento para el Cobro del Impuesto por Extracción de Materiales en los cauces de Dominio Público.

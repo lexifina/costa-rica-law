@@ -1,0 +1,1 @@
+Artículo 4°-La base imponible de este impuesto la constituye el valor total a precio de mercado del material extraído cuya explotación esté autorizada, sean éstos arena, piedra, lastre o cualquier otro material producto de la extracción.
