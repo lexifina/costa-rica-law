@@ -1,4 +1,6 @@
+(Derogado)
 Nº 7035
+(Esta norma fue derogada por el artículo 5° de la ley N° 8289 del 10 de julio de 2002)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 DECRETA:
 Artículo 1º.- Refórmanse los artículos 5º, inciso d), 21, 22, 23 y 24 de la Ley Orgánica del Ministerio de salud, Nº 5412 del 8 de noviembre de 1973, cuyos textos dirán:

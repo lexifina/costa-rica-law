@@ -1,10 +1,2 @@
-Artículo 22.- La definición de las políticas del Instituto y de su
-gobierno estarán a cargo de una Junta Directiva integrada por siete
-miembros de nombramiento del Poder Ejecutivo, por medio del Ministro de
-Salud. Durarán en sus cargos por dos años y podrán ser reelegidos
-sucesivamente por períodos iguales. Dentro de su propio seno, la Junta
-Directiva, cada año, designará un Presidente, un secretario, un tesorero,
-y cuatro vocales. En la Junta Directiva habrá necesariamente un médico
-especialista en Psiquiatría.
-( Así reformado por el artículo 1 de Ley 7035 de 24 de abril de
-1986).
+Artículo 22.—El IAFA tendrá a su cargo la dirección técnica, el estudio, la prevención, el tratamiento y la rehabilitación de la adicción al alcohol, el tabaco y otras drogas lícitas o ilícitas; además, desempeñará otras funciones que la ley establezca y será el responsable de coordinar y aprobar todos los programas tanto públicos como privados relacionados con sus fines; deberá gestionar la suspensión o el cierre de tales programas, si incumplen los lineamientos estipulados al efecto.
+(Así reformaod por el artículo 1 de la Ley N° 8289 de 10 de julio del 2002)

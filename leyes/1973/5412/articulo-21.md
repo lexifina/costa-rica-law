@@ -1,9 +1,4 @@
 SECCION VIII
 Del Instituto Sobre Alcoholismo y Farmacodependencia
-Artículo 21.- El Instituto sobre Alcoholísmo y Farmacodependencia
-tendrá a su cargo el estudio, prevención, tratamiento y rehabilitación
-del alcoholismo y la farmacodependencia, así como la coordinación y
-aprobación de todos los programas públicos y privados orientados a
-aquellos mismos fines.
-( Así reformado por el artículo 1º de Ley 7035 de 24 de abril de
-1986).
+Artículo 21.—El Instituto sobre Alcoholismo y Farmacodependencia (IAFA) es un órgano con desconcentración mínima, adscrito al Ministerio de Salud, con personalidad jurídica instrumental para administrar los fondos, suscribir contratos, convenios de cooperación o transferencia de recursos, y recibir donaciones de entes públicos o privados, nacionales o extranjeros, necesarios para ejercer sus funciones con estricto apego a su finalidad material y de conformidad con la presente Ley. El IAFA tendrá competencia en todo el territorio nacional.
+(Así reformado por el artículo 1 de la Ley N° 8289 de 10 de julio del 2002)
