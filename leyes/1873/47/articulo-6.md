@@ -1,0 +1,1 @@
+Art 6° Para cubrir los gastos que la creación de este empleado ocasiona, se tasarán con los demás derechos setenta y cinco centavos sobre cada título0 que él presente y cinco centavos sobre cada título que él presente en el concepto de Procurador.
