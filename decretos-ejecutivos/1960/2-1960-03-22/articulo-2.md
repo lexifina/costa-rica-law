@@ -1,0 +1,1 @@
+Articulo 2°—La Dirección General de Obras Públicas, será la única autoridad competente para expedir los Permisos de Puentes y Pavimentos a que se refiere el articulo anterior, y en el ejercicio de estas funciones se sujetará a las disposiciones del presente Reglamento.

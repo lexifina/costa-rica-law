@@ -1,0 +1,1 @@
+Artículo 17.—La Dirección General de Tránsito no entregará las placas y Permisos de Circulación que conforme a la ley se deba otorgar, hasta tanto los concesionarios o portadores de permisos presenten. el "Permiso de Puentes y Pavimentos", para la circulación de sus vehículos, cuando éstos queden comprendidos en las disposiciones del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 4°—Las distancias mínimas entre ejes, las concentraciones máximas de carga por eje, así como las dimensiones máximas de los vehículos en anchura, altura y longitud, a que se refiere el presente Reglamento, son de carácter absoluto y no admiten tolerancia alguna.

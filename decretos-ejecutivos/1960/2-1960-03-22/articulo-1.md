@@ -1,0 +1,7 @@
+N° 2
+EL PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA,
+DECRETA:
+El siguiente
+Reglamento sobre Vehículos de Carga
+Artículo 1°—Para que circulen por los caminos de la red vial los vehículos cuyo peso, incluyendo peso propio y carga útil, exceda de 8.000 kilogramos, será necesario que los concesionarios, los portadores de permisos y en cualesquiera otros casos, sus respectivos dueños, además del correspondiente permiso o concesión de la Dirección General de Tránsito obtengan de la Dirección General de Obras Públicas otro permiso que se denominará "Permiso de Puentes y Pavimentos". En él se expresarán las características del vehículo, tales como sus dimensiones, pesos, carga útil autorizada, el número y las distancias entre ejes, la concentración de carga en los ejes y las especificaciones del motor; asimismo, la ruta o rutas en que debe efectuarse el servicio y los demás datos inherentes al vehículo que la propia Dirección General de Obras Públicas estime necesario.
+Los permisos de Puentes y Pavimentos, deberán ser renovados ante la Dirección General de Obras Públicas durante los tres primeros meses de cada año, previa verificación ,de las características de los vehículos, en los casos que la propia Dirección General de Obras Públicas lo estime necesario. Para la renovación de los Permisos se requerirá la liquidación previa de las multas que estuvieren pendientes de pago por infracciones al presente Reglamento. Quedarán sin efecto todos aquellos permisos en que no se haya cumplido el citado requisito de renovación.

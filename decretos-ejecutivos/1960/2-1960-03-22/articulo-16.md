@@ -1,0 +1,6 @@
+Artículo 16.—Para la mejor observancia de las disposiciones a que se contrae el presente Reglamento, se tomarán las siguientes medidas:
+I.—La Dirección General de Obras Públicas podrá verificar en cualquier tiempo el peso y demás características de los vehículos.
+II.—En los casos de infracción al presente Reglamento, los empleados de la Dirección General de Obras Públicas retirarán de los vehículos la documentación, placas o constancias que procedan según la gravedad de la infracción, entregando al conductor la correspondiente boleta o parte oficial.
+III.—Las infracciones serán calificadas por la Dirección General de Obras Públicas y la documentación, placas o constancias recogidas solamente podrán ser devueltas al interesado contra el comprobante de pago de la multa respectiva, que expida el Banco Central.
+IV.—Si impuesta una sanción el interesado no cubre su importe en un plazo de 45 días, la Dirección General de Obras Públicas solicitará de la Procuraduría General de la República, que haga efectivo el cobro por los medios legales que procedan.
+V.—La Dirección General de Tránsito prestará la cooperación que se haga necesaria a los empleados de la Dirección General de Obras Públicas para hacer efectivas las disposiciones del presente Reglamento.
