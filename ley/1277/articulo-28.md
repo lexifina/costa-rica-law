@@ -1,1 +1,0 @@
-Artículo 28.- Prohíbese bajo pena de nulidad, que en la consideración y decisión de cualquier asunto del Consejo intervenga un miembro que tenga interés personal o lo tenga cualquiera de sus parientes hasta el tercer grado por consanguinidad o afinidad, inclusive.

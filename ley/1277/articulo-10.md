@@ -1,1 +1,0 @@
-Artículo 10°.- Cada clase de servicio tendrá una licitación propia. La clase del servicio se determinará por las distintas modalidades que constituyan categorías debidamente diferenciadas del mismo, de acuerdo con su tarifa, continuidad, naturaleza del vehículo o de sus condiciones de lujo, comodidad y seguridad.

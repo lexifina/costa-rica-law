@@ -1,1 +1,0 @@
-Artículo 25.- Los concesionarios de línea elegirán sus representantes por mayoría de votos, ante la Dirección General de Tránsito. Deberá procurarse que esa representación corresponda tanto a los concesionarios de las líneas interurbanas, como a los de las líneas intercantonales, de modo que si aquellos eligieron el propietario, el suplente corresponderá a éstos y viceversa.

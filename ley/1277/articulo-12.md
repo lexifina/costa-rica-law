@@ -1,1 +1,0 @@
-Artículo 12°.- El servicio del correo oficial, que use este mismo sistema de transporte, será licitado conjuntamente con las líneas proponiéndose en tal caso, entre las condiciones del concurso, las referentes a ese servicio adicional.

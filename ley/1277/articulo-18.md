@@ -1,1 +1,0 @@
-Artículo 18.- A falta de ofertas para hacerse cargo de un servicio o sin todas fueron inconvenientes, se convocará a ulteriores licitaciones, reajustándose las bases del concurso, si fuere lo indicado.

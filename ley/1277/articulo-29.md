@@ -1,1 +1,0 @@
-Artículo 29.- Para la tramitación de los asuntos relativos o estaciones de servicio, itinerarios, rutas, zonas reservadas, términos de estacionamiento, de cada localidad, el Consejo Superior del Tránsito oirá a los delegados especiales que acrediten al efecto las respectivas corporaciones municipales interesadas.

@@ -1,1 +1,0 @@
-Artículo 33.- A falta de norma en esta ley, se aplicarán en su caso las disposiciones de la Ley de Transporte de 29 de noviembre de 1909 y la Ley del Tránsito N°63 de 26 de marzo de 1935 en sus textos anuales.

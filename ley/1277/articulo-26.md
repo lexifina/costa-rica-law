@@ -1,1 +1,0 @@
-Artículo 26.- Los miembros del Consejo citado durarán en sus funciones dos años y pueden ser reelectos. El quórum para celebrar sesiones será de tres miembros y sus acuerdos se tomarán por mayoría no inferior a tres votos; las actas las suscribirán todos los miembros presentes y los acuerdos de interés general se publicarán en el Diario Oficial.

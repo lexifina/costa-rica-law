@@ -1,1 +1,0 @@
-Artículo 19.- Siempre que por motivo justificado o por imposibilidad absoluta no puedan otorgarse las concesiones de línea, podrán extenderse permisos provisionales que faculten su operación durante periodos no mayores de seis meses, sujetos a las condiciones que al buen servicio público requiere, a juicio del Consejo.
