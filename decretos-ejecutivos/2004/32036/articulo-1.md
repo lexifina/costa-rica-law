@@ -1,0 +1,12 @@
+Nº 32036
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En el ejercicio de las facultades y prerrogativas conferidas en el artículo 140, incisos 3) y 18) de la Constitución Política; asimismo con fundamento en los numerales 1, 2 y 3 de la Ley de Creación del Ministerio de Obras Públicas y Transportes Nº 3155 y sus reformas; los artículos 4, 1, 27, 28 incisos 1) y 2), ítemes a) y b) de la Ley General de la Administración Pública Nº 6227 y el numeral 48 de la Ley Nº 7040.
+Considerando:
+1º—Que de conformidad con lo establecido en el artículo 48 de la Ley Nº 7040, constituye una competencia material propia y exclusiva del Ministerio de Obras Públicas y Transportes, la constitución y designación de los funcionarios públicos y ciudadanos que conformarán e integrarán la Junta de Desarrollo Portuario del Cantón de Golfito, nombre atribuido por el decreto ejecutivo 25231-MOPT, confirmados por los Decretos Ejecutivos números 27294-MOPT y 27437-MOPT, con el propósito de que en forma directa, coordinada y eficiente se administren los ingresos provenientes del Puerto de Golfito.
+2º—Que por razones de estricta oportunidad, conveniencia y mérito, este Ministerio ha estimado conveniente en aras del interés público y en virtud de los nombramientos del Ing. Jorge Mora Gutiérrez como Director de la División Marítimo Portuaria del Ministerio del Obras Públicas y Transportes en sustitución del Ing. José Chacón Laurito, y de la Señora Angelita Ortega Ortega actual Delegada Presidencial del Cantón de Golfito, Provincia de Puntarenas, en reemplazo de la Señora Virginia Miranda Cabezas, modificar la constitución y consecuentemente la integración de la Junta de Desarrollo Portuario del Cantón de Golfito. Por tanto:
+DECRETAN:
+Artículo 1º—Se modifica el inciso a) del numeral 1 del Decreto Ejecutivo Nº 31074-MOPT publicado en La Gaceta Nº 61 del 27 de marzo del 2003 y también se modifica el inciso d) del artículo 2 del Decreto Ejecutivo No. 30744-MOPT publicado en La Gaceta Nº 190 del 3 de octubre del 2002, los cuales se leerán de la siguiente manera:
+El inciso a) del numeral 1 del Decreto Ejecutivo Nº 31074-MOPT, se leerá:
+a) Ing. Jorge Mora Gutiérrez, portador de la cédula de identidad número 2-332-318, en su condición de Director de la División Marítimo Portuaria del MOPT, quien la presidirá.
+El inciso d) del artículo 2 del Decreto Ejecutivo Nº 30744-MOPT, se leerá:
+d) Señora Angelita Ortega Ortega, portadora de la cédula de identidad número 9-028-228, vecina de Río Claro de Golfito, como representante de la comunidad, y
