@@ -1,0 +1,1 @@
+Art. 3° Para ser Juez de Hacienda Municipal se necesita que el nombrado sea: 1° ciudadano en el ejercicio de sus derechos: 2° mayor de edad: 3° poseer los conocimientos posibles en materias forenses: 4° ser vecino del lugar de su nombramiento; y 5° tener un capital en bienes raíces que no baje de mil pesos.
