@@ -19,11 +19,11 @@ Se autoriza el traslado de partidas entre subprogramas, con las excepciones aqu�
 DECRETAN:
 Artículo 1º—Modifícase el artículo 2º de la Ley Nº 8180 del 6 de diciembre del 2001 "Ley de Presupuesto Ordinario y Extraordinario de la República, Fiscal y por Programas para el Ejercicio Económico del 2002", en la forma que se indica a continuación:
 REBAJAR:
-TÍTULO: 107
+TÍTULO 107
 Ministerio de Relaciones Exteriores y Culto
-PROGRAMA: 079-00
-ACTIVIDAD CENTRAL
-Registro Contable: 107-079-00
+PROGRAMA 082-00
+POLÍTICA EXTERIOR
+Registro Contable: 107-082-00
 CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
 G-O FF C-E CF I-P Concepto Monto en ¢
 0 SERVICIOS PERSONALES 58.000.000
@@ -56,3 +56,4 @@ TOTAL AUMENTO DEL PRO-
 GRAMA: 081-00 71.500.000
 TOTAL AUMENTO DEL TÍTULO: 107 71.500.000
 TOTAL AUMENTAR 71.500.000
+(Así modificado por el artículo 1° del decreto ejecutivo N° 30902 de 19 de diciembre de 2002).
