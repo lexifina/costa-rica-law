@@ -15,3 +15,4 @@ Reglamento Ley sobre el Desarrollo de la Comunidad
 | --- | --- | --- |
 | 1 | 1968-01-01 | la propia norma |
 | 2 | 1968-08-06 | Decreto Ejecutivo 30 (1968-08-06) |
+| 3 | 1969-02-06 | Decreto Ejecutivo 6 (1969-02-06) |

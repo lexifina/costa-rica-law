@@ -1,1 +1,2 @@
-Artículo 60.- Las asociaciones de desarrollo podrán crear, por acuerdo de la Junta Directiva, grupos de trabajo para el cumplimiento de labores específicas, bajo la dirección del Secretario Ejecutivo.
+Artículo 60.- Las asociaciones de desarrollo integral para el cumplimiento de sus fines, podrán promover dentro de su territorio, el establecimiento de asociaciones especificas o crear grupos de trabajo por acuerdo de Junta Directiva para el cumplimiento de labores especificas bajo la dirección del secretario ejecutivo.”
+(Así reformado por el artículo 1° del decreto ejecutivo N° 6 del 6 de febrero de 1969)

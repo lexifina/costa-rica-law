@@ -1,1 +1,2 @@
-Artículo 39.- la Junta Directiva puede declarar como asociados honorarios, a todas aquellas personas u organismos que le hayan hecho señalados servicios a la asociación, aun cuando no sean de su jurisdicción.
+Artículo 39.- La Junta Directiva puede declarar como asociados honorarios, a aquellas personas u organismos que le hayan hecho señalados servicio a la asociación, aun cuando no sean afiliados ni vecinos de la jurisdicción, y tendrán desde este momento el derecho de fiscalización que establecen los incisos a), b) y c) del artículo 55 del Reglamento.”
+(Así reformado por el artículo 1° del decreto ejecutivo N° 6 del 6 de febrero de 1969)
