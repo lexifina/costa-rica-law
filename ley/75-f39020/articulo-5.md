@@ -1,0 +1,1 @@
+Artículo 5°.- En cualquier momento que se demuestre que sea inscrito una extensión mayor de cincuenta hectáreas, promoviendo separadamente varias informaciones de fundos limítrofes o que se ha tratado de burlar en cualquier forma lo expuesto en las disposiciones anteriores, se decretará nulidad absoluta de la inscripción.

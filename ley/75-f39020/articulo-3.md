@@ -1,0 +1,1 @@
+Artículo 3°.- Las informaciones posesorias o rectificación de las mismas a que se contrae el artículo 854 del Código de Procedimiento Civiles únicamente procede en los casos en que el inmueble ha sido inscrito en virtud de título supletorio. En ninguno de los caso prevenidos en dicho artículo 854 podrá inscribirse un exceso de medida mayor de cincuenta hectáreas.

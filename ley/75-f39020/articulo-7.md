@@ -1,0 +1,1 @@
+Artículo 7°.- Los que en lo sucesivo emprendan, sin el título de que habla el final del artículo anterior, cultivos en las tierras a que se refiere dicho artículo perderán en beneficio del Fisco, el valor de sus mejoras, cultivos o frutos.

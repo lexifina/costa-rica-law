@@ -1,0 +1,1 @@
+Artículo 4°.- La rectificación d la medida que afecte al Fisco por colindar el inmueble con propiedad del Estado, baldíos o de la Milla Marítima o fluvial reservada, se tramitará ante el Juez Primero de lo Contencioso Administrativo con citación y audiencia del Promotor Fiscal.
