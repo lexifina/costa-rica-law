@@ -1,0 +1,1 @@
+Artículo 3°.- Los bonos creados por esta ley devengarán un interés del seis porciento (6%) anual que se pagará por trimestres vencidos, y tendrán una amortización del dos porciento (2%) anual en fondo acumulativo, mediante sorteos trimestrales.
