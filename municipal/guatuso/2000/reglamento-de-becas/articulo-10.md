@@ -1,0 +1,1 @@
+Artículo 10.—Los estudiantes adjudicados de secundaria y educación especial recibirán no menos de ¢ 4.000,00 (cuatro mil colones con 00/100) mensuales. Y los estudiantes universitarios ¢ 6.000,00 (seis colones con 00/100) mensuales.

@@ -1,0 +1,1 @@
+Artículo 6°—La Comisión de Becas, con base en las solicitudes presentadas escogerá a los beneficiarios, dando prioridad en todo caso a los alumnos de menores ingresos familiares y de mejor rendimiento académico, previa visita al hogar.
