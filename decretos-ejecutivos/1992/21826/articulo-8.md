@@ -1,0 +1,1 @@
+Artículo 8°.- Con el fin de resolver caos no previstos en este reglamento, y los casos de solicitud de zonaje en el Área Metropolitana se nombrará la comisión de Zonaje integrada por el Director General Administrativo, el Jefe del Departamento de Recursos Humanos, el Oficial Presupuestal y dos (2) representantes de los trabajadores escogidos en asamblea de los mismo.
