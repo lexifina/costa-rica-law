@@ -1,0 +1,1 @@
+Artículo 6°—El Consejo de Representantes de las Autoridades Científicas dispondrá de hasta 15 días hábiles para dar las recomendaciones técnicas con el fin de determinar si la importación o exportación de unas especies significa algún peligro para las poblaciones de flora y fauna silvestres nacionales.

@@ -1,0 +1,1 @@
+Artículo 5°—La Autoridad Administrativa dispondrá hasta por un período de tiempo de 30 días hábiles para resolver las solicitudes de importación o exportación de especies incluidas en los Apéndices CITES, de acuerdo a la complejidad de la solicitud.
