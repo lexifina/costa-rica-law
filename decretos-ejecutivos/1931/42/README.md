@@ -14,3 +14,4 @@ Reglamento de Archivos Nacionales
 | --- | --- | --- |
 | 1 | 1931-02-06 | la propia norma |
 | 2 | 1932-03-29 | Decreto Ejecutivo 114 (1932-03-29) |
+| 3 | 1947-01-07 | Decreto Ejecutivo 1 (1947-01-07) |
