@@ -1,0 +1,1 @@
+Artículo 36.-El monto de las pensiones de las señoras ex Primeras Damas de la República o de las viudas de los ex Presidentes de la República será igual al que corresponda a la pensión de estos últimos, siempre y cuando no la disfrute el respectivo ex Presidente.

@@ -1,0 +1,1 @@
+Artículo 34.-Se autoriza al Consejo Técnico de Aviación Civil (CETAC) para que destine recursos propios, no prioritarios, que serán utilizados para la solución de necesidades prioritarias del Ministerio de Obras Públicas y Transportes.

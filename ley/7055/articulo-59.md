@@ -1,0 +1,1 @@
+Artículo 59.-Reconóceseles un incremento de hasta el treinta por ciento (30%) sobre el salario base, como retribución por el riesgo inherente a la labor que desempeñan y como reconocimiento de dedicación exclusiva, a aquellos funcionarios pertenecientes al cuerpo de pilotos profesionales que prestan sus servicios en la sección aérea del Ministerio de Seguridad Pública.

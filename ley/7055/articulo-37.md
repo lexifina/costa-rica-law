@@ -1,0 +1,1 @@
+Artículo 37.-Las subejecuciones que se efectúen en los programas del Ministerio de Obras Públicas y Transportes se realizarán en todos sus planes y programas, sin perjuicio de los de edificaciones escolares, especialmente de las zonas rurales.

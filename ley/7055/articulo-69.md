@@ -1,0 +1,1 @@
+Artículo 69.-Autorízase al Ministerio de Economía y Comercio para que utilice el superávit del año 1985, de la cuenta "Indice de precios para la construción", por un monto de un millón novecientos cincuenta y seis mil novecientos cuarenta y dos colones, sesenta céntimos (¢1.956.942,60), en gastos y necesidades urgentes de ese ministerio.

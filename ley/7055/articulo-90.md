@@ -1,0 +1,2 @@
+Artículo 90.-Autorízase a la Municipalidad de Atenas para que varíe el destino de la partida de cincuenta mil colones (¢ 50.000,00), o del saldo que hubiere, que se consigna a su favor en el código 730-446-01-242-30 del programa O.E., de la ley N° 6406 del 17 de diciembre de 1979, para plaza de deportes del distrito.
+La Balsa , a fin de que se le gire a la Asociación Integral de Desarrollo de la comunidad de Río Grande (Concepción), la cual la destinará al Comité de Salud de Balsa para la construcción del salón multiuso y del consultorio médico.

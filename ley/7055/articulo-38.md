@@ -1,0 +1,1 @@
+Artículo 38.-Declárase de interés público la Asociación Misionera de la Iglesía Episcopal Costarricense, cédula jurídica número 3-002-045268-08, inscrita en el Registro de Asociaciones, expediente N° 351, folios 29 a 32.

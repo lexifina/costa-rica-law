@@ -1,0 +1,1 @@
+Artículo 33.-Se autoriza al Instituto Costarricense de Ferrocarriles (lNCOFER) para que, por medio de las municipalidades y sin perjuicio de su propios programas, les done a las comunidades de las provincias de Limón, Cartago y Puntarenas, materiales y equipo que no tengan utilidad para la empresa, a fin de que se utilicen en obras de bienestar social.

@@ -1,0 +1,1 @@
+Articulo 30.-Se autoriza a la Refinadora Costarricense de Petróleo (RECOPE) para que, por medio de las respectivas municipalidades y sin perjuicio de sus propios programas, les done a las comunidades de las provincias de Limón, Puntarenas, Cartago y Alajuela, materiales y equipo que ya no les sean de utilidad, para que sean empleados en obras de bienestar comunal.

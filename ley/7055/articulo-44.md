@@ -1,0 +1,1 @@
+Artículo 44.-Se exonera al Club Rotario de Alajuela de todo tipo de impuestos, tasas, sobretasas y otros, para la compra de un vehículo. Este vehículo podrá ser rifado bajo la fiscalización de la Gobernación de la provincia. Los fondos provenientes de dicha rifa serán destinados al desarrollo de programas de vivienda popular.

@@ -1,0 +1,1 @@
+Artículo 29.-Autorízase a la Dirección General de Adaptación Social del Ministerio de Justicia para que, mediante licitación pública, pueda vender maquinaria y equipo de transporte y de otro tipo, en mal estado. El producto de esta venta ingresará al Patronato de construcción, instalaciones y adquisición de bienes de Adaptación Social, para sus fines de ley.
