@@ -1,0 +1,1 @@
+2°—También asistirá el Jefe y funcionarios del Departamento de Inspectores, a quienes les corresponderá velar porque el programa se desarrolle bajo un sistema de seguridad eficiente y se garantice el orden en la Sala Estudio.

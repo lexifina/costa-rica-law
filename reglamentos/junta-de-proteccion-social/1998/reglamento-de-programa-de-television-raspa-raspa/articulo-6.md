@@ -1,0 +1,12 @@
+6°—PROCEDIMIENTO DE PARTICIPACIÓN:
+6.1 La persona escoge cuantos giros hace de un máximo posible de tres. Si al girar la Rueda esta se detiene en espacio en colones, lo acumula y sigue jugando.
+6.2 Si al girar la Rueda, esta se detiene en un espacio que indica alguna “FRASE”, el participante decide si se queda con los montos ganados, o los deja para obtener uno de los premios indicados en la frase seleccionada. Si esto sucediera en el primer giro irá directamente al juego que indica la casilla con frase.
+En el momento que el participante selecciona una casilla con alguna frase que contiene algún premio y decide ya sea optar por alguno de ellos o quedarse con los premios obtenidos anteriormente, termina su participación en el programa. De tal forma que un concursante puede girar 1, 2 o las 3 veces.
+Antes de la realización de cada programa, los miembros fiscalizadores colocarán al azar los premios en las diferentes casillas, de cada una de las correspondientes frases.
+6.3 El participante que selecciona la casilla con la frase “NO VALE”, no obtiene premio alguno, ni tampoco pierde lo obtenido hasta el momento, pero ese giro cuenta dentro del total de tres giros que tiene derecho a realizar.
+Si algún participante selecciona una casilla con alguna frase, y no quedan premios disponibles en el juego que corresponde a dicha frase, este giro cuenta y no se obtiene premio pues se equipará en la casilla no vale.
+6.4 El participante que selecciona la casilla con la frase “PIERDE TODO”, pierde el monto de los premios que lleva acumulados hasta ese momento. Si esto sucede en el tercer giro de la Rueda, se le otorgará un premio de consolación de #50.000.
+6.5 Si el participante al final de los tres giros, no obtiene premio alguno; se le otorgará un premio de consolación de 050.000.
+6.6 Si al hacer un giro el participante selecciona una de las casillas de “Resta cien mil colones” y en ese momento no tiene acumulado monto alguno de premio, ese giro no afecta el importe de acumulación posterior.
+6.7 Todos los concursantes seleccionados en cada turno deberán hacer girar “La Rueda” un mínimo de tres vueltas desde su punto de inicio, para que el premio obtenido tenga validez. Si no gira las tres vueltas, el participante tendrá derecho a hacer girar nuevamente; si no logra completar las tres vueltas, le corresponderá al funcionario judicial hacer girar “ La Rueda”.
+6.8 Todos los participantes harán su participación respetando el mismo orden en que fueron seleccionados durante el programa anterior.
