@@ -1,0 +1,1 @@
+Transitorio III.—Para el periodo 1998-1999 los proyectos prioritarios que impulsará cada Concejo de Distrito tomarán como base los Diagnósticos Participativos elaborados en cada distrito con la ayuda de la Escuela de Planificación y Promoción Social de la Universidad Nacional.

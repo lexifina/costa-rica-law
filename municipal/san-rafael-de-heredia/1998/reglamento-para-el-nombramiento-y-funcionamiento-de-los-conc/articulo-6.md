@@ -1,0 +1,1 @@
+Artículo 6°—Cada Concejo de Distrito ejercerá su jurisdicción dentro del área correspondiente a su territorio. Para tales efectos se constituirán estos órganos municipales en los Distritos de San Rafael, San Josecito, Santiago, Los Angeles y Concepción, y cada uno de ellos tendrán por sede el caserío que al efecto designe la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 9°—Los Concejos de Distrito quedan autorizados para celebrar reuniones en otros barrios o caseríos de su circunscripción y con vecinos de esta con el fin de considerar problemas comunes y proponer las soluciones adecuadas.
