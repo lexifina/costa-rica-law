@@ -1,0 +1,1 @@
+Artículo 10. -Créase una Comisión Nacional de Centros Infantiles de Atención Integral, formada por un representante del Ministerio de Salud: un representante del Ministerio de Educación Pública y un representante del Ministerio Trabajo y Seguridad Social.
