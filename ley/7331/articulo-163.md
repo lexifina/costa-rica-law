@@ -1,6 +1,2 @@
-ARTÍCULO 163.- Si alguno de los imputados está protegido por el
-fuero diplomático o por la inmunidad establecida en los artículos 101,
-110, 151 y 165 de la Constitución Política, la alcaldía se abstendrá de
-emitir criterio, en el primer caso y, en el segundo, remitirá el
-expediente ante la Secretaría de la Corte Suprema de Justicia, para lo
-que corresponda.
+Artículo 163.—Si alguno de los imputados está protegido por el fuero diplomático, el juzgador se abstendrá, antes de continuar con el procedimiento en su contra, y lo podrá continuar contra los restantes involucrados.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)

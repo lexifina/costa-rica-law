@@ -1,12 +1,2 @@
-ARTÍCULO 159.- Recibida la información juntamente con las boletas, la
-alcaldía lo comunicará de inmediato al Registro de la Propiedad de
-Vehículos Automotores, para que proceda a anotar el gravamen sobre los
-vehículos.
-El Registro debe notificar, a la alcaldía, que ha recibido la
-anotación; además, el nombre de quien figura como propietario del vehículo
-y su domicilio.
-La información referente a estos gravámenes podrá ser transferida
-electrónicamente al Registro Público, que podrá practicar las anotaciones
-y notificaciones por los medios técnicos de que disponga.
-(Así reformado por el artículo 177 del Código Notarial No.7764 de 17
-de abril de 1998)
+Artículo 159.—Una vez recibida la información, conjuntamente con las boletas, el juzgado lo comunicará de inmediato, directamente o utilizando los medios informáticos o electrónicos disponibles al Registro de la Propiedad de Vehículos Automotores, para que este proceda a anotar el gravamen sobre los vehículos. El Registro deberá notificar al juzgado que ha recibido la anotación, así como el nombre de quien figura como propietario del vehículo y su domicilio; para tal efecto, podrá utilizar los medios electrónicos disponibles.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
