@@ -1,0 +1,4 @@
+Artículo 4
+Equivalencia
+1.- Los Miembros aceptarán como equivalentes las medidas sanitarias o fitosanitarias de otros Miembros, aún cuando difieran de las suyas propias o de las utilizadas por otros Miembros que comercien con el mismo producto, si el Miembro exportador demuestra objetivamente al Miembro importador que sus medidas logran el nivel adecuado de protección sanitaria o fitosanitaria del Miembro importador. A tales efectos, se facilitará al Miembro importador que lo solicite un acceso razonable para inspecciones, pruebas y demás procedimientos pertinentes.
+2.- Los Miembros entablarán, cuando reciban una solicitud a tales efectos, consultas encaminadas a la conclusión de acuerdos bilaterales y multilaterales de reconocimiento de la equivalencia de medidas sanitarias o fitosanitarias concretas.

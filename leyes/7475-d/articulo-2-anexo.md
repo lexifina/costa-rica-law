@@ -1,0 +1,31 @@
+ANEXO B
+TRANSPARENCIA DE LAS REGLAMENTACIONES SANITARIAS Y FITOSANITARIAS
+Publicación de las reglamentaciones
+1.- Los Miembros se asegurarán de que todas las reglamentaciones sanitarias y fitosanitarias (5) que hayan sido adoptadas se publiquen prontamente de manera que los Miembros interesados puedan conocer su contenido.
+* (5) Medidas sanitarias y fitosanitarias tales como leyes, decretos u órdenes que sean de aplicación general.
+2.- Salvo en circunstancias de urgencia, los Miembros preverán un plazo prudencial entre la publicación de una reglamentación sanitaria o fitosanitaria y su entrada en vigor, con el fin de dar tiempo a los productores de los Miembros exportadores, y en especial de los países en desarrollo Miembros, para adaptar sus productos y sus métodos de producción a las prescripciones del Miembro importador. Servicios de información
+3.- Cada Miembro se asegurará de que exista un servicio encargado de responder a todas las peticiones razonables de información formuladas por los Miembros interesados y de facilitar los documentos pertinentes referentes a:
+a) las reglamentaciones sanitarias o fitosanitarias que se hayan adoptado o se proyecte adoptar dentro de su territorio;
+b) los procedimientos de control e inspección, regímenes de producción y cuarentena, y procedimientos relativos a las tolerancias de plaguicidas y de aprobación de aditivos alimentarios, que se apliquen en su territorio;
+c) los procedimientos de evaluación del riesgo, factores tomados en consideración y determinación del nivel adecuado de protección sanitaria o fitosanitaria;
+d) la condición de integrante o participante del Miembro, o de las instituciones competentes dentro de su territorio, en organizaciones y sistemas sanitarios y fitosanitarios internacionales y regionales, así como en acuerdos bilaterales y multilaterales dentro del alcance del presente Acuerdo, junto con los textos de esos acuerdos.
+4.- Los Miembros se asegurarán de que, cuando los Miembros interesados pidan ejemplares de documentos, se faciliten esos ejemplares (cuando no sean gratuitos) al mismo precio, aparte del costo de su envío, que a los nacionales (6) del Miembro de que se trate.
+* (6) Cuando en el presente Acuerdo se utilice el término "nacionales" se entenderá, en el caso de un territorio aduanero distinto Miembro de la OMC, las personas físicas o jurídicas que tengan domicilio o un establecimiento industrial o comercial, real y efectivo, en ese territorio aduanero.
+Procedimiento de notificación
+5.- En todos los casos en que no exista una norma, directriz o recomendación internacional, o en que el contenido de una reglamentación sanitaria o fitosanitaria en proyecto no sea en sustancia el mismo que el de una norma, directriz o recomendación internacional, y siempre que esa reglamentación pueda tener un efecto significativo en el comercio de otros Miembros, los Miembros:
+a) publicarán un aviso, en una etapa temprana, de modo que el proyecto de establecer una determinada reglamentación pueda llegar a conocimiento de los Miembros interesados;
+b) notificarán a los demás Miembros, por conducto de la Secretaría, cuáles serán los productos abarcados por la reglamentación, indicando brevemente el objetivo y la razón de ser de la reglamentación en proyecto. Estas notificaciones se harán en una etapa temprana, cuando puedan aún introducirse modificaciones y tenerse en cuenta las observaciones que se formulen;
+c) facilitarán a los demás Miembros que lo soliciten el texto de la reglamentación en proyecto y señalarán, siempre que sea posible, las partes que en sustancia difieran de las normas, recomendaciones o directrices internacionales;
+d) sin discriminación alguna, preverán un plazo prudencial para que los demás Miembros puedan formular observaciones por escrito, mantendrán conversaciones sobre esas observaciones si así se les solicita y tomarán en cuenta las observaciones y los resultados de las conversaciones.
+6.- No obstante, si a un Miembro se le plantearan o amenazaran planteársele problemas urgentes de protección sanitaria, dicho Miembro podrá omitir los trámites enumerados en el párrafo 5 del presente Anexo según considere necesario, a condición de que:
+a) notifique inmediatamente a los demás Miembros, por conducto de la Secretaría, la reglamentación y los productos de que se trate, indicando brevemente el objetivo y la razón de ser de la reglamentación, así como la naturaleza del problema o problemas urgentes;
+b) facilite a los demás Miembros que lo soliciten, el texto de la reglamentación;
+c) dé a los demás Miembros la posibilidad de formular observaciones por escrito, mantenga conversaciones sobre esas observaciones si así se le solicita y tome en cuenta las observaciones y los resultados de las conversaciones.
+7.- Las notificaciones dirigidas a la Secretaría se harán en español, francés o inglés.
+8.- A petición de otros Miembros, los países desarrollados Miembros facilitarán, en español, francés o inglés, ejemplares de los documentos o, cuando sean de gran extensión, resúmenes de los documentos correspondientes a una notificación determinada.
+9.- La Secretaría dará prontamente traslado de la notificación a todos los Miembros y a las organizaciones internacionales interesadas y señalará a la atención de los países en desarrollo Miembros cualquier notificación relativa a productos que ofrezcan un interés particular para ellos.
+10.- Los Miembros designarán un solo organismo del gobierno central que será el responsable de la aplicación, a nivel nacional, de las disposiciones relativas al procedimiento de notificación que figura en los párrafos 5, 6, 7 y 8 del presente Anexo.
+Reservas de carácter general
+11.- Ninguna disposición del presente Acuerdo se interpretará en el sentido de imponer:
+a) la comunicación de detalles o del texto de proyectos o la publicación de textos en un idioma distinto del idioma del Miembro, excepto en el caso previsto en el párrafo 8 del presente Anexo; o
+b) la comunicación por los Miembros de información confidencial cuya divulgación pueda constituir un obstáculo para el cumplimiento de la legislación sanitaria o fitosanitaria o lesionar los intereses comerciales legítimos de determinadas empresas.
