@@ -14,3 +14,4 @@ Creación y Reglamentación de la Comisión Interistitucional de Datos y Estadí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-04 | la propia norma |
+| 2 | 2000-02-04 | Ley 8 |
