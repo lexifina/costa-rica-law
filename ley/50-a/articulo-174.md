@@ -1,4 +1,1 @@
-ARTICULO 174
-La presunción de cosa juzgada por sentencia extranjera será
-admisible, siempre que la sentencia reúna las condiciones necesarias
-para su ejecución en el territorio, conforme al presente Código.
+ARTICULO 174 La presunción de cosa juzgada por sentencia extranjera será admisible, siempre que la sentencia reúna las condiciones necesarias para su ejecución en el territorio, conforme al presente Código.

@@ -1,7 +1,7 @@
 ARTICULO 437
-Podrán, sin embargo, ejecutarse dichas sentencias en lo que toca
-a la responsabilidad civil y a sus efectos sobre los bienes del
-condenado, si han sido dictados por un juez o tribunal competente,
-según este Código, y con audiencia del interesado, y se cumplen las
-demás condiciones formales y de trámite que el capítulo primero de este
-titulo establece.
+Podrán, sin embargo, ejecutarse dichas sentencias en lo que toca a la responsabilidad civil y a sus efectos sobre los bienes del condenado, si han sido dictados por un juez o tribunal competente, según este Código, y con audiencia del interesado, y se cumplen las demás condiciones formales y de trámite que el capítulo primero de este titulo establece.
+Por tanto, habiendo aprobado el Congreso Constitucional la preinserta Convención a los trece días del mes de diciembre de mil novecientos veintiocho, por Decreto N° 50, que dice: “El Congreso Constitucional de la República de Costa Rica, Decreta: Artículo único: Ratifíquese la Convención suscrita en la Habana el 13 de febrero último, que acepta y pone en vigor el Código de Derecho Internacional Privado, llamado “Código de Bustamante”, con las reservas que en el acta respectiva consignó la Delegación de Costa Rica, entendiéndose que en cuanto a nuestra legislación esa reserva comprende no sólo la vigente, sino la que pueda dictarse en lo futuro.-Comuníquese al Poder Ejecutivo.-Dado en el Salón de Sesiones, palacio Nacional. San José, a los trece días del mes de diciembre de mil novecientos veintiocho.-
+Arturo Volio, Presidente.-
+León Cortés, Primer Secretario.-Asdrúbal Villalobos, Segundo Secretario.- Y vistos y examinados por mí los artículos de que se compone, en uso de la facultad que me confiere la Constitución de la República he venido en aceptarla, aprobarla y ratificarla, teniéndola como ley de
+Costa Rica y comprometiendo para su observancia, el honor nacional.
+En fe de lo cual expido la presente ratificación, firmada de mi mano, autorizada con el Sello d la Nación y refrendada por el infrascrito Secretario de Estado en el despacho de Relaciones Exteriores, en la Casa Presidencial de San José, a los cuatro días del mes de febrero de mil novecientos treinta.
