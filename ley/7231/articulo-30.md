@@ -1,0 +1,1 @@
+ARTICULO 30.- El OIRSA podrá desarrollar programas autofinanciables, recibir contribuciones especiales, herencias y legados o donaciones, siempre que las mismas sean compatibles con la naturaleza, los propósitos y las normas del Organismo.

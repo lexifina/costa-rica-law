@@ -1,0 +1,1 @@
+ARTICULO 10.- El CIRSA sesionará ordinariamente cada año en el mes de marzo y extraordinariamente por convocatoria de alguno de los miembros o del Director Ejecutivo, en cuyo caso se ventilarán los temas para lo cual fueron convocados.

@@ -1,0 +1,1 @@
+ARTICULO 38.- Cuando exista la presencia o amenaza de plagas o enfermedades extrañas en sus países, que pongan en peligro la producción agropecuaria de la Región, los Estados miembros otorgarán al OIRSA las facilidades para apoyar las acciones de prevención, control, erradicación y de cuarentena.

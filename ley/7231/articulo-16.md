@@ -1,0 +1,1 @@
+ARTICULO 16.- La Comisión Técnica se reunirá en forma ordinaria con suficiente anticipación a las Reuniones del CIRSA, con el objeto de realizar una evaluación permanente de la ejecución y desarrollo de los programas del OIRSA, de acuerdo con las Resoluciones del CIRSA, y en forma extraordinaria, las veces que lo considere necesario el CIRSA.

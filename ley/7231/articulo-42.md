@@ -1,0 +1,1 @@
+ARTICULO 42.- El presente Convenio entrará en vigor entre los Estados que lo ratifiquen cuando dos terceras partes de los estados actuales del OIRSA hayan depositado sus instrumentos de ratificación. En cuanto a los demás Estados, entrará en vigor en el orden que depositen sus respectivos instrumentos de ratificación o adhesión.

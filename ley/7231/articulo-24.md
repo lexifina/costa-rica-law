@@ -1,0 +1,1 @@
+ARTICULO 24.- En el cumplimiento de sus deberes el Director Ejecutivo y el resto del personal, no solicitarán ni recibirán instrucciones de ningún gobierno ni de ninguna autoridad ajena al Organismo y se abstendrán de actuar en forma incompatible con su condición de funcionarios internacionales, responsables únicamente ante el Organismo.
