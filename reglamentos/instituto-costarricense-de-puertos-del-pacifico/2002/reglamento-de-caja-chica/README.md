@@ -14,3 +14,4 @@ Reglamento de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-05 | la propia norma |
+| 2 | 2003-07-17 | Reglamento 3181 (2003-07-17) |
