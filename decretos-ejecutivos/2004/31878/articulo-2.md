@@ -1,0 +1,1 @@
+Artículo 2º—Eliminar del artículo 2º del Decreto Ejecutivo Nº 31092-H las exclusiones específicas para la Empresa de Servicios Públicos de Heredia y de la Junta Administrativa del Servicio Eléctrico Municipal de Cartago.
