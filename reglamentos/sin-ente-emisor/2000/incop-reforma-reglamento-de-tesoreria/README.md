@@ -13,3 +13,4 @@ INCOP: Reforma Reglamento de Tesorería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-01 | la propia norma |
+| 2 | 2002-07-26 | Reglamento 0 (2002-07-26) |
