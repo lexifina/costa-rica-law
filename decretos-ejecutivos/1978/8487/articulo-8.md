@@ -1,0 +1,1 @@
+Artículo 8°—Las Asociaciones de Desarrollo Integral podrán nombrar delegados ante las Instituciones Públicas y Privadas del país y quienes representarán a estas Asociaciones. Estos delegados estarán plenamente facultados para movilizarse ante los distintos organismos del Estado en el cumplimiento de las funciones encomendadas.

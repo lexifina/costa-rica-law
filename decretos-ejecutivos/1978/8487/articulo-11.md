@@ -1,0 +1,1 @@
+Artículo 11.—Para la efectividad de la disposición anterior, los Presidentes de las Asociaciones de Desarrollo Integral, renovarán cada tres meses la certificación de su personería jurídica y, en los casos que las circunstancias lo requieran, otorgarán siguiendo los trámites legales correspondientes, poderes especiales que les representen.

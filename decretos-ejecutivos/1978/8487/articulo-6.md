@@ -1,0 +1,1 @@
+Artículo 6°—Las Asociaciones de Desarrollo Integral de la Comunidad, designarán a los Comités Auxiliares como organismos subordinados a las mismas y con atribuciones propias para el cumplimiento de los fines asignados.

@@ -1,0 +1,1 @@
+Artículo 7°—En los casos a que se refiere el artículo 4° párrafo 2 de la Ley, o cuando la dispersión y alejamiento de la población lo amerite, la organización tradicional deberá afiliarse a las Asociaciones de Desarrollo Integral, formando Asociaciones de Desarrollo Específico, para el cumplimiento de los objetivos específicos de la Comunidad Indígena.

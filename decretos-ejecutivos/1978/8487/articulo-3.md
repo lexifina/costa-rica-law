@@ -1,0 +1,1 @@
+Articulo 3°—Para el ejercicio de los derechos y cumplimiento de las obligaciones a que se refiere el artículo 2° de la Ley Indígena, las Comunidades Indígenas adoptarán la organización prevista en la Ley No 3859 de la Dirección Nacional de Asociaciones de Desarrollo de la Comunidad y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 16.—La Comisión Nacional de Asuntos Indígenas "CONAl" coordinará con la Dirección General de Estadística y Censo, la realización periódica de los censos de la población indígena de Costa Rica, para el mejor cumplimiento de los objetivos de esta ley.

@@ -1,0 +1,1 @@
+Artículo 14.—Las sanciones sobre violaciones al Patrimonio Arqueológico a que se refiere el artículo 6° de la Ley Indígena, están también comprendidas en las respectivas disposiciones previstas en la Ley No 7 del 28 de setiembre de 1938 y en los artículos 228 y 229 del Código Penal así como en las demás que les fueren aplicables.

@@ -1,0 +1,1 @@
+Artículo 5°—Las estructuras comunitarias tradicionales a que se refiere el artículo 4° de la Ley, operarán en el interior de las respectivas Comunidades; y las Asociaciones de Desarrollo, una vez inscritas legalmente, representarán judicial y extra judicialmente a dichas Comunidades.

@@ -1,0 +1,1 @@
+Artículo 12.—Para el cumplimiento de lo establecido en el párrafo 4) del artículo 6° de la Ley Indígena, se entenderá que el Consejo Nacional de la Producción, en colaboración con la respectiva Asociación de Desarrollo, capacitará a indígenas para que asuman, a corto plazo, la administración de los Expendios respectivos

@@ -1,0 +1,1 @@
+Artículo 4°—Los Presidentes de las respectivas Asociaciones de Desarrollo Indígenas, legalmente inscritas, y con las facultades de apoderados generales de las mismas, comparecerán ante la Procuraduría General de la República, para el otorgamiento de la escritura e inscripción en el Registro Público, de las Reservas a nombre de las respectivas Comunidades Indígenas.

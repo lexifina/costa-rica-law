@@ -1,0 +1,1 @@
+Artículo 9°—Para el efecto del párrafo 2 del artículo 7° de la Ley, los Guarda Bosques y los Agentes de la Guardia Rural de las Reservas, que presten sus servicios en el interior de las mismas, serán preferentemente indígenas.

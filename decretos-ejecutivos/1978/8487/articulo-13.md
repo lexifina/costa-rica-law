@@ -1,0 +1,1 @@
+Artículo 13.—Para el mejor cumplimiento de lo establecido en el artículo 6°, párrafo 2) de la Ley Indígena, deberá entenderse el "fin de lucro", aquél que es prohibido por la Ley, cómo ganancia especulativa por exceder los limites legales, que regula la Ley de Protección al Consumidor y otras Leyes conexas.
