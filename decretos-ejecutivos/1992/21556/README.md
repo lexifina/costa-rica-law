@@ -13,3 +13,4 @@ Reglamento de Presentación del Indice de Notariado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-09-29 | la propia norma |
+| 2 | 1992-09-29 | SINALEVI (sin norma nombrada) |
