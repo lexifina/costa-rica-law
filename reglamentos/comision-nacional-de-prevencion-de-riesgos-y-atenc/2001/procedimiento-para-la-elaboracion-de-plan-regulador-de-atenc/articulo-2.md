@@ -1,0 +1,2 @@
+2. Alcance:
+Aplica para los integrantes de la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE), jerarcas de las Instituciones Públicas involucradas con el proceso de Atención, Recuperación y Reconstrucción por situaciones de desastre ü emergencia, los Funcionarios públicos que integran las Unidades Ejecutoras y el personal profesional de la CNE , de gestión en desastres y administrativos con funciones definidas en el presente procedimiento.
