@@ -1,0 +1,1 @@
+Art 20°.- Si la enfermedad fuese contraída en el servicio público, o por causa de él, entonces durará por el término de seis meses el subsidio de la tercera parte del sueldo, más si pasado este tiempo, no pudiere el empleado volver a su oficina, por no haber recobrado la salud, quedará de hecho vacante el destino que obtenía.

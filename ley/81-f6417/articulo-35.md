@@ -1,0 +1,1 @@
+Artículo 35°.- Igual obligación cumplirán los Gobernadores Políticos con respecto al servicio de ellos y el de sus dependientes, pero los Jueces de I° Instancia darán conocimiento del servicio de ellos a la Cortes de Justicia y del de sus dependientes al Ministerio de Hacienda.

@@ -1,0 +1,2 @@
+Tesorería General
+Art 5.- El Administrador Principal Gozará del sueldo de mil pesos anuales. El Tesorero de setecientos ochenta pesos. El Contador de setecientos ochenta pesos. El Tesorero del de setecientos ochenta pesos. El Contador del de setecientos cincuenta pesos. El Administrador general de correos del de seiscientos pesos. El Administrador general de correos del de seiscientos cincuenta pesos.

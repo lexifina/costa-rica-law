@@ -1,0 +1,1 @@
+Artículo 36°.- Todos los Jefes de las oficinas de Hacienda pasarán cada fin de mes al Intendente General las listas de servicio de los empleados y dependientes de ellas y las de los gastos de oficina que se hayan hecho, para que visadas unas y otras, por el mismo Intendente, sirvan de comprobante a las partidas de data respectivas.
