@@ -1,0 +1,1 @@
+Artículo 57.—Cuando la falta indicada en el artículo anterior se hubiere comprobado, al funcionario se le revocarán de inmediato todos los derechos concedidos y se pondrán al cobro la totalidad de los beneficios previamente disfrutados. Todo lo anterior en observancia al debido proceso.

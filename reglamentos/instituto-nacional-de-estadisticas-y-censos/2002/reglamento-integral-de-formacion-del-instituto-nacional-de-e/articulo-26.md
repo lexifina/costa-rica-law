@@ -1,0 +1,1 @@
+Artículo 26.—El tiempo requerido por el facilitador para la preparación de los temas, contenidos y materiales de estudio del evento por impartir, no será considerado como tiempo efectivo para el reconocimiento de la capacitación impartida.

@@ -1,0 +1,1 @@
+Artículo 41.—La Unidad de Recursos Humanos a petición de la CIF, publicará toda aquella información sobre becas y facilidades de estudios dirigidos al INEC, esto con el afán de promover la igualdad de oportunidades y de participación entre los funcionarios.

@@ -1,0 +1,1 @@
+Artículo 59.—En el caso de facilidades para el desarrollo, se admitirán retiros justificados de las materias matriculadas, previa justificación hecha por el funcionario ante la CIF, siempre y cuando hayan sido aceptados por el centro donde cursa estudios. Cualquier costo derivado de tales retiros será sufragado por el funcionario.

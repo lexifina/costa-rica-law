@@ -1,0 +1,1 @@
+Artículo 2º—El objeto del presente Reglamento es regular el otorgamiento y reconocimiento de las actividades de formación integral que se le concedan a los funcionarios del INEC, a efectos de garantizar que éstas sean destinadas al fin público que están llamadas a cumplir; estableciéndose asi mismo, los deberes y obligaciones de los funcionarios que las gocen.

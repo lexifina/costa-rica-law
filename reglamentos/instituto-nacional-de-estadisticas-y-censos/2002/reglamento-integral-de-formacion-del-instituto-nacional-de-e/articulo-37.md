@@ -1,0 +1,1 @@
+Artículo 37.—El funcionario interesado deberá reunir toda la documentación requerida y hacer una solicitud por escrito, con la aprobación del Coordinador del Área o Unidad correspondiente. Obtenida ésta, se dirigirá dicha solicitud a la Unidad de Recursos Humanos para el trámite respectivo ante la CIF.

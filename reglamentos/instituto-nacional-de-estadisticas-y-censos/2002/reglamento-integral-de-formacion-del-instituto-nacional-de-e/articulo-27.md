@@ -1,0 +1,1 @@
+Artículo 27.—La CIF en coordinación con la Unidad de Recursos Humanos brindará los certificados correspondientes, de acuerdo a las modalidades indicadas en el artículo 15 que antecede, los cuales deberán ir firmados por el jerarca del INEC y podrán ser tomados en cuenta para el reconocimiento de puntaje de carrera profesional cuando corresponda.

@@ -1,0 +1,1 @@
+Artículo 45.—La selección de los funcionarios candidatos a disfrutar una beca en el exterior o para estudios de postgrado, la hará la CIF mediante el procedimiento y clasificación que establece el artículo 38 que antecede.

@@ -1,0 +1,1 @@
+Artículo 18.—En cada jornada de capacitación de ocho horas o más, el período intermedio, previsto para el consumo de alimentos será reconocido como parte del tiempo de capacitación efectivamente recibido e impartido, siempre que dicho período no exceda de sesenta minutos. En los actos de apertura y clausura, se reconocerá un tiempo máximo de sesenta minutos para cada caso.

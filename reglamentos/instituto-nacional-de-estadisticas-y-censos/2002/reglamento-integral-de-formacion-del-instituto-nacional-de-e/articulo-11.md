@@ -1,0 +1,1 @@
+Artículo 11.—La CIF y la Unidad de Recursos Humanos valorarán el criterio de los Coordinadores de Área y Unidades a la hora de regular el otorgamiento y reconocimiento de las actividades de formación integral que se le concedan a los funcionarios del INEC.

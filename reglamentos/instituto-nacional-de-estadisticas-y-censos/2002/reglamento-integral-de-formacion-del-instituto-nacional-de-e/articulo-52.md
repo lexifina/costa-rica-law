@@ -1,0 +1,1 @@
+Artículo 52.—No obstante lo establecido en el artículo anterior, en caso de concederse licencia para laborar en otra institución pública, durante el período de compromiso asumido por el funcionario, deberá suscribirse el correspondiente convenio de traslado de derechos entre el INEC y la institución respectiva.

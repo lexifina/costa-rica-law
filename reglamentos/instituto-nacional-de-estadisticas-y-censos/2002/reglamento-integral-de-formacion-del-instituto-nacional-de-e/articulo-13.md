@@ -1,0 +1,1 @@
+Artículo 13.—En caso de que el INEC no cuente con la capacitación técnica que requieran sus Áreas o Unidades, se estará a las ofertas que presenten las otras Instituciones Públicas ó Empresa Privadas. Para tal caso, deberá tomarse en cuenta el análisis previo que realice la CIF, que con el aval de la Gerencia, verificará que esa necesidad sustente en las requeridas por el INEC.

@@ -1,0 +1,5 @@
+Artículo 6º—El Programa Integral de Formación estará conformado por los siguientes módulos:
+a) Inducción: Comprende la enseñanza sobre los conceptos generales de la organización y funcionamiento del INEC, así como de las disposiciones legales que rigen sus relaciones y los conocimientos básicos de los procesos operativos de las áreas de trabajo.
+b) Entrenamiento: Actividades de capacitación que se realizan atendiendo la naturaleza de los proyectos y de las funciones por desarrollar en cada una de las Áreas o Unidades institucionales.
+c) Capacitación: Es el proceso de enseñanza-aprendizaje diseñado y presentado de manera que garantice a los participantes, el logro de objetivos de desempeño preestablecidos.
+d) Desarrollo: Es el proceso de ampliar las oportunidades de los individuos como el nivel de bienestar que han alcanzado, tanto en la formación de capacidades humanas y el uso que se hace de ellas, mediante estudios formales en instituciones educativas nacionales e internacionales donde se obtienen los niveles académicos necesarios para el desempeño de las funciones asignadas.

@@ -1,0 +1,1 @@
+Artículo 33.—El INEC brindará el tiempo necesario a sus funcionarios para que se trasladen y participen en las actividades programadas de capacitación, salvo casos de urgencia; en la misma condición se compromete a no distraerlos con otras labores durante el tiempo de la capacitación.

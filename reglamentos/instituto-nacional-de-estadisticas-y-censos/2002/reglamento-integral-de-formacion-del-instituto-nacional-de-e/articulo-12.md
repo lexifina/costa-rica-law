@@ -1,0 +1,1 @@
+Artículo 12.—En el programa anual, la Unidad de Recursos Humanos sistematizará las actividades y hará una proyección de los recursos humanos y materiales que se requerirán, presentando al respecto un informe justificado y detallado a la CIF.

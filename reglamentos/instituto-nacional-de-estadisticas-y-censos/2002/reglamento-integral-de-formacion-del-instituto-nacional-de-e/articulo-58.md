@@ -1,0 +1,1 @@
+Artículo 58.—El abandono injustificado de las actividades de capacitación o a las becas para estudios en el exterior, acarreará dos años de suspensión de toda actividad de capacitación u otorgamiento de otra facilidad.

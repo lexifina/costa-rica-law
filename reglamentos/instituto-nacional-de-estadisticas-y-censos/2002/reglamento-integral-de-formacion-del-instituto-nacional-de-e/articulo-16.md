@@ -1,0 +1,1 @@
+Artículo 16.—Todo certificado, de aprovechamiento o de participación, se otorgará con base en el número de horas efectivas de instrucción recibida por el funcionario, siempre que éste asista y apruebe las evaluaciones respectivas y el tiempo de asistencia mínima establecido en el artículo 15 que antecede.

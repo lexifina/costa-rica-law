@@ -1,0 +1,1 @@
+Artículo 55.—Los funcionarios que después de ingresar a las actividades reguladas en este Reglamento, las interrumpan de manera injustificada, serán separados del Programa de Capacitación Anual, por un lapso no menor de un año a partir del momento que ocurrió el hecho.
