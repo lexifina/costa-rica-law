@@ -1,0 +1,1 @@
+Artículo 4º—Los funcionarios de las aduanas, los de Salud Animal del Ministerio de Agricultura y Ganadería, los del Ministerio de Seguridad Pública y los del Ministerio de Salud, serán responsables de hacer cumplir la prohibición de ingreso de animales silvestres dispuesto en este Decreto.

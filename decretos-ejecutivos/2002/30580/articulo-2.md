@@ -1,0 +1,1 @@
+Artículo 2º—Se permitirá el ingreso a territorio nacional de los animales silvestres que formen parte de circos, de espectáculos públicos ambulantes y de organizaciones similares, únicamente, cuando sea en tránsito como ruta de paso entre un puesto fronterizo y otro, en cuyo caso deberán contar con los permisos necesarios emitidos por las autoridades respectivas.

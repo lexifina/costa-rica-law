@@ -1,0 +1,1 @@
+Artículo 3º—Esta prohibición no se aplicará a los animales silvestres de cualquier especie que sean destinados a zoológicos nacionales, criaderos y zoocriaderos, debidamente autorizados por el Ministerio de Ambiente y Energía.
