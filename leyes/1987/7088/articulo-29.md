@@ -1,0 +1,2 @@
+VIGENCIAS
+ARTICULO 29.- Las disposiciones de esta ley regirán a partir de la fecha de su publicación, con excepción de las normas contenidas en el artículo 9º (impuesto sobre la propiedad de vehículos) y en el artículo 5º (impuesto sobre las construcciones de alto valor, que regirán a partir del 1º de octubre de 1987. La excepción a estas disposiciones es lo indicado en el transitorio I de esta ley.

@@ -1,0 +1,1 @@
+Transitorio III.- El Instituto Nacional de Vivienda y Urbanismo (INVU) ejercerá las facultades que esta ley le otorga al Ministerio de Vivienda y Asentamientos Humanos, mientras no se promulgue la ley de creación de ese Ministerio.
