@@ -1,0 +1,3 @@
+CAPITULO II
+Del Procedimiento de Cobro
+Artículo 7-La Municipalidad, una vez detectado el incumplimiento de las obligaciones establecidas en el artículo 75 del Código Municipal, así como el numeral 2 de este reglamento, notificará al propietario del inmueble de su obligación de corregir la situación, siguiéndose para ello el procedimiento establecido por los artículos 10 y 11 del presente reglamento. Si transcurridos los términos otorgados el propietario incumple lo ordenado, la Municipalidad ejecutará dichas obras o labores; y el costo efectivo de las mismas deberá pagarlo el propietario incumpliente. Dicha tarifa será calculada y cobrada según lo establecen los artículos 64 y 76 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 5-En toda construcción de cercas, tapias o cualquier otra obra para la seguridad o el ornato de un inmueble, el propietario del mismo inmueble deberá acatar las directrices que la Dirección de Ingeniería dicte en resguardo de la salubridad, seguridad y ornato público.

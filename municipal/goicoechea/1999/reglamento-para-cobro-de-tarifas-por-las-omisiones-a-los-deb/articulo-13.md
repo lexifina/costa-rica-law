@@ -1,0 +1,1 @@
+Artículo 13.-EI incumplimiento total o parcial de las obligaciones del artículo anterior, o de cualquiera de las disposiciones del presente reglamento por parte del servidor municipal se tendrá como falta grave e incumplimiento de funciones y será sancionado de acuerdo con el ordenamiento jurídico aplicable.

@@ -1,0 +1,1 @@
+Artículo 4.-Previo a la realización de cualquier trabajo de entubamiento de aguas pluviales, a orilla de vía pública o construcción de entradas o rampas de acceso a los inmuebles, el propietario el bien inmueble deberá gestionar el respectivo permiso municipal, siendo su deber acatar los requerimientos técnicos y estructurales en el mencionado permiso.
