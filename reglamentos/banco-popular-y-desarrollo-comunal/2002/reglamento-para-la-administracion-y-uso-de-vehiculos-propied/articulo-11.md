@@ -1,0 +1,1 @@
+Artículo 11.—La responsabilidad disciplinaria que pueda caber por infracciones al presente Reglamento y demás disposiciones indicadas en el artículo 1º del mismo será determinada y sancionada de conformidad con el Código de Trabajo y demás disposiciones aplicables.
