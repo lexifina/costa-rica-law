@@ -15,3 +15,4 @@ Reglamento de Evaluación de los Aprendizajes
 | --- | --- | --- |
 | 1 | 2001-04-09 | la propia norma |
 | 2 | 2004-02-04 | Decreto Ejecutivo 31635 (2004-02-04) |
+| 3 | 2004-03-12 | SINALEVI (sin norma nombrada) |
