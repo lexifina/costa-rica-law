@@ -1,0 +1,1 @@
+Artículo 23.—Se considerará como horario ordinario para el uso de los vehículos el que la administración estipule según las funciones de las unidades administrativas, con excepción de los vehículos destinados a cubrir giras dentro del territorio nacional, los cuales deben portar una autorización de horario especial extendida por la Gerencia General.

@@ -1,0 +1,1 @@
+Artículo 82.—El servidor que desee ingresar al sistema de arrendamiento de vehículos, debe obtener previamente la autorización de la Gerencia General. Para este efecto el propietario del vehículo debe suscribir un contrato con la Institución.

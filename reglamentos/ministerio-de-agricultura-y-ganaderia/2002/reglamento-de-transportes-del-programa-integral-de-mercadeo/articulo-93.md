@@ -1,0 +1,1 @@
+Artículo 93.—Si las circunstancias de la necesidad que dieron origen al contrato dejaren de existir, la Administración, en pro de los intereses de la Institución, procederá de inmediato a dar por disuelto el contrato.

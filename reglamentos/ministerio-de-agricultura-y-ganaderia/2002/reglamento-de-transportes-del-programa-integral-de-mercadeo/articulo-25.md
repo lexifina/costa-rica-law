@@ -1,0 +1,1 @@
+Artículo 25.—Únicamente se puede asignar vehículos de uso administrativo a unidades o dependencias cuando estas estén localizadas en lugares diferentes y alejados a la sede central, siempre y cuando se haya justificado y autorizado previamente para facilitar el cumplimiento de sus labores.

@@ -1,0 +1,1 @@
+Artículo 6º—Los vehículos propiedad de la Institución están al servicio del Consejo Directivo, Gerencia, funcionarios, asesores nacionales e internacionales y personas relacionadas con el objeto de la gira, todo lo anterior de acuerdo con las actividades propias de la Institución.

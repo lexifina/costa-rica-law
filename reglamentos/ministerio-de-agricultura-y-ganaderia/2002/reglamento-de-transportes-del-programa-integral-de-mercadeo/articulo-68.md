@@ -1,0 +1,1 @@
+Artículo 68.—Cancelar, cuando han sido declarados responsables de accidentes de tránsito por los Tribunales de Justicia, las sumas correspondientes por los deducibles que deben cubrirse según las condiciones de las pólizas de seguros o bien cancelar las indemnizaciones cuando los costos y los daños sean inferiores a los montos por concepto de deducibles.

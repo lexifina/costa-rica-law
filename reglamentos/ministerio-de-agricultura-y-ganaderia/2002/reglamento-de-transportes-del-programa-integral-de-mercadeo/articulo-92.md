@@ -1,0 +1,1 @@
+Artículo 92.—Cuando se determine que en la ejecución del contrato se incurre en violación a las disposiciones reglamentarias aplicables, el funcionario responsable podrá ser inhabilitado por parte de la Administración, para continuar dentro del sistema de arriendo.

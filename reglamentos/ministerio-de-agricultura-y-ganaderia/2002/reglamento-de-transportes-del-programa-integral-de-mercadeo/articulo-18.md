@@ -1,0 +1,1 @@
+Artículo 18.—Cuando salga o ingrese un vehículo en horas inhábiles, el guarda debe anotar en el libro de registro el nombre del conductor, el número de la placa, la fecha y las horas de salida y entrada. En caso de salida en horas inhábiles, el conductor debe mostrar al oficial de seguridad la boleta de ruedo con las autorizaciones respectivas.

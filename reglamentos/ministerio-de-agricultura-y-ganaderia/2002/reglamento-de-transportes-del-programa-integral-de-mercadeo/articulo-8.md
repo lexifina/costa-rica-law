@@ -1,0 +1,1 @@
+Artículo 8º—Los vehículos propiedad de la Institución, salvo los de uso discrecional, deberán llevar en sus costados la identificación de la entidad y la leyenda "Uso Oficial" impresos en forma permanente.

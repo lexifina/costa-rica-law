@@ -1,0 +1,1 @@
+Artículo 83.—Para que la Administración acepte el arriendo de vehículos de funcionarios, éstos deben estar en perfectas condiciones de funcionamiento y contar con el seguro voluntario al día y las coberturas correspondientes. Además, el odómetro debe funcionar perfectamente y el vehículo debe reunir las condiciones óptimas para el servicio.

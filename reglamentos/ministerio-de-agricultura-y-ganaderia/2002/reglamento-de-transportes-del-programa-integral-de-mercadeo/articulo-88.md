@@ -1,0 +1,1 @@
+Artículo 88.—Para determinar el recorrido de la gira, se debe llenar el formulario correspondiente y estar autorizado por el Jefe de la Dirección en que labore el servidor, por el Jefe del Proceso de Servicios Generales y de Transportes y por el funcionario contratante.

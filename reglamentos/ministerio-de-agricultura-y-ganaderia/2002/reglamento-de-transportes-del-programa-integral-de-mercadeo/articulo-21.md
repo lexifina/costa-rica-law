@@ -1,0 +1,1 @@
+Artículo 21.—Únicamente en giras se autoriza el suministro de combustible en otras estaciones de servicio que no sea la contratada para este fin. Las facturas que se emitan por ese concepto, deberán ser membretadas, confeccionadas a nombre de PIMA y además deben indicar la fecha, cantidad, monto y tipo de combustible abastecido.

@@ -1,0 +1,1 @@
+Artículo 84.—En virtud de la relación contractual, el propietario del vehículo asume las responsabilidades civiles y penales que se pudieren derivar de la ejecución del contrato. En consecuencia, el PIMA queda totalmente relevado de las mismas, en cuanto afecten a terceros.

@@ -1,0 +1,1 @@
+Artículo 90.—Cualquier incumplimiento de las disposiciones de este Reglamento por parte del funcionario, será causa justificada para tener por rescindido el contrato de arrendamiento, sin perjuicio de las sanciones disciplinarias, civiles o penales que correspondan.

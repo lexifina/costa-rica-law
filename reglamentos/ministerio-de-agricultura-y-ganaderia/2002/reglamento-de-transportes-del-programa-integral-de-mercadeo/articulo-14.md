@@ -1,0 +1,1 @@
+Artículo 14.—La Dirección Administrativa Financiera, a través del Proceso de Servicios Generales y de Transportes, será el encargado de ejecutar las medidas de control en cuanto al uso de los vehículos, a las reparaciones y al mantenimiento de los automotores.

@@ -1,0 +1,1 @@
+Artículo 24.—Estos vehículos permanecerán a la orden del Proceso de Servicios Generales y de Transportes y deberán encontrarse disponibles para el cumplimiento de las funciones de la institución. No debe asignarse en forma exclusiva al servicio de ningún servidor o unidad.

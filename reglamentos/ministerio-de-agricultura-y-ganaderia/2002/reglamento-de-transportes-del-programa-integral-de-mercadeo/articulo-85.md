@@ -1,0 +1,1 @@
+Artículo 85.—El propietario del vehículo queda obligado a transportar a otros servidores a solicitud de la Institución, sin que exceda el cupo de acompañantes reglamentados de acuerdo con la Ley de Tránsito.

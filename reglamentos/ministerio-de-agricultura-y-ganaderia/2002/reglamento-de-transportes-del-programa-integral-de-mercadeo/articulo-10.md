@@ -1,0 +1,1 @@
+Artículo 10.—Las colisiones, raspaduras, golpes y pérdidas que se ocasionen por culpa imputable al conductor, harán a este responsable de conformidad con el artículo 1045 del Código Civil, sin menoscabo de las responsabilidades penales y disciplinarias que resultaren.

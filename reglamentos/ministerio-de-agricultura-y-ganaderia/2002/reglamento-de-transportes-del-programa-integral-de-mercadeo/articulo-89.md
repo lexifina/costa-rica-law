@@ -1,0 +1,1 @@
+Artículo 89.—La liquidación de cada gira se debe hacer dentro del plazo improrrogable de los cinco días hábiles siguientes a su conclusión, consignando los detalles de ésta en la forma respectiva. Debe ser presentada ante la Dirección Administrativa Financiera, debidamente firmada por el Jefe de la Dirección del funcionario y por éste.

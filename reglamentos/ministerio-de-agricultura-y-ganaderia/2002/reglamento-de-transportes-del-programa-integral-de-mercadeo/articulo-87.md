@@ -1,0 +1,1 @@
+Artículo 87.—El PIMA pagará por kilómetro la suma que esté reglamentada de acuerdo con las normas de la Contraloría General de la República. El pago que se realice al funcionario por concepto de arriendo de vehículo no forma parte del salario.

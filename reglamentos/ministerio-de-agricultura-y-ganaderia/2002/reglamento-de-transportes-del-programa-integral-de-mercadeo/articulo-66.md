@@ -1,0 +1,1 @@
+Artículo 66.—Informar de inmediato al Proceso de Servicios Generales y de Transportes, sobre cualquier accidente de tránsito ocurrido en el vehículo a su cargo, con toda la información complementaria.

@@ -1,0 +1,1 @@
+Artículo 12.—Se considera falta grave el uso de los vehículos de la institución para fines no expresamente autorizados, conforme con lo dispuesto en los Reglamentos del PIMA. Los servidores que guíen los vehículos de la Institución o de los encargados de su mantenimiento serán sancionados según la gravedad de la falta.
