@@ -1,3 +1,3 @@
-Artículo 2º.- Momento en que ocurre el hecho generador:
-El hecho generador del impuesto ocurre cuando el vehículo se inscribe
-en el citado Registro.
+Artículo 2º.- DEROGADO.
+( Derogado por el artículo 23 de la Ley Nº 7088 de 30 de noviembre de
+1987 )
