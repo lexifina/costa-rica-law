@@ -1,1 +1,2 @@
 TRANSITORIO IV.- Los procesos judiciales pendientes al entrar en vigor la presente ley, continuarán tramitándose hasta su fenecimiento, con base en la Ley de inquilinato que se deroga y en las disposiciones del Código Procesal Civil aquí reformadas.
+(La resolución de la Sala Constitucional N° 6874 del 15/12/1995 señala que el presente transitorio no es inconstitucional, siempre que se interprete conforme a lo señalado en los considerandos de dicha sentencia.)
