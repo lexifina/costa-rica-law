@@ -1,0 +1,1 @@
+Artículo 14.—Prescripción: El cobro del impuesto a que se refiere este Reglamento prescribirá conforme al artículo 86 del Código Municipal en un plazo de 5 años, contados a partir del día en que debió haberse cancelado el impuesto respectivo. Asimismo, los funcionarios municipales responsables de la prescripción de un cobro responderán personalmente de su pago.

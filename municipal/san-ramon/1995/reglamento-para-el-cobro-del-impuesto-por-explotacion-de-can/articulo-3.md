@@ -1,0 +1,1 @@
+Artículo 3°—Base imponible: Constituyen la base imponible para la determinación de este impuesto, el valor total, a precio de mercado, del material, arena, piedra, lastre o cualesquiera otros materiales producto de la extracción.

@@ -1,0 +1,1 @@
+Artículo 13.—Sanciones: El incurrir en infracciones por parte del contribuyente será sancionado conforme a lo que estipula el Código Tributario. Asimismo y de conformidad con el artículo 36 del Código de Minería, la falta de paga del impuesto aquí reglamentado será sancionado con una equivalencia a 10 veces el valor-de lo defraudado.

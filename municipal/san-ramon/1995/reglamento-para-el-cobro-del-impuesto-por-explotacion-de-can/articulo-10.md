@@ -1,0 +1,1 @@
+Artículo 10.—Fiscalización: La Municipalidad tiene la facultad, en cualquier tiempo, de verificar el correcto cumplimiento de las obligaciones tributarias a que se refiere este Reglamento, utilizando para ello cualquier medio y procedimiento legalmente establecido, según lo estipula el artículo 109 del Código Tributario.

@@ -1,0 +1,1 @@
+Artículo 2°—Contribuyentes: Serán contribuyentes, para los efectos de este reglamento, las personas físicas o jurídicas que se dediquen a la explotación de canteras y/o cauces del dominio público en la jurisdicción del cantón de San Ramón y que además cumplan todos los requisitos que la ley determina para el ejercicio de tal actividad.

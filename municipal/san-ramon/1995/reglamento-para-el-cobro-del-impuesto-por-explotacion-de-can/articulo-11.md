@@ -1,0 +1,1 @@
+Artículo 11.—Garantías: En todo caso como lo estipula el artículo 83 del Código Municipal las deudas por concepto de este impuesto constituyen hipoteca legal de tipo preferente sobre los respectivos inmuebles.
