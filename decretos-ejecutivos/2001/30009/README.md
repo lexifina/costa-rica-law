@@ -14,3 +14,4 @@ Determina correspondencia de los estudios que se realicen en el centro educativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-12-07 | la propia norma |
+| 2 | 2002-05-30 | Decreto Ejecutivo 30579 (2002-05-30) |
