@@ -1,0 +1,2 @@
+Articulo 24.—bis: Todos aquellos organismos existentes en la Administración Pública con atribuciones acreditadoras, mantienen la facultad de emitir el criterio técnico de los procesos de acreditación especializados de sus áreas, los cuales deben de ser encauzados y coordinados por el Ente Nacional de Acreditación.
+(Así ADICIONADO por el artículo 2° del Decreto Ejecutivo N° 29648 de 28 de febrero de 2001, publicado en La Gaceta N° 144 de 27 de julio de 2001.)
