@@ -1,0 +1,2 @@
+Transitorio II.-Las municipalidades girarán las sumas correspondientes al fondo general de pensiones a través de las Juntas a que se refiere el artículo 12 de la ley. Para los efectos de esta adición, a las pensiones que se obtengan les serán aplicables todas las demás normas de la Ley de Pensiones para Empleados Municipales.
+(Así adicionado por el artículo 1° de la ley N° 5546 del 31 de julio de 1974)
