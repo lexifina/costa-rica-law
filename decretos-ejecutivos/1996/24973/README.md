@@ -13,3 +13,4 @@ Declara Estado Emergencia por Temporales en Vertiente del Caribe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-16 | la propia norma |
+| 2 | 1996-02-16 | SINALEVI (sin norma nombrada) |

@@ -1,6 +1,1 @@
-Artículo 4º.- Se autoriza al Poder Ejecutivo, instituciones estatales,
-entidades autónomas y empresas del Estado, así como a todo otro ente u
-órgano público, a efecto de que tomen las medidas presupuestarias y
-materiales que sean necesarias para dar aportes y prestar toda la ayuda y
-colaboración pertinente para la atención de esta situación de necesidad y
-urgencia por calamidad pública.
+Artículo 4º.- Se autoriza al Poder Ejecutivo, instituciones estatales, entidades autónomas y empresas del Estado, así como a todo otro ente u órgano público, a efecto de que tomen las medidas presupuestarias y materiales que sean necesarias para dar aportes y prestar toda la ayuda y colaboración pertinente para la atención de esta situación de necesidad y urgencia por calamidad pública.
