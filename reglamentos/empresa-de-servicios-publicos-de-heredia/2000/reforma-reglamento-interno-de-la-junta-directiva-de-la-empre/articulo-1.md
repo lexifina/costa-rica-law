@@ -1,0 +1,6 @@
+EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA
+REGLAMENTO INTERNO DE LA JUNTA DIRECTIVA
+Acuerdo JD 087-2000.—Sesión No 2196 del 10 de abril del 2000, articulo 111, inciso 3.—Modifíquese el Artículo 14 del Reglamento Interno de la Junta Directiva de la Empresa de Servicios Públicos de Heredia, Sociedad Anónima para que se lea de la siguiente manera:
+Artículo 14.—La celebración de las sesiones ordinarias, no requerirá convocatoria especifica, pero la Secretaría de la Junta Directiva, deberá remitir a los directores la agenda respectiva, a más tardar, el día viernes anterior a la celebración de aquélla conjuntamente con el proyecto del acta de la sesión anterior. La convocatoria a sesión extraordinaria le corresponderá al Gerente General por iniciativa propia o mediante indicación del Presidente; o a solicitud escrita de tres directores. Tal convocatoria deberá especificar en todos los casos, bajo pena de nulidad, el asunto o asuntos a tratar en la sesión, consignarse por escrito y notificarse a los directores a más tardar, en un término de 24 horas antes de la celebración de la sesión respectiva con las excepciones de ley.
+Publíquese en el Diario Oficial La Gaceta. Acuerdo firme.
+Heredia, 12 de abril del 2000.
