@@ -1,0 +1,1 @@
+Artículo 78.—Para toda explotación, renovación, traslado y traspaso de licencias de licores, debe solicitarse autorización previa a la Municipalidad de Escazú, para lo cual deberá cumplirse con los requisitos exigidos en este capítulo.

@@ -1,0 +1,1 @@
+Artículo 95.—Para cumplir con lo señalado en el artículo anterior, la jefatura de la Sección de Licencias Municipales, deberá velar porque cada uno de los locales comerciales cuente con un expediente, en donde se archivarán en orden cronológico y debidamente foliados, todos los documentos relacionados con el establecimiento comercial.

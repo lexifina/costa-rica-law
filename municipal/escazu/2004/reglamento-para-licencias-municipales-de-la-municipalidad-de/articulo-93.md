@@ -1,0 +1,1 @@
+Artículo 93.—Para denegar una renovación de bienio, la Sección de Licencias Municipales deberá comprobar las denuncias presentadas en el bienio anterior. No se considerará en este proceso la aplicación de distancias indicadas en el artículo 9º del Reglamento de Licores del Decreto Ejecutivo Nº 17757-G del 28 de septiembre de 1987.

@@ -1,0 +1,1 @@
+Artículo 97.—Compete a la Sección de Licencias Municipales la tramitación y resolución de todo lo relacionado con la Ley de Impuestos Municipales del Cantón de Escazú, y con el Reglamento, así como velar por el fiel cumplimiento de dichas normas y de cualquier otro cuerpo normativo que regule la materia.

@@ -1,0 +1,1 @@
+Artículo 96.—Esta Sección tendrá a su cargo las inspecciones y verificaciones que se requieran para cumplir con el ordenamiento jurídico vigente. Asimismo, recomendará al Alcalde Municipal mediante un informe, la procedencia o improcedencia de otorgar la licencia solicitada.

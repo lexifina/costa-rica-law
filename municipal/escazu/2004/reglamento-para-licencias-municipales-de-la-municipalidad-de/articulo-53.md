@@ -1,0 +1,1 @@
+Artículo 53.—A los patentados que se encuentren registrados ante la Dirección General de Tributación bajo el Régimen Simplificado, se les aplicará el impuesto con fundamento en lo indicado en el artículo 14 de la Ley N° 7340. Deberán aportar fotocopias de las declaraciones trimestrales de las compras efectuadas y sus originales para verificación.
