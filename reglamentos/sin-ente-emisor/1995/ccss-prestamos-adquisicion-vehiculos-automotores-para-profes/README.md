@@ -13,3 +13,4 @@ CCSS: Préstamos Adquisición Vehículos Automotores para Profesionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-10 | la propia norma |
+| 2 | 1998-02-17 | Reglamento 7200 (1998-02-17) |

@@ -1,0 +1,1 @@
+DEROGADO EXPRESAMENTE, por el Reglamento para el otorgamiento de créditos en el Sistema de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social, aprobado en sesión No. 7200 de fecha 25 de febrero de 1998.
