@@ -1,0 +1,1 @@
+Artículo 6º—Estos servicios desarrollarán, además de lo establecido por el plan de estudios aprobado por el Consejo Superior de Educación, proyectos productivos acordes con las características de cada región; asimismo, promoverán el desarrollo de microempresas y de trabajo cooperativo, en diversas áreas de especialidad técnica.

@@ -1,0 +1,1 @@
+Artículo 13.—Las juntas administrativas de los centros educativos beneficiados, serán las responsables del manejo adecuado de los fondos ante las instituciones que los financian y ante la Contraloría General de la República.

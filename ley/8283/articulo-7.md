@@ -1,0 +1,1 @@
+Artículo 7º—Autorízase a las municipalidades para que donen recursos económicos y materiales y consignen en su presupuesto subvenciones a favor de los servicios mencionados, para la apertura, ampliación y creación de aulas y talleres, así como para ejecutar proyectos productivos que favorezcan la aplicación y el desarrollo del plan de estudios respectivo.
