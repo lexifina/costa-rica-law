@@ -23,10 +23,11 @@ Provincia de Alajuela: San Mateo y Orotina.
 IV. Región Brunca: Que comprende los siguientes cantones:
 Provincia de San José: Pérez Zeledón.
 Provincia de Puntarenas: Buenos Aires, Osa, Golfito, Coto Brus y Corredores.
-V. Región Huetar Atlántica: Que comprende los siguientes cantones:
-Provincia de Limón: Limón, Po cocí, Siquirres, Talamanca, Matina y Guácimo.
-Provincia de Heredia: Distrito Horquetas del cantón de Sarapiquí.
-VI. Región Huetar Norte: Que comprende los siguientes cantones:
-Provincia de Alajuela: San Carlos. Los Chiles. Guatuso. Distrito Sarapiquí del cantón de San Ramón, distrito Río Cuarto del cantón de Grecia.
-Provincia de Heredia: Distritos Puerto Viejo y La Virgen, del cantón de Sarapiquí.
+V) Región Huetar Atlántica: Que comprende los siguientes cantones:
+Provincia de Limón: Limón, Pococí, Siquirres, Talamanca, Matina y Guácimo.
+(Así reformado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 17299 del 23 de octubre de 1986).
+VI) Región Huetar Norte: Que comprende los siguientes cantones:
+Provincia de Alajuela: San Carlos, Los Chiles, Guatuso. distrito Sarapiquí del cantón de Alajuela, distrito San Isidro de Peñas Blancas del cantón de San Ramón y distrito Río Cuarto del cantón de Grecia.
+Provincia de Heredia: Cantón de Sarapiquí.
+(Así reformado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 17299 del 23 de octubre de 1986).
 (Así reformado mediante el artículo 1° del decreto ejecutivo N° 16068 del 15 de febrero de 1985).
