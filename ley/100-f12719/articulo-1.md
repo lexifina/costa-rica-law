@@ -1,0 +1,5 @@
+DECRETO C.
+Prohíbe entrada de ciertas personas que se hallan fuera del Estado a virtud de sentencias, tratados o causas políticas.
+El Jefe Supremo Provisorio de Costa Rica.
+Considerando: que la crisis en que se vió el Estado no ha desaparecido del todo y que la exáltacion que produjo fácilmente puede exítarse de nuevo, contra las personas que por ocasión de los partidos que se han sucedido, están fuera del Estado en virtud de tratados, sentencias pronunciadas ó por causas pendientes, las que si se internasen actualmente pondrán en riesgo su seguridad; para precaver cualquiera desórden que con este motivo pudiera provocarse, decreta.
+Art. único. –Se prohíbe por ahora la internación de las personas que actualmente se hallan fuera del Estado mandadas a salir por tratados, sentencia ó por causas pendientes en negocios políticos, hasta tanto reuna la Representación del Estado, y determine los que deban volver sin peligro de la tranquilidad pública. –Dado en San José á cinco de Octubre de mil ochocientos cuarenta y dos. –José María Alfaro. –Al Secretario Goneral del Despacho Sr. Francisco Ma Oreamuno”
