@@ -1,0 +1,1 @@
+Artículo 23.—De las carreras de cintas, topes y motocross. Para el otorgamiento de permiso para las carretas de cintas, topes y motocross debe cumplirse con los requisitos del articulo 17 y 20 si fuera del caso.

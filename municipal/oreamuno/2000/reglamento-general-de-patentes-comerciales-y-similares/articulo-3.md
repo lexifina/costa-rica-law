@@ -1,0 +1,1 @@
+Artículo 3°—De la prohibición del ejercicio lucrativo sin la respectiva patente: Se prohibe el ejercicio de cualquier actividad comercial en el Cantón de Oreamuno, sin contar con la respectiva licencia o patente municipal.

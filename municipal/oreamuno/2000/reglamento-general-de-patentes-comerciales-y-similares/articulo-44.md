@@ -1,0 +1,1 @@
+Artículo 44.—De la inspección e identificación. El Alcalde Municipal y los funcionarios municipales serán responsables de la efectiva recaudación del impuesto y coordinarán con las autoridades de policía a fin de obtener la colaboración de estos en la espectáculos públicos contarán con una identificación extendida, firmada y sellada por el Señor Alcalde Municipal.

@@ -1,0 +1,1 @@
+Articulo 7°—De la aprobación. Una vez realizada dicha diligencia, la Unidad de Administración Tributaria, solicitará al Departamento Legal su pronunciamiento y verificación de requisitos. Una vez con el visto bueno del Departamento legal se aprobar la licencia en primera instancia.

@@ -1,0 +1,1 @@
+Artículo 48.—De las modificaciones administrativas. Se autoriza a la Alcaldía Municipal para que dentro del plazo de seis meses, realice los ajustes del caso, para la aplicación del presente reglamento.

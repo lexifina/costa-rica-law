@@ -1,0 +1,4 @@
+De las licencias temporales
+Artículo 34.—De las solicitudes. De conformidad con el artículo 17 del Reglamento a la Ley de Licores, Decreto Ejecutivo N° 17757-G de 28 de setiembre de 1987, se autoriza la concesión de licencias temporales para el expendio de licores por un término máximo de un mes, para Fiestas Cívicas y Patronales, turnos, ferias y afines.
+Dichas licencias se otorgarán con el fin de colaborar con las entidades sociales organizadas, y debidamente acreditadas mediante la certificación correspondiente de personería. Se aplicar en lo conducente los requisitos exigidos en los artículos 4 y siguientes de este reglamento.
+La entidad que se acredite como solicitante de la licencia temporal de licores se hará responsable directo de cualquier incidente que suceda con el mal uso de la misma.

@@ -1,0 +1,1 @@
+Artículo 24.—Del incumplimiento. En caso de que la persona solicitante incumpla con los requisitos solicitados, no se dar permiso alguno bajo ningún motivo. La Municipalidad de Oreamuno no reconoce los daños y perjuicios que se causen como producto del mal uso de los permisos aquí dados.
