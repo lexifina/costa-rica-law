@@ -1,0 +1,1 @@
+Art. 12.-Si el sustentante fuere aprobado, el Presidente del Colegio señalará día para el segundo examen que versará sobre las mismas materias designadas para el primero, será pública y lo practicará la Junta Directiva del Colegio, votando también nominalmente por las notas de aprobado ó suspenso.

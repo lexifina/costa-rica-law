@@ -1,0 +1,3 @@
+Art. 41.-Los Jueces de 1° Instancia de esta capital, una vez practicado lo prevenido en el artículo 33 con los protocolos de los Notarios y Alcaldes Cartularios de su jurisdicción, los enviarán al archivo judicial para su custodia.
+Lo mismo hará el Secretario de la Sala 1° con los protocolos de los Jueces de esta capital.
+Los Jueces de 1° Instancia de las demás provincias y comarcas conservarán en los archivos de sus respectivos Juzgados, por cinco años, los protocolos concluidos que ellos hubieren llevado y los de los Notarios y Alcaldes Cartularios de su jurisdicción. Pasado ese término los enviarán al archivo judicial.

@@ -1,0 +1,1 @@
+Art. 62.-También debe el Notario hacer conocer á los interesados el valor y; trascendencia legal que tengan las renuncias que en concreto hagan, ó las cláusulas que envuelvan renuncias ó estipulaciones implícitas.

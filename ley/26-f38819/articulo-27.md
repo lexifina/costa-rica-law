@@ -1,0 +1,1 @@
+Art. 27.-El Notario no puede autorizar es cr ituras en que se consignen actos ó contratos que contengan obligaciones á favor de él, de su cónyuge ó de su ascendiente, descendiente, hermano, tío ó sobrino, ya lo sean por consanguinidad ó afinidad.

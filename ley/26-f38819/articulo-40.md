@@ -1,0 +1,1 @@
+Art. 40.-Aunque los Notarios bajo su responsabilidad pueden llevar sus protocolos de una parte á otra en el ejercicio de sus funciones, no están en la obligación de permitir, ni aun por mandato judicial, su salida de la oficina. Pero sí están obligados á mostrarlos dentro de su mismo despacho cuando los particulares lo soliciten ó la autoridad lo ordene.

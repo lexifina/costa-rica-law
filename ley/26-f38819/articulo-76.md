@@ -1,0 +1,1 @@
+Art. 76.- En los casos del artículo anterior las fincas se deslindarán indicando los nombres de los dueños de las propiedades colindantes ó los de los linderos naturales, y además los rumbos en que aquéllas ó éstos se encuentren.
