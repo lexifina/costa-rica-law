@@ -1,1 +1,0 @@
-Artículo 21.-Los alumnos aplazados en cursos correspondientes al primer período realizarán sus pruebas de aplazados en los primeros quince días del segundo período. No obstante, entre una y otra convocatoria deberá mediar no menos de cinco días naturales. Los aplazados en el segundo período realizarán las pruebas en los meses de diciembre y febrero siguientes.

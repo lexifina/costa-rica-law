@@ -1,1 +1,0 @@
-Artículo 30.-El interesado solo podrá someterse en una oportunidad a las pruebas por . suficiencia con relación al curso que pretende aprobar. El postulante que las perdiere deberá aprobarlo por el procedimiento formal regular.

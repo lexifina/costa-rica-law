@@ -1,1 +1,0 @@
-Artículo 19.-Se tendrá por aprobarlo en el respectivo curso el alumno que alcanzare, según las ponderaciones establecidas. una calificación final no inferior a sesenta y cinco en el III Ciclo de la Educación General Básica o a setenta en la Educación Diversificada.

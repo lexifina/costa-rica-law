@@ -1,1 +1,0 @@
-Artículo 43.-Los estudiantes de los Colegios Nocturnos deberán someterse a las pruebas correspondientes a los Exámenes Nacionales de Conclusión y Acreditación ·de la Educación General Básica y a los Exámenes de Bachillerato en Educación Media, según !a normativa específica de estas pruebas.

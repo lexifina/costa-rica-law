@@ -1,1 +1,0 @@
-Artículo 34.-EI Director de la institución resolverá el reconocimiento y hará la acreditación respectiva , cuando el Departamento Especializado, previo análisis y comprobación de Ja similitud, así lo recomiende.

@@ -1,1 +1,0 @@
-Artículo 37.-Los cursos por tutoría sólo se autorizarán a los interesados que demuestren estar imposibilitados, a juicio del Director de la Institución , por razones geográficas, familiares, sociales, económicas o de salud.

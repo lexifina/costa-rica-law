@@ -1,2 +1,0 @@
-IV.-Con el objeto de brindar un trato igual a los estudiantes trasladados de la educación formal regular diurna a los Colegios Nocturnos, se autoriza a los señores Directores, únicamente para el primer período de 1997, para que, previo análisis de la documentación de soporte de la matrícula, proceda a reconocer a los estudiantes los cursos aprobados en la educación formal regular diurna.
-Para no entorpecer el avance de los estudiantes favorecidos con lo dispuesto en el párrafo anterior, se autoriza instaurar por el sistema de tutoría, los cursos que correspondan.

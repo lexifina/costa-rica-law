@@ -1,1 +1,0 @@
-[imagen] Artículo 10.-No obstante lo dispuesto en el artículo anterior, los estudiantes que tuvieren interés en mejorar su formación técnica, podrán matricular y acreditar otras opciones de Educación Tecnológica que ofrezca la institución. En este caso, previa aprobación, podrán acreditarse las competencias que correspondan.

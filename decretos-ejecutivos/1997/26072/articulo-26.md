@@ -1,1 +1,0 @@
-Artículo 26.-Se tendrá por aprobado el curso cuando el postulante alcance una calificación no inferior a sesenta y cinco o a setenta, según corresponda a la Educación General Básica o a la Educación Diversificada.

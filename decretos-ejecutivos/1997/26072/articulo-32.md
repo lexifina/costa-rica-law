@@ -1,1 +1,0 @@
-Artículo 32.-La solicitud de reconocimiento se dirigirá al Director de la Institución aportando, cuando fuere pertinente, la certificación que contenga la descripción del curso o cursos por reconocer, los objetivos y una descripción detallada de los contenidos.

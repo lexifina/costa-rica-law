@@ -1,1 +1,0 @@
-Artículo 36.-Los cursos por tutoría serán autorizados por el Director de la Institución, previa solicitud de los interesados y cuando las condiciones de infraestructura y de contratación de personal así lo permita. En el acto de autorización se consignarán también las condiciones, compromisos y controles que regirán la tutoría.

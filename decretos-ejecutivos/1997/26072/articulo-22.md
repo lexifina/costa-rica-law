@@ -1,1 +1,0 @@
-Artículo 22.-El alumno que reprobare uno o varios cursos deberá repetirlos en cualquiera de las formas regulares establecidas. Podrá , no obstante, avanzar en los cursos superiores de aquellos que hubiere aprobado.

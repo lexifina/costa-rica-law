@@ -1,1 +1,0 @@
-Articulo 11.-El alumno reprobado en la educación formal regular diurna, que se trasladare en tal condición a la educación nocturna, deberá aprobar la totalidad de los cursos previstos en el Plan de Estudios para el año equivalente al reprobado.

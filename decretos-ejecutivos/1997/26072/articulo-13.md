@@ -1,1 +1,0 @@
-Artículo 13.-Para ingresar a la Educación Diversificada Académica el interesado deberá demostrar haber aprobado Ja Educación General Básica, sea por el sistema formal regular o por la educación abierta . Este requisito es también exigible al alumno regular de la institución.

@@ -1,2 +1,0 @@
-Artículo 28. Los respectivos instrumentos de evaluación serán remitidos al Director Regional que corresponda, para su aprobación para este efecto, el Director Regional constatará, con la obligada colaboración del Asesor Regional de la respectiva disciplina y el de Evaluación, que el instrumento cumple con la forma y el contenido dispuestos en el artículo anterior. Caso contrario, se devolverá, con las observaciones correspondientes.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 26223 del 22 de julio de 1997)

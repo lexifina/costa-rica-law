@@ -1,1 +1,0 @@
-Articulo 40.-Los cursos concentrados se impartirán aprovechando los fines de semana o los períodos de vacaciones. Deberán tener un mínimo de seis semanas de duración y el número de horas lectivas equivalente al de los cursos regulares.

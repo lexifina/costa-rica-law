@@ -1,1 +1,0 @@
-II.-Los estudiantes que con motivo de lo dispuesto en el transitorio precedente y su avance en relación con el Plan de Estudios no pudieren completar los tres talleres en la Educación General Básica o los dos de la Educación Diversificada; quedarán eximidos de la aprobación de aquellos que materialmente no pudieren llevar sin afectar su avance en el proceso educativo.

@@ -1,1 +1,0 @@
-Artículo 18.-El proceso educativo, los procedimiento s y criterios de evaluación y de promoción, se regirán por las disposiciones pertinentes contenidas en el Decreto Ejecutivo No. 24091-MEP del 20 de febrero de 1995, Normas Básicas Reguladoras del Proceso Educativo y sus reformas con las particularidades contenidas en este reglamento .

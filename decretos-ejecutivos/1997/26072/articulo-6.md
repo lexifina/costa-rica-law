@@ -1,1 +1,0 @@
-Artículo 6º-Cada lección tendrá una duración no inferior a treinta y cinco minutos, cuando está referida a las asignaturas académicas, y de sesenta minutos, cuando fueren de Educación Tecnológica o de la especialidad en Educación Técnica.

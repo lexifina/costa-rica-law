@@ -1,1 +1,0 @@
-Artículo 4º-El Plan de Estudios para la Educación Técnico Nocturna será el que corresponda al de las especialidades técnicas aprobadas y autorizadas para la Educación Diversificada en las instituciones con servicios diurnos.

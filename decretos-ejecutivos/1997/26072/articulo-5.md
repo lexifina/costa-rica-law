@@ -1,1 +1,0 @@
-Artículo 5º- Cada asignatura del ·plan de estudios tendrá un valor en créditos que se determinará como el producto del número de cursos previstos para el ciclo, por el número de lecciones Semanales asignado.

@@ -1,2 +1,0 @@
-Artículo 47.-EI Certificado de Conclusión de Estudios de la Educación General Básica, se otorgará a los estudiantes que aprueben el total de cursos previstos en el plan de estudios y obtenga el número de créditos asignados para el III Ciclo.
-El Bachillerato en Educación Medio o el Título de Técnico Medio, según corresponda, se otorgará a los estudiantes que además de aprobar el plan de estudios y obtener los créditos previstos para la Educación Diversificada, cumplan, a su vez, con los requisitos de graduación establecidos por las reglamentaciones específicas.

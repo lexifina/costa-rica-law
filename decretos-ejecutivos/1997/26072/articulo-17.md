@@ -1,1 +1,0 @@
-Artículo 17.-En conformidad con lo dispuesto en el artículo 7 anterior, cada curso en los que se subdivide el plan de estudios se desarrollará durante un periodo lectivo, al final del cual se establecerá la aprobación o la importación del estudiante, según las siguientes disposiciones.

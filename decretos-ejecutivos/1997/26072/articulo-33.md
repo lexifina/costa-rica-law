@@ -1,1 +1,0 @@
-Artículo 33.-Cuando se tratare de cursos recibidos y aprobados en instituciones dependientes del Ministerio de Educación Pública o instituciones privadas equiparadas, bastará la respectiva certificación en que conste la aprobación del curso o cursos de mérito. En caso de duda, las autoridades institucionales podrán requerir mayor información a las instituciones certificantes.
