@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Del desarrollo de la asamblea
+Artículo 11.—Cuando en una asamblea se presenten mociones para su aprobación, el trámite de éstas será el siguiente:
+a) Las mociones se presentarán por escrito a quien presida la Asamblea, para lo cual se suministrarán los formularios de mociones a todos los asambleístas que así lo soliciten.
+b) Cada moción será presentada por su proponente y en su discusión únicamente se admitirá la participación de un máximo de seis asambleístas, durante cinco minutos cada uno, para que tanto los defensores como los oponentes expongan sus alegatos; todo de acuerdo con lo que señala el Reglamento de la Ley del Colegio de Contadores Privados en su artículo 9, párrafo último. Cualquiera de los defensores u oponentes a una moción podrán ceder parte de su tiempo a otro asambleísta, quien podrá continuar hablando durante todo el tiempo que aún le reste al expositor. Concluido el tiempo reglamentario, se darán por terminados dichos alegatos.
+c) Una vez finalizadas ambas exposiciones, el presidente dará por discutida la moción y la someterá a votación. En los casos excepcionales, la Junta Directiva podrá autorizar la participación de dos miembros más por cinco minutos cada uno (Aprobado en la Asamblea General Nº 115-2002 del 13 de enero del 2002).

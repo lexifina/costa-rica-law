@@ -1,0 +1,1 @@
+Artículo 4º—Las asambleas serán abiertas en primera convocatoria por el secretario de la Junta Directiva, quien las dará por iniciadas. El fiscal determinará si existe el quórum de ley y, si este no se hubiere completado, el presidente hará la segunda convocatoria de acuerdo con lo que señala la Ley Nº 1269.

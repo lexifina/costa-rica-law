@@ -1,0 +1,1 @@
+Artículo 2º—Las asambleas de colegiados se celebrarán de acuerdo con lo que establecen la Ley y su Reglamento, y en ellas se conocerán los diversos puntos fijados en la respectiva agenda. El quórum, así como los términos de las convocatorias, también se fijarán de conformidad con la normativa citada, según los artículos respectivos.
