@@ -14,3 +14,4 @@ Reforma al Reglamento para la Explotación de Servicios Especiales de Transporte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-01-18 | la propia norma |
+| 2 | 2004-05-05 | SINALEVI (sin norma nombrada) |
