@@ -13,3 +13,4 @@ Interés Cultural Revista Facetas Terruño y Libro Facetas Hogareñas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-03-03 | la propia norma |
+| 2 | 1997-03-03 | SINALEVI (sin norma nombrada) |
