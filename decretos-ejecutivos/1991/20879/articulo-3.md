@@ -1,0 +1,2 @@
+Artículo 3°-Se modifica en lo conducente y se deroga en lo que se oponga a las presentes disposiciones, el decreto N° 14148-PLAN del 8 de enero de 1983; decreto N° 14348-MEC-PLAN del 9 de marzo de 1983, decreto N° 15290-MIEM-PLAN del 20 de enero de 1984 y el decreto N° 16577-PLAN-MIEM del 2 de octubre de 1985.
+Dado en la Presidencia de la República.-San José, a los siete días del mes de noviembre de mil novecientos noventa y uno.
