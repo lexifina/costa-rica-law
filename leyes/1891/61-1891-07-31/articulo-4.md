@@ -1,0 +1,2 @@
+Artículo 4-Todos los propietarios de solares en el puerto de Limón, presentarán dentro de seis meses sus respectivos títulos inscritos, al Ministerio de Fomento ó á la Gobernación de Limón, á efecto de revisarlos y devolverlos á los interesados con el "Visto Bueno" del Subsecretario de Gobernación y Fomento, ó del Gobernador respectivo.
+El que sin justa causa dejare de presentarlo en el término aquí señalado, perderá el solar y quedará incurso en una multa de cincuenta pesos, aplicables á los fondos municipales del mismo puerto.

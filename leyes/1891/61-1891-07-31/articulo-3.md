@@ -1,0 +1,1 @@
+Artículo 3°-Queda facultado el Poder Ejecutivo para celebrar contratos con las diversas compañías cuyos vapores arriben periódicamente á los puertos de la República y se obliguen á traer y llevar gratis la correspondencia, pudiendo concederles en compensación á estos servicios, la exención, en todo ó en parte, de los derechos de puerto establecidos.
