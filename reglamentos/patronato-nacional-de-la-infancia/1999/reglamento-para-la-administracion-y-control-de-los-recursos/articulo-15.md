@@ -1,1 +1,0 @@
-Artículo XV.—En atención al acuerdo de la Junta Directiva en la sesión ordinaria 98-0084, la Junta de Protección, cada dos meses, deberá presentar un informe del cumplimiento de metas y objetivos de los proyectos en ejecución.

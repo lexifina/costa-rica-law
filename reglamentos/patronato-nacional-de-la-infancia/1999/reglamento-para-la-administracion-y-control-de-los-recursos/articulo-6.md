@@ -1,1 +1,0 @@
-Artículo VI.—El Area de Promoción y Prevención remitirá al Area Financiero Contable la solicitud de elaboración del cheque con indicación expresa de los montos a girar y el resto de la información necesaria. En la solicitud de giro de cheque, deberá indicarse el número del acuerdo de la Junta Directiva en que se aprobó el proyecto y la fecha de su firmeza.
