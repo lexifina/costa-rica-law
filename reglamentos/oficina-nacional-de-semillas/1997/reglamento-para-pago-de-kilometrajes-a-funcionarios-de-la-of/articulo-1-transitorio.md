@@ -1,0 +1,5 @@
+TRANSITORIO
+I—Los funcionarios que habían ingresado al SISTEMA con vehículos de combustible gasolina antes de la modificación del Artículo 2°, podrán continuar de la forma en que ingresaron. Sin embargo, una vez que cambien de vehículo y si desean continuar en EL SISTEMA, podrán hacerlo solo con vehículo de combustible diesel.
+II.—Si al momento de la modificación del Artículo y durante los treinta días siguientes, un funcionario demuestra que ya había iniciado las gestiones de compra de vehículo de combustible gasolina y que estas son irreversibles, se permitirá que ingrese siempre y cuando cumpla con los otros requisitos, aplicándosele lo especificado en el Transitorio anterior.
+III.—Después de treinta días de aprobada la modificación del Artículo 2°, los funcionarios podrán ingresar AL SISTEMA solo con vehículos de combustible diesel y cumpliendo los requisitos especificados en el artículo 6°.
+(Así adicionado mediante Sesión Ordinaria No. 467, de fecha 25 de mayo de 1998, de la Junta Directiva de la Oficina Nacional de Semillas).

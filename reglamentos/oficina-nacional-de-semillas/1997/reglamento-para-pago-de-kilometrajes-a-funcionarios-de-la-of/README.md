@@ -14,3 +14,4 @@ Reglamento para Pago de Kilometrajes a Funcionarios de la Oficina Nacional de Se
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-02 | la propia norma |
+| 2 | 1998-05-25 | Reglamento 467 (1998-05-25) |
