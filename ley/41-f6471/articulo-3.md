@@ -1,0 +1,2 @@
+Art 3°.- El Consejo de guerra, establecido por resolución n° 584 de 17 de noviembre próximo pasado, continuará en ejercicio para la sustanciación y fenecimiento de todas las causas del fuero de guerra, para las que se instruyan por delitos contra el orden político de la Nación, contra el Jefe de esta y contra la seguridad interior y exterior de la misma y para las que, conforme a las leyes y al decreto n°11 de 22 de noviembre anterior, deben conocer las autoridades militares.
+Dado en San José, a los once días del mes de diciembre de mil ochocientos cincuenta y seis.
