@@ -1,0 +1,1 @@
+Artículo 25.—El Almacén General de Depósito del ICAFE llevará en libros legalizados el Registro de Certificado de Depósito y/o Vales de Prenda, en los cuales se anotarán los endosos respectivos, consignando la fecha del endoso, el número del título, el nombre y calidades del endosante y endosario, así como la fecha correspondiente.

@@ -1,0 +1,1 @@
+Artículo 24.—El café ingresado a las instalaciones AGD, será identificado según lo define el Manual de procedimientos respectivo, incluyendo fechas de ingreso, lotes, cantidad de producto, volumen, número de silo, entre otros.

@@ -1,0 +1,1 @@
+Artículo 8º—Cumplidos los requisitos anteriores por parte de las Firmas Beneficiadoras, el ICAFE procederá a solicitar al Ministerio de Hacienda la emisión de la autorización correspondiente para que se habiliten las instalaciones del almacén general de depósito.

@@ -1,0 +1,1 @@
+Artículo 16.—Es obligación de la firma beneficiadora comunicar al ICAFE el ente al cual le será endosado el Certificado de Depósito y/o Vale de Prenda, quién pasará a ser el propietario y/o acreedor prendario del café almacenado a partir de ese momento.

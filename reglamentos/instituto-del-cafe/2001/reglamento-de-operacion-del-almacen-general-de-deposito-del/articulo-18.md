@@ -1,0 +1,1 @@
+Artículo 18.—Las condiciones de crédito amparadas a dichos Certificados de Depósito y/o Vales de Prenda, serán definidas entre el beneficio y la entidad financiera, limitándose el ICAFE a custodiar, conservar y entregar el café al que legalmente le corresponda, cumpliéndose al efecto los trámites establecidos en la Ley de Almacenes Generales de Depósito.

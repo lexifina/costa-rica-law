@@ -1,0 +1,1 @@
+Artículo 17.—Para la validez de las trasmisiones (endosos) de los Certificados de Depósito y/o Vales de Prenda, éstos deben registrarse ante el Almacén General de Depósito del ICAFE, en los registros establecidos para ese efecto según lo indica el artículo 22 de la Ley de Almacenes Generales de Depósito.

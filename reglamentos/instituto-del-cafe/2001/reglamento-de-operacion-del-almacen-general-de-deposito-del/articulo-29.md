@@ -1,0 +1,1 @@
+Artículo 29.—Todo la documentación utilizada por el Almacén General de Depósito deberá cumplir con las normas de control y tributarias requeridas para el adecuado manejo de esta actividad, según lo dispone las leyes, reglamentos y procedimientos que lo rigen.

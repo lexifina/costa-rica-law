@@ -1,0 +1,1 @@
+Artículo 33.—El presente Reglamento fue aprobado mediante el Acuerdo número 2 de la sesión de Junta Directiva del Instituto del Café de Costa Rica número 1455 celebrada el día 11 del mes de diciembre del año dos mil uno."

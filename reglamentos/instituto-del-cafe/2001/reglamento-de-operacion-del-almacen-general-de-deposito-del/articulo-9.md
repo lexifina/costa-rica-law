@@ -1,0 +1,1 @@
+Artículo 9º—Realizada la habilitación de las instalaciones por parte del Ministerio de Hacienda, el ICAFE podrá entonces realizar su operación como Almacén General de Depósito, previa protocolización del contrato de arrendamiento.
