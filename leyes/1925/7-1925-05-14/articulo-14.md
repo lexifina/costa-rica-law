@@ -1,0 +1,1 @@
+Articulo 14.-Cuando por la extensión e importancia de las labores de Contador y Fiscal, el buen servicio lo reclamare, se nombrara un Fiscal especial de rentas escolares, que ejercerá sus funciones bajo la dirección del Contador.

@@ -1,0 +1,1 @@
+Articulo 5°- El nombramiento de Tesorero Escolar de un distrito, debe también autorizarse por la Secretaría de Educación, con examen de las razones de conveniencia para que la Tesorería del distrito esté separada de la cantonal. Toda Tesorería especial de distrito se considerara como auxiliar de la cantonal.

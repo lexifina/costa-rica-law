@@ -1,0 +1,1 @@
+Articulo 16.-Se hace extensivo a las administraciones de fondos escolares lo dispuesto por el articulo 36 de la Ley de Hacienda Municipal, así como las prescripciones pertinentes de la Sección VI de la misma ley.
