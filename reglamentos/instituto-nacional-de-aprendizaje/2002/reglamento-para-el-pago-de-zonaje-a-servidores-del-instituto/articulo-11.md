@@ -1,0 +1,1 @@
+Artículo 11.—Con el fin de resolver casos no previstos en el presente Reglamento, se nombrará la Comisión de Zonaje, integrada por la Jefatura de la Unidad de Recursos Humanos, el Asesor Legal, y la Jefatura de la Unidad de Recursos Financieros.
