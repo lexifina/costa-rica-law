@@ -1,0 +1,16 @@
+# Reglamento municipal (1999-03-10)
+
+Reglamento de Caja Chica
+
+- Tipo: Reglamento municipal
+- Número: 0
+- Fecha: 1999-03-10
+- Ente emisor: Municipalidad de Upala
+- Publicación: La Gaceta N° 48 del 1999-03-10
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=59342&param2=66147&param3=1 (ficha 59342)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1999-03-10 | la propia norma |

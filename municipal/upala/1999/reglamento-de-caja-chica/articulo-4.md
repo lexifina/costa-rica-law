@@ -1,0 +1,2 @@
+Artículo 4°-La caja chica estará a cargo del Tesorero, quien es responsable de su correcto funcionamiento, en caso de que dicho funcionario se ausente de la Municipalidad por vacaciones o permiso temporal, los recursos del fondo se traspasarán transitoriamente al funcionario que designe el Alcalde Municipal; para ese traspaso se realizará el arqueo respectivo, cuyo resultado será firmado por ambos funcionarios.
+Igual procedimiento se realizará cuando el titular del fondo de caja chica se reincorpore a sus labores.
