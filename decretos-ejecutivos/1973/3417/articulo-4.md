@@ -1,1 +1,1 @@
-Artículo 4°—La Reserva Forestal a que se contrae este decreto abarca una cabida de 105.000 (ciento cinco mil) hectáreas, y para los efectos de interpretar la. demarcación de la misma conforme los rumbos señalados en el artículo 1°, se declara oficial el plano respectivo levantado por el Departamento de Tierras y Bosques del Instituto de Tierras y Colonización y que se distingue con los números 0025.
+Articulo 4°—Corresponde a la Dirección General Forestal del Ministerio de Agricultura y Ganadería, la administración general de la Reserva Forestal establecida.

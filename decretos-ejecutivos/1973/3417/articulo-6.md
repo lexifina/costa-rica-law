@@ -1,4 +1,1 @@
-Artículo 6°—Dentro de la demarcación de la Reserva Forestal queda prohibido :
-a) Derribar árboles y extraer productos forestales de cualquier especie.
-b) La caza de animales silvestres o su captura.
-c) La práctica de las quemas. Sin embargo, bajo planes técnicos aprobados y dirigidos por la Dirección Forestal se podrán dar concesiones para aprovechamiento de los Recursos Forestales de la Reserva en aquellas áreas técnicamente explotables.
+Articulo 6°—La Dirección General Forestal del Ministerio de Agricultura y Ganadería, con la colaboración del Instituto Costarricense de Electricidad y del Instituto Costarricense de Turismo, gestionará la compra directa o la expropiación de los terrenos reducidos a dominio particular y de las mejoras de ocupantes de terrenos sin inscribir comprendidos dentro de la demarcación de esa Reserva y que sean indispensables para su integración.

@@ -14,3 +14,4 @@ Reforma Linderos a la Reserva Forestal de Río Macho
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1973-12-08 | la propia norma |
+| 2 | 1974-06-17 | Decreto Ejecutivo 3886 (1974-06-17) |

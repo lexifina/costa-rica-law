@@ -1,1 +1,1 @@
-Artículo 9°—La Dirección General Forestal podrá celebrar convenios con la Universidad de Costa Rica, el Instituto Interamericano de Ciencias Agrícolas, las dependencias del Gobierno Central, los entes autónomos y los organismos internacionales tendientes a la realización de estudios, experimentaciones, demostraciones, etc. científicos o culturales dentro de la demarcación de Ia Reserva.
+Artículo 9°—Deróganse los decretos Ejecutivos números: 1 de 23 de enero de 1964, 19 de 31 de julio de 1967 y 3 de 28 de enero de 1969.
