@@ -1,0 +1,7 @@
+Artículo 2º—Definiciones. Para los efectos de esta Ley, se definen los siguientes conceptos:
+Adolescente: Persona mayor de doce años y menor de dieciocho años de edad.
+Comités cantonales de la persona joven. Comisiones constituidas en cada municipalidad del país e integradas por personas jóvenes.
+Desarrollo integral de la persona joven. Proceso por el cual la persona joven, mediante el ejercicio efectivo de sus derechos y el acceso democrático a las oportunidades que el Estado garantiza por medio de las instituciones un adecuado desarrollo espiritual, social, afectivo, ético, cognoscitivo, físico, moral y material, que la involucre a participar activamente en el desarrollo de la vida nacional y en la identificación y solución de los problemas que la afectan a ella como parte de un grupo social y a la sociedad como un todo.
+Personas jóvenes. Personas con edades comprendidas entre los doce y treinta y cinco años, llámense adolescentes, jóvenes o adultos jóvenes; lo anterior sin perjuicio de lo que dispongan otras leyes en beneficio de los niños y adolescentes.
+Sistema Nacional de Juventud. Conjunto de instituciones públicas y privadas, organizaciones no gubernamentales y entidades civiles cuyo objetivo sea propiciar el cumplimiento de los derechos y mayores oportunidades para las personas jóvenes.
+Sociedad civil. Conjunto de instituciones y organizaciones privadas, organizaciones no gubernamentales, familias y otras organizaciones sociales, establecidas formal o informalmente.

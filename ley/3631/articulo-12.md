@@ -10,5 +10,6 @@ Educación Pública.
 e) Un padre de familia, desligado profesionalmente de la enseñanza,
 que haya mostrado preocupación pública por los problemas de la educación
 en general, nombrado por el Consejo Superior de Educación.
-f) Un representante del Movimiento Nacional de Juventudes,
+f) Un representante del Consejo Nacional de Política Pública de la Persona Joven ,
 designado por el Consejo Directivo de ese Organismo.
+(Mediante el artículo 34 de la Ley N° 8261 de 2 de mayo del 2002, Ley General de la Persona Joven, se sustituye el término Movimiento Nacional de Juventudes, por el Consejo Nacional de Política Pública de la Persona Joven)

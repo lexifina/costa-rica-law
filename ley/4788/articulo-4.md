@@ -1,5 +1,2 @@
-Artículo 4º.- El nuevo Ministerio tendrá a su cargo la elaboración
-de una política nacional de juventudes, por medio de las instituciones
-y programas adecuados, que tienda a que la juventud se incorpore
-plenamente al desarrollo nacional y a que participe en el estudio y
-solución de los problemas nacionales.
+Artículo 4.—El Ministerio, por medio de su viceministro de la juventud, tendrá a su cargo la elaboración de una política pública nacional de las personas jóvenes, la cual coordinará con el Sistema Nacional de Juventud, con el fin de obtener una política integral en la materia que propicie que los jóvenes se incorporen plenamente al desarrollo nacional y a que participen en el estudio y la solución de sus problemas.
+(Así reformado por el artículo 32(actual 37) de la Ley N° 8261 de 2 de mayo del 2002, Ley General de la Persona Joven)
