@@ -1,0 +1,1 @@
+Artículo 8.—El Centro de Información mantendrá su servicio de préstamo interbibliotecario sujeto a las normas que sean acordadas con las unidades de información participantes, las cuales no podrán contravenir lo establecido en el reglamento de servicios que se emitirá.

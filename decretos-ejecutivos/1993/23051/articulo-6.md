@@ -1,0 +1,1 @@
+Artículo 6.—El Centro de Información prestará los servicios que en este decreto se establecen, para lo cual elaborará periódicamente una lista de las nuevas adquisiciones y la distribuirá a las diferentes jefaturas del Ministerio, quienes a su vez lo informarán a sus subalternos.

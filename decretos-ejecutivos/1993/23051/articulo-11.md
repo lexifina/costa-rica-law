@@ -1,0 +1,1 @@
+Artículo 11 .—El Ministerio dotará al Centro de Información con el presupuesto necesario para la adquisición y el mantenimiento de tecnología, tanto en máquinas, redes, acceso a la información como en comunicaciones, necesarias para garantizar eficiente servicio.

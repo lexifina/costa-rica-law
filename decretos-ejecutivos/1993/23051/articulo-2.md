@@ -1,0 +1,6 @@
+Artículo 2.—Serán objetivos del Centro de Información Industrial -CIIN-, los siguientes:
+a) Implantar y mantener un sistema automatizado de información industrial que atienda las necesidades del sector -o canalice a donde corresponda- las demandas de información que sus usuarios demanden, mediante la utilización de métodos y equipos modernos que permitan garantizar servicios eficientes.
+b) Crear la Red de Información del Sector Industria y Agroindustria de Costa Rica, integrando los servicios y unidades de información de las diferentes instituciones que componen el Sector de Industria y Agroindustria, en un sistema de información, especializado en el área, que pueda responder con éxito a las necesidades de información para la implementación de programas y proyectos de desarrollo, siendo el CIIN el ente coordinador de la red.
+c) Favorecer la cooperación interinstitucional que permita hacer uso intensivo y racional del conocimiento y de los recursos con que este cuente.
+d) Garantizar el libre acceso y el flujo adecuado de la información relevante y pertinente para la toma de decisiones en ese campo.
+e) Promover la normalización y agilización de las operaciones técnicas que permitan captar, procesar, almacenar y distribuir información con mayor eficiencia y eficacia-
