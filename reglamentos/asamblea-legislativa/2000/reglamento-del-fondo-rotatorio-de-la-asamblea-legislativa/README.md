@@ -14,3 +14,4 @@ Reglamento del Fondo Rotatorio de la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-04-14 | la propia norma |
+| 2 | 2000-08-29 | Reglamento 111 (2000-08-29) |
