@@ -13,3 +13,4 @@ Prohibe Venta Detalle Diesel y Gasolina por Distribuidores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-12-17 | la propia norma |
+| 2 | 1974-12-17 | SINALEVI (sin norma nombrada) |
