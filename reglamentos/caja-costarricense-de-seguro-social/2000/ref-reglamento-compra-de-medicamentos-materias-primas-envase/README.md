@@ -14,3 +14,4 @@ Ref. Reglamento Compra de Medicamentos, Materias Primas, Envases, Empaques y Rea
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-30 | la propia norma |
+| 2 | 2000-06-30 | Ley 8 |
