@@ -1,0 +1,1 @@
+Artículo 6°─ La situaciones conflictivas que, por el ejercicio de sus funciones, pudieran sobrevenir entre los Asesores Regionales correspondientes serán resueltas por el Ministerio de Educación Pública.
