@@ -1,0 +1,1 @@
+Artículo 4º—Quedan a salvo las competencias del Ministerio de Agricultura y Ganadería, para lo cual la Asociación de Criadores del Caballo Pinto Costarricense, proporcionará en el caso de serle requerida la colaboración correspondiente.
