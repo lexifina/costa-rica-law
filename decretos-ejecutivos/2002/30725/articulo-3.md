@@ -1,0 +1,3 @@
+Artículo 3º—Modifíquense los créditos fiscales establecidos en el artículo 15 de la Ley de Impuesto sobre la Renta, Ley Nº 7092 de 21 de abril de 1998 y sus reformas, publicada en La Gaceta Nº 96, del 19 de mayo de 1988, ajustados anualmente por Decreto Ejecutivo, de la siguiente forma:
+a) Por cada hijo el crédito fiscal anual será de seis mil setecientos veinte colones (¢6.720,00), que es el resultado de multiplicar por doce (12) el monto mensual contemplado en el inciso i) del artículo 34 de esta Ley.
+b) Por el cónyuge el crédito fiscal anual será de nueve mil novecientos sesenta colones (¢9.960,00), que es el resultado de multiplicar por doce (12) el monto mensual contemplado en el inciso ii) del artículo 34 de esta Ley.
