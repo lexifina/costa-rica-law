@@ -1,3 +1,9 @@
-Artículo 68.—Dentro de los tres días siguientes después de recibidos en el Tribunal el documento y actuarlos, dictará la Sala la resolución que corresponda.
-Si en la solicitud presentada ante el Registrador General, el interesado hubiere señalado casa para oír notificaciones en esta instancia, se le hará saber en ella el recibo del documento para que refuerce, si quiere, sus pretensiones con nuevos alegatos.
-Dictada la resolución se notificará al Registrador y al interesado si hubiere señalado casa.
+TITULO XI
+Calificación de documentos que no procedan
+de empleados subalternos del Registro y
+denegación de inscripciones
+CAPÍTULO ÚNICO
+Artículo 68.—El Registrador General podrá suspender la inscripción o anotación de los documentos que se le presenten con este objeto, cuando a su juicio no reúnan los requisitos y formalidades necesarias y lo avisará por el periódico oficial a los interesados.
+Si el interesado no se conformare con la suspensión podrá en cualquier tiempo solicitar por escrito en el papel sellado correspondiente, y exponiendo los motivos en que se apoye, la revocatoria de la orden o la denegación formal de la inscripción y la remisión de documentos y actuados a la Sala Primera de Apelaciones para que resuelva en grado.
+El Registrador resolverá por previdencia considerada lo que estime conveniente. Si accede a la revocatoria, mandará a practicar el asiento, caso necesario remitirá el documento y la solicitud al Tribunal.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 67 al 68 actual)

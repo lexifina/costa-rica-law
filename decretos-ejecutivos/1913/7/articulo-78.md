@@ -1,2 +1,2 @@
-Artículo 78.—Tanto los funcionarios públicos como los particulares, en su caso, que no cumplieren con la obligación de dar al Registro, en tiempo oportuno, las noticias, o presentar los certificados que previene esta ley, pagarán una multa que no bajará de cinco colones ni excederá de veinticinco, según el caso. IGUAL MULTA SE IMPONDRÁ AL PÁRROCO QUE BAUTICE Y AL PADRE O ENCARGADO DE LA PERSONA BAUTIZADA SIN LAS FORMALIDADES DEL ARTÍCULO 72.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 13 del 19 de setiembre de 1917)
+Artículo 78.—Las certificaciones contendrán copia literal del asiento con todas sus notas marginales y cita del tomo y folio en que se encuentren y estarán autorizadas con el sello de la oficina y la firma del Registrador General o la del Oficial Mayor o Secretario.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 77 al 78 actual)

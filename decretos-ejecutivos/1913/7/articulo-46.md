@@ -1,1 +1,2 @@
-Artículo 46.—Cuando del Registro resultaren constancias o declaraciones que contradigan el certificado de la partida de matrimonio, el Registrador suspenderá la inscripción, y pondrá en conocimiento del respectivo funcionario las dificultades que la impiden, para que éste lo comunique a los interesados.
+Artículo 46.—La inscripción de matrimonio católico se verificará trascribiendo literalmente la partida certificada y haciendo constar, además de las circunstancias exigidas por el artículo 248 del Código Civil, la de no aparecer en el Registro, antecedente alguno que impida la inscripción.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 45 al 46 actual)

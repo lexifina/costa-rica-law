@@ -1,6 +1,3 @@
-TITULO VIII
-Registro de defunciones
-CAPÍTULO ÚNICO
-Artículo 49.—La inscripción de un fallecimiento se hará en virtud de parte escrito que de él deben dar los Tesoreros de las Juntas de Caridad, Jefes Políticos, Agentes Principales de Policía y demás empleados encargados de expedir boletos de entierro.
-Las declaraciones de defunciones deben hacerse ante dichos funcionarios dentro del término de veinticuatro horas de ocurrido el fallecimiento.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 17 del 20 de abril de 1925)
+Artículo 49.—La ejecutoria que declare la separación de cuerpos, la nulidad de un matrimonio o el divorcio, se inscribirá también en el libro destinado a matrimonios y además se pondrá nota marginal al asiento del matrimonio.
+Las ejecutorias dictadas por Tribunales extranjeros en materia de nulidad de matrimonio, divorcio, o separación de cuerpos, podrán inscribirse a requerimiento de parte interesada, una vez cumplidos los trámites que establecen los artículos 1064 y siguientes del Código de Procedimientos Civiles.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 48 al 49 actual)

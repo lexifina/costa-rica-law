@@ -1,1 +1,2 @@
-Artículo 57.—Los fallecimientos ocurridos en viajes por tierra, dentro del territorio de la República, se inscribirán en el Registro del cantón en que haya de enterrarse el cadáver.
+Artículo 57.—Si por circunstancias extraordinarias no pudiere levantarse el acta, bastará la declaración jurada del interesado hecha en el extranjero ante un Agente consular o diplomático de la República o a sí regreso ante el Registrador auxiliar de su domicilio, el cual mandará copia del acta al Registro Central: en uno u otro caso se oirá a los testigos del hecho, si ello no ofreciere dificultad.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 56 al 57 actual)

@@ -1,2 +1,2 @@
-Artículo 64.—Establecido el recurso en tiempo y forma, y luego que se haya recibido el escrito en que se interponga, la Sala de Casación mandará que la de Apelaciones cite al Registrador General y a los interesados para que dentro de tercero día se presenten a reclamar sus derechos.
-Dentro de los tres días siguientes al en que concluye el emplazamiento, dictará la Sala su resolución.
+Artículo 64.—Contra la resolución de la Sala se dará el recurso de casación, que será admisible cuando se interponga dentro de tercero día y cuando se refiera al fondo del negocio.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 63 al 64 actual)

@@ -1,2 +1,2 @@
-Artículo 48.—La ejecutoria que declare la separación de cuerpos, la nulidad de un matrimonio o el divorcio, se inscribirá también en el libro destinado a matrimonios y además se pondrá nota marginal al asiento del matrimonio.
-Las ejecutorias dictadas por Tribunales extranjeros en materia de nulidad de matrimonio, divorcio, o separación de cuerpos, podrán inscribirse a requerimiento de parte interesada, una vez cumplidos los trámites que establecen los artículos 1064 y siguientes del Código de Procedimientos Civiles.
+Artículo 48.—Los matrimonios celebrados fuera de la República, entre costarricenses o extranjeros, podrán inscribirse en el Registro Civil a requerimiento de parte interesada y en virtud de documento debidamente autenticado y legalizado.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 47 al 48 actual)

@@ -1,1 +1,2 @@
-Artículo 44.—Las certificaciones de los matrimonios católicos celebrados en el territorio de la República, se enviarán por los señores párrocos, en el término más corto que permita el servicio de Correos, al Registro Central.
+Artículo 44.—Los matrimonios celebrados en la República por los Ministros diplomáticos y Cónsules que conforme a los tratados puedan hacerlo, se inscribirán en virtud de certificación expedida por el Agente Diplomático o Consular, previa la traducción legalmente hecha.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 43 al 44 actual)

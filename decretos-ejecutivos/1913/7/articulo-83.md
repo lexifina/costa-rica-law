@@ -1,2 +1,5 @@
-Artículo 83.—Por el expediente que se levante previo a la declaración del matrimonio civil, y por éste, se agregará a cada certificación un timbre de (¢ 10-00) diez colones, el que se cancelará con el sello de la Oficina que expida el certificado. Las certificaciones de matrimonio civiles deben enviarse a la Oficina Central por el correo inmediato al día en que se verificó el matrimonio.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 17 del 20 de abril de 1925)
+Artículo 83.—Por los asientos que se extienden en el Registro Central y las declaraciones que se hagan a los Registradores Auxiliares, Tesoreros de las Juntas de Caridad etc., no se cobrará remuneración alguna.
+A cada certificación que expida el Registro Central, lo mismo que a la constancia de no aparecer inscrito un asiento, debe agregarse un timbre por valor de (¢ 2-00) dos colones.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 17 del 20 de abril de 1925)
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 82 al 83 actual)
+Dado en el Palacio Nacional.—San José, a los veinticinco días del mes de julio de mil novecientos trece.
