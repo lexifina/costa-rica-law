@@ -1,0 +1,14 @@
+Nº 30411-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en lo establecido en el artículo 140, inciso 8) de la Constitución Política, el artículo 105 de la Ley Nº 7494 denominada Ley de la Contratación Administrativa y el artículo segundo del Decreto Ejecutivo N° 28656-H.
+Considerando:
+1º—Que la Ley de Contratación Administrativa Nº 7494, publicada el 8 de junio de 1995 y sus reformas, denominada "Ley de Contratación Administrativa", dispone en su artículo 105 que es competencia del Poder Ejecutivo el regular mediante decreto la organización y funcionamiento de las Proveedurías Institucionales que considere pertinente crear dentro del Gobierno Central, a efecto de llevar a cabo las etapas de la contratación administrativa que se encuentran asignadas a la Proveeduría Nacional (actualmente y en adelante Dirección General de Administración de Bienes y Contratación Administrativa) de conformidad con el inciso a) del artículo 103 del mismo cuerpo legal.
+2º—Que el Decreto Ejecutivo Nº 28656-H, publicado en La Gaceta Nº 104 del día 31 de mayo del 2000, dispone en su artículo 2° que el Poder Ejecutivo creará en cada caso y mediante Decreto Ejecutivo, la Proveeduría Institucional de cada Ministerio que a la fecha no cuente con ella.
+3º—Que el artículo 3° del citado decreto señala en su artículo que los requisitos a cumplir por la Proveeduría Institucional de cada Ministerio deben ser, de previo a su creación y a efectos de poder iniciar su operación, definidos por la Dirección General de Administración de Bienes y Contratación Administrativa mediante resolución razonada, a efecto de contar con la estructura organizacional idónea.
+4º—Que según resolución Nº DGABCA-74 de las 13,30 horas de siete de marzo del 2002, la Dirección General de Administración de Bienes y Contratación Administrativa, aprobó el cumplimiento por parte de la Dirección General de Migración y Extranjería, la cual pertenece al Ministerio de Gobernación y Policía de los requerimientos previos para contar con una estructura organizacional idónea para la creación e inicio de operaciones de una Proveeduría Institucional.
+5º—Que en atención a lo expuesto y de acuerdo a la naturaleza, volumen de operaciones y atendiendo la organización territorial que tiene un carácter nacional se estima procedente la creación de la Proveeduría Institucional de la Dirección General de Migración y Extranjería.
+Decretan:
+"Creación de la Proveeduría Institucional
+de la Dirección General de Migración y Extranjería"
+Artículo 1º—Se crea la Proveeduría Institucional de la Dirección General de Migración y Extranjería, la cual se regirá por lo dispuesto por el Decreto Ejecutivo N° 28656-H, y contará con las facultades que le confiere el artículo 105 y concordantes de la Ley de Contratación Administrativa.
