@@ -1,0 +1,3 @@
+Acuerdo 2º—Agregar el siguiente inciso 1, al artículo 3, del código de ética:
+Artículo 3º—
+1) Abstenerse de cualquier tipo de conducta sexual o física, dirigida tanto al estudiante como a sus familiares, que pudiera ser calificada como acoso u hostigamiento de conformidad con lo establecido en la ley contra el hostigamiento sexual en el empleo y la docencia. el colegiado o la colegiada deberá abstenerse de solicitar cualquier tipo de favores sexuales; no podrá usar, ya sea en forma oral o escrita, palabras de naturaleza sexual que resulten ofensivas y evitará en todo momento todo tipo de acercamiento corporal o cualquier otra conducta física que pueda calificarse como ofensiva o indeseada.

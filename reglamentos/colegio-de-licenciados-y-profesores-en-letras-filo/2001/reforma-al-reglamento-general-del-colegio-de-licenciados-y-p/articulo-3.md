@@ -1,0 +1,3 @@
+Acuerdo 3º—Agregar un artículo 7 bis al Código de Ética, que diga:
+"Artículo 7 bis.—El Colegiado deberá abstenerse de cualquier tipo de conducta sexual o física dirigida a cualquier colega, que pudiera ser calificada como acoso u hostigamiento de conformidad con lo establecido en la ley contra el hostigamiento sexual en el empleo y la docencia. el colegiado deberá abstenerse de solicitar cualquier tipo de favores sexuales; no podrá usar, ya sea en forma oral o escrita, palabras de naturaleza sexual que resulten ofensivas y evitará en todo momento todo tipo de acercamiento corporal o cualquier otra conducta física que pueda calificarse como ofensiva o indeseada".
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
