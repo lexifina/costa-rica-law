@@ -1,0 +1,1 @@
+Art 5°.- La nueva población se denominará Atenas y cuando tenga mil almas tendrá la Municipalidad que corresponde a los pueblos de este número.- Al Consejo Representativo.- Dado en San José a primero de Mayo de mil ochocientos treinta y tres. Por tanto: Ejecútese.- San José mayo ocho de mil ochocientos treinta y tres.

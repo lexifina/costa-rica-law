@@ -1,0 +1,1 @@
+Art 3°- La población de allí se forme será administrada en lo civil y eclesiástico por la Ciudad de Alajuela: y para señalar los solares a las personas que pretendiesen avecindarse en ella, nombrará la Municipalidad un Comisionado de entre los primeros vecinos que lo practique y este a la mira del arreglo de calles.
