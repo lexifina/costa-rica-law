@@ -1,0 +1,2 @@
+Artículo 112.- Esta ley es de orden público, rige a partir de su publicación y deroga todas aquellas leyes y reglamentos dictados respecto a la industria minera, inclusive las siguientes: la número 1551 del 20 de abril de 1953, sus reformas y adiciones; la número 5046 del 26 de julio de 1982, y el inciso e) del artículo 32 de la ley número 5230 del 25 de julio de 1973, y todas aquellas otras que se le opongan.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 108 al 112)

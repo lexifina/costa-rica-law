@@ -1,10 +1,11 @@
-TITULO V
-De las canteras
-Artículo 36.- Las canteras se considerarán parte integrante del terreno en donde se encuentren. Podrán ser objeto de solicitud de concesión para explotar, por parte de personas físicas o jurídicas que ofrezcan la seguridad de que sus productos van a ser utilizados industrialmente, o de titulares de concesión de una mina, cuando el producto de la cantera vaya a ser usado dentro de la concesión misma, en los trabajos de construcción de la mina y sus dependencias.
-Sin embargo, no se tramitará la solicitud, en los siguientes casos:
-a) Si la cantera estuviera en explotación legalmente autorizada.
-b) Si el dueño de los terrenos en que se encuentra la cantera decidiera explotarla personalmente o por medio de un tercero, salvo lo dispuesto en el inciso precedente.
-El Poder Ejecutivo reglamentará la explotación de las canteras, así como las medidas de seguridad pertinentes. La información y formas de trabajo quedarán sujetas a lo que establecen la presente ley y su reglamento.
-Los concesionarios de canteras pagarán a las municipalidades que correspondan a la ubicación de éstas el equivalente a un diez por ciento del valor en el mercado, por metro cúbico extraído de arena, piedra, lastre y derivados de éstos.
-Las tasas serán canceladas a favor de la tesorería de la corporación municipal, en el lugar y en la forma que ésta lo determine.
-La falta de pago de este impuesto se considerará como defraudación fiscal, sujeta a las penas establecidas en el Código Fiscal. Además, quien incurra en esta falta deberá pagar una multa, a favor de la municipalidad correspondiente, equivalente a diez veces el valor de la suma defraudada.
+TÍTULO V
+Cauces de dominio público
+CAPÍTULO ÚNICO
+Artículo 36.—El MINAE podrá otorgar concesiones de explotación de materiales en cauces de dominio público por un plazo máximo de diez años, prorrogable hasta cinco años mediante resolución debidamente fundamentada, de acuerdo con el procedimiento que se establezca en el Reglamento de esta Ley. El plazo se contará a partir de la aprobación del respectivo estudio de impacto ambiental.
+La superficie máxima que podrá otorgarse para cada concesión será de dos kilómetros de longitud por el ancho del cauce. En un mismo cauce, ninguna persona física o jurídica podrá disponer de más de dos concesiones para extraer materiales, ya sea a título personal o como miembro o representante de una persona jurídica, tampoco sus parientes hasta segundo grado de consanguinidad o afinidad.
+Para solicitar el permiso o la concesión, el interesado deberá presentar la documentación completa, según el presente Código y su Reglamento. La DGM no recibirá las solicitudes incompletas.
+Presentada la solicitud ante la DGM, dicha Dirección consultará a la municipalidad respectiva a efecto de que esta se pronuncie o demuestre su interés en realizar la extracción para ejecutar obras comunales. La municipalidad deberá contestar en un plazo de sesenta días naturales, de lo contrario se asumirá que no tiene interés y, por lo tanto, se continuará con el trámite del solicitante.
+Si la municipalidad manifiesta interés en realizar la extracción, deberá materializarlo dentro de los tres meses siguientes contados a partir de la respuesta; de lo contrario, se considerará que no tiene interés. Si la municipalidad no formaliza su interés dentro del plazo establecido, no podrá solicitar ninguna explotación sobre esa área, mientras la concesión solicitada se encuentre vigente. La formalización de la solicitud para explotación la efectuará ante la DGM, según los procedimientos fijados en la presente Ley.
+Si la municipalidad manifiesta su oposición a que se explote dicho sector del cauce, deberá justificar los motivos de esta.
+En situaciones de emergencia declarada, cuando la municipalidad requiera extraer material de un cauce de dominio público para el cual ya haya sido otorgada una concesión, el concesionario deberá permitir la extracción de material en los volúmenes autorizados por la DGM. Dicha extracción deberá realizarse siguiendo los lineamientos establecidos en el plan de explotación y las recomendaciones ambientales emitidas por el MINAE en el estudio de impacto ambiental.
+(Así adicionado por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002)

@@ -1,6 +1,3 @@
-TITULO IX
-De la expropiación
-Artículo 53.- Si no se produjera acuerdo entre los interesados, para establecer las servidumbres y para fijar el monto de la indemnización que procediere, el concesionario de explotación podrá acogerse a los preceptos del título anterior, o pedir al Poder Ejecutivo que decrete la expropiación de los terrenos necesarios, la que se realizará de conformidad con la legislación vigente, para lo cual el concesionario deberá cubrir los costos.
-Para los efectos de la expropiación se declararán de utilidad pública los correspondientes terrenos.
-A toda persona física o jurídica que se viere afectada por el presente artículo, el Estado deberá garantizarle la reubicación en condiciones similares que le permitan asegurar, dignamente, su futuro.
-(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 49 al 53)
+Artículo 49.—Para la concesión de explotación de placeres o lavaderos, regirán las disposiciones de esta Ley y su Reglamento en cuanto a exploraciones y explotación minera. Los concesionarios de explotación deberán pagar al municipio en donde se desarrolle la actividad, una tasa del quince por ciento (15%) del monto total que se paga mensualmente por concepto de impuesto de ventas, generado por la venta de cada metro cúbico de material extraído.
+(Así reformado por el artículo 1 de la Ley N° 8246 de 24 de abril del 2002)
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 45 al 49)

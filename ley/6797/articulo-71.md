@@ -1,2 +1,2 @@
-Artículo 75.- Para lo no previsto en este capítulo, regirán las disposiciones de la legislación vigente sobre asociaciones cooperativas y sobre la creación del Instituto Nacional de Fomento Cooperativo.
-(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 71 al 75)
+Artículo 71.- Las sociedades extranjeras que soliciten un permiso de exploración o concesión de explotación, deberán cumplir con las disposiciones que, para los efectos, señale la legislación costarricense. En todo caso deberán fijar domicilio y llevar su contabilidad dentro del país, de acuerdo con las leyes de Costa Rica.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 67 al 71)
