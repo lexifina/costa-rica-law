@@ -1,0 +1,1 @@
+Artículo 6º—No se reconocerá el auxilio económico a ningún trabajador o trabajadora [extractor(a)] que no esté incluido(a) en la lista certificada por el INCOPESCA o que fuese reportado extemporáneamente.
