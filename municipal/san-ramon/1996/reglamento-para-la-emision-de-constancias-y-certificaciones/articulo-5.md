@@ -1,1 +1,1 @@
-5°—Toda constancia será emitida en estricto orden numérico.
+5) Toda constancia y/o certificación será emitida en estricto orden numérico.

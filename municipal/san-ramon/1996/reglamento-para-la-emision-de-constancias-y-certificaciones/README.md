@@ -14,3 +14,4 @@ Reglamento para la Emisión de Constancias y Certificaciones Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-10 | la propia norma |
+| 2 | 1998-08-04 | Reglamento municipal 31 (1998-08-04) |
