@@ -1,0 +1,2 @@
+Art 12° Todas las transacciones y convenios sea de la naturaleza que fueren y los documentos que en consecuencia de ellos se otorguen, deberán determinar claramente los valores para poder conocer los derechos que causan; y los que por cualquier motivo no lo determinen, quedarán sujetos a las disposiciones contenidas en el Decreto Ejecutivo n° 38 de 2 de noviembre de 1866.
+Dado en el Palacio Nacional de San José, a quince días de febrero de mil ochocientos setenta.

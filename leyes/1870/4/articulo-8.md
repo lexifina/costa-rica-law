@@ -1,0 +1,1 @@
+Art 8° Ningún timbre, que se sospeche haber sido y usado, podrá usarse en otro documento cualquiera, bajo la pena la reputarse sin efecto, y sujeto el tenedor del documento a la pena señalada por la ley.

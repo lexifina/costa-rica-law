@@ -1,0 +1,2 @@
+Art 2° Las oficinas de venta de timbre, permanecerán abiertas en todas las horas del día, y los recaudadores harán los enteros de la misma manera y bajo las mismas reglas establecidas para todas las rentas nacionales. Gozarán los Receptores del sueldo de un tres por ciento que deducirán por la venta y entrega del dinero.
+Único. El Ministro de Hacienda entregará a los Receptores la cantidad de timbres que se considere necesaria para el expendio. Esta entrega se verificará por el Jefe de Sección, firmando el que recibe la correspondiente partida de cargo.
