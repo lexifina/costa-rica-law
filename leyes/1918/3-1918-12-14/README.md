@@ -1,6 +1,6 @@
 # Ley de Deuda Pública
 
-Ley N° 3 del 1918-12-14. SINALEVI, ficha 3591: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3591&param2=106269&param3=1>.
+Ley N° 3 del 1918-12-14. SINALEVI, ficha 3591: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3591&param2=106270&param3=1>.
 
 Publicada en La Gaceta N° 141 del 1918-12-15.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 1918-12-15 | SINALEVI | 1918-12-14 |
 | 3 de 5 | 1919-07-28 | Ley 5 | 1919-07-28 |
 | 4 de 5 | 1925-06-13 | Ley 34 | 1925-06-13 |
+| 5 de 5 | 1940-06-19 | Ley 64 | 1940-06-19 |
