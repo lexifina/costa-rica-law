@@ -1,0 +1,1 @@
+Artículo 7º.- El Consejo Directivo sesionará ordinariamente una vez por semana. El quórum lo formarán tres de sus miembros y los acuerdos serán tomados por la mayoría absoluta de los presentes. Sus miembros devengarán una dieta de ¢ 50.00 (cincuenta colones) por sesión, y no podrán remunerarse más de seis cada mes.

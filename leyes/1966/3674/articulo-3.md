@@ -1,0 +1,2 @@
+Artículo 3º.- El objetivo del Movimiento Nacional de Juventudes será inculcar en la juventud costarricense sentimientos de amor a la Patria y al trabajo, y espíritu de servicio, altruismo y cooperación. A este efecto:
+Creará centros de atracción en las comunidades que ofrezcan a los jóvenes un marco de posibilidades de estudio y trabajo, complementarias de las recibidas en los centros académicos y llevará a cabo todas aquellas actividades que contribuyan al logro de sus fines.

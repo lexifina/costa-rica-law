@@ -1,0 +1,1 @@
+Artículo 13.- El Consejo Directivo elaborará el Presupuesto del Movimiento, el cual, previo el visto bueno del Ministerio de la Presidencia, presentará a la Contraloría General de la República para su autorización.
