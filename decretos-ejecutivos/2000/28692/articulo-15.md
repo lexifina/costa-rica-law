@@ -1,0 +1,1 @@
+Artículo 15.—Los cambios en los manuales, reasignaciones, estudios integrales de puestos, y homologaciones y conversiones de sistema, serán aprobados por la junta directiva; de no existir ésta, por el máximo jerarca de la entidad. La fecha de vigencia será el primer día del mes siguiente, a aquel en que se emita dicha aprobación.

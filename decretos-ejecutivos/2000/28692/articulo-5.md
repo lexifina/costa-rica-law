@@ -1,0 +1,1 @@
+Artículo 5º—Para que la AP establezca la valoración de puestos excluidos del Régimen de Servicio Civil de los ministerios, según lo indicado en el artículo anterior, la unidad competente deberá enviar a la STAP un estudio técnico aprobado por el máximo jerarca.

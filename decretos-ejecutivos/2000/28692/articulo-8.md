@@ -1,0 +1,1 @@
+Artículo 8º—Toda modificación a la estructura organizacional deberá contar con la aprobación previa de MIDEPLAN, según el artículo 13° del Decreto Ejecutivo N° 23323-PLAN y sus reformas, Reglamento General de dicho Ministerio.
