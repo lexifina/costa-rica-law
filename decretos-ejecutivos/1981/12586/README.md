@@ -15,3 +15,4 @@ Amplía área del Refugio de Fauna Silvestre Dr. Rafael Lucas Rodríguez Caballe
 | --- | --- | --- |
 | 1 | 1981-05-20 | la propia norma |
 | 2 | 1990-11-09 | Decreto Ejecutivo 20082 (1990-11-09) |
+| 3 | 2003-11-18 | Decreto Ejecutivo 31591 (2003-11-18) |
