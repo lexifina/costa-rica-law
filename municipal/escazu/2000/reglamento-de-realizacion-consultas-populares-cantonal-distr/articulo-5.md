@@ -1,0 +1,1 @@
+Artículo 5º—Nombramiento de la Comisión Coordinadora de la Consulta Popular. El Concejo Municipal podrá nombrar una comisión, conformada por regidores y síndicos, que se encargue de la organización y dirección de la consulta.

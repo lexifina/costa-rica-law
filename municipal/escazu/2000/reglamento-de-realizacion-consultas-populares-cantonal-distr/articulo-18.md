@@ -1,0 +1,1 @@
+Artículo 18.—Documentación Electoral. El Tribunal Supremo de Elecciones asesorará a la Municipalidad y en especial, a la Comisión Coordinadora de la Consulta Popular, en cuanto a las seguridades básicas en la confección y manejo de la documentación electoral que sea necesaria.

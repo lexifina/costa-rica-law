@@ -1,0 +1,1 @@
+Artículo 33.—Convocatoria. El Concejo Municipal hará la convocatoria a cabildo abierto por medios idóneos que garanticen su conocimiento por parte de la población, debiendo realizar al menos una publicación en dos periódicos de circulación nacional con un mes de antelación.
