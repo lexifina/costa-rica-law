@@ -1,14 +1,11 @@
 (Derogado)
-N§ 24
+N° 24
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA
 DECRETA:
-ARTÖCULO £nico.-Cr‚ase la Secretar¡a de Estado en el Despacho
-de Salubridad P£blica y Protecci¢n Social, la cual tendr a su
-cargo las
-siguientes funciones:
-a) Las que actualmente se¤ala la ley sobre Protecci¢n de la Salud
-P£blica, a la Subsecretar¡a de Higiene y Salud P£blicas.
-b) Las correspondientes al ramo de la Beneficencia P£blica.
-c) Las que incumben actualmente a la Secretar¡a de Gobernaci¢n
-y Polic¡a, en relaci¢n con la higiene local.
-
+Artículo único.-Crease la Secretaría de Estado en el Despacho de Salubridad Pública y Protección Social, la cual tendrá a su cargo las siguientes funciones:
+a) Las que actualmente señala la ley sobre Protección de la Salud Pública, a la Subsecretaría de Higiene y Salud Públicas.
+b) Las correspondientes al ramo de la Beneficencia Pública.
+c) Las que incumben actualmente a la Secretaría de Gobernación y Policía, en relación con la higiene local.
+Comuníquese al Poder Ejecutivo
+Dado en el Salón de Sesiones del Congreso.- Palacio Nacional.- San José, a los tres días del mes de junio de mil novecientos veintisiete. ARTURO VOLIO, presidente.- LEÓN CORTES, Primer Secretario.- ENRIQUE FONSECA ZUÑIGA, Segundo Secretario.
+Casa Presidencial.- san José, a los cuatro días del mes de junio de mil novecientos veintisiete. Ejecutese.- RICARDO JIMENEZ . El Secretario de Estado en el Despacho de Gobernación, R. CASTRO Q.
