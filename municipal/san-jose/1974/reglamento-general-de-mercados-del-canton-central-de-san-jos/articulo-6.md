@@ -6,4 +6,5 @@ b) Solamente se permitirá al público ingresar al mercado entre la hora de aper
 c) En casos especiales y por resolución razonada del Departamento de Mercados y refrendada por el Ejecutivo Municipal podrán autorizarse modificaciones al horario establecido, para el funcionamiento general del mercado;
 ch) Los domingos y festividades señaladas por la ley o que se señalen en ocasiones especiales, los mercados prestarán sus servicios hasta las 12 m.;
 d) El Administrador del Mercado podrá extender licencias ocasionales mediante las cuales, puedan los inquilinos iniciar sus actividades antes o después del horario fijado; y
-e) Los gastos administrativos que se ocasionan con motivo del funcionamiento extraordinario del mercado, serán sufragados en forma proporcional por la totalidad de los inquilinos.
+e) Los gastos administrativos que se ocasionan con motivo del funcionamiento extraordinario del mercado, serán sufragados en forma proporcional por la totalidad de los inquilinos, o en su defecto por los inquilinos que hayan solicitado el funcionamiento extraordinario.
+(Así ampliado el inciso anterior mediante sesión N° 420 del 7 de octubre de 1980).

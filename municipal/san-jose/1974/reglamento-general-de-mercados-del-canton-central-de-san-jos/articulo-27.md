@@ -8,3 +8,5 @@ ch) Pagar las tasas por servicios de agua, luz y teléfono;
 d) Exhibir en tableros y en lugares visibles para ei público, los precios de los artículos de primera necesidad que expenda;
 e) Vigilar sus puestos y dar aviso a la Administración, vigilantes o celadores cuan- do descubran la presencia de personas sospechosas o antisociales en el mercado; y
 f) Comunicar a la Administración todas las irregularidades que observe en el comportamiento de otros inquilinos o sus dependientes acreditados, sobre las cuales observará reserva absoluta. Esta misma obligación incumbe también a los dependientes.
+g) Demostrar en todas sus gestiones o solicitudes ante la Municipalidad que está al día en el pago de alquileres, patentes, impuestos y servicios municipales.
+(Así adicionado el inciso anterior mediante sesión N° 420 del 7 de octubre de 1980).
