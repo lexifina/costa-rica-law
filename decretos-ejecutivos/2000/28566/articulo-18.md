@@ -1,0 +1,1 @@
+Artículo 18.—No podrá permanecer ninguna persona dentro del archivo mientras no se encuentre presente el jefe del archivo o alguna persona a cargo del mismo, salvo en caso de contar con la debida autorización.

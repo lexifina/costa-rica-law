@@ -1,0 +1,1 @@
+Artículo 2º—Para los efectos del presente reglamento, en adelante se entenderá por usuario, toda persona que acuda al Archivo Central, para realizar cualquier tipo de consulta e investigación. Esta persona pueden ser funcionaria del Ministerio, ex funcionario o un particular, quien tendrá que acogerse a las disposiciones de este Reglamento.

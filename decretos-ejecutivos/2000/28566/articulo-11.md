@@ -1,0 +1,1 @@
+Artículo 11.—Al realizarse la transferencia, un funcionario del Archivo Central y uno de la oficina remitente, confrontarán la Lista de Remisión con los documentos. En caso de presentarse faltantes o alguna anomalía harán el reporte correspondiente.

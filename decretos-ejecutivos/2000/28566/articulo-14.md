@@ -1,0 +1,1 @@
+Artículo 14.—Cuando el documento deba salir del Archivo Central hacia una dependencia interna, el usuario deberá llenar la boleta de "Solicitud de Documentos", que para tal efecto ha sido confeccionada.

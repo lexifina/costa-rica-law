@@ -1,0 +1,1 @@
+Artículo 12.—Toda la documentación que ingrese al Archivo Central, podrá ser accesada por el usuario, exceptuando los expedientes que provienen de la Dirección Legal y los expedientes de ex-funcionarios, tanto del Servicio Exterior como de la Administración Central.
