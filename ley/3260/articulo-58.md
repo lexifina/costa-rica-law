@@ -1,0 +1,2 @@
+Artículo 58.- No obstante lo dicho en el artículo anterior, tendrán acceso al legajo de hechos, las partes, sus apoderados judiciales o defensores, los representantes de la Procuraduría General de la República y del Patronato Nacional de la Infancia, y los padres o guardadores del menor.
+El Juzgado podrá, en casos calificados y en resolución considerada, decretar el secreto del legajo de hechos, salvo para los representantes del Patronato Nacional de la Infancia.

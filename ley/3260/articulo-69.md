@@ -1,0 +1,2 @@
+Artículo 69.- Las resoluciones que acuerden las medidas tutelares definitivas contendrán una breve descripción del asunto, una síntesis de los estudios realizados respecto al menor, los fundamentos debidamente razonados de la medida, las indicaciones necesarias acerca de las modalidades de su ejecución y, en su caso, el destino de los objetos aprehendidos.
+Las resoluciones que modifiquen, suspendan o den por terminada la aplicación de una medida, indicarán el resultado de éste y se ajustarán, en lo cupiere, a los principios señalados en el párrafo anterior.

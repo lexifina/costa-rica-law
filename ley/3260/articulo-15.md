@@ -1,0 +1,1 @@
+Artículo 15.- En cada Juzgado Tutelar existirá un personal administrativo, un Departamento de Servicio Social y un Departamento Clínico, y el Juez podrá requerir la cooperación de cualesquiera otras oficinas o instituciones públicas cuyos servicios necesitare.

@@ -1,0 +1,1 @@
+Artículo 40.- Al menor se le aplicarán las medidas tomando en cuenta siempre el diagnostico sobre su personalidad, las posibilidades de su rehabilitación y la naturaleza y gravedad de los hechos que se le atribuyan.

@@ -1,0 +1,1 @@
+Artículo 14.- Los Jueces Tutelares de Menores deberán llenar las condiciones establecidas para los jueces comunes, y la Corte procurará que el nombramiento recaiga en persona que tenga estudios o experiencia en la materia.

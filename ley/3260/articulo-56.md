@@ -1,0 +1,1 @@
+Artículo 56.- En todos los demás casos el Juez ordenará practicar las diligencias que estime necesarias para comprobar los hechos que dieron origen a la remisión del menor al Juzgado y su participación en ellos, así como para elaborar los estudios médico-psiquiátrico, psicológico y social respectivos.

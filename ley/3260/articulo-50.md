@@ -1,0 +1,1 @@
+Artículo 50.- Quedará a la prudencia y al criterio del Juez, el modo de practicar las demás diligencias. Todas ellas se harán constar en actas concisas que contendrán, en cada caso, la fecha de la diligencia, su objeto, y una síntesis de lo actuado, y que deberán ser firmadas por el Juez y su Secretario.

@@ -1,0 +1,1 @@
+Artículo 4º.- Para mantener en lo posible la conexidad de los procesos en el caso del artículo anterior, los distintos tribunales quedarán obligados a remitirse recíprocamente copia firmada por el Secretario, de las pruebas y actuaciones pertinentes.

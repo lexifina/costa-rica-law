@@ -1,0 +1,1 @@
+Artículo 36.- La internación total sólo se acordará en casos graves, cuando la familia del menor sea notoriamente inconveniente para el debido tratamiento de éste y no se pueda recurrir a la libertad asistida o al depósito en hogar sustituto.

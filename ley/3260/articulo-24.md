@@ -1,0 +1,1 @@
+Artículo 24.- Cuando en determinada jurisdicción no existiere facilidad para organizar el Departamento Clínico, el Juzgado podrá ordenar el envío de los menores que requieran estudio, al Departamento Clínico del Juzgado Tutelar de Menores de San José, o al Centro de Observación. También podrá requerir de instituciones o profesionales del lugar los servicios correspondientes.
