@@ -1,0 +1,1 @@
+Art 7°.- En las causas criminales como en las civiles en que el Fiscal tenga que pedir, se observarán tanto respecto a los pedimentos fiscales como respecto a la vista y al fallo, los artículos 296 del Código general, parte 3° y 116 de la ley reglamentaria de 4 de noviembre de 1845 y las demás disposiciones que rigen sobre la materia.
