@@ -1,0 +1,2 @@
+Artículo 6 bis.- La Comisión de Becas tendrá la organización interna que considere pertinente, y definirá las normas que regirán sus sesiones y los mecanismos de selección y evaluación de los candidatos, conforme con los principios de justicia, racionalidad, equidad y los fines de la institución, conforme con lo establecido por el presente Reglamento.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 27856 del 28 de abril de 1999)

@@ -1,1 +1,2 @@
-Artículo 17.—Las demás disposiciones sobre el adiestramiento no contemple en este reglamento, se regirán por lo estipulado en el Estatuto del Servicio Civil y su Reglamento; Ley de Adiestramiento N° 1810, Reglamento para la Adjudicación de becas al personal del Ministerio de Gobernación y Policía y demás leyes conexas.
+Artículo l7.-El personal administrativo del Departamento de Capacitación, será el encargado de la recepción de las solicitudes, las cuales deberán ser entregadas a la Comisión de Becas previo dictamen técnico para su conocimiento y pronunciamiento.
+(Así reformado mediante artículo 1° del decreto ejecutivo N° 27856 del 28 de abril de 1999.)

@@ -1,0 +1,2 @@
+Artículo 19.-Todo lo relacionado con materia de capacitación, corresponderá en forma exclusiva al Departamento de Capacitación de la Dirección General de Migración y Extranjería, el cual se regirá por la normativa jurídica y demás disposiciones que al efecto contempla la Dirección General del Servicio Civil.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 27856 del 28 de abril de 1999)

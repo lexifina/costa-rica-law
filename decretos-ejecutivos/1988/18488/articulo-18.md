@@ -1,4 +1,3 @@
-Artículo 18 — Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a las catorce horas, :iutos de) doce de mayo de mil novecientos ochenta y ocho.
-ÓSCAR ARIAS SÁNCHEZ
-El Ministro de Gobernación, ROLANDO RAMÍREZ PANIAGUA.
+Artículo 18.-No se aprobará un nuevo beneficio a aquellas personas que tengan deudas pendientes con la Dirección General de Migración y Extranjería, originadas en resarcimientos y arreglos de pago por incumplimiento en actividades anteriores.
+El incumplimiento contractual será remitido al Departamento de la Dirección General de Migración y Extranjería, para que determine si el incumplimiento es imputable al beneficiario y las responsabilidades y cuantificaciones de las obligaciones que deberá cancelar al Estado por los gastos, los daños y perjuicios en que se haya incurrido el beneficiario.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 27856 del 28 de abril de 1999)

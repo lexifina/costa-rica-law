@@ -1,1 +1,1 @@
-Artículo 10.—En caso de inopia de candidatos, la Comisión podrá recomendar a la Dirección, a un funcionario inhibido por el inciso b) del artículo 8°.
+Artículo 10.—(Así derogado mediante artículo 4° del Decreto Ejecutivo N° 27856 del 28 de abril de 1999)
