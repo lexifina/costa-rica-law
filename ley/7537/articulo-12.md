@@ -6,5 +6,5 @@ a) La Asamblea General.
 b) La Junta Directiva.
 c) La Fiscalía.
 d) El Tribunal Electoral.
-e) El Tribunal de Ética Profesional.
+e) El Tribunal de Etica Profesional.
 f) El Comité Consultivo.
