@@ -1,4 +1,4 @@
-Artículo 7º.- Se considerará como defecto que impide la inscripción
+ARTÍCULO 7º.- Se considerará como defecto que impide la inscripción
 del documento en los Registros Público y de la Propiedad de Vehículos, la
 falta del Timbre que establece esta ley. Los documentos no susceptibles
 de inscripción en dichos Registros, no surtirán efectos jurídicos
