@@ -10,3 +10,4 @@ Considerando:
 5º—Que por lo anterior, resulta necesario ampliar el límite de gasto presupuestario y efectivo al Instituto sobre Alcoholismo y Farmacodependencia, establecido en el Decreto Ejecutivo N° 28639-H. Por tanto,
 Decretan:
 Artículo 1º—Modifícase el artículo 1° del Decreto Ejecutivo N° 28649-H, para fijar en ¢766.0 millones los límites de gasto presupuestario y efectivo del Instituto Sobre Alcoholismo y Farmacodependencia para el 2001.
+(Modificado el límite de gasto presupuestario y efectivo para el IFAM por el artículo 1 del Decreto Ejecutivo N° 29856 de 24 de setiembre del 2001)
