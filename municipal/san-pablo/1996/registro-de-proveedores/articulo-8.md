@@ -1,0 +1,1 @@
+Artículo 8°-En el transcurso del mes de febrero de cada año, la Municipalidad invitará, mediante publicación en el Diario Oficial "La Gaceta", a formar parte del Registro de Proveedores. De cualquier forma, en cualquier momento, los proveedores interesados podrán solicitar su incorporación al Registro.

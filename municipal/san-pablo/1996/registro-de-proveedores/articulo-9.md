@@ -1,0 +1,1 @@
+Artículo 9°-En el caso de licitaciones por registro, restringidas y compras directas, aquel que no estuviere inscrito podrá participar, siempre y cuando presente su solicitud de inscripción con todos los requisitos al día, con por lo menos tres día hábiles antes de la fecha última para la presentación de las ofertas.

@@ -1,0 +1,1 @@
+Artículo 3°-El Registro tiene por objetivo facilitar la obtención de los bienes y servicios necesarios para la Municipalidad de San Pablo, por ello, el interesado en registrarse, se inscribirá única y exclusivamente en los bienes y servicios que está en capacidad de suministrar de acuerdo con la información que proporcione al efecto.

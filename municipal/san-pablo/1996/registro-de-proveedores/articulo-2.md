@@ -1,0 +1,1 @@
+Artículo 2°-El asistente del Ejecutivo Municipal, cumplirá la función de Proveedor Municipal con recargo en sus funciones, siendo el encargado de administrar todos los trámites concernientes al mantenimiento y operación del Registro.
