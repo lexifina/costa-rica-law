@@ -1,2 +1,3 @@
-Artículo 11.-La pensión concedida a la viuda y a los hijos se distribuirá por mitades entre aquélla y éstos, y caso de pasar la viuda a nuevas nupcias, se girará únicamente la mitad que corresponde a los hijos.
-No tendrá derecho a pensión, no obstante lo dicho en el artículo primero, la esposa del Director o músico que al fallecimiento de éste estuviere separada de hecho o de derecho de su marido por causas no imputables a éste, en cuyo caso sólo se girará la mitad que corresponde a los huérfanos.
+Artículo 11.- La pensión que corresponda a la viuda y a los hijos se distribuirá así: la mitad para la viuda y la mitad para los hijos en proporción a su número.
+Si los hijos cumplen dieciocho años o concluyen los estudios, la viuda acrecerá su pensión con los derechos proporcionales que correspondían a sus hijos, hasta obtener la totalidad de la pensión del beneficiario directo. Si la viuda contrae nupcias, la totalidad de la pensión será girada a los hijos que estén comprendidos en el inciso b) del artículo 10 de esta ley.
+(Así reformado por el artículo 1° de la ley N° 5986 del 31 de octubre de 1977)
