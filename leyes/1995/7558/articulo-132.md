@@ -23,6 +23,8 @@ sujetos a la prohibición indicada en el párrafo primero de este
 artículo.
 d) La información de interés público, calificada como tal por
 acuerdo unánime del Consejo Directivo.
+e) La información que requiera la Contraloría General de la República en ejercicio de sus atribuciones.
+(Así adicionado el inciso anterior por el artículo 67 de la Ley N° 8422 Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004).
 Salvo en los casos que esta ley establece, ningún funcionario de la
 Superintendencia o miembro del Consejo Directivo podrá hacer público su
 criterio acerca de la situación financiera de las entidades fiscalizadas.
