@@ -1,0 +1,1 @@
+Artículo 5°- Estando firme el avalúo, será enviado el expediente completo al Departamento de Cobros Judiciales. Este Departamento enviará una recomendación dirigida al Ministro de Hacienda, quien en definitiva dictará la resolución administrativa de aprobación de la dación en pago ofrecida.
