@@ -1,0 +1,1 @@
+Artículo 3°-Los terrenos de particulares existentes en esta adición, se considerarán parte del Parque Nacional cuando el Estado los adquiera, mientras esto no ocurra, los propietarios gozarán de todos los atributos de dominio.
