@@ -9,3 +9,5 @@ g. Un representante de la Superintendencia General de Valores.
 h. Un representante de la Superintendencia General de Pensiones.
 i. Un representante de la Procuraduría General de la República.
 j. Un representante de la Dirección de Navegación y Seguridad.
+k. Un representante del Instituto Costarricense de Acueductos y Alcantarillados.
+(Así adicionado el inciso anterior por el artículo 3° del Decreto Ejecutivo N° 32356 del 8 de marzo del año dos mil cinco)
