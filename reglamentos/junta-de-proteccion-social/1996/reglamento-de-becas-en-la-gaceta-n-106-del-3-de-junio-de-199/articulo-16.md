@@ -1,1 +1,2 @@
-Artículo 16.—El becario deberá presentar certificación del centro de estudios con el reporte de materias aprobadas, al finalizar cada ciclo lectivo. Esto será requisito indispensable para autorizar el trámite del próximo cheque por beca.
+Artículo 16.—El becario deberá llenar fidedignamente y a máquina el formulario denominado “Reporte de materias aprobadas” al finalizar cada ciclo lectivo (bimestre, trimestre, cuatrimestre, semestre, etc.). Esto será requisito indispensable para autorizar el trámite del próximo cheque por beca.
+(Así reformado mediante sesión de Junta Directiva, del 21 de noviembre de 1996, artículo III), inciso 16) del Acta N° 83-96)

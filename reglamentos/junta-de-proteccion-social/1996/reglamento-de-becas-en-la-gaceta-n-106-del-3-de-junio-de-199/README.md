@@ -14,3 +14,4 @@ Reglamento de Becas (En La Gaceta N° 106 del 3 de junio de 1998, se publicó el
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-29 | la propia norma |
+| 2 | 1996-11-21 | Reglamento 0 (1996-11-21) |
