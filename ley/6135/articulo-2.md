@@ -1,4 +1,4 @@
-Artículo 2º.-Se reconoce al Instituto Latinoamericano para la
+Artículo 2º.- Se reconoce al Instituto Latinoamericano para la
 Prevención del Delito y el Tratamiento del Delincuente plena personalidad
 jurídica y la más amplia capacidad entre otras cosas, para comprar,
 vender, gravar y transferir títulos o derechos sobre bienes muebles o
