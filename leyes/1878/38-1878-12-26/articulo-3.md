@@ -1,0 +1,3 @@
+Art. 3°-Las expresadas gracias se hacen extensivas a la Provincia de Guanacaste; la del artículo 1° á las haciendas de nueva creación, y las del articulo de á las ya formadas, que tengan el número de cabezas expresado ó lleguen á tener el número de cabezas expresado.
+AL PODER EJECUTIVO. -Dado en el Salón de Sesiones: -Palacio Nacional, -San José, diciembre veintiséis de mil ochocientos setenta y ocho. -BRUNOCARRANZA, Presidente J. SOLANO, Secretario.
+Por tanto: ejecútese. -Dado en el Palacio Nacional; en San José, a los veintiséis días de diciembre de mil ochocientos setenta y ocho. -T. GUARDIA. - El Secretario de Estado en el Despacho de Gobernación, -RAFAELMACHADO.
