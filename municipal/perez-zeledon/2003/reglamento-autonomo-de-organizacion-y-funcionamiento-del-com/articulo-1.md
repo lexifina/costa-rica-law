@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE PÉREZ ZELEDÓN
+(Nota de Sinalevi: La Municipalidad de Pérez Zeledón aprobó un nuevo Reglamento autónomo de organización y funcionamiento del Comité Cantonal de Deportes y Recreación del cantón de Pérez Zeledón en la sesión N° 136-2018 del 4° de diciembre del 2018)
+El Concejo Municipal del cantón de Pérez Zeledón, decreta el presente:
+REGLAMENTO AUTÓNOMO DE ORGANIZACIÓN Y FUNCIONAMIENTO DEL COMITÉ CANTONAL DE DEPORTES Y RECREACIÓN DEL CANTÓN DE PÉREZ ZELEDÓN, DEL COMPLEJO POLIDEPORTIVO MUNICIPAL Y DE LOS COMITÉS COMUNALES DE DEPORTES
+La Municipalidad del cantón de Pérez Zeledón, con fundamento en lo establecido en los numerales 169 y 170 de la Constitución Política, artículos 13, inciso c), 43 y 164 a 172 del Código Municipal emite el presente Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación del cantón de Pérez Zeledón, del Complejo Polideportivo Municipal y de los Comités Comunales de Deportes, los cuales se regirán por las siguientes disposiciones:
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Ámbito de facultación del CCDR. El Comité Cantonal de Deportes y Recreación (CCDR) de Pérez Zeledón es el organismo superior y rector del cantón en materia deportiva. Está encargado del planeamiento, promoción y fiscalización de la actividad deportiva en todos sus aspectos incluyendo la construcción, administración y mantenimiento de las instalaciones deportivas; procurando el aprovechamiento del tiempo libre de sus habitantes mediante la competición y recreación saludable y el deporte para todos. El Comité se regirá por las normas del Ordenamiento Jurídico que regulan la materia y las disposiciones del presente Reglamento.

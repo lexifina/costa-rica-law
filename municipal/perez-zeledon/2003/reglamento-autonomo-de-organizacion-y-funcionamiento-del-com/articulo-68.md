@@ -1,0 +1,1 @@
+Artículo 68.—Determinación de otras funciones. Otras obligaciones y facultades del Comité Comunal serán determinadas por el Comité Cantonal, siempre que no se contraigan este Reglamento, las leyes o decretos vigentes, relacionados con esta materia.

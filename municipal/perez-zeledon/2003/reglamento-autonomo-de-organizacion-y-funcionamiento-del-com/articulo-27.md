@@ -1,0 +1,1 @@
+Artículo 27.—Funciones y deberes del fiscal. Son funciones y deberes del fiscal asistir a las sesiones de la Junta Directiva del Comité con voz pero sin voto. Presentar al Concejo Municipal informe de labores del año inmediato anterior a más tardar el 31 de enero de cada año. Además deberá rendir los informes que estime conveniente ante la Junta Directiva.

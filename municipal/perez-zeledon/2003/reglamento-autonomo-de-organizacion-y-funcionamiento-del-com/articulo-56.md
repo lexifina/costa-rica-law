@@ -1,0 +1,1 @@
+Artículo 56.—Facultación de los Comités Comunales. Los Comités Comunales representan al Comité Cantonal en cada jurisdicción del distrito o comunidad y en materia deportiva y recreativa son la máxima autoridad en cuanto a planes y proyectos comunales.

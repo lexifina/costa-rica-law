@@ -1,0 +1,1 @@
+Artículo 107.—Del tribunal de elecciones. Para realizar y fiscalizar el desarrollo de la asamblea de elección de los miembros del comité comunal se conformará un tribunal de elecciones integrado por el Presidente del Comité Cantonal o quien éste designe, el Presidente del Concejo de Distrito y el Alcalde Municipal o a quien éste designe para el acto.

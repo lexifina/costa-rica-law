@@ -1,0 +1,1 @@
+Artículo 87.—Colocación de rótulos. El Comité Cantonal podrá autorizar la colocación de rótulos en las instalaciones deportivas municipales, siempre y cuando lo permita la normativa aplicable al caso y no se alteren las condiciones estéticas, paisajísticas e infraestructurales de los inmuebles.

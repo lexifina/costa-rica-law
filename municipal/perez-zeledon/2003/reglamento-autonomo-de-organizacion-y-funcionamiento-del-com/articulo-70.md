@@ -1,0 +1,1 @@
+Artículo 70.—Torneos internos. Cuando se realicen torneos internos del Distrito, el Comité Comunal debe confeccionar el respectivo Reglamento, el que debe ser ratificado por el Comité Cantonal para su aplicación.

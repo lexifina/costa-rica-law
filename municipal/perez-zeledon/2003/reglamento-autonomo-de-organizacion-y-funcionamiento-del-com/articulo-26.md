@@ -1,0 +1,1 @@
+Artículo 26.—Requisitos para ser fiscal. Los requisitos para ser fiscal serán los mismos que se establecen en el capítulo XV "Elección y Nombramiento de los Miembros del Comité Cantonal de Deportes", artículo 105 de este Reglamento.

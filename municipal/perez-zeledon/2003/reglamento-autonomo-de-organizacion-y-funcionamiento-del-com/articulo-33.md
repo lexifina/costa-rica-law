@@ -1,0 +1,1 @@
+Artículo 33.—Del quórum. El quórum para sesionar estará integrado por al menos tres de los miembros de la Junta Directiva. En caso de empate en una votación, el presidente, tendrá voto calificado. La no presencia del fiscal en las sesiones de la Junta no es motivo para no sesionar.

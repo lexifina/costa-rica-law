@@ -1,0 +1,4 @@
+Artículo 41.—Impugnación de acuerdos del CCDR. Contra los acuerdos que tome el Comité Cantonal, salvo los que se indican en el artículo siguiente, podrán plantearse los siguientes recursos:
+a) Cabrá recurso extraordinario de revisión contra los acuerdos del Comité dentro del término de un año luego de adquirida la firmeza del acuerdo siempre y cuando no se hayan ejercido los recursos ordinarios contra este acuerdo y por motivos de ilegalidad que afecten la validez del acto emanado del Comité.
+b) Cabrá interponer los recursos ordinarios de revocatoria del acuerdo ante el mismo órgano del Comité y de apelación, que podrá ser subsidiaria, para ante el Concejo Municipal dentro del término de cinco días hábiles luego de comunicado el acuerdo.
+c) También se podrán ejercer las acciones jurisdiccionales que las leyes autoricen.

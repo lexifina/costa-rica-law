@@ -1,0 +1,1 @@
+Artículo 65.—Visto Bueno para trámites. Los trámites que realicen los Comités Comunales ante autoridades gubernamentales deberán contar con el visto bueno del Comité Cantonal otorgado mediante resolución motivada de este órgano.

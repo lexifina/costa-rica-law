@@ -1,0 +1,1 @@
+Artículo 3º—Juramentación de los Miembros de la Junta Directiva del CCDR. Los miembros de la Junta Directiva del Comité Cantonal de Deportes y Recreación de Pérez Zeledón, serán juramentados por la Corporación Municipal del Cantón de Pérez Zeledón, en la sesión ordinaria en que se haga el nombramiento en firme de los miembros o a más tardar en la inmediata siguiente.

@@ -1,0 +1,1 @@
+Artículo 106.—Definición organizaciones comunales. Se entenderá por organizaciones comunales las asociaciones de desarrollo integral especifico (Ley Nº 218) y asociaciones de bien social que tengan su radio de acción en el distrito administrativo correspondiente y posean cédula jurídica y personería jurídica al día, lo cual debe ser autenticado por un abogado.

@@ -1,0 +1,1 @@
+Artículo 10.—Entrega de Planes de Trabajo de los Comités Comunales. Los Comités Comunales deberán entregar al Comité Cantonal a más tardar el 30 de mayo de cada año, los planes de trabajo y su respectivo presupuesto, para el año inmediato posterior.

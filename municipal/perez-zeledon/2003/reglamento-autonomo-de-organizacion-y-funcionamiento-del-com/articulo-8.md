@@ -1,0 +1,1 @@
+Artículo 8º—Funciones del Comité. El Comité Cantonal de acuerdo con las políticas generales en materia deportiva y de recreación, establecerá los controles que corresponden, para el logro de dichas políticas y contribuirá con su gestión a fomentar, tutelar y dirigir el deporte y la recreación en esta localidad.

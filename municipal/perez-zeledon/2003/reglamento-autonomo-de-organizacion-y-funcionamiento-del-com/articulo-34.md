@@ -1,0 +1,1 @@
+Artículo 34.—De las votaciones. La votación será nominal o secreta según lo dispongan los miembros de la junta. Es nominal la votación cuando cada uno de los miembros de la Junta Directiva expresa en forma oral su voto. Es secreta aquella votación que se haga mediante el uso de papeletas o por cualquier otro medio a juicio del organismo.

@@ -1,0 +1,1 @@
+Transitorio II.—Para la elección por realizarse de los miembros del Comité Cantonal de Deportes y Recreación de Pérez Zeledón para el período de 2001-2003, por única vez, le corresponderá realizarla al Concejo Municipal obviando el trámite regulado en este Reglamento pero respetando las normas de su integración y los sectores que deberán estar representados.

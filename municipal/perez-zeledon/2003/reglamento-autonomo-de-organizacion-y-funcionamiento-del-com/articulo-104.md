@@ -1,0 +1,1 @@
+Artículo 104.—De la juramentación del Comité Cantonal de Deportes. El Comité Cantonal de Deportes y Recreación será juramentado por el Concejo Municipal o por la instancia que corresponda, en la primera semana de diciembre del año en que se efectúa la elección.

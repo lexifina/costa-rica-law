@@ -1,0 +1,2 @@
+Artículo 120.—Recursos Municipales. La Municipalidad de Pérez Zeledón facilitará al Comité un local en las instalaciones del Complejo Polideportivo Municipal para garantizar un óptimo funcionamiento administrativo.
+(Nota: En el Reglamento autónomo de organización y funcionamiento del comité cantonal de deportes y recreación del cantón de Pérez Zeledón, del complejo polideportivo municipal y de los comités comunales de deportes, del 19 de noviembre de 2003, publicado en La Gaceta N° 233 de 03 de diciembre del 2003, no se consignó el artículo 120.)
