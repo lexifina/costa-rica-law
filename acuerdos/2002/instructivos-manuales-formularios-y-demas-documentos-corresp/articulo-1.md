@@ -1,0 +1,3 @@
+DIRECCIÓN DE PROTECCIÓN AL AMBIENTE HUMANO
+San José, a los quince días del mes de julio del dos mil dos. De conformidad con lo establecido en el articulo 4° inciso b) de la Ley N° 8220, publicada en el Alcance N° 22 a La Gaceta N° 49 del 11 de marzo del 2002 "Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", comunica a los interesados, que los siguientes son los instructivos, manuales, formularios y demás documentos correspondientes que aplica la citada Dirección en el cumplimiento de sus funciones:
+(NOTA DE SINALEVI: por lo extenso de su contenido consultar Gaceta No. 146 de 31 de julio de 2002, páginas de la 4 a la 18)
