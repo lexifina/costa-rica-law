@@ -1,0 +1,3 @@
+Artículo 3.—De los comités consultivos y comisiones:
+La CNCDR podrá integrar y establecer comités, grupos asesores y comisiones de trabajo para la atención especializada de los asuntos que se conozcan en el seno de la CNCDR. Los miembros de las comisiones, grupos de asesores y de trabajo podrán ser funcionarios públicos, delegados de los grupos organizados y especialistas del sector privado, de reconocida capacidad y solvencia moral.
+La CNCDR se reunirá cuando sea necesario con los diversos comités, grupos de trabajo y asesores y les solicitará los informes que estime necesarios para el logro de los objetivos de la CNCDR.

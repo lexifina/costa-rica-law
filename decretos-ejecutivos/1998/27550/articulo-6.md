@@ -1,0 +1,1 @@
+Artículo 6°—De los informes. La CNCDR preparará y remitirá al Consejo de Gobierno informes mensuales que permitan determinar el avance en la ejecución de los acuerdos y políticas relativas al desarrollo rural.
