@@ -1,0 +1,1 @@
+Art. 16. Se destinan para la extracción de leña y madera del comun del vecindario a que pertenecen los espacios cubiertos de montañas paran jamas de otra cosa que del cultivo de la plantacion de cedros, guachipelines y demás maderas de construccion, cuidando de ella la Municipalidad; y de que se dejen crecer nuevamente los arboles que se corten cualquiera que sea su clase.

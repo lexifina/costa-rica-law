@@ -1,0 +1,1 @@
+Art. 6. En esta medida, asì el Agrimensor como los tiradores de cuerda y los testigos, no devengaran mas que la mitad de los derechos de arancel; y el primero solo la tercera parte cuando no exceda de tres manzanas la estencion medida.

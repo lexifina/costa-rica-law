@@ -1,0 +1,1 @@
+Art. 12. La venta, cuya escritura se extienda despues de quince dias de practicadas las diligencias que deban precederle, la que se otorgue por solicitud presentada despues del término señalado en el articulo 25 y la que sin observarse todas las disposiciones prevenidas se verifique, será nula.

@@ -1,0 +1,1 @@
+Art. 5. El Agrimensor hará una relacion exàcta de la medida y circunstancias del terreno, darà cuenta con ella y con el plano à la Municipalidad correspondiente, y no escribirá ninguna otra diligencia relativa á la mensura.
