@@ -1,0 +1,2 @@
+Artículo 5°—La Comisión Nacional de Emergencia podrá recibir para esos efectos fondos, personal, equipo, materiales y suministros por parte de todas las instituciones públicas, conforme con lo que autoriza el artículo 5° de la Ley Nacional de Emergencia.
+Las instituciones del sector público prestarán a la comisión, todas las facilidades que/resulten necesarias para el logro del objetivo a que se refiere este instrumento.

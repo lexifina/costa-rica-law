@@ -1,0 +1,1 @@
+Artículo 4°—Se autoriza al Ministerio de Hacienda para que gire las partidas correspondientes, previamente presupuestadas para ese fin, de acuerdo con lo dispuesto en el artículo 17 de la Ley de Presupuesto vigente para el presente período fiscal.

@@ -1,0 +1,1 @@
+Artículo 3°—Todos los estudios, así como la construcción de obras y provisión de equipo, se financiarán con recursos del Presupuesto Nacional a que se refieren los decretos ejecutivos Nos. 18995-P-MAG-MEC-H-MOPT y 19152-P-MAG-MEC-H-MOPT, ambos relacionados en e! considerando cuarto anterior.
