@@ -1,0 +1,1 @@
+Artículo 4º—Que la Dirección General de Servicio Civil, realizará los estudios concernientes a la relación de los salarios mínimos decretados para el sector privado, según Decreto Nº 29150-MTSS y autorizará los ajustes técnicos que correspondan.
