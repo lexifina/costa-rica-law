@@ -1,0 +1,2 @@
+Artículo 40.—El CIPET podrá emitir certificados de idoneidad, aptitud y aptitud superior, los que facultarán para el ejercicio de la docencia.
+La idoneidad se otorgará cuando el estudiante haya aprobado al menos 30 créditos o su equivalente; el de aptitud, cuando el estudiante haya aprobado 50 créditos o su equivalente, y el de aptitud superior, cuando haya aprobado al menos 68 créditos o su equivalente.

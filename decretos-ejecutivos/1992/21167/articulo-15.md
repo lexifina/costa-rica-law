@@ -1,0 +1,1 @@
+Artículo 15.—Cabrá recurso de revocatoria y revisión contra los acuerdos del Consejo, el de revocatoria deberá interponerse dentro del plazo de 15 días hábiles y el de revisión por parte de sus miembros, en la sesión siguiente ordinaria antes de aprobarse el acta.

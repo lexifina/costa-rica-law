@@ -1,0 +1,1 @@
+Artículo 39.—Al cumplir con los requisitos de graduación, el estudiante obtendrá el titulo de Profesor de Estado extendido por el CIPET, el cual tendrá validez oficial y legal, cuando haya sido la culminación de planes de estudio y programas debidamente aprobados por el Consejo Superior de Educación.

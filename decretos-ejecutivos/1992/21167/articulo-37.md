@@ -1,0 +1,1 @@
+Artículo 37.—Se consideran alumnos del Centro quienes formalicen su inscripción y sigan los cursos orientados a obtener los títulos, certificaciones o diplomas que otorgue el Centro, previo cumplimiento de los procedimientos de admisión.

@@ -1,0 +1,1 @@
+Artículo 38.—Para ingresar a los programas de formación y perfeccionamiento requisito indispensable que el estudiante haya obtenido el título de Bachiller en enseñanza Media o su equivalente (labore como docente en una institución de Educación Técnica).
