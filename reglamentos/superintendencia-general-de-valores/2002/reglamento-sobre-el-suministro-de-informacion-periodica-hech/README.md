@@ -14,3 +14,4 @@ Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y o
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-12 | la propia norma |
+| 2 | 2003-06-12 | Reglamento 0 (2003-03-19) |
