@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento e Imposición de la "Orden Primo Vargas Valverde
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-16 | la propia norma |
+| 2 | 2003-06-24 | Reglamento municipal 97 (2003-06-24) |
