@@ -14,3 +14,4 @@ Reglamento para la Regulación del Sistema de Almacenamiento y Comercialización
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-31 | la propia norma |
+| 2 | 2003-09-29 | Decreto Ejecutivo 31502 (2003-09-29) |
