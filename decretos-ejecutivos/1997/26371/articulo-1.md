@@ -12,4 +12,5 @@ DECRETAN:
 El siguiente,
 REGLAMENTO PARA EL ENRIQUECIMIENTO DE LA HARINA
 DE TRIGO DE CALIDAD ALIMENTARIA
-Artículo 1°—Ámbito de aplicación. Las disposiciones del presente reglamento se aplican a la harina de trigo que se utiliza para consumo humano en el país, sea esta de producción nacional, importada o donada.
+Artículo 1°—Ámbito de aplicación. Las disposiciones del presente reglamento se aplican a la harina de trigo y a la sémola de trigo que se utiliza para consumo humano en el país, sean éstas de producción nacional, importadas o donadas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 30030 de 3 de diciembre de 2001)

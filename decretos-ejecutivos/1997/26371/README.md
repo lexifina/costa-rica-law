@@ -14,3 +14,4 @@ Reglamento para el Enriquecimiento de la Harina de Trigo de Calidad Alimentaria.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-11-01 | la propia norma |
+| 2 | 2001-12-03 | Decreto Ejecutivo 30030 (2001-12-03) |
