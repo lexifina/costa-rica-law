@@ -1,0 +1,2 @@
+Artículo 7°—La renta gravable y las ventas, o los ingresos brutos provenientes de las actividades lucrativas que realizan las personas físicas o jurídicas en el cantón central de Heredia, determinarán el impuesto de patente que le corresponde a cada patentado.
+En los casos en que los declarantes no tengan renta líquida gravable, el factor de las ventas, o los ingresos, determinará el monto del impuesto, conforme a lo dispuesto en el artículo 15 de esta ley.

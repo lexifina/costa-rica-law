@@ -1,0 +1,2 @@
+Transitorio.—Facúltase a la Municipalidad de Heredia para hacer efectivos los alcances, de esta ley, a partir del trimestre siguiente a su publicación estos efectos, la Municipalidad podrá recabar, de los contribuyentes, la información necesaria para la determinación del impuesto de patente que corresponda.
+Presidencia de la República.- San José, a los diez días del mes de setiembre de mil novecientos ochenta y uno.

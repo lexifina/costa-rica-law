@@ -1,0 +1,1 @@
+Artículo 14.—La Municipalidad aplicará la tarifa que establece el artículo 15, para gravar toda actividad lucrativa nueva, que no pueda sujetarse al procedimiento impositivo del artículo 6°, por falta de declaración sobre la renta para el primer período.
