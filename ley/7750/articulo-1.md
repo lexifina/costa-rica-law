@@ -1,12 +1,12 @@
 N°7750
-APROBACIÓN DEL SEGUNDO PROTOCOLO FACULTATIVO DEL
-PACTO INTERNACIONAL DE DERECHOS CIVILES Y POLÍTICOS
+APROBACION DEL SEGUNDO PROTOCOLO FACULTATIVO DEL
+PACTO INTERNACIONAL DE DERECHOS CIVILES Y POLITICOS
 DESTINADO A ABOLIR LA PENA DE MUERTE
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 DECRETA:
 Apruébase el Segundo Protocolo Facultativo del Pacto Internacional de Derechos Civiles y Políticos Destinado a Abolir la Pena de Muerte, firmado ad referéndum el 14 de febrero de 1990, en la sede de la Organización de las Naciones Unidas. El texto es el siguiente:
 "SEGUNDO PROTOCOLO FACULTATIVO DEL PACTO INTERNACIONAL
-DE DERECHOS CIVILES Y POLÍTICOS DESTINADO A ABOLIR
+DE DERECHOS CIVILES Y POLITICOS DESTINADO A ABOLIR
 LA PENA DE MUERTE
 Los Estados Partes en el presente Protocolo,
 Considerando que la abolición de la pena de muerte contribuye a elevar la dignidad humana y desarrollar progresivamente los derechos humanos,
