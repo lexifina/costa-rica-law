@@ -1,0 +1,1 @@
+Artículo 3°.—Queda exentos de la aplicación de lo dispuesto en el artículo 2°, de las presentes disposiciones, los productos de estas tres clases que se encuentren regulados mediante el decreto ejecutivo N° 18758-S del 11 de enero de 1989, "Medicamentos de Venta Libre", declarados por el Ministerio de Salud.
