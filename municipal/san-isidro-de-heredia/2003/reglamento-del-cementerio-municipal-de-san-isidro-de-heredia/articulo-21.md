@@ -1,0 +1,1 @@
+Artículo 21.—Se establece un plazo de 90 días para la construcción de la bóveda, de lo contrario la Junta Administrativa no se hará responsable por la falta de espacio en el cementerio después del tiempo establecido.

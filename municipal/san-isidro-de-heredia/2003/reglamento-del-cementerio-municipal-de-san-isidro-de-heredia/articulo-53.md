@@ -1,0 +1,2 @@
+Artículo 53.—No es permitido el traslado de restos entre bóvedas de propiedad particular, si entre el fallecido y los propietarios de una y otra bóveda no existen los vínculos familiares indicados en el artículo 1 del Decreto N° 704 del 7 de setiembre de 1949.
+En los casos especiales en que existan vínculos afectivos, la Junta previo estudio y comprobación de dichos vínculos, podrá autorizar por acuerdo el traslado, siempre que no implique la desocupación total de la bóveda donde se encuentran dichos restos.

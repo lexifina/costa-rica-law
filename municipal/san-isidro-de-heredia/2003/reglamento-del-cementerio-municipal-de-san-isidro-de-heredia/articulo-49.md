@@ -1,0 +1,1 @@
+Artículo 49.—No podrá autorizarse la exhumación de los fallecidos por viruela, escarlatina, tifo exantemático, difteria, cólera y peste bubónica, sino con permiso del Ministerio de Salubridad Pública, el cual consultará el parecer del Jefe de Sanidad local.

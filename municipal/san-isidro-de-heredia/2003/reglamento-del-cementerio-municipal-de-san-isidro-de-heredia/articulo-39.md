@@ -1,0 +1,1 @@
+Artículo 39.—Si la inhumación se fuere a realizar en una bóveda particular, deberá mediar la autorización de la persona propietaria del derecho, o alguno de quienes aquella hubiere designado como corresponsables en el contrato.

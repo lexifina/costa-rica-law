@@ -1,0 +1,1 @@
+Artículo 25.—La Junta Administrativa no se responsabiliza por ningún accidente que suceda al realizarse trabajos de cualquier clase dentro del cementerio, salvo aquellos en que resultare afectados por sus empleados.

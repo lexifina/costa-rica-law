@@ -1,0 +1,1 @@
+Artículo 23.—Los derechos podrán ser ocupados por la construcción en toda su longitud, pero deberán dejar 25 centímetros libres (aceras) por cada costado en los sencillos, en los dobles y triples. Los materiales y especificaciones de la construcción de las bóvedas, serán determinadas por la Junta Administrativa del Cementerio.

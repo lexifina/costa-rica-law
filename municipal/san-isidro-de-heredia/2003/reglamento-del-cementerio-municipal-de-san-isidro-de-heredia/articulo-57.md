@@ -1,0 +1,1 @@
+Artículo 57.—Si la Junta desea notificar una disposición de carácter genera a los propietarios o inquilinos de fosas o nichos, bastará con colocar avisos sobre el particular en la puerta de cementerio y en la oficina de la Junta.

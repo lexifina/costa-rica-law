@@ -1,0 +1,1 @@
+Artículo 50.—Los parientes indicados en el articulo 1° del Decreto No 704 del 7 de setiembre de 1949, que se consideren con el derecho previsto en el articulo 4° del Decreto referido, podrán hacer valer sus derechos con la anuencia del propietario, o mediante mandamiento judicial.

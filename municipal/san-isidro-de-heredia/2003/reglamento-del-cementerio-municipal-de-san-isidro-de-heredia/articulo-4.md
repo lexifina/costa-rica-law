@@ -1,0 +1,1 @@
+Artículo 4°—El nombramiento de la Junta deberá hacerse por el período de un año, pudiendo ser reelectos. El Concejo podrá revocar los nombramientos por dos terceras personas, cuando el caso lo amerite y después de un estudio por parte de una comisión.

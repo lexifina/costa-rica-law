@@ -1,0 +1,1 @@
+Artículo 48.—Las exhumaciones se harán siempre en presencia del Peón del Cementerio y de dos testigos, de la operación se levantará un acta en duplicado, una copia de la cual será enviada a la Junta Administrativa del Cementerio. En ambos casos deberá de tener aprobada la solicitud de exhumación por la Junta del Cementerio.

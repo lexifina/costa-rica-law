@@ -1,0 +1,1 @@
+Artículo 54.—A partir del momento en que los restos de una persona haya salido del cementerio, la Junta salva su responsabilidad, la cual será asumida por el solicitante y el propietario de la bóveda que firmaren el acta correspondiente.

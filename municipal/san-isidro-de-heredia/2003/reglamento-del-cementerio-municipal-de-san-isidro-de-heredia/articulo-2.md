@@ -1,0 +1,1 @@
+Articulo 2°—Las materias tratadas en este reglamento están sometidas al previo cumplimiento de todo lo dispuesto en el Reglamento General de Cementerios, en el Decreto Ejecutivo No 17 del 5 de setiembre de 1931 (en materia de propiedad de derechos, en la Ley General de Salud y en el resto de la legislación anexa).
