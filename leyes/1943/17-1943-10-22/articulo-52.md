@@ -1,6 +1,8 @@
-Artículo 52.- El atraso mayor de quince días en el pago de las cuotas
-que deba satisfacer el patrono, hará incurrir a éste en una multa del dos
-por ciento mensual sobre el monto de las que haya dejado de pagar
-oportunamente. Si transcurrieren seis meses sin efectuar el pago, el
-monto de la multa se convertirá en arresto a razón de un día por cada dos
-colones.
+Artículo 52.- Es obligación de los asegurados someterse a los
+exámenes, que determine la Caja y, en su caso, al tratamiento respectivo.
+Sólo cuando se tratare de enfermedades infecto-contagiosas, la
+desobediencia manifiesta a la obligación de que habla el párrafo anterior
+será penada con multa de seis a ciento ochenta colones o con arresto de
+tres a noventa días, y en el tiempo que dure la omisión, quedarán en
+suspenso las prestaciones en dinero de que gozare el asegurado. En los
+demás casos, la Caja podrá suspender el otorgamiento de los beneficios.

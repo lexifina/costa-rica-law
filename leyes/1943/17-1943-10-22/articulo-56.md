@@ -1,12 +1,3 @@
-Artículo 56.- Los reclamos que formulen los patronos o los asegurados
-con motivo de la aplicación de esta ley o de sus reglamentos, serán
-sustanciados por la Fiscalía de la Caja y resueltos por la Gerencia.
-Contra lo que ésta decida, cabrá recurso de apelación ante la Junta
-Directiva, siempre que se interponga ante la Gerencia dentro de los cinco
-días posteriores a la notificación respectiva. El pronunciamiento de la
-Junta deberá dictarse dentro de los diez días siguientes a aquél en que se
-formuló el recurso.
-Salvo que el término de prescripción fuere menor, ningún interesado
-podrá discutir ante los Tribunales de Trabajo las resoluciones de la Caja
-que tengan más de un año de haber quedado firmes, de conformidad con las
-disposiciones del párrafo anterior.
+Artículo 56.- Las sentencias condenatorias dictadas en los juicios a que se refiere este capítulo no se inscribirán en el Registro Judicial de Delincuentes, salvo el caso de que la Caja, dada la gravedad de la falta, así lo solicite expresamente al tribunal respectivo. Las multas impuestas con ocasión de la aplicación de esta ley ingresarán a los fondos de la Caja Costarricense de Seguro Social debiendo ser giradas de inmediato a dicha Institución una vez practicado el depósito respectivo.
+La acción penal y la pena en cuanto a las faltas contempladas en esta ley, prescribirán en el término de dos años contados a partir del momento en que la Institución tenga conocimientos de la falta. El derecho a reclamar el monto de los daños y perjuicios irrogados a la Caja, sea que se ejercite la vía de ejecución de sentencia penal o directamente la vía civil, prescribirá en el término de diez años.
+(Así reformado por el artículo 1º de la ley No. 2765 de 4 de julio de 1961 ).

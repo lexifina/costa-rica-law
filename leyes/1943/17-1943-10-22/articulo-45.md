@@ -1,5 +1,5 @@
-Artículo 45.- Serán sancionados con multa de noventa a trescientos
-sesenta colones o arresto de cuarenta y cinco a ciento ochenta días los
-que resulten responsables de maniobras, declaraciones falsas o de
-cualesquiera otros actos u omisiones tendientes a defraudar los intereses
-de la Caja.
+Artículo 45.- Constituye retención indebida y, en
+consecuencia, se impondrá la pena determinada en el artículo 216
+del Código Penal, a quien no entregue a la Caja el monto de las
+cuotas obreras obligatorias dispuestas en esta ley
+(Así reformado por el artículo 112, inciso ch) de la Ley N° 7135 de 11 de octubre de 1989 y posteriormente reformado por el artículo 85 de la Ley N° 7983 del 16 de febrero del 2000)

@@ -1,5 +1,4 @@
-Artículo 50.- En el caso de dos o más reincidencias, se impondrá
-forzosamente arresto, el cual tendrá entonces carácter de inconmutable.
-Para que haya reincidencia, bastará con que se infrinja por segunda
-vez esta ley, aunque la disposición anteriormente violada sea distinta de
-la que dió origen a la nueva sanción.
+Artículo 50.- En caso de reincidencias específicas o genéricas se
+estará a lo dispuesto en el artículo 611 del Código de Trabajo.
+(Así reformado por el artículo 1º de la Ley Nº 1330 de 31 de julio de
+1951).
