@@ -1,0 +1,1 @@
+Art. 13. – Formarán parte de los Tribunales de examen, con voz y voto en ellos, y calificarán á sus alumnos, no solamente en virtud del resultado del acto, sino según su aplicación, aptitudes y conducta.

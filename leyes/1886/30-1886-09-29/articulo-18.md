@@ -1,0 +1,1 @@
+Art. 18.-El profesor encargado del Museo cuidará con esmero de que se conserven en buen esta- do los modelos, máquinas, material de enseñanza y demás objetos que lo constituyan, y llevará también un libro de registro que dé á conocer el número, calidad y aplicación de cada uno de los enseres del Museo.

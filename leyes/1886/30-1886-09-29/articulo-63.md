@@ -1,0 +1,1 @@
+Art. 63.-La más leve falta á sus superiores, el maltrato de sus compañeros y cualquier desorden ó acto que revele mal carácter, desaplicación ó falta de amor á la carrera, será castigado irremisiblemente con las penas establecidas en este reglamento.

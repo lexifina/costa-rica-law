@@ -1,0 +1,1 @@
+Art. 29.-El Tesoro Nacional costeará el sostenimiento de cincuenta alumnos becados con el carácter de internos, y cada uno de ellos recibirá gratis las prendas de uniforme y los libros y enseres de enseñanza.

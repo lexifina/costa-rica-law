@@ -1,0 +1,1 @@
+Art. 19.-Tanto el Bibliotecario como el encargado del Museo, propondrán á la Junta Facultativo-gubernativa la adquisición de las obras científicas y de texto, y de los aparatos y útiles que estimen necesarios, del mismo modo que la venta de lo que juzguen inútil.

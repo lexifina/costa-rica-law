@@ -1,0 +1,1 @@
+Art. 37.-Aunque al ingresar en el establecimiento se hubiere conferido á un joven algún grado militar, quedará sujeto á todas las prescripciones reglamentarias del mismo, sin gozar de preeminencia alguna sobre los demás alumnos.

@@ -1,0 +1,1 @@
+Art. 10. -El Subdirector sustituirá al Director en las faltas temporales de éste, y el Secretario, que lo será también de ña Junta Facultativo-gubernativa, llevará la correspondencia oficial de la Escuela y desempeñará las demás funciones que le señalan este reglamento.

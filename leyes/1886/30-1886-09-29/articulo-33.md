@@ -1,0 +1,1 @@
+Art. 33.-Aparte de las cualidades señaladas en el artículo 25, es condición indispensable para ocupar una plaza de beca carecer el presentado y sus padres ó parientes obligados por la ley á su cuidado, de recursos para proporcionarle una mediana educación; lo cual debe comprobarse ante la autoridad política de la provincia, por información de testigos.

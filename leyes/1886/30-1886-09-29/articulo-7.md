@@ -1,0 +1,1 @@
+Art. 7°-A los actos ó ejercicios de la Escuela que requieran banda de música, asistirá una de las de la guarnición de esta ciudad, previa orden del Comandante en Jefe del Ejército, solicitada por el órgano del Ministerio de la Guerra.

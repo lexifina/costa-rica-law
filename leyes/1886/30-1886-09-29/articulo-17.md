@@ -1,0 +1,1 @@
+Art. 17.-El Bibliotecario tendrá á su cargo y bajo su responsabilidad los libros y demás objetos de la Biblioteca; cuidará de su conservación y mejora, y llevará los correspondientes registros de entrada y salida de los mismos.
