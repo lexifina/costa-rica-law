@@ -1,4 +1,6 @@
 Artículo 2°—Se reconocen como Especialidades Médicas:
+Acupuntura.
+(Ampliado por el artículo 2 del Decreto Ejecutivo N° 17307 del 24 de noviembre de 1986)
 Administración de Hospitales.
 Alergología e Inmunología Clínica.
 Anatomía Humana.
