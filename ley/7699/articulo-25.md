@@ -5,8 +5,8 @@ Conferencia de las Partes, adoptará disposiciones para emprender un
 estudio y una evaluación de las redes, las instituciones, los organismos
 y los órganos pertinentes ya existentes que deseen constituirse en
 unidades de una red. Esta red apoyará la aplicación de la Convención.
-2.- Sobre la base de los resultados del estudio y la evaluación a que
-se refiere el párrafo 1 del presente artículo, el Comité de Ciencia y
+2.- Sobre la base de los resultados del estudio y la evaluación a
+que se refiere el párrafo 1 del presente artículo, el Comité de Ciencia y
 Tecnología hará recomendaciones a la Conferencia de las Partes sobre los
 medios de facilitar y reforzar la integración en redes de las unidades a
 nivel local y nacional o a otros niveles con el fin de asegurar que se

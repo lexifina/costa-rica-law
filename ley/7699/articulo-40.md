@@ -5,27 +5,28 @@ español, francés, inglés y ruso son igualmente auténticos, se depositará
 en poder del Secretario General de las Naciones Unidas.
 EN TESTIMONIO DE LO CUAL los infraescritos, debidamente autorizados
 al efecto, han firmado la presente Convención.
-HECHA en París, el día diecisiete de junio de mil novecientos noventa
-y cuatro.
+HECHA en París, el día diecisiete de junio de mil novecientos
+noventa y cuatro.
 =======================================================================
 ANEXO I
 ANEXO DE APLICACIÓN REGIONAL PARA ÁFRICA
 Artículo 1
 Alcance
-El presente Anexo se aplica a África, en relación con cada una de las
-Partes y de conformidad con la Convención, en particular su artículo 7, a
-los efectos de luchar contra la desertificación y/o mitigar los efectos de
-la sequía en sus zonas áridas, semiáridas y subhúmedas secas.
+El presente Anexo se aplica a África, en relación con cada una de
+las Partes y de conformidad con la Convención, en particular su artículo
+7, a los efectos de luchar contra la desertificación y/o mitigar los
+efectos de la sequía en sus zonas áridas, semiáridas y subhúmedas secas.
 Artículo 2
 Objeto
 A la luz de las condiciones particulares de África, el objeto del
 presente Anexo, en los planos nacional, subregional y regional de África,
 es el siguiente:
 a) determinar medidas y disposiciones, con inclusión del carácter y
-los procesos de la asistencia prestada por los países Partes desarrollados
-de conformidad con las disposiciones pertinentes de la Convención;
-b) proveer a una aplicación eficiente y práctica de la Convención que
-responda a las condiciones específicas de África; y
+los procesos de la asistencia prestada por los países Partes
+desarrollados de conformidad con las disposiciones pertinentes de la
+Convención;
+b) proveer a una aplicación eficiente y práctica de la Convención
+que responda a las condiciones específicas de África; y
 c) promover procesos y actividades relacionados con la lucha contra
 la desertificación y/o la mitigación de los efectos de la sequía en las
 zonas áridas, semiáridas y subhúmedas secas de África.
@@ -55,8 +56,8 @@ naturales para su subsistencia, lo cual, agravado por los efectos de las
 tendencias y los factores demográficos, una escasa base tecnológica y
 prácticas de producción insostenibles, contribuye a una grave degradación
 de los recursos;
-g) los deficientes marcos institucionales y jurídicos, la escasa base
-de infraestructura y la falta de una capacidad científica, técnica y
+g) los deficientes marcos institucionales y jurídicos, la escasa
+base de infraestructura y la falta de una capacidad científica, técnica y
 educacional que hace que haya grandes necesidades de fomento de las
 capacidades; y
 h) el papel central de las actividades de lucha contra la
@@ -90,8 +91,8 @@ a) asignar recursos financieros apropiados de sus presupuestos
 nacionales de conformidad con las condiciones y capacidades nacionales,
 que reflejen el nuevo grado de prioridad que atribuye África al fenómeno
 de la desertificación y/o la sequía;
-b) llevar adelante y consolidar las reformas actualmente en marcha en
-materia de descentralización, tenencia de los recursos y fomento de la
+b) llevar adelante y consolidar las reformas actualmente en marcha
+en materia de descentralización, tenencia de los recursos y fomento de la
 participación de las poblaciones y comunidades locales; y
 c) determinar y movilizar recursos financieros nuevos y adicionales
 a nivel nacional e incrementar, como asunto de prioridad, la capacidad y
@@ -102,14 +103,14 @@ Estados Partes desarrollados
 1.- Al cumplir las obligaciones previstas en los artículos 4, 6 y 7
 de la Convención, los países Partes desarrollados atribuirán prioridad a
 los países Partes africanos afectados y, en este contexto:
-a) los ayudarán a combatir la desertificación y/o mitigar los efectos
-de la sequía entre otras cosas proporcionándoles recursos financieros o de
-otra índole o facilitándoles el acceso a ellos y promoviendo, financiando
-o ayudando a financiar la transferencia y adaptación de tecnologías y
-conocimientos ambientales apropiados y el acceso a estos, según lo
-convenido por mutuo acuerdo y de conformidad con las políticas nacionales,
-teniendo en cuenta su adopción de la estrategia de erradicar la pobreza
-como estrategia central;
+a) los ayudarán a combatir la desertificación y/o mitigar los
+efectos de la sequía entre otras cosas proporcionándoles recursos
+financieros o de otra índole o facilitándoles el acceso a ellos y
+promoviendo, financiando o ayudando a financiar la transferencia y
+adaptación de tecnologías y conocimientos ambientales apropiados y el
+acceso a estos, según lo convenido por mutuo acuerdo y de conformidad con
+las políticas nacionales, teniendo en cuenta su adopción de la estrategia
+de erradicar la pobreza como estrategia central;
 b) seguirán destinando recursos considerables y/o aumentarán los
 recursos para luchar contra la desertificación y/o mitigar los efectos de
 la sequía; y
@@ -126,11 +127,11 @@ dichos conocimientos teóricos y prácticos y técnicas.
 Artículo 6
 Marco estratégico de planificación del
 desarrollo sostenible
-1.- Los programas de acción nacionales serán parte central e integral
-de un proceso más amplio de formulación de políticas nacionales de
-desarrollo sostenible en los países Partes africanos afectados.
-2.- Se pondrá en marcha un proceso de consulta y de participación, en
-que intervendrán los niveles de gobierno apropiados, las poblaciones y
+1.- Los programas de acción nacionales serán parte central e
+integral de un proceso más amplio de formulación de políticas nacionales
+de desarrollo sostenible en los países Partes africanos afectados.
+2.- Se pondrá en marcha un proceso de consulta y de participación,
+en que intervendrán los niveles de gobierno apropiados, las poblaciones y
 comunidades locales y organizaciones no gubernamentales, con el fin de
 impartir orientación sobre una estrategia de planificación flexible que
 permita la máxima participación de las poblaciones y comunidades locales.
@@ -143,27 +144,28 @@ Hasta la entrada en vigor de la Convención los países Partes
 africanos, en colaboración con otros miembros de la comunidad
 internacional, según corresponda y en la medida de lo posible, aplicarán
 provisionalmente las disposiciones de la Convención relativas a la
-elaboración de programas de acción nacionales, subregionales y regionales.
+elaboración de programas de acción nacionales, subregionales y
+regionales.
 Artículo 8
 Contenido de los programas de acción nacionales
 1.- De conformidad con lo dispuesto en el artículo 10 de la
 Convención, la estrategia general de los programas de acción nacionales
 hará hincapié en programas de desarrollo local integrado de las zonas
 afectadas, basados en mecanismos de participación y en la integración de
-estrategias de erradicación de la pobreza en los esfuerzos de lucha contra
-la desertificación y mitigación de los efectos de la sequía. Los
+estrategias de erradicación de la pobreza en los esfuerzos de lucha
+contra la desertificación y mitigación de los efectos de la sequía. Los
 programas tendrán por objeto reforzar la capacidad de las autoridades
 locales y asegurar la participación activa de las poblaciones, las
-comunidades y los grupos locales, con especial insistencia en la educación
-y la capacitación, la movilización de organizaciones no gubernamentales de
-reconocida experiencia y la consolidación de estructuras gubernamentales
-descentralizadas.
-2.- Según corresponda, los programas de acción nacionales presentarán
-las siguientes características generales:
-a) el aprovechamiento en su elaboración y ejecución de la experiencia
-de la lucha contra la desertificación y/o la mitigación de los efectos de
-la sequía, teniendo en cuenta las condiciones sociales, económicas y
-ecológicas;
+comunidades y los grupos locales, con especial insistencia en la
+educación y la capacitación, la movilización de organizaciones no
+gubernamentales de reconocida experiencia y la consolidación de
+estructuras gubernamentales descentralizadas.
+2.- Según corresponda, los programas de acción nacionales
+presentarán las siguientes características generales:
+a) el aprovechamiento en su elaboración y ejecución de la
+experiencia de la lucha contra la desertificación y/o la mitigación de
+los efectos de la sequía, teniendo en cuenta las condiciones sociales,
+económicas y ecológicas;
 b) la determinación de los factores que contribuyen a la
 desertificación y/o la sequía y los recursos y medios disponibles y
 necesarios, y el establecimiento de políticas apropiadas y las medidas de
@@ -174,10 +176,10 @@ locales, en particular las mujeres, los agricultores y los pastores, y la
 delegación en ellas de más responsabilidades de gestión.
 3.- Según corresponda, los programas de acción nacionales incluirán
 las siguientes medidas:
-a) medidas para mejorar el entorno económico con miras a erradicar la
-pobreza:
-i) proveer al aumento de los ingresos y las oportunidades
-de empleo, especialmente para los miembros más pobres de la
+a) medidas para mejorar el entorno económico con miras a erradicar
+la pobreza:
+i) proveer al aumento de los ingresos y las oportunidades de
+empleo, especialmente para los miembros más pobres de la
 comunidad, mediante:
 - la creación de mercados para los productos agropecuarios,
 - la creación de instrumentos financieros adaptados a las
@@ -186,18 +188,17 @@ necesidades locales,
 creación de empresas agrícolas, y
 - el desarrollo de actividades económicas para agrícolas y no
 agrícolas.
-ii) mejorar las perspectivas a largo plazo de las economías
-rurales mediante:
+ii) mejorar las perspectivas a largo plazo de las economías rurales
+mediante:
 - la creación de incentivos para las inversiones productivas y
 posibilidades de acceso a los medios de producción, y
 - la adopción de políticas de precios y tributarias y de
 prácticas comerciales que promuevan el crecimiento;
-iii) adopción y aplicación de políticas de población y
-migración para reducir la presión demográfica sobre las tierras;
-y
-iv) promoción de los cultivos resistentes a la sequía y de
-los sistemas de cultivo de secano integrados con fines de
-seguridad alimentaria;
+iii) adopción y aplicación de políticas de población y migración
+para reducir la presión demográfica sobre las tierras; y
+iv) promoción de los cultivos resistentes a la sequía y de los
+sistemas de cultivo de secano integrados con fines de seguridad
+alimentaria;
 b) medidas para conservar los recursos naturales:
 i) velar por una gestión integrada y sostenible de los
 recursos naturales, que abarque:
@@ -205,39 +206,38 @@ recursos naturales, que abarque:
 - la cubierta vegetal y la flora y fauna silvestres,
 - los bosques, los recursos hídricos y su conservación, y
 - la diversidad biológica;
-ii) impartir capacitación en las técnicas relacionadas con
-la gestión sostenible de los recursos naturales, reforzar las
+ii) impartir capacitación en las técnicas relacionadas con la
+gestión sostenible de los recursos naturales, reforzar las
 campañas de sensibilización y educación ambiental y difundir
 conocimientos al respecto; y
-iii) velar por el desarrollo y la utilización eficiente de
-diversas fuentes de energía, la promoción de fuentes
-sustitutivas de energía, en particular la energía solar, la
-energía eólica y el biogás, y adoptar disposiciones concretas
-para la transferencia, la adquisición y la adaptación de la
-tecnología pertinente a fin de aliviar las presiones a que están
-sometidos los recursos naturales frágiles;
+iii) velar por el desarrollo y la utilización eficiente de diversas
+fuentes de energía, la promoción de fuentes sustitutivas de
+energía, en particular la energía solar, la energía eólica y el
+biogás, y adoptar disposiciones concretas para la
+transferencia, la adquisición y la adaptación de la tecnología
+pertinente a fin de aliviar las presiones a que están sometidos
+los recursos naturales frágiles;
 c) medidas para mejorar la organización institucional:
 i) determinar las funciones y responsabilidades de la
 administración central y de las autoridades locales en el marco
 de una política de planificación del uso de la tierra.
-ii) promover una política de descen-tralización activa por
-la que se delegue en las autoridades locales las
-responsabilidades de gestión y adopción de decisiones, y
-estimular la iniciativa y la responsabilidad de las comunidades
-locales y la creación de estructuras locales, y
-iii) introducir los ajustes necesarios en el marco
-institucional y regulador de la gestión de los recursos
-naturales para garantizar la seguridad de tenencia de la tierra
-a las poblaciones locales;
+ii) promover una política de descentralización activa por la que se
+delegue en las autoridades locales las responsabilidades de
+gestión y adopción de decisiones, y estimular la iniciativa y
+la responsabilidad de las comunidades locales y la creación de
+estructuras locales, y
+iii) introducir los ajustes necesarios en el marco institucional y
+regulador de la gestión de los recursos naturales para
+garantizar la seguridad de tenencia de la tierra a las
+poblaciones locales;
 d) medidas para mejorar el conocimiento de la desertificación:
-i) promover la investigación y la reunión, el tratamiento
-y el intercambio de información sobre los aspectos científicos,
+i) promover la investigación y la reunión, el tratamiento y el
+intercambio de información sobre los aspectos científicos,
 técnicos y socioeconómicos de la desertificación,
-ii) fomentar la capacidad nacional de investigación así
-como de reunión, tratamiento, intercambio y análisis de la
-información para lograr que los fenómenos se comprendan mejor y
-que los resultados del análisis se plasmen en operaciones
-concretas, y
+ii) fomentar la capacidad nacional de investigación así como de
+reunión, tratamiento, intercambio y análisis de la información
+para lograr que los fenómenos se comprendan mejor y que los
+resultados del análisis se plasmen en operaciones concretas, y
 iii) promover el estudio a mediano y largo plazo de:
 - las tendencias socioeconómicas y culturales en las zonas
 afectadas,
@@ -247,19 +247,19 @@ naturales, y
 e) medidas para vigilar y calibrar los efectos de la sequía:
 i) elaborar estrategias para calibrar los efectos de las
 variaciones climáticas naturales sobre la sequía y la
-desertificación a nivel regional y/o utilizar los pronósticos de
-las variaciones climáticas en escalas de tiempo estacionales o
-interanuales en los esfuerzos por mitigar los efectos de la
+desertificación a nivel regional y/o utilizar los pronósticos
+de las variaciones climáticas en escalas de tiempo estacionales
+o interanuales en los esfuerzos por mitigar los efectos de la
 sequía,
-ii) mejorar los sistemas de alerta temprana y la capacidad
-de reacción, velar por la administración eficiente del socorro
-de emergencia y la ayuda alimentaria y perfeccionar los sistemas
+ii) mejorar los sistemas de alerta temprana y la capacidad de
+reacción, velar por la administración eficiente del socorro de
+emergencia y la ayuda alimentaria y perfeccionar los sistemas
 de abastecimiento y distribución de alimentos, los programas de
 protección del ganado, las obras públicas y los medios de
 subsistencia para las zonas propensas a la sequía, y
-iii) vigilar y calibrar la degradación ecológica para
-facilitar información fidedigna y oportuna sobre ese proceso y
-la dinámica de la degradación de los recursos a fin de facilitar
+iii) vigilar y calibrar la degradación ecológica para facilitar
+información fidedigna y oportuna sobre ese proceso y la
+dinámica de la degradación de los recursos a fin de facilitar
 la adopción de mejores políticas y medidas de reacción
 Artículo 9
 Elaboración de los programas de acción nacionales
@@ -272,11 +272,11 @@ artículo 3 y según corresponda:
 a) determinar y examinará medidas, comenzando por un proceso de
 consulta a nivel local en que participen las poblaciones y comunidades
 locales y cooperen las administraciones locales, los países Partes
-donantes y organizaciones intergubernamentales y no gubernamentales, sobre
-la base de consultas iniciales de los interesados a nivel nacional;
+donantes y organizaciones intergubernamentales y no gubernamentales,
+sobre la base de consultas iniciales de los interesados a nivel nacional;
 b) determinará y analizará las limitaciones, necesidades e
-insuficiencias que afecten al desarrollo y la utilización sostenible de la
-tierra y recomendará medidas prácticas para evitar la duplicación de
+insuficiencias que afecten al desarrollo y la utilización sostenible de
+la tierra y recomendará medidas prácticas para evitar la duplicación de
 esfuerzos sacando el máximo partido de las actividades pertinentes en
 curso y promover la aplicación de los resultados;
 c) facilitará, programará y formulará actividades de proyectos
@@ -286,8 +286,8 @@ al mínimo los efectos adversos de esas actividades, y determinará las
 necesidades de asistencia financiera y cooperación técnica estableciendo
 un orden de prioridades entre ellas;
 d) establecerá indicadores pertinentes que sean cuantificables y
-fácilmente verificables para asegurar el examen preliminar y evaluación de
-los programas de acción nacionales, que comprendan medidas a corto,
+fácilmente verificables para asegurar el examen preliminar y evaluación
+de los programas de acción nacionales, que comprendan medidas a corto,
 mediano y largo plazo, y de la ejecución de esos programas de acción
 nacionales convenidos; y
 e) preparará informes sobre los progresos realizados en la ejecución
@@ -296,13 +296,14 @@ Artículo 10
 Marco institucional de los programas
 de acción subregionales
 1.- De conformidad con el artículo 4 de la Convención, los países
-Partes africanos cooperarán en la elaboración y ejecución de los programas
-de acción subregionales para África central, oriental, septentrional,
-meridional y occidental. A ese efecto, podrán delegar en las
-organizaciones intergubernamentales competentes las responsabilidades
+Partes africanos cooperarán en la elaboración y ejecución de los
+programas de acción subregionales para África central, oriental,
+septentrional, meridional y occidental. A ese efecto, podrán delegar en
+las organizaciones intergubernamentales competentes las responsabilidades
 siguientes:
-a) servir de centros de coordinación de las actividades preparatorias
-y coordinar la ejecución de los programas de acción subregionales;
+a) servir de centros de coordinación de las actividades
+preparatorias y coordinar la ejecución de los programas de acción
+subregionales;
 b) prestar asistencia para la elaboración y ejecución de los
 programas de acción nacionales;
 c) facilitar el intercambio de información, experiencia y
@@ -312,15 +313,15 @@ d) toda otra responsabilidad relacionada con la ejecución de los
 programas de acción subregionales.
 2.- Las instituciones subregionales especializadas podrán prestar su
 apoyo, previa solicitud, y podrá encomendárseles a estas la
-responsabilidad de coordinar las actividades en sus respectivas esferas de
-competencia.
+responsabilidad de coordinar las actividades en sus respectivas esferas
+de competencia.
 Artículo 11
 Contenido y elaboración de los programas
 de acción subregionales
 Los programas de acción subregionales se centrarán en las cuestiones
 que más se presten para ser abordadas a nivel subregional. Los programas
-de acción subregionales establecerán, donde sea necesario, mecanismos para
-la gestión de los recursos naturales compartidos. Además, tales
+de acción subregionales establecerán, donde sea necesario, mecanismos
+para la gestión de los recursos naturales compartidos. Además, tales
 mecanismos se ocuparán eficazmente de los problemas transfronterizos
 relacionados con la desertificación y la sequía y prestarán apoyo para la
 ejecución concertada de los programas de acción nacionales. Las esferas
@@ -336,20 +337,21 @@ enfermedades de plantas y animales;
 d) las actividades de fomento de las capacidades, educación y
 sensibilización que más se presten para ser realizadas o apoyadas a nivel
 subregional;
-e) la cooperación científica y técnica, particularmente en materia de
-climatología, meteorología e hidrología, con inclusión de la creación de
-redes para la reunión y evaluación de datos, el intercambio de información
-y la vigilancia de proyectos, así como la coordinación de actividades de
-investigación y desarrollo y la fijación de prioridades para estas;
+e) la cooperación científica y técnica, particularmente en materia
+de climatología, meteorología e hidrología, con inclusión de la creación
+de redes para la reunión y evaluación de datos, el intercambio de
+información y la vigilancia de proyectos, así como la coordinación de
+actividades de investigación y desarrollo y la fijación de prioridades
+para estas;
 f) los sistemas de alerta temprana y la planificación conjunta para
 mitigar los efectos de la sequía, con inclusión de medidas para abordar
 los problemas ocasionados por las migraciones inducidas por factores
 ambientales;
 g) la búsqueda de medios para intercambiar experiencia,
 particularmente en relación con la participación de las poblaciones y
-comunidades locales, y la creación de un entorno favorable al mejoramiento
-de la gestión del uso de la tierra y la utilización de tecnologías
-apropiadas;
+comunidades locales, y la creación de un entorno favorable al
+mejoramiento de la gestión del uso de la tierra y la utilización de
+tecnologías apropiadas;
 h) el fomento de la capacidad de las organizaciones subregionales
 para coordinar y prestar servicios técnicos y el establecimiento, la
 reorientación y el fortalecimiento de los centros e instituciones
@@ -391,19 +393,19 @@ sustitutivas; coordinación de las actividades de investigación
 subregionales y regionales; y determinación de las prioridades regionales
 en materia de investigación y desarrollo;
 e) coordinación de redes para la observación sistemática y la
-evaluación y el intercambio de información, e integración de esas redes en
-redes mundiales; y
+evaluación y el intercambio de información, e integración de esas redes
+en redes mundiales; y
 f) coordinación y fortalecimiento de los sistemas de alerta temprana
 y los planes subregionales y regionales para hacer frente a las
 contingencias de la sequía.
 Artículo 14
 Recursos financieros
 1.- De conformidad con el artículo 20 de la Convención y con el
-párrafo 2 del artículo 4, los países Partes afectados de África procurarán
-crear un marco macroeconómico propicio a la movilización de recursos
-financieros y establecerán políticas y procedimientos para encauzar mejor
-los recursos hacia los programas de desarrollo local, incluso por vía de
-organizaciones no gubernamentales, según corresponda.
+párrafo 2 del artículo 4, los países Partes afectados de África
+procurarán crear un marco macroeconómico propicio a la movilización de
+recursos financieros y establecerán políticas y procedimientos para
+encauzar mejor los recursos hacia los programas de desarrollo local,
+incluso por vía de organizaciones no gubernamentales, según corresponda.
 2.- Con arreglo de los párrafos 4 y 5 del artículo 21 de la
 Convención, las Partes convienen en establecer un inventario de las
 fuentes de financiación a los niveles nacional, subregional, regional e
@@ -417,8 +419,8 @@ incrementarán los recursos destinados a los países Partes afectados de
 África así como otras formas de asistencia sobre la base de los acuerdos
 y arreglos de asociación a que se refiere el artículo 18, prestando la
 debida atención, entre otras cosas, a las cuestiones relacionadas con la
-deuda, el comercio internacional y los sistemas de comercialización, según
-lo dispuesto en el inciso b), del párrafo 2 del artículo 4 de la
+deuda, el comercio internacional y los sistemas de comercialización,
+según lo dispuesto en el inciso b), del párrafo 2 del artículo 4 de la
 Convención.
 Artículo 15
 Mecanismos financieros
@@ -429,8 +431,8 @@ particular imperante en esa región, las Partes prestarán una atención
 especial a la aplicación en África de las disposiciones de los incisos d)
 y e) del párrafo 1 del artículo 21 de la Convención y, en particular:
 a) a facilitar el establecimiento de mecanismos, como fondos
-nacionales de lucha contra la desertificación, a fin de canalizar recursos
-financieros para acciones a nivel local; y
+nacionales de lucha contra la desertificación, a fin de canalizar
+recursos financieros para acciones a nivel local; y
 b) a reforzar los fondos y los mecanismos financieros existentes a
 nivel subregional y regional.
 2.- De conformidad con los artículos 20 y 21 de la Convención, las
@@ -441,8 +443,8 @@ Desarrollo, realizarán esfuerzos para que se conceda la debida prioridad
 y atención a las actividades de esas instituciones que promuevan la
 aplicación del presente anexo.
 3.- Las Partes racionalizarán, en la medida de lo posible, los
-procedimientos para canalizar recursos financieros hacia los países Partes
-africanos afectados.
+procedimientos para canalizar recursos financieros hacia los países
+Partes africanos afectados.
 Artículo 16
 Asistencia y cooperación técnicas
 Las Partes se comprometen, de conformidad con sus respectivas
@@ -453,11 +455,11 @@ a) la reducción del costo de las medidas de apoyo y auxilio,
 especialmente de los gastos de administración; en cualquier caso, tales
 gastos representarán sólo un pequeño porcentaje del costo total de cada
 proyecto a fin de asegurar la máxima eficiencia de los proyectos;
-b) la asignación de prioridad a la utilización de expertos nacionales
-competentes o, cuando sea necesario, de expertos competentes de la
-subregión o de la región para la formulación, preparación y ejecución de
-los proyectos y para la creación de capacidad local allí donde se carezca
-de ella; y
+b) la asignación de prioridad a la utilización de expertos
+nacionales competentes o, cuando sea necesario, de expertos competentes
+de la subregión o de la región para la formulación, preparación y
+ejecución de los proyectos y para la creación de capacidad local allí
+donde se carezca de ella; y
 c) la administración, coordinación y utilización eficientes de la
 asistencia técnica que se preste.
 Artículo 17
@@ -475,9 +477,9 @@ Artículo 18
 Acuerdos de coordinación y asociación
 1.- Los países Partes africanos coordinarán la preparación,
 negociación y ejecución de los programas de acción nacionales,
-subregionales y regionales. Podrán hacer participar, según corresponda,
-a otras Partes y a las organizaciones intergubernamentales y no guber-
-namentales pertinentes en el proceso.
+subregionales y regionales. Podrán hacer participar, según corresponda, a
+otras Partes y a las organizaciones intergubernamentales y no
+gubernamentales pertinentes en el proceso.
 2.- El objetivo de dicha coordinación será asegurar que la
 cooperación financiera y técnica sea consecuente con la Convención y
 proveer a la necesaria continuidad en la utilización y administración de
@@ -487,15 +489,16 @@ los niveles nacional, subregional y regional. Esos procesos de consulta
 podrán:
 a) servir de foro para negociar y concertar acuerdos de asociación
 basados en dichos programas nacionales, subregionales y regionales; y
-b) especificar la contribución de los países Partes africanos y otros
-miembros de los grupos consultivos a los programas y establecer
+b) especificar la contribución de los países Partes africanos y
+otros miembros de los grupos consultivos a los programas y establecer
 prioridades y acuerdos respecto de los indicadores para la ejecución y la
 evaluación, así como disposiciones financieras para la ejecución.
 4.- La Secretaría Permanente, a petición de los países Partes
 africanos y de conformidad con el artículo 23 de la Convención, podrá
 facilitar la convocación de tales procesos consultivos:
-a) asesorando sobre la organización de acuerdos consultivos eficaces,
-aprovechando de la experiencia de otros acuerdos del mismo tipo;
+a) asesorando sobre la organización de acuerdos consultivos
+eficaces, aprovechando de la experiencia de otros acuerdos del mismo
+tipo;
 b) facilitando información a organismos bilaterales y multilaterales
 pertinentes acerca de reuniones o procesos de consulta, e incitándoles a
 participar en ellos activamente; y
@@ -503,8 +506,8 @@ c) facilitando cualquier otra información pertinente para la
 realización o mejora de acuerdos consultivos.
 5.- Los órganos de coordinación subregionales y regionales, entre
 otras cosas:
-a) recomendarán la introducción de ajustes apropiados en los acuerdos
-de asociación;
+a) recomendarán la introducción de ajustes apropiados en los
+acuerdos de asociación;
 b) vigilarán y evaluarán la ejecución de los programas subregionales
 y regionales convenidos e informarán al respecto; y
 c) procurarán asegurar una comunicación y cooperación eficientes
@@ -522,13 +525,13 @@ un proceso oficioso de consulta y coordinación entre ellos a los niveles
 nacional, subregional y regional, y a que participen, previa solicitud de
 un país Parte africano afectado o de una organización subregional o
 regional apropiada, en un proceso de consulta nacional, subregional o
-regional que permita evaluar y atender las necesidades de asistencia a fin
-de facilitar la ejecución.
+regional que permita evaluar y atender las necesidades de asistencia a
+fin de facilitar la ejecución.
 Artículo 19
 Disposiciones de seguimiento
-Del seguimiento de las disposiciones del presente Anexo se encargarán
-los países Partes africanos, de conformidad con los artículos pertinentes
-de la Convención, de la siguiente manera:
+Del seguimiento de las disposiciones del presente Anexo se
+encargarán los países Partes africanos, de conformidad con los artículos
+pertinentes de la Convención, de la siguiente manera:
 a) en el plano nacional, por vía de un mecanismo cuya composición
 será determinada por cada uno de los países Partes africanos afectados.
 Este mecanismo contará con la participación de representantes de las
@@ -549,14 +552,14 @@ Artículo 1
 Objeto
 El objeto del presente anexo es señalar directrices y disposiciones
 para la aplicación efectiva de la Convención en los países Partes
-afectados de la región de Asia a la luz de las condiciones particulares de
-esa región.
+afectados de la región de Asia a la luz de las condiciones particulares
+de esa región.
 Artículo 2
 Condiciones particulares de la región de Asia
 En el cumplimiento de las obligaciones contraídas en virtud de la
 Convención, las Partes deberán tener en cuenta, según corresponda, las
-siguientes condiciones particulares, que son pertinentes en distinto grado
-a los países Partes afectados de la región:
+siguientes condiciones particulares, que son pertinentes en distinto
+grado a los países Partes afectados de la región:
 a) la gran proporción de zonas de sus territorios afectadas por la
 desertificación y la sequía o vulnerables a ellas y la enorme diversidad
 de esas zonas en lo que respecta al clima, la topografía, el uso de la
@@ -598,8 +601,8 @@ coordinación y aplicación de sus programas de acción;
 b) hacer que las poblaciones afectadas, inclusive las comunidades
 locales, participen en la elaboración, coordinación y aplicación de sus
 programas de acción mediante un proceso consultivo realizado localmente,
-en cooperación con las autoridades locales y las organizaciones nacionales
-y no gubernamentales pertinentes;
+en cooperación con las autoridades locales y las organizaciones
+nacionales y no gubernamentales pertinentes;
 c) estudiar el estado del medio ambiente en las zonas afectadas para
 evaluar las causas y las consecuencias de la desertificación y determinar
 las zonas prioritarias de acción;
@@ -614,26 +617,26 @@ incisos a) a d);
 f) elaborar y aplicar procedimientos y modelos para evaluar la
 ejecución de sus programas de acción;
 g) promover la gestión integrada de las cuencas hidrográficas, la
-conservación de los recursos de suelos y el mejoramiento y uso racional de
-los recursos hídricos;
-h) el establecimiento y/o fortalecimiento de sistemas de información,
-evaluación y seguimiento, así como sistemas de alerta temprana, en las
-regiones propensas a la desertificación y la sequía, teniendo en cuenta
-los factores climatológicos, meteorológicos, hidrológicos, biológicos y
-otros factores pertinentes; y
+conservación de los recursos de suelos y el mejoramiento y uso racional
+de los recursos hídricos;
+h) el establecimiento y/o fortalecimiento de sistemas de
+información, evaluación y seguimiento, así como sistemas de alerta
+temprana, en las regiones propensas a la desertificación y la sequía,
+teniendo en cuenta los factores climatológicos, meteorológicos,
+hidrológicos, biológicos y otros factores pertinentes; y
 i) adoptar, en un espíritu de asociación y cuando se trate de la
 cooperación internacional, incluida la asistencia financiera y técnica,
 disposiciones apropiadas en apoyo de sus programas de acción.
-2.- De conformidad con el artículo 10 de la Convención, la estrategia
-general de los programas nacionales hará hincapié en los programas
-integrados de desarrollo local para las zonas afectadas, basados en
-mecanismos de participación y en la integración de las estrategias de
-erradicación de la pobreza en los esfuerzos de lucha contra la
-desertificación y mitigación de los efectos de la sequía. Las medidas
-sectoriales de los programas de acción deberán agruparse con arreglo a
-criterios prioritarios que tengan en cuenta la gran diversidad de las
-zonas afectadas de la región a que se hace referencia en el inciso a) del
-artículo 2.
+2.- De conformidad con el artículo 10 de la Convención, la
+estrategia general de los programas nacionales hará hincapié en los
+programas integrados de desarrollo local para las zonas afectadas,
+basados en mecanismos de participación y en la integración de las
+estrategias de erradicación de la pobreza en los esfuerzos de lucha
+contra la desertificación y mitigación de los efectos de la sequía. Las
+medidas sectoriales de los programas de acción deberán agruparse con
+arreglo a criterios prioritarios que tengan en cuenta la gran diversidad
+de las zonas afectadas de la región a que se hace referencia en el inciso
+a) del artículo 2.
 Artículo 5
 Programas de acción subregionales y conjuntos
 1.- De conformidad con el artículo 11 de la Convención, los países
@@ -653,9 +656,9 @@ conjuntos, los países Partes afectados de la región podrán adoptar, entre
 otras, las siguientes medidas que consideren apropiadas:
 a) identificar, en cooperación con instituciones nacionales, las
 prioridades en materia de lucha contra la desertificación y mitigación de
-la sequía que puedan atenderse más fácilmente con esos programas, así como
-las actividades pertinentes que puedan llevarse a cabo de modo eficaz
-mediante los mismos;
+la sequía que puedan atenderse más fácilmente con esos programas, así
+como las actividades pertinentes que puedan llevarse a cabo de modo
+eficaz mediante los mismos;
 b) evaluar las capacidades operacionales y actividades operacionales
 de las instituciones regionales, subregionales y nacionales pertinentes;
 c) evaluar los programas existentes relativos a la desertificación y
@@ -681,7 +684,8 @@ medidas para fortalecer las instituciones y mecanismos de coordinación y
 cooperación a nivel nacional, subregional y regional, y promover la
 aplicación de los artículos 16 a 19 de la Convención. Esas actividades
 podrán incluir:
-a) la promoción y el fortalecimiento de redes de cooperación técnica;
+a) la promoción y el fortalecimiento de redes de cooperación
+técnica;
 b) la elaboración de inventarios de tecnologías, conocimientos,
 experiencia y prácticas, así como de tecnologías y experiencias
 tradicionales y locales, y el fomento de su divulgación y utilización;
@@ -697,25 +701,25 @@ Recursos y mecanismos financieros
 1.- Dada la importancia que tiene combatir la desertificación y
 mitigar los efectos de la sequía en la región asiática, las Partes
 promoverán la movilización de considerables recursos financieros y la
-disponibilidad de mecanismos financieros, de conformidad con los artículos
-20 y 21 de la Convención.
-2.- De conformidad con la Convención y sobre la base del mecanismo de
-coordinación previsto en el artículo 8, así como de acuerdo con sus
+disponibilidad de mecanismos financieros, de conformidad con los
+artículos 20 y 21 de la Convención.
+2.- De conformidad con la Convención y sobre la base del mecanismo
+de coordinación previsto en el artículo 8, así como de acuerdo con sus
 políticas nacionales de desarrollo, los países Partes afectados de la
 región deberán, individual o conjuntamente:
 a) adoptar medidas para racionalizar y reforzar los mecanismos de
 financiación a través de inversiones públicas y privadas, con objeto de
 lograr resultados concretos en la lucha contra la desertificación y la
 mitigación de los efectos de la sequía;
-b) Identificar los requisitos en materia de cooperación internacional
-en apoyo de esfuerzos nacionales, especialmente financieros, técnicos y
-tecnológicos; y
+b) Identificar los requisitos en materia de cooperación
+internacional en apoyo de esfuerzos nacionales, especialmente
+financieros, técnicos y tecnológicos; y
 c) promover la participación de instituciones bilaterales o
 multilaterales de cooperación financiera a fin de asegurar la aplicación
 de la Convención.
 3.- Las Partes racionalizarán en toda la medida de lo posible los
-procedimientos destinados a canalizar fondos a los países Partes afectados
-de la región.
+procedimientos destinados a canalizar fondos a los países Partes
+afectados de la región.
 Artículo 8
 Mecanismos de cooperación y coordinación
 1.- Los países Partes afectados, por conducto de los órganos
@@ -732,16 +736,16 @@ e) adoptar disposiciones para el seguimiento y la evaluación de los
 programas de acción.
 2.- Los países Partes afectados, por conducto de los órganos
 pertinentes designados de conformidad con el inciso a) del párrafo 1 del
-artículo 4, y otras Partes de la región podrán también, según corresponda,
-aplicar un proceso de consulta y coordinación en lo que respecta a los
-programas de acción nacionales, subregionales y conjuntos. En su caso,
-esas Partes podrán requerir la participación en ese proceso de otras
-Partes y de organizaciones intergubernamentales y no gubernamentales
-pertinentes. Entre otras cosas, esa coordinación estará encaminada a
-lograr acuerdo sobre las oportunidades de cooperación internacional de
-conformidad con los artículos 20 y 21 de la Convención, fomentar la
-cooperación técnica y canalizar los recursos para que se utilicen
-eficazmente.
+artículo 4, y otras Partes de la región podrán también, según
+corresponda, aplicar un proceso de consulta y coordinación en lo que
+respecta a los programas de acción nacionales, subregionales y conjuntos.
+En su caso, esas Partes podrán requerir la participación en ese proceso
+de otras Partes y de organizaciones intergubernamentales y no
+gubernamentales pertinentes. Entre otras cosas, esa coordinación estará
+encaminada a lograr acuerdo sobre las oportunidades de cooperación
+internacional de conformidad con los artículos 20 y 21 de la Convención,
+fomentar la cooperación técnica y canalizar los recursos para que se
+utilicen eficazmente.
 3.- Los países Partes afectados de la región celebrarán reuniones
 periódicas de coordinación cuya convocación podrá ser facilitada por la
 Secretaría Permanente, de conformidad con el artículo 23 del Convenio, si
@@ -769,13 +773,13 @@ de América Latina y el Caribe
 De conformidad con las disposiciones de la Convención, las Partes
 deberán tomar en consideración las siguientes características específicas
 de la región:
-a) la existencia de extensas áreas vulnerables, severamente afectadas
-por la desertificación y/o la sequía, en las que se observan
+a) la existencia de extensas áreas vulnerables, severamente
+afectadas por la desertificación y/o la sequía, en las que se observan
 características heterogéneas dependiendo del área en que se produzcan.
 Este proceso acumulativo y creciente repercute negativamente en los
 aspectos sociales, culturales, económicos y ambientales, y su gravedad se
-acentúa debido a que en la región se encuentra una de las mayores reservas
-mundiales de diversidad biológica;
+acentúa debido a que en la región se encuentra una de las mayores
+reservas mundiales de diversidad biológica;
 b) la frecuente aplicación en las zonas afectadas de modelos de
 desarrollo no sostenibles como resultado de la compleja interacción de
 factores físicos, biológicos, políticos, sociales, culturales y
@@ -783,26 +787,26 @@ económicos, incluidos algunos factores económicos internacionales como el
 endeudamiento externo, el deterioro de la relación de intercambio y las
 prácticas comerciales que distorsionan los mercados internacionales de
 productos agrícolas, pesqueros y forestales; y
-c) la severa reducción de la productividad de los ecosistemas, que es
-la principal consecuencia de la desertificación y la sequía y que se
+c) la severa reducción de la productividad de los ecosistemas, que
+es la principal consecuencia de la desertificación y la sequía y que se
 expresa en la disminución de los rendimientos agrícolas, pecuarios y
 forestales, así como en la pérdida de la diversidad biológica. Desde el
 punto de vista social, se generan procesos de empobrecimiento, migración,
 desplazamientos internos y deterioro de la calidad de vida de la
-población; por lo tanto, la región deberá enfrentar de manera integral los
-problemas de la desertificación y la sequía, promoviendo modelos de
+población; por lo tanto, la región deberá enfrentar de manera integral
+los problemas de la desertificación y la sequía, promoviendo modelos de
 desarrollo sostenibles, acordes con la realidad ambiental, económica y
 social de cada país.
 Artículo 3
 Programas de acción
 1.- De conformidad con la Convención, en particular los artículos 9
-a 11, y de acuerdo a su política de desarrollo nacional, los países Partes
-afectados de la región deberán, según corresponda, preparar y ejecutar
-programas de acción nacionales para combatir la desertificación y mitigar
-los efectos de la sequía, como parte integrante de sus políticas
-nacionales de desarrollo sostenible. Los programas subregionales y
-regionales podrán ser preparados y ejecutados en la medida de los
-requerimientos de la región.
+a 11, y de acuerdo a su política de desarrollo nacional, los países
+Partes afectados de la región deberán, según corresponda, preparar y
+ejecutar programas de acción nacionales para combatir la desertificación
+y mitigar los efectos de la sequía, como parte integrante de sus
+políticas nacionales de desarrollo sostenible. Los programas
+subregionales y regionales podrán ser preparados y ejecutados en la
+medida de los requerimientos de la región.
 2.- Al preparar sus programas de acción nacionales los países Partes
 afectados de la región prestarán especial atención a lo dispuesto en el
 inciso f) del párrafo 2 del artículo 10 de la Convención.
@@ -839,10 +843,11 @@ Biológica;
 k) aspectos demográficos interrelacionados con los procesos de
 desertificación y sequía; y
 l) establecimiento o fortalecimiento de marcos institucionales y
-jurídicos que permitan la aplicación de la Convención, contemplando, entre
-otros, la descentralización de las estructuras y funciones administrativas
-que guarden relación con la desertificación y la sequía, asegurando la
-participación de las comunidades afectadas y de la sociedad en general.
+jurídicos que permitan la aplicación de la Convención, contemplando,
+entre otros, la descentralización de las estructuras y funciones
+administrativas que guarden relación con la desertificación y la sequía,
+asegurando la participación de las comunidades afectadas y de la sociedad
+en general.
 Artículo 5
 Cooperación técnica, científica y tecnológica
 De conformidad con la Convención, en particular los artículos 16 a
@@ -867,8 +872,8 @@ De conformidad con la Convención, en particular los artículos 20 y
 21, y de acuerdo a su política de desarrollo nacional, en el marco del
 mecanismo de coordinación previsto en el artículo 7 de este anexo los
 países Partes afectados de la región, individual o conjuntamente:
-a) adoptarán medidas para racionalizar y fortalecer los mecanismos de
-provisión de fondos a través de la inversión pública y privada que
+a) adoptarán medidas para racionalizar y fortalecer los mecanismos
+de provisión de fondos a través de la inversión pública y privada que
 permitan alcanzar resultados concretos en la lucha contra la
 desertificación y en la mitigación de los efectos de la sequía;
 b) determinarán los requerimientos de cooperación internacional para
@@ -883,20 +888,19 @@ Partes afectados de la región:
 a) establecerán y/o fortalecerán puntos focales nacionales,
 encargados de la coordinación de las acciones relativas a la lucha contra
 la desertificación y/o la mitigación de los efectos de la sequía;
-b) establecerán un mecanismo de coordinación entre los puntos focales
-nacionales, con los siguientes objetivos:
+b) establecerán un mecanismo de coordinación entre los puntos
+focales nacionales, con los siguientes objetivos:
 i) intercambiar información y experiencias,
 ii) coordinar acciones a nivel subregional y regional,
-iii) promover la cooperación técnica, científica,
-tecnológica y financiera,
-iv) identificar los requerimientos de cooperación externa,
-y
-v) realizar el seguimiento y la evaluación de la ejecución
-de los programas de acción.
+iii) promover la cooperación técnica, científica, tecnológica y
+financiera,
+iv) identificar los requerimientos de cooperación externa, y
+v) realizar el seguimiento y la evaluación de la ejecución de los
+programas de acción.
 2.- Los países Partes afectados de la región celebrarán reuniones
 periódicas de coordinación cuya convocación podrá ser facilitada por la
-Secretaría Permanente, de conformidad con el artículo 23 de la Convención,
-si así se le solicita:
+Secretaría Permanente, de conformidad con el artículo 23 de la
+Convención, si así se le solicita:
 a) asesorando sobre la organización de arreglos eficaces de
 coordinación, basados en la experiencia adquirida con otros arreglos
 similares;
@@ -932,12 +936,12 @@ incendios de bosques;
 e) condiciones de crisis en la agricultura tradicional, con el
 consiguiente abandono de tierras y deterioro del suelo y de las
 estructuras de conservación del agua;
-f) explotación insostenible de los recursos hídricos, que es causa de
-graves daños ambientales, incluidos la contaminación química, la
+f) explotación insostenible de los recursos hídricos, que es causa
+de graves daños ambientales, incluidos la contaminación química, la
 salinización y el agotamiento de los acuíferos; y
-g) concentración de la actividad económica en las zonas costeras como
-resultado del crecimiento urbano, las actividades industriales, el turismo
-y la agricultura de regadío.
+g) concentración de la actividad económica en las zonas costeras
+como resultado del crecimiento urbano, las actividades industriales, el
+turismo y la agricultura de regadío.
 Artículo 3
 Marco de planificación estratégica
 del desarrollo sostenible
@@ -969,9 +973,9 @@ b) hará participar a las poblaciones afectadas, incluidas las
 comunidades locales, en la elaboración, coordinación y ejecución del
 programa mediante un proceso de consulta local, con la cooperación de las
 autoridades locales y las organizaciones no gubernamentales pertinentes;
-c) examinará el estado del medio ambiente en las zonas afectadas para
-evaluar las causas y consecuencias de la desertificación y determinar las
-zonas prioritarias de acción;
+c) examinará el estado del medio ambiente en las zonas afectadas
+para evaluar las causas y consecuencias de la desertificación y
+determinar las zonas prioritarias de acción;
 d) evaluará, con la participación de las poblaciones afectadas, los
 programas ya aplicados y en curso de ejecución a fin de establecer una
 estrategia y determinar las actividades del programa de acción;
@@ -985,9 +989,9 @@ Contenido de los programas de acción nacionales
 Los países Partes afectados de la región podrán incluir en sus
 programas de acción nacionales medidas relacionadas con:
 a) las esferas legislativas, institucional y administrativa;
-b) las modalidades de uso de la tierra, la ordenación de los recursos
-hídricos, la conservación del suelo, la silvicultura, las actividades
-agrícolas y la ordenación de pastizales y praderas;
+b) las modalidades de uso de la tierra, la ordenación de los
+recursos hídricos, la conservación del suelo, la silvicultura, las
+actividades agrícolas y la ordenación de pastizales y praderas;
 c) la ordenación y conservación de la fauna y flora silvestres y
 otras manifestaciones de la diversidad biológica;
 d) la protección contra los incendios forestales;
@@ -1006,8 +1010,8 @@ programa de acción conjunto.
 2.- Las disposiciones de los artículos 5 y 6 del presente anexo se
 aplicarán mutatis mutandis a la preparación y aplicación de programas de
 acción subregionales, regionales y conjuntos. Además, estos programas
-podrán incluir la realización de actividades de investigación y desarrollo
-relativas a determinados ecosistemas de las zonas afectadas.
+podrán incluir la realización de actividades de investigación y
+desarrollo relativas a determinados ecosistemas de las zonas afectadas.
 3.- Al elaborar y aplicar programas de acción subregionales,
 regionales o conjuntos, los países Partes afectados de la región
 procederán, según corresponda, a:
