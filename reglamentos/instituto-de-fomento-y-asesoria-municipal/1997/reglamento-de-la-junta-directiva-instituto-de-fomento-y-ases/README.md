@@ -15,3 +15,4 @@ Reglamento de la Junta Directiva Instituto de Fomento y Asesoría Municipal
 | --- | --- | --- |
 | 1 | 1997-09-25 | la propia norma |
 | 2 | 2002-11-27 | Reglamento 3238 (2002-11-27) |
+| 3 | 2003-03-03 | Reglamento 3264 (2003-03-03) |
