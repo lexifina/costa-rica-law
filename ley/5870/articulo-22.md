@@ -1,1 +1,0 @@
-Artículo 22.- Las disposiciones contenidas en la presente ley, no entrañan violación a lo que establece el Estatuto de Servicio Civil. El personal de la Dirección Nacional de Comunicaciones mantendrá todos los derechos adquiridos.

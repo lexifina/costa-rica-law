@@ -1,0 +1,12 @@
+ARTÍCULO 13.- Deber de los concesionarios
+Para cumplir fielmente con las disposiciones de esta ley y el
+servicio público, las personas físicas o jurídicas que exploten
+concesiones estatales en materia de transporte terrestre, marítimo,
+fluvial o aéreo, estarán obligadas a prestar el servicio requerido por
+Correos de Costa Rica a cambio de una tarifa que pactarán las partes, la
+cual, en ningún caso, podrá ser superior al cobro por servicios similares
+que los concesionarios acuerden con las entidades privadas que presten
+servicios de correos y afines.
+El desacato de esta disposición por parte de los mencionados
+concesionarios acarreará que se les suspenda la concesión, hasta que
+cumplan con lo determinado en el párrafo anterior.

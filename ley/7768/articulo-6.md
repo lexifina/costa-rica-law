@@ -1,0 +1,8 @@
+ARTÍCULO 6.- Servicio social postal
+Será obligación del Estado, prestar en todo el territorio nacional
+por medio de Correos de Costa Rica el servicio social de comunicación
+postal declarado servicio público, en virtud de esta ley y regulado por la
+Ley de la Autoridad Reguladora de los Servicios Públicos, No. 7593, de 9
+de agosto de 1996. Este servicio comprenderá, únicamente, las cartas
+clasificadas como correspondencia "LC" según el convenio de la Unión
+Postal Universal.

@@ -1,1 +1,0 @@
-Artículo 12.- Se autoriza a la Junta para abrir y mantener en cualquiera de los bancos del Sistema Bancario Nacional, las cuentas corrientes que considere necesarias, contra las cuales girarán conjuntamente dos de sus miembros designados por ella.

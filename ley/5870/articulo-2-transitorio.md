@@ -1,1 +1,0 @@
-Transitorio II.- La existencia de sellos postales en el Banco Central de Costa Rica a la fecha de vigencia de esta ley, emitidos o por emitir, se dispondrá ponerlos a la venta como sellos ordinarios, sin perjuicio de las emisiones autorizadas para fines específicos.
