@@ -1,0 +1,1 @@
+Artículo 7°-Lo dispuesto en los artículos 1° y 4° de esta ley modifica en lo pertinente a lo establecido por la Ley de Contribuciones para obras de interés público especial, N° 74 de 18 de diciembre de 1916, la cual sin embargo, se aplicará subsidiariamente en cuanto a lo que dichos artículos no contemplan.

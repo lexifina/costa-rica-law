@@ -1,0 +1,1 @@
+Artículo 2°-La contribución será fijada distribuyendo el costo total de la obra que se ha de emprender o emprenda, entre el número de propietarios beneficiados, proporcionalmente a la medida frontal de sus respectivos fundos.
