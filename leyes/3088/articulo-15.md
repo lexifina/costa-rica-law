@@ -1,0 +1,1 @@
+Artículo 15.- Para la atención de los gastos que demande la Dirección General de Artes y Letras, se incluirá cada año en la Ley de Presupuesto General Ordinario de la República, Capítulo del Ministerio de Educación Pública, una asignación no menor de ¢ 350,000.00.
