@@ -1,0 +1,1 @@
+Artículo 5º—Se autoriza al Consejo Nacional de Vialidad para que en calidad de apoyo al desarrollo del Proyecto, aporte servicios o destine recursos en favor de la Comisión Ejecutiva y la Unidad Coordinadora en la ejecución de este proyecto nacional de infraestructura vial.
