@@ -1,0 +1,6 @@
+Artículo 14
+Consultas y solución de diferencias
+14.1 Las consultas y la solución de diferencias con respecto a cualquier cuestión relativa al funcionamiento del presente Acuerdo se llevarán a cabo bajo los auspicios del Organo de Solución de Diferencias y se ajustarán mutatis mutandis a las disposiciones de los artículos XXII y XXIII del GATT de 1994, desarrolladas y aplicadas en virtud del Entendimiento sobre Solución de Diferencias.
+14.2 A petición de una parte en una diferencia, o por iniciativa propia, un grupo especial podrá establecer un grupo de expertos técnicos que preste asesoramiento en cuestiones de naturaleza técnica que exijan una detallada consideración por expertos.
+14.3 Los grupos de expertos técnicos se regirán por el procedimientos del Anexo 2.
+14.4 Todo Miembro podrá invocar las disposiciones de solución de diferencias previstas en los párrafos anteriores cuando considere insatisfactorios los resultados obtenidos por otro Miembro en aplicación de las disposiciones de los artículo 3, 4, 7, 8 y 9 y que sus intereses comerciales se ven significativamente afectados. A este respecto, dichos resultados tendrán que ser equivalentes a los previstos, como si la institución de que se trate fuese un Miembro.
