@@ -1,0 +1,1 @@
+Artículo 6º—El Alcalde Municipal debe incluir en el presupuesto anual ordinario, así como en los extraordinarios los recursos necesarios para dar cumplimiento al Programa de Becas Municipales tomando en cuenta la recomendación que la comisión de Educación emita, siempre y cuando haya contenido económico.

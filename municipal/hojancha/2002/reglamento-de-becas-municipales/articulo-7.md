@@ -1,0 +1,3 @@
+Artículo 7º—La Comisión de educación cada año asignará según el presupuesto municipal la cantidad de becas a cada distrito del cantón a fin de que sean los Concejos de Distritos quienes hagan entrega y recomendación de los beneficiarios según consta en el artículo 57, inciso a) del Código Municipal.
+Los Concejos de Distrito deben indicarle a los beneficiarios de las becas que deben llevar los formularios y los documentos correspondientes a la Secretaría Municipal a fin de abrir un expediente por Distrito para que la Comisión de Educación analice, apruebe o impruebe las becas.
+Cada formulario, para tener validez debe traer en la parte superior el sello del Consejo de Distrito correspondiente.

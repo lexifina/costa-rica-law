@@ -1,0 +1,1 @@
+Artículo 5º—La información que se de en la fórmula respectiva deberá ser fidedigna. Si se comprueba lo contrario automáticamente se desechará la solicitud, la Comisión de Educación está en plena autoridad para verificar la información cuando así lo considere.

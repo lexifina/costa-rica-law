@@ -1,0 +1,1 @@
+Artículo 14.—El estudiante que goce del beneficio de beca debe entregar a la Secretaría Municipal, trimestralmente, un reporte de calificaciones extendido por la Secretaría del Colegio Técnico Profesional de Hojancha.

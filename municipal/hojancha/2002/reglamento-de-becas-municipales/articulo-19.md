@@ -1,0 +1,1 @@
+Artículo 19.—La Tesorería Municipal girará en los tres primeros días hábiles de cada mes el listado de becados y el monto general correspondiente por concepto de pago de becas municipales al Banco Nacional de Costa Rica para que dicha entidad bancaria depositen en la cuenta de ahorros correspondiente a cada becado el monto asignado a cada uno.

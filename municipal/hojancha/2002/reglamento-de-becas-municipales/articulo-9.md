@@ -1,0 +1,1 @@
+Artículo 9º—Las solicitudes de beca se entregan en la Secretaría Municipal y esta las hará llegar a la Comisión de Educación , la cual hará el análisis correspondiente de cada caso y entregará los respectivos formularios a la Secretaría Municipal donde serán retirados por los interesados.

@@ -1,0 +1,1 @@
+Artículo 25.—La Comisión de Educación, con la aprobación del Concejo Municipal , suspenderá por tres años el derecho al beneficio de una beca municipal a todos aquellos estudiantes que incurran en la falsificación de alguna documentación o de la nota que se debe presentar a dicha comisión como comprobante de su rendimiento académico.

@@ -1,0 +1,1 @@
+Transitorio único.—Se tomará en cuenta a aquellos alumnos que siendo de otros lugares asisten al Colegio Técnico Profesional de Hojancha que cumplan con los requisitos establecidos en el presente reglamento y que no gocen de ningún otro tipo de beca.
