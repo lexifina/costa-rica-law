@@ -1,0 +1,1 @@
+Artículo 2°. -La Conferencia, una vez recibidos los bonos, y cuando el Colegio Pase a ser de su propiedad, se compromete a otorgar matrícula gratuita a los estudiantes para los que el Colegio tenga capacidad, y a seguir en los cursos que imparta, los programas aprobados por el Consejo Superior de Educación. Es entendido que la gratuidad se refiere a estudio únicamente.

@@ -1,0 +1,1 @@
+Artículo 4°. – También la Conferencia Episcopal de Costa Rica se compromete a facilitar, de los terrenos que con estos que con estos bonos adquiera, el espacio necesario para los experimentos agrícolas y ganaderos que el Ministerio de Agricultura considere de interés.

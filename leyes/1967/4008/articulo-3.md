@@ -1,0 +1,2 @@
+Artículo 3°. – Los bonos que esta ley autoriza a emitir al Poder Ejecutivo tendrán un plazo de 20 años y devengarán un interés del 8% anual. Los cupones de intereses se pagarán trimestralmente cada año el día 1° de los meses de marzo, junio, setiembre y diciembre de cada año.
+El Gobierno de la República se reserva el derecho de cance3lar en cualquier momento, antes del plazo de su expiración, dichos bonos.
