@@ -14,3 +14,4 @@ Parque Nacional La Cangreja
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-03-31 | la propia norma |
+| 2 | 2002-06-05 | Decreto Ejecutivo 30479 (2002-06-05) |
