@@ -1,0 +1,1 @@
+Art. 2. Al efecto, tanto el Fiscal como los Receptores deberán pasar el 1° y 15 de cada mes a las oficinas de los Jueces de 1a Instancia à examinar las tasaciones, comparándolas con los expedientes para visarlas legalmente.

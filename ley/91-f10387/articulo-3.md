@@ -1,0 +1,1 @@
+Art. 3. El Fiscal y los Receptores deberán cada uno llevar un libro en papel comun para tomar razon de las tasaciones que visaren, con expresión de la suma à que cada una asciende. Dichos libros por fin de año seràn pasados al tribunal de cuentas.
