@@ -1,0 +1,1 @@
+Artículo 5°-Venta de formularios. El formulario descrito en el Anexo 1 de esta resolución será vendido a un precio de ¢ 90,00, (noventa colones exactos) y podrá ser adquirido en los lugares autorizados.

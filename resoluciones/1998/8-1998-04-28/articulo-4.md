@@ -1,0 +1,1 @@
+Artículo 4°-Formato y vigencia del formulario. Apruébase el Anexo I (Modelo D.I13), que corresponde al formato del formulario autorizado por la Dirección General de la Tributación Directa, así como su fecha de vigencia.

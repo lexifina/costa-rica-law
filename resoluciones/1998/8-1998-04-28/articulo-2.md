@@ -1,0 +1,7 @@
+Artículo 2°-Características de los formularios. El formulario para el cumplimiento de las obligaciones tributarias se conforma de tres partes básicas: la cabecera, el cuerpo del documento y el pie.
+La cabecera y el pie incluyen los datos generales de identificación. La casilla 1 para todos los formularios será un número de control asignado, el cual permitirá identificar el origen de cada documento.
+El cuerpo del documento comprende aquellas secciones en las cuales aparece la información necesaria para el cumplimiento de la obligación tributaria.
+El juego completo de formularios se compone de tres ejemplares, un documento original y dos copias. El destino de cada documento es el siguiente:
+Original: Administración
+Primera copia: Contribuyente
+Segunda copia: Banco

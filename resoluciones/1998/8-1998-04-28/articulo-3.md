@@ -1,0 +1,6 @@
+Artículo 3°-Instrucciones generales para completar los formularios. Todos los formularios deben completarse en español de acuerdo con la información solicitada en cada uno de ellos. Los montos se indicarán en colones y no deben incluirse decimales. A tal efecto se utilizarán las siguientes reglas para redondear los decimales:
+a) menor que ¢ 0.50 se redondea a la unidad inferior
+b) mayor o igual que ¢ O. 50 se redondea a la unidad superior.
+La información se incluirá ya sea en forma manual con letra imprenta o por cualquier otro medio mecánico o electrónico siempre que se asegure la legibilidad de la información.
+Todas las casillas deberán llenarse excepto aquellas que estén sombreadas y las que estén destinadas para uso exclusivo de la oficina. La información se completará de acuerdo con las especificaciones señaladas en el Instructivo General para completar cada formulario, que elaborará la Dirección General de la Tributación Directa.
+Los formularios no deben contener tachaduras, borrones, raspaduras, ni cualquier otro tipo de alteración o daño. Para que tengan plena validez legal ante la Dirección General de Tributación Directa, deben contener el nombre y la firma del sujeto pasivo o su representante legal en el pie del formulario.
