@@ -1,0 +1,1 @@
+III. Las modificaciones a las cuales se refieren los numerales I y II anteriores entrarán en vigencia a partir del 12 de noviembre del 2001. Para la aplicación del sistema de tasas indicado en el punto I anterior, deberán transcurrir quince días naturales a partir de la fecha señalada.
