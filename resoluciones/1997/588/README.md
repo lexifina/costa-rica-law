@@ -14,3 +14,4 @@ SETENA: Manual Instrumentos Técnicos de Evaluación Impacto Ambiental
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-11-07 | la propia norma |
+| 2 | 1999-10-12 | Decreto Ejecutivo 28174 (1999-10-12) |
