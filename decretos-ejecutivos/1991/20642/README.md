@@ -14,3 +14,4 @@ Lineamientos Generales de Política Presupuestaria para 1992
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-09-05 | la propia norma |
+| 2 | 1992-01-23 | Decreto Ejecutivo 21032 (1992-01-23) |
