@@ -1,0 +1,4 @@
+Artículo 33.- Cuando se hubieren agotado las hojas de un protocolo, el Notario extenderá al pie de la última escritura razón del número de escrituras que contiene y su estado. Deberá afirmar en esta razón, bajo su responsabilidad, que todas las escrituras se encuentran debidamente firmadas por él, por el colega autorizante en casos de actuaciones ante dos notarios y por las partes y testigos, según lo expresado al final del artículo 31.
+Puesta la razón referida, el Notario entregará el protocolo al Director de los Archivos Nacionales si estuviere domiciliado en la provincia de San José, o al Juez Civil de su jurisdicción si su domicilio estuviere en otra provincia.
+Efectuada la entrega, el Director o el Juez, en su caso, dará al Notario un recibo o constancia con los requisitos necesarios para que pueda obtener nuevo protocolo.
+Para los efectos de este artículo el Notario dejará después de la última escritura espacio suficiente en blanco.

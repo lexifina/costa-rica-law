@@ -1,0 +1,1 @@
+Artículo 45.- Cuando el pase de los protocolos deba verificarse por muerte o inhabilitación del Notario, su heredero, albacea o encargado de administrar sus bienes deberá sin pérdida de tiempo depositar el protocolo en el Juez o en el Director de los Archivos, según corresponda.

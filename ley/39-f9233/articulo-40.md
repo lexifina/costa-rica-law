@@ -1,0 +1,2 @@
+Artículo 40.- Los Jueces Civiles, con excepción de los de la provincia de San José, conservarán en los archivos de sus Juzgados, por dos años, los protocolos concluidos de los notarios de su jurisdicción. Pasado ese término, los enviarán al Director de los Archivos Nacionales para su custodia definitiva. Por ningún motivo permitirán los Jueces ni el Director de los Archivos que salgan de sus respectivas oficinas los protocolos que tengan en custodia.
+A los protocolos no concluidos que llegaren a los Juzgados se les aplicará la misma regla.

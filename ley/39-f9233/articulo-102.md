@@ -1,0 +1,1 @@
+Artículo 102.- El Notario podrá no cobrar honorarios, haciéndolo constar así en la escritura; pero si no se ajustare al cobrarlos a la tarifa establecida por esta ley, será suspendido en cada caso hasta por el término de un mes por la Corte Plena, de cuya resolución no cabrá recurso alguno.

@@ -1,0 +1,1 @@
+Artículo 46.- La Corte, los Jueces y Alcaldes, están obligados a hacer las gestiones y tomar las providencias conducentes a que los protocolos, en caso de muerte, ausencia o incapacidad de los notarios a quienes pertenezcan, pasen a la oficina correspondiente con arreglo a la ley.

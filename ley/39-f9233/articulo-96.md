@@ -1,0 +1,1 @@
+Artículo 96.- Si se tratare de escrituras de sociedades o asociaciones o de actos o contratos complicados se cobrará, fuera de los honorarios del trabajo de notariado, los de abogacía por la redacción de la escritura.

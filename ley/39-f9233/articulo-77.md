@@ -1,0 +1,1 @@
+Artículo 77.- No es necesario que todos los requisitos y constancias de una escritura matriz se consignen en el mismo orden en que se detallan en el artículo anterior; pero las constancias y requisitos a que se refieren los últimos cinco incisos del artículo anterior deben ir siempre al pie de la escritura.

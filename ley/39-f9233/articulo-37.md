@@ -1,0 +1,1 @@
+Artículo 37.- La Corte Plena y su Presidente podrán, en cualquier momento que lo estimen necesario, encomendar a un funcionario judicial el examen del protocolo o determinada escritura, así como encargarle el levantamiento de informaciones contra los notarios.
