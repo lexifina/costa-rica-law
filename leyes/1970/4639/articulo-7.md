@@ -1,1 +1,0 @@
-Artículo 7º.- El Poder Ejecutivo dictará los reglamentos por los cuales se regirá la organización, distribución y atribuciones del personal y de las dependencias de la Guardia de Asistencia Rural, así como los que sean necesarios para el mejor desenvolvimiento de sus funciones.

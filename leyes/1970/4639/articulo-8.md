@@ -1,1 +1,0 @@
-Artículo 8º.- Todo el personal de la Guardia de Asistencia Rural, para los efectos de inamovilidad, queda amparado a los beneficios del Estatuto de Servicio Civil, a excepción del Director General y de los dos Subdirectores Generales que serán de libre elección y remoción del Poder Ejecutivo.

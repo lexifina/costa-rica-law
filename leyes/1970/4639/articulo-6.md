@@ -1,1 +1,0 @@
-Artículo 6º.- El Cuerpo de la Guardia de Asistencia Rural estará organizado a base de una Dirección General, de dos Subdirecciones Generales y de las dependencias que requiera para el ejercicio de sus funciones.

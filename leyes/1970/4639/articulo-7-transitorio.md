@@ -1,1 +1,0 @@
-Transitorio VII.- Mientras no se cree, un cuerpo especial dedicado a la vigilancia de la hacienda pública en las zonas urbanas del país, la Guardia de Asistencia Rural tendrá jurisdicción sobre tales zonas, con las mismas atribuciones que le confiere la ley en las zonas rurales.

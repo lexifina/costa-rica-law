@@ -1,1 +1,0 @@
-Artículo 23.- En el presupuesto ordinario de la República se incluirán las partidas necesarias para cubrir todas las necesidades de la Guardia de Asistencia Rural, dentro del capítulo de gastos correspondientes al Ministerio de Gobernación.

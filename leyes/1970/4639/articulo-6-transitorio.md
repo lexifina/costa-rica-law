@@ -1,1 +1,0 @@
-Transitorio VI.- Mientras la Corte Suprema de Justicia no designe los Agentes Judiciales en los cantones y distritos del país, los jefes de zona de la Guardia de Asistencia Rural, asignados a los distritos y cantones, seguirán conociendo de las faltas y contravenciones a que se refiere el artículo 93 de la Ley Orgánica del Poder Judicial.
