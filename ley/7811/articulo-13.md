@@ -1,0 +1,2 @@
+Artículo 13.- Revisión y recalificación
+Toda declaración quedará sujeta a revisión por los medios dispuestos en la ley. Si se comprueba que los datos suministrados son incorrectos, por cuya circunstancia se determina una variación en el tributo, se procederá a la recalificación correspondiente. Asimismo, la declaración jurada que deben presentar los patentados ante la Municipalidad, quedará sujeta a las disposiciones especiales del título III del Código de Normas y Procedimientos Tributarios y del artículo 309 del Código Penal, según corresponda.
