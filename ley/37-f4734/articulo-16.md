@@ -1,1 +1,0 @@
-Artículo 16°.-En caso de muerte del adquirente, el cónyuge sobreviviente no podrá ser obligado por los coherederos a la división o venta de la propiedad. Si ambos cónyuges fallecieran, los hijos no podrán dividirse la propiedad ni su precio, mientras haya menores de edad.

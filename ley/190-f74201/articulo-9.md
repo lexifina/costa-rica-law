@@ -1,1 +1,0 @@
-Articulo 9°-Las casas se venderán a las personas enumeradas en los artículos primero y octavo, mediante amortizaciones mensuales que fijara la Junta Directiva. En ningún caso podrán ser menores de quince ni mayores de treinta colones por mes. .

@@ -1,1 +1,0 @@
-Artículo 25-La falta de pago del impuesto de timbre será penada con multa de cien colones la primera vez, y en las subsiguientes infracciones, la pena será de cien días de arresto. El importe de las multas entrará al fondo de las "Casas Baratas La Familia."

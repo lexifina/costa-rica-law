@@ -1,1 +1,0 @@
-Artículo 19.-Las tres cuartas partes del impuesto de timbre a que se refiere el articulo 18, corresponde a la Cooperativa "Casas Baratas La Familia", y una cuarta parte a la Junta Nacional de la Habitación.
