@@ -1,6 +1,6 @@
-Artículo 67.- Al crearse el puesto o al producirse una vacante, el
-Departamento de Personal lo hará saber por medio de un aviso que se
-publicará tres veces consecutivas en el "Boletín Judicial", a fin de que
-los interesados en el nombramiento presenten la respectiva solicitud
-dentro de ocho días naturales que se contarán a partir de la primera
-publicación del aviso.
+Artículo 67.- Podrán ingresar a la carrera judicial todos los
+abogados del país autorizados para el ejercicio de su profesión, que
+reúnan los requisitos exigidos para desempeñar el puesto que se
+interesen y que hayan aprobado los respectivos concursos.
+(Así reformado por el artículo 1º de la Ley Nº 7338 de 5 de mayo de
+1993).
