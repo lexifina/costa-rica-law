@@ -1,0 +1,8 @@
+Artículo VIII
+Si con motivo de las obras de canalización sufrieren daños o perjuicios, ya sea por inundaciones o por otros conceptos, terrenos o propiedades pertenecientes a particulares en territorio costarricense, legalmente titulados con anterioridad a la firma de esta Convención, la República de Nicaragua tendrá que indemnizar a sus propietarios esos daños o perjuicios, para lo cual serán avaluados y ajustados por una Comisión Mixta nombrada por los Gobiernos de Costa Rica y Nicaragua, cuyas decisiones con respecto a esos daños o perjuicios serán definitivas.
+La Comisión Mixta será constituida de la siguiente manera:
+El Presidente de Costa Rica nombrará dos personas y el Presidente de Nicaragua nombrará dos personas, quienes procederán a dictar su fallo. Para el caso de discordia de la Comisión, por estar igualmente dividida en sus conclusiones, se nombrará por los dos Presidentes un Dirimente, quien dictará el fallo.
+La designación del Dirimente deberá hacerse en un ciudadano de cualquiera de las otras tres Repúblicas de Centro América.
+En caso de muerte, ausencia o incapacidad de un miembro de la Comisión o del Dirimente, o en caso de omisión, excusa o cesación en el desempeño de sus funciones, se procederá a sustituirlo inmediatamente en la forma antes indicada. Los fallos dictados por la mayoría de la Comisión o por el Dirimente serán definitivos.
+Los avalúos de terrenos o propiedades particulares y de los daños o perjuicios causados a éstas, tendrán por base el valor que tenían los bienes antes de la firma de la presente Convención.
+Mientras estén pendientes los procedimientos en averiguación y determinación de las indemnizaciones, no podrán impedirse, demorarse o estorbarse las obras de canalización.
