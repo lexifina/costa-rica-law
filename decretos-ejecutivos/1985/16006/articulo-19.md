@@ -1,0 +1,1 @@
+ARTÍCULO 19.-La Comisión elaborará y someterá a aprobación del Ministerio su reglamento de funcionamiento, así como las normas y procedimientos que se requieren para regular la administración de becas y facilidades de capacitación, como complemento de las que en este Reglamento se establecen.

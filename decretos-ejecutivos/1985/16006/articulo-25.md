@@ -1,0 +1,1 @@
+ARTÍCULO 25.-En caso de capacitación financiada por proyectos y programas especiales, con fondos tanto internos como externos, deberá también ser de conocimiento de la Comisión. En estos casos los candidatos seleccionados por la Comisión serán presentados a través del Ministro al organismo correspondiente, para que este designe al o los candidatos.

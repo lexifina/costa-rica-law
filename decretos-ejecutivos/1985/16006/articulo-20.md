@@ -1,0 +1,1 @@
+ARTÍCULO 20.-Las becas y otras facilidades de capacitación se concederán combase en los méritos de los funcionarios, y previo concurso de oposición en que se evaluar la formación académica, la experiencia laboral, la calificación de servicios, y cualesquiera otros elementos que se estimen importantes a juicio de la Comisión.

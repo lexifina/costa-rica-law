@@ -1,0 +1,1 @@
+ARTÍCULO 14.-La capacitación deber orientarse en un sentido eminentemente práctico y de manera que esté‚ estrechamente relacionada con las situaciones que el participante va a encontrarse en el trabajo.

@@ -1,0 +1,1 @@
+ARTÍCULO 16.-El Departamento de Capacitación elaborará y someterá a conocimiento de los superiores jerárquicos el programa anual de adiestramiento del Ministerio. Dicho programa lo preparará con la información que a su solicitud remitirán los coordinadores, con la asesoría del Departamento de Adiestramiento de Personal de la Dirección General de Servicio Civil.

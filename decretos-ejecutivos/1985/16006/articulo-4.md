@@ -1,0 +1,1 @@
+ARTÍCULO 4°.-El Departamento de Capacitación dependerá de la Dirección General Administrativa, tendrá la organización que se estime conveniente para el cabal desempeño de sus funciones y actuará con sujeción a las disposiciones que sobre la materia dicte la Dirección General de Servicio Civil.

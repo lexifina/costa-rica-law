@@ -1,0 +1,1 @@
+ARTÍCULO 33.-Los funcionarios que reciban una beca o facilidad de capacitación, estarán obligados a impartir diestramiento relacionado con su aprendizaje a solicitud del Departamento de Capacitación, o de la Dirección General de Servicio Civil.

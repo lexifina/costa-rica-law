@@ -1,0 +1,2 @@
+ARTÍCULO 35.-El Ministerio podrá suspender las facilidades de adiestramiento si estima que existen razones, para considerar al beneficiario indigno de las ventajas concedidas. Se tendrá por causales suficientes la falta de idoneidad, la indisciplina o la negligencia manifiesta.
+Salvo la causal de falta de idoneidad para el estudio, la suspensión y rescisión del contrato por culpa del beneficiario, se considera como una infracción grave al Reglamento Interno de Trabajo y al Estatuto de Servicio Civil, y por tanto causal de despido.

@@ -1,0 +1,1 @@
+ARTÍCULO 32.-El Ministerio solo conceder, para el disfrute de la beca, o facilidad de capacitación, permiso por un tiempo igual al indicado en el documento de ofrecimiento de la beca. Si por razones de interés del Ministerio se requiere prorrogar dicho tiempo, la Comisión estudiar el caso y proceder a decidir lo que estime conveniente.

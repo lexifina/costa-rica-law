@@ -1,0 +1,1 @@
+ARTÍCULO 34.-El beneficiario se compromete a dedicar toda su capacidad intelectual y física, al estudio y dominio a que se refiere la beca y asume la obligación de regresar al país una vez vencido el período de estudio y prestar sus servicios a la institución por un tiempo no menor a tres veces el tiempo de la duración de la beca.

@@ -1,0 +1,1 @@
+ARTÍCULO 28.-Si el funcionario escogido no puede disfrutar de la beca, deberá comunicarlo a la Comisión a más tardar el día siguiente, a partir del momento en que tuvo conocimiento del impedimento. El incumplimiento de lo anterior constituir falta grave, y se sancionar de conformidad con lo que disponga el Reglamento Interno de Trabajo.

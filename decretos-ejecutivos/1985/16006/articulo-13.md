@@ -1,0 +1,1 @@
+ARTÍCULO 13.-Una vez aprobado el programa, los instructores no podrán variarlo sustancialmente sin la aprobación del Departamento, y previa justificación escrita que se hará del conocimiento del Departamento de Adiestramiento de Personal, de la Dirección General de Servicio Civil.

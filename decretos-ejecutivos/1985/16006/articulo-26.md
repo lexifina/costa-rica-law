@@ -1,0 +1,1 @@
+ARTÍCULO 26.-Concluido el trámite de recepción de solicitudes, la Comisión procederá de inmediato a calificar a los aspirantes y emitir la resolución, la cual determinará los candidatos y su orden correspondiente. Dicha resolución ser sometida a consideración del Ministro a efecto de que decida lo que proceda.
