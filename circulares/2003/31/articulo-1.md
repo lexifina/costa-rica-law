@@ -1,0 +1,10 @@
+CIRCULAR N° 31-2003
+(NOTA: Esta circular fue reiterada y publicada en el Boletín Judicial N° 11 del 16 de enero del 2007).
+ASUNTO: Sobre la aplicación de las deducciones de ley y voluntarias, embargos y pensiones alimentarías en los salarios de los servidores del Poder Judicial.
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS SE LES HACE SABER:
+El Consejo Superior, en sesión N° 27-03, celebrada el 22 de abril de 2003, artículo XV, dispuso comunicarles que en adelante se darán los siguientes cambios en el sistema de pago del Poder Judicial:
+1) Hasta la fecha el modelo de administración salarial que ha utilizado el Poder Judicial se ha sustentado en a centralización de actividades para el pago, deducciones de ley y voluntarias, embargos y pensiones alimentarías por medio del Ministerio de Hacienda, a través de la Dirección General de Informática (DGI) y la Tesorería Nacional, sin embargo, por el cambio en el modelo de administración salarial, las actividades de deducciones y la aplicación de embargos y pensiones alimentarías sobre los salarios de los servidores judiciales serán tramitadas por el Departamento de Personal.
+2) Los despachos judiciales enviarán a la Unidad de Deducciones del Departamento de Personal para su trámite, los documentos correspondientes a la aplicación de deducciones por concepto de embargos y pensiones alimentarias, sobre los salarios de los servidores judiciales, pero esa disposición entrará a regir una vez que ese Departamento a través de un comunicado oficial, informe que se puede proceder conforme, entre tanto, deben tramitarse a través de los canales usuales, es decir, las instancias del Ministerio de Hacienda (DGI y Tesorería Nacional).
+3) Las pensiones alimentarías que recaigan sobre jubilados y pensionados del Fondo de Jubilaciones y Pensiones del Poder Judicial, por el momento se tramitarán por los medios usuales.
+4) Los formularios a utilizar para los trámites de embargo y pensiones alimentarías podrán ser solicitados al Departamento de Personal.
+San José, 13 de mayo de 2003.
