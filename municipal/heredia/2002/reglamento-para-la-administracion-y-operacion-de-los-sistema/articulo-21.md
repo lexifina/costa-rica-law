@@ -1,0 +1,1 @@
+Artículo 21.—Las tarifas a pagar por el marchamo mensual de estacionamiento en la zona céntrica y en la zona no céntrica, tendrá un costo de ¢5.000,00 (cinco mil colones), el cual aumentará una vez al año y su valor dependerá del costo de las boletas de estacionamiento.

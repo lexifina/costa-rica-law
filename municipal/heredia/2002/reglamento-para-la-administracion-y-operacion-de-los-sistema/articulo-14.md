@@ -1,0 +1,1 @@
+Artículo 14.—La Municipalidad de Heredia por medio de Inspectores, cuidará de que se cumpla con el pago de la tasa establecida en este Reglamento y reportará los vehículos que infrinjan la Ley, y en caso necesario el Jefe de la Sección pasará el asunto a la Agencia de Tránsito respectiva.

@@ -1,0 +1,1 @@
+Artículo 8º—La Fijación del tiempo de aparcamiento se hará por medio de boletas de estacionamiento, estableciendo distintos colores según se trate de boletas con validez para estacionar durante media hora, una hora y tres horas.

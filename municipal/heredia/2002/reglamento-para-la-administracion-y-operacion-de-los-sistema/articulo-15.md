@@ -1,0 +1,1 @@
+Artículo 15.—Para el mejor cumplimiento de esta Ley, la Municipalidad y la Dirección General del Tránsito, tomarán las medidas pertinentes en estrecha y efectiva colaboración y sus delegados estarán investidos de autoridad para las actuaciones oficiales a ese respecto.

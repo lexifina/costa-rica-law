@@ -1,0 +1,1 @@
+Artículo 20.—Dichos marchamos serán adjudicados por el plazo de un mes. Los vehículos que posean el marchamo, podrán estacionarse en cualquier zona de estacionamiento municipal dentro del casco central de Heredia.

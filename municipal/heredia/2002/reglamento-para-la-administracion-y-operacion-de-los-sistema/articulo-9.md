@@ -1,0 +1,1 @@
+Artículo 9º—Las boletas de estacionamiento deberán colocarse en la parte interior de la ventana que da a la acera exhibiéndose de una manera bien visible desde el exterior o bien en el parabrisas delantero, indicando además en las boletas mediante lapicero el mes, el día, la hora, los minutos de llegada al lugar de estacionamiento y la placa del vehículo.

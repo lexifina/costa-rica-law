@@ -1,0 +1,1 @@
+Artículo 13.—Para efectos de estacionar un vehículo, los conductores deben cumplir con los incisos b), d), f) y g) del artículo 95 de la Ley de Tránsito Nº 7331, publicada en La Gaceta del 13 de abril de 1993, de no ser así, el Inspector podrá realizar el parte respectivo.
