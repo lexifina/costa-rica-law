@@ -15,3 +15,4 @@ Reglamento Autónomo de Trabajo y Ministerio de Recursos Naturales, Energía y M
 | --- | --- | --- |
 | 1 | 1988-11-18 | la propia norma |
 | 2 | 1993-11-23 | Decreto Ejecutivo 22700 (1993-11-23) |
+| 3 | 1995-09-28 | Decreto Ejecutivo 24694 (1995-09-28) |
