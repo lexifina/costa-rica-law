@@ -1,0 +1,3 @@
+Artículo VII
+El pedimento para la entrega de los prófugos se hará por los respectivos Agentes Diplomáticos de las Partes Contratantes y, en su defecto/por los Agentes . Consulares.
+En casos urgentes, se podrá solicitar la detención provisional del inculpado por medio de comunicación telegráfica o postal, dirigida al Ministerio de Relaciones Exteriores, o por medio del respectivo Agente Diplomático, o del Cónsul, en su defecto. El arresto provisional se verificará según las reglas establecidas por las leyes del país requerido; pero cesará, si en el término de un mes, contado desde que se verifico, no se formalizare la reclamación.

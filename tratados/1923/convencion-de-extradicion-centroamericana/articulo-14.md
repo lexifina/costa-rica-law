@@ -1,0 +1,2 @@
+Artículo XIV
+En los casos en que sea necesaria la comprobación, de los hechos alegados, se abrirá el incidente a pruebas, observándose en sus términos las prescripciones de la ley procesal de la República requerida. Producida la prueba, el incidente será resuelto sin más trámite, en el término de diez días, declarando si hay lugar o no a la extradición. Contra dicha providencia se darán, dentro de los tres días siguientes a su notificación, los recursos legales del país del asilo.

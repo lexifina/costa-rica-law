@@ -1,0 +1,2 @@
+Artículo XII
+Todos los objetos encontrados en poder del acusado y obtenidos por medio de la comisión del acto de que se le acusa, o que puedan servir de prueba del delito por el cual se pide su extradición, serán secuestrados y entregados con su persona, mediante orden de la autoridad competente del país requerido. Sin embargo, se respetarán los derechos de tercero respecto de estos objetos y no se hará su entrega mientras no se haya resuelto la cuestión de propiedad.
