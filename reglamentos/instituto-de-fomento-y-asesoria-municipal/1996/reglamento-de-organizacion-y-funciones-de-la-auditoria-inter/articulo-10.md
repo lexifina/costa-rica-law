@@ -1,0 +1,1 @@
+Artículo 10.—La Auditoría Interna deberá disponer, mantener actualizado y en uso un manual de procedimientos de auditoría, que contendrá los procedimientos físicos aplicables en cada intervención, objetivos, normas para elaborar informes y otros aspectos.
