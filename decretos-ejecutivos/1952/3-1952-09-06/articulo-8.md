@@ -1,3 +1,2 @@
-Artículo 8°-Para la presentación de Cartas Credenciales de Enviados Extraordinarios y Ministros Plenipotenciarios, se observarán las mismas formalidades que para los Embajadores, con las siguientes variaciones:
-1) El Ministro no pronunciará discurso de salutación; y
-2) El señor Presidente estará acompañado Únicamente por el Ministro de Relaciones Exteriores, el Secretario de la Presidencia y el Subsecretario de Relaciones Exteriores u Oficial Mayor de la Cartera.
+Artículo 8°--En la presentación de Cartas Credenciales de Enviados Extraordinarios y Ministros Plenipotenciarios, se observarán las mismas formalidades que para los Embajadores, con la excepción de que no habrá intercambio de discursos.
+(Así reformado por el artículo 2° del Decreto Ejecutivo N° 3 de 13 de marzo de 1959).
