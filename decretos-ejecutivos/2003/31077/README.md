@@ -14,3 +14,4 @@ Regulaciones para la caza menor y mayor y pesca continental e insular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-01 | la propia norma |
+| 2 | 2003-06-10 | Decreto Ejecutivo 31238 (2003-06-10) |
