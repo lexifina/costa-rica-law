@@ -15,3 +15,4 @@ Arancel de Servicios Profesionales de Consultoría para Edificaciones
 | --- | --- | --- |
 | 1 | 1988-11-25 | la propia norma |
 | 2 | 1995-09-07 | Reglamento 40 (1995-09-07) |
+| 3 | 2003-05-15 | Acuerdo 7 (2003-05-15) |
