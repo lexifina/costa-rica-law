@@ -14,3 +14,4 @@ Crea Comisión de carácter Permanente para la Organización de Exposiciones Gan
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-06-17 | la propia norma |
+| 2 | 1973-01-05 | Decreto Ejecutivo 2755 (1973-01-05) |
