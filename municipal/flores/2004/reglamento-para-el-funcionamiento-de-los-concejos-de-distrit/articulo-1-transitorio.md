@@ -1,0 +1,2 @@
+Transitorio uno.—Los Concejos de Distrito del Cantón de Flores que a la fecha de vigencia de este reglamento, no han elegido de su seno la conformación, podrán elegirla por el resto del primer período de su elección. Transcurrido este período se procederá conforme al artículo 10 del presente reglamento.
+El Concejo Municipal de Flores, mediante acuerdo VI, de la sesión ordinaria Nº 118 del 13 de enero del 2004, aprobó el Reglamento de Funcionamiento de Concejos de Distrito del Cantón de Flores. Acuerdo ratificado en sesión ordinaria Nº 120 del 20 de enero del 2004.

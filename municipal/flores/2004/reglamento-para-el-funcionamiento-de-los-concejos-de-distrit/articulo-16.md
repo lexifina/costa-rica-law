@@ -1,0 +1,1 @@
+Artículo 16.—El miembro ausente que asuma la propiedad al haber transcurrido el tiempo estipulado en el artículo anterior, no podrá ser reemplazado por el miembro Propietario que llegare después de los quince minutos a partir de la hora señalada.

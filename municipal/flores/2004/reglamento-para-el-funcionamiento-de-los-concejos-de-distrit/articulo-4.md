@@ -1,0 +1,1 @@
+Artículo 4º—Los Concejos de Distrito de Flores quedan autorizados para celebrar reuniones con los vecinos de su circunscripción con el fin de considerar problemas comunes y promover posibles soluciones.

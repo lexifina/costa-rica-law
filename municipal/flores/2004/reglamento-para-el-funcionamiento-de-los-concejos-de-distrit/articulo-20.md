@@ -1,0 +1,1 @@
+Artículo 20.—Los acuerdos y resoluciones del Concejo de Distrito serán ejecutados por su Presidente o el miembro que este órgano designe. Quedarán en firme aquellos acuerdos cuando expresamente los aprueben las dos terceras partes de la totalidad de los miembros.

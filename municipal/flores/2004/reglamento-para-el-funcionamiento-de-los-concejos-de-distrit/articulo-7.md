@@ -1,0 +1,1 @@
+Artículo 7º—El Concejo Municipal de Flores creará una Comisión de Concejos de Distrito, que funcionará como órgano de coordinación, integrada en la forma y términos que establece el Código Municipal, para atender en forma exclusiva los asuntos que les remitan los Concejos de Distrito.

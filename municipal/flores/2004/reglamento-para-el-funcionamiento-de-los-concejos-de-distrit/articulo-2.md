@@ -1,0 +1,1 @@
+Artículo 2º—Los Concejos de Distrito del Cantón de Flores están integrados por cinco miembros vecinos del distrito denominados concejales. Uno será necesariamente el (la) Síndico (a) de la circunscripción de que se trate.

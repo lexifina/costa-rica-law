@@ -1,0 +1,1 @@
+Artículo 17.—Las sesiones del Concejo se desarrollarán conforme al orden del día previamente elaborada por el Presidente, el cual podrá alterarse mediante acuerdo aprobado por dos terceras partes de los miembros presentes.

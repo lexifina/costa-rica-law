@@ -1,0 +1,1 @@
+Artículo 10.—De su seno, cada Concejo de Distrito de Flores elegirá mediante votación secreta, de entre los Concejales propietarios, a un Vicepresidente(a), un Secretario(a), un Tesorero(a) y un Vocal cada dos años, tomando como fecha de elección la primera sesión en que asumen sus cargos como miembros Concejales de Distrito, pudiendo ser reelegidos.

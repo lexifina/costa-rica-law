@@ -1,0 +1,1 @@
+Artículo 24.—Presidencia. El Síndico del distrito será el Presidente del Concejo de Distrito, el cual servirá el cargo durante el período para el que fue electo, y en su ausencia será sustituido por el Vicepresidente.

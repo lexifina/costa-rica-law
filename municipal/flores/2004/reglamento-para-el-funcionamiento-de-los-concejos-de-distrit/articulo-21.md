@@ -1,0 +1,1 @@
+Artículo 21.—Los tres Concejos de Distrito del Cantón de Flores, se podrán reunir ordinariamente al menos, cada seis meses para evaluar su gestión, intercambiar experiencias y tratar asuntos de interés interdistrital.
