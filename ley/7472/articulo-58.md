@@ -1,5 +1,5 @@
-Artículo 58°.- Medidas cautelares.
-Como medida cautelar, la Comisión nacional del consumidor puede ordenar el congelamiento de bienes o la suspensión de servicios, según corresponda, ante el indicio claro de la existencia de mercadería dañada, adulterada, vencida, ofrecida a un precio superior al permitido o acaparada que, de alguna manera, pueda perjudicar gravemente al consumidor o engañarlo.
-Transcurrido el término que se requiere para realizar el estudio técnico en el cual se determine la necesidad de mantener el congelamiento o la suspensión de servicios, debe darse audiencia, por un plazo de tres días, a los particulares afectados con la medida, para que aporten pruebas y aleguen lo que a bien tengan.
-Cumplido ese trámite, la Comisión nacional del consumidor, mediante resolución fundada, debe resolver si procede o no el decomiso de los bienes. En el caso de la suspensión de servicios, en el mismo plazo puede ordenar que esta se mantenga hasta que el asunto no se resuelva finalmente en su sede.
-Cuando medie resolución que ordene el decomiso, las mercaderías decomisadas deben donarse a una institución de beneficencia o destruirse si son peligrosas.
+Artículo 58°.-Arbitraje.
+En cualquier momento y de común acuerdo, las partes pueden someter su diferendo, de forma definitiva, ante un árbitro o tribunal arbitral, para lo cual deben cubrir los gastos que se originen.
+Las partes pueden escoger al árbitro o al tribunal arbitral de una lista-registro que, al efecto, debe llevar la Comisión nacional del consumidor. Los árbitros pueden cobrar honorarios por sus servicios.
+Las personas incluidas en la citada lista deben ser de reconocido prestigio profesional y contar con amplios conocimientos en la materia.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 55 al 58 actual)

@@ -1,0 +1,1 @@
+Artículo 7º—Pago de intereses de bonos de la deuda pública. El Ministerio de Hacienda reconocerá a las instituciones del Sector Público no financiero, por el pago de los intereses de los bonos de la deuda pública, una tasa de interés máxima igual a la suma del porcentaje de inflación, más la tasa LIBOR a seis meses.

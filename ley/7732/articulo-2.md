@@ -1,19 +1,4 @@
-ARTÍCULO 2.- Oferta pública de valores
-Para efectos de esta ley, se entenderá por oferta pública de valores
-todo ofrecimiento, expreso o implícito, que se proponga emitir, colocar,
-negociar o comerciar valores y se transmita por cualquier medio al público
-o a grupos determinados. Asimismo, se entenderá por valores los títulos
-valores y cualquier otro derecho de contenido económico o patrimonial,
-incorporado o no en un documento, que por su configuración jurídica propia
-y régimen de transmisión puedan ser objeto de negociación en un mercado
-financiero o bursátil.
-Únicamente podrán hacer oferta pública de valores en el país los
-sujetos autorizados por la Superintendencia General de Valores, salvo los
-casos previstos en esta ley. Lo mismo se aplicará a la prestación de
-servicios de intermediación bursátil y demás actividades reguladas en
-ella.
-Esa Superintendencia, de oficio o respondiendo a consultas que se le
-formulen, establecerá criterios de aplicación general conforme a los
-cuales se precise si una oferta es pública y si un documento o derecho no
-incorporado en un documento, constituye un valor en los términos del
-párrafo trasanterior.
+Artículo 2.—Oferta pública de valores y de servicios de intermediación. Para efectos de esta Ley, se entenderá por oferta pública de valores todo ofrecimiento, expreso o implícito, que se proponga emitir, colocar, negociar o comerciar valores entre el público inversionista. Asimismo, se entenderá por valores los títulos valores así como cualquier otro derecho económico o patrimonial, incorporado o no en un documento que, por su configuración jurídica y régimen de transmisión, sea susceptible de negociación en un mercado de valores.
+La Superintendencia establecerá, en forma reglamentaria, criterios de alcance general conforme a los cuales se precise si una oferta es pública o privada. Para ello, tomará en cuenta los elementos cualitativos de la oferta, como la naturaleza de los inversionistas y la finalidad inversa de sus destinatarios, los elementos cuantitativos, como el volumen de la colocación, el número de destinatarios, el monto de cada valor emitido u ofrecido y el medio o procedimiento utilizado para el ofrecimiento. Igualmente establecerá los criterios para determinar si un documento o derecho no incorporado en un documento constituye un valor en los términos establecidos en este artículo.
+Únicamente podrán hacer oferta pública de valores en el país los sujetos autorizados por la Superintendencia General de Valores, salvo los casos previstos en esta Ley. Lo mismo aplicará a la prestación de servicios de intermediación de valores, de conformidad con la definición que establezca la Superintendencia en forma reglamentaria, así como a las demás actividades reguladas en esta Ley.
+(Así reformado por el artículo 82 de la ley N° 8343 de 27 de diciembre del 2002, Ley de Contingencia Fiscal)

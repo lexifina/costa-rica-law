@@ -1,0 +1,1 @@
+Artículo 63.—Pago. Las entidades o personas dueñas de los negocios sujetos a este impuesto deberán depositarlo en la primera semana de cada mes, en el IMAS o en el banco que este designe, en las cabeceras de la provincia y en los cantones fuera del área metropolitana.

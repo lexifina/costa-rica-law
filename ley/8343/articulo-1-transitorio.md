@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+Transitorio I.—Todo negocio descrito en el artículo 1 de la Ley Nº 5554, de 20 de agosto de 1974, que no se encuentre inscrito en el registro que al efecto lleve el Instituto Mixto de Ayuda Social (IMAS), deberá hacerlo en el plazo de los tres meses siguientes a la publicación de la presente Ley. Pasado dicho término, el IMAS aplicará las sanciones establecidas en la presente Ley.

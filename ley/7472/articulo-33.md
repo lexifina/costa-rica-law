@@ -1,7 +1,8 @@
-Artículo 33.- Prohibiciones.
-Se prohíben todas las acciones orientadas a restringir la oferta (abastecimiento), la circulación o la distribución de bienes y servicios. La Comisión nacional del consumidor debe sancionar tales acciones sin perjuicio de las potestades que también tenga la Comisión para promover la competencia, de conformidad con el artículo 24, inciso d) de esta Ley, para conocer y resolver sobre ellas cuando:
-a) Se sustraigan, adquieran, almacenen, oculten o retengan bienes intermedios o finales, de uso o consumo interno, superiores a los necesarios para el giro normal de la actividad, con el fin de provocar escasez o alza en el precio, salvo que se trate de insumos requeridos para satisfacer necesidades propias de la empresa o que, por causa ajena al interesado, no se puedan transar (acaparamiento).
-b) Se condicione el perfeccionamiento de una venta o la prestación de servicios a la adquisición de otro producto o a la contratación de otro servicio, a menos que así se haya ofrecido, públicamente y de manera inequívoca, a los consumidores (ventas atadas o condicionadas).
-c) Se ofrezcan o se vendan bienes o servicios, en los diversos niveles de la comercialización, a precios superiores a los regulados u ofrecidos de conformidad con los artículos 5; 31, inciso b); 34 y 38 de esta Ley (especulación).
-d) Se niegue a proveer un producto o prestar un servicio, o cuando lo ofrezca o lo preste en forma irregular o dilatoria, salvo que medie justa causa, debidamente comprobada por el comerciante o el productor (discriminación al consumo).
-e) Cualquier otra forma de restricción o manipulación injustificada de la oferta de bienes y servicios.
+Artículo 33°.- Funciones del Poder Ejecutivo.
+En los términos establecidos en la presente Ley, son funciones esenciales del Estado las siguientes:
+a) Velar porque los bienes y servicios que se vendan y se presten en el mercado, cumplan con las normas de salud, seguridad, medio ambiente y los estándares de calidad.
+b) Formular programas de educación e información para el consumidor, con el propósito de capacitarlo para que pueda discernir y tomar decisiones fundadas acerca del consumo de bienes y servicios, con conocimiento de sus derechos.
+c) Fomentar y promover las organizaciones de consumidores y garantizar su participación en los procesos de decisión y reclamo, en torno a cuestiones que afectan sus intereses.
+d) Garantizar el acceso a mecanismos efectivos y ágiles de tutela administrativa y judicial, para defender los derechos y los intereses legítimos de los consumidores.
+e) Estructurar una canasta básica que satisfaga, por lo menos, las necesidades de los costarricenses cuyo ingreso sea igual o inferior al salario mínimo establecido por ley y regular, cuando lo considere necesario, los bienes y servicios que la componen.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 30 al 33 actual)

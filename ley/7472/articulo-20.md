@@ -1,9 +1,9 @@
-Artículo 20°.- Causas de remoción.
-Son causas justas para destituir a los miembros de la Comisión para promover la competencia las siguientes:
-a) Ineficiencia en el desempeño de sus cargos.
-b) Negligencia reiterada que atrase la sustanciación de los procesos.
-c) Culpabilidad declarada por la comisión de un delito doloso, incluso en grado de tentativa.
-d) Falta de excusa en los casos previstos en el artículo 21 de esta Ley.
-e) Inasistencia a tres sesiones durante un mes calendario o ausencia del país por más de tres meses sin autorización de la Comisión. En ningún caso los permisos pueden exceder de seis meses.
-f) Incapacidad física o mental que les impida desempeñar el cargo por un plazo por lo menos de seis meses.
-Este procedimiento de remoción debe tramitarse ante el Consejo de Gobierno, conforme a lo establecido en la Ley General de la Administración Pública.
+Artículo 20.—Creación de la Unidad técnica de apoyo. La Comisión de mejora regulatoria contará con la Unidad técnica de apoyo, formada por profesionales de las materias que se disponga en el Reglamento de esta Ley. Sus funciones serán:
+1. Proponer la adecuada planificación para el trabajo de la Comisión, así como ejecutar y dar seguimiento a los acuerdos de la Comisión.
+2. Procesar la información y las propuestas provenientes de las diferentes instancias, tal como los administrados y las dependencias públicas.
+3. Requerir la información que considere necesaria para la realización o cumplimiento de sus funciones.
+4. Informar a la Comisión sobre quiénes no suministren la información requerida y recomendar medidas por adoptar al respecto.
+5. Investigar, analizar y hacer recomendaciones sobre temas específicos que, de oficio o a solicitud de la Comisión, sean pertinentes.
+6. Implementar un catálogo de trámites existentes y de los que se llegue a crear, para ello, cual todas las instituciones públicas estarán obligadas a comunicar sus trámites.
+7. Cualquier otra función que le solicite la Comisión.
+(Así adicionado por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002)

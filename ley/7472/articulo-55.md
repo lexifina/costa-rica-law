@@ -1,4 +1,8 @@
-Artículo 55°.-Arbitraje.
-En cualquier momento y de común acuerdo, las partes pueden someter su diferendo, de forma definitiva, ante un árbitro o tribunal arbitral, para lo cual deben cubrir los gastos que se originen.
-Las partes pueden escoger al árbitro o al tribunal arbitral de una lista-registro que, al efecto, debe llevar la Comisión nacional del consumidor. Los árbitros pueden cobrar honorarios por sus servicios.
-Las personas incluidas en la citada lista deben ser de reconocido prestigio profesional y contar con amplios conocimientos en la materia.
+Artículo 55°.- Conciliación.
+Antes del inicio formal del procedimiento y cuando se trate de intereses puramente patrimoniales, la Unidad técnica de apoyo de la Comisión nacional del consumidor debe convocar a una audiencia de conciliación a las partes en conflicto. En casos extraordinarios y según se autorice en el Reglamento, las partes pueden realizar sus presentaciones por cualquier medio que lo permita.
+En la audiencia de conciliación, el funcionario de la Unidad técnica de apoyo de la Comisión nacional del consumidor debe procurar avenir a las partes proponiéndoles un arreglo y sugiriéndoles la conveniencia de él.
+En el acta correspondiente, que deben firmar las partes y el funcionario, se debe dejar constancia de todo acuerdo al que lleguen. En el mismo acto, el funcionario debe aprobar el arreglo, salvo cuando sea contrario a la ley. Este arreglo tendrá la misma eficacia de la resolución de la Comisión para promover la competencia en los términos del artículo (*)61 de esta Ley, pero sin recurso ulterior.
+(*)(Actualmente corresponde al artículo 64)
+De no lograrse un acuerdo durante la audiencia de conciliación o si las partes no se presentan a ella, se debe iniciar el procedimiento indicado en el artículo (*)53 de esta Ley.
+(*)(Actualmente corresponde al artículo 56)
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 52 al 55 actual)

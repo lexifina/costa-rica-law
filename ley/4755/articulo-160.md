@@ -1,34 +1,11 @@
-ARTICULO 160.- El Tribunal Fiscal Administrativo está integrado por
-un Presidente y cuatro propietarios. El Presidente debe ser abogado, y los
-propietarios dos abogados, un ingeniero civil y un ingeniero agrónomo,
-quienes deben trabajar a tiempo completo y ser personas que en razón de
-sus antecedentes, títulos profesionales y reconocida competencia en la
-materia, sean garantía de imparcialidad y acierto en el desempeño de sus
-funciones.
-El Tribunal elaborará una lista de seis abogados, tres ingenieros
-civiles y tres ingenieros agrónomos, que reúnan los mismos requisitos de
-los propietarios, para que suplan a éstos en caso de ausencias temporales,
-de impedimientos o excusas.
-Para ser miembro del Tribunal deben reunirse los siguientes
-requisitos:
-a) Ser costarricense por nacimiento o naturalización con domicilio en
-el país no menor de diez años después de obtenida la carta respectiva;
-b) Ser ciudadano en ejercicio y pertenecer al estado seglar;
-c) Ser mayor de treinta años y tener cinco o más años de ejercicio
-profesional;
-d) Ser de conocida solvencia moral y contar con una experiencia en
-materia tributaria de dos años; y
-e) No hallarse ligado por parentesco de consaguinidad o afinidad
-hasta el tercer grado inclusive, con un miembro de dicho Tribunal, con las
-autoridades superiores de los organismos de la Administración Tributaria,
-o con los jefes de los departamentos del Ministerio de Hacienda que
-intervienen en la determinación de las obligaciones tributarias, a la
-fecha de integrarse el Tribunal. Si surge un impedimiento de esta índole
-con posterioridad al nombramiento, pierde el puesto el miembro nombrado en
-último término. Si el impedimiento entre los miembros es simultáneo, debe
-ser repuesto el de menor edad.
-(Así reformado por el artículo 1º de la ley Nº 5179 de 27 de febrero
-de 1973)
-(Así corregida su numeración por el artículo 10 de la Ley de Justicia
-Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo
-151 al actual)
+Artículo 160.—Integración del Tribunal y requisitos de sus miembros. El Tribunal Fiscal Administrativo está conformado por las salas especializadas que sean establecidas por parte del Poder Ejecutivo, las cuales estarán integradas por tres propietarios; entre ellos se elegirá al presidente. El presidente de cada sala deberá ser abogado y los restantes miembros propietarios podrán ser abogados, ingenieros civiles, ingenieros agrónomos, contadores públicos u otros profesionales según la materia de especialización de la sala respectiva, de conformidad con el Reglamento de Organización, Funciones y Procedimientos del Tribunal Fiscal Administrativo que se emitirá por parte del Poder Ejecutivo, previa consulta al Tribunal Fiscal Administrativo, que deberá dictarse en el plazo máximo de dos meses. Este Reglamento será de acatamiento obligatorio para el Tribunal y sus miembros no podrán desaplicar sus normas.
+Los propietarios de las salas del Tribunal deberán trabajar a tiempo completo y ser personas que, en razón de sus antecedentes, títulos profesionales y reconocida competencia en la materia, sean garantía de imparcialidad y acierto en el desempeño de sus funciones. La creación de cada sala requerirá una solicitud razonada por parte del Tribunal Fiscal Administrativo que justifique su creación.
+Para ser miembro del Tribunal deberán reunirse los siguientes requisitos:
+1. Ser costarricense por nacimiento o naturalización, con domicilio en el país por un mínimo de diez años después de obtenida la carta respectiva.
+2. Ser ciudadano en ejercicio y pertenecer al estado seglar.
+3. Ser mayor de treinta años y tener cinco años o más en el ejercicio profesional.
+4. Ser de conocida solvencia moral y contar con experiencia en materia tributaria de dos años.
+5. No hallarse ligado por parentesco de consanguinidad ni afinidad, incluso hasta el tercer grado, con un miembro de dicho Tribunal, con las autoridades superiores de los organismos de la Administración Tributaria o con los jefes de los departamentos del Ministerio de Hacienda que intervienen en la determinación de las obligaciones tributarias, a la fecha de integrarse al Tribunal. De surgir un impedimento de esta índole con posterioridad al nombramiento, perderá el puesto el miembro nombrado en último término; si el impedimento entre los miembros es simultáneo, deberá ser repuesto el de menor edad.
+El Reglamento de Organización, Funciones y Procedimientos del Tribunal Fiscal Administrativo determinará la organización interna del Tribunal y los procedimientos aplicables a la tramitación de los recursos de apelación y otras funciones señaladas en este Código u otras leyes especiales. El Poder Ejecutivo nombrará una lista de abogados, ingenieros civiles, ingenieros agrónomos, contadores públicos u otros profesionales que reúnan los mismos requisitos de los propietarios, para que suplan a estos en caso de ausencias temporales, de impedimentos o excusas, de conformidad con los procedimientos regulados en el Reglamento arriba citado. Asimismo, el Tribunal contará con un presidente que se nombrará entre los presidentes de cada sala y por ellos mismos, y el personal administrativo necesario para su buen funcionamiento, nombrados por aquel de acuerdo con las regulaciones del Estatuto de Servicio Civil.
+(Así reformado por el artículo 77 de la ley N° 8343 de 27 de diciembre del 2002, Ley de Contingencia Fiscal)
+(Así corregida su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 151 al actual)
