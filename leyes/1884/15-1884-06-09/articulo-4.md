@@ -1,0 +1,1 @@
+Art. 4°-La Compañía, por medio de su agente en Costa-Rica, informará al Gobierno y al público, con la debida anticipación, del día fijado para la llegada de sus vapores al puerto de Limón, así como para su salida de él.
