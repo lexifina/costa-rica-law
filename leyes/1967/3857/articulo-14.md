@@ -1,5 +1,7 @@
-Artículo 14.-Por los lotes esquineros ubicados en la zona urbanizada, y hasta un área de ciento sesenta metros cuadrados, pagarán cada metro cuadro:
-a) Los acogidos al arreglo formal o sus herederos en primer grado (inciso 1) del artículo 572 del Código Civil), treinta colones (¢ 30.00).
-b) Los cesionarios de los anteriores, treinta y cinco colones (¢35.00).
-c) Los demás poseedores, cuarenta colones (¢40.00).
-Por áreas superiores a ciento sesenta metros, unos y otros pagarán cincuenta colones (¢50.00), por cada metro cuadro de exceso.
+Artículo 14.- Por lo lotes esquineros ubicados en la zona urbanizada y hasta una área de ciento sesenta metros cuadrados, pagarán por cada metro cuadrado:
+a) Los acogidos al arreglo formal o sus herederos en primer grado (inciso 1) del artículo 572 de Código Civil), quince colones..
+(¢ 15.00);
+b) Los cesionarios de los anteriores, diecisiete colones cincuenta céntimos (¢ 17.50); y
+c) Los demás poseedores, veinte colones (¢ 20.00).
+Por áreas superiores a ciento sesenta metros, unos y otros pagarán veinticinco colones (¢ 25.00), por cada metro cuadrado de exceso.
+(Así reformado por el artículo 1° de la ley N° 4814 del 27 de julio de 1971)
