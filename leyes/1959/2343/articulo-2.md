@@ -1,0 +1,1 @@
+Artículo 2º.- Formarán el Colegio las Enfermeras y Obstétricas graduadas por el Colegio de Médicos y Cirujanos, la antigua Facultad de Medicina y por la Escuela de Enfermería de Costa Rica o las que legalmente se constituyan en el futuro, y las incorporadas de acuerdo con tratados de reciprocidad.

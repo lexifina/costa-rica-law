@@ -1,0 +1,2 @@
+Artículo 24.- Toda persona que aspire a trabajar como auxiliar de Enfermería, deberá proveerse de la licencia respectiva que le extenderá el Colegio, para lo cual deberá inscribir su nombre en los Registros que a este efecto llevará el mismo.
+El Reglamento indicará lo pertinente a programas de preparación y adiestramiento de los auxiliares de Enfermería, así como las condiciones requeridas en los hospitales del país para establecer en ellos los citados cursos, y los requisitos que debe reunir el solicitante.
