@@ -1,4 +1,4 @@
-Artículo 4º.- Los datos obtenidos con arreglo a lo previsto en el
+ARTICULO 4º.- Los datos obtenidos con arreglo a lo previsto en el
 artículo anterior, serán estrictamente confidenciales. No podrán ser
 suministrados ni publicados en forma individual sino como parte de cifras
 globales, salvo con la previa autorización del interesado. Para este
