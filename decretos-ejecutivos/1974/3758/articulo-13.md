@@ -12,7 +12,9 @@ IV.- Dirección General de la Guardia Civil y sus dependencias:
 Patrulla Aérea y Marítima, Departamento Médico, Narcóticos, Capturas, Radio
 Patrullas, Comandancias Provinciales, Primera Compañía, Segunda Compañía,
 Tercera Compañía, Planes y Operaciones, Guardia Presidencial y Policía
-Militar.
+Supervisora.
+(Así reformado por el artículo 1º del Decreto Ejecutivo No.19395 del
+19 de noviembre de 1989)
 V.- Dirección General de Tránsito y sus dependencias: Oficialía de
 Guardia, Enfermería, Intendencia, Taller Mecánico Cuerpo Motorizado,
 Barbería, Revisión de Vehículos, Oficiales Destacados.

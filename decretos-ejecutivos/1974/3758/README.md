@@ -13,3 +13,4 @@ Reglamento de la Ley Orgánica del Ministerio de Seguridad Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-06-13 | la propia norma |
+| 2 | 1974-06-13 | SINALEVI (sin norma nombrada) |
