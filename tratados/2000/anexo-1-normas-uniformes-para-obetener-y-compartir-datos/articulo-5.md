@@ -1,0 +1,3 @@
+Artículo 5
+Notificación de datos
+El Estado se cerciorará de que los buques que enarbolen su pabellón envíen a sus servicios nacionales de pesca o, cuando se convenga en ello, a la organización o el arreglo subregional o regional de ordenación pesquera que corresponda a datos de los cuadernos de bitácora sobre la captura y el esfuerzo de pesca, con inclusión de datos sobre las faenas en alta mar, con la periodicidad suficiente para atender las necesidades nacionales y cumplir las obligaciones regionales e internacionales. Cuando sea necesario, los datos serán transmitidos por radio, telex, facsímile, satélite u otros medios.
