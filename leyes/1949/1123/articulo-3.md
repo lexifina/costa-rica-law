@@ -1,0 +1,1 @@
+Artículo 3°-Todos los servicios adscritos al ferrocarril, como el Acueducto de Puntarenas, Servicio de lanchas Nacionales y Muelle Grande de Puntarenas, continuarán bajo la administración de la Empresa, como dependencias del Ministerio de Obras Públicas.
