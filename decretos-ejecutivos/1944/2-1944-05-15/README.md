@@ -13,3 +13,4 @@ Determina quienes no se consideran funcionarios del Estado para efectos Título 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1944-05-15 | la propia norma |
+| 2 | 1946-04-29 | Decreto Ejecutivo 8 (1946-04-29) |

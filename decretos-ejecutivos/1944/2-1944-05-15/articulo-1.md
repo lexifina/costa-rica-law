@@ -14,7 +14,8 @@ f) Jefe del Ministerio Público, Promotores Fiscales, Fiscal de Corte, Agentes F
 g) Secretario particular del Presidente de la República;
 h) Munícipes y Síndicos;
 i) Rector y Secretario de la Universidad y Decanos de las Escuelas y Facultades de la misma;
-j) Miembros de las Juntas Directivas, Gerentes y Subgerentes de la Caja Costarricense de Seguro Social, del Banco Nacional de Seguros y del Banco Nacional de Costa Rica;
+j) Miembros de las Juntas Directivas, Gerentes y Subgerentes de la Caja Costarricense de Seguro Social, del Banco Nacional de Seguros y del Banco Nacional de Costa Rica, y personal del Cuerpo de Bomberos;
+(así reformado el inciso anterior mediante el artículo 1 del decreto ejecutivo Nº 8 del 29 de abril de 1946)
 k) Miembros del Tribunal Superior de Trabajo, de los Tribunales de Conciliación y de los Tribunales de Arbitraje;
 l) Jueces y Alcaldes Civiles, Penales y de Trabajo;
 m) Secretarios de todos los Tribunales de la República que dependan del Poder Judicial;
