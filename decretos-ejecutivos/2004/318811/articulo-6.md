@@ -1,0 +1,6 @@
+ARTÍCULO VI
+Transferencia de tecnología
+Las Partes convienen en que ningún equipo o información que requiera protección en intereses de la defensa nacional o de las relaciones exteriores de cualquiera de Ellas y que esté clasificado de acuerdo con las leyes y reglamentos nacionales aplicables, será proporcionado con sujeción a este Acuerdo.
+Si en el curso de las actividades de cooperación emprendidas de conformidad con este Acuerdo se identificara información o equipo que se sabe o se cree que requiere tal protección, se hará del conocimiento de los funcionarios apropiados inmediatamente y las Partes se consultarán y establecerán por escrito, las medidas apropiadas que se aplicarán a esta información y equipo y, si procede, modificarán este Acuerdo a fin de incorporar tales medidas.
+La transferencia de información o equipo no clasificados, cuya exportación esté controlada por las Partes, se hará de conformidad con las leyes y reglamentos aplicables de cada país. Si cualquiera de las Partes lo considerase necesario, se incorporarán a los contratos o a los mecanismos de ejecución las disposiciones específicas para prevenir la transferencia no autorizada de tal información o equipo.
+La información cuya exportación esté controlada, se marcará para identificarla como tal y para identificar cualquier limitación sobre su uso o su transferencia ulterior.

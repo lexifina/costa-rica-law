@@ -1,0 +1,4 @@
+ARTÍCULO VII
+Relación laboral
+El personal designado por cada una de las Partes para la ejecución del presente Acuerdo, continuará bajo la dirección y dependencia de la institución a la que pertenece, por lo que no se crearán relaciones de carácter laboral con la Otra, a la que en ningún caso se considerará como patrón sustituto.
+Las Partes gestionarán ante las autoridades correspondientes todas las facilidades necesarias para la entrada, permanencia y salida de los participantes que en forma oficial intervengan en los proyectos de cooperación que se deriven del presente Acuerdo. Estos participantes se someterán a las disposiciones migratorias, fiscales, aduaneras, sanitarias y de seguridad vigentes en el país receptor y no podrán dedicarse a ninguna actividad ajena a sus funciones sin la previa autorización de las autoridades competentes en esta materia. Los participantes dejarán el país receptor, de conformidad con las leyes y disposiciones del mismo.

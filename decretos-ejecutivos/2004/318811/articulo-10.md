@@ -1,0 +1,5 @@
+ARTÍCULO X
+Disposiciones finales
+El presente Acuerdo, entrará en vigor a partir de la fecha en que la Cancillería de Costa Rica comunique a la Embajada de los Estados Unidos Mexicanos en Costa Rica, el cumplimiento de los requisitos exigidos por su legislación nacional para tal efecto y tendrá una duración de cinco (5) años, prorrogable por períodos de igual duración, previa evaluación. Este Acuerdo podrá ser modificado por mutuo consentimiento y las modificaciones acordadas entrarán en vigor de conformidad con el procedimiento establecido en el párrafo precedente. Cualquiera de las Partes podrá, en cualquier momento, dar por terminado el presente Acuerdo, mediante comunicación escrita dirigida a la Otra, con noventa (90) días de antelación.
+La terminación del presente Acuerdo no afectará la conclusión de las acciones de cooperación que hubieren sido formalizadas durante su vigencia.
+Firmado en la Ciudad de México, el veinticuatro de febrero del dos mil cuatro, en dos ejemplares originales en idioma español, siendo ambos textos igualmente auténticos.
