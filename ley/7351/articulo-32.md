@@ -1,0 +1,10 @@
+ARTICULO 32
+El Secretario General de las Naciones Unidas comunicará a todos
+los Estados Miembros de las Naciones Unidas y a todos los Estados que
+hayan firmado la presente Convención o se hayan adherido a ella:
+a) Las firmas, ratificaciones y adhesiones con arreglo a los
+artículos 25 y 26.
+b) La fecha de entrada en vigor de la presente Convención con
+arreglo al artículo 27, y la fecha de entrada de vigor de las enmiendas
+con arreglo al artículo 29.
+c) Las denuncias con arreglo al artículo 31.
