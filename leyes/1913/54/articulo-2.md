@@ -1,0 +1,2 @@
+Artículo 2°.- Para la realización de estos trabajos, destínase hasta doscientos cincuenta mil colones (C250,000.00) anuales, que se tomarán del sobrante de las rentas que hubiere, deducidos los gastos ordinarios y extraordinarios votados en cada año económico; y además, el producto de los derechos de teatro y muellaje que se recauden en dicho puerto, y los recargos que leyes posteriores establecieren con igual objeto.
+San José, cuatro de julio de mil novecientos trece.
