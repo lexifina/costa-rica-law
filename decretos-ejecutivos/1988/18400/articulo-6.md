@@ -1,5 +1,7 @@
-Artículo 6°-Constituirán obligaciones del Ministerio de Obras Públicas y Transportes por medio de los órganos competentes:
-a) Velar por el adecuado funcionamiento del sistema en procura de beneficiar al usuario en el disfrute racional del servicio y de ayudar al empresario de transporte para mejorar el sistema de recaudación de la tarifa;
-b) Autorizar a los empresarios para que ejecuten el cobro de la tarifa mediante tiquetes, previa comprobación de la capacidad necesaria para la administración de dicho sistema;
-c) Investigar. mediante el acto correspondiente; a los inspectores del funcionamiento de este sistema para que, dotados de la autoridad necesaria, puedan ejercer las facultades que este reglamento les otorga; y
-d) Emitir las disposiciones complementarias para la óptima aplicación del sistema.
+Articulo 6°-Constituirán obligaciones del Ministerio de Obras Públicas y Transportes, por medio de los órganos. funcionarios y personal competentes:
+a) Velar por el adecuado funcionamiento del sistema en procura de beneficiar al usuario en el disfrute racional del servicio y orientar al empresario de transporte para mejorar el sistema de recaudación de la tarifa.
+b) Autorizar a los empresarios para que ejecuten el cobro de la tarifa mediante tiquetes, previa comprobación de la capacidad necesaria para la administración de dicho sistema.
+c) Investir por medio del acto Correspondiente, al personal que integre los inspectores del sistema de cobro por medio de tiquetes, para que estén dotados de la autoridad y facultades que el Ministerio estime necesarias. con el fin de que puedan hacer efectivo el óptimo cumplimiento de las disposiciones de este Reglamento.
+d) Emitir las regulaciones complementarias para la mejor aplicación del sistema.
+A tales efectos y en lo conducente, les serán aplicables el personal investido del carácter de inspectores del sistema de cobro mediante tiquete, las disposiciones contenidas en el decreto NQ 17750-MOPT del 18 de setiembre de 1987, publicado en " La Gaceta " del 13 de octubre de 1987, con excepción de toda aquella que prohiba la remuneración, por tratarse de inspectores que por el ejercicio de sus funciones percibirán el salario correspondiente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 18807 de 30 de enero de 1989).

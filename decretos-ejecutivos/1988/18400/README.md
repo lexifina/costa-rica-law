@@ -13,3 +13,4 @@ Reglamento Uso y Control Sistema de Cobro Mediante Tiquetes TransporteColectivo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-09-07 | la propia norma |
+| 2 | 1989-01-30 | Decreto Ejecutivo 18807 (1989-01-30) |
