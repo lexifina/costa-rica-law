@@ -14,3 +14,4 @@ Dirección General del Servicio Civil emite resoluciones DG-142-2002, DG-147-200
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-04 | la propia norma |
+| 2 | 2004-09-27 | Resolución 26 (2004-09-27) |
