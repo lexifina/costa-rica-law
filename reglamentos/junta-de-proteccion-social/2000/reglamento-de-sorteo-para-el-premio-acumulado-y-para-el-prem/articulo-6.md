@@ -1,0 +1,1 @@
+Articulo 6°— El Importe del "Premio del Millón", cuando se acierte, se distribuye por igual entre cada una de las fracciones de los billetes emitidos que posean la combinación ganadora de este premio, en el sorteo de que se trate.

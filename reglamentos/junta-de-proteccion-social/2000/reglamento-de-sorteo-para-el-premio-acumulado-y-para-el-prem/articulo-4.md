@@ -1,0 +1,1 @@
+Articulo 4°— El importe del "Premio Acumulado", cuando se acierte, se distribuye por igual entre cada una de las tracciones de los billetes emitidos que posean la combinación ganadora de este premio, en el sorteo de que se trate.

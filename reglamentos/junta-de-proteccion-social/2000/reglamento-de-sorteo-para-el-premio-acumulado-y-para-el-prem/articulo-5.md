@@ -1,0 +1,1 @@
+Articulo 5°—Cuando el premio acumulado no es acertado, de conformidad con el azar propio de la mecánica de sorteo, su importe permanece disponible para el sorteo siguiente, más la suma que se agrega semana I mente con la realización de cada sorteo de la Lotería Nacional.
