@@ -1,1 +1,1 @@
-Artículo 68.- El Registrante estará en la obligación de mantener actualizada la información referente al producto que ha registrado, y en caso de comprobarse incumplimiento de esta obligación el Departamento podrá cancelar el registro cuya información no ha sido suministrada y actualizada por el Registrante.
+Artículo 69.- El Departamento para el efectivo cumplimiento de lo que este Reglamento dispone, podrá requerir de todo ente de derecho público, la más estrecha colaboración. Las entidades anteriormente señaladas no podrán negar su colaboración.

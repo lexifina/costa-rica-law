@@ -14,3 +14,4 @@ Reglamento Registro y Control Sustancias Tóxicas y Productos Tóxicos y Peligro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-12-22 | la propia norma |
+| 2 | 1994-12-22 | SINALEVI (sin norma nombrada) |
