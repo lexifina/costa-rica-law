@@ -1,0 +1,1 @@
+Articulo 7°—Del pago. La Tesorería Municipal ejecutara los pagos correspondientes contra orden de compra y factura original debidamente autorizada por el funcionario municipal que recibió los materiales en la comunidad.

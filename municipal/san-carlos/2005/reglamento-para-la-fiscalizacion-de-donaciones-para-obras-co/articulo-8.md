@@ -1,0 +1,1 @@
+Articulo 8°—De la publicidad reglamentaria. De conformidad con lo establecido en el articulo 43 del Código Municipal, este Proyecto de Reglamento se somete a consulta publica no vinculante por un plazo mínimo de diez días hábiles, transcurrido el cual se pronunciara sobre el fondo
