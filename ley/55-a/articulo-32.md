@@ -1,9 +1,0 @@
-ARTICULO XXXII. EXPLICACION DE LOS CONCEPTOS RELACIONADOS
-CON LOS DERECHOS ESPECIALES DE GIRO
-En lo que respecta a la interpretación de las disposiciones de este Convenio referente a los derechos especiales de giro, el Fondo y los países miembros se guiarán por las siguientes definiciones.
-a) Por asignación acumulativa neta de derechos especiales de giro se entiende el monto total de los derechos especiales de giro asignados a un participante menos la porción de sus derechos especiales de giro que haya sido cancelada de acuerdo con lo dispuesto en la Sección 2(a) del Artículo XXIV.
-b) Por moneda convertible de hecho se entiende:
-1) la moneda de un participante con respecto a la cual existe un procedimiento para la conversión de los saldos de la moneda obtenida en transacciones en que intervengan los derechos especiales de giro, a otra moneda con respecto a la cual exista tal procedimiento de conversión recíproca a los tipos de cambio fijados según la Sección 8 del Artículo XXV, y que esa moneda sea de un participante que i) haya aceptado las obligaciones prescritas en las secciones 2, 3 y 4 del Artículo VIII, o que ii) para la liquidación de transacciones internacionales compre y venda libremente oro dentro de los límites prescritos por el Fondo en la Sección 2 del Artículo IV; o
-2) una moneda convertible a otra moneda de la índole descrita en el párrafo (1) que antecede a los tipos de cambio prescritos en la Sección 8 del Artículo XXV.
-c) Por posición de reserva en el fondo de un participante se entiende la suma de las compras que éste pudiera efectuar dentro del tramo de oro más el monto de cualquier obligación que el fondo le adeude y que sea pagadera a presentación conforme a un acuerdo de préstamo.
-(Así adicionado por el artículo 1° de la ley N° 4336 del 20 de mayo de 1969, "Primera Enmienda al Convenio Constitutivo del Fondo Monetario Internacional")
