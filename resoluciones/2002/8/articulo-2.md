@@ -1,0 +1,1 @@
+Artículo 2°—Que según la variación del índice de precios al consumidor, correspondería actualizar el impuesto a la suma de (19,55; no obstante, en virtud de lo indicado en el considerando 3° de esta resolución, se actualiza a la suma de el 9.5 3 (diecinueve colones con cincuenta y tres
