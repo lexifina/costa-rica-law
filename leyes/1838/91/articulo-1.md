@@ -1,0 +1,5 @@
+DECRETO XCL.
+El Consejo Representativo declara haber legar a formación de causa contra el Jefe Político Ciudadano Ignacio Saborío.
+“El jefe Supremo del Estado Libre de Costa Rica. –Por cuanto el Consejo ha decretado lo siguiente.
+El Consejo Representativo del Estado libre de Costa Rica: con presencia de la acusación hecha por la Municipalidad de la Ciudad de Alajuela contra el Jefe Político del Departamento Occidental Ciudadano Ignacio Saborío, por exceso de autoridad en el ejercicio de sus funciones, y en uso de las facultades que le concede el art. 68, 3° de la Constitución del Estado, ha venido en declarar y declara.
+Ha lugar á formación de causa contra el Jefe Político C. Ignacio Saborío, por exceso en el ejercicio de sus funciones; y se pasará al efecto el expediente al Tribunal que corresponda, para su conocimiento. –Dado en la Ciudad de San José á los dieciocho días del mes de Setiembre de mil ochocientos treinta y ocho. –Miguel Carranza, Presidente. –José M. Echavarria, Secretario. –Por tanto: EJECÚTESE. San José Setiembre veintidós de mil ochocientos treinta y ocho. –Braulio Carrillo. –Al Ministro General del Despacho.”
