@@ -15,3 +15,4 @@ Regimen salarial de los puestos del Tribunal Registral Administrativo.
 | --- | --- | --- |
 | 1 | 2003-01-01 | la propia norma |
 | 2 | 2003-11-19 | Decreto Ejecutivo 31492 (2003-11-19) |
+| 3 | 2004-03-15 | Decreto Ejecutivo 31826 (2004-03-15) |
