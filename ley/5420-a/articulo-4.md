@@ -1,0 +1,1 @@
+Artículo 4º.- Por cuanto la fabricación de cemento ha sido declarada de utilidad pública, de acuerdo con la ley Nº 2465 de 10 de noviembre de 1959, reformada por la número 2890 del 16 de noviembre de 1961, el empresario gozará de los derechos y beneficios que dicha declaratoria produce.
