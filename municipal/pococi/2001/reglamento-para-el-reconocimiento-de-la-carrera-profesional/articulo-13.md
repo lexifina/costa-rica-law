@@ -1,0 +1,5 @@
+Artículo 13.—La experiencia laboral acumulada hasta un máximo
+de cuatro años, en un puesto subprofesional de clase inmediata inferior al
+puesto profesional, ostentando el servidor el grado académico de bachiller,
+podrá ser reconocida si tal puesto luego es reasignado a una clase de puesto
+de nivel profesional.
