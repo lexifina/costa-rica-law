@@ -1,0 +1,4 @@
+Artículo 8
+1º—A más tardar dos años después de la entrada en vigor del Protocolo respecto de un Estado Parte, éste presentará al Comité de los Derechos del Niño un informe que contenga una exposición general de las medidas que haya adoptado para dar cumplimiento a las disposiciones del Protocolo, incluidas las medidas adoptadas con objeto de aplicar las disposiciones relativas a la participación y el reclutamiento.
+2º—Después de la presentación del informe general, cada Estado Parte incluirá en los informes que presente al Comité de los Derechos del Niño de conformidad con el artículo 44 de la Convención la información adicional de que disponga sobre la aplicación del Protocolo. Otros Estados Partes en el Protocolo presentarán un informe cada cinco años.
+3º—El Comité de los Derechos del Niño podrá pedir a los Estados Partes más información sobre la aplicación del presente Protocolo.

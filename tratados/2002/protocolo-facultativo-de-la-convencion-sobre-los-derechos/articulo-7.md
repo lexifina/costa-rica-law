@@ -1,0 +1,3 @@
+Artículo 7
+1º—Los Estados Partes cooperarán en la aplicación del presente Protocolo, en particular en la prevención de cualquier actividad contraria al mismo y la rehabilitación y reintegración social de las personas que sean víctimas de actos contrarios al presente Protocolo, entre otras cosas mediante la cooperación técnica y la asistencia financiera. Esa asistencia y esa cooperación se llevarán a cabo en consulta con los Estados Partes afectados y las organizaciones internacionales pertinentes.
+2º—Los Estados Partes que estén en condiciones de hacerlo prestarán esa asistencia mediante los programas multilaterales, bilaterales o de otro tipo existentes o, entre otras cosas, mediante un fondo voluntario establecido de conformidad con las normas de la Asamblea General.

@@ -1,0 +1,4 @@
+Artículo 6
+1º—Cada Estado Parte adoptará todas las medidas legales, administrativas y de otra índole necesarias para garantizar la aplicación efectiva y la vigilancia del cumplimiento efectivo de las disposiciones del presente Protocolo dentro de su jurisdicción.
+2º—Los Estados Partes se comprometen a difundir y promover por los medios adecuados, entre adultos y niños por igual, los principios y disposiciones del presente Protocolo.
+3º—Los Estados Partes adoptarán todas las medidas posibles para que las personas que estén bajo su jurisdicción y hayan sido reclutadas o utilizadas en hostilidades en contradicción con el presente Protocolo sean desmovilizadas o separadas del servicio de otro modo. De ser necesario, los Estados Partes prestarán a esas personas toda la asistencia conveniente para su recuperación física y psicológica y su reintegración social.
