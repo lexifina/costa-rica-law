@@ -1,0 +1,1 @@
+Art. 4. En lo sucesivo, solo quedan esentos de ser Munícipes los individuos de los Supremos Pode- res de la República: los Ministros del Despacho: los Jueces de 1' instancia: el Administrador principal de Rentas: el jeneral de Correos; y los de fondos Municipales: los eclesiásticos: los veteranos; y los que por impedimento físico ó moral no puedan ocuparse de sus propios negocios
