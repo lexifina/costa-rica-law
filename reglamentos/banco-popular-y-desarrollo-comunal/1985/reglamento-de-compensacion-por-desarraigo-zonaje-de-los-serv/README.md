@@ -14,3 +14,4 @@ Reglamento de Compensación por Desarraigo (Zonaje) de los Servidores del Banco 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-01-22 | la propia norma |
+| 2 | 2002-02-19 | Reglamento 3963 (2002-02-19) |
