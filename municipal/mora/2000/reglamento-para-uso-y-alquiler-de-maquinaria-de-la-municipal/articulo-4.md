@@ -1,0 +1,1 @@
+Artículo 4º—El alquiler de la maquinaria será cobrado por horas. El monto del alquiler será acorde con el tipo de maquinaria que se use. Dicho monto será fijado por el Concejo Municipal, previo informe de los costos remitido por el Alcalde. Se podrá modificar el precio cuando los costos de operación aumenten.

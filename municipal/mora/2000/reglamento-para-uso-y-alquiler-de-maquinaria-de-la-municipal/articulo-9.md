@@ -1,0 +1,1 @@
+Artículo 9º—El servicio de alquiler de maquinaria deberá pagarse por adelantado, para lo cual se deberá confeccionar el recibo correspondiente en el Departamento de Rentas y Cobranzas de la Municipalidad, previa firma del contrato y aprobación del mismo por parte del Concejo Municipal.

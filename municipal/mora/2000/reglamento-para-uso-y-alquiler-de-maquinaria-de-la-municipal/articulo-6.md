@@ -1,0 +1,1 @@
+Artículo 6º—Las organizaciones comunales deberán, cuando utilicen la maquinaria municipal para la reparación de caminos públicos, aportar el costo de las horas extras laborales en caso de que así se requiera al monto devengado por cada uno de los operadores.

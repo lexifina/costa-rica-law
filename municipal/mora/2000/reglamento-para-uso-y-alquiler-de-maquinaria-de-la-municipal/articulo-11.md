@@ -1,0 +1,1 @@
+Artículo 11.—El Concejo Municipal en caso de ser así necesario, podrá realizar convenios de ayuda recíproca con otras Municipalidades de la región en cuanto el servicio que por este reglamento se regula.

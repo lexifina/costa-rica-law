@@ -1,0 +1,1 @@
+Artículo 8º—Los particulares, asociaciones u otros que soliciten la reparación de sus caminos privados, cancelarán la tarifa fijada por el Concejo, conforme lo estipuló en los artículos del presente reglamento.

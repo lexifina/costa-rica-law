@@ -1,0 +1,1 @@
+Artículo 5º—Para el calculo del monto de la hora se tomará en cuenta las tarifas que tengan establecidas el Ministerio de Obras Públicas y Transportes para el equipo de iguales o similares características o en su defecto el costo de la hora que cobra la empresa privada.

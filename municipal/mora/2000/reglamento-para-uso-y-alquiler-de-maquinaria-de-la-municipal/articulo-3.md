@@ -1,0 +1,1 @@
+Artículo 3º—El alquiler de la maquinaria podrá realizarse cuando no haya menoscabo o interferencia con la labor municipal, reservando el Concejo Municipal el derecho de suspender los trabajos que esté ejecutando la maquinaria en actividades particulares cuando se requiera atender trabajos municipales generados por casos fortuitos o de fuerza mayor.
