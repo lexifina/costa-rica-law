@@ -1,1 +1,2 @@
-Artículo 8º—Sus miembros recibirán estipendios en los montos señalados para las Comisiones Permanentes y viáticos de acuerdo con la tabla establecida por la Contraloría General de la República, cuando, en cumplimiento de sus funciones, deban desplazarse.
+Artículo 8º—Las personas que integran el Tribunal Electoral recibirán estipendios por las sesiones autorizadas en este Reglamento, de acuerdo con el presupuesto anual aprobado para el Tribunal por la Asamblea General Ordinaria. Recibirán viáticos de acuerdo con la tabla establecida por la Contraloría General de la República cuando en cumplimiento de sus funciones deban desplazarse de su sede oficial.
+(Así reformado por Junta Directiva y publicado en La Gaceta N° 38 de 24 de febrero de 2004).

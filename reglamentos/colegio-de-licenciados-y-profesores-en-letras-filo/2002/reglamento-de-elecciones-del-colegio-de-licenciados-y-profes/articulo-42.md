@@ -1,1 +1,2 @@
-Artículo 42.—Los miembros del Tribunal realizarán el escrutinio ante la Asamblea y comunicarán a ella el nombre de los candidatos que resultaron electos en los distintos cargos.
+Artículo 42.—El Tribunal realizará el escrutinio en la asamblea y comunicará a ella el nombre de las personas elegidas en los distintos cargos.
+(Así reformado por Junta Directiva y publicado en La gaceta No. 38 de 24 de febrero de 2004).
