@@ -1,0 +1,1 @@
+Art 4° El Resguardo se compondrá de dos Rondas marinas, primera y segunda, formadas cada una de ellas de un cabo y dos guardas sus obligaciones son las de vigilar e impedir el contrabando conforme a las órdenes que le dé el Sub Inspector, de quien inmediatamente dependen.
