@@ -1,0 +1,2 @@
+Artículo 9º.- En adelante no se erigirá en cantón ningún territorio que no cuente al menos con el uno por ciento de la población total del país, ni se desmembrará cantón alguno de los existentes, si hecha la desmembración no le quede al menos una población mínima del porcentaje expresado antes.
+Por excepción podrán crearse cantones nuevos que no lleguen a la población, dicha, en lugares muy apartados y de difícil comunicación con sus centros administrativos, siempre que la Comisión Nacional de División Territorial lo recomiende, previos los estudios del caso.

@@ -1,0 +1,3 @@
+Artículo 6º.- Si hubiere disconformidad en las líneas pretendidas por las provincias confinantes, el Ministerio de Gobernación someterá el problema a estudio del Instituto Geográfico Nacional.
+El informe del Instituto pasará al conocimiento de la Comisión Nacional de División territorial y con base en lo decidido por ésta, el Ministro presentara' una exposición a la Asamblea Legislativa y un proyecto de ley, en el cual propondrá las líneas que a juicio del Ejecutivo, fueren más convenientes.
+La Asamblea Legislativa, con vista de todos los atestados del caso, señalará definitivamente la línea divisoria de las provincias.
