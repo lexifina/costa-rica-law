@@ -14,3 +14,4 @@ Reglamento del Fondo de Garantías y Jubilaciones de los Empleados del Banco Nac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-11 | la propia norma |
+| 2 | 2002-12-03 | Reglamento 11181 (2002-12-03) |
