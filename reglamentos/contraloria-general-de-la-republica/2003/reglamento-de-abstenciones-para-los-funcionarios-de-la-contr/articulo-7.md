@@ -1,0 +1,1 @@
+Artículo 7.—Invalidez. La actuación de funcionarios en los que concurran motivos de abstención implicará la nulidad de los actos en que hayan intervenido y, además, dará lugar a las responsabilidades disciplinarias, pecuniarias y de cualquier otro orden que legalmente procedan conforme al resultado del proceso ordinario disciplinario que al efecto se deberá tramitar.
