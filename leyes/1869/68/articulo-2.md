@@ -1,0 +1,1 @@
+Art 2° Se rebaja el aumento de cinco centavos por botella, con que el artículo 2° de la ley de 25 de junio de 1868, recargó los licores compuestos destilados en la Fábrica Nacional y la de la Barranca.
