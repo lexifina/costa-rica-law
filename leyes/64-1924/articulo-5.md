@@ -1,0 +1,1 @@
+Artículo 5°-El arrendamiento se estipulará por cinco años, con derecho de tanteo al terminar el período, en favor del arrendatario anterior, quien gozará de preferencia en igualas de condiciones a las contenidas en la mejor postura

@@ -1,0 +1,1 @@
+Artículo 10.-El arrendatario se obliga a emplear en su empresa operarios del país en las mismas condiciones que a los extranjeros hasta en un veinticinco por ciento. Cuando no se llene tal porcentaje por falta de personal nacional, cada escafandra llevará en su equipo por lo menos dos costarricenses.

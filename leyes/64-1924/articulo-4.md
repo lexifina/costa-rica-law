@@ -1,0 +1,1 @@
+Artículo 4°-El arrendatario se obligará a instalar diez escafandras modernas el primer año; quince el segundo; veinte el tercero; veinticinco el cuarto, y treinta el quinto año, que será el máximum de escafandras permitidas.
