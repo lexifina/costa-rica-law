@@ -1,0 +1,1 @@
+Artículo 7º—La asignación de los fondos de la Caja Chica se hará al funcionario que designe el Área Administrativa-Financiera, quien será responsable del uso correcto de estos fondos ante el Coordinador Administrativo-Financiero. En su ausencia se nombrará un nuevo encargado que recibirá la caja previo arqueo.

@@ -1,0 +1,1 @@
+Artículo 14.—El Coordinador Administrativo y Financiero, solicitará a BANCRÉDITO, administrador del Fideicomiso Nº 25-02, reintegrar al Fondo los recursos utilizados una vez que haya recibido y revisado los documentos que justifiquen los desembolsos y la necesidad de reintegrar al fondo el monto gastado, que serán remitidos a BANCRÉDITO.

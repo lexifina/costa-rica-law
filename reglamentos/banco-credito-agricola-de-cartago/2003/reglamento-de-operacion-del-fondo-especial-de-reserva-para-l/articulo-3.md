@@ -1,0 +1,1 @@
+Artículo 3º—El monto asignado al Fondo será de ¢50.000,00 y podrá ser variado de acuerdo a las necesidades del Área de Desarrollo Científico y Tecnológico, para lo cual deberá contar con la autorización de la Secretaría Ejecutiva del CONICIT.

@@ -1,0 +1,1 @@
+Artículo 11.—Todo adelanto de dinero, deberá ser liquidado en un plazo máximo de tres días hábiles posteriores a la finalización de la actividad que originó el gasto. El funcionario que tenga pendiente una liquidación no podrá solicitar otro anticipo hasta tanto no liquide el anterior.

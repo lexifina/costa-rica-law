@@ -1,0 +1,2 @@
+Artículo 17.—Al funcionario que incumpla con alguna de las disposiciones de este reglamento, y se le compruebe alguna anomalía relacionada con la administración o uso de fondos, se le aplicará en lo que corresponda lo estipulado en el Reglamento Autónomo de Organización y Servicios del CONICIT, capítulo IX, del régimen disciplinario.
+Aprobado Comité Especial de Crédito en acta Nº 1, artículo I celebrada el 24 de febrero del 2003 y visto bueno de la Auditoría Interna y Asesoría Legal, según nota Ref.: 01-H-003-2003.

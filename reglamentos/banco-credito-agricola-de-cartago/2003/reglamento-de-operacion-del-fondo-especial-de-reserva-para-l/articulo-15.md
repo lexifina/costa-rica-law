@@ -1,0 +1,1 @@
+Artículo 15.—BANCRÉDITO, en calidad de administrador del Fideicomiso Nº 25-02, procederá a reintegrar en un plazo no mayor de tres días hábiles a partir de la solicitud a que se refiere el artículo 14.
