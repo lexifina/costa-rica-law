@@ -7,11 +7,9 @@ Hospital, ubicada en el cantón Central de la provincia de Cartago e
 inscrita en el Registro Público de la Propiedad, en el folio real
 mecanizado No. 3-104775-000. Sus linderos son: Norte, calle pública; Sur,
 propiedad de José Manuel Roldán y río El Molino; Este, calle Zopilota y
-Oeste, propiedad de la Sucesión de José Oreamuno y río El Molino. El
-Instituto traspasará la propiedad a las familias que, según el censo del
-Ministerio de Vivienda y Asentamientos Humanos, se ubicarán en el proyecto
-de vivienda Jesús Jiménez, al cual se trasladarán los asentamientos del
-sector Norte de Los Diques de Cartago.
+Oeste, propiedad de la Sucesión de José Oreamuno y río El Molino.
+El Instituto traspasará la propiedad a las familias que, en la actualidad, se ubican en
+el proyecto de vivienda Manuel de Jesús Jiménez."
 La adjudicación y el traspaso de los lotes a los beneficiarios
 finales tendrán, como condición, destinar el inmueble al Régimen de
 Patrimonio Familiar y serán supervisados por el Instituto Mixto de Ayuda
@@ -20,3 +18,4 @@ cedida ni traspasada a terceros hasta tanto no hayan transcurrido diez
 años de la presente autorización. Se exceptúan de esta regulación las
 operaciones de los adjudicatarios con los entes autorizados del Sistema
 Nacional Financiero de la Vivienda.
+(Así reformado por el artículo único de la Ley N° 7985 del 16 de febrero del 2000)
