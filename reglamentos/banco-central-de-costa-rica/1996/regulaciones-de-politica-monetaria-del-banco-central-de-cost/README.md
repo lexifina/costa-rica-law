@@ -18,3 +18,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 3 | 1996-07-10 | Reglamento 4878 (1996-07-10) |
 | 4 | 1996-11-05 | Reglamento 4896 (1996-11-05) |
 | 5 | 1997-01-22 | Acuerdo 4904 (1997-01-22) |
+| 6 | 1997-04-02 | Reglamento 4908 (1997-04-02) |
