@@ -1,0 +1,1 @@
+Artículo 7°—Ningún conductor de la Institución está autorizado a efectuar arreglos extrajudiciales en caso de accidentes de tránsito, únicamente debe indicarle al conductor del o los vehículos involucrados, que se apersonen o comuniquen con el Departamento Administrativo del Instituto, para efectuar las gestiones correspondientes.

@@ -1,0 +1,1 @@
+Artículo 21.—Todo vehículo asignado como de uso discrecional en el Instituto Costarricense de Turismo no podrá ser considerado bajo ninguna circunstancia como salario en especie o algún otro derecho laboral.

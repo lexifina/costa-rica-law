@@ -1,0 +1,1 @@
+Artículo 27.—El Departamento Administrativo cuenta para la asignación del vehículo con la flotilla propia del Instituto, pero si las circunstancias no se lo permitieran, podrá gestionar con las empresas arrendadoras de vehículos con contrato turístico, él o los vehículos necesarios para el diario desempeño del Instituto, debiendo quedar documentada dicha acción.

@@ -1,0 +1,1 @@
+Artículo 26.—El Departamento Administrativo, una vez recibida la solicitud de vehículo debidamente llena y firmada por el Jefe de la Unidad solicitante, debe en el transcurso de los cinco días posteriores, asignar el vehículo correspondiente, teniendo en cuenta las prioridades institucionales en cuanto a plazo y tipo de labor.

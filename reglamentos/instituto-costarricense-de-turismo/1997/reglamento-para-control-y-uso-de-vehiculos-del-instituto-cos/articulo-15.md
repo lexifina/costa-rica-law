@@ -1,0 +1,1 @@
+Artículo 15.—Sin excepción, ningún vehículo de uso administrativo podrá ser utilizado sin la autorización correspondiente o sin la presentación previa de la solicitud de uso de vehículo debidamente firmada y aprobada.

@@ -1,0 +1,1 @@
+Artículo 16.—La Gerencia en casos de acentuada necesidad de servicio, podrá asignar vehículos de uso administrativo, por tiempo determinado a dependencias regionales, los vehículos asignados de conformidad con este artículo estarán bajo la responsabilidad de los encargados de cada dependencia y sujetos a los controles establecidos para el resto de la flotilla.

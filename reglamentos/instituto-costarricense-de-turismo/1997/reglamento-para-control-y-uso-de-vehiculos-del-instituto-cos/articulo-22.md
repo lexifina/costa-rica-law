@@ -1,0 +1,1 @@
+Artículo 22—Los vehículos del ICT, tendrán prioridad de aparcamiento en los estacionamientos de la Institución, propios o arrendados, con respecto a los vehículos propiedad de los funcionarios o visitantes.

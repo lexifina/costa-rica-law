@@ -1,0 +1,1 @@
+Artículo 13.—Los vehículos de uso administrativo son aquellos de propiedad o al servicio del Instituto, destinados para el servicio regular de transporte y solo podrán ser usados en las funciones que específicamente se les asigne en cada oportunidad. En ningún caso podrán utilizarse en actividades no oficiales del ICT.

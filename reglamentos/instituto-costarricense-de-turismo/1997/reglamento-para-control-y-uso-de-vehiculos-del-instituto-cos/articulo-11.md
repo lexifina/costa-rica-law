@@ -1,0 +1,7 @@
+CAPITULÓ QUINTO
+De la Comisión Institucional de Análisis de Accidentes de Tránsito
+Artículo 11.—Con el propósito de realizar un análisis de los casos que por accidentes de tránsito sufran los vehículos del Instituto, o que estén al servicio de éste, se conforma la Comisión Institucional de Análisis de
+Accidentes de Tránsito, con un representante de la Dirección Administrativa Financiera, uno de la Dirección Legal y la jefatura del Departamento Administrativo la cual tendrá las siguientes funciones:
+a) Admitir y analizar todo expediente que, sobre accidentes de tránsito ocurridos a los vehículos del Instituto o al servicio de este, le remita el Departamento Administrativo.
+b Recomendar la apertura de una cuenta por cobrar al conductor involucrado en un accidente de tránsito por los gastos relacionados con la reparación correspondiente. Asimismo, ordenar su reversión cuando se produzca el reintegro del Instituto Nacional de Seguros o, cuando determine que no existe responsabilidad del conductor, asumiendo en este caso la Institución cualquier diferencia en los gastos incurridos.
+c) Rendir un informe a la Gerencia con copia al funcionario involucrado, con la recomendación respectiva, la que, si no es compartida por el conductor, podrá apelarse dentro del tercer día hábil, ante la Gerencia aportando las pruebas que estime convenientes. Concluido el procedimiento, se tomará la resolución correspondiente por la Gerencia.
