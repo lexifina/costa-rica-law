@@ -23,3 +23,4 @@ Reglamento de la Asamblea Legislativa
 | 8 | 2001-12-10 | Reglamento 0 (2001-12-10) |
 | 9 | 2002-11-28 | Reglamento 0 (2002-11-28) |
 | 10 | 2003-05-07 | Reglamento 0 (2003-05-07) |
+| 11 | 2003-05-15 | Reglamento 6108 (2003-05-15) |
