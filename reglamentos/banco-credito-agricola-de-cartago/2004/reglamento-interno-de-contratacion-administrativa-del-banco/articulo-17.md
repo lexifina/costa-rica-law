@@ -1,0 +1,1 @@
+Artículo 17.—La Proveeduría entregará al responsable designado en el artículo anterior, copia de la orden de compra o contrato y toda aquella información relacionada con los deberes y obligaciones de las partes contratantes (cartel y la oferta, entre otros). El responsable deberá mantener el expediente de ejecución contractual debidamente ordenado y custodiado.

@@ -1,0 +1,1 @@
+Artículo 4º—La Gerencia General instruirá a la Proveeduría en lo pertinente, cuando se requiera tramitar contrataciones y/o remates que requiera la Junta Directiva General, designando a la vez la unidad responsable de darle seguimiento a la contratación. El acto de inicio de la contratación y los actos posteriores, se regirán por lo dispuesto en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 11.—Las reparaciones de mobiliario y equipo de oficina, las reparaciones mecánicas o de carrocería de vehículos, podrán contratarse directamente con sujeción al rol establecido del Registro de Proveedores o con el representante autorizado de la marca, cuando la naturaleza del servicio así lo requiera.
