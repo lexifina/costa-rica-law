@@ -1,0 +1,1 @@
+Art. 8° De esta patente se dejará conocimiento en un libro, que al efecto ha de llevar con separaciones, por el órden de distritos, cantones y provincias la oficina de su procedencia, y se tomará tambien razon en la contaduria mayor en otro libro especial, haciendose constar en la propia patente haberse llenado este requisito, sin el cual aquella es nula y de ningun valor.

@@ -1,0 +1,1 @@
+Art. 20. Cuando faltare en un plantío el cartel que previene el art. 9° de este décreto, es un deber del que advierta dicha falta, dar parte al Gobernador de la Provincia, para que esté haga las correspondientes averiguacianes y tome las providencios que convengan.

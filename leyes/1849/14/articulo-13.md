@@ -1,0 +1,1 @@
+Art. 13. El Intendente dará á la vez á los comisionados copia de los conocimientos relativos à los plantíos de la Provincia que se les encomienda, y los comisionados informarán al Intendente, de la conformidad inconformidad de dichos plantios con los conocimientos enunciados, para que se proceda á lo que haya lugar.

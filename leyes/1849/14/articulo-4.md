@@ -1,0 +1,1 @@
+Art. 4. Esta se ha de hacer desde la publicación del presente decreto hasta el dia 20 de junio en el corriente año, y en los sucesivos desde el 1° de enero hasta fin de febrero. Pasado el término respectivo no podrá admitirse solicitud; ni antes de que dicho término se cumpla, espedirse patente alguna.
