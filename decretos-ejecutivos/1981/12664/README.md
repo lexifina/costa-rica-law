@@ -14,3 +14,4 @@ Reforma Concede a los artesanos y pequeños industriales la exoneración del 100
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-06-02 | la propia norma |
+| 2 | 1983-04-28 | Decreto Ejecutivo 14487 (1983-04-28) |
