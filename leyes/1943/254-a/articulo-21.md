@@ -1,1 +1,0 @@
-Artículo 21.—Cada Directiva de filial se dará su reglamento el cual debe ajustarse estrictamente a los fines de la Asociación sin que :t da estar en desacuerdo con esos estatutos. Una vez aprobado debe transcribirse a la Directiva General.
