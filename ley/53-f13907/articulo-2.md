@@ -1,0 +1,3 @@
+Art 2° De nuevo se recomienda al Supremo Poder Ejecutivo lleve a efecto lo dispuesto por el Congreso en el artículo 4 del decreto n°30 de 30 de julio del año próximo pasado, referente al número y valor de las letras giradas sobre Londres a otras plazas y los motivos que hayan originado la confusión que aparece en la cuenta correspondiente, informado oportunamente con el resultado como allí se previene.
+Al Poder Ejecutivo. - Dado en el Salón de Sesiones, Palacio Nacional, San José, julio veintinueve de mil ochocientos setenta y seis.
+Palacio Nacional, San José, agosto primero de mil ochocientos setenta y seis.
