@@ -1,0 +1,1 @@
+Artículo 10.-A los emigrados ó desterrados políticos puede el Ejecutivo prohibir la residencia en determinados lugares. Si quebrantaren la prohibición serán expulsados sin más requisito que la comprobación del hecho, y sin recurso de ningún género.

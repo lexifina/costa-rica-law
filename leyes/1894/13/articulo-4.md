@@ -1,0 +1,1 @@
+Artículo 4°.-El decreto de expulsión se notificará personalmente al expulso por medio de cualquier autoridad de policía. La que lo haga, pondrá razón del acto, con expresión del día y hora en que se practique la diligencia, y firmará ésta con un testigo.

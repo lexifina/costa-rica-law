@@ -1,0 +1,2 @@
+Artículo 7°.-Si por motivo independiente de la voluntad del Tribunal, pero imputable al recurrente no recayere resolución en el término antes dicho ó si esa resolución fuere adversa al expulso ó si no se interpusiere en tiempo el recurso, se llevará á cabo la expulsión.
+Pero en el primer caso, queda derecho al expulsado para hacer que la tramitación del recurso continúe, dejando apoderado, y si fuera ya del país recayere resolución favorable, podrá regresar libremente á la República.

@@ -1,0 +1,1 @@
+Artículo 8°.-La expulsión se verificará, sea dando al expulso una carta de itinerario para que la observe por sí solo, sea conduciéndolo por medio de la policía al puerto que indique, para que allí se embarque con dirección al punto de su elección, en el plazo que el Ejecutivo señale.

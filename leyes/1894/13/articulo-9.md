@@ -1,0 +1,1 @@
+Artículo 9°.-El expulso á quien se encuentre de nuevo en el territorio de la República será condenado por ese simple hecho á un arresto que durará de quince días á seis meses. Al expirar el plazo de la condena, será llevado al puerto que elija el Poder Ejecutivo y embarcado en el primer buque que se dé á la mar.
