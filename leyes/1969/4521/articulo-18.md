@@ -1,1 +1,3 @@
-Artículo 18.-Deróganse los Decretos Ejecutivos Nº 3 de 2 de diciembre de 1907, Nº 7 de 13 de diciembre de 1920, el Decreto-Ley Nº 383 de 15 de febrero de 1949, el Reglamento de Centros Agrícolas Cantonales y Agrónomos Regionales publicado en "La Gaceta" Nº 158 del 16 de julio de 1949 y el Decreto Ejecutivo Nº 5 de 17 de julio de 1960.
+Artículo 18.- Se confiere a los Centros Agrícolas Cantonales la capacidad y personería jurídica suficientes para el mejor cumplimiento de los fines que esta ley persigue.
+El Presidente de cada uno de dichos organismos tendrá la representación judicial y extrajudicial con las facultades que para el apoderado generalísimo determina del Código Civil.
+(Así adicionado por el artículo 1° de la ley N° 5320 del 17 de agosto del 1973)
