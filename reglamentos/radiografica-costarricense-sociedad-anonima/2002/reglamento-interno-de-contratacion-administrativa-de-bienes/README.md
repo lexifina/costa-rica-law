@@ -14,3 +14,4 @@ Reglamento Interno de Contratación Administrativa de Bienes y Servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-27 | la propia norma |
+| 2 | 2003-11-11 | Reglamento 0 (2003-11-11) |
