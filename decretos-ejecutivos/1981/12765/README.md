@@ -14,3 +14,4 @@ Reforma Parque Nacional Palo Verde Provincia de Guanacaste
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-07-16 | la propia norma |
+| 2 | 2003-11-18 | Decreto Ejecutivo 31591 (2003-11-18) |

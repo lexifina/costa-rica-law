@@ -12,3 +12,4 @@ Considerando:
 7°—Que de conformidad con los citados fundamentos legales y el criterio expresado por la Procuraduría General de la República, los terrenos de propiedad particular no pueden ser tenidos legalmente como parte integrante de un parque nacional mientras tales terrenos no sean comprados o expropiados por el Estado.
 DECRETAN
 Artículo 1°— Dejar sin efecto el Decreto Ejecutivo N° 11541-A, de 13 de junio de 1980, salvo en cuanto a la finca N° 34388, inscrita al tomo 2327, folio 525, asiento 5, de aproximadamente 2 440 hectáreas, y a la cual se hace referencia en el considerando tercero de este decreto, y que será adquirida por el Estado y constituye el Parque Nacional Palo Verde.
+(Derogado parcialmente por el artículo 3 del decreto ejecutivo N°31591 del 18 de noviembre del 2003 "... únicamente en cuanto a la definición de los límites del área silvestre protegida, manteniéndose vigente las demás disposiciones").
