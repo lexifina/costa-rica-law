@@ -1,0 +1,2 @@
+Artículo 75.—De conformidad con lo dispuesto en los artículos 214 literal b) y 221 del Código de Trabajo, la Municipalidad deberá notificar al INS. de cualquier riesgo y accidente de trabajo que sufran sus servidores dentro de los ocho días hábiles siguientes al de su acaecimiento. Dicha notificación deberá ajustarse a las formalidades que establece el artículo 222 del citado cuerpo legal.
+Las jefaturas están obligadas el mismo día a verificar y reportar a Documentación y Tramite la ocurrencia de un accidente o riesgo laboral.

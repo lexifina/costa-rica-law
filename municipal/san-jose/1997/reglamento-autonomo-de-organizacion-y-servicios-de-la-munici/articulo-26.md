@@ -1,0 +1,1 @@
+Artículo 26.—En todo caso las plazas vacantes podrán ser llenadas atendiendo lo señalado en el artículo 51 Convencional; dichas plazas podrán se ocupadas en forma interina por la persona designada para ello. mientras se realiza el concurso interno, hasta por el término de dos meses, período que podrá ser prorrogado atendiendo las circunstancias particulares del mismo.

@@ -1,0 +1,1 @@
+Artículo 84.—Los funcionarios con grado académico de licenciado, podrán acogerse al pago por concepto de Dedicación Exclusiva o Disponibilidad, según las disposiciones legales vigentes en esa materia; sin embargo, es potestad de la administración el otorgar o no ese beneficio.

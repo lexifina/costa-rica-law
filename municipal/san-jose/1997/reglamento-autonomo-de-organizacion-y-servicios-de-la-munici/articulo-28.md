@@ -1,0 +1,3 @@
+Artículo 28.— Los contratos de trabajo se harán: uno para la Municipalidad y otro para el trabajador, y así satisfacer los requerimientos del artículo 143 del Código de Trabajo.
+No obstante lo anterior, se presume la existencia del contrato de Trabajo entre la Municipalidad y quienes prestan sus servicios personales en forma subordinada y a cambio de una retribución económica o salario de cualquier clase o forma.
+Los contratos de trabajo de nombramiento y cesación de servicios ser harán uno para la Municipalidad y otro para el trabajador, el cuál contara con un plazo de cinco días hábiles para su estudio y firma.

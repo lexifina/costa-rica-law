@@ -1,0 +1,1 @@
+Artículo 143.—La potestad sancionatoria Institucional prescribirá conforme lo dispuesto en el artículo 603 del Código de Trabajo, es decir, a partir del día en que la Dirección de Recursos Humanos tenga conocimiento de haber ocurrido la falta, quedan a salvo las faltas contra el patrimonio Municipal, que prescribirán al término de dos años de conocida.

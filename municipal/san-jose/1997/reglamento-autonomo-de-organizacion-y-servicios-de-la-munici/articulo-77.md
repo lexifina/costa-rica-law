@@ -1,0 +1,1 @@
+Artículo 77.—La incapacidad para trabajar por motivos de maternidad, se pagará durante los cuatro meses que señala el artículo 95 del Código de Trabajo, reconociendo la diferencia que exista entre el total de su salario y lo que pague la CCSS.

@@ -1,0 +1,1 @@
+Artículo 58.—La concesión de un asueto la dispone el Concejo Municipal de conformidad con la ley. lo que será hecho del conocimiento de los trabajadores por el Ejecutivo Municipal. Por lo mismo no constituye, en caso alguno, un derecho que los servidores puedan reclamar como derecho adquirido.

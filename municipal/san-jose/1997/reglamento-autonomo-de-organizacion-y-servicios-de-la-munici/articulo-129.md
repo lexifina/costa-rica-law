@@ -1,0 +1,1 @@
+Artículo 129.—Las sanciones descritas en este capítulo, serán aplicadas por la Dirección Ejecutiva a través de la Dirección de Recursos Humanos, conforme al procedimiento que establece la Convención y artículo 154 Código Municipal.

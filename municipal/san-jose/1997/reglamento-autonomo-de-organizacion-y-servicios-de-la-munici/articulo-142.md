@@ -1,0 +1,10 @@
+Artículo 142.—El procedimiento o instrucción disciplinaria atenderá los siguientes pasos:
+a- Las jefaturas deberán reportar a la Dirección de Recursos Humanos, las faltas en que incurran sus subalternos, dentro de los tres días hábiles siguientes en que estas sean de su conocimiento.
+b- Toda denuncia deberá ser presentada por escrito y. contener una relación circunstanciada de los hechos, indicación del o los servidores participantes, fechas, lugares y otros datos de interés. El denunciante deberá aportar y ofrecer las pruebas en que fundamenta su denuncia.
+c- La Sección de Relaciones Laborales, hará una prevaloración de la falta reportada para determinar su naturaleza, circunstancias y gravedad y establecer la necesidad o no de iniciar una investigación.
+d- Establecida la falta y definida la sanción correspondiente, de ser esta suspensión sin goce de salario o despido sin responsabilidad patronal, la Sección de Relaciones Laborales, procederá a comunicarla al trabajador conforme el procedimiento establecido en los artículos 154 y 155 del Código Municipal.
+e- Si el trabajador apelara la intención de sanción, la Sección de Relaciones Laborales, atenderá los plazos establecidos en el artículo 30 Convencional para elevar el caso ante la Junta.
+f- Si el trabajador no apelara el propósito de sanción comunicado la Sección de Relaciones Laborales elevara el expediente del caso ante la Junta, en un plazo no mayor de quince días contados a partir del último día en que aquel pudo presentar dicha apelación.
+g- La Junta, conocerá los propósitos de sanción y emitirá su recomendación para ante el Ejecutivo Municipal, quien comunicara por escrito al trabajador lo procedente.
+h- Contra las sanciones recomendadas por la Junta, el trabajador podrá interponer los recursos ordinarios de revocatoria y apelación, para ante la Dirección Ejecutiva.
+i- La Dirección Ejecutiva a través de la Dirección de Asuntos Legales. atenderá y responderá dichos recursos dentro del plazo establecido por el Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 134.—Se sancionara con amonestación escrita por primera vez a la jefatura que incumpla con lo dispuesto en los numerales 9 y 10 del artículo 104: y con ocho días de suspensión en caso de reincidencia: de repetirse nuevamente dicha situación se sancionara con el despido sin responsabilidad patronal.

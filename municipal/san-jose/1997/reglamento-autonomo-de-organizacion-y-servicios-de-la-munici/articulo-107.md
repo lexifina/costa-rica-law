@@ -1,0 +1,1 @@
+Artículo 107.—Se considera como ausencia, la inasistencia injustificada al trabajo durante la jornada laboral completa. La inasistencia injustificada durante una fracción de la jornada laboral se computara como la mitad de una ausencia. En todo caso, no se pagara el salario que corresponde, a las ausencias injustificadas.

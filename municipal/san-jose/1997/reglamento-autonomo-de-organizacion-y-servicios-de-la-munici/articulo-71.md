@@ -1,0 +1,1 @@
+Artículo 71.—Conforme lo dispone la legislación laboral, la Municipalidad establecerá la Comisión de Salud Ocupacional. integrada con igual número de representantes institucionales y de los servidores. cuya finalidad específica será investigar las causas de los riesgos del su competencia se cumplan las disposiciones en materia de Salud Ocupacional.

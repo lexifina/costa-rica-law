@@ -1,0 +1,1 @@
+Artículo 59.—Las vacaciones son incompensables. No obstante. cuando se diesen los supuestos previstos en el artículos 156 y 159 del Código de Trabajo, la Dirección Ejecutiva, previa recomendación de Recursos Humanos, con base en la solicitud de la jefatura respectiva y debidamente justificada, podrá autorizar la compensación en dinero efectivo, de vacaciones no disfrutadas.

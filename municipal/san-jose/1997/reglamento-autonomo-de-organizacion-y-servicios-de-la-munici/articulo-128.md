@@ -1,0 +1,1 @@
+Artículo 128.—Suspensión por tres días cuando el funcionario sea calificado en la tercera evaluación del desempeño con un concepto de malo. en caso de reincidencia en la siguiente evaluación se sancionará con suspensión de ocho días sin goce de salario.
