@@ -9,7 +9,8 @@ Considerando:
 Decretan:
 Artículo 1º—Se integra la Comisión Nacional para la Gestión de la Biodiversidad con los siguientes miembros:
 1. Miembros propietarios:
-a) Señor Manuel Antonio Bolaños Salas, representante del Ministro del Ambiente y Energía, quien será el Presidente de la Comisión y responsable de su adecuado funcionamiento.
+a) Señor Allan Flores Moya, representante del Ministro del Ambiente y Energía, quien será el presidente de la Comisión y responsable de su adecuado funcionamiento.
+(Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 b) Señor Raúl Solórzano Soto, Director Superior del Sistema Nacional de Áreas de Conservación.
 c) Señor Alfredo Bolaños Herrera, representante del Ministerio de Agricultura y Ganadería.
 d) Señora Rosy Carballo Picado, representante de la Ministra de Salud.
@@ -17,18 +18,22 @@ e) Señora Susana Vásquez Álvarez, representante del Ministro de Comercio Exte
 f) Señor Carlos Hernández Porras, representante de la Asociación Mesa Nacional Campesina.
 g) Señor Reynaldo González Segura, representante de la Asociación Mesa Nacional Indígena.
 h) Señor Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y Acuacultura.
-i) Señora Ana María Fallas Quesada, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+i) Señora Mariela Herrera Morera, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+(Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 j) Señor Daniel Briceño Lobo, representante de la Comisión Nacional de Rectores.
 k) Señor Isaac Rojas Ramírez, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
 2. Miembros suplentes:
-a) Señora Laura Montero Ramírez, representante del Viceministro del Ambiente y Energía.
+a) Señor Daniel León Núñez, representante del Viceministro del Ambiente y Energía.
+(Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 b) Señora Lesbia Sevilla Estrada, representante del Director Superior del Sistema Nacional de Áreas de Conservación.
-c) Señor Nevio Bonilla Morales, representante del Ministro de Agricultura y Ganadería.
+c) Señor Carlos Cordero Morales, representante del Ministro de Agricultura y Ganadería.
+(Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 d) Señor Jorge Mena Arce, representante del Ministro de Salud.
 e) Señora Tatiana Mora Rodríguez, representante del Ministro de Comercio Exterior.
 f) Señor Rafael Salazar Murillo, representante de la Asociación Mesa Nacional Campesina.
 g) Señor Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
 h) Señora Ana Rita Vásquez Arias, representante del Instituto Costarricense de Pesca y Acuacultura.
-i) Señora Mariela Herrera Morera, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+i) Señora Irina Ramos Arrocha, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+(Así REFORMADO por el artículo 1° del Decreto Ejecutivo N° 31501 del 08 de octubre de 2003, publicado en La Gaceta N° 235 de 05 de diciembre de 2003.)
 j) Señor Ruperto Quesada Monge, representante de la Comisión Nacional de Rectores.
 k) Señor Carlos Luis Sandí Chinchilla representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
