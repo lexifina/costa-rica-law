@@ -1,0 +1,1 @@
+Artículo 7º—El local destinado al Archivo Central, debe reunir las condiciones necesarias que garanticen la conservación óptima de los documentos. Según la zona del país, el clima. Se tendrán en cuenta: El grado de humedad relativa del aire, temperatura, polución, luz insectos; además de adoptarse medidas técnicas para la extinción y prevención de incendios y robos.

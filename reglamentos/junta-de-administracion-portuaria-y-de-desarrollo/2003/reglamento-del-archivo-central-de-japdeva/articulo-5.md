@@ -1,0 +1,1 @@
+Artículo 5º—El Archivo Central de la Junta de Administración Portuaria y Desarrollo Económico de la Vertiente Atlántica (JAPDEVA), estará a cargo de un profesional con formación universitaria y contará con el personal capacitado, necesario para su buen funcionamiento.

@@ -1,0 +1,1 @@
+Artículo 27.—Si a los quince días no hay devolución, ni justificación por escrito se les otorgará ocho días más, de no tener respuesta será notificado a la Gerencia Portuaria para que se inicien los trámites del debido proceso.

@@ -1,0 +1,1 @@
+Artículo 26.—Podrán solicitar expedientes y otros documentos en calidad de préstamo, los jefes de las unidades de JAPDEVA, los que no podrán ser retenidos por más de quince días plazo, que puede prorrogarse previa justificación por escrito indicando el tiempo necesario de la unidad respectiva que la solicite.

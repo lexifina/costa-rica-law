@@ -1,0 +1,1 @@
+Artículo 18.—La conservación y custodia de los documentos de valor permanente y la eliminación de aquellos que lo han pedido se realizará de acuerdo a la legislación vigente y la normativa concreta que regule la eliminación en el Archivo Central.

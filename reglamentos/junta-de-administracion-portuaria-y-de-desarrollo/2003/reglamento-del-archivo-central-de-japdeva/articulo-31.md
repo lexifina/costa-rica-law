@@ -1,0 +1,1 @@
+Artículo 31.—La oficina que produce un documento por medios electrónicos, tiene la responsabilidad de producirlo y resguardado en el Archivo de gestión, en el momento que concluya su vida administrativa enviarla al Archivo General para su debida conservación.

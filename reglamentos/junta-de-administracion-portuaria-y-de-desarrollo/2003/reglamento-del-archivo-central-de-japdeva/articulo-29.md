@@ -1,0 +1,1 @@
+Artículo 29.—Cualquier ciudadano interesado en consultar documentos lo debe realizar en el mismo Archivo con un horario de 8: 00 a 4:00 p.m. el cual debe firmar en el libro de actas que para tales casos pondrá a su disposición el Archivo, en este libro deberá constar la fecha y hora; así como el tipo de servicio brindado.
