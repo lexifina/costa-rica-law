@@ -20,3 +20,4 @@ Reglamento de los riesgos de enfermerdad y maternidad
 | 5 | 1974-07-12 | Reglamento 4813 (1974-07-12) |
 | 6 | 1975-05-14 | Reglamento 4900 (1975-05-14) |
 | 7 | 1979-03-22 | Reglamento 5305 (1979-03-22) |
+| 8 | 1987-04-30 | Reglamento 6113 (1987-04-30) |
