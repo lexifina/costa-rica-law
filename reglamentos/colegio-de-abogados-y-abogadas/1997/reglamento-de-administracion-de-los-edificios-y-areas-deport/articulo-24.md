@@ -1,0 +1,2 @@
+Artículo XXIV.-Responsabilidad Civil, Solidaridad
+Independientemente de la sanción a que se refiere el artículo 14), cualquier persona, colegiado o no, que produjere un daño en los bienes del Colegio, deberá resarcirlo junto con los perjuicios, según detalle o liquidación que deberá elaborar la Dirección Ejecutiva, siendo responsable solidario el Colegiado, que haya permitido su ingreso al Colegio.
