@@ -1,0 +1,2 @@
+Articulo 28.—De la fijación de la fecha de remate. El abogado deberá remitir nota con una anticipación no menor de una semana, al equipo de la Unidad de Gestión de Cobro a fin de informarle la resolución mediante la cual se fijó fecha para remate del bien.
+El abogado será el responsable de gestionar la publicación del edicto en el diario oficial asi como de cotejar la información del edicto a efecto, de verificar su contenido para gestionar cualquier rectificación que sea necesaria con el propósito de evitar nulidades y dilaciones procesales.

@@ -1,0 +1,2 @@
+Articulo 3°- De los alcances del presente Reglamento. Todo el trámite de determinación de tributos a favor del IMAS, así como las gestiones de cobro administrativo o judicial de dichos tributos morosos se regirán por las disposiciones del presente Reglamento.
+Corresponderá a la Comisión Institucional de Cobro determinar las disposiciones de alcance general aplicables ante una situación concreta no prevista en el presente reglamento, a fin de que la Unidad de Gestión de Cobro proceda a su implementación.

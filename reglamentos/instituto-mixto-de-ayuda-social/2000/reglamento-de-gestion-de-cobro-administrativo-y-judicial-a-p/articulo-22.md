@@ -1,0 +1,1 @@
+Articulo 22.—De los poderes. Los representantes legales del IMAS podrán otorgar poder especial judicial a los abogados, para la mejor dirección de los procesos. Para dichos efectos deberán suscribir el documento respectivo.

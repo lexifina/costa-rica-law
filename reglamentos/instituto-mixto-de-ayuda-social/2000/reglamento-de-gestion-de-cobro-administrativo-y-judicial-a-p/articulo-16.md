@@ -1,0 +1,1 @@
+Artículo 16.—De la remisión a cobro judicial. Transcurrido el término indicado en el articulo anterior y si el deudor no realizarse el pago “o formalizare arreglo de pago se procederá a remitir de inmediato el monto de lo adeudado a cobro judicial.

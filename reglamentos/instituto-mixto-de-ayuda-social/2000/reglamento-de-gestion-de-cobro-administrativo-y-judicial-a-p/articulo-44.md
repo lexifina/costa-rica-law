@@ -1,0 +1,3 @@
+Articulo 44.—De la responsabilidad de los abogados. Los abogados serán responsables de cualquier daño o perjuicio que causen a los intereses institucionales o de terceros por una actuación u omisión realizada con dolo, culpa, negligencia, imprudencia o impericia con motivo de la dirección de un proceso de cobro asignado por la Institución.
+Para efecto de determinar el daño se aplicará el procedimiento ordinario establecido en la Ley General de la Administración Pública,
+Toda sanción aplicada Igual o superior a suspensión, la Unidad de Gestión de Cobro deberá comunicar al Colegio de Abogados para la respectiva sanción disciplinaria.

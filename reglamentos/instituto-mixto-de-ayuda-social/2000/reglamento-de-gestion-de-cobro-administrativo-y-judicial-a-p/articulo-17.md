@@ -1,0 +1,1 @@
+Articulo 17.—De la notificación. La notificación de los tributos adeudados que se realice, para efectos de cobro administrativo, contendrá los requisitos mínimos establecidos para la determinación de tributos.

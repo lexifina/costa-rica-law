@@ -1,0 +1,2 @@
+Artículo 50.—De la procedencia del arreglo de pago. Procederá el arreglo de pago en toda aquella gestión de cobro administrativo o judicial, en la cual el deudor moroso lo solicite al equipo de la Unidad de Gestión de Cobro y éste apruebe un plan de pagos. De ninguna manera podrán condonarse intereses, parte del capital, multas o recargos.
+Todo arreglo de pago cobrará una tasa de interés no menor que la tasa básica pasiva para los certificados del Banco Nacional de Costa Rica.

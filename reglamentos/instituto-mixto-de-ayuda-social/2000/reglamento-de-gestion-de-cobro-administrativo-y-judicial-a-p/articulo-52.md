@@ -1,0 +1,1 @@
+Artículo 52.—De la suspensión provisional del juicio. En caso de que la operación se encuentre en cobro judicial, pudra suspenderse provisionalmente el tramite judicial por un periodo igual al establecido en el arreglo de pago sin perjuicio de activar el trámite en cualquier momento por incumplimiento del deudor.

@@ -1,0 +1,1 @@
+Articulo 7°—Del funcionamiento de la Comisión Institucional de Cobro. Para su funcionamiento, la Comisión institucional de Cobro se regirá por lo dispuesto en la Ley General de la Administración Pública y este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 15.—Responsabilidad de cumplimiento de los requerimientos. La Unidad de Gestión de Cobro será responsable de controlar que se cumpla con el requerimiento dentro del plazo estabIecido en el presente reglamento, con el propósito de trasladarlo para el proceso de cobro judicial, en caso de que el obligado no atienda los requerimientos referidos.

@@ -1,0 +1,1 @@
+Transitorio III,— Mientras no es emitida un reglamento especifico, la Unidad de gestión de cobro podrá aplicar lo dispuesto en el artículo 60 y concordantes para aquellas operaciones incobrables originadas en créditos de vivienda o socio productivos del IMAS,

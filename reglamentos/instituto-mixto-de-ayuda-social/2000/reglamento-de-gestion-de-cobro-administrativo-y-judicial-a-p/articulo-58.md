@@ -1,0 +1,2 @@
+Articulo 58.—De la suspensión del juicio. Presentado el recibo de pago por parte del deudor y habiendo formalizado la nueva garantía, si fuere necesario, el equipo de la Unidad de Gestión de Cobro remitirá instrucciones al Abogado director del proceso para que proceda a enviar por escrito el desistimiento ante el Juzgado respectivo.
+No se pagará la fracción correspondiente de honorarios al abogado, hasta tanto éste no presente copia que haga constar la presentación del documento ante la instancia judicial, asi como la garantía solicitada.

@@ -1,0 +1,1 @@
+Articulo 13. — De la emisión de la certificación de lo adeudado. Una vez resuelto el recurso de apelación, o si la empresa no se opusiere en el término establecido, la Unidad de Gestión de Cobro procederá a emitir certificación de lo adeudado a efecto de proceder al cobro administrativo y Judicial,

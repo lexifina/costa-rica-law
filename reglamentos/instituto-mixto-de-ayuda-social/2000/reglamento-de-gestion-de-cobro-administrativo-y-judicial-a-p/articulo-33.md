@@ -1,0 +1,3 @@
+CAPITULO CUARTO
+Del sistema de pago de honorarios
+Articulo 33.—Del pago de los honorarios a los profesionales. El equipo de la Unidad de Gestión de Cobro será la responsable del cálculo y tramite de pago de los honorarios profesionales a devengar por los abogados, de conformidad con el Arancel de Profesional en Derecho vigente al momento de la interposición de la demanda ante los juzgados correspondientes. Corresponderá a los obligados y a los agentes retenedores cubrir dichos costos por concepto de costas cuando se logre la recuperación de lo adeudado ya sea por diligencia judicial o extrajudícial.

@@ -1,0 +1,1 @@
+Articulo 46.—De la suspensión definitiva del proceso. La suspensión definitiva del proceso significará la orden de finalización del proceso y solo podrá realizarse si se cancela la totalidad de la deuda, junto con jntereses, multas y honorarios y gastos legales, o si el obligado o agente retenedor sujeto de ejecución formaliza un arreglo extrajudicial garantizado.

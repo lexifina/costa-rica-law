@@ -1,0 +1,2 @@
+Articulo 12.— De la resolución administrativa. Interpuestos los respectivos recursos, el funcionario responsable de la Unidad de Gestión de Cobro deberá resolver el reclamo dentro del término de ocho días hábiles a partir su recibo, pronunciándose respecto de cada uno de los aspectos impugnados por el deudor de la obligación tributaria.
+Del recurso de apelación se dará traslado ante la Gerencia General del IMAS, con el fin de que emita resolución dentro de los quince días hábiles posteriores a su notificación.

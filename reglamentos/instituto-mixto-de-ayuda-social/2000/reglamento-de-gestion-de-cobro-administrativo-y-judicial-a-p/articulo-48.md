@@ -1,0 +1,1 @@
+Articulo 48.—De la actuación del abogado en los procesos sucesorios y de quiebra o insolvencia. La Unidad de Gestión de Cobro deberá remitir las instrucciones respecto de la actuación general del ahogado en el proceso, junto con la garantía y otra documentación anexa, en procura de la debida tutela de loa intereses institucionales.

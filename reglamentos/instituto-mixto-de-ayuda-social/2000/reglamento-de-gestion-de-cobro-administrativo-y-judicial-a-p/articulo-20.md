@@ -1,0 +1,9 @@
+Artículo 20.—De las obligaciones generales de los abogados. Serán obligaciones generales de los abogados externos encargados de la dirección de los procesos de cobro judicial de la Institución:
+a) Suscribir un contrato de servicios profesionales con la administración, en el cual se estipulen las obligaciones y derechos de las partes y el compromiso del profesional de cumplir con las disposiciones y procedimientos del presente reglamento.
+b) Dirigir con la mayor diligencia y celeridad los procesos ejecutivos que Te sean asignados.
+c) Cumplir las disposiciones del presente reglamento.
+d) Remitir, en los términos establecidos los informes que detallen las gestiones realizadas en cada cobro que al efecto le sean solicitados por parte de la Unidad de Gestión de Cobro.
+e) La devolución oportuna de todo aquel documento en su poder que ya no le sea necesario para la dirección de un proceso ejecutivo.
+f) Informar al equipo de la Unidad de Gestión de Cobro cuando se traslade de oficinas o se vaya a ausentar de ellas por un término superior a cinco días hábiles. En el caso en que se diere una ausencia del abogado, superior a los cinco días hábiles, éste deberá indicar por escrito, el Profesional en derecho que queda temporalmente a cargo de los juicios que le hayan sido asignados; entendiéndose que la actuación de éste lo vincula a él para efectos de control y seguimiento de la unidad responsable del IMAS.
+g) Informar al equipo de gestión de cobro del Departamento o Equipo de Gestión de Cobro, si se presentara alguna circunstancia de hecho o derecho que imposibilitare al abogado para la dirección de uno o varios de tos juicios sometidos a su cargo.
+h) En caso de que el deudor o Agente Retenedor quisiera un arreglo extrajudicial con el abogado, éste ultimo debe de enviar al deudor a la Unidad de Gestión de Cobro para el arreglo de pago.

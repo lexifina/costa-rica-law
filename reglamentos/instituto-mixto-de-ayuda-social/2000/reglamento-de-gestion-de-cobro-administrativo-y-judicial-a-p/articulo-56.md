@@ -1,0 +1,1 @@
+Articulo 56.—De los gastos. En los de arreglos de pago o readecuaciones de deuda, además del capital e intereses adeudados, deberán cobrarse íntegramente los gastos administrativos en que se haya incurrido, los cuales no serán interiores a un 2% de la estimación de la deuda.

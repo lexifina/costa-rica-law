@@ -1,0 +1,2 @@
+Articulo 27.- De la inexistencia de bienes. El abogado deberá comunicar al equipo de gestión de cobro de la Unidad de Gestión de Cobro, la inexistencia de bienes y derechos embargables a efecto de que esta unidad resuelva si procede declarar la obligación como incobrable o iniciar los procesos de quiebra o insolvencia ante el correspondiente órgano jurisdiccional.
+A la comunicación el abogado adjuntará las certificaciones correspondientes que demuestren ia inexistencia de bienes inmuebles embargables.

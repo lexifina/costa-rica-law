@@ -1,0 +1,1 @@
+Articulo 19.—De la contratación de los abogados. El IMAS contratará a los Abogados externos encargados de incoar y dirigir los procesos ejecutivos para el cobro judicial, de conformidad con los mecanismos y procedimientos establecidos para la contratación de servicios profesionales previstos en la Ley de Contratación Administrativa.

@@ -1,0 +1,2 @@
+Artículo 61.—De los gastos incurridos. En el caso de aquellos créditos tributarios que se determinen como incobrables y cuando no exista posibilidad de que el agente retenedor u obligado cancele cualquiera de los gastos originados por concepto del cobro administrativo o judicial, correrá por cuenta de la Institución cubrir lo correspondiente a su costo y el de lo honorarios respectivos.
+Igual situación sucederá cuando el respectivo obligado o agente retenedor demuestre encontrarse al día en el pago del respectivo tributo ante la Unidad de Gestión de Cobro.

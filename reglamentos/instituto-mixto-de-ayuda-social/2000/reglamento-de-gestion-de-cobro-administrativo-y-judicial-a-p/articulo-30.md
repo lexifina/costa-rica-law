@@ -1,0 +1,1 @@
+Articulo 30.—De la información del resultado del remate. El abogado deberá informar el resultado del remate al responsable de la unidad de gestión de cobro, dentro de los cinco días hábiles siguientes a la fecha prevista para la realización del remate. En caso de que no se efectuare deberá solicitar por escrito se le indique la gestión que debe realizar.

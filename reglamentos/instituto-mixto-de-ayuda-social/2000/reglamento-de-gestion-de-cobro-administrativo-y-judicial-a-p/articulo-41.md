@@ -1,0 +1,1 @@
+Articulo 41.—De la continuación de los procesos en caso de suspensión. El abogado deberá continuar con la misma diligencia los procesos asignados con anterioridad a la suspensión y que se encuentren presentados ante el correspondiente órgano jurisdiccional, en caso de que resulte suspendido en la asignación de nuevos procesos.

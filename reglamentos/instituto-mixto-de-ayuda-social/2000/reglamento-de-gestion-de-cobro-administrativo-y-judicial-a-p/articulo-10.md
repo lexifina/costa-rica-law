@@ -1,0 +1,3 @@
+Articulo 10.—Del traslado de la determinación de la obligación tributaria. La Unidad de Gestión de Cobro trasladará a la empresa una notificación en donde se le comunicará la resolución administrativa de la determinación del tributo.
+La notificación deberá ser entregada en el domicilio fiscal de la empresa, y deberá contar con el texto integro de la resolución administrativa en que se determine el tríbulo.
+Formará parte integral de la respectiva resolución, el estado de cuenta de la correspondiente operación, el cual deberá contener al menos el monto, recargos meses adeudados por el obligado o agente retenedor.
