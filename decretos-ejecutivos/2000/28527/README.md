@@ -14,3 +14,4 @@ Reglamento de los Consejos Regionales de Ciencia y Tecnología.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-23 | la propia norma |
+| 2 | 2000-03-23 | Ley 7 |
