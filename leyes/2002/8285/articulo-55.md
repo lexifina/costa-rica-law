@@ -1,0 +1,1 @@
+Artículo 55.—Esta Ley reconoce el Congreso Nacional del Sector Arrocero como un foro válido para el Gobierno de la República, conformado por productores y agroindustriales de arroz y sus organizaciones, para abordar asuntos, de cualquier índole, que afecten la actividad arrocera de Costa Rica.

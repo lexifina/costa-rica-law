@@ -1,0 +1,1 @@
+Artículo 39.—Las importaciones de arroz en granza realizadas según el artículo 37 de la presente Ley, serán distribuidas a los agroindustriales que así lo soliciten, por el CNP o, en su defecto, por la Corporación, con base en las compras de la producción nacional realizadas por estos en el año arrocero inmediato anterior.

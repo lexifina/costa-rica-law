@@ -1,0 +1,2 @@
+Artículo 9º—Podrán participar en la Asamblea, con voz y voto, únicamente los delegados de los agroindustriales electos en la Asamblea de Agroindustriales y los delegados de los productores electos en la Asamblea Nacional de Productores.
+Los miembros acreditarán su personería con las certificaciones y credenciales que, para cada sesión, les expedirán las Juntas Regionales, en el caso de los productores, y la Asamblea de Agroindustriales en el caso de estos.

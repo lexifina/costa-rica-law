@@ -1,0 +1,1 @@
+Artículo 29.—A fin de comprobar los datos de las informaciones aludidas en el artículo anterior, la Corporación podrá realizar los chequeos que estime pertinentes. Para ello, sus funcionarios tendrán acceso a la documentación de los agroindustriales y a sus inventarios físicos.

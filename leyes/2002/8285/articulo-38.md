@@ -1,0 +1,1 @@
+Artículo 38.—El CNP o, en su defecto, la Corporación Arrocera, podrán participar en las exportaciones de arroz en tanto los estudios técnicos demuestren la existencia de excedentes en el país. En la medida de lo posible, se distribuirá el monto de lo exportable en forma proporcional a las existencias de la Corporación y los agroindustriales.

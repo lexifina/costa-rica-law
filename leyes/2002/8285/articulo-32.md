@@ -1,0 +1,1 @@
+Artículo 32.—El productor de arroz venderá su cosecha a la agroindustria, la cual pagará con base en rendimiento de molino, calidad molinera, humedad e impurezas, que se determinarán mediante análisis de laboratorio según las normas de calidad establecidas por la Corporación Arrocera.

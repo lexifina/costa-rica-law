@@ -1,0 +1,1 @@
+Artículo 17.—El quórum de la Junta Directiva será formado por seis de sus miembros. Sesionarán ordinariamente una vez al mes, como mínimo, y en forma extraordinaria, cuando sea necesario; sin embargo, solo se reconocerán dietas por un máximo de cuatro sesiones al mes.

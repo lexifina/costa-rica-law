@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Exportación e Importación
+Artículo 37.—Una vez decretada la declaratoria de desabastecimiento, el Estado, por medio del Consejo Nacional de Producción (CNP), o en su defecto, la Corporación, realizará la importación de arroz, con una tarifa arancelaria reducida. El MAG determinará la cantidad y los períodos de importación de arroz en granza al menos con tres meses de anticipación, tomando en cuenta la recomendación de la Corporación.
+Las importaciones de arroz en granza realizadas según el párrafo anterior, serán distribuidas por el CNP o, en su defecto, por la Corporación Arrocera, mediante la negociación correspondiente con los agroindustriales, la cual establecerá y definirá en proporción a las compras de arroz que estos hayan realizado a los productores nacionales de arroz en el año arrocero inmediato anterior, y en función de ellas.
+El decreto de desabastecimiento de arroz que se promulgue, deberá especificar la partida y la subpartida, así como el inciso arancelario, la tarifa arancelaria reducida y el plazo dentro del cual deberán realizarse las importaciones.

@@ -1,0 +1,3 @@
+Artículo 10.—La Asamblea General será presidida, alternativamente, un año por un delegado de los productores de arroz y otro año por un delegado de los agroindustriales; también se alternará la vicepresidencia conforme a lo anterior.
+El presidente y el vicepresidente serán elegidos por la Asamblea General en su primera sesión ordinaria y ejercerán sus funciones durante el año económico correspondiente. El vicepresidente sustituirá al presidente en sus ausencias temporales.
+En caso de renuncia o muerte, se procederá a convocar a una asamblea extraordinaria, con el fin de suplir las vacantes correspondientes.
