@@ -1,0 +1,14 @@
+N° 24774-SP
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE SEGURIDAD PUBLICA
+En uso de las facultades que les confiere el artículo 140 inciso 8) de la Constitución Política y el artículo 28 párrafo 2 inciso a), b) de la Ley General de la Administración Pública.
+Considerando:
+1°- Que la Ley General de Policía en su artículo 49 establece los requisitos que deben cumplir los interesados para el ingreso y nombramiento en las fuerzas de policía.
+2°- Que en atención a la disposición normativa anterior en el Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Seguridad Pública, decreto ejecutivo N° 23880-SP del seis de diciembre de 1994, en el artículo 4 se dispuso lo siguiente: "Para ingresar a los distintos cuerpos de policía del Ministerio de Seguridad Pública, se requiere estar incluido en la lista de elegibles que para tal efecto elabore la Dirección de Recursos Humanos.
+Además de los requisitos contemplados en el artículo 49 de la Ley, se requerir llenar la oferta de servicios con todos los datos solicitados, indicando a que cuerpo policial desea ingresar; aportar 2 cartas de recomendación y aprobar el test psicológico".
+3°- Que de conformidad con los postulados de la Ley General de Policía, se busca alcanzar un alto grado de profesionalización en las fuerzas de policía, dotando a dichos cuerpos policiales de funcionarios que sean aptos para el puesto a desempeñar. Para alcanzar tal objetivo se hace necesario que los criterios de clasificación y selección de personal guarden un estricto apego con nuestro ordenamiento jurídico y se lleven a cabo obedeciendo a criterios objetivos, que permitan evaluar las aptitudes e idoneidad de los oferentes para el cargo.
+4°- Que algunos de los requisitos establecidos en el articulo 4° del Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Seguridad Pública, no contribuyen a determinar la idoneidad en forma objetiva de los oferentes para el puesto. Por tanto,
+DECRETAN:
+ARTICULO 1°- Modifíquese el artículo 4 del Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Seguridad Pública, para que su texto se lea de la siguiente forma:
+"Artículo 4°.- Para ingresar a los distintos cuerpos de policía del Ministerio de Seguridad Pública, se requiere estar incluido en la lista de elegibles que para tal efecto elabore la Dirección de Recursos Humanos. Además de los requisitos contemplados en el artículo 49 de la Ley, se requerirá llenar la oferta de servicios con todos los datos y aprobar el test psicológico y todas aquellas pruebas para demostrar su idoneidad para el cargo.
+La Dirección de Recursos Humanos por medio de la sección respectiva, velar porque los oferentes cumplan a cabalidad los requisitos citados y porque el nombramiento de los servidores se ejecute en estricto apego a criterios objetivos."
