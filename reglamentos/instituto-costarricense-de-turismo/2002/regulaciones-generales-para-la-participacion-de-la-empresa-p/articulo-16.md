@@ -1,0 +1,1 @@
+Artículo 16.—El Instituto no aceptará ni distribuirá folletería dentro del área de ninguna empresa que no haya pagado su cuota de participación, salvo lo dispuesto en el artículo 21 de este reglamento.

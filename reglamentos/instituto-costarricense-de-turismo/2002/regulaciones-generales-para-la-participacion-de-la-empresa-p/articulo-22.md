@@ -1,0 +1,1 @@
+Artículo 22.—Deróguese el reglamento denominado "Las Regulaciones Generales para las participaciones de la empresa privada en las Ferias Internacionales", publicado en La Gaceta Nº 87 del 8 de mayo de 1997 y sus modificaciones.

@@ -1,0 +1,4 @@
+Artículo 9º—Posterior a la designación, las empresas elegidas deberán realizar el pago de la cuota de participación en los plazos que se indiquen por parte del Departamento de Promoción.
+En las fechas que indique el Departamento de Promoción, se deberá realizar un depósito inicial correspondiente a un 20% del monto de la cuota, o bien una garantía de cumplimiento, de las aceptadas en la Ley de Contratación Administrativa, que cubra ese 20%. Con un mes de anticipación a la realización de la feria, se deberá depositar el monto restante de la cuota de participación.
+En caso de que la empresa cancele su participación, se retendrá el 20% de la suma depositada, o bien, se ejecutará la garantía de cumplimiento en caso de que se hubiere rendido.
+Cuando el Instituto decida cancelar la participación a una feria, se devolverá el monto de dinero depositado o la garantía de cumplimiento según corresponda.

@@ -1,0 +1,1 @@
+Artículo 20.—Las empresas participantes que incurran en violaciones a lo dispuesto en la presente regulación o hayan obtenido una evaluación negativa, no podrán participan en el siguiente evento inscrito e igualmente el Instituto podrá valorar la aplicación de otras sanciones, dependiendo de la gravedad de la falta de conformidad con las reglamentaciones vigentes.

@@ -1,0 +1,1 @@
+Artículo 19.—El Departamento de Promoción preparará, en un plazo de treinta días desde la finalización del evento, un informe técnico sobre los resultados obtenidos, que contenga la correlación entre lo estimado y lo logrado, de acuerdo a las metas, objetivos y estrategias previamente establecidas.

@@ -1,0 +1,1 @@
+Artículo 10.—Con el fin de lograr maximizar las ventas del país en cada feria, el Departamento de Promoción designará los espacios específicos que se requieran dentro del área asignada en cada evento.
