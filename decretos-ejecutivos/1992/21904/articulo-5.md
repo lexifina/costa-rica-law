@@ -1,0 +1,1 @@
+Artículo 5°—Se ratifica que las fincas declaradas como Reserva Indígena por el artículo 6° del decreto 10706-G del 24 de octubre 1979 publicado en "La Gaceta" N° 210 de 8/11/1979, son parte de la Reserva Indígena Cabécar de Bajo Chirripó.

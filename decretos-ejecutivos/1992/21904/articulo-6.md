@@ -1,0 +1,1 @@
+Artículo 6°—Todas las disposiciones tomadas en Decretos anteriores relativas a la Reserva Indígena Cabécar de Chirripó y no contrarias a las establecidas, en el presente Decreto, quedan vigentes, en particular los artículos 5°, 6° a 9°, 10°, 11°, 12°, 13°, 14° y 15° del Decreto 13391-G-A de 26/2/1982, "La Gaceta" N° 50 de viernes 12 de marzo de 1982.
