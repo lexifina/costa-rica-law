@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario de la República para el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-29 | la propia norma |
+| 2 | 2003-09-08 | Decreto Ejecutivo 31364 (2003-09-08) |
