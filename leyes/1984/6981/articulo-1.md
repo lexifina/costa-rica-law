@@ -1,5 +1,7 @@
 (Derogado)
 LEY Nº 6981
+La presente norma ha sido DEROGADA TÁCITAMENTE EN SU TOTALIDAD por el artículo 63 de la Ley N° 7629 de 26 de Septiembre de 1996,
+Ley del Tratado General de Integración Económica Centroamericana (Guatemala) Protocolo de Guatemala.
 PRÓRROGA DE LA APLICACIÓN DE LOS PROTOCOLOS AL CONVENIO
 CENTROAMERICANO DE INCENTIVOS FISCALES
 AL DESARROLLO INDUSTRIAL
