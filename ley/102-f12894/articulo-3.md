@@ -1,0 +1,1 @@
+Art. 3. Grabada que sea asì la buena moneda macuquina, de cuya calificacion debe llevarse cuenta por los Ministros de la citada casa, circulará legalmente, y cualquiera persona que se resista á recibirla, queda sujeta á lo que para el caso dispone el artículo de la ley de 4 de noviembre del año próximo pasado.
