@@ -1,0 +1,1 @@
+Artículo 3°—Para aplicar la anterior tabla de tarifas y poder prestar el servicio público de transporte de grúa, los permisionarios deberán cumplir obligatoriamente con las disposiciones especiales establecidas en el artículo 99 de la Ley de Tránsito por Vías Públicas Terrestres N° 7331.
