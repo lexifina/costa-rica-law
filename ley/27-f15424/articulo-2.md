@@ -1,0 +1,2 @@
+Art 2° Para tener derecho a la subvención de que habla el artículo anterior, es indispensable que el Cura sea nombrado directamente para dicha Parroquia y tenga en ella fija su residencia.
+Al Poder Ejecutivo. Dado en el Salón de Sesiones, Palacio Nacional, San José mayo veintidós de mil ochocientos setenta y seis. Palacio Nacional, San José, mayo veintisiete de mil ochocientos setenta y seis. Ejecútese.
