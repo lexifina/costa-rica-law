@@ -1,0 +1,1 @@
+Artículo 3º—Para la ejecución de los Programas Nacionales Sectoriales, se contará con un Programa Presupuestario en el Ministerio de Agricultura y Ganadería y se formará un Equipo de Apoyo, dirigido por un Coordinador Técnico. En el nivel regional se contará con el apoyo de los Comités Sectorial Regionales Agropecuarios.
