@@ -1,0 +1,1 @@
+Art. 3 Este nuevo impuesto se destinará única y exculsivamente a la ensenanza primaria de la juventud, en todas partes, á juicio de las Municipalidades de los Cantones; y con tal intento los Tesoreros de propios les presentarán por fin de mes un cuadro del ingreso de dicho impuesto, que en ningun caso ni por via de empréstito, puede aplicarse á otro objeto que el que se menciona.
