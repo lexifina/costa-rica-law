@@ -1,0 +1,1 @@
+Artículo 8°-- Los estados extranjeros sólo podrán adquirir en el territorio de la República, sobre bases de reciprocidad, los inmuebles necesarios para sede de sus representaciones diplomáticas, sin perjuicio de lo que establezcan los convenios internacionales.

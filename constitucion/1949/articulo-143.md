@@ -1,0 +1,2 @@
+Artículo 143.-La función del Ministro es incompatible con el ejercicio de todo otro cargo público, sea o no de elección popular, salvo el caso de que leyes especiales les recarguen funciones. Son aplicables a los Ministros las reglas, prohibiciones y sanciones establecidas en los artículos 110, 111 y 112 de esta Constitución, en lo conducente.
+Los Vicepresidentes de la República pueden desempeñar Ministerios.

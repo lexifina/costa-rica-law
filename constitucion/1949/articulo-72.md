@@ -1,0 +1,1 @@
+Artículo 72.--EI Estado mantendrá, mientras no exista seguro de desocupación, un sistema técnico y permanente de protección a los desocupados involuntarios, y procurará la reintegración de los mismos al trabajo.

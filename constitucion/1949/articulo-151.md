@@ -1,0 +1,1 @@
+Artículo 151. -El Presidente, los Vicepresidentes de la Republica o quien ejerza la Presidencia, no podrán ser perseguidos, ni juzgados sino después de que, en virtud de acusación interpuesta, haya declarado la Asamblea Legislativa haber lugar a formación de causa penal.

@@ -1,0 +1,1 @@
+Artículo 193. -El Presidente de la República, los Ministros de Gobierno y los funcionarios que manejen fondos públicos, están obligados a declarar sus bienes, los cuales deben ser valorados, todo conforme a la ley.

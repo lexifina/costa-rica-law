@@ -1,0 +1,1 @@
+Artículo 169, -La administración de los intereses y servicios locales en cada cantón, estará a cargo del Gobierno Municipal, formado de un cuerpo deliberante, integrado por regidores municipales de elección popular, y de un funcionario ejecutivo que designará la ley.

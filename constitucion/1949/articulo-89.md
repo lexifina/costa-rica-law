@@ -1,0 +1,1 @@
+Articulo 89.--Entre los fines culturales de la República están: proteger las bellezas naturales, conservar y desarrollar el patrimonio histórico y artístico de la Nación, y apoyar la iniciativa privada para el progreso científico y artístico.

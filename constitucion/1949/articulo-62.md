@@ -1,0 +1,1 @@
+Artículo 62.-- Tendrán fuerza de ley las convenciones colectivas de trabajo que, con arreglo a la ley, se concierten entre patronos o sindicatos de patronos y sindicatos de trabajadores legalmente organizados.

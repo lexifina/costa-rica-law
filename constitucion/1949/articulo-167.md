@@ -1,0 +1,1 @@
+Artículo 167.-Para la discusión y aprobación de proyectos de ley que se refieran a la organización o funcionamiento del Poder Judicial, deberá la Asamblea Legislativa consultar a la Corte Suprema de Justicia; para apartarse del criterio de ésta, se requerirá el voto de las dos terceras partes del total de los miembros de la Asamblea.

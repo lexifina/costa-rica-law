@@ -1,0 +1,1 @@
+Artículo 186.-La Tesorería está a cargo de un Tesorero Nacional y un Subtesorero. Ambos funcionarios gozan de independencia en el ejercicio sus atribuciones, las cuales serán reguladas por la ley. Los nombramientos se harán en Consejo de Gobierno, por períodos de cuatro años, y sólo podrán ser removidos estos funcionarios por justa causa.

@@ -1,0 +1,1 @@
+Artículo 11.-- Los funcionarios públicos son simples depositarios de la autoridad y no pueden arrogarse facultades que la ley no les concede. Deben estar juramento de observar y cumplir esta Constitución y las leyes. La acción para exigirles la responsabilidad penal de sus actos es pública.

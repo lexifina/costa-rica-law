@@ -1,0 +1,1 @@
+Artículo 83.-El Estado patrocinará y organizará la educación de adultos, destinada a combatir el analfabetismo y a proporcionar oportunidad cultural a aquéllos que deseen mejorar su condición intelectual, social y económica.

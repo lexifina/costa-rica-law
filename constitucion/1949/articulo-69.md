@@ -1,0 +1,1 @@
+Articulo 69.-- Los contratos de aparcería rural serán regulados con el fin de asegurar la explotación racional de la tierra y la distribución equitativa de sus productos entre propietarios y aparceros.

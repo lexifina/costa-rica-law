@@ -1,0 +1,1 @@
+Artículo 113.-La ley fijará la remuneración de los Diputados. Los aumentos que se acordaren no entrarán en vigencia sino después de que hayan cesado en sus funciones los miembros de la Asamblea en que hubieran sido aprobados.
