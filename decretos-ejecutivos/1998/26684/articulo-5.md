@@ -1,0 +1,1 @@
+Artículo 5°- Las dependencias del Sector Público y del Sector Privado, podrán contribuir con recursos económicos y técnicos, en la medida de sus posibilidades, y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de las actividades indicadas.
