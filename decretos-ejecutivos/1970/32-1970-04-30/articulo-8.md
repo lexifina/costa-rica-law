@@ -1,0 +1,1 @@
+Artículo 8° Todos los empleados que manejen fondos en las Dependencias de correos y Radiotelegráficas, deben garantizar su responsabilidad con una póliza de fidelidad del Instituto Nacional de Seguros por la suma de diez mil colones.

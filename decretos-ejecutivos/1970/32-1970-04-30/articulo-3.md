@@ -1,0 +1,1 @@
+Artículo 3° Asimismo, establécese una Proveeduría para el Correo y otra para el Telégrafo, que tendrán a su cargo el control de las existencias y suministro de los materiales y útiles de oficina. Dependerán jerárquicamente de cada uno de sus respectivos Directores generales.

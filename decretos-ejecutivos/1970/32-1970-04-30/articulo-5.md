@@ -1,0 +1,1 @@
+Artículo 5° La Sección de Contabilidad de la Dirección General de Telégrafos, tendrá además una subsección u oficina de Visación de Telegramas para el control de los ingresos por ese concepto. En cuanto a sus registros contables deberá igualmente ajustarse a las disposiciones legales.
