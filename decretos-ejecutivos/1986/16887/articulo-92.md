@@ -1,0 +1,7 @@
+ARTICULO 92.- Las solicitudes de permisos de portación, inscripción,
+importación, comercialización de armas permitidas y su munición y los de
+importación, comercialización, fabricación y exportación de explosivos
+permitidos, así como el de importación de materias primas para la
+fabricación de explosivos denegadas por el Departamento, deberán ser
+puestas en conocimiento del interesado mediante resolución escrita y
+debidamente razonada por éste.

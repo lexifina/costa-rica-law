@@ -1,0 +1,7 @@
+ARTICULO 5º.- El jerarca representante de los entes estatales
+autorizados por la ley o por otras leyes especiales para la tenencia, uso,
+portación o importación de armas, deberán de informar cada 15 de enero y
+15 de julio al Departamento, la cantidad, el tipo y el estado de todas las
+armas que tengan bajo su custodia. Para tal efecto deberán llevar un
+inventario técnico, permanente y actualizado de las mismas, en la tarjeta
+de registro que el Departamento indique.

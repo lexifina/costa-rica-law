@@ -1,0 +1,10 @@
+ARTICULO 83.- La solicitud de permiso de instalación de dispositivos
+de seguridad a base de gas lacrimógeno que se instalen en cajas de
+seguridad y establecimientos que requieren especial protección, debe
+formularse ante el Departamento por el interesado o en solicitud
+debidamente autenticada por un abogado, en papel sellado de un colón,
+acompañada de un timbre fiscal de dos colones. La solicitud deberá indicar
+las calidades del petente, dirección exacta, lugar o ubicación donde va a
+ser instalado el dispositivo de seguridad y su contenido de gas, así como
+las razones que justifiquen la medida y adjuntar según corresponda
+fotocopia de la cédula de identidad, personería o cédula jurídica.

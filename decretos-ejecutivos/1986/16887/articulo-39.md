@@ -1,0 +1,6 @@
+ARTICULO 39.- El permiso de fabricación de explosivos permitidos con
+fines de pirotecnia o industriales u otros afines, faculta al negocio
+comercial según el tipo de permiso que posea, para fabricar y vender a la
+industria y comercio debidamente registrado ante el Departamento y
+exportar dichos explosivos, así como para importar la materia prima para
+su fabricación, conforme con los trámites propios de cada caso.

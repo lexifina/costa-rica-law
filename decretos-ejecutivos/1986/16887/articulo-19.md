@@ -1,0 +1,7 @@
+ARTICULO 19.- Para efectos del registro, inventario y control
+estricto de las armas en poder del Estado y sus instituciones, el
+Departamento contará con un Registro de Armas, técnicamente elaborado y
+permanentemente actualizado. Este Registro será de carácter estrictamente
+confidencial y estará basado entre otros, en todos los informes de
+inventarios que remitan los entes estatales autorizados por ley, para
+comprar, importar, poseer, portar y usar armas.

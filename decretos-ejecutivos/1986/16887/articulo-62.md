@@ -1,0 +1,14 @@
+ARTICULO 62.- El trámite regular de importación de materias primas
+para la fabricación de explosivos permitidos por negocios comerciales
+autorizados se regirá por el siguiente procedimiento:
+a) Que por cada importación se presente ante el Departamento la
+solicitud de permiso respectiva, en papel sellado de un colón, acompañada
+de un timbre fiscal de dos colones. En la solicitud se indicarán: nombre
+del establecimiento comercial, dirección exacta, teléfono, personería y
+número de cédula jurídica y patente comercial y número de permiso de
+fabricación de explosivos. Además deberán indicarse las características,
+cantidad y procedencia de las materias primas, sistema de traslado y lugar
+de desalmacenaje y almacenaje de los mismos.
+b) Que el Departamento cuente con los informes actualizados del
+establecimiento sobre las importaciones de materias primas, venta y
+exportación de explosivos permitidos y existencias en bodegas.

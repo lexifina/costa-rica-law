@@ -1,0 +1,6 @@
+ARTICULO 10.- Queda prohibido en forma absoluta como arma, el uso, la
+producción o introducción al país de gases, compuestos químicos, virus o
+bacterias tóxicas o letales que produzcan consecuencias físicas o mentales
+irreversibles, no así a los destinados con fines de investigación
+científica cuyo manejo queda bajo la absoluta responsabilidad de las
+instituciones u organismos competentes.

@@ -1,0 +1,4 @@
+ARTICULO 87.- El permiso a que se refiere el artículo 44 del presente
+Reglamento, será cancelado cuando con dicha arma se cometa un delito en
+los términos del artículo 110 del Código Penal y ésta caiga en comiso en
+favor del Estado.

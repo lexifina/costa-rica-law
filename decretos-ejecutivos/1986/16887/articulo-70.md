@@ -1,0 +1,20 @@
+ARTICULO 70.- La solicitud de inscripción de armas de colección,
+entendiéndose como éstas las clasificadas como permitidas y que tengan
+algún valor histórico o estético con no menos de 40 años de construidas,
+debe formularse ante el Departamento por el interesado o en solicitud
+debidamente autenticada por un abogado, en papel sellado de un colón,
+acompañada de un timbre fiscal de dos colones. La solicitud deberá indicar
+las calidades y domicilio del petente y todos los datos necesarios para
+identificar las piezas objeto de la solicitud, declarando que se trata de
+armas de colección. Deberá además adjuntar según corresponda: la factura
+de compra, póliza de desalmacenaje o cartaventa. En caso de no poseerse
+alguno de estos documentos se deberá indicar en la solicitud las razones
+que lo justifiquen; dos fotografías recientes tamaño pasaporte, fotocopia
+de la cédula de identidad o residencia asimismo, cuando se trate de
+personas jurídicas deberán presentar: certificación de personería jurídica
+y fotocopia de la cédula jurídica. En ambos casos deben adjuntar
+fotografía a color de cada arma y presentar o disponer a solicitud del
+Departamento, el o las armas respectivas par la debida inspección o
+identificación. Deberá además declarar el lugar donde permanecerán. La
+identificación y clasificación como armas de colección, queda sujeta a
+criterio técnico del Departamento.

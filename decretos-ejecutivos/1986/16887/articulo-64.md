@@ -1,0 +1,14 @@
+ARTICULO 64.- La solicitud de permiso de compra de explosivos
+permitidos y sus aditamentos para fines industriales, agrícolas o
+similares, debe formularla el interesado personalmente o en solicitud
+debidamente autenticada por un abogado ante el Departamento, en papel
+sellado de un colón, acompañada de un timbre fiscal de dos colones. En la
+solicitud se indicarán según corresponda: nombre y calidades del
+comprador, dirección exacta, teléfono, personería y número de cédula
+jurídica, número de permiso de venta de explosivos y adjuntar fotocopia de
+la cédula jurídica, patente comercial o cédula de identidad. Debe contener
+además la solicitud las características de los explosivos y sus
+aditamentos, a quien se le van a comprar, cómo se van a trasladar, dónde
+se van a almacenar y las medidas de seguridad de ambos procesos. Se deberá
+adjuntar además, certificación de la inspección ocular efectuada por la
+autoridad competente, del lugar donde van a ser utilizadas.

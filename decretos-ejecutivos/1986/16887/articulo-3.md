@@ -1,0 +1,7 @@
+ARTICULO 3º.- Créase el Departamento de Control de Armas y Explosivos
+como una dependencia del Ministerio, que estará bajo el mando de un jefe,
+que ocupará cargo de confianza de nombramiento del Ministro. Tendrá como
+función el control y fiscalización de las disposiciones de la ley y el
+presente Reglamento y tendrá a su cargo las Secciones de Control de Armas
+y Explosivos, Inspección de Armamento, Arsenal Nacional, Museo y Registro
+de Armas.

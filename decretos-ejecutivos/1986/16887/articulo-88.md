@@ -1,0 +1,6 @@
+ARTICULO 88.- Los permisos que señalan los artículos 34, 38, 47 y 58
+del presente Reglamento podrán ser renovados por períodos iguales,
+observándose el mismo trámite de la primera vez o vez anterior e indicando
+en la solicitud que se trata de renovación. En el caso de permiso especial
+de portación de armas, deberán agregar además un timbre policial de ¢
+20,00.

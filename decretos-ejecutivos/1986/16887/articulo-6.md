@@ -1,0 +1,4 @@
+ARTICULO 6º.- Los particulares autorizados por el Departamento para
+la tenencia, uso, portación o importación de armas deberán suministrar al
+Departamento, para efectos de control y fiscalización, la información que
+requiera y en el momento en que éste lo solicite.

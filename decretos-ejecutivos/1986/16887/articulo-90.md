@@ -1,0 +1,5 @@
+ARTICULO 90.- En caso de duda sobre la clasificación de algún arma
+como prohibida o permitida, el Departamento formulará la consulta
+respectiva a la Procuraduría General de la República, detallando todas las
+características del arma para su plena identificación y sustentará su
+decisión en el pronunciamiento de esa Procuraduría.

@@ -1,0 +1,11 @@
+ARTICULO 57.- La solicitud de inscripción anual de establecimientos
+comerciales para la venta de explosivos permitidos y sus aditamentos en el
+país, deberá formularse ante el Departamento personalmente por el
+interesado o debidamente autenticada por un abogado, en papel sellado de
+un colón, acompañada de un timbre fiscal de dos colones. En la solicitud
+se indicarán: nombre del establecimiento comercial, dirección exacta,
+teléfono, personería y número de cédula jurídica, adjuntándose las
+certificaciones correspondientes y fotocopia de la patente comercial.
+Deberán indicarse además las medidas de seguridad del establecimiento, el
+lugar de almacenaje de los explosivos y sus aditamentos y la ubicación de
+los archivos de registro y documentos de los mismos.

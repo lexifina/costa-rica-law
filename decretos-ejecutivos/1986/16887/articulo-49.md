@@ -1,0 +1,5 @@
+ARTICULO 49.- El permiso de compra de armas por turistas, faculta al
+interesado para adquirir en el país, armas permitidas en los
+establecimientos autorizados. Tales armas serán exclusivamente para uso
+fuera del país, y para su traslado se guardarán descargadas y separadas de
+su munición.

@@ -1,0 +1,13 @@
+ARTICULO 55.- Toda persona física que desee, ocasionalmente ingresar
+directamente un arma permitida al país, deberá obtener, previo al trámite
+de desalmacenaje del arma, autorización del Departamento. Para tal efecto
+deberá presentar personalmente, solicitud de permiso de importación ante
+el Departamento, en papel sellado de un colón, acompañada de un timbre
+fiscal de dos colones. En la solicitud se indicarán: nombre y calidades
+del interesado, dirección exacta, teléfono, cantidad, tipo y
+características del arma y su finalidad, lugar de procedencia y lugar de
+desalmacenaje; y adjuntar además original y fotocopia de la factura de
+compra. Hasta tanto no se cumpla con este requisito, las aduanas del país
+no entregarán el arma en proceso de importación. De no ser cumplido el
+trámite o denegada la autorización, el arma caerá el comiso a favor del
+Estado.
