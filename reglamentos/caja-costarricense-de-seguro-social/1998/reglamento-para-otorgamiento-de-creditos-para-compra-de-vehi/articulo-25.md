@@ -1,0 +1,2 @@
+Artículo 25.—El cheque para la compra del equipo se emitirá a nombre del prestatario y será endosado a favor de la empresa vendedora.
+Una vez adquirido el equipo, en los cinco días hábiles siguientes, el interesado deberá presentar a la Sección Trámite de Crédito, la factura original de compra debidamente cancelada. En caso contrario, se procederá con la recuperación del crédito por la vía judicial''.

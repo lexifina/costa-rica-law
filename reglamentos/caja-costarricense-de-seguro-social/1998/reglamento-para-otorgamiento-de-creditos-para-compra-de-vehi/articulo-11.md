@@ -1,0 +1,1 @@
+Artículo 11.—El vehículo que se adquiera quedará gravado con prenda de primer grado a favor de la Caja Costarricense de Seguro Social. La escritura correspondiente será confeccionada por los notarios autorizados por la Institución y su costo será cubierto por el deudor.

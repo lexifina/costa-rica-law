@@ -1,0 +1,2 @@
+Artículo 23.—Los préstamos se garantizarán con un fiador que debe ser empleado de la Institución, nombrado en propiedad y quien no podrá comprometer más del 50% de su salario líquido a la eventual atención de la obligación. No se aceptarán personas que sean fiadores en más de un préstamo para compra de microcomputadora.
+El fiador solidario autorizará expresamente que se le deduzca del salario las cuotas mensuales que no atendiera oportunamente el deudor.

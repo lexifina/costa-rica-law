@@ -1,0 +1,1 @@
+Artículo 20.—El crédito se cancelará en cuotas mensuales, consecutivas y vencidas, que incluyen amortización e intereses, las cuales serán deducidas del salario que devengue el funcionario en la Institución.

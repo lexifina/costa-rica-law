@@ -1,0 +1,1 @@
+Artículo 2°—Las solicitudes de préstamos serán presentadas a la Sección Trámite de Crédito, analizadas por la Comisión de crédito y resueltas por ésta hasta un monto de cinco millones de colones. La Junta Directiva resolverá aquellas solicitudes de más de cinco millones de colones.

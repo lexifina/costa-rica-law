@@ -1,0 +1,2 @@
+Artículo 13.—El deudor debe asegurar vehículo al menos contra los riesgos D, F y H (colisión y vuelco, robo y hurto y vuelco y riesgos adicionales), mediante las respectivas pólizas del Instituto Nacional de Seguros. Dichas pólizas, deberán suscribirse por un monto como mínimoequivalente al valor del vehículo, serán endosadas a la Caja y custodiadas en la Sección Trámite de Crédito.
+Además deberá suscribirse una póliza colectiva de vida sobre saldos deudores por el monto del crédito. El pago total de las primas asumido por el deudor.
