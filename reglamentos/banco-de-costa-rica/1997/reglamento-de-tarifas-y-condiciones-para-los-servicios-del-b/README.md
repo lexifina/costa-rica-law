@@ -14,3 +14,4 @@ Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-06-17 | la propia norma |
+| 2 | 1999-07-08 | Reglamento 38 (1999-07-08) |
