@@ -1,0 +1,12 @@
+SGV-A-77.—Despacho del Superintendente.—San José, a las diecisiete horas del veintiséis de mayo del dos mil tres.
+Considerando:
+I.—Que mediante Artículo 13 del Acta de la Sesión 81-99, celebrada el 18 de marzo de 1999, el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.
+II.—Que este marco general confiere al Superintendente la potestad para definir el contenido, la periodicidad, los medios de suministro y los medios de difusión de la información periódica que debe remitirse a la Superintendencia General de Valores.
+III.—Que en uso de sus potestades, esta Superintendencia emitió mediante el Acuerdo SGV-A-75 "Acuerdo sobre el suministro de información periódica" del 24 de abril del 2003.
+IV.—Que el artículo 2 de dicho acuerdo se establece que las Sociedades Administradoras de Fondos de Inversión deben remitir el "Reporte de inversiones propias de la Sociedad" mediante correo electrónico y utilizando el Anexo N° 16. No obstante, dado que se está en la puesta en marcha de una nueva versión del Sistema Ingresador para las Sociedades Administradoras de Fondos de Inversión, se consideró conveniente postergar la instalación del nuevo catálogo hasta que esté lista la nueva versión del Sistema Ingresador. Por lo tanto, se establece un transitorio durante el cual la información podrá ser remitida mediante una plantilla Excel a una dirección electrónica.
+V.—Que existen razones de urgencia e interés público para emitir el presente acuerdo. En todo caso, no va en perjuicio de las entidades reguladas, por lo que, con fundamento en el artículo 361, inciso 2), de la Ley General de la Administración Pública, este acuerdo se exime del trámite de consulta.
+Por tanto: Dispone el presente acuerdo:
+SGV-A-77. MODIFICACIÓN AL SGV-A-75 ACUERDO SOBRE EL SUMINISTRO DE INFORMACIÓN PERIÓDICA
+Artículo 1º—Se adiciona un transitorio al acuerdo, el cual se leerá así:
+Transitorio II.—Formato de reporte de las inversiones propias de las Sociedades Administradoras. Hasta el envío de la información con corte al 31 de marzo del 2004, las Sociedades Administradoras de Fondos de Inversión deberán remitir el reporte de inversiones propias mediante plantilla Excel (Anexo Nº 27) a la dirección valoración_sfi@sugeval.fi.cr. *
+*Corregido mediante FE DE ERRATAS, publicada en La Gaceta N° 220 de 14 de noviembre de 2003, pág. 43.
