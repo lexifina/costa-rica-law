@@ -1,0 +1,1 @@
+Artículo 16.—El buzón de cotizaciones se abrirá el día y hora señalado conforme a la invitación, en presencia del Director Financiero Contable y el Jefe de la Sección de Proveeduría y en ausencia de cualquiera de los dos estará presente el Ejecutivo Municipal.

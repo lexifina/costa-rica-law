@@ -1,0 +1,1 @@
+Artículo 38.—Se notificará a la estación de servicio sobre el procedimiento que se utilizará y en caso de hacer caso omiso a lo estipulado será solidariamente responsable con aquel que la hizo incurrir en tal infracción.

@@ -1,0 +1,1 @@
+Artículo 3°—El servicio de acueducto contará con una bodega auxiliar donde se mantendrá, en la medida de las posibilidades, materiales y suministros necesarios para atender casos de urgencia, hasta tanto sea necesaria.

@@ -1,0 +1,1 @@
+Artículo 12.—Únicamente podrán ser tramitados, mediante compra directa, aquellos bienes y servicios que cumplan con lo estipulado en el artículo anterior, para los cuales se deberá realizar cotizaciones previas a la emisión de la Orden de Compra, de acuerdo con los procesos establecidos.

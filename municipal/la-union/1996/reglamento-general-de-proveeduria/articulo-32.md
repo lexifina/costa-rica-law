@@ -1,0 +1,1 @@
+Artículo 32.—De acuerdo a las necesidades de la institución, se procederá a crear otra bodega auxiliar, en cuyo caso se nombrará un encargado aparte del encargado de la Bodega Principal, el cual deberá cumplir con las mismas disposiciones y responsabilidades, señaladas en los artículos 28. 29, 30 y 31 de este reglamento.

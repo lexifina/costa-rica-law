@@ -1,0 +1,1 @@
+Artículo 15.—Las cotizaciones se recibirán en sobre cerrado y serán depositadas en el buzón que para tal efecto mantendrá la Oficina de Proveeduría. Además del buzón se podrá utilizar el fax y el correo electrónico para enviar las cotizaciones.
