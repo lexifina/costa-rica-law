@@ -1,1 +1,0 @@
-Artículo 3°-El Fondo Nacional de Garantía podrá otorgar avales a los Artesanos y Pequeños Industriales cuando soliciten crédito a las instituciones financieras nacionales públicas en sus programas internos y de conformidad con las normas específicas que para este efecto deberá elaborar el Banco Popular y de Desarrollo Comunal.
