@@ -1,0 +1,11 @@
+N° 6765-G
+PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE GOBERNACIÓN, POLICIA, JUSTICIA, GRACIA,
+Considerando:
+1°.- El Instituto Costarricense de Electricidad necesita adquirir para que forme parte de camino que circundará el Embalse del Proyecto Hidroeléctrico Arenal, como su propiedad N° 117-K, un lote de terreno a segregar de un inmueble perteneciente a “Hacienda la Rosita, Sociedad Anónima”.
+2°.- El citado lote fue valorado por la Sala Segunda del Tribunal Fiscal Administrativo en resolución N° 66 de las 12:50 horas del 7 de abril de 1976, en la suma global de ¢7.511.00 (siete mil quinientos once colones), y se hace necesario recurrir a los trámites de expropiación forzosa en virtud de no haber sido aceptado dicho avalúo por la propietaria.
+3°.- La Ley N° 2292 de 20 de noviembre de 1958, declara de utilidad pública la adquisición de inmuebles y la constitución de servidumbres de cualquier naturaleza, necesarios para los programas de electrificación del referido Instituto, remitiendo la misma en los casos de expropiación forzosa, al procedimiento prescrito por la ley N° 1371 de 10 de noviembre de 1951, de Expropiación para el Aeropuerto “El Coco”, hoy Juan Santamaría.
+4°.- De acuerdo con estudios técnicos realizados por el Instituto expresado, está suficientemente demostrada la utilidad pública y la urgencia de la adquisición del lote citado, por lo que de conformidad con lo dispuesto por el artículo 45 de la Constitución Política y leyes N° 2292 y 1371 mencionadas, procede decretar la expropiación correspondiente.
+Por tanto,
+Decretan:
+Artículo 1°.- Exprópiase a “Hacienda La Rosita, Sociedad Anónima”, de su finca del Partido de Guanacaste N° 5998, tomo 1726, folio 255, asiento 6, que es terreno de pastos y montaña con una casa, sito en Los Bajos de la Laguna de Arenal, distrito 3° del cantón 8° de Guanacaste, un lote que se describe así: terreno de pastos, sito igual que la finca madre, con una cabida de 7 511.00 m2, lindante: Norte, Este y Oeste, resto de la finca general; y Sur, camino público San Luis o Tilarán Tronadora. La expropiación se realiza de conformidad con el plano N° 119-3-117, levantado por el Instituto Costarricense de Electricidad en mayo de 1975.
