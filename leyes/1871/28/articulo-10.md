@@ -1,0 +1,1 @@
+Art 10° Las fincas hipotecas al Banco Nacional de Costa Rica, responden por el principal y por los intereses; de modo que cuando el primero o los últimos n sean satisfechos cumplidamente, el Banco tiene el derecho de pedir la ejecución por el todo.

@@ -1,0 +1,1 @@
+Art 9° El Administrador del Banco pasará oportunamente nota al Registrador de Hipotecas del gravamen de las fincas constituidas en hipoteca, remita que, verificada la inscripción, aquel empleado remita al Administrador certificación de ella, la cual se acumulará al expediente respectivo.

@@ -1,0 +1,2 @@
+Art 14° El Banco Nacional de Costa Rica, tiene así mismo el derecho de velar porque las hipotecas no desmejoren, y en caso de justificarse que las fincas dadas en garantía han sufrido deteriores o que los propietarios hacen abandono de ellas el de exigir nuevas seguridades.
+Único, Si fueren negadas las seguridades nuevamente requeridas, se tendrán por renunciadas el plazo y el deudor será reconvenido de pago señalándole término, y vencido este sin efecto, se pedirá la venta de la finca, que se hará arriba queda determinada.
