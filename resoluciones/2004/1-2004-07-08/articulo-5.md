@@ -1,0 +1,1 @@
+5º—Régimen Sancionatorio. Los funcionarios que incumplan con estas Directrices estarán sujetos al régimen de responsabilidad de la Ley de Administración Financiera de la República y Presupuestos Públicos, según su artículo 110, sin perjuicio de la aplicación de otras normas.

@@ -1,0 +1,1 @@
+3º—Responsabilidades del jerarca y los titulares subordinados. El jerarca y los titulares subordinados serán responsables por el establecimiento de las acciones para la divulgación y el cumplimiento de lo establecido en estas Directrices.
