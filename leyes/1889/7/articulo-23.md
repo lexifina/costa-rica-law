@@ -1,0 +1,1 @@
+Art. 23.-Los lutos oficiales se marcarán con un crespón negro de cinco centímetros de anchura, atado al rededor del brazo izquierdo á diez centímetros de distancia de la hombrera; y los de familia con una hombrera. escarapela negra de tres centímetros de diámetro colocada en el mismo brazo, á dos centímetros de la

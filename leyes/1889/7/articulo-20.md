@@ -1,0 +1,1 @@
+Art. 20.-Con el uniforme de gala se usará siempre guante blanco de piel ó de hilo, y con el diario el mismo guante en teatros, bailes y demás reuniones, á juicio del oficial.

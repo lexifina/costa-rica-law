@@ -1,0 +1,1 @@
+Art. 30.-Para la mejor interpretación de este Reglamento, y á fin de evitar la más pequeña diferencia en los uniformes, el Ministerio de la Guerra mandará formar los grabados, diseños y modelos á los cuales deben aquéllos sujetarse.

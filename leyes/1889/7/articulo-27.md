@@ -1,0 +1,1 @@
+Art. 27.-Todos los oficiales del ejército cumplirán y harán cumplir estrictamente este Reglamento, y tendrán obligación de corregir cualquier abuso que sus inferiores cometieren, sea cual fuere la plaza ó guarnición á que pertenezcan.

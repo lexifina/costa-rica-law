@@ -1,0 +1,1 @@
+Art. 16.-Las guerreras y levitas serán de una sola botonadura; sólo las casacas de los Generales deben ser de peto bordado y de dos botonaduras. hombreras de los Las bordaduras ó entorchados y uniformes de General figurarán ramas de laurel y olivo entretejidas.

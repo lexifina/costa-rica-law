@@ -1,0 +1,1 @@
+Art. 12.-El Teniente Coronel usará el mismo uniforme común y de gala señalado para el Sargento Mayor, con la diferencia de que debe llevar dos galones en el aro del kepis, cuello y bocamangas, guardando entre sí una distancia de cuatro milímetros.

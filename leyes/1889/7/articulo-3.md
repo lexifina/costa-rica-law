@@ -1,0 +1,1 @@
+Art. 3°-El Sargento 2° llevará dos hiladillas angostas de lana amarilla en el aro del kepis y alrededor de las bocamangas. -El Sargento 1° llevará tres hiladillas en el aro del kepis y tres alrededor de las bocamangas.

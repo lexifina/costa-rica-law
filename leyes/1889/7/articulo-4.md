@@ -1,0 +1,1 @@
+Art. 4°-El uniforme para los jefes y oficiales es de dos clases: diario y de gala. - El primero se usará en campaña, guarnición y demás tareas del servicio ordinario, y el segundo en los actos y fiestas que por su solemnidad lo requieran.-El diario se compone de kepis, guerrera, pantalón, sable y cinturón; y en el de gala se sustituirán la guerrera y el sable por levita y espada.

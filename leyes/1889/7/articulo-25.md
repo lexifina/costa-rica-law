@@ -1,0 +1,1 @@
+Art. 25.-La artillería usará el mismo uniforme que la infantería, distinguiéndose por una granada sobrepuesta ó bordada á cada lado de la juntura del cuello de lana de la manera explicada en el artículo anterior.
