@@ -1,24 +1,21 @@
-Art¡culo final.- Esta ley comenzar a regir desde el d¡a de su
-publicaci¢n, y a esa fecha quedar n derogadas todas las leyes
-preexistentes
-sobre las materias que aqu¡ se tratan aun en lo que no fueren
-contrarias a
-ella.
-TRANSITORIO.- La Oficina de la Tributaci¢n dar especial
-atenci¢n al
-reaval£o de la propiedad ra¡z, el cual llevar a cabo conforme al
-siguiente
-orden:
-1§.-Reaval£o de las propiedades cuyo valor declarado sea superior
-a un
-mill¢n de colones;
-2§.-Reaval£o de las propiedades cuyo valor declarado sea superior
-a quinientos
-mil colones y menor de un mill¢n;
-3§.-Reaval£o de las propiedades cuyo valor declarado sea superior
-a cien
-mil colones y menor de quinientos mil; y
-4§.-Reaval£o de las dem s propiedades. (22)
-----------
-(22) As¡ reformado por ley N§ 837 de 20 de diciembre de 1946.
-
+Artículo 2º.- Están sujetos a este impuesto los terrenos y las
+instalaciones o construcciones fijas y permanentes que en ellos existan.
+Asimismo, el valor de todas las maquinarias y demás muebles que formen
+parte de un inmueble, por ser necesarios para la explotación del negocio
+a que están destinados, deberá tomarse en cuenta junto con el del
+inmueble propiamente dicho, aunque tales maquinarias o muebles puedan
+fácilmente separarse del inmueble. Lo dispuesto en este párrafo no se
+aplicará a las empresas agropecuarias o agroindustriales.
+Para efectos de esta ley, entiéndese por empresa agropecuaria o
+agroindustrial la constituida por personas físicas cuya actividad
+principal sea la agropecuaria o agroindustrial, y la constituida por
+personas jurídicas que tengan actividades agropecuarias o
+agroindustriales.
+Estas últimas sólo se podrán beneficiar con lo dispuesto en esta ley en
+lo que se refiere a esas actividades.
+No se aplicará esta disposición a aquellas empresas, tanto de
+personas físicas como jurídicas, que tengan terrenos ociosos o baldíos,
+excepto los que no sean de aptitud agrícola, o que sean reservas
+forestales o biológicas.
+( Así reformado por el artículo 25 de la Ley Nº 7064 de 29 de abril de
+1987).
