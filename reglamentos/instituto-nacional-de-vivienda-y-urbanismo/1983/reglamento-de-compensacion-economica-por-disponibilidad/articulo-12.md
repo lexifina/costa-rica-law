@@ -1,0 +1,1 @@
+Articulo 12.—Este Reglamento rige desde su aprobación, pero sus efectos surgen cuando las contrataciones correspondientes y las partidas presupuestarias sean aprobadas conforme con las disposiciones legales vigentes.

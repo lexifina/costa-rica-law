@@ -1,0 +1,1 @@
+Artículo 9°—Se considerara falta grave del trabajador el incumplimiento de las disposiciones u obligaciones de este Reglamento, por lo que podrán serle aplicadas las sanciones que en derecho procedan.
