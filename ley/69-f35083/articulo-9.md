@@ -1,0 +1,1 @@
+Art 9.- El presente decreto será enviado con una exitación de parte del ministerio respectivo al Ilustrisimo Sr Obispo, y á cada uno de los curas de las capitales de las provincias para que le den el lleno correspondiente.
