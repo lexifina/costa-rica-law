@@ -1,0 +1,1 @@
+Articulo 5°-Para el cumplimiento de este decreto-ley, se autoriza a la Corporación para financiarse por medio de un empréstito, hasta por la suma de cincuenta mil colones, con la garantía del Estado. Las utilidades que la Corporación acumule serán aplicadas en la ampliación del radio de sus actividades.

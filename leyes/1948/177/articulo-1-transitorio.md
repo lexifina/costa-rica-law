@@ -1,0 +1,2 @@
+Transitorio.-Con el objeto de darle una eficiente organización inicial a la “Corporación de Abonos Orgánicos”, el Poder Ejecutivo se reserve el derecho de hacer el nombramiento de todos sus miembros para el ejercicio del primer período únicamente.
+Dado en el Salón de Sesiones de la Junta Fundadora de la Segunda República.-San José, a los veintiún días del mes de setiembre de mil novecientos cuarenta y ocho.

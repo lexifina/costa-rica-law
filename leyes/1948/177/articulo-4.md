@@ -1,0 +1,1 @@
+Articulo 4°-La Corporación de Abonos Orgánicos queda facultada para entrar en arreglos cuando lo considere conveniente, con los Concejos Municipales, o el Estado en su caso, a fin de establecer los sistemas de recolección y aprovechamiento de desechos más adecuados y aconsejables.
