@@ -1,0 +1,1 @@
+6º—Queda prohibida la instalación de máquinas en locales ubicados a menos de 80 metros de distancia de Centros Educativos autorizados y otros, según Ley de Juegos N° 1387 del 21 de noviembre de 1951 y Reglamento de Juegos, decreto ejecutivo 3510-G del 24 de enero de 1974.

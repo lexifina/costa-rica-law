@@ -1,0 +1,1 @@
+7º—En los locales donde se autorice la instalación se deberá de respetar las regulaciones que sobre seguridad disponen las leyes nacionales, especialmente en lo referente a iluminación, al espacio y a los niveles de movilidad de los usuarios.
