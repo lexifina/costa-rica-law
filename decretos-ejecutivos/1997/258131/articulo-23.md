@@ -13,4 +13,6 @@ p) Utilizar la violencia, de hecho o de palabra, para resolver las dificultades 
 q) Registrar los escritorios u otros muebles donde se mantengan objetos personales o de trabajo de otro servidor y hacer uso de los mismos sin la previa autorización de este.
 r) Emitir acciones y disposiciones que directa o indirectamente promuevan la discriminación que afecta la dignidad de las personas con discapacidad.
 (Así adicionado mediante el artículo 1° del Decreto Ejecutivo N° 27795 del 15 de abril de 1999)
+s) La exhibición de material pornográfico en cualquier lugar de la institución utilizando el equipo de cómputo y/o los servicios de comunicación de la institución, asimismo el uso de equipo electrónico del Estado para observar o reproducir pornografía. El incurrir en el incumplimiento de esta normativa. acarrea una falta grave que será sancionada según las regulaciones vigentes
+(Así adicionado mediante el artículo 1° del Decreto Ejecutivo N° 29915 del 04 de octubre de 2001)
 En casos excepcionales para fines de trabajo y bajo la responsabilidad del director de núcleo, podrán usarse los útiles de trabajo o documentos que están en custodia de un servidor ausente.
