@@ -1,13 +1,3 @@
 ARTÍCULO V
-1.- Los Estados parte promoverán, en la medida en que sea compatible
-con sus respectivas legislaciones nacionales, la participación de
-representantes de organizaciones de personas con discapacidad,
-organizaciones no gubernamentales que trabajan en este campo o, si no
-existieren dichas organizaciones, personas con discapacidad, en la
-elaboración, ejecución y evaluación de medidas y políticas para aplicar la
-presente Convención.
-2.- Los Estados parte crearán canales de comunicación eficaces que
-permitan difundir entre las organizaciones públicas y privadas que
-trabajan con las personas con discapacidad los avances normativos y
-jurídicos que se logren para la eliminación de la discriminación contra
-las personas con discapacidad.
+1.- Los Estados parte promoverán, en la medida en que sea compatible con sus respectivas legislaciones nacionales, la participación de representantes de organizaciones de personas con discapacidad, organizaciones no gubernamentales que trabajan en este campo o, si no existieren dichas organizaciones, personas con discapacidad, en la elaboración, ejecución y evaluación de medidas y políticas para aplicar la presente Convención.
+2.- Los Estados parte crearán canales de comunicación eficaces que permitan difundir entre las organizaciones públicas y privadas que trabajan con las personas con discapacidad los avances normativos y jurídicos que se logren para la eliminación de la discriminación contra las personas con discapacidad.
