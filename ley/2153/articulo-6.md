@@ -1,0 +1,2 @@
+Artículo 6º.- Esta ley regirá a partir del 1º de enero de 1958.
+Transitorio.- En tanto que el Gobierno no se haga cargo de las subvenciones municipales que en la actualidad reciben algunas entidades educativas o becarios, o que estas subvenciones dejaren de existir por otros motivos, la Municipalidad respectiva podrá, a su juicio, deducirlas del monto de la subvención que aquí se establece, siempre que tales auxilios hayan existido con carácter permanente con anterioridad a la vigencia de la presente ley.
