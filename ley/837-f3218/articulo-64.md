@@ -11,7 +11,8 @@ c) Uso de patentes, suministro de fórmulas, marcas de fábrica, privilegios, fr
 4) Treinta por ciento (30%) sobre los pagos o créditos que se realicen por los siguientes conceptos:
 a) Remuneraciones, sueldos, comisiones, honorarios, dietas y cualquier otra clase de rentas que se paguen o abonen a personas o miembros de directorios, consejos u otros organismos directivos que actúen en el exterior;
 b) Asesoramiento técnico, financiero, administrativo o de otra índole, prestado desde el exterior o por personas no domiciliadas en el país; c) Intereses pagados o acreditados a favor de:
-i) Personas físicas domiciliadas en el exterior;
+i) Personas físicas domiciliadas en el exterior excepto que el pago o crédito sea hecho por bancos constituidos de acuerdo con la Ley del Sistema Bancario Nacional y de sociedades de inversión o de crédito especial de carácter no bancario registradas en la Auditoría General de Bancos.
+(Así reformado el inciso anterior por el artículo 4° de la ley N° 6026 del 3 de enero de 1977)
 ii) Casas matrices de la empresa o sociedad que los paga o acredita, subsidiarias, agencias o sucursales de tales casas matrices, excepto que se trate de bancos constituidos de acuerdo con la Ley del Sistema Bancario Nacional y de sociedades financieras de inversión y de crédito especial de carácter no bancario registradas en la Auditoría General de Bancos;
 iii) Sociedades o empresas financieras del exterior, cuando alguno de sus socios, dueños o los padres, cónyuges, hijos o hermanos de éstos por consanguinidad o afinidad, sean a su vez socios o dueños de la prestataria en Costa Rica;
 iv) Entidades financieras creadas por la empresa prestataria o que operen con capital de ésta; y
