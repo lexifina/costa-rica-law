@@ -1,0 +1,4 @@
+Artículo 45
+La Corte Interina conocerá exclusivamente de los recursos de hábeas corpus y de amparo; de los informes que solicite el Poder Ejecutivo en la peticiones de gracia; de las apelaciones; de las sentencias que dicten los Alcaldes en recursos de amparo; de las apelaciones y consultas de las excarcelaciones; de las apelaciones interpuestas contra las resoluciones que dicten los Alcaldes en los asuntos civiles y penales a que alude el artículo 41, en los casos en que proceda ese recurso conforme a derecho; de las quejas por irregularidades graves contra los funcionarios y empleados que estén en servicio, caso en el cual podrá imponer las correcciones disciplinarias correspondientes, y de la concesión de licencias y nombramientos provisionales respectivos.
+Las autenticaciones de firmas las hará el Presidente en los casos en que corresponda hacerlas al Presidente de la Corte.
+( Así reformado por el artículo 1º de la Ley Nº 1266 del 21 de febrero de 1951 )

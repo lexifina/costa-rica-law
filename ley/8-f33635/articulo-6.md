@@ -1,1 +1,2 @@
-ARTICULO 6°.- Contra las resoluciones que estuvieren ya dictadas al entrar en vigencia la presente ley cabrán los recursos autorizados por las disposiciones de procedimientos vigentes al pronunciarse ellas, y se tramitarán, en cuanto fuere posible, ajustándolos a la nueva legislación. Respecto de la tramitación general de los juicios, los Tribunales procurarán aplicar las nuevas reglas armonizándolas en cuanto cupiere con las actuaciones ya practicadas a efecto de evitar conflictos o perjuicios a las partes.
+Artículo 6
+Los Tribunales se prestarán mutuo auxilio para la práctica de todas las diligencias que fueren necesarias y se ordenaren en la sustanciación de los asuntos judiciales

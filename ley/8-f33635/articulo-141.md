@@ -1,0 +1,5 @@
+Artículo 141
+Aun cuando sean abogados o bachilleres en leyes, no podrán ejercer la profesión los servidores propietarios de los Poderes Ejecutivos y Judicial, del Tribunal Supremo de Elecciones, de la Contraloría General de la República, de la Procuraduría General de la República y de las municipalidades, salvo en sus propios negocios y en los de sus cónyuges, ascendientes o descendientes, hermanos, suegros, yernos y cuñados.
+( Así reformado por el artículo 1º de la Ley Nº 6024 de 15 de diciembre de 1976 )
+Se exceptúan de la prohibición anterior los servidores del Poder Ejecutivo que presten servicios en los establecimientos oficiales de enseñanza y que no tengan ninguna otra incompatibilidad; los mismo que los servidores judiciales interinos o suplentes, siempre que ese interinato no exceda de tres meses; los fiscales específicos, lo munícipes y apoderados municipales; el directos de la Revista Judicial; los defensores públicos de medio tiempo y los que sean retribuidos por el sistema de honorarios y, en general, todos los servidores que no devenguen sueldo sino dietas.
+( Así reformado por el artículo 2º de la Ley Nº 6722 de 10 de marzo de 1982 )

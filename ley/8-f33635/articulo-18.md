@@ -1,0 +1,3 @@
+Artículo 18
+El nombramiento de funcionarios y empleados judiciales se hará en votación secreta. En las actas de Corte Plena no se consignarán, por ningún motivo, manifestaciones, votos salvados o protestas de los Magistrados que en alguna forma, directa o indirecta, insinúen o indiquen el modo en que sus votos fueron dados o los detalles de la votación. Es igualmente prohibido a los Magistrados y al Secretario de la Corte suministrar dato alguno en este sentido.
+La votación secreta no será necesaria cuando se trate del nombramiento de secretarios, prosecretarios, escribientes y porteros, en forma interina, o cuando no hay más que un candidato para el puesto.
