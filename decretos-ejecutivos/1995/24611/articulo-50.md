@@ -1,16 +1,7 @@
-Artículo 50.- Las entidades de gestión colectiva quedan
-facultadas para recaudar y distribuir las remuneraciones
-correspondientes a la utilización de las obras o de las
-producciones objeto de los derechos conexos que se les haya
-confiado, en los términos del presente Reglamento y de sus
-estatutos, a cuyos efectos están obligadas:
-1) A contratar con quien lo solicite, salvo motivo
-justificado, la concesión de licencias no exclusivas de
-uso de los derechos gestionados, en condiciones
-razonables y bajo remuneración.
-2) A establecer las tarifas generales que determinen la
-remuneración exigida por la utilización del repertorio
-administrado.
-No obstante, quedan siempre a salvo aquellas clases de
-utilizaciones singulares de una o varias obras o producciones que
-requieran la autorización individualizada de su titular.
+ARTÍCULO 50.- Las Sociedades de Gestión Colectiva quedan facultadas para recaudar y distribuir las remuneraciones correspondientes a la utilización de las obras o de las producciones objeto de los derechos conexos que les hayan confiado, los autores o sus representantes en los términos del presente Reglamento y de sus estatutos, a cuyos efectos estarán obligadas a:
+1) A contratar con toda persona o empresa que lo solicite, sin discriminación alguna, la concesión de licencias no exclusivas de uso de los derechos gestionados, en condiciones razonables y bajo remuneración.
+2) Demostrar ante las autoridades nacionales y ante los usuarios de las obras y producciones intelectuales confiadas a su administración, la documentación que las legitima como representantes de los titulares de derechos de autor y los derechos conexos.
+3) Suministrar a sus afiliados y representados, al menos una vez cada seis meses, información completa y detallada sobre el ejercicio de sus derechos.
+4) Presentar un informe anual desglosado a sus asociados y representados, sobre las cantidades que cada uno de sus representantes hayan percibido, con copia de las liquidaciones, las cantidades remitidas al extranjero y las que se encuentran en su poder pendiente de ser entregadas a sus representados nacionales y extranjeros. Si es del caso deberá explicar el motivo por el cual está pendiente la distribución. La misma información debe ser enviada a las organizaciones extranjeras con las que mantenga contratos de representación para el territorio nacional.
+5) Contratar una vez al año un auditor externo que revisará la documentación contable. El resultado de la auditoría sera notificado a sus socios y a sus representados y al Registro Nacional de Derechos de Autor y Derechos Conexos.
+(Así reformado por el artículo 4º del decreto ejecutivo No.26882 de 20 de abril de 1998)

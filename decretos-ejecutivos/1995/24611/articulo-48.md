@@ -1,5 +1,5 @@
-Artículo 48.- Las entidades de gestión colectiva están
-legitimadas, en los términos que resulten de sus propios estatutos
-y de los contratos que celebren con entidades extranjeras, para
-ejercer los derechos confiados a su administración y hacerlos valer
-en toda clase de procedimientos administrativos y judiciales.
+TITULO IX
+La Gestión Colectiva
+ARTÍCULO 48.- Las Sociedades de Gestión Colectiva son personas jurídicas privadas, que no tienen por único y exclusivo objeto el lucro o la ganacia, sino proteger los derechos patrimoniales de los titulares de derechos de autor y de los derechos conexos, tanto nacionales como extranjeros, reconocidos por la Ley y por los convenios internacionales que ha ratificado el país; así como para recaudar en nombre de ellos, y entregarles las remuneraiones económicas derivadas de la utilización de sus obras y producciones intelectuales, confiadas a su administración por sus asociados o representados, o por los afiliados a entidades extranjeras de la misma naturaleza.
+De las tarifas que cobren las Sociedades de Gestión Colectiva, sólo prodrán reservarse un porcentaje para cubrir sus gastos administrativos necesarios para la protección de los derechos representados. No podrá distribuirse entre los socios suma alguna de ese porcentaje.
+(Así reformado por el artículo 4º del decreto ejecutivo No.26882 de 20 de abril de 1998 y modificado posteriormente su texto por Resolución de la Sala Constitucional No. 1829-99 de las 16:09 horas del 10 de marzo de 1999)

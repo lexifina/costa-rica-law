@@ -1,5 +1,1 @@
-Artículo 15.- La titularidad de los derechos por persona
-distinta del autor tiene un carácter derivado, y se limita a los
-derechos atribuidos por la Ley o este Reglamento, o a los
-transferidos mediante un acto legítimo de enajenación o cesión, o
-por transmisión mortis causa.
+ARTÍCULO 15.- La titularidad de los derechos por persona distinta del autor tiene un carácter derivado, y se limita a los derechos atribuidos por la Ley o este Reglamento, o a los transferidos mediante un acto legítimo de enajenación o cesión, o por transmisión mortis causa.

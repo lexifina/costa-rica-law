@@ -1,8 +1,1 @@
-Artículo 7º.- Salvo en los casos en que se trate de una obra
-individual, o que haya sido publicada con el nombre de los autores,
-se presume, salvo prueba en contrario, que el programa de cómputo
-es una obra colectiva, cuya titularidad corresponde, en los
-términos del artículo 6º de la Ley, al productor, quien además de
-los derechos de orden patrimonial, tiene la facultad de defender al
-derecho moral, en la medida que ello sea necesario para la
-explotación de la obra.
+ARTÍCULO 7º.- Salvo en los casos en que se trate de una obra individual, o que haya sido publicada con el nombre de los autores, se presume, salvo prueba en contrario, que el programa de cómputo es una obra colectiva, cuya titularidad corresponde, en los términos del artículo 6º de la Ley, al productor, quien además de los derechos de orden patrimonial, tiene la facultad de defender al derecho moral, en la medida que ello sea necesario para la explotación de la obra.

@@ -13,3 +13,4 @@ Reglamento a la Ley de Derechos de Autor y Derechos Conexos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-10-24 | la propia norma |
+| 2 | 1995-10-24 | Decreto Ejecutivo 26882 (1998-04-20) |

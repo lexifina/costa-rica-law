@@ -1,10 +1,1 @@
-Artículo 16.- En las obras creadas para una persona natural o
-jurídica, en cumplimiento de un contrato de trabajo o en ejercicio
-de una función pública, el titular originario de los derechos
-morales y patrimoniales es el autor, pero se presume, salvo pacto
-en contrario, que el derecho patrimonial o de utilización ha sido
-cedido al empleador o al ente de Derecho Público, según los casos,
-en la medida necesaria para sus actividades habituales en la época
-de la creación de la obra, lo que implica, igualmente, la
-autorización para divulgarla y para defender los derechos morales
-en cuanto sea necesario para la explotación de la misma.
+ARTÍCULO 16.- En las obras creadas para una persona natural o jurídica, en cumplimiento de un contrato de trabajo o en ejercicio de una función pública, el titular originario de los derechos morales y patrimoniales es el autor, pero se presume, salvo pacto en contrario, que el derecho patrimonial o de utilización ha sido cedido al empleador o al ente de Derecho Público, según los casos, en la medida necesaria para sus actividades habituales en la época de la creación de la obra, lo que implica, igualmente, la autorización para divulgarla y para defender los derechos morales en cuanto sea necesario para la explotación de la misma.

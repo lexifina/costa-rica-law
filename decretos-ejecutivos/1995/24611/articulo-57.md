@@ -1,0 +1,1 @@
+ARTÍCULO 57.- (Adicionado originalmente por el artículo 7º del decreto ejecutivo No.26882 de 20 de abril de 1998 y posteriormente Anulado por Resolución de la Sala Constitucional No. 1829-99 del 10 de marzo de 1999.)

@@ -1,6 +1,1 @@
-Artículo 31.- La reproducción comprende todo acto dirigido a
-la fijación material de la obra por cualquier forma, o la obtención
-de copias de toda o parte de ella, entre otros modos, por imprenta,
-dibujo, grabado, fotografía, modelado o cualquier procedimiento de
-las artes gráficas y plásticas, así como la duplicación o el
-registro mecánico, electrónico, fonográfico o audiovisual.
+ARTÍCULO 31.- La reproducción comprende todo acto dirigido a la fijación material de la obra por cualquier forma, o la obtención de copias de toda o parte de ella, entre otros modos, por imprenta, dibujo, grabado, fotografía, modelado o cualquier procedimiento de las artes gráficas y plásticas, así como la duplicación o el registro mecánico, electrónico, fonográfico o audiovisual.

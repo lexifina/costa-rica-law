@@ -1,0 +1,3 @@
+ARTÍCULO 59.- Contra las decisiones del Registro Nacional de Drechos de Autor y Conexos, cabrá el recurso administrativo ordinario de revocatoria y además serán apelables ante la Sección Tercera del Tribunal Superior del Tribunal Superior Contencioso Administrativo. En cada instancia el interesado podrá apelar dentro de los cinco días hábiles contados a partir del día siguiente de la notificación.
+El Registro de Derechos de Autor y Conexos dispondrá de un mes para resolver a partir del conocimiento de los recursos; la resolución de Tribunal Superior Contencioso Administrativo tendrá por agotada la vía administrativa.
+(Así adicionado por el artículo 1º del decreto ejecutivo No.26882 de 20 de abril de 1998)

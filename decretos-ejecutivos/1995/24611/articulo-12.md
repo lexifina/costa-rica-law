@@ -1,7 +1,1 @@
-Artículo 12.- Sin perjuicio del derecho moral del director
-sobre la obras cinematográficas, en los términos del artículo 56 de
-la Ley, cada coautor podrá defender los derechos morales sobre su
-respectiva contribución, y el productor estará facultado igualmente
-para ejercer esa defensa, en protección de los autores y de la
-obra, en la medida en que ello sea necesario para la explotación de
-la misma.
+ARTÍCULO 12.- Sin perjuicio del derecho moral del director sobre la obras cinematográficas, en los términos del artículo 56 de la Ley, cada coautor podrá defender los derechos morales sobre su respectiva contribución, y el productor estará facultado igualmente para ejercer esa defensa, en protección de los autores y de la obra, en la medida en que ello sea necesario para la explotación de la misma.

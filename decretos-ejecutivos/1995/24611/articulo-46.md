@@ -1,5 +1,1 @@
-Artículo 46.- Los titulares de los derechos conexos
-reconocidos por la Ley, podrán invocar todas las disposiciones
-relativas a los autores y sus obras, en cuanto estén conformes con
-la naturaleza de sus respectivos derechos y de acuerdo a la regla
-interpretativa contenida en el artículo precedente.
+ARTÍCULO 46.- Los titulares de los derechos conexos reconocidos por la Ley, podrán invocar todas las disposiciones relativas a los autores y sus obras, en cuanto estén conformes con la naturaleza de sus respectivos derechos y de acuerdo a la regla interpretativa contenida en el artículo precedente.

@@ -1,7 +1,1 @@
-Artículo 5º.- Sin perjuicio de los derechos sobre la obra
-originaria, son también objeto de protección las traducciones,
-adaptaciones, transformaciones o arreglos de una creación
-preexistente que tengan elementos de originalidad, así como las
-antologías o compilaciones de obras diversas y las bases de datos,
-que por la selección o disposición de las materias constituyan
-creaciones personales.
+ARTÍCULO 5º.- Sin perjuicio de los derechos sobre la obra originaria, son también objeto de protección las traducciones, adaptaciones, transformaciones o arreglos de una creación preexistente que tengan elementos de originalidad, así como las antologías o compilaciones de obras diversas y las bases de datos, que por la selección o disposición de las materias constituyan creaciones personales.

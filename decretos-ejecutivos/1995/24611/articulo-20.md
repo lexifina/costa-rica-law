@@ -1,9 +1,1 @@
-Artículo 20.- De acuerdo al literal a) del artículo 14 de la
-Ley, corresponde exclusivamente al autor, salvo excepción expresa,
-la facultad de resolver sobre la divulgación total o parcial de la
-obra y, en su caso, acerca del modo de hacer dicha divulgación,
-pudiendo aplazar, por testamento, su difusión durante un lapso
-hasta de cincuenta años posteriores a su muerte.
-Nadie puede dar a conocer sin el consentimiento de su autor el
-contenido esencial de la obra, antes de que aquel lo haya hecho o
-la misma se haya divulgado con su autorización.
+ARTÍCULO 20.- De acuerdo al literal a) del artículo 14 de la Ley, corresponde exclusivamente al autor, salvo excepción expresa, la facultad de resolver sobre la divulgación total o parcial de la obra y, en su caso, acerca del modo de hacer dicha divulgación, pudiendo aplazar, por testamento, su difusión durante un lapso hasta de cincuenta años posteriores a su muerte. Nadie puede dar a conocer sin el consentimiento de su autor el contenido esencial de la obra, antes de que aquel lo haya hecho o la misma se haya divulgado con su autorización.

@@ -1,5 +1,1 @@
-Artículo 28.- El derecho patrimonial comprende, especialmente,
-la modificación, la comunicación pública, la reproducción, la
-distribución y el derecho de persecusión ( "droit de suite"), así
-como cualquier otra forma de utilización, proceso o sistema,
-conocido o por conocerse.
+ARTÍCULO 28.- El derecho patrimonial comprende, especialmente, la modificación, la comunicación pública, la reproducción, la distribución y el derecho de persecusión ( "droit de suite"), así como cualquier otra forma de utilización, proceso o sistema, conocido o por conocerse.

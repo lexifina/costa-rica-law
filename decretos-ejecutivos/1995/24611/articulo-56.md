@@ -1,5 +1,3 @@
-TITULO XI
-Vigencia
-Artículo 56.- Este Reglamento rige a partir de la fecha de su
-publicación.
-.e
+ARTÍCULO 56.- En caso de que surja controversia sobre los Derechos protegidos por la Ley y el presente Reglamento, las partes podrán someterse a un Procedimiento Arbitral ante el Tribunal Arbitral que estará constituido por tres jueces, uno que será el asesor jurídico de la Unidad Técnica de Apoyo de la Comisión Nacional del Consumidor, designado por dicha Unidad Técnica; un representante nombrado por las partes de la lista que proporcione el Registro Nacional de Derechos de Autor y Derechos Conexos y en caso de que no haya acuerdo, el Registro lo designará; y por el Director del Registro Nacional de Derechos de Autor y Derechos Conexos, o un representante que él nombre, quién lo presidirá y convocará. Sus laudos se dictarán por escrito, y deberán estar claramente fundamentados. El laudo será dictado en un plazo máximo de 60 días a partir del día siguiente en que queden listos los autos. El Tribunal Arbitral celebrará una audiencia oral para que las partes expongan sus argumentos. Contra lo resuelto por el Tribunal Arbitral no procede recurso alguno.
+Los gastos que se originen con motivo del procedimiento arbitral estarán a cargo de las partes.
+(Así adicionado por el artículo 1º del decreto ejecutivo No.26882 de 20 de abril de 1998. El antiguo artículo 56 pasó a ser el 60)
