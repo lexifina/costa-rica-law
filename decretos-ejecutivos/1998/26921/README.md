@@ -15,3 +15,4 @@ Reglamento a la Ley de Protección Fitosanitaria.
 | --- | --- | --- |
 | 1 | 1998-05-22 | la propia norma |
 | 2 | 1998-06-16 | Decreto Ejecutivo 27154 (1998-06-16) |
+| 3 | 2002-01-14 | Decreto Ejecutivo 30111 (2002-01-14) |

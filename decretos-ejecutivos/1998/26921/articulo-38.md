@@ -1,1 +1,1 @@
-Artículo 38.—Del Presupuesto del Fondo de Emergencias. Como parte integral del Presupuesto de la Cuenta Especial, la Dirección preparará el detalle para la utilización de los recursos transferidos a dicho Fondo, una vez declarada la emergencia. El mismo deberá ser presentado a la Unidad de Planificación Estratégica, para ser aprobado por el Ministro de Agricultura de previo a su envío a la Contralona General de la República.
+Artículo 38.—(Derogado por el artículo 53 del Decreto Ejecutivo N° 30111 del 14 de enero del 2002)

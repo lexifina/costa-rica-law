@@ -1,3 +1,1 @@
-Artículo 30.—Control del cobro de los servicios. Será la Dirección, a través de la Unidad Administrativa Financiera quién supervisará, controlará y fiscalizará, en forma continua, la correcta aplicación de los controles establecidos y el normal cobro y depósito, en las cuentas corrientes y caja recolectora destinadas para el cobro de los servicios.
-La Auditoría Interna elaborará y aplicará un programa de Auditoría, tendiente a verificar un control sobre los ingresos y egresos.
-El control de los ingresos, así como la corrección de los procedimientos administrativos implementados, también será verificado por la auditoría externa que para tal fin contrate anualmente la Dirección en coordinación con la Dirección Administrativa Financiera del Ministerio.
+Artículo 30.—(Derogado por el artículo 53 del Decreto Ejecutivo N° 30111 del 14 de enero del 2002)

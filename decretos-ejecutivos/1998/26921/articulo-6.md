@@ -1,1 +1,1 @@
-Artículo 6- Para la consecución de los objetivos y funciones del Servicio Fitosanitario, el Ministro suscribirá los acuerdos, convenios, addendums, cartas de entendimiento, tratados bilaterales o multilaterales, relativos a la materia.
+Artículo 6°- (Derogado por el artículo 53 del Decreto Ejecutivo N° 30111 del 14 de enero del 2002)

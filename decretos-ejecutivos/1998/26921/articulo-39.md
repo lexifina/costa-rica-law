@@ -1,2 +1,1 @@
-Artículo 39.—Del informe de aplicación presupuestaria. La Dirección a través de la Unidad Administrativa Financiera, reportará el comportamiento presupuestario mediante la realización trimestral de informes conforme al Plan Operativo Anual debidamente aprobado y su respectiva ejecución presupuestaria a la Unidad de Planificación Estratégica y la Dirección Administrativa Financiera del Ministerio.
-Los informes trimestrales serán presentados de acuerdo a las fechas establecidas por la Unidad de Planificación Estratégica.
+Artículo 39.—(Derogado por el artículo 53 del Decreto Ejecutivo N° 30111 del 14 de enero del 2002)

@@ -1,1 +1,1 @@
-Artículo 31.—Destino de los recursos. Los recursos que se obtengan por lo establecido en el artículo 63 y el Transitorio 1, de la Ley 7664, los que se detallan en el presente Reglamento serán utilizados para el cumplimiento de los objetivos de la Ley de Protección Fitosanitaria, para fortalecer, desarrollar, actualizar, mejorar los servicios y para la operación normal del Servicio Fitosanitario del Estado.
+Artículo 31.—(Derogado por el artículo 53 del Decreto Ejecutivo N° 30111 del 14 de enero del 2002)

@@ -1,1 +1,1 @@
-Artículo 4°- De las Dependencias Competentes: Corresponde a la Dirección de Servicios de Protección Fitosanitarios, coordinar, planificar y programar con las otras dependencias del Ministerio involucradas en la prestación efectiva de las funciones descritas por ley, entiéndase Dirección de Investigaciones, Dirección de Extensión, Direcciones Regionales y conjuntamente velar por el efectivo cumplimiento de los objetivos del Servicio.
+Artículo 4°- (Derogado por el artículo 53 del Decreto Ejecutivo N° 30111 del 14 de enero del 2002)
