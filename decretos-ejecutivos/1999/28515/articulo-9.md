@@ -1,0 +1,1 @@
+Artículo 9º—Los animales que fueren clasificados como reaccionantes, serán claramente marcados en forma indeleble y visible en el masetero derecho con una "S", acción que debe ejecutar el técnico o profesional oficial o privado acreditado que realizó las pruebas, dentro de los tres días hábiles siguientes a partir del recibido de la confirmación laboratorial.
