@@ -1,0 +1,9 @@
+ARTICULO 22.- Se modifica el artículo 4 y el párrafo primero del artículo 5 de la Ley general sobre las ventas, No. 6826, del 8 de noviembre de 1982 y sus reformas, cuyos textos dirán:
+"Artículo 4.- Contribuyentes y declarantes
+Las personas físicas o jurídicas, de derecho o de hecho, públicas o privadas, que realicen ventas o presten servicios en forma habitual, son contribuyentes de este impuesto. Asimismo, las personas de cualquier naturaleza, que efectúen importaciones o internaciones de bienes, están obligadas a pagar el impuesto, de acuerdo con lo previsto en el artículo 13 de esta Ley.
+Además, son declarantes de este impuesto las personas, físicas o jurídicas, de derecho o de hecho, públicas o privadas, que realicen ventas por exportaciones.
+Todos los exportadores, contribuyentes o no contribuyentes de este impuesto, están obligados a presentar declaraciones.
+Se crea el régimen de tributación simplificada para pequeños contribuyentes, conforme se establece en los artículos 27, 28, 29 y 30 de esta Ley. Estos contribuyentes deberán llevar registros contables especiales, en la forma y las condiciones que se determinen en el Reglamento de la presente Ley."
+"Artículo 5.- Inscripción
+Al iniciar sus actividades gravadas, las personas o las entidades a las que se refiere el artículo anterior deben inscribirse en el registro de contribuyentes que deberá llevar la Administración Tributaria. Las personas o las entidades que no hayan solicitado la inscripción serán inscritas de oficio por esa Administración Tributaria.
+Sin perjuicio de las sanciones que pudieran corresponderles, las personas que no cumplan con las obligaciones de inscribirse quedan obligadas, de todas maneras, al pago del impuesto, y no tendrán derecho a devolución o crédito por el impuesto pagado sobre la existencia de mercancías que mantengan en inventario a la fecha de su inscripción como contribuyentes."

@@ -1,0 +1,2 @@
+TRANSITORIO V.- La Administración Tributaria estará facultada para que, por medio de resolución razonada y de aplicación general a todos los contribuyentes, deje sin efecto las causas iniciadas antes de la vigencia de los artículos 1 a 11 (*) de esta Ley, referentes a cada una de las infracciones tributarias previstas en el Código de Normas y Procedimientos Tributarios y las leyes especiales vigentes.
+(*) (Así reformado por el Auto de Corrección Material de las 14:00 hrs. del 10 de agosto de 1995, publicado junto con el texto de la presente ley)
