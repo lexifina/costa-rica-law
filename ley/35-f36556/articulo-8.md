@@ -1,0 +1,1 @@
+Artículo 8°. —Se reservan las manzanas números 10 y 11 para la iglesia, plaza, edificios municipales y de enseñanza; las manzanas 25 en la parte Norte, 26 y 31 en la parte Sur, para parques, conforme lo marca el plano.

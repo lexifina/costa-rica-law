@@ -1,0 +1,2 @@
+Artículo 6°. —En concepto de ser nacionales los terrenos de que se trata y estando poseídos y cultivados por particulares algunos de ellos, se procederá á la indemnización consiguiente, previo justiprecio por peritos nombrados uno por cada parte, sólo del valor de los cultivos, sin tomar en cuenta el alza que proceda de las disposiciones de esta ley y salvo lo dispuesto en el artículo 9°. De la misma.
+Las mejoras industriales que hubiere en los lotes enunciados, serán indemnizadas por el denunciante.
