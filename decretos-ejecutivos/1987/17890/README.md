@@ -17,3 +17,4 @@ Reglamento del Fondo de Contingencias Bananeras
 | 2 | 1989-05-08 | Decreto Ejecutivo 18995 (1989-05-08) |
 | 3 | 1989-10-09 | Decreto Ejecutivo 19344 (1989-10-09) |
 | 4 | 1990-03-09 | Decreto Ejecutivo 19532 (1990-03-09) |
+| 5 | 1993-11-10 | Decreto Ejecutivo 22668 (1993-11-10) |
