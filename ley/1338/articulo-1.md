@@ -1,4 +1,6 @@
+(Derogado)
 N° 1338
+(Esta ley fue derogada por el artículo 45 de la Ley de Caminos Públicos (1955), aprobada mediante ley N° 1851 del 28 de febrero de 1955)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
 Ley General de Caminos Públicos
