@@ -1,0 +1,2 @@
+Artículo 6: Existencia de Colateral
+En el caso del tramo de inversión, los límites referidos a montos y a plazos máximos, contenidos en los artículos anteriores, podrán ser excedidos en aquellas operaciones en las que existan depósitos constituidos en el Banco Central de Costa Rica que actúen como colateral de las mismas. Todo exceso, en cuanto a monto, deberá tener necesariamente un colateral de valor similar.

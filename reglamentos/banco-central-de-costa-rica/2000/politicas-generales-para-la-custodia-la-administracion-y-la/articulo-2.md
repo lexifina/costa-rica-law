@@ -1,0 +1,5 @@
+Artículo 2: Estructura de las Reservas Monetarias Internacionales Disponibles
+Las Reservas Monetarias Internacionales Disponibles del Banco Central de Costa Rica tendrán la siguiente estructura por tramos:
+a. Liquidez: Incluye los fondos de disponibilidad inmediata que permitan el normal funcionamiento del sistema internacional de pagos y el numerario en moneda extranjera en las bóvedas del Banco Central. El monto que se mantendrá en este tramo deberá garantizar un apropiado nivel de fondos, acorde con las necesidades de divisas requeridas para el adecuado funcionamiento del sistema internacional de pagos del Banco Central.
+b. Inversión: Incluye los fondos depositados a plazo fijo con el propósito de obtener una rentabilidad. El monto que se mantendrá en este tramo será la diferencia resultante de restar al total de la disponibilidad de Reservas Monetarias Internacionales (reservas líquidas) los tramos de “Liquidez” y “Depósitos en garantía”.
+c. Depósitos en garantía: Incluye los fondos depositados a un plazo determinado o en forma indefinida, con el propósito de garantizar operaciones de crédito o similares.
