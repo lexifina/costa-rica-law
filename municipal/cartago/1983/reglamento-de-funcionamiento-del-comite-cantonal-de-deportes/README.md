@@ -14,3 +14,4 @@ Reglamento de Funcionamiento del Comité Cantonal de Deportes y Recreación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-12-23 | la propia norma |
+| 2 | 1985-06-04 | Reglamento municipal 0 (1985-06-04) |

@@ -1,1 +1,5 @@
 Artículo 36.—Los Subcomités de Deportes y Recreación estarán integrados por cinco miembros, dos de los cuales deberán ser representantes de la asociación de desarrollo donde tenga la sede el respectivo subcomité. Los otros tres miembros serán designados por el Comité Cantonal de Deportes y Recreación de las ternas que envíen las entidades deportivas y recreativas del lugar en que funcionará el subcomité.
+Los dos miembros nombrados por las asociaciones de desarrollo comunal en los subcomités de distrito o barrio, serán escogidos el día que se convoque para asamblea ordinaria de la asociación donde se elige a la Junta Directiva de las asociaciones.
+(Así adicionado el párrafo anterior mediante artículo 25, acta N° 474, sesión celebrada el 4 de junio de 1985)
+El día que se pierda esa coordinación con dos miembros se deberá convocar a una asamblea extraordinaria de la asociación para la destitución y nombramiento de los dos nuevos miembros.
+(Así adicionado el párrafo anterior mediante artículo 25, acta N° 474, sesión celebrada el 4 de junio de 1985)
