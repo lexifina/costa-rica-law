@@ -15,3 +15,4 @@ Reforma a la Norma Oficial de Calidad para Frijol en Grano.
 | --- | --- | --- |
 | 1 | 1992-03-11 | la propia norma |
 | 2 | 2001-04-23 | Decreto Ejecutivo 29487 (2001-04-23) |
+| 3 | 2001-05-29 | Decreto Ejecutivo 29557 (2001-05-29) |
