@@ -13,4 +13,6 @@ k) Definir con el Contralor General los estándares de rendimiento que promuevan
 l) Velar porque se dote a la División de los recursos necesarios para que desarrollen sus labores de manera efectiva.
 m) Mantener una adecuada atención sobre la política de rotación de los funcionarios definida a nivel institucional, sin menoscabo de la labor de fiscalización.
 n) Utilizar los recursos en forma racional para contribuir en la consecución de los objetivos institucionales.
-o) Rendir cuentas por el desempeño de las funciones a su cargo. p) Atender las demás gestiones que le correspondan de conformidad con el ordenamiento jurídico, o que le sean asignadas por el Contralor General.
+o) Rendir cuentas por el desempeño de las funciones a su cargo.
+p) Atender las demás gestiones que le correspondan de conformidad con el ordenamiento jurídico, o que le sean asignadas por el Contralor General.
+* NOTA DEL SINALEVI: El presente artículo del Capítulo IV cuenta con vigencia atribuida mediante Resolución 0 del 20 de setiembre de 1999, de la Contraloría General de la República.)

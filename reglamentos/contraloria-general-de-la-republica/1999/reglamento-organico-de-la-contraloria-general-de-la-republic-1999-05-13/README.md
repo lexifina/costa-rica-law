@@ -14,3 +14,4 @@ Reglamento Orgánico de la Contraloría General de la República. (En La Gaceta 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-28 | la propia norma |
+| 2 | 1999-09-20 | Resolución 0 (1999-09-20) |
