@@ -1,0 +1,1 @@
+Articulo 10.—Todas las instituciones de 'Educación de Adultos y de Educación No Formal del Ministerio de Educación Pública, .dependerán administrativamente, en las condiciones y circunstancias previstas en el presente decreto, de las respectivas Direcciones Regionales de Enseñanza.

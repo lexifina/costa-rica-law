@@ -1,0 +1,1 @@
+Articulo 13.—Los conflictos de competencia que pudieren surgir entre los Directores de las Instituciones Educativas de la Jurisdicción y los funcionarios de las Direcciones Regionales de Enseñanza, serán, resueltos por el Director General de Educación Permanente.
