@@ -1,0 +1,1 @@
+Artículo 9º.- El producto de todos los ingresos precitados, se girará mensualmente a través de la Tesorería Nacional, a la Dirección General de Correos, en la forma y condiciones que determine reglamentariamente el Poder Ejecutivo.

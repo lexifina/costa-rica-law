@@ -1,0 +1,1 @@
+Artículo 2º.- La Dirección General de Correos, por medio de su Oficina Central, Administraciones de Correos de cabeceras de provincia y de cantones, que estime conveniente, pondrá a la venta toda clase de estampillas.
