@@ -1,0 +1,2 @@
+Artículo transitorio.—Los contribuyentes que hubieren venido utilizando el método de valuación de "última compra" establecido en el artículo 59 del Reglamento de la Ley del Impuesto sobre la Renta, antes de la reforma promulgada mediante este Decreto Ejecutivo, podrán utilizarlo en el cálculo del impuesto para el período 2001.
+Dado en la Presidencia de la República.-San José, a los siete días del mes de febrero del dos mil dos
