@@ -1,1 +1,0 @@
-Artículo 4°—Los miembros de la Comisión serán nombrados mediante Acuerdo Ejecutivo emitido por el Ministerio de Agricultura y Ganadería, por el plazo de vigencia de la Comisión, el cual será de un año contado a partir de la primera sesión de la misma.
