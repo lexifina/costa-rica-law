@@ -92,7 +92,7 @@ Oficina del Arroz | 140,6
 Oficina de Cooperación Internacional de la Salud OCIS (Así adicionado por el artículo 1° del decreto ejecutivo N° 30824 de 22 de octubre de 2002) | 2.930.0
 Oficina Nacional de Semillas (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31264 de 23 de junio de 2003) | 161.5
 Patronato de Construcciones, Instalaciones y Adquisición de Bienes (Así adicionado por el artículo 1° del Decreto ejecutivo N° 30824 de 22 de octubre de 2002) | 2.685.5
-Patronato Nacional de Ciegos | 27,0
+Patronato Nacional de Ciegos (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31317 de 24 de julio de 2003, publicado en La Gaceta N° 159 de 20 de agosto de 2003.) | 35.3
 Patronato Nacional de la Infancia (Así modificado por artículo 1° del decreto ejecutivo N° 31136 de 21 de abril de 2003) | 7.204,67
 Patronato Nacional de Rehabilitación | 153,3
 Programa de Mejoramiento de la Calidad de la Educación Preescolar y General Básica (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 4.273.0
