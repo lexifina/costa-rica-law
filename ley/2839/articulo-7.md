@@ -1,0 +1,1 @@
+Artículo 7° En los casos de los dos anteriores artículos, si la viuda se casa o fallece y no se dejan hijos, los derechos caducarán, pudiendo aprovechar los herederos únicamente los que resulten de la parte pagada en las adjudicaciones de vivienda o contratos de ahorro y préstamo.
