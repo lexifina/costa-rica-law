@@ -1,0 +1,1 @@
+Artículo 2º.- Que en todos los casos que sea necesaria la modificación registral correspondiente, el Registro Público de Vehículos Motorizados deberá dejar a nombre del Ministerio de Obras Públicas y Transportes, los motores que fueren modificados.
