@@ -18,6 +18,8 @@ Piezas o partes: Producto elaborado, no compuesto a su vez por otras partes o pi
 Porcentaje de merma: Proporción en que disminuyen los insumes respecto de su cantidad inicial, después de ser sometidos o utilizados en un proceso productivo.
 Producto intermedio: mercancías a las que se ha aplicado alguno de los procesos contemplados por el artículo 179 de la Ley General de Aduanas, que constituya un insumo para otra empresa acogida al régimen de perfeccionamiento activo.Reconstrucción: Volver a construir (rehacer) un bien.
 (Así Adicionado por el artículo 1° del Decreto Ejecutivo 29286, del 31 de Enero de 2001)
+Reciclaje: Proceso de recuperación o reutilización de un producto que ya no cumple las funciones para las que fue concebido.
+(Así Adicionado por el artículo 1° del Decreto Ejecutivo 30125, del 25 de Enero de 2002)
 Reparación: Componer el menoscabo sufrido con la finalidad de restablecer su función.
 Reexportaciones directas: salida, una vez cumplidas las formalidades y obligaciones impuestas por un régimen aduanero, de mercancías anteriormente internadas por un beneficiario del régimen de perfeccionamiento activo, sin que hayan consumado su importación definitiva.
 (Así Adicionado por el artículo 1° del Decreto Ejecutivo 29286, del 31 de Enero de 2001)

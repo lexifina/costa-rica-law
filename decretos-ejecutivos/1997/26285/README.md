@@ -18,3 +18,4 @@ Reglamento del Régimen Devolutivo de Derechos
 | 3 | 2000-10-31 | Decreto Ejecutivo 29055 (2000-10-31) |
 | 4 | 2001-01-30 | Decreto Ejecutivo 29286 (2001-01-30) |
 | 5 | 2001-06-18 | Decreto Ejecutivo 29607 (2001-06-18) |
+| 6 | 2002-01-25 | Decreto Ejecutivo 30125 (2002-01-25) |
