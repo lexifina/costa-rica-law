@@ -1,0 +1,1 @@
+Artículo 5º—La Compañía Nacional de Danza estará integrado por el Director Artístico, los maestros de danza, bailarines, asistentes técnicos, administrador, productor y el personal administrativo y técnico necesario para el buen funcionamiento del programa.

@@ -1,0 +1,1 @@
+Artículo 17º—El bailarín tendrá derecho a dos días de descanso absoluto por semana, pero si por circunstancias derivadas de la presentación de un espectáculo, es necesario que labore en días de descanso, éstos se repondrán en las siguientes semanas. Estos días podrán ser consecutivos o no, según programación de la Dirección Artística.

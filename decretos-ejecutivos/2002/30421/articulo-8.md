@@ -1,0 +1,1 @@
+Artículo 8º—Las plazas vacantes serán ocupadas por bailarines interinos, los cuales estarán sujetos a las mismas obligaciones que los titulares y la recomendación para el nombramiento definitivo dependerá de su desempeño satisfactorio a juicio del Director Artístico y del grupo evaluador a que se refiere el artículo 11 de este Reglamento.
