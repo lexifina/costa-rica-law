@@ -1,2 +1,0 @@
-Artículo 2°.- Modificase el artículo 3° de la misma ley a que se refiere el artículo anterior, el cual se leerá en la siguiente forma:
-“ Artículo 3°.- Los gravámenes que fija este Arancel se entenderán así: el especifico lo será por kilogramo de peso bruto, excepto en los casos en que otra cosa se indica, y el ad-valorem, sobre el valor C.I.F, de la mercadería calculada al tipo de venta de las divisas en el mercado oficial. Estos gravámenes son complementarios, por lo que tasarán conjuntamente. Todo envase cuyo aforo sea mayor que el de su contenido, se tasará por separado”.
