@@ -1,0 +1,1 @@
+Artículo 6° ─Las residencias no incluidas en programas de adiestramiento universitario podrán tener jornadas de 8 horas de trabajo sucesivas en 24 horas; éstas deben distribuirse en forma rotatoria , manteniéndose por un determinado período de tiempo no mayor de un mes, para los turnos vespertino y nocturno.

@@ -1,0 +1,1 @@
+Artículo 5° ─ La horas que sobrepasen la jornada ordinaria de trabajo efectivo (208 horas mensuales), deberán pagarse con salario ordinario o sencillo, cuando ocurran de lunes a sábado. Queda entendido que las horas relativas al descanso semanal y días feriados de pago legal obligatorio, deberán pagarse a salario doble.
