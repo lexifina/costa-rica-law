@@ -13,3 +13,4 @@ Declara Día de la Poesía Nacional el 31 de Enero en Homenaje a Debravo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-17 | la propia norma |
+| 2 | 1996-05-17 | SINALEVI (sin norma nombrada) |
