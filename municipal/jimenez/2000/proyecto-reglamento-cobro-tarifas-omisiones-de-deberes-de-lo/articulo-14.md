@@ -1,0 +1,1 @@
+Articulo 14.—Corresponderá a las dependencias municipales directamente relacionadas con las omisiones que la ley y este reglamento contemplan, determinar en el campo, la omisión de los deberes de propietarios de bienes inmuebles que señala el articulo 75 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 4°—Todo propietario(a) para la construcción de aceras frente a su propiedad, debe solicitar el respectivo alineamiento y los niveles correspondientes a la Municipalidad , la cual deberá dársela en un término no mayor de 15 días hábiles posteriores a' recibo de la solicitud.

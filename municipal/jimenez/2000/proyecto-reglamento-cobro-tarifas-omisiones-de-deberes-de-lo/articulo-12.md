@@ -1,0 +1,6 @@
+Artículo 12.—Cuando los propietarios (as) incumplan uno o más de los deberes consignados en el artículo 75 del Código Municipal, la Administración Municipal procederá de la siguiente manera:
+a. Notificar a través del Departamento de Catastro (por escrito) al propietario(a); indicándole en forma detallada el o los deberes incumplidos, dándole un plazo de una a seis semanas máximo para realizar los trabajos requeridos. El Departamento de Ingeniería hará una inspección y avalúo del trabajo y le notificará por metro de área a cada propietario(a) el costo de la obra realizada.
+b. En la misma notificación se hará la advertencia de que si no cumplen con lo solicitado, la Municipalidad procederá a la realización de los trabajos.
+c. A los propietarios (as) que no atiendan la notificación, se procederá a realizarle los trabajos requeridos en sus propiedades.
+d. Se aplicará el cobro de los trabajos realizados, sumando al costo real del mismo hasta un 50% de recargo por concepto de multa. La Municipalidad aplicará los costos operativos (uso de maquinaria, horas hombre, tipo de terreno, etc.).
+e. Se enviará un cobro al propietario(a) con el montó total a cancelar por los trabajos que se le hicieron. De no acceder al pago se aplicarán todos los procedimientos legales que tiene la Municipalidad para hacer efectivo el pago de sus contribuyentes morosos.
