@@ -14,3 +14,4 @@ Reglamento de Capacitación y Formación para los Empleados de la Refinadora Cos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-01-12 | la propia norma |
+| 2 | 1998-01-12 | Ley 8 |
