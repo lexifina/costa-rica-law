@@ -1,3 +1,7 @@
-Capítulo VIII
-ADHESION DE NUEVOS MIEMBROS
-Artículo 35.- Los Estados centroamericanos no signatarios del presente Convenio podrán adherirse a él en cualquier momento.
+CAPITULO VIII
+Adhesión de nuevos miembros y modificaciones
+(Modificada su denominación por al artículo 1° de la ley N° 7258 del 9 de octubre de 1991)
+Artículo 35.-
+a) Los Estados no signatarios del presente Convenio podrán adherirse a él en cualquier momento, siempre que fueren miembros del Fondo para el Desarrollo Económico y Social de Centroamérica (FONDESCA), o sean admitidos de conformidad con lo establecido en el presente Convenio;
+b) Toda propuesta de modificación de este Convenio, ya sea presentada por un país miembro o por el Directorio, será comunicada al Presidente de la Asamblea de Gobernadores, quien la someterá a la consideración de ésta. Si la propuesta fuere aprobada por la Asamblea de Gobernadores, por mayoría del número total de Gobernadores, que incluya la totalidad de los Gobernadores de los países fundadores, el Banco deberá notificarla a todos sus miembros solicitando la aprobación conforme a su legislación interna. Cuando tal modificación haya sido aprobada por mayoría del número total de los países miembros, que incluya la totalidad de los países fundadores y que represente, por lo menos, tres cuartas partes de la totalidad de los votos de los miembros, el Banco lo hará constar en comunicación oficial dirigida a todos sus miembros. La modificación entrará en vigencia, para todos los miembros, tres meses después de la fecha de la comunicación oficial, salvo que la Asamblea de Gobernadores hubiere fijado plazo diferente.
+(Así reformado por el artículo 1° de la ley N° 7258 del 9 de octubre de 1991)

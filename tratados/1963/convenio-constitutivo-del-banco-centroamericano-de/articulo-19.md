@@ -1,3 +1,4 @@
-Artículo 19.- El Director será de carácter permanente y funcionará en la sede del Banco.
-El Director determinará la organización básica del Banco, inclusive el número y las responsabilidades generales de los principales cargos administrativos y profesionales, aprobará el presupuesto y propondrá a la Asamblea de Gobernadores la constitución de reservas.
-Todas las decisiones del Directorio se tomarán por mayoría de votos del total de sus miembros.
+Artículo 19.- El Directorio será de carácter permanente y funcionará normalmente en la sede del Banco, pudiendo también reunirse en cualquier país centroamericano. Asimismo, el Directorio podrá celebrar sesiones en cualquier otro país miembro aprovechando reuniones de la Asamblea de Gobernadores.
+El quórum para las reuniones del Directorio será la mayoría del total de Directores, que incluya, por lo menos, tres Directores de los países fundadores.
+Las decisiones del Directorio se tomarán por mayoría de votos del total de sus miembros, salvo los casos que determine el Reglamento de la Organización y Administración del Banco, en que se requerirá una mayoría calificada. Los Directores deberán pronunciarse, positiva o negativamente, sobre los asuntos sometidos a votación.
+(Así reformado por el artículo 1° de la ley N° 7258 del 9 de octubre de 1991)

@@ -1,2 +1,4 @@
-Artículo 17.- Los Directores continuarán en sus cargos hasta que se designe o elijan sus sucesores. Cuando el cargo de Director quede vacante, los Gobernadores procederán a nombrar su sustituto para el resto del período.
-En caso de ausencia justificada de un Director, el Directorio podrá nombrar a quien deba sustituirlo temporalmente.
+Artículo 17.- Los Directores continuarán en sus cargos hasta que sea efectiva la elección de sus sucesores. Cuando el cargo de Director por un país fundador quede vacante, los Gobernadores de los países fundadores procederán a elegir un sustituto para el resto del período, a propuesta del país respectivo.
+En caso de ausencia temporal justificada del Director de cualquiera de los países fundadores, éste será sustituido durante su ausencia por la persona que, reuniendo los requisitos del caso, sea designada por el Gobernador del país respectivo.
+Cuando el cargo de Director por un país extrarregional quede vacante y falten más de ciento ochenta (180) días para la expiración de su período, los Gobernadores de los países que lo eligieron procederán a elegir un nuevo Director.
+(Así reformado por el artículo 1° de la ley N° 7258 del 9 de octubre de 1991)
