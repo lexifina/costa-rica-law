@@ -1,0 +1,1 @@
+Artículo 2°-En sustitución de dicho impuesto, y sin perjuicio del tributo creado por las leyes números 296 de 26 de agosto de 1939 y 362 de 20 de agosto de 1940, establécese el de un cuatro por ciento sobre las entradas brutas que a las mencionadas empresas proporcionen los teatros y espectáculos públicos a que se refiere el artículo anterior.
