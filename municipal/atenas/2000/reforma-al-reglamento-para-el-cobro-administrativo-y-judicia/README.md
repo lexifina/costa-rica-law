@@ -14,3 +14,4 @@ Reforma al Reglamento para el Cobro Administrativo y Judicial.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-10 | la propia norma |
+| 2 | 2000-08-10 | Ley 8 |
