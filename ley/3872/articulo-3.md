@@ -1,4 +1,5 @@
-ARTICULO 3°.- Autorízase al Banco Central de Costa Rica para aumentar hasta el 20% el descuento por venta de timbres consulares, siempre que el adquirente desempe¤e una funci¢n consular. Cualquier persona, entidad particular o estatal, tendr derecho £nicamente al descuento del 8%.
+Artículo 3º—Autorízase al Banco Central de Costa Rica para que aplique un único descuento del cinco por ciento (5%) a favor de funcionarios del Servicio Consular, entidades particulares o estatales, así como de cualquier otra entidad adquiriente de timbres consulares.
+(Así reformada por Artículo único de la Ley 8303 del 10 de setiembre del 2002)
 Comuniqúese al Poder Ejecutivo
 Dado en el Salón de Sesiones de la Asamblea Legislativa.—San José a los once días del mes de mayo de mil novecientos sesenta y siete.
 HERNÁN GARRÓN SALAZAR.
