@@ -1,4 +1,4 @@
-Artículo 7º.- La Oficina del Café, por medio de su Departamento de
+ARTICULO 7º.- La Oficina del Café, por medio de su Departamento de
 Inspectores, velará por el cumplimiento del presente Reglamento y de la
 respectiva ley. Al efecto, los Inspectores estarán investidos con el
 carácter de Guardas Fiscales y Guardas Civiles, para el mejor cumplimiento

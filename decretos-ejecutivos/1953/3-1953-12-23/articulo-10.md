@@ -1,4 +1,4 @@
-Artículo 10.- Todo fabricante, comerciante o expendedor de café
+ARTICULO 10.- Todo fabricante, comerciante o expendedor de café
 tostado y molido estará en la obligación de entregar las muestras que le
 soliciten los Inspectores de la Oficina del Café. Estas muestras deberán
 ser analizadas por el Laboratorio de la misma. Si el dictamen evidenciare

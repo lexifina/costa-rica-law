@@ -1,4 +1,4 @@
-Artículo 8º.- Para la obtención de muestras y para la fiscalización
+ARTICULO 8º.- Para la obtención de muestras y para la fiscalización
 correspondiente, se seguirá el siguiente procedimiento:
 a) A indicación del Director de la Oficina podrán los Inspectores
 presenciar en cada fábrica o molino la torrefacción, molida, empaque y

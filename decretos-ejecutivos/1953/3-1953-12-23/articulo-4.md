@@ -1,4 +1,3 @@
-Artículo 4º.- Queda prohibida la importación de productos
-alimenticios para ser usados como infusión, en cuya preparación se emplee
-el café como uno de sus integrantes. Las Aduanas de la República no
-permitirán el desalmacenaje de estos productos.
+ARTICULO 4º.- DEROGADO.
+(Derogado por el artículo 12 de la ley No.7473 del 20 de diciembre de
+1994)

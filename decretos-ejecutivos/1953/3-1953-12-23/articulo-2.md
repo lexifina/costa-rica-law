@@ -1,4 +1,4 @@
-Artículo 2º.- Para los efectos de dicha ley, se entenderá por:
+ARTICULO 2º.- Para los efectos de dicha ley, se entenderá por:
 a) Café para consumo nacional.- El grano de oro, libre de todos sus
 tegumentos; y así, ya sea crudo, tostado y tostado y molido o soluble, se
 venderá para su consumo. Cualquier otro producto o sustancia que se

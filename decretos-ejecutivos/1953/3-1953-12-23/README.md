@@ -13,3 +13,4 @@ Reglamenta Ley Prohíbe Alteración Café
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1954-01-27 | la propia norma |
+| 2 | 1954-01-27 | SINALEVI (sin norma nombrada) |

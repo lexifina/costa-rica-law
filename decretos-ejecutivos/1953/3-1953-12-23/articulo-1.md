@@ -6,6 +6,6 @@ establecidos por el reglamento de la expresada ley,
 DECRETA:
 El siguiente
 REGLAMENTO A LA LEY Nº 1616
-Artículo 1º.- Para dar cumplimiento a la ley Nº 1616 de 3 de agosto
+ARTICULO 1º.- Para dar cumplimiento a la ley Nº 1616 de 3 de agosto
 de 1953, se encarga de la ejecución y vigilancia de la misma a la Oficina
 del Café.
