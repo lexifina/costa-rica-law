@@ -1,0 +1,1 @@
+Artículo 4º—La primera acción de esta comisión será la integración de toda la información inmobiliaria disponible y la coordinación de los esfuerzos de todas las instituciones involucradas para obtener un catastro único y sostenible a nivel nacional.
