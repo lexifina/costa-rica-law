@@ -1,0 +1,1 @@
+Art. 4°. Lo dispuesto en el artículo anterior, no limita la facultad discrecional que legítimamente competa al Poder Ejecutivo, en cuanto á establecer la clase de conmutaciones que conforme a la ley disponga.

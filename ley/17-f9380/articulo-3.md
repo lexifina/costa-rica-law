@@ -1,0 +1,1 @@
+Art. 3°. –Los reos á quienes se conmute la pena impuesta por delitos de contrabando ú otros que no produzcan infamia, serán destinados á formar parte de la guarnición del presidio de la Isla de Cocos.
