@@ -2,8 +2,11 @@ ARTICULO 19
 Relaciones con otros organismos internacionales
 1. El Organismo podrá concertar con el Organismo Internacional de
 Energía Atómica los acuerdos que autorice la Conferencia General y que
-considere apropiados para facilitar el eficaz funcionamiento del Sistema
-de Control establecido en el presente Tratado.
+considere apropiados para facilitar el eficaz funcionamiento del sistema
+de control establecido en el presente Tratado.
+(Así modificado este párrafo por el artículo 1 de la ley No.7819 de
+1 de setiembre de 1998, que aprobó el III Protocolo de Reformas a este
+Tratado)
 2. El Organismo podrá también entrar en relación con cualquier
 organización u organismo internacional, especialmente con los que lleguen
 a crearse en el futuro para supervisar el desarme o las medidas de control

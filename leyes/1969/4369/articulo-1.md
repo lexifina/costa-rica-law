@@ -1,4 +1,4 @@
-Artículo único.- Ratíficase en todas y cada una de sus partes el
+ARTÍCULO ÚNICO.- Ratíficase en todas y cada una de sus partes el
 Tratado para la Proscripción de las Armas Nucleares en América Latina y
 sus dos Protocolos adicionales, firmados en la ciudad de México, Distrito
 Federal, el 14 de febrero de 1967, cuyos textos son los siguientes:

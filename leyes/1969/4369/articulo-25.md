@@ -12,3 +12,6 @@ parcialmente y con anterioridad a la fecha de la apertura a firma del
 presente Tratado, a litigio o reclamación entre un país extracontinental
 y uno o más Estados latinoamericanos, mientras no se haya puesto fin a al
 controversia mediante procedimientos pacíficos.
+(Así modificado este párrafo por el artículo 1 de la ley No.7819 de
+1 de setiembre de 1998, que aprobó el II Protocolo de Reformas a este
+Tratado)
