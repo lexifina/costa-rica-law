@@ -1,0 +1,1 @@
+Artículo 5º—Recursos financieros para capacitación y estudios. En el Presupuesto de la Autoridad Reguladora o sus modificaciones se incluirán las partidas que resulten necesarias para la ejecución del Plan de Capacitación y para brindar la ayuda para estudios.

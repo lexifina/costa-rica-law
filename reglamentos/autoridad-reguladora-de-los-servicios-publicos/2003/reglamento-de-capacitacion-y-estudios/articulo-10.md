@@ -1,0 +1,2 @@
+Artículo 10.—Requisitos para optar por ayuda para estudios. Los requisitos para optar por ayuda para estudios son los señalados en los incisos a), c), y d), del artículo 6° de este Reglamento.
+En los casos en que la Autoridad Reguladora disponga la realización de programas de estudios específicos, los mismos se regirán por el acuerdo que adopte la Junta Directiva a propuesta del Regulador General.

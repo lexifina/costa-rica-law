@@ -1,0 +1,2 @@
+Artículo 4º—Planificación de actividades de capacitación. Dentro del proceso de planificación de la Autoridad Reguladora, se determinará en lo posible la capacitación que se realizará durante el año siguiente, sobre la base de las necesidades y prioridades establecidas por cada dirección, en coordinación con el Departamento de Recursos Humanos.
+Al elaborar el Proyecto de Plan de Capacitación, las jefaturas deberán considerar entre otros aspectos, el déficit de capacitación, en función de la perspectiva institucional en el marco de las tendencias mundiales.
