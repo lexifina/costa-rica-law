@@ -1,0 +1,1 @@
+Artículo 2°-La explotación que los buzos podrán hacer en lo sucesivo, debe sujetarse á las disposiciones contenidas en el reglamento á que se refiere el decreto de 22 de agosto de 1902, en lo que les fuere aplicable.
