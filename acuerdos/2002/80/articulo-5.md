@@ -1,0 +1,1 @@
+Artículo 5°—El Consejo de Personal será presidido por el Oficial Mayor y Director General Administrativo y Financiero, en su ausencia por la Coordinadora General de la Unidad Técnica de Recursos Humanos, y en ausencia de ambos por la Directora Jurídica.

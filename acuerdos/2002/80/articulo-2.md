@@ -1,0 +1,1 @@
+Artículo 2°—Que de conformidad con lo dispuesto en la Ley General de Policía, debe existir en cada Ministerio un Consejo de Personal, cuya competencia se centra en todo lo relativo, al refrendo de la lista de elegibles, al régimen disciplinario v a la emisión de políticas generales para el Departamento de Personal respectivo.
