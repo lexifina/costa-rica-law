@@ -1,0 +1,2 @@
+Artículo 7°-Con base en el peritazgo a que se ha hecho referencia, el dueño del animal sacrificado, tan pronto presente su reclamación, será indemnizado por el Estado con el 50% del valor fijado por los peritos del Banco Nacional.
+No obstante lo dicho en este artículo, el Estado, en caso de animales asegurados, sólo estará obligado a pagar al dueño de los mismos la diferencia que resultare en su contra entre el aseguro y el 50% a que se refiere este artículo.
