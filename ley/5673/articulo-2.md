@@ -1,0 +1,1 @@
+Artículo 2°-Se autoriza al Procurador General de la república, para otorgar, en nombre y representación del estado y ante la Notaría del estado, a quien se le encarga al efecto, la o las escrituras respectivas cuya inscripción será libre de toda clase de derechos, impuestos y timbres.
