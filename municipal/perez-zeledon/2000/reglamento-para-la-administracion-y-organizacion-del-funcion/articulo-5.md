@@ -13,3 +13,5 @@ Dentro de los quince días hábiles anteriores a la fecha de nombramiento de est
 El plazo para presentar las temas será de cinco días hábiles.
 El Concejo Municipal conocerá las ternas y hará el nombramiento de la respectiva Junta.
 Asimismo, el Concejo nombrará el representante de la Municipalidad de Pérez Zeledón en ese órgano, que podrá ser electo de entre los integrantes del Concejo mismo, de entre los funcionarios de la Administración Municipal o de entre los miembros del municipio en general.
+Con fundamento de los artículos 169 y 170 de la Constitución Política y en los incisos d), m) y p) del artículo 13 del Código Municipal, este consejo deja otorgada a este Junta Administradora de personería jurídica instrumental para actuar.
+(Así AMPLIADO por el punto b) del artículo 5), inciso 17), de la Sesión Ordinaria No. 181-01, celebrada el día 03 de julio de 2001, publicada en La Gaceta No. 148 de 03 de agosto de 2001.)

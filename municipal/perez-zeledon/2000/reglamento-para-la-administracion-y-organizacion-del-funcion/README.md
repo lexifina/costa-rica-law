@@ -14,3 +14,4 @@ Reglamento para la Administración y Organización del Funcionamiento de Activid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-04-02 | la propia norma |
+| 2 | 2001-07-03 | Reglamento municipal 181 (2001-07-03) |
