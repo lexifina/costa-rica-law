@@ -1,6 +1,0 @@
-Artículo 2°—Corresponderá a los colegios científicos el logro de los objetivos propuestos para la Educación Diversificada del sistema educativo con énfasis en la educación científica. En consecuencia, además de los objetivos generales, tendrán los siguientes objetivos específicos:
-a) Garantizar que los estudiantes adquieran conocimientos sólidos y habilidades en los fundamentos de la ciencia y de la tecnología científica, en los campos de la matemática, física, química, biología y electrónica.
-b) Desarrollar al máximo posible el potencial científico y tecnológico de los jóvenes con vocación hacia las ciencias exactas.
-c) Formar jóvenes patrióticos en los cuales se hayan cultivado sus responsabilidades de ciudadanos y su conciencia de especial responsabilidad en el desarrollo de Costa Rica, a través del trabajo productivo en las áreas de las ciencias exactas y de la tecnología científica.
-ch) Formar jóvenes creativos capaces de comunicarse eficazmente con los demás seres humanos de todo el mundo en el lenguaje de la matemática y de las ciencias exactas; pensar y razonar lógicamente, adquirir conocimiento científico nuevo por sus propios medios y resolver problemas.
-d) Formar jóvenes amantes de su prójimo y de la herencia cultural de la humanidad, dispuestos a trabajar en forma cooperativa con los demás, y a competir en forma noble y deportiva con otros.

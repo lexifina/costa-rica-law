@@ -1,5 +1,0 @@
-TRANSITORIOS
-I.—No obstante lo dispuesto en el presente reglamento, para el c 1989, se aplicarán los siguientes criterios de selección y admisión:
-a) Se solicitarán a todos los colegios del país los nombres de todos de padres costarricenses y de menos de dieciséis años cumplidos, que contemplaron su noveno año en noviembre de 1988, obteniendo en todos y cada uno de los tres años del Tercer Ciclo un promedio general de calificaciones no inferior a noventa.
-b) Estos estudiantes serán invitados a presentarse a los examen establecidos por la Comisión de Admisión nombrada por el Ministerio de Educación Pública para este propósito. Estos exámenes serán: una composición escrita, un examen de aprovechamiento en matemática, pruebas cortas de habilidad matemática y una prueba de actitud hacia la ciencia y hacia el científico
-c) Con base en las pruebas mencionadas, se escogerán los estudiantes que obtengan los setenta mejores puntajes para ser admitidos como alumnos regulares de los colegios científico

@@ -1,1 +1,0 @@
-Artículo 3°—Corresponderá al Consejo Superior de Educación, aprobare! plan de estudios, sus respectivos programas y las normas relativas a la evaluación y la promoción en los colegios científicos; sin perjuicio de las disposiciones específicas que, dentro del marco general, pueda adoptar cada colegio de conformidad con el presente reglamento.
