@@ -1,0 +1,1 @@
+8.—Designación de responsables. Al jerarca le corresponde establecer las responsabilidades de las unidades y funcionarios que intervienen en la fase de formulación presupuestaria, quienes deben actuar de manera coordinada e integrada.

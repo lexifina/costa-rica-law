@@ -1,0 +1,2 @@
+9.—Asignación de recursos. El jerarca y los titulares subordinados serán responsables de asignar los recursos humanos, materiales, tecnológicos y otros necesarios y suficientes para que las unidades encargadas de la fase de formulación presupuestaria cumplan su gestión.
+En el caso particular de las auditorías internas los jerarcas deben considerar, para la asignación de los recursos respectivos, lo estipulado en el artículo 27 de la Ley General de Control Interno.
