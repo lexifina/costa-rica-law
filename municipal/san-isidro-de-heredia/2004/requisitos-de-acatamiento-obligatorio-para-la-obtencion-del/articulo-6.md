@@ -1,1 +1,2 @@
-6º—Queda prohibido la instalación de máquina en locales ubicados a menos de cien metros de distancia de centros educativos autorizados, según Ley de Juegos Nº 1387 del 21 de noviembre de 1951 y Reglamento de Juegos Decreto Ejecutivo 3510-G del 24 de enero de 1974.
+6º—Cada máquina que se autorice deberá tener en un lugar visible el respectivo permiso de funcionamiento rotulado con el nombre de la Empresa y de la leyenda "Prohibido para menores de 18 años", todo en la parte frontal de la máquina y de forma bien visible.
+(Así corrida su enumeración en sesión N° 373 del 6 de setiembre del 2004, pasandolo del artículo 5° al 6° actual)

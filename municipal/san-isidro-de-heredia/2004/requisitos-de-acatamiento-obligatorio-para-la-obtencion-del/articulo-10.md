@@ -1,2 +1,2 @@
-10.—Hasta tanto no se publiquen los requisitos respectivos, los permisos que se otorguen bajo estas disposiciones se consideran como permisos temporales o de carácter precario, lo anterior es que por tratarse de una actividad nueva, la Municipalidad tomará este tiempo como un periodo de prueba para determinar con más exactitud el comportamiento del mercado frente a la actividad de las máquinas. La Municipalidad se reserva el derecho de otorgar permisos temporales en actividades especiales como festejos populares y patronales, turnos, actividades afines.
-San Isidro de Heredia, 30 de agosto del 2004.—
+10º—Se deberá de presentar copia autenticada por un abogado del Convenio a Contrato entre el propietario de las máquinas y el propietario del local o negocio principal.
+(Así corrida su enumeración en sesión N° 373 del 6 de setiembre del 2004, pasandolo del artículo 9° al 10° actual)

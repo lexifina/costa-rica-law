@@ -1,1 +1,2 @@
-5º—Cada máquina que se autorice deberá tener en un lugar visible el respectivo permiso de funcionamiento rotulado con el nombre de la Empresa y de la leyenda "Prohibido para menores de 18 años", todo en la parte frontal de la máquina y de forma bien visible.
+5º—Horarios. De lunes a viernes de las 16:00 a las 22:00 horas; sábados, domingos y feriados de las 13:00 a las 23:00 horas. Autorizado el uso de las máquinas únicamente a personas mayores de 18 años, según Ley de Juegos Nº 1387 del 21 de noviembre de 1951 y Reglamento de Juegos Decreto Ejecutivo 3510-G del 24 de enero de 1974.
+(Así corrida su enumeración en sesión N° 373 del 6 de setiembre del 2004, pasandolo del artículo 4° al 5° actual)

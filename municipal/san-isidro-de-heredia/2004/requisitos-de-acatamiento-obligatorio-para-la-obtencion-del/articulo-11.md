@@ -1,0 +1,3 @@
+11.—Hasta tanto no se publiquen los requisitos respectivos, los permisos que se otorguen bajo estas disposiciones se consideran como permisos temporales o de carácter precario, lo anterior es que por tratarse de una actividad nueva, la Municipalidad tomará este tiempo como un periodo de prueba para determinar con más exactitud el comportamiento del mercado frente a la actividad de las máquinas. La Municipalidad se reserva el derecho de otorgar permisos temporales en actividades especiales como festejos populares y patronales, turnos, actividades afines.
+(Así corrida su enumeración en sesión N° 373 del 6 de setiembre del 2004, pasandolo del artículo 10° al 11° actual)
+San Isidro de Heredia, 30 de agosto del 2004.—

@@ -14,3 +14,4 @@ Requisitos de acatamiento obligatorio para la obtención del permiso y para la e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-03 | la propia norma |
+| 2 | 2004-09-06 | Reglamento municipal 373 (2004-09-06) |

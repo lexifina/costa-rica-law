@@ -1,1 +1,2 @@
-2º—En ejercicio de la potestad que tiene esta Municipalidad de establecer las tasas o impuestos según Ley Nº 7364 de la Municipalidad de San Isidro de Heredia, se determina un cobro de ¢8.000,00 (ocho mil colones exactos) trimestrales, más los impuestos de ley pagaderos como toda patente por adelantado. Si en un negocio se instalaron más máquinas que las autorizadas inmediatamente la Municipalidad procederá a cancelar todas las patentes de máquina que funcionan en dicho negocio.
+2° Visto bueno de uso de suelo, que contemple lugar debidamente acondicionado que no obstruya la vía pública ni el ingreso al local.
+(Así adicionado en sesión N° 373 del 6 de setiembre del 2004)
