@@ -1,3 +1,4 @@
-Artículo 6°—Cinco miembros formarán el quorum para celebrar sesión y los acuerdos que no requieran mayoría especial se tomarán por el voto de la mitad más cualquier fracción de los miembros presentes. Esos votos se darán en forma nominal, excepto en los casos en que se acuerde hacerlo por escrito.
-Si al votar un asunto o una moción ocurriere un empate, se dejará la resolución para la sesión siguiente, y si en ésta se repitiera el empate, eso indica que se desechó.
-Si ocurriere un empate al votar un dictamen, se dejará para resolverlo en la siguiente sesión, y si en ésta volviere a haber empate se pasará el asunto a una nueva comisión que se designará en el mismo acto.
+Artículo 6°— Cinco miembros formarán el quórum para que pueda sesionar validamente el Consejo.
+Los acuerdos se tomaran por mayoría absoluta de los miembros asistentes, excepto en los casos en que este prevista una mayoría calificada.
+Los votos se emitirán en forma nominal, excepto en los casos en que se acuerde hacerlo por escrito.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 23257 del 27 de abril de 1994)
