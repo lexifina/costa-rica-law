@@ -1,1 +1,0 @@
-ARTICULO 22: No se dará trámite a ninguna liquidación de gastos de viaje cuando sobrepase el monto máximo a pagar, según el Artículo 10 de este Reglamento. (Así modificado por Acuerdo 11-Sesión No. 2569 (5-9-96). Oficio No. 595 J.D.).

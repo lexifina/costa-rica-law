@@ -1,1 +1,0 @@
-ARTICULO 9: Todo reintegro o reembolso será emitido por el Cajero en la fórmula respectiva cuando tenga un 10% de utilización de los fondos de caja chica o en su defecto, uno diario, si no alcanza el mínimo fijado.

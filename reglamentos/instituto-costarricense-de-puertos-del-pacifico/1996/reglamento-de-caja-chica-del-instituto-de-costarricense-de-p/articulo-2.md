@@ -1,1 +1,0 @@
-ARTICULO 2: Se dará la creación de una caja chica con fondo único y las que establezca la Gerencia General con la aprobación de Junta Directiva a solicitud de los Jefes de Dirección y que tendrá las partidas que se fijarán en el Artículo 10 de este Reglamento.

@@ -1,1 +1,0 @@
-ARTICULO 29: Es absolutamente prohibido cambiar cheques, pagar salarios (incluyendo el pago por boleta) o prestar dinero con los fondos de caja chica. Además, dichos fondos deberán estar separados de los ingresos (u otros) de la caja general.

@@ -1,1 +1,0 @@
-ARTICULO 3: La Auditoría General, de acuerdo a las atribuciones que le concede la Ley Constitutiva del INCOP, realizará los arqueos y verificaciones de los documentos en poder de los responsables de la custodia de las diferentes cajas chicas asignadas y otros valores cuando lo considere necesario, de acuerdo a su programación de labores.

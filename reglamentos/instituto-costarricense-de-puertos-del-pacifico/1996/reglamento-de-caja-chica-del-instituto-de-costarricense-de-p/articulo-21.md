@@ -1,2 +1,0 @@
-ARTICULO 21: El encargado del fondo no entregará dinero por liquidación de gastos de viaje si no es el funcionario para quien esté emitido dicho documento, salvo que presente las autorizaciones por escrito y las cédulas de identidad respectivas del autorizado y del que recibe de acuerdo al Reglamento Autónomo de Servicio de nuestra Institución, Artículo 49 inciso G.
-Se exceptúa de esta disposición a la Administración Superior, Auditor General y los Jefes de Dirección.
