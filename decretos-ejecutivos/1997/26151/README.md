@@ -14,3 +14,4 @@ Creación del Centro de Enseñanza Permanente de Conservación de la Energía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-07-16 | la propia norma |
+| 2 | 2004-03-12 | Decreto Ejecutivo 32023 (2004-03-12) |
