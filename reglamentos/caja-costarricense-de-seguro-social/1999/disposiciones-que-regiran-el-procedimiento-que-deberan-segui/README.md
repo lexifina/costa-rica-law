@@ -14,3 +14,4 @@ Disposiciones que regirán el procedimiento que deberán seguir los Jurados cali
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-06 | la propia norma |
+| 2 | 2000-03-06 | Reglamento 7412 (2000-02-09) |
