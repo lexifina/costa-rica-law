@@ -1,1 +1,0 @@
-Artículo 3—Los interesados deberán cancelar la tarifa correspondiente, previamente a la realización del análisis, en la Tesorería del Consejo Técnico de Asistencia Médico-Social, quien llevará un registro contable de los mismos, bajo el control de la Auditoría General del Ministerio, para los efectos del presupuesto y utilización de las sumas que se recauden por ese concepto.
