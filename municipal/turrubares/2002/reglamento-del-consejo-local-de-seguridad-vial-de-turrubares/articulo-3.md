@@ -1,0 +1,1 @@
+Artículo 3º—El COLOSEVI-TURRUBARES, establecerá los mecanismos de control a efectos de garantizar el buen uso de los recursos que se asignen de acuerdo a las leyes vigentes (Ley Nº 7331 y otras). Será un ente adscrito a la Municipalidad de Turrubares.

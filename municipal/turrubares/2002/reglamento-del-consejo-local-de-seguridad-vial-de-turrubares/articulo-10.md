@@ -1,0 +1,1 @@
+Artículo 10.—Por motivo de que los miembros del COLOSEVI-TURRUBARES eventualmente, se ausenten a las sesiones ordinarias o extraordinarias se acuerda por unanimidad aprobar quórum con la cantidad de tres miembros.

@@ -1,0 +1,1 @@
+Artículo 13.—Cada miembro representante de COLOSEVI-TURRUBARES será identificado mediante un carné. Así mismo se hace saber que el no asistir a tres (3) reuniones consecutivas sin justificación o 6 ausencias justificadas, perderá la credencial otorgada como miembro del COLOSEVI-TURRUBARES.
