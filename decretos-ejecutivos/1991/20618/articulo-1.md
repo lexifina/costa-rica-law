@@ -9,7 +9,7 @@ ARTÍCULO 1°.- Modifíquese y adiciónese las siguientes definiciones contenida
 Árbol forestal: Se entiende por tal un vegetal leñoso, compuesto por raíces, tallos, ramas y hojas cuyo objetivo principal es ser utilizado para producir madera apta para aserrar tableros, chapas, carbón leña, palillos para fósforos, celulosa, aceites esenciales, resinas, taninos y otros.
 Corporaciones o Cooperativas Forestales: Para efectos de este reglamento son todas aquellas entidades privadas sin fines de lucro, debidamente inscritas, cuyo objetivo principal sea el desarrollo de actividades forestales.
 Industria Forestal: Es toda aquella empresa (aserraderos, fábricas de contra enchapado, fábricas de aglomerados, fábricas de fósforos, fábrica de pulpa y papel, fábricas de paletas y palillos), que utilice materia prima en troza o en block, para ser transformada en algún tipo de producto forestal.
-Madera en block: Es aquella pieza aserrada, mayor o igual a cinco centímetros de espesor.
+Madera en block: (Así derogada esta definición por el artículo 15 del decreto ejecutivo N° 24740 del 28 de setiembre de 1995)
 Materia prima: Es toda aquella madera que se genere como subproducto del bosque, plantaciones forestales, potreros, charrales y otros que por sus características pueda ser procesada en industrias forestales.
 Materia prima residual: Es toda aquella madera que se genere como remanente después de una explotación forestal, y que por sus características no es rentable su procesamiento en las plantas tradicionales de industrialización.
 También se incluye dentro de la presente definición; las trozas que se encuentran en vías de deterioro, trozas, huecas, tocones, puntas, ramas y colas.
