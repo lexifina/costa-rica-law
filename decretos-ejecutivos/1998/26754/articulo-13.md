@@ -1,1 +1,0 @@
-Artículo 13.—La Tesorería Nacional dispondrá de un Manual de Procedimientos de Control para la emisión y pago de las partidas específicas que complemente lo instruido en el presente reglamento, tres meses después de su publicación.

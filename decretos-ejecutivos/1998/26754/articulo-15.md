@@ -1,1 +1,0 @@
-Artículo 15.—Los cheques de gerencia de entidades bancarias recibidos en la Tesorería Nacional por concepto de pagos no efectuados en los bancos, deben ser depositados al Fondo General del Gobierno a más tardar el día hábil siguiente del recibo.

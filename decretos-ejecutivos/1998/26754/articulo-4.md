@@ -1,3 +1,0 @@
-CAPITULO 2
-De los requisitos
-Artículo 4°—Los representantes legales de las entidades beneficiadas con una partida especifica deben gestionar la apertura de una cuenta bancaria a nombre de la persona jurídica en cualquiera de los bancos del Sistema Bancario Nacional. Los montos allí depositados serán únicamente los que provengan de las subvenciones del Estado y sólo podrán ser retirados por las personas debidamente autorizadas. Los representantes legales de estas entidades deberán velar por la correspondencia de la cuenta bancaria asignada en la Agencia Bancaria y la Oficina de Depósito Automático del respectivo banco.

@@ -1,1 +1,0 @@
-Artículo 9°—Los pagos de las partidas específicas solo podrán depositarse en las cuentas bancarias de las organizaciones beneficiadas y en las fechas establecidas por la Tesorería Nacional. Por ningún motivo el .ente bancario podrá cambiar el destino o los montos autorizados por la Tesorería Nacional, salvo por acto administrativo justificado y emitido por el órgano.
