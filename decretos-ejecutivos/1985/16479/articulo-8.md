@@ -1,0 +1,1 @@
+Artículo 8º.-El Consejo Nacional para los Refugiados consultará a los Consejos de Seguridad Nacional y Económico y Social, todas aquellas decisiones y actividades relativas a refugiados que se relacionen con la competencia de ellos.

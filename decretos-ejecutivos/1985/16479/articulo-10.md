@@ -1,0 +1,1 @@
+Artículo 10.-Se derogan los Decretos Ejecutivos Nº 11939-P de 7 de octubre de 1980, Nº 13722-J de 1º de julio de 1982, Nº 13862-J de 9 de setiembre de 1982, Nº 14155-J de 23 de diciembre de 1982 y Nº 14156-J de 23 de diciembre de 1982.
