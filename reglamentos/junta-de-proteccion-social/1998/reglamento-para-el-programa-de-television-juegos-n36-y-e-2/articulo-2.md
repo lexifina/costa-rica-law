@@ -1,0 +1,3 @@
+Artículo N° 2—De los Participantes en el Programa de Televisión.
+2.1 Para tener la opción de participar en el programa de televisión, las personas deberán enviar un sobre que contenga cuatro boletos sin premio correspondiendo exactamente dos de ellos al juego N° 36, y dos al juego N° E-2. Los cuatro boletos deberán consignar en forma clara y legible, el nombre y apellido, así como el número de cédula de identidad del participante, todo ello sin alteraciones que hagan dudar de su legitimidad. Él incumplimiento de uno o más de estos extremos, conlleva a la anulación del sobre.
+El sobre que contenga los cuatro boletos, deberá ser un sobre tipo carta, de color blanco aéreo.
