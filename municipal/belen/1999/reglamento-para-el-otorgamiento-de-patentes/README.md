@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Patentes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-01 | la propia norma |
+| 2 | 2001-01-02 | Reglamento municipal 1 (2001-01-02) |
