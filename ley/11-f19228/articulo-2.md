@@ -1,0 +1,1 @@
+2°-Esto no embarasará que en todas las Iglesias se establezcan quatro depósitos (llamados vulgarmente alcancías) en donde los fieles pongan las limosnas que Voluntariamente quieren ofrecer para el culto del santísimo Sacramento, del Santo Tutular, de un Misterio de la Virgen, y de Animas si no tuviesen fondos.
