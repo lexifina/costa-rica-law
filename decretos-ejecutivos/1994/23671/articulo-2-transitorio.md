@@ -1,1 +1,0 @@
-Transitorio 2.-Los representantes del sector académico, del sector productivo y de las organizaciones no gubernamentales deberán ser designados a más tardar un mes después de la publicación del presente decreto. Si no lo hicieran en ese plazo la designación la haría el Consejo del Área de Desarrollo Sostenible.

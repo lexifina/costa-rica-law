@@ -1,1 +1,0 @@
-Transitorio l.-En caso de que existan Consejos locales o regionales con funciones similares a las de los Concejos Municipales de Desarrollo Sostenible, a que se refiere el artículo 8, se entenderá que continuarán en funciones manteniendo su integración actual y en adelante se llamarán Concejos Municipales o Consejos Regionales de Desarrollo Sostenible.
