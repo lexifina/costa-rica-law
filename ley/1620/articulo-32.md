@@ -1,0 +1,1 @@
+Artículo 32°-En determinados casos se puede recurrir a la vía telegráfica o de radios nacionales, para la notificación al demandado, y por comisión a otra autoridad judicial. Esta podrá contestar del mismo modo, con indicación del día y hora en que realizó la notificación.

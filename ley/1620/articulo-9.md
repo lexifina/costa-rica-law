@@ -1,0 +1,2 @@
+Artículo 9°-Podrán conocer de las diligencias sumarias sobre pensión alimenticia, los funcionarios competentes por razón del domicilio del demandado, o del actor, a elección de éste en el momento de establecer su acción.
+Sin embargo, en caso de cambiar de residencia el demandante, esté o no concluida la demanda respectiva, lo comunicará así a la autoridad que conoce de la acción, para que el legajo lo remita a la autoridad del vecindario últimamente escogido, a fin de que continúe en su tramitación y lo fenezca, o haga cumplir la sentencia ya dictada.

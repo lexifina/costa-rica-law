@@ -1,0 +1,1 @@
+Artículo 2°-Las apelaciones serán resueltas por los alcaldes civiles de la respectiva jurisdicción, cuando proceda, y la distribución la hará por riguroso turno la correspondiente Agencia o Jefatura Política.

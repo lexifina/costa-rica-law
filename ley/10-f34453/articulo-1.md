@@ -1,4 +1,6 @@
+(Derogado)
 N° 10
+(Esta norma fue Derogada por el artículo 38 de la ley de Pensiones Alimenticias N° 1620 del 5 de agosto de 1953)
 EL CONGRESO CONSTITUCIONAL DE LA
 REPÚBLICA DE COSTA RICA
 DECRETA:

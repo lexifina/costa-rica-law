@@ -1,0 +1,1 @@
+Artículo 17.-La obligación de alimentos constituye título ejecutivo. Si hubiere renuencia al cumplimiento del obligado, podrá despacharse ejecución y embargo por las sumas adeudadas y acumuladas en tanto no mayor de un año. También podrá despacharse ejecución en caso de renuencia, tal como se contempla en el artículo 12.
