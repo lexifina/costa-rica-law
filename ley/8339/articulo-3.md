@@ -1,0 +1,1 @@
+Artículo 3º—Las escrituras en las que se solicite el traspaso o el cambio de nombre del propietario podrán confeccionarse ante cualquier notario público. Sin embargo, la Notaría del Estado deberá llevar a cabo este procedimiento cuando la Junta de Protección Social de San José lo solicite.
