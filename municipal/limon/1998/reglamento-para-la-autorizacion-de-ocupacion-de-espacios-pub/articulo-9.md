@@ -1,0 +1,1 @@
+Artículo 9°—Locales prioritarios: Se dará prioridad a los establecimientos comerciales existentes o futuros, que no cuenten con un área exterior aprovechable para el uso definido o que no puedan remeterse de la línea de propiedad con este fin, permiso para utilizar dos metros de frente.

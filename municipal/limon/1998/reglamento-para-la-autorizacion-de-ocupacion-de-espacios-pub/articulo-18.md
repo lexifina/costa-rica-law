@@ -1,0 +1,1 @@
+Artículo 18.—Este reglamento regula todo lo concerniente a la instalación, construcción, reconstrucción y exhibición de anuncios, rótulos y avisos, sean en territorio público o privado que estén dentro del espacio del boulevar, su fundamento será el de ordenar su tipo mediante el tamaño, manteniendo el valor recreacional y preservar la belleza natural del paisaje arquitectónico.

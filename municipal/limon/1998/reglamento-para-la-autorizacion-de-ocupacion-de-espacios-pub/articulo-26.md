@@ -1,0 +1,1 @@
+Artículo 26.—Los elementos que conforma el conjunto denominado corredor arquitectónico de la ciudad de Limón son: El boulevar, inmuebles patrimoniales con valor histórico o arquitectónico y mobiliario urbano.

@@ -1,0 +1,3 @@
+Artículo 6°—Toldos y Marquesinas. Es obligatorio la construcción de un alero marquesina o toldo, donde no existan. Estos deben ser continuos y si no es así, deben llevar el traslape necesario que impida el paso del agua de lluvia. La altura de la parte frontal del toldo no sobrepasará de 0.90 m a partir del nivel del 3.0 m que es la distancia mínima entre el borde interior del toldo y el nivel del piso. Tendrá el ancho único de 2.5 rnts.
+La Municipalidad contrata los trabajos, basándose en las especificaciones técnicas y supervisión del MCJD y le cobra al comerciante todos los gastos de la ejecución de la intervención.
+Extensión de comercios a la vía pública

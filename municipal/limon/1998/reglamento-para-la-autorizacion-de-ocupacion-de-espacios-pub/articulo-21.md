@@ -1,0 +1,1 @@
+Artículo 21.—Frente al boulevar no se permitirá la instalación de rótulos en edificaciones destinadas a habitación, excepto aquella que brinden servicios profesionales, ocupaciones domiciliarias o que ofrezcan la venta o alquiler de edificios.

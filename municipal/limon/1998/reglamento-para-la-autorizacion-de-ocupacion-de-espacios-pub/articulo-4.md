@@ -1,0 +1,1 @@
+Artículo 4°—Ventas ambulantes. Se prohíbe en el “Boulevar de Limón” la instalación de ventas ambulantes y estacionarias, además de cualquier tipo de actividad temporal, (máximo siete días), de carácter comercial que sea de perjuicio y deterioro para el mismo. La Administración será la encargada de controlar esta situación.

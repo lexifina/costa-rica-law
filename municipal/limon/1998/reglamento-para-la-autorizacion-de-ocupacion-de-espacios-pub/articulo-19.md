@@ -1,0 +1,1 @@
+Artículo 19.—Queda terminantemente prohibido fijar o pintar rótulos de cualquier clase en las paredes de los inmuebles, señales de tránsito, monumentos nacionales, postes de servicio público, fuentes, jardineras, basureros, calzada y en general en los ornamentos de servicio de parques, muros y así como lo establece el artículo 32 de la Ley de Construcciones.

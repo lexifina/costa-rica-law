@@ -1,0 +1,1 @@
+Artículo 13.—Colores y estilos. El mobiliario deberá ser sin publicidad y acorde al diseño arquitectónico del paso peatonal, deberá escogerse o definirse además en colores no intensos, para cuyo caso la Administración Municipal lo determinará.

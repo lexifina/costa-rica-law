@@ -1,0 +1,1 @@
+Artículo 7°—Exclusividad: La Municipalidad de Limón podrá conceder el permiso de extensión a la vía pública en el Boulevar. Solamente a locales comerciales de expendio de comida, con el único fin de colocar mesas y sillas para el disfrute de este servicio. Se prohíbe en estos casos el consumo de bebidas alcohólicas en el área pública asignada.

@@ -1,0 +1,1 @@
+Artículo 5°—Eventos Culturales, Deportivos y Comerciales. Los eventos culturales se regularán, según sea el tipo de actividad, prohibiéndose aquellas que introduzcan el tránsito de animales y vehículos, que puedan provocar daños materiales y físicos al espacio urbano, quedando sujeto el permiso respectivo a cargo del Concejo Municipal
