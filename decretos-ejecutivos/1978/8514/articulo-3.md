@@ -1,13 +1,20 @@
 Artículo 3°—Se agrega como anexo a la Reserva Indígena de Conte-Burica la "Reserva Indígena Guaymí de Abrojos-Montezuma".
 Los límites de esta Reserva son los mencionados a continuación:
 RESERVA INDÍGENA GUAYMÍ DE ABROJOS-MONTEZUMA
-La Reserva Indígena de Guaymí de Abrojbs-Montezuma se encuentra en la hoja del Instituto Geográfico Nacional, escala: I: 50 000 Canoas/3641 IV.
-La reserva se localiza como sigue:
-Partiendo del punto con coordenadas N 287 600, E 589 650, se continúa con los siguientes rumbos, distancias y coordenadas:
-N 80 00 W | 863.13 | 287 750 | 588 800
-S 87 50 W | 1 325.94 | 287 700 | 587 475
-N 88 44 W | 2 275.55 | 287 750 | 585 200
-N 35 55 E | 1 790.25 | 289 200 | 586 250
-N Franco | 1 600.00 | 290 800 | 586 250
-De este punto con un rumbo de N 81 56 E se llega al límite fronterizo entre Costa Rica y Panamá. Se continúa por el límite fronterizo entre Costa Rica y Panamá hasta un punto desde el cual con un rumbo de S 69 37 W se llega al punto inicial de la presente descripción en coordenadas N 287 600, E 589 650.
-Área I 516 Ha. 5 312 m2.
+Establécese la Reserva Indígena Guaymí de Abrojos-Montezuma.
+La Reserva Indígena Guaymí de Abrojos-Montezuma se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000, Canoas 3641 IV y Cañas Gordas, 3642 III.
+La reserva está delimitada por los puntos cuyas coordenadas se detallan a continuación:
+N 288 950 | E 588 150 | Río Abrojos.
+N 289 100 | E 587 650 |
+N 288 250 | E 583 650 |
+N 289 000 | E 583 250 |
+N 289 900 | E 582 175 | Río Corredor.
+Continúa aguas arriba por la margen izquierda de dicho río, hasta un punto de coordenadas:
+N 292 675 | E 584 450 | Río Corredor.
+N 292 150 | E 585 350 |
+N 290 900 | E 586 950 |
+N 291 100 | E 588 250 | Río Abrojos.
+Sigue aguas abajo por el río Abrojos, margen derecha, hasta el punto inicial de esta descripción en:
+N 288950 | E 588150
+Área aproximada. 1 480 hectáreas.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 12115 del 9 de diciembre de 1980).
