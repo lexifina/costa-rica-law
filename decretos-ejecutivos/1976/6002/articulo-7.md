@@ -1,0 +1,1 @@
+Artículo 7°- La Secretaría General y Técnica del Centro actuará como un órgano de administración y apoyo a la labor educativa de la Institución, en materia de administración financiera y de personal, de tratamiento de datos y de control de material educativo y de uso.
