@@ -1,5 +1,5 @@
 Artículo 35
-1. Todo Miembro de las Naciones Unidas podrá llevar cualquier
+1. Todo Miembro de las Naciones Unidas poddrá llevar cualquier
 controversia, o cualquier situación de la naturaleza expresada en el
 artículo 34, a la atención del Consejo de Seguridad o de la Asamblea
 General.
