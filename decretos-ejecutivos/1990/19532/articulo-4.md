@@ -1,0 +1,2 @@
+Artículo 4°—Se reforma el artículo 1° del decreto ejecutivo N° 17890-H-MAG del 29 de setiembre de 1987 y sus reformas, para que en adelante diga así:
+“Artículo 1 °—El Fondo de Contingencias Bananeras. El Fondo de Contingencias se formará con la suma que corresponda al 50% del impuesto que se pagare por el número de cajas de banano que se exportaren más allá de las metas fijadas por el artículo 5” del decreto ejecutivo N° 16564-P-H-MEC de 24 de setiembre de 1985.”

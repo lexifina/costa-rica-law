@@ -1,0 +1,1 @@
+Artículo 2°- Se deroga los artículos 11 del decreto N° 16563 –MAG del 24 de setiembre de 1985 y sus reformas; el 14 del decreto ejecutivo N° 18995-P-MAG-MEC-H-MOPT precitado: y el inciso a ) del artículo 9° del decreto ejecutivo N° 17890-H-MAG de 29 de setiembre de 1987.
