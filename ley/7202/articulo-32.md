@@ -1,0 +1,3 @@
+Artículo 32.-
+La Comisión Nacional de Selección y Eliminación de Documentos estará integrada por los siguientes cinco miembros: el presidente de la Junta Administrativa del Archivo Nacional, o su representante, quien la presidirá; el jefe del Departamento Documental de la Dirección General del Archivo Nacional; un técnico de ese departamento nombrado por el Director General del Archivo Nacional; el jefe o encargado del archivo de la entidad productora de la documentación; y un reconocido historiador nombrado por la Junta Administrativa del Archivo Nacional.
+El director general del Archivo Nacional será el director ejecutivo de la institución, quien asistirá a las sesiones con voz pero sin voto.

@@ -1,0 +1,2 @@
+Artículo 53.-
+La Presidencia de la República y los ministrosde Estado, al terminar sus funciones, entregarán a la Dirección General del Archivo Nacional los documentos de sus despachos que hayan concluido su trámite de gestión. Igualmente, entregarán las actas del Consejo de Gobierno. Dicha transferencia deberá realizarse a más tardar durante la semana anterior al traspaso de poderes. Estos documentos no permanecerán en los archivos centrales de las dependencias citadas, sino que pasarán directamente al archivo intermedio de la Dirección General del Archivo Nacional.

@@ -1,0 +1,2 @@
+Artículo 52.-
+Las dependencias a las que se refiere el artículo 2 de la presente ley, están obligadas a conservar clasificadas, ordenadas y descritas, las fotografías, los negativos, las películas, las grabaciones y cualquier otro material audiovisual que obtuvieren de ceremonias públicas o privadas, edificios, visitas de personalidades y otros actos de interés científico-cultural. Estos documentos finalmente serán custodiados por la Dirección General del Archivo Nacional.
