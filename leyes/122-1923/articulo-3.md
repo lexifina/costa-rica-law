@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-Si en los seis meses siguientes a la promulgación de esta ley, disminuyere la entrada que actualmente percibe el Estado por la introducción de fósforos o cerillas y papel y boletas de fumar, en más de un veinte por ciento, de hecho cesar la facultad que por la presente ley se otorga a los particulares para introducir dichos artículos.
