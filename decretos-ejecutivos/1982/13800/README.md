@@ -12,3 +12,4 @@ Define Banco Extranjero 1º Orden Art.122 Ley Orgánica Banco Central
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-07-21 | la propia norma |
+| 2 | 1982-07-21 | SINALEVI (sin norma nombrada) |
