@@ -1,0 +1,1 @@
+Artículo 16.—Los miembros de la Junta Directiva de la Corporación serán responsables, administrativa, civil y penalmente, por su gestión. Únicamente quedarán exentos de la responsabilidad administrativa quienes hayan salvado su voto en el acta correspondiente.

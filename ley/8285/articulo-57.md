@@ -1,0 +1,1 @@
+Artículo 57.—Cuando sea necesario y con el objetivo de promover la compra de la producción nacional del grano, el Poder Ejecutivo podrá implementar mecanismos de apoyo a los productores, en materia de precios, para la venta del grano a los industriales nacionales.

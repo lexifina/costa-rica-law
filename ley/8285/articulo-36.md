@@ -1,0 +1,2 @@
+Artículo 36.—El agroindustrial deberá pagar el arroz al productor, dentro de los ocho días hábiles posteriores a su recibo. Por atrasos en el pago, el productor devengará intereses de cuatro puntos arriba de la tasa vigente en los créditos para agricultura en el sistema bancario estatal.
+Los recibos del arroz en poder del productor, cuyos adelantos del precio no hayan sido pagados, constituirán título ejecutivo contra el cual solo podrán oponerse las excepciones de pago o prescripción.
