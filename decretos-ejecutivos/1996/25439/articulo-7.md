@@ -1,0 +1,1 @@
+Artículo 7°—La Junta Directiva del Instituto otorgará las concesiones conforme a los proyectos presentados v serán escogidos los que sean más convenientes para los intereses del país y cumplan con los requisitos legales y reglamentarios establecidos mediante resolución razonada.

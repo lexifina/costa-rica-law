@@ -1,0 +1,1 @@
+Artículo 20.—La restitución de daños y perjuicios procederá cuando se incurra en daño ambiental o arqueológico y se aplicará sin perjuicio de las sanciones penales que puedan corresponder y sin perjuicio de la eventual cancelación de la concesión y de la ejecución de la respectiva garantía.

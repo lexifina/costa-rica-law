@@ -1,0 +1,1 @@
+Artículo 10.—Por cada prórroga deberá el concesionario pagar al Instituto el mismo monto del pago inicial de la concesión ajustado conforme a la tasa LIBOR, a seis meses anualizado, usando la promedio de los últimos doce meses en forma compuesta.

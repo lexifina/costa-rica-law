@@ -1,0 +1,1 @@
+Artículo 21.—La ejecución de garantías, parcial o totalmente , procederá en los casos en que se incumplan las obligaciones que se garantizan y será independiente de una eventual cancelación de la concesión.

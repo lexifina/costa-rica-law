@@ -1,0 +1,1 @@
+Artículo 11.—El rescate de concesiones por razones de evidente interés público procederá previo pago de las indemnizaciones que correspondan, conforme al avalúo que la Dirección General de la Tributación Directa emita al efecto.

@@ -1,0 +1,1 @@
+Artículo 17.—Adjudicada una concesión y aprobado un proyecto , deberá iniciarse la obra en un plazo no mayor de seis meses, contados desde el día de la notificación de la adjudicación. El plazo de conclusión de la obra se definirá en el contrato de concesión.

@@ -1,0 +1,1 @@
+Artículo 15.—Todos los ingresos obtenidos por la administración del Proyecto serán transferidos al Fondo creado por el artículo 7 de la Ley 6758, cuyo presupuesto cubrirá todos los gastos e inversiones del Proyecto a cargo del Instituto.
