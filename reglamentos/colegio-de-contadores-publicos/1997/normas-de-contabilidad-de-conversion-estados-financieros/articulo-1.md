@@ -1,4 +1,6 @@
+(Derogado)
 COLEGIO DE CONTADORES PÚBLICOS DE COSTA RICA
+(NOTA: La presente norma ha sido derogada mediante acuerdo tomado en sesión N° 27 de 18 de agosto de 1998)
 La Junta Directiva del Colegio de Contadores Públicos de Costa Rica, con base a acuerdo firme N° 4.1.1. de la sesión ordinaria N° 31-97, celebrada el 2 de setiembre de 1997 y en cumplimiento del artículo 56 del Reglamento del Colegio, Decreto Ejecutivo N° 13606-E del 5 de mayo de 1982, ordena la publicación para los efectos de dicho artículo, de la siguiente norma de contabilidad:
 NORMA DE CONTABILIDAD CONVERSIÓN DE ESTADOS FINANCIEROS
 Objetivo
