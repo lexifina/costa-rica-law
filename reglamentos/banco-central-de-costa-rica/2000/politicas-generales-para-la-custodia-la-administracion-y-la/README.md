@@ -14,3 +14,4 @@ Políticas Generales para la Custodia, la Administración y la Inversión de las
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-25 | la propia norma |
+| 2 | 2001-10-17 | Reglamento 5093 (2001-10-17) |
