@@ -1,0 +1,1 @@
+Artículo 3°-El material promocional cuya recepción, entrega y custodia pretende regularse es todo aquel material clasificado en folletaría, souvenirs y material audiovisual confeccionado por el Instituto para cumplir con el objetivo de aumentar el flujo de turistas en nuestro país a través de la promoción de nuestros recursos y atractivos turísticos.

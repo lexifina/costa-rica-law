@@ -1,0 +1,2 @@
+Disposiciones Finales
+Artículo 18.-EI sobrante de material promocional entregado para eventos en el exterior, deberá ser entregado a la Sede Diplomática de Costa Rica en ese país, la cual comunicará al Instituto, vía facsímil o carta certificada, que ha recibido dicho material. Cuando el evento se realice en Costa Rica, el sobrante deberá devolverse al Departamento de Promoción mediante una nota, incorporándose a la base de datos como devoluciones de material promocional.

@@ -1,0 +1,1 @@
+Artículo 11.-La Oficina de Información Turística de la Institución, únicamente podrá entregar un ejemplar de los folletos, mapas y demás material a cada turista que se apersone a su despacho. El Coordinador de la Unidad de Información será el encargado de asignar la cantidad de material promocional de dicha Oficina.

@@ -1,0 +1,1 @@
+Artículo 5°-El Departamento Administrativo tendrá a su cargo la recepción, custodia y entrega del material promocional que se encuentra en la bodega general que al efecto tenga la Institución y el cual entregará al Departamento de Promoción mediante la boleta de salida de material promocional.

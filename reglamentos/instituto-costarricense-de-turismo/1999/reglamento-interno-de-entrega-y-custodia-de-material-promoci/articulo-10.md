@@ -1,0 +1,2 @@
+Artículo 10.-Las solicitudes de material impreso menores a 200 unidades podrán ser aprobadas por los funcionarios de la Unidad de Información. Las solicitudes mayores a 200 unidades deben ser aprobadas por el Coordinador de la Unidad de Información y las superiores a 500 unidades, serán aprobadas por la Dirección Superior o la Dirección de Promoción.
+Toda solicitud de souvenirs, libros o videos deben ser aprobadas por la Dirección Superior o la Dirección de Promoción.

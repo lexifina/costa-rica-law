@@ -1,0 +1,1 @@
+Artículo 16.-La salida del material promocional que se encuentre en la bodega general del Instituto, debe respaldarse con la boleta de salida de material promocional confeccionado al efecto, en el cual debe constar la firma del jefe Administrativo o el servidor que éste designe, así como la firma de recibido.

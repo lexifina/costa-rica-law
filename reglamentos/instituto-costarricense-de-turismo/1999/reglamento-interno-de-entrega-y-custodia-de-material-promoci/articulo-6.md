@@ -1,0 +1,2 @@
+De la solicitud
+Artículo 6°-El material promocional podrá ser entregado a funcionarios del Instituto en el cumplimiento de sus funciones. Asimismo, podrá ser entregado a empresarios turísticos nacionales, líneas aéreas, agentes de viajes o mayoristas en el exterior, a Cámaras y Federaciones de Turismo, el servicio de telefonía entrante gratuito 1-800 e internet, embajadas, consulados, entidades públicas y privadas y público en general que tengan como propósito promocionar a Costa Rica tanto a nivel nacional como en el extranjero.

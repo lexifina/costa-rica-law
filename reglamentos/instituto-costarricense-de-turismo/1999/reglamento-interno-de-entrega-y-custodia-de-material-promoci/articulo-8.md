@@ -1,0 +1,1 @@
+Artículo 8°- Todas las solicitudes deben señalar claramente que el peticionario utilizará el material para fines de promoción de los recursos y atractivos turísticos del país y que su distribución será gratuita.

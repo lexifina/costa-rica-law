@@ -1,0 +1,1 @@
+Artículo 2°-La entrega de material promocional se hará de conformidad con el cumplimiento de los objetivos del Instituto señalados en su Ley Orgánica y de acuerdo a los planes de promoción del país acordados por la Junta Directiva de la Institución.

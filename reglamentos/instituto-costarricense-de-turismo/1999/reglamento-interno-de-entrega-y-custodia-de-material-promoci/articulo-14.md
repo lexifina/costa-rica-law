@@ -1,0 +1,2 @@
+Del control
+Artículo 14.-EI Coordinador del Área de Información, será el responsable de la custodia de las solicitudes de material promocional así como de las boletas de entrega las cuales deben llenarse con letra clara, sin borrones ni tachaduras, verificando que lleven las firmas respectivas. Igualmente, ninguna solicitud de material promocional podrá aceptarse si lleva borrones, tachaduras, letra ilegible o sin firmas.

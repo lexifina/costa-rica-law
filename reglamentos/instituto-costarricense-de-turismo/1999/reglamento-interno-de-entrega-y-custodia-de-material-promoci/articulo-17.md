@@ -1,0 +1,1 @@
+Artículo 17.-EI Departamento de Promoción conjuntamente con el Departamento Administrativo deberán realizar un inventario del material promocional cada seis meses cotejando el resultado con el resto de documentación prevista en este Reglamento.
