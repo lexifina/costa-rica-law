@@ -1,0 +1,1 @@
+Articulo 11.-La Comisión sesionara ordinariamente una vez por semana y extraordinariamente cuando sea necesario a juicio del representante del Ministerio de Seguridad Publica a de la mayoría de sus miembros, sin que pueda exceder las sesiones pagadas de doce al mes, incluyendo unas y atrás. EI quórum estará formada par cuatro miembros.

@@ -1,0 +1,1 @@
+Articulo 13.-En las sesiones de la Comisión todos sus miembros tendrán voz y voto. Las resoluciones se tomaran por mayoría de votos presentes y quedaran firmes una vez aprobadas en la sesión siguiente, salvo que por la urgencia de las mismas se acuerde su firmeza inmediata.
