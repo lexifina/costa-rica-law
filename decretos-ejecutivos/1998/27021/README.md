@@ -16,3 +16,4 @@ Reglamento técnico para la fortificación con vitamina A del azúcar blanco de 
 | 1 | 1998-06-05 | la propia norma |
 | 2 | 1999-06-16 | Decreto Ejecutivo 27957 (1999-06-16) |
 | 3 | 2000-01-27 | Decreto Ejecutivo 28482 (2000-01-27) |
+| 4 | 2002-01-30 | Decreto Ejecutivo 30140 (2002-01-30) |

@@ -9,4 +9,5 @@ Considerando:
 decretan:
 El siguiente:
 REGLAMENTO TÉCNICO PARA LA FORTIFICACIÓN CON VITAMINA A DEL AZÚCAR BLANCO DE PLANTACIÓN PARA EL CONSUMO DIRECTO
-Artículo 1°—Las disposiciones del presente reglamento en lo sucesivo se aplicarán, al azúcar blanco de plantación de uso directo, que se utiliza en el país para consumo humano, sea esta de producción nacional, importada o donada.
+Artículo 1°—Las disposiciones del presente Reglamento en lo sucesivo se aplicarán al azúcar refino y blanco de plantación de uso directo, que se utiliza en el país para consumo humano, sea éste nacional, importado o donado.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 30140 de 30 de enero de 2002, publicado en La Gaceta N° 31 de 13 de febrero de 2002.)
