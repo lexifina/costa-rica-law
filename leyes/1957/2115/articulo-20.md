@@ -1,0 +1,1 @@
+Artículo 20.- Los insecticidas para objetivos de Salubridad Pública que se ajusten a los requisitos exigidos por la Organización Mundial de la Salud, serán de libre importación luego de que el Ministerio de Salubridad Pública extienda el permiso correspondiente, oyendo de previo al Departamento de Lucha contra Insectos Trasmisores de Enfermedades.

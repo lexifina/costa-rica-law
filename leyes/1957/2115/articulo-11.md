@@ -1,0 +1,2 @@
+Artículo 11.- El Departamento de Lucha contra Insectos Trasmisores de Enfermedades ejercerá supervisión sobre los trabajos que se indican en el artículo anterior, y asumirá su dirección y ejecución en el evento de que se estuviesen realizando sin observancia de las reglas señaladas por la Comisión Nacional de Erradicación de la Malaria.
+En este caso, el costo del trabajo será cargado a la persona física o jurídica responsable.

@@ -1,0 +1,1 @@
+Artículo 7º.- Los funcionarios y empleados del Departamento de Lucha contra Insectos Trasmisores de Enfermedades gozan de fe pública en cuanto al contenido de las denuncias que forzosamente deben hacer contra las personas, físicas o jurídicas, que en los términos del artículo anterior traten de malograr el éxito de la campaña a su cargo.

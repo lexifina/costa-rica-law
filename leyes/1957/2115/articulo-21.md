@@ -1,0 +1,1 @@
+Artículo 21.- Es facultativo para el Ministerio de Salubridad Pública prohibir o no la libre importación de ciertos productos químicos y farmacéuticos que son inconvenientes para los fines de la campaña de erradicación de la malaria.

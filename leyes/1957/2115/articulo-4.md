@@ -1,0 +1,2 @@
+Artículo 4º.- Se faculta al Poder Ejecutivo para que pueda declarar como zonas de endemia palúdica todas las regiones nacionales situadas a menos de quinientos metros de elevación sobre el nivel del mar. En las zonas de endemia palúdica, todos los habitantes quedan sometidos ipso jure a las disposiciones de la presente ley.
+Queda igualmente facultado el Ministerio de Salubridad Pública, cuando las circunstancias epidemiológicas lo demandaren, para declarar como zonas palúdicas otras regiones del país, aun cuando estén a mayor elevación sobre el nivel del mar.
