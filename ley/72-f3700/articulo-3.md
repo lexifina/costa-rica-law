@@ -1,1 +1,3 @@
 Artículo 3°.-El impuesto será sobre el valor común del terreno, de las construcciones fijas y permanentes y de las plantaciones estables que en él se encuentren formando parte integrante del inmueble.
+Asimismo el valor de todas las maquinarias y demás muebles que formen parte de un inmueble por ser necesarias para la explotación del negocio a que está destinado, deberá tomarse en cuenta junto con el del inmueble propiamente dicho para tasar el impuesto, aunque tales maquinarias o muebles puedan fácilmente separase del inmueble.
+(Así adicionado el párrafo anterior por el artículo 1° de la ley N° 17 del 22 de junio de 1922)
