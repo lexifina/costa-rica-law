@@ -1,0 +1,5 @@
+Artículo 26.—De los registros. La contabilidad del Fondo deberá llevarse de conformidad con los Principios de Contabilidad Generalmente Aceptados, las Normas Internacionales de Contabilidad y la normativa que sobre el particular, emita la SUPEN.
+Deberá estar conformada por los registros o cuentas mayores y auxiliares, que sean necesarios para determinar con exactitud y en forma oportuna, la situación .nanciera mensual y anual del Fondo en general y de cada a.liado en particular.
+Deberá llevar como mínimo las cuentas con saldos individuales de cada a.liado, que incluyan por separado:
+a) Aportes del Instituto.
+b) Ingresos por intereses generados por el aporte patronal.

@@ -1,0 +1,1 @@
+Artículo 16.—De la conducción de las asambleas. Las asambleas generales ordinarias o extraordinarias serán presididas por el presidente y en ausencia suya por el secretario. En ausencia de ambos presidirá el miembro director de más edad entre los presentes.
