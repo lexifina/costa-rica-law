@@ -13,3 +13,4 @@ Reglamento Zonas Acceso y Tránsito de Motos Acuáticas (Jet Ski)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-10-13 | la propia norma |
+| 2 | 1989-10-13 | SINALEVI (sin norma nombrada) |
