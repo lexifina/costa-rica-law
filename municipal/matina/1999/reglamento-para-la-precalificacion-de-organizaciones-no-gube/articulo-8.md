@@ -1,0 +1,1 @@
+Artículo 8°-El Departamento de Desarrollo realizará las observaciones pertinentes, el proyecto será elevado al conocimiento de la Asociación para su aprobación o rechazo, pudiendo esta solicitar las adiciones o declaraciones que estime convenientes.
