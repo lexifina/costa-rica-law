@@ -1,0 +1,1 @@
+Artículo 4°-El dicho aumento en el producto de la Lotería, una vez pagado el valor de la plaza de "El Mesón", se distribuirá cada mes entre los hospitales de cabecera de provincia y comarca en proporción al número de enfermos asistidos en el mes anterior al de la repartición,
