@@ -16,3 +16,4 @@ Reglamento sobre Vehículos de Carga.
 | 1 | 1963-12-15 | la propia norma |
 | 2 | 1964-03-04 | Decreto Ejecutivo 8 (1964-03-04) |
 | 3 | 1964-05-08 | Decreto Ejecutivo 10 (1964-05-08) |
+| 4 | 1984-08-28 | Decreto Ejecutivo 15624 (1984-08-28) |

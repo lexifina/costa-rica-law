@@ -1,5 +1,6 @@
 No 10
 EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE TRANSPORTES,
+(Así AMPLIADO por el artículo 2° del Decreto Ejecutivo N° 15624 de 28 de agosto de 1984, publicado en La Gaceta N° 174 de 13 de setiembre de 1984, en el siguiente sentido: en lo que se refiere a los pesos y dimensiones de los vehículos de carga, en lo relacionado con el funcionamiento y control de los servicios y las operaciones conexas a estos, para lo cual son aplicables las definiciones contenidas en el artículo 2° del título 1 del Acuerdo Centroamericano sobre Circulación por Carretera.)
 Considerando:
 1°—Que la reglamentación de los pesos y dimensiones de los vehículos automotores propicia la fluidez del tránsito por carretera, protege las vidas y bienes de los usuarios, beneficia el transporte de mercancías reduciendo los costos de operación y evita el anormal deterioro de las carreteras asegurando así los más bajos costos de conservación.
 2°—Que es indispensable la adopción de principios y normas uniformes sobre circulación por carretera para impulsar la integración de las economías del Istmo Centroamericano, cuyos instrumentos acaban de ser ratificados por el Gobierno de Costa Rica.
