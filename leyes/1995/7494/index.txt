@@ -20,6 +20,7 @@ articulo-19.md
 articulo-20.md
 articulo-21.md
 articulo-22.md
+articulo-22-bis.md
 articulo-23.md
 articulo-24.md
 articulo-25.md
@@ -97,6 +98,7 @@ articulo-96.md
 articulo-96-bis.md
 articulo-96-ter.md
 articulo-97.md
+articulo-97-bis.md
 articulo-98.md
 articulo-99.md
 articulo-100.md

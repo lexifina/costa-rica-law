@@ -1,8 +1,5 @@
-ARTICULO 23.- Levantamiento de la incompatibilidad.
-La prohibición expresa en los incisos d) y e) del artículo anterior
-no operará cuando las personas allí nombradas acrediten que se dedican,
-en forma habitual, a desarrollar la actividad empresarial potencialmente
-objeto de una contratación administrativa, por lo menos un año antes del
-surgimiento del supuesto de la inhibición. Mediante el trámite que se
-indicará reglamentariamente, la Contraloría General de la República
-acordará levantar la incompatibilidad.
+Artículo 23.—Levantamiento de la incompatibilidad. La prohibición expresada en los incisos h) e i) del artículo anterior, podrá levantarse en los siguientes casos:
+a) Cuando se demuestre que la actividad comercial desplegada se ha ejercido por lo menos un año antes del nombramiento del funcionario que origina la prohibición.
+b) En el caso de directivos o representantes de una persona jurídica, cuando demuestren que ocupan el puesto respectivo, por lo menos un año antes del nombramiento del funcionario que origina la prohibición.
+c) Cuando hayan transcurrido al menos seis meses desde que la participación social del pariente afectado fue cedida o traspasada, o de que este renunció al puesto o cargo de representación. Mediante el trámite que se indicará reglamentariamente, la Contraloría General de la República acordará levantar la incompatibilidad.
+(Así reformado por el artículo 65 de la Ley N° 8422 Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004).
