@@ -5,5 +5,8 @@ Ese aporte de los Bancos será único, para toda clase de beneficios sociales, p
 El sistema que así se crea se considera complementario del establecido por la Caja Costarricense de Seguro Social y sin perjuicio de las obligaciones de sus beneficios para la Caja.
 Se declaran inembargables las sumas que se devuelvan a los empleados que dejaren el servicio, antes de haber alcanzado el derecho una pensión de invalidez.
 En las Juntas Administrativas del Fondo de Garantía y Jubilaciones de cada Banco, se le dará representación a los empleados bancarios, quienes elegirán a dos de sus miembros; y
-3) El remanente, para incrementar las reservas contempladas en los artículos 9º y 10 de esta ley (ley Nº 1644 de 26 de setiembre de 1953).
+3) Un diez por ciento (10 %) para incrementar el capital del Departamento de Cooperativas del Banco Nacional de Costa Rica.
+(Así adicionado el inciso anterior por el artículo 115 de la Ley de Asociaciones Cooperativas, N° 4179 del 22 de agosto de 1968)
+4) El remanente para incrementar la Reserva Legal."
+(Así corrida la numeración del inciso anterior y reformado por el artículo 115 de la Ley de Asociaciones Cooperativas, N° 4179 del 22 de agosto de 1968, que lo traspaso del inciso 3) al 4))
 (Así reformado por el artículo 3° de la ley N° 3020 del 16 de agosto de 1962)
