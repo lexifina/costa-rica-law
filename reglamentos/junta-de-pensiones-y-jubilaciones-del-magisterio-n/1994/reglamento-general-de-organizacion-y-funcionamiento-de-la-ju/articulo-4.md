@@ -1,2 +1,0 @@
-Artículo 4:
-La Junta Directiva ejercerá sus funciones con absoluta independencia y bajo su exclusiva responsabilidad, dentro de las normas establecidas por las leyes, los reglamentos aplicables y los principios de la técnica. Sus miembros tendrán la mas completa libertad para proceder, en el ejercicio de sus funciones, conforme con su conciencia y su propio criterio, razón por la cual serán personalmente responsables de su gestión en la dirección general de la junta.

@@ -1,1 +1,0 @@
-Artículo 33: Podrá el presidente nombrar las comisiones especiales que estime necesarias, las que tendrán como objeto dictaminar y en su caso resolver - si así se les facultará -, sobre los asuntos que se sometan a su conocimiento.

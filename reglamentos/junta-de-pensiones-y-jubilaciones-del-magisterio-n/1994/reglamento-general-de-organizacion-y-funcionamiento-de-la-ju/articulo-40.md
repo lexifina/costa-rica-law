@@ -1,1 +1,0 @@
-Artículo 40: El director ejecutivo durará en su cargo tres años, pudiendo ser reelecto. Su nombramiento y remoción podrán acordarse solo con el voto favorable de no menos de seis miembros de la Junta Directiva.

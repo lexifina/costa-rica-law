@@ -1,2 +1,0 @@
-Artículo 43:
-La Auditoría funcionará bajo la autoridad jerárquica de la presidencia de la Junta Directiva. Estará a cargo del auditor, quien deberá ser un contador público autorizado. Su nombramiento será de plazo indefinido y deberá contar con el voto favorable de no menos de seis miembros de la Junta Directiva. Su remoción solo podrá acordarse con el mismo número de votos necesarios para su elección.

@@ -1,1 +1,0 @@
-Artículo 35: Corresponde al presidente, de conformidad con el artículo 31 de la ley 7268, la representación judicial y extrajudicial de la institución, con facultades de apoderado generalísimo sin límite de suma, debiendo inscribirse su poder en la Sección de Personas del Registro Nacional.

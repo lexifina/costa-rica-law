@@ -1,1 +1,0 @@
-Artículo 29: Sin perjuicio de lo dispuesto en los artículos precedentes, la Junta Directiva podrá avocar, en cualquier tiempo, el conocimiento y decisión de los asuntos sometidos a la competencia de las comisiones.
