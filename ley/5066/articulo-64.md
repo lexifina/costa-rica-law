@@ -1,0 +1,5 @@
+Artículo 64.- En todos los casos de los tres artículos anteriores,
+cuando como resultado de la infracción se pusiere en peligro la seguridad
+de las personas o de sus bienes, siempre que el hecho no importe un delito
+más severamente penado, los extremos mayor y menor de las penas serán
+aumentados en un cincuenta por ciento.

@@ -1,0 +1,4 @@
+Artículo 3º.- Cualquier acto o contrato público o privado que viole
+o amenace violar o restringir la autoridad suprema del Estado sobre los
+ferrocarriles y sus anexidades, se declara contraria al interés público y
+absolutamente nulo.
