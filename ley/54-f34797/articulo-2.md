@@ -1,0 +1,1 @@
+Artículo 2°.-Aux¡liase la misma Junta con la suma de tres mil cuatrocientos cincuenta y cuatro colones quince céntimos, que asciende el último remanente del capital consolidado que se refiere el artículo anterior, para que la invierta en las erogaciones que demande la conservación y sostenimiento de dicho Hospital.
