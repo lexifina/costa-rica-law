@@ -1,0 +1,3 @@
+ARTICULO 17.- Inspección de Local o Planta.
+Antes de iniciar operaciones, la empresa comunicará a la Aduana Matriz para que proceda a la inspección del local o planta respectiva y su correspondiente habilitación. De no hacerlo, la empresa no podrá hacer uso del régimen.
+Si una empresa que está operando dentro del régimen desea trasladarse o ampliar sus operaciones a otro local o planta deberá formular previamente una solicitud al Consejo, a la cual deberá acompañar un informe de inspección de la Aduana Matriz con su respectivo dictamen. En ambos casos la inspección y la habilitación se efectuar conjuntamente por la Aduana Matriz y el Departamento.

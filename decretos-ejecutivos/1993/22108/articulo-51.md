@@ -1,0 +1,2 @@
+ARTICULO 51.- Subasta de la Mercancía dada en Prenda.
+Retendida o aprehendida la mercancía, ésta será vendida en subasta pública, mediante la cual el Fisco se resarcirá de los derechos, impuestos y otros cargos que causare las mercancías en prenda, la base de la subasta la constituirá el monto adeudado más los gastos ocasionados en el proceso de la misma. La acción de la Administración Aduanera no concluirá hasta que se haya recuperado dicho monto.

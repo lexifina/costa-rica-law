@@ -1,0 +1,2 @@
+ARTICULO 12.- Ampliaciones a los Módulos de Producción.
+Previa solicitud del interesado, se podrá autorizar qué bienes de cualquiera de los tipos señalados en este reglamento, sean acogidos al régimen bajo las formalidades establecidas, para incorporarse al producto final a exportar o para consumirse en el proceso productivo, mediante una ampliación al programa de producción, conforme a las normas que al efecto establezca el Consejo.

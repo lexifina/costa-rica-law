@@ -1,0 +1,2 @@
+ARTICULO 32.- Internamientos Adicionales de Maquinaria y Equipo
+El Administrador de la Aduana Matriz permitirá el internamiento de maquinaria y equipo que interviene directamente en el proceso productivo, en mayor cantidad a los autorizados en los módulos respectivos, cuando por razones justificadas así lo solicite el interesado. El Administrador deberá informar por escrito de este hecho inmediatamente al Consejo y al Departamento, aportando copia de la póliza y de la prenda aduanera respectiva, así como justificación presentada por el interesado.

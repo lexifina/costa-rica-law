@@ -1,0 +1,2 @@
+ARTICULO 9°- Plazo de Concesión.
+Las concesiones del régimen se otorgarán por plazos de cinco años, prorrogables autom ticamente por per¡odos iguales. Sin embargo, el Consejo estar facultado para cancelar el otorgamiento de dicho régimen, sin responsabilidad atribuirle (sic) al mismo, cuando así lo demande el interés o el orden público. También el Consejo podrá cancelarlo cuando medie incumplimiento de las obligaciones derivadas del otorgamaiento del régimen, previa recomendación de la Dirección.

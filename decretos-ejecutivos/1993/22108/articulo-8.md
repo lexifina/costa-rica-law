@@ -1,0 +1,6 @@
+ARTICULO 8°- Plazo de Permanencia de las Mercancías.
+El plazo para la permanencia en el país de las mercancías admitidas temporalmente, ser el siguiente:
+a) Tres meses para las muestras, modelos, patrones y artículos similares para fines de demostración, investigación, instrucción o exposición.
+b) Seis meses para las materias primas, productos semielaborados, etiquetas, marbetes, materias qu¡micas o de otra naturaleza utilizados en el proceso.
+c) Cinco años para la maquinaria, equipo, piezas, partes de repuestos, moldes, dados, matrices y demás equipos que se utilicen en establecimientos acogidos al régimen.
+El plazo señalado en el inciso a) podrá ser prorrogado, por el Consejo, hasta por 1 año incluido el plazo original. El señalado en el inciso b) podrá prorrogarse a juicio de este órgano, previa solicitud del interesado antes de su vencimiento. El término señalado en el inciso c) se entender prorrogado autom ticamente por períodos iguales sin que medie gestión de parte, quedando para todo efecto renovadas las garantías, salvo que el Consejo, mediante acto razonado, considere necesario ponerle fin a dicho término, para lo cual dará un plazo prudencial al interesado para que retire del país la mercancía o en su defecto pague los impuestos correspondientes.

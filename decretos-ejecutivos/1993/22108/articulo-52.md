@@ -1,0 +1,2 @@
+ARTICULO 52.- Responsabilidad de la Mercancía dada en Prenda.
+La mercancía dada en prenda no tiene limitada su responsabilidad a la suma que se garantiza con ella, dado que la obligación tributaria suspendida puede variar en su monto al momento en que por incumplimiento u otra causa, se hace necesario proceder a la ejecución de la prenda para satisfacción de la obligación tributaria generada.

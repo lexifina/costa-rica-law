@@ -1,0 +1,2 @@
+ARTICULO 13.- Uso de Mercancías Nacionales.
+Previa solicitud del interesado se podrán autorizar mercancías nacionales para ser incluidas el régimen mediante una ampliación del programa, conforme a las normas que al efecto establezca el Consejo. Los trámites relacionados con posibles autorizaciones o reembolsos de los impuestos de ventas y consumo, generados con la aplicación de este artículo, se realizará ante la Dirección General de la Tributación Directa.
