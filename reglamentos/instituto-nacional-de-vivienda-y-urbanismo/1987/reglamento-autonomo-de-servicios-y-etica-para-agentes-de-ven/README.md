@@ -1,0 +1,16 @@
+# Reglamento (1987-09-17)
+
+Reglamento Autónomo de Servicios y Ética para Agentes de Ventas del Sistema de Ahorro y Préstamo del INVU
+
+- Tipo: Reglamento
+- Número: 0
+- Fecha: 1987-09-17
+- Ente emisor: Instituto Nacional de Vivienda y Urbanismo
+- Publicación: La Gaceta N° 178 del 1987-09-17
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=53621&param2=58531&param3=1 (ficha 53621)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1987-09-17 | la propia norma |

@@ -1,0 +1,1 @@
+Articulo 5°—El Agente de Ventas queda obligado a satisfacer una producción mínima en ventas de conformidad con las fijaciones que periódicamente haga la Junta Directiva, de acuerdo con los estudios e informes del caso. De no cumplir con dicho mínimo, el Instituto podrá prescindir de sus servicios sin responsabilidad patronal.
