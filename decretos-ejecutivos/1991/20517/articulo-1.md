@@ -76,3 +76,21 @@ N235.260 E358.320
 N236.170 E357.600
 Este último punto corresponde al vértice de partida de la presente descripción.
 (Así reformado por el artículo 1° del decreto ejecutivo N° 21332 del 10 de marzo de 1992)
+1.—Partiendo de un punto en coordenadas N 241.400 - E 359.110, continua el límite por el camino-público que conduce a Arado hasta un punto en coordenadas n 242.400 - E 360.150, para continuar por una línea con orientación sureste hasta un punto localizado en la margen derecha de la Quebrada Mina, en coordenadas N 214.430 - E 361.075. Continúa el límite por esta Quebrada, aguas arriba, hasta un punto en coordenadas N 240.880 - E 360.300. De aquí continúa el límite por los vértices que definen las siguientes coordenadas:
+N241.000 E 359.240
+N241.400 E 359.110,
+siendo éste último punto la partida de la presente descripción.
+2.—Partiendo de un punto en coordenadas N 235.750 - E 359.180, localizado en la margen derecha de una quebrada afluente del río Enmedio, continúa el límite aguas arriba hasta el punto en coordenadas N 235.670 - E 359.150, continuando por una serie de vértices cuyas coordenadas se describen a continuación:
+N 235.450 E 359.640
+N 235.425 E 359.820
+N 235.060 E 359.975
+N 235.020 E 360.350
+N235.100 E 360.500
+N235.140 E 361.100
+N235.400 E 361.150
+N235.650 E 361.275
+N235.765 E 361.100
+N235.860 E 361.015
+N235.750 E 359.180
+éste último punto corresponde al punto de partida de la presente descripción.
+(Así adicionado los puntos 1 y 2 anteriores por el artículo 1° del decreto ejecutivo N° 22821 del 6 de enero de 1994)
