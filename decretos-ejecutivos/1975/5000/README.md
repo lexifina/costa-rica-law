@@ -14,3 +14,4 @@ Reglamento a la Ley de Protección al Consumidor
 | 1 | 1975-07-10 | la propia norma |
 | 2 | 1975-07-10 | SINALEVI (sin norma nombrada) |
 | 3 | 1983-04-29 | Decreto Ejecutivo 14488 (1983-04-29) |
+| 4 | 1983-08-03 | Decreto Ejecutivo 14747 (1983-08-03) |
