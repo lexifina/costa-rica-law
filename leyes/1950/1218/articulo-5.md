@@ -1,0 +1,1 @@
+Artículo 5°.- El Poder Ejecutivo promoverá por los medios que crea convenientes la suscripción y pago entre los interesados, de los bonos que emplee en la construcción antes indicada y a que se refieren los artículos 1° y 2° anteriores, dentro de un plazo de 120 días a partir de la fecha de la presente ley.

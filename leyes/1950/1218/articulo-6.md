@@ -1,0 +1,1 @@
+Artículo 6°.- Queda facultado el Poder Ejecutivo para proseguir los trabajos de esta carretera hasta la ciudad de Limón, una vez construida la sección de Pavones a Siquirres, destinando a ese fin las rentas permanentes creadas por esta ley.
