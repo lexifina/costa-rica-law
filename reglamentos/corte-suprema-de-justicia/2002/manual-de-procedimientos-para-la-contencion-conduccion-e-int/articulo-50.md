@@ -1,0 +1,2 @@
+Artículo 50.—Previo al ingreso del privado de libertad a la ambulancia, los conductores deberán revisarlo minuciosamente. Cuando resulte indispensable trasladar maletines o bolsos con ropas u otros utensilios de los privados de libertad, deberá ser revisado su contenido, a efecto de impedir que se oculte algún objeto no autorizado, así mismo si las condiciones del vehículo lo permiten, se colocará fuera de su alcance.
+La revisión se hará en presencia del detenido.

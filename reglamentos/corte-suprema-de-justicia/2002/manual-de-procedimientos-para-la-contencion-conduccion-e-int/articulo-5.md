@@ -1,0 +1,1 @@
+Artículo 5°—Cuando el conductor de detenidos recibe un documento "de tener" a la "orden" u "orden de libertad", debe verificar que el número de expediente sea el mismo con el que ingresó y observar las demás disposiciones establecidas en el Manual de Procedimientos para Trámite de Remisiones, tener a la orden y órdenes de libertad.

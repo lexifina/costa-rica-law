@@ -1,0 +1,1 @@
+Artículo 9°—Cuando se tenga necesidad de trasladar o custodiar a un detenido en campo abierto, éste debe ser esposado hacia atrás, pasándole las esposas en medio de su faja y aplicando una llave de conducción. Cada privado de libertad debe ser trasladado y custodiado como mínimo por dos conductores, quienes sujetarán a éste de los brazos.

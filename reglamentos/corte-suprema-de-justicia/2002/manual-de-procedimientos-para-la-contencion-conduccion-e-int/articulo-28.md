@@ -1,0 +1,1 @@
+Artículo 28.—Cuando se trasladen varios detenidos y uno de ellos se encuentre violento, el conductor de detenidos deberá aislarlo, con el propósito de evitar que provoque a los otros, para ello deberá proceder conforme a lo señalado en los dos artículos anteriores, según sea el caso.

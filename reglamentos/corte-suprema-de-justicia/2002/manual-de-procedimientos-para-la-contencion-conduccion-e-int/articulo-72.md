@@ -1,0 +1,1 @@
+Artículo 72.—Si previo a su inicio o durante la realización de la intervención corporal el imputado se opusiera, se suspenderá de inmediato y se dará aviso a la autoridad judicial que ordenó la diligencia o la comisionada por ésta, con la finalidad de que se haga presente y sea garante de los derechos del imputado en la ejecución del acto.

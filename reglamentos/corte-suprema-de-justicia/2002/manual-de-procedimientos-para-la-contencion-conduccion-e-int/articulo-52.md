@@ -1,0 +1,1 @@
+Artículo 52.—Los privados de libertad no podrán ser esposados al ser transportados en vehículos cerrados, salvo los casos excepcionales en que exista razones objetivamente comprobables que hagan necesaria esa medida para mantener su seguridad y custodia, así como su integridad física y la de terceros.
