@@ -1,10 +1,3 @@
 ARTICULO 13
-1. Las horas normales de trabajo de toda persona sujeta al trabajo
-forzoso u obligatorio deberán ser las mismas que las que prevalezcan en
-el trabajo libre, y las horas de trabajo que excedan de la jornada normal
-deberán ser remuneradas con arreglo a las mismas tasas aplicadas a las
-horas extraordinarias de los trabajadores libres.
-2. Se deberá conceder un día de reposo semanal a todas las personas
-sujetas a cualquier forma del trabajo forzoso u obligatorio, debiendo
-coincidir este día, siempre que sea posible, con el día consagrado por la
-tradición, o los usos del país o la región.
+1. Las horas normales de trabajo de toda persona sujeta al trabajo forzoso u obligatorio deberán ser las mismas que las que prevalezcan en el trabajo libre, y las horas de trabajo que excedan de la jornada normal deberán ser remuneradas con arreglo a las mismas tasas aplicadas a las horas extraordinarias de los trabajadores libres.
+2. Se deberá conceder un día de reposo semanal a todas las personas sujetas a cualquier forma del trabajo forzoso u obligatorio, debiendo coincidir este día, siempre que sea posible, con el día consagrado por la tradición, o los usos del país o la región.

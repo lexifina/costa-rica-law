@@ -1,12 +1,3 @@
 ARTICULO 19
-1. Las autoridades competentes deberán solamente autorizar el recurso a
-cultivos obligatorios como un método para prevenir el hambre o una
-carencia de productos alimenticios, y siempre a reserva de que los
-alimentos o los productos así obtenidos se conviertan en propiedad de los
-individuos o de la colectividad que los haya producido.
-2. El presente artículo no deberá tener por efecto la supresión de la
-obligación de los miembros de la comunidad de ejecutar el trabajo
-impuesto por la ley o la costumbre, cuando la producción se encuentre
-organizada, según la ley y la costumbre, sobre una base comunal, y cuando
-los productos o los beneficios resultantes de la venta de estos productos
-sean propiedad de la colectividad.
+1. Las autoridades competentes deberán solamente autorizar el recurso a cultivos obligatorios como un método para prevenir el hambre o una carencia de productos alimenticios, y siempre a reserva de que los alimentos o los productos así obtenidos se conviertan en propiedad de los individuos o de la colectividad que los haya producido.
+2. El presente artículo no deberá tener por efecto la supresión de la obligación de los miembros de la comunidad de ejecutar el trabajo impuesto por la ley o la costumbre, cuando la producción se encuentre organizada, según la ley y la costumbre, sobre una base comunal, y cuando los productos o los beneficios resultantes de la venta de estos productos sean propiedad de la colectividad.
