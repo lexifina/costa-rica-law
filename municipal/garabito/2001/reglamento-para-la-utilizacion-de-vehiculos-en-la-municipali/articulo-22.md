@@ -1,0 +1,1 @@
+Artículo 22.—La maquinaria o equipo especial de tipo pesado y motocicletas con que cuenta la Municipalidad quedan incluidas dentro de la categoría de uso administrativo general y se les aplicará todas las regulaciones de este reglamento, salvo que por propia naturaleza no fuera posible.
