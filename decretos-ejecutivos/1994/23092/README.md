@@ -14,3 +14,4 @@ Reglamento de Reestructuración del Servicio Nacional de Aduanas
 | --- | --- | --- |
 | 1 | 1994-04-08 | la propia norma |
 | 2 | 1994-04-08 | Decreto Ejecutivo 25270 (1996-06-14) |
+| 3 | 1996-06-14 | SINALEVI (sin norma nombrada) |
