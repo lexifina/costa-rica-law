@@ -1,0 +1,1 @@
+4°.- Quando le haya construido la Barraca correspondiente, será a cargo del mismo Guarda el Almacen de los cargamentos, recaudación y asiento de lo que allí se persiba por derecho de dobegage y despacho de las guías de introducción; con expresión del número de fardos ó piezas para el transito en la garita del Río-grande.
