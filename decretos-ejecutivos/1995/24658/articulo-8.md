@@ -1,0 +1,2 @@
+Artículo 8°—Reuniones del COMITÉ DIRECTIVO
+El COMITÉ DIRECTIVO se reunirá ordinariamente una vez al mes y extraordinariamente, cuando su Presidente lo convoque. La convocatoria se efectuará con al menos tres días de antelación y en ese lapso se distribuirán los documentos relevantes entre sus miembros. A dichas reuniones podrán asistir con derecho a voz, pero sin voto, aquellas personas que el COMITÉ DIRECTIVO estime oportuno invitar.

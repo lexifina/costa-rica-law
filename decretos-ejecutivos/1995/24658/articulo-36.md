@@ -1,0 +1,2 @@
+Artículo 36.—Monedas del financiamiento
+El financiamiento se denominará en las monedas contratadas. Los pagos del principal se efectuarán en las mismas monedas desembolsadas o bien, tratándose de divisas extranjeras, en moneda nacional al tipo de cambio de referencia de venta determinado por el Banco Central de Costa Rica, vigente en la fecha en que dicho pago se realice. Los cargos financieros se percibirán en moneda nacional.

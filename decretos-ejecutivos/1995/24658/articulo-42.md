@@ -1,0 +1,2 @@
+Artículo 42.—Obligación de pago inmediato de los préstamos
+Los beneficiarios que obtengan un financiamiento para la ejecución del Proyecto objeto del estudio, deberán incluir el saldo deudor del préstamo otorgado por el FONDO dentro del financiamiento respectivo y pagar ese monto, en una sola cuota, con cargo al primer desembolso del mismo. Lo anterior, siempre que ello sea compatible con la política de la entidad financiadora de ese proyecto.

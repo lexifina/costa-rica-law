@@ -1,0 +1,2 @@
+Artículo 27.—Condiciones y compromisos contractuales para uso de los recursos
+Para hacer uso de los recursos que se han otorgado, el beneficiario deberá cumplir todas las condiciones y compromisos establecidos en el respectivo Contrato o Convenio de Financiamiento. Además deberá enviar a la DIRECCIÓN una solicitud de desembolso en cada oportunidad, de acuerdo con los términos del Contrato o Convenio de Financiamiento correspondiente y con lo establecido en los formularios que se le provean para el efecto.

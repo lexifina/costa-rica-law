@@ -1,0 +1,2 @@
+Artículo 59.—Derechos de inscripción en el registro de consultores
+Todo consultor que, según la evaluación que practique la DIRECCIÓN, sea inscribible en el Registro de Consultores, deberá cancelar la suma de US$ 20 (veinte dólares de los Estados Unidos de América) o su equivalente en moneda nacional, previo a la correspondiente inscripción. Los derechos de inscripción serán cancelados ante la cuenta especial del FONDO en el AGENTE FINANCIERO.

@@ -1,0 +1,1 @@
+Transitorio.—Las operaciones y contrataciones efectuadas al amparo del Reglamento aquí derogado y de las leyes que el mismo reglamentó, continuarán rigiéndose por ese marco legal hasta su total ejecución, así como para atender las modificaciones que sea indispensable introducir.

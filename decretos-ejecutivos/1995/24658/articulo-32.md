@@ -1,0 +1,2 @@
+Artículo 32.—Presentación y Evaluación de informes de avance
+El beneficiario deberá enviar a la DIRECCIÓN los Informes de Avance que los consultores elaboren sobre los estudios contratados, con la periodicidad que se estipule en el Contrato o Convenio de Financiamiento y utilizando los instructivos que ésta prepare para el efecto. Estos Informes de Avance deberán presentarse acompañados de su evaluación por parte del beneficiario. La DIRECCIÓN velará porque la rendición de Informes de Avance y sus evaluaciones se realicen dentro de los plazos previstos.

@@ -1,0 +1,2 @@
+Artículo 68.—Cambios en los términos de referencia
+Cuando en la ejecución de un estudio se compruebe la necesidad de efectuar cambios en los Términos de Referencia, el interesado deberá preparar un informe en el cual consigne los motivos para justificar el cambio. Evaluada la propuesta por el consultor, el beneficiario y el FONDO, se procederá conforme sea acordado, introduciendo las modificaciones que fueren procedentes en los Términos de Referencia, en el presupuesto y en los Contratos o Convenios respectivos.

@@ -1,0 +1,2 @@
+Artículo 67.—Ejecución y fiscalización del estudio
+Los estudios se ejecutarán en forma tal que se aprovechen al máximo las facilidades existentes, la información disponible, las condiciones climáticas y los demás factores que puedan influir en la agilidad del programa de trabajo. La fiscalización del estudio será ejercida por uno o más funcionarios nombrados por el beneficiario. La obligación del fiscalizador será verificar que los trabajos se realicen conforme al Contrato de Consultoría, los Términos de Referencia y el presente Reglamento.

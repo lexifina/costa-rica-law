@@ -1,0 +1,2 @@
+Artículo 31.—Confidencialidad de información sobre estudios financiados al Sector Privado
+Los estudios del Sector Privado tendrán carácter confidencial y sus informaciones no serán divulgadas al público durante los cinco años subsiguientes a su realización. El beneficiario podrá solicitar una ampliación del plazo establecido cuando demuestre que realiza gestiones para el financiamiento del proyecto resultante del estudio.

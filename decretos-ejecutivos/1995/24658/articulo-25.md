@@ -1,0 +1,2 @@
+Artículo 25.—Contrato o Convenio de Financiamiento
+Aprobado el financiamiento, la DIRECCIÓN comunicará al eventual beneficiario esta circunstancia y procederá a la elaboración del Contrato o Convenio correspondiente, para su suscripción por parte del MINISTRO y del superior jerárquico del beneficiario, lo cual se practicará hasta tanto el beneficiario haya demostrado ante la DIRECCIÓN que ha concluido, al menos, todos los actos y documentos preparatorios, tanto técnicos como legales, para la selección de los consultores que elaborarán el estudio de preinversión.

@@ -1,0 +1,3 @@
+Artículo 21.—Elaboración de los términos de referencia
+Los Términos de Referencia serán elaborados por el solicitante, en los cuales definirá los trabajos que considera necesarios para realizar el estudio en cuestión. Dicho documento contendrá el detalle de los objetivos del estudio y del proyecto resultante, antecedentes y localización del mismo, y la descripción de las actividades necesarias para su realización.
+La DIRECCIÓN analizará los Términos de Referencia requiriendo del solicitante los ajustes y modificaciones que juzgue necesarias. Los Términos de Referencia aprobados serán incorporados en el eventual Contrato o Convenio de financiamiento.

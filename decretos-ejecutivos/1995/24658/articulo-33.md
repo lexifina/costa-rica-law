@@ -1,0 +1,2 @@
+Artículo 33.—Procedimiento para modificar montos o condiciones de los préstamos
+Las solicitudes de modificación del monto o de las condiciones de los Contratos o Convenios de financiamiento deberán tramitarse siguiendo los procedimientos descritos para toda solicitud de financiamiento. Toda solicitud de incremento en el monto del financiamiento deberá acumularse al monto originalmente otorgado y tramitarse según los lineamientos previstos para solicitudes de esa magnitud.

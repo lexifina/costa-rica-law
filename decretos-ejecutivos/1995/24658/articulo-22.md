@@ -1,0 +1,3 @@
+Artículo 22.—Solicitudes en Consideración Activa
+Recibida la solicitud de financiamiento de estudios en debida forma por la DIRECCIÓN, ésta procederá a determinar su elegibilidad, codificarla y llevar a cabo su análisis y evaluación para su posterior consideración y decisión del COMITÉ DIRECTIVO o del MINISTRO, según corresponda.
+A la solicitud que no cumpla con los requisitos mínimos que se indica en el Artículo 20, no se le dará tramite hasta tanto no sea completada por el solicitante la información requerida. En el momento en que la información faltante sea completada, la solicitud pasará a formar parte de las solicitudes en consideración activa.

@@ -1,0 +1,2 @@
+Artículo 45.—Garantías para la atención de los préstamos
+Antes de la formalización de cada préstamo, los beneficiarios potenciales deberán presentar evidencia escrita de que han adoptado las medidas presupuestarias y administrativas apropiadas para asegurar que cuentan con recursos suficientes para atender oportunamente las obligaciones del préstamo, y que otorgarán las garantías satisfactorias, conforme los términos del préstamo aprobado.
