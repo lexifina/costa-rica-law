@@ -1,0 +1,1 @@
+Artículo 23.—Con él propósito dé promover una sana administración de los recursos, los ministerios, demás órganos y las entidades públicas, deberán tener actualizado el inventario .de recursos humanos, con el fin de remitir a MIDEPLAN información actualizada en los meses de junio y diciembre de cada año.

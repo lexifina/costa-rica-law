@@ -1,0 +1,1 @@
+Artículo 8°—Para las reasignaciones, ascensos, sustituciones, recargo de funciones y cualquier otro movimiento de personal, la entidad velará por el cumplimiento de los requisitos académicos y legales que exige el correspondiente manual de clases institucional-

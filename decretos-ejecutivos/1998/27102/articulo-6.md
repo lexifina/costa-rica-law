@@ -1,0 +1,1 @@
+Artículo 6°— La AP y la STAP solicitarán a las Direcciones de Recursos Humanos y cualesquiera otras según corresponda, las constancias y certificaciones necesarias para la verificación del cumplimiento de las directrices y regulaciones pertinentes.

@@ -1,0 +1,1 @@
+Artículo 9°—En los casos en que proceda el nombramiento de personal, se exigirá al candidato una declaración jurada con el fin de verificar que no se hubiere acogido a la movilidad laboral voluntaria, según él artículo 25° de la Ley N° 6955 y sus reformas.

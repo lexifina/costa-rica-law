@@ -1,0 +1,1 @@
+Artículo 14.— La STAP una vez implementado los cambios en los manuales, reasignaciones, estudios integrales de puestos, u homologaciones y conversión de sistema, verificará el cumplimiento de estos procedimientos.

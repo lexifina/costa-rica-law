@@ -1,0 +1,1 @@
+Artículo 13.—Los cambios en los manuales, reasignaciones, estudios integrales de puestos, y homologaciones y conversión de sistema, serán aprobadas por la junta directiva y de no existir ésta, por el máximo jerarca de la entidad. La fecha de vigencia será el primer día del mes siguiente, a aquel en se emita la resolución correspondiente.
