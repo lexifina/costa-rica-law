@@ -1,0 +1,1 @@
+Artículo 14°.-Los servidores a quienes se les conceda permiso para realizar estudios, deberán disfrutar sus vacaciones legales durante el período lectivo, salvo casos especiales a juicio del Tribunal.

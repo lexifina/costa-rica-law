@@ -1,0 +1,1 @@
+Artículo 20°.-Este Reglamento deja sin efecto el “Reglamento para la concesión de estudios superiores o técnicos” aprobado por el Tribunal Supremo de Elecciones en la sesión 8608 celebrada el 8 de enero de 1987 y cualesquiera otras disposiciones que se hayan emitido con anterioridad sobre la materia.

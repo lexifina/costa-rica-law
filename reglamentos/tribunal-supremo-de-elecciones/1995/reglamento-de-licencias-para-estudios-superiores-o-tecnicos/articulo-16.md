@@ -1,0 +1,1 @@
+Artículo 16°. -Si han transcurrido seis meses a partir de la fecha en que adquiere su grado académico y el Tribunal no ha logrado ubicarlo en una plaza de nivel profesional, el servidor queda liberado de la obligación que le impone el inciso e) del artículo décimo de este Reglamento.

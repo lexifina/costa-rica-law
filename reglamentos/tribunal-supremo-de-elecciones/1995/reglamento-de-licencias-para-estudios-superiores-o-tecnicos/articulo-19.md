@@ -1,0 +1,1 @@
+Artículo 19°.-A falta de norma expresa en este Reglamento, se aplicarán, por su orden, las disposiciones generales que sobre la materia se encuentran previstas para los funcionarios del Poder Judicial, Poder Ejecutivo y Asamblea Legislativa, sin perjuicio de la facultad del Tribunal para modificar o adicionar este Reglamento cuando lo considere pertinente.

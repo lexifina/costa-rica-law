@@ -1,0 +1,1 @@
+Artículo 9°-AI estudiante que haya perdido el 25% o más de las asignaturas que llevaba en el curso anterior, se le suspenderá el permiso, salvo que presente ante la Sección de Personal motivos que sean considerados justificables. Esta resolución será consultada al Tribunal.

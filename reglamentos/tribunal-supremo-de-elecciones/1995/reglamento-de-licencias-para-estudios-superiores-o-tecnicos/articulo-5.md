@@ -1,0 +1,1 @@
+Artículo 5°-Las licencias se otorgarán únicamente en el período lectivo y los beneficiados deben asistir a su trabajo cuando no haya lecciones por cualquier en el centro de estudio. La falta de asistencia al trabajo en este último caso será considerado como ausencia injustificada.
