@@ -1,0 +1,1 @@
+Artículo 5°-AutorÍzase al Procurador General de la República para que extienda a favor de la Corporación Municipal de San José, la correspondiente escritura o escrituras necesarias de la compra de los inmuebles que hace el Estado, las que se inscribirán en el Registro Público, libres del pago de timbres y derechos de Registro.

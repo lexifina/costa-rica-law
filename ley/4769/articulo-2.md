@@ -1,0 +1,1 @@
+Artículo 2°-El valor del inmueble no podrá ser superior al que fije Dirección General de Tributación Directa, por medio de su departamento especializado, con apelación ante el Tribunal Fiscal Administrativo, si así lo plantearen los interesados.
