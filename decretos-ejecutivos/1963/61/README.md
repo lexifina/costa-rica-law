@@ -14,3 +14,4 @@ Reglamento para el Pago de Policías Auxiliares Subvencionados por Patentados y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1963-09-01 | la propia norma |
+| 2 | 1963-09-12 | Decreto Ejecutivo 68 (1963-09-12) |

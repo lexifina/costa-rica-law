@@ -1,5 +1,6 @@
+(Derogado)
 N° 61
-FRANCISCO J. ORLICH
+(Este decreto ejecutivo fue derogado por el artículo único del decreto ejecutivo N° 68 del 12 de setiembre de 1963) FRANCISCO J. ORLICH
 PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,
 De acuerdo con las facultades conferidas por los incisos 3) y 18) del artículo 140 de la Constitución Política y Ley Sobre Venta de Licores, N° 36 de 10 de octubre de 1936,
