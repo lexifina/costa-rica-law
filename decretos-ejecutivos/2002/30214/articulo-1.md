@@ -102,7 +102,7 @@ Secret. Eject. De Planificación Sector Agropecuario | 22,3
 Servicio Nacional de Aguas Subterráneas Riego y A. | 1.501,4
 Sistema Nacional de Radio y Televisión SINART (Así modificado por el artículo 1° del decreto ejecutivo N° 30920 de 28 de noviembre de 2002) | 782.10
 Teatro Nacional (Así modificado por el artículo 1° del decreto ejecutivo N° 31179 de 2 de mayo de 2003) | 322.3
-Teatro Popular Melico Salazar | 570,6
+Teatro Popular Melico Salazar (Así modificado por el artículo 1° del Decreto Ejecutivo No. 31201 de 12 de mayo de 2003, publicado en La Gaceta No. 11 de 11 de junio de 2003) | 570,6
 Unidad Ejecutora PPZN MIDEPLAN | 10,3
 (Interpretado por el artículo 1 del Decreto Ejecutivo N° 30401 de 15 de abril del 2002, en el sentido de que para la Oficina del Arroz, el límite de gasto presupuestario y el límite de gasto efectivo señalados en el DE N° 29511-H comprende el período que va del 1° de julio del 2002 al 30 de junio del 2003 y el porcentaje de crecimiento del gasto presupuestario que señala el DE N° 30214-H, se establece para el período que va del 1° de julio del 2003 al 30 de junio del 2004, de acuerdo con el ejercicio económico de la entidad.)
 (Mediante Decreto Ejecutivo N° 30693 de 27 de agosto del 2002 se modifica para el Instituto Costarricense del Deporte y la Recreación los límites de gasto presupuestario y de gasto efectivo para el año 2003)
