@@ -1,0 +1,23 @@
+Artículo 2º—Funciones del Comité y Subcomités de Licitaciones:
+2.1. Corresponderá al Comité de Licitaciones:
+a. Conocer, aprobar, rechazar o corregir los carteles de las licitaciones públicas.
+b. Adjudicar o en su caso declarar desiertas, con base en los criterios técnicos y económicos del caso, las licitaciones públicas, así como aquellas por registro en las que por el monto de la adjudicación, la contratación requiera del refrendo de la Contraloría General de la República, conforme a las normas que al respecto emita ese órgano contralor.
+c. Conocer y contestar las objeciones planteadas contra el cartel de las Licitaciones Públicas.
+d. Conocer y resolver los recursos de revocatoria que sean plateados contra los actos de adjudicación adoptados por el Comité, así como rendir el informe de ley y atender todas las diligencias pertinentes ante recursos de apelación a los que la Contraloría General de la República les dé trámite.
+e. Autorizar el procedimiento para vender o enajenar bienes muebles o inmuebles con valor comercial, ya sea de licitación pública o remate, según convenga al interés del Banco.
+f. Adjudicar aquellas contrataciones directas, por cualquiera de las causales que al efecto señalan la Ley de Contratación Administrativa y su Reglamento General, cuando por el monto de la adjudicación la contratación requiera del refrendo de la Contraloría General de la República, conforme a las normas que al respecto emita ese órgano contralor.
+g. Resolver la aplicación de sanciones de apercibimiento o de inhabilitación a las personas físicas o jurídicas que participen en procedimientos para contratar y que se hagan acreedoras a ellas por incurrir en las conductas previstas en la Ley de Contratación Administrativa y su Reglamento General, en aquellos casos en que le haya correspondido dictar el acto de adjudicación.
+h. Los demás que resulten afines, de conformidad con el ordenamiento de contratación administrativa."
+Cuando el monto a adjudicar supere los ¢300.000.000.00, el acuerdo deberá ser remitido a la Gerencia General para su ratificación."
+2.2 Corresponderá a los Subcomités de Licitaciones:
+a. Conocer, aprobar, rechazar o corregir los pliegos de condiciones de las licitaciones restringidas y por registro.
+b. Adjudicar o en su caso declarar desiertas, con base en los criterios técnicos y económicos del caso, las licitaciones restringidas que promueva el Banco, así como aquellas por registro en donde por el monto de la adjudicación la contratación no requiera del refrendo de la Contraloría General de la República, conforme a las normas que al respecto emita ese órgano contralor.
+Cuando se haya tramitado una licitación por registro y el monto de la adjudicación vaya a demandar que la contratación requiera del refrendo de la Contraloría General de la República, el Subcomité remitirá el asunto al Comité de Licitaciones con su recomendación de adjudicar o declarar desierta la misma, para que aquel órgano decida lo que corresponda conforme al inciso b. del artículo 2.1.
+c. Conocer y resolver todas las objeciones que sean planteadas contra el pliego de condiciones de las licitaciones restringidas o por registro.
+d. Conocer y resolver los recursos de revocatoria que se planteen contra los actos de adjudicación que conforme al inciso b. anterior están autorizados a adoptar.
+e. Rendir el informe de ley y atender todas las diligencias pertinentes ante recursos de apelación, planteados contra actos de adjudicación adoptados por el Subcomité, a los que la Contraloría General de la República les dé trámite.
+f. Adjudicar aquellas contrataciones directas, por cualquiera de las causales que al efecto señalan la Ley de Contratación Administrativa y su Reglamento General, cuando por el monto de la adjudicación la contratación no requiera del refrendo de la Contraloría General de la República, conforme a las normas que al respecto emita ese órgano contralor.
+Al respecto de esto último serán igualmente aplicables las normas de los párrafos segundo y tercero del inciso b. anterior."
+g. Resolver la aplicación de sanciones de apercibimiento o de inhabilitación a las personas físicas o jurídicas que participen en procedimientos para contratar y que se hagan acreedoras a ellas por incurrir en las conductas previstas en la Ley de Contratación Administrativa y su Reglamento General, en aquellos casos en que le haya correspondido dictar el acto de adjudicación.
+h. Los demás que resulten afines, de conformidad con el ordenamiento de contratación administrativa."
+2.3. Corresponderá a la Junta Directiva General del Banco, la adjudicación de las licitaciones promovidas para la contratación de firmas de auditores externos del Banco.

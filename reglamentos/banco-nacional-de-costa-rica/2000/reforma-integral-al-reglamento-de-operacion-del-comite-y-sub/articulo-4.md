@@ -1,0 +1,1 @@
+Artículo 4º—Las ausencias del Presidente serán suplidas por el funcionario de mayor jerarquía de entre los miembros del Comité. En caso de existir dos o más miembros que por su jerarquía pudieran sustituir al Presidente en sus ausencias, el puesto recaerá en el funcionario de mayor antigüedad en el servicio al Banco.
