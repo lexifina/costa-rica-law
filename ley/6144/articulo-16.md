@@ -1,12 +1,12 @@
 Artículo 16.- La Asamblea General se reunirá ordinariamente una vez
 al año para:
 a) Analizar y evaluar la marcha general del Colegio.
-b) Aprobar el programa de actividades que le presente la Junta Directiva
-para el ejercicio anual siguiente.
+b) Aprobar el programa de actividades que le presente la Junta
+Directiva para el ejercicio anual siguiente.
 c) Impartir aprobación al presupuesto general de gastos anuales.
 d) Nombrar a los miembros de la Junta Directiva, que corresponda. La
-reunión anual ordinaria se efectuará dentro de los primeros quince días
-del mes de diciembre.
+reunión anual ordinaria se efectuará dentro de los primeros quince
+días del mes de diciembre.
 La Asamblea General celebrará reunión extraordinaria cada vez que sea
 convocada al efecto, con indicación de los asuntos específicos que deberá
 conocer y resolver.
