@@ -1,0 +1,1 @@
+Artículo 8°—El Departamento de Servicios Administrativos es el responsable del buen uso, mantenimiento y manejo administrativo de los vehículos, por lo que debe ajustarse a las disposiciones y lineamientos que se indican en este Reglamento, los cuales, en todos los casos, serán fiscalizados por la Auditoria Interna.

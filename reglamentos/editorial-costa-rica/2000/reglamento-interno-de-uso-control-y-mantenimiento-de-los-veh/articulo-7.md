@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del control y mantenimiento de los vehículos
+Articulo 7°—Para hacer uso de los servicios de transporte en vehículos de uso administrativo, el funcionario correspondiente deberá solicitar el servicio al jefe del Departamento de Servicios Administrativos, que es la instancia competente para avalar el uso de los vehículos. En ausencia del jefe del Departamento Administrativo, las autorizaciones serán extendidas por el Gerente. La solicitud deberá presentarse por escrito en la boleta respectiva confeccionada al efecto y deberá consignar el respectivo visto bueno del jefe del Departamento al que pertenece el funcionario solicitante.

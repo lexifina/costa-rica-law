@@ -1,0 +1,1 @@
+Articulo 5°—Del vehiculo de uso discrecional. El vehículo de uso discrecional se asigna única y exclusivamente con el propósito de Facilitar el desempeño de las funciones del Gerente y no para uso personal ni el de su familia, lo cual queda expresamente prohibido. Este vehículo podrá tener placas particulares y no ostentar ningún tipo de distintivo.
