@@ -118,5 +118,8 @@ con respecto de la Junta Administrativa de la Imprenta Nacional)
 adiciona exclusiones a diferentes instituciones de acuerdo a lo estipulado en el
 inciso b) )
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29434 de 5 de abril del 2001,
-que aiciona exclusiones a diferentes instituciones, de acuerdo a lo estipulado en el
+que adiciona exclusiones a diferentes instituciones, de acuerdo a lo estipulado en el
+inciso b) )
+(Modificado por el artículo 3 del Decreto Ejecutivo N° 29821 de 13 de setiembre del 2001,
+que adiciona exclusiones a diferentes instituciones, de acuerdo a lo estipulado en el
 inciso b) )
