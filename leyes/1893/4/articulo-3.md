@@ -1,0 +1,1 @@
+3°. La venta de los artículos de lícito comercio, prevenida en el artículo 1°., se hará en pública subasta por el Juez de la causa ó la autoridad á quien él comisione, en conformidad con lo dispuesto por el Capítulo IV, Título VII, Libro II, Código de Procedimientos Civiles, y el producto del remate ingresará al Tesoro Público, para los efectos de la sentencia definitiva.
