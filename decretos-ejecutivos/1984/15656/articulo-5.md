@@ -1,11 +1,2 @@
-Artículo 5º.-El Jefe de Personal del respectivo ministerio,
-dependencia, institución o empresa pública, será el responsable de la
-aplicación de lo dispuesto en el artículo anterior. Además, en los casos
-en los que sea necesario, procurará los permisos a efecto de que los
-servidores puedan cumplir con los trámites dentro del término referido.
-Deberá además, informar a la Autoridad Presupuestaria o a la Oficina del
-Presupuesto Nacional de cada plaza que quede vacante por ese motivo, la
-cual deberá eliminarse del presupuesto respectivo.
-El incumplimiento de lo dispuesto en este capítulo por parte del
-Jefe de Personal respectivo, será considerado falta grave con las
-consecuencias que ello conlleva.
+Artículo 5°-El Jefe de Personal del respectivo ministerio, dependencia, institución o empresa pública, será el responsable de la aplicación de lo dispuesto en el artículo anterior. Además, en los casos en los que sea necesario procurará los permisos a efecto de que los servidores puedan cumplir con los trámites dentro del término referido. Deberá además, informar a la Autoridad Presupuestaria o a la Oficina de Presupuesto Nacional de cada plaza que quede vacante por ese motivo, la cual deberá eliminarse del presupuesto respectivo.
+El incumplimiento de lo dispuesto en este capítulo por parte del Jefe de Personal respectivo, será considerado falta grave con las consecuencias que ello conlleva.

@@ -1,3 +1,1 @@
-Artículo 18.-La Contraloría General de la República no tramitará
-presupuestos ordinarios o modificaciones de entidades o instituciones
-públicas que no hayan cumplido con lo dispuesto en este capítulo.
+Articulo 18.-La Contraloría General de la República no tramitará presupuestos ordinarios o modificaciones de entidades o instituciones públicas que no hayan cumplido con lo dispuesto en este capítulo.

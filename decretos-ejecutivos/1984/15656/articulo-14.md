@@ -1,4 +1,1 @@
-Artículo 14.-En aquellas instituciones o empresas públicas en que no
-existe relación de puestos para jornales, el monto de dicha subpartida no
-podrá aumentarse para los años 1985 y 1986 con respecto al monto
-presupuestado para el año 1984.
+Articulo 14.-En aquellas instituciones o empresas públicas en que no existe relación de puestos para jornales, el monto de dicha subpartida no podrá aumentarse para los años 1985 y 1986 con respecto al monto presupuestado para el año 1984.
