@@ -1,0 +1,1 @@
+Artículo 2°.- Autorízase a la Municipalidad del cantón del Guarco de la provincia de Cartago para comprar a la Junta de Educación de El Tejar de ese cantón la finca citada en el artículo 1° de esta ley, con el objeto de construir allí un edificio para alojar las oficinas municipales y las de la Jefatura Política de ese lugar.
