@@ -1,0 +1,1 @@
+Artículo 2°.- Autorizase asimismo a la citada Junta para que deposite a la orden del Ministerio de Obras Públicas en la Tesorería Nacional la suma de ¢15,000.00 (quince mil colones) en dinero efectivo, como aporte para la construcción del edificio que ocupará la Escuela Complementaria que dicho Ministerio construirá en el terreno a que se refiere este artículo 1°.
