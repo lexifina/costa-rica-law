@@ -1,0 +1,1 @@
+Art. 2. Una comision especial de Constitucion compuesta de los Senores Diputados Nazario Taledo, Jacinto Garcia, Lucas Alvarado, José Maria Zamora y Pedro Saborio, quedarà reunida redactando el proyecto.
