@@ -1,0 +1,1 @@
+Art. 5 El tesorero otorgarà la fianza de quinientos pesos y sus cuentas serán fenecidas por fin del año económico y presentadas al Superior Tribunal para que las glose y fenezca como las demás del Estado.
