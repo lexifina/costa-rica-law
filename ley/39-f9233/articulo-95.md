@@ -28,3 +28,4 @@ l) Por las subastas extrajudiciales, con base en el precio que obtengan los bien
 m) Por protocolizaciones de remates judiciales o adjudicación de bienes en juicios universales, de acuerdo con el valor de los mismos y aplicando la tarifa del inciso a) |
 n) Por otra clase de actos o contratos no susceptibles de estimación y que no estén comprendidos en los anteriores incisos | ¢ 100.00
 ñ) Cuando la escritura contenga varias operaciones, se cobrarán los honorarios correspondientes a la operación de mayor valor, y la mitad de los que fija la tarifa para las demás. |
+o) Por certificación de las escrituras a que se refiere el párrafo segundo del artículo 82. (Así adicionado el punto anterior por el artículo 1° de la ley N° 3871 del 18 de mayo de 1967) | ¢ 25.00. (Así adicionado el monto anterior por el artículo 1° de la ley N° 3871 del 18 de mayo de 1967)
