@@ -1,0 +1,1 @@
+ARTÍCULO 78.-Los exámenes anuales de los alumnos de todos los establecimientos de educacion en la República, que quieran acreditar de un modo auténtico la instruccion necesaria para el ejercicio de las funciones literarias y científicas, seran presenciados por una comision de la facultad respectiva elegida por ella.

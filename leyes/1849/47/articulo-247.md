@@ -1,0 +1,1 @@
+ARTÍCULO 247.-Los castigos se reduciran a simples arrestos, plantones en pie y de rodillas, privacion de alimentos, duplicacion del trabajo y reprensiones que estimulen a los jóvenes a conducirse por la senda del honor.

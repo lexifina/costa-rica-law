@@ -1,0 +1,1 @@
+ARTÍCULO 64.-La facultad de medicina, ademas de velar sobre el adelantamiento de las ciencias médicas, se dedicará especialmente al estudio de las enfermedades endémicas de Costa Rica y de las epidemias que reinan en las ciudades y campos, dando conocer los métodos preservativos y curativos, y dirigiendo sus observaciones la mejora de la higiene pública y doméstica.

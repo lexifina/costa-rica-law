@@ -1,0 +1,1 @@
+ARTÍCULO 98.-Verificada dicha lectura y aprobada la memoria en votacion secreta, se le expedirA por el Decano la boleta de aprobacion y se pasar el expediente al Consejo para que este confiera el grado y su presidente expida el título.

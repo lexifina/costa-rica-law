@@ -1,0 +1,1 @@
+ARTÍCULO 211.-Los premios se conceder n en vista del resultado de las relaciones mensuales que han debido pasar los profesores al Rector, y en vista del grado que hubieren obtenido en las composiciones semanales.

@@ -1,0 +1,1 @@
+ARTÍCULO 95.-A las cuarenta y ocho horas despues de efectuado el sorteo se verificará el examen presencia de los miembros de la facultad que quisieren concurrir, para cuyo efecto se les citara no menos que los miembros del Consejo.

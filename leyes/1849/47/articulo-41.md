@@ -1,0 +1,1 @@
+ARTÍCULO 41.-Tambien corresponde al Consejo la dirección de todos los establecimientos de instruccion científica y leteraria, costeados de los fondos públicos, provinciales y municipales, la inspeccion de los particulares y de las escuelas primarias y la jurisdicción correspondiente sobre todos los empleados en el ramo de instruccion pública.

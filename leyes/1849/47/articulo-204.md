@@ -1,0 +1,1 @@
+ARTÍCULO 204.-Los alumnos que fueren reprobados en un examen total, no pueden presentarse a examen sino al fin del año, y en las tres primeras semanas de cuaresma y en los primeros quince dias de Agosto; y los examinadores pueden prolongar y acortar este tiempo, si asi lo creyeren necesario.

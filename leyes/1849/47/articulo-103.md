@@ -1,0 +1,1 @@
+ARTÍCULO 103.-Los diplomas de bachiller, de licenciado ó doctor, expedidos por cualquier Universidad extranjera acreditada, servirán para comprobar que el candidato ha hecho estudios y obtenido aprobación en los ramos que, segun los estatutos de la Universidad extrangera se necesitan para conferir dichos diplomas.

@@ -1,0 +1,1 @@
+ARTÍCULO 92.-El que pretendiere graduarse de licenciado presentará su solicitud al Rector con los documentos que acrediten haber llenado los requisito necesarios, y si el Rector encontrare que efectivamente se han llenado tales requisitos, remitir el expediente al Decano respectivo.

@@ -1,0 +1,1 @@
+ARTÍCULO 94.-El antedicho sorteo se verificara por cedulas que tendrá prepraradas la facultad para todos los grados, en cada una de las cuales estar anotado uno de los ramos y parte de los mismos sobre que pueda ser examinado el candidato.

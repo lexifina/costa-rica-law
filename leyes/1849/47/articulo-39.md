@@ -1,0 +1,1 @@
+ARTÍCULO 39.-Indicará al Poder Ejecutivo todos los recursos y arbitrios que su celo le sugiera para aumentar los fondos la instruccion pública y muy especialmente los que se deban apropiar las escuelas primarias.

@@ -1,0 +1,1 @@
+ARTÍCULO 44.-Pertenece al Consejo, en virtud de la jurisdicción que ejerce: Corregir, reprender, suspenderá por algun tiempo y aun remover los empleados ineptos, inmorales y que falten en materia grave a sus deberes.

@@ -1,0 +1,1 @@
+ARTÍCULO 214.-Fuera de los premios enunciados habrá una tercera clase que se obtendrá en concurso. Estos premios consistir n en medallas de plata, las cuales se concederán a los alumnos que hubieren obtenido la preferencia en los concursos anuales que habrá sobre las diversas materias que se estudian.

@@ -1,0 +1,1 @@
+ARTÖCULO 134.-El Vice-Recot conservar los estados de la comportacion de los alumnos que deben pasarle los inspectores, y, segun ellos y sus observaciones particulares, formar un estado general que archivar junto con los que deben presentar los profesores.

@@ -1,0 +1,1 @@
+ARTÍCULO 35.-El Consejo de instruccion podrá ordenar la venta de los libros duplicados; mas su importe se invertirá en la compra de aquellos que falten la biblioteca y señaladamente de los que se necesiten como texto para enseñar en las cátedras que debe establecerse.

@@ -1,0 +1,1 @@
+ARTÍCULO 85.-Entre los ramos que señala el artículo anterior, el Decano de la facultad respectiva hará sortear uno en presencia del Secretario, con asistencia del candidato, y de este ramo señalará un tratado para que, a los seis días de verificado el sorteo, recaiga sobre él exclusivamente el exámen.

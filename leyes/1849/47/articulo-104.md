@@ -1,0 +1,1 @@
+ARTÍCULO 104.-Sin el grado de licenciado, conferido por la Universidad, no se podrá ejercer ninguna profesión científica ni después de cinco años de la promulgación de este reglamento obtener cátedra de ciencias en la Universidad. Se exceptuan los individuos que al tiempo de la publicacion de este reglamento se hallaren admitidos en ejercicio de alguna profesión científica.

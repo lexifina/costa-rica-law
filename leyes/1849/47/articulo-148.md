@@ -1,0 +1,1 @@
+ARTÍCULO 148.-El tesorero llevar a sus cuentas en dos libros, de los cuales el uno servirá de manual y el otro de mayor; y el Rector rubircara a todas las fojas del manual firmando la primera y última.

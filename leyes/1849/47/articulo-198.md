@@ -1,0 +1,1 @@
+ARTÍCULO 198.-Los examenes se harán con la mayor publicidad posible, y se dara aviso en los periódicos para que asistan los que quieran. El Rector hara imprimir los programas, y con ellos convidara personas inteligentes y en particular los profesores de otros establecimientos.

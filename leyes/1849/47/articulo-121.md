@@ -1,0 +1,1 @@
+ARTÍCULO 121.-El Rector y Vice Rector ser n nombrados por el Poder Ejecutivo: las catedras se darán por oposicion, y cuando vacare alguna, se hará publicar un mes antes para que ocurran los candidatos.

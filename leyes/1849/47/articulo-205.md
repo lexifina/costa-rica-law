@@ -1,0 +1,1 @@
+ARTÍCULO 205.-El Rector determinara el orden en que las clases deben presentar sus ex menes; y los alumnos que no fueren aprobados dejaran de ser admitidos en la clase siguiente y volveran a la misma en que fueron aprobados.

@@ -1,0 +1,1 @@
+ARTÍCULO 40.-Corresponde al Consejo conceder la autorización conveniente para abrir casas de instruccion, previo conocimiento de lo que se va a enseñar y de las demas circunstancias que exige el buen orden del establecimiento.

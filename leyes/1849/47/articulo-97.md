@@ -1,0 +1,1 @@
+ARTÍCULO 97.-Trascurrido el tiempo del examen se aprobar y reprobar el candidato en votacion secreta, por mayoria de votos de la comision y del Rector, si este hubiere concurrido. En caso de empate se le tendrá por reprobado; mas si fuere aprobado, el Decano señalará el dia en que ha de presentar y leer ante la facultad, la memoria de que habla el art. 91.

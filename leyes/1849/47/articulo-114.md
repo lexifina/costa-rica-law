@@ -1,0 +1,1 @@
+ARTÍCULO 114.-Los asuntos mistos, esto es, que correspondan dos ó mas facultades, se discutiran en sesión mista de las respectivas facultades, presididas por el Rector; y en caso de que ocurriere duda la resolver el Consejo.
