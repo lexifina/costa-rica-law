@@ -16,3 +16,4 @@ Reglamento Interno de la Junta Directiva del Consejo de Seguridad Vial
 | 1 | 1982-04-28 | la propia norma |
 | 2 | 1986-08-26 | Decreto Ejecutivo 17171 (1986-08-26) |
 | 3 | 1987-01-21 | Decreto Ejecutivo 17396 (1987-01-21) |
+| 4 | 1989-11-09 | Decreto Ejecutivo 19286 (1989-11-09) |
