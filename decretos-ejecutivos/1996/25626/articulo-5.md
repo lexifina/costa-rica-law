@@ -1,0 +1,1 @@
+Artículo 5°—El Ministro de Planificación Nacional y Política Económica eligirá al coordinador de la Comisión INFODES; además, la Comisión contará con una secretaría ejecutiva, a cargo del Ministerio de Planificación Nacional y Política Económica.

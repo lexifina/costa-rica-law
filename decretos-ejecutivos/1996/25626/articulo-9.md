@@ -1,0 +1,1 @@
+Artículo 9°—Los Ministerios y demás instituciones del Estado deberán suministrar la información que requiera la Comisión INFODES, para el estudio, análisis y elaboración de propuestas técnicas de producción, procesamiento, manejo y sistematización de la información ambiental.
