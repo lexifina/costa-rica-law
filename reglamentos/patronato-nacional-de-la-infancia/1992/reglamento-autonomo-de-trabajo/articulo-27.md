@@ -10,3 +10,7 @@ d) Presentarse al trabajo vestidos en forma inadecuada de acuerdo con las labore
 e) Extralimitarse en sus funciones o deberes y tomarse atribuciones que no les corresponden, cuando con su actitud ocasionen perjuicio al usuario o a la Institución.
 f) Alterar o sustraer los registros de asistencia establecidos, marcar los registros de asistencia de otros o consentir que otras personas marquen por ellos, y
 g) Realizar cualquier clase de actos contrarios a la ley, a la moral o a las buenas costumbres.
+h. El uso de equipo electrónico del Estado para observar o reproducción de pornografía.
+(Así adicionado el inciso anterior mediante sesión N° 5 del 21 de enero del 2002).
+i. La exhibición de material pornográfico dentro de los edificios, albergues o cualquier otra planta física institucional.
+(Así adicionado el inciso anterior mediante sesión N° 5 del 21 de enero del 2002).

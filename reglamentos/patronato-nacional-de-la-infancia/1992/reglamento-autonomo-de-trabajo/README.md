@@ -17,3 +17,4 @@ Reglamento Autónomo de Trabajo
 | 2 | 1995-10-02 | Reglamento 78 (1995-10-02) |
 | 3 | 1997-06-02 | Reglamento 45 (1997-06-02) |
 | 4 | 1997-09-01 | Reglamento 71 (1997-09-01) |
+| 5 | 2002-01-21 | Reglamento 5 (2002-01-21) |
