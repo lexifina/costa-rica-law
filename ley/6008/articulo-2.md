@@ -1,0 +1,1 @@
+Artículo 2°.- Los geólogos del Poder Ejecutivo tendrá n como compensación a las prohibiciones que contiene el reglamento MEIC-4042 los beneficios que establecen los incisos a), b), c) y d) del artículo 1° de la ley N° 5867 de 15 de diciembre de 1975.
