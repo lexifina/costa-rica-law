@@ -1,0 +1,2 @@
+DEL COBRO DE LAS CONTRIBUCIONES
+Artículo 41.-De acuerdo con el artículo 17 de la Ley de Contribución Territorial y 26 del Impuesto sobre la Renta, la contribución directa se hará efectiva por cuotas trimestrales y por medio de este Reglamento se establece que los pagos se hagan en los primeros quince días hábiles de los meses de enero, abril, julio y octubre de cada año, en las tesorerías provinciales y cantonales que el Poder Ejecutivo determine.

@@ -1,0 +1,2 @@
+Artículo 29.-En todos los casos en que se hable de notificación debe entenderse por tal la entrega que hace la oficina de correos del formulario respectivo, y las resoluciones se consideran notificadas por el simple trascurso de veinticuatro horas en el caso de que el interesado no haga el señalamiento de casa para notificaciones cuando el Reglamento lo indica.
+Para los efectos de este artículo, es prueba suficiente la constancia de la respectiva Administración de Correos de haber entregado al destinatario, o de haberle dejado en su casa el correspondiente formulario.

@@ -1,0 +1,1 @@
+Artículo 50.-Abrirá también en los libros principales cuantas cuentas sean necesarias para anotar los gastos generales de las dos rentas (territorial y renta) a fin de que todo lo relacionado con las oficinas de Tributación Directa quede consignado en esos libros.

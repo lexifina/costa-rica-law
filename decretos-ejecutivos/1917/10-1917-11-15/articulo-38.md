@@ -1,0 +1,2 @@
+Artículo 38.-Los expedientes que se instruyan sobre defraudación, constarán de los siguientes documentos.:
+Primero: el de la denuncia principal y de la orden en virtud de la cual se forma el expediente; segundo: de la diligencia de reconocimiento de la finca, negocio o empresa; tercero: de las declaraciones de vecinos u otras personas que conozcan a fondo la propiedad o negocio de que se trata; y cuarto: de los dictámenes periciales y demás datos y expedientes que puedan adquirirse y que conduzcan al esclarecimiento del hecho que se trata de averiguar.

@@ -1,0 +1,1 @@
+Artículo 9°-Si se advierte morosidad o poca actividad en el cumplimiento de esta función, la autoridad administrativa del lugar procederá a dar cuenta inmediata a las oficinas centrales de la Tributación, y éstas a los Ministerios de Gobernación y Hacienda.

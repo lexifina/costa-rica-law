@@ -1,0 +1,1 @@
+Artículo 30.-Dicho formulario irá acompañado de un recibo que firmará el interesado o la persona a quien se entregue y el empleado del Correo que efectúa la entrega o solamente por el oficial del Correo cuando por cualquier concepto no firme el destinatario. Esa constancia se devolverá al expediente respectivo para los efectos de los tres artículos anteriores.

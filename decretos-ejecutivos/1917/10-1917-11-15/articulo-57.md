@@ -1,0 +1,1 @@
+Artículo 57.-Todos los documentos, expedientes y demás papeles correspondientes al mismo individuo llevarán la numeración individual que se le haya signado en su cuenta, como numerador y como denominador la que le corresponde a la respectiva división territorial del domicilio del contribuyente.

@@ -1,0 +1,2 @@
+DE LA CONTABILIDAD GENERAL DE LA CONTRIBUCIÓN DIRECTA
+Artículo 48.-La Contabilidad General de la Tributación Directa, estará a cargo de la Oficina de la Contribución Territorial y llevará los registros respectivos de informes de inscripciones definitivas que practiquen las dos Oficinas (de la Contribución Territorial y de la Contribución de la Renta) con especificación del capital o renta, suma liquidada imponible a cada contribuyente y demás detalles conducentes.

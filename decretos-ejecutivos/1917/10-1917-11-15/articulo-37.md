@@ -1,0 +1,1 @@
+Artículo 37.-Los auxiliares de las comisiones tendrán derecho a la retribución que establece el artículo anterior, cuando por su exclusiva iniciativa se descubra la defraudación. Asimismo podrán ser retribuidos los empleados de policía o de la Guardia Rural cuando descubran y denuncien cualquier defraudación.

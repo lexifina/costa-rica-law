@@ -1,0 +1,1 @@
+Artículo 22.-Caso de que el contribuyente no esté conforme con el criterio de la Oficina de Tributación, presentará un memorial en que se puntualicen las objeciones y se aleguen los fundamentos del reclamo. En la misma solicitud se designará un perito, y señalará oficina para notificación en el centro de esta ciudad.

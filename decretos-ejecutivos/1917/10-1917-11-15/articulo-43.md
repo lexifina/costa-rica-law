@@ -1,0 +1,1 @@
+Artículo 43.-Los recibos de cobro que se envíen a las tesorerías se harán por triplicado, y se usarán así: uno para entregar al interesado, otro que conservan como comprobante y el tercero que remiten a la Oficina de Contabilidad General con sus liquidaciones mensuales.

@@ -1,0 +1,1 @@
+Artículo 46.-La Tesorería invariablemente hará su liquidación antes de los días 25 de enero, abril, julio y octubre, devolviendo con sus remesas todos los recibos no pagados, sin excepción alguna, a la Contabilidad General de la Tributación Directa.

@@ -1,0 +1,2 @@
+Artículo 32.-Toda escritura que consigne operaciones de esa clase así como las de constitución de sociedades capitulaciones matrimoniales, separación de bienes, constitución y cancelación de hipotecas etc. Debe ser presentada original a la Oficina de Tributación respectiva, en donde se tomarán las referencias necesarias y se pondrá la razón de anotado, y la constancia de estar satisfechos los impuestos que corresponden, firmada por el oficial de Tributación.
+Sin este requisito los registros de la República no inscribirán ningún documento.

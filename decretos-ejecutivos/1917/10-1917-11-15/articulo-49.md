@@ -1,0 +1,1 @@
+Artículo 49.-Abrirá por orden numérico sucesivo la cuenta corrientes en los libros respectivos, a cada individuo, sociedad o corporación, que por razón de las leyes de la materia tenga que contribuir a los gastos públicos.-Esas cuentas expresarán siempre y sin necesidad de ulterior consulta el motivo de la tributación.

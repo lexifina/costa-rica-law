@@ -1,0 +1,1 @@
+Artículo 35.-Del expediente se sacará el certificado de piezas justificativas de la delincuencia, para que sirvan de cabezad del proceso, a que se refiere el artículo 7° de la Ley de Contribución Territorial y 9° de la Ley de Impuesto sobre la Renta.

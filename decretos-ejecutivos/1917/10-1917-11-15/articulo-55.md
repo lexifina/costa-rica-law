@@ -1,0 +1,1 @@
+Artículo 55.-También la Oficina de la Contribución de la Renta enviará mensualmente a la Contabilidad de la Tributación Directa, un detalle completo de los gastos hechos, con objeto de hacer su entrada en los libros principales. Los recibos de cobro una vez hechos y verificados serán enviados a las respectivas tesorerías para su recaudación.

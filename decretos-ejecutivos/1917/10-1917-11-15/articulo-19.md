@@ -1,0 +1,1 @@
+Artículo 19.-Una vez satisfecha esa formalidad las declaraciones pasarán al Jefe de Sección, quien pondrá su Visto Bueno a las operaciones y notificará al contribuyente el avalúo aceptado por la oficina y la fijación del impuesto correspondiente, otorgándose un plazo de diez días para reparos.

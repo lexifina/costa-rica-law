@@ -1,0 +1,2 @@
+PROCEDIMIENTO DE APREMIO
+Artículo 58.-De conformidad con los artículos 19 y 21 de la Ley de Contribución territorial y 28 de la ley de Impuestos sobre la Renta, no habiendo sido pagadas cuatro cuotas trimestrales, la Administración procederá al cobro forzoso y al efecto remitirá al Promotor Fiscal, para lo de su cargo, los documentos parte de la ejecución. El avalúo oficial de la propiedad deberá tenerse como base para la pública subasta.

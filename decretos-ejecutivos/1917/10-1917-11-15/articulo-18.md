@@ -1,0 +1,1 @@
+Artículo 18.-En el caso de que el contribuyente omitiere consignar el avalúo de su propiedad o no declare su renta con las formalidades requeridas, el Jefe Provincial lo fijará de acuerdo con la guía de valuación y cargará el 5% más en concepto de multa por la omisión apuntada.

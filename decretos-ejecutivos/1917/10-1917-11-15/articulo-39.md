@@ -1,0 +1,1 @@
+Artículo 39.-En el expediente se hará constar también por los funcionarios que lo instruyan, o en su caso por el Jefe de la Tributación, si el interesado es o no reincidente en la defraudación. En auto separado se dirá si procede o no la retribución de las denuncias y se fijará en su caso la cuantía de éstas.

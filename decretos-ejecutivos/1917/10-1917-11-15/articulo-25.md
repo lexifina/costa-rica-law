@@ -1,0 +1,1 @@
+Artículo 25.-Cumplido este trámite el Jefe de la Oficina dictará su resolución, expresando en el fallo, si existe o no malicia al tenor del artículo 7° de la Ley General; de esa resolución no habrá otro recurso que el de apelación para ante el Ministerio de Hacienda.
