@@ -14,3 +14,4 @@ Instructivos, manuales, formularios y demás documentos correspondientes que apl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-31 | la propia norma |
+| 2 | 2003-11-03 | Acuerdo 0 (2003-11-03) |
