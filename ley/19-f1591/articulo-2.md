@@ -1,0 +1,1 @@
+Artículo 2°—Para gozar de la exención del impuesto á que se refiere el artículo anterior, la exportación de las clases de café en él indicadas, deberá efectuarse dentro del término que anualmente fijará el Poder Ejecutivo y con sujeción á las disposiciones que éste dicte, en cumplimiento de la presente ley.
