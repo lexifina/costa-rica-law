@@ -1,0 +1,2 @@
+Art 6° Las personas que individualmente en compañía o en común hasta esta fecha hayan formado fincas de los terrenos exceptuando en el artículo 4 tendrán el derecho de adquirir los terrenos que hayan cultivado y cincuenta manzanas más a moderada composición, o sea por el justiprecio de dos peritos nombrados por las partes y sin puja.
+Palacio Nacional, San José, agosto trece de mil ochocientos setenta y cinco. Ejecutese.

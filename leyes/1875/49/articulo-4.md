@@ -1,0 +1,1 @@
+Art 4° A ambos lados del Ferrocarril del Puerto del Limón a Pacuare se reserva una zona de dos mil varas de latitud, que no podrá reducirse a dominio particular mientras no se disponga en contrario otra cosa por el Supremo Poder Ejecutivo.
