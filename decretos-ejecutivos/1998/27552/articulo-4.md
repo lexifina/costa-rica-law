@@ -1,0 +1,1 @@
+Artículo 4°— Para la toma de las decisiones, la Comisión de Seguimiento tomará como base el marco jurídico y filosófico del Proceso de Concertación Nacional, particularmente lo establecido en el decreto N° 27106-MP, en lo que sea aplicable

@@ -1,0 +1,1 @@
+Artículo 6°- El Ministerio del Ambiente y Energía, por medio de sus diferentes dependencias, brindará dentro del marco de sus posibilidades, toda la colaboración necesaria para facilitar el trabaje, de la Comisión de Seguimiento, incluyendo la búsqueda de recursos de cooperación nacional e internacional
