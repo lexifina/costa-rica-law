@@ -1,0 +1,2 @@
+Artículo 4º—Duración de la Beca de Honor: La Beca de Honor será asignada por espacio de un año, a fin de contribuir con la familia en el inicio de la nueva etapa en la vida del estudiante y el monto será presupuestable cada año, previa recomendación de la Comisión nombrada al efecto, hasta por cinco estudiantes que cumplan con lo establecido en este Reglamento.
+Ordénese al Alcalde Municipal y con carácter de inmediato, la publicación de este Proyecto de Reglamento, en el Diario Oficial La Gaceta para los fines de ley.
