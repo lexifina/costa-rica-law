@@ -1,0 +1,1 @@
+Artículo 82.-A ninguna mujer que se halle bajo la custodia del establecimiento, se le permitir salir del departamento interior, sino es por orden de autoridad competente, o por llamamiento de la misma, en cuyo último caso el Alcaide la hará conducir con la seguridad que juzgue necesaria y de que ser responsable.

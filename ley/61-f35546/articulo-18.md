@@ -1,0 +1,1 @@
+Artículo 18.-Los deberes de la celadora se reducen a ejercer la vigilancia y oficios que le encomiende la Directora: a hacer, en su caso, las veces de esta: a obedecerla y respetarla, y a darle parte de cuantas faltas notare en la conducta de las custodiadas.

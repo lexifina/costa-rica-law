@@ -1,0 +1,1 @@
+Articulo 112.-Las partidas de cargo se autentican por medio del contraste con los recibos del Alcaide.- Las de data con la firma del recipiente, libramiento del Gobernador, o presupuestos legalmente aprobados.

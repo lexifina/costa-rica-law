@@ -1,0 +1,1 @@
+Artículo 92.-La Directora llevar mensualmente en un libro lista de las custodiadas conforme al modelo n° 2, anotando con puntos en la respectiva columna, los días que dejaren de trabajar y las faltas en que cada una incurriese. -Una copia exacta de dicha lista ser remitida al Gobernador de esta Provincia a fin de cada mes.

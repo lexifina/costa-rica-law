@@ -1,0 +1,1 @@
+Artículo 98.-El Alcaide como tesorero del establecimiento, recibir en la Administración principal el valor líquido de dicho presupuesto, y se lo cargar en cuenta: hará con la economía y prudencia de un buen padre de familia las compras necesarias, y entregar a la Directora los objetos que correspondan a la administración de esta.

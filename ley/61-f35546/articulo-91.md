@@ -1,0 +1,1 @@
+Artículo 91.-Cuando las faltas cometidas por las custodiadas merecieren la calificación de delitos o culpas punibles, conforme a la parte 2° del Código general, corresponde a los Jueces y Tribunales su juzgamiento y castigo.

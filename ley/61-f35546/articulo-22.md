@@ -1,0 +1,1 @@
+Artículo 22.-Todos los empleados de la casa deben respetar y obedecer a sus superiores y tratar con circunspección, gravedad y modestia a sus inferiores, y a las mujeres que se hallan bajo la custodia del establecimiento.

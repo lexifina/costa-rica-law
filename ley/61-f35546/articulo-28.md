@@ -1,0 +1,1 @@
+Artículo 28.-Las faltas accidentales del Alcaide y Directora se llenar n con persona de nombramiento del Regente de la Corte; y las de los demás empleados, con individuos de nombramiento del Gobernador, a quien el Secretario de la misma Corte debe dar aviso oficial de todo cambio que hubiere en el personal de aquellos.

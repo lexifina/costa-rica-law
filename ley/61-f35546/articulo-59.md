@@ -1,0 +1,1 @@
+Artículo 59.-Al darse libertad a alguna reo en el caso del artículo precedente, la Directora la hará , a presencia de las demás rematadas, lectura y explicación de los artículos 89, 90, 91 y 92 del Código penal y la exhortar al arrepentimiento y a la enmienda en los términos indicados en el 2° art, 15 de este reglamento.

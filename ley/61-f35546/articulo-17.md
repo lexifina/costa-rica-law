@@ -1,0 +1,1 @@
+Artículo 17.-El cargo de celadora puede recaer en las mujeres mayores de 25 años condenadas a arresto, que, por su subordinación, buenas costumbres, laboriosidad e inteligencia, merezcan tal confianza. A estas cualidades debe atenderse, cuando el nombramiento hubiere de hacerse en persona de fuera de la casa.

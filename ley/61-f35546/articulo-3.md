@@ -1,0 +1,1 @@
+Artículo 3°. -El Gobernador de esta Provincia es el Jefe principal inmediato del establecimiento, cuyo régimen interior se comete, bajo la inspección de aquel un Alcaide que ser al propio tiempo Tesorero, y una Directora, conforme las prescripciones de este reglamento y posteriores órdenes supremas.

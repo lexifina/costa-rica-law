@@ -1,0 +1,1 @@
+Artículo 74.-Para el repartimiento del trabajo, la Directora a quien toca ordenarlo, consultar los ha vitos de vida de las fuerzas, inteligencia e inclinación de cada reo, teniendo presente que a la Nación interesa m s el que ‚estas desgraciadas adquieran un modo honroso de subsistir para después de su excarcelación, que el provecho pecuniario del establecimiento.

@@ -1,0 +1,1 @@
+Artículo 93.-Aquellas que teniendo no menos de quince días de permanencia en la casa se encontraren en la lista sin nota de falta alguna, ser n declaradas por el mismo Gobernador acreedoras a mejor tratamiento.

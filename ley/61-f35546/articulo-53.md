@@ -1,0 +1,1 @@
+Artículo 53.-La ausencia o fuga de toda rea cuya sentencia cause ejecutoria se anunciar inmediatamente por quien corresponda en el boletín judicial, con el delito, domicilio, filiación y pena líquida del reo, a fin de que pueda ser capturada en cualquier punto de la República y remitida al establecimiento si correspondiese conforme al artículo 47.
