@@ -1,1 +1,0 @@
-ARTICULO 2º.- Es indiferente para el efecto de la procedencia de una expropiación que la obra o necesidad deba ejecutarse o satisfacerse directamente por las autoridades o corporaciones o por particulares o empresas, en virtud de concesión o de contrato.
