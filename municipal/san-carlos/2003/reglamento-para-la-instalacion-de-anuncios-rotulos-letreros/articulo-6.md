@@ -1,0 +1,1 @@
+Artículo 6º—No se permitirá instalar ningún tipo de anuncio, aviso, rótulo, letrero o caseta, que a pesar de reunir los requisitos consignados en este reglamento, representen un peligro para la seguridad pública, de acuerdo al criterio técnico de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 34.—La Municipalidad podrá proceder al retiro sin ningún tipo de responsabilidad y con cargo al propietario del inmueble donde se ubiquen o a la persona física o jurídica que colocó este, cuando los avisos, anuncios, rótulos, objetos, cosas y cualquier tipo de obstáculo se encuentren sin la debida autorización municipal.

@@ -1,0 +1,1 @@
+Artículo 20.—La licencia deberá solicitarla el interesado por escrito, agregando un timbre fiscal de ¢ 100,00 (cien colones), un timbre municipal de ¢ 100,00 (cien colones) y un timbre de Archivo Nacional de ¢5,00 (cinco colones).

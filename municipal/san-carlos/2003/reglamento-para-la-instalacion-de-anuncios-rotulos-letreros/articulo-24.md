@@ -1,0 +1,1 @@
+Artículo 24.—Para que surta efecto la licencia, deberá ser cancelado el impuesto de construcción correspondiente, tomando como base de derecho, el valor del rótulo. El monto mínimo por concepto de permiso de construcción será de ¢ 5.000,00 (cinco mil colones), sin perjuicio de las modificaciones anuales que apruebe la Municipalidad.

@@ -1,0 +1,2 @@
+Artículo 5º—Cada vez que se sustituya, reconstruya o modifique de algún modo el anuncio, manteniendo la estructura autorizada, deberá notificarse por escrito a la Municipalidad, con la presentación del nuevo diseño para su aprobación.
+La omisión a esta disposición acarrea incumplimiento, suficiente para que la Municipalidad deje sin efecto la autorización otorgada, lo que originará el acto de remoción de lo construido, previo trámite de audiencia.

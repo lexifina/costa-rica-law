@@ -1,0 +1,1 @@
+Artículo 21.—La solicitud de licencia la presentará el propietario de la estructura en que se va a fijar el anuncio, con anuencia escrita y autenticada por notario público, del propietario del predio en que se colocará la estructura, cuando sea el caso.

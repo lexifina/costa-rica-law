@@ -1,0 +1,1 @@
+Artículo 23.—La solicitud de licencia, con los requisitos antes expresados, deberá ser presentada en el Departamento de Ingeniería Municipal, con el visto bueno de la Administración Tributaria que está al día con el pago de los tributos antes mencionados.

@@ -1,0 +1,1 @@
+Artículo 36.—Para efectos de este Reglamento, se considera infractor a quien se le compruebe que ha hecho o mandado hacer por su cuenta la colocación de una estructura, anuncio, rótulo o aviso en contravención con las disposiciones de este Reglamento.
