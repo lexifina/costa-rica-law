@@ -1,0 +1,4 @@
+Artículo 25 Derechos de protección del Estado ribereño
+1.- El Estado ribereño podrá tomar en su mar territorial las medidas necesarias para impedir todo paso que no sea inocente.
+2.- En el caso de los buques que se dirijan hacia las aguas interiores o a recalar en una instalación portuaria situada fuera de esas aguas, el Estado ribereño tendrá también derecho a tomar las medidas necesarias para impedir cualquier incumplimiento de las condiciones a que esté sujeta la admisión de dichos buques en esas aguas o en esa instalación portuaria.
+3.- El Estado ribereño podrá, sin discriminar de hecho o de derecho entre buques extranjeros, suspender temporalmente, en determinadas áreas de su mar territorial, el paso inocente de buques extranjeros si dicha suspensión es indispensable para la protección de su seguridad, incluidos los ejercicios con armas. Tal suspensión sólo tendrá efecto después de publicada en debida forma.

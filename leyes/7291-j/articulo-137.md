@@ -1,0 +1,4 @@
+Artículo 137 Condición jurídica de la Zona y sus recursos
+1.- Ningún Estado podrá reivindicar o ejercer soberanía o derechos soberanos sobre parte alguna de la Zona o sus recursos, y ningún Estado o persona natural o jurídica podrá apropiarse de parte alguna de la Zona o sus recursos. No se reconocerán tal reinvicación o ejercicio de soberanía o de derechos soberanos ni tal apropiación.
+2.- Todos los derechos sobre los recursos de la Zona pertenecen a toda la humanidad, en cuyo nombre actuará la Autoridad. Estos recursos son inalienables. No obstante, los minerales extraídos de la Zona sólo podrán enajenarse con arreglo a esta Parte y a las normas, reglamentos y procedimientos de la Autoridad.
+3.- Ningún Estado o persona natural o jurídica reinvindicará, adquirirá o ejercerá derechos respecto de los minerales extraídos de la Zona, salvo de conformidad con esta Parte. De otro modo, no se reconocerá tal reivindicación, adquisición o ejercicio de derechos.

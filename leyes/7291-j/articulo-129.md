@@ -1,0 +1,2 @@
+Artículo 129 Cooperación en la construcción y mejoramiento de los medios de transporte
+Cuando en los Estados de tránsito no existan medios de transporte para dar efecto a la libertad de tránsito o cuando los medios existentes, incluidas las instalaciones y equipos portuarios, sean deficientes en cualquier aspecto, los Estados de tránsito y los Estados sin litoral interesados podrán cooperar en su construcción o mejoramiento.

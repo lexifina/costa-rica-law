@@ -1,0 +1,2 @@
+Artículo 201 Criterios científicos para la reglamentación
+A la luz de la información y los datos obtenidos con arreglo al artículo 200, los Estados cooperarán, directamente o por conducto de las organizaciones internacionales competentes, en el establecimiento de criterios científicos apropiados para formular y elaborar reglas y estándares, así como prácticas y procedimientos recomendados, destinados a prevenir, reducir y controlar la contaminación del medio marino.

@@ -1,0 +1,5 @@
+SECCION 3. CENTROS NACIONALES Y REGIONALES DE INVESTIGACION
+CIENTIFICA Y TECNOLOGICA MARINA
+Artículo 275 Establecimiento de centros nacionales
+1.- Los Estados, directamente o por conducto de las organizaciones internacionales competentes y de la Autoridad, fomentarán el establecimiento, especialmente en los Estados ribereños en desarrollo, de centros nacionales de investigación científica y tecnológica marina y el fortalecimiento de los centros nacionales existentes, con objeto de estimular e impulsar la realización de investigación científica marina por los Estados ribereños en desarrollo y de aumentar su capacidad nacional para utilizar y preservar sus recursos marinos en su propio beneficio económico.
+2.- Los Estados, por conducto de las organizaciones internacionales competentes y de la Autoridad, darán el apoyo apropiado para facilitar el establecimiento y el fortalecimiento de los centros nacionales mencionados en el párrafo 1 a fin de proporcionar servicios de capacitación avanzada, el equipo y los conocimientos prácticos y especializados necesarios, así como expertos técnicos, a los Estados que lo necesiten y soliciten.

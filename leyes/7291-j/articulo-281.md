@@ -1,0 +1,3 @@
+Artículo 281 Procedimiento aplicable cuando las partes no hayan resuelto la controversia
+1.- Si los Estados Partes que sean partes en una controversia relativa a la interpretación o la aplicación de esta Convención han convenido en tratar de resolverla por un medio pacífico de su elección, los procedimientos establecidos en esta Parte se aplicarán sólo cuando no se haya llegado a una solución por ese medio y el acuerdo entre las partes no excluya la posiblidad de aplicar otro procedimiento.
+2.- Cuando las partes hayan convenido también en un plazo, lo dispuesto en el párrafo 1 sólo se aplicará una vez expirado ese plazo.

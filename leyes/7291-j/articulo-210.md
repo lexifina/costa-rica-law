@@ -1,0 +1,7 @@
+Artículo 210 Contaminación por vertimiento
+1.- Los Estados dictarán leyes y reglamentos para prevenir, reducir y controlar la contaminación del medio marino por vertimiento.
+2.- Los Estados tomarán otras medidas que puedan ser necesarias para prevenir, reducir y controlar esa contaminación.
+3.- Tales leyes, reglamentos y medidas garantizarán que el vertimiento no se realice sin autorización de las autoridades competentes de los Estados.
+4.- Los Estados, actuando especialmente por conducto de las organizaciones internacionales competentes o de una conferencia diplomática, procurarán establecer reglas y estándares, así como prácticas y procedimientos recomendados, de carácter mundial y regional, para prevenir, reducir y controlar esa contaminación. Tales reglas, estándares y prácticas y procedimientos recomendados serán reexaminados con la periodicidad necesaria.
+5.- El vertimiento en el mar territorial, en la zona económica exclusiva o sobre la plataforma continental no se realizará sin el previo consentimiento expreso del Estado ribereño, el cual tiene derecho a autorizar, regular y controlar ese vertimiento tras haber examinado debidamente la cuestión con otros Estados que, por razón de su situación geográfica, puedan ser adversamente afectados por él.
+6.- Las leyes, reglamentos y medidas nacionales no serán menos eficaces para prevenir, reducir y controlar esa contaminación que las reglas y estándares de carácter mundial.

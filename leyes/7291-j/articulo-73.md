@@ -1,0 +1,5 @@
+Artículo 73 Ejecución de leyes y reglamentos del Estado ribereño
+1.- El Estado ribereño, en el ejercicio de sus derechos de soberanía para la exploración, explotación, conservación y administración de los recursos vivos de la zona económica exclusiva, podrá tomar las medidas que sean necesarias para garantizar el cumplimiento de las leyes y reglamentos dictados de conformidad con esta Convención, incluidas la visita, la inspección, el apresamiento y la iniciación de procedimientos judiciales.
+2.- Los buques apresados y sus tripulaciones serán liberados con prontitud, previa constitución de una fianza razonable u otra garantía.
+3.- Las sanciones establecidas por el Estado ribereño por violaciones de las leyes y los reglamentos de pesca en la zona económica exclusiva no podrán incluir penas privativas de libertad, salvo acuerdo en contrario entre los Estados interesados, ni ninguna otra forma de castigo corporal.
+4.- En los casos de apresamiento o retención de buques extranjeros, el Estado ribereño notificará con prontitud al Estado del pabellón, por los conductos apropiados, las medidas tomadas y cualesquiera sanciones impuestas subsiguientemente.

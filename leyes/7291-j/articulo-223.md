@@ -1,0 +1,3 @@
+SECCION 7. GARANTIAS
+Artículo 223 Medidas para facilitar los procedimientos
+En los procedimientos iniciados con arreglo a esta Parte, los Estados tomarán medidas para facilitar la audiencia de testigos y la admisión de pruebas presentadas por autoridades de otro Estado o por la organización internacional competente, y facilitarán la asistencia a esos procedimientos de representantes oficiales de la organización internacional competente, del Estado del pabellón o de cualquier Estado afectado por la contaminación producida por una infracción. Los representantes oficiales que asistan a esos procedimientos tendrán los derechos y deberes previstos en las leyes y reglamentos nacionales o el derecho internacional.

@@ -1,0 +1,5 @@
+SECCION 9. RESPONSABILIDAD
+Artículo 235 Responsabilidad
+1.- Los Estados son responsables del cumplimiento de sus obligaciones internacionales relativas a la protección y preservación del medio marino. Serán responsables de conformidad con el derecho internacional.
+2.- Los Estados asegurarán que sus sistemas jurídicos ofrezcan recursos que permitan la pronta y adecuada indemnización u otra reparación de los daños causados por la contaminación del medio marino por personas naturales o jurídicas bajo su jurisdicción.
+3.- A fin de asegurar una pronta y adecuada indemnización de todos los daños resultantes de la contaminación del medio marino, los Estados cooperarán en la aplicación del derecho internacional existente y en el ulterior desarrollo del derecho internacional relativo a las responsabilidades y obligaciones relacionadas con la evaluación de los daños y su indemnización y a la solución de las controversias conexas, así como, cuando proceda, a la elaboración de criterios y procedimientos para el pago de una indemnización adecuada, tales como seguros obligatorios o fondos de indemnización.

@@ -1,0 +1,2 @@
+Artículo 301 Utilización del mar con fines pacíficos
+Al ejercer sus derechos y cumplir sus obligaciones de conformidad con esta Convención, los Estados Partes se abstendrán de recurrir a la amenaza o al uso de la fuerza contra la integridad territorial o la indenpendencia (sic) política de cualquier Estado o en cualquier otra forma incompatible con los principios de derecho internacional incorporados en la Carta de las Naciones Unidas.

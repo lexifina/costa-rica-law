@@ -1,0 +1,2 @@
+Artículo 118 Cooperación de los Estados en la conservación y administración de los recursos vivos
+Los Estados cooperarán entre sí en la conservación y administración de los recursos vivos en las zonas de la alta mar.Los Estados cuyos nacionales exploten idénticos recursos vivos, o diferentes recursos vivos situados en la misma zona, celebrarán negociaciones con miras a tomar las medidas necesarias para la conservación de tales recursos vivos. Con esta finalidad cooperarán, según proceda, para establecer organizaciones subregionales o regionales de pesca.

@@ -1,0 +1,2 @@
+Artículo 302 Revelación de información
+Sin perjuicio del derecho de los Estados Partes a recurrir a los procedimientos de solución de controversias establecidos en esta Convención, nada de lo dispuesto en ella se interpretará en el sentido de exigir que un Estado Parte, en el cumplimiento de las obligaciones que le incumban en virtud de la Convención, proporcione información cuya revelación sea contraria a los intereses esenciales de su seguridad.

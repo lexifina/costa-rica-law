@@ -1,0 +1,2 @@
+Artículo 289 Expertos
+En toda controversia en que se planteen cuestiones científicas o técnicas, la corte o tribunal que ejerza su competencia conforme a esta sección podrá, a petición de una de las partes o por iniciativa propia, seleccionar en consulta con las partes por lo menos dos expertos en cuestiones científicas o técnicas elegidos preferentemente de la lista correspondiente, preparada de conformidad con el artículo 2 del Anexo VIII, para que participen sin derecho a voto en las deliberaciones de esa corte o tribunal.

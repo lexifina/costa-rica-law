@@ -1,0 +1,2 @@
+Artículo 232 Responsabilidad de los Estados derivada de las medidas de ejecución
+Los Estados serán responsables de los daños y perjuicios que les sean imputables y dimanen de las medidas tomadas de conformidad con la sección 6, cuando esas medidas sean ilegales o excedan lo razonablemente necesario a la luz de la información disponible. Los Estados preverán vías procesales para que sus tribunales conozcan de acciones relativas a tales daños y perjuicios.

@@ -1,0 +1,2 @@
+Artículo 36 Rutas de alta mar o rutas que atraviesen una zona económica exclusiva que pasen a través de un estrecho utilizado para la navegación internacional
+Esta Parte no se aplicará a un estrecho utilizado para la navegación internacional si por ese estrecho pasa una ruta de alta mar o que atraviese una zona económica exclusiva, igualmente conveniente en lo que respecta a características hidrográficas y de navegación; en tales rutas se aplicarán las otras partes pertinentes de laConvención, incluidas las disposiciones relativas a la libertad de navegación y sobrevuelo.

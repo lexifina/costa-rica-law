@@ -1,0 +1,3 @@
+Artículo 92 Condición jurídica de los buques
+1.- Los buques navegarán bajo el pabellón de un solo Estado y, salvo en los casos excepcionales previstos de modo expreso en los tratados internacionales o en esta Convención, estarán sometidos, en alta mar, a la jurisdicción exclusiva de dicho Estado. Un buque no podrá cambiar de pabellón durante un viaje ni en una escala, salvo en caso de transferencia efectiva de la propiedad o de cambio de registro.
+2.- El buque que navegue bajo los pabellones de dos o más Estados, utilizándolos a su conveniencia, no podrá ampararse en ninguna de esas nacionalidades frente a un tercer Estado y podrá ser considerado buque sin nacionalidad.

@@ -1,0 +1,3 @@
+Artículo 16 Cartas y listas de coordenadas geográficas
+1.- Las líneas de base para medir la anchura del mar territorial, determinadas de conformidad con los artículos 7, 9 y 10, o los límites que de ellas se desprendan, y las líneas de delimitación trazadas de conformidad con los artículos 12 y 15 figurarán en cartas a escala o escalas adecuadas para precisar su ubicación. Esas cartas podrán ser sustituidas por listas de coordenadas geográficas de puntos en cada una de las cuales se indique específicamente el datum geodésico.
+2.- El Estado ribereño dará la debida publicidad a tales cartas o listas de coordenadas geográficas y depositará un ejemplar de cada una de ellas en poder del Secretario General de las Naciones Unidas.

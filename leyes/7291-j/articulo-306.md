@@ -1,0 +1,2 @@
+Artículo 306 Ratificación y confirmación formal
+Esta Convención estará sujeta a ratificación por los Estados y las demás entidades mencionadas en los apartados b), c), d) y e) del párrafo 1 del artículo 305, así como a confirmación formal, con arreglo al Anexo IX, por las entidades mencionadas en el apartado f) del párrafo 1 de ese artículo. Los instrumentos de ratificación y de confirmación formal se depositarán en poder del Secretario General de las Naciones Unidas.

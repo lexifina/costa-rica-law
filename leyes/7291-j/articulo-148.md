@@ -1,0 +1,2 @@
+Artículo 148 Participación de los Estados en desarrollo en las actividades en la Zona
+Se promoverá la participación efectiva de los Estados en desarrollo en las actividades en la Zona, según se dispone expresamente en esta Parte, teniendo debidamente en cuenta sus intereses y necesidades especiales y, en particular, la especial necesidad de los Estados en desarrollo sin litoral o en situación geográfica desventajosa de superar los obstáculos derivados de su ubicación desfavorable, incluidos la lejanía de la Zona y la dificultad de acceso a la Zona y desde ella.

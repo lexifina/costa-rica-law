@@ -1,0 +1,2 @@
+Artículo 257 Investigación científica marina en la columna de agua más allá de los límites de la zona económica exclusiva
+Todos los Estados, cualquiera que sea su situación geográfica, así como las organizaciones internacionales competentes, tienen derecho, de conformidad con esta convención, a realizar actividades de investigación científica marina en la columna de agua más allá de los límites de la zona económica exclusiva.

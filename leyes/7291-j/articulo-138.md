@@ -1,0 +1,2 @@
+Artículo 138 Comportamiento general de los Estados en relación con la Zona
+El comportamiento general de los Estados en relación con la Zona se ajustará a lo dispuesto en esta Parte, a los principios incorporados en la Carta de las Naciones Unidas y a otras normas de derecho internacional, en interés del mantenimiento de la paz y la seguridad y del fomento de la cooperación internacional y la comprensión mutua.

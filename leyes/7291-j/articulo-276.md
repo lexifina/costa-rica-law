@@ -1,0 +1,3 @@
+Artículo 276 Establecimiento de centros regionales
+1.- Los Estados, en coordinación con las organizaciones internacionales competentes, con la Autoridad y con instituciones nacionales de investigación científica y tecnológica marina, fomentarán el establecimiento de centros regionales de investigación científica y tecnológica marina, especialmente en los Estados en desarrollo, a fin de estimular e impulsar la realización de investigación científica marina por los Estados en desarrollo y de promover la transmisión de tecnología marina.
+2.- Todos los Estados de una región cooperarán con los respectivos centros regionales a fin de asegurar el logro más efectivo de sus objetivos.

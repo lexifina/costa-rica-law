@@ -1,0 +1,2 @@
+Artículo 310 Declaraciones y manifestaciones
+El artículo 309 no impedirá que un Estado, al firmar o ratificar esta Convención o adherirse a ella, haga declaraciones o manifestaciones, cualquiera que sea su enunciado o denominación, a fin de, entre otras cosas, armonizar su derecho interno con las disposiciones de la Convención, siempre que tales declaraciones o manifestaciones no tengan por objeto excluir o modificar los efectos jurídicos de las disposiciones de la Convención en su aplicación a ese Estado.

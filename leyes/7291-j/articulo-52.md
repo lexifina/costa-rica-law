@@ -1,0 +1,3 @@
+Artículo 52 Derecho de paso inocente
+1.- Con sujeción a lo dispuesto en el artículo 53, y sin perjuicio de lo dispuesto en el artículo 50, los buques de todos los Estados gozan del derecho de paso inocente a través de las aguas archipelágicas, de conformidad con la sección 3 de la Parte II.
+2.- Los Estados archipelágicos podrán, sin discriminar de hecho o de derecho entre buques extranjeros, suspender temporalmente en determinadas áreas de sus aguas archipelágicas el paso inocente de buques extranjeros, si dicha suspensión fuere indispensable para la protección de su seguridad. Tal suspensión sólo tendrá efecto después de publicada en debida forma.

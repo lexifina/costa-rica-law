@@ -1,0 +1,6 @@
+Artículo 79 Cables y tuberías submarinos en la plataforma continental
+1.- Todos los Estados tienen derecho a tender en la plataforma continental cables y tuberías submarinos, de conformidad con las disposiciones de este artículo.
+2.- El Estado ribereño, a reserva de su derecho a tomar medidas razonables para la exploración de la plataforma continental, la explotación de sus recursos naturales y la prevención, reducción y control de la contaminación causada por tuberías, no podrá impedir el tendido o la conservación de tales cables o tuberías.
+3.- El trazado de la línea para el tendido de tales tuberías en la plataforma continental estará sujeto al consentimiento del Estado ribereño.
+4.- Ninguna de las disposiciones de esta Parte afectará al derecho del Estado ribereño a establecer condiciones para la entrada de cables o tuberías en su territorio o en su mar territorial, ni a su jurisdicción sobre los cables y tuberías construidos o utilizados en relación con la exploración de su plataforma continental, la explotación de los recursos de ésta o las operaciones de islas artificiales, instalaciones y estructuras bajo su jurisdicción.
+5.- Cuando tiendan cables o tuberías submarinos, los Estados tendrán debidamente en cuenta los cables o tuberías ya instalados. En particular, no se entorpecerá la posibilidad de reparar los cables o tuberías existentes.
