@@ -1,0 +1,1 @@
+Artículo 8.- Para constituir el quórum se requiere la presencia de la mayoría absoluta y las decisiones requerirán el voto favorable de la mayoría simple de los miembros presentes del Consejo. En caso de empate, el Ministro de Comercio Exterior, o en su defecto, su representante, decidirá haciendo uso de su voto de calidad.

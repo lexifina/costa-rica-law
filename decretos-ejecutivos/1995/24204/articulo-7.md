@@ -1,0 +1,1 @@
+Artículo 7.- El Consejo Asesor deberá reunirse cuando menos, una vez al mes, o cuantas veces sea necesario para el buen desempeño de sus funciones. La convocatoria deberá realizarse vía fax acompañarse de una orden del día, salvo casos de urgencia.

@@ -1,0 +1,1 @@
+Artículo 16.- El representante institucional tendrá bajo su responsabilidad dar seguimiento a la labor del SISI dentro de su institución y ser el portavoz de la misma ante éste, para lo cual deberá cumplir con las actividades programadas tales como reuniones, conferencias, cursos de capacitación, actualización de información y cualesquiera otras que resulten procedentes.

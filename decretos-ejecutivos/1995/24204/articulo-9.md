@@ -1,0 +1,1 @@
+Artículo 9.- De cada sesión se levantará un acta que deberá ser aprobada en la sesión siguiente, y posteriormente firmada por el Presidente y el Secretario. No obstante, los acuerdos podrán adquirir firmeza en el momento de ser votados cuando así lo acuerden los miembros del Consejo Asesor.
