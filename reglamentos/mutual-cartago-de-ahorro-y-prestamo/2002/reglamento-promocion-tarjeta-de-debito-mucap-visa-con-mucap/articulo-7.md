@@ -1,0 +1,1 @@
+7. El monto que gane cada tarjetahabiente se calcula al cierre de cada mes, realizándose el primer conteo el 31 de octubre del 2002 y así sucesivamente hasta el 30 de abril del 2003. Sin embargo, la acreditación de los colones acumulados se realizará una única vez al finalizar la promoción, a más tardar el 10 de mayo del 2003.

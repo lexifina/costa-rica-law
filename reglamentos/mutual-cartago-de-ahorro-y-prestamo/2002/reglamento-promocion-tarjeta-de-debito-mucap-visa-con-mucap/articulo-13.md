@@ -1,0 +1,1 @@
+13. El tarjetahabiente que acumule 15.000 colones o más como obsequio durante el periodo de la promoción, obtendrá como beneficio adicional la membresía gratis de su tarjeta débito, por un año, en el momento de la renovación.

@@ -1,0 +1,1 @@
+23. Si un tarjetahabiente no acepta el premio o las condiciones del mismo, el premio se considera renunciado y extinguido en relación al tarjetahabiente y no le asistirá derecho a reclamo o indemnización alguna, ni siquiera parcialmente.

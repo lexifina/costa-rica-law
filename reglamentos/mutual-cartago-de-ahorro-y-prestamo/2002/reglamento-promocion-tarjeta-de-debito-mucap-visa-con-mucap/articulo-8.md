@@ -1,0 +1,2 @@
+8. A partir del día 5 de cada mes estará disponible en todas las agencias MUCAP y en Oficinas Centrales el listado de los tarjetahabientes con el total de colones acumulados con corte al mes anterior, así como los generados en el mes anterior, el cual el tarjetahabiente podrá consultar en forma personal o telefónica, en nuestro horario normal de oficina de lunes a viernes de 8,00 a.m. a 6,00 p.m. o sábados de 8,00 a 11,30 a.m.
+Premio

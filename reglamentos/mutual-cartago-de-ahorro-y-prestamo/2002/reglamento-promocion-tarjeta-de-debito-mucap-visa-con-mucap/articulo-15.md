@@ -1,0 +1,2 @@
+15. El plazo máximo improrrogable para presentar algún reclamo en relación con los colones acumulados y el dinero depositado será hasta el 31 de mayo del 2003. Pasada esa fecha caducará el derecho de reclamar y MUCAP no reconocerá premio alguno, por lo tanto no se verá en la obligación de satisfacerlo. Los reclamos deberán ser presentados por escrito en las Oficinas Centrales de MUCAP, Departamento de Captación y con fotocopia de todos los documentos que respaldan la base del reclamo, así como cédula de identidad del titular de la tarjeta.
+Consideraciones especiales

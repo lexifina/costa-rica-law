@@ -1,0 +1,1 @@
+27. El presente Reglamento fue aprobado por la Junta Directiva de MUCAP en su sesión Nº 2286/2002, artículo 3° del día 18 de setiembre del 2002 y rige a partir de su publicación en el diario oficial La Gaceta y su divulgación en las agencias y Oficinas Centrales de MUCAP.

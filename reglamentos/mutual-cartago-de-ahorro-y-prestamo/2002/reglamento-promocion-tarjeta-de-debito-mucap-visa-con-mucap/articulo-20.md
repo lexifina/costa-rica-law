@@ -1,0 +1,1 @@
+20. En caso de que un tarjetahabiente sufra robo o pérdida de la tarjeta de débito MUCAP-VISA, MUCAP suspenderá la acreditación de colones a partir del momento en que se notifique dicha situación y los colones acumulados a la fecha serán trasladados a la nueva tarjeta que se emita.

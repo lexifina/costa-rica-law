@@ -1,0 +1,1 @@
+4. Para participar es necesario que los tarjetahabientes de la tarjeta de débito MUCAP-VISA acepten las condiciones y limitaciones establecidas en este reglamento. La aceptación se dará de forma tácita con el solo acto de aceptar la acreditación del premio. El tarjetahabiente podrá rechazar el premio conforme se indica en la cláusula 23.

@@ -1,0 +1,1 @@
+18. Los tarjetahabientes que al cierre del 30 de abril del 2003 hayan acumulado un monto total inferior a los 2.500 colones, por concepto de obsequio, no tendrán la posibilidad de disponer de los colones acumulados y por tanto no se harán acreedores de ningún premio en efectivo.

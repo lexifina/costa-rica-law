@@ -1,0 +1,1 @@
+9. El premio consiste en que el tarjetahabiente recibirá los colones acumulados al finalizar la promoción, siempre y cuando haya acumulado como obsequio, un monto mínimo de 2.500 colones, del 1º de octubre del 2002 al 30 de abril del 2003.
