@@ -1,0 +1,1 @@
+Artículo tercero.- El nuevo distrito de Concepción á que se refiere el artículo anterior, comprenderá solamente la parte de ese barrio que pertenece actualmente al distrito de San Isidro y de ninguna manera á la que es hoy del cantón de San Rafael.
