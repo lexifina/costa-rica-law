@@ -1,4 +1,6 @@
+(Derogado)
 N° 256
+(Esta norma fue derogada por el artículo 2° de la ley N° 821 del 13 de diciembre de 1946)
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA
 DECRETA:
 Artículo único.-Los artículos 63 y 64 del Código Penal, se leerán así:
