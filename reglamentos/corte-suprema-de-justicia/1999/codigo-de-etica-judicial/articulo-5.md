@@ -1,2 +1,0 @@
-ARTÍCULO 5°. CARÁCTER REGULADOR MÍNIMO DE ESTE CÓDIGO.-
-Las normas y principios contenidos en este Código tiene un carácter regulador mínimo y su descripción y consecuencias no excluyen la existencia de otras normas y principios contenidos en diferentes cuerpos legales o que se consideren de tradicional exigencia, por ser inherentes al honor y prestigio de la judicatura. Respecto de las sanciones derivadas por actos impropios del Juez o de la Jueza habrá de estarse a las normas legales específicas y según la naturaleza de la sanción aplicable.

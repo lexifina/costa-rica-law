@@ -1,4 +1,0 @@
-ARTICULO 4°. AMBITO DE APLICACIÓN PERSONAL DE ESTE CÓDIGO.-
-Las disposiciones de este Código se aplicarán a los administradores justicia en sentido estricto, entendiéndose por tales los Alcaldes, Actuarios y Jueces en sus diversos niveles (Juez-Jueza de primera instancia, Juez-Jueza Superior, Juez-Jueza Superior de Casación Penal y Magistrado-Magistrada de la Corte Suprema de Justicia).
-El Juez y la Jueza, además, de ajustar su conducta a las prescripciones éticas que le son aplicables, está en el deber de facilitar y canalizar apropiadamente la denuncia de actos reñidos con la probidad y buen desempeño de otros funcionarios, independientemente del rango y función de quien sea alcanzado por la denuncia.
-En los casos en que directamente ejercer el régimen disciplinario de servidores bajo su dependencia, está en el deber de actuar incluso de oficio y con extrema diligencia, siempre y cuando se guarden las garantías del debido proceso.

@@ -1,3 +1,0 @@
-ARTICULO 7°. EL DEBER DE CAPACITACIÓN.-
-Como un medio para que la judicatura preste un servicio de calidad y oportuno a la comunidad, la capacitación es un deber de Jueces y Juezas. Es a la vez, un derecho, que no puede serle negado injustificadamente cuando él lo requiera.
-Cuando en atención a sus condiciones profesionales, se le solicite brindar servicios de docencia a favor de sus colegas u otros servidores judiciales, el Juez o la Jueza están en el deber de colaborar con la capacitación judicial, en las condiciones y con los reconocimientos que reglamentariamente se acuerden para las actividades de capacitación.
