@@ -5,4 +5,5 @@ c) Traer sello o firma de la casa comercial proveedora, donde se indique haber s
 d) Tener el número de Entrada a Bodega cuando se trate de compra de repuestos o materiales, cuando sea por un servicio, debe traer consignado el número de equipo y el departamento o sección que recibió el servicio.
 e) No incluir en una misma factura o comprobantes, bienes o servicios de diferentes códigos presupuestarios.
 f) No contener borrones, tachaduras, o alteraciones que hagan dudar de su legitimidad.
-g) En toda factura se exigir el membrete de la casa comercial, además de indicar el número responsable con que esté inscrito el vendedor en la Dirección General de la Tributación Directa, si cobra el impuesto de ventas.
+g) En toda factura se exigir el número de responsable con que este inscrito el vendedor en la Dirección General de la Tributación Directa, si cobra el impuesto de ventas.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 17674 del 29 de julio de 1987)
