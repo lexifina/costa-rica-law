@@ -1,0 +1,1 @@
+Artículo 18.- Para los efectos legales, la Institución contratará a cada uno de sus trabajadores en el propio lugar de la prestación de servicios, salvo cuando de modo expreso se diga lo contrario en el contrato de trabajo.

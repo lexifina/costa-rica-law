@@ -1,0 +1,1 @@
+Artículo 81.- La amonestación escrita se aplicará cuando se haya amonestado en los términos del artículo anterior y el trabajador incurra nuevamente en la misma falta; cuando incumpla alguna de las obligaciones o prohibiciones establecidas en otros artículos de este Reglamento; y cuando las leyes de trabajo exijan la amonestación escrita antes del despido.

@@ -1,0 +1,2 @@
+IX. Del Aguinaldo Anual
+Artículo 44.-Los trabajadores de la Institución, de cualquier clase que sean y cualquiera que sea la forma en que desempeñan sus labores y en que se les pague el salario, figuren o no individualmente en el presupuesto, tendrán derecho a una remuneración adicional en el mes de diciembre de cada año, que consistirá en la doceava parte de los salarios ordinarios y extraordinarios devengados entre el lº de diciembre y el 30 de noviembre del año siguiente.

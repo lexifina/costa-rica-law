@@ -1,0 +1,1 @@
+Artículo 45.- En caso de terminación del contrato de trabajo antes del período de un año a que se refiere el artículo anterior, cualquiera que sea la causa de la terminación, el trabajador tendrá derecho a recibir la remuneración adicional en proporción al tiempo servido, cuyo pago se hará de inmediato y al momento de su retiro.

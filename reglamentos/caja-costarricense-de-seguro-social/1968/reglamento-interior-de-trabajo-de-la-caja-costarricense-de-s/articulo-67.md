@@ -1,0 +1,1 @@
+Artículo 67.- El encargado de llevar el registro de asistencia y puntualidad enviará un informe mensual al Departamento de Personal en el que indicará todas las incidencias ocurridas en el período, para que se hagan las anotaciones en los prontuarios de los trabajadores.

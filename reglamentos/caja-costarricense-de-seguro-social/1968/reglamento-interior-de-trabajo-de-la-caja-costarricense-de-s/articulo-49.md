@@ -1,0 +1,1 @@
+Artículo 49.- Es obligación del trabajador prestar, sin remuneración adicional o especial, los auxilios necesarios en caso de siniestro o riesgo inminente, en que las personas o intereses de la Institución estén en peligro.

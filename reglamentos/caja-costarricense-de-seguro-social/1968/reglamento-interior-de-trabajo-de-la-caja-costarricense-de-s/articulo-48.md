@@ -1,0 +1,1 @@
+Artículo 48.- Es obligación del trabajador guardar lealtad a la Institución, absteniéndose de actuaciones que puedan causar algún perjuicio moral o material a ella. El trabajador que incumpla esta obligación, según la gravedad de la falta, podrá ser amonestado por escrito, suspendido de sus labores hasta por ocho días, o despedido.

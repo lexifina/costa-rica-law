@@ -1,0 +1,2 @@
+Artículo 38.- El permiso para ausentarse del trabajo debe solicitarlo el trabajador a su jefe inmediato por escrito y en forma razonada. El jefe tramitará en documento oficial el permiso y dará su criterio al respecto al Departamento de Personal.
+En caso de un permiso urgente que no exceda de tres días, el trabajador puede solicitarlo verbalmente y el jefe resolverlo en la misma forma, en el entendido de que éste tramitará inmediatamente el documento oficial al Departamento de Personal.

@@ -1,0 +1,1 @@
+Artículo 4.- Para los efectos de este Reglamento se considera trabajador a toda persona física que, en virtud de un contrato de trabajo, preste sus servicios manuales, intelectuales o de ambos géneros a la Institución.

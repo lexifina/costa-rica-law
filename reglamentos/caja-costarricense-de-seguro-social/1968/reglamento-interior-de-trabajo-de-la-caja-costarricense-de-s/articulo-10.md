@@ -1,0 +1,1 @@
+Artículo 10.- El jefe que autorice un acto o movimiento de personal que suponga para la Caja pago de dinero y que no haya sido autorizado de previo por persona capaz legal o reglamentariamente, responderá económicamente del monto de dinero que tenga que pagarse.

@@ -1,0 +1,1 @@
+Artículo 90.- Previa aprobación de la Oficina Legal del Ministerio de Trabajo y Bienestar Social, la Institución se reserva el derecho de adicionar y modificar este Reglamento, y conforme a los demás procedimientos establecidos por la ley.

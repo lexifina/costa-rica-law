@@ -1,0 +1,1 @@
+Artículo 84.- No obstante la existencia en este Reglamento de escalas de sanciones mediante las cuales las faltas se computan al final de un período dado, tratándose de amonestaciones verbales o escritas deberán imponerse dentro de los ocho días posteriores a aquél en que se cometió la falta.

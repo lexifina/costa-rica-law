@@ -1,0 +1,1 @@
+Artículo 80.- La amonestación verbal se aplicará cuando el trabajador cometa alguna falta leve a las obligaciones expresas o tácitas que le impone su contrato de trabajo, y en los demás casos previstos por este.

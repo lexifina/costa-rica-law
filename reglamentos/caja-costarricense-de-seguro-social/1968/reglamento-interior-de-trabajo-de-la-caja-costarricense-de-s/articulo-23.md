@@ -1,0 +1,2 @@
+Artículo 23.- Con sujeción a las disposiciones legales, la Institución se reserva el derecho de variar, en forma temporal, las horas de iniciación y terminación de la jornada de los trabajadores, según las necesidades de trabajo y los intereses del patrono.
+En caso de modificación definitiva a los horarios establecidos en este Reglamento, deberá requerirse previamente la aprobación de la Oficina Legal del Ministerio de Trabajo y Bienestar Social.

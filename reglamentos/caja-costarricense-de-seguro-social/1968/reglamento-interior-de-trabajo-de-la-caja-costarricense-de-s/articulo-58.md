@@ -1,0 +1,3 @@
+Artículo 58.- Es absolutamente prohibido presentarse al trabajo en estado de embriaguez o bajo cualquier otra condición análoga o durante las horas de trabajo ingerir bebidas alcohólicas o aplicarse sustancias que perturben los sentidos.
+Cuando se infrinja esta prohibición y se considere falta grave, el trabajador será despedido en forma inmediata.
+Cuando se viole la prohibición del párrafo primero y que por razón de las funciones que se desempeñan o del lugar en donde se prestan los servicios, no se considere falta grave, el trabajador será amonestado por escrito la primera vez, y por la reincidencia producida dentro de un lapso de tres meses será despedido.

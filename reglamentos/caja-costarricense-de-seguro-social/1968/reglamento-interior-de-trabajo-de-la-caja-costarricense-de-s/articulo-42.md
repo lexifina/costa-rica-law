@@ -1,0 +1,2 @@
+Artículo 42.- Una vez hechas las deducciones y retenciones obligadas o autorizadas por ley, los salarios se pagarán directamente a los trabajadores en el propio lugar y durante su horario de trabajo, a más tardar el quince y último de cada mes. Si fuere feriado o día de descanso se pagará el día hábil inmediato anterior.
+Las deducciones o retenciones de los salarios se originarán únicamente en obligaciones legales o en disposiciones reglamentarias de la Institución, no pudiéndose hacer deducciones de otro tipo, sea por solicitud del propio trabajador o de terceras personas.

@@ -1,0 +1,2 @@
+Artículo 31.- El trabajador tendrá derecho a vacaciones, aún cuando su contrato no le exija trabajar la jornada máxima ni todos los días de la semana.
+Para la aplicación de los artículos 28 y 29 de este Reglamento a los trabajadores a que se refiere el párrafo anterior, se hará la proporción entre el derecho al disfrute o pago de las vacaciones por trabajar tiempo completo durante seis días a la semana, y lo que cada contrato de trabajo en particular establezca.

@@ -1,0 +1,1 @@
+Artículo 88.-Todo lo relativo a clasificación de puestos, selección de personal, calificación periódica de servicios y régimen de salarios, (en este aspecto conforme al artículo 40), estará regido por las normas consignadas en el Estatuto de Servicio de la Institución, que dictará la Junta Directiva.

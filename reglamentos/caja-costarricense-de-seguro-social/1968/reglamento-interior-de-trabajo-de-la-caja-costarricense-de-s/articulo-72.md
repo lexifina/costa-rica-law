@@ -1,0 +1,2 @@
+XV. De las Ausencias
+Artículo 72.- Se considerará ausencia la falta a un día completo de trabajo; la falta a una de las dos fracciones de la jornada se computará como la mitad de una ausencia, excepto la del sábado que se considerará ausencia completa. No se pagará el salario de los días o fracciones de jornada no trabajados, excepción hecho de los casos señalados en este Reglamento y en el Código de Trabajo.

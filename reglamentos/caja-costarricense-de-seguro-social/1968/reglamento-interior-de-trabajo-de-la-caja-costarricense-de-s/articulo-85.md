@@ -1,0 +1,1 @@
+Artículo 85.- El despido del trabajo, originado en las causales establecidas en este Reglamento o en las leyes, se hará siempre sin responsabilidad patronal. La suspensión por los motivos indicados en este Reglamento no podrá decretarse si antes no se ha oído al trabajador interesado y a los compañeros de trabajo que él indique. Las suspensiones serán siempre sin goce de salario.

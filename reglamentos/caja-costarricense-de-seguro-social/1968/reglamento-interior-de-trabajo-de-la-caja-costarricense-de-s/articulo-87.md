@@ -1,0 +1,2 @@
+XVIII. De las Disposiciones Finales
+Artículo 87.- De conformidad con el artículo 21 de la Ley Constitutiva de la Caja Costarricense de Seguro Social, los trabajadores de la Institución gozarán de un régimen especial de beneficios sociales aprobados por la Junta Directiva. Este régimen comprenderá la formación de fondos de retiro, ahorro y préstamo, un plan de seguros sociales y demás beneficios que determina la Junta Directiva.

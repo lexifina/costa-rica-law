@@ -1,0 +1,1 @@
+Artículo 47.- Es obligación del trabajador guardar la más absoluta reserva sobre los asuntos de la Institución, cuya divulgación pueda causar algún perjuicio económico o moral a la misma o a terceros. El trabajador que incumpla esta obligación será suspendido de sus labores por ocho días, o despedido, según la gravedad de la falta.

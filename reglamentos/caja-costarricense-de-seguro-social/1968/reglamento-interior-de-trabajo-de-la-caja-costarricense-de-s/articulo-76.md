@@ -1,0 +1,2 @@
+Artículo 76.- Las ausencias injustificadas computables al final de un mes calendario se sancionarán en la siguiente forma: por la mitad de una ausencia, amonestación por escrito; por una ausencia, suspensión hasta por dos días; por una y media y hasta por dos ausencias alternas, suspensión hasta por ocho días; por dos ausencias consecutivas o más de dos ausencias alternas, despido del trabajo.
+Las ausencias para efectos de su sanción, se computarán el día hábil siguiente al día último del mes calendario que comprende el período respectivo.

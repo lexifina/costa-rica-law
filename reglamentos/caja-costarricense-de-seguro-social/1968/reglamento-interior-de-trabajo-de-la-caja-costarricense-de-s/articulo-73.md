@@ -1,0 +1,1 @@
+Artículo 73.- Las ausencias se justificarán en la misma forma establecida para las llegadas tardías en el artículo 71, pero el trabajador deberá además comunicar su ausencia al jefe respectivo, por algún medio adecuado, dentro de lo posible antes de la hora indicada para el comienzo de las labores.

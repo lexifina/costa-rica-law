@@ -1,0 +1,2 @@
+Artículo 86.- Las sanciones disciplinarias serán tramitadas por el Departamento de Personal e impuestas por la Gerencia, excepción de las amonestaciones verbales y escritas que serán hechas por el jefe correspondiente.
+De toda sanción disciplinaria deberá existir constancia escrita para el trabajador y para el Departamento de Personal y ninguna podrá aplicarse sin la firma de aprobación de la Gerencia, salvo la excepción indicada en el párrafo anterior.

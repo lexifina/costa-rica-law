@@ -1,0 +1,1 @@
+Artículo 16.- Los contratos de trabajo que se celebran con personas del sexo femenino o con menores de edad garantizarán todos los derechos y ventajas que a este tipo de trabajadores reconoce el Código de Trabajo y leyes especiales conexas.

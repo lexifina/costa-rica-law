@@ -1,0 +1,1 @@
+Artículo 91.- Previa aprobación de la Oficina Legal del Ministerio de Trabajo y Bienestar Social, este Reglamento entrará en vigencia quince días hábiles después de haber sido puesto en conocimiento de los trabajadores, mediante su exposición en carteles fácilmente legibles, colocados en dos de los lugares más visibles de cada uno de los centro de trabajo de la Institución.

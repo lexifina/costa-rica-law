@@ -1,0 +1,1 @@
+Artículo 2.- En ausencia de disposiciones específicas para casos determinados, deben tenerse como supletorias de este Reglamento el Código de Trabajo, la Ley del Estatuto de Servicios Médicos y su Reglamento, y demás leyes o reglamentos conexos de la materia que estén en vigencia.

@@ -1,0 +1,1 @@
+Artículo 65.- Salvo los casos justificados, o de la comprobación efectiva del trabajo realizado, la omisión de una marca en la tarjeta, a cualesquiera de las horas de iniciación o terminación del trabajo será considerada como ausencia al correspondiente período del trabajo.

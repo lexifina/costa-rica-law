@@ -1,0 +1,1 @@
+Artículo 7.- Los representantes patronales están en la obligación de cumplir con las disposiciones de este Reglamento, y conque las leyes y reglamentos establezcan en beneficio de los trabajadores de la Institución.

@@ -1,0 +1,1 @@
+Artículo 41.- No serán consideradas como salario las prestaciones en especie no previstas en los respectivos contratos de trabajo, que en forma ocasional y a título indudablemente gratuito otorgue la institución a los trabajadores, o aquellas prestaciones que sin autorización de la Gerencia se otorguen a los trabajadores, o éstos directamente las tomen.
