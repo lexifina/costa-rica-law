@@ -1,0 +1,1 @@
+Art. 5° Los Jueces del Crimen llevarán ademas otro libro talonario en que consten las instrucciones que por riguroso turno cometan a los Jueces inferiores de su residencia, cuando aquéllos no puedan levantarlas. En el talon deberá quedar el recibo del comisionado; mas cuando la comision fuere el encargo sea debidamente evacuado.

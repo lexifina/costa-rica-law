@@ -1,0 +1,1 @@
+Art. 7° -El arreglo de los modelos necesarios para la formacion de los libros mencionados. Es cargo de los dos Magistrados especiales de 3a Instancia, bajo cuya direccion debe practicarse dicho trabajo.
