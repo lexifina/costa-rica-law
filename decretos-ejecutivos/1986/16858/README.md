@@ -13,3 +13,4 @@ Reglamento Financiación Crédito de Rehabilitación Bananera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-03-13 | la propia norma |
+| 2 | 2002-05-24 | Decreto Ejecutivo 30475 (2002-05-24) |
