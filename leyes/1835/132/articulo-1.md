@@ -1,0 +1,5 @@
+DECRETO CXXXII
+Concede al Ejecutivo la facultad que antes tenía el Jefe Político Superior de habilitar a los menores para contraer matrimonio o para administrar sus bienes (1)
+“El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+La Asamblea Constitucional del Estado libre de Costa Rica, considerando: que la facultad de suplir el consentimiento paterno para la celebración de matrimonios por hijos de familia, y para que los menores puedan administrar sus bienes, es de suma importancia y debe ejercerse con la mayor economía, tino y circunspección, ha venido en decretar y decreta:
+Art único: Esta misma facultad que hasta ahora ha sido del Jefe Político Superior, en lo sucesivo será exclusiva del Poder Ejecutivo, que la ejercerá con acuerdo del Consejo, y en los casos establecidos por las leyes. Al Consejo Representativo.- Dado en la ciudad de Alajuela a los veintiséis días del mes de Agosto de mil ochocientos treinta y cinco.
