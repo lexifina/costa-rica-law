@@ -1,0 +1,1 @@
+Artículo 2º—Modificase el gasto presupuestario para la ESPHSA para el período 2003, establecido en el artículo 3° del Decreto Ejecutivo N° 30214-H y sus reformas, publicado en La Gaceta N° 54, del 18 de marzo del 2002, fijándolo en ¢ 4.468,1 millones, producto de la adición de nuevas exclusiones al gasto presupuestario.
