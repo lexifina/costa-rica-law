@@ -14,3 +14,4 @@ Reglamento para la Autorización de Contratos de Tiempo Compartido
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-13 | la propia norma |
+| 2 | 2005-01-13 | Decreto Ejecutivo 32238 (2005-01-13) |

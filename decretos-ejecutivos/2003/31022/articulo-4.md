@@ -1,6 +1,6 @@
 Artículo 4º—Requisitos. Para la autorización de contratos de venta de tiempos compartidos, el interesado deberá presentar el formulario de solicitud que establezca el Ministerio de Economía, Industria y Comercio, acompañado con la siguiente documentación:
 1. Certificación de personería jurídica de la empresa interesada. Si se trata de una persona física, copia de su cédula de identidad.
-2. Copia certificada de la escritura constitutiva del régimen de tiempo compartido.
+2.(Derogado por el artículo 1° del decreto ejecutivo N° 32238 del 13 de enero del 2005)
 3. Copia certificada del Reglamento Interno que rige la prestación del tiempo compartido.
 4. Copia de las pólizas de seguro contra daños y siniestros totales o parciales de los bienes muebles e inmuebles destinados al servicio del tiempo compartido, para la reconstrucción, reparación o reposición del bien y para amparar a los usuarios en su integridad física y sus pertenencias.
 5. Estados financieros auditados con una antigüedad no mayor de tres meses, que incluya las notas referidas a dichos estado financieros, así como el pasivo que han generado las ventas de tiempo compartido, en una cuenta fácilmente identificable; asimismo, deberán contener detalle de los activos que se encuentren respondiendo a una garantía privilegiada (hipotecaria o prendaria), con detalle del monto y plazo.
