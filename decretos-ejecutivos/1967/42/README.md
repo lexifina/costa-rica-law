@@ -14,3 +14,4 @@ Reglamento al artículo 19 de la ley N° 3859 de 7 de abril de 1967 "Ley sobre e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1967-10-28 | la propia norma |
+| 2 | 1968-10-25 | Decreto Ejecutivo 46 (1968-10-25) |
