@@ -1,0 +1,1 @@
+Artículo 7°—Los permisos a que se refieren los artículos anteriores tendrán vigencia hasta por un año, pudiendo ser renovados por períodos iguales a juicio de la Dirección General de Transporte Automotor y siempre que se hayan cumplido los términos y condiciones en que fueron otorgados.

@@ -1,0 +1,1 @@
+Artículo 4°—-Para operar un servicio internacional de transporte remunerado de personas es necesario un permiso que otorgará la Dirección General de Transporte Automotor, la que exigirá los requisitos que estime convenientes para la seguridad y comodidad de los pasajeros que utilicen esos servicios, así como las condiciones que este Reglamento establece.

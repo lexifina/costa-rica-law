@@ -1,0 +1,1 @@
+Artículo 11.—Los conductores de dichos vehículos deberán portar licencia para su manejo autorizada en Costa Rica, ser mayores de veintiún años y tener experiencia en el manejo de ellos no menor de dos años.

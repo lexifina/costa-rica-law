@@ -1,0 +1,1 @@
+Artículo 6°—El permiso que se otorgue para la explotación del servicio internacional de transporte de personas,. sólo tendrá aplicación en el territorio nacional y en él se expresarán las tarifas, horarios, ruta y demás condiciones generales del servicio.

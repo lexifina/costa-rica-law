@@ -1,0 +1,1 @@
+Artículo 15.—La Dirección General de Transporte Automotor podrá limitar el otorgamiento de esta clase de permisos cuando, según su criterio, las empresas que lo presten sean suficientes para satisfacer la demanda de servicios existentes, a fin de evitar competencias ruinosas entre ellas.

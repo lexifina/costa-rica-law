@@ -1,0 +1,1 @@
+Artículo 12.—Es prohibido el transporte de carga o encomiendas en los autobuses que realicen el servicio internacional que aquí se regula, excepto cuando se trate del propio equipaje de los pasajeros.
