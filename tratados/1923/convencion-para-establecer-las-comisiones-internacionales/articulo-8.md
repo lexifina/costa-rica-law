@@ -1,0 +1,2 @@
+Artículo VIII
+La Comisión de Investigación se reunirá en la fecha y en el lugar que se designen en el protocolo respectivo y a falta de este en el lugar que la misma Comisión determine, y una vez instalada podrá trasladarse a los lugares que creyere propios para los fines de su cometido. Las Partes Contratantes se comprometen a poner a disposición de ella, o de sus agentes, todos los medios y facilidades necesarios para el cumplimiento de su misión.

@@ -1,0 +1,2 @@
+Artículo III
+Dentro del período de treinta días subsiguientes a la fecha en que se verificare el canje de ratificaciones de la presente Convención cada una de las Partes que la haya ratificado procederá a nombrar cinco de sus nacionales para formar una lista permanente de comisionados. Los Gobiernos podrán cambiar sus respectivos nombramientos cuando lo juzguen conveniente, dando aviso a las otras Partes Contratantes.
