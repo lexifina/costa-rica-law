@@ -1,1 +1,0 @@
-Artículo 14.-Una vez cubiertas las cuotas de exportación y consumo local, la Oficina comprará todos los excedentes que existan en el país al precio que oportunamente fije aquel Organismo. Con esta operación quedará finalizada la venta total de la cosecha al objeto de que los beneficiadores presenten sus cuentas a la Junta de Liquidaciones.

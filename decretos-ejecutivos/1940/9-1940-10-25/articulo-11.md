@@ -1,3 +1,0 @@
-Artículo 11.- La Oficina, si se hubiere fijado precio mínimo autorizará operaciones de venta en consignación, solamente en los siguientes casos:
-a) Cuando el café haya sido rematado y adjudicado en la Bolsa del Café con la advertencia de que se destinará a la exportación por haber cumplido el beneficiador o vender con todas las prescripciones exigidas para ese fin, y
-b) Cuando el exportador garantice, para los efectos de la liquidación final, el precio mínimo referido y se obligue, asimismo, a incluir en la expresada liquidación, cualquier cantidad que obtenga en demasía sobre aquel precio, según conste en la cuenta original de venta.

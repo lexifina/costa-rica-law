@@ -1,3 +1,0 @@
-Artículo 13.- Tanto el café puesto a la orden de la Oficina en virtud de lo que dispone el artículo 7°, como aquel que la misma Ilegaré a financiar, en el total o en parte de su valor, será depositado en Ios lugares y en la fecha que la Oficina indique.
-La financiación podrá llevarla a cabo la Oficina mediante concesión de anticipos o habilitaciones sobre su venta futura o con sujeción a los fines a que se destine el producto y a las normas que con tal motivo definan el préstamo. El café garantizará el anticipo o habilitación con prenda agraria-industrial de primer grado, o con las cauciones que al efecto se señalen.
-La Oficina establecerá las reglas que deban adoptarse en el régimen de los locales o establecimientos que servirán de depósito al café.

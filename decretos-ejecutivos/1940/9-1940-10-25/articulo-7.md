@@ -1,3 +1,0 @@
-Artículo 7°-Tan pronto se inicie la preparación del grano, la Oficina autorizará operaciones de compra-venta y exportación para la cuota americana, de acuerdo con el tanto por ciento que corresponda a ésta dentro del volumen en que se estime la producción total. Para obtener estas autorizaciones, el beneficiador deberá poner a la orden de la Oficina una cantidad de café equivalente al tanto por ciento complementario.
-Se exime de la anterior obligación al café que se exporte a otros mercados, fuera de los Estados Unidos.
-Las ventas para el consumo local deberán practicarse por medio de la Bolsa del Café con la previa autorización de la Oficina.

@@ -1,1 +1,0 @@
-Artículo 10.-La Oficina podrá, al iniciarse la cosecha y cada vez que lo considere necesario, fijar los precios mínimos a que puede venderse el café para la Cuota Americana o para los otros mercados de consumo, en cuyo caso las operaciones de compra-venta solamente serán autorizadas cuando el precio sea igual o superior al correspondiente mínimo fijado.
