@@ -8,3 +8,4 @@ Artículo 2°: Aprúebase los siguientes Egresos Ordinarios y Extraordinarios pa
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29497 de 2 de mayo del 2001)
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 29499 de 2 de mayo del 2001)
 (Modificado por el artículo 3 del Decreto Ejecutivo N° 29499 de 2 de mayo del 2001)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29551 de 24 de mayo del 2001)
