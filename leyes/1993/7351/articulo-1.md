@@ -2,6 +2,7 @@ CONVENCION CONTRA LA TORTURA Y OTROS TRATOS O
 PENAS CRUELES, INHUMANOS O DEGRADANTES,
 SUSCRITO EN NUEVA YORK,
 EL 4 DE FEBRERO DE 1985
+(Nota de SINALEVI: Mediante Ley N° 8459 del 12 de octubre de 2005, se aprobó el "Protocolo Facultativo de la Convención contra la Tortura y otros tratos o penas crueles, inhumanos o degradantes" , publicada en La Gaceta N° 228 del 25 de noviembre de 2005).
 ARTICULO 1.- Apruébase la Convención Contra la Tortura y Otros
 Tratos o Penas Crueles, Inhumanos o Degradantes, suscrita en Nueva York
 el 4 de febrero de 1985, cuyo texto es el siguiente:
