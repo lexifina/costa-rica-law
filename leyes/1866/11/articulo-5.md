@@ -1,0 +1,1 @@
+Art 5°. – La Administración General de Alcabalas debe mantener abierta su oficina todos los días de la semana (de lunes a sábado), desde las nueve hasta las dos de la tarde, y de las tres y media de la misma hasta las cinco.
