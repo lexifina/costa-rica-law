@@ -1,0 +1,3 @@
+Artículo 2º.- Refórmase el artículo 2º de la ley Nº 1549 de 30 de marzo de 1953, así:
+"Artículo 2º.- Autorizase al Tribunal Supremo de Elecciones para que efectúe la convocatoria y disponga lo conducente para la celebración del plebiscito, verifique el escrutinio y haga la declaratoria sobre el resultado del mismo dentro de los quince días hábiles posteriores al pronunciamiento que hiciere sobre la elección de Regidores. Asimismo se faculta para que aplique las disposiciones legales vigentes del Código Electoral en lo que no estuviere previsto por esta ley."
+Casa Presidencial.-San José, a los quince días del mes de julio de mil novecientos cincuenta y tres.
