@@ -1,0 +1,7 @@
+Articulo 3°—EL Consejo tendrá las siguientes funciones:
+a) Ejecutar las políticas administrativas que, por acuerdo de las autoridades superiores de los ministerios o del Consejo de Gobierno, le corresponda, en coordinación con Ias unidades de reforma administrativa institucionales;
+b) Coordinar con las unidades de reforma administrativa de cada Ministerio, las labores interministeriales para lograr una mayor eficiencia y eficacia de la Administración Pública Central;
+c) Estimular las actividades recreativas entre los empleados de la Administración Pública Central, a fin de lograr et mayor bienestar dé estos servidores;
+d) Contribuir al mejoramiento de las relaciones laborales en coordinación con el Ministerio de Trabajo y Seguridad Social, buscando el justo equilibrio entre el bienestar de los servidores y la buena marcha de la Administración ;
+e) Recomendar a las autoridades superiores de cada ministerio, las pautes adecuadas para resolver aquellos casos concretos que le Sean sometidos a su consideración, para el mejor funcionamiento de la Administración Publica Central; y
+f) Organizar anualmente en el mes de marzo, en coordinación con la División de Reforma Administrativa de la oficina de Planificación Nacional y Política Económica, el Congreso de la Administración Pública a efecto de analizar ampliamente temas de interés común, con la amplia participación de los funcionarios públicos. Los ministerios colaborarán con sus recursos para la realización de esta actividad.
