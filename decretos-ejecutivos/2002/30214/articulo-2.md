@@ -126,3 +126,5 @@ Empresa de Servicios Públicos de Heredia Sociedad Anónima (ESPHSA): Compra de 
 (Así adicionado por artículo 1° del Decreto Ejecutivo N° 31072 del 24 de febrero de 2003)
 Servicio Nacional de Aguas Subterráneas Riego y Avenamiento, destinada al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria.
 (Así adicionado por artículo 1° del Decreto Ejecutivo N° 31265 del 23 de junio de 2003)
+Instituto Costarricense de Pesca y Acuacultura, destinada al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria.
+(Así AMPLIADO por artículo 1° del Decreto Ejecutivo N° 31511 del 29 de octubre de 2003, publicado en La Gaceta N° 240 de 12 de diciembre de 2003.)
