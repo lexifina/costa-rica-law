@@ -1,0 +1,3 @@
+Artículo 2°-Refórmase el artículo 4° de la ley N° 837 de 20 de diciembre de 1946, el cual se leerá así:
+“Artículo 4°-Sin embargo, cuando los porcentajes que quedan indicados, produzcan en conjunto una suma anual mayor de un millón de colones, el excedente sobre esa suma pasará a formar parte de las rentas nacionales y la Caja Costarricense de Seguro Social sólo tendrá derecho a reclamar el millón de colones indicado. La liquidación se hará anualmente.
+En cumplimiento de esta disposición el Presupuesto General de la Nacional incluirá a partir de 1953, una subvención fija para la Caja Costarricense del Seguro Social, Departamento de la Habitación, de un millón de colones (¢1.000,000.00)”
