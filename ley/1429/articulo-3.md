@@ -1,0 +1,1 @@
+Artículo 3°.- En caso de venta, se hará ésta en pública subasta y por un precio no menor que el que fije el Departamento de Peritos de la Tributación Directa y su producto se destinará a financiar el traslado y la construcción de la nueva plaza de Ganado de Alajuela.

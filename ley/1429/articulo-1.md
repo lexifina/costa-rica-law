@@ -1,0 +1,4 @@
+N°1429
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA
+Artículo 1°Autorizáse a la Municipalidad del cantón central de Alajuela para donar a la Junta Administradora del Instituto de Alajuela, las fincas inscritas en el Registro de la Propiedad , Partido de esa provincia, número 27912, 15729 y 36784, de tomos 584, 730 y 779, folios 168, 410 y 513, asientos 8,9 y 2 respectivamente, el terreno que falta a la reunión de las fincas citadas para completar una manzana de superficie , que está sin inscribir, y una manzana de terreno también sin inscribir, situados todos los inmuebles indicados en el cantón y distrito primeros de la provincia de Alajuela, con el objeto de construir en dichos inmuebles el edificio del Instituto de esa provincia. La correspondiente escritura será título suficiente para que el Registro Público proceda a hacer la inscripción de esas fincas a nombre de la Junta donataria
