@@ -21,3 +21,4 @@ Establece las Reservas Indígenas Chirripó, Guaymi de Coto Brus, La Estrella y 
 | 6 | 1977-09-20 | Decreto Ejecutivo 7736 (1977-09-20) |
 | 7 | 1977-12-15 | Decreto Ejecutivo 7962 (1977-12-15) |
 | 8 | 1978-05-02 | Decreto Ejecutivo 8515 (1978-05-02) |
+| 9 | 1978-05-02 | Decreto Ejecutivo 8514 (1978-05-02) |
