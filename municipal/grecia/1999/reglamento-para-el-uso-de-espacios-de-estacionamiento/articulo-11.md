@@ -1,0 +1,1 @@
+Artículo XI-El gravamen al que se refiere el artículo 10, se anotará mediante oficio que será enviado por la Tesorería Municipal al Registro Público de La Propiedad de Vehículos. La cancelación total de estas multas será el requisito indispensable para retirar los permisos de circulación cada año, los que acompañarán los correspondientes comprobantes de infracción.

@@ -1,0 +1,1 @@
+Artículo XV.-Para velar por el cumplimiento de este Reglamento, la Municipalidad coordinará con las entidades afines que requiera, y a la vez investirá de la autoridad necesaria a los inspectores para que puedan cumplir correctamente sus funciones.

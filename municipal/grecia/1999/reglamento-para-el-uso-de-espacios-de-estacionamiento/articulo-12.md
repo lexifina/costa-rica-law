@@ -1,0 +1,1 @@
+Artículo Xll.-Quedarán sujetas a las correspondientes sanciones que indica el Código Penal y el artículo 10 del presente reglamento, aquellas personas que alteren o cometan fraude con las tarjetas de estacionamiento.

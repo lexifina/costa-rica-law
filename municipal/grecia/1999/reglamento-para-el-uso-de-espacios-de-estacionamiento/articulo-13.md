@@ -1,0 +1,1 @@
+Artículo XlIl.-El Departamento de Inspección, por medio de los inspectores tendrá a su cargo la vigilancia de este Reglamento, además ellos estarán obligados a hacer cumplir y velar por la aplicación correcta del mismo.

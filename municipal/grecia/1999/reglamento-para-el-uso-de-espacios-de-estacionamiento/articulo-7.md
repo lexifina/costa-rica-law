@@ -1,0 +1,2 @@
+Artículo VII-El pago de parqueo se hará por medio de tarjetas de estacionamiento que serán de diferente color según el tiempo válido para estacionar, ya sea una hora o más. Cada tarjeta se usará solamente una vez.
+El uso indebido de las tarjetas, o la contravención a lo establecido anteriormente será sancionado según lo establece el artículo 10 del presente reglamento. La tarjeta deberá llevar el sello de la Tesorería Municipal sin el cual será nula.

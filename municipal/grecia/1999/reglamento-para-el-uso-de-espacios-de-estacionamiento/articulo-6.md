@@ -1,0 +1,2 @@
+Artículo VI-Los vehículos que se parqueen en las zonas de estacionamiento autorizado deberán pagar una taza de cincuenta colones por hora. Esta tasa podrá ser variada por el Concejo Municipal conforme la Ley N° 6852 del 16 de febrero de 1983 y mediante el simple resello de boletas.
+(Nota: El artículo 74 del Código Municipal establece un mecanismo para la fijación de precios de los servicios que presta la Municipalidad).

@@ -1,0 +1,1 @@
+Artículo XIX.-De acuerdo a la Ley 3580 del 13 de noviembre de 1965, reformada por la Ley 6852 del 16 de febrero de 1983, se aplicará lo siguiente: enfrente de edificios públicos, o instituciones de servicio público se dejará una zona libre para el usuario.

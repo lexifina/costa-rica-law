@@ -1,0 +1,1 @@
+Artículo lII.-El horario para el funcionamiento y uso de los estacionamientos autorizados será el lunes a sábado entre las ocho y las dieciocho horas. Los domingos, días feriados y de fiesta nacional, no se exigirá el uso de las tarjetas, ni se cobrará ningún tributo por estacionamiento.

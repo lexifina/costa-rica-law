@@ -1,0 +1,1 @@
+Artículo XVl.-La Municipalidad constituirá un fondo con el producto de las tasas de estacionamiento que se generen, que se destinará al pago de los gastos administrativos y de vigilancia que se deriven de ella y para la formación de un fondo para el mantenimiento y ampliación de calles.
