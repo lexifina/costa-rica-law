@@ -1,0 +1,1 @@
+Artículo 2º.- Será función de la Comisión supervisar la tarea de ordenar, relacionar y armonizar las leyes generales permanentes vigentes y tomar todos los pasos necesarios para publicar una compilación de legislación vigente de Costa Rica y para mantenerla al día.
