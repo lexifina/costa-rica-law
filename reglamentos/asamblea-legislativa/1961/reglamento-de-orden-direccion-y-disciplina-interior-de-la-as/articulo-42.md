@@ -1,0 +1,1 @@
+Artículo 42.- En cualquier estado del debate podrán presentarse mociones de orden, en relación con el asunto que se discute. Estas mociones, una vez aceptadas por el Presidente de la Asamblea como tales, se pondrán en discusión tan pronto cese en el uso de la palabra el Diputado que la tuviera en el momento de su presentación al Directorio.

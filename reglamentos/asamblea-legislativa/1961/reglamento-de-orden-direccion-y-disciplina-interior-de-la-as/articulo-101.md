@@ -1,0 +1,1 @@
+Artículo 101.- Toda reforma total o parcial a este Reglamento, así como la interpretación de cualquiera de sus disposiciones requiere, para ser aprobada, los dos tercios de votos de la totalidad de los miembros de la Asamblea.

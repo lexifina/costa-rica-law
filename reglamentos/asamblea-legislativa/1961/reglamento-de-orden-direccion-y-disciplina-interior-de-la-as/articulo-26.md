@@ -1,0 +1,1 @@
+Artículo 26.- La organización del personal necesario para la Comisión así como el manejo de archivos y documentos pertinentes para la discusión de un proyecto, serán atendidos por el Secretario de la Comisión, con los Secretarios de la Asamblea Legislativa, en colaboración con el Director Administrativo.

@@ -1,0 +1,1 @@
+Artículo 99.- Los asuntos pendientes de resolución al finalizar una legislatura, podrán estudiarse en la siguiente a iniciativa del Poder Ejecutivo o de los Diputados. En todos estos casos, tales asuntos seguirán los trámites que aún les falten. Pasados dos años, a partir de su iniciación, los negocios se tendrán como no presentados y, sin más trámite, se ordenará archivarlos.

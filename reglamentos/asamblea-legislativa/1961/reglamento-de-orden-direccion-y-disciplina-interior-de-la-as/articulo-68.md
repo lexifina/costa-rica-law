@@ -1,0 +1,1 @@
+Artículo 68.- Tienen derecho los Diputados de pedir a la Asamblea que acuerde llamar a cualquiera de los Ministros de Gobierno, sea para interpelarlo o para que dé informe o explicaciones sobre los asuntos que se discuten. La moción que se presente para el caso, es una moción de orden.

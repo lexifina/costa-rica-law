@@ -1,0 +1,1 @@
+Artículo 84.- Ningún Diputado que haya estado en la discusión de un asunto, puede retirarse cuando vaya a procederse a la votación del mismo, y está obligado a dar su voto, afirmativo o negativo. La inobservancia de esta disposición acarrea la pérdida de la dieta correspondiente de la sesión en que se produzca.

@@ -1,0 +1,1 @@
+Artículo 12.- Cuando los Prosecretarios sustituyan a los Secretarios, tendrán las mismas atribuciones y los mismos deberes que éstos. Igualmente los tendrán los Secretarios ad hoc, en las oportunidades en que ocupen aquellos puestos.

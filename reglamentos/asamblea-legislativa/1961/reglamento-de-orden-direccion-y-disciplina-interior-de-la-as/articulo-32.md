@@ -1,0 +1,1 @@
+Artículo 32.- En la tramitación de los asuntos que deban resolver las Comisiones, se seguirán las mismas normas que este Reglamento establece para las sesiones de la Asamblea, en lo que fueren aplicables, y siempre que no se opongan a las disposiciones expresas que regulan el procedimiento de trabajo en las Comisiones.

@@ -1,0 +1,1 @@
+Artículo 37.- Cada proyecto de ley que recomiende una Comisión deberá hacer referencia en sus considerandos, al número y fecha del Diario Oficial en el cual se publicó el proyecto original respectivo. Si no ha sido publicado debe indicarse así.

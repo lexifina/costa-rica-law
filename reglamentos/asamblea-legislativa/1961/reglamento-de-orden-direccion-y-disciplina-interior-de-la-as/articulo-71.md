@@ -1,0 +1,1 @@
+Artículo 71.- Cuando se reforma una ley, al emitirse la correspondiente Forma de Decreto, se incluirá dentro de ella el texto completo de la ley tal como queda reformada. La disposición de este artículo no se aplicará cuando, a juicio del Presidente de la Asamblea, el texto de la ley que se reforma sea muy extenso.

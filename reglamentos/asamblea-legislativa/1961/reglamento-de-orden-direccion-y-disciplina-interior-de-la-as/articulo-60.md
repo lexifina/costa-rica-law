@@ -1,0 +1,3 @@
+CAPITULO X
+De las Mociones de Forma y de la Comisión de Redacción
+Artículo 60.- Las mociones de forma presentadas por los Diputados en el curso de la discusión de un proyecto de ley, serán pasadas por la Presidencia de la Asamblea a conocimiento de la Comisión de Redacción la cual, dentro de las próximas 24 horas, las acogerá o rechazará según su criterio. Si la moción es acogida, será incorporada al proyecto antes de ser aprobado en Tercer Debate. Si la moción de forma es rechazada por la Comisión, el Diputado proponente tiene derecho de insistir sobre ella en el momento de discutirse el asunto en Tercer Debate.

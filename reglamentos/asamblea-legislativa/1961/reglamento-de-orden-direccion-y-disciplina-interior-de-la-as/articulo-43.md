@@ -1,0 +1,1 @@
+Artículo 43.- Si en una comisión fuere rechazada una moción de fondo, presentada a tiempo, el Diputado proponente tiene el derecho a volver a presentarla a la Asamblea, en Primer Debate, si ésta se constituye en Comisión General para ese efecto, a solicitud del mismo Diputado.

@@ -1,0 +1,1 @@
+Artículo 41.- Las mociones que estén destinadas a modificar un proyecto de ley en cuanto a la forma, caben en cualquiera de los debates y pasarán automáticamente a la Comisión de Redacción para que sean incorporadas al proyecto de que se trate, si así lo determinare dicha Comisión, antes de que sea votado en Tercer Debate.

@@ -1,0 +1,1 @@
+Artículo 79.- En la votación ordinaria los Diputados expresarán su voto afirmativo poniéndose de pie, y el negativo, permaneciendo sentados; mientras la Secretaría cuenta los votos, conservarán los votantes su respectiva posición.

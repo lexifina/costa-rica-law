@@ -1,0 +1,1 @@
+Artículo 49.- Si treinta minutos después de la hora fijada para iniciar una sesión no hubiere quórum, ésta se pospondrá para la siguiente fecha. La Secretaría tomará la nómina de los Diputados presentes, a fin de que sea acreditada su asistencia, para fines de pago de las dietas.

@@ -1,0 +1,1 @@
+Artículo 103.-Anualmente se fijará en el Presupuesto de la Asamblea una partida para la adquisición de libros y documentos que se estimen pertinentes, y para lo cual el Directorio nombrará cada año, en el mes de mayo, una Comisión Especial integrada por tres Diputados, para que escoja y ordene la compra de esos libros.

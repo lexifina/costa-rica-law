@@ -1,0 +1,1 @@
+Artículo 24.- Las Comisiones celebrarán sesiones los días martes y jueves a las quince horas, los sábados a las nueve horas y extraordinariamente cuando las convoque el Presidente de la respectiva Comisión.

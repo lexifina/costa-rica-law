@@ -1,0 +1,1 @@
+Artículo 58.-Los proyectos de ley que consten de más de diez artículos podrán ser discutidos y aprobados por libros, títulos, capítulos, secciones o párrafos en que los dividieron sus autores o las Comisiones Permanentes que rindieron informe.

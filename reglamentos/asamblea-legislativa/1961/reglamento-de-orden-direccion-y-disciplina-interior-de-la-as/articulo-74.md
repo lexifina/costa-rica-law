@@ -1,0 +1,1 @@
+Artículo 74.- Los documentos o comunicaciones que deban ser conocidos por la Asamblea Legislativa, y cuya presentación está sujeta a término fijo, se entregarán directamente a uno de los Secretarios del Directorio o en la oficina de la Dirección Administrativa, bajo razón de recibo que indique la hora y fecha.

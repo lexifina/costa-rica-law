@@ -1,0 +1,2 @@
+Artículo 2.- Habrá también un Vicepresidente y dos Prosecretarios que reemplazarán, en sus faltas temporales, al Presidente y los Secretarios, respectivamente; en ausencia del Vicepresidente presidirá el Primer Secretario y en ese mismo orden serán suplidos, en sus faltas temporales, todos los miembros del Directorio.
+En el caso de que no asista alguno de los miembros del Directorio, presidirá el Diputado de mayor edad entre los presentes, quien designará, ad-hoc, a los Secretarios, Primero y Segundo.

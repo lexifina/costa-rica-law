@@ -1,0 +1,1 @@
+Artículo 67.- En cualquier momento del debate los Diputados pueden leer o pedir al Presidente, que uno de los Secretarios lea cualquier documento o ley que tenga relación con el punto que se discute. Si el Presidente considera que no es adecuada la petición, el interesado podrá apelar de lo resuelto.

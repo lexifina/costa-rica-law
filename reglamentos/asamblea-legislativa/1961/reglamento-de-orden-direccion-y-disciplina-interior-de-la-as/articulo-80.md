@@ -1,0 +1,2 @@
+Artículo 80.- En la votación nominal, cada Diputado expresará su voto afirmativo con la palabra "SI", y el negativo con la palabra "NO". La Secretaría recibirá los votos, los cuales se consignarán en el acta con la especificación del nombre de cada votante.
+El Diputado que lo desee puede razonar su voto por escrito o verbalmente, limitándose al fondo del asunto, sin examinar las incidencias habidas en la discusión ni hacer refutaciones o réplicas. En el razonamiento verbal de su voto, no podrá un Diputado hacer uso de la palabra por más de diez minutos.

@@ -1,0 +1,7 @@
+Artículo 76.-Cuando se trate de modificar un Presupuesto vigente, ordinario o extraordinario, se procederá en la siguiente forma:
+a) No se le dará curso a mociones destinadas a suprimir, trasladar o aumentar partidas que no estén específicamente comprendidas en el proyecto de modificación que se debate.
+b) La Asamblea podrá suprimir o rebajar cualesquiera de las partidas comprendidas en el proyecto en debate, pero sólo en el tanto comprendido en el propio proyecto.
+c) También puede la Asamblea por medio de moción, aumentar una partida contenida en el proyecto de modificación al Presupuesto, ya sea mediante el traslado de fondos destinados a crear o
+ampliar otra partida contenida en el mismo proyecto, o ya sea señalando una nueva renta, con certificación de la efectividad fiscal de la misma, que deberá extender la Contraloría General de la República.
+d) Al suprimir o rebajar las partidas propuestas en el proyecto de modificación, pero no las que existan especificadas en el Presupuesto vigente, la Asamblea puede formar nuevas partidas para cubrir gastos no comprendidos en el Presupuesto que se trata de modificar, o bien, para aumentar partidas vigentes no comprendidas en el proyecto de modificación.
+e) Cuando, encontrándose en sesiones extraordinarias, la Asamblea haya sido convocada para conocer de la modificación específica de uno o varios artículos o incisos de un Presupuesto vigente, los Diputados no podrán presentar mociones que se refieren a artículos o incisos no comprendidos en el Proyecto objeto de la convocatoria.

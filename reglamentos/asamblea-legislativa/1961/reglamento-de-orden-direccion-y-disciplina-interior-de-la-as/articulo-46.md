@@ -1,0 +1,1 @@
+Artículo 46.- Un proyecto de ley aprobado en Primer Debate por la Asamblea, entrará como base de discusión para segundo debate. El día de este debate será fijado por el Presidente de la Asamblea. Los segundos y terceros debates de los proyectos de ley, tendrán prioridad sobre cualquier otro asunto en la Asamblea después del Capítulo de Correspondencia.
