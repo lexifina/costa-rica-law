@@ -1,1 +1,0 @@
-Articulo 20.—En caso de inopia de candidatos, la Comisión podrá adjudicar la beca a un funcionario interino que tenga como mínimo seis meses en su cargo, siempre que reúna los requisitos exigidos para el disfrute de la misma.

@@ -1,1 +1,0 @@
-Artículo 7—La Comisión se reunirá ordinariamente dos veces por mes y extraordinariamente cuando las circunstancias lo ameriten. El Ministerio a través del Departamento de Capacitación aportará el personal administrativo encargado del trámite de becas y además suministrará el local, equipo y materiales necesarios para su financiamiento.

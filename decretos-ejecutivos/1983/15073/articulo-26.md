@@ -1,1 +1,0 @@
-Articulo 26.—E1 becario está obligado a enviar al Departamento de Capacitación de loa informes parciales y finales que por ley debe presentar al Ministerio de Planificación y Política Económica y a la Dirección General del Servicio Civil. Cuando dichos informes no satisfagan, deberá presentarlos en las fórmulas que para tal efecto ha elaborado el citado Departamento.

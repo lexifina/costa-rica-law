@@ -1,1 +1,0 @@
-Artículo 27.—Al regresar el becario y una vez incorporado a sus labores está obligado, en un plazo DO mayor de un mes calendario, a ofrecer una charla o disertación ante sus compañeros de Dirección o disciplina sobre la capacitación recibida y su aplicación práctica en el país; en ella deberá estar un miembro de la Comisión.

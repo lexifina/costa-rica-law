@@ -1,1 +1,0 @@
-Articulo 8—La Comisión, al conocer las ofertas de becas, enviará comunicación a todas las Direcciones Generales, Regionales. Agencias de Extensión Agrícola y a UDEMAG para su conocimiento y la divulgación correspondiente, indicando las características de la beca, lugar, hora y fecha límite de recepción de solicitudes.

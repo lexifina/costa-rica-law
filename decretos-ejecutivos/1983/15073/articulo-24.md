@@ -1,1 +1,0 @@
-Articulo 24.—Con el fin de tener completo el archivo individual de cada becario, esta está obligada a notificar a la Comisión el día. hora y ruta de su viaje y al regresar deberá de inmediato reportar el día de su regreso.
