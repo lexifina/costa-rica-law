@@ -1,0 +1,1 @@
+Artículo 4º—El monto del vale de caja chica, se mantiene en la suma de ¢50.000,00 (Cincuenta mil colones netos) y será incrementado de acuerdo al índice de inflación a diciembre del año anterior (índice de precios al consumidor que determine la Dirección de Estadística y Censos, del Ministerio de Economía).
