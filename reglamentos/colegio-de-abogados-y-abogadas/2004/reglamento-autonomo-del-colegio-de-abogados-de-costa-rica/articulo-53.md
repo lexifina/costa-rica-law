@@ -1,0 +1,1 @@
+Artículo 53.—Integración. Este Tribunal estará integrado por cinco personas agremiadas propietarias y tres suplentes, de reconocida trayectoria profesional y solvencia moral, quienes durarán en su cargo tres años, pudiendo ser reelectos en forma indefinida.

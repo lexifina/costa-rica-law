@@ -1,0 +1,3 @@
+Artículo 67.—Cuentas bancarias y giro de fondos. El Colegio mantendrá las cuentas bancarias y fondos de inversión que acuerde la Junta Directiva, los cuales deberán invertirse en los bancos del Estado.
+Para girar contra las referidas cuentas, se requerirá de la firma de la Presidencia y la Tesorería, o –en ausencia de éste último– de la vocalía I, previa expedición y verificación del cheque u orden de pago por parte del Departamento de Finanzas y Presupuesto, dejando constancia de la partida presupuestaria de la que provengan los fondos erogados.
+Todo egreso se hará nominalmente en favor de la persona física o jurídica que corresponda. Los documentos que lo amparen serán conservados por el Departamento de Finanzas y Presupuesto.

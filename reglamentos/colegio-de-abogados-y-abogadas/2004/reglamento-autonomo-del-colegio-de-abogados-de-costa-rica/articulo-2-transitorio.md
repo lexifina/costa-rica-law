@@ -1,0 +1,2 @@
+Transitorio segundo.—La Dirección Ejecutiva y el Departamento de Finanzas y Presupuesto estarían autorizados, sin necesidad de nuevo acuerdo de Asamblea General, para redistribuir el presupuesto institucional, únicamente en cuanto fuere necesario para ajustarlo a la nueva estructura orgánica y nomenclatura creada por este Reglamento, sin aumentar o reducir los montos globales correspondientes.
+Aprobado en asamblea general extraordinaria celebrada el 26 de febrero de 2004 así como su publicación en el Diario Oficial La Gaceta.

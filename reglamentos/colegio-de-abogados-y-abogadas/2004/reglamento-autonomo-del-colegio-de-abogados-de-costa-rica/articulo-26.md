@@ -1,0 +1,1 @@
+Artículo 26.—Funciones del o la Pro-Secretaría. El o la Prosecretaría prestará, cuando hubiere recargo de trabajo, a quien ejerza la Secretaria, el auxilio que la Presidencia determine, y la sustituirá en caso de ausencia temporal. Se encargará de la coordinación por parte de la Junta Directiva de las revistas del Colegio.

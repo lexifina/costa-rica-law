@@ -1,0 +1,1 @@
+Artículo 54.—Responsabilidad. Dicho Tribunal, así como las personas que lo conforman, responderán únicamente ante la Asamblea General, y tendrán las obligaciones y facultades que el Reglamento de Elecciones correspondiente le indique. Dicho Reglamento deberá ser aprobado por la Asamblea General.

@@ -1,0 +1,1 @@
+Artículo 5º—Escudo y sellos. El escudo del Colegio se describe del siguiente modo: Escudo circular de gules, las tablas de la Ley de Plata, de Azur la bordura fileteada de sable, de plata la leyenda "Colegio de Abogados de la República de Costa Rica". La Junta Directiva definirá los sellos que utilizará el Colegio.

@@ -1,0 +1,1 @@
+Artículo 74.—Insuficiencia de la partida de auxilios. En el evento de recibirse númerosas peticiones de auxilio y de que la previsión presupuestaria respectiva fuere insuficiente para atenderlas íntegramente, se distribuirá a prorrata y en consideración a la urgencia y características del caso, de todo lo cual se dejará constancia en el acuerdo respectivo.

@@ -1,0 +1,1 @@
+Artículo 16.—Organigrama institucional. Existe un organigrama institucional oficial, aprobado por la Asamblea General, y que es complemento de este Reglamento. En él se representa gráficamente la distribución jerárquica de las dependencias del Colegio.

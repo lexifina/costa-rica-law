@@ -1,0 +1,1 @@
+Artículo 60.—Régimen jurídico. Las comisiones ordinarias y especiales, se ajustarán en su funcionamiento interno a las disposiciones para los órganos colegiados en la Ley General de la Administración Pública.

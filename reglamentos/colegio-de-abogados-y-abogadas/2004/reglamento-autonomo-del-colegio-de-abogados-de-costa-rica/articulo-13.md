@@ -1,0 +1,2 @@
+Artículo 13.—Retiro. Cuando una persona agremiada disponga retirarse voluntariamente del Colegio, lo comunicará a la Junta Directiva, quien acogerá la gestión.
+En este caso, se girará a la persona solicitante las cantidades y utilidades mantenidas en el fondo de mutualidad, a la brevedad posible. La persona que, con posterioridad a su retiro, decida reingresar al Colegio, deberá gestionar nuevamente su incorporación.

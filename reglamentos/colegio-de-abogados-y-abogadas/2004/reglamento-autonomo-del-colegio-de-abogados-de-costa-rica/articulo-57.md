@@ -1,0 +1,4 @@
+CAPÍTULO DECIMONOVENO
+De las comisiones
+Artículo 57.—Integración. Es potestad de la Presidencia de la Junta Directiva integrar comisiones ordinarias con carácter permanente y comisiones especiales con carácter temporal, a fin de desarrollar actividades de interés para el Colegio y sus personas agremiadas, debiéndose garantizar en forma equitativa la representabilidad de ambos sexos.
+Las comisiones ordinarias se regirán por lo dispuesto en este mismo Reglamento y las especiales serán constituidas por la Presidencia de la Junta Directiva cada vez que lo estime pertinente. La integración, duración en los cargos, competencia y demás características de las comisiones se establecerán por acuerdo de la Junta Directiva. Las personas integrantes de todas las comisiones deberán ser juramentadas por la persona que ejerza la Presidencia, de previo al inicio de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 29.—Remuneración. Solamente devengará remuneración el o la Fiscal, quien deberá desempeñar ese cargo con una dedicación no inferior a la media jornada laboral. El estipendio será el que acuerde la Asamblea General, en el presupuesto de gastos del Colegio.

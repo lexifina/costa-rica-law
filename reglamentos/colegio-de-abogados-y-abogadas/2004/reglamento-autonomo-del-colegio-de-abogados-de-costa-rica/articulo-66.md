@@ -1,0 +1,1 @@
+Artículo 66.—Pago de cuotas de membresía. El pago de las cuotas mensuales que deban hacer las personas agremiadas se realizará por los medios que acuerde la Junta Directiva. Todos los pagos por este concepto deberán efectuarse a más tardar el último día hábil de cada mes.

@@ -1,0 +1,1 @@
+Artículo 61.—Rendición de cuentas. Las comisiones ordinarias presentarán sus informes anualmente a la Junta Directiva. Las especiales rendirán su informe al concluir sus labores, salvo que dicho plazo fuere mayor a un año, en cuyo caso deberán presentar reportes de avance al cumplirse cada año de labores.

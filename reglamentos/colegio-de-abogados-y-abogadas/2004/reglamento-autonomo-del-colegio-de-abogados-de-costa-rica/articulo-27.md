@@ -1,0 +1,1 @@
+Artículo 27.—Funciones de los o las vocales. En caso de impedimento o falta accidental de las personas que ejerzan la Fiscalía, Tesorería, Secretaria y Pro-secretaría, la Presidencia designará a quien ejerza cargo de vocal para que haga las veces de la persona ausente.

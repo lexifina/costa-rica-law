@@ -1,0 +1,2 @@
+Artículo 37.—Otorgamiento de caución. Las personas titulares del Departamento Unidad Administrativa de Finanzas y Presupuesto, la Sección de Contabilidad y Presupuesto, la Sección de Caja General y Cobros deberán rendir caución, por cuenta del Colegio, para el desempeño de sus funciones.
+La garantía se otorgará por medio de póliza de fidelidad del Instituto Nacional de Seguros, por un monto que señalará la Junta Directiva y que en caso de estimarse conveniente será revisado para ajustarse a los cambios de la economía nacional.

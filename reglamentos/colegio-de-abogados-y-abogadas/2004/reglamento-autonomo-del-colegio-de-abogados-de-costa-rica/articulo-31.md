@@ -1,0 +1,1 @@
+Artículo 31.—Aplicación supletoria. Se autoriza a la Junta Directiva formular un Manual de Procedimientos Interno, para regular la operatividad de las sesiones de Junta Directiva. En lo no dispuesto aquí se aplicarán a la Junta Directiva las disposiciones sobre órganos colegiados de la Ley General de la Administración Pública.

@@ -1,0 +1,3 @@
+CAPÍTULO SEGUNDO
+Del Régimen de Seguridad Social y Subsidios
+Artículo 68.—Administración del régimen. La Junta Directiva será responsable de estudiar y proponer a la asamblea general, y esta la única autorizada para aprobarlas, todas las medidas necesarias para administrar, fortalecer y actualizar el régimen de seguridad social del Colegio, por medio de la suscripción de las pólizas de seguro a que se refiere la Ley Orgánica, así como del establecimiento de los fondos de previsión, fideicomiso o cualquier otro procedimiento autorizado por la ley. El Régimen de Seguridad Social se regulará adicionalmente mediante un Reglamento de Seguridad Social que deberá estudiar y proponer la Junta Directiva a la Asamblea General.

@@ -1,0 +1,1 @@
+Artículo 65.—Recaudación de fondos. El Tesorero de la Junta Directiva, por medio del Departamento de Finanzas y Presupuesto recaudará y registrará todos los fondos pertenecientes al Colegio y expedirá un recibo debidamente sellado por la Tesorería. En el caso de los ingresos recaudados electrónicamente los recibos se emitirán cuando sean requeridos por el interesado.

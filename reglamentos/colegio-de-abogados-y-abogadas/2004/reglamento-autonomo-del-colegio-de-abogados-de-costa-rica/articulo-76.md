@@ -1,0 +1,1 @@
+Artículo 76.—Régimen disciplinario de las personas agremiadas. El régimen disciplinario de las personas agremiadas, se complementará mediante el Código de Ética Profesional Jurídica aprobado por la Asamblea General.
