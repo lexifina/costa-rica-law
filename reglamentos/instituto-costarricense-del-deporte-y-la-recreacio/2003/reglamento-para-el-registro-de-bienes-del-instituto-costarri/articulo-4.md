@@ -1,0 +1,1 @@
+Artículo 4º—Formularios. La Proveeduría Institucional contará con los formularios correspondientes para tramitar las altas de bienes, asignación, reasignación, préstamo, concesión y baja de bienes. Asimismo, las diferentes dependencias administrativas del Instituto podrán contar con otros formularios internos necesarios para dichos trámites.

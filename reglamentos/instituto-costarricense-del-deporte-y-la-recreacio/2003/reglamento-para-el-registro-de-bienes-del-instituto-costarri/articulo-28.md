@@ -1,0 +1,1 @@
+Artículo 28.—Bajas por pérdidas de bienes con culpa o dolo en poder de funcionarios. En caso de bajas de bienes con culpa o dolo imputable a los funcionarios, además de los requisitos señalados en el artículo 27 y obligaciones estipuladas en el artículo 13 de este Reglamento, deberá incluirse en el expediente administrativo que se levante al efecto, el valor de mercado del bien.

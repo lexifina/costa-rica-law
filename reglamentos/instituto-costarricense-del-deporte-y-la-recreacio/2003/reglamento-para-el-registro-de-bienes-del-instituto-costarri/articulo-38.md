@@ -1,0 +1,2 @@
+Artículo 38.—Instituciones susceptibles a recibir donaciones. Las donaciones se podrán otorgar a centros o instituciones de educación del Estado, aso como a instituciones privadas.
+La distribución se hará en forma equitativa dándole preferencia a las instituciones de zonas rurales o marginales que más lo necesiten. Los beneficiados solo podrán recibir una donación al año, con excepción de las instituciones del Estado que así lo requieran para la realización de sus fines.
