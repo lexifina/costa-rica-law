@@ -1,0 +1,2 @@
+Art. 4°.-Se derogan los artículos 2° del decreto n° 7 de 6 de octubre de 1882 y 109, 110, 111 y 112 del Código Penal; y queda reformado el 1° del decreto de 11 de mayo de 1880.
+Al Poder Ejecutivo – Dado en el salón de sesiones del Palacio Nacional, en San José a los diez y ocho días del mes de abril de mil ochocientos ochenta y siete. AND. SAENZ, Presidente. -M. GUEVARA, Secretario. Alajuela, á los veintiún días del mes de abril de mil ochocientos ochenta y siete. Ejecútese. BERNARDO SOTO. -El Secretario de Estado en el Despacho de Justicia, -CLETO GONZÁLEZ VÍQUEZ.
