@@ -1,0 +1,2 @@
+Artículo 14.- Para efectos de la fijación de la tasa de remuneración del aprendiz, el INA dividirá en tres períodos la duración total de los diversos cursos, debiendo pagarse al aprendiz el 50% del salario promedio para la ocupación objeto de aprendizaje, durante el primer período; el 75% durante el segundo y el 100% durante el último.
+El salario promedio a que se refiere este artículo será fijado por el Ministerio de Trabajo y Bienestar Social.

@@ -1,0 +1,1 @@
+Artículo 2º.- La autoridad competente en materia de aprendizaje en su organización y supervisión, para ocupaciones en todos los sectores de la actividad económica, es el Instituto Nacional de Aprendizaje (INA), quien dentro de este campo actuará siempre en estrecha colaboración con las empresas.

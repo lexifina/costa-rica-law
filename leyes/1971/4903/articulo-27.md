@@ -1,0 +1,1 @@
+Artículo 27.- Esta ley respeta y aprueba para todos los efectos, los programas de Formación Profesional, tanto de práctica industrial como de coordinación con la industria, creados por el Ministerio de Educación Pública, quien a su vez dictará los reglamentos pertinentes a esos casos programas educativos en los cuales participen las empresas.

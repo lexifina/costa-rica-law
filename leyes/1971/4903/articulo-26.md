@@ -1,0 +1,1 @@
+Artículo 26.- Las condiciones y los efectos del contrato de aprendizaje y las medidas de control y ejecución, serán establecidas mediante un Reglamento cuya elaboración hará el Instituto Nacional de Aprendizaje para su aprobación respectiva por el Ministerio de Trabajo y Bienestar Social.
