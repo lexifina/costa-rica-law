@@ -1,0 +1,1 @@
+Artículo 6°-Autorízase al Consejo Superior de Defensa Social para que con base en la renta que se establece en esta ley, gestione en el país o en el exterior, un empréstito que se llamará "Empréstito para financiar la Reforma Penitenciaria" .
