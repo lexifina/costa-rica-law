@@ -1,0 +1,1 @@
+Artículo 4º—El Ministerio actualizará y ajustará el precio de venta de las plántulas en enero de cada año, según el índice de precios al consumidor del MEIC; estableciéndose el nuevo precio vía resolución administrativa, la cual deberá publicarse en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 2º—Los ingresos por concepto de venta de la producción de plántulas en el Vivero, serán depositados en el Fondo Forestal, de acuerdo con lo establecido en el artículo 39 de la Ley Forestal Nº 7575 del 16 de abril de 1996.
