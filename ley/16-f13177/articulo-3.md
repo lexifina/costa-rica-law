@@ -1,0 +1,1 @@
+Art 3°.- Del depósito que se haga en la Ciudad de Cartago se surtirá todo aquel partido, el del Paraíso y el de Terraba, del de esta Ciudad el partido de ella y el de Escazú,: del de Heredia todo el partido de este nombre: del de Alajuela todo el partido, y del Guanacaste todo el Departamento de Nicoya.
