@@ -1,0 +1,1 @@
+Artículo 3. Toda persona que haciendo uso de este reglamento técnico encuentre errores tipográficos, ortográficos, inexactitudes o ambigüedades, podrá notificarlo sin demora al Ministerio de Obras Públicas y Transporte, aportando si fuese posible, la información correspondiente para que sea efectuada las investigaciones pertinentes y tome las previsiones correspondientes.

@@ -1,0 +1,1 @@
+Artículo 2. El Ministerio de Obras Públicas y Transporte en coordinación con otras dependencias del Estado se encargará de suministrar los documentos necesarios que comprueben el cumplimiento del presente decreto así como de la actualización permanente de este reglamento técnico, procediendo en su caso a la modificación del presente Decreto.
