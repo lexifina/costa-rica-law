@@ -19,6 +19,8 @@ p) Entrega de cheques Fabián Jiménez *
 q) Archivo de documentación en expediente . Fabián Jiménez *
 r) Retención mensual impuesto sobre la renta Fabián Jiménez *
 s) Conciliación bancaria. Jerry Araya *
-t) Arqueos Jerry Araya *
+t) Arqueos Carlos Chavarría Salas*
 u) Preparación de informe liquidación fondo Fabián Jiménez *
 *o el funcionario que lo sustituya
+En lo sucesivo la designación de los funcionarios responsables de cada proceso, se hará por acuerdo del Tribunal Supremo de Elecciones.
+(Así reformado por Decreto del Tribunal Superior de Elecciones N° 1 de 12 de febrero de 2003).

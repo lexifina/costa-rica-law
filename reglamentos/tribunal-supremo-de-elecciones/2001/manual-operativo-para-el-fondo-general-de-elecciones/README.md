@@ -15,3 +15,4 @@ Manual operativo para el fondo general de elecciones.
 | --- | --- | --- |
 | 1 | 2001-08-17 | la propia norma |
 | 2 | 2002-11-21 | Reglamento 14 (2002-11-21) |
+| 3 | 2003-02-12 | Reglamento 1 (2003-02-12) |
