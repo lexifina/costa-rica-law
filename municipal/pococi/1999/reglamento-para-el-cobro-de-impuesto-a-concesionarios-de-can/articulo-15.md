@@ -1,1 +1,0 @@
-Artículo 15.—Vencido el plazo indicado en el artículo anterior sin que hubiere oposición alguna, la Municipalidad por acuerdo del Concejo deberá dictar una nueva resolución confirmatoria de la anterior, en el cual se fije el tributo y que tendrá carácter de resolución definitiva.
