@@ -1,0 +1,1 @@
+Art. 2°-En remuneración de los servicios de que habla el artículo anterior, el Poder Ejecutivo podrá conceder á dichas compañías la exención de los derechos de puerto y la rebaja de un cinco por ciento en el valor de los derechos de Aduana correspondientes á las mercaderías que se importen ó exporten por sus respectivos buques.

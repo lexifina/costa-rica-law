@@ -1,0 +1,2 @@
+Art. 3°-El presente Decreto se someterá al conocimiento de la Representación Nacional en la siguiente Legislatura ordinaria.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los trece días del mes de enero de mil ochocientos ochenta y cinco.-JN. M. CARAZO, Presidente.-VICENTE C. SEGREDA, Secretario.-Puntarenas, á catorce de enero de mil ochocientos ochenta y cinco.-Ejecútese.-P. FERNÁNDEZ.-Palacio Nacional. San José, á quince de enero de mil ochocientos ochenta y cinco.-El Secretario de Estado en el Despacho de Marina.-BER- NARDO SOTO.
