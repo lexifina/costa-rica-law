@@ -1,0 +1,5 @@
+DECRETO 210
+El Jefe Supremo del Estado libre de Costa Rica.
+Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+La Asamblea Constitucional del Estado libre de Costa Rica, considerando que la pronta ejecución enreos por delitos de hurto, en cuantías menores será una medida saludable que pondrá término á la perpetración escandalosa que se experimenta: que esto no podrá lograrse sin facultar á los Alcaldes Constitucionales para juzgar y terminar en ciertos casos, lo mismo que ampliar á los Jueces e primera instancia la facultad concedida en el artículo 38 de la ley de 16 de enero de 1826, en cuanto habla de hurtos: observando así mismo, que las condenas de prisión, bien lejos de producir los efectos saludables de corregir á los delincuentes, los causa de contrario, fomentando la holgazanería con gravamen del público en proporcionar alimentos á los presos, ha tenido á bien decretar y decreta.
+Art1°.- Facúltase á los Alcaldes Constitucionales para juzgar y terminar verbalmente en delitos de hurto que no excedan de veinticinco pesos, aplicables al fondo de propios del pueblo respectivo.
