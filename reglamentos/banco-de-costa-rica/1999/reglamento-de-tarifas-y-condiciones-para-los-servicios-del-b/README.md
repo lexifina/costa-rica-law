@@ -14,3 +14,4 @@ Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica (
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-25 | la propia norma |
+| 2 | 2000-01-25 | Ley 8 |
