@@ -1,0 +1,1 @@
+Articulo 2°—El Instituto de Desarrollo Agrario deberá llevar a cabo dentro de los seis meses siguientes a la vigencia de este Decreto, los trámites pertinentes ante la notaría del Estado, a efecto de que se proceda a la confección de las respectivas escrituras públicas de propiedad de los inmuebles que le fueron asignados.
