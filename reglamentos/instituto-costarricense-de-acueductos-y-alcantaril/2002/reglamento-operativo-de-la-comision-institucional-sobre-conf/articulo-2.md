@@ -1,0 +1,1 @@
+Artículo 2°—Los miembros de la comisión actuarán con independencia de criterio y su posición no afectara su relación laboral con el Instituto y serán nombrados por un periodo de un año, con posibilidad de ser prorrogados por un periodo igual, y asi sucesivamente. Cada periodo iniciará la primera quincena del mes de enero de cada año.

@@ -1,0 +1,1 @@
+Articulo 10.—Recomendación de la Comisión. La Comisión, como órgano consultivo, se abocara al análisis del expediente administrativo recibido por la Gerencia, evaluara la conveniencia institucional de la recomendación dictada por el órgano director y en un plazo no mayor a ocho días naturales, emitirá su criterio no vinculante ante la Gerencia General del Instituto.
