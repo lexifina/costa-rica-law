@@ -1,9 +1,4 @@
-ARTÍCULO 185.- Notificación automática.
-La parte que, en su primer escrito, o prevenida al efecto por el
-juez, no hiciere señalamiento de casa u oficina en donde atender
-notificaciones, quedará notificada de las resoluciones posteriores con sólo
-que transcurran las veinticuatro horas después de dictadas. Igual
-consecuencia se producirá si el lugar señalado fuere impreciso o incierto,
-o ya no existiere.
-Lo dicho en este artículo será aplicable al rebelde, una vez
-notificada la resolución que lo declara como tal.
+ARTÍCULO 185.- Notificación automática.(*)
+La parte que, en su primer escrito, o prevenida al efecto por el juez, no hiciere señalamiento de casa u oficina en donde atender notificaciones, quedará notificada de las resoluciones posteriores con sólo que transcurran las veinticuatro horas después de dictadas. Igual consecuencia se producirá si el lugar señalado fuere impreciso o incierto, o ya no existiere.
+Lo dicho en este artículo será aplicable al rebelde, una vez notificada la resolución que lo declara como tal.
+(*)(Interpretado auténticamente, por ley N° 8125 de 16 de agosto del 2001, en el sentido de que: tratándose de la notificación automática prevista en este artículo, cuando el lugar señalado para notificaciones sea incierto, impreciso o ya no exista, el plazo para interponer el recurso empezará a correr a partir de la fecha que exprese el acta del notificador, en la que da fe de tal situación.)
