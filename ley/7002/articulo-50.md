@@ -1,0 +1,1 @@
+Artículo 50.- Las armas de colección, entendiéndose por tales las que tengan algún valor histórico o estético, con no menos de cuarenta años de construidas, deberán inscribirse en el Departamento en reforma individual o conjunta.

@@ -1,0 +1,1 @@
+Artículo 13.- El Ministerio será el único encargado de autorizar el uso e importación de las armas y artefactos requeridos por los miembros de la Fuerza Pública, Guardia de Asistencia Rural, Organismo de Investigación Judicial y demás entes estatales expresamente autorizados por ley para poseerlas.

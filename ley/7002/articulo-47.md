@@ -1,0 +1,1 @@
+Artículo 47.- Aparte de los requisitos señalados en el artículo 40 de esta ley, toda persona que adquiera un arma permitida de un establecimiento comercial, deberá presentar, para su inscripción, la factura de compra correspondiente, y en el caso de que la adquiera de un particular, la cartaventa indicada en el artículo anterior.

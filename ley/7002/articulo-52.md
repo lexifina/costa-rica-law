@@ -1,0 +1,1 @@
+Artículo 52.- Cualquier poseedor de armas inscritas podrá solicitar al Departamento permiso para la importación de hasta quinientos tiros al año. No habrá restricción en cuanto a la importación de tiros calibre 22 o de escopeta.

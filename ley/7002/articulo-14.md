@@ -1,0 +1,1 @@
+Artículo 14.- Unicamente podrán usar armas prohibidas los miembros de los entes enunciados en el artículo anterior, quienes sólo podrán usarlas en el ejercicio de sus funciones. El reglamento de esta ley dispondrá el tipo de arma que deberán usar las fuerzas de policía mencionadas en el artículo 13, según las necesidades del servicio.
