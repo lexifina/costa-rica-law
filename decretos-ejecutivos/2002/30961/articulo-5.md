@@ -1,0 +1,1 @@
+Artículo 5º—De ser necesario un plazo adicional para la conclusión de los mencionados estudios, el término de nueve meses a que se refiere el artículo 2 de este Decreto Ejecutivo, podrá prorrogarse hasta por tres meses más del término original.

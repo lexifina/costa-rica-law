@@ -1,0 +1,1 @@
+Artículo 2º—Suspender por el plazo de nueve meses la recepción, en las oficinas del Sistema Nacional de Áreas de Conservación, de solicitudes para tramitar o emitir permisos de corta o autorizar el aprovechamiento de árboles en pie o caídos de la especie Almendro (Dipteryx panamensis), a partir de la publicación del presente Decreto.
