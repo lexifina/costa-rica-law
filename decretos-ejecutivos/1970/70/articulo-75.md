@@ -1,3 +1,4 @@
-CAPITULO VIII
-Sanciones. Cese de Responsabilidad para el Asegurador. Resolución del Contrato:
-Articulo 75.-El incumplimiento de cualesquiera de las obligaciones que imponen la Ley del Seguro Integral de Cosechas y el presente Reglamento, producirá la pérdida de derechos al Asegurado.
+Artículo 75.-Si la revisión no prosperare, el Asegurado tendrá derecho interponer el Recurso de Disconformidad ante la Comisión Coordinadora del Seguro Integral de Cosechas, que será convocada por el representante del Instituto.
+El recurso deberá interponerse por escrito dentro de los 10 días siguientes al recibo de la notificación indicada en el párrafo final del artículo anterior y presentado en el Departamento que el Instituto indique.
+La Comisión Coordinadora resolverá el recurso dentro de los 15 días siguientes a su interposición; y su decisión será definitiva y obligará a las partes.
+(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982 , que lo traspasó del anterior artículo 74 al 75 actual).

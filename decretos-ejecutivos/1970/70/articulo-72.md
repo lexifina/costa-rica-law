@@ -1,1 +1,2 @@
-Artículo 72. -La indemnización por pérdidas aseguradas en cultivos perennes, se hará de conformidad con los principios técnicos particulares relativos a esos cultivos.
+Artículo 72.-Para efectos de indemnización, el Instituto no reconocerá las inversiones posteriores al siniestro total, ni las que en exceso de las autorizadas por él, se efectúen con posterioridad a la ocurrencia de un siniestro parcial.
+(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982 , que lo traspasó del anterior artículo 71 al 72 actual).

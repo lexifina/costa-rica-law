@@ -1,2 +1,2 @@
-Artículo 73 .-El Asegurado disconforme con el ajuste de su reclamo, podrá solicitar su revisión al Instituto, haciéndolo en forma escrita, dentro de los 30 días siguientes a la fecha que conoció el ajuste y con exposición de las razones que tuviere.
-El Instituto dentro de los siguientes 15 días se pronunciará sobre la revisión y comunicará al Asegurado la resolución respectiva.
+Artículo 73. -La indemnización por pérdidas aseguradas en cultivos perennes, se hará de conformidad con los principios técnicos particulares relativos a esos cultivos.
+(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982 , que lo traspasó del anterior artículo 72 al 73 actual).

@@ -1,1 +1,2 @@
-Artículo 50.-El Asegurado, su representante o la Institución financiera interesada, deberán dar al Instituto oportunamente los avisos de siniestro y de recolección, así como hacer de su conocimiento cualquier circunstancia que agrave substancialmente el riesgo.
+Artículo 50.-Para obtener la Póliza, mantenerla vigente y conservar derecho a la eventual indemnización, el Asegurado deberá acatar las disposiciones; del Ministerio de Agricultura y Ganadería.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982, que lo traspasó del anterior artículo 49 al 50 actual).

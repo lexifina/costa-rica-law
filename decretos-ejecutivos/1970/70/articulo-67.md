@@ -1,3 +1,6 @@
-Artículo 67. -Con base en los datos de las Pólizas y sus endosas y principalmente en las actas levantadas por las inspecciones de campo, el Instituto determinará si el riesgo es o no indemnizable y caso de que lo fuere, ajustará la pérdida de acuerdo con las siguientes reglas:
-a) En caso de siniestro total, la indemnización será igual al monto de las inversiones efectuadas hasta el momento de ocurrir el riesgo, las cuales inversiones en ningún caso serán superiores al monto de la cobertura fijada en la Póliza para el mes en que se produjo el riesgo.
-b) En supuesto de siniestro parcial, el monto de la indemnización será igual a la diferencia entre la inversión realizada y comprobada, siempre que no exceda a la indicada en la Póliza y el valor de la cosecha obtenida en toda la superficie asegurada. Si no obstante el siniestro, el valor de la cosecha obtenida alcanza a cubrir la cantidad señalada en la Póliza, el asegurado no percibirá ninguna indemnización.
+Artículo 67.-En las actas que se levanten de las inspecciones practicadas por aviso sobre circunstancias agravantes del riesgo, deberán consignarse entre otros, los siguientes datos:
+a) Naturaleza de las circunstancias.
+b) Causas que las originan.
+c) Medidas preventivas que debe aplicar el asegurado.
+d) Notificación al asegurado de que perderá el derecho a la eventual indemnización, si no aplica las medidas recomendadas.
+(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982 , que lo traspasó del anterior artículo 66 al 67 actual).

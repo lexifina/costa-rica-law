@@ -1,5 +1,2 @@
-CAPITULO VII
-Ajuste y Pago de la Indemnización:
-Artículo 64.-Al practicarse inspección en caso de pérdida total, se levantará acta con los siguientes datos entre otros:
-a) Naturaleza del siniestro, fecha de su ocurrencia y del aviso respectivo.
-b) Extensión de la superficie asegurada, labores realizadas y productos aplicados hasta e! momento del siniestro.
+Artículo 64.-Salvado el caso fortuito y la fuerza mayor, la omisión en dar los avisos que preceptúan los artículos anteriores, causará la extinción de los derechos del Asegurado. La extemporaneidad de los avisos, según el tiempo de demora, causarán desde la reducción del quantum indemnizatorio proporcionada a la agravación del riesgo motivada por aquella circunstancia, hasta la extinción de los derechos del Asegurado.
+(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982 , que lo traspasó del anterior artículo 63 al 64 actual).

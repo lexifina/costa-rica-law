@@ -1,2 +1,2 @@
-Artículo 86.-Se formará quórum con la asistencia de por lo menos cinco miembros de la Comisión , la cual tomará sus resoluciones válidamente con el voto de la mayoría de los concurrentes. En caso de empate, el Presidente tendrá derecho a doble voto o si, lo estimare conveniente, a posponer la resolución respectiva para la sesión a que asista número impar de miembros.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 4550 del 10 de febrero de 1975).
+Artículo 86.-En toda sesión de la Comisión Coordinadora deberá estar presente el representante -titular o suplente- del Instituto Nacional de Seguros.
+(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982 , que lo traspasó del anterior artículo 85 al 86 actual).

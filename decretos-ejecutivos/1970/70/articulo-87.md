@@ -1,6 +1,3 @@
-Artículo 87 .-Este Reglamento regirá a partir del día 12 de mayo de 1970.
-Dado en la Casa Presidencial. -San José, a los dieciséis días del mes de abril de mil novecientos setenta.
-J. J. TREJOS FERNANDEZ
-El Ministro de Agricultura y Ganadería, El Ministro de Industria y Comercio,
-G. E. YGLESIAS. ERNESTO LARA BUSTAMANTE.
-"La Gaceta" N° 105 de 13 de mayo.
+Artículo 87.-Se formará quórum con la asistencia de por lo menos cinco miembros de la Comisión , la cual tomará sus resoluciones válidamente con el voto de la mayoría de los concurrentes. En caso de empate, el Presidente tendrá derecho a doble voto o si, lo estimare conveniente, a posponer la resolución respectiva para la sesión a que asista número impar de miembros.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 4550 del 10 de febrero de 1975).
+(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982 , que lo traspasó del anterior artículo 86 al 87 actual).
