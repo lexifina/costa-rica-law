@@ -14,3 +14,4 @@ Modifica Integración Junta Directivo Consejo Seguridad Vial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-28 | la propia norma |
+| 2 | 2002-05-06 | Decreto Ejecutivo 30382 (2002-05-06) |
