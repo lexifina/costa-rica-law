@@ -1,6 +1,6 @@
 # Ley de Pensiones Alimenticias
 
-Ley N° 1620 del 1953-08-05. SINALEVI, ficha 66183: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66183&param2=78079&param3=1>.
+Ley N° 1620 del 1953-08-05. SINALEVI, ficha 66183: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66183&param2=78083&param3=1>.
 
 Publicada en La Gaceta N° 178 del 1953-08-08.
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 9 | 1990-03-21 | Sala Constitucional, resolución 300 (1990-03-21) | 1990-03-21 |
 | 7 de 9 | 1993-11-23 | Sala Constitucional, resolución 6123 (1993-11-23) | 1993-11-23 |
 | 8 de 9 | 1996-05-29 | Ley 7600 | 1996-05-02 |
+| 9 de 9 | 1997-01-23 | Ley 7654 | 1996-12-19 |

@@ -1,0 +1,8 @@
+ARTICULO 29.- Falsedad o negativa a informar sobre los ingresos
+reales del demandado
+Los patronos o representantes legales deberán brindar, a la autoridad
+judicial correspondiente, información sobre el salario del deudor
+alimentario, dentro del plazo de cinco días hábiles contados a partir de
+la notificación. La negativa o la falsedad en la información los hará
+incurrir en los delitos de desobediencia o falsedad de documentos públicos
+y auténticos, contemplados en el Código Penal.

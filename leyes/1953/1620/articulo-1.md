@@ -1,4 +1,6 @@
+(Derogado)
 N° 1620
+(Esta ley fue derogada por el artículo 69 aparte c) de la Ley de Pensiones Alimentarias N° 7654 del 19 de diciembre de 1996, excepto el párrafo segundo del artículo 34 que mantiene su vigencia, mismo que indica:"..."certificaciones del Registro Civil, del Registro Público y de la Tributación Directa se extenderán para efectos de pensión libres de toda expensa a solicitud de parte. Del mismo modo los edictos que se deriven de la presente ley se publicarán libres de todo pago")
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA
 DE COSTA RICA,
 La siguiente
