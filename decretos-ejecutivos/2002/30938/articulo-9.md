@@ -1,0 +1,1 @@
+Artículo 9º—Las certificaciones de productores e industrializadores se harán por separado, sin que estén condicionadas o relacionadas entre sí. No obstante, para comercializar café sostenible éste deberá en todo caso provenir de una finca certificada como sostenible y sujeta a procesos de industrialización certificados como tal.

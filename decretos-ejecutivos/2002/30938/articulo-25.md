@@ -1,0 +1,1 @@
+Artículo 25.—El inspector para velar por el cumplimiento del artículo 21 del presente Reglamento, deberá realizar visitas frecuentes para verificar directamente en el campo el correspondiente manejo de la plantación o en la planta procesadora el respectivo proceso del café sostenible, según lo establecido en el Manual de Procedimientos de Inspección en Café Sostenible.

@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento tiene como propósito establecer las directrices tendientes a regular la producción, industrialización y comercialización del café sostenible en Costa Rica, así como definir la normativa para las diferentes etapas del proceso de producción, industrialización del café y su certificación.

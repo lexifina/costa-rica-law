@@ -1,0 +1,1 @@
+Artículo 34.—El Servicio será el responsable de velar por el correcto y efectivo cumplimiento de la presente normativa. Es ante esta instancia administrativa donde los interesados podrán presentar las denuncias correspondientes en forma verbal o escrita.

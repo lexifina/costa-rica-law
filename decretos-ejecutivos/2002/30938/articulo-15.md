@@ -1,0 +1,1 @@
+Artículo 15.—El Servicio llevará un registro base de productores, industrializadores, exportadores y comercializadores de café sostenible certificados bajo los requisitos del presente Reglamento. A su vez el Servicio podrá emitir a solicitud del interesado una constancia de que se encuentra debidamente registrado.

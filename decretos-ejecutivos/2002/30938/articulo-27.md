@@ -1,0 +1,1 @@
+Artículo 27º—El ICAFE será el ente encargado de contratar los inspectores que efectuarán las inspecciones a las unidades productivas que se quieran certificar como sostenibles, en concordancia con lo dispuesto en el artículo 3, inciso 14), de este Reglamento.
