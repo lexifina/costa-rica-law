@@ -14,3 +14,4 @@ Reglamento del Sistema de Licitación para la Celebración de Contratos de Explo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-02-09 | la propia norma |
+| 2 | 1999-03-09 | Decreto Ejecutivo 27720 (1999-03-09) |
