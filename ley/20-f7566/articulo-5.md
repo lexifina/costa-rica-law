@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-El producto del trabajo de cualquier menestral que alcance al valor de ciento cincuenta pesos anuales, se estimar por renta para los casos electorales; advirtiendose que para todos los demas casos deben formarse las autoridades para decisiones como lo establecido en las leyes vigentes.
