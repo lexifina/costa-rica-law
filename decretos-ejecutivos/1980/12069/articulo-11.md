@@ -1,4 +1,3 @@
-ARTICULO 11.- El Consejo, dentro de su seno, elegirá un Presidente y
-un Secretario, que durarán en sus cargos un año, pudiendo ser reelectos.
-Las demás funciones administrativas propias del Consejo serán atendidas
-necesariamente por funcionarios y empleados del Ministerio.
+ARTICULO 11º.- DEROGADO.-
+(Derogado por el artículo 30 del Reglamento sobre Control de
+Publicidad y Fumado de Cigarrillos No.20196 del 13 de diciembre de 1990)

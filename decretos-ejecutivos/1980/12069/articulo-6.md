@@ -1,5 +1,3 @@
-ARTICULO 6º.- La publicidad de cigarrillos producida en el
-extranjero destinada a surtir efectos en el territorio nacional, queda
-sometida a las disposiciones del presente documento. Quedan a salvo los
-anuncios publicados en revistas o periódicos que se editen en el
-extranjero.
+ARTICULO 6º.- DEROGADO.-
+(Derogado por el artículo 30 del Reglamento sobre Control de
+Publicidad y Fumado de Cigarrillos No.20196 del 13 de diciembre de 1990)

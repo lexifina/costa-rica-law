@@ -1,6 +1,3 @@
-ARTICULO 5º.- Sin perjuicio de lo anterior no se hará publicidad de
-cigarrillos, a través de ningún medio publicitario, dentro o con ocasión
-de programas o actividades que por su naturaleza estén dirigidos a
-menores de edad. Tratándose de la radio y la televisión, esta
-prohibición comprende los espacios destinados a anuncios inmediatamente
-anteriores o posteriores a aquellos programas.
+ARTICULO 5º.- DEROGADO.-
+(Derogado por el artículo 30 del Reglamento sobre Control de
+Publicidad y Fumado de Cigarrillos No.20196 del 13 de diciembre de 1990)

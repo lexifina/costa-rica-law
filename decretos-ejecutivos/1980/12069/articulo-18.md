@@ -1,5 +1,3 @@
-ARTICULO 18.- Quedan sujetas a las estipulaciones de este reglamento
-las empresas de prensa, radio, cine y televisión y en general todas
-aquellas que explotan algún medio de comunicación colectiva, las que
-serán solidariamente responsables del incumplimiento de las disposiciones
-que regulan la publicidad del cigarrillo.
+ARTICULO 18º.- DEROGADO.-
+(Derogado por el artículo 30 del Reglamento sobre Control de
+Publicidad y Fumado de Cigarrillos No.20196 del 13 de diciembre de 1990)

@@ -1,4 +1,3 @@
-ARTICULO 13.- El Consejo llevará un Libro de Acuerdos, legalizado
-por la Asesoría Legal del Ministerio, donde consignarán sus resoluciones.
-No se asentarán las deliberaciones, a menos que alguno de los miembros
-expresamente así lo pida en un caso particular para razonar su voto.
+ARTICULO 13º.- DEROGADO.-
+(Derogado por el artículo 30 del Reglamento sobre Control de
+Publicidad y Fumado de Cigarrillos No.20196 del 13 de diciembre de 1990)

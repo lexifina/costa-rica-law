@@ -1,4 +1,3 @@
-ARTICULO 14.- El Consejo deberá dictar sus resoluciones dentro de
-los quince días hábiles siguientes a la presentación de la respectiva
-solicitud. De no hacerlo, el material se considerará aprobado por el
-Consejo.
+ARTICULO 14º.- DEROGADO.-
+(Derogado por el artículo 30 del Reglamento sobre Control de
+Publicidad y Fumado de Cigarrillos No.20196 del 13 de diciembre de 1990)

@@ -1,4 +1,3 @@
-ARTICULO 10.- Los miembros del Consejo y sus respectivos suplentes
-durarán en sus cargos cuatro años, pudiendo ser reelectos, pero cesarán
-en sus cargos, en cualquier tiempo, cuando dejen de ser funcionarios del
-Ministerio.
+ARTICULO 10º.- DEROGADO.-
+(Derogado por el artículo 30 del Reglamento sobre Control de
+Publicidad y Fumado de Cigarrillos No.20196 del 13 de diciembre de 1990)

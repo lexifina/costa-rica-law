@@ -1,5 +1,3 @@
-ARTICULO 9º.- El Consejo estará integrado por cinco miembros, de
-libre nombramiento del Poder Ejecutivo, quienes deberán ser
-necesariamente funcionarios del Ministerio. Cada miembro tendrá su
-respectivo suplente, quien deberá reunir los mismos requisitos fijados
-para los propietarios.
+ARTICULO 9º.- DEROGADO.-
+(Derogado por el artículo 30 del Reglamento sobre Control de
+Publicidad y Fumado de Cigarrillos No.20196 del 13 de diciembre de 1990)

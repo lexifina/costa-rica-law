@@ -13,26 +13,6 @@ DECRETAN:
 El siguiente
 Reglamento sobre Regulación y Control de Publicidad
 de Cigarrillos
-ARTICULO 1º.- Para los efectos del presente Reglamento, se
-determinan las siguientes definiciones:
-Publicidad de cigarrillos: Cualquier mensaje transmitido por la
-televisión, la radio, el cine, o publicado por la prensa o en revistas,
-panfletos, afiches y vallas, con el objeto de promover marcas de
-cigarrillos.
-Medio publicitario: Toda forma, sistema o técnica empleada para la
-comunicación colectiva.
-Material de propaganda:
-a) Los textos y bocetos de los anuncios para la prensa, revistas,
-rótulos y otros medios gráficos, cuando éstos tengan finalidades
-publicitarias.
-b) Los textos, libretos o guiones, con las indicaciones completas de
-imágenes visuales y de sonido para cortos de televisión y cine.
-c) Los textos, libretos o guiones y cuñas con las indicaciones de
-sonido y en general todo aquel material destinado a transmitirse por
-medio de la radiodifusión.
-d) Los textos, proyectos y en general cualquier material destinado a
-utilizarse en algún medio de comunicación colectiva, no contemplado en
-los incisos anteriores.
-Empresas o firmas: Las empresas productoras o importadores de
-cigarrillos, los agentes o representantes de marcas de cigarrillos, así
-como sus distribuidores ya sea por mayor o por detalle.
+ARTICULO 1º.- DEROGADO.-
+(Derogado por el artículo 30 del Reglamento sobre Control de
+Publicidad y Fumado de Cigarrillos No.20196 del 13 de diciembre de 1990)

@@ -1,3 +1,3 @@
-ARTICULO 15.- En casos especiales, el plazo señalado podrá ser
-prorrogado por el Ministerio de Salud, a petición del Consejo, hasta por
-un máximo de quince días hábiles.
+ARTICULO 15º.- DEROGADO.-
+(Derogado por el artículo 30 del Reglamento sobre Control de
+Publicidad y Fumado de Cigarrillos No.20196 del 13 de diciembre de 1990)

@@ -13,3 +13,4 @@ Reglamento sobre Control de Publicidad de Cigarrillos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-12-05 | la propia norma |
+| 2 | 1980-12-05 | SINALEVI (sin norma nombrada) |

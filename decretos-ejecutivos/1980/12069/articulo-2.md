@@ -1,4 +1,3 @@
-ARTICULO 2º.- La información que se dé en la publicidad de
-cigarrillos, deberá ser verídica y no conducir a engaño sobre las
-características de estos productos y a su calidad y técnicas de
-elaboración.
+ARTICULO 2º.- DEROGADO.-
+(Derogado por el artículo 30 del Reglamento sobre Control de
+Publicidad y Fumado de Cigarrillos No.20196 del 13 de diciembre de 1990)
