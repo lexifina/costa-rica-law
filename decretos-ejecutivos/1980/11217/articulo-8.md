@@ -1,0 +1,1 @@
+Artículo 8°—Las empresas que no reúnan los requisitos mínimos para calificar como turístico no podrán clasificarle; su funcionamiento quedará bajo la exclusiva responsabilidad de las autoridades de policía y salud. Tampoco serán clasificados los establecimiento- que se dediquen al negocio de alquiler de sin registro de huéspedes-.

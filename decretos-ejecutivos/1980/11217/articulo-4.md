@@ -1,0 +1,22 @@
+Artículo 4°—Para la aplicación de este Reglamento se entiende por:
+a) Hotel: Es un tipo de establecimiento con un mínimo de veinte habitaciones o más de acuerdo a la categoría que le corresponda, que brinda servicio de hospedaje por una tarifa diaria, así como de alimentación, a elección del cliente. Entre el servicio de alojamiento y los servicios complementarios debe existir integralidad funcional.
+b) Hotel residencia: Es un hotel que no ofrece servicio de alimentación.
+c) Motel turístico: Es un tipo de establecimiento hotelero que brinda de hospedaje por una tarifa diaria y que tiene las siguientes características
+Ofrece a los viajeros estacionamiento para su; vehículos de mismo establecimiento.
+Está ubicado de preferencia fuera de los núcleos urbanos y en las proximidades de carreteras públicas.
+Cuenta con un mínimo de cinco habitaciones, todas con bar y entrada independiente desde el exterior.
+La edificación no excede de dos plantas, y se indica en el exterior de las mismas, mediante rótulo- luminosos que permitan su lectura desde la carretera tanto de .día como de noche, si hay plazas libres o si no las hay.
+d) Apartotel: (Apartamentos-hotel) Es un tipo de establecimiento que brinda servicio de hospedaje por una tarifa diaria o mensual, y que tiene las siguientes característica;
+Está constituido por unidades tipo apartamento, cada una con uno o más dormitorios, baño privado, sala comedor y cocina.
+Ocupa la totalidad de un edificio o parte absolutamente independiente de él, y sus dependencias constituyen un todo homogéneo, con entradas para uso exclusivo del establecimiento.
+Incluye en la tarifa el servicio de pisos. Y
+Dispone de estacionamiento para los vehículos de los huéspedes.
+e) Pensión: Es un tipo de establecimiento pequeño que normalmente es manejado en forma familiar, con capacidad mínima de tres habitaciones, y que ofrece servicio de alimentación en plan de pensión completa o de media pensión, en una sola tarifa global.
+f) Casa de huéspedes: Es un upo de establecimiento semejante a la pensión que no ofrece servicio de alimentación.
+g)Vivienda turística: (cabina, cabaña, casa de veraneo, etc.). Es un tipo de establecimiento que brinda servicio de hospedaje por una tarifa diaria o mensual, con unidades que constituyen viviendas independientes, con uno o más dormitorios, baño privado, cocina, entrada independiente desde el exterior, y con estacionamiento para los vehículos de los huéspedes.
+h)Albergue: Es un tipo de establecimiento de características rústicas confortables, que brinda servicio de alojamiento en especial a deportistas o grupos unidos por un interés o actividad común. Hay varias modalidades, entre ellas, refugios de montaña, albergues o campos de pesca, albergues de playa, campestres y juveniles, cuyas características y servicios adicionales varían de acuerdo a su especialización, y con base en ellos se les dará la denominación más apropiada.
+i) Campamentos: Es un tipo de establecimiento que brinda servicios de alquiler por una tarifa diaria o mensual, de terrenos debidamente delimitados y acondicionados para facilitar la vida al aire libre, en los que se pernocte bajo tienda de campaña, en remolque habitable o similares.
+j) Condohotel: Es una modalidad de operación de hospedaje en el que la propiedad del inmueble esta acogida a la Ley de Propiedad Horizontal, N° 3670 de 22 de marzo 1966, o aplica principios contenidos en ésta y en el que la explotación hotelera esta garantizada mediante un contrato de administración con una empresa operadora hotelera que asume las funciones correspondientes a los administradores según la ley y las que se derivan del carácter hotelero de la operación. El setenta por ciento del tiempo al año debe dedicarse el establecimiento como mínimo al servicio de hospedaje y el treinta por ciento restante puede ser utilizado por los condóminos.
+k) Hotel: Establecimiento hotelero que se ubica en una instalación flotante o sobre un buque de pasajeros que se inmoviliza permanente o transitoriamente para cumplir estas funciones.
+l) –Tiempo compartido: sistema o régimen por medio del cual una persona adquiere un derecho de uso o goce o cualquier otro derecho relativo a la utilización de una unidad habitacional vacacional, por períodos determinados o determinables dentro de cada año durante la vigencia del contrato respectivo, mediante el pago de un determinado precio.
+(Así reformado mediante articulo 2° del Decreto Ejecutivo N° 26842 del 2 de marzo de 1998.)

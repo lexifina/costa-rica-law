@@ -1,0 +1,1 @@
+Articulo 9°—Cuando el edificio que ocupe un establecimiento reúna condiciones particulares de tradición o de valor arquitectónico, estas podrán ser consideradas a juicio de la Junta Directiva del Instituto Costarricense de Turismo para los efectos de la clasificación, en una determinada categoría aunque incumpla con algunos requisitos funcionales de establecimientos moderno.

@@ -1,0 +1,2 @@
+Articulo 22.—A menos que haya acuerdo expreso entre las partes, el o de hospedaje se considera celebrado por un día. En caso de no ser pagada la habitación por el huésped, se considera tácitamente prorrogado un día más v así sucesivamente.
+La empresa debe advertir al huésped por escrito y con al menos un día de anticipación o al momento de su inscripción como huésped, el tiempo máximo que puede ocupar la habitación, en caso de tenerla reservada en una fecha inmediata para otro huésped.
