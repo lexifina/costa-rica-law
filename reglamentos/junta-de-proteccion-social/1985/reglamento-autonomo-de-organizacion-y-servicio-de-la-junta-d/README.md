@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio de la Junta de Protección Soci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-08-21 | la propia norma |
+| 2 | 1999-12-20 | Reglamento 47 (1999-12-20) |
