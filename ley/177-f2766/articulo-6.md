@@ -1,0 +1,1 @@
+Articulo 6°-Los miembros de la Corporación deberán ser personas de reconocida honorabilidad, costarricenses o no, durarán en sus funciones 4 años y serán inamovibles para el período para que fueren nombrados. Deberán, además, tener conocimientos relativos a la fabricación de abonos orgánicos.
