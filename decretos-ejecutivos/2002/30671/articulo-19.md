@@ -1,0 +1,1 @@
+Artículo 19.—De la ejecución de las garantías por el incumplimiento en el pago de los bonos: En caso de no pago de los bonos, se ejecutarán las garantías que se establecen en el Capítulo III, artículo 5º del presente Reglamento y de acuerdo al orden allí establecido.

@@ -1,0 +1,2 @@
+Artículo 13.—De la recopilación de documentación y análisis previo del crédito: El análisis, previo a la calificación definitiva del Comité de Calificación, de las solicitudes de crédito deberá ser realizado por el Departamento de Crédito de CORBANA.
+Una vez concluido dicho análisis e instruido el expediente, deberá hacer las recomendaciones que correspondan y trasladarlo con toda la documentación que respalde la solicitud, al Comité de Calificación para la calificación y aprobación definitiva de la solicitud.

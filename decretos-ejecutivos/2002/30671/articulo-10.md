@@ -1,0 +1,4 @@
+CAPÍTULO V
+De los requisitos, análisis y calificación de los créditos
+Artículo 10.—De la calificación de los créditos: La Corporación Bananera Nacional, por medio de su Departamento de Crédito será la encargada de realizar la conformación del expediente de cada solicitud de refinanciamiento realizada por los productores bananeros nacionales, de conformidad con los procedimientos y parámetros establecidos en el presente Reglamento y en los Reglamentos del Programa de Salvamento de Empresas Bananeras y del General del Fondo de Préstamo a Productores.
+Deberá realizar el análisis previo de cada solicitud y una vez concluido el estudio realizará las observaciones correspondientes y lo enviará para su aprobación o improbación al Comité de Calificación establecido en el artículo 8° de éste Reglamento.

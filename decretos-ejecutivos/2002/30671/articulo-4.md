@@ -1,0 +1,7 @@
+Artículo 4º—Atribuciones y Responsabilidades del Comité de Calificación: Sin perjuicio de las demás atribuciones y responsabilidades otorgadas por las normas que integran el ordenamiento jurídico costarricense, como calificador final de acuerdo a lo establecido en el Capítulo IV de este Reglamento, el Comité de Calificación tendrá las siguientes atribuciones y responsabilidades:
+a) Revisar la documentación que del trámite de las solicitudes realice el Departamento de Crédito de CORBANA, en especial en cuanto al cumplimiento de los requisitos y parámetros establecidos en el Capítulo V de este Reglamento.
+b) Verificar el cumplimiento de los requisitos establecidos para las garantías en el artículo 12º de este Reglamento.
+c) Dar la aprobación final de los créditos a refinanciar de conformidad con los parámetros establecidos en la Ley Nº 7406 y el presente Reglamento.
+d) Solicitar cuando considere oportuno informes sobre el estado de los créditos refinanciados y/o el estudio de auditoria anual del Programa, según lo establecido en el Reglamento del Programa de Salvamento para las Empresas Bananeras.
+e) Solicitar cuando lo requiera los informes sobre el fondo de garantía a CORBANA, establecido con base en el artículo 2º de la Ley Nº 5515, de 4 de noviembre de 1974 y que forman parte de la garantía de los bonos.
+f) Solicitar a CORBANA que le remita las normas internas oficiales que ordenen el funcionamiento del Programa de Salvamento de Empresas Bananeras y el Reglamento General del Fondo de Préstamo a Productores.

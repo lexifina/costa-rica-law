@@ -1,0 +1,2 @@
+Artículo 18.—Del Pago: Una vez realizada la venta de la unidad productiva con el dinero obtenido, CORBANA de conformidad con el artículo 2º el Capítulo II de este Reglamento, procederá a la administración del pago recibido, hasta que deba realizar el pago de los bonos correspondientes.
+CORBANA deberá administrar la recuperación de los recursos, sean estos ordinarios o extraordinarios, hasta que corresponda hacer el pago de los bonos y/o sus intereses, para lo cual deberá invertir dichos recursos en títulos valores del Estado.

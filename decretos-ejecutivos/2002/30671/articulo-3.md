@@ -1,0 +1,7 @@
+Artículo 3º—Atribuciones y responsabilidades del Departamento de Crédito de CORBANA: Sin perjuicio de las demás atribuciones y responsabilidades otorgadas por las normas que integran el ordenamiento jurídico costarricense, como designado para el análisis y la calificación previa de los créditos a refinanciar, el Departamento de Crédito de CORBANA, tendrá las siguientes atribuciones y responsabilidades:
+a) Constituir la masa crítica que conformará la emisión de bonos bananeros.
+b) Estudiar las condiciones que presenta cada uno de los créditos de los productores bananeros que soliciten la refinanciación de deudas y abrir el expediente respectivo.
+c) Verificar el cumplimiento de los requisitos y parámetros que se establecen en el Capítulo V de este Reglamento.
+d) Verificar que el solicitante sea productor bananero bajo los parámetros establecidos en la Ley Nº 7406, el presente Reglamento y el Programa de Salvamento de Empresas Bananeras.
+e) Verificar que existan las garantías necesarias para proceder a suscribir el contrato de fideicomiso respectivo y en caso de que no sean suficientes hacer las observaciones y solicitudes necesarias para subsanar la insuficiencia de las existentes.
+f) Trasladar al Comité de Calificación que se establece en el Capítulo IV de este Reglamento la información de las solicitudes de refinanciación tramitadas, con las recomendaciones respectivas y el expediente correspondiente debidamente foliado.

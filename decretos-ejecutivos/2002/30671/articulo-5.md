@@ -1,0 +1,3 @@
+CAPÍTULO III
+Emisión de los bonos
+Artículo 5º—De la estructura de seguridad de los bonos bananeros: La emisión de bonos que se haga a tenor de la Ley7406, estará respaldada por una estructura de seguridad conformada por: a) el fondo de liquidez o garantía, b) las unidades productivas que como garantías reales y que bajo contrato de fideicomiso de garantía aporten las empresas que resulten beneficiarias, c) los flujos totales de dinero que generen dichas unidades productivas, en cuanto su manejo o control esté a cargo de CORBANA, d) el patrimonio de CORBANA, y, en último término, e) la garantía del estado.
