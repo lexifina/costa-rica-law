@@ -1,10 +1,7 @@
-CAPITULO VI
-De los Mecanismos de Coordinación y Asesoría
-Artículo 18.- A fin de propiciar la más amplia participación de los
-sectores públicos y privados en la tarea nacional de planificación, y con
-el objeto de dar unidad y coherencia a esta tarea, el Poder Ejecutivo
-establecerá consejos asesores, comités de coordinación y comisiones
-consultivas. Estos organismos estarán integrados por personeros de los
-ministerios, instituciones autónomas y semiautónomas y asociaciones
-privadas, de acuerdo con las necesidades y las actividades de que se
-trate.
+Artículo 18.- Los ministerios e instituciones autónomas y
+semiautónomas, en coordinación con el Ministerio de Planificación
+Nacional y Política Económica, a través de su Departamento de Eficiencia
+Administrativa, realizarán programas de racionalización administrativa,
+con el propósito de mejorar la capacidad de planeamiento y ejecución de
+sus actividades y de asegurar así el cumplimiento de los planes de
+desarrollo.

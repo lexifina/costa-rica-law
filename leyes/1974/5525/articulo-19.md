@@ -1,6 +1,10 @@
-Artículo 19.- Se establece el Consejo de Coordinación
-Interinstitucional, de conformidad con las normas que para los consejos
-asesores se estatuyen en este capítulo.
-Estará integrado por los personeros ejecutivos de más alta jerarquía
-de todos los entes descentralizados y por el Director de Planificación,
-quien lo presidirá.
+CAPITULO VI
+De los Mecanismos de Coordinación y Asesoría
+Artículo 19.- A fin de propiciar la más amplia participación de los
+sectores públicos y privados en la tarea nacional de planificación, y con
+el objeto de dar unidad y coherencia a esta tarea, el Poder Ejecutivo
+establecerá consejos asesores, comités de coordinación y comisiones
+consultivas. Estos organismos estarán integrados por personeros de los
+ministerios, instituciones autónomas y semiautónomas y asociaciones
+privadas, de acuerdo con las necesidades y las actividades de que se
+trate.

@@ -1,5 +1,6 @@
-Artículo 20.- El Director de la Oficina de Planificación Nacional y
-Política Económica podrá proponer al Presidente de la República la creación
-de otros consejos y comités que considere necesarios para el buen desempeño
-de la Oficina. La integración de estos consejos se hará por decreto
-ejecutivo.
+Artículo 20.- Se establece el Consejo de Coordinación
+Interinstitucional, de conformidad con las normas que para los consejos
+asesores se estatuyen en este capítulo.
+Estará integrado por los personeros ejecutivos de más alta jerarquía
+de todos los entes descentralizados y por el Ministro de Planificación,
+quien lo presidirá.
