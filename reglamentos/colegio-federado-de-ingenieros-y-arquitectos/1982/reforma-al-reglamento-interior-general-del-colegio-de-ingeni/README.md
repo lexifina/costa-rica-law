@@ -14,3 +14,4 @@ Reforma al Reglamento Interior General del Colegio de Ingenieros y Arquitectos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-12-02 | la propia norma |
+| 2 | 1982-12-02 | Ley 8 |
