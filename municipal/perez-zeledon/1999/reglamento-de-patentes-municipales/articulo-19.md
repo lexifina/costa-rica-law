@@ -1,0 +1,1 @@
+Artículo 19.—Determinación de oficio. La determinación de oficio del monto del Impuesto por Licencia Municipal se hará de acuerdo a los criterios que establecen los artículos 9 y 13 de la Ley de Patentes de la Municipalidad de Pérez Zeledón.
