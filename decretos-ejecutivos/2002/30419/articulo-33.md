@@ -1,0 +1,1 @@
+Artículo 33.—Del seguimiento de los beneficios: Corresponde a cada una de las instituciones ejecutoras, mediante los procedimientos que estimen pertinentes, verificar el cumplimiento de los objetivos y metas del programa.

@@ -1,0 +1,1 @@
+Artículo 28.—De las partidas presupuestarias: Cada una de las instituciones ejecutoras, deberán incluir en sus presupuestos las partidas requeridas para cumplir las disposiciones de la ley y el presente reglamento, todo lo cual será fiscalizado por la Contraloría General de la República, en la forma prevista por el artículo 9º de la Ley.

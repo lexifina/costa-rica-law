@@ -1,0 +1,1 @@
+Artículo 32.—Del control de los recursos: Los y las funcionarios(as) competentes deberán vigilar el uso correcto de los recursos destinados al financiamiento, el cumplimiento de metas y la incorporación de la población en situación de pobreza extrema y pobreza, de conformidad con la legislación vigente.

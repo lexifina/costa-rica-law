@@ -1,0 +1,1 @@
+Artículo 35.—Del uso de la información: El IMAS está facultado para suministrar la información que se genere con motivo de la ejecución de este Programa, la que podrá facilitar, con las limitaciones establecidas a nivel legal y constitucional.

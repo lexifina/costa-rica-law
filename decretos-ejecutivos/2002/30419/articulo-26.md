@@ -1,0 +1,1 @@
+Artículo 26.—De los instrumentos de recolección de información social: El IMAS utilizará el Sistema de Información de la Población Objetivo para la selección y calificación de toda mujer que presente solicitud formal para participar en el programa, como requisito necesario para dar trámite y atención a las solicitudes.
