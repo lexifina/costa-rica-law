@@ -15,3 +15,4 @@ Fija precio del arroz, frijoles y maíz
 | --- | --- | --- |
 | 1 | 1986-06-02 | la propia norma |
 | 2 | 1990-07-19 | Decreto Ejecutivo 19802 (1990-07-19) |
+| 3 | 1990-08-27 | Decreto Ejecutivo 19858 (1990-08-27) |
