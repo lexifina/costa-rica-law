@@ -1,0 +1,1 @@
+Artículo 13.—El incumplimiento de alguna de estas estipulaciones reglamentarias, por parte de las integrantes de la Comisión de la Condición de la Mujer, puede ser causa de su separación en forma permanente de la misma.

@@ -1,0 +1,1 @@
+Artículo 3º—Deberá presentar y preparar al Concejo Municipal las necesidades presupuestarias anuales, para cumplir su cometido, y en caso de algún imprevisto presentar cualquier iniciativa que sea requerida.
