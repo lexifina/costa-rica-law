@@ -22,3 +22,4 @@ Reglamento de Zonificación parcial de Áreas Industriales en La Gran Área Metr
 | 7 | 1988-09-26 | Reglamento 3859 (1988-09-26) |
 | 8 | 1988-10-03 | Reglamento 3861 (1988-10-03) |
 | 9 | 1994-02-03 | Reglamento 4382 (1994-02-03) |
+| 10 | 1994-04-28 | Reglamento 4404 (1994-04-28) |
