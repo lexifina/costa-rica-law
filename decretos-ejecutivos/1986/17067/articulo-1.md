@@ -1,6 +1,7 @@
+(Anulada)
 (Este Decreto Ejecutivo se anulo mediante resolución de la Sala Constitucional N° 3410 de las 14:05 horas del 10 de noviembre de 1992.)
 N° 17067-H
-(NOTA: Mediante el artículo 2° del decreto ejecutivo N° 19045 del 13 de junio de 1989, se modifica este decreto en todo lo que se le oponga)
+(NOTA: Mediante el artículo 2° del decreto ejecutivo N° 19729 del 13 de junio de 1989, se modifica este decreto en todo lo que se le oponga)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE HACIENDA
 En uso de las facultades que les confieren el artículo 140, incisos 3) y 18) de la Constitución Política, la Ley Nacional de Emergencias N° 4374 del 14 de agosto de 1969 y sus reformas y los artículos 4° y 26 incisos b), h) y g) y 27 numeral 1° de la Ley de General de la Administración Pública
