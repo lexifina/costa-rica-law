@@ -1,0 +1,2 @@
+Artículo 30.-De las normas relacionadas con este título que mantienen vigencia transitoriamente
+Para la valoración de los puntos por Mérito Profesional y Grado de Fiscalización Superior Constitucional, téngase como vigentes en su orden, las resoluciones N° 03-DGRH de las once horas del catorce de enero de mil novecientos noventa y nueve y 19-DGRH de las trece horas del veintisiete de mayo de mil novecientos noventa y uno.

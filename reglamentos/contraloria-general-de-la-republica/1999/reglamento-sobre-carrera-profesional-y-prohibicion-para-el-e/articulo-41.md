@@ -1,0 +1,2 @@
+Artículo 41.-De las solicitudes, su estudio y determinación del porcentaje
+Los servidores deberán solicitar expresamente el ingreso al régimen de pago de prohibición y los ajustes a que se hagan acreedores ante la Unidad de Recursos Humanos, ésta efectuará el estudio de las solicitudes y determinará el porcentaje obtenido, lo comunicará a la Unidad Financiera para que se pague el beneficio económico correspondiente. El interesado sabrá sobre el resultado de su solicitud a través de un medio idóneo.

@@ -1,0 +1,2 @@
+Artículo 33.-Grados universitarios que se compensan
+Además de los grados señalados en el artículo anterior, se compensará la condición de egresado que ostenten los servidores que se encuentren realizando estudios universitarios, así como la acumulación de créditos o unidades académicas lograda, previamente a la consecución de dichos grados, según los porcentajes que más adelante se detallan en este título.

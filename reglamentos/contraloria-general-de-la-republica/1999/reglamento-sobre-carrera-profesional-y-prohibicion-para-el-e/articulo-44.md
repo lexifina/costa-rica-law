@@ -1,0 +1,2 @@
+Artículo 44.-Aspectos no regulados expresamente
+De manera estrictamente excepcional, los aspectos relacionados con este título que no se ajusten a las disposiciones anteriores, serán estudiados por la Unidad de Recursos Humanos y resueltos por el Contralor General, de ser necesario, se incorporarán mediante resolución al presente cuerpo normativo aquellos asuntos resueltos por esta vía que se consideren actos de carácter general.

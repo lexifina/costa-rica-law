@@ -1,0 +1,2 @@
+Artículo 20.-Ajustes al mérito profesional
+Los ajustes al mérito profesional podrán ser solicitados a la Unidad de Recursos Humanos, durante los meses de diciembre y junio, y cuando procedan cobrarán vigencia el primero de enero y primero de julio siguientes, respectivamente. Para efectos de estas actualizaciones se entenderá que en cada una de ellas se reportan los cambios que ocurran durante el semestre previo a la fecha en que regiría su reconocimiento.

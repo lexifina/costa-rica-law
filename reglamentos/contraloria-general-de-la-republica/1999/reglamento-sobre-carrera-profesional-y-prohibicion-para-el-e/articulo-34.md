@@ -1,0 +1,2 @@
+Artículo 34.-Simultaneidad de condiciones
+Para la obtención de los beneficios aquí regulados se requiere que el servidor ostente la condición profesional, condición de egresado o el grado universitario señalado según la tabla de créditos que se establece más adelante y que simultáneamente preste sus servicios en un cargo para el cual formalmente sea requisito alguna de dichas condiciones o grado académico.
