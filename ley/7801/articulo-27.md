@@ -10,4 +10,5 @@ Familiares, No. 5662, de 23 de diciembre de 1974, un inciso e) cuyo texto
 dirá:
 "Artículo 3.
 [...]
-e) El Instituto Nacional de las Mujeres un dos por ciento (2%)."
+e) El Instituto Nacional de las Mujeres un dos por ciento
+(2%)."
