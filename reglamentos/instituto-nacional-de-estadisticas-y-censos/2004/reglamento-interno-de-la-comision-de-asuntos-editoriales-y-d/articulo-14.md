@@ -1,0 +1,1 @@
+Artículo 14.—De las sesiones y el quórum. La Comisión sesionará en forma periódica con un mínimo de dos sesiones ordinarias anuales. Para sesionar se requiere de un mínimo de tres miembros. Las decisiones se tomarán por mayoría simple. Podrá ser convocada con carácter extraordinario cuando el presidente así lo considere necesario, o sea solicitado por mayoría de sus miembros.

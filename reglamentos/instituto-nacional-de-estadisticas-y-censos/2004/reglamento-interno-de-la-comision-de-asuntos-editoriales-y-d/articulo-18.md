@@ -1,0 +1,1 @@
+Artículo 18.—Elaboración de citas bibliográficas. Todas las publicaciones que se elaboren institucionalmente deberán acatar las normas y elementos establecidos por la APA (American Psychological Association), y sus correspondientes modificaciones.

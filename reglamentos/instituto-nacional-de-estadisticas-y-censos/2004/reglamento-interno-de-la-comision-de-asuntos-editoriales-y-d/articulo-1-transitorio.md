@@ -1,0 +1,2 @@
+Transitorio único.—Formulario de Evaluación de Publicaciones. A más tardar un mes después de que entre en vigencia el presente Reglamento, la Gerencia, en forma conjunta con la Comisión, deberá diseñar y aprobar un formulario para evaluar el contenido y la presentación de las publicaciones que permita elaborar la recomendación final que ésta emita.
+Aprobado por el Consejo Directivo, mediante el artículo 5º, acuerdo N° 7, de la sesión ordinaria Nº 294-2004, celebrada el día 10 de agosto del 2004.

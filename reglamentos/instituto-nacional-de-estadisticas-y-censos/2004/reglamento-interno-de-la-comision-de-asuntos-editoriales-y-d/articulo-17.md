@@ -1,0 +1,1 @@
+Artículo 17.—De la presentación de cuadros y gráficos estadísticos. El formato para la elaboración de los cuadros y gráficos estadísticos a ser incluidos en las publicaciones del INEC estará regulado por las disposiciones establecidas al efecto.
