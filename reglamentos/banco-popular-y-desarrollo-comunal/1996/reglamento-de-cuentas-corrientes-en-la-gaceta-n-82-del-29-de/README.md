@@ -14,3 +14,4 @@ Reglamento de Cuentas Corrientes (En La Gaceta N° 82 del 29 de abril de 2008, s
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-11-20 | la propia norma |
+| 2 | 1997-05-20 | Reglamento 3349 (1997-05-20) |
