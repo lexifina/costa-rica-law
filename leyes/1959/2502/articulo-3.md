@@ -1,1 +1,2 @@
-Artículo 3º.- La Junta Directiva del Banco Central de Costa Rica, designará a las personas que habrán de desempeñar los cargos de Gobernador Propietario y Gobernador Suplente, en representación de Costa Rica, en el Banco Interamericano de Desarrollo.
+Artículo 3º.- El Poder Ejecutivo nombrará al Ministro de Hacienda para que ejerza las funciones de Gobernador propietario que menciona la Sección 2 (a) del artículo VIII del Convenio Constitutivo de Banco Interamericano de Desarrollo, en representación de Costa Rica ante dicho Banco. El Gobernador suplente será nombrado por la Junta Directiva del Banco Central de Costa Rica.
+(Así reformado por el artículo 1° de la ley N° 4641 del 1° de octubre de 1970)
