@@ -14,3 +14,4 @@ Concede beneficios a "Ticatejidos Sociedad Anónima" para su planta industrial d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-06-23 | la propia norma |
+| 2 | 1977-02-23 | Decreto Ejecutivo 6818 (1977-02-23) |
