@@ -1,0 +1,1 @@
+Artículo 15.- Tan pronto estén terminadas todas las operaciones de avalúo y demás que esta ley prevé, el Ministerio de Economía, Hacienda y Comercio, procederá al reajuste que se establece en los artículos 3º y 4º y el Banco al canje de las acciones expropiadas.

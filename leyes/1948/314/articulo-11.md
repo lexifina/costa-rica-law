@@ -1,0 +1,1 @@
+Artículo 11.- Todo los documentos relativos a la valoración, tales como estimaciones, inventarios, peritazgos y similares, quedarán bajo custodia y en poder de cada Banco y podrán ser consultados por los ex-accionistas o por las entidades oficiales interesadas, sin perjuicio de las labores de la Comisión.
