@@ -1,0 +1,1 @@
+Artículo 27.- La Autoridad Consular costarricense en el extranjero, cuando reciba la comunicación aprobatoria, emitirá la visa de ingreso al territorio nacional respetando las condiciones impuestas en la autorización, e indicará en la misma el plazo de permanencia y la condición migratoria del viajero. Copia de la autorización se adjuntará y presentará en el puerto de ingreso.

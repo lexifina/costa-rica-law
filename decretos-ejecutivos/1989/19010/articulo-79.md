@@ -1,0 +1,2 @@
+Artículo 79.- De toda deportación se levantará un expediente administrativo en el cual se recogerán todos los documentos atinentes al caso y se dejará constancia de las diligencias efectuadas; tales como investigaciones, inspecciones oculares, interrogatorios, declaraciones de testigos, de la denuncia cuando se hubiese realizado personalmente, etc.
+Asimismo se recogerán dentro del expediente los informes de otras autoridades de policía nacionales o extranjeras y la correspondencia cursada en el asunto. Se dejará clara identificación del sujeto.

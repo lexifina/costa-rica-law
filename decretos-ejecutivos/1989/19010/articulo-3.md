@@ -1,0 +1,1 @@
+Artículo 3°.- Todo movimiento, calificación y categoría, quedan sujetos a las disposiciones y procedimientos que establecen la ley y el presente reglamento. Supletoriamente le serán aplicables por su orden, los principios generales de la Ley General de la Administración Pública y los demás principios pertinentes del ordenamiento jurídico costarricense.

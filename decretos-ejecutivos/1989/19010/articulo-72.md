@@ -1,0 +1,1 @@
+Artículo 72.—El extranjero que adquiera la calidad de residente permanente, tendrá derecho a residir de modo permanente y por tiempo indefinido en el territorio nacional, pudiéndose dedicar al desempeño o ejercicio de cualquier actividad lícita siempre que cumpla con las obligaciones y requisitos que las leyes y los reglamentos vigentes en el país establecen para cada caso.

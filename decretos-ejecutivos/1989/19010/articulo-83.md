@@ -1,0 +1,1 @@
+Artículo 83.- Cuando la orden de deportación estuviere firme y se hubieren efectuado los contactos a que se refiere el artículo anterior, se procederá a ejecutar la expulsión del extranjero, ya sea poniéndolo materialmente fuera de nuestras fronteras, o embarcándolo en el medio de transporte que lo trasladará fuera de Costa Rica.

@@ -1,0 +1,2 @@
+Artículo 80.- Cuando se hubiere completado el expediente con toda la documentación y se hubieren practicado las diligencias necesarias, el legajo pasará a la Asesoría Legal de Migración para su estudio e informe a la Dirección General de Migración.
+Si la Asesoría Legal, encontrare que la tramitación está correcta y que la deportación es legalmente procedente preparará la resolución en la cual se ordena la misma. El Director General, si encontrare todo de conformidad con la ley, autorizará con su firma la deportación.

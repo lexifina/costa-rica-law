@@ -1,0 +1,1 @@
+Artículo 46.- Todos los documentos exigidos deberán venir debidamente autenticados por la autoridad consular costarricense respectiva y los documentos que no hubiesen sido emitidos en español, deberán aportar la correspondiente traducción a este idioma.

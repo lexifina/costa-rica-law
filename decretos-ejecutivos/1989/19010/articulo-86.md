@@ -1,0 +1,1 @@
+Artículo 86.- Las deportaciones efectuadas serán comunicadas a la mayor brevedad a los puestos migratorios nacionales, al Centro de Cómputo del Ministerio de Seguridad Pública y a los Agentes de Migración en el Exterior.

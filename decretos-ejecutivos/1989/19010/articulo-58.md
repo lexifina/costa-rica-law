@@ -1,0 +1,1 @@
+Artículo 58.- Satisfechos los requisitos exigidos en el artículo anterior, la Dirección General autorizará el ingreso al país, comunicándolo al correspondiente Agente Migratorio en el Exterior, a fin de que emita las visas correspondientes.

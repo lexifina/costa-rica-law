@@ -1,0 +1,1 @@
+Artículo 4°.- El Director General, además de las funciones que le asigna la ley constituye el órgano encargado de dirigir, coordinar, planificar, supervisar y ejecutar las disposiciones de la ley y de este reglamento. Además, personalmente o por delegación de conformidad con la Ley General de la Administración Pública.

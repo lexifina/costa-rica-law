@@ -1,0 +1,1 @@
+Artículo 47.- Cuando la solicitud de residencia tenga asimismo por finalidad, el desempeño de funciones laborales, deberá venir acompañada de carta o documento expedido por la empresa contratante, en la cual indique las labores a desempeñar y duración del contrato y salario.

@@ -1,0 +1,1 @@
+Artículo 13.- Los costarricenses que requieran salir del país y lo hagan por vía aérea podrán obtener el visado en los puertos migratorios autorizados al efecto, siempre que presenten su pasaporte vigente, cancelen los derechos correspondientes y cumplan con los demás requisitos legales.

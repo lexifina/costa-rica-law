@@ -1,0 +1,1 @@
+Artículo 26.- La autorización para el ingreso de nacionales de países con acceso restringido, será expedida por el propio Director General a los Agentes de Migración en el Exterior. La misma se hará por la vía cablegráfica, télex, cualquier otro medio de telecomunicación aceptable o por teléfono en casos excepcionales.

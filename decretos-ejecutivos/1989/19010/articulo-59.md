@@ -1,0 +1,1 @@
+Artículo 59.- Cuando la solicitud para el ingreso de espectáculos públicos fuere formulada por los Ministerios o Instituciones del Estado, no será necesario cumplir con los requisitos del artículo 57 anterior.

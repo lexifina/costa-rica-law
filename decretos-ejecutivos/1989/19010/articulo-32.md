@@ -1,0 +1,1 @@
+Artículo 32.- la denegatoria del permiso de ingreso en la situación regulada en el presente capítulo, no tiene recurso alguno. Los interesado podrán formular una nueva solicitud, cuando hallan transcurrido cuatro meses después de la denegatoria.

@@ -1,0 +1,1 @@
+Artículo 61.- Los pasajeros en tránsito deberán demostrar su continuación de viaje mediante comprobación de la conexión correspondiente. Quienes quedarán bajo la responsabilidad de la línea aérea correspondiente de conformidad con la ley.

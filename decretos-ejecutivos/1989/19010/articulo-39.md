@@ -1,0 +1,1 @@
+Artículo 39.- Si se tratase de pasaportes vigentes que hayan sido inutilizados, pero que contengan las características esenciales del mismo o que se hayan agotado sus hojas, el titular podrá proveerse de otro y cumplir con todos los requisitos exigidos en el artículo 11 de este reglamento.

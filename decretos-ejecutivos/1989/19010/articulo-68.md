@@ -1,0 +1,1 @@
+Artículo 68.- A los efectos de otorgar el cambio de categoría, la Dirección General tomará en consideración las actividades desarrolladas y los vínculos familiares establecidos durante su permanencia en el país.

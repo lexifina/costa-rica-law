@@ -1,0 +1,1 @@
+Artículo 33.- Los extranjeros que ingresaren al país con visa de este tipo, no podrán permanecer en el territorio nacional más tiempo del que se expresa en la misma. Salvo que tuvieren la condición de inmigrantes o de posibles residentes en cuyo caso, se sujetarán a los plazos establecidos en este reglamento para cada categoría.

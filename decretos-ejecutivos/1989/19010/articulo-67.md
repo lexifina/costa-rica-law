@@ -1,0 +1,1 @@
+Artículo 67.- Los no residentes indicados en los incisos b), c) y ch) del artículo 37 de la Ley General de Migración y Extranjería, que deseen cambiar de categoría migratoria, deberá cumplir con los requisitos indicados en el artículo anterior.

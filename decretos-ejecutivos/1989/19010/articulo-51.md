@@ -1,0 +1,2 @@
+Artículo 51.- El monto mínimo de las inversiones será de doscientos mil dólares moneda de curso legal de los Estados Unidos de América o su equivalente en otras divisas de cambio internacional aceptadas por el Banco Central de la República de Costa Rica. No obstante los proyectos aprobados por CENPRO, en actividades y sectores declarados prioritarios por el Poder Ejecutivo, está inversión podrá ser no menor de cincuenta mil dólares moneda de los Estados Unidos de América.
+El Consejo Nacional de Migración podrá variar estos montos cuando lo considere conveniente.

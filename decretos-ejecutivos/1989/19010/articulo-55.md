@@ -1,0 +1,1 @@
+Artículo 55.- En el caso de las personas de especial relevancia en el ámbito científico, profesional, público, cultural, económico o político, deberán demostrar fehacientemente la existencia de la invitación a visitar Costa Rica, emanada de los Poderes del Estado o Instituciones Públicas o Privadas.

@@ -1,0 +1,1 @@
+Artículo 25.- La autorización para el ingreso de ciudadanos o nacionales de países cuyo acceso a Costa Rica estuviere restringido, corresponderá exclusivamente al Director General, quien la otorgará de conformidad con las disposiciones vigentes. En situaciones especiales, la autorización se hará conjuntamente con el Ministro.

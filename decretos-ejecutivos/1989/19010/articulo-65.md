@@ -1,0 +1,1 @@
+Artículo 65.- Los que tuvieren la categoría de residentes permanentes, podrán variarla cuando adquieran la nacionalidad costarricense de conformidad con lo que establece la Constitución Política y las leyes.

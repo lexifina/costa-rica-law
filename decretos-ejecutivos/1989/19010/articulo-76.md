@@ -1,0 +1,1 @@
+Artículo 76.- Para ejercer el rechazo, bastará la sola comprobación de alguno o algunos de los impedimentos establecidos en la ley o bien la existencia de una orden de impedimento de entrada al país, aplicable al viajero.

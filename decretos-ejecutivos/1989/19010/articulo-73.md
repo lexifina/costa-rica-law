@@ -1,0 +1,1 @@
+Artículo 73.—El extranjero a quien se le confiera la calidad de residente temporal, tendrá derecho de residir en el territorio nacional por el plazo de un ano prorrogable por períodos iguales, a solicitud del interesado y previo cumplimiento de los requisitos establecidos, o que se establecieren para cada una de las subcategorías comprendidas en esta.

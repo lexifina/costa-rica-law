@@ -1,0 +1,1 @@
+Artículo 15.- Los extranjeros residentes permanentes y radicados temporales en el país, para salir del mismo deberá obtener visa de salida. Lo mismo harán aquellos extranjeros a quienes se les hallan vencido el plazo original o prórroga de turismo para permanece en el país.

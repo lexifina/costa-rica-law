@@ -1,0 +1,1 @@
+Artículo 84.- En el pasaporte del extranjero que fuere deportado se estampará un sello de visa de salida, con tinta roja, con plazo máximo de dos días y con inclusión expresa de la palabra "deportado", e indicación de la prohibición de reingresar al país en el término de diez años.

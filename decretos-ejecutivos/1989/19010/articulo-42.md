@@ -1,0 +1,2 @@
+Artículo 42.- Para obtener el permiso vecinal fronterizo el interesado deberá comprobar debidamente que es residente de las zonas limítrofes, mediante presentación de cédula de identidad o cualquier otro documento de identificación, otorgado por las autoridades competentes de los países limítrofes.
+El pase o tarjeta local deberá consignar necesariamente el nombre y apellidos, número del documento de identidad de su país, fecha de otorgamiento y de vencimiento, lugar de destino, firma y sello del funcionario de migración.

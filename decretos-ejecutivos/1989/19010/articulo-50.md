@@ -1,0 +1,1 @@
+Artículo 50.- La solicitud para obtener la categoría de residente inversionista, deberá presentarse ante el Consejo Nacional, cumpliendo con los requisitos establecidos en los artículos precedentes y así mismo deberá acompañarse con un informe expendido por el Centro para la Promoción de las Exportaciones y de las Inversiones (CENPRO)
