@@ -1,4 +1,4 @@
-Artículo 3º.- Deberá la Contraloría General de la República rechazar
+ARTICULO 3º.- Deberá la Contraloría General de la República rechazar
 aquellos egresos que no contengan la documentación completa y los que a su
 juicio no tengan relación con los eventos realizados o no hayan sido
 indispensables o necesarios para los festejos.

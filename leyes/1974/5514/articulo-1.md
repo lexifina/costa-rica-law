@@ -1,64 +1,19 @@
-Artículo 1º.- Refórmase el artículo 11 de la Ley de Radio, Nº 1758 de
-19 de junio de 1954, modificado por leyes Nº 2691 de 22 de noviembre de
-1960; Nº 3700 de 22 de junio de 1966; Nº 3981 de 2 de noviembre de 1967; y
-Nº 4341 de 3 de junio de 1969, en la siguiente forma:
-"Artículo 11.-Los programas de radio y televisión deben contribuir a
-elevar el nivel cultural de la nación.
-Las radioemisoras y televisoras comerciales están obligadas a ceder
-gratuitamente al Ministerio de Educación Pública un espacio mínimo de
-media hora por semana para fines de divulgación científica y cultural.
-Desde la convocatoria a elecciones dicho espacio será cedido al Tribunal
-Supremo de Elecciones para dar instrucciones sobre temas cívico-culturales.
-Cada estación indicará al Ministerio citado y en su oportunidad al
-Tribunal Supremo de Elecciones, el espacio que cede dentro de sus horarios
-de trabajo.
-Adicionalmente las programaciones de radio, televisión y cine se
-regirán por las siguientes reglas:
-a) Sólo podrán radiodifundirse anuncios grabados o doblados por
-locutores costarricenses;
-b) Si los anuncios consistieren en tonadas (jingles) grabados en el
-extranjero deberá pagarse por una sola vez, la suma de mil colones (¢
-1,000.00) de impuesto por cada uno que se trasmita. No podrán
-radiodifundirse sino se acompañan los documentos que certifiquen que
-se ha pagado el impuesto en el Banco Central de Costa Rica;
-c) De los anuncios comerciales filmados que proyecte cada estación de
-televisión o sala de cine cada día, solamente el 50% podrá ser de
-procedencia extranjera al cumplir este artículo un año de vigencia. Al
-cumplir este artículo dos años de vigencia, este porcentaje será del
-40% y al cumplirse tres años de vigencia este porcentaje será únicamente
-del 30%;
-d) La importación de cortos comerciales fuera del área centroamericana
-pagará un impuesto del 100% de su valor pero en ningún caso será inferior a
-diez mil colones (¢ 10,000.00) o superior a cincuenta mil colones (¢
-50,000.00). En todo caso, para que estos cortos puedan ser proyectados
-deben acompañarse los documentos que certifiquen que el impuesto
-correspondiente ha sido debidamente cancelado en el Banco Central de
-Costa Rica.
-e) Se considerarán como nacionales los cortos comerciales de radio,
-cine o televisión confeccionados en cualquiera de los otros países de
-Centro América con los que haya reciprocidad en esta materia;
-f) El número de programas radiales y radionovelas grabadas en el
-extranjero no podrá exceder del 50% de la totalidad de ellas
-radiodifundidas por cada radioemisora diariamente;
-g) El número de programas filmados o grabados en video tape en el
-extranjero no podrá exceder el 70% del total de programas diarios que
-se proyecten. Al cumplir esta ley cinco años de vigencia, este porcentaje
-será únicamente del 60%. Esta disposición no rige para los programas
-de tipo cultural que así sean calificados por el Ministerio de
-Cultura, Juventud y Deportes o que sean importados por el Estado,
-sus Instituciones o por las representaciones de otros países; y
-h) La radioemisora, televisora o sala de cine que incumpla cualquier
-regulación de las establecidas en este artículo pagará una multa de tres
-mil colones (¢ 3,000.00) y la que dejare de pagar cualquiera de los
-impuestos establecidos deberá pagar el doble del impuesto correspondiente
-según el caso.
-Los fondos de las multas establecidas en este artículo se girarán:
-el 50% al Instituto Nacional de Aprendizaje para la formación de
-trabajadores en el campo de la radio, la televisión y la producción
-cinematográfica y el 50% a la Escuela de Locutores que funcionará bajo la
-asesoría del Ministerio de Educación Pública.
+Artículo 1º.- Refórmase el artículo 11 de la Ley de Radio, Nº 1758 de 19 de junio de 1954, modificado por leyes Nº 2691 de 22 de noviembre de 1960; Nº 3700 de 22 de junio de 1966; Nº 3981 de 2 de noviembre de 1967; y Nº 4341 de 3 de junio de 1969, en la siguiente forma:
+Artículo 11.-Los programas de radio y televisión deben contribuir a elevar el nivel cultural de la nación.
+Las radioemisoras y televisoras comerciales están obligadas a ceder gratuitamente al Ministerio de Educación Pública un espacio mínimo de media hora por semana para fines de divulgación científica y cultural.
+Desde la convocatoria a elecciones dicho espacio será cedido al Tribunal Supremo de Elecciones para dar instrucciones sobre temas cívico-culturales.
+Cada estación indicará al Ministerio citado y en su oportunidad al Tribunal Supremo de Elecciones, el espacio que cede dentro de sus horarios de trabajo.
+Adicionalmente las programaciones de radio, televisión y cine se regirán por las siguientes reglas:
+a) Sólo podrán radiodifundirse anuncios grabados o doblados por locutores costarricenses;
+b) Si los anuncios consistieren en tonadas (jingles) grabados en el extranjero deberá pagarse por una sola vez, la suma de mil colones (¢ 1,000.00) de impuesto por cada uno que se trasmita. No podrán radiodifundirse sino se acompañan los documentos que certifiquen que se ha pagado el impuesto en el Banco Central de Costa Rica;
+c) De los anuncios comerciales filmados que proyecte cada estación de televisión o sala de cine cada día, solamente el 50% podrá ser de procedencia extranjera al cumplir este artículo un año de vigencia. Al cumplir este artículo dos años de vigencia, este porcentaje será del 40% y al cumplirse tres años de vigencia este porcentaje será únicamente del 30%;
+d) La importación de cortos comerciales fuera del área centroamericana pagará un impuesto del 100% de su valor pero en ningún caso será inferior a diez mil colones (¢ 10,000.00) o superior a cincuenta mil colones (¢ 50,000.00). En todo caso, para que estos cortos puedan ser proyectados deben acompañarse los documentos que certifiquen que el impuesto correspondiente ha sido debidamente cancelado en el Banco Central de Costa Rica.
+e) Se considerarán como nacionales los cortos comerciales de radio, cine o televisión confeccionados en cualquiera de los otros países de Centro América con los que haya reciprocidad en esta materia;
+f) El número de programas radiales y radionovelas grabadas en el extranjero no podrá exceder del 50% de la totalidad de ellas radiodifundidas por cada radioemisora diariamente;
+g) El número de programas filmados o grabados en video tape en el extranjero no podrá exceder el 70% del total de programas diarios que se proyecten. Al cumplir esta ley cinco años de vigencia, este porcentaje será únicamente del 60%. Esta disposición no rige para los programas de tipo cultural que así sean calificados por el Ministerio de Cultura, Juventud y Deportes o que sean importados por el Estado, sus Instituciones o por las representaciones de otros países; y
+h) La radioemisora, televisora o sala de cine que incumpla cualquier regulación de las establecidas en este artículo pagará una multa de tres mil colones (¢ 3,000.00) y la que dejare de pagar cualquiera de los impuestos establecidos deberá pagar el doble del impuesto correspondiente según el caso.
+Los fondos de las multas establecidas en este artículo,se giraran a la Asociación de Fotógrafos y Camarógrafos de Prensa (AFOCAP),con el objeto de que organicen cursos de superación profesional y otorgue becas a sus asociados.
+(Así reformado el párrafo anterior por el aparte 150) del artículo 9° de la Ley de Presupuesto para el año 1982, N° 6700 del 23 de diciembre de 1981)
 Este artículo deroga cualquier disposición que se le oponga.
-Transitorio.-Los cortos comerciales extranjeros que se están
-actualmente transmitiendo por radio, televisión o cine, deberán pagar los
-impuestos establecidos por este artículo al año de su vigencia para poder
-continuar trasmitiéndose".
+Transitorio.-Los cortos comerciales extranjeros que se están actualmente transmitiendo por radio, televisión o cine, deberán pagar los impuestos establecidos por este artículo al año de su vigencia para poder continuar trasmitiéndose.
+(Así reformado por el artículo 1° de la ley N° 5514 del 12 de abril de 1974)
