@@ -1,1 +1,1 @@
-ARTICULO 4.- Uso obligatorio del español. Las normas prosódicas, ortográficas y gramaticales de la lengua española serán de uso obligatorio en la Administración Pública, la cual deberá prever el asesoramiento y los mecanismos necesarios para cumplir con esta disposición.
+Artículo 4°.- Uso obligatorio del español. Las normas prosódicas, ortográficas y gramaticales de la lengua española serán de uso obligatorio en la Administración Pública, la cual deberá prever el asesoramiento y los mecanismos necesarios para cumplir con esta disposición.
