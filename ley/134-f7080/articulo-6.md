@@ -1,0 +1,1 @@
+ARTÍCULO 6°.-Es una obligación de esta Receptoría proveer a todas las Oficinas pública de papel, tinta y demás útiles necesarios, bajo las formalidades legales; pero nunca se podrán comprar por dicha oficina los útiles que falten, sin orden expresa del Gobierno.

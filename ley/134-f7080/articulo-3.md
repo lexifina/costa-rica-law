@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-La clavería de las cajas de esta Administración estar a cargo del Administrador Tesorero, quien ser el único responsable del manejo y administración de los caudales que entren en aquella oficina.
