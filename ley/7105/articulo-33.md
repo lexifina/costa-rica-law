@@ -1,4 +1,1 @@
-ARTICULO 33.- La distribución de los cargos dentro de la Junta
-Directiva, excepto el de presidente y el de vicepresidente, se efectuará
-en su primera reunión y se comunicará de inmediato, mediante circular, a
-todos los miembros activos del Colegio.
+ARTICULO 33.- La distribución de los cargos dentro de la Junta Directiva, excepto el de presidente y el de vicepresidente, se efectuará en su primera reunión y se comunicará de inmediato, mediante circular, a todos los miembros activos del Colegio.
