@@ -1,0 +1,1 @@
+Art. 10°-El Poder Ejecutivo procederá inmediatamente á ordenar la construcción de un departamento de enfermería en la cárcel de esta capital, siendo de cuenta del Estado la asistencia, alimentación y medicinas de los reos que allí se trasladen con motivo de la conmutación á que se refiere el artículo 5°.
