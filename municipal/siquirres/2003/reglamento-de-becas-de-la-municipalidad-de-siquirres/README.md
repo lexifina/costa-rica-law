@@ -14,3 +14,4 @@ Reglamento de Becas de la Municipalidad de Siquirres
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-23 | la propia norma |
+| 2 | 2004-02-11 | Reglamento municipal 94 (2004-02-11) |
