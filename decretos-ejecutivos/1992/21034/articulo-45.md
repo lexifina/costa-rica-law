@@ -1,4 +1,2 @@
 II. Comisiones Técnicas Regionales de Microbiología y Química Clínica.
-Artículo 45.—En las instituciones que se organicen en regiones y tengan más de un laboratorio, existirá una Comisión Técnica Regional en cada una de las regiones, integrada por cinco miembros.
-Serán elegidos entre los MQC en propiedad de la respectiva región, por medio de voto directo y secreto de los MQC en propiedad o interinos con más de seis meses de trabajar en la región. Durarán en sus funciones dos años, pudiendo ser reelectos. Las personas elegidas, además de estar en propiedad, deben tener como mínimo los requisitos de la categoría de MQC-3 salvo casos de inopia.
-Coordinará esta Comisión el Supervisor Regional, si lo hubiera, si no será nombrado entre los miembros de la Comisión. Nombrará además un representante ante la CTG y un suplente.
+Artículo 45.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 3467 del 20 de julio de 1993.)
