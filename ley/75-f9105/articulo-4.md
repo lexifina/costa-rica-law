@@ -1,0 +1,1 @@
+Art.4. La indemnización de que habla el artículo precedente, se hará con una porción de tierras que designe la Municipalidad, valorada por peritos nombrados por la misma, y puesta en pública subasta, quedándole á los poseedores, si los hubiese, el derecho del tanteo, y el de las cercas ó mejoras que tengan.
