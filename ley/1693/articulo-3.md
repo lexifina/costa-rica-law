@@ -1,0 +1,6 @@
+Artículo 3º.- Cada animal que se exporte deberá estar provisto de un
+certificado veterinario que lo declare libre de toda enfermedad
+infecto-contagiosa y en perfectas condiciones físicas. Tal certificado
+sólo podrá ser extendido por un Veterinario Oficial y sin su presentación
+no podrá el Ministerio dicho otorgar el respectivo permiso de
+exportación.
