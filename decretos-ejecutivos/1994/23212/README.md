@@ -14,3 +14,4 @@ Crea la Red Nacional de Información Agropecuaria.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-17 | la propia norma |
+| 2 | 1996-04-22 | Decreto Ejecutivo 25227 (1996-04-22) |

@@ -1,4 +1,5 @@
-Artículo 18.—El Centro Nacional de Información Agropecuaria (CENIA) de la Secretaría Ejecutiva de Planificación Sectorial Agropecuaria (SEPSA) como coordinador de la Red tendrá las siguientes funciones:
+Artículo 18.—El Programa de Información Agropecuaria (PIAGRO) del Ministerio de Agricultura y Ganadería (MAG) como coordinador de la Red tendrá las siguientes funciones:
+(Así reformado por el articulo N° 1 del decreto ejecutivo N° 25227 de 22 de abril de 1996).
 a) Evaluar y coordinar aspectos técnicos de las unidades de información de la Red.
 b) Diseñar procedimientos uniformes de análisis documental en coordinación con el Comité Técnico.
 c) Canalizar el flujo de información hacia cualquier unidad o ente de la Red.
