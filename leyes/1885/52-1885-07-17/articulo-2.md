@@ -1,0 +1,1 @@
+Art 2°. -Esta Junta será nombrada por el Gobernador de la provincia; durará un año en ejercicio de sus funciones y será renovada por terceras partes, la suerte; en sus deliberaciones tendrán voz y voto consultivo, el Gobernador, Inspector provincial y Jefe Político respectivos.
