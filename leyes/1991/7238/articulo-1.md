@@ -513,9 +513,11 @@ EN FE DE LO CUAL, las partes, actuando a través de sus representantes
 debidamente autorizados, han dispuesto que este Convenio se firme en sus
 respectivos nombres en el Distrito de Columbia, Estados Unidos de América, en
 las fechas antes consignadas.
-Por la REPUBLICA DE COSTA RICA Representante Autorizado
-BANCO INTERNACIONAL DE RECONSTRUCCION Y
-FOMENTO Región de América Latina y el Caribe
+Por la
+REPUBLICA DE COSTA RICA Representante Autorizado
+Por el
+BANCO INTERNACIONAL DE Vice Presidente de la
+RECONSTRUCCION Y FOMENTO Región de América Latina y el Caribe
 ANEXO I
 Retiro de los Fondos del Préstamo
 1. El cuadro a continuación indica las Categorías de los elementos a
@@ -523,76 +525,82 @@ financiar con el importe del Préstamo, la asignación de las cantidades del
 Préstamo en cada categoría y el porcentaje de gastos para componentes que serán
 financiados en cada Categoría.
 Asignación de Sumas del Préstamo
-(Expresada en su Categoría Equivalente % de los Gastos
-en Dólares) que serán Financiados
+Categoría (Expresada en su % de los
+Categoría Equivalente Gastos que
+en Dólares) serán Financiados
 (1) Obras Civiles bajo la
 Parte A del Proyecto
 a) Rehabilitación l8.300.000 56%
 de caminos
 bajo la Parte A.l
 del Proyecto.
-b) Construcción 3.600.000
+b) Construcción
 56%
 de un nuevo
 muelle en Punta-
 renas (parte A.3
-del Proyecto)
-c) Mantenimien- l3.300.000 72%, hasta que
-to periódico las solicitudes
-bajo la Parte de retiro bajo
-A.2 (a) del esta Categoría
-Proyecto. (las Solicitu-
+del Proyecto) 3.600.000 56%
+c) Mantenimien-
+to periódico
+bajo la Parte
+A.2 (a) del
+Proyecto. 13.300.000 72% hasta que
+las solicitudes
+de retiro bajo
+esta Categoría
+(las Solicitu-
 des) hayan lle
 gado al monto
 global de
 EU$4.500.000;
-después de es
-to, 66% hasta
-que las solici
-tudes hayan
-llegado al
+después de esto,
+66% hasta que las
+solicitudes hayan
+llegado hasta el
 monto global de
-EU$9.000.000;
-y 40% de allí
-en adelante.
-Asignación de Sumas del Préstamo
-(Expresada en su % de los Gastos
+EU$9.000.000; y
+40% de allí en
+adelante.
+Asignación de Sumas
+del Préstamo
+Categoria (Expresada en su % de los Gastos
 Categoría Equivalente que serán
 en dólares) Financiados
 (2) Equipos bajo la
 Parte B del Proyecto.
-a) Equipos, ve- 5.000.000 100%
+a) Equipos, ve-
 hículos y
 repuestos bajo
-la Parte B.l
-b) Equipo para 600.000 100%
+la Parte B.l 5.000.000 100%
+b) Equipo para
 el manejo
 de granos bajo
 Parte B.2 del
-Proyecto.
-c) Equipo, ve- 2.000.000 100%
+Proyecto. 600.000 100%
+c) Equipo, ve-
 hículos y
 repuestos bajo
 las Partes B.3,
 B.4, y B.5 del
-Proyecto.
+Proyecto. 2.000.000
+100%
 (3) Asistencia Técnica
 bajo la Parte
 C del Proyecto.
-a) Diseño, in- 3.800.000 100%
+a) Diseño, in-
 geniería a-
 nálisis impacto
 ambiental y su-
 pervisión de
 trabajos civi-
 les bajo Parte
-A del Proyecto.
-b) Asistencia y 3.150.000 100%
+A del Proyecto. 3.800.000 100%
+b) Asistencia y
 estudios de
 capacitación ba-
 jo Parte C del
-Proyecto.
-(4) Disponible l0.250.000 100%
+Proyecto. 3.150.000 100%
+(4) Disponible 10.250.000 100%
 TOTAL 60.000.000
 2. No obstante las provisiones indicadas en el párrafo 1 anterior, no
 se harán retiros por concepto de pagos hechos por gastos antes de la fecha
@@ -684,8 +692,7 @@ Parte C.1 (e) MOPT
 Parte C.2 MOPT
 ANEXO 3
 Plan de Amortización
-Fecha de vencimiento del pago
-Pago del Principal
+Fecha de vencimiento del pag Pago del Principal
 (expresado en dólares)*
 El l de junio y el l de diciembre
 comenzando el l de diciembre, 1995
@@ -696,8 +703,7 @@ Generales, Secciones 3.04 y 4.03.
 Prima por Reembolso Anticipado
 Las siguientes primas se especifican para los propósitos de la
 Sección 3.04 (b) de las Condiciones Generales:
-Tiempo de Reembolso Prima
-La tasa de interés (expresado
+Tiempo de Reembolso Prima La tasa de interés (expresado
 como un porcentaje anual)
 aplicable al saldo pendiente
 del Préstamo el día del
@@ -1492,3 +1498,270 @@ El Prestatario proporcionará o hará que se proporcionen al Banco y de
 manera pronta tras su preparación, cualesquier planes, especificaciones,
 informes, documentos de contratación y calendarios de construcción y
 adquisiciones del Proyecto, así como cualesquier modificaciones o agregados,
+de manera tan detallada como pudiera requerirlo razonablemente el Banco.
+Sección 9.07.- Registros e Informes.
+a) El Prestatario: (i) mantendrá registros y procedimientos adecuados
+para anotar y controlar la marcha del Proyecto (incluyendo su costo y las
+ventajas que producirá), identificar los bienes y servicios financiados con
+fondos del Proyecto y revelar los usos que se darán a estos bienes y
+servicios en el Proyecto; (ii) permitirá a los representantes del Banco
+visitar cualesquier instalaciones y obras comprendidas en el Proyecto y
+examinar los bienes financiados con fondos del Préstamo, así como
+cualesquier plantas, instalaciones, sitios, obras, edificios, propiedades,
+equipos, registros y documentos referentes al cumplimiento de obligaciones
+del Prestatario conforme al Contrato de Préstamo y (iii) proporcionará al
+Banco a intervalos regulares toda la información que el Banco razonablemente
+solicitara en relación con el Proyecto, su costo y, cuando fuese del caso,
+las ventajas que produciría, el gasto de los fondos del Préstamo y los
+bienes y servicios que se hayan financiado con tales fondos.
+b) Ante la adjudicación de cualquier contrato de bienes y servicios
+que deba financiarse con fondos del Préstamo, el Banco podrá publicar una
+descripción de tales bienes y servicios, el nombre y nacionalidad de la
+parte a la que se ha adjudicado el contrato y el precio del contrato.
+c) Prontamente tras la conclusión del Proyecto, pero en todo caso no
+más tarde de seis meses después de la Fecha Límite o de la fecha posterior
+que pudiesen haber convenido a estos efectos el Banco y el Prestatario, el
+Prestatario preparará y proporcionará al Banco un informe de tales
+características y en tal grado de detalle como pudiese razonablemente
+requerir el Banco, sobre la ejecución e inicio de operaciones del Proyecto,
+su costo y las ventajas que de él se derivan o habrán de derivarse, la
+conducta del Prestatario y del Banco en cuanto a sus respectivas
+obligaciones conforme al Contrato de Préstamo y el cumplimiento de los
+propósitos del Préstamo.
+Sección 9.08.- Mantenimiento.
+El Prestatario en todo momento manejará y mantendrá, o hará que se
+manejen y mantengan, cualesquier instalaciones de importancia para el
+Proyecto y con la prontitud requerida hará o verá que se hagan todas las
+reparaciones o reemplazos que sean necesarios.
+Sección 9.09.- Adquisición de Tierras.
+El Prestatario tomará o hará que se tome cualquier acción que sea
+necesaria para adquirir en la forma y ocasión en que sea necesario la tierra
+y derechos sobre la tierra que se requieran para realizar el Proyecto y
+proporcionará al Banco de manera expedita y a solicitud de éste prueba
+satisfactoria para el Banco de que tal tierra y derechos sobre la tierra
+están disponibles para efectos relacionados con el Proyecto.
+ARTICULO X
+Aplicación del Contrato de Préstamo y del Contrato
+de Garantía; No Ejercicio de los Derechos; Arbitraje
+Sección 10.01.- Aplicación.
+Los derechos y obligaciones del Banco, el Prestatario y el Garante
+conforme al Contrato de Préstamo y el Contrato de Garantía serán válidos y
+aplicables de acuerdo con sus términos, no obstante la ley de cualquier
+Estado o de sus subdivisiones en sentido contrario. Ni el Banco, ni el
+Prestatario ni el Garante tendrán derecho en proceso alguno respecto a este
+Artículo a sostener el reclamo de que alguna disposición de estas
+Condiciones Generales o del Contrato de Préstamo o del Contrato de Garantía
+es nula o inaplicable en virtud de cualquier disposición de la Carta de
+Entendimiento del Banco.
+Sección 10.02.- Obligaciones del Garante.
+Excepto por lo dispuesto en la Sección 6.07, las obligaciones del
+Garante conforme al Contrato de Garantía no podrán evacuarse si no es por su
+cumplimiento y sólo en el grado de su cumplimiento. Tales obligaciones no
+requerirán aviso por adelantado, exigencia o acción contra el Prestatario o
+aviso por adelantado o exigencia al Garante respecto a falta cualquiera por
+parte del Prestatario.
+Tales obligaciones no habrán de verse impedidas por: (a) prórrogas,
+antecedentes o concesiones otorgadas al Prestatario; (b) la confirmación o
+falta de confirmación o tardanza en la confirmación de un derecho, poder o
+recurso contra el Prestatario o en relación con cualquier garantía del
+Préstamo; (c) cualquier modificación o ampliación de las disposiciones del
+Contrato de Préstamo contemplada en sus condiciones o (d) cualquier falta de
+cumplimiento por parte del Prestatario de cualquier disposición de cualquier
+ley del Garante.
+Sección 10.03.- No Ejercicio de Derechos.
+Ninguna tardanza u omisión en el ejercicio de un derecho, poder o
+recurso que corresponda a cualquiera de las partes conforme al Contrato de
+Préstamo o al Contrato de Garantía ante cualquier falta impedirá tal
+derecho, poder o recurso ni se considerará anulación de éstos o aceptación
+de tal falta. Ninguna acción de parte alguna ante cualquier falta, ni
+aceptación de ella de cualquier falta, perjudicará o impedirá los derechos,
+poderes o recursos de tal parte en cuanto a cualquier otra falta o a
+cualquier falta subsiguiente.
+Sección 10.04.- Arbitraje.
+a) Las controversias entre las partes del Contrato de Préstamo o entre
+las partes del Contrato de Garantía, así como cualquier reclamo de
+cualquiera de tales partes contra cualquiera de las demás partes que surja
+en el contexto del Contrato de Préstamo o el Contrato de Garantía y que no
+haya sido solventado por acuerdo de las partes será sometido a arbitraje por
+un Tribunal de Arbitraje conforme a lo expuesto a continuación.
+b) Las partes de tal arbitraje serán el Banco, por una parte, y el
+Prestatario y el Garante, por la otra.
+c) El Tribunal de Arbitraje consistirá en tres árbitros nombrados de la
+siguiente manera: un árbitro será nombrado por el Banco; el segundo árbitro
+será nombrado por el Prestatario y el Garante o, si no están de acuerdo, por
+el Garante y el tercer árbitro (en lo sucesivo llamado a veces el
+compromisario) será nombrado por acuerdo entre las partes o, en caso de
+desacuerdo, por el Presidente de la Corte Internacional de Justicia o, de no
+hacer el nombramiento este Presidente, por el Secretario General de Naciones
+Unidas. En el caso de que cualquiera de las partes evitase nombrar un
+árbitro, tal árbitro sería nombrado por el compromisario. En el caso de que
+cualquiera de los árbitros nombrados conforme a estas disposiciones
+renunciara, muriera o se incapacitara, se nombraría un árbitro sucesor de la
+manera aquí prescrita para el nombramiento del árbitro original y el sucesor
+tendrá todos los poderes y responsabilidades de tal árbitro original.
+d) Un procedimiento de arbitraje puede iniciarse conforme a esta
+Sección mediante aviso por la parte que inicia tal procedimiento a la otra
+parte. Tal aviso contendrá una explicación sobre la naturaleza de la
+controversia o reclamo que debe someterse a arbitraje y la naturaleza de la
+reparación perseguida, así como el nombre del árbitro nombrado por la parte
+que inicia el proceso. Dentro de 30 días a partir de la fecha de tal aviso,
+la otra parte notificará a la parte que ha iniciado el proceso el nombre del
+árbitro que tal otra parte ha nombrado.
+e) Si dentro de sesenta días después del aviso de iniciación de proceso
+de arbitraje las partes aún no han llegado a un acuerdo para la designación
+del compromisario, cualquiera de las partes puede solicitar el nombramiento
+de un compromisario conforme al procedimiento contenido en el párrafo c) de
+esta Sección.
+f) El Tribunal de Arbitraje se reunirá en el momento y lugar que
+determine el compromisario. A partir de ese momento, el Tribunal de
+Arbitraje decidirá dónde y cuándo sesionará.
+g) El Tribunal de Arbitraje otorgará a todas las partes una audiencia
+justa y entregará su fallo por escrito. El fallo puede presentarse por
+omisión. Un fallo firmado por la mayoría del Tribunal de Arbitraje
+constituirá el fallo de tal Tribunal. Una copia firmada del fallo será
+enviada a cada parte. Cualquier fallo emitido conforme a las disposiciones
+de esta Sección será definitivo y vinculante para las partes del Contrato de
+Préstamo o del Contrato de Garantía. Cada parte cumplirá con el fallo
+emitido por el Tribunal de Arbitraje, conforme a las disposiciones de esta
+Sección.
+i) Las partes fijarán el monto de remuneración de los árbitros y de
+cualesquiera otras personas que fuesen necesarias para la conducción del
+proceso de arbitraje. Si las partes no están de acuerdo sobre esta suma
+antes de que se reúna el Tribunal de Arbitraje, el Tribunal de Arbitraje
+fijará tal suma de manera razonable según las circunstancias. El Banco, el
+Prestatario y el Garante sufragarán, cada uno en su caso, sus gastos por
+concepto del proceso de arbitraje.
+Los costos del Tribunal de Arbitraje se dividirán y repartirán
+igualmente entre el Banco, por una parte, y el Prestatario y el Garante por
+la otra. Cualquier duda respecto a la división de costos del Tribunal de
+Arbitraje o al procedimiento para el pago de tales costos será evacuada por
+el Tribunal de Arbitraje.
+j) Las disposiciones para el arbitraje establecidas en esta Sección
+reemplazan cualquier otro procedimiento para dirimir controversias entre
+las partes del Contrato de Préstamo y el Contrato de Garantía o reclamos
+por cualquiera de las partes contra cualquiera de las demás partes, que
+pudieran surgir en esas circunstancias.
+k) Si dentro de treinta días después de haberse hecho llegar las copias
+del fallo a las partes éste no se hubiese cumplido, cualquiera de las partes
+podrá:
+(i) introducir el fallo o iniciar proceso de ejecución en cualquier
+corte de jurisdicción competente contra cualquiera de las demás partes; (ii)
+cumplir el fallo por ejecución o (iii) procurar cualquier otro recurso
+adecuado contra la otra parte para el cumplimiento del fallo y de las
+condiciones del Contrato de Préstamo y del Contrato de Garantía. No obstante
+lo anterior, esta Sección no autorizará ninguna acción o aplicación del
+fallo contra cualquier parte que sea miembro del Banco, excepto en el caso
+de que tal procedimiento esté disponible de otra manera que no sea por las
+disposiciones de esta Sección.
+l) La notificación en relación con cualquier procedimiento contemplado
+en esta Sección o en relación con cualquier procedimiento para la aplicación
+de cualquier fallo hecho de conformidad con esta Sección puede hacerse de la
+manera prevista en la Sección ll.0l. Las partes del Contrato de Préstamo y
+el Contrato de Garantía renuncian a cualesquier otros requisitos para hacer
+tal notificación.
+ARTICULO XI
+Disposiciones Misceláneas
+Sección 11.01.- Avisos y Solicitudes.
+Cualquier aviso o solicitud requerido o permitido conforme al Contrato
+de Préstamo o el Contrato de Garantía o conforme a cualquier otro contrato
+entre las partes que sea contemplado por el Contrato de Préstamo o el
+Contrato de Garantía será hecho por escrito. Excepto por lo dispuesto en la
+Sección l2.03, se considerará que tal aviso o solicitud habrá sido hecho o
+emitido debidamente una vez que se entregue por mano, correo, telegrama,
+cable, télex o radiograma a la parte a la que se debe o se permite hacer tal
+notificación en la dirección de esa parte que está especificada en el
+Contrato de Préstamo o en el Contrato de Garantía o en la dirección que tal
+parte haya indicado mediante aviso a la parte que da tal aviso o hace tal
+solicitud.
+Sección ll.02.- Prueba de Autoridad.
+El Prestatario y el Garante proporcionarán al Banco suficiente prueba
+de autoridad de la persona o personas que, en nombre del Prestatario o del
+Garante, puede o pueden tomar acción o suscribir documentos conforme sea
+permitido al Prestatario según el Contrato de Préstamo o al Garante según el
+Contrato de Garantía, así como el facsímil autenticado de la firma de cada
+una de estas personas.
+Sección ll.03.- Acciones en Nombre del Prestatario o del Garante.
+Cualquier acción requerida o permitida y cualesquier documentos que se
+requiera o permita suscribir conforme al Contrato de Préstamo o el Contrato
+de Garantía en nombre del Prestatario o del Garante puede ser emprendida o
+ejecutada por parte del representante del Prestatario o del Garante
+designado en el Contrato de Préstamo o en el Contrato de Garantía a los
+efectos de esta Sección o por cualquier persona con autorización escrita de
+tal representante. Cualquier modificación o ampliación de las condiciones
+del Contrato de Préstamo o del Contrato de Garantía puede convenirse en
+nombre del Prestatario o del Garante mediante un instrumento escrito
+suscrito en nombre del Prestatario o del Garante por el representante
+designado de tal manera o por cualquier persona con autorización expresa por
+escrito de tal representante; siempre y cuando en la opinión de tal
+representante tal modificación o ampliación es razonable en tales
+circunstancias y no aumentará sustancialmente las obligaciones del
+Prestatario según el Contrato de Préstamo o del Garante según el Contrato de
+Garantía. El Banco puede aceptar la suscripción de cualquier documento de
+tal naturaleza por parte de tal representante u otra persona como prueba
+concluyente de que en la opinión de tal representante cualquier modificación
+o ampliación de las disposiciones del Contrato de Préstamo o del Contrato de
+Garantía que tal instrumento introduzca es razonable en tales circunstancias
+y no aumentará sustancialmente las obligaciones del Prestatario o del
+Garante.
+Sección 11.04.- Firma de copias.
+El Contrato de Préstamo y el Contrato de Garantía pueden ser firmados
+en diversos tantos, cada uno de los cuales constituirá un original.
+ARTICULO XII
+Fecha Efectiva; Terminación
+Sección 12.01.- Condiciones Precedentes a la Efectividad del Contrato
+de Préstamo y del Contrato de Garantía.
+El Contrato de Préstamo y el Contrato de Garantía no serán efectivos
+hasta que se proporcione al Banco prueba satisfactoria de que:
+a) la firma y entrega del Contrato de Préstamo y del Contrato de
+Garantía en nombre del Prestatario y del Garante han sido debidamente
+autorizadas o ratificadas por todas las instancias gubernamentales y
+corporativas;
+b) si el Banco así lo solicita, la condición del Prestatario (que no
+sea miembro del Banco) tal cual fue presentada al Banco en la fecha del
+Contrato de Préstamo no ha sufrido cambio material adverso desde ese momento y
+c) todas las incidencias especificadas en el Contrato de Préstamo
+como condiciones de efectividad han ocurrido.
+Sección 12.02.- Opiniones Legales o Certificados.
+Como parte de la prueba que debe presentarse conforme a la Sección
+12.01 se proporcionará al Banco opinión u opiniones a satisfacción del
+Banco, de parte de expertos aceptables para el Banco o, si el Banco así lo
+requiere, un certificado a satisfacción del Banco de autoridad competente
+del miembro del Banco que es Prestatario o Garante, mostrando lo siguiente:
+a) en nombre del Prestatario, que el Contrato de Préstamo ha sido
+debidamente autorizado o ratificado por el Prestatario y firmado y entregado
+en su nombre y que es legalmente vinculante para el Prestatario de
+conformidad con sus términos;
+b) en nombre del Garante, que el Contrato de Garantía ha sido
+debidamente autorizado o ratificado por el Garante y firmado y entregado en
+su nombre y que es legalmente vinculante para el Garante de conformidad con
+sus términos;
+c) cualesquier otros asuntos que se especifiquen en el Contrato de
+Préstamo o que sean razonablemente solicitados por el Banco en este
+sentido.
+Sección 12.03.- Fecha Efectiva.
+(a) Excepto por lo que pudieren acordar el Banco y el Prestatario en
+sentido distinto, el Contrato de Préstamo y el Contrato de Garantía entrarán
+en vigor en la fecha en la cual el Banco envía al Prestatario y al Garante
+el aviso de su aceptación de las pruebas; requeridas por la Sección 12.01.
+b) Si, antes de la Fecha Efectiva, ocurriera cualquier cosa que hubiese
+facultado al Banco para suspender el derecho del Prestatario a hacer retiros
+de la Cuenta de Préstamo si el Contrato de Préstamo hubiese estado en
+vigencia, el Banco puede posponer el envío del aviso citado en el párrafo
+(a) de esta Sección hasta que deje de ocurrir tal cosa.
+Sección 12.04.- Terminación del Contrato de Préstamo y del Contrato
+de Garantía por imposibilidad de hacerse efectivos.
+Si el Contrato de Préstamo no ha entrado en vigor a la fecha
+especificada en el Contrato de Préstamo a efectos de esta Sección, el
+Contrato de Préstamo y el Contrato de Garantía, así como todas las
+obligaciones de las partes se darán por terminadas, a menos que el Banco,
+tras considerar las razones de la tardanza, establezca una fecha posterior
+para los efectos de esta Sección. El Banco notificará con prontitud al
+Prestatario y al Garante acerca de una tal fecha posterior.
+Sección 12.05.- Terminación del Contrato de Préstamo y del Contrato
+de Garantía por Pago del Total.
+Una vez que todo el principal del Préstamo retirado de la Cuenta de
+Préstamo y la prima, si la hubiese, sobre el pago previo del Préstamo, así
+como todos los intereses y otros cargos que se hubiesen acumulado sobre el
+Préstamo, sean liquidados, el Contrato de Préstamo y el Contrato de
+Garantía, así como todas las obligaciones de las partes, terminarán en ese
+acto.
