@@ -1,4 +1,1 @@
-ARTÍCULO 12.- Los derechos de cada condómino en las cosas comunes no
-podrán enajenarse, gravarse, embargarse ni trasmitirse independientemente,
-por ser inherentes a la propiedad de la respectiva finca filial y, en
-consecuencia, inseparables de dicha propiedad.
+ARTÍCULO 12.- Los derechos de cada condómino en las cosas comunes no podrán enajenarse, gravarse, embargarse ni trasmitirse independientemente, por ser inherentes a la propiedad de la respectiva finca filial y, en consecuencia, inseparables de dicha propiedad.

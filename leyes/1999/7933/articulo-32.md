@@ -1,7 +1,1 @@
-ARTÍCULO 32.- Si no existe administrador o este no actúa, o bien, si
-el administrador está incapacitado, cualquiera de los propietarios podrá
-ejecutar por sí solo los actos impostergables de conservación y
-administración. Además, tendrá derecho a cobrarles a los demás
-propietarios mediante la debida demostración, el pago proporcional de los
-gastos y el tiempo dedicado. El refrendo de dichos gastos por parte de un
-contador público autorizado será prueba suficiente de que existen.
+ARTÍCULO 32.- Si no existe administrador o este no actúa, o bien, si el administrador está incapacitado, cualquiera de los propietarios podrá ejecutar por sí solo los actos impostergables de conservación y administración. Además, tendrá derecho a cobrarles a los demás propietarios mediante la debida demostración, el pago proporcional de los gastos y el tiempo dedicado. El refrendo de dichos gastos por parte de un contador público autorizado será prueba suficiente de que existen.

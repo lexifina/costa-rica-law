@@ -1,10 +1,2 @@
-ARTÍCULO 22.- Las obligaciones a cargo del propietario lo exigirán en
-forma directa, aunque no ocupe personalmente el inmueble. En este caso,
-cuando el propietario no lo habite, utilice ni ocupe, quienes lo habiten,
-utilicen u ocupen responderán de las infracciones, sin perjuicio de la
-responsabilidad civil solidaria del propietario.
-La administración del condominio, previo otorgamiento de poder por
-parte del condómino respectivo, podrá ejercer acción de desahucio en
-contra del ocupante no propietario, que en forma reiterada infrinja el
-reglamento del condominio o altere la convivencia normal de todos los
-condóminos.
+ARTÍCULO 22.- Las obligaciones a cargo del propietario lo exigirán en forma directa, aunque no ocupe personalmente el inmueble. En este caso, cuando el propietario no lo habite, utilice ni ocupe, quienes lo habiten, utilicen u ocupen responderán de las infracciones, sin perjuicio de la responsabilidad civil solidaria del propietario.
+La administración del condominio, previo otorgamiento de poder por parte del condómino respectivo, podrá ejercer acción de desahucio en contra del ocupante no propietario, que en forma reiterada infrinja el reglamento del condominio o altere la convivencia normal de todos los condóminos.
