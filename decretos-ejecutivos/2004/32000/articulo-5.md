@@ -1,0 +1,1 @@
+Artículo 5º—Modificaciones a los términos contratados. El prestatario deberá informar a la Tesorería Nacional cualquier modificación de la información suministrada, mediante copia de la documentación que contenga dichas modificaciones, en un plazo no mayor de cinco días hábiles después de la fecha de la modificación.

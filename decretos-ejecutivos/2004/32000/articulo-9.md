@@ -1,0 +1,1 @@
+Artículo 9º—Ejecución del servicio de la deuda. El Gobierno de la República y las instituciones del sector público no bancario deberán ejecutar el pago del servicio de cada uno de sus créditos externos, así como el de otros pasivos y obligaciones con entidades del exterior, en atención a las disposiciones que al efecto establezca el Banco Central de Costa Rica.

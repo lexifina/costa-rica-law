@@ -1,0 +1,1 @@
+Artículo 8º—Desembolsos en bienes y servicios. En el caso de desembolsos en bienes y servicios, el prestatario deberá brindar a la Tesorería Nacional, la información referente a cada desembolso en un plazo no mayor de cinco días hábiles a partir del día en que fue recibido.
