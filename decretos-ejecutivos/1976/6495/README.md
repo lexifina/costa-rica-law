@@ -17,3 +17,4 @@ Concede a los artesanos y pequeños industriales la exoneración del 100% de los
 | 2 | 1981-05-25 | Decreto Ejecutivo 12664 (1981-05-25) |
 | 3 | 1983-04-28 | Decreto Ejecutivo 14487 (1983-04-28) |
 | 4 | 1984-10-22 | Decreto Ejecutivo 15790 (1984-10-22) |
+| 5 | 1989-05-18 | Decreto Ejecutivo 18996 (1989-05-18) |
