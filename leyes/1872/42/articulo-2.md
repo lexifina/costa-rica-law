@@ -1,0 +1,1 @@
+Art 2° Para auxiliar a los Gobernadores en las funciones que la ley les atribuye en el importe ramo de la policía, al Poder Ejecutivo nombrará uno o dos agentes principales de Policía en las capitales de Provincia, según lo exijan las necesidades locales, con la denominación de “Primero” y “Segundo” donde hubiese dos, y de “Único” donde solo haya uno.
