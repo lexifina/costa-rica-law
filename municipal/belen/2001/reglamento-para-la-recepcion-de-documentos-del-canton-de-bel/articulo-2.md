@@ -1,0 +1,1 @@
+Artículo 2°—Dependencia única especializada: Para la aplicación del presente reglamento, se designa a la Unidad de Servicio al Cliente como dependencia única especialidad de la Municipalidad de Belén, con competencia exclusiva para recibir y luego distribuir toda clase de correspondencia y documentación que se presente a la Municipalidad de Belén.

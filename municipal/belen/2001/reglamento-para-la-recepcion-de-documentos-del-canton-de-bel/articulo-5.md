@@ -1,0 +1,1 @@
+Artículo 5°—Una vez que la Unidad del Servicio al Cliente haya recibido los documentos, los distribuirá, a la mayor brevedad posible, a las diferentes dependencias municipales a las que vayan dirigidos, debiendo dejar constancia de la entrega en un libro, que para tales efectos deberá llevar dicha unidad, debidamente ordenado.

@@ -1,0 +1,2 @@
+Artículo 3°— La Unidad de Servicio al Cliente deberá contar con un sello único, que deberá contener, al menos, la siguiente información:
+"Municipalidad de Belén, Oficina de Recepción de Documentos, Recibido, Fecha:, Hora:, Firma del Funcionario que Recibe" Este sello se pondrá, en forma visible, lanío en el libelo presentado a la Municipalidad como en la copia del libelo que se lleva quien presenta el original. También se deberá contar con un reloj de pared el cual marcará la hora oficial del Ayuntamiento.
