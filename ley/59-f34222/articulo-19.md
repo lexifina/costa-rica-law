@@ -1,9 +1,1 @@
-Artículo 19.- Los propietarios de los predios en que se efectúen
-construcciones del carácter indicados en el artículo anterior están
-obligados a cuidar de su conservación y son responsables ante el
-Instituto y penalmente, de su deterioro o destrucción, siempre que el
-daño constatado no se deba a fuerza mayor. Esta obligación de los
-propietarios será cumplida sin gravamen para el Instituto, pero quedará
-sujeto a indemnización y pago por la tala de árboles y la apertura de
-sendas, carriles o brechas toda vez que el propietario pueda justificar
-debidamente el perjuicio que se le ocasiona.
+Artículo 19.- Los propietarios de los predios en que se efectúen construcciones del carácter indicados en el artículo anterior están obligados a cuidar de su conservación y son responsables ante el Instituto y penalmente, de su deterioro o destrucción, siempre que el daño constatado no se deba a fuerza mayor. Esta obligación de los propietarios será cumplida sin gravamen para el Instituto, pero quedará sujeto a indemnización y pago por la tala de árboles y la apertura de sendas, carriles o brechas toda vez que el propietario pueda justificar debidamente el perjuicio que se le ocasiona.
