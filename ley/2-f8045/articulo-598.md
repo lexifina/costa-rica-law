@@ -1,14 +1,1 @@
-Artículo 598.- Queda prohibido a los Inspectores, bajo pena de
-suspensión hasta por un mes sin goce de sueldo, o de destitución de su
-cargo, según la gravedad de la infracción:
-a) Divulgar los datos que obtengan con motivo de las inspecciones, sin
-perjuicio de cualesquiera otras responsabilidades, penales o
-civiles, en que hayan podido incurrir si revelaren secretos
-industriales o comerciales de que hubieren tenido conocimiento en
-razón de su cargo;
-b) Asentar hechos falsos en las actas que levanten o informes que
-rindan, sin perjuicios de las otras responsabilidades a que se
-refiere el inciso anterior;
-c) Aceptar dádivas de los patronos o de los trabajadores de la zona
-cuya vigilancia les esté encomendada, y
-d) Extralimitarse en el desempeño de sus funciones.
+ARTICULO 598.-(Derogado por el artículo 119 de la ley Nº 1860 de 21 de abril de 1955 y por el artículo 139 de la ley Nº 3095 de 18 de febrero de 1963, la cual reprodujo íntegramente la anterior.)

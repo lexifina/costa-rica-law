@@ -1,5 +1,2 @@
-Sección V.- De los procedimientos de jurisdicción y de las
-competencias:
-Artículo 413.- En cuestiones de trabajo la jurisdicción es
-improrrogable por razón de la materia y tampoco podrá serlo por razón
-del territorio en perjuicio del trabajador.
+ARTICULO 413.- Todos los miembros del Tribunal Superior de Trabajo durarán cuatro años en sus cargos y su remuneración será la que establezca la Corte Plena de conformidad con la Ley de Salarios del Poder Judicial.
+(Así reformado por el artículo 1º de la ley N° 4571 de 30 de abril de 1970)

@@ -1,8 +1,7 @@
-CAPITULO SEGUNDO
-De la Inspección General de Trabajo
-Artículo 585.- La Inspección General de Trabajo, por medio de su
-cuerpo de Inspectores, velará por que se cumplan y respeten todas las
-disposiciones legales relativas a trabajo y a previsión social.
-En lo referente a la Ley de Seguro Social y a sus Reglamentos, se
-limitará a prestar la colaboración y el auxilio que le soliciten los
-Inspectores de la Caja Costarricense de Seguro Social.
+TITULO OCTAVO
+DEL REGIMEN DE LOS SERVIDORES DEL ESTADO Y DE SUS INSTITUCIONES
+CAPITULO UNICO
+Disposiciones especiales para los servidores del Estado y de sus Instituciones
+(Nota: La numeración de este Título fue modificada en su totalidad por el artículo 3º de la ley No.7360 del 4 de noviembre de 1993. Por ello, el antiguo 578 pasa a ser el actual 585 y el 579 pasa a ser el actual 586)
+ARTICULO 585.- Trabajador del Estado o de sus Instituciones, es toda persona que preste a aquél o a éstas un servicio material, intelectual o de ambos géneros, en virtud del nombramiento que le fuere expedido por autoridad o funcionario competente, o por el hecho de figurar en las listas del presupuesto o en las de pago por planillas.
+Cualquiera de estas últimas circunstancias sustituye, para todos los efectos legales, al contrato escrito de trabajo.

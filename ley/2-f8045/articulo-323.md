@@ -1,6 +1,3 @@
-Artículo 323.- La Asamblea General o, en su caso, la Asamblea de
-Delegados, será convocada con ocho días de anticipación por el Gerente.
-Podrá reunirse válidamente con asistencia de las dos terceras
-partes de sus miembros, pero si no hubiere quórum se hará nueva
-convocatoria y en este caso será suficiente con que asistan la mitad más
-una de las personas que la integran.
+ARTICULO 323.- En materia de faltas o infracciones a los términos de este Título o sus reglamentos, no se suspenderá la jurisdicción por excusas o recusación, ni por la excepción o declaratoria de incompetencia que se formule.
+Cuando surja uno de estos incidentes y el tribunal de trabajo que conoce del juzgamiento deba remitir el expediente a otra autoridad judicial, dejará testimonio de las piezas que juzgue indispensables para continuar, válidamente, recibiendo las pruebas o levantando la información que proceda. Sin embargo, se abstendrá de dictar sentencia hasta tanto no se resuelva en definitiva la articulación.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,6 +1,3 @@
-Artículo 489.- Salvo que el presente Código autorice expresamente un
-trámite especial, en estos juicios todos los incidentes se resolverán
-en sentencia, a menos que por su naturaleza puedan o deban decidirse
-inmediatamente que se formulen. En la primera hipótesis, una vez
-interpuestos, se dará audiencia por veinticuatro horas a la contraria;
-y en el segundo caso, se resolverán de plano.
+ARTICULO 489.- El Juez también podrá ordenar para mejor proveer, en cualquier momento, aquellas otras diligencias probatorias que estime necesarias para el mejor esclarecimiento de los hechos.
+Siempre que falten bases y pruebas para resolver de una vez en sentencia las cuestiones de fondo del juicio junto con las indemnizaciones correspondientes, el Juez en forma explícita les prevendrá a las partes que suplan la omisión dentro de un plazo que no excederá de ocho días, bajo el apercibimiento de desestimar en sentencia los puntos acerca de los cuales no haya sido acatada la orden.
+(Así reformado por el artículo 1° de la ley N° 668 del 14 de agosto de 1946)

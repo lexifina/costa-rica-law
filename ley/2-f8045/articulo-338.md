@@ -1,8 +1,3 @@
-Artículo 338.- El capital social correspondiente a los aportes hechos
-por los socios se representará siempre en acciones o títulos de igual
-valor nominal que, salvo el caso de las cooperativas escolares, nunca
-podrá ser inferior a cincuenta colones.
-Las acciones serán nominativas e indivisibles, contendrán las
-especificaciones o leyendas que acuerde la Junta Directiva, y se
-clasificarán en series numeradas, una por cada emisión o aumento de
-capital.
+ARTICULO 338.- Las únicas penas que se impondrán a las organizaciones sociales son la de multa, siempre que de conformidad con el presente Código se hagan acreedoras a ella, y la de disolución, en los casos expresamente señalados en ese Título.
+No obstante, sus directores serán responsables conforme a las leyes de trabajo y a las de orden común de todas las infracciones o abusos que cometan en el desempeño de sus cargos.
+(La Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982, artículo 2º, trasladó el original 268 al presente)

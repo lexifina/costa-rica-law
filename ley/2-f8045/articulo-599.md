@@ -1,10 +1,1 @@
-Artículo 599.- Serán suspendidos sin goce de sueldo hasta por
-quince días y destituídos en caso de más de una reincidencia, los
-Inspectores:
-a) Que no remitan dentro del término de tres días, a la autoridad de
-que dependen, las actas de visita que levanten;
-b) Que no visiten con regularidad, en los términos del Reglamento
-respectivo, los lugares de trabajo de la región cuya vigilancia les
-está encomendada y
-c) Que en cualquier otra forma incumplan los deberes propios de su
-cargo.
+ARTICULO 599.-(Derogado por el artículo 119 de la ley Nº 1860 de 21 de abril de 1955 y por el artículo 139 de la ley Nº 3095 de 18 de febrero de 1963, la cual reprodujo íntegramente la anterior.)

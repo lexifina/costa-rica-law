@@ -1,4 +1,3 @@
-Artículo 380.- El hecho de que un paro o una huelga terminen por
-arreglo directo entre patronos y trabajadores o por decisión judicial,
-no exime de responsabilidad a los que hubieren cometido delitos o faltas
-con motivo del conflicto.
+ARTICULO 380.- El paro será legal si los patronos se ajustan a los requisitos previstos por los artículo 379 y 373(*), inciso b), y dan luego a sus trabajadores un aviso con un mes de anticipación para el solo efecto de que éstos puedan dar por terminados sus contratos, sin responsabilidad para ninguna de las partes, durante ese período.
+Este aviso se dará en el momento de concluirse los procedimientos de conciliación.
+(*)(Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración de los antiguos artículos 372 y 366, siendo ahora 379 y 373)

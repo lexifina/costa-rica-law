@@ -1,8 +1,2 @@
-Artículo 257.- En lo que concierne al Estado, el Congreso incluirá,
-cada año, en el Presupuesto, las sumas necesarias para sufragar el monto
-de las indemnizaciones o del seguro de sus trabajadores.
-En lo concerniente a los Municipios y a las Instituciones
-dependientes de éstos o del Estado, los organismos encargados de dar la
-aprobación definitiva a sus respectivos presupuestos se abstendrán de
-hacerlo mientras no se incluyan en ellos las sumas de que habla el
-párrafo anterior.
+ARTICULO 257.- Tratándose de menores de edad, la conmutación de rentas sólo procederá por vía de excepción cuando sea recomendada por el Instituto Nacional de Seguros, en cuyo caso se pondrán todos los antecedentes en conocimiento del Tribunal Superior de Trabajo que corresponda, para que resuelva. El Tribunal solicitará el criterio del Patronato Nacional de la Infancia sobre su utilidad y necesidad. Este criterio deberá rendirse en un plazo no mayor de ocho días hábiles.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,5 +1,2 @@
-Artículo 290.- La Junta Directiva de todo sindicato, federación o
-confederación de sindicatos de trabajadores tiene personería para
-representar judicial y extrajudicialmente a cada uno de sus miembros,
-en la defensa de sus intereses individualmente de carácter
-económico-social, siempre que éstos expresamente lo soliciten.
+ARTICULO 290.- La licencia de construcción, reforma, traslado, o ampliación de un centro de trabajo deberá contar con la aprobación del Consejo de Salud Ocupacional.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

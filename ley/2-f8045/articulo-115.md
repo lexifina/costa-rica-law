@@ -1,3 +1,1 @@
-Artículo 115.- El patrono puede despedir sin responsabilidad de su
-parte al aprendiz que adolezca de incapacidad manifiesta para el arte,
-profesión u oficio de que se trate.
+ARTICULO 115.- (Derogado por el artículo 29° de la Ley de Aprendizaje, N° 4903 de 17 de noviembre de 1971)

@@ -1,6 +1,3 @@
-Artículo 320.- Tampoco podrá constituirse ninguna cooperativa con un
-número menor de veinte socios, salvo que en casos muy calificados, y
-atendiendo únicamente a la clase de sociedad, la Secretaría de Trabajo
-y de Previsión Social reduzca prudencialmente este límite.
-Dicha reducción nunca podrá acordarse para las cooperativas de
-consumo.
+ARTICULO 320.- De inmediato que un juez de trabajo tenga noticias, por impresión propia, de haberse cometido dentro de su jurisdicción territorial alguna falta o infracción a los términos de este Título o sus reglamentos, procederá a la pronta averiguación del hecho, a fin de imponer sin demora la sanción correspondiente.
+Al efecto, podrá requerir el auxilio de las autoridades de policía o de trabajo de cada localidad, para que éstas levanten la información necesaria y le devuelvan los autos, una vez que estén listos para el fallo.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

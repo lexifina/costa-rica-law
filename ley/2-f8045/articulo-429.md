@@ -1,11 +1,4 @@
-Artículo 429.- En cuestiones de trabajo no es necesario depósito alguno
-de dinero para recusar, pero el que intentare una recusación que fuere
-declarada improcedente, será condenado en el auto respectivo a una multa
-que no baje de veinticinco ni exceda de cien colones y en las costas del
-incidente. Cuando la recusación se dedujere contra más de un
-funcionario, la multa se aplicará por cada uno separadamente.
-El Tribunal regulará el monto de la corrección disciplinaria
-atendiendo a la calidad de patrono o de trabajador de quien interpuso
-la articulación, y si juzgare que hubo temeridad del abogado director
-al aconsejar la recusación improcedente, le impondrá la multa sólo a
-éste.
+SECCION Vl
+De los impedimentos, de las recusaciones y de las excusas:
+ARTICULO 429.- El Título Noveno de la Ley Orgánica del Poder Judicial sobre impedimentos, recusaciones y excusas, es aplicable a los Tribunales de Trabajo.
+No obstante, se entenderá comprendido por la causal que prevé el artículo 201, inciso tercero, de la mencionada ley, al que hubiere sido en los doce meses anteriores patrono o trabajador o en cualquier forma hubiere dependido económicamente de alguna de las partes; e igualmente se asimilará, para los efectos del inciso noveno de la misma disposición, cualquier conflicto individual o colectivo de trabajo a los de carácter civil.

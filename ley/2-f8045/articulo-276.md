@@ -1,17 +1,4 @@
-Artículo 276.- Son atribuciones exclusivas de la Asamblea General:
-a) Nombrar cada año a los miembros de la Junta Directiva, quienes sólo
-podrán ser reelectos una vez.
-b) Aprobar la confección inicial y las reformas posteriores de los
-estatutos;
-c) Dar la aprobación definitiva, en lo que se refiere al sindicato,
-a las convenciones y contratos colectivos que la Junta Directiva
-celebre;
-d) Fijar el monto de las cuotas ordinarias y extraordinarias;
-e) Declarar las huelgas o paros legales;
-f) Acordar la unión o la fusión con otros sindicatos;
-g) Aprobar o improbar los presupuestos anuales que deberá elaborar la
-Junta Directiva;
-h) Autorizar toda clase de inversiones mayores de cien colones, e
-i) Cualesquiera otras que expresamente le confieran los estatutos o
-este Código, o que sean propias de su carácter de suprema autoridad
-del sindicato.
+ARTICULO 276.- Los miembros del Consejo de Salud Ocupacional serán electos por períodos de tres años y podrán ser reelectos. El consejo sesionará ordinariamente cuatro veces al mes y extraordinariamente cuando así lo acuerden, o sea convocado por el Presidente para atender asuntos de urgencia.
+El quórum para las sesiones del Consejo lo formarán cinco de sus miembros.
+Las dietas las determinará el reglamento respectivo. En ningún caso se remunerarán más de seis sesiones por mes.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

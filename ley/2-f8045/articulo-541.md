@@ -1,22 +1,2 @@
-Artículo 541.- Ocurrida la muerte del trabajador o fijada, en su
-caso, la incapacidad permanente, parcial o absoluta, por dictamen
-médico, el Juez de Trabajo convocará de oficio a las partes para que
-ante él lleguen, si fuere posible, a un arreglo sobre sus respectivos
-derechos y obligaciones. Se prescindirá de esta convocatoria sólo en
-los casos en que el patrono, al presentar el aviso sobre el resultado
-final del riesgo profesional ocurrido, acompañe constancia auténtica del
-arreglo pactado entre las partes, ajustado, a juicio del Juez, a las
-prescripciones legales. Es entendido que todos los gastos que demande
-la formalización de dicho arreglo serán de cuenta del patrono.
-La convocatoria será también imprescindible cuando el trabajador
-la solicite y en todos los casos de incapacidad temporal en que el
-patrono no diere oportunamente el aviso sobre el resultado final de
-riesgo profesional, con su respectivo dictamen médico, en los términos
-del artículo 545.
-Se entenderá auténtica la constancia a que se refiere el párrafo
-trasanterior, cuando así lo certifiquen, bajo su responsabilidad, un
-abogado o un Inspector de Trabajo, o cuando el patrono y el trabajador
-la presenten conjuntamente ante el Tribunal.
-Si el Juez aprobare el arreglo dictará la resolución
-correspondiente y, sin pérdida de tiempo, procederá siempre a
-consultarla con el Superior.
+ARTICULO 541.- El Presidente de cada Tribunal de Conciliación y de Arbitraje tendrá la más amplia libertad para notificar y citar a las partes o a los delegados de éstas por medio de las autoridades de policía o de trabajo, de telegramas o en cualquier otra forma que las circunstancias y su buen criterio le indiquen como segura. Estas diligencias no estarán sujetas a más formalidad que la constancia que se pondrá en autos de haber sido realizadas y, salvo prueba fehaciente en contrario, se tendrán por auténticas.
+(La Sala Constitucional, mediante resolución N° 1696 del 23 de junio de 1992, declaró inconstitucional el presente artículo “…respecto de las administraciones públicas con régimen de empleo de naturaleza pública…”. “…Igualmente, considera necesario la Sala hacer la aclaración de tener por excluidos de este régimen, a los obreros, trabajadores y empleados que no participan de la gestión pública de la administración, cuando los mismos sean contratados por el Estado conforme al ejercicio de su capacidad de Derecho Privado…” De acuerdo con el contenido de la sentencia, los procedimientos de resolución de los conflictos colectivos de carácter económico y social, no son aplicables del todo a las administraciones regidas por el derecho público de empleo, ni al resto de las administraciones, en tanto no se subsanen las omisiones referentes a la falta de un régimen administrativo laboral adecuado a nuestro texto constitucional, y no se cree una norma administrativa expresa que permita al Estado, someterse a los tribunales de arbitraje en aras de solucionar conflictos colectivos.)

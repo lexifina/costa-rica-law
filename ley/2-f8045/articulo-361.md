@@ -1,13 +1,3 @@
-Artículo 361.- Las federaciones de cooperativas se regirán por las
-disposiciones de este Capítulo, en lo que fueren compatibles con las
-siguientes:
-a) Se constituirán siempre bajo la forma de responsabilidad limitada;
-b) La sociedad que no cumpliere sus compromisos con la institución
-perderá el ejercicio de sus derechos mientras esté en mora;
-c) El derecho de retiro sólo podrá ejercerse al terminar cada año
-social;
-d) Sus estatutos determinarán, además de los requisitos aplicables que
-exige el artículo 317, la forma en que las cooperativas se harán
-representar en la Asamblea General, y
-e) El acta constitutiva expresará los nombres y domicilios de todas
-las cooperativas que se federen.
+ARTICULO 361.- El Ministerio de Trabajo y de Seguridad Social se encargará de fomentar el desarrollo del movimiento sindical en forma armónica y ordenada, por todos los medios legales que juzgue convenientes. Al efecto, dictará por medio de decretos ejecutivos todas las disposiciones que sean necesarias, en los casos ocurrentes, para garantizar la efectividad del derecho de sindicalización.
+(El nombre de la entidad fue así reformado por el artículo 1º la Ley No. 3372 del 6 de agosto de 1964 y también la ley Nº 5089 del 18 de octubre de 1972 modificó su nombre)
+(La Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982, artículo 2º, trasladó el original 291 al presente)

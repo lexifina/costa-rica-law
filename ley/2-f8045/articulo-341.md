@@ -1,9 +1,3 @@
-Artículo 341.- Las acciones o cuotas de los socios sólo podrán ser
-embargadas por los acreedores de la sociedad, dentro de los límites del
-capital y responsabilidades sociales. Dichos acreedores podrán ejercer
-los derechos de la cooperativa, relativos a los aportes del capital no
-pagado siempre que fueren exigibles y necesarios para el pago de las
-deudas sociales.
-Este privilegio otorgado a los referidos acreedores no excluye los
-derechos preferentes de la cooperativa, cuando ésta tenga que proceder
-contra sus socios.
+ARTICULO 341.- A nadie se puede obligar a formar parte de un sindicato o a no formar parte de él.
+El ejercicio de la facultad de libre separación no exonera a la persona saliente de cubrir las obligaciones de carácter económico que tenga pendientes con el sindicato.
+(La Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982, artículo .2º, trasladó el original 271 al presente)

@@ -1,11 +1,3 @@
-Artículo 204.- También se entenderá por riesgo profesional toda lesión,
-enfermedad o agravación que sufra posteriormente el trabajador como
-consecuencia directa, inmediata e indudable de un accidente de trabajo
-o enfermedad profesional de que haya sido víctima, de acuerdo con lo
-dicho en el artículo anterior.
-Cuando las consecuencias de un riesgo profesional realizado se
-agravaren por una enfermedad o lesión que haya tenido la víctima con
-anterioridad al hecho o hecho causantes del mismo, se considerará dicha
-reagravación, para los efectos de su indemnización, como resultado
-directo del riesgo profesional ocurrido e indirecto de la enfermedad o
-lesión.
+ARTICULO 204.-
+Los riesgos del trabajo serán asegurados, exclusivamente, por el Instituto Nacional de Seguros, a cargo del patrono, y a favor de sus trabajadores. Se autoriza el Instituto Nacional de seguros a emitir recibos pólizas, para acreditar la existencia de este seguro.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

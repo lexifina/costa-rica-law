@@ -1,4 +1,1 @@
-Artículo 387.- Los Tribunales de Trabajo, una vez reclamada su primera
-intervención en forma legal, actuarán de oficio y procurarán abreviar
-en lo posible el curso normal de los asuntos sometidos a su
-conocimiento. Sus sentencias firmes tendrán autoridad de cosa juzgada.
+ARTICULO 387.- El hecho de que un paro o una huelga terminen por arreglo directo entre patronos y trabajadores o por decisión judicial, no exime de responsabilidad a los que hubieren cometido delitos o faltas con motivo del conflicto.

@@ -1,9 +1,2 @@
-Artículo 314.- la Secretaría de Trabajo y de Previsión Social se
-encargará de facilitar por todos los medios el desarrollo y propaganda
-del movimiento cooperativista y llevará su control, inspección y
-estadística de acuerdo con las formalidades que determinará el
-Reglamento.
-Sin embargo, en cuanto a cooperativas de habitación, dicho
-Reglamento armonizará las funciones superiores del mencionado Despacho
-con las de la Junta Nacional de la Habitación, a efecto de que no
-resulte entrado el funcionamiento de ésta.
+ARTICULO 314.- La imposición de las sanciones, que se establecen en este Código, corresponderá a los juzgados de trabajo en cuya jurisdicción se cometió la falta o infracción y, en su defecto, en el del domicilio del eventual responsable.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,4 +1,2 @@
-Artículo 282.- Los sindicatos podrán acordar s disolución:
-a) Por realización del objeto para que fueron constituidos, y
-b) Por el voto de las dos terceras partes de sus miembros, reunidos
-en Asamblea General.
+ARTICULO 282.- Corre a cargo de todo patrono la obligación de adoptar, en los lugares de trabajo, las medidas para garantizar la salud ocupacional de los trabajadores, conforme a los términos de este Código, su reglamento, los reglamentos de salud ocupacional que se promulguen, y las recomendaciones que, en esta materia, formulen tanto el Consejo de Salud Ocupacional, como las autoridades de inspección del Ministerio de Trabajo y Seguridad Social, Ministerio de Salud e Instituto Nacional de Seguros.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

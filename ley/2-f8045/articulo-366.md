@@ -1,6 +1,3 @@
-Artículo 366.- Para declarar una huelga legal los trabajadores deben:
-a) Ajustarse estrictamente a lo dispuesto por el artículo 364;
-b) Agotar los procedimientos de conciliación de que habla el Título
-Sétimo, Capítulo Tercero de este Código, y
-c) Constituir por lo menos el sesenta por ciento de las personas que
-trabajen en la empresa, lugar o negocio de que se trate.
+ARTICULO 366.- Sin perjuicio del resultado de la audiencia indicada en el artículo anterior, si se constata la existencia de prácticas laborales desleales, se levantará un acta y el Director Nacional e Inspector General de Trabajo entablará la demanda judicial correspondiente, con prioridad respecto de cualquier otro asunto. Con el propósito de salvaguardar los derechos protegidos por esta Ley solicitará imponer las sanciones previstas en la legislación laboral vigente, sin perjuicio de cualquier otra medida judicial que pueda ordenarse.
+Si no hay mérito para conocer sobre el fondo del asunto o no se constata la existencia de prácticas laborales desleales, se ordenará archivar el expediente, mediante resolución fundada. Esta resolución tendrá los recursos ordinarios de revocatoria y de apelación; este último se interpondrá para ante el Ministro de Trabajo y Seguridad Social, quien agota la vía administrativa para todos los efectos.
+(Así adicionado por el artículo 3º de la ley N° 7360 del 4 de noviembre de 1993)

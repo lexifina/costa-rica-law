@@ -1,5 +1,2 @@
-Artículo 311.- Para el efecto de que las cooperativas recuperen las
-sumas que se les deben con prontitud, procederán por la vía ejecutiva
-y servirá de base para el juicio la certificación que extienda el
-Gerente o, en su caso, la Junta Directiva de la existencia de un crédito
-a favor de la sociedad.
+ARTICULO 311.- Se impondrá la multa establecida en el artículo 614 de este Código, al empleado de cualquier ministerio, institución pública, municipalidad u otro organismo integrante de la Administración Pública, que autorice la celebración de actos, contratos o trabajos en contravención de las disposiciones de este Título o de sus reglamentos.
+(Así reformado por el artículo 2º de la ley N° 7360 del 4 de noviembre de 1993)

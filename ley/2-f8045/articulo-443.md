@@ -1,6 +1,5 @@
-Artículo 443.- Los Tribunales de Trabajo podrán actuar en día u hora
-inhábil, previa habilitación motivada que harán de oficio y sin recurso
-alguno, cuando la dilación pueda causar grave perjuicio a los
-interesados o a la buena administración de la justicia, o hacer ilusoria
-una resolución judicial, o cuando se trate de conflictos colectivos de
-carácter económico y social.
+CAPITULO SEGUNDO
+Del procedimiento en general
+SECCION I
+Disposiciones generales:
+ARTICULO 443.- El procedimiento en todos los juicios de competencia de los Tribunales de Trabajo es fundamentalmente verbal.
