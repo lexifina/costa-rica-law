@@ -1,0 +1,1 @@
+Artículo 13.—La red Internet y el correo electrónico son de exclusiva utilización institucional. Es prohibido utilizar estas herramientas para asuntos de interés privado. Las actividades en línea serán controladas, a solicitud de la jefatura respectiva, cuando se tenga conocimiento de que un funcionario esta desacatando esta disposición.

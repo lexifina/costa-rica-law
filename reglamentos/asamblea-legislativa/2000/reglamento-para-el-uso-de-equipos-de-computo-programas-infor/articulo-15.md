@@ -1,0 +1,1 @@
+Artículo 15.—Cualquier infracción a este Reglamento autoriza a la Dirección Ejecutiva para iniciar el respectivo procedimiento sancionatorio contra el funcionario responsable, de acuerdo con lo dispuesto en la Ley de Personal de la Asamblea Legislativa y el Código de Trabajo.

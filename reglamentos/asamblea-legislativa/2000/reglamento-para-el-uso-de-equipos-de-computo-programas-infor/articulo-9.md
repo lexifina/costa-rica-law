@@ -1,0 +1,2 @@
+Artículo 9º—Los funcionarios de la institución por ningún motivo podrán instalar en los discos duros de las computadoras, programas informáticos no autorizados, tales como: juegos, procesadores de palabras hojas de cálculo electrónico y graficadores, entre otros.
+Tampoco podrán utilizarlos mediante disquetes u otros medios, salvo autorización expresa del jefe respectivo para un caso especial cuando así lo requiera el funcionario.

@@ -1,0 +1,1 @@
+Artículo 12.—La palabra clave o de acceso asignada a cada funcionario para uso de los recursos informáticos es de uso personal, por lo que no podrá ser compartida por los funcionarios. El funcionario titular de la clave será el único responsable por el uso que se les dé a los recursos informáticos accesados por medio de la palabra clave.
