@@ -8,6 +8,10 @@ Reglamento a la Ley N° 3503, Relativo a las Funciones
 de la Comisión Técnica de Transportes
 CAPITULO UNICO
 Artículo 1°-La Comisión Técnica de Transportes estará integrada de la siguiente forma:
-a) Por el Director General de Transporte Automotor.
-b ) Por el funcionario de la Oficina de Planificación que ésta designe.
+a) El Director de Transporte Automotor.
+b ) El Representante de la Oficina de Planificación que esta designe.
 c) Por el Procurador Administrativo de la República.
+d) Un Representante del Ministerio de Seguridad Pública.
+e) Un Representante del Ministerio de Obras Públicas y Transportes.
+Mientras no se establezca de otra manera por disposición legislativa, los representantes de los Ministerios de Obras Públicas y Transportes y de Seguridad Pública serán miembros con voz pero sin voto.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 3034 del 12 de junio de 1973)
