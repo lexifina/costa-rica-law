@@ -1,2 +1,0 @@
-Artículo 9°— Elaboración de carteles y llamado a participar:
-La elaboración de los carteles de los distintos procedimientos ordinarios de contratación estará a cargo del Proceso de Adquisiciones, el cual deberá remitir los pliegos de condiciones a la Comisión de Licitaciones para su aprobación. Además deberá invitar a los proveedores a participar en los distintos procedimientos de contratación, debiendo para ello gestionar las publicaciones o cursar las invitaciones respectivas, todo de conformidad con la "LCA" y su Reglamento.

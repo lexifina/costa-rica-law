@@ -1,3 +1,0 @@
-Artículo 10.— Recepción de ofertas y elaboración de dictámenes:
-El Proceso de Adquisiciones tendrá a su cargo la recepción y apertura de ofertas, todo de conformidad con la legislación vigente. De igual forma será el encargado de solicitar los estudios legales a la Asesoría Legal y los dictámenes técnicos a los órganos especializados, tanto internos como externos. Todo estudio técnico ya sea interno o externo, deberá ser suscrito por el responsable de su elaboración y en los internos deberá ser suscrito además por el superior del funcionario que lo elaboró.
-De igual forma deberá recomendar la adjudicación tomando en consideración el resultado del análisis económico, técnico y legal de las ofertas.

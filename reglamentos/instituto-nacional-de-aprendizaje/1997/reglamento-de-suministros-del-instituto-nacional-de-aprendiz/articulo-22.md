@@ -1,3 +1,0 @@
-Artículo 22.— Recepción, almacenamiento y distribución:
-Para la recepción de los suministros deberá llevarse un registro en el cual deberán constar las cantidades, calidades, características, naturaleza de los bienes y concordancia con lo adjudicado, así como toda otra información pertinente, y será suscrita por el funcionario encargado de recibir los bienes y el contratista o por quien hace la entrega.
-Al Proceso de Almacenamiento y Distribución de Bienes le corresponderá establecer y llevar a cabo los procedimientos y normas para la adecuada recepción, almacenamiento y distribución de bienes en las diferentes bodegas que aseguren un servicio eficiente y seguro.
