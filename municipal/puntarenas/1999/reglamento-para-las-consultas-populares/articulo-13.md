@@ -1,0 +1,2 @@
+Integración juntas receptoras de votos
+Artículo 13.-Las juntas receptoras de votos estarán conformadas por tres propietarios y tres suplentes habitantes del distrito, compuestas p. nóminas que presentará el que inscriba papeleta ante la Comisión Organizadora, con 15 días antes de la realización de la consulta. En caso de inopia la Comisión Organizadora podrá nombrar los miembros de las juntas receptoras, debiendo recibir la instrucción pertinente, una vez juramentados ante el presidente del Concejo Municipal, quedando debidamente instalados, como miembros de mesa.

@@ -1,0 +1,1 @@
+Artículo 22.-Cuando se presenta la papeleta ante la Comisión Organizadora esta le asignará un número, empezando del uno en forma consecutiva y creciente. Esta numeración será la que corresponda a su identificación y ubicación en la papeleta.
