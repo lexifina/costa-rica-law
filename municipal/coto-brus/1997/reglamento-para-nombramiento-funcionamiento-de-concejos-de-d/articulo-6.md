@@ -1,0 +1,1 @@
+Artículo VI.—La escogencia cié los miembros del Consejo de Distrito lo hará el concejo municipal, dentro de las ternas que a defecto el síndico del distrito de que se trate, pudiendo darse la presentación de una sola terna, previa consulta popular a los pobladores del distrito mediante cualquiera de los mecanismos existentes de audiencia publica.

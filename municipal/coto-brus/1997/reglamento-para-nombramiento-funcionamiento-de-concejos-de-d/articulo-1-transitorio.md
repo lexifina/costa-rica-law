@@ -1,0 +1,1 @@
+Transitorio I.—Los miembros de los Consejos de Distrito, que se constituyan por primer vez con posterioridad a la promulgación reglamento, durarán en sus cargos hasta la nueva designación de los nuevos regidores, según lo dispuesto por el artículo dos de este reglamento.

@@ -1,0 +1,1 @@
+Artículo X.—La comisión a que se refiere el artículo anterior, funcionará como órgano de coordinación de los Consejos de Distrito, con el fin de presentarles la asistencia que proceda de los proyectos que sean de interés para un distrito o grupo de ellos aislada o conjuntamente.

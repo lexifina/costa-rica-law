@@ -1,0 +1,1 @@
+Artículo II.—Los miembros dé los Consejos de Distrito, serán nombrados dentro de tos tres meses siguientes a la instalación de los concejos municipales, por un período de dos años. Podrán ser reelectos y desempeñarán sus cargos gratuitamente.

@@ -1,0 +1,1 @@
+Artículo XIV.—El Consejo de Distrito deberá de reunirse ordinariamente, cuando menos dos veces al mes, debiendo comunicar a la municipalidad, el día, hora y fugar que designe para tal efecto, pudiendo realizar sesiones extraordinarias, previa convocatoria del presidente o cuando así lo convoquen tres de sus miembros.
