@@ -1,0 +1,1 @@
+Transitorio único. En un plazo de 60 días naturales a partir de esta publicación, el Ministerio de Economía, Industria y Comercio publicará un decreto que establezca la obligación de indicar el precio por unidad de medida en aquellos bienes en los que realmente sea aplicable.
