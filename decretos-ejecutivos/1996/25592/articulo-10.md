@@ -1,0 +1,1 @@
+Artículo 10.—Todos los puestos que directa o indirectamente se vean afectados por la presente normativa continuaran clasificados bajo la denominación y con la retribución que actualmente tengan, hasta que se dé un acto administrativo específico que los afecte, de manera directa y explícita.

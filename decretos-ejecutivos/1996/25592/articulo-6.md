@@ -1,0 +1,2 @@
+Artículo 6°—Tanto el Manual de Clases Anchas del Servicio Civil cono los Manuales Institucionales, deberán ser aprobados y emitidos por resolución de la Dirección General delServicio Civil, por medio de la unidad competente. Igual procedimiento se seguirá para posteriormente, crear, notificar o suprimir dichas clases o cuando se determine un cambio de código.
+Las Instituciones descentralizadas deberán hacer el trámite por medio de la Autoridad Presupuestaria, la cual a su vez podrá solicitar asesoría a la Dirección General de Servicio Civil.

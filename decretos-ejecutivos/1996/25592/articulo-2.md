@@ -1,0 +1,1 @@
+Artículo 2°—Este Manual General será el instrumento de clasificación de clases y retribución oficial del Régimen de Servicio Civil y las instituciones públicas que estén homologadas o lo lleguen a estar, de conformidad con los alcances de los Capítulos III y X del Estatuto de Servicio Civil y la Ley de Salarios de la Administración Pública N°2166 y sus reformas.

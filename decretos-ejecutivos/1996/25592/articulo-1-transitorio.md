@@ -1,0 +1,3 @@
+Transitorio.—No obstante la anterior derogatoria, se dispone que las clases contenidas en los decretos supracitados continuarán en uso como un manual auxiliar, el cual excepcionalmente podrá ser modificado por la Dirección General de Servicio Civil, mediante resolución.
+La Dirección General de Servicio Civil emitirá, cuando lo considere conveniente, la resolución respectiva para que el sistema sea aplicado de acuerdo con la normativa establecida.
+En ese sentido, la Dirección General de Informática y la Dirección General de Presupuesto Nacional desarrollarán los esfuerzos necesarios a fin de ajustar a la mayor brevedad sus sistemas a los requerimientos del Manual General de Clasificación de Clases; mientras tanto deberá continuar utilizando las clases anteriores.

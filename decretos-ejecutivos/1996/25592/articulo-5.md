@@ -1,0 +1,1 @@
+Artículo 5°—Toda clase institucional deberá estar codificada previamente a aprobar su homologación, dicha codificación deberá ser . revisada y autorizada por la unidad competente de la Dirección General del Servicio Civil, según las normas técnicas existentes.
