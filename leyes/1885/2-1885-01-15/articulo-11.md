@@ -1,0 +1,1 @@
+Art. 11.-El Administrador expedirá guía de la carga con todos los pormenores indicados en los dos artículos anteriores, agregando la fecha de la salida del tren y el nombre del Conductor. Una copia de cada guía será remitida al jefe del depósito en Carrillo y otra al Administrador de la Aduana de registro en San José.

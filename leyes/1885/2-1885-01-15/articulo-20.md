@@ -1,0 +1,1 @@
+Art. 20.-Recibida la carga, el jefe del depósito sentará la partida correspondiente de acuerdo con los pormenores de la guía. y el estado en que los bultos hubiesen sido entregados: acusara recibo al Administrador de la Aduana de Limón, de conformidad ó con las observaciones que procedan, y enviará copia del asiento de sus libros al Administrador de la Aduana General de registro.

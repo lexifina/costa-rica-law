@@ -1,0 +1,2 @@
+Art. 28.-Esta ley comenzará á surtir sus efectos del 12 de febrero próximo en adelante, quedando facultado el Secretario de Estado en el Departamento de Hacienda y Comercio, para dictar todas las disposiciones necesarias al cumplimiento de este decreto.
+Dado en la ciudad de Puntarenas, á los trece días del mes de enero de mil ochocientos ochenta y cinco. -P. FERNÁNDEZ.-Palacio Nacional-San José, enero quince de mil ochocientos ochenta y cinco. -El Secretario de Estado en el Despacho de Hacienda y Comercio. -BERNARDO ROTO.

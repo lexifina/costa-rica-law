@@ -1,0 +1,1 @@
+Art, 16.-Si el marchamo del carro ó carros llegare roto, el jefe del depósito, haciéndolo constar así, lo pondrá inmediatamente en conocimiento del Administrador de la Aduana de Limón, para que proceda á averiguar si hubo ó no culpabilidad.
