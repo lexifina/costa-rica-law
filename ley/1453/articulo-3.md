@@ -1,0 +1,1 @@
+Artículo 3°.- Con el producto de la venta la Municipalidad adquirirá otra propiedad que reúna las condiciones señaladas por el Ministerio de Salubridad Pública, en donde construirá el nuevo Matadero Municipal
