@@ -1,0 +1,1 @@
+Artículo 7°—Los Concejos de distrito deberán reunirse ordinariamente al menos dos veces al mes, debiendo comunicar a la Municipalidad el día, hora y lugar que designen para tal efecto, pudiendo celebrar sesiones extraordinarias previa convocatoria del Presidente o cuando así lo convoquen tres de sus miembros propietarios.

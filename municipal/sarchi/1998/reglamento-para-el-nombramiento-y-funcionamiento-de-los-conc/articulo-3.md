@@ -1,0 +1,1 @@
+Artículo 3°—La escogencia de los miembros del Concejo de distrito o hará el Concejo Municipal de entre los nombres que presente el síndico, del distrito que se trate, previa consulta popular a los pobladores del distrito mediante cualquiera de los mecanismos existentes de audiencia pública.

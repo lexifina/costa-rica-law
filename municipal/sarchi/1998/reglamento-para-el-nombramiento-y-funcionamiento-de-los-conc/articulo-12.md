@@ -1,0 +1,2 @@
+Artículo 12.—El Concejo Municipal creará una comisión para atender en forma exclusiva los asuntos de los Concejos de distrito.
+Esta comisión estará integrada en la forma y términos establecidos por el Código municipal, y funcionará como órgano de coordinación de los Concejos de distrito, con el fin de prestarles la asistencia que procede en los proyectos que sean de interés para un distrito o grupo de ellos aislados o conjuntamente
