@@ -1,0 +1,1 @@
+Artículo 13.- El cumplimiento de los articulos anterios no se embarasará por inconvenientes que jusgue representar pues podrá ponerlos á la consideracion del Congreso dentro de tercero dia, ó despues de haberles dado el lleno debido.

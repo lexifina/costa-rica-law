@@ -1,0 +1,1 @@
+Artículo 17.- Proberá todos los empleos Civiles, y Militares creados ó que se crearen en lo sucesivo consultando al Congreso al prober los de primera creacion, y en los demas noticiandole el nombramiento.

@@ -1,0 +1,1 @@
+Artículo 22.- Dispondrá de la fuerza armada del Estado sin mandarla en persona, ni aumentarla sin permiso del Congreso á exepcion de una repentina invacion en que uzará de ella como mejor le paresca en defensa del Estado dando cuenta inmediatamente al Congreso.

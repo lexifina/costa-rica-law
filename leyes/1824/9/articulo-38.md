@@ -1,0 +1,1 @@
+Artículo 38.- Todo Ciudadano podrá acusarlos ante el Congreso, y declarado que sea que ha lugar á la formacion de cauza, por el mismo hecho quedarán suspensos, y serán jusgados por el Tribunal que corresponda.

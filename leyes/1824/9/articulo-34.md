@@ -1,0 +1,1 @@
+Artículo 34.- El Secretario del despacho dará al Congreso quantosinformes se le pidan, y asistirá á él quando sea llamada por él mismo, ó embiado por el Gefe Supremo, ó crea conducente asistir debiendo siempre dar razon de lo que se le pregunte acerca de las providencias del Gobierno.
