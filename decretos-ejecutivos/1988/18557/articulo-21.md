@@ -1,1 +1,0 @@
-Artículo 21.- El zonaje se considerará como un sobresueldo; tendrán derecho a zonaje los servidores, trasladados temporalmente por acción de personal a laborar en un lugar distante de su residencia. El pago por concepto de zonaje e incentivo por regionalización se regulará por lo que dispone la ley y los reglamentos respectivos sobre el pago de zonaje.

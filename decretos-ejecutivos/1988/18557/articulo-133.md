@@ -1,1 +1,0 @@
-Artículo 133.- Los servidores tendrán derecho a contar con los servicios médicos asistenciales dentro de la Institución, para lo cual, el patrono deberá crear los puestos y las facilidades para que el servicio se preste eficientemente.

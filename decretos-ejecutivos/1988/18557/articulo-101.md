@@ -1,2 +1,0 @@
-Artículo 101.- El Director General, Director Regional o quien éstos deleguen, serán los encargados de velar por el fiel cumplimiento del presente capítulo, controlando el uso racional de los vehículos a su cuidado, así como el combustible, accesorios e integridad de dichos instrumentos de trabajo; y las llaves de los vehículos asignados a cada oficina estarán bajo su responsabilidad.
-Para las actividades rutinarias y para el cumplimiento de las funciones, el funcionamiento respectivo dará una autorización de tipo general.

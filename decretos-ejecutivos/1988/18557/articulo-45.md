@@ -1,1 +1,0 @@
-Artículo 45.- Salvo los casos previstos en este Reglamento, la omisión de una marca en la tarjeta a cualquiera de las horas de entrada o salida, hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el servidor no justifique la falta dentro de los ochos días siguientes después de finalizar el mes computado.

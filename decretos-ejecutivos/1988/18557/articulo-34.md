@@ -1,1 +1,0 @@
-Artículo 34.- En los casos en días feriados cuya jornada haya sido laborada previamente en jornada acumulativa, el Ministerio reconocerá el descanso correspondiente, adicionándolo a su período de vacaciones o disfrutarlo cuando lo considere oportuno. Asimismo, se reconocerán los días a asueto o licencias otorgadas, durante el disfrute de vacaciones del servidor.

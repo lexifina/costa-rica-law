@@ -1,1 +1,0 @@
-Artículo 20.- Al acordarse un recargo total de funciones, el servidor sustituto, tendrá derecho a recibir su salario de acuerdo con el sueldo base del puesto de categoría superior, si éste fuere mayor.

@@ -1,7 +1,0 @@
-Artículo 78.- Además de las contempladas en el artículo anterior y en otras del presente Reglamento, queda absolutamente prohibido a los chóferes o personas que manejen los vehículos del Ministerio o que estén asignados a éste:
-a) Conducir a velocidades superiores de las permitidas por las leyes o reglamentos de tránsito, así como incumplir disposiciones que las mismas contemplen.
-b) Usar el vehículo en lugares diferentes al del itinerario que corresponda. Cuando por circunstancias muy calificadas, el conductor se vea obligado a salirse de la ruta respectiva, al
-término de la jornada deberá dar el informe del caso al jefe inmediato.
-c) Ceder la conducción del vehículo a otras personas salvo razones muy calificadas o de fuerza mayor. El funcionario que incurra en esa falta ser hará acreedor de las mismas responsabilidades que acarrea el conductor.
-d) Ocupar o permitir que se use el vehículo en actividades ajenas al servicio del Ministerio, así como transportar a funcionarios o particulares que no tengan relación con el servicio que presta, salvo los casos que por la índole del transporte o del propósito del viaje, así lo obliguen.
-e) Manejar los vehículos del Ministerio sin la autorización del jefe inmediato de la persona en quien éste haya delegado la firma de las respectivas ordenes de transporte. Quien no tenga licencia de conductor, en ningún caso podrá manejar los vehículos del Ministerio.

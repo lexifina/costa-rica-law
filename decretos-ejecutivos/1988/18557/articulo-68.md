@@ -1,1 +1,0 @@
-Artículo 68.- Toda sanción o corrección disciplinaria, deberá hacerse constar en el expediente que el Departamento de Personal o las Oficinas Auxiliares de cada dirección llevarán para cada uno de los servidores del Ministerio, con la salvedad de las sanciones verbales.

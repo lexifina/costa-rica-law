@@ -1,1 +1,0 @@
-Artículo 128.- En las situaciones previstas en los incisos b) y c) del artículo anterior, en caso de que la vivienda haya sido alquilada por el Ministerio para ponerla a disposición de sus servidores, deberá además contarse con la aprobación escrita del propietario del inmueble.

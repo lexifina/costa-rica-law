@@ -1,1 +1,0 @@
-Artículo 27.- Las vacaciones podrán acumularse por una sola vez, requiriéndose para ello resolución razonada del Ministro o de la respectiva Dirección o dependencia en que el servidor preste sus servicios y que se produzcan dentro de las limitaciones contempladas en el artículo 159 del Código de Trabajo.

@@ -1,1 +1,0 @@
-Artículo 93.- Los directores y jefes de departamento, podrán conceder hasta por una semana, licencias con goce de salario por motivos de matrimonio del trabajador o del fallecimiento de alguno de sus padres, hijos, hermanos o cónyuge y hasta por dos días por el nacimiento de un hijo del trabajador.

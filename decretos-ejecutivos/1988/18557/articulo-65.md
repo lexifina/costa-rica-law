@@ -1,1 +1,0 @@
-Artículo 65.- Toda justificación deberá remitirse al Departamento de Personal o a su respectiva oficina auxiliar, con el respectivo refrendo del jefe del departamento en un plazo de ocho días contados a partir de la fecha de la cometida o desde el momento en que tuvo conocimiento de la misma.

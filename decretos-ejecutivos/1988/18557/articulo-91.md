@@ -1,2 +1,0 @@
-Artículo 91.- Se tendrán por no planteadas, las gestiones que no hayan sido formuladas de conformidad con lo dispuesto en los artículos anteriores. El servidor que no haya seguido el orden jerárquico dispuesto en este capítulo para el planteamiento de sus reclamaciones o quejas, en caso de reincidencia podrá ser sancionado según la gravedad de la falta.
-Una vez agotado este procedimiento, si el servidor persistiere en su reclamación, podrá establecer el recursos que le confiere el artículo 88, inciso b) del Reglamento del Estatuto de Servicio Civil.

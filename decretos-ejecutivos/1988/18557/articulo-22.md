@@ -1,1 +1,0 @@
-Artículo 22.- Los servidores que deban viajar en el ejercicio de sus funciones, tendrán derecho a viáticos y gastos de transporte, los cuales serán otorgados por adelantado según los reglamentos respectivos. Los viáticos no se consideran salario para ningún efecto legal siempre y cuando el servidor tenga que rendir cuenta de ellos.

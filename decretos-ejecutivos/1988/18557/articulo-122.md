@@ -1,3 +1,0 @@
-Artículo 122.- EL Ministerio podrá autorizar a sus servidores el uso de las casas o apartamentos de su propiedad o alquiladas a su nombre para habitarlas con su familia e individualmente, cuando el servidor o interesado así lo solicite y trabaje o vaya a trabajar a tiempo completo en la jurisdicción correspondiente para alguna de las diversas dependencias del Ministerio, donde hubiere inmuebles disponibles.
-A los servidores que tengan casa propia en la localidad del trabajo, no se les concederá el beneficio de la vivienda aquí señalado.
-Las casas y apartamentos que facilite el Ministerio, deberán contar con las condiciones de seguridad e higiene.

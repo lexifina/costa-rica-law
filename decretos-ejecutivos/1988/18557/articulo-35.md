@@ -1,1 +1,0 @@
-Artículo 35.- Los servicios que laboren durante la jornada mensual acumulativa que por la índole de sus funciones permanecen disponibles en su lugar de trabajo, tendrán derecho a incentivos de carácter socioeconómico reglamentados en su monto.

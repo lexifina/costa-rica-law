@@ -1,1 +1,0 @@
-Artículo 3º.- El Ministro, el Viceministro, el Oficial Mayor Director Administración o por delegación hecha al Jefe de Personal o a las oficinas auxiliares de éste, será quien tenga a su cargo todo lo relacionado con la aplicación de este Reglamento, así como también lo concerniente al personal y a las relaciones del mismo con la Dirección General de Servicio Civil.

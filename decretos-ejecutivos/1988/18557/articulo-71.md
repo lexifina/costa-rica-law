@@ -1,1 +1,0 @@
-Artículo 71.- La sanciones se aplicarán atendiendo no estrictamente al orden en que aparecen en el artículo anterior, sino conforme con todas las circunstancias de hecho y de derecho insitas en la falta cometidas, salvo que la misma tenga una sanción específica en el Estatuto de Servicio Civil, el presente Reglamento y demás leyes conexas.

@@ -1,4 +1,0 @@
-CAPITULO III
-De la jornada de trabajo
-Artículo 10.- La jornada ordinaria de trabajo será de ocho horas, acumulativas de lunes a viernes iniciándose ésta a las ochos horas y concluyéndose a las dieciséis horas, la jornada ordinaria semanal de ocho horas, podrá transformarse en jornada mensual acumulativa.
-Los servidores del Ministerio tendrán derecho a un descanso máximo de diez minutos por la mañana y diez minutos por la tarde, con un descanso de cuarenta y cinco minutos, comprendidos entre las once, treinta horas y las trece, treinta horas. No obstante lo anterior, a fin de preservar los principios de continuidad y eficiencia del Servicio Público, los directores, los jefes de Departamento y de Sección, reglamentarán la forma en que su respectivo personal hará uso de esos períodos de descanso, sin detrimento de la buena marcha del trabajo. Los servidores que no hicieran uso de esta concesión no podrán reclamar su compensación en ninguna forma.

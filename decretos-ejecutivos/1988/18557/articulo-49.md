@@ -1,1 +1,0 @@
-Artículo 49.- Cuando en los casos contemplados en el artículo anterior, se logre comprobar la inasistencia de un servidor no reportada por su jefe inmediato, se sancionará conjuntamente a ambos servidores. Se justificará esa omisión cuando la misma haya sido provocada por razón de fuerza mayor, tal como la incapacidad física imprevisible del jefe inmediato.

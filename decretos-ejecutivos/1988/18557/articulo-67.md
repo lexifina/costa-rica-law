@@ -1,1 +1,0 @@
-Artículo 67.- Todo lo relacionado con infracciones o sanciones, será tramitado por el Departamento de Personal o las Oficinas Auxiliares de Personal de cada dirección por delegación, a excepción de la amonestación verbal que corresponderá al jefe inmediato.

@@ -1,4 +1,0 @@
-Artículo 88.- Cuando un servidor no hubiera cumplido un año de prestación de servicios al momento de hacerse la calificación, o hubiere trabajado a las órdenes de diferentes jefes en el año anterior, se observarán las siguientes reglas:
-a) Si el servidor no hubiere cumplido su período de prueba, su calificación de servicios estará sujeta a lo dispuesto por el artículo 8º de este Reglamento. Si hubiere trabajado más de tres meses, su calificación será por el tiempo de servicios prestados.
-b) Si el servidor hubiere trabajado menos de un año pero de seis meses a las órdenes de un mismo jefe, corresponderá a éste hacer su calificación.
-c) Si el servidor hubiere estado a las órdenes de varios jefes durante 1 año, pero con ninguno más de seis meses, la calificación la hará el jefe con quien hubiere trabajado tres o más, debiendo tomar en cuenta los informes que en este caso deberán rendir los otros jefes.

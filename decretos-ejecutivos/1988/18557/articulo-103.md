@@ -1,1 +1,0 @@
-Artículo 103.- Las solicitudes de los vehículos deberán presentarse con la debidas anticipación y las mismas deberán obedecer a planes de trabajo debidamente programados, salvo casos de emergencia. Toda solicitud deberá ser autorizada por los funcionarios indicados en este capítulo o por quien reglamentariamente lo sustituya.

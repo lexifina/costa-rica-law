@@ -1,1 +1,0 @@
-Artículo 63.- Todo justificación que no tenga plazo señalado en este capítulo, deberá remitirse al Departamento de Personal o a su respectiva oficina auxiliar en los cinco días posteriores a partir de la finalización del mes computado, con el respectivo refrendo del jefeinmediato.

@@ -1,1 +1,0 @@
-Artículo 96.- Podrá concederse licencia o permiso con goce de sueldo para viajes exterior, con motivo de representación oficial del Ministerio o de alguna otra institución, siempre que en este último caso, el Ministerio derive algún beneficio y con autorización del mismo.

@@ -1,1 +1,0 @@
-Artículo 144.- La Comisión de Recreación estará compuesta por cinco miembros: un representante del Departamento de Personal, un representante del Departamento de Adiestramiento y tres representantes de los servidores.

@@ -1,1 +1,0 @@
-Artículo 137.- Las subcomisiones de Salud Ocupacional, estarán integradas por dos representantes patronales, designados por el director respectivo y dos representantes de los servidores elegidos o nombrados según el artículo 92, incisos c) y d).

@@ -1,1 +1,0 @@
-Artículo 145.- La Comisión de Recreación apoyará el funcionamiento de grupos culturales o deportivos y apoyará en todo lo posible sus manifestaciones diversas e iniciativas, coordinando conjuntamente las labores a su cargo.

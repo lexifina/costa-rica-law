@@ -1,1 +1,0 @@
-Artículo 136.- Esta Comisión creará las Subcomisiones de Salud Ocupacional, que a juicio del Consejo de Salud Ocupacional sean necesarias en los diferentes centros de trabajo del Ministerio y coadyuvarán en el cumplimiento de lo estipulado en el presente reglamento sobre salud ocupacional.

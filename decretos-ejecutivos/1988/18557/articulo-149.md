@@ -1,1 +1,0 @@
-Artículo 149.- Para el cumplimiento de los compromisos asumidos por parte del Ministerio, éste tendrá un período de un año para buscar el contenido presupuestario correspondiente; ese plazo comenzará a contarse a partir de la publicación de este Reglamento.

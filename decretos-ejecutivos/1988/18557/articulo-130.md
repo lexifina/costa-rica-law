@@ -1,2 +1,0 @@
-Artículo 130.- El Departamento de Personal o sus oficinas auxiliares, será el órgano ministerial encargado de velar por el fiel cumplimiento de las disposiciones contenidas en el presente capítulo, quedando autorizado para establecer los controles y procedimientos administrativos que considere oportunos.
-Todos los servicios del Ministerio están obligados a prestar al Departamento de Personal y sus oficinas auxiliares de cada dirección, su cooperación en el cumplimiento de las disposiciones contenidas en el presente capítulo.

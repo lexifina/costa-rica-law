@@ -1,2 +1,0 @@
-Artículo 84.- Los funcionarios profesionales del Ministerio podrán acogerse a la carrera profesional de conformidad con los términos que dicte la Dirección General de Servicio Civil.
-La Comisión de Carrera Profesional, será el enlace entre los profesionales y la Dirección General de Servicio Civil para dichos efectos para ello contará con el apoyo de una subcomisión por cada una de las direcciones.

@@ -1,1 +1,0 @@
-Artículo 47.- No obstante lo dispuesto en el artículo anterior, la sanción disciplinaria dejará de imponerse si el servidor que por error marcó la tarjeta, o quien le marca la suya, informara del hecho a quien corresponda a más tardar en el curso de la jornada de trabajo siguiente a aquella en que el mismo sucedió.

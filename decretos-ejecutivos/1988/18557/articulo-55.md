@@ -1,1 +1,0 @@
-Artículo 55.- No se pagará salario que corresponda a las ausencias injustificadas, conforme con lo establecido en este Reglamento, en el Estatuto de Servicio Civil y su Reglamento, leyes conexas y supletorias.

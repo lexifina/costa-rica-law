@@ -1,1 +1,0 @@
-Artículo 59.- No es causa justificada de inasistencia, la prolongación de vacaciones por causa de viajes, alegando dificultades de transporte u otras similares, salvo cuando medie fuerza mayor, debidamente comprobada.

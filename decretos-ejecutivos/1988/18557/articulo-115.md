@@ -1,1 +1,0 @@
-Artículo 115.- El servidor que violare las disposiciones del presente capítulo, será debidamente sancionado conforme con lo que señalan el reglamento para regular el uso de vehículos y los capítulos XII y XIII de este reglamento, sin perjuicio de lo dispuesto en la Ley de Tránsito y la Ley General de la Administración Pública.

@@ -1,1 +1,0 @@
-Artículo 107.- Le corresponderá a la Dirección Administrativa a través de los servidores generales de cada dirección, efectuar el control pertinente y atender todo lo que se refiere al adecuado mantenimiento de los vehículos.

@@ -1,3 +1,0 @@
-Artículo 100.- Para efectos de este capítulo, los vehículos del Ministerio se clasifican en:
-a) De uso discrecional, que son únicamente el asignado al Ministerio, Viceministro y Oficial Mayor.
-b) De uso administrativo, que son aquellos que prestan servicio de apoyo en las diferentes oficinas del Ministerio para el mejor desempeño de sus funciones. Estos estarán a cargo de las direcciones generales correspondiéndole a éstas o a quien éstas deleguen, conceder la autorización respectiva del uso de dichos vehículos. En ausencias reglamentarias de esos funcionarios, dicha autorización corresponderá a su sustituto.

@@ -1,1 +1,0 @@
-Artículo 148.- A falta de disposiciones en el presente Reglamento, aplicables a un caso determinado, deberán tenerse como normas supletorias, el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes y reglamentos conexos, que se hayan emitido o que se emitan en lo futuro con objeto de regular económica y socialmente las relaciones obrero-patronales.

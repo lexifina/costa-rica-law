@@ -1,1 +1,0 @@
-Artículo 111.- Es obligación de cada oficina que tiene asignado algún vehículo, brindar la máxima cooperación al Departamento de Servicios Generales o a la oficina correspondiente de cada dirección en todos los aspectos, principalmente en lo que concierne a la revisión periódica.

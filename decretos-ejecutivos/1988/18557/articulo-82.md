@@ -1,3 +1,0 @@
-Artículo 82.- Todas las servidoras en estado de gravidez, tendrán derecho a licencia por cuatro meses, con goce de sueldo completo. Este período se distribuirá, un mes antes del parto y tres después.
-Durante este período, el Gobierno pagará a la servidora, el monto restante del subsidio que reciba del Seguro Social, hasta completar, el ciento por ciento de su salario, incluso las excluidas del Régimen de Servicio Civil.
-Las servidoras en época de lactancia, podrán disponer de una hora diaria continua o fraccionada con el objeto de amamantar a su hijo, según su conveniencia y previo acuerdo con el jefe inmediato, pudiendo prorrogarse hasta por tres meses más con base en certificación de la Caja Costarricense de Seguro Social.

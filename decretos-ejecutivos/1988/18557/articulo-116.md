@@ -1,1 +1,0 @@
-Artículo 116.- La utilización de los servicios de transporte en forma permanente por parte de cualquier servidor del Ministerio, en ningún sentido constituye salario en especie, ni la utilización de éste dará derechos adquiridos por este concepto.

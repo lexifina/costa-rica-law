@@ -1,1 +1,0 @@
-Artículo 123.- Ha de entenderse que el servidor quedará facultado para ocupar la casa o apartamento en cuestión, únicamente por el término en que permanezca desempeñando su labor para el Ministerio y que éste puede suspender el uso en el momento en que lo considere pertinente sin responsabilidad alguna para el Ministerio.

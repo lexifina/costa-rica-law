@@ -1,1 +1,0 @@
-Artículo 48.- El jefe inmediato de los servidores, que de conformidad con el artículo 43, están exentos de registrar su asistencia, deberá reportar a más tardar dentro de los ocho días posteriores, las ausencias en que incurran esos servidores al Departamento de Personal o sus oficinas auxiliares.

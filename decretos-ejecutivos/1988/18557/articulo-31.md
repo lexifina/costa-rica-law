@@ -1,3 +1,0 @@
-CAPITULO VI
-Descanso semanal de días feriados
-Artículo 31.- Todos los servidores del Ministerio disfrutarán como mínimo, de dos días fijos de descanso después de cada semana de trabajo continuo. Excepcionalmente, cuando así lo justifiquen la función que cumpla el servidor y el servicio público, tales descansos podrán ser otorgados en forma acumulativa mensual, a aquellos funcionario que no puedan salir del lugar donde prestan sus servicios. En estos casos atendiendo a la lejanía y dificultad en cuanto a los medios de transporte, no serán tomados en cuenta para efectos del descanso mensual, los días que el funcionario utilice en transporte de entrada y salida.

@@ -1,1 +1,0 @@
-Artículo 113.- No se podrán usar los vehículos en días domingos y feriados. Sólo será permitido su uso en esos días, cuando se trate de misiones que deban ser cumplidas por imperiosa necesidad y previa autorización y justificación escrita del Director General Administrativo o por quien éste delegue.
