@@ -5,7 +5,7 @@ c) Se conceden para el desarrollo de programas privados que, por cualquier medio
 ch) Se conceden a las instituciones y empresas públicas o privadas que se dediquen, en el país, al abastecimiento de agua potable para usos domiciliario, industrial y para el consumo humano, así como a la recolección, tratamiento y disposición de aguas negras y pluviales o servidas, subterráneas y de cualquier otra clase y a las actividades colaterales y complementarias de estas.
 d) Se conceden en favor de instituciones, fundaciones y asociaciones sin actividades lucrativas, que se dediquen a la atención integral de menores de edad en estado de abandono, deambulación o en riesgo social y que estén debidamente inscritas en el Registro Público.
 e) Se conceden en favor de instituciones, empresas públicas y privadas, fundaciones y asociaciones sin actividades lucrativas que se dediquen a la recolección y tratamiento de basura y a la conservación de los recursos naturales y del ambiente, así como a cualquier otra actividad básica en el control de la higiene ambiental y de la salud pública.
-f) Se establecen en el artículo 141 de la Ley Nº 7033 del 4 de agosto de 1986 y sus reformas, así como en el artículo 46 bis de la Ley Nº 6955 del 24 de febrero de 1984 (Exención de Derechos Migratorios yDelegaciones Oficiales).
+f) Se establecen en el artículo 141 de la Ley Nº 7033 del 4 de agosto de 1986 y sus reformas, así como en el artículo 46 bis de la Ley Nº 6955 del 24 de febrero de 1984 (Exención de Derechos Migratorios y Delegaciones Oficiales).
 g) Se establecen en la Ley Nº 7167 de 13 de junio de 1990.
 h) Se indican en la Ley Forestal, Nº 7174 del 28 de junio de 1990, excepto las contenidas en el artículo 87 inciso ch), artículo 91 y artículo 98 inciso a).
 i) Se establecen en la Ley Nº 1411 del 19 de enero de 1952 y sus reformas.
@@ -24,3 +24,4 @@ r) Se otorgan en el artículo No. 23 de la Ley No. 4895 y sus reformas (Ley de l
 s) Se establecen en la Ley Nº 4233 del 14 de noviembre de 1968 a favor de la Secretaría Ejecutiva del Consejo Monetario Centroamericano y sus funcionarios.
 t) Se establecen, en la Ley general de arrendamientos urbanos y suburbanos, bonos para el régimen de promoción de edificaciones destinadas al arrendamiento de viviendas de carácter social.
 (Inciso adicionado por el artículo 134 de la Ley de Arrendamientos Urbanos, Nº 7527 de 10 de julio de 1995)
+(Artículo interpretado auténticamente por el artículo 1 de la Ley N° 8088 del 13 de febrero del 2001, en el sentido de que también se exceptúan de la derogatoria del artículo 1 las exenciones tributarias otorgadas por el Estado de Costa Rica a las instituciones o los organismos de vocación internacional establecidos mediante ley.)
