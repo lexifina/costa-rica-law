@@ -1,0 +1,1 @@
+ARTÍCULO 47.-El mes común lo calcular n los Ministros tesoreros para los abonos de los sueldos y dotación, en razón de treinta días; más al empleado que no sirvió el mes entero, se le abonar n los días de efectivo servido en proporción su dotación, bajo la base expresada de treinta días.

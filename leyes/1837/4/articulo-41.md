@@ -1,0 +1,1 @@
+ARTÍCULO 41.-La deuda contraída por la Casa de Moneda con la Tesorería general por los suplementos y gastos de todas clases que ‚esta erogó desde la creación de aquel establecimiento, queda amortizada por esta ley, y amortizados también los cuatro mil seiscientos pesos que manifiesta el estado general del año de 1835, de los últimos suplementos.

@@ -1,0 +1,1 @@
+ARTÍCULO 49.-Todos los funcionarios y empleados que sirvan por escala un destino interinamente, tendrán más de su sueldo natural, la mitad del exceso que hay de ‚este al del que sirve accidentalmente: esta disposición no comprende aquellos funcionarios, empleados y dependientes que para el abono de sus sueldos quedan ya reglas prefijadas en el discurso de esta ley.

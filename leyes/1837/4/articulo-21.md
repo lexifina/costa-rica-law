@@ -1,0 +1,1 @@
+ARTÍCULO 21.-Sino hubiese vacante en la de Hacienda, se le colocar en la civil militar, si tuviese aptitud bastante en una, otra, procurando colocarle en destino de rango, y sueldo equivalente, aproximado al que servía, en la primera.

@@ -1,0 +1,1 @@
+ARTÍCULO 14.-Los Oficiales mayores quedan sujetos lo dispuesto para las separaciones de el del Despacho del Gobierno: los Jefes Políticos dirigir n mensualmente al Despacho del Gobierno, el conocimiento necesario de las asistencias de los Oficiales mayores.

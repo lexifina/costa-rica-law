@@ -1,0 +1,1 @@
+ARTÍCULO 40.-Como las pensiones de los Curas Reductores se han pagado hasta aquí¡ del ramo de Diezmos, y ‚este por la presente ley, debe entrar en la masa general de caudales, de los fondos de ‚esta, continuar n pagándose aquellas pensiones.

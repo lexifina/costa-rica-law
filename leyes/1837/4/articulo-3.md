@@ -1,0 +1,1 @@
+ARTÍCULO 3°-Al Portero no se le abonar cosa alguna en sus separaciones de cualquiera clase, y en los recesos de la Asamblea, disfrutar de medio sueldo, debiendo dormir en el Edificio, mantenerlo aseado, y cuidar de los archivos, útiles, y elementos de la Secretaria.

@@ -1,0 +1,1 @@
+ARTÍCULO 17.Los Coroneles y Tenientes Coroneles cuando están en servicio de guarnición en tiempo de paz, bien se hallen empleados en la Comandancia General, en cualesquiera otra comisión, disfrutar n la mitad de su sueldo.

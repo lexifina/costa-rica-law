@@ -1,0 +1,1 @@
+ARTICULO 12.-La dotación de ochocientos pesos anuales señalada al Presidente y Fiscal de la Corte Superior de Justicia, debe entenderse en el caso de ser Letrados: cuando estos sean legos porque se haya dada aquel Tribunal planta distinta de la que tiene al presente, ser la misma que por la Tarifa queda asignada los demás Magistrados.

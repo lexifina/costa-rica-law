@@ -1,0 +1,2 @@
+De las suspensiones de los funcionarios, empleados y dependientes de todas clases.
+ARTÍCULO 24.-A todo funcionario, empleado dependiente quien se le intime suspensión por autoridad competente, no se le abonar mientras dure aquella, más que medio sueldo del que tenga asignado al destino de que se le suspende; estas suspensiones deben entenderse aun aquellas que sin necesidad de causa intime el Ejecutivo sus subalternos en virtud de las facultades que le concede la Constitución.

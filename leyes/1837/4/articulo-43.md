@@ -1,0 +1,1 @@
+ARTÍCULO 43.-La deuda que resulte por fin de año ser amortizada de orden expresa de la Asamblea, y por las reglas que ella diese; sobre lo cual informar el Gobierno proponiendo las que juzgue análogas, verificándolo en las primeras sesiones ordinarias del periodo inmediato al año vencido.

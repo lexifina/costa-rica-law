@@ -1,0 +1,2 @@
+Departamento de Guerra.
+ART 16.-Ningún individuo de la lista militar disfrutar de las dotaciones prest que señala la Tarifa anterior, sino es en activo servicio, siendo milicianos: si fuesen veteranos, lo disfrutarán también aun en el caso de enfermedad que no pase de un mes, si sus servicios no alcanzaren cuatro años sin tacha: si fueren de mayor tiempo se les abonar prest íntegro, con tal que la enfermedad sea temporal; más si fuese habitual se instruir el expediente necesario, y el Gobierno con vista de las justificaciones, le señalar la mitad de su dotación.
