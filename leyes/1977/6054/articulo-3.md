@@ -1,0 +1,1 @@
+Artículo 3º.- El Ministerio de Economía, Industria y Comercio tendrá a su cargo la formulación, el fomento, la coordinación y la supervisión de la ejecución de las políticas industriales, comerciales y de integración, del turismo, de minería y de hidrocarburos.
