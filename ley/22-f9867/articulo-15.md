@@ -1,0 +1,1 @@
+Art. 15 -Solo el Administrador, ó quien le subrogue, puede levantar los sellos puestos sobre lacre en los lugares que deban ser sellados, y, con tal objeto, irá á bordo siempre que fuere necesario, ó enviará un sustituto.

@@ -1,0 +1,2 @@
+Art. 6. -Establécense cuatro resguardos en los siguientes puntos: uno en Angosturita, camino viejo del Zapote; uno en Reventazón, camino viejo de Matina; uno en Precipicio, camino de Fuentes, y uno en río Sucio, camino de Cocora.
+§ único. -Estos resguardos constarán de un cabo y dos guardas cada uno, deberán relevarse según las instrucciones que reciban del Administrador de la Aduana de Carrillo, de quien dependen inmediatamente.
