@@ -1,4 +1,5 @@
 CONVENIO SOBRE EL FONDO MONETARIO INTERNACIONAL
+(Nota de Sinalevi: Mediante ley N° 2803 del 1° de setiembre de 1961, se aprobó un aumento de siete millones y medio de dólares en la participación de Costa Rica en el Fondo Monetario Internacional, para elevarla así a quince millones de dólares ($15.000.000.00); y una suscripción adicional por cuatro millones de dólares ($ 4.000.000.00) en acciones del Banco Internacional de Reconstrucción y Fomento, para completar a ocho millones de dólares la participación de la República en el capital del mismo)
 Los gobiernos en cuya representación se firma este acuerdo convienen en lo siguiente:
 ARTICULO PRELIMINAR
 Se establece el Fondo Monetario Internacional, el cual operará de acuerdo con las siguientes disposiciones.
