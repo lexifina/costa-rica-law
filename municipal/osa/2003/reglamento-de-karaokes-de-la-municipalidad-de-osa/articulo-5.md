@@ -1,0 +1,1 @@
+Artículo 5º—En ningún caso la Administración autorizará el desarrollo de actividades con karaoke mas allá de las 12,00 media noche, los días de domingo a jueves, y no más de la 1:00 a.m. del día siguiente para los viernes y sábados con esa hora como límite, deberán cesar todas las actividades de ese tipo.

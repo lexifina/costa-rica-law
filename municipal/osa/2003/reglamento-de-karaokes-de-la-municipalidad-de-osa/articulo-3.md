@@ -1,0 +1,1 @@
+Artículo 3º—Para presentar la solicitud de permiso a que se refiere el artículo anterior, el interesado deberá de contar con las patentes al día, y los permisos de funcionamiento del Ministerio de Salud y Municipal, vigentes.

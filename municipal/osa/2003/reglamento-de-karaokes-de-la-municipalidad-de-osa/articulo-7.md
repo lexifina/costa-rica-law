@@ -1,0 +1,2 @@
+Artículo 7º—La actividad de karaoke se desarrollará únicamente en establecimientos comerciales con patentes de Bar Restaurante o salones de bailes y deberán cumplir los siguientes requisitos:
+Nota de solicitud a máquina o a mano en letra de molde en la que se indique la fecha, hora, lugar del acto, y nombre del patentado de acuerdo con los artículos 9 y 10 de este reglamento. Nombre y firma del patentado del negocio en que se va a desarrollar la actividad.

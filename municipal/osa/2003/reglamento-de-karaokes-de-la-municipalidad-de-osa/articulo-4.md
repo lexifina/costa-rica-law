@@ -1,0 +1,1 @@
+Artículo 4º—Las solicitudes de permiso para la realización esporádica de actividades de karaoke en locales comerciales deberán presentarse con no menos de cinco días de anticipación al acto ante el Departamento de Área de Tributos.
