@@ -1,0 +1,1 @@
+Artículo 2º—Derogación. Deróguense las Secciones 2.715, sección 2.716, el capítulo XI denominado Excepciones, Sección 2.903, Sección 02.905 del Decretos Nº 28436-MOPT del 19 de marzo del 2000, publicado en La Gaceta Nº 49 del 09 de marzo de 2000 y cualquier otra disposición normativa de igual o inferior rango que se le oponga.
