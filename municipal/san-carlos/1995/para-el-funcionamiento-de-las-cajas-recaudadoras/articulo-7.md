@@ -1,0 +1,1 @@
+Artículo 7°—Las cajas contarán en lo posible con una caja metálica de seguridad, donde el cajero pueda tener en custodia, el dinero y valores que por sus funciones tenga a su responsabilidad en horas hábiles, excepción de éstos, todo dinero y valores deben quedar en la caja fuerte de la oficina del tesorero municipal.

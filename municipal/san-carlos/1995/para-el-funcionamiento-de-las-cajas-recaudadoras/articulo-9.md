@@ -1,0 +1,1 @@
+Artículo 9°—Los cajeros deben durante el día prestar atención a las sumas recaudadas, a fin de realizar entregas parciales a la tesorería. No deberá tener en su poder sumas mayores al 50% de la póliza de fidelidad; por cada entrega deberá exigir un recibo y la tesorería está en la obligación de otorgarlo.

@@ -1,0 +1,1 @@
+Artículo 2°—Se introduce la modalidad de cajero-terminalista, para lo cual el funcionario contará con una terminal conectada al centro de cómputo y solamente podrá consultar la cuenta y digitar la orden de imprimir el recibo.

@@ -1,0 +1,1 @@
+Artículo 10.—Al finalizar el día, cerrarán caja en presencia del Tesorero Municipal, se hará la separación del fondo fijo y el reintegro de la venta de timbres municipales del día, el saldo resultante será entregado en su totalidad a la tesorería contra el recibo correspondiente. El Tesorero revisará el cierre en presencia del cajero.

@@ -1,0 +1,1 @@
+Artículo 13.—Los sobrantes que se produzcan en los cierres diarios de las operaciones en las cajas, deberán ser depositados a favor de la Municipalidad a más tardar un día hábil después de que se detecte el sobrante.

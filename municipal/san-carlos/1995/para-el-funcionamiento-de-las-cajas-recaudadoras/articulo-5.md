@@ -1,0 +1,1 @@
+Artículo 5°—El tesorero será responsable por los depósitos bancarios, debiendo depositar el total de la recaudación diaria. Las sumas correspondientes al fondo fijo de las cajas, deberán quedar en custodia de la tesorería y ser entregado a los cajeros al inicio del día.

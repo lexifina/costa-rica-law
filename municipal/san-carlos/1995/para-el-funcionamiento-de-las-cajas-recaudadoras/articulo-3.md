@@ -1,0 +1,2 @@
+Artículo 3°—El cajero debe revisar la secuencia numérica de los recibos, los verificará aritméticamente, los sellará, los firmará, recaudará. Entregará el original cancelado al contribuyente, una copia a la tesorería para las revisiones correspondientes y una copia a contabilidad.
+Al finalizar el día el cajero podrá obtener un listado de los recibos por él digitados durante el día, denominado "CONTROL DIARIO DE RECIBOS EMITIDOS”. Deberá entregar copia de este listado a la tesorería y a contabilidad.

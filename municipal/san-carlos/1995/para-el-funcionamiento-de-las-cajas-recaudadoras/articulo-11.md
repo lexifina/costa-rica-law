@@ -1,0 +1,1 @@
+Artículo 11.—Los cajeros cobrarán la suma consignada en el recibo, las quejas de los abonados por el cobro de sumas mayores, o vueltos en contra de los contribuyentes, serán consideradas faltas graves, caso de darse las faltas previstas se procederá de conformidad con la legislación vigente.
