@@ -1,0 +1,6 @@
+CAPÍTULO V
+De las prohibiciones
+Artículo 33.—Prohibiciones del abonado. Se prohíbe al abonado realizar las siguientes acciones:
+a) Tomar las tuberías interdomiciliares o de tanques de almacenamiento, derivación alguna (ramal) para darle servicio a otra edificación o lote independiente, sin autorización municipal. En dicho caso la Municipalidad procederá de inmediato a la desconexión y cargará el importe del costo de la desconexión al abonado. Tales derivaciones sólo se podrán hacer en casos muy especiales previa autorización escrita del Proceso de Acueducto y Urbanismo.
+b) Conectar mecanismos de bombeo y de mangueras directamente de las pajas de agua del acueducto o fuentes públicas para servicio particular. Si las mismas no están debidamente autorizadas por la Municipalidad. En este caso la Municipalidad procederá de inmediato a la desconexión de lo no autorizado, bajo el costo del abonado, mismo que será determinado por el Proceso de Contabilidad de la Municipalidad.
+c) Reconectar, sin autorización municipal, un servicio que había sido suspendido conforme a lo establecido en el presente reglamento. Si esto sucediera, la Municipalidad procederá a desconectar de nuevo y bajo el costo del abonado, mismo que será determinado por el Proceso de Contabilidad de la Municipalidad.

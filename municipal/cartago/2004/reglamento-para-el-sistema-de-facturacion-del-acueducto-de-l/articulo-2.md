@@ -1,0 +1,3 @@
+Artículo 2º—Tipos de servicios. La Municipalidad prestará dos tipos de servicios, ante gestión de persona interesada:
+a) Servicio medido: son aquellos que se pagarán de acuerdo con los consumos efectuados y medidos a través del hidrómetro y se cobrará de acuerdo a las tarifas aprobadas por el Concejo Municipal y autorizada por la Contraloría General de la República.
+b) Servicio fijo: son aquellos servicios de suministro de agua potable a través de una paja de agua sin hidrómetro instalado, por lo que se cobrarán de acuerdo a una tarifa fija mensual, según la categoría respectiva, aprobada por el Concejo Municipal y autorizada por la Contraloría General de la República.

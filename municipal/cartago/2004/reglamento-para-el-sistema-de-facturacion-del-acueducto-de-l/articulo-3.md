@@ -1,0 +1,1 @@
+Artículo 3º—Uso del servicio. El usuario deberá hacer uso del servicio de acuerdo con la categoría en que se ha calificado y autorizado únicamente. La categoría de servicio de agua potable se dará en virtud de la actividad que se desarrolle en el inmueble. Dicha categoría la definirá el Proceso de Catastro, previa inspección de campo.

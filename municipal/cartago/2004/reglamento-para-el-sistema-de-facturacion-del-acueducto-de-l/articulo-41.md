@@ -1,0 +1,1 @@
+Artículo 41.—De los ingresos. El ingreso que se perciba por la prestación del servicio de agua, se destinará únicamente para la operación, mantenimiento y mejoramiento del sistema de abastecimiento de agua potable.

@@ -1,0 +1,1 @@
+Artículo 36.—Denuncias. En caso de que los inspectores municipales, verifiquen cualesquiera de las conductas descritas en los artículos 33 y 34 de este Reglamento, remitirán informe documentado al Proceso Legal con copia al Alcalde, a fin de que se instauren las acciones judiciales correspondientes.

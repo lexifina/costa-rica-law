@@ -1,0 +1,5 @@
+Artículo 40.—De la contabilidad del acueducto. Corresponde al Proceso de Contabilidad Municipal:
+a) Realizar los estudios de costos correspondientes de conformidad con los parámetros legales vigentes, a fin de actualizar los costos que por el servicio de acueducto deba cobrar la Municipalidad.
+b) Realizar el registro, clasificación y resumen de las operaciones del acueducto municipal para preparar los estados financieros, de acuerdo con las normas contables vigentes.
+c) Realizar el análisis de cuentas por cobrar, informando de manera mensual al Proceso de Facturación, sobre el pendiente real a fin de que proceda de conformidad con el reglamento de cobro vigente.
+d) Aplicar los cierres diarios de los servicios de agua potable cancelados en las cajas recaudadoras. Bajo esta misma función, corresponde al encargado de contabilidad realizar los reajustes de cobro necesarios y retirar del sistema de cobro aquellos servicios que se encuentren al día. Esta información deberá realizarla de forma diaria y remitir informe semanal de los reajustes que verifique al Proceso de Facturación y el Proceso de Informática.
