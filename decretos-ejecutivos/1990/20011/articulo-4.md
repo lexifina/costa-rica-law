@@ -1,0 +1,1 @@
+Articulo 4° -Para las mercancías de producción nacional la base de cálculo impuesto único de Depósito será el precio ex fábrica menos los impuestos selectivo de consumo y general sobre las ventas, mas el flete hasta el Depósito Libre.
