@@ -1,3 +1,7 @@
-Artículo 52.- Subrogación de los contribuyentes.
-Los contribuyentes a que se refiere este título son subrogados en el cumplimiento de todas las obligaciones que establece esta ley, por las personas domiciliadas en el país que efectúen los pagos o créditos correspondientes.
-La obligación de retener y pagar el impuesto a que se refieren los artículos 18 y 19 y el inciso c) del artículo 23 de esta ley, subsiste aun en el caso en que el contribuyente esté ocasionalmente en el país.
+TITULO IV
+Del impuesto sobre las remesas al exterior
+CAPITULO XXII
+De la materia imponible y del hecho generador
+(Así modificada su numeración por el artículo 1º de ley No.7551 del 22 de setiembre de 1995, del antiguo XXI al actual)
+ARTICULO 52.- Objeto del impuesto. Este impuesto grava toda renta o beneficio de fuente costarricense destinada al exterior.
+(Así modificada su numeración por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que la traspasó del antiguo 47 al actual)

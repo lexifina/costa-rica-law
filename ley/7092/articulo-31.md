@@ -1,5 +1,2 @@
-CAPITULO XIV
-De los períodos de trabajo discontinuos o mayores
-Artículo 31.- Períodos irregulares.
-Los asalariados que efectúen trabajos eventuales o discontinuos pagarán este impuesto por la parte proporcional de los días efectivamente trabajados.
-Igual procedimiento se aplicará respecto de la cuota exenta. Para las rentas correspondientes a períodos mayores de un mes se aplicará, en forma proporcional, la escala de tasas y la cuota exenta contenida en el artículo 30 de esta ley.
+ARTICULO 31.-(Derogado por Ley N° 7976 del 4 de enero del 2000)
+(Así adicionado por el artículo 1º de ley No. 7551 de 22 de setiembre de 1995, que además corrigió la numeración del articulado, pasando el antiguo 31 a ser el actual 36)

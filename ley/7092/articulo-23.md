@@ -1,25 +1,160 @@
-Artículo 23.- Retención en la fuente.
-Toda empresa pública o privada, sujeta o no al pago de este impuesto, incluidos el Estado, los bancos de Sistema Bancario Nacional, el Instituto Nacional de Seguros y las demás instituciones autónomas o semiautónomas, las municipalidades y las asociaciones e instituciones a que se refiere el artículo 3º de esta ley, está obligada a actuar como agente de retención o de percepción del impuesto, cuando pague o acredite rentas afectas al impuesto establecido en esta ley. Para estos fines, los indicados sujetos deberán retener y enterar al Fisco, por cuenta de los beneficiarios de las rentas que a continuación se mencionan, los importes que en cada caso se señalan:
-a) Salarios y cualquier otra remuneración que se pague en ocasión de trabajo personal ejecutado en relación de dependencia.
-En estos casos el pagador o patrono deberá calcularle el impuesto mensual que corresponda a cada uno de los beneficiarios de las rentas indicadas.
-Si el beneficiario fuere una persona no domiciliada en Costa Rica, sobre el monto pagado o acreditado se retendrán las sumas del impuesto que procedan, de acuerdo con lo establecido en el artículo 54 de esta ley. En el reglamento se incluirán las disposiciones a que se refiere este inciso.
-b) Dietas, gratificaciones y otras prestaciones por servicios personales, en ocasión del trabajo en relación de dependencia. En estos casos, si los beneficiarios de tales rentas fueren personas domiciliadas en el país, el pagador deberá retener el diez por ciento (10%) sobre los importes que pague o acredite a dichas personas; si los receptores de las rentas fueren personas no domiciliadas en Costa Rica, se retendrán las sumas que correspondan, según lo estipulado en el artículo 54 de esta ley.
-c) Intereses y otras retribuciones de capital. Si los beneficiarios de estas rentas fueren personas domiciliadas en Costa Rica, el pagador deberá retener como impuesto único y definitivo el quince por ciento (15%) sobre los montos pagados o acreditados. Quedan comprendidos en este inciso los intereses, comisiones y cualquier forma de pago que se adopte para retribuir los capitales invertidos en el país.
-1º.-Los emisores, agentes pagadores, sociedades anónimas y otras entidades públicas o privadas que, en su función de captar recursos del mercado financiero, paguen o acrediten intereses o concedan descuentos sobre pagarés, letras de cambio, aceptaciones bancarias y toda clase de títulos valores, deberán también retener el quince por ciento (15%) de dichas rentas por concepto del impuesto. Si los títulos valores se inscribieran en una bolsa de comercio reconocida oficialmente, o hubieren sido emitidos por entidades financieras debidamente registradas en la Auditoría General de Bancos al tenor de la ley Nº 5044 del 7 de setiembre de 1972 y sus reformas, por el Estado y sus instituciones, por los bancos integrados al Sistema Bancario Nacional, o por las cooperativas, el porcentaje por aplicar será el ocho por ciento (8%).
-Los bancos y las entidades financieras mencionadas en el párrafo anterior, cuando avalen letras de cambio para ser negociadas en una bolsa de comercio reconocida oficialmente, deberán retener el cinco por ciento (5%) sobre el valor de descuento, que, para estos casos, se equiparará a la tasa de interés pasiva fijada por el Banco Central de Costa Rica para el plazo correspondiente, más de tres puntos porcentuales. En las letras de cambio avaladas para ser negociadas fuera de las bolsas, la retención será del quince por ciento (15%) sobre el descuento concedido.
-No estarán afectas al impuesto sobre la renta, ni al establecido en este inciso las rentas derivadas de títulos valores en moneda extranjera emitidos por el Estado o por los Bancos del Estado.
-Se faculta a la Dirección General de la Tributación Directa para que, en aquellos casos en que por la naturaleza del título se dificulte la retención en la fuente, pueda autorizar, con carácter general, otra modalidad de pago.
-2º.-Las retenciones de los impuestos a que se refieran los incisos anteriores deberán practicarse en la fecha en que se efectúe el pago o crédito, según el acto que se realice primero. Asimismo, deberán depositarse en el Banco Central de Costa Rica o en sus tesorerías auxiliares, dentro de los primeros diez días hábiles del mes siguiente a aquella fecha.
-ch) Excedentes pagados por las cooperativas y las asociaciones solidaristas y similares.
-Estas entidades deberán enterar al Fisco, como impuesto único y definitivo, por cuenta de sus asociados, un monto equivalente al cinco por ciento (5%) de los excedentes o utilidades distribuidas.
-d) Remesas o créditos a favor de beneficiarios domiciliados en el exterior.
-En estos casos, el pagador retendrá, como impuesto único y definitivo, las sumas del impuesto que correspondan de acuerdo con lo señalado en el artículo 54 de esta ley.
-e) Transporte, comunicaciones, reaseguros, películas cinematográficas, noticias internacionales y los otros servicios mencionados en los incisos a), b), c) y ch) del artículo 11 de esta ley, prestados por empresas no domiciliadas en el país. En estos casos, si las empresas que suministran los servicios tienen representante permanente en Costa Rica, las empresas usuarias deberán retener, como pago a cuenta del impuesto establecido en el artículo 15 de esta ley, el tres por ciento (3%) sobre los importes pagados o acreditados.
-Cuando dichas empresas no tengan representantes permanentes en el país, las empresas usuarias de los servicios deberán retener, como impuesto único, las sumas que a continuación se mencionan:
-i) El ocho punto cinco por ciento (8.5%) sobre el monto pagado o acreditado, tratándose de servicios de transporte y comunicaciones.
-ii) El cinco punto cinco por ciento (5.5%), tratándose de reaseguros, reafianzamientos y primas cedidas de cualquier clase.
-iii) El veinte por ciento (20%) sobre el importe pagado o acreditado en el caso de prestación de los otros servicios indicados en el inciso e).
-f) Utilidades, dividendos y participaciones sociales.
-En estos casos se deberán aplicar las disposiciones a que se refieren los artículos 18 y 19 de esta ley.
-Las personas que actúen como agentes de retención o percepción del impuesto, deberán depositar el importe de las retenciones practicadas en el Banco Central de Costa Rica, sus agencias, o en las tesorerías auxiliares autorizadas, dentro de los primeros diez días hábiles del mes siguiente a la fecha en que se efectuaron. En el reglamento se establecerán, en cada caso, los requisitos que deberán cumplir los agentes de retención o percepción, así como lo relativo a los informes que deberán proporcionar a la Administración Tributaria , y a los comprobantes que deberán entregar a las personas a quienes se les hizo la retención de que se trate.
-Los requisitos que deberán cumplirse y la forma de las retenciones que establece este artículo serán fijados en reglamento de esta ley.
+ARTICULO 23.- Retención en la fuente.
+Toda empresa pública o privada, sujeta o no al pago de este
+impuesto, incluidos el Estado, los bancos del Sistema Bancario Nacional,
+el Instituto Nacional de Seguros y las demás instituciones autónomas o
+semiautónomas, las municipalidades y las asociaciones e instituciones a
+que se refiere el artículo 3 de esta Ley, está obligado a actuar como
+agente de retención o de percepción del impuesto, cuando pague o acredite
+rentas afectas al impuesto establecido en esta Ley. Para estos fines, los
+indicados sujetos deberán retener y enterar al Fisco, por cuenta de los
+beneficiarios de las rentas que a continuación se mencionan, los importes
+que en cada caso se señalan:
+a) Salarios y cualquier otra remuneración que se pague en ocasión de
+trabajos personales ejecutados en relación de dependencia.
+En estos casos el pagador o patrono deberá calcularle el impuesto
+mensual que corresponda a cada uno de los beneficiarios de las
+rentas indicadas.
+Si el beneficiario fuere una persona no domiciliada en Costa
+Rica, sobre el monto pagado o acreditado se retendrán las sumas
+del impuesto que procedan, de acuerdo con lo establecido en el
+artículo 59 (*) de esta Ley. En el Reglamento se incluirán las
+disposiciones a que se refiere este inciso.
+(*) (Así reformado tácitamente por la ley No. 7551 de 22 de
+setiembre de 1995, que al correr la numeración traspasó el
+antiguo 54 al actual 59)
+b) Dietas, gratificaciones y otras prestaciones por servicios
+personales, en ocasión del trabajo en relación de dependencia. En
+estos casos, si los beneficiarios de tales rentas fueren personas
+domicialiadas en el país, el pagador deberá retener el diez por
+ciento (10%) sobre los importes que pague o acredite a dichas
+personas; si los receptores de la renta fueren personas no
+domiciliadas en Costa Rica, se retendrán las sumas que
+correspondan, según lo estipulado en el artículo 59 (*) de esta
+Ley.
+(*) (Así reformado tácitamente por la ley No. 7551 de 22 de
+setiembre de 1995, que al correr la numeración traspasó el
+antiguo 54 al actual 59)
+c)
+1.- Los emisores, agentes pagadores, sociedades anónimas y otras
+entidades públicas o privadas que, en función de captar recursos
+del mercado financiero, paguen o acrediten intereses o concedan
+descuentos sobre pagarés y toda clase de títulos valores, a
+personas domiciliadas en Costa Rica, deberán retener el quince
+por ciento (15%) de dicha renta por concepto de impuesto.
+Si los títulos valores se inscribieren en una bolsa de comercio
+reconocida oficialmente, o hubieren sido emitidos por entidades
+financieras debidamente registradas en la Auditoría General de
+Bancos, al tenor de la Ley No. 5044 del 7 de setiembre de 1972 y
+sus reformas, por el Estado y sus instituciones, por los bancos
+integrados al Sistema Bancario Nacional, por las cooperativas, o
+cuando se trate de letras de cambio y aceptaciones bancarias, el
+porcentaje por aplicar será el ocho por ciento (8%).
+Cuando los bancos y las entidades financieras mencionadas en el
+párrafo anterior avalen letras de cambio o aceptaciones
+bancarias, la retención se aplicará sobre el valor de descuento
+que, para estos casos, se equiparará a la tasa de interés pasiva
+fija por el Banco Central de Costa Rica, para el plazo
+correspondiente, más tres puntos porcentuales.
+No estarán sujetas al impuesto sobre la renta ni al establecido
+en este inciso, las rentas derivadas de títulos valores en moneda
+extranjera, emitidos por el Estado o por los bancos del Estado y
+los títulos emitidos en moneda nacional por el Banco Popular y de
+Desarrollo Comunal y por el Sistema Financiero Nacional para la
+Vivienda, al amparo de la Ley No. 7052 del 13 de noviembre de
+1986. Las inversiones de fideicomiso sin fines de lucro, creado
+mediante el artículo 6 de la Ley No. 7044 del 29 de setiembre de
+1986, Ley de creación de la Escuela de Agricultura de la Región
+Tropical Húmeda.
+Asimismo, no están sujetas a esta retención, únicamente, las
+entidades enumeradas que se encuentren en las condiciones
+señaladas en el inciso a) del artículo 3 de la presente Ley y el
+Banco Popular y de Desarrollo Comunal, cuando inviertan en
+títulos valores emitidos por el Ministerio de Hacienda.
+Las sumas retenidas se considerarán como impuesto único y
+definitivo.
+Se faculta a la Dirección General de la Tributación Directa para
+que, en aquellos casos en que por la naturaleza del título se
+dificulte la retención en la fuente, pueda autorizar, con
+carácter general, otra modalidad de pago.
+2.- Las retenciones de los impuestos a que se refieren los
+incisos anteriores deberán practicarse en la fecha en la que se
+efectúe el pago o crédito, según el acto que se realice primero.
+Asimismo, deberán depositarse en el Banco Central de Costa Rica o
+en sus tesorerías auxiliares, dentro de los primeros diez días
+hábiles del mes siguiente a aquella fecha.
+ch) Excedentes pagados por las cooperativas y las asociaciones
+solidaristas y similares.
+Estas entidades deberán enterar al Fisco, como impuesto único y
+definitivo, por cuenta de sus asociados, un monto equivalente al
+cinco por ciento (5%) de los excedentes o utilidades
+distribuidas.
+d) Remesas o créditos a favor de beneficiarios domiciliados en el
+exterior. En estos casos, el pagador retendrá, como impuesto
+único y definitivo, las sumas del impuesto que correspondan de
+acuerdo con lo señalado en el artículo 59 (*) de esta Ley.
+(*) (Así reformado tácitamente por la ley No. 7551 de 22 de
+setiembre de 1995, que al correr la numeración traspasó el
+antiguo 54 al actual 59)
+e) Transporte, comunicaciones, reaseguros, películas
+cinematográficas, noticias internacionales y los otros servicios
+mencionados en los incisos a), b), c) y ch) del artículo 11 de
+esta Ley, prestados por empresas no domiciliadas en el país. En
+estos casos, si las empresas que suministran los servicios tienen
+representante permanente en Costa Rica, las empresas usuarias
+deberán retener, como pago a cuenta del impuesto establecido en
+el artículo 15 de esta Ley, el tres por ciento (3%) sobre los
+importes pagados o acreditados.
+Cuando dichas empresas no tengan representantes permanentes en el
+país, las empresas usuarias de los servicios deberán retener,
+como impuesto único, las sumas que a continuación se mencionan:
+i) El ocho punto cinco por ciento (8.5%) sobre el monto pagado o
+acreditado, tratándose de servicios de transporte y
+comunicaciones.
+ii) El cinco punto cinco por ciento (5.5%), tratándose de
+reasegurados, reafianzamientos y primas cedidas de cualquier
+clase.
+iii) El veinte por ciento (20%) sobre el importe pagado o
+acreditado en el caso de prestación de los otros servicios
+indicados en el inciso e).
+f) Utilidades, dividendos y participaciones sociales. En estos casos
+se deberán aplicar las disposiciones a que se refieren los
+artículos 18 y 19 de esta Ley.
+Las personas que actúen como agentes de retención o percepción
+del impuesto, deberán depositar el importe de las retenciones
+practicadas en el Banco Central de Costa Rica, sus agencias, o en
+las tesorerías auxiliares autorizadas, dentro de los primeros
+diez días hábiles del mes siguiente a la fecha en que se
+efectuaron. En el Reglamento se establecerán, en cada caso, los
+requisitos que deberán cumplir los agentes de retención o
+percepción, así como lo relativo a los informes que deberán
+propocionar a la Administración Tributaria, y a los comprobantes
+que deberán entregar a las personas a quienes se les hizo la
+retención de que se trate.
+Los requisitos que deberán cumplir y la forma de las retenciones
+que establece este artículo serán fijados en el Reglamento de
+esta Ley.
+g) El Estado o sus instituciones, autónomas o semiautónomas, las
+municipalidades, las empresas públicas y otros entes públicos, en
+los casos de licitaciones públicas o privadas, contrataciones,
+negocios u otras operaciones realizadas por ellas, que paguen o
+acrediten rentas a personas físicas o jurídicas con domicilio en
+el país, deben retener el dos por ciento (2%) del producto bruto
+sobre las cantidades mencionadas, aun cuando se trate de pagos a
+cuenta o adelanto de esas operaciones.
+El contribuyente podrá solicitar que los montos de las
+retenciones efectuadas con base en la presente disposición, se
+acrediten a los pagos parciales citados en el artículo 22 de esta
+Ley.
+Esas retenciones deben practicarse en las fechas en que se
+efectúen los pagos o los créditos que las originen. Las sumas
+retenidas deberán depositarse en los bancos del Sistema Bancario
+Nacional o en sus agencias o sucursales, que cuenten con la
+autorización del Banco Central, dentro de los primeros diez (10)
+días del mes siguiente a la fecha de la retención; se utilizará
+el formulario que proporcionará la Administración Tributaria o,
+si este documento no está disponible, los enteros corrientes para
+pagos al Gobierno.
+(Así reformado por el artículo 16 de la Ley de Justicia
+Tributaria No. 7535 de 1º de agosto de 1995, el cual, al
+adicionar el inciso g), reproduce íntegramente el contenido del
+artículo)
