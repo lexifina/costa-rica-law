@@ -1,4 +1,6 @@
+(Derogado)
 N° 157
+(Esta norma fue derogada por el punto 11) del Título Duodécimo del Capítulo Único “Disposiciones Finales”, del artículo 624 del Código de Trabajo, N° 2 del 27 de agosto de 1943)
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 Artículo 1°-Mientras se llenan las formalidades que exige la ley número 41 de 19 de diciembre de 1934, fínjase los salarios de los trabajadores del campo en la siguiente forma:

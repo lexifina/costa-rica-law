@@ -1,1 +1,1 @@
-Artículo 41.-Prohíbese el trabajo de menores de doce años, salvo en el caso contemplado en el inciso 3º del artículo 40, y de un tiempo mayor de siete horas diarias y de cuarenta y dos semanales a los mayores de 15 años y menores de 18.
+Artículo 41.- (Derogado por el aparte 5) del Capítulo Único de las Disposiciones Finales de la Sección I del Código de Trabajo, N° 2 del 27 de agosto de 1943)
