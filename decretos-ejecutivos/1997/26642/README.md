@@ -13,3 +13,4 @@ RTCR 307:1997Requisitos Fitosanitarios Importación Productos VegetalesPrpcesado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-24 | la propia norma |
+| 2 | 2000-10-30 | Ley 7 |
