@@ -1,0 +1,2 @@
+Artículo 38.- El Ministerio de Recursos Naturales, Energía y Minas, por medio de la Dirección General Forestal o del Servicio de Parques Nacionales, delimitará, en el terreno, los linderos de las áreas que conforman el patrimonio forestal del Estado.
+El procedimiento de deslinde será fijado en el reglamento de esta ley. Se habilita a la Dirección General Forestal para crear el catálogo de utilidad pública, cuyos efectos serán regulados por vía reglamentaria.

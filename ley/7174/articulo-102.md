@@ -1,0 +1,1 @@
+Artículo 102.- La Dirección General Forestal deberá mantener un estudio de mercado nacional de productos forestales, para garantizar que esta materia prima pueda ser suministrada en forma permanente, y sólo autorizará la exportación de productos forestales cuando estén satisfechas las necesidades nacionales.

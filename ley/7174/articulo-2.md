@@ -1,0 +1,1 @@
+Artículo 2.- Las disposiciones de esta ley tendrán como objetivo primordial, además de lo señalado, la generación de empleo y el incremento del nivel de vida de la población rural radicada en las áreas forestales, mediante su efectiva incorporación a las actividades silviculturales e industriales.

@@ -1,0 +1,1 @@
+Artículo 5.- Para los efectos de esta ley, se consideran terrenos de aptitud forestal, aquellos contemplados en las clases señaladas por la Dirección General Forestal, según la metodología de clasificación de tierras que se declare como oficial.

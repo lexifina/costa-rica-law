@@ -1,0 +1,1 @@
+Artículo 78.- Toda persona que advierta la existencia o iniciación de un incendio forestal, deberá dar cuenta del hecho a la autoridad de policía más cercana, la cual estará facultada para organizar brigadas contra incendio, y para exigir la colaboración de los particulares y de los organismos de la Administración Pública.
