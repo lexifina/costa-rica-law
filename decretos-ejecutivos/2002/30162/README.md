@@ -14,3 +14,4 @@ Modifica los límites de gasto para el año 2002 del Instituto Costarricense de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-22 | la propia norma |
+| 2 | 2002-09-18 | Decreto Ejecutivo 30776 (2002-09-18) |

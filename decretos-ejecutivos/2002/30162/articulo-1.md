@@ -12,3 +12,4 @@ Artículo 1°—Modifícase el artículo 1° del Decreto Ejecutivo N° 29511-H, 
 Límites Millones de colones
 Gasto presupuestario 856.9
 Gasto efectivo 856.9
+(Modificado el límite de gasto presupuestario y efectivo del 2002, para el Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud, por el artículo 1 del decreto ejecutivo N° 30776 de 18 de setiembre del 2002)
