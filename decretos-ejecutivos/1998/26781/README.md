@@ -14,3 +14,4 @@ Memorando de Entendimiento entre el Gobierno de Canadá y el de Costa Rica sobre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-03 | la propia norma |
+| 2 | 1998-07-03 | Ley 8 |
