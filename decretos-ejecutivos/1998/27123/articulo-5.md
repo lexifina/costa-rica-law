@@ -1,0 +1,1 @@
+Artículo 5°-Luego de completados los requisitos de la petición señalados en el artículo anterior, se solicitará el Estado receptor su manifestación expresa sobre si aprueba o no la repatriación del interesado.

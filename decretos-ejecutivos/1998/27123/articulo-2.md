@@ -1,0 +1,1 @@
+Artículo 2°.- El trámite podrá ser promovido por el Estado sentenciador, el Estado receptor, la persona sentenciada o su representante legal, cuando al sentenciado le falte por cumplir al menos seis meses de su condena. En todo caso se requiere el consentimiento previo y expreso de la persona sentenciada.

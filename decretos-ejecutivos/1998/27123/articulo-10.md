@@ -1,0 +1,1 @@
+Artículo 10.-El Instituto Nacional de Criminología llevará un registro de los informes que los Estados Receptores envíen periódicamente, sobre la ejecución de la condena de cada una de las personas que hayan sido trasladadas.
