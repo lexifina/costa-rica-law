@@ -1,0 +1,1 @@
+Art. 4. Las patentes de que habla este decreto se daran per la Intendencia general, prévia certificacion de haber asegurado su valor competentemente en la Administracion general de licores extranjeros en donde el interesado lo satisfarà por trimestres.

@@ -1,0 +1,1 @@
+Art. 5. Ninguna persona podrá, sin la patente correspondiente, hacer compras en depósito, de licores extránjeros para expenderlos en el puerto ó en cualquiera otro punto del Estado; y los que quebranten esta prohibicion quedan sujetos á las penas que establece el reglamento de 24 de setiembre del corriente año.

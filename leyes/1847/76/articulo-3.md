@@ -1,0 +1,1 @@
+Art. 3. Toda persona que presente al Administrador de Puntarenas patente para vender licores extranjeros en aquel puerto ó en el Departamento del Guanacaste, con conocimiento del mismo Administrador puede hacer compras, en depósito, de licores extranjeros de toda clase.
