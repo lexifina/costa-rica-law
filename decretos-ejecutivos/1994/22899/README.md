@@ -14,3 +14,4 @@ Reforma Reglamento sobre Granjas Porcinas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-02-23 | la propia norma |
+| 2 | 1996-09-30 | Decreto Ejecutivo 25558 (1996-09-30) |
