@@ -1,0 +1,1 @@
+Art 7° Los poseedores tendrán derecho a conservar el principal en su poder pagando un interés de un seis por ciento anual, por todo el tiempo que quieran, quedando expresamente afectado al pago el terreno. El interés debe pagarse adelantado, y las escrituras de seguridad deben otorgarse a costa de los compradores.

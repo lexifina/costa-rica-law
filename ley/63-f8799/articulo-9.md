@@ -1,0 +1,1 @@
+Art 9° Otorgada por el poseedor o por el rematario la escritura de seguridad, se le expedirá el título correspondiente y, desde ese acto, serán reputados como legitimados propietarios del terreno, sin perjuicio de la inscripción en el Registro de la propiedad para los efectos legales.
