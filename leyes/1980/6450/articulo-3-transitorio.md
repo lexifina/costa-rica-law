@@ -1,0 +1,1 @@
+Transitorio III.- En el caso de que en el transcurso de 1980 no se recaudara el monto previsto en el párrafo primero del artículo 3º, lo efectivamente recaudado se distribuirá, en la misma proporción señalada en ese artículo, entre la Universidad Nacional y el Instituto Tecnológico.

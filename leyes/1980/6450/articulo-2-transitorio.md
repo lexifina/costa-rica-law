@@ -1,0 +1,1 @@
+Transitorio II.- Se concede un plazo no mayor de un año para que aquellos títulos de crédito, comprendidos en la disposición del artículo 63, párrafos 1) y 2), se registren en la Bolsa Nacional de Valores.
