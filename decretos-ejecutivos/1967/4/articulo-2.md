@@ -1,0 +1,1 @@
+Articulo 2°-A los ciudadanos belgas que permanezcan o deseen permanecer por un periodo mayor de tres meses se les podrá otorgar una autorización de estadía provisional que será extendida por el representante diplomático o consular competente, o en su defecto por la Dirección General de Migración.
