@@ -1,0 +1,1 @@
+Artículo 3°.- Los ochenta mil colones (₵80.000.00) que por esta ley se autorizan, se tomarán de los fondos de los citados distritos en que se realizará la extensión eléctrica y de la partida “Obras” del Presupuesto General de la Municipalidad. Toda erogación deberá ser previamente aprobada y autorizada y autorizada por la Contraloría General de la República.
