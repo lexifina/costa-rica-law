@@ -1,0 +1,1 @@
+Artículo 45.—Funciones y Definición de Procesos. Los ajustes en cuanto a funciones y definiciones de procesos estarán a cargo de cada unidad en coordinación plena con la Unidad Asesora de Transición Institucional.

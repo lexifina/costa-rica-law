@@ -1,0 +1,2 @@
+Artículo 12.—Relaciones Públicas. La unidad de Relaciones Públicas será la responsable de proyectar y mantener una adecuada imagen del Ministerio ante el público.
+Deberá crear y difundir información sobre las actividades y los servicios que brinda el Ministerio, así como establecer las políticas y brindar la debida coordinación en la divulgación de la información con los Consejos, en todos los medios masivos de comunicación.

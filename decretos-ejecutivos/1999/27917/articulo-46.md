@@ -1,0 +1,1 @@
+Artículo 46.—Prevalencia. Este Decreto deroga, estrictamente en lo que se le oponga y en lo no contemplado en su contenido, cualquier norma de menor o igual rango preexistente, particularmente aquellas de orden organizativo expedidas para el Ministerio de Obras Públicas y Transportes.

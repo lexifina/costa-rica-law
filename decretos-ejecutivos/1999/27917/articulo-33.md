@@ -1,0 +1,5 @@
+Artículo 33.—Policía de Tránsito. De conformidad con lo dispuesto en el Capítulo Cuarto de la Ley de Administración Vial y la Ley de Tránsito por Vías Públicas Terrestres, la Dirección de Policía de tránsito, tendrá como objetivo velar técnicamente para que el transporte terrestre se lleve a cabo de la mejor manera posible, en procura de la integridad física de personas y semovientes.
+Tendrá entre sus funciones:
+a. Ejercer el control y vigilancia del tránsito a nivel nacional, haciendo cumplir las disposiciones técnicas y legales establecidas para la circulación en adecuadas condiciones de seguridad de personas, vehículos y cargas.
+b. Establecer y administrar un registro de accidentes y de infracciones a las disposiciones de las leyes de tránsito. Esta labor debe coordinarse con la unidad correspondiente del Consejo de Seguridad Vial y de la Dirección de Ingeniería de Tránsito.
+c. Ejercer una adecuada vigilancia e información oportuna sobre invasiones de derechos de vía y de ineficaz señalización.

@@ -1,0 +1,1 @@
+Artículo 28.—Absorción y traslado de funciones. Las actuales funciones y personal de las áreas o subáreas de Vialidad y Obras por Contrato y Conservación Vial, serán debidamente distribuidos en lo posible en otras unidades del Ministerio.

@@ -1,0 +1,1 @@
+Artículo 26.—Edificaciones. Le corresponde regular los asuntos relativos a los centros educativos y obras públicas comunales, diseñando y preparando especificaciones técnicas, carteles de licitación de las obras que ejecute por contrato, así como las que realice por administración, velando porque se construyan y conserven de acuerdo a las especificaciones.

@@ -1,0 +1,1 @@
+Artículo 11.—Auditoría General. La unidad de Auditoría deberá establecer las normas para examinar y evaluar los mecanismos y procedimientos contable-financieros y técnicos de el Ministerio y de Consejos, conducentemente.

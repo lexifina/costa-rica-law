@@ -1,0 +1,1 @@
+Artículo 27.—Ayuda Comunal. Corresponde a esta unidad brindar asesoramiento técnico, aporte de materiales y mano de obra a organizaciones sociales, comunales e instituciones gubernamentales en la ejecución de obras que beneficien a las comunidades.

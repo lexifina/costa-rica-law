@@ -1,0 +1,1 @@
+Artículo 7º—Oficialía Mayor. La Oficialía Mayor será la encargada de los procesos de administración de los Despachos del Ministro y de los Viceministros. Tendrá además las funciones que le asignen estos Despachos, así como la coordinación de la unidad de Seguridad y Embellecimiento de Carreteras.

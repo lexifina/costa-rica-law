@@ -1,0 +1,1 @@
+Artículo 31.—Representación. Cada uno de los órganos mencionados en el artículo anterior estarán a cargo de un Director. En aquellos casos que se determine la necesidad, se designará a un Subdirector.

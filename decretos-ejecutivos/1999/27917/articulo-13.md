@@ -1,0 +1,2 @@
+Artículo 13.—Contraloría de Servicios. La Contraloría de Servicios ayudará en la prestación eficiente y eficaz de los servicios públicos que brinda el Ministerio, debiendo actuar en forma interrelacionada o interactiva con las diferentes instancias de la institución.
+Será también la responsable de ejercer vigilancia sobre la debida prestación de los servicios, recibiendo las quejas y denuncias de los usuarios de los servicios, evacuando consultas, dando información y orientación.
