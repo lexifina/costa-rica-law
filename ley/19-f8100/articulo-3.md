@@ -1,0 +1,1 @@
+Art. 3°.- La Junta Electoral de provincia, tan luego como haya recibido las actas de votación, procederá al escrutinio general, declarará electores principales y suplentes á los que, conforme al resultado del escrutinio general, hayan obtenido mayoría de votos, y comunicará inmediatamente el nombramiento á los electores.

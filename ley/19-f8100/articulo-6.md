@@ -1,0 +1,2 @@
+Art. 6° -Mientras se expide la ley que fije definitivamente los límites jurisdiccionales de las circunscripciones políticas en que esta dividida la República, los del cantón de Pacaca serán los mismos que se reconocían al distrito del mismo nombre.
+Dado en el Palacio Presidencial, en San José. Á 7 de junio de mil ochocientos ochenta y tres. P. FERNANDEZ. -El Secretario de Estado en el Despacho de Gobernación. -VÍCTOR GUARDIA.
