@@ -1,1 +1,2 @@
-Texto no disponible
+(Derogado)
+Artículo 33°-
