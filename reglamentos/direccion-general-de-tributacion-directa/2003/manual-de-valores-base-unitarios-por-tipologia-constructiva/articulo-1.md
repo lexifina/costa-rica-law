@@ -1,0 +1,284 @@
+HACIENDA
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+MANUAL DE VALORES BASE UNITARIOS
+POR TIPOLOGÍA CONSTRUCTIVA
+NOTA DE SINALEVI: La Dirección General de Tributación Directa, publicó un nuevo Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Alcance N° 48 a La Gaceta N° 243 del 16 de diciembre del 2005, mismo que puede ser consultado en el Sistema).
+CONTENIDO
+1 INTRODUCCIÓN
+2 METODOLOGÍA
+2.1 PROCEDIMIENTO
+3 LISTA DE CÓDIGOS DE REFERENCIA
+4 DESCRIPCIÓN Y VALOR DE LAS CONSTRUCCIONES,
+INSTALACIONES Y OBRAS COMPLEMENTARIAS
+4.1 CONSTRUCCIONES
+4.1.1 VIVIENDAS
+VIVIENDAS DE CONCRETO
+TIPO VC01
+TIPO VC02
+TIPO VC03
+TIPO VC04
+TIPO VC05
+TIPO VC06
+TIPO VC07
+TIPO VC08
+TIPO VC09
+VIVIENDAS DE MADERA
+TIPO VM01
+TIPO VM02
+TIPO VM03
+TIPO VM04
+VIVIENDAS DE ADOBE
+TIPO VA01
+VIVIENDAS DE BAMBÚ
+TIPO VB01
+4.1.2 APARTAMENTOS
+TIPO AP01
+TIPO AP02
+TIPO AP03
+TIPO AP04
+TIPO AP05
+4.1.3 EDIFICIOS EDUCATIVOS
+TIPO EE01
+TIPO EE02
+TIPO EE03
+TIPO EE04
+4.1.4 EDIFICIOS DE SALUD
+TIPO ES01
+TIPO ES02
+TIPO ES03
+4.1.5 EDIFICIOS RELIGIOSOS
+TIPO ER01
+TIPO ER02
+4.1.6 EDIFICIOS DE OFICINAS Y COMERCIALES
+TIPO EO01
+TIPO EO02
+TIPO EO03
+TIPO EO04
+TIPO EO05
+TIPO EO06
+TIPO EO07
+4.1.7 LOCALES COMERCIALES
+TIPO LC01
+TIPO LC02
+TIPO LC03
+TIPO LC04
+TIPO LC05
+4.1.8 CENTROS COMERCIALES
+TIPO CC01
+TIPO CC02
+4.1.9 HOTELES
+TIPO HT01
+TIPO HT02
+TIPO HT03
+TIPO HT04
+TIPO HT05
+4.1.10 CINES
+TIPO CI01
+TIPO CI02
+TIPO CI03
+4.1.11 TEATROS
+TIPO TE01
+TIPO TE02
+TIPO TE03
+4.1.12 GALERONES
+TIPO GA01
+TIPO GA02
+TIPO GA03
+TIPO GA04
+TIPO GA05
+4.1.13 EXPENDIOS DE COMBUSTIBLE
+TIPO EX01
+TIPO EX02
+TIPO EX03
+4.2 INSTALACIONES
+4.2.1 CANCHAS
+TIPO IB01 BALONCESTO DE CONCRETO
+(CANCHA MULTIUSO)
+TIPO IB02 CANCHA DE BALONCESTO ASFALTADA
+TIPO IT01 CANCHA DE TENIS EN CONCRETO
+TIPO IT02 CANCHA DE TENIS EN ASFALTO
+TIPO IH00 CANCHA SQUASH
+TIPO IF00 CANCHA DE FÚTBOL
+4.2.2 PISTAS ATLETISMO
+TIPO IA00
+4.2.3 PISCINAS
+TIPO PI01
+TIPO PI02
+TIPO PI03
+TIPO PI04
+TIPO PI05
+4.2.4 AGUAS TURBULENTAS
+TIPO AT01
+TIPO AT02
+TIPO AT03
+TIPO AT04
+TIPO AT05
+TIPO AT06
+TIPO AT07
+TIPO AT08
+4.2.5 SAUNAS
+TIPO IS01
+4.2.6 RANCHOS BBQ
+TIPO IQ01
+TIPO IQ02
+TIPO IQ03
+4.3 OBRAS COMPLEMENTARIAS
+4.3.1 VERJAS
+TIPO VJ01 Verja sencilla tubo cuadrado o redondo
+TIPO VJ02 Verja lujosa tubo cuadrado o redondo
+TIPO VJ03 Verja lujosa de hierro forjado
+4.3.2 LOSAS
+TIPO LO01
+TIPO LO02
+TIPO LO03
+Losas de concreto con refuerzo
+(Con malla de varilla N° 2)
+TIPO LO04
+TIPO LO05
+TIPO LO06
+Losas de concreto con refuerzo
+TIPO LO07
+TIPO LO08
+TIPO LO09
+4.3.3 CARRETERAS
+TIPO PC01
+TIPO PC02
+4.3.4 PAVIMENTOS DE LASTRE
+TIPO PL01
+TIPO PL02
+TIPO PL03
+4.3.5 CARPETA ASFÁLTICA
+TIPO PA01
+TIPO PA02
+TIPO PA03
+TIPO PA04
+4.3.6 OBRAS VARIAS
+TIPO AC01 Acera
+TIPO AC02 Graderías
+TIPO AC03 Cordón y caño
+TIPO AC04 Cuneta media caña
+4.3.7 TAPIAS
+TIPO TP01
+TIPO TP02
+TIPO TP03
+TIPO TP04
+TIPO TP05
+TIPO TP06
+4.3.8 CERCAS
+TIPO CA01
+TIPO CA02
+4.3.9 MUROS DE RETENCIÓN
+TIPO MR01
+TIPO MR02
+TIPO MR03
+5 DEPRECIACIÓN DE CONSTRUCCIONES
+E INSTALACIONES
+6 REMODELACIONES
+6.1 Porcentaje de remodelación
+7 ANEXO 1
+7.1 OBSERVACIONES GENERALES PARA CUARTOS DE BAÑO
+8 ANEXO 2.
+8.1 VIDA ÚTIL PROBABLE EN AÑOS
+8.2 Tipo de construcción o edificación
+8.2.1 VIVIENDAS
+VIVIENDAS DE CONCRETO
+VIVIENDAS DE MADERA
+VIVIENDA DE ADOBE
+VIVIENDA DE BAMBÚ
+8.2.2 APARTAMENTOS
+8.2.3 EDIFICIOS EDUCATIVOS
+8.2.4 EDIFICIOS DE SALUD
+8.2.5 EDIFICIOS RELIGIOSOS
+8.2.6 EDIFICIOS DE OFICINAS Y COMERCIALES
+8.2.7 LOCALES COMERCIALES
+8.2.8 CENTROS COMERCIALES
+8.2.9 HOTELES
+8.2.10 CINES
+8.2.11 TEATROS
+8.2.12 GALERONES
+8.2.13 EXPENDIOS DE COMBUSTIBLE
+8.3 INSTALACIONES
+8.3.1 CANCHAS
+8.3.2 PISTAS DE ATLETISMO
+8.3.3 PISCINAS
+8.3.4 AGUAS TURBULENTAS
+8.3.5 SAUNAS
+8.3.6 RANCHOS BBQ
+8.4 OBRAS COMPLEMENTARIAS
+8.4.1 VERJAS
+8.4.2 LOSAS
+8.4.3 CARRETERAS
+8.4.4 PAVIMENTOS DE LASTRE
+8.4.5 CARPETA ASFÁLTICA
+8.4.6 OBRAS VARIAS
+8.4.7 TAPIAS
+8.4.8 CERCAS
+8.4.9 MUROS DE RETENCIÓN
+9 FUENTES DE INFORMACIÓN
+TIPOLOGÍA | CÓDIGO | VALOR / M2 ¢ | VIDA ÚTIL | | TIPOLOGÍA | CÓDIGO | VALOR ¢ | VIDA ÚTIL
+| | | |
+VIVIENDAS DE CONCRETO | VC01 | 54.000,00 | 40 | | GALERONES | GA01 | 30.000,00 | 40
+| VC02 | 72.000,00 | 40 | | | GA02 | 42.000,00 | 50
+| VC03 | 84.000,00 | 50 | | | GA03 | 60.000,00 | 60
+| VC04 | 96.000,00 | 60 | | | GA04 | 72.000,00 | 60
+| VC05 | 108.000,00 | 60 | | | GA05 | 84.000,00 | 60
+| VC06 | 126.000,00 | 60 | | EXPENDIOS COMBUSTIBLE | EX01 | 15.000,00 c/m2 | 40
+| VC07 | 144.000,00 | 60 | | | EX02 | 35.000,00 c/m2 | 50
+| VC08 | 162.000,00 | 70 | | | EX03 | 50.000,00 c/m2 | 60
+| VC09 | 180.000,00 | 70 | | CANCHAS BALONCESTO | IB01 | 5.000,00 c/m2 | 20
+VIVIENDAS DE MADERA | VM 01 | 54.000,00 | 40 | | | IB02 | 4.000,00 c/m2 | 15
+| VM 02 | 72.000,00 | 40 | | CANCHAS TENIS | IT01 | 13.000,00 c/m2 | 15
+| VM 03 | 90.000,00 | 50 | | | IT02 | 9 500,00 c/m2 | 10
+| VM 04 | 126.000,00 | 60 | | CANCHA SQUACH | IH00 | 66.000,00 c/m2 | 20
+VIVIENDA DE BAMBÚ | VB 01 | 42.000,00 | 40 | | CANCHA FÚTBOL | IF00 | 3.000,00 c/m2 | 10
+APARTAMENTOS | AP01 | 90.000,00 | 60 | | PISTA ATLETISMO | IA00 | 7.000,00 c/m2 | 15
+| AP02 | 120.000,00 | 60 | | PISCINAS | PI01 | 37.000,00 c/m2 | 40
+| AP03 | 144.000,00 | 70 | | | PI02 | 45.000,00 c/m2 | 40
+| AP04 | 162.000,00 | 70 | | | PI03 | 1 660.000,00 c/u | 40
+| AP05 | 180.000,00 | 70 | | | PI04 | 1 885.000,00 c/u | 40
+EDIFICIOS EDUCATIVOS | EE01 | 54.000,00 | 40 | | | PI05 | 1 885.000,00 c/u | 40
+| EE02 | 66.000,00 | 50 | | AGUAS TURBULENTAS | AT01 | 268 940,00 c/u | 20
+| EE03 | 90.000,00 | 60 | | | AT02 | 274 251,00 c/u | 20
+| EE04 | 102.000,00 | 70 | | | AT03 | 355 611,00 c/u | 20
+EDIFICIOS DE SALUD | ES01 | 120.000,00 | 60 | | | AT04 | 472.000,00 c/u | 20
+| ES02 | 156.000,00 | 60 | | | AT05 | 491 911,00 c/u | 20
+| ES03 | 216.000,00 | 70 | | BAÑO SAUNA | IS01 | 84.000,00 c/m2 | 30
+EDIFICIOS RELIGIOSOS | ER01 | 60.000,00 | 50 | | RANCHOS BBQ | IQ01 | 42.000,00 c/m2 | 40
+| ER02 | 114.000,00 | 60 | | | IQ02 | 60.000,00 c/m2 | 40
+EDIFICIOS DE OFICINAS | EO01 | 90.000,00 | 50 | | | IQ03 | 90.000,00 c/m2 | 50
+| EO02 | 10 0.000,00 | 50 | | VERJAS | VJ01 | 10.000,00 c/m2 | 25
+| EO03 | 110.000,00 | 60 | | | VJ02 | 25.000,00 c/m2 | 25
+| EO04 | 125.000,00 | 60 | | | VJ03 | 35.000,00 c/m2 | 25
+| EO05 | 144.000,00 | 60 | | LOSAS | LO01 | 2 400,00 c/m2 | 20
+| EO06 | 162.000,00 | 70 | | | LO02 | 3.000,00 c/m2 | 20
+| EO07 | 180.000,00 | 70 | | | LO03 | 5.000,00 c/m2 | 20
+LOCALES COMERCIALES | LC01 | 48.000,00 | 50 | | | LO04 | 3 600,00 c/m2 | 30
+| LC02 | 60.000,00 | 50 | | | LO05 | 4 200,00 c/m2 | 30
+| LC03 | 72.000,00 | 50 | | | LO06 | 6 500,00 c/m2 | 30
+| LC04 | 96.000,00 | 60 | | | LO07 | 3 800,00 c/m2 | 30
+| LC05 | 120.000,00 | 60 | | | LO08 | 4 500,00 c/m2 | 30
+CENTROS COMERCIALES | CC01 | 132.000,00 | 60 | | | LO09 | 6 800,00 c/m2 | 30
+| CC02 | 180.000,00 | 70 | | BASES DE CONCRETO | PC01 | 13.000,00 c/m2 | 30
+HOTELES | HT01 | 72.000,00 | 50 | | | PC02 | 6.000,00 c/m2 | 30
+| HT02 | 96.000,00 | 60 | | SUB BASE LASTRE | PL01 | 2 400,00 c/m2 | 5
+| HT03 | 126.000,00 | 60 | | BASE LASTRE | PL02 | 1 600,00 c/m2 | 5
+| HT04 | 156.000,00 | 70 | | IMPRIMACIÓN ASFÁLTICA | PL03 | 160,00 c/m2 | 5
+| HT05 | 204.000,00 | 70 | | CARPETA ASFÁLTICA | PA01 | 1 800,00 c/m2 | 15
+CINES | CI01 | 84.000,00 | 50 | | | PA02 | 2.000,00 c/m2 | 15
+| CI02 | 90.000,00 | 60 | | | PA03 | 2 700,00 c/m2 | 20
+| CI03 | 96.000,00 | 60 | | | PA04 | 3 600,00 c/m2 | 20
+TEATROS | TE01 | 60.000,00 | 50 | | ACERA | AC01 | 3 800,00 c/m² | 30
+| TE02 | 84.000,00 | 50 | | GRADERÍAS | AC02 | 4 200 ,00 c/m | 30
+| TE03 | 120.000,00 | 60 | | CORDÓN Y CAÑO | AC03 | 6.000,00 c/m | 30
+CUNETA MEDIA CAÑA | | 4.000,00 c/m | 30 | | CERCA DE ALAMBRE | CA02 | 1 800,00 c/m | 10
+TAPIAS | TP01 | 20.000,00 c/m | 30 | | MUROS RETENSIÓN | MR01 | 18.000,00 c/m² | 40
+| TP02 | 22.000,00 c/m | 30 | | | MR02 | 26 500,00 c/m² | 40
+| TP03 | 16.000,00 c/m | 30 | | | MR03 | 15.000,00 c/m² | 40
+| TP04 | 20.000,00 c/m | | | TANQUES COMBUSTIBLES | | 4.000 galones | 848,000
+| TP05 | 24.000,00 c/m | 30 | | | | 5.000 galones | 939,000
+| TP06 | 30.000,00 c/m | 30 | | | | 6.000 galones | 1,074,000
+MALLA CICLÓN | CALO | 12 500,00 c/m | 40 | | | | |
+1. INTRODUCCIÓN
+El presente Manual de Valores Base Unitarios por Tipología Constructiva, es una herramienta de uso práctico para las Administraciones Tributarias Municipales en la estimación del valor de las construcciones, instalaciones y obras complementarias de cada cantón y permite la aplicación de valores de manera homogénea a nivel nacional, lo que garantiza equidad y justicia tributaria para los contribuyentes.
+Mediante la descripción detallada de cada sistema constructivo, el cual es identificado con un código, más el valor por unidad de cada uno de ellos, se facilita y agiliza la labor de los funcionarios municipales al calcular el valor de las propiedades al momento de la recepción de las declaraciones sobre bienes inmuebles, así como la realización de los avalúos. Por otra parte, este manual representa para el contribuyente, la certeza de que los valores utilizados para tasar sus propiedades son producto de una seria investigación, la cual ha sido realizada por profesionales experimentados en la materia y que reflejan el valor real de la construcción a la fecha de la publicación.
+La presente edición, es una actualización de los valores a noviembre de 2001, los cuales sustituirán los utilizados hasta la fecha que datan de octubre de 1999. Cabe mencionar que estos datos son basados en estudios de mercado, realizados en Instituciones del Estado, empresas constructoras privadas y profesionales liberales los cuales aportaron muy gentilmente sus valiosos conocimientos, así mismo, se hizo uso de los índices de la construcción emitidos por el Instituto Nacional de Estadística y Censos.
