@@ -1,0 +1,129 @@
+Nº 29650-H
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y LA MINISTRA DE HACIENDA
+Considerando:
+1º—Que el inciso 17) del artículo 7º de la Ley Nº 8050 del 7 de diciembre del 2000, autoriza al Poder Ejecutivo para que mediante decreto ejecutivo y a solicitud del Ministerio de Relaciones Exteriores y Culto, modifique en el transcurso del año la relación de puestos del programa 081-00 Servicio Exterior, y distribuya los gastos de oficinas de cancillerías, gastos de oficinas consulares y gastos de representación, con el propósito de adecuarlos a las necesidades actuales.
+2º—Que se hace necesario realizar la modificación a la Ley de Presupuesto vigente, solicitada por el Ministerio de Relaciones Exteriores y Culto, mediante oficios Nº 2001-0257-04-OPSE y Nº 2001-0414-05-OPSE. Por tanto,
+Decretan:
+Artículo 1º—Modifícase el artículo 2º de la Ley Nº 8050 del 7 de diciembre del 2000, Ley de Presupuesto Ordinario y Extraordinario de la República, para el Ejercicio Econónimo del 2001, a efecto de distribuir los gastos de oficinas consulares y oficinas de cancillerías, en la forma que se indica a continuación:
+DISTRIBUIR:
+TÍTULO 107
+MINISTERIO DE RELACIONES EXTERIORES Y CULTO
+PROGRAMA 081-00
+SERVICIO EXTERIOR
+SUBPARTIDA 191
+Gastos de Oficinas Consulares
+(A distribuir mediante decreto ejecutivo y sujeto a liquidación)
+Código
+107.081.00.191.01 Gastos de Oficinas Consulares 3.712.348
+Cuota Cuota Cuota
+Detalle Mensual Mensual Anual
+Código (del 1 de Enero al 31 de Enero) $ ¢ ¢
+107.081.00. Servicio Exterior 9.400 3.098.898 3.098.898
+107.081.00.04 Oficinas Permanentes
+en Norteamérica 7.200 2.373.624 2.373.624
+107.081.00.04.0002 NEW YORK 1.300 428.571 428.571
+107.081.00.04.0004 LOS ÁNGELES 500 164.835 164.835
+107.081.00.04.0005 NEW ORLEANS 900 296.703 296.703
+107.081.00.04.0006 ATLANTA 900 296.703 296.703
+107.081.00.04.0009 MIAMI-FLORIDA 1.000 329.670 329.670
+107.081.00.04.0010 HOUSTON-TEXAS 500 164.835 164.835
+107.081.00.04.0011 SAN ANTONIO-TEXAS 500 164.835 164.835
+107.081.00.04.0012 CHICAGO 900 296.703 296.703
+107.081.00.04.0025 MONTREAL-CANADÁ 700 230.769 230.769
+107.081.00.05 Oficinas Permanentes
+en Suramérica 500 164.835 164.835
+107.081.00.05.0002 RÍO JANEIRO-BRASIL 500 164.835 164.835
+107.081.00.07 Oficinas Permanentes
+en Área del Caribe 1.700 560.439 560.439
+107.081.00.07.0002 PUERTO RICO 900 296.703 296.703
+107.081.00.07.0010 CUBA 800 263.736 263.736
+Total Distribución Gastos
+de Oficinas Consulares
+Programa 081.00-Servicio Exterior 3.098.898
+Suma por Distribuir Gastos
+de Oficinas Consulares 613.450
+Total Gastos de Oficinas
+Consulares 3.712.348
+TÍTULO 107
+MINISTERIO DE RELACIONES EXTERIORES Y CULTO
+PROGRAMA 081-00
+SERVICIO EXTERIOR
+SUBPARTIDA 193
+Gastos de Oficinas de Cancillerías
+(A distribuir mediante decreto ejecutivo y sujeto a liquidación)
+Código
+107.081.00.193.01 Gastos de Oficinas de Chancillerías 13.950.250
+107.081.00. Servicio Exterior 41.000 13.516.470 13.516.470
+107.081.00.01 Oficinas Permanentes
+en Europa 13.300 4.384.611 4.384.611
+107.081.00.01.0001 ALEMANIA 900 296.703 296.703
+107.081.00.01.0002 AUSTRIA 900 296.703 296.703
+107.081.00.01.0004 BÉLGICA 900 296.703 296.703
+107.081.00.01.0005 ESPAÑA 1.200 395.604 395.604
+107.081.00.01.0006 FRANCIA 1.700 560.439 560.439
+107.081.00.01.0007 GRAN BRETAÑA 1.000 329.670 329.670
+107.081.00.01.0009 ITALIA 1.200 395.604 395.604
+107.081.00.01.0010 CIUDAD DEL VATICANO 800 263.736 263.736
+107.081.00.01.0012 RUSIA 900 296.703 296.703
+107.081.00.01.0013 POLONIA 900 296.703 296.703
+107.081.00.01.0014 BERNA-SUIZA 1.000 329.670 329.670
+107.081.00.01.0017 NORUEGA 1.000 329.670 329.670
+107.081.00.01.0020 HOLANDA 900 296.703 296.703
+107.081.00.02 Oficinas Permanentes en Asia 4.100 1.351.647 1.351.647
+107.081.00.02.0001 JAPÓN 2.200 725.274 725.274
+107.081.00.02.0002 ISRAEL 900 296.703 296.703
+107.081.00.02.0003 REPÚBLICA DE CHINA 1.000 329.670 329.670
+107.081.00.03 Organismos Internacionales
+en Europa 2.100 692.307 692.307
+107.081.00.03.0001 UNESCO-FRANCIA 800 263.736 263.736
+107.081.00.03.0002 OENU-GINEGRA-SUIZA 1.300 428.571 428.571
+107.081.00.04 Oficinas Permanentes
+en Norteamérica 2.100 692.307 692.307
+107.081.00.04.0001 WASHINGTON 1.200 395.604 395.604
+107.081.00.04.0025 CANADÁ 900 296.703 296.703
+107.081.00.05 Oficinas Permanentes
+en Suramérica 8.500 2.802.195 2.802.195
+107.081.00.05.0001 ARGENTINA 900 296.703 296.703
+107.081.00.05.0002 BRASIL 1.200 395.604 395.604
+107.081.00.05.0003 COLOMBIA 800 263.736 263.736
+107.081.00.05.0004 PERÚ 800 263.736 263.736
+107.081.00.05.0005 CHILE 900 296.703 296.703
+107.081.00.05.0006 ECUADOR 600 197.802 197.802
+107.081.00.05.0007 URUGUAY 900 296.703 296.703
+107.081.00.05.0008 VENEZUELA 1.000 329.670 329.670
+107.081.00.05.0009 BOLIVIA 700 230.769 230.769
+107.081.00.05.0010 PARAGUAY 700 230.769 230.769
+107.081.00.06 Oficinas Permanentes
+en Centroamérica, México
+y Panamá 4.100 1.351.647 1.351.647
+107.081.00.06.0001 EL SALVADOR 700 230.769 230.769
+107.081.00.06.0002 GUATEMALA 700 230.769 230.769
+107.081.00.06.0003 HONDURAS 700 230.769 230.769
+107.081.00.06.0004 NICARAGUA 500 164.835 164.835
+107.081.00.06.0005 MÉXICO 700 230.769 230.769
+107.081.00.06.0006 PANAMÁ 800 263.736 263.736
+107.081.00.07 Oficinas Permanentes
+en Área del Caribe 3.800 1.252.746 1.252.746
+107.081.00.07.0001 JAMAICA 900 296.703 296.703
+107.081.00.07.0004 REPÚBLICA DOMINICANA 800 263.736 263.736
+107.081.00.07.0005 BARBADOS 900 296.703 296.703
+107.081.00.07.0006 BELICE 500 164.835 164.835
+107.081.00.07.0009 TRINIDAD Y TOBAGO 700 230.769 230.769
+107.081.00.08 Representación Permanente
+ante la OEA 1.000 329.670 329.670
+107.081.00.08.0001 WASHINGTON 1.000 329.670 329.670
+107.081.00.09 Representante Permanente
+ante la ONU 1.300 428.571 428.571
+107.081.00.09.0001 NEW YORK 1.300 428.571 428.571
+107.081.00.10 Representante Permanente
+ante FAO 700 230.769 230.769
+107.081.00.10.0001 FAO 700 230.769 230.769
+Total Distribución Gastos
+de Oficinas de Cancillerías
+Programa 081.00-Servicio Exterior 13.516.470
+Suma por Distribuir Gastos
+de Oficinas de Cancillerías 433.780
+Total Gastos de Oficinas
+de Cancillerías 13.950.250
