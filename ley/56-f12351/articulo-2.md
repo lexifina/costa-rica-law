@@ -1,0 +1,2 @@
+Art 2°.- Las Justicias cuidarán que el reo comprendiendo en el artículo anterior, salga diariamente a los trabajos públidos con la seguridad necesaria; y no habiendo estos, se ocupe, como deben hacerlo todos los condenados a ellos, en el aseo la plaza, y calles y demás cosas pertenecientes a la policía de las poblaciones,- Al Consejo Representativo.- Dado en San José a los trece días del mes de Marzo de mil ochocientos treinta y cuatro.
+Por tanto: Ejecutese.- San José Marzo dieciocho de mil ochocientos treinta y cuatro.
