@@ -1,0 +1,1 @@
+Artículo 2°—De conformidad con ese plano, una vez aprobado por la Secretaria de Fomento, la población se compondrá de trece porciones de una hectárea cada una, divididas en doce lotes de 20 x 40 metros. Estos lotes se numerarán de uno a doce, salvo las porciones N° 3 y N° 9 que, según el plano, constan de seis y siete lotes respectivamente.

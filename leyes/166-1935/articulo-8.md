@@ -1,0 +1,1 @@
+Artículo 8°—Del plano a que se refiere el articulo 1°, se sacarán ejemplares autorizados por la Secretaría de Fomento para distribuirlos así; uno en cada una de las Secretarias de Estado, otro en la Gobernación de Limón y otro en la oficina de la primera autoridad política de Puerto Viejo.
