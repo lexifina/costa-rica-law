@@ -1,0 +1,1 @@
+Art. 3° Para las ventas al menudeo que por consecuencia de los artículos que preceden se establezcan para expender licores extrangeros, se observarán rigurosamente las disposiciones de la órden gubernativa número 460 de 10 de setiembre de 1840.
