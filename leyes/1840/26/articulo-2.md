@@ -1,0 +1,1 @@
+Art. 2. Los criadores de ganado vacuno, caballar o lanar en el interior de dichas montañas, desviados del camino ó vereda una legua por lo menos, tendran en propiedad fuera del terreno que ocupen en lo que se llama poblacion y labranzas, tantas manzanas de tierra, cuanto sea el ganado que cuidasen, á razon de una por cabeza.
