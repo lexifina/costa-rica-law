@@ -14,3 +14,4 @@ Reglamento de Compra de Medicamentos, Materias Primas, Envases, Empaques y React
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-01-15 | la propia norma |
+| 2 | 1998-02-05 | Reglamento 0 (1998-02-05) |

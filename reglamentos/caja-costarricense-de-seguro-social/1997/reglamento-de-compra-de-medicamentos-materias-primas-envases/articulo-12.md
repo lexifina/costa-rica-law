@@ -36,7 +36,7 @@ d)Centro de Investigaciones en Hemoglobinas Anormales y Trastornos Afines (CIHAT
 e)Instituto Clodomiro Picado, de la Facultad de Microbiología de la Universidad de Costa Rica. El detalle de Ítems sujetos a control de calidad por este Instituto en el Anexo N° 5.
 f)Facultad de Microbiología, Sección de Servicios de Laboratorio, de la Universidad de Costa Rica, realizará el control de calidad de los artículos que se indican en el Anexo N° 6.
 g)Facultad de Microbiología, Sección de Inmunohematología y Banco de Sangre de la Universidad de Costa Rica. Le corresponde el control de calidad de los artículos detallados en el Anexo N° 7.
-En el caso que el producto sea rechazado rigen las disposiciones contenidas en el artículo 9-N, de este Reglamento.
+En el caso que el producto sea rechazado rigen las disposiciones contenidas en el artículo 7n, de este Reglamento.
 12.4-Envases y empaques
 Se establecen las siguientes cantidades de muestras mínimas que deben presentarse con las solicitudes, para su evaluación en la inscripción del Registro de Oferentes:
 a. Envases de polietileno de 15 ml a 1000 ml. 10 unidades
@@ -66,3 +66,4 @@ w. Bandas de seguridad de P.V.C. 1 rollo de 300 metros
 x. Filtros de cartucho 5 unidades
 Las muestras deben ser enviadas al Laboratorio de Productos Farmacéuticos, ubicado contiguo al Hospital México, excepto cuando se trate de los artículos enunciados en los apartes "i" ,"j" , "ll", "m", "n", "o" ; y "x", cuyas muestras deben entregarse en el Laboratorio de Soluciones Parenterales, localizado 75 metros al oeste del cruce de San Antonio de Belén.
 12.5- La entrega de muestras y copia de los documentos, recibidos en el Departamento de Adquisiciones se harán en las siguientes unidades: medicamentos y sus materias primas. Laboratorio de Control de Calidad de la Caja. Envases y empaques según lo establecido en el punto 12.4. Las muestras de reactivos químicos y biológicos en la Sección de Laboratorio Clínico de la Dirección Técnica de Servicios de Salud.
+(Así reformado parcial y expresamente por el Reglamento No. 0 de 05 de febrero de 1998)

@@ -9,5 +9,6 @@ ch. Calificación de las ofertas.
 d. Cuadro de precios
 e. Acta de recomendación firmada por los miembros de la Comisión.
 f. Certificación de presupuesto.
-g. Acto de adjudicación.
+g. Acta de adjudicación.
 h. Cualquier otro documento adicional.
+(Así reformado parcial y expresamente por el Reglamento No. 0 de 05 de febrero de 1998)
