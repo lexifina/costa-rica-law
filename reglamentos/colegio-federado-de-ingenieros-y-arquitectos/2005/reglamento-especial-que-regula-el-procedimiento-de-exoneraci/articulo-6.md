@@ -1,0 +1,1 @@
+Artículo 6º—La información consignada en el formulario respectivo será considerada real y verdadera. Sin embargo, si el Colegio Federado de Ingenieros y de Arquitectos llegare a tener conocimiento que los datos consignados son falsos o erróneos, procederá de oficio a tasar la obra o bien a calcular el monto dejado de pagar.

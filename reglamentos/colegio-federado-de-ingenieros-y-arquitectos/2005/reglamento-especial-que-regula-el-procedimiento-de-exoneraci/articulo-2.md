@@ -1,0 +1,1 @@
+Artículo 2º—Del mismo modo, también estarán exentos del pago de los derechos de asistencia indicados en el artículo 52 de la citada Ley Orgánica, las empresas y profesionales inscritos en el Colegio Federado de Ingenieros y de Arquitectos, si las obras serán realizadas por encargo o directamente por los entes y órganos de la administración pública centralizada y descentralizada.

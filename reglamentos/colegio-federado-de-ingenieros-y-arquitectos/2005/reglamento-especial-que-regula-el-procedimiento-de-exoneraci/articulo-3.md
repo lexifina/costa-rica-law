@@ -1,0 +1,1 @@
+Artículo 3º—Deberá entenderse por entes y órganos de la administración pública centralizada y descentralizada, todos los ministerios con ese rango, creados de acuerdo a la Ley y las instituciones autónomas y semiautónomas que la conforman.

@@ -1,0 +1,1 @@
+Artículo 5º—El funcionario encargado de la tasación estará en la obligación de exigir el formulario con la información requerida en él y deberá autorizarlo con su firma. El no cumplir con este requisito será considerado falta grave, para los efectos correspondientes.
