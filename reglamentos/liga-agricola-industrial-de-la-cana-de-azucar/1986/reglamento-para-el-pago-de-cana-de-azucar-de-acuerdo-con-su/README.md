@@ -14,3 +14,4 @@ Reglamento para el Pago de Caña de Azúcar de Acuerdo con su Calidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-05-06 | la propia norma |
+| 2 | 1988-03-22 | Reglamento 1226 (1988-03-22) |

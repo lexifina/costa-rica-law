@@ -68,40 +68,27 @@ El Factor Combinado se calcula por medio de la siguiente fórmula:
 FB= FACTOR DE RETENCION x FACTOR DE EXTRACCION x FACTOR DE CONVERSION DE POLARIZACION X 10 X F.R.B.
 Para determinar el "Rendimiento Calculado" de una caña que ha sido analizada, se busca el "Pol % Caña" en la primera tabla en la intersección del renglón correspondiente al Peso de la Torta de Bagazo con la columna de PoI del Jugo Extraído. En la segunda tabla se busca el "Factor Combinado" en la intersección del renglón correspondiente al Peso de la Torta de Bagazo, con la columna de Pureza del Jugo Extraído por la prensa. El producto de estos dos números da los "kilogramos de azúcar de 96 grados de polarización que adelantan al productor por T. M. de caña".
 Los intervalos de los valores de Fibra % Caña, PoI y Pureza del Jugo Extraído, serán los que se presenten normalmente en cada zona o región. Por tratarse de ser resultados de funciones lineales, estas tablas admiten extrapolaciones por ambos extremos e interpolación entre los valores intermedios.
-Castigo que se aplica a cañas con acidez alta por deterioro:
-Cuando se presenta dificultad en el análisis debido a que el jugo extraído por la prensa no se puede clarificar, se determina el Brix por refractómetro o. hidrómetro ,y se aplica una pureza estándar con el fin de obtener el poI de ese jugo, de acuerdo con la ecuación;
-Brix del Jugo Extraído x Pureza estándar = PoI del Jugo Extraído.
-Una vez obtenidas las cifras de Brix y PoI se procede a determinar la acidez para aplicar el castigo porcentual correspondiente a los mI de NaOH (O,IN) gastados en la titulación del jugo extraído. Sobre 2,5 mI y hasta 4,8 mI de NaOH (O,IN) se aplica el 1,5% por cada 0,1 mI. El ingenio tiene derecho de no recibir cañas con acidez superior a 4,8 mI de NaOH (O,lN).
-Las pureas estándar expresadas como cociente para este procedimiento son:
-1) Para los ingenios de la provincia de Guanacaste y los cantones de Miramar y San Carlos en la parte baja se tomará la pureza de 0,81. .
-2) Para los ingenios situados en los cantones de Turrialba y Jiménez se tomará como pureza estándar 0,84.
-3) Para los ingenios situados en el cantón de Pérez Zeledón se tomará como pureza estándar 0,83.
-4) Para los ingenios situados en el distrito primero del cantón de San Carlos se tomará como pureza estándar 0,82.
-El castigo porcentual, aplicado al PoI del Jugo Extraído está dado por la siguiente tabla:
-ml de solución de NaOH (O,1N) gastados | Factor para corrección del Pol del Jugo Extraído | % que se restará a la cifra dle PoI
-2,50 | 1,000 | 0,00
-2,60 | 0,985 | 1,50
-2,70 | 0,970 | 3,00
-2,80 | 0,955 | 4,50
-2,90 | 0,940 | 6,00
-3,00 | 0,925 | 7,50
-3,10 | 0,910 | 9,00
-3,20 | 0,895 | 10,50
-3,30 | 0,880 | 12,00
-3,40 | 0,865 | 13,50
-3,50 | 0,850 | 15,00
-3,60 | 0,835 | 16,50
-3,70 | 0,820 | 18,00
-3,80 | 0,805 | 19,50
-3,90 | 0,790 | 21,00
-4,00 | 0,775 | 22,50
-4,10 | 0,760 | 24,00
-4,20 | 0,745 | 25,50
-4,30 | 0,730 | 27,00
-4,40 | 0,715 | 28,50
-4,50 | 0,700 | 30,00
-4,60 | 0,685 | 31,50
-4,70 | 0,670 | 33,50
-4,80 | 0,665 | 34,50
-4,90 o más | 0 | 100
+*Castigo que se aplica a cañas con acidez alta por deterioro:
+Cuando se presenta dificultad, en el análisis debido a que el jugo extraído por la prensa no se puede clarificar, se determina el Brix por refractómetro o hidrómetro y se aplica la pureza estándar con el fin de obtener el poI de ese jugo, de acuerdo con la ecuación":
+Brix del jugo extraído x Pureza estándar = PoI del jugo extraído.
+Una vez obtenidas las cifras de Brix y PoI se procede a determinar la acidez para aplicar el castigo porcentual correspondiente a los mililitros de NaOH (O,1N) gastados en la titulación del jugo extraído. Sobre 2,5 mI y hasta 4,0 mI de NaOH (O,1N), se aplica el 1,5% porcada 0,1 mI.
+El ingenio no pagará o recibirá cañas con acidez superior a 4,0 mI de NaOH (0,1N).
+En el caso de que el jugo extraído por la prensa 'no se pueda clarificar el valor de la pureza estándar será de 0,75. .
+Aquellas cañas con una acidez de 2,5 a 4,0 mI de NaOH (O,1N) sufrirán un castigo porcentual aplicado al factor de retención el cual está dado por la siguiente tabla.
+ml de solución NaOH(O,1N)gastados | Factor de corrección para factor de retención
+2,50 | 1,000
+2,60 | 0,985
+2,70 | 0,970
+2,80 | 0,955
+2,90 | 0,940
+3,00 | 0,925
+3,10 | 0,910
+3,30 | 0,880
+3,40 | 0,865
+3,60 | 0,835
+3,70 | 0,820
+3,80 | 0,805
+4,00 | 0,775
+4,100 más | 0
+*(Así reformado mediante sesión N° 1226 del 22 de marzo de 1988).
 Publíquese.-Junta Directiva de LAICA.-
