@@ -1,0 +1,1 @@
+Art.28.-Los Secretarios del Despacho concurrirán al Senado cuando este los llame a informar, y cuando el Poder Ejecutivo les envie para que asistan a la discusión en asuntos en que necesite o haya pedido dictamen del mismo Cuerpo. Los mismos Secretarios en estos casos tomar n asiento entre los Senadores; pero no tendran voto en las deliberaciones.

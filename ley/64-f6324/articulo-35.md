@@ -1,0 +1,1 @@
+Art.35.-En asuntos de poca importancia que no deben producir resolución que sea una ley, o decreto o disposición trascendental a todo el Estado, podrán hacerse proposiciones por los Senadores, y el Senado las tomar en consideración pudiendo resolver del momento lo que juzgare conveniente.

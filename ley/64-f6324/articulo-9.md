@@ -1,0 +1,1 @@
+Art. 9°. -El Presidente Podrá licenciar con causa legítima a los Senadores para que se ausenten por tres días sin sueldo, siempre que no haya asuntos graves y urgentes a que se reponga a la falta con los suplentes respectivos.

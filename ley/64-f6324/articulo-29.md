@@ -1,0 +1,1 @@
+Art.29.-El Jefe Supremo del Estado asistir tambien al Senado cuando lo estime necesario o lo exija la importancia de algún negocio. En estos casos se colocar n dos asientos bajo el docel, tomar el primero el jefe Supremo, y el segundo el Presidente del Senado; pero aquel no podrá hallarse presente en el debate ni concurrir a la votación.

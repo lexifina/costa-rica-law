@@ -1,0 +1,1 @@
+Art.26.-Se abrirá la sesión leyendo el acta anterior. en seguida se dará cuenta con las notas de la Cámara de Representantes y Poder Ejecutivo, dictámenes de comisiones y proposiciones por escrito que hayan hecho los Senadores sobre proyectos de ley o asuntos del desempeño de su encargo: últimamente se verán los señalados para aquel dia,y los mas urgentes a juicio del Senado.

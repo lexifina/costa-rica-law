@@ -1,0 +1,1 @@
+Art.39.-Durante el tiempo en que se disente la ley, resolución legislativa, decretos, ordenes y acuerdos, podrán reformarse cualesquiera de sus articulos en el todo, o en parte, por una vez aunque se hallen aprobados en las actas anteriores.

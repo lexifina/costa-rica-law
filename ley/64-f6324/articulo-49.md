@@ -1,0 +1,1 @@
+Art.49.-Cuando se halle impedido el Presidente para asistir, el mismo Cuerpo elegir indistintamente dentro sus individuos un Presidente que supla las veces de este, y esto lo podrá hacer siempre que convenga.

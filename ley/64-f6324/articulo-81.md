@@ -1,0 +1,1 @@
+Art.81.-El acusado podrá recusar un juez de los que deban componer el Tribunal, manifestando la causa dentro de veinticuatro horas, si los documentos en que se funde o lo testigos que hayan de acreditarla existieren en el lugar, y si lo fueren unos y otros fuera de el, dentro el termino que los mismos jueces designen para el efecto.

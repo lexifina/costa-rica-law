@@ -1,0 +1,1 @@
+Art.72.-Ningún individuo de la Secretaria podrá exigir derechos ni cobrar cualquier especie de gages o emolumentos, en razón de su oficio; la contravención será castigada con privación de el y perdida de lo recibido que devolverá al interesado.
