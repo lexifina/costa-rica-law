@@ -1,1 +1,5 @@
-Artículo 74.—En tanto se cumplen los requisitos procedimentales necesarios para el nombramiento de los representantes ante los Consejos Regionales de las Áreas de Conservación, las tareas asignadas a dicho órgano serán asumidas por el Director del Área de Conservación.
+TÍTULO VI
+Disposiciones finales
+Artículo 74.—De la autoridad de policía. Todos los funcionarios del Ministerio del Ambiente y Energía, que ejercen funciones de control en los diferentes campos de su competencia, debidamente identificados como tales, tienen autoridad de policía; por lo que están facultados para: inspeccionar, detener, transitar, ingresar, decomisar, retener, tomar muestras para análisis, supervisar investigaciones o desarrollo de actividades, ejecutar el cierre de actividades, dentro de cualquier propiedad estatal o privada, junto con los implementos necesarios para llevar a cabo las funciones, con el fin de hacer cumplir las leyes y sus reglamentaciones.
+En el caso de los domicilios privados, si existiese negativa del propietario, el funcionario gestionará la orden de allanamiento u autorización de la autoridad judicial competente.
+(Así modificada su numeración mediante Decreto Ejecutivo N° 31628 del 09 de octubre de 2003, que adicionó los artículos 62, 63 y 64, ordenando correr la numeración, por lo que este artículo pasó del N°71 al N°74)

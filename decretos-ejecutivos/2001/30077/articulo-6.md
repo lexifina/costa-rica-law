@@ -16,3 +16,5 @@ h) La Comisión Nacional para la Gestión de la Biodiversidad (CONAGEBIO).
 i) La Oficina Costarricense de Implementación Conjunta (OCIC).
 j) El Fondo Nacional de Financiamiento Forestal ( FONAFIFO).
 k) El Parque Marino del Pacífico (PMP).
+l) Dirección General de Gestión de Calidad Ambiental (DIGECA).
+(Ampliado mediante Artículo N°1 del Decreto Ejecutivo N° 31628 del 09 de octubre de 2003)

@@ -14,3 +14,4 @@ Reglamento General del Ministerio del Ambiente y Energía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-16 | la propia norma |
+| 2 | 2003-10-09 | Decreto Ejecutivo 31628 (2003-10-09) |

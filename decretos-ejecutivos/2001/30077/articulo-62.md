@@ -1,3 +1,8 @@
-TÍTULO IV
-Régimen Financiero Contable
-Artículo 62.—De la naturaleza y destino de los recursos financieros del MINAE. Los recursos financieros del MINAE tienen carácter público independientemente de su origen, por lo tanto se destinarán exclusivamente al cumplimiento de los fines y la operación del Ministerio, sus dependencias y órganos y bajo ninguna circunstancia podrán ser trasladados al patrimonio de una entidad privada nacional o internacional.
+CAPÍTULO XVI
+Dirección General de Gestión de Calidad Ambiental
+Artículo 62.—De la conformación de la Dirección General de Gestión de Calidad Ambiental. La Dirección de Gestión de Calidad Ambiental (DIGECA), estará conformada de la siguiente manera:
+1. Dirección General.
+2. Área Técnica
+3. Área Legal.
+4. Área Administrativa
+(Adicionado mediante Decreto Ejecutivo N° 31628 del 09 de octubre de 2003)

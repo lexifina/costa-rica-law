@@ -1,3 +1,3 @@
-TÍTULO VII
-Transitorios
-Artículo 73.—En tanto se cumplen los requisitos procedimentales necesarios para el nombramiento de los representantes ante el Consejo Nacional de Áreas de Conservación, las tareas asignadas a dicho órgano serán asumidas por el Ministro del Ambiente y Energía.
+Artículo 73.—Del seguimiento de las denuncias ambientales. Cada órgano del Ministerio del Ambiente y Energía responderá al Contralor Ambiental, dentro de los términos legales, cual ha sido el seguimiento a cada una de las denuncias que están en trámite. Cuando corresponda presentarán copia de la denuncia ante el Ministerio Público.
+El Contralor Ambiental presentará un informe mensual al Jerarca Ministerial y al servicio 192, sobre la cantidad de denuncias recibidas, tramitadas y el seguimiento específico a cada una de ellas.
+(Así modificada su numeración mediante Decreto Ejecutivo N° 31628 del 09 de octubre de 2003, que adicionó los artículos 62, 63 y 64, ordenando correr la numeración, por lo que este artículo pasó del N° 70 al N°73)
