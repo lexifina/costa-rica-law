@@ -1,0 +1,4 @@
+ARTICULO 7.- La Corte Suprema de Justicia reconocerá los beneficios
+establecidos en la Ley No. 5867, del 15 de diciembre de 1975 y sus
+reformas, al personal técnico del Departamento de Auditoría Judicial y a
+los auditores investigadores del Organismo de Investigación Judicial.
