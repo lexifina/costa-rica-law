@@ -15,3 +15,4 @@ TRIBUTOS
 SECCIÓN I
 IMPUESTO ESPECÍFICO SOBRE LAS BEBIDAS ALCOHÓLICAS
 ARTÍCULO 1.- Créase un impuesto específico de dieciséis colones (¢16,00) por unidad de consumo de bebidas alcohólicas, que recaerá sobre la producción nacional y la importación de estos productos.
+(NOTA: Mediante Resolución No. 29 de 6 de noviembre de 2003 se actualiza el impuesto aquí creado a la suma de ¢22,66 (veintidós colones con sesenta y seis céntimos) por unidad de consumo).
