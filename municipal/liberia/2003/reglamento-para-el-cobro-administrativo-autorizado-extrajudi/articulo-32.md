@@ -1,0 +1,1 @@
+Artículo 32.—La oficina respectiva interna de la Municipalidad, será la encargada de dar en informe bimensual del estado del pendiente de cobro y la situación legal de cada caso ante su superior jerarca.

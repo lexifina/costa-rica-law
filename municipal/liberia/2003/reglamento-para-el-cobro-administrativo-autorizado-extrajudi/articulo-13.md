@@ -1,0 +1,1 @@
+Artículo 13.—El cobro administrativo de los créditos a favor de la Municipalidad, estará a cargo de su departamento respectivo, sin perjuicio de lo dispuesto en el artículo 9º de este mismo Reglamento; para lo cual deberá darse la contratación del caso.

@@ -1,0 +1,1 @@
+Artículo 23.—Todo pago de impuestos, multas e intereses lo realizará el contribuyente directamente ante la oficina de cobro de la Municipalidad y le entregará una copia del recibo cancelado al abogado director del proceso extrajudicial o judicial, a efecto de suspender el proceso respectivo.

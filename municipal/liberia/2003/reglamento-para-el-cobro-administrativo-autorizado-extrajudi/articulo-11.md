@@ -1,0 +1,1 @@
+Artículo 11.—Por cobro extrajudicial se entiende: toda aquella gestión que se realice por parte de los abogados, para la recuperación de las obligaciones de los contribuyentes dejadas de pagar, sin acudir a la vía judicial correspondiente y habiendo agotado de previo los trámites de cobro administrativo.

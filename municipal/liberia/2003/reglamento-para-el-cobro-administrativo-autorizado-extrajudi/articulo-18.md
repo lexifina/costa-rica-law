@@ -1,0 +1,1 @@
+Artículo 18.—La empresa de cobros o los abogados designados deberán de presentar un informe al Departamento de Cobros Externos cada trimestre de los procesos asignados. Caso contrario dicho departamento procederá a informar oportunamente a la Autoridad competente para lo que proceda.

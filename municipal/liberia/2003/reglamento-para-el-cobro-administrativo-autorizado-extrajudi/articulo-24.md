@@ -1,0 +1,1 @@
+Artículo 24.—Los abogados nombrados (mientras dure la contratación) no podrán llevar acciones de ningún tipo en contra de la Municipalidad que les haya contratado; el no cumplimiento de esta disposición hará que su nombramiento quede revocado automáticamente.

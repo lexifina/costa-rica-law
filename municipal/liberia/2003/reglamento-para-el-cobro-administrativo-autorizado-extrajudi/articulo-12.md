@@ -1,0 +1,1 @@
+Artículo 12.—Por cobro judicial se entiende: toda acción incoada por abogados en contra de los contribuyentes en vía judicial, que se encuentra en proceso de morosidad con esta Municipalidad y que no respondieron a las gestiones de cobro anteriormente realizadas para lograr la efectividad del pago.

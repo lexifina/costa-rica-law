@@ -1,0 +1,2 @@
+Del control de la tramitación administrativa extrajudicial y judicial
+Artículo 28.—Los abogados externos, que se encuentren al servicio de la Municipalidad deberán mantener contacto permanente con la oficina encargada del cobro. La unidad de cobros, se encargará de entregar al abogado los documentos necesarios para la tramitación del caso; igualmente dará toda la cooperación necesaria para poder realizar de manera efectiva el cobro ya sea administrativo, extrajudicial o judicial.

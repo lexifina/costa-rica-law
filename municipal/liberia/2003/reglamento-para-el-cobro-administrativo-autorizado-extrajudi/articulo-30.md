@@ -1,0 +1,1 @@
+Artículo 30.—Cuando un abogado justifique que tiene imposibilidad para dirigir alguna gestión de cobro que le haya sido asignada, deberá hacerlo por escrito con la respectiva exposición de su causa de justificación; a fin de que se analice la situación y se le sustituya por otro. En este caso será reasignada otra persona para que prosiga con el respectivo caso cobratorio.
