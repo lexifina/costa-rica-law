@@ -9,7 +9,7 @@ Considerando:
 4º—Que la AP de conformidad con los artículos 1°, 11, 21, 23, 24 y 25 de la ley Nº 8131, está facultada para formular las directrices generales y específicas de política presupuestaria del Sector Público.
 5º—Que la AP formuló las siguientes directrices y demás regulaciones en acuerdo número 6356, tomado en sesión Nº 03-02, celebrada el 28 de febrero del 2002.
 6º—Que el Consejo de Gobierno conoció las directrices y regulaciones en el artículo 3 de la Sesión Nº 183, celebrada el 5 de marzo del 2002. Por tanto,
-DECRETAN:
+D ECRETAN :
 DIRECTRICES GENERALES DE POLÍTICA PRESUPUESTARIA DEL 2003 PARA LOS MINISTERIOS, DEMÁS ÓRGANOS
 SEGÚN CORRESPONDA Y ENTIDADES PUBLICAS CUBIERTAS POR EL ÁMBITO DE LA AUTORIDADPRESUPUESTARIA
 CAPÍTULO I
@@ -51,6 +51,7 @@ Direc. Serv. de Protec. Fitosanitaria 1.600,0
 Direc. Salud y Produc. Pecuaria 637,0
 Dirección Ejecutora de Proyectos PL 480 247,3
 Dirección General Archivo Nacional 450,1
+(Mediante Decreto Ejecutivo N° 31134 de 21 de abril de 2003, se modifica para la Junta Administrativa del Archivo Nacional, el gasto presupuestario para el período 2003, fijándolo en ¢537.42 millones)
 Dirección General Aviación Civil 5.309,7
 Editorial Costa Rica 109,6
 Escuela Centroamericana de Ganadería 514,6
