@@ -1,0 +1,1 @@
+Artículo 13.-En todos los casos, la organización del órgano desconcentrado deberá contemplar al menos la estructura básica necesaria para el cumplimiento del compromiso de gestión, la administración de los recursos humanos, la contratación administrativa, y el presupuesto.

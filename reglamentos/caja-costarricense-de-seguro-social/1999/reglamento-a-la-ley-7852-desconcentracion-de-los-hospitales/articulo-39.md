@@ -1,0 +1,1 @@
+Artículo 39.-Los órganos desconcentrados deberán registrar en el sistema de información todas las contrataciones administrativas que realicen y las sanciones que impongan a sus proveedores de conformidad con la ley de la Contratación Administrativa.

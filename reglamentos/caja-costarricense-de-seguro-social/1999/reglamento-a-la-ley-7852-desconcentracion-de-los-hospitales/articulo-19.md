@@ -1,0 +1,1 @@
+Artículo 19.-La Junta Directiva podrá requerir, además, de previo a aprobar el Compromiso planteado, el criterio de la Auditoría Interna y de la Superintendencia General de Entidades y Servicios de Salud.

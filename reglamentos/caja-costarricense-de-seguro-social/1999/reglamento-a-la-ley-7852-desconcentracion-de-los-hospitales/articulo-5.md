@@ -1,0 +1,1 @@
+Artículo 5.- De previo al acuerdo de la Junta Directiva de la institución, para proceder a la desconcentración de cada unidad se requerirá de la realización de los estudios técnicos que justifiquen la medida, considerando las necesidades del área, centro de salud u hospital a desconcentrar y de su población asignada.

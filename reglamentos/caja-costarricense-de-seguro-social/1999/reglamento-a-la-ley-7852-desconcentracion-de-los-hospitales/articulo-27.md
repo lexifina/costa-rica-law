@@ -1,0 +1,2 @@
+Artículo 27.-Corresponderá a la Junta Directiva la aprobación de los sistemas de incentivos económicos, y cualquier sobresueldo, que se implemente.
+Los órganos desconcentrados podrán diseñar los sistemas de incentivos no económicos y los procesos de participación y de gestión que consideren más convenientes con los propósitos de mejorar la eficiencia; incrementar la motivación de sus funcionarios; y mejorar la calidad de los servicios ofrecidos, en la medida que no afecten las políticas presupuestarias de la institución.

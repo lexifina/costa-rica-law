@@ -1,0 +1,1 @@
+Artículo 42.-La asignación de recursos a los órganos desconcentrados se determinará en forma prospectiva en el proceso de negociación del Compromiso de Gestión en el que finalmente deberá incorporarse. En ese proceso de negociación participará la Gerencia de División Financiera por medio de la Dirección de Presupuesto.

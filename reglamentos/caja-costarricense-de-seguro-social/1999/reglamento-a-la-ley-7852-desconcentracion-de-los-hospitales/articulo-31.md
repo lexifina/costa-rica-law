@@ -1,0 +1,1 @@
+Artículo 31.-Los órganos desconcentrados deberán establecer un sistema de gestión de calidad de los procesos de los recursos humanos dentro del marco de sus competencias. El sistema que se implemente deberá tener la capacidad de medir, cuantificar y evaluar periódicamente dichos procesos, así como el de integrarse a los sistemas de evaluación institucionales.

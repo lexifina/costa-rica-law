@@ -1,0 +1,1 @@
+Artículo 22.-Serán de carácter obligatorio en el manejo de los Recursos Humanos, los programas institucionales de orientación e inducción, y los de evaluación del desempeño, a fin de que los servidores se identifiquen con las funciones, alcances y deberes de su competencia, y con la misión y visión de la institución y del órgano.

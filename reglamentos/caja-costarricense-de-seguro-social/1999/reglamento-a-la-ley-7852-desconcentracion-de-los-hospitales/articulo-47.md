@@ -1,0 +1,1 @@
+Artículo 47.-El órgano desconcentrado ejecutará su presupuesto de acuerdo con la planificación realizada, lo pactado en el Compromiso de Gestión y las disposiciones legales y reglamentarias de aplicación a la materia.

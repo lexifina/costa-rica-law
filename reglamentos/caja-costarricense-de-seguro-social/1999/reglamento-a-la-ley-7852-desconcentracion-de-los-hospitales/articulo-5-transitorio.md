@@ -1,0 +1,1 @@
+Transitorio 5°—: La compra de servicios médicos u hospitalarios prevista en el artículo 37°, solo podrá ejecutarse una vez aprobado el Reglamento de compra de servicios, por parte de la Junta Directiva.

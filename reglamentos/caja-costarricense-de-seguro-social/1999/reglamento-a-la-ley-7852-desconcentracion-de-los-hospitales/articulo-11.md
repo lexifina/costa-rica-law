@@ -1,0 +1,1 @@
+Artículo 11.- El Director del órgano desconcentrado, previa consulta del nombre de la persona propuesta con la Junta de Salud, nombrará un Administrador, quien ejercerá las tareas de administración y financieras de conformidad con la normativa aplicable de la institución. El Director será su superior jerárquico.

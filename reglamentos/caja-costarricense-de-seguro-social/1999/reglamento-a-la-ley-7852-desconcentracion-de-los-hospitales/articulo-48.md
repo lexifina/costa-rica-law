@@ -1,0 +1,1 @@
+Artículo 48.-El Director del órgano desconcentrado es responsable del control presupuestario. Podrá solicitarse la colaboración de la Dirección de Presupuesto en apoyo y asesoramiento de los procesos presupuestarios.

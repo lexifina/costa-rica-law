@@ -1,0 +1,2 @@
+Artículo 18.-El proyecto de compromiso de gestión será sometido a la aprobación de la Junta Directiva de la Institución. Las gerencias compradoras, deberán presentar anexa al proyecto de Compromiso de Gestión, la evaluación sobre la gestión del órgano desconcentrado o por desconcentrarse, y sus recomendaciones al respecto.
+El compromiso de gestión de las unidades desconcentradas regirá a partir de su aprobación por parte de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 44.-Los órganos desconcentrados deberán cumplir sus compromisos con el presupuesto global asignado. Se autoriza a los órganos desconcentrados a realizar las modificaciones presupuestarias internas y adoptar las modificaciones externas, para lo cual deberán aplicar los mecanismos establecidos y los instructivos vigentes sobre la materia.

@@ -1,0 +1,1 @@
+Artículo 51.-El mismo acuerdo de intervención deberá designar a los interventores que asumirán el control de la gestión del órgano, materia, área o servicio a intervenir, los límites de sus funciones, y el plazo de la intervención. Esos límites y plazos podrán ser modificados en cualquier momento, mediante acuerdos posteriores de la Junta Directiva.

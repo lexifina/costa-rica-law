@@ -1,0 +1,3 @@
+CAPITULO V
+De la Contratación Administrativa
+Artículo 32.-Los órganos desconcentrados tendrán competencia suficiente para celebrar las contrataciones administrativas de bienes, servicios y obras que deban realizar con el propósito de cumplir sus objetivos y metas. Esta competencia deberá ejercerse de conformidad con la legislación vigente, los lineamientos estratégicos y la normativa técnica general que específicamente se defina a nivel Institucional, así como dentro de los límites que establece este reglamento y el correspondiente Compromiso de Gestión que suscriba el órgano con la Junta Directiva de la Caja.
