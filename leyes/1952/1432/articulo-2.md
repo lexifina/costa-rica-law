@@ -1,0 +1,1 @@
+Artículo 2º.- De conformidad con lo dispuesto en el artículo 4º de la ley Nº 641 de 23 de agosto de 1946, no pagarán bodegaje únicamente las mercaderías que hubieren llegado al país consignadas a una Legación. Las que llegaren consignadas a un particular, aunque sean cedidas luego, el dueño o consignatario deberá pagar los derechos de bodegaje correspondientes.

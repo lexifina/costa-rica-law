@@ -1,0 +1,3 @@
+Artículo 4º.- Esta ley rige a partir del día de su publicación y a sus disposiciones podrán acogerse los dueños o consignatarios de las mercaderías ingresadas durante la vigencia de la ley anterior; si la mercadería hubiere sido ya desalmacenada, sus dueños o consignatarios tendrán derecho a que se les reconozca la diferencia que hubieren pagado de más. Sin embargo, la mercadería ingresada antes del 1º de enero de 1952 pagará el bodegaje de acuerdo con la legislación vigente a la época de su ingreso.
+Dado en el Salón de Sesiones de la Asamblea Legislativa.-Palacio Nacional.-San José, a las catorce días del mes de marzo de mil novecientos cincuenta y dos.
+Casa Presidencial.-San José, a los diecisiete días del mes de marzo de mil novecientos cincuenta y dos.
