@@ -1,0 +1,13 @@
+PRESIDENCIA DE LA REPÚBLICA
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+N° 22-SC—San José, 11 de setiembre del 2002
+Se hace saber que la Dirección General de Servicio Civil, ha emitido las siguientes resoluciones:
+DG-175-2002, mediante la cual se modifica varias clases que conforman el Manual Institucional de Clases del Consejo Nacional de la Persona Adulta Mayor.
+DG-176-2002, mediante la cual se modifica el Manual de Atinencias del Instituto Nacional de Aprendizaje, aprobado mediante la Resolución DG-056-97, incorporando las carreras Bachillerato en Educación Técnica y las Maestrías en Educación Técnica con Mención Industrial y Agropecuario, dentro de las atinencias académicas de la Clase Formador para el Trabajo 1.
+DG-177-2002, mediante la cual se modifica el Manual Institucional del Consejo de Seguridad Vial, aprobado mediante la Resolución
+DG-018-97, incorporando dentro de la Clase Profesional Bachiller, las actividades de Relaciones Públicas y asistenciales en el campo de Derecho.
+DG-179-2002, mediante la cual se elimina del artículo 4° de la Resolución DG-112-2002, del 7 de junio del 2002 el cargo de Asistente de la Dirección General para que, conforme con el artículo 2° de la Resolución DG-056-2001, del 17 de mayo del 2001, se mantenga la línea de ascenso directo entre el cargo de Asistente de la Dirección General (Nivel C) de la Clase Profesional de Archivo Nacional Nivel C, al Nivel D, Cargo Archivista 2, de esa misma clase.
+DG-180-2002, mediante la cual se declara atinente la carrera Sistemas Computacionales a las Clases Técnico Informático, Profesional Informático, Jefe de Unidad Informática, Director de Dirección de Informática de la Dirección de Informática del Ministerio de Salud.
+DG-182-2002, mediante la cual se modifica la clase Profesional de Apoyo del Manual Institucional de Clases del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA), para que se contemple, tanto el cargo "Profesional de Compras", como una descripción suscrita de sus actividades. DG-183-2002, mediante la cual se crea y valoriza las clases de puestos Fiscalizador Profesional Jefe Aeroportuario, Fiscalizador Profesional Jefe de Calidad de Servicios Aeroportuarios y Fiscalizador Profesional Jefe Financiero, todos del Consejo Técnico de Aviación Civil, Órgano Fiscalizador.
+DG-184-2002, mediante la cual se le realizan modificaciones al Manual de la Dirección General de Tributación Directa.
+DG-185-2002, mediante la cual se incluye el caigo de "Analista Financiero Contable", en la clase de puesto "Profesional de Apoyo" del Ministerio de Economía, Industria y Comercio, Grupos A, B, C y D.
