@@ -1,0 +1,3 @@
+Artículo 38.- La inscripción de electores se llevará por distritos electorales en estricto orden alfabético de cada uno de éstos.
+Además, el Registro mantendrá al día un índice general de inscripción de electores en riguroso orden alfabético donde constarán los nombres, apellidos y número de Cédula de Identidad de toda persona inscrita, así como el distrito electoral al cual pertenece.
+De la misma manera se mantendrá un índice general de las solicitudes rechazadas, ya fueren de cédulas o de inclusión o traslado, de manera que permita su fácil localización. Ese índice deberá incluir el número del expediente respectivo.

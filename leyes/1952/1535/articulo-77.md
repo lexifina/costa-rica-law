@@ -1,0 +1,1 @@
+Artículo 77.- Las faltas temporales del Director General serán llenadas por un Director interino, que para el caso nombrará el Tribunal Supremo de Elecciones. Dicha designación puede hacerse recargando las funciones en uno de los Oficiales Mayores del Registro.

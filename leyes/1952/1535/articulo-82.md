@@ -1,0 +1,1 @@
+Artículo 82.- Además de las facultades que expresamente les señale la ley, los Oficiales Mayores están autorizados para extender las certificaciones que se pidan al Registro y para hacer ejecutar las órdenes que sobre disciplina y distribución del trabajo imparta la Dirección General.

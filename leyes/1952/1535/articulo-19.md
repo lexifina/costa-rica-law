@@ -1,0 +1,1 @@
+Artículo 19.- Todos los actos del Estado Civil que fueren inscritos fuera del domicilio de las partes interesadas, podrán, a requerimiento de éstas ser transcritas al Registro de su domicilio, con vista de certificaciones auténticas pasadas por el funcionario competente.

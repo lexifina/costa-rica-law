@@ -1,0 +1,1 @@
+Artículo 55.- Recibido el expediente, el Tribunal deberá resolver, sin otro trámite, dentro del término de tres días, y podrá hacer uso a su arbitrio de los elementos de prueba que las partes o el mismo Tribunal hayan podido traer a las diligencias en ese mismo término.

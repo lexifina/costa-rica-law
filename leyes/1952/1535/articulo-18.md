@@ -1,0 +1,1 @@
+Artículo 18.- Una vez que el Tribunal devuelva el expediente con la resolución, se hará el asiento, si así se hubiere ordenado, haciendo constar en él, que se practica en virtud de resolución del Tribunal o bien se devolverá al Registro para su entrega al interesado.

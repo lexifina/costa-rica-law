@@ -1,0 +1,1 @@
+Artículo 59- Todo costarricense, de uno y otro sexo, mayor de veinte años o emancipado, que tuviere necesidad de ejercer cualquiera de las actividades mencionadas en el artículo 64 de esta ley, debe adquirir la cédula de identidad.
