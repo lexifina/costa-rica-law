@@ -15,3 +15,4 @@ Reglamento de Sesiones
 | --- | --- | --- |
 | 1 | 1998-08-26 | la propia norma |
 | 2 | 2000-11-06 | Reglamento municipal 223 (2000-11-06) |
+| 3 | 2002-05-15 | Reglamento municipal 0 (2002-05-15) |

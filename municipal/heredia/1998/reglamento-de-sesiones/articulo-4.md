@@ -1,7 +1,8 @@
 Artículo 4°- Votaciones: No obstante lo dispuesto en el artículo anterior y tratándose de votaciones, el Presidente del Concejo dará un término prudencial entre el momento de dar por discutido un asunto y el recibo de la votación correspondiente.
-En cualquier votación excepto en las nominales, los regidores que voten en forma afirmativa, lo harán poniéndose de pie, se entenderá que todos aquellos que permanezcan sentados, estarán votando en forma negativa.
+En cualquier votación, excepto en las nominales, los regidores que voten en forma afirmativa, lo harán levantado su mano, se entenderá que todos aquellos que no levanten su mano estarán votando en forma negativa.
+(Así refromado por acuerdo tomado en sesión de fecha 15 de mayo del 2002)
 En las votaciones, cualquiera que sea su naturaleza, los regidores deberán dar su voto necesariamente en sentido afirmativo o negativo. Para dar cumplimiento con lo antes indicado, la Presidencia del Concejo Municipal deberá llamar al regidor que no se encuentre en su curul para que emita su voto, de no presentarse procederá a sustituirlo con el regidor suplente que corresponda según el orden de elección y el regidor sustituido quedará ausente por el resto de la sesión. Se exceptúa de lo anterior lo consignado en el inciso a) del artículo 31 del Código Municipal.
-(Reformado por el Reglamento Municipal N° 223 del 6/11/2000)
+(Así reformado por acuerdo tomado en sesión N° 223 del 6 de noviembre del 2000)
 Votaciones nominales son aquellos que se realizan en forma individual y razonada, par lo cual se requerirá un acuerdo previo de la mayoría absoluta de los regidores presentes.
 Los regidores y síndicos que hagan abandono de las sesiones con permiso de la Presidencia del Concejo no podrán excederse de diez minutos, y podrán solicitar un nuevo permiso cuando haya transcurrido como mínimo una hora después del permiso anterior. Dicho control deberá ser aplicado por la o el secretaria(o) del Concejo Municipal.
-(Ampliado por el Reglamento Municipal N° 223 del 6/11/2000)
+(Ampliado por acuerdo tomado en sesión N° 223 del 6 de noviembre del 2000)
