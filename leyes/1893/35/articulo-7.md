@@ -1,0 +1,1 @@
+Artículo 7°. —En la calle del Ferrocarril, y con el objeto de aislar los diferentes servicios de éste, se destina una zona de trescientos metros próximamente de largo, por treinta y un metros cincuenta centímetros de ancho dejando á uno y otro lado una calle de doce metros para el servicio público. La posición del cercado se ajustará al plano.
