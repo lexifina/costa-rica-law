@@ -17,3 +17,5 @@ REQUERIDAS PARA CONFORMAR LOS EXPEDIENTES RELATIVOS
 A LAS INFRACCIONES TRIBUTARIAS Y DELITOS TRIBUTARIOS.").
 (Véase el artículo 1° del decreto ejecutivo N° 31174 de 21 de abril de 2003, el cual modifica el presente numeral)
 (Modificado por el artículo 1° del decreto ejecutivo N°31213 de 05 de junio de 2003, publicado en La Gaceta No. 122 de 26 de junio de 2003.)
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo No. 31262 de 23 de junio de 2003, publicado en La Gaceta No. 138 de 18 de julio de 2003, Alcance 39.)
+(Nota: El Decreto Ejecutivo N° 31275 de 02 de julio de 2003, publicado en La Gaceta N° 140 de 22 de julio de 2003, emitió el documento denominado "Modificación a la Programación Presupuestaria del Gobierno de la República para el Ejercicio Económico del 2003", mediante el cual se modifica la programación presupuestaria de los órganos del Gobierno de la República, contenida en la Ley N° 8341 de 9 del diciembre del 2002, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2003, en los términos en que se detalla en el referido documento.)
