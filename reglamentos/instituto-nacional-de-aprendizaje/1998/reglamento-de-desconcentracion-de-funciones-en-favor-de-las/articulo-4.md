@@ -1,0 +1,2 @@
+Artículo 4°—De los Recursos. La impugnación de las actuaciones contempladas en este Reglamento estará sujeta a las siguientes disposiciones:
+Contra las actuaciones señaladas en el artículo anterior, serán oponibles los recursos ordinarios de revocatoria y apelación dentro del quinto día hábil posterior contado a partir desde que esta se produjo y serán conocidos por el jefe de la Unidad Regional y la Subgerencia Técnica respectivamente.
