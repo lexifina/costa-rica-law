@@ -1,0 +1,1 @@
+Transitorio I.—Hasta tanto no se promulguen las tarifas de honorarios para Avalúos y Peritajes éstos se cobrarán de conformidad con lo que establece el artículo 403 del Código de Procedimientos Civiles para el cobro de honorarios de árbitros o peritos.
