@@ -1,0 +1,1 @@
+Artículo 19.—La Comisión, en casos de excepción que sean de importancia para el Ministerio, podrá aprobar en forma extraordinaria algún concurso, siempre y cuando haya habido una divulgación mínima de 48 horas de anticipación de las bases que rigen el concurso.

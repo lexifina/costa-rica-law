@@ -1,0 +1,1 @@
+Transitorio único: El nombramiento de los representantes de la Comisión interna de Becas, se hará dentro de la primera quincena, a partir de la entrada en vigencia del presente Reglamento. Los representantes de los funcionarios, tanto del nivel profesional como del nivel de apoyo, durarán en sus cargos hasta el mes de diciembre del año 2000.
