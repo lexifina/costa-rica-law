@@ -1,0 +1,1 @@
+Artículo 2°—MIDEPLAN velará por la incorporación de los asuntos de población y género en el diseño, aplicación, seguimiento y evaluación de todas las políticas y acciones gubernamentales de desarrollo.

@@ -1,0 +1,1 @@
+Artículo 3°—Las instituciones públicas con competencias especificas en la ejecución de políticas de población en los planos sectorial, regional y local, armonizarán sus acciones con las propuestas estratégicas establecidas en el Plan Nacional de Desarrollo y las orientaciones que en ese sentido formule MIDEPLAN.
