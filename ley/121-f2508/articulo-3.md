@@ -1,1 +1,1 @@
-Artículo 3°.-Cuando un propietario cierre su fundo por lado del camino, lo deberá hacer en la línea que le marque la policía.
+Artículo 3°.-(Derogado por el artículo 41 de la Ley de Caminos Públicos, N° 757 del 11 de octubre de 1949)
