@@ -14,3 +14,4 @@ Reglamento General del Consejo Nacional de Cooperativas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-20 | la propia norma |
+| 2 | 1997-04-21 | Reglamento 154 (1997-04-21) |

@@ -1,11 +1,12 @@
 CAPITULO II
 Funciones y atribuciones del plenario
 Artículo 31.—Son funciones y atribuciones del Plenario:
-Elegir y remover a los representantes del Sector Cooperativo ante la Junta Directiva del Instituto Nacional de Fomento Cooperativo.
-Elegir y remover cuando sea el caso, a los representantes del Sector Cooperativo en la Junta Directiva del Instituto Nacional de Fomento Cooperativo, y ante las instituciones en que tal representación exista y vigilar sus actuaciones.
-Convocar al Congreso Cooperativo y cumplir con sus recomendaciones.
-d) Dar su aprobación final al Plan Anual Operativo y ratificar sus presupuestos y sus modificaciones. Así como conocer las liquidaciones trimestrales del Presupuesto y Plan Anual Operativo.
-e) Nombrar al Secretario Ejecutivo y determinar el ámbito de sus facultades de actuación.
+a) Elegir y remover a los representantes del Sector Cooperativo ante la Junta Directiva del Instituto Nacional de Fomento cooperativo.
+b) Elegir y remover cuando sea el caso. a los representantes del Sector Cooperativo ante la Junta Directiva del Instituto Nacional de Fomento Cooperativo, y ante las instituciones en la que tal representación exista por ley y vigilar sus acciones. Será responsabilidad del Directorio del Consejo Nacional de Cooperativas designar a los representantes del CONACOOP en los cuales su representación no sea dada por ley y vigilar sus actuaciones.
+c) Convocar al Congreso Cooperativo y cumplir con sus recomendaciones.
+d) Dar su aprobación final al Plan Operativo y ratificar sus presupuestos y sus modificaciones. Así como conocer las liquidaciones trimestrales del presupuesto y Plan Operativo.
+e) Nombrar al Secretario Ejecutivo y determinar el ámbito de sus funciones de actuación.
 f) Dictar las normas sobre políticas a seguir; propiciar la integración de los diferentes sectores y entidades cooperativas superiores.
 g) Ejercer las demás atribuciones y funciones que le confiere la ley.
-h) Todos los asuntos que sean sometidos a conocimiento del Plenario, deberán ser remitidos a sus miembros con no menos de ocho días de anticipación a la fecha fijada para el mismo.
+h) Todos los asuntos que sean sometidos a conocimiento del Plenario deberán ser remitidos a sus miembros con no menos de ocho días de * anticipación a la fecha fijada para el mismo.
+(Así reformado por el Consejo Nacional de Cooperativas en sesión plenaria No. 154 de 21 de abril de 1997).
