@@ -1,1 +1,3 @@
-Artículo 40.- En caso de disolución, los bienes pertenecientes a una asociación serán administrados por la Dirección General de Desarrollo de la Comunidad, hasta tanto ella proceda a reorganizar la antigua asociación o a promover la creación de una de que la sustituya.
+Artículo 40.- En caso de disolución, los bienes pertenecientes a una asociación serán administrados por la Dirección Nacional de Desarrollo de la Comunidad, hasta tanto ésta no proceda a reorganizar la antigua asociación o a promover la creación de una que la sustituya.
+DINADECO dedicará el producto de la administración de los mencionados bienes a la publicación de un órgano informativo de las organizaciones de desarrollo comunal, excepto en los casos en que los bienes, por norma o por contratación especial estén afectos a un determinado destino.
+(Así reformado por el artículo 96° de la ley de Presupuesto Extraordinario, N° 7097 del 18 de agosto de 1988)

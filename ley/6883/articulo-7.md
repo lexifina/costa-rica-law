@@ -1,4 +1,4 @@
-Artículo 7º.- Todo fabricante o importador de alimentos terminados o
+ARTÍCULO 7º.- Todo fabricante o importador de alimentos terminados o
 de premezclas destinadas a la nutrición animal, que se encuentre sometido
 a las disposiciones del artículo 6º, deberá:
 a) Remitir a la Dirección de Ganadería una declaración jurada de
