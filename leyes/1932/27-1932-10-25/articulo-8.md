@@ -1,2 +1,1 @@
-Artículo 8º.-Toda madre de lactante podrá disponer en los establecimientos donde trabaje de un intervalo de quince minutos cada tres horas para amamantar a su hijo, salvo el caso de que un certificado médico establezca un intervalo menor. Debe también procurárseles medios de descanso dentro de las posibilidades de sus ocupaciones.
-Los administradores o gerentes, propietarios o patrones que infrinjan las disposiciones anteriores, quedarán sujetos a las penas que establece el artículo 41 de esta ley.
+Artículo 8º.- (Derogado por el aparte 5) del Capítulo Único de las Disposiciones Finales de la Sección I del Código de Trabajo, N° 2 del 27 de agosto de 1943)

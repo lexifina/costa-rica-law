@@ -1,3 +1,1 @@
-Artículo 45.-Quedan comprendidos en la fracción sexta del artículo 544 del Código Penal:
-1º.-El empleo de menores de sexo masculino, menores de 16 años, y los de sexo femenino, menores de 18 años, como actores, o que tengan que figurar de alguna manera en representaciones públicas, que se verifiquen en casas de diversión de cualquier género o en teatros, excepción hecha de fiestas escolares, veladas de beneficencia o dedicadas al culto religioso.
-2º.-El empleo de menores de diez y seis años en los teatros y establecimientos análogos que se dediquen a hacer venta de objetos. Sin embargo, las Juntas Provinciales de Protección a la Infancia pueden hacer casos de excepción autorizando el empleo de uno o más de estos menores para que representen determinadas piezas en los teatros.
+Artículo 45.- (Derogado por el aparte 5) del Capítulo Único de las Disposiciones Finales de la Sección I del Código de Trabajo, N° 2 del 27 de agosto de 1943)

@@ -1,1 +1,1 @@
-Artículo 42.-Queda prohibido también el trabajo nocturno a los menores de diez y ocho años, con excepción del servicio doméstico, entendiéndose por trabajo nocturno el comprendido entre las diez y nueve horas y las cinco horas.
+Artículo 42.- (Derogado por el aparte 5) del Capítulo Único de las Disposiciones Finales de la Sección I del Código de Trabajo, N° 2 del 27 de agosto de 1943)

@@ -1,1 +1,1 @@
-Artículo 48.-En todo establecimiento en que se ocupe a menores de diez y ocho años, deberá llevarse un registro en que conste su edad, la clase de trabajo a que se dedican, especificación del número de horas que trabajan, salario que perciben y constancia de que han cumplido con los requisitos de la Ley General de Educación Común.
+Artículo 48.- (Derogado por el aparte 5) del Capítulo Único de las Disposiciones Finales de la Sección I del Código de Trabajo, N° 2 del 27 de agosto de 1943)
