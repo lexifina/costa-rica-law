@@ -1,0 +1,2 @@
+Art 2°.- Tomará para el efecto la cantidad correspondiente de los depósitos que existen en arcas con calidad de reintegro por los productos que progresivamente resulten de los arbitrios dispuestos para la compra de parque, en la ley de 12 de Abril del año pasado.- Al Consejo Representativo.- Dado en la ciudad de Alajuela a los treinta días del mes de octubre de mil ochocientos treinta y cuatro.
+Por tanto: Ejecutese.- Alajuela Noviembre veinticinco de mil ochocientos treinta y cuatro.
