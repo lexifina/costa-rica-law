@@ -1,0 +1,1 @@
+ARTICULO CUARTO : El presente Decreto Ejecutivo modifica los límites de las Zonas Protectoras Arenal-Monteverde y Tenorio, establecidos por el Decreto Ejecutivo No.20172 MIRENEM de 29 de octubre de 1990.

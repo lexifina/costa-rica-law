@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO: Dentro de los limites de esta adición, rigen las disposiciones y prohibiciones establecidas para los parques nacionales, de conformidad con lo señalado por las leyes Nos. 6084, 7174 y demás legislación relacionada, correspondiendo su administración al Servicio de Parques Nacionales del Ministerio de Recursos Naturales, Energía y Minas.
