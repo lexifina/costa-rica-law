@@ -1,0 +1,1 @@
+Artículo 4°-Exonéranse del pago de toda clase de impuestos, tasas, contribuciones o derechos los documentos que se requieran para formalizar los citados Contratos de Préstamo con The Overseas Economic Cooperation Fund, de Japón y el Banco Interamericano de Desarrollo. Igual exención se concede para la inscripción de esos documentos en los registros correspondientes.
