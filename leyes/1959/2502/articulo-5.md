@@ -1,0 +1,2 @@
+Artículo 5º.- El Banco Central de Costa Rica, de acuerdo con su Ley Orgánica, suscribirá a nombre de la República, las acciones que le corresponden a ésta en el Banco Interamericano de Desarrollo y realizará su pago, de conformidad con lo establecido en el Convenio que mediante esta ley se aprueba.
+El pago de la suscripción de acciones lo hará el Banco Central con fondos propios y por consiguiente lo contabilizará como un activo suyo, aunque la participación respectiva aparezca a nombre del Gobierno de la República.

@@ -1,0 +1,1 @@
+Artículo 10.- Las disposiciones del Artículo XI del Convenio Constitutivo del Banco Interamericano de Desarrollo, tendrán fuerza de ley en todo el territorio de la República desde la fecha de inauguración del citado Banco.
