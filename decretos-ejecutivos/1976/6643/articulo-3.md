@@ -1,0 +1,1 @@
+Artículo 3°─ Las exportaciones ya efectuadas dentro del sistema “in bond” al mercado de los Estados Unidos de América con cargo a la cuota para el año 1977, deberán ajustarse a los porcentajes señalados en el artículo primero y disposiciones contenidas en el artículos segundo de este decreto.
