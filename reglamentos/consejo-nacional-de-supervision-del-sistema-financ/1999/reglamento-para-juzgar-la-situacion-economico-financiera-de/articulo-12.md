@@ -1,0 +1,1 @@
+Artículo 12.—En el área de generación de utilidades, el rendimiento nominal, sobre el patrimonio contable promedio, tiene un peso relativo sobre la puntuación final de esta área del 50%, el rendimiento nominal, sobre el activo productivo de intermediación promedio, el 30% y la relaciónutilidad operacional bruta, sobre los gastos de administración, un 20%.

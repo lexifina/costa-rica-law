@@ -1,0 +1,1 @@
+Artículo 26.—De acuerdo con el grado de riesgo que presenta el intermediario financiero, la SUGEF podrá requerir a la entidad aportes adicionales de capital conforme lo prevé el Artículo 136, literal b) de la Ley 7558, o bien cualesquiera otras medidas correctivas para subsanar las deficiencias según lo establece el Artículo 131, inciso e) de dicha ley.

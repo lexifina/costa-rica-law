@@ -1,0 +1,1 @@
+Artículo 25.—En caso de que el Consejo Nacional de Supervisión rechace los recursos respectivos, se dará por agotada la vía administrativa y podrá ordenar la intervención parcial o total de la entidad fiscalizada.

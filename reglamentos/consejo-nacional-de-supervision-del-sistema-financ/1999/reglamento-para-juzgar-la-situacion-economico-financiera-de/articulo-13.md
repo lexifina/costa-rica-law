@@ -1,0 +1,1 @@
+Artículo 13.—En el área de liquidez, el flujo de efectivo proyectado a dos meses tiene el mayor peso relativo, es decir, un 50%; el flujo de efectivo proyectado a dos meses un 30% y el calce de plazos a tres meses un 20%.

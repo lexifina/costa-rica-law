@@ -1,0 +1,1 @@
+Artículo 10.—En el área de calidad de los activos el indicador de morosidad mayor a 90 días entre cartera de préstamos directa tiene el mayor peso relativo, es decir el 50%; el coeficiente que relaciona la pérdida esperada con el activo total, un 30% y el que relaciona la cartera clasificada en categorías de riesgo A más B con la cartera total, un 20%.

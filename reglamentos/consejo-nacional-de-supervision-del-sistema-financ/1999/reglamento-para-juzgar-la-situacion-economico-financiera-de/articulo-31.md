@@ -1,0 +1,1 @@
+Artículo 31.—En caso de inestabilidad o irregularidad financiera de grado tres, se le aplicará a la entidad fiscalizada lo estipulado en el Artículo 139, literal c) y el Artículo 140 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558.
