@@ -14,3 +14,4 @@ Lineamientos Generales de Política Salarial y de Empleo 1994
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-01-01 | la propia norma |
+| 2 | 1994-03-09 | Decreto Ejecutivo 23035 (1994-03-09) |
