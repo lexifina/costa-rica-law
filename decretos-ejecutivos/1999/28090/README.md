@@ -13,3 +13,4 @@ De Interés Cultural Festival de Juegos Tradicionales(Día 20 de noviembre de 19
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-09-23 | la propia norma |
+| 2 | 1999-09-23 | SINALEVI (sin norma nombrada) |
