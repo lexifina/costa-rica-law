@@ -13,3 +13,4 @@ Reforma Manual Descriptivo Puestos Administración Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-06-16 | la propia norma |
+| 2 | 1980-06-16 | SINALEVI (sin norma nombrada) |
