@@ -1,0 +1,1 @@
+Artículo 41.- En cuanto a procedimientos, siempre que no hubiere incompatibilidad con las funciones de la Institución, se observarán las disposiciones del Código de Procedimientos Civiles. Las apelaciones deberán interponerse en todo caso, dentro de los tres días siguientes a la última notificación hecha a las partes.
