@@ -1,0 +1,1 @@
+Articulo N° 2°—Reglas del juego: Raspe el área de juego. Si un mismo símbolo de caballito aparece tres (3) veces, gana el monto indicado en la casilla de premio- Si aparece la palabra "RASPA", participa directamente en el programa de televisión.
