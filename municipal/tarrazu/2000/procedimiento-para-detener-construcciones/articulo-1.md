@@ -1,0 +1,22 @@
+REGLAMENTOS
+MUNICIPALIDADES
+MUNICIPALIDAD DE TARRAZÚ
+PROCEDIMIENTO PARA DETENER CONSTRUCCIONES
+El siguiente procedimiento fue aprobado por el Concejo Municipal, en sesión Nº 112-2000, del día 28 de junio del 2000, mediante acuerdo Nº 3. Se crea con la finalidad de establecer un marco de acción claro formal. Para todos aquellos casos en los cuales se detecte que dentro del cantón de Tarrazú se está llevando a cabo una construcción que incumple en algún aspecto con lo que indica el Reglamento de Construcción de esta Municipalidad.
+Por lo tanto, este procedimiento será a partir de su aprobación por parte del Concejo Municipal parte integral del Reglamento de Construcciones y deberá ser acatado y cumplido por los funcionarios que les corresponda.
+1. Notificación Municipal: Esta será la primera comunicación formal que se establecerá con un contribuyente cuando se detecte que su construcción incumpla en algún aspecto con el Reglamento respectivo.
+En este comunicado se le informa al propietario de la obra sobre los requisitos que está incumpliendo, se le ordena detener la misma y se le conceden 5 días hábiles para que cumpla con lo solicitado (ver anexo 1).
+El Inspector Municipal será el funcionario responsable de hacer entrega de esta notificación, cuando habiendo inspeccionado la construcción, detecte que ésta no cuenta con el permiso correspondiente o incumple de alguna forma con el Reglamento de Construcciones.
+Este funcionario deberá entregar la notificación personalmente al propietario de la obra, o en su defecto al cónyuge o maestro de obras, en cualquiera de estos casos será obligatorio anotar en el mismo documento el nombre completo, Nº de cédula y firma de la persona que recibe el comunicado. Si esta persona se negara a firmar o a brindar alguno de los datos requeridos, el inspector lo hará constar así en la notificación, bajo su entera responsabilidad.
+El original de ese documento se entregará al notificado y la copia se archivará en un expediente que se creará para tal efecto.
+2. Acatamiento del propietario dentro del tiempo concedido: Si el dueño de la construcción o su representante, acuden a la Municipalidad para cumplir con lo solicitado dentro de los 5 días hábiles concedidos en la notificación, se procederá de inmediato como lo indica el Reglamento de Construcciones. La obra no podrá continuarse hasta tanto no se haya cumplido con todos y cada uno de los requisitos solicitados por esta Municipalidad, el Ingeniero Municipal será el responsable de otorgar en definitiva el permiso respectivo y por tanto levantar el impedimento de continuación de la obra.
+3. El propietario no acata la notificación y continúa con la obra: Cuando esto suceda, el Depto. de Ingeniería procederá a levantar un acta en la cual ordena la cláusula de la obra mediante la instalación de sellos debidamente confeccionados. (Acta de Clausura de Construcciones, ver anexo 2).
+Esta acta será firmada y avalada por el Alcalde y el Concejo Municipal. La original de la misma se incluirá en el expediente respectivo y la copia se le entregará al propietario de la construcción.
+Una vez completa y firmada, y acompañados por un Guardia Rural, el Ingeniero Municipal procederá a "sellar" la construcción sin aviso previo al propietario.
+Procederá a levantar un acta en el lugar en la cual indicará la hora, fecha y testigos presentes, en el momento de la clausura, asimismo anotará todos aquellos incidentes que pudieran haberse presentado en el acto. (Acta de Colocación de Sellos para Clausura de Construcciones, ver anexo 3).
+La original de la misma se incluirá en el expediente respectivo y la copia se le entregará al propietario de la construcción.
+4. Propietario manifiesta deseo de cumplir requisitos: Si ante la clausura "sellada" de su construcción, el propietario manifiesta la intención formal y verídica de cumplir con lo solicitado, se procederá de la misma forma que se indica en punto Nº 2.
+5. Sellos son ignorados y construcción continúa: En este caso, el Inspector Municipal en conjunto con el Ingeniero Municipal enviarán nota al Alcalde, acompañada por el expediente del caso, en la cual informarán sobre lo sucedido.
+6. Inicio del trámite judicial: Una vez recibida esta comunicación, el Alcalde Municipal deberá proceder con el trámite de la denuncia ante la autoridad judicial correspondiente.
+A partir de este momento, todos los trámites que se deban realizar serán aquellos que indiquen las autoridades respectivas.
+Tarrazú, 14 de junio del 2000.—Teresita Blanco Meza, Secretaria Municipal
