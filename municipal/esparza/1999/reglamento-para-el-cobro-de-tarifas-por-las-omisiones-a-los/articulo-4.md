@@ -1,0 +1,1 @@
+Artículo 4°-Se entenderá por tarifas a cobrar por la Municipalidad a los propietarios omisos de los deberes, el precio que se le cobrará por el servicio u obra que deba ejecutar esta entidad, ante la omisión de los propietarios de los inmuebles ubicados en el cantón, de cumplir con los deberes que le ordena el anículo 75 del Código Municipal y el numeral 2 de este Reglamento.
