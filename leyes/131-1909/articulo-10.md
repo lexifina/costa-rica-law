@@ -1,2 +1,0 @@
-Artículo 10.-Tampoco podrá ser regidor ninguna persona que tenga celebrado contrato con la Municipalidad para la ejecución de obras municipales ó que tenga concesión de la Municipalidad para un servicio municipal.
-Se tendrán como hechos con el mismo regidor los contratos celebrados con el cónyuge ó parientes suyos, dentro de los grados prohibidos por el artículo 8º, así como hechas al mismo regidor las condiciones otorgadas á sus dichos parientes ó al cónyuge.

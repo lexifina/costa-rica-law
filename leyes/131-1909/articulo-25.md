@@ -1,2 +1,0 @@
-Artículo 25.-El artículo 20 de las Ordenanzas Municipales se leerá así: Las faltas accidentales del Secretario serán suplidas por un Secretario ad hoc, que puede ser uno de los regidores, y para las temporales, se nombrará un Secretario interino. El Secretario será el órgano de comunicación de la Municipalidad con sus empleados y con los particulares.
-Con el Poder Ejecutivo servirá de órgano de comunicación el respectivo Gobernador ó Jefe Político, y con las corporaciones públicas, el Presidente de la Municipalidad.
