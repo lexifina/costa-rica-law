@@ -1,0 +1,5 @@
+PODER LEGISLATIVO
+N°2 El Congreso Constitucional de la República de Costa Rica
+Decreta
+Artículo 1° A partir de la promulgación de esta ley y por el término de duración del contrato existente, celebrado por la Municipalidad del cantón central de Cartago, para la provisión de luz eléctrica de aquella ciudad, se concede a la Empresa contratante de ese servicio la exención de derechos de Aduana, muelle, teatro e impuesto consular de los efectos que importe, ya sea para producir fuerza, ya para sus diversas aplicaciones, tales como maquinaria de vapor e hidráulica, dinamos y transformadores, fajas, alquitrán o asfalto, pintura para postes, maquinarias eléctricas como motores o dinamos, bobinas, transformadores aparatos de control y manejo, alambre forrado y sin forrar, lámparas y globos de arco para las calles, carbones para luz de arco, amperímetros, voltámetros, medidores, aisladores, tornillos, espigas de hierro y madera, brazos de lámpara de arco, abrasaderas, ues de hierro y camisas para cubrir postes.
+No gozarán de franquicias alguna los materiales que se empleen para las instalaciones particulares.
