@@ -1,0 +1,2 @@
+Artículo 103.- El Ministerio de Recursos Naturales, Energía y Minas, por medio de la Dirección General Forestal, regulará y reglamentará la exportación o la importación de materia prima o de productos forestales, por volumen, calidad, precios y otros factores.
+Todo permiso de importación o exportación deberá ser aprobado por la Dirección General Forestal. Queda prohibida la exportación de trozas de madera.
