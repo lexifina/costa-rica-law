@@ -1,0 +1,1 @@
+Artículo 3°—Los concejales, el alcalde, los alcaldes suplentes, el tesorero, el auditor y el contador, sus cónyuges o parientes en línea directa o colaterales hasta el tercer grado están inhibidos para integrar estos Comités.

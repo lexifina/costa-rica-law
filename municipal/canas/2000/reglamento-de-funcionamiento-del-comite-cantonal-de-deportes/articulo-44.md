@@ -1,0 +1,1 @@
+Articulo 44.—Las organizaciones deportivas adscritas al comité cantonal tendrán derecho al uso de las instalaciones deportivas y a participar en los provéelos y programas del Comité Cantonal. Deberán someterse a la programación del uso de instalaciones deportivas elaborado por el Comité Cantonal.

@@ -1,0 +1,1 @@
+Artículo 34.—Los Comités distritales de deportes, y recreación estarán integrados por cinco miembros residentes en su comunidad. Serán nombrados en asamblea general convocada para tal efecto por el Comité Cantonal.

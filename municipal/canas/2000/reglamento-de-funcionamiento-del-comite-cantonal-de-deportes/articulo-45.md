@@ -1,0 +1,1 @@
+Articulo 45.—Los recursos que provengan del usufructo de las instalaciones deportivas y recreativas bajo la administración del Comité distrital de deportes y recreación, se aplicarán al mantenimiento, mejoras y construcción de las mismas instalaciones.

@@ -1,0 +1,1 @@
+Artículo 40.—El Comité Cantonal podrá solicitar para revisión los libros de Actas y Tesorería y podrá convocar a los Comités distritales de deportes y recreación a reuniones de trabajo y revisión de su labor.

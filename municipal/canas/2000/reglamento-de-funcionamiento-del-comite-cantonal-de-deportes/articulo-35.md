@@ -1,0 +1,1 @@
+Articulo 35.- La asamblea general para e! nombramiento de los Comités distritales de deportes y recreación estarán conformada por dos representantes de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en la comunidad.

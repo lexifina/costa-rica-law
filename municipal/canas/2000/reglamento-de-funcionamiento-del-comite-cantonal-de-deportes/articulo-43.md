@@ -1,0 +1,1 @@
+Artículo 43. —Los Comités distritales de deportes y recreación tendrán un presidente, un secretario, un Tesorero y dos vocales nombrados en la asamblea general, inicial. Sus funciones se incluyen en los artículos 9°, 10 y 11 del presente reglamento.

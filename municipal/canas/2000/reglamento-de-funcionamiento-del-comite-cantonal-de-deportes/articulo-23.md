@@ -1,0 +1,1 @@
+Articulo 23.—En caso de que una institución o persona presente la apelación y esta no sea acogida por el Comité, ya sea por extemporánea o por que las razones las aducidas no sean lo suficientemente satisfactorias se trasladara al Concejo Municipal quien es el único que podrá dar por agotada la vía administrativa.

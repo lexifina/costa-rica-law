@@ -1,0 +1,1 @@
+Articulo 41. Los campos deportivos administrados por los Comités distritales de deportes y recreación no podrán cerrarse para turnos, ni ferias sin permiso o autorización del Comité Cantonal, solicitados con 30 días de anticipación.

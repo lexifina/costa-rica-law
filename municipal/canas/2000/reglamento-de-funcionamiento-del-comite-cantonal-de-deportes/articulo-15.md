@@ -1,0 +1,1 @@
+Articulo 15.—Las sesiones extraordinarias del Comité Cantonal de Deportes y Recreación. serán convocadas por el presidente de la junta directiva y podrán reunirse por lo menos una vez al mes. Asimismo cualquier iniciativa debe ser presentada por escrito a modo de moción y debidamente brillada.

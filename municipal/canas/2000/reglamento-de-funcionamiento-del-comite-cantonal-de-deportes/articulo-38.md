@@ -1,0 +1,1 @@
+Artículo 38.—Cada Comités distritales de deportes y recreación llevará un libro de actas y un libro de tesorería que tengan hojas numeradas los cuales deberán ser presentados al Comité Cantonal, quien los autorizara sellando cada hoja de los libros.

@@ -1,0 +1,1 @@
+Articulo 33.—Los Comités distritales de deportes y recreación serán los responsables de organizar, dirigir, promover y divulgar toda la actividad deportiva de su comunidad. Asimismo promoverán la construcción, administrarán y mantendrán las instalaciones deportivas de la comunidad otorgadas en administración.

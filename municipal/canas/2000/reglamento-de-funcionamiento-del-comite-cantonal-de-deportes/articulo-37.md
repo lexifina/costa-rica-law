@@ -1,0 +1,1 @@
+Articulo 37.—Los Corniles distritales de deportes y recreación se reunirán una vez a la semana. Los miembros que no asistan a cuatro reuniones sin causa justificada perderán su credencial como miembros. Su sustituto será escogido por el Comité Cantonal de una lema que presenten los restantes miembros.
