@@ -1,0 +1,3 @@
+Artículo 61.—La Comisión Especial Municipal de Asuntos Ciudadanos, en el marco del Código Municipal, durante el año 2000, presentará ante el Concejo Municipal para lo que corresponda la propuesta del Proyecto de Fideicomiso Social, así como la propuesta de asignación de recursos a los distritos, esto último con base en los planes y programas de los Concejos de Distrito, para su consideración por parte de la Comisión de Hacienda y Presupuesto para el presupuesto ordinario del año 2001.
+Acuerdo definitivamente aprobado. Sesión extraordinaria No 643 del 3 de abril del 2000.
+Desamparados, 13 de abril del 2000.
