@@ -1,4 +1,4 @@
-(NOTA IMPORTANTE: El siguiente Anexo contiene las Reglas Específicas para la Determinación del Origen de las Mercancías, y sus modificaciones, y forma parte del texto del Decreto Ejecutivo N° 24712 de 09 de octubre de 1995, sin embargo por disposición del artículo 54 del presente Reglamento, también forma parte integrante de éste último).
+(NOTA IMPORTANTE: Este anexo pertenece al decreto ejecutivo N° 24712 de 9 de octubre de 1995, sin embargo por disposición del artículo 54 de éste es parte integrante del presente reglamento, que contiene las Reglas Específicas para la terminación del Origen de las Mercancías, y sus modificaciones).
 ANEXO N° 1
 REGLAMENTO CENTROAMERICANO SOBRE EL ORIGEN DE LAS MERCANCÍAS
 PARTIDA DESCRIPCIÓN
@@ -28,7 +28,7 @@ excepto de la subpartida 0105.91 y 0105.99
 excepto de la partida 0103 (sólo tocino)
 0210 - Un cambio a la partida 0210 desde cualquier otro capítulo
 CAPITULO 03:
-Nota de Capítulo:
+Nota de Capítulo
 Los pescados, crustáceos, moluscos e invertebrados acuáticos serán considerados originarios según el artículo 6 del Reglamento, incluso aquellos obtenidos de peces para la reproducción, de la partida 0301 o de larvas de camarón, del inciso 0306.23.10, por ejemplo.
 0301-0307 - Un cambio a la partida 0301 a 0307 desde cualquier otro capítulo
 CAPITULO 04:
@@ -166,6 +166,8 @@ PRODUCTOS DE LAS INDUSTRIAS ALIMENTARIAS; BEBIDAS, LÍQUIDOS ALCOHÓLICOS Y VINA
 (Del Capítulo 16 al 24)
 CAPITULO 16:
 1601-1602 a/
+1601 – 1602 Un cambio a la partida 1601 a 1602 desde cualquier otro capítulo, excepto de la partida 0201, 0202 y 0207; permitiéndose la importación de carne de ave mecánicamente deshuesada.
+(Así aprobada e incluida mediante artículo 1 del decreto ejecutivo N° 27613 de 12 de enero del 2002)
 1603-1605 - Un cambio a la partida 1603 a 1605 desde cualquier otro
 capítulo
 CAPITULO 17:
@@ -186,15 +188,22 @@ CAPITULO 19:
 1901.102 - Un cambio a la subpartida 1901.10 desde cualquier otro
 capítulo, excepto de la partida 0402.
 1901.20a/
+1901.20 Un cambio a la subpartida 1901.20 desde cualquier otro capítulo, excepto de la partida 101 y de la subpartida 1103.11 y 1103.21
+(Así aprobada e incluida mediante artículo 1 del decreto ejecutivo N° 27613 de 12 de enero del 2002)
 1901.90 - Un cambio a la subpartida 1901.90 desde cualquier otra
 partida, excepto de la partida 0402
 1902a/
+1902 Un cambio a la partida 1902 desde cualquier otro capítulo, excepto de la partida 1101 y de la subpartida 1103.11 y 1103.21.
+(Así aprobada e incluida mediante artículo 1 del decreto ejecutivo N° 27613 de 12 de enero del 2002)
 1903 - Un cambio a la partida 1903 desde cualquier otra partida
 1904.10 - Un cambio a la subpartida 1904.10 desde cualquier otra
 partida
 1904.90 - Un cambio a la subpartida 1904.90 desde cualquier otra
 partida, excepto de la partida 1006
 1905a/
+1905 Un cambio a la partida 1905 desde cualquier otro capítulo, excepto de la partida 1101 y de la subpartida 1103.11 y 1103.21.
+(Así aprobada e incluida mediante artículo 1 del decreto ejecutivo N° 27613 de 12 de enero del 2002)
+(Eliminada la llamada b/ de la subpartida 1901.10, por el artículo 1 del decreto ejecutivo N° 27613 de 12 de enero de 1999)
 CAPITULO 20:
 2001 - Un cambio a la partida 2001 desde cualquier otro capítulo,
 excepto del capítulo 07
@@ -250,7 +259,10 @@ cambio de harina de mostaza a mostaza preparada
 capítulo
 2104 - Un cambio a la partida 2104 desde cualquier otro capítulo
 2105a/
+2105 Un cambio a la partida 2105 desde cualquier otro capítulo, excepto de la partida 0401, 0402 y 0403 y subpartida 1901.90
+(Así aprobada e incluida mediante artículo 1 del decreto ejecutivo N° 27613 de 12 de enero del 2002)
 2106 - Un cambio a la partida 2106 desde cualquier otro capítulo
+(Eliminada la llamada c/ de la subpartida 2103.20, por el artículo 1 del decreto ejecutivo N° 27613 de 12 de enero de 1999)
 CAPITULO 22:
 2201 - Un cambio a la partida 2201 desde cualquier otro capítulo
 2202.10 - Un cambio a la subpartida 2202.10 desde cualquier otro
@@ -481,8 +493,11 @@ partida
 CAPITULO 48:
 4801-4805 - Un cambio a la partida 4801 a 4805 desde cualquier otro
 capítulo
-4806-4811 - Un cambio a la partida 4806 a 4811 desde cualquier otra
-partida
+4806 – 4809 Un cambio a la partida 4806 a 4809 desde cualquier otra partida.
+(Así reformada por el artículo 1 del decreto ejecutivo N° 27613 de 12 de enero de 1999)
+4810 – 4811 Un cambio a la partida 4810 a 4811 desde cualquier otra partida.
+El proceso de laminado o estratificado incluso con otras materias confiere origen
+(Así reformada por el artículo 1 del decreto ejecutivo N° 27613 de 12 de enero de 1999)
 4812 - Un cambio a la partida 4812 desde cualquier otra partida
 4813-4815 - Un cambio a la partida 4813 a 4815 desde cualquier otra
 partida
@@ -540,6 +555,8 @@ partida
 5207 - Un cambio a la partida 5207 desde cualquier otra partida.
 excepto de la partida 5205 y 5206.
 5208-5212 a/
+5208 – 5212 Un cambio a la partida 5208 a 5212 desde cualquier otra partida, excepto de la partida 5205 a 5207.
+(Así aprobada e incluida mediante artículo 1 del decreto ejecutivo N° 27613 de 12 de enero del 2002)
 CAPITULO 53:
 5301-5305 - Un cambio a la partida 5301 a 5305 desde cualquier otro
 capítulo.

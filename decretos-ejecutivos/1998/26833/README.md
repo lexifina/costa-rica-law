@@ -14,3 +14,4 @@ Reglamento Centroamericano sobre el Origen de las Mercancías
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-04-22 | la propia norma |
+| 2 | 1999-01-12 | Decreto Ejecutivo 27613 (1999-01-12) |
