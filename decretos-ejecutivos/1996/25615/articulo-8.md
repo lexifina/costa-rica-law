@@ -1,0 +1,1 @@
+Artículo 8°—El Auditor Interno será el jefe del personal de la Auditoría Interna y en esa condición ejercerá todas las funciones que le son propias en la administración de su personal, de tal manera que deberá contarse con su anuencia para nombramientos, remociones, promociones, licencias y otros, todo de acuerdo con el marco jurídico que en la materia rige para el Ministerio.

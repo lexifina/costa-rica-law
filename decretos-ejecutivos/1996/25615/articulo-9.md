@@ -1,0 +1,1 @@
+Artículo 9°—El Auditor Interno deberá proponer a la máxima autoridad del Ministerio la creación de plazas y servicios que se consideran indispensables para el cumplimiento de Plan Anual de Auditoría y en general para el buen funcionamiento de la Auditoría Interna.
