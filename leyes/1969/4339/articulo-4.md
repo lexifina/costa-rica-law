@@ -1,5 +1,2 @@
-Artículo 4º.- La cabecera del cantón estará situada en Bambú, que de
-ahora en adelante se designará con el nombre de Bratsi, de acuerdo con las
-recomendaciones de la Comisión de Nomenclatura. Se autoriza al poder
-Ejecutivo para fija r la División Distrital, dentro de los límites
-anteriormente descritos.
+Artículo 4º.- La cabecera del cantón estará situada en Bambú, que de ahora en adelante se designará con el nombre de Bratsi, de acuerdo con las recomendaciones de la Comisión de Nomenclatura. Se autoriza al poder Ejecutivo para fijar la División Distrital, dentro de los límites anteriormente descritos.
+(Mediante el artículo 1° de la ley N° 4626 del 3 de agosto de 1970, se reforma este artículo, en el sentido de que la cabecera del cantón de Talamanca, sea la población denominada Bribrí, antes conocida como Fields.)
