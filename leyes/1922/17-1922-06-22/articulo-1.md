@@ -1,0 +1,9 @@
+N° 17
+EL CONGRESO CONSTITUCIONAL DE LA
+REPÚBLICA DE COSTA RICA
+DECRETA:
+Artículo 1°-Adiciónase los siguientes artículos de la ley N° 72 de 18 de diciembre de 1916, en esta forma:
+El artículo 3°-.; así: “Asimismo el valor de todas las maquinarias y demás muebles que formen parte de un inmueble por ser necesarias para la explotación del negocio a que está destinado, deberá tomarse en cuenta junto con el del inmueble propiamente dicho para tasar el impuesto, aunque tales maquinarias o muebles puedan fácilmente separase del inmueble”.
+El artículo 9°-., así: “La Oficina de la Tributación Directa se ayudará para fijar el valor común de todas las propiedades declaradas, de peritos o valuadores cantonales, nombrados a propuesta de la Oficina por la Secretaría de Hacienda, los cuales quedan obligados a suministrar todos los datos referentes a un inmueble que sean necesarios para su mejor justiprecio.
+En caso de que el Poder Ejecutivo no considere necesario nombrar un perito o valuador por cada cantón, queda facultado para dividir el territorio de la República en tantos circuitos o circunscripciones como crea conveniente, para los efectos de esta ley”.
+El artículo 23, así: “Si por cualquier motivo llegare a conocimiento de la Administración que una finca o fincas declaradas, han obtenido un mayor valor que el declarado por el propietario al ser traspasadas o hipotecadas a un tercero, la Oficina tendrá derecho a cobrar sobre este aumento el impuesto ordinario y las multas respectivas durante el último año, a menos que este aumento no exceda de un 20% del valor declarado. Pero si este mayor valor proviene de mejoras introducidas en el inmueble y éstas se mencionan en el documento en que se hace el traspaso o se constituye la hipoteca o para cualquier otro fin, la Oficina sólo podrá tomarlo para seguir cobrando el impuesto de la fecha del anotado respectivo en adelante”.

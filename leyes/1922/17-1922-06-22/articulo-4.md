@@ -1,0 +1,2 @@
+Artículo 4°-El artículo 28 de la misma ley citada se leerá así: “En el caso de pertenecer una finca a varios condueños, cada uno de éstos pagará por separado el impuesto si es que sus derechos valen más de tres mil colones, o que sumando su valor junto con el de los otros bienes que haya declarado llegue o exceda de esa suma. Pero en ningún caso, un copropietario estará obligado a declarar los derechos que los demás tengan en el inmueble”.
+Casa Presidencial.-San José, a los veintidós días del mes de junio de mil novecientos veintidós.
