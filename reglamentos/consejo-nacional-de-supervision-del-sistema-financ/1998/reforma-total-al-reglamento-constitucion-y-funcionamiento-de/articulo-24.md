@@ -1,0 +1,2 @@
+Artículo 24.
+Las empresas dedicadas a la prestación de servicios financieros domiciliadas en el exterior, distintas a los bancos y financieras, interesadas en formar parte de un Grupo Financiero costarricense, deberán solicitar a través del Representante Legal de la sociedad controladora autorización al Consejo Nacional de Supervisión del Sistema Financiero, y cumplir con los requisitos exigidos por la legislación costarricense y este Reglamento.

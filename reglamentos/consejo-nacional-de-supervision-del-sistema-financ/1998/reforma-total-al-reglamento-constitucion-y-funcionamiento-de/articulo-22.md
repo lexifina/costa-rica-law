@@ -1,0 +1,3 @@
+Artículo 22.
+Para que una empresa financiera costarricense pueda prestar servicios a un banco o entidad financiera con domicilio en el exterior parte de su mismo Grupo Financiero, deberá existir entre ambos un contrato de servicios en el que se consignen claramente los derechos y obligaciones de cada una de las partes, el tipo de servicios y el carácter con que serán prestados. Dicho contrato y sus modificaciones deberán hacerse de conocimiento del órgano supervisor correspondiente en forma previa a su aplicación.
+Si dentro de los quince días naturales posteriores el organismo supervisor no los objeta, quedarán aprobados.
