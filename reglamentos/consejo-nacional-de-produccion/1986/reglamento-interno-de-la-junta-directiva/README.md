@@ -14,3 +14,4 @@ Reglamento Interno de la Junta Directiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-08-18 | la propia norma |
+| 2 | 1990-08-16 | Reglamento 1480 (1990-08-16) |
