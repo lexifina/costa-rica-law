@@ -1,1 +1,0 @@
-Artículo 4°-La venta se hará ante el Juez de lo Contencioso Administrativo, el cual otorgará al comprador la correspondiente constancia, con certificación del acta del remate y del auto de aprobación.
