@@ -1,4 +1,4 @@
-Artículo 76.-Rige a partir de su publicación.
+ARTICULO 76.-Rige a partir de su publicación.
 Transitorio I.-En aquellas asociaciones solidaristas en que los
 afiliados estén recibiendo beneficios superiores a los previstos en esta
 ley de sus respectivas empresas, continuarán recibiéndolos sin que estas

@@ -1,4 +1,4 @@
-Artículo 21.-Las cuotas patronales se utilizarán para el desarrollo y
+ARTICULO 21.-Las cuotas patronales se utilizarán para el desarrollo y
 cumplimiento de los fines de la asociación y se destinarán prioritariamente
 a constituir un fondo para el pago del auxilio de cesantía. Este fondo se
 dispondrá de la siguiente manera:

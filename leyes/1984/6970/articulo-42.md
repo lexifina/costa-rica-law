@@ -1,6 +1,6 @@
 CAPITULO IV
 De la junta directiva y del fiscal
-Artículo 42.-La asociación será dirigida y administrada por una junta
+ARTICULO 42.-La asociación será dirigida y administrada por una junta
 directiva compuesta al menos por cinco miembros. Sin perjuicio de que
 puedan usarse otras denominaciones para los cargos, la junta directiva
 estará integrada por: un presidente, un vicepresidente, un secretario, un

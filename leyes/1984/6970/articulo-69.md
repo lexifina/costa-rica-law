@@ -1,4 +1,4 @@
-Artículo 69.-Para la correspondiente inscripción en el Registro de
+ARTICULO 69.-Para la correspondiente inscripción en el Registro de
 cualquier asociación solidarista es indispensable presentar el acta de
 constitución, con una copia debidamente firmada por el presidente y por el
 secretario de la junta directiva fundadora, con las firmas autenticadas por

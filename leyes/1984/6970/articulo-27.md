@@ -1,4 +1,4 @@
-Artículo 27.-Son asambleas ordinarias las que se realicen para conocer
+ARTICULO 27.-Son asambleas ordinarias las que se realicen para conocer
 de cualquier asunto que no sea de los enumerados en el artículo 29. Estas
 asambleas conocerán de los asuntos incluidos en el orden del día, entre los
 que podrán estar los siguientes:

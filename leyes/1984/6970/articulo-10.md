@@ -1,4 +1,4 @@
-Artículo 10.-Toda asociación solidarista al constituirse deberá
+ARTICULO 10.-Toda asociación solidarista al constituirse deberá
 adoptar un ordenamiento básico que regirá sus actividades, denominado
 estatutos y que deberá ser aprobado en la asamblea constitutiva.
 Para que una asociación solidarista ejerza lícitamente sus

@@ -1,4 +1,4 @@
-Artículo 4º.-Las asociaciones solidaristas son entidades de duración
+ARTICULO 4º.-Las asociaciones solidaristas son entidades de duración
 indefinida, con personalidad jurídica propia, que, para lograr sus
 objetivos, podrán adquirir toda clase de bienes, celebrar contratos de toda
 índole y realizar toda especie de operaciones lícitas encaminadas al

@@ -1,2 +1,2 @@
-Artículo 75.-Esta ley deroga cualquier otra disposición que la
+ARTICULO 75.-Esta ley deroga cualquier otra disposición que la
 contradiga.

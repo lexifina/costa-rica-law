@@ -1,4 +1,4 @@
-Artículo 29.-Son asambleas extraordinarias las que se
+ARTICULO 29.-Son asambleas extraordinarias las que se
 realicen para:
 a) Modificar los estatutos parcial o totalmente.
 b) Disolver, fundir o transformar la asociación solidarista.
