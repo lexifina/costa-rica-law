@@ -1,0 +1,2 @@
+Artículo 5° -El Pagador se constituirá en el establecimiento donde hubiere de hacerse el pago y solicitará de quien corresponda que se ordene formar en línea a las personas a quienes va a pagarse; luego llamará en voz alta por el orden numérico de la lista a cada una de ellas y les hará entrega, en dinero efectivo, bajo cubierta, del importe que indique la lista.
+Si se hiciere algún reclamo, lo anotará en la columna respectiva; y si hubiere sobrante, lo devolverá al jefe de la Contabilidad Nacional para su reintegro en el Tesoro.

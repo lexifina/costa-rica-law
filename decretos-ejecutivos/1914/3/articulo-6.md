@@ -1,0 +1,2 @@
+Artículo 6° - Una vez concluida la diligencia de pago, el Pagador certificará al pie de la lista que el importe de la planilla ha sido pagado a las diferentes personas en ella mencionadas.
+Si no estuvieren presentes alguna o algunas de las personas que aparezcan en la lista, el Pagador lo hará constar así, y traspasará los nombres de ellas a otra planilla suplementaria, para pagarles cuando se presenten en su oficina.

@@ -1,0 +1,1 @@
+Artículo 2°-Corresponde a esa oficina hacer el pago de los servicios prestados por los individuos de la Policía de Orden y Seguridad, Guarniciones, jornaleros y obreros de la Fábrica Nacional de Licores, de la Dirección de Obras Públicas y de la Imprenta Nacional.
