@@ -1,0 +1,1 @@
+Artículo 5°-Corresponderá al Departamento de Fomento Nacional de Préstamos para la Educación (FONAPE), seguir la política nacional de préstamos para Educación señalada por el Consejo Consultivo, así como administrar los recursos que en esta ley se destinan a impulsar todas las formas de educación, estudios y preparación de los costarricenses, dentro o fuera del país.

@@ -1,0 +1,1 @@
+Artículo 18.-El Departamento de Fomento Nacional de Préstamos para Educación (FONAPE), gestionará la obtención de recursos adicionales para el otorgamiento de créditos, mediante negociaciones con entes nacionales y extranjeras de cooperación técnica y financiera.
