@@ -11,3 +11,4 @@ ARTICULO 3° : PRESUPUESTO POR PROGRAMAS ASAMBLEA LEGISLATIVA
 (Así MODIFICADO por el artículo N° 1° del Decreto Ejecutivo N° 32009 del 20 de julio del 2004, publicado en el Alcance N° 35 de la Gaceta N° 153 del 6 de agosto del 2004)
 (Modificado por el artículo 1° del decreto ejecutivo N° 31936 del 9 de setiembre del 2004, publicado en el Alcance N° 47 de La Gaceta N° 192 del 1° de octubre del 2004)
 (Modificado por el artículo 1° del decreto ejecutivo N° 31937 del 9 de setiembre del 2004, publicado en el Alcance N° 48 de La Gaceta N° 192 del 1° de octubre del 2004)
+(Así reformado por el artículo 4° de la Ley N °8424 del 7 de octubre del 2004)
