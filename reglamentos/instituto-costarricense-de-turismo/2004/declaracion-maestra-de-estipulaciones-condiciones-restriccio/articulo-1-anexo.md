@@ -1,0 +1,3 @@
+Anexo A
+DESCRIPCIÓN LEGAL DEL TERRENO TOTAL
+La totalidad del Terreno de la Concesión Maestra de la Península Papagayo descrita en el Anexo B; junto con todos los inmuebles (sujetos o no a Concesión) ubicados dentro de los cantones de Liberia y Carrillo en la Provincia de Guanacaste en Costa Rica; junto con todas las áreas costeras de desarrollo, consistentes en tierra y vías oceánicas, ubicadas de manera inmediatamente adyacente al Terreno de la Concesión Maestra de la Península Papagayo, que pueden llegar a ser objeto de desarrollo, como una Marina de conformidad con una Concesión de Marina otorgada por el ICT.
