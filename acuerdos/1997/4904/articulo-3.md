@@ -1,0 +1,1 @@
+3. Dejar sin efecto la disposición que estipula el pago de intereses sobre los recursos de encaje provenientes de las obligaciones a plazo de más de treinta y menos de ciento ochenta días, cuando la tasa de encaje mínimo legal supere el 10%. Por lo anterior se deroga el literal C., del Capítulo IV, Título III, de las “Regulaciones de Política Monetaria”.
