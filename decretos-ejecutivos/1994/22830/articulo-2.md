@@ -1,0 +1,1 @@
+Artículo 2°—-Igualmente serán exentos de todo pago de derechos atrasados y multas, todos aquellos indocumentados, ilegales y legales, con el fin de facilitarles regularizar su situación migratoria en el país.

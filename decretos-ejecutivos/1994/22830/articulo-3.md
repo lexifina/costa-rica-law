@@ -1,0 +1,1 @@
+Artículo 3°—Este régimen de excepción será aplicable a todo extranjero que ha ingresado al país con anterioridad al día treinta y uno de julio de mil novecientos noventa y tres. Sus trámites se harán ante el Consejo Nacional de Migración, debiendo cumplir con los requisitos estipulados por este ente asesor.
