@@ -1,0 +1,1 @@
+Articulo 21°—Medidas de seguridad. El Concejo Municipal de la Municipalidad de Turrialba. tiene la obligación de tomar las medidas necesarias a fin de garantizar un ambiente de seguridad y tranquilidad el día de las elecciones.

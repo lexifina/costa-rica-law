@@ -1,0 +1,1 @@
+Artículo 13.—Discusión de la propuesta. El Concejo Municipal de Turrialba. toma las medidas necesarias para garantizar un adecuado margen de libertad para el planteo y examen de las distintas opciones que presenta la consulta popular, disponiendo un tiempo razonable para la divulgación y análisis de !as diferentes alternativas por parte de los habitantes del Cantón.

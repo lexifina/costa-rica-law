@@ -1,0 +1,1 @@
+Artículo 11.—Convocatoria formal. La convocatoria formal o plebiscito o a refrendo deberá ser publicada en un mínimo de dos diarios de circulación nacional. Dicha convocatoria contendrá una explicación del asunto que se someterá a la consulta, la formulación de la consulta que se ha de ser contestada y la eficacia de la decisión ciudadana.

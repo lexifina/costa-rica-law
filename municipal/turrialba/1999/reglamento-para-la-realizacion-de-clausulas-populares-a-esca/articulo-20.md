@@ -1,0 +1,1 @@
+Artículo 20°—Horario de la votación. El Concejo Municipal de la Municipalidad de Turrialba, establecerá el horario de vocación de acuerdo a la consulta popular de que se trate no pudiendo ser inferior a seis horas ni mayor de doce horas.

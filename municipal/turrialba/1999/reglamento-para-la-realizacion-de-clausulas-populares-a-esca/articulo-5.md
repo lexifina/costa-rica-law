@@ -1,0 +1,3 @@
+Articulo 5°—Asesores y Delegados del Tribunal Supremo de Elecciones. Se le solicitará asesoría al Tribunal Supremo de Elecciones en la preparación y realización de las consultas.
+Para tales efectos:
+Se pedirá al Tribunal Supremo de Elecciones que designe al menos un funcionario que asesore a la Municipalidad de Turrialba, en la preparación y realización de la consulta popular, para que dicho funcionario vele, por el cumplimiento de los requisitos formales establecidos en el Reglamento y en la Legislación Electoral vigente, Sin perjuicio de lo anterior el mismo Tribunal Supremo de Elecciones, podrá designar cuantos funcionarios del Cuerpo Nacional de Delegados que colaboren con la realización de la consulta.

@@ -1,0 +1,1 @@
+Artículo 6°—Toda fecha consultada deberá realizarse en día domingo o feriado de Ley, salvo por acuerdo de mayoría calificada del Concejo Municipal de la Municipalidad de Turrialba. disponga lo contrario.

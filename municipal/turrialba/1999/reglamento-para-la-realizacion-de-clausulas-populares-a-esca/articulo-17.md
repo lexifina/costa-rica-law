@@ -1,0 +1,1 @@
+Articulo 17°—Documento Electoral. El Tribunal Supremo de Elecciones asesorará a la Municipalidad de Turrialba, previa solicitud en ese sentido, en cuanto a la seguridad básica en la confección y manejo de la documentación electoral que sea necesarias.
