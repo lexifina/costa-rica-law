@@ -1,0 +1,1 @@
+Artículo 2°—Se exceptúan de dicho traspaso los terrenos comprendidos dentro de las excepciones que señala la Ley de Tierras y Colonización N° 2828 de 14 de octubre de 1961 y sus reformas, la Ley Forestal N° 4445 de 25 de noviembre de 1969, los inmuebles que estuvieron bajo el dominio privado y los que por otras causas legales no pueden serlo.
