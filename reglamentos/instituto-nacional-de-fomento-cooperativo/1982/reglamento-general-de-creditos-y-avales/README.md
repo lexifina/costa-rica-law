@@ -21,3 +21,4 @@ Reglamento General de Créditos y Avales.
 | 6 | 1990-06-28 | Reglamento 1972 (1990-06-28) |
 | 7 | 1993-07-01 | Reglamento 2269 (1993-07-01) |
 | 8 | 1993-10-07 | Reglamento 2297 (1993-10-07) |
+| 9 | 1996-10-05 | Reglamento 2579 (1996-10-05) |
