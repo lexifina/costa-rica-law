@@ -1,0 +1,1 @@
+Art. 2. La Hacienda pública será representada en todos los negocios que le interesan, por los Contadores de las administraciones respectivas, quienes desempeñarán las funciones del empleado que establece el articulo 22 del § y sección citados en el articulo anterior; quedando por consiguiente suprimido aquel destino.
