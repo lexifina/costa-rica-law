@@ -1,0 +1,1 @@
+Art 5° Cuando haya dos Agentes principales, al segundo le corresponde especialmente las funciones comprendidas en las atribuciones 3° y 4° del artículo que antecede, y además desempeñara las órdenes que el Gobernador le diere para el buen servicio de la policía.
