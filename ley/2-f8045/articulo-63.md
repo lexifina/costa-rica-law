@@ -1,50 +1,13 @@
 SECCION II
 De las convenciones colectivas de industria, de actividad
 económica o de región determinada:
-ARTICULO 63.- Para que la convención colectiva se extienda con fuerza de
-ley para todos los patronos y trabajadores, sindicalizados o no, de
-determinada rama de la industria, actividad económica o región del país,
-será necesario:
-a) Que se haga constar por escrito, en tres ejemplares, uno para cada
-parte y otro para acompañarlo junto con la solicitud de que habla
-el inciso d);
-b) Que esté suscrita por el sindicato o sindicatos o grupo de patronos
-que tengan a su servicio las dos terceras partes de los
-trabajadores que en ese momento se ocupen de ellas;
-c) Que esté suscrita por el sindicato o sindicatos que comprendan las
-dos terceras partes de los trabajadores sindicalizados en ese
-momento en la rama de la industria, actividad económica o región
-de que se trate;
-d) Que cualquiera de las partes dirija una solicitud escrita al
-Ministerio de Trabajo y Seguridad Social para que, si el Poder
-Ejecutivo lo creyere conveniente, declare su obligatoriedad
-extensiva; la petición, si se reúnen los requisitos a que se
-refieren los incisos b) y c), será publicada inmediatamente en
-el Diario Oficial, concediendo un término improrrogable de quince
-días para que cualquier patrono o sindicato de trabajadores que
-resulte directa e indudablemente afectado, formule oposición
-razonada contra la extensión obligatoria del pacto, y
-e) Que trascurrido dicho término sin que se formule oposición o
-desechadas las que se hubieren presentado, el Poder Ejecutivo emita
-decreto declarando su obligatoriedad en lo que no se oponga a las
-leyes de interés público y de carácter social vigentes, y la
-circunscripción territorial, empresas o industrias que habrá de
-abarcar. Es entendido que la convención colectiva declarada de
-extensión obligatoria se aplicará, a pesar de cualquier disposición
-en contrario contenida en los contratos individuales o colectivos
-que las empresas que afecte tengan celebrados, salvo en aquellos
-puntos en que estas estipulaciones sean más favorables a los
-trabajadores.
-Para los efectos de este inciso, cuando se presentare una
-oposición en tiempo, el Ministerio de Trabajo y de Seguridad Social
-dará audiencia por diez días comunes a quien la hiciere y a los
-signatarios de la convención para que aleguen lo pertinente; este
-término se empezará a contar desde el día siguiente a aquél en que
-se practicó la última notificación por un Inspector de Trabajo y,
-una vez trascurrido, el mencionado Ministerio emitirá dictamen
-definitivo; caso de declarar con lugar la oposición, procurará
-avenir a las partes sometiéndoles un nuevo proyecto de convención,
-que si fuere aprobado por éstas, será declarado de extensión
-obligatoria en los términos a que se refiere el párrafo anterior.
-( El nombre del Ministerio fue así reformado por la Ley No. 5089
-de 18 de octubre de 1972 )
+ARTICULO 63.-
+Para que la convención colectiva se extienda con fuerza de ley para todos los patronos y trabajadores, sindicalizados o no, de determinada rama de la industria, actividad económica o región del país, será necesario:
+Que se haga constar por escrito, en tres ejemplares, uno para cada parte y otro para acompañarlo junto con la solicitud de que habla el inciso d);
+Que esté suscrita por el sindicato o sindicatos o grupo de patronos que tengan a su servicio las dos terceras partes de los trabajadores que en ese momento se ocupen de ellas;
+Que esté suscrita por el sindicato o sindicatos que comprendan las dos terceras partes de los trabajadores sindicalizados en ese momento en la rama de la industria, actividad económica o región de que se trate;
+Que cualquiera de las partes dirija una solicitud escrita al Ministerio de Trabajo y Seguridad Social para que, si el Poder Ejecutivo lo creyere conveniente, declare su obligatoriedad extensiva; la petición, si se reúnen los requisitos a que se refieren los incisos b) y c), será publicada inmediatamente en el Diario Oficial, concediendo un término improrrogable de quince días para que cualquier patrono o sindicato de trabajadores que resulte directa e indudablemente afectado, formule oposición razonada contra la extensión obligatoria del pacto, y
+Que transcurrido dicho término sin que se formule oposición o desechadas las que se hubieren presentado, el Poder Ejecutivo emita decreto declarando su obligatoriedad en lo que no se oponga a las leyes de interés público y de carácter social vigentes, y la circunscripción territorial, empresas o industrias que habrá de abarcar. Es entendido que la convención colectiva declarada de extensión obligatoria se aplicará, a pesar de cualquier disposición en contrario contenida en los contratos individuales o colectivos que las empresas que afecte tengan celebrados, salvo en aquellos puntos en que estas estipulaciones sean más favorables a los trabajadores.
+Para los efectos de este inciso, cuando se presentare una oposición en tiempo, el Ministerio de Trabajo y de Seguridad Social dará audiencia por diez días comunes a quien la hiciere y a los signatarios de la convención para que aleguen lo pertinente; este término se empezará a contar desde el día siguiente a aquél en que se practicó la última notificación por un Inspector de Trabajo y, una vez transcurrido, el mencionado Ministerio emitirá dictamen definitivo; caso de declarar con lugar la oposición, procurará avenir a las partes sometiéndoles un nuevo proyecto de convención, que si fuere aprobado por éstas, será declarado de extensión obligatoria en los términos a que se refiere el párrafo anterior.
+(El nombre del Ministerio fue así reformado por la Ley No. 5089 de 18 de octubre de 1972)
+(Interpretado por la Sala Constitucional en el sentido que: "a) son inconstitucionales las convenciones colectivas reguladas por los artículos 54 y siguientes del Código de Trabajo que se celebran en el sector público, cuando se trata de personal regido por la relación de empleo de naturaleza pública (relación estatutaria); b) no son inconstitucionales las convenciones colectivas que se celebran en el sector público, cuando las celebran obreros, trabajadores, funcionarios o empleados del sector público, cuyas relaciones laborales se regulan por el Derecho común; c) igualmente son compatibles con el Derecho de la Constitución, los instrumentos colectivos que se han negociado y se han venido prorrogando o modificando, en aplicación de la política general sobre convenciones colectivas en el Sector Público, salvo que se trate de negociaciones con personal en relación de empleo de naturaleza pública, en cuyo caso esos instrumentos resultan inconstitucionales; d) corresponde a la administración y a los jueces que conocen en los juicios laborales, en su caso, de la aplicación de las convenciones colectivas, determinar si los trabajadores involucrados, dada la naturaleza de las funciones que cumplen o cumplían, están regulados por el Derecho público o el común, a los efectos de definir si pueden o no ser sujetos activos en la aplicación de las convenciones colectivas". Resolución 4453-00 de las 14:56 horas del 24/05/2000, publicado en el Boletín Judicial N°124 del 28/06/2000.)

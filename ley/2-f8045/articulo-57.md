@@ -1,18 +1,5 @@
-ARTICULO 57.- La convención colectiva se extenderá por escrito en
-tres ejemplares, bajo pena de nulidad absoluta. Cada una de las partes
-conservará un ejemplar y el tercero será depositado en la Oficina de
-Asuntos Gremiales y de Conciliación Administrativa del Ministerio de
-Trabajo y Seguridad Social directamente o por medio de la autoridad de
-trabajo o política respectiva. No tendrá valor legal sino a partir de la
-fecha en que quede depositada la copia y, para este efecto, el funcionario
-a quien se entregue extenderá un recibo a cada uno de los que la hayan
-suscrito.
-Dicho depósito será comunicado inmediatamente a la Oficina de Asuntos
-Gremiales y de Conciliación Administrativa del Ministerio de Trabajo y
-Seguridad Social para que ésta ordene a las partes ajustarse a los
-requisitos de ley en caso de que la convención contenga alguna violación de
-las disposiciones del presente Código.
-( Los nombres referidos fueron así reformados por artículo 1, inciso
-h) de la Ley Nº 3372 de 6 de agosto de 1964. El nombre del Ministerio
-fue así reformado por el artículo 2 de la ley No.5089 del 18 de octubre
-de 1972 )
+ARTICULO 57.-
+La convención colectiva se extenderá por escrito en tres ejemplares, bajo pena de nulidad absoluta. Cada una de las partes conservará un ejemplar y el tercero será depositado en la Oficina de Asuntos Gremiales y de Conciliación Administrativa del Ministerio de Trabajo y Seguridad Social directamente o por medio de la autoridad de trabajo o política respectiva. No tendrá valor legal sino a partir de la fecha en que quede depositada la copia y, para este efecto, el funcionario a quien se entregue extenderá un recibo a cada uno de los que la hayan suscrito.
+Dicho depósito será comunicado inmediatamente a la Oficina de Asuntos Gremiales y de Conciliación Administrativa del Ministerio de Trabajo y Seguridad Social para que ésta ordene a las partes ajustarse a los requisitos de ley en caso de que la convención contenga alguna violación de las disposiciones del presente Código.
+(Los nombres referidos fueron así reformados por artículo 1, inciso h) de la Ley Nº 3372 de 6 de agosto de 1964. El nombre del Ministerio fue así reformado por el artículo 2 de la ley No.5089 del 18 de octubre de 1972)
+(Interpretado por la Sala Constitucional en el sentido que: "a) son inconstitucionales las convenciones colectivas reguladas por los artículos 54 y siguientes del Código de Trabajo que se celebran en el sector público, cuando se trata de personal regido por la relación de empleo de naturaleza pública (relación estatutaria); b) no son inconstitucionales las convenciones colectivas que se celebran en el sector público, cuando las celebran obreros, trabajadores, funcionarios o empleados del sector público, cuyas relaciones laborales se regulan por el Derecho común; c) igualmente son compatibles con el Derecho de la Constitución, los instrumentos colectivos que se han negociado y se han venido prorrogando o modificando, en aplicación de la política general sobre convenciones colectivas en el Sector Público, salvo que se trate de negociaciones con personal en relación de empleo de naturaleza pública, en cuyo caso esos instrumentos resultan inconstitucionales; d) corresponde a la administración y a los jueces que conocen en los juicios laborales, en su caso, de la aplicación de las convenciones colectivas, determinar si los trabajadores involucrados, dada la naturaleza de las funciones que cumplen o cumplían, están regulados por el Derecho público o el común, a los efectos de definir si pueden o no ser sujetos activos en la aplicación de las convenciones colectivas". Resolución 4453-00 de las 14:56 horas del 24/05/2000, publicado en el Boletín Judicial N°124 del 28/06/2000.)
