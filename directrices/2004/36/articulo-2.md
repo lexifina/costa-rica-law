@@ -1,0 +1,1 @@
+Artículo 2º—Los Jerarcas de los órganos y entes de la Administración Pública, central y descentralizada, y las empresas públicas del Estado, serán los responsables de velar porque las regulaciones existentes, sus reformas o las nuevas regulaciones que se establezcan, en el marco de sus competencias, cumplan con lo establecido en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 3º—El Poder Ejecutivo, podrá solicitar recomendación de la Comisión de Mejora Regulatoria, órgano consultivo de la Administración Pública, adscrito al Ministerio de Economía, Industria y Comercio, para emitir la metodología para elaborar dicha evaluación.

@@ -1,0 +1,1 @@
+Artículo 5º—Los órganos, y entes de la Administración Pública central, deberán presentar a la Dirección de Leyes y Decretos la evaluación del costo-beneficio de las regulaciones, señalada en el artículo 1º de la presente directriz, junto con el resto de la documentación que deben aportar para el trámite correspondiente ante esta Dirección.

@@ -1,0 +1,1 @@
+Artículo 4º—Que la Dirección de Leyes y Decretos del Ministerio de la Presidencia, coordinará con la Unidad Técnica de la Comisión de Mejora Regulatoria del MEIC, para velar porque se cumpla con lo establecido en el artículo 1º de la presente directriz.
