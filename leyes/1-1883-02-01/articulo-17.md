@@ -1,0 +1,1 @@
+Art. 17.-Los testimonios de escrituras referentes al mandato en que el otorgante no haya fijado la extensión de la cuantía de aquél, no podrán usarse sino en negocios que correspondan con el valor del papel empleado en el primer pliego, salvo el caso figurado en el numero segundo del artículo noveno.

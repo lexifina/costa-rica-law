@@ -1,0 +1,1 @@
+Art. 26.-Cuando la parte que litiga con el Fisco, con la iglesia, con los municipios, con las corporaciones de caridad, beneficencia ó instrucción pública, y con los pobres declarados de solemnidad, fuere condenada en costas conforme á la ley, deberá reintegrar el papel invertido por aquellas, atendida la cuantía del negocio.

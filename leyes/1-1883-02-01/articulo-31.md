@@ -1,0 +1,1 @@
+Art. 31.-Los Magistrados Jueces y demás funcionarios á quienes corresponda la visita de juzgados y archivos, examinarán cuidadosamente si se ha usado del papel correspondiente en los documentos, libros y expedientes sujetos á visita, y en caso de encontrar que se han cometido faltas, darán cuenta al Fiscal de Hacienda Nacional para lo de su cargo.
