@@ -12,3 +12,4 @@ ARTÍCULO 6°: PRESUPUESTO POR PROGRAMAS DEL PODER JUDICIAL
 (Así reformado por el artículo 6° de la Ley N °8424 del 7 de octubre del 2004)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32119 del 8 de noviembre del 2004)
 (Modificado por el artículo 2° del decreto ejecutivo N° 32119 del 8 de noviembre del 2004)
+(Modificado por el artículo 1° del decreto ejecutivo N° 32126 del 24 de noviembre del 2004)
