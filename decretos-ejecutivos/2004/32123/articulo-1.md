@@ -1,0 +1,11 @@
+Nº 32123
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA Y GRACIA
+Con fundamento en lo dispuesto en los artículos 140, incisos 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 y siguientes de su Reglamento.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones número 218 del ocho de agosto de mil novecientos treinta y nueve y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación Hogar Madre del Redentor, cédula de persona jurídica número 03-002-104594, se inscribió en el Registro de Asociaciones del Registro Público desde el día veinte de diciembre de mil novecientos ochenta y nueve, bajo el Expediente Nº 3387.
+III.—Que entre los fines que persigue la Asociación se encuentran los siguientes: “Uno- Velar por la manutención económica, esparcimiento y formación de todas las niñas que sean recogidas por el Hogar y que estarán entre las edades de siete y trece años de edad, que sean y que lleguen a formar parte del Hogar Madre del Redentor, las cuales tendrán como característica provenir de hogares humildes, o que se encuentren en necesidades económicas, de salud, de educación o espirituales. Dos- Proporcionar toda la ayuda económica posible y cualquier otro tipo de medio que se consideren necesarias para lograr el fortalecimiento espiritual, económico, moral y social del Hogar y de las niñas que lo conformen. Tres- Fomentar los vínculos de unión y solidaridad entre los Asociados y el Hogar Madre del Redentor a fin de promover la cooperación de personas moralmente solventes y psíquicamente equilibradas, con el propósito de que se dediquen el tiempo que les sea posible a cuidar, dar afecto o prestar ayuda profesional, técnica, económica a las menores del Hogar”.
+IV.—Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto:
+DECRETAN:
+Artículo 1º—Declárese de Utilidad Pública para los intereses del Estado a la Asociación Hogar Madre del Redentor, cédula de persona jurídica número 03-002-104594.
