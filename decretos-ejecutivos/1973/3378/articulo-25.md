@@ -1,0 +1,1 @@
+Artículo 25.—El que se presentare a trabajar o trabajase habiendo ingerido licor o bajo cualesquiera otra condición análoga, será sancionado la primera vez con suspensión por ocho días y la segunda vez, destituido sin responsabilidad patronal. Estas faltas se computarán en un período de tres meses.

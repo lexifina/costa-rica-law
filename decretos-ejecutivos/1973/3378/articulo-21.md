@@ -1,0 +1,2 @@
+Artículo 21.—En casos muy calificados el Director del Centro, podrá justificar las ausencias de personal que no sean por incapacidad física del servidor.
+Las ausencias justificadas que no ameriten pago de salario o de subsidio podrán asimilarse, a solicitud del trabajador, a vacaciones, debiendo en este caso pagarse el salario y disminuirse el número de días de vacaciones. La gestión de trámite que corresponde al párrafo anterior, se efectuará a través de la Dirección del Centro ante la Sección de Personal.

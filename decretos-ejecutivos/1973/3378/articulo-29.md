@@ -1,0 +1,1 @@
+Artículo 29.—Las correcciones disciplinarias deberán tramitarse mediante la fórmula de acción de personal con la aprobación de la Sección de Personal de Adaptación Social. Los apercibimientos, o amonestaciones orales o escritas las aplicarán conjuntamente la Dirección de cada Centro y la Sección de Personal.

@@ -1,0 +1,1 @@
+Artículo 15.—La llegada tardía superior a 15 minutos contados a partir de la hora señalada para relevo, se equiparará para efectos de sanción a la mitad de una ausencia. Tanto las ausencias como las llegadas tardías justificadas o injustificadas serán reportadas diariamente por el Supervisor a la Dirección del Centro para lo que proceda.
