@@ -1,0 +1,1 @@
+Articulo 2°—Se entenderá por gastos de representación, las erogaciones en que incurran los funcionarios con ocasión del ejercicio de sus funciones. con el objeto de brindar atención de carácter oficial a personas o instituciones ajenas al Teatro Popular Mélico Salazar y sus Programas.

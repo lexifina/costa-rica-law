@@ -1,0 +1,1 @@
+Articulo 3°—Los funcionarios autorizados para incurrir en gastos de representación son: el Director Ejecutivo del Teatro Popular Mélico Salazar, los Directores Generales de la Compañía Nacional de Danza Compañía Nacional de Teatro, Taller Nacional de Danza, Taller Nacional de Teatro y el Festival de las Artes.
