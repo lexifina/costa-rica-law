@@ -1,0 +1,1 @@
+Artículo 11.- El Poder Ejecutivo reglamentará esta ley dentro de los sesenta días siguientes a su publicación.

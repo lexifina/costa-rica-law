@@ -1,0 +1,1 @@
+Artículo 4º.- El actual Patronato del Sanatorio Nacional de Las Mercedes, así como su Director, deberán hacer entrega de todos los bienes e instalaciones al Ministerio de Salubridad Pública a través de la Dirección General de Asistencia, dentro de los treinta días siguientes a la promulgación de esta ley.

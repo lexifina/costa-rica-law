@@ -1,0 +1,2 @@
+Artículo 8º.- La Dirección Técnica del Sanatorio Nacional de las Mercedes estará a cargo de un Médico Director, incorporado al Colegio de Médicos y Cirujanos de Costa Rica, e inscrito en el Registro correspondiente como especialista en Dermatología y Leprología. Su nombramiento lo hará el Ministerio de Salubridad Pública de acuerdo con lo dispuesto por el Estatuto de la Ley de Servicios Médicos y su Reglamento.
+El nombramiento del personal administrativo se hará por concurso y de conformidad con los requisitos que indique el Reglamento General de Hospitales.
