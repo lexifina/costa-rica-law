@@ -1,2 +1,2 @@
-Artículo 9°—Este reglamento rige a partir de su publicación en el "Boletín Judicial" y deroga el aprobado por la Corte Plena en la sesión del 2 de marzo de 1994, que regula la notificación por fax de la Sala Constitucional, la que se ajustará en sus notificaciones por fax a lo dispuesto en este reglamento.
-San José, 2 de diciembre de 1996.
+Artículo 9°. En cualquiera de los casos previstos en este reglamento, las copias de los escritos y documentos presentados por las partes, quedaran la disposición del notificando (a) en el despacho judicial respectivo, lo que deberá indicarse claramente en la resolución que se notifica.
+(Así adicionado mediante sesión N°22 del 02 de julio del 2001).
