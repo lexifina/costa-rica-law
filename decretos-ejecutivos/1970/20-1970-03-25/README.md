@@ -14,3 +14,4 @@ Reglamento Oficina Filatélica Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-04-14 | la propia norma |
+| 2 | 1977-07-20 | Decreto Ejecutivo 7255 (1977-07-20) |
