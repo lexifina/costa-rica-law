@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 30312
+
+Retira de conocimiento de las sesiones extraordinarias de la Asamblea Legislativa, Proyecto de Ley
+
+- Tipo: Decreto Ejecutivo
+- Número: 30312
+- Fecha: 2002-04-18
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 94 del 2002-05-17
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=48486&param2=51664&param3=1 (ficha 48486)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2002-04-18 | la propia norma |
