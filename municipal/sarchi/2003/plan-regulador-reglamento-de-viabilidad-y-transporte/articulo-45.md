@@ -1,0 +1,1 @@
+Artículo 45.—Número de espacios. Por cada establecimiento o institución, será el que define el Reglamento de Construcciones, amparado a la Ley de Planificación Urbana. Las normas de diseño y operación están definidas en el Reglamento para la Regulación de Estacionamientos Públicos del MOPT, publicado en La Gaceta Nº 65 del 5 de abril de 1991, Decreto Ejecutivo Nº 20311.

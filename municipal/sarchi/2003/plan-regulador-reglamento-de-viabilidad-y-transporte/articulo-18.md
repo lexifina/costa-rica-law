@@ -1,0 +1,1 @@
+Artículo 18.—Retiro. El retiro requerido será de tres metros (3 m) los cuales, se contarán a partir del derecho de vía correspondiente, excepto en las vías contenidas en la zona de cuadrante urbano así indicada en la Zonificación del Uso del Suelo, donde se exigirá el retiro que indique dicha zona.

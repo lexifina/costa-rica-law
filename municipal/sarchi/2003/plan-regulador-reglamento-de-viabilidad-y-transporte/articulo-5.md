@@ -1,0 +1,1 @@
+Artículo 5º—Velocidad. Constituirán las vías de más alta velocidad urbana, entre sesenta y ochenta kilómetros por hora, velocidad de diseño que se usará para el cálculo de características técnicas de vía. En intersecciones la velocidad máxima será de 40 kilómetros por hora.

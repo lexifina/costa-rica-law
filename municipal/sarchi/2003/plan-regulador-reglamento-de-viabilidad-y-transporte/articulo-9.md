@@ -1,0 +1,1 @@
+Artículo 9º—Derecho de vía. Este oscilará entre dieciocho y veinticuatro metros (18 m a 24 m), dependiendo de su ubicación y así indicado en el plano de Vialidad. Deben establecerse paradas a cada quinientos metros como mínimo.

@@ -1,0 +1,1 @@
+Artículo 10.—Carriles y aceras. Tendrán cuatro carriles de tres metros con veinticinco centímetros cada uno, cuando los derechos de vía sean de 18 metros. Cuatro carriles del mismo ancho que en el caso anterior dividido por una isla de zona verde, cuando el derecho de vía sea de veinticuatro metros (24 m).

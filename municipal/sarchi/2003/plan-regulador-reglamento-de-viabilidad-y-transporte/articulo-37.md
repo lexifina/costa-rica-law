@@ -1,0 +1,1 @@
+Artículo 37.—Tránsito vehicular. Queda a criterio de la Municipalidad de Valverde Vega el definir aquellas vías facultadas para admitir el tránsito pesado, quién quedará facultado para definir mediante criterio técnico de diseño la capacidad de tránsito y carga en este tipo de vías.

@@ -1,0 +1,1 @@
+Artículo 16.—Carriles y aceras. Estas vías tendrán un mínimo de dos (2) carriles hasta un máximo de tres metros (3) cada uno. Las aceras tendrán 1,5 metros de ancho mínimo, quedando el resto del derecho de vía como zona verde.

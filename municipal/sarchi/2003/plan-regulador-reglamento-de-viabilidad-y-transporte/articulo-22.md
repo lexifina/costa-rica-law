@@ -1,0 +1,1 @@
+Artículo 22.—Carriles y aceras. Estas vías tendrán hasta dos (2) carriles de tres metros (3 m) cada uno. Las aceras tendrán un metro veinticinco centímetros (1,25 m) de ancho mínimo, quedando el resto del derecho de vía como zona verde.

@@ -1,0 +1,1 @@
+Artículo 25.—Tránsito vehicular. Queda a criterio de la Municipalidad el definir aquellas vías facultadas para admitir el tránsito pesado, quien bajo su competencia y responsabilidad definirá la capacidad de tránsito y carga de diseño en este tipo de vías.

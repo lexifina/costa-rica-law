@@ -1,0 +1,1 @@
+Artículo 6º—Retiro. El retiro frontal mínimo será de cinco metros (5 m), los cuales se contarán, una vez que se haya establecido el derecho de vía. En caso de no contar con las vías marginales, se prohíbe el estacionamiento en los espacios de retiro.

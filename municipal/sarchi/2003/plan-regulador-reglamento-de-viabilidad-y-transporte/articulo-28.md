@@ -1,0 +1,1 @@
+Artículo 28.—Carriles y aceras. Estas vías tendrán dos (2) carriles de dos metros setenta y cinco (2,75 m) cada uno mínimo, salvo casos excepcionales en que la calzada será de cuatro metros para permitir el paso de dos vehículos. Las aceras tendrán un metro veinticinco centímetros (1,25 m) de ancho mínimo, quedando el resto del derecho de vía como zona verde.
