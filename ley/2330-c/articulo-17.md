@@ -1,16 +1,4 @@
 Artículo 17
-1. Cuando los programas generales de formación profesional no
-respondan a las necesidades especiales de las personas pertenecientes a
-las poblaciones en cuestión, los gobiernos deberán crear medios
-especiales de formación para dichas personas.
-2. Estos medios especiales de formación deberán basarse en el
-estudio cuidadoso de la situación económica, del grado de evolución
-cultural y de las necesidades reales de los diversos grupos profesionales
-de dichas poblaciones; en particular, tales medios deberán permitir a
-los interesados recibir adiestramiento necesario en las actividades para
-las cuales las poblaciones de las que provengan se hayan mostrado
-tradicionalmente aptas.
-3. Estos medios especiales de formación se deberán proveer solamente
-mientras lo quiera el grado de desarrollo cultural de los interesados; al
-progresar su integración, deberán reemplazarse por los medios previstos
-para los demás ciudadanos.
+1. Cuando los programas generales de formación profesional no respondan a las necesidades especiales de las personas pertenecientes a las poblaciones en cuestión, los gobiernos deberán crear medios especiales de formación para dichas personas.
+2. Estos medios especiales de formación deberán basarse en el estudio cuidadoso de la situación económica, del grado de evolución cultural y de las necesidades reales de los diversos grupos profesionales de dichas poblaciones; en particular, tales medios deberán permitir a los interesados recibir adiestramiento necesario en las actividades para las cuales las poblaciones de las que provengan se hayan mostrado tradicionalmente aptas.
+3. Estos medios especiales de formación se deberán proveer solamente mientras lo quiera el grado de desarrollo cultural de los interesados; al progresar su integración, deberán reemplazarse por los medios previstos para los demás ciudadanos.
