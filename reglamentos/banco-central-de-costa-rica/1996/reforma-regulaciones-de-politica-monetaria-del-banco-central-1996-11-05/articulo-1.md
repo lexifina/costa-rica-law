@@ -1,0 +1,3 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica, mediante artículo 4° del acta de la sesión 4896-96, celebrada el 5 de noviembre de 1996, dispuso modificar el último párrafo del numeral 3), Capítulo I, Título III de las Regulaciones de Política Monetaria, relativo a las “Disposiciones sobre Encaje Mínimo Legal”, a efecto de que se lea de la siguiente forma:
+“El Banco Central de Costa Rica indicará, antes del 27 de febrero de 1997, los nuevos intermediarios financieros y las nuevas operaciones de captación de recursos que estarán sujetos a los requerimientos de encaje mínimo legal incluidos en estas Regulaciones. Lo anterior en virtud de lo establecido en los artículos 65 y 117 de la Ley 7558 “
