@@ -1,0 +1,1 @@
+Artículo 7°—Se solicitará la colaboración de instituciones internacionales y nacionales, para la realización de estudios y el desarrollo de proyectos tendientes a la conservación y protección de los recursos naturales.
