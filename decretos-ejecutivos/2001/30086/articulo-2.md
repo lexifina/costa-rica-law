@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de esta declaratoria, se exceptúa a la Cooperativa de Electrificación Rural de San Carlos R. L., de la veda establecida en el Decreto Ejecutivo Nº 25700-MINAE, para la corta y aprovechamiento de la especie Cristóbal (Platymiscium pinnatum).

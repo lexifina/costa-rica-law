@@ -1,0 +1,14 @@
+Nº 30086-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
+En ejercicio de las facultades que les confiere el artículo 140 de la Constitución Política y los artículos 3º, inciso m); 19, inciso b) y 34 de la Ley Forestal Nº 7575 del 13 de febrero de 1996.
+Considerando:
+1º—Que los artículos 19, inciso b) y 34 de la Ley Forestal Nº 7575 prohíben el cambio de uso del suelo y la corta de árboles en terrenos cubiertos de bosque y en áreas de protección, exceptuando aquellos proyectos estatales o privados que el Poder Ejecutivo declare de Conveniencia Nacional.
+2º—Que el artículo 3º, inciso m) de la Ley Forestal Nº 7575 declara como actividades de conveniencia nacional las realizadas por las dependencias centralizadas del Estado, instituciones autónomas o empresas privadas, cuyos beneficios sociales sean mayores a los costos socio ambientales.
+3º—Que el suministro eficiente y oportuno de los servicios eléctricos, no solo forma parte de las políticas del gobierno para el desarrollo del país, sino que conlleva el mejoramiento de la calidad de vida de la ciudadanía.
+4º—Que la Cooperativa de Electrificación Rural del San Carlos, R. L., con cédula jurídica Nº 3-004-045117-13, requiere construir el Proyecto Hidroeléctrico Chocosuela II y III, con la finalidad de suplir y mejorar la calidad de los servicios eléctricos brindados en la Región Norte y Puerto Viejo de Sarapiquí, energía que generará dicha planta hidroeléctrica.
+5º—Que el diseño de las obras del P.H. Chocosuela II y III indicadas, en el tramo de desfogue casa de máquinas P.H. Chocosuela I, La Vieja y Pénjamo, dentro de las coordenadas 482-486 y coordenadas 252-259, hoja cartográfica Quesada 3346 IV y Aguas Zarcas 3347 III, escala 1:50.000 del Instituto Geográfico Nacional, requiere de la corta de árboles de especies declaradas en veda por el Decreto Ejecutivo Nº 25700-MINAE, por lo que es necesario asegurar que la corta de individuos no ponga en peligro la existencia de la especie vedada.
+6º—Que COOPELESCA, R. L., está comprometida a desarrollar un Proyecto de Reforestación de diez hectáreas con especies nativas de la zona por la construcción de este proyecto.
+7º—Que los inmuebles en los que se desarrollarán estas obras para la generación eléctrica son propiedad de COOPELESCA, R. L., siendo que algunas propiedades carecen de plano catastrado, por lo que para cortar y aprovechar el recurso forestal existente en ellos, se hace necesario eximir los requisitos establecidos en el artículo 89 del Reglamento a la Ley Forestal. Por tanto,
+Decretan:
+Artículo 1º—En cumplimiento de lo dispuesto en los artículos 3º, inciso m), 19, inciso b) y 34 de la Ley Forestal Nº 7575 del 13 de febrero de 1996, se declara de Conveniencia Nacional, el Proyecto Hidroeléctrico Chocosuela II y III, que realizará la Cooperativa de Electrificación Rural de San Carlos, R. L.

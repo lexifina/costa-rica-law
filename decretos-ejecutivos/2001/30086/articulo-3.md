@@ -1,0 +1,1 @@
+Artículo 3º—Se exceptúa además a la Cooperativa de Electrificación Rural de San Carlos, de presentar los planos catastrados de las propiedades como requisito establecido en el artículo 89 del Reglamento a la Ley Forestal.
