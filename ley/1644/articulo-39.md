@@ -1,10 +1,5 @@
-Artículo 39.- Los Gerentes y Subgerentes quedarán sujetos a las
-mismas disposiciones que para los miembros de la Junta establecen los
-artículos 21 a 26 de la presente ley, en cuanto fueren racionalmente
-aplicables, dadas la naturaleza de sus cargos y el origen de sus
-nombramientos. Los citados funcionarios serán nombrados por un período
-de cuatro años, y podrán ser reelectos; serán inamovibles, salvo el caso
-de que, a juicio de la Junta y previa información, se hubiere comprobado
-que no cumplen debidamente con su cometido. La remoción de los Gerentes
-y Subgerentes sólo podrá acordarse con el mismo número de votos
-requeridos para su nombramiento.
+Artículo 39.-
+Los Gerentes y Subgerentes quedarán sujetos a las mismas disposiciones que para los miembros de la Junta establecen los artículos 21 a 26 de la presente ley, en cuanto fueren racionalmente aplicables, dada la naturaleza de los cargos y el origen de sus nombramientos. Los citados funcionarios durarán en funciones seis años y pueden ser reelectos. Para su nombramiento y reelección se requerirán cinco votos de los miembros de la Junta Directiva. Serán inamovibles, salvo que a juicio de la Junta y previa información levantada por la Superintendencia General de Entidades Financieras (*), se demuestre que no cumplen su cometido o que hay lugar a formación de causa penal contra ellos. La remoción de estos funcionarios sólo podrá acordarse con el voto de no menos de cinco miembros de la junta respectiva.
+( Así reformado por artículo 2º de la ley Nº 4646 de 20 de octubre de 1970).
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)
+(La Sala Constitucional mediante resolución N° 1625 del 05 de marzo de 1999, interpretó este artículo en el sentido de que éste no es inconstitucional, en tanto “…confiere facultades a las juntas directivas de los bancos del Sistema Bancario Nacional para examinar hechos y verter opinión acerca de si ellos dan lugar o no a la apertura de un proceso penal. Específicamente, tienen vedado remover a alguno de los funcionarios a que alude el artículo basándose en una motivación de esa naturaleza…”)

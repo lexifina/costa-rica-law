@@ -1,9 +1,3 @@
-Artículo 10.- Las utilidades netas de cada Banco se determinarán
-después de apartar las sumas que hubiere autorizado el Auditor General de
-Bancos para la formación de reservas para amortizaciones de edificios y
-mobiliario, depreciaciones o castigos de colocaciones e inversiones,
-provisiones para prestaciones legales y fluctuaciones de cambio, y
-cualesquiera otros fines similares. Dichas reservas serán debidamente
-individualizadas en los libros y balances del Banco, y podrán ser
-aumentadas con las sumas adicionales que dispusiere su Junta Directiva,
-las cuales se tomarán, en ese caso, de las utilidades netas del período.
+Artículo 10.-
+Las utilidades netas de cada Banco se determinarán después de apartar las sumas que hubiere autorizado el Superintendente General de Entidades Finacieras (*) para la formación de reservas para amortizaciones de edificios y mobiliario, depreciaciones, castigos de colocaciones e inversiones, provisiones para prestaciones legales y fluctuaciones de cambio, y de cualesquiera otros fines similares. Dichas reservas serán debidamente individualizadas en los libros y balances del banco, y podrán ser aumentadas con las sumas adicionales que dispusiere su Junta Directiva, las cuales se tomarán, en ese caso, de las utilidades netas del período.
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

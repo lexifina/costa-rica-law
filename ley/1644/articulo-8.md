@@ -1,19 +1,8 @@
 CAPITULO II
-Capital, Reservas y Utilidades
-Artículo 8º.- Los Bancos del Estado tendrán los siguientes
-Capitales, aportados íntegramente por éste:
-1) El Banco Nacional de Costa Rica, en su Departamento Comercial,
-treinta millones de colones (¢ 30,000.000.00); en su Departamento
-Hipotecario, treinta millones de colones (¢ 30,000.000.00); y en su
-Departamento de Fomento de Cooperativas, cinco millones de colones (¢
-5,000.000.00).
-2) El Banco de Costa Rica, treinta millones de colones (¢ 30,000.000.00).
-3) El Banco Anglo Costarricense, doce millones de colones (¢
-12,000.000.00); y
-4) El Banco Crédito Agrícola de Cartago, seis millones de colones (¢
-6,000.000.00).
-Cuando cualesquiera de los Bancos mencionados en los incisos 2), 3)
-y 4) anteriores establecieren más de un departamento, deberán separar sus
-capitales indicando el que corresponda a cada uno, previa aprobación del
-Banco Central. De la misma manera deberán proceder los Bancos privados.
-Tratándose de sucursales no cabrá hacer dicha separación.
+Capital, reserva y utilidades
+Artículo 8º.-
+El capital de cada uno de los bancos comerciales del Estado, incluído el de sus departamentos creados por ley, podrá incrementarse por ley o por capitalización de utilidades. En este último caso, se requirá la aprobación de la Junta Directiva del Banco Central de Costa Rica, previo dictámen de la Superintendencia General de Entidades Financieras (*).
+Los bancos comerciales de Estado podrán revaluar sus activos para efectos de capitalización, previa aprobación de la Junta Directiva del Banco Central basada en dictamen favorable de la Superintendencia General de Entidades Finacieras (*).
+Para todos los efectos legales, la capitalización se tendrá por realizada con el asiento contable en el que se deje constancia de su aprobación.
+(Así reformado por ley Nº 7134 de 5 de octubre de 1989, artículo 8º).
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

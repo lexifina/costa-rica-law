@@ -1,7 +1,3 @@
-Artículo 5º.- Los Bancos tendrán su domicilio legal en la ciudad
-donde opere su oficina principal. Podrán establecer Sucursales y
-designar corresponsales en cualquier lugar del territorio de la
-República. También podrán actuar, en operaciones propias de Bancos
-comerciales, como agentes o corresponsales de Bancos extranjeros de
-primer orden y designar a éstos como agentes o corresponsales en el
-exterior.
+Artículo 5º.-
+Los bancos tendrán su domicilio legal en la ciudad donde opere su oficina principal. Podrán establecer sucursales, agencias u oficinas, así como designar corresponsales en cualquier lugar del territorio de la República. También podrán actuar, en operaciones propias de bancos comerciales, como agentes o corresponsales de bancos extranjeros de primer orden, y designar a éstos como sus agentes o corresponsales en el exterior. Los bancos están asimismo autorizados para establecer sucursales, agencias u oficinas, fuera del territorio nacional.
+( Así reformado por el artículo 1º de la ley Nº 4348 de 2 de julio de 1969)

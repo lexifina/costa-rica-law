@@ -1,9 +1,4 @@
 CAPITULO IX
-Otras operaciones
-Artículo 109.- Los Bancos comerciales, podrán aceptar y avalar
-letras de cambio y otros documentos de crédito girados contra ellos
-mismos o contra otras personas, y expedir cartas de crédito, siempre que
-unos y otros tengan un plazo de vencimiento que no exceda de un año.
-Cuando estas operaciones no se realicen mediante la entrega efectiva de
-las sumas aceptadas o garantizadas por el Banco, quedarán sujetas a los
-preceptos legales y reglamentarios aplicables a la concesión de créditos.
+De los créditos a industrias familiares y de artesanía NOTA: Este capítulo fue adicionado por ley Nº 2466 de 9 de noviembre de 1959, pasando el original capítulo IX de esta ley a ser el capítulo X del título III; y variando la numeración de los artículos 109 y siguientes de acuerdo con esta reforma.
+Artículo 109.-
+Los bancos comerciales del Estado deben fomentar la empresa familiar y de artesanía, por medio de préstamos no mayores de ¢ 50.000,00 (cincuenta mil colones) cada uno, a mediano y largo plazos, destinados a fortalecer la pequeña empresa industrial costarricense. Los préstamos a corto plazo que se otorguen a esas industrias lo serán en la forma y condiciones usuales que, en ese tipo de operaciones, se hacen a otras industrias.

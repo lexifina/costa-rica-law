@@ -1,0 +1,3 @@
+Artículo 181.-
+Cuando los bancos cooperativos decidan formalizar operaciones activas de crédito, propias de las secciones de capitalización de los bancos comerciales del Estado, o aquellas definidas en el título V de la presente ley, deberán enviar a la Superintendencia General de Entidades Financieras (*) un estudio sobre la organización y funcionamiento de la respectiva sección, y no podrán formalizar esas operaciones hasta tanto no reciban la autorización expresa de esa dependencia.
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

@@ -1,7 +1,3 @@
-Artículo 11.- El ejercicio financiero de los Bancos será el año
-natural, pero al cierre del último día hábil de cada semestre se hará una
-liquidación completa de sus ganancias y pérdidas, que deberá de ponerse
-en conocimiento del Auditor General de Bancos. Las pérdidas netas que
-durante un período semestral pudiera tener cualquier Banco del Sistema,
-deberán cargarse a sus reservas, con aprobación del Auditor General de
-Bancos.
+Artículo 11.-
+El ejercicio financiero de los bancos será el año natural, pero el cierre del último día hábil de cada semestre se hará una liquidación completa de sus ganancias y pérdidas, que deberá ponerse en conocimiento del Superintendente General de Entidades Finacieras (*). Las pérdidas netas que durante un período semestral pudiera tener cualquier banco del Sistema, deberán cargarse a sus reservas, con aprobación del Superintendente General de Entidades Financieras (*).
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

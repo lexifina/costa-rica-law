@@ -1,9 +1,3 @@
-Artículo 101.- Para constituir hipoteca a favor de una Junta Rural
-de Crédito Agrícola, es suficiente con hacer constar el contrato al pie
-de una certificación que, sobre propiedad del inmueble y sus gravámenes,
-expida el Registro Público, siempre que el deudor haga autenticar su
-firma por un notario o por la autoridad política superior. del cantón o
-distrito. La cesión de créditos hipotecarios que hagan las Juntas o que
-a su favor se otorguen, podrá hacerse por simple endoso al pie del título
-de crédito, siempre que el endosante haga autenticar su firma en la forma
-antes dicha.
+Artículo 101.-
+Para constituir hipoteca en favor de una Junta Rural de Crédito u Oficina de Crédito al Pequeño Agricultor, es suficiente con hacer constar el contrato al pie de una certificación que sobre propiedad del inmueble y sus gravámenes, expida el Registro Público, siempre que el deudor haga autenticar su firma por un notario o por la autoridad política superior del cantón o distrito. Al constituirse la hipoteca, podrán indicarse las modificaciones de naturaleza, situación y linderos del inmueble o inmuebles que se gravan, de las cuales tomará nota el Registro Público, libre de todo derecho. La cesión de créditos hipotecarios podrá hacerse por simple endoso al pie del título de crédito, siempre que el endosante haga autenticar su firma en la forma antes dicha.
+( Así reformado por el artículo 1º de la Ley No. 2147 del 19 de julio de 1957 ).
