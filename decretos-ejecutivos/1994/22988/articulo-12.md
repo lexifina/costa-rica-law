@@ -1,1 +1,0 @@
-Artículo 12°- El Jefe de la Oficina de Cobros deberá asignar abogados de planta para que analicen por muestreo los expedientes e informen del estado de cada caso, así como para que velen por el fiel cumplimiento de este decreto, fiscalizando los informes presentados.

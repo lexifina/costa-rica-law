@@ -1,8 +1,0 @@
-CAPITULO IV
-De las Gestiones de Cobro y del Remate
-Artículo 17°- Los Fiscales Específicos deberán realizar las siguientes gestiones cobratorias:
-a.- Presentación de la demanda de cobro judicial con certificaciones adjuntas, cuando así se requiera, durante el primer mes siguiente a partir de la fecha de recibo del Título Ejecutivo. Caso de no hacerse en ese lapso, el abogado enviará carta explicativa a la Oficina de Cobros, obligándose a hacer la presentación dentro de los ocho días siguientes. La presentación de la demanda debe testimoniarse con el sello y la fecha del Juzgado o Alcaldía que la recibió, siendo requisito imprescindible para el cobro de los honorarios.
-b.- En el lapso máximo de un mes, a partir de la presentación de la demanda el abogado encargado del juicio deberá presentar copia fotostática del auto de precepto solvendo (traslado de la demanda). En caso de demora por parte del ente jurisdiccional, el abogado quedará obligado a enviar nota explicativa de la situación a la Oficina de Cobros.
-c.- Los fiscales específicos deberán exigir de los tribunales, en donde se tramitan esos juicios, que se les sellen y firmen las copias de todos los escritos originales que se presenten.
-d.- Los fiscales específicos tendrán un plazo de ocho días para enviar a la Oficina de Cobros copia sellada por el Juzgado o Alcaldía, de toda gestión posterior a la presentación de la demanda.
-e.- Se considerará que existe atraso atribuible al Fiscal Específico si dentro de un plazo de quince días no presenta a la Oficina de Cobros documento que demuestre la realización de una gestión judicial efectiva para la prosecución del juicio.

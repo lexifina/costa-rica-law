@@ -1,1 +1,0 @@
-Artículo 27.- en caso de que la Jefatura ordene la terminación del juicio presentado, el abogado deberá devolver los documentos respectivos a la Oficina de Cobros, dentro de los quince días siguientes. El incumplimiento de esta disposición dará derecho a la Oficina de Cobros para la aplicación de las sanciones correspondientes.

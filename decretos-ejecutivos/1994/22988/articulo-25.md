@@ -1,1 +1,0 @@
-Artículo 25.- La gestión cobratoria se dará por terminada, cuando el interesado cubra el monto total que se adeudare de término vencido, intereses, mora, gastos y honorarios del juicio cuando los hubiere.
