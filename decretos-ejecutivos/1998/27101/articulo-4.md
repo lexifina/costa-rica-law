@@ -1,0 +1,1 @@
+Artículo 4°—Las revaloraciones por ajustes técnicos para las entidades públicas no homologadas, sólo procederán en el contexto de la normativa que se señala en el capítulo DI de las Regulaciones Generales del Procedimiento para la Política Salarial , Empleo y Clasificación de Puestos vigentes.

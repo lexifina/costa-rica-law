@@ -1,0 +1,1 @@
+Artículo 2°—Los ministerios, demás órganos y las entidades públicas que tengan puestos de servicios especiales, aplicarán a éstos el mismo sistema de clasificación y valoración que rige para los puestos de cargos fijos.
