@@ -13,3 +13,4 @@ Reglamento Ley Orgánica Ministerio Economía, Industria y Comercio MEIC
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-12-01 | la propia norma |
+| 2 | 2000-02-14 | Decreto Ejecutivo 28472 (2000-02-14) |
