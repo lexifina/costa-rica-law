@@ -1,0 +1,2 @@
+Artículo 9º—Ajuste de pensiones. Con el propósito de evitar que se deteriore la Pensión Complementaria, los montos de dichas pensiones se ajustarán cada semestre, según el porcentaje o monto absoluto de ajuste salarial por costo de vida definido por el Poder Ejecutivo.
+En caso de que el rendimiento de la reserva para pensiones en curso de pago, no sea suficiente para sufragar el ajuste de las pensiones en los términos indicados, la Junta Administrativa, definirá un ajuste con fundamento en las condiciones financieras y actuariales del régimen.

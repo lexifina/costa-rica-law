@@ -1,0 +1,7 @@
+Artículo 12.—Inversión de fondos y control. La Junta Administrativa del Fondo y Consejo Directivo del ICE aprobarán la propuesta de la política de inversión, la cual tomará en cuenta las recomendaciones del Comité de Inversiones.
+El Comité de Inversiones estará constituido por cinco miembros de reconocida capacidad en este campo. Serán de nombramiento de la Junta Administrativa del Régimen de Pensión Complementaria.
+Los cinco miembros se conforman de la siguiente manera: El Director del Régimen de Pensiones, un asesor externo al ICE, un miembro de la Junta Administrativa del Régimen de Pensiones y dos miembros más con competencias en finanzas y mercados bursátiles.
+El comité de inversiones deberá proponer a esta Junta un manual de procedimientos general de inversiones.
+El Director administrativo del Régimen de Pensiones desempeñará la secretaría técnica del Comité de Inversiones.
+Las inversiones deberán efectuarse de conformidad con lo que establece la Ley de Protección al Trabajador, y supletoriamente por lo establecido en el capítulo III del "Reglamento para la regulación de los Sistemas de Pensiones Complementarias, creados por Ley Especial o Convención Colectiva y los Regímenes Públicos Sustitutos del Régimen de Invalidez, Vejez y Muerte".
+La inversión de los Fondos que se acumulen, deberá realizarse en las mejores condiciones de seguridad, liquidez y que generen la mayor rentabilidad posible. Se atenderá a los principios de flexibilidad y diversificación a fin de mantener una cartera ágil donde no se mantengan fondos ociosos.

@@ -1,0 +1,1 @@
+Artículo 8º—Pago de aguinaldo o décimo tercer mes. Anualmente, en el mes de diciembre, los pensionados del Régimen tendrán derecho al pago de una suma adicional, que será igual al promedio del monto total recibido durante los doce meses anteriores a ese diciembre, por concepto de Pensión Complementaria. La suma adicional tendrá el carácter de aguinaldo, o "décimo - tercer mes".

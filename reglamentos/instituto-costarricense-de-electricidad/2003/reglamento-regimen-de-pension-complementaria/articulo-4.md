@@ -1,0 +1,2 @@
+Artículo 4º—Requisitos. Para que se conceda el beneficio de pensión complementaria es requisito indispensable que al beneficiario le haya sido otorgada pensión por vejez o invalidez, de cualquier régimen básico de pensiones de acuerdo con lo que establece el artículo 5º y 6º de este Reglamento.
+En el caso de muerte del afiliado o pensionado, los causahabientes disfrutarán de pensión por sobrevivencia de conformidad con lo establecido en el artículo 10 del presente Reglamento.

@@ -1,0 +1,2 @@
+Artículo 13.—Administración financiera. La contabilidad, los presupuestos y el régimen de administración financiera se regirán por las técnicas más actualizadas en estos campos y su manejo será independiente de las otras actividades propias del Fondo de Garantías y Ahorro y del ICE.
+El sistema contable deberá incluir cuentas separadas para las reservas indicadas en el artículo 11 de este Reglamento.

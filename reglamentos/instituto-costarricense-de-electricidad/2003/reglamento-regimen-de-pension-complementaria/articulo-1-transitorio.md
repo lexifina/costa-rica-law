@@ -1,0 +1,1 @@
+Transitorio único.—De conformidad con el voto Nº 5476-93 de la sala constitucional, las personas que cumplan con los requisitos dentro de los 18 meses posteriores a la modificación reglamentaria tienen derecho a pensionarse con las anteriores condiciones (Pronunciamiento N° C-324- 2002 de la Procuraduría General de la República del 3 de diciembre del 2002 (Derechos adquiridos)

@@ -1,0 +1,1 @@
+Artículo 17.—Gestión administrativa. Para el adecuado desarrollo y mejoramiento del Sistema de Beneficios ligado al Régimen, el ICE como subsidiario aportará los medios requeridos para su correcta administración como organización técnica en pensiones.
