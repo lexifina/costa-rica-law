@@ -15,3 +15,4 @@ Reglamento a la Ley Orgánica del Instituto Nacional de Aprendizaje.
 | --- | --- | --- |
 | 1 | 1984-01-23 | la propia norma |
 | 2 | 1987-07-13 | Decreto Ejecutivo 17662 (1987-07-13) |
+| 3 | 1996-05-30 | Decreto Ejecutivo 25223 (1996-05-30) |
