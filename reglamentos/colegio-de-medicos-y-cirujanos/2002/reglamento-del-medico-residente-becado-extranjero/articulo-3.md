@@ -1,0 +1,3 @@
+Artículo 3º—Corresponde al Colegio de Médicos y Cirujanos de Costa Rica, a través de la Junta de Gobierno, otorgar la autorización a médicos extranjeros que vengan al país a especializarse, de conformidad con lo estipulado en el artículo 6 del Reglamento Ejecutivo de la Ley Orgánica del Colegio de Médicos y Cirujanos de Costa Rica.
+Aquellos médicos autorizados quedan bajo la autoridad y potestad disciplinaria del citado Colegio y deberán pagar la cuota de colegiatura así como toda contribución que paguen los nacionales. Todo residente becado extranjero debe conocer este Reglamento y aceptar cumplirlo antes de obtener el permiso respectivo de parte del CMC.
+Ningún médico extranjero que haya renunciado a la Colegiatura previa, puede ser residente becado extranjero.

@@ -1,0 +1,1 @@
+Artículo 13.—Es responsabilidad de la Fiscalía del Colegio de Médicos y Cirujanos, brindar asesoría a la Junta de Gobierno, en la toma de decisiones, así como de la solicitud de datos pertinentes a las instituciones involucradas en el adiestramiento de residentes becados extranjeros, a solicitud de la Junta.

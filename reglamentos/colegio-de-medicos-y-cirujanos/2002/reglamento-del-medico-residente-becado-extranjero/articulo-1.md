@@ -1,0 +1,3 @@
+REGLAMENTO DEL MÉDICO RESIDENTE
+BECADO EXTRANJERO
+Artículo 1º—El presente Reglamento regula todo lo relativo al permiso y autorización a la admisión de residentes becados extranjeros a cursos de Posgrado universitarios de especialización en Medicina en el Sistema de Estudios de Posgrado de la Universidad de Costa Rica, buscando el equilibrio en la admisión de médicos nacionales y extranjeros, de tal manera que ésta se adecué a las necesidades de formación de médicos especialistas nacionales, se atienda la demanda de médicos generales que busquen superación a través de una especialización y se promueva extrafronteras la capacidad de docencia e investigación del Cuerpo Médico Nacional.
