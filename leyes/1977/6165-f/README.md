@@ -1,0 +1,11 @@
+# Convención Interamericana sobre Régimen legal de Poderes para ser utilizados en el extranjero
+
+Ley N° 6165 del 1977-12-02. SINALEVI, ficha 8477: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8477&param2=9097&param3=1>.
+
+Publicada en La Gaceta N° 241 del 1977-12-21.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 2 | 1977-12-21 | Ley 6165 | 1977-12-02 |
