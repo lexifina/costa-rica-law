@@ -1,1 +1,0 @@
-ARTÍCULO 1°.-Se prohíbe la captura y comercialización de camarones blancos (Pennaeus occidentalis, Pennaeus stylirostris, Pennaeus vannemei) Caf‚ (Pennaeus californiensis) y Tit¡ (Trachipenaus sp Xiphopennaeus sp) provenientes de aguas jurisdiccionales costarricenses durante los meses de mayo, junio y julio de cada año exceptuando aquellos que provengan de la maricultura.

@@ -1,1 +1,0 @@
-ARTICULO 6°.-Las personas que a la fecha de entrada en vigencia de esta veda, posean permiso de pesca para operar en la parte interior del Golfo de Nicoya, utilizando como arte de pesca red de enmalle (trasmallo), quedan autorizadas para que utilicen cuerdas y líneas, durante el período de veda citado.

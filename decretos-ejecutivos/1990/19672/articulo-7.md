@@ -1,1 +1,0 @@
-ARTÍCULO 7°.-El Ministerio de Agricultura y Ganadería, gestionar ante el Sistema Bancario Nacional, un trato preferencial en lo referente a la suspensión del cobro de intereses y amortización de capital de las operaciones de crédito que tengan los permisionarios de pesca de camarón.
