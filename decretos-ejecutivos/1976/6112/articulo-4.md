@@ -1,0 +1,1 @@
+Artículo 4°-Los terrenos o fincas no inscritas en el Registro Público, ni amparadas por la posesión decenal, serán adquiridas por el Estado, previo pago a sus ocupantes de las mejoras correspondientes.

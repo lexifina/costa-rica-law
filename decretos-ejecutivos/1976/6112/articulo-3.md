@@ -1,0 +1,1 @@
+Artículo 3°-Las fincas debidamente inscritas en el Registro Público o amparadas por la posesión decenal dentro de los límites de las zonas protectoras quedan automáticamente sometidas al régimen forestal. Las labores que se fueran a realizar en estas fincas, deben contar con la autorización escrita de la Dirección General Forestal.
