@@ -14,3 +14,4 @@ Declara nuevos terrenos ganados al mar como parte de la Zona Marítimo -Terrestr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-08-31 | la propia norma |
+| 2 | 1993-02-22 | Decreto Ejecutivo 22094 (1993-02-22) |

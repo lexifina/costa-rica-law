@@ -10,4 +10,5 @@ Considerando:
 4°-Que estas áreas de accesión están conformadas de rocas, arena y arrecife principalmente, lo cual dificulta su uso comercial y de servicios, siendo su potencial fundamentalmente de interés ecológico.
 5°-Que es de interés público para el Estado, impedir el impacto negativo que pudiera producirse como consecuencia del desarrollo urbano en esta zona, así como dar cumplimento con la proclama "Propuesta de un Nuevo Orden Ecológico del Gobierno de la República". Por tanto,
 DECRETAN:
-Artículo 1°-Declárase los nuevos terrenos ganados al mar como parques municipales, quedando su administración a cargo de los respectivos concejos municipales donde se encuentran ubicados estos terrenos.
+Artículo 1°—Declárense los nuevos terrenos ganados al mar como parte de la Zona Marítimo -Terrestre, quedando su administración a cargo del Concejo Municipal de la Jurisdicción respectiva, de acuerdo a lo establecido en el artículo 3° de la Ley sobre la Zona Marítimo-Terrestre N° 6043 del 2 de mayo de 1977.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 22094 del 22 de febrero de 1993)
