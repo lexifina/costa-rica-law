@@ -122,7 +122,7 @@ X.-DE LOS HONORARIOS MEDICOS
 1) El médico y su esposa, sus hijos, mientras se encuentren sometidos a la patria potestad, y sus padres tienen derecho a servicios médicos gratuitos.
 2) Si por alguna causa proveniente del médico, como el olvido de una indicación terapéutica, necesidad de completar un examen, motivos de enseñanza o comodidad del médico, etc., deben efectuarse más visitas que las indispensables, no serán tomadas en cuenta para efectos de honorarios.
 3) Cuando el paciente, sin razón justificada, se niegue a cancelar los honorarios del médico, ésta puede demandarlo ante los tribunales. Es conveniente ponerlo en conocimiento de la entidad médico gremial correspondiente y pedir a ésta asesoramiento o representación legal ante la justicia.
-4) El médico empleado en cualquier institución pública o privada, si ésta entrara en conflicto con el gremio, debe acatar las disposiciones tomadas por los organismos gremiales, aún cuando fueran en detrimento de su patrón.
+4) (Derogado por el artículo 1° del decreto ejecutivo N° 2565 del 06 de octubre de 1972)
 5) La participación de honorarios entre el médico tratante y cualquier otro profesional es un acto contrario a la dignidad profesional. Cuando en la asistencia del enfermo han tenido ingerencia otros profesionales, los honorarios se presentarán separadamente. Cuando se presenten en conjunto se detallarán los nombres y honorarios de los participantes.
 6) Constituye violación a la ética profesional la percepción directa de un porcentaje derivado de la prescripción de medicamentos, aparatos ortopédicos, lentes, etc., así como la retribución a intermediarios de cualquier clase entre médicos y pacientes.
 XI.-DE LA RESPONSABILIDAD PROFESIONAL

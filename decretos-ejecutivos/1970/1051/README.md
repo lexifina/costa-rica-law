@@ -14,3 +14,4 @@ Código de Moral Médica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-08-18 | la propia norma |
+| 2 | 1972-10-06 | Decreto Ejecutivo 2565 (1972-10-06) |
