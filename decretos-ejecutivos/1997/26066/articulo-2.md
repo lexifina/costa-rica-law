@@ -1,0 +1,1 @@
+Artículo 2°-De acuerdo con su área de especialización, el Laboratorio Nacional de Aguas, constituirá el centro de referencia nacional para las determinaciones físico químicas y biológicas de las aguas. El Laboratorio contará con un sistema de aseguramiento de la calidad análitica debidamente acreditado.

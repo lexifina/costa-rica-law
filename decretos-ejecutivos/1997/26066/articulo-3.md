@@ -1,0 +1,1 @@
+Artículo 3°-El Ministerio de Salud, por medio de b División de Saneamiento Ambiental, junto con el Laboratorio Nacional de Aguas, coordinarán el Programa Nacional de Control y Vigilancia de la Calidad del Agua, de acuerdo con las necesidades cuantitativas y cualitativas de ambas instituciones.
