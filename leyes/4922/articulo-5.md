@@ -1,0 +1,1 @@
+Artículo 5º.- De conformidad con los artículo 50 y 28 inciso f) de la Ley Orgánica del Consejo Nacional de Producción, se autoriza a dicha Institución a negociar en el extranjero, con la garantía del Estado que en ésta se otorga, un empréstito hasta por la suma de quince millones de dólares americanos ($ 15.000,000.00).
