@@ -1,0 +1,2 @@
+ARTICULO 20.- El interesado al promover el ocurso o al apersonarse en el mismo, deberá indicar el apartado postal o la dirección precisa en la capital a donde pueda serle dirigida nota certificada dándole aviso de la resolución dictada. Deberán señalar oficina para oir notificaciones ante los Tribunales Superiores. Si no cumplieren con esos requisitos, las resoluciones se les tendrán por notificadas veinticuatro horas después de dictadas.
+(Así reformado por el artículo 2 de la Ley No.6145 del 18 de noviembre de 1977)

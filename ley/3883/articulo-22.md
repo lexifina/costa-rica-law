@@ -1,0 +1,4 @@
+ARTICULO 22.- Vencidas las audiencias respectivas, el Registrador decidirá, en resolución considerada, lo que estimare conveniente con indicación de sus fundamentos legales. Si accediere a la revocación, mandará practicar el asiento; en caso contrario denegará la inscripción ordenando cancelar total o parcialmente, según el caso, el asiento del Diario correspondiente al documento cuya inscripción se deniegue.
+Esta resolución se notificará al ocursante así como a los demás interesados que se hubieran apersonado en la forma que indica el artículo veinte.
+El Registrador deberá dictar su resolución dentro del mes siguiente al vencimiento del término de las audiencias concedidas. Si no lo hiciere así, se tendrá como revocada la orden de suspensión y se procederá a practicar el asiento.
+(Así reformado por el artículo 2 de la Ley No.6145 del 18 de noviembre de 1977)
