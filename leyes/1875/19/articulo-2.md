@@ -1,0 +1,1 @@
+Art 2° Se faculta a la Municipalidad de la Provincia de Alajuela para invertir en la construcción de la Cañería que trata de establecer en la capital de la misma, los bienes que la ley número 5 de 13 de Setiembre de 1869, destinó al Colegio de San Juan Nepomuceno.
