@@ -13,6 +13,6 @@ competa hacer cumplir esta ley y su reglamento, serán juzgados como
 cómplices y sancionados con las mismas penas, según sea el delito, cuando
 se les compruebe que, a pesar de tener conocimiento de sus violaciones,
 por negligencia o por complacencia, no procuren el castigo de los
-culpables y permitan la infracción de esta ley y su reglamento. De acuerdo
-con la gravedad del hecho, los Jueces que conozcan de esta ley podrán
-imponerles la pena de inhabilitación especial.
+culpables y permitan la infracción de esta ley y su reglamento. De
+acuerdo con la gravedad del hecho, los Jueces que conozcan de esta ley
+podrán imponerles la pena de inhabilitación especial.

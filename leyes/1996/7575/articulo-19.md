@@ -8,9 +8,9 @@ suelo, ni establecer plantaciones forestales. Sin embargo, la
 Administración Forestal del Estado podrá otorgar permiso en esas áreas
 para los siguientes fines:
 a) Construir casas de habitación, oficinas, establos, corrales,
-viveros, caminos, puentes e instalaciones destinadas a la recreación, el
-ecoturismo y otras mejoras análogas en terrenos y fincas de dominio
-privado donde se localicen los bosques.
+viveros, caminos, puentes e instalaciones destinadas a la
+recreación, el ecoturismo y otras mejoras análogas en terrenos y
+fincas de dominio privado donde se localicen los bosques.
 b) Llevar a cabo proyectos de infraestructura, estatales o privados,
 de conveniencia nacional.
 c) Cortar los árboles por razones de seguridad humana o de interés
