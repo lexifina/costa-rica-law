@@ -14,3 +14,4 @@ Reforma Dicta Disposiciones Relativas a la Jornada de Trabajo del Cuerpos de Bom
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1968-09-25 | la propia norma |
+| 2 | 1971-07-30 | Decreto Ejecutivo 1879 (1971-07-30) |
