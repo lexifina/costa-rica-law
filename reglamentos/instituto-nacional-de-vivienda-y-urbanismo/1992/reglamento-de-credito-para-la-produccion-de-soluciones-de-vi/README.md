@@ -16,3 +16,4 @@ Reglamento de crédito para la producción de soluciones de vivienda
 | 1 | 1992-05-28 | la propia norma |
 | 2 | 1994-08-08 | Reglamento 0 (1994-08-08) |
 | 3 | 1997-05-14 | Reglamento 4695 (1997-05-14) |
+| 4 | 2001-02-28 | Reglamento 5063 (2001-02-28) |
