@@ -1,0 +1,5 @@
+DECRETO CII.
+Convoca a elecciones para individuos de los Supremos Poderes.
+"El Jefe Supremo Provisorio del Estado libre de Costa Rica.
+" Con presencia de los acuerdos de la Cámara de Senadores, declarando escusados á los Señores Vicente Aguilar y Licenciado Pedro Zeledon de servir la Magistratura de la Corte Suprema de Justicia para que han sido electos, y disponiendo se repongan la eleccion de Diputado Suplente hecha en el Sr. Licenciado Lucas Alvarado y las de propietarios practicadas en los Señores Juan Freces Neco, Vicente Fabrega y Manuel Peinado; y en atencion á que lo propio debe verificarse respecto de las que recayeron en los Señores Francisco Maria Oreamuno. Felipe Molina y Gordiano Paniagua, cuyas escusas han sido admitidas, ha venido en decretar y decreta.
+Art. 1° Se convoca à todos los Pueblos del Estado, para que en tres dias contínuos desde el 15 de noviembre pròximo, sufraguen para dos Magistrados propietarios, en personas que reunan las cualidades que exija el art. 150 de la última Constitucion del Estado.
