@@ -1,0 +1,1 @@
+Artículo 3 —Para ese fin, en los diferentes centros educativos, se realizarán actividades alusivas a la celebración y se explicará a los estudiantes la importancia y la dignidad del trabajo que realizan los conserjes, lo anterior sir cumplimiento del calendario escolar.
