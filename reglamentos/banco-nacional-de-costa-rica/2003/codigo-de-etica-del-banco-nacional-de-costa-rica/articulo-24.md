@@ -1,0 +1,2 @@
+Artículo 24.—Los funcionarios no sacarán, sin la debida autorización, documentación interna de las instalaciones del Banco, cuya divulgación pueda causar perjuicio a éste.
+En todo caso, siempre deberá guardarse constancia escrita, en el archivo correspondiente, de la documentación cuya salida fue autorizada. Los funcionarios que empleen computadoras portátiles que por la índole de sus funciones almacenen la clase de datos antes dicha, serán personalmente responsables de cualquier abuso que de éstas hagan terceros.

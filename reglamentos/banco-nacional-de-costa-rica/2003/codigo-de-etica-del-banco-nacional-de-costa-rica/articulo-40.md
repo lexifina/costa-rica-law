@@ -1,0 +1,1 @@
+Artículo 40.—Gratuidad del Cargo. El cargo de miembro de la Comisión de Ética se ejercerá en forma ad-honorem. El Banco aportará los recursos económicos y humanos que requiera la Comisión, para el fiel cumplimiento de sus fines.

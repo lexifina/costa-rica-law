@@ -1,0 +1,1 @@
+Artículo 23.—Los funcionarios no utilizarán las instalaciones, los recursos energéticos, los recursos materiales, los procedimientos, la metodología, los sistemas de cómputo, los datos o los servicios del Banco, en negocios o asuntos personales o de sus empresas.

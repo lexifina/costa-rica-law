@@ -1,0 +1,4 @@
+Artículo 11.—Deber de confidencialidad. Todo funcionario del Banco está obligado a guardar rigurosa discreción respecto a los hechos y documentos, de los cuales tenga conocimiento con motivo del desempeño de su cargo, salvo que cuente con la autorización superior para brindar información.
+Los funcionarios del Banco no revelarán a terceros información confidencial de los clientes protegida por el secreto bancario, ni harán uso indebido de la misma.
+Tampoco realizarán prácticas contrarias a la ética y la probidad necesarias en el negocio bancario.
+Los funcionarios no revelarán a terceros - con fines no autorizados y/o fraudulentos - los procedimientos, metodologías, aplicaciones informáticas y documentación técnica, de carácter "confidencial" o de índole "estratégica", de uso exclusivo del Banco Nacional, aunque éste no tenga su propiedad intelectual o derecho de autor.
