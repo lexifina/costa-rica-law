@@ -1,0 +1,1 @@
+Artículo 4º.- La remuneración adicional a que se refiere el artículo 1º de esta ley, no puede ser objeto de venta, traspaso, enajenación o gravamen de ninguna especie, ni puede ser perseguida por acreedores, excepto para responder al pago de pensiones alimenticias, en el tanto que determina el Código de Trabajo.
