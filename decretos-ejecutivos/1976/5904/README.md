@@ -58,3 +58,4 @@ Establece las Reservas Indígenas Chirripó, Guaymi de Coto Brus, La Estrella y 
 | 43 | 2001-03-22 | Decreto Ejecutivo 29449 (2001-03-22) |
 | 44 | 2001-03-22 | Reglamento 29450 (2001-03-22) |
 | 45 | 2001-03-22 | Decreto Ejecutivo 29956 (2001-03-22) |
+| 46 | 2001-10-26 | Decreto Ejecutivo 29957 (2001-10-26) |
