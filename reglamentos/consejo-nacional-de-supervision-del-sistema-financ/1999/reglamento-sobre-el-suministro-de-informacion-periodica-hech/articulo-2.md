@@ -1,7 +1,8 @@
 SECCIÓN I
 Información Periódica
-Artículo 2°—Información requerida: Los emisores y íos sujetos fiscalizados deberán presentar a la Superintendencia sus estados financieros anuales auditados. así como los estados financieros intermedios que determine el superintendente, en ambos casos en el plazo que éste establezca. El superintendente definirá el contenido y formato de los estados de conformidad con ío establecido en el Reglamento sobre Auditorías Externas.
-(Así Reformado Parcialmente mediante artículo 8, del acta de la Sesión 171-2000 del 21 de agosto del 2000 publicado en La Gaceta No. 171 de 6 de setiembre del 2000)
+Articulo 2.- Información requerida
+Los emisores y los sujetos fiscalizados deberán presentar a la Superintendencia sus estados financieros anuales auditados. Así como los estados financieros intermedios que determine el Superintendente, en ambos casos en el plazo que éste establezca. El Superintendente definirá el contenido y formato de los estados de conformidad con lo establecido en el Reglamento sobre Auditorías Externas.
+(Así Reformado Parcialmente mediante artículo 5, del acta de la Sesión 177-2000 celebrada el 18 de setiembre del 2000 publicado en La Gaceta No. 202 de 23 de octubre del 2000)
 En el caso de conglomerados financieros ("holdings"), si el emisor es la sociedad controladora ("holding") deberán presentarse los estados financieros consolidados, en tanto que si el emisor es una de las empresas del grupo deberán presentarse los estados financieros individuales. Para las entidades que formen parte de un grupo financiero de conformidad con lo establecido en la Ley Orgánica del Banco Central de Costa Rica y los reglamentos respectivos, la consolidación se realizará de conformidad con la normativa que se emita para ellos en materia de consolidación.
 Los sujetos fiscalizados deberán presentar además, un informe sobre las participaciones accionarias de sus socios, miembros de junta directiva y empleados cuando éstas sean iguales o superiores al diez por ciento del capital social.
 Asimismo, cada uno de los sujetos fiscalizados deberá presentar los informes que se detallan a continuación:
