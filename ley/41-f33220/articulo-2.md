@@ -1,0 +1,1 @@
+Art. 2°.-Las porciones cultivadas de dichas tierras, y las que de las mismas hayan sido poseídas por particulares, por el tiempo señalado por el artículo 3° de la ley de 7 de febrero, concurriendo los demás requisitos que el Código Civil exige para la prescripción de inmuebles, son indenunciables.
