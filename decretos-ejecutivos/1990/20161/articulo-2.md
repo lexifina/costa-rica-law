@@ -1,0 +1,1 @@
+Artículo 2°—La Comisión estará integrada por representantes del Ministerio de Obras Públicas y Transportes, quien coordinará, de la Presidencia, de Salud, del Instituto de Fomento y Asesoría Municipal, de la Comisión Nacional de Emergencias y del Convenio Cooperativo Intermunicipal (COCIM).
