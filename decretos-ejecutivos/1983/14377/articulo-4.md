@@ -1,0 +1,1 @@
+Artículo 4°—Se faculta a la Dirección General de Bibliotecas y Biblioteca Nacional del Ministerio de Cultura, Juventud y Deportes para que organice y establezca los procedimientos de implantación de la Agencia ISBN, así como la organización y edición de publicaciones en relación con el control bibliográfico nacional.

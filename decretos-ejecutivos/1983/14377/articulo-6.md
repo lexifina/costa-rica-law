@@ -1,0 +1,7 @@
+Artículo 6°—Obras impresas no sujetas al sistema ISBN. No estarán sujetos al Sistema ISBN los impresos de menos de cinco páginas; mapas y planos; partituras musicales; hojas sueltas no coleccionables; carteles y grabados; postales; hojas desplegarles; publicaciones periódicas; microfilmes y publicaciones similares. Asimismo, las publicaciones ocasionales que, a juicio de la Dirección General de Bibliotecas y Biblioteca Nacional del Ministerio de Cultura, Juventud y Deportes, Agencia Nacional ISBN, carezcan de interés permanente. Entre estas ultimas se señalan las siguientes:
+a) Las estrictamente publicitarias, por ejemplo, aquellas que enuncian las características de un determinado producto o de una región turística. Sin embargo, los libros de carácter literario-científico distribuidos con fines publicitarios, aunque en forma suplementaria contengan publicidad, están sujetos al sistema ISBN.
+b) Las guías de transportes, los horarios y tarifas, si no contienen más texto que el requerido para la comprensión de los datos incluidos en ellos.
+c) Los programas de enseñanza, espectáculos y exposiciones,
+ch) Los estatutos y balances de sociedades; las instrucciones para tomar parte en actos; las circulares, etcétera.
+d) Los calendarios y almanaques, aun cuando se presenten en forma de libro y siempre que no contengan textos literarios o científicos,
+e”) Los mapas y planos que se distribuyan aisladamente. Sin embargo, los atlas y conjuntos de mapas o planos encuadernados en forma de libro están sujetos al sistema ISBN.

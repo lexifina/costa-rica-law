@@ -1,0 +1,1 @@
+Artículo 3°—A partir de la publicación del presente decreto, todo libro deberá consignar en el reverso de la portada el número ISBN o número de libro, que le asigne la Dirección General de Bibliotecas y Biblioteca Nacional y cumplir con los trámites que sobre el particular se establezcan.

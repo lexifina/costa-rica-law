@@ -1,0 +1,1 @@
+Artículo 7°—El Registro Nacional de Derechos de Autor y Derechos Conexos, no dará trámite de inscripción a publicación alguna cuyo número sea requerido, para lo cual deberá consultarse previamente dicho Registro.
