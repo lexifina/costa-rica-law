@@ -14,3 +14,4 @@ Modifica Límite de Gasto Presupuestario y Efectivo para el 2001, del Instituto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-21 | la propia norma |
+| 2 | 2000-12-19 | Decreto Ejecutivo 29223 (2000-12-19) |
