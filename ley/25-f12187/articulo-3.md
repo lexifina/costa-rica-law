@@ -1,0 +1,1 @@
+Art 3° No se comprende entre los actos Administrativos que el Congreso aprueba la Orden de 6 de diciembre de 1867 que instituye una Policía Fiscal Secreta; y se recomienda al Gobierno es restablecimiento de los resguardos para la persecución de fraudes y contraguardos para la persecución de fraudes y contrabandos, bajo la planta que estime mas conveniente
