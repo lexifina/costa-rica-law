@@ -1,6 +1,4 @@
-Artículo 189.- Para los efectos de ser consideradas como gastos justificados dentro de la contribución del Estado al pago de la Deuda Política , no podrán presentarse cuentas que incluyan:
-a) El pago de más de dos páginas por edición o su equivalente en número de pulgadas, en cada uno de los diarios nacionales;
-b) El pago de más de ocho horas diarias en todas las radioemisoras; y
-c) El pago de más de tres horas diarias en al televisión.
-Dentro de estos límites, los partidos políticos podrán distribuir su tiempo radial o televisado y su espacio en los órganos de publicidad, de acuerdo con su mejor criterio.
+Artículo 189.- La Tesorería Nacional entregará a los partidos políticos lo que les corresponda por concepto de contribución del Estado, una vez deducidas las partidas entregadas anteriormente por concepto de financiación anticipada, dentro de los ocho días siguientes a la fecha en que el Ministerio de Hacienda reciba la comunicación del Tribunal Suprema de Elecciones a que se refiere el artículo 188, sin perjuicio de las cesiones efectuadas de conformidad con este Código.
+De previo a la entrega de la suma a que se refiere el párrafo anterior, la Tesorería Nacional deberá recibir por parte de la Contraloría General de la República un detalle de los saldos que cada partido adeude por concepto de sus contratos de arrendamientos de servicios y locales. El monto lo reservará la Tesorería Nacional , a fin de cancelar las sumas pendientes de pago, conforme a las normas que reglamentariamente fije la Contraloría. Asimismo , ésta dispondrá el procedimiento de registro de los contratos.
 (Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)
+(Así reformado por el artículo 1° de la ley N° 4794 del 16 de julio de 1971)
