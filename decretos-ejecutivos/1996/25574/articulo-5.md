@@ -1,0 +1,1 @@
+Artículo 5°-Las recomendaciones y observaciones de la Comisión deberán ser implementadas por las instituciones responsables en el plazo de seis meses contados a partir del momento en que el Consejo de Salud Ocupacional le de el visto bueno al Informe respectivo.
