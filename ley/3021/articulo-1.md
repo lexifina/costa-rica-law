@@ -20,3 +20,9 @@ Ad-valórem
 112-04-04 Licores destilados 1.71
 2%
 313.01-01 Gasolina
+( Interpretado por el artículo 1º de la Ley Nº 3070 de 3 de
+diciembre de 1962, en lo concerniente a las partidas NAUCA 112-04-03 y
+112-04-04, Licores Destilados, en el sentido de que el 40% ad-valórem que
+allí se fija, es la cantidad máxima que se cobrará por este concepto para
+la importación de cada litro de licor destilado y que en tal tributo se
+comprenden todos los aforos ad-valórem señalados en otras leyes).
