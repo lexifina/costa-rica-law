@@ -1,0 +1,1 @@
+Art. 2. El presente decreto se imprimirá, circularà y publicarà para su cumplimiento, poniéndose oportunamente en conocimiento del Excelentìsimo Congreso, -Dado en la ciudad de San José, á primero del mes de abril de mil ochocientos cuarenta y ocho. -Juan Rafael Mora, -Al Ministro de hacienda y guerra, Señor Don Manuel José Carazo."
