@@ -1,0 +1,1 @@
+ARTÍCULO 9°.-El Fondo Especial ser administrado y ejecutado por el Departamento Financiero del Ministerio de Recursos Naturales, Energía y Minas, y estar sujeto a la fiscalización de los entes respectivos.

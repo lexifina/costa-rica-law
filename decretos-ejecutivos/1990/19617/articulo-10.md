@@ -1,0 +1,1 @@
+ARTÍCULO 10.-Los ingresos del Fondo Especial se depositarán en una cuenta especial que se abrir en cualquiera de los Bancos Estatales. El retiro de los fondos se hará mediante cheque firmado conjuntamente por el Oficial Mayor y el Jefe del Departamento Financiero del Ministerio.

@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Créase el Fondo Especial a que hace referencia el artículo 33 numeral 16 de la ley N° 7111, cuyo objetivo ser financiar un incentivo que sirva de estímulo a los funcionarios que laboren propiamente en las reas silvestres. Dicho incentivo se mantendrá vigente mientras exista disponibilidad presupuestaria en el Fondo Especial.

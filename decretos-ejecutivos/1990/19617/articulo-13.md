@@ -1,0 +1,1 @@
+ARTÍCULO 13.-Dentro del plazo improrrogable de treinta días, contados a partir de la publicación del presente Decreto Ejecutivo, la Comisión deberá emitir un Reglamento que regule sus propios procedimientos para la aplicación de las disposiciones aquí contenidas.

@@ -1,0 +1,1 @@
+ARTÍCULO 1°.-Para los efectos del numeral 16 del artículo 33 de la ley N° 7111 del 24 de noviembre de 1988; se entiende por "Funcionarios que laboran en el manejo de Áreas Silvestres" a aquellas personas que laboren propiamente en dichas reas, para alcanzar su aprovechamiento adecuado y su permanencia a largo plazo.
