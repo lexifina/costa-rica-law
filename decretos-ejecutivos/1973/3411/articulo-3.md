@@ -1,0 +1,1 @@
+Artículo 3°- Dicha Comisión durará en funciones hasta la formación del Directorio del Congreso, el cual asumirá las funciones de organización y dirección del mismo, a más tardar cuarenta y cinco días antes de su inauguración.

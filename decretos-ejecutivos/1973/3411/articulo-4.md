@@ -1,0 +1,1 @@
+Artículo 4°- El Directorio del Congreso será nombrado por el Colegio de Químicos e Ingenieros Químicos de Costa Rica, conforme al Reglamento del Congreso, y se encargará de finiquitar todo lo concerniente al mismo.
