@@ -1,0 +1,8 @@
+CIRCULAR N° 82-2003
+ASUNTO: Sobre una debida y correcta atención a los usuarios en las oficinas judiciales.
+A TODOS LOS SERVIDORES Y FUNCIONARIOS JUDICIALES DEL PAÍS SE LES HACE SABER QUE:
+La Corte Plena, en sesión N° 18-03, celebrada el 12 de mayo de 2003, artículo XV, dispuso hacer de su conocimiento lo siguiente:
+a) Todas las personas tienen derecho a ser atendidas personalmente en las oficinas judiciales respecto de cualquier incidencia relacionada con el funcionamiento del Órgano Judicial, en la forma establecida legalmente y, en su caso, a recibir la debida orientación de parte de los funcionarios encargados.
+b) Los jueces no deben recibir a las partes, ni a sus abogados, en ausencia de la parte contraria, para referirse al tema de fondo que debe resolver, salvo los casos expresamente autorizados por la ley, como por ejemplo, cuando se convoca a una audiencia con notificación previa, pero no asiste alguna de ellas y la diligencia deba efectuarse. Sin embargo, los jueces pueden reunirse en el Despacho, con una parte o sus abogados cuando éstos pretendan referirse a aspectos relacionados con la administración del expediente, para el diligenciamiento de alguna actividad procesal o para instar la pronta resolución del asunto."
+San José, 22 de agosto de 2003.
+(Nota de Sinalevi: Mediante circular N° 038 del 15 de marzo de 2010 y publicada en el Boletín Judicial N° 68 del 9 de abril de 2010, se reitera esta disposición. Asimismo, se indica que: “…Se hace notar que lo anteriormente expuesto se encuentra también regulado en los artículos 4° y 8° del “Estatuto de la Justicia y Derechos de las personas usuarias del Sistema Judicial”, aprobado por Corte Plena en sesión N° 039-03 del 20 de octubre de 2003, artículo IX”)
