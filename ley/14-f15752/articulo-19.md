@@ -1,0 +1,1 @@
+Art 19 - Cualquier cosechero legal, individuo del resguardo ó empleado público sea cual fuere su clase, tiene derecho á pedir que se le exhiba la patente que autorize algun plantío de tabaco, y el dueño de éste obligacion precisa de exhibirla.

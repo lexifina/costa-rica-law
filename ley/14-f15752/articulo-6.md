@@ -1,0 +1,1 @@
+Art. 6. El valor de la patente será el que resulte en razon de cinco pesos por cada mil matas de las que permite, y se pagará al contado en dinero efectivo, como queda dispuesto; mas en el presente año podrá pagarse una mitad en numerario y otra en certificaciones libradas por sueldos de empleados, con el descuento de un quince por ciento.
