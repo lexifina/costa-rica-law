@@ -1,6 +1,6 @@
 # Ley Orgánica del Banco Nacional de Costa Rica (BNCR)
 
-Ley N° 16 del 1936-11-05. SINALEVI, ficha 38090: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38090&param2=87404&param3=1>.
+Ley N° 16 del 1936-11-05. SINALEVI, ficha 38090: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38090&param2=87407&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -22,3 +22,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 14 de 19 | 1949-01-05 | Decreto Ejecutivo 334 (1949-01-05) | 1949-01-05 |
 | 15 de 19 | 1949-02-04 | Ley 373 | 1949-02-04 |
 | 16 de 19 | 1952-08-08 | Ley 1487 | 1952-08-08 |
+| 17 de 19 | 1952-12-01 | Ley 1521 | 1952-12-01 |
