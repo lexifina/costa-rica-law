@@ -1,0 +1,1 @@
+Artículo 76.—El cierre de una instalación por mantenimiento será aprobado de previo por la Junta Directiva del Comité Comunal y como requisito indispensable antes del cierre por la Junta Directiva del Comité Cantonal, para lo cual se deberá solicitar el permiso correspondiente con al menos treinta días naturales de anticipación a la fecha en que se piensa cerrar.

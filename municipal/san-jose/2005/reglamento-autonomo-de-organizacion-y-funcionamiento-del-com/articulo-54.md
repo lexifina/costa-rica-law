@@ -1,0 +1,1 @@
+Artículo 54.—En ningún caso el Comité Comunal asumirá más del 30% de los recursos comprometidos en el pago de los servicios personales de los empleados asignados a éste durante el período a que corresponda el pago.

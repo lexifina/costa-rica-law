@@ -1,0 +1,1 @@
+Artículo 7º—El Comité Cantonal vigilará que su actuar se ajuste al Plan Operativo Anual, que haya aprobado por el Concejo Municipal y establecerá los controles que correspondan para que sus Comités y afiliados cumplan con el mismo.

@@ -1,0 +1,1 @@
+Artículo 56.—Todas las obligaciones de pago, producto de compras o contrataciones de bienes y servicios que no estén contempladas en el artículo anterior, serán tramitadas en las oficinas del Comité Cantonal, a solicitud de cada Comité Comunal.
