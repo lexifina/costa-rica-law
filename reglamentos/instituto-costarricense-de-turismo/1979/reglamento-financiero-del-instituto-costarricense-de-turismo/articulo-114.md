@@ -1,2 +1,1 @@
-Artículo 114.-Establecer el Fondo de Caja Chica Nº 7 para la oficina del Proyecto Papagayo en San José, con un fondo fijo de c1.000.00 (mil colones), con tope máximo a gastar de c500.00 (quinientos colones) que se establecen en la actualidad.
-(Así ADICIONADO mediante Sesión de Junta Directiva Nº 3080 del 12 de mayo de 1980, publicada en La Gaceta Nº 112 del 13 de junio de 1980, de la misma manera se corre la numeración y el artículo 114 pasa a ser el 115)
+Artículo 114.—DEROGADO EXPRESAMENTE por la Sesión de Junta Directiva No. 3107 del 14 de agosto de 1980, publicada en La Gaceta Nº 161 del 25 de agosto de 1980.
