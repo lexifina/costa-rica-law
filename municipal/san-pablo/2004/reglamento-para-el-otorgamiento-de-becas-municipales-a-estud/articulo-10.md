@@ -1,0 +1,1 @@
+Artículo 10.—Procedimiento: El Concejo de Distrito, entregará en la segunda semana de enero de cada año a la Alcaldía, los expedientes de los estudiantes que hallan hecho la solicitud, con el estudio respectivo, quien tendrá un plazo de 15 días para resolver y adjudicar las becas a los becados.

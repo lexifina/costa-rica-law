@@ -1,0 +1,1 @@
+Artículo 12.—Categorías de becas: Los beneficios que abarcan las becas municipales serán determinados por el Concejo Municipal, de acuerdo con el presupuesto, y el número de becados designados para cada año.

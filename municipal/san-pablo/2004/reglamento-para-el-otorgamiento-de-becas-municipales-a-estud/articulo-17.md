@@ -1,0 +1,1 @@
+Artículo 17.—Reformas parciales o totales: Cualquier reforma total o parcial del presente Reglamento, requerirá la aprobación de al menos 2/3 del total de los miembros del Concejo Municipal de San Pablo de Heredia.

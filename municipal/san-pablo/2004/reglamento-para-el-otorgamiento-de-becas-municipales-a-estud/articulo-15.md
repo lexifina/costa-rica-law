@@ -1,0 +1,1 @@
+Artículo 15.—Fecha de entrega: Las becas se entregarán a partir del primer día hábil de cada mes, partiendo del mes en que se inicie el periodo lectivo, conforme con el calendario lectivo programado por el Ministerio de Educación Pública, concluyéndose en el mes de noviembre de cada año.

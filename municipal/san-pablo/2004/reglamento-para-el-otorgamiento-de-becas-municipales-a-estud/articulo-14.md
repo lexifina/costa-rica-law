@@ -1,0 +1,1 @@
+Artículo 14.—Retiro de la beca: Las becas serán retiradas personalmente por el becado en la oficina de la tesorería municipal, con su respectiva identificación. En caso de ser menores de edad, deberá presentar el respectivo carné de la institución educativa en la cual realiza sus estudios.

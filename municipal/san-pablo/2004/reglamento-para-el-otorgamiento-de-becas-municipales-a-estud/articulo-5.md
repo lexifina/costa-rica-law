@@ -1,0 +1,1 @@
+Artículo 5º—Órgano competente: La adjudicación de las becas las realizará el alcalde municipal, previa recomendación no vinculante del Concejo de Distrito y previo estudio de una trabajadora social, quien se encargará de preparar un estudio socio-económico de los aspirantes a becas y de su núcleo familiar.
