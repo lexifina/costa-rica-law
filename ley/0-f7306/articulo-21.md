@@ -1,0 +1,2 @@
+Artículo 21.
+No se reputan penas, la restricción de la libertad de los procesados, la separación ó suspensión de los empleos públicos acordada por las autoridades en uso de sus atribuciones ó por el tribunal durante el proceso ó para instruirlo. ni las multas y demás correcciones que los superiores impongan á sus subordinados y administrados en uso de su jurisdicción disciplinal ó atribuciones gubernativas

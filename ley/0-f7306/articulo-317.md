@@ -1,0 +1,2 @@
+Artículo 317.
+Cualesquiera otros individuos que hubieren tomado parto en la asociación y los que á sabiendas y voluntariamente hubieren suministrado caballerías, anuas, municiones, instrumentos para cometer los crímenes ó simples delitos, alojamiento, escondite ó lugar de reunión, serán castigados, en el primer caso previsto en el artículo precedente, con presidio interior menor en su grado medio, y en el segundo, con presidio interior menor en su grado mínimo.

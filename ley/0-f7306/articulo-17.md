@@ -1,0 +1,9 @@
+Artículo 17.
+Son encubridores los que con conocimiento de la perpetración de un crimen ó de un simple delito ó de los actos ejecutados para llevarlo á cabo, sin haber tenido participación en él como autores ni como cómplices intervienen, con posterioridad á su ejecución de alguno de los modos siguientes:
+1°-Aprovechándose por sí mismos ó facilitando á los delincuentes medios para que se aprovechen de los efectos del crimen ó simple delito.
+2°-Ocultando ó inutilizando el cuerpo, los efectos ó instrumentos del crímen ó simple delito para impedir su descubrimiento.
+3°-Albergando, ocultando ó proporcionando la fuga al culpable, siempre que concurra alguna de las circunstancias siguientes:
+PRIMERA.-La de intervenir abuso de funciones públicas de parte del encubridor.
+SEGUNDA.-La de ser el delincuente reo de traición parricidio ú homicidio cometido con alguna de las circunstancias agravantes que expresan los números 1°, 2°, 3°, 4° , 5°, 6°, 9° y 11° del artículo 12, si estuvieren en noticia del encubridor, ó cuando el delincuente fuere conocido como reo habitual de otros crímenes ó simples delitos.
+4°-Acogiendo, receptando ó protegiendo habitualmente á los malhechores, sabiendo que lo son, aún sin conocimiento de los crímenes ó simples delitos determinados que hayan cometido; facilitándoles los medios de reunirse ú ocultar sus armas ó efectos; ó suministrándoles auxilios ó noticias para que se guarden, precavan ó salven.
+Están exentos de las penas impuestas á los encubridores los que lo sean de su cónyuge ó de sus parientes legítimos por consangunidad ó afinidad en toda la línea recta y en la colateral hasta el segundo grado inclusive de sus padres ó hijos ilegítimos notoriamente conocidos, con sólo la excepción de los que se hallaren comprendidos en el número 1° de este artículo.

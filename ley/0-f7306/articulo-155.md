@@ -1,0 +1,2 @@
+Artículo 155.
+Los que por astucia ó cualquier otro medio, pero sin alzarse contra el Gobierno, cometieren algunos de los crímenes ó simples delitos de que tratan los artículos 143 y 148, serán penados con reclusión ó extrañamiento ó confinamiento menores en cualesquiera de sus grados, salvo lo dispuesto en el artículo 159, respecto de los delitos que conciernen al ejercicio de los derechos políticos.

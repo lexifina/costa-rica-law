@@ -1,0 +1,5 @@
+Artículo 87.
+Si después de cometido el delito, cayere el delincuente en estado de locura ó demencia, se observarán las siguientes reglas:
+1°-Cuando la locura ó demencia sobrevenga ántes de pronunciarse la sentencia que cause ejecutoria, se suspenderán los efectos de ésta, sin aplicarse al reo pena alguna corporal hasta que recobre la razón, observándose lo que para tales casos, se determine en el Código de Procedimientos.
+2°-Cuando tenga lugar después de pronunciarse dicha sentencia, si ella le impone pena de crímen, el tribunal dispondrá su traslación á uno de los hospitales designados á los enfermos de aquella clase; y si la pena fuere menor, podrá acordar, según las circunstancias, ó bien que sea entregado á su familia, bajo fianza de custodia, y de tenerlo á disposicion del mismo tribunal, ó que se le recluya en un hospital de insanos.
+En cualquier tiempo que el loco ó demente recobre el juicio, se hará efectiva la sentencia; pero si ella le impusiere privación ó restricción temporal de libertad, se imputará á su duración el tiempo de la locura ó demencia.

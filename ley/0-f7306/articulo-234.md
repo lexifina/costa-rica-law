@@ -1,0 +1,2 @@
+Artículo 234.
+La acusación ó denuncia que hubiere sido declarada calumniosa por sentencia ejecutoriada, será castigada con presidio interior menor en su grado máximo ó multa de ochocientos treinta y cuatro á mil pesos, cuando versare sobre un crimen; con presidio interior menor en su grado medio ó multa de seiscientos sesenta y siete á ochocientos treinta y tres pesos, si fuere sobre simple delito; y con presidio interior menor en su grado mínimo ó multa de quinientos uno á seiscientos sesenta y seis pesos, si se tratare de una falta

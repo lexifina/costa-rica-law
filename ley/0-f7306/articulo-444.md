@@ -1,0 +1,2 @@
+Artículo 444.
+La calumnia y la injuria se reputan hechas por escrito y con publicidad cuando se propagaren por la prensa, en periódicos, libros, folletos, sueltos, etc., ó por medio de carteles ó pasquines fijados en los sitios públicos, por papeles impresos de cualquiera manera, litografías, gravados ó escritos comunicados á más de cinco personas, ó por alegorías, caricaturas, emblemas ó alusiones reproducidos por medio de la litografía, el grabado, la fotografía, la pintura ú otro procedimiento cualquiera.

@@ -1,0 +1,2 @@
+Artículo 503.
+En caso de aplicarse el incendio á chozas, pajar ó cobertizo deshabitado o á cualquier otro objeto cuyo valor no excediere de cincuenta pesos, en tiempo y con circunstancias que manifiestamente excluyan todo peligro de propagación, el culpable no incurrirá en las penas señaladas en este capitulo; pero sí en las que mereciere por el dallo que transare, con ‘arreglo á las disposiciones del capítulo siguiente.

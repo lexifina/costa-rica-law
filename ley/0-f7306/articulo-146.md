@@ -1,0 +1,2 @@
+Artículo 146.
+Los que sin cometer los crímenes enumerados en el artículo 143, pero con el propósito de ejecutarlos, sedujeren tropas, usurparen el mando de ellas, de un buque de guerra, de una plaza fuerte, de un puesto de guardia, de un puerto ó de una ciudad, ó retuvieren contra la órden del Gobierno un mando político ó militar cualquiera, su fiarán la pena de reclusión mayor ó de confinamiento mayor en sus grados medios.

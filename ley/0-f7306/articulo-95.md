@@ -1,0 +1,3 @@
+Artículo 95.
+La indemnización de perjuicios comprende: 1°—La satisfacción de los males cansados á la persona y bienes del ofendido, en todas sus circunstancias, 2°—La pensión al herido ó maltratado durante su incapacidad para el trabajo. 3°—La pensión á la viuda é hijos menores de la persona muerta por el delincuente, mientras no lleguen á casarse, equivalente al importe de uno á tres jornales diarios.
+Los tribunales regularán el importe de esta indemnización en los términos prevenidos para la reparación del daño en el artículo precedente, y atendiendo á la fortuna del delincuente y á las necesidades del damnificado.

@@ -1,0 +1,2 @@
+Artículo 138.
+El ciudadano ó súbdito de una nación con quien Costa-Rica este en guerra, que violare las medidas de internación ó expulsión del territorio de la República, expedidas por el Gobierno respecto de los ciudadanos ó subditos de dicha nación, sufrirá la pena de reclusión menor en su grado medio; no pudiendo ésta en ningun caso, extenderse más allá de la duración de la guerra que motivó aquellas medidas.

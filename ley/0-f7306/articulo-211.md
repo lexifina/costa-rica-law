@@ -1,0 +1,2 @@
+Artículo 211.
+La pena será de presidio interior menor en sus grados mínimo á medio o multa de quinientos uno á ochocientos treinta y tres pesos, cuando habiéndose procurado indebidamente los verdaderos sellos, timbres, punzones, matrices marcas, se hubiere hecho de ellos en Costa-Rica, una aplicación ó uso perjudicial á los derechos ó intereses de esos paises, de una autoridad cualquiera ó de un particular.

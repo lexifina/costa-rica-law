@@ -1,0 +1,2 @@
+Artículo 259.
+El empleado público quo arbitrariamente diere á los caudales ó efectos que administrare, una aplicación pública diferente de aquella á que estuvieren destinados, será castigado con la pena de suspensión del empleo en su grado medio, si de ello resultare daño ó entorpecimiento para el servicio ú objeto en que debían emplearse, y con la misma pena en su grado mínimo, si no resultare daño ó entorpecimiento.
