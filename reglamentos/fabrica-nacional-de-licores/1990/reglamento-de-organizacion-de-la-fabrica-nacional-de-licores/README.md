@@ -14,3 +14,4 @@ Reglamento de Organización de la Fábrica Nacional de Licores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-04-30 | la propia norma |
+| 2 | 1999-03-10 | Reglamento 2073 (1999-03-10) |
