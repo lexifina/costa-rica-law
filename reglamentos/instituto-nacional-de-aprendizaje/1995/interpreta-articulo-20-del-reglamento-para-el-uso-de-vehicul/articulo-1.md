@@ -1,0 +1,5 @@
+INSTITUTO NACIONAL DE APRENDIZAJE
+Por acuerdo 132-95-JD, adoptado en la Sesión 3255 celebrada el 12 de junio de 1995, artículo I, la Junta Directiva del Instituto Nacional de Aprendizaje acordó por unanimidad:
+I- Interpretar en el artículo 20, párrafo primero del Reglamento para el Uso de Vehículos del Instituto Nacional de Aprendizaje", que los vocablos "funcionarios" o "servidores, incluyen a las personas contratadas al amparo del "Reglamento para la Contratación de Técnicos y Especialistas para la Capacitación y Formación Profesional" así como cualquier otra contratación similar.
+II- Encomendar a la Dirección de Asesoría para que revise este tipo de contratos a fin de incorporar como obligación del contratista conducir los vehículos institucionales cuando esto sea necesario y se cumplan con los requisitos exigidos por las diferentes normas jurídicas."
+III- Encargar a la Dirección Administrativa se verifiquen o amplíen los seguros correspondientes para que las diferentes coberturas de seguros automotores amparen también a los contratistas."
