@@ -1,0 +1,1 @@
+Artículo 46.- Toda modificación en el texto del etiquetado e información adjunta deberá ser autorizado por el Departamento. Esta deberá ser solicitada por el representante legal o apoderado del producto.

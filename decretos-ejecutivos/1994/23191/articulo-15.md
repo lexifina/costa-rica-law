@@ -1,0 +1,1 @@
+Artículo 15°. - Si el laboratorio tuviera concesionarios especiales para la importación y distribución de sus productos, debe de manifestarlo claramente en la solicitud, indicando el nombre y dirección de aquellos y presentando adjunto los documentos que demuestren esos extremos.

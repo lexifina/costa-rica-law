@@ -1,0 +1,1 @@
+Artículo 43.- La verificación de la calidad de los cosméticos y productos sanitarios se hará tomando de las muestras del mercado siguiendo las normas del decreto sobre control estatal y considerando factores de riesgo.

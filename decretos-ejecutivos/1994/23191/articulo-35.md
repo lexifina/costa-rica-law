@@ -1,0 +1,1 @@
+Artículo 35.- En el caso de la importación de principios activos para la fabricación de medicamentos, el establecimiento debe estar registrado y vigente. Además, debe presentar original y copia de la factura firmada por el regente.

@@ -1,0 +1,1 @@
+Artículo 58.- Ambos recursos podrán interponerse simultánea o separadamente siendo el de apelación considerado y resuelto una vez declarado sin lugar el de revocatoria por el Jefe del Departamento, en el caso en que los recursos fueron interpuestos simultáneamente.

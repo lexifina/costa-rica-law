@@ -1,0 +1,2 @@
+Artículo 29.- La inscripción de los medicamentos tendrá una vigencia de cinco años. La renovación del registro se realizará en forma automática al finalizar su vigencia con solo la presentación de la solicitud del interesado, siempre que las condiciones de seguridad y eficacia en su uso no hayan variado. Si se demuestra inseguridad o ineficacia, se cancelará el registro en cualquier momento.
+Se deberá pagar las tarifas correspondientes a control de calidad y gastos administrativos estipulados por el Departamento.

@@ -1,0 +1,1 @@
+Artículo 8°. - El consejo será presidido por el Ministro o su representante. La secretaría estará a cargo de la Dirección del Departamento, las demás funciones administrativas propias del Consejo, serán atendidas por funcionarios del Departamento.

@@ -1,0 +1,1 @@
+Artículo 7°. - El consejo determinará los días y hora para celebrar sus sesiones. El Consejo sesionará una vez por semana en forma ordinaria y las veces que considere necesarias en forma extraordinaria. Se remunerará un máximo de seis sesiones mensuales.

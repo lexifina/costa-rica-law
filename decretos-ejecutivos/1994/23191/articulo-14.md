@@ -1,0 +1,1 @@
+Artículo 14°. - El Departamento anulará las siglas de identificación de los laboratorios una vez transcurra el plazo de un año contado a partir de la fecha de vencimiento del registro respectivo, sin que se haya renovado. Se dispondrá de la documentación en depósito de conformidad con la Ley de Archivos.

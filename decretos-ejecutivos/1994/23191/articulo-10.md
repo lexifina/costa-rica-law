@@ -1,0 +1,1 @@
+Artículo 10°. - El Consejo aprobará o improbará las inscripciones de los productos en sesión ordinaria si existe concenso, si no se logra lo ratificará en la siguiente sesión, lo que constará en el acta respectiva. Los miembros del Consejo tendrán derecho a dejar constancia en las actas de su opinión si así lo pidiera.

@@ -1,0 +1,1 @@
+Artículo 3°. - El Departamento de Drogas Estupefacientes Controles y Registros, tendrá independencia operativa. La dependencia administrativa será establecida en el organigrama del Ministerio de Salud.

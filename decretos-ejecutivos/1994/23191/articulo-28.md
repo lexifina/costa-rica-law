@@ -1,0 +1,2 @@
+Artículo 28.- Si el medicamento o cualquiera de sus principios activos es de producción extranjera, los trabajos de experimentación clínica que respaldan la solicitud de registros de la droga nueva deben haber sido realizados en el o los países en los cuales el medicamento tenga vigente su registro sanitario.
+Todos los estudios deben haber sido publicados en revista o publicaciones de reconocido valor científico. Deben ser estudios científicos bien diseñados.

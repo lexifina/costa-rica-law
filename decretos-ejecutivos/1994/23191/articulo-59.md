@@ -1,0 +1,1 @@
+Artículo 59.- Los recursos deberán presentarse en escritos formales ante el Departamento. La firma del recurrente deberá ser autenticada por abogado, a menos que la presentación la haga personalmente el firmante.

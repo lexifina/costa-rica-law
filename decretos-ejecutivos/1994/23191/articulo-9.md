@@ -1,0 +1,1 @@
+Artículo 9°. - Se fijará el quórum en tres miembros. Las resoluciones se tomarán por mayoría absoluta. Si no se produjera ésta, el caso se votará en la siguiente sesión. Si nuevamente no hubiera acuerdo, el Presidente dirimirá el caso haciendo uso de su doble voto.

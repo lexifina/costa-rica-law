@@ -1,0 +1,1 @@
+Artículo 42.- Los cosméticos y productos sanitarios de igual fórmula, de diferente tamaño, aromas o colores, se inscribirán en un solo registro. Deben presentar las fórmulas cualicuantitativas de todas las formulaciones.

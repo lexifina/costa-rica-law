@@ -1,0 +1,1 @@
+Artículo 26.-El Departamento tendrá la potestad de solicitar los documentos científicos pertinentes al interesado que considere necesario para la evaluación técnico científica del medicamento. Si la aplicación de este artículo ocasiona gastos estos correrán por cuenta del registrante.

@@ -1,0 +1,1 @@
+Artículo 60.- El Departamento procederá a resolver la revocatoria en un término de tres días hábiles siguientes a la presentación y si fuere declarado sin lugar, elevará el recurso a conocimiento del superior, quien deberá resolver en definitiva el recurso.
