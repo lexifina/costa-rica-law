@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del procedimiento
+Artículo 10.—Información de un Reclamo por Daños de parte del Cliente a JASEC. El cliente de JASEC que se vea afectado por un daño en su propiedad como consecuencia de una causa atribuible al servicio eléctrico, puede comunicarse a JASEC en forma personal o vía telefónica. De comunicarse en el horario normal de la institución será atendido por la UEN de Servicio al Cliente y de ser en un horario no laboral será atendido vía telefónica por el Centro de Control. Dichas dependencias le indicarán al cliente el procedimiento a seguir para la formalización del reclamo ante la institución.

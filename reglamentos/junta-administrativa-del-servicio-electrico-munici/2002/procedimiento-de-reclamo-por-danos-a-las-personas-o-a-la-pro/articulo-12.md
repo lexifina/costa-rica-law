@@ -1,0 +1,1 @@
+Artículo 12.—Deber del cliente de conservar la prueba. El cliente no podrá disponer de los bienes dañados, para que realice ningún tipo de sustitución o reparación, hasta tanto no hayan sido inspeccionados por los técnicos de la UEN de Distribución en el tiempo establecido para esta acción.

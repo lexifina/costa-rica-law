@@ -1,0 +1,1 @@
+Transitorio II.—Dentro del plazo máximo de cuatro meses, deberán adoptarse las medidas necesarias para que el control de la Póliza de Responsabilidad Civil, que posea JASEC para atender los reclamos establecidas en el presente procedimiento, sea materia propia de la UEN de Servicio al Cliente.

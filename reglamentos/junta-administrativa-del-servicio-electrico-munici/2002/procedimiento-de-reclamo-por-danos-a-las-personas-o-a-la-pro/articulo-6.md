@@ -1,0 +1,1 @@
+Artículo 6º—Plazo para interponer el Reclamo. El cliente podrá presentar su reclamo dentro del plazo de 7 días hábiles con posterioridad al percance, sin perjuicio de lo dispuesto por el artículo 198 de la Ley General de la Administración Pública.

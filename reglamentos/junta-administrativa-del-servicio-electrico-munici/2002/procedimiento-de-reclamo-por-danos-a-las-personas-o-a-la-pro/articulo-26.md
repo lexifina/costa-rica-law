@@ -1,0 +1,1 @@
+Artículo 26.—Plazo para informar a la ARESEP de resolución final. Trimestralmente la UEN de Servicio al Cliente informará a la ARESEP de los casos por Reclamos por Daños recibidos por JASEC, de la resolución final y el tiempo de atención de cada caso.

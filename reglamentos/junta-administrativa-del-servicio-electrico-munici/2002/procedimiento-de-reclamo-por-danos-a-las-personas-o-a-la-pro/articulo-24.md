@@ -1,0 +1,1 @@
+Artículo 24.—De las diligencias de notificación. Para notificar cualquier resolución o dictamen a cualquiera de las partes involucradas en el procedimiento, la UEN de Servicio al Cliente coordinará con el Centro de Documentación o cualquier otro medio, para cumplir con su cometido

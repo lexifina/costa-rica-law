@@ -1,0 +1,2 @@
+Artículo 5º—Registros, controles y estadísticas de reclamos. La UEN de Servicio al Cliente llevará los registros, controles y estadísticas, necesarios para una eficiente y eficaz tramitación de los asuntos que deba resolver. Toda esta información estará a disposición de cualquier interesado.
+Con vista a los resultados que arrojen las estadísticas de Reclamos por Daños, la UEN de Servicio al Cliente tramitará las recomendaciones que considere oportunas a las distintas dependencias de JASEC, sobre las causas de dichos reclamos a fin de que se tomen las medidas oportunas.

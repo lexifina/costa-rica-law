@@ -1,0 +1,1 @@
+Artículo 8º—Falta de legitimación o responsabilidad. No se tramitará ningún reclamo presentado por clientes que estén haciendo uso de servicios provisionales vencidos o ilícitos, así como por consecuencia de eventos provocados por causas de fuerza mayor o por culpa de un tercero.
