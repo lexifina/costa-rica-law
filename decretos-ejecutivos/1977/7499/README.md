@@ -14,3 +14,4 @@ Reglamento para la emisión de bonos de inversión pública 8%, 1977
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-10-04 | la propia norma |
+| 2 | 1981-10-15 | Decreto Ejecutivo 13034 (1981-10-15) |
