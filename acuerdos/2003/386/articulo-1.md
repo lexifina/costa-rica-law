@@ -1,0 +1,11 @@
+Nº AJDIP/386.—Puntarenas, a los doce días del mes de setiembre del dos mil tres.
+Considerando:
+1º—Que esta Junta en aras de fomentar y garantizar la protección de los recursos marinos del Golfo de Nicoya, adoptó el acuerdo AJDIP/318- 2003, de regulación de vedas, determinando áreas y especies restringidas para los meses de setiembre y octubre del 2003.
+2º—Que la Defensoría de los Habitantes atendiendo solicitudes de ciertos pescadores afectados por la disposición normativa señalada, sugirió una modificación al Acuerdo de Vedas, aportando la respectiva propuesta, la cual fue avalada y apoya en pleno por la Comisión de Vedas.
+3º—Que en razón de lo anterior, esta Junta considera conveniente modificar los incisos a), y b), artículo 3º, del Acuerdo de Vedas Nº AJDIP/ 318-2003, publicado en el Diario Oficial La Gaceta Nº 166, del 29 de agosto del 2003. Por tanto:
+Modifíquese los incisos a), y b), artículo 3º, del acuerdo AJDIP/318- 2003, publicado en el Diario Oficial La Gaceta Nº 166, del 29 de agosto del 2003, para que se lea de la siguiente manera: 2003, para que se lea de la siguiente manera:
+"Artículo 3º—
+a- Durante el período comprendido del 1° de octubre al 31 de octubre del 2003, se prohíbe la pesca artesanal utilizando cualquier arte de pesca, sea el trasmallo, la línea y cuerda de mano. Esta regulación se aplica al área comprendida entre una línea recta imaginaria que va desde Punta Torres (84°43´52´´W, 9°53´31´´N) hasta Punta Cuchillos (84º51´50´´W , 9º49´36´´N) y de ahí aguas adentro hasta el extremo occidental de dicho Golfo en la Península de Nicoya (Desembocadura del Río Tempisque).
+b- Durante el período comprendido del 12 de setiembre al 30 de setiembre del año en curso, se permitirá el uso de cuerdas de mano, durante las veinticuatro horas del día y la utilización de línea de fondo (Planera), únicamente de día esta última (de las 6:00 a las 18:00 horas), con un máximo de 100 anzuelos número 6 o inferior, ambos artes de pesca en la zona comprendida entre una línea recta imaginaria que va desde el muelle de cruceros de la Ciudad de Puntarenas (84º49´51´´W , 9º58´26´´N) hasta el lugar conocido como Punta Llorona (84º54´20´´W , 9º51´45´´N) y de ella hasta el extremo occidental de dicho Golfo en la Península de Nicoya (desembocadura del Río Tempisque).
+Acuerdo firme.
+Puntarenas, 24 de setiembre del 2003.—
