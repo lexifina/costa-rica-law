@@ -1,0 +1,1 @@
+Artículo 4°—El quórum para sesionar será de cuatro de sus integrantes. Las decisiones se tomarán por mayoría simple de integrantes presentes. En caso de empate la Presidencia contará con doble voto. El resultado de las votaciones se hará constar en las actas correspondientes.

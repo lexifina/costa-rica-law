@@ -1,0 +1,1 @@
+Artículo 6°—La adjudicación de licitaciones públicas, por registro y restringidas la realizará la Junta Directiva. La adjudicación de las contrataciones directas la realizará la Gerencia, la Dirección Administrativa y la Coordinación de Servicios Administrativos, según los rangos que, en razón del monto, establezca la Gerencia.
