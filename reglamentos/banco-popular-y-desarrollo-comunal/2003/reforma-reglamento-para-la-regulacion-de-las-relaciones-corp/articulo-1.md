@@ -1,0 +1,4 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional en sesión ordinaria Nº 4152 celebrada el 29 de setiembre del 2003, acordó por unanimidad de los presentes:
+"1º—Modificar el inciso d) del artículo 8 del Reglamento para la regulación de las relaciones corporativas del Banco Popular y de Desarrollo Comunal y sus Sociedades, aprobado en sesión de Junta Directiva Nacional Nº 3880, celebrada el 24 de julio del 2001 y reformado en sesión de Junta Directiva Nacional Nº 3987 del 6 de abril del 2002, para que se lea así:
+Poseer título universitario con el grado mínimo de bachiller, salvo en el caso de la Operadora de Pensiones, en la cual bastará que dos de sus integrantes cuenten con estudios y experiencia en operaciones financieras, lo que será determinado por la Junta Directiva Nacional en el acto de nombramiento.
