@@ -16,3 +16,4 @@ Dispone el inicio de traspaso de propiedades del Estado a Japdeva
 | 1 | 1964-09-29 | la propia norma |
 | 2 | 1966-04-29 | Decreto Ejecutivo 12 (1966-04-29) |
 | 3 | 1967-09-19 | Decreto Ejecutivo 23 (1967-09-19) |
+| 4 | 1969-07-08 | Decreto Ejecutivo 19 (1969-07-08) |
