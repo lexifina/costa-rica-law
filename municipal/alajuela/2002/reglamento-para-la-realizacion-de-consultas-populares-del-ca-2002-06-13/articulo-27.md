@@ -1,0 +1,1 @@
+Artículo 27.—Requisito para destitución. Para que la destitución del Alcalde Municipal, titular o suplentes sea procedente, se requiere al menos los votos favorables de dos tercios del total de los votos emitidos en el plebiscito y que esos dos tercios no sean inferiores al diez por ciento del total de los electores inscritos en el cantón de Alajuela.

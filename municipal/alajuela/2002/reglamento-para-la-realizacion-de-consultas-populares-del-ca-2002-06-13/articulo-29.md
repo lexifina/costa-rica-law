@@ -1,0 +1,3 @@
+Artículo 29.—De la reposición de los suplentes. Si también son destituidos los dos alcaldes suplentes o si éstos renuncian; el Concejo Municipal solicitará al Tribunal Supremo de Elecciones que convoque a nuevas elecciones para Alcalde Municipal del cantón.
+La nueva elección se hará en un plazo máximo de seis meses y el nombramiento será por el resto del período.
+Mientras se lleva a cabo la elección, el Presidente del Concejo asumirá como recargo el puesto, con las atribuciones y responsabilidades que se le confieren al puesto.

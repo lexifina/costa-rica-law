@@ -1,0 +1,2 @@
+Artículo 24.—Del escrutinio. Al final de la jornada electoral, cada junta receptora realizará el escrutinio provisional de los votos recabados, cuyo resultado certificará y enviará de inmediato, con el resto del material electoral, al Concejo Municipal, siguiendo para ello las instrucciones que oportunamente éste haya girado.
+El Concejo Municipal realizará el escrutinio definitivo, con presencia de los delegados que haya designado el Tribunal Supremo de elecciones, a más tardar, quince días después a la celebración de la consulta.

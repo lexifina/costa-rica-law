@@ -1,0 +1,1 @@
+Artículo 15.—De la discusión de las propuestas. El Concejo Municipal tomará las medidas necesarias para garantizar la libertad necesaria para el planteo y examen de las distintas opciones que plantea la consulta popular, disponiendo un tiempo razonable para la divulgación y análisis de las diversas alternativas por parte de los habitantes del cantón.

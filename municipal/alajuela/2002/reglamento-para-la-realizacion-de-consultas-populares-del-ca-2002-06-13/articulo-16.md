@@ -1,0 +1,2 @@
+Artículo 16.—De la propaganda. El Concejo Municipal establecerá los límites de la propaganda para las diferentes propuestas, debiendo cerrarse el período de campaña al menos un día antes de la realización del plebiscito o referendo.
+El Concejo Municipal tiene la responsabilidad de velar porque la información que circule sea veraz, respetuosa, y no induzca a confusión a los electores.
