@@ -1,0 +1,1 @@
+Artículo 9° Las personas que estuvieren en el caso de esta ley, no obstante estar disfrutando conforme la ley N°1922 de 5 de agosto de 1955, podrán revisar lso mismos para ajustarlo a la forma indicada en la presente.
