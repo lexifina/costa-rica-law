@@ -1,6 +1,1 @@
-Artículo 16.- Los miembros de la Junta Directiva durarán en sus
-cargos dos años, pudiendo ser reelectos, y sólo podrán ser removidos
-cuando a juicio de la mayoría de la Asamblea General, hayan incurrido en
-responsabilidad legalmente comprobada; o fueren declarados en incapacidad
-para el ejercicio del cargo, o cuando faltare a cuatro sesiones
-consecutivas sin causa justificada.
+Artículo 16.- Los miembros de la Junta Directiva durarán en sus cargos dos años, pudiendo ser reelectos, y sólo podrán ser removidos cuando a juicio de la mayoría de la Asamblea General, hayan incurrido en responsabilidad legalmente comprobada; o fueren declarados en incapacidad para el ejercicio del cargo, o cuando faltare a cuatro sesiones consecutivas sin causa justificada.

@@ -1,9 +1,1 @@
-Artículo 28.- A fin de que el Poder Ejecutivo pueda estar en
-condiciones de fijar en el proyecto de ley de Presupuesto General de la
-República, la subvención que a bien tuviere, a más tardar el 31 de julio
-de cada año, la Junta Directiva remitirá a la Oficina de Planificación de
-la Presidencia de la República, una estimación razonada de sus
-necesidades para el próximo período fiscal. Es entendido que para el
-período fiscal de 1973 no rige esta disposición. Asimismo los
-presupuestos de la Institución serán sometidos a la Contraloría General
-de la República para su aprobación y liquidación conforme a la ley.
+Artículo 28.- A fin de que el Poder Ejecutivo pueda estar en condiciones de fijar en el proyecto de ley de Presupuesto General de la República, la subvención que a bien tuviere, a más tardar el 31 de julio de cada año, la Junta Directiva remitirá a la Oficina de Planificación de la Presidencia de la República, una estimación razonada de sus necesidades para el próximo período fiscal. Es entendido que para el período fiscal de 1973 no rige esta disposición. Asimismo los presupuestos de la Institución serán sometidos a la Contraloría General de la República para su aprobación y liquidación conforme a la ley.
