@@ -1,0 +1,1 @@
+ARTICULO 4°.-La Dirección General de Museos se encargará de brindar y coordinar la asesoría técnica museológica que las comunidades e instituciones museísticas lo requieran, con el propósito de proteger adecuadamente el patrimonio cultural costarricense.

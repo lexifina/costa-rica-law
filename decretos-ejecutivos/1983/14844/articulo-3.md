@@ -1,0 +1,1 @@
+ARTICULO 3°.-Los museos regionales existentes (Arte Religioso en Orosi, Arte Religioso en Nicoya, Histórico de Santa Rosa), y los que están en proceso de planificación estarán bajo la dirección técnica de la Dirección General de Museos.
