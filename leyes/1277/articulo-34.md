@@ -1,0 +1,1 @@
+Artículo 34.- Esta ley es de orden público y rige desde el día de su publicación. Deroga cualquier otra disposición anterior que se le oponga, dejando expresamente derogado el Decreto-Ley N°288 de 7 de diciembre de 1948.

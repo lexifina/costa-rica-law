@@ -1,0 +1,2 @@
+Artículo 30.- Participará también en el Consejo, con voz pero sin voto, el Director General de Tránsito. La Dirección General del Tránsito acatará las instrucciones y órdenes que le gire el Consejo Superior del Tránsito, de acuerdo con el ejercicio de sus atribuciones propias; también adoptará medidas provisionales que favorezcan el servicio público y no menoscaben las atribuciones del Consejo.
+Las resoluciones del Consejo no admiten recurso alguno, quedando a los interesados el derecho de ocurrir a la vía contencioso-administrativa.
