@@ -1,0 +1,1 @@
+ARTICULO 2°.- El aumento que se perciba de conformidad con el artículo anterior, se destinar a los gastos corrientes de la Administración Pública, dando preferencia al Servicio Exterior de la República.
