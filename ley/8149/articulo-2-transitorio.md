@@ -1,0 +1,2 @@
+TRANSITORIO II.- Los servidores de la Dirección de Investigaciones Agropecuarias que deseen continuar prestando sus servicios al Instituto Nacional de Innovación Tecnológica Agropecuaria, conservarán todos sus derechos adquiridos con anterioridad a la vigencia de esta Ley.
+A los servidores que no deseen continuar su relación laboral con el Instituto y así lo manifiesten en el término de tres meses contados a partir de la vigencia de esta Ley, se les cancelarán sus prestaciones legales con base en la legislación vigente.

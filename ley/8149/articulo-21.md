@@ -1,0 +1,1 @@
+ARTÍCULO 21.- Las contribuciones, donaciones y los otros aportes económicos que cualquier persona física o jurídica le dé al Instituto, así como la compra de equipo, vehículos, maquinaria e insumos necesarios para la investigación, estarán exonerados del pago de todo tipo de timbres y de los impuestos de la renta, ventas y traspaso.
