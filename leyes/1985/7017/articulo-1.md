@@ -7455,3 +7455,4 @@ e) Los juguetes del Capítulo 97.
 artí
 (NOTA: El Decreto Ejecutivo No. 28230 modifica los Derechos Arancelarios a la Importación de Calamares)
 (Modificado mediante Decreto Ejecutivo N° 29955 de 01 de noviembre de 2001)
+(Modificado mediante Decreto Ejecutivo N° 30917 de 13 de diciembre de 2001, en cuanto a Derechos Arancelarios a la Importación productos varios )
