@@ -1,0 +1,22 @@
+ARTICULO 102.- En las cuestiones de competencia, los
+Tribunales Superiores conocerán, según la materia:
+1.- De las que se susciten entre los Juzgados Civiles,
+Agrarios, Penales, de Trabajo, Tutelares de Menores, de Familia o
+Contencioso-administrativos y Civiles de Hacienda en su
+territorio.
+Si los juzgados pertenecieren a la jurisdicción de
+Tribunales Superiores de diferente territorio, tocará decidir la
+competencia al Tribunal Superior de Casación respectivo y de no
+haberlo, a la respectiva Sala de la Corte, para lo cual tomará en
+cuenta la materia o el territorio.
+2.- De los conflictos que se planteen entre juzgados o
+alcaldías de territorios diferentes pero de igual materia. En
+estos casos, resolverá la competencia el tribunal superior del
+territorio al que pertenezca el juzgado o la alcaldía ante quien
+se presentó el asunto o previno en su conocimiento.
+Si los juzgados y alcaldías fueren de diversa materia, del
+mismo o diferente territorio, tocará decidir al respectivo
+Tribunal de Casación. El asunto se tendrá como de la materia ante
+quien se presentó o previno en su conocimiento. Igual regla se
+aplicará si se tratare de conflicto entre tribunales superiores
+de distinta materia, fueren o no fueren de igual territorio.

@@ -1,0 +1,8 @@
+ARTICULO 129.- Las funciones del actuario no restringen la
+competencia del jefe de la oficina, quien podrá intervenir en la
+tramitación y decisión de los diversos asuntos aunque sean de los
+que corresponda resolver al actuario; pero el jefe de la oficina
+debe dictar y firmar sus propias resoluciones, y el actuario
+quedará exento de toda responsabilidad que pudiere establecerse
+por la ejecución de ellas o por la dirección impartida al
+proceso, en virtud de las mismas.

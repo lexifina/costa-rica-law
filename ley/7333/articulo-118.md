@@ -1,0 +1,21 @@
+ARTICULO 118.- En los lugares en que hubiere alcaldía, pero
+no juzgado de instrucción y agencia fiscal, las alcaldías deberán
+iniciar, de oficio, la investigación de los delitos que no sean
+de acción privada ni de acción dependiente de instancia privada,
+en los que solo podrá actuar por denuncia de quien tenga facultad
+para instar.
+Si se tratare de un caso de citación directa, las alcaldías
+actuarán con facultades de agencia fiscal, para dar cumplimiento
+a lo dispuesto en el párrafo anterior y si el asunto
+correspondiere a la instrucción judicial, tendrán las funciones
+de juez de instrucción. En estos casos, cuando los alcaldes
+actúen de oficio o por denuncia, deberán comunicarlo, de
+inmediato, a la agencia fiscal o al juzgado de instrucción,
+quienes podrán asumir la investigación en cualquier momento. La
+alcaldía actuará como si hubiere sido comisionada al efecto y se
+entiende que existe comisión, mientras la agencia fiscal o el
+juzgado de instrucción no disponga lo contrario.
+Una vez practicada la investigación, la alcaldía enviará el
+asunto a la correspondiente agencia fiscal, si el procedimiento
+aplicable fuere el de citación directa o al juzgado de
+instrucción, en los demás casos.

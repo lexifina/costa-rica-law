@@ -1,0 +1,11 @@
+ARTICULO 153.- El Jefe del Departamento de Defensores
+Públicos o quien éste designe, gestionará ante la autoridad
+correspondiente, la fijación y el cobro de los honorarios por los
+servicios prestados.
+Constituirá título ejecutivo, la certificación que se expida
+sobre el monto de los honorarios a cargo del imputado. De oficio,
+la autoridad que conoce del proceso ordenará el embargo en bienes
+del deudor en cantidad suficiente para garantizar el pago de los
+honorarios. El defensor a quien corresponda hacer las diligencias
+de cobro, ejercerá todas las acciones judiciales o
+extrajudiciales necesarias para hacerlo efectivo.

@@ -1,0 +1,16 @@
+ARTICULO 25.- No pueden administrar justicia:
+1.- Quien sea cónyuge, ascendiente o descendiente, hermano,
+cuñado, tío, sobrino carnal, suegro, yerno, nuera, padrastro,
+hijastro, padre o hijo adoptivo de un superior que pueda conocer
+en grado de sus resoluciones. Esta prohibición no compromete las
+relaciones de familia entre los Magistrados-suplentes, que
+accidentalmente puedan integrar una Sala, de acuerdo con lo
+dispuesto en la Constitución Política, y los funcionarios
+ordinarios del Poder Judicial. Aquellos deben declararse
+inhibidos para conocer los asuntos en que hayan intervenido sus
+parientes.
+2.- Quien sea pariente por consanguinidad o afinidad, dentro
+del segundo grado inclusive, de un integrante de un tribunal
+colegiado.
+3.- Quien tenga motivo de impedimento o que haya sido
+separado por excusa o recusación en determinado negocio.

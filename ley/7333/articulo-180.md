@@ -1,0 +1,7 @@
+ARTICULO 180.- Cada tribunal remitirá al Consejo, en la
+primera quincena del mes de enero de cada año, un informe del
+trabajo realizado durante el año anterior, con especial
+señalamiento del orden en la resolución de las causas de acuerdo
+con la fecha de ingreso, urgencia y gravedad, así como cualquier
+otro asunto de interés relativo a la administración de justicia
+en la respectiva circunscripción.

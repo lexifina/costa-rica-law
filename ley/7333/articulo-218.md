@@ -1,0 +1,17 @@
+ARTICULO 218.- Las partes y sus abogados directores serán
+corregidos, disciplinariamente, con cinco a veinte días multa
+cuando en los asuntos en que intervengan o con motivo de ellos,
+dentro o fuera de juicio, de palabra o por escrito, por
+correspondencia privada o por cualquier medio de comunicación
+colectiva, injurien o difamen a los tribunales o a los
+funcionarios judiciales, sin perjuicio de las responsabilidades
+penales correspondientes.
+Los abogados podrán, en lugar de la multa, en casos graves,
+ser suspendidos hasta por seis meses por la Corte o por el
+Consejo Superior, en los casos previstos en este artículo.
+Si el ataque al funcionario fuere de obra, se aplicará a la
+parte, la multa en el máximun y al profesional la suspensión en
+el extremo mayor.
+En caso de reincidencia, la Corte o el Consejo comunicarán a
+la Junta Directiva del Colegio de Abogados la falta para que
+resuelva si aplica el régimen disciplinario.

@@ -1,0 +1,21 @@
+ARTICULO 63.- Los Magistrados suplentes, escogidos por
+sorteo para reponer la falta temporal de un propietario,
+desempeñarán sus funciones por el tiempo que dure ésta; los
+llamados para reponer una falta absoluta, por todo el tiempo que
+transcurre sin que la Asamblea Legislativa llene la vacante y dé
+posesión al Magistrado nuevamente electo.
+Sin embargo, si el Suplente estorbare el funcionamiento
+normal del tribunal, por su irregular asistencia o por cualquier
+otro motivo calificado, la Sala dará cuenta al Presidente de la
+Corte para que sea repuesto por nuevo sorteo.
+Cuando algún Magistrado suplente debiera ejercer la
+Magistratura por un lapso mayor de tres meses, entrará en receso
+de sus funciones de abogado y notario por todo el tiempo de ese
+ejercicio; pero al vencer su cargo recobrará, por el mismo hecho,
+las citadas funciones, sin necesidad de reponer la garantía
+vigente.
+Los Magistrados suplentes devengarán dietas por día de
+trabajo o sesión, proporcionales a la remuneración de los
+propietarios. Cuando fuesen pensionados o jubilados de cualquier
+régimen, el desempeño del cargo por más de un mes, suspenderá el
+goce de su pensión o jubilación.
