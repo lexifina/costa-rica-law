@@ -1,2 +1,0 @@
-Artículo 6°—La Oficina de Proveeduría en coordinación con el órgano competente para iniciar cada tipo de procedimiento, establecerá la procedencia o no de utilizar la modalidad de licitación con subasta a la baja y con precalifícación.
-El inicio de un procedimiento con modalidad de licitación con financiamiento, únicamente podrá ser autorizado por la Junta Directiva. En este último caso, se deberá contar además con las autorizaciones que exija el ordenamiento jurídico.

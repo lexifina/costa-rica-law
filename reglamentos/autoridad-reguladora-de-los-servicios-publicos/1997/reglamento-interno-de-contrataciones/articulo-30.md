@@ -1,1 +1,0 @@
-Artículo 30.— Una vez iniciado un procedimiento de contratación, el expediente respectivo permanecerá al acceso de cualquier interesado que desee consultarlo. Todo documento que se genere relacionado con el procedimiento, deberá ser incorporado al expediente a más tardar un día hábil después de haber sido emitido o recibido.

@@ -1,1 +1,0 @@
-Artículo 32.—Una vez formado el expediente a que se refiere el artículo 29 de este Reglamento, la Proveeduría procederá a cursar las invitaciones que correspondan según el procedimiento de contratación respectivo.

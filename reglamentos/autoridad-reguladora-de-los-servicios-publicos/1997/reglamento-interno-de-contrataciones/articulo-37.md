@@ -1,1 +1,0 @@
-Artículo 37.—La Proveeduría cursara invitación, para tal efecto hará llegar solicitud escrita al proveedor o bien podrá utilizar el fax o el correo electrónico como medio de invitación a participar en las licitaciones por registro, las licitaciones restringidas y los supuestos de prescindencia de los procedimientos ordinarios según el monto.

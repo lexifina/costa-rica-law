@@ -1,2 +1,0 @@
-Artículo 41.—Para el análisis de las ofertas las dependencias técnicas de la Institución, deberán brindar su colaboración a la Oficina de Proveeduría.
-En el caso de adquisiciones, se requerirá en particular la opinión de la dependencia a la cual vaya dirigido el bien o el servicio. Para la emisión de la opinión, la dependencia respectiva deberá sujetarse al plazo indicado por la Proveeduría, que se establecerá de acuerdo con el principio de celeridad y eficiencia, en forma razonable y proporcional al plazo de adjudicación.

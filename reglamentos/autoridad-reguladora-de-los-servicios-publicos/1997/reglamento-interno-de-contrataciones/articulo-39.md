@@ -1,1 +1,0 @@
-Artículo 39.—La Proveeduría llevara un Libro de Actas en donde se dejará constancia de las ofertas presentadas en procedimientos de licitación pública, por registro y restringida, levantando un asiento para cada concurso, con indicación al menos del oferente, el precio, la vigencia y la garantía presentada, agregando cualquier otro dato de interés que considere oportuno.

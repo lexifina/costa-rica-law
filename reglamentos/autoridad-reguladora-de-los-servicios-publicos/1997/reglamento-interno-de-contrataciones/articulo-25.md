@@ -1,1 +1,0 @@
-Artículo 25.—Un proveedor podrá ser excluido del Registro cuando se le aplique la sanción de inhabilitación contenida en el artículo 100 de la Ley de Contratación Administrativa, luego de los procedimientos de rigor.

@@ -1,4 +1,0 @@
-Artículo 35.—En las licitaciones restringidas, la Proveeduría invitará a los proveedores inscritos, de acuerdo con los siguientes criterios:
-a) Se reconocerá el historial de cumplimiento del proveedor que en ese momento ejecute satisfactoriamente sus obligaciones contractuales o lo haya hecho anteriormente, de modo que sea nuevamente invitado a participar.
-b) Se procurará en el transcurso del tiempo dar oportunidad de participación al mayor número posible de proveedores inscritos. Para dar cumplimiento a este precepto, la Proveeduría decidirá en cuales casos invitar a más de cinco inscritos.
-Cuando el número de inscritos sea inferior a cinco, la Proveeduría podrá continuar los procedimientos dejando constancia expresa de tal circunstancia en el expediente, de conformidad con lo que establece el artículo 60 y subsiguientes del Reglamento General de Contratación Administrativa,

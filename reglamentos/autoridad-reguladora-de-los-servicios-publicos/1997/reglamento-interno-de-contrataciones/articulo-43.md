@@ -1,1 +1,0 @@
-Artículo 43.—La comparación y evaluación de las ofertas elegibles se hará en apego a la metodología contenida en el cartel. Únicamente cuando la adjudicación resulte contraria o inconveniente a los intereses de la Institución, podrá declarase desierto el concurso, mediante acto debidamente razonado y con indicación de las fallas de la metodología que llevaron a tal situación.

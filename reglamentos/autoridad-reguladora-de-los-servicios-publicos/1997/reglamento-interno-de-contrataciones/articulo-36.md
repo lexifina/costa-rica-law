@@ -1,4 +1,0 @@
-Artículo 36.—En los casos de exclusión de los procedimientos ordinarios por razón del monto, la Proveeduría actuará de la siguiente manera:
-a) En las contrataciones hasta por ¢1.000.000,00, se procederá a solicitar cotización al proveedor inscrito que considere más conveniente para los intereses de la Autoridad Reguladora. En caso de que la cotización resulte satisfactoria, podrá realizar con autorización competente la contratación.
-b) En las contrataciones por un monto superior a ¢1.000.000,00, y hasta por el monto máximo de exclusión de procedimientos ordinarios por el monto, la Proveeduría procederá a pedir cotizaciones a proveedores inscritos en el Registro. En todo lo demás, se someterá a las reglas de comparación de ofertas establecidas en la invitación.
-En los dos supuestos anteriores, se dejará constancia expresa en el expediente de todo lo actuado.

@@ -1,1 +1,0 @@
-Artículo 26.—Además de su inclusión en la base de datos del Registro de Proveedores, de cada proveedor se llevará un expediente individual, en donde se dejará constancia de las invitaciones formuladas, de las adjudicaciones efectuadas y un balance del cumplimiento de sus obligaciones.
