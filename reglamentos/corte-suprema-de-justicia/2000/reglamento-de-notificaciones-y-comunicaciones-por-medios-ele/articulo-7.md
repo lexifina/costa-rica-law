@@ -1,0 +1,1 @@
+Artículo 7.- Si por error se enviare una notificación electrónica a un destinatario que no corresponde, éste comunicará de inmediato tal situación al despacho judicial de origen, para que lo enmiende y proceda a remitir la notificación electrónica a la oficina correcta. A partir de ese momento, se tendrá por efectuada la notificación.

@@ -1,0 +1,1 @@
+Artículo 9.- Si el proceso de transmisión en el despacho judicial se interrumpe por cualquier motivo, cuando éste se restablezca, el servidor judicial encargado de efectuar la notificación electrónica, deberá verificar en la pantalla cuáles notificaciones no fueron transmitidas, para proceder de inmediato a realizar su transmisión.

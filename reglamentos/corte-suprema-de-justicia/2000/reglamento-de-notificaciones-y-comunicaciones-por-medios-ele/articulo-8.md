@@ -1,0 +1,1 @@
+Artículo 8.- En caso de que el contenido de la resolución notificada electrónicamente esté incompleto, el despacho o la parte notificada, deberá comunicarlo por la vía telefónica dentro de las cuatro horas hábiles siguientes al recibo de la notificación, al despacho judicial de origen, el que dejará constancia de lo anterior y procederá conforme a derecho.

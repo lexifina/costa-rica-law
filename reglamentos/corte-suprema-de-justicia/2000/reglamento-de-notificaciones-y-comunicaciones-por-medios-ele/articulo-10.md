@@ -1,0 +1,1 @@
+Artículo 10.- En caso de que el Sistema de Envío Electrónico de Notificaciones se interrumpa por más de una audiencia, el Juez determinará si la notificación debe realizarse en el lugar señalado por la parte con tal de no irrogar indefensión.

@@ -1,0 +1,1 @@
+Artículo 11.- Las oficinas o despachos judiciales deberán dar aviso al Departamento de Informática o al Administrador del respectivo Circuito Judicial, tan pronto como se detecten fallas en la infraestructura tecnológica que soporta el Sistema de Envío de Notificaciones.

@@ -1,0 +1,1 @@
+Artículo 12.- El Departamento de Informática o, en su caso, el Administrador del correspondiente Circuito Judicial, será responsable del buen estado de funcionamiento del Sistema de Envío Electrónico de Notificaciones.

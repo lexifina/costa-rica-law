@@ -1,0 +1,1 @@
+Artículo 4.- El notificando se tendrá por notificado a partir del día siguiente del envío de la comunicación, es decir, en el momento en que el funcionario o el auxiliar judicial designado, pulse la opción de envío en el sistema y quede registrada en el buzón de la oficina, despacho o parte que se notifica.
