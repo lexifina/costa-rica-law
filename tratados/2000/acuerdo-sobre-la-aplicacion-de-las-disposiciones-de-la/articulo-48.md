@@ -1,0 +1,4 @@
+Artículo 48
+Anexos
+1.- Los Anexos son parte integrante del presente Acuerdo y, salvo que se disponga expresamente otra cosa, toda referencia al Acuerdo o a alguna de sus partes constituye asimismo una referencia a los Anexos correspondientes.
+2.- Los Estados Partes podrán revisar los Anexos periódicamente. Las revisiones obedecerán a consideraciones científicas y técnicas. No obstante lo dispuesto en el artículo 45, la revisión de un Anexo que sea aprobada por consenso en una reunión de los Estados Partes será incorporada al presente Acuerdo y entrará en vigor en la fecha en que sea aprobada o en la fecha que se especifique en la revisión. En caso de que la revisión de un Anexo no sea aprobada por consenso en dicha reunión, serán aplicables los procedimientos de enmienda enunciados en el artículo 45.

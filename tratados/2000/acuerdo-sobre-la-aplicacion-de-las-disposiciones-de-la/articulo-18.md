@@ -1,0 +1,24 @@
+PARTE V
+DEBERES DEL ESTADO DEL PABELLÓN
+Artículo 18
+Deberes del Estado del Pabellón
+1.- Todo Estado cuyos buques pesquen en alta mar adoptará las medidas que sean necesarias para que los buques que enarbolen su pabellón cumplan las medidas subregionales y regionales de conservación y ordenación y para que esos buques no realicen actividad alguna que pueda ir en detrimento de la eficacia de esas medidas.
+2.- Todo Estado autorizará a los buques que enarbolen su pabellón a pescar en alta mar sólo en los casos en que pueda asumir eficazmente sus responsabilidades con respecto a tales buques en virtud de la Convención y del presente Acuerdo.
+3.- Todo Estado adoptará, en particular, respecto de los buques que enarbolen su pabellón la medidas siguientes:
+a) El control de dichos buques en alta mar mediante la expedición de licencias, autorizaciones o permisos de pesca, de conformidad con los procedimientos aplicables convenidos en los planos subregional, regional o mundial, si los hubiere.
+b) La promulgación de reglamentos con el fin de:
+i) Incluir condiciones en la licencia, autorización o permiso que sean suficientes para dar cumplimiento a las obligaciones que incumban al Estado del pabellón en los planos subregional, regional o mundial.
+ii) Prohibir la pesca en alta mar a los buques que no tengan la licencia o autorización debidas o que pesquen de manera distinta a la establecida en los términos y condiciones de la licencia, autorización o permiso.
+iii) Exigir que los buques que pesquen en alta mar lleven a bordo en todo momento la licencia, autorización o permiso y los presenten para su inspección a toda persona debidamente autorizada; y
+iv) Asegurar que los buques que enarbolen su pabellón no pesquen sin autorización dentro de zonas que se encuentran bajo la jurisdicción nacional de otros Estados.
+c) El establecimiento de un registro nacional de buques pesqueros autorizados para pescar en alta mar y el otorgamiento de acceso a la información contenida en dicho registro a los Estados directamente interesados que la soliciten, teniendo en cuenta la legislación nacional pertinente del Estado del pabellón sobre la comunicación de esa información.
+d) La adopción de reglas para la marca de buques y aparejos de pesca a los efectos de su identificación de conformidad con sistemas uniformes e internacionalmente reconocidos, como las Especificaciones Uniformes para el marcado e identificación de las embarcaciones pesqueras, establecidas por la Organización de las Naciones Unidas para la Agricultura y la Alimentación.
+e) El establecimiento de reglas sobre registro y comunicación oportuna de la posición del buque, la captura de especies objeto de la pesca y las capturas accidentales, el esfuerzo de pesca y demás datos pertinentes concernientes a la pesca de conformidad con las normas subregionales, regionales y mundiales para la obtención de tales datos.
+f) El establecimiento de reglas para la verificación de la captura de especies objeto de la pesca y de las capturas accidentales por medio de programas de observación, planes de inspección, informes sobre descarga, supervisión del transbordo y control de las capturas descargadas y las estadísticas de mercado.
+g) El seguimiento, el control y la vigilancia de tales buques, y de sus operaciones pesqueras y actividades conexas, en particular mediante:
+i) La puesta en práctica de mecanismos de inspección nacionales y mecanismos subregionales y regionales de cooperación en la ejecución con arreglo a los artículos 21 y 22, que incluyan la obligación para dichos buques de autorizar el acceso a bordo de inspectores debidamente autorizados de otros Estados.
+ii) La puesta en práctica de programas de observación nacionales, subregionales y regionales en los que participe el Estado del pabellón, que incluyan la obligación para dichos buques de autorizar el acceso a bordo de observadores de otros Estados para que cumplan las funciones convenidas en virtud del programa; y
+iii) La elaboración y puesta en práctica de sistemas de vigilancia de buques, que incluyan, cuando sea adecuado, sistemas de transmisión por satélite, de conformidad con los programas nacionales y los que se hubiesen acordado en los planos subregional, regional y mundial entre los Estados interesados.
+h) La reglamentación del transbordo en alta mar a fin de asegurar que no se menoscabe la eficacia de las medidas de conservación y ordenación; e
+i) La reglamentación de las actividades pesqueras a fin de asegurar el cumplimiento de las medidas subregionales, regionales o mundiales, incluidas las medidas para minimizar las capturas accidentales.
+4.- En los casos en que esté en vigor un sistema subregional, regional o mundial de seguimiento, control y vigilancia, los Estados se asegurarán de que las medidas que imponen a los buques que enarbolan su pabellón sean compatibles con ese sistema.

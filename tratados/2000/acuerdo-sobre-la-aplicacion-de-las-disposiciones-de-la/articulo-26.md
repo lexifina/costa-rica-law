@@ -1,0 +1,4 @@
+Artículo 26
+Asistencia especial para la aplicación del presente Acuerdo
+1.- Los Estados cooperarán en la creación de fondos especiales con objeto de asistir a los Estados en desarrollo en la aplicación del presente Acuerdo, lo que incluirá asistencia a estos Estados para sufragar los gastos derivados de su participación en los procedimientos de solución de controversias.
+2.- Los Estados y las organizaciones internacionales deberían prestar asistencia a los Estados en desarrollo en el establecimiento de nuevas organizaciones o arreglos subregionales o regionales de ordenación pesquera, así como en el fortalecimiento de las organizaciones o arreglos ya existentes, a fines de la conservación y ordenación de las poblaciones de peces transzonales y las poblaciones de peces altamente migratorios

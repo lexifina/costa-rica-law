@@ -1,0 +1,5 @@
+Artículo 31
+Medidas provisionales
+1.- A la espera de que se solucione una controversia de conformidad con esta Parte, las Partes en la controversia harán todo lo posible por concertar arreglos provisionales de orden práctico.
+2.- Sin perjuicio del artículo 290 de la Convención, la corte o el tribunal a que se haya sometido la controversia con arreglo a esta Parte podrá decretar las medidas provisionales que considere adecuadas, en vista de las circunstancias, para preservar los respectivos derechos de las Partes en la controversia o para prevenir cualquier daño a la población de que se trate, así como en las circunstancias a que se hace referencia en el párrafo 5 del artículo 7 y el párrafo 2 del artículo 16.
+3.- Un Estado Parte en el presente Acuerdo que no sea Parte en la Convención podrá declarar que, no obstante el párrafo 5 del artículo 290 de la Convención, el Tribunal Internacional del Derecho del Mar no podrá decretar, modificar o revocar medidas provisionales sin el consentimiento de dicho Estado.
