@@ -1,0 +1,1 @@
+Articulo 14.-Corresponderá al Departamento de Vigilancia Epidemiológica la planificación y evaluación del sistema, el análisis de la información rutinaria producida, la elaboración de las recomendaciones y normas generales, la supervisión y la investigación epidemiológica.

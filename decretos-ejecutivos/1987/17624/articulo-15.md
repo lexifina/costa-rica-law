@@ -1,0 +1,1 @@
+Artículo 15. -Los equipos de vigilancia del nivel local, estarán integrados por el médico director del centro de salud correspondiente, la enfermera jefa y auxiliares de enfermería, el microbiólogo jefe del laboratorio y asistentes de laboratorio, el supervisor y técnicos de saneamiento ambiental y los inspectores de fiebre amarilla y malaria.

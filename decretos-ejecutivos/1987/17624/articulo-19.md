@@ -1,0 +1,1 @@
+Artículo 19.-En el caso de que los barcos y vehículos de carretera o de cualquier otro tipo provengan de zonas consideradas como no infestadas siempre se efectuará la inspección de rutina que al efecto realicen los inspectores del Programa de Fiebre Amarilla o cualquier otra autoridad de salud, conforme con las normas técnicas establecidas sobre la materia.

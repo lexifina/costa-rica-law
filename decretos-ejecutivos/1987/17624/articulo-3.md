@@ -1,0 +1,1 @@
+Artículo 3°-El Departamento de Vigilancia Epidemiológica del Ministerio de Salud, será el responsable de normar, coordinar, supervisar, controlar y evaluar todo lo referente a la materia objeto de este Reglamento.

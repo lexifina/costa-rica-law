@@ -1,0 +1,1 @@
+Articulo 10.-Los médicos directores de los centros de salud de Puntarenas, Limón y Alajuela, se considerarán miembros natos de las respectivas Juntas Regionales de Vigilancia Epidemiológica y los jefes inmediatos de los equipos de vigilancia que operen en los puertos de Puntarenas, Caldera, Limón, Moín y en el Aeropuerto Internacional Juan Santamaría.

@@ -1,0 +1,1 @@
+Artículo 16.-Las autoridades administrativas existentes en aeropuertos, puestos fronterizos y de atención a refugiados estarán obligados a brindar el apoyo necesario a las autoridades de salud y a los equipos de vigilancia epidemiológica con motivo de la aplicación del presente.

@@ -1,0 +1,1 @@
+Articulo 20.-Toda aeronave que arribe al Aeropuerto Internacional Juan Santamaría, debe ser desinfectada con piretroides, veinte (20) minutos antes de su aterrizaje, lo cual deberá ser certificado por el comandante de la aeronave o su representante en la parte sanitaria de la declaración de aeronave y entregada a las autoridades sanitarias destacadas en el aeropuerto.

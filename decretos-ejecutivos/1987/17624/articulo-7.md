@@ -1,0 +1,1 @@
+Artículo 7°-La Junta Regional de Vigilancia Epidemiológica, será la responsable de organizar, integrar, dirigir, coordinar, supervisar, controlar y evaluar a los equipos de vigilancia destacados en los puertos, aeropuertos y puestos fronterizos o de atención a refugiados de su jurisdicción.

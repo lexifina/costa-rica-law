@@ -1,0 +1,1 @@
+Artículo 21.-Los puestos fronterizos y otras localidades que carezcan de centros de salud serán cubiertos por los equipos de vigilancia epidemiológica establecidos en el centro de salud más cercano. Dicho responsable de la correcta aplicación de las normas técnicas y administrativos y para los efectos del presente Reglamento.

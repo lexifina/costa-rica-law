@@ -1,0 +1,1 @@
+Artículo 2°-La Vigilancia Epidemiológica abarcará a todos los departamentos de la División de Epidemiología, División de Regiones y Atención Primaria y a todas las disciplinas, actividades y tareas institucionales necesarias que permitan obtener en forma oportuna, objetiva y científica, los conocimientos básicos necesarios para una rápida y acertada toma de decisiones.

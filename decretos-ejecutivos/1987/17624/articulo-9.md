@@ -1,0 +1,1 @@
+Artículo 9°-Ningún funcionario podrá negarse u oponerse bajo ninguna circunstancia a integrar las Juntas Regionales de Vigilancia Epidemiológica o equipos de vigilancia móviles o permanentes que se establezcan a nivel de puertos, aeropuertos, puestos fronterizos y de atención a refugiados.

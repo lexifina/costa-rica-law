@@ -1,0 +1,1 @@
+Artículo 13.-Corresponderá a los grupos organizados de la comunidad prestar apoyo a los equipos de salud, encargados de la vigilancia epidemiológica, la difusión y el cumplimiento de las recomendaciones y participar y apoyar activamente en las tareas de notificación y registro de enfermedades transmisibles.

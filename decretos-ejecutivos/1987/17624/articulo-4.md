@@ -1,0 +1,1 @@
+Artículo 4°-Para poder actuar oportuna y adecuadamente, se crearán y mantendrán Juntas de Vigilancia Epidemiológicas Regionales, con carácter permanente, integradas por el jefe o Subjefe de Servicios de Salud y los Supervisores Regionales de Microbiología, Enfermería, Trabajo Social, Saneamiento del Medio, Atención Primaria y del Departamento de Control de Artrópodos y Roedores.

@@ -1,0 +1,1 @@
+Articulo 11.-La condición de miembro nato de la Junta Regional de Vigilancia Epidemiológica es irrenunciable y sólo se podrá delegar en caso de ausencia temporal por vacaciones, incapacidades y permisos a criterio del respectivo jefe de servicios de salud.

@@ -1,0 +1,1 @@
+Artículo 8°-Para los efectos mencionados en el artículo anterior, la Junta contará con la asesoría técnica de los Departamentos de Vigilancia Epidemiológica y de Control de Artrópodos y Roedores del Ministerio.
