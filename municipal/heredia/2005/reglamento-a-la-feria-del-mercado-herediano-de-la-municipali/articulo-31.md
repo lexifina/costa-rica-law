@@ -1,0 +1,1 @@
+Artículo 31.-Todos los participantes, deberán portar el carné respectivo en un lugar visible. Deberán ocupar solamente el espacio que la administracion les asigne. La ausencia de dos sábados consecutivos o tres alternos sin justificación en un mes, dará derecho a que la Junta cancele y disponga del puesto autorizado.

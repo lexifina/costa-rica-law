@@ -1,0 +1,1 @@
+Artículo 24.-La Policía Municipal de Heredia, cuando así se requiera, deberá prestar colaboración en el mantenimiento de orden de la feria, así como, apoyar al Administrador en el cumplimiento de las disposiciones establecidas en este reglamento.

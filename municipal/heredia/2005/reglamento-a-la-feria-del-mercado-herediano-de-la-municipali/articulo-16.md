@@ -1,0 +1,2 @@
+Artículo 16.-La Junta Administrativa nombrada por la Municipalidad, será la encargada de la organización, instalación y administración de la "Feria de Mercado Herediano".
+La realización de la feria, será los días sábados de 5:00 a. m a 2:30 p. m., salvo situaciones especiales que imposibiliten o hagan inconveniente la realización de la feria en dicho día y horario, aspectos que deberán ser valorados por la Junta Administrativa, en cuyo caso, podrá de manera excepcional trasladarse la feria para otro día y/o horario.

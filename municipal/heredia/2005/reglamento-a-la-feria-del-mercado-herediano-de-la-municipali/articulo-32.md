@@ -1,0 +1,1 @@
+Artículo 32.-Los participantes deberán vender únicamente los productos autorizados. Los montos de participación fijados deberán ser cancelados en las cajas recaudadoras de la Municipalidad por mes adelantado.

@@ -1,0 +1,1 @@
+Artículo 3º-La "Feria de Mercado Herediano" se establece para uso exclusivo de los productores agropecuarios y agroindustriales en forma individual u organizados en cooperativas u otras formas colectivas de organización que se dediquen a actividades agropecuarias y agroindustriales primarias.

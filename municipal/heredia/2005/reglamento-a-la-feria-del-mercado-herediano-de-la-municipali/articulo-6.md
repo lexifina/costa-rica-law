@@ -1,0 +1,3 @@
+Artículo 6º-Queda totalmente prohibida la venta de productos por parte de vendedores intermediarios en la "Feria de Mercado Herediano". La Junta Administrativa, extenderá un carné identificativo a los vendedores autorizados.
+Dicho carné deberá ser impreso o elaborado con medidas de seguridad que impidan su adulteración o falsificación.
+Para la emisión y renovación del carné, se cobrará una cuota que será fijada por el Concejo Municipal, previo estudio y recomendación de la Junta Administrativa. Los montos recaudados por tal concepto se destinarán exclusivamente a los gastos que demandan la confección del carné y otros relacionados con la Feria.

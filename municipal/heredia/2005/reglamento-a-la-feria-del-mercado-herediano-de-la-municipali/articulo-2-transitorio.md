@@ -1,0 +1,1 @@
+Transitorio II.-A la entrada en vigencia del presente Reglamento, las cuotas que deberán pagar los participantes serán las mismas que se cancelan en la Feria del Agricultor organizada por el Centro Agrícola Cantonal de Santa Bárbara en el cantón central de Heredia

@@ -1,0 +1,2 @@
+Artículo 20.-Los participantes deberán cancelar un monto semanal o mensual para poder participar en la feria. Dicho monto, deberá ser acordado por el Concejo Municipal, previo estudio técnico y recomendación de la Junta Administrativa en coordinación con la Dirección Financiera de la Municipalidad. Para su entrada en vigencia, los montos acordados deberán ser aprobados por la Contraloría General de la República y publicados en el Diario Oficial La Gaceta.
+A aquellos participantes que cancelen anualmente, se les hará un diez por ciento (10%) de descuento.

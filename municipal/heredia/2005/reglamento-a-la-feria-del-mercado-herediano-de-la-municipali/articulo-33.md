@@ -1,0 +1,1 @@
+Artículo 33.-Los participantes, deberán acatar las disposiciones de la administracion en cuanto a sanidad, precios, pesas, medidas, calidad y otras indicaciones establecidas por la Junta, el presente reglamento y demás normativa conexa. También están en la obligación de mostrar sus identificaciones y permisos a los funcionarios de la feria que así lo soliciten.

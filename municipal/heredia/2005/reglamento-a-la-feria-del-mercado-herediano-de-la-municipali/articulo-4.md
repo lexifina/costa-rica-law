@@ -1,0 +1,2 @@
+Artículo 4º-Los precios de venta de los productos agrícolas y agroindustriales, serán los recomendados por el Ministerio de Agricultura y Ganadería y sus dependencias competentes.
+La Junta Administrativa de la Feria de Mercado Herediano, deberá mantener informados a los consumidores y participantes de los precios oficiales vigentes, los cuales, deberán ser expuestos en forma visible y permanente. En todo caso, los precios de los productos deberán ser siempre inferiores a los del comercio o mercado tradicional.

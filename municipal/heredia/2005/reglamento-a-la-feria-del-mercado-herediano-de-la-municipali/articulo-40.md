@@ -1,0 +1,1 @@
+Artículo 40.-Sin menoscabo de las demás atribuciones de la Municipalidad en materia de actividades lucrativas sin licencia municipal,queda prohibida la autorización de ventas ambulantes, estacionarias y mini ferias en la "Feria de Mercado Herediano", así como a 400 metros de donde se celebra la feria.

@@ -1,0 +1,1 @@
+Artículo 29.-Cada una de las organizaciones participantes deberá identificar el puesto de venta con sus emblemas, colores, distintivos y colocarlos en un lugar visible durante la realización de la feria.

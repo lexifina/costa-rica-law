@@ -1,0 +1,1 @@
+Artículo 12.-En el caso de cooperativas u otras organizaciones colectivas, estas deberán indicar en la solicitud cuáles son las personas que atenderán las ventas en la feria, datos que deberá incluir la Junta Administrativa en los respectivos carnés.

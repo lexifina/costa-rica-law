@@ -1,0 +1,1 @@
+Artículo 11.-Las personas autorizadas debelan en todo momento estar presentes en la atención de su puesto. Para la atención de las ventas, podrá permitirse la colaboración de familiares o de las personas sustitutas indicadas en el carné.

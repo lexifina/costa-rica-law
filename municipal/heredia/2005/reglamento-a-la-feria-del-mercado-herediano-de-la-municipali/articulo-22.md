@@ -1,0 +1,2 @@
+Artículo 22.-Los participantes morosos en el pago, no podrán participar en la feria. A aquellos participantes con tres meses o más adeudados, se les cancelará definitivamente el permiso otorgado. Para gestionar nuevamente la obtención del carné o autorización, deberán cancelar los montos que adeudan y cumplir con todos los requisitos exigidos por este reglamento.
+Es obligación de los participantes contar con el respectivo recibo original cancelado en sus puestos.
