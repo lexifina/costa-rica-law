@@ -13,3 +13,4 @@ Guía Básica Elaboración Estudios Impacto Ambiental Actividad Minera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-10-22 | la propia norma |
+| 2 | 1997-10-13 | Decreto Ejecutivo 26540 (1997-10-13) |
