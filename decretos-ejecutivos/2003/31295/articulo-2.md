@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza al sector público centralizado y descentralizado, territorial e institucional, para que dentro de los límites legales respectivos, puedan brindar las facilidades y cooperación necesaria tanto para las actividades de preparación como de recibimiento y estadía del Barco Internacional M. N. Logos II en Costa Rica.
