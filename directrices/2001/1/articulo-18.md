@@ -1,0 +1,2 @@
+Artículo 18.- Apertura de procedimiento disciplinario ante la Dirección Nacional de Notariado:
+Cuando se encuentre alguna irregularidad o violación cuya investigación competa a la Dirección Nacional de Notariado, el Fiscal Notarial entregará a este despacho copia del informe referido en el artículo anterior y demás documentos pertinentes, a efecto de que se inicie el procedimiento correspondiente, según las regulaciones internas establecidas por la Dirección.

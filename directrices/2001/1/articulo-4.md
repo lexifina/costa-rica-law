@@ -1,0 +1,2 @@
+Artículo 4.- Rango de acción de la fiscalización:
+La Dirección y los fiscales notariales que ésta designe, para llevar a cabo sus fines de vigilancia y control de la actividad notarial, serán competentes para efectuar fiscalizaciones en todo el territorio nacional y en el extranjero, cuando las circunstancias así lo exijan. Para tal efecto, podrán acudir, a los lugares indicados por los Notarios como sus notarías, a las oficinas públicas; o a cualquier otro lugar de que se tenga noticia de alguna eventual irregularidad que afecte la función notarial.

@@ -1,0 +1,2 @@
+Artículo 12.- Aspectos específicos no contenidos en el formulario general de fiscalización:
+La Dirección, establecerá en la resolución de autorización y aviso de fiscalización, la autorización al fiscal para que evalúe otros aspectos no contenidos en el formulario general. El fiscal notarial hará constar en un acta el resultado de la investigación de esos aspectos específicos no previstos en el formulario general de evaluación, señalando los aspectos donde se haya detectado alguna irregularidad.

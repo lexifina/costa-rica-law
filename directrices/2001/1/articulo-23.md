@@ -1,0 +1,2 @@
+Artículo 23.- Fiscalización de la actividad notarial en oficinas públicas:
+Sin detrimento de las funciones que como fiscales naturales notariales, desempeñen las oficinas públicas encargadas de recibir y tramitar los documentos notariales, la Dirección podrá establecer convenios de cooperación y coordinación para el control adecuado de la actividad notarial, y realizar visitas a las oficinas públicas, con la finalidad de inspeccionar documentos notariales allí presentados.
