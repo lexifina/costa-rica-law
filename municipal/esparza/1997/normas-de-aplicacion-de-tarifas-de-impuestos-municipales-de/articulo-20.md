@@ -1,0 +1,1 @@
+Artículo 20.—Para los efectos de la declaración jurada que presentar los patentados de establecimientos financieros y de compra y venta de bienes raíces, se considerará como ventas o ingresos brutos lo percibido por concepto de comisiones o intereses.

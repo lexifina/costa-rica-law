@@ -1,0 +1,1 @@
+Artículo 25.—La Administración calculará el monto del impuesto a pagar por cada patentado, en el transcurso del mes de enero siguiente, sin perjuicio de las revisiones que pueda realizar posteriormente.

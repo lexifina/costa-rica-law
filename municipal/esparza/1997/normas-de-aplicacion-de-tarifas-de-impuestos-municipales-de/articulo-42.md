@@ -1,0 +1,1 @@
+Artículo 42.—Las resoluciones que ordenen la suspensión de la licencia y el cierre del negocio por falta de pago de dos o más trimestres admitirán el recurso de revocatoria y apelación, sin perjuicio de la acción ordinaria contenciosa administrativa.

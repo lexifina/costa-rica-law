@@ -1,0 +1,2 @@
+Artículo 13.—Toda renuncia o comunicación de abandono de la actividad deberá ser presentada por escrito y se le adjuntará el timbre municipal respectivo, según lo establece el artículo 103 del Código Municipal.
+La renuncia de la licencia empezará a regir desde el momento de la presentación formal del escrito, ello sin perjuicio de que la Administración realice el cobro judicial de los saldos adeudados por concepto de impuesto y las correspondientes multas e intereses.

@@ -1,0 +1,1 @@
+Artículo 11.—Cuando la Administración determine en forma razonable que una actividad que haya recibido la licencia, necesita algún otro permiso de funcionamiento que no se exigió en su oportunidad, concederá al interesado el término improrrogable de 30 días hábiles para que cumpla con lo solicitado, la Administración procederá a la cancelación.

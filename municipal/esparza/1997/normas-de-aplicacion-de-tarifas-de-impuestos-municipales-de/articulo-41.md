@@ -1,0 +1,1 @@
+Artículo 41.—Contra las resoluciones de tasaciones provisionales, recalificaciones de impuestos o calificaciones de oficio, se admitirá oposición del contribuyente dentro de los cinco días hábiles siguientes a las notificaciones.

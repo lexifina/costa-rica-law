@@ -1,0 +1,1 @@
+Artículo 29.—Los indicios establecidos en cualquier época para un patentado, podrán utilizarse para revisar su siguiente declaración. Las recalificaciones con base en indicios externos, sólo podrán ser aplicadas a partir del 1° de enero para surtir efecto al año siguiente.

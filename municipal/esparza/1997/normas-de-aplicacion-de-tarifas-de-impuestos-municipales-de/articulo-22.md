@@ -1,0 +1,1 @@
+Artículo 22.—Cuando dos o más personas físicas o jurídicas que para efectos del impuesto sobre la renta tengan responsabilidades separadas y operen en un mismo local, con una única actividad y una patente, serán considerados como responsables solidarios ante la Municipalidad.

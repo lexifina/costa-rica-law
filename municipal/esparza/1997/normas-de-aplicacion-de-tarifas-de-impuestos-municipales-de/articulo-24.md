@@ -1,0 +1,1 @@
+Artículo 24.—Aquellas personas físicas o jurídicas cuya actividad en el cantón de Esparza tenga carácter subsidiario, deberán calcular los ingresos generados por esta actividad, deduciendo lo que ha declarado en los restantes cantones y en el cantón donde está el centro de operación.
