@@ -14,3 +14,4 @@ Modifica límite de gasto presupuestario y efectivo de la Junta Administrativa d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-01 | la propia norma |
+| 2 | 2002-03-13 | Decreto Ejecutivo 30400 (2002-03-13) |

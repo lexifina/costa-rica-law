@@ -10,3 +10,4 @@ Considerando:
 5º—Que por lo anterior, resulta necesario ampliar el límite de gasto presupuestario y efectivo a la Junta Administrativa del Registro Nacional, establecido en el Decreto Ejecutivo N° 29511-H. Por tanto,
 Decretan:
 Artículo 1°—Modifícase el Decreto Ejecutivo N° 29511-H, para fijar en ¢3.666,6 millones el límite de gasto presupuestario y efectivo de la Junta Administrativa del Registro Nacional para el año 2002.
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 30400 de 13 de marzo del 2002)
