@@ -1,0 +1,1 @@
+Artículo 2°-La Agencia Principal de Policía Específica del Café, será la única autoridad que conozca de las denuncias y acusaciones que se presenten contra el incumplimiento del presente Decreto-Ley, teniendo jurisdicción en toda la República.
