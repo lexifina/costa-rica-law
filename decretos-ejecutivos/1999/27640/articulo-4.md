@@ -1,0 +1,1 @@
+Artículo 4°-El Consejo se reunirá ordinariamente una vez cada mes y extraordinariamente cada vez que sea convocado por el Presidente (a) del Consejo. El quórum de las sesiones lo formará la mayoría simple de sus miembros. En ausencia del Presidente (a) del Consejo, éste designará a su representante dentro de los miembros del Consejo.

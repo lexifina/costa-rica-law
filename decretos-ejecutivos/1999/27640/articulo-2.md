@@ -1,0 +1,1 @@
+Artículo 2°-El Consejo tendrá como finalidad la coordinación, formulación y ejecución de políticas, estrategias y programas específicos para la atención a la población adulta mayor. Igualmente será responsable del seguimiento y de la evaluación periódica de las acciones que en esta materia ejecuten las instituciones de la Administración Pública y del Sector Privado.

@@ -1,0 +1,1 @@
+Artículo 6°-El Consejo del Adulto Mayor contará con un Director (a) Ejecutivo (a), cuya función será la de ejecutar sus directrices. Además realizará aquellas funciones específicas que determine el Consejo o su Presidente (a). El Director (a) Ejecutivo (a) será nombrado por el Consejo.
