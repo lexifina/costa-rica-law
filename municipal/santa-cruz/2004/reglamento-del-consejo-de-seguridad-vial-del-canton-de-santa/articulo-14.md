@@ -1,0 +1,1 @@
+Artículo 14.—Para la ejecución de los programas y los proyectos del COSANSEVI, el Concejo Municipal podrá gestionar donaciones y recursos adicionales provenientes de instituciones públicas y privadas del cantón, así como de la comunidad en general.

@@ -1,0 +1,1 @@
+Artículo 11.—Es deber de la Junta Directiva tener en sus reuniones a todo el Consejo Local de Seguridad Vial en pleno; como también algunos funcionarios de los diferentes departamentos que conforman la Municipalidad local.

@@ -1,0 +1,1 @@
+Artículo 10.—Si por caso fortuito o fuerza mayor, un miembro de la directiva no puede hacerse presente a las reuniones, tendrá tres días naturales para justificar su ausencia de no hacerlo así con seis faltas o ausencias alternas o tres consecutivas perderá su condición de miembro de la directiva.

@@ -1,0 +1,1 @@
+Artículo 8º—El calendario de reuniones ordinarias del COSANSEVI, serán dos veces al mes. En la sala de sesiones del Concejo Municipal u en otros sitios que disponga la directiva. Las reuniones extraordinarias se harán cuando el caso lo amerite a solicitud de cualquiera de los miembros.

@@ -1,0 +1,2 @@
+Artículo 15.—De conformidad con el artículo 217, inciso b, de la Ley 7331. La ejecución, los trámites de control de gastos presupuestarios del COSANSEVI que procedan de la parte administrativa y operativa, estarán a cargo de la Alcaldía y del Concejo Municipal.
+Todo esto se hará con base en el Plan Anual Operativo aprobado por dicho Concejo Municipal, por el Consejo de Seguridad Vial y la Dirección General de la Ingeniería de Tránsito.
