@@ -1,0 +1,1 @@
+Artículo 12.—La Dirección de Seguridad Marítima y Portuaria, otorgará el certificado de zafarrancho a los buques cuyas tripulaciones cuenten con el Certificado de Competencia que los acredita como capacitados para atender los incidentes que se pueden presentar durante el servicio que prestan los buques mencionados.

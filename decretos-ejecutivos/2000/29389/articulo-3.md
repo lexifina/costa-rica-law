@@ -1,0 +1,1 @@
+Artículo 3º—Las embarcaciones que no obtengan el certificado de zafarrancho respectivo no podrán ser autorizadas a hacerse a la mar, al no garantizar la seguridad operacional requerida en el servicio al que están destinados.

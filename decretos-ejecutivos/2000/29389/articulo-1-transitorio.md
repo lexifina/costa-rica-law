@@ -1,0 +1,1 @@
+Transitorio Único.—Por un período de un año la Dirección de Seguridad Marítima y Portuaria aplicará este reglamento a los buques de pasajeros, a los que tengan una dotación mayor a diez tripulantes y todos aquellos autorizados para llevar a bordo un número mayor de diez personas.

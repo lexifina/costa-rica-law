@@ -1,0 +1,1 @@
+Artículo 15.—Los tripulantes que no aprueben los cursos básicos de zafarrancho o alguno de ellos, podrán realizar quince días después una prueba de reposición que se aprobará con un 80%, de no ser así podrán repetir el curso tres meses después de ésta.

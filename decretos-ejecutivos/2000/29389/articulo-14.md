@@ -1,0 +1,1 @@
+Artículo 14.—La Dirección de Seguridad Marítima y Portuaria podrá aceptar los certificados de cursos impartidos por otras instituciones o administraciones marítimas, siempre que tales cursos hayan sido previamente homologados. Para la convalidación de los títulos, los interesados deberán presentar el original y fotocopia de éstos o certificaciones obtenidas.

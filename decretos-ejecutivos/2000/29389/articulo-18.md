@@ -1,0 +1,1 @@
+Artículo 18.—En todo buque que transporte pasajeros, se debe hacer una demostración al inicio del viaje, de la colocación de los chalecos salvavidas, zonas de reunión, alarmas y salidas de emergencia y cualquier otro aspecto de seguridad propio del buque.

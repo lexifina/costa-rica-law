@@ -1,0 +1,1 @@
+Artículo 17.—Los zafarranchos de incendio, hombre al agua, colisión y abandono del buque, deben practicarse al menos una vez al mes y así debe quedar constando obligatoriamente en la bitácora de navegación del buque. La Dirección de Seguridad Marítima y Portuaria fiscalizará el fiel cumplimiento de esta disposición a través de las inspecciones y visitas correspondientes.
