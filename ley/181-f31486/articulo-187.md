@@ -1,7 +1,2 @@
-Artículo 187.- Para que la viuda que no hubiere tenido hijos
-durante el matrimonio con el causante pueda gozar de pensión, es
-indispensable que haya estado casada con el funcionario pensionado cinco
-años antes del fallecimiento de éste, por lo menos, salvo que existan
-hijos legitimados o que se trate del caso previsto en el artículo 169
-anterior, siempre que el matrimonio se haya celebrado antes del
-accidente allí indicado.
+Artículo 187.- Para que la viuda que no hubiere tenido hijos durante el matrimonio con el causante pueda gozar de pensión, es indispensable que haya estado casada con el funcionario pensionado cinco años antes del fallecimiento de éste, por lo menos, salvo que existan hijos legitimados o que se trate del caso previsto en el artículo 169 anterior, siempre que el matrimonio se haya celebrado antes del accidente allí indicado.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

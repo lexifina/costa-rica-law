@@ -1,5 +1,1 @@
-Artículo 293.- Le está vedado al Director conceder permiso a los
-profesores o empleados para dejar de dar clases, o para no asistir a
-actos del Colegio, si el permiso que se solicita tiene por fin atender
-a negocios o asuntos particulares. Está por encima de todo el derecho
-del plantel a los servicios del profesor.
+Artículo 293.-(Derogado por el artículo 2º de la Ley Nº 48 de 15 de febrero de 1945 y nuevamente por el artículo 1 de la ley No.3492 de 29 de enero de 1965)

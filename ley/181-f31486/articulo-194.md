@@ -1,7 +1,2 @@
-Artículo 194.- Las cantidades que ingresen en el Fondo de
-Jubilaciones y Pensiones, y las que de los fondos acumulados o
-consolidados, hasta su completa liquidación fueren precisos para cubrir
-el valor de las mismas, serán mensualmente acreditadas en una cuenta
-especial que deberá abrir la Administración General de Rentas, y puestas
-a la orden de la Junta Administradora para cubrir los giros que la misma
-expida.
+Artículo 194.- Las cantidades que ingresen en el Fondo de Jubilaciones y Pensiones, y las que de los fondos acumulados o consolidados, hasta su completa liquidación fueren precisos para cubrir el valor de las mismas, serán mensualmente acreditadas en una cuenta especial que deberá abrir la Administración General de Rentas, y puestas a la orden de la Junta Administradora para cubrir los giros que la misma expida.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

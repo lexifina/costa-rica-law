@@ -1,31 +1,5 @@
-Artículo 484.- La Directiva Central se renovará por mitades cada
-año, el cual se cuenta a partir del día en que debe tomar posesión. Al
-finalizar el primero serán repuestos aquellos miembros que la Directiva
-Central indique por votación.
-Esta Directiva se compondrá de veintiséis miembros. Los nombrados
-elegirán de su propio seno anualmente: un Presidente, un Vicepresidente,
-un Secretario General, un Tesorero Contador, un Fiscal, un Secretario
-de Actas y otro de Correspondencia. Los restantes son vocales. En su
-primera sesión del año la Directiva señalará el orden en que los vocales
-entrarán a sustituir al Presidente, al Vicepresidente y a los
-Secretarios.
-El Presidente, el Tesorero y el Fiscal tienen las funciones que
-indica el artículo 24 de la Ley de Asociaciones. En ausencia del
-Presidente, las sesiones las presidirá el Vicepresidente o el vocal al
-efecto designado. Si la ausencia del Presidente fuere absoluta, el
-Vicepresidente ejercerá sus funciones mientras no recaiga nuevo
-nombramiento. El Secretario de Actas debe redactar las de las sesiones
-de la Directiva Central y del Congreso; el de Correspondencia, llevar
-el movimiento de la misma; y el General, coordinar las funciones de los
-otros y suscribir las actas con el que presida. Cuando un miembro de
-la Directiva Central faltare a cuatro sesiones ordinarias consecutivas
-o a seis no consecutivas, sin justa causa, la cual debe alegarse y
-comprobarse dentro de los ocho días siguientes, podrá ser retirado por
-acuerdo de la Directiva Central. Si por causa de tales retiros fuere
-difícil o imposible celebrar sesión válidamente, deberá ser convocado
-de inmediato el Congreso Nacional de Educadores para hacer las
-elecciones que corresponda.
-El quórum para las sesiones de la Directiva Central es de nueve
-miembros presentes por lo menos: sus resoluciones se tomarán por mayoría
-absoluta de votos, salvo que la ley o los estatutos requieran un número
-mayor.
+Artículo 484.- La Directiva Central se renovará por mitades cada año, el cual se cuenta a partir del día en que debe tomar posesión. Al finalizar el primero serán repuestos aquellos miembros que la Directiva Central indique por votación.
+Esta Directiva se compondrá de veintiséis miembros. Los nombrados elegirán de su propio seno anualmente: un Presidente, un Vicepresidente, un Secretario General, un Tesorero Contador, un Fiscal, un Secretario de Actas y otro de Correspondencia. Los restantes son vocales. En su primera sesión del año la Directiva señalará el orden en que los vocales entrarán a sustituir al Presidente, al Vicepresidente y a los Secretarios.
+El Presidente, el Tesorero y el Fiscal tienen las funciones que indica el artículo 24 de la Ley de Asociaciones. En ausencia del Presidente, las sesiones las presidirá el Vicepresidente o el vocal al efecto designado. Si la ausencia del Presidente fuere absoluta, el Vicepresidente ejercerá sus funciones mientras no recaiga nuevo nombramiento. El Secretario de Actas debe redactar las de las sesiones de la Directiva Central y del Congreso; el de Correspondencia, llevar el movimiento de la misma; y el General, coordinar las funciones de los otros y suscribir las actas con el que presida. Cuando un miembro de la Directiva Central faltare a cuatro sesiones ordinarias consecutivas o a seis no consecutivas, sin justa causa, la cual debe alegarse y comprobarse dentro de los ocho días siguientes, podrá ser retirado por acuerdo de la Directiva Central. Si por causa de tales retiros fuere difícil o imposible celebrar sesión válidamente, deberá ser convocado de inmediato el Congreso Nacional de Educadores para hacer las elecciones que corresponda.
+El quórum para las sesiones de la Directiva Central es de nueve miembros presentes por lo menos: sus resoluciones se tomarán por mayoría absoluta de votos, salvo que la ley o los estatutos requieran un número mayor.
+(Nota: Ver ley N° 2795 de 7 de agosto de 1961, “Reforma Integral Ley Orgánica Asociación Nacional Educadores ANDE”)

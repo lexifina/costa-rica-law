@@ -1,6 +1,1 @@
-Artículo 101.- Las personas que no reúnan los requisitos que indica
-el artículo 102 y presten servicios en las escuelas oficiales como
-maestros de grado o especiales, se considerará que lo hacen
-interinamente y en calidad de aspirantes; y serán sustituidas en sus
-cargos por maestros titulados tan pronto soliciten sus plazas quienes
-tengan diploma o certificado que acredite su idoneidad.
+Artículo 101.- Las personas que no reúnan los requisitos que indica el artículo 102 y presten servicios en las escuelas oficiales como maestros de grado o especiales, se considerará que lo hacen interinamente y en calidad de aspirantes; y serán sustituidas en sus cargos por maestros titulados tan pronto soliciten sus plazas quienes tengan diploma o certificado que acredite su idoneidad.

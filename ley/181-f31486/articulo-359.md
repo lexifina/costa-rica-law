@@ -1,4 +1,1 @@
-Artículo 359.- Todo fraude en cualquier prueba, oral o escrita,
-será casti gado con aplazamiento.
-En la misma pena incurre el alumno que preste ayuda a otro para
-cometer fraude.
+Artículo 359.- .- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

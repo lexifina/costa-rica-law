@@ -1,5 +1,1 @@
-Artículo 264.- Al ejercitar sus actividades, deben propender a la
-realización de los siguientes fines: suministrar los conocimientos
-necesarios a la vida civil del hombre; desenvolver libremente la
-personalidad congénita del educando; despertar y afirmar aptitudes;
-hacer sentir su acción educadora en todas las esferas de la vida social.
+Artículo 264.-(Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

@@ -1,13 +1,3 @@
-Artículo 382.- Cada Colegio reconocerá honorarios a su Director y
-a los Delegados de los colegios que asistan a sus exámenes, según la
-siguiente tarifa:
-a) Al Director y a los Delegados de los otros colegios, cinco
-colones por sesión.
-b) A los Delegados que tengan que trasladarse de una provincia a
-otra, ocho colones por sesión.
-c) A los profesores examinadores, un colón por examinando y
-asignatura.
-d) A los empleados administrativos que se encarguen de preparar las
-actas de exámenes y demás papeles necesarios para el bachillerato, dos
-colones por sesión. La duración máxima de cada sesión será de cuatro
-horas.
+Artículo 382.- Los programas para los exámenes de bachillerato serán elaborados con base en los programas de enseñanza media vigentes.
+Para las pruebas de Bachillerato por Madurez Suficiente, se harán por lo menos tres convocatorias anuales, en las fechas que determine la Comisión de Bachillerado por Madurez
+(Así reformado por el artículo 1° de la ley N° 5077 de 29 de setiembre de 1972)

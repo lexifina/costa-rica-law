@@ -1,2 +1,1 @@
-Artículo 240.- Es prohibido ocupar los locales de escuela y su
-menaje en objetos distintos de los de la instrucción.
+Artículo 240.- .-(Derogado por el artículo 64, inciso m) de la Ley de Expropiaciones, N° 7495 del 3 de mayo de 1995)

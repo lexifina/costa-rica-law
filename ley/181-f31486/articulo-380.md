@@ -1,3 +1,1 @@
-Artículo 380.- Queda a salvo de lo dispuesto en este capítulo, lo
-establecido sobre la materia en los Tratados Internacionales aprobados
-por la República.
+Artículo 380.- (Derogado por el artículo 1° de la ley N° 1927 del 20 de setiembre de 1955)

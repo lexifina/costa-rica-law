@@ -1,4 +1,1 @@
-Artículo 277.- La Junta de Directores se reunirá:
-a) Cuando la convoque el Secretario de Educación Pública;
-b) Cuando el Presidente lo crea necesario;
-c) Cuando lo solicite de él cualquiera de sus miembros.
+Artículo 277.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

@@ -1,4 +1,1 @@
-Artículo 8º.- El Secretario de Educación Pública vigila, por medio
-de sus dependientes y delegados extraordinarios, todos los
-establecimientos públicos y privados de enseñanza, para que se dé
-cumplimiento a las leyes, reglamentos y acuerdos vigentes.
+Artículo 8º.- .- (Derogado por el artículo 67° de la ley Orgánica del Ministerio de Educación Pública, Nº 3481 de 13 de enero de 1965)

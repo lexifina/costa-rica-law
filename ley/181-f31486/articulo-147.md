@@ -1,5 +1,1 @@
-Artículo 147.- Toda reclamación por descuentos de sueldo
-indebidamente hechos deberá establecerse por escrito y acompañada de los
-documentos correspondientes, antes de expirar el término de quince días
-contados desde la fecha en que se hubiere hecho efectivo el descuento;
-pasado ese término, no será admitida.
+Artículo 147.- Toda reclamación por descuentos de sueldo indebidamente hechos deberá establecerse por escrito y acompañada de los documentos correspondientes, antes de expirar el término de quince días contados desde la fecha en que se hubiere hecho efectivo el descuento; pasado ese término, no será admitida.

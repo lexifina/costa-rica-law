@@ -1,3 +1,1 @@
-Artículo 345.- Toda sanción que se imponga deberá anotarse en un
-libro destinado a ese fin, con especificación de las causas, así como
-en el expediente personal del alumno castigado.
+Artículo 345.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

@@ -1,6 +1,1 @@
-Artículo 340.- Es obligatorio para todos los alumnos, sin
-excepción, asistir a las reuniones, festividades, asambleas,
-excursiones, paseos, ejercicios, etc. etc., privados o públicos,
-cualquiera que sea su índole y finalidad, que el establecimiento
-promueva; adopte o efectúe. La inasistencia a cualquier acto de éstos
-será considerada como ausencia.
+Artículo 340.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

@@ -1,4 +1,1 @@
-Artículo 113.- El maestro cuya labor hubiere sido calificada de
-ineficaz será separado inmediatamente de sus funciones, como lo será
-también el que, por dos veces sucesivas, hubiere obtenido el
-calificativo de Mediana.
+Artículo 113.- El maestro cuya labor hubiere sido calificada de ineficaz será separado inmediatamente de sus funciones, como lo será también el que, por dos veces sucesivas, hubiere obtenido el calificativo de Mediana.

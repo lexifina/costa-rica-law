@@ -1,7 +1,2 @@
-Artículo 47.- Los Tesoreros Escolares se negarán a cubrir giros u
-órdenes de pago contra las rentas que administran, si }en dichos giros
-u órdenes de pago no constan el número y la fecha del acuerdo en que la
-Junta autoriza el gasto.
-La violación de lo que este artículo y el anterior establecen será
-motivo para exigir al Tesorero o al fiador, en su caso, el valor de los
-giros que indebidamente hayan sido pagados.
+Artículo 47.- Los Tesoreros Escolares se negarán a cubrir giros u órdenes de pago contra las rentas que administran, si }en dichos giros u órdenes de pago no constan el número y la fecha del acuerdo en que la Junta autoriza el gasto.
+La violación de lo que este artículo y el anterior establecen será motivo para exigir al Tesorero o al fiador, en su caso, el valor de los giros que indebidamente hayan sido pagados.

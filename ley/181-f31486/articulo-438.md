@@ -1,8 +1,3 @@
-Artículo 438.- Los alumnos de las Escuelas Universitarias tendrán
-derecho a hacer oír su voz en el seno de las respectivas Facultades.
-Para ese efecto y para el que indica el artículo 427, en la segunda
-quincena de marzo se elegirá en cada Escuela un representante de los
-estudiantes, por votación directa de éstos, que deberá recaer en un
-alumno de los grados superiores. Dicho representante tendrá derecho a
-asistir, hacer uso de la palabra y emitir su voto en las sesiones de la
-Asamblea Universitaria y de la Facultad respectiva.
+Artículo 438.- Los alumnos de las Escuelas Universitarias tendrán derecho a hacer oír su voz en el seno de las respectivas Facultades. Para ese efecto, en la segunda quincena de marzo de cada año se elegirá en cada Escuela un representante propietario y dos suplentes de los estudiantes por votación directa de ellos; la elección deberá recaer en alumnos de los años superiores. El propietario y en su ausencia los suplentes en el orden de nominación, tendrán derecho a asistir a las sesiones de la Facultad respectiva y a hacer uso de la palabra y emitir el voto en las mismas.
+Los tres representantes tendrán derecho de hacerlo en las sesiones de Asamblea Universitaria. Todo sin perjuicio de los dispuesto en el artículo 435.
+(Así reformado por el artículo 3° de la ley N° 829 de 13 de diciembre de 1946)

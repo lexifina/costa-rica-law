@@ -1,4 +1,1 @@
-Artículo 523.- El Contador Escolar es Fiscal de Rentas Escolares.
-Le corresponde, por tanto, visitar las Tesorerías, revisar cuentas hacer
-observaciones y ejercer todos los actos de inspección y dirección
-inherentes a su cargo.
+Artículo 523.- (Derogado por el artículo 67° de la Ley Orgánica del Ministerio de Educación Pública, N° 3481 del 13 de enero de 1965)

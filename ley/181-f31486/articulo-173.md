@@ -1,10 +1,4 @@
-Artículo 173.- No se contarán como años de servicio para los
-efectos de la jubilación:
-a) Aquéllos en que la labor del funcionario no haya sido calificada
-como Excelente, Buena o por lo menos Aceptable;
-b) Aquéllos durante los cuales se haya impuesto al maestro o
-profesor la pena de suspensión del destino por más de un mes. Sumado el
-tiempo de servicio, las fracciones de años que resulten se computarán
-por años enteros si alcanzaren a seis meses y no se apreciarán si fueren
-menores; el monto de la jubilación será una suma completa de colones,
-contándose por un colón toda fracción de cincuenta o más céntimos.
+Artículo 173.- No se contarán como años de servicio para los efectos de la jubilación:
+a) Aquéllos en que la labor del funcionario no haya sido calificada como Excelente, Buena o por lo menos Aceptable;
+b) Aquéllos durante los cuales se haya impuesto al maestro o profesor la pena de suspensión del destino por más de un mes. Sumado el tiempo de servicio, las fracciones de años que resulten se computarán por años enteros si alcanzaren a seis meses y no se apreciarán si fueren menores; el monto de la jubilación será una suma completa de colones, contándose por un colón toda fracción de cincuenta o más céntimos.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

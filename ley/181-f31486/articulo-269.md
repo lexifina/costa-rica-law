@@ -1,4 +1,1 @@
-Artículo 269.- Cada sección recibirá clases separadamente. Sólo
-para oir una conferencia, para recibir una clase extraordinaria o para
-hacer coros o ejercicios colectivos, podrán reunirse las diferentes
-secciones de un curso o todas las secciones del Colegio.
+Artículo 269.- .(Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

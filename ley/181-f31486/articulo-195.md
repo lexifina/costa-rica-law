@@ -1,3 +1,2 @@
-Artículo 195.- Las jubilaciones son vitalicias y el derecho a
-recibirlas sólo se pierde por la causa señalada en el artículo 175 de
-este Código.
+Artículo 195.- Las jubilaciones son vitalicias y el derecho a recibirlas sólo se pierde por la causa señalada en el artículo 175 de este Código.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

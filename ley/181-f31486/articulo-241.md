@@ -1,4 +1,1 @@
-Artículo 241.- No se abrirá escuela nueva alguna, sino al principio
-del curso respectivo; ni ninguna que esté desprovista del mueblaje y
-enseres indispensables.
-d) Servicio Médico Escolar
+Artículo 241.- .-(Derogado por el artículo 64, inciso m) de la Ley de Expropiaciones, N° 7495 del 3 de mayo de 1995)

@@ -1,4 +1,1 @@
-Artículo 50.- Se hace extensivo a las administraciones de fondos
-escolares lo dispuesto por el artículo 36 de la ley de Hacienda
-Municipal, así como las prescripciones pertinentes de la Sección VII de
-la misma ley.
+Artículo 50.- Se hace extensivo a las administraciones de fondos escolares lo dispuesto por el artículo 36 de la ley de Hacienda Municipal, así como las prescripciones pertinentes de la Sección VII de la misma ley.

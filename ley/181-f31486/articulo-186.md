@@ -1,3 +1,2 @@
-Artículo 186.- Si el fallecido dejare hijos de distintos
-matrimonios, la pensión se distribuirá entre todos ellos por partes
-iguales y será entregada a los respectivos representantes legales.
+Artículo 186.- Si el fallecido dejare hijos de distintos matrimonios, la pensión se distribuirá entre todos ellos por partes iguales y será entregada a los respectivos representantes legales.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

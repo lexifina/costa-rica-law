@@ -1,3 +1,1 @@
-Artículo 87.- Los Patronatos tomarán las disposiciones que juzguen
-necesarias para la custodia de los valores que se colecten y se pongan
-bajo la guarda y responsabilidad de los respectivos tesoreros.
+Artículo 87.- Los Patronatos tomarán las disposiciones que juzguen necesarias para la custodia de los valores que se colecten y se pongan bajo la guarda y responsabilidad de los respectivos tesoreros.

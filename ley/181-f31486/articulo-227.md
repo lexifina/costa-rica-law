@@ -1,4 +1,1 @@
-Artículo 227.- Para los efectos del artículo 232, ha de
-justificarse ante la Junta de Educación, la pobreza suma del padre o
-representante del niño. El Tesorero de los fondos del distrito hará de
-fiscal.
+Artículo 226.- El particular, jefe de taller, de establecimiento mercantil o de finca que infrinja la disposición del artículo 15, queda sujeto a las penas del artículo 221.

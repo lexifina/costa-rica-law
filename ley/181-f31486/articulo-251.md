@@ -1,7 +1,4 @@
-Artículo 251.- Los alumnos de escuelas particulares que concluyan
-sus estudios en dichos establecimientos, recibirán el correspondiente
-certificado, que tendrá el mismo valor de los que expiden las escuelas
-oficiales, siempre que el Inspector de Escuelas y Colegios Particulares
-haga constar su aprobación, para lo cual, en caso de duda, puede
-examinar al alumno sobre los temas que contempla el artículo 19 de este
-Código.
+Artículo 251.- Los alumnos de escuelas particulares cuyo funcionamiento esté autorizado y cuyos estudios sean especialmente reconocidos por la Secretaría de Educación Pública, al terminar con aprobación del último curso escolar recibirán el correspondiente certificado que tendrá el mismo valor que los que expidan las escuelas oficiales. Igualmente los cursos realizados en las escuelas oficiales.
+El Inspector de Escuelas y Colegios Particulares, por sí o por medio de sus auxiliares o por medio de comisión dada a un Director de una escuela oficial, podrá constatar en cualquier tiempo y en toda forma la preparación de los alumnos de las mencionadas escuelas.
+Transitorio.- Quedan canceladas todas las licencias concedidas y los reconocimientos de estudios otorgados a los establecimientos de educación primaria existentes, los cuales deberán solicitar de nuevo la autorización para su funcionamiento y el reconocimiento de estudios, si así lo desean.
+(Así reformado por el artículo 1° de la ley N° 48 de 15 de febrero de 1945)

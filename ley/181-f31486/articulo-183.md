@@ -1,3 +1,2 @@
-Artículo 183.- La pensión de las viudas, huérfanos o padres será
-la mitad del valor de la que gozaba el causante o a la que él mismo
-habría tenido derecho.
+Artículo 183.- La pensión de las viudas, huérfanos o padres será la mitad del valor de la que gozaba el causante o a la que él mismo habría tenido derecho.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

@@ -1,37 +1,23 @@
 TITULO II
 De la Sociedad de Seguros de Vida del Magisterio
-Artículo 496.- La Sociedad de Seguros de Vida del Magisterio
-Nacional estará integrada.
-a) Por el Secretario de Estado en el Despacho de Educación Pública,
-los Jefes Técnico y Administrativo de Educación Primaria, los
-Inspectores y Visitadores de Escuelas, los Directores Técnicos de
-Asignaturas Especiales, los Visitadores Auxiliares de Asignaturas
-especiales, los Directores de los Colegios Oficiales de Segunda
-Enseñanza, los Profesores de Segunda Enseñanza, los maestros de
-Educación Primaria, los porteros de los Colegios Oficiales de Segunda
-Enseñanza y de las Escuelas Públicas, en servicio o pensionados;
-b) Los maestros inscritos en el escalafón que, sin haber iniciado
-sus servicios, soliciten el ingreso a la Sociedad dentro de los tres
-meses siguientes a la inscripción de sus títulos;
-c) Los maestros o profesores inscritos en su respectivo escalafón,
-que se retiren del servicio y soliciten el ingreso a la Sociedad dentro
-de los cinco años siguientes a su retiro, previa presentación de
-certificado de salud extendido por un médico que designará la Secretaría
-de Educación y siempre que la edad del solicitante no pase de los
-cincuenta años; y cuando hayan satisfecho la totalidad de las
-cotizaciones puestas al cobro por la misma, desde la fecha en que se
-hubieren retirado. Exceptúanse aquellos que se hallen inhabilitados
-formalmente por la Secretaría de Educación.
-d) Los empleados que desempeñen cargos administrativos en el ramo
-de Educación Pública y que al solicitar el ingreso a la Sociedad cuenten
-con cinco años de servicio, por lo menos. Los Directores y Profesores
-de las Escuelas Universitarias podrán ingresar a la Sociedad conforme
-a los requisitos que se exigen para el ingreso de maestros y profesores
-que se retiren del servicio, especificado en el inciso c) de esté
-artículo. Los maestros no titulados, los empleados administrativos y los
-porteros, sólo conservarán su calidad de miembros de la Sociedad, con
-los derechos que la ley establece, mientras permanezcan en el desempeño
-de sus cargos. Sin embargo, si sus servicios alcanzaren a diez años
-consecutivos, podrán ser nuevamente incorporados, siempre que lo
-soliciten dentro del primer mes siguiente a la fecha en que hubieren
-cesado en el desempeño del cargo.
+Artículo 496.-La Sociedad de Seguros de Vida del Magisterio Nacional, es un organismo social con todas las ventajas que las leyes establecen para esta clase de asociaciones, especialmente la que señala el artículo 266 del Código de Trabajo.
+Tendrá su asiento en la ciudad de San José y estará integrada por:
+a) Todos los funcionarios docentes y administrativos dependientes del Ministerio de Educación Pública, así como los que laboren en las instituciones de enseñanza oficial, semioficial y privada, que funcionen legalmente en sus diversos niveles y modalidades, y los que sirvan en organismos administrativos pertenecientes al sistema educativo nacional.
+(Así reformado el inciso anterior por el artículo 6° de la ley N° 7028 del 23 de abril de 1986)
+b) Los profesores, maestros y empleados administrativos pensionados o jubilados, de acuerdo con lo establecido en este Código o en la Ley de Pensiones del Magisterio, subrogada por este código;
+c) (Derogado por el artículo 6° de la ley N° 7028 del 23 de abril de 1986)
+d) Los empleados de las organizaciones de educadores legalmente constituidas, las juntas administrativas de los colegios oficiales; de las escuelas complementarias, y de las juntas de educación, siempre que hagan solicitud de ingreso dentro de los primeros seis meses de iniciados sus servicios;
+(Mediante el artículo 143 de la ley N° 6995 del 22 de julio de 1985, “Ley de Presupuesto Extraordinario”, se deja sin efecto el plazo de seis meses que establece el inciso anterior)
+e) Los profesores y maestros inscritos en su respectivo escalafón que sin haber iniciado sus servicios, soliciten el ingreso a la sociedad, dentro de los seis meses siguientes a la inscripción de sus títulos o certificados;
+(Mediante el artículo 143 de la ley N° 6995 del 22 de julio de 1985, “Ley de Presupuesto Extraordinario”, se deja sin efecto el plazo de seis meses que establece el inciso anterior)
+f) Los profesores o maestros inscritos en su respectivo escalafón que se retiren del servicio, o los pensionados o jubilados que dejen en suspenso su pensión o jubilación, y soliciten el reingreso a la sociedad dentro de los seis meses siguientes a la fecha de su retiro o suspensión, salvo que hayan sufrido la pena de separación definitiva del magisterio que establecen los artículos 149 y 158 de este código y cuando hayan satisfecho la totalidad de las cuotas puestas al cobro desde la fecha de su retiro o suspensión;
+(Mediante el artículo 143 de la ley N° 6995 del 22 de julio de 1985, “Ley de Presupuesto Extraordinario”, se deja sin efecto el plazo de seis meses que establece el inciso anterior)
+g) (Derogado por el artículo 6° de la ley N° 7028 del 23 de abril de 1986)
+h) Los profesores, maestros, o empleados administrativos que se retiren del servicio temporalmente con permiso y sin goce de sueldo, siempre que hagan solicitud de reingreso por el tiempo que dure la licencia; e
+i) Los profesores y maestros sin título ni certificado y los empleados administrativos, mientras permanezcan en el desempeño de sus cargos. Sin embargo, si sus servicios alcanzaren a cinco años, podrán, al dejar el servicio, ser nuevamente incorporados, para lo cual deben hacer la solicitud respectiva dentro de los seis meses siguientes a la fecha del cese de sus funciones, siempre que no hayan sido despedidos por causa grave de acuerdo con los artículos 149 y 159 de este código.
+(Mediante el artículo 143 de la ley N° 6995 del 22 de julio de 1985, “Ley de Presupuesto Extraordinario”, se deja sin efecto el plazo de seis meses que establece el inciso anterior)
+j) Toda persona que haya laborado en el sistema educativo costarricense, al cesar en el servicio, puede solicitar la reincorporación a la protección de la póliza mutual en cualquier tiempo, siempre y cuando pague la totalidad de las cuotas adeudadas, contadas desde la fecha del cese y hasta el día de la reincorporación, en la forma indicada en el artículo 501.
+(Así adicionado el inciso anterior por el artículo 143 de la ley N° 6995 del 22 de julio de 1985, “Ley de Presupuesto Extraordinario”)
+Los profesores y maestros reincorporados, de acuerdo con esta ley, que pasen a prestar servicios en alguna dependencia del Ministerio de Educación Pública, pueden solicitar que su reincorporación sea declarada en suspenso mientras duren en ese servicio.
+En los casos previstos en los incisos c), d), e), f), g), h) e i), si fallecieren los solicitantes sin haber sido resuelta su correspondiente solicitud, los beneficiarios tendrán derecho al seguro que establece el artículo 498 de este código, siempre que la resolución de la directiva, en cuanto a la incorporación o reincorporación de aquéllos, fuere afirmativa.
+(Así reformado por el artículo 1° de la ley N° 4204 del 21 de octubre de 1968)

@@ -1,4 +1,1 @@
-Artículo 99.- Los sacerdotes católicos que sean nombrados como
-maestros de Religión en las escuelas primarias, serán considerados como
-maestros especiales con Certificado de Idoneidad para la enseñanza de
-dicha materia.
+Artículo 99.- (Derogado por el artículo 4° de la ley N° 1249 del 20 de diciembre de 1950)

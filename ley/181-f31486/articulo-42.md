@@ -1,8 +1,3 @@
-Artículo 42.- Los Tesoreros Municipales serán también los
-Escolares, a excepción de los cantones centrales de provincia, y en los
-casos particulares en que la Secretaría de Educación Pública decida
-poner el manejo de los fondos escolares en persona distinta del Tesorero
-Municipal. En estos casos los Presidentes de las Juntas interesadas
-verificarán el nombramiento por mayoría de votos. En ningún caso podrá
-haber Tesorero Auxiliar en el distrito central del cantón ni en los
-distritos circunvecinos que tengan facilidades de comunicación.
+Artículo 42.- Los Tesoreros Municipales serán también los Escolares, a excepción de los cantones centrales de provincia, y en los casos particulares en que la Secretaría de Educación Pública decida poner el manejo de los fondos escolares en persona distinta del Tesorero Municipal. En estos casos los Presidentes de las Juntas interesadas verificarán el nombramiento por mayoría de votos. En ningún caso podrá haber Tesorero Auxiliar en el Distrito Central del cantón ni en los distritos circunvecinos que tengan facilidades de comunicación con el Central.
+Como excepción a lo dispuesto en el párrafo que antecede, las Juntas de Educación cuyos ingresos anuales sean superiores a cien mil colones, tendrán derecho a que sus fondos sean administrados por un Tesorero de su exclusivo nombramiento. Los Tesoreros Escolares que no fueren Tesoreros Municipales durarán en sus funciones tres años y podrán ser reelectos.
+(Así reformado por el artículo 1° de la ley Nº 48 de 15 de febrero de 1945)
