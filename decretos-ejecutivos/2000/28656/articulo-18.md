@@ -1,0 +1,1 @@
+Artículo 18.—Trámite de procesos de incumplimiento pendientes. En caso de que a la fecha de creación de una Proveeduría Institucional, la Proveeduría Nacional estuviere tramitando procesos de incumplimiento correspondientes al respectivo ministerio, éstos serán trasladados a éste último, en la etapa en que se encontraren, para su terminación.

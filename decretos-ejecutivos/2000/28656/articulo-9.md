@@ -1,0 +1,1 @@
+Artículo 9º—De la plataforma tecnológica. La plataforma tecnológica que la Proveeduría Nacional designe será el instrumento para ejecutar los procesos de contratación administrativa de la Proveeduría Institucional de cada Ministerio, la cual será utilizada por la Proveeduría Nacional de modo que pueda ejecutar su función fiscalizadora.

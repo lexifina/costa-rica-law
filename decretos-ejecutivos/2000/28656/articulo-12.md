@@ -1,0 +1,1 @@
+Artículo 12.—Deber de informar sanciones. La Proveeduría Institucional de cada Ministerio mantendrá la obligación de informar a la Proveeduría Nacional de todas las sanciones impuestas una vez firmes, a efectos de incorporarlas al Registro de Proveedores.

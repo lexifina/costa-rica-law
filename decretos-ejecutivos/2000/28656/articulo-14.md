@@ -1,0 +1,1 @@
+Artículo 14.—Medidas correctivas. La Proveeduría Nacional en su carácter de órgano técnico - consultivo podrá, en cualquier momento y mediante resolución, sugerir al Jerarca correspondiente o al Poder Ejecutivo en su caso, las medidas correctivas pertinentes a adoptar en la respectiva Proveeduría Institucional.

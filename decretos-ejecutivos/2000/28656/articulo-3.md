@@ -1,0 +1,1 @@
+Artículo 3º—Organización. Los requisitos a cumplir por la Proveeduría Institucional de cada Ministerio, de previo a su creación y a efectos de poder iniciar su operación, serán definidos por la Proveeduría Nacional vía resolución razonada, a efecto de contar con una estructura organizacional idónea.

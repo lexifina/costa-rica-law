@@ -1,0 +1,1 @@
+Artículo 4º—Jefatura. La Proveeduría Institucional de cada Ministerio deberá contar con un Proveedor Institucional, quien ejercerá las funciones de jefatura y cuyo nombramiento se hará conforme a las reglas del Régimen del Servicio Civil.

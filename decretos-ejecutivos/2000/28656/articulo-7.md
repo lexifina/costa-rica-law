@@ -1,0 +1,1 @@
+Artículo 7º—De los pagos al exterior. La tramitación de todas las gestiones relacionadas con el pago al exterior y exoneración de tributos de importación para bienes adquiridos mediante el proceso de contratación administrativa de las Proveedurías Institucionales de los Ministerios, será realizada a través del Departamento de Pedidos al Exterior de la Proveeduría Nacional.
