@@ -13,3 +13,4 @@ Amplía Zona Portuaria Reservada creada por Ley Préstamo Puerto Caldera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-05-29 | la propia norma |
+| 2 | 1980-05-29 | SINALEVI (sin norma nombrada) |
