@@ -15,3 +15,4 @@ Reforma Sector Industria, Energía y Minas
 | --- | --- | --- |
 | 1 | 1984-04-06 | la propia norma |
 | 2 | 1984-07-16 | Decreto Ejecutivo 15658 (1984-07-16) |
+| 3 | 1992-06-03 | Decreto Ejecutivo 21351 (1992-06-03) |

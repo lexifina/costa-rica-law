@@ -1,3 +1,4 @@
+(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 20879 del 7 de noviembre de 1991, se crea la Oficina de Planificación del Ministerio de Economía, Industria y Comercio y artículo 3° modifica en lo conducente y deroga en lo que se le oponga el presente decreto ejecutivo. Posteriormente mediante el decreto ejecutivo N° 21351 del 3 de junio de 1992, se Constituye el Sector Recursos Naturales, Energía y Minas y artículo 63 establece que se derogue el presente decreto únicamente en lo que resulte incompatible con el decreto N° 21351, en razón de la especialidad de la materia de Recursos Naturales, Energía y Minas)
 N° 15290
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE INDUSTRIA, ENERGIA Y MINAS Y DE PLANIFICACION NACIONAL Y POLITICA ECONOMICA,
