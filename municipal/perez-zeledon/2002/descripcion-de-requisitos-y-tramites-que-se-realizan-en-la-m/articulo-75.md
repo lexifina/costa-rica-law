@@ -1,0 +1,1 @@
+Artículo 75.—Vigencia de estos procesos. Los procesos que se han descrito en la presente publicación entrarán en vigencia luego de su aprobación por parte del Concejo Municipal y una vez que se hayan publicado en el Diario Oficial La Gaceta.

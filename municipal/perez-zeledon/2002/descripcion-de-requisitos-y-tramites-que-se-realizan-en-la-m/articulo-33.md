@@ -1,0 +1,7 @@
+Artículo 33.—Proceso de otorgamiento de permisos para actividades comunales y para espectáculos públicos ocasionales.
+Requisitos:
+1. Para el otorgamiento de permisos para la ejecución de actividades comunales los grupos organizados interesados, deberán satisfacer las disposiciones contempladas en los artículos número dos, cinco, ocho, diez, once y once bis del Reglamento para el Otorgamiento de Permisos para la Celebración de Fiestas Cívicas y Patronales y Autorización de Patentes Temporales para el Expendio de Licores, publicado en La Gaceta Nº 7 del 11 de enero del 2000.
+2. En el caso de los permisos para la ejecución de espectáculos públicos ocasionales, se regirá conforme a los requerimientos que se indican en el artículo trece y trece bis Reglamento de para el Cobro del Impuesto de Espectáculos Públicos del Cantón de Pérez Zeledón, publicado en el Alcance Nº 36 a La Gaceta Nº 100, del 25 de mayo del 2001.
+Descripción del proceso:
+1. El proceso para el otorgamiento del permiso para la celebración de una actividad comunal ya sea en forma cívica o patronal, el proceso a seguir será de acuerdo con lo establecido el capítulo II del Reglamento para el Otorgamiento de Permisos para la Celebración de Fiestas Cívicas y Patronales y Autorizaciones de Patentes Temporales para el Expendio de Licores.
+2. En el caso de los permisos de espectáculo públicos ocasionales, el proceso para el cobro y trámite de tales eventos, se hará conforme lo establece el capítulo IV del Reglamento para el Cobro del Impuesto de Espectáculos Públicos.

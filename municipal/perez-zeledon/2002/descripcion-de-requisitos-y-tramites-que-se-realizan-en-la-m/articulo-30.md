@@ -1,0 +1,3 @@
+Artículo 30.—10. Proceso declaraciones de patentes.
+Requisito: Para recibir, revisar y aprobar una declaración para el cálculo del impuesto de patentes, el administrado deberá satisfacer aquellos requerimientos que se mencionan en los artículos 5º, 6º y 7º de la Ley de Patentes del Cantón de Pérez Zeledón, Ley Nº 7737. De igual forma los artículos 15, 16 y 18 del Reglamento de Patentes del Cantón de Pérez Zeledón.
+Descripción del proceso: El proceso para recibir, revisar y aprobar una Declaración de Patentes, los procedimientos se expresan en los artículos 3º, 4º, 5º, 6º, 7º, 9º, 10, 11, 12 y 13 de la Ley de Patentes del Cantón de Pérez, así como los artículos 15, 16, 17, 18, 41 del Reglamento de Patentes del Cantón de Pérez Zeledón.

@@ -1,0 +1,3 @@
+Artículo 37.—Proceso de cobro judicial.
+Requisito: Para que una cuenta se traslade al abogado respectivo para su correspondiente cobro judicial, tiene como único requisito que el proceso de cobro administrativo se agotara. En otras palabras una cuenta en cobro judicial se da cuando el cobro administrativo finaliza o cundo el contribuyente incumple las obligaciones de un arreglo de pago.
+Descripción del proceso: El traslado de una cuenta a cobro judicial se hará con base en lo que indica el Reglamento de Cobro Administrativo y Judicial publicado en La Gaceta Nº 6 del 9 de enero del 2001, en el cual se detalla paso a paso los procesos que se tiene que aplicar.
