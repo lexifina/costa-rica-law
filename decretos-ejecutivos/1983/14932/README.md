@@ -14,3 +14,4 @@ Crea Consejo Nacional Bibliotecas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-11-07 | la propia norma |
+| 2 | 1984-01-12 | Decreto Ejecutivo 15187 (1984-01-12) |

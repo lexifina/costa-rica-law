@@ -1,5 +1,6 @@
 Artículo 4°.-El Consejo tendrá las siguientes funciones:
-a) Recomendar la política nacional que tienda a redefinir el papel del Sistema de Bibliotecas Escolares, públicas, oficiales, semioficiales, con el propósito de aprovechar al máximo su infraestructura y servicios, mediante el desarrollo de actividades de difusión culturales, propiciados tanto por las comunidades como por las instituciones del gobierno.
+a) Recomendar la política nacional que tienda a redefinir el papel de las bibliotecas públicas, oficiales, semioficiales, con el propósito de aprovechar al máximo su infraestructura y servicios, mediante el desarrollo de actividades de difusión artístico-culturales, propiciadas tanto por las comunidades como por las instituciones del Gobierno, lo mismo que coordinar sus tareas con el Sistema de Bibliotecas Escolares.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 15187 del 12 de enero de 1984)
 b) Recomendar las políticas para la adquisición de material bibliográfico.
 c) Redefinir el papel de la Biblioteca Nacional, para que actúe como un verdadero centro depositario bibliográfico de la nación y que brinde un ¢óptimo servicio de referencia a investigadores nacionales y extranjeros.
 d) Establecer pautas que permitan coordinar e integrar el Sistema de Bibliotecas Públicas oficiales y semioficiales y el Sistema de Bibliotecas Escolares, con el objeto de mejorarlos al máximo en lo referente a prestación de servicios y facilidad de horarios para los estudiantes.
