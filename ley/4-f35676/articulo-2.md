@@ -1,0 +1,1 @@
+Art. 2°-La concesión expresada en el artículo anterior no se extiende á los billetes del Banco que hay en circulación, los cuales deberán ser pagados en dinero efectivo, conforme á la leyenda de los mismos.
