@@ -1,1 +1,0 @@
-Artículo 9°—A los notarios notificadores les será aplicable lo dispuesto en el título I, Capítulo V del Código Procesal Civil, en los mismos términos que a los notificadores ordinarios. Sin perjuicio de otras sanciones procedentes, el incumplimiento grave de las obligaciones aquí asignadas al notario, será motivo de exclusión de la lista respectiva.
