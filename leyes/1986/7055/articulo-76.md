@@ -1,0 +1,1 @@
+Artículo 76.-Autorízase a la Municipalidad de Alajuelita para que ceda al Ministerio de Salud, tres mil metros cuadrados del terreno inscrito en el folio real N° 314 208 000, para la construcción de un centro de atención integral, en la zona verde de la Urbanización 11 de Abril, en el distrito de Concepción de Alajuelita.

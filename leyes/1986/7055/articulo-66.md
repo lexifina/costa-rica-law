@@ -1,0 +1,1 @@
+Artículo 66.-Se autoriza al Instituto de Fomento y Asesoría Municipal (IFAM) para que utilice el aporte municipal proveniente de la partida específica 664-300.01-132-31, en la compra de un retraexcavador para la Municipalidad de Coronado.

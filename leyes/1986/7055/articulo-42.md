@@ -1,0 +1,1 @@
+Artículo 42.-Se autoriza a la Cruz Roja de Hojancha, Guanacaste, para que compre un vehículo exento de todo tipo de impuestos, tasas, sobretasas y otros. Este vehículo será utilizado por esa institución como ambulancia de Hojancha.

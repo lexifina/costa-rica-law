@@ -1,0 +1,2 @@
+Artículo 46.-(*) Exonérase a la Asociación Cruzada Nacional de Protección al Anciano de los impuestos de ventas y de consumo, por ser esta entidad la federación de todas las instituciones de bienestar social sin fines de lucro, dedicada a la atención de ancianos, declarada de utilidad pública y debidamente inscrita en el Registro Público.
+(*) ANULADO por Resolución de la Sala IV Nº 759-92 de las 15:00 horas del 17 de marzo de 1992.

@@ -1,0 +1,1 @@
+Artículo 80.-Autorízase al Gobierno para que cancele las facturas por servicios hospitalarios brindados a las personas que fueron afectadas por el incendio ocurrido en la Embajada de Costa Rica en Washington D. C., USA, el día 15 de diciembre de 1985. La Contraloría General de la República verificará la legalidad de los pagos que por esa razón se realicen.

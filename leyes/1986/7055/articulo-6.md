@@ -1,0 +1,3 @@
+Artículo 6°.- Apruébanse la siguiente Relación de puestos para los Centros Educativos del Ministerio de Educación Pública, para 1987, por Direcciones Regionales de Enseñanza.
+RELACION DE PUESTOS DE LOS CENTROS EDUCATIVOS DEL MINISTERIO DE EDUCACIÓN PÚBLICA PARA EL AÑO 1987
+…

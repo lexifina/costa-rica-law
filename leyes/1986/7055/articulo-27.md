@@ -1,0 +1,1 @@
+Artículo 26.-Se autoriza a la Caja Costarricense de Seguro Social para que traspase al Ministerio de Salud, parte del inmueble ubicado en los costados oeste y norte de la biblioteca pública de Alajuela. El terreno por donar será de dos mil quinientos metros cuadrados ( 2 500 m2 ) y se destinará a la construcción de un CEN-CINAI.

@@ -1,0 +1,1 @@
+Artículo 77.-Se autoriza a la Municipalidad de Pérez Zeledón para que le traspase el terreno que le fue donado por la Asociación Cultural Schwaben, a la Asociación Nacional pro Desarrollo de la Artesanía (ANDA), cédula jurídica número 3-002-056163-11.

@@ -1,0 +1,3 @@
+Artículo 7.- Apruébanse la siguiente Relación de Puestos de Jornales de la Administración Pública, para el año 1987.
+050 RELACIÓN DE PUESTOS DE JORNALES PARA EL AÑO 1987.
+…

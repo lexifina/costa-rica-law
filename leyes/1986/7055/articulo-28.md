@@ -1,0 +1,1 @@
+Artículo 28.-Se autoriza al Instituto Costarricense de Ferrocarriles (lNCOFER) para que done piedra quebrada a las municipalidades de la provincia de Limón, con el fin de que éstas la empleen en la pavimentación de las calles de los respectivos cantones.

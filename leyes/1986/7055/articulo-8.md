@@ -1,0 +1,3 @@
+Artículo 8°.- Apruébanse la siguiente Relación de Puestos de Servicios Especiales de la Administración Pública, para el año 1987.
+080 - RELACIÓN DE PUESTOS DE SERVICIOS ESPECIALES.
+…

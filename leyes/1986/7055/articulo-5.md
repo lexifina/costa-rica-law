@@ -1,0 +1,3 @@
+Artículo 5°.- Apruébanse la siguiente Relación de Puestos para Cargos Fijos de la Administración Pública para el año 1987.
+000 - RELACION DE PUESTOS FIJOS PARA EL AÑO 1987
+…

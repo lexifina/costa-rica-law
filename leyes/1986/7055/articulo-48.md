@@ -1,0 +1,2 @@
+Artículo 48.-Modifícase el artículo 31 de la Ley de Pensiones y Jubilaciones del Magisterio Nacional (N° 2248 del 5 de setiembre de 1958 y sus reformas), el cual dirá así:
+"Artículo 31.-El pago de las dietas de los miembros de la Junta, así como el pago de los salarios del personal necesario para su funcionamiento y los gastos requeridos que correspondan, se harán con cargo al fondo que al efecto establece el artículo 20 de esta ley, del cual, y a ese efecto, sólo deberá destinarse el equivalente al dos por mil (2/1000)."

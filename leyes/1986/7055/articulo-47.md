@@ -1,0 +1,2 @@
+Artículo 47.-Se exoneran del impuesto que establece la ley N° 6844 del 11 de enero de 1983, reformada por la ley N° 6890 del 14 de setiembre de 1983, los espectáculos públicos deportivos, conforme lo establecen las leyes números 4844 del 29 de setiembre de 1971 y 4949 del 7 de febrero de 1972.
+(TACITAMENTE DEROGADO en forma parcial (leyes 4844 y 4949), por el artículo 1º de la Ley Nº 7293 de 31 de marzo de 1992).

@@ -1,0 +1,1 @@
+Artículo 61.-Se autoriza a las municipalidades del país para que le donen al INVU y al IMAS, terrenos para lotificarlos y destinarlos a la construcción de viviendas para familias de escasos recursos económicos, excepto los terrenos dispuestas para parques y áreas de recreación, traspasados a las municipalidades por recibo de urbanizaciones.

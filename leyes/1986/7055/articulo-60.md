@@ -1,0 +1,1 @@
+Artículo 60.-Con motivo de celebrarse en 1987 el 250 aniversario de la fundación de la ciudad de San José, autorízase al Ministerio de Cultura, Juventud y Deportes, para que cree el museo de la ciudad de San José en el edificio de la actual estación ferroviaria del Atlántico. Refórmase al efecto lo dispuesto por la norma N° 21 del Presupuesta Ordinaria de 1986.

@@ -1,0 +1,1 @@
+Artículo 41.- La Autoridad Presupuestaria autorizará, durante 1987, a la Junta Administrativa del Servicio Eléctrico de Cartago, para que adquiera un equipo automotor equipado con canasta aislada, que será utilizado en el mantenimiento del alumbrado público.

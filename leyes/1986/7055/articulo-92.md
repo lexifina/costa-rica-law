@@ -1,0 +1,1 @@
+Artículo 92.-Se autoriza al Instituto Nacional de Vivienda y Urbanismo (INVU) para que le condone a la Asociación pro Vivienda El Pueblo, el total de la deuda por costos financieros, al momento de entrar en vigencia la presente ley.

@@ -1,0 +1,1 @@
+Articulo 75.-Se autoriza a la Municipalidad de Goicoechea para que utilice cincuenta mil colones ( ¢50.000,00) en reparaciones del alumbrado público de la calle La Cruz , del distrito Mata de Plátano, de la partida destinada para arreglo de calles, distrito primero, según el giro N° 861494388.

@@ -1,0 +1,1 @@
+Artículo 79.-Se autoriza a todas las instituciones y empresas del Estado para que hagan donaciones al Liceo de San José de Alajuela y a la Escuela General José de San Martín de Alajuela. Tales donaciones serán utilizadas en mejoras, en obras nuevas y en equipos.
