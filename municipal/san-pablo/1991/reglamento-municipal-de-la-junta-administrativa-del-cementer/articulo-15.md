@@ -1,0 +1,3 @@
+Artículo 15.-Mantenimiento de las bóvedas:
+Correrá por cuenta y riesgo de sus respectivos dueños. Caso de abandono de las mismas, la Junta comunicará a los interesados para su limpieza y reparación con un plazo de treinta (30) días si no se hiciere, la Junta procederá a hacer esas reparaciones y limpiezas necesarias y cobrará a su dueño el valor de los trabajos más el 50% de recargo.
+Toda persona poseedora de un derecho, deberá pagar la suma de ¢1.000,00 (mil colones), base anual para limpieza y mantenimiento del cementerio. El Consejo Municipal se reserva el derecho de actualizar, anualmente esta tarifa.

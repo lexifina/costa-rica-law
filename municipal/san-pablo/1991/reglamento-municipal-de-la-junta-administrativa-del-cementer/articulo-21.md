@@ -1,0 +1,1 @@
+Artículo 21.-La Junta no se responsabiliza de ningún accidente que ocurriere en las construcciones que se hagan dentro del cementerio, ni de ninguna otra índole, salvo en caso de intervención de la Junta. Estas construcciones, reparaciones o modificaciones corren por cuenta y riesgo de los dueños de los derechos.

@@ -1,0 +1,1 @@
+Artículo 3°-El Concejo podrá reelegir a aquel miembro de la Junta y si es del caso, a todos, si la labor realizada por ellos se considera inadecuada a las necesidades para las cuales fueron nombrados.

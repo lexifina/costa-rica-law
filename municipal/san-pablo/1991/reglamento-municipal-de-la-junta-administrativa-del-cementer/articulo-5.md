@@ -1,0 +1,2 @@
+Artículo 5°-EI Presidente de la Junta será quien dirigirá las sesiones o en su defecto lo hará el primer vocal, queda, así mismo, facultado para convocar a sesiones extraordinarias, caso de presentarse situaciones especiales que así lo ameriten, firmar junto con el secretario, las actas, una vez que las mismas hayan sido debidamente aprobadas por la Junta, refrendadas por el Concejo Municipal; los contratos y compromisos que la Junta contrajera, serán firmados por el Ejecutivo Municipal.
+El quórum respectivo será integrado por la mayoría de los miembros de la Junta.

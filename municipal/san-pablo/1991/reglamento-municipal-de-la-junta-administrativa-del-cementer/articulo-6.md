@@ -1,0 +1,2 @@
+Artículo 6°-EI directivo que faltare a tres sesiones consecutivas, se entenderá por renunciado a su cargo debiendo proceder la Junta a indicar al Concejo, el nombre de la persona que sustituya a fin de que se haga efectivo el nombramiento. Lo anterior queda sujeto a la aprobación o desaprobación del Concejo Municipal.
+Si fuere rechazado se procederá a indicar a otra persona. De hacerse efectivo el nombramiento el nuevo miembro fungirá como tal por el resto del período que dure en sus funciones la Junta.

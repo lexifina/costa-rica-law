@@ -1,0 +1,1 @@
+Artículo 4°-Las personas que se nombren como miembros de la Junta, tomarán posesión de sus cargos, en la primera semana del mes de enero, procediendo en la primera sesión, a confirmar los cargos que le ha asignado la Municipalidad..

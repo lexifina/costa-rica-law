@@ -1,0 +1,1 @@
+Artículo 20.-Todo caso que se presentare y no esté estipulado en el reglamento, la Junta queda facultada y con amplios poderes para resolverlos en la forma que a su juicio considere conveniente, mediante acuerdo de la misma.

@@ -1,0 +1,1 @@
+Artículo 2°-El nombramiento deberá hacerse en el transcurso del mes de diciembre a fin de que entren en posesión de sus cargos a partir del 1° de enero del siguiente año. El nombramiento en cuestión se hará efectivo cada año en razón de que las funciones de la Junta que se nombre será por el lapso de tiempo.

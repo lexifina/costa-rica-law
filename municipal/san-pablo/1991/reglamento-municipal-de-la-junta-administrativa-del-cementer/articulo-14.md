@@ -1,0 +1,1 @@
+Artículo 14.-El valor de los nichos que la Junta tiene para rentar es de ¢6.000,00 (seis mil colones), pagando por año ¢1.200,00 (mil doscientos colones), durante cinco años. Al cumplirse esta fecha, si los restos no son retirados por los parientes, serán depositados por la Junta, en el Osario General.
