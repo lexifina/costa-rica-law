@@ -1,1 +1,0 @@
-ARTICULO 44.- Para ser Diputado, se requiere ser Ciudadano de la República mayor de edad, del estado seglar, ó del Eclesiástico secular, y poseer una propiedad que no baje de quinientos pesos ó una renta de cien pesos anuales, ó ser profesor de alguna ciencia.

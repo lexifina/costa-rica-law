@@ -1,1 +1,0 @@
-ARTICULO 57.- Todo proyecto de Ley se leerá dos veces en Sesiones diferente, y si se admitiese se pasará para su examen a una comisión. El dictamen de esta tendrá también dos lecturas en días distintos, y en la última se señalará el de la discusión

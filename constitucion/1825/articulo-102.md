@@ -1,1 +1,0 @@
-ARTICULO 102.- Cuando se temiere Fuga del reo de algún delito ó se encontrare en el acto de cometerlo se detendrá el la cárcel sin las formalidades del artículo anterior; pero ellas deberán ser evacuadas dentro de veinte y cuatro horas.

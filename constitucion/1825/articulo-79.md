@@ -1,1 +1,0 @@
-ARTICULO 79.- Para ser Jefe y segundo Jefe se requiere ser natural de la República , Ciudadano en ejercicio de sus derechos; del estado seglar; mayor de treinta años, y tener una propiedad que no baje de mil pesos, ó una renta anual de doscientos, ó ser profesor de alguna ciencia.
