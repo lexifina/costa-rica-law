@@ -1,0 +1,1 @@
+Artículo 43.—Disposiciones varias: En lo no previsto en este Reglamento, la Oficialía Mayor del Ministerio del Ambiente y Energía, resolverá las situaciones que se presenten, mediante resoluciones concretas o circulares de carácter general-, todo sin perjuicio de posteriores modificaciones, aclaraciones o rectificaciones a este Reglamento.

@@ -1,0 +1,1 @@
+Transitorio I.—Hasta tanto no se establezcan las Unidades de Transporte Descentralizado en las diferentes dependencias, todo lo relativo a este Reglamento lo tramitará la Unidad Central del Ministerio.

@@ -1,0 +1,1 @@
+Articulo 11.—Custodia de los vehículos en gira: Cuando un vehículo se encuentre en gira, deberá ser ubicado en lugares que brinden condiciones adecuadas y no podrá, circular en horas y días en que no esté debidamente autorizado.

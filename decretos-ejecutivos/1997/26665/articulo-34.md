@@ -1,0 +1,1 @@
+Artículo 34.—Prohibición de arreglos extrajudiciales: Ningún conductor del Ministerio está autorizado para efectuar arreglos extrajudiciales. En caso de accidentes con vehículos del ministerio, únicamente, debe indicarle al particular que se apersone o comunique con el Departamento Servicios Generales para efectuar las gestiones correspondientes.

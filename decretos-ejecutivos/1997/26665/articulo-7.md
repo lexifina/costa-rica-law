@@ -1,0 +1,1 @@
+Artículo 7°—Unidades Administrativas: Las Unidades Administrativas de MINAE serán las encargadas de ejecutar las medidas de conservación y control en cuanto al uso de los vehículos- Los jerarcas de estas unidades velarán porque las disposiciones contenidas en el presente Reglamento sean debidamente acatadas.
