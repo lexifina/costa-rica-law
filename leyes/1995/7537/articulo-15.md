@@ -1,3 +1,3 @@
-ARTICULO 15.- Quórum.
-El quórum de la Asamblea General, tanto ordinaria como extraordinaria, lo conformará la presencia de la mitad más uno de los miembros activos del Colegio.Sin embargo, cuando el quórum no se establezca en la primera convocatoria, la Asamblea General podrá efectuarse en la segunda convocatoria una hora después, *(por lo menos con un treinta por ciento (30 %) de los miembros activos del Colegio).
-* (La Sala Constitucional mediante resolución N° 10537-01, de las 14:50 horas del 17/10/2001, dispuso anular de este artículo la frase destacada entre paréntesis, por considerar que vulnera el principio de razonabilidad constitucional. Cabe aclarar en este sentido que, es importante destacar que la acción presentada lo fue a fecha 12-5-00, a priori de la reforma efectuada a este artículo por la ley 8016 de fecha 29-8-00.)
+ARTICULO 15.- Quórum
+La Asamblea General del Colegio de Profesionales en Informática y Computación, tanto en sesiones ordinarias como extraordinarias, iniciará al menos con la mitad más uno de sus miembros activos. Si a la hora señalada no existe dicho quórum, la Asamblea sesionará una hora después en segunda convocatoria, con un siete por ciento (7%), como mínimo, de los miembros activos del Colegio.
+(Así reformado por Ley N° 8016 del 29 de agosto del 2000.)
