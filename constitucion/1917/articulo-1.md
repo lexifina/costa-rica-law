@@ -1,4 +1,6 @@
+(Derogado)
 ASAMBLEA NACIONAL CONSTITUYENTE
+(Esta norma fue derogada por el artículo 1° de la ley N° 1 del 3 de setiembre de 1919)
 NOSOTROS, los Representantes del pueblo de Costa Rica, legítimamente convocados para rever la Constitución Política y proceder a su reforma total a fin de asegurar sobre bases sólidas el bien común y los beneficios de la libertad
 y de un Gobierno adoptado a las necesidades y conveniencias generales, decretamos y sancionamos la siguiente
 CONSTITUCION POLITICA
