@@ -1,0 +1,2 @@
+Comprobación para Pagos Fiscales
+Artículo 51.- Si para efectos fiscales o de control de precios se alegare el pago de divisas a un tipo de cambio superior al oficial, en los caso en que esto proceda con arreglo a la ley, ese hecho deberá probarse con facturas o recibos firmados por el vendedor de las divisas. Las autoridades fiscales y de control de precios tendrán amplia facultad para apreciar esa prueba y el tipo de cambio que se acepte en ningún caso puede ser mayor del que rigiere en el mercado libre en la fecha en que se realizó la operación respectiva.

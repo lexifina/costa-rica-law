@@ -1,0 +1,2 @@
+Operaciones en otras Formas
+Artículo 29.- Las operaciones de compra y venta de monedas metálicas o billetes extranjeros, de transferencias cablegráficas, de letras y otros giros a plazo, se harán a los tipos mencionados en el artículo anterior, pero el Banco Central o los otros bancos podrán cargar a sus clientes los gastos propios de dichas operaciones de cambio, tales como las expensas de remisión de monedas o billetes, el importe de las tasas cablegráficas, los cargos por descuento de documentos a plazo y los intereses y comisiones aplicables a documentos en tránsito.
