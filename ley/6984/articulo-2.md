@@ -1,1 +1,0 @@
-Artículo 2º.- La pensión autorizada mediante esta Ley será de diez mil colones mensuales. Este monto se incrementará anualmente en el porcentaje que aumente el costo de la vida, según el índice que para tal efecto determine el Banco Central de Costa Rica.
