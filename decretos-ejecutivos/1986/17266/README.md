@@ -13,3 +13,4 @@ Reglamento Dispositivo Seguridad Vehículos Automotores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-11-12 | la propia norma |
+| 2 | 1986-11-12 | SINALEVI (sin norma nombrada) |

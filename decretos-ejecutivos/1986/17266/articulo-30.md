@@ -8,15 +8,17 @@ intermitentes.
 c) Se pueden agrupar diversas luces en el mismo dispositivo de
 iluminación, siempre que cada una de ellas cumpla las
 disposiciones pertinentes establecidas en este Reglamento.
-d) Los vehículos no deben llevar luz rojas delantera ni luz blanca
-trasera alguna, con excepción de luces de retroceso y de la
-placa de matrícula.
+d) Los vehículos no deben llevar luz roja delantera ni luz blanca
+trasera alguna, con excepción de luces de retroceso, de freno en
+los casos en que fuera requerido y de la placa de matrícula.
 En esas condiciones, las luces delanteras deben ser de color
 blanco, amarillo o naranja tenue, y las luces traseras de color
 rojo, amarillo o naranja.
 e) Los vehículos de construcción especial o que transporten cargas
 importantes pueden tener instaladas luces especiales, siempre y
-cuando posean el permiso respectivo emitido por la Dirección de
-Transporte Automotor.
-f) Cualquier otro tipo de luz no contemplada en este capítulo,
-queda absolutamente prohibida.
+cuando posean el permiso respectivo emitido por la Dirección
+General de Transporte Automotor.
+f) Cualquier otro tipo de luz no contemplada en este capítulo, queda
+absolutamente prohibida.
+( Así reformado por el artículo 1º del decreto Nº 17813
+del 9 de noviembre de 1987).
