@@ -1,0 +1,1 @@
+Art. 5°-Se afecta especialmente al servicio de los intereses del empréstito la renta de destace correspondiente por la ley á la Instrucción Pública. El exceso que esa renta no cubriere se tomará de la general del ramo.

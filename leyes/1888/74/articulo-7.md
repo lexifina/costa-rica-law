@@ -1,0 +1,3 @@
+Art. 7°-Todo distrito escolar cuya renta de destace no fuere suficiente para cubrir el los edificios que han de construirse, deberá contribuir con la cantidad necesaria para llenar dicho presupuesto de los edificios que han de construirse, deberá contribuir con la cantidad necesaria para llenar dicho presupuesto, siempre que lo que falte no exceda del 50% del valor de la obra.
+Si la renta de destace no bastare para obtener el 50% del valor de los presupuestos se complementará por el Tesoro Público.
+En los distritos escolares donde el vecindario, por suma pobreza, no pudiere allegar el 50 % del valor de los edificios, auxiliado ó nó por el fondo de destace, se construirán las escuelas por cuenta del Estado.

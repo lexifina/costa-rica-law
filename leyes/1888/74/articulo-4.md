@@ -1,0 +1,1 @@
+Art. 4°-Cinco años después de emitido el empréstito, gozará éste de un fondo de amortización de 2 % anual sobre el capital emitido. El Poder Ejecutivo puede aumentar el tanto por ciento de amortización.
