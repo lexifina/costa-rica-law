@@ -1,0 +1,1 @@
+Artículo 10.—Método de inspección. Para la inspección de cada parte y elemento del vehículo se utilizará la metodología especificada en cada uno de los capítulos del Manual de Procedimientos referido en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 12.—Notificación a la Empresa de RTV. Hasta la aprobación y publicación de un nuevo Manual de procedimientos para las estaciones de RTV, se faculta al MOPT para que notifique administrativamente a la empresa de RTV las partes del manual vigente que aplican de conformidad con el artículo 11, anterior.

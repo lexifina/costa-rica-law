@@ -1,0 +1,2 @@
+Artículo 5º—Entrega de los documentos de la RTV. Cuando se
+efectúen las revisiones técnicas a maquinaria agrícola y de obras fuera de la red de estaciones de la Empresa de RTV, ésta extenderá la documentación completa de RTV a vehículos inscritos, así como la que sea necesaria para inscribir el vehículo por primera vez en el Registro Nacional, únicamente para aquellos vehículos a los que se les compruebe la inexistencia de defectos, lo cual se hará dentro de los tres (3) días hábiles siguientes a la fecha de la revisión efectuada.
