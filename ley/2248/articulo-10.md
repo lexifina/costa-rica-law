@@ -1,1 +1,2 @@
-Artículo 10.-Se podrán acumular dos o más derechos de sucesión completos o partes de esos derechos en una misma persona, siempre que sumados no excedan de cuatrocientos colones (¢ 400.00) y cuando así sea, se le girará como máximo esa suma.
+Artículo 10.-Se podrán acumular dos o más derechos de sucesión completos o partes de esos derechos en una misma persona.
+(Así reformado por el artículo 1° de la ley N° 6285 del 26 de octubre de 1978)
