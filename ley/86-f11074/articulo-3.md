@@ -1,0 +1,1 @@
+Art. 3°-Desde la primera presentación, podrá el interesado pedir que se proceda á la medida; pero serán de su cargo las costas, daños y perjuicios que se pudieran ocasionar á terceros, por no esperarse la expiración del término del llamamiento antes de dar principio á la medida.

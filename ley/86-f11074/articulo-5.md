@@ -1,0 +1,1 @@
+Art. 5°-Los peritos medidores deberán ser agrimensores, ó cuando menos, estar autorizados por la práctica de las medidas á que se para refiere esta ley. El Ejecutivo dará esta autorización en vista del buen resultado del examen práctico que se rinda á presencia de dos agrimensores ó ingenieros, nombrados por el Ejecutivo al efecto.
