@@ -50,3 +50,5 @@ Radiográfica Costarricense, S. A. (RACSA) | Alquiler Canales Digitales Alquiler
 Refinadora Costarricense de Petróleo (RECOPE) | Impuesto único a los combustibles Compra de Materia Prima. Compra de Producto Terminado Transporte y Fletes Internacionales Seguros por importación de hidrocarburos Canon ARESEP Canon Aviación Civil Comisión sobre tarjetas de crédito. Póliza todo Riesgo, Daño Físico y Póliza Responsabilidad Civil por venta de combustible de aviación -aeropuertos.
 Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento (SENARA) | Transferencia a SEPSA según Ley N° 7064
 Teatro Nacional de Costa Rica | Transferencias a: Museo de Arte Costarricense. Compañía Nacional de Teatro Transferencia al Centro Nacional de la Música-Unidad Técnica Especializada Orquesta Sinfónica Nacional (Así reformado por el decreto ejecutivo N° 31240 de 16 de junio de 2003)
+La Transferencia del Servicio Nacional de Aguas Subterráneas Riego y Avenamiento, destinada al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria.
+(Así Adicionado por el artículo N° 1 del Decreto Ejecutivo N° 31265 de 23 de junio de 2003.)

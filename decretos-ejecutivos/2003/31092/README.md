@@ -15,3 +15,4 @@ Directrices de política presupuestaria del 2004 para los ministerios, demás ó
 | --- | --- | --- |
 | 1 | 2003-03-31 | la propia norma |
 | 2 | 2003-06-17 | Decreto Ejecutivo 31240 (2003-06-17) |
+| 3 | 2003-06-23 | Decreto Ejecutivo 31265 (2003-06-23) |
