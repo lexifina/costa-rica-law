@@ -1,0 +1,10 @@
+CIRCULAR-9-04
+AL JUZGADO CIVIL DE HACIENDA DE ASUNTOS SUMARIOS DEL SEGUNDO CIRCUITO JUDICIAL DE SAN JOSÉ, INSTITUCIONES, ABOGADOS Y PÚBLICO EN GENERAL SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 91-2003, celebrada el 2 de diciembre del 2003, artículo XXXIII, a solicitud de la Comisión de Notificaciones, aprobó el Proyecto para Eliminar la impresión de Actas de Notificación en el Juzgado Civil de Hacienda de Asuntos Sumarios del Segundo Circuito Judicial de San José, cuyo texto es el siguiente:
+A) Despachos judiciales: No tendrán que agregar las actas de notificación al expediente físicamente, sino que se llevará un registro informatizado en el Sistema de Gestión con acceso a consulta por parte del usuario. Sin embargo, si un usuario desea tener el acta de notificación el auxiliar de la manifestación tendrá la opción de imprimir.
+B) Despachos Judiciales: Aprovecharían el recurso humano asignado en el área de notificaciones para realizar otras funciones internas, ya que, el auxiliar judicial no tendría que agregar las actas ni trasladarlas de la Oficina Centralizada de Notificaciones al despacho.
+C) Los grandes usuarios: Desde sus oficinas tendrán acceso a verificar la información del acta de notificación por medio de la página Web en Internet, sin tener que trasladarse hasta el despacho judicial.
+D) Oficina Centralizada de Notificaciones: La labor realizada por parte del oficinista tanto de impresión como de cancelación se realizará de una forma más expedita, al disminuir la cantidad de documentación de impresión y el proceso de cancelación individual de actas.
+E) Oficina Centralizada de Notificaciones: Los notificadores asignados en el área de casilleros realizarán el depósito de las cédulas de notificación en forma expedita al eliminarse el procedimiento de firma y sellado de las actas de notificación en forma individual.
+F) La Institución: Con el proyecto de eliminar la impresión de actas, se minimizaría el consumo de papel así como tonner de las impresoras, en la Oficina Centralizada de Notificaciones, economizando recursos hoy muy necesarios...” (la negrita pertenece al original).
+San José, 21 de enero del 2004.
