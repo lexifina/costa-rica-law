@@ -15,23 +15,36 @@ En la formulación de las normas administrativas obligatorias
 sobre etiquetado, se procurará exigir únicamente los elementos razonables
 mínimos para cumplir adecuadamente con el deber de información veraz al
 consumidor.
-b) Precios
-En el caso de los bienes, deberá indicarse el precio al contado
-en el empaque, el recipiente, el envase o la etiqueta del producto, la
-góndola o el anaquel del establecimiento. Los servicios comerciales deben
-exhibir sus precios de manera llamativa y fácilmente visible, mediante
-listas, carteles, menúes u otros.
-Los precios deberán estar indicados de manera que no quede duda
-de su monto preciso incluyendo los impuestos cuando corresponda.
-Cuando en la publicidad de un bien se indique su precio, éste
-debe indicar todos los impuestos que lo afecten.
-(Así adicionado este párrafo tercero por el artículo 1 del decreto
-ejecutivo No.26962 de 1º de abril de 1998)
-En cuanto a la venta con entrega a domicilio y a la prestación de
-servicios técnicos o profesionales, se deberá informar al cliente o
-consumidor sobre su costo exacto y completo, antes de formalizar la
-contratación.En cuanto a los servicios técnicos, deberá entregarse una
-cotización o presupuesto por escrito a solicitud del consumidor.
+b) En el caso de bienes, el precio al contado de cada producto deberá indicarse en el empaque, o recipiente, o envase o etiqueta, o bien en la góndola o el anaquel del establecimiento. Este se denominará precio unitario.
+En el caso de los productos que se vendan por masa, volumen, área o longitud, adicionalmente, deberá indicarse el precio por unidad de medida en la góndola o el anaquel del establecimiento. El precio por unidad de medida según la magnitud de la masa, volumen, área o longitud del producto deberá definirse conforme a la tabla siguiente:
+Tamaño de la presentación | Unidad a la cual debe referirse el precio por unidad de medida
+MEDIDAS DE MASA |
+Menos de 50 mg | 1 mg
+Desde 50 mg hasta menos de 50 g | 1 g
+Desde 50 g hasta menos de 50 kg | 1 kg
+Desde 50 kg en adelante | 1 t
+MEDIDAS DE VOLUMEN |
+Hasta menos de 0,05 cm3 (50 mm3) | 1 mm3
+Desde 0,05 cm3 hasta menos de 50 cm3 | 1 ml
+Desde 50 cm3 hasta menos de 500 l | 1 l
+Desde 500 l en adelante | 1 m3
+MEDIDAS DE ÁREA |
+Hasta menos de 50 mm2 | 1 mm2
+Desde 50 mm2 hasta menos de 0,5 m2 | 1 cm2
+Desde 0,5 m2 hasta menos de 10 000 m2 | 1 m2
+Desde 10 000 m2 en adelante | 1 ha
+MEDIDAS DE LONGITUD |
+Hasta menos de 5mm | 1 mm
+Desde 5 mm hasta menos de 50 cm | 1 cm
+Desde 50 cm hasta menos de 500 m | 1 m
+Desde 500 m en adelante | 1 km
+Para el cálculo del precio por unidad de medida de los productos con masa neta y masa escurrida, deberá tomarse como referencia la masa escurrida.
+En el caso de los productos químicos vendidos bajo la modalidad establecida en el párrafo segundo del presente inciso, el precio por unidad de medida aplicará, únicamente, cuando éstos contengan una única sustancia o ingrediente activo. En dichos casos, para el cálculo del precio por unidad de medida, deberá tomarse como referencia la masa neta (peso neto) del producto o sustancia/ingrediente activo del producto.
+En la góndola o el anaquel del establecimiento deberán indicarse el precio unitario y el precio por unidad de medida en el mismo tamaño y color. Cuando el precio por unidad de medida tenga decimales, deberá indicarse únicamente los dos primeros decimales.
+En el caso de servicios comerciales, deberá indicarse el precio de manera llamativa y fácilmente visible, mediante listas, carteles, menús u otros.
+En los casos de venta con entrega a domicilio y prestación de servicios técnicos o profesionales, deberá informarse al usuario o consumidor el costo exacto, completo y por escrito antes de formalizar la contratación. En cuanto a los servicios técnicos, debe entregarse una cotización o presupuesto por escrito.
+En todos los casos, el precio unitario exhibido en los establecimientos o en la publicidad de éstos, debe incluir todos los impuestos que correspondan.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 30266 de 28 de febrero del 2002)
 c) Venta de bienes y prestación de servicios al crédito
 Cuando el producto que se vende se pague al crédito, debe
 indicarse siempre, en forma claramente visible, ya sea adherido al mismo,
