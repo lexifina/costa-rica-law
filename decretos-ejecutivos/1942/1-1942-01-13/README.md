@@ -13,3 +13,4 @@ Reglamento del Registro Judicial de Delincuentes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1942-01-13 | la propia norma |
+| 2 | 1948-06-02 | Ley 51 |

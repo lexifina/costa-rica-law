@@ -1,3 +1,2 @@
-Artículo 2°- El personal del Registro estará integrado por un Jefe, un Oficial Mayor, un portero y los escribientes que el servicio exija.
-El Jefe del Registro deberá ser necesariamente Licenciado en Leyes.
-En caso de ausencia o enfermedad del Jefe del Registro, lo sustituirá el Oficial Mayor, quien podrá firmar los resúmenes y certificaciones mientras dure la ausencia o impedimento del Jefe.
+Artículo 2°- El personal del Registro estará bajo la Dirección General de Prisiones y Reformatorios, habrá un Oficial Primero con el carácter de Certificador, quien firmará los resúmenes, certificaciones y además vigilará por el régimen disciplinario de la Oficina. Los escribientes y demás empleados se nombrarán de acuerdo con las necesidades que el servicio exija.
+(Así reformado por el artículo 2° de la ley N° 51 del 02 de junio de 1948).
