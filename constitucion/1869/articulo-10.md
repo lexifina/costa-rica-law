@@ -1,1 +1,0 @@
-Artículo 10.-Ninguna autoridad puede celebrar pactos, tratados ó convenios que se opongan a la soberanía e independencia de la República.-Cualquiera que cometa este atentado será calificado de traidor.

@@ -1,1 +1,0 @@
-Artículo 142.-La responsabilidad en que puede incurrir el Procurador general, se el exigirá ante el Supremo Tribunal de Justicia, previos los trámites establecidos para los individuos de los Supremos Poderes.

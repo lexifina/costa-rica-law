@@ -1,1 +1,0 @@
-Artículo 136.-Cuando el aumento de la población, y consiguientemente de los negocios lo demanda, el Congreso podrá establecer otra Sala de 2ª Instancia, sobre las mismas bases determinadas y que se determinen por la ley.

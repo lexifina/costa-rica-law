@@ -1,1 +1,0 @@
-Artículo 109.-El Presidente de la República mientras dure en su destino, ó el encargado del Poder Ejecutivo, no podrán ser perseguidos ni juzgados por delitos comunes, sino después que, a virtud de acusación interpuesta, haya declarado el Congreso haber lugar a formación de causa.

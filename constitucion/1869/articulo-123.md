@@ -1,1 +1,0 @@
-Artículo 123.-La ley demarcará la jurisdicción, el número y la duración de los Tribunales y Juzgados establecidos ó que deban establecerse en la República, sus atribuciones, los principios a que deben arreglar sus actos, y la manera de exigírseles la responsabilidad.
