@@ -1,0 +1,1 @@
+Artículo 4°—El Ecomuseo desarrollará una labor de investigación, educación y difusión de los valores patrimoniales de la Región Huetar Norte, constituyéndose en un medio que canalice las manifestaciones culturales que conforman la identidad regional.

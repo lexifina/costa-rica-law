@@ -1,0 +1,1 @@
+Artículo 3°—La Dirección General de Museos del Ministerio de Cultura, Juventud y Deportes será la encargada de brindar asesoría en el plano logístico y museológico, así como el apoyo financiero necesario de acuerdo con sus posibilidades y sin menoscabo de sus fines.
