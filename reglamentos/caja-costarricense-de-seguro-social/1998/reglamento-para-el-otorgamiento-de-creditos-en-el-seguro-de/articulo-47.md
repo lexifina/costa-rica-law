@@ -1,1 +1,1 @@
-Artículo 47.—Una vez adquirido el equipo, en los cinco días hábiles siguientes, el interesado deberá presentar a la Sección Tramite de Crédito, factura original de compra debidamente cancelada.
+DEROGADO EXPRESAMENTE, por la Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 27 de la sesión 7238, de 7 de julio de 1998.

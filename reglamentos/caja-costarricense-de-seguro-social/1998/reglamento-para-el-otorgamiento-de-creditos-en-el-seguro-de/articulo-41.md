@@ -1,2 +1,1 @@
-Artículo 41.—El deudor debe asegurar el vehículo al menos contra ib riesgos C, D y F (daños a la propiedad de terceros, colisión y vuelco, y hurto), mediante las respectivas pólizas del Instituto Nacional de Seguros.
-Dichas pólizas, que deberán suscribirse por un monto equivalente al r del vehículo, serán endosadas a la Caja y custodiadas en la Sección Administrativa de Seguros.
+DEROGADO EXPRESAMENTE por la Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 27 de la sesión 7238, celebrada el 7 de julio de 1998.

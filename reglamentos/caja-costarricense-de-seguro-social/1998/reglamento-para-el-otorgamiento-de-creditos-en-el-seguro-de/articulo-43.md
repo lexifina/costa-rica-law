@@ -1,5 +1,1 @@
-Artículo 43.—Para asesorar a la Comisión de Crédito en el otorgamiento de créditos para compra de microcomputadora, se conforma una Comisión Técnica integrada por los siguientes funcionarios:
-El Director Financiero- Contable o su representante.
-b. El Director de Presupuesto o su representante.
-El Director de Informática o su representante.
-El Jefe de la Sección Trámite de Crédito.
+DEROGADO EXPRESAMENTE por la Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 27 de la sesión 7238, celebrada el 7 de julio de 1998.

@@ -1,1 +1,1 @@
-Artículo 38.—Los montos máximos y la tasa de interés se fijará de acuerdo con las políticas dictadas por la Junta Directiva y el plazo no podrá u mayor a seis años.
+DEROGADO EXPRESAMENTE por la Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 27 de la sesión 7238, celebrada el 7 de julio de 1998.

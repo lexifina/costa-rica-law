@@ -1,1 +1,1 @@
-Artículo 45.—Los préstamos se garantizaran con fianza o fianzas solidarias. las cuales deben cubrir suficientemente la cuantía de la cotización del crédito, incluidos sus intereses. No se aceptarán personas que sean fiadores en más de un préstamo para compra de microcomputadora.
+DEROGADO EXPRESAMENTE, por la Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 27 de la sesión 7238, de 7 de julio de 1998.

@@ -1,1 +1,1 @@
-Artículo 36.—La resolución de las solicitudes se hará atendiendo preferentemente las presentadas por profesionales que trabajan en las áreas rurales del país y de conformidad con el orden cronológico de presentación.
+DEROGADO EXPRESAMENTE por la Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 27 de la sesión 7238, celebrada el 7 de julio de 1998.

@@ -1,1 +1,1 @@
-Artículo 39.—La amortización e intereses se pagaran en cuotas mensuales, consecutivas y vencidas, que serán deducidas del salario que devengue el profesional en la Institución.
+DEROGADO EXPRESAMENTE por la Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 27 de la sesión 7238, celebrada el 7 de julio de 1998.

@@ -1,1 +1,1 @@
-Artículo 40.—El vehículo que se adquiera o repare quedará gravado prenda de primer grado a favor de la Caja Costarricense de Seguro al junto con una fianza solidaria adicional.
+DEROGADO EXPRESAMENTE por la Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 27 de la sesión 7238, celebrada el 7 de julio de 1998.

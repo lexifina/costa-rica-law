@@ -1,1 +1,1 @@
-Artículo 37.—No se podrá atender ninguna solicitud si hubiese nidos pendientes de cancelación por operaciones anteriores hechas por el interesado a este fondo especial, ni antes de tres años del préstamo anterior.
+DEROGADO EXPRESAMENTE por la Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 27 de la sesión 7238, celebrada el 7 de julio de 1998.
