@@ -1,0 +1,7 @@
+Artículo 3º.- El Régimen de prestaciones que otorgará la Junta
+deberá ser reglamentado por ésta de acuerdo con las necesidades de
+protección que la misma determine y sujetarse a las bases
+financiero-actuariales que hayan sido recomendadas. Dicho Reglamento debe
+disponer lo necesario a fin de que exista la debida coordinación con el
+Régimen de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro
+Social.
