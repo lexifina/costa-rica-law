@@ -1,0 +1,1 @@
+Artículo 7°.- El negociador comercial que participe en una negociación internacional, pese a que debería haberse abstenido de conformidad con las disposiciones de los artículos anteriores, será suspendido o destituido de su cargo, según la gravedad de la falta, sin perjuicio de las responsabilidades civiles o penales consagradas en la legislación nacional.

@@ -1,0 +1,1 @@
+Artículo 4°.- Los negociadores comerciales internacionales quedarán sujetos a lo dispuesto en la Ley sobre el enriquecimiento ilícito de los servidores públicos, y deberan reunir requisitos de idoneidad y experiencia que los acrediten para el cabal cumplimiento de sus funciones.
