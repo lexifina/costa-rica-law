@@ -1,0 +1,1 @@
+Artículo 6°—La comunidad indígena Guaymí presentará a la Comisión Nacional de Asuntos Indígenas (CONAI) y otros organismos competentes un documento que exprese las diferentes costumbres y reglas propias de su organización cultural y social. Las tres reservas indígenas guaymíes de Costa Rica serán regidas por las mismas reglas referentes a su organización cultural y social.

@@ -1,0 +1,1 @@
+Artículo 3°—Los límites de la Reserva Indígena de Conte-Burica establecidos en el artículo 2° del presente decreto, son los definitivos y serán utilizados por el Instituto Geográfico Nacional para la nueva edición del mapa de Costa Rica, escala 1/50.000.
