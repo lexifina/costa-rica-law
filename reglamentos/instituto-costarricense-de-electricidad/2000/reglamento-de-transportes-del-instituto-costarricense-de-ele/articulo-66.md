@@ -1,0 +1,1 @@
+Artículo 66.—En caso de robo o accidente de tránsito en que participe un vehículo de los aquí incluidos, debe ser reportado de mediato al Área de Transporte correspondiente, por el funcionario responsable del automotor, siguiendo los procedimientos establecidos que ira tal efecto se aplican para los vehículos de uso administrativo, en este instituto.

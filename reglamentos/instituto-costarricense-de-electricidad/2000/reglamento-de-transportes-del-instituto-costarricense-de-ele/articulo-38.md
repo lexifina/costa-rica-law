@@ -1,0 +1,1 @@
+Artículo 38.—Las Áreas de Transportes podrán recomendar la suspensión del permiso de conducir vehículos ICE a cualquier conductor de la Institución, que contravenga lo dispuesto en la Ley de Tránsito, otras leyes vigentes en la materia, este Reglamento o los procedimientos establecidos.

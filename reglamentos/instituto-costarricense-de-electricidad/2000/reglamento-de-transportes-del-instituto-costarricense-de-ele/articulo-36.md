@@ -1,0 +1,1 @@
+Artículo 36.—Existirán diferentes tipos de licencias, los cuales corresponden a los descritos en la Ley de Tránsito. Las Áreas de transportes definirá en cada caso, y dependiendo de las características de los vehículos que conducirá regularmente el funcionario, el tipo de licencia del ICE que se le extenderá.

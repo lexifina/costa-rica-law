@@ -1,0 +1,1 @@
+Artículo 45.—Los vehículos no deben dejarse estacionados en lugares donde se ponga en peligro la seguridad de los mismos, sus accesorios, materiales o equipos que transporta. En cumplimiento de lo anterior se deberá actuar de conformidad con el artículo 16 de este Reglamento.

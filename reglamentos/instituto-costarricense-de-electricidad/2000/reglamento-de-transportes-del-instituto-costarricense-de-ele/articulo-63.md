@@ -1,0 +1,1 @@
+Artículo 63.—El funcionario que tiene asignado un vehículo de uso discrecional debe suministrarle los cuidados apropiados, para lo cual debe aportar oportunamente al Área de Transportes correspondiente, cualquier daño al vehículo.

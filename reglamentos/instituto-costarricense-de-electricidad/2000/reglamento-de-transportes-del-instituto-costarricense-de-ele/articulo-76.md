@@ -1,0 +1,1 @@
+Artículo 76.—Corresponde a las Áreas de Transportes, efectuar los estudios técnicos y económicos, a fin de solicitar a la Contraloría General de la República la revisión de las tarifas cuando corresponda.

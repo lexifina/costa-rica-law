@@ -1,0 +1,1 @@
+Artículo 37.—Ningún funcionario podrá conducir un tipo de vehículo diferente al autorizado en la licencia del ICE. Las Arras de transportes serán responsables de autorizar o no alguna excepción a lo anterior.

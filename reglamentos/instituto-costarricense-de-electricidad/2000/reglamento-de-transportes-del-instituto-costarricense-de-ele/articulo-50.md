@@ -1,0 +1,1 @@
+Artículo 50.—Ningún conductor de la Institución está autorizado para efectuar arreglos extrajudiciales o conciliaciones en nombre de la Institución en caso de accidentes con vehículos del ICE o alquilados, únicamente debe indicarle al particular que se apersone o comunique con las Áreas de transportes para efectuar las gestiones correspondientes.

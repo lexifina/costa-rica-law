@@ -1,0 +1,1 @@
+Artículo 4°—Los vehículos de uso administrativo propios o al servicio del ICE, son todas aquellas unidades no contempladas en el artículo anterior, utilizadas en la Institución para el desarrollo normal, como medio de transporte de personas, materiales y equipos.

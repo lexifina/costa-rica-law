@@ -1,0 +1,1 @@
+Artículo 59.—La institución beneficiada con el préstamo del vehículo deberá asumir la responsabilidad del control sobre el uso y mantenimiento de igual forma que si fuera de su propiedad, salvo acuerdo lícito en contrario.

@@ -1,0 +1,3 @@
+Artículo 10.—
+a) Con la aprobación previa de la Presidencia Ejecutiva, Gerencia General o Subgerencias respectivas, las Áreas de Transportes podrán delegar parcialmente en otra dependencia institucional, la ejecución de las funciones indicadas en el artículo anterior, toda vez que con ello se logre una mayor oportunidad y eficiencia en la prestación del servicio, sin que esto implique la duplicación de funciones y la pérdida en el control administrativo sobre los vehículos.
+b) De conformidad con el numeral 311.03 del Manual de la Contraloría, en caso de presentarse la situación incluida en el inciso "a" anterior, el Área de Transportes podrá solicitar a quien corresponda los informes que estime convenientes.

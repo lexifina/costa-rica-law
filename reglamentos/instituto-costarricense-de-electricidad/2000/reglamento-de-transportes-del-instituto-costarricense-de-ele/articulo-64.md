@@ -1,0 +1,1 @@
+Artículo 64.—Cada funcionario que tenga asignado un vehículo de ¡o discrecional debe reportar mensualmente el kilometraje del automotor mediante el formulario resumen mensual movimiento DE vehículo, para efectuar los cargos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 17.—En todas las instalaciones ICE, se establecerá un control de ingreso y salida de vehículos contemplando la siguiente información: fecha, lugar, número de vehículo, nombre del conductor y hora. Este control deberá ser realizado por el personal de vigilancia que para tal efecto se disponga en las instalaciones.

@@ -1,0 +1,1 @@
+Artículo 78.—Las discrepancias o diferencias de criterio que surjan en la aplicación de este Reglamento con las Áreas de Transportes, serán resueltas por la Presidencia Ejecutiva, Gerencia General o Subgerencias respectivas.

@@ -1,0 +1,1 @@
+Artículo 5°—El uso de los vehículos administrativos y de uso< discrecional, estará regulado por las disposiciones que para tal efecto están incluidas en el presente reglamento, en la Ley de Tránsito vigente y en el Manual sobre normas técnicas de control interno relativas al uso, control y mantenimiento de vehículos emitido por la Contraloría General de la República.

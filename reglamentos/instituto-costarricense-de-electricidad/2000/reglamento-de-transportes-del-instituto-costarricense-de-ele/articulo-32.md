@@ -1,0 +1,1 @@
+Artículo 32.—Se autorizará la conducción de vehículos del ICE a aquellos funcionarios que así lo requieran para el adecuado desempeño de sus labores. Esta autorización se formaliza mediante la emisión por parte de las Áreas del Transportes, de una licencia del ICE que deberá portar obligatoriamente todo trabajador mientras conduce un vehículo institucional

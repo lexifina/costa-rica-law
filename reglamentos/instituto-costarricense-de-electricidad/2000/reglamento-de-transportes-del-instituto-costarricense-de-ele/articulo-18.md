@@ -1,0 +1,2 @@
+Artículo 18.—Los vehículos ICE o alquilados tendrán prioridad de estacionamiento en los parquees de la Institución (propios o arrendados). Dicha prioridad será definida por la Gerencia General, mediante la emisión de un procedimiento relacionado con la utilización de parquees ICE.
+Será responsabilidad del personal de vigilancia destacado en cada edificio el velar por el cumplimiento de lo aquí dispuesto.

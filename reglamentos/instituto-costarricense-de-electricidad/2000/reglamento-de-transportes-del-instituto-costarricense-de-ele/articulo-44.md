@@ -1,0 +1,1 @@
+Artículo 44.—Quienes están autorizados para conducir vehículos del ICE no podrán en ningún caso ceder la conducción de los mismos a personas particulares y sólo en casos de fuerza mayor a funcionarios de la Institución que no cuenten con la debida licencia del ICE (será indispensable contar con la licencia de la Dirección General de Tránsito respectiva).

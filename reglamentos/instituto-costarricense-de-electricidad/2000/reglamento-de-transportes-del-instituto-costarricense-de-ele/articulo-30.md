@@ -1,0 +1,1 @@
+Artículo 30.—Las Áreas de Transportes deberán recomendar la venta o canje de unidades que por alguna circunstancia han dejado de ser útiles para la Institución. Para lo anterior aplicará los mecanismos que para tal efecto están autorizados para la Institución.

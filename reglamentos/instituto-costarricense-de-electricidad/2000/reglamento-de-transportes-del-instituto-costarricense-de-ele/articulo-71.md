@@ -1,0 +1,1 @@
+Artículo 71. Los controles en materia de combustible, lubricantes, llanas, baterías, mentenimiento en general, para los vehículos discrecionales, serán los mismos que se aplican a los vehículos de uso administrativo.
