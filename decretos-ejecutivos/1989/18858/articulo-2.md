@@ -1,0 +1,3 @@
+Artículo 2°.- Agréguese un nuevo artículo al decreto 17658-MAG corriendo la numeración el cual se leerá como sigue:
+"Toda persona que gozando de autorización para extraer un determinado recurso vivo del mar, desee permiso para dedicarse a la extracción de otro y requiera dejar inactivo por un período mayor de 60 días el permiso de que viene gozando, deberá solicitar autorización al Ministerio de Agricultura y Ganadería.
+El Ministerio queda facultado para otorgar, por una vez el permiso de inactividad a condición de que el tiempo solicitado no exceda de seis meses. En caso contrario, se cancelará el permiso que se va a dejar de utilizar."
