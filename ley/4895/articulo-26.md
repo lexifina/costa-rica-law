@@ -1,15 +1,69 @@
-CAPITULO VI
+CAPITULO VII
 Disposiciones Generales
-Artículo 26.- La Asociación Bananera no podrá comprar empresas que ya
-se encuentren explotando la actividad bananera sin haberlas recibido en
-fideicomiso. Estos contratos de fideicomiso no podrán ser por períodos
-inferiores a cinco años. Después de un período de tres años de haber sido
-firmado el respectivo contrato entre la Asociación Bananera y la
-cooperativa o empresa dedicada a la explotación bananera, la Asociación
-queda en libertad de comprar la firma que había tomado en fideicomiso,
-siempre y cuando las condiciones económicas y técnicas de esta última
-garanticen el éxito de la explotación. La Junta Directiva de la Asociación
-deberá realizar su decisión de compra basada en el criterio de las
-secciones o departamentos financieros y técnicos de la Asociación. Para
-efectuar la operación de compra se requerirá el voto favorable de por lo
-menos cuatro de los miembros de su Junta Directiva.
+( Corrida su numeración por el artículo 2º de la ley 7147 de 30 de abril
+de 1990 )
+Artículo 26.- La Corporación Bananera Nacional tendrá exención de
+toda clase de impuestos para la importación de maquinaria, de equipo y de
+los insumos necesarios para el cumplimiento de sus fines, lo cual
+comprobará ante el Ministerio de Agricultura y Ganadería. Se exceptúan de
+esta exoneración los vehículos y camiones.
+El Ministerio de Agricultura y Ganadería recomendará ante el
+Ministerio de Hacienda, en cada caso, la procedencia o improcedencia de
+las exoneraciones.
+Se otorga, por un lapso de quince años, a partir de la vigencia de
+esta ley, franquicia aduanera a favor de los productores bananeros y de
+los productores de palma aceitera, para la introducción en el país de los
+elementos materiales necesarios para el mantenimiento y la explotación de
+sus fincas.
+Excepto la exoneración de vehículos y camiones, dicha franquicia se
+aplicará a lo siguiente:
+a) Materiales, maquinaria, equipo de cable vía, rieles y repuestos
+para el transporte de la fruta dentro de la plantación y en el puerto de
+embarque.
+b) Plantas eléctricas y equipos de comunicación, accesorios y
+repuestos para su operación y mantenimiento.
+c) Materiales, maquinaria, tuberías, bombas, combustibles
+especiales, equipo y accesorios empleados para la construcción, el
+mantenimiento y la explotación de obras de drenaje, de irrigación, de
+pozos profundos, de obras de protección contra inundaciones, y de
+rehabilitación de terrenos y caminos. También equipo, instrumentos y sus
+repuestos, reactivos y otros materiales y productos para laboratorios de
+investigación agrícola.
+ch) Equipo para la preparación y aplicación de fertilizantes,
+plaguicidas y otros productos agroquímicos usados para el combate de
+enfermedades agrícolas, además de los materiales y equipos necesarios
+para la seguridad y protección de los trabajadores.
+d) Maquinaria y repuestos, materias primas y materiales
+manufacturados, requeridos para el proceso, la protección, el empaque y
+el embarque de la fruta.
+e) Equipo, materiales y repuestos para la construción, la operación
+y el mantenimiento de plantas empacadoras; tractores agrícolas y sus
+repuestos.
+f) Máquinas, equipo y repuestos para talleres mecánicos, eléctricos
+y de construcción, operación y mantenimiento, así como los equipos
+necesarios en el proceso de producción y cosecha de la fruta.
+El Poder Ejecutivo velará por el buen uso de esta franquicia y la
+reglamentará para evitar abusos.
+Para acogerse a la franquicia que se establece en este artículo, los
+interesados deberán someterse a una inspección por parte del Ministerio
+de Agricultura y Ganadería, a fin de que éste verifique que aquellos
+reúnen los requisitos para pretender el beneficio.
+El Ministerio de Agricultura y Ganadería calificará y recomendará
+ante el Ministerio de Hacienda, en cada caso, la procedencia o
+improcedencia de las exoneraciones que se les otorguen a los productores
+bananeros.
+La Contraloría General de la República verificará la correcta
+aplicación de las exenciones señaladas.
+Las exenciones y franquicias aduaneras que se les otorguen a los
+productores bananeros se harán extensivas a todos aquellos que se
+dediquen a actividades agrícolas o pecuarias.
+No se podrán importar al amparo de los beneficios de esta ley,
+aquellos productos, insumos y materiales, equivalentes o que cumplan con
+el mismo propósito de los que se fabrican o produzcan en el país, siempre
+que éstos sean competitivos en calidad y precio con el que se pretende
+importar, según resolución razonada del Ministerio de Economía.
+( Reformado por el artículo cuarto de la ley Nº 7147 de 30 de abril de
+1990 )
+( TACITAMENTE DEROGADO por los artículos 1º y 2º inciso r) de la Ley Nº
+7293 de 31 de marzo de 1992. Sobre exenciones, ver artículo 5º de la Ley
+Nº 7293 ibídem).
