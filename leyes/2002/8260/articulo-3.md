@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos para la licencia municipal. En toda solicitud de otorgamiento, traslado o traspaso de licencia municipal, será requisito indispensable que los interesados y propietarios del inmueble en el cual se lleve a cabo la actividad, estén al día en el pago de los tributos y otras obligaciones a favor de la Municipalidad de Abangares.

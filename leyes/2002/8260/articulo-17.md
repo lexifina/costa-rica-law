@@ -1,0 +1,1 @@
+Artículo 17.—Determinación del ingreso bruto anual en casos especiales. El total del ingreso bruto anual de las actividades que se hayan realizado durante una parte del período fiscal anterior, se determinará con base en el promedio mensual de los ingresos del período de actividad.

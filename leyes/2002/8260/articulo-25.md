@@ -1,0 +1,1 @@
+Artículo 25.—Derogación. Derógase la Tarifa de impuestos municipales del cantón de Abangares, Ley Nº 7160, de 13 de junio de 1990; asimismo, todas aquellas disposiciones que se opongan al pago del impuesto de patentes a alguna actividad lucrativa que se ejerza en el cantón o exoneren de él.

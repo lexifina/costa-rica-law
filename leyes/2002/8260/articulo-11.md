@@ -1,0 +1,1 @@
+Artículo 11.—Notificación. La calificación de oficio o la recalificación efectuada por la Municipalidad, deberá ser notificada al contribuyente mediante el alcalde municipal, con la indicación de las observaciones o los cargos que se formulen y, en su caso, de las infracciones que se estime ha cometido.

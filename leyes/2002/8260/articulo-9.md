@@ -1,0 +1,1 @@
+Artículo 9º—Confidencialidad de la información. La información suministrada a la Municipalidad por los contribuyentes tendrá el carácter confidencial a que se refiere el artículo 117 del Código de Normas y Procedimientos Tributarios.

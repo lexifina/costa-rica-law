@@ -1,0 +1,2 @@
+Artículo 7º—Copia de la declaración de la renta. Los patentados declarantes del impuesto sobre la renta deberán presentar a la Municipalidad una copia de su declaración, sellada por la Dirección General de Tributación.
+Las empresas o los comercios que realicen su actividad en forma temporal cumpliendo con todos los requisitos, deberán presentar la última declaración del impuesto sobre la renta de todo el año o una certificación de un contador público autorizado del volumen de ventas generado anualmente en el cantón.
