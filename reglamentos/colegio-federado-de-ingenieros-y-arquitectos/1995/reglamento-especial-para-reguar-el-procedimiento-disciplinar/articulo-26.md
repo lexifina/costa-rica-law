@@ -1,0 +1,1 @@
+Artículo 26.—Lo resuelto por Junta Directiva General tendrá únicamente el recurso ordinario de reposición o reconsideración. El plazo para interponer el recurso será de dos meses, a partir del día siguiente a aquel en que la resolución quedó notificada al representante de la empresa, recurso que se presentará ante la Junta Directiva General.

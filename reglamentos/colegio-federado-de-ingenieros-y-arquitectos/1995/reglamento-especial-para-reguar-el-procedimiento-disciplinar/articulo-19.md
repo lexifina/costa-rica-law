@@ -1,0 +1,1 @@
+Artículo 19.—La ausencia injustificada de la parte acusada a la comparecencia, no será impedimento para la celebración de la misma, pero no valdrá como aceptación por ella de los hechos, pretensiones ni prueba en su contra. Sin embargo, pese a la ausencia, se podrá evacuar la prueba ofrecida por la parte ausente.

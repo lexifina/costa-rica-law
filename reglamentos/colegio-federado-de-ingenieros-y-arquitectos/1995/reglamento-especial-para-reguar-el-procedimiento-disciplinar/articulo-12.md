@@ -1,0 +1,1 @@
+Artículo 12.—El procedimiento estará enmarcado dentro de los principios del ejercicio del derecho de defensa, dentro de los limites razonables de este tipo de procesos, con apego a las normas del debido proceso, para la averiguación de la verdad real de los hechos objeto de este trámite.

@@ -1,0 +1,1 @@
+Artículo 21.—En la comparecencia oral, se llevará a cabo un procedimiento de conciliación breve- Si éste no tuviere resultado positivo, o si la naturaleza de la queja no lo permitiere, se evacuará la prueba ofrecida por las partes y se formularán las conclusiones de hecho y derecho en cuanto a la prueba evacuada y los resultados de la comparecencia, posterior a ésta.

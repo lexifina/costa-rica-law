@@ -1,0 +1,1 @@
+Artículo 16.—Integrado el Tribunal de Ética en forma definitiva, por BO haberse planteado recusaciones o impedimentos, o habiéndose hecho tas sustituciones pertinentes se procederá a la preparación de la comparecencia oral la cual deberá hacerse con una citación previa de no menos de quince días, conforme a los términos de notificación de la Ley de Administración Pública.

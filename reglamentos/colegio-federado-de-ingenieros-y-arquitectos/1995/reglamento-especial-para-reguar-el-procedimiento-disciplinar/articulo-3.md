@@ -1,0 +1,1 @@
+Artículo 3°—El Director Ejecutivo convocará a los tres miembros del Tribunal de Ética, dentro de un plazo no mayor de diez días hábiles contados a partir del día siguiente al de la sesión en que se les nombró, a fin de que acudan a la sesión inicial. La convocatoria será comunicada a los miembros por escrito con no menos de cinco días de antelación.

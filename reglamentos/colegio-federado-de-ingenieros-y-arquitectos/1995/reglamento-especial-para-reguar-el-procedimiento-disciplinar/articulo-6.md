@@ -1,0 +1,1 @@
+Articulo 6°—El SECRETARIO llevará el control de las actas que se levanten, y será el encargado de comunicar las resoluciones que se dicten. Será, asimismo, el funcionario certificador del Tribunal de Ética.
