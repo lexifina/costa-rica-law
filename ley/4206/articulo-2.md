@@ -1,13 +1,11 @@
-ARTÖCULO 2§.- Autor¡zase a la Cruz Roja Costarricense y sus
-Comit‚s
-Auxiliares, a importar o comprar en plaza, con los beneficios que
-se les
-otorgan en el art¡culo anterior, una cuota anual, sin car cter
-acumulativo, hasta un m ximo de doce ambulancias y seis veh¡culos
-de
-trabajo, livianos, sencillos, o de doble tracci¢n.
-La cuota anual que en total no debe ser mayor de dieciocho
-veh¡culos
-ser distribuida en forma equitativa por el Comit‚ Central de la
-Cruz Roja
-Costarricense.
+ARTICULO 2º.- Transcurridos tres años desde su internamiento y
+registro, los vehículos y equipos que se importen podrán ser enajenados
+exentos de impuestos, mediante un remate público, a un precio acorde con
+las condiciones del mercado. El producto de la venta deberá destinarse,
+fundamentalmente, a la compra de bienes para sustituir los que dejen de
+pertenecer a la Asociación.
+En caso de enajenamiento del bien antes del término señalado en este
+artículo, el adquirente deberá pagar los impuestos correspondientes,
+previa deducción proporcional al tiempo transcurrido.
+(Derogado tácitamente por el artículo 1º de la Ley Reguladora de las
+Exoneraciones No. 7293 de 31 de marzo de 1992).
