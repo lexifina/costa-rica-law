@@ -1,1 +1,0 @@
-Artículo 14.- Vencido el plazo de dos meses previsto en el artículo anterior sin resolución final, se entenderá aprobado lo convenido por las partes. De conformidad con las reglas aplicables de la Ley General de Administración Pública, la Comisión estará en la obligación legal de resolver expresamente, constituyendo incumplimiento de deberes la violación de esta disposición.

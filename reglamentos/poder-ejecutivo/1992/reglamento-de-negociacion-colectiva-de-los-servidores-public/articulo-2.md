@@ -1,3 +1,0 @@
-Artículo 2°- Quedan excluidas del ámbito de aplicación del presente reglamento:
-a) El personal de las instituciones públicas en las cuales se encuentre vigente una convención colectiva de trabajo o laudo arbitral. Debe entenderse que esta exclusión es referida a las categorías de personal expresamente cubiertas por la convención o el laudo en las materias contenidas en esos instrumentos.
-b) Los jerarcas y representante institucionales con nivel de gerencia y con facultades de gestión, así como aquellos indicados expresamente en los artículo 4 y 5, inciso a), b), c), d), f), i), j)…, del Estatuto del Servicio Civil. Tampoco podrán beneficiarse directa o indirectamente de los resultados de la negociación.

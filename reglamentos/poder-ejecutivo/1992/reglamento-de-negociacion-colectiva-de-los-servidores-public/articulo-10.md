@@ -1,1 +1,0 @@
-Artículo 10.- Lo aprobado en forma definitiva por la Comisión será válido entre las partes y tendrá una vigencia máxima de dos años a partir de la probación. Copia del mismo será enviado a la Dirección General de Asuntos Laborales del Ministerio de Trabajo únicamente para su registro y custodia.

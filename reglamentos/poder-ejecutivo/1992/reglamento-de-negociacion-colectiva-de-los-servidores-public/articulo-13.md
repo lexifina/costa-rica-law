@@ -1,7 +1,0 @@
-Artículo 13.- Sin perjuicio de lo regulado en el capítulo tercero del título segundo de la Ley General de la administración Pública, el quórum para sesionar válidamente la comisión de mayoría absoluta de sus miembros.
-Los acuerdos de la comisión serán adoptados por mayoría absoluta de los asistentes. En caso de empate el Presidente tendrá doble voto.
-La Comisión gozará de un plazo máximo de dos meses para emitir la resolución final, desde que su Presidente recibiera la documentación, debiendo conceder de previo, audiencia a las partes cuando lo soliciten. La petición de audiencia debe presentarse junto con la documentación. La audiencia deberá evacuarse dentro del mes siguiente.
-De lo acordado por las partes se le dará audiencia inmediata a la Dirección de Asuntos Jurídicos del Ministerio de Trabajo a fin de que se pronuncie sobre la legalidad de lo pactado, y a la Autoridad Presupuestaria para que se pronuncie sobre el impacto presupuestario de lo convenido proyectado al menos a dos años. Dichos pronunciamientos deberán presentarse a la Comisión en el término de un mes antes de vencer el plazo para resolver.
-De lo decidido por la Comisión cabrá el recurso de revocatoria, el cual deberá ser resuelto en un plazo de un mes, debiendo estar presente necesariamente el Ministro de Trabajo.
-Vencido el plazo del recurso se estará a lo ya resuelto.
-La Secretaría Ejecutiva de la Comisión estará a cargo del Ministerio de Trabajo de Seguridad Social.

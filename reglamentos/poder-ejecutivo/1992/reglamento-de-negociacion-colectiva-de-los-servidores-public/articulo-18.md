@@ -1,1 +1,0 @@
-Artículo 18.- Las presentes normas tienen carácter de transitorio en el entendido de que como producto de consultas tripartitas será presentado a la Asamblea Legislativa un proyecto de Ley de Solución de Conflictos Colectivos en el Sector público.

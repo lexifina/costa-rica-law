@@ -1,1 +1,0 @@
-Artículo 16.- Se mantienen vigentes las directrices del Acuerdo de Consejo de Gobierno número cuatro del veintidós de octubre de mil novecientos ochenta y seis. La renegociación de las convenciones colectivas comprendidas en el mismo se regirán por los términos y condiciones allí establecidas.

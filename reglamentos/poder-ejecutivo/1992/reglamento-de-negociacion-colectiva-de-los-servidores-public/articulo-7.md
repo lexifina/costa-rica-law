@@ -1,2 +1,0 @@
-Artículo 7.- El proyecto presentado a la institución por el sindicato titular, será negociado entre ambas partes con estricto apego a este reglamento.
-Si durante la negociación surgiese alguna duda sobre la aplicación de sus términos deberá la institución consultar a la Comisión creada por el artículo 111 de este Reglamento. El jerarca Institucional que incumpla esta disposición incurrirá en falta grave en el cumplimiento de sus deberes y acarreará la responsabilidad de los artículo 199 y siguientes de la Ley General de la Administración Pública.
