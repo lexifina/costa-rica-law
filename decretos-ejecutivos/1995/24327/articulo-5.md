@@ -1,1 +1,0 @@
-Artículo 5º.- La oficina se regirá en sus aspectos técnicos por las políticas y directrices que en materia de urbanismo, construcción y vivienda dicte el Poder Ejecutivo, a través de las instituciones que se indican en el artículo 2º del presente Decreto.
