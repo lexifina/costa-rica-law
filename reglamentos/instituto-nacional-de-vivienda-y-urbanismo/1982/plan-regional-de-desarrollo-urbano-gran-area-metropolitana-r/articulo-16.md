@@ -23,4 +23,7 @@ g) El trámite de permisos de aquellas edificaciones de más de dos pisos que se
 Quedan involucradas en esta restricción los siguientes distritos: en el cantón de Santa Ana; Pozos, Uruca, Piedades y Brasil; en el cantón de Escazú: San Rafael; en el cantón central de San José: Pavas y La Uruca; en el cantón de Belén:
 Asunción, Ribera y San Antonio; en el cantón central de Heredia: Ulloa y San Francisco; en el cantón de San Joaquín de Flores: Llórente, San Joaquín y Barrantes;
 en el cantón de Santa Bárbara: San Juan y San Pedro; en el cantón central de Alajuela: Desamparados, Río Segundo, Alajuela, Tambor, San Isidro, San José, San Antonio y San Rafael.
+La Dirección General de Aviación Civil, hechos los estudios necesarios de cada caso, puede autorizar vivienda en las zonas A y B o la segregación en parcelas de menor tamaño que las establecidas en cada caso, si considera que con ello no se causa perjuicio al desarrollo del Aeropuerto Internacional Juan Santamaría. En las citadas zonas no se permitirán urbanizaciones.
+Los límites entre zonas podrán ser modificados por la Dirección General de Aviación Civil para que colindantes con una misma calle tengan iguales restricciones".
 (Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta Nª 74 de 20 de abril de 1983).
+(Así ampliado por Acuerdo de Junta Directiva N° 3539, publicado en La Gaceta N° 151 de 10 de agosto de 1984).
