@@ -1,9 +1,10 @@
-Artículo 131.- Los inspectores de la Dirección General de Aviación
-Civil tienen la obligación de acudir a inspeccionar personalmente la
-aeronave accidentada, tomando las medidas pertinentes de acuerdo con lo
-establecido por esta ley o sus reglamentos.
-El inspector o persona a cargo de la investigación de un accidente
-está facultado por la presente ley, para citar e interrogar bajo
-juramento, a cualquier persona que estime conveniente, así como para
-retener libros, documentos, evidencias y cualquiera otro elemento que
-considere necesario para la investigación.
+CAPITULO VII
+De los Incidentes y Accidentes
+Artículo 131.- La Comisión Investigadora está obligada a investigar
+los accidentes o incidentes de importancia que ocurran a aeronaves dentro
+del territorio nacional; concluida la investigación, dicha comisión
+determinará la causa probable del incidente o accidente, recomendando las
+medidas correctivas que correspondan.
+NOTA: Original 126: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

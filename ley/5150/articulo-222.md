@@ -1,11 +1,11 @@
-Artículo 222.- El Poder Ejecutivo por medio del Ministerio de
-Hacienda, podrá decretar franquicias a favor de las empresas y personas
-físicas que operen legalmente en cualquier ramo de los servicios aéreos
-de transporte público, aviación particular, aviación agrícola, de todo
-derecho de importación, excepto el muellaje, respecto al equipo
-aeronáutico, accesorios y complementos, combustibles, lubricantes, y
-demás aprovisionamientos utilizados en los dispositivos mecánicos, partes
-y componentes de las aeronaves, siempre que ellos no sean producidos en
-el país. También podrán gozar de estos derechos, las demás ramas de la
-aviación civil. En todo los casos, se deberá contar con la recomendación
-de la Dirección General de Aviación Civil.
+Artículo 222.- Cuando por falta de equipo, debidamente comprobada,
+una empresa costarricense se vea precisada a arrendar temporalmente una
+aeronave de matrícula extranjera, la Dirección General de Aviación Civil,
+podrá autorizar el empleo de tal aeronave para fines de transporte
+público dentro del país, para lo cual le concederá un permiso provisional
+que se otorgará hasta por un término máximo de seis meses, prorrogable a
+juicio del Consejo Técnico de Aviación Civil, pero siempre en el
+entendido de que la tripulación sea costarricense.
+NOTA: Original 217: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

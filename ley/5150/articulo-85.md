@@ -1,4 +1,7 @@
-Artículo 85.- Todos los aeródromos civiles del país a excepción de
-los particulares, están abiertos al servicio del público, de acuerdo con
-las especificaciones de cada tipo y con base en tarifas fijadas y
-aprobadas por le Consejo Técnico de Aviación Civil.
+Artículo 85.- A los propietarios u operadores de aeronaves
+extranjeras que visiten el país con fines turísticos, la Dirección
+General de Aviación Civil les concederá un permiso especial de operación
+de sus aeronaves, por el término que el funcionario competente de
+migración haya autorizado su permanencia en el país.
+NOTA: Original 80: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

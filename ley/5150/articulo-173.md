@@ -1,4 +1,6 @@
-Artículo 173.- Las empresas de transporte aéreo deberán conservar
-los libros relacionados con las operaciones de sus aeronaves a
-disposición de la Dirección General de Aviación Civil durante el tiempo
-prescrito en el reglamento respectivo.
+Artículo 173.- Ninguna empresa de transporte aéreo puede cambiar o
+abandonar una ruta o parte de ella, sin autorización previa del Consejo
+Técnico de Aviación Civil.
+NOTA: Original 168: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

@@ -1,3 +1,7 @@
-Artículo 49.- Se prohibe el transporte aéreo internacional de todos
-los artículos que, según los tratados y convenios vigentes o de acuerdo
-con las leyes nacionales, no sean de libre tráfico.
+SECCION IV
+De las Operaciones
+Artículo 49.- Las aeronaves deben operarse dentro de las
+limitaciones de su certificado de aeronavegabilidad y documentos
+relacionados al respecto.
+NOTA: Original 44: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

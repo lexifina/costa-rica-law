@@ -1,6 +1,7 @@
-Artículo 169.- Las empresas nacionales de transporte aéreo están
-obligadas a rendir mensualmente a la Dirección General de Aviación Civil
-un informe detallado de las horas de vuelo, kilómetros volados, número de
-pasajeros y carga transportados y demás datos estadísticos que exijan los
-reglamentos respectivos. Las empresas extranjeras darán información
-mensual sobre el movimiento de pasajeros y carga efectuada en Costa Rica.
+Artículo 169.- Cuando el lugar de partida y el lugar de destino
+están situados dentro del territorio nacional, el transporte no perderá
+su carácter local por el hecho de que la aeronave, a causa de fuerza
+mayor, tenga que efectuar un aterrizaje en territorio extranjero.
+NOTA: Original 164: corrida su numeración a la actual de
+conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de
+1991.-

@@ -1,5 +1,6 @@
-Artículo 20.- Para los efectos de inspección, vigilancia y control
-de la circulación aérea, la autoridad competente podrá practicar las
-verificaciones relativas a las personas, a las aeronaves, tripulaciones y
-cosas tranportadas antes de la partida, durante el vuelo, el aterrizaje o
-durante su estacionamiento y tomar las medidas adecuadas para su seguridad.
+Artículo 20.- La Dirección General de Aviación Civil estará dotada del personal técnico-administrativo que sea necesario para su buen funcionamiento, a juicio del Consejo Técnico de Aviación Civil.
+Este personal será nombrado por su experiencia y conocimientos en aviación civil y en las áreas afines a la competencia de este órgano y la idoneidad para el cargo, conforme al Estatuto de Servicio Civil, además, estará sujeto a un régimen especial de salarios que la Dirección del Servicio Civil aprobará una vez considerada la especialidad de la materia, lo dispuesto por el mencionado Estatuto así como las recomendaciones y los manuales emitidos por el Organismo de Aviación Civil Internacional (OACI) y otros organismos internacionales.
+El Consejo Técnico de Aviación Civil podrá contratar los estudios y servicios técnicos y profesionales y los asesores ocasionales que requiera para el desempeño adecuado tanto de sus funciones como las de la Dirección, siempre y cuando demuestre que, dentro de la planilla, no existe el personal especializado para desempeñar los trabajos que se pretenden contratar. Para ello, aplicará los principios y procedimientos de la Ley de Contratación Administrativa, Nº 7494, de 2 de mayo de 1995, y su Reglamento.
+(Así reformado por el artículo único de la Ley N° 8038 del 12 de octubre del 2000)
+NOTA: Original 15: corrida su numeración a la actual de conformidad
+con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-

@@ -1,5 +1,3 @@
-Artículo 165.- El transporte aéreo de pasajeros y mercancías está
-sometido en lo no previsto en la presente ley, a las disposiciones del
-Código de Comercio y leyes especiales relacionadas con el transporte, en
-cuanto sean aplicables y no estén en contradicción con las disposiciones
-de esta ley.
+Artículo 165.- Las tarifas aplicables en la aviación agrícola, así como las concernientes a los servicios suministrados por propietarios u operadores particulares de cualquier servicio aeronáutico, deberán también ser conocidas y aprobadas por el Consejo Técnico de Aviación Civil.
+NOTA: Original 160: corrida su numeración a la actual de conformidad con el artículo 1º de la Ley Nº 7251 de 13 de agosto de 1991.-
+(La Procuraduría General de la República mediante pronunciamiento N° C-029-1999, del 02 de febrero de 1999, derogo tácitamente este artículo, de acuerdo a lo previsto por el artículo 12 del Acuerdo de Transporte Aéreo entre el Gobierno de la República de Costa Rica y el Gobierno de los Estados Unidos de Norteamérica, Ley No. 7857 “en lo que respecta a la fijación de las tarifas del transporte aéreo por parte del Consejo Técnico de Aviación Civil…para el caso de los servicios aéreos prestados por líneas de nacionalidad costarricense hacia suelo norteamericano o de líneas norteamericanas hacia suelo costarricense… por lo que las tarifas relativas al transporte aéreo comercial de esas nacionalidades, podrían ser, tan sólo, notificadas a la autoridad aeronáutica respectiva, si así ésta lo requiere.”)
