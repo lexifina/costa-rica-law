@@ -26,3 +26,4 @@ Reglamento Interior General Colegio Federado Ingenieros y Arquitectos
 | 11 | 2001-01-17 | Reglamento 0 (2001-01-17) |
 | 12 | 2002-05-28 | SINALEVI (sin norma nombrada) |
 | 13 | 2004-03-24 | Reglamento 5 (2004-03-24) |
+| 14 | 2004-06-29 | Reglamento 6 (2004-06-29) |
