@@ -1,0 +1,1 @@
+Artículo 23.—La Municipalidad deberá realizar los trámites judiciales respectivos contra el profesional en derecho, en aquellos casos en que se demuestre impericia, favorecimiento ilícito o negligencia en la tramitación judicial de las cuentas a cobrar.

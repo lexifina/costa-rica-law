@@ -1,0 +1,1 @@
+Artículo 22.—Los abogados que por cualquier razón quieran dejar de prestar servicios a la Municipalidad, deberán comunicar esa decisión, con treinta días de antelación y por escrito al Concejo Municipal, y enviar una copia de dicha decisión y la totalidad de los expedientes judiciales que ellos manejan, a la Oficina de Cobros.

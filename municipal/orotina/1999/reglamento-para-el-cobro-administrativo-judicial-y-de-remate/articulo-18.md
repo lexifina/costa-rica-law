@@ -1,0 +1,1 @@
+Artículo 18.—Todos los abogados nombrados por la Municipalidad, deberán presentar informes de los casos asignados en la forma prevista por este reglamento, dentro de los primeros cinco días hábiles de cada mes, los que serán entregados a la Oficina de Cobros. El incumplimiento de este mandato facultará a la oficina a suspender la entrega de más casos de cuentas morosas.

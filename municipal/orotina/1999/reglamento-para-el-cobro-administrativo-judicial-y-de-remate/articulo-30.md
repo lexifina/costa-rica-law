@@ -1,0 +1,1 @@
+Artículo 30.—Los arreglos de pago se concederán si han sobrevenido circunstancias que tornen difícil el cumplimiento normal de las obligaciones o que puedan dañar seriamente la economía del deudor; si dicho incumplimiento se produce, lo deberá acreditar por escrito el contribuyente moroso.

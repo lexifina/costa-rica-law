@@ -1,0 +1,1 @@
+Artículo 21.—Para efectos de determinar si los juicios se encuentran al día, la Oficina de Cobros podrá revisar, con personal calificado, el número de expedientes y registros que crea necesarios, de operaciones entregadas a cada abogado, tomando como base la documentación en poder de la Oficina de Cobros.

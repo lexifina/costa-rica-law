@@ -1,0 +1,1 @@
+Artículo 33.—Toda la documentación relativa a arreglos de pago estará en custodia de la Oficina de Cobros, la que en su oportunidad, y si es necesario, la remitirá a los abogados contratados por la Municipalidad para que realicen las gestiones de cobro judicial respectivo.
