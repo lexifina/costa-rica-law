@@ -1,0 +1,1 @@
+Artículo 5°-Los ocupantes de las fincas que por esta ley se expropian deberán comprobar esa condición ante el IMAS, en un plazo de noventa días contados desde la fecha de vigencia de la misma ley. El IMAS adjudicará las viviendas o lotes en un plazo no mayor de un año, contado desde la misma fecha.

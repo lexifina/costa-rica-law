@@ -1,0 +1,1 @@
+Artículo 2°-La Compra o expropiación de los inmuebles citados se fundamentará en razones de utilidad pública y se realizará de conformidad con el procedimiento establecido en la Ley General de Caminos Públicos, N° 5060 del 22 de agosto de 1972.

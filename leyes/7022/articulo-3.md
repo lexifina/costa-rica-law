@@ -1,0 +1,1 @@
+Artículo 3°-Una vez adquiridos, los inmuebles serán inscritos por la notaría del Estado, sin costo alguno, en el Registro Público, libres de gravámenes a favor del Instituto Mixto de Ayuda Social (IMAS), institución que les dará el destino que se señala en el siguiente artículo.
