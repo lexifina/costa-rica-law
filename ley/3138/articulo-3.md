@@ -1,0 +1,2 @@
+Artículo 3º.- El Banco Central de Costa Rica, de acuerdo con su Ley Orgánica, suscribirá a nombre de la República a aportación de capital que a ésta le corresponda en el Banco Centroamericano de Integración Económica y realizará su pago de conformidad con lo establecido en el Convenio a que se ha hecho mención.
+Dicho pago lo realizará el Banco Central con fondos propios y por consiguiente lo contabilizará como un activo suyo, aun cuando la participación respectiva aparezca a nombre del Gobierno de la República.
