@@ -1,0 +1,1 @@
+Artículo 12.-Al acto de entrega del reconocimiento, se invitará tanto a la prensa como a los familiares del homenajeado. Este y su cónyuge o acompañante, quedan habilitados para disfrutar como invitados especiales de las actividades que el Colegio realiza con motivo de sus actividades de fin de año.

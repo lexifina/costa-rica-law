@@ -1,0 +1,1 @@
+Artículo 10.-EI reconocimiento consistirá en un pergamino en el cual se indicarán los méritos por los cuales el Colegio hace dicho otorgamiento y una gratificación material a juicio de la Junta Directiva.

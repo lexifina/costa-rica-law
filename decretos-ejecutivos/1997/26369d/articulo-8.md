@@ -1,0 +1,1 @@
+Artículo 8°-Una vez escogido el candidato, este será presentado a conocimiento de la Junta Directiva a más tardar el 1° de setiembre, por escrito, donde se indicarán las razones de la selección final. La Junta Directiva ratificará al ganador para lo cual no existe proceso de apelación.

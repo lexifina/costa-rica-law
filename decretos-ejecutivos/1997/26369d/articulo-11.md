@@ -1,0 +1,1 @@
+Artículo 11.-La entrega del pergamino y el premio estará a cargo del Presidente o Vicepresidente de la Junta Directiva, quien hará una presentación y alusión previa al acto solemne. El Colegio de previo hará la divulgación que sea necesaria con el fin de dar a conocer a la opinión pública la significación del homenaje.

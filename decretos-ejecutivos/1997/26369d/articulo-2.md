@@ -1,0 +1,1 @@
+Artículo 2°-El reconocimiento será otorgado a la persona o su representante en sesión extraordinaria de Junta Directiva especial mente convocada. Cuando el homenajeado por situación justificada no pudiere recibir personalmente el reconocimiento, según su deseo, la Junta Directiva escogerá otra fecha acorde.

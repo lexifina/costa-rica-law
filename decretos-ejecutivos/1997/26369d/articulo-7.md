@@ -1,0 +1,1 @@
+Artículo 7°-El Comité tendrá derecho a declarar desierto el concurso, si a su juicio ninguno de los candidatos reúne los suficientes méritos para la distinción o bien, porque los mismos no son, realmente relevantes para el país, el Colegio o el conocimiento científico biológico en general.

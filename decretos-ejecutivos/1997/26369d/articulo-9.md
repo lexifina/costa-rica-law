@@ -1,0 +1,1 @@
+Artículo 9°-En un período máximo de una semana la Junta Directiva enviará una circular a cada uno de los candidatos, dando a conocer el nombre del elegido y las razones que mediaron para dicha selección.

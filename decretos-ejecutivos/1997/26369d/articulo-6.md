@@ -1,0 +1,1 @@
+Artículo 6°- Todo miembro del Colegio podrá promover nombres de candidatos a recibir tal distinción, dentro del período que el Comité establecerá. La proposición se presentará por escrito indicando los méritos de la persona propuesta acompañada por cualquier otra información pertinente de valorar.

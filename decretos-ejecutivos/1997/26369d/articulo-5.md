@@ -1,0 +1,1 @@
+Artículo 5°-El Colegio reconocerá aquéllas actividades referidas a estudios sobre conservación, financiación, investigación, acción social, ecología, ordenación o en asuntos de administración y docencia en el campo de las Ciencias Biológicas. Los recursos naturales renovables y otras actividades en áreas afines, serán consideradas a juicio del Comité.
