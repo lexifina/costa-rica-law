@@ -1,2 +1,1 @@
-Artículo 80.—Las multas y cláusulas penales se ejecutarán automáticamente, en apego estricto a lo señalado en el cartel o pliego de especificaciones una vez detectado el incumplimiento. Será responsabilidad del AC en coordinación con el CCA solicitar a la Proveeduría, mediante acto debidamente motivado el cobro de las mismas en aquellos contratos que estén bajo su tutela.
-La Dirección de Proveeduría, será la encargada de comunicar y gestionar el cobro ante el contratista.
+Artículo 80.—DEROGADO por la Sesión N° 5534, celebrada el 22 de julio de 2003, publicada en La Gaceta N° 157 de 18 de agosto de 2003.

@@ -1,1 +1,2 @@
-Artículo 79.—Conformado el Órgano Director, en un plazo máximo de tres días, procederá a la apertura del procedimiento y continuará su trámite hasta emitir el acto final que contenga la recomendación correspondiente, para ser elevada al órgano competente, todo de conformidad con la Ley General de la Administración Pública.
+Artículo 79.—La interposición de recursos en contra de la resolución final emitida por la Subgerencia, no suspenderá la aplicación de la sanción; salvo cuando ésta considere que la misma pueda causar perjuicios graves de imposible o difícil reparación.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión N° 5534, celebrada el 22 de julio de 2003, publicada en La Gaceta N° 157 de 18 de agosto de 2003.)
