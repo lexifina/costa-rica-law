@@ -1,0 +1,2 @@
+Artículo 4°.- Exoneraciones. No estarán sujetos al pago de ninguna clase de impuestos, tasas, contribuciones o derechos, los documentos requeridos para formalizar este Contrato y sus anexos, así como para inscribir esos documentos en los registros correspondientes.
+Además, se exoneran del pago de impuestos, tasas, sobretasas, contribuciones o derechos, las adquisiciones de bienes y servicios requeridas para ejecutar este Contrato.

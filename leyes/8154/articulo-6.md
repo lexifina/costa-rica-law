@@ -1,0 +1,2 @@
+Artículo 6°.- Desembolsos. Los desembolsos del Contrato de Préstamo que esta Ley aprueba, no serán considerados para efectos de lo señalado en el artículo 9 de la Ley Nº 7970, de 22 de diciembre de 1999.
+(Nota de Sinalevi: Por tener articulado propio el “ Contrato de Préstamo N° 1284/OC-CR Programa de Regularización del Catastro y Registro, entre la República de Costa Rica y el Banco Interamericano de Desarrollo” debe consultarse en el sistema en forma independiente)
