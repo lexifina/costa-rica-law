@@ -10,3 +10,4 @@ ARTÍCULO 2: EGRESOS ORDINARIOS Y EXTRAORDINARIOS PARA EL 2003. (...)
 (Modificado por artículo 1° del decreto ejecutivo N° 31069 de 05 de marzo de 2003).
 (Modificado por artículo 1° del decreto ejecutivo N° 31070 del 24 de febrero de 2003).
 (Modificado por artículo 1° del decreto ejecutivo N° 31079 de 12 de marzo de 2003).
+(Modificado por artículo 1° del decreto ejecutivo N° 31110 de 14 de marzo de 2003).
