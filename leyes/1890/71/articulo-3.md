@@ -1,0 +1,1 @@
+Art. 3°. – Se destina para el pago de las cantidades designadas la suma de ($ 5.083,853-84) cinco millones ochenta y tres mil ochocientos cincuenta y tres pesos ochenta y cuatro centavos á que asciende el Presupuesto probable de entradas en el año económico en curso.
