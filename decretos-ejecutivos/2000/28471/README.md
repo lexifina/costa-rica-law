@@ -14,3 +14,4 @@ Reglamento Orgánico del Ministerio de Comercio Exterior.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-01 | la propia norma |
+| 2 | 2001-08-20 | Decreto Ejecutivo 29770 (2001-08-20) |
