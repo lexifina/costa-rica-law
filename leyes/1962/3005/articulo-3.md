@@ -1,0 +1,2 @@
+Artículo 3º—Para efectos de lo dispuesto en la cláusula Nº 5 del Contrato de Préstamo que por esta ley se ratifica, el Gobierno de la República , por medio del Ministerio de Economía y Hacienda, y el Banco Central de Costa Rica, fijarán, en un contrato especial, los términos y condiciones relativos al pago de intereses sobre el préstamo.
+En dicho contrato especial se fijarán también las condiciones en que se harán las posibles amortizaciones extraordinarias al empréstito.
