@@ -1,0 +1,1 @@
+Art. 15. Todos los Directores serán responsables al Estado por su manejo, de mancomún et insolidum, mientras duren en el ejercicio de sus funciones; excepto cuando hayan salvado su voto ó cuando obtengan licencia temporal concedida por el Gobierno de acuerdo con la Comisión.
