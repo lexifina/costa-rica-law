@@ -1,1 +1,0 @@
-Artículo 46.—Cuando se determine mediante muestreo o medio idóneo que el operador haya incumplido alguna de las disposiciones técnicas exigidas como requisitos para la calificación de sostenible se procederá además de lo establecido en la normativa respectiva a la cancelación de la certificación.

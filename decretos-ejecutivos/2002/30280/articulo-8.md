@@ -1,1 +1,0 @@
-Artículo 8º—La producción de café sostenible deberá llevarse a cabo en una unidad cuya parcela, terreno o zona productiva esté claramente separada de cualquier otra unidad que no califique como sostenible.

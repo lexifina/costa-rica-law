@@ -1,2 +1,0 @@
-OTROS
-Artículo 32.—Previo al registro del beneficiador, inspectores del ICAFE realizarán una inspección a la planta para definir la eficiencia del proceso, el cumplimiento de los aspectos técnicos señalados en este Reglamento, determinar la capacidad instalada (diaria y por cosecha) y cualquier otra información relacionada con este proceso que se requiera para efectos de otorgar la certificación que lo denomina como sostenible.

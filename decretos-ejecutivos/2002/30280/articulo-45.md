@@ -1,1 +1,0 @@
-Artículo 47.—En caso de suspensión de la certificación de una unidad productiva en el registro correspondiente del Servicio, por incumplimiento de las disposiciones legales o normativas vigentes, que sea debidamente comprobado, deberá transcurrir un periodo de dos años antes de proceder a una nueva certificación.

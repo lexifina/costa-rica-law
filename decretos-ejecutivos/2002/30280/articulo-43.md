@@ -1,1 +1,0 @@
-Artículo 45.—Las personas físicas o jurídicas debidamente registradas que brinden información falsa, que induzcan a error al inspector y/o al Servicio, serán objeto de suspensión de la certificación por un año una vez comprobado el hecho.
