@@ -1,0 +1,1 @@
+Artículo 27.—Derogatoria. Este reglamento deroga el Reglamento de Proveeduría vigente y sus reformas aprobado por Junta Directiva en Sesión Ordinaria N° 3545, Artículo IV, celebrada el 16 de julio de 1984, publicado en La Gaceta Nº 182 del 25 de setiembre de 1984.

@@ -1,0 +1,1 @@
+Artículo 11.—De la competencia para dar la orden de inicio de los procedimientos de contratación. Constando en el expediente la debida justificación de la unidad solicitante, el Acto Administrativo emitido por la Administración y la certificación presupuestaria, se dará inicio al trámite de adquisición según el procedimiento que corresponda.
