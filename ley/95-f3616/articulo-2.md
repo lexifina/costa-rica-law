@@ -1,0 +1,1 @@
+Artículo 2.- Este decreto comenzará a tener efecto desde su publicación, y la concesión de la ley durará por el término de cuatro años desde esa fecha, sin perjuicio del derecho concedido a los empresarios del Palmar y Matina.
