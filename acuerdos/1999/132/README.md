@@ -15,3 +15,4 @@ Regulaciones y Política Institucional para el Otorgamiento de Permisos de Inact
 | --- | --- | --- |
 | 1 | 1999-05-31 | la propia norma |
 | 2 | 2003-02-21 | Acuerdo 64 (2003-02-21) |
+| 3 | 2003-12-05 | Acuerdo 534 (2003-12-05) |

@@ -9,4 +9,4 @@ LA JUNTA DIRECTIVA DEL INSTITUTO COSTARRICENSE DE LA PESCA Y ACUACULTURA ,
 ACUERDA:
 Emitir las siguientes disposiciones:
 Regulaciones y Política Institucional para el otorgamiento de permisos de inactividad a embarcaciones con fines comerciales.
-Artículo 1°—El INCOPESCA no otorgará en ningún caso, sustitución temporal de embarcaciones de pesca con fines comerciales.
+Artículo 1°—Derogado por acuerdo N° AJDIP/534 del 5 de diciembre del 2003.
