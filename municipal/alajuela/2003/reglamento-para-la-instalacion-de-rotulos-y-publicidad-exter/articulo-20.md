@@ -1,0 +1,2 @@
+Artículo 20.—Responsabilidad. El profesional (arquitecto o ingeniero civil) que firme los planos o el respectivo permiso de construcción o colocación del rótulo, será responsable de la seguridad de éste en cuanto a su estabilidad y riesgo estructural.
+Los posibles daños a terceros ocasionados por el desprendimiento total o parcial del rótulo debido a un mantenimiento defectuoso, serán responsabilidad del dueño del rótulo.

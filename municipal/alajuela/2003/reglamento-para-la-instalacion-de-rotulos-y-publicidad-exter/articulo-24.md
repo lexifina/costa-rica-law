@@ -1,0 +1,1 @@
+Artículo 24.—Rótulos sin autorización. La Municipalidad podrá proceder al retiro, sin ninguna responsabilidad de su parte, de aquellos avisos, anuncios o rótulos que hayan sido colocados sin la debida autorización municipal.

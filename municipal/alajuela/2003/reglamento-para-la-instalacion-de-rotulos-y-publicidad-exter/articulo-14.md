@@ -1,0 +1,1 @@
+Artículo 14.—Estética. Los rótulos no deberán contener faltas de ortografía que perjudiquen el aprendizaje de las personas ni incorporar expresiones obscenas o contrarias a la moral, al orden público o a las buenas costumbres, ni términos que directa o indirectamente dañen o injurien los derechos consagrados en las leyes costarricenses.

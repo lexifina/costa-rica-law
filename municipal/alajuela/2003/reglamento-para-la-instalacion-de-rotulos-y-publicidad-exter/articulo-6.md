@@ -1,0 +1,8 @@
+Artículo 6º—Requisitos. Los requisitos para obtener la licencia, son los siguientes:
+a) Formulario de solicitud del permiso, debidamente lleno y firmado por el solicitante, que deberá ser el propietario del negocio comercial, o en su defecto, el propietario del inmueble donde será ubicado el rótulo.
+b) Copia de la cédula de identidad del solicitante. Si se trata de persona jurídica, deberá adjuntarse copia de la cédula jurídica, copia de la cédula de identidad de su representante y una certificación de personería con no más de un mes de emitida.
+c) Copia del plano catastrado del lote donde se va a ubicar el rótulo, con el alineamiento oficial otorgado por la Municipalidad o por el Ministerio de Obras Públicas y Transportes, según corresponda.
+d) Croquis del rótulo con el arte de la propaganda o anuncio.
+e) Plano constructivo del rótulo, si éste requiere de estructura de soporte o anclaje especial y si tiene más de seis metros cuadrados de área de publicidad. El plano deberá indicar, además de la estructura de anclaje o soporte, los materiales de construcción y el sistema de iluminación si lo incluyere, con las especificaciones técnicas y diseño eléctrico, con la firma de un profesional responsable que deberá ser arquitecto o ingeniero.
+f) Para rótulos adosados a la fachada de un edificio y que formen de ésta, deberá adjuntar un levantamiento de la fachada, con medidas a escala y con la ubicación exacta y croquis del mensaje.
+g) Para los rótulos con soporte independiente, debe incluirse plano de ubicación de éste, que muestre la distancia ala edificación en el terreno si existiere asó como la distancia a las colindancias y al alineamiento oficial.

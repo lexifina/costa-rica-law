@@ -1,0 +1,2 @@
+Artículo 7º—Competencia. Corresponderá al Departamento de Urbanismo de la municipalidad, el otorgamiento de las licencias para la instalación de rótulos o anuncios, de acuerdo con las normas de este reglamento, y las disposiciones de la Ley de Construcciones y el artículo IV. 15 del Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+A cada licencia que otorgue le asignará un número, de acuerdo con la codificación que mejor permita su ubicación.

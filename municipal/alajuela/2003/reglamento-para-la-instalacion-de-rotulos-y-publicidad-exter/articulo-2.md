@@ -1,0 +1,2 @@
+Artículo 2º—Aplicación. El presente reglamento se aplica a la exhibición exterior de anuncios, rótulos, letreros y vallas comerciales y rige para todo el cantón Central de Alajuela. Incluye no sólo las vías públicas, sino también las áreas de antejardín y cualquier espacio donde se ubique un rótulo que pueda ser apreciado desde la vía pública.
+Quedan excluidos de la aplicación de este Reglamento, los rótulos de señalización vial oficiales aprobados por el Ministerio de Obras Públicas y aquello que por su ubicación, no se aprecien desde la vía pública.

@@ -1,0 +1,4 @@
+CAPÍTULO III
+Condiciones y limitaciones para la instalación de publicidad exterior
+Artículo 13º—Restricción para colocar anuncios peligrosos. No se permitirá instalar ningún tipo de anuncio, aviso, rótulo o letrero, que a pesar de reunir los requisitos consignados en este reglamento, representen un peligro para la seguridad pública, de acuerdo al criterio técnico debidamente acreditado del Departamento de Urbanismo de la Municipalidad.
+Para todo anuncio, rótulo letrero o aviso que por sus dimensiones o posición se considerare peligroso debido a las cargas a que esté sometido, se deberá exigir para su autorización la elaboración de planos y diseños por parte de un profesional responsable en ingeniería civil. Los anuncios, rótulos, letreros o avisos deberán estar adheridos a los edificios o donde su instalación lo permita, por medio de anclajes de metal, perling o tornillos de expansión. No se permitirá en ningún caso que sean clavados a listones.

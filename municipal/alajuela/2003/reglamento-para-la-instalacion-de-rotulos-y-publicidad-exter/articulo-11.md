@@ -1,0 +1,1 @@
+Artículo 11.—Identificación. Todos los anuncios, rótulos, letreros y avisos que sean autorizados por la Municipalidad, deberá exhibir en el ángulo inferior izquierdo, una placa con el número y fecha de expedición de la licencia.

@@ -1,0 +1,2 @@
+Artículo 9º—Comunicación de alteraciones. Cada vez que se sustituya, reconstruya o modifique de algún modo el anuncio, deberá notificarse por escrito a la Municipalidad, con la presentación del nuevo diseño para su aprobación.
+La omisión de esta disposición acarrea incumplimiento suficiente para que la Municipalidad cancele la licencia otorgada y proceda a la remoción del rótulo autorizado, previo trámite de audiencia.

@@ -1,0 +1,1 @@
+Artículo 26.—Rótulos sobre la vía pública. En cualquier caso en que se encuentren anuncios, rótulos o avisos dentro de los derechos de vía de las calles y carreteras públicas, se procederá de inmediato a su desmantelamiento sin trámite alguno.

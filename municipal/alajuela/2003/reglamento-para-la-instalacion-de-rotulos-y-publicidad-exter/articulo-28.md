@@ -1,0 +1,1 @@
+Artículo 28.—Cálculo del impuesto. El impuesto indicado en el artículo anterior se calculará como un porcentaje del salario mínimo que contemple la relación de puestos de la Municipalidad al primer día del mes de enero de cada año, el cual será comunicado a los contribuyentes, mediante resolución que se publicará en el Diario Oficial La Gaceta.

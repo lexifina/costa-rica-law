@@ -1,0 +1,2 @@
+Artículo 25.—Multas. La Municipalidad, de acuerdo con el artículo 33 de la Ley de Construcciones, impondrá multas por las infracciones a este Reglamento y ordenará el desmantelamiento y retiro, a costa del propietario, del anuncio y su estructura que considere inconvenientes y peligrosas.
+Para efectos de este artículo, se entenderá por infractor el propietario del negocio o inmueble donde se ubique el rótulo cuestionado.

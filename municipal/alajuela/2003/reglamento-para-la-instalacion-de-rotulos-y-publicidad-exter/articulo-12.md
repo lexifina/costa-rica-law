@@ -1,0 +1,1 @@
+Artículo 12.—Expediente. Por cada licencias que otorgue, el Departamento de Urbanismo levantará y conservará un expediente, en el cual se incluirá en forma cronológica y consecutiva, toda la documentación relacionada con la licencia, de tal manera que en cualquier tiempo puedan verificarse las condiciones en que fue otorgado el permiso.

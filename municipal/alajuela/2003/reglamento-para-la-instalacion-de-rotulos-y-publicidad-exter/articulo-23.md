@@ -1,0 +1,1 @@
+Artículo 23.—Procedimiento. La municipalidad procederá a cancelar las autorizaciones que otorgue para la colocación de anuncios, rótulos o avisos, sin responsabilidad alguna para la Municipalidad, previa notificación y audiencia al interesado,m de acuerdo con los términos del procedimiento ordinario previsto en el título segundo de la Ley General de la Administración Pública.

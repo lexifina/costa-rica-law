@@ -1,0 +1,1 @@
+Artículo 17.—Restricciones para rótulos luminosos. Los anuncios luminosos deberá ser de materiales apropiados, artísticos y convenientemente luminosos. En estos anuncios y en los que utilicen espejos, no se permitirá deslumbrar, ni concentraciones de luz intensas. Las alternativas de luz no serán mayores del 50% en arterias comerciales y del 33% en las demás vías.

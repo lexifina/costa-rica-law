@@ -1,0 +1,5 @@
+Artículo 19.—Requisitos técnicos para la colocación de rótulos sobre estructuras especiales. Cuando para la instalación del anuncio se hace necesario el uso de estructuras especiales de hierro, madera o cualquier otro material aceptable por la Municipalidad, se deberá presentar plano del mismo, los dibujos necesarios para juzgar el modo en que se instará y los cálculos relativos a su estabilidad. Estos planos se harán en láminas de 45 por 65 cm y deberán contener los siguientes datos:
+a) esquema de la fachada y planta del edificio en que se instalará el anuncio, mostrando claramente su posición.
+b) Descripción detallada del anuncio o rótulo, con indicación de la clase o tipo, medidas, ubicación, lectura, iluminación, distribución de cargas y la estructura que lo soporte, así como la forma en que se adherirá al edificio.
+c) Plano de situación del edificio sobre el que se instalará el anuncio.
+d) Cajetín en la esquina inferior derecha que indique el nombre del propietario del inmueble, el nombre del propietario del anuncio y el nombre y firma del profesional responsable del diseño.

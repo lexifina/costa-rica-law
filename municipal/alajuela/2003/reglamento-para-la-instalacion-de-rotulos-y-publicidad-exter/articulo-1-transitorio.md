@@ -1,0 +1,2 @@
+Transitorio: Por única vez y durante un plazo de tres meses a partir de la publicación de este Reglamento, podrán los administrados presentar las solicitudes de licencia de aquellos rótulos existentes, los que deberán en dicho término, adecuarse a las especificaciones y requisitos contemplados en estas disposiciones. Transcurrido dicho plazo, la administración municipal procederá a retirar todos aquellos rótulos que no se encuentren amparados a la respectiva licencia municipal.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
