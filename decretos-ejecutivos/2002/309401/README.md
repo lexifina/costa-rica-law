@@ -14,3 +14,4 @@ Reforma acuerdo sobre Integración del Consejo Nacional de Desarrollo comunal.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-12 | la propia norma |
+| 2 | 2003-03-06 | Decreto Ejecutivo 31107 (2003-03-06) |
