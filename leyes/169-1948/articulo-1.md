@@ -1,0 +1,44 @@
+Considerando:
+Con motivo de la emisión del decreto-ley número 44 de 4 de junio del
+presente año, se le otorgó autonomía al Ferrocarril Eléctrico al Pacífico,
+y pudiendo ello perjudicar los intereses de los ex-empleados pensionados
+en la actualidad o que se pensionen en el futuro, es de urgente necesidad
+proceder a la reforma de la Ley de Pensiones y Jubilaciones de esa
+Institución.
+Por tanto,
+DECRETA:
+Artículo 1º.- Se reforman los artículos 7º, 8º, 9º, 10 y 12 de la
+ley número 264 de 23 de agosto de 1939, así:
+"Artículo 7º.- El otorgamiento de las pensiones y jubilaciones, así
+como todo lo concerniente al correcto disfrute de ellas y fijación de su
+monto, será atribución del Departamento Nacional de Pensiones, cuyo fallo
+es en única instancia y de carácter definitivo."
+"Artículo 8º.- toda solicitud de jubilación o pensión será escrita,
+y la prueba de los hechos en que se funda debe ser documental
+necesariamente; todo en papel de veinticinco céntimos. La edad será
+probada con certificación del Registro del Estado Civil o con certificado
+de la partida de bautismo; la incapacidad física o enfermedad será probada
+por reconocimiento y dictamen uniforme de los tres médicos oficiales del
+Departamento Nacional de Pensiones; y los servicios serán probados con
+documentos fehacientes emanados de la propia Administración del
+Ferrocarril o de los propios Jefes del Departamento en que los servicios
+fueron prestados, o de cualquier otra dependencia pública en que constaren
+los mismos.
+El presupuesto vigente o la certificación de planillas dará el dato
+relativo al sueldo o salarios."
+"Artículo 9º.- El pago de las pensiones se hará por medio de giros
+extendidos por el Ministerio de Economía, Hacienda y Comercio, a la orden
+del jubilado o pensionado, en la misma forma y por los mismos trámites
+usuales para el pago de las demás pensiones y jubilaciones."
+"Artículo 10.- Los empleados y obreros, y aun los jubilados y
+pensionados, contribuirán también para el pago de las pensiones referidas
+en esta ley. A los sueldos y salarios se les hará una rebaja mensual del
+3% a los que pasen de ¢ 200.00 y del 2% a los que no excedan de esa
+cantidad.
+La Auditoría del Ferrocarril Eléctrico al Pacífico enterará
+mensualmente la Tesoro Público el monto total de estas deducciones."
+"A toda pensión se le hará una rebaja del 5%. El producto de tales
+rebajas, engrosará también el fondo del Tesoro Nacional."
+"Artículo 12.- No son susceptibles de embargo, ni podrán cederse,
+venderse, ni en forma alguna enajenarse las pensiones que se otorguen
+conforma a esta ley."
