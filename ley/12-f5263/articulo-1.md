@@ -1,0 +1,6 @@
+Decreto XII
+Subvencionado por el término de cuatro años con $ 60 mensuales, la empresa de diligencias que tiene establecidas el señor Pedro Manau, entre San José, Cartago, Heredia y Alajuela.
+El Senado y la Cámara de Representantes de Costa Rica, reunidos en Congreso. – Con presencia del memorial dirigido a las Cámaras por el señor Pedro Manau, solicitando algunas concesiones en favor de la empresa de diligencias que tiene establecidas entre esta capital y las Provincias de Cartago, Heredia y Alajuela.
+Decretan:
+Art único: Se subvenciona la empresa de diligencias a que el preámbulo de este Decreto se refiere, con la suma de sesenta pesos mensuales independientemente del sueldo que el Gobierno satisface al empresario por la conducción de las malas. Esta subvención le será satisfecha por el Tesorero público durante el término de cuatro años con tal que la empresa o sus directores no incurran en faltas contra el buen servicio que prestan al público, al prudente juicio del Poder Ejecutivo.
+A la Cámara de Senadores. – Dado en el Salón de Sesiones, Palacio Nacional, San José, diez de junio de mil ochocientos sesenta y ocho. – Al Poder Ejecutivo, Sala de la Cámara de Senadores, Palacio Nacional, San José junio veinte y cinco de mil ochocientos sesenta y ocho. Palacio Nacional, San José a seis de julio de mil ochocientos sesenta y ocho.
