@@ -15,3 +15,4 @@ Reglamento para la precalificación ONG para la Administración de Fondos de Par
 | --- | --- | --- |
 | 1 | 1999-08-06 | la propia norma |
 | 2 | 2002-06-11 | Reglamento municipal 6 (2002-06-11) |
+| 3 | 2002-06-11 | Ley 8 |
