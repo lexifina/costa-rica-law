@@ -13,3 +13,4 @@ Reglamento Emisión Bonos Deuda Interna 8% 1979 Segunda Emisión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-01-24 | la propia norma |
+| 2 | 1980-01-24 | SINALEVI (sin norma nombrada) |
