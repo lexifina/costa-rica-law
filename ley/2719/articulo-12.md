@@ -1,6 +1,8 @@
 Artículo 12.- Cada quintal de azúcar que elaboren los ingenios, ya sea de caña de producción propia o ajena, que sea consumido en el territorio nacional, pagará los siguientes impuestos:
 a) ¢ 1.00 a favor del Poder Ejecutivo, el cual se destinará a dar financiación al Plan a que se refiere la presente ley;
 b) ¢ 1.10 a favor de las municipalidades y concejos de distrito de los cantones y distritos productores de caña, en proporción a la caña entregada a los ingenios, los cuales serán invertidos exclusivamente en la construcción y conservación de los caminos de acceso a las zonas cañeras;
+La Municipalidad del cantón de Jiménez por sus condiciones especiales, podrá invertir un 50% de este impuesto en otras necesidades del cantón y el 50% restantes exclusivamente en caminos de acceso a las zonas cañeras
+(Así adicionado el párrafo anterior por el artículo 1º de la Ley Nº 5303 de 14 de agosto de 1973)
 c) ¢ 0.15 a favor de las Cámaras de Pequeños Productores de Caña del Pacífico y del Atlántico, por partes iguales; y
 d) ¢ 0.25 a favor del Centro Agrícola Cantonal de los cantones productores de caña, en proporción a la caña entregada a los ingenios del cantón. Los fondos serán invertidos exclusivamente para el desarrollo de nuevos cultivos (diversificación agrícola).
 Cuando no exista el Centro Agrícola Cantonal en el cantón productor de caña, se repartirán los fondos entre los Centros Agrícolas Cantonales de la provincia, proporcionalmente a la producción de los ingenios donde exista el Centro Agrícola Cantonal.
