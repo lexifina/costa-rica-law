@@ -1,1 +1,3 @@
-Artículo 44.- Los acuerdos tomados por la asamblea general se considerarán firmes y deberán constar en un Libro de Actas de Asambleas Generales que será el mismo en que consta el acta constitutiva de la asociación. Tales acuerdos serán tomados por simple mayoría de votos, salvo que el Estatuto disponga otra cosa.
+Artículo 44.- Los acuerdos tomados por la asamblea general relativos a renovaciones totales o parciales de miembros de Junta Directiva y a reformas al estatuto, surtirán sus efectos después de haber sido inscritos en el Registro de la Dirección y deberán constar en el Libro de Actas de Asambleas Generales de la Asociación.
+Tales acuerdos serán tomados por la mayoría de los votos presentes, salvo que el estatuto disponga otra cosa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 6426 del 4 de octubre de 1976)

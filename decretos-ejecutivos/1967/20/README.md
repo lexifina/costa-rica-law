@@ -21,3 +21,4 @@ Reglamento Ley sobre el Desarrollo de la Comunidad
 | 6 | 1972-08-18 | Decreto Ejecutivo 2498 (1972-08-18) |
 | 7 | 1974-04-18 | Decreto Ejecutivo 3715 (1974-04-18) |
 | 8 | 1974-12-10 | Decreto Ejecutivo 4393 (1974-12-10) |
+| 9 | 1976-10-04 | Decreto Ejecutivo 6426 (1976-10-04) |
