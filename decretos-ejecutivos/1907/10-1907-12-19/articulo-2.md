@@ -1,0 +1,1 @@
+Artículo 2°-La nota nominal que los párrocos están obligados a pasar cada fin de mes al Registrador General, según lo ordenado en el artículo 68 ibídem, deberá expresar la provincia ó comarca, cantón y distrito del nacimiento de cada uno de los bautizados, so pena de tenerse el informe por insuficiente y sujeto a la sanción penal del caso.

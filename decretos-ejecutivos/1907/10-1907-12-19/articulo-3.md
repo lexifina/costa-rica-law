@@ -1,0 +1,2 @@
+Articulo 3°-Cámbiase el texto del inciso 3° del articulo 6° del dicho Reglamento, en los siguientes términos: "3°- Presentar en los primeros tres días de cada mes a la Secretaría de Gobernación y á la oficina de Estadística, un informe detallado del movimiento del Registro durante el mes anterior."
+Dado en la ciudad de San Jose, a los diez y nueve días del mes de diciembre de mil novecientos siete.
