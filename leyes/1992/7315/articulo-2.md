@@ -1,0 +1,4 @@
+ARTICULO 2.- Autorízase la creación de la Unidad Coordinadora del Programa de mejoramiento de la Calidad de la Educación General Básica, como un órgano adscrito al Ministerio de Educación Pública, bajo la dirección del Ministerio de Educación Pública.
+Esta Unidad asumirá las funciones que se le atribuyen al Organismo Ejecutor, en los contratos de préstamo señalados en el artículo 1 de la presente Ley y tendrá a su cargo la ejecución del Programa.
+El personal de la Unidad Coordinadora estará excluido del Régimen del Servicio Civil, será nombrado por contratos de tiempo determinado y su clasificación y valoración será competencia de la Autoridad Presupuestaria
+Por la vía del concurso de antecedentes internos, se realizará la selección del personal mas calificado, lo cual estará a cargo de una comisión establecida por las altas autoridades del Ministerio de Educación Pública (M.E.P.).

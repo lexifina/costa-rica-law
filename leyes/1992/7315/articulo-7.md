@@ -1,0 +1,1 @@
+ARTICULO 7.- Las disposiciones contenidas en el artículo I, Sección 1.02, inciso g) del contrato de préstamo 3414-CR no facultan al Poder Ejecutivo para modificar la estructura del sistema educativo por medio de decreto, en lo que sea materia reservada a la ley.
