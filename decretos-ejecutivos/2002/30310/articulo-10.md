@@ -1,0 +1,1 @@
+Artículo 10.—En los supuestos de los artículos 9 y 10 tanto la madera como los demás productos forestales, deberán contar con los mecanismos y controles necesarios, establecidos por las respectivas empresas certificadoras, que demuestren que la madera y los productos forestales efectivamente provienen de un bosque o plantación certificada.

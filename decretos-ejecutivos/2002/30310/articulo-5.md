@@ -1,0 +1,1 @@
+Artículo 5º—La A.F.E., previa recomendación de la Comisión Nacional de Certificación Forestal y de conformidad con la legislación nacional existente, podrá acreditar a otros certificadores. De cualquier decisión adoptada por la A.F.E. en esta materia, cabrá recurso de apelación ante el o la Ministra del Ambiente y Energía.

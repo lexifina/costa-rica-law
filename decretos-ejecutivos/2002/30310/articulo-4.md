@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión Nacional de Certificación Forestal y la Administración Forestal del Estado, mantendrán una base de datos actualizada, con la lista de las empresas, organizaciones y propietarios del país, que cuentan con la Certificación Forestal otorgada por entidades u organizaciones acreditadas ante el Sistema Nacional de Certificación reconocido.
