@@ -1,0 +1,1 @@
+Art. 2°-Podré llamar al que estime conveniente de dichos Designados, y en caso de que así no lo haga, entrarán á funcionar por el órden de su nominación. Dado en el Palacio Nacional, en San José, á diez y nueve de Octubre de mil ochocientos setenta y siete. T. Guardia. El Secretario de Estado en el Despacho de Gobernación, Rafael T Machado.
