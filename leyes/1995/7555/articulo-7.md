@@ -1,0 +1,40 @@
+ARTICULO 7.- Procedimiento de incorporación
+La incorporación de un bien al patrimonio histórico-arquitectónico se
+efectuará mediante Decreto Ejecutivo, previa tramitación de un expediente
+que abrirá el Ministerio a instancia de la Comisión asesora prevista en el
+artículo 5 anterior, la cual procederá de oficio o por solicitud de un
+particular o un ente público.
+El propietario y los titulares de derechos reales sobre el inmueble
+serán notificados de la apertura del expediente para que se apersonen,
+expongan lo que les interese y ofrezcan la prueba del caso, dentro del
+plazo que se les fije. Igual notificación se hará a la municipalidad en
+cuya jurisdicción esté localizado el inmueble.
+La apertura del expediente implica la prohibición de demoler o
+cambiar la estructura del inmueble y la aplicación, inmediata y
+provisional, del régimen previsto para los bienes incorporados al
+patrimonio histórico-arquitectónico, excepto lo dispuesto en los incisos
+b), d) y g), del artículo 9.
+La declaración no procederá si no consta en el expediente la opinión
+favorable de la Comisión, creada en el artículo 5, la cual se le
+solicitará una vez concluida la instrucción en que se declare abierto el
+expediente; salvo que este obedezca a una iniciativa de la Comisión. En
+todo caso, rendirá su informe en un plazo de quince días. El silencio de
+la Comisión se entenderá como asentimiento.
+El expediente deberá concluirse en un plazo máximo de dos meses que
+podrán prorrogarse hasta por dos meses más en casos calificados y previa
+resolución motivada suscrita por el Ministro. Transcurrido el plazo, si no
+hay resolución se producirá la caducidad del expediente y sólo se podrá
+iniciar otro sobre el mismo inmueble cuando hayan transcurrido tres años
+desde la caducidad, salvo que medie gestión escrita del propietario o
+titular del derecho sobre el inmueble.
+Si se trata de un centro, conjunto o sitio, una vez cumplidos los
+trámites anteriores, el Ministerio de Cultura, Juventud y Deportes hará la
+declaratoria si lo considera oportuno y cuando proceda remitirá el
+expediente a la Asamblea Legislativa para su ratificación.
+La declaratoria a que se refiere la presente ley, excepto la regulada
+en el párrafo anterior, podrá dejarse sin efecto vía Decreto Ejecutivo por
+iniciativa del Ministerio de Cultura, Juventud y Deportes, previa
+reapertura del expediente e informe favorable de la Comisión. No se podrán
+invocar, como causas determinantes para dejar sin efecto la declaración,
+las que se deriven del incumplimiento de las obligaciones que a los
+propietarios o al Ministerio les impone la presente ley.
