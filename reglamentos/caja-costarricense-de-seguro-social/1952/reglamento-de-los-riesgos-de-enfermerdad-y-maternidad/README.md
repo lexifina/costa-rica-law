@@ -18,3 +18,4 @@ Reglamento de los riesgos de enfermerdad y maternidad
 | 3 | 1971-03-16 | Reglamento 4254 (1971-03-16) |
 | 4 | 1973-09-12 | Reglamento 4689 (1973-09-12) |
 | 5 | 1974-07-12 | Reglamento 4813 (1974-07-12) |
+| 6 | 1975-05-14 | Reglamento 4900 (1975-05-14) |
