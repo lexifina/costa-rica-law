@@ -14,3 +14,4 @@ Reglamento para el Pago de Uso de Vehículos Propiedad de los Funcionarios de In
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-10 | la propia norma |
+| 2 | 1998-07-10 | Ley 8 |
