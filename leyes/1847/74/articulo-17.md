@@ -1,0 +1,1 @@
+ARTÍCULO 17.-Tanto a los Directorios de las juntas primarias como a los de las secundarias, a mas de la obligación que tienen de extender el acta respectiva, les incumbe la de sacar certificaciones para remitir al Gobernador departamental en el acto de concluirse la elección, y la Autoridad Política hará la convocatoria de los electores con la debida anticipación.

@@ -1,0 +1,1 @@
+ARTÍCULO 9°.-En todo el tiempo que se recibe la votación por el Directorio se observar el mejor orden, circunspección y respeto, y no se permitir conversación alguna que distraiga la atención de los concurrentes, ni se podrá tratar de otro asunto inconexo al acto electoral.
