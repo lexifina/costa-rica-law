@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO.- Los asuntos cuyo procedimiento administrativo se haya iniciado en el seno del Consejo de Gobierno, antes de la vigencia de esta reforma, serán de su conocimiento hasta que el Consejo emita el acto final, previos dictámenes favorables de la Procuraduría General de la República o la Contraloría General de la República, según el caso, y bajo la égida de las normas rectoras del rito en mención.
+Rige a partir de su publicación.
