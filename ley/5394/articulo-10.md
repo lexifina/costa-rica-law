@@ -1,0 +1,1 @@
+Artículo 10.- Se autoriza a las Instituciones Autónomas y Semiautónomas del Estado para que otorguen donaciones a favor de la Junta y para que ésta los reciba de ellas, así como de otras personas o instituciones privadas, nacionales o extranjeras, por cualquier suma.
