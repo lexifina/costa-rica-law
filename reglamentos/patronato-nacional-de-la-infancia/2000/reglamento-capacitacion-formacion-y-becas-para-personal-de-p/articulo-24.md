@@ -1,0 +1,2 @@
+Articulo 24. Revisión: En caso de ser realizada la solicitud de capacitación y adiestramiento por no ajustarse a lo aprobado por el Plan Institucional de Capacitación, los coordinadores de las unidades operativas podrán solicitar una revisión al acuerdo, indicando los fundamentos que justifican la inclusión del tema de capacitación en el Plan de Capacitación.
+La solicitud será resuelta por la Comisión de Capacitación.

@@ -1,0 +1,2 @@
+Transitorio II.—De la vigencia: El presente Reglamento deroga el Reglamento de Capacitación, Adiestramiento y Becas del Patronato Nacional de la Infancia , publicado en La Gaceta N ° 96 del 21 de mayo de 1996, así como cualquier otra disposición reglamentaria o administrativa anterior que se le oponga. Rige a partir de su publicación en el periódico oficial La Gaceta.
+San José, 14 de abril del 2000.

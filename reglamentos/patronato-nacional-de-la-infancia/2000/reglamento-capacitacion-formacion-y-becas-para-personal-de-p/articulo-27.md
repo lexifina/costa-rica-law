@@ -1,0 +1,2 @@
+Articulo 27.—Del horario de las actividades: Las actividades de capacitación y formación podrán ser organizadas dentro o fuera de la jornada laboral, atendiendo a las necesidades institucionales.
+Si la capacitación se recibiere fuera de la jornada laboral, ya sea en forma total o parcial y si fuese o no organizada por la institución, ello no generará derecho alguno de pago de horas extras ni ningún otro tipo de compensación.

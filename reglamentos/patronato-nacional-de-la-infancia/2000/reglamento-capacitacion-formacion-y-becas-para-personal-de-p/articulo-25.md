@@ -1,0 +1,2 @@
+Articulo 25.—Del trámite de becas: Todas las solicitudes de beca, dentro o fuera del país, se canalizarán a través de la Oficina de Recursos Humanos.
+En los meses de Junio y noviembre de cada año se hará un "Concurso Interno" para seleccionar a los posibles becarios. El Funcionario hará la solicitud en forma escrita, adjuntando los requisitos establecidos en el presente regí amen lo, para que la comisión lo recomiende a la Presidencia Ejecutiva para el otorgamiento de los beneficios, según disponibilidad presupuestaria.

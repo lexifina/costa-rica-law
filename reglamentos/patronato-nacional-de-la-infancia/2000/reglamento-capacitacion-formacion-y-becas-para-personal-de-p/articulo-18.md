@@ -1,0 +1,2 @@
+Articulo 18.—Reuniones de la comisión: La comisión se reunirá ordinariamente una vez al mes y extraordinariamente cuando al menos tres de sus miembros lo consideren pertinente.
+El coordinador será el encargado de custodiar toda la documentación que produzca y reciba la comisión y de realizar la convocatoria a las sesiones, esta se hará por escrito con tres días mínimos de anticipación, adjuntándose el acta de la sesión anterior y la agenda correspondiente. Al inicio de la sesión, la comisión aprobara la agenda propuesta.

@@ -1,0 +1,1 @@
+Artículo 35.—De la situación laboral del beneficiario: Una vez finalizados los estudios, el trabajador deberá reanudar sus funciones y reintegrarse al puesto que ocupaba antes del inicio de los mismos. La conclusión de un programa de formación no obliga a la institución a ascender, reasignar o transformar la plaza del funcionario (a).

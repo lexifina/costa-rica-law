@@ -1,0 +1,1 @@
+Articulo 30.—De la suspensión de actividades: En caso de situaciones altamente calificadas o por problemas de salud del trabajador, se requiere la presentación de la incapacidad médica de la Caja Costarricense de Seguro Social.

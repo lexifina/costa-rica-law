@@ -1,0 +1,2 @@
+Articulo 8°—De la obligación de los beneficiarios: Los trabajadores tendrán la obligación de atender las convocatorias para asistir a cursos de capacitación, cumplir, con los requisitos y aceptar las obligaciones estipuladas en este Reglamento.
+Cuando los cursos de capacitación se impartan fuera de la jornada laboral ordinaria la asistencia a estas actividades es obligatoria por parte del trabajador.

@@ -1,0 +1,1 @@
+Artículo 3°—Del Régimen Legal: El Sistema de Capacitación y Formación de los empleados del PANI estará regulado por el presente Reglamento, el Reglamento Autónomo de Servicio, la Ley N ° 3009 Ley de Licencias para Adiestramiento de Servidores Públicos y demás normativas que rigen la materia.
