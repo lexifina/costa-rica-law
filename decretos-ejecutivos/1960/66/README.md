@@ -14,3 +14,4 @@ Reglamento de la Ley de Servicio de Cabotaje de la República.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1960-11-09 | la propia norma |
+| 2 | 1964-01-22 | Decreto Ejecutivo 1 (1964-01-22) |
