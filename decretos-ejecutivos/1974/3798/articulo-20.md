@@ -1,0 +1,2 @@
+Artículo 20.—Para otros documentos se establecerá hasta donde fuera posible una clasificación apropiada y una ordenación numérica progresiva para cada uno de los Poderes, con Series (Ministerios) y Subseries (Dirección, Departamento o Sección especializada).
+A cada Subserie corresponderá un grupo de ordenación con su propio tarjetero de colocación de documentos y cubiertas por orden alfabético de asuntos.

@@ -1,0 +1,1 @@
+Artículo 21.—Si hubiere legajos éstos se colocarán con numeración continua conteniendo cada uno de ellos documentos relativos al mismo asunto. La disposición que antecede regirá para la documentación que ingresare al Archivo Nacional a partir de la publicación del presente Reglamento.

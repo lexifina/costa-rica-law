@@ -1,0 +1,1 @@
+Artículo 38.—El Archivo Nacional expedirá segundos testimonios de conformidad con la Ley Orgánica de Notariado. Sin embargo, el Archivo podrá aceptar solicitudes por escrito, pero las firmas deberán ser autenticadas por un abogado. En ese mismo escrito las partes podrán indicar la persona que autorizan para retirar el testimonio.

@@ -1,0 +1,1 @@
+Artículo 6°—La Sección Jurídica clasificará, ordenará y catalogará los expedientes jurídicos hasta 1947 y los protocolos e índices notariales. Atenderá toda clase de consultas y solicitudes de certificaciones, testimonios y constancias de conformidad con las disposiciones vigentes.

@@ -1,0 +1,1 @@
+Artículo 23.—A los cuadros señalados en el artículo anterior deberán agregarse las series y subseries que legalmente fueren incorporadas a la Administración Pública de conformidad con la Ley General de Presupuesto.

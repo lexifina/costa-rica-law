@@ -1,0 +1,1 @@
+Artículo 28.—Acompañarán a las remisiones una lista inventario por triplicado: una copia se devolverá como recibo a la Oficina remitente, otra formará parte del inventario general y la tercera se incorporará con los inventarios de las anteriores remisiones de la misma entidad.
