@@ -1,1 +1,2 @@
 TRANSITORIO PRIMERO.-A partir de la publicación en "La Gaceta" y en \o sucesivo, no se otorgará ningún beneficio derivado de este Reglamento, salvo las situaciones expresamente ponderadas por la Junta Directiva, si estos no están contemplados en el respectivo Programa de Capacitación Anual, aprobado previamente por este Órgano Colegiado.
+(Mediante acuerdo de sesión N° 3035 se desaplica el presente transitorio)
