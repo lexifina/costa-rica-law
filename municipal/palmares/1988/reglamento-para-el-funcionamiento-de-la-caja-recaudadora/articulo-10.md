@@ -1,0 +1,1 @@
+Artículo 10.- Todo cajero que funciones como tal en una caja recaudadora de la Municipalidad de Palmares cerrará la Caja del Tesorero Municipal y posteriormente este revisará el cierre delante del cajero.
