@@ -1,0 +1,1 @@
+Art 3°.- De este fallo podrá apelar el reo ante el Juez de Letras respectivo, compareciendo con certificación del Juez que conoció de la causa, constando en ella todos los antecedentes. El Juez Letrado le oirá de nuevo, sin hombres buenos, y confirmará, revocará o enmendará y de su fallo librará conocimiento al mismo Alcalde, para que lo cumpla puntualmente.

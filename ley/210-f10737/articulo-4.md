@@ -1,0 +1,1 @@
+Art 4°.- Ampliase la facultad concedida á los Jueces de primera instancia por el artículo 38 de la ley de 16 de enero de 1826, para fallar en los términos y excepciones que prefija el mismo artículo, por hurtos que no excedan da veinticinco pesos.
