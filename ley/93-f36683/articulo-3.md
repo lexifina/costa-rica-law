@@ -1,0 +1,1 @@
+Art 3°.- Los comerciantes que extraigan licores de los almacenes de depósitos para el consumo del país gozarán del plazo de seis meses para satisfacer los derechos impuestos, si el monto de ellos excediese de doscientos pesos. Este plazo comenzará a contarse desde la fecha en que se desalmacene la primera partida licores.
