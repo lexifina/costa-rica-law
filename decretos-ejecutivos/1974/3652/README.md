@@ -14,3 +14,4 @@ Reglamento de la faja transportadora y Muelle Punta Morales Puntarenas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-04-30 | la propia norma |
+| 2 | 1983-04-25 | Decreto Ejecutivo 14482 (1983-04-25) |
