@@ -14,3 +14,4 @@ Crea Registro Concesiones del Proyecto Turístico Golfo Papagayo en Bahía Culeb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-09-10 | la propia norma |
+| 2 | 1995-04-24 | Decreto Ejecutivo 24231 (1995-04-24) |

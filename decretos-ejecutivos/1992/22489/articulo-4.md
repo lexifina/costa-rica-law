@@ -1,4 +1,6 @@
-Artículo 4º.- Para inscribir toda concesión, deberán presentarse los siguientes documentos:
-a) plano catastrado del área otorgada en concesión de conformidad con las regulaciones que tiene el Proyecto Turístico Golfo Papagayo.
-b) solicitud de inscripción y resolución de la Junta Directiva del Instituto Costarricense de Turismo, de la concesión otorgada.
-c) certificación del contrato firmado entre el concesionario y el Instituto Costarricense de Turismo y de todo otro documento que aquel firme con esta y que afecta la concesión.
+Artículo 4º.- Para inscribir las concesiones del Proyecto Turístico Golfo Papagayo en el Registro General de Concesiones del Registro Público y otorgadas por el Instituto Costarricense de Turismo, deberán presentarse los siguientes documentos:
+a- La resolución de la Junta Directiva del Instituto Costarricense de Turismo otorgando la Concesión , debidamente protocolizada por la Institución , dando fe el Notario Público de que la Concesión otorgada es la misma que consta en el plano catastrado que se adjunta. El notario indicará que el acto es de cuantía inestimable de acuerdo con este decreto.
+b- Plano de área dada en concesión, debidamente catastrado e inscrito en el Catastro Nacional y sellado por el Instituto Costarricense de Turismo.
+Además se cumplirá con todos los requisitos exigidos para la inscripción de documentos en el Registro Público, establecidos en el Código Civil, Código de Comercio, Reglamento del Registro Público, Ley sobre Inscripción de Documentos en el Registro Público.
+Para el pago de derechos se hará conforme a lo estipulado en la Tabla tercera, artículo cuatro inciso uno y veintiséis para actos y contratos de cuantía inestimable de la Ley de Aranceles. Lo anterior también en caso de inscripciones nuevas, prórrogas y cesiones parciales.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 24231 del 24 de abril de 1995)

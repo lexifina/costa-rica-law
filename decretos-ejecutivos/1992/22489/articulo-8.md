@@ -1,2 +1,4 @@
-Artículo 8º.- Rige a partir de su publicación.
-Dado en la Presidencia de la República.-San José, a los dos días del mes de setiembre de mil novecientos noventa y dos
+Artículo 8º.- En el caso de prórrogas o cesiones de concesiones inscritas, la protocolización deberá incluir, además de la comparecencia del concesionario, la transcripción del convenio y la resolución de aprobación del Instituto Costarricense de Turismo, de lo cual el notario deberá dar fe. Asimismo, para el caso de cesiones parciales, el notario deberá adjuntar los planos de las áreas cedidas.
+Cuando el Instituto Costarricense de Turismo cancele, declare, extinga o decida rescatar una concesión, comunicará con las formalidades de ley, la Resolución de su Junta Directiva al Registro de Concesiones para su debida anotación, mientras se cumplen los procedimientos definitivos fijados por la ley. Esta anotación no se cancelará salvo que así lo solicite el Instituto Costarricense de Turismo.
+El Registro cancelará el asiento de presentación cuando los documentos no cumplan con los requisitos aquí exigidos.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 24231 del 24 de abril de 1995)

@@ -1,0 +1,2 @@
+Artículo 9º.- El Registro deberá aplicar, a efecto de inscribir cualquier acto sujeto a inscripción en dicho despacho, el Reglamento del Registro Público, la Ley de Inscripción de Documentos Públicos, Código Civil, Código de Comercio, Ley Orgánica de Notariado, Ley de Desarrollo y Ejecución de Creación del Proyecto Turístico Golfo de Papagayo, Ley sobre la Zona Marítimo Terrestre y su Reglamento, y la Ley de Aranceles del Registro Público.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 24231 del 24 de abril de 1995)
