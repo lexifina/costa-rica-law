@@ -1,4 +1,4 @@
-Artículo 10.- La Asamblea Nacional se reunirá ordinariamente una vez
+ARTICULO 10.- La Asamblea Nacional se reunirá ordinariamente una vez
 al año, dentro de los tres primeros meses del año, y extraordinariamente
 cuando la Junta Directiva la convoque, lo que hará en forma obligada
 cuando así se lo soliciten por escrito al menos veinticinco miembros de

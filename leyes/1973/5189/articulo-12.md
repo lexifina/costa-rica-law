@@ -1,4 +1,4 @@
-Artículo 12.- La Asamblea será presidida por el Presidente de la
+ARTICULO 12.- La Asamblea será presidida por el Presidente de la
 Junta Directiva. El Secretario de la Junta Directiva igualmente ejercerá
 tal función en las sesiones de la Asamblea Nacional. A falta de ellos,
 la Asamblea designará a las personas que ejercerán esos cargos en la
