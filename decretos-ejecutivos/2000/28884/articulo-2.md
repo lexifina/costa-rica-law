@@ -1,1 +1,0 @@
-Artículo 2°—Durante el período comprendido entre el día primero de agosto y el día treinta y uno de diciembre del año 2000 (ambas fechas inclusive) queda prohibida la caza mayor y menor de todas las especies con poblaciones reducidas o en peligro de extinción con excepción de lo que disponga técnicamente el Sistema Nacional de Areas de Conservación (SINAC).
