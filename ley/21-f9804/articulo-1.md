@@ -1,0 +1,7 @@
+DECRETO XXI
+Aumenta con un Contador más el Tribunal de Cuentas y establece un Tribunal de Rezages
+Jesús Jiménez, Presidente de la República de Costa Rica.
+Estando informado de una manera oficial y positiva de que en el Tribunal Superior de Cuentas de la República, se haya pendiente un multitud de cuentas de las diferentes Oficinas que administran caudales, tanto nacionales como provinciales que administran caudales, tanto nacionales como provinciales, a causa de que el número de individuos de que se compone dicho Tribunal no es suficiente ni aun para el examen, glosa y fenecimiento de las que cada año se crean; yendo por consiguiente en aumento el catálogo de las rezagadas.
+Considerando que tanto interés del Fisco, como en el de los empleados se hace absolutamente necesario cortar un mal que más tarde sería difícil, sino imposible, evitar, por razón de la confusión que el tiempo introduce en esta clase de negocios, mientras que, por otra parte, extingue los recuerdos que pudieran contribuir a aclarar y deshacer los reparos y observaciones que deduzcan a las cuentas.
+Y deseoso de facilitar por todos los medios posibles la mejor y más expedita marcha de la Hacienda Pública en sus diferentes acepciones. - De acuerdo con el dictamen del Consejo de Hacienda, decreto:
+Art 1° Se aumenta con un Contador, con la denominación de “5”, el Tribunal Superior de Cuentas o sea de las últimas presentadas por los respectivos Administradores.
