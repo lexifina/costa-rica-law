@@ -1,0 +1,1 @@
+Artículo 24.—La atención de los asuntos sometidos a conocimiento de la Junta Directiva, estará a cargo de un funcionario y los empleados que se crean necesarios para el eficaz funcionamiento de esta sección.

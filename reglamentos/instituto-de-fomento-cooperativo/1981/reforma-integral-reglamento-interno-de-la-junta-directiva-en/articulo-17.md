@@ -1,0 +1,2 @@
+Artículo 17.—En la sesión siguiente se pondrá a discusión el borrador del acta, para efectos de su aprobación. Se discutirá únicamente sobre las modificaciones a los acuerdos y el interesado en aclarar los textos relativos a sus participaciones lo hará directamente con el funcionario encargado de confeccionar las actas, quien las incluirá antes de transcribirse al libro de actas de la Junta Directiva.
+Una vez transcrito el texto para cada acuerdo, será confrontado por el Auditor, con base en la copia del acta que obra en su poder, la cual debe conservarse en archivo.

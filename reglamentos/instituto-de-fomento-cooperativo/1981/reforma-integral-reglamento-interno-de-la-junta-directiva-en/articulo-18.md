@@ -1,0 +1,1 @@
+Artículo 18.—-Los acuerdos tomados por la Junta Directiva quedarán firmes al aprobarse el acta en la siguiente sesión ordinaria, a menos que se interponga y prospere el recurso de revisión conforme con lo que dispone el artículo siguiente.
