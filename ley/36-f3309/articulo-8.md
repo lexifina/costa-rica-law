@@ -1,0 +1,1 @@
+Art, 8. Si por exigencia de la enfermedad, o por instancias de parte del paciente, tuviese que permanecer en casa de aquel, cobrará por cada hora de permanencia, ya sea del día o de la noche, cuatro reales.
