@@ -15,3 +15,4 @@ Reglamento para el cierre de negocios
 | --- | --- | --- |
 | 1 | 2000-09-22 | la propia norma |
 | 2 | 2001-05-09 | Decreto Ejecutivo 29538 (2001-05-09) |
+| 3 | 2001-09-05 | Decreto Ejecutivo 29787 (2001-09-05) |
