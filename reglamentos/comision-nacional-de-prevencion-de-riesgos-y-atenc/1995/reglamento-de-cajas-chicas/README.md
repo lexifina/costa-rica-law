@@ -14,3 +14,4 @@ Reglamento de Cajas Chicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-07-31 | la propia norma |
+| 2 | 1997-07-16 | Reglamento 63 (1997-07-16) |
