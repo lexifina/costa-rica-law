@@ -13,3 +13,4 @@ Actualiza Cánones de la Ley de Vida Silvestre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-08-07 | la propia norma |
+| 2 | 2002-04-02 | Decreto Ejecutivo 30343 (2002-04-02) |
