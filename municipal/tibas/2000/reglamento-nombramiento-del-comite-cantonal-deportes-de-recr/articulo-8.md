@@ -1,0 +1,1 @@
+Artículo 8°—El Concejo Municipal de Tibás dictará el Reglamento de Funcionamiento que regirá al Comité Cantonal de Deportes y Recreación, en el cual se incluirá como capítulo el presente texto sobre procedimiento de elección de los miembros del Comité. El Reglamento de Funcionamiento en cuestión deberá publicarse en el término de ley.

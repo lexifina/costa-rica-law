@@ -1,0 +1,1 @@
+Artículo 6°—Los miembros del Comité Cantonal de Deportes y Recreación podrán ser destituidos de sus cargos por el órgano que los nombró, previo expediente mediante el cual se garantice el debido proceso.

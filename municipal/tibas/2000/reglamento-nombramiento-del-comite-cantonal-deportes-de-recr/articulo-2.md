@@ -1,0 +1,1 @@
+Artículo 2°—El nombramiento de los miembros que deba hacer el Concejo Municipal será nominal de acuerdo con la votación prevista en el artículo anterior, y la presentación deberá contar con un detalle curricular de la persona propuesta.
