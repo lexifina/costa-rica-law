@@ -1,0 +1,1 @@
+Artículo 2º—El adéndum incluiría la zona marítimo terrestre con un área de 44 ha. 6 011 m² y 40 dm², que Agropepe tiene concesionado por parte de la Municipalidad de Golfito y que limita con la Laguna Pejeperro.

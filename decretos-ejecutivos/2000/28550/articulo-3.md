@@ -1,0 +1,1 @@
+Artículo 3º—Dicho inmueble estará sometido a la categoría de Refugio de Vida Silvestre mixto por el plazo original que corresponde al Refugio de Vida Silvestre Pejeperro, prorrogables por períodos iguales para lo cual el propietario deberá solicitarlo con seis meses de anticipación a la finalización de dicho período.
