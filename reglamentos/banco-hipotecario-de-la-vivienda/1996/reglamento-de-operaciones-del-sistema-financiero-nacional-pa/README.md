@@ -21,3 +21,4 @@ Reglamento de Operaciones del Sistema Financiero Nacional para Vivienda
 | 6 | 1997-05-22 | SINALEVI (sin norma nombrada) |
 | 7 | 1997-06-27 | SINALEVI (sin norma nombrada) |
 | 8 | 1999-07-15 | SINALEVI (sin norma nombrada) |
+| 9 | 2000-06-14 | Reglamento 35 (2000-06-14) |
