@@ -1,0 +1,1 @@
+Art. 7°-A la Cartera de Comercio pertenece lo relativo a Tribunales y Juzgados de este ramo y à la legislación en esa materia, la inspección de bancos, mercados, muelles y demás obras de esta clase la vigilancia de los reglamentos y tarifas propios de tales establecimientos, el fomento y la mejora del cabotaje, y la regularidad de moneda, pesas y medidas.

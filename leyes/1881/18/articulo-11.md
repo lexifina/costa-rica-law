@@ -1,0 +1,1 @@
+Art. 11.-A la Cartera de Policía corresponden la vigilancia y el mantenimiento del orden público, y de la higiene pública. El cuidado del aseo y solidez de los edificios, la reglamentación de los juegos de azar, y en general, toda inspección ó servicio público que se refiera á la prevención de los crímenes, delitos y faltas, pertenecen á esta Cartera.

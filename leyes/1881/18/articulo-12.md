@@ -1,0 +1,1 @@
+Art. 12.-A la Cartera de Beneficencia incumbe lo relativo á la Administración de establecimientos de socorro, tales como casas de Maternidad, Hospitales y Asilos de dementes, y cualquiera otra intervención del Gobierno en la Caridad Pública.
