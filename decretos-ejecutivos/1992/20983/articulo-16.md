@@ -1,1 +1,0 @@
-Artículo 16.- A juicio de la Dirección de Geología y Minas, y ante incumplimiento grave de las obligaciones a cargo de la entidad concesionaria; podrá ordenarse, como medida preventiva, la paralización inmediata de las labores que se estén llevando a cabo. Inmediatamente se iniciará el procedimiento que se establece en el artículo 63 de la ley Nº 6797.

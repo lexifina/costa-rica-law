@@ -1,1 +1,0 @@
-Artículo 15.- En caso de que la actividad de explotación vaya a ser ejecutada por un tercero, así habrá de consignarse en la solicitud inicial, quedando siempre la entidad concesionaria como responsable ante el Ministerio de Recursos Naturales, Energía y Minas, por las labores que se ejecuten.
