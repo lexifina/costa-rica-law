@@ -1,1 +1,2 @@
-Artículo 9°—Las Agencias Comercializadoras están obligadas a respetar el equilibrio del sistema, establecido por el Sistema de Ahorro y Préstamo, tanto en las ventas mínimas como las superiores a ese monto, como también en la cartera total. Debiendo obedecer cualquier directriz en ese sentido de la Dirección de Ahorro y Préstamo.
+Artículo 9º—Las agencias comercializadoras están obligadas a respetar el equilibrio del sistema, establecido por el Sistema de Ahorro y Préstamo, tanto en las ventas mínimas como las superiores a ese monto, así como también en la cartera total. Respetando cualquier instrucción en ese sentido de la Dirección de Ahorro y Préstamo.
+(Así reformado por acuerdo tomado en sesión N° 5219 de 3 de octubre del 2002)
