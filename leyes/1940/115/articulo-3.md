@@ -1,0 +1,1 @@
+Artículo 3°-Deróganse todos los impuestos de exportación que actualmente pesan sobre el café, así como los municipales sobre la producción y beneficio, con excepción del de siete céntimos por fanega que fijó la ley N° 209 de 18 de agosto de 1933.
