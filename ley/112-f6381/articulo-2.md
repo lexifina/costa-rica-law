@@ -1,0 +1,1 @@
+Art. 2. El Excelentísimo Congreso de Costa Rica, à nombre de los pueblos que representa, dá al Sr. Don Juan Rafael Mora, con su pública gratitud, un testimonio del aprecio que le han merecido sus servicios.
