@@ -1,7 +1,7 @@
-Artículo 158.-La DGF autorizará el funcionamiento de aserraderos portátiles, únicamente en los siguientes casos:
-a) Cuando se trate de aserríos para mejoras de su propia finca (vivienda, corrales, puentes, postes y otros).
-b) Para la obtención de madera para obras comunales a juicio de la DGF.
-c) Para integrarlo al aprovechamiento del recurso maderable de su propia finca sometido al plan de manejo, siempre que no preste servicios a terceros.
-ch) Para procesar materia prima (residuos generados por la tala y extracción forestal: tocones, puntas, trozas dañadas, ramas y colas.
-d) Para fines de investigación.
-La DGF vía administrativa establecerá los requisitos para obtener el respectivo permiso de funcionamiento.
+Artículo 158.- (Derogado por por el artículo 3° del decreto ejecutivo N° 20099 del 2 de noviembre de 1990. No obstante, mediante el artículo 2° de este mismo decreto se reformaba el presente numeral con el siguiente texto: "La Dirección General Forestal autorizará el funcionamiento de aserraderos portátiles únicamente en los siguientes casos:
+a) Cuando se trata de aserríos para mejoras de su propia finca (vivienda, corrales, puentes, postes y otros). El permiso se le otorgará únicamente por el tiempo y el volumen estrictamente requerido.
+b) Para procesar materia prima residual (residuos generados por la tala y extracción forestal, tocones, puntas, trozas dañadas, ramas y colas), el interesado deberá suministrar a la Dirección General Forestal la información acerca del volumen a procesar, la ubicación de la finca y otra que administrativamente se estime conveniente. Posteriormente, la Dirección General Forestal deberá realizar una inspección al sitio de la explotación, para determinar si se trata de materia prima residual. El permiso se le otorgará únicamente por el tiempo y el volumen estrictamente requerido.
+La Dirección General Forestal autorizará el funcionamiento de aserraderos móviles únicamente en el siguiente caso:
+Cuando el aserradero móvil cuente con la materia prima para operar en forma continua y permanente de acuerdo con un turno de corta, presentado para tal efecto al Departamento de Desarrollo Industrial los estudios industriales forestales que dicho departamento solicita.
+La Dirección Forestal por vía administrativa establecerá los requisitos para obtener los respectivos permisos de funcionamiento.
+Los permisos otorgados con anterioridad a esta disposición seguirán vigentes hasta su vencimiento")

@@ -15,3 +15,4 @@ Reglamento a la Ley Forestal
 | --- | --- | --- |
 | 1 | 1990-09-13 | la propia norma |
 | 2 | 1990-09-25 | Decreto Ejecutivo 19964 (1990-09-25) |
+| 3 | 1990-11-02 | Decreto Ejecutivo 20099 (1990-11-02) |
