@@ -1,1 +1,0 @@
-Artículo 28.—Informes anuales. La Junta Administradora rendirá, a más tardar el 15 de febrero de cada año, un informe con los estados financieros auditados al 31 de diciembre del año anterior por el Auditor Externo, a la Junta Directiva del Instituto, a la SUPEN y a la Asamblea General, sobre las operaciones realizadas durante el período fiscal del año anterior.
