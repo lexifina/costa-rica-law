@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-Quedan sin efecto los remates celebrados en el próximo pasado Diciembre para el presente trienio, y los rematarios a nada obligados, supuesto tampoco han colectado cosa de entidad ni satisfecho al Tesoro público cantidad alguna.
