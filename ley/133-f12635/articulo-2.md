@@ -1,0 +1,1 @@
+Art 2°.- Los poseedores de tierra en pequeñas porciones que lasten gran cerradas o cultivadas, pagaran por manzanas desde una hasta dieziseis, a medio cada una y de este número para arriba cualquier cerco o potrero, pagará como si fuese caballería cerrrada
