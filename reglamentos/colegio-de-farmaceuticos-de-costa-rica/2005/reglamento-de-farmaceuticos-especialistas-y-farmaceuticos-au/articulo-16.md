@@ -1,0 +1,1 @@
+Artículo 16.—La condición de especialista no crea ningún privilegio con respecto a los otros miembros del Colegio, por lo que ellos están obligados a cumplir con todas las normas vigentes. En caso de suspensión del ejercicio profesional ello conlleva la exclusión del Registro de Especialistas y el de Auditores Farmacéuticos.

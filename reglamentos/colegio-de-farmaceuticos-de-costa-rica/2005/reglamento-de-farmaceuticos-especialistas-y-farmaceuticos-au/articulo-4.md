@@ -1,0 +1,2 @@
+Artículo 4º—La Asamblea General Extraordinaria establecerá la inclusión de especialidades o subespecialidades distintas a las que se indican en este Reglamento, por recomendación de la Junta Directiva del Colegio.
+El reconocimiento de nuevas especialidades podrá ser solicitado por la Junta Directiva por cualquier persona física o jurídica, en el caso que sea solicitada por las últimas, dicha solicitud deberá hacerse por escrito, exponiendo con toda claridad los motivos de la solicitud.

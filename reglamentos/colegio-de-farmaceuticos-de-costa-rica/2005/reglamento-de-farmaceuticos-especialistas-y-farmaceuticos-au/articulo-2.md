@@ -1,0 +1,1 @@
+Artículo 2º—Se consideran Especialidades Farmacéuticas aquellos estudios de postgrado, debidamente finalizados realizados por farmacéuticos y que reúnan los requisitos que establezca este reglamento y que tengan un mínimo de 600 horas presenciales. En el caso de postgrados "on line", la Comisión evaluará la exigencia del programa.

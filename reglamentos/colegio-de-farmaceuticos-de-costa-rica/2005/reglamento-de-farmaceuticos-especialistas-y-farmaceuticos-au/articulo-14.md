@@ -1,0 +1,1 @@
+Artículo 14.—Únicamente los farmacéuticos especialistas y los farmacéuticos auditores debidamente inscritos en sus respectivos registros, serán reconocidos como tales, siempre y cuando se ajusten en todo a las disposiciones de la Ley Orgánica del Colegio de Farmacéuticos y sus reglamentos y al Código de Ética y Moral Farmacéutica.

@@ -1,0 +1,2 @@
+Artículo 6º—La Comisión de Especialistas Farmacéuticos tendrá un plazo de sesenta días hábiles para resolver las solicitudes que se sometan a su conocimiento y de no hacerlo en ese plazo las solicitudes se tendrán por aprobadas.
+Una vez dictada la resolución de la Comisión de Especialistas Farmacéuticos la pondrá en conocimiento de la Junta Directiva del Colegio de Farmacéuticos de Costa Rica, para lo que corresponda.

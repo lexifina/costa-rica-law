@@ -1,0 +1,1 @@
+Artículo 11.—En caso de un dictamen desfavorable por parte de la Comisión, el solicitante podrá apelar ante la Junta Directiva del Colegio de Farmacéuticos, en el término de quince días hábiles posteriores a la notificación del dictamen desfavorable.

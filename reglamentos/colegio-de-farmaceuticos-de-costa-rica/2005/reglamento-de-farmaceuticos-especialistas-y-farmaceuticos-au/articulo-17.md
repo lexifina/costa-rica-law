@@ -1,0 +1,2 @@
+Artículo 17.—El presente reglamento podrá ser reformado a solicitud de la Junta Directiva o cuando se lo soliciten a ésta al menos nueve colegiados.
+En este último caso, la solicitud levará el proyecto de reforma y la Junta Directiva convocará a asamblea general extraordinaria de reforma y la junta directiva convocará a asamblea general extraordinaria a más tardar un mes después de recibida la solicitud, debiendo presentar a la asamblea un informe a favor o en contra de la reforma propuesta.

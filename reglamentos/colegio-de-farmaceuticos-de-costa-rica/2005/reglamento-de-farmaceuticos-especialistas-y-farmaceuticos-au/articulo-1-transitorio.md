@@ -1,0 +1,1 @@
+Transitorio I.—Se respetan los derechos adquiridos de los profesionales registrados como especialistas, según el Reglamento de Especialistas Farmacéuticos, promulgado por la asamblea general extraordinaria, el 27 de junio de 1985.
