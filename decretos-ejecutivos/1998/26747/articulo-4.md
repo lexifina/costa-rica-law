@@ -1,1 +1,0 @@
-Artículo 4°- La dirección de los Programas Nacionales Sectoriales al más alto nivel estará a cargo de un Coordinador General, el cual fungirá como enlace entre el Ministro de Agricultura y Ganadería y el Gerentes Programa.

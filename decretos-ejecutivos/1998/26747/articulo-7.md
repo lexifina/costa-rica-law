@@ -1,1 +1,0 @@
-Artículo 7º- Créanse las Comisiones Asesoras de los Programas Nacionales Sectoriales, las cuales estarán integradas por representantes con poder de decisión del sector público y sector privado (productores, industriales y exportadores).

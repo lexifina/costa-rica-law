@@ -1,1 +1,0 @@
-Artículo 3°- Para la ejecución del Programa Nacional Sectorial contará, en el nivel central con una Comisión Asesora y un Equipo de Apoyo. En el nivel regional contará con el apoyo de los Comités Sectoriales Regionales Agropecuarios.
