@@ -1,0 +1,1 @@
+Artículo 15°.—Las oficinas, dependencias e instituciones del Estado que necesiten llevar a cabo actividades de Topografía o Agrimensura también quedan obligadas a organizar estas actividades bajo la inmediata dirección y responsabilidad de personas legalmente autorizadas para el ejercicio de ellas.

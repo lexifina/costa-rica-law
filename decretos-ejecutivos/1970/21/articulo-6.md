@@ -1,0 +1,1 @@
+Artículo 6°—Todas aquellas personas que tengan licencia para el ejercicio de la Agrimensura o Topografía quedan sujetas en el ejercicio de sus funciones al cumplimiento del Código de Ética Profesional del Colegio de Ingenieros y Arquitectos de Costa Rica; así como a los reglamentos internos que éste dicte al respecto.

@@ -1,0 +1,1 @@
+Artículo 14°.—Las firmas, empresas y sociedades legalmente inscritas que incluyan dentro de sus actividades típicas trabajos de Agrimensura o Topografía quedan obligadas a ocupar para la dirección y ejecución de esos trabajos a personas autorizadas por la ley, quienes serán los responsables por los trabajos que suscriban.

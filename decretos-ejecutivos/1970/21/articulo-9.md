@@ -1,0 +1,1 @@
+Artículo 9°—El Colegio de Ingenieros y Arquitectos velará, por medio de su fiscalía, para que en las oficinas públicas o privadas y en las instituciones autónomas y semiautónomas, sólo ejerzan la Agrimensura v Topografía aquellas personas que tengan licencia.

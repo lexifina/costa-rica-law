@@ -1,0 +1,1 @@
+Artículo 3°—Los Ingenieros Topógrafos que a la promulgación de la ley sean miembros activos del Colegio de Ingenieros y Arquitectos están autorizados sin trámite alguno y con pleno derecho para el ejercicio de la Topografía.

@@ -1,0 +1,1 @@
+Artículo 12°.—Serán acreedores a la sanción que les imponga el Tribunal de Honor aquellas personas que autorizadas para el ejercicio de la Topografía o la Agrimensura calcen con su firma planos, informes o trabajos en que no hayan intervenido personalmente en su ejecución.
