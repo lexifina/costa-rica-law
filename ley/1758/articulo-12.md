@@ -1,4 +1,4 @@
-Artículo 12.- Toda radioemisora deberá funcionar libre de espurias y
+ARTICULO 12.- Toda radioemisora deberá funcionar libre de espurias y
 armónicas y ajustada su frecuencia de tal manera que no interfiera a
 otras estaciones. El Departamento de Control Nacional de Radio no podrá
 autorizar el funcionamiento de ninguna planta cuya instalación no se
