@@ -1,0 +1,1 @@
+Artículo 37.- Acto discriminatorio en la matrícula. Se considerará un acto discriminatorio cuando la Dirección del Centro Educativo, niegue, por razones de su discapacidad, la matrícula a un estudiante con necesidades educativas especiales. Para la interpretación adecuada de este artículo aplicará el artículo 44, inciso g) de este Reglamento.

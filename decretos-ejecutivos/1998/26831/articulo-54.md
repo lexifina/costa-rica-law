@@ -1,0 +1,1 @@
+Artículo 54.- Adecuación a los requisitos de ingreso. El Instituto Nacional de Aprendizaje y demás centros públicos y privados de formación técnica y profesional, aplicarán adecuaciones a los requisitos de ingreso y a las pruebas de admisión, de acuerdo a las necesidades de los aspirantes con discapacidad que así lo soliciten.

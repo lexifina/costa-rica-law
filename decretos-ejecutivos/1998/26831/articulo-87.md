@@ -1,0 +1,1 @@
+Artículo 87 .- Información y capacitación. La Dirección General de Servicio Civil, en coordinación con el ente rector en materia de discapacidad, establecerá procesos de capacitación, publicaciones periódicas e información accesible y permanente sobre la discapacidad a efectos de posibilitar la incorporación de las personas con discapacidad a las diferentes clases de puestos.

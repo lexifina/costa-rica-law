@@ -1,0 +1,1 @@
+Artículo 2.- Planificación anual. Las instituciones públicas incluirán en sus planes anuales operativos o planes anuales de trabajo, en los períodos correspondientes a su formulación, las acciones y proyectos que garanticen el acceso a sus servicios y la igualdad de oportunidades en todas las regiones y comunidades del país.

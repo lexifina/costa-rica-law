@@ -1,0 +1,1 @@
+Artículo 115.- Ventanas. Las ventanas estarán ubicadas a una altura apropiada para aprovechar la luz y el paisaje disponible. Las ventanas para mirar hacia afuera podrán tener zócalo de 82.5 cms. de altura máxima.

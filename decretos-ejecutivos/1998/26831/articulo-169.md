@@ -1,0 +1,1 @@
+Artículo 169.- Tarifas de los taxis adaptados. En lo concerniente a las fijaciones tarifarías se aplicarán las disposiciones contenidas en la Ley de la Autoridad Reguladora de los Servicios Públicos Nº 7593 del 9 de agosto de 1996.

@@ -1,0 +1,1 @@
+Artículo 34.- Opción de matrícula en la educación regular. Los estudiantes con necesidades educativas especiales tienen el derecho de matricularse en la Educación General Básica y a la Educación Diversificada, con las adecuaciones de acceso al currículo y curriculares requeridas.

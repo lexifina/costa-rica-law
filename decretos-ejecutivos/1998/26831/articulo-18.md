@@ -1,0 +1,1 @@
+Artículo 18.- Violencia doméstica. Los actos citados en el artículo precedente se considerarán además como violencia doméstica, cuando los actores tuvieran relación de parentesco con la persona con discapacidad, de conformidad con la Ley No. 7586 Contra la Violencia Doméstica, del 10 de abril de 1996 y sus reglamentos.

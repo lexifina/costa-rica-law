@@ -1,0 +1,1 @@
+Artículo 36.- IV ciclo de la Educación Especial. En la programación educativa del IV ciclo de la educación especial se incluirán objetivos que promuevan el máximo desarrollo de los estudiantes y que favorezcan la autonomía, la socialización y la formación para el trabajo.

@@ -1,0 +1,1 @@
+Artículo 57.- Programas de extensión. El Instituto Nacional de Aprendizaje desarrollará programas de extensión para la capacitación de personas con discapacidad. Para ello, podrá establecer convenios con otras instituciones públicas, privadas y organizaciones no gubernamentales.

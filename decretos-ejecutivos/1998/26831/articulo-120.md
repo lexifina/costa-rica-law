@@ -1,0 +1,1 @@
+Artículo 120.- Ducha. El tamaño mínimo de la ducha para silla de ruedas es de 1.20 x 1.20 mts., incluyendo una apertura mínima de 1.00 mts. para el acceso. Los pisos de las duchas deberán ser de material antiderrapante.

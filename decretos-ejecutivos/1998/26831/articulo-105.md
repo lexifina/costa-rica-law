@@ -1,0 +1,1 @@
+Artículo 105.- Símbolo internacional de acceso. Todos los señalamientos que deban hacerse para indicar el acceso a los servicios utilizados por personas con discapacidad, se presentarán con el símbolo internacional de acceso.

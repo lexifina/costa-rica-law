@@ -1,0 +1,1 @@
+Artículo 50.- Consignación y comunicación de las adecuaciones. Para garantizar su continuidad y seguimiento, las adecuaciones curriculares significativas, se consignarán en el expediente del estudiante. Estas deberán ser comunicadas a su padre, madre o encargado en el correspondiente informe al hogar.

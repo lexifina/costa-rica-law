@@ -1,0 +1,1 @@
+Artículo 73.- Prevención de la discriminación. El Ministerio de Trabajo y Seguridad Social, establecerá la prevención respectiva al patrono que asuma actitudes discriminatorias en la contratación o que incumpla con los alcances de la Ley 7600 en materia de empleo.

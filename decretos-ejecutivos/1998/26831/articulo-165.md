@@ -1,0 +1,9 @@
+Artículo 165.- Requisitos y características del transporte público colectivo. Todo vehículo de servicio público de transporte colectivo de pasajeros cumplirá las siguientes disposiciones, características y requisitos:
+a) Un mínimo de dos asientos de uso preferencial próximos a la puerta de entrada del respectivo vehículo, debidamente señalados, asimismo el timbre de aviso estará en un lugar fácilmente accesible y en forma estandarizada para que las personas ciegas conozcan con certeza su ubicación.
+b) El piso será de material antiderrapante.
+c) Suprimirán los dispositivos que impidan el acceso en el abordaje, tales como trompos, barras, etc.
+d) En los servicios de transporte a larga distancia, acondicionarán un sistema de información visual y auditiva que permita comunicar a los viajeros con suficiente antelación, la llegada a estaciones.
+e) Las puertas y gradas de ingreso y egreso deberán tener un ancho mínimo de 0.80 mts., la altura del primer escalón con respecto al pavimento será de un máximo de 0.40 mts. y el piso de la unidad podrá ser bajo y permitir el fácil acceso desde la acera y contar con el espacio suficiente para permitir el acceso de una persona en silla de ruedas. Contar con los dispositivos mecánicos hidráulicos adecuados de ingreso y descenso tales como: plataformas o rampas. Este dispositivo se ubicará al menos en una puerta lateral.
+f) En el caso de unidades de transporte aéreo, marítimo o ferroviario, se respetarán las adaptaciones y especificaciones de fábrica.
+g) En las unidades de servicio de transporte marítimo los dispositivos de seguridad y salvamento deberán ser accesibles y debidamente señalizados. Los implementos de salvamento se ubicarán a una altura máxima de 1.20 mts.
+h) En todos los medios de transporte público se le permitirá a las personas con discapacidad ingresar y utilizar las ayudas técnicas que requieran tales como: bastones, muletas, silla de ruedas, perro guía, y otros dispositivos análogos.

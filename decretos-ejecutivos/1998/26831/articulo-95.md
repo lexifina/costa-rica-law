@@ -1,0 +1,1 @@
+Artículo 95.- Protocolos de atención. La Caja Costarricense de Seguro Social y el Instituto Nacional de Seguros, definirán y aplicarán los protocolos de atención en materia de discapacidad, según los distintos niveles del sistema de salud.

@@ -1,0 +1,1 @@
+Artículo 176.- Perro guía. La persona ciega o deficiente visual que utilice el perro guía como apoyo a su movilidad, lo podrá ingresar a toda edificación pública, privada de servicio público y medio de transporte público.

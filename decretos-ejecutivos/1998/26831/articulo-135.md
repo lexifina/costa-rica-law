@@ -1,0 +1,1 @@
+Artículo 135.- Pisos antiderrapantes. Los pisos de las escaleras serán en materiales antiderrapantes. Lo mismo en accesos principales, pasillos y en sitios que se encuentren desprotegidos de la lluvia.

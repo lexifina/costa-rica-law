@@ -1,0 +1,1 @@
+Artículo 159.- Identificación oficial. La persona acreedora a dicha autorización está obligada a portar, en un lugar visible del vehículo, el logotipo de identificación oficial determinado al efecto, cuyo distintivo será otorgado por la Dirección General de Transporte Público del Ministerio de Obras Públicas y Transportes.

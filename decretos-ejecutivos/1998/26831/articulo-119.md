@@ -1,0 +1,1 @@
+Artículo 119.- Lavatorios. Los lavatorios deberán instalarse a una altura máxima de 0.85 mts, se recomienda el uso de controles de temperatura tipo palanca. La tubería para suministro o salida de agua expuesta, deberá aislarse para prevenir quemaduras o raspaduras.

@@ -1,0 +1,1 @@
+Artículo 11.- Eliminación de la discriminación. Cualquier persona o entidad utilizará el procedimiento establecido en el artículo anterior, para solicitar la eliminación de las acciones y disposiciones que, directa o indirectamente promueven la discriminación o impiden a las personas con discapacidad tener acceso a los programas y servicios.

@@ -1,0 +1,1 @@
+Artículo 13.- Actos discriminatorios en la información. Se considerará un acto discriminatorio el negar, omitir o distorsionar la información de un servicio que se presta sobre discapacidad o no suministrarla al interesado o su familia en forma oportuna, accesible y comprensible.

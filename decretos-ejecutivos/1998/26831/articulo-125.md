@@ -1,0 +1,5 @@
+Artículo 125.- Características de las aceras. Las aceras deberán tener un ancho mínimo de 1.20 mts., un acabado antiderrapante y sin presentar escalones; en caso de desnivel éste será salvado con rampa.
+Los cortes transversales o rampas que se hagan a lo largo de la línea de propiedad, no será de un tamaño mayor a 1,20 mts., deberán cumplir con los requisitos de gradiente, superficie y libre paso de aguas. Podrán hacerse en estos casos sin necesidad de visto bueno municipal.
+En caso de ser mayores los cortes o menor la distancia de separación según dicho, su distancia máxima sobre la línea de construcción será la que exista de área de entrada o de estacionamiento. Estas áreas deberán cumplir con los requisitos que indique el reglamento al respecto y deberá contarse en este caso con el visto bueno de la municipalidad del lugar para su ejecución.
+Las aceras deberán tener una altura (gradiente) de entre 15 y 25 cms. medida desde el cordón del caño. En caso de que la altura de la línea de propiedad sea menor a la señalada, se salvará por gradiente que deberá cumplir con lo establecido a continuación.
+La gradiente en sentido transversal, tendrá como máximo el 3%.

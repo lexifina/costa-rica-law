@@ -1,0 +1,1 @@
+Artículo 77.- Contratación de trabajadores principiantes. El Ministerio de Trabajo y Seguridad Social, podrá suscribir convenios directamente con la empresa privada a efecto de promover la contratación de trabajadores principiantes con discapacidad, acorde a lo estipulado en el artículo 5 de la Ley de Aprendizaje del Instituto Nacional de Aprendizaje.

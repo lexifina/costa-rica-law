@@ -1,0 +1,1 @@
+Artículo 19.- Prevención y atención de la violencia intrafamiliar. El Centro Nacional para el Desarrollo de la Mujer y la Familia formulará y coordinará - en conjunto con el ente rector en materia de discapacidad - políticas para prevenir y atender los casos de violencia intrafamiliar contra personas con discapacidad.

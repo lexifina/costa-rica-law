@@ -1,0 +1,1 @@
+Artículo 68.- Comisión permanente. El Ministerio de Trabajo y Seguridad Social nombrará, internamente, una comisión permanente con la participación de todas las direcciones, dicha comisión se encargará de definir estrategias, planes y proyectos para promover la equiparación de oportunidades en el empleo de las personas con discapacidad.

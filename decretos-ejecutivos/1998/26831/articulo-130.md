@@ -1,0 +1,1 @@
+Artículo 130.- Elementos urbanos. Los elementos urbanos de uso público, tales como cabinas telefónicas, fuentes, basureros, bancos, maceteros y otros análogos se diseñarán y ubicarán de forma que puedan ser usados por personas con discapacidad y que no constituyan un obstáculo para el desplazamiento de los transeúntes.

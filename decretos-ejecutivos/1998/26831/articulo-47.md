@@ -1,0 +1,1 @@
+Artículo 47.- Adecuaciones de acceso al currículo y curriculares no significativas. Las adecuaciones de acceso al currículo y curriculares no significativas, serán determinadas y aplicadas por los docentes del centro.

@@ -1,0 +1,1 @@
+Artículo 139.- Sótanos. En el caso de edificios con sótano, la diferencia de nivel entre éste y el nivel principal deberá ser salvada mediante elevador apropiado o con una rampa peatonal con la gradiente reglamentaria construida en forma antiderrapante.

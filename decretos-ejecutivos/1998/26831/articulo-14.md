@@ -1,0 +1,1 @@
+Artículo 14.- Servicios de apoyo en las gestiones municipales. Las municipalidades prestarán los servicios de apoyo que requieran las personas con discapacidad, en la realización de las gestiones políticas, administrativas, comunales, cívicas, culturales y de toda índole que sean convocadas, organizadas o administradas por el gobierno local.

@@ -1,0 +1,1 @@
+Artículo 94.- Servicios en las regiones. Todas las Direcciones Regionales y unidades de salud de la Caja Costarricense de Seguro Social y el Instituto Nacional de Seguros según competencia, participarán activamente en el desarrollo y prestación de todo tipo de servicios para las personas con discapacidad, en todas las regiones del país.

@@ -1,0 +1,2 @@
+Artículo 101.- Información sobre discapacidad. Todas las unidades prestadoras de servicios de salud, divulgarán información veraz, comprensible, accesible y oportuna a las personas con discapacidad y a sus familias sobre los programas, servicios y proyectos en el área de la discapacidad.
+El personal de salud, como parte de sus funciones, brindará al usuario la información pertinente sobre las condiciones de salud y plan individual de tratamiento.

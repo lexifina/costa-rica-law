@@ -1,0 +1,1 @@
+Artículo 82.- Salario mínimo. Todo trabajador con discapacidad tendrá derecho al salario mínimo, según clase de puesto, de conformidad con la fijación periódica por jornada normal que le procure bienestar y existencia digna. La prestación de servicios que realice el trabajador con discapacidad será siempre igual para trabajo igual en idénticas condiciones de eficiencia.

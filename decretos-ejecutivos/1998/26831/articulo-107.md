@@ -1,0 +1,1 @@
+Artículo 107.- Ubicación de la vivienda. La vivienda para la persona con discapacidad estará ubicada en sitios o terrenos de poca pendiente, de preferencia planos o en planta baja, accesible desde la calle o entrada sin requerir escalones, gradas o rampas de gran extensión. Se recomienda una ubicación cercana a servicios comunales y transporte público.

@@ -1,0 +1,2 @@
+Artículo 97.- Calidad de las ayudas técnicas. El Ministerio de Salud Pública, mantendrá un registro actualizado sobre las especificaciones de las prótesis y ortesis, que sean otorgadas por las instituciones estatales y que se distribuyan en el mercado.
+Para otorgar la certificación de calidad de las ayudas técnicas, el Ministerio procederá de conformidad con lo que establezca la legislación respectiva.

@@ -1,0 +1,1 @@
+Artículo 3.- Presupuesto. Las instituciones públicas incluirán el contenido presupuestario requerido para cumplir con las acciones y proyectos formulados en su Plan Anual Operativo, cuando elaboran su proyecto de presupuesto anual.

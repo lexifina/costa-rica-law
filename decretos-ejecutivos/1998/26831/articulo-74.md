@@ -1,0 +1,1 @@
+Artículo 74.- Necesidades de formación técnica y profesional. El Ministerio de Trabajo y Seguridad Social, a través de la Dirección Nacional de Empleo, sistematizará y transmitirá información a los entes educativos sobre las necesidades de formación técnica y profesional, utilizando los medios más idóneos para tales efectos.

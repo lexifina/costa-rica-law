@@ -1,0 +1,3 @@
+Artículo 114.- Puertas. El ancho mínimo de todas las puertas y aberturas será de 0.90 mts. Todas las puertas permitirán un espacio libre de por lo menos 0.45 mts. de ancho adyacente a la puerta en el lado opuesto a las bisagras, el cual deberá estar provisto en ambos lados de la puerta.
+Las puertas de los cuartos de baño o espacios confinados abrirán hacia afuera. Se consideran como alternativas las puertas corredizas. Placas metálicas, para la protección de posibles daños a las personas, se podrán instalar a ambos lados de la puerta, hasta una altura de 0.30 mts.
+La agarradera será de fácil manipulación, de tipo barra o aldaba y debe instalarse a una altura entre 0.90 mts.

@@ -1,0 +1,1 @@
+Artículo 56.- Adecuaciones en las acciones formativas. Las Unidades Técnicas del Instituto Nacional de Aprendizaje, realizarán las adaptaciones de puestos de trabajo necesarias para las personas con discapacidad, incorporadas en sus acciones formativas.

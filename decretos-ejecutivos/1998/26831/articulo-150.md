@@ -1,0 +1,1 @@
+Artículo 150.- Entradas a edificios. Del total de las entradas utilizadas por el público en cualquier edificio, al menos una de ellas estará a nivel o el cambio de nivel será salvado por ascensor o rampa, con la pendiente indicada en el artículo 124 de este Reglamento.

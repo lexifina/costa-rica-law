@@ -1,0 +1,3 @@
+Artículo 140.- Puerta. El espacio libre de las puertas tendrá un ancho mínimo de 0.90 mts., serán fáciles de abrir; en caso de utilizar resortes, éstos no deberán obstaculizar la apertura de la puerta. Llevarán un elemento protector metálico en la parte inferior de 0.30 mts. como mínimo, principalmente en las de vidrio.
+Las puertas deberán en todo caso abrir en ambos sentidos. En caso de que la distancia con la acera no permita su apertura exterior, deberán tener un retiro del mismo tamaño que las hojas de la puerta. Podrá eximirse este retiro a las puertas corredizas accionables manualmente desde una silla de ruedas.
+Las puertas de acceso deberán llevar indicaciones de luz, para uso de las personas con deficiencia auditiva.

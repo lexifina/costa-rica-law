@@ -1,0 +1,1 @@
+Artículo 22.- Promoción de los servicios sustitutivos del cuido familiar. El ente rector en materia de discapacidad, el Patronato Nacional de la Infancia, el Instituto Mixto de Ayuda Social, las municipalidades y demás instituciones del Estado promoverán y apoyarán la autogestión de los servicios sustitutivos no segregados del cuido familiar.

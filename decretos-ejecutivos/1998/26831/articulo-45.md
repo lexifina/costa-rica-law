@@ -1,0 +1,1 @@
+Artículo 45.- Sesiones y remuneraciones en el Comité de Apoyo Educativo. Los Comités de Apoyo Educativo sesionarán ordinariamente una vez por semana y extraordinariamente cuando así se requiera. Los representantes docentes serán remunerados con un mínimo de dos lecciones de 40 minutos semanales.

@@ -1,0 +1,1 @@
+Artículo 38.- Acto discriminatorio en las actividades educativas. Se considerará un acto discriminatorio cuando a un estudiante, por razón de su discapacidad, el centro educativo lo excluya de las actividades programadas para el resto de los estudiantes o le impida utilizar las ayudas técnicas que requiera.

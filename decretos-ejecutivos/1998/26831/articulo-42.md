@@ -1,0 +1,2 @@
+Artículo 42.- Presupuesto y trámite de los servicios de apoyo. El Ministerio de Educación Pública incluirá dentro de su planificación presupuestaria los recursos necesarios para que todos los centros educativos procuren y provean los servicios de apoyo y adaptaciones requeridos por los estudiantes con necesidades educativas especiales.
+Para tramitar la solicitud y provisión de los servicios de apoyo, el centro educativo respectivo utilizará los mismos mecanismos institucionales que se aplican para todo el sistema educativo.

@@ -1,0 +1,2 @@
+Artículo 75.- Consultas y reclamos. El Ministerio de Trabajo y Seguridad Social, a través de la Dirección General de Asuntos Laborales, brindará y prestará sus servicios de manera accesible, adecuada, efectiva y oportuna, para atender consultas y reclamos a trabajadores con alguna discapacidad.
+La Dirección General de Asuntos Laborales, ofrecerá en sus instalaciones todas las facilidades necesarias para la comodidad, seguridad y privacidad de las personas con discapacidad, que requieran de los servicios de atención de reclamos, conciliaciones y otros.

@@ -1,0 +1,1 @@
+Artículo 131.- Otros elementos urbanos. Elementos urbanos adicionales tales como toldos, marquesinas, quioscos, escaparates, y otros análogos, que interfieran con el paso o espacio peatonal, se dispondrán de forma que no constituyan amenaza o riesgo a la integridad física y la seguridad de las personas.

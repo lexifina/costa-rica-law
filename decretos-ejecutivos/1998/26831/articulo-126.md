@@ -1,0 +1,1 @@
+Artículo 126.- Rampas en las aceras. En las aceras, en todas las esquinas deberá haber una rampa con gradiente máxima de 10% para salvar el desnivel existente entre la acera y la calle. Esta rampa deberá tener un ancho mínimo de 1.20 mts. y construidas en forma antiderrapante.

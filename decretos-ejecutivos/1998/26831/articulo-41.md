@@ -1,0 +1,1 @@
+Artículo 41.- Solicitud de servicios de apoyo. Todo estudiante con necesidades educativas especiales, padre, madre de familia o encargado y el personal docente podrán solicitar ante la Dirección del centro educativo, los servicios de apoyo requeridos.

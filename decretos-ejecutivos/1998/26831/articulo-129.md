@@ -1,0 +1,1 @@
+Artículo 129.- Postes, parquímetros e hidrantes. Los postes, parquímetros e hidrantes, deberán ubicarse de tal forma que sean fácilmente visibles o perceptibles por todas las personas. Para ello, se utilizarán cambios en la textura de la acera que indiquen su proximidad.

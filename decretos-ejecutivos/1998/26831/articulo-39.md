@@ -1,0 +1,1 @@
+Artículo 39.- Preservación de la integridad. Un estudiante con discapacidad podrá ser eximido, por mutuo acuerdo con su profesor, de participar en las actividades programadas para todos los estudiantes, cuando ésta implique riesgo evidente en su integridad personal. En caso de no lograrse un acuerdo entre el estudiante y el docente, la decisión recaerá en el Comité de Apoyo.

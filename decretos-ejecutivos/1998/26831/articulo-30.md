@@ -1,0 +1,1 @@
+Artículo 30.- Organizaciones de personas con discapacidad. El ente rector en materia de discapacidad, incorporará una partida en su presupuesto anual para que el Comité que constituyan las organizaciones de personas con discapacidad, pueda cumplir con las obligaciones que señala el inciso c) del artículo 12 de la Ley 7600.

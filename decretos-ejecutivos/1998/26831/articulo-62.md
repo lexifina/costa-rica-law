@@ -1,0 +1,1 @@
+Artículo 62.- Acto discriminatorio en las universidades. Se considerará un acto discriminatorio, cuando a un estudiante, por razón exclusiva de su discapacidad, se le niegue el ingreso a las universidades públicas y privadas, no se le brinden los servicios de apoyo requeridos o el acceso a todas las actividades universitarias.

@@ -1,0 +1,1 @@
+Artículo 64.- Formación específica. Las universidades crearán programas, planes de estudio y cursos de formación específica en el tema de la discapacidad, que promuevan la equiparación de oportunidades y la no discriminación de las personas con discapacidad.

@@ -1,0 +1,1 @@
+Artículo 65.- El tema de la discapacidad en la formación universitaria. Las Vicerrectorías de Docencia o sus equivalentes, velarán para que la incorporación del tema de la discapacidad en los programas y planes de estudio universitarios, se sustenten en la búsqueda permanente del mejoramiento de las condiciones de vida de la persona con discapacidad.

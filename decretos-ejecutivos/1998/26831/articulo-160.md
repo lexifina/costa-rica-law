@@ -1,0 +1,5 @@
+Artículo 160.- Vehículos que transporten a personas con discapacidad. Los vehículos de las instituciones públicas y privadas que brinden servicio de rehabilitación o que transporten personas con discapacidad, deberán inscribirse y ser autorizadas por la Dirección General de Transporte Público del Ministerio de Obras Públicas y Transportes, debiendo cumplir al efecto con los siguientes requisitos:
+a) Presentar solicitud formal de inscripción del vehículo con que se pretende brindar este servicio de transporte firmada por el Director o encargado, describiendo las características técnicas del vehículo: año, modelo, número de motor, tipo de unidad, y adaptaciones existentes
+b) Presentar un cuadro descriptivo general de las necesidades de servicio que justifican este tipo de transporte y el uso de estacionamiento reservado.
+c) Cumplir con las exigencias legales y reglamentarias establecidas para la circulación de vehículos.
+d) Las unidades acreditadas deberán portar el logotipo de identificación oficial determinado al efecto.

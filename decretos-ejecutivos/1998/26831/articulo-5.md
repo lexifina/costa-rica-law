@@ -1,0 +1,1 @@
+Artículo 5.- Fiscalización a cargo del ente rector. El ente rector en materia de discapacidad fiscalizará que todas las instituciones del Estado, según su campo de competencia, ofrezcan las oportunidades y condiciones necesarias para el cumplimiento de todos los derechos y deberes de las personas con discapacidad.

@@ -1,0 +1,1 @@
+Artículo 59.- Provisión de ayudas técnicas. Las universidades deberán definir los mecanismos necesarios para procurar y proveer las ayudas técnicas, requeridas por las personas con discapacidad de la comunidad universitaria.

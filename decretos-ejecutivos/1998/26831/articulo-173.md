@@ -1,0 +1,1 @@
+Artículo 173.- Áreas específicas de estacionamiento. La Dirección General de Transporte Público en coordinación con la Dirección de Ingeniería de Tránsito, establecerán áreas específicas para el estacionamiento de las unidades de transporte público adaptado modalidad taxi, según determinen los estudios de oferta y de demanda de servicio que se realicen periódicamente.

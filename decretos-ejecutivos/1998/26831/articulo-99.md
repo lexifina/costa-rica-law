@@ -1,0 +1,1 @@
+Artículo 99.- Facilidades de hospedaje. Las unidades prestadoras de servicios de rehabilitación ofrecerán facilidades de alojamiento para familiares o encargados de personas, procedentes de zonas alejadas cuando así lo requieran.

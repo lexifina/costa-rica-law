@@ -1,0 +1,2 @@
+Artículo 128.- Semáforos peatonales. El Ministerio de Obras Públicas y Transportes, instalará semáforos peatonales con señales auditivas en aquellas vías o cruceros de gran flujo, tanto vehicular, como peatonal y cuya peligrosidad objetiva lo amerite. Dichas señales deberán emitir un sonido perceptible que sirva de guía a las personas ciegas o deficientes visuales, cuando se abra el paso a los peatones.
+Todos los dispositivos para control y uso de semáforos peatonales, estarán a una altura máxima de 1.20 mts.

@@ -1,0 +1,1 @@
+Artículo 72.- Inspección en el empleo. Para impedir la discriminación en la contratación y en el progreso en el empleo de las personas con discapacidad, el Ministerio de Trabajo y Seguridad Social, ejercerá control por medio de su Dirección Nacional e Inspección General del Trabajo y su Oficina Central, provinciales, cantonales y regionales.

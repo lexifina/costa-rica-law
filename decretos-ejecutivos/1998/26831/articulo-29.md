@@ -1,0 +1,1 @@
+Artículo 29.- Permiso para asistir a sesiones. Las instituciones del estado, están obligadas a otorgar permiso para asistir a sesiones de la Junta Directiva del ente rector en materia de discapacidad, a sus funcionarios representantes de organizaciones de personas con discapacidad, designados para ese cargo.

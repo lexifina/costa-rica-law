@@ -1,0 +1,1 @@
+Artículo 181.- Programación de actividades. Todas las actividades culturales, deportivas y recreativas en las que participen personas con discapacidad, se programarán temporal y espacialmente en forma simultánea con los demás eventos que promueva, organice, autorice y supervise el Ministerio de Cultura, Juventud y Deportes.

@@ -1,0 +1,1 @@
+Artículo 69.- Readaptación, colocación y reubicación en el empleo. El Ministerio de Trabajo y Seguridad Social, por medio de las instancias correspondientes, organizará y prestará, a nivel nacional, servicios de readaptación, colocación y reubicación en el empleo. Tales como apoyo legal y asesoría en estas áreas.

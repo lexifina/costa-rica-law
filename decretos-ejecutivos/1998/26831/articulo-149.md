@@ -1,0 +1,1 @@
+Artículo 149.- Estantes y anaqueles. Las estanterías o anaqueles irán separados del suelo 0.30 mts. para permitir que el apoya pie de la silla de ruedas pase por debajo al acercarse y la altura máxima de 1.30 mts.

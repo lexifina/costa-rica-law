@@ -1,0 +1,1 @@
+Artículo 161.- Codificación y permiso de circulación. Para la autorización respectiva, la Dirección General de Transporte Público del Ministerio de Obras Públicas y Transportes, asignará la respectiva codificación del vehículo y extenderá un permiso de circulación indicando sus características, la institución acreditada y la codificación oficial asignada.

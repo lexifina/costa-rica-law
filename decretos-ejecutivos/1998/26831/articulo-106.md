@@ -1,0 +1,1 @@
+Artículo 106.- Características del símbolo internacional de acceso. El símbolo internacional de acceso tiene las siguientes medidas: 15 x 15 cms. para uso de interiores y 20 x 20 cms. para uso en exteriores. El fondo en color azul claro y la figura en blanco.

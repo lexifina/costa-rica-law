@@ -1,0 +1,1 @@
+Artículo 108.- Diseño de la vivienda. El diseño del espacio interior y exterior de la vivienda debe considerar las necesidades de la persona con discapacidad que la habitará y ofrecer las facilidades específicas para la accesibilidad.

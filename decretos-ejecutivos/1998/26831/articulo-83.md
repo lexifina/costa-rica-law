@@ -1,0 +1,1 @@
+Artículo 83.- Incorporación al empleo en el Sector Público. La Dirección General de Servicio Civil establecerá un sistema de bases de selección específicas, a efecto de promover la incorporación al empleo en el Sector Público de las personas con discapacidad.

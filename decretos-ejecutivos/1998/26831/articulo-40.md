@@ -1,0 +1,1 @@
+Artículo 40.- Participación. En todas las actividades cívicas, culturales y religiosas establecidas por el Sistema Educativo Costarricense, participarán en igualdad de oportunidades los estudiantes de los servicios de educación especial.

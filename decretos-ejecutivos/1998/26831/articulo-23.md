@@ -1,0 +1,1 @@
+Artículo 23.- Abandono de hecho. Se considerará abandono de hecho, la situación de la persona con discapacidad en donde no existen parientes inmediatos, que se encontraren en disposición o condiciones de responsabilizarse por ella y sin que medie declaratoria judicial o administrativa que así lo determine.

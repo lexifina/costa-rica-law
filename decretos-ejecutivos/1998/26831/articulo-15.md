@@ -1,0 +1,2 @@
+Artículo 15.- Apoyo de las municipalidades. A efecto que las municipalidades cumplan con sus obligaciones de apoyo a las instituciones públicas y privadas en el desarrollo, ejecución y evaluación de programas, proyectos y servicios que promuevan la igualdad de oportunidades y el desarrollo de las personas con discapacidad, crearán y mantendrán bases de datos de todos los recursos humanos e institucionales de sus respectivas comunidades.
+Esa información estará accesible a todas las personas con discapacidad.

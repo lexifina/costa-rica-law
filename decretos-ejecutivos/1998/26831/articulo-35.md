@@ -1,0 +1,1 @@
+Artículo 35.- Programas de estudio en la educación especial. Para la programación educativa en los servicios de educación especial hasta el III Ciclo, regirán los mismos objetivos establecidos para la educación preescolar, I, II y III ciclos de la Educación General Básica en todas las asignaturas y con las adecuaciones de acceso acceso al currículo y curriculares necesarias.

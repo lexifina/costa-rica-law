@@ -1,0 +1,1 @@
+Artículo 12.- Eliminación de mensajes. Cualquier persona o entidad podrá solicitar a los medios de comunicación eliminar la difusión de mensajes estereotipados o menospreciativos, en relación con la discapacidad sin perjuicio de recurrir a las instancias del sistema jurídico estatal.

@@ -1,0 +1,1 @@
+Artículo 164.- Información sobre los servicios de transporte público. En las estaciones terminales de servicios interprovinciales se instalará un sistema de megafonía e información visual, mediante el cual se pueda informar a los pasajeros de las llegadas y salidas de los diferentes servicios, así como de cualquier otra incidencia o noticia.

@@ -1,0 +1,1 @@
+Artículo 153.- Hospedaje accesible. El ente rector en materia de turismo velará porque, en los hoteles e instalaciones afines, todas las habitaciones sean accesibles. Asimismo, estos deberán cumplir con las demás normas de este Reglamento.

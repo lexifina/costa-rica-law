@@ -1,0 +1,1 @@
+Artículo 26.- Servicios no segregados. El Patronato Nacional de la Infancia garantizará, promoverá y fiscalizará el desarrollo de estrategias tendientes a la ubicación de los niños, niñas y adolescentes con discapacidad en condición de riesgo social o estado de abandono, en ambientes no segregados que faciliten su autonomía personal.

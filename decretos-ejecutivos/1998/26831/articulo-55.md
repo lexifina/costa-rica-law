@@ -1,0 +1,1 @@
+Artículo 55.- Provisión de servicios de apoyo en el INA. La Subgerencia Técnica del Instituto Nacional de Aprendizaje, a través de sus unidades técnicas, procurará y proveerá los servicios de apoyo y las ayudas técnicas requeridas por las personas con discapacidad matriculadas en las acciones formativas.

@@ -1,0 +1,1 @@
+Artículo 148.- Mesas, mostradores y ventanillas. Las mesas o mostradores para firmar o escribir tendrán una altura de 0.80 mts. Sea igual para biblioteca, comedor, etc. Las ventanillas de atención al público tendrán una altura de 0.90 mts. sobre el nivel de piso terminado.

@@ -1,0 +1,1 @@
+Artículo 4.- Inversión. Las instituciones públicas incluirán en sus programas de inversión, proyectos cuyo financiamiento requiera recursos extraordinarios no contemplados en sus presupuestos regulares o de funcionamiento.

@@ -1,0 +1,1 @@
+Artículo 48.- Adecuaciones curriculares significativas. En caso de que el alumno con necesidades educativas especiales requiera de adecuaciones curriculares significativas, éstas serán propuestas, oportunamente, por el Comité de apoyo Educativo, con el visto bueno del Asesor Regional o Nacional de Educación Especial.
