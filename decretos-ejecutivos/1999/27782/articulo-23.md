@@ -1,1 +1,1 @@
-Artículo 23.—Adopción de acuerdos: Los acuerdos serán adoptados por mayoría simple de los presentes y podrá acordarse su firmeza inmediata con el voto de al menos tres cuartas partes de los presentes.
+Artículo 23.—(DEROGADO por el artículo 1° del Decreto Ejecutivo N° 31499 del 06 de noviembre de 2003, publicado en La Gaceta N° 235 del 05 de diciembre de 2003.)

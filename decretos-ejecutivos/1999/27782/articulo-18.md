@@ -1,4 +1,4 @@
 TITULO III
 De la administración de los recursos
 CAPITULO ÚNICO
-Artículo 18.—Comité Técnico: A fin de contar con un órgano técnico que realice el seguimiento oportuno de las inversiones, existirá un Comité de Inversiones.
+Artículo 18.— (DEROGADO por el artículo 1° del Decreto Ejecutivo N° 31499 del 06 de noviembre de 2003, publicado en La Gaceta N° 235 del 05 de diciembre de 2003.)

@@ -14,3 +14,4 @@ Reglamento a Ley Creación Fondo Nacional de Estabilización Cafetalera.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-30 | la propia norma |
+| 2 | 2003-11-06 | Decreto Ejecutivo 31499 (2003-11-06) |
