@@ -1,0 +1,1 @@
+Artículo 21.—El formulario “Vale de Caja Chica” deberá contar con la firma de la jefatura autorizada y el V°B° del Director Financiero de que cuenta con el debido contenido presupuestario. La jefatura que solicita el adelanto de dinero es responsable de verificar que el material que se pretende adquirir no existe en el almacén del Consejo.

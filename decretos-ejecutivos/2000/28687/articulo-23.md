@@ -1,0 +1,1 @@
+Artículo 23.—Para las oficinas con ubicación en las provincias de San José, Alajuela, Heredia y Cartago centro, la liquidación de los anticipos para compras deberá realizarse al tercer día hábil siguiente al día del retiro del dinero, por medio del formulario “Liquidación Caja Chica”.

@@ -1,0 +1,1 @@
+Artículo 3°—La ejecución del gasto será limitada a casos de verdadera urgencia y necesidad, de acuerdo a lo que se dirá más adelante. Los bienes que se adquieran por este medio no deben existir en el inventario de suministros del Almacén del Consejo.

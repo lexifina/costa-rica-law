@@ -1,0 +1,1 @@
+Artículo 9°—El monto asignado a la Caja Chica deberá ser actualizado en forma anual por el Director Ejecutivo con base en el índice de Precios al Consumidor, publicado por el Instituto Nacional de Estadística y Censos.

@@ -1,0 +1,1 @@
+Artículo 24.—Para las oficinas regionales del Consejo de Seguridad Vial y de las Direcciones del Ministerio de Obras Públicas y Transporte, a las cuales se asignan recursos, el plazo para liquidar los vales de Caja Chica será de cinco días hábiles.

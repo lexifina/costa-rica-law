@@ -1,0 +1,1 @@
+Artículo 34.—El fondo de dinero designado a la Caja Chica operará por medio de monto fijo, lo que implicará que el monto total asignado deberá ser igual a la sumatoria del efectivo en caja o bancos y los documentos que respalden las operaciones realizadas.

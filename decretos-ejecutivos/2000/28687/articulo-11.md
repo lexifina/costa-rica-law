@@ -1,0 +1,1 @@
+Artículo 11.—Se podrá realizar ampliaciones temporales al fondo de Caja Chica, a efecto de atender situaciones de emergencias calificadas, para lo cual el Encargado de la Dirección Financiera deberá solicitar la aprobación a la Dirección Ejecutiva y este presentarlo para la aprobación de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 38.—De presumirse la mediación de eventos que constituyan delitos penales en perjuicio del fondo de Caja Chica, la Dirección Financiera en coordinación con la Asesoría Legal, deberán realizar las acciones correspondientes de conformidad con el marco jurídico vigente.

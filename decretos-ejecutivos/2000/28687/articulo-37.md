@@ -1,0 +1,1 @@
+Artículo 37.—El Fondo de Caja Chica estará sujeto a arqueos, sin previo aviso por parte la Dirección Financiera, estando el responsable en la obligación de ofrecer todas las facilidades para que el trabajo se realice plenamente en su presencia. Asimismo la Auditoría Interna hará los arqueos que estime necesarios.
