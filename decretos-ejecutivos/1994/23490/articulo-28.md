@@ -1,9 +1,10 @@
-ARTICULO- 28. La Dirección Provincial de Heredia solo contará con una Dirección Regional de Educación, conformada por la siguiente área geográfica:
+ARTICULO- 28. La Dirección Provincial de Heredia estará compuesta por las siguientes Direcciones Regionales:
+a) Dirección Regional de Educación de Heredia, con sede en Heredia, conformada por la siguiente área geográfica:
+Provincia | Cantón | Distrito Administrativo
 HEREDIA | Heredia | Heredia
 | | Mercedes
-| | San Francisco
-| | Ulloa
-| | Carablanca
+| | San Francisco Ulloa
+| | Vara blanca
 | Barva | Barva
 | | San Pedro
 | | San Pablo
@@ -38,6 +39,10 @@ HEREDIA | Heredia | Heredia
 | | Barrantes
 | | Llorente
 | San Pablo | San Pablo
-| Sarapiquí | Puerto Viejo
+b) Dirección Regional de Educación de Sarapiquí, con sede en Sarapiquí, conformada por la siguiente área geográfica:
+HEREDIA | Sarapiquí | Puerto Viejo
 | | La Virgen
 | | Horquetas
+| | Llanuras del Gaspar
+| | Cureña
+(Así reformado parcialmente mediante el artículo 1° del Decreto Ejecutivo No. 32188 del 25 de noviembre del 2004.)
