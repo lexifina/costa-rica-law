@@ -14,3 +14,4 @@ Reforma Directrices de Política Presupuestaria del 2004 y 2005 (Modifica al SIN
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-07-08 | la propia norma |
+| 2 | 2004-09-23 | Decreto Ejecutivo 32084 (2004-09-23) |
