@@ -1,0 +1,1 @@
+Artículo 5º—Todas las solicitudes de patente temporal de licores deberán ser conocidas y aprobadas por el Concejo Municipal de Distrito. Una vez aprobada, la Secretaría deberá enviar copia del acuerdo a las autoridades de la policía correspondiente.

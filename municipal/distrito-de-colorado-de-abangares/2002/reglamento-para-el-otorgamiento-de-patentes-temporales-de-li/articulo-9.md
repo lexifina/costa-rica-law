@@ -1,0 +1,1 @@
+Artículo 9º—Únicamente el Inspector Municipal debidamente identificado y autorizado por el Intendente Municipal así como el mismo Intendente Municipal tendrán derecho al libre acceso a las instalaciones donde se realizará la actividad a fin de fiscalizar.

@@ -1,0 +1,1 @@
+Artículo 2º—El Concejo Municipal de Distrito de Colorado autorizará la explotación de patentes temporales de licores, durante las celebraciones de fiestas cívicas, patronales, turnos, ferias y otras actividades afines de acuerdo a los artículos 17 y 18 del Reglamento a la Ley de Licores.

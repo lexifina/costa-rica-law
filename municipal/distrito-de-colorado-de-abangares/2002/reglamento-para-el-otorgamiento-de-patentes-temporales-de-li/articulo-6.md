@@ -1,0 +1,1 @@
+Artículo 6º—Los responsables de la actividad deberán mantener libre de basura el local y la vía pública, caso contrario si la limpieza no se hiciera en forma inmediata al concluir el evento la administración Municipal procederá a la limpieza y cobrará el costo más el 50% de multa.

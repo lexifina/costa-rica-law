@@ -1,0 +1,1 @@
+Artículo 3º—Las solicitudes para las actividades mencionadas en los artículos anteriores deberán ser presentadas a la Secretaria del Concejo Municipal con al menos quince días naturales de anticipación.

@@ -1,0 +1,1 @@
+Artículo 8º—No se autoriza bajo ninguna circunstancia la explotación de patente temporal de licores en iglesias, centros educativos, instalaciones deportivas o en instalaciones de este Concejo Municipal.
