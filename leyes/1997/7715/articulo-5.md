@@ -25,3 +25,17 @@ las disposiciones del párrafo (1) de este Artículo se cumplan en todo lo
 necesario para garantizar la puntual, adecuada y efectiva compensación en
 lo referente a las inversiones de capital de los nacionales o sociedades
 de la otra Parte contratante que son propietarios de dichas acciones.
+(INTERPRETACIÓN AUTÉNTICA: El artículo 2do. de la presente ley de
+aprobación indica que, para la aplicación del presente numeral, se
+interpretan las frases "razones de uso público relacionado con (sus)
+necesidades internas" en el sentido que se refiere al supuesto de
+expropiación "por interés público legalmente comprobado, previa
+indemnización conforme a la ley", regulado en el artículo 45 de la
+Constitución Política. Igualmente, la expresión "compensación puntual,
+adecuada y efectiva" no implicará indemnización previa en el supuesto de
+guerra o conmoción interna; sin embargo, el pago correspondiente se
+efectuará a más tardar dos años después de concluido el estado de
+emergencia. Y la palabra "expropiación", mencionada en el numeral de
+marras, no se refiere a las limitaciones de interés social que la
+Asamblea Legislativa imponga a la propiedad por motivos de necesidad
+pública, de acuerdo con el artículo 45 de la Constitución Política).
