@@ -1,0 +1,2 @@
+Artículo 16.—Resultados de exámenes. Los exámenes solicitados serán procesados en la clínica de adscripción del asegurado y el resultado se le entregará al paciente, la copia de sus resultados se enviará al expediente personal que constará en dicha unidad.
+Si los interesados no hacen retiro oportuno de los medicamentos, de los resultados de los exámenes radiológicos y de laboratorio clínico, el servicio respectivo debe remitirlos al director del centro para que se tomen las medidas correctivas, a fin de evitar a la Caja la realización de esfuerzos innecesarios.

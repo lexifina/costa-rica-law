@@ -1,0 +1,2 @@
+Artículo 19.—Servicio de farmacia. La prescripción y el despacho de los medicamentos se regirán según lo estipulado en el Capítulo II, Normas para la Prescripción y Despacho de Medicamentos de la Lista Oficial de Medicamentos. Caja Costarricense de Seguro Social. Departamento de Farmacoterapia. Comité de Farmacoterapia.
+Para los efectos de prescripción de medicamentos autorizados para especialidades, se respetará la especialidad inscrita para el profesional ante el Colegio de Médicos y Cirujanos de Costa Rica.

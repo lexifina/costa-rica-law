@@ -1,0 +1,3 @@
+Artículo 3º—Ingreso al Sistema Mixto de Atención Integral. Para ingresar al Sistema Mixto de Atención Integral, él, o los profesionales, interesados deberán presentar una solicitud ante el Director de la Clínica, Hospital o Área de Salud de su adscripción, en donde se recibirá la documentación correspondiente.
+La unidad de adscripción procederá posteriormente a efectuar la revisión de la infraestructura en la cual se brindarán los servicios de salud.
+La copia de la documentación completa y aprobada se remitirá a la Oficina de los Sistemas Alternativos de Prestación de Servicios (OSAPS) de la Dirección Técnica de Servicios de Salud.

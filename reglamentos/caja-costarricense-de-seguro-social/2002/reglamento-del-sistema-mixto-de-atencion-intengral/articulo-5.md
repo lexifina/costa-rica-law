@@ -1,0 +1,2 @@
+Artículo 5º—Igualdad en las prestaciones de los servicios. Los servicios de apoyo que brindará la Caja dentro del Sistema Mixto de Atención Integral, deben ser similares a los autorizados para las diferentes unidades de Primer Nivel de Atención de la Consulta Externa. No se deberán exceder los costos institucionales.
+En el caso de los médicos especialistas se respetará la especialidad inscrita para el profesional ante el Colegio de Médicos y Cirujanos de Costa Rica.
