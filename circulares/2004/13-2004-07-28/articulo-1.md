@@ -1,0 +1,10 @@
+REGISTRO NACIONAL
+Para: Jefes de Registradores Coordinación General.
+De: Dirección.
+Asunto: Atención de usuarios complemento circular DGRN-0024.
+Fecha: 28 de julio del 2004.
+CIRCULAR CIRBM-013-2004
+Conforme se establece en la Circular de la Dirección General DGRN-0024 que se adjunta se dispone de un nuevo procedimiento de atención de usuarios que regirá a partir del próximo 3 de agosto del año en curso. Dado que por la naturaleza jurídica de los documentos inscribibles en este Registro la ley permite la registración de documentos privados y en consideración que es común que los propios interesados acudan al Registro a gestionar distintos trámites, sean estos corrección de errores, consultas sobre defectos, etc; en aras de regular debidamente la atención de los usuarios, se adiciona la circular supra citada de la siguiente manera:
+1- La instancia verbal que dicha circular contempla, se extiende también a aquellas personas que demuestren conforme sus documentos de identificación que deberán presentar ante el Coordinador, su legitimación o interés legítimo como parte del documento que ha sido objeto de calificación. (Propietario del bien, acreedor, deudor, fiador, apoderado, fiduciario, etc.), siempre y cuando la consulta se encuentre estrictamente referida a la calificación o señalamiento de defectos consignados por los Registradores.
+2- En lo que se refiere a los trámites que realizan empleados de Agencias Comercializadoras de Vehículos o Instituciones Públicas, serán debidamente atendidos siempre y cuando la empresa o institución para la cual laboran los haya acreditado previamente ante la Coordinación General del Área Registral como personas legitimadas para estos trámites y sean parte en el documento objeto de consulta o bien que éste se encuentre identificado con un logotipo o distintivo de las referidas Empresas o Instituciones.
+3- Conforme lo anterior, se les recuerda la obligatoriedad de observar estas disposiciones para no ser sujetos de sanciones disciplinarias conforme lo dispone el Reglamento.
