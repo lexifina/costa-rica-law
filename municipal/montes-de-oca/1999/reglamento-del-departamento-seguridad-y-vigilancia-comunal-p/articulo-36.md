@@ -1,0 +1,1 @@
+Artículo 36.—Todos los miembros de la Policía Municipal Voluntaria deberán portar en lugar visible un carné de identificación según lo establecido por el artículo 4 del presente reglamento con la salvedad que dirá "Oficial voluntario" y se regirá por las mismas normas que establece el mismo artículo.

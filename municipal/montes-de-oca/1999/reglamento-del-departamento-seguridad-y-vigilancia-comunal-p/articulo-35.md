@@ -1,0 +1,1 @@
+Artículo 35.—Cualquier acto que en cumplimiento de sus funciones realice la Policía Municipal voluntaria la pondrá en conocimiento de sus superiores.

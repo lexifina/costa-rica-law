@@ -1,0 +1,1 @@
+Artículo 29.—Los miembros de la Policía Municipal tendrán derechos a la jubilación de acuerdo a lo establecido en la legislación vigente y así mismo gozarán de los derechos sociales que les pudieran corresponder.

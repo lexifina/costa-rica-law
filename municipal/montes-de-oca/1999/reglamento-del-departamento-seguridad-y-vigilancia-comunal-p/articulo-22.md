@@ -1,0 +1,1 @@
+Artículo 22.—Los Policías Municipales están obligados a cumplir íntegramente su jornada de trabajo y no abandonará el servicio hasta que sea debidamente relevado siguiendo los horarios o roles de trabajo establecidos por sus superiores

@@ -1,0 +1,1 @@
+Artículo 27.—Las distinciones otorgadas a los Policías Municipales serán tenidas en cuenta para la valoración de los concursos para el ascenso a otro cargo, así como para la adjudicación de destinos y para el acceso a los cursos de actualización de conocimientos y especialización.

@@ -1,0 +1,3 @@
+Artículo 28.—Las vacaciones, permisos, licencias y excedencias se regularán por la legislación vigente en cada momento y los acuerdos que se realicen entre la corporación y sus funcionarios.
+Estos días deberán solicitarse con un plazo mínimo de cuatro días de antelación y se concederán siempre que no exista escasez de recursos humanos o se encuentre en una situación delicada o de emergencia o especial, por riguroso orden de petición.
+Con respecto al horario estos se regirán por lo establecido por el Reglamento Autónomo de Servicios, la Convección Colectiva y el Código de Trabajo, sobre las jornadas diurna, mixta y nocturna.

@@ -1,0 +1,1 @@
+Artículo 30.—Los Policías Municipales tendrán derecho a su defensa, en asuntos judiciales que provengan del cumplimiento de sus deberes, aun si hubiera dejado de laborar para la Municipalidad, la cual le será proveída por la Municipalidad de Montes de Oca, ya sea en sus servicios profesionales tanto internos o externos.

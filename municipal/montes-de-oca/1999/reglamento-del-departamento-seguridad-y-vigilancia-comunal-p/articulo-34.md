@@ -1,0 +1,1 @@
+Artículo 34.—Los policías voluntarios tendrán las funciones detalladas en el artículo 2 del presente reglamento, las cuales deben ejecutar en conjunto con los oficiales permanentes de la Policía Municipal.

@@ -1,0 +1,1 @@
+Artículo 12.—Los ascensos de los miembros de la Policía Municipal se realizarán de acuerdo a lo establecido en el Código Municipal, en este Reglamento y en el Reglamento Autónomo de Servicios de la Municipalidad de Montes de Oca.

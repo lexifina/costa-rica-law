@@ -1,0 +1,1 @@
+Artículo 31.—Los Policías Municipales tendrán derecho a suscribir una póliza de riesgos policial que cubra los riesgos de invalidez permanente y muerte, la cual será cubierta por la Administración. Estos derechos serán transmitidos a los causahabientes en litigio sucesorio.

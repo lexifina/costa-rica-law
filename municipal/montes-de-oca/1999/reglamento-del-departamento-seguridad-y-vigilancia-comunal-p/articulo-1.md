@@ -1,0 +1,12 @@
+REGLAMENTO DEL DEPARTAMENTO DE SEGURIDAD Y VIGILANCIA COMUNAL (POLICIA MUNICIPAL) DE LA MUNICIPALIDAD DE MONTES DE OCA
+CAPITULO I
+Disposiciones Generales
+El Concejo Municipal de la Municipalidad del Cantón de Montes de Oca de San José, con sustento legal en los artículos 169 y 170 de La Constitución Política de la República de Costa Rica y fundamentos en las disposiciones contenidas en los artículos 1º a 4º, inciso c), artículo 74 del Código Municipal, voto Nº 2306-91 de las 14,45 horas del 6/11/91, voto Nº 0061-95 de las 16,03 horas del 04/01/95, voto Nº 5911-93 de las 13,57 del 12/11/93, voto Nº 6034-93 de las 16,45 del 17/11/93, 6597-93 de las 14,33 del 15/12/93, voto Nº 6613-93 de las 15,21 horas del 15/12/93, voto Nº 6747-93 de las 15,12 del 22/12/93, voto Nº 0040-94 de las 15,54 del 05/01/94, voto Nº 0383-94, de las 16,36 del 16/01/94, voto 1115-94 de las 09,21 horas del 25/02/94, voto 1335-94 de las 15,57 de 09/03/94, voto Nº 3667-94 de las 16,33 del 21/07/94, voto Nº 0244-95 de las 09,18 del 13/01/95, 0508-95 de las 11,27 del 27/01/95, voto 1397-95 de las 12,21 del 10/03/95 de la Sala Constitucional, en el oficio Nº C-131-97 del 18/07/97 de la Procuraduría General de la República, suscrito por la Lic. Ana Lorena Brenes Esquivel Procuradora Administrativa, la cual indica "La Municipalidad podrá actuar en la función de policía indicada siempre y cuando esta sirva como instrumento para ser efectivos los actos administrativos que en razón de la competencia municipal se dicten.
+En el mismo oficio referencias al punto VI conclusiones incisos del 1 al 4 en las páginas 28 y 29, en las citas de la Sala Constitucional, Ley 7633 publicada en "La Gaceta" Nº 201 del 21/10/96 en su Art. 4º.
+Y en uso de sus atribuciones emite el presente:
+"Reglamento del Departamento de Seguridad y Vigilancia Comunal de la Municipalidad del Cantón de Montes de Oca de la provincia de San José", el que se regirá por las siguientes disposiciones.
+CAPITULO II
+Fines y Funciones
+Artículo 1º—El Departamento de Seguridad y Vigilancia Comunal conocido como Policía Municipal (PM) como la misma Sala Constitucional ha precisado tiene como fin dar un debido cumplimiento al numeral 74 del Código Municipal, el cual se puede dividir en dos partes:
+a) Velar por la seguridad de las personas y el orden público.
+b) Determinar el modo de realizar ese fin público, es decir mediante una acción coordinada con las autoridades y entidades nacionales.

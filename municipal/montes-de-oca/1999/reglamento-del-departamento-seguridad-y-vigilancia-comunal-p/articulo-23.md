@@ -1,0 +1,1 @@
+Artículo 23.—Todos los funcionarios de la Policía Municipal estarán en obligación de presentar un informe diario de las labores realizadas para poner en conocimiento de sus superiores cualquier incidencia del servicio que se presente.

@@ -1,0 +1,1 @@
+Artículo 20.—Los miembros del Departamento de Policía Municipal estarán obligados a prestarse mutuo apoyo así como a los miembros de otros cuerpos policiales, en toda ocasión que sean requeridos por un compañero o vean necesaria su intervención en apoyo de éste.
