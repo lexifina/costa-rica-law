@@ -20,3 +20,4 @@ Reglamento Autónomo de Trabajo del Instituto Costarricense de Turismo
 | 5 | 2004-04-20 | Reglamento 5300 (2004-04-20) |
 | 6 | 2004-06-29 | Reglamento 5313 (2004-06-29) |
 | 7 | 2004-12-07 | Reglamento 5337 (2004-12-07) |
+| 8 | 2004-12-07 | Reglamento 5337 (2004-12-07) |
