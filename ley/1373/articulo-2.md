@@ -1,0 +1,1 @@
+Artículo 2°.- Autorízase a la misma Municipalidad para que de los Fondos Generales incluya una partida anual de seiscientos colones (¢600.00), en sus presupuestos ordinarios a partir de 1952, con carácter de subvención, girando esta suma en mensualidades a la orden de la Junta de Protección Social del Cantón de Valverde Vega.
