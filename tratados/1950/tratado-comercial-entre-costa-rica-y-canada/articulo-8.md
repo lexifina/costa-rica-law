@@ -1,0 +1,4 @@
+ARTICULO VIII
+El presente Modus Vivendi Comercial permanecerá en vigor por un año y desde entonces sujeto a ser denunciado por uno u otro Gobierno en cualquier tiempo u ocasión dando aviso al otro Gobierno con tres meses de anticipación.
+Este instrumento constituye una respuesta favorable a la nota de fecha 17 de noviembre de 1950 del señor Harry Leslie Brown, Jefe de la Delegación Comercial Canadiense, y el Modus Vivendi Comercial entrará en vigor tan pronto como sea aprobado por la Asamblea Legislativa y publicado en "La Gaceta" Oficial.
+En fe de lo cual firmamos en la ciudad de San José, a las doce horas del día dieciocho de noviembre de mil novecientos cincuenta.-Mario Echandi Jiménez, Ministro de Relaciones Exteriores .- Alfredo Hernández Volio, Ministro de Economía y Hacienda.- Harry Leslie Brown

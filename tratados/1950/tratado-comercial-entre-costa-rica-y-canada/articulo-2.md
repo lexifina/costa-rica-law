@@ -1,0 +1,2 @@
+ARTICULO II
+El presente Convenio sólo se aplicará a las mercancías transportadas de un puerto de Costa Rica a un puerto del Canadá, directamente o en tránsito a través de un país que goce de los beneficios de la Tarifa Británica Preferencial o de la Tarifa de nación más favorecida del Canadá y también a las mercancías transportadas desde un puerto del Canadá a un puerto de Costa Rica, directamente o en tránsito a través de los países anteriormente indicados.
