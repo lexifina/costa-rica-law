@@ -1,4 +1,7 @@
 (Derogado)
+Nº 23783-MIRENEM
+LOS MINISTROS DE RECURSOS NATURALES, ENERGIA Y MINAS
+Y DE SALUD
 En uso de las facultades que confieren el artículo 140 de la
 Constitución Política y las Leyes números 7416 de junio de 1994,
 que aprueba el Convenio sobre la Diversidad Biológica y sus anexos

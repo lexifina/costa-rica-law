@@ -52,3 +52,9 @@ negativas de los administrados con relación al ambiente
 a efectos de que se proceda conforme a derecho.
 m) Aquellas otras que sean señaladas por el Ministro de
 Recursos Naturales Energía y Minas.
+(NOTA: este artículo ha sido tácitamente reformado por el
+Transitorio III de la Ley Orgánica del Ambiente No.7554 del 4 de octubre
+de 1995, el cual, al crear la Secretaría Técnica Nacional Ambiental,
+ordena sustituir a la presente Comisión. Véase además el artículo 84 de
+la indicada Ley Orgánica del Ambiente, que señala las funciones de la
+Secretaría)

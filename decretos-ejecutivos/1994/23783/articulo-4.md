@@ -1,4 +1,4 @@
-Artículo 4.-La Junta Directiva estará integrada de la
+Artículo 4.- La Junta Directiva estará integrada de la
 siguiente manera:
 a) Un representante del Ministerio de Recursos Naturales,
 Energía y Minas, quien la presidirá.
@@ -22,3 +22,9 @@ pero sin voto representantes del sector público en general y de las
 Universidades Estatales, con el objeto de verificar su criterio
 técnico, todo al tenor del artículo 54 de la Ley General de la
 Administración Pública.
+(NOTA: este artículo ha sido tácitamente reformado por el
+Transitorio III de la Ley Orgánica del Ambiente No.7554 del 4 de octubre
+de 1995, el cual, al crear la Secretaría Técnica Nacional Ambiental,
+ordena sustituir a la presente Comisión. Véase además el artículo 85 de
+la indicada Ley Orgánica del Ambiente, que señala las integración de la
+Secretaría)
