@@ -1,0 +1,1 @@
+Art. 16.-Las disposiciones de los artículos 99 y 11 á 15, no son aplicables á los casos 5o, 6o, 7 y 8: del artículo 1 de esta ley. En éstos, comprobados sumariamente los hechos y recibidas las pruebas ofrecidas, en un breve término, se impondrán las penas que correspondan según el caso.

@@ -1,0 +1,2 @@
+Art. 12.-Si el indiciado quisiere variar de domicilio, lo avisará á la policía. Cambiado el domicilio, la policía del lugar adonde se traslade el indiciado, recibirá y comunicará á la del registro del vago las declaraciones de trabajo que haga y el resultado de las investigaciones que debe hacer acerca de su verdad.
+El cambio de domicilio sin aviso, se presume fraudulento y sujeta al indiciado á la pena de vagancia.

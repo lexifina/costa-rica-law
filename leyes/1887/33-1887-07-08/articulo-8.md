@@ -1,0 +1,2 @@
+Art. 8:-El Agente Principal de Policía, en los cantones centrales de provincia, y los Jefes Políticos en los cantones menores, abrirán un registro de vagos, en el cual se asienten los nombres de las personas que sean reputadas tales.
+El expediente relativo á cada individuo tendrá el mismo número de orden del registro y se iniciará con las declaraciones de dos ó más testigos que confirmen la calidad de vagancia.

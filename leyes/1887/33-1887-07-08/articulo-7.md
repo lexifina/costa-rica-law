@@ -1,0 +1,1 @@
+Art. 7°-El tiempo de condena en caso de reinsidencia, se aumentará por primera vez con una mitad más del tiempo que sufrieron la primera sentencia; por la segunda vez se doblará la pena de la primera sentencia; y por la tercera y demás veces se aumentará el tiempo de la primera sentencia con el doble.
