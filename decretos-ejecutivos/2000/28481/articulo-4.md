@@ -1,0 +1,1 @@
+Artículo 4º—Procédase en todos los centros educativos del país a efectuar el día veintitrés de febrero una reflexión crítica sobre las causas y soluciones para el problema de la violencia, accidentes, irresponsabilidad y muertes en las carreteras.
