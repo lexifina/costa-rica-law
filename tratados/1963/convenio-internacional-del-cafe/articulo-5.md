@@ -1,0 +1,19 @@
+ARTÍCULO 5
+Afiliación por grupos a la Organización
+1) Dos o más Partes Contratantes que sean exportadoras netas de café pueden declarar, haciendo la debida notificación al Secretario General de las Naciones Unidas en el momento de depositar el correspondiente instrumento de ratificación o aceptación, y al Consejo en su primer periodo de sesiones, que ingresen en la Organización como un solo grupo. Todo territorio dependiente al que se extienda el Convenio en virtud del párrafo 1) del artículo 67 podrá formar parte de dicho grupo Miembro si el Gobierno del Estado encargado de sus relaciones internacionales ha hecho la debida notificación al efecto, de conformidad con el párrafo 2) del artículo 67. Esas Partes Contratantes y los territorios dependientes deben satisfacer las condiciones siguientes:
+a) Declarar su deseo de asumir individual y colectivamente la responsabilidad en cuanto a las obligaciones del grupo:
+b) Acreditar luego debidamente ante el Consejo que el Grupo cuenta con la organización necesaria para aplicar una política cafetera común, y tiene los medios para cumplir, junto con los otros países integrantes del grupo, las obligaciones que les impone el Convenio; y
+c) Demostrar posteriormente ante el consejo que:
+i) Han sido reconocidos como grupo en un convenio internacional anterior sobre el café, o
+ii) Tienen:
+a) Una política comercial y económica común o coordinada relativa al café, y
+b) Una política monetaria y financiera coordinada y los órganos necesarios para su aplicación de forma que al Consejo le conste que el grupo Miembro pueda actuar conforme al espíritu de la agrupación de países, y cumplir las obligaciones de grupo previstas.
+2) El grupo Miembro constituirá un solo Miembro de la Organización, con salvedad de que cada país integrante será considerado como país miembro individual para todas las cuestiones que se planteen a los efectos de las siguientes disposiciones del Convenio:
+a) Capítulo XI y XII;
+b) Artículos 10, 11 y 19 del capítulo IV; y
+c) Artículo 70 del capítulo XIX.
+3) Las Partes Contratantes y los territorios dependientes que ingresen como un solo grupo Miembro indicarán el gobierno u organización que ha de representarles en el Consejo para todos los efectos del Convenio, que no sean los enumerados en el párrafo 2) de este artículo.
+4) Los derechos de voto del grupo Miembro serán los siguientes:
+a) El grupo Miembro tendrá el mismo número de votos básicos que un país Miembro aislado que participa en la organización individualmente. Estos votos básicos corresponderán al gobierno u organización que represente grupo, el que tendrá derecho a utilizarlos.
+b) En caso de una votación sobre las cuestiones que se planteen a los efectos de las disposiciones enumeradas en el párrafo 2) de este artículo, los integrantes del grupo Miembro pueden emitir los votos asignados a ellos por las disposiciones del párrafo 3) del artículo 12 independientemente y como si cada uno fuese un Miembro individual de la organización, salvo los votos básicos que seguirán correspondiendo únicamente al gobierno u organización que representa al grupo.
+5) Cualquier Parte Contratante o territorio dependiente que participe en un grupo Miembro puede retirarse de ese grupo, mediante notificación al Consejo, e ingresar como Miembro por derecho propio. Tal retiro tendrá efecto al recibir la notificación el Consejo. En caso de dicho retiro o de que un integrante de un grupo deje de ser tal, por retiro de la Organización u otra causa, los demás integrantes del grupo pueden solicitar del Consejo que se mantenga el grupo y éste continuará existiendo salvo que el Consejo deniegue la solicitud. Si el grupo Miembro se disolviera, cada país integrante se convertirá en Miembro por derecho propio. Un Miembro que haya dejado de pertenecer a un grupo Miembro no podrá formar parte de nuevo de un grupo mientras esté en vigor el presente Convenio.

@@ -1,0 +1,3 @@
+ARTÍCULO 50
+Colaboración de los Miembros importadores
+Conscientes de que la necesidad de colocar la producción en equilibrio adecuado con la demanda mundial de café es de capital importancia, los Miembros importadores consecuentes con su política general en materia de asistencia internacional, están dispuestos a colaborar con los Miembros exportadores en sus planes para limitar la producción de café. Su asistencia podrá presentarse sobre bases técnicas, financieras o de otra índole, y podrá extenderse mediante acuerdos bilaterales, multilaterales o regionales a los Miembros productores que cumplan las disposiciones de este capítulo.

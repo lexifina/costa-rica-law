@@ -1,0 +1,4 @@
+ARTÍCULO 31
+Fijación de las cuotas trimestrales de exportación
+1) Inmediatamente después de haber fijado las cuotas anuales de exportación, el Consejo fijará las cuotas trimestrales de exportación para cada Miembro exportador, con objeto de que la oferta mantenga un equilibrio razonable durante todo el año cafetero con la demanda calculada.
+2) Estas cuotas representaran en lo posible el 25% de la cuota anual de exportación de cada Miembro durante el año cafetero. No se permitirá que ningún miembro exporte más del 30% en el primer trimestre, más del 60% en los dos primeros trimestres y más del 80% en los tres primeros trimestres del año cafetero. Si las exportaciones procedentes de cualquier Miembro en un determinado trimestre son inferiores a la cuota para ese trimestre, el saldo se añadirá a su cuota del trimestre siguiente de ese año cafetero.

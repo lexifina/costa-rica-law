@@ -1,0 +1,4 @@
+ARTICULO 70
+Ajuste de cuentas con los Miembros que se retiran
+1) El Consejo decidirá todo ajuste de cuentas con un Miembro que se retire. La Organización retendrá las cantidades ya abonadas por cualquier Miembro que se retire, el cual quedará obligado a pagar cualquier cantidad que le deba a la Organización en el momento de tener efecto tal retiro; sin embargo, en el caso de una Parte Contratante que no pueda hacer una enmienda y, por lo tanto, se retire o cese de participar en el Convenio en virtud de las disposiciones del párrafo 2) del artículo 73, el Consejo podrá decidir cualquier liquidación de cuentas que considere equitativa.
+2) Un Miembro que se haya retirado o que haya cesado de participar en el Convenio no tendrá derecho a recibir nada del producto de la liquidación o de otros haberes de la Organización, al quedar terminado el Convenio en virtud del artículo 71.

@@ -1,0 +1,3 @@
+ARTICULO 11
+Periodos de sesiones del Consejo
+Por regla general, el Consejo celebrará dos períodos ordinarios de sesiones cada año. También podrá celebrar períodos extraordinarios de sesiones, si así lo decide. Asimismo, se celebrarán períodos extraordinarios de sesiones cada vez que lo solicite la Junta Ejecutiva, cinco Miembros cualesquiera, o un Miembro o Miembros que representen por lo menos 200 votos. La convocación de los períodos de sesiones tendrá que notificarse con 30 días de anticipación como mínimo, salvo en casos de emergencia. Excepto que el Consejo decida otra cosa, los periodos de sesiones se celebrarán en la sede de la Organización.
