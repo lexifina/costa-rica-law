@@ -1,0 +1,1 @@
+Artículo 5°-Las exportaciones o importaciones que efectúen personas físicas o jurídicas establecidas en el territorio aduanero nacional sujetas a lo establecido en el Régimen de Zonas Francas, con Beneficiarios o la Corporación, de conformidad con los artículos 22 y 23 de la Ley, quedarán sujetas a lo dispuesto en el Reglamento para las Operaciones Cambiarias vigente.

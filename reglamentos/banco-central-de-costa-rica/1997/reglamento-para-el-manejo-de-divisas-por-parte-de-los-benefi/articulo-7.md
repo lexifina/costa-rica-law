@@ -1,0 +1,1 @@
+Artículo 7° -Cualquier violación a lo dispuesto en este Reglamento, dará lugar a la aplicación de las sanciones que se prevé en los Artículos 31 y 32 de la Ley, así como la Ley Orgánica del Banco Central de Costa Rica.
