@@ -1,3 +1,3 @@
-Artículo 4°.-La Dirección establecer las Unidades Regionales o Provinciales en que se dividir el país, para el cumplimiento de sus fines.
-Estas unidades ser n supervisadas y evaluadas en su función, por las Comisiones Consultivas Provinciales nombradas por el Consejo. Estas ser presididas por el respectivo Gobernador de la Provincia.
-(Así reformado por el artículo 4 del decreto ejecutivo N° 14160 del 15 de diciembre de 1982)
+Artículo 4°.-La Dirección establecer las Direcciones Regionales y las Direcciones Subregionales o Provinciales que sean necesarias de conformidad con el Subsistema de Dirección y Planificación Sectorial establecido en el Decreto Ejecutivo N° 14184-PLAN de 8 de enero de 1983,
+Dependiente directamente del Departamento de Promoción de la Dirección Nacional de Desarrollo de la Comunidad. Dicho Departamento deber coordinar las labores de las mencionadas Direcciones con los respectivos Gobernadores de Provincia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 15519 del 19 de junio de 1984)
