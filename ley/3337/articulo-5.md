@@ -1,0 +1,1 @@
+Artículo 5°.- El precio de venta de los terrenos que se dediquen a vivienda económica, será el que fije el Departamento de Avalúos de la Tributación Directa, más lo que corresponda proporcionalmente del costo de las obras de urbanización que se proyecten.

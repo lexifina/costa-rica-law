@@ -1,0 +1,1 @@
+Artículo 7°.- Los dineros que la Municipalidad perciba como pago de estos terrenos, los destinará exclusivamente a la urbanización de la misma zona, y deberán ser invertidos dentro de un plazo no mayor de tres años.
