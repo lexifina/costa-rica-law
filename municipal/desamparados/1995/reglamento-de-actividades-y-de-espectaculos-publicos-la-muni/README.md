@@ -14,3 +14,4 @@ Reglamento de Actividades y de Espectáculos Públicos (La Municipalidad de Desa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-08-17 | la propia norma |
+| 2 | 1995-08-17 | Ley 8 |
