@@ -1,0 +1,1 @@
+Artículo 7º—El Jurado podrá pedir asesoramiento al Ministerio de Cultura, Juventud y Deportes, cuando surjan dudas sobre alguno de los aspectos a calificar en materia de Teatro. Esta Cartera estará en la obligación de asignar un profesional en teatro, que aclare las dudas de los miembros del jurado.

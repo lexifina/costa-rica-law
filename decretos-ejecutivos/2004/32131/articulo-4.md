@@ -1,0 +1,3 @@
+Artículo 4º—La adjudicación del premio la hará un jurado integrado por tres miembros: un representante del Ministerio de Cultura, Juventud y Deportes, uno de la Asociación de Autores y uno del Colegio de Periodistas.
+El miembro del jurado que represente al Ministerio de Cultura, Juventud y Deportes, deberá, en la medida de lo posible, ser un profesional de teatro de reconocida trayectoria en el campo teatral, que no se encuentre involucrado en montajes durante ese año, o un profesional en el área de comunicación de reconocida trayectoria y de amplia experiencia en el campo cultural.
+El miembro que represente al Colegio de Periodistas, deberá ser un crítico teatral o un periodista de la sección cultural.
