@@ -1,0 +1,1 @@
+Articulo 3°—Para los efectos del artículo anterior, sé considerará beneficiaria toda aquella persona que la Comisión Médica Calificadora, -previa evaluación neurológica-, la declare inválida por parálisis cerebral profunda.

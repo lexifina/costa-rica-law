@@ -1,0 +1,2 @@
+Artículo 5°—Los interesados en que se les otorgue dicha pensión, deberán presentar la respectiva solicitud ante la sucursal del Seguro Social más cercana a su domicilio.
+Las Unidades Administrativas que determine la Gerencia de la División Financiera de la Caja Costarricense de Seguro Social, serán los encargados de tramitar y resolver las solicitudes de pensión, de acuerdo con lo establecido en este reglamento y el del Régimen No Contributivo de Pensiones por Monto Básico.

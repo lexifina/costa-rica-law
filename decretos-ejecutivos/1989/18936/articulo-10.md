@@ -1,0 +1,2 @@
+Artículo 10.—A las instituciones públicas que alberguen a un paciente cubierto con los beneficios de este reglamento, se les podrá girar los fondos de la pensión para la atención de éste, todo de acuerdo con las disposiciones que para estos efectos dicte la Caja.
+El Instituto Mixto de Ayuda Social por medio de sus trabajadores sociales, fiscalizarán periódicamente la utilización y destino de las pensiones entregadas a estas instituciones, e informará de inmediato al Departamento de Administración de Pensiones de la Caja sobre lo actuado para lo que proceda.

@@ -1,0 +1,1 @@
+Artículo 14.—Las pensiones de este Régimen se pagarán mediante cheques por períodos mensuales vencidos y de acuerdo con el lugar y fechas señalados en el calendario de pago del Régimen No Contributivo.
