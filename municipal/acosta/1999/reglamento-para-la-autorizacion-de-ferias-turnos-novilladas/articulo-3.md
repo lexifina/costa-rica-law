@@ -1,0 +1,1 @@
+Artículo 3°-Si se van a efectuar corridas de toros, permiso sanitario de funcionamiento del redondel, póliza que garantice la estructura del redondel y daños a terceros, documento que garantice la participación de la Cruz Roja y la autoridad policial que atenderá la actividad. Contrato taurino y programación del evento.

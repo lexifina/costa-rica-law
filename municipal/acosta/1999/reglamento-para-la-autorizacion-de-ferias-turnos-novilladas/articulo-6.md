@@ -1,0 +1,11 @@
+Artículo 6°-Si se va a efectuar venta de licores, solicitar además la patente temporal de licores:
+a. Indicar el nombre completo y demás datos de la persona física o jurídica que pretenda explotar la patente, la fecha y hora de inicio y finalización, la dirección exacta del lugar donde se explotará la patente temporal.
+b. En los casos en que por no haber rematado los locales comerciales se desconozca los nombres y calidades de los futuros adjudicatarios de patentes temporales, esta se emitirá a nombre de la comisión de festejos, indicándose el lugar exacto donde se autoriza la venta temporal de licores.
+c. Cuando quien fuera a explotar un puesto de licores en tales eventos sea patentado de licores en el mismo distrito, estará en la obligación en el tiempo que duren los eventos de cerrar totalmente el otro puesto de licores, si no lo hiciere la autoridad de la Guardia Rural ordenará la clausura del establecimiento por el tiempo correspondiente.
+d. En ningún caso se permitirá que se instalen ventas de licores en casas de habitación, puestos que se instalen deberán estar ubicados únicamente en el área donde se celebran los eventos debiendo contar con medidas de salubridad propias y adecuadas.
+e. No se permitirá en ningún caso la venta de licores en centros de enseñanza o estadios.
+f. El expendido de licores deberá darse dentro del horario autorizado expresamente, el cual estará comprendido únicamente entre las 10,00 a. m. y 11,00 p. m. horas y en ningún caso la patente temporal excederá de un mes.
+g. No se autorizarán patentes temporales de licores en lugares donde no exista autoridad de policía.
+h. En los lugares autorizados para el funcionamiento de patentes temporales de licores no se permitirá la instalación de ninguna clase de juegos, ni aun los autorizados por ley.
+i. En los lugares autorizados por el funcionamiento de patentes temporales de licores, estará prohibida la venta de licores a menores de edad, lo mismo que su permanencia.
+j. La Municipalidad podrá suspender o cancelar en cualquier momento la patente temporal de licores cuando en el local autorizado se produzcan escándalos o alteración del orden público o cuando se violen las disposiciones de este reglamento, Ley de Licores y su Reglamento independientemente de las penas que pudieren imponer las autoridades judiciales correspondientes.
