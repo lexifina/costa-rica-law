@@ -1,1 +1,0 @@
-Artículo 6°-La resolución del Instituto mediante la cual ordene al Registro Público la inscripción del terreno o parcela, deberá ser protocolizada. El interesado escogerá el notario para efectuar esa protocolización.
