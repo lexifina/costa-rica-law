@@ -13,3 +13,4 @@ Reglamenta Organo de Normalización Técnica en Valoración de Bienes(Derogado e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-29 | la propia norma |
+| 2 | 1999-01-12 | Decreto Ejecutivo 27601 (1999-01-12) |
