@@ -14,3 +14,4 @@ BCR: Tarifas y Condiciones para Servicios del Banco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-11-02 | la propia norma |
+| 2 | 1996-01-29 | Reglamento 10 (1996-01-29) |
