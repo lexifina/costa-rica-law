@@ -1,0 +1,3 @@
+ARTICULO XII
+Prioridades, Permisos y Licencias
+El Eximbank no asume ni asumirá obligación o responsabilidad alguna por la emisión, por parte de cualquier Agencia o departamento del Gobierno de los Estados Unidos, de una prioridad, asignación, permiso o licencia que pueda ser necesaria de acuerdo con las Ieyes presentes o futuras de los Estados Unidos, o de acuerdo con regulaciones presentes o futuras de cualquier agencia o departamento de los Estados Unidos, para manufacturar, comprar, vender o exportar cualquier maquinaria, equipo, materiales y suministros que Costa Rica quisiere comprar y financiar por medio de este Contrato.
