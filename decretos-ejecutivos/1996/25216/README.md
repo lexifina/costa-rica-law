@@ -13,3 +13,4 @@ Reglamento de Emergencias Nacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-18 | la propia norma |
+| 2 | 1996-06-18 | Decreto Ejecutivo 25366 (1996-07-27) |
