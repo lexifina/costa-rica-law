@@ -1,0 +1,8 @@
+Artículo V.4 Obligaciones respecto a las Exportaciones
+1. Cada Parte dispondrá que:
+(a) un exportador, o un productor en su territorio que haya proporcionado copia de un Certificado de Origen al exportador conforme al Artículo V.1.3(b)(iii), entregue copia del Certificado de Origen a su autoridad aduanera cuando ésta lo solicite; y
+(b) un exportador o un productor en su territorio que haya llenado y firmado un Certificado de Origen y tenga razones para creer que ese Certificado de Origen contiene información incorrecta, notifique sin demora y por escrito a todas las personas a quienes el exportador o el productor se les hubiese entregado, cualquier cambio que pudiera afectar su exactitud o validez.
+2. Cada Parte:
+(a) dispondrá que la certificación falsa hecha por un exportador o por un productor en su territorio, en el sentido de que una mercancía que vaya a exportarse a territorio de la otra Parte califica como originaria, tenga las mismas consecuencias jurídicas, con las modificaciones que pudieran requerir las circunstancias, que aquellas que se aplicarían al importador en su territorio que haga declaraciones o manifestaciones falsas en contravención de sus leyes y reglamentaciones aduaneras; y
+(b) podrá aplicar tales medidas según lo ameriten las circunstancias cuando el exportador o el productor en su territorio no cumpla con cualquiera de los requisitos de este Capítulo.
+3. Ninguna Parte podrá aplicar sanciones al exportador o al productor en su territorio que voluntariamente haga la notificación escrita a que se refiere el párrafo (1)(b) por haber presentado una certificación incorrecta.
