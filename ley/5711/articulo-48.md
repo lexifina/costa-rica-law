@@ -1,0 +1,1 @@
+Artículo 48.- Cuando fuere evidente que no hay contradicción, la Sala Superior Penal lo declarará así por resolución lacónica y devolverá el asunto a la Sala Penal, tanto en el caso a que se refiere el artículo 47 como en lo dispuesto en el artículo 46. En los demás casos resolverá el recurso, previo el trámite de ley.

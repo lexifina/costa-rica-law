@@ -1,0 +1,2 @@
+Artículo 45.- El recurso podrá interponerlo el imputado, su defensor, el Ministerio Público o la Procuraduría General de la República, en su caso, ante el Tribunal que dictó la sentencia y la Sala Penal respectiva procederá a iniciar su trámite, aunque se hubiere alegado contradicción.
+El recurrente debe señalar esa contradicción en el propio recurso, indicando de un modo concreto en qué consiste y en cuáles asuntos se ha producido. Si no lo hiciere, la Sala Penal quedará facultada para resolver el recurso.

@@ -1,0 +1,1 @@
+Artículo 20.- En los casos a que se refiere el artículo anterior, el Juez de Instrucción será asistido por el Secretario o Prosecretario o por dos testigos, o por el Secretario de la oficina judicial del lugar en que se constituya a practicar la diligencia.
