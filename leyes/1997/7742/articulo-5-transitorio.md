@@ -1,0 +1,1 @@
+TRANSITORIO V.- En el primer presupuesto ordinario o extraordinario de la República que se apruebe después de la entrada en vigencia de esta ley, el Poder Ejecutivo incluirá a favor del Consejo Nacional de Producción, los recursos del Programa PL-480, no comprometidos a la entrada en vigor de esta ley, para que se destinen al Programa de Reconversión Productiva.

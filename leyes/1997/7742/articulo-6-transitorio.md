@@ -1,0 +1,1 @@
+TRANSITORIO VI.- El Programa de Reconversión Productiva, que al entrar en vigencia esta ley administra el Programa Integral de Mercadeo Agropecuario pasará, con sus recursos, activos y pasivos, a favor del Consejo Nacional de Producción para la consecución de los fines de esta ley. En consecuencia, se realizarán las modificaciones presupuestarias requeridas.

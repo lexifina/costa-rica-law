@@ -1,0 +1,1 @@
+TRANSITORIO IV.- Los recursos citados en el inciso a) del artículo 49 bis de la Ley Orgánica del Consejo Nacional de Producción, serán percibidos por un período de diez años, contados a partir de la entrada en vigencia de esta ley.
