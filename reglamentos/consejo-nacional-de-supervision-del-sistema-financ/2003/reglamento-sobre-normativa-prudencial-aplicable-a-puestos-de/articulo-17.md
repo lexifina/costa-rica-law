@@ -13,6 +13,11 @@ Mayor o igual a 61 días | 1
 De 31 a 60 días | 2
 De 16 a 30 días | 3
 Menor a 15 días | 4
+Los puestos de bolsa que cuenten con líneas de crédito de entidades bancarias no relacionadas con su grupo financiero que les permitan una mejor cobertura de las necesidades de liquidez derivadas de las obligaciones por operaciones con compromiso de cumplimiento a plazo y que se encuentren autorizados en las condiciones que establezca el Superintendente, podrán modificar los coeficientes de ajuste del saldo de conformidad con la siguiente metodología:
+i) Estimar la proporción del saldo abierto a plazo que no está cubierto por las líneas de crédito de conformidad con la siguiente fórmula:
+PROPORCION NO CUBIERTA = 1 TOTAL DE LINEAS DE CREDITO SALDO TOTAL ABIERTO
+ii) Multiplicar cada uno de los coeficientes por el resultado de la aplicación de esta fórmula y una vez obtenidos los nuevos coeficientes efectuar el ajuste del saldo correspondiente. En todo caso el valor de los activos que esté comprometido como garantía de líneas de crédito formará ‘70arte de las partidas deducibles para efectos del cálculo de los Recursos Propios Disponibles, donde deberá rebajarse en un 100%.
+(Así reformado en sesión N° 436 de 11 de mayo de 2004).
 c) Ajuste según el porcentaje de operaciones cruzadas
 Para el cálculo del saldo ajustado por las operaciones cruzadas, deberá asignarse el coeficiente de riesgo con apego al siguiente esquema:
 TIPO DE OPERACIÓN | COEFICIENTE DE AJUSTE DE SALDO
@@ -33,9 +38,8 @@ Mayor a 60% y menor a 90% | 0.50
 Mayor a 30% y menor a 60% | 0.75
 Hasta 30% | 1
 f) Ajuste según el saldo en moneda extranjera de las posiciones abiertas
-Para el cálculo del coeficiente del riesgo asumido por variaciones en el tipo de cambio de las posiciones abiertas a plazo, deberá utilizarse el plazo remanente de cada posición abierta y asignar a cada posición el coeficiente de riesgo con apego al siguiente esquema:
-TIPO DE POSICIÓN ABIERTA | COEFICIENTE DE AJUSTE DE SALDO
+Para el cálculo del coeficiente del riesgo asumido por variaciones en el tipo de cambio de las posiciones abiertas a plazo, deberá asignarse a cada posición el coeficiente de riesgo con apego al siguiente esquema:
+Tipo de posición abierta | Coeficiente de ajuste de saldo
 Posiciones sin riesgo cambiario | 1
-Posiciones con riesgo cambiario y plazo menor a 30 días | 2
-Posiciones con riesgo cambiario y plazo mayor a 30 y menor a 60 días | 3
-Posiciones con riesgo cambiario y plazo mayor a 60 días | 4
+Posiciones con riesgo cambiario | 2
+(Así reformado en sesión N° 436 de 11 de mayo de 2004).

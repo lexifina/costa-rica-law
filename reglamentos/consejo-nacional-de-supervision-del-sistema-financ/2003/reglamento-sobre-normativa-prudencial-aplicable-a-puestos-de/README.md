@@ -14,3 +14,4 @@ Reglamento sobre Normativa Prudencial Aplicable a Puestos de Bolsa.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-03 | la propia norma |
+| 2 | 2004-05-11 | Reglamento 436 (2004-05-11) |
