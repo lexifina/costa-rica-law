@@ -1,0 +1,1 @@
+Artículo 3°—El Ciclo de Transición, es el precedente a la Educación General Básica y tiene como finalidades fundamentales, la atención del proceso de socialibilización del niño así como el desarrollo de sus destrezas, la transmisión de conocimientos básicos, que le permitan al niño un mejor desarrollo emocional y sicológico.
