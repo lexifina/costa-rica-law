@@ -1,4 +1,6 @@
+(Derogado)
 N° 3506-G
+(Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 4463 del 8° de enero de 1975)
 JOSE FIGUERES FERRER
 PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,
