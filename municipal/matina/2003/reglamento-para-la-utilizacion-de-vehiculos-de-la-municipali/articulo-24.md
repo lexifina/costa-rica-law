@@ -1,0 +1,1 @@
+Artículo 24.—Las disposiciones contenidas en el presente reglamento son aplicables a todos los funcionarios que en razón de sus cargos usen, controlen o administren los recursos de transporte de la municipalidad incluyendo al Alcalde y los miembros del Concejo Municipal.
