@@ -1,0 +1,5 @@
+N° 4027
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DCERETA:
+Artículo 1º.- Aprobar la modificación del párrafo c) del Anexo C del Convenio Constitutivo del Banco Interamericano de Desarrollo, dándole la siguiente redacción:
+"En primer lugar, se efectuarán tantas votaciones como sea necesarias hasta que cada uno de cuatro candidatos reciba una cantidad de votos que represente un porcentaje no inferior a la suma de los porcentajes que correspondan al país con el mayor número de votos y al país con el menor número de votos. No obstante, si en una de las votaciones efectuadas, tres candidatos reciben la referida cantidad de votos, el cuarto se deberá considerar también electo si recibe una cantidad de votos que represente un porcentaje no inferior a la suma de los porcentajes que correspondan al país con el mayor número de votos que no hubiera emitido sus votos a favor de uno de los tres candidatos citados y a dos países con el menor número de votos. Para los fines de este párrafo, la totalidad de los votos de los países con derecho a participar en la votación prevista en este Anexo se contará como 100 por ciento".
