@@ -1,0 +1,4 @@
+Artículo 108.—Procedimiento para la ejecución de la garantía de cumplimiento. Una vez que la unidad ejecutora y/o fiscalizadora determine incumplimiento en los términos contractuales solicitará al contratista que en el improrrogable plazo de cinco días hábiles presente las pruebas, de descargo correspondientes.
+Una vez recibidas dichas pruebas la unidad solicitante y/o fiscalizadora valorará las mismas y determinará por escrito si se debe o no ejecutarse la garantía de cumplimiento.
+Si determina que se debe ejecutar la garantía de cumplimiento, comunicará por escrito a Trámite y Control para que active el procedimiento correspondiente.
+El funcionario encargado de dicho procedimiento en Trámite y Control, solicitará por escrito a la Dirección Financiera la ejecución de la garantía, remitiendo copia de todo lo actuado a la unidad solicitante y/o fiscalizadora y al expediente de la contratación.

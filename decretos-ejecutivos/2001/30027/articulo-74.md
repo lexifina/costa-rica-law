@@ -1,0 +1,1 @@
+Artículo 75.—Informe sobre mermas o pérdidas. Comunicar a los involucrados o a las unidades solicitantes sobre las mermas, daños o pérdidas ocurridas a las mercancías sujetas de importación o exportación, así como los resultados de los reclamos presentados en virtud de tales acciones, cuando corresponda.

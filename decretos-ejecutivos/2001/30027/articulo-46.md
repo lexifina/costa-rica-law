@@ -1,0 +1,1 @@
+Artículo 47.—De los Recursos. Entratándose, de recursos de objeción al cartel, así como de la impugnación del acto de adjudicación, el Departamento de Suministros en conjunto con la Unidad solicitante o técnica, analizaran las mismas y procederán a resolver según corresponda.

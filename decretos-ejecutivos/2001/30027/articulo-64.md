@@ -1,0 +1,1 @@
+Artículo 65.—Correcciones al borrador del contrato. El funcionario encargado de la redacción del borrador del contrato remitirá éste junto con el expediente administrativo de la contratación, a la Asesoría Legal, para las observaciones legales y correcciones que ésta estime procedentes.

@@ -1,0 +1,1 @@
+Artículo 72.—Nacionalización o exportación. Cuando resulte de competencia y obligación del Consejo de Seguridad Vial, el funcionario designado procederá a efectuar la nacionalización o exportación de los bienes, para lo cual, gestionará lo necesario ante las diferentes aduanas del país o agentes aduaneros, con apego a la Ley General de Aduanas.

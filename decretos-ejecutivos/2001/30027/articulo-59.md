@@ -1,0 +1,7 @@
+SECCIÓN II
+Perfeccionamiento, formalización y refrendo
+de las contrataciones administrativas
+Artículo 60.—Sobre el Refrendo de la contrataciones administrativas. Las contrataciones administrativas que requieran o no del refrendo por parte de la Contraloría General de la República, en razón de su cuantía y estrato presupuestario en el cual se ubique la Institución, deberán someterse a las disposiciones contempladas en el Reglamento sobre Refrendos de las Contrataciones de la Administración Pública emitido por el Órgano Contralor y publicado en La Gaceta Nº 28 del 09 de febrero del 2000, conforme a lo siguiente:
+1. Para los contratos que por sus características y cuantía requieran el refrendo de la Contraloría General de la República, el funcionario encargado de su trámite, remitirá a la Dirección Ejecutiva y ésta a su vez remitirá al Órgano Contralor la solicitud de refrendo con los requisitos establecido en el artículo 5º del reglamento supracitado.
+2. Para las contrataciones administrativas que conforme el artículo 2º, aparte 1 del citado reglamento y que no requieran del refrendo, deberán contar, de previo a su ejecución, con la aprobación escrita de la Asesoría Legal de la Institución que haga constar la conformidad del contrato con el ordenamiento jurídico. Aprobadas dichas contrataciones deberán ser formalizadas mediante Orden de Compra.
+3. Para los contratos cuya cuantía menor a los excluidos del refrendo y/o aprobación de la Asesoría Legal, se formalizan mediante orden de compra, como instrumento idóneo para el trámite de pago

@@ -1,0 +1,5 @@
+Artículo 28.—Custodia de muestras. Para la custodia de las muestras se observaran las siguientes disposiciones:
+1. Con posterioridad al acto de apertura de las ofertas, las muestras se custodiarán por el funcionario que tiene a cargo el trámite de la contratación, hasta el momento de remitirlas junto con el indicado legajo a la unidad que hará el estudio técnico de las ofertas.
+2. Una vez analizadas las muestras, la unidad técnica devolverá las muestras a Adquisiciones junto con el informe técnico.
+3. En tanto, la adjudicación del acto no esté en firme, el funcionario que tiene a cargo el trámite de la contratación remitirá las muestras ante Administración de Materiales, por nota, detallando su descripción, cantidad, el oferente propietario de las mismas y a la contratación a que se refieren; para su custodia hasta el momento de la devolución a sus propietarios.
+Administración de Materiales aplicará la dedicación y responsabilidad utilizadas en la custodia de los bienes propiedad de la Institución, a su cargo.

@@ -1,0 +1,1 @@
+Artículo 76.—Aplicación del Procedimiento. Aplicar los procedimientos contenidos en la Ley General de Aduanas y su Reglamento, Ley de Exoneraciones y Reglamento de Compras al Exterior del Consejo de Seguridad Vial vigente.
