@@ -1,0 +1,1 @@
+Artículo 5°-EI servidor trasladado estará sujeto a las disposiciones internas del Ministerio en cuanto a jornada de trabajo y control de asistencia, y laborará bajo la dirección inmediata de la correspondiente jefatura del mismo.

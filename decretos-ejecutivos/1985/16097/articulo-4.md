@@ -1,0 +1,1 @@
+Artículo 4°-El Ministerio de Planificación Nacional y Política Económica, conservará, en un archivo centralizado, todos los antecedentes y demás documentos relacionados con los funcionarios públicos trasladados, por medio de esta disposición legal.
