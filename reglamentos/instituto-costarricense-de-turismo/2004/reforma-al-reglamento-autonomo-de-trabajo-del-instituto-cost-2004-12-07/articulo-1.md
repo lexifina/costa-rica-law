@@ -1,0 +1,8 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+En sesión ordinaria de Junta Directiva Nº 5337, artículo 5, inciso XV), celebrada el día 7 de diciembre del 2004.
+SE ACUERDA:
+a) Acoger el criterio legal dado mediante oficio DL1690-2004 y dejar sin efecto lo acordado por esta Junta Directiva en sesión ordinaria Nº 5300, artículo 5, inciso XII), del 20 de abril del 2004 (SJD-375) y publicado en La Gaceta Nº 91 del 11 de mayo del 2004, y aprobar en su lugar, la inclusión de un inciso t), al artículo 45 del Reglamento Autónomo de Trabajo, que diga.
+t) Participar como expositores, panelistas, comentaristas o moderadores en representación del Instituto Costarricense de Turismo, en seminarios, foros, talleres o eventos similares, sin la debida autorización del superior jerárquico. Las jefaturas otorgarán la autorización al personal a su cargo. Si el participante lo es quien ocupe una de las jefaturas institucionales, la autorización deberá darla la Presidencia Ejecutiva y en su ausencia la Gerencia General.
+En el caso del Gerente General y el Auditor Interno, la autorización deberá darla la Presidencia Ejecutiva.
+b) Dejar sin efecto lo acordado en sesión ordinaria Nº 5313, artículo 5, inciso XI), del 29 de junio del 2004, publicado en La Gaceta Nº 145 del 26 de julio del 2004, y aprobar en lugar, la reforma del artículo 110 del Reglamento Autónomo de Trabajo, que diga:
+Artículo 110.—A falta de disposiciones en el presente reglamento aplicables a un caso determinado, deberán tenerse como normas supletorias, la Ley General de la Administración Pública, el Código de Trabajo, la General de Control Interno y demás leyes y reglamentos conexos.
