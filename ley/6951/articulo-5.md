@@ -1,0 +1,1 @@
+Artículo 5º.- Los derechos laborales contemplados en la Constitución y las leyes del país, tendrán plena vigencia y deberán ser respetados por las empresas que se instalen. Cualquier conflicto que en este sentido se produzca corresponderá a los organismos legales competentes.
