@@ -1,0 +1,1 @@
+Artículo 20.—Ninguna persona física o jurídica podrá ser arrendataria de más de cincuenta metros cuadrados de piso en el mercado, y en todo caso no podrá tener más de dos locales, se exceptúa de esta disposición los que a la fecha, tengan más de dos derechos, debidamente legalizados ante la municipalidad.

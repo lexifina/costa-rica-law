@@ -1,0 +1,1 @@
+Artículo 11.—Las personas favorecidas en una adjudicación, que no reúna los requisitos anteriores o no se presenten dentro del término de ocho días hábiles ha formalizar el respectivo contrato, perderá la adjudicación respectiva y el derecho a participar en nuevos remates.

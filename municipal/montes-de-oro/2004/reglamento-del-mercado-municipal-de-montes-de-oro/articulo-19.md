@@ -1,0 +1,1 @@
+Artículo 19.—En caso de daños o reparaciones en los servicios públicos de agua, electricidad u otros, los inquilinos están en la obligación de facilitar la entrada al local a los operarios municipales o de otras entidades para las labores respectivas y serán responsables por el pago y reparación de los daños ocasionados al inmueble.

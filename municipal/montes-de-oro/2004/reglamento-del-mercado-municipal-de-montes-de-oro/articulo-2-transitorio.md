@@ -1,0 +1,2 @@
+Transitorio II.—Por única vez. La Municipalidad de Montes de Oro, permitirá que lo actuales ocupantes de locales en el Mercado Municipal presenten ante esta institución las cesiones otorgadas por lo adjudicatario, registrados en esta Municipalidad, la cual deberán realizar y presentar en escritura otorgada ante notario público, en un plazo de 30 días naturales. Lo anterior con el fin de actualizar el registro de inquilinos del Mercado Municipal.
+Montes de Oro, 7 de marzo del 2005
