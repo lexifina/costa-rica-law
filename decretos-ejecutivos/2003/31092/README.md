@@ -55,3 +55,4 @@ Directrices de política presupuestaria del 2004 para los ministerios, demás ó
 | 40 | 2004-10-13 | Decreto Ejecutivo 32102 (2004-10-13) |
 | 41 | 2004-10-15 | Decreto Ejecutivo 32115 (2004-10-15) |
 | 42 | 2004-10-25 | Decreto Ejecutivo 32113 (2004-10-25) |
+| 43 | 2004-11-30 | Decreto Ejecutivo 32148 (2004-11-30) |
