@@ -14,3 +14,4 @@ Reforma las Reservas Indígenas Cabécar de Barbilla-Dantas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-03-29 | la propia norma |
+| 2 | 1984-12-03 | Decreto Ejecutivo 16059 (1984-12-03) |
