@@ -1,0 +1,1 @@
+Artículo 4°-El costo de los servicios que genere la aplicación del presente Reglamento, deber cubrirlos el interesado en la comercialización respectiva y realizarlo a la instancia prestataria de los mismos, a través de los procedimientos que éste tenga definidos.
