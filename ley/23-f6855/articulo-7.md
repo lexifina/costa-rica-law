@@ -1,0 +1,1 @@
+Art. 7. El valor de la manzana de tierra situada fuera del radio de tres leguas de cualquier pueblo, será el de un peso, y el de cuatro el de las que se hacen dentro de este radio,-Este valor será la base para los remates.
