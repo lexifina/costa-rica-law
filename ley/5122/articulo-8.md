@@ -1,0 +1,1 @@
+Artículo 8º.- La Corporación adoptará las disposiciones necesarias para reglamentar las operaciones a que se refiere el artículo 7º anterior, en consonancia con las normas legales vigentes y de acuerdo con los objetivos y necesidades enunciados en el Capítulo I de esta ley.
