@@ -14,3 +14,4 @@ Reglamento Centroamericano sobre Medidas y Procedimientos Sanitarios y Fitosanit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-17 | la propia norma |
+| 2 | 2002-09-05 | Decreto Ejecutivo 30691 (2002-09-05) |
