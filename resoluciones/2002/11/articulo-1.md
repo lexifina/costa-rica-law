@@ -1,4 +1,5 @@
-No 11-02.—San José, a las ocho horas del trece de marzo del dos mil dos.
+No 11-02.—
+San José, a las ocho horas del trece de marzo del dos mil dos.
 Considerando:
 I.—Que el artículo 99 del Código de Normas y Procedimientos Tributarios, faculta a la Administración Tributaria para dictar normas generales para la correcta aplicación de las leyes tributarias, dentro de los limites que fijen las disposiciones legales y reglamentarias pertinentes.
 II.—Fundamento legal y naturaleza del crédito en el Impuesto General sobre las Ventas sobre exportaciones:
@@ -24,5 +25,9 @@ b) Asimismo, conviene ejercer la facultad conferida por el articulo 43 del Códi
 c) La posibilidad material de identificar tales créditos en forma automatizada, se supedita a las modificaciones introducidas por la referida Resolución N° 34/2001, que rige para las declaraciones presentadas con posterioridad al 4 de octubre de 2001 por mantener la fecha de origen del crédito en el periodo a que corresponde la declaración que lo genera.
 d) Con el mismo fin, se estima conveniente establecer el ingreso automático de la información respectiva mediante el uso de la declaración electrónica por parte de los interesados, de manera que en corto plazo pueda ordenarse la devolución del crédito en cuestión, ya que el sistema tradicional de presentación física de las declaraciones en las entidades recaudadoras, conlleva procesos de digitación, remisión y depuración de la información que toman mayor tiempo de ingreso de ésta en los registros tributarios. Por tanto,
 RESUELVE:
-Articulo 1°—Quienes tengan derecho a crédito por pago debido cuando se ha soportado la traslación jurídica o cobro en el impuesto general sobre las ventas por exportación de mercancías, deberán utilizar Internet para enviar y pagar la declaración respectiva a la Administración Tributaria, conforme a lo previsto por Resolución de esta Dirección, N° 29/2001, publicada en La Gaceta N° 179 del 18 setiembre 2001, y sus reformas, a efecto de disfrutar del procedimiento de devolución simplificado que se regula en el artículo siguiente.
-Para tales efectos podrán solicitar el acceso directo al Sitio de Tributación en Línea (SITEL), o contratar el uso del sitio de una empresa autorizada.
+"Artículo 1 °—Quienes tengan derecho a crédito por pago debido cuando se ha soportado la traslación jurídica o cobro en el impuesto general sobre las ventas por exportación de mercancías, deberán cumplir con los siguientes requisitos:
+a) Utilizar Internet para enviar y pagar la declaración respectiva a la Administración Tributaria, conforme a lo previsto por resolución de esta Dirección, No 29/2001, publicada en La Gaceta No 179 del 18 setiembre del 2001, y sus reformas, a efecto de disfrutar del procedimiento de devolución simplificado de oficio por parte de la Administración Tributaria, que se regula en el artículo siguiente. Para tales efectos podrán solicitar el acceso directo al Sitio de Tributación en Línea (SITEL), o contratar el uso del sitio de una empresa autorizada.
+b) Tener la exportación de mercancías como única actividad generadora del crédito en el Impuesto General sobre las Ventas.
+c) Estar registrado en la Administración Tributaria como exportador.
+d) Estar afiliado a la Cámara de Exportadores de Costa Rica.
+(Así Reformado por la Resolución N° 35 del 13 de marzo del 2002.)
