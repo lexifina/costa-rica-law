@@ -1,0 +1,1 @@
+Artículo 11.—Las personas físicas o jurídicas que se dediquen a brindar servicio de karahoke, disco móvil, música en vivo o similares a los patentados de negocios en este cantón, deberán contar con una licencia municipal de acuerdo con el artículo 79 del Código Municipal.

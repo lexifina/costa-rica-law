@@ -1,0 +1,1 @@
+Artículo 10.—Por la celebración de actividades con karahoke, disco móvil música en vivo o similares, se deberá pagar el impuesto sobre espectáculos públicos cuando aquellas se enmarquen en la definición del hecho generador de la obligación hace el artículo 1º del reglamento para la aplicación del impuesto sobre Espectáculos Públicos, Ley 6844 del 11 de enero de 1983.

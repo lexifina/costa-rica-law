@@ -1,0 +1,1 @@
+Artículo 3º—Toda actividad social con Karahoke, música en vivo disco móvil o similares que se programe en establecimientos comerciales, deberá contar con el correspondiente permiso municipal para su realización, en caso de no tener patente.
