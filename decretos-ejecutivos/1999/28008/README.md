@@ -13,3 +13,4 @@ De Interés Nacional Actividades Asociación Costarricense HospitalesCon Motivo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-10 | la propia norma |
+| 2 | 1999-08-10 | SINALEVI (sin norma nombrada) |
