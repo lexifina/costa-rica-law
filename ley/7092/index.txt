@@ -59,14 +59,16 @@ articulo-58.md
 articulo-59.md
 articulo-60.md
 articulo-61.md
+articulo-61-bis.md
 articulo-62.md
 articulo-63.md
 articulo-64.md
+articulo-64-bis.md
 articulo-65.md
 articulo-66.md
-articulo-66~2.md
 articulo-66-bis.md
 articulo-66-ter.md
+articulo-66~2.md
 articulo-66-quinquies.md
 articulo-66-sexies.md
 articulo-67.md
