@@ -37,7 +37,8 @@ Comisión Nacional para la Prevención del Riesgo y Atención de Emergencias 1.7
 Comisión Nal. de Conmemoraciones Históricas 1,4
 Compañía Nacional de Fuerza y Luz 30.791,3
 Consejo de Salud Ocupacional 74,2
-Consejo de Seguridad Vial 4.983,0
+Consejo de Seguridad Vial 5.983,0
+(Así modificado por Decreto Ejecutivo N° 31138 de 7 dea abril de 2003)
 Consejo Nacional de Concesiones 674,0
 Consejo Nacional de Investigaciones Científicas y T. 344,1
 Consejo Nacional de Producción 8.607,6
