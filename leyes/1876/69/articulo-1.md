@@ -1,0 +1,9 @@
+DECRETO LXIX
+Autoriza la fundación de un Banco de Emisión de Crédito
+Vicente Herrera, Presidente Provisorio de la República de Costa Rica.
+Con presencia de la exposición de varias personas capitalistas, de fecha 6 del corriente, en la cual manifiestan su propósito de fundar un Banco de Crédito en la República, con el capital, por ahora de medio millón de pesos, garantizado por los exponentes, con fincas que representan el doble de dicho capital y considerando:
+1° Que en la crisis por la cual atraviesa la República, es de mayor conveniencia para el país en general un establecimiento de crédito que poniendo en movimiento cuantiosos capitales, supla la falta de circulación de la moneda acuñada.
+2° Que, aunque los proponentes exigen, para la planeación de dicho establecimiento, algunos sacrificios pecuniarios de parte del Gobierno, estos quedan suficientemente compensados con el bienestar general y con el desarrollo de la industria que el ocasionará.
+3° Que atendidas las seguridades que los proponentes ofrecen, y su personal respetabilidad, los adelantados que el Gobierno hasta para el pago de interés y amortización parcial, así como los intereses del público quedan suficientemente garantizados.
+En uso de las facultades extraordinarias de que estoy investido, decreto:
+Art 1° Autorizase la fundación del Banco Emisión de crédito bajo las bases que, en la exposición presentada al Gobierno en 6 del corriente mes, proponen los socios fundadores Generales Don Tomas Guardia, don Pedro y don Pablo Quirós, Don Braulio Morales, Don Rafael Borroeta, Don Manuel Antonio Bonilla, Don Jaime Güell, Don S, Lizano, Don Juan Fernández, don Jacinto Quirós, don Raimundo Jiménez, Presb. Don Ramón L, Cabezas Don A. Amerling, Don Juan María Solera y don Joaquín Trejos, teniéndose por incluidos en igual calidad las personas que, conforme a la base 12° se suscriban dentro de los primeros quince días de esta fecha en adelante.

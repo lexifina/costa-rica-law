@@ -1,0 +1,1 @@
+Art 2° Dentro de los mismos primeros quince días todos los socios fundadores deben presentar a la Secretaría de Hacienda inscritas en el Registro de las hipotecas las escrituras respectivas que aseguren las cantidades por las cuales cada uno debe responder.

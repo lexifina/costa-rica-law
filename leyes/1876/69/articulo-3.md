@@ -1,0 +1,1 @@
+Art 3° Una vez llenada esta formalidad, el Gobierno queda en la obligación de sufragar los gastos que ocasione la plantación del Banco y el sostenimiento de la Dirección por todo el término estipulado en las bases propuestas.
