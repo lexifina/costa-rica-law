@@ -1,0 +1,1 @@
+Artículo 14.—El Consejo Directivo nombrará en la sesión de su instalación un presidente, dos vicepresidentes, un secretario y un tesorero por un periodo de dos años, pudiendo ser reelectos. Dicha elección deberá llevarse a cabo en el mes de octubre de cada año.

@@ -1,0 +1,1 @@
+Artículo 6°—Además de las funciones generales enunciadas, la Federación luchará conjuntamente con los concejos Municipales afiliados por la formulación y ejecución de planes tendientes a solucionar los problemas más urgentes de los cantones que integran la Federación mediante acciones cooperativas.

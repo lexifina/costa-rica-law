@@ -1,0 +1,1 @@
+Artículo 27.—La Federación puede solicitar a los Consejos signatarios el personal técnico y administrativo que necesite para el cumplimiento de sus funciones y aquellos, los proporcionarán en las medidas de sus posibilidades.

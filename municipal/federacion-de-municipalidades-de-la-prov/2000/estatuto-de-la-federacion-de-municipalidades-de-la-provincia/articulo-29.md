@@ -1,0 +1,1 @@
+Artículo 29.—Los Alcaldes Municipales constituyen la Comisión Técnica Especial de la Federación cuyas funciones se definirán en el respectivo reglamento. Esta comisión estará obligada a rendir un informe cuando el Consejo Directivo se lo solicite.

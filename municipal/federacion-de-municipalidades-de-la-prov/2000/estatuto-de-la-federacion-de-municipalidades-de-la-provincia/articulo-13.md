@@ -1,0 +1,1 @@
+Artículo 13.—En caso de fallecimiento, de renuncia, de impedimento absoluto o de tres ausencias consecutivas injustificadas o cinco alternas de un miembro del Consejo Directivo, en un periodo de seis meses, será comunicado el Concejo Municipal que representa a fin de proceder a designar el sustituto.
