@@ -1,5 +1,3 @@
-TITULO SEGUNDO
-De la Función Registral
-CAPITULO I
-Del Diario
-Artículo 26.—Orden de presentación. El Registro, por los .procedimientos técnicos de que disponga, llevará un sistema de ordenamiento diario donde se anotará la presentación de los documentos por su orden, asignándoles el número correlativo que le corresponda.
+Artículo 26.—Del control administrativo y fiscalización de las Asociaciones. El control administrativo y la fiscalización de las asociaciones, será competencia de la Dirección de Personas Jurídicas del Registro Público, de conformidad con lo dispuesto en el Título IV Capítulo I del Reglamento a la Ley de Asociaciones, que es Decreto Ejecutivo No 18670-J de 20 de diciembre de 1988.
+(Así reformado por el articulo 2° del decreto ejecutivo N° 27281 del 19 de agosto de 1998)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 24 al 26 actual)

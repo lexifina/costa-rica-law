@@ -1,3 +1,2 @@
-CAPITULO V
-De las Hipotecas de Cédulas
-Artículo 74.—De su constitución y expedición. La constitución de ,.í hipotecas de cédulas se efectuará en escritura pública. Una vez constituido e inscrito el testimonio, se emitirán las cédulas que deberán liar el Registrador de cédulas hipotecarias y el dueño del inmueble hipotecado o su legítimo representante.
+Artículo 74.—Informes regístrales. Aparte de las certificaciones enunciadas en los artículos anteriores, el Registro podrá expedir una copia simple de la información registral, por los medios técnicos que determine la Dirección, que no será una certificación.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 72 al 74 actual)

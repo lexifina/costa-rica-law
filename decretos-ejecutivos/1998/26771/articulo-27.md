@@ -1,1 +1,2 @@
-Artículo 27.—Horario de recepción de documentos. El horario de opción de documento será de 7,30 a.m. a 15,30 p.m., el cual podrá ser aliado por la Dirección a efecto de mejorar el servicio público que se brinda.
+Artículo 27.—Del Registro de Concesiones de Derecho de Uso de la Zona Marítimo Terrestre y del Golfo de Papagayo. En el Registro de Concesiones de Derecho de Uso de la Zona Marítimo Terrestre se inscribirá todo lo relativo a la concesión de derechos de la Zona Marítimo Terrestre y del Golfo de Papagayo y aquellos que por leyes o decretos se le asignen.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 25 al 27 actual)

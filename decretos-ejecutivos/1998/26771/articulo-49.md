@@ -1,11 +1,14 @@
-Artículo 49.—Requisitos para que los documentos puedan ser anotados e inscritos. Para que los documentos mencionados en el artículo 47 puedan ser anotados e inscritos deberán reunir los siguientes requisitos:
-a) Estar constituidos en escritura pública, sentencia ejecutoria u otro documento auténtico expresamente autorizado por la ley para este efecto.
-b) Cumplir las formalidades que dispongan las leyes.
-c) Estar escritos en español, a máquina de escribir o impresora de cómputo, en tinta negra o azul y cuyos rasgos sean claramente visibles, con el objeto de que su imagen pueda ser capturada por los medios tecnológicos en uso.
-d) No contener abreviaturas, salvo en el caso de protocolizaciones.
-e) No tener raspaduras, borrones o enmiendas, salvo que estuvieren debidamente salvadas por el notario, por nota al pie.
-f) Consignar el número de cédula de las personas físicas o jurídicas que son parte del contrato. En el caso de extranjeros, el número de documento de identificación personal y su clase; en el caso de menores debe indicarse el partido, el tomo y asiento de inscripción del nacimiento en el Registro Civil.
-g) Indicar siempre el número o matrícula y provincia de la finca objeto del acto o contrato.
-h) En cuanto a el Registro Mercantil, las escrituras no deben referirse a más de una sociedad y, si se tratare de reforma de los estatutos de sociedades, deben transcribirse íntegramente las cláusulas reformadas.
-i) En cuanto a documentos otorgados en el extranjero, éstos deberán observar las formalidades de la Ley Orgánica de Notariado y del Código Civil.
-j) Cumplir las demás formalidades que exijan las leyes.
+CAPITULO III
+De los Documentos Registrables
+Artículo 49.—Documentos Registrables. En el Registro Público se inscribirán:
+a) Los títulos de dominio sobre inmuebles.
+b) Aquellos documentos sobre inmuebles en que se constituyan, trasmitan, declaren, modifiquen o extingan derechos de usufructo, uso, habitación, servidumbre, hipotecas y cualesquiera otros derechos reales.
+c) Los que dispongan embargos, restricciones y demás providencias cautelares.
+d) Aquellos títulos en que se consigne el arrendamiento de inmuebles.
+e) Los relativos a propiedad horizontal.
+f) La constitución de las sociedades civiles y mercantiles, sus modificaciones, disolución, fusión y cualesquiera otros actos que de algún modo modifiquen su organización.
+g) Los relativos al registro de personas.
+h) La constitución de las Asociaciones Civiles, sus modificaciones, disolución, fusión y cualesquiera otros actos que de algún modo modifiquen su estructura.
+i) Todo lo relativo a las concesiones de la zona marítimo terrestre y Golfo de Papagayo.
+j) Cualquier otro documento que indique la ley.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 47al 49 actual)

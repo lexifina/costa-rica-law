@@ -1,3 +1,2 @@
-CAPITULO IV
-De los diferentes Registros
-Artículo 19.—Del Registro de la Propiedad Inmueble. El Registro de la Propiedad Inmueble se inscribirá todo lo relativo al título del dominio, a los gravámenes y afectaciones, y cualquier otro derecho o personal que afecten los bienes inmuebles allí inscritos.
+Artículo 19.—Del Departamento del Registro de Asociaciones Este Departamento está constituido por un Jefe y los Registradores dedicados a la registración de todo lo relativo al Registro Asociaciones, para lo cual deberán cumplir lo que establecen los artículos 8 y 9 de Reglamento.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541 del 6 de marzo de 2000, que lo traspasó del antiguo artículo 17 al 19 actual)

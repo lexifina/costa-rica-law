@@ -1,1 +1,2 @@
-Artículo 65.—De la Base de Datos. La base de datos constituye un medio de registración en donde se transcribe el contenido dei e jurídico registral de cada inmueble, sociedad mercantil o civil, persona física, asociación, concesión y cualquier otra inscripción que se lleve a cabo en este Registro, mediante un elemento de unidad, legajo o ficha, en el cual queda satisfecho el principio de especialidad registral.
+Artículo 65.—Forma de registrar la información. El asiento de inscripción se confeccionará registrando la información requerida en cada caso. utilizando los medios técnicos en uso.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 63 al 65 actual)

@@ -1,1 +1,2 @@
-Artículo 40.—Retiro de documentos sin inscribir. Si el interesado en vez de subsanar el defecto o pedir denegación, retira el documento sin inscribir, se cancelarán las anotaciones que haya originado.
+Artículo 40.—Revocatoria de la orden de suspensión de documentos. El Director o el Subdirector bajo su propia responsabilidad pueden revocar la orden de suspensión de inscripción de un documento ordenada por el Registrador, en tal caso ordenará por escrito que la inscripción sea autorizada por el Registrador, cumpliendo así lo estipulado en el artículo anterior.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 38 al 40 actual)

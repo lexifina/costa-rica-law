@@ -1,1 +1,6 @@
-Artículo 28.—Registración de imágenes. La registración de la imagen de los documentos que se presenten al Diario, se hará por los :medios técnicos que el Registro considere pertinentes, a fin de cumplir las de control y publicidad que estos requieren.
+TITULO SEGUNDO
+De la Función Registral
+CAPITULO I
+Del Diario
+Artículo 28.—Orden de presentación. El Registro, por los .procedimientos técnicos de que disponga, llevará un sistema de ordenamiento diario donde se anotará la presentación de los documentos por su orden, asignándoles el número correlativo que le corresponda.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 26 al 28 actual)

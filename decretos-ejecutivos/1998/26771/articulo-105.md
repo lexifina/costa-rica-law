@@ -1,1 +1,2 @@
-Artículo 105.—De la presentación de varios documentos en una sola Boleta de Seguridad. Podrán ser presentados Con una sola Boleta de Seguridad y bajo una misma presentación, varios documentos autorizados por diferentes notarios.
+Artículo 105.—Del extravío de Boleta de Seguridad. Todo Notario deberá reportar de manera inmediata el extravío de Boletas de Seguridad ante la Tesorería del Registro Nacional por ser el responsable. El Registro deberá de informar a la Corte Plena la omisión de esta obligación, de conformidad con lo dispuesto en el artículo 22 de la Ley de Notariado.
+(Así corrida su numeración por el artículo 1° del Decreto Ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 103 al 105 actual)

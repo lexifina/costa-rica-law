@@ -1,1 +1,2 @@
-Artículo 99.—Resolución final por parte del Tribunal respectivo. Una vez resuelto lo que corresponda por el Tribunal Superior Contencioso Administrativo y devuelto el expediente, la Dirección o Subdirección ejecutará la decisión final.
+Artículo 99.—Resolución de la Dirección o de la Subdirección. Una vez vencidas las audiencias conferidas, la Dirección o la Subdirección resolverá dentro del mes siguiente, en resolución debidamente razonada. Esta resolución se notificará al gestionante, así como a los demás interesados que se hubieren apersonado. Para los demás se tendrá por firme 24 horas después de dictada.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 97 al 99 actual)

@@ -1,1 +1,2 @@
-Artículo 80.—Constitución de la cédula si hay hipoteca común. .Mientras no se hubiere cancelado la hipoteca común, no podrá constituirse una hipoteca de cédulas.
+Artículo 80.—Diferencia entre la fórmula de la cédula hipotecaria y el asiento. Si del cotejo de la fórmula de la cédula hipotecaria con su respectivo asiento resultaren incongruencias o diferencias, el Registrador de cédulas hipotecarias denegará la emisión, hasta tanto no se subsanen los errores u omisiones.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 78 al 80 actual)

@@ -1,7 +1,2 @@
-Artículo 48.—Requisitos para que el documento sea recibido en la Oficina del Diario. Para que un documento sea recibido en la Oficina del Diario, debe de haber cumplido los siguientes requisitos:
-a) Haber satisfechos los derechos de registro y timbres correspondientes.
-b) Haber cumplido los requisitos formales requeridos por Ley.
-c) Cuando se trate de cancelación de hipoteca de cédulas, entregar la cédula de previo al Registrador de Cédulas, quien pondrá razón de recibido en el documento y en la cédula.
-d) Indicar la oficina del Registro Público en eme dicho acto o contrato
-e) En los documentos donde se somete un inmueble al régimen de propiedad horizontal, debe contener una razón inserta por el Catastro Nacional, haciendo constar el recibido de los planos y de la copia del documento.
-f) Portar la boleta de seguridad del Notario que autoriza el acto.
+Artículo 48.—Inscripción de vías de ferrocarriles, canales, carreteras, parques y calles públicas. No será necesaria la inscripción en el Registro de la Propiedad Inmueble la propiedad pública de vías de ferrocarril, canales, carreteras, parques y calles públicas. Sin embargo el testimonio de la escritura en donde se constituyen, deberá presentarse al Registro para hacer las referencias y disminución de cabidas en las fincas, con indicación del plano catastrado.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 46 al 48 actual)

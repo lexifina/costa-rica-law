@@ -1,3 +1,2 @@
-CAPITULO IV
-Publicidad Registral, Certificaciones, Informes Regístrala v Cédulas Jurídicas
-Artículo 61.—Publicidad del Registro. La información del Registro es pública. A la Dirección le corresponde determinar el modo en que esta información puede ser consultada, sin riesgo de adulteración, pérdida o deterioro de la misma.
+Artículo 61.—División ,o reunión de fincas. Si el inmueble se dividiera, se confeccionarán tantas nuevas inscripciones y matrículas como fincas resultaren, anotándose en la inscripción primitiva, los números de matrículas de las fincas resultantes. Cuando se reúnan inmuebles, se hará una nueva y única matrícula.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 59 al 61 actual)

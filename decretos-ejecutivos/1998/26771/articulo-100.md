@@ -1,5 +1,2 @@
-TITULO QUINTO
-De los Sistemas de Seguridad
-CAPITULO I
-De la Boleta de Seguridad
-Artículo 100.—De la Boleta de Seguridad. Todo notario debe solicitar a la Tesorería del Registro Nacional un talonario de Boletas de Seguridad, que serán indispensables para la presentación de sus documentos al Departamento de Recepción y Entrega.
+Artículo 100.—Del Recurso de apelación. Contra la resolución final dictada por la Dirección o por la Subdirección procederá el recurso de apelación, que debe interponerse ante cualquiera de éstas oficinas dentro de los cinco días hábiles siguientes, contados a partir del día siguiente de la notificación de la resolución. Presentada en tiempo la apelación, la Dirección o la Subdirección remitirá sin más trámite el expediente a la Sección Tercera del Tribunal Superior Contencioso Administrativo para que proceda de conformidad con la ley número 7274 del 25 de febrero de 1992.
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 28541del 6 de marzo de 2000, que lo traspasó del antiguo artículo 98 al 100 actual)
