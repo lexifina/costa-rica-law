@@ -1,1 +1,0 @@
-Articulo 2°.- A las sesiones del CONAPOPO podrán asistir, por invitación expresa suya, representantes de los entes públicos o privados y, en general, todas aquellas personas que el Consejo estime necesario.

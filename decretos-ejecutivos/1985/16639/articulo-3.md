@@ -1,1 +1,0 @@
-Artículo 3°-Los entes públicos suministrarán al CONAPOPO los estudios, datos e informaciones que éste le solicite para el cumplimiento de sus funciones. Asimismo, el CONAPOPO podrá consultar y solicitar la colaboración de los entes del Sector Privado que trabajen en materia de su interés y cuyos objetivos se ajusten .a las políticas del Estado.
