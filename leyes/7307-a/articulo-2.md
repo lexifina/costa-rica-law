@@ -1,0 +1,14 @@
+ARTICULO II
+A. Tipo de Financiamiento.
+Las ventas de los productos especificados en el Capítulo II se financiarán de acuerdo con el tipo de financiamiento allí indicado. En el Capítulo II también se establecen disposiciones especiales relacionadas con la venta.
+B. Disposiciones de Crédito.
+Las siguientes disposiciones son aplicables a las ventas que se financiarán en dólares en condiciones de crédito como se especifican en el Capítulo II.
+1.- En lo que se refiere a los productos entregados durante cada año calendario al amparo de ese Convenio, el principal del crédito (en adelante denominado principal) consistirá en la cantidad de dólares desembolsados por la Commodity Credit Corporation del País Exportador por concepto de los productos (sin incluir los costos del transporte marítimo).
+El principal se pagará de conformidad con el plan de pagos anunciado en el Capítulo II de este Convenio. La primera amortización vencerá y será pagadera en la fecha que se especifica en el Capítulo II de este Convenio. Las amortizaciones subsiguientes vencerán y serán pagaderas con un intervalo de un año a partir de entonces. Cualquier pago del principal podrá efectuarse antes de la fecha de vencimiento.
+2.- Los intereses sobre el saldo del principal adeudado por concepto de productos entregados en cada año calendario comenzarán a devengarse en la fecha de la última entrega de estos productos en cada año calendario. Los intereses se pagarán a más tardar en la fecha de vencimiento de cada amortización del principal, excepto si la fecha de la primera amortización es más de un año desde la fecha de la última entrega, el primer pago de intereses deberá hacerse a más tardar en la fecha del aniversario de la fecha de la última entrega, y subsiguientemente el pago de los intereses se efectuará anualmente y a más tardar en la fecha de vencimiento de cada amortización del principal.
+3.- Para el período desde la fecha en que comienzan los intereses hasta la fecha de vencimiento de la primera amortización, los intereses se computarán con base en la tasa inicial de intereses que se especifica en el Capítulo II de este Convenio. Subsiguientemente, los intereses se computarán con base en la tasa continuada de intereses que se especifica en el Capítulo II de este Convenio.
+4.- El cómputo de todos los pagos del principal e intereses de conformidad con este convenio, se efectuará en dólares de los Estados Unidos.
+C. Disposiciones de Pago.
+Todos los pagos de los productos financiados bajo condiciones de crédito en dólares serán hechos en dólares de los Estados Unidos.
+D. Depósito de los Pagos.
+El Gobierno del País Importador efectuará o dispondrá que se efectúen los pagos a la Commodity Credit Corporation en dólares al "Treasurer, Commodity Credit Corporation", United States Department of Agriculture, Washington, D.C. 20250-1000, a menos que los dos Gobiernos convengan otro método de pago.
