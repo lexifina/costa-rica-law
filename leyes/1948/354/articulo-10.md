@@ -1,0 +1,2 @@
+Artículo 10.- El Banco ante el cual se hagan los depósitos previstos en este Decreto enviará copias del comprobante de cada uno de ellos al Ministerio de Trabajo y Previsión Social y a la Contabilidad Nacional, y abrirá una cuenta especial en que se anotarán dichos depósitos; mensualmente el Banco deberá informar del estado de la mencionada cuenta.
+San José, a los dos días del mes de noviembre de mil novecientos cuarenta y ocho.

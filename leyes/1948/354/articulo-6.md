@@ -1,0 +1,1 @@
+Artículo 6º.- Los depósitos a que se refieren los artículos anteriores, para que surtan los efectos del artículo precedente, deberán indicar claramente el nombre del trabajador o trabajadores cuyo trabajo originó la obligación que se desea cancelar.

@@ -1,0 +1,1 @@
+Artículo 2º.- En adelante, y en cuanto al Estado como acreedor, no correrá ninguna prescripción, salvo la prescripción decenal, y ejercitará sus derechos una vez que las obligaciones a que esta ley hace referencia estén prescritas para el trabajador.

@@ -1,0 +1,1 @@
+Artículo 7º.- Para el caso de incumplimiento de las disposiciones del presente Decreto, el Ministerio de Trabajo y Previsión Social podrá pedir ante los Tribunales Comunes que se autorice una exhibición de libros, para determinar si existen o no obligaciones, derivadas de la presente ley, pendientes de cumplimiento.
