@@ -1,0 +1,1 @@
+Artículo 39.—El presente Reglamento rige a partir del décimo día de publicación en el Diario Oficial La Gaceta y deroga el anterior Reglamento de la Municipalidad de Paraíso publicado en La Gaceta Nº 170 del día 9 de setiembre de 1991.

@@ -1,0 +1,1 @@
+Artículo 13.—Cada Jefe de Departamento deberá recomendar el remate, venta, canje o salida de circulación de aquellas unidades que por diversas circunstancias han dejado de ser útiles para la institución. El Despacho del Alcalde aprobará o no, luego del respectivo análisis, dicha recomendación.

@@ -1,0 +1,1 @@
+Artículo 34.—Los vehículos de uso discrecional solo podrán ser utilizados para fines atinentes al puesto del funcionario autorizado. No podrán usarse para fines contrarios a la ley, a la moral y a las buenas costumbres.

@@ -1,0 +1,1 @@
+Artículo 16.—Ningún funcionario podrá conducir un tipo de vehículo diferente al autorizado en la licencia de la Municipalidad. Los casos especiales y su respectiva autorización o no, serán analizados por el Jefe del Departamento respectivo junto con el Despacho del Alcalde.

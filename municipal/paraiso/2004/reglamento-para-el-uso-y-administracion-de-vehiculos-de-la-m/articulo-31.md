@@ -1,0 +1,1 @@
+Artículo 31.—El funcionario que tiene asignado un vehículo de uso discrecional debe suministrarle los cuidados apropiados y cumplir igualmente con los programas de mantenimiento establecidos, así como los controles en materia de combustible, lubricantes, llantas, baterías, etc.

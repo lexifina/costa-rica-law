@@ -1,0 +1,1 @@
+Artículo 30.—Este vehículo únicamente podrá ser utilizado por el funcionario autorizado, quien en caso de excepción podrá ceder la conducción a otros funcionarios de la Municipalidad o del Concejo Municipal cuando necesite realizar gestiones de su cargo.

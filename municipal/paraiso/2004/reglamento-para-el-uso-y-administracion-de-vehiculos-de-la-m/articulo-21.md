@@ -1,0 +1,1 @@
+Artículo 21.—Los conductores no deben permitir que personas no autorizadas viajen en los vehículos municipales. Para ello debe mediar una autorización escrita del Despacho del Alcalde o una situación de emergencia.
