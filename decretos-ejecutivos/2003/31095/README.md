@@ -14,3 +14,4 @@ Reforma Reglamento para la Operación de las Actividades de Turismo Aventura
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-31 | la propia norma |
+| 2 | 2003-05-09 | Decreto Ejecutivo 31168 (2003-05-09) |
