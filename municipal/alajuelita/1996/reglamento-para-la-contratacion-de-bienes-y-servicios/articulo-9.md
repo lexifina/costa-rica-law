@@ -1,0 +1,1 @@
+Artículo 9°-De la contratación directa. La Municipalidad realizará contrataciones directas de conformidad con lo establecido por el inciso 4) del artículo 79 del Reglamento General de la Contratación Administrativa o cuando se presenten los demás presupuestos establecidos por el artículo antes referido.

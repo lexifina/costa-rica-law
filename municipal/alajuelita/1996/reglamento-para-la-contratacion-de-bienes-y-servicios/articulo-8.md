@@ -1,0 +1,3 @@
+CAPITULO IV
+De la invitación a los proveedores
+Artículo 8°-Para efectos de lo dispuesto por la Ley de Contratación Administrativa y su Reglamento en cuanto a la invitación a proveedores en procesos de Licitación Pública, por Registro y Licitación Restringida, se seguirá el procedimiento señalado en el Reglamento y en el caso de la Licitación Restringida, cuando la lista de proveedores supere el número de cinco, en el primer concurso se invitará a participar a los cinco primeros inscritos en el Registro de Proveedores, en el segundo concurso se invitará al adjudicatario del concurso anterior y a los cuatro proveedores que sigan en la lista y así sucesivamente a fin de dar igual oportunidad en el transcurso del tiempo a todos los proveedores registrados.

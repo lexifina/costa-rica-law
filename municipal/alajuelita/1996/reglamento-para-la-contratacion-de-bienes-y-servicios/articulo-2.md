@@ -1,0 +1,1 @@
+Artículo 2°-Hasta tanto se establezca una Oficina de Proveeduría, corresponderá a la Dirección Ejecutiva encargarse de todos los trámites atinentes a la contratación de bienes y servicios de la Municipalidad respetando los principios de eficiencia, igualdad, libre competencia y publicidad y las disposiciones de la Ley de Contratación Administrativa y su Reglamento.

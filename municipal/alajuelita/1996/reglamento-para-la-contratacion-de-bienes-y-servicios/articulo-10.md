@@ -1,0 +1,4 @@
+Artículo 10.-Salvo que no exista en el registro de proveedores una persona calificada para la prestación, evento en el cual se procederá a su selección directa, o que en el mismo registro se cuente con un número menor de oferentes, la contratación de bienes y servicios por Contratación Directa atenderá las siguientes disposiciones:
+a) Para las compras menores o iguales al 50% del monto autorizado por la Contraloría General de conformidad con el inciso 79.4.7 del Reg1amento General de la Contratación Administrativa se invitará a 3 proveedores.
+b) Para las compras que superen lo indicado en el punto anterior se invitará a 5 proveedores.
+c) Para la invitación respectiva a los proveedores se seguirá en lo pertinente, el mismo procedimiento establecido en el presente reglamento para la Licitación Restringida.
