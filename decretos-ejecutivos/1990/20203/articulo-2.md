@@ -1,0 +1,1 @@
+Artículo 2°-La Comisión estará adscrita a la Presidencia de la República quien facilitará los medios necesarios para el correcto desempeño de las funciones encomendadas a la Comisión y actuará en coordinación con la Comisión Nacional de Conmemoraciones Históricas.
