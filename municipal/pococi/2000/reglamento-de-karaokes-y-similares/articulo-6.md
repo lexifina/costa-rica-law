@@ -1,0 +1,1 @@
+Articulo 6°—En ningún caso la Administración autorizará el desarrollo de actividades con "karaoke", mas allá de las 12,00 medianoche, con esta hora como limite, deberán cesar completamente todas las actividades de este tipo.

@@ -1,0 +1,1 @@
+Articulo 3°—Toda actividad social con "karaoke" que se programe en establecimientos comerciales, deberá contar con el correspondiente permiso municipal para su realización, en caso de no tener patente.

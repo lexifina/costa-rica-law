@@ -1,0 +1,1 @@
+Artículo 5°—Las solicitudes de permiso para la realización de actividades con "karaoke" en locales comerciales, deberán presentarse con no menos de diez días de anticipación al acto por medio del Departamento de Patentes, que tramitará ante el Concejo la respectiva aprobación o rechazo de acuerdo a lo que en esta materia disponen los artículos 80 y 81 del Código Municipal.
