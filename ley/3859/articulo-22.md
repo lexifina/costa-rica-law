@@ -1,0 +1,1 @@
+Artículo 22.- El Presidente de la Junta Directiva será en todo caso el coordinador del trabajo de ella y tendrá representación judicial y extrajudicial de la asociación, con las facultades de un apoderado general.

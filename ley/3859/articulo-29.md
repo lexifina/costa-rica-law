@@ -1,0 +1,1 @@
+Artículo 29.- Mientras no se haya hecho la inscripción correspondiente, ni las resoluciones ni los documentos sociales de la asociación, producirán efecto legal alguno en perjuicio de terceras personas.

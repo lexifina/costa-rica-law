@@ -1,0 +1,1 @@
+Artículo 20.- Todas las dependencias de la Administración Pública otorgarán a las asociaciones de desarrollo comunal, las facilidades que necesiten para el cumplimiento de sus fines, y los funcionarios y empleados del Poder Ejecutivo quedan obligados a colaborar con ellas dentro de sus atribuciones y posibilidades.

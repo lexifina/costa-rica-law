@@ -1,0 +1,1 @@
+Artículo 30.- Cada localidad tiene derecho a inscribir solamente una asociación para el desarrollo integral. Sin embargo, pueden inscribirse una o más asociaciones para el desarrollo de actividades específicas, siempre que tales actividades sean diferentes para cada asociación.

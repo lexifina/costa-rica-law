@@ -1,0 +1,1 @@
+Artículo 41.- Dos o más asociaciones de desarrollo comunal pueden fusionarse en una sola, formar uniones, federaciones y confederaciones. El reglamento definirá cada uno de estos aspectos e indicará los procedimientos aplicables a cada caso.
