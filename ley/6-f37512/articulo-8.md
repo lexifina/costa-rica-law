@@ -1,2 +1,0 @@
-ARTICULO 8°.-Cada ejemplar de documento privado que se extienda en varios tantos, llevará los sellos correspondientes á la naturaleza y valor del acto para cuya constancia se expide.
-De las letras de cambio solamente el primer ejemplar llevará timbre, quedando exentos los demás. Sin embargo, si hubiere de hacerse uso de cualquiera de éstos, se le fijará el timbre al verificarse el pago cuando no se agregue el primer ejemplar timbrado.

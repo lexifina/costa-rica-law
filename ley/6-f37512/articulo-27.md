@@ -1,1 +1,0 @@
-ARTICULO 27.-Sin embargo de lo dicho antes, se admitir n en las oficinas públicas los documentos de que hablan los artículos precedentes, si el interesado presentare junto con ellos el valor de la multa en timbres que el jefe de la oficina adherir al documento y cancelar en forma, poniendo de todo la respectiva constancia en el expediente y en el documento.

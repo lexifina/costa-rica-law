@@ -1,2 +1,0 @@
-ARTICULO 5°.-Si todos los primeros testimonios que se expidan fueren para constancia de un mismo‚ idéntico acto, el timbre se adherirá á cualquiera de los que deben inscribirse en el Registro Público. Cuando ninguno de los testimonios por su naturaleza estuviere destinado inscribirse, o cuando todos tengan ese objeto, el timbre se fijará en cualquiera de ellos.
-En todos los casos de este artículo, los testimonios que no llevaren timbre indicarán cuál es el testimonio en que los sellos fueron fijados.

@@ -1,1 +1,0 @@
-ARTICULO 10.-Los efectos de giro librados en el extranjero, que no deban pagarse en Costa Rica, podrán ser negociados sin el requisito de timbre; pero caso de protesto, el poseedor de ellos deberá timbrarlos antes de la notificación de esa diligencia.

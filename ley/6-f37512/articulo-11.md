@@ -1,1 +1,0 @@
-ARTÍCULO 11.-Cuando en el lugar en que deba hacerse uso del timbre no lo hubiere de venta, se expresar as¡ en el testimonio, si fuese instrumento público, o en el original en los demás casos. En uno y otro caso, para que el documento surta efecto, deberá agregársele el timbre respectivo dentro de los ocho días siguientes.
