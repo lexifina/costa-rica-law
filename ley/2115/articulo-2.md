@@ -1,0 +1,1 @@
+Artículo 2º.- La ejecución de todas las medidas y actividades científicas de la campaña de erradicación del paludismo, estará bajo la responsabilidad directa del Ministerio de Salubridad Pública, por medio de su Departamento de Lucha contra Insectos Trasmisores de Enfermedades.
