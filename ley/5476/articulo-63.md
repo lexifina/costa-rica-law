@@ -1,0 +1,1 @@
+Artículo 63.- La reconciliación de los cónyuges le pone término al juicio si no estuviere concluido y deja sin efecto la ejecutoria que declare la separación. En ambos casos los cónyuges deberán hacerlo saber conjuntamente. En cuanto a bienes se mantendrá lo que disponga la resolución, si la hubiere.

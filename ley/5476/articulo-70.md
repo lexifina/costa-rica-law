@@ -1,0 +1,2 @@
+Artículo 70.- En contra de la presunción del artículo anterior, es admisible prueba de haber sido imposible al marido la cohabitación fecunda con su mujer en la época en que tuvo lugar la concepción del hijo.
+El adulterio de la mujer no autoriza por sí mismo al marido para desconocer al hijo; pero si prueba que lo hubo durante la época en que tuvo lugar la concepción del hijo, le será admitida prueba de cualquiera otros hechos conducentes a demostrar su no paternidad.

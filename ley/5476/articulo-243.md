@@ -1,0 +1,3 @@
+Artículo 243.- Para los efectos indicados en el artículo anterior, cualquiera de los convivientes o sus herederos podrá solicitar al Tribunal el reconocimiento de la unión de hecho. La acción se tramitará por la vía del proceso abreviado, regulada en el Código Procesal Civil, y caducará en dos años a partir de la ruptura de la convivencia o de la muerte del causante.
+(Así adicionado por el artículo 1° de la ley No.7532 del 8 de agosto de 1995, “Adiciona Código de Familia para Regular la Unión de Hecho”)
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 230 al 243)

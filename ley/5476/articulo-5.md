@@ -1,0 +1,4 @@
+Artículo 5º.- La protección especial de las madres y de los menores de edad estará cargo del Patronato Nacional de la Infancia, con la colaboración de las otras instituciones del Estado.
+En todo asunto en que aparezca involucrado un menor de edad, el órgano administrativo o jurisdiccional que conozca de él, deberá tener como parte al Patronato, siendo causa de nulidad relativa de lo actuado, el hecho de no habérsele tenido como tal, si se ha causado perjuicio al menor a juicio del Tribunal.
+Al Director Ejecutivo y a los representantes del Patronato Nacional de la Infancia les está prohibido, bajo pena de perder sus respectivos cargos, patrocinar, directa o indirectamente, en el ejercicio de su profesión, en instancias judiciales o administrativas, en sus respectivas jurisdicciones, asuntos de familia en que haya interés de menores.
+(Así reformado por el artículo 1º de la ley Nº 6045 de 14 de marzo de 1977).

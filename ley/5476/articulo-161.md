@@ -1,0 +1,5 @@
+Artículo 161.- Depósito de menores en estado de abandono.
+Las personas menores de edad declaradas judicialmente en estado de abandono serán puestas bajo la custodia del PANI, que tendrá su representación legal. El PANI depositará, en una institución adecuada o con una persona o familia idóneas, a los menores cuyo padre y madre sólo han sido suspendidos en el ejercicio de la patria potestad. El depósito podrá gestionarse en el mismo expediente donde se tramita la declaratoria de abandono. En los demás casos, gestionará la adopción o promoverá la tutela de la persona menor de edad.
+Cuando una persona interesada en la adopción haya gestionado la declaratoria de abandono y la consecuente pérdida de la patria potestad, podrá gestionar, en el mismo expediente, el depósito del menor de edad, mientras se concluyen los trámites de la adopción.
+(Así reformado por el artículo 3 de ley No.7538 del 22 de agosto de 1995)
+(Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 148 al 161)

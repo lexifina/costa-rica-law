@@ -1,0 +1,1 @@
+Artículo 29.- En caso de peligro de muerte de uno de los contrayentes, podrá procederse a la celebración del matrimonio aún sin llenarse los requisitos de que hablan los artículos anteriores; pero mientras no se cumpla con esas exigencias ninguno de los interesados podrá reclamar los derechos civiles procedentes de ese matrimonio.

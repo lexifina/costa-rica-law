@@ -1,0 +1,1 @@
+Artículo 32.- El funcionario ante quien se tramiten las diligencias previas al matrimonio podrá bajo su responsabilidad, dispensar la publicación del edicto a que se refiere el artículo 25, si de los documentos que se le presentan resulta que los contrayentes no tienen impedimento para contraer matrimonio.

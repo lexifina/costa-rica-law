@@ -1,0 +1,1 @@
+Artículo 88.- El hijo mayor de edad no puede ser reconocido sin su consentimiento. Si hubiera habido falsedad o error en el mismo, podrá impugnarlo dentro de los dos años siguientes al conocimiento de esa circunstancia.

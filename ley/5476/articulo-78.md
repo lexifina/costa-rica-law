@@ -1,0 +1,2 @@
+Artículo78.- Sobre la filiación no puede haber transacción ni compromiso en árbitros, pero puede haber transacción o arbitramento sobre los derechos pecuniarios que de la filiación legalmente declarada pudiere deducirse, sin que las concesiones que se hagan al que se dice hijo, importen la adquisición de ese estado, ni las que haga éste importen renuncia de su filiación.
+La transacción o el compromiso tratándose de menores de edad u otros incapaces, requieren aprobación del Tribunal.
