@@ -13,3 +13,4 @@ Recaudación y Distribución Impuesto de $1.00 por Caja Banano Exportado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-10-01 | la propia norma |
+| 2 | 1985-10-01 | Decreto Ejecutivo 16755 (1985-09-30) |
