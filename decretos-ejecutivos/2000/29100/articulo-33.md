@@ -1,1 +1,0 @@
-Artículo 33.-La Asociación deber de establecer políticas de estabilidad laboral de sus trabajadores, su relación se regir por los derechos, deberes y obligaciones entre trabajadores y patronos que establece el Código de Trabajo.

@@ -1,1 +1,0 @@
-Artículo 30.-Cada ente operador deber contratar a un contador privado debidamente incorporado al respectivo Colegio, quien deber poseer al menos dos años de experiencia profesional, lo cual debe ser acreditado con los respectivos documentos.
