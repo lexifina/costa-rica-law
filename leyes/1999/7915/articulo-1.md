@@ -1,0 +1,15 @@
+N° 7915
+REFORMA DEL ARTÍCULO 2 DE LA LEY No. 5582,
+DE 1 DE OCTUBRE DE 1974, REFORMADO POR
+EL ARTÍCULO 8 DE LA LEY No. 6309, DE 4 DE ENERO DE 1979
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+Artículo 1.- Refórmase el artículo 2 de la Ley No. 5582, de 11 de octubre de 1974, reformado por el artículo 8 de la Ley No. 6309, de 4 de enero de 1979. El texto dirá:
+"Artículo 2.- (...)
+Decláranse como zona portuaria reservada para fines de interés público, los terrenos comprendidos dentro de los límites descritos en el siguiente párrafo, de conformidad con la proyección Lambert, Costa Rica Norte.
+Partiendo de la intersección del eje paralelo 212.700 con la línea de bajamares inferiores, se continúa sobre este eje paralelo en sentido Este, hasta interceptar el lindero de margen izquierdo del derecho de vía de la Ruta Nacional Nº 23 en sentido El Roble de Puntarenas a puerto Caldera. Se continúa sobre este lindero de margen izquierdo en sentido sur-este, hasta la intersección de esta línea con el punto definido por la intersección del eje meridiano 458.200 y el eje paralelo 210.860. Se continúa sobre este eje meridiano en sentido Sur, hasta interceptar el eje paralelo 210.000. Se sigue sobre este eje paralelo, en sentido oeste, hasta interceptar la línea de bajamares inferiores. Se continúa sobre esta línea hasta su intersección con el paralelo 212.700. En este límite, se exceptúa la sección de línea de bajamares inferiores que ingresa al estero de Mata de Limón y sale de ahí.
+Asimismo, dentro de la zona portuaria reservada se mantienen los terrenos ubicados en el cerro de Mata de Limón, ubicado al sur del poblado del mismo nombre, que a esta fecha están en posesión o propiedad del Ministerio de Obras Públicas y Transportes, el Instituto Costarricense de Electricidad y el Instituto Costarricense de Puertos del Pacífico, ya que, por su localización elevada, son necesarios para los servicios de ayuda a la navegación, las telecomunicaciones y el agua potable para el complejo portuario de Caldera y las poblaciones circundantes.
+En esta zona portuaria reservada, el Ministerio de Obras Públicas y Transportes está autorizado para ejecutar las obras de infraestructura necesarias para ampliar dicho Puerto, incluidas las obras costeras que se requieran para conservar, mantener o proteger las instalaciones y facilidades del puerto de Caldera.
+Los terrenos incluidos en la zona portuaria reservada, creada por las leyes Nº 5582 y Nº 6309 se regirán por la Ley sobre la Zona Marítimo-Terrestre Nº 6043, del 2 de marzo de 1977.
+Con el fin de asegurarse el adecuado desarrollo urbano, social y ambiental de las zonas circunvecinas de la zona portuaria reservada, la Municipalidad de Esparza elaborará un plan regulador y de ordenamiento urbano, que incluya la zona desafectada en virtud de la aprobación de la presente ley. Para elaborar y aplicar este plan dicha Municipalidad y las instituciones públicas involucradas se regirán por la Ley de Planificación Urbana, Nº 4240, del 15 de noviembre de 1968."
