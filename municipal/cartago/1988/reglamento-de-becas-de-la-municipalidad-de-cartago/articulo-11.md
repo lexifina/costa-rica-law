@@ -1,1 +1,0 @@
-Artículo 11.-La Comisión de Educación confeccionará las fórmulas que establece el artículo 4° de este Reglamento, las pondrá a disposición de los interesados en el mes de noviembre de cada año y deberán entregarlas a la secretaría de comisiones a mas tardar en la última quincena del mes de enero. La Comisión deberá dictaminar a más tardar en la última quincena del mes de febrero.

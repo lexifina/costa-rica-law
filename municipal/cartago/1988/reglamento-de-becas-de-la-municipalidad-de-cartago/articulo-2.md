@@ -1,1 +1,0 @@
-Artículo 2°-Las becas adjudicadas serán para realizar estudios en el país y exclusivamente para estudiantes de secundaria y educación superior. Asimismo podrán beneficiarse aquellas personas que realizan cursos en escuelas comerciales reconocidas por el Ministerio de Educación Pública.

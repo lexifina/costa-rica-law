@@ -1,4 +1,0 @@
-MUNICIPALIDAD DE CARTAGO
-Según acuerdo tomado por el Concejo del cantón Central de Cartago, acta número 277, artículo 15, sesión celebrada el 21 de marzo de 1988, se acuerda publicar con carácter definitivo los reglamentos de: otorgamiento de becas municipales, administración de los servicios municipales y el de uso y utilización de la plaza y calzada coloniales, cuyos textos se anexan:
-REGLAMENTO DE BECAS
-Artículo 1° -La Municipalidad de Cartago, otorgará becas anuales a estudiantes de escasos recursos económicos, consistentes en dinero efectivo. El monto de la ayuda económica será determinada por el Concejo mediante acuerdo. El estudio, análisis y recomendaciones de los beneficiarios, será realizado por la Comisión de Educación y la aprobación, modificación o improbación del informe lo hará el Concejo, requeriendo para esos efectos una votación de mayoría simple.
