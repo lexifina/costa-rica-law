@@ -1,0 +1,1 @@
+ARTÍCULO 6°. -En los pueblos donde hubiere mas de un Directorio, los restantes serán presididos por un ciudadano que el Gobernador Político comisione para tal objeto, y que tenga las cualidades que determina el art. 139 de la Constitución.

@@ -1,0 +1,1 @@
+ARTÍCULO 13.-Hecho esto se proceder a la elección de Alcaldes constitucionales y Procuradores Síndicos por el orden numérico conforme dispone el art. 1° La votación debe ser nominal y en la forma del modelo indicado.

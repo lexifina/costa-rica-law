@@ -1,0 +1,1 @@
+Artículo 10.-Luego que se haya concluido la votación, el Directorio computar los sufragios, tendrá por electos los que hayan reunido mayor número y autorizando el acta en papel del sello 4° 1a clase, publicar el resultado y se disolver.
