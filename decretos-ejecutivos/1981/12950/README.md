@@ -15,3 +15,4 @@ Crea Comisión de Oleaginosas
 | --- | --- | --- |
 | 1 | 1981-09-23 | la propia norma |
 | 2 | 1982-03-18 | Decreto Ejecutivo 13468 (1982-03-18) |
+| 3 | 1989-03-28 | Decreto Ejecutivo 19002 (1989-03-28) |
