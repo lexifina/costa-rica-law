@@ -1,6 +1,6 @@
 # Ley sobre División Territorial Municipal
 
-Ley N° 56 del 1909-06-04. SINALEVI, ficha 69034: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=69034&param2=82770&param3=1>.
+Ley N° 56 del 1909-06-04. SINALEVI, ficha 69034: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=69034&param2=82967&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 4 | 1909-06-14 | Ley 56 | 1909-06-04 |
 | 2 de 4 | 1950-07-08 | Ley 1185 | 1950-07-08 |
 | 3 de 4 | 1961-07-27 | Ley 2789 | 1961-07-18 |
+| 4 de 4 | 1969-09-02 | Ley 4366 | 1969-08-05 |
