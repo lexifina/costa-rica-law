@@ -1,0 +1,1 @@
+Artículo 6°-Del 8 al 12 de agosto de cada año, la Comisión de Hacienda y Presupuesto convocará a reunión a los jefes de departamentos y a las comisiones municipales para analizar los egresos del año siguiente.

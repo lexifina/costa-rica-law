@@ -1,0 +1,1 @@
+Artículo 2°-Del 17 al 24 de junio de cada año, el Secretario de la Comisión de Hacienda y Presupuesto, solicitará a los departamentos, comisiones y síndicos municipales, manifestar por escrito sus peticiones para la elaboración del presupuesto siguiente.

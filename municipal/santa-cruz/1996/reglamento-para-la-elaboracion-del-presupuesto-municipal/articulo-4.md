@@ -1,0 +1,1 @@
+Artículo 4°-Del 18 al 29 de julio de cada año, el Ejecutivo y el Contador solicitarán al Instituto de Fomento y Asesoría Municipal y a la Contraloría General de la República, información sobre los posibles ingresos para el año siguiente, asimismo se estimarán los posibles ingresos internos de la municipalidad.
