@@ -2,6 +2,7 @@ DECRETO
 N° 25830-MP
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE LA PRESIDENCIA
+(La Sala Constitucional mediante resolución N° 326-98 del 20 de enero de 1998, anulo el Decreto Ejecutivo N° 25949 del 09 de abril de 1997, que derogo este Decreto, recobrando este su vigencia, según dictámen de la Procuraduría General de la República N° C-026 del 05 de febrero del 2009.)
 En uso de las facultades que les confieren los artículos (sic: debe entenderse incisos) 3, 18 y 20 del artículo 140 de la Constitución Política y artículo 28 párrafo 2, inciso b) de la Ley General de La Administración Pública y el numeral 34 de la Ley 7395 del 3 de mayo de 1994,
 Considerando:
 1°- Que mediante Ley 7395 de 3 de mayo de 1994 se promulgó la Ley de Loterías en la que se autoriza la creación del Juego Crea.

@@ -14,3 +14,4 @@ Reforma Reglamento del Juego Crea
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-02-26 | la propia norma |
+| 2 | 1998-01-20 | SINALEVI (sin norma nombrada) |
