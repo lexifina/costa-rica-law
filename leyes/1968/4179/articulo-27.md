@@ -1,5 +1,8 @@
-Artículo 27.—Las cooperativas de transporte pueden ser de tres clases:
-a) De transporte de pasajeros organizadas por concesionarios, usuarios y vecinos de las comunidades. Las cooperativas gozarán de prioridad en la adjudicación de rutas y líneas que se liciten por el aumento de los usuarios o de las necesidades;
-b) De servicio público, organizadas por propietarios de taxímetros, propiedad de los trabajadores o taxistas que tengan como medio de vida este servicio al público;
-c) De transporte de mercaderías, productos y materiales, organizadas por transportistas propietarios y trabajadores en esa rama de servicio- cuando las necesidades así lo demanden, las modalidades de las cooperativas señaladas en los incisos a), b) y c) de este articulo, podrán combinarse para formar una asociación cooperativa.
-Las cooperativas de transporte podrán contratar préstamos para construir almacenes de suministro, propios de su actividad, instalar estacione, de servicio, talleres, oficinas y satisfacer cualquiera otra necesidad propia de su giro.
+Artículo 27.— Las cooperativas de transporte, serán de tres clases:
+a) De transporte de pasajeros: Organizadas por concesionarios, usuarios y vecinos de las comunidades.
+Estas cooperativas tendrán prioridad en la adjudicación de las rutas y líneas que se liciten, por el aumento en la demanda de los servicios, o de las necesidades. No tendrán limitación en la concesión de líneas, permisos, o rutas; ni les será aplicable el artículo 11 de la Ley Reguladora de Transporte Remunerado de Personas en Vehículos Automotores.
+b) De servicio público: Organizadas por trabajadores propietarios de taxímetros, o taxistas que tengan este servicio público como medio de vida.
+c) De transporte de mercaderías, productos y materiales: Organizadas por trasportistas propietarios y trabajadores de esa rama de servicio.
+Cuando la necesidad así lo demande, las modalidades de las cooperativas señaladas en los incisos a), b) y c) de este artículo, podrán combinarse, para formar una asociación cooperativa.
+Las cooperativas de transporte podrán contratar préstamos, para construir almacenes de suministros, propios de su actividad; instalar estaciones de servicio, talleres, oficinas; y para satisfacer cualquier otra necesidad, propia de sus fines.
+(Así reformado por el artículo 1° de la ley N° 6666 del 18 de setiembre de 1981)
