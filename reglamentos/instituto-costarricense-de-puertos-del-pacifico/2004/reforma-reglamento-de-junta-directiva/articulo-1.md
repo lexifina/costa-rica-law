@@ -1,0 +1,4 @@
+INSTITUTO COSTARRICENSE DE PUERTOS DEL PACÍFICO
+REGLAMENTO DE JUNTA DIRECTIVA
+El Instituto Costarricense de Puertos del Pacífico avisa que la Junta Directiva de esta Institución, mediante acuerdo Nº 5 tomado en la sesión Nº 3224, celebrada el día 5 de febrero del año en curso, acordó modificar el artículo 7, párrafo final del Reglamento de Junta Directiva, el cual indicará lo siguiente:
+Artículo 7º—Extraordinariamente la Junta Directiva se reunirá cada vez que sea convocada por el Presidente Ejecutivo y con veinticuatro horas de anticipación como mínimo, y en los casos sólo estrictamente necesarios para conocer asuntos especiales o urgentes que requieren por su índole atención inmediata, o excepcionalmente para conocer algún asunto ordinario cuando las circunstancias así lo exijan. Dicha convocatoria podrá hacerse en forma verbal, correo electrónico o por cualquier otro medio existente que pueda ser verificable.
