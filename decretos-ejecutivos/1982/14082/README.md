@@ -51,3 +51,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 36 | 1999-08-24 | Decreto Ejecutivo 28096 (1999-08-24) |
 | 37 | 2000-01-24 | Decreto Ejecutivo 28426 (2000-01-24) |
 | 38 | 2000-05-15 | Decreto Ejecutivo 28648 (2000-05-15) |
+| 39 | 2001-07-10 | Decreto Ejecutivo 29643 (2001-07-10) |

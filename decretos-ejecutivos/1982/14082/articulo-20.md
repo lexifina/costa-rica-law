@@ -6,8 +6,8 @@ Administración Tributaria, pero la falta de tales formularios no los
 libera de la obligación de pagar el impuesto y las multas y recargos por
 no presentación o mora, que correspondan.
 La declaración jurada de las ventas efectuadas durante un mes,
-deberá ser presentada a más tardar el último día del mes siguiente al que
-se refiere la declaración.
+deberá ser presentada a más tardar el decimoquinto día natural del mes
+siguiente al que se refiere la declaración
 La obligación de presentar la declaración subsiste aún cuando no se
 pague el impuesto, o cuando la diferencia entre el débito fiscal y el
 crédito fiscal represente un saldo a favor del contribuyente.
@@ -17,3 +17,5 @@ operaciones efectuadas por tales establecimientos y las correspondientes
 a la casa matriz.
 ( Así reformado por el artículo 7º del Decreto Nº 24775 de 23 de
 noviembre de 1995).
+(Así reformado su párrafo segundo por el inciso 2) del artículo 7 del
+Decreto Ejecutivo N° 29643 de 10 de julio del 2001).

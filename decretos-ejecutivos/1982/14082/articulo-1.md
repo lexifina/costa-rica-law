@@ -131,3 +131,14 @@ fin de ordenar la recaudación de impuesto a nivel de fábrica,
 aduana o mayorista.
 ( Adicionado este inciso por el artículo 1º del Decreto Nº 24775 de
 23 de noviembre de 1995).
+30) "Servicio de radiolocalizadores, radiomensajes y similares": Es el servicio de busca personas,
+y envío de mensajes, realizado mediante sistema de radiocomunicación y similares en una o más vías,
+independientemente del dispositivo utilizado para el disfrute del servicio.
+31) "Primas de seguro": Importe que de una vez o periódicamente paga el asegurado al
+Instituto Nacional de Seguros, o al ente autorizado por éste o por la ley.
+32) "Servicio de estacionamiento transitorio de mercancías": Es el servicio que brindan las empresas autorizadas
+por la Dirección General de Aduanas para el depósito aduanero de vehículos, unidades de transporte
+y sus cargas, hasta por un plazo máximo de ocho días hábiles, siempre y cuando permanezcan
+bajo precinto aduanero.
+(Así adicionados los incisos 30), 31) y 32), por el inciso 1) del artículo 7 del Decreo Ejecutivo N° 29643
+de 10 de julio del 2001).
