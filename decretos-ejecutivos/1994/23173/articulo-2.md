@@ -1,0 +1,1 @@
+Artículo 2°-El aporte que hagan los bancos comerciales, privados y los que integran el Sistema Bancario Nacional a que hace referencia el artículo anterior, podrá ser deducido del imponible del impuesto sobre la renta, conforme a la ley.
