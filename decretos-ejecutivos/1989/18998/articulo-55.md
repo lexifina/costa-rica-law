@@ -1,3 +1,0 @@
-ARTICULO 55.- Los vocales sustituirán temporalmente, por su orden, a los miembros de junta directiva, excepto al presidente que será sustituido por el vicepresidente. En caso de ausencia del presidente y del vicepresidente en las sesiones de junta directiva, los vocales los
-sustituirán temporal mente y por su orden, y se realizará la sesión, siempre y cuando se cuente con el quórum mínimo de cuatro miembros.
-Además cumplirán las funciones que les asigne el estatuto y la junta directiva. La vacante que deje algún miembro de la junta directiva, deberá ser llenada dentro del plazo máximo de dos meses, por medio de Asamblea General.

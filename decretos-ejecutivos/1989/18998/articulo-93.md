@@ -1,1 +1,0 @@
-ARTICULO 93.- Corresponde a la Dirección determinar, de acuerdo con el artículo 31 de la ley, cuáles asociaciones son representativas de la comunidad correspondiente. Hecha esa determinación, se denegará la inscripción en el Registro de cualquier otra que solicite tal inscripción.

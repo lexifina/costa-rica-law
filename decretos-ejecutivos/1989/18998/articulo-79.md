@@ -1,1 +1,0 @@
-ARTICULO 79.- Los fines y propósitos de las uniones cantonales y zonales, federaciones y de la Confederación son los mismos que los expresados para las asociaciones de desarrollo integral, con la diferencia de que cada una de ellas tratará de realizarlos, conforme con la ley, el reglamento y los estatutos, en el ámbito territorial establecido.

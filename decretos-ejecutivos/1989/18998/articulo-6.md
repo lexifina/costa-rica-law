@@ -1,1 +1,0 @@
-ARTICULO 6º.- El Director, los jefes de división y departamentos y los directores regionales, formarán el Comité Técnico. El Director será el presidente nato del Comité. Las funciones y atribuciones de dicho Comité se establecerán mediante una circular que elaborará él mismo dentro de los dos meses posteriores a la publicación del presente reglamento.

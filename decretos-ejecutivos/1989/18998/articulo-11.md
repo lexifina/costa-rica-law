@@ -1,1 +1,0 @@
-ARTICULO 11.- Para el cumplimiento de sus fines, el Consejo se regirá por las disposiciones de la ley Nº 3859 y su reglamento; la Ley General de la Administración Pública, en su título segundo, capítulo tercero, artículos 49 a 58; y por el Reglamento del Consejo Nacional de Desarrollo de la Comunidad.

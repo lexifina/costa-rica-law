@@ -1,2 +1,0 @@
-Disposiciones Varias
-ARTICULO 91.- Son aplicables a las asociaciones de desarrollo de la comunidad todas las disposiciones anteriores, pero, si en el proceso de constitución o en su funcionamiento posterior, se cometieren irregularidades o hubiere que establecer procedimientos no previstos en la ley o en el reglamento, la Dirección queda facultada, previa consulta al Comité Técnico, para implantarlos y aquilatar y resolver lo que sea más conveniente, de conformidad con las leyes y, tomando en consideración los fines que persigue el desarrollo de la comunidad.

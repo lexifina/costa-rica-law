@@ -1,1 +1,0 @@
-ARTICULO 80.- Las asociaciones de desarrollo específico, podrán formar parte de la unión cantonal o zonal de la jurisdicción, haciéndose representar en la asamblea constitutiva, o afiliándose posteriormente, mediante solicitud dirigida a la junta directiva de la Unión, incluyendo una copia del acuerdo de la asamblea que autorizó la afiliación.

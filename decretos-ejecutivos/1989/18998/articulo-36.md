@@ -1,1 +1,0 @@
-ARTICULO 36.- La junta directiva puede decretar la desafiliación de un asociado en los casos del artículo anterior, o cuando considere que en alguna forma este daña las actividades de la asociación. El acuerdo respectivo debe estar bien fundamentado y ratificado por la asamblea general.
