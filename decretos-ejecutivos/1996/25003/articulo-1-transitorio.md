@@ -1,0 +1,2 @@
+Transitorio.-Por única vez, la presentación del informe anual de actividades correspondiente al período fiscal ordinario 1995 podrá hacerse en tiempo hasta el 31 de marzo de 1996. Las empresas con período fiscal especial autorizado por la Administración Tributaria se regirán por el plazo de 4 meses indicado en este Decreto.
+Dado en la Presidencia de la República.-San José, a los veintiún días del mes de febrero de mil novecientos noventa y seis

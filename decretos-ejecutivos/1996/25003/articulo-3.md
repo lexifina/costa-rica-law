@@ -1,0 +1,2 @@
+Artículo 3°-Transcurrido el plazo indicado sin que el informe haya sido presentado en forma completa, la Corporación de la Zona Franca de Exportación suspenderá temporalmente a la empresa infractora el otorgamiento de autorizaciones relativas al tránsito o trasiego de materias y mercancías y demás operaciones indicadas en los Títulos Sétimo y Octavo del Reglamento de la Ley de Régimen de Zonas Francas.
+La suspensión temporal será inmediatamente levantada por la Corporación una vez que tenga por recibido en forma completa el informe anual de actividades.

@@ -1,0 +1,1 @@
+Artículo 2°-El informe anual de actividades deberá ser presentado dentro de los cuatro meses siguientes a la terminación del período fiscal ordinario o del período fiscal especial, esto último tratándose de empresas que tengan período fiscal especial autorizado por la Dirección General de Tributación Directa.

@@ -1,0 +1,1 @@
+Artículo 4°-La suspensión temporal a que se refiere este Decreto Ejecutivo se entiende sin perjuicio de las multas o la eventual revocatoria del otorgamiento del régimen de zona franca que puedan resultar aplicables, de conformidad con la ley.
