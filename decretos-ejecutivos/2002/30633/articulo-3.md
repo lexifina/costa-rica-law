@@ -1,0 +1,1 @@
+Artículo 3º—El traslado de los funcionarios en los términos indicados en el artículo segundo, se hará efectivo de acuerdo con un cronograma de traslados, que asegure la atención de las tareas prioritarias de la administración y permita al MEIC la realización de los ajustes presupuestarios destinados a garantizar el recurso humano necesario para el LACOMET.
