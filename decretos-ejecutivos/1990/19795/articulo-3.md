@@ -1,0 +1,1 @@
+Artículo 3°— La Policía de Asuntos Internos funcionará bajo el mando del Viceministro de la cartera y el Ministro en recurso de alzada, y para el desenvolvimiento de sus funciones contará con el apoyo de las diferentes direcciones, comisarías y demás dependencias que conforman el sistema policial.
