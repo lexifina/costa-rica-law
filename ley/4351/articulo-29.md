@@ -1,5 +1,6 @@
 Artículo 29.- El Banco establecerá oficinas regionales en las siguientes regiones:
-a) Del Pacífico Sur;
+a) Del Pacífico Sur y del Norte.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 4532 del 14 de enero de 1970)
 b) De Limón;
 c) De Guanacaste;
 d) Del Norte; y
