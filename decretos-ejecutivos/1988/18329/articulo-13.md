@@ -1,0 +1,1 @@
+ARTICULO 13.-Las municipalidades respectivas, la Guardia de Asistencia Rural y el Ministerio de Salud, a través de sus inspectores, deberán vigilar que los establecimientos que regula el presente Reglamento, funcionen de conformidad con él. Ante cualquier falta, levantarán la información correspondiente para aplicar las sanciones del caso.

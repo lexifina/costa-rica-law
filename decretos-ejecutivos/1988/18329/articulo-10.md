@@ -1,0 +1,1 @@
+ARTICULO 10.-El Ministerio de Gobernación y Policía no podrá extender el permiso en el ramo de su competencia, si previamente el Ministerio de Salud, no ha otorgado el correspondiente permiso de funcionamiento.

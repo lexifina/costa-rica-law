@@ -1,0 +1,1 @@
+ARTICULO 12.-El Ministerio de Salud podrá cancelar o suspender el permiso sanitario de funcionamiento, o bien clausurará las instalaciones en forma total, parcial o definitiva de los establecimientos que no reúnan las condiciones mínimas sanitarias.
