@@ -1,0 +1,1 @@
+Artículo 110.—Previa coordinación con el Alcalde, la Municipalidad otorgará permiso con goce de salario a tres miembros de la Junta Directiva del Sindicato para realizar actividades propias de la organización. Las partes se pondrán de acuerdo el día que gozarán de dicha licencia, previa solicitud ante el Alcalde Municipal y con 72 horas de anticipación y previa aprobación.

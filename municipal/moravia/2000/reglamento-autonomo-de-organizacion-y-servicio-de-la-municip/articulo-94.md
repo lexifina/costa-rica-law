@@ -1,0 +1,1 @@
+Artículo 94.—El contrato por disponibilidad formará parte del expediente del trabajador, así como todos aquellos movimientos que por tal motivo se produjeron. A estos trabajadores la Municipalidad reconocerá una suma adicional del 20% sobre el salario base.

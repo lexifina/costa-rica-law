@@ -1,0 +1,1 @@
+Artículo 23.—En el evento de que un trabajador se encuentre física o mentalmente limitado a causa de un riesgo del trabajo o enfermedad del trabajo para desempeñar sus labores habituales, la Municipalidad podrá reubicarlo en un puesto de la misma categoría de sueldo.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Variantes al contrato de trabajo
+Artículo 16.—A ningún trabajador se le podrá modificar su categoría en perjuicio moral o económico del mismo. Sin embargo, la Municipalidad podrá modificar la categoría en caso de desastres naturales. Si el trabajador que en caso de variación o modificación de su categoría, encontrara que se violentan sus derechos, podrá solicitar la intervención de la Junta de Relaciones Laborales, sin embargo, su resolución, no será vinculante. Una vez superada la situación de emergencia (desastres naturales) el trabajador volverá a laborar en el puesto que ocupaba en su misma categoría y derechos.

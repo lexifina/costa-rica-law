@@ -1,0 +1,3 @@
+Artículo 37.—Al beneficio anterior sólo podrán acogerse cinco funcionarios por año y sus extremos legales serán cancelados de acuerdo a su orden de presentación al Alcalde Municipal.
+a) Para hacerse acreedor de la renuncia el trabajador deberá presentarla ante el Despacho del señor Alcalde Municipal, con no más de dos meses de antelación, y la administración deberá de resolver su solicitud en un plazo no mayor de 30 días naturales. De no obtener respuesta en el plazo supracitado, esta se tendrá por aprobada.
+b) El trabajador que se acoja a este artículo no podrá reintegrarse a laborar para esta Municipalidad durante un período de cinco años.

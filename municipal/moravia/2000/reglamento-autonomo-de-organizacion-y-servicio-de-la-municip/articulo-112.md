@@ -1,0 +1,1 @@
+Artículo 112.—Se dará licencia a un funcionario hasta por un mes con goce de salario para estudios sindicales y administrativos en beneficio de la Municipalidad, debidamente comprobado y a juicio del señor Alcalde.

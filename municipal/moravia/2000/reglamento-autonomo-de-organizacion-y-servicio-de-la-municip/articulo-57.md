@@ -1,0 +1,1 @@
+Artículo 57.—La Institución comunicará a la Dirección e Inspección General de Trabajo del Ministerio de Trabajo y Seguridad Social, Defensoría de los Habitantes, la existencia de la denuncia, y la resolución a la que se llegó, una vez concluido el procedimiento.

@@ -1,0 +1,3 @@
+CAPÍTULO XXV
+De la disponibilidad
+Artículo 90.—Debe entenderse por disponibilidad la obligación que adquiere el funcionario municipal, que en forma voluntaria y por vía contractual -permanente o durante el período que se contrate- se obligue por su trabajo a estar a disposición de la Municipalidad de Moravia, de manera permanente y pendiente del desarrollo y marcha de sus funciones. Esta disponibilidad no incluye dedicación exclusiva. En razón de tal régimen, la Municipalidad se compromete a retribuir al obligado el porcentaje adicional sobre el salario base, contemplado en los artículos siguientes.

@@ -1,0 +1,8 @@
+CAPÍTULO XX
+Condiciones de seguridad e higiene
+Artículo 76.—Según lo dispone el artículo 273 del Código de Trabajo: "Declárase de interés público todo lo referente a salud ocupacional, que tiene como finalidad promover y mantener el más alto nivel de bienestar físico, mental y social del trabajador en general; prevenir todo daño causado a la salud de este por las condiciones del trabajo; protegerlo en su empleo contra los riesgos resultantes de la existencia de agentes nocivos a la salud; colocar y mantener al trabajador en un empleo con sus aptitudes fisiológicas y psicológicas y, en síntesis, adaptar el trabajo al hombre y cada hombre a su tarea. Así mismo la Municipalidad se obliga en forma anual a otorgar a los trabajadores que se dirán los siguientes implementos de trabajo, siendo obligación del trabajador el uso adecuado de los mismos:
+a) TRABAJADORES DE CAMPO: Dos pares de zapatos (Un par de cuero y otro de hule botas), dos uniformes, que constarán de camisa y pantalón (con el logotipo de la Municipalidad), además capa de hule, dos pares de guantes, protectores auditivos, chalecos fosforescentes, casco y un cinturón de fuerza. Así mismo, los trabajadores que se ocupen de labores tóxicas gozarán de mascarillas propias de la actividad.
+b) INSPECTORES Y MENSAJERO: Dos pares de zapatos de cuero, dos uniformes, chalecos fosforescentes, cinta métrica capa y maletín.
+c) CHOFERES: Dos pares de zapatos de cuero, dos uniformes y capa.
+d) GUARDAS: Dos pares de zapatos, dos uniformes y capa.
+e) Los implementos supra anotados deberán ser entregados a cada empleado por una sola vez en el mes de abril de cada año. La administración velará por que los instrumentos a dotar a los trabajadores sean de buena calidad.

@@ -1,0 +1,1 @@
+Artículo 19.—Todo trabajador que haya cumplido satisfactoriamente su período de prueba de tres meses será considerado trabajador permanente de la Municipalidad y no podrá ser despedido sin causal debidamente estipulada en el Código de Trabajo, Reglamento de Trabajo y Código Municipal.

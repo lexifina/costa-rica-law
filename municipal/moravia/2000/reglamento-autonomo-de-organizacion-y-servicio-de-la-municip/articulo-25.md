@@ -1,0 +1,1 @@
+Artículo 25.—La Municipalidad otorgará el tiempo necesario dentro de su jornada laboral, con goce de salario, para que choferes que presten servicio en forma ordinaria o extraordinaria renueven su licencia. Todo chofer que preste sus servicios a la Municipalidad debe contar con licencia del tipo vigente.

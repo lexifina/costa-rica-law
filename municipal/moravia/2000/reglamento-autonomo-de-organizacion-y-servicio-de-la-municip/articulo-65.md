@@ -1,0 +1,1 @@
+Artículo 65.—No obstante lo dispuesto en el artículo anterior dejará de imponerse la sanción disciplinaria si el trabajador que por error hubiese marcado la tarjeta, o aquél a quien le hubiesen marcado la suya, informe del hecho a quien corresponda a más tardar en el curso de la jornada de trabajo siguiente a aquella en que el mismo sucedió.

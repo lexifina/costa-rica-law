@@ -1,0 +1,3 @@
+Artículo 15.—La jornada de trabajo se regirá además por las siguientes reglas:
+a) La Municipalidad no reconocerá trabajo extraordinario que no haya sido ordenado expresamente por el Alcalde Municipal, el que solo podrá ordenarse en labores de urgencia, emergencia o necesidad manifiesta.
+b) Cuando por lluvia, falta de fluido eléctrico u otra fuerza mayor análoga deban suspender las labores por unas pocas horas dentro de la respectiva jornada ordinaria, los trabajadores deberán permanecer en sus puestos a efecto de que si concluye el fenómeno que impida las labores, tengan la posibilidad de reanudar estas. En consecuencia, se considerará como tiempo de trabajo efectivo, todo aquel mientras dure la suspensión de labores por las causas enunciadas.

@@ -1,0 +1,1 @@
+Artículo 41.—La Municipalidad pagará el 40% de la incapacidad a partir del cuarto día o el porcentaje correspondiente hasta completar el cien por ciento, siempre y cuando sea bajo el régimen de la Caja Costarricense de Seguro Social.

@@ -1,0 +1,12 @@
+Artículo 87.—Todos los trabajadores gozarán de las siguientes licencias con goce de salario:
+a) Por el fallecimiento de un trabajador, se le otorgará el tiempo necesario a todo el personal, según el plazo determinado por el Alcalde.
+b) Por el fallecimiento de sus padres, madres, cónyuge o compañera (o), hijos (as), abuelos (as), hermanos (as) del trabajador(a): gozarán de seis días hábiles. Posteriormente el trabajador presentará la respectiva justificación con el acta de defunción.
+c) Por nacimiento de un hijo(a) del/la trabajador(a), este gozará de seis días hábiles. Posteriormente el trabajador presentará la respectiva justificación con el documento idóneo que corrobore el permiso dado, en el momento de reintegrarse a laborar.
+d) En caso de matrimonio del trabajador gozará de seis días hábiles. Posteriormente el trabajador presentará la respectiva justificación con el documento idóneo que corrobore el permiso dado, en el momento de reintegrarse a laborar.
+e) En caso de lactancia debidamente comprobada la madre tendrá derecho a una licencia de 1 hora con 30 minutos, para amamantar a su hijo(a) por todo el período de lactancia que el médico pediatra determine. Dicha licencia podrá disfrutarla de la siguiente manera:
+1. Completa en la mañana o en la tarde o bien separadamente; 45 en la mañana e igualmente en la tarde, según lo convenga el jefe inmediato y la trabajadora.
+2. El procedimiento para la concesión de este derecho es el siguiente:
+§ La trabajadora que después de haberse reintegrado a su trabajo posterior a la incapacidad -postparto- quiera acogerse a esta licencia debe hacer la solicitud a su jefe inmediato, aportando certificado del médico pediatra tratante, demostrando que está amamantando a su bebé.
+§ El certificado tendrá vigencia de un plazo máximo de un mes.
+§ El jefe aprobará el permiso, para lo que tramitará movimiento de personal, indicando las fechas y las horas de disfrute.
+f) Para asistir a capacitaciones que beneficien a la Municipalidad debidamente comprobado, el beneficiario gozará de permiso con goce de salario por el tiempo que dure el adiestramiento. A la vez, obligándose el beneficiario a la firma de un contrato con la administración, donde se establecerá los alcances del permiso y las obligaciones del funcionario con la institución. Sin goce de salario, los permisos que solicite el trabajador, deberán ser atinentes a lo señalado por el artículo 145 de la Ley Nº 7794. La Municipalidad garantizará que el trabajador al incorporarse a su trabajo ocupará una plaza igual a la que tenía.

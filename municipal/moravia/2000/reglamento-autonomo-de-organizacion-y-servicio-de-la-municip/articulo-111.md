@@ -1,0 +1,1 @@
+Artículo 111.—La Municipalidad otorgará permiso con goce de salario a todos los trabajadores afiliados al Sindicato para que asistan a las Asambleas Ordinarias y Extraordinarias de 1,00 p.m. a 3,30 p.m., así mismo la Junta podrá sesionar con un permiso a partir de las 3,00 p.m. dichos permisos se solicitarán con ocho días de anticipación.

@@ -1,0 +1,1 @@
+Artículo 7º—El período de prueba menor de tres meses se aplicará también en los casos de ascensos o traslados, de manera tal que el trabajador ascendido o trasladado podrá ser reintegrado a su anterior ocupación cuando el patrono estime que no reúne satisfactoriamente los requisitos requeridos para el normal desempeño del empleo en cuestión.

@@ -1,0 +1,1 @@
+Artículo 104.—La Municipalidad otorgará a los trabajadores que se encuentren estudiando, una compensación en tiempo de jornada laboral, para que asistan a lecciones, previa justificación de las mismas. Los estudios deberán de estar en relación con asuntos de interés municipal.

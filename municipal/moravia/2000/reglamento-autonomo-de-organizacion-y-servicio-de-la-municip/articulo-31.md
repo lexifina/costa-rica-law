@@ -1,0 +1,1 @@
+Artículo 31.—El trabajador que cumpla el derecho a disfrutar de vacaciones deberá solicitarlo por escrito a su respectiva jefatura, quien valorará dicha solicitud y en caso de autorizarla remitirá la resolución respectiva ante el Departamento de Recursos Humanos quien confeccionará la acción de personal correspondiente.

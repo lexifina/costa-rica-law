@@ -1,0 +1,1 @@
+Artículo 101.—Por fallecimiento de hijos (as), madres o padres, esposa(o) o compañera(o) y trabajador, la suma de cuarenta mil colones, previa presentación del acta de defunción. Este beneficio se le extenderá al familiar directo que presente el acta de defunción, se otorgará solo un beneficio por familia.

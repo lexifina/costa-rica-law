@@ -1,0 +1,1 @@
+Artículo 70.—Las ausencias por enfermedad deberán ser comprobadas, mediante dictamen médico expedido por la Caja Costarricense del Seguro Social, el Instituto Nacional de Seguros o por cualquier otro medio idóneo debiendo ser homologadas por el ente asegurador en un plazo no mayor a 8 días hábiles.

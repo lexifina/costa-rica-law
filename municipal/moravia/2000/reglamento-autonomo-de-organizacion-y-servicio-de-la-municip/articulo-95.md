@@ -1,0 +1,1 @@
+Artículo 95.—Corresponde al Alcalde Municipal de Moravia, como máximo jerarca de la Institución determinar la clase de puestos desempeñados que reúnan los requisitos para acogerse en forma voluntaria al régimen de disponibilidad. Para tales efectos el Alcalde Municipal podrá solicitar los servicios de la Unidad de Recursos Humanos.

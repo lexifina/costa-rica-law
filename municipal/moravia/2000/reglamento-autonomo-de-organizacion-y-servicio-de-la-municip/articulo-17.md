@@ -1,0 +1,1 @@
+Artículo 17.—Los propósitos de despido que se incoaran, deberán regirse mediante los artículos 150 siguientes y concordantes de la Ley Nº 7794. El trabajador podrá solicitar la intervención de la Junta de Relaciones Laborales (la cual se deberá regir según el reglamento correspondiente, el cual será anexo al presente Reglamento).

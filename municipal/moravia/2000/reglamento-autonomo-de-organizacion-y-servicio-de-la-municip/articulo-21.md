@@ -1,0 +1,1 @@
+Artículo 21.—La jornada de trabajo que se establezca no podrá ser variada bajo ninguna circunstancia, salvo que las partes eventualmente acordaran lo contrario, pero nunca en perjuicio de los trabajadores.

@@ -1,0 +1,1 @@
+Artículo 62.—Cada tarjeta deberá ser marcada por el trabajador y en caso del libro de registro, firmado por quien corresponda, con cuidado, de manera que quede impresa con claridad, toda vez que las marcas defectuosas, manchadas o confusas que no se deban a desperfectos del reloj, se tendrán por no hechas para efectos de sanción.

@@ -1,0 +1,1 @@
+Artículo 125.—La aplicación de este Reglamento corresponde al Alcalde Municipal y representantes patronales, según corresponda y rige para todos los funcionarios municipales. El Alcalde Municipal deberá interpretar y resolver las dudas y lagunas que contenga este Reglamento, para lo cual se podrá consultar al Departamento Legal o la Procuraduría General de la República.

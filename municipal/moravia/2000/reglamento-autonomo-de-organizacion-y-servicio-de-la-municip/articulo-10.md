@@ -1,0 +1,1 @@
+Artículo 10.—La jornada de trabajo se desarrollará en el cantón de Moravia o en cualquier otro, que en el futuro se ocupe. El cambio se avisará con prudente anticipación no menor a los tres días, a los empleados. En todo caso de cambio de lugar de trabajo, la Municipalidad pagará los correspondientes gastos de transporte y viáticos cuando sea fuera del cantón.

@@ -1,0 +1,1 @@
+Artículo 121.—La Institución o Municipalidad, se reservará el derecho de adicionar o modificar en cualquier momento las disposiciones del presente Reglamento, siempre y cuando no lesionen los beneficios adquiridos, las cuales deberán someterse al trámite del conocimiento de los trabajadores en un lapso no menor a dos días.

@@ -1,0 +1,1 @@
+Artículo 60.—Una vez que se haya cerrado la investigación en este centro de labores, quien no esté satisfecho con el resultado al que se llegue, puede presentar la demanda correspondiente ante los Tribunales de Trabajo.

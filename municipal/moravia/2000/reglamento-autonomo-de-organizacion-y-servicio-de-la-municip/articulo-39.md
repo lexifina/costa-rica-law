@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Del aguinaldo
+Artículo 39.—Todos los trabajadores de la Institución de cualquier clase que sea, y cualquiera que fuere la forma en que desempeñen sus labores y en que se les pague su salario, tendrán derecho al aguinaldo anual que será igual a un doceavo de los salarios ordinarios y extraordinarios devengados en los doce meses anteriores al primero de diciembre de cada año, o tiempo menor que haya laborado. Dicho beneficio deberá ser entregado dentro de los primeros diez días de diciembre, salvo terminación del contrato o relación del trabajo antes del vencimiento del período respectivo, caso en el cual se les pagará proporcionalmente y dentro de los treinta días hábiles inmediatos.

@@ -1,0 +1,1 @@
+Artículo 117.—Ambas representaciones podrán nombrar suplentes ante la Junta en el mismo número de propietarios. La representación de los trabajadores al igual que la patronal podrán hacerse asesorar por un profesional en derecho quien podrá participar en las sesiones con voz pero sin derecho a voto.

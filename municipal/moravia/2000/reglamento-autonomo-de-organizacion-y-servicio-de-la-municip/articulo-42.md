@@ -1,0 +1,1 @@
+Artículo 42.—El subsidio se cubrirá durante el período de un año, después de este período el patrón tomará una decisión del caso o se sujetará a lo establecido en el artículo nueve del Reglamento para la Extensión de Incapacidades a los Trabajadores Beneficiarios del Régimen de Enfermedad y Maternidad.

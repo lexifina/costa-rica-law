@@ -1,0 +1,1 @@
+Artículo 5º—Los contratos de aprendizaje son aquellos que se formalizan por escrito de acuerdo con las disposiciones de la Ley de Aprendizaje, su reglamento y disposiciones conexas y supletorias y que tienden a la formación profesional metódica y completa del individuo.

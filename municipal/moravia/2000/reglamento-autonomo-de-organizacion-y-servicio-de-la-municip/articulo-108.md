@@ -1,0 +1,1 @@
+Artículo 108.—Cuando algún directivo del Sindicato, requiera audiencia, de parte del Alcalde Municipal, este deberá atender la audiencia dentro del momento oportuno, siempre que no exceda el plazo de cinco días hábiles, para tratar asuntos concernientes a la materia laboral.

@@ -1,0 +1,1 @@
+Artículo 20.—La Municipalidad se compromete a otorgar de acuerdo a la costumbre todos los días feriados nacionales estipulados en el artículo 147 del Código de Trabajo, además el día 31 de agosto, día del Régimen Municipal siempre y cuando se proyecten actividades en conmemoración a dicho día.

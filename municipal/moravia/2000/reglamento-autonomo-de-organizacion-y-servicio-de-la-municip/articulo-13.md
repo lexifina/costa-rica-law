@@ -1,0 +1,1 @@
+Artículo 13.—La Municipalidad podrá modificar transitoriamente los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo exijan y no se cause grave perjuicio a los trabajadores afectados, avisando con un mínimo de tres días de anticipación.

@@ -1,0 +1,1 @@
+Artículo 24.—No podrá obligarse a los trabajadores nombrados en propiedad a efectuar otros trabajos que no sean de su responsabilidad o que no estén contemplados en el manual descriptivo de puestos, salvo en caso de desastres naturales.

@@ -1,0 +1,1 @@
+Artículo 98.—La Municipalidad de Moravia a través de la Auditoría Interna Municipal, verificará cuando lo considere necesario u oportuno el cumplimiento de las disposiciones de los artículos relacionados.

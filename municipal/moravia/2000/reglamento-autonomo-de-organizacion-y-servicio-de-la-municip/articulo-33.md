@@ -1,0 +1,1 @@
+Artículo 33.—En caso de terminación del contrato o relación de trabajo antes de cumplir el trabajador ese período de cincuenta semanas, tendrá derecho como mínimo a un día de vacaciones por cada mes completo de trabajo.

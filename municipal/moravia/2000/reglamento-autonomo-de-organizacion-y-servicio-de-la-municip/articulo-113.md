@@ -1,0 +1,1 @@
+Artículo 113.—Se dará licencia con goce de salario hasta por tres días para asistir a congresos a tres delegados, excepto que estos no puedan ser sustituidos en sus labores, previa anuencia del señor Alcalde Municipal.

@@ -1,0 +1,1 @@
+Artículo 103.—La Municipalidad destinará una partida de trescientos cincuenta mil colones anuales, para desarrollar actividades deportivas, culturales y educativas entre los funcionarios municipales. Tales como compra de uniformes deportivos, cursos, etc. Las mismas serán coordinadas por el Sindicato.

@@ -1,0 +1,1 @@
+Artículo 109.—La Municipalidad y el Sindicato se obligan al fiel cumplimiento del presente Reglamento Interno de Trabajo. La Municipalidad se compromete a disponer todo lo pertinente para que sus representantes cumplan todas las obligaciones contraídas aquí, por su parte el Sindicato garantiza el cumplimiento de lo pactado en cuanto a lo que corresponde.

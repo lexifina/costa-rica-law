@@ -1,0 +1,5 @@
+Artículo 2º—Para los efectos de este Reglamento se entiende por:
+a) Patrono: Municipalidad de Moravia, con domicilio en Moravia, cincuenta metros sur del costado oeste de la Iglesia de San Vicente de Moravia, la cual se encuentra dedicada a la administración de los intereses y servicios cantonales.
+b) Representantes patronales: Lo es el Alcalde Municipal y en general todas aquellas personas que debidamente autorizadas por él ejerzan dentro de la institución funciones de dirección, administración o de ambos géneros.
+c) Trabajadores: Las personas físicas que presten a la Corporación Municipal sus servicios materiales, intelectuales o de ambos géneros, en forma subordinada y a cambio de una retribución o salario, sea en forma permanente o transitoria, y como consecuencia de una relación laboral o de un contrato de trabajo, verbal o escrito, expreso o tácito, individual o colectivo.
+d) Representante de los trabajadores: Se considerará como representantes de los trabajadores de la Municipalidad, denominado Sindicato de Trabajadores de la Municipalidad de Moravia (SITRAMUMO), el cual velará por los intereses laborales, culturales, sociales y económicos.

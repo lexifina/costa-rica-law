@@ -1,0 +1,1 @@
+Artículo 92.—Se entenderá por porcentaje adicional sobre el salario base, la retribución que hará la Municipalidad a los trabajadores que opten por acogerse al régimen de disponibilidad de conformidad con los artículos siguientes.
