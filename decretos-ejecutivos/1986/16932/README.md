@@ -14,3 +14,4 @@ Declara Emergencia Nacional Cultivos de Cartago y Zarcero de Alajuela
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-04-10 | la propia norma |
+| 2 | 1986-04-10 | Decreto Ejecutivo 17176 (1986-08-27) |
