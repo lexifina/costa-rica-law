@@ -1,0 +1,1 @@
+Art¡culo 3§-Rige a partir de su publicaci¢n, excepto en aquellos casos que se indique otra fecha de vigencia. Dado en la Presidencia de la Rep£blica.-San Jos‚, a los veintiocho d¡as del mes del noviembre del dos mil.
