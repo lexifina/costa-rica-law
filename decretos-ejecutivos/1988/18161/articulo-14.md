@@ -1,2 +1,0 @@
-Artículo 14.-El permiso de exportación textil y la visa de exportación serán validas por treinta días naturales a partir de la fecha de su expedición y cubrirán únicamente el embarque especifico para el que fueron solicitados.
-Cuando la solicitud de visa de exportación se realice en el último mes del año cuota, la empresa deber indicar, la fecha de entrada del embarque al país con restricción, para que la Oficina le emita la visa del año-cuota correspondiente.

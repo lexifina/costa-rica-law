@@ -1,2 +1,0 @@
-Artículo 15.-Corresponde al Consejo, a través de la Oficina autorizar, emitir y sellar las visas de exportación y los permisos de exportación textil. La emisión de las visas se hará de acuerdo con las disposiciones sobre la materia, comprendidas en los acuerdos de Costa Rica con los países que impongan restricciones cuantitativas a las importaciones de productos de la industria de confección de ropa.
-La Oficina deber remitir diariamente al Ministerio de Comercio Exterior, copia de todas las autorizaciones de permisos y documentos visados que otorgue a los exportadores.

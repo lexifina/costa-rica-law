@@ -1,3 +1,0 @@
-De las cuotas hacia Estados Unidos
-Artículo 33.-Debido a que en los Estados Unidos existen dos tipos de importación bajo el sistema de cuotas denominados, uno: "Límite Específico" y otro "Nivel de Acceso Garantizado" (807-A), este último de ingreso a ese país bajo su código arancelario 807; todas aquellas empresas textileras y de ropa confeccionada que exporten a Estados Unidos bajo este Código arancelario, obligatoriamente deberán tener un treinta por ciento (30%) del total de su cuota asignada por categoría en el rubro de "Nivel de Acceso Garantizado".
-Esto, siempre y cuando el acuerdo entre el Gobierno de Costa Rica y el de los Estados Unidos establezca montos de cuota en ambos tipos de importación.

@@ -1,1 +1,0 @@
-Artículo 31.-Si un exportador que hubiera perdido cuota contingente, la llegara a necesitar en el futuro, su solicitud será satisfecha después de que se hayan llenado las solicitudes de otros exportadores.

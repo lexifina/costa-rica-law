@@ -1,4 +1,0 @@
-Artículo 3°.-Los miembros de El Consejo ocuparán sus puestos por períodos de dos años.
-Las asociaciones con representación en El Consejo, de conformidad con lo dispuesto en el artículo 2°, celebrarán asambleas generales especiales cada dos años, en el mes de enero para elegir sus representantes. Las empresas que pertenezcan a más de una de las asociaciones referidas en el artículo 2°, deberán decidir en cuál de las asociaciones votarán para efectos de elegir la representación ante el Consejo.
-El representante de la industria textil y ropa confeccionada de las exportaciones a terceros mercados, ser n escogidos cada dos años, en el mes de enero en asamblea general que para su efecto convocar El Consejo.
-La votación en esta asamblea se realizar con base en el monto de empleo registrado en la planilla de la Caja Costarricense de Seguro Social del mes de noviembre del año anterior a la asamblea.

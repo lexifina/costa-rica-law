@@ -1,3 +1,0 @@
-Artículo 21.-La determinación, por primera vez de cuota básica para cada exportador, se basará en la mayor de las exportaciones correspondientes a uno de los dos períodos precedentes, de 12 meses, calculados a partir de la fecha de restricción.
-La determinación de cuota básica de los períodos siguientes, se basará en la exportación real de la cuota básica del año-cuota anterior.
-Si la empresa exporta el 95% de su cuota básica, se sumará a su cuota básica, para los períodos siguientes, el porcentaje de crecimiento que se estipula en el artículo siguiente y el 50% de la cuota contingente exportadora realmente en el año anterior.

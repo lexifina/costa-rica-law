@@ -1,1 +1,0 @@
-Artículo 10.-Toda empresa con interés en solicitar asignación de cuota, deberá registrarse en la Oficina y obtener la correspondiente tarjeta de empresa exportadora. La Oficina llevará un registro de las empresas exportadoras de productos de la Industria textil y de ropa confeccionada.

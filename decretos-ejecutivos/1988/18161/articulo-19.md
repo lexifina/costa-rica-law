@@ -1,2 +1,0 @@
-Artículo 19.-Cuando la cuota de una empresa beneficiaria está‚ compuesta por producción mixta o sea de la empresa y subcontratistas y la empresa no cumple con la cuota asignada, debido a cierre de operaciones, cambio permanente de categoría de producto, o bien, abandone el país; la parte de la cuota abastecida por los subcontratistas, puede ser reclamada directamente por ellos.
-La parte correspondiente a la producción directamente de la empresa, se remitir al fondo de reserva para su posterior distribución.

@@ -1,3 +1,0 @@
-De la cuota en general
-Artículo 17.-El Consejo distribuir la cuota correspondiente a cada categoría de producto y a cada mercado, entre las empresas exportadoras registradoras que as¡ lo soliciten.
-Las empresas que soliciten el otorgamiento de cuotas de exportación deberán indicar sus respectivos planes anuales para cuota básica o cuatrimestrales par cuota contingente en sus solicitudes. Estos planes deberán reflejar las variaciones en la exportación por efectos estacionales y por tipo de prendas a exportar, con el fin de que esas variaciones sean debidamente consideradas al realizarse las revisiones de utilización de la cuota.

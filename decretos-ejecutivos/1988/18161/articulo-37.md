@@ -1,1 +1,0 @@
-Artículo 37.-Este Decreto rige a partir del 12 de enero de 1988 y deroga los artículos del 56 al 66, inclusive, del capítulo noveno del Reglamento a la Ley de Fomento de las Exportaciones número 7931-MEIC de 23 de enero de 1978.
