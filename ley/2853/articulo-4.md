@@ -1,0 +1,2 @@
+Artículo 4°.- El Banco Central de Costa Rica será el encargado como agente fiscal, de la atención y pago de los bonos y cupones de intereses a que esta ley se refiere, y del manejo y contabilidad de los mismos, todo conforme a lo dispuesto en el artículo 121 de su Ley orgánica.
+El Banco solo estará obligado a atender el servicio de esos valores cuando se le haga Oportunamente traspaso de los fondos necesarios para este efecto.
