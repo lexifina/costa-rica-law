@@ -1,0 +1,1 @@
+Art. 13.-El Contador no podrá ausentarse del lugar de los campamentos, sino con licencia del Superintendente, quien no la concederá por más de ocho días, y mientras tanto, el Superintendente no podrá separarse ni un día de los trabajos.
