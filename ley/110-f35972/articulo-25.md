@@ -1,0 +1,1 @@
+Artículo 25.-Al pago de las contribuciones de caminos impuestas por las respectivas Juntas Itinerarias quedan afectadas las fincas correspondientes, de acuerdo en un todo con lo dispuesto en la ley N° 6 de 22 de setiembre de 1910.

@@ -1,0 +1,1 @@
+Artículo 24.-La construcción y reparación de puentes queda a cargo de los fondos intinerarios de los distritos o cantones beneficiados con ellos, hasta donde alcancen. La diferencia hasta cubrir su valor será cubierta por el Estado.

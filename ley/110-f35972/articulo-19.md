@@ -1,0 +1,1 @@
+Artículo 19.-Los acueductos que destruyeren un camino podrán ser desviados, o rectificado su cauce si así lo dispusiere el respectivo Municipio, siempre que no se lesionen derechos de servidumbres legalmente adquiridos. En la rectificación se observarán los mismos procedimientos que dispone el artículo anterior.

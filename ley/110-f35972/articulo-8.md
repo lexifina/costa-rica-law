@@ -1,0 +1,1 @@
+Artículo 8°.-Las Municipalidades, en sus primeras sesiones de cada año, harán el presupuesto de entradas de cada distrito, de acuerdo con el cálculo probable de lo que hubiere tributado el año anterior, que servirá para fijar los egresos.

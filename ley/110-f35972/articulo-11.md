@@ -1,0 +1,1 @@
+Artículo11.-Se fija un término improrrogable de treinta días contado desde aquel en que se efectuó la publicación para que los contribuyentes presenten sus reclamos, si no estuvieren conformes. Trascurrido dicho término la Municipalidad resolverá lo pertinente y aprobará el detalle con las modificaciones que acogiere, debiendo procederse a su cobro.
