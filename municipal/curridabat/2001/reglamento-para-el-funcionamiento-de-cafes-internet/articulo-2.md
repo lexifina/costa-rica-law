@@ -1,0 +1,1 @@
+Artículo 2°-Fundamentación jurídica. Este Reglamento se emite en cumplimiento con lo establecido en la Ley 7440 Ley de Espectáculos Públicos, Materiales Audiovisuales e Impresos, el Código de la Niñez y la Adolescencia Ley N° 7739 Y la Ley Contra la Explotación Sexual Ley 7899 en lo que se refiere a la exhibición de material nocivo para personas menores de edad.
