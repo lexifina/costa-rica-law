@@ -14,3 +14,4 @@ Reglamento de la Cuenta de Ahorro con Libreta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-28 | la propia norma |
+| 2 | 2004-07-03 | SINALEVI (sin norma nombrada) |
