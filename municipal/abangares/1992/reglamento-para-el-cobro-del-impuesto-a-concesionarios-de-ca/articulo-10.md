@@ -1,0 +1,1 @@
+Artículo 10.— La Administración por resolución del Ejecutivo Municipal podrá determinar de oficio la obligación del contribuyente en los casos previstos, y según los procedimientos establecidos, en el Artículo 119 del Código Tributario.

@@ -1,0 +1,1 @@
+Artículo 2°—Es sujeto activo de este impuesto la Municipalidad de Abangares, la cual, para los efectos de la relación jurídico tributaria y en su condición de Administración Tributaria de este impuesto, hará uso de las facultades y prerrogativas que contempla el Código de Normas y Procedimientos Tributarios.

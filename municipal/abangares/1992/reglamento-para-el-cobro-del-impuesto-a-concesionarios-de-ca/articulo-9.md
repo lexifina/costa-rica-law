@@ -1,0 +1,1 @@
+Artículo 9°—El concesionario está obligado a llevar un registro especial, donde se consignará para cada día la cantidad de metros cúbicos, así como el precio de venta por metro cúbico, de cada uno de los materiales vendidos, conforme lo dispuesto en el inciso a) del Artículo 110 del Código Tributario.
