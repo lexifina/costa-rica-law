@@ -1,0 +1,1 @@
+Artículo 3°—La Administración del Refugio de Vida Silvestre Lagunazul, categoría privado, le corresponde al propietario coordinando con el Director del Sistema Nacional de Áreas de Conservación, quien la ejercerá a través del Área de Conservación Osa, del Ministerio del Ambiente y Energía, quien determinará los procedimientos a seguir para este objetivo.
