@@ -1,11 +1,1 @@
-ARTICULO 2
-1. En caso de pérdida por naufragio de un buque cualquiera, el armador, o
-la persona con la cual la gente de mar hubiere celebrado un contrato para
-servir a bordo del buque deberá pagar a cada una de las personas empleadas
-en dicho buque una indemnización que le permita hacer frente al desempleo
-resultante de la pérdida del buque por naufragio.
-2. Dicha indemnización se pagará por todos los días del período efectivo
-de desempleo de la gente de mar con arreglo a la tasa del salario pagadero
-en virtud del contrato, pero el importe total de la indemnización pagadera
-a cada persona en virtud del presente Convenio podrá limitarse a dos meses
-de salario.
+Artículo 2º.- Rige a partir de su publicación.
