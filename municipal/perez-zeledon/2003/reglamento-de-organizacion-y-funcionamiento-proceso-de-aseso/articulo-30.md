@@ -1,0 +1,1 @@
+Artículo 30.—De la impugnación de los refrendos o vistos buenos. Los refrendos o vistos buenos podrán ser impugnados mediante los recursos ordinarios de revocatoria y de apelación y mediante el recurso extraordinario de revisión de conformidad con los artículos 162 y 163 del Código Municipal, respectivamente.

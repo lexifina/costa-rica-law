@@ -1,0 +1,1 @@
+Artículo 45.—Obligatoriedad de destino de recursos para el SAM. La Municipalidad deberá destinar al menos un 0.001% de su Presupuesto Ordinario Anual a la implementación y desarrollo de las necesidades del SAM.

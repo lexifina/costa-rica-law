@@ -1,0 +1,1 @@
+Artículo 38.—No excepción de estos procedimientos. Por la naturaleza de este procedimiento de Asesoría por Coadyuvancia y especialmente por sus efectos jurídicos e institucionales la excepción que se da a los jerarcas indicada en el artículo 13 de este Reglamento no tiene aplicación.

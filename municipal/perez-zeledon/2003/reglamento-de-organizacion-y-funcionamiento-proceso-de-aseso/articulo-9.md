@@ -1,0 +1,4 @@
+Artículo 9º—Del carácter vinculante de estas opiniones. Las opiniones técnicas o profesionales emitidas por este proceso en principio tienen carácter de vinculantes para los funcionarios municipales, excepto en los siguientes casos:
+a) Cuando su carácter de no vinculantes sea declarado por el jerarca en acto motivado y fundamentado de conformidad con lo que establece el artículo 136, párrafo 1 inciso c) de la Ley General de Administración Pública.
+b) Cuando a criterio del jerarca exista una opinión contraria a ésta, emitida por un órgano de carácter consultivo con igual o superior conocimiento de la materia desde el punto de vista profesional o técnico que el del proceso.
+c) Cuando el jerarca decida, de previo a resolver, someter a consulta el mismo asunto a otro órgano consultivo y hasta tanto éste no se pronuncie contradiciendo lo dictaminado por este Proceso Asesor.

@@ -1,0 +1,27 @@
+Artículo 2º—Conceptos preliminares de uso frecuente en este Reglamento. Para los efectos de la correcta aplicación de este Reglamento se entenderá por los conceptos en listados a continuación lo siguiente:
+a) Actividades de Control: Son las políticas y procedimientos que permiten obtener la seguridad de que se llevan a cabo las disposiciones emitidas por los órganos de control, tanto internos como externos, así como, por los jerarcas y los titulares subordinados para la consecución de los objetivos organizacionales.
+b) Administración: Se entiende bajo este concepto tanto las funciones desarrolladas por los jerarcas y por los titulares subordinados, como su investidura organizacional, dentro de la Municipalidad.
+c) Administración Activa: Desde el punto de vista funcional, es la función decisoria, ejecutiva, resolutoria, directiva u operativa de la Administración. Desde el punto de vista orgánico es el conjunto de órganos y entes de la función administrativa, que deciden y ejecutan; incluyen al jerarca, como última instancia.
+d) Actividades de Asesoría: Consiste en la función propia de un funcionario municipal a nivel técnico, profesional o de experiencia institucional mediante la cual guía los pasos del tomador de decisiones o consultante hacia el conocimiento o reconocimiento de los aspectos técnicos, científicos, profesionales o ideológicos que deberán ser considerados con el fin de tomar una decisión.
+e) Ambiente de Control: Conjunto de factores del ambiente organizacional que deben establecer y mantener el jerarca, los titulares subordinados y demás funcionarios, para permitir el desarrollo de una actitud positiva y de apoyo para el control interno y para una administración escrupulosa de los recursos institucionales.
+f) Concejo: El Concejo Municipal de la Municipalidad de Pérez Zeledón.
+g) Decisión: Consiste en la elección de una determinada propuesta, o de una combinación de varias de ellas, con el fin de resolver una situación específica. Conlleva los actos de decisión, ejecución, delegación y dirección de un determinado plan de acción.
+h) Funcionario Municipal: Es toda persona que brinde sus servicios de manera temporal o indefinida a la Municipalidad de Pérez Zeledón a través de un contrato de servicios profesionales o de un contrato de trabajo en sus diversas modalidades que autoriza el ordenamiento jurídico. Este término abarca también a los jerarcas y a los titulares subordinados de la Municipalidad.
+i) Jerarca: Es el superior jerárquico del órgano o del ente quien ejerce la máxima autoridad dentro del órgano o ente ya sea de carácter unipersonal o colegiado. Para los efectos de la Municipalidad comparten este carácter tanto el Concejo Municipal como el Alcalde Municipal de conformidad con las leyes que regulan la materia.
+j) Municipalidad: La Municipalidad de Pérez Zeledón.
+k) Proceso Administrativo: Se entiende el flujo de información administrativo así como el proceso de gestión institucional designado a partir del modelo INSUMO-ACTIVIDADES A REALIZAR-PRODUCTO, mediante el cual se desarrollan las funciones en la Municipalidad. Por insumo se entiende tanto los productos de otros procesos, como los documentos, actividades y consultas de tipo verbal o escritas, formales e informales, directas o indirectas que dan origen a las actividades de un determinado proceso. Por actividades generales se entiende todas aquellas funciones que deberá desarrollar el proceso para lograr sus objetivos, fines y metas. Y por producto se entiende todas aquellas actividades, documentos o instrumentos que derivan de la realización de las actividades a realizar.
+l) Proceso Asesor: Se entenderá el Proceso de Asesoría en Servicios Técnicos de la Municipalidad de Pérez Zeledón.
+m) Sistema de Asesoría: Consiste en la serie de acciones ejecutadas por la administración activa tendientes a los siguientes objetivos:
+I. Brindar apoyo técnico, profesional y de experiencia institucional a los tomadores de decisiones.
+II. Coadyuvar en la construcción de un Marco Teórico de Referencia propio de la Municipalidad que sirva para resolver situaciones específicas.
+III. Garantizar eficiencia, eficacia y oportunidad de las operaciones.
+IV. Cumplir eficiente, eficaz y oportunamente con el ordenamiento jurídico y técnico.
+V. Brindar capacitación formal planificada a los tomadores de decisiones.
+VI. Contribuir a la independencia organizacional en la toma de decisiones institucional.
+n) Sistema de Control Interno: Consiste en la serie de acciones ejecutadas por la administración activa, diseñadas para proporcionar seguridad en la consecución de los siguientes objetivos:
+I. Proteger y conservar el patrimonio público contra cualquier pérdida, despilfarro, uso indebido, irregularidad o acto contrario al ordenamiento jurídico.
+II. Exigir confiabilidad y oportunidad de la información.
+III. Garantizar eficiencia, eficacia y oportunidad de las operaciones.
+IV. Cumplir con el ordenamiento jurídico y técnico.
+o) Titular Subordinado: Funcionario municipal responsable de un proceso, con autoridad para ordenar y tomar decisiones en la materia de este proceso.
+p) Valoración del Riesgo: Consiste en la identificación y análisis de los riesgos que enfrenta la institución, tanto de fuentes internas como externas relevantes para la consecución de los objetivos y que deben ser realizados por el jerarca y los titulares subordinados, con el fin de determinar cómo se deben administrar dichos riesgos.

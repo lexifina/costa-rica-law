@@ -1,0 +1,1 @@
+Artículo 31.—Notificación del acto. El acto de otorgar o no el refrendo o visto bueno se comunicará al órgano que lo solicitó con una copia al Proceso de Tesorería Municipal. El Proceso Asesor hará constar en su archivo de gestión además una copia de archivo de la opinión con las razones de recibido de los órganos a los que ésta se dirigió.

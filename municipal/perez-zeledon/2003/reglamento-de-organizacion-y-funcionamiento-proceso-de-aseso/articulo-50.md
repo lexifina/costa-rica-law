@@ -1,0 +1,2 @@
+Artículo 50.—Modificaciones a este Reglamento. En el ejercicio de su potestad normativa el Concejo Municipal podrá modificar este Reglamento en todo o en parte aprobándolo así en acto motivado y publicándolo en el Diario Oficial La Gaceta. Toda modificación entrará en vigencia hasta después de publicada.
+Se autoriza la publicación de este Reglamento.
