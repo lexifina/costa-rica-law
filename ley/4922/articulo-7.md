@@ -1,0 +1,1 @@
+Artículo 7º.- Autorízase al Gobierno de la República para que, a título de compensación, dé por canceladas cuotas de organismos internacionales a cargo del Consejo Nacional de Producción, con la asignación de un millón quinientos mil colones (¢ 1.500,000.00), por una sola vez para la Fábrica Nacional de Licores, ordenada por ley Nº 4079 de13 de febrero de 1968.

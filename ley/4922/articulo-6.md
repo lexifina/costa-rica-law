@@ -1,0 +1,1 @@
+Artículo 6º.- Con arreglo a las estipulaciones de la ley Nº 3126 de 28 de junio de 1963, que aprobó el Contrato de Protección y Desarrollo Industrial Nº 53-62 celebrado el 24 de noviembre de 1962 entre el Poder Ejecutivo y Refinadora Costarricense de Petróleo S. A., se concede patente al Consejo Nacional de Producción para que distribuya los productos quedicha compañía elabora.
