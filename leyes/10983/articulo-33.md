@@ -1,0 +1,7 @@
+ARTÍCULO 33- Refórmense el segundo párrafo del artículo 5 y el primer y segundo párrafos del artículo 19 de la Ley 218, Ley de Asociaciones, del 8 de agosto de 1939. Los textos son los siguientes:
+Artículo 5- Toda asociación debe constituirse mediante un ordenamiento básico que rija sus actividades y que se denominará "estatutos".
+Para que una asociación ejerza lícitamente sus actividades debe estar inscrita en el Registro de Personas Jurídicas que al efecto llevará el Registro Nacional.
+(…).
+Artículo 19- Para proceder a la inscripción, previamente se deberá haber cumplido con los requisitos legales y reglamentarios que para tal efecto establezca el Registro Nacional.
+El Registro Nacional examinará la documentación para establecer si se cumplen los requisitos de ley y las demás disposiciones atinentes al caso. Si la encontrara defectuosa u omisa lo comunicará señalando los errores, al presidente de la Directiva, por medio de la autoridad política del domicilio de este. Subsanados los errores u omisiones, o si no los hubiera, el Registro Nacional por medio del Registro de Personas Jurídicas mandará publicar un edicto en el diario oficial La Gaceta, dando cuenta de la constitución de la asociación, su nombre, fines, domicilio y representante legal, y emplazando, por quince días hábiles a partir de su publicación, a cualquier interesado para que formule reparos a la inscripción en trámite.
+(...).

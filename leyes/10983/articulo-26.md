@@ -1,0 +1,2 @@
+ARTÍCULO 26- Refórmese el artículo 9 de la Ley 6812, Ley de Reestructuración del Poder Ejecutivo, del 14 de setiembre de 1982. El texto es el siguiente:
+Artículo 9- En todas aquellas leyes directamente relacionadas con la dirección y el control del movimiento migratorio del país, las referencias que se haga al Ministerio de Gobernación y Policía corresponderán a la Dirección General de Migración y Extranjería, la cual podrá coordinar con el Ministerio de Seguridad Pública (MSP).

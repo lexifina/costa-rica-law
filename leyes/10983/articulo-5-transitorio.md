@@ -1,0 +1,1 @@
+TRANSITORIO V- Para la aplicación de la regla fiscal en el primer ejercicio presupuestario siguiente a la entrada en vigencia de esta ley, se tomará como base para calcular el crecimiento interanual la sumatoria de los presupuestos de los órganos desconcentrados con el de los ministerios a los que pertenecen.

@@ -1,0 +1,4 @@
+ARTÍCULO 18- Refórmense los artículos 4 y el primer párrafo del artículo 9 de la Ley 9996, Ley para la Atracción de Inversionistas, Rentistas y Pensionados, del 5 de julio de 2021. Los textos son los siguientes:
+Artículo 4- Rectoría. El órgano rector de lo tutelado en la presente ley en materia de migración será la Dirección General de Migración y Extranjería, adscrito al Ministerio de Seguridad Pública (MSP) y en lo atinente a materia tributaria será el Ministerio de Hacienda.
+Artículo 9- Tramitación. El Ministerio de Seguridad Pública (MSP), por medio de la Dirección General de Migración y Extranjería, en atención a los criterios de simplificación de trámites, dispondrá de una ventanilla de atención especializada para las categorías dispuestas en el artículo segundo de la presente ley, regulados en la Ley 8220, Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, del 4 de marzo de 2002.
+(…).

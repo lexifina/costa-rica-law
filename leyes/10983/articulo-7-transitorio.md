@@ -1,0 +1,1 @@
+TRANSlTORlO VII- El Poder Ejecutivo, desde los ministerios competentes, derogarán, reformarán o dictarán los reglamentos que sean necesarios para la implementación de esta ley. Lo anterior en un plazo de seis meses a partir de la entrada en vigencia de la presente ley.

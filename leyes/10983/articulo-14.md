@@ -1,0 +1,2 @@
+ARTÍCULO 14- Refórmese el artículo 50 de la Ley 4716, Ley de Organización y Funcionamiento del Instituto de Fomento y Asesoría Municipal (I.F.A.M.), del 9 de febrero de 1971. El texto es el siguiente:
+Artículo 50- El Instituto de Fomento y Asesoría Municipal (IFAM) deberá coordinar sus actividades con los otros organismos del Estado en procura de una eficiente cooperación entre las municipalidades del país, y de estas con el Gobierno central y las demás instituciones públicas.

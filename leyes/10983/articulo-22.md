@@ -1,0 +1,4 @@
+ARTÍCULO 22- Refórmese el inciso c) del artículo 24, de la Ley 7440, Ley de Espectáculos Públicos, Materiales Audiovisuales e Impresos, del 11 de octubre de 1994. El texto es el siguiente: Artículo 24- Cierre de locales.
+(...)
+c) Cuando se cometa la misma infracción por cuarta vez, la autoridad judicial ordenará el cierre definitivo del establecimiento y lo comunicará a la municipalidad respectiva, la cual deberá cancelar la patente, o al Ministerio de Ciencia, Innovación, Tecnología y Telecomunicaciones (Micitt) para que cancele las concesiones de frecuencias de televisión o radio, o a las autoridades competentes paraque cancelen el permiso o la autorización respectiva.
+El director ejecutivo llevará un registro, bien respaldado, de las infracciones establecidas jurisdiccionalmente y de las personas y empresas responsables.

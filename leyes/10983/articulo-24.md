@@ -1,0 +1,3 @@
+ARTÍCULO 24- Refórmese el primer párrafo del artículo 10 de la Ley 7221 Ley Orgánica del Colegio de Ingenieros Agrónomos, del 6 de abril de 1991. El texto es el siguiente:
+Artículo 10- Los profesionales extranjeros, graduados fuera del país en ciencias agropecuarias, que reúnan las condiciones estipuladas en los artículos 5 y 6, podrán incorporarse al Colegio, poseer cédula de residencia permanente en el país, según certificación extendida por la Dirección General de Migración y Extranjería o que estén casados con costarricenses y que sean aceptados por la Junta Directiva por votación de no menos de las dos terceras partes de sus miembros.
+(…).
