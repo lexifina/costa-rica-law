@@ -16,3 +16,4 @@ Reforma Reglamento Ley Forestal
 | 1 | 1992-04-23 | la propia norma |
 | 2 | 1992-06-30 | Decreto Ejecutivo 21445 (1992-06-30) |
 | 3 | 1993-02-15 | Decreto Ejecutivo 22017 (1993-02-15) |
+| 4 | 1993-12-15 | Decreto Ejecutivo 23202 (1993-12-15) |
