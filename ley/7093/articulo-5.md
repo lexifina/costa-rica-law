@@ -1,2 +1,1 @@
-Artículo 5º.- El Estado prestará protección y auxilio a los
-farmacodependientes que sean sometidos a tratamiento de rehabilitación.
+Artículo 5.- Es deber del Estado procurar los recursos económicos necesarios a fin de asegurar el tratamiento para rehabilitar, readaptar socialmente y educar a las personas afectadas por el consumo de las drogas a que se refiere esta Ley. Su tratamiento estará a cargo del Ministerio de Salud, de la Caja Costarricense de Seguro Social, del Instituto sobre Alcoholismo y Farmacodependencia y de cualquier otro ente o institución legalmente autorizados. En todo caso, corresponde al Instituto sobre Alcoholismo y Farmacodependencia la rectoría técnica en esta materia, bajo la tutela del Ministerio de Salud.

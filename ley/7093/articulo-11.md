@@ -1,5 +1,1 @@
-Artículo 11.- Las donaciones de personas naturales o jurídicas en
-beneficio de los planes y programas que establezca el Estado para la
-prevención de los delitos y del consumo ilícito de las substancias a que se
-refiere esta ley, son deducibles del monto de la renta bruta de aquellas
-personas, para efectos del cálculo del impuesto sobre la renta.
+Artículo 11.- Todos los medios de comunicación colectiva del país, deberán ceder espacios al Consejo Nacional de Drogas, para la divulgación de programas destinados a combatir el tráfico y el consumo ilícito de drogas susceptibles de causar dependencia. Los programas podrán ser elaborados por el correspondiente medio de comunicación, pero su producción y difusión deberán contar con la previa autorización del Consejo Nacional de Drogas, quien deberá consultar, sobre los aspectos técnicos, al Instituto sobre Alcoholismo y Farmacodependencia. Para tales fines, todos los medios de comunicación colectiva del país, impresos o electrónicos, cederán semanalmente, en forma gratuita, hasta el medio por ciento del espacio total que editen o emitan.

@@ -1,5 +1,1 @@
-Artículo 24.- Si por rebeldía del imputado, por no poderse identificar
-al autor del hecho, o por cualquier otra circunstancia, no se dictare
-procesamiento, el juez que conociere de la causa deberá ordenar la
-suspensión a que se refiere el artículo anterior, si se demostrare el uso
-indebido ahí señalado.
+Artículo 24.- Se impondrá una pena de sesenta a ciento ochenta días multa a quien, en los sitios públicos o de acceso público consuma o utilice drogas de uso no autorizado. Cuando se trate de menores de edad, las autoridades deben informar a los padres o responsables de éstos.

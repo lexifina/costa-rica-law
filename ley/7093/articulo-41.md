@@ -1,0 +1,1 @@
+Artículo 41.- El Centro tendrá, como fin básico, la lucha contra el tráfico ilícito de drogas y delitos conexos, el control de su oferta y la drogadicción en todas sus formas, y, para tales fines, en su seno se coordinarán todas las acciones que en la prosecusión de esa lucha se realicen.
