@@ -1,0 +1,1 @@
+Artículo 7°—Se establece como pago por concepto de los servicios ambientales establecidos en el art. 3, inciso k) (le la Ley Forestal para conservación de bosque natural, la suma de ¢12.000.00 (doce mil colones) por hectárea por año, durante el período de tiempo que aquí se determine.
