@@ -18,3 +18,4 @@ Reglamento de Establecimientos Farmacéuticos Privados
 | 3 | 1987-01-13 | Decreto Ejecutivo 17378 (1987-01-13) |
 | 4 | 1987-10-19 | Decreto Ejecutivo 17786 (1987-10-19) |
 | 5 | 1989-04-27 | Decreto Ejecutivo 18961 (1989-04-27) |
+| 6 | 1989-06-26 | Decreto Ejecutivo 19069 (1989-06-26) |
