@@ -22,6 +22,7 @@ Carnes frescas, refrigeradas o congeladas: |
 -desperdicios comestibles de los animales arriba enumerados……………………………… | 011-09-00
 Calzado escolar, a juicio de la Administración Tributaria............................................................. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 851
 Calzado ortopédico............................................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 851
+Café sin tostar, en cereza, en pergamino, en oro o tostado en grano (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 16729 del 12 de noviembre de 1985) |
 Cebolla fresca, no envasada…………………… | 054-09-01
 Compempases para uso escolar............................ (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 861-09-03
 |
