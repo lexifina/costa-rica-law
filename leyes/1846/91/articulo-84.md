@@ -1,0 +1,5 @@
+Art. 84.-El Gobierno cuidar de poner en Puntarenas una fuerza que no pase de cien hombres, cuando lo estime por conveniente, según las circunstancias. Igualmente suministrar prudencialmente los fondos y recursos que pueda, por cuenta del erario, ya cubriendo el déficit de los gastos hechos en una de las obras indicadas, o ya completando la pensión anual correspondiente al Párroco, medico, o maestro de escuela que se contraten, mandándolos pagar una parte de sus respectivos emolumentos en la caja de la aduana.
+CAPITULO VII.
+Disposiciones generales.
+Art. 84.-Las visitas de rentas antes y después de descargado un buque, la permanencia del guarda abordo, las rondas la presentación de manifiestos, reconocimiento y aforo de efectos y demás procedimientos que corresponden a la administración de hacienda, deben practicarse como esta prevenido en las leyes respectivas, o como se prevenga en las que en adelante se publicaren.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°84)

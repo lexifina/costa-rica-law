@@ -1,0 +1,3 @@
+Art. 68.-Los cabos son obligados a trabajar lo mismo que los demás individuos de su cuadrilla; y a mayor abundamiento velaran sobre el buen desempeño de estos.-Los interesados en la carga o descarga se dirigirán a alguno de los cabos.
+Art. 68.-Cuando se declare sana y comunicada la tripulacion, se le auxiliar para sacar el buque, sin consentirse que lo habiten hasta que del todo este bien enjuto; y no llegándose el extremo caso de echarlo a pique, cuando el facultativo disponga la convalecencia general, se hará purificacion de aquel y de todos sus útiles con lavatorios y perfumaciones.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°68)

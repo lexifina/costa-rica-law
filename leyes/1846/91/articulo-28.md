@@ -1,0 +1,3 @@
+Art. 28.-Los dueños de casa donde se encuentren tales diversiones, o se cometan escándalos o desordenes; aún cuando hubiesen sacado la correspondiente licencia, sufrirán igual pena; y los concurrentes de cualquiera sexo, serán multados en un peso cada uno, o trabajaran un d¡a en obras públicas, siempre que tanto unos como otros sean cómplices en tales desordenes.
+Art. 28.-Los gastos que causare el auxilio serán satisfechos por el Capitán o Comandante del buque, estando afectos a esta indemnización los mismos buques y su cargamento; pero el erario debe suplirlos del momento para que no haya demora en el auxilio.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°28)

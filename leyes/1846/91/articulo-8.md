@@ -1,0 +1,3 @@
+Art. 8. En cuanto a la administracion de Justicia y persecucion de los delitos y desordenes, conocerán indistintamente los dos ayudantes; observando por regla que el primero ante quien se ponga la demanda, o descubra el delito o desorden, fenezca la causa. -En casos de competencia entre el Comandante y un Ayudante, se estar a la decision del primero.
+Art. 8. Cuando pueda el practico, antes de abordar al buque, conocer que es enemigo, o que viene apestado, no deber acercársele ni auxiliarlo; y si fuere sorprendido, por engaño o fuerza, o atraído por imprevision para que lo conduzca al puerto en cualquiera de sus aguadas o anclajes, debe noticiarlo al Comandante a toda costa.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°8)

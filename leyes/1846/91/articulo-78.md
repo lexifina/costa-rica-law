@@ -1,0 +1,3 @@
+Art. 78.-En caso de ocasionar algún perjuicio, el dueño del animal vagante, deber resarcirlo al momento por completo, y perder además el mismo animal que se vender, y su producto se adjudicara al fondo local del puerto.
+Art. 78.-Segunda visita del Comandante. Cuando los Capitanes y sobrecargos soliciten el permiso de poner sus buques a la carga, con certificado o nota de la Administración de estar satisfecha la hacienda pública de todos sus derechos, señalar el día de la visita, para que estén abordo los oficiales y tripulación del buque.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°78)

@@ -1,0 +1,3 @@
+Art. 23.-Si algún buque desarbolado hace por el puerto, o arrastrado por las corrientes se observa en peligro proximo, se le proporcionar n remolques a su costa, siempre que el caso lo permita y anteceda su pedido.
+Art. 23. -Dicho registro de "entradas y salidas" les servir para formar el general de "estantes y habitantes", el cual se dividir en dos clases, a saber: la 1° donde se inscribir n todas las personas que tengan casa y familias, y la 2a que comprender a todos los que vivan sin arraigo o como trausentes.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°23)

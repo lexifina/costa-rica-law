@@ -1,0 +1,3 @@
+Art. 53.-El buque que necesitare de auxilio, lo pedirá poniendo su bandera a popa con un nudo en la punta; y teniendo artillería, hará tres tiros a intervalos.- Todos los buques fondeados deben darlo; y el Comandante del puerto, de la manera que le sea posible.-El importe de los gastos causados con motivo del auxilio, ser pagado por el Capitán del buque que lo haya recibido.
+Art. 53.-Cada una tendrá su Jefe particular con el título de "Capitán" nombrado por el Comandante de acuerdo con el Ayudante, asociados de algunos comerciantes y los "Cabos" correspondientes, a razon de uno por cada cinco individuos, elegidos en iguales terminos.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°53)

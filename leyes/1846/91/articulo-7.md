@@ -1,0 +1,3 @@
+Art. 7. Desde que el Comandante del puerto tenga aviso de los vig¡as, de estar a la vista algún buque que haga por entrar e ize su pabellon, mandar que salga un practico para su bordo, sea contra viento o marea, para que informándose del mayor calado del buque, lo dirija a fondeadero seguro designado.
+Art. 7. El Comandante es la autoridad superior de ambos distritos; pero residir en el de Poniente, y lo gobernar directamente por si, en caso de no tener mas que un Ayudante; pues existiendo dos, permanecer uno a su lado que desempeñe las funciones de Alcalde constitucional, y ejecutor de polic¡a en aquel distrito. No habiendolo, las reasumir el mismo Comandante.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°7)

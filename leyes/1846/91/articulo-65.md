@@ -1,0 +1,3 @@
+Art. 65.-El Comandante dispondrá, que en otra embarcación se conduzcan a remolque por la lancha de auxilio, y dejándole fondeada a barlovento inmediato del buque, para que vengan sus marineros a extraer estos auxilios hospitalarios, volverá la misma lancha en la siguiente marea a regresar la embarcación que dejo fondeada con la carga.
+Art. 65.-Para evitar cuestiones, la Comandancia dispondrá se midan y clasifiquen inmediatamente todos los bongos, lanchas y cualquiera otra especie de embarcaciones que se empleen en la carga y descarga; haciendo marcar con pintura, en el lugar mas visible, el número que corresponda a cada una según su clase.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°65)

@@ -1,0 +1,3 @@
+Art. 17. Antes de salir el sol, o después de puesto, en ningún caso saldrá el practico, ni se dar auxilio.
+Art. 17. Cuando algún individuo perteneciente a la tripulación de un buque, quisiere detenerse por algún tiempo, o quedarse en tierra con anuencia de su Capitán, o porque este lo haya abandonado, manifestar el caso en que se haya al Comandante del Puerto, y previo su permiso podrá residir en el pueblo, donde también se presentar al Jefe del distrito. La infracción de este precepto ser castigada con la pena de diez pesos de multa o trabajo en obras públicas por otros tantos días.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°17)

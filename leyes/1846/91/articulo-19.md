@@ -1,0 +1,3 @@
+Art. 19. La mitad del derecho que cobran los prácticos por el Art. 12, forma el fondo de responsabilidades; y al efecto las Administraciones marítimas lo exigir n y custodiaran en arcas como ramo del tesoro. Esto, sin perjuicio de la pena corporal que mereciere el practico.
+Art. 19. Cuando alguna persona sospechosa en el orden común de delitos llegue del exterior o de los otros Estados de la República, podrá el Comandante exigirle caución o fiadores de su buena conducta; y sino diere esta garantía puede prohibirle el desembarque o permanencia en el puerto mientras consulta al Gobierno: lo que deber practicar inmediatamente bajo su responsabilidad.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°19)
