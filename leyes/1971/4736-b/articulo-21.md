@@ -1,0 +1,12 @@
+ARTICULO 21
+Las personas protegidas deberán comprender:
+a) sea a categorías prescritas de asalariados que en total constituya,
+por lo menos, el 50 por ciento de todos los asalariados;
+b) sea a todos los residentes cuyos recursos durante la contingencia
+no excedan de límites prescritos de conformidad con las
+disposiciones del artículo 67;
+c) o bien, cuando se hayan formulado una declaración en virtud del
+artículo 3, a categorías prescritas de asalariados que en total
+constituya, por lo menos, el 50 por ciento de todos los asalariados
+que trabajen en empresas industriales en las que estén empleadas,
+como mínimo, veinte personas.
