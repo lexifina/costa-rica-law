@@ -1,1 +1,0 @@
-Artículo 9°- Derechos sobre investigación: Para los casos contemplados en el inciso c) del artículo 3°, el funcionario deberá ceder gratuitamente al Banco, los derechos de autor que se deriven de los trabajos de investigación resultantes.

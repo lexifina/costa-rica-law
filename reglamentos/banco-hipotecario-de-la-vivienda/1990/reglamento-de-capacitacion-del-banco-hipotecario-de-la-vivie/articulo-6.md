@@ -1,1 +1,0 @@
-Artículo 6°- Beneficios precedentes: En el caso del beneficio previsto en el artículo 3°, inciso a) del presente Reglamento, el funcionario no debe haber disfrutado de licencias o becas similares, de cualquier institución o Gobierno, en los cuatro años anteriores a la solicitud respectiva.

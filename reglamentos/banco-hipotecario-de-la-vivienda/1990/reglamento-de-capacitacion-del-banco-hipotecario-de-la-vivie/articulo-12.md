@@ -1,1 +1,0 @@
-Artículo 12.- Incumplimiento. Casos de excepción. No correrá la obligación prevista en el artículo anterior cuando la pérdida o el retiro de un curso o carrera, o el incumplimiento de otra obligación, obedezca a enfermedad grave o prolongada del funcionario, a caso fortuito o fuerza mayor, todo a juicio de la Junta Directiva del Banco.
