@@ -14,3 +14,4 @@ Reglamento Pago de Zonaje de Servidores Ministerio Educación Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-03-01 | la propia norma |
+| 2 | 1981-10-31 | Decreto Ejecutivo 13082 (1981-10-31) |

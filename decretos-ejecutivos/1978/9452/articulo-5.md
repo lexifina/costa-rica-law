@@ -1,2 +1,4 @@
 Artículo 5°-El pago de sobresueldo de zonaje a aquellos servidores cuyo salario se calcula de acuerdo con el número de lecciones que imparten, será proporcional a ese mismo número de lecciones cuando éste fuere inferior a 16. Aquellos educadores que imparten 16 ó más lecciones, tienen derecho al reconocimiento total de dicho sobresueldo.
 A los servidores técnico-docentes y administrativo-docentes que presten sus servicios en una circunscripción territorial, se les reconocerá el sobresueldo asignado a su sede.
+No obstante, cuando en una dirección zonal con más de 25% de las instituciones se pagare sobresueldo de zonaje, el del Director Zonal será equivalente a la suma de los montos asignados a cada una de ellas entre el total de instituciones de la jurisdicción. Si este promedio resultare inferior a la asignación hecha a la sede se aplicará esta última.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 13082 del 31 de octubre de 1981)
