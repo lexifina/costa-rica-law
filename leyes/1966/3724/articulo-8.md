@@ -1,5 +1,2 @@
-Artículo 8º.- Los servidores cuyos puestos conserven la misma
-clasificación, tendrán aumentos anuales hasta completar el sueldo máximo
-correspondiente a su categoría, siempre que su calificación anual de
-servicios, hecha por el jefe de su departamento, sea de Satisfactorio, Muy
-Bueno o Excelente.
+Artículo 8°-Todos los servidores tendrán derecho a percibir, por cada año de servicio, de acuerdo con su fecha de ingreso el incremento que corresponda a la categoría o base de la clase de puestos que ocupan, conforme a los términos de la escala anterior, y hasta un máximo de treinta pasos consecutivos. El mismo criterio se aplicará cuando, por razones de valoración de un cargo, éste llegara a constituir una categoría distinta de las incluidas en la escala indicada.
+(Así reformado por el artículo 1° de la ley N° 6785 del 6 de agosto de 1982)
