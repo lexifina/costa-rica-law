@@ -4,7 +4,7 @@ Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES,
 En uso de las facultades y atribuciones que les confieren el artículo 140, incisos 3) y 18), de la Constitución Política, el Convenio sobre Aviación Civil Internacional, firmado en Chicago el 7 de diciembre de 1944 y el artículo 161 de la Ley General de Aviación Civil, N° 5150 del 14 de mayo de 1973 y sus reformas. Por tanto,
 DECRETAN:
 Artículo 1°-Modifíquense los artículos 3°, 4°, 5°, 6°, 7°, 8°, 10, 11, 12 y 13 del decreto ejecutivo N° 20217-MOPT, Régimen Tarifario para la Prestación de Servicios y Facilidades Aeroportuarias, para que en adelante se lean:
-(NOTA: mediante el artículo 1° del Decreto Ejecutivo N° 22861 se reforma el Decreto N° 21852 en cual a su vez reformaba este decreto, por lo que se reproduce el texto de dicha reforma).
+(NOTA: mediante el artículo 1° del Decreto Ejecutivo N° 22861 se reforma el Decreto N° 21852 en cual a su vez reformaba este decreto, por lo que se reproduce el texto de dicha reforma, posteriormente mediante el artículo 1° del Decreto Ejecutivo N° 23007 de 07/03/1994, que reforma al N° 22861 se indica que la reforma del inciso h) del artículo 12 rige a partir del 1° de octubre de 1993).
 “Artículo 3°--Los derechos aplicables a aquellas aeronaves que efectúan aterrizajes en los aeropuertos internacionales del país serán los siguientes:
 Rangos de PMD | Tarifa por Tonelada Métrica
 | Cuando el servicio se origine en vuelos locales. | Cuando el servicio se origine en vuelos internacionales.
