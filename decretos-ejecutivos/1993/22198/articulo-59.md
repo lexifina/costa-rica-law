@@ -1,6 +1,7 @@
 Artículo 59.—Del Consejo de Valoración. El Consejo de Valoración es un órgano colegiado integrado por el Director de Centro o de ámbito de convivencia y los representantes de las áreas técnicas existentes en el centro.
 Sesionará ordinariamente una vez por semana y tendrá como funciones:
-a) Realizar la valoración del privado o privada de libertad al menos una vez cada seis meses o de los niños, niñas y adolescentes al menos una vez cada tres meses.
+a) Realizar la valoración técnica de la persona privada de libertad, según los plazos que se establecen en el Artículo 68.
+(Así reformado por el Artículo 1º del Decreto Ejecutivo 32265 del 31 de enero de 2005)
 b) Determinar las modificaciones al plan de atención técnica de cada privado o privada de libertad, niño, niña o adolescente así como su ubicación en el centro.
 c) Analizar y resolver en primera instancia la materia de régimen disciplinario.
 ch) Enviar semestralmente al Instituto Nacional de Criminología el informe respectivo para la aplicación del descuento del artículo 55 del Código Penal.
