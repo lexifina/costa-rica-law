@@ -10,35 +10,13 @@ Considerando:
 3º—Que la doctrina del derecho público, reconoce que el uso de una vía pública, al igual que sucede con el uso de los demás bienes públicos, debe ser regulado sobre la base de requisitos derivados de la seguridad y sanidades públicas, así como por razones que conciernen al buen régimen de la cosa pública o a su conservación.
 4º—Que la Administración tiene la facultad general de reglamentación del uso de la vías públicas; y
 5º—Que se requiere un tiempo prudencial para la que la Administración Forestal del Estado, ante el grave problema de la tala ilegal, documentado por el estudio del CATIE antes referido, diseñe y establezca un sistema institucional de control de tala legal. Por lo tanto,
+(Nota de Sinalevi: El texto de esta norma fue reformado parcialmente y reproducido su texto en forma íntegra por el artículo 1° del decreto ejecutivo N° 30918 del 4 de diciembre del 2002 y se transcribe a continuación:)
 Decretan:
-Artículo 1º—Los siguientes serán los documentos necesarios para el transporte de la madera por vías públicas terrestres en el territorio nacional:
-Origen | Tipo de madera | Documentación necesaria
-Bosque natural | Madera en troza | Guía amarilla de transporte y una
-| | placa en cada una de las trozas
-Plantaciones | Madera en Troza | Guía de transporte.
-Forestales | | Certificado de origen (para
-| . | aquellos casos en los que el
-| | transporte sea de un único viaje).
-Sistemas | Madera en troza | Guía de transporte y una placa
-agroforestales | | anaranjada en cada una
-| | de las trozas
-Terrenos de uso | Madera en troza | Guía de transporte y una
-agropecuario y | | placa color amarillo en cada
-sin bosque. | | una de las trozas.
-Centros de | Madera en troza | Factura de compraventa, o
-industrialización | escuadrada o | del servicio de aserrío
-primaria, | aserrada. | debidamente autorizada por
-aserraderos | | la Dirección de Tributación
-portátiles, | | Directa y con el detalle del
-Industrias de | | impuesto de ventas. La
-Plantaciones | | factura deberá identificar
-forestales | | claramente al comprador y
-| | al vendedor de la madera.
-| | Si se trata de madera aserrada
-| | "in situ", deberá aportar la
-| | guía de transporte para madera
-| | aserrada más la factura de
-| | aserrío, salvo que se trate del
-| | propietario de la finca, en
-| | cuyo caso debe portar la
-| | guía de transporte.
+Artículo 1º—Los siguientes, serán los documentos necesarios para el transporte de la madera por vías públicas terrestres en el territorio nacional:
+Origen | Tipo | Documentación necesaria
+Bosque natural* | Madera en troza | Guía de transporte y una placa en cada una de las trozas
+Plantaciones forestales | Madera en troza, escuadrada o aserrada | Certificado de origen o la respectiva de Guía, de Transporte de madera emitida por el regente forestal (distintivos de los medios de transporte se aplicarán de acuerdo al artículo noveno de este decreto)
+Sistemas agroforestales* | Madera en troza | Guía de transporte y una placa color anaranjada en cada una de las trozas.
+Terrenos de uso agropecuario y sin bosque* | Madera en troza | Guía de transporte y una placa color amarillo en cada una de las trozas.
+Centro de industrialización primaria, aserraderos portátiles. No aplica para la industria de plantaciones. | Madera en troza escuadrada o aserrada | Factura de compraventa, o del servicio deaserrío debidamente autorizada por la Dirección General de Tributación Directa y con el detalle del impuesto de ventas. La factura deberá identificar claramente al comprador y al vendedor de la madera. Si se trata de madera aserrada "in situ", deberá aportar la guía de transporte para madera aserrada más la factura de aserrío, salvo que se trate del propietario de la finca, en cuyo caso debe portar la guía de transporte emitida por la AFE.
+* Para el transporte de madera aserrada "in situ" se deberá portar la Guía de Transporte para madera procesada emitida por la Administración Forestal de Estado.

@@ -14,3 +14,4 @@ Determina los documentos necesarios para el transporte de la madera por vías p�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-21 | la propia norma |
+| 2 | 2002-12-04 | Decreto Ejecutivo 30918 (2002-12-04) |

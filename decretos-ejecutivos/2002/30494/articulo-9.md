@@ -1,2 +1,1 @@
-Artículo 9º—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los cinco días del mes de junio del dos mil dos.
+Artículo 9º—La Resolución N° R-SINAC-DG-010-2000 del Ministerio del Ambiente y Energía, Sistema Nacional de Áreas de conservación, publicada en el Diario Oficial La Gaceta Nº 143 del miércoles 26 de julio del 2000, continuará aplicándose en lo que no se regule en este decreto para el transporte de madera, indistintamente cual sea su procedencia.
