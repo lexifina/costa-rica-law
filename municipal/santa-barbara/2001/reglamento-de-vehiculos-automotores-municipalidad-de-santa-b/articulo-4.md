@@ -1,0 +1,1 @@
+Artículo 4°-Los vehículos de uso administrativo, serán aquellos utilizados por la Municipalidad en sus servicios regulares de transporte de personas, materiales y equipo dentro del desarrollo normal de los funcionarios de sus oficinas y departamentos, Se incluyen en esta categoría la maquinaria, los equipos de vías públicas y los de recolección.

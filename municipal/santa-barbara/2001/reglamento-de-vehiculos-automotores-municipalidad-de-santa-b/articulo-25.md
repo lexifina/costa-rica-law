@@ -1,0 +1,1 @@
+Artículo 25.-Cuando los gastos originados en un accidente de tránsito, sean cubiertos por la póliza respectiva, el conductor responsable deberá cubrir el monto del deducible y será acreedor de las sanciones correspondientes.

@@ -1,0 +1,2 @@
+Artículo 13.-Queda terminantemente prohibido que en los vehículos de la Municipalidad, viajen otras personas que no sean servidores o funcionarios de la misma, salvo en aquellos casos en los que la índole del transporte, el propósito del viaje o la emergencia así lo justifiquen. Para los dos primeros casos, índole del transporte y propósito del viaje, la justificación deberá ser previa y con suficiente antelación.
+Asimismo, será exclusivamente responsable del cumplimiento de esta disposición, la persona a quien se le ha asignado el vehículo.

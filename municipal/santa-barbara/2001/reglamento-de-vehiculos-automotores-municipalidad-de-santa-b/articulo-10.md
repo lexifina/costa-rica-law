@@ -1,0 +1,1 @@
+Artículo 10.- Todos los vehículos municipales deberán estar cubiertos por una póliza de seguro contra todo riesgo, correspondiendo al Acalde en coordinación con la tesorería, el oportuno y permanente cumplimiento de esta obligación.

@@ -1,0 +1,2 @@
+Artículo 23.-Los únicos funcionarios autorizados para retirar combustibles, lubricantes y repuestos, son los que tienen asignados vehículos; siempre que deba entregar o recibir facturas, debe firmar como responsable el empleado que tiene el vehículo a cargo. A cada uno de estos vehículos el Alcalde Municipal les asignará la cuota de combustible necesaria para su funcionamiento, de acuerdo con los programas de trabajo establecidos.
+En caso de que dicha cuota fuera insuficiente, el Alcalde podrá autorizar una cuota adicional mediante los estudios previos del caso.
