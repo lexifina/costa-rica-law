@@ -1,0 +1,1 @@
+Cláusula décima primera: De la vigencia: Este reglamento entrará en vigencia al día hábil siguiente de la publicación en el Diario Oficial La Gaceta. Corresponderá a la Gerencia de Administración y Finanzas su divulgación en la empresa a partir de dicha publicación.

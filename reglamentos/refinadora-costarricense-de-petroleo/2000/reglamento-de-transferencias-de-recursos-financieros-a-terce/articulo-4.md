@@ -1,0 +1,1 @@
+Cláusula cuarta: De la aprobación de la solicitud: La Junta Directiva analizará la solicitud y los informes técnico - financiero y jurídico, y resolverá la misma considerando además la capacidad financiera de RECOPE para hacer frente a tal erogación.

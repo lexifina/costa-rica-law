@@ -1,0 +1,1 @@
+Cláusula octava: De la adquisición de bienes y servicios: La adquisición de los bienes y servicios con los fondos transferidos por RECOPE será de exclusiva competencia de la entidad beneficiaría de ellos, a excepción del Ministerio del Ambiente y Energía, para lo cual se continuará con el procedimiento a la fecha autorizado por la Contraloría General de la República.

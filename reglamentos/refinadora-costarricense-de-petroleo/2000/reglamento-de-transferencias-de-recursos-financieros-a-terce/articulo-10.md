@@ -1,0 +1,1 @@
+Cláusula Décima: Derogaciones: Se deroga expresamente el Reglamento de Transferencias de Recursos Financieros, Asfaltos y Bienes en Desuso a Terceros, aprobado en el Artículo 2° de la sesión ordinaria No •3446-191, celebrada el lunes 10 de abril del 2000. Así como cualquier disposición que se oponga o contradiga lo preceptuado en este reglamento.
