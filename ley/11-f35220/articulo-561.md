@@ -1,3 +1,9 @@
 Artículo 561
 Derogatorias de leyes
-Quedan derogadas todas las leyes punitivas referentes a los hechos previstos y penados en este Código, aun las que hayan especializado la represión de determinados delitos, con excepción de los que tengan carácter de militares por referirse al servicio y disciplina del Ejército en paz o en guerra, y excluyendo también las infracciones que constituyan la materia exclusiva del Código Fiscal, sin perjuicio de las jurisdicciones [instituidas por la Ley Orgánica de Tribunales y el Código de Procedimientos.
+Quedan derogadas, tan sólo en sus disposiciones de carácter punitivo, todas las leyes referentes a los hechos previstos y sancionados en este código, aun las que hayan especializado la represión de determinados delitos, exceptuándose las siguientes:
+a) La de Imprenta de 12 de julio de 1902, revalidada por ley de 15 de mayo de 1908;
+b) La de Vagos de 21 de agosto de 1917;
+c) La de juegos de 31 de agosto de 1922;
+d) Las relativas a delitos que tengan el carácter militar por referirse al servicio y disciplina del Ejército, en tiempo de paz o en estado de guerra; y
+e) Las puniciones que el Código Fiscal y leyes anexas establecen para sancionar los delitos contra la Hacienda Pública.
+(Así reformado por el artículo 1° de la ley N° 19 del 2 de octubre de 1925)
