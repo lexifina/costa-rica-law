@@ -1,0 +1,1 @@
+Artículo 2°-A consecuencia de ser absolutas las vacantes que han dejado los señores Castro y Montenegro, la duración del cargo de los suplentes que deben subrogarlos se extenderá hasta el último de Abril de 1894; y por ser temporal el impedimento del señor Sibaja, el suplente respectivo será electo para el período constitucional que terminará el último de Abril de 1892.
