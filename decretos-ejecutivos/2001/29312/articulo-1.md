@@ -21,3 +21,4 @@ Vehículo carga 2 ejes 6.900 7.700
 Vehículo carga 3 ejes 8.000 8.900
 Vehículo carga 4 ejes 9.500 10.600
 Vehículo carga 5 ejes 12.000 13.400"
+(Así modificado por el artículo 1 del Decreto Ejecutivo N° 30178 de 18 de enero del 2002)
