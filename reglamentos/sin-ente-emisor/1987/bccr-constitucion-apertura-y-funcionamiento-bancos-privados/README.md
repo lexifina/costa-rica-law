@@ -13,3 +13,4 @@ BCCR: Constitución Apertura y Funcionamiento Bancos Privados Ref. 10
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-11-09 | la propia norma |
+| 2 | 1987-11-09 | Ley 8 |
