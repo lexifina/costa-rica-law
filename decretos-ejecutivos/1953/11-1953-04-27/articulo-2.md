@@ -1,0 +1,2 @@
+Artículo 2°-Con tal motivo, se enarbolará el Pabellón Nacional en los edificios públicos. Todas las instituciones oficiales de enseñanza y las particulares que gocen del reconocimiento oficial celebrarán actos conmemorativos del aniversario con el propósito de exaltar su trascendencia y contribuir al perfeccionamiento de la educación nacional.
+Dado en la Casa Presidencial.- San José, a los veintisiete días del mes de abril de mil novecientos cincuenta y tres.
