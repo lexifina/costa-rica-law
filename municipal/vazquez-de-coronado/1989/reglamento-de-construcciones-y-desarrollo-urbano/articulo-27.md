@@ -1,0 +1,1 @@
+Artículo 27 .-Rótulos trámite de aprobación. Para colocar rótulos comerciales en la vía pública, requieren el trámite de aprobación expresa, escrita de la Municipalidad y se regirán por los criterios definidos en el arto IV. 15 del Reglamento de Construcciones Nacional.

@@ -1,0 +1,2 @@
+Artículo 54.-Garantía. En el momento en que el Concejo reciba las obras de urbanización, el desarrollador deberá comprometerse mediante documento escrito a reparar cualquier daño que aparezca en la infraestructura, durante el primer año de
+haberse entregado las obras. Vencido el plazo y no habiendo aparecido daños en la infraestructura, la Municipalidad devolverá el documento al desarrollador o bien la destruirá. Se entenderá por daño, todos aquellos que se deban a fallas de construcción no así los causados por terceras personas.

@@ -1,0 +1,1 @@
+Artículo 31.-Planos, especificaciones mínimas. En los planos deben estar consignadas las especificaciones mínimas necesarias para la ejecución de la obra, tales ,como la calidad y resistencia de ciertos materiales, recubrimiento de la armadura y otras que se estime conveniente tener a mano durante la construcción.

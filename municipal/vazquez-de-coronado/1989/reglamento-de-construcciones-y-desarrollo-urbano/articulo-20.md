@@ -1,0 +1,2 @@
+| Artículo 20.-Obligación de cercas, solar no ocupado. Todo solar no ocupado que linde con la vía pública a juicio de la Municipalidad, deberá cercarse hasta una altura de dos metros ( 2 metros) como mínimo, con cualquier tipo de cerca de láminas o baldosas sólidas o bien con alambre liso colocado en postes.
+En cualquier caso deben acatarse las órdenes municipales en resguardo de la salubridad, seguridad y ornato.

@@ -1,0 +1,2 @@
+Artículo 36.-Fijación de alineamiento, niveles constructivos, potestad municipal. Ninguna persona estará facultada para iniciar labores de construcción sin el previo señalamiento de la línea y niveles de construcción dados por el Inspector de
+Construcciones Municipal. En caso de que así lo hiciere, y si en el momento que la Municipalidad de el señalamiento correspondiente, lo construido se ve afectado, el responsable tendrá que cumplir con lo indicado en el artículo 11 de este reglamento.

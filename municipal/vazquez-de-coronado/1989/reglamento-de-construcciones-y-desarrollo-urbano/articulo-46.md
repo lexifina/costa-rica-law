@@ -1,0 +1,1 @@
+Artículo 46.-Construcción sin permiso municipal, presentación tardía de planos. Si el propietario presenta el proyecto y este es aceptado, la Municipalidad comprobará si la obra ha sido ejecutada de acuerdo con él.

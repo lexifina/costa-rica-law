@@ -1,0 +1,1 @@
+Artículo 15.--Solicitud de alineamiento. El Departamento de Ingeniería es el que fija el alineamiento oficial, quien solicite el alineamiento deberá presentar los documentos que la Municipalidad exija.

@@ -1,0 +1,1 @@
+Artículo 10.-Saledizos. Ningún elemento estructural o arquitectónico, situado a menos de 2,50 metros de altura podrá sobresalir del alineamiento oficialmente fijado. Los que se encuentren a mayor altura podrán hacerlo conforme lo establece el Reglamento de Construcciones Nacional.

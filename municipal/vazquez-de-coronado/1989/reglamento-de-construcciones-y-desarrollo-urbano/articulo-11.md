@@ -1,0 +1,1 @@
+Artículo 11.-Invasión de la vía pública. Toda alteración al trazo de una construcción hacia afuera del alineamiento oficial, será obligado el dueño de la construcción a demoler la parte de la misma que motive dicha invasión dentro del plazo que al efecto señale la Municipalidad.

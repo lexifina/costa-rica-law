@@ -1,0 +1,1 @@
+Artículo 4°- Ingenieros responsables. Se considera como tales a los ingenieros o arquitectos activos, incorporados al Colegio Federado, tal como lo indica la ley de construcciones con las facultades y las responsabilidades indicadas en ella y en el Reglamento Interno de Ética Profesional del Colegio Federado.

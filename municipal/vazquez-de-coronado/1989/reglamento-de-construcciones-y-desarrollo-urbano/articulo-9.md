@@ -1,0 +1,1 @@
+Artículo 9°-Rotura de pavimento. La rotura de pavimento de la vía pública para la ejecución de obras públicas o privadas requerirá licencia previa de la Municipalidad o el MOPT, quien fijará, en cada caso, las condiciones bajo las cuales la concede. El solicitante estará obligado a la reparación correspondiente o al pago de esta, si la hiciera la Municipalidad.

@@ -1,0 +1,3 @@
+Artículo 41.-Aguas negras y servidas, obligatoriedad del tanque séptico y drenaje. Todo propietario de edificio o casa de habitación construida o en proceso de construcción está obligado a canalizar las aguas negras y servidas al tanque séptico y drenajes respectivamente, por ningún motivo se permitirá que estas aguas descarguen
+en la vía pública; por lo tanto quien no cumpla con esta disposición, la Municipalidad procedeí'á a realizar los trabajos por cuenta del propietario cargándose todos los gastos más un 50% (cincuenta por ciento) de recargo.
+En los edificios de comercio se procederá a la cancelación de las patentes y el cierre temporal de los mismos. si una vez notificados no proceden a corregir la evacuación de estas aguas.

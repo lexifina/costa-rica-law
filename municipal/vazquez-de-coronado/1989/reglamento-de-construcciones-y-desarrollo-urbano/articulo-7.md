@@ -1,0 +1,1 @@
+Artículo 7°-Permiso de ocupación. Si en la ejecución de una obra se ocupare una vía o acceso público, el subsuelo o el espacio aéreo de la misma, se deberá obtener un permiso de ocupación de vía de la Municipalidad o del MOPT, según corresponda.

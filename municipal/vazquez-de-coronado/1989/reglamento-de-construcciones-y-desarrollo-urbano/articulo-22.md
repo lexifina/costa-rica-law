@@ -1,0 +1,1 @@
+Artículo 22.-Línea de construcción, cerca de distancia mayor. En caso de que la cerca de una propiedad esté ubicada a una distancia mayor a la establecida por el derecho de vía en el sector, la línea de construcción será siempre a dos metros de dicha cerca.

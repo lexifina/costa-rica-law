@@ -1,0 +1,1 @@
+Artículo 39.-Daños propiedad municipal, responsabilidad. Cuando por motivo de una construcción se causen daños a la propiedad municipal, los mismos serán subsanados por cuenta del propietario particular.

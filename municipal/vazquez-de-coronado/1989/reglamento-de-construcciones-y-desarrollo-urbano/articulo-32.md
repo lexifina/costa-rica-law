@@ -1,0 +1,1 @@
+Artículo 32.-Planos, enmienda de defectos u omisiones. Si el Departamento de Ingeniería encontrase algún defecto u omisión o considerar que algún aspecto técnico en los' planos debe modificarse lo comunicará al interesado a efecto de que proceda a hacer las enmiendas señaladas.

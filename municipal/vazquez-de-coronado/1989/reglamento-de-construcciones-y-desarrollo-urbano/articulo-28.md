@@ -1,0 +1,1 @@
+Artículo 28.-Variación de la obra, anulación de la autorización inicial. Cuando se autorice la construcción de una obra, y ésta, en el proceso constructivo es variada sin informar y justificar a la Municipalidad los cambios, el propietario deberá presentar de nuevo toda la documentación quedando la autorización inicial nula automáticamente.

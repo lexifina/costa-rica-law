@@ -1,0 +1,2 @@
+Artículo 33.-Decisiones del Departamento de Ingeniería Municipal. Apelación. No conforme el interesado con la decisión del Departamento de Ingeniería podrá apelar la misma ante el Concejo dentro de los cinco días hábiles en este caso, el Concejo si lo estima conveniente podrá solicitar la colaboración del Colegio Federado, a efecto de que externe su criterio.
+Recibido el informe solicitado, el Concejo procederá a resolver el asunto objeto de la controversia.

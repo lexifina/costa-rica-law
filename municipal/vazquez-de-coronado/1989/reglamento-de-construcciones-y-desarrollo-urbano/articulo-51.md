@@ -1,0 +1,2 @@
+Artículo 51.-Permiso de construcción, plazo de vigencia. Todo permiso de construcción que otorgue la Municipalidad tendrá una vigencia de seis (6) meses para que la obra de inicio, vencido este plazo el interesado deberá renovar dicho permiso. Si ha transcurrido un año y la obra no se ha iniciado se deberán presentar todos los documentos de nuevo con los sellos de las distintas instituciones renovados para
+conceder la renovación del permiso. .
