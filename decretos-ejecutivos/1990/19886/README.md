@@ -14,3 +14,4 @@ Reglamento a la Ley Forestal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-09-13 | la propia norma |
+| 2 | 1990-09-25 | Decreto Ejecutivo 19964 (1990-09-25) |
