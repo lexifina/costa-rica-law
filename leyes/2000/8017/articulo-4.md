@@ -1,0 +1,1 @@
+Artículo 4º—Ámbito de aplicación de la ley. Esta normativa se aplicará a todos los centros de atención integral públicos, privados y mixtos, excepto a los que se encuentran bajo la tutela, el apoyo y la supervisión del Ministerio de Trabajo y Seguridad Social y el Ministerio de Educación Pública.

@@ -1,0 +1,1 @@
+Artículo 14.—Autorización. Autorízase a los funcionarios de la secretaría ejecutiva del consejo, para que ingresen a los centros de atención integral para ejercer la supervisión necesaria a fin de hacer cumplir lo dispuesto en la presente ley y los reglamentos que se dicten para tal efecto.
