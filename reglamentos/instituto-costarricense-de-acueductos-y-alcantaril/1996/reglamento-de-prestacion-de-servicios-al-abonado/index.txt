@@ -94,4 +94,7 @@ articulo-93.md
 articulo-94.md
 articulo-95.md
 articulo-96.md
+articulo-97.md
+articulo-98.md
+articulo-99.md
 articulo-1-transitorio.md

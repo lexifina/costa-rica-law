@@ -1,1 +1,1 @@
-Artículo 66.—En todos los casos señalados anteriormente en los que una conexión no registrada abastezca de conexiones ilícitas más de una unidad de consumo, se cobrara tantos servicios de cañería como unidades de consumo existan.
+Artículo 66.—(DEROGADO mediante sesión ordinaria N° 176 celebrada el 17 de julio de 1997.)

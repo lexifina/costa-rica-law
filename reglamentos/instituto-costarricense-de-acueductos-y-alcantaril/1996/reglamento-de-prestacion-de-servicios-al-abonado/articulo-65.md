@@ -1,2 +1,1 @@
-Artículo 65.—En caso de conexión ilícita a la red interna de la propiedad vecina, AyA incluirá el recibo del servicio activo, el monto equivalente a 6 meses del consumo de agua como servicio fijo en clase reproductiva.
-EI propietario del inmueble con conexión fraudulenta deberá normalizar su situación en un plazo máximo de 1 mes. Debiendo para ello cumplir los tramites establecidos en el artículo 32 del presente reglamento. En caso contrario se iniciará la acción penal correspondiente.
+Artículo 65.—(DEROGADO mediante sesión ordinaria N° 176 celebrada el 17 de julio de 1997.)

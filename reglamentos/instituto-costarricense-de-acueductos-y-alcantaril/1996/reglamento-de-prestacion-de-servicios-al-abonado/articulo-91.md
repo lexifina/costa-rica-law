@@ -1,1 +1,2 @@
-Artículo 91.—A partir de la fecha de vencimiento del recibo, si éste no ha sido cancelado, el cliente podrá pagarlo solamente en las cajas recaudadoras propias del AyA o en aquellas entidades autorizadas para tal efecto, con un recargo del 2% mensual sobre el pendiente.
+Artículo 91.—Todo recibo vencido podrá ser cancelado en cualquiera de los agentes recaudadores debidamente autorizados por AyA para tales efectos, con un recargo del 2% mensual sobre el pendiente, artículo 13 Ley General de Agua Potable).
+(Así reformado mediante sesión ordinaria N° 176 celebrada el 17 de julio de 1997.)
