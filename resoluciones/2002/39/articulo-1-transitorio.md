@@ -1,0 +1,1 @@
+Transitorio único: En aquellos casos en que se no haya presentado la solicitud a que se refiere el artículo anterior por cuanto la Administración no había aclarado lo del plazo para presentarla, por esta única vez se reconocerá a exención, si la solicitud es presentada dentro de los dos meses siguientes a la fecha de publicación de esta resolución.
