@@ -1,0 +1,1 @@
+6°.- Así mismo deberá darse presisamente destino publico a todos los que se gradúen entre siete años en dicha Casa y a los Maestros que enseñen el curso completo en qualesquiera Ciencia gratis, mejorándose si lo tuviese de antemano.
