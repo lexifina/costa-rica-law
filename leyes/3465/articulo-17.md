@@ -1,0 +1,1 @@
+Artículo 17.- Establécese un impuesto de un colón (¢ 1.00) por cada cabeza de ganado que se consigne en la guía de exportación. El Banco Central, de acuerdo con el Ministerio de Hacienda, reglamentará la recaudación de este impuesto, cuyo producto se destinará a satisfacer los gastos que origine el cumplimiento de esta ley.

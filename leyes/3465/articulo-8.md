@@ -1,0 +1,1 @@
+Artículo 8º.- Para efectos de control, el ganado vacuno de las fincas fronterizas, será marcado con el fierro del Gobierno de Costa Rica. Esta labor estará a cargo de la Inspección Ganadera, con el auxilio de los Resguardos Fiscales.

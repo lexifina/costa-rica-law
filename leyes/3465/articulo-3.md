@@ -1,0 +1,2 @@
+Artículo 3º.- A ningún ganadero podrá dársele permiso de exportación por más del 50% de las hembras de su producción de un año, porcentaje que se calculará de acuerdo con lo que hubiere producido durante el año próximo anterior.
+Con este fin, al solicitar el permiso de exportación, el interesado hará declaración jurada de sus existencias de ganado vacuno, con indicación del número de crías producidas por él durante el año próximo anterior.
