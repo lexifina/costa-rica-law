@@ -1,0 +1,1 @@
+Artículo 193.—El Departamento de Inspección de Productos de Origen Animal será el órgano de la Dirección que tendrá a cargo la ejecución y aplicación de lo dispuesto en los capítulos VII, VIII, IX, X, XI, XII, del título III de este Reglamento.

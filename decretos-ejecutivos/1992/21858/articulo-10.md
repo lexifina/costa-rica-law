@@ -1,0 +1,2 @@
+Artículo 10—Solicitud de inspección
+Toda persona física o jurídica que exporte o importe productos de origen animal a Costa Rica deberá solicitar ante el MAG se realice una inspección en el establecimiento en el cual se procesan los productos. Cuando la solicitud sea formulada por una persona distinta al propietario del establecimiento donde se procesa el producto debe contarse la anuencia de este.

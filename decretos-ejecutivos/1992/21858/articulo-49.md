@@ -1,0 +1,1 @@
+Artículo 49.- Probablemente el país exportador tendrá disposiciones diferentes a las de Costa Rica para el control y destino de dichas materias razón por la cual se debe comparar y evaluar por separado.

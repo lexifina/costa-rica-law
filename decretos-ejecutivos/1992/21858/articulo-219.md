@@ -1,0 +1,1 @@
+Artículo 219.—Las disposiciones de este Reglamento no serán aplicables a los productos y/o subproductos de Carne Bovina que importe Costa Rica. El Poder Ejecutivo en un período máximo de un mes deberá dictar la normativa aplicable a la carne bovina importada.
