@@ -21,3 +21,4 @@ Reglamento del Seguro de Invalidez Vejez y Muerte de la Caja Costarricense de Se
 | 6 | 1997-08-05 | SINALEVI (sin norma nombrada) |
 | 7 | 1997-09-23 | SINALEVI (sin norma nombrada) |
 | 8 | 1998-08-27 | SINALEVI (sin norma nombrada) |
+| 9 | 1998-12-03 | SINALEVI (sin norma nombrada) |
