@@ -1,0 +1,1 @@
+19.—Instruir a los defensores en la utilización de la audiencia oral para la discusión de medidas cautelares como estrategia institucionalizada de defensa (sin perjuicio de la independencia funcional) siendo obligatorio para el defensor solicitar la presencia del imputado.

@@ -1,0 +1,1 @@
+15.—Los fiscales deben llevar registro de las personas sometidas a prisión preventiva, así como control adecuado sobre los respectivos plazos. Antes del vencimiento de dichos plazos, de estimarlo procedente, deben solicitar la prórroga respectiva, o en su defecto deben comunicar al Juzgado Penal a cuya orden está el detenido, la decisión de no pedir la prórroga.

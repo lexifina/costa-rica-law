@@ -1,0 +1,1 @@
+6º—Todas las medidas cautelares, inclusive las alternas a la prisión, deben ser revisadas periódicamente, por lo que deben mantenerse los controles internos respectivos para examinar la procedencia de su continuidad.

@@ -1,0 +1,1 @@
+12.—El juez no solo debe limitarse a analizar la probabilidad de participación en un hecho delictivo (análisis que no debe ser sustituido por una simple transcripción de los “hechos acusados” por el Ministerio Público), sino también debe examinar la existencia de los peligros procesales que podrían sustentar la medida cautelar.

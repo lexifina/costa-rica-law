@@ -1,0 +1,2 @@
+8º—Dictar resolución sobre medidas cautelares ante rebelde detenido, previo aviso o comunicación al Ministerio Público y a la defensa para conocer qué solicita aquel y qué alega ésta en ejercicio del derecho de defensa, conforme al contradictorio. En tal sentido se recuerda que en estos casos no procede la detención “automática”, sin resolución, ni que el juez oficiosamente dicte la prisión preventiva.
+La captura del imputado debe ponerse en conocimiento de estos operadores de inmediato y antes de tomar cualquier decisión.

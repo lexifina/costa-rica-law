@@ -1,0 +1,1 @@
+20.—Para poder cumplir con lo anterior debe instaurarse en todas las oficinas del país un rol adecuado de distribución de indagatorias, de tal modo que el defensor tenga completa disponibilidad para asistir a la audiencia oral sin tener que estar pendiente de la realización de otras indagatorias.

@@ -1,0 +1,1 @@
+23.—Que la Defensa Pública establezca un monitoreo periódico y permanente de las celdas de las secciones de cárceles de cada circuito judicial, para realizar una supervisión de las personas detenidas y del motivo de su detención, con el fin de detectar cualquier irregularidad.

@@ -1,0 +1,1 @@
+2º—Cuando no se ha establecido la probabilidad de que el imputado ha cometido delito, recordarles la imposibilidad de decretar la prisión preventiva, así como cualquier otra medida cautelar, de conformidad con el artículo 244 del Código Procesal Penal.

@@ -1,0 +1,1 @@
+7º—Dictar y fundamentar la resolución correspondiente cuando se prorrogue la prisión preventiva, luego de la emisión de la sentencia condenatoria, a pesar del criterio externado sobre la prórroga automática.

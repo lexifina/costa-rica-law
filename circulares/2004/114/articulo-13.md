@@ -1,0 +1,3 @@
+Al Ministerio Público:
+13.—En las solicitudes de prisión preventiva no se deben indicar causales en abstracto, sino señalarlas en cada caso concreto: ¿Cuáles son las causas específicas seguidas contra el encartado X para determinar reiteración? ¿A quiénes ha amenazado el encartado X en la causa concreta para alegar obstaculización? ¿Por qué motivos este imputado se presume que se fugará, haciendo abstracción de la alta penalidad o del daño causado cuando se trate de aspectos aislados?.
+Toda la información atinente a la medida debe constar en la solicitud, sin usar remisión a constancias que son la prueba del dicho pero no sustituyen la fundamentación.

@@ -1,0 +1,1 @@
+10.—Solicitar a Adaptación Social los perfiles psicológicos y socioeconómicos de previo a resolver solicitudes de modificación o sustitución de la prisión preventiva, siempre que ello no cause un atraso a la decisión, sin perjuicio de tomar en cuenta el informe si se recibe con posterioridad a la decisión, ante el evento de que su contenido pueda hacer variar lo resuelto.

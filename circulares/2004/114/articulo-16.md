@@ -1,0 +1,1 @@
+16.—El fiscal, de previo a solicitar ante el Juez Penal la declaratoria de rebeldía, en aquellos casos de investigación preliminar en los que no ha sido indagado al encartado, deberá solicitar la designación de un Defensor Público (artículo 13 CPP).

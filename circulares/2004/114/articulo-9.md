@@ -1,0 +1,1 @@
+9º—Recordar la imposibilidad de que el juez sustituya las razones del fiscal o que el tribunal de apelación agrave la situación del imputado, cuando sólo se apela en su favor. Al Fiscal compete formular y fundamentar la solicitud; al Juez darle o no razón; mientras que el tribunal de apelación tiene limitada su competencia al conocimiento de los agravios invocados en el recurso.

@@ -1,0 +1,1 @@
+11.—De acuerdo con los artículos 253 y 254 del Código Procesal Penal, los jueces pueden y deben revisar, sustituir, modificar o cancelar la prisión preventiva, incluso de oficio, ante variación de las condiciones originales, aún cuando no hayan transcurrido los tres meses iniciales.
