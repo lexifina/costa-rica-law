@@ -1,0 +1,1 @@
+Artículo 28°.- Dentro de los ocho días siguientes a la asamblea constitutiva, el Presidente de la asociación procederá, conforme al artículo 27 de la ley, a formular la respectiva solicitud de inscripción ante la Dirección.

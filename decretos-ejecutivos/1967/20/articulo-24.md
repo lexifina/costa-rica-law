@@ -1,0 +1,1 @@
+Artículo 24°.- El representante de la Dirección entregará a la asamblea un modelo de estatuto, La asamblea elegirá provisionalmente un Director de debates quien podrá nombrar entre los asistentes a las personas que crea más convenientes y aptas para que lo auxilien en su trabajo.

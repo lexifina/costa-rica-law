@@ -1,0 +1,3 @@
+CAPITULO III
+De las Asociaciones para el Desarrollo de la Comunidad
+Artículo 19.- Las asociaciones para el desarrollo integral de la comunidad, son los organismos comunitarios con una circunstancias territorial determinada, que representa a las personas que viven en una misma comunidad y que por lo tanto están autorizadas para promover a realizar un conjunto de planes necesarios para desarrollar económica, social y culturalmente a los habitantes del área en que conviven, colaborando para ello con el Gobierno, las municipalidades del área en que conviven , colaborando para ello con el Gobierno, las municipalidades y cualquiera otros organismos públicos y privados.

@@ -1,0 +1,1 @@
+Artículo 3°.- La Dirección será instrumento básico de desarrollo encargado de fomentar, orientar, coordinar y evaluar la organización de las comunidades del país, para lograr la participación activa de éstas, en forma libre, consciente y voluntaria, en los programas nacionales de desarrollo económico y social

@@ -1,0 +1,1 @@
+Artículo 5.- Las funciones de la Dirección son las establecen los artículos 3°, 4° y 7° de la ley y demás, las que naturalmente se desprendan de su función de orientadora de la política nacional de desarrollo de la comunidad, de conformidad con lo que dispongan el Consejo.

@@ -1,0 +1,1 @@
+Artículo 100.- La Dirección procurará mantener un sistema adecuado de asesoramiento para las asociaciones de desarrollo, en tal forma que en ningún momento éstas carezcan de la asesoría necesaria para la formulación de sus programas, o para la solución de los problemas. Para estos efectos, la Dirección podrá solicitar a las dependencias

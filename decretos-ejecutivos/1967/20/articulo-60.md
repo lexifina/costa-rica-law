@@ -1,0 +1,1 @@
+Artículo 60.- Las asociaciones de desarrollo podrán crear, por acuerdo de la Junta Directiva, grupos de trabajo para el cumplimiento de labores específicas, bajo la dirección del Secretario Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 99.- También dentro de sus posibilidades presupuestarias deberá la Dirección elaborar un plan de investigaciones y estudios sociales, dirigidos a facilitar la formulación y ejecución del plan nacional de desarrollo de la comunidad, y a proporcionar a la comunidades la información técnica adecuada, para la confección de sus programas de trabajo.

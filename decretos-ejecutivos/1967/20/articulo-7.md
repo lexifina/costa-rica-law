@@ -1,0 +1,1 @@
+Artículo 7°.- El Director y los jefes de los Departamentos formarán el Comité Técnico de la Dirección. El Director es el Presidente nato del Comité. Las funciones, atribuciones y funcionamiento del Comité serán determinados por el Consejo

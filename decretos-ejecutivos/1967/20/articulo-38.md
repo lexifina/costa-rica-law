@@ -1,0 +1,1 @@
+Artículo 38.- La Junta Directiva puede decretar la desafiliación de un asociado, cuando considere que en alguna forma daña la actividad de la asociación. El acuerdo respectivo debe ser razonado y fundamentado en pruebas suficientes. El acuerdo de desafiliación puede ser apelado para ante la asamblea general.

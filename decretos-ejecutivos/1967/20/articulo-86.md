@@ -1,0 +1,5 @@
+Articulo 86.- El Poder Ejecutivo procederá a decretar la disolución administrativa de cualquier entidad de las indicadas en el artículo anterior:
+a) Cuando el número de asociados sea inferior a cien, en las asociaciones integrales, salvo el caso en que la Dirección haya autorizado su funcionamiento con un número menor, conforme el artículo 16 de la ley. En este caso, la disolución se decretará cuando el número sea inferior al autorizado por la Dirección;
+b) Cuando el número de asociados en las asociaciones especificas sea inferior a veinticinco afiliados;
+c) Cuando se incumplan las obligaciones a que se refiere el artículo 67 de este Reglamento. En este caso, la disolución se decretará después de que la Dirección haya prevenido a la entidad respectiva que se ajuste a la disposiciones legales, reglamentarias y estatutarias , dentro de los quince días naturales a la fecha de la prevención; y
+d) Cuando la asociación haya cumplido el objeto para el cual fue fundada o cuando sus fines se hayan hecho legalmente imposibles.

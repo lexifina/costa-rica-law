@@ -1,0 +1,1 @@
+Artículo 95.- La Dirección será la encargada de resolver cualquier conflicto que surja entre las asociaciones tanto en relación con su representividad, como en cuanto a sus fines y jurisdicción territorial. Las decisiones que tome la Dirección, serán debidamente razonadas y no tendrán recurso alguno.

@@ -1,0 +1,1 @@
+Artículo 16°.- Presidirá el Consejo el Ministro que haya designado el Presidente de la República y al momento de la instalación se nombrará un vicepresidente. El Director designará a un funcionario de la Dirección para que sirva las funciones de Secretario del Consejo.

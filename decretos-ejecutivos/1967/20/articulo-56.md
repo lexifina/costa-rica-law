@@ -1,0 +1,1 @@
+Artículo 56°.- Los vocales sustituirán, por su orden, a los otros miembros de la Junta Directiva, excepto al Presidente. Además, cumplirán las otras funciones que les asigne el Estatuto o la Junta Directiva.

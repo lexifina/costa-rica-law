@@ -1,0 +1,1 @@
+Artículo 87.- La disolución administrativa será acordada por Decreto Ejecutivo a solicitud de la Dirección y la resolución respectiva se publicará en el Diario Oficial. Con base en esta publicación, se procederá a cancelar el asiento de inscripción en el Registro.

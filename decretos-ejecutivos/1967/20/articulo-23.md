@@ -1,0 +1,1 @@
+Artículo 23°.- Reunido el vecindario en asamblea en el día, hora y lugar determinados, el representante de la Dirección procederá a verificar si el número de asistentes forma quorum para la asamblea y en caso afirmativo, la declarará instalada y en funciones.

@@ -1,0 +1,1 @@
+Artículo 37.- la afiliación o desafiliación son completamente libres. Serán absolutamente nulas las cláusulas del Estatuto en que establezcan limitaciones a la libertad de afiliarse o retirarse de a asociación. La condición de afiliado se pierde por renuncia expresa o tácita. Se entenderá que hay renuncia tácita

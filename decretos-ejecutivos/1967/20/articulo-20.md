@@ -1,0 +1,1 @@
+Artículo 20°.- Para constituir una asociación de desarrollo integral de la comunidad, se requiere que un número no inferior a cien vecinos mayores de quince años, soliciten a la Dirección en forma escrita, que convoque al vecindario a una Asamblea general con ese fin.

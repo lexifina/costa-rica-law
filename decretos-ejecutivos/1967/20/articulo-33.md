@@ -1,0 +1,1 @@
+Artículo 33.- Para efectos de su nominación, las asociaciones de desarrollo integral, agregaran a esta frase el nombre de la localidad o región que abarcan sus actividades. En cuanto a las asociaciones específicas, usarán la palabra “asociación” seguida de una frase que indique la obra concreta o el fin específico que persiguen.

@@ -1,0 +1,1 @@
+Artículo 79.- Son aplicables a las uniones cantonales, a las federaciones y a las confederaciones, las normas relativas a las asociaciones integrales de desarrollo, en cuanto a constitución, funcionamiento y disolución.

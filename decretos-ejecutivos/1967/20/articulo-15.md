@@ -1,0 +1,1 @@
+Artículo 15.- El Director procederá, con base en el Decreto Ejecutivo de nombramiento del Consejo, a convocar a los nombrados para su juramentación e instalación. El Presidente del Consejo se juramentará ante el Presidente de la República y los demás miembros ante aquel. La fecha de la instalación y juramentación la fijara el Presidente del Consejo.

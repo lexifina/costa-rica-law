@@ -1,0 +1,1 @@
+Artículo 44.- Los acuerdos tomados por la asamblea general se considerarán firmes y deberán constar en un Libro de Actas de Asambleas Generales que será el mismo en que consta el acta constitutiva de la asociación. Tales acuerdos serán tomados por simple mayoría de votos, salvo que el Estatuto disponga otra cosa.

@@ -1,0 +1,1 @@
+Artículo 77.- El Estatuto determinará la forma en que las asociaciones estarán representadas en las uniones cantonales, éstas en las federaciones y las federaciones en las confederaciones. También indicará las obligaciones económicas que cada entidad tendrá respecto de aquella a que esté afiliada.

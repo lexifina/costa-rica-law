@@ -1,0 +1,1 @@
+Artículo 76.- Las uniones cantonales, las federaciones provinciales o regionales y las confederaciones nacionales de asociaciones de desarrollo se regirán por un estatuto que deberá llenar los lineamientos determinados en los artículos 17 de la ley y 32 de este Reglamento.
