@@ -18,3 +18,4 @@ Reglamento del Estatuto de Servicio Civil
 | 4 | 2000-07-07 | SINALEVI (sin norma nombrada) |
 | 5 | 2000-07-07 | Ley 7 |
 | 6 | 2000-07-07 | SINALEVI (sin norma nombrada) |
+| 7 | 2003-05-21 | SINALEVI (sin norma nombrada) |
