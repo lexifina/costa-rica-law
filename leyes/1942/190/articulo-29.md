@@ -1,0 +1,2 @@
+Artículo 29-Quien para conseguir los beneficios de esta ley diere falsas declaraciones, será penado por la respectiva autoridad de policía con arresto de tres a seis meses o con multa de cien a quinientos colones, y perderá las cuotas que hubiera satisfecho. Si el autor del fraude fuere cometido por una sociedad, soportarán la pena el Presidente y el Gerente.
+(Así adicionado por el artículo 2° de la ley N° 2 del 8 de mayo de 1943)
