@@ -14,3 +14,4 @@ Modifica la Ley de Presupuesto ordinario y extraordinario de la República para 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-05 | la propia norma |
+| 2 | 2003-03-14 | Decreto Ejecutivo 31093 (2003-03-14) |
