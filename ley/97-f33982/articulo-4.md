@@ -1,0 +1,1 @@
+Art 4°.- El examen se verificará por ahora en el edificio de la Universidad, presidido por el Regente o por el Regente o por un Magistrado Abogado, en el caso de no tener el Regente la calidad de letrado; y con asistencia del Secretario de la Suprema Corte que actuará en el examen y dará fé de lo actuado

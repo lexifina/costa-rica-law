@@ -1,0 +1,1 @@
+Art 14°.- El candidato debe pagar por todo derecho doce pesos del título para el fondo universitario doce pesos del título para el fondo universitario, dos pesos a cada uno de los Réplicas de la primera y segunda terna: doce reales al Secretario; y un peso al portero.
