@@ -13,3 +13,4 @@ Traspaso Lotes y Viviendas Adjudicados por el IMAS a BeneficiariosProyectos de V
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-22 | la propia norma |
+| 2 | 1999-10-22 | SINALEVI (sin norma nombrada) |
