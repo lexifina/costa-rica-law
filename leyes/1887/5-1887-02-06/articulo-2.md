@@ -1,0 +1,1 @@
+Art. 2°.-El Liceo se dividirá en dos partes: una Escuela Elementaría Modelo, destinada á la enseñanza primaria propiamente dicha (I al IV grado), y un Colegio para la continuación y ampliación de los conocimientos adquiridos en dicha Escuela y para la enseñanza secundaria en toda su extensión.
