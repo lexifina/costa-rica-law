@@ -1,0 +1,1 @@
+Art 5.- Durante la secuela de la causa permanecerá el reo preso en el mismo Lazareto con las seguridades conducentes, a cuyo efecto proveerá el Gobierno desde ahora de construir cerca del muro la habitación y proveerá de prisiones.
